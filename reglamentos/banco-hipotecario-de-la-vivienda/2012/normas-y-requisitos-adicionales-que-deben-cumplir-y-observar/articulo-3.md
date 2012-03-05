@@ -1,0 +1,7 @@
+3º—Las asociaciones solidaristas que una vez adquirida la condición de entidad autorizada del Sistema Financiero Nacional para la Vivienda deseen administrar recursos del FONAVI deberán además cumplir con las siguientes disposiciones:
+a) Tener identificada una demanda potencial de crédito de al menos ¢250 millones.
+b) Contar con un plan y su respectivo cronograma que asegure la implementación en un plazo no mayor a un año de buenas prácticas, conforme lineamientos que emitirá la Gerencia General, en materia de:
+b.1) Cumplimiento de la Ley número 8204 Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas.
+b.2) Aplicación de las políticas y lineamientos de Gobierno Corporativo y Administración Integral de Riesgos dictados por la Superintendencia General de Entidades Financieras.
+b.3) Gestión de crédito, según lineamientos que emitirá la Gerencia General del BANHVI a efectos de la valoración de potenciales deudores.
+c) Contar con una calificación de riesgo, realizada por una calificadora de riesgo debidamente autorizada, calificación que en caso de que la entidad reciba el crédito, deberá mantenerse actualizada durante el plazo de la operación; sumado esto, a la remisión periódica de información sobre una serie de indicadores financieros, según lo determine la Administración de este Banco, para darle un adecuado seguimiento a la condición financiera de la entidad.

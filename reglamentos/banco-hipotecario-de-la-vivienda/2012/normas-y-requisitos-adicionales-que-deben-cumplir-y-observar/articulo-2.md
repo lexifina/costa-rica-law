@@ -1,0 +1,4 @@
+2º—Las asociaciones solidaristas que una vez adquirida la condición de entidad autorizada del Sistema Financiero Nacional para la Vivienda deseen administrar recursos del FOSUVI deberán además cumplir con las siguientes disposiciones:
+a) Contar con la estructura administrativa y tecnológica adecuada para integrar el trámite de bono familiar a sus operaciones, de tal forma que los procesos de registro, seguimiento y control se encuentren integrados.
+b) Contar con mecanismos adecuados, internos o externos, que les permita fiscalizar los procesos constructivos y hacer valoraciones.
+c) Garantizar el debido control de los recursos públicos, principalmente por medio de una correcta fiscalización de la inversión de los mismos de acuerdo con los lineamientos que, para todas las entidades autorizadas, emitan la Contraloría General de la República y el BANHVI.
