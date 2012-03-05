@@ -1,8 +1,8 @@
 4. Servicios bancarios electrónicos
-4.1.-SINPE Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre cuentas de reserva.
-Transferencia de fondos a terceros:
-1. Por la página Web: $1.50 por transferencia.
-2. En forma manual por plataforma $4.00 por transferencia.
+4.1. SINPE Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre cuentas de reserva.
+1. Por la página Web: $ 1,50 por transferencia.
+2. En forma manual por plataforma $ 5,00 por transferencia.
+(Así reformado el punto 4.1 anterior mediante sesión N° 10 del 5 de marzo del 2012)
 4.2.-Bancatel
 4.2.1Banca Fax $0.20 por folio.
 4.2.2Módulo de Negocios $2.00 fijo mensual **
@@ -20,6 +20,9 @@ Una Mínima $35.00 diarios siempre que se efectúe al menos una transferencia. P
 adicional
 4.6.- Plataforma de conectividades
 Según convenio: la comisión que para este servicio se acuerde entre el Banco y la empresa contratante, será establecida en el documento Reglas del Negocio que deben firmar ambas partes.
+(*) 4.6. Créditos directos salientes Sinpe cuentas clientes
+$ 0,75 por transacción.
+(*)(Mediante sesión N° 10 del 5 de marzo del 2012, se reforma el punto 4.6) anterior. No obstante; al no coincidir el contenido el mismo ha sido adicionado)
 4.7.-Tesorería electrónica
 Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen sus clientes mediante el uso de este servicio.
 4.8.-Certificados Digital
@@ -35,6 +38,10 @@ Mantenimiento mensual | $ 1,00
 Sustitución defecto de fábrica (garantía 4 años) | $ 0,00
 Reemplazo por pérdida o daño | $35,00
 (*)(Así adicionado el punto 4.9) anterior mediante sesión 49-11 de 14 de noviembre del 2011. No obstante; ya exsiste un punto 4.9, pero con diferente contenido)
+(*) 4.9. Transferencia por medio de Web corporativo
+- Para los débitos en tiempo real $ 2,00
+- Para los débitos directos $ 0,75
+(*)(Mediante sesión N° 10 del 5 de marzo del 2012, se reforma el punto 4.9) anterior. No obstante; al no coincidir el contenido el mismo ha sido adicionado)
 4.10- Órdenes de pago electrónica, mediante el canal www.bancobcr.com
 $3.00 por transferencia.
 (*)4.11 Certificados Digital

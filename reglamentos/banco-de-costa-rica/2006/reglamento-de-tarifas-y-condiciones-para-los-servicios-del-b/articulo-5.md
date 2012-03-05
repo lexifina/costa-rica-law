@@ -86,6 +86,9 @@ Manejo /Negociación de documentos $ 100,00
 Envíos de:
 $1.00 a $100.00…………… $3.00 comisión
 $100.01 a $500.00 ………… $5.00 comisión
+(Mediante sesión N° 10 del 5 de marzo del 2012 se reforman las tarifas de remesas a Nicaragua, no obstante al no coincidir la numeración las mismas se transcriben a continuación: 5.22. Tarifas remesas a Nicaragua
+- Envíos de $ 1 a $ 500: $ 3,00
+- Envíos de $ 500,01 en adelante: $ 5,00)
 5.19.- Transferencias salientes Alianza Bancaria Regionales en ventanilla.
 Montos hasta $5.000 ----------$10.00
 Montos mayores a $5.000 ----$15.00
@@ -93,10 +96,15 @@ Montos mayores a $5.000 ----$15.00
 Hasta el 1% del tipo de cambio de negociación
 Mínimo $10.00.
 (*)(Así reformado el punto 5.20) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
-5.21- Money Gram, Servicio de remesas Familiares
-De $1.00 a $100………………$4.00
-De $101 en adelante ………….2.00% sobre el monto transado más $2.00 (*)
-• Esta comisión puede variar dependiendo del país de destino de la transferencia según lo establezca el sistema Money Gram.
+(*) 5.21.Servicios MoneyGram
+5.21.1. Envíos corredor Costa Rica – Nicaragua / Colombia
+De $ 0,01 a $ 100,00: $ 3,00
+De $ 100,01 en adelante: 3% del monto del envío
+1.1.2Envíos de Costa Rica hacia Costa Rica y el resto del mundo
+De $ 0,01 a $ 100,00: 4% del monto de envío
+De $ 100,01 en adelante: 2% del monto de envío más $ 2,00
+Nota: recibos de dinero no se cobra.
+(*)(Así reformado el punto 5.21) anterior mediante sesión N° 10 del 5 de marzo del 2012)
 5.22- U.S. Direct Deposit – Acreditación Pensiones Gobierno de los E.E.U.U.
 Acreditación $6.00 por transacción.
 De ésta tarifa que cobra el BCR, se comparte el 50% con el Bank of New York
