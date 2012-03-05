@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 36804-H de fecha 5 de setiembre del 2011, publicado en el Diario Oficial La Gaceta Nº 199 de fecha 18 de octubre del 2011, a partir de la vigencia del presente decreto.
