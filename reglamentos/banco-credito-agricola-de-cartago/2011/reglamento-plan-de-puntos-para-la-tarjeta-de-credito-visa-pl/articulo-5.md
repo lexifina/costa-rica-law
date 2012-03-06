@@ -1,6 +1,7 @@
 Artículo 5º—Disposiciones generales: El Plan de puntos para la tarjeta de Crédito VISA Platinum y Oro, estará normado bajo las siguientes condiciones generales:
 A. La acumulación de puntos, se llevará a cabo con base en las compras efectuadas tanto en el comercio nacional como en el exterior.
-B. Para la acumulación de puntos, el cómputo se hará en dólares o su equivalente en colones, al tipo de cambio contable para la compra vigente en el Banco, al día en que la transacción sea registrada como válida en la base de datos del Banco.
+B. Para la acumulación de puntos, el cómputo se hará en dólares, o su equivalente en colones, al tipo de cambio contable del Banco vigente al cierre de cada mes.
+(Así reformado el inciso anterior mediante sesión N° 8527/12 del 6 de marzo del 2012)
 C. Se acumulará un punto por cada dólar de compra o su equivalente en colones. Compras inferiores a un dólar, no generarán puntaje.
 D. El Banco se reserva el derecho de modificar o dejar sin efecto el Plan de Puntos según su conveniencia, para lo cual notificará al Tarjetahabiente con 30 días de antelación, mediante una comunicación insertada en el estado de cuenta o por el correo electrónico.
 E. Cada punto acumulado en la tarjeta, tendrá un valor económico de $0,01 para su redención.

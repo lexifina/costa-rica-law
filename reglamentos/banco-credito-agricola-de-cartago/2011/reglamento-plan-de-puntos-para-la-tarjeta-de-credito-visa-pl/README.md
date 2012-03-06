@@ -14,3 +14,4 @@ Reglamento plan de puntos para la tarjeta de crédito visa platinum y oro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-13 | la propia norma |
+| 2 | 2012-03-06 | Reglamento 8527 (2012-03-06) |
