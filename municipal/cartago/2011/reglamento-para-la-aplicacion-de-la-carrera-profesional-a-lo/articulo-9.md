@@ -21,7 +21,8 @@ a) De aprovechamiento: Un punto por cada cuarenta horas naturales efectivas de i
 b) De participación: Un punto por cada ochenta horas naturales hasta un máximo de veinte puntos. Los cursos de aprovechamiento y participación menores y los excedentes del número de horas señaladas en los ítems anteriores se acumularán para efecto de su reconocimiento.
 c) Cursos de capacitación impartidos:
 - Un punto cada veinticuatro horas hasta un máximo de diez puntos.
-d) Experiencia Profesional en la Municipalidad de Cartago:
+d) Experiencia Profesional en la Municipalidad de Cartago y en otras instituciones del sector público.:
+(Así reformado el inciso anterior en sesión N° 138-12 del 6 de marzo del 2012)
 - Un punto por cada año, hasta cinco años.
 - Un punto y medio de seis años en adelante.
 e) Experiencia docente, en Instituciones de Enseñanza de Nivel Universitario o Parauniversitario

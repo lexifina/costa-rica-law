@@ -14,3 +14,4 @@ Reglamento para la aplicación de la carrera profesional a los profesionales de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-16 | la propia norma |
+| 2 | 2012-03-06 | Reglamento municipal 138 (2012-03-06) |
