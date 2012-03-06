@@ -1,0 +1,2 @@
+3) Incluir en el Reglamento de Operaciones Portuarias como Anexo 4 el “Reglamento para la Prevención y Control de la Contaminación en los Puertos dados en Concesión o Bajo Jurisdicción de INCOP”, aprobado mediante Acuerdo 2 tomado en Sesión Nº 3714 celebrada el 23 de junio de 2011 y publicado en La Gaceta Nº 153 del 10 de agosto de 2011.
+Lo anterior, conforme al Oficio Nº G.G.C. 072-2012 de la Gerencia General, fechado 16 de enero de 2012.
