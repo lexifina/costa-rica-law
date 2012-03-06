@@ -1,0 +1,1 @@
+Artículo 15.—Actividades municipales: La Municipalidad podrá organizar al año las actividades que consideren oportunas, en los espacios públicos, para lo cual la administración debe igualmente velar por el mantenimiento del parque y cumplir con las mismas disposiciones del artículo 12.

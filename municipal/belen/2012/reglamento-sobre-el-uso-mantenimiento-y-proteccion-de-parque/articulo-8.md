@@ -1,0 +1,1 @@
+Artículo 8º—Autoridad responsable: La fiscalización corresponde a la policía municipal y a la policía de proximidad, quiénes realizarán los informes respectivos ante los incumplimientos detectados a las disposiciones del presente Reglamento, mediante un informe el cual será remitido a la Alcaldía Municipal para el trámite respectivo.
