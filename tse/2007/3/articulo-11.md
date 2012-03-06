@@ -1,1 +1,0 @@
-Artículo 11.—El delegado del Tribunal deberá verificar y consignar, en el informe, la cantidad de asambleístas que votan a favor o en contra de un determinado asunto, así como el tipo de votación (artículos 58, inciso g), y 60 del Código Electoral).

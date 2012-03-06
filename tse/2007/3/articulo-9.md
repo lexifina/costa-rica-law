@@ -1,1 +1,0 @@
-Artículo 9º—Luego de haberse iniciado la asamblea, el delegado del Tribunal debe, hasta donde sea posible, ubicarse cerca de la mesa principal, para tener fácil acceso a los acuerdos que se tomen, así como a cualquier consulta o indicación que deba hacerse al encargado del desarrollo de la asamblea.

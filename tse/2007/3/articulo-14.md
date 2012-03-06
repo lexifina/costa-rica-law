@@ -1,1 +1,0 @@
-Artículo 14.—Las delegaciones de las asambleas distritales, cantonales y provinciales, deberán estar conformadas, al menos, por un cuarenta por ciento (40%) de mujeres (artículo 60 del Código Electoral).

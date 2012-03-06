@@ -1,1 +1,0 @@
-Artículo 13.—El delegado deberá tomar nota de todas las incidencias de la asamblea. Si se llevan a cabo nombramientos, debe anotarse el nombre completo de la persona elegida, así Como su número de cédula de identidad, el puesto para el que fue electa, la forma de votación y los votos que obtuvo.

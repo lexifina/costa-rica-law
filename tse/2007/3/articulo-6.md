@@ -1,1 +1,0 @@
-Artículo 6º—El tiempo máximo de espera que debe darse para que se complete el quórum requerido para la asamblea, es de una hora, contada a partir de la señalada para el inicio. Debe advertirse a los responsables de la asamblea su retiro, la razón que tiene para hacerlo y las posibles consecuencias de su ausencia.
