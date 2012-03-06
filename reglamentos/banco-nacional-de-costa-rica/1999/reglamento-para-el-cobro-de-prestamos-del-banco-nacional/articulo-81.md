@@ -1,1 +1,0 @@
-Artículo 81.—La aprobación de un nuevo crédito que comprenda la cancelación o regularización del anterior, no podrá considerarse como regularización, hasta tanto no se haya realizado la aplicación contable al crédito.

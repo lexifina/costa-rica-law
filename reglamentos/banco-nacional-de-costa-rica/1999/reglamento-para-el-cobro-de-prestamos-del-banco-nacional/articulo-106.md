@@ -1,1 +1,0 @@
-Artículo 106.—Los honorarios a pagar por el deudor se negociarán con el abogado y se tomará en cuenta la encuesta que realice la empresa contratada por el Banco para determinar el costo de mercado para este servicio.

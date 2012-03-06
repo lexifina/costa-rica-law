@@ -1,4 +1,0 @@
-Artículo 10
-El abogado contará con tres días hábiles a partir de la fecha de recibo de la comunicación de que le fue asignado un expediente en que el Banco le comunica por fax, carta o correo electrónico que le fue asignado un expediente, para justificar a satisfacción del Banco si tiene imposibilidad de dirigir el proceso.
-Vencido ese plazo, si no media justificación a satisfacción del Banco, el Centro de Administración de Crédito respetando el rol de asignaciones entregará el expediente a otro abogado que por turno le corresponda y el caso no será repuesto al abogado inicial; debiendo valorarse dicha situación, para los efectos de lo que dispone el párrafo diez del Artículo 5 y lo señalado en el artículo 67 según corresponda.
-(Así reformado mediante sesión N° 11574 del 29 de setiembre de 2009)

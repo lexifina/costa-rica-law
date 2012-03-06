@@ -1,1 +1,0 @@
-Artículo 33.—El órgano o funcionario competente, bajo su propia discreción y responsabilidad administrativa, decidirá si el Banco se adjudica los bienes en el primero, segundo o tercer remate. Lo anterior, utilizando la información, parámetros y criterios que estime necesarios y siempre en defensa de los mejores intereses de la Institución.

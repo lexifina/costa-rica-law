@@ -1,1 +1,0 @@
-Artículo 23.—Corresponde a la Gerencia General y a las Direcciones Regionales respectivas, promover el nombramiento o destituciones de abogados para cualquier oficina, cuando las necesidades del Banco así lo requieran.

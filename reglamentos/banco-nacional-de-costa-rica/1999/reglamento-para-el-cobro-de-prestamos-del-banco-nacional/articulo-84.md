@@ -1,1 +1,0 @@
-Artículo 84.—En aquellos casos en que se determine que la aprobación de una suspensión sea perjudicial a los intereses del Banco, la Jefatura del Centro de Administración de Crédito remitirá una nota explicativa a quien la otorgó, a fin de que lo modifique o acepte el riesgo apuntado, bajo su responsabilidad.

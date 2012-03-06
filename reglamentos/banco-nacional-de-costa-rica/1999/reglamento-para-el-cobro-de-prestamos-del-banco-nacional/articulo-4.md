@@ -1,2 +1,0 @@
-Artículo 4°—Todas las gestiones de cobro que realice el Banco sobre las operaciones de crédito, en cualquiera de las oficinas indicadas en el artículo primero, se efectuarán de conformidad con el presente Reglamento.
-No implica lo anterior imposibilidad para que el Banco, por razones de conveniencia y de forma motivada, pueda recurrir a un procedimiento de cobro más acelerado, cualquiera que fuere.

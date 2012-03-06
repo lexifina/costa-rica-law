@@ -1,1 +1,0 @@
-Artículo 95.—Cuando no se regularice una operación que tiene señalada hora y fecha para remate, éste sólo podrá ser suspendido por la Junta Directiva, Gerente General, Sub-Gerentes Generales, Director Regional, o aquellos funcionarios autorizados por la Junta Directiva, mediante resolución debidamente motivada.

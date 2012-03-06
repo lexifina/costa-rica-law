@@ -1,4 +1,0 @@
-Artículo 11
-Los abogados contarán con cinco días hábiles a partir de la fecha de recibo de la comunicación de que le fue asignado un expediente en que el Banco les comunica por fax, carta o correo electrónico, para entregar al Centro de Administración de Crédito copia de la demanda debidamente sellada por el Despacho Judicial.
-En aquellos casos en que la demanda fue confeccionada y presentada ante el Juzgado dentro de los cinco días hábiles, pero no consta, ni existe evidencia de dicha gestión, en el Centro de Administración del Crédito y el prestatario u obligado cancela lo adeudado; ante estas situaciones y por un principio de equidad, el abogado tendrá derecho a que se le reponga el proceso cobratorio por uno de una cuantía y condiciones que sean razonablemente similares.
-Así reformado mediente sesión N° 11574 del 29 de setiembre de 2009)

@@ -1,1 +1,0 @@
-Artículo 70.—En el caso de los abogados que ofrezcan sus servicios en más de una oficina, la suspensión en una de ellas se hará extensiva al resto. La oficina que gestiona la suspensión lo informará a la Dirección Regional para que esta a su vez lo comunique a las siguientes.

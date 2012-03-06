@@ -1,1 +1,0 @@
-Artículo 47.—En los casos en que la Gerencia General o los Directores Regionales acepten el retiro de un abogado que lo solicite voluntariamente, el pago de honorarios procederá de acuerdo con lo que estipulan los artículos 40 y 45 anteriores y la reasignación de abogado a cada cobro, lo será con base en los artículos 13 y siguientes.

@@ -1,4 +1,0 @@
-Artículo 12.—Para el cálculo de gastos administrativos se aplica lo establecido en el Manual de Comisiones Vigente.
-Los gastos por timbres, estudios o certificaciones a reintegrar, ocasionados por los diferentes procesos o trabajos encomendados de cualquier naturaleza que sean, se reintegrarán únicamente por su costo en gasto de especie o costo nominal cancelado al Registro Público o Institución de que se trate.
-No se pagarán honorarios adicionales por estos conceptos por cuanto los mismos tienen su razón de ser en un caso o litigio sobre el que el Banco cancela honorarios y forman parte de la labor a desplegar como una consecuencia del transcurrir de los mismos.
-Debe el abogado mantener en sus expedientes los originales de todos los gastos incurridos y presentarlos en su momento oportuno al Despacho Judicial para su reconocimiento o para cuando sean requeridos.

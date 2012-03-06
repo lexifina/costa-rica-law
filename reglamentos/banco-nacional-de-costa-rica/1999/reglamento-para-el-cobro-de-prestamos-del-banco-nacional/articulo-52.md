@@ -1,1 +1,0 @@
-Artículo 52.—Una vez diligenciada la comisión, se deberá entregar al Abogado Director y se les concederá un plazo máximo de dos días hábiles para que se confeccione el escrito de presentación de la misma ante el juzgado respectivo

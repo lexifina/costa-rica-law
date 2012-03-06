@@ -1,1 +1,0 @@
-Artículo 102.—El Banco iniciará el cobro en el plazo improrrogable de cinco días hábiles después de suscrita la razón en el original del Vale de Prenda de que fue “Presentado y no Pagado”. Esta razón deberá ser suscrita dentro de los siguientes seis días hábiles a su vencimiento.

@@ -1,1 +1,0 @@
-Artículo 113.—Si no se produjere adjudicación alguna, el abogado remitirá ‘65l acta con una solicitud a la oficina que realiza el cobro, a fin de que se le indique cuales serán las gestiones a realizar. Igualmente, consignará una razón en el Vale de Prenda haciendo constar que hubo remate e indicando los datos de la escritura respectiva.

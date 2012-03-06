@@ -1,1 +1,0 @@
-Artículo 25.—Sin perjuicio de los requisitos que establezca el cartel de procedimiento administrativo, el abogado para cobro judicial deberá rendir una caución no menor a diez millones de colones, por el plazo del nombramiento.

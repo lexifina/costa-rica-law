@@ -1,3 +1,0 @@
-Artículo 40.—Si el abogado fuese suspendido en forma definitiva, con respecto a los cobros que ya tuviere asignados, se deberá proceder de la siguiente manera:
-Independientemente del estado del juicio el caso se distribuirá a los demás abogados del Banco por medio del rol.
-En caso de que el abogado anterior hubiere recibido una parte de sus honorarios, también se aplicará el procedimiento antes indicado. Si el abogado suspendido recibió la totalidad de sus honorarios correspondientes hasta esa parte del proceso, el juicio deberá ser finalizado por un profesional asignado según el rol, retribuyéndosele con el monto faltante por completar el proceso

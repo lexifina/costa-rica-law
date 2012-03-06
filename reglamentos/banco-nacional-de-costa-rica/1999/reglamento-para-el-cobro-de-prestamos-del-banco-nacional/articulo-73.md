@@ -1,1 +1,0 @@
-Artículo 73.—Aún cuando el Banco estime que la prestación de los servicios profesionales del abogado puedan suspenderse en cualquier momento sin responsabilidad de su parte, el abogado tendrá derecho de ser oído en sus justificaciones por la Comisión de Servicios de Abogacía del Banco.

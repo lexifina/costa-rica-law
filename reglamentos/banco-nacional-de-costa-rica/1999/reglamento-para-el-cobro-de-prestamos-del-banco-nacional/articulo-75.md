@@ -1,1 +1,0 @@
-Artículo 75.—Las decisiones de prescindir de los servicios profesionales de abogado en forma definitiva que tome la Comisión, deberán ser informadas a la Gerencia y sometidas a ratificación de la Junta Directiva.

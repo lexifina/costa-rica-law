@@ -1,3 +1,0 @@
-SECCIÓN V
-Remates
-Artículo 92.—Una vez fijada la fecha para remate de un bien, será responsabilidad del Abogado Director del proceso verificar que el edicto esté acorde con los datos que están en el expediente, debe presentarlos en la Imprenta Nacional en el tiempo estipulado, calculando que la última publicación se realice con un mínimo de diez días hábiles antes de la fecha de remate, a fin de gestionar la corrección de cualquier error que se encontrare. Igualmente el abogado tendrá la responsabilidad de coordinar con el Centro de Administración de Crédito la posición que al Banco le interesa asumir dentro de dicho proceso.

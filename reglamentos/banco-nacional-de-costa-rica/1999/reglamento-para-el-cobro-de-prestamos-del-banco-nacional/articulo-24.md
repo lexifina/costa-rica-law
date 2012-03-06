@@ -1,1 +1,0 @@
-Artículo 24.—La decisión del nombramiento se le comunicará por escrito al abogado que resultare designado para prestar sus servicios al Banco. Este deberá contestar en la misma forma, en el plazo de diez días hábiles, expresando su conformidad con el nombramiento y con lo establecido en el presente Reglamento

@@ -1,3 +1,0 @@
-Artículo 112.—Levantada el Acta Notarial, el abogado obtendrá al margen de la misma
-un visto bueno del Jefe del Almacén y remitirá el testimonio respectivo, junto al resto de la documentación a la oficina que realiza el cobro, para que se proceda al pago de sus honorarios.
-En los casos de que se produjera adjudicación a nombre del Banco se ordenará la contabilización de la misma, por parte del Jefe del Almacén.

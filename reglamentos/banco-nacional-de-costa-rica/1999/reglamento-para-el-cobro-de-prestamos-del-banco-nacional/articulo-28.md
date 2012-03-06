@@ -1,1 +1,0 @@
-Artículo 28.—Es obligación del Abogado Director del cobro judicial, de prestar toda la colaboración e información que requiera la Dirección Jurídica, cuando le corresponda atender los intereses del Banco en quiebras, concursos de acreedores o administraciones y reorganizaciones con intervención judicial.

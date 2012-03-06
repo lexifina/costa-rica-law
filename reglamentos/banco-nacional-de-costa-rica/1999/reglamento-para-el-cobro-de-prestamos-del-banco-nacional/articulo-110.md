@@ -1,2 +1,0 @@
-Artículo 110.—El estudio que se realice sobre la conveniencia de adjudicar o no, deberá hacerse antes de cada remate, a fin de que al momento de realizarse el encargado tenga ya la decisión a tomar. Deberá considerarse para este caso cual sería la pérdida menor para el Banco, sobre todo cuando los bienes se encuentren en peligro de deterioro.
-En caso de duda del encargado del Almacén, deberá igualmente con antelación al remate, elevar la consulta respectiva a su superior.

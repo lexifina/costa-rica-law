@@ -1,1 +1,0 @@
-Artículo 76.—Si el abogado fuese suspendido en forma definitiva y tuviera asignados casos, el profesional deberá devolver al Banco los mismos para proceder a su reasignación, y presentar inmediatamente a la Autoridad Judicial correspondiente el respectivo escrito de renuncia.

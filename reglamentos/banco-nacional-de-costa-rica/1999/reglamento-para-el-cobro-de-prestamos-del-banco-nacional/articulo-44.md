@@ -1,1 +1,0 @@
-Artículo 44.—Es obligación y responsabilidad del abogado director del cobro judicial asesorar en la toma de decisiones que requiera la Institución y que tiendan a la efectiva recuperación de lo que le es adeudado

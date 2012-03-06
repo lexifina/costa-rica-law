@@ -1,6 +1,0 @@
-Artículo 27°.
-Los abogados externos serán evaluados como mínimo dos veces al año en los meses de marzo y setiembre, no obstante el Banco tiene la potestad de hacer evaluaciones en cualquier momento cuando se den situaciones que a su juicio lo ameriten. Esta evaluación la realizarán los Centros de Administración de Crédito para determinar la calidad de los servicios prestados, dichas evaluaciones deberán remitirse a las respectivas Comisiones de Servicios de Abogacía con copia al Director Regional de Riesgo de la Dirección Regional que corresponda.
-(Así reformado el párrafo anterior mediante sesión N° 11694 del 5 de abril del 2011)
-En caso de que un abogado sea eliminado en forma definitiva del rol, tal decisión deberá ser informada a la Gerencia, para que esta la eleve a la Junta Directiva para su ratificación.
-Asimismo, tres meses antes de que venza el respectivo nombramiento, el Centro de Administración de Crédito deberá rendir un informe sobre el desempeño de cada uno de los profesionales, para lo cual deberán considerarse las evaluaciones practicadas durante su nombramiento, el cual será conocido por la Comisión de Servicios de Abogacía, quien determinará si se renueva el nombramiento o no.
-Ver: Matriz de Evaluación de los Abogados (Anexo 1).
