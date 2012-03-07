@@ -1,0 +1,1 @@
+Artículo 9º—Se debe invitar como mínimo a tres proveedores escogidos en forma rotativa del registro institucional y se recibirán las ofertas de participantes no invitados, según el artículo 136 del reglamento de Contratación Administrativa.

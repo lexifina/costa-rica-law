@@ -1,0 +1,1 @@
+Artículo 8º—En el caso de Contratación Directa por escasa cuantía. Las cotizaciones se analizarán en conjunto con las unidades involucradas en el proceso, y se debe efectuar el acto de adjudicación en un plazo no mayor de 10 días hábiles según el Reglamento de Contratación Administrativa.

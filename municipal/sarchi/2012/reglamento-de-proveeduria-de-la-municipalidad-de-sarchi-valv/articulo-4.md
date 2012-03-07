@@ -1,0 +1,1 @@
+Artículo 4º—Cada departamento debe solicitar por escrito el bien o servicio por adquirir, deben estar bien definidas las características para no incurrir en errores, de lo contrario la proveeduría no se hace responsable por las adquisiciones que no cumplan con los requerimientos. Se debe adjuntar la certificación de contenido presupuestario de la Tesorería.
