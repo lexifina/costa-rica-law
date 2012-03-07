@@ -1,2 +1,3 @@
-Artículo 5º—Cobro de honorarios y Fondos de Ahorro y Préstamo. En ningún caso el notario de planta puede cobrar honorarios a la institución pública para la cual labora por la prestación de sus servicios. Los notarios en régimen de empleo público podrán cobrar los honorarios correspondientes a los particulares, únicamente en los casos de formalización de escrituras relacionadas con los fondos de ahorro y préstamos que funcionen adscritos a cada institución, y no correspondan a la actividad ordinaria del ente patronal.
-(Corregido mediante Fe de Erratas, publicada en La Gaceta N° 148 del 3 de agosto del 2011)
+Artículo 5°- En ningún caso el notario de planta puede cobrar honorarios a la institución pública para la cuál labora por la prestación de sus servicios.
+El ámbito de competencia de los notarios en régimen de empleo público se limita a la actividad ordinaria del ente patronal y para el ejercicio de su función notarial solo podrá utilizar el protocolo institucional que le fue autorizado para esas funciones.
+(Así reformado mediante sesión N° 06 del 7 de marzo del 2012)
