@@ -1,5 +1,0 @@
-SECCIÓN III
-Artículo 29.—Comités de apoyo. La Junta Directiva Nacional y las Juntas Directivas de las Sociedades nombran los Comités de Apoyo; de igual manera, son las encargadas de dictar las políticas para el establecimiento y eliminación cuando corresponda de estos, así como la normativa que regula su funcionamiento para la ejecución de las diversas operaciones afines con la razón de ser del Banco Popular, y de cada una de las Sociedades que conforman el Conglomerado.
-En cuanto a la idoneidad de los miembros del respectivo Comité, aplicará lo indicado en el artículo 8 del presente Código, ‘Requisitos de idoneidad de los miembros de las Juntas Directivas del Banco Popular, sus Sociedades y Fiscales’.
-Cuando así lo disponga el respectivo Comité, podrá solicitar la participación de un miembro externo a la Junta Directiva respectiva, y para lo cual se establecerá el procedimiento de selección que corresponda.
-La Junta Directiva Nacional, en su calidad de Asamblea de Accionistas, conformará un Comité como corporativo cuando lo considere necesario, en cuyo caso comunicará la decisión a la Sociedad que corresponda, con constancia en la respectiva acta.

@@ -1,2 +1,0 @@
-SECCIÓN IV
-Artículo 26.—Informe anual de gobierno corporativo. La Junta Directiva Nacional debe aprobar, remitir y publicar, por los medios de que disponga el Superintendente respectivo, un informe anual de Gobierno Corporativo para todo el Conglomerado con corte al 31 de diciembre de cada año, el cual deberá ser presentado a más tardar el último día hábil del mes de marzo. Este informe deberá cumplir con lo establecido por el Reglamento de Gobierno Corporativo aprobado por el CONASSIF.

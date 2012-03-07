@@ -1,3 +1,0 @@
-Artículo 11.—Lineamientos para el proceso de elección de los directivos y directivas de la junta directiva del banco popular y de las sociedades. Corresponde a la Asamblea nombrar a cuatro (4) Directivos o Directivas propietarios y sus suplentes ante la Junta Directiva Nacional del Conglomerado, cumpliendo con los lineamientos de idoneidad establecidos en este Código.
-Corresponde al Poder Ejecutivo nombrar tres (3) Directivos o Directivas propietarios y sus suplentes, cumpliendo con los lineamientos de idoneidad establecidos en este Código.
-La Junta Directiva Nacional, en su calidad de Asamblea de Accionistas, deberá efectuar el nombramiento de los Directivos y Fiscales de las Sociedades.
