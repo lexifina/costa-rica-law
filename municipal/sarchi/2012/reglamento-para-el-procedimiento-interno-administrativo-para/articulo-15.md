@@ -1,0 +1,2 @@
+Artículo 15.—De la audiencia de evacuación de la prueba. Transcurrido el plazo anterior a partir de recibida la notificación y dentro de los 8 días hábiles, el Órgano Director hará comparecer a las partes, recibiendo en el acto la prueba testimonial, los demás medios de pruebas pertinentes (confesional, documental, indiciaria y cualesquiera otro que el ordenamiento jurídico establece) y los alegatos respectivos.
+No puede exceder la Municipalidad de Valverde Vega, el plazo de tres meses, contados a partir de la denuncia, para concluir todo el proceso.
