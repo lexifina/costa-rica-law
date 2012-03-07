@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+Del Comité Corporativo de Auditoría
+Artículo 7º—Integración: El Comité Corporativo de Auditoría será nombrado por la Junta Directiva y estará integrado por cinco miembros, de los cuales, tres serán Directores de la Junta Directiva, el Director de Finanzas y el Director de Riesgos del Banco. En cuanto a los tres Directores designados, ostentarán en forma individual la representación de: Banco Crédito Agrícola de Cartago, Bancrédito Sociedad Agencia de Seguros S. A. y al Depósito Agrícola de Cartago S. A. (DACSA) y su subsidiaria. El Comité podrá asesorarse con las personas que crea pertinente, sean o no del Banco.

@@ -1,0 +1,3 @@
+Artículo 14.—Libro de Actas: Los acuerdos que se tomen en las sesiones, deberán constar en un Libro de Actas, conformado de acuerdo a las directrices que las Superintendencias respectivas dispongan, incluida la posibilidad de llevarlo en forma electrónica. Las actas deberán estar a disposición de las Superintendencias, cuando sean requeridas.
+El presente Reglamento fue aprobado por la Junta Directiva General del Banco Crédito Agrícola de Cartago, en la sesión Nº 8519/12, artículo 18°, celebrada el 7 de febrero del 2012 y rige a partir de su publicación en La Gaceta.
+Cartago, 20 de febrero del 2012.—
