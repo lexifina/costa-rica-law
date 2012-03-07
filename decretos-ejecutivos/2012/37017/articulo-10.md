@@ -1,0 +1,1 @@
+Artículo 10º- Por ser el purín un subproducto agrícola mejorador de las características físicas, químicas y microbiológicas del suelo, son de aplicación, para su regulación, las normas emitidas por el Ministerio de Agricultura y Ganadería.

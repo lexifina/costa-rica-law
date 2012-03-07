@@ -1,0 +1,1 @@
+Artículo 5º- Los purines son un subproducto de las fincas lecheras y se utilizarán como un mejorador de las características físicas, químicas y microbiológicas del suelo, logrando aumentar la producción y calidad de los forrajes.

@@ -1,0 +1,1 @@
+Artículo 9º- El cumplimiento del PAPF es equivalente al requisito del Plan de Manejo de Residuos y Aguas Residuales, para efectos de cumplimiento del Reglamento del CVO, en lo que a purines se refiere.

@@ -1,0 +1,1 @@
+Artículo 6º- Las Agencias de Servicios Agropecuarios del MAG, el SENASA o los grupos organizados que tengan convenios con el MAG sobre esta materia, serán los responsables de divulgar y capacitar sobre esta metodología de aplicación de purines.
