@@ -14,3 +14,4 @@ Crea Comisión Interinstitucional para la aplicación de la Convención para la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-07 | la propia norma |
+| 2 | 2012-03-07 | Acuerdo 28 (2012-02-22) |
