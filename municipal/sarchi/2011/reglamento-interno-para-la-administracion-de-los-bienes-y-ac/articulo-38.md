@@ -1,0 +1,1 @@
+Artículo 38.—Queda prohibido a los funcionarios tomar bienes para ser movilizados sin permiso del responsable a quien están asignados y sin haber confeccionado antes el formulario de “Movimiento de Activos”.

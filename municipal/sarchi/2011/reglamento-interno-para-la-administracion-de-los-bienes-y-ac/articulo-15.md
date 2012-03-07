@@ -1,0 +1,1 @@
+Artículo 15.—Los funcionarios reportarán cualquier daño o imprudencias que otros compañeros causaren en perjuicio de los activos. Si descubrieren un robo u otro acto indeseable, están obligados a denunciarlo inmediatamente.

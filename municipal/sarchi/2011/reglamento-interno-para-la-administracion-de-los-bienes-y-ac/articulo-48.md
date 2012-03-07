@@ -1,0 +1,1 @@
+Artículo 48.—Para entregar activos en calidad de préstamo a otras instituciones, se deberá realizar mediante un convenio aprobado por el Concejo Municipal y confección de acta de entrega de activos por parte de la dependencia respectiva o funcionario autorizado. Además la Proveeduría debe completar la boleta de “Movimiento de Activos”.

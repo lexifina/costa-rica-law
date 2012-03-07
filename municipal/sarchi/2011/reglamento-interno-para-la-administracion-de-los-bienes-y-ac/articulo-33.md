@@ -1,0 +1,1 @@
+Artículo 33.—El Departamento de Contabilidad debe efectuar el cálculo y registro de los cargos por depreciación de todos los activos de la Institución, para lo cual debe actualizar el sistema de cómputo respecto a las tasas de depreciación, según las establecidas en el Reglamento General de Impuesto sobre la Renta.

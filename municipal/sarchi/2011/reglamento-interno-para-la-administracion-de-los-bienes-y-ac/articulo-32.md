@@ -1,0 +1,1 @@
+Artículo 32.—El Departamento de Contabilidad es el encargado de realizar la clasificación y el registro contable de los bienes según el departamento al que se le asigne y conforme las Normas Internacionales para el sector público (NICSP) y con los Principios de Contabilidad Generalmente Aceptados (PCGA)

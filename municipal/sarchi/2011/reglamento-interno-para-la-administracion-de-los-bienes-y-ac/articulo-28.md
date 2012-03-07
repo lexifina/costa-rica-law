@@ -1,0 +1,1 @@
+Artículo 28.—Es responsabilidad de cada usuario firmar el correspondiente oficio al recibir un activo, previa verificación de que los bienes anotados están en las condiciones que se indica y que los datos que contengan sea la información correcta.

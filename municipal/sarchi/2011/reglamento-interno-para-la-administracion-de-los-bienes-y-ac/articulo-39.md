@@ -1,0 +1,1 @@
+Artículo 39.—En los casos de activos que por su estado no estén sujetos de donación y tengan que ser desechados, el Alcalde Municipal solicitará al Concejo Municipal su autorización, comunicando de inmediato los Departamentos de Proveeduría, Contabilidad y Auditoría, para que sean retirados de sus registros.

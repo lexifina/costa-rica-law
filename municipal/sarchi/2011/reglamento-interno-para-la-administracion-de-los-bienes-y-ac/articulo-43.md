@@ -1,0 +1,1 @@
+Artículo 43.—De considerarse que el activo dañado no es susceptible de ser reparado, el Departamento de Proveeduría enviará nota al Departamento de Contabilidad, solicitando el descargo del activo, comunicando tal situación a la Alcaldía Municipal, con copia a la Auditoría Interna.

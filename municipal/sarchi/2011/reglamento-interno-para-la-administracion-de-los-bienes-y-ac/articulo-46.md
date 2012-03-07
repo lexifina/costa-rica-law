@@ -1,0 +1,1 @@
+Artículo 46.—Cuando la Municipalidad modifique su organigrama, ya sea total o parcialmente, el Alcalde Municipal deberá comunicar oportunamente a los Departamentos de Proveeduría Contabilidad los cambios por efectuar, con el propósito de hacer los ajustes correspondientes y mantener actualizada la base de datos de control de bienes.

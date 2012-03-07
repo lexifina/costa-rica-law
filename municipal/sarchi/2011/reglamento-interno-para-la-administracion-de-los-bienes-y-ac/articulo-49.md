@@ -1,0 +1,1 @@
+Artículo 49.—Cualquier incumplimiento a las obligaciones y deberes de las jefaturas y usuarios contenidos en este reglamento será sancionado de acuerdo con lo que dispone el Reglamento de Organización y Servicios de la Municipalidad de Valverde Vega, el Código Municipal y la normativa conexa vigente.

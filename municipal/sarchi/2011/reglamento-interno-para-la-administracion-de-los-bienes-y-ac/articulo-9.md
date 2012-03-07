@@ -1,0 +1,1 @@
+Artículo 9º—Todo usuario es responsable de mantener en buen estado y bien colocada la placa de identificación. En caso de deterioro o pérdida, se comunicará de forma inmediata a la Proveeduría para que se le dé solución.

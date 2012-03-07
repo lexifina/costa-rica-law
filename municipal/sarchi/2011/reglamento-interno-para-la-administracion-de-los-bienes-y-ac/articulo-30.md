@@ -1,0 +1,1 @@
+Artículo 30.—El Departamento de Proveeduría en coordinación con el Departamento de Contabilidad, anualmente, entre los meses de Abril y Mayo, efectuará un inventario físico para verificar que los bienes asignados a cada Departamento sean realmente los existentes.

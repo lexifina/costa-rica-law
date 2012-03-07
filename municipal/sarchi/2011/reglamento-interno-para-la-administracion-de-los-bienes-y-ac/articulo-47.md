@@ -1,0 +1,1 @@
+Artículo 47.—Los activos que se encuentran totalmente depreciados y no estén siendo utilizados, podrán ser donados, siempre y cuando el Concejo Municipal lo autorice, con base en un informe técnico de los Departamentos de Proveeduría y Contabilidad y con un refrendo del Departamento Legal

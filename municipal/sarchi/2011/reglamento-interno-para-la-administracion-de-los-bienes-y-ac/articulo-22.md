@@ -1,0 +1,1 @@
+Artículo 22.—Cada jefe implantará los mecanismos necesarios a fin de que pueda tener su propio control sobre e! equipo y hacer las observaciones que considere pertinentes al informe anual que enviará el Departamento de Proveeduría.
