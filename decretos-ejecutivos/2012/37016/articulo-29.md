@@ -1,0 +1,2 @@
+Articulo 29.- Guía para el diseño estructural de pavimentos flexibles y rígidos calibrada para Costa Rica
+La Guía para el diseño estructural de pavimentos flexibles y rígidos calibrada para Costa Rica define la metodología que se debe emplear para el cálculo de los espesores de las distintas capas del pavimento, tomando en consideración factores como periodos de diseño, materiales, clima, tránsito y solicitaciones de carga. Esta guía incluye un manual de diseño simplificado para pavimentos en rutas con bajos volúmenes vehiculares.

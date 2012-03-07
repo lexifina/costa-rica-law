@@ -1,0 +1,4 @@
+Artículo 52.- Diagnóstico de la capacitación
+El LanammeUCR realizará una consulta por escrito en el segundo trimestre de cada año a las unidades de capacitación del MOPT, CONAVI, COSEVI, CNC, así como a las Unidades Técnicas de Gestión Vial Municipal y empresas constructoras y consultoras de obras viales, por los medios que se estimen pertinentes, para identificar de forma objetiva las necesidades reales de capacitación y por lo tanto los temas de capacitación y transferencia de tecnología requeridos.
+Se tomara en consideración además las sugerencias de los equipos de investigación, auditoría técnica, evaluación y gestión de la red vial y proyecto municipal del LanammeUCR.
+Otras instituciones interesadas y personas podrán enviar sugerencias vía web o por escrito a la Unidad de Capacitación y Transferencia de Tecnología del LanammeUCR en las temáticas concernientes a tecnología del sector vial de Costa Rica.

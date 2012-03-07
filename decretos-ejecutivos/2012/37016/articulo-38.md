@@ -1,0 +1,2 @@
+Artículo 38.- Convocatoria por parte del Jerarca del MOPT
+Cada vez que LanammeUCR presente una actualización de cualquier parte del Manual de Especificaciones ante el Jerarca del Ministerio de Obras Públicas y Transportes, éste deberá proceder a convocar de inmediato a la Comisión Revisora a que refiere el artículo 35, para que inicie el proceso de análisis correspondiente. Con tal convocatoria remitirá a cada uno de los miembros de la citada Comisión un ejemplar del documento respectivo.

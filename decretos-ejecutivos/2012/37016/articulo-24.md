@@ -1,0 +1,2 @@
+Artículo 24.- Trámite para las propuestas de modificación.
+Toda modificación remitida por el LanammeUCR a la Comisión de Revisión Permanente del Manual de Especificaciones será sujeta de análisis por parte de todos sus miembros, documentando los criterios técnicos que se emitan tanto a favor como en contra, posteriormente, se remitirá toda esa documentación a la Dirección del LanammeUCR, la cual decidirá sobre su pertinencia técnica y su remisión para la correspondiente oficialización por parte del MOPT.

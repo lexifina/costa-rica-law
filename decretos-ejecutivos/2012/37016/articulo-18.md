@@ -1,0 +1,2 @@
+Artículo 18.- Deber de coordinación
+La Dirección de Planificación Sectorial del MOPT realizará las acciones de coordinación que sean necesarias con el CONAVI, mediante una constante y efectiva comunicación, en la que se le brinde toda la información necesaria para desarrollar las funciones que conforme el artículo anterior le corresponden y así lograr una aplicación eficiente de la información generada en las evaluaciones bienales.

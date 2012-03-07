@@ -1,0 +1,5 @@
+CAPÍTULO V
+CAPACITACIÓN Y TRANSFERENCIA DE TECNOLOGÍA
+Artículo 51.- Alcance
+Comprende todas las actividades a desarrollar para capacitar y transferir tecnología al personal técnico, profesional y gerencial que se desempeña en obra vial de Costa Rica. Los temas de capacitación técnica a desarrollar serán los directamente relacionados con la planificación, diseño, especificaciones, materiales, construcción, conservación y operación de caminos, carreteras, túneles y puentes para el transporte vial terrestre, todo ello conforme el plan estratégico de capacitación, que incluirá a su vez un plan anual de capacitación y un plan quinquenal de capacitación y transferencia tecnológica para el sector técnico de construcción y conservación vial.
+La finalidad de la capacitación y la transferencia de tecnología es mantener actualizado al personal gerencial, profesional y técnico del sector vial de Costa Rica, en los diversos temas tecnológicos que son necesarios para mejorar la calidad y eficiencia de las intervenciones de conservación y construcción vial que desarrollan el Estado costarricense y los gobiernos locales.

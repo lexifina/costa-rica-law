@@ -1,0 +1,2 @@
+Articulo 27.- Diseños Estándar para la Construcción de Estructuras Conexas en Carreteras.
+En el Manual de Diseños Estándar para la Construcción de Estructuras Conexas en Carreteras se presentarán los detalles constructivos de las distintas obras de infraestructura vial que por su naturaleza repetitiva y de fácil aplicación general, resultan factibles de tipificar, conformándose así un catálogo con diseños seleccionados según el criterio anterior.

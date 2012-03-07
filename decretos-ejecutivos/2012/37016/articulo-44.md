@@ -1,0 +1,6 @@
+Artículo 44.- Dictamen final de la Comisión Revisora del MOPT.
+Si existieron objeciones por parte de la Comisión revisora del MOPT a la propuesta presentada por el LanammeUCR, una vez que dicho Laboratorio las analice y remite la documentación respectiva a la Comisión Revisora, esta procederá de la siguiente manera:
+a- Si LanammeUCR considera pertinente efectuar ajustes a cualquier de los documentos que integran el Manual de Especificaciones de acuerdo con lo señalado por la Comisión Revisora del MOPT; ésta deberá de inmediato remitirla al Jerarca del MOPT para su oficialización, previa verificación de que se incorporaron sus observaciones; lo cual deberá efectuar en el plazo de un mes.
+b- Si el LanammeUCR no considera pertinente efectuar los ajustes respectivos, de acuerdo con lo señalado por la Comisión Revisora del MOPT, esta Comisión analizará los razonamientos expuestos por LanammeUCR, incluida la necesidad de realizar algún proceso de investigación científica que permita validar el ajuste desde la perspectiva del Laboratorio.
+De mantenerse cualquier discrepancia, corresponderá a la Comisión Revisora resolver el diferendo de manera definitiva.
+Realizado lo anterior, la Comisión Revisora remitirá la propuesta definitiva del respectivo Manual de Especificaciones para que sea oficializado por el Jerarca del MOPT en el plazo de un mes.

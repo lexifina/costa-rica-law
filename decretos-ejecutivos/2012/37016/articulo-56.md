@@ -1,0 +1,2 @@
+Artículo 56.- Gastos administrativos generados por la capacitación
+En casos especiales y debidamente justificados, el LanammeUCR podrá establecer una cuota diferenciada para cubrir exclusivamente los gastos administrativos asociados a las actividades de logística, alimentación y materiales de las actividades de capacitación. Así mismo el LanammeUCR establecerá los cupos disponibles en función de la capacidad física de las instalaciones y de la naturaleza curso.

@@ -1,0 +1,3 @@
+Artículo 50.- Atención de los requerimientos de asesoría
+La viabilidad de la asesoría solicitada, será determinada y notificada por el LanammeUCR al solicitante, dentro del plazo máximo de diez días hábiles, contado a partir de la presentación de la solicitud.
+Determinada la pertinencia de la asesoría, el Director del LanammeUCR informará al funcionario solicitante del procedimiento a seguir, tal como el plan de trabajo, objetivos generales y específicos de la asesoría, tipo de análisis que se va a realizar, productos esperados y plazos de entrega, en concordancia con las expectativas de la Administración.

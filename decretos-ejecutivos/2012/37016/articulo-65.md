@@ -1,0 +1,4 @@
+Artículo 65.- Seguimiento y actualización de las necesidades de investigaciones
+Se realizará un seguimiento de las necesidades por parte del LanammeUCR por medio del PITRA y los responsables de las líneas de investigación previamente definidas.
+El LanammeUCR podrá realizar una comunicación por escrito en el segundo trimestre de cada año al MOPT y sus órganos adscritos relacionados con infraestructura de la red vial, por los medios que se estimen pertinentes, para informar sobre el avance del Plan Estratégico de Investigación y el Plan Anual de Investigación. En dicho documento se solicitarán recomendaciones adicionales para ajustar el Plan Estratégico de Investigación.
+Igualmente el MOPT, y sus órganos adscritos, podrán solicitar en el momento que así lo requieran y por los medios formales apropiados, que sean considerados otros temas adicionales, según las necesidades que se presenten.

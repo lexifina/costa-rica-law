@@ -1,0 +1,2 @@
+Artículo 4.- Disposiciones generales para la realización de las evaluaciones
+Las evaluaciones de la Red Vial Nacional Pavimentada y de los proyectos en concesión se realizarán de forma sistemática, procurando la mayor eficiencia en la ejecución de las mediciones, para lograr obtener los datos en el menor plazo posible y optimizar los recursos de la Ley No. 8114, sin demeritar la calidad técnica y aplicación de la información generada.

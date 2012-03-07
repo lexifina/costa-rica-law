@@ -1,0 +1,2 @@
+Artículo 69.- De los convenios con las municipalidades
+En los convenios que firme por una parte la Universidad de Costa Rica, y por la otra parte, las Municipalidades del país, o en su caso, los Consejos Municipales de Distrito, serán establecidos los alcances que comprenderá las distintas tareas que, en sus respectivas circunscripciones territoriales, deberá realizar el LanammeUCR al amparo del artículo 6 inciso j) de la Ley No. 8114 y su reforma efectuada mediante la Ley No. 8603.

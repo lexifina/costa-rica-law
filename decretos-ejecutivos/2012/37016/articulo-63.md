@@ -1,0 +1,3 @@
+Artículo 63.- Plan Anual de Investigación
+El LanammeUCR a través del PITRA elaborará el documento que contenga toda la información concerniente a los temas de investigación que se desarrollarán en el corto plazo, este documento será denominado Plan Anual de Investigación.
+Además de los temas de investigación a desarrollar, el Plan Anual de Investigación deberá ser comunicado a: Personal del PITRA del LanammeUCR del área de investigación, los la finalidad de que conozcan los temas que se desarrollarán, mediante los mecanismos precisados en este reglamento. Adicionalmente, permitirá definir las interacciones que deberán tenerse entre los diferentes sectores involucrados durante el desarrollo de la investigación.

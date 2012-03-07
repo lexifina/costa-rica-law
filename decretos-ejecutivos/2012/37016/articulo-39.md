@@ -1,0 +1,4 @@
+Artículo 39.- De las Sesiones la Comisión Revisora del MOPT
+Una vez hecha la convocatoria a que refiere el artículo anterior, el Coordinador de la Comisión procederá, en un plazo no mayor a cinco días hábiles, a convocar a los restantes miembros de ésta, para el inicio de la labor de revisión.
+En las sesiones de trabajo, se distribuirá la tarea de análisis y revisión, de acuerdo con la especialidad de cada participante; sin perjuicio de que todos los miembros puedan hacer aportes que se estimen de interés para el estudio integral del documento. En todo caso, ante discrepancias por parte de los miembros de la Comisión Revisora se someterá a votación y se decidirá de forma definitiva sobre las modificaciones propuestas.
+El desarrollo de las sesiones de trabajo se efectuará de acuerdo con el procedimiento interno que para tal efecto deberá definir la Comisión Revisora, la cual solicitará el apoyo y asesoría técnica de expertos en áreas específicas según lo requiera.

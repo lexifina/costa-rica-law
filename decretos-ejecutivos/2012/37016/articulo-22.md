@@ -1,0 +1,2 @@
+Artículo 22. Funciones de la Comisión de Revisión Permanente (CRP).
+La CRP, mantendrá una actividad permanente de estudio, revisión de propuestas y emisión de normativa ampliada o corregida, concerniente al Manual de Especificaciones. Adicionalmente, recomendará al LanammeUCR, la organización de talleres y cursos para divulgar la normativa vigente y para promover la participación de la comunidad técnica que labora en el campo vial para que ésta envíe sugerencias y propuestas.

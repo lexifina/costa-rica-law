@@ -1,0 +1,3 @@
+Artículo 16.- Emisión de políticas con base en las evaluaciones bienales
+El Ministro de Obras Públicas y Transportes, en su condición de rector del Sector Transportes, podrá emitir políticas y lineamientos generales en materia de inversión en la Red Vial Nacional Pavimentada, basándose en los resultados de la evaluación bienal efectuada por LanammeUCR. Mediante tales políticas se procurará garantizar, entre otros aspectos, que las obras viales respondan a las prioridades establecidas en los programas y planes del Sector.
+La indicada Dirección de Planificación Sectorial colaborará con el titular del MOPT en la emisión de tales políticas y lineamientos.

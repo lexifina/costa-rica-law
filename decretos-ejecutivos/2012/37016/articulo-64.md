@@ -1,0 +1,5 @@
+Artículo 64.- Planificación de la investigación
+El LanammeUCR por intermedio del PITRA, realizará un Plan Estratégico de Investigación como instrumento de gestión para la definición de metas y productos tomando como insumo los diagnósticos sobre los requerimientos de investigación detectados según lo definido en el artículo 62 de este reglamento. Este plan estratégico comprenderá actividades para ejecutarse en un periodo de cinco años.
+Así mismo, el LanammeUCR deberá realizar planes anuales de investigación en concordancia con el Plan Estratégico de Investigación y el seguimiento de las necesidades de investigación.
+El Plan Anual de Investigación será publicado permanentemente y actualizado cuando corresponda en la página web del LanammeUCR y por medios directos de divulgación electrónica como correos electrónicos a representantes de los diferentes sectores involucrados con infraestructura de la red vial.
+Así mismo se enviarán comunicaciones formales con el detalle del Plan Anual de Investigación a los órganos y dependencias correspondientes del MOPT.
