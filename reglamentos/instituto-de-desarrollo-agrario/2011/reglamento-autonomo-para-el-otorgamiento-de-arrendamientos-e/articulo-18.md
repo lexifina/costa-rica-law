@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los cánones y expensas
+Artículo 18.—Quien solicite el otorgamiento de un arrendamiento, o cesión total o parcial del derecho de arrendamiento, al presentar la solicitud, deberá cancelar mediante depósito bancario a la cuenta del Instituto que al efecto se establezca, los costos de inspección y estudios que deba realizar la Oficina Subregional correspondiente; mismos que serán cancelados conforme el valor de un día completo de la tabla de viáticos vigente para la zona en que se encuentre el terreno. Estarán exentas de este pago las organizaciones sociales jurídicamente constituidas, cuyo fin primordial no sea el lucro y que buscan con el arrendamiento brindar un servicio público a la comunidad.

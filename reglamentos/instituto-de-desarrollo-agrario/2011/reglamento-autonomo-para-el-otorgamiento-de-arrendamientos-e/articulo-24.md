@@ -1,0 +1,1 @@
+Artículo 24.—Todo otorgamiento de contrato aprobado por la Junta Directiva tendrá como condición, la obligación del solicitante de cancelar la primera anualidad, dentro de un término de treinta días naturales contados a partir de la notificación y treinta días más para firmar el contrato correspondiente. Resuelto el derecho otorgado la dirección Regional podrá disponer del bien.

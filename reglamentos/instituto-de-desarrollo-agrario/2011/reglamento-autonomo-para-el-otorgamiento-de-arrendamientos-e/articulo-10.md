@@ -1,0 +1,1 @@
+Artículo 10.—El Instituto podrá otorgar al solicitante, otro arrendamiento, cuando el estudio técnico respectivo demuestre que la actividad productiva que desarrolla requiere de áreas mayores, conforme a las condiciones del presente Reglamento y apegado a la normativa vigente.

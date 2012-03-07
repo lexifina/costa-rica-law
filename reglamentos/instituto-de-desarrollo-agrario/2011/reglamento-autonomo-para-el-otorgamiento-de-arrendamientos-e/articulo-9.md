@@ -1,0 +1,1 @@
+Artículo 9º—El Instituto podrá dar arrendamientos a personas físicas o jurídicas sin fines de lucro, que tengan bienes inmuebles a su nombre, cuando él o la solicitante demuestren carecer de un predio apto para el proyecto que pretende desarrollar.

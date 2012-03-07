@@ -1,0 +1,1 @@
+Artículo 14.—De aprobarse la cesión que solicite el arrendatario(a), será por el término que reste para el vencimiento del plazo establecido en el contrato de arrendamiento original. Vencido dicho término, si así procediera, se dará curso a una nueva solicitud.

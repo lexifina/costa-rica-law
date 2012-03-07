@@ -1,0 +1,1 @@
+Artículo 25.—En caso de sobrevenir algún recurso contra lo resuelto, deberá ser analizado por la Dirección Regional que podrá pedir informe a la Oficina correspondiente, como también si con la información del expediente administrativo es suficiente, procederá a rendir el informe fundamentado en coordinación con la Asesoría Legal, ante la Junta Directiva.

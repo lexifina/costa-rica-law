@@ -1,0 +1,1 @@
+Artículo 20.—El pago del canon fijado en el arrendamiento, debe ser cancelado por el Arrendatario(a) por adelantado, y en el caso de la primera anualidad deberá ser efectuada previo a la firma del contrato. En aquellas actividades comerciales o agroindustriales que por su naturaleza tengan ciclos cortos, el canon podrá cobrarse semestralmente.

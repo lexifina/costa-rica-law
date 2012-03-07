@@ -1,0 +1,1 @@
+Artículo 22.—Cumplidos todos los trámites y requisitos, la Oficina Subregional remitirá la solicitud con las recomendaciones y conclusiones sobre el caso a la Dirección Regional. La Dirección Regional, con apoyo de la Asesoría Legal, rendirá un informe fundamentado a la Junta Directiva, recomendando aprobar o improbar la solicitud de arrendamiento.
