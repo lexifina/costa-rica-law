@@ -14,3 +14,4 @@ Reglamento para Regular el Nombramiento del Auditor Interno de la Municipalidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-11 | la propia norma |
+| 2 | 2012-03-07 | Reglamento municipal 0 (2012-03-07) |
