@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones contenidas en este Reglamento son aplicables a todas aquellas personas funcionarias del INAMU que administren, recauden y custodien fondos o valores públicos o que por la naturaleza de su cargo y responsabilidades deban caucionar.

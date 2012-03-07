@@ -1,0 +1,1 @@
+Artículo 16.—Responsabilidad solidaria. De igual sanción se hará acreedora la persona que ocupe el cargo de la Coordinación del Área de Recursos Humanos quien se encuentra obligada a exigir o constatar la suscripción de la garantía y que con su actuar omita, obvie o no compele a la persona funcionaria obligada a rendir la caución.

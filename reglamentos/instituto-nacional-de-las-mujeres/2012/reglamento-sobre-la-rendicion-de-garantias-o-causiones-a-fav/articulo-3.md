@@ -1,0 +1,1 @@
+Artículo 3º—Finalidad de la caución. La caución tiene como finalidad amparar las pérdidas económicas que sufra el INAMU derivadas de un acto de infidelidad cometido por el caucionante mientras realiza las funciones del puesto, sin que ello limite la eventual responsabilidad civil.

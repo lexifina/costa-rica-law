@@ -1,0 +1,1 @@
+Transitorio Único.—Las personas funcionarias que a la fecha de entrada en vigencia de este Reglamento estén obligadas a caucionar, contarán con un plazo de un mes calendario para gestionar la caución y presentar una copia al Área de Recursos Humanos.

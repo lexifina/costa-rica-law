@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia de la caución. Una vez rendida la caución deberá estar vigente durante todo el tiempo que la persona permanezca en el puesto sujeto rendir a la garantía. Es obligación de la persona caucionante gestionar, con el apoyo del Área de Recursos Humanos, las medidas de renovación, ajuste o actualización que correspondan para mantener vigente la caución otorgada.

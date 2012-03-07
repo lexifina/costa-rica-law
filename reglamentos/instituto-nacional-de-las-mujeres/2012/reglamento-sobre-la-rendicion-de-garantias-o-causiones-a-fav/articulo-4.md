@@ -1,0 +1,1 @@
+Artículo 4º—Forma de rendir la caución. La caución en favor del INAMU solo podrá ser admitida mediante la suscripción de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros, o las entidades o empresas aseguradoras autorizadas que llegaren a constituirse. Sin embargo, el INAMU podrá aceptar mediante resolución razonada otro medio que resulte idóneo para ese fin.
