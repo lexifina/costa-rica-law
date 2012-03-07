@@ -1,0 +1,3 @@
+Artículo 4º—De los vehículos de uso discrecional: Son aquellos vehículos que de conformidad con lo que establece la Ley de Tránsito están asignados a determinadas personas funcionarias y no cuentan con restricción alguna en cuanto a combustible, horario de circulación ni recorrido, características todas éstas que asumirá, bajo su estricto criterio, la persona funcionaria a quien se hubiere asignado el vehículo en cuestión.
+Estos vehículos pueden portar placas particulares y no tienen marcas visibles que los identifiquen como vehículos oficiales, salvo que por normativa especial se determine lo contrario.
+En el INAMU, este tipo de vehículo puede asignarse a quienes ocupen los cargos de Presidenta Ejecutiva y Auditor o Auditora Interna.

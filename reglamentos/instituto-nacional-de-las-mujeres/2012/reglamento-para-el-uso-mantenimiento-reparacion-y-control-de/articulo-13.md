@@ -1,0 +1,2 @@
+Artículo 13.—Del resguardo a que deben someterse los vehículos: Con excepción de los vehículos de uso discrecional, los demás deberán permanecer al final de la jornada ordinaria de trabajo, en el estacionamiento de la Institución.
+Cuando el vehículo se encuentre en gira, debe ser guardado en estacionamiento público del lugar, y si no lo hubiese se pondrá a buen recaudo en las instalaciones de la Guardia Civil de la Guardia Rural, y en cualquier caso se pedirá la colaboración de dichos cuerpos de seguridad para brindar adecuada protección al vehículo.

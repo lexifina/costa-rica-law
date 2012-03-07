@@ -1,0 +1,1 @@
+Artículo 7º—De los distintivos que deben portar los vehículos de uso administrativo general: Los vehículos de uso administrativo general deberán portar placa oficial y el distintivo de la Institución en las dos puertas delanteras.

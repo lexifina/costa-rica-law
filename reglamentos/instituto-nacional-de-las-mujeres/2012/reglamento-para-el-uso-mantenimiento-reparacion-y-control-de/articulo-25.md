@@ -1,0 +1,1 @@
+Artículo 25.—De los Uniformes. El INAMU proporcionará a las personas funcionarias que ocupan el puesto de operador de equipo móvil, cinco uniformes por año que consistirán en: un pantalón gris y una camisa blanca con el logotipo del INAMU

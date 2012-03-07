@@ -1,0 +1,1 @@
+Artículo 6º—Del régimen de los vehículos de uso administrativo: según lo prescrito por la ley de Tránsito, los vehículos de uso administrativo no podrán destinarse a un uso diferente al que se establece en el artículo quinto de este reglamento.
