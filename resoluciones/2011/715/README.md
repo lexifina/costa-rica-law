@@ -14,3 +14,4 @@ Reforma resolución N° 184-RCR-2010 "Establece las tarifas para los servicios p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-16 | la propia norma |
+| 2 | 2012-03-08 | Resolución 784 (2012-03-08) |
