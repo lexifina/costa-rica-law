@@ -1,0 +1,1 @@
+Artículo 23.—Los documentos de compromisos que se generen para futuros trámites de nuevas empresas inspectoras, también deberán ser coordinados con el MINAET por medio de la DGTCC, debiéndose obtener el visto bueno o aprobación de dicha institución al contenido de dichos documentos previo a su presentación formal.
