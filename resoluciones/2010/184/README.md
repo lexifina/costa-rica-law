@@ -15,3 +15,4 @@ Establece las tarifas para los servicios portuarios en Puerto Caldera
 | --- | --- | --- |
 | 1 | 2010-10-30 | la propia norma |
 | 2 | 2011-12-08 | Resolución 715 (2011-12-08) |
+| 3 | 2012-03-08 | Resolución 784 (2012-03-08) |
