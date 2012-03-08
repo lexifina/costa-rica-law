@@ -1,1 +1,0 @@
-Artículo 19.—Prohibiciones: Queda prohibido la alimentación de cerdos con desperdicios o sobrantes de alimentos provenientes de centros hospitalarios, clínicas y similares, asilos y terminales marítimas y aéreas; asimismo la cocción de desperdicios en estado de putrefacción.

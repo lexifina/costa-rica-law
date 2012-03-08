@@ -1,1 +1,0 @@
-Artículo 5º—Responsabilidad Profesional. Toda Granja Porcina deberá contar con un regente ambiental el cual deberá estar registrado ante el Ministerio de Salud, quien tendrá a cargo el manejo sanitario de los animales y del establecimiento.

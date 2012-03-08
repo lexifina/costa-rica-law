@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Estas disposiciones reglamentarias se aplicarán en todo el territorio nacional y se refieren a los trámites que deben realizar las personas físicas o jurídicas propietarias o administradoras de una granja porcina; así como los requisitos que estos establecimientos deben cumplir para poder optar por el permiso sanitario de funcionamiento.

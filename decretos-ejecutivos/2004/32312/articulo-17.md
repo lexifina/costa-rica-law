@@ -1,1 +1,0 @@
-Artículo 17.—Disposición de restos: Los animales muertos o parte de estos, como fetos, placentas u otras, deberán ser dispuestos en lugares especialmente diseñados para tal fin; asegurando la inocuidad de tal proceso. Esta información debe incluirse en el Plan de Manejo de Desechos de la Granja.

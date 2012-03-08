@@ -1,1 +1,0 @@
-Artículo 24.—Aplicación del Reglamento: Para los efectos de aplicación del presente reglamento se tomarán en consideración los aspectos relacionados con la salud humana, el ambiente, protección porcina, así como los derechos del porcicultor.

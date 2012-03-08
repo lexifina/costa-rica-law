@@ -1,1 +1,0 @@
-Artículo 27.—Derogatoria: El presente reglamento deroga el Decreto Ejecutivo Nº 30294-S “Reglamento de Granjas Porcinas” del 2 de abril del 2002, publicado en La Gaceta Nº 79 del 25 de abril del 2002 y cualquier otro reglamento, norma o disposición de igual o inferior rango que se le oponga.
