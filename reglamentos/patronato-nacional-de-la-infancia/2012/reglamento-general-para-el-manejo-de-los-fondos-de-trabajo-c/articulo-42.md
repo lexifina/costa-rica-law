@@ -1,0 +1,1 @@
+Artículo 42.—Responsable de efectuar los reintegros. Los encargados de las Cajas Chicas deberán estar atentos de presentar la respectiva solicitud de reintegro al Fondo en el momento que consideren más oportuno, con el fin de mantener la disponibilidad requerida.

@@ -1,0 +1,1 @@
+Artículo 37.—Componentes de las cajas chicas. Todo desembolso deberá estar debidamente respaldado por una factura o documento que cumpla con los requisitos establecidos en los artículos 18, 19 y 20 de este Reglamento. Por lo tanto, las cajas chicas estarán compuestas únicamente con efectivo en moneda nacional, cheques sobre reintegros y sus comprobantes.

@@ -1,0 +1,1 @@
+Artículo 33.—Montos máximos de pago. Para el caso de la caja chica central el límite lo establece la Gerencia de Administración, la cual podrá autorizar en casos calificados que se realice el pago por medio de cheque. Para el caso de las cajas auxiliares, el monto no deberá superar el veinte por ciento del total de recursos económicos asignados.

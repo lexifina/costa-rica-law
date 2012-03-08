@@ -1,0 +1,1 @@
+Artículo 45.—Fiscalización y evaluaciones. Compete a la Auditoría Interna verificar el cumplimiento, la validez y la suficiencia del sistema de control interno, así como examinar regularmente la operación efectiva de las cajas chicas auxiliares, sus registros, la custodia y el buen uso de los recursos transferidos.
