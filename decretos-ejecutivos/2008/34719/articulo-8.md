@@ -1,1 +1,0 @@
-Artículo 8º—Del registro de inmuebles declarados e incorporados como patrimonio histórico-arquitectónico. El Ministerio pondrá a disposición de los interesados, el registro especial que consta en El Centro, sobre los inmuebles declarados e incorporados como patrimonio histórico-arquitectónico.

@@ -1,1 +1,0 @@
-Artículo 6º—De la participación grupal. Cuando los concursantes participen en grupo, deberán nombrar, en su propuesta un único representante y aportar la constancia del consentimiento de los demás miembros del grupo.

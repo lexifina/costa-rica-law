@@ -1,1 +1,0 @@
-Artículo 17.—Propuesta grupal ganadora. Cuando el premio sea otorgado a un grupo, el premio se entregará al representante del mismo, quien será el encargado de realizar la distribución entre los miembros de éste.

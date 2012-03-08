@@ -1,4 +1,0 @@
-Artículo 14.—De la ejecución de la propuesta ganadora. El profesional responsable de la propuesta ganadora, procederá a:
-1- Realizar todos los estudios necesarios especializados como pruebas de suelos, pruebas de laboratorio, consultorías especializadas: estructural, mecánica y eléctrica, firmadas por el profesional responsable de cada especialidad.
-2- Deberá realizar el proyecto final con toda la información necesaria, entre las que se encuentran, los planos constructivos, especificaciones, detalles, presupuesto necesario para la ejecución de la obra. Todo lo anterior, debe entregarse en formato digital e impreso, en programa autocat. Lo anterior con un plazo de dos meses calendario a partir del anuncio del ganador.
-3. Esta propuesta final debe ser entregada al Centro de Investigación y Conservación del Patrimonio Cultura del Ministerio de Cultura y Juventud.

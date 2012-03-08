@@ -1,1 +1,0 @@
-Artículo 11.—Del plazo de análisis de los anteproyectos. Una vez recibidas las propuestas, el jurado revisará el cumplimiento de los requisitos establecidos en el artículo 4 del presente Reglamento, y evaluará las propuestas que cumplan lo solicitado, el Jurado contará con un plazo tres semanas, para dar a conocer su veredicto que será inapelable.
