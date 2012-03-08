@@ -1,0 +1,1 @@
+2º—En todo tiempo, el sistema de seguimiento satelital indicado deberá reportar y enviar la señal y ser completamente compatible con el Sistema de Control Satelital utilizado por el INCOPESCA, por consiguiente dicha responsabilidad estará a cargo y cuenta del armador, dueño de la embarcación o representante.
