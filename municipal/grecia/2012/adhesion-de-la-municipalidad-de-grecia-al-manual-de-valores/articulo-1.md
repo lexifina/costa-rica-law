@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE GRECIA
+El suscrito, Adrián Barquero Saborío, Alcalde de la Municipalidad de Grecia, cumpliendo con lo estipulado en los artículos Nos. 3º y 12 de la Ley del Impuesto sobre Bienes Inmuebles y de conformidad con la sentencia Nº 1073-2010 del 18 de marzo del 2010 del Contencioso, Sección III, así como a la resolución Nº 2011-003075 del 9 de marzo del 2011 de la Sala Constitucional, procedo con la adhesión de este municipio, a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance Nº 12 del Diario Oficial La Gaceta Nº 30, del viernes 11 de febrero del 2011, documento emitido por el Órgano de Normalización Técnica del Ministerio de Hacienda.
+Grecia, 21 de febrero del 2012.
