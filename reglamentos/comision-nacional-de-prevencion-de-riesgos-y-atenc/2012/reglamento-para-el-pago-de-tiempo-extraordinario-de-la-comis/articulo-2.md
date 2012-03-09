@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Este Reglamento tiene como objetivo unificar las directrices existentes y definir las regulaciones que rigen el trámite y pago de tiempo extraordinario en la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, en adelante CNE.

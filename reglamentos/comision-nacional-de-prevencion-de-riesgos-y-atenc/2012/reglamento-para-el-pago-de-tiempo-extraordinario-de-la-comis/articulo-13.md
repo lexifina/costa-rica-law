@@ -1,0 +1,5 @@
+Artículo 13.—De las extras y la disponibilidad. Los funcionarios que se encuentren sujetos al Régimen de “Disponibilidad” y que presten servicios de manera excepcional y fuera de su jornada ordinaria laboral, se les remunerará el tiempo efectivamente laborado a título de horas extra y previa constancia rendida al efecto, de conformidad con lo señalado por la Sala Constitucional y la Procuraduría General de la República al respecto.
+Dicho reconocimiento se regula de la siguiente manera:
+a. Contar con la autorización del Director Ejecutivo luego de haberse establecido una condición excepcional o de emergencia, cuando el funcionario deba sobrepasar las jornadas límites de horas de trabajo establecidas en la legislación vigente.
+b. El pago de las horas extras laboradas procede a partir del momento en que los funcionarios disponibles se presenten a la institución o al sitio de la emergencia, para la atención de los efectos derivados del evento ocurrido.
+c. Todas aquellas otras condiciones requeridas para el debido trámite de las horas extras y que se establecen en este Reglamento.

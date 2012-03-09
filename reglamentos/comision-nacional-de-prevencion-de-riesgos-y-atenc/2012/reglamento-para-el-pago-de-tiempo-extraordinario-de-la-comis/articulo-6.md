@@ -1,0 +1,1 @@
+Artículo 6º—Procedencia. La jornada extraordinaria, por su propia naturaleza, solamente procede una vez concluida la jornada ordinaria y se autorizará a aquellos funcionarios que laboren más de una hora después de la conclusión de esta última jornada; es decir, no se reconocen fracciones de tiempo comprendidas dentro de la primera hora.
