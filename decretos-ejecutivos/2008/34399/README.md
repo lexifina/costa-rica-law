@@ -14,3 +14,4 @@ Declaratoria oficial del día 17 de mayo de cada año “Día nacional contra la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-25 | la propia norma |
+| 2 | 2012-03-09 | Decreto Ejecutivo 37071 (2012-03-09) |

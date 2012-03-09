@@ -10,4 +10,5 @@ IV.—Que en virtud de lo anteriormente expuesto, se ha considerando conveniente
 Decretan:
 Declaratoria Oficial del Día Nacional
 contra la Homofobia
-Artículo 1º—Se declara el día 17 de mayo de cada año como el “Día Nacional contra la Homofobia”.
+Artículo 1º- Se declara el día 17 de mayo de cada año como el “Día Nacional contra la homofobia, la lesbofobia y la transfobia".
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37071 del 9 de marzo del 2012)
