@@ -1,2 +1,2 @@
 3º—Se le otorga a los interesados un plazo máximo de 2 meses calendario contados a partir de la publicación del presente acuerdo para presentar los requisitos correspondientes para la emisión y otorgamiento de las licencias y/o autorizaciones.
-(Mediante acuerdo A.J.D.I.P./055-2012 del 10 de febrero de 2012, se extiende hasta el 29 de febrero de 2012, el palzo para la presentación de los requisitos correspondientes para la emisión y otorgamiento de las licencias y/o autorizaciones
+(Mediante acuerdo A.J.D.I.P./114-2012 del 09 de marzo de 2012, se extiende taxativamente hasta el 15 de mayo de 2012, el plazo para la presentación de la documentación que resulte necesaria, que debe acompañar la solicitud de licencia de pesca subacuática)
