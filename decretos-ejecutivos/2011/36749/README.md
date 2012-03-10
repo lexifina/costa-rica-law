@@ -14,3 +14,4 @@ Reglamento precio por unidad de medida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-10 | la propia norma |
+| 2 | 2012-03-10 | Decreto Ejecutivo 36930 (2011-11-24) |
