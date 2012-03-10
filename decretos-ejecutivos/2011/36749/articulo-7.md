@@ -1,0 +1,1 @@
+Artículo 7º—Sobre las sanciones. La infracción a las disposiciones antes indicadas serán sancionadas de conformidad con el artículo 57 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472.

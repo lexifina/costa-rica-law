@@ -1,0 +1,2 @@
+Artículo 4º—Obligación del Comerciante. El Comerciante tiene la obligación de informar en la góndola, anaquel u otro mobiliario del establecimiento, el precio por unidad de medida de los alimentos, productos higiénicos y productos de aseo personal.
+Lo anterior, sin detrimento del resto de información que el comerciante debe suministrar al consumidor, incluida la información del precio final del artículo, de conformidad con la Ley Nº 7472, su reglamento y las demás regulación técnica vigente.

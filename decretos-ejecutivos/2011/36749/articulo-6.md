@@ -1,0 +1,2 @@
+Artículo 6º—Modo de consignar la información. La información de precio por unidad de medida, deberá constar en la góndola, anaquel, exhibidor u otro mobiliario del establecimiento en el cual se pongan a disposición de los consumidores los productos; en el mismo campo de visión que el precio final con caracteres claros, visibles, indelebles y fáciles de leer por el consumidor en circunstancias normales de compra.
+La información consignada deberá tener un contraste significativo con el fondo y colocarse de forma tal que coincida con el producto que está identificando.
