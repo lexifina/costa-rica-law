@@ -1,1 +1,0 @@
-Artículo 7º—Las listas de Ejecutores se publicarán periódicamente en el Boletín Judicial. Se establecerán por Circuitos o por despachos y serán confeccionadas por la Oficina de Ejecutores y Peritos Valuadores.

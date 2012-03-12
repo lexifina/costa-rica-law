@@ -1,1 +1,0 @@
-Artículo 35.—Lo no previsto en este Reglamento se regulará por las disposiciones del Código Procesal Civil, Ley Orgánica del Poder Judicial, Ley General de la Administración Pública y la demás normativa conexa y aplicable.
