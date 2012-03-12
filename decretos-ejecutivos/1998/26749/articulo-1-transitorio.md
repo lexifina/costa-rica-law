@@ -1,1 +1,0 @@
-Transitorio único: Dentro de los treinta días posteriores a la publicación del presente Reglamento, se procederá a la integración del Jurado para entregar el Premio correspondiente a las solicitudes recibidas durante el resto del año 1998.

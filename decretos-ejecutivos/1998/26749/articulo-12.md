@@ -1,1 +1,0 @@
-Artículo 12º- El fallo del Jurado será inapelable y deberá emitirlo a más tardar el último día del mes de enero de cada año. Los miembros harán solemne entrega de éste al Ministerio de Cultura, Juventud y Deportes dentro de ese plazo. Con posterioridad a esa entrega se hará de conocimiento público mediante publicación en el Diario Oficial.

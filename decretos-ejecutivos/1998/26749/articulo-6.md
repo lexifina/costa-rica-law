@@ -1,1 +1,0 @@
-Artículo 6°- Integrado el Jurado se reunirá cuando lo convoque su Presidente, y deberá anualmente, en la primera sesión que se celebre, nombrar de su propio seno un Vicepresidente, un Secretario y un Secretario suplente.

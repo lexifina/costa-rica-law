@@ -1,1 +1,0 @@
-Artículo 13º- El Premio Nacional Deportivo Claudia Poll, se entregará en la ceremonia pública anual en que el Ministerio de Cultura, Juventud y Deportes entrega los Premios Nacionales. Corresponderá al programa de Premios Nacionales, la coordinación de todos los aspectos administrativos relacionados con este premio.

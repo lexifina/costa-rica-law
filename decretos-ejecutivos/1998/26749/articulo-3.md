@@ -1,1 +1,0 @@
-Artículo 3°- Los integrantes del Jurado a los que se refiere el inciso e) del artículo anterior, deberán ser de reconocida trayectoria en la vida deportiva del país, ya sea como dirigentes deportivos, atletas o periodistas en este campo.

@@ -1,1 +1,0 @@
-Artículo 4°- Los miembros del jurado desempeñarán sus funciones ad honorem por un período de cuatro años, pudiendo ser reelectos por dos períodos consecutivos. En caso de vacante por incapacidad, muerte o renuncia, quien sustituya lo hará por el resto del período del miembro saliente.

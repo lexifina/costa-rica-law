@@ -1,2 +1,0 @@
-Artículo 7°- Del 1º de enero de cada año al 31 de diciembre del mismo, se recibirán postulaciones para hacerse acreedor al premio. Las postulaciones deberán ser remitidas por Asociaciones y Federaciones Deportivas de representación nacional Comités Cantonales de Deportes o el Comité Olímpico Nacional.
-Con la postulación deberán acreditarse los títulos o medallas obtenidas en juegos olímpicos, torneos o campeonatos mundiales y el curriculum respectivo.
