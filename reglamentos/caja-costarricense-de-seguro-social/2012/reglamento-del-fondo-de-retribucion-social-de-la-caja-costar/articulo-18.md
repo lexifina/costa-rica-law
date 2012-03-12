@@ -1,0 +1,1 @@
+Artículo 18.—Notificaciones. Toda comunicación derivada del Contrato del Fondo de Garantía de Retribución Social será notificada por el Administrador Institucional del Fondo, al médico o a sus beneficiarios, en el lugar señalado en el Contrato.

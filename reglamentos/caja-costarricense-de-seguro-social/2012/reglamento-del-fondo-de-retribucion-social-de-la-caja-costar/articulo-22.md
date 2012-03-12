@@ -1,0 +1,1 @@
+Artículo 22.—Prórrogas del Contrato. Operará la prórroga automática, si con anticipación de tres meses a la fecha de vencimiento del contrato, alguna de las partes no manifiesta su deseo de no continuar.

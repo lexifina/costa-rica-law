@@ -1,0 +1,1 @@
+Artículo 11.—Traslados de los recursos. El Área de Tesorería General procederá con el traslado de los fondos a través del SINPE al Administrador Financiero del Fondo de Garantía de Retribución Social, a más tardar, en la cuarta semana posterior al cierre del mes objeto de las deducciones, y aportará el respectivo desglose individualizado de los aportes.

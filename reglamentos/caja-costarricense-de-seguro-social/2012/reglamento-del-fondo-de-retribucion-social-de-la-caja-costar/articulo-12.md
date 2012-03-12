@@ -1,0 +1,1 @@
+Artículo 12.—Registro de aportes efectivos y pendientes. El Administrador Institucional del Fondo deberá contar con un registro individualizado de cada uno de los residentes o especialistas, que refleje entre otros aspectos, el estado actual de los aportes efectuados y aquellos pendientes de pago.

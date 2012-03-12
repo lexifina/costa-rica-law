@@ -1,0 +1,1 @@
+Artículo 20.—Vigencia del Contrato con el Administrador Financiero del Fondo. La vigencia del contrato será de un año, prorrogable hasta por un máximo de seis años adicionales y será responsabilidad del Administrador Institucional del Fondo velar por su cumplimiento.

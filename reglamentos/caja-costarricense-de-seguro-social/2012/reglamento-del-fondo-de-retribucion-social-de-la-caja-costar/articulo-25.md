@@ -1,0 +1,1 @@
+Artículo 25.—Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, una vez aprobado por la Junta Directiva de la Caja. Este órgano colegiado, será el único facultado para variar, modificar o derogar este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 23.—Contabilidad del Fondo. La contabilidad del Administrador Financiero del Fondo de Garantía de Retribución Social debe ajustarse a las normas internacionales de contabilidad debidamente aceptadas. La contabilidad del Fondo se deberá llevar por separado e independiente de los movimientos propios de la administradora.

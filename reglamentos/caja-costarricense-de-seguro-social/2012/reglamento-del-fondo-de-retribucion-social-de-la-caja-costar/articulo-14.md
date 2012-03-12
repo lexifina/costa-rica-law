@@ -1,0 +1,1 @@
+Artículo 14.—Reintegro por Cumplimiento. Cuando el especialista cumpla con el Contrato de Retribución Social el Administrador Institucional gestionará -a su solicitud, ante el Administrador Financiero del Fondo- el reintegro de todos los recursos acumulados en el Fondo de Garantía de Retribución Social.
