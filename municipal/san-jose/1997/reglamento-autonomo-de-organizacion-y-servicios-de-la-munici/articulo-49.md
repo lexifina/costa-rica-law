@@ -1,1 +1,3 @@
-Artículo 49.—La evaluación del desempeño se notificará al servidor dentro de los tres días hábiles siguientes de obtenido los resultados correspondientes.
+CAPÍTULO XIV
+Del descanso semanal, vacaciones y días feriados
+Artículo 49.—Todo funcionario tiene derecho a disfrutar de al menos un día de descanso absoluto, después de cada seis días de trabajo continuo.

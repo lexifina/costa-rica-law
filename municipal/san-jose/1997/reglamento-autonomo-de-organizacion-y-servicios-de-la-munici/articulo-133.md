@@ -1,1 +1,1 @@
-Artículo 133.—Se amonestará por escrito al funcionario que por primera vez no atienda un citatorio, realice o remita la información que le sea solicitada para la resolución de un asunto disciplinario laboral y suspensión por cinco días en caso de reincidencia.
+Artículo 133.—Toda primera notificación que se haga a las partes involucradas, y las hechas a testigos u otros funcionarios cuya presencia sea necesaria para la averiguación de los hechos, se hará en forma personal según lo establecido para ello en la Ley de Notificaciones Judiciales y/o demás normativa aplicable.

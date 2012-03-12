@@ -1,4 +1,1 @@
-CAPÍTULO XVII
-Del salario, aguinaldo y cesantía
-Artículo 83.—Las categorías de los puestos y la escala salarial correspondientes a los mismos en ningún caso podrán ser inferiores a los mínimos legales establecidos por el Ministerio de Trabajo y Seguridad Social.
-La escala de Salario será aprobada por el Concejo.
+Artículo 83.—Los funcionarios sujetos a jornada laboral, la cumplirán dentro de los horarios que señala el artículo anterior y el 29 de la Convención, teniendo derecho a un receso de treinta minutos para tomar el almuerzo; lo mismo que un descanso de 15 minutos por la mañana y 15 minutos por la tarde para merendar. Cada jefatura regulará la forma en que sus colaboradores puedan tomar dicho descanso, a efecto de que no se cause menoscabo del trabajo, ni mucho menos se produzca el cierre de ninguna dependencia. Los tiempos destinados a la alimentación no son acumulables.

@@ -1,1 +1,1 @@
-Texto no disponible
+Artículo 132.—Toda solicitud que para los efectos del artículo anterior se curse, deberá hacerse por escrito mediando entre la fecha en que se entrega la cita y aquel en que debe contestar o comparecer, un plazo no menor de tres días hábiles.

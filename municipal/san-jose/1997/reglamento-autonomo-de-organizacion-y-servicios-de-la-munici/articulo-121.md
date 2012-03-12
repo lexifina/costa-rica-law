@@ -1,5 +1,4 @@
-Artículo 121.—De acuerdo con lo establecido en el artículo anterior, las sanciones por aplicar se clasifican en:
-a- Amonestación verbal (dejando constancia por escrito).
-b- Amonestación escrita.
-c- Suspensión sin goce de salario hasta por quince días hábiles. d- Despido sin responsabilidad patronal para la Municipalidad.
-Las sanciones disciplinarias serán aplicadas atendiendo, no estrictamente el orden en que aquí aparecen, sino a lo reglado en cada caso, o a la gravedad de la falta.
+CAPÍTULO XXX
+Instrucción de las faltas
+Artículo 121.—Denominase instrucción de la falta, al procedimiento administrativo laboral, que se siga para analizar, y valorar las faltas disciplinarias en que incurran los servidores.
+La instrucción se orientará a definir y, establecer las sanciones disciplinarias que correspondan en cada caso, atendiendo para ello los principios de: causalidad, actualidad, y proporcionalidad de la falta, sin perjuicio de otros aplicables.

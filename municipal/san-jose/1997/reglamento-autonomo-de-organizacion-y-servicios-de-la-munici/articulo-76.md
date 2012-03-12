@@ -1,3 +1,1 @@
-CAPITULO XVII
-De las incapacidades para trabajar
-Artículo 76.—La Municipalidad reconocerá las ausencias al trabajo del servidor motivadas por incapacidad para trabajar, ya sea por enfermedad, maternidad o riesgo profesional, bajo las siguientes disposiciones.
+Artículo 76.—El salario será mensual, pagadero en tractos bisemanales, o semanales para el caso de las categorías que se subsuman en “sueldos semanales” según lo que establezca la institución. El pago bisemanal se hará considerando como primer fecha de pago cada año, el día 14 de enero y a partir del mismo como fecha de pago cada 14 días. El pago se efectuará bajo la modalidad de depósito bancario, dentro de las horas hábiles del día fijado al efecto en el calendario anual de pagos, elaborado por la Dirección Financiera. Dicho calendario regulará esas fechas de pago, pero su incumplimiento por fuerza mayor no derivará en responsabilidad para la Municipalidad.

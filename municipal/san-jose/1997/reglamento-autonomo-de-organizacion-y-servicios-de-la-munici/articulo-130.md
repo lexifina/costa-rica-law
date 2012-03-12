@@ -1,4 +1,1 @@
-Artículo 130.—Las faltas que no tienen una sanción específica, se conceptúan como leves, graves y muy graves, y serán sancionadas no atendiendo estrictamente el orden señalado, sino en razón de su gravedad con:
-Amonestación escrita, que incluye el apercibimiento a que alude el artículo 72 del Código de Trabajo.
-Suspensión sin goce de salario por quince días.
-Despido sin responsabilidad patronal.
+Artículo 130.—Los plazos para denunciar la comisión de la falta y, aquel dentro del cuál la oficina de Asuntos Laborales, debe dictar la resolución recomendativa, son perentorios e improrrogables.

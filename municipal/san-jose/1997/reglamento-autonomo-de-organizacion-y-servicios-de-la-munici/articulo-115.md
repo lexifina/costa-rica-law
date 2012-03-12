@@ -1,3 +1,1 @@
-CAPITULO XXVI
-Omisión de marca
-Artículo 115.—Se entenderá como Omisión de marca, la ausencia de esta en el respectivo registro, en la jornada laboral del día correspondiente.
+Artículo 115.—La presentación al trabajo bajo los efectos del licor o drogas enervantes, o la ingesta de estos durante el transcurso de la jornada, además del rebajo correspondiente dará lugar a la imposición de sanción disciplinaria, bajo los términos que al efecto establezca el Código de Trabajo, mediando aplicación de las Regulaciones Disciplinarias por Adicción a las Drogas que se encuentren vigentes en la Municipalidad.

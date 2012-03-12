@@ -1,2 +1,3 @@
-Artículo 93.—Los servidores cumplirán su jornada laboral de trabajo, dentro de los horarios que señala el artículo anterior de este Reglamento y 29 de la Convención, teniendo derecho a un receso de treinta minutos para tomar el almuerzo; lo mismo que un descanso de 15 minutos
-forma en que sus subalternos puedan tomar dicho descanso, a efecto de que no se cause menoscabo del trabajo, ni mucho menos se produzca el cierre de ninguna dependencia.
+CAPÍTULO XXIV
+De la asistencia
+Artículo 93.—Cuando el funcionario este sometido a jornada de trabajo a desarrollarse en centros de trabajo municipales, la asistencia y puntualidad al trabajo, será registrada personalmente por cada funcionario al inicio y finalización de la jornada, mediante el sistema electromagnético establecido, o cualquier otro sistema de control idóneo para tal fin.

@@ -1,1 +1,1 @@
-Artículo 46.—Para los efectos del artículo anterior la Dirección de Recursos Humanos, establecerá los instrumentos técnicos necesarios por los cuales se logre la evaluación y calificación de los trabajadores.
+Artículo 46.—Contra lo resuelto por la jefatura inmediata del servidor, cabra recurso de apelación para ante el Alcalde Municipal; este deberá ser interpuesto en el plazo de cinco días hábiles contados a partir del siguiente a la notificación de la resolución que lo admite.

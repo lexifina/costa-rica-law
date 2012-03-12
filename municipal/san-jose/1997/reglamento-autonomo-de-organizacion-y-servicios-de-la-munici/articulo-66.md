@@ -1,1 +1,2 @@
-Artículo 66.—Se procederá conforme al artículo 156 del Código de Trabajo, en aquellos casos de terminación del contrato de trabajo, antes de cumplir el trabajador el período de 50 semanas.
+Artículo 66.—La Municipalidad deberá notificar al INS, de cualquier riesgo y accidente de trabajo que sufran sus servidores. Dicha notificación deberá ajustarse a los plazos y formalidades que establezca al efecto el Código de Trabajo y, en general, el Ordenamiento Jurídico.
+Las jefaturas están obligadas el mismo día a verificar y reportar a la Unidad de Salud Ocupacional la ocurrencia de un accidente o riesgo laboral.

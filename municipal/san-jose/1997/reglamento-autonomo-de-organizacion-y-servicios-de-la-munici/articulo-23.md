@@ -1,1 +1,1 @@
-Artículo 23.—Cuando resulte necesario realizar un concurso interno por oposición, la Dirección de Recursos Humanos publicará su apertura dentro de los siguientes quince días naturales posteriores a aquel en que se produjo la vacante.
+Artículo 23.—Los contratos se harán: uno para la Municipalidad y otro para el funcionario.

@@ -1,1 +1,4 @@
-Artículo 87.—Según la legislación vigente, todos los funcionarios, cualquiera que sea la función que desempeñen, tendrán derecho a un sueldo adicional anual, equivalente a la doceava parte del total de los salarios ordinarios y extraordinarios percibidos durante el período respectivo. Dicho beneficio será entregado en los primeros quince días del mes de diciembre del año de que se trate, salvo terminación de la relación de servicio antes de vencerse el período respectivo, caso en el cual se pagará proporcionalmente al finalizar la relación laboral.
+CAPÍTULO XXI
+De la Junta de Relaciones Laborales
+Artículo 87.—En la Municipalidad funciona una Junta de Relaciones laborales integrada por igual número de representantes institucionales, y de las organizaciones sindicales firmantes de la Convención.
+Los representantes sindicales son designados por acuerdo de las juntas directivas de las respectivas organizaciones, en tanto los representantes institucionales lo serán de acuerdo al artículo 8 Convencional.

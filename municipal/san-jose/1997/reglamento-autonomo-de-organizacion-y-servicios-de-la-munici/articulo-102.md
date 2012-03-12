@@ -1,3 +1,3 @@
-CAPITULO XXIV
-De la asistencia
-Artículo 102.—La asistencia y puntualidad al trabajo, será registrada personalmente por cada funcionario al inicio y finalización de la jornada, mediante el sistema electromagnético establecido, o cualquier otro sistema de control idóneo para tal fin.
+CAPÍTULO XXV
+De las llegadas tardías
+Artículo 102.—Se considera como llegada tardía, el ingreso al trabajo después de la hora exacta señalada para el comienzo de labores en la correspondiente fracción de la jornada.

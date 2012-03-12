@@ -1,1 +1,3 @@
-Artículo 74.—La Dirección de Recursos Humanos a través de la Unidad de Salud Ocupacional. será la responsable de promover, coordinar, ejecutar y fiscalizar las políticas y medidas que se adopten en materia de Salud Ocupacional, y de la integración de las brigadas de Salud Ocupacional, las cuales recibirán la capacitación necesaria que les faculte para cumplir su cometido.
+CAPÍTULO XVIII
+Del salario, aguinaldo y cesantía
+Artículo 74.—Las categorías de los puestos y la escala salarial correspondientes a los mismos en ningún caso podrán ser inferiores a los mínimos legales establecidos por el Ministerio de Trabajo y Seguridad Social. La escala de Salario será aprobada por el Concejo.

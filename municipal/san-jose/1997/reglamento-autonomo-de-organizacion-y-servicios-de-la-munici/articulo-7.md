@@ -1,1 +1,1 @@
-Artículo 7°—Los actos de la administración Municipal, que afecten al servidor se regirán, en lo conducente, por las reglas de los artículos 178 y 179 del Código Municipal.
+Artículo 7º—La aplicación de este Reglamento corresponde al Alcalde Municipal, Departamento de Recursos Humanos y representantes patronales, así como a todos los funcionarios municipales. Corresponde y es facultad del Alcalde Municipal interpretar y resolver las dudas que pudiesen surgir en relación con el mismo, previa consulta al Departamento de Recursos Humanos.

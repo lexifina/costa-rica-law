@@ -1,8 +1,1 @@
-Artículo 100.—Sin perjuicio de la obligación en que se encuentran los miembros de la Policía Municipal. Guardia Municipal. Estacionómetros, son obligaciones de quienes integran estos cuerpos:
-1- Velar por la seguridad ciudadana, el mantenimiento del orden público y los bienes institucionales.
-2- Velar por la seguridad y el orden en los actos públicos que realice la Municipalidad.
-3- Velar por la conservación de los bienes que constituyen el patrimonio Municipal.
-4- Portar en un lugar visible el carné de identificación.
-5- Devolver su carné, equipo y todos aquellos implementos que para la prestación del servicio le hayan sido facilitados, una vez que concluya la relación laboral.
-6- Portar el uniforme completo.
-7- Les esta prohibido portar insignias y/o distintivos que no les hayan sido conferidos por la Municipalidad.
+Artículo 100.—Es responsabilidad de cada Gerencia, Jefatura de Departamento, Sección, Unidad y/o Supervisores, establecer los sistemas de control necesarios para verificar la permanencia de los funcionarios a su cargo durante la jornada laboral. Toda salida de índole personal se hará mediando boleta de salida y entrada y será reportada en el control quincenal de asistencia para ser rebajada del salario correspondiente; quedan a salvo las tuteladas por Ley.

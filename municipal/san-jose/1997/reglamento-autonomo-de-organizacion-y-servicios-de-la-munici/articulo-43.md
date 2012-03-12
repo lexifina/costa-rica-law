@@ -1,1 +1,1 @@
-Artículo 43.—El mismo procedimiento se aplicara para el caso de las reclasificaciones, con la salvedad que estas regirán a partir de la fecha en que sean aprobadas por la Dirección Ejecutiva.
+Artículo 43.—Corresponde a cada jefatura evaluar el desempeño de sus colaboradores inmediatos, con la asesoría del Departamento de Recursos Humanos.

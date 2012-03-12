@@ -1,1 +1,1 @@
-Artículo 52.—Si persistiese la inconformidad del servidor, éste podrá apelar ante la Dirección Ejecutiva de acuerdo al artículo 178 del Código Municipal.
+Artículo 52.—La concesión de un asueto lo dispone el Concejo Municipal de conformidad con la Ley, lo que será hecho del conocimiento de los funcionarios por el Alcalde Municipal. Por lo mismo no constituye, en caso alguno, un derecho que los funcionarios puedan reclamar como derecho adquirido.

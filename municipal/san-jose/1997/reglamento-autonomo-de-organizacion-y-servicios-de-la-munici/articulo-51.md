@@ -1,1 +1,1 @@
-Artículo 51.—El jefe concederá una entrevista al servidor dentro de tos dos días hábiles siguientes al recibo de la impugnación y deberá resolver dentro de los tres días hábiles siguientes a esa entrevista.
+Artículo 51.—Todos los días del año son hábiles para el trabajo, excepto los feriados y los días de descanso semanal existentes por disposición legal o convenio entre las partes, convención y aquellos que el Concejo Municipal declare de asueto. Sin embargo, podrá trabajarse en tales días, siempre y cuando el Código de Trabajo así lo permita.

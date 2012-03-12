@@ -1,2 +1,3 @@
-Artículo 32.—Es deber de las jefaturas, enviar copia al expediente personal de los funcionarios, de aquellas gestiones que dentro de su ámbito de competencia, pueden generar actos jurídico- administrativos.
-La información contenida en el prontuario, así como en el expediente personal, es de carácter confidencial y solo tendrán acceso a ella los funcionarios que lo requieran para labores propias del cargo, comisiones de la Junta, el servidor y su representante autorizado.
+CAPÍTULO X
+De la clasificación y valoración de puestos
+Artículo 32.—El Manual descriptivo de Puestos contemplará el título, la naturaleza del trabajo, las responsabilidades y los requisitos, habilidades y otras exigencias de cada puesto existente en la Municipalidad, y será la base para la selección de personal y la determinación de sus salarios.

@@ -1,3 +1,1 @@
-CAPITULO XIV
-Del descanso semanal, vacaciones y días feriados
-Artículo 55.—Todo trabajador tiene derecho a disfrutar de un día de descanso absoluto, después de cada seis días de trabajo continuo, según el artículo 152 del Código de Trabajo.
+Artículo 55.—El disfrute del período vacacional se suspenderá si, durante éste el servidor es incapacitado por la CCSS, por el INS, médico de empresa o médico particular.

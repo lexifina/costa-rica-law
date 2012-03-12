@@ -1,4 +1,7 @@
-Artículo 11.—Son principios éticos del servidor municipal los siguientes:
-1- Orientar el ejercicio de la función municipal a la satisfacción del bien común, que es su fin último y esencial. Para ello la función municipal tendera al mantenimiento y aplicación de los valores de seguridad, justicia, solidaridad, paz. libertad y democracia.
-2- La lealtad, la eficiencia, la probidad y la responsabilidad, son valores fundamentales que deberán tenerse presentes en el ejercicio de la función Municipal. También se tendrán presentes los principios del servicio público. Los deberes y prohibiciones que deben acatar los funcionarios municipales se fundamentan en esos valores y principios.
-3- El funcionario es un servidor de los administrados del Cantón Central de San José, y en particular de cada individuo o administrado que con el se relacione en virtud de la prestación de servicio y de la función que desempeña la cual debe atender de una manera integral con aplicación plena de sus conocimientos, aptitudes, actitudes y valores.
+CAPÍTULO IV
+Estructura de la Administración Municipal
+Artículo 11.—La Administración Municipal está integrada por:
+1- Un Alcalde Municipal designado por elección popular, quien tiene las atribuciones que le otorgan el Código Municipal, la Ley General de la Administración Pública y cualquier otra que regule el ordenamiento jurídico.
+El Alcalde Municipal, es el enlace directo entre el Concejo y los servidores, el funcionario de mayor Jerarquía dentro de la Institución.
+2) Vicealcalde (s) según determine la Ley.
+3) Gerentes, Directores, Jefe de Departamento, Jefes de Sección y cualquier otro que se establezca por parte de la Institución.

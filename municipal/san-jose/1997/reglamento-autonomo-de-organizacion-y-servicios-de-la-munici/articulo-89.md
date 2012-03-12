@@ -1,14 +1,21 @@
-Artículo 89.—El Pago del auxilio de cesantía en esta Municipalidad, se hará de conformidad con las estipulaciones siguientes:
-1) Si el contrato de trabajo por tiempo indeterminado concluye por razón de despido injustificado, por alguna de las causas previstas en el Artículo 83 del Código por Trabajo u otra causa ajena a la voluntad del trabajador, jubilación, pensión o renuncia voluntaria al puesto se pagará a éste un auxilio de cesantía de acuerdo con las siguientes reglas:
-a) Después de un trabajo continuo no menor de tres meses ni mayor de seis meses, con un importe igual a diez días de salario.
-b) Después de un trabajo continuo mayor de seis meses pero menor de un año, con un importe igual a veinte días de salario.
-c) Después de un trabajo continuo mayor de un año, con un importe igual a un mes de salario por cada año de trabajo o fracción no menor a seis meses.
-d) El auxilio de cesantía se pagará sin límite de años.
-e) El auxilio de cesantía se pagará aunque el trabajador pase inmediatamente a servir a las órdenes de otro patrono.
-2) La cesantía se regirá por las siguientes reglas:
-a) El importe no podrá ser objeto de compensación, venta o cesión ni podrá ser embargado, salvo en la mitad por concepto de pensiones alimenticias como lo prevé la ley.
-b) La indemnización correspondiente se calculará tomando como base el promedio de salarios ordinarios y extraordinarios devengados por el trabajador durante los últimos seis meses que tenga de vigencia el contrato o fracción de tiempo menor si no hubiere ajustado dicho término.
-c) La continuidad del trabajo no se interrumpe por enfermedad, vacaciones, huelga legal y otras causas análogas que según el Código de Trabajo no rompen el contrato de trabajo.
-d) Será absolutamente nula la cláusula del contrato que tienda a interrumpir la continuidad de los servicios prestados o por prestarse.
-e) De las sumas a pagar por cesantía la Municipalidad deducirá lo que pagare conforme a lo dispuesto en la Ley de Protección al Trabajador y la Ley de Asociaciones Solidaristas.
-(Así reformado por Acuerdo de Sesión Nº 140 de 1 de agosto de 2000)
+CAPÍTULO XXII
+Obligaciones de los funcionarios con cargo de jefatura
+Artículo 89.—Sin perjuicio de otras propias del cargo y las generales de todo servidor, son obligaciones de los funcionarios que ejerzan como jefatura:
+1- Diagnosticar periódicamente en forma objetiva y veraz, el desempeño de todos sus subalternos en los aspectos técnicos, operativos, administrativo, disciplinario, y brindarles o gestionar la capacitación que requieran.
+2- Preparar informes y reportes periódicos sobre la marcha de la dependencia o proyecto a su cargo; o en forma inmediata, sobre cualquier hecho relevante que requiera pronta solución.
+3- Observar que se cumplan las normas de disciplina y asistencia que la Municipalidad tenga en aplicación.
+4- Planificar, orientar y guiar a sus colaboradores para que las actividades y procesos asignados se desarrollen conforme a las normas de eficiencia y calidad deseadas.
+5- Velar porque sus colaboradores disfruten de sus vacaciones de modo tal que no se produzcan acumulaciones indebidas de estas.
+6- Remitir al Departamento de Recursos Humanos, en el término improrrogable de cinco días hábiles a partir del que tuvo conocimiento, los informes y pruebas correspondientes a las faltas en que incurran los funcionarios a su cargo y que prima facie puedan merecer sanción de suspensión o despido; así como sancionar con amonestación aquellas leves.
+7- Velar porque los funcionarios bajo su coordinación y supervisión, cumplan con las obligaciones señaladas en este Reglamento y leyes conexas, y no incurran en las conductas prohibitivas que aquí o en otra normativa aplicable se señalan.
+8- Tramitar dentro de los tres días hábiles siguientes, las solicitudes de justificación, que le presenten sus colaboradores por omisiones de marca, llegadas tardías y/o ausencias en que incurran en ocasión de atender asuntos de índole laboral o personal.
+9- Suministrar oportunamente la información que otras dependencias en asuntos propios de su gestión le soliciten para atender procesos o procedimientos de ley, todo dentro de los plazos que al efecto se señalen;
+10- Tomar las precauciones necesarias para prevenir posibles accidentes;
+11- Devolver en el momento en que cese en sus funciones los uniformes, materiales, herramientas y enseres que se le hayan entregado para sus labores; así como entregar oportunamente el informe final de gestión cuando sea procedente.
+12- Promover y fiscalizar controles dirigidos a que los vehículos asignados a sus dependencias estén en condiciones mecánicas que permitan su uso sin exponer a peligro a algún funcionario, terceros o bienes; cuenten con los permisos correspondientes y no sean utilizados si les afecta con algún tipo de restricción para ello.
+13- No obstaculizar de modo alguno la presentación de sus colaboradores a la oficina de Asuntos Laborales cuando estos hayan sido citados en calidad de testigos, parte o en cualquier otra condición. Por el contrario, en estos casos la jefatura deberá tomar las medidas necesarias para facilitar el apersonamiento indicado. Lo anterior aplica para cuando la citación se de para comparecer en asuntos judiciales de interés municipal.
+14- Aplicar la autoevaluación anual en la o las dependencias a su cargo, según las especificaciones de plazos y metodología que la Municipalidad señale.
+15- Presentar, en el plazo que para ello indique la Municipalidad, los planes de mejora y los respectivos informes de seguimiento con respecto a debilidades y riegos de la o las dependencias a su cargo. Asimismo presentar los informes o reportes de seguimiento y administración de los riesgos de las áreas funcionales o procesos a su cargo. Lo anterior sin detrimento del deber general de informar a la Institución de forma oficiosa de cualquier deficiencia y /o anomalía que descubra en el cumplimiento de sus funciones o con ocasión de estas.
+16- Ejecutar las acciones de mejora propuestas, salvo que exista justa causa para ello, lo que se deberá hacer constar de forma razonada.
+17- Asistir a las reuniones de coordinación a las que se les convoque con relación al Sistema Institucional de Control Interno.
+18- Cualquier otra propia del cargo.

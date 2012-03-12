@@ -1,1 +1,3 @@
-Artículo 136.—Los plazos para la reincidencia serán en un término de tres meses; y sancionados con la sanción inmediata posterior a la anterior aplicada.
+CAPÍTULO XXXII
+Disposiciones finales
+Artículo 136.—Las disposiciones del presente Reglamento no perjudica los derechos adquiridos por los funcionarios. Se presumirán del conocimiento de éstos, y será de observancia obligatoria para todos los funcionarios municipales desde el día de su vigencia, inclusive para los que en el futuro ingresen a trabajar para ella.

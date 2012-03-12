@@ -1,1 +1,1 @@
-Artículo 95.—Se considera tiempo efectivo de trabajo, aquel en que los trabajadores permanezcan bajo las órdenes o dirección inmediata o delegada del patrono.
+Artículo 95.—El control y salida durante el tiempo destinado al descanso e ingesta de alimentos, queda bajo la responsabilidad de cada jefe inmediato, quien establecerá los mecanismos necesarios para ello, de manera que no se cierre el despacho y no se ocasione menoscabo en la prestación del servicio.

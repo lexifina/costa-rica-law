@@ -1,1 +1,1 @@
-Artículo 36.—La Municipalidad facilitará la participación de los funcionarios en programas de adiestramiento, cuando sufran discapacidad en razón del trabajo que realizaban.
+Artículo 36.—Un puesto puede ser examinado y revisado las veces que resulte necesario.

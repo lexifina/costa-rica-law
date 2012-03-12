@@ -1,1 +1,1 @@
-Artículo 69.—Las licencias para capacitación formal y no formal, se regirán por lo que la efecto dispone el Reglamento de Becas vigente en la Institución.
+Artículo 69.—Tratándose de incapacidad para trabajar por riesgo profesional, se estará a lo dispuesto la Ley sobre Riesgos de Trabajo, y sus reformas, garantizándose en todo caso el pago del cien por ciento del salario del servidor municipal.

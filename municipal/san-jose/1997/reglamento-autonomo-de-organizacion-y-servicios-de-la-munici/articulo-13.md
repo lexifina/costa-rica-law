@@ -1,1 +1,1 @@
-Artículo 13.—El Ejecutivo Municipal, es el enlace directo entre el Concejo Municipal y los servidores, el funcionario de mayor Jerarquía dentro de la Institución.
+Artículo 13.—La modificación de las condiciones de trabajo se efectuará mediante acción de personal expedida por el Departamento de Recursos Humanos, y autorizada por el Alcalde Municipal, cuya firma les otorgará validez y eficacia.

@@ -1,3 +1,1 @@
-CAPITULO XI
-De la evaluación y calificación del desempeño
-Artículo 45.—El desempeño de los servidores nombrados en propiedad será evaluado y calificado como mínimo una vez al año; la calificación se expresara en términos de excelente, muy bueno, bueno, regular y malo.
+Artículo 45.—Si el servidor estima que la calificación no es la que le corresponde, dentro de los tres días hábiles siguientes al de la notificación, podrá interponer por escrito recurso de revocatoria para ante su jefe inmediato, exponiendo los motivos en que fundamenta su inconformidad. El jefe concederá una entrevista al servidor dentro de los cinco días hábiles siguientes al recibo del recurso y deberá resolver de forma fundamentada dentro de los diez días naturales siguientes a esa entrevista, resolución que se notificará al recurrente en un plazo no mayor de tres días naturales con indicación del recurso de apelación que admite y el plazo para interponerlo.

@@ -1,3 +1,2 @@
-CAPITULO VII
-De los contratos de trabajo
-Artículo 27.—Todo trabajador de la municipalidad debe estar amparado por un contrato de trabajo escrito, y contendrá en términos generales las cláusulas y estipulaciones necesarias que regulan la prestación de sus servicios.
+Artículo 27.—Es deber de las jefaturas, enviar copia al expediente personal de los funcionarios, de aquellas gestiones que dentro de su ámbito de competencia, sean por naturaleza actos jurídico – administrativos relacionados con aquellos y con su historial de la relación de servicio.
+La información contenida en el expediente personal, es de carácter confidencial y solo tendrán acceso a ella los funcionarios que lo requieran para labores propias del cargo, comisiones de la Junta, el servidor y su representante autorizado.

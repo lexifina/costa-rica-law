@@ -1,5 +1,3 @@
-CAPITULO IV
-Estructura de la administración municipal
-Artículo 12.—La Administración Municipal está integrada por:
-a) Un Ejecutivo Municipal electo con base en el Código supra. Quien tiene las atribuciones que le otorgan los artículos 57 y demás conducentes del Código Municipal, así como las que supletoriamente deriven de los artículos de dicho Código, 101 a 103 de la Ley General de la Administración Pública.
-b) Directores, Jefe de Departamento, Jefes de Sección y Jefes de Unidad.
+CAPÍTULO V
+De la naturaleza y contenido de la relación de servicio
+Artículo 12.—En su relación de empleo, el servidor estará sujeto a las condiciones establecidas en el contrato de trabajo escrito, cuando este existiere, y en todo caso, a las normas del presente Reglamento, de la Convención, Código Municipal y Código de Trabajo. El nombramiento se formalizará y será efectivo a través de la acción de personal.

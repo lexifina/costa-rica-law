@@ -1,1 +1,1 @@
-Artículo 129.—Las sanciones descritas en este capítulo, serán aplicadas por la Dirección Ejecutiva a través de la Dirección de Recursos Humanos, conforme al procedimiento que establece la Convención y artículo 154 Código Municipal.
+Artículo 129.—Todo acto desde el inicial que tienda a la prosecución de la investigación interrumpe la prescripción de la acción disciplinaria.

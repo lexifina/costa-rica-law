@@ -1,1 +1,2 @@
-Artículo 56.—En caso que el interés público lo demande, o se establezcan roles especiales de trabajo, se podra trabajar los días de descanso semanal.
+Artículo 56.—Cada jefatura en los primeros ocho días del mes de diciembre de cada año, confeccionará y remitirá en los próximos ocho días a la oficina de Trámite y Registro el rol de vacaciones del período siguiente, del personal a su cargo, el que será hecho de conocimiento de los funcionarios; dicho rol atenderá las fechas en que los funcionarios adquieran el derecho para el disfrute de las vacaciones.
+El rol de vacaciones a que se refiere el párrafo anterior, podrá ser variado por la jefatura en coordinación con el Departamento de Recursos Humanos atendiendo justificaciones debidamente sustentadas.

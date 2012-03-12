@@ -1,3 +1,1 @@
-CAPITULO XXIX
-Del Régimen Disciplinario
-Artículo 119.—La inobservancia de los deberes, obligaciones, o la violación de las prohibiciones, por parte de los funcionarios en el desempeño de sus funciones debidamente establecidas en este Reglamento. Códigos Municipal y Trabajo, se sancionará de acuerdo con la gravedad de la falta cometida y siguiendo el procedimiento que en adelante se indica.
+Artículo 119.—Será responsabilidad de las jefaturas sancionar directamente, con amonestación verbal o escrita, aquellas faltas leves en las que incurran sus colaboradores; de lo que, estando en firme, remitirá copia al expediente personal del funcionario que mantiene el Departamento de Recursos Humanos. Lo anterior sin perjuicio de que el funcionario pueda ser amonestado directamente por el Alcalde Municipal.

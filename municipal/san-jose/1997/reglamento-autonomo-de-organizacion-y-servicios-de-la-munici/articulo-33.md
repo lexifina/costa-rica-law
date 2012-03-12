@@ -1,3 +1,1 @@
-CAPITULO IX
-De los funcionarios con discapacidad
-Artículo 33.—La Municipalidad garantiza de conformidad con la ley número 7.600 de noviembre de 1996. la posibilidad de ingreso a las personas con discapacidad y el derecho a un empleo adecuado a sus condiciones y necesidades personales.
+Artículo 33.—Las funciones que el Manual descriptivo de Puestos enumera, no agotan las propias de cada puesto. No siendo taxativa dicha enumeración, se entenderá tan solo como representativa de las funciones propias de cada puesto. En consecuencia, el servidor no podrá negarse a ejecutar otras que, aunque no contempladas en el Manual, resulten acordes con la naturaleza del cargo que ocupa, siempre y cuando estas sean de carácter ocasional o permanente, y como tal las asigne su respectivo jefe.

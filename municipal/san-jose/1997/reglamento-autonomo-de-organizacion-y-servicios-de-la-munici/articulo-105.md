@@ -1,1 +1,3 @@
-Artículo 105.—Sólo podrá dejar de marcar aquel trabajador que esté autorizado por el Ejecutivo Municipal para no hacerlo.
+CAPÍTULO XXVI
+Omisión de marca
+Artículo 105.—Se entenderá como omisión de marca, la ausencia de esta en el respectivo registro, en la jornada laboral del día correspondiente.

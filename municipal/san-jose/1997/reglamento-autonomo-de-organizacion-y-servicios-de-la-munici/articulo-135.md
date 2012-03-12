@@ -1,2 +1,6 @@
-Artículo 135.—Se procederá a suspenderse sin goce de salario hasta por quince días hábiles:
-Al servidor, que amonestado por escrito, incurra de nuevo en una falta que merezca esa misma sanción dentro del plazo de reincidencia fijado en el artículo 109 del presente Reglamento.
+Artículo 135.—En el caso de los funcionarios interinos y funcionarios nombrados a plazo fijo o por obra determinada su relación de servicio termina:
+1- Cuando el titular del puesto se reintegre al mismo, ya sea por vencimiento de la causa que existía para alejarse del cargo o cualquier otro motivo.
+2- Despido con o sin responsabilidad patronal.
+3- Renuncia.
+4- Fallecimiento o invalidez total o permanente debidamente declarada.
+5- Por vencimiento del plazo en que fue nombrado, o terminación de la obra para cuya realización fue contratado.
