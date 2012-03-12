@@ -1,1 +1,0 @@
-Artículo 23.—Auditoría Financiera. La Auditoría y el Departamento Financiero Contable velaran por el cumplimiento de lo dispuesto en este reglamento y comunicarán a la Corte Plena y en la Inspección Judicial respectivamente cualquier anormalidad que se detectare con relación al manejo de fondos de la Oficina de Defensa Civil de las Víctimas.

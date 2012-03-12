@@ -1,1 +1,0 @@
-Artículo 22.—Las contravenciones a lo estipulado en este Reglamento, serán sancionadas de acuerdo con lo dispuesto en la Ley Orgánica del Poder Judicial y el resto del ordenamiento jurídico administrativo.

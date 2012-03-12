@@ -1,9 +1,0 @@
-Artículo 5º—Destino de los fondos de la Cuenta Especial. Los fondos de la cuenta especial de la Oficina de Defensa Civil de las Víctimas podrán utilizarse, previa solicitud formulada por el Fiscal Adjunto encargado, dirigida al Fiscal General de la República y aprobada por éste último para sufragar gastos en los siguientes casos:
-a) Para compra de equipo y suministro de la Oficina de Defensa Civil de las Víctimas, ello mediante acuerdo fundado de la Fiscalía General de la República.
-b) Para gastos procesales indispensables referidos al ejercicio de labores urgentes de la Oficina, como por ejemplo, certificación de Registros Nacionales, Registro Civil y otras instituciones del Estado, Tributación Directa, pago de transporte, etc.
-c) Para estos gastos, el Fiscal Adjunto podrá solicitar al Fiscal General cada trimestre que se autorice una suma de cien mil colones para cubrir estos gastos. Siendo que cada trimestre deberá justificarse los desembolsos realizados.
-d) Sin embargo, dependiendo de las necesidades reales de la Oficina podrá solicitarse justificadamente que se amplíe el monto anteriormente señalado.
-e) Para ayudas inmediatas a víctimas de delitos. Estas ayudas se limitarán a:
-* Gastos e implementos médicos indispensables.
-* Vestuario siempre y cuando resulte urgente e indispensable.
-f) d) Ayuda a víctimas para gastos funerarios: En los casos de ayudas inmediatas a víctimas el destino de recursos de la cuenta especial deberá contemplarse como última posibilidad de asistencia habiéndose descartado cualquier otra ayuda por parte de instituciones estatales, fondo de beneficencia, fundaciones, asociaciones, cooperativas, y entes afines. Para lo anterior será indispensable que el beneficiario manifieste mediante declaración jurada que no tiene otras posibilidades de ayuda.

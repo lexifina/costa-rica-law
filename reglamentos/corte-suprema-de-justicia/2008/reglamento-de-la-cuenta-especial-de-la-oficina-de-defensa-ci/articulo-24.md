@@ -1,1 +1,0 @@
-Artículo 24.—Aplicación supletoria. Todo lo no expresamente regulado en el presente reglamento, regirá en lo conducente por las disposiciones contenidas en la Ley General de Administración Pública, Ley General de la Administración Financiera, Ley General de la Contratación Administrativa y sus respectivos reglamentos.

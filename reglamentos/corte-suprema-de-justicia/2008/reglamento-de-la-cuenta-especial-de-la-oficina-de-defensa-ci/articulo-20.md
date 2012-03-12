@@ -1,3 +1,0 @@
-Artículo 20.—Sobregiros. Cualquier sobregiro o faltante que se produzca en la cuenta especial de la Oficina, deberá ser cubierto conjuntamente por el Fiscal General de la República, el Fiscal Adjunto y el Encargado de la Tesorería, tan pronto como se detecte.
-En aquellos casos en que se determine que algunos o algunos de los citados servidores, actuaran con dolo o culpa grave o indujeron a los otros a cometer error, el faltante deberá ser cubierto por el servidor culpable.
-Todo lo anterior, sin perjuicio de las correcciones disciplinarias que correspondan y de la responsabilidad civil y penal que les pudiera corresponder.

@@ -1,1 +1,0 @@
-Artículo 11.—Del informe de Tesorería. A más tardar antes del quinto día de cada mes, la Oficina de Defensa Civil de las Víctimas remitirá a la Auditoría un informe del movimiento de depósitos y cheques girados del mes anterior el cual será, acompañado del correspondiente estado de conciliación de acuerdo con las normas que para ese efecto dicte ese órgano fiscalizador.
