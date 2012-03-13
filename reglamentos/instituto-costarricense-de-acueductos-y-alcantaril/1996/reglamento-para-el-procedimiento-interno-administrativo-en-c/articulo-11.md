@@ -1,2 +1,0 @@
-Artículo 11.-De la audiencia de evacuación de prueba.
-Transcurrido el plazo anterior y en los próximos cinco días hábiles, el órgano director hará comparecer a las partes involucradas a una audiencia oral y privada, recibiendo en el acto la prueba testimonial. Los demás medios de prueba pertinentes y los alegatos respectivos. Cualquier valoración sobre la vida personal de la persona denunciante será improcedente.

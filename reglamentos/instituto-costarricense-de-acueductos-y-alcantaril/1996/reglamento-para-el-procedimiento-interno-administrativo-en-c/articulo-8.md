@@ -1,2 +1,0 @@
-Artículo 8°-Medidas Cautelares.
-Durante la instrucción del procedimiento, se podrán adoptar las medidas cautelares necesarias, a efecto de cesar temporalmente los efectos de un hecho lesivo a los intereses del denunciante, y hasta tanto se resuelva en definitiva el procedimiento. En caso de que la persona ofendida considere necesario su reubicación temporal en otra instancia de la Institución, podrá solicitarla ante el órgano director en cualquier momento del proceso, quien decidirá en única instancia.
