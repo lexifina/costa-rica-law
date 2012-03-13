@@ -1,1 +1,0 @@
-Artículo 32.—En caso de robo o accidente de tránsito en que se involucre un vehículo de uso discrecional se debe seguir los procedimientos establecidos en este Reglamento para el caso de vehículos de uso administrativo en los Artículos 26, 27 y 28.

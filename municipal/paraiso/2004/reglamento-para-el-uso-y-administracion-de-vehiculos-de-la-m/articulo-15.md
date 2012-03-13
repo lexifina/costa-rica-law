@@ -1,1 +1,0 @@
-Artículo 15.—Queda prohibido que un funcionario no autorizado conduzca vehículos municipales. Los casos especiales deberán ser analizados y aprobados previamente por el Jefe de cada dependencia. No se tramitará ninguna solicitud de autorización para conducir vehículos de la Municipalidad cuando no exista una necesidad real que la justifique.

@@ -1,1 +1,0 @@
-Artículo 22.—Los conductores autorizados para conducir vehículos municipales no podrán en ningún caso ceder la conducción de los mismos a personas particulares y solo en casos de fuerza mayor a funcionarios de la Municipalidad que no cuenten con la debida licencia de la institución.

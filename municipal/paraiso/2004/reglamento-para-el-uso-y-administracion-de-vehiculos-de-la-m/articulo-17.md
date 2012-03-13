@@ -1,1 +1,0 @@
-Artículo 17.—Cada Jefe de Departamento, junto con el Despacho del Alcalde, podrán suspender la autorización de conducir vehículos municipales a cualquier conductor de la institución que contravenga lo dispuesto en la Ley de Tránsito, este Reglamento o los procedimientos establecidos.

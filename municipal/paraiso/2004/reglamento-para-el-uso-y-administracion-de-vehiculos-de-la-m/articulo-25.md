@@ -1,1 +1,0 @@
-Artículo 25.—Se prohíbe guardar vehículos de la Municipalidad en casas de habitación de funcionarios o de particulares, aún cuando el servidor finalice la labor fuera de la jornada ordinaria de trabajo.

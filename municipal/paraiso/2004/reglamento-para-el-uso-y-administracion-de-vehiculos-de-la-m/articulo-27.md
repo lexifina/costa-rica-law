@@ -1,1 +1,0 @@
-Artículo 27.—Ningún conductor de la Municipalidad está autorizado para realizar arreglos extrajudiciales o conciliaciones a nombre de la Municipalidad en el caso de accidentes. Su deber es comunicarse con su Jefe inmediato.
