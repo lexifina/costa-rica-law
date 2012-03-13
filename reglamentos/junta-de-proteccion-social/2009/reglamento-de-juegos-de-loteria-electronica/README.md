@@ -14,3 +14,4 @@ Reglamento de Juegos de Lotería Electrónica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-27 | la propia norma |
+| 2 | 2012-03-13 | Reglamento 10 (2012-03-13) |
