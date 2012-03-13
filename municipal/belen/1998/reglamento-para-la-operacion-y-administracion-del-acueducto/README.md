@@ -15,3 +15,4 @@ Reglamento para la Operación y Administración del Acueducto
 | --- | --- | --- |
 | 1 | 1999-01-07 | la propia norma |
 | 2 | 2002-09-17 | Reglamento municipal 65 (2002-09-17) |
+| 3 | 2012-03-13 | Reglamento municipal 17 (2012-03-13) |

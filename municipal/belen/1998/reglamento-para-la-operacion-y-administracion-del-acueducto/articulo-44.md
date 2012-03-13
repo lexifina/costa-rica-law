@@ -1,3 +1,3 @@
-CAPITULO NOVENO
-Disposiciones transitorias
-Artículo 44.—De las modificaciones presupuestarias. La Alcaldía Municipal queda facultada para hacer las modificaciones correspondientes tanto presupuestarias como administrativas para la puesta en ejecución del presente reglamento en un plazo de tres meses después de aprobado, sin perjuicio de los derechos adquiridos y subjetivos.
+Artículo 44.—De la capacitación de servidores municipales. La Municipalidad procurará la capacitación de su personal para el mejoramiento del servicio de agua potable, en todos sus aspectos, para lo cual realizará las gestiones necesarias para ello, en las instituciones especializadas, privadas o públicas, nacionales o internacionales, para la consecución de este fin.
+Se ordena al Departamento Legal a instruir a los servidores municipales para la ejecución del presente reglamento.
+(Así ajustada su numeración en acta N° 07-2012 del 31 de enero del 2012 y definitivamente aprobada en sesión N° 17-2012 del 13 de marzo del 2012, que lo traspaso del antiguo artículo 45 al 44 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración)

@@ -1,10 +1,8 @@
-Artículo 42.—Prohibición al abonado. Se prohíbe al abonado realizar las siguientes acciones:
-a) Tomar de las tuberías intradomiciliares o de tanques de almacenamientos, derivación alguna (ramal) para darle servicio a otra edificación o lote independiente. Tales derivaciones sólo se podrán hacer en casos muy especiales previa autorización escrita del Alcalde Municipal con la recomendación de los Departamentos de Acueductos e Ingeniería Municipal.
-b) Se prohíbe toda instalación, edificación o labor comprendida en las zonas cercanas a fuentes de abastecimientos, plantas purificadoras o cualquier otra parte del sistema del acueducto, que perjudique en forma alguna a los trabajos de operación o distribución, o bien las condiciones físicas, químicas o bacteriológicas que cause o pueda causar perjuicio al sistema o la salud pública. Deberá de respetar las zonas de protección establecidas en el Plan Regulador del Cantón de Belén.
-c) Se prohíbe la conexión de mecanismos de bombeo y de mangueras directamente de las pajas de agua del acueducto. Si las mismas no están debidamente autorizadas por la Municipalidad. En este caso, la Municipalidad procederá de inmediato a la desconexión de lo no autorizado.
-d) Se prohíbe a los abonados reconectar un servicio que había sido suspendido conforme a lo establecido en el presente reglamento.
-e) En los casos de instalarse fuentes públicas para servicios colectivos, se prohíbe derivar pajas de agua y conectar mangueras de ellas para servicios particulares.
-f) En ningún caso los usuarios podrán utilizar un único servicio (una paja de agua), para dos o más unidades de ocupación. La Municipalidad procederá de oficio a instalar los servicios de agua que sean necesarios para cada unidad de ocupación que cuente con un solo servicio y viceversa. Si no se pudiera cumplir lo anterior, y en una propiedad se abastezca de una conexión varias unidades de ocupación, el recibo se calculará por unidades de ocupación, sino tuviere medidor instalado y se le cobrará al dueño de la propiedad.
-g) Cubrir el hidrómetro con tierra, escombros, desechos, arena, piedra o cualquier otro material u objeto que no permita que el mismo sea leído.
-Con excepción del inciso f) anterior, en todos los demás casos se procederá de inmediato a la desconexión y cobrará el equivalente de tres servicios de instalación nueva como costo por esos trabajos.
-(Así reformado por acuerdo tomado en sesión N° 65 de 17 de setiembre del 2002)
+Artículo 42.—Prohibiciones a los servidores municipales. Se prohibe a los servidores municipales, realizar las siguientes acciones:
+1. Realizar cualquier acto que interfiera con el fiel cumplimiento de las estipulaciones del presente reglamento. En cuyo caso se les aplicarán los procedimientos y sanciones establecidas en el Código Municipal y el Reglamento Autónomo de Servicios.
+2. Permitir que prescriban los tributos adeudados.
+3. Exonerar, sea en forma expresa o tácitamente, el cumplimiento de los requisitos reglamentarios indicados.
+4. Cancelar el recibo de abonados, salvo que sea el pago del servicio propio de agua potable o de su familia.
+En el caso de violación de este reglamento se reputará falta grave y se aplicará las disposiciones del Reglamento Autónomo de la Municipalidad, así como el Código Municipal.
+(Así reformado el último párrafo por acuerdo municipal de sesión N° 65 de 17 de setiembre del 2002)
+(Así ajustada su numeración en acta N° 07-2012 del 31 de enero del 2012 y definitivamente aprobada en sesión N° 17-2012 del 13 de marzo del 2012, que lo traspaso del antiguo artículo 43 al 42 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración)

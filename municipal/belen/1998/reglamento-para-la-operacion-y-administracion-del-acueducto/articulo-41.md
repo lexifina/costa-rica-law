@@ -1,11 +1,11 @@
-CAPITULO OCTAVO
-De las prohibiciones y sanciones
-Artículo 41.—De la denuncia al Ministerio Público. El Departamento de Acueducto de la Municipalidad de Belén, procederá a realizar el informe y recopilar las pruebas de rigor, las cuales remitirá a la Alcaldía Municipal a fin de que se considere la presentación de una denuncia ante el Ministerio Público, cuando el abonado realice alguna de las siguientes acciones:
-1. Haga algún tipo de fraude manifiesto, tal como la reconexión al sistema municipal sin autorización correspondiente, realice reventa del agua potable, reconexiones interdomiciliares sin autorización y algún tipo de conexión para evitar el registro en el hidrómetro correspondiente.
-2. Interconecte tuberías del sistema de acueducto con otras provenientes de otras fuentes de agua.
-3. Interfiera en el mantenimiento, manipule, usurpe los equipos, o accesorios del sistema de acueducto.
-4. Conecte servicios nuevos al ramal sin autorización municipal.
-5. Cualquier otra acción y omisión que pueda afectar la Salud Pública, o la correcta administración del servicio municipal de agua potable.
-6. El usuario que incurra en desperdicio de agua potable en supuestos tales como: jardines, lavado de vehículos, cultivos, tuberías defectuosas u otros, de conformidad con los artículos 14 y 15 de la Ley General de Agua Potable y demás disposiciones legales y reglamentarias concordantes.
-Con excepción del numeral 6, en todos los demás casos se procederá de inmediato a la desconexión y cobrará el equivalente de cinco servicios de instalación nueva como costo por esos trabajos.
-(Así reformado el numeral 6 por acuerdo municipal tomado en sesión N° 65 de 17 de setiembre del 2002)
+Artículo 41.—Prohibición al abonado. Se prohíbe al abonado realizar las siguientes acciones:
+a) Tomar de las tuberías intradomiciliares o de tanques de almacenamientos, derivación alguna (ramal) para darle servicio a otra edificación o lote independiente. Tales derivaciones sólo se podrán hacer en casos muy especiales previa autorización escrita del Alcalde Municipal con la recomendación de los Departamentos de Acueductos e Ingeniería Municipal.
+b) Se prohíbe toda instalación, edificación o labor comprendida en las zonas cercanas a fuentes de abastecimientos, plantas purificadoras o cualquier otra parte del sistema del acueducto, que perjudique en forma alguna a los trabajos de operación o distribución, o bien las condiciones físicas, químicas o bacteriológicas que cause o pueda causar perjuicio al sistema o la salud pública. Deberá de respetar las zonas de protección establecidas en el Plan Regulador del Cantón de Belén.
+c) Se prohíbe la conexión de mecanismos de bombeo y de mangueras directamente de las pajas de agua del acueducto. Si las mismas no están debidamente autorizadas por la Municipalidad. En este caso, la Municipalidad procederá de inmediato a la desconexión de lo no autorizado.
+d) Se prohíbe a los abonados reconectar un servicio que había sido suspendido conforme a lo establecido en el presente reglamento.
+e) En los casos de instalarse fuentes públicas para servicios colectivos, se prohíbe derivar pajas de agua y conectar mangueras de ellas para servicios particulares.
+f) En ningún caso los usuarios podrán utilizar un único servicio (una paja de agua), para dos o más unidades de ocupación. La Municipalidad procederá de oficio a instalar los servicios de agua que sean necesarios para cada unidad de ocupación que cuente con un solo servicio y viceversa. Si no se pudiera cumplir lo anterior, y en una propiedad se abastezca de una conexión varias unidades de ocupación, el recibo se calculará por unidades de ocupación, sino tuviere medidor instalado y se le cobrará al dueño de la propiedad.
+g) Cubrir el hidrómetro con tierra, escombros, desechos, arena, piedra o cualquier otro material u objeto que no permita que el mismo sea leído.
+Con excepción del inciso f) anterior, en todos los demás casos se procederá de inmediato a la desconexión y cobrará el equivalente de tres servicios de instalación nueva como costo por esos trabajos.
+(Así reformado por acuerdo tomado en sesión N° 65 de 17 de setiembre del 2002)
+(Así ajustada su numeración en acta N° 07-2012 del 31 de enero del 2012 y definitivamente aprobada en sesión N° 17-2012 del 13 de marzo del 2012, que lo traspaso del antiguo artículo 42 al 41 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración)
