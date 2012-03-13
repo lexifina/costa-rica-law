@@ -14,3 +14,4 @@ Directrices Generales en Materia Salarial, Empleo y Clasificación de Puestos pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-23 | la propia norma |
+| 2 | 2012-03-13 | Decreto Ejecutivo 37043 (2012-03-13) |
