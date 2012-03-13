@@ -1,0 +1,1 @@
+Artículo 27.—Una vez iniciadas las sesiones y aprobado el orden del día, no podrá ser objeto de acuerdo, votación ni de discusión, ningún asunto que no figure en el orden del día, salvo que se modifique éste antes de iniciarse la sesión en la forma que se indica en el presente Reglamento.

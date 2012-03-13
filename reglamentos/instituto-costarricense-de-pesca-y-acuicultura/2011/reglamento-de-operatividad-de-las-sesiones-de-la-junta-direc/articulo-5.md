@@ -1,0 +1,1 @@
+Artículo 5º—En caso de ausencia o de enfermedad, en general el Presidente de la Junta Directiva será sustituido por el Vicepresidente en el ejercicio en sus atribuciones y deberes. Cuando estén ausentes el Presidente y el Vicepresidente, la Junta Directiva nombrará a uno de sus miembros propietarios como Presidente ad hoc.

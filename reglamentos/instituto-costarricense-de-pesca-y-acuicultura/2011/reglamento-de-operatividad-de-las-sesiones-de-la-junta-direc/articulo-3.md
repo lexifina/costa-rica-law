@@ -1,0 +1,1 @@
+Artículo 3º—El periodo de nombramiento de los miembros de la Junta Directiva será de cuatro años contados a partir del mes de junio del mismo año en que se inicie el período presidencial del Gobierno de la República, cuando así proceda.

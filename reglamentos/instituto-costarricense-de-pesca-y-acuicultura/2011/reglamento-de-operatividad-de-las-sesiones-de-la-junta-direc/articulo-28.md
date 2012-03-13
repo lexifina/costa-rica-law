@@ -1,0 +1,13 @@
+CAPÍTULO VII
+De las mociones, los acuerdos
+y resoluciones de la Junta Directiva
+Artículo 28.—Las mociones, acuerdos y resoluciones serán adoptados por simple mayoría de los presentes, salvo en aquellos casos que por disposición legal, se exija una mayoría calificada.
+1- Las mociones que presenten los señores directores, deberán ser formuladas y remitidas por escrito al menos con tres días de antelación ante el Presidente de la Junta Directiva o la Secretaria de la Junta Directiva, salvo casos de urgencia y necesidad, en los cuales que podrán ser incluidas en forma fundamentada por escrito, como excepción en la sesión respectiva, antes de aprobarse el orden del día, a solicitud del Director ante la propia Junta, y contar con la aprobación de la mayoría de los votos de los Directores presentes.
+2- Los miembros de la Junta Directiva votarán afirmativa o negativamente, los asuntos sometidos a su conocimiento. No obstante lo anterior, cuando la mayoría de los Directores presentes, manifiesten su deseo de estudiar más un asunto, petición o proposición sometida a conocimiento de la Junta, se postergará por una sola vez la votación, hasta la sesión siguiente.
+3- Cuando hubiere empate en la votación de una moción, de un acuerdo o de otra disposición de la Junta Directiva, ya sea en general o en detalle, el Presidente resolverá conforme y para ello tendrá voto de calidad.
+4- Tendrán carácter de excepción contemplado en el inciso 1 del presente artículo, aquellas mociones presentadas por los Directores, relativos al otorgamiento de licencias, permisos, autorizaciones o concesiones.
+5- Los miembros de la Junta Directiva podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando exentos de la responsabilidad que en su caso, pudieren derivarse de los acuerdos.
+6- La participación de los miembros de Junta Directiva en los asuntos en discusión, será puntual y debidamente razonada.
+7- En los asuntos en discusión en los que un miembro de Junta Directiva tenga un interés personal o familiar, de conformidad con el artículo 19 de la Ley Nº 7384 deberá inhibirse de conocerlo antes del inicio del debate, dejando constancia en el acta correspondiente. Cuando hubiere motivo de abstención podrá también recusarse al miembro de Junta Directiva.
+8- Para que un acuerdo quede aprobado en firme requerirá un mínimo de dos terceras partes de la totalidad de los miembros presentes.
+9- El Presidente de la Junta Directiva podrá dar por agotado el tema en discusión y someterlo a votación, si así se requiere, cuando considere que ha sido suficientemente discutido y que no se están aportando elementos nuevos al debate.

@@ -1,0 +1,1 @@
+Artículo 23.—El acta de la sesión anterior junto con la minuta de correspondencia, serán enviadas a los Directores por correo electrónico o en versión de texto, con dos días de anticipación, para conocimiento los directores.

@@ -1,0 +1,1 @@
+Artículo 39.—Se deroga el Acuerdo A.J.D.I.P./022-2000 de las trece horas del veintiséis de enero del dos mil, publicado en La Gaceta Nº 35 del 3 de marzo del 2000 y cualquier otra disposición que se le oponga.
