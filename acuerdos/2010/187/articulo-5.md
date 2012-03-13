@@ -1,3 +1,3 @@
-Artículo 5º—La Comisión funcionará por medio de sesiones ordinarias, extraordinarias y grupos de trabajo, las cuales se realizarán a solicitud del Presidente o de los integrantes cuando la naturaleza de los asuntos a tratar así lo requiera. Se analizarán solo los puntos para los que fue convocada y las decisiones serán tomadas en forma colegiada, en la forma en que se dirá.
-La Comisión sesionará al menos una vez al mes en el lugar y hora que dicho órgano destine al efecto; sin embargo, en un mismo mes podrá convocarse más de una sesión, de ser necesario.
-De su seno el presidente nombrará un secretario (a).
+Artículo 5º—En cada Dirección Regional Policial del país se deberá crear una Subcomisión de Rescate de Valores Morales, Cívicos y Religiosos, las cuales se regirán por las disposiciones aplicables contenidas en el presente Acuerdo, y deberán rendir sus informes a la Comisión, al menos una vez al mes.
+Las Subcomisiones estarán integradas por los Directores Policiales de la Dirección General de la Fuerza Pública y los jefes de los otros cuerpos policiales del Ministerio, presentes en la zona, quienes podrán designar representantes. En su seno se escogerá al presidente.
+(Así reformado mediante acuerdo N° 098-2012 del 13 de marzo de 2012)

@@ -1,0 +1,4 @@
+Artículo 8º—El quórum de formación y el de votación para las sesiones será la mitad más uno del total de los miembros. No se sesionará en forma ordinaria o extraordinaria si treinta minutos después de la hora fijada no hay quórum. En todos aquellos casos en que medie empate en la votación, el Presidente tendrá doble voto.
+Cuando por motivos especiales o de fuerza mayor, un integrante no pueda asistir o presentarse a tiempo a una sesión, tendrá la obligación de avisarlo al Presidente, por la vía que estime más efectiva, todo lo cual se hará constar en el acta.
+En caso de que el Presidente levante la sesión estando en discusión un asunto, este será tratado en la sesión siguiente y deberá incluirse en el artículo de Asuntos Varios de la Orden del Día como el número uno, respetando la precedencia en que esté cedida la palabra de los miembros de la Comisión, para referirse al tema
+(Así adicionado mediante acuerdo N° 098-2012 del 13 de marzo de 2012)

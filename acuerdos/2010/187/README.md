@@ -14,3 +14,4 @@ Creación de la Comisión de Rescate y Formación de Valores Morales, Cívicos y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-21 | la propia norma |
+| 2 | 2012-03-13 | Acuerdo 98 (2012-03-13) |
