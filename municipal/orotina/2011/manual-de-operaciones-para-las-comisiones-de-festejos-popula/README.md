@@ -14,3 +14,4 @@ Manual de Operaciones para las Comisiones de Festejos Populares de la Municipali
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-04 | la propia norma |
+| 2 | 2012-03-13 | Reglamento municipal 163 (2012-03-13) |
