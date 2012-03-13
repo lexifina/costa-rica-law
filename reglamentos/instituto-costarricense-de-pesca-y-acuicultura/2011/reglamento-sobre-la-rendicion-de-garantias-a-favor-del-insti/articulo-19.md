@@ -1,0 +1,1 @@
+Artículo 19.—Del trámite para la solicitud de la indemnización. Corresponderá a la Dirección General Administrativa de la Institución realizar las gestiones para la correspondiente indemnización de conformidad con el trámite y los requisitos solicitados por parte de la entidad o empresa aseguradora.

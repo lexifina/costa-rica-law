@@ -1,0 +1,1 @@
+Artículo 5º—Del plazo de las garantías. Las garantías ofrecidas por los miembros de Junta Directiva, o por los funcionarios que estén obligados a rendir caución, deberán estar vigentes durante todo el tiempo que ocupen sus cargos, o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios.

@@ -1,0 +1,2 @@
+Artículo 14.—Funcionarios interinos y suplentes. Aquellos funcionarios que de manera interina o transitoria ocupen cualquiera de los puestos o cargos mencionados en los artículos 8º, 9º o 10 anteriores, deberán rendir garantía cuando su nombramiento sea mayor de tres meses.
+La Sección de Recursos Humanos prevendrá al funcionario de la obligación de rendir la caución, cuando tenga conocimiento de que el nombramiento interino o la suplencia serán superiores a los tres meses.

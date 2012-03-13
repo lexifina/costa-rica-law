@@ -1,0 +1,20 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+A.J.D.I.P./441-2011.—Puntarenas, a los nueve días del mes de diciembre de 2011.
+Considerando:
+1º—Que se presenta a consideración de éste Órgano Colegiado, por parte de la Dirección General Administrativa, borrador de “Reglamento sobre la rendición de garantías a favor del Instituto Costarricense de Pesca y Acuicultura”.
+2º—Que por disponerlo así los artículos 183 y 184 de la Constitución Política, la Contraloría General de la República es una institución auxiliar de la Asamblea Legislativa en la vigilancia de la Hacienda Pública y el artículo 12 de su Ley de Creación-Ley Nº 7428-la designa como Órgano Rector del Sistema de Control y Fiscalización Superiores de la Hacienda Pública.
+3º—Que de acuerdo con el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos Nº 8131, sin perjuicio de las previsiones que deba tomar la administración, todo encargado de recaudar, custodiar o administrar fondos y valores públicos, debe rendir con cargo a su propio peculio, una garantía en favor de la Hacienda Pública o la entidad respectiva, a fin de asegurar el correcto cumplimiento de los deberes y obligaciones que trae consigo el ejercicio de la función pública encargada a tales servidores.
+4º—Que mediante Resolución R-CO-10-2007 de la Contraloría General de la República, publicada en La Gaceta Nº 60 del 30 de marzo del dos mil siete; se emitieron las Directrices que deben observar la Contraloría General de la República y las Entidades y Órganos sujetos a su fiscalización, para elaborar la normativa interna relativa a la rendición de garantías o cauciones.
+5º—Que de acuerdo a la Directriz emitida por la Contraloría General de la República en su punto 1.2, cada Administración deberá reglamentar a lo interno la materia de rendición de garantías a favor de la Hacienda Pública o de la institución respectiva, por parte de los funcionarios encargados de recaudar, custodiar o administrar fondos y valores públicos, acorde con las disposiciones legales y técnicas vigentes, para asegurar el correcto cumplimiento de los deberes y las obligaciones de esos servidores.
+6º—Que para el cumplimiento efectivo de las Directrices que deben observar la Contraloría General de la República y las Entidades y Órganos sujetos a su fiscalización, para elaborar la normativa interna relativa a la rendición de garantías o cauciones, es indispensable reglamentar las disposiciones contenidas en dicho cuerpo normativo con el propósito de dotar a la Ley de los instrumentos necesarios para su efectiva aplicación.
+7º—Que las “Normas de Control Interno para el Sector Público”, aprobadas mediante Resolución del Despacho de la Contralora General de la República Nº R-CO-9-2009 del 26 de enero, 2009 y publicadas en La Gaceta Nº 26 del 6 de febrero, 2009 señalan en su apartado 4.6.1 que: “El jerarca y los titulares subordinados, según sus competencias, deben establecer, actualizar y divulgar las regulaciones y demás actividades de control pertinentes para promover y vigilar el cumplimiento, en todos sus extremos, de las obligaciones relacionadas con la rendición de garantías a favor de la Hacienda Pública o de la institución, por los funcionarios encargados de recaudar, custodiar o administrar fondos y valores institucionales”.
+8º—Que conociendo la importancia que reviste para la Institución, contar con un instrumento legal que regule obligatoriedad en la rendición de garantías a aquellos funcionarios que en razón de sus funciones deban proceder conforme, la junta directiva. Por tanto,
+ACUERDA:
+1º—Aprobar el Reglamento sobre la rendición de garantías a favor del Instituto Costarricense de Pesca y Acuicultura, en lo siguientes términos:
+REGLAMENTO SOBRE LA RENDICIÓN DE GARANTÍAS
+A FAVOR DEL INSTITUTO COSTARRICENSE
+DE PESCA Y ACUICULTURA
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Ámbito de aplicación. Las disposiciones contenidas en este Reglamento son aplicables a los miembros de la Junta Directiva y a todos aquellos funcionarios del INCOPESCA que recauden, custodien o administren fondos o valores públicos.

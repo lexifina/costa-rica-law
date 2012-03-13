@@ -1,0 +1,1 @@
+Artículo 4º—Forma de rendir la caución. La caución a favor de INCOPESCA se hará mediante la suscripción con cargo al peculio del miembro de Junta Directiva o del funcionario obligado a rendir la caución, de una póliza de fidelidad ante las entidades o empresas aseguradoras autorizadas por la Superintendencia General de Seguros (SUGESE).

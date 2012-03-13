@@ -1,0 +1,7 @@
+CAPÍTULO III
+Del monto por caucionar
+Artículo 16.—Cálculo y actualización de los montos de la caución. La Dirección General Administrativa en coordinación con la jefatura de Recursos Humanos podrá actualizar el monto a caucionar para cada nivel. Los nuevos montos serán comunicados por la Jefatura de Recursos Humanos, por escrito a los funcionarios(as) caucionantes, para que procedan con la renovación correspondiente. Los(as) funcionarios(as) que deban ajustarse al nuevo monto de la caución, contarán al efecto, con un plazo máximo de veinte días hábiles contados a partir de la notificación de dicho comunicado. Según el nivel de responsabilidad, el cálculo de los montos de las cauciones se hará de la siguiente manera:
+a) Nivel A: Quienes desempeñen puestos clasificados dentro del nivel A, deberán rendir una caución con cobertura hasta por ¢1.000.000,00. (Así modificado mediante AJDIP-005-2012).
+b) Nivel B: Aquellos funcionarios que desempeñen puestos clasificados dentro del nivel B, deberán rendir una caución con cobertura hasta por ¢750.000,00. (Así modificado mediante AJDIP-005-2012).
+c) Nivel C: Quienes desempeñen puestos clasificados dentro del nivel C, deberán rendir una caución con cobertura hasta por ¢500.000,00. (Así modificado mediante AJDIP-005-2012).
+Los montos indicados para los Niveles A, B y C, serán ajustados cada tres años, tomando como base el monto de la inflación reportado por el Banco Central de Costa Rica del año anterior. (Así modificado mediante AJDIP-005-2012).
