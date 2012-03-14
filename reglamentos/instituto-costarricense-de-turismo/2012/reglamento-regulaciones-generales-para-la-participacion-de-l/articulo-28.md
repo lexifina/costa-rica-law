@@ -1,0 +1,1 @@
+Artículo 28.—El Instituto no asume responsabilidad alguna con los participantes, por daño, extravío o pérdida de cualquier material ni lesión a persona alguna, que pudiere ocurrir durante la participación dentro o fuera del módulo de exhibición

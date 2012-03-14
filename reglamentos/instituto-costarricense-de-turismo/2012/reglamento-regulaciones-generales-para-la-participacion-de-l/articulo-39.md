@@ -1,0 +1,1 @@
+Artículo 39.—El Proceso de Promoción enviará al Órgano Colegiado dos veces al año, un informe general sobre los resultados obtenidos y la evaluación de resultados, en su alineamiento al Plan Nacional de Desarrollo Turístico, el Plan de Mercadeo y el Plan Operativo Institucional, que permita la verificación de los objetivos propuestos.

@@ -1,0 +1,1 @@
+Artículo 6º—El Proceso de Promoción presentará a la Junta Directiva para su aprobación, el número de metros cuadrados a solicitar por feria, así como el monto de la cuota de participación que deberá cubrir cada empresa participante.

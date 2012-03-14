@@ -1,0 +1,1 @@
+Artículo 4º—Cada empresa u organización participante, deberá someterse a un proceso de inscripción previo a las ferias, que incluye la presentación del formulario de inscripción y el proceso de calificación por parte de la Unidad de Ferias Internacionales del Proceso de Promoción.

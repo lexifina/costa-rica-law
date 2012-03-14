@@ -1,0 +1,1 @@
+Artículo 10.—Las empresas participantes deberán encontrarse al día y a derecho, ante el Instituto, con las obligaciones que establezcan las leyes, el presente Reglamento y demás reglamentos vigentes. Asimismo, deberán estar al día con las cuotas obrero patronales de la Caja Costarricense de Seguro Social.

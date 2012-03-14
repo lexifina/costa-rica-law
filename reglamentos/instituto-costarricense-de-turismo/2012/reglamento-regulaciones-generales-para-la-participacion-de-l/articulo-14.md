@@ -1,0 +1,1 @@
+Artículo 14.—Para la inscripción en las ferias, se tomarán en cuenta las empresas u organizaciones que presenten la documentación completa ante el Proceso de Promoción, en las fechas límite comunicadas previamente.
