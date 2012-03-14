@@ -1,0 +1,1 @@
+Artículo 3º—Delegar formalmente la firma de las actas finales de traslado, donaciones y bajas de bienes del Ministerio en el Viceministro de Gobernación y Policía o su representante, que presidirá la comisión.
