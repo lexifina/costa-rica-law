@@ -14,3 +14,4 @@ Nombra Comisión de donaciones del Ministerio de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-24 | la propia norma |
+| 2 | 2012-03-14 | Acuerdo 15 (2012-03-14) |

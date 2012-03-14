@@ -16,7 +16,8 @@ Asimismo, se delega formalmente la firma de las actas finales de traslado y dona
 Los funcionarios indicados se regirán por lo normado en los Decretos Nº 30720-H Reglamento para el Registro y Control de Bienes de la Administración Central, publicado en La Gaceta Nº 188 del 1º de octubre del 2002, modificado por Decreto Nº 31194-H, publicado en La Gaceta Nº 111 del 11 de junio del 2003 y las directrices que al respecto emita la Dirección General de Administración de Bienes y Contratación Administrativa del Ministerio, como órgano rector en la materia de conformidad con la Ley 8131 “Ley de Administración Financiera de la República y Presupuestos Públicos.” Por tanto:
 ACUERDA:
 1º—Nombrar la Comisión de Donaciones del Ministerio de Hacienda, la cual estará integrada por los funcionarios que ocupen los siguientes cargos: Director Administrativo y Financiero; Proveedor Institucional y Encargado del Control de Bienes de la institución.
-2º—Delegar la firma de las actas finales de traslado y donaciones de bienes del Ministerio en el Oficial Mayor.
+2º—Delegar formalmente en el Oficial Mayor la firma de las actas de donación y la competencia en los trámites de traslado de bienes a otras instituciones públicas. En caso de trámite de traslado de bienes dentro del Ministerio se delega la competencia en los Directores de Dependencia.
+(Así reformado el punto anterior mediante acuerdo N° 0015-2012-H del 14 de marzo del 2012)
 3º—Delegar la firma de las resoluciones finales de baja de bienes del Ministerio, en el Proveedor Nacional.
 4º—Dejar sin efecto los Acuerdos Nº 069-H, y Nº 070-H del 2 de junio del 2003, publicados en La Gaceta Nº 146 del 31 de julio del 2003.
 5º—Rige a partir del 28 de junio del 2006.
