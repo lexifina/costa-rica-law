@@ -1,0 +1,2 @@
+Artículo 28.—De las boletas de infracción. Las boletas de infracción a que hace referencia el artículo 25 de este Reglamento, serán confeccionadas por los inspectores del sistema de estacionamiento autorizado, debidamente uniformados e identificados.
+En ellas se consignará la fecha y hora de su elaboración, el número de matrícula del vehículo con el que se cometió la infracción, el motivo de la falta y la zona donde fue cometida y la firma y código del funcionario que la elaboró.
