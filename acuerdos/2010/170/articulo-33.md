@@ -9,7 +9,8 @@ c. Nombre del custodio de cada fondo.
 d. Versión vigente de los prospectos autorizados por la Superintendencia.
 e. Estadísticas para cada uno de los fondos administrados:
 i) Rendimiento total últimos 12 meses.
-ii) Rendimiento total últimos 30 días.
+ii) Rendimiento total últimos 30 días. Excepto en el caso de fondos de capital de riesgo.
+(Así reformado el acápite anterior por el artículo 2° del acuerdo SGV-A-179 del 15 de marzo del 2012)
 iii) Rendimiento líquido últimos 12 meses (fondos inmobiliarios).
 iv) Rendimiento líquido últimos 30 días (fondos inmobiliarios).
 v) Comisión de administración.

@@ -1,5 +1,5 @@
-Artículo 43- Desviación estándar de los rendimientos
-La desviación estándar muestra la variación o dispersión de los rendimientos que se han observado en el fondo alrededor de su rendimiento promedio. Para los fondos que poseen series se determina una desviación estándar para cada serie.
+Artículo 43- Desviación estándar de los rendimientos. La desviación estándar muestra la variación o dispersión de los rendimientos que se han observado en el fondo alrededor de su rendimiento promedio. Para los fondos que poseen series se determina una desviación estándar para cada serie. No se requiere de la presentación de este indicador en el caso de fondos de capital de riesgo.
+(Así reformado el párrafo anterior por el artículo 2° del acuerdo SGV-A-179 del 15 de marzo del 2012)
 Para el cálculo se deben acatar las siguientes disposiciones:
 a. Cálculo de la Desviación estándar de los últimos 30 días
 [imagen]

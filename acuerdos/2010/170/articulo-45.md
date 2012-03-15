@@ -1,10 +1,21 @@
 CAPÍTULO IV
-DISPOSICIONES FINALES
-Artículo 45- Derogatorias
-Se derogan las siguientes disposiciones:
-a. SGV-A-82. Instrucciones para la remisión de los rendimientos de los fondos de inversión. Ref. 3698 del 21 de octubre del 2003.
-b. SGV-A-97 Estado de cuenta e Informe Trimestral de Fondos de Inversión. Ref. 4309 del 27 de septiembre del 2004.
-c. SGV-A-103 Instrucciones para la publicación de información referente a fondos de inversión a través de sitios Web. Ref. 1544 del 8 de abril 2005.
-d. SGV-A-138 Instrucciones sobre notas estructuradas autorizadas para fondos de inversión. Ref. 3482 del 12 de septiembre del 2007.
-e. SGV-A-143. Disposiciones operativas de las sociedades administradoras de fondos de inversión. Ref. 741 del 08 de febrero del 2008.
-f. SGV-A-146. Instrucciones para el Calce de Plazos en Fondos de Inversión de Largo Plazo. Ref. 1697 del 29 de abril del 2008.
+Disposiciones sobre fondos de capital de riesgo
+Artículo 45.—Criterios mínimos requeridos a las empresas promovidas. Según lo dispuesto en el artículo 101 del Reglamento general sobre Sociedades Administradoras y Fondos de Inversión, la sociedad administradora debe velar por que los instrumentos financieros de oferta privada, estén emitidos por empresas promovidas que cumplan con los siguientes criterios:
+a) Estar legalmente constituida como sociedad anónima e inscrita en el Registro Personas Jurídicas.
+b) Las empresas promovidas se encuentren en alguna de las siguientes fases de desarrollo:
+i. Arranque o “Capital semilla”: La empresa promovida posee un concepto de negocio para que se desarrolle. Esta etapa es anterior a brindar un producto o servicio al mercado y empezar una producción a escala.
+ii. Puesta en Marcha o “Start-up”: La empresa promovida ya finalizó el desarrollo de sus productos o servicios y requiere capital para las fases iniciales de comercialización.
+iii. Expansión: La empresa promovida ya finalizó la comercialización inicial y realiza ventas del producto o servicio, pero requiere capital para su crecimiento y expansión. Por ejemplo, para financiar un incremento en la capacidad de producción, desarrollo de nuevos producto o servicios, comercialización a nuevos mercados o proveer de capital de trabajo.
+iv. Reorientación o “Turnaround”. La empresa promovida ya establecida requiere financiar un cambio en la orientación estratégica.
+c. Se cuente con un plan de negocios y un estudio de factibilidad al momento de la inversión inicial que indique que es un negocio viable y con posibilidades de experimentar un crecimiento.
+d. Se incluya en sus estatutos las protecciones para accionistas y acreedores, establecidas en el artículo 46 de este Acuerdo.
+e. Se adopten las disposiciones de gobierno corporativo dispuestas en el Reglamento sobre gobierno corporativo y sus reformas emitido por una bolsa de valores costarricense.
+f. Se cuenta con el acuerdo de la junta directiva sobre:
+i. El cumplimiento de las obligaciones sobre transparencia ante el o los fondos de inversión de capital de riesgo. Como mínimo estas comunicaciones deben considerar lo dispuesto en el artículo 47 de este Acuerdo.
+ii. Las políticas necesarias para controlar el flujo de información privilegiada que genere la empresa promovida y tenga un impacto en el valor de las acciones u otros valores, buscando prevenir el uso indebido de dicha información. Como mínimo estas políticas deben considerar lo dispuesto en el artículo 48 de este Acuerdo.
+iii. Designación de una persona independiente de la empresa promovida, de la sociedad administradora del fondo y de su grupo económico, responsable de vigilar el cumplimiento de las obligaciones establecidas en este artículo. Esa persona puede ser el fiscal de la empresa promovida.
+g. Contar con estados financieros anuales auditados al menos para el periodo fiscal inmediato anterior a la inversión inicial. La opinión de los estados financieros debe ser preparada por un profesional independiente de la empresa promovida, de la sociedad administradora del fondo y de su grupo económico, que se encuentre inscrito y activo en el registro profesional del Colegio de Contadores Públicos de Costa Rica.
+El criterio del inciso a. se cumple al momento en que se hace la inversión inicial y debe mantenerse durante el periodo de inversión. Los criterios establecidos en los incisos b. y c. anteriores, se identifican y cumplen al momento en que se hace la inversión inicial.
+En el caso de empresas promovidas en las fases de Arranque o Puesta en Marcha, los criterios d. al g. se cumplen al término del segundo año en que se hace la inversión inicial en la empresa promovida y deben mantenerse durante el periodo de inversión. En el caso de empresas promovidas en las fases de Expansión o Reorientación, los criterios de los incisos d. al g. se cumplen al momento en que se hace la inversión inicial y deben mantenerse durante el periodo de inversión.
+Una vez que se realiza la inversión inicial, se requiere que las empresas promovidas cuenten con estados financieros anuales auditados por una firma de auditoría o profesional independiente registrados en el Registro de Auditores Elegibles.
+(Así adicionado mediante el artículo 1° del acuerdo SGV-A-179 del 15 de marzo del 2012)

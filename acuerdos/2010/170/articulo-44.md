@@ -1,5 +1,5 @@
-Artículo 44- Rendimiento ajustado por riesgo
-El rendimiento ajustado por riesgo muestra las unidades de rendimiento que ha pagado el fondo por cada unidad de riesgo que se asume. Para los fondos que poseen series se determina un rendimiento ajustado por riesgo para cada serie.
+Artículo 44- Rendimiento ajustado por riesgo. El rendimiento ajustado por riesgo muestra las unidades de rendimiento que ha pagado el fondo por cada unidad de riesgo que se asume. Para los fondos que poseen series se determina un rendimiento ajustado por riesgo para cada serie. No se requiere de la presentación de este indicador en el caso de fondos de capital de riesgo.
+(Así reformado el párrafo anterior por el artículo 2° del acuerdo SGV-A-179 del 15 de marzo del 2012)
 Para el cálculo se deben acatar las siguientes disposiciones:
 a. Cálculo Rendimiento ajustado por riesgo de últimos 30 días
 [imagen]

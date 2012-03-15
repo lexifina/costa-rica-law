@@ -1,6 +1,7 @@
 Artículo 2- Manual de procedimientos
 La Junta Directiva debe aprobar una política para la elaboración, revisión, mantenimiento, monitoreo y aprobación de los manuales de procedimientos.
-El Gerente general de la sociedad es el responsable de establecer y mantener las políticas y procedimientos de control interno para la sociedad administradora y sus fondos. Para ello, debe identificar los procesos críticos de la operación y elaborar un manual de procedimientos para aquellos procesos que considere necesarios.
+El Gerente general de la sociedad es el responsable de que existan adecuados procedimientos de control interno para la sociedad administradora y sus fondos y que estos se cumplan. Para ello, se debe identificar los procesos críticos de la operación y elaborar un manual de procedimientos para aquellos procesos que se consideren necesarios.
+(Así reformado el párrafo anterior por el artículo 2° del acuerdo SGV-A-179 del 15 de marzo del 2012)
 El manual y sus modificaciones deben ser aprobados por la autoridad competente de conformidad con la estructura de la sociedad administradora, y estar a disposición de la Superintendencia, en medios físicos o electrónicos. Al menos una vez al año, el manual de procedimientos debe ser revisado para identificar y adoptar las oportunidades de mejora que se identifiquen.
 El manual debe incorporar los responsables en la ejecución de los procedimientos, los mecanismos de control y los niveles de aprobación de las transacciones, así como los medios que permitan dejar evidencia documental de las mismas. El manual debe considerar al menos los siguientes aspectos, sin detrimento de otros procesos críticos que la sociedad administradora identifique y para las cuales se requieran procedimientos específicos:
 a. Administración de ventas y mercadeo:
@@ -69,3 +70,13 @@ ii) Procedimientos para el seguimiento de los mecanismos de mejora crediticia qu
 b. Fondos de inversión que como parte de su política de inversión consideran la inversión en productos estructurados:
 i) Procedimientos para establecer las relaciones con el emisor, estructurador y comercializador de las notas estructuradas.
 ii) Procedimiento para llevar a cabo el análisis de características y riesgos propios de los productos estructurados que pueden formar parte del fondo de inversión.
+n. Fondos de inversión de capital de riesgo:
+i) Búsqueda, precalificación y selección de empresas promovidas.
+ii) Procedimiento para la contratación de los participantes encargados de brindar asesoría a las empresas promovidas, así como el seguimiento a su labor.
+iii) Administración, medidas de control y seguimiento posterior de las empresas promovidas.
+iv) Protección y confidencialidad de patentes, procesos de fabricación, secretos comerciales e información privilegiada de las empresas promovidas.
+v) Procedimiento para la aplicación de la metodología para la valoración de las empresas promovidas.
+vi)Procedimiento para la participación de la sociedad administradora, en los órganos de administración de las empresas promovidas.
+vii) Procedimiento para la creación y gestión de las reservas del fondo.
+viii) Procedimiento para el suministro al fondo de inversión de la información periódica de las empresas promovidas, que detalle los medios, frecuencia y contenido del flujo de información.
+(Así adicionado el inciso n) anterior mediante el artículo 1° del acuerdo SGV-A-179 del 15 de marzo del 2012)
