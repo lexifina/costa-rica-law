@@ -1,5 +1,2 @@
-Artículo 199.—De la calificación y agravamiento de la falta. Para calificar la falta e imponer la sanción, se considerarán, entre otros aspectos, los contenidos en el numeral 213 de la Ley General de la Administración Pública, en cuanto a las siguientes condiciones de la persona que ha incurrido en ella:
-1) Rango jerárquico.
-2) Naturaleza de las funciones.
-3) Impacto en el servicio.
-4) Reincidencia.
+Artículo 199.—Sobre la Queja. La interposición de una queja contra los órganos del procedimiento administrativo deberá presentarse ante el superior de la autoridad o funcionario que se presuma responsable de la falta que se reclama, de conformidad con lo dispuesto en los artículos 358, 359 y 360 de la Ley General de Administración Pública.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

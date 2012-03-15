@@ -1,2 +1,2 @@
-Artículo 172.—De los cursos de inducción al nuevo trabajador
-La Caja contemplará, en el contenido de los cursos de inducción al nuevo personal, la información sobre este Procedimiento Interno.
+Artículo 172.—Obligación de los (las) funcionarios de denunciar. Los (las) funcionarios(as) que noten cualquier conducta que pudiera inducir a un caso de hostigamiento sexual, en los lugares de trabajo y en las instalaciones del mismo deberá denunciarlo.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

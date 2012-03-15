@@ -1,5 +1,2 @@
-Artículo 160.—Definición. Hostigamiento sexual. Se entiende por hostigamiento sexual toda conducta sexual indeseada por quien la recibe, en forma reiterada y que provoque efectos perjudiciales en los siguientes casos:
-1) Condiciones materiales de empleo o de docencia.
-2) Desempeño y cumplimiento laboral o educativo.
-3) Estado general de bienestar personal.
-También se considera hostigamiento sexual la conducta grave que, habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
+Artículo 160.—Ámbito de aplicación. Comprende las disposiciones de aplicación general, para todos (as) aquellos (as) personas que presten servicios en la Caja, a nombre y por cuenta de esta, tanto para los (las) que estén laborando actualmente, como para los (las) que en el futuro ingresen a la institución, y a aquellos (as) sobre los que la Caja tiene competencia para ejercer el régimen disciplinario, independientemente del tipo de contratación. Su observancia es de aplicación estricta y obligatoria, tanto para la jerarquía institucional como para los trabajadores y trabajadoras.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

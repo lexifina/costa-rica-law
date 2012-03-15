@@ -1,1 +1,2 @@
-Artículo 162.—Ámbito de aplicación. Comprende las disposiciones de aplicación general, para todos aquellos (as) servidores (as) públicos (as) que presten servicios en la Caja o a nombre y por cuenta de ésta, tanto para los (las) que estén laborando actualmente como para los (las) que en el futuro ingresen a la Institución; y a aquellos (as) sobre los que la Caja tiene competencia para ejercer el régimen disciplinario, independientemente del tipo de contratación.
+Artículo 162.—Deber de los proveedores de servicio. En los contratos de proveedores de servicio que celebre la Institución con un tercero, se establecerá una disposición de prevención y sanción por hostigamiento sexual.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

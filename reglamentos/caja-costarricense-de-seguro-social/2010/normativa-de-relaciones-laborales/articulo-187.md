@@ -1,2 +1,3 @@
-Artículo 187.—De la prueba. Serán medios de prueba todos aquellos permitidos y necesarios para determinar la verdad real de los hechos, conforme con el ordenamiento jurídico.
-El Órgano Director deberá adoptar todas las medidas probatorias y necesarias, aunque no hayan sido propuestas por las partes.
+Artículo 187.—Conformación del expediente administrativo. El expediente administrativo contendrá como mínimo toda la documentación relativa a la denuncia, la prueba recabada durante la investigación, las actas, las resoluciones pertinentes y sus constancias de notificación. La documentación debe ser la original o en su defecto copia certificada. Además, deberá foliarse con numeración consecutiva (de izquierda a derecha) y en la carátula el señalamiento de confidencial.
+El expediente podrá ser consultado exclusivamente por las partes, sus abogados(as), representante sindical, debidamente identificados(as) y autorizados(as) por la parte interesada, bajo la custodia de los funcionarios que tenga a su cargo el expediente.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

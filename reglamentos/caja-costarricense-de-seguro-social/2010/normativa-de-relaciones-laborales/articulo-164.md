@@ -1,3 +1,2 @@
-CAPÍTULO III
-Disposiciones General
-Artículo 164.—De la no conciliación. La denuncia por hostigamiento sexual, por atentar contra la dignidad de la persona, es inconciliable entre las partes. Una vez recibida la denuncia, la Institución está obligada a darle el trámite debido, para iniciar con el Procedimiento Administrativo Disciplinario.
+Artículo 164.—Improcedencia de la investigación preliminar. Por la especialidad del procedimiento, en ningún caso se debe recurrir a una investigación preliminar de los hechos.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

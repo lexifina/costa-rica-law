@@ -1,5 +1,7 @@
-Artículo 197.—De la aplicación de medidas cautelares. La jefatura inmediata podrá ejercer su potestad de separar temporalmente a la persona denunciada de su puesto de trabajo, como una medida cautelar, o proceder a su traslado a un lugar diferente al sitio donde normalmente desempeña sus funciones, de conformidad con lo dispuesto en el artículo 33 de la Normativa de Relaciones Laborales.
-Si el (la) denunciante solicita la aplicación de esa medida cautelar, corresponderá a la jefatura inmediata o a quien haya iniciado el procedimiento, resolver dicha petición. Si se deniega la petición deberá razonar a su vez, su posición y cabrán contra ésta, los recursos ordinarios que el derecho público prevé.
-Podrá ser también parte de las medidas cautelares, la permuta y la prevención al (a la) denunciado (a) de no acercarse ni comunicarse, en modo alguno, con el (la) denunciante y ofendido (a) ni con los testigos. La aplicación de la última medida cautelar no excluye las anteriores.
-En caso de que el (la) denunciante con carácter de ofendido (a) considere necesario su traslado temporal a otra dependencia dentro de la Institución, podrá solicitarlo ante la jefatura inmediata o al superior de la jefatura inmediata en el evento de que ésta sea la involucrada.
-Toda medida cautelar deberá ser debidamente fundamentada por parte de la jefatura inmediata.
+Artículo 197.—Contenido del acto final. El acto final contendrá:
+1. Señalamiento expreso y preciso de las faltas imputadas, con indicación de las pruebas correspondientes. En caso de que se determine responsabilidad deberá indicarse la sanción respectiva, caso contrario, deberá ordenarse el archivo del expediente administrativo.
+2. Indicación de que tiene derecho a interponer los recursos ordinarios previstos en la Ley General de Administración Pública y ante cuales instancias, en el plazo de tres días después de notificado el acto final.
+3. Fecha y firma.
+El acto final deberá ser comunicado al investigado en el medio que señaló para recibir notificaciones; en caso de que no conste ese señalamiento en el expediente administrativo, deberá notificársele por los medios establecidos legalmente.
+En aquellos casos en que el investigado ya no mantenga relación laboral con la Institución, deberá hacerse constar dicha circunstancia y concluirse conforme a ésta.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

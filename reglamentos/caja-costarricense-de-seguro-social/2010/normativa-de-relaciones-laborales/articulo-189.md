@@ -1,1 +1,2 @@
-Artículo 189.—De la participación de diferentes disciplinas en el procedimiento. Siempre y cuando resulte pertinente para el buen desarrollo del procedimiento, el Órgano Director solicitará la participación de disciplinas como Psicología, Trabajo Social, Salud Ocupacional y otras dependencias institucionales.
+Artículo 189.—Presentación del alegato de conclusiones. Una vez evacuada la prueba, el órgano director, en la audiencia, concederá a las partes un tiempo prudencial para que presenten el alegato de conclusiones.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

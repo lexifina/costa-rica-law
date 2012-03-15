@@ -1,1 +1,2 @@
-Artículo 195.—De la comunicación del acto final a la Defensoría de los Habitantes. Cuando el acto final adquiera firmeza, éste debe ser comunicado a la Defensoría de los Habitantes, por parte de la jefatura inmediata.
+Artículo 195.—Dictado de acto final del procedimiento. Una vez conocido y valorado el pronunciamiento de la Junta de Relaciones Laborales, el órgano decisor deberá emitir el acto final dentro del plazo de un mes, después de recibido el expediente administrativo, momento a partir del cual empieza a correr el plazo de prescripción que legalmente corresponda.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

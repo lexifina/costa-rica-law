@@ -1,4 +1,7 @@
-CAPÍTULO II
-Objetivo, ámbito de aplicación y manifestaciones
-del Hostigamiento Sexual
-Artículo 161.—Objetivo. Establecer las medidas tendientes a prevenir, investigar y sancionar el hostigamiento sexual, en las relaciones laborales en la Caja, así como en las relaciones de docencia que se dan en la Institución.
+Artículo 161.—Colectividad vulnerable. Atendiendo a los principios rectores en materia de derechos de los niños, niñas, adolescentes, adultos (as) mayores, población indígena, personas discapacitadas, sordas, ciegas y otros con situación especial, se garantizará su protección en todo el procedimiento cuando cuenten con el carácter de víctimas, así la institución les brindará todas las facilidades y recursos técnicos necesarios para la realización del debido proceso y derecho de defensa.
+En el procedimiento, la Institución deberá garantizar el respeto de los derechos de la persona víctima; en estos casos se procurará, en la etapa de instrucción, un lugar o establecimiento adecuado con la confidencialidad y no exposición a situaciones que afecten el equilibrio emocional de la víctima.
+En cuanto a las personas sordas, la Institución garantizará en el procedimiento un(a) intérprete en el lenguaje LESCO.
+El Órgano Director deberá tomar las diligencias necesarias cuando la víctima indique un exceso de tiempo en la audiencia, que pueda ser perjudicial para su salud física y mental; de ser necesario, la toma de declaración podrá darse en un lugar fuera de la sede del Órgano Director.
+Asimismo, el Órgano Director deberá adoptar las previsiones necesarias cuando, a solicitud de la víctima, advierta que la prolongación excesiva del tiempo de la audiencia, pueda ser perjudicial para la salud física o mental.
+En el evento de que la víctima pertenezca a una comunidad indígena, el órgano tomará las medidas adecuadas con el fin de trasladarse a la comunidad o bien realizar la solicitud de colaboración al centro de salud más cercano.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

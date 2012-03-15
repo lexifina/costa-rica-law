@@ -1,3 +1,2 @@
-CAPÍTULO VII
-De las Garantías Personales y de las medidas cautelares
-Artículo 196.—De la garantía para la persona denunciante, ofendido(a) y los testigos. Ninguna persona que haya denunciado un caso de hostigamiento sexual o que haya comparecido como testigo de las partes, sufrirá por ello perjuicio personal, ni en su empleo, estudios o la prestación de servicios de salud. En el caso de las personas cuyo nombramiento sea interino, queda prohibido a la Caja dar por terminado el nombramiento, por lo que deberá garantizarse su continuidad, salvo por causas válidas que justifiquen la conclusión de la relación laboral.
+Artículo 196.—La ejecución del acto final. Una vez que el acto final del procedimiento administrativo se declare firme se ejecutará, de lo cual se dejará constancia en el expediente personal del investigado y se comunicará a la Oficina de Gestión de Recursos Humanos del centro de trabajo y consecuentemente a la Defensoría de los Habitantes.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

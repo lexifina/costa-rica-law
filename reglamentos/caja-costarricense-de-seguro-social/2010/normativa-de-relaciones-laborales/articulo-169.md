@@ -1,1 +1,2 @@
-Artículo 169.—Del apoyo a las partes. Las partes tendrán derecho a contar con apoyo y seguimiento psicológico en los centros de nuestra institución.
+Artículo 169.—Programa de atención integral a la víctima. En cumplimiento con el compromiso de la Caja, se definirá un programa de atención integral a la víctima, con el fin de que la persona que haya sufrido acoso u hostigamiento sexual, tenga derecho a que la Institución le proporcione, de manera expedita, una atención integral con la finalidad de contribuir a su recuperación por la afectación sufrida, para lo cual, la jefatura coordinará con la Dirección de Bienestar Laboral, para que la víctima reciba la atención en el centro médico que se determine.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

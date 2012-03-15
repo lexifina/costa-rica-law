@@ -1,1 +1,5 @@
-Artículo 191.—De la presentación del alegato de conclusiones. Transcurrido el plazo para evacuar la prueba, el órgano director concederá a las partes un plazo de 5 días para que presenten su alegato de conclusiones.
+Artículo 191.—La propuesta de sanción. Una vez conocido y valorado el informe de conclusiones, la jefatura respectiva tendrá un plazo de un mes para dictar la propuesta de sanción disciplinaria. En su defecto, la jefatura podrá ordenar que no proceda ninguna sanción disciplinaria y, en consecuencia, determinar el archivo del expediente; contra este acto el denunciante presentará los recursos que corresponda.
+Si la jefatura considera pertinente dictar alguna propuesta de sanción disciplinaria, le notificará a las partes dicha gestión, el contenido mínimo debe indicar lo siguiente:
+1. Señalamiento expreso y preciso de las faltas imputadas, con mención de las pruebas correspondientes, con indicación expresa de la propuesta de sanción que se pretende.
+2. Indicación que puede oponerse por escrito a esa propuesta, dentro del término de tres días hábiles y solicitar que su caso sea conocido por la Junta Nacional de Relaciones Laborales.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

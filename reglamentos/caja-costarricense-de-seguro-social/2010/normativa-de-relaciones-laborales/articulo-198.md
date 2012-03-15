@@ -1,7 +1,4 @@
-CAPÍTULO VIII
-De las sanciones disciplinarias
-Artículo 198.—De las sanciones. Las personas a quienes se les compruebe haber incurrido en hostigamiento sexual, serán sancionadas, según la gravedad de la falta, con:
-1) Amonestación escrita.
-2) Suspensión sin goce de salario, hasta treinta días hábiles.
-3) Despido sin responsabilidad patronal.
-Se deberá tomar en cuenta, además, lo dispuesto en el artículo 281 del Código Procesal Penal, por cuanto el funcionario público está en la obligación de denunciar cualquier acto que pueda configurarse en un delito.
+Artículo 198.—Recursos Ordinarios. En el procedimiento administrativo únicamente podrán interponerse los recursos ordinarios previstos en la Ley General de Administración Pública (revocatoria y apelación) contra los siguientes actos: el de inicio, el que deniega la comparecencia o cualquier prueba, el que deniega el acceso al expediente administrativo y el final. El recurso de revocatoria será conocido por el órgano que dictó el acto y el de apelación por su superior inmediato. El plazo de interposición de los recursos ordinarios será de tres días hábiles; dichos plazos comenzarán a contarse a partir del día siguiente de la notificación de su texto íntegro. Si la revocatoria fuera rechazada, el órgano inferior trasladará el expediente administrativo al superior para que conozca el recurso de apelación.
+El acto final que en esta materia le competa dictar a la Junta Directiva de la Institución, podrá ser impugnado mediante el recurso de reposición.
+El recurso extraordinario de revisión deberá interponerse ante la Junta Directiva de la Institución, en aquellos supuestos estipulados en el artículo 353 y dentro de los plazos indicados en el numeral 354, ambos de la Ley General de Administración Pública.
+(Así reformado mediante sesión N° 8568 del 15 de marzo del 2012)

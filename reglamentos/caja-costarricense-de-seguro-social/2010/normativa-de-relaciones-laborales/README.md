@@ -14,3 +14,4 @@ Normativa de Relaciones Laborales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-08 | la propia norma |
+| 2 | 2012-03-15 | Reglamento 8568 (2012-03-15) |
