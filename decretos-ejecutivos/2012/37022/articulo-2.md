@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el inciso i) del artículo 15 del Decreto N° 36910-MEP-S del 12 de enero de 2012, Reglamento para el Funcionamiento y Administración del Servicio de Soda en los Centros Educativos Públicos, cuyo texto dirá así:
+i) Bebida pre-envasada (incluyendo bebidas lácteas y yogurt) que con base en lo declarado en la etiqueta, se pueda calcular que una porción de 100 mililitros de esa bebida contiene más de 2 gramos de grasa, más de 1 gramo de grasa saturada, más de 300 miligramos de sodio o más de 60 kilocalorías (251,34 kilojulios).
