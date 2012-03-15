@@ -1,0 +1,1 @@
+Artículo 4: La inexistencia debidamente comprobada de los implementos de sanidad ocupacional, o cualquier otra infracción al presente Reglamento, que determinen los funcionarios de la Dirección Nacional de Inspección de Trabajo, dará lugar a la aplicación de las sanciones establecidas en el artículo 614 del Código de Trabajo.

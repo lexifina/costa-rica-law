@@ -1,0 +1,1 @@
+Artículo 3: El incumplimiento que hagan los patronos de las obligaciones que establece este Reglamento los hará acreedores a las sanciones que imponen los artículos 608 y siguientes del Código de Trabajo.
