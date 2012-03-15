@@ -1,0 +1,1 @@
+Artículo 6°- El Premio Nacional Deportivo Claudia Poll se otorgará cada dos años, como una condecoración que el Estado ofrece a los deportistas costarricenses, que durante los dos años anteriores a su otorgamiento, hayan merecido títulos o medallas en juegos olímpicos, torneos o campeonatos mundiales, previamente reconocidos por el Consejo Nacional de Deportes.

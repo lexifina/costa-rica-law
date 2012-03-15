@@ -1,0 +1,7 @@
+Artículo 2°- Cada cuatro años, el Ministro de Cultura y Juventud, nombrará y juramentará a los integrantes del Jurado que otorgará el Premio Nacional Deportivo Claudia Poll. El jurado estará integrado de la siguiente forma:
+a) El Ministro o Viceministro de la cartera que tenga a cargo el Deporte, quien lo presidirá.
+b) Un representante del Ministro de Cultura y Juventud.
+c) Un miembro del Consejo Nacional de Deportes seleccionado en el seno de ese Consejo.
+d)El Director Nacional del Instituto Costarricense del Deporte y la Recreación.
+e) Dos personas seleccionadas por el Ministro de Cultura y Juventud, de una lista que le presente el Consejo Nacional de Deportes, de representantes de las Asociaciones y Federaciones Deportivas de Representación Nacional. Para tal efecto, el Consejo Nacional de Deportes otorgará un plazo de 15 días a las Asociaciones y Federaciones Deportivas de Representación Nacional para que cada una proponga su representante. Las personas propuestas deberán ser de reconocida trayectoria en la vida deportiva del país, ya sea como dirigentes deportivos, atletas, periodistas, u otros en este campo, y así deberán acreditarlo ante el Consejo Nacional de Deportes.
+f) Un representante del Comité Olímpico Nacional, quien deberá tener reconocida trayectoria en la vida deportiva del país, ya sea como dirigente deportivo, atleta, periodista, u otro en este campo y así deberán acreditarlo.

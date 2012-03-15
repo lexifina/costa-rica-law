@@ -1,0 +1,1 @@
+Artículo 13º- El fallo del Jurado será inapelable. Los miembros harán solemne entrega de éste a los Ministros de Cultura y Juventud y al de la Cartera que tenga a cargo el Deporte. Con posterioridad a esa entrega se hará de conocimiento público mediante publicación en el Diario Oficial.

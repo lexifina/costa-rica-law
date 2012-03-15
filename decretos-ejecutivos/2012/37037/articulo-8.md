@@ -1,0 +1,1 @@
+Artículo 8°- Una vez cerrado el período de postulaciones, el jurado solicitará al Consejo Nacional de Deportes que verifique y defina la plena validez de los torneos o campeonatos mundiales, en los que hayan resultado ganadores los postulantes.

@@ -1,0 +1,1 @@
+Artículo 7°- Del 1º de enero al 31 de diciembre de los años pares, el jurado que otorga el premio, recibirá postulaciones para hacerse acreedor del mismo. Con la postulación deberán acreditarse los títulos o medallas obtenidas en juegos olímpicos, torneos o campeonatos mundiales y el curriculum respectivo.

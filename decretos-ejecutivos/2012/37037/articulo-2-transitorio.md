@@ -1,0 +1,1 @@
+Transitorio II: Podrán postularse durante el año 2012 para el premio que se otorgará a principios del año 2013, todos aquellos deportistas costarricenses, que durante los años 2011 y 2012, hayan merecido títulos o medallas en juegos olímpicos, torneos o campeonatos mundiales, previamente reconocidos por el Consejo Nacional de Deportes.

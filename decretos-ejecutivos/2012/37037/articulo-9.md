@@ -1,0 +1,1 @@
+Artículo 9°-. En caso de que algún miembro del Jurado, tenga parentesco de consanguinidad o afinidad hasta tercer grado con algún participante, aquel deberá excusarse y será sustituido de la misma manera en que fue electo.

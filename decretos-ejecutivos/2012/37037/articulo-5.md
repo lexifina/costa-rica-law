@@ -1,0 +1,1 @@
+Artículo 5º- El Instituto Costarricense del Deporte y la Recreación, en la medida de sus posibilidades, podrá ofrecer al jurado facilidades tales como instalaciones físicas y asistencia secretarial, de la manera que mejor garantice el cumplimiento de los objetivos de la institución y del jurado.
