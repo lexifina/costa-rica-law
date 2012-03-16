@@ -1,0 +1,1 @@
+Artículo 8º—La organización vecinal de una comunidad podrá instalar los mecanismos de vigilancia que estime pertinentes; no obstante, cuando se trate de controlar el acceso a la comunidad, residencial, urbanización, barrio o caserío, solo se permitirá la utilización de cadenas de paso, agujas de seguridad o brazos mecánicos, manuales o automáticos.

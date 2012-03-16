@@ -1,0 +1,1 @@
+Artículo 15.—En caso de que el servicio de seguridad no se otorgue de manera continua, las especificaciones contractuales y técnicas de los mecanismos indicados deberán incluir el hecho de que en ciertos horarios se mantendrán fuera de funcionamiento y no se regulara el acceso a las comunidades, residenciales, barrios o caseríos.

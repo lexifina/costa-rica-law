@@ -1,0 +1,1 @@
+Artículo 19.—Una vez que exista resolución firme que declare la suspensión del uso de la caseta o del mecanismo de vigilancia del acceso, siempre y cuando puedan corregirse las circunstancias que dieron origen a la suspensión, el Concejo Municipal concederá a la organización vecinal treinta días naturales para ejecutar las correcciones pertinentes.

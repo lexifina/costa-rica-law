@@ -1,0 +1,1 @@
+Artículo 12.—En el caso que el Concejo Municipal deniegue la autorización a la organización vecinal esta tendrá derecho a realizar una apelación escrita y defender dicha apelación en audiencia pública, que el Concejo Municipal otorgará oportunamente en audiencia que se regirá por lo dispuesto en el Reglamento de Sesiones del Concejo Municipal de Escazú.

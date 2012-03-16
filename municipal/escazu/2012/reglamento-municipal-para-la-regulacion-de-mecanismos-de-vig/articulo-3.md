@@ -1,0 +1,1 @@
+Artículo 3º—El Concejo Municipal está facultado para realizar todas las diligencias administrativas pertinentes, para asegurarse que su resolución sea dictada de conformidad con los parámetros establecidos en la Ley 8892, este reglamento y el ordenamiento jurídico.

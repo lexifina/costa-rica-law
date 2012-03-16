@@ -1,0 +1,1 @@
+Artículo 16.—Se permitirá únicamente la instalación de los mecanismos de seguridad dispuestos en este reglamento, siempre y cuando exista caseta de seguridad con contratación del servicio de vigilancia, de no existir la caseta de seguridad el Concejo Municipal podrá revocar el permiso respectivo.

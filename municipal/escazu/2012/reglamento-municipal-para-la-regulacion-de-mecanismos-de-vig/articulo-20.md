@@ -1,0 +1,1 @@
+Artículo 20.—Si la organización vecinal no cumple la corrección señalada en el plazo establecido, o bien, se concluye que existe imposibilidad material para la corrección, el Concejo Municipal ordenará el desmantelamiento inmediato de dichos dispositivos.

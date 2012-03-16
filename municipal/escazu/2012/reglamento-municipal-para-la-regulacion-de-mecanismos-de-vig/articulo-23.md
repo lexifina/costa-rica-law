@@ -1,0 +1,1 @@
+Artículo 23.—Las autorizaciones para el uso de vías públicas o bienes de dominio público municipal, para los propósitos de la Ley 8892 y este reglamento, no constituyen derechos adquiridos a favor de terceros y en consecuencia pueden ser revocadas en cualquier momento por la Municipalidad de conformidad con lo dispuesto en el artículo 19 de la Ley 8892.
