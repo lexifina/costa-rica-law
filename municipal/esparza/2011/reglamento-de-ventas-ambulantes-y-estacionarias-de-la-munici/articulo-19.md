@@ -1,0 +1,1 @@
+Artículo 19.—La venta de periódicos y revistas requerirá del permiso de uno de los medios de comunicación escrita, así como patente de venta de conformidad con lo dispuesto en el presente Reglamento y su actividad se realizará de conformidad con las normas contenidas en este documento.

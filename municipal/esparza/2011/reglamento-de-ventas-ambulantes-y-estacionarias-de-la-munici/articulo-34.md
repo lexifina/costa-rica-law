@@ -1,0 +1,1 @@
+Artículo 34.—Cuando un patentado fuere apercibido, por alguna falta a las disposiciones de este Reglamento o a las leyes en el desarrollo de la actividad estacionaria o ambulante, salvo que otra norma disponga otra sanción, sin que adecue su actividad a las disposiciones normativas vigentes dentro del plazo de un mes, su licencia será suspendida hasta por el término de un mes.

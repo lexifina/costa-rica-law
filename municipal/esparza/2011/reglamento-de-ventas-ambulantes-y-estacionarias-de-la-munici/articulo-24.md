@@ -1,0 +1,2 @@
+Artículo 24.—La ubicación de los puestos estacionarios, será de un máximo de dos puestos por cuadra, siempre y cuando las condiciones lo permitan a juicio de la Municipalidad con base en el presente Reglamento. No se permitirán ventas estacionarias en las puertas de entrada o salida de los locales comerciales.
+La Municipalidad decidirá la ubicación y ruta de vendedores estacionarios y ambulantes, sea por la atención cronológica de las solicitudes o por sorteo.

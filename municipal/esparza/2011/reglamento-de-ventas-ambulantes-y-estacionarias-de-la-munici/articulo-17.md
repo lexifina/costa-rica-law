@@ -1,0 +1,3 @@
+Artículo 17.—La Municipalidad regulará mediante licencia la actividad de los vendedores de lotería, tiempos y chances, quienes formularán la respectiva solicitud, presentando para ello los siguientes requisitos:
+a. Fotocopia certificada de la concesión para la venta de lotería que aprueba la Junta de Protección Social.
+b. Fotocopia de la publicación de La Gaceta, donde la Junta de Protección Social define el nombre, número de cédula, domicilio, lugar de expendio y montos de cuotas, según adjudicación de dicha entidad a favor del solicitante de patente especial para expendio de loterías, chances y tiempos, en esta municipalidad, de conformidad con el artículo 9º de la Ley de Loterías.
