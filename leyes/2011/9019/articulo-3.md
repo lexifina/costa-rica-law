@@ -8,3 +8,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 1. Conocer y resolver sobre los proyectos de ley y de acuerdos legislativos, así como las proposiciones de reforma constitucional que se encuentren en la agenda legislativa.
 2. Promover el óptimo funcionamiento de la Administración Pública mediante el ejercicio de las acciones de control político que le atribuye la Constitución Política
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance Digital N° 106 a La Gaceta N° 244 del 20 de diciembre de 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37033 del 5 de marzo del 2012)
