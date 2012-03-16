@@ -14,3 +14,4 @@ Disposiciones administrativas necesarias para el control fiscalización de las a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-16 | la propia norma |
+| 2 | 2012-03-16 | Directriz 0 (2012-02-13) |
