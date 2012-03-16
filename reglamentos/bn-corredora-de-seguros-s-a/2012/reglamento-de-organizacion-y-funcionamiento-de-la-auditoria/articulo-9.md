@@ -1,0 +1,2 @@
+Artículo 9º—La Auditoría Interna de BN Corredora de Seguros S.A. dispondrá de una estructura organizativa concordante con la razón de ser y la normativa que regula a BN Corredora de Seguros S. A., que garantice una administración eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de las obligaciones legales y técnicas.
+Para los efectos, la Auditoría Interna de BN Corredora de Seguros S.A. estará organizada por un equipo de trabajo liderado por el Auditor Interno, y con la colaboración de asistentes de auditoría.

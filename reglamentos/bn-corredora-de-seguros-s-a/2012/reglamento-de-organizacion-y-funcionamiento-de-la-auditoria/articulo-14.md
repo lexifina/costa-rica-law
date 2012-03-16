@@ -1,0 +1,1 @@
+Artículo 14.—El Auditor Interno deberá proponer en forma oportuna y debidamente justificada a la Junta Directiva de BN Corredora de Seguros S. A., la creación de plazas y recursos técnicos que considere indispensables para el cumplimiento de su plan anual de labores y el buen funcionamiento de la Auditoría Interna de BN Corredora de Seguros S. A.

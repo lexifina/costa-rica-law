@@ -1,0 +1,1 @@
+Artículo 24.—La Auditoría Interna de BN Corredora de Seguros S. A. propiciará una relación de estrecha coordinación y cooperación constante, sistemática y debidamente organizada con la Auditoría Interna del Banco Nacional, teniendo presentes las facultades y los deberes que cada una tiene en torno a su competencia.

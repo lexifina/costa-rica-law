@@ -1,0 +1,4 @@
+Artículo 38.—No se le dará curso a una denuncia en los siguientes casos:
+a) Cuando las denuncias no sean del ámbito de competencia de la Auditoría Interna de BN Corredora de Seguros S. A., en su caso, la referirá al funcionario que debe entrar a conocer del asunto.
+b) Si el asunto planteado ante la Auditoría Interna de BN Corredora de Seguros S. A., se encuentra en conocimiento de otras instancias con competencia para realizar la investigación, ejercer el control y las potestades disciplinarias. En estos casos se realizará la coordinación respectiva a efecto de no duplicar esfuerzos y uso de recursos.
+c) Si la denuncia presentada fuera una reiteración o reproducción, de otras denuncias similares sin aportar elementos nuevos y que ya hubieran sido resueltas con anterioridad o por otras instancias competentes.

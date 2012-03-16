@@ -1,0 +1,1 @@
+Artículo 3º—La Auditoría Interna de BN Corredora de Seguros S. A. deberá establecer y mantener actualizada una definición de visión, misión y principales políticas que regirán su accionar; así como los enunciados o códigos éticos que deben tener en cuenta sus funcionarios al conducirse en las distintas relaciones internas y externas.

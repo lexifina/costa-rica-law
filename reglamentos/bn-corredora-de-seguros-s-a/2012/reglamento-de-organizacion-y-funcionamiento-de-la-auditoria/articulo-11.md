@@ -1,0 +1,1 @@
+Artículo 11.—El Auditor Interno deberá observar las respectivas funciones establecidas en el Manual Institucional de Puestos y obedecer los requisitos establecidos por la Contraloría General de la República en la normativa correspondiente.

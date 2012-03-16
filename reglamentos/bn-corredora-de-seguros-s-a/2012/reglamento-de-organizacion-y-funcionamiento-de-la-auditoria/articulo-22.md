@@ -1,0 +1,1 @@
+Artículo 22.—El Auditor Interno definirá los mecanismos para actualizar en el instrumento que corresponda, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna de BN Corredora de Seguros S.A., con fundamento en lo estipulado en el artículo 22 de la Ley General de Control Interno.

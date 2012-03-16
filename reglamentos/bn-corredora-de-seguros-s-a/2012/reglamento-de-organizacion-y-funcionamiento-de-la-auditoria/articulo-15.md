@@ -1,0 +1,1 @@
+Artículo 15.—La Administración deberá asignar el presupuesto necesario para hacer frente a las erogaciones por concepto de recursos humanos, materiales, inversiones, de capacitación y entrenamiento, transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión, de conformidad con el artículo 27 de la Ley General de Control Interno.
