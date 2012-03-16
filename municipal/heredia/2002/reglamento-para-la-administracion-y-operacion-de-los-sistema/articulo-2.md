@@ -1,1 +1,0 @@
-Artículo 2º—Para los efectos del cobro de esta tasa se divide el distrito 10 de Heredia, en "Zona Céntrica" y "Zona no Céntrica". La Zona Céntrica quedará comprendida entre la calle 9 y calle 12, y entre avenida 3 a la avenida 12. La Zona no Céntrica quedará comprendida desde las calles y avenidas inmediatamente siguientes de las Zonas Céntricas hasta los límites de la ciudad.

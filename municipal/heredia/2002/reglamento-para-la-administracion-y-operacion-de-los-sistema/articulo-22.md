@@ -1,1 +1,0 @@
-Artículo 22.—El derecho al marchamo mensual podrá ser revocado cuando se considere conveniente a los intereses de la Municipalidad o cuando se compruebe que no se le está dando el uso debido, permitiéndosele al usuario finalizar el mes por el cual pago el marchamo.

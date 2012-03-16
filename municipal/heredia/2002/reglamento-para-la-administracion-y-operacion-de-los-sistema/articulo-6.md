@@ -1,1 +1,0 @@
-Artículo 6º—Las motocicletas que se estacionen en el espacio dedicado al estacionamiento autorizado o los vehículos que utilicen más de un campo de estacionamiento, deberán colocar la boleta por cada espacio que utilicen, de no ser así, serán sancionados por los espacios que ocupen de más, cancelando la multa respectiva y quedando sujetos a las sanciones que prevé la Ley.
