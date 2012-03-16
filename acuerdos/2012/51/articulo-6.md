@@ -1,0 +1,1 @@
+Artículo 6°—Con la salvedad expresa del Acuerdo Ejecutivo No. 015 del 03 de Febrero del 2012 y con la modificación que se le introduce al Acuerdo 260 por este medio; se dejan sin efecto los Acuerdos emitidos con anterioridad a la presente disposición en lo que contravenga las disposiciones contenidas en el presente Acuerdo.
