@@ -1,0 +1,3 @@
+Artículo 3°- Informes de avance.
+Las instituciones públicas deberán remitir a la Contabilidad Nacional informes sobre el avance de su proceso de implementación de las NICSP, en los formatos proporcionados por la Contabilidad Nacional, los cuales también estarán a disposición en la dirección electrónica: http://www.hacienda.go.cr/Msib21/EspanQl/Contabilidad^Nacional/Bienvenida.htrn
+Dichos informes deben ser enviados a la Contabilidad Nacional trimestralmente, específicamente la semana siguiente a la finalización del respectivo trimestre. La información deberá ser firmada por el Jerarca de la Institución y la persona responsable del proceso contable.
