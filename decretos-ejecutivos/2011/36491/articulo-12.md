@@ -1,1 +1,0 @@
-Artículo 12.—El costo de la implementación de nuevos manuales institucionales de clases o cambios en los vigentes, así como de las reasignaciones, deberá financiarse con los recursos económicos disponibles.
