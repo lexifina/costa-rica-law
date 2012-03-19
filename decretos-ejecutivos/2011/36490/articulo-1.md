@@ -1,4 +1,6 @@
+(Derogado)
 No. 36490-H
+(Este decreto fue derogado por el artículo 15° del Procedimientos para la aplicación y seguimiento de las directrices generales de política presupuestaria para las entidades públicas, Ministerios y demás órganos cubiertos por el ámbito de la autoridad presupuestaria, aprobado mediante decreto ejecutivo N° 37077 del 19 de marzo de 2012)
 LA PRESIDENTA DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades conferidas en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1), y 28 inciso 2), acápite b) de la Ley No. 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas; los artículos 1º, 9°, 21, 23, 24, 25, 57 y 125 de la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001, sus reformas y su Reglamento, el Decreto Ejecutivo No. 32988-H-MP-PLAN de 31 de enero de 2006 y sus reformas.
