@@ -1,4 +1,6 @@
+(Derogado)
 Nº 35050-MINAET
+(Este decreto fue derogado por el artículo 3° del decreto ejecutivo N° 37107 del 19 de marzo del 2012, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AMBIENTE, ENERGÍA
 Y TELECOMUNICACIONES
