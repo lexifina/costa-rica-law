@@ -14,3 +14,4 @@ Reglamento de la Municipalidad de Atenas para el otorgamiento de Licencias Munic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-31 | la propia norma |
+| 2 | 2012-03-19 | Reglamento municipal 155 (2012-03-19) |
