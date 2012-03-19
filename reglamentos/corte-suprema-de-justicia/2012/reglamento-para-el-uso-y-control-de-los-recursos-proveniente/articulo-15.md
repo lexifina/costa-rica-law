@@ -1,0 +1,1 @@
+Artículo 15.—Vigilancia del cumplimiento del Reglamento. La Dirección Ejecutiva, velará por el cumplimiento de lo dispuesto en este Reglamento, y comunicará al Consejo Superior o al Tribunal de la Inspección Judicial, según corresponda, aquellas situaciones que estime pertinentes.

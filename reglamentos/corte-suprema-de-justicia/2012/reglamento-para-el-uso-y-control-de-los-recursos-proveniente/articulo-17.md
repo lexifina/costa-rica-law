@@ -1,0 +1,1 @@
+Artículo 17.—Aplicación supletoria. Todo lo no expresamente regulado en el presente reglamento, se regirá en lo conducente por las disposiciones contenidas en la Ley Orgánica del Poder Judicial, Ley de Tránsito, Ley General de la Administración Pública, Ley de la Administración Financiera de la República, Ley de la Contratación Administrativa y sus respectivos reglamentos.

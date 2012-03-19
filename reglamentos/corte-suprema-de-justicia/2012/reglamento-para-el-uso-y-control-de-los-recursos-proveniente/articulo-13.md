@@ -1,0 +1,1 @@
+Artículo 13.—Verificación de cumplimiento. Cuando así lo determine la Auditoría del Poder Judicial, realizará los estudios que estime pertinentes para determinar el cumplimiento del artículo 224 de la Ley Nº 7331.

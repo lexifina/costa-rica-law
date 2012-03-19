@@ -1,0 +1,1 @@
+Artículo 16.—Manual de Procedimientos. Para el cumplimiento de las disposiciones contempladas en este Reglamento, el Departamento de Planificación elaborará un Manual de Procedimiento, que regule la forma en que se ejecutará el Programa 932, el cual respetará lo dispuesto en el presente reglamento, y será de acatamiento obligatorio.

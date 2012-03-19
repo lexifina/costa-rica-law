@@ -1,0 +1,1 @@
+Artículo 3º—Propósito. Este reglamento tiene por objeto establecer el procedimiento y las responsabilidades para controlar y supervisar la ejecución presupuestaria del Fondo Especial creado por el artículo 224 de la Ley Nº 7331.

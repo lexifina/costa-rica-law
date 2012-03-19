@@ -1,0 +1,1 @@
+Artículo 12.—Control y seguimiento. Corresponderá de manera conjunta a los Departamentos Financiero Contable y de Proveeduría y al Administrador (a) del Programa 932, establecer los controles que permitan el seguimiento de los activos adquiridos con el Fondo Especial.

@@ -1,0 +1,1 @@
+Artículo 7º—Modificación presupuestaria. La Administración aplicará lo dispuesto en el artículo 45 de la Ley de Administración Financiera de la República y Presupuestos Públicos en cuanto a las modificaciones presupuestarias que afecten los recursos del Programa 932.
