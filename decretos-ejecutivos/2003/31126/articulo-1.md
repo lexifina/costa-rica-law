@@ -31,8 +31,9 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36090 del 1º de junio 2010, se nombra como miembro propietario de esta Comisón a la Señora Ana Lorena Guevara Fernández, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36485 del 25 de enero del 2011, se nombra como miembro propietario de esta Comisión a la Señora Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36603 del 24 de enero del 2011, se nombra como miembro propietario de esta Comisón al señor Enrique Fallas Segura, representante de la Asociación Mesa Nacional Campesina)
-(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36694 del 29 de junio del 2011, se nombra como miembro propietario de esta Camisón al señor Walter Quirós Ortega, representante de la Ministra de Agricultura y Ganadería)
-(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36704 del 23 de junio del 2011, se nombra como miembro propietario de esta Camisón a la señora Ana Salas Araya, representante del Instituto Costarricense de Pesca y Acuicultura)
+(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36694 del 29 de junio del 2011, se nombra como miembro propietario de esta Comisón al señor Walter Quirós Ortega, representante de la Ministra de Agricultura y Ganadería)
+(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36704 del 23 de junio del 2011, se nombra como miembro propietario de esta Comisón a la señora Ana Salas Araya, representante del Instituto Costarricense de Pesca y Acuicultura)
+(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 37107 del 19 de marzo del 2012, se nombra como miembro propietario de esta Comisón a la señora Fiorella Donato Calderón, representante del Consejo Nacional de Rectores)
 2. Miembros suplentes:
 a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010)
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
