@@ -1,0 +1,20 @@
+Artículo 32.—Además de lo dispuesto en este Reglamento y en el artículo anterior, son obligaciones de las personas trabajadoras que ocupan puestos de Dirección y Jefe de Departamento, Unidad o Sección:
+a. Diagnosticar periódicamente, en forma objetiva y veraz, el desempeño de todas las personas trabajadoras bajo su cargo, tanto en el aspecto técnico como administrativo y brindarles o gestionar la capacitación que requieran.
+b. Preparar informes y reportes con la correspondiente periodicidad sobre la marcha de su respectiva unidad o proyecto; o en forma inmediata, sobre cualquier hecho relevante que requiera pronta solución.
+c. Observar que se cumplan las normas de disciplina y asistencia de las personas trabajadoras bajo su cargo y que las relaciones interpersonales sean cordiales y se desarrollen dentro de los cánones del respeto mutuo
+d. Planificar, orientar y guiar a las personas trabajadoras bajo su cargo para que las actividades y procesos asignados se desarrollen conforme a las normas de eficiencia y calidad deseadas.
+e. Dictar las disposiciones administrativas y aplicar las sanciones disciplinarias necesarias para la buena marcha del equipo de personas trabajadoras bajo su cargo.
+f. Tomar las precauciones necesarias para prevenir posibles riesgos de trabajo.
+g. Rendir los informes, que en cualquier momento, le soliciten la Auditoría Interna, el Alcalde o Alcaldesa, o el Concejo Municipal.
+h. Planear, programar y formular los anteproyectos de presupuesto y el Plan Anual Operativo, correspondientes a su área.
+i. Preparar informes y reportes sobre la ejecución del Plan Anual Operativo.
+j. Velar para que las personas trabajadoras bajo su coordinación y supervisión cumplan con las obligaciones señaladas y no incurran en las conductas prohibidas en este reglamento.
+k. Efectuar la calificación y evaluación del desempeño de las personas trabajadoras bajo su cargo en forma objetiva, puntual y veraz, y enviar en el plazo estipulado los documentos y reportes que al efecto se establezcan.
+l. Atender las observaciones, ideas e inquietudes del equipo de las personas trabajadoras bajo su cargo y buscar la pronta solución a las gestiones que le formulen, siempre y cuando procedan dentro del ámbito de su actividad y conforme al ordenamiento establecido.
+m. Crear y mantener una cultura de trabajo orientada a estimular en las personas trabajadoras bajo su cargo, el trabajo en equipo, sustentado en un enfoque de procesos y productos y en una vocación de creatividad y anticipación a los cambios.
+n. Cumplir con todas las responsabilidades que se le confieran.
+o. Velar para que las personas trabajadoras bajo su cargo disfruten de sus vacaciones de modo tal que no se produzcan acumulaciones indebidas de éstas.
+p. Brindar especial atención a las personas trabajadoras bajo su cargo en los aspectos propios de su desempeño durante el período de prueba y rendir ante la Alcaldía un informe debidamente justificado, con una recomendación sobre el nombramiento en propiedad o no.
+q. Cumplir con sus funciones sin sujeción a los límites de la jornada ordinaria establecida por este Reglamento, cuando fuere necesario, sin que ello generare remuneración, siempre respetando lo establecido en el artículo 143 del Código de Trabajo.
+r. Informar a la Alcaldía sobre las faltas graves en que hayan incurrido las personas trabajadoras bajo su cargo, en el plazo máximo e improrrogable de tres días a partir del día cuando este tuvo conocimiento de la falta. El incumplimiento injustificado de este deber será una falta grave para los efectos disciplinarios correspondientes. Igual responsabilidad recae sobre la persona trabajadora que ocupa el puesto de la Contraloría de Servicios cuando por denuncia conozca que otra persona trabajadora ha incurrido en una falta y no lo comunique.
+s. Cumplir con todas las demás obligaciones propias de su cargo.

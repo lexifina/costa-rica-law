@@ -1,0 +1,1 @@
+Artículo 48.—El permiso sin goce de salario es una suspensión de la prestación efectiva del trabajo por lo tanto, el período de tiempo de duración del permiso, no será computable para cumplir con las cincuenta semanas de servicios continuos para tener derecho a vacaciones.

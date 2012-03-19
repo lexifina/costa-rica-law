@@ -1,0 +1,1 @@
+Artículo 47.—En caso de terminación de la relación laboral después de cumplir cincuenta semanas de tiempo consecutivo servido, el pago de las vacaciones no disfrutadas se hará con base en el promedio de los salarios ordinarios y extraordinarios devengados por la persona trabajadora, durante el tiempo que le otorga derecho proporcional a las mismas.

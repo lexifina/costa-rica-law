@@ -1,0 +1,3 @@
+Artículo 49.—Para el cómputo de la antigüedad en el servicio, y únicamente para efectos de determinar el número de días de vacaciones por otorgar, se tomará en cuenta el tiempo de servicio en otras instituciones del Estado.
+La Unidad de Recursos Humanos hará el estudio correspondiente, con base en la certificación emitida por el Departamento de Recursos Humanos del anterior patrono o por la persona autorizada en esa institución, en la que deberá estar indicado el período laborado.
+El reconocimiento de los años de servicio en otras instituciones públicas, rige a partir de la solicitud que haga la persona trabajadora.

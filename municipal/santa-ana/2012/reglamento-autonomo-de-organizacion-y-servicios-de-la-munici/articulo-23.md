@@ -1,0 +1,2 @@
+Artículo 23.—Cuando por la naturaleza del servicio público, se requiera su prestación durante las veinticuatro horas del día, los trescientos sesenta y cinco días del año, se establecerán horarios rotativos.
+En jornadas laborales de doce horas, las personas trabajadoras tienen derecho al disfrute de un descanso de 15 minutos durante las primeras seis horas, una hora para comer y otros 15 minutos durante las segundas seis horas.

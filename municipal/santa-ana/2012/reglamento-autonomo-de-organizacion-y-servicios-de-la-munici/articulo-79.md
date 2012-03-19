@@ -1,0 +1,1 @@
+Artículo 79.—La municipalidad completará el subsidio que reciba la trabajadora por parte de la CCSS hasta completar el ciento por ciento (100%) del salario y en el caso de la licencia por paternidad del trabajador, cubrirá el ciento por ciento (100%) del salario.

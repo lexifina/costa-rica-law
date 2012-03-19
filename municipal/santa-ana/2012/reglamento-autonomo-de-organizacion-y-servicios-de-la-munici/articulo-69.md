@@ -1,0 +1,1 @@
+Artículo 69.—Del acto inicial y del acto final de todo procedimiento sancionador disciplinario de suspensión sin goce de salario o despido que se realice, deberá dársele traslado a la Junta de Relaciones Laborales, para su conocimiento.

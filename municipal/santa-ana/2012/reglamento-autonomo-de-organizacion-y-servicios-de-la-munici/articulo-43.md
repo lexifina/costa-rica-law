@@ -1,0 +1,1 @@
+Artículo 43.—Se considerará abandono de trabajo, ocuparse durante la jornada de trabajo, en actividades distintas de la labor objeto de la relación de servicio. Para efectos de calificar el abandono, no es necesario que la persona trabajadora haya abandonado su puesto, bastará con que de modo evidente esté ocupado (a) en asuntos o actividades distintos.

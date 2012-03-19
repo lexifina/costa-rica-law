@@ -1,0 +1,1 @@
+Artículo 94.—Los guardas y policías municipales tendrán derecho al pago adicional de un 18% del salario base, por concepto de Riesgo Policial, conforme lo establecerá el Reglamento para el pago de Pluses de la Municipalidad de Santa Ana.

@@ -1,0 +1,1 @@
+Artículo 68.—En los casos en que sea necesaria una investigación preliminar para identificar a la persona trabajadora responsable de una falta grave y/o para determinar si hay mérito para sancionar, el plazo del mes empezará a correr, al día siguiente en que la Jefatura con potestad sancionadora fuera puesta en conocimiento del resultado de la investigación.

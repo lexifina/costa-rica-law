@@ -1,0 +1,1 @@
+Artículo 18.—En los casos de ascensos o traslados habrá un período de prueba máximo de 30 días naturales, de tal manera que, por decisión de cualquiera de las partes, la persona trabajadora podrá ser reinstalada a su puesto anterior.

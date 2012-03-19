@@ -1,0 +1,1 @@
+Artículo 46.—En caso de terminación de la relación laboral antes del cumplimiento de las cincuenta semanas de tiempo consecutivo servido, la persona trabajadora tendrá derecho, como mínimo, a un día de vacaciones por cada mes trabajado, que se le deberá pagar el mismo día que se pague la planilla inmediata siguiente a la fecha de la terminación de la relación laboral.

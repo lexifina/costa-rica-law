@@ -1,0 +1,1 @@
+Artículo 38.—Las ausencias por incapacidad física deberán ser comprobadas mediante documento expedido por la Caja Costarricense de Seguro Social en los casos protegidos por éste régimen o por el Instituto Nacional de Seguros si se trata de un riesgo del trabajo. En casos muy calificados, la ausencia podrá dispensarse mediante la presentación de un certificado médico particular.

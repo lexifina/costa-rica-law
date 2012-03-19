@@ -1,0 +1,5 @@
+Artículo 43 ter.—El despido por ausencias solo podrá ser ordenado por el Alcalde o Alcaldesa, el Concejo Municipal o el Comité Cantonal de Deportes y Recreación según corresponda, y se aplicará:
+a. Cuando la persona trabajadora incurra en alguna de las causales expresamente previstas en el Código Municipal, en el Código de Trabajo y demás leyes aplicables.
+b. En los casos previstos en este Reglamento.
+c. Cuando la persona trabajadora, en tres ocasiones sea suspendido disciplinariamente e incurra en causal para una cuarta suspensión dentro de un período de un año calendario, ya que se considerará la repetición de infracciones como falta grave, contrarias a las obligaciones de la relación de servicio o contrato de trabajo.
+(Corregido mediante Fe de Erratas, publicada en La Gaceta N° 172 del 9 de setiembre del 2013, página 48. Anteriormente este artículo estaba numerado como artículo 43 y formaba parte del artículo 44 original, para mantener la numeración consecutiva que el sistema exige, toda vez que dicha publicación contenía dos artículo 43)

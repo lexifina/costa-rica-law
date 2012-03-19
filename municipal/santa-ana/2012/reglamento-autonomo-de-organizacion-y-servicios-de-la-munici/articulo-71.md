@@ -1,0 +1,3 @@
+Artículo 71.—Es deber de la Municipalidad como patrono, adoptar las medidas necesarias para proteger eficazmente la salud ocupacional de las personas trabajadoras, conforme a la legislación vigente en esta materia y las recomendaciones que sobre la misma formulen tanto las autoridades del Consejo de Salud Ocupacional, Inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud o el Instituto Nacional de Seguros. Se procurará garantizar:
+a) La protección de la salud y la preservación de la integridad física, mental y social de las personas trabajadoras municipales.
+b) La prevención y control de los riesgos del trabajo.

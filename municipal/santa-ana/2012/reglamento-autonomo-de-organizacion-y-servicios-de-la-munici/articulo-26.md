@@ -1,0 +1,1 @@
+Artículo 26.—Cualquier cambio en los horarios habituales, deberán ser avisados a las personas trabajadoras afectadas con al menos, una semana de antelación, con excepción de los casos de emergencia, en los que el cambio de horario podrá avisarse con al menos, 24 horas de anticipación.

@@ -1,0 +1,1 @@
+Artículo 91.—La Municipalidad cancelará en dinero, el preaviso que otorga el artículo 28 del Código de Trabajo y en la forma indicada en dicho artículo, solamente en los casos de despido inmediato, con responsabilidad patronal.

@@ -1,0 +1,1 @@
+Artículo 50.—A partir de que la persona trabajadora cumpla cinco años y cincuenta semanas de laborar para la Municipalidad, sin excepción, deberá disfrutar de quince días consecutivos de vacaciones por año y el resto de vacaciones podrá fraccionarlo, en común acuerdo con la jefatura inmediata, en fechas que sean convenientes para ambas partes.

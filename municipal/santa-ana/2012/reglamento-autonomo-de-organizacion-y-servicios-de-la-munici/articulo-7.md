@@ -1,0 +1,1 @@
+Artículo 7º—La aplicación del presente reglamento corresponde al Alcalde o Alcaldesa Municipal y a las jefaturas inmediatas y rige para todas las personas trabajadoras municipales, sean de nombramiento de la Alcaldía, del Concejo o del Comité Cantonal de Deportes y Recreación.

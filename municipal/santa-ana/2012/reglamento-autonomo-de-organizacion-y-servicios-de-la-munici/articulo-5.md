@@ -1,0 +1,1 @@
+Artículo 5º—En virtud del principio de legalidad y con la salvedad de los derechos adquiridos, la persona trabajadora no podrá disfrutar de más derechos, ni la Administración ejercer mayores potestades que las expresamente autorizadas por este Reglamento o, en su defecto, por las demás normas del ordenamiento jurídico.

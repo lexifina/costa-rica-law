@@ -1,0 +1,1 @@
+Artículo 13.—Las Acciones de Personal se confeccionarán en tres tantos uno para la Municipalidad para efectos de trámite interno, otro para la persona trabajadora interesada y la tercera para el expediente de personal.

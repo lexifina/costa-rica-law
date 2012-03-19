@@ -1,0 +1,1 @@
+Artículo 16.—Cuando la relación laboral termine, por cualquiera de las causas posibles, la Acción de Personal respectiva, deberá contener la liquidación en detalle, de los extremos laborales correspondientes.

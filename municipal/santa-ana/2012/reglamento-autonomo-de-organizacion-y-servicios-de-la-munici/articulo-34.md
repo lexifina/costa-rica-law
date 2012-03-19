@@ -1,0 +1,2 @@
+Artículo 34.—La persona trabajadora que incurra en alguno de los actos señalados en el artículo anterior o que incumpla alguna de las obligaciones a que se refieren los artículos 11, 30, 31, 32 y 33 de este Reglamento será sancionado siguiendo el procedimiento establecido en el Capítulo XII(*) sobre Sanciones Disciplinarias, según la gravedad de la falta.
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 172 del 9 de setiembre del 2013, página 48, anteriormente decía: Capítulo XIII)

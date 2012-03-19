@@ -1,0 +1,1 @@
+Artículo 15.—No podrá ser anulada ninguna Acción de Personal debidamente entregada, si no es con base en otro documento que solicite su anulación en forma justificada. Tratándose de anulación de vacaciones concedidas, está deberá ser solicitada por el interesado dentro de un plazo no mayor al primer día de disfrute de las vacaciones solicitadas.

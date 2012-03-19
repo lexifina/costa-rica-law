@@ -1,0 +1,1 @@
+Artículo 75.—La Municipalidad dará aviso al Instituto Nacional de Seguros de cualquier accidente o enfermedad que les ocurran a las personas trabajadoras con ocasión o por consecuencia del trabajo desplegado para la Municipalidad, dentro del término de ocho días hábiles a partir de su acaecimiento.

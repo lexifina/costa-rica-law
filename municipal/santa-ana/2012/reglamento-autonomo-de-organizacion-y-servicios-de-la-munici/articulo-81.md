@@ -1,0 +1,1 @@
+Artículo 81.—El Alcalde o Alcaldesa, el Concejo Municipal o el Comité Cantonal de Deportes y Recreación según corresponda; otorgará permiso sin goce de salario a la persona trabajadora que haya resultado electa en un puesto de elección popular, por el plazo del período constitucional correspondiente.

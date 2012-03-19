@@ -1,0 +1,2 @@
+Artículo 21.—Las horas de entrada y de salida para el personal podrán ser variadas por el Alcalde o Alcaldesa en ejercicio previa negociación con las personas trabajadoras involucradas, pudiendo establecerse horarios distintos para cada persona trabajadora, unidad o departamento, siempre en procura de una mejor prestación del servicio.
+Cuando la variación sea general y/o permanente, el Alcalde o Alcaldesa en ejercicio deberá negociar el cambio con el Sindicato.

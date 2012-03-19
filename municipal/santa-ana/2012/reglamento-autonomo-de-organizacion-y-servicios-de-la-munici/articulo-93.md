@@ -1,0 +1,1 @@
+Artículo 93.—Los trabajadores operativos tendrán derecho al pago adicional de un 10% del salario base, por concepto de peligrosidad, conforme lo establecerá el Reglamento para el pago de Pluses de la Municipalidad de Santa Ana.

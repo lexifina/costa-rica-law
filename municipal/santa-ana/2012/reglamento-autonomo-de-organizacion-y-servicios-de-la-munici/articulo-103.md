@@ -1,0 +1,1 @@
+Artículo 103.—La Unidad de Recursos Humanos deberá advertir a la persona trabajadora que debe corregir la conducta y recomendarle que busque asesoramiento, tratamiento y/o rehabilitación, con indicación de los lugares a los que puede acudir.

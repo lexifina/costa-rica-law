@@ -1,0 +1,1 @@
+Artículo 80.—El Alcalde o Alcaldesa, el Concejo Municipal o el Comité Cantonal de Deportes y Recreación según corresponda; podrá otorgar permiso con goce de salario, para la realización, dentro o fuera del país, de estudios y/o capacitaciones relacionadas con las funciones que desempeña la persona trabajadora solicitante.

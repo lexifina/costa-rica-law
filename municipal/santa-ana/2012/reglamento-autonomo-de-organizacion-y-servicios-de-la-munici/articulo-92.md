@@ -1,0 +1,1 @@
+Artículo 92.—La compensación económica por concepto de Prohibición del Ejercicio Liberal de la Profesión, Dedicación Exclusiva y Disponibilidad, se regulará conforme la reglamentación vigente y la jurisprudencia existente o que a futuro se emita en estas materias.
