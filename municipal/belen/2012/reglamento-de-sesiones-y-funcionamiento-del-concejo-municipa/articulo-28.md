@@ -1,0 +1,1 @@
+Artículo 28.—Convocatoria a sesiones extraordinarias. A las sesiones extraordinarias se convocará a los participantes permanentes, invitados o convocados para la ocasión y se conocerán exclusivamente los asuntos indicados en la convocatoria.
