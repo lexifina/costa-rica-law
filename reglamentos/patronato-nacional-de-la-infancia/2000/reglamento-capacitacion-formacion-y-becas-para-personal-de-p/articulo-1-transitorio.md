@@ -1,1 +1,0 @@
-Transitorio I.—De las situaciones especiales: Las situaciones especiales en la materia regulada por el presente Reglamento que surjan y no estén contempladas en este o en otro reglamento interno, será resuelto por la Presidencia Ejecutiva con fundamento en el estudio previo de la Oficina de Recursos Humanos y el pronunciamiento de la Asesoría Jurídica del PANI.

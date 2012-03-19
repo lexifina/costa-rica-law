@@ -1,1 +1,0 @@
-Articulo 5°—De los recursos del sistema: El Patronato Nacional de de la Infancia ; dotará, en la medida de sus posibilidades, de los recursos materiales y tecnológicos a la Oficina de Recursos Humanos para que se pueda cumplir con los fines del sistema.

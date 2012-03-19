@@ -1,1 +1,0 @@
-Artículo 9°—De las responsabilidades generales: La implantación de las actividades de capacitación y formación será responsabilidad de la Oficina de Recursos Humano, con el apoyo de las jefaturas de las unidades operativas y de la Comisión de Capacitación.

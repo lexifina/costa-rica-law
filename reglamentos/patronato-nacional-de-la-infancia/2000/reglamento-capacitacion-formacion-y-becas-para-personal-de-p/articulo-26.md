@@ -1,1 +1,0 @@
-Articulo 26.—Apelación: El funcionario a quien se le rechace la solicitud de beca, tiene derecho a solicitar revocatoria con apelación en subsidio ante la Presidencia Ejecutiva de conformidad con lo que establece el articulo 346 y siguientes y concordantes de la Ley General de la Administración Pública.

@@ -1,1 +1,0 @@
-Articulo 29.—De la elaboración del contrato: Una vez aprobada la solicitud le corresponderá a la Oficina de Recursos Humanos del PANI confeccionar el contrato el cual será firmado por el trabajador y la Presidencia Ejecutiva.

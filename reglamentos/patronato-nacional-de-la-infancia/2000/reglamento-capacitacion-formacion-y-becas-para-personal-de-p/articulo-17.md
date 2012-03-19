@@ -1,1 +1,0 @@
-Articulo 17.—Nombramiento de representantes: La Junta Directiva , la Presidencia Ejecutiva , los Gerentes y el Jefe de la Oficina de Recursos Humanos nombrarán sus respectivos representantes, propietarios y suplentes.

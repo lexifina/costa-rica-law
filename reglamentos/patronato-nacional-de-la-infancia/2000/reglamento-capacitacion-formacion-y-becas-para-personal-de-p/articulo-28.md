@@ -1,2 +1,0 @@
-Articulo 28.—Del contrato de estudios: Para el otorgamiento de los hendidos que se estipulan en este reglamento, será requisito necesario la elaboración de el contrato de estudios.
-En caso de contratos de estudios con el beneficio de beca total se exigirá garantía real o fiduciaria suficiente. En caso de estudios universitarios se considerará la suma total del costo de la formación y no periodos o materias judiciales.
