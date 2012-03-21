@@ -13,3 +13,4 @@ Disposiciones sobre entrega de vehículos decomisados para descongestionar el De
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-26 | la propia norma |
+| 2 | 2012-03-21 | Circular 45 (2012-03-21) |

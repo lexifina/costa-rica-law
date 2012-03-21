@@ -1,4 +1,5 @@
 CIRCULAR Nº 117-10
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 142-2024 del 28 de junio de 2024.)
 ASUNTO: Disposiciones sobre entrega de vehículos decomisados para descongestionar el Depósito de Vehículos Decomisados de San Pablo de Heredia.
 A LAS AUTORIDADES JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
@@ -40,5 +41,6 @@ c) De conformidad con la Ley de Distribución de Bienes Confiscados o Caídos en
 13) En las resoluciones en que se ordene el archivo fiscal, la desestimación, sobreseimiento provisional y definitivo, procede el comiso de bienes, pues debe interpretarse que ellas también ponen fin al proceso, lo anterior de conformidad con el criterio emitido por la Comisión de Asuntos Penales, en informe Nº CAP 015-07 de 24 de agosto del 2007.
 14) En relación con el punto 10.c), dentro de los diez días hábiles posteriores al vencimiento de los tres meses para solicitar el bien, el personal auxiliar debe confeccionar los oficios para que sean firmados por el Juez o Jueza, a fin de iniciar inmediatamente el trámite de donación, el cual debe hacerse de conocimiento del Departamento de Proveeduría y del Depósito de Vehículos, por los medios supracitados.
 15) En caso de que no existan alteraciones de chasis o número de motor y se haya verificado la legítima identidad de sus propietarios se deben devolver a la mayor brevedad posible los automotores, todo en estricto apego al procedimiento legal correspondiente.
-Esta comunicación integra las disposiciones que este Consejo ha tomado con anterioridad en relación con el tema. Por lo tanto, se dejan sin efecto las circulares Nos. 18-99, 55-00, 90-00, 8-02, 102-06,104-06, 16-08, 60-08, 101-08, 178-08, 25-09, 57-09, 77-09 y 144-09.
+Esta comunicación integra las disposiciones que este Consejo ha tomado con anterioridad en relación con el tema. Por lo tanto, se dejan sin efecto las circulares Nos. 18-99, 55-00, 90-00, 8-02, 102-06,104-06, 16-08, 60-08, 101-08, 178-08, 25-09, 57-09, 77-09(*) y 144-09.
 San José, 26 de agosto del 2010.
+(*)(Nota: Mediante circular N° 45-2012 del 21 de marzo del 2012, se dispuso aclarar que la circular N° 77-09, no se deja sin efecto y el “Reglamento del Depósito de Vehículos Decomisados”, aún se encuentra vigente...)
