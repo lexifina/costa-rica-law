@@ -1,4 +1,3 @@
-Disposiciones transitorias
-Transitorio Único.—Las denuncias e investigaciones preliminares que se encuentren en trámite al momento de la entrada en vigencia de este Reglamento, se les aplicarán las presentes disposiciones en el tanto sean beneficiosas a los personas cuyos actos se investigan.”
-2º—El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-3º—Los anteriores acuerdos dejan sin efecto lo resuelto en el artículo 6º del acta de la sesión 5346-2007, efectuada el 19 de setiembre del 2007.
+Transitorio
+Las investigaciones preliminares en el Banco Central de Costa Rica seguirán siendo responsabilidad del Área de Gestión de Cultura y Clima Laboral ubicada en el Departamento Gestión del Factor Humano, hasta que se contrate la plaza que se trasladó del Departamento Servicios Institucionales al Proceso de Apoyo Jurídico de la Asesoría Jurídica, para que se encargue de las investigaciones preliminares, procesos sancionatorios y procedimientos administrativos.
+(Así adicionado en sesión N° 5538-2012 del 21 de marzo del 2012)
