@@ -1,1 +1,0 @@
-Artículo 21.—El donatario o representante, según corresponda, presentará un informe final detallado de la obra a la Junta, en el plazo de 20 días hábiles, posteriores a la conclusión del proyecto financiado con la donación.
