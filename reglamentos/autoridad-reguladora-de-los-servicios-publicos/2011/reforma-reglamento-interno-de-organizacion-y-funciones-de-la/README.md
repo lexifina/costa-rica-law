@@ -14,3 +14,4 @@ Reforma Reglamento interno de organización y funciones de la Autoridad Regulado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-26 | la propia norma |
+| 2 | 2012-03-21 | Reglamento 22 (2012-03-21) |
