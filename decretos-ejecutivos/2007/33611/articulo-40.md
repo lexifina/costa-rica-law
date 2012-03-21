@@ -1,1 +1,0 @@
-Artículo 40.—La Dirección General determinará en qué casos exigirá el depósito de garantía que establece el artículo 128 de la Ley, para el otorgamiento de visas múltiples. El eventual depósito deberá acreditarse por todo el periodo por el que se otorgue la visa múltiple, y no cada vez que el extranjero beneficiado ingrese al país.

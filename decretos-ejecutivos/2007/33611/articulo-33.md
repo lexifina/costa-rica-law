@@ -1,1 +1,0 @@
-Artículo 33.—Se exceptúa de la presente reglamentación, a los extranjeros que posean pasaporte diplomático, en cuyo caso el ingreso y la permanencia será autorizada por el Ministerio de Relaciones Exteriores y Culto.
