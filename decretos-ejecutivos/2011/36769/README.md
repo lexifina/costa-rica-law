@@ -14,3 +14,4 @@ Reglamento de Control Migratorio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-26 | la propia norma |
+| 2 | 2012-03-21 | Decreto Ejecutivo 37112 (2012-03-21) |
