@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE MONTES DE ORO
+El Concejo Municipal de Montes de Oro, comunica que en la sesión ordinaria N° 03-12, celebrada por esta Corporación Municipal el 16 de enero del 2012, mediante inciso N° 12, artículo N° VI, acordó aprobar de manera definitiva el “Reglamento Municipal para la elección de los miembros del Comité Cantonal de Deportes y Recreación del Cantón de Monte de Oro”; el cual fue publicado por primera vez, como proyecto en el Diario Oficial La Gaceta N° 22 de fecha 31 de enero de 2012.
+Ahora al no haber objeciones ni observaciones, conforme lo establece el artículo N° 43 del Código Municipal, se comunica la aprobación del texto original tal y como fue publicado.
+(Nota de Sinalevi: Tal y como se indica anteriormente el texto corresponde al publicado en La Gaceta N° 22 del 31 de enero de 2012)
+REGLAMENTO MUNICIPAL PARA LA ELECCIÓN DE LOS
+MIEMBROS DEL COMITÉ CANTONAL DE DEPORTES Y
+RECREACIÓN DEL CANTÓN DE MONTES DE ORO
+El Concejo Municipal de Montes de Oro en uso de las facultades que le confieren los incisos A) y C) de los artículos 4 y 13 del Código Municipal, respectivamente; y Considerando: Que el artículo 165 del Código Municipal, Ley N° 7794, establece que el Comité Cantonal de Deportes y Recreación, estará integrado por cinco miembros residentes en el cantón, dos representantes de nombramiento del Concejo Municipal, dos de las organizaciones deportivas y recreativas del cantón y uno de las organizaciones comunales, y que compete a cada Municipalidad reglamentar el procedimiento de elección de los mismos. Por tanto, acuerda: dictar el presente reglamento para regular el procedimiento de elección de los miembros del Comité Cantonal de Deportes y Recreación del Cantón de Montes de Oro, el cual se regirá por las siguientes disposiciones.
+CAPÍTULO I
+De la elección de los representantes de organizaciones
+deportivas, recreativas y comunales
+Artículo 1º—Definición de organizaciones deportivas, recreativas y comunales. Entiéndase por organizaciones deportivas y recreativas a los Comités Comunales de Deportes y además aquellas asociaciones deportivas que se encuentran debidamente inscritas y vigentes ante el Registro de Asociaciones Deportivas del Instituto Costarricense del Deporte, cuya sede y radio de acción sea el cantón de Montes de Oro. Y por organizaciones comunales, las Asociaciones de Desarrollo Integral o Específicas, debidamente inscritas en la Dirección Nacional de Desarrollo de la Comunidad (DINADECO).

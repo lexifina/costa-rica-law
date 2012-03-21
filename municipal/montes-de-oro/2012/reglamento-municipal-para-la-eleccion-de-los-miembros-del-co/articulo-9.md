@@ -1,0 +1,1 @@
+Artículo 9º—Juramentación. La Secretaría Municipal dentro del plazo de ocho días hábiles a partir de la firmeza del acuerdo respectivo, comunicará a las personas nombradas tanto en las asambleas como por el Concejo Municipal, para que se presenten en la sesión municipal, con el fin de que sean habilitados en sus cargos mediante la juramentación respectiva.
