@@ -1,1 +1,1 @@
-Artículo 140.—Se deroga el Reglamento de Especialidades Médicas promulgado según Decreto Ejecutivo N° 10538-SPPS del 27 de setiembre de 1979 y toda disposición legal de igual rango o rango inferior que rija sobre la materia y que le oponga.
+Artículo 140.—(Anulado por improcedente mediante sesión ordinaria N° 2012-03-21 del 21 de marzo del 2012)

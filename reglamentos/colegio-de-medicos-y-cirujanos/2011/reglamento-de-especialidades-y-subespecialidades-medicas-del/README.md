@@ -14,3 +14,4 @@ Reglamento de Especialidades y Subespecialidades Médicas del Colegio de Médico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-10 | la propia norma |
+| 2 | 2012-03-21 | Reglamento 0 (2012-03-21) |

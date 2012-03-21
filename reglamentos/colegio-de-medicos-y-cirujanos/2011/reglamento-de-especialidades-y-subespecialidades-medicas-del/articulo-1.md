@@ -1,4 +1,6 @@
+(Suspendida)
 COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+(El presente reglamento fue suspendido mediante sesión ordinaria N° 2012-03-21 del 21 de marzo del 2012, hasta tanto no se cumpla con su formalización mediante Decreto Ejecutivo)
 COMUNICA
 La Junta de Gobierno en la sesión extraordinaria 2011-11-09, celebrada el 9 de noviembre del año dos mil once, acuerda lo siguiente:
 REGLAMENTO DE ESPECIALIDADES
