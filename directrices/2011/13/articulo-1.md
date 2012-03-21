@@ -17,6 +17,6 @@ Considerando:
 Emiten la siguiente,
 DIRECTRIZ:
 DIRIGIDA AL SECTOR PUBLICO
-Artículo 1º—A partir de la publicación de esta directriz no se crearán plazas en el Sector Público. Se exceptúa de la aplicación de este artículo a las plazas de carácter policial de los diferentes cuerpos cubiertos por el Estatuto Policial. Además, se autoriza a la Autoridad Presupuestaria para que conozca lo relativo a la creación de plazas para el Ministerio de Educación Pública.
-(Así reformado por el artículo 1° de la directriz N° 026-H del 9 de mayo del 2011)
+Artículo 1°.—A partir de la publicación de esta directriz no se crearán plazas en el Sector Público. Se exceptúa de la aplicación de este artículo a las plazas de carácter policial de los diferentes cuerpos cubiertos por el Estatuto Policial; a las que correspondan a proyectos financiados con recursos externos o provenientes de contrapartida. Además, se autoriza a la Autoridad Presupuestaria para que conozca lo relativo a la creación de plazas para el Ministerio de Educación Pública.
+(Así reformado por el artículo 1° de la directriz N° 029-H del 21 de marzo del 2012)
 (Nota de Sinalevi: Mediante el articulo 1° del decreto ejecutivo N° 36752 del 25 de agosto del 2011 se establece lo siguiente : "... Se exceptúa de la aplicación del artículo 1° de la Directriz Nº 013-H, publicada en el Alcance Digital Nº 13 a La Gaceta Nº 45 de 4 de marzo de 2011 y su reforma, a la Autoridad Reguladora de los Servicios Públicos, para que cumpla con lo establecido en la Ley Nº 7593, publicada en La Gaceta Nº 169 de 5 de setiembre de 1996 y sus reformas, concretamente el artículo 53 inciso ñ), para que pueda conocer la solicitud de creación de plazas de la Superintendencia de Telecomunicaciones....")
