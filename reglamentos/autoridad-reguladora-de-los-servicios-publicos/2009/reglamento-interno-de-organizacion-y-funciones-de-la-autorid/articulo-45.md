@@ -1,4 +1,5 @@
-Artículo 45.—Funciones. Son funciones propias de SUENERGÍA las siguientes:
+Artículo 45.—Funciones. Son funciones propias de Intendencia de Energía(*) las siguientes:
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 1. En materia de regulación:
 a. Mantener un diagnóstico actualizado del estado de la situación del mercado de cada producto y servicio energético regulado.
 b. (Derogado mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)

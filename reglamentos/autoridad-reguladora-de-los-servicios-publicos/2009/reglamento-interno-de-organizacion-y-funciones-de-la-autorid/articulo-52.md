@@ -12,7 +12,8 @@ i. Llevar el registro de las asociaciones y otras organizaciones que se dedican 
 2. En materia de atención al usuario:
 a. Evacuar las consultas personales, escritas y telefónicas que se presenten ante la Institución.
 b. Realizar gestiones para solucionar las quejas de manera conciliatoria antes de su investigación preliminar.
-c. Remitir a las superintendencias para la investigación preliminar y posterior resolución las denuncias y las quejas que no llegaran a conciliarse.
+c. Remitir a las superintendencias e Intendencias(*) para la investigación preliminar y posterior resolución las denuncias y las quejas que no llegaran a conciliarse.
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 d. Realizar al interior de la institución las gestiones que se requiera para que se resuelvan las quejas y denuncias que se presenten ante la Autoridad Reguladora de los Servicios Públicos, incluyendo gestiones ante la Dirección General de Estrategia y Evaluación, el Regulador General y la Junta Directiva.
 e. Fungir como parte en los procesos de instrucción formal de quejas y denuncias interpuestas por usuarios.
 f. Realizar actividades con los usuarios para conocer el efecto de las resoluciones de la Autoridad Reguladora en la solución de quejas y denuncias.

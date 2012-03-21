@@ -1,4 +1,5 @@
-Artículo 47.—Funciones. Son funciones propias de SUTRANSPORTE:
+Artículo 47.—Funciones. Son funciones propias de Intendencia de Transporte Público(*):
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 1. En materia de regulación:
 a. Mantener un diagnóstico actualizado del estado de la situación del mercado de cada tipo de transporte regulado, de los puertos, aeropuertos y servicio postales.
 b. Mantener un diagnóstico actualizado del sistema de concesión de obra pública, en la materia de su competencia.

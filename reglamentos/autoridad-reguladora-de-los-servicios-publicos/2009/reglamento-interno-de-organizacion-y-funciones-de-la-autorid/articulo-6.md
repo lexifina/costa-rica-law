@@ -27,7 +27,8 @@ k. Declarar la caducidad de las concesiones o permisos otorgados para la prestac
 a. Resolver los recursos de su competencia en materia administrativa.
 b. Aprobar los contratos de obras y servicios de acuerdo con el ordenamiento vigente.
 c. Conocer en alzada, de las apelaciones que se presenten por resoluciones del Regulador General o el Auditor Interno.
-d. Nombrar y remover a los Superintendentes, a los miembros del Consejo de la SUTEL, al Gerente General, al Auditor Interno y al Secretario de Junta. El nombramiento de los miembros del Consejo de la SUTEL, para ser eficaz, requiere la no objeción de la Asamblea Legislativa.
+d. Nombrar y remover a los Intendentes(*), a los miembros del Consejo de la SUTEL, al Gerente General, al Auditor Interno y al Secretario de Junta. El nombramiento de los miembros del Consejo de la SUTEL, para ser eficaz, requiere la no objeción de la Asamblea Legislativa.
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 4. En otras materias:
 a. Conocer y resolver los asuntos que el Regulador General someta a su consideración.
 b. Instruir a la Gerencia General la ejecución y seguimiento del cumplimiento de sus acuerdos.

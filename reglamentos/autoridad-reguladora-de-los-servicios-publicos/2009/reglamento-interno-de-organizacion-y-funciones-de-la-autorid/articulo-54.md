@@ -6,10 +6,12 @@ c. Sistematizar y difundir los conocimientos más avanzados en el mundo y más r
 d. Diseñar y someter a mejora continua las metodologías tarifarias.
 e. Asesorar y dar asistencia a las diferentes dependencias de la institución sobre aspectos técnicos relativos a la aplicación adecuada de nuevas políticas regulatorias.
 f. Diseñar el plan, programas y actividades de desarrollo de capacidades que satisfagan las necesidades de ARESEP, los sectores regulados y los usuarios de los servicios públicos, en coordinación con las demás dependencias de la institución.
-g. Brindar apoyo a las Superintendencias en la gestión de las relaciones con aquellas instituciones nacionales e internacionales vinculadas con la regulación de su sector respectivo.
+g. Brindar apoyo a las Intendencias(*) en la gestión de las relaciones con aquellas instituciones nacionales e internacionales vinculadas con la regulación de su sector respectivo.
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 h. Recopilar, procesar y divulgar información sobre las ofertas de cooperación técnica internacional con el fin de contar con datos actualizados y apoyar el desarrollo de la gestión en este campo entre todos los entes regulados.
 2. En materia de elaboración y discusión de normativa:
-a. Elaborar los reglamentos que apruebe la Junta Directiva de la ARESEP para la regulación de los servicios públicos, con el apoyo técnico de la Asesoría Jurídica y Regulatoria y de la Superintendencia respectiva.
+a. Elaborar los reglamentos que apruebe la Junta Directiva de la ARESEP para la regulación de los servicios públicos, con el apoyo técnico de la Asesoría Jurídica y Regulatoria y de la Intendencia(*) respectiva.
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 b. Mantener actualizado el acervo de la legislación, la jurisprudencia administrativa y jurisdiccional y todo otro acto emitido por órgano competente, que sea de interés regulatorio o administrativo.
 c. Coordinar con las demás áreas de la Institución en la revisión de proyectos de ley, reglamentos, decretos ejecutivos, normas técnicas u otros instrumentos jurídicos que deban ser emitidos externamente.
 3. En materia de desarrollo de los recursos humanos:

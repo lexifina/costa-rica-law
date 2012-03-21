@@ -1,7 +1,9 @@
 Artículo 49.—Funciones de la Gerencia General.
-a. Ejercer la dirección de las Direcciones Generales de Participación del Usuario, de Asesoría Jurídica y Regulatoria y del Centro de Desarrollo de la Regulación para que su accionar contribuya al desarrollo de la regulación en el mejor interés de los usuarios de los servicios públicos, así como para que cumplan en tiempo con las instrucciones de la Junta Directiva y el Regulador así como con las solicitudes de las Superintendencias.
+a. Ejercer la dirección de las Direcciones Generales de Participación del Usuario, de Asesoría Jurídica y Regulatoria y del Centro de Desarrollo de la Regulación para que su accionar contribuya al desarrollo de la regulación en el mejor interés de los usuarios de los servicios públicos, así como para que cumplan en tiempo con las instrucciones de la Junta Directiva y el Regulador así como con las solicitudes de las Intendencias(*).
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 b. Velar por la calidad y la oportunidad de los servicios al resto de la organización brindados por las Direcciones Generales a su cargo.
-c. Facilitar la coordinación entre las Superintendencias y las Direcciones Generales a su cargo para que éstas brinden sus servicios con la mayor oportunidad y la mayor diligencia.
+c. Facilitar la coordinación entre las Intendencias(*) y las Direcciones Generales a su cargo para que éstas brinden sus servicios con la mayor oportunidad y la mayor diligencia.
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 d. Tomar las medidas necesarias para que se ejecuten los acuerdos tomados por la Junta Directiva.
 e. Dictar instrucciones en materia administrativa de acatamiento obligatorio para toda la institución.
 f. Administrar los recursos de la Institución para establecer la política integral de desarrollo institucional.

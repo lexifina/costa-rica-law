@@ -2,9 +2,11 @@ Artículo 65.—Transitorio II-Se prorroga la vigencia del Comité de Regulació
 Dicho órgano colegiado estará integrado por tres funcionarios titulares y un suplente nombrados por el Regulador General.
 Corresponderá al Comité de Regulación ordenar la apertura de los expedientes tarifarios, fijar las tarifas de los servicios públicos y resolver los recursos administrativos que correspondan.
 Para el cumplimiento de las funciones asignadas en el punto anterior, dicho comité contará con la asesoría permanente de la Dirección de Servicios de Energía, la Dirección de Servicios de Agua y Ambiente y la Dirección de Servicios de Transportes, en cada una de sus áreas.
-Dichas Direcciones asumirán las funciones que el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora y sus órganos desconcentrados asigna a las Superintendencias según corresponda, con excepción de las que la Ley señala que deben ejercer el Regulador General o la Junta Directiva y las encomendadas al Comité de Regulación en este artículo.
+Dichas Direcciones asumirán las funciones que el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora y sus órganos desconcentrados asigna a las Intendencias(*) según corresponda, con excepción de las que la Ley señala que deben ejercer el Regulador General o la Junta Directiva y las encomendadas al Comité de Regulación en este artículo.
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas que venían ejerciendo dichas Direcciones, éstas continuarán realizándolas durante el periodo de vigencia de esta medida transitoria.
-Una vez que entren en funcionamiento las Superintendencias, las respectivas Direcciones pasarán a formar parte de cada Superintendencia, según corresponda.
+Una vez que entren en funcionamiento las Intendencias(*), las respectivas Direcciones pasarán a formar parte de cada Superintendencia, según corresponda.
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 Esta medida transitoria rige a partir del 1° de enero del 2012 y hasta el 30 de junio del 2012.
 (Así adicionado en sesión extraordinaria N° 039-2010 del 4 de octubre de 2010)
 (Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 51 al 56 actual)

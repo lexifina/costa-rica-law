@@ -1,4 +1,5 @@
-Artículo 43.—Funciones. SUAGUA tiene dentro de sus funciones las siguientes:
+Artículo 43.—Funciones. Intendencia de Agua y Saneamiento(*) tiene dentro de sus funciones las siguientes:
+(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 1. En materia de regulación.
 a. Mantener un diagnóstico actualizado del sistema de acueductos, de alcantarillados, riego y avenamiento del país.
 b. Mantener un diagnóstico actualizado del sistema de concesión de obra pública, en la materia de su competencia.
