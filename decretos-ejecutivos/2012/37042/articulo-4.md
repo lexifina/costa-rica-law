@@ -1,0 +1,1 @@
+Artículo 4º—En caso de que las entidades públicas, ministerios y demás órganos requieran adquirir equipo de cómputo y vehículos, procurarán realizar dicha gestión mediante la modalidad de “Leasing operativo” (arrendamiento). Asimismo, para la adquisición de bienes y servicios procurarán hacer uso del mecanismo denominado “Convenio Marco”.

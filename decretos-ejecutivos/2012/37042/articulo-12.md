@@ -1,0 +1,1 @@
+Artículo 12.—A pesar de las excepciones de aplicación estipuladas en el Decreto Ejecutivo No. 35222-H, todos los entes públicos suministrarán la información sobre la deuda pública contratada que la Dirección de Crédito Público les solicite, a efecto de mantener un registro actualizado sobre el endeudamiento público de conformidad con la Ley No. 8131.

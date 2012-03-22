@@ -1,0 +1,6 @@
+CAPÍTULO II
+Del gasto presupuestario máximo
+Artículo 5º—El gasto presupuestario de las entidades públicas, ministerios y demás órganos, para el año 2013 podrá incrementarse hasta un máximo de 4% con respecto al gasto presupuestario máximo autorizado para el 2012, del cual se deducirán los gastos no recurrentes que se le hayan sumado hasta el 30 de abril del 2012, según el artículo 2º del Decreto Ejecutivo No. 36488-H y sus reformas, publicado en el Alcance Digital No. 18 a La Gaceta No. 58 de 23 de marzo de 2011.
+Los montos del gasto presupuestario máximo resultantes, serán comunicados por la Secretaría Técnica de la Autoridad Presupuestaria (STAP) a más tardar el 30 de abril de 2012.
+Para las entidades públicas y los órganos que ingresen al ámbito de la AP y que por primera vez formulen sus presupuestos, el gasto presupuestario máximo se definirá una vez que se cuente con el presupuesto total del siguiente ejercicio económico.
+Para aquellas entidades públicas y órganos que ingresen al ámbito de la AP y que desde años anteriores hayan iniciado sus actividades, el gasto presupuestario máximo se definirá tomando en cuenta el presupuesto definitivo del ejercicio económico del año anterior.

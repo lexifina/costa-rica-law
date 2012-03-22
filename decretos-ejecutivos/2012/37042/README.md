@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 37042
+
+Directrices Generales de Política Presupuestaria para las Entidades Públicas, Ministerios y demás Órganos, según corresponda, cubiertos por el ámbito de la Autoridad Presupuestaria, para el año 2013
+
+- Tipo: Decreto Ejecutivo
+- Número: 37042
+- Fecha: 2012-03-13
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 59 del 2012-03-22, Alcance 35
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=72238&param2=88039&param3=1 (ficha 72238)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2012-03-22 | la propia norma |
