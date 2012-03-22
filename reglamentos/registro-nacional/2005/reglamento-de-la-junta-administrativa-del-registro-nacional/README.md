@@ -14,3 +14,4 @@ Reglamento de la Junta Administrativa del Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-13 | la propia norma |
+| 2 | 2012-03-22 | Reglamento 12 (2012-03-22) |
