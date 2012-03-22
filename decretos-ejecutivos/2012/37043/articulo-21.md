@@ -1,0 +1,1 @@
+Artículo 21.—Los ministerios podrán contar con puestos de confianza subalternos, de conformidad con lo dispuesto en los incisos e) y f) del artículo 4º del Estatuto de Servicio Civil y el Decreto Ejecutivo No. 36181-H, Reglamento de Puestos de Empleados de Confianza Subalternos del Sector Público.

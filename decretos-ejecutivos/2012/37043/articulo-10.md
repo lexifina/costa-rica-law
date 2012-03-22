@@ -1,0 +1,3 @@
+Artículo 10.—Los puestos vacantes no podrán ser ocupados, a menos que la AP apruebe su uso, por considerarlas de insoslayable necesidad para la prestación del servicio público. En los siguientes casos deberán ser eliminados:
+a) Por aplicación del artículo 25 de la Ley No. 6955, Ley para el Equilibrio Financiero del Sector Público y sus reformas.
+b) Por reestructuración organizacional, salvo cuando las vacantes se originen en cambios en el perfil del puesto, producto de un estudio integral, homologaciones o cambios en los manuales vigentes, siempre y cuando se demuestre ante la AP su insoslayable necesidad.

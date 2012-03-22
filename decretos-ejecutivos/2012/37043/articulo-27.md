@@ -1,0 +1,1 @@
+Artículo 27.—Se derogan los artículos 4º y 10 del Decreto Ejecutivo No. 36489-H, denominado Directrices Generales en Materia Salarial, Empleo y Clasificación de Puestos para las Entidades Públicas, Ministerios y Demás Órganos cubiertas por el ámbito de la Autoridad Presupuestaria para el año 2012, publicado en el Alcance Digital No. 18 a La Gaceta No. 58 de 23 de marzo de 2011.
