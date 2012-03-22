@@ -20,3 +20,4 @@ Reglamento Ley Orgánica Agricultura e Industria de la Caña de Azúcar(Para Efe
 | 5 | 2005-11-16 | Decreto Ejecutivo 32807 (2005-11-16) |
 | 6 | 2006-04-24 | Decreto Ejecutivo 33066 (2006-04-24) |
 | 7 | 2006-09-06 | SINALEVI (sin norma nombrada) |
+| 8 | 2012-03-22 | Decreto Ejecutivo 37156 (2012-03-22) |
