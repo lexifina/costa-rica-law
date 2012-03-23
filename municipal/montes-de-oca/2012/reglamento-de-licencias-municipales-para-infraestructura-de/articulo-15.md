@@ -1,0 +1,10 @@
+Artículo 15.—Zonificación. Se permitirá la ubicación de torres y antenas en las zonas comercial y mixta del cantón. Se permitirá también en la zona no urbana de San Rafael de Montes de Oca que no sea zona de protección, pero retiradas al menos 100 metros de las calles de cualquier urbanización o condominio residencial.
+No se permitirá en las siguientes zonas, siendo declarado uso no compatible o no conforme:
+1- En áreas de protección de ríos y nacientes, monumentos públicos, zonas de protección histórico-patrimonial, sitios arqueológicos oficiales, y donde sea expresamente prohibido por la legislación nacional.
+2- En propiedades municipales, y en las vías públicas nacionales o cantonales (calles, aceras, zonas verdes de bulevares y todo aquello que las conformen).
+3- En la Zona Predominantemente Residencial, las Zonas Especiales, Zonas Residenciales Especiales, y las Zonas Residenciales, según lo señalado en el mapa de zonificación del Plan Regulador, o en urbanizaciones y condominios residenciales declarados o reconocidos como tales aunque se encuentren en otra zona. Estas zonas serán cubiertas por antenas periféricas ubicadas en otras zonas.
+Por razones de lejanía de potenciales usuarios, como excepción se autorizará la ubicación de antenas celulares en los lotes adyacentes de las siguientes calles que pasan entre zonas residenciales, guardando los debidos retiros de sitios sensibles:
+– En los lotes adyacentes a la calle que va de la Escuela de Santa Marta hasta el Cristo de Sabanilla.
+– En los lotes adyacentes a la calle que va del Colegio Metodista hasta el Cristo de Sabanilla, y más arriba subiendo por la calle de San Rafael hasta donde termina el cantón.
+– En los lotes adyacentes a la calle que va de la esquina noroeste del parque de Sabanilla hacia el costado norte de las instalaciones deportivas de la UCR.
+En estas zonas residenciales y en la zona no urbana de San Rafael, ninguna antena emisora podrá estar a menos de 30 metros del suelo, aunque la altura establecida por el artículo 11 resulte menor.

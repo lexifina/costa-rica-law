@@ -1,0 +1,1 @@
+Artículo 22.—El propietario de las infraestructuras será responsable de cualquier daño directo o indirecto que ésta o éstas puedan causar a los bienes públicos, privados o a terceros, relevando de cualquier responsabilidad a la Municipalidad.
