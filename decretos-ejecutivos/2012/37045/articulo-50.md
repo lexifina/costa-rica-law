@@ -1,0 +1,1 @@
+Artículo 50º—Peticiones contrarias a derecho. No podrá exigirse la responsabilidad de la Administración ni del funcionario público cuando las solicitudes de autorizaciones, licencias o permisos y cualquier petición que el administrado dirija no sean legítimas o sean contrarias al orden público.

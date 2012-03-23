@@ -1,0 +1,2 @@
+Artículo 37º—Notificaciones. Todas aquellas actuaciones de los órganos y entidades administrativas que sean susceptibles de ser recurridas por el interesado y aquellas que incidan en forma directa en el trámite de su petición de un permiso, licencia o autorización, deberán ser notificadas al administrado.
+En esta materia se aplicarán en lo conducente las disposiciones de la Ley de Notificaciones Judiciales, Ley 8687 del 4 de diciembre de 2008.

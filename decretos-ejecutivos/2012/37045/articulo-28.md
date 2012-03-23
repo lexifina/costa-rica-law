@@ -1,0 +1,1 @@
+Artículo 28º—Presentación de documentos. Los ciudadanos presentarán la información solicitada por la Administración Pública, en formularios oficiales cuando así los haya, y aportarán únicamente los requisitos que estén debidamente publicados en el Diario Oficial y el Catálogo Nacional de Trámites, según las disposiciones del artículo 26 anterior.

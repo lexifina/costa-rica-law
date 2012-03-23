@@ -1,0 +1,2 @@
+Artículo 49º—Procedimiento interno. Para efectos de responsabilidad personal del funcionario público, se aplicará el procedimiento administrativo ordinario dispuesto en la Ley General de la Administración Pública.
+Las instituciones del Estado en las que el régimen disciplinario está regulado por ley o normativa especial, se ajustarán a dicha regulación específica para el trámite del procedimiento y la aplicación de las sanciones correspondientes.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+PUBLICIDAD DE LOS REQUISITOS Y TRÁMITES ADMINISTRATIVOS
+Artículo 26º—Requisitos. Para el trámite de permisos, licencias, autorizaciones y cualquier otra petición dirigida a la Administración Pública, el interesado únicamente deberá presentar la información, documentos y requisitos normativos, económicos y técnicos previamente señalados en las leyes, decretos ejecutivos, reglamentos de que se trate, siendo que deberán estar debidamente publicados en el Diario Oficial La Gaceta, ya sea en su versión física o bien en su versión digital, y debidamente registrados en el Catálogo Nacional de Trámites, de conformidad con la Sección IV del Capítulo II de este reglamento y el inciso 6) del artículo 20 de la Ley 7472.

@@ -1,0 +1,1 @@
+Artículo 21º—Implementación del Catálogo Nacional de Trámites. Los entes y órganos de la Administración Pública deberán tener funcionando su perfil institucional del Catálogo Nacional de Trámites a partir de la vigencia del presente reglamento.

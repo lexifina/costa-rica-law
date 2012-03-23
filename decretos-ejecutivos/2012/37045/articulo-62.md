@@ -1,0 +1,2 @@
+Artículo 62º—Disponibilidad de la información. En los casos en que la Administración Pública cuente con medios tecnológicos que le permitan al ciudadano gestionar consultas en línea, dicha información deberá encontrarse actualizada, y disponible al ciudadano y en el formato establecido en el anexo 1 de este reglamento, a través del sitio web de la respectiva Administración, de modo que se garantice el acceso público, con las salvedades de ley.
+Salvo caso fortuito o fuerza mayor, debe garantizarse la disponibilidad de la información las 24 horas del día.

@@ -1,0 +1,5 @@
+SECCIÓN II
+OFICIAL DE SIMPLIFICACIÓN DE TRÁMITES
+Artículo 14º—Designación del Oficial de Simplificación de Trámites. Todos los jerarcas de la Administración Pública deberán designar un Oficial de Simplificación de Trámites, que actúe como enlace institucional para dirigir y coordinar los esfuerzos de mejora regulatoria y simplificación de trámites a lo interno de cada institución.
+En el caso de la Administración Central se deberá designar como Oficial de Simplificación de Trámites al Viceministro de cada Ministerio, en los casos en que haya más de uno, el jerarca designará a uno de ellos, tomando en consideración aquel que tenga bajo su responsabilidad las áreas que realizan los trámites. En el caso de la Administración Descentralizada se deberán nombrar al gerente, subgerente o Directores Ejecutivos, según corresponda.
+Estos nombramientos se comunicarán al Ministro del MEIC, a efecto de que la Dirección de Mejora Regulatoria de dicho ministerio coordine las acciones encomendadas en este reglamento.

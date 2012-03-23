@@ -1,0 +1,3 @@
+CAPÍTULO II
+SISTEMA DE SIMPLIFICACIÓN DE TRÁMITES Y MEJORA REGULATORIA
+Artículo 9º—Del Sistema de Simplificación de Trámites y Mejora Regulatoria. Para su adecuado funcionamiento, el Sistema de Simplificación de Trámites y de Mejora Regulatoria contará con las siguientes instancias: El Ministerio de Economía, Industria y Comercio (MEIC), órgano rector en materia de simplificación de trámites y mejora regulatoria; los órganos y las entidades contemplados en el artículo 1 de la ley 8220, quienes contarán con un Oficial de Simplificación de Trámites y las Oficinas de Información al Ciudadano. Asimismo, contará con los siguientes instrumentos: el Catálogo Nacional de Trámites y el Plan de Mejora Regulatoria.

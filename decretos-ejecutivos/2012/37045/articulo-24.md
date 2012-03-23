@@ -1,0 +1,1 @@
+Artículo 24º—Administración descentralizada. La Administración descentralizada deberá aprobar o someter a aprobación de sus respectivas Juntas o Consejos Directivos, o al órgano jerárquico que las dirija, los programas de Mejora Regulatoria y Simplificación de Trámites.

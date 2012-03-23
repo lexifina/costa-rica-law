@@ -1,0 +1,1 @@
+Artículo 45º—Silencio positivo. Excepciones. Quedan exceptuados de la aplicación del silencio positivo las solicitudes, permisos y autorizaciones que por disposición constitucional o de ley así lo establezcan.
