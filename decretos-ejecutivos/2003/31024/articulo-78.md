@@ -1,1 +1,2 @@
-Artículo 78.—Ningún Tesorero-Contador designado podrá asumir sus funciones sin dar previamente cumplimiento a lo dispuesto en el artículo anterior.
+Artículo 78.- Ningún Contador o Tesorero contratado, podrá asumir sus funciones sin cumplir con el requisito de rendir garantía a favor de la Hacienda Publica, según lo dispuesto en el artículo anterior, para cuyos efectos debe presentar a la Junta y a la Dirección Regional de Educación respectiva, copia fotostática del documento en referencia.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 37154 del 23 de marzo de 2012)

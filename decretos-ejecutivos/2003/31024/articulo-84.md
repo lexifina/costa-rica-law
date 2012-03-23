@@ -1,1 +1,1 @@
-Artículo 84.—Cuando el mejor servicio lo justifique, el Ministerio de Educación Pública podrá determinar la necesidad de nombrar un Tesorero-Contador para atender las Juntas de Educación de una determinada circunscripción territorial.
+Artículo 84.—(Derogado por el artículo 10 del decreto ejecutivo N° 37154 del 23 de marzo de 2012)

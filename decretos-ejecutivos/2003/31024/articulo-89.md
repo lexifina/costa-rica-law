@@ -12,4 +12,5 @@ g) Vigilar, mediante los Asesores Supervisores, el cumplimiento de los deberes d
 h) Llevar el registro de las cédulas jurídicas de las Juntas y de sus miembros, con indicación del período de nombramiento.
 i) Certificar la condición de Presidente o, en su caso, Vicepresidente de las Juntas para los efectos legales correspondientes.
 j) Informar a la Auditoría Interna y al Departamento de Juntas de la Dirección General Financiera de toda situación irregular que detectare en la administración financiera de las Juntas.
-k) Velar por la vigencia de las pólizas de fidelidad de los tesoreros contadores.
+k) Velar por la vigencia de las pólizas de fidelidad de los contadores.
+(Así reformado el inciso anterior por el artículo 12 del decreto ejecutivo N° 37154 del 23 de marzo de 2012)
