@@ -1,0 +1,1 @@
+Artículo 20.—El encargado de la Caja Chica deberá mantener un control permanente del fondo a su cuidado y efectuará la solicitud de reintegro de gastos, oportunamente con el fin de que se registren en contabilidad el mismo mes.

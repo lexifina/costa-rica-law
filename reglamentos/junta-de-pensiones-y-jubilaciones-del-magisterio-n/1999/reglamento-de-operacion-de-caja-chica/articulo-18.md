@@ -1,0 +1,1 @@
+Artículo 18.—Cualquier sobrante de dinero en la Caja Chica pasará a formar parte de los ingresos de la Junta, y en caso de existir faltantes los mismos deberán ser cubiertos inmediatamente por el encargado del fondo. Como medida de control, es necesario que el custodio evidencie el depósito del sobrante, por medio de un Comprobante de Ingreso emitido por la Tesorería.

@@ -1,0 +1,1 @@
+Artículo 12.—El funcionario que recibe el adelanto de Caja Chica es quien debe presentar la liquidación del mismo, por lo tanto el encargado no liquidará ningún adelanto a funcionarios que no hayan realizado el trámite original.

@@ -1,0 +1,1 @@
+Artículo 19.—El encargado de la Caja Chica que incumpla cualquiera de las disposiciones de este Reglamento se hará acreedor a la suspensión temporal o permanente de las funciones y a las sanciones estipuladas al efecto por el Reglamento Interno de Trabajo vigente de la Junta de Pensiones y las leyes conexas.
