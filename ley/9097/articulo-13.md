@@ -1,0 +1,5 @@
+ARTÍCULO 13.- Sanciones por incumplimiento de pronta respuesta por los funcionarios públicos
+El funcionario público que no responda en el plazo establecido ante una petición pura y simple de un ciudadano, será sancionado con el cinco por ciento (5%) del salario base mensual.
+La denominación salario base corresponde al monto equivalente al salario base mensual del oficinista 1 que aparece en la relación de puestos de la ley de presupuesto ordinario de la República, aprobada en el mes de noviembre anterior.
+Dicho salario base regirá durante todo el año siguiente, aun cuando el salario que se toma en consideración, para la fijación, sea modificado durante ese período. En caso de que llegaran a existir, en la misma ley de presupuesto, diferentes salarios para ese mismo cargo, se tomará el de mayor monto para los efectos de este artículo. La Corte Suprema de Justicia comunicará, por medio de publicación en el diario oficial La Gaceta, las variaciones anuales que se produzcan en el monto del salario referido.
+Dado en la Presidencia de la República, San José, a los veintiséis días del mes de octubre del año dos mil doce.

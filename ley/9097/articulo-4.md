@@ -1,0 +1,6 @@
+ARTÍCULO 4.- Formalidad en el ejercicio del derecho de petición
+a) Las peticiones se formularán por escrito, debiendo incluir, necesariamente, el nombre, la cédula o el documento de identidad, el objeto y el destinatario de la petición. Cada escrito deberá ir firmado por el peticionario o los peticionarios.
+En cuanto a otros requisitos o procedimientos no establecidos en esta normativa y desarrollados reglamentariamente, o mediante órdenes, instrucciones o circulares, prevalecerá en toda petición el principio de informalidad, con el fin de garantizar a todos los ciudadanos su libre ejercicio.
+b) En el caso de peticiones colectivas, además de cumplir los requisitos anteriores, serán firmadas por todos los peticionarios, debiendo figurar, junto a la firma de cada uno de ellos, su nombre y apellidos. De no constar todas las firmas, la petición se tendrá por presentada únicamente por las personas firmantes, sin perjuicio de su posterior subsanación o ampliación.
+c) El peticionario podrá indicar del ejercicio de su derecho a otra institución u órgano diferente del cual ha dirigido la petición, remitiéndole copia del escrito.
+d) Traducción o resumen en español, si la petición se presenta en cualquier lengua extranjera, conforme a la ley N.º 7623, Ley de Defensa del Idioma Español y Lenguas Aborígenes Costarricenses, y sus reformas.

@@ -1,0 +1,3 @@
+ARTÍCULO 2.- Destinatarios
+El derecho de petición podrá ejercerse ante cualquier institución, administración pública o autoridad pública, tanto del sector centralizado como descentralizado del Estado, así como aquellos entes públicos, con personalidad jurídica y capacidad de derecho público y privado, respecto de las materias de su competencia, cualquiera que sea el ámbito institucional, territorial o funcional de esta.
+Procederá, además, el derecho de petición ante sujetos de derecho privado cuando estos ejerciten alguna actividad de interés público, administren y/o manejen fondos públicos o ejerzan alguna potestad pública de forma temporal o permanente.
