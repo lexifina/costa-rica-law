@@ -14,3 +14,4 @@ Normas técnicas básicas que Regulan el Sistema de Administración Financiera d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-22 | la propia norma |
+| 2 | 2012-03-26 | Resolución 24 (2012-03-26) |
