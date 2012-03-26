@@ -1,2 +1,0 @@
-11.—Verificaciones a cargo de las Auditorías internas. Con base en las atribuciones establecidas en la Ley General de Control Interno, las unidades de Auditoria Interna incluirán en sus planes de trabajo las verificaciones sobre el cumplimiento de las diferentes actividades relacionadas con la fase de formulación presupuestaria ejecutadas por parte de la Administración.
-Lo anterior sin perjuicio de las solicitudes que sobre el particular realice la Contraloría General de la República.
