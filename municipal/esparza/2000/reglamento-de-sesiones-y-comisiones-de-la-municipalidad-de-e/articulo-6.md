@@ -1,1 +1,0 @@
-Artículo 6°—La potestad de nombrar las comisiones permanentes y especiales del Concejo, así como su disolución será del presidente municipal, dichas comisiones podrán ser propuestas al presidente por los regidores propietarios en ejercicio.

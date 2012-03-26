@@ -1,1 +1,0 @@
-Artículo 8°—La potestad de conceder y quitar el uso de la palabra será del presidente del Concejo, el cual podrá dar el uso de la palabra a cualquier miembro del Concejo Municipal por un lapso de tres minutos, por una sola vez y hasta más cuando sea necesario.

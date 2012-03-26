@@ -1,1 +1,0 @@
-Articulo 10.—El Concejo Municipal podrá otorgar audiencias a toda persona física o jurídica que así lo solicite por escrito, haciendo constar en su solicitud el o los puntos que se desea tratar con el Concejo, sin que se pueda variar durante la audiencia, teniendo un tiempo prudencial de 15 minutos para hacer la exposición.

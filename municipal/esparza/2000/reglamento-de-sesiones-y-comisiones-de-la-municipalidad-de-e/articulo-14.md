@@ -1,2 +1,0 @@
-Articulo 14.—A todos los miembros del Concejo que vivan a distancias superiores a los seis kilómetros del Palacio Municipal, la municipalidad les reconocerá el costo de transporte de regreso a sus hogares por cada sesión ordinaria o extraordinaria a que asistan de conformidad con el artículo Nº 30 del Código Municipal y con la tarifa establecida para el servicio remunerado de personas "taxis", por parte del Ministerio de Obras Públicas y Transportes.
-(Así reformado por Acuerdo de la Sesión Nº 53 de 8 de mayo de 2000)
