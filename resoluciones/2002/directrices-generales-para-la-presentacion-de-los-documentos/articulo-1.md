@@ -58,14 +58,8 @@ V. EJECUCIÓN DEL PLAN-PRESUPUESTO Y LIQUIDACIÓN PRESUPUESTARIA.
 a) Realizarse de acuerdo con los objetivos y metas del plan y las normas legales y contractuales vigentes que rigen el fideicomiso.
 b) Ajustarse a las asignaciones presupuestarias aprobadas.
 c) Llevar registros adecuados y oportunos que reflejen claramente las transacciones que se realizan en el fideicomiso.
-5.2 Presentación de informes ante la Contraloría General. Se deberá presentar ante la Contraloría General de la República un informe sobre los resultados obtenidos en el plan y el presupuesto en el primero y segundo semestre del año, así como una liquidación presupuestaria al 31 de diciembre de cada período. Lo anterior sin perjuicio de que internamente se emitan informes con mayor regularidad, para efectos del control y la evaluación que deben ejercer el fideicomitente y el fiduciario.
-5.3 Aspectos que deben tener presente en la presentación de informes a la Contraloría General. Para la presentación de informes a la Contraloría General, deberán observar las directrices que se enlistan a continuación:
-a) El informe correspondiente al primer semestre, se presentará 15 días hábiles posteriores a la conclusión del semestre.
-b) El informe del segundo semestre y la liquidación presupuestaria deberán presentarse a más tardar el 16 de febrero del período siguiente.
-c) Para la presentación de la información financiera se utilizará el formato que se incluye en el anexo Nº 5.
-d) En la evaluación del plan deben incorporarse los objetivos y metas previstos y los resultados obtenidos en cada caso, con los comentarios que se estimen pertinentes.
-e) Deberá remitirse únicamente un ejemplar de esos documentos, con una carta de presentación suscrita por el funcionario responsable de la institución fideicomitente.
-f) Se debe adjuntar constancia de que el documento correspondiente fue conocido por el órgano que sea legal y contractualmente competente para tal efecto.
+5.2 (Derogado este punto mediante resolución R-DC-24-2012 del 26 de marzo del 2012 "Normas Técnicas sobre Presupuesto Público (N-1-2012-DC-DFOE/)")
+5.3 (Derogado este punto mediante resolución R-DC-24-2012 del 26 de marzo del 2012 "Normas Técnicas sobre Presupuesto Público (N-1-2012-DC-DFOE/)")
 VI. CONSIDERACION FINAL.
 6.1 Prohibición de ejecutar gastos sin contenido presupuestario. No se podrán ejecutar gastos que no cuenten previamente con el contenido presupuestario autorizado por la Contraloría General de la República, de conformidad con el artículo 180 de la Constitución Política y los artículos Nº 5 y 14 de la Ley Nº 8131.
 ANEXO Nº 3
