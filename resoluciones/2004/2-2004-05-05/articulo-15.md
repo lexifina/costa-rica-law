@@ -1,1 +1,0 @@
-15.—Obligatoriedad de estos Lineamientos. Estos Lineamientos son de carácter vinculante para los bancos públicos, sin perjuicio de lo que establezca otros entes y órganos en el ámbito de su competencia.
