@@ -14,3 +14,4 @@ Reglamento sobre variaciones al presupuesto de los sujetos privados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-05 | la propia norma |
+| 2 | 2012-03-26 | Resolución 24 (2012-03-26) |

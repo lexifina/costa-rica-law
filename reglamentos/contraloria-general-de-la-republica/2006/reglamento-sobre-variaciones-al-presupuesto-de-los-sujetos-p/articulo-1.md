@@ -12,10 +12,9 @@ Considerando:
 9º—Que con fundamento en lo antes expuesto es necesario actualizar el marco normativo que ha venido regulando las variaciones al presupuesto aprobado a fin de establecer los requisitos, procedimientos y condiciones que regirán dichos ajustes, de conformidad con el modelo de gestión pública que el actual entorno exige. Por tanto,
 RESUELVE:
 Emitir el siguiente,
-REGLAMENTO SOBRE VARIACIONES AL PRESUPUESTO
-DE LOS ENTES Y ÓRGANOS PÚBLICOS, MUNICIPALIDADES
-Y ENTIDADES DE CARÁCTER MUNICIPAL, FIDEICOMISOS
-Y SUJETOS PRIVADOS
+(*)REGLAMENTO SOBRE VARIACIONES AL PRESUPUESTO
+DE LOS SUJETOS PRIVADOS
+(*)(Modificada su denominación por el punto V de las Normas Técnicas sobre Presupuesto Público (N-1-2012-DC-DFOE/), aprobadas mediante resolución R-DC-24 del 26 de marzo de 2012)
 R-1-2006-CO-DFOE
 Artículo 1º—Definiciones. Para los efectos de este Reglamento se entiende por:
 Autoridad superior administrativa: Presidente Ejecutivo, Gerente General, Alcalde o funcionario administrativo de mayor rango dentro de la institución u organización, según corresponda.
