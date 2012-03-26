@@ -1,1 +1,0 @@
-14.—Potestades de fiscalización de la Contraloría General. La Contraloría General de la República, con base en sus facultades constitucionales y legales, realizará las fiscalizaciones que estime necesarias en materia de formulación presupuestaria para lo cual la Administración deberá tener disponible toda la información y documentación pertinente.

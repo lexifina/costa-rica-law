@@ -1,1 +1,0 @@
-12.—Cumplimiento de Lineamientos y normativa. El jerarca y los titulares subordinados deberán establecer los mecanismos que aseguren el adecuado cumplimiento de lo señalado en estos Lineamientos, y en la restante normativa emitida al efecto.

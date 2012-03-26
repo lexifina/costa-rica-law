@@ -1,2 +1,0 @@
-10.—Desarrollo de sistemas de información. La Administración
-activa deberá diseñar, implantar y mantener sistemas de información que le permitan, accesar, identificar y registrar información confiable, relevante, pertinente y oportuna, que responda a la estrategia de la institución y se oriente a la consecución de los objetivos de corto, mediano y largo plazo, de modo que fomente la transparencia en la gestión y se facilite la rendición de cuentas.
