@@ -1,1 +1,0 @@
-Artículo 26.—Cuando la Comisión lo estime conveniente, podrá invitar a las sesiones a los funcionarios que considere pertinente para ampliar o aclarar aspectos de cualquier asunto que se conozca. Estos funcionarios participarán con voz pero sin voto.

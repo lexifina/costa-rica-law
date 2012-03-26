@@ -1,2 +1,0 @@
-Artículo 27.—De cada una de las reuniones que celebre la Comisión, se levantará un acta detallando los asuntos conocidos y su resolución. Los acuerdos quedarán en firme en la reunión en que se toman sí así lo disponen al menos tres de sus miembros. En caso contrario quedarán en firme en la siguiente reunión la cual deberá llevarse a cabo en las siguientes dos semanas; como máximo, después de celebrada la reunión anterior.
-El acta de la Comisión una vez aprobada; se hará del conocimiento del Comité Ejecutivo y por medio de éste a la Junta Directiva General.
