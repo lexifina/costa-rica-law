@@ -14,12 +14,9 @@ Considerando:
 10.—Que con fundamento en lo antes expuesto es necesario establecer un marco normativo básico para fortalecer en las Administraciones activas la responsabilidad por su gestión y una mayor transparencia en el proceso de evaluación y rendición de cuentas. Por tanto,
 RESUELVE:
 Emitir los siguientes:
-LINEAMIENTOS GENERALES SOBRE EL NIVEL DE
-APROBACIÓN DEL PRESUPUESTO DE LOS ENTES Y
-ÓRGANOS PÚBLICOS, MUNICIPALIDADES Y
-ENTIDADES DE CARÁCTER MUNICIPAL,
-FIDEICOMISOS Y SUJETOS PRIVADOS
-L-1-2005-CO-DFOE
+(*)LINEAMIENTOS GENERALES SOBRE EL NIVEL DE
+APROBACIÓN DE LOS SUJETOS PRIVADOS
+(*)(Modificada su denominación por el punto V de las Normas Técnicas sobre Presupuesto Público (N-1-2012-DC-DFOE/), aprobadas mediante resolución R-DC-24 del 26 de marzo de 2012)
 1) Definiciones: Aprobación presupuestaria externa: Para los efectos de estos Lineamientos se entiende por: Proceso a cargo de la Contraloría General de la República, por medio del cual conoce, verifica y se pronuncia mediante acto razonado sobre el cumplimiento de las disposiciones legales y técnicas aplicables al presupuesto formulado y aprobado por los sujetos pasivos para el cumplimiento de sus objetivos y metas, otorgándole validez y eficacia jurídica, permitiendo su ejecución para el período respectivo.
 Aprobación presupuestaria interna: Etapa del proceso presupuestario en la cual el jerarca superior u órgano con la competencia necesaria, conoce, verifica y se pronuncia mediante acto razonado sobre el cumplimiento de las disposiciones legales y técnicas aplicables al presupuesto inicial y sus variaciones, formulados en función de los objetivos y metas institucionales.
 Clasificador de ingresos: Es un instrumento normativo que ordena y agrupa los recursos con que cuentan las entidades, en categorías homogéneas definidas en función de la naturaleza y características de las transacciones que dan origen a cada una de las fuentes de recursos.

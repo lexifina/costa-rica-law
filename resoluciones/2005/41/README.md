@@ -14,3 +14,4 @@ Lineamientos Generales sobre el Nivel de Aprobación del Presupuesto de los Suje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-31 | la propia norma |
+| 2 | 2012-03-26 | Resolución 24 (2012-03-26) |

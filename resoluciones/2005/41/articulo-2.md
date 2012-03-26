@@ -1,2 +1,2 @@
-2) Ámbito de aplicación: Los presentes Lineamientos serán aplicables a los entes y órganos públicos, municipalidades y otras entidades de carácter municipal fideicomisos y sujetos privados cuyos presupuestos deben presentarse para la aprobación de la Contraloría General de la República.
-Los órganos, unidades ejecutoras, fondos, programas y cuentas que están exentos de esa presentación, de conformidad con lo señalado en el párrafo tercero del artículo 18 de la Ley Orgánica de la Contraloría General de la República, Nº 7428, y el Reglamento respectivo, deberán atender lo concerniente a la aprobación presupuestaria interna.
+Ámbito de aplicación. Los presentes Lineamientos serán aplicables a sujetos privados cuyos presupuestos deben presentarse para la aprobación de la Contraloría General de la República.
+(Así reformado por el punto V de las Normas Técnicas sobre Presupuesto Público (N-1-2012-DC-DFOE/), aprobadas mediante resolución R-DC-24 del 26 de marzo de 2012)
