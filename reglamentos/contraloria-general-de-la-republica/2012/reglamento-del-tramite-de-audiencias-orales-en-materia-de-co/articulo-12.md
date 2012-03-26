@@ -1,0 +1,2 @@
+Artículo 12.—Dictado de la resolución final oral. Concluida la audiencia, el órgano instructor deliberará inmediatamente y procederá a dictar el acto final. En casos complejos la resolución podrá emitirse en un momento posterior, debiendo indicar el órgano instructor el lugar, hora y fecha en que se realizará.
+En todos los casos, la resolución deberá ser motivada, observándose plazo fijado en el artículo 172 del Reglamento a la Ley de Contratación Administrativa.

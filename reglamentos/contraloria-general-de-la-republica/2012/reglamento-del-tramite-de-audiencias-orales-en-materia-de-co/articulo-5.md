@@ -1,0 +1,1 @@
+Artículo 5º—Abstención, excusa y recusación. Los motivos de abstención, excusa y recusación para los funcionarios de la Contraloría General que realizan la audiencia oral serán los establecidos en el “Reglamento de Abstenciones para los Funcionarios de la Contraloría General de la República”.

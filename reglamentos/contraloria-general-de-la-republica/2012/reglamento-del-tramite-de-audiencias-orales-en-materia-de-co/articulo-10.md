@@ -1,0 +1,5 @@
+SECCIÓN II
+Audiencias orales en recursos de objeción
+Artículo 10.—Convocatoria. Una vez respondida la audiencia especial, la Contraloría General podrá realizar una audiencia oral y pública para discutir los asuntos expuestos en el recurso y en la respuesta brindada por la entidad licitante al atender la audiencia especial. Esta audiencia deberá ser convocada con al menos dos días hábiles de anticipación contados a partir del día en que se realiza la notificación y el día en que se realiza la audiencia oral.
+También, en el auto mediante el cual se concede la audiencia especial a la Administración, podrá convocarse a la audiencia oral, la cual deberá ser realizada con posterioridad al plazo conferido a la entidad licitante para que dé respuesta al recurso de objeción.
+En ambos casos se advertirá que una vez finalizada la audiencia podrá dictarse la resolución final de manera oral, teniéndose por notificada a las partes asistente en el acto de su emisión, y que en caso de inasistencia sólo se notificará la parte dispositiva de la resolución, observándose lo contemplado en el artículo 14 de este Reglamento.

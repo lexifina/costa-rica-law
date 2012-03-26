@@ -1,0 +1,3 @@
+Artículo 18.—Dictado de la resolución final oral en la audiencia plena de exposición de alegatos, evacuación de pruebas y conclusiones. Concluida la audiencia, el órgano decisor colegiado deliberará inmediatamente y procederá a dictar el acto final. En la deliberación podrá participar el abogado instructor del caso, el cual participará con voz pero sin voto.
+En casos complejos la resolución podrá emitirse con posterioridad al día de la celebración de la audiencia, debiendo indicar el órgano instructor el lugar, hora y fecha en que se realizará.
+En todos los casos, la resolución deberá ser motivada, observándose plazo fijado en el artículo 183 del Reglamento a la Ley de Contratación Administrativa.

@@ -1,0 +1,2 @@
+Artículo 20.—Notificación de la resolución final oral. La resolución final oral se tendrá por notificada a las partes, en el momento mismo que se dicte, sin que sea necesaria comunicación posterior alguna.
+A la parte que no haya asistido a la audiencia se le notificará en el lugar señalado al efecto, únicamente el “Por Tanto” de la resolución, debiendo indicarse además el medio donde se puede accesar a la totalidad de la misma.

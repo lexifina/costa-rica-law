@@ -1,0 +1,1 @@
+Artículo 4º—Representación de las partes. Las partes que participen en la audiencia oral deberán identificarse por medio de su cédula de identidad y demostrar, cuando así proceda, la representación o habilitación de la parte interesada para actuar en la audiencia.
