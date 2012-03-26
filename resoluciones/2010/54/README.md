@@ -14,3 +14,4 @@ Directrices generales a los sujetos pasivos de la Contraloría General de la Rep
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-07 | la propia norma |
+| 2 | 2012-03-26 | Resolución 24 (2012-03-26) |
