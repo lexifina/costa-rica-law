@@ -1,0 +1,1 @@
+Artículo 14.—Confidencialidad de la Información: El Área Social deberá garantizar el resguardo de la confidencialidad de los datos del hogar de las personas solicitantes y beneficiarias, así como la integridad de los documentos derivados del proceso.

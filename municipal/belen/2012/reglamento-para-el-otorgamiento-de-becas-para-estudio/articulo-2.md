@@ -1,0 +1,1 @@
+Artículo 2º—Fines: El otorgamiento de las becas municipales tiene como finalidad apoyar los procesos formales de educación formal pública de las personas habitantes del cantón, especialmente a aquellos que se encuentran en desventaja social; para evitar la deserción, el rezago, el bajo rendimiento y aprovechar el potencial humano de los mismos.

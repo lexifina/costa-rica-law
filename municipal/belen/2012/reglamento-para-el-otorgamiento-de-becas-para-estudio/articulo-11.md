@@ -1,0 +1,2 @@
+IV. Sobre las impugnaciones
+Artículo 11.—Presentación de Apelación: Toda persona solicitante tiene derecho a impugnar la decisión del rechazo de la beca. Para ello debe referir su caso por escrito y firmado por la persona solicitante o su responsable ante el Área Social, donde se analizará la apelación y se presentará para su conocimiento ante la Comisión permanente de Asuntos Sociales y los Concejos de distrito.
