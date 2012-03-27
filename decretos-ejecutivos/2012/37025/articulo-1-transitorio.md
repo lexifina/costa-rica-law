@@ -1,0 +1,1 @@
+Transitorio I.—Los establecimientos que se encuentren dentro de las competencias del SENASA, con base en el presente Decreto, pero que al día de hoy cuenten con el Permiso Sanitario de Funcionamiento vigente, mantendrán su validez hasta su vencimiento, no obstante la renovación de la autorización debe ser tramitada ante la correspondiente sede del SENASA.

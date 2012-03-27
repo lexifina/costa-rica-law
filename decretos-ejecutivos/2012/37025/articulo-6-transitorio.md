@@ -1,0 +1,1 @@
+Transitorio VI.—Dentro del plazo de 6 meses contados a partir de la entrada en vigencia de este reglamento, la Comisión de Coordinación Interinstitucional aquí creada, deberá establecer los protocolos uniformes de inspección a los que se hace referencia en el párrafo tercero del artículo 10.

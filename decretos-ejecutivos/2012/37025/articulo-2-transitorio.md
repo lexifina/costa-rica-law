@@ -1,0 +1,1 @@
+Transitorio II.—Los establecimientos cuya actividad productiva sea en adelante, con base en el presente Decreto, tutelada por el Ministerio de Salud a través del Permiso de Funcionamiento, y que a la fecha cuenten con CVO, al momento de su actualización del registro anual deberán acudir al Ministerio de Salud a solicitar la renovación del Permiso Sanitario correspondiente.

@@ -1,0 +1,1 @@
+Transitorio V.—La Comisión de Coordinación Interinstitucional creada en el presente reglamento deberá establecer los mecanismos de coordinación que permitan la aplicación de las disposiciones transitorias anteriormente establecidas.
