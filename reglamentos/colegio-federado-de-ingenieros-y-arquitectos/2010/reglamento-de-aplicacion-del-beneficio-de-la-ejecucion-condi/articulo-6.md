@@ -1,1 +1,0 @@
-Artículo 6º—El miembro tendrá el derecho de renunciar al beneficio de la ejecución condicional de la sanción, debiendo así comunicarlo por escrito a la Dirección Ejecutiva. Dicha renuncia deberá ser remitida al Departamento de Registro para la anotación y aplicación de la sanción impuesta por la Junta Directiva General.
