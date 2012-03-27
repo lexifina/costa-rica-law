@@ -1,8 +1,12 @@
-Artículo 4. Se establecen las siguientes restricciones específicas:
-a) Se podrá construir un máximo de 26.450 (veintiséis mil cuatrocientos cincuenta) habitaciones en total (que incluye hotel, vivienda en condominio y vivienda unifamiliar), sin superar 20 (veinte) habitaciones promedio por hectárea;
-b) Deberá mantenerse un coeficiente de ocupación de superficie no mayor al 30%;
-c) Los cables eléctricos y telefónicos serán subterráneos;
-d) La iluminación externa irá a poca altura y será lo menos intensa posible;
-e) La altura de los edificios no será mayor de tres pisos (14 metros del nivel del terreno natural),
-f) Será prohibido instalar tanques sépticos y tirar desechos al mar; todo proyecto deberá conectar sus aguas residuales a una planta de tratamiento y
-g) Las restricciones fundadas en razones arqueológicas y cualquier otra derivada del ordenamiento vigente.
+Artículo 4°-El ICT, bajo la coordinación de la Oficina Ejecutora, impulsará la ejecución de forma prioritaria de los proyectos de acción institucional debidamente incluidos en planificación estratégica requeridos en las siguientes áreas:
+a) Desarrollo de los proyectos actuales, proyectos futuros y metas en el sistema de circulación vial (aceras, ciclo vía, mantenimiento, ubicaciones de éstas, nuevas vías, calificación de la red vial, etc.).
+b) Fomento de proyectos que impulsen el desarrollo del Polo Turístico respecto de los sistemas que faciliten el desarrollo hídrico, eléctrico y en telecomunicaciones.
+c) Fomento de proyectos que solucionen la construcción de plantas de tratamiento que garanticen la pureza y la recirculación de aguas negras y residuales para su aprovechamiento en riego.
+d) Impulso de Convenios Interinstitucionales con el objetivo de unir esfuerzos, recursos y conocimiento de carácter técnico a la solución pronta y eficaz a las necesidades que se presenten en el Polo Turístico y su área de influencia.
+e) Desarrollo y colaboración en proyectos que mantengan incorporado al Polo Turístico en la Red Nacional de Electricidad, con su capacidad actual y proyectada para garantizar el abastecimiento suficiente para las necesidades futuras previstas.
+f) Impulso de desarrollos que permitan la optimización en el uso de transmisión de datos, conexión al sistema nacional de telecomunicaciones con el fin de mejorar la cobertura celular en la zona, caminos aledaños y zonas residenciales.
+g) Fomentar el desarrollo del Pueblo Turístico de Papagayo que potencie las tradiciones y cultura costarricenses, creando espacios para que los turistas puedan apreciarlas como uno de los valores agregados de su viaje. Su concepto de diseño deberá realzar la Costa Rica de tradiciones que se quiere dar a conocer, que preserven nuestras costumbres y que incentiven la educación sobre nuestra identidad nacional.
+h) Promover un programa de evaluación y control de calidad de los atractivos turísticos que incluya el agua de mar, el agua de consumo humano, basura y desechos, degradación y erosión del frente costero.
+i) Propiciar la participación de los concesionarios en proceso de formación y capacitación de sus colaboradores, por medio del establecimiento de un proceso de coordinación con el Ministerio de Educación y con el Instituto Nacional de Aprendizaje (INA),
+j) Coordinación con las municipalidades correspondientes la dotación de infraestructura, manejo, transporte, acopio y reciclado de desechos, así como con los actores que corresponda la prestación de otros servicios básicos.
+(Así reformado mediante sesión N° 5740 del 27 de marzo del 2012)
