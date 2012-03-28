@@ -1,4 +1,6 @@
+(Derogado)
 Nº 28418-MAG
+(Este decreto fue derogado por el artículo 1° del decreto ejecutivo N° 37167 del 28 de marzo de 2012)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERIA
 Con fundamento en el artículo 140, incisos 3) y 18) de la Constitución Política y los artículos 29, 30, 31, 32 y 33 de la ley Nº 7064 del 29 de abril de 1987.

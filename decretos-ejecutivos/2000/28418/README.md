@@ -14,3 +14,4 @@ Crea las Gerencias Sectoriales Regionales como Enlace entre el Ministro de Agric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-04 | la propia norma |
+| 2 | 2012-03-28 | Decreto Ejecutivo 370167 (2012-03-28) |
