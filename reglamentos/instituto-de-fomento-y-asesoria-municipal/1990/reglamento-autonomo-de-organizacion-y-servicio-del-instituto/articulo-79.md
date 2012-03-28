@@ -1,1 +1,1 @@
-Artículo 79. —Se calificará porcentualmente, con base en una escala de valores cuantitativa del I al 100%. La calificación menor al 70% suspenderá de oficio el aumento de ese año por mérito. Dos o más calificaciones consecutivas de esta naturaleza, se reputarán como falta grave al contrato de trabajo y el servidor se hará acreedor a la sanción correspondiente.
+Artículo 79. —(Derogado por acuerdo segundo de la sesión N° 4120 del 28 de marzo de 2012)

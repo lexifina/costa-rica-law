@@ -1,2 +1,1 @@
-Artículo 78. —Los formularios de calificación de mérito, una vez terminados los procedimientos indicados en los artículos precedentes serán remitidos a la Sección de Personal.
-Terminado e) proceso de calificación, la Sección de Personal distribuirá las copias de los formularios, debiendo enviar una de ellas y garantizando que la reciba personalmente el trabajador calificado.
+Artículo 78. —(Derogado por acuerdo segundo de la sesión N° 4120 del 28 de marzo de 2012)

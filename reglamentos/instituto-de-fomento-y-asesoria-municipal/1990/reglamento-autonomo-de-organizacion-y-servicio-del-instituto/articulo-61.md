@@ -2,6 +2,5 @@ Artículo 61.-Los empleados protegidos por este régimen están amparados por la
 a- Ningún empleado una vez que se le asigne el salario base de la categoría correspondiente devengara un sueldo superior a este, salvo que se le recarguen funciones de otros puestos con salario de categoría base superior, en aquellas situaciones expresamente reguladas por este Reglamento.
 b- Se establecen las siguientes escalas de salarios:
 - Escala de sueldos para aumentos por antigüedad: por cada año de servicio se otorgará a cada servidor una remuneración adicional que compensará su antigüedad en la Institución, que consistirá en un 2% del salario base de la categoría a la cual se encuentra asignado.
-c) Según el mérito demostrado por los funcionarios mediante el sistema de evaluación o calificación de méritos, se otorgarán los siguientes pasos horizontales fijados en la escala de salarios para aumentos por el mérito, a saber, de la Categoría N° 1 a la N° 26 se le otorgará un incentivo del 3% del salario base, y de la Categoría No 27 en adelante, será del 2% del salario base.
-(Así reformado el inciso anterior mediante sesión N° 2357 del 3 de enero de 1994).
-Para regular lo concerniente a la calificación o evaluación de servicios la administración del Instituto procederá actualizar y liará del conocimiento de los trabajadores un instructivo de calificación de servicios donde se establecerán lodos los aspectos de esta materia, tomando en cuenta las disposiciones señaladas en el capítulo nueve de este Reglamento.
+c) (Derogado por acuerdo segundo de la sesión N° 4120 del 28 de marzo de 2012).
+(El parrafo final original fue derogado por acuerdo segundo de la sesión N° 4120 del 28 de marzo de 2012).
