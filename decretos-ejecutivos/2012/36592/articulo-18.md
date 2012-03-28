@@ -1,0 +1,1 @@
+Artículo 18.—Suspensión de la tramitación de un caso. La Contraloría de Servicios suspenderá la instrucción de una investigación cuando el mismo hecho sea conocido por otra instancia administrativa competente para resolver.

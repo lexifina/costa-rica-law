@@ -1,0 +1,1 @@
+Artículo 12.—Declaración. Cualquier entrevista necesaria para la instrucción de una queja, denuncia o sugerencia, tal como la recepción de prueba, debe realizarse con especial consideración a las necesidades e integridad de las personas involucradas y siempre en atención al principio del debido proceso constitucional.

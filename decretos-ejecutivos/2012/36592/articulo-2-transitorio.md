@@ -1,0 +1,1 @@
+II.—Con fundamento en el artículo 22 del Decreto Ejecutivo N° 34587-PLAN, publicado en La Gaceta N° 127 del 02 de julio del 2008 “La Creación, Organización y Funcionamiento del Sistema Nacional de Contraloría de Servicios” se remitirá una copia de este Reglamento a la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios (SISTEMA).

@@ -1,0 +1,1 @@
+Artículo 14.—Informes y recomendaciones. Los informes y recomendaciones que emita la Contraloría de Servicios deberán ser remitidos a la Dirección Nacional, la que estará facultada para tomar las acciones que en éstos se evidencien como necesarias para el mejoramiento del servicio.

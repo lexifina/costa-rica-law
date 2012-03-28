@@ -1,0 +1,1 @@
+Artículo 7º—Obligación de elaborar un plan de trabajo y rendir informes. La Contraloría de Servicios deberá elaborar un plan anual de trabajo, que será revisado periódicamente y aprobado por la Dirección Nacional de Desarrollo de la Comunidad. Asimismo, deberá remitir ante esa Dirección un informe anual de labores para su evaluación.

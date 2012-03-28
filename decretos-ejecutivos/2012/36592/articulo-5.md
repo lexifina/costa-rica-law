@@ -1,0 +1,1 @@
+Artículo 5º—Objetivo. Contribuir para que la prestación del servicio público funcione eficientemente, permitiendo y facilitando la comunicación entre los usuarios y la institución, generando a partir de esta relación la información necesaria para la corrección de inconformidades y mejora en los servicios públicos brindados.
