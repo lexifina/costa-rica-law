@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32806
+(Este decreto fue derogado por el artículo 1° del decreto ejecutivo N° 37166 del 28 de marzo de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
 En el uso de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política; los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7907 del 3 de setiembre de 1999, Protocolo Adicional a la Convención Americana de Derechos Humanos, la Ley Nº 7473 del 20 de diciembre de 1994, Ley de Ejecución de los Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales, la Ley Nº 5412 del 8 de noviembre de 1973, Ley Orgánica del Ministerio de Salud, la Ley Nº 5395 del 30 de octubre de 1973, Ley General de Salud y la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería.

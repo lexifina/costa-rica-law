@@ -14,3 +14,4 @@ Crea el Consejo Técnico Interinstitucional de Seguridad Alimentaria y Nutricion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-14 | la propia norma |
+| 2 | 2012-03-28 | Decreto Ejecutivo 37166 (2012-03-28) |
