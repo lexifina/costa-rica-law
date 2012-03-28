@@ -1,2 +1,2 @@
-Artículo 21.—Estructura de vencimientos. Las emisiones que se efectúen como parte del Tramo Largo Plazo(*) serán programadas por la División de Gestión de Activos y Pasivos de tal forma que anualmente venza no más del 20% del saldo total de pasivos vigente al principio de cada año. Esta estructura meta debe cumplirse en cualquier momento, aunque se admitirán desviaciones hasta de un 2%.
-(*)(Modificada su denominación en sesión 5495 de 13 de abril del 2011)
+Artículo 21. Estructura de vencimientos. Las emisiones que se efectúen como parte del Tramo de Deuda serán programadas por la División Gestión de Activos y Pasivos de tal forma que anualmente venza no más del 20% del saldo total del Tramo vigente al principio de cada año. Esta estructura meta debe cumplirse en cualquier momento, aunque se admitirán desviaciones hasta de +/-5%.
+(Así reformado mediante sesión N° 5539-2012 del 28 de marzo del 2012)
