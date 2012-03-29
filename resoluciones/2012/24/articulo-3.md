@@ -1,0 +1,1 @@
+III.—El incumplimiento de las presentes normas técnicas por parte de los funcionarios involucrados podrá implicar la aplicación de los regímenes de responsabilidad establecidos en el ordenamiento jurídico. // --------

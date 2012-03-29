@@ -1,0 +1,1 @@
+II.— Las presentes “Normas técnicas sobre presupuesto público” son de carácter vinculante para las instituciones señaladas en su ámbito de aplicación y prevalecerán sobre cualquier disposición que se le oponga. // -----------

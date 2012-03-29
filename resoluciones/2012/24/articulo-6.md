@@ -1,0 +1,1 @@
+VI.— Este Órgano Contralor deberá mantener disponible y actualizado un detalle de la normativa vigente y no vigente en materia presupuestaria para las instituciones, en la página electrónica www.cgr.go.cr de la CGR. //

@@ -1,0 +1,1 @@
+VII. —La vigencia de las regulaciones contenidas en esta resolución rige a partir de la fase de formulación del presupuesto inicial correspondiente al ejercicio económico del 2013, con excepción de lo estipulado en la norma “4.3.11 Cantidad de variaciones presupuestarias y monto máximo a variar por modificación presupuestaria” la cual entra en vigencia a partir de su publicación.
