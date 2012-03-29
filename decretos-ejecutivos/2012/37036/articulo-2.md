@@ -1,0 +1,3 @@
+Artículo 2.- Se adiciona un párrafo segundo al artículo 24 del Reglamento General del Consejo Nacional de Enseñanza Superior Universitaria Privada, Decreto Ejecutivo número 29631-MEP, el cual se leerá de la siguiente forma:
+“Artículo 24.- Las solicitudes conducentes a la modificación de carreras y planes de estudios previamente autorizados por el CONESUP, serán procedentes si responden al cumplimiento de por lo menos, una generación de graduados o a una adecuada justificación.
+Se excluirán de las condiciones anteriores, aquellas carreras que como resultado de la implementación de un plan de mejoramiento de su calidad, hayan sido oficialmente acreditadas por el Sistema Nacional de Acreditación de la Educación Superior (SINAES).”

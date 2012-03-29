@@ -1,0 +1,3 @@
+Artículo 3.- Se adiciona un párrafo segundo al artículo 25 del Reglamento General del Consejo Nacional de Enseñanza Superior Universitaria Privada, Decreto Ejecutivo número 29631-MEP. El texto se leerá de la siguiente forma:
+“Artículo 25.- La matrícula de estudiantes y la ejecución de una modificación de carrera solamente podrá realizarse y tener vigencia real a partir de la fecha en la que quede firme el acuerdo del CONESUP que la autorice.
+Se excluirán de lo anterior, aquellas carreras que como resultado de la implementación de un plan de mejoramiento de su calidad, hayan sido oficialmente acreditadas por el Sistema Nacional de Acreditación de la Educación Superior (SINAES)”
