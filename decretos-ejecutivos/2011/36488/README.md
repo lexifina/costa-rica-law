@@ -19,3 +19,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 4 | 2012-03-13 | Decreto Ejecutivo 37042 (2012-03-13) |
 | 5 | 2012-03-19 | Decreto Ejecutivo 37059 (2012-03-19) |
 | 6 | 2012-03-19 | Decreto Ejecutivo 37066 (2012-03-19) |
+| 7 | 2012-03-29 | Decreto Ejecutivo 37093 (2012-03-29) |
