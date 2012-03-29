@@ -1,0 +1,1 @@
+Artículo 10º—Las solicitudes tanto en lo que respecta a la UCP como a lo interno de las UTEs deberán ser atendidas de acuerdo con los planes de trabajo preestablecidos, en caso de falta de disponibilidad de vehículos el (la) Director (a) Ejecutivo (a) de la UCP decidirá el curso de acción.

@@ -1,0 +1,1 @@
+Artículo 4º—La asignación de los vehículos para uso administrativo es un medio para facilitar los servicios que presta la UCP o las UTEs, según corresponda, y en ningún caso puede ser considerada como un beneficio adicional para las personas que prestan sus servicios a dicha Unidad Coordinadora o a las UTEs.

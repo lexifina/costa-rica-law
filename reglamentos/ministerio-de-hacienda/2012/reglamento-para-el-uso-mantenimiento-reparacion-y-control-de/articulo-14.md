@@ -1,0 +1,7 @@
+Artículo 14º—Son obligaciones de las personas usuarias del servicio de transporte:
+14.1. Comportarse en estricta conformidad con las normas de la moral y las buenas costumbres.
+14.2. Coadyuvar para que la persona conductora o las personas que viajen bajo su responsabilidad no incurran en paradas que sean innecesarias o fuera de la ruta programada.
+14.3. No fumar dentro del vehículo, ni viajar en el vehículo cuando esté bajo los efectos del licor o cualquier otra droga.
+14.4. Reportar en forma inmediata al Coordinador Administrativo Financiero de la UCP o a la persona responsable de brindar la aprobación de la gira por parte de la UTE, según corresponda, cualquier irregularidad que observe en el uso del vehículo.
+14.5. Portar durante las giras el carné que le identifique como funcionario de la UCP o funcionario de la institución a la cual pertenece la UTE, según corresponda. En el caso de consultora o consultor que preste sus servicios para el Proyecto, portar la identificación que así lo acredite emitida por la UCP o la UTE (según corresponda), o bien, el permiso correspondiente emitido por la UCP o la UTE (según corresponda) en caso de tratarse de funcionarios de otras Instituciones, que, en razón de sus competencias y relación con el Proyecto, deban acompañar a los funcionarios de la UCP o de la UTE a las respectivas giras.
+14.6. Utilizar los servicios de transporte sólo en labores propias de su relación contractual.

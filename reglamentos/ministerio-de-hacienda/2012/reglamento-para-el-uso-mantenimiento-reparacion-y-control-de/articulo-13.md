@@ -1,0 +1,10 @@
+Artículo 13º—Además de las contempladas en las Leyes y Reglamentos que regulan la materia, son prohibiciones absolutas de las personas conductoras de los vehículos propiedad de la UCP, las siguientes:
+13.1. Ceder el uso del vehículo a otra persona para que lo conduzca, salvo en casos de fuerza mayor.
+13.2. Utilizar los vehículos de uso oficial en actividades personales o ajenas a las labores de la UCP o de la UTE, según corresponda, o fuera del horario y ruta que fue consignada en la tarjeta de circulación, salvo caso fortuito o fuerza mayor.
+13.3. Fumar, tomar licor o utilizar cualquier otra droga que disminuya su capacidad física o mental durante el servicio y conducir bajo los efectos de éstas.
+13.4. Ocupar o permitir el uso del vehículo en actividades ajenas a la UCP o a la UTE, según corresponda, así como transportar personas no autorizadas, salvo en aquellos casos en que la índole de las funciones, el objetivo de la gira o la emergencia así lo justifiquen. En todo caso, se deberá contar con aprobación previa de la persona encargada de la gira, o en su defecto con la aprobación previa del Coordinador Administrativo y Financiero de la UCP. En el caso de las UTEs que hayan suscrito Convenios de Cooperación Interinstitucional, deberán contar con la aprobación previa de la persona encargada de la gira, o en su defecto por el responsable que en su caso delegue la UTE para aprobar las giras respectivas.
+13.5. Utilizar placas y demás distintivos en los vehículos que no sean los indicados en este Reglamento.
+13.6. Utilizar rótulos o membretes que no sean los oficialmente autorizados.
+13.7. Utilizar los vehículos en actividades personales, para fines político-electorales o ajenos a las labores de la UCP o de la UTE, según corresponda, o fuera del horario y lugares para los que fue autorizada la salida.
+13.8. Utilizar indebidamente: el combustible, lubricantes, herramientas, repuestos asignados al vehículo, las placas y demás distintivos en vehículos que no sean los indicados en este Reglamento.
+13.9. Incumplir el horario de operación al que debe sujetarse el vehículo.
