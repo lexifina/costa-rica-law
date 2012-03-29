@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Administración de los recursos conforme al principio de caja única del Estado
+Los recursos provenientes del contrato de préstamo serán administrados por la Tesorería Nacional, en cumplimiento con el principio de caja única. El prestatario acreditará los recursos a favor de la UEP conforme a las disposiciones del contrato de préstamo, para la realización de las actividades del proyecto aprobado por esta ley; al efecto, la UEP deberá atender la normativa establecida para el uso eficiente de los recursos.

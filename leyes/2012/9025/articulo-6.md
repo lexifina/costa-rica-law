@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Procedimientos de contratación administrativa
+Exceptúanse de la aplicación de los procedimientos de contratación administrativa regulados por la legislación ordinaria, las adquisiciones de bienes, obras y servicios que se financien con recursos del préstamo, así como los de las contrapartidas. Esas adquisiciones serán efectuadas mediante los procedimientos establecidos en el contrato de préstamo.
