@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Objetivo del Programa para la Prevención Social y Promoción de la Inclusión Social
+El programa tiene como objetivo general contribuir en la disminución del delito violento en el país y, como objetivos específicos, incrementar la eficacia de la fuerza policial a nivel nacional, reducir la incidencia delictiva de los jóvenes en riesgo en las áreas de influencia del proyecto y reducir la tasa de reincidencia de la población en conflicto con la ley penal.
