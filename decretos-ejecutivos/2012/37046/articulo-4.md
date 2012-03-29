@@ -1,0 +1,1 @@
+Artículo 4.- Promover este género literario como un producto de expresión sociocultural, y restablecer el diálogo del lenguaje poético como un medio eficaz de expresión, conjuntamente con otras manifestaciones artísticas, por medio de la promoción y producción de la creación poética en sus diversas manifestaciones como la tradición oral, los recitales y la expresión escrita.

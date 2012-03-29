@@ -1,0 +1,1 @@
+Artículo 3.- Fomentar la poesía y la enseñanza poética como componentes de interés cultural nacional, por su impacto socializador y estructurador del intelecto, que promueve en las personas jóvenes, adultas y adultas mayores la criticidad, la creatividad, la sensibilidad y la reflexión.
