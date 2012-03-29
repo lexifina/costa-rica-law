@@ -22,3 +22,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 7 | 2012-03-29 | Decreto Ejecutivo 37093 (2012-03-29) |
 | 8 | 2012-03-29 | Decreto Ejecutivo 37094 (2012-03-29) |
 | 9 | 2012-03-29 | Decreto Ejecutivo 37097 (2012-03-29) |
+| 10 | 2012-03-29 | Decreto Ejecutivo 37106 (2012-03-29) |
