@@ -14,3 +14,4 @@ Aprueba Plan de Ordenamiento Pesquero para el establecimiento del Área Marina d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-20 | la propia norma |
+| 2 | 2012-03-29 | Acuerdo 154 (2012-03-29) |
