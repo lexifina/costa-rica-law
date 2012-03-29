@@ -15,3 +15,4 @@ Permite la importación de embarcaciones para las actividades de Pesca Comercial
 | --- | --- | --- |
 | 1 | 2007-04-13 | la propia norma |
 | 2 | 2009-04-16 | Acuerdo 136 (2009-04-17) |
+| 3 | 2012-03-29 | Acuerdo 155 (2012-03-29) |

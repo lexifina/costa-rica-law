@@ -9,5 +9,5 @@ Considerando:
 SE ACUERDA:
 1º—Se permitirá la importación de embarcaciones para las actividades de pesca comercial con palangre y pesca de camarón, con el fin de sustituir embarcaciones que cuenten con permisos o licencias de pesca vigentes cuyas artes de pesca sea palangre o de arrastre, según corresponda, en el tanto se cumpla con las disposiciones legales aplicables en la materia bajo las siguientes condiciones:
 a. No se permitirá importar embarcaciones de pesca construidas de madera de cualquier tamaño que sean.
-b. Permitir la importación y sustitución de embarcaciones de cualquier otro tipo de material distinto a la madera, para la pesca con palangre si la misma tiene tina medida no superior a los 24 metros de eslora total lineal entendiéndose esta como la medida que se hace desde la popa hasta la proa en línea recta en su medida superior (sobre cubierta).
-c. Permitir la importación y sustitución de embarcaciones de cualquier otro tipo de material distinto a la madera, para la pesca de camarón si la misma tiene una medida no superior a los 24 metros de eslora total lineal, entendiéndose esta como la medida que se hace desde la popa hasta la proa en línea recta en su medida superior (sobre cubierta) y cuyos motores no tengan potencia superior a los 298 KW de fuerza.
+b. (Derogado mediante acuerdo A.J.D.I.P/155-2012 del 29 de marzo del 2012)
+c. (Derogado mediante acuerdo A.J.D.I.P/155-2012 del 29 de marzo del 2012)
