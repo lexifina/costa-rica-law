@@ -1,0 +1,2 @@
+Artículo 3º—En la conformación y renovación de estructuras partidarias deberá respetarse el principio de paridad de género, lo que implica que las asambleas partidarias y demás órganos pares se integrarán con un 50% de mujeres y 50% de hombres. En las asambleas u órganos que tengan una conformación impar, la diferencia entre el total de hombres y mujeres no podrá ser superior a uno.
+Dicha paridad deberá garantizarse tanto en los miembros propietarios como en los suplentes del órgano.

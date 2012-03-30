@@ -1,0 +1,2 @@
+Artículo 16.—El Departamento de Registro de Partidos Políticos conocerá las solicitudes de fiscalización, verificará el cumplimiento de los requisitos establecidos en este reglamento, aprobará la fiscalización solicitada y designará al funcionario que fungirá como delegado en dicha asamblea.
+Si la solicitud contiene defectos u omisiones se prevendrá al partido político para que, en el plazo de veinticuatro horas contadas a partir de la comunicación respectiva, proceda a corregir o aclarar la gestión.

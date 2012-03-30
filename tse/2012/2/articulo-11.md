@@ -1,0 +1,2 @@
+Artículo 11.—La solicitud de los partidos políticos para que se fiscalicen sus asambleas deberá presentarse ante el Departamento de Registro de Partidos Políticos o en las Oficinas Regionales del Tribunal Supremo de Elecciones, con al menos cinco días hábiles de antelación a la fecha de su celebración. Dichas solicitudes serán suscritas por cualquiera de los miembros del comité ejecutivo superior de la agrupación política.
+Las solicitudes presentadas fuera de ese plazo se tendrán por extemporáneas y se rechazarán de plano.

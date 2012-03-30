@@ -1,0 +1,1 @@
+Artículo 7º—En los casos en que se designe a una persona que no se encuentre presente, dicho acto será válido en el tanto conste por escrito su consentimiento o lo ratifique el designado ante del Departamento de Registro de Partidos Políticos dentro de los tres días hábiles siguientes a la celebración de la asamblea.

@@ -1,0 +1,1 @@
+Artículo 6º—La asamblea superior de los partidos políticos será la encargada de designar a los miembros del comité ejecutivo superior, del tribunal de ética y disciplina y su respectiva instancia de alzada, del tribunal de elecciones internas y al fiscal general, así como a sus respectivos suplentes.

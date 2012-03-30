@@ -1,0 +1,2 @@
+Artículo 19.—El partido político deberá levantar un acta de todas las asambleas partidarias que celebre, en la que se harán constar todos los aspectos discutidos, así como el detalle de los acuerdos adoptados. Esas actas serán asentadas en los libros a que hace referencia el artículo 57 del Código Electoral.
+Cuando se trate de los actos señalados en el numeral 56 del mismo Código, debe presentarse certificación del acta correspondiente ante el Departamento de Registro de Partidos Políticos, para su acreditación.
