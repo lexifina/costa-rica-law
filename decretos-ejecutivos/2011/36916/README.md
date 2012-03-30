@@ -14,3 +14,4 @@ Organización general y bases operativas de la Red Nacional de Cuido y Desarroll
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-20 | la propia norma |
+| 2 | 2012-03-30 | Decreto Ejecutivo 37206 (2012-03-30) |
