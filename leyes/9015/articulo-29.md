@@ -1,0 +1,2 @@
+ARTÍCULO 29.- Patentes temporales con o sin venta de licor
+La Municipalidad, en ocasiones muy calificadas, otorgará patentes de carácter temporal para fiestas cívicas, patronales, turnos, ferias o cualquier otra, siempre y cuando estas actividades estén autorizadas por ley y recomendadas por el concejo de distrito; para ello, se tramitarán las solicitudes únicamente de grupos comunales, asociaciones de desarrollo, consejos pastorales o cualquier otra entidad o grupo, siempre y cuando prive un interés comunal.

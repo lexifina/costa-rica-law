@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Licencia de propiedad intelectual
+Las actividades lucrativas consistentes en la venta de licencias fundamentado en propiedad intelectual pagarán el impuesto establecido en el artículo 1 de esta ley, de conformidad con los parámetros de las empresas que distribuyen los productos en el cantón, aunque se encuentren domiciliadas en otro cantón. Toda venta por Internet o cualquier otro mecanismo similar estarán sujetos al pago del impuesto de patente municipal respectivo; los mecanismos de cobro se desarrollarán mediante el reglamento de esta ley.

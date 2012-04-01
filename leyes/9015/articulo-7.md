@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Pago de la patente
+El impuesto de patente se pondrá al cobro de manera trimestral y deberá cancelarse durante los meses de enero, abril, julio y octubre de cada año. En caso de que no se cumpla con la cancelación de dicho impuesto en los meses indicados, la Municipalidad de Puriscal estará obligada a cobrar un interés en los mismos términos que indica el artículo 57 del Código de Normas y Procedimientos Tributarios.

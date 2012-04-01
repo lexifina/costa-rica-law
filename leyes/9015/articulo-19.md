@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Información complementaria
+La Dirección General de Tributación del Ministerio de Hacienda deberá brindar a la Municipalidad de Puriscal, en su condición de administración tributaria, la información con respecto a las ventas brutas o ingresos brutos que fueron declarados por los contribuyentes del impuesto sobre la renta, siempre y cuando estos sean patentados del cantón de Puriscal; para ello, la municipalidad deberá brindar un listado con el número de licencia, el nombre del sujeto pasivo y su número de cédula.

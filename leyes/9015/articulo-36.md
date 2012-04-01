@@ -1,0 +1,2 @@
+ARTÍCULO 36.- Resoluciones por cierre temporal o definitivo del establecimiento comercial
+Las resoluciones de la Municipalidad que ordenen el cierre temporal o definitivo del establecimiento comercial por incumplimiento o quebrantamiento de las leyes o de las buenas costumbres, la moral o las disposiciones reglamentarias tendrán los recursos de revocatoria y apelación que se tramitarán conforme a lo dispuesto en los artículos 161 y 162 del Código Municipal.

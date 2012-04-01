@@ -1,0 +1,6 @@
+CAPÍTULO II
+TARIFA DEL IMPUESTO
+ARTÍCULO 12.- Tarifa del impuesto
+A toda actividad económica con fines de lucro que haya sido previamente autorizada por la Municipalidad de Puriscal se le impondrá un impuesto de patente de tres colones (¢3.00) por cada mil colones (¢1000) de la renta bruta anual. Quedan a salvo las actividades exentas por disposición de ley. Esta suma dividida entre cuatro determinará el impuesto trimestral por pagar.
+En el caso de las gasolineras, al estar regulada la venta de combustible por un sistema de margen de utilidad o ganancia establecido por el Estado, se le aplicará el cero punto cero cinco por ciento (0.05%) sobre la renta neta gravable obtenida. Adicionalmente, a las actividades que no sean la venta de combustible, en la misma unidad económica funcional, se les aplicará un impuesto del tres por mil colones (3x¢1000) a los ingresos brutos obtenidos durante el período fiscal declarado por las otras actividades económicas.
+En todo caso, el monto mínimo a pagar por patente comercial se establece en la suma de veinte mil colones anuales (¢20000), monto que aumentará anualmente en el mismo porcentaje en que aumente el salario base establecido en el artículo 2 de la Ley N.º 7337, de 5 de mayo de 1993. -
