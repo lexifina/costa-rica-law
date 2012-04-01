@@ -1,0 +1,2 @@
+ARTÍCULO 13.- Presentación de informe
+El Ministerio de Seguridad Pública presentará de forma semestral ante la Comisión Permanente Especial para el Control del Ingreso y del Gasto Públicos de la Asamblea Legislativa, un informe con el detalle de los gastos y las inversiones realizadas con los recursos provenientes de este impuesto. Asimismo, presentará una proyección de los gastos y las inversiones a realizar en el semestre siguiente.

@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Exención
+Exonérase del pago de este tributo a los contribuyentes que se encuentren realizando actividades productivas de carácter permanente, clasificadas como micro y pequeñas empresas e inscritas como tales en el registro que al efecto lleva el Ministerio de Economia, Industria y Comercio (MEIC), y que estén debidamente registradas como contribuyentes ante la Dirección General de Tributación, del Ministerio de Hacienda, al momento de producirse el hecho generador del tributo.
