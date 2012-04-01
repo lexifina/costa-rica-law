@@ -1,0 +1,2 @@
+ARTÍCULO 31.- Ventas ambulantes
+Solo en casos muy excepcionales, la Municipalidad de Puriscal otorgará patente para la venta ambulante de productos y pagarán por patente municipal el monto mínimo establecido en el inciso c) del 12 de esta ley, con un incremento del diez por ciento (10%) anual. Estas licencias se regularán mediante reglamento de acuerdo con el crecimiento de la población del cantón.

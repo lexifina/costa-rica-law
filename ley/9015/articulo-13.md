@@ -1,0 +1,2 @@
+ARTÍCULO 13.- Descuento por pago adelantado
+La Municipalidad de Puriscal podrá otorgar descuentos por el pago adelantado anual del impuesto de patente, siempre que sea cancelado durante el mes de enero de cada año gravado; este debe ser hasta en un porcentaje equivalente o menor a la tasa básica pasiva del Banco Central en el mes del pago. Para el caso de los patentados cuyo período fiscal está autorizado del 1º de enero al 31 de diciembre, se les podrá aplicar el descuento autorizado en el mes de abril.

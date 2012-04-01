@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Concepto de actividad económica
+Entiéndese como actividad económica la que se ejerce con fines de lucro, con carácter empresarial, profesional, artístico, por cuenta propia o a través de medios de producción y de recursos humanos, o de uno o de ambos, con el fin de intervenir en la producción o distribución de bienes o servicios, ya sea de manera permanente u ocasional, ambulante o estacionaria y las que utilicen el espectro radioeléctrico.

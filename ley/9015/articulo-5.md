@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Renuncia de la licencia comercial
+El impuesto de patente se pagará durante todo el tiempo en que se haya ejercido la actividad lucrativa o por el tiempo en que se haya poseído la licencia, aunque la actividad no se haya realizado. El patentado presentará a la Municipalidad de Puriscal la renuncia de la licencia, cuando desee finalizar su actividad lucrativa. Se considerará una renuncia tácita de la licencia el hecho de que el administrado no pague dos trimestres consecutivos el monto de la patente otorgada y no ejerza la actividad lucrativa.

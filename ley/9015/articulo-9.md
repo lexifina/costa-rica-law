@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Trámite de licencia comercial
+Para realizar todo trámite de licencias como solicitudes, traspasos, traslados, cambios o ampliación de actividades y otro será obligatorio que tanto el solicitante como el dueño o los dueños del inmueble, donde se ejecutará o desarrollará la actividad, se encuentren totalmente al día en el pago de cualquier tributo municipal del que sean sujetos pasivos, así como cumplir con los requisitos establecidos en el reglamento de licencias municipales que al efecto dictará la Municipalidad de Puriscal.
