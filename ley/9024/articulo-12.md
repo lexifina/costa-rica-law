@@ -1,0 +1,2 @@
+ARTÍCULO 12.- Infracciones y sanciones por dolo o negligencia
+Sin perjuicio de las responsabilidades civiles o penales a que haya lugar, se sancionará con una multa de diez a quince veces su remuneración total mensual y con la destitución del cargo en el caso de aplicarse la multa mayor al funcionario o a los funcionarios o servidores públicos que por dolo o negligencia no hayan cumplido las obligaciones que a cada uno corresponda en esta ley.
