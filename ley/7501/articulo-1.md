@@ -1,3 +1,5 @@
+(Derogado)
+(La presente ley fue derogada por el artículo 40 de la ley N° 9028 del 22 de marzo del 2012 "Ley General de Control del Tabaco y sus efectos nocivos en la salud")
 REGULACION DEL FUMADO
 ARTICULO 1.- Función del Estado.
 El Estado debe velar por la salud individual y colectiva de los
