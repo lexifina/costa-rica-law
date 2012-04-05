@@ -1,0 +1,27 @@
+ARTÍCULO 4.- Definiciones
+Para los propósitos de la presente ley, los términos que se indican a continuación deberán entenderse de la siguiente manera:
+a) Espacio libre de humo de tabaco: área que por razones de orden público está prohibido consumir o mantener encendido productos de tabaco.
+b) Centros de trabajo: lugar que utilizan uno o más trabajadoras o trabajadores que sean empleados (as) o voluntarios (as) durante el trabajo. Se incluyen todos los lugares conexos o anexos y vehículos que los trabajadores utilizan en el desempeño de su labor. Se exceptúan las casas destinadas, exclusivamente, a la habitación familiar.
+c) Comercio ilícito: toda práctica o conducta prohibida por la ley, relativa a la producción, el envío, la recepción, la posesión, la distribución, la venta o la compra, incluida toda práctica o conducta destinada a facilitar esa actividad.
+d) Empaquetado: está constituido por lo siguiente:
+1.- Empaque primario o cajetilla: todo recipiente que tiene contacto directo con el producto de tabaco, con el fin de protegerlo contra su deterioro, contaminación o adulteración y facilitar su manipulación.
+2.- Empaque secundario o cartón: todo recipiente que contenga dos o más empaques primarios con el objeto de protegerlos y facilitar su comercialización hasta llegar al consumidor final. El empaque secundario es usualmente utilizado para agrupar en una sola unidad de expendio varios empaques primarios.
+e) Etiquetado: se entiende por etiquetado o rotulado el conjunto de inscripciones, leyendas, marcas y disposiciones que se imprimen en cualquier envase primario o secundario que contenga cigarrillos o algún derivado de productos del tabaco.
+f) Lugar cerrado: espacio cubierto por un techo y cerrado por dos o más paredes o laterales, independientemente de la clase de material que se utilice o de que la estructura sea permanente o temporal.
+g) Lugar público: lugar al que tiene acceso el público en general o lugares de uso colectivo, independientemente de quién sea el propietario o de quién posea el derecho de ingreso.
+h) Humo de tabaco: emisión que se desprende del extremo ardiente de un cigarrillo o de otros productos de tabaco, generalmente en combinación con el humo exhalado.
+i) Mensaje sanitario: advertencias dirigidas al consumidor y al público sobre los riesgos y daños a la salud que produce el consumo de productos del tabaco y la exposición al humo de los productos de tabaco. Pueden consistir en pictogramas, imágenes, leyendas y similares.
+j) Industria tabacalera: abarca a los fabricantes, distribuidores mayoristas e importadores de productos de tabaco.
+k) Productos de tabaco: abarca los productos preparados totalmente o en parte utilizando como materia prima hojas de tabaco y destinados a ser fumados, chupados, mascados o utilizados como rapé.
+l) Publicidad y promoción del tabaco: se entiende toda forma de comunicación, recomendación o acción comercial con el fin, el efecto o el posible efecto de promover, directa o indirectamente, un producto de tabaco o el uso de tabaco.
+m) Patrocinio del tabaco: se entiende toda forma de contribución a cualquier acto, actividad o individuo con el fin, el efecto o el posible efecto de promover, directa o indirectamente, un producto de tabaco o el uso de tabaco.
+n) Promoción del tabaco: todo estímulo de la demanda de productos de tabaco, que puede incluir publicidad y cualquier acto destinado a atraer la atención y suscitar el interés de los consumidores y no consumidores de productos de tabaco o sus derivados.
+ñ) Elemento de marca: la marca de fábrica, la marca registrada, el nombre comercial, el aspecto distintivo, el logotipo, el arreglo gráfico, el diseño, el eslogan, el símbolo, el lema, el mensaje de venta, el color o la combinación de colores reconocibles u otros indicios de la identificación de productos idénticos o similares a los identificables con aquellos, utilizados para cualquier marca de producto del tabaco.
+o) Tabaco: planta de la especie Nicotiana tabacum que puede provocar adicción si sus hojas son consumidas sea en su forma natural o si son modificadas industrialmente.
+p) Productos relacionados al consumo: artículos que tienen una relación directa con el acto o los rituales del fumado, tales como encendedores, fósforos, ceniceros, estuches para cigarrillos y similares.
+q) Vendedores de productos de tabaco: personas físicas o jurídicas que se dedican a cualquier actividad comercial, con el fin de vender al por mayor o al detalle productos de tabaco, sus derivados y productos relacionados con su consumo.
+r) Punto de venta: se entiende para los efectos de esta ley como la caja de registro o similar del establecimiento comercial.
+s) Salario base: para lo dispuesto en esta ley, se entiende por “salario base” el concepto usado en el artículo 2 de la Ley N.º 7337, de 5 de mayo de 1993.
+t) Distribuidor: toda persona física o jurídica, nacional o extranjera, entidad de hecho o derecho, privada o pública que en nombre propio o de un tercero, por cuenta propia o ajena, se dedica en forma habitual a distribuir o comercializar, al por mayor o al detalle, un producto de tabaco.
+u) Fabricante: toda persona física o jurídica que se dedique a la fabricación de productos de tabaco.
+v) Paradas de servicios de transporte público: espacios en la vía pública que estén autorizados por el Consejo de Transporte Público del Ministerio de Obras Públicas y Transportes (MOPT) para el ingreso y la salida de los usuarios a las unidades que realizan diferentes servicios de transporte público.

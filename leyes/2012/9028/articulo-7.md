@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Programas de cesación
+Todo patrono procurará otorgar el permiso correspondiente para que las personas trabajadoras con diagnóstico de adicción al tabaco o sus derivados asistan a programas oficiales del Instituto sobre Alcoholismo y Farmacodependencia (IAFA), la Caja Costarricense de Seguro Social (CCSS) o cualquier programa debidamente acreditado ante el Ministerio de Salud, dedicados a la atención terapéutica que les permita hacer abandono de su adicción, presentando los comprobantes respectivos de asistencia.

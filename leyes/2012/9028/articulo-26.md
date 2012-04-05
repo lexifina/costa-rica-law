@@ -1,0 +1,2 @@
+ARTÍCULO 26.- Aplicación del impuesto
+Este impuesto no incidirá en la determinación actual de los impuestos que pesan sobre los cigarrillos, establecidos antes de la vigencia de esta ley, es decir, el impuesto específico no formará parte de la base imponible de los impuestos vigentes. Por esta razón, al precio de venta sugerido al consumidor final, que lleva incluido el impuesto específico, deberá deducírsele este para efectos de determinar los otros impuestos conforme a la normativa vigente antes de la presente ley.
