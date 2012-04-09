@@ -14,3 +14,4 @@ Actualización de trámites y requisitos conbase a la ley N° 8220 de la Municip
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-02 | la propia norma |
+| 2 | 2012-04-09 | Acuerdo municipal 0 (2012-04-09) |
