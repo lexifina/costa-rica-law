@@ -1,4 +1,4 @@
-Artículo 7º—De la presidencia. La Presidencia del Consejo de Acreditación tiene las siguientes funciones y atribuciones:
+Artículo 7º—De la Presidencia. La Presidencia del Consejo de Acreditación tiene las siguientes funciones y atribuciones:
 a. Elaborar de manera conjunta con la Secretaría el Orden del Día para someterlo posteriormente a votación del Consejo en pleno.
 b. Comprobar el quórum.
 c. Abrir, presidir, suspender y levantar las sesiones del Consejo de Acreditación.

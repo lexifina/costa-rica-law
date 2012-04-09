@@ -1,15 +1,23 @@
 CAPÍTULO VI
 De los incumplimientos
-Artículo 30.—De los incumplimientos del derecho de revocación y suspensión. Cuando exista algún incumplimiento del contrato de acreditación, la Unidad de Acreditación deberá notificar a la entidad acerca de los motivos en que funda su inconformidad. En el mismo acto indicará a la entidad la prueba existente y se le concederá un plazo de 10 días hábiles, posteriores al recibo de la notificación, para que formule los descargos y que ofrezca la prueba que estime pertinente.
-El acto final será dictado por el Consejo de Acreditación donde se indicará la sanción aplicable a la entidad, a saber: - amonestación por escrito, acompañada de una recomendación de cumplimiento obligatorio, - suspensión de la acreditación por el plazo que el Consejo determine, o bien; - la revocación de la acreditación del servicio de capacitación.
-Contra el acto final se admitirán los recursos ordinarios de revocatoria y de apelación, los cuales se tramitarán conforme a las previsiones del artículo 32 del presente Reglamento.
-La revocación de los servicios acreditados extingue el beneficio otorgado a la entidad. Se consideran motivos de revocación los siguientes:
-La acreditación podrá ser revocada cuando el beneficiario:
-a. haya modificado negativamente las condiciones bajo las cuales se le concedió la acreditación.
-b. haya incumplido recomendaciones de cumplimiento obligatorio.
-c. haya presentado incumplimientos en la ejecución del contrato que rige el servicio de acreditación.
-d. haya presentado acciones dolosas contra los intereses de los participantes o del Instituto Nacional de Aprendizaje.
-e. cuando por voluntad expresa y por escrito, la persona física o jurídica solicite la finalización de dicho beneficio.
-f. cuando al tratarse de una persona jurídica la razón social se haya disuelto.
-g. cualquier otra causa, la cual deberá estar debidamente motivada en el acto final.
-h. Cambios en legislación nacional aplicable.
+Artículo 30.—Deberes. Serán obligaciones de las entidades, las siguientes:
+1. Generales:
+a) La entidad solicitante deberá suscribir toda la documentación establecida por el INA para el inicio, evaluación y ejecución del servicio de Acreditación.
+b) La entidad solicitante o que cuente con los servicios acreditados se someterá a la normativa administrativa vigente
+c) La entidad solicitante o con servicios acreditados deberán respetar la normativa de derechos de autor y propiedad intelectual, la cual se aplicará para la regulación de las licencias generadas en ocasión a servicio de acreditación por parte del INA.
+d) Las obligaciones establecidas en los artículos 37, 38 de este Reglamento.
+2. Previa Acreditación de SCFP
+a) La correcta ejecución del contrato de transferencia tecnológica, de uso de licencia de diseños curriculares del INA y licencia de diseños curriculares de uso de marca para la acreditación de SCFP.
+3. SCFP Acreditados
+a) Dar a conocer el Plan de Emergencia a los estudiantes
+b) Contar con extintores con carga vigente
+c) Contar con lámparas de emergencia en funcionamiento
+d) Contar con el botiquín básico de primeros auxilios
+e) Contar con rotulación e información de seguridad
+f) Contar con la climatización autorizada
+g) Cumplir con la totalidad del contrato que rige el servicio de acreditación
+h) Enviar la solicitud de autorización de la infraestructura
+i) Enviar la solicitud de autorización del docente en forma oportuna
+j) Utilizar los docentes autorizados para impartir los SCFP acreditados
+k) Mantener la estructura curricular en las condiciones autorizadas
+l) Contar con el permiso sanitario de funcionamiento o patente vigente

@@ -1,1 +1,2 @@
-Artículo 36.—Derogatoria. El presente Reglamento deroga el “Reglamento de Acreditación” del 27 de noviembre de 1995, así como cualquier otra disposición interna relativa a esta materia.
+Artículo 36.—Recursos. Contra la resolución final que dicte el Consejo de Acreditación, será admisible el recurso de revocatoria o reposición, previsto en la Ley General de la Administración Pública, el cual se interpondrá dentro de los tres días hábiles siguientes a la notificación del acto.
+Contra los demás actos del procedimiento sólo cabrán los recursos que sean admisibles de acuerdo con la Ley General de la Administración Pública y dentro de los indicados en esa normativa.

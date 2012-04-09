@@ -1,3 +1,2 @@
-CAPÍTULO IX
-Disposiciones finales
-Artículo 35.—Normativa supletoria. En todo aquello no previsto en el presente Reglamento se aplicará la Ley General de la Administración Pública.
+Artículo 35.—Aplicación de medidas cautelares. En casos muy calificados y mediante resolución razonada, se podrá dictar en cualquier etapa del procedimiento, el Consejo de Acreditación, por recomendación del órgano director, podrá decretar la medida que se considere pertinente y más adecuada a la situación.
+El plazo de vigencia de cualquier medida deberá ser establecido en la misma resolución que lo imponga.

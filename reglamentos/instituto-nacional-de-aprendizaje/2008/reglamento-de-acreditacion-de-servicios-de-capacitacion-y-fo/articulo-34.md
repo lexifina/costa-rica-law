@@ -1,1 +1,3 @@
-Artículo 34.—Del uso de los diseños curriculares. La entidad podrá hacer uso de los diseños curriculares, previa autorización del INA en cuyo caso, se deberá sujetar a los respectivos lineamientos que regulen la forma en que esos permisos son otorgados, indicando claramente lo que esas entidades pueden o no realizar con dichos instrumentos.
+Artículo 34.—Resolución del asunto. Concluido el procedimiento por parte del Órgano Director, el Consejo de Acreditación dictará la resolución final, la cual resolverá todos los aspectos debatidos durante el procedimiento.
+Esa resolución deberá ser notificada al servidor, en la forma y cualquiera de los medios permitidos por la Ley General de la Administración Pública.
+Esa resolución deberá comunicarse dentro del mes siguiente a la fecha en que concluya formalmente el procedimiento respectivo.

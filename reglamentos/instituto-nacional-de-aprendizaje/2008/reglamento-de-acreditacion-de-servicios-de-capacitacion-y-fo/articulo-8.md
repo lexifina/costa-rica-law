@@ -1,4 +1,4 @@
-Artículo 8º—De la secretaría. La secretaría del Consejo de Acreditación tiene las siguientes funciones:
+Artículo 8º—De la Secretaría. La secretaría del Consejo de Acreditación tiene las siguientes funciones:
 a. Convocar la sesión del Consejo de Acreditación, comunicando el orden del día, a las personas integrantes de dicho órgano colegiado.
 b. Elaborar el acta de cada sesión en conjunto con el Presidente del Consejo.
 c. Comunicar las resoluciones y acuerdos adoptados a quien corresponda, de conformidad con los procedimientos establecidos para el servicio de acreditación.
