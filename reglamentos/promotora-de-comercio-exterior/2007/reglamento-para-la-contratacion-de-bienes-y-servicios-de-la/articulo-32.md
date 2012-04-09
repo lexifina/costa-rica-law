@@ -1,7 +1,6 @@
 SECCIÓN SEGUNDA
 De las garantías
-Artículo 32.—Disposiciones generales sobre garantías. PROCOMER de acuerdo con la complejidad del objeto del negocio y la necesidad de respaldar los daños que pueda causar el incumplimiento del oferente o contratista podrá exigir garantía de participación y cumplimiento
-según corresponda.
+Artículo 32.—Disposiciones generales sobre garantías. PROCOMER de acuerdo con la complejidad del objeto del negocio y la necesidad de respaldar los daños que pueda causar el incumplimiento del oferente o contratista podrá exigir garantía de participación y cumplimiento según corresponda.
 Corresponde a la Gerencia o Dirección responsable de la contratación en coordinación con la Gerencia Administrativa – Financiera establecer si se exigirán garantías, en aquellos casos en que las mismas sean facultativas.
 PROCOMER podrá establecer otras modalidades de garantía que conlleve a una adecuada tutela de la efectiva ejecución del contrato.
 La definición del monto o del porcentaje de cualquier tipo de garantía será competencia de la Gerencia Administrativa – Financiera.
@@ -9,4 +8,4 @@ En todos los casos en que se exija una garantía el monto, tipo de moneda o porc
 Las garantías que se rindan serán independientemente para cada negocio, mediante depósito de bonos de garantía de instituciones aseguradoras reconocidas en el país, o de uno de los bancos del sistema Bancario Nacional, certificado de depósitos a plazo, bonos del estado o de sus instituciones, cheques certificados o de Gerencia de un banco del Sistema Bancario Nacional, dinero en efectivo mediante depósito a la orden de PROCOMER o mediante depósito en efectivo en las cajas receptoras de PROCOMER.
 La garantía deberá rendirse en colones o dólares estadounidenses, PROCOMER está facultado para exigir a los oferentes o contratistas ajustar los montos de las garantías cuando ocurran variaciones en los tipos de cambio del dólar estadounidense que desmejoren la cobertura que se percibe con dichos instrumentos. En caso de negativa de efectuar dichos ajustes PROCOMER podrá proceder a la ejecución de las mismas.
 No se reconocerán intereses por las garantías depositadas en efectivo en PROCOMER.
-El plazo de vigencia de las garantías será definido en el cartel o pliego de condiciones.
+El plazo de vigencia de las garantías será definido en el cartel o pliego de condiciones

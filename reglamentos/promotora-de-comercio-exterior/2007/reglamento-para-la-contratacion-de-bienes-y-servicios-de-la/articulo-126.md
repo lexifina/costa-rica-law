@@ -6,4 +6,4 @@ En las licitaciones públicas, el recurso de apelación en contra del acto de ad
 Cuando se trate de Licitaciones Privadas tres días hábiles siguientes a la notificación o publicación del acto de adjudicación.
 La revocación, regulada en el artículo referente a los actos no firmes de este Reglamento, no tiene recurso alguno, sin embargo el acto originado con posterioridad a una revocación, puede ser recurrido. En tal caso, el plazo para interponer el recurso comenzará a correr a partir de que sea publicado o notificado el nuevo acto. En estos supuestos, aquellos recursos de apelación presentados en contra de la declaratoria de desierto, infructuoso o adjudicación anterior a la revocación, serán rechazados de plano sin mayor trámite.
 Cuando el procedimiento estuviere conformado por líneas independientes, la Administración continuará con la tramitación de las líneas no apeladas.
-( Así reformado mediante sesión N ° 227 del 3 de noviembre del 2008.)
+Así modificado en la sesión 226-2008 del 21 de octubre del 2008, ratificada en la sesión No.227-2008 del 3 de noviembre del 2008 y publicado en la Gaceta No.234 del 3 de diciembre del 2008.

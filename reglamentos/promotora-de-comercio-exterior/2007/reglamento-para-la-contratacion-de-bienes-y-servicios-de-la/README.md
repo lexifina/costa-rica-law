@@ -17,3 +17,4 @@ Reglamento para la Contratación de Bienes y Servicios de la Promotora de Comerc
 | 2 | 2008-10-21 | Reglamento 227 (2008-11-03) |
 | 3 | 2008-11-03 | Reglamento 227 (2008-11-03) |
 | 4 | 2011-08-08 | Reglamento 0 (2011-08-08) |
+| 5 | 2012-04-09 | Reglamento 0 (2012-04-09) |

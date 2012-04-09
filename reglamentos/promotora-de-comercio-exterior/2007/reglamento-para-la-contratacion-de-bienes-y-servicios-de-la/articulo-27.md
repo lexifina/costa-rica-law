@@ -3,4 +3,4 @@ El avalúo podrá ser realizado por un funcionario o perito al servicio de la en
 Una vez adoptada la decisión de incluir bienes como parte del pago, la Administración, deberá mantener las condiciones valoradas en su momento, salvo el deterioro por uso normal.
 La Administración, podrá reservar en el cartel, la facultad de entregar esos bienes o su equivalente en dinero. Los oferentes, pueden ofrecer un mayor precio por los bienes, para lo cual la entidad, podrá reservar un porcentaje del sistema de calificación a ponderar, el precio cotizado y otro adicional a premiar la mejora, en los precios contemplados en el avalúo.
 En caso de que los bienes al momento de la entrega presenten una desmejora significativa en relación con las condiciones que fueron consideradas en el avalúo, la Administración, podrá hacer los ajustes pertinentes y de no llegar a un acuerdo con el contratista, éste podrá presentar el reclamo correspondiente.
-(Así reformado, y publicado en La Gaceta N° 164 del 26 de agosto del 2011)
+Así modificado por Junta Directiva en sesión No.273-2010 del 15 de diciembre del 2010.

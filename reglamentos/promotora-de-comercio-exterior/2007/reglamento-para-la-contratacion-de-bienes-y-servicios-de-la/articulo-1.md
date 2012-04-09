@@ -1,9 +1,6 @@
-COMERCIO EXTERIOR
-PROMOTORA DEL COMERCIO EXTERIOR DE COSTA RICA
-REGLAMENTO DE CONTRATACIÓN
-(Nota de Sinalevi: El texto de este Reglamento fue reformado por el Reglamento publicado en La Gaceta N°69 del 9 de abril del 2012)
-ÍNDICE
-Considerando:
+Reglamento para la Contratación de Bienes y Servicios de la Promotora de Comercio Exterior de Costa Rica
+(Nota de Sinalevi: El siguiente texto corresponde a la reforma integral realizada y publicada en La Gaceta N° 69 del 9 de abril del 2012)
+Indice
 CAPÍTULO I
 Disposiciones generales
 Artículo 1º—Cobertura.
@@ -246,10 +243,8 @@ Considerando:
 1º—Que mediante Ley 7638 “Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica” de fecha 30 de octubre de 1996 publicada en el Diario Oficial La Gaceta de fecha 13 de noviembre de 1996.
 2º—Que de conformidad con el artículo 11 de la citada ley, la Junta Directiva de la Promotora del Comercio Exterior debe dictar los reglamentos sobre contratación de esa Promotora.
 3º—Que el Reglamento de Contratación publicado en el Diario Oficial La Gaceta número 179 de fecha 18 de setiembre del 2003 y sus reformas requiere una reforma integral con el fin de que se ajuste a las necesidades de contratación de dicha Promotora.
-4º—Que la Junta Directiva de la Promotora del Comercio Exterior mediante acuerdo número..... tomado en la sesión número... de fecha dispuso reformar en forma integral el Reglamento de Contratación de Contratación.
-LA JUNTA DIRECTIVA DE LA PROMOTORA DEL COMERCIO
-EXTERIOR DE COSTA RICA, ACUERDA
-Artículo Único.—Reformar en forma integral el Reglamento Contratación de bienes y Servicios en los términos que a continuación se detalla:
+4º—Que la Junta Directiva de la Promotora del Comercio Exterior mediante acuerdo número CAJD-047-2007. tomado en la sesión número 188-2007 de fecha 23 de abril del 2007 dispuso reformar en forma integral el Reglamento de Contratación de Contratación.
+LA JUNTA DIRECTIVA DE LA PROMOTORA DEL COMERCIO EXTERIOR DE COSTA RICA, ACUERDA
 REGLAMENTO DE CONTRATACIÓN
 CAPÍTULO I
 Disposiciones generales

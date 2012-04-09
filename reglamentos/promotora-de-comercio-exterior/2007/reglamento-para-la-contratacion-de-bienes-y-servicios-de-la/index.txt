@@ -10,6 +10,7 @@ articulo-9.md
 articulo-9-bis.md
 articulo-10.md
 articulo-11.md
+articulo-11-bis.md
 articulo-12.md
 articulo-13.md
 articulo-14.md
@@ -23,6 +24,7 @@ articulo-21.md
 articulo-22.md
 articulo-23.md
 articulo-24.md
+articulo-24-bis.md
 articulo-25.md
 articulo-26.md
 articulo-27.md
@@ -110,6 +112,9 @@ articulo-107.md
 articulo-108.md
 articulo-109.md
 articulo-110.md
+articulo-110-bis.md
+articulo-110-ter.md
+articulo-110-quater.md
 articulo-111.md
 articulo-112.md
 articulo-112-bis.md

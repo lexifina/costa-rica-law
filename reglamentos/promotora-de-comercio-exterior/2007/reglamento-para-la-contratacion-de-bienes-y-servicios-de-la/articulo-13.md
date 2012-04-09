@@ -1,2 +1,2 @@
 Artículo 13.—Capacidad de actuar. Se presume la capacidad de actuar de todo oferente, por lo que esa condición solamente deberá acreditarse por parte del adjudicatario. En el caso de los contratistas nacionales, tal acreditación se hará mediante certificación del asiento de su inscripción en el Registro Público correspondiente y en el caso de contratistas extranjeros, lo harán mediante los documentos usuales expedidos en su país de origen.
-( Así adicionado mediante sesión N ° 227 del 23 de noviembre del 2008.)
+Así modificado en la sesión 226-2008 del 21 de octubre del 2008, ratificada en la sesión No.227-2008 del 3 de noviembre del 2008 y publicado en la Gaceta No.234 del 3 de diciembre del 2008.

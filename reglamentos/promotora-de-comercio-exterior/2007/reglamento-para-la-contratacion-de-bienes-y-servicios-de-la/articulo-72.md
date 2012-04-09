@@ -3,4 +3,4 @@ Se considerará que un error u omisión es subsanable o insustancial, cuando su 
 Esta prevención podrá realizarse de oficio, por señalamiento de alguno de los participantes o a solicitud de parte interesada.
 Luego de finalizada esta etapa, se puede corregir o completar, cualquier aspecto subsanable que no se hubiese advertido durante el plazo antes indicado, a solicitud de la Administración o por iniciativa del oferente.
 No será necesario prevenir la subsanación de aquellas omisiones relacionadas con aspectos exigidos por el cartel, que no requieren una manifestación expresa del oferente para conocer los alcances puntuales de su propuesta, en cuyo caso se entenderá que acepta las condiciones.
-( Así adicionado mediante sesión N ° 227 del 3 de noviembre del 2008.)
+Así modificado en la sesión 226-2008 del 21 de octubre del 2008, ratificada en la sesión No.227-2008 del 3 de noviembre del 2008 y publicado en la Gaceta No.234 del 3 de diciembre del 2008.

@@ -1,4 +1,5 @@
-Artículo 163.—Cesión. Los derechos y obligaciones derivados de un contrato en ejecución o listo para iniciarse, podrán ser cedidos a un tercero, siempre que no se trate de una obligación personalísima. En todo caso la cesión debe ser previamente autorizada por la Administración mediante acto debidamente razonado, en el que al menos analizará:
+Artículo 163.—Cesión. Los derechos y obligaciones derivados de un contrato en ejecución o listo para iniciarse, podrán ser cedidos a un tercero, siempre que no se trate de una obligación personalísima.
+En todo caso la cesión debe ser previamente autorizada por la Administración mediante acto debidamente razonado, en el que al menos analizará:
 a) Causa de la cesión.
 b) El cumplimiento por parte del cesionario de las principales condiciones legales, técnicas y financieras solicitadas en el cartel.
 c) Que el cesionario no esté afectado por alguna causal de prohibición.
