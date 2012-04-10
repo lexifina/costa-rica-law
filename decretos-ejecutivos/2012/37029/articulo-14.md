@@ -1,0 +1,2 @@
+Artículo 14°.- Gastos de representación
+El Ministro Rector del Sector de Telecomunicaciones no autorizará ningún tipo de gastos, dietas, honorarios, traslados y viáticos que se generen, dentro o fuera del país, a aquellos representantes miembros de los ETM que no sean funcionarios en planilla del Ministerio de Ambiente, Energía y Telecomunicaciones. Por lo tanto, los gastos de los demás miembros de los ETM que integran las delegaciones oficiales que atenderán los ERI, serán costeados por las respectivas instituciones públicas o privadas, a quienes representan.

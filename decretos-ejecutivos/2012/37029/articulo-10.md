@@ -1,0 +1,3 @@
+Artículo 10°.- Instrumento para conformar los ETM
+Una vez que con sustento en el Plan de Trabajo de Representación Internacional el Ministro Rector del Sector de Telecomunicaciones determine la cantidad, materia e integrantes de los ETM, deberá constituirlos mediante acto administrativo motivado al efecto. Igualmente, en ese mismo acto establecerá los fines de su conformación, el periodo de operación y el listado de sus integrantes designados y suplentes, así como sus funciones específicas.
+Igualmente, mediante acto motivado, el Ministro Rector del Sector de Telecomunicaciones podrá libremente remover y nombrar miembros de los ETM, e inclusive, podrá disolver el ETM que de acuerdo a su funcionalidad considere innecesario.
