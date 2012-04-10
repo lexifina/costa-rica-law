@@ -1,0 +1,1 @@
+Artículo 53º—El gobierno central, las instituciones autónomas o semiautónomas, las municipalidades o cualquier otra entidad pública o privada podrán ceder en forma gratuita, locales y el equipo necesario para su operación.

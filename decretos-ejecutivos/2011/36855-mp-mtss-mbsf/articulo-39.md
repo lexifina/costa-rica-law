@@ -1,0 +1,1 @@
+Artículo 39°—No podrá ser Auditor Interno, ni Subauditor quien tenga algún impedimento legal, o sea pariente hasta tercer grado de consanguinidad o afinidad, de algún miembro del Consejo Directivo, del Presidente Ejecutivo, del Gerente, o de los Subgerentes, y según corresponda entre el Subauditor o Auditor.

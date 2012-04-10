@@ -1,0 +1,1 @@
+Artículo 15°—La cesación en su cargo de cualquiera de los miembros del Consejo Directivo, no los libera de las responsabilidades en que pudieran haber incurrido durante el período del desempeño de su función.

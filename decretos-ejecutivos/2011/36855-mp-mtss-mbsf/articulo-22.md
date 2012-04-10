@@ -1,0 +1,4 @@
+Artículo 22°—Cualquier miembro del Consejo puede interponer Recurso de Revisión contra un acuerdo, el cual será resuelto a la hora de conocerse el acta de esa sesión, a menos, que por tratarse de un asunto que el Presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
+El recurso de revisión deberá ser planteado a más tardar al discutirse el acta y deberá resolverse en la misma sesión o en la sesión que señale el Consejo Directivo.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas para efectos de este artículo como recursos de revisión.
+Cabrá recurso de reposición contra los acuerdos del órgano colegiado para lo cual estarán legitimados los funcionarios de la institución y cualquier tercero que se sienta afectado por el acuerdo tomado.

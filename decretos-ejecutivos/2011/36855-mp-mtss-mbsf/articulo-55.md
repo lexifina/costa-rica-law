@@ -1,0 +1,2 @@
+Artículo 55°—La estructura orgánica funcional del IMAS operará con una dinámica de trabajo en equipo con enfoque interdisciplinario y multifuncional, bajo los conceptos de procesos, centralización y desconcentración.
+Para cumplir con lo anterior, se facultará al personal para que pueda realizar diferentes tipos de acciones, dentro del marco de lo dispuesto por las normas de control interno que emita la Contraloría General de la República.

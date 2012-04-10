@@ -1,0 +1,1 @@
+Artículo 54°—La organización interna del IMAS contendrá, al menos, las siguientes instancias: un Consejo Directivo, una Presidencia Ejecutiva, una Gerencia General, una Subgerencia de Soporte Administrativo, una subgerencia de Gestión de Recursos, una Subgerencia de Desarrollo Social, unidades técnicas ejecutoras y asesoras centrales, unidades regionales y locales.

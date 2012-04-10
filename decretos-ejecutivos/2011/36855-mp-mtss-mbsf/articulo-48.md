@@ -1,0 +1,3 @@
+CAPITULO SEXTO
+DE LA CONTRALORIA DE SERVICIOS
+Artículo 48º—El IMAS contará con una Contraloría de Servicios, cuya función será velar y promover el mejoramiento en la prestación de servicios de la Institución. Asimismo la Contraloría procurará garantizar a los ciudadanos que sus quejas y reclamos serán efectivamente escuchados, y que de esta forma, se puedan defender sus derechos. Se buscará dar solución al reclamo del cliente, identificando los problemas presentados para analizarlos con la jefatura correspondiente. Asimismo, la Contraloría emite recomendaciones a la Administración Superior para mejorar la atención del público, agilizar los trámites y lograr que el cliente se sienta satisfecho con el servicio que se brinda.

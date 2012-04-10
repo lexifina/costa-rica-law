@@ -1,0 +1,1 @@
+Artículo 52º—El IMAS podrá desconcentrar su acción por medio de oficinas locales, equipos comunales u otras instancias afines, establecidas por normativa superior o convenio con las municipalidades, otras instituciones públicas, asociaciones de desarrollo y organizaciones no gubernamentales.

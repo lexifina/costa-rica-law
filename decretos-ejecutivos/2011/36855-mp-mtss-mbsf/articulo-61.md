@@ -1,0 +1,1 @@
+Artículo 61°—El IMAS podrá acudir a cualquier forma contractual autorizada por la legislación, para celebrar todo tipo de convenio o contrato con organizaciones privadas sin fines de lucro o instituciones públicas, para la ejecución de sus diversos programas sociales.

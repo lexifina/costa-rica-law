@@ -1,0 +1,4 @@
+Artículo 56°—El IMAS deberá garantizar en su estructura funcional lo siguiente:
+a) La articulación a nivel central, regional y local de los programas sociales y acciones con entidades públicas y privadas para el cumplimiento de las metas del Plan Nacional de Desarrollo y del Plan de Lucha contra la Pobreza.
+b) La ejecución centralizada y desconcentrada de sus acciones, para lo cual se considera las particularidades y realidades de cada entorno regional y local.
+c) La concertación de esfuerzos y recursos para la ejecución de los programas y acciones a nivel central, regional y local, mediante acuerdos con municipalidades, empresa privada, organizaciones de la sociedad civil, tales como cooperativas, asociaciones de desarrollo comunal, asociaciones solidaristas y similares. Para tal efecto, el IMAS tendrá la potestad de transferir recursos para la implementación de los programas por parte de esas instancias públicas y privadas.
