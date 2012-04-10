@@ -1,1 +1,0 @@
-Artículo 5º—Asesoría y apoyo técnico. Para el cumplimiento de los objetivos establecidos en el presente Decreto, la Autoridad Presupuestaria contará, según corresponda, con la asesoría y el apoyo técnico especializado de la Dirección General del Servicio Civil, y de la Secretaría Técnica de la Autoridad Presupuestaria.

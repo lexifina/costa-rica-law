@@ -1,1 +1,0 @@
-Artículo 2º—Características del sistema de empleo del sector público. En el ejercicio de la dirección política la Autoridad Presupuestaria deberá propiciar un sistema de empleo del sector público integrado, que brinde dirección y garantice el cumplimiento de los principios constitucionales y legales en la materia.
