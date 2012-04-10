@@ -14,3 +14,4 @@ Reglamento para la transición a la Televisión Digital Terrestre en Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-27 | la propia norma |
+| 2 | 2012-04-10 | Decreto Ejecutivo 37139 (2012-04-10) |
