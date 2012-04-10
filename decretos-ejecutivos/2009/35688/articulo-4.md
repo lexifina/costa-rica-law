@@ -26,11 +26,12 @@ f. Área de Documentación y Archivo.
 a. Control del Cumplimiento Extensivo Formal
 b. Control del Cumplimiento Extensivo Material
 c. Técnico-Jurídica en Control Tributario Extensivo.
-7. Dirección de Fiscalización, conformada por las Subdirecciones de:
-a. Información y Coordinación Informática,
-b. Programación y Selección
-c. Desarrollo Técnico y Control del Proceso de las Actuaciones Fiscalizadoras
-d. Técnico-Jurídica en Fiscalización.
+7. Dirección de Fiscalización, conformada de la siguiente manera:
+a. Subdirección de Investigación y Represión del Fraude Tributario
+b. Subdirección de Programación y Selección.
+c. Subdirección de Control de Procesos Fiscalizadores.
+d. Subdirección Técnico-Jurídica.
+(Así reformado el apartado 7) anterior por el artículo 3° del decreto ejecutivo N° 37065 del 10 de abril del 2012, "Crea Subdirección especializada en la investigación y reposición del fraude tributario)
 8. Dirección de Tecnología de Información Tributaria, conformada por las Subdirecciones de:
 a. Gestión de la Plataforma Tecnológica Tributaria
 b. Aseguramiento del Servicio a Usuarios
