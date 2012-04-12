@@ -1,0 +1,2 @@
+Artículo 15.- Se faculta al Ministerio de Agricultura y Ganadería (MAG) para donar todos los bienes no afectos de dominio público y servicios, adquiridos desde el inicio de la ejecución del Programa 185 a las organizaciones y comunidades beneficiarias del Programa Sixaola, provenientes de la ejecución financiera de la categoría de inversión II. Costos directos, y aquellos financiados con contrapartida nacional para la ejecución de los proyectos aprobados a su nombre.
+(Así adicionado por el artículo único de la ley N° 9030 del 12 de marzo del 2012)
