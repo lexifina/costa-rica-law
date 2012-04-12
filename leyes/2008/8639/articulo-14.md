@@ -1,0 +1,2 @@
+Artículo 14.- Se faculta al Ministerio de Agricultura y Ganadería (MAG) para realizar transferencias de capital a entidades privadas sin fines de lucro, calificadas con idoneidad, del Programa 185 del presupuesto contrapartida, con beneficios patrimoniales, gratuitos y sin contraprestación alguna, para la ejecución de los recursos de los proyectos aprobados a su nombre.
+(Así adicionado por el artículo único de la ley N° 9030 del 12 de marzo del 2012)
