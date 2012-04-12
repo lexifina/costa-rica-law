@@ -1,0 +1,1 @@
+Artículo 87.—Las categorías de los puestos y la escala salarial correspondiente a los mismos, en ningún caso podrán ser inferiores a los mínimos legales establecidos por el Ministerio de Trabajo y Seguridad Social y en todo caso deberán de guardar sentido de proporcionalidad, oportunidad y conveniencia.

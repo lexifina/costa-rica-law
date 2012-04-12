@@ -1,0 +1,1 @@
+Artículo 69.—Las licencias sin goce de salarios menores de un mes serán concedidas por el Alcalde Municipal por escrito, debiendo comunicarlo con antelación al disfrute de la licencia al Departamento de Recursos Humanos.

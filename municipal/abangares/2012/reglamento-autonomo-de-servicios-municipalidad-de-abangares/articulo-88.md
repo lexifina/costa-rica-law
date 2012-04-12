@@ -1,0 +1,3 @@
+Artículo 88.—La escala de salarios será aprobada por el Concejo Municipal, de acuerdo a lo establecido en los artículos 120, 121 y 122 del Código Municipal y para su aprobación deberán respetarse los siguientes parámetros:
+1) Todos los trabajadores de la Municipalidad, devengarán un salario igual a la de los demás trabajadores de igual o similar categoría, sin discriminación alguna por razones de sexo, raza, religión, edad o ideología política.
+2) En el caso de los trabajadores de jornales, como cuadrillas de vías públicas, sanidad, recolección y otras similares, no habrá discriminación de salario, es decir que todos tendrán un salario igual, excepto los obreros especializados y los aumentos por antigüedad.

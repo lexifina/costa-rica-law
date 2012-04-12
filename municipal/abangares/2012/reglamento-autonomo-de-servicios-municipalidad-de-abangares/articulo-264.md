@@ -1,0 +1,1 @@
+Artículo 264.—Las ayudas establecidas en el artículo 42°, podrá ser mediante materiales, mano de obra o ambas y se contabilizarán las mismas juntas o por separado, pero entre ambas no podrán superar el máximo establecido, en el artículo anterior. El monto de mano de obra se contabilizará para los efectos de rebajar del monto total asignado para ayudas durante el año.

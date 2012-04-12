@@ -1,0 +1,1 @@
+Artículo 123.—El valor de cada punto se establece de conformidad con la resolución emitida por la Dirección General de Servicio Civil. El valor del punto será revisado y ajustado automáticamente de conformidad a las resoluciones que sobre el incentivo emita la Dirección General de Servicio Civil.

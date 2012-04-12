@@ -1,0 +1,1 @@
+Artículo 273.—La Municipalidad conformará una Comisión de Ayudas a Funcionarios, la cual estará integrada en igual proporción y representación que la Junta de Relaciones Laborales, pudiendo ser esta la que asuma dicha función. Mientras no esté conformada la presente Comisión, las ayudas serán autorizadas por el Alcalde Municipal y las Jefaturas respectivas.

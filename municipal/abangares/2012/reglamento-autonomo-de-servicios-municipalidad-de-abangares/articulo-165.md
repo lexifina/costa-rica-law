@@ -1,0 +1,1 @@
+Artículo 165.—El Alcalde Municipal podrá ordenar o convenir, oficiosamente o a solicitud del interesado la reubicación temporal del servidor denunciado. La solicitud escrita del interesado deberá ser presentada ante el órgano director del procedimiento, quién la remitirá al Alcalde o su representante para ser resuelta en un plazo máximo de ocho días a partir de su presentación.

@@ -1,0 +1,1 @@
+Artículo 77.—El servidor que sin causa justificada pierda una o varias materias contratadas quedara obligado a restituir a la Municipalidad los gastos en que incurrió en razón de tiempo concedido y no aprovechado

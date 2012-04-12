@@ -1,0 +1,1 @@
+Artículo 245.—El Departamento de Recursos Humanos deberá remitir en el plazo máximo de diez días según la complejidad del asunto la información y documentos necesarios, al Departamento Legal para el trámite correspondiente.

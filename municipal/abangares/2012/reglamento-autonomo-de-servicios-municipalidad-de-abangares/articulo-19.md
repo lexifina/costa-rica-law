@@ -1,0 +1,1 @@
+Artículo 19.—Los servidores nombrados en propiedad, podrán solicitar al Departamento de Recursos Humanos, el trámite, de reasignación siempre que se considere que las funciones del mismo han variado sustancialmente y esté conforme con la normativa vigente.

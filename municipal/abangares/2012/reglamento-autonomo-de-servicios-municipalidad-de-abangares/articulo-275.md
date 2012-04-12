@@ -1,0 +1,1 @@
+Artículo 275.—La Municipalidad, para poder otorgar una ayuda de estas, deberá de tener por debidamente demostrado, en los términos definidos, en el artículo anterior, la situación de desgracia o infortunio. Lo anterior se realizará mediante estudio técnico, elaborado por la comisión de ayudas a funcionarios, quien dará sus recomendaciones al Alcalde Municipal.

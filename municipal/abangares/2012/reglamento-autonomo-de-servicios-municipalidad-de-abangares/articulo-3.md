@@ -1,0 +1,1 @@
+Artículo 3º—Los Jefes de Departamento y en general todos aquellos servidores, que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante la Municipalidad de velar por la correcta aplicación de las disposiciones del presente Reglamento.

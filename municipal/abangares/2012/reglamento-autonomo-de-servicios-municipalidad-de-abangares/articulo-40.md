@@ -1,0 +1,1 @@
+Artículo 40.—Los encargados del control de asistencia de las dependencias deberán remitir a la Departamento de Recursos Humanos, el informe mensual de asistencia dentro de los primeros cinco días de cada mes.

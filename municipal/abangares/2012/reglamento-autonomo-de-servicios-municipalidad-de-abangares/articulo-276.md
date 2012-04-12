@@ -1,0 +1,1 @@
+Artículo 276.—Las Ayudas que brinde la Municipalidad serán destinadas única y exclusivamente, a solventar las necesidades socioeconómicas, alimentarias, de vivienda, salud, o cualquier otra calamidad que afrontes los/as funcionarios/as municipales, según la situación de desgracia o infortunio a que se refiere el artículo 276 anterior.

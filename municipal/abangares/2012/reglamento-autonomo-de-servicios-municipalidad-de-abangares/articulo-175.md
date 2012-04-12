@@ -1,0 +1,1 @@
+Artículo 175.—Cuando mediante sentencia, se compruebe el hostigamiento, el funcionario o funcionaria ofendida tendrá derecho a una indemnización por daño moral, si ha sido acreditado, lo cual será de conocimiento del juez de trabajo.

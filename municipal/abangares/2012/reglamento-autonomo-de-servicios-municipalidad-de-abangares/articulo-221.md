@@ -1,0 +1,2 @@
+Artículo 221.—El Departamento Legal procederá a la apertura del expediente administrativo, asignándole un número el cual deberá tramitarse debidamente foliado, asimismo mediante el respectivo traslado de cargos deberá poner en conocimiento al involucrado de los hechos denunciados.
+En el proceso por acoso u hostigamiento sexual el Órgano Director deberá tomar las medidas necesarias para proteger a él o la denunciante. Garantizando la confidencialidad del proceso.

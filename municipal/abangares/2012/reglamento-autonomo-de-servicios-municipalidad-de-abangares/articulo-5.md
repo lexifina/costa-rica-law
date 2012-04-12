@@ -1,0 +1,1 @@
+Artículo 5º—El sistema de administración de recursos humanos, técnicamente dependerá del Departamento de Recursos Humanos, por lo tanto será responsable de la aplicación de las normas y disposiciones técnicas que dicha institución emita.

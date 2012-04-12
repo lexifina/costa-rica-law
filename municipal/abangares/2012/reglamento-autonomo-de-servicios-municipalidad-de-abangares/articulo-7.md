@@ -1,0 +1,2 @@
+Artículo 7º—La modificación de las condiciones de trabajo se efectuará mediante acción de personal, las cuales serán autorizadas por el Alcalde Municipal y por el funcionario que éste designe con la autoridad respectiva.
+No podrá el Concejo Municipal, el Alcalde o quienes hagan sus veces, tomar alguna decisión o medida que afecte en forma descendente el sueldo de sus empleados, ni cambiar la nomenclatura de sus puestos, en detrimento del buen nombre de sus servidores

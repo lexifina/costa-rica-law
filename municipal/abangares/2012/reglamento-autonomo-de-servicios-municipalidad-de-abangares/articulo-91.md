@@ -1,0 +1,3 @@
+Artículo 91.—La Municipalidad pagará salarios de forma bisemanales utilizando el sistema de depósito en el sistema bancario nacional, a los servidores y servidoras que se encuentran nombrados en propiedad.
+Por su parte pagará salarios quincenales al resto del personal que labore en jornales; el pago se hará los días quince y treinta de cada mes, o el día hábil anterior si aquel fuese feriado y para el pago se utilizará el sistema de depósito en el sistema bancario nacional.
+El sistema de pago, podrá ser variado cuando las circunstancias lo ameriten o en caso de que existan medios más novedosos de pago que vayan en beneficio del trabajador.

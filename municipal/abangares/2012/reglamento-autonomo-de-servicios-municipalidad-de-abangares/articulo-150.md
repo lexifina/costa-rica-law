@@ -1,0 +1,1 @@
+Artículo 150.—El Departamento de Recursos Humanos deberá velar por la confidencialidad de los expedientes, a los cuales tendrán acceso únicamente el interesado, así como el Alcalde Municipal, el Departamento Legal y la Auditoría Previa autorización del jerarca. Las autoridades judiciales tendrán acceso a los expedientes, con solicitud extendida por un Juez de la Republica.

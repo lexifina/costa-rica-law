@@ -1,0 +1,1 @@
+Artículo 120.—Las resoluciones referidas, serán comunicadas al interesado, al jefe de Recursos Humanos y al Jefe de Departamento, a fin de que se tramite la respectiva acción de personal en que se haga efectivo el incentivo por carrera profesional, así como las modificaciones presupuestarias que se requieran.

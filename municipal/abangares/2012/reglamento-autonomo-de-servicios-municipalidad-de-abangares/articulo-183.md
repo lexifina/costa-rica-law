@@ -1,0 +1,1 @@
+Artículo 183.—Inicio del procedimiento. En un plazo improrrogable de veinticuatro horas siguientes a la interposición de la denuncia, el Departamento Legal integrará el Órgano Director que tendrá bajo su responsabilidad el procedimiento sumario administrativo, pudiendo contar dicho Órgano Director con el apoyo de al menos un profesional en psicología especialista en la materia.

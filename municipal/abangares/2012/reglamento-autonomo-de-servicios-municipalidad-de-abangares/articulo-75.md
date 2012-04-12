@@ -1,0 +1,1 @@
+Artículo 75.—Para la concesión de las licencias de estudio, el interesado deberá presentar la documentación completa en el Departamento de Capacitación o en el Departamento de Recursos Humanos previa valoración del cumplimiento de los requisitos formales que éste señala.

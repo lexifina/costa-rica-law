@@ -1,0 +1,1 @@
+Artículo 164.—La Municipalidad tendrá la responsabilidad de mantener, en el lugar de la prestación de servicios, condiciones de respeto para quienes ahí laboran y por ende debe tomar las medidas necesarias para prevenir, desalentar, evitar y sancionar las conductas de acoso u hostigamiento sexual y de otro tipo.

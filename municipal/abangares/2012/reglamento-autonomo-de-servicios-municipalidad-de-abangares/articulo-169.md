@@ -1,0 +1,1 @@
+Artículo 169.—Ningún servidor o servidora de la Municipalidad de Abangares, que haya denunciado ser víctima de hostigamiento sexual o que haya comparecido como testigo de las partes, podrá sufrir por ello, perjuicio personal alguno en su empleo.

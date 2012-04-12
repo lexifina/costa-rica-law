@@ -1,0 +1,1 @@
+Artículo 270.—La Municipalidad se reserva el derecho de ayudar con materiales y mano de obra, a aquellos funcionarios ocasionales o interinos que laboren para la misma, por razones de extrema pobreza, infortunio y /o siniestros.

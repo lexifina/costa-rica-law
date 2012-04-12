@@ -1,0 +1,1 @@
+Artículo 32.—Los servidores de la Municipalidad deberán laborar todos los días hábiles del año durante las horas reglamentarias establecidas, no podrán concederse privilegios ni prerrogativas o licencia alguna autorice una asistencia irregular, con excepción de lo dispuesto por Reglamento o en su caso, en los contratos especiales de servicio.

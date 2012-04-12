@@ -1,0 +1,1 @@
+Artículo 271.—De conformidad con lo establecido en el párrafo tercero del artículo 62° del Código Municipal y la Convención Colectiva de Trabajo, la Municipalidad otorgará ayudas temporales a aquellos funcionarios que enfrenten situaciones debidamente comprobadas de desgracia o infortunio.

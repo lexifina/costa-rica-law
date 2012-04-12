@@ -1,0 +1,6 @@
+Artículo 83.—Al quedar una plaza vacante, se procederá de la siguiente forma:
+a) Se ascenderá al empleado inmediato inferior en grado de la misma sección o departamento, que esté calificado para el efecto.
+b) De no haber empleado o funcionario municipal capaz de llenar la plaza vacante en el departamento o sección, de conformidad con el manual descriptivo de puestos, se sacará a concurso la plaza a nivel municipal y para el mismo los trabajadores gozarán en su favor de la antigüedad.
+c) En caso de inopia o si no hubiere interés de ningún empleado para concursar en la plaza vacante, la Municipalidad podrá sacarla a concurso externo, publicado por lo menos en un diario de circulación nacional y con las mismas condiciones del concurso interno.
+d) Tratándose de profesionales el nombramiento debe de ajustarse a lo que dicte la ley constitutiva del respectivo colegio y el manual descriptivo de puestos.
+e) Cuando la oficina de personal saque una plaza a concurso externo lo hará del conocimiento de todos los empleados mediante comunicación, que se hará ocho días hábiles antes de la fecha del concurso. También se hará la comunicación a la Junta de Relaciones Laborales, bajo pena de nulidad del concurso.

@@ -1,0 +1,3 @@
+Artículo 41.—Cada tarjeta o carné deberá ser marcado solamente por el servidor a quien corresponda, en forma tal que la marca quede impresa con claridad, toda vez que aquella marca defectuosa, manchada o confusa, que no se deba a desperfecto del reloj marcador y que se pueda preste a dudas, se tendrá por no hecha, para efectos de sanción disciplinaria.
+No se impondrá la sanción disciplinaria al servidor que por error marcó la tarjeta de otro, ni aquel a quien le marcaron la suya.
+Estarán obligados en ambos casos a informar por escrito del hecho al Departamento de Recursos Humanos en la semana en que ocurrió el error.

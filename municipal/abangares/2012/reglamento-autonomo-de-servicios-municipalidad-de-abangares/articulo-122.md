@@ -1,0 +1,1 @@
+Artículo 122.—El monto del incentivo derivado de la aplicación de los factores previstos para la carrera profesional, se establecerá mediante el valor de cada punto de acuerdo con el procedimiento establecido en este reglamento.

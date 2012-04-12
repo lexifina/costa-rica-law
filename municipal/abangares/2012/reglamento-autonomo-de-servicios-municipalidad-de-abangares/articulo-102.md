@@ -1,0 +1,1 @@
+Artículo 102.—Objetivos. La carrera profesional tendrá como objetivo básico reconocer por medio de un estímulo económico, la superación académica y laboral de los profesionales al servicio de la Municipalidad, a fin de que puedan ofrecer un mejor servicio a la misma.

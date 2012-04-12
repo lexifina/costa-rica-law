@@ -1,0 +1,1 @@
+Artículo 72.—Los servidores que hayan participado en actividades o cursos de capacitación, estarán obligados, a solicitud del Departamento de Capacitación y/o Departamento de Recursos Humanos a impartir los conocimientos adquiridos y quedaran comprometidos a laborar 5 años para la municipalidad.

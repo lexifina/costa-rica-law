@@ -1,0 +1,1 @@
+Artículo 20.—Las servidoras de la Municipalidad podrán gozar de una hora diaria de lactancia. Para tal efecto, los dictámenes correspondientes hasta por un término máximo de quince meses de edad del lactante, sólo podrán ser extendidas por la Caja Costarricense de Seguro Social.

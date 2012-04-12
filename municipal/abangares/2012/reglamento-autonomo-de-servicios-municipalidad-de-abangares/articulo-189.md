@@ -1,0 +1,1 @@
+Artículo 189.—Recursos. La resolución final tendrá recurso de revocatoria ante el Viceministro (a) y apelación ante el Ministro (a) de Justicia, que deberá ser interpuesto en un plazo de tres días hábiles siguientes a la notificación de ésta.

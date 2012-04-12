@@ -1,0 +1,1 @@
+Artículo 267.—Según lo establecido en el artículo 42° de la Convención Colectiva de Trabajo, las ayudas referidas en el artículo 263 del presente Reglamento, aumentará en un 10%, anual sobre el monto mínimo fijado de ayuda.

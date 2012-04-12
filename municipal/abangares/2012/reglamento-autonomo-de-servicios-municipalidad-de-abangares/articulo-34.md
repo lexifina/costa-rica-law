@@ -1,0 +1,1 @@
+Artículo 34.—Cuando el Alcalde lo estime necesario, según necesidad real y justificada, los servidores quedarán en la obligación de trabajar horas extraordinarias hasta el máximo permitido por ley, salvo que por razones de índole grave, debidamente comprobadas por el jefe inmediato, se le faculte para no hacerlo.

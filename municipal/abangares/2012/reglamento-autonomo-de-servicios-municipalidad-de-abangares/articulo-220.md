@@ -1,0 +1,1 @@
+Artículo 220.—El Departamento Legal analizara la denuncia a efecto de determinar si procede la investigación ordenada, en caso contrario, se emitirá al Superior Jerárquico respectivo, mediante informe las razones que motivan su inadmisibilidad. Salvo en los casos de acoso sexual que se procede a la apertura del expediente al recibo de la denuncia.

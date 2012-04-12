@@ -1,0 +1,2 @@
+Artículo 282.—Los casos no previstos en el presente reglamento, se resolverán supletoriamente, de conformidad con las disposiciones establecidas por ley, de acuerdo con el siguiente orden: Convención Colectiva de Trabajo, Estatuto de Servicio Civil y su Reglamento: Ley General de la Administración Pública, Ley de la Administración Financiera de la República, demás normativa de derecho público que corresponda, principios generales del Derecho Administrativo y Código de Trabajo.
+Las Juntas de Abangares, 01 de marzo del 2012.—

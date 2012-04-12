@@ -1,0 +1,1 @@
+Artículo 168.—El Jerarca de la Institución y Jefes de Departamentos, que incurran en el hostigamiento sexual, serán responsables personalmente por sus actuaciones, así mismo tendrán responsabilidad, si, pese a haber recibido las quejas de la persona ofendida no cumple con lo establecido en este articulado.

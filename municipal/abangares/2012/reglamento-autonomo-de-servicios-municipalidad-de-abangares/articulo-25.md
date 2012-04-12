@@ -1,0 +1,1 @@
+Artículo 25.—Los servidores de la Municipalidad tendrán derecho a disfrutar de un día al año para celebrar el día del Régimen Municipal, así como aquel que se efectúe para la integración y convivió de los funcionarios al final de cada año.

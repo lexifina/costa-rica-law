@@ -1,0 +1,1 @@
+Artículo 18.—Los servidores de la Municipalidad tendrán la posibilidad de que se les brinde la debida capacitación, mediante cursos, seminarios, becas y otros, por medio del Departamento de Capacitación u el Departamento de Recursos Humanos.

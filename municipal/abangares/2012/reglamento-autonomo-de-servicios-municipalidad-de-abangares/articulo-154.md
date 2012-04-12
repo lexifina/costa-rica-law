@@ -1,0 +1,1 @@
+Artículo 154.—Para los efectos del otorgamiento de incentivos y beneficios que fomente el desarrollo y la promoción del personal, la Municipalidad a través del Departamento encargado del personal y mediante un programa establecido, cumplirá con lo indicado en el Artículo 134 del Código Municipal.

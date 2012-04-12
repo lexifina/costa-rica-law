@@ -1,0 +1,3 @@
+Artículo 62.—Los servidores de la Municipalidad tendrán derecho a gozar sin interrupción su período de vacaciones, y sólo estarán obligados a dividirlas hasta un máximo de tres fracciones cuando se trate de labores de índole especial que no permitan una ausencia muy prolongada.
+Si vencido el período vacacional no se hubiese disfrutado el mismo, el jefe inmediato en coordinación con Departamento de Recursos Humanos le indicarán al servidor la fecha para el disfrute de las mismas.
+El trámite de vacaciones deberá efectuarse con cinco días de anticipación salvo casos de urgencia. La solicitud deberá contar con el Visto Bueno de Departamento de Recursos Humanos previa aprobación del jefe inmediato.

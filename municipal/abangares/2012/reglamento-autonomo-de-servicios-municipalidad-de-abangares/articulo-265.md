@@ -1,0 +1,1 @@
+Artículo 265.—El trabajador/a que reciba una ayuda a partir de la aprobación del presente reglamento, no podrá optar por una nueva ayuda hasta haber transcurrido al menos tres años, salvo en casos de siniestros podrá recibir ayuda en forma inmediata.

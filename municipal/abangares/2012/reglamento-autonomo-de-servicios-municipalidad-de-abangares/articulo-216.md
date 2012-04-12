@@ -1,0 +1,1 @@
+Artículo 216.—Los despidos de los servidores o servidoras de la Municipalidad de Abangares, se tramitaran conforme lo dispuesto en la normativa legal existente al respecto. A saber, el Código de Trabajo, la Ley General de la Administración Pública y el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 84.—La publicación de concurso interno deberá consignar los requisitos del puesto, características y salario. Se imprimirá en caracteres legibles y se colocará en los sitios más visibles en los centros de trabajo de la Municipalidad.

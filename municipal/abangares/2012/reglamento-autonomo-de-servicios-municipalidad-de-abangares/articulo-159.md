@@ -1,0 +1,1 @@
+Artículo 159.—El jefe concederá una entrevista al servidor dentro de los dos días hábiles siguientes al recibo de la impugnación y deber resolver dentro de los tres días hábiles siguientes a esa entrevista.

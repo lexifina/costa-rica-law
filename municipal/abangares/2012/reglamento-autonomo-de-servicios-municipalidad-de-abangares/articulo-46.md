@@ -1,0 +1,2 @@
+Artículo 46.—En caso de que por irregularidades en la asistencia proceda el despido sin responsabilidad patronal, Departamento de Recursos Humanos remitirá todos los atestados al Despacho del Alcalde, a efecto de se proceda con el trámite de la gestión de despido ante el Órgano Director, instancia que dará el debido proceso al servidor afectado.
+Contra lo anterior cabrán los recursos que establece el presente Reglamento.

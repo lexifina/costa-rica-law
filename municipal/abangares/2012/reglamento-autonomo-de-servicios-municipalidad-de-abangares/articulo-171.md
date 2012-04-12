@@ -1,0 +1,1 @@
+Artículo 171.—Agotados los procedimientos establecidos o bien, no cumplidos por motivos que no se le pueden imputar a la persona ofendida, las denuncias de hostigamiento sexual, se podrán presentar ante los tribunales de la jurisdicción laboral, los cuales serán competentes para conocerlas.

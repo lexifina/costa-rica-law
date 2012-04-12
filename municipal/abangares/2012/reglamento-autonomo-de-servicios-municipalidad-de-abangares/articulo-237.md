@@ -1,0 +1,2 @@
+Artículo 237.—Una vez emitida la recomendación, se enviara al Jerarca de la Institución correspondiente, quien dictará el acto final y comunicara al Departamento de Recursos Humanos la decisión final, para su aplicación dentro del término de Ley.
+La recomendación en el proceso por acoso u hostigamiento sexual se remitirá al Jerarca de la Institución, para los efectos correspondientes y se informará a la Defensoría de los Habitantes el resultado del proceso.

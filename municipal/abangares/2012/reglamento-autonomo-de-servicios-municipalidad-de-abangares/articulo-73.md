@@ -1,0 +1,1 @@
+Artículo 73.—Para efectos de reconocimiento de títulos en la Carrera Administrativa Municipal, los funcionarios deberán coordinar lo que corresponda con el Departamento de Capacitación o Departamento de Recursos Humanos de la Municipalidad.
