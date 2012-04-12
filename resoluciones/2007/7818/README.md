@@ -15,3 +15,4 @@ Reglamento del Sistema Especial de Contratación Administrativa para la adquisic
 | --- | --- | --- |
 | 1 | 2007-12-20 | la propia norma |
 | 2 | 2011-03-08 | Resolución 0 (2011-03-08) |
+| 3 | 2012-04-12 | Resolución 0 (2012-04-12) |
