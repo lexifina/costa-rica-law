@@ -1,0 +1,1 @@
+Artículo 23.—Los marchamos mensuales serán autorizados para el uso de personas físicas, empresas, establecimientos comerciales e industrias, y será otorgado para cada vehículo indicando el número de placa en el momento de su compra.

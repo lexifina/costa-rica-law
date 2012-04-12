@@ -1,0 +1,1 @@
+Artículo 7º—Los vehículos que utilicen más de un espacio de estacionamiento deberán colocar una boleta por cada espacio, de lo contrario serán sancionados por los espacios que ocupen de más, cancelando la multa respectiva y quedando sujetos a las sanciones que prevén los artículos 3 y 4 de la Ley Nº 3580.

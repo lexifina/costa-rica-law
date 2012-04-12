@@ -1,0 +1,1 @@
+Artículo 10.—De las tarifas. El Concejo Municipal, fijara el precio de las tarifas en las zonas céntricas y no céntricas, que en ningún caso podrá ser menor de un 75% del valor promedio que cobren los estacionamientos privados por servicios similares según lo establecido en el Artículo 2º, de la Ley Nº 3580.

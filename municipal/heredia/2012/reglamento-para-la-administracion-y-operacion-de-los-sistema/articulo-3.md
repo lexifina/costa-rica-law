@@ -1,0 +1,1 @@
+Artículo 3º—De los horarios. Para la aplicación de este reglamento queda autorizado el horario: de lunes a viernes de las 7 horas a las 18 horas, y los sábados entre las 7 horas y las 16 horas; exceptuando los días: domingo, feriados por ley y de fiesta nacional.

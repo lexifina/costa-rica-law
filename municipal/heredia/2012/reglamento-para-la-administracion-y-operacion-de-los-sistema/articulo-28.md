@@ -1,0 +1,1 @@
+Artículo 28.—La venta de boletas por parte de personas físicas o jurídicas no autorizadas por la Municipalidad dará lugar al decomiso de boletas, y a la interposición de las acciones judiciales que correspondan.

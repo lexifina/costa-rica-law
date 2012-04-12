@@ -1,0 +1,2 @@
+Artículo 5º—Demarcación de zonas especiales. La municipalidad por medio de la sección encargada de regular las zonas de estacionamiento demarcará frente a las instituciones públicas, por lo menos un espacio para vehículos que transporten a personas con discapacidad, los cuáles para poder utilizar a esos espacios deberán estar debidamente identificados de conformidad con la ley 7600.
+En todo caso, estos vehículos también deberán usar las boletas de estacionamiento, autorizadas por la municipalidad con el acatamiento de todas las disposiciones contenidas en este reglamento.

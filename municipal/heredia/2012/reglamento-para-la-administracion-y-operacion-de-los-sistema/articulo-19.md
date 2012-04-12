@@ -1,0 +1,1 @@
+Artículo 19.—Para el mejor cumplimiento de esta ley, la Municipalidad y la Dirección General de Transito tomaran las medidas pertinentes en estrecha y efectiva colaboración y sus delegados estarán investidos de autoridad para las actuaciones oficiales a ese respecto.

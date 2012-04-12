@@ -1,0 +1,1 @@
+Artículo 24.—Los marchamos se otorgarán por el plazo de un mes calendario. Los vehículos que posean el marchamo, podrán estacionarse en cualquier zona de estacionamiento municipal, menos las restringidas, dentro del casco central de Heredia.
