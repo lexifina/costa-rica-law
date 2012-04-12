@@ -1,2 +1,2 @@
-Artículo 58.—La Secretaría de Junta Directiva podrá eliminar, cuando las actas se encuentren en firme, todos aquellos medios o instrumentos materiales de ayuda, sean registros fonográficos o de cualquier otra índole utilizados para facilitar la elaboración de cada acta, dejándose como únicos archivos y registros oficiales del Libro de Actas y un archivo de antecedentes con copia del acta en firme, foliada y modificada, así como su borrador respectivo.
-(Corregido mediante Fe de Erratas, publicada en La Gaceta N° 46 del 7 de marzo del 2011)
+Artículo 58.—La Secretaría de Junta Directiva conservará los registros fonográficos o de cualquier otra índole utilizados para facilitar la grabación del acta así como los registros oficiales del libro de actas y archivo de antecedentes, copia del acta firme, foliada y modificada así como su borrador respectivo.
+(Así reformado en sesión N° 5935 del 12 de abril de 2012)
