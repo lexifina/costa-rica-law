@@ -14,3 +14,4 @@ Normativa para la confección de dictámenes de licencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-13 | la propia norma |
+| 2 | 2012-04-13 | Reglamento 0 (2012-04-13) |
