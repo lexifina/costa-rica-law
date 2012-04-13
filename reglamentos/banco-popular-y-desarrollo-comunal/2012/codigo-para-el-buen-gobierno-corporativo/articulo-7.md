@@ -1,0 +1,2 @@
+Artículo 7º—Integración de la Junta Directiva de cada Sociedad. La Junta Directiva de cada Sociedad, en su calidad de máximo órgano de dirección y administración, es la responsable del control efectivo de todas las actividades de la Sociedad, así como de la definición de las políticas generales y los objetivos estratégicos.
+La Junta Directiva de cada Sociedad estará integrada por cinco (5) miembros, salvo la de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., que se conformará con siete (7) miembros.
