@@ -1,0 +1,1 @@
+Artículo 7º—La Dirección Financiera no pagará servicios de alimentación o de transporte si estos no fueron gestionados antes de realizarse la actividad, salvo excepciones debidamente justificadas por el superior inmediato del funcionario que deba laborar en el evento especial.
