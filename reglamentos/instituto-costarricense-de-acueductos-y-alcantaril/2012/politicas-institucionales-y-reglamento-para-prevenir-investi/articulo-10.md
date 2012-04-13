@@ -1,0 +1,1 @@
+Artículo 10.—Coautoría. El funcionario o funcionaria que conozca acerca de la comisión de una conducta constitutiva de acoso u hostigamiento sexual y no la ponga en conocimiento de la Administración Superior, Dirección de Gestión de Capital Humano o Superior Jerárquico; si procede mediante una denuncia quedará sujeto a la eventual investigación disciplinaria.

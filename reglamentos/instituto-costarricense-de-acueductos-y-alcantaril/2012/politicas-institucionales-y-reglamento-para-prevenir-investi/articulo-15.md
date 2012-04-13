@@ -1,0 +1,3 @@
+SECCIÓN TERCERA
+Debido proceso
+Artículo 15.—Del procedimiento administrativo disciplinario. En la instrucción del procedimiento administrativo disciplinario, el Órgano Director, previa orden de la Gerencia General realizará todas las acciones necesarias para tutelar el derecho de defensa, acceso al expediente, ofrecimiento de pruebas y demás principios jurídicos que integran el debido proceso a favor de todas las partes involucradas en el procedimiento; para ello se apegará a lo establecido en el Libro Segundo de la Ley General de Administración Pública, el Capítulo XIV y XV del Reglamento Autónomo de Servicios de AyA y este Reglamento.

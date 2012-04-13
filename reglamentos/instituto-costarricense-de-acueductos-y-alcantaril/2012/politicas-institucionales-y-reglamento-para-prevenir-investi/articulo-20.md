@@ -1,0 +1,1 @@
+Artículo 20.—Ampliación de la denuncia. La presunta víctima o su representante legal podrán ampliar la denuncia en cuanto a hechos nuevos dentro de los primeros cinco días hábiles siguientes de la interposición de la denuncia.
