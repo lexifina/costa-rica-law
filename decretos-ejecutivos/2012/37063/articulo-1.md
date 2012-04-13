@@ -1,0 +1,20 @@
+N° 37063 -MOPT-TUR
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES, Y EL MINISTRO
+DE TURISMO
+En el ejercicio de las potestades conferidas por el artículo 140, incisos 3) y 18), 146 de la Constitución Política; y con fundamento en lo establecido en la Ley de Creación del Ministerio de Obras Públicas y Transportes N° 4786 del 5 de julio de 1971 y sus reformas; por la Ley Reguladora del Transporte Remunerado de Personas en Vehículos Automotores N° 3503 del 10 de mayo de 1965 y sus reformas; Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad de Taxis, N° 7969 del 22 de diciembre de 1999; Ley de Administración Vial, N° 6324 del 24 de mayo de 1979 y sus reformas; la Ley de Tránsito por Vías Públicas Terrestres, N° 7331 del 13 de abril de 1993 y sus reformas; Ley Reguladora de Agencias de Viajes, N° 5339 del 23 de agosto de 1973; Reglamento a la Ley de Incentivos para el Desarrollo Turístico, Decreto Ejecutivo N° 24863-
+H-TUR, del 5 de diciembre de 1995; y el Reglamento sobre Políticas y Estrategias para la Modernización del Transporte Colectivo Remunerado de Personas por Autobuses Urbanos para el Área Metropolitana de San José y Zonas Aledañas que la Afecta Directa e Indirectamente, Decreto Ejecutivo N° 28337-MOPT, del 16 de diciembre de 1999.
+Considerando:
+I.—Que de conformidad con los artículos 1° y 25 de la Ley N° 3503 Ley Reguladora del Transporte Remunerado de Personas en Vehículos Automotores, el transporte colectivo en sus diversas modalidades, es un servicio público cuya prestación es facultada exclusivamente por el Estado.
+II.—Que el Ministerio de Obras Públicas y Transportes de conformidad con lo establecido en las Leyes 3503 y 7969 ejerce la vigilancia, control y regulación del transporte público, a través del Consejo de Transporte Público, con el firme objetivo de garantizar el interés general por lo que se ha propuesto llevar a cabo la reorganización de todo el sistema de transporte público, a efecto de que se ajuste a la época actual y futura.
+III.—Que el Decreto Ejecutivo 15203-MOPT publicado en el Diario Oficial La Gaceta N° 38 del 22 de febrero de 1984, reformado por el Decreto Ejecutivo N° 20141-MOPT publicado en La Gaceta N° 13 del 18 de enero de 1991 y el Decreto Ejecutivo N° 29584- MOPT publicado en La Gaceta N° 115 del 15 de junio del 2001, regulan los permisos especiales ocasionales (excursiones) y estables (turismo, estudiantes y trabajadores).
+IV.—Que debido a la necesidad de normar la prestación del servicio público de turismo, se emitió el Decreto Ejecutivo Reglamento para la regulación y explotación de servicio de transporte terrestre de turismo, N° 36223-MOPT-TUR, mismo que requiere exclusividad para la regulación del permiso especial para el transporte de turismo.
+V- Que una vez puesto en práctica el Decreto Ejecutivo N° 36223-MOPT-TUR, se ha visto la necesidad de introducir reformas al mismo, a efectos de contar con una normativa más dinámica y propia al sector que se pretende regular con dicha disposición.
+Por tanto,
+DECRETAN:
+Reforma Parcial del Decreto Ejecutivo N° 36223-MOPT-TUR, Reglamento para la
+Regulación y Explotación de Servicios de Transporte Terrestre de Turismo
+Artículo 1º- Refórmese el artículo 1º del Decreto Ejecutivo No. 36223-MOPT-TUR, Reglamento para la Regulación y Explotación de Servicios de Transporte Terrestre de Turismo, para que en adelante se lea de la siguiente manera:
+“Artículo 1º— Corresponde a la Junta Directiva del Consejo de Transporte Público, autorizar todos los permisos de transporte terrestre de turismo con el fin de movilizar Turistas a sitios de interés turístico dentro y fuera del territorio nacional.
+Este servicio deberá ser brindado directamente por un operador turístico, o por un transportista contratado por aquel. En ambos casos deberán estar certificados ante el Instituto Costarricense de Turismo, conforme con los requerimientos que se indicarán en este reglamento.
+Los permisos de transporte de turismo que se emitan así como las respectivas matrículas, son de uso exclusivo y excluyente del transporte de turistas.”

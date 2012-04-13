@@ -1,0 +1,2 @@
+Artículo 8º- Refórmese el artículo 11º del Decreto Ejecutivo No. 36223-MOPT-TUR, Reglamento para la Regulación y Explotación de Servicios de Transporte Terrestre de Turismo, para que en adelante se lea de la siguiente manera:
+“Artículo 11º— Los vehículos autorizados para el transporte de turistas deberán realizar la revisión técnica con la periodicidad establecida en la Ley de Tránsito por Vías Públicas Terrestres.”
