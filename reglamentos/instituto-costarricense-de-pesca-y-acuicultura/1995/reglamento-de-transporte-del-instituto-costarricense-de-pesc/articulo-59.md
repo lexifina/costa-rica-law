@@ -1,1 +1,0 @@
-Artículo 59.—Cualquier otro aspecto referente a transportes y que no esté regulado por el presente Reglamento, deberá ajustase a lo dispuesto por la Ley de Tránsito por Vías Públicas Terrestres No 7331.

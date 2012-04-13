@@ -1,2 +1,0 @@
-Artículo 24.—Cuando sean necesario hacer una reparación a un vehículo institucional y no se disponga de los repuestos, el mecánico deberá informar a la Jefatura de la Sección para que ésta autorice la solicitud respectiva.
-En el caso de reparaciones a realizar por terceras personas, el mecánico deberá hacer la solicitud ante la Jefatura de la Sección Servicios Generales para que éste realice una orden de servicio y la presente ante la Sección de Proveeduría.

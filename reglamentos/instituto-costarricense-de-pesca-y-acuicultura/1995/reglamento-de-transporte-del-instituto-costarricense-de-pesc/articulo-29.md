@@ -1,2 +1,0 @@
-Artículo 29.—Es responsabilidad del chofer o conductor, una vez presentada la declaración del accidente ante la Sección de Servicios Generales, llevar personalmente al INS, el aviso de accidente.
-Después de presentado el aviso de accidente, debe llevar el vehículo, siempre y cuando esté en condiciones de rodar, al Departamento de Avalúos del Instituto Nacional de Seguros, para la respectiva valoración de los daños. Deberá retirar copia del avalúo y entregarla a la Sección de Servicios Generales para proceder a los trámites pertinentes.

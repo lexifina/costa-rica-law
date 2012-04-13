@@ -1,1 +1,0 @@
-Artículo 51.—Bajo ninguna circunstancia, el guarda podrá facilitar la salida de un vehículo institucional, sin la autorización respectiva (boleta de salida), igualmente, cuando el chofer o conductor llegue bajo los efectos del licor o cualquier otro tipo de droga o estupefaciente.

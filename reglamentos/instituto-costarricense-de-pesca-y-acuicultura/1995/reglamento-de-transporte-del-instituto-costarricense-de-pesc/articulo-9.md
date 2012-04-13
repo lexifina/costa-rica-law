@@ -1,1 +1,0 @@
-Artículo 9°—La Unidad de Transporte deberá registrar el uso de combustible de toda la Institución y por vehículo, dicho registro se realizará a través de la entrega de cupones de consumo de combustible.

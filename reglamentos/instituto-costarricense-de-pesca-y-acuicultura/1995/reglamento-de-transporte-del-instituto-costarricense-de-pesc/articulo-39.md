@@ -1,1 +1,0 @@
-Artículo 39.—Corresponderá a la Sección de Servicios Generales retirar los informes emitidos por el Ministerio de Hacienda sobre el avalúo e informar al respecto a la Dirección Administrativa para que proceda con el trámite correspondiente.

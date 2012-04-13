@@ -1,1 +1,0 @@
-Artículo 14.—Las boletas de "Solicitud de Vehículo" podrán ser enviadas a la Unidad de Transportes por medio de un mensajero o vía fax. En este último caso, la boleta original deberá ser enviada dentro de los siguientes dos días hábiles al envío del comunicado.

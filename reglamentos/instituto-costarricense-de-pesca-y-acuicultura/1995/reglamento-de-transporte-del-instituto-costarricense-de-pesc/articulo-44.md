@@ -1,1 +1,0 @@
-Artículo 44.—En caso de giras y de acuerdo con la hora y lugar que se visite, el chofer del vehículo deberá tomar las precauciones del caso para garantizar la seguridad de los acompañantes y del activo. Tales medidas de precaución no descartan la posibilidad de negarse a regresar después de cierta hora, debiendo comunicar a sus acompañantes las razones para tomar tal decisión.

@@ -1,3 +1,0 @@
-Artículo 10.—Los vehículos utilizados en el área, estarán bajo la responsabilidad de la Unidad de Transportes o en su defecto, del funcionario responsable del viaje.
-En caso de giras que se realicen en el área de Puntarenas, una vez que se ha concluido la misión que motivó el servicio de transporte, el vehículo deberá ser guardado en las instalaciones del Instituto, para su custodia.
-Los vehículos asignados a las Direcciones u Oficinas Regionales estarán bajo la responsabilidad de la Jefatura respectiva, sin perjuicio del control y vigilancia que efectúe la Unidad de Transportes en cumplimiento de sus funciones.

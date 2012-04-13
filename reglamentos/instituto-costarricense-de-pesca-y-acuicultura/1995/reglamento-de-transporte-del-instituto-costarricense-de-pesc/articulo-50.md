@@ -1,1 +1,0 @@
-Artículo 50.—El Jefe de la Sección de Servicios Generales tendrá la autoridad suficiente para emitir observaciones o sugerencias sobre el trabajo que realizan los guardas del Plantel y que están afectando la eficiencia de la Sección.

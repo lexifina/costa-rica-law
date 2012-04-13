@@ -1,2 +1,0 @@
-Artículo 47.—Todo conductor o chofer de vehículos del Instituto, cuya licencia le fuere suspendida, temporal o definitivamente por fallo dictado por autoridad judicial deberá informarlo de inmediato a la Sección de Servicios Generales, para la respectiva anotación en el Registro General de Conductores y Choferes.
-La Sección de Servicios Generales, informará a la Sección de Recursos Humanos sobre el fallo dictado para que ella proceda a realizar el trámite correspondiente.

@@ -1,1 +1,0 @@
-Artículo 22- Las Directrices Regionales que tienen asignado un vehículo están obligados a cumplir con las normas emitidas por Servicios Generales sobre el mantenimiento preventivo y deberán enviar el vehículo a la Sección para el mantenimiento correspondiente, en la fecha que previamente establece la Sección de Servicios Generales.

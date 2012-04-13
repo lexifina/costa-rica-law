@@ -1,3 +1,0 @@
-Artículo 15.—-Con base en la información suministrada por las Jefaturas de cada dependencia, los días jueves de cada semana se emitirá el reporte referente a la programación de vehículos para la siguiente semana.
-En caso de suma necesidad y existiendo la posibilidad de que haya vehículos disponibles después de realizada la programación, quedará a criterio de la Jefatura de la Sección de Servicios Generales o un funcionario de la Sección, debidamente autorizado, asignar el vehículo extemporáneamente.
-La Unidad de Transporte determinará, de acuerdo con la solicitud presentada, el tipo de vehículo que mejor se adapte a las condiciones del servicio solicitado.

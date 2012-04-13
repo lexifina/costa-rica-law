@@ -1,1 +1,0 @@
-Artículo 26.—La Sección de Servicios Generales deberá rendir un informe trimestral a la Dirección Administrativa sobre el estado de los vehículos y las reparaciones que se le efectuaron durante el período.

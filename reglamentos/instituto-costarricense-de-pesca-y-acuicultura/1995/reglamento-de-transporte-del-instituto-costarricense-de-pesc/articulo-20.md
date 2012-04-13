@@ -1,1 +1,0 @@
-Artículo 20.—La Sección definirá y llevará el control de kilometraje y la respectiva revisión del vehículo que le corresponde, según el kilometraje recorrido, con el fin de realizar el mantenimiento preventivo.

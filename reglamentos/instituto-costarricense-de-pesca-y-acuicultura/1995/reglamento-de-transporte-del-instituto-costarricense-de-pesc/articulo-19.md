@@ -1,2 +1,0 @@
-Artículo 19.—La Unidad de Transportes establecerá con base en la vida útil esperada de cada vehículo, el respectivo programa de mantenimiento preventivo.
-Así como, para el mantenimiento y reparaciones menores de los vehículos del Instituto, se mantendrá un stock de repuestos de aquellos cuyo uso sea frecuente, tales como llantas, baterías, platinos, entre otros, los cuales estarán bajo la responsabilidad de Servicios Generales.

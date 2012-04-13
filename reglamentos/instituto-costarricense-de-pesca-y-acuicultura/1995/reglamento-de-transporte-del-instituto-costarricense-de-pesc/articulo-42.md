@@ -1,3 +1,0 @@
-CAPITULO IX
-De los conductores y choferes de la Institución
-Artículo 42.—La conducción de los vehículos estará a cargo del personal autorizado del Instituto, denominado choferes; sin embargo, en casos justificados y a falta de personal especializado para desempeñar estas labores, la Dirección Administrativa podrá autorizar a funcionarios que no estén designados como choferes sino como conductores, para que conduzcan los vehículos, siempre y cuando estén debidamente anotados en el Registro de Choferes y Conductores que mantiene la Sección de Servicios Generales, además deberán portar el carné que les extenderá dicha Sección y la licencia de conducir al día.
