@@ -1,0 +1,18 @@
+No. 37060-S
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las atribuciones que les confieren los artículos 140 incisos 3) y 18) de la Constitución Política; 28 párrafo 2 inciso b) de la Ley No 6227 de 2 de mayo de 1978 “Ley General de la Administración Pública”; 2 y 226 de la Ley No 5395 de 30 de octubre de 1973 “Ley General de Salud”; la Ley No 5412 de 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”; la Ley No 7472 de 20 de diciembre de 1994 “Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor”; la Ley No 7473 del 20 de diciembre de 1994 “Ley de Ejecución de los Acuerdos de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales”; la Ley No 7474 de 20 de diciembre de 1994 “Ley de Aprobación del Tratado de Libre Comercio entre el Gobierno de Costa Rica y el Gobierno de los Estados Unidos Mexicanos y sus Anexos, suscrito el 5 de abril de 1994”; y la Ley No 7475 del 20 de diciembre de 1994 “Ley Aprobación del Acta Final en que se Incorporan los Resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales”.
+CONSIDERANDO:
+1°—Que es función del Estado velar por la salud de la población.
+2°—Que los nutrientes son indispensables para el desarrollo físico y mental, la prevención de las malformaciones congénitas del tubo neural y la enfermedad cardiovascular en el ser humano.
+3°—Que la sal, la harina de trigo, la harina de maíz, el azúcar y la leche constituyen alimentos básicos en la dieta de la población de Costa Rica.
+4°—Que todo productor, fabricante o comerciante de alimentos debe cumplir con las disposiciones que el Ministerio de Salud decrete, ordenando el enriquecimiento o equiparación de determinados alimentos, a fin de suplir la ausencia o insuficiencia de nutrientes en la alimentación habitual de la población.
+5°— Que mediante Decreto Ejecutivo No. 30032-S del 3 de diciembre de 2001, publicado en el Alcance 88-A a La Gaceta No 247 del 24 de diciembre del 2001, el Poder Ejecutivo promulgó la “Reforma Norma Oficial para la Sal de Calidad Alimentaria”.
+6°— Que la simplificación de los trámites administrativos y la mejora regulatoria tienen por objeto racionalizar los procesos de los trámites que realizan los particulares ante la Administración Pública, mejorar su eficiencia, pertinencia y utilidad a fin de lograr mayor celeridad y funcionalidad en la tramitación, reduciendo los gastos operativos.
+7º— Que la industria salinera nacional ha manifestado la necesidad de que se permita importar sal sin fortificar para que sea enriquecida en el país a fin de llenar las necesidades de la industria alimentaria y de las comunidades que tienen naturalmente una mayor cantidad de flúor en sus aguas y por lo tanto requieren sal no enriquecida con flúor o yodo.
+8º— Que la Comisión Nacional de Micronutrientes, creada por Decreto Ejecutivo No. 27086-S del 22 de mayo de 1998, es el órgano técnico de referencia para el enriquecimiento de los alimentos. En sesión celebrada el 3 de febrero del 2012 la citada Comisión acordó se derogue el artículo 7 del Decreto Ejecutivo No. 30032-S del 3 de diciembre de 2001.
+9°— Que por lo anterior, se hace necesario y oportuno modificar el Decreto Ejecutivo No. 30032-S del 3 de diciembre de 2001.
+POR LO TANTO,
+DECRETAN
+DEROGATORIA DEL ARTÍCULO 7 DEL DECRETO EJECUTIVO 30032-S.
+Artículo 1°— Deróguese el artículo 7 del Decreto Ejecutivo No. 30032-S del 3 de diciembre de 2001, publicado en el Alcance 88-A a La Gaceta No 247 del 24 de diciembre del 2001, mediante el cual el Poder Ejecutivo promulgó la “Reforma Norma Oficial para la Sal de Calidad Alimentaria”.
