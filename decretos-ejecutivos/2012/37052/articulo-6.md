@@ -1,0 +1,1 @@
+Artículo 6º—El MICIT con apoyo de las demás instituciones que conforman CSIRT-CR aportarán en la medida de sus posibilidades los recursos humanos y financieros básicos para su funcionamiento, así como aquellos provenientes de la cooperación nacional e internacional.
