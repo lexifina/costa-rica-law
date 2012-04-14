@@ -1,0 +1,1 @@
+Artículo 7º—Presupuesto de los premios. Los premios especiales fueron adquiridos con recursos del Fondo Para Premios Extra de la Junta de Protección Social, con la finalidad de sortearlos en el año 2011 en los sorteos de Lotería Popular, dado que no fueron reclamados se utilizarán en promociones de la Lotería Pega 1 y Pega Millones.
