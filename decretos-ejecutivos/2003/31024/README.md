@@ -17,3 +17,4 @@ Reglamento General de Juntas de Educación y Juntas Administrativas
 | 2 | 2007-02-21 | Decreto Ejecutivo 33694 (2007-02-21) |
 | 3 | 2008-01-09 | Decreto Ejecutivo 34427 (2008-01-09) |
 | 4 | 2012-03-23 | Decreto Ejecutivo 37154 (2012-03-23) |
+| 5 | 2012-04-16 | Decreto Ejecutivo 37191 (2012-04-16) |
