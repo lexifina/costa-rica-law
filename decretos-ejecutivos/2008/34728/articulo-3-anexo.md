@@ -1,64 +1,72 @@
-Anexo N° 3
+Anexo N° 3”
 Clasificación de los establecimientos de salud y afines
-Establecimientos del Grupo A:
+Establecimientos del Grupo A.
 CIIU | Código | Tipo de establecimiento
-85110 | A001 | Establecimientos con servicios de internamiento y consulta en medicina y cirugía general o por especialidades.
-85110 | A002 | Establecimientos con servicios de atención médica general o por especialidades, que cuentan con servicios auxiliares de diagnóstico y tratamiento, así como servicios de emergencias, cirugía ambulatoria y cirugía menor.
-85110 | A003 | Establecimientos de odontología con docencia universitaria que brindan servicios de atención.
-85110 | A004 | Establecimientos de atención con servicios de radioterapia.
-73100 | A005 | Establecimientos que realizan investigaciones en seres humanos.
-85110 | A006 | Establecimientos con servicios de diagnóstico por imágenes que utilizan medios de contraste endovenoso.
-85110 | A007 | Establecimientos con servicio de banco de sangre.
-85110 | A008 | Establecimientos con servicio de banco de órganos, tejidos y materiales anatómicos humanos.
-85110 | A009 | Servicios de Laboratorio de análisis de Microbiología y Química Clínica hospitalario.
-85110 | A010 | Servicios de farmacia hospitalaria.
-85190 | A011 | Ambulancias de soporte avanzado o tipo A.
-85110 | A012 | Establecimientos con servicios de atención en cuidados paliativos con internamiento hospitalario con actividades de docencia e investigación.
-85110 | A013 | Laboratorios de referencia para análisis MQC.
-85110 | A015 | Establecimientos con servicios de cirugía general tipo ambulatorio o con estancia para observación no mayor a 24 horas.
+8511 | A001 | Establecimientos con servicios de internamiento y consulta en medicina y cirugía general o por especialidades, con o sin docencia universitaria.
+8511 | A002 | Establecimientos con servicios de atención médica general o por especialidades, que cuentan con servicios auxiliares de diagnóstico y tratamiento, así como servicios de emergencias, cirugía ambulatoria y cirugía menor, con o sin docencia.
+8511 | A003 | Establecimientos de odontología con docencia universitaria que brindan servicios de atención con o sin especialidades.
+8511 | A004 | Establecimientos de atención con servicios de radioterapia.
+7310 | A005 | Establecimientos que realizan investigaciones en seres humanos.
+8511 | A006 | Establecimientos con servicios de diagnóstico por imágenes que utilizan medios de contraste endovenoso.
+8511 | A007 | Establecimientos con servicio de banco de sangre.
+8511 | A008 | Establecimientos con servicio de banco de órganos, tejidos y materiales anatómicos humanos.
+8511 | A009 | Servicios de Laboratorio de análisis de Microbiología y Química Clínica hospitalario, con o sin docencia universitaria.
+8511 | A010 | Servicios de farmacia hospitalaria con o sin docencia universitaria
+8511 | A011 | Establecimientos con servicios de atención en cuidados paliativos con internamiento hospitalario con actividades de docencia e investigación.
 Establecimientos del Grupo B:
 CIIU | Código | Tipo de establecimiento
-85310 | B001 | Establecimientos de atención integral a la persona adulta mayor.
-85120 | B002 | Establecimientos con servicios de atención ambulatoria y domiciliar en cuidados paliativos.
-85190 | B003 | Establecimientos con servicios de Laboratorio de análisis Microbiológico y Químico Clínico.
-85310 | B004 | Establecimientos de atención residencial para personas mayores de edad con problemas en el consumo de alcohol y otras drogas. En coordinación con el Instituto de Alcoholismo y Fármacodependencia (IAFA).
-85310 | B005 | Establecimientos de atención a personas consumidoras de alcohol y otras drogas mayores de 18 años. Programa de Desintoxicación (en coordinación con el Instituto de Alcoholismo y Fármacodependencia IAFA).
-85120 85190 | B006 B007 | Establecimientos móviles o transportables que brindan atención médico, u odontológica a nivel nacional, regional y local. Establecimientos móviles o transportables que brindan atención de otras profesiones de las ciencias médicas a nivel nacional, regional y local.
-85190 | B008 | Establecimientos con servicios de patología.
-85120 | B009 | Establecimientos con servicios de consulta médica general o por especialidades.
-85120 | B010 | Establecimientos de odontología que brindan servicios de atención con o sin especialidades.
-85190 | B011 | Establecimientos de consulta ambulatoria en Nutrición.
-85190 | B012 | Establecimientos de consulta ambulatoria en Psicología Clínica.
-85190 | B013 | Establecimientos con servicios de atención en Terapia Física.
-85120 | B014 | Establecimiento de atención con servicios de diagnóstico por imágenes radiológicas, sin medio de contraste.
-85120 | B015 | Establecimientos de atención con servicios de diagnóstico por ultrasonido.
-85120 | B016 | Establecimientos de atención con servicios en endoscopia.
-85120 | B017 | Establecimientos de atención en estética.
-85120 | B018 | Establecimientos con servicios de cirugía menor.
-85120 | B019 | Establecimientos con servicios de cirugía oftalmológica ambulatoria.
-85190 | B020 | Establecimientos con servicios de citopatología.
-85190 | B021 | Establecimientos con servicio de vacunación y de inyectables.
-52310 | B022 | Establecimientos de atención farmacéutica. Se exceptúan las farmacias contempladas en los establecimientos A001.
-85120 | B023 | Establecimientos sedes de los Equipos Básicos de Atención Integral en Salud (EBAIS) ubicados en el primer nivel de atención.
-85120 | B024 | Establecimiento de atención con servicios de cámara hiperbárica.
-85190 | B025 | Establecimientos o centros de acondicionamiento físico.
-85110 | B026 | Establecimientos de atención en Centros para personas con discapacidad.
-85190 | B027 | Establecimientos de atención con servicios de terapias alternativas y complementarias, con procedimientos invasivos y la utilización de remedios de origen natural u homeopático.
-85110 | B028 | Establecimientos con servicios transitorios de hospedaje y alimentación con cuidados médicos y de enfermería.
-85190 | B029 | Establecimientos donde se ejerzan otras profesiones en ciencias de la salud, sin que medie prescripción medicamentosa y la realización de procedimientos invasivos.
-85190 | B030 | Ambulancias de soporte intermedio o tipo B.
-88310 | B031 | Establecimientos de atención con servicios de albergues para la Atención de las personas que con V.I.H. / SIDA mayor de 18 años hasta 65 años.
-85190 85120 | B032 B033 | Ferias de la salud Otros profesionales. Servicios de consulta médica u odontológica en ferias de la salud.
-85190 | B034 | Ambulancias de soporte básico o tipo C.
+8512 | B001 | Establecimientos con servicio de cirugía general de tipo ambulatorio o con estancia para observación no mayor de 24 horas.
+8512 | B002 | Establecimientos con servicios de atención de parto con bajo riesgo obstétrico
+8512 | B003 | Establecimientos con servicios de atención de emergencias
+8519 | B004 | Ambulancias Tipo A, Soporte Avanzado.
+8531 | B005 | Establecimientos de atención integral a la persona adulta mayor.
+8512 | B006 | Establecimientos con servicios de atención ambulatoria y domiciliar en cuidados paliativos.
+8511 | B007 | Establecimientos con servicios de Laboratorio de análisis Microbiológico y Químico Clínico
+8531 | B008 | Establecimientos de atención residencial para personas mayores de edad con problemas en el consumo de alcohol y otras drogas. En coordinación con el Instituto de Alcoholismo y Fármaco dependencia IAFA)
+8531 | B009 | Establecimientos de atención a personas consumidoras de alcohol y otras drogas mayores de 18 años. Programa de Desintoxicación (En coordinación con el Instituto de Alcoholismo y Fármaco dependencia IAFA)
+8512 | B010 | Servicios de atención en salud que se brindan a nivel nacional, regional y local en unidades móviles o por medio de equipos transportables para la atención.
+8519 | B011 | Establecimientos con servicios de patología y citopatología
+8512 | B012 | Establecimientos con servicios de consulta médica general o por especialidades
+8512 | B013 | Establecimientos de odontología que brindan servicios de atención con o sin especialidades.
+8519 | B014 | Establecimientos de consulta ambulatoria en Nutrición
+8519 | B015 | Establecimientos de consulta ambulatoria en Psicología
+8519 | B016 | Establecimientos con servicios de atención en Terapia Física
+8512 | B017 | Establecimiento de atención con servicios de diagnóstico por imágenes radiológicas, sin medio de contraste.
+8512 | B018 | Establecimientos de atención con servicios de diagnóstico por ultrasonido.
+8512 | B019 | Establecimientos de atención con servicios en endoscopia
+8512 | B020 | Establecimientos de atención con servicios de terapia láser.
+8512 | B021 | Establecimientos con servicios de cirugía menor.
+8512 | B022 | Establecimientos con servicios de cirugía oftalmológica ambulatoria
+8519 | B023 | Establecimientos con servicios de citopatología.
+8519 | B024 | Establecimientos con servicio de vacunación y de inyectables.
+5231 | B025 | Establecimientos de atención farmacéutica. Se exceptúan las farmacias contempladas en los establecimientos A001.
+8512 | B026 | Establecimientos sedes de los Equipos Básicos de Atención Integral en Salud (EBAIS) ubicados en el primer nivel de atención.
+8512 | B027 | Establecimiento de atención con servicios de cámara hiperbárica.
+9309 | B028 | Establecimientos o centros de acondicionamiento físico.
+8511 | B029 | Establecimientos de atención a personas con discapacidad en la modalidad de institución residencial.
+9309 | B030 | Establecimientos o centros de tatuajes y perforaciones corporales.
+8519 | B031 | Establecimientos de atención con servicios de terapias alternativas y complementarias, con procedimientos invasivos y la utilización de remedios de origen natural u homeopático.
+8512 | B032 | Establecimientos con servicios transitorios de hospedaje y alimentación con cuidados médicos y de enfermería.
+8519 | B033 | Establecimientos donde se ejerzan otras profesiones en ciencias de la salud, sin que medie prescripción medicamentosa y la realización de procedimientos invasivos.
+8512 | B034 | Ferias de la salud
 Establecimientos del Grupo C:
 CIIU | Código | Tipo de establecimiento
-85190 | C001 | Establecimientos de atención ambulatoria especializada para personas con problemas en el consumo de alcohol y otras drogas.
-85120 | C002 | Establecimientos de atención con servicios de electro diagnóstico.
-85310 | C003 | Establecimientos que brindan atención a personas con discapacidad en la modalidad de alternativas residenciales.
-85190 | C004 | Establecimientos con servicios de atención en quiropráctica.
-85190 | C005 | Establecimientos de atención con servicios de optometría.
-85190 | C006 | Establecimientos de atención Ambulatoria por profesionales en Enfermería en Salud Mental.
-85190 | C007 | Establecimientos de atención Ambulatoria por profesionales en Enfermería Obstétrica.
-85190 | C008 | Establecimiento con servicios de atención en productos naturales y expendio de productos naturales conocidas como macrobióticas.
-85190 | C009 | Establecimientos con servicios de laboratorios dentales.”
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36985 del 13 de enero del 2012)
+8519 | C001 | Establecimientos de atención ambulatoria especializada para personas con problemas en el consumo de alcohol y otras drogas.
+9309 | C002 | Establecimientos de atención con servicios de estética, cosmetología, peluquería y salas de belleza de moderado y bajo riesgo.
+8519 | C003 | Establecimientos de atención con servicios de electrodiagnóstico.
+8519 | C004 | Ambulancias de Tipo B: Soporte Intermedio.
+8519 | C005 | Ambulancias de Tipo C: Soporte Básico.
+8519 | C006 | Vehículos de rescate.
+8519 | C007 | Vehículos de primera intervención extrahospitalaria en dos y cuatro ruedas.
+8531 | C008 | Establecimientos que brindan atención a personas con discapacidad en la modalidad de alternativas residenciales
+8519 | C009 | Establecimientos con servicios de atención en quiropráctica.
+8519 | C010 | Establecimientos de atención con servicios de optometría
+5231 | C011 | Botiquines
+8519 | C012 | Establecimientos de atención Ambulatoria por profesionales en Enfermería en Salud Mental.
+8519 | C013 | Establecimientos de atención Ambulatoria por profesionales en Enfermería Obstétrica.
+5231 | C014 | Establecimiento con servicios de atención en productos naturales y expendio de productos naturales conocidas como macrobióticas.
+8531 | C015 | Establecimientos de atención con servicios de albergues para la Atención de las personas que con V.I.H. / SIDA mayor de 18 años hasta 65 años
+8519 | C016 | Establecimientos con servicios de atención en terapias alternativas y complementarias.
+9309 | C017 | Establecimientos de atención con servicios de bronceado corporal
+3311 | C018 | Establecimientos con servicios de laboratorios dentales”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37153 del 16 de abril del 2012)
