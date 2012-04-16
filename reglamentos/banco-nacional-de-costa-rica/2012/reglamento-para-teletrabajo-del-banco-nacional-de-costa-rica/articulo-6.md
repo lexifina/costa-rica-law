@@ -1,0 +1,1 @@
+Artículo 6º—Los derechos y obligaciones para ambas partes se mantendrán de acuerdo con el contrato de trabajo original y el ordenamiento jurídico vigente, que regula las relaciones laborales entre los trabajadores y el Banco Nacional; es decir, los teletrabajadores quedan amparados por los mismos derechos y obligaciones que tienen todos los colaboradores del Banco Nacional.

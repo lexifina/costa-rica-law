@@ -1,0 +1,1 @@
+Artículo 42.—La jefatura podrá requerir al teletrabajador la realización de actividades presenciales en las oficinas, para lo cual, debe acondicionar un espacio físico que disponga de conectividad y le permita al teletrabajador hacer sus funciones de forma transitoria en esos sitios.

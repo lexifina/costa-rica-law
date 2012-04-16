@@ -1,0 +1,1 @@
+Artículo 36.—El teletrabajador deberá recibir la capacitación que el Banco le provea, para mantenerse actualizado en la utilización de las herramientas tecnológicas, requeridas para la ejecución de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 2º—En el Banco Nacional el objetivo del teletrabajo es aprovechar el desarrollo de las tecnologías de la información y las comunicaciones para mejorar la productividad y calidad de vida de los colaboradores, en beneficio de la Institución y la sociedad.

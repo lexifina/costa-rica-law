@@ -1,0 +1,1 @@
+Artículo 20.—El Banco podrá, según sus propios criterios, establecer centros de trabajo o puntos de contacto, hacia los cuales el teletrabajador pueda o deba acudir ocasional o regularmente para efectuar algunas de sus labores.

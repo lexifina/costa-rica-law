@@ -1,0 +1,1 @@
+Artículo 30.—El Área de Recursos Humanos debe actualizar y administrar la información de los colaboradores que laboran bajo la modalidad de teletrabajo, mediante el expediente administrativo de cada Colaborador.

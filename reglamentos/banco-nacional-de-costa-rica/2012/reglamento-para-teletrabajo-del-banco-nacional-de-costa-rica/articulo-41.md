@@ -1,0 +1,1 @@
+Artículo 41.—Cuando el rendimiento de los teletrabajadores no cumpla con lo programado, se debe realizar un análisis de las causas y junto con las evaluaciones anteriores, remitirlo al superior jerárquico para resolver lo correspondiente.

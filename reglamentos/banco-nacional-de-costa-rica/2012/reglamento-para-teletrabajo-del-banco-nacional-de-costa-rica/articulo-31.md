@@ -1,0 +1,1 @@
+Artículo 31.—Para optar al teletrabajo, cada colaborador debe aprobar el proceso de evaluación que se definirá por parte del Banco, para identificar a los trabajadores con un perfil adecuado para el teletrabajo.

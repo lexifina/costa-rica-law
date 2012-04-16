@@ -1,0 +1,1 @@
+Artículo 34.—El teletrabajador debe firmar un addendum al contrato de trabajo, donde se especifican las condiciones mínimas del teletrabajo y acatar las disposiciones establecidas en el presente Reglamento.

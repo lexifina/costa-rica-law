@@ -1,0 +1,1 @@
+Artículo 47.—Cuando las razones que dieron lugar a la modalidad de teletrabajo finalicen, el colaborador prestará sus servicios en las instalaciones del Banco conforme a las reglas de la relación laboral.

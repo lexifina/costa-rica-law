@@ -1,0 +1,1 @@
+Artículo 14.—El Banco Nacional reconocerá el pago de horas extras para los teletrabajadores, siempre que exista un acuerdo previo sobre la extensión de la jornada laboral entre el teletrabajador y una jefatura superior de éste.

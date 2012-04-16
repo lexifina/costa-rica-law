@@ -1,0 +1,1 @@
+Artículo 28.—El teletrabajador es responsable directo de la confidencialidad y seguridad de la información que utilice y pueda acceder, evitando por todos los medios razonables su uso inapropiado, debiendo asumir la responsabilidad que corresponda, de acuerdo con las normativas del Banco.

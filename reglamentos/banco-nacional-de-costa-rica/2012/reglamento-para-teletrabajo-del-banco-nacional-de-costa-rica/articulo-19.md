@@ -1,0 +1,1 @@
+Artículo 19.—El teletrabajador se compromete a proveer el espacio físico donde desempeñe su puesto, el cual deberá cumplir con las condiciones ambientales y ergonómicas que establezca el Banco para el desarrollo idóneo de la modalidad de teletrabajo.

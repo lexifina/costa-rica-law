@@ -1,0 +1,1 @@
+Artículo 27.—El teletrabajador deberá conocer, cumplir y acatar en todos sus extremos las Leyes, Reglamentos, Manuales, Normativa, Procedimientos e Instructivos establecidos por el Banco para la realización de las funciones mediante el teletrabajo.
