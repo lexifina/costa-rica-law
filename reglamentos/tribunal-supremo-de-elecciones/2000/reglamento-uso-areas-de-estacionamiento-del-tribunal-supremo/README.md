@@ -14,3 +14,4 @@ Reglamento Uso Areas de Estacionamiento del Tribunal Supremo de Elecciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-04 | la propia norma |
+| 2 | 2012-04-17 | Decreto TSE 4 (2012-04-17) |
