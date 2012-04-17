@@ -1,0 +1,1 @@
+Artículo 3.—Vigencia. Esta reforma rige un mes después de publicada en el Diario Oficial, por lo que el estudio de contratos presentados ante la Contraloría General antes de esa fecha, concluirá según lo dispuesto en la reglamentación modificada.
