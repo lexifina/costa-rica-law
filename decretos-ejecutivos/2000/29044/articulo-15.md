@@ -1,1 +1,2 @@
-Artículo 15.—Los proyectos serán financiados por un máximo de tres meses, sin embargo podrá prorrogarse la ayuda dependiendo de la naturaleza del proyecto y siempre y cuando exista el criterio técnico de una institución u organización reconocida.
+Artículo 15.- Los proyectos serán financiados por un máximo de tres meses, sin embargo podrá prorrogarse la ayuda dependiendo de la naturaleza del proyecto, siempre y cuando exista criterio técnico de una Institución u Organización reconocida. En proyectos de capacitación ocupacional, el financiamiento se otorgará por el mismo tiempo de duración del Programa de Formación, siempre que no supere el ejercicio presupuestario del año.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37143 del 18 de abril del 2012)
