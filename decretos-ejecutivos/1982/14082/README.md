@@ -64,3 +64,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 49 | 2010-01-26 | Decreto Ejecutivo 35794 (2010-01-26) |
 | 50 | 2011-04-15 | SINALEVI (sin norma nombrada) |
 | 51 | 2011-06-29 | Decreto Ejecutivo 36644 (2011-06-29) |
+| 52 | 2012-04-18 | Decreto Ejecutivo 37073 (2012-04-18) |
