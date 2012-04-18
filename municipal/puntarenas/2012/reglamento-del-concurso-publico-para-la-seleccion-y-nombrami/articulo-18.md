@@ -1,0 +1,1 @@
+Artículo 18.—Registro de elegibles. Los concursantes que obtengan nota superior a 70 puntos y no resultaren ganadores, quedarán en condición de elegibles para ocupar el puesto en el futuro. Lo cual los dispensa de participar en concursos posteriores o en procesos de evaluación.

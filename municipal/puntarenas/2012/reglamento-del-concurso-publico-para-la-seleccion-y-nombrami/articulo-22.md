@@ -1,0 +1,1 @@
+Artículo 22.—Comunicación de resultados. Una vez recibido el refrendo del nombramiento de la Contraloría, la Comisión Especial para el Nombramiento del Auditor Interno deberá indicar por escrito a cada participante, el puntaje obtenido, la condición en la que queda ubicado y el respectivo agradecimiento por la participación.

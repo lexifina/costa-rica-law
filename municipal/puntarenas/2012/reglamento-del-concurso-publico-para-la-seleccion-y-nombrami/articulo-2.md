@@ -1,0 +1,1 @@
+Artículo 2º—Establecimiento de una comisión especial. Para proceder al nombramiento del Auditor Interno, el Concejo Municipal mediante acuerdo firme, establecerá una comisión especial con representación de todas las fracciones representadas en el Concejo Municipal, con la finalidad de que dicha comisión lleve adelante el proceso de escogencia de los candidatos al puesto.
