@@ -1,0 +1,1 @@
+Artículo 20. —Derechos que confiere la distinción. Esta distinción sólo se le confiere a la persona merecedora de la misma, el derecho a voz en las asambleas generales ordinarias o extraordinarias del Colegio.

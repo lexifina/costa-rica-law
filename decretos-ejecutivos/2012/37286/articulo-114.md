@@ -1,0 +1,2 @@
+Artículo 114. —Plazos para inscribir candidaturas. En elecciones ordinarias, el plazo para inscribir candidaturas concluye treinta y cinco días hábiles antes del segundo jueves de julio de cada año.
+En elecciones extraordinarias, finalizará 15 días hábiles antes de la fecha de la Asamblea respectiva. En ambos casos si el último día fuere inhábil se prorrogará el plazo para el día hábil inmediato siguiente.

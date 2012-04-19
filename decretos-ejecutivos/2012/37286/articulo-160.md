@@ -1,0 +1,1 @@
+Artículo 160. — Supervisión de las personas Auxiliares de Enfermería. Las personas Auxiliares de Enfermería en los ámbitos públicos y privado, trabajarán bajo la coordinación y supervisión continuas de profesionales en enfermería en todos los horarios y niveles de atención en salud que brinden los establecimientos dedicados a ofrecer servicios en el área de la salud.

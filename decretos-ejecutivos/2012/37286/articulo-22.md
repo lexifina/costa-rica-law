@@ -1,0 +1,1 @@
+Artículo 22. —Registro de miembros honorarios. El Colegio llevará un registro de las personas miembros honorarios. A este registro se aplicará lo dispuesto en el presente reglamento para los registros de profesionales y auxiliares de enfermería, en lo que fuere pertinente y la fecha del acuerdo respectivo.

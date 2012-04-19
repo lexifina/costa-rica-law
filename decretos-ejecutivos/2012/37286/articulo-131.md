@@ -1,0 +1,1 @@
+Artículo 131. —Impedimento físico. El Profesional de Enfermería que por impedimento físico le dificulte emitir su voto en la forma en que se dispone en el artículo precedente, podrá hacerlo públicamente. En cuyo caso expresará ante la persona que ostenta la presidencia de la mesa receptora, su decisión, quien acto seguido realizará el voto de acuerdo con la voluntad del elector.

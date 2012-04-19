@@ -1,0 +1,1 @@
+Artículo 54. —Levantamiento de actas. La secretaría será la responsable del orden de las actas en el libro respectivo y de la custodia y fidelidad de las mismas, debiendo presentar un informe a la Junta Directiva dentro de un plazo de tres meses.

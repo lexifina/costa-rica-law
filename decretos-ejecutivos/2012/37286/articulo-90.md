@@ -1,0 +1,1 @@
+Artículo 90. —Satisfacción del informe pericial. Cuando se haya recibido de conformidad el dictamen, o se haya entregado la ampliación solicitada, el Consejo Calificador del Ejercicio de la Enfermería, solicitará a la Administración efectuar el pago de los honorarios profesionales, hechas las rebajas o incluidos los reajustes que en Derecho correspondan.

@@ -1,0 +1,2 @@
+Artículo 158. —Requisitos para el ejercicio del auxiliar de enfermería. Toda persona que desee trabajar como Auxiliar de Enfermería deberá haber completado un Programa de Formación para Auxiliares de Enfermería autorizado y supervisado por el Colegio de Enfermeras de Costa Rica. Además, deberá contar con una licencia extendida por el Colegio para estos efectos.
+Las personas profesionales de enfermería podrán desempeñarse como auxiliares de enfermería, para lo cual únicamente requieren la licencia profesional.

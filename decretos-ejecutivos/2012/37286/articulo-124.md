@@ -1,0 +1,1 @@
+Artículo 124. —Temporalidad de la propaganda. La publicidad del proceso de elecciones se iniciará cuando sea admitida la candidatura y concluirá el día de las elecciones. No es admisible la propaganda en el propio recinto electoral.

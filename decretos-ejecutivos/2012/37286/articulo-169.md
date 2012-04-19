@@ -1,0 +1,1 @@
+Artículo 169. —Obligación de pagar la cuota mensual. Suspensión por no pago. Los profesionales incorporados tienen la obligación de pagar la cuota mensual. Si dejaren de cancelar dos mensualidades consecutivas, la Junta Directiva procederá a la suspensión temporal del ejercicio de los derechos hasta tanto se ponga al día con sus obligaciones ante el Colegio.

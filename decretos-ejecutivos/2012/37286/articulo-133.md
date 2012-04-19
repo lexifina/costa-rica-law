@@ -1,0 +1,1 @@
+Artículo 133. —Requisito. Apertura proceso. Aquellas sedes de votación que no concurran con 2 miembros de mesa propietarios o el suplente, no se hará la apertura del proceso electoral. En caso de que la ausencia sea injustificada se pondrá la denuncia ante el Tribunal de Moral Profesional para lo que corresponda.

@@ -1,0 +1,5 @@
+CAPÍTULO V
+Del Registro
+Artículo 16. —Registro de Profesionales de Enfermería y auxiliares. El Colegio llevará un registro foliado y un archivo de la incorporación inscripción de los profesionales de enfermería. Así como un registro y Archivo de inscripción del auxiliar de enfermería.
+El registro contendrá fecha y número de partida, nombre y apellidos, fecha de nacimiento, estado civil, lugar de residencia, número de cédula de identidad y de licencia, universidad que otorga el título o el certificado de estudios, años de estudio, puestos desempeñados, posición actual, institución donde trabaja, grados académicos y observaciones. Estos se actualizarán cada vez que se renueva la licencia o así lo solicite el interesado.
+El Colegio llevará un expediente por cada uno de sus miembros incorporados. Habrá concordancia entre el número de expediente y el de licencia. Dicho expediente tendrá el mismo número de la licencia y será formado consignando en la cara interna una lista de los documentos que en él se encuentran, al pie el sello del Colegio y la firma del Secretario de la Junta Directiva o de quien ella designe.

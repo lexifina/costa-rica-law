@@ -1,0 +1,1 @@
+Artículo 164. —Promover el desarrollo de los auxiliares de enfermería. El Colegio promoverá el desarrollo de los auxiliares de enfermería, mediante reuniones para tratar temas de interés, cursos de actualización y formación ética.

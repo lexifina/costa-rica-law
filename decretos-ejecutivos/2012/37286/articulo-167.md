@@ -1,0 +1,1 @@
+Artículo 167. —Cuota de incorporación. Órgano competente para fijarla. La Asamblea General, a solicitud de la Junta Directiva, previo dictamen financiero, fijará periódicamente el monto correspondiente a la cuota de incorporación de nacionales y extranjeros.

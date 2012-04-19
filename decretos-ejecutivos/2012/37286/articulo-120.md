@@ -1,0 +1,1 @@
+Artículo 120. —Contenido. Cada papeleta deberá contener claramente los nombres de los candidatos con sus fotos correspondientes y el puesto que aspira y espacio para consignar el voto. En el reverso de la misma constará el espacio para la firma de la presidencia y de la secretaría de mesa.

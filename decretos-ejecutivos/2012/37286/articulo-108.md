@@ -1,0 +1,1 @@
+Artículo 108. —Deber de colaboración con el Tribunal. El Tribunal Electoral solicitará a los distintos órganos del Colegio la colaboración que se requiera y los diferentes órganos del Colegio tienen el deber de prestarla en aras de garantizar la pureza y eficacia del proceso electoral.

@@ -1,0 +1,1 @@
+Artículo 57. —Pago derechos de incorporación o inscripción. El monto por concepto de derechos de incorporación para profesionales de enfermería nacionales o extranjeros y de inscripción de auxiliares de enfermería, serán aprobados por la Asamblea General a propuesta de la Junta Directiva, previo estudio financiero que así lo recomiende.

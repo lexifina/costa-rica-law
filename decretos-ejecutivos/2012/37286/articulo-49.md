@@ -1,0 +1,1 @@
+Artículo 49. —Integración. Los miembros de las comisiones serán nombrados por la Junta Directiva, entre profesionales de enfermería destacados en el área objeto de conocimiento de la respectiva comisión.

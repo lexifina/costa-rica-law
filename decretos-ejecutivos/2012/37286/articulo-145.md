@@ -1,0 +1,1 @@
+Artículo 145. —Sobre la votación en los centros regionales. Los profesionales de enfermería que se incluyan en ese padrón sólo podrán votar en la región y en las mesas respectivas, por lo que los nombres se excluirán de los padrones que se empleen en la sede central o en otras sedes.

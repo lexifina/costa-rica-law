@@ -1,0 +1,1 @@
+Artículo 148. —Responsabilidades en el recinto electoral. La revisión de las urnas y todas las responsabilidades que en la sede central correspondan al Tribunal Electoral, serán ejercidas por la persona que ejerza la presidencia de la mesa receptora de votos o bien por el suplente, teniendo como testigos a los delegados de los partidos.

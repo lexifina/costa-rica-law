@@ -1,0 +1,1 @@
+Artículo 97. —De las elecciones. Las elecciones deberán celebrarse necesariamente el segundo jueves del mes de julio de cada año de manera ininterrumpida, desde las 6 horas de la mañana hasta las 18 horas. En caso de interrupciones del proceso por razones de fuerza mayor, el Tribunal indicará la fecha y hora de celebración de las elecciones.

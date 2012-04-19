@@ -1,0 +1,1 @@
+Artículo 19. —Aprobación de las candidaturas. La Junta directiva presentará la recomendación de la Comisión ante la Asamblea General. Corresponde a la Asamblea General, por dos terceras partes de los votos presentes, aprobar el otorgamiento de la distinción.

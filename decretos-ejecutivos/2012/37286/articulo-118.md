@@ -1,0 +1,1 @@
+Artículo 118. —Plazo para pronunciarse sobre la admisión o inadmisión de candidaturas. El Tribunal deberá emitir pronunciamiento sobre las candidaturas propuestas dentro de los cinco días hábiles siguientes al vencimiento del plazo para su inscripción.

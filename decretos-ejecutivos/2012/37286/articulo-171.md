@@ -1,0 +1,1 @@
+Artículo 171. —Beneficios económicos. Todas las personas colegiadas gozarán de los beneficios económicos del fondo de mutualidad y del sistema de préstamos de conformidad con la reglamentación respectiva.

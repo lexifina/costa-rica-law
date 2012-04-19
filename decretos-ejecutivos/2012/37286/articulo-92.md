@@ -1,0 +1,5 @@
+Artículo 92. —Faltas. Constituirán faltas de los peritos en enfermería los siguientes casos de acuerdo a su gravedad:
+a) Falta leve: aquellos casos en los que el perito presente extemporáneamente el dictamen o su ampliación, siempre y cuando la dilación en ambos casos no supere los cinco días hábiles.
+b) Falta grave: en los casos en los que el perito se niegue a entregar un dictamen que haya aceptado rendir, o lo presente de forma tardía, siempre y cuando la tardanza sea superior a cinco días hábiles.
+c) Falta gravísima: incumplimiento total e injustificado de las obligaciones contraídas.
+La reiteración de tres faltas leves o la falta grave dará lugar a la exclusión del registro respectivo, salvo que el perito aporte justificaciones suficientes que justifiquen la infracción cometida, todo a juicio del Consejo. En caso de falta gravísima será eliminado de la lista del registro de peritos. Contra lo resuelto por el Consejo cabrán los recursos ordinarios que señala la Ley General de la Administración Pública. El recurso de apelación lo resolverá la Junta Directiva.

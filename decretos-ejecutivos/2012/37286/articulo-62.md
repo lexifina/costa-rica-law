@@ -1,0 +1,7 @@
+Artículo 62. —Trámite de quejas y denuncias contra los miembros de la Junta Directiva. El procedimiento disciplinario se regirá por las normas y principios contenidos en la Ley General de la Administración Pública y la Jurisprudencia de la Sala Constitucional.
+a) El Tribunal de Moral Profesional deberá de dar trámite, abrir el procedimiento, notificar a los supuestos infractores, otorgar la audiencia y oportunidad amplia de defensa a las partes, realizar las averiguaciones del caso, evacuar la prueba, dictar de manera motivada las recomendaciones correspondientes y convocar a la Asamblea General para que conozca del caso.
+b) Junto a la queja o denuncia, el denunciante deberá acompañar la prueba que tuviere en su poder.
+c) La Junta Directiva, a solicitud del Tribunal, contribuirá en todo lo que sea necesario para la realización efectiva de la Asamblea General.
+d) La omisión en el cumplimiento de estos deberes, tanto por los miembros del Tribunal como de la Junta Directiva, implicará la destitución del o los funcionarios según corresponda.
+e) Si la queja o denuncia es manifiestamente infundada, el Tribunal de Moral Profesional podrá rechazarla de plano, mediante resolución debidamente motivada. De lo resuelto cabrá el recurso de apelación ante la Asamblea General.
+f) Para todo lo que fuere aplicable se tomará en cuenta los principios y normas del Código de Ética y Moral Profesional.

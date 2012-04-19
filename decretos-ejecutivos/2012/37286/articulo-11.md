@@ -1,0 +1,3 @@
+Artículo 11. —Anotaciones de enfermería en el expediente. Las personas profesionales en enfermería deben registrar en el expediente de salud y otros documentos, la información generada en el proceso de atención a las personas y de la intervención de otros profesionales en la atención, para salvar posibles responsabilidades.
+En caso de emergencia, las personas profesionales de enfermería deberán registrar las indicaciones verbales o que por cualquier otro medio haya recibido, una vez realizada la acción, anotando hora, fecha y persona que brinda la indicación, de ser posible procurará testigos.
+Corresponde a las personas profesionales en enfermería supervisar las anotaciones que el personal auxiliar realiza en el expediente y otros registros.

@@ -1,0 +1,1 @@
+Artículo 161. —Renovación de licencia. La licencia de auxiliar de enfermería deberá renovarse cada dos años, contados a partir del momento de la inscripción. El interesado deberá pagar el costo de dicho trámite.

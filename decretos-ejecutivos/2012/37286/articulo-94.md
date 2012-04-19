@@ -1,0 +1,2 @@
+Artículo 94. —De la notificación del informe. El perito deberá entregar tres originales al Consejo Calificador del Ejercicio de la Enfermería del dictamen pericial rendido. Un original será para el archivo del Colegio y los otros dos para la parte solicitante.
+El Consejo Calificador del Ejercicio de la Enfermería será el encargado de notificar al solicitante de la rendición del peritaje y de su debida entrega.

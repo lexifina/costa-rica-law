@@ -1,0 +1,1 @@
+Artículo 138. —Acondicionamiento recinto de votación. Para garantizar la imparcialidad a la hora de emitir el voto, se acondicionará un lugar separado de la mesa receptora de modo que impida cualquier acción por parte de terceros que pueda interferir en la decisión de los electores.

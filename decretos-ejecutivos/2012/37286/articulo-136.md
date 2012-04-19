@@ -1,0 +1,1 @@
+Artículo 136. —Nombramiento de miembros en las mesas de votación. Cada tendencia nombrará en las mesas de votación un delegado propietario y un suplente. La identificación que los acredite como tal, será entregada por el Tribunal Electoral. La lista de delegados por tendencia será entregada en el momento de la inscripción de la papeleta ante el Tribunal Electoral.

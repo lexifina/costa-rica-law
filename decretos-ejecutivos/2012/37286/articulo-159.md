@@ -1,0 +1,1 @@
+Artículo 159. —De los Programas de Formación. Responsables. Los programas de formación de auxiliares de enfermería, estarán sujetos a la aprobación y supervisión del Colegio de Enfermeras de Costa Rica. Los cursos de estos programas, solo podrán ser impartidos por personas profesionales en enfermería con experiencia en campo clínico de cinco años y experiencia en la docencia.

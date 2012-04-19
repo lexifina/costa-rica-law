@@ -1,0 +1,1 @@
+Artículo 154. —Procedimiento. Para la realización del referéndum se utilizará en todo lo que resultare aplicable el procedimiento, órganos, normas y principios que informan el proceso electoral establecido en este reglamento.

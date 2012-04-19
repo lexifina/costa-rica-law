@@ -1,0 +1,1 @@
+Artículo 126. —Actividades de los partidos o candidaturas. Los que integran una papeleta tienen derecho a realizar actividades para la elección, tales como: mesas redondas, reuniones orientadas a exaltar los méritos de los candidatos, la exposición de proyectos o programas en el evento de ser electos, en los diversos medios de comunicación.

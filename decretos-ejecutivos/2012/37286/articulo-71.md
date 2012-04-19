@@ -1,0 +1,2 @@
+Artículo 71. —Archivo de informes y dictámenes periciales. El Colegio llevará un archivo con todo lo relativo a la actividad pericial: correspondencia, informes o dictámenes periciales, resolución de conflictos, integración del Consejo Calificador, actas del Consejo, opiniones de los usuarios, entre otros.
+El archivo le permitirá a la Junta Directiva contar con información valiosa para la evaluación periódica de la actividad.

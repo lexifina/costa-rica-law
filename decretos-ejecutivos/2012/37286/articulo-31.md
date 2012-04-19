@@ -1,0 +1,3 @@
+Artículo 31. —De las convocatorias. Las convocatorias para celebrar las asambleas generales de colegiados se efectuarán de la siguiente manera:
+a) Ordinarias: Deberá celebrarse una vez al año, el tercer jueves del mes de julio.
+b) Extraordinarias: Las que a juicio de la Junta Directiva sean necesario convocar y cuando así la soliciten a ese mismo órgano el setenta y cinco profesionales activos, por escrito y exponiendo el asunto o asuntos a tratar o bien, cuando lo solicite la Fiscalía para conocer asuntos propios de su cargo, o el Tribunal de Moral Profesional en los supuestos establecidos en este Reglamento. La fecha de la Asamblea la fijará la Junta Directiva.

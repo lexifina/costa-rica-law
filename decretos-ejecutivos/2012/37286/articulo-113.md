@@ -1,0 +1,1 @@
+Artículo 113. —De las candidaturas. Podrá proponerse como candidato de una tendencia cualquier persona profesional de enfermería que no forme parte de la Junta Directiva. Si los aspirantes forman parte del Tribunal de Moral Profesional o del Tribunal Examinador, deberán renunciar con un mes de antelación para proponer su candidatura a las elecciones de Junta Directiva.

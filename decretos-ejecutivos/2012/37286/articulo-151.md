@@ -1,0 +1,2 @@
+Artículo 151. —Actuaciones contrarias al proceso electoral. Cualquier actuación contraria a lo preceptuado en este reglamento y demás disposiciones legales que rigen el Colegio, se presumirá ilegítima y absolutamente nula.
+Asimismo, cualquier manifestación o acto que se aparte de la moral y las buenas costumbres, el Tribunal Electoral, se sujetará supletoriamente a las disposiciones del ordenamiento jurídico.

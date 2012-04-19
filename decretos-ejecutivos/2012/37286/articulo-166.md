@@ -1,0 +1,2 @@
+Artículo 166. —Cuota ordinaria. Órgano competente para aprobarla. La cuota periódica ordinaria, que pagarán todos los incorporados o incorporadas al Colegio servirá para atender los gastos administrativos. Un porcentaje de la misma se destinará al Fondo de Mutualidad y otros Beneficios Económicos, según la norma reglamentaria especifica.
+La cuota será fijada por la Asamblea General y podrá acordar cuotas extraordinarias cuando lo considere oportuno.

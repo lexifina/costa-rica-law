@@ -1,0 +1,2 @@
+Artículo 77. —Prueba pericial de enfermería en la vía judicial. En vía jurisdiccional, el profesional de enfermería podrá solicitar al órgano jurisdiccional que conozca su caso, que se tenga como prueba pericial incorporada a los autos, el criterio pericial que sobre su caso pueda verter o haya vertido el Consejo Calificador del Ejercicio de la Enfermería. Es entendido, que dicha prueba será valorada libremente por el órgano jurisdiccional correspondiente.
+Para ello, el Consejo contará con dos meses para dictaminar el peritaje requerido.

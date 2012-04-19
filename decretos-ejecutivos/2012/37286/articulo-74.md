@@ -1,0 +1,1 @@
+Artículo 74. —De las convocatorias. El Consejo Calificador del Ejercicio de la Enfermería se reunirá ordinariamente una vez al mes y extraordinariamente cada vez que sea convocado por el Presidente del Consejo, debiendo para ello comunicar de forma escrita a los demás miembros, con cinco días hábiles de antelación.

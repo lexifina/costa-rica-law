@@ -1,0 +1,5 @@
+CAPÍTULO XIII
+De la Fiscalía
+Artículo 46. —Definición. La fiscalía es un órgano que actúa con independencia de criterio, integrada por un fiscal de elección popular, que durará en su cargo dos años, al que le corresponderá velar por el estricto cumplimiento de las normas legales y reglamentarias que corresponde respetar y cumplir a todos los colegiados, pudiendo efectuar una investigación preliminar de manera oficiosa o por denuncia del interesado.
+El fiscal podrá nombrar fiscales asistentes, removidos por este, para realizar las funciones que el fiscal le encomiende dentro de sus funciones. Los asistentes deberán ser profesionales de la enfermería debidamente incorporados al Colegio. Podrán ejercer sus funciones ad honoren o de forma remunerada. Su nombramiento y remoción deberá comunicarse a todos los agremiados por los medios más eficaces. El Colegio les atorgará un carné, firmado por la Presidencia y la Fiscalía durante el tiempo de su nombramiento que los acredite como tales. El presupuesto contemplará la
+partida correspondiente.

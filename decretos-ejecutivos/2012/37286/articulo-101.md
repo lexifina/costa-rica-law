@@ -1,0 +1,1 @@
+Artículo 101. —Del escrutinio. Concluido el proceso de votación, el Tribunal establecerá la forma, tiempo y lugar en que se harán llegar los resultados de cada una de las mesas receptoras, para proceder directamente al respectivo escrutinio, el cual se llevará a cabo en la oficina de dicho Tribunal, en la Sede Central del Colegio.

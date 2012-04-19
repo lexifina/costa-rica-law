@@ -1,0 +1,2 @@
+Artículo 12. —Guía para el cobro de honorarios. Los profesionales de enfermería que presten sus servicios en la práctica privada liberal, podrán cobrar sus honorarios tomando en consideración entre otros factores, la complejidad del servicio, la duración o temporalidad de la relación contractual, su especialidad, las condiciones geográficas de trabajo.
+La Junta Directiva del Colegio elaborará una guía para tal efecto. Sólo los profesionales de enfermería podrán realizar ejercicio liberal en la prestación de servicios de enfermería.

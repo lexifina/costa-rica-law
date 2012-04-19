@@ -1,0 +1,1 @@
+Artículo 141. —Sobre la denuncia de los fiscales. Los fiscales de cada tendencia tendrán la facultad de denunciar ante el Tribunal Electoral, cualquier hecho irregular que se presente en el transcurso de la votación.

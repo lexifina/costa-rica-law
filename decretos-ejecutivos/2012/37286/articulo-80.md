@@ -1,0 +1,1 @@
+Artículo 80. —Prohibición. No podrán ejercer como peritos en enfermería, en los términos de este reglamento, aquellos profesionales que tengan una relación de parentesco, por consanguinidad o afinidad hasta la tercera generación.

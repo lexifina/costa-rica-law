@@ -1,0 +1,1 @@
+Artículo 144. —Confección del padrón regional. Para efectos de la confección del padrón regional adicional, los petentes deberán proporcionar la siguiente información: nombre, número de licencia y número de cédula de los electores de la región, con el propósito de que el Tribunal Electoral confeccione un padrón que se utilizará en esas mesas.

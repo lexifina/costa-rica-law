@@ -1,0 +1,4 @@
+Artículo 5º—Régimen jurídico. El Colegio, por su naturaleza de ente público no estatal, tiene un régimen jurídico mixto, es así que en lo relativo a la disciplina de los profesionales de enfermería por infracciones contra los deberes propios de la profesión; en la revisión de los requisitos para la incorporación, el otorgamiento de licencias, el registro; así como las competencias de la Junta Directiva, la Asamblea General, las Comisiones y los Tribunales internos o adscritos a él, se rige por el Derecho Público y sus principios.
+El régimen de empleo se rige por el Código de Trabajo y el Reglamento interno; y la contratación de
+bienes y servicios por el Derecho Privado y sus principios. En este último caso, sin perjuicio de que
+en el caso de que se gestionen fondos públicos, se encuentren sometidas a las normas y principios de la contratación administrativa y al control y fiscalización de la Contraloría General de la República.
