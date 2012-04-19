@@ -28,3 +28,4 @@ Reglamento de Construcciones
 | 13 | 2005-10-24 | Reglamento 5508 (2005-10-24) |
 | 14 | 2009-05-27 | SINALEVI (sin norma nombrada) |
 | 15 | 2009-09-16 | Reglamento 5764 (2009-09-16) |
+| 16 | 2012-04-19 | Reglamento 5936 (2012-04-19) |
