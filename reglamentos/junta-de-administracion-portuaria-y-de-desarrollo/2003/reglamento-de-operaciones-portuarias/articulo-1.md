@@ -23,8 +23,11 @@ b. Área Portuaria: Son todas las áreas de fondeo en la dársena, canales de ac
 14) Responsable de la nave: El propietario o dueño debidamente identificado, apoderado legal, representante, capitán de la nave, armador o fletador de la nave.
 15) Manifiesto de carga: Es el documento extendido por la Compañía Naviera (porteador), o el agente naviero en el puerto o puertos de carga, el cual será entregado a la Autoridad Portuaria y que contiene un resumen de la información de los conocimientos del embarque.
 Cuando hay mercancía peligrosa se requiere que el manifiesto exprese dicha condición, y que indique el número de unidades, clase de mercancía y medidas de seguridad que deben tomarse en el embarque.
-15) Cargas recibida fuera de manifiesto: Es el cobro que se aplica a los contenedores, a la carga de importación o exportación que se recibe en el puerto y que no aparece en la documentación oficial recibida o por la falta de entrega del manifiesto de carga, su cobro se establece por contenedor lleno o vacío, por tonelada o fracción.
-(Así adicionado el punto 15) segundo anterior mediante sesión ordnaria N° 08-2011 de 24 de febrero de 2011)
+15) Cargas recibida fuera de manifiesto.
+Es el cobro que se aplica a los contenedores a la carga de importación o exportación que se recibe en el puerto y que no aparece en la documentación oficial recibida o por la falta de entrega del manifiesto de carga. Su cobro se establece por contenedor lleno o vacío, por tonelada o fracción.
+(Así adicionado el punto 15) segundo anterior mediante sesión ordinaria N° 08-2011 de 24 de febrero de 2011)
+(Así reformado el punto 15) segundo anterior mediante sesión ordinaria N°08-2012 del 19 de abril del 2012)
+(Corregido el punto 15) anterior mediante Fe de Erratas y publicada en La Gaceta N° 196 del 10 de octubre de 2012, página N° 79)
 16) Propietario en relación con la mercadería o carga: Es el exportador, importador, consignatario, embarcador o agente para la venta, embarque o desembarque de la mercancía o carga que indique el manifiesto. Para los efectos de responsabilidad ante JAPDEVA, el o los responsables serán la o las personas físicas o jurídicas que soliciten los servicios para dicha mercadería.
 17) Carga o mercancía: Todos los materiales de cualquier naturaleza, efectos o bienes que se movilizan para su exportación o importación, en el Puerto.
 18) Mercadería general: Carga que se moviliza en el puerto empacada, envasada, embalada, en atados o en piezas y graneles, que se estiban de manera convencional dentro de las bodegas de una embarcación.
