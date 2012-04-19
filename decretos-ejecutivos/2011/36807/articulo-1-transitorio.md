@@ -1,0 +1,1 @@
+Transitorio Único: El Servicio Nacional de Salud Animal (SENASA) del Ministerio de Agricultura y Ganadería mediante resolución razonada, deberá publicar en La Gaceta en un plazo no mayor de 30 días naturales, los métodos de muestreo y análisis de inocuidad utilizados para la verificación.
