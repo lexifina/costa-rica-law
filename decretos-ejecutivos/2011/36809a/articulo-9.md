@@ -1,0 +1,2 @@
+9. Toma de muestras y muestreo
+Para la toma de muestras de contenido neto, etiquetado, análisis fisicoquímicos y de residuos, se utilizara según corresponda, lo establecido en el Decreto Ejecutivo Nº 36234-MEIC del 30 de setiembre de 2010, Reforma Integral al Reglamento a la Ley Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 o en el Decreto Ejecutivo Nº 36457-MEIC-MAG-S, Oficialización de los métodos de análisis y muestreo mediante la norma CODEX STAN 234-1999 y sus enmiendas del 22 de noviembre de 2010.

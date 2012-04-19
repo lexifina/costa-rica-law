@@ -1,0 +1,2 @@
+8. Aditivos alimentarios
+Los aditivos permitidos en los alimentos considerados en este Reglamento Técnico deben ajustarse a lo establecido en el Decreto Ejecutivo Nº 31595-S, Reglamento de Notificación de Materias Primas, Registro Sanitario, Importación, Des almacenaje y Vigilancia de Alimentos y sus reformas, publicado en La Gaceta Nº 16 del 23 de enero de 2004 en su defecto en el proyecto del Reglamento Técnico Centroamericano sobre Aditivos, una vez que se adopte su resolución a nivel centroamericano.
