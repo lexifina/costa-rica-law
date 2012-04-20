@@ -14,3 +14,4 @@ Reglamento de las Asociaciones Administradoras de Sistemas de Acueductos y Alcan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-05 | la propia norma |
+| 2 | 2012-04-20 | Decreto Ejecutivo 37169 (2012-04-20) |
