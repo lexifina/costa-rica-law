@@ -1,0 +1,1 @@
+Artículo 17.—La aceptación de las donaciones, no implicará gastos por concepto de reparación, operación y mantenimiento, mayores a los que requieren los bienes similares propiedad del ICE, o los que normalmente arrienda, salvo que se demuestre la conveniencia institucional de recibir dicha donación.

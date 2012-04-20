@@ -1,0 +1,1 @@
+Artículo 18.—En los casos de las donaciones producto de importaciones temporales, se incluirá en el contrato o acuerdo respectivo, las normas y los procedimientos bajo los cuales los bienes se trasladarían al ICE, en especial en materia tributaria, en cuanto a la cancelación de impuestos de importación o exoneraciones.

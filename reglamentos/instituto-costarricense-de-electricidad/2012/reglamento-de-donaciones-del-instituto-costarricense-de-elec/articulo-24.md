@@ -1,0 +1,1 @@
+Artículo 24.—En el caso que el ICE decida aceptar una donación, se deberá seguir el proceso normal para su internación, activación, registro u otro que se requiera según los procedimientos vigentes en la materia, con el fin de que quede oficializada la transferencia del bien o los bienes donados.

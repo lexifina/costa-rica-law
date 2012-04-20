@@ -1,0 +1,1 @@
+Artículo 14.—Los desechos tóxicos, así declarados por el ICE o por cualquiera otra dependencia del Estado, no serán objeto de donación, salvo para efecto de su debido tratamiento, investigación y desecho, de conformidad con el ordenamiento jurídico.
