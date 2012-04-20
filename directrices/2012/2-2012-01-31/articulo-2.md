@@ -1,0 +1,1 @@
+Artículo 2°—Todas las Farmacias Veterinarias con el fin de cumplir con lo dispuesto en el artículo 40 del Decreto N° 28861-MAG deberán de usar las órdenes de compra oficiales, que deberán adquirir a través del Colegio de Médicos Veterinarios.
