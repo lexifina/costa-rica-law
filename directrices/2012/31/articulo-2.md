@@ -1,0 +1,1 @@
+Artículo 2.- Solicitar a las entidades e instituciones públicas del Subsector Energía, que procedan al análisis y trámite de los esquemas tarifarios requeridos para dar fiel cumplimiento a lo establecido en el artículo anterior, de acuerdo con sus competencias y lo establecido en el Plan Nacional de Desarrollo y Plan Nacional de Energía.
