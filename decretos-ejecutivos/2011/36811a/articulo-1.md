@@ -10,4 +10,7 @@ III.—Que no existe reglamentación específica en el país para este producto.
 Decretan:
 RTCR 441: 2010 REGLAMENTO TÉCNICO QUESO CREMA
 Artículo 1º—Aprobar el siguiente Reglamento Técnico:
-1. Objeto y ámbito de aplicación. El presente Reglamento Técnico tiene por objeto establecer las características y especificaciones que deben cumplir el Queso Crema destinado al consumo directo o elaboración posterior.
+1. OBJETO Y ÁMBITO DE APLICACIÓN
+El presente Reglamento Técnico se aplica a los quesos Crema destinados al consumo directo o a ulterior elaboración, que se ajustan a las definiciones del apartado 3 de este Reglamento.
+Nota: En algunos países, la denominación “Queso crema” se utiliza para designar quesos, tales como queso duro madurado con alto nivel de grasa, que no son conformes a la descripción del apartado 3, por lo que este reglamento no se aplica a dichos quesos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37178 del 9 de abril del 2012)
