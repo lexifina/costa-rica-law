@@ -1,0 +1,2 @@
+3. Definiciones. Para este Reglamento se tomarán en cuenta las definiciones establecidas en el Reglamento Técnico RTCR 407: 2007 General de quesos y la que se indica a continuación:
+Queso Crema: El Queso Crema es un queso blando, untable, cremoso, no madurado y sin corteza, con un sabor ácido, con una coloración que va del blanco al amarillo claro, sin agujeros y se puede mezclar fácilmente con otros alimentos.
