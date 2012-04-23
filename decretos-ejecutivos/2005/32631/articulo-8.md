@@ -1,3 +1,4 @@
-Artículo 8º—La Comisión sesionará en forma ordinaria una vez al mes y en forma extraordinaria cuando lo convoque el Presidente, en la sede de la Secretaría, salvo que por mayoría simple los miembros de la Comisión acordaran sesionar en otro lugar distinto.
-La Comisión podrá sesionar válidamente con la presencia de diez de sus miembros, cinco de los cuales deberán ser del sector público.
-Los acuerdos de la Comisión se adoptarán por mayoría simple de votos de los presentes. En caso de empate el Presidente ejercerá el voto de calidad.
+Artículo 8º—La Comisión sesionará en forma ordinaria dos veces al mes y en forma extraordinaria cuando lo convoque el Presidente, en la sede de la Secretaría, salvo que por mayoría simple los miembros de la Comisión acordaran sesionar en otro lugar distinto.
+La Comisión podrá sesionar válidamente con la presencia de la mitad más uno de sus integrantes.
+Los acuerdos de la Comisión se adoptarán por mayoría simple de votos de los presentes. En caso de empate el Presidente ejercerá el voto de calidad”. Los acuerdos relacionados sobre modificaciones al procedimiento de Evaluación de Impacto Ambiental serán sometidos a conocimiento de la Comisión Plenaria de la SETENA, para que se realicen las respectivas observaciones, correcciones y aprobación final.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37181 del 23 de abril del 2012)
