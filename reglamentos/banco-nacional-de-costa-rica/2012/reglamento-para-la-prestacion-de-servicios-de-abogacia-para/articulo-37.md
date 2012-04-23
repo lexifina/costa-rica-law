@@ -1,0 +1,2 @@
+Artículo 37.- Saldo al descubierto.
+Si adjudicados los bienes, el producto de dicha adjudicación no alcanzare para cancelar el total adeudado, el Abogado Externo, una vez recibida la instrucción por parte del Banco, cuenta con un plazo de tres días hábiles para presentar la liquidación que le entregue el Banco al Despacho Judicial, a fin de que se fije el saldo al descubierto, para proceder a perseguir otros bienes a los demandados.

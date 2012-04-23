@@ -1,0 +1,3 @@
+Artículo 45. -Evaluación de los servicios de abogacía en fase de ejecución.
+Corresponderá al Centro de Administración de Crédito o al CIPAC, según corresponda, la emisión de los reportes sobre la calidad de la prestación de los servicios de manera anual, con corte al 31 de enero de cada año, así como la recomendación para prorrogar o no el contrato del abogado externo, para que, con fundamento en ese reporte, la Proveeduría General, según sea el caso, comunique la decisión administrativa correspondiente.
+El incumplimiento de obligaciones profesionales por parte del abogado externo, facultará al Banco para proceder a la resolución contractual conforme a lo previsto en la Ley de Contratación Administrativa y su Reglamento.

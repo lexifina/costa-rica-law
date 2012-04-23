@@ -1,0 +1,3 @@
+Artículo 27.- Embargo de bienes.
+Cuando el Despacho Judicial respectivo apruebe el embargo de bienes, el Abogado Externo deberá retirar las comisiones correspondientes para realizar esta diligencia, la cual deberá ejecutarla dentro de los cinco días hábiles siguientes a la emisión de la resolución judicial que la autoriza; dentro de ese mismo plazo deberá informar al Centro de Administración de Crédito o al CIPAC sobre el resultado de la gestión.
+En caso de que no pueda realizarse en ese plazo, deberá comunicarlo así a la oficina e indicar las razones por las cuales no pudo llevarse a cabo y la estrategia a seguir, sin que ello libere de responsabilidad al abogado externo por el retraso.

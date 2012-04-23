@@ -1,0 +1,5 @@
+Artículo 9.-Distribución de trabajo.
+Las operaciones para cobro se distribuirán entre los abogados externos siguiendo un estricto orden alfabético y ejerciendo una estricta rotación de todos los expedientes de operaciones crediticias para cobro, buscando la equidad en la asignación de las labores.
+En los casos que se justifique la reposición de la asignación de un proceso de cobro, éste se asignará respetando el orden establecido en el rol.
+Cuando por cualquier motivo un abogado externo no pueda brindar el servicio, el Centro de Administración de Crédito o el CIPAC reasignará sus casos a los otros profesionales designados en el rol de esa misma oficina, sin perjuicio de aplicar las sanciones contractuales y legales del caso al abogado externo que no pudo brindar sus servicios, cuando así corresponda.
+Para aquellos Centros de Administración de Crédito que por cualquier motivo, lleguen a carecer de un abogado externo la operación para cobro será asignada al rol de abogados externos que tenga y lleve la oficina más cercana.

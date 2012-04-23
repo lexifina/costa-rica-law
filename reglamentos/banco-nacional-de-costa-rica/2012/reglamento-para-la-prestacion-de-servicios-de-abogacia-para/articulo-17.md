@@ -1,0 +1,7 @@
+Artículo 17.- Terminación del proceso de cobro
+La suspensión definitiva y finalización total del juicio, por orden de los Centros de Administración de Crédito o CIPAC, podrá realizarse en los siguientes supuestos:
+1. Si se cancela en su totalidad la obligación crediticia, junto con los intereses, gastos administrativos y honorarios de abogado.
+2. Si se normaliza la situación de la operación o la corrección total de las causas que originaron el cobro judicial.
+3. Si se determina su incobrabilidad.
+4. Si existe un arreglo parcial que convenga a los intereses del Banco.
+Cuando se dé por finalizado el proceso, el Banco lo comunicará al Abogado Externo, para que éste proceda con la presentación de la documentación necesaria ante el Despacho Judicial correspondiente. Este documento debe proporcionársele al Abogado Externo en un plazo máximo de tres días hábiles contados a partir de su suscripción. Entregado dicho documento al Abogado Externo, éste debe proceder a presentarlo al Despacho Judicial correspondiente, en un plazo máximo de dos días hábiles. El abogado entregará al Centro de Administración de Crédito respectivo o al CIPAC una copia debidamente sellada, dentro de los dos días hábiles siguientes a su presentación en el Despacho Judicial. Asimismo, con la presentación del referido documento, el abogado externo tendrá la obligación de interponer todas aquellas gestiones que sean necesarias para proceder a levantar las anotaciones y/o embargos que pesen sobre los bienes del demandado.

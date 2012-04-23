@@ -1,0 +1,7 @@
+Artículo 4. - Funciones de los Centros Administración de Crédito y CIPAC
+Corresponde a los Centros de Administración de Crédito o al CIPAC, en caso de haberse trasladado la operación a ésta última:
+1. Dirigir, controlar y dar seguimiento a las gestiones de cobro judicial, de conformidad con lo que establece este Reglamento.
+2. Entregar la documentación necesaria de las operaciones en estado irregular a los abogados externos asignados por la Institución para que procedan a su cobro por la vía judicial.
+3. Será responsable de la asignación de casos a los abogados externos, para ello debe confeccionar un rol de asignaciones de acuerdo con lo establecido en el presente Reglamento.
+4. Ejercer control y fiscalización de la labor realizada por los abogados externos en los procesos judiciales que se les asignen, mediante revisión de los informes semestrales que estos profesionales deben presentar a la oficina, o mediante la revisión de los expedientes judiciales en los Despachos Judiciales correspondientes. Cada oficina queda facultada para solicitar, en forma verbal o por escrito, a dichos profesionales, información sobre el avance de cada proceso o sobre una gestión particular del mismo; los informes deberán ser rendidos dentro de tercer día hábil por el respectivo abogado externo.
+En aquellos casos en que todas o algunas de las funciones de los Centros Administración de Crédito, sean asumidas por el CIPAC, será éste el encargado de cumplir con los procedimientos que el presente Reglamento establezca en lo relativo a las funciones asumidas.

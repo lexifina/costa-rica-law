@@ -1,0 +1,3 @@
+Artículo 35.- Protocolización de Piezas.
+A partir de la aprobación en firme del remate, el abogado externo cuenta con dos días hábiles para informar al Centro de Administración de Crédito o el CIPAC, esta situación; para que así el Banco defina cuál Notario Público al servicio de la institución procederá con la protocolización de piezas.
+En aquellos casos en los que el Despacho Judicial no emita una autorización de protocolización general, corresponderá al abogado externo en el plazo de dos días hábiles contados a partir de que el Banco defina cuál Notario Público a su servicio procederá con la protocolización de piezas, solicitar al Despacho Judicial que lo autorice para proceder con la mencionada protocolización.

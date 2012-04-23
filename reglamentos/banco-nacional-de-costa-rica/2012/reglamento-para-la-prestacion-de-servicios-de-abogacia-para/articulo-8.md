@@ -1,0 +1,3 @@
+Sección II. Procedimiento de asignación de casos
+Artículo 8. -Rol para la asignación de casos.
+Con el propósito de realizar la asignación de operaciones para cobro, el Centro de Administración de Crédito o CIPAC, según corresponda, implementará un “rol” para la asignación de trabajo, el cual aplicará en forma rigurosa. El rol se integrará en orden de calificación y como segundo criterio el orden alfabético del apellido. El sistema aplicado deberá constar en los registros del respectivo Centro de Administración de Crédito o CIPAC y el orden establecido en el rol, no podrá ser variado de forma alguna.

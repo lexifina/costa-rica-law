@@ -1,0 +1,2 @@
+Artículo 22.- Juicio Sucesorio.
+En los casos en que la institución deba recuperar alguna obligación que se encuentre en estado irregular y el deudor haya fallecido; o bien estando establecido un proceso judicial para recuperar dicha obligación y el deudor falleciera, y existiendo un patrimonio que así lo justifique, la oficina encargada de cobro o el CIPAC trasladará el asunto a un Abogado de Planta de la Institución para que éste aperture un proceso sucesorio con la finalidad de poder cobrar dicha obligación.
