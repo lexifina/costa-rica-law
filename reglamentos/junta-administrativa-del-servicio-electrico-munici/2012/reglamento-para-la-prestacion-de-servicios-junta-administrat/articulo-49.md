@@ -1,0 +1,1 @@
+Artículo 49.—Reconexión del servicio eléctrico. La orden de reconexión de un servicio cortado se generará una vez que el cliente haya cancelado el monto adeudado más el costo establecido para este trámite.

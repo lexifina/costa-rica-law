@@ -1,0 +1,1 @@
+Artículo 23.—Requisitos: A- Estar al día con la facturación de energía. B- Indicar claramente el número de abonado sobre el cual se requiere el servicio. C- Cancelar el monto establecido para este trámite.

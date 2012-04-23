@@ -1,0 +1,1 @@
+Artículo 96.—Requisitos: A- Descripción de la avería. B-Dirección exacta incluyendo cantón, distrito y otras señas o puntos de referencia. C- Aportar número de teléfono. D- Suministrar datos del servicio afectado: número de medidor, número de abonado.

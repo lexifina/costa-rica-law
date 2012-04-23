@@ -1,0 +1,1 @@
+Artículo 7º—Certificación de recibos cancelados. Consiste en un documento debidamente aprobado por JASEC. Este reporte muestra el importe de los últimos recibos cancelados, fecha de pago y dirección física donde se ubica el medidor.

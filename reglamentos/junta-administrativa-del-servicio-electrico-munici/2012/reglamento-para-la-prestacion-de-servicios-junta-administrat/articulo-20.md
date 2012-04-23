@@ -1,0 +1,1 @@
+Artículo 20.—Cambio de acometida y reubicación: Las acometidas son los conductores, accesorios y equipo para la conexión de la red de distribución de la empresa de energía con el sistema de alambrado eléctrico del inmueble o de la propiedad servida. Para atender este servicio JASEC generará una OT.

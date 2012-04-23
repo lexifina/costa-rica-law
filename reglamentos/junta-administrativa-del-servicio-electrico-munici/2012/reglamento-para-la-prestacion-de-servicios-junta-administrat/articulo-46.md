@@ -1,0 +1,1 @@
+Artículo 46.—Solicitud para devolución de dinero: Trámite que se realiza para la devolución de dinero a favor del cliente por concepto de pago doble, liquidación de servicios temporales y otros créditos.

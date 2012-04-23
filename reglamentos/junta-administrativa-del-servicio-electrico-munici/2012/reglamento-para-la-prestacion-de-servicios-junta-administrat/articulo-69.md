@@ -1,0 +1,1 @@
+Artículo 69.—Estudio para instalación de transformador (es) particular o alquiler de transformador (es). Estudio solicitado por un cliente para determinar el costo de la instalación de un dispositivo para elevar o reducir el voltaje o la corriente eléctrica sin variación de la frecuencia.

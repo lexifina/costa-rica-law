@@ -1,0 +1,1 @@
+Artículo 86.—Mantenimiento de elementos de la red de JASEC ubicados en propiedad privada. Corresponde a reparaciones realizadas por JASEC dentro de una propiedad privada, con previa autorización del dueño de la propiedad a intervenir.

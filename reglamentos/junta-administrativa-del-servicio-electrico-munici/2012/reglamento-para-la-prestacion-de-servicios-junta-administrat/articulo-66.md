@@ -1,0 +1,1 @@
+Artículo 66.—Estudio para extensiones de línea secundaria, primaria menor a 1 km, primaria mayor a 1 km. Consiste en un estudio que solicita el cliente para determinar el costo de la construcción de una línea sea primaria o para ampliar la red secundaria hasta su propiedad.

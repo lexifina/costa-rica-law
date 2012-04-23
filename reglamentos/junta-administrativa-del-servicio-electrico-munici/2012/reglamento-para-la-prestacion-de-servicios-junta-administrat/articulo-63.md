@@ -1,0 +1,1 @@
+Artículo 63.—Estudio para reubicación de retenida o poste ubicado en propiedad privada. Es el estudio para reubicar un elemento de la Red de JASEC ubicado en propiedad privada, sea un poste o una retenida.

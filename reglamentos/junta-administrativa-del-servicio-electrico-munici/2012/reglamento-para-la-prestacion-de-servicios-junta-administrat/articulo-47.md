@@ -1,0 +1,1 @@
+Artículo 47.—Requisitos: A- Cumplir con los requisitos generales de este reglamento. B- En caso que la devolución corresponda a un pago doble, presentar los dos recibos que comprueben el pago. C- Si el importe a devolver supera la suma autorizada para pagos por medio de Caja Chica, el cliente deberá suministrar el número de cuenta bancaria en que JASEC realizará la transferencia.

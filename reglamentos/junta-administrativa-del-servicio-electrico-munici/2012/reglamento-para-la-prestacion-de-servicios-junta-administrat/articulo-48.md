@@ -1,0 +1,1 @@
+Artículo 48.—Procedimiento: A- Presentarse en la Plataforma de Servicios de JASEC. B- El funcionario de JASEC verificara según el caso, si procede la devolución; esto mediante el resultado de una inspección o revisión administrativa de la documentación e información existente en los sistemas. C- El pago se hará efectivo en un plazo de 15 días hábiles.

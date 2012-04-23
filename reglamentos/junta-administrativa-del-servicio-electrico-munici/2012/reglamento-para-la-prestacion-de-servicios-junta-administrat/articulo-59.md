@@ -1,0 +1,1 @@
+Artículo 59.—Procedimiento: A- Realizar la solicitud en el Proceso PDR. B- Retirar el visado posterior a los 8 días hábiles de gestionado el trámite, en caso que el visado sea confeccionado en un lapso menor al indicado PDR.

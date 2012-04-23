@@ -1,0 +1,1 @@
+Artículo 3º—Autorizaciones: El trámite podrá ser realizado por otra persona, bajo autorización escrita y debidamente firmada por parte del solicitante, aportando copia de la identificación de éste y original y copia de la persona autorizada para realizar el trámite.

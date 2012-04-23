@@ -1,0 +1,1 @@
+Artículo 53.—Procedimiento: A- Entregar la Solicitud en Proceso Facturar y Cobrar de la UEN Servicio al Cliente. B- El Proceso Facturar y Cobrar ajustará el nombre del abonado según el indicado en la personería jurídica. C- A partir de la presentación de los requisitos la facturación emitida estará exenta de impuesto.

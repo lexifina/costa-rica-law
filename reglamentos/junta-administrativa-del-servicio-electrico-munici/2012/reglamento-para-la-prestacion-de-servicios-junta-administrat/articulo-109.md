@@ -1,0 +1,1 @@
+Artículo 109.—Procedimiento: A- Cada devolución de artículos desmantelados se recibe físicamente y se verifica el material desmantelado contra el documento de devolución, si hay alguna inconsistencia no se recibe hasta que la misma se corrija. B- Los materiales desmantelados serán recibidos por AME en el horario definido por JASEC para atención de contratistas.

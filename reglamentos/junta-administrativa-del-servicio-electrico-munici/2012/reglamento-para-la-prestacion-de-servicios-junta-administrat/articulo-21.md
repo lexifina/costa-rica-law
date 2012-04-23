@@ -1,0 +1,1 @@
+Artículo 21.—Requisitos: A- Cumplir con los requisitos generales de este reglamento. B- Estar al día con la facturación de energía. C- Indicar claramente el número de abonado en el cual se requiere el servicio. D- Cancelar el monto establecido para este trámite.

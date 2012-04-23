@@ -1,0 +1,1 @@
+Artículo 72.—Estudio de ingeniería para determinar carga requerida para un servicio temporal. Para todo servicio temporal el solicitante debe cancelar un depósito de garantía según carga estimada, misma que es determinada a través de un Estudio de Ingeniería.

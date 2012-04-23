@@ -1,0 +1,1 @@
+Artículo 32.—Servicio nuevo trifásico. Servicio requerido por comercios e industrias de pequeña y gran escala que requieren un sistema de voltaje especial, la medición de estos servicios estará sujeta a la carga demandada y al sistema de voltaje a utilizar. Para atender este servicio JASEC generará una OT.

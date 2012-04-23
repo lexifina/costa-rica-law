@@ -1,0 +1,1 @@
+Artículo 38.—Servicio nuevo por reconexión. Corresponde a la instalación de un medidor que fue retirado por morosidad, para este servicio el solicitante deberá cancelar el monto pendiente en la Plataforma de Servicios de JASEC.

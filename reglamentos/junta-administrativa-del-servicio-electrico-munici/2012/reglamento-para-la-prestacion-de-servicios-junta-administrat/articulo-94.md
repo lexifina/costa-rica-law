@@ -1,0 +1,1 @@
+Artículo 94.—Procedimiento: A- Entregar la solicitud en la oficina, fax o correo electrónico del Proceso OR con una anticipación mínima de 48 horas. B- El Proceso OR programará la desconexión y posteriormente el personal técnico de JASEC debidamente identificado se presentará a realizar la desconexión el día y hora indicada por el solicitante.

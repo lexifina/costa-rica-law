@@ -1,0 +1,1 @@
+Artículo 74.—Procedimiento: Realizar la solicitud en el Proceso Planificar y Desarrollar la Red y retirar certificado original de estudio posterior a los 8 días hábiles de gestionado el trámite, en caso que el estudio sea confeccionado en un lapso menor, Planificar y Desarrollar la Red informará al solicitante.

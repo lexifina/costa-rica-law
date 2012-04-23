@@ -1,0 +1,1 @@
+Artículo 82.—Procedimiento: A- Realizar el respectivo reporte por alguno de los siguientes medios: 1- Telefónicamente al Centro de Gestión Atención al Cliente durante las 24 horas del día. 2- Plataforma de Servicios en horario de atención al público. B- El funcionario que lo atiende le suministrará un número de solicitud como referencia.

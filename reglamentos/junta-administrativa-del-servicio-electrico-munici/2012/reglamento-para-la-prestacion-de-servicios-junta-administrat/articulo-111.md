@@ -1,0 +1,1 @@
+Artículo 111.—Los materiales a contratistas serán entregados cuando se cumpla con los requisitos y la persona responsable del retiro de los artículos se presente a AME en los horarios definidos para la atención de este servicio.

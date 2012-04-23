@@ -1,0 +1,1 @@
+Artículo 51.—Exoneraciones de impuesto a juntas de educación y administrativas de las instituciones públicas de enseñanza. Trámite mediante el cual el cliente solicita la exoneración del pago del impuesto de ventas en su facturación por servicios eléctricos.

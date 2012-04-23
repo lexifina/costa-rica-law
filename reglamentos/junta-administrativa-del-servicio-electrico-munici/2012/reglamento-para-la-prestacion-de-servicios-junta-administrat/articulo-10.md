@@ -1,0 +1,1 @@
+Artículo 10.—Requisitos: A- Cumplir con los requisitos generales de este reglamento. B- El abonado debe firmar el Convenio de Partes, en el cual se indica el plazo del arreglo y el monto de las cuotas a cancelar, así como la autorización para que estas sean aplicadas en la próxima facturación. C- Cancelar la prima autorizada para el arreglo.

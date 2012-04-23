@@ -1,0 +1,1 @@
+Artículo 54.—Solicitud para renovación de depósitos de garantía. Solicitud en la cual el cliente solicita la devolución de un certificado bancario, para proceder a renovar el documento ante la entidad bancaria correspondiente.

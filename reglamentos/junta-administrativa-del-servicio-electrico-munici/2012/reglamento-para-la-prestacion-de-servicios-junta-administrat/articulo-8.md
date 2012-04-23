@@ -1,0 +1,1 @@
+Artículo 8º—Requisitos: A- Estar al día con el pago de la facturación. B- El trámite debe ser realizado por el abonado o dueño registral. Cumplidos los requisitos ante la Plataforma de Servicios el trámite es inmediato.

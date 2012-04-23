@@ -1,0 +1,1 @@
+Artículo 25.—Requisitos: A- Cumplir con los requisitos generales de este reglamento. B- Estar al día con la facturación de energía. C- Llenar el formulario definido para este trámite, debidamente firmado por el abonado y por el ingeniero incorporado al CFIA. D- Copia del carnet e identificación del ingeniero responsable de la obra eléctrica. E- Cancelar el monto establecido.

@@ -1,0 +1,1 @@
+Artículo 6º—Procedimiento: A- Solicitar el servicio en la Plataforma de Servicios de JASEC. B- Una vez completados los requisitos el funcionario de JASEC entregará al solicitante el nuevo número de abonado, como referencia para el pago de las próximas facturaciones.
