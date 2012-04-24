@@ -14,3 +14,4 @@ Concede autorización genérica a Juntas Educación y Juntas Administrativas de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-28 | la propia norma |
+| 2 | 2012-04-24 | Resolución 6 (2012-04-24) |
