@@ -1,1 +1,0 @@
-Artículo 9º—Firma de actas. Las actas serán firmadas por el Presidente (a) y el Secretario (a). Los votos salvados deberán ser consignados y firmados por el Presidente y por aquellos miembros que hubieren hecho constar su voto disidente. Sin el acta debidamente firmada y formalizada, los acuerdos serán absolutamente nulos.

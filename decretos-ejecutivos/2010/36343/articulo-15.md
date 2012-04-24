@@ -1,1 +1,0 @@
-Artículo 15—Incentivos para la creación y el fortalecimiento. Para la creación de incubadoras y aceleradoras se establecerán una serie de estímulos tanto para la creación de nuevas incubadoras y aceleradoras, como para el fortalecimiento de las existentes.

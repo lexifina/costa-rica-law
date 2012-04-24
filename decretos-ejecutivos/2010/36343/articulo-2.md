@@ -1,1 +1,0 @@
-Artículo 2º—Constitución del Sistema Nacional de Emprendimiento. El Sistema Nacional de Emprendimiento estará constituido por el Consejo Nacional de Emprendimiento y la Red Nacional de Incubadoras y Aceleradoras de Empresas.
