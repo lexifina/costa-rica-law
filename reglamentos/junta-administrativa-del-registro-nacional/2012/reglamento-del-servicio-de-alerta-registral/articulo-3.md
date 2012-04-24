@@ -1,0 +1,1 @@
+Artículo 3º—Finalización del Servicio: La Junta Administrativa del Registro Nacional podrá suspender el servicio de Alerta Registral ante el incumplimiento del suscriptor a las condiciones de uso contenidas en la página web, así como por razones de oportunidad y conveniencia o cuando medien razones de interés público, sin responsabilidad alguna de su parte.

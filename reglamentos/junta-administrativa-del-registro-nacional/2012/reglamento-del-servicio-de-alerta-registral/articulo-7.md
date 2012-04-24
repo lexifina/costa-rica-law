@@ -1,0 +1,8 @@
+Artículo 7º—De las obligaciones del Suscriptor. El Suscriptor adquiere el servicio de alerta registral bajo las siguientes obligaciones: Pagar el precio en el monto, las condiciones y términos que fije el Registro Nacional para el servicio.
+a. Para acceder al servicio será necesario que el suscriptor acepte las Condiciones de Uso en la página web de suscripción al servicio; esta aceptación implica la declaración de conocer el presente Reglamento, las condiciones del servicio, así como el contraer las obligaciones que corresponden.
+b. La autenticidad de toda la información que consigne el usuario será de su exclusiva responsabilidad y asumirá las consecuencias legales que pudieran corresponder a la consignación de información imprecisa, errónea o falsa.
+c. Designar los bienes inscritos para los cuales suscribe el servicio de alerta registral.
+d. La información es de uso exclusivo y personal y no podrá ser vendida ni comercializada, total ni parcialmente.
+e. No podrá emitir certificaciones, ni cualquier otro documento, cuya eficacia quede supeditada a los datos contenidos y transferidos en virtud del servicio de Alerta Registral, salvo aquellos casos expresamente autorizados por la ley
+f. El Suscriptor será responsable ante El Registro Nacional y ante terceros por el uso indebido que haga de los datos adquiridos, sea por su propio actuar o por actos provenientes de personas autorizadas, cuando se violenten o menoscaben los derechos de terceros.
+g. El suscriptor es responsable por mantener disponible y funcionando los medios por los cuales ha indicado desea recibir el servicio de Alerta Registral.

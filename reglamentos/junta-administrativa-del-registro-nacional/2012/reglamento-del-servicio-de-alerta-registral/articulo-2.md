@@ -1,0 +1,1 @@
+Artículo 2º—Modalidad del servicio. El Registro Nacional brindará el servicio a través de la revisión en línea de la información del derecho inscrito e informando al suscriptor del servicio, un plazo máximo de veinticuatro horas después de anotado y mediante los medios tecnológicos que determine, acerca de los documentos que se anoten en el asiento de inscripción.

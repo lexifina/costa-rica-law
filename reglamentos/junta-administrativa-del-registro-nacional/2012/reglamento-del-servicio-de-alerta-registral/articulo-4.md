@@ -1,0 +1,1 @@
+Artículo 4º—Delimitación del Servicio. El Registro Nacional no suministrará ningún dato o información ajenos a las competencias e informaciones registrales que el servicio de Alerta Registral ofrece, siendo el interesado quien tiene la responsabilidad de iniciar las gestiones para impedir cualquier posible movimiento fraudulento.

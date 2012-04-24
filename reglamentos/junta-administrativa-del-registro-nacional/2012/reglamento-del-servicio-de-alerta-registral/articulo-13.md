@@ -1,0 +1,3 @@
+Artículo 13.—El interesado deberá consignar con claridad y precisión los bienes a monitorear, según lo solicitado en el contrato. Cualquier información errónea suministrada, que impida la comunicación efectiva de los movimientos registrales, generará responsabilidad dentro de lo establecido en este reglamento como obligaciones del contratante.
+El presente Reglamento fue aprobado por la Junta Administrativa del Registro Nacional mediante acuerdo Nº J082 de la sesión Nº 09-2012, celebrada el catorce de febrero de 2012 y el acuerdo J 104 de la sesión ordinaria Nº 11-2012 de fecha 15 de marzo de 2012 y rige a partir de su publicación en el Diario Oficial La Gaceta.
+Curridabat, 27 de marzo de 2012.
