@@ -1,1 +1,2 @@
-Artículo 20.—Del segundo remate: Fracasado el primer remate, el bien será rematado en la siguiente sesión, con la base rebajada en un 10%. Si en esta ocasión tampoco fuere vendido y el Banco no se lo adjudicare, se procederá a su venta directa siguiendo lo indicado en el procedimiento respectivo.
+Artículo 20.—Del segundo remate: –Fracasado el primer remate, en la siguiente sesión el bien será ofertado nuevamente en un segundo remate, con la base rebajada en un 10%. Si en esta ocasión tampoco fuere vendido, el Banco se lo adjudicará y se procederá a su venta directa siguiendo lo indicado en el procedimiento respectivo.
+(Así reformado mediante sesión N° 4958 del 24 de abril del 2012)
