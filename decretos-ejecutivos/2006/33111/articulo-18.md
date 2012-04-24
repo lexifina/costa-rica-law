@@ -1,2 +1,0 @@
-Artículo 18.—El Consejo Asesor, se regirá por lo establecido en los artículos 49 y siguientes de la Ley General de la Administración Pública, que norma lo relativo al funcionamiento de los órganos colegiados.
-El Consejo Asesor, se reunirá ordinariamente al menos una vez cada dos meses. Cuando fuere necesario, el Presidente convocará a sesiones extraordinarias con al menos una semana de anticipación, previa comunicación de una agenda de discusión.

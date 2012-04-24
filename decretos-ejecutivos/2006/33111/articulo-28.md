@@ -1,1 +1,0 @@
-Artículo 28.—De conformidad con el artículo 29 de la Ley Nº 8262, el informe anual de las entidades del sector público, acerca de los resultados de las gestiones realizadas en beneficio de las PYME, deberá ser enviado al MEIC a más tardar la segunda quincena del mes enero de cada año”.

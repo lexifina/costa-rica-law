@@ -1,2 +1,0 @@
-Artículo 8º—A efecto de obtener la condición Pyme, conforme a los artículos Nos. 3, 4 y 5 de este Reglamento, la PYME deberá completar el formulario que para dichos efectos ha elaborado la DIGEPYME del Ministerio de Economía, Industria y Comercio.
-El formulario se debe llenar de manera completa, con letra clara y sin ningún tipo de tachadura, pudiéndose obtener el mismo en las oficinas centrales o regionales del MEIC. Asimismo, dicho formulario estará disponible en el sitio de Internet del MEIC.
