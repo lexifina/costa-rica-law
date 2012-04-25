@@ -1,0 +1,1 @@
+Artículo 17.—El Infocoop podrá otorgar las facilidades para la capacitación de sus funcionarios dentro del país, incluso proporcionando ayuda económica, siempre y cuando dicha capacitación se lleve a cabo fuera de horas laborales.

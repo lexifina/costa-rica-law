@@ -1,0 +1,1 @@
+Artículo 10.—A los funcionarios que se les conceda becas en el exterior cuando proceda, el Infocoop deberá cubrir todos aquellos gastos relacionados con el pago de matrícula, exámenes médicos, servicios de trámite de pasaporte y pasajes y otros gastos que no cubra la beca.

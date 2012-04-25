@@ -1,0 +1,1 @@
+Artículo 7º—La adjudicación de la beca, o facilidad de estudio cuando amerite, se hará mediante contrato que suscribirán el Director Ejecutivo y el beneficiario. La Oficina de Personal de Infocoop llevará un registro de contratos y vigilará el fiel cumplimiento de los mismos.

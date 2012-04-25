@@ -1,0 +1,1 @@
+Artículo 18.—Los servidores que disfruten de beca deberán presentar ante la Sección de Personal del Infocoop, al finalizar el curso, los títulos o documentos oficiales del organismo que impartió el curso y un informe escrito sobre las materias estudiadas, incluyendo además su criterio personal sobre el curso recibido.

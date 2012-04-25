@@ -1,0 +1,1 @@
+Artículo 12.—Cuando el disfrute de dichas becas se haga en época de invierno y en países que así lo demanden, en los cuales haya necesidades de comprar ropas especiales, Infocoop dará un aporte económico adicional a sus funcionarios, para ayudarles a cubrir esos gastos.
