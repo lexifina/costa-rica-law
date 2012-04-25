@@ -1,1 +1,1 @@
-Artículo 90.—No obstante lo estipulado en otros artículos de este capítulo, las licencias para estudios podrán ser denegadas libremente, sin responsabilidad para el INSTITUTO y sin que situaciones similares o sucedidas con anterioridad puedan considerarse como derechos adquiridos.
+Artículo 90.—(Derogado por el artículo 66 de Reglamento de becas y otras facilidades para el desarrollo del recurso humano del Instituto Nacional de las Mujeres, aprobado mediante sesión N° 11 del 25 de abril del 2012)
