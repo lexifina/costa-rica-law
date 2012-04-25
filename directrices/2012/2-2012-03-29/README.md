@@ -14,3 +14,4 @@ Aplicación de las disposiciones contenidas en la ley Impuesto a las Personas Ju
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-13 | la propia norma |
+| 2 | 2012-04-25 | Directriz 3 (2012-04-25) |
