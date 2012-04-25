@@ -1,1 +1,0 @@
-Artículo 7º—La persona beneficiaria, una vez notificada de la aprobación de su solicitud, debe gestionar ante la Presidencia de la CCAD y la Dirección Administrativa-Financiera, la Solicitud de Bienes y Servicios, el contrato de estudio y dar seguimiento personalmente al cumplimiento de su trámite.

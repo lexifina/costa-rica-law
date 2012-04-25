@@ -1,1 +1,0 @@
-Artículo 14.—Las gestiones personales que se realicen para asistir a capacitaciones dentro o fuera del país no serán conocidas por la CCAD cuando se acoja a licencia sin goce de salario. Si requiere de alguna facilidad, debe ser presentada a la CCAD para lo que corresponda.

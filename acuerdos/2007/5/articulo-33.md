@@ -1,1 +1,0 @@
-Artículo 33.—Los casos no contemplados en el presente Manual, serán resueltos conforme el Reglamento de Capacitación y Becas para el Desarrollo del Recurso Humano , el Reglamento Autónomo de Servicios del INAMU y cualquier otra normativa que beneficie a las funcionarias y los funcionarios de la institución.

@@ -1,1 +1,0 @@
-Artículo 8º—La persona beneficiaria deberá comunicar con la debida anticipación su imposibilidad de continuar con los estudios, a fin de que se tomen oportunamente las medidas administrativas correspondientes.

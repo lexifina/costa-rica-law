@@ -1,1 +1,0 @@
-Artículo 21.—Para obtener el beneficio de beca para estudios formales, la persona solicitante deberá obtener un puntaje mínimo de 70% al aplicar los criterios de evaluación mencionados en el artículo anterior.

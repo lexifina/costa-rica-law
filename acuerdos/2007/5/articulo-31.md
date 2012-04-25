@@ -1,1 +1,0 @@
-Artículo 31.—En caso de que alguna persona incurra en una conducta acreedora de sanción según el artículo anterior, la CCAD aplicará el debido proceso, emitirá la resolución correspondiente, notificará a la persona interesada, a Recursos Humanos para expediente y a Contabilidad para lo de su competencia. La resolución anterior tendrá los recursos de Ley.

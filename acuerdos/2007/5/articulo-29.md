@@ -1,1 +1,0 @@
-Artículo 29.—En caso que se constatara que un funcionario o una funcionaria no han cumplido con dichas obligaciones, se le dará un plazo de tres días para realizar su descargo antes de aplicar las sanciones previstas.

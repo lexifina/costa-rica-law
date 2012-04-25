@@ -1,1 +1,0 @@
-Artículo 9.—En el caso de estudios dentro del país, el funcionario o la funcionaria se compromete a informar periódicamente a la CCAD, en la forma que ésta determine, el cumplimiento de horarios, asistencia a los cursos, calificaciones y avances logrados. De incumplirse los requerimientos señalados, la CCAD podrá revocar la beca o facilidad concedida.

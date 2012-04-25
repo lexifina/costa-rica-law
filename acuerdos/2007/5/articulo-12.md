@@ -1,1 +1,0 @@
-Artículo 12.—En los casos de estudios de formación de nivel superior en los que se requiera licencia de tiempo completo con goce de salario, la CCAD trasladará la solicitud con recomendaciones a la Presidenta Ejecutiva para que resuelva en un plazo no mayor de cinco días hábiles, quien deberá tomar en consideración2 el criterio de la jefatura inmediata de la persona solicitante.

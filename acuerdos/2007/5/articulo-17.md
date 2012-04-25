@@ -1,1 +1,0 @@
-Artículo 17.—En toda Solicitud de Beca se debe presupuestar el monto anual, indicar el costo de matrícula y, el nombre y costo por materia del bloque lectivo que se va a cursar. De no ser así, no se aprobará la beca para ese período lectivo.
