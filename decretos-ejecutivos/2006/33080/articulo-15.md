@@ -1,2 +1,3 @@
 Artículo 15.—Del salario ordinario. Se entenderá por salario ordinario la suma del salario base más los ingresos que, por anualidades, dedicación exclusiva, prohibición y gastos de representación, así como los sueldos recibidos por tiempo extraordinario, haya percibido el o la beneficiaria.
 (La Sala Constitucional mediante resolución N° 4960 del 24 de marzo de 2009, interpretó la frase final del presente artículo en el sentido que esta norma incluye el rubro salarial denominado “carrera profesional”.)
+(La Sala Constitucional mediante resolución N° 5284 del 25 de abril de 2012, interpretó la frase final de este artículo en el sentido que esta norma incluye el rubro salarial denominado “desarraigo”.)
