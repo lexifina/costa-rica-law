@@ -1,1 +1,0 @@
-Artículo 7º—De la declaratoria de interés institucional: La CCAD declarará por acuerdo firme las capacitaciones que considere de interés institucional, las cuales serán de carácter obligatorio para el personal. Sólo podrán exceptuarse de la obligatoriedad de asistencia a las mismas, aquellos casos que se consideren de fuerza mayor.

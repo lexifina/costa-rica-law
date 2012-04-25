@@ -1,2 +1,0 @@
-Artículo 8º—De las obligaciones: El personal está en la obligación de cumplir con los programas de capacitación y desarrollo requeridos por el INAMU para el mejoramiento del desempeño de sus funciones o responsabilidades, así como de la transferencia de los conocimientos adquiridos a los otros funcionarios o funcionarias de la institución, de conformidad con el artículo 41 y siguientes de este Reglamento.
-En caso de que se programen actividades de capacitación fuera de la jornada laboral ordinaria, consultar a la persona para conocer su anuencia previamente a su designación.

@@ -1,1 +1,0 @@
-Artículo 9º—Del financiamiento: El financiamiento parcial o total de una beca o facilidad, que implique la participación del personal del INAMU en actividades de capacitación y desarrollo que se realicen, tanto dentro como fuera del país, serán financiadas siempre y cuando se cuente con contenido presupuestario y las mismas brinden un beneficio a la institución.

@@ -1,1 +1,0 @@
-Artículo 35.—Del expediente de beca: El Área de Recursos Humanos llevará un expediente para cada persona que sea beneficiaria de una beca para estudios formales y una base de datos de los beneficios recibidos.

@@ -1,1 +1,0 @@
-Artículo 51.—De la omisión de las formalidades: El funcionario y la funcionaria, la persona superior jerárquica o la autoridad o autoridades superiores que omitan las formalidades exigidas en este Reglamento, incurrirán en responsabilidades de acuerdo con la normativa vigente y los actos serán nulos.

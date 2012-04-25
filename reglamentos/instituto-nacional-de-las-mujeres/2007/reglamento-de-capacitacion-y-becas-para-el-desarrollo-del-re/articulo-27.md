@@ -1,1 +1,0 @@
-Artículo 27.—La CCAD divulgará en todos los centros de trabajo del INAMU su Plan de Capacitación, así como las oportunidades de cursos abiertos al personal, cuando la información sobre los mismos sea de conocimiento de la CCAD, con al menos un mes de antelación.

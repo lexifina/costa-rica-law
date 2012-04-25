@@ -1,1 +1,0 @@
-Artículo 24.—De los beneficios no contemplados: En caso que alguna persona solicite un beneficio no contemplado en este Reglamento, que se considere de interés institucional, de incentivos, de motivación y o de desarrollo del recurso humano, la CAD valorará la concesión del mismo.

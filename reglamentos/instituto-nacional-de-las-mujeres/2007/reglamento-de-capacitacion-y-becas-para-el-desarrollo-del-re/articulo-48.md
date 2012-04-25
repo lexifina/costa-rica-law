@@ -1,3 +1,0 @@
-CAPÍTULO VI
-De los recursos financieros
-Artículo 48.—De los recursos: La Dirección Administrativa Financiera designará cada año en el presupuesto ordinario un 0.5 % del presupuesto del INAMU para capacitación y becas, el cual se distribuirá de la siguiente manera: 50% para capacitación y adiestramiento, talleres, cursos, seminarios, congresos y otros. Y 50% para becas destinadas para formación académica. A solicitud de la CCAD la Junta Directiva podrá modificar la asignación de estos porcentajes mediante Acuerdo. La CCAD velará por la adecuada ejecución de los recursos presupuestarios destinados para estos fines. Lo anterior para efectos de que el monto presupuestado sea ejecutado para las actividades indicadas.

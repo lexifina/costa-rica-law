@@ -1,1 +1,0 @@
-Artículo 12.—De la permanencia en el cargo: Las personas integrantes de la CCAD, a que se refiere el inciso c), durarán en sus cargos por el periodo de dos años, pudiendo ser reelectas o reelectos por un período igual. En caso de sustitución por alguna circunstancia, esta será por el resto del período.
