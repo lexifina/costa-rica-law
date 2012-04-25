@@ -14,3 +14,4 @@ Reglamento para la regulación de la prevención y sanción de las conductas que
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-30 | la propia norma |
+| 2 | 2012-04-25 | Reglamento 11 (2012-04-25) |
