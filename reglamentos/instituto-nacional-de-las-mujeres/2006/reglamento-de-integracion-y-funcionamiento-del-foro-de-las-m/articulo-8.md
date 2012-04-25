@@ -7,7 +7,8 @@ e) Remitir a la Junta Directiva, por delegación de la Asamblea del Foro, la ter
 f) Levantar las Actas de las Asambleas y Comité Organizador del Foro. Las Actas de Asamblea serán firmadas por la Coordinadora del Consejo y otra integrante designada por éste para tal fin.
 g) Proponer temas de discusión para ser analizados en el Foro.
 h) Elaborar el Plan Operativo y el Presupuesto Anual del Foro y someterlo a consideración de la Asamblea para ser remitido posteriormente a la Junta Directiva del INAMU para su aprobación.
-i) Coordinar con la Presidencia Ejecutiva del INAMU la agenda de las reuniones mensuales.
+i) Coordinar con la Presidencia Ejecutiva del INAMU la agenda a tratar con ella u otras instancias del INAMU durante las reuniones mensuales con el Comité Coordinador.
+(Así reformado el inciso anterior en sesión N° 11 del 25 de abril del 2012)
 j) Facilitar las sesiones de la Asamblea, tomar el Acta y divulgar los Acuerdos.
 k) Dar seguimiento y asesoría a la representante de las OrganizacionesSociales ante la Junta Directiva del INAMU y a las delegaciones oficiales e instancias nacionales donde se participe.
 l) Mantener actualizado y en orden el archivo del Foro de las Mujeres. Para estos efectos tendrá una copia exacta de los expedientes del Registro de las organizaciones que lleva el INAMU por Ley.

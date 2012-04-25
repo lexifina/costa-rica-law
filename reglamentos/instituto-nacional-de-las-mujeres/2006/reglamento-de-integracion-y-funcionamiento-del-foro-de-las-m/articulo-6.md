@@ -9,3 +9,5 @@ g) Solicitar y recibir informes de la Presidencia Ejecutiva y la Junta Directiva
 h) Integrar grupos de trabajo para que estudien y dictaminen sobre asuntos que le sean consultados al Foro por el Instituto o de interés de las organizaciones que lo integran.
 i) Recibir y aprobar el Informe Operativo Anual y la propuesta de presupuesto que le presente el Comité Coordinador del Foro
 j) Conocer y pronunciarse sobre la Agenda Institucional y el Plan Anual Operativo del Instituto o sus avances. Su pronunciamiento no tendrá carácter vinculante
+k) Aprobar las inscripciones de organizaciones sociales que someta a su consideración el Comité Coordinador del Foro.
+(Así adicionado el inciso anterior en sesión N° 11 del 25 de abril del 2012)

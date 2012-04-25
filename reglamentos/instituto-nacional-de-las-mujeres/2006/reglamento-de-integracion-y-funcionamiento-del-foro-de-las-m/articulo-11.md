@@ -1,4 +1,5 @@
 Artículo 11.—Comisión de conteo. Cuando corresponda nombrar la terna para elegir la representante ante la Junta Directiva del Instituto y elegir al Comité Coordinador de Foro, se nombrará una Comisión de Conteo.
 La Comisión de Conteo para nombrar la terna de la representante ante la Junta Directiva estará integrada por la secretaria del Foro, una integrante de la Junta Directiva del INAMU y una representante del Instituto. Esta comisión será la encargada de contabilizar los votos, pasar los resultados del conteo a la mesa principal y firmar el Acta en el cual se deja constancia de los resultados de la votación y de las personas electas.
 La Comisión de Conteo para elegir el Comité Coordinador del Foro estará integrada por la secretaria del Foro, y dos representantes de las organizaciones inscritas presentes en la Asamblea.
-Ambas comisiones deberán velar por la legalidad del procedimiento.
+Ambas comisiones deberán velar por la legalidad del procedimiento y contarán con el apoyo de la Unidad de Asesoría Legal del INAMU, previa solicitud escrita por parte del Foro de las Mujeres.
+(Así reformado el párrafo anterior en sesión N° 11 del 25 de abril del 2012)
