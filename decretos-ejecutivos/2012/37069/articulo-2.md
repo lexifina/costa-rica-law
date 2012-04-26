@@ -1,0 +1,1 @@
+Artículo 2º—Todas las dependencias del Sector Público, central y descentralizado, dentro del marco legal respectivo, darán todas las facilidades, que estén a su alcance para que sus funcionarios participen y divulguen las actividades preparadas con ocasión de esta celebración.
