@@ -1,0 +1,1 @@
+Artículo 2.- Las autoridades públicas y la población en general quedan en la obligación de cumplir las disposiciones que, de carácter general o particular, dicten las autoridades de salud, hasta que se resuelva la problemática actual.

@@ -1,0 +1,1 @@
+Artículo 3.- Las dependencias del Sector Público y del Sector Privado, las organizaciones no gubernamentales y los organismos internacionales, dentro del marco legal respectivo, podrán contribuir con recursos económicos, materiales y humanos, en la medida de sus posibilidades para la solución al problema de suministro de agua apta para consumo humano en las comunidades afectadas.
