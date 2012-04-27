@@ -13,3 +13,4 @@
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-27 | la propia norma |
+| 2 | 2012-04-27 | Circular 0 (2012-04-27) |
