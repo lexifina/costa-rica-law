@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Exención de otros impuestos
+Los bienes inmuebles que adquiera en el futuro Hivos, para el mejor cumplimiento de su misión, estarán exentos de todo impuesto. Dichos bienes inmuebles podrán ser vendidos o donados en cualquier momento, libres de tributos, a instituciones públicas que cumplan los principios y fines similares a los de la Fundación o, en su defecto, podrán ser traspasados a particulares luego de cuatro años de inscritos ante el Registro Público de la Propiedad, previo pago de los tributos correspondientes.
