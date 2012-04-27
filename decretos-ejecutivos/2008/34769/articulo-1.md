@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34769-MINAET
+(Este decreto fue derogado por el artículo 3°, punto 1° del decreto ejecutivo N° 37257 del 27 de abril del 2012, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 LA PRIMERA VICEPRESIDENTA
 EN EL EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
 Y EL MINISTRO DE AMBIENTE, ENERGÍA Y TELECOMUNICACIONES
