@@ -1,0 +1,4 @@
+ARTÍCULO 16
+Servicios de asistencia en tierra
+1. Cada Parte Contratante permitirá a las líneas áreas designadas de la otra Parte Contratante que, en el transcurso de sus operaciones en su territorio y aplicando el principio de reciprocidad, suministren sus propios servicios de escala en su territorio o, si lo prefieren, recurran para todos o una parte de esos servicios a algún agente autorizado por las autoridades competentes para prestar dichos servicios.
+2. El ejercicio de los derechos estipulados en el párrafo 1 del presente Artículo será susceptible únicamente a limitaciones de índole física u operacional impuestas por razones de seguridad y protección aeroportuaria. Esas limitaciones se aplicarán de manera uniforme y en términos no menos favorables que los términos más favorables otorgados a cualquier línea aérea que opere servicios aéreos internacionales similares en el momento en que dichas limitaciones sean impuestas.

@@ -1,0 +1,10 @@
+ARTÍCULO 5
+Negativa de otorgamiento, revocación, suspensión y
+limitación de las autorizaciones de explotación
+1. No obstante lo establecido en el párrafo 1 del Artículo 4, las Partes Contratantes asegurarán que las autoridades aeronáuticas tengan el derecho de denegar las autorizaciones mencionadas en el Artículo 4 de este Acuerdo con respecto a la aerolínea designada por la otra Parte Contratante, y de revocar, suspender o imponer las condiciones que estime necesarias, de manera temporal o permanente:
+(a) Si la línea aérea en cuestión no cumple con las leyes y reglamentos normalmente aplicados por las autoridades aeronáuticas de la Parte Contratante que otorga los derechos;
+(b) Si la línea aérea en cuestión no cumple con las leyes y reglamentos de la Parte Contratante que otorga los derechos;
+(c) Cuando no exista convencimiento, en el caso de una línea aérea designada de Canadá, de que la propiedad sustancial y el control efectivo de la línea aérea correspondan a los nacionales de Canadá y, en el caso de una línea aérea designada de Costa Rica, de que la propiedad sustancial y el control efectivo de la línea aérea correspondan a los nacionales de Costa Rica y/o de El Salvador y/o Belice y/o Guatemala y/o Nicaragua y/o Honduras; y
+(d) Si la línea aérea opera de una manera contraria a las condiciones estipuladas en el presente Acuerdo.
+2. Los derechos enumerados en el párrafo 1 del presente Artículo se ejercerán sólo después de consultas entre las autoridades aeronáuticas de las Partes Contratantes de conformidad con el Artículo 20 de este Acuerdo, salvo cuando sea indispensable actuar de inmediato para impedir la infracción de las leyes y reglamentos arriba mencionados o cuando se requiera una acción por motivos de seguridad y protección de conformidad con las disposiciones de los artículos 7 u 8 del presente Acuerdo.
+3. Los derechos enumerados en el párrafo 1(c) no tienen ningún efecto en el derecho de cada Parte Contratante a establecer leyes y reglamentos en relación con la propiedad extranjera de las líneas aéreas.

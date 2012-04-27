@@ -1,0 +1,3 @@
+ARTÍCULO 20
+Consultas
+Una Parte Contratante podrá, toda vez que estime conveniente, solicitar por vía diplomática la celebración de consultas sobre la implementación, interpretación, aplicación y modificación del presente Acuerdo o sobre el cumplimiento con las disposiciones de éste. Dichas consultas, que podrán efectuarse entre autoridades aeronáuticas, se iniciarán en un plazo de sesenta (60) días contados a partir de la fecha en que la otra Parte Contratante reciba una solicitud escrita, salvo disposición contraria acordada por mutuo acuerdo entre las Partes Contratantes o disposición contraria contenida en el presente Acuerdo.

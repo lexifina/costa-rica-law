@@ -1,0 +1,6 @@
+ARTÍCULO 6
+Aplicación de las leyes
+1. Cada Parte Contratante exigirá cumplimiento con:
+(a) Sus leyes, reglamentos y procedimientos en materia de entrada, permanencia y salida de su territorio de las aeronaves dedicadas a la navegación aérea internacional, o relativos a la operación y navegación de dichas aeronaves por las líneas aéreas designadas por la otra Parte Contratante durante su entrada, permanencia y salida de dicho territorio;
+(b) Sus leyes y reglamentos en materia de entrada, permanencia o salida de su territorio de pasajeros, tripulación, carga y correo (tales como reglamentos en materia de entrada, autorización, tránsito, seguridad de la aviación civil, inmigración, pasaportes, aduanas y cuarentenas) por parte de las líneas aéreas designadas por la otra Parte Contratante y por esos pasajeros, tripulación, carga y correo o en representación de los mismos, durante su tránsito, entrada, salida y mientras se encuentren dentro de dicho territorio.
+2. En la aplicación de esas leyes y reglamentos, la Parte Contratante, en circunstancias similares, acuerda brindar a las líneas áreas designadas por la otra Parte Contratante un trato no menos favorable que el brindado a sus propias líneas aéreas o a otras líneas aéreas dedicadas a servicios aéreos internacionales similares.
