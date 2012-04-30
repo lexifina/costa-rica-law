@@ -1,0 +1,1 @@
+Artículo 5º—Dependencia encargada de aplicar el incentivo. El Departamento de Rentas conjuntamente con el encargado de Plataforma de la Municipalidad de Paraíso, será el encargado de aplicar el incentivo y de actualizar el porcentaje que se utilizará en la aplicación de este.
