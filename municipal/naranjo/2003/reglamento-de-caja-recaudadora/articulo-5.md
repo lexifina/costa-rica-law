@@ -1,1 +1,2 @@
-Artículo 5º—El encargado de la Caja Recaudadora tendrá a su cargo la venta de timbres Municipales y fiscales. Mantendrá en su custodia en timbres fiscales la cantidad de cuarenta mil colones (¢40.000,00), llevará un auxiliar detallando la fecha de compra y venta, las entradas, las salidas, el saldo y el número de comprobantes. Los timbres municipales son solicitados a la Tesorera o Auxiliar de Tesorería según su requerimiento y deberá llevar un auxiliar con las especificaciones anteriores.
+Artículo 5º—El límite máximo para la compra de bienes y servicios se establece en ¢100.000,00 sin que se requiera orden de compra únicamente con autorización de la Alcaldía.
+(Así reformado en sesión N° 18 del 30 de abril del 2012)
