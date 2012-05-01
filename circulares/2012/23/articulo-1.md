@@ -10,3 +10,4 @@ Respecto a la localización y presentación, este servicio será realizado por e
 (Modificada por el Consejo Superior en sesión Nº 17-12, celebrada 23 de febrero de 2012, artículo LXXIV).
 San José, 13 de febrero de 2012
 (Mediante sesión del Consejo Superiro N° 17-12 del 23 de febrero de 2012, publicada mediante circular N° 30 del 29 de febrero de 2012, se indica que la entrada en funcionamiento de las Oficinas de Comunicaciones Judiciales y el traslado de la función de localizaciones y presentaciones al Organismo de Investigación Judicial, será el próximo primero de mayo de 2012)
+(Mediante sesión del Consejo Superior N° 38-12 del 19 de abril del 2012, publicada mediante circular N° 54-2012 en el Boletín Judicial N° 101 del 25 de mayo se establece lo siguiente: "...las Oficinas de Comunicaciones Judiciales y otras Comunicaciones, iniciarán labores a partir del 1º de julio del 2012")
