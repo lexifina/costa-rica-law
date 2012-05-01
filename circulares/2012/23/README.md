@@ -13,3 +13,4 @@ Creación de las Oficinas de Comunicaciones Judiciales y Otras Comunicaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-01 | la propia norma |
+| 2 | 2012-05-01 | Circular 30 (2012-02-29) |
