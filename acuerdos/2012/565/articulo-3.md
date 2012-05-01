@@ -1,0 +1,1 @@
+Artículo 3º—La presente convocatoria será para el período comprendido entre las cero horas del día primero de mayo del año dos mil doce, hasta las veinticuatro horas del día treinta y uno de agosto del año dos mil doce.
