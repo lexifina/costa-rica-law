@@ -1,0 +1,1 @@
+Transitorio I.—Las organizaciones de vecinos formalmente constituidas y los comités vecinales tendrán un plazo de seis meses a partir de la publicación del presente Reglamento, para poner a derecho ante la Municipalidad de San Rafael de Heredia, las casetas y los mecanismos de acceso que estén en funcionamiento en sus localidades.

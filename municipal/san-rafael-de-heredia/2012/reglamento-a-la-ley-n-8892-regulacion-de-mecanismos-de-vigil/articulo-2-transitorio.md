@@ -1,0 +1,3 @@
+Transitorio II.—Las empresas de seguridad privada tendrán un plazo de tres meses, a partir de la entrada en vigencia de esta Ley, para implementar los medios técnicos y de capacitación que le permitan al personal de seguridad contratado conocer y manejar los alcances de la Ley y su Reglamento. Las empresas de seguridad, sean estas, personas físicas o jurídicas que brinden este servicio deberán presentar en el mismo plazo ante el Concejo Municipal declaración jurada en la que se indique que se cumplió con lo establecido en este transitorio.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+San Rafael, 15 de marzo del 2012.—

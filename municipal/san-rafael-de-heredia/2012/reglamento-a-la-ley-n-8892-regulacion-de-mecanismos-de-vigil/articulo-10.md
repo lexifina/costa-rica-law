@@ -1,0 +1,3 @@
+CAPÍTULO III
+Tramitología, autorización y suspensión
+Artículo 10.—Trámite de la solicitud. El Concejo Municipal conocerá la solicitud de la organización o comité vecinal para instalar las casetas y los dispositivos de acceso, en la sesión ordinaria siguiente a la recepción del documento. El documento será remitido a la Comisión de Obras Públicas, que evaluará los motivos que fundamentan la petición, la idoneidad de la ubicación propuesta y cualquier otro aspecto que resulte relevante. La Comisión rendirá un dictamen en un plazo perentorio de 30 días naturales contados a partir del traslado de la solicitud, con una recomendación que autoriza o rechaza la solicitud, con los razonamientos jurídicos, técnicos, de oportunidad y conveniencia que la sustenten.
