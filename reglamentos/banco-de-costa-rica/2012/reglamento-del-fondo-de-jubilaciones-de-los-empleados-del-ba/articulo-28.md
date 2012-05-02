@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones varias
+Artículo 28.—De los recursos de los empleados ingresados a partir del 18 de febrero del 2000. En cumplimiento de los mandatos de la Ley de Protección al Trabajador y de los lineamientos de la Supen, los recursos acumulados en la cuenta individual de los trabajadores que ingresaron a laborar para el Banco a partir del 18 de febrero del año 2000, deberán ser transferidos a su cuenta individual del régimen obligatorio de pensiones complementarias, dentro del término de cinco días hábiles después de su liquidación, cuando por cualquier razón se separen del Banco antes del disfrute de algunos de los beneficios consignados en este Reglamento.

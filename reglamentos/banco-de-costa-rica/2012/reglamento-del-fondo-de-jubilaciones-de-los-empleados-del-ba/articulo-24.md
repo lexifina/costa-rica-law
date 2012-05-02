@@ -1,0 +1,1 @@
+Artículo 24.—Requisito para acogerse a una prestación por vejez. Tendrá derecho a una prestación por vejez, sobre el monto acumulado en su cuenta individual, el trabajador que deje de laborar para el Banco de Costa Rica y cuente con un mínimo de cincuenta y siete años de edad.
