@@ -4,3 +4,4 @@ En el caso de la muerte del (a) cónyuge o compañera (o), viudo o viuda, la ayu
 No procede el pago simultáneo del beneficio, con la muerte de un asegurado en su doble condición de asegurado directo y de cónyuge o compañero o compañera. Cuando se dé esta doble posibilidad, se otorgará el monto mayor que corresponda.
 El monto de la ayuda mutual será fijado anualmente por la Junta Directiva, de acuerdo con las recomendaciones de la Dirección Actuarial y de Planificación Económica.
 (Así reformado mediante sesión N°8061 del 30 de mayo del 2006).
+(La Sala Constitucional mediante resolución N° 5594 del 02 de mayo de 2012 declaró con lugar la acción de inconstitucionalidad interpuesta contra este artículo “por omitir como beneficiaria, cuando fallezcan hijos menores de edad, a las mujeres aseguradas directas que tengan la condición de madres solas, jefas de hogar y único sostén económico de su núcleo familiar.”)
