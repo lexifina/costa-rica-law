@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Informar al propietario del inmueble, que esta declaratoria prohíbe su demolición, o remodelación parcial o total, sin la autorización previa del Centro de Investigación y Conservación del Patrimonio Cultural de esta Cartera Ministerial.
