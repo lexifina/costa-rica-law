@@ -1,0 +1,1 @@
+Artículo 6.- Cuando en el libro a legalizar existan folios mal compaginados, que no correspondan a una numeración consecutiva, se pondrá en estos el sello de “ANULADO” para que no se utilicen, dejando nota de los folios que presentan el error y su consecuente anulación antes de estampar el sello de apertura.

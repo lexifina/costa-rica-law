@@ -1,0 +1,1 @@
+Artículo 9.- En caso de que una(s) hoja (s) del legajo se hojas legalizado por la Auditoría Externa, sufran extravío, errores de impresión u otras alteraciones, el responsable del o los libros deberá comunicarlo a esta Auditoría, siguiendo el trámite descrito en el acápite anterior. Si se trata de hojas defectuosas deberá entregarlas a esta Auditoría Interna para su destrucción.

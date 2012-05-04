@@ -1,0 +1,2 @@
+Artículo 3.- Le corresponde a la Auditoría Externa de JACA recibir oficio de solicitud de la administración, con el libro respectivo.
+Revisar el libro, fórmula continua u hojas sueltas con encabezado y se comprueba que estén en buen estado, encuadernado (si se trata de libros como tales), que no hayan sido iniciados y que los folios estén numerados en forma consecutiva. Luego, proceder a sellar los libros y llenar el sello de apertura con la información requerida.

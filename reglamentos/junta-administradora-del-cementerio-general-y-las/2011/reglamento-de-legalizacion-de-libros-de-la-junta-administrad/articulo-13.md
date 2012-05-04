@@ -1,0 +1,1 @@
+Artículo 13.- En el momento que la Auditoría Externa dejara de prestar sus servicios a esta Institución, entregará a JACA, el libro de registro y los sellos mencionados en los artículo #2 y #4 de este Reglamento.
