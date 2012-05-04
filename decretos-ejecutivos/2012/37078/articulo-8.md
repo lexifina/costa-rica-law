@@ -1,0 +1,1 @@
+Artículo 8º—Toda estructura organizacional, así como sus modificaciones, deberá contar con la aprobación del jerarca supremo y estar debidamente autorizada por MIDEPLAN, de conformidad con el Decreto Ejecutivo No. 26893-MTSS-PLAN de 6 de enero de 1998 y sus reformas.

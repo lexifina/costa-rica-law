@@ -1,0 +1,1 @@
+Artículo 9º—Para las reasignaciones, ascensos, sustituciones, recargo de funciones y cualquier otro movimiento de personal, la administración activa velará por el cumplimiento de los requisitos académicos y legales que exigen los correspondientes manuales institucionales de clases y cargos vigentes.
