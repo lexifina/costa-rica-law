@@ -14,3 +14,4 @@ Instructivo para contratar los servicios de reparación y atención de averías 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-16 | la propia norma |
+| 2 | 2012-05-04 | Reglamento 0 (2012-05-04) |
