@@ -1,0 +1,1 @@
+Artículo 22.—Se toma como tarifa Institucional o Gobierno 4: Toda institución gubernamental, ONG o institución no comercial, que produzca mas de 79 kg y hasta 149 kgr de desechos ordinarios por semana.

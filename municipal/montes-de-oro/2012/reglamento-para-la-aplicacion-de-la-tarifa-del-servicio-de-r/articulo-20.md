@@ -1,0 +1,1 @@
+Artículo 20.—Se toma como tarifa Institucional o Gobierno 2: Toda institución gubernamental, ONG o institución no comercial, que produzca más de 15 y hasta 45 kgr de desechos ordinarios por semana y que se ubiquen dentro del área de cobertura del servicio de recolección.

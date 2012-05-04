@@ -1,0 +1,1 @@
+Artículo 27.—Recibido el reclamo en la forma señalada en el artículo anterior, la administración municipal contará con un plazo no mayor a un mes calendario, para resolver el reclamo respectivo, el cual tendrá los recursos de alzada, señalados en la ley.
