@@ -1,0 +1,2 @@
+ARTICULO 18:
+Cualquier faltante que se produzca al momento de practicar el arqueo, deberá de ser cubierto por el encargado de la caja chica. El plazo para cubrir el faltante será de 24 horas después que ha sido detectado el faltante; en el caso de sobrante deberá depositarse inmediatamente a la cuenta corriente de la Junta, en el entendido que por norma general, los faltantes no son compensables con los sobrantes.

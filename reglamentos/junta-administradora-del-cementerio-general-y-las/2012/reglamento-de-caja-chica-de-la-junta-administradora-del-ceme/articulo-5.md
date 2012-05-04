@@ -1,0 +1,2 @@
+ARTICULO 5:
+La Junta Directiva designará en caso de ausencia por vacaciones, incapacidades o permisos del responsable permanente de la caja chica, a quien lo sustituirá temporalmente, quien deberá cumplir igualmente, con este reglamento. Se le entregará el fondo mediante arqueo previo por parte del contador y administrador(a) y al término de su función como encargado suplente de la caja chica se realizará un nuevo arqueo de recibimiento.

@@ -1,0 +1,2 @@
+ARTICULO 7:
+La Junta Directiva de JACA, conjuntamente con la administración, podrán ampliar el fondo de Caja Chica con el fin de mantener una adecuada actualización dependiendo del costo de la vida. También podrán ampliar el fondo de la caja chica de manera temporal con el fin de atender alguna situación especial que haga imprescindible la utilización de este mecanismo, debiendo volver al monto aprobado anteriormente una vez que finalice la situación especial y se realice la liquidación correspondiente sobre el monto especial aprobado.
