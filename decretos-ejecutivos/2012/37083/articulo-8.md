@@ -1,0 +1,1 @@
+Artículo 8.- Los laboratorios que realicen análisis fisicoquímicos y microbiológicos contemplados en este reglamento, deberán tener permiso de funcionamiento otorgado por el Ministerio de Salud, según Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 4.- Para efectos de este reglamento, le corresponde a cada establecimiento de salud realizar los programas de control de calidad del agua y al Ministerio de Salud la vigilancia de la calidad del agua.

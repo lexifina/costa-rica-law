@@ -1,0 +1,1 @@
+Artículo 5.- Cada establecimiento de salud deberá enviar reportes semestrales de la calidad del agua al Ministerio de Salud. Para tales efectos el Ministerio de Salud publicará, en el Diario Oficial La Gaceta, el procedimiento y formato de presentación de reportes del sistema de abastecimiento.
