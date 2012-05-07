@@ -1,1 +1,0 @@
-Artículo 19.—Asuntos varios. Los regidores y síndicos propietarios o suplentes podrán presentar sus inquietudes o solicitudes en el Capítulo de Varios; se recibirán únicamente por escrito y detallando el asunto y el acuerdo que desea sea tomado.

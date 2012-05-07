@@ -1,1 +1,0 @@
-Artículo 13.—Cuando el objetivo de la audiencia fuera un asunto de "competencia del Alcalde Municipal", el Concejo mediante acuerdo trasladará el asunto al referido funcionario para que este le dé trámite remitiendo copia al interesado.

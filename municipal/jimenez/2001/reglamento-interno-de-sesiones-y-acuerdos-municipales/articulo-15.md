@@ -1,1 +1,0 @@
-Artículo 15.—Durante el capítulo de Audiencias, el Concejo Municipal se limitará a escuchar la exposición de los señores visitantes y de ninguna manera se tomará ninguna clase de acuerdo, salvo casos de emergencia; por lo que la Presidencia Municipal lo trasladará para su atención al Capítulo de Varios o a la Comisión respectiva.

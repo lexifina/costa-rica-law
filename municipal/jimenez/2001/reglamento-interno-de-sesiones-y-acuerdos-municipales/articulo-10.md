@@ -1,1 +1,0 @@
-Artículo 10.—Revisión. El recurso de revisión que como facultad de los regidores establece el Código Municipal en su artículo 48, se planteará antes de ser aprobada el acta. La misma mayoría requerida para dictar el acuerdo del que se pide revisión; será necesaria para acordar esta. El Concejo decidirá enseguida si acepta la revisión.
