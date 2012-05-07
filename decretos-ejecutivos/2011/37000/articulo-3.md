@@ -1,0 +1,1 @@
+Artículo 3. Por razones de seguridad de la vida humana y de la navegación, los buques de tráfico internacional con capacidad de maniobra restringida, tiene prioridad de paso en la ruta prevista en el presente Decreto, por sobre cualquier otro tipo de embarcaciones.
