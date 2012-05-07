@@ -14,3 +14,4 @@ Reglamento de organización y funciones de la Auditoría Interna de la Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-25 | la propia norma |
+| 2 | 2012-05-07 | Reglamento municipal 165 (2012-05-07) |
