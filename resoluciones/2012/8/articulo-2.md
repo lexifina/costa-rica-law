@@ -1,0 +1,2 @@
+Artículo 2º—La falta de inscripción no libera a los contribuyentes, de la obligación de pagar el impuesto con respecto a todas las operaciones gravadas que hubieren efectuado con posterioridad al 7 de mayo del año en curso.
+La Administración Tributaria inscribirá de oficio, ya sea por actuación propia o por la presentación de las declaraciones por parte de los contribuyentes, a las personas físicas o morales que no hubieren solicitado la inscripción en tiempo.
