@@ -1,0 +1,1 @@
+Artículo 4. Las funciones delegadas mediante la presente resolución, se entenderán de manera transitoria y su vigencia quedará supeditada hasta tanto no exista designación por parte de la Asamblea Legislativa y asuman funciones el Contralor(a) y/o Subcontralor(a) Generales de la República, en cuyo caso, dejará de surtir efectos sin necesidad de acto alguno que así lo establezca.
