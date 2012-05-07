@@ -1,0 +1,1 @@
+Artículo 7°—Disponibilidad de tiempo. Los miembros de la CIMAD-PGR deberán asistir a las sesiones y atender diligencias o actividades propias de la Comisión; para ello, deberán disponer del tiempo necesario.

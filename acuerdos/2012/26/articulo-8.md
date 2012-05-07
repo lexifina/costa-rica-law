@@ -1,0 +1,1 @@
+Artículo 8°—Quejas. La CIMAD-PGR recibirá las quejas o inconformidades que se presenten respecto de aquellos asuntos que afecten la accesibilidad o los derechos fundamentales de las personas con discapacidad, y canalizará el asunto adecuadamente, a fin de coadyuvar en la solución del problema.

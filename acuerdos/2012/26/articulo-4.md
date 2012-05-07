@@ -1,0 +1,1 @@
+Artículo 4°—Servicios. La CIMAD velará para que las diferentes Áreas que conforman la Procuraduría desarrollen actividades y acciones para el ajuste razonable y la mejora en todos los servicios dirigidos a la ciudadanía, de manera que se garantice a las personas con discapacidad el goce o ejercicio de ellos en igualdad de condiciones.
