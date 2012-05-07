@@ -1,0 +1,1 @@
+6º—La delegación que se le otorga a las Unidades Ejecutoras de realizar los trámites de contratación, no incluye la potestad de administrar recursos del Fondo Nacional de Emergencia, se limita a la ejecución del trámite de contratación bajo el marco de excepción que permite la Ley N° 8488; exceptuando la existencia de Convenios para estos efectos.

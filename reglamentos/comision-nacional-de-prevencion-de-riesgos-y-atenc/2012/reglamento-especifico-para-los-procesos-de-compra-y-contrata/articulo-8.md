@@ -1,0 +1,2 @@
+De los convenios
+8º—En casos específicos la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias podrá suscribir convenios interinstitucionales para traslados de dineros del Decreto Nº 36440-MP, en sede del ente ejecutor; para ello, la entidad solicitante del convenio presentará la solicitud a la Presidencia de la CNE, quien una vez revisada elevará a la Junta Directiva de la CNE la recomendación positiva o negativa, siendo esta última la que valorará cada caso y tendrá la potestad de separarse de la recomendación y justificar su decisión.

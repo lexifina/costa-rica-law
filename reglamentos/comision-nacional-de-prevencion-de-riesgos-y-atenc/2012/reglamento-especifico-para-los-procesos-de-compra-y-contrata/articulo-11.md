@@ -1,0 +1,1 @@
+11.—En lo no regulado expresamente por este Reglamento, se aplicará supletoriamente el Reglamento para el Funcionamiento de la Proveeduría Institucional de la CNE, el Reglamento de Funcionamiento y Fiscalización de Unidades Ejecutoras así como la Ley de la Contratación Administrativa y su Reglamento.
