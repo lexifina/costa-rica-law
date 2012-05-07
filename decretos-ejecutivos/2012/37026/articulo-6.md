@@ -1,0 +1,2 @@
+Articulo 6º— Inicio del procedimiento ante la Municipalidad: Para el trámite ante la Municipalidad se deberá de presentar el formulario único, los requisitos y declaración jurada, correspondiente, establecidos de común acuerdo entre las instituciones indicadas en al artículo 2° de este Decreto.
+Recibida dicha documentación y constatados los cuatro últimos requisitos indicados en el artículo anterior, la Municipalidad procederá a escanear dicha documentación y la remitirá mediante correo electrónico al resto de las instituciones involucradas en el plazo de un día.
