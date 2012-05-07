@@ -1,0 +1,1 @@
+Transitorio Único: Además de las representaciones establecidas en el artículo 5, sección II, para el primer año de operación conformaran el Consejo de Competitividad de la Región Brunca, las representaciones de: Coopecarnisur, Cooproarrosur, Coopeagropal y Coopacsur.
