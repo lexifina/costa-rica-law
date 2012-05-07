@@ -1,0 +1,2 @@
+Artículo 8°—De los intereses. Todas aquellas deudas originadas por concepto de morosidad en el pago por parte de las personas jurídicas obligadas a cancelar el tributo generará intereses de acuerdo a lo establecido en el artículo 57 del Código de Normas y Procedimientos Tributarios Nº 4755.
+Para efectos de la aplicación de esta disposición, la Dirección General de Tributación del Ministerio de Hacienda deberá realizar el cálculo de los intereses que correspondan, e informar de ello al Registro Nacional para efectos de que éste aplique el cobro respectivo.
