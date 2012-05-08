@@ -1,0 +1,2 @@
+Artículo 13.—La Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones o el director de Operaciones o el director Comercial Empresarial y de Personas, podrán autorizar una disminución a la base, hasta un 25%, cuando la promoción de la venta haya resultado infructuosa.
+Esta autorización, deberá ser debidamente motivada, y sustentada en criterios de razonabilidad y conveniencia institucional.
