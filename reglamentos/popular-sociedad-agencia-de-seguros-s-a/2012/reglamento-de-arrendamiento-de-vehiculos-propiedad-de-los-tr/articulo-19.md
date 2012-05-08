@@ -1,0 +1,1 @@
+Artículo 19.—Popular Seguros podrá prescindir del servicio de arrendamiento cuando considere que esta modalidad no resulta conveniente a sus intereses o bien sea sustituida por una alternativa diferente.

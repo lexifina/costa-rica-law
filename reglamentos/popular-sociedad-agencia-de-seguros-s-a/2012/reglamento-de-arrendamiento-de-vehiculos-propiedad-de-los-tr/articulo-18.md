@@ -1,0 +1,1 @@
+Artículo 18.—Corresponde a cada Jefatura y al Auditor General, según corresponda al área de atención de cada uno, autorizar las giras a sus funcionarios, bajo este sistema y ejercer el control y vigilancia de la aplicación del mismo.

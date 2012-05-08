@@ -1,0 +1,1 @@
+Artículo 4º—Bajo ninguna circunstancia, la remuneración por el pago de arrendamiento, será considerado como beneficio, mejora salarial, salario en especie, o en forma alguna, parte del contrato de trabajo, ni dará lugar a derechos adquiridos a favor del trabajador arrendante.

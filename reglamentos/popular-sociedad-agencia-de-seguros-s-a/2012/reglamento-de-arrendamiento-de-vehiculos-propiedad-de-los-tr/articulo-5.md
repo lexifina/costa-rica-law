@@ -1,0 +1,1 @@
+Artículo 5º— El monto a pagar por el arrendamiento será la que resulte del procedimiento que se establece en el artículo 2° de este Reglamento, en el apartado que define la “Forma de Pago” y se calculará para cada gira efectuada.

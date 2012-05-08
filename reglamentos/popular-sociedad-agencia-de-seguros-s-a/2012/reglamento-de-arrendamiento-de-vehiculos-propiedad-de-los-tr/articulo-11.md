@@ -1,0 +1,1 @@
+Artículo 11.—Cada jefatura estará en la obligación de verificar la disponibilidad de recursos presupuestarios. No se podrán realizar giras o gestiones sin contar con el sustento económico y autorizaciones estipuladas, siendo improcedente el pago por concepto de arrendamiento en estas condiciones, debiendo el funcionario cubrir de su propio peculio los gastos incurridos.

@@ -1,0 +1,1 @@
+Artículo 12.—La responsabilidad que se deriven por el pago del arrendamiento será exclusiva de la persona que recibió el pago. Al jefe que avaló el pago, solo le acarreará responsabilidad en caso de dolo o por aprobaciones o pagos indebidos.
