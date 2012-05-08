@@ -1,0 +1,1 @@
+Artículo 21.—El personal del INA que por iniciativa propia desee utilizar signos externos institucionales, deberá sufragarlos con su propio peculio y tendrá la obligación de respetar los colores y diseños aprobados en el Manual de Imagen Gráfica Institucional y obtener la aprobación de la Asesoría de Comunicación.

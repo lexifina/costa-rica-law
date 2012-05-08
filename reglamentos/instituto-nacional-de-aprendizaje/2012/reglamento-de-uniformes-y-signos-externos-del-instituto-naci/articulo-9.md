@@ -1,0 +1,1 @@
+Artículo 9º—La Jefatura que tenga a su cargo personal que debe usar uniforme, de acuerdo a las disposiciones de este Reglamento, deberá tomar las previsiones presupuestarias del caso y tramitar oportunamente ante la instancia correspondiente su adquisición o confección.

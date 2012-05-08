@@ -1,0 +1,1 @@
+Artículo 17.—Los colores de las prendas de vestir, así como los tamaños de los logos y sus diseños deberán ser acordes a lo estipulado en el Manual de Imagen Gráfica del Instituto Nacional de Aprendizaje.

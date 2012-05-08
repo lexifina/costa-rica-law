@@ -1,0 +1,1 @@
+Artículo 12.—La Jefatura de la Unidad o Núcleo donde se encuentren ubicadas las personas funcionarias autorizadas para el uso del uniforme son los responsables de velar porque se cumplan las disposiciones contenidas en este Reglamento

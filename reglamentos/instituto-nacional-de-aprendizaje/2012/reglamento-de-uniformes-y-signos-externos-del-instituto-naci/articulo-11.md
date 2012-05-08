@@ -1,0 +1,1 @@
+Artículo 11.—Las personas funcionarias que reciban uniforme, de conformidad con las disposiciones de este Reglamento están en la obligación de utilizarlo durante todas las horas y días que conforman su jornada laboral

@@ -1,0 +1,1 @@
+Artículo 19.—Todo trámite de adquisición de signos externos deberá justificarse específicamente para cada evento. En esa justificación se consignarán las razones que hacen necesaria su utilización en el evento o actividad específica de que se trate.

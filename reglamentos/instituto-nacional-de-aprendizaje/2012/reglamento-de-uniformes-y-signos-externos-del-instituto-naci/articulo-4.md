@@ -1,0 +1,1 @@
+Artículo 4º—Las Dependencias que requieran comprar uniformes o signos externos cumplirán con las especificaciones técnicas del “Sistema de Información de Recursos Materiales” (SIREMA) y el Manual de Imagen gráfica para su correcta digitación y cumplir con los trámites respectivos en la adquisición y confección de uniformes.
