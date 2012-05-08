@@ -1,1 +1,0 @@
-Artículo 12.—En los casos que se presente las propuestas de proyectos tecnológicos sin solución, el CONICIT u otro ente técnico tendrán 15 días naturales adicionales para su respectivo análisis e informe técnico. Vencido dicho plazo los informes deberán ser entregados a la Comisión de Incentivos para que conozca y resuelva según corresponda.

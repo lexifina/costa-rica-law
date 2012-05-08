@@ -1,1 +1,0 @@
-Artículo 22.—Como complemento al presupuesto ordinario del CONICIT, se le asignará un tres por ciento (3%) de cada proyecto aprobado y ejecutado con recursos de “PROPYME”, para que cree y aplique los mecanismos que aseguren la administración, la promoción, la evaluación, el control y seguimiento de los proyectos presentados al “PROPYME”.

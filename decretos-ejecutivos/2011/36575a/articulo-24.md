@@ -1,1 +1,0 @@
-Artículo 24.—El control y seguimiento de los proyectos será realizado por el CONICIT, mediante visitas o evaluaciones de los informes periódicos que realice al beneficiario durante la ejecución de los proyectos.
