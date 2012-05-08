@@ -14,3 +14,4 @@ Aprueba Reglamento pra el Programa de Fortalecimiento para la Innovación y Desa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-23 | la propia norma |
+| 2 | 2012-05-08 | Decreto Ejecutivo 37168 (2012-05-08) |

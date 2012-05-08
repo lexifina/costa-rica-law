@@ -17,5 +17,4 @@ Reglamento para el Programa de
 Fortalecimiento para la Innovación
 y Desarrollo Tecnológico
 de las PYME
-Artículo 1º—Emítase el Reglamento para el Programa de Fortalecimiento para la Innovación y Desarrollo Tecnológico de las PYME, el cual se leerá de la siguiente manera:
-(Nota de Sinalevi: Por tener articulado propio el Reglamento para el Programa de Fortalecimiento para la Innovación y Desarrollo Tecnológico de las PYME, debe consultarse en forma independiente en el Sistema)
+Artículo 1º—(Derogado por el artículo 26 del Reglamento para el Programa de Fortalecimiento para la Innovación y Desarrollo Tecnológico de la PYME, aprobado mediante decreto ejecutivo N° 37168 del 8 de mayo de 2012)
