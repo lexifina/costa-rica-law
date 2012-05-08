@@ -14,3 +14,4 @@ Reglamento Municipal de Obras Menores de la Municipalidad de Parrita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-12 | la propia norma |
+| 2 | 2012-05-08 | Acuerdo municipal 8 (2012-05-08) |

@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE PARRITA
+(Esta norma fue derogada y dejada sin efecto mediante acuerdo AC-08-2449-2012 y publicado en La Gaceta N° 107 del 4 de junio de 2012)
 SM-0362-2011.—La suscrita Claribeth Piedra Córdoba, cédula de identidad 6-386-936, en calidad de secretaria del Concejo Municipal a. í., Municipalidad de Parrita, certifico el acuerdo N° 03 de la sesión ordinaria 2376-2011, fechado 16 de mayo de 2011, donde se le comunica, el Reglamento Municipal de Obras Menores de la Municipalidad de Parrita.
 Asunto: transcripción de acuerdo N° 03, artículo cuarto correspondencia, Asunto N° 15, de la sesión ordinaria N° 2376-2011, celebrada el dieciséis de mayo del dos mil once.
 ASUNTO N° 15: Se recibe carta por parte del Alcalde Municipal sobre la aprobación del Reglamento Municipal de Obras Menores.
