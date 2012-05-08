@@ -1,2 +1,0 @@
-Artículo 15.—Del uso del chaleco reflectivo. El chaleco reflectivo será de color naranja, con bandas amarillas en material reflectivo, con la leyenda “Policía” al frente y “Fuerza Pública” en su parte trasera. Será parte del uniforme cuando así se requiera.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 33510 del 20 de diciembre, que lo traspaso del antiguo 14 al 15 actual del artículo)
