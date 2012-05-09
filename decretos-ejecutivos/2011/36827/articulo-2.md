@@ -1,0 +1,1 @@
+Artículo 2. Deróguese el Decreto Ejecutivo 29218-MAG, “Declaratoria de Estado de Emergencia Nacional por la Plaga Cuarentenal Broca del Cafeto” del 22 de diciembre del 2000, publicado en La Gaceta 249 del 28 de diciembre de 2000, Alcance 94-A;

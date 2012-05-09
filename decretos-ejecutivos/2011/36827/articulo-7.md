@@ -1,0 +1,1 @@
+Artículo 7. Deróguese el Decreto Ejecutivo 32372-MAG, “Declara Estado de Emergencia Fitosanitaria por daños en Plantaciones de Banano y Plátano en las Regiones Huetar Atlántica y Huetar Norte, causadas por Hongos y Bacterias”, del 22 de abril de 2005, publicado en La Gaceta 122 del 24 de junio de 2005

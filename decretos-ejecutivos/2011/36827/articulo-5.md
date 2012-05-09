@@ -1,0 +1,1 @@
+Artículo 5. Deróguese el Decreto Ejecutivo 31801-MAG, “Declara Estado de Emergencia Fitosanitaria por Langosta Voladora (Schistocerca piceifrons, Walker)” del 7 de mayo de 2004, publicado en La Gaceta 99 del 21 de mayo de 2004;

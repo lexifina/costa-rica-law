@@ -1,0 +1,1 @@
+Artículo 4. Decreto Ejecutivo 29357-MAG, “Decreta estado de Emergencia Fitosanitaria Regional, por Moko y Sigatoka Negra en Plantaciones Bananeras de la Zona Sur del País”, del 27 de febrero de 2001, publicado en La Gaceta 53 del 15 de marzo de 2001;

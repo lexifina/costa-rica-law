@@ -1,0 +1,1 @@
+Artículo 6. Deróguese el Decreto Ejecutivo 32052-MAG “Declaratoria de Estado de Emergencia Nacional por la Plaga Cuarentenaria Acaro del Vaneo del Arroz”, del 27 de setiembre de 2004, publicado en La Gaceta 205 del 20 de octubre de 2004;

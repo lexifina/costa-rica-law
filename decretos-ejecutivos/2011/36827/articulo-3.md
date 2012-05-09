@@ -1,0 +1,1 @@
+Artículo 3. Deróguese el Decreto Ejecutivo 29356-G, “Reforma Declaratoria de Emergencia Nacional por la Plaga Cuarentenal Broca del Cafeto”, del 27 de febrero de 2001, publicado en La Gaceta 53 del 15 de marzo de 2001;
