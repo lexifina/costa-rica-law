@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los reintegros
+Artículo 22.—Responsable de efectuar los reintegros. Los reintegros del Fondo de Caja Chica deberán ser tramitados por el encargado de su custodia cuando el disponible llegue a un mínimo del diez por ciento (10 %) o un máximo del treinta por ciento (30%) del fondo fijo autorizado, lo anterior, con el propósito de que le permita cumplir adecuadamente con la operación del mismo, se deben emitir a nombre del custodio o en ausencia de éste, a nombre del funcionario que lo supla. Asimismo; será el responsable de tramitar los reembolsos necesarios con el propósito de darle una rotación óptima a los recursos y mantener la liquidez del fondo.

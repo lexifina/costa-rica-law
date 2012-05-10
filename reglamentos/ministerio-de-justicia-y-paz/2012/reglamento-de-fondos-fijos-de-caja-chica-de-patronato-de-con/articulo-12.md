@@ -1,0 +1,3 @@
+Artículo 12.—Cajas Auxiliares. El fondo de Caja Chica podrá subdividirse en cajas auxiliares, las cuales operarán como fondo de caja chica. En su creación y funcionamiento se deberán atender las siguientes disposiciones:
+a) La creación de las cajas auxiliares será definida en atención a las necesidades de cada Centro Penal, aprobado por el Responsable, previa autorización de la Junta Directiva del Patronato de Construcciones Instalaciones y Adquisición de Bienes.
+b) La determinación del monto a asignar y el número de cajas auxiliares con cuenta bancaria la realizará el respectivo Responsable, con aprobación de la Junta Directiva del Patronato de Construcciones Instalaciones y Adquisición de Bienes

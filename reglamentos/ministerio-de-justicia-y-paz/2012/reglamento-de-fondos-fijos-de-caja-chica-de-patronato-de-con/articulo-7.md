@@ -1,0 +1,1 @@
+Artículo 7º—Monto del pago máximo. El pago a incurrir en gastos por medio del Fondo de Caja Chica, se establecerá de conformidad con la metodología del límite económico emitida por la Tesorería Nacional para cada período presupuestario.

@@ -1,0 +1,1 @@
+Artículo 30.—La Dirección Financiera gestionara ante la Auditoria Interna del Ministerio de Justicia y Paz, la legalización de los libros que se utilizarán para el control y registro de los gastos efectuados con recursos de caja chica, el cual será entregado al encargado del fondo fijo.

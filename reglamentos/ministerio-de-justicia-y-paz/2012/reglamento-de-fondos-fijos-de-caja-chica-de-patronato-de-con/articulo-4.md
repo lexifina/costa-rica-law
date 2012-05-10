@@ -1,0 +1,2 @@
+Artículo 4º—Objetivo. El presente reglamento tiene por objeto regular los aspectos de creación, organización, funcionamiento y control del fondo fijo de dinero denominado caja chica del Patronato de Construcciones, Instalaciones y Adquisición de Bienes.
+Asimismo, establece las disposiciones generales que regulan la creación, planificación, organización, ejecución, operación y control del fondo de caja chica que se tenga o se establezca en el Patronato de Construcciones, Instalaciones y Adquisición de Bienes.

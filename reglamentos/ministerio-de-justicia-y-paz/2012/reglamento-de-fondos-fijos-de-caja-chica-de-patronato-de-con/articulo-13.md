@@ -1,0 +1,1 @@
+Artículo 13.—Responsables del fondo de cajas auxiliares. Las cajas auxiliares estarán bajo la responsabilidad del Jefe de la Unidad Financiera de Cada Centro Penal, departamento de quien delegue el cumplimiento de las funciones atinentes a dicho cargo

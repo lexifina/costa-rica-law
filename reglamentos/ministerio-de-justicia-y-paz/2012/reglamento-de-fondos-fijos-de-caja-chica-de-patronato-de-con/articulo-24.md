@@ -1,0 +1,1 @@
+Artículo 24.—Reintegro de facturas del periodo anterior. El trámite de reintegro de facturas de un periodo presupuestario anterior con cargo al presupuesto vigente, se podrá efectuar sobre las cuentas presupuestarias vigentes en el nuevo ejercicio presupuestario. Dicho trámite se deberá realizar a más tardar al 15 de enero de cada año.
