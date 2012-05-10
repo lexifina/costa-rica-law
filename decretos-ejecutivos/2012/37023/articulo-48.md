@@ -1,0 +1,1 @@
+Artículo 48.-Los sitios de buceo autónomo autorizados en el PNIC para personas acreditadas como buzo avanzado, incluyen las del artículo anterior y las siguientes: Manuelita Profundo (Oeste), Roca Vikinga, Roca Sucia, Bajo Punta María, Dos Amigos Grande, Dos Amigos Pequeña, Roca Aleta de Tiburón, Cabo Dampier (Manta Corner), Roca Sumergida, Bajo Alcyone.

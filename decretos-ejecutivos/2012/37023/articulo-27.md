@@ -1,0 +1,1 @@
+Artículo 27.- La Dirección del ACMIC podrá autorizar el ingreso a embarcaciones con fines ecoturísticos hasta por un máximo de 12 días naturales consecutivos. Ningún visitante podrá exceder el tiempo autorizado en su permiso de ingreso, salvo caso fortuito o fuerza mayor.

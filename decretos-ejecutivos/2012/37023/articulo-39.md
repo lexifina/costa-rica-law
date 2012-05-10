@@ -1,0 +1,1 @@
+Artículo 39.- Las actividades de investigación se regirán según lo establecido en el Decreto Ejecutivo N° 32553–MINAE del 29 de marzo del 2005 denominado “Manual de Procedimientos para realizar Investigación en Biodiversidad y Recursos Culturales en las Áreas de Conservación.”

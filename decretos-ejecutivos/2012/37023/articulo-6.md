@@ -1,0 +1,1 @@
+Artículo 6.- Se prohíbe el ingreso y estadía de todo tipo de embarcaciones dentro de los límites marinos protegidos del PNIC, que comprende una distancia de 12 millas náuticas o 22.22 kilómetros alrededor de la Isla del Coco, medidos a partir de la línea de bajamar.

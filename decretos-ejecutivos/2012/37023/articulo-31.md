@@ -1,0 +1,1 @@
+Artículo 31.- Se definen como sitios de fondeo a utilizar por las diferentes embarcaciones, las Bahías de Chatham y Wafer. La Administración del PNIC, podrá autorizar mediante resolución fundamentada el fondeo en casos especiales, en otros sitios diferentes a los mencionados anteriormente, siempre y cuando medie una solicitud previa.

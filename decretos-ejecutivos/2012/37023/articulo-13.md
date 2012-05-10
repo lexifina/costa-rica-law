@@ -1,0 +1,9 @@
+Artículo 13.- La Dirección del ACMIC podrá reservar, a quienes así lo soliciten, el derecho de ingreso al PNIC, para las fechas comprendidas entre los meses de enero y diciembre de un mismo año. Para dicho fin, la persona jurídica o física deberá presentar solicitud por escrito entre los meses de junio y julio del año trasanterior al año de la fecha de ingreso pretendida.
+Dicha solicitud debe ser presentada por individual para cada embarcación y debe contener los siguientes datos: nombre, matrícula, bandera, eslora, manga y características básicas de la embarcación en que se realizará el viaje al PNIC; y acompañarse de la siguiente documentación:
+a) Copia certificada de cédula jurídica, personería jurídica y copia de cédula de identidad del representante legal en caso de personas jurídicas o copia de cédula de identidad en caso de personas físicas.
+b) Copia certificada de los certificados de navegabilidad y autonomía marítima de la embarcación que realizará el viaje al PNIC, para caso de embarcaciones de bandera nacional. En caso de tener bandera extranjera, deberá presentar el documento equivalente en el país de registro de la embarcación.
+c) Propuesta de itinerario, que contenga la cantidad de personas que se pretende se autoricen a ingresar al PNIC, en cada viaje.
+d) Para el caso en que la persona física o jurídica solicitante sea distinta a la persona física o jurídica propietaria de la embarcación, deberá aportar un Poder Especial para realizar el trámite.
+e) Dirección o número fax para efectos de notificaciones.
+En caso de que el solicitante desee desarrollar una operación regular en el PNIC, al tramitar la solicitud de reserva de derecho de ingreso deberá además cumplir con la presentación del siguiente requisito:
+- Declaratoria Turística de Transporte Acuático, otorgada por el Instituto Costarricense de Turismo, a la empresa o a la nave acuática.

@@ -1,0 +1,1 @@
+Artículo 17.- La Dirección del ACMIC únicamente podrá aprobar un máximo de 2 solicitudes directas de permiso de ingreso en un año calendario, a los operadores regulares, a los cuales se les haya aprobado reserva de derecho de ingreso.

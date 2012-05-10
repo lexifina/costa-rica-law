@@ -1,0 +1,2 @@
+Artículo 76.- Funcionarios del PNIC o voluntarios autorizados por el PNIC debidamente identificados, que cuenten con acreditación de buceo y seguro de buceo al día, podrán, sin previo aviso, acompañar a los grupos de buceo autónomo en sus embarcaciones, cuando lo estimen conveniente, con el fin de fiscalizar, controlar y monitorear las actividades que estos realicen.
+Para lo anterior, todas las embarcaciones deben proveer un espacio en los botes y el tanque con aire o mezcla según el buceo a realizar, para los funcionarios o voluntarios señalados.

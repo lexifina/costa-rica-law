@@ -1,0 +1,1 @@
+Artículo 9.- La autorización emitida por la Dirección del ACMIC lo es únicamente dentro de las competencias otorgadas por el artículo 22 de la Ley de Biodiversidad Nº 7788, y no otorga ningún derecho de ingreso a Costa Rica; para lo cual, las personas y embarcaciones de origen extranjero deberán realizar los debidos trámites ante las instancias competentes.

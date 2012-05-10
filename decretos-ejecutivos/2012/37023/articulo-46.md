@@ -1,0 +1,1 @@
+Artículo 46.- Toda persona que desee realizar buceo autónomo en el PNIC deberá estar acreditada como buzo certificado por una agencia de buceo autónomo reconocida a nivel nacional o internacional y solo podrá realizar la actividad en los sitios autorizados por el PNIC, de conformidad a su acreditación y nivel de buceo.

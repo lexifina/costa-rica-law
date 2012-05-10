@@ -1,0 +1,1 @@
+Artículo 44.- La circunnavegación solo se podrá realizar previa autorización de la Administración del PNIC en embarcaciones adecuadas, dotadas con chalecos salvavidas, equipo de comunicación (canal 16 de VHF o frecuencia 8325.0 USB) y soporte de localización GPS.

@@ -1,0 +1,1 @@
+Artículo 43.- La práctica de canotaje, solo se podrá realizar previa coordinación con el PNIC, en grupos no mayores a 14 personas. Entre las 08:00 y las 16:00 horas, dentro de la Bahía Chatham o la Bahía Wafer, siempre y cuando las condiciones climáticas lo permitan y donde cada visitante cuente con el chaleco salvavidas.

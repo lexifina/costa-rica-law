@@ -1,0 +1,1 @@
+Artículo 49.- Únicamente se podrá realizar buceo autónomo nocturno dentro del PNIC en los siguientes sitios: Manuelita Somero (Este), Bahía Chatham cerca de fondeos establecidos, Barco Hundido en Bahía Wafer, Roca Gissler, Roca Cónica (Punta Ulloa).

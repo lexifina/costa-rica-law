@@ -1,0 +1,1 @@
+Artículo 53.- Cada sitio de buceo nocturno autorizado en el presente reglamento, solamente podrá ser visitado, la cantidad de veces que determine el estudio de capacidad de carga marina oficializado por la Administración y por un grupo no mayor a las 12 personas, incluyendo al guía (dive master). La inmersión nocturna debe iniciar antes de las 18:30 horas.
