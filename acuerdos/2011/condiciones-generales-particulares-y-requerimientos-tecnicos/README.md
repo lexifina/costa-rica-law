@@ -14,3 +14,4 @@ Condiciones generales, particulares y requerimientos técnicos del cartel tipo d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-26 | la propia norma |
+| 2 | 2012-05-10 | Reglamento 0 (2012-05-10) |

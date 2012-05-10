@@ -132,7 +132,8 @@ Oferta de descuento
 Nº de Licitación Pública
 Fecha de presentación
 Nombre de la firma
-22.4 En la convocatoria de descuento estarán presentes por parte del ICE el Coordinador de Contratación Administrativa de la dependencia respectiva, un representante del Área Legal y un representante de la Proveeduría.
+22.4 En la convocatoria de descuento estarán presentes por parte del ICE, el Coordinador de Contratación Administrativa de la dependencia respectiva y un representante de la Proveeduría.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 94 del 16 de mayo del 2012)
 22.5 El representante de la Proveeduría levantará un acta donde se anotará la lista de participantes en el acto presencial y el nombre de la empresa que representa.
 22.6 El representante de la Proveeduría procederá a leer en voz alta ante los presentes los alcances de la propuesta de descuento y la incluirá en el acta que se levanta al efecto.
 22.7 Se firmará el acta de descuento por los participantes del ICE y por aquellos representantes de las compañías directamente interesados que así lo soliciten.
