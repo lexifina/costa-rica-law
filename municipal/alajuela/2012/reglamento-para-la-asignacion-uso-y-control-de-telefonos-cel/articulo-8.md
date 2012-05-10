@@ -1,0 +1,1 @@
+Artículo 8º—Otros usuarios. Además de los funcionarios indicados en el artículo anterior, podrán tener acceso al uso de teléfono celular: el chofer del Alcalde, el encargado de la Comisión de Emergencia, y una línea que será asignada a discreción del Alcalde.

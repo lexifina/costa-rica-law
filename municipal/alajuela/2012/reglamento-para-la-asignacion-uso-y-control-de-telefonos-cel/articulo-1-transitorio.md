@@ -1,0 +1,1 @@
+Transitorio único - La Alcaldía Municipal contará con un plazo de un mes contado a partir de la publicación de este reglamento, para ajustar el uso de los teléfonos celulares propiedad de la Municipalidad de Alajuela, a las reglas contenidas en él y ratificar la asignación de aquellos que se ajustan a esa normativa y revocar aquellas que la contravienen.

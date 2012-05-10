@@ -1,0 +1,10 @@
+Artículo 11.—Contrato. Para la entrega del teléfono celular asignado, que incluye el aparato de telefonía móvil y la respectiva línea telefónica, será necesario la previa suscripción de un contrato entre la municipalidad y el funcionario responsable del servicio cuya elaboración estará a cargo del Subproceso de Servicios Generales.
+En ese contrato deberán especificarse las condiciones de uso y demás regulaciones que de acuerdo con el acto de asignación y este Reglamento, regirán la utilización del servicio y deberá considerar al menos los siguientes aspectos:
+a) los datos sobre el número telefónico y marca, modelo y serie del aparato móvil asignado y de sus respectivos accesorios; y el estado en que se encuentran.
+b) La explícita mención de que el servicio asignado es para uso oficial del funcionario responsable y que su asignación no constituye ni un beneficio personal ni parte de su salario de conformidad con lo establecido en el artículo 6º de este Reglamento.
+c) La tarifa mensual que se reconocerá al funcionario para el uso del servicio telefónico y la obligación de cancelar cualquier excedente que reporte la facturación mensual del servicio asignado.
+d) La autorización expresa del funcionario responsable, para deducir de su salario mensual el importe de los excedentes que genere el servicio asignado, en caso de que no lo deposite oportunamente, según las reglas del artículo 17 de este reglamento.
+e) La indicación expresa de los servicios adicionales que brinda el proveedor del servicio, a los que pueda acceder el funcionario responsable.
+f) Las obligaciones que adquiere el funcionario responsable de mantener en servicio el teléfono asignado, contestarlo y de comunicarse inmediatamente con la instancia municipal que se lo requiera.
+g) La obligación que adquiere el funcionario responsable de reponer el aparato de comunicación asignado, en caso de robo o daño.
+h) La indicación expresa de los motivos de resolución del contrato y la obligación de devolver el teléfono asignado cuando se produzca alguna de ellas.

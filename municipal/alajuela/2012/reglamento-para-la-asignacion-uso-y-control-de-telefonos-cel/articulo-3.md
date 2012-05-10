@@ -1,0 +1,1 @@
+Artículo 3°—Definición de procedimientos. La Alcaldía Municipal será la encargada de establecer, a través del correspondiente manual, los procedimientos a seguir para la contratación, uso y control del servicio de los teléfonos celulares.

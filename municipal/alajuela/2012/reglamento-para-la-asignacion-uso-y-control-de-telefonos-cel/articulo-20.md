@@ -1,0 +1,1 @@
+Artículo 20.—Control de pagos. Corresponde al Proceso de Hacienda Municipal tramitar el pago oportuno de las facturas correspondientes a servicios de telefonía celular y llevar un control del consumo reportado de cada uno de esos servicios en forma separada.
