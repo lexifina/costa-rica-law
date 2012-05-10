@@ -1,0 +1,1 @@
+ARTÍCULO 3.- La administración competente será la responsable de realizar los cálculos y determinar el monto que Ie corresponderá a cada agente policial, previa constatación del cumplimiento de los requisitos establecidos por esta ley.
