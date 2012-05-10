@@ -1,0 +1,1 @@
+2. Encargar a la División Jurídica Institucional, para que realice la gestión correspondiente a efecto de publicar en el Diario Oficial La Gaceta, el Manual para la Elaboración de Avalúos por Daños Materiales. Acuerdo firme.”
