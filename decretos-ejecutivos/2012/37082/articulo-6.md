@@ -1,0 +1,1 @@
+Artículo 6.- Desempeño de los integrantes de la Comisión. Los miembros de la Comisión realizarán sus funciones en su jornada normal de trabajo y en forma ad honorem. Lo anterior sin demérito que se habiliten por parte de la Comisión horarios extraordinarios según se requiera.
