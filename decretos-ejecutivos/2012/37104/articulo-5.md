@@ -1,0 +1,2 @@
+ARTICULO 5.-Rige a partir de su publicación.
+Dado en la Presidencia de la República. San José, a los veintiocho días del mes de febrero del dos mil doce.
