@@ -5,10 +5,11 @@ De conformidad con lo dispuesto por el artículo 140 de la Constitución Políti
 Considerando:
 Que la Reserva Indígena Cabécar de Telire fue establecida y delimitada por el Decreto Ejecutivo N° 6036-G, artículo 7° de 26 de mayo de 1976, "La Gaceta" No 113, de sábado 12 de junio de 1976.
 Que, en esa época, el conocimiento de esas regiones era muy aproximado, lo que resultó en que varias zonas ocupadas por los indígenas no fueron incluidas en la Reserva delimitada en 1976.
-Que, la Comisión Nacional de Asuntos Indígenas, CONAI, y el Instituto de Desarrollo Agrario, IDA, ya efectuaron los estudios tendientes a localizar exactamente la población indígena local, y presentaron los resultados ante el Poder Ejecutivo.
+Que, la Comisión Nacional de Asuntos Indígenas, CONAI, y el Instituto de Desarrollo Rural, INDER(*), ya efectuaron los estudios tendientes a localizar exactamente la población indígena local, y presentaron los resultados ante el Poder Ejecutivo.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Por tanto,
 DECRETAN:
-Artículo 1o—Modifíquese el artículo 7° del Decreto Ejecutivo No 6036-G, de 26 de mayo de 1976, publicado en "La Gaceta" N° 113, de 12 de junio de 1976, para que en adelante, se lea así:
+Artículo 1o-Modifíquese el artículo 7° del Decreto Ejecutivo No 6036-G, de 26 de mayo de 1976, publicado en "La Gaceta" N° 113, de 12 de junio de 1976, para que en adelante, se lea así:
 "Establécese la Reserva Indígena Cabécar de Telire.
 La Reserva Indígena Cabécar de Telire se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Telire 3544 I y Matama 3544 IV."
 Se localiza por los puntos de coordenadas siguientes:

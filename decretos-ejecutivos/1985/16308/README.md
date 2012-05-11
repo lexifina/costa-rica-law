@@ -15,3 +15,4 @@ Reforma Reserva Indígena Cabécar de Telire
 | --- | --- | --- |
 | 1 | 1985-06-20 | la propia norma |
 | 2 | 1985-09-25 | Decreto Ejecutivo 16571 (1985-09-25) |
+| 3 | 2012-05-11 | Ley 9036 |
