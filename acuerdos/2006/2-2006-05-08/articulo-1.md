@@ -11,7 +11,8 @@ ACUERDAN:
 • Francisco de Paula Gutiérrez Gutiérrez, cédula Nº 1-372-957, Presidente Ejecutivo del Banco Central de Costa Rica (BCCR).
 • Carlos Ricardo Benavides Jiménez, cédula Nº 6-248-942, Presidente del Instituto Costarricense de Turismo (ICT).
 • Ricardo Sancho Chavarría, cédula Nº 3-221-914, Ejecutivo del Instituto Costarricense de Acueductos y Alcantarillados (ICAA).
-• Marco Vinicio Cordero Quesada, cédula Nº 3-201-310, Presidente Ejecutivo del Instituto de Desarrollo Agrario (IDA).
+• Marco Vinicio Cordero Quesada, cédula Nº 3-201-310, Presidente Ejecutivo del Instituto de Desarrollo Rural (INDER)(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 • Carlos Sequeira Lépiz, cédula Nº 4-127-676, Presidente Ejecutivo del Instituto Nacional de Aprendizaje (INA).
 • Fabio Molina Rojas, cédula Nº 2-345-839, Presidente Ejecutivo del Instituto de Fomento y Asesoría Municipal (IFAM).
 • Luis Diego Víquez Lizano, cédula Nº 4-145-786, Presidente Ejecutivo del Instituto Mixto de Ayuda Social (IMAS).
