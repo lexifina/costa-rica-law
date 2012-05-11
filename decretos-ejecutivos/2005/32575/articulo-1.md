@@ -21,7 +21,8 @@ Electoral, Ley N° 1536 del 10 diciembre de 1952 y sus reformas.
 14) Expediente N° 15.131. Ley para no sujetar las actividades para la construcción del proyecto de la nueva carretera a San Carlos, sección Naranjo - Florencia, a determinados tributos.
 15) Expediente N° 15.174. Ley de Amnistía Tributaria en el Régimen Municipal.
 16) Expediente N° 14.482. Protocolo relativo a una enmienda a Convenio de Aviación Civil Internacional (artículo 83 bis).
-17) Expediente N° 15.875 Ley Reguladora del Proceso de Trámites y Formalización de Titulación de propiedades a través del Instituto de Desarrollo Agrario (IDA).
+17) Expediente N° 15.875 Ley Reguladora del Proceso de Trámites y Formalización de Titulación de propiedades a través del Instituto de Desarrollo Rural (INDER)(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 18) Expediente N° 15.728. Modificación del inciso e) del artículo 10 y adición de un artículo 22 a la Ley de Creación del Fideicomiso para la Protección y el Fomento - Agropecuarios para Pequeños y Medianos Productores, Nº 8147 y sus reformas. Ley para posibilitar la reactivación económica de los pequeños y medianos productores incorporados a FIDAGRO.
 19) Expediente N° 15.844. Adición de un artículo 3 bis a la Ley N° 6450 del 15 de julio de 1980 y sus reformas.
 20) Expediente N° 14.677. Ley para dar interpretación auténtica al artículo 4 de la Ley Nº 4946 del 3 de febrero de 1972.

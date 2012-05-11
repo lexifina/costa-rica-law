@@ -14,3 +14,4 @@ Retira Proyectos de Ley del conocimiento de sesiones extraordinarias de la Asamb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-29 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
