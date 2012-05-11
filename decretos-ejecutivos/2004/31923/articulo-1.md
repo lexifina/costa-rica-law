@@ -9,7 +9,8 @@ Artículo 1º—.- Retírase del conocimiento de sesiones extraordinarias de la 
 • Expediente Nº 14.799 Ley de la Iniciativa Popular.
 • Expediente Nº 14.542 Aprobación del convenio número 151 sobre la Protección de Derecho de Sindicación y los Procedimientos para Determinar las Condiciones de Empleo en la Administración Pública.
 • Expediente Nº 14.543 Aprobación del convenio número 154 sobre el Fomento de la Negociación Colectiva.
-• Expediente Nº 15.175 Autorización al Instituto de Desarrollo Agrario (IDA) para condonar los intereses y multas de los créditos adquiridos por créditos de tierra y caja agraria.
+• Expediente Nº 15.175 Autorización al Instituto de Desarrollo Rural (INDER)(*) para condonar los intereses y multas de los créditos adquiridos por créditos de tierra y caja agraria.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 • Expediente Nº 14.452 Reforma a varios artículos de la Ley Nacional de Emergencias Nº 7914, de 28 de setiembre de 1999.
 • Expediente Nº 13.441 Regulación para extraer materiales en los cauces de los ríos de dominio público.
 • Expediente Nº 15.501 Ley para promover el turismo rural comunitario.

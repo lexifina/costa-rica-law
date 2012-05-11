@@ -14,3 +14,4 @@ Retira expedientes del conocimiento de sesiones extraordinarias de la Asamblea L
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-31 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
