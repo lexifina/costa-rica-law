@@ -38,7 +38,8 @@ Este último punto se ubica en la margen derecha de un afluente del Río Tremini
 Sigue por linderos de propiedad en los vértices que se describen a continuación:
 431.800 E | 296.800 N
 431.850 E | 297.950 N
-Punto que se ubica en la margen derecha del Río Samen sobre la cual se continúa aguas arriba hasta el punto con coordenadas 431.000 E 297.850 N, siguiendo por el límite de propiedad privada hasta un punto en las coordenadas 430.000 E 297.000 N, siguiendo en línea recta por sobre el carril existente en propiedad del Instituto de Desarrollo Agrario hasta un punto en coordenadas 428.000 E 299.000 N, continuando con un rumbo oeste franco hasta un punto con coordenadas 426.000 E 299.000 N, se continúa en línea recta hasta el límite de propiedad en las coordenadas:
+Punto que se ubica en la margen derecha del Río Samen sobre la cual se continúa aguas arriba hasta el punto con coordenadas 431.000 E 297.850 N, siguiendo por el límite de propiedad privada hasta un punto en las coordenadas 430.000 E 297.000 N, siguiendo en línea recta por sobre el carril existente en propiedad del Instituto de Desarrollo Rural(*) hasta un punto en coordenadas 428.000 E 299.000 N, continuando con un rumbo oeste franco hasta un punto con coordenadas 426.000 E 299.000 N, se continúa en línea recta hasta el límite de propiedad en las coordenadas:
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 425.750 E 299.150 N
 425.850 E 299.450 N
 425.450 E 299.600 N
