@@ -25,8 +25,8 @@ Consejo Téc. Asistencia Médico -Social (CTAMS) Transferencia al INCIENSA segú
 Nº 5412 y sus reformas.
 Dirección General de Aviación Civil Trasferencia al Instituto Meteorológico
 Nacional según Ley Nº 5222.
-Fábrica Nacional de Licores (FANAL) Impuesto IDA
-Impuesto IFAM
+Fábrica Nacional de Licores (FANAL) Impuesto INDER(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural") Impuesto IFAM
 Transferencia al IAFA según
 Ley Nº 7035.
 Transferencia al CNP, por Margen de
@@ -34,7 +34,8 @@ Comercialización según Ley Nº 6050.
 Transferencia al CNP, por Utilidad
 Neta y Ventas Proyectadas según
 Ley Nº 6050.
-Instituto de Desarrollo Agrario (IDA) Transferencia a SEPSA según
+Instituto de Desarrollo Rural (INDER)(*) Transferencia a SEPSA según
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Ley Nº 6064
 Instituto de Fomento Cooperativo (INFOCOOP) Concesión de Préstamos
 Instituto de Fomento y Asesoría Municipal (IFAM) Transferencia al ICODER según

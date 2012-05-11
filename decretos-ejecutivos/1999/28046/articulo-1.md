@@ -66,7 +66,8 @@ Instituto Costarricense de Pesca y Acuacultura (INCOPESCA) 674.1
 Instituto Costarricense de Puertos del Pacífico (INCOP) 3.941.9
 Instituto Costarricense de Turismo (ICT) 3.268.8
 Instituto Costarricense del Deporte y la Recreación (ICODER) 741.6
-Instituto de Desarrollo Agrario (IDA) 5.414.5
+Instituto de Desarrollo Rural (INDER)(*) 5.414.5
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Instituto de Fomento Cooperativo (INFOCOOP) 818.9
 Instituto de Fomento y Asesoría Municipal (IFAM) 1.183.7
 Instituto Geográfico Nacional 121.3
