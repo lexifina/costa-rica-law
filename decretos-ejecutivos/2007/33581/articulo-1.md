@@ -14,9 +14,11 @@ Expediente Nº 15930. Autorización al Consejo Nacional de Política Pública de
 Expediente Nº 16127. Reforma al artículo 2º de la Ley de Creación del Registro Nacional (Ley Nº 5695 del 28 de mayo de 1975 y sus reformas).
 Expediente Nº 16438. Reforma de la Ley Orgánica del Ministerio de Justicia Nº 6739, para que en adelante se denomine Ministerio de Justicia y Paz y creación del Sistema Nacional de Promoción de la Paz y la Convivencia Ciudadana.
 Expediente Nº 15494. Ley para el fortalecimiento de la legislación contra el terrorismo.
-Expediente Nº 16287. Autorización al Instituto de Desarrollo Agrario para que segregue, desafecte, y done un terreno de su propiedad al Centro Agrícola Cantonal de Puntarenas.
+Expediente Nº 16287. Autorización al Instituto de Desarrollo Rural(*) para que segregue, desafecte, y done un terreno de su propiedad al Centro Agrícola Cantonal de Puntarenas.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Expediente Nº 16362. Autorización al Ministerio de Educación Pública para la inscripción de un inmueble que se destinará a la construcción de un nuevo colegio de Cartago, en el distrito de Occidente, Cartago.
 Expediente Nº 16325. Estatus de Misión Internacional para Habitat For Humanity International, Inc.
 Expediente Nº 15942. Ley que sanciona la tenencia de pornografía infantil de menores de edad derivados de la red de Internet. Adición de un artículo 175 bis al Código Penal, Ley Nº 4573.
 Expediente Nº 16262. Comisión especial de derechos humanos.
-Expediente Nº 14811. Ley que autoriza a la Municipalidad de Pérez Zeledón a donar fincas al Instituto de Desarrollo Agrario para desarrollar plan de titulación del caserío San Francisco de Asís en Daniel Flores de Pérez Zeledón.
+Expediente Nº 14811. Ley que autoriza a la Municipalidad de Pérez Zeledón a donar fincas al Instituto de Desarrollo Rural(*) para desarrollar plan de titulación del caserío San Francisco de Asís en Daniel Flores de Pérez Zeledón.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
