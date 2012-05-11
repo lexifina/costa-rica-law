@@ -14,3 +14,4 @@ Reforma Reglamento Autónomo para la Adquisición de Tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-01-21 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
