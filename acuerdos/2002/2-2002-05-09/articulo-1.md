@@ -13,7 +13,8 @@ Eduardo Lizano Fait, cédula 1-230-072, Presidente Ejecutivo del Banco Central d
 Ángelo Altamura Carriero, cédula 6-107-937, Presidente Ejecutivo del Instituto Nacional de Vivienda y Urbanismo (INVU).
 Rubén Pacheco Lutz, cédula 9-029-653, Presidente del Instituto Costarricense de Turismo (ICT), con rango de Ministro.
 Everardo Rodríguez Bastos, cédula 2-303-154, Ejecutivo del Instituto Costarricense de Acueductos y Alcantarillados (ICAA).
-Walter Céspedes Salazar, cédula 5-147-1200, Presidente Ejecutivo del Instituto de Desarrollo Agrario (IDA).
+Walter Céspedes Salazar, cédula 5-147-1200, Presidente Ejecutivo del Instituto de Desarrollo Rural (INDER)(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Juan Ramón Rivera Rodríguez, cédula 1-377-379, Presidente Ejecutivo de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA).
 Róger Carvajal Bonilla, cédula 2-290-242, Presidente Ejecutivo ( Instituto Nacional de Aprendizaje (INA).
 Juan José Echeverría Alfaro, cédula 1-601-436, Presidente Ejecutivo del Instituto de Fomento y Asesoría Municipal (IFAM)
