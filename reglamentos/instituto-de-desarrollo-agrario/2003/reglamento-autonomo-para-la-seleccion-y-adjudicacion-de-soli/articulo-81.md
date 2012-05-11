@@ -1,1 +1,0 @@
-Artículo 81.—Si la segregación de parcelas es para traspasar áreas a personas físicas, éstas deberán presentarse con las personas adjudicatarias a la oficina subregional correspondiente a iniciar el trámite, para lo cual se seguirá el procedimiento establecido en el capítulo VII de este Reglamento.

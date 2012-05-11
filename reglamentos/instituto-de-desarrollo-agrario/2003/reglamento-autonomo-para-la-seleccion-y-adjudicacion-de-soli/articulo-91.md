@@ -1,1 +1,0 @@
-Artículo 91.—Los predios que quedasen disponibles por renuncias, revocatorias o nulidades de títulos, serán adjudicados nuevamente entre las personas solicitantes de la región, dando prelación a los restantes calificados a los cuales se refiere el artículo 13 de este Reglamento.
