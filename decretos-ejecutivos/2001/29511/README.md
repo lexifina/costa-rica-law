@@ -65,3 +65,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 50 | 2002-11-05 | Decreto Ejecutivo 30840 (2002-11-05) |
 | 51 | 2002-11-07 | Decreto Ejecutivo 30876 (2002-11-07) |
 | 52 | 2002-12-11 | Decreto Ejecutivo 30888 (2002-12-11) |
+| 53 | 2012-05-11 | Ley 9036 |

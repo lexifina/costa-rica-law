@@ -65,7 +65,8 @@ Instituto Costarricense de Puertos del Pacífico 4,555.2
 Instituto Costarricense de Turismo 3,420.4
 Instituto Costarricense del Deporte y la Recreación 1,131.3
 ( Así modificado por el artículo primero del Decreto Ejecutivo N° 30379 del 02 de mayo del 2002, con relación al límite de gasto presupuestario y efectivo del Instituto Costarricense del Deporte y la Recreación, que lo estableció en 1446.3 millones)
-Instituto de Desarrollo Agrario 6,025.9
+Instituto de Desarrollo Rural(*) 6,025.9
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Instituto de Fomento y Asesoría Municipal 1,051.8
 Instituto Geográfico Nacional 140.2
 Instituto Meteorológico Nacional 254.2
@@ -114,7 +115,8 @@ Teatro Nacional 301.2
 Teatro Popular Melico Salazar 507.0
 Unidad Ejecutora PPZN MIDEPLAN 9.6
 Para ajustarse a los límites establecidos en este artículo, las entidades públicas realizarán los ajustes necesarios por programa completo, o proporcionales por partida dentro de cada programa.
-(Modificado los límites de gasto para el Instituto de Desarrollo Agrario, de manera que no exedan de 6.525, 9, por el artículo 1 del Decreto Ejecutivo N° 29853 de 24 de setiembre del 2001)
+(Modificado los límites de gasto para el Instituto de Desarrollo Rural(*), de manera que no exedan de 6.525, 9, por el artículo 1 del Decreto Ejecutivo N° 29853 de 24 de setiembre del 2001)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 (Modificado el límite de gasto presupuestario y efectivo de la Junta Adeministrativa del Registro Nacional para el año 2002, por el artículo 1 del Decreto Ejecutivo N° 29854 de 24 de setiembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo de la Compañia Nacional de Fuerza y Luz para el año 2002, por el artículo 1 del Decreto Ejecutivo N° 29864 de 24 de setiembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo del Consejo Nacional de Producción para el año 2002, por el artículo 1 del Decreto Ejecutivo N° 29905 de 04 de octubre del 2001)
@@ -139,7 +141,8 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gastos para el año 2002 del Instituto Costarricense de Puertos del Pacífico, por el artículo 1 del Decreto Ejecutivo N° 30254 de 6 de marzo del 2002)
 (Modificado el límite de gasto presupuestario y efectivo del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco , por el artículo 1 del Decreto Ejecutivo N° 30249 de 13 de marzo del 2002)
 (Modificado el límite de gasto presupuestario y efectivo del Instituto Nacional del Deporte y la Recreación , por el artículo 1 del Decreto Ejecutivo N° 30232 de 13 de marzo del 2002)
-(Modificados los límites de gasto del Instituto de Desarrollo Agrario, por el artículo 1 del decreto ejecutivo N° 30284 de 4 de abril del 2002)
+(Modificados los límites de gasto del Instituto de Desarrollo Rural(*), por el artículo 1 del decreto ejecutivo N° 30284 de 4 de abril del 2002)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 (Modificados los límites de gasto del Instituto Costarricense de Puertos del Pacífico, por el artículo 1 del decreto ejecutivo N° 30374 de 15 de abril del 2002)
 (Ampliado los límites de gasto presupuestario y efectivo para el año 2002, de la Comisión de Energía Atómica, por el artículo 1 del Decreto Ejecutivo N° 30486 de 20 de mayo del 2002)
 (Modificados los límites de gasto presupuestario y efectivo para el 2002 del INFOCOOP, por el artículo 1 del decreto ejecutivo N° 30489 de 20 de mayo del 2002)

@@ -59,7 +59,8 @@ y sus reformas.
 Gastos de Capital del proyecto Golfo
 turístico de Papagayo, según Decreto
 Ejecutivo N° 21828-MT-MEIC
-Instituto de Desarrollo Agrario Transferencia a SEPSA según Ley Nº (IDA) 6064
+Instituto de Desarrollo Rural(*) Transferencia a SEPSA según Ley Nº (INDER)(*) 6064
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Instituto de Fomento Cooperativo
 (INFOCOOP) Concesión de Préstamos
 Instituto de Fomento y Asesoría Transferencia al ICODER según
