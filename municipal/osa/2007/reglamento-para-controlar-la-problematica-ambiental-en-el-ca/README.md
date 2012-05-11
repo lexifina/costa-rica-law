@@ -14,3 +14,4 @@ Reglamento para Controlar la Problemática Ambiental en el Cantón de Osa por la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-16 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
