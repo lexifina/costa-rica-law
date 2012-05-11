@@ -14,3 +14,4 @@ Amplía para el Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-17 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
