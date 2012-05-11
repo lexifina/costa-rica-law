@@ -1,1 +1,2 @@
-Artículo 5°—El Instituto de Desarrollo Agrario se reserva la potestad de suspender el otorgamiento de estos beneficios, cuando la Junta Directiva así lo determine, pero de ninguna manera, dicha suspensión, afectará a quien ya disfrute de ellos.
+Artículo 5°—El Instituto de Desarrollo Rural(*) se reserva la potestad de suspender el otorgamiento de estos beneficios, cuando la Junta Directiva así lo determine, pero de ninguna manera, dicha suspensión, afectará a quien ya disfrute de ellos.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

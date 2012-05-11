@@ -1,1 +1,2 @@
-Artículo 4°--La concesión que de estos beneficios pueda hacer el Instituto de Desarrollo Agrario, queda supeditada a las posibilidades presupuestarias de este.
+Artículo 4°--La concesión que de estos beneficios pueda hacer el Instituto de Desarrollo Rural(*), queda supeditada a las posibilidades presupuestarias de este.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
