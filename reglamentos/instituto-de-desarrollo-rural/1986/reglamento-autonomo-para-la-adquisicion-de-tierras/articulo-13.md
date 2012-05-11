@@ -1,6 +1,7 @@
 Artículo 13.-La Comisión Técnica pedirá la opinión previa, por escrito, del Director Regional correspondiente. Opinión que constará en el expediente y que se basará en los siguientes criterios:
 a) Potencial productivo aparente.
-b) Ubicación respecto de otras tierras afectadas por el Instituto de Desarrollo Agrario.
+b) Ubicación respecto de otras tierras afectadas por el Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 c) Facilidad de vías de acceso presentes o futuras.
 ch) Cercanía a centros de servicios.
 d) Otros.

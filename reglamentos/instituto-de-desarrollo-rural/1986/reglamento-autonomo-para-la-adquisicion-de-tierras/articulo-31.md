@@ -1,6 +1,7 @@
 CAPITULO V
 De los criterios para el estudio comparativo, calificación y selección
-de las fincas que van a ser adquiridas por el Instituto de Desarrollo Agrario
+de las fincas que van a ser adquiridas por el Instituto de Desarrollo Rural(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Artículo 31.-Los criterios de que trata el presente capítulo se han definido y clasificado como sé indica continuación:
 A.-Criterios sociales:
 A.1) Presión:
@@ -33,7 +34,8 @@ El valor de ponderación se otorgará a las fincas cuyo propietario presente pla
 C.2) Acceso a la finca:
 Se refiere a los diferentes medios de acceso con que pudiese contar la finca.
 C.3) Ubicación de las fincas con respecto a otras ya adquiridas:
-Se refiere a la distancia que existe entre la finca que se negocia con otras ya adquiridas por el IDA.
+Se refiere a la distancia que existe entre la finca que se negocia con otras ya adquiridas por el INDER(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural") .
 Se estima como deseable una distancia entre fincas de 20 km como máximo, para facilitar la formación de polos de desarrollo además de las economías de escalas para el Instituto.
 C.4) Tamaño de la finca:
 Define el tamaño de las fincas, para efectos agrarios en pequeñas, medianas y grandes de acuerdo con los rangos establecidos.
