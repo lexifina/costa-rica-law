@@ -14,3 +14,4 @@ Autoriza al Procurador General de la República, para que comparezca ante la Not
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-10-08 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
