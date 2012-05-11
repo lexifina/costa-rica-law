@@ -45,7 +45,8 @@ Estructural
 • Expediente N° 14.878 Comisión especial que estudiará y analizará la situación legal y social en las que se encuentran las familias que viven en las zonas fronterizas.
 • Expediente N° 14.681 Ley protitulación de la zona Fronteriza.
 • Expediente N° 14.038 Reforma del inciso 13) del artículo 121 y del artículo 174, y adición de un párrafo al artículo 175 de la Constitución Política.
-• Expediente N° 15.175 Autorización al Instituto de Desarrollo Agrario (IDA) para Condonar los Intereses y Multas de los Créditos Adquiridos por Créditos de Tierra y Caja Agraria.
+• Expediente N° 15.175 Autorización al Instituto de Desarrollo Rural (INDER)(*) para Condonar los Intereses y Multas de los Créditos Adquiridos por Créditos de Tierra y Caja Agraria.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 • Expediente N° 14.452 Reforma a varios Artículos de la Ley Nacional de Emergencias N° 7914 de 28 de septiembre de 1999.
 • Expediente N° 13.441 Regulación para extraer materiales en los cauces de los ríos de dominio público.
 • Expediente N° 15.559 Reforma al párrafo quinto del artículo 86 de la Ley General de Aduanas N° 7557, del 20 de octubre de 1995 y sus Reformas.
