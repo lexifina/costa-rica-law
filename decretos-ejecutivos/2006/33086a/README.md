@@ -16,3 +16,4 @@ Clasificador Presupuestario Institucional
 | 1 | 2006-05-17 | la propia norma |
 | 2 | 2009-04-24 | Decreto Ejecutivo 35252 (2009-04-24) |
 | 3 | 2011-04-26 | Decreto Ejecutivo 36585 (2011-04-26) |
+| 4 | 2012-05-11 | Ley 9036 |
