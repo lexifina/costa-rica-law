@@ -15,3 +15,4 @@ Reglamento Autónomo de Arrendamientos
 | --- | --- | --- |
 | 1 | 1997-10-13 | la propia norma |
 | 2 | 2002-09-23 | Reglamento 66 (2002-09-23) |
+| 3 | 2012-05-11 | Ley 9036 |
