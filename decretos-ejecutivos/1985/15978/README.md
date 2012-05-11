@@ -14,3 +14,4 @@ Crea Comisión Vivienda y Asentamientos Humanos de Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-01-24 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

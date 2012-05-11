@@ -12,4 +12,5 @@ e) El Director Regional del Instituto Costarricense de Electricidad (ICE).
 f) El Director Regional del Instituto Costarricense de Acueductos y Alcantarillados (ICAA).
 g) Dos representativos de los sectores sindicales y uno de desarrollo comunal.
 h) El Director Regional de Asignaciones Familiares (OCAF).
-i) El Director Regional del Instituto de Desarrollo Agrario (IDA).
+i) El Director Regional del Instituto de Desarrollo Rural (INDER)(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
