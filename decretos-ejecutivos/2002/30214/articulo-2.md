@@ -40,7 +40,8 @@ Nacional según Ley Nº 5222.
 Editorial Costa Rica Impresión y encuadernación y Derechos de autor
 en el Programa Producción y Difusión.
 Fábrica Nacional de Licores (FANAL) Materia Prima
-Impuesto IDA
+Impuesto INDER(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Impuesto IFAM
 Transferencia al IAFA según Ley Nº 7035.
 Transferencia al CNP, por Margen de
@@ -52,7 +53,8 @@ según artículo 4º, Ley Nº 1917 y sus reformas.
 Gastos de Capital del proyecto Golfo Turístico
 de Papagayo, según Decreto Ejecutivo
 Nº 21828-MT-MEIC
-Instituto de Desarrollo Agrario (IDA) Transferencia a SEPSA según Ley Nº 6064,
+Instituto de Desarrollo Rural (INDER)(*) Transferencia a SEPSA según Ley Nº 6064,
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Transferencia a SENARA
 Instituto de Fomento Cooperativo Concesión de Préstamos
 (INFOCOOP)
