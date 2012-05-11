@@ -1,2 +1,0 @@
-Artículo 41.—El Auditor Interno debe recordar expresamente en el informe a enviar a la Junta Directiva, sobre el plazo de 30 días hábiles con que cuenta ese Órgano para emitir el acuerdo respectivo en relación con las recomendaciones formuladas e igualmente, le hará saber que puede -dentro de ese mismo plazo- formular sus objeciones mediante acuerdo motivado.
-En caso de aceptación de las recomendaciones, la Junta Directiva debe emitir un acuerdo ordenando la puesta en práctica de las mismas.

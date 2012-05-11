@@ -1,1 +1,0 @@
-Artículo 47.—El Auditor Interno, la Junta Directiva o ambas partes deben presentar el expediente debidamente foliado, ordenando en forma cronológica, con un índice para facilitar la referencia y todos los documentos pertinentes que le permitan a la Contraloría General valorar la situación para dictar una resolución.

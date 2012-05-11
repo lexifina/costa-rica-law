@@ -1,1 +1,0 @@
-Artículo 31.—La comunicación de resultados deberá hacerse por escrito. Podrá efectuarse durante el desarrollo de la auditoría o estudio especial de auditoría, mediante informes parciales o memorandos, cuando el caso lo amerite y al finalizar la labor por medio del informe final.

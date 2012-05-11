@@ -1,1 +1,0 @@
-Artículo 8º—El Auditor y el Subauditor tendrán asignado un vehículo cada uno, de uso discrecional, el cuál no contará con restricciones en cuanto a combustible, horario de operación, recorrido, ni marcas visibles que lo identifiquen, características que asumirá, bajo su estricto criterio, de conformidad con el artículo Nº 225 de la Ley Nº 7331.

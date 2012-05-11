@@ -1,1 +1,0 @@
-Artículo 35.—El auditor responsable del informe, debe confeccionar un acta de la conferencia final, en la cual resumirá los asuntos más relevantes ocurridos en ella y fijará los compromisos asumidos. En lo posible debe agotarse el tema en una sola sesión. El acta será firmada por todos los asistentes a dicha conferencia.

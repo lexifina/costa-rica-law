@@ -1,1 +1,0 @@
-Artículo 46.—El Auditor Interno, la Junta Directiva o ambas partes deben presentar el conflicto para resolución de la Contraloría General dentro de los ocho días hábiles siguientes a su surgimiento, plazo que no puede ampliarse ni interrumpirse.
