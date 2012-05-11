@@ -1,1 +1,2 @@
-Artículo 6°-Se autoriza al Catastro Nacional a dotar al IDA de la información catastral existente y dar asesoramiento a este en la ejecución de la labor, asimismo a dar el mantenimiento o la información catastral generada por el Proyecto.
+Artículo 6°-Se autoriza al Catastro Nacional a dotar al INDER(*) de la información catastral existente y dar asesoramiento a este en la ejecución de la labor, asimismo a dar el mantenimiento o la información catastral generada por el Proyecto.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
