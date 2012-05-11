@@ -14,3 +14,4 @@ Modifica al Instituto de Desarrollo Rural el gasto presupuestario máximo para e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-13 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
