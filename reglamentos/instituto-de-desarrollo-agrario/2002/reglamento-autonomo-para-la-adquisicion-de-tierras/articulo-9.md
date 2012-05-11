@@ -23,7 +23,8 @@ a. Agrológico (suelos), destacando:
 - Capacidad de uso
 - Uso actual
 b. Legal, presentando un resumen de la información del Registro Público y las conclusiones derivadas de ésta.
-c. Avalúo, (IDA y/o Tributación), comparando los valores establecidos en ellos, el precio de oferta y el precio promedio por hectárea estimado para la zona.
+c. Avalúo, (INDER(*) y/o Tributación), comparando los valores establecidos en ellos, el precio de oferta y el precio promedio por hectárea estimado para la zona.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 d. Ubicación cartográfica, presentando un resumen de los resultados del estudio que incluya la determinación de su ubicación con respecto a las áreas geográficas definidas en el estudio elaborado por la Dirección Planificación Institucional.
 5) Indicación de la cabida familiar estimada en los procedimientos descritos en el punto IV "Aspectos Socioeconómicos" de los artículos 47 y 48 de este Reglamento.
 6) Indicación de que se revisó el informe del Departamento Financiero sobre disponibilidad presupuestaria, presentando un resumen concreto del mismo.

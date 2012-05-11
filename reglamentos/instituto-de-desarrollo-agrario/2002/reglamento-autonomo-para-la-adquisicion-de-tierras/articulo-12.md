@@ -10,7 +10,8 @@ h) Descripción del uso actual, incluyendo los porcentajes aproximados con difer
 i) Existencia de servidumbres o cualquier otra condición limitante manifiesta en la propiedad.
 j) Descripción de cada uno de los activos que puedan estar presentes en la finca, con la respectiva recomendación y justificación, en caso de que se considere conveniente su adquisición.
 k) Limitaciones de uso por restricciones municipales o de cualquier otra institución pública.
-l) Distancia entre la finca y otros inmuebles administrados por el IDA (incluyendo la Oficina Subregional correspondiente).
+l) Distancia entre la finca y otros inmuebles administrados por el INDER(*) (incluyendo la Oficina Subregional correspondiente).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 m) Indicación de otras fincas consideradas para atender la demanda, comentando si se mantienen como alternativas de adquisición o, en su defecto, los motivos de su rechazo.
 n) Cuando se trate de fincas para el establecimiento de granjas familiares se debe destacar si la finca cumple con lo que establece el artículo 40 de este Reglamento.
 o) Criterio de la Dirección Regional sobre el monto de la oferta de venta en relación con los valores comunes y recientes de otros inmuebles en la zona de ubicación de la finca en estudio.
