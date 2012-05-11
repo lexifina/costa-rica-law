@@ -1,2 +1,0 @@
-Artículo 8°—Al segregarse las porciones adjudicadas de conformidad con el artículo N° 2 de la Ley N° 7599, no será necesaria la descripción del resto que se reserva el Instituto de Desarrollo Rural(*) de la finca que se inscribirá conforme con lo descrito en el artículo 1° de este decreto.
-(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
