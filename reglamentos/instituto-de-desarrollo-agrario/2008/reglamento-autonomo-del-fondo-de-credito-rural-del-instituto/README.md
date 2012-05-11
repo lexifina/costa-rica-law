@@ -15,3 +15,4 @@ Reglamento autónomo del fondo de crédito rural del Instituto de Desarrollo Rur
 | --- | --- | --- |
 | 1 | 2008-05-14 | la propia norma |
 | 2 | 2009-08-03 | Reglamento 27 (2009-08-03) |
+| 3 | 2012-05-11 | Ley 9036 |

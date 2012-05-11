@@ -8,8 +8,10 @@ f) Dirección: dirección Formación y Desarrollo de Asentamientos.
 g) Dirección Regional: unidad administrativa del Instituto responsable de gerenciar la operación regional de los programas institucionales.
 h) Fondo: Fondo Crédito Rural.
 i) Garantía de crédito: es todo recaudo que toma el Instituto, de los deudores (as) o prestatarios (as) y que le da relativa seguridad de que no sufrirá quebranto en caso de incumplimiento de pago.
-j) Instituto: el Instituto de Desarrollo Agrario (I.D.A.), creado por Ley Número 6735, de 29 de marzo de 1982, la cual reformó la Ley Número 2825, de 14 de octubre de 1961.
-k) Junta Directiva: Órgano Superior del Instituto, encargado de las funciones que establece el artículo 18 de la Ley de Creación del I.D.A.
+j) Instituto: el Instituto de Desarrollo Rural (I.N.D.E.R)(*), creado por Ley Número 6735, de 29 de marzo de 1982, la cual reformó la Ley Número 2825, de 14 de octubre de 1961.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+k) Junta Directiva: Órgano Superior del Instituto, encargado de las funciones que establece el artículo 18 de la Ley de Creación del I.N.D.E.R(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 l) POI: plan operativo institucional
 m) Propietario (A): el asignatario (a) que tenga su predio debidamente inscrito en el Registro Público de la Propiedad.
 n) Registro: Registro Público de la Propiedad.
