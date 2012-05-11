@@ -15,3 +15,4 @@ Deroga afectaciones al programa de tiitulación de tierras
 | --- | --- | --- |
 | 1 | 1976-05-20 | la propia norma |
 | 2 | 1982-03-29 | Ley 6735 |
+| 3 | 2012-05-11 | Ley 9036 |
