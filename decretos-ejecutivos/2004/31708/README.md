@@ -60,3 +60,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 45 | 2005-09-19 | Decreto Ejecutivo 32686 (2005-09-19) |
 | 46 | 2005-10-18 | Decreto Ejecutivo 32775 (2005-10-18) |
 | 47 | 2006-09-06 | SINALEVI (sin norma nombrada) |
+| 48 | 2012-05-11 | Ley 9036 |
