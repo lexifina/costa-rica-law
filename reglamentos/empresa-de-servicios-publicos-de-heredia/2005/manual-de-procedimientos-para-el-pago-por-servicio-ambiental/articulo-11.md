@@ -1,4 +1,0 @@
-11. Seguimiento y monitoreo
-11.1. Los técnicos de la Unidad de Gestión Ambiental y funcionarios de la fiscalía del Colegio de Ingenieros Agrónomos podrán visitar en cualquier momento el área objeto de la compensación para corroborar la veracidad de la información consignada en los informes de regencia.
-11.2. Para el seguimiento, evaluación y monitoreo de los Planes de Manejo, la Empresa podrá contratar periódicamente los servicios de un ente externo especializado para verificar el estado y cumplimiento de las obligaciones, por parte de los beneficiarios. Estos deberán contribuir en este proceso, así como implementar las recomendaciones que se deriven de esta evaluación y monitoreo.
-11.3. La Empresa contratará regularmente una auditoría administrativa y financiera del manejo de los fondos recaudados por concepto de tarifa hídrica.
