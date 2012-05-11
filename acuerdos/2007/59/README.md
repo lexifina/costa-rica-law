@@ -14,3 +14,4 @@ Integra Junta Directiva del Instituto de Desarrollo Rural (INDER)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-18 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
