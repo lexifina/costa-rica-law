@@ -16,3 +16,4 @@ Reglamento para la Regulación del Transporte de Combustible
 | 1 | 2011-06-14 | la propia norma |
 | 2 | 2011-09-05 | Decreto Ejecutivo 36805 (2011-09-05) |
 | 3 | 2012-03-08 | Decreto Ejecutivo 37056 (2012-03-08) |
+| 4 | 2012-05-11 | Decreto Ejecutivo 37138 (2012-05-11) |
