@@ -1,1 +1,0 @@
-Artículo 13.—Los estudios de las personas solicitantes de tierra que elaboren las Oficinas Subregionales, serán manejados con la mayor discrecionalidad, hasta tanto la Junta Directiva no haya tomado una resolución al respecto.

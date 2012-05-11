@@ -1,1 +1,0 @@
-Artículo 76.—Las Oficinas y Direcciones Regionales no podrán solicitar la adjudicación y titulación de un predio si no cumple con lo dispuesto en la Ley de Uso, Manejo y Conservación de Suelos o si se encuentra afecta por lo señalado en los numerales 13 y 15 de la Ley Forestal.

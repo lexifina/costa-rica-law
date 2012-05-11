@@ -1,1 +1,0 @@
-Artículo 26.—Con base en el resultado obtenido, la Oficina Subregional correspondiente, en un plazo no mayor a un mes y con los vistos buenos de la Dirección Regional y su Asesor Legal, enviará la solicitud de adjudicación a Junta Directiva anexando copia del acta y de la documentación que respalde cambios posteriores al sorteo, así como la distribución de costos por parcela.

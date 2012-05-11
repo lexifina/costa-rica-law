@@ -1,1 +1,0 @@
-Artículo 55.—Comprobado en la Dirección Regional que el expediente administrativo esté completo y que se han cumplido los procedimientos establecidos, en un plazo máximo de quince días naturales remitirá la solicitud de traspaso con la recomendación respectiva a la Junta Directiva a efecto de que resuelva lo que proceda.

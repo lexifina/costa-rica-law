@@ -1,1 +1,0 @@
-Artículo 57.—Si la Junta Directiva denegara el traspaso, la Oficina Subregional correspondiente deberá darle seguimiento, a fin de verificar si el mismo se ha efectuado ilegalmente, en cuyo caso iniciará los trámites de desalojo, revocatoria y subsecuente nulidad de título.

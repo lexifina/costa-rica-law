@@ -1,1 +1,0 @@
-Artículo 9º—El formulario denominado Encuesta para la Selección de Solicitantes de Tierra, constituye el documento básico para el estudio de solicitantes de parcelas y lotes para vivienda dentro de éstas, constituyendo para todos sus efectos documento público base del proceso de selección de beneficiarios.

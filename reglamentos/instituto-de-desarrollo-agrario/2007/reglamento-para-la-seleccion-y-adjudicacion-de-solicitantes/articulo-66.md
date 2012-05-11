@@ -1,1 +1,0 @@
-Artículo 66.—Toda solicitud de segregación de un lote dentro de una parcela deberá ser acompañada de las constancias o certificaciones indicadas en el formulario denominado “SOLICITUD DE AUTORIZACIÓN PARA TRASPASO”, en lo que al adquirente se refiere. Adicionalmente, se deberá aportar un detalle del uso que se va a dar al área que se pretende segregar.

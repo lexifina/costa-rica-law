@@ -1,2 +1,0 @@
-Artículo 42.—Las personas jurídicas sin fines de lucro, podrán optar a la adjudicación de un predio, para un proyecto específico, debiendo realizar una solicitud ante la Oficina Subregional correspondiente, adjuntando Estudio de Factibilidad Productiva del Proyecto, el cual deberá estar relacionado con el Desarrollo Rural.
-La solicitud deberá respetar lo establecido en el numeral 35 del presente Reglamento.

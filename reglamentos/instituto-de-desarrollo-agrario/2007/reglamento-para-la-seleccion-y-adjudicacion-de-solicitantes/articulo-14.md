@@ -1,1 +1,0 @@
-Artículo 14.—Los informes que elaboren las Oficinas Subregionales y Direcciones Regionales serán vinculantes para la Junta Directiva. Cualquier omisión o alteración de información o de documentos del proceso, será responsabilidad de las diferentes unidades administrativas, en lo que a cada una corresponda.

@@ -1,1 +1,0 @@
-Artículo 45.—La Oficina Subregional analizará y valorará la solicitud y remitirá con su recomendación respectiva un informe a la Junta Directiva, con los vistos buenos del Asesor Legal Regional y el Director Regional.

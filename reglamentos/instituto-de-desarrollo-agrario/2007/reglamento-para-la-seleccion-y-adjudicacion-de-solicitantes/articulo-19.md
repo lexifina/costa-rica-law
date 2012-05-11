@@ -1,1 +1,0 @@
-Artículo 19.—Una vez realizada la acción descrita en el numeral anterior, se realizará la revisión general de la encuesta por parte de la Jefatura Regional y el Técnico(a) procederá a ingresar la información en el Sistema de Selección y Adjudicación de Tierras, para las ponderaciones respectivas.
