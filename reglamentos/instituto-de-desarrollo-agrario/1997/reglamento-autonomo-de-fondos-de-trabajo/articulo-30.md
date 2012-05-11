@@ -1,2 +1,3 @@
-Artículo 30.—Todo gasto o pago efectuado con dinero del fondo de trabajo, deberá ser al contado y contra presentación de la respectiva factura a nombre del Instituto de Desarrollo Agrario, con referencia a la unidad ejecutora del gasto.
+Artículo 30.—Todo gasto o pago efectuado con dinero del fondo de trabajo, deberá ser al contado y contra presentación de la respectiva factura a nombre del Instituto de Desarrollo Rural(*), con referencia a la unidad ejecutora del gasto.
 El encargado deberá velar porque los comprobantes o facturas guarden un mínimo de requisitos de presentación, de conformidad con el artículo 18 de este reglamento.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

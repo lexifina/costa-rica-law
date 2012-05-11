@@ -15,3 +15,4 @@ Reglamento Autónomo de Fondos de Trabajo
 | --- | --- | --- |
 | 1 | 1997-09-19 | la propia norma |
 | 2 | 2006-11-20 | Reglamento 39 (2006-11-20) |
+| 3 | 2012-05-11 | Ley 9036 |
