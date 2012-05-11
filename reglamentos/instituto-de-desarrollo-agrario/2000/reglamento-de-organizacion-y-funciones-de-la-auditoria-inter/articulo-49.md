@@ -1,1 +1,2 @@
-Artículo 49.—Las disposiciones de este Reglamento son de aplicación en todas las unidades que conforman la organización del IDA, en lo que corresponda, según sea el caso.
+Artículo 49.—Las disposiciones de este Reglamento son de aplicación en todas las unidades que conforman la organización del INDER(*), en lo que corresponda, según sea el caso.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

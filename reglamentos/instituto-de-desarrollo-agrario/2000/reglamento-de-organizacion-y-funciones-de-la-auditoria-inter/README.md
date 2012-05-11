@@ -17,3 +17,4 @@ Reglamento de Organización y Funciones de la Auditoría Interna
 | 2 | 2005-05-09 | Reglamento 17 (2005-05-09) |
 | 3 | 2005-10-31 | Acuerdo 0 (2005-10-31) |
 | 4 | 2007-11-12 | Reglamento 39 (2007-11-12) |
+| 5 | 2012-05-11 | Ley 9036 |
