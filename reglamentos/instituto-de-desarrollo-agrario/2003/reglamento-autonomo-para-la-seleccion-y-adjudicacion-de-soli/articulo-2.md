@@ -1,7 +1,9 @@
 Artículo 2º—Para todos los efectos de este Reglamento se entenderá por:
-a. El Instituto: El Instituto de Desarrollo Agrario, creado por Ley Nº 6735 del 29 de marzo de 1982.
+a. El Instituto: El Instituto de Desarrollo Rural(*), creado por Ley Nº 6735 del 29 de marzo de 1982.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 b. LGAP: Ley General de la Administración Pública.
-c. La Secretaría: La Secretaría de la Junta Directiva del Instituto de Desarrollo Agrario.
+c. La Secretaría: La Secretaría de la Junta Directiva del Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 d. Área de Selección de Familias: Área del Departamento Formación de Asentamientos, encargada de coordinar y ejecutar en el proceso de selección de las familias solicitantes de tierras.
 e. Investigación Complementaria: Estudio que se realiza para verificar y ampliar la información obtenida en la encuesta aplicada para la selección de las personas solicitantes de tierra.
 f. Informantes Clave: Personas de reconocida solvencia moral, destacadas por su participación en las diferentes actividades comunales y organizaciones; así como funcionarios y funcionarias de instituciones del Estado, con oficinas establecidas en la región y que por sus funciones tienen amplios conocimientos de las familias solicitantes de tierra.
