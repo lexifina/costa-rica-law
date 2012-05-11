@@ -14,3 +14,4 @@ Prórroga de los plazos del Transitorios IV del decreto ejecutivo N° 36627 "Reg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-10 | la propia norma |
+| 2 | 2012-05-11 | Decreto Ejecutivo 37138 (2012-05-11) |
