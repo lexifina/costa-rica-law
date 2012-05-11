@@ -15,3 +15,4 @@ Define los límites de la Reserva Natural Absoluta Cabo Blanco
 | --- | --- | --- |
 | 1 | 1991-09-04 | la propia norma |
 | 2 | 1995-10-04 | Ley 7554 |
+| 3 | 2012-05-11 | Ley 9036 |

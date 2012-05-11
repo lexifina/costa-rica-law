@@ -49,4 +49,5 @@ N 89° 11´W | 57,53
 S 33° 29´W | 748,00
 Hasta un punto ubicado nuevamente en el litoral del Océano Pacífico con coordenadas 174012.57 N y 411081.88.
 El área que se describe se halla delimitada en toda su extensión por el Océano Pacífico, salvo en la parte que demarca la línea anteriormente señalada.
-Los datos señalados anteriormente se tomaron del plano del Instituto de Desarrollo Agrario (IDA), levantando en 1967 y del plano catastrado N°10697-75 que describe los linderos de esta reserva.
+Los datos señalados anteriormente se tomaron del plano del Instituto de Desarrollo Rural (INDER)(*), levantando en 1967 y del plano catastrado N°10697-75 que describe los linderos de esta reserva.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
