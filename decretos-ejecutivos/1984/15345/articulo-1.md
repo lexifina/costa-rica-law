@@ -9,5 +9,6 @@ Que es función del Estado evitar la traslación de la pena y además, de acuerd
 Que por estas tazones procede autorizar el funcionamiento de un centro Penal para la Región de Coto Brus.
 Por tanto,
 DECRETAN:
-Artículo 1°-El Instituto de Desarrollo Agrario, cede al Ministerio de Justicia y Paz(*) la finca denominada Gutiérrez Brown, con el fin de desarrollar en dicha finca los programas de Tratamiento penitenciario.
+Artículo 1°-El Instituto de Desarrollo Rural(*), cede al Ministerio de Justicia y Paz(*) la finca denominada Gutiérrez Brown, con el fin de desarrollar en dicha finca los programas de Tratamiento penitenciario.
 (*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Ministerio de Justica y Gracia")
+(**) (Así modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

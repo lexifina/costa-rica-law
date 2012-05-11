@@ -15,3 +15,4 @@ El Instituto de Desarrollo Rural, cede al Ministerio de Justicia y Paz la finca 
 | --- | --- | --- |
 | 1 | 1984-03-23 | la propia norma |
 | 2 | 2009-09-14 | Ley 8771 |
+| 3 | 2012-05-11 | Ley 9036 |
