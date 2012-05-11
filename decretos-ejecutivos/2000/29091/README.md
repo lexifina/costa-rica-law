@@ -14,3 +14,4 @@ Exceptúa al Instituto de Desarrollo Rural de la aplicación de la no Considerar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-26 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
