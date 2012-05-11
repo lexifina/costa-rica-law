@@ -6,13 +6,14 @@ Considerando:
 Que la Reserva Indígena de Talamanca fue establecida por decreto número 5904-G, Alcance N° 60 a "La Gaceta" N° 70 de 10 de abril de 1976 y delimitada por Decreto Ejecutivo N° 6036-G, "La Gaceta" N° 113, de 12 de junio de 1976.
 Que posteriormente se incluyeron en esta Reserva nuevas áreas por medio de los decretos ejecutivos Nos. 7267-G y 7268-G, Alcance N° 114 a "La Gaceta" N° 157 de 20 de agosto de 1977.
 Que el Decreto Ejecutivo N° 13572-G, "La Gaceta" N° 94 del 17 de mayo de 1982, en su artículo 4°, dividió la Reserva Indígena de Talamanca en dos reservas distintas, con los nombres oficiales de: "Reserva Indígena Cabécar de Talamanca" y "Reserva Indígena Bribri de Talamanca".
-Que el referido decreto ejecutivo establece en su artículo 6° que la definición exacta de los límites de las Reservas Indígenas Cabécar y Bribri de Talamanca será efectuada por el IDA (Instituto de Desarrollo Agrario) y la CONAI (Comisión Nacional de Asuntos Indígenas).
+Que el referido decreto ejecutivo establece en su artículo 6° que la definición exacta de los límites de las Reservas Indígenas Cabécar y Bribri de Talamanca será efectuada por el INDER (Instituto de Desarrollo Rural)(*) y la CONAI (Comisión Nacional de Asuntos Indígenas).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Que estas instituciones ya hicieron los estudios correspondientes en coordinación con las comunidades indígenas Bribri y Cabécar y presentaron los resultados ante el Poder Ejecutivo.
 Que, por otra parte, se ha visto necesario proceder a modificaciones de límites, de manera a incluir en la Reserva núcleos de población indígena que habían quedado fuera hasta la fecha, y por otra parte a excluir algunas áreas ocupadas por no indígenas en la zona de Bitey y de Altamira, de manera a evitar gastos de expropiación para el Estado.
 Que, a este efecto, la Comunidad Indígena Bribri, en coordinación con la CONAI, presentó el proyecto de reforma correspondiente ante el Poder Ejecutivo.
 Por tanto,
 DECRETAN:
-Artículo 1°—La Reserva Indígena Bribri de Talamanca se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Amubri 3644 IV, Sukut 3644 III, Siola 3544 II, Telire 3544 I.
+Artículo 1°-La Reserva Indígena Bribri de Talamanca se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Amubri 3644 IV, Sukut 3644 III, Siola 3544 II, Telire 3544 I.
 La Reserva se localiza por los puntos cuyas coordenadas son las siguientes:
 Partiendo de la confluencia del río Yorkin con el río Telire, en coordenadas N 390 500 E 585 500, se sigue por el río Yorkin (límite internacional Costa Rica-Panamá) aguas arriba hasta el punto de coordenadas N 383 200 E 590 450.
 De ahí se continúa, siempre por la línea que señala el límite internacional Costa Rica- Panamá, pasando por los puntos de coordenadas:
