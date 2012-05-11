@@ -15,3 +15,4 @@ Reglamento Autónomo para la Adquisición de Tierras
 | --- | --- | --- |
 | 1 | 2008-02-19 | la propia norma |
 | 2 | 2008-03-24 | Reglamento 6 (2008-03-24) |
+| 3 | 2012-05-11 | Ley 9036 |

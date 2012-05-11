@@ -1,6 +1,7 @@
 (Derogado)
 (Este Reglamento fue derogado por acuerdo N° 3 de la sesión N° 006 del 24 de marzo de 2008).
-INSTITUTO DE DESARROLLO AGRARIO
+INSTITUTO DE DESARROLLO RURAL(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 REGLAMENTO AUTÓNOMO PARA
 LA ADQUISICIÓN DE TIERRAS
 A fin de que se sirva proceder a su ejecución, me permito comunicarle el acuerdo tomado por la Junta Directiva en el artículo 6º de la sesión extraordinaria 002-2008, celebrada el 16 de enero del 2008.
