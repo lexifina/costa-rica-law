@@ -14,3 +14,4 @@ Requisitos y Trámites establecidos por la Municipalidad de Talamanca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-27 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
