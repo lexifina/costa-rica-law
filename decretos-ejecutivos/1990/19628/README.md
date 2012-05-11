@@ -14,3 +14,4 @@ Crea Distrito Riego Avenamiento y Zona Conservación Osa-Golfito-Corredores
 | --- | --- | --- |
 | 1 | 1990-05-17 | la propia norma |
 | 2 | 2005-06-21 | Decreto Ejecutivo 32517 (2005-06-21) |
+| 3 | 2012-05-11 | Ley 9036 |
