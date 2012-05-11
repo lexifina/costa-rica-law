@@ -1,1 +1,0 @@
-Artículo 11.—La Secretaría Técnica de la Comisión velará porque exista un expediente de cada finca en estudio, en el Departamento de Formación de Asentamientos, responsable de su vigilancia, custodia, y de contar con el respaldo electrónico de cada expediente administrativo, expediente que será debidamente certificado y remitido a la Dirección Regional correspondiente.

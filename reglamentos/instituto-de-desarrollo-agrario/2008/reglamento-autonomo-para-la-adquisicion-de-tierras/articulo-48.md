@@ -1,1 +1,0 @@
-Artículo 48.—Este Reglamento deroga el Reglamento Autónomo para la Adquisición de Tierras, aprobado por la Junta Directiva en el artículo 3º de la sesión extraordinaria Nº 020-2007 del 30 de agosto del 2007, publicado en el Diario Oficial La Gaceta Nº 198 del 16 de octubre del 2007, así como cualquier otra disposición reglamentaria que se le oponga.

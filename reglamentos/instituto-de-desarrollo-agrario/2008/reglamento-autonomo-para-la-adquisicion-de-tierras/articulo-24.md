@@ -1,1 +1,0 @@
-Artículo 24.—El Instituto no pagará la maquinaria, equipo, semovientes, construcciones e instalaciones que se encuentren en los inmuebles que adquiera, salvo que éstas sean de difícil o imposible separación del inmueble, siempre y cuando, por su indiscutible utilidad para el desarrollo del asentamiento, la Dirección Regional lo justifique y recomiende por escrito.
