@@ -15,3 +15,4 @@ Manual de Procedimientos para el Pago por Servicio Ambiental Hídrico de la Empr
 | --- | --- | --- |
 | 1 | 2005-02-21 | la propia norma |
 | 2 | 2009-05-25 | Reglamento 3001 (2009-05-25) |
+| 3 | 2012-05-11 | Ley 9036 |
