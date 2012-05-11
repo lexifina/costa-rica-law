@@ -1,1 +1,0 @@
-Artículo 42.—En el caso de que el arrendamiento se resuelva con la muerte del arrendatario, sus herederos declarados, si los hubiere, tendrán prioridad para solicitar un nuevo arrendamiento a su favor.

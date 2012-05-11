@@ -1,1 +1,0 @@
-Artículo 44.—La Junta Directiva podrá revocar los arrendamientos por el incumplimiento de cualquiera de las cláusulas incorporadas a los mismos, así como disposiciones de este reglamento y de la Ley 2825 del 14 de octubre de 1961 y sus reformas.

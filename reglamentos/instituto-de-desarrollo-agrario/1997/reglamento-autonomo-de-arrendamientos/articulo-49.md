@@ -1,1 +1,0 @@
-Artículo 49.—Los arrendamientos de terrenos pertenecientes a la Reserva Nacional, fajas de trocha de ferrocarril y zonas inalienables, otorgados con anterioridad a la vigencia de este reglamento quedarán sujetos a las cláusulas establecidas en tales contratos y a todas las disposiciones legales en virtud de los cuales se otorgaron, hasta el vencimiento de sus plazos actuales.

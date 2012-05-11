@@ -1,1 +1,0 @@
-Artículo 5°—Los arrendamientos se clasificarán según la modalidad de explotación de que será objeto el terreno, de esta forma habrá arrendamientos para uso agrícola, pecuario, industrial, comercial habitacional y de reforestación.

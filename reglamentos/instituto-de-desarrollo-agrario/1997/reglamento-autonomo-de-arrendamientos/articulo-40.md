@@ -1,1 +1,0 @@
-Artículo 40.—Si se resolviere el contrato por incumplimiento del arrendatario, el Instituto podrá demandar de aquel el resarcimiento de los daños y perjuicios ocasionados, así como las sumas que se le adeuden por concepto de cañones y sus respectivos intereses, con excepción de lo dispuesto en el artículo 26.

@@ -1,1 +1,0 @@
-Artículo 7°—Los terrenos otorgados en arrendamiento, sea cual fuere su naturaleza, deberán ser explotados y disfrutados directamente por el arrendatario, salvo lo dispuesto en el inciso e) del artículo 4 de este reglamento.

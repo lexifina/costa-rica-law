@@ -1,1 +1,0 @@
-Artículo 19.—En los casos en que no exista oposición a la solicitud de arrendamiento después de cumplidos los trámites indicados en los artículos anteriores se procederá a dictar la respectiva resolución a cargo del Departamento, con copia a la Dirección Regional correspondiente.

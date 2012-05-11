@@ -1,1 +1,0 @@
-Artículo 3°—No se concederá a nombre de una misma persona, ya sea física o jurídica más de un arrendamiento. Cuando se trate de arrendamientos para uso agrícola no podrá otorgarse a una sola persona más de 20 has. y para uso pecuario 50 has., salvo disposición expresa de la Junta Directiva. Se exceptúan de esta regla, las instituciones del Estado.

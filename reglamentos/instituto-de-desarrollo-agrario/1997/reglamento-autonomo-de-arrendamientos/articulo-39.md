@@ -1,1 +1,0 @@
-Artículo 39.—En el caso de que se resuelva no conceder la prórroga solicitada por el arrendatario, el Instituto deberá fundamentar las razones de tal negativa, basado en la recomendación de orden técnico y legal o de necesidad pública que se le suministre.

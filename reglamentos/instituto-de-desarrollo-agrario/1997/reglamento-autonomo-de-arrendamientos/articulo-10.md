@@ -1,3 +1,0 @@
-Artículo 10.—Toda petición o gestión que se plantee en materia de arrendamiento ante las Oficinas Regionales, podrá hacerse en papel común o en las fórmulas especiales que se tienen en el Instituto para esos efectos y se señalará lugar para recibir notificaciones dentro del perímetro de la Oficina que corresponda, debiendo indicar el domicilio exacto del pétente.
-En caso de que se omita este requisito, toda resolución que se dicte sobre el asunto quedará notificada con el solo transcurso de veinticuatro horas.
-Cuando las Direcciones Regionales o el Departamento lo estime necesario notificará a las partes, mediante la autoridad del domicilio del pétente.

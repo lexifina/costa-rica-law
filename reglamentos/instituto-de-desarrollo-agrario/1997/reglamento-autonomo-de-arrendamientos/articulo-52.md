@@ -1,1 +1,0 @@
-Artículo 52.—Transcurrido el plazo de los cinco años del respectivo arrendamiento y habiéndose demostrado por el arrendatario el cabal cumplimiento de todas sus obligaciones, dará derecho a éste, para que el Instituto le otorgue título de propiedad sobre el inmueble, conforme a la Ley de Titulación de Tierras Ubicadas en Reservas Nacionales, N° 7599 del 9 de agosto de 1996.

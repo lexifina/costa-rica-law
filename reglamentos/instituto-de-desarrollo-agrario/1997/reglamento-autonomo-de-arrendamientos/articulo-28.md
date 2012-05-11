@@ -1,1 +1,0 @@
-Artículo 28.—El Instituto actualizará el valor de los cánones anualmente, conforme a los índices de inflación . La nueva estimación tendrá vigencia una vez aprobada por la Junta Directiva y publicada en el Diario Oficial "La Gaceta".

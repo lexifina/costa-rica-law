@@ -1,1 +1,0 @@
-Articulo 14.—Una vez presentada la petitoria de arrendamiento se solicitará al pétente el depósito de dinero necesario para realizar la inspección, de conformidad con los factores que determinen el costo.

@@ -1,1 +1,0 @@
-Articulo 48.—Las solicitudes actualmente en tramite en las que no se haya publicado el edicto correspondiente o bien que con orden de publicación no haya salido en "La Gaceta", se procederá a resolver las mismas sin necesidad de ese requisito. Sin embargo se requerirá de la aprobación de la Dirección Regional respectiva.

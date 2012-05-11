@@ -1,1 +1,0 @@
-Artículo 22.—En ningún caso se podrá tramitar solicitudes de arrendamiento sobre terrenos que estén arrendados a otras personas, hasta tanto no se haya declarado expresamente por Junta Directiva extinto el derecho anterior.

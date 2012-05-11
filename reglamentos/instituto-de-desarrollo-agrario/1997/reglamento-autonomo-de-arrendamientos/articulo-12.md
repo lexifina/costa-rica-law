@@ -1,1 +1,0 @@
-Artículo 12.—Cuando se trate de una solicitud presentada por una persona jurídica deberá cumplirse fielmente con lo establecido en el artículo 2, inciso c) de este reglamento. En caso de omisión no se dará curso a la solicitud, hasta tanto no se subsane la misma.

@@ -1,1 +1,0 @@
-Artículo 21.—Contra lo que resuelva la Junta Directiva cabra los recursos de reconsideración y reposición, en los términos y condiciones dispuestos por el artículo 31, párrafo 3) de la Ley Reguladora de la Jurisdicción Contencioso Administrativa.

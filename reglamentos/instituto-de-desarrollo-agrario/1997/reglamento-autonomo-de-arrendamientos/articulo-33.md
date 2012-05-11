@@ -1,1 +1,0 @@
-Artículo 33.—La cesión del derecho que solicite el arrendatario, así como el traspaso o segregación del lote arrendado, lo será por el término que falte para el vencimiento del plazo del mismo. Lo anterior, sin perjuicio de las posteriores prórrogas a favor del cesionario, se así procediera.

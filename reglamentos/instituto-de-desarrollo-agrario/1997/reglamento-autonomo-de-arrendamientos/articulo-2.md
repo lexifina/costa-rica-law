@@ -1,5 +1,0 @@
-Artículo 2°—Para ser elegible a arrendatario se requiere:
-a) Ser costarricense o extranjero mayor de edad.
-b) En caso de extranjeros deberán demostrar, que se encuentran dentro de la categoría de residentes permanentes que les permita realizar actividades económicas independientes, de conformidad con lo estipulado en la Ley General de Migración y Extranjería y demás leyes y reglamentos especiales que regulan esta materia.
-Deberán además acreditar que se está al día en cuanto a los requisitos y obligaciones que para su permanencia en el país exige la Ley citada, so pena de la aplicación del articulo 159 de la Ley General de la Administración Pública. Esta información deberá ser actualizada cada año.
-c) En caso de que el solicitante sea una persona jurídica deberá aportarse certificación de personería con vista del Registro Mercantil; certificación de cédula jurídica, y una certificación con vista del libro de socios extranjeros donde se demuestre el requisito establecido en el inciso b) de este artículo, cuando el porcentaje de acciones en su poder exceda del 60% del capital social.
