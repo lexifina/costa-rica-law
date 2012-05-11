@@ -1,1 +1,2 @@
-Artículo 3º—La garantía que ofrezca el funcionario del Instituto de Desarrollo Agrario, puede ser hipotecaria, fianza, depósito en efectivo o “Póliza de Fidelidad”, suscrita con el Instituto Nacional de Seguros.
+Artículo 3º—La garantía que ofrezca el funcionario del Instituto de Desarrollo Rural(*), puede ser hipotecaria, fianza, depósito en efectivo o “Póliza de Fidelidad”, suscrita con el Instituto Nacional de Seguros.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

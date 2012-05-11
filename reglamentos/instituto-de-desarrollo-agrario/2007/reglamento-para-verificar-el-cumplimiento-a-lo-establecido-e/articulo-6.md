@@ -1,1 +1,2 @@
-Artículo 6º—Momento de la garantía. La garantía que se otorgue ante el Instituto de Desarrollo Agrario por parte de los funcionarios, tendrá como fecha límite el 1º de enero de cada año, para presentarla.
+Artículo 6º—Momento de la garantía. La garantía que se otorgue ante el Instituto de Desarrollo Rural(*) por parte de los funcionarios, tendrá como fecha límite el 1º de enero de cada año, para presentarla.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

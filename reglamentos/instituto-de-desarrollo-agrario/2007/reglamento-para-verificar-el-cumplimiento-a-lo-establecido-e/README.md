@@ -14,3 +14,4 @@ Reglamento para Verificar el cumplimiento a lo establecido en el artículo 13 de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-14 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
