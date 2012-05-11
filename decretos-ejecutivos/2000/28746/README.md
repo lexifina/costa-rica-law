@@ -16,3 +16,4 @@ Traspaso de Tierras al INDER del programa de titulación de los Santos
 | 1 | 2000-07-12 | la propia norma |
 | 2 | 2007-06-13 | Ley 7 |
 | 3 | 2008-02-14 | Decreto Ejecutivo 34506 (2008-02-14) |
+| 4 | 2012-05-11 | Ley 9036 |
