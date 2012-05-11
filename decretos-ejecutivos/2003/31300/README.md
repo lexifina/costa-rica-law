@@ -21,3 +21,4 @@ Convoca a la Asamblea Legislativa a Sesiones Extraordinarias.
 | 6 | 2003-08-18 | Decreto Ejecutivo 31327 (2003-08-18) |
 | 7 | 2003-08-20 | Decreto Ejecutivo 31328 (2003-08-20) |
 | 8 | 2003-08-21 | Decreto Ejecutivo 31330 (2003-08-21) |
+| 9 | 2012-05-11 | Ley 9036 |

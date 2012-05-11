@@ -101,5 +101,6 @@ Expediente Nº 15.348, Creación del Registro de Delincuencia de personas que ha
 Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 31328 de 20 de agosto de 2003, publicado en La Gaceta N° 167 de 01 de setiembre de 2003, en el siguiente sentido:
 Expediente N° 15.372, Ley de democratización de la economía costarricense, generación de prosperidad y lucha efectiva contra la pobreza mediante la activación económica.
 Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 31330 de 21 de agosto de 2003, publicado en La Gaceta N° 167 de 01 de setiembre de 2003, en el siguiente sentido:
-Proyecto nuevo. Autorizar al Instituto de Desarrollo Agrario y al Instituto Nacional de Vivienda y Urbanismo a condonar deudas del Programa de Compensación Social.
+Proyecto nuevo. Autorizar al Instituto de Desarrollo Rural(*) y al Instituto Nacional de Vivienda y Urbanismo a condonar deudas del Programa de Compensación Social.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Expediente N° 14.426, Reforma de los Artículos 3, 49 y Adición de un Párrafo Final al artículo 49 bis de la Ley N° 2035, de 17 de julio de 1956 y sus Reformas, Ley Orgánica del Consejo Nacional de Producción.
