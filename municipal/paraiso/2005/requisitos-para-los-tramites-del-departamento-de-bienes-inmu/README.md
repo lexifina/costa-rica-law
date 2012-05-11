@@ -14,3 +14,4 @@ Requisitos para los trámites del Departamento de Bienes Inmuebles y Catastro de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-21 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
