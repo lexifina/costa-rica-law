@@ -13,3 +13,4 @@ Reforma Declaratoria Zona Emergencia Area Propuesta Préstamo ProyectoDesarrollo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-09-05 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

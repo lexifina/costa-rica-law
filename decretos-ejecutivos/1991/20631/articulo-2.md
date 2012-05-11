@@ -1,22 +1,4 @@
-ARTÖCULO 2§.-Adici¢nese el decreto ejecutivo N§ 20249-MAG
-del 23 de enero de
-1991, con los art¡culos 5§ y 6§.
-"Art¡culo 5§.-El Instituto de Desarrollo Agrario proveer
-los fondos necesarios
-para la ejecuci¢n de las actividades del Proyecto
-Agroindustrial de Coto
-Sur, con los cr‚ditos ya contratados con el Banco
-Interamericano de Desarrollo,
-los que administrar como entidad deudora y como organismo
-ejecutor, a trav‚s
-de la unidad ejecutora constituida mediante ley N§ 7062 del
-2 de abril de 1987.
-Art¡culo 6§.-El Instituto de Desarrollo Agrario, como
-organismo ejecutor,
-para una mejor ejecuci¢n de las actividades del proyecto y
-dada la naturaleza
-de las mismas, suscribir convenios cooperativos con el
-Ministerio de Obras
-P£blicas y Transportes y con el Servicio Nacional de Agua,
-Riego y Avenamiento
-(SENARA)".
+ARTÍCULO 2°.-Adiciónese el decreto ejecutivo N° 20249-MAG del 23 de enero de 1991, con los artículos 5° y 6°
+"Artículo 5°-El Instituto de Desarrollo Rural(*) proveerá los fondos necesarios para la ejecución de las actividades del Proyecto Agroindustrial de Coto Sur, con los créditos ya contratados con el Banco Interamericano de Desarrollo, los que administrará como entidad deudora y como organismo ejecutor, a través de la unidad ejecutora constituida mediante ley N° 7062 del 2 de abril de 1987.
+Artículo 6°.-El Instituto de Desarrollo Rural(*), como organismo ejecutor, para una mejor ejecución de las actividades del proyecto y dada la naturaleza de las mismas, suscribirá convenios cooperativos con el Ministerio de Obras Públicas y Transportes y con el Servicio Nacional de Agua, Riego y Avenamiento (SENARA)".
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
