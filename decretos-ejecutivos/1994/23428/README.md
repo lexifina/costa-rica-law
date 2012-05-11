@@ -14,3 +14,4 @@ Reforma Reglamento General SENARA (Servicio Nacional Aguas Subterráneas Riego y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-08 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
