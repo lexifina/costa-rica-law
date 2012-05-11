@@ -62,7 +62,8 @@ Instituto Costarricense de Pesca y Acuacultura 721.2
 Instituto Costarricense de Puertos del Pacífico 4,217.8
 Instituto Costarricense de Turismo 3.167.0
 Instituto Costarricense del Deporte y la Recreación 793.5
-Instituto de Desarrollo Agrario 5,579.5
+Instituto de Desarrollo Rural(*) 5,579.5
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Instituto de Fomento Cooperativo 876.2
 Instituto de Fomento y Asesoría Municipal 1.266.6
 Instituto Geográfico Nacional 129.8
