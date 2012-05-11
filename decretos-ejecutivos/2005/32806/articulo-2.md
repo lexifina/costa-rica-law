@@ -1,1 +1,0 @@
-Artículo 2º—El COTISANSA se reunirá ordinariamente cada dos meses y extraordinariamente por solicitud del Viceministro de Agricultura y Ganadería; podrá sesionar válidamente con la mitad más uno del total de sus integrantes y sus acuerdos se adoptarán por mayoría simple de votos.
