@@ -1,2 +1,0 @@
-Artículo 3º—Las tierras a que se refiere el artículo primero de este Decreto tienen una cabida de sesenta mil hectáreas y se dedican a la Agricultura y la Ganadería, sus linderos son norte, calle pública; sur, INDER(*) y río Montaña; este, División cantonal entre Nicoya y Santa Cruz; oeste: INDER(*) y Zona Inalienable del Océano Pacífico.
-(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
