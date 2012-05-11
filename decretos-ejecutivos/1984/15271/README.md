@@ -13,3 +13,4 @@ Crea Comisiones para Censos Nacionales de Población Vivienda yAgropecuario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-03-28 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

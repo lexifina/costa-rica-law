@@ -1,17 +1,2 @@
-ARTÖCULO 10.-Todas las dependencias y servidores p£blicos
-del Poder Ejecutivo
-y en particular, del Ministerio de Econom¡a y Comercio, del
-Ministerio
-de Educaci¢n P£blica, del Ministerio de Planificaci¢n Nacional
-y Pol¡tica Econ¢mica,
-del Ministerio de Agricultura y Ganader¡a, as¡ como los de
-aquellas instituciones
-descentralizadas involucradas en el logro de los mejores
-resultados
-de los censos nacionales, como el Instituto Nacional de Vivienda
-y Urbanismo,
-el Instituto de Desarrollo Agrario (IDA), el Banco Central de
-Costa Rica, el
-Consejo Nacional de Producci¢n, prestar n el apoyo que se les
-solicite como
-colaboraci¢n a las labores propias de los censos nacionales.
+ARTOCULO 10.-Todas las dependencias y servidores públicos del Poder Ejecutivo y en particular, del Ministerio de Economía y Comercio, del Ministerio de Educación Pública, del Ministerio de Planificación Nacional y Política Económica, del Ministerio de Agricultura y Ganadería, así como los de aquellas instituciones descentralizadas involucradas en el logro de los mejores resultados de los censos nacionales, como el Instituto Nacional de Vivienda y Urbanismo, el Instituto de Desarrollo Rural (INDER)(*), el Banco Central de Costa Rica, el Consejo Nacional de Producción, prestarán el apoyo que se les solicite como colaboración a las labores propias de los censos nacionales.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
