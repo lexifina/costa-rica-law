@@ -13,3 +13,4 @@ Reglamento de Cooperativas Juveniles
 | --- | --- | --- |
 | 1 | 1982-07-23 | la propia norma |
 | 2 | 2002-05-02 | Ley 8261 |
+| 3 | 2012-05-11 | Ley 9036 |
