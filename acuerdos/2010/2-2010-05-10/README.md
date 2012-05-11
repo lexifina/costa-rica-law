@@ -14,3 +14,4 @@ Nombra Presidentes Ejecutivos de las instituciones autónomas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-10 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

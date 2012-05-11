@@ -9,7 +9,8 @@ ACUERDAN:
 • Eduardo Augusto Doryan Garrón, cédula Nº 1-435-666, Presidente Ejecutivo del Instituto Costarricense de Electricidad (ICE);
 • Francisco de Paula Gutiérrez Gutiérrez, cédula de identidad Nº 1-372-957, Presidente del Banco Central de Costa Rica (BCCR);
 • Óscar Núñez Calvo, cédula de identidad Nº 2-378-316, Presidente Ejecutivo del Instituto Costarricense de Acueductos y Alcantarillados (ICAA);
-• Rolando González Ulloa, cédula de identidad Nº 2-274-540, Presidente Ejecutivo del Instituto de Desarrollo Agrario (IDA);
+• Rolando González Ulloa, cédula de identidad Nº 2-274-540, Presidente Ejecutivo del Instituto de Desarrollo Rural (INDER)(*);
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 • Allan Hidalgo Campos, cédula de identidad Nº 1-722-811, Presidente Ejecutivo de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA);
 • Juan Marín Quirós, cédula de identidad Nº 1-607-406, Presidente Ejecutivo del Instituto de Fomento y Asesoría Municipal (IFAM);
 • Fernando Marín Rojas, cédula de identidad Nº 2-317-355, Presidente Ejecutivo del Instituto Mixto de Ayuda Social (IMAS);
