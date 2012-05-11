@@ -14,3 +14,4 @@ Traspasa bienes inmuebles al Instituto de Desarrollo Rural que pertenecían al B
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-01 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

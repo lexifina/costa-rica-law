@@ -1,1 +1,2 @@
-Artículo 3°-Corresponderá al Instituto de Desarrollo Agrario el llevar a cabo las acciones legales pertinentes a efecto de resguardar y vigilar los inmuebles que le han sido asignados.
+Artículo 3°-Corresponderá al Instituto de Desarrollo Rural(*) el llevar a cabo las acciones legales pertinentes a efecto de resguardar y vigilar los inmuebles que le han sido asignados.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
