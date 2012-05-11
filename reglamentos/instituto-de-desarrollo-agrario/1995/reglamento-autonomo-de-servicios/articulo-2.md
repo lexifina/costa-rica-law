@@ -1,1 +1,2 @@
-Artículo 2°—Naturaleza de la Relación de Servicio: La relación de servicio de los funcionarios con el IDA se regirá por el presente Reglamento y por lo dispuesto en el Convenio Colectivo. Dicha relación se considerará para todo efecto como de derecho público.
+Artículo 2°—Naturaleza de la Relación de Servicio: La relación de servicio de los funcionarios con el INDER(*) se regirá por el presente Reglamento y por lo dispuesto en el Convenio Colectivo. Dicha relación se considerará para todo efecto como de derecho público.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

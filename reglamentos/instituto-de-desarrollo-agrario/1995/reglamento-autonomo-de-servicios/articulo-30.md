@@ -1,2 +1,3 @@
-Artículo 30.—Horario de Trabajo: Los funcionarios del IDA deberán cumplir con el siguiente horario de trabajo: de lunes a viernes de las ocho horas a las dieciséis horas y quince minutos.
+Artículo 30.—Horario de Trabajo: Los funcionarios del INDER(*) deberán cumplir con el siguiente horario de trabajo: de lunes a viernes de las ocho horas a las dieciséis horas y quince minutos.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 El Presidente Ejecutivo podrá acordar excepciones al horario general por categoría de servidores y para casos especiales. El horario general solo podrá ser variado por reforma a este Reglamento.
