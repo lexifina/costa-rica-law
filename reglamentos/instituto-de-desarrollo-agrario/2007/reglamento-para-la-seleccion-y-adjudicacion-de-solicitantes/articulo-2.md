@@ -1,7 +1,9 @@
 Artículo 2º—Para todos los efectos de este Reglamento se entenderá por:
-a. El Instituto: El Instituto de Desarrollo Agrario, creado por Ley Nº 6735 del 29 de marzo de 1982.
+a. El Instituto: El Instituto de Desarrollo Rural(*), creado por Ley Nº 6735 del 29 de marzo de 1982.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 b. L.G.A.P.: Ley General de la Administración Pública.
-c. La Secretaría: La Secretaría de la Junta Directiva del Instituto de Desarrollo Agrario.
+c. La Secretaría: La Secretaría de la Junta Directiva del Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 d. Área de selección de familias: Unidad Administrativa encargada de supervisar y fiscalizar el proceso de selección de las familias solicitantes de tierras.
 e. Investigación complementaria: Estudio que se realiza para verificar y ampliar la información obtenida en la encuesta aplicada para la selección de las personas solicitantes de tierra.
 f. Informantes claves: Personas de reconocida solvencia moral, destacadas por su participación en las diferentes actividades comunales y organizaciones; así como funcionarios y funcionarias de instituciones del Estado, con oficinas establecidas en la región y que por sus funciones tienen amplios conocimientos de las familias solicitantes de tierra.
@@ -13,7 +15,8 @@ k. Sistema de selección y adjudicación de tierras: Base de datos a cargo del �
 l. Predio: Área de terreno adjudicada o por adjudicar por el Instituto a una persona física o persona jurídica sin fines de lucro.
 m. Parcela: Es la modalidad de predio orientado a proporcionar a la población rural una alternativa productiva suficiente para desarrollar actividades agroproductivas que propicien el mejoramiento socioeconómico de las familias. Su tamaño se determinará según las características agroecológicas del proyecto productivo y potencial de desarrollo de cada finca. Dentro del área de la Parcela se autorizará la segregación de un lote para vivienda del campesino, con un área no mayor de mil metros, la cual estará sujeta a las mismas limitaciones del principal.
 n. Lote para la vivienda: Toda subdivisión realizada por el Instituto en el área destinada a centro de población de una finca adquirida para conformar un asentamiento campesino, o segregación dentro de una parcela, para la ubicación de una vivienda. El área para este tipo de terreno no excederá los mil metros cuadrados.
-ñ. Elegible: Solicitante (persona física, o jurídica sin fines de lucro), que por haber reunido los requisitos de la Ley Nº 2825 y este Reglamento, puede ser beneficiario de un predio del IDA.
+ñ. Elegible: Solicitante (persona física, o jurídica sin fines de lucro), que por haber reunido los requisitos de la Ley Nº 2825 y este Reglamento, puede ser beneficiario de un predio del INDER(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 o. Beneficiaria y/o beneficiario: Persona física o jurídica (cooperativas, empresas comunitarias de autogestión campesina y asociaciones) que, al reunir los requisitos de la Ley de Tierras y Colonización, puede ser adjudicataria(o), o propietaria(o) o arrendataria (o) de una parcela en los asentamientos del Instituto.
 p. Contrato de asignación de tierras: Contrato de naturaleza mixta administrativo y agrario constitutivo de empresa agrícola, suscrito entre el Instituto y la persona adjudicataria de un predio, en el que constan los derechos y obligaciones de dicha adjudicación o arrendamiento, conforme a los fines de la Ley de Tierras y Colonización N° 2825 y este Reglamento.
 q. Distribución de costos: Cuantificación de los costos de la tierra y otras mejoras para determinar el precio por predio a adjudicar.

@@ -15,3 +15,4 @@ Reglamento para la Selección y Adjudicación de Solicitantes de Tierra
 | --- | --- | --- |
 | 1 | 2007-10-16 | la propia norma |
 | 2 | 2008-01-22 | Reglamento 3 (2008-01-22) |
+| 3 | 2012-05-11 | Ley 9036 |
