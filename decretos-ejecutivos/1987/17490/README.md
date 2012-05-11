@@ -14,3 +14,4 @@ Se ordena al Registro Público de la Propiedad la inscripción a nombre del Inst
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-04-22 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
