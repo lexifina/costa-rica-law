@@ -14,3 +14,4 @@ Autoriza al Instituto de Desarrollo Rural, para que proceda a solicitar al Regis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-16 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
