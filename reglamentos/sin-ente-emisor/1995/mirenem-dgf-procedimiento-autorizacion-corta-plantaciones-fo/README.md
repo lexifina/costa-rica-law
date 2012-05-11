@@ -13,3 +13,4 @@ MIRENEM DGF: Procedimiento Autorización Corta Plantaciones Forestales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-23 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
