@@ -14,3 +14,4 @@ Reglamento de la Unidad de Relaciones Laborales y la Junta de Relaciones Laboral
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-23 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

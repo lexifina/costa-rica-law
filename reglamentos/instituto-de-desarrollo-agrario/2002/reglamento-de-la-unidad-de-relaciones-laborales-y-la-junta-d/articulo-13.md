@@ -1,1 +1,2 @@
-Artículo 13.—Los procedimientos estarán dirigidos solamente contra los funcionarios (as) del IDA, o contra los funcionarios (as)de proyectos especiales, de conformidad con lo establecido en el artículo 3 de este reglamento.
+Artículo 13.—Los procedimientos estarán dirigidos solamente contra los funcionarios (as) del INDER(*), o contra los funcionarios (as)de proyectos especiales, de conformidad con lo establecido en el artículo 3 de este reglamento.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
