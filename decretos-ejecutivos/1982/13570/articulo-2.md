@@ -1,1 +1,2 @@
-Artículo 2°.-El Instituto de Desarrollo Agrario (IDA) incluirá los terrenos correspondientes a la antigua Reserva Indígena de China Kicha en su plan de titulación.
+Artículo 2°.-El Instituto de Desarrollo Rural (INDER)(*) incluirá los terrenos correspondientes a la antigua Reserva Indígena de China Kicha en su plan de titulación.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
