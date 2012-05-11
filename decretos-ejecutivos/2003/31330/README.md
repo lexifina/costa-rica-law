@@ -14,3 +14,4 @@ Amplía Convocatoria a la Asamblea Legislativa a Sesiones Extraordinarias.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-01 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
