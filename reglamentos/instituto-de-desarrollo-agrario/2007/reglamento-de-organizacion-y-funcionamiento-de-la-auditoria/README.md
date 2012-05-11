@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoria Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-11 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

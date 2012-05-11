@@ -1,9 +1,12 @@
 SECCIÓN SEGUNDA
 Deberes de la Auditoría Interna
 Artículo 47.—Deberes. El Auditor Interno y el Subauditor, así como el resto del personal de la Auditoría Interna, tendrán los siguientes deberes:
-a) Practicar auditorías o estudios especiales de auditoría en cualesquiera unidades del IDA, en el momento que se considere oportuno, con base en su Plan Anual de Trabajo o de acuerdo con las prioridades del caso cuando medie petición de la Junta Directiva o la Contraloría General.
-b) Comunicar por escrito los resultados de cada auditoría o estudio especial de auditoría que se lleve a cabo, por medio de memorandos e informes con comentarios, conclusiones y recomendaciones, como medio de brindar la asesoría pertinente para mejorar la eficiencia y la eficacia en el sistema de control interno y en la gestión financiera y operativa del IDA.
-c) Ejecutar sus funciones con libertad e independencia de criterio respecto de las demás dependencias del IDA.
+a) Practicar auditorías o estudios especiales de auditoría en cualesquiera unidades del INDER(*), en el momento que se considere oportuno, con base en su Plan Anual de Trabajo o de acuerdo con las prioridades del caso cuando medie petición de la Junta Directiva o la Contraloría General.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+b) Comunicar por escrito los resultados de cada auditoría o estudio especial de auditoría que se lleve a cabo, por medio de memorandos e informes con comentarios, conclusiones y recomendaciones, como medio de brindar la asesoría pertinente para mejorar la eficiencia y la eficacia en el sistema de control interno y en la gestión financiera y operativa del INDER(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+c) Ejecutar sus funciones con libertad e independencia de criterio respecto de las demás dependencias del INDER(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 d) Cumplir con el ordenamiento jurídico y técnico aplicable.
 e) Colaborar en los estudios que la Contraloría General y otras instituciones realicen en el ejercicio de competencias de control o fiscalización legalmente atribuidas.
 f) No revelar a terceros que no tengan relación directa con los asuntos tratados, información sobre las auditorías o los estudios especiales de auditoría que se estén realizando, ni información sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de la Institución.

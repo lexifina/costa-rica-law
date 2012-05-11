@@ -1,9 +1,12 @@
 Artículo 4º—Definiciones. Para los efectos del presente reglamento, se entenderán los siguientes términos según se indica a continuación:
-a) IDA: Instituto de Desarrollo Agrario.
+a) INDER: Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 b) Administración Activa: Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico es el conjunto de órganos y entes de la función administrativa, que deciden y ejecutan; incluyen el jerarca, como última instancia.
-c) Auditoría Interna: Se refiere a la Auditoría Interna del Instituto de Desarrollo Agrario.
+c) Auditoría Interna: Se refiere a la Auditoría Interna del Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 d) Contraloría General: Contraloría General de la República.
-e) Titular subordinado: Funcionario del IDA responsable de un proceso, equipo de trabajo o unidad administrativa, con autoridad para ordenar y tomar decisiones.
+e) Titular subordinado: Funcionario del INDER(*) responsable de un proceso, equipo de trabajo o unidad administrativa, con autoridad para ordenar y tomar decisiones.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 f) Cuidado profesional: Propósito de hacer las cosas bien, con toda integridad y responsabilidad en su desempeño, estableciendo una oportuna y adecuada supervisión en la labor que se realice.
 g) Ética: Es la interiorización de normas y principios que hacen responsable al individuo de su propio bienestar y consecuentemente de los demás, mediante un comportamiento basado en conductas morales socialmente aceptadas, para comportarse en consecuencia con éstas.
 h) Idóneo: Que una persona cuente con la pericia y el cuidado profesional requerido para efectuar una labor.
