@@ -251,7 +251,8 @@ Anexo Nº4
 1.1.1.2.222.000 Instituto Costarricense del Deporte y la Recreación (ICODER)
 1.1.1.2.223.000 Instituto Costarricense de Pesca y Acuacultura (INCOPESCA) Anexo Nº4
 1.1.1.2.224.000 Instituto Costarricense de Turismo (ICT)
-1.1.1.2.225.000 Instituto de Desarrollo Agrario (IDA)
+1.1.1.2.225.000 Instituto de Desarrollo Rural (INDER)(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 1.1.1.2.226.000 Instituto de Fomento y Asesoría Municipal (IFAM)
 1.1.1.2.227.000 Instituto Mixto de Ayuda Social (IMAS)
 1.1.1.2.228.000 Instituto Nacional de Aprendizaje (INA)
