@@ -14,3 +14,4 @@ Amplía la convocatoria a sesiones extraordinarias de la Asamblea Legislativa pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-14 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
