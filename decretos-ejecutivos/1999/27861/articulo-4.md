@@ -1,2 +1,0 @@
-Artículo 4°-Se encomienda al Departamento Ordenamiento Agrario y Formación de Asentamientos y a la Dirección de la Región Bronca del Instituto de Desarrollo Rural(*), a realizar los trámites necesarios para la ejecución de este Programa de Titulación.
-(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
