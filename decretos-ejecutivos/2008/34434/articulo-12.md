@@ -9,7 +9,8 @@ d) El Director General del Registro Nacional.
 e) El Ministro del Ambiente y Energía o un representante designado por él.
 f) Un representante del Instituto Geográfico Nacional, de nombramiento del Ministro de Obras Públicas y Transportes.
 g) Un representante del Instituto de Fomento y Asesoría Municipal, de nombramiento del Presidente Ejecutivo
-h) Un representante del Instituto de Desarrollo Agrario de nombramiento del Presidente Ejecutivo de IDA
+h) Un representante del Instituto de Desarrollo Rural(*) de nombramiento del Presidente Ejecutivo de INDER(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 i) Un representante de la Comisión Interinstitucional de Asuntos Indígenas (CIAI ) nombrado en forma coordinada entre la Comisión Nacional de Asuntos Indígenas, las Asociaciones de Desarrollo Indígena, la Mesa Indígena y otras organizaciones tradicionales.
 j) Un representante del Colegio de Ingenieros Topógrafos.
 k) Un representante del Colegio de Abogados, quien deberá ser notario público en ejercicio de sus funciones.

@@ -8,7 +8,8 @@ Los representantes serán nombrados por los jerarcas de cada una de las siguient
 5) Dirección de Resolución Alterna de Conflictos, de nombramiento del Ministro de Justicia.
 6) Ministerio del Ambiente y Energía, de nombramiento del Ministro de Ambiente y Energía.
 7) Instituto Geográfico Nacional, de nombramiento del Ministro de Obras Públicas y Transportes.
-8) Instituto de Desarrollo Agrario, de nombramiento del Presidente Ejecutivo del IDA.
+8) Instituto de Desarrollo Rural(*), de nombramiento del Presidente Ejecutivo del INDER(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 9) Comisión Interinstitucional de Asuntos Indígenas, nombrado en forma coordinada entre la Comisión Nacional de Asuntos Indígenas, las Asociaciones de Desarrollo Indígena, la Mesa Indígena y otras organizaciones tradicionales .
 10) Instituto de Fomento y Asesoría Municipal, de nombramiento del Presidente Ejecutivo.
 La Comisión será presidida por el representante del Registro Nacional y sesionará ordinariamente dos veces al año y extraordinariamente cuando sea convocada por el representante de dicho Ministerio, con el propósito de interactuar entre los componentes e informarse del avance del Programa.
@@ -21,6 +22,7 @@ b) Equipos Técnicos de Componente: Para cada uno de los Componentes del Program
 6. Un representante del Ministerio de Ambiente y Energía.
 7. Un representante del Instituto Geográfico Nacional
 8. Un representante del Instituto de Fomento y Asesoría Municipal.
-9. Un representante del Instituto de Desarrollo Agrario.
+9. Un representante del Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 10. Comisión Interinstitucional de Asuntos Indígenas.
 Los Equipos Técnicos serán convocados y estarán presididos por los Coordinadores de los Componentes del Programa.
