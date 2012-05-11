@@ -169,7 +169,8 @@ Para la aplicación de la exención tributaria del impuesto sobre bienes inmuebl
 - Certificación emitida por el Registro Nacional o notario público donde se haga constar la propiedad del inmueble a nombre de la asociación declarada de utilidad pública y certificación emitida por notario público donde conste la vigencia del decreto ejecutivo declarando de utilidad pública a la asociación de que se trate.
 - Certificación emitida por la Comisión Nacional de Asuntos Indígenas (CONAI) en la que conste que el inmueble constituye reserva indígena, la vigencia del decreto y la condición indígena del sujeto pasivo.
 - Certificación expedida por el Registro Nacional o por notario público de que el inmueble inscrito o no, es propiedad o posesión de la institución pública de educación y salud correspondiente.
-- Certificación emitida por el secretario de la Junta Directiva del I.D.A., en la cual se haga constar el día, mes y año de la adjudicación de la parcela para determinar que se encuentra dentro de los cinco años de la no afectación a este tributo, en el caso de que el inmueble pertenezca a un parcelero o adjudicatario del Instituto de Desarrollo Agrario (IDA).
+- Certificación emitida por el secretario de la Junta Directiva del I.N.D.E.R(*)., en la cual se haga constar el día, mes y año de la adjudicación de la parcela para determinar que se encuentra dentro de los cinco años de la no afectación a este tributo, en el caso de que el inmueble pertenezca a un parcelero o adjudicatario del Instituto de Desarrollo Rural (INDER)(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 - Informe de inspección del departamento.
 P. Modificación del valor registrado de los bienes inmuebles o de la base imponible.
 Para modificación del valor registrado de bienes inmuebles y descargo del valor del bien total o parcial de la base imponible registrada, se deberá presentar lo siguiente:
@@ -182,7 +183,8 @@ Para modificación del valor registrado de bienes inmuebles y descargo del valor
 - Fotocopia de la escritura mediante la cual se constituyó el gravamen hipotecario sobre la propiedad.
 - Fotocopia de la escritura de cancelación de la hipoteca.
 - Certificación de gravámenes hipotecarios de la propiedad (literal y actualizada).
-- Acta de inspección del Instituto de Desarrollo Agrario que indique el área ocupada en precario, o las pruebas que considere pertinentes, en caso de que el titular de la finca haya sido despojado por ocupantes en precario, indicándose en el acta si la disminución en la misma es parcial o total.
+- Acta de inspección del Instituto de Desarrollo Rural(*) que indique el área ocupada en precario, o las pruebas que considere pertinentes, en caso de que el titular de la finca haya sido despojado por ocupantes en precario, indicándose en el acta si la disminución en la misma es parcial o total.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Trámites relativos a contratación administrativa y finanzas
 Marco normativo.
 Ley de la Contratación Administrativa Nº 7494 de 2 de mayo de 1995; Reglamento General de Contratación Administrativa Decreto Ejecutivo Nº 25038-H de 6 de marzo de 1996; Circular de la Contraloría General de la República, de fecha de 3 de noviembre de 1998 publicada en el Alcance Nº 82-A a La Gaceta Nº 227 de 23 de noviembre de 1998; Ley de Control de las Partidas Específicas con cargo al Presupuesto Nacional Nº 7555, de 23 de febrero de 1998; Código Municipal Nº 7794 de 30 de mayo de 1998.
