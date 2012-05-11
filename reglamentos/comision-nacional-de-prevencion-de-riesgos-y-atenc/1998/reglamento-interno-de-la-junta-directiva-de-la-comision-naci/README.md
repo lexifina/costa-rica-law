@@ -14,3 +14,4 @@ Reglamento Interno de la Junta Directiva de la Comisión Nacional de Emergencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-15 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
