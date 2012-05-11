@@ -14,3 +14,4 @@ Establece los montos presupuestarios promedios en millones de colones , del peri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-17 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
