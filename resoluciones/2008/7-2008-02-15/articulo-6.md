@@ -91,7 +91,7 @@ Instituto Costarricense de Puertos del Pacífico - INCOP | 4.793,4 | E
 Instituto Costarricense de Turismo - ICT | 6.399,4 | E
 Instituto Costarricense del Deporte y la Recreación - ICODER | 2.286,3 | E
 Instituto Costarricense sobre Drogas | 162,7 | I
-Instituto de Desarrollo Agrario - IDA | 4.367,1 | E
+Instituto de Desarrollo Rural - INDER(*) (*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural") | 4.367,1 | E
 Instituto de Fomento y Asesoría Municipal - IFAM | 563,2 | G
 Instituto del Café de Costa Rica - ICAFE | 1.663,5 | F
 Instituto Mixto de Ayuda Social - IMAS | 9.800,2 | D

@@ -14,3 +14,4 @@ Actualiza límites económicos que establece el artículo 27 de la Ley de Contra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-03 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
