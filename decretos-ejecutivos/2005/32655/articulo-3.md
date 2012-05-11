@@ -1,7 +1,8 @@
 Artículo 3º—De las personas beneficiadas por la condonación.
 Serán beneficiarias de la Condonación establecida en la Ley Nº 8434, aquellas personas que cumplan las siguientes condiciones:
 1) Que la deuda por concepto de tierra y/o Caja Agraria haya sido adquirida como máximo al 31 de diciembre del 2002.
-2) Que el deudor y los demás beneficiarios de su núcleo vivan en la propiedad y la ocupen en el desarrollo de actividades productivas y hagan uso de ella. Se exceptúa aquellas personas que además de la parcela tengan un lote de vivienda adjudicado y vivan en él y todos aquellos casos en que se haya determinado, por parte del Instituto de Desarrollo Agrario, que los beneficiarios no están obligados a vivir en la parcela.
+2) Que el deudor y los demás beneficiarios de su núcleo vivan en la propiedad y la ocupen en el desarrollo de actividades productivas y hagan uso de ella. Se exceptúa aquellas personas que además de la parcela tengan un lote de vivienda adjudicado y vivan en él y todos aquellos casos en que se haya determinado, por parte del Instituto de Desarrollo Rural(*), que los beneficiarios no están obligados a vivir en la parcela.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 3) Se considerará que no están obligados a vivir en la parcela aquellos beneficiarios que se encuentren en alguna de las siguientes circunstancias:
 a- Que las parcelas no cuenten con los servicios básicos para la construcción de sus viviendas.
 b- Que en el estudio de relación Tierra vs. Familia, se determine que no es posible la construcción de vivienda en la parcela por dedicarse el 100% de la tierra a la explotación agrícola y además no se haya otorgado lote de vivienda al beneficiario.
