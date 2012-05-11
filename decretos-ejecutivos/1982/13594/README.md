@@ -13,3 +13,4 @@ Declara Zona Protectora Bosque Quitirrisí de Mora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-05 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
