@@ -13,3 +13,4 @@ Crea Parque Nacional Arenal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-05-23 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

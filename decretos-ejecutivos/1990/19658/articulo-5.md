@@ -78,14 +78,8 @@ Sigue por linderos de propiedad privada en los v‚rtices que se
 describen a continuaci¢n:
 431.800 E 296.800 N
 431.850 E 297.950 N
-Punto que se ubica en la margen derecha del r¡o Suaren sobre la cual
-se contin£a agua arriba hasta el punto con coordenadas 431.000 E 297.850
-N, siguiendo por el l¡mite de propiedad privada hasta un punto en las
-coordenadas 430.000 E 297.000 N, siguiendo en l¡nea recta por sobre el
-carril existente en propiedad del Instituto de Desarrollo Agrario en punto
-coordenadas 428.000 E 299.000 N, continuando con un rumbo Oeste Franco
-hasta un punto con coordenadas 426.000 E 299.000 N, se contin£a en l¡nea
-recta hasta el l¡mite de propiedad en las coordenadas:
+Punto que se ubica en la margen derecha del r¡o Suaren sobre la cual se contin£a agua arriba hasta el punto con coordenadas 431.000 E 297.850 N, siguiendo por el l¡mite de propiedad privada hasta un punto en las coordenadas 430.000 E 297.000 N, siguiendo en l¡nea recta por sobre el carril existente en propiedad del Instituto de Desarrollo Rural(*) en punto coordenadas 428.000 E 299.000 N, continuando con un rumbo Oeste Franco hasta un punto con coordenadas 426.000 E 299.000 N, se contin£a en l¡nea recta hasta el l¡mite de propiedad en las coordenadas:
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 425.750 E 299.150 N
 425.850 E 299.450 N
 425.450 E 299.600 N
