@@ -75,5 +75,7 @@ de la Tía Tere de 5 de setiembre de 1998.
 68) Expediente 15.594. Creación de la Región de Pérez Zeledón.
 69) Expediente 14.875. Ley que ratifica y profundiza el carácter estatal y autónomo del Conservatorio de Castella.
 70) Expediente 14.935. Autorización al INVU para que done un terreno de su propiedad a la Municipalidad de El Guarco.
-71) Expediente 15.017. Autorización al Instituto de Desarrollo Agrario para donar dos inmuebles a la Asociación Campesina Limonense para el Desarrollo del cantón de Limón, para ser segregados en lotes a los actuales ocupantes de los asientos conocidos como Finca Júpiter y Siberia, 1 y 2, en el cantón central en la provincia de Limón.
-72) Expediente 15.459. Autorización al Instituto de Desarrollo Agrario para traspasar un terreno de su propiedad a la Asociación de Desarrollo Integral de San Rafael de Ojo de Agua de Alajuela y la celebración de convenios.
+71) Expediente 15.017. Autorización al Instituto de Desarrollo Rural(*) para donar dos inmuebles a la Asociación Campesina Limonense para el Desarrollo del cantón de Limón, para ser segregados en lotes a los actuales ocupantes de los asientos conocidos como Finca Júpiter y Siberia, 1 y 2, en el cantón central en la provincia de Limón.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+72) Expediente 15.459. Autorización al Instituto de Desarrollo Rural(*) para traspasar un terreno de su propiedad a la Asociación de Desarrollo Integral de San Rafael de Ojo de Agua de Alajuela y la celebración de convenios.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
