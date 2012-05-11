@@ -25,3 +25,4 @@ Reglamento de Prestación de Servicios al Abonado
 | 10 | 2005-02-22 | Reglamento 7 (2005-02-22) |
 | 11 | 2006-05-23 | Reglamento 28 (2006-05-23) |
 | 12 | 2010-03-02 | Reglamento 20 (2010-03-02) |
+| 13 | 2012-05-11 | Ley 9036 |
