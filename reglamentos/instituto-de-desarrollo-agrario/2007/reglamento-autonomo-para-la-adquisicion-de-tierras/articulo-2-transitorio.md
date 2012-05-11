@@ -1,1 +1,0 @@
-Transitorio II—En relación al informe técnico señalado en el artículo 36 del presente reglamento, por esta única vez se autoriza a la Dirección de Formación y Desarrollo de Asentamientos, para que remita el mismo a conocimiento y aprobación de Junta Directiva, en los primeros diez días del mes de octubre del 2007.
