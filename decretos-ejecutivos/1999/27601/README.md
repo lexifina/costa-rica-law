@@ -14,3 +14,4 @@ Reglamento a la Ley de Impuesto sobre Bienes Inmuebles.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-27 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
