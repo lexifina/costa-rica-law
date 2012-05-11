@@ -14,3 +14,4 @@ Exceptúa al Instituto de Desarrollo Rural de la aplicación de la Directriz Pre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-08 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
