@@ -16,3 +16,4 @@ Reglamento Ley de Igualdad de Oportunidades para Personas con Discapacidad
 | 1 | 1998-04-20 | la propia norma |
 | 2 | 2009-07-13 | Decreto Ejecutivo 35479 (2009-07-13) |
 | 3 | 2011-02-02 | Decreto Ejecutivo 36462 (2011-02-02) |
+| 4 | 2012-05-11 | Decreto Ejecutivo 37266 (2012-05-11) |
