@@ -14,3 +14,4 @@ Inscripción Terrenos Refugio Nacional Vida Silvestre Caño Negro al INDER
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-06-01 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
