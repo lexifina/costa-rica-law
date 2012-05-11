@@ -11,7 +11,8 @@ Defensoría de los Habitantes: Defensoría.
 Departamento de Aguas del MINAE: Dpto. de Aguas.
 Directriz técnica- Disposición emanada de AYA en lo relativo al diseño, construcción, operación, mantenimiento y administración de los sistemas de Acueductos y Alcantarillados sanitario y pluvial y de obligatorio cumplimiento.
 Instituto Costarricense de Acueductos y Alcantarillados; AYA
-Instituto de Desarrollo Agrario. IDA.
+(*)Instituto de Desarrollo Rural. INDER.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Instituto de Fomento y Asesoría Municipal. IFAM.
 Instituto Nacional de Vivienda y Urbanismo : INVU.
 Laboratorio Nacional de Aguas: Laboratorio.

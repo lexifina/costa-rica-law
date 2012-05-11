@@ -14,3 +14,4 @@ Reglamento de Normas Técnicas y Procedimientos para el Mantenimiento Preventivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-13 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
