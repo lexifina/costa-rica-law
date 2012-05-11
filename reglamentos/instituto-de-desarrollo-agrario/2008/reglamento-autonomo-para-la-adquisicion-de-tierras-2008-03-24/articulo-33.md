@@ -1,2 +1,0 @@
-Artículo 33.—La Dirección Formación y Desarrollo de Asentamientos preparará un resumen de los informes de comprobación de área y de recepción del inmueble, a fin de presentarlo ante la Dirección Administrativo Financiera, para que por medio del Departamento Financiero y el Área de Tesorería realice los cálculos respectivos para efectuar la devolución del monto retenido, si así corresponde.
-El Área de Tesorería enviará copias de los documentos de emisión de cheque de pago de la retención, y del cheque a la Secretaría de la Comisión para que consten en el expediente.

@@ -1,2 +1,0 @@
-Artículo 43.—Dicha intermediación se llevará a cabo mediante comparecencias que serán convocadas por parte de la Presidencia Ejecutiva del Instituto y tendrán como finalidad procurar un acuerdo de compra y venta entre las partes en las condiciones que indica el artículo 106 de la Ley de Tierras y Colonización. De las comparecencias indicadas se levantará la respectiva acta que formará parte del expediente administrativo correspondiente.
-(Así corrida su numeración mediante sesión N° 021, del 21 de julio del 2008 que lo traspaso del antiguo artículo 38 al 43 actual)

@@ -1,1 +1,0 @@
-Transitorio I.—En razón de la implementación de la presente reglamentación el Instituto realizará la primer publicación referida en el numeral 6 de este cuerpo normativo a más tardar en el primer semestre del año dos mil ocho o en su defecto una vez que se cuente con la debida disposición presupuestaria.

@@ -1,2 +1,0 @@
-Artículo 45.—Previo a determinar la compra por parte del Instituto, de un terreno en dónde exista un conflicto de ocupación precaria, este deberá realizar los Estudios de Selección necesarios para determinar que el 100% de los ocupantes en precario califican como elegibles de los programas de dotación de tierras. En caso de que alguno de los ocupantes no califique, no se tramitará la compra.
-(Así corrida su numeración mediante sesión N° 021, del 21 de julio de 2008,. que lo traspaso del antiguo artículo 40 al 45 actual)

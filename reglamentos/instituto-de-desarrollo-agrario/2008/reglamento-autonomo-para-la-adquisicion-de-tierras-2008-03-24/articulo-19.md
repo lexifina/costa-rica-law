@@ -1,1 +1,0 @@
-Artículo 19.—El acta de la Comisión y el expediente administrativo original se remitirán a la Presidencia Ejecutiva, para que esta dentro de quinto día, mediante un oficio de traslado, eleve al conocimiento de la Junta Directiva el supra citado informe para su estudio y aprobación correspondiente.
