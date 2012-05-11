@@ -17,3 +17,4 @@ Reglamento autónomo para la Adquisición de Tierras
 | 2 | 2008-07-21 | Reglamento 21 (2008-07-21) |
 | 3 | 2010-06-21 | Reglamento 0 (2010-06-21) |
 | 4 | 2010-09-13 | Reglamento 29 (2010-09-13) |
+| 5 | 2012-05-11 | Ley 9036 |
