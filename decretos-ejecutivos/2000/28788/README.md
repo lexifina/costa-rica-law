@@ -15,3 +15,4 @@ Asigna al INDER bienes inmuebles que pertenecían al Banco Anglo
 | --- | --- | --- |
 | 1 | 2000-07-26 | la propia norma |
 | 2 | 2000-07-26 | Ley 8 |
+| 3 | 2012-05-11 | Ley 9036 |
