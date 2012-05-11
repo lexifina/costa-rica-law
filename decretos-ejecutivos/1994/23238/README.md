@@ -14,3 +14,4 @@ Declara de interés histórico-arquitectónico, la antigua casona de la Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-18 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

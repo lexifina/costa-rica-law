@@ -7,7 +7,9 @@ Considerando:
 2°-Que es una edificación construida a inicios de la década de 1950 en concreto armado y madera.
 3°-Que fue casa de habitación de don Fernando Cruz quien estableció la Hacienda Bahía dedicada a la ganadería.
 4°-Que el nombre de la Hacienda Bahía luego se extendió a todo el distrito del cantón de Osa.
-5°-Que posteriormente pasó a manos de ALCOA, y hoy día es un asentamiento del IDA.
+5°-Que posteriormente pasó a manos de ALCOA, y hoy día es un asentamiento del INDER(*).
+(*) (Así modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 6°-Que es deber del estado salvaguardar el patrimonio cultural del país. Por tanto,
 Decretan:
-Artículo 1°-Declarar de interés histórico-arquitectónico, la antigua casona de la Hacienda Bahía, ubicada en el distrito de Bahía, cantón de Osa de la provincia de Puntarenas y perteneciente al Instituto de Desarrollo Agrario.
+Artículo 1°-Declarar de interés histórico-arquitectónico, la antigua casona de la Hacienda Bahía, ubicada en el distrito de Bahía, cantón de Osa de la provincia de Puntarenas y perteneciente al Instituto de Desarrollo Rural(*).
+(*) (Así modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
