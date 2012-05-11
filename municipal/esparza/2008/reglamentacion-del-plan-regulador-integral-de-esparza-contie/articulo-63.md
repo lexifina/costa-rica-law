@@ -1,5 +1,6 @@
 Artículo 63.—Zona residencial 1 Villa Nueva (Z.R.1.V.N).
-63.1 Propósitos. Es una Zona Residencial en Consolidación. Es una zona residencial en posesión otorgada por el Instituto de Desarrollo Agrario y se propone descongelar y otorgarla a los ocupantes en propiedad privada. Es una zona residencial de media densidad y no se podrá fraccionar.
+63.1 Propósitos. Es una Zona Residencial en Consolidación. Es una zona residencial en posesión otorgada por el Instituto de Desarrollo Rural(*) y se propone descongelar y otorgarla a los ocupantes en propiedad privada. Es una zona residencial de media densidad y no se podrá fraccionar.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 63.2 Usos permitidos: Residencial, agrícola, comercial y de servicio locales.
 63.3 Usos condicionales: Pequeña industria y pecuario.
 63.4 Usos no permitidos: Industrial.

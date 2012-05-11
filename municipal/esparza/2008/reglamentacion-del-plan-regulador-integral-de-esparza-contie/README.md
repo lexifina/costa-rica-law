@@ -14,3 +14,4 @@ Reglamentación del Plan Regulador Integral de Esparza (Contiene Reglamento de Z
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-14 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |

@@ -1,5 +1,6 @@
 Artículo 66.—Zona residencial 2 Cambalache (Z.R.2.C).
-66.1 Propósito: Es una zona residencial que a los ocupantes el Instituto de Desarrollo Agrario (IDA) les cedió dentro del Zona Protectora Tivives, administrada por el MINAE.
+66.1 Propósito: Es una zona residencial que a los ocupantes el Instituto de Desarrollo Rural (INDER(*)) les cedió dentro del Zona Protectora Tivives, administrada por el MINAE.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 66.2 Usos permitidos: Residencial, comercial, agrícola y de servicios Locales.
 66.3 Usos condicionales: Industrial, pecuario
 66.4 Usos no permitidos: Industrial.

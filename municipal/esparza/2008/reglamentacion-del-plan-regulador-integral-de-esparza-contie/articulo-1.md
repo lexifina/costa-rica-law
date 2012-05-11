@@ -341,7 +341,8 @@ IAP: Impacto Ambiental Potencial
 ICAA: Instituto Acueductos y Alcantarillados
 ICE: Instituto Costarricense de Electricidad
 ICT: Instituto Costarricense de Turismo
-IDA: Instituto de Desarrollo Agrario
+INDER(*): Instituto de Desarrollo Rural(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 IDS: Índice de Desarrollo Social
 IGN: Instituto Geográfico Nacional
 INCOOP: Instituto Cooperativo de Puertos del Pacífico
