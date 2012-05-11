@@ -27,7 +27,8 @@ y Alcantarillados 12,165.0 15,923.9 20,129.9 24,341.0
 Instituto Costarricense de Puertos
 del Pacífico 2,064.0 2,711.0 3,357.9 4,217.8
 Instituto Costarricense de Turismo 1,592.2 2,142.9 2,648.4 3,167.0
-Instituto de Desarrollo Agrario 2,416.3 3,381.7 4,843.1 7,079.5
+Instituto de Desarrollo Rural(*) 2,416.3 3,381.7 4,843.1 7,079.5
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Instituto Nacional de Vivienda
 y Urbanismo 3,182.5 4,226.4 5,262.4 6,280.4
 JAPDEVA 5,454.7 8,825.7 12,106.8 15,996.3

@@ -15,3 +15,4 @@ Reforma a las Directrices Política Presupuestaria 2001 Ministerios y EntidadesP
 | --- | --- | --- |
 | 1 | 2001-05-23 | la propia norma |
 | 2 | 2001-09-24 | Decreto Ejecutivo 29867 (2001-09-24) |
+| 3 | 2012-05-11 | Ley 9036 |
