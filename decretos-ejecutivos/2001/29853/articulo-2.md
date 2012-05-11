@@ -1,1 +1,2 @@
-Artículo 2°—Adiciónase a las exclusiones indicadas en el artículo N° 2 inciso b) del Decreto Ejecutivo Nº 29511-H del Instituto de Desarrollo Agrario la Transferencia a SENARA.
+Artículo 2°—Adiciónase a las exclusiones indicadas en el artículo N° 2 inciso b) del Decreto Ejecutivo Nº 29511-H del Instituto de Desarrollo Rural(*) la Transferencia a SENARA.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

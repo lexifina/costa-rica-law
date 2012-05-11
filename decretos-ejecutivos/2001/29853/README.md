@@ -15,3 +15,4 @@ Modifica los límites de gasto establecidos para el año 2002, del Instituto de 
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
 | 2 | 2002-04-04 | Decreto Ejecutivo 30284 (2002-04-04) |
+| 3 | 2012-05-11 | Ley 9036 |
