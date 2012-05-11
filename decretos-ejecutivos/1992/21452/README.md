@@ -14,3 +14,4 @@ Disposiciones sobre plazas vacantes de guardas-reservas indígenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-08-14 | la propia norma |
+| 2 | 2012-05-11 | Ley 9036 |
