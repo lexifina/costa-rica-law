@@ -26,7 +26,8 @@ Expediente N° 15.645. Autorización al Estado para que done un Terreno de su Pr
 Expediente N° 15.361. Tratado Internacional Sobre los Recursos Fitogenéticos para la Alimentación y la Agricultura.
 Expediente N° 15.743. Aprobación de la Convención de las Naciones Unidas contra la Corrupción.
 Expediente N° 14.745. Ley de Autorización a la Municipalidad de Pérez Zeledón para Donar un Terreno de su Propiedad al Ministerio de Ambiente y Energía.
-Expediente N° 14.811. Ley que Autoriza a la Municipalidad de Pérez Zeledón a Donar Fincas al Instituto de Desarrollo Agrario para Desarrolla el Plan de Titulación del Caserío San Francisco de Asís de Daniel Flores de Pérez Zeledón.
+Expediente N° 14.811. Ley que Autoriza a la Municipalidad de Pérez Zeledón a Donar Fincas al Instituto de Desarrollo Rural(*) para Desarrolla el Plan de Titulación del Caserío San Francisco de Asís de Daniel Flores de Pérez Zeledón.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Expediente N° 15.883. Autorización al Estado Costarricense para que Segregue y Done un Terreno de su Propiedad al Centro Agrícola Cantonal de Sarapiquí.
 Expediente N° 15.608. Autorización a la Municipalidad del Cantón Central de Heredia para que Desafecte del Uso Público de Terreno de su Propiedad y lo Done al Ministerio de Salud, a fin de que se Construya el Centro de Nutrición, Urbanización Casa Blanca de Ulloa, Distrito de Ulloa.
 Expediente N° 15.928. Integración del Título IV - Régimen Artístico al Estatuto de Servicio Civil, Ley de la República N° 1581, de 30 de mayo de 1953.
