@@ -14,3 +14,4 @@ Reglamento de "La Gaceta"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-16 | la propia norma |
+| 2 | 2012-05-14 | Decreto Ejecutivo 37159 (2012-05-14) |

@@ -1,0 +1,2 @@
+Artículo 21.—Documentos digitales. Todos los requisitos formales y técnicos del formato, recepción, procesamiento, custodia y conservación de los documentos digitales a publicar, se realizará de acuerdo a los manuales de procedimientos internos, directrices, circulares y especificaciones técnicas emanadas de las áreas responsables, a través de la Dirección de la Imprenta Nacional.
+(Así adicionado por el artículo 1° del decreto eejcutivo N° 37159 del 14 de mayo de 2012)
