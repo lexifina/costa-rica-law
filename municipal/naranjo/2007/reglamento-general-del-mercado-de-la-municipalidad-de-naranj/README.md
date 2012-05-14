@@ -14,3 +14,4 @@ Reglamento General del Mercado de la Municipalidad de Naranjo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-14 | la propia norma |
+| 2 | 2012-05-14 | Reglamento municipal 20 (2012-05-14) |
