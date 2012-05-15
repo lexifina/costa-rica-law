@@ -1158,11 +1158,13 @@ CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipo y materia gerencial.
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Formación profesional a nivel de licenciatura o superior en una carrera universitaria atinente a su área de actividad.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de tres años en labores relacionadas con el cargo a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de cinco años en labores relacionadas con el área de actividad, a nivel de licenciatura.
-Requisito legal:
-Incorporación al colegio respectivo.
+ Formación profesional a nivel de licenciatura o superior en carrera universitaria atinente con su área de actividad.
+ Experiencia mínima de dieciocho meses en el manejo y supervisión de personal.
+ Experiencia mínima de seis años en labores relacionadas con el cargo a nivel de licenciatura desarrolladas en la Asamblea Legislativa.
+O:
+ Experiencia mínima de diez años en labores relacionadas con el área de actividad a nivel de licenciatura.
+Requisito Legal: Incorporación al colegio profesional respectivo a nivel de licenciatura.
+(Así reformado el aparte anterior "Conocimientos y expreriencia requerida) por acuerdo Nº 05-12-13 de la sesión N° 117-2012 del 15 de mayo del 2012)
 PROFESIONAL JEFE 2 (Niveles A y B)
 Objetivo del trabajo:
 Comprometerse con el eficiente desarrollo de los objetivos departamentales, la misión institucional y, por ende, su gestión sustantiva, mediante el desarrollo eficiente de los procesos de trabajo de las diferentes áreas por razón de la ejecución de labores de planeación, dirección, supervisión y evaluación, orientadas a la coordinación de una área administrativa o legislativa de la Asamblea Legislativa. Caracteriza a los puestos con esta clasificación la necesidad de una participación más estrecha con la dirección del departamento, bien sea por su estructura organizacional (Divisiones o Dirección Ejecutiva) o por la ausencia del cargo de subdirector de departamento.
@@ -1205,11 +1207,13 @@ Los relacionados con la utilización de los equipos y los programas que para la 
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipos y materia gerencial.
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Nivel A
-Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de cuatro años en labores relacionadas con el cargo a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de seis años en labores relacionadas con el área de actividad, a nivel de licenciatura.
-Requisito legal:
-Incorporación al colegio respectivo.
+ Formación profesional a nivel de licenciatura o superior en una carrera universitaria atinente con su área de actividad.
+ Experiencia mínima de dieciocho meses en el manejo y supervisión de personal.
+ Experiencia mínima de ocho años en labores relacionadas con el cargo a nivel de licenciatura desarrolladas en la Asamblea Legislativa.
+Ó
+ Experiencia mínima de diez años en labores relacionadas con el área de actividad a nivel de licenciatura.
+Requisito Legal: Incorporación al colegio profesional respectivo a nivel de licenciatura
+(Así reformado el aparte anterior "Conocimiento y experiencia requerida Nivel A",por Nº 05-12-13 de la sesión N° 117-2012 del 15 de mayo del 2012)
 Nivel B
 Nivel de clase transitorio con objetivo específico (ver el detalle en la descripción de la clase).
 Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.

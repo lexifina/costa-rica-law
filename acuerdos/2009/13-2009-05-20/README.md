@@ -16,3 +16,4 @@ Manual descriptivo de clases de puestos de la Asamblea Legislativa
 | 1 | 2009-07-29 | la propia norma |
 | 2 | 2009-10-28 | Acuerdo 59 (2009-10-28) |
 | 3 | 2011-10-13 | Acuerdo 32 (2011-10-13) |
+| 4 | 2012-05-15 | Acuerdo 5 (2012-05-15) |
