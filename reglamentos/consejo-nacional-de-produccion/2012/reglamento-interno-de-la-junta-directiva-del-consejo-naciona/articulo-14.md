@@ -1,0 +1,1 @@
+Artículo 14—El quórum de las sesiones se formará con seis directores. El Gerente General o en su defecto, el Subgerente General deberá asistir a las sesiones de la Junta Directiva. El Auditor (a) y el Director (a) de Asuntos Jurídicos, así como el resto del personal, asistirán a estas sesiones cuando fueren convocados, todos ellos con voz pero no voto.

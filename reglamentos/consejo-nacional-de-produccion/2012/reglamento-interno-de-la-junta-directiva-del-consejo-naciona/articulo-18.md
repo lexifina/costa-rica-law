@@ -1,0 +1,1 @@
+Artículo 18.—La Junta Administrativa remitirá a la Junta Directiva la recomendación específica para el trámite y resolución de cada uno de los asuntos analizados, con sustento en los dictámenes técnicos y legales que cada caso requiera, para agilizar el trámite de lo que los señores Directores deban conocer.

@@ -1,0 +1,2 @@
+Artículo 20.—Todos los acuerdos de la Junta Administrativa se tomarán por mayoría simple.
+De las sesiones se levantará un acta que consignará el análisis de los casos y las consideraciones tomadas en cuenta para la recomendación final. En los casos en los que el acuerdo tomado no sea unánime, se deberá consignar en la recomendación que se formule a la Junta Directiva, el razonamiento del voto disidente.

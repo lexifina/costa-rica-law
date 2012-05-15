@@ -1,0 +1,2 @@
+Artículo 23.—El miembro con motivo de abstención se separará del conocimiento del asunto, haciéndolo constar ante la Junta Directiva, y para efectos de que no se rompa el quórum de la respectiva sesión, bastará con que el miembro afectado se abstenga de emitir su criterio y su voto.
+La abstención será resuelta por los restantes miembros, de lo contrario resolverá el Presidente de la República. Una vez declarada con lugar la abstención conocerá del asunto el mismo órgano colegiado.

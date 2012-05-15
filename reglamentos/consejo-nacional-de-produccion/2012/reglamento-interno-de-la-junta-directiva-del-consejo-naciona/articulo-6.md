@@ -1,0 +1,1 @@
+Artículo 6º—Todos los asuntos de agenda deberán ser formuladas con al menos cuatro días naturales de antelación a la sesión respectiva con la finalidad de que los documentos sean remitidos a los demás directivos con al menos tres días naturales previos a la sesión respectiva.
