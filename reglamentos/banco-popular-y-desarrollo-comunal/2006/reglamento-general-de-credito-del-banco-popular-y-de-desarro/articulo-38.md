@@ -1,1 +1,0 @@
-Artículo 38.—La Junta Directiva definirá los mecanismos de control, con el propósito de asegurarse que los créditos se otorguen de conformidad con la política, normativa y mejores técnicas bancarias vigentes.

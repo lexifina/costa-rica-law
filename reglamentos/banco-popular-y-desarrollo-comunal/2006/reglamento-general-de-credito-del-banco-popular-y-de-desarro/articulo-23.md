@@ -1,3 +1,0 @@
-Artículo 23.—Para deudores del Grupo 1 aplican las normas que para tales efectos haya emitido la SUGEF.
-Para las personas físicas deudoras pertenecientes al Grupo 2, la Gerencia General Corporativa establecerá la capacidad de pago del solicitante, hasta en un máximo del 80% de su ingreso personal, para lo que tomará en cuenta el ingreso de su núcleo familiar, considerando para ello al menos los parámetros que establezca la SUGEF, teniendo presente que estos deben permitir conocer la capacidad atender las deudas en forma razonable.
-(Así reformado mediante sesión N° 4529 del 5 de noviembre de 2007).

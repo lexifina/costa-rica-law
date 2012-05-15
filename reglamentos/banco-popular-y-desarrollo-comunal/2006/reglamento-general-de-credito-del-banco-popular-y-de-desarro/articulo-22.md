@@ -1,1 +1,0 @@
-Artículo 22.—Queda autorizada la Gerencia General Corporativa para establecer plazos y montos máximos diferenciados para líneas de crédito y planes de inversión, dentro de una misma línea de crédito, siempre y cuando se mantenga el principio de igualdad en cada uno de los estratos definidos y no se sobrepasen los topes establecidos por este Reglamento.

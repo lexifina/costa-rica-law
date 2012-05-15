@@ -1,1 +1,0 @@
-Artículo 31.—En aquellos créditos donde por su naturaleza sea necesario girar por partidas, los desembolsos se harán previo informe del perito o funcionario designado por el Banco para ejecutar la supervisión.

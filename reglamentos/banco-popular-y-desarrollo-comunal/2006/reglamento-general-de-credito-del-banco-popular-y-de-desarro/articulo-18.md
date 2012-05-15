@@ -1,1 +1,0 @@
-Artículo 18.—Toda modificación que se realice en el diferencial entre tasas de interés deberá ser informada a la Junta Directiva Nacional dentro de los cinco días hábiles posteriores a la toma de decisión.

@@ -1,4 +1,0 @@
-GARANTÍAS
-Artículo 5º—Todos los créditos deberán ser respaldados con garantías personales o reales de conformidad con lo indicado en la Tabla Nº 1 de este Reglamento.
-Podrán excepcionarse de estas disposiciones las instituciones públicas que cuenten con contenido presupuestario debidamente autorizado por la Contraloría General de la República, las cuales en su lugar deberán cumplir con la normativa que les sea aplicable en esta materia.
-Así como aquellos productos de crédito en los cuales se dan circunstancias como el comportamiento de la competencia, el interés institucional o las condiciones del solicitante, tales como deducción por planilla, mecanismos de retención de la cuota, estabilidad laboral, historial crediticio aceptable, u otras razones, así lo hagan conveniente a criterio técnicamente justificado y por escrito de la Gerencia General Corporativa.
