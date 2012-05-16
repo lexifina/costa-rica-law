@@ -15,3 +15,4 @@ Reglamento de Régimen de Disponibilidad en el Tribunal Supremo de Elecciones
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
 | 2 | 2009-08-20 | Reglamento 12 (2009-08-20) |
+| 3 | 2012-05-16 | Decreto TSE 6 (2012-05-16) |
