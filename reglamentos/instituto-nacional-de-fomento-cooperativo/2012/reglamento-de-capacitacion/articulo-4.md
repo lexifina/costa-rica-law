@@ -1,0 +1,1 @@
+Artículo 4º—Todo funcionario del INFOCOOP, cualquiera que sea su posición será responsable de velar por su propio mejoramiento y mostrar iniciativas e interés en el desarrollo de sus capacidades, aprovechando el adiestramiento que le brinda la Institución directamente o por medio de otros organismos.

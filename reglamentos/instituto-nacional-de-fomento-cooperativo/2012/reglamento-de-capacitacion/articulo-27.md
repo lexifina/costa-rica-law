@@ -1,0 +1,6 @@
+Artículo 27.—El INFOCOOP podrá financiar becas de estudio en Centros de Educación Superior, para profesionalización del personal interesado en continuar una carrera especifica de interés para la institución, tomando en consideración la recomendación que al respecto emita la Oficina de Personal.
+Se considera para los efectos del presente artículo como Centros de Educación Superior a las Universidades y al Instituto Tecnológico de Costa Rica, aprobados como tales según la legislación que rige la materia.
+Ayuda Económica que el INFOCOOP podrá dar será la siguiente:
+• A los empleados que estudien en Centros de Educación Superior financiados por el Estado, se les ayudará en un 75% del valor total de los créditos solicitados, presentando para ello las constancias correspondientes.
+• A los empleados que estudian en la Universidad Autónoma de Centro América, u otra Universidad Privada creada según la legislación vigente se les ayudará con un 50% del valor total de los créditos o unidades académicas solicitadas, presentando para ello las constancias pertinentes.
+• A los empleados que sigan o deseen seguir programas de post-grado en Universidades Privadas o Públicas, la ayuda que se les dará la establecerá la Junta Directiva.

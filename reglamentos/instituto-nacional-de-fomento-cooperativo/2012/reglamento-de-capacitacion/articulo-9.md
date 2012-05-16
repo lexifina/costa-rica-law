@@ -1,0 +1,1 @@
+Artículo 9º—Los desembolsos generados por actividades de capacitación a personal, de conformidad con los programas anuales de capacitación; cuyo costo sea superior a ¢20.000 (veinte mil colones), serán aprobados por la Dirección Ejecutiva.

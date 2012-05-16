@@ -1,0 +1,1 @@
+Artículo 21.—Aquellos casos que se consideren especiales, en relación a lo estipulado en el artículo 20 del presente Reglamento y de acuerdo a las necesidades del INFOCOOP, serán resueltos por la Junta Directiva.

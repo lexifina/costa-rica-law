@@ -1,0 +1,1 @@
+Artículo 31.—El INFOCOOP podrá cesar el financiamiento y facilidades concedidos, cuando la conducta del empleado no sea satisfactoria, de acuerdo con la calificación de servicios, o haya faltado al cumplimiento de cualquiera de las obligaciones establecidas en este Reglamento.

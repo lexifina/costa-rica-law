@@ -1,0 +1,1 @@
+Artículo 30.—Todo trabajador que disfrute de una beca en el país o en el exterior y abandone sus estudios o no los apruebe, deberá restituir al INFOCOOP las erogaciones que la Institución hubiera realizado según el respectivo contrato de estudio, si a juicio de la Oficina de Personal hubiere existido negligencia de parte del becado.

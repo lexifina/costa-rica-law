@@ -1,0 +1,1 @@
+Artículo 8º—La Oficina de Personal de conformidad con los programas anuales de capacitación, elaborados en coordinación con cada Jefe de Departamento o Unidad, aprobará directamente aquellas actividades de capacitación cuyo costo sea igual o menor a ¢20.000 (veinte mil colones 00/100) y lo comunicará con carácter informativo a la Dirección Ejecutiva.

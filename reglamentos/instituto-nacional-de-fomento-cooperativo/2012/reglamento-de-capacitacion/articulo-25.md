@@ -1,0 +1,1 @@
+Artículo 25.—Cuando el disfrute de dichas becas se haga en época de invierno y en países que así lo demanden, en los cuales haya necesidad de comprar ropas especiales, INFOCOOP dará un aporte un aporte económico adicional a sus funcionarios, para ayudarles a cubrir esos gastos.

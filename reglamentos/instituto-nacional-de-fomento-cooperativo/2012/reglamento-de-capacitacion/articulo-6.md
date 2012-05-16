@@ -1,0 +1,1 @@
+Artículo 6º—La Dirección Ejecutiva brindará a la Oficina de Personal el apoyo que requiera y le procurara cuando las posibilidades lo permitan, el recurso humano, el presupuesto económico, las instalaciones, equipo y facilidades necesarias para el desarrollo de sus actividades de capacitación.

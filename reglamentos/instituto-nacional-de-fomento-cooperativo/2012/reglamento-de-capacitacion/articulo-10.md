@@ -1,0 +1,2 @@
+Artículo 10.—Cuando se ofrecen becas cuya duración sea mayor a quince días hábiles, la Dirección Ejecutiva deberá presentar ante a Junta Directiva, el o los candidatos escogidos a efectos de esta pueda otorgar los permisos correspondientes a los funcionarios beneficiarios.
+Si el ofrecimiento de becas tiene una duración de quince días hábiles o menor, el permiso correspondiente lo puede otorgar la Dirección Ejecutiva.

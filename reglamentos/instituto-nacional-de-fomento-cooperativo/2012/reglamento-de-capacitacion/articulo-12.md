@@ -1,0 +1,1 @@
+Artículo 12.—Toda la solicitud para participar en actividades de estudio o de capacitación en el país o en el exterior, se deberá canalizar a través de la Oficina de Personal, la que resolverá o tramitará directamente, según lo estipulado en los artículos 8 y 11 del presente Reglamento, o la elevará a la Dirección Ejecutiva o la Junta de Directiva según corresponda.

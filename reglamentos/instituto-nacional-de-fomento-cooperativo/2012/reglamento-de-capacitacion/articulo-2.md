@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las disposiciones generales
+Artículo 2º—Con el propósito de mejorar la eficiencia de los servicios que presta el INFOCOOP, conforme a las funciones que señala la Ley, la Institución formara y dará las facilidades necesarias a sus trabajadores, para que participen en diversas actividades de estudio o de capacitación en el país o en el exterior, para lo cual les otorgara becas u otros beneficios que les permitan realizar tales actividades. A ese efecto, cuando las posibilidades lo permitan el INFOCOOP creará dentro de su estructura una Sección de Capacitación, la cual dependerá de la Oficina de Personal.

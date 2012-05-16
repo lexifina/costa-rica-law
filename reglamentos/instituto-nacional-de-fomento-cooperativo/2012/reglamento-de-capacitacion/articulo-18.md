@@ -1,0 +1,1 @@
+Artículo 18.—En casos muy calificados y a juicio de la Junta Directiva, el disfrute de licencias para becas podrá ser por un periodo mayor de un año en forma consecutiva o fraccionada, con goce de sueldo total, parcial o sin goce de sueldo, con base en la recomendación de la Oficina de Personal y en la naturaleza y condiciones de la beca.

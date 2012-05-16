@@ -1,0 +1,2 @@
+Artículo 16.—El interesado que no quede satisfecho con la resolución de la Dirección Ejecutiva, podrá apelar de la misma ante la Junta Directiva, de acuerdo a lo dispuesto en el artículo 162, inciso 1) de la Ley de Creación de INFOCOOP, para lo cual contará con un término de tres días hábiles a partir del momento en que sea notificación personalmente.
+La Junta conocerá y resolverá si procede, la apelación en la primera sesión que se efectúe después de planteada la misma.

@@ -1,0 +1,2 @@
+Artículo 14.—La escogencia de candidato o candidatas será hecha por una Comisión de Becas, que estará formada por dos representaciones personales nombrados por la Dirección Ejecutiva y dos representantes de los trabajadores nombrados por la Sección ANEP.
+Esta Comisión conocerá de las ofertas de becas que se designen o notifiquen al Instituto, cuya duración sea de quince días naturales o mayor, en caso de empate, el asunto será resuelto por sorteo.
