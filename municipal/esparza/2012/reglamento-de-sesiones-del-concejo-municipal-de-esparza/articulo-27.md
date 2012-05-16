@@ -1,0 +1,1 @@
+Artículo 27.—En sesiones ordinarias y extraordinarias el Concejo podrá recibir en audiencia a quienes así lo soliciten por escrito dos días antes de celebrarse la sesión. Las audiencias en sesiones ordinarias podrán atenderse en la primera y tercera semana de cada mes.

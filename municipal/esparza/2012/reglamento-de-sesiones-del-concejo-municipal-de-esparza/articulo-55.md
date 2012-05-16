@@ -1,0 +1,1 @@
+Artículo 55.—El máximo de expositores será de dos personas sobre un mismo asunto y por un lapso de quince minutos, sin embargo, cuando situaciones de emergencia así lo requieran, el Presidente concederá el uso de la palabra de acuerdo a su criterio y de conformidad con la complejidad del asunto de que se trate.

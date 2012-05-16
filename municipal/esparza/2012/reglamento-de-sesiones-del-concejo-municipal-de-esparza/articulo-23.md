@@ -1,0 +1,1 @@
+Artículo 23.—El Presidente calificará los asuntos de trámite urgente para incluirlos en el orden del día. Iniciada la sesión podrán incluirse otros asuntos de trámite urgente por iniciativa de cualquier Regidor siempre y cuando exista acuerdo de dos terceras partes de los miembros presentes.

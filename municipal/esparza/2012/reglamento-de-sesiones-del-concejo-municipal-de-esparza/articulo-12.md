@@ -1,0 +1,1 @@
+Artículo 12.—Las sesiones extraordinarias deberán celebrarse en el lugar, día y la hora que se indique en la convocatoria. Solo podrán conocerse los asuntos incluidos en la agenda, previamente establecidos. Sin embargo, se podrán incluir otros asuntos, siempre y cuando medie aprobación unánime del Concejo mediante moción de orden debidamente presentada.

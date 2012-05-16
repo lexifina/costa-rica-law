@@ -1,0 +1,1 @@
+Artículo 2º—En adelante cuando se utilice la palabra “Concejo”, deberá entenderse referida al Concejo Municipal, cuando se utilice la palabra “Secretaría”, se entenderá, la Secretaría del Concejo y cuando se utilice la palabra “Presidencia”, debe interpretarse referida a la Presidencia del Concejo.

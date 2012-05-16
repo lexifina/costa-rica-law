@@ -1,0 +1,1 @@
+Artículo 28.—Cuando existan dos o mas solicitudes de audiencias en una misma sesión ordinaria, el Concejo podrá acordar atenderlas en una sesión extraordinaria programada para tal fin. Lo anterior con la excepción de casos calificados o de suma urgencia.

@@ -1,0 +1,1 @@
+Artículo 68.—El Vicealcalde Primero sustituirá de pleno derecho al Alcalde en sus ausencias temporales y definitivas que le impidan asistir a las sesiones, según lo dispuesto en artículo 14 del Código Municipal. Salvo disposición en contrario.

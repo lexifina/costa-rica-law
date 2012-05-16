@@ -1,0 +1,1 @@
+Artículo 24.—Las mociones e iniciativas de los regidores, deberán ser presentadas por escrito y firmadas por al menos un regidor propietario ante la secretaría antes de iniciar la Sesión, salvo cuando se trate de mociones de orden las cuales se podrán presentar de viva voz. Las mociones se aprobarán por simple mayoría salvo que el Código Municipal ordene una votación diferente.

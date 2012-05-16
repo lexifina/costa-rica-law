@@ -1,0 +1,1 @@
+Artículo 36.—Las fracciones políticas a través de sus jefes de fracción podrán solicitar a la presidencia durante las sesiones del Concejo que se les concedan recesos los cuales podrán ser autorizados hasta por un máximo de 15 minutos, vencido ese plazo la presidencia reiniciará la sesión.
