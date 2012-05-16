@@ -1,0 +1,1 @@
+Artículo 6º—El INVU podrá otorgar y colocar créditos a clientes nuevos, según la categoría de riesgo que posea, tomando como referencia la clasificación de la SUGEF, con los recursos provenientes de la Ley N° 8448 o las políticas impuestas por la Junta Directiva.

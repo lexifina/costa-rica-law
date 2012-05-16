@@ -1,0 +1,1 @@
+Artículo 18.—Los créditos serán otorgados a un plazo fijado por Acuerdo de Junta Directiva, según la modalidad del crédito solicitado, modificables según las políticas crediticias que defina la misma Junta Directiva de la Institución, previa solicitud de la Gerencia General.

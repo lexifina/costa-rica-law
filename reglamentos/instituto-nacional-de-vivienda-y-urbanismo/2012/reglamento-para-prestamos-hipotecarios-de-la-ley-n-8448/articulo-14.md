@@ -1,0 +1,1 @@
+Artículo 14.—Si de la fiscalización contemplada en este Reglamento resultaren divergencias, el interesado podrá dirigirse por escrito a la Unidad de Crédito y en alzada a la instancia superior, subsidiariamente hasta llegar a la Junta Directiva, de conformidad con el artículo Nº 308 siguientes y concordantes de la Ley General de la Administración Pública.

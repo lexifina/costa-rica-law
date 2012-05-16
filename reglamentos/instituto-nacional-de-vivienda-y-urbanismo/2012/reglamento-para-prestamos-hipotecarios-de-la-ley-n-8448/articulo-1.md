@@ -1,0 +1,9 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+REGLAMENTO PARA PRÉSTAMOS
+HIPOTECARIOS DE LA LEY Nº 8448
+Artículo 1º—La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo otorgará, de los fondos provenientes de la Ley 8448 del 14 de junio de 2005, que es reforma al inciso k) del numeral 5° de la Ley Orgánica del INVU, N° 1788 de 24 de agosto de 1954, préstamos, destinados a soluciones habitacionales, así como todas las modalidades que actualmente estén reguladas tanto por la normativa interna como por el sistema jurídico costarricense ó bien que surjan en el tiempo de conformidad con la Ley y sus Reglamentos, según las siguientes condiciones:
+1. Para personas físicas: Ser empleados públicos o privados con más de un año de laborar para la empresa, si no son asalariados, con más de dos años de ejercer la actividad a la cual se dedican, así como personas pensionadas que cumplan con los requisitos del crédito y cuya edad no supere los 65 años.
+Para compra de una vivienda o lote, para compra de lote y construcción, para mejoras, construcción en terreno propio, y cancelaciones hipotecarias, adquisición de acciones de empresa propietaria con un único bien inmueble (vivienda) por una única vez, que se hayan originado por la adquisición de su vivienda, de conformidad con las políticas administrativas acordadas por la Junta Directiva para la línea de crédito específica.
+2. En caso de construcción en lote propio, el mismo deberá estar libre de gravámenes.
+3. El solicitante deberá poseer un ingreso mensual que tenga como referencia las disposiciones de la SUGEF o las políticas impuestas por la Junta Directiva.
+4. Persona Jurídica debida y legalmente constituida, inscrita ante el registro público, con sus obligaciones obrero patronales al día y constituida para finalidades de desarrollo inmobiliario.

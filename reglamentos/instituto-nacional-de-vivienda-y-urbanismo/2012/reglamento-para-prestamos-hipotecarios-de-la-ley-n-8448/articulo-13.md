@@ -1,0 +1,1 @@
+Artículo 13.—El Instituto fiscalizará los trabajos, y la inversión efectuada, pudiendo a su juicio suspender los pagos al prestatario si los materiales empleados no se ajustan a las especificaciones o la construcción no se realiza de acuerdo con los planos y presupuestos que sirvieron de base para el otorgamiento del crédito.

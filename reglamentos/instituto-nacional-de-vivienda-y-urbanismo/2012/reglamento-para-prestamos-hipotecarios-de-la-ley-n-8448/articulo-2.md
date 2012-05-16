@@ -1,0 +1,1 @@
+Artículo 2º—Para dar cumplimiento a lo establecido en el artículo anterior, se establece el Sistema de Crédito de la Ley Nº 8448 del INVU, el cual estará conformado por el Concejo Asesor de Crédito, la Comisión de Crédito y la Unidad de Crédito, los cuales desarrollarán sus actividades en apego a los numerales siguientes.

@@ -1,0 +1,3 @@
+Artículo 12.—En caso de crédito para construcción o mejoras, al momento de suscribir la escritura pública, el interesado recibirá en ese acto el primer desembolso, del total del préstamo; el resto conforme el avance de la obra, previo el informe del ingeniero fiscalizador.
+Deberá de presentarse la solicitud del giro de los recursos, debidamente refrendadas por el prestatario, el contratista, si lo hubiere, y el ingeniero fiscalizador que se designe por este Instituto para tales efectos.
+Para dar inicio a los trabajos, el Instituto podrá anticipar fondos a los prestatarios hasta por un veinte por ciento (20%) del valor de la construcción, o el valor de las mejoras, siempre que la suma no sea mayor del cincuenta por ciento (50%) del valor del lote.

@@ -1,0 +1,1 @@
+Artículo 20.—El crédito se formalizará ante el notario que designe el Instituto y contendrá todas las cláusulas que requieran. Este Reglamento se considerará incluido tácitamente en el contrato respectivo y aceptado por el prestatario, así como toda normativa concordante en la materia, según nuestro ordenamiento jurídico.

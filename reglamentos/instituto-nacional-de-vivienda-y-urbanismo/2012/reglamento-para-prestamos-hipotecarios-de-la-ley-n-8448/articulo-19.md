@@ -1,0 +1,2 @@
+Artículo 19.—Todos los gastos de tramitación de la solicitud, así como los que demanden la formalización del crédito, a saber gastos administrativos, los gastos legales, gastos de fiscalización de la obra, serán sufragados por el interesado, o financiados por la Institución y corresponderán al monto o porcentaje que se establezca por ley o decreto y en la política del crédito respectiva.
+Los avalúos como las reinspecciones en caso de ser necesarias, no se financiarán.

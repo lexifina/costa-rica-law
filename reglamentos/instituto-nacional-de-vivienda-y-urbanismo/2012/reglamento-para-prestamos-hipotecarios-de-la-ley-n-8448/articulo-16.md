@@ -1,0 +1,1 @@
+Artículo 16.—La Institución gozará de la potestad de inspeccionar las obras, mientras no se haya cancelado la garantía hipotecaria, y podrá exigir que se reparen los daños causados en las mismas, que no se deriven del deterioro normal por la acción del tiempo o por otros motivos.

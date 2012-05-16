@@ -1,0 +1,1 @@
+Artículo 22.—Las partidas destinadas a todos los tipos de préstamo, serán las que expresamente figuren en el Presupuesto, sin perjuicio de las modificaciones que la ley permita y las normas y disposiciones dadas por la Contraloría General de la República cuando esta proceda.

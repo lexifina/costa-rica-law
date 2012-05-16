@@ -1,0 +1,2 @@
+Artículo 17.—Queda prohibida la posposición hipotecaria de grado preferente a favor de otra entidad crediticia pública o privada.
+La autorización a los deudores para vender el bien en garantía, aceptar novación de deudor, o la ampliación del plazo, será condicionada a que el tipo de interés sea elevado hasta tres puntos porcentuales de la tasa más alta pactada, sin perjuicio de las políticas administrativas que al respecto dicte la Junta Directiva, previo al análisis que efectuará el Proceso de Crédito.
