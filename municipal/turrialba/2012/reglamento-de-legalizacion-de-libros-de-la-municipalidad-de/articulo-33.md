@@ -1,0 +1,11 @@
+Artículo 33.—Manejo de actas. Las actas de sesiones del Concejo Municipal, Comisiones del Concejo, Consejos de Distrito y otros, como complemento de lo indicado en el Código Municipal y resto del bloque de legalidad aplicable, deben contemplar los siguientes aspectos.
+a) Deben tener la mayor claridad posible, en este sentido los informes y los acuerdos son la parte más importante del acta, por esto los mismos deben ser muy claros y precisos.
+b) La síntesis es fundamental, por lo que deben consignar los aspectos más importantes que se hayan tratado en la sesión, o sea el acta debe referirse a lo básico de las discusiones, si algún miembro del Órgano Colegiado solicita que se haga constar su opinión en el acta, deberá respetarse esa solicitud.
+No obstante, es importante no abusar de ese recurso, sino utilizarlo solo cuando se trate de algo realmente importante para los interés de la Organización o del solicitante.
+c) Tener un orden lógico en su elaboración, es decir diferenciar cada uno de los puntos discutidos, utilizar algún tipo de división, puede ser por capitulo o por artículos.
+d) Mantener una numeración consecutiva, indicar fecha, hora, lugar y número de sesión, así como tipo de reunión: ordinaria o extraordinaria.
+e) Especificar los nombres y cargos de quienes están presentes en la sesión, así como los nombres de quienes están ausentes y señalar si las ausencias son justificadas o injustificadas.
+f) Tener consignado el orden del día o agenda de la sesión.
+g) El acta debe estar firmada por el Presidente (a) o la persona que presidió la sesión, y por el Secretario (a) o persona que tomó el acta.
+h) Si por alguna razón se cometiese un error en la toma del acta, se debe corregir en el momento de su lectura y aprobación.
+i) En general lo acontecido en la sesión debe ser transcrito al libro de manera oportuna y fiel al libro y la documentación que sustentan las actas deben ser mantenidos en orden, limpios, sin “tachones”, correcciones y en general libre de elementos que hagan dudar de su veracidad y confiabilidad. Para tal efecto el secretario (a) contará con los respaldos suficientes y competentes, sea en cintas, medio digital o papel.

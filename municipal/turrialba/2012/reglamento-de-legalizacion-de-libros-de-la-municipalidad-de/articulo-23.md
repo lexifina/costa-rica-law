@@ -1,0 +1,1 @@
+Artículo 23.—Borradores. Será responsable, el encargado de custodiar los borradores y documentación soporte de los eventos, sesiones y otros actos que serán registrados en los folios o libros autorizados.

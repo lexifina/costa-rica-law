@@ -1,0 +1,1 @@
+Artículo 18.—Entrega del siguiente tomo. Para entregar los folios o libro adicionales ya autorizados, se debe mostrar al Auditor Interno Municipal, los folios autorizados del tomo anterior. En caso contrario, sea por extravío u otra causa que ponga en riesgo su cumplimiento, deberá seguirse según lo determinado en el capítulo siguiente.

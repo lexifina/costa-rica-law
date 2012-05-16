@@ -1,0 +1,1 @@
+Artículo 11.—Uso del sello de legalización de libro. La Auditoría Interna deberá plasmar en la parte superior derecha de cada folio el sello correspondiente a la legalización del libro; esto con el fin de asegurar razonablemente que no se utilizaran hojas distintas que puedan alterar la información.

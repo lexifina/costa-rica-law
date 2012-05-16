@@ -1,0 +1,1 @@
+Artículo 37.—Normas técnicas y recomendaciones de Auditoría Interna. Los libros legalizados por la Auditoría Interna aparte de lo indicado en el presente Reglamento, deberán cumplir con las recomendaciones que la Auditoría Interna en el ejercicio de sus funciones formule.
