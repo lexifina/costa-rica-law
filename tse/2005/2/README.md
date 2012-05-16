@@ -16,3 +16,4 @@ Reglamento de Emergencias y Evacuación del Tribunal Supremo de Elecciones y del
 | 1 | 2005-02-10 | la propia norma |
 | 2 | 2011-03-28 | Decreto TSE 3 (2011-03-28) |
 | 3 | 2011-04-12 | Decreto TSE 5 (2011-04-12) |
+| 4 | 2012-05-16 | Decreto TSE 7 (2012-05-16) |

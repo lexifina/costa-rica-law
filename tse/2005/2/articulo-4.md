@@ -1,1 +1,2 @@
-Artículo 4º—El Responsable Operativo a que se refiere el artículo anterior será nombrado por el Comité.
+Artículo 4º—El Responsable Operativo al que se refiere el artículo anterior será nombrado por el Comité y deberá ocupar, en el momento del nombramiento, un puesto profesional dentro de la institución en el campo de la Salud Ocupacional, de conformidad con lo que establece el Manual Descriptivo de Clases y Puestos del Tribunal Supremo de Elecciones.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 07-2012 del 16 de mayo del 2012)
