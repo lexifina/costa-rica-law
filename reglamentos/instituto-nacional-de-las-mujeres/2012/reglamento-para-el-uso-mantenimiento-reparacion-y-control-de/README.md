@@ -14,3 +14,4 @@ Reglamento para el uso, mantenimiento, reparación y control de vehículos propi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-07 | la propia norma |
+| 2 | 2012-05-16 | Reglamento 14 (2012-05-16) |

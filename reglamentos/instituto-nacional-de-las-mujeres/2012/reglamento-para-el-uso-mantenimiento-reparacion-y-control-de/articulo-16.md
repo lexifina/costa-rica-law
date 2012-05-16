@@ -1,7 +1,8 @@
-Artículo 16.—Prohibiciones y Sanciones queda expresamente prohibido:
+Artículo 16.—Prohibiciones y Sanciones. Queda expresamente prohibido:
 a) Conducir los vehículos institucionales bajo el efecto de bebidas alcohólicas, de drogas enervantes o sustancias similares que alteren sus facultades psico-físicas.
 b) Circular a velocidades superiores a las que permiten las señales de tránsito.
-c) Transportar a personas ajenas a la Institución, salvo que ello se justifique como emergencia o fuerza mayor debidamente comprobada.
+c) Transportar a personas ajenas a la institución, salvo lo dispuesto en el artículo 5, inciso b) de este Reglamento o casos autorizados expresamente por la Presidencia Ejecutiva
+(Así reformado el inciso anterior mediante sesión ordinaria N° 14 del 16 de mayo del 2012)
 d) Utilizar distintivos que no sean los que la Ley de Tránsito, su reglamento y esta reglamentación permitan.
 e) Conducir temerariamente y sin apego a las reglas de tránsito, a las instrucciones que haya girado el Área de Servicios Generales y Transportes, a los requerimientos del encargado de gira o de ruta o en violación a las reglas elementales de conducción.
 f) Fumar dentro del vehículo.
