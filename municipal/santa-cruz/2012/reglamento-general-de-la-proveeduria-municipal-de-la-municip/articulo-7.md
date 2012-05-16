@@ -1,0 +1,1 @@
+Artículo 7º—Las dependencias administrativas de la Institución (técnico, jurídico, financiero) estarán en la obligación de colaborar con la Proveeduría para el cumplimiento de sus cometidos, todo conforme a las competencias propias de cada dependencia.

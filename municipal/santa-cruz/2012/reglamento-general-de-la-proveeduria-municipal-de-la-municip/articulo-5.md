@@ -1,0 +1,3 @@
+CAPITULO II
+Fuentes Generales de Contratación Administrativa
+Artículo 5º—La contratación administrativa se encuentra regida por una serie de principios generales que la orientan y regulan. Esos principios son de acatamiento obligatorio tal y como lo establece la Ley de Contratación Administrativa en los artículos 4, 5 y 6, y el Reglamento a esa Ley en el artículo 2; para todos los órganos que intervienen en los diversos procesos de contratación, en los cuales se tienen que tomar en cuenta como fuentes de derecho, la Jurisprudencia de la Sala Constitucional y la Contraloría General de la República, Tribunal Contencioso Administrativo, Procuraduría General de la República, y cualquier otro ente o institución que tenga que ver con la materia, y la doctrina que la regula.

@@ -1,0 +1,1 @@
+Artículo 3º—Alcance de este Reglamento. Este reglamento será aplicable -sin excepción-, a todos los procedimientos de contratación así como a los procesos de almacenamiento y distribución o tráfico interno de bienes que promueva la Municipalidad de Santa Cruz por medio de su Departamento de Proveeduría.

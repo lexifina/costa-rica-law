@@ -1,0 +1,3 @@
+CAPÍTULO III
+Funciones del Departamento de Proveeduría
+Artículo 6º—Definición Funcional del Departamento de Proveeduría Municipal. La Proveeduría será el órgano competente para conducir los procedimientos de contratación administrativa, y fungirá como órgano técnico institucional en esa materia, así como para realizar los procesos de control, almacenamiento y distribución o tráfico de bienes, por medio de la Sección de Almacén, quien llevará un inventario estricto y actualizado de los bienes bajo su custodia. Deberá aplicar los procedimientos correspondientes según lo defina el manual de Procedimientos Financieros-Contables y Administrativos de la Municipalidad.

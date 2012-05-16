@@ -1,0 +1,1 @@
+Artículo 61.—Apercibimiento. Consiste en una formal amonestación escrita dirigida al particular, sea ésta persona física o jurídica, a efecto de que corrija su conducta, sin perjuicio de la ejecución de garantías o aplicación de multas o cláusula penal. Ésta sanción será regulado de conformidad con el numeral 99 de la LCA, además de la normativa concordante del RLCA.
