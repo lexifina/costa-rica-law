@@ -1,0 +1,1 @@
+Artículo 40.- Toda solicitud de permanencia legal que implique un cambio de categoría de no residente a cualquiera de las categorías establecidas por la Ley, deberá estar acompañada del comprobante de pago por la suma de doscientos dólares (US$200,00) o su equivalente en colones al tipo de cambio de referencia del BCCR, salvo las excepciones indicadas por la Ley.

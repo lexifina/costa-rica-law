@@ -1,0 +1,1 @@
+Artículo 207.- Las residencias temporales se renovarán cada dos años. La persona extranjera que goce de residencia temporal por ser cónyuge de costarricense, deberá renovar su documento cada año, en razón de que la condición para la cual le fue otorgada la residencia temporal, es condicionada a demostrar la convivencia.

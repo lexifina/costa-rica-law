@@ -1,0 +1,1 @@
+Artículo 110.- Los requisitos anteriores, deberán ser presentados por todos los solicitantes de una categoría especial, como trabajador temporal, a excepción de las personas extranjeras que se acojan a los convenios binacionales suscritos por Costa Rica y terceros países, casos en los cuales, deberán cumplir con los requisitos establecidos en dichos convenios.

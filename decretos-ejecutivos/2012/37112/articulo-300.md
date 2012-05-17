@@ -1,0 +1,1 @@
+Artículo 300.- La resolución que ordene la cancelación implicará la pérdida de la condición migratoria legal de la persona extranjera, del plazo autorizado para permanecer legalmente en el país y de la validez de los documentos que acrediten su situación migratoria legal. El monto del depósito de garantía será utilizado para sufragar los gastos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 253.- Para el duplicado del documento de permanencia se procederá según lo indicado en el artículo 246 el presente Reglamento, debiendo cancelar únicamente el monto establecido en el artículo 253 de la Ley, a saber $30 dólares.

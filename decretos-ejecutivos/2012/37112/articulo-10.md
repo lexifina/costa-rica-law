@@ -1,0 +1,1 @@
+Artículo 10.- Los documentos referidos en los artículos 8 y 9 del presente Reglamento tendrán la vigencia que expresamente indiquen, en caso de que no señale plazo de vigencia, al momento de su presentación deberán contar con una fecha de emisión no mayor a seis meses.

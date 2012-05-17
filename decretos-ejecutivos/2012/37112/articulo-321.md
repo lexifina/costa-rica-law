@@ -1,0 +1,1 @@
+Artículo 321.- Contra las resoluciones finales de la Dirección General, que deniegue o cancele el registro de empresas, instituciones educativas, de asociación o congregación religiosa, de entidades que promuevan el ingreso de voluntarios y pasantes y empresas navieras, se seguirá el procedimiento general establecido en el Título XI, capítulo III de la Ley.

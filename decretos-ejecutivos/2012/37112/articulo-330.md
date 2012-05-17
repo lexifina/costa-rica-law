@@ -1,0 +1,1 @@
+Artículo 330.- Recibida la documentación, en un plazo no mayor a diez días hábiles, la Dirección General podrá prevenir por una única vez y por escrito para que complete los requisitos de fondo omitidos o que aclare información.

@@ -1,0 +1,1 @@
+Artículo 77.- Las personas extranjeras que soliciten una residencia temporal como científicos, profesionales, corresponsales y personal de agencias de prensa; deberán estar inscritos en el Colegio Profesional correspondiente.

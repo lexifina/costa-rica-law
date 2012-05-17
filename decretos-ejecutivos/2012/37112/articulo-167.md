@@ -1,0 +1,1 @@
+Artículo 167.- De no reunirse los requisitos establecidos en el artículo 165 del presente Reglamento, o de contar el interesado con impedimento de ingreso o egreso del país según corresponda, se procederá a denegar la petición. La denegatoria de una solicitud de permiso múltiple de transportista tendrá los recursos de impugnación establecidos en la Ley.

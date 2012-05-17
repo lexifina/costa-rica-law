@@ -1,0 +1,1 @@
+Artículo 166.- Presentados los requisitos que establece el artículo anterior, la oficina correspondiente contará con un plazo máximo de tres días para conocer, analizar y verificar que el interesado no cuente con impedimento de ingreso o egreso del país.

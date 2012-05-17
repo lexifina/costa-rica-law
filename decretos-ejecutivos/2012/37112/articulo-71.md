@@ -1,0 +1,1 @@
+Artículo 71.- En el caso de que la persona extranjera deba apersonarse a un proceso en condición de testigo o denunciante y la solicitud de permanencia provisional sea dictada por un juez, se aplicará el procedimiento señalado en los artículos anteriores.

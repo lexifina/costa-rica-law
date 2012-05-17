@@ -1,0 +1,1 @@
+Artículo 284.- La persona extranjera con residencia temporal por ser cónyuge de costarricense y que de manera consecutiva haya acreditado año a año, la convivencia conyugal así como haya renovado dicha condición migratoria por un lapso de tres años, podrá solicitar la condición de residente permanente.

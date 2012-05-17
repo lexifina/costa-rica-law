@@ -1,0 +1,1 @@
+Artículo 271.- Las y los estudiantes extranjeros no podrán realizar actividades remuneradas ni lucrativas; tampoco podrán participar en ellas. Quedan excluidas de esta prohibición, las actividades de las y los estudiantes relacionadas con servicio social o la práctica profesional que exija la carrera, conforme al artículo 104 de la Ley.

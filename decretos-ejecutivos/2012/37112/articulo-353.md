@@ -1,0 +1,1 @@
+Artículo 353.- Todos aquellos acuerdos o convenios suscritos con diferentes países e instituciones públicas o privadas que se encuentren vigentes a la publicación de este reglamento, continuaran gozando de las mismas condiciones por las que fueron suscritos salvo lo que se oponga o resulte incompatible con la Ley 8764 y sus reglamentos.

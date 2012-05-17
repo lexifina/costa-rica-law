@@ -1,0 +1,1 @@
+Artículo 346.- Todo empleador, intermediario o contratista, al contratar o proporcionar trabajo u ocupación a una persona extranjera deberá cumplir todas las obligaciones que le impone la Ley, el presente Reglamento y la legislación laboral y conexa, ello al tenor de los artículos 174, 175, 176 y 180 de la Ley.

@@ -1,0 +1,1 @@
+Artículo 47.- La persona extranjera a la cual se le otorgue la categoría de refugiado, asilado o apátrida, está exento del pago del depósito de garantía. En caso de que solicite cambio de categoría migratoria, deberá realizar un depósito de un 20% de un salario base definido en el artículo 2 de la Ley N°7337 del 5 de mayo de 1993 vigente a la fecha de realización del depósito.

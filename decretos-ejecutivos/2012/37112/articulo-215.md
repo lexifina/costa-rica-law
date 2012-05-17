@@ -1,0 +1,4 @@
+Artículo 215.- La persona extranjera que pretenda renovar su documento de permanencia después del vencimiento del plazo otorgado para ello, deberá aportar además de los requisitos solicitados para cada categoría o subcategoría migratoria, la siguiente documentación:
+a) Escrito indicando los motivos por los cuales no renovó su documento de residencia en el plazo establecido, autenticada por abogado o firma ante funcionario público.
+b) Comprobante de depósito de $3 dólares o su equivalente en colones al tipo de cambio de referencia del Banco Central, de multa por cada mes o fracción de atraso.
+c) Si el extranjero permaneció fuera del país por un periodo mayor de un año deberá presentar escrito justificando las razones y certificación de antecedentes penales debidamente legalizada y autenticada o apostillada del país donde permaneció.

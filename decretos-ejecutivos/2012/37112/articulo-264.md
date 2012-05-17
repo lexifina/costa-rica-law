@@ -1,0 +1,1 @@
+Artículo 264.- Toda persona que ostente la condición migratoria como trabajador o trabajadora transfronterizo, deberá realizar su ingreso y egreso del país por un puesto migratorio habilitado para el tránsito internacional de personas, para ello deberá presentar ante el puesto migratorio la credencial que le acredita su condición migratoria.

@@ -1,0 +1,1 @@
+Artículo 209.- La renovación del documento de permanencia deberá efectuarse dentro de los 30 días posteriores a su vencimiento, en caso contrario deberá de cancelar la suma de tres dólares de los Estados Unidos de América por cada mes o fracción de mes de atraso.

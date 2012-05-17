@@ -1,0 +1,1 @@
+Artículo 338.- La acreditación otorgada por la Dirección General a las asociaciones o congregaciones religiosas tendrá una vigencia de dos años. Con una antelación de un mes al vencimiento de dicho plazo, deberán actualizar la documentación presentada inicialmente, a fin de renovar esta acreditación.

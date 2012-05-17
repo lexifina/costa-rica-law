@@ -1,0 +1,1 @@
+Artículo 334.- La Dirección General podrá otorgar la acreditación a la institución que cumpla con todos los requisitos, para que pueda gozar de los beneficios otorgados bajo los lineamientos del presente Reglamento.

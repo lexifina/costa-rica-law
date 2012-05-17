@@ -1,0 +1,1 @@
+Artículo 283.- En caso de que la persona que goce una condición de residencia temporal y que haya efectuado la renovación del documento por tres años consecutivos podrá solicitar cambio de categoría migratoria de residente temporal a residente permanente.

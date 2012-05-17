@@ -1,0 +1,1 @@
+Artículo 44.- Las personas extranjeras a las que se les otorgue residencia temporal en las subcategorías de religiosos, cónyuge de ciudadano costarricense, científicos, profesionales, pasantes, técnicos especializados y deportistas; están exentos del pago de veinticinco dólares (US$25,00) establecidos en el artículo 33 inciso 4) y 80 de la Ley.

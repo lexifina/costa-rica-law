@@ -1,0 +1,1 @@
+Artículo 69.- En caso de que la orden respectiva sea presentada por la persona extranjera o un tercero debidamente autorizado, se solicitará a la autoridad judicial o al Tribunal Administrativo la notificación formal de la orden donde se solicita a la Dirección General, otorgar la permanencia provisional de la persona extranjera.

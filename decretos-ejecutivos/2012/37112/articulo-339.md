@@ -1,0 +1,1 @@
+Artículo 339.- La acreditación otorgada por la Dirección General para las entidades que promuevan el ingreso de pasantes y voluntarios, tendrá una vigencia de cinco años. Con una antelación de un mes al vencimiento de dicho plazo, deberán actualizar la documentación presentada inicialmente, a fin de renovar esta acreditación.

@@ -1,0 +1,1 @@
+Artículo 149.- A la persona extranjera que se le autorice la permanencia Categoría de No Residente bajo la Subcategoría de estancia, podrá ingresar y egresar del país, las veces necesarias, siempre y cuando, no exceda el plazo de estancia autorizado, en caso de incumplimiento y de requerir el permiso de estancia, deberá realizar una nueva solicitud.

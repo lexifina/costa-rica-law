@@ -1,0 +1,1 @@
+Artículo 267.- La persona extranjera o el patrono deberán realizar un depósito de garantía por el monto de $30 por cada trabajador o trabajadora que se encuentre laborando para él, según lo establecido en el artículo 12 del Reglamento de Depósitos. Los depósitos deberán realizarse a nombre de la persona extranjera.

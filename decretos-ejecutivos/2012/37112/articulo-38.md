@@ -1,0 +1,1 @@
+Artículo 38.- La persona extranjera a la cual se le otorgue la autorización de suspensión de la permanencia legal, en caso de requerirlo, deberá realizar ante la CCSS las gestiones correspondientes para la suspensión de su seguro, por el plazo autorizado por la Dirección General.

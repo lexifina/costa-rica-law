@@ -1,0 +1,1 @@
+Artículo 261.- A cada trabajadora o trabajador transfronterizo autorizado para laborar en Costa Rica, la Dirección General le otorgará un documento que acredite su condición migratoria, el cual le permitirá realizar cualquier gestión ante entidades públicas y privadas de Costa Rica.

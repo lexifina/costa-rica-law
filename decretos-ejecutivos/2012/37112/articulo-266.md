@@ -1,0 +1,1 @@
+Artículo 266.- De conformidad con lo establecido en el artículo 33, último párrafo de la Ley, la población indígena que ostente esta condición migratoria, queda exenta de los pagos estipulados en los incisos, 4) y 5) del citado artículo y de lo dispuesto en el artículo 251 del mismo cuerpo normativo.

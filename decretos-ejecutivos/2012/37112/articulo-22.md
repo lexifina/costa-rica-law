@@ -1,0 +1,7 @@
+Artículo 22.- En los casos cuya solicitud de categoría migratoria implique la demostración de solvencia económica de la persona solicitante o de la persona empleadora; deberá demostrarla mediante alguno o varios de los documentos que se mencionan a continuación:
+a) Aportar orden patronal vigente o cartas de los empleadores con membrete y sello de la empresa que indique salario bruto y neto, años de servicio y puesto.
+b) Las personas jubiladas deberán aportar prueba de la pensión, presentando recibos, o certificación emitida por autoridad competente que indique el monto y tiempo de jubilación.
+c) En caso de los estudiantes deberán presentar por certificación emitida por contador público autorizado de la solvencia económica indicando su procedencia. Si es estudiante becado, debe aportar certificación de la institución que brinda la beca indicando el monto, el plazo y los gastos que comprende.
+d) Certificación de Contador Público Autorizado donde se detalla los ingresos y egresos de persona física o estados financieros mediante balance de situación debidamente auditados de personas jurídicas, ambos del último año fiscal. De ser necesario la Dirección podrá solicitar el expediente completo de la información con la que se generó la certificación.
+e) Fotocopia del programa de voluntariado donde se detalle el financiamiento.
+f) En caso que el financiamiento de los estudios o voluntariado sea por otro medio distinto a los mencionados deberá aportar los documentos correspondientes.

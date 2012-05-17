@@ -1,0 +1,1 @@
+Artículo 317.- Cuando se encuentre firme la resolución que deniegue la solicitud de residencia o se haya ordenado el archivo de la misma, podrá la persona extranjera presentar una nueva solicitud debidamente fundamentada, aportando todos los requisitos establecidos para la categoría correspondiente.

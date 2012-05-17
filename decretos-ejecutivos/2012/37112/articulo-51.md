@@ -1,0 +1,1 @@
+Artículo 51.- En caso en que se determine que la persona extranjera no es la titular del expediente o que no ha abierto expediente alguno a su nombre, se aplicará el procedimiento definido en el Manual de Procedimientos en Caso de detección de irregularidades, de la Gestión de Extranjería.

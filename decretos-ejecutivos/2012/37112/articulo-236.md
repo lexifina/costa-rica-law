@@ -1,0 +1,9 @@
+ARTISTAS, DEPORTISTAS E INTEGRANTES DE ESPECTÁCULOS PÚBLICOS, PROFESIONALES Y TÉCNICOS DESTACADOS O PERSONAS INVITADAS PARA QUE REALICEN ACTIVIDADES DE IMPORTANCIA EN EL PAÍS
+Artículo 236.- La persona extranjera a la cual se le aprobó la categoría especial como Artistas, deportistas e integrantes de espectáculos públicos, profesionales y técnicos destacados o personas invitadas para que realicen actividades de importancia para el país, podrá renovar anualmente esta condición, para la cual deberá aportar:
+a) Carta emitida y firmada por el representante legal o, por la persona física o jurídica o institución pública interesada en la permanencia de la persona extranjera en el país, donde se indiquen las razones por las cuales se deben prorrogar el plazo de permanencia otorgado.
+b) En el caso de los deportistas, certificación del Consejo Nacional del Deporte y la Recreación o de la entidad pública o privada que ostente la representación nacional de un deporte, se certifique que la persona extranjera continúa teniendo participación en sus campeonatos, con indicación del plazo requerido.
+c) Comprobante de pago a favor del Gobierno correspondiente al artículo 251 de la Ley.
+d) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, según lo dispuesto en el artículo 253 de la Ley.
+e) Comprobante de pago anual a favor del Gobierno por veinticinco dólares (US$25,00) el cual será destinado al Fondo Social de Migración, según lo dispuesto en el artículo 33 inciso 4) de la Ley.
+f) Comprobante de pago a favor del Gobierno por cinco dólares (US$5,00) el cual será destinado al Fondo Social de Migración, según lo dispuesto en el artículo 33 inciso 5 de la Ley.
+g) Pasaporte vigente y en buen estado de la persona extranjera.

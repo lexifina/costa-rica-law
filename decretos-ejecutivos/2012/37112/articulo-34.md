@@ -1,0 +1,1 @@
+Artículo 34.- Las personas extranjeras que no sean asegurados directos, deberán presentar el carné de Seguro Social y o bien el comprobante de pago del seguro al día. En el caso de los pensionados deberán presentar el carné que indique que son asegurados pensionados.

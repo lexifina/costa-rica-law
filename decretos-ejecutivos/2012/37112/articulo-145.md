@@ -1,0 +1,1 @@
+Artículo 145.- Toda persona extranjera que ostente el estatus de categoría especial como habitante fronterizo, deberá someterse al correspondiente control en los puestos migratorios habilitados para tal efecto.

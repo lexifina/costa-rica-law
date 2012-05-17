@@ -1,0 +1,1 @@
+Artículo 64.- Una vez en firme la resolución denegatoria, la persona extranjera deberá abandonar el país en el plazo señalado en la resolución. Caso contrario se seguirá con el procedimiento establecido en Título Décimo, Capítulo Primero, del procedimiento de Deportación, del Reglamento de Control Migratorio Decreto N° 36769-G del 26 de setiembre de 2011.

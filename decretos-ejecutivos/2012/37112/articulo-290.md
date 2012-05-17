@@ -1,0 +1,1 @@
+Artículo 290.- La Dirección General de igual forma, deberá iniciar el procedimiento administrativo correspondiente, durante el plazo de ejecución de penas privativas de libertad, dictadas por autoridad jurisdiccional competente, contra personas extranjeras que gocen de permanencia legal en el país, con el objeto de determinar la procedencia de la cancelación.

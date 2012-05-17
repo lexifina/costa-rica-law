@@ -1,0 +1,1 @@
+Artículo 21.- A Toda fotocopia de un documento original confrontada ante funcionario, deberá adherirse timbre fiscal de ¢20 colones y timbre archivo de ¢5 colones, con fundamento en la Ley de Equilibrio Financiero.

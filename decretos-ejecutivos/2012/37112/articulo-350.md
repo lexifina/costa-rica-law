@@ -1,0 +1,1 @@
+Artículo 350.- En cumplimiento a lo dispuesto en los artículos 80, 97, 99, 100 y 261 de la Ley, el MTSS proporcionará a la Dirección General los estudios técnicos y de mercado, así como las recomendaciones por inopia laboral o de otra índole que sean necesarias para otorgar los permisos de trabajo a las personas extranjeras.

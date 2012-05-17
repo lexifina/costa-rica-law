@@ -1,0 +1,1 @@
+Artículo 315.- En aquellos casos en que no se localice el expediente físico de la persona interesada, en caso de extravío, destrucción por causas naturales se aplicará para su reposición lo establecido en el artículo 142 del Código Procesal Civil y 289 de la Ley General de la Administración Pública.

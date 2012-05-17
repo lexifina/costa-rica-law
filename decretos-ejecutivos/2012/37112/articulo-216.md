@@ -1,0 +1,3 @@
+Artículo 216.- La persona extranjera que a pesar de tener su permanencia vigente, haya permanecido fuera del país por un periodo mayor del plazo establecido para su categoría, deberá aportar además de los requisitos solicitados para cada categoría o subcategoría migratoria, la siguiente documentación:
+a) Escrito justificando los motivos por los cuáles ha permanecido fuera del país por un periodo mayor al establecido para su categoría.
+b) Si el extranjero permaneció fuera del país por un periodo mayor de un año deberá presentar escrito justificando las razones y certificación de antecedentes penales debidamente legalizada y autenticada o apostillada del país donde permaneció.

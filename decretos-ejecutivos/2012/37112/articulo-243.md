@@ -1,0 +1,1 @@
+Artículo 243.- La Dirección General deberá verificar que la condición por la que se le otorgó la categoría especial por razones de humanidad subsiste, así como la facultad de solicitar la prueba que estime pertinente, caso contrario se procederá a no autorizar la renovación y a iniciar el procedimiento de cancelación correspondiente.

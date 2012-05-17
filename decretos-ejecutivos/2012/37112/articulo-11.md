@@ -1,0 +1,1 @@
+Artículo 11.- Los documentos que no hubiesen sido emitidos en idioma español, deberán aportar la correspondiente traducción literal a este idioma, la cual debe ser elaborada por un traductor oficial ó traducción de un notario conocedor del idioma.

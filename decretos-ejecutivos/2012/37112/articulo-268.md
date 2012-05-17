@@ -1,0 +1,1 @@
+Artículo 268.- La Dirección General otorgará el documento que le acredita su condición migratoria como trabajador o trabajadora temporal por un plazo de seis meses de conformidad con la actividad que vienen a realizar, prorrogable por períodos iguales.

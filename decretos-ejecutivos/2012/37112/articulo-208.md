@@ -1,0 +1,1 @@
+Artículo 208.- La persona extranjera que haya gozado de una residencia temporal durante tres años consecutivos, podrá solicitar la condición de residente permanente cumpliendo con los requisitos para el cambio de categoría, establecidos en el Título IV del presente Reglamento.

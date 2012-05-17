@@ -1,0 +1,1 @@
+Artículo 111.- La permanencia de personas indígenas extranjeras en el país será regulado en el Título V del presente reglamento y de conformidad con los instrumentos internacionales vigentes que rigen la materia indígena.

@@ -1,0 +1,1 @@
+Artículo 301.- A la persona extranjera a la que se le haya cancelado la permanencia legal autorizada como no residente o categoría especial será deportada, según el procedimiento establecido en el Título XI, Capítulo IV de la Ley.

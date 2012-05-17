@@ -1,0 +1,1 @@
+Artículo 151.- Si el plazo de permanencia bajo la categoría migratoria de Estancia es mayor a seis meses, deberá además de los requisitos solicitados para tipo de estancia, presentar certificado de nacimiento y certificación de antecedentes penales debidamente legalizados y autenticados o apostillados.

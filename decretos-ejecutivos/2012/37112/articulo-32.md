@@ -1,0 +1,1 @@
+Artículo 32.- Las personas extranjeras a las cuales les sea aprobada su solicitud de residencia permanente, residencia temporal o aquellas Subcategorías de Categoría Especial mencionadas en el artículo anterior, deberán solicitar, una vez notificada la resolución, ante las autoridades de la Caja Costarricense de Seguro Social su adscripción a los servicios de seguro social.

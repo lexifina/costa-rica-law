@@ -1,0 +1,1 @@
+Artículo 259.- El residente permanente y el residente temporal con vínculo matrimonial con costarricense, podrá participar en toda actividad remunerada o lucrativa, por cuenta propia o en relación de dependencia, salvo las limitaciones que señale la legislación nacional.

@@ -1,0 +1,1 @@
+Artículo 295.- El recurso de revocatoria deberá ser resuelto por la Dirección General, en el plazo máximo de tres meses, contados a partir del día posterior a la fecha de su interposición. Resuelto negativamente el recurso de revocatoria, la persona extranjera podrá presentar el recurso de apelación ante el Tribunal Administrativo Migratorio.

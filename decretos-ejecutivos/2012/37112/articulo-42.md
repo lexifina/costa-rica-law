@@ -1,0 +1,1 @@
+Artículo 42.- Toda solicitud de residencia temporal o permanente por primera vez, deberá estar acompañada del comprobante de pago por la suma de cincuenta dólares (US$50,00). Este es un requisito indispensable de admisibilidad.

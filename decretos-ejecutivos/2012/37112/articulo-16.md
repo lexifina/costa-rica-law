@@ -1,0 +1,1 @@
+Artículo 16.- En el caso de los países que emitan una certificación de nacimiento de la persona extranjera solicitante de permanencia legal, sin que se indique el nombre de los padres, deberá aportar conjuntamente con esta certificación, una declaración jurada protocolizada sobre este extremo.

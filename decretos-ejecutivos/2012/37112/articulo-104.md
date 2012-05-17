@@ -1,0 +1,1 @@
+Artículo 104.- La Dirección Nacional de Empleo del Ministerio de Trabajo y Seguridad Social, entre otras instituciones reconocidas en materia laboral, determinará mediante estudios técnicos los trabajadores transfronterizos cuyo ingreso y permanencia pueda autorizar la Dirección General, así como las actividades ocupacionales en que se requieren.

@@ -1,0 +1,1 @@
+Artículo 247.- Para solicitar la reposición del documento en caso de deterioro, siempre y cuando se encuentre vigente, deberá aportar los requisitos a), b), c) y e) anteriores, adjuntando el original del documento de residencia que se encuentra deteriorado.

@@ -1,0 +1,1 @@
+Artículo 332.- En el caso de las empresas navieras que no cumplan con el plazo establecido para presentar lo solicitado en la prevención, no podrán realizar solicitudes de visas de ingreso, visas de tránsitos o pases cortos a la costa para su tripulación y personal,

@@ -1,0 +1,1 @@
+Artículo 95.- La persona extranjera que realice una pasantía en una institución, asociación o en una organización gubernamental o no gubernamental, registrada ante la Dirección General, están exentos de la presentación de los documentos indicados anteriormente en los incisos p) y q).

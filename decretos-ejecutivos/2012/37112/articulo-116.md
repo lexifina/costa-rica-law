@@ -1,0 +1,1 @@
+Artículo 116.- En caso de que la persona extranjera ejerza una profesión para la que se exija una titulación especial, la autorización se condicionará a la tenencia, y en su caso, homologación del título correspondiente y si así se requiere la debida colegiatura.

@@ -1,0 +1,1 @@
+Artículo 316.- Para efectos de reposición se podrá solicitar a la persona extranjera copia de los documentos presentados para la apertura del expediente o copia de los documentos que demuestren que realizó el trámite correspondiente ante la Dirección General.

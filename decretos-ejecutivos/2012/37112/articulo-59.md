@@ -1,0 +1,1 @@
+Artículo 59.- Las solicitudes de permanencia de las personas extranjeras que hayan iniciado su trámite en el Subproceso de Visas por pertenecer al cuarto grupo, deberán cumplir con la documentación restante a fin de completar los requisitos de la condición migratoria pretendida.

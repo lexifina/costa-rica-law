@@ -1,0 +1,1 @@
+Artículo 320.- Se exceptúan a las empresas navieras del procedimiento anterior, una vez registrada deberán cumplir con lo establecido en el Reglamento para el otorgamiento de Visas de ingreso a Costa Rica N°36626-G del 20 de junio del 2011 y el Reglamento de Control Migratorio, para el ingreso y egreso de tripulantes o pasajeros. Decreto N° 36769-G del 26 de setiembre del 2011.

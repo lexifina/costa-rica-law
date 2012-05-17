@@ -1,0 +1,1 @@
+Artículo 296.- De haberse interpuesto el recurso de apelación en forma subsidiaria, los autos automáticamente pasarán a conocimiento del Tribunal Administrativo Migratorio, para su conocimiento y resolución.

@@ -1,0 +1,1 @@
+Artículo 212.- Previo a autorizar la renovación del documento de permanencia de las personas dependientes, se verificará por el departamento correspondiente, que la persona titular haya renovado su documento de permanencia, así como que se mantiene el vínculo.

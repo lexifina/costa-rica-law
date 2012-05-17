@@ -1,0 +1,1 @@
+Artículo 293.- En contra de la resolución final cabrán los recursos administrativos de revocatoria y apelación, los mismos, deberán interponerse dentro del término de tres días hábiles contados a partir de la notificación respectiva, ante la Dirección General.

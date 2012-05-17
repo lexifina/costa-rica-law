@@ -1,0 +1,15 @@
+Artículo 79.- De conformidad con el artículo 79 inciso 1) de la Ley, dicha solicitud deberá cumplir con los siguientes requisitos:
+a) Formulario de filiación debidamente completo con letra imprenta legible y firmado.
+b) Solicitud de permanencia legal donde se indiquen las calidades del interesado(a), pretensión, domicilio actual, la cual deberá venir firmada por la persona extranjera en presencia de Funcionario Público o debidamente autenticada por Abogado.
+c) Comprobante de pago a favor del Gobierno por cincuenta dólares (US$50,00) o su equivalente en colones al tipo de cambio de referencia del BCCR, correspondiente a la solicitud de permanencia legal bajo la categoría migratoria de residente temporal.
+d) Comprobante de pago a favor del Gobierno por concepto de especies fiscales (¢ 125 + ¢ 2,50 por cada folio) de conformidad con la Ley para el Equilibrio Financiero del Sector Público.
+e) Dos fotografías recientes tamaño pasaporte.
+f) Comprobante de huellas emitido por el Ministerio de Seguridad Pública, para personas mayores de 12 años.
+g) Comprobante de inscripción consular. Los requisitos para dicha inscripción serán determinados en el Consulado correspondiente.
+h) Certificación de nacimiento de la persona extranjera emitida en el país de origen debidamente legalizada y autenticada o apostillada.
+i) Certificación de antecedentes penales de la persona extranjera mayor de edad en el país de origen o del lugar donde haya residido legalmente los últimos tres años, debidamente legalizada y autenticada o apostillada. Para esos efectos deberá demostrar adicionalmente la legalidad de su permanencia en ese país mediante copia certificada del documento migratorio obtenido en el plazo indicado.
+j) Fotocopia de todas las páginas del pasaporte vigente de la persona extranjera, la cual deberá certificarse ya sea confrontadas con el original ante el funcionario de la plataforma de servicios o sede regional, o mediante Notario Público.
+k) En los casos de unión de hecho deberá aportar la Resolución Judicial debidamente certificada por el Juzgado correspondiente, donde da el reconocimiento de dicha unión. En caso de haberse celebrado matrimonio con persona costarricense en el exterior deberá inscribirse ante el Registro Civil de Costa Rica.
+l) Presentarse ambos cónyuges a la Plataforma de Servicios de la Gestión de Extranjería o Delegación Regional donde presente el trámite, a rendir ante funcionario entrevista individual de ratificación de datos, la cual deberá ser firmada por ambos cónyuges, lo anterior de conformidad con el artículo 73 de la Ley. De ser necesario la Policía Profesional de Migración deberá verificar la información rendida por las personas interesadas.
+m) Presentar prueba que demuestre el conocimiento recíproco entre ambos contrayentes.
+n) Fotocopia de la cédula de identidad del cónyuge costarricense, la cual deberá certificarse ya sea confrontada con el original ante el funcionario de la plataforma de servicios o sede regional, o mediante Notario Público.

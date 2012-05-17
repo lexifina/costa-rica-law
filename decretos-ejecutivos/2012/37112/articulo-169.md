@@ -1,0 +1,1 @@
+Artículo 169.- Vencido el plazo por el cual se otorgó el permiso múltiple para transportista, el interesado deberá gestionar uno nuevo cumpliendo nuevamente con todos los requisitos que el presente reglamento exige, salvo la certificación de nacimiento si así consta en el expediente administrativo.

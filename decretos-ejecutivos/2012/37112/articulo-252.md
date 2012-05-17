@@ -1,0 +1,1 @@
+Artículo 252.- Toda persona que pretenda permanecer en Costa Rica bajo alguna condición migratoria de las contempladas en la Ley deberá realizar el ingreso y egreso por un puesto migratorio habilitado para el tránsito internacional de personas.

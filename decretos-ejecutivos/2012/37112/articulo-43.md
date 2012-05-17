@@ -1,0 +1,1 @@
+Artículo 43.- Las personas menores de edad, refugiadas, asiladas, apátridas, mayores de edad con discapacidad, trabajadores transfronterizos y turistas, están exentos del pago de veinticinco dólares (US$25,00) y cinco dólares (US$5,00) establecidos en el artículo 33 incisos 4) y 5) de la Ley.

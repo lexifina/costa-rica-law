@@ -1,0 +1,1 @@
+Artículo 263.- La persona Trabajadora transfronteriza no deberá realizar depósito de garantía, según lo dispuesto en el artículo 7 de Reglamento del Fondo de Depósitos de Garantía de la Ley General de Migración y Extranjería.

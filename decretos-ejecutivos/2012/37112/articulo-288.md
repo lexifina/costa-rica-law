@@ -1,0 +1,1 @@
+Artículo 288.- La persona extranjera que goce de la condición migratoria de Refugio para solicitar el cambio de subcategoría migratoria deberá aportar los requisitos contemplados en el capítulo Duodécimo del Reglamento de Personas Refugiadas, así como cumplir con lo dispuesto en el artículo 19 del Reglamento de Fondo de Garantía.

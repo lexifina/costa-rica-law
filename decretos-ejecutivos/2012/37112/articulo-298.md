@@ -1,0 +1,1 @@
+Artículo 298.- La persona extranjera a quien se le haya cancelado su permanencia legal autorizada como residente, será conminada a abandonar el territorio nacional según las disposiciones de la Ley y el presente Reglamento, salvo que no haya purgado aún la pena impuesta o no se le haya juzgado mediante una instancia judicial.

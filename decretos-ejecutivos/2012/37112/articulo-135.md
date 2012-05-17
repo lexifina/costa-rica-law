@@ -1,0 +1,2 @@
+CATEGORÍA ESPECIAL POR RAZONES DE HUMANIDAD
+Artículo 135.- Bajo condiciones extraordinarias, la Dirección General podrá conocer y resolver en forma individual, por razones de humanidad, aquel caso que por sus particulares condiciones, suponga una especial situación de vulnerabilidad de la persona extranjera derivada de su condición etárea, género, discapacidad, entre otras, siendo su regularización migratoria condición necesaria para atender tal situación.

@@ -1,0 +1,1 @@
+Artículo 118.- Para el otorgamiento de esta condición será necesario el aval del Director o Directora General tomando en cuenta los criterios de oportunidad, conveniencia y las necesidades laborales del país.

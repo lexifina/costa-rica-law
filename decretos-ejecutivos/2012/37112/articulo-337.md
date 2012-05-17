@@ -1,0 +1,1 @@
+Artículo 337.- La acreditación otorgada por la Dirección General a las instituciones educativas tendrá una vigencia de cinco años. Con una antelación de un mes al vencimiento de dicho plazo, deberán actualizar la documentación presentada inicialmente, a fin de renovar esta acreditación.

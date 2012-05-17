@@ -1,0 +1,1 @@
+Artículo 120.- La persona extranjera que solicita una categoría especial bajo la subcategoría de visitante de negocios, personal transferido y personal de servicios posteriores a la venta, se le concederá su permanencia por un plazo de permanencia equivalente al doble de su visado.

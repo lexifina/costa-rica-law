@@ -1,0 +1,1 @@
+Artículo 41.- Toda persona extranjera que cuente con una categoría migratoria o una subcategoría migratoria y solicite un cambio de categoría deberán cancelar la suma de doscientos dólares (US$200,00), por concepto de cambio de categoría o su equivalente en colones al tipo de cambio de referencia del BCCR.

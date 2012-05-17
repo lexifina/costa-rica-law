@@ -1,0 +1,1 @@
+Artículo 73.- La persona extranjera que se encuentre contemplada en el inciso a) del artículo anterior, que desee optar por una residencia permanente, deberá cumplir con los requisitos establecidos para cambio de categoría migratoria según se estable en el artículo 282 de este Reglamento.

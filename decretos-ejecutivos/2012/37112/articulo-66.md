@@ -1,0 +1,1 @@
+Artículo 66.- Dicha permanencia provisional se autorizará una vez notificada a la Dirección, la Resolución que así lo ordene emitida por el órgano judicial o el Tribunal Administrativo correspondiente y por el plazo que ella indique.

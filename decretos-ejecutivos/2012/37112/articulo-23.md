@@ -1,0 +1,1 @@
+Artículo 23.- La persona extranjera autorizada para permanecer legalmente en el país, estará en la obligación de comunicar, por escrito, a la Dirección General todo cambio de su domicilio, a excepción de los no residentes de conformidad con el artículo 33 inciso 1) de la Ley.

@@ -1,0 +1,1 @@
+Artículo 349.- En cumplimiento del artículo 260 de la Ley, la Dirección General del Registro Civil deberá enviar física y digitalmente, o bien establecer los mecanismos tecnológicos idóneos para el acceso a la información correspondiente a naturalizaciones, defunciones y matrimonios de las personas extranjeras.

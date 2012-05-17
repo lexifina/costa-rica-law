@@ -1,0 +1,1 @@
+Artículo 109.- Previo a resolver la solicitud de la persona extranjera debe contarse con la recomendación emitida por el Ministerio de Trabajo donde autoriza a la empresa o patrono a contratar mano de obra extranjera, dicha autorización deberá indicar cantidad autorizada, zona de trabajo y actividad.

@@ -1,0 +1,1 @@
+Artículo 322.- En el caso de las empresas navieras su tripulación y personal, deberá cumplir con requisitos de ingreso dispuestos en el del Reglamento de Visas Decreto N° 36626-G del 20 de junio del 2011 y el Reglamento de Control Migratorio Decreto N° 36769-G del 26 de setiembre del 2011.

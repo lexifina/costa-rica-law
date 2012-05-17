@@ -1,0 +1,1 @@
+Artículo 348.- La Dirección General y las autoridades del MTSS deberán verificar, coordinar, o en su caso, denunciar cualquier anomalía o incumplimiento en la contratación de personas extranjeras relacionadas con su condición migratoria.

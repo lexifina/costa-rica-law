@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 37112
+
+Reglamento de Extranjería y Créa Día del Costarricense en el Exterior, cuyo fecha de conmemoración será el 11 de abril de cada año
+
+- Tipo: Decreto Ejecutivo
+- Número: 37112
+- Fecha: 2012-03-21
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 95 del 2012-05-17, Alcance 64
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=72489&param2=88504&param3=1 (ficha 72489)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2012-05-17 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 82.- La persona extranjera religiosa que pertenezca a una asociación o congregación religiosa registrada ante la Dirección General y los religiosos(as) católicos, están exentos de la presentación de los documentos indicados en los incisos l) y m) del artículo 80 de este Reglamento.

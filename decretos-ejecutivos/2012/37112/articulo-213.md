@@ -1,0 +1,1 @@
+Artículo 213.- En caso de que la persona extranjera no renueve el documento que acredite su condición migratoria legal en el país, dentro de los tres meses siguientes a su vencimiento procederá su cancelación, salvo si existen razones debidamente comprobadas que demuestren la imposibilidad de hacerlo dentro de dicho plazo.

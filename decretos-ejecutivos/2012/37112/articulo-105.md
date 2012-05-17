@@ -1,0 +1,1 @@
+Artículo 105.- El área geográfica vecinal del lado costarricense permitida, será la misma establecida en el artículo 62 del Reglamento de Control Migratorio, para los permisos vecinales, así como cualquier otra área geográfica establecida por la Dirección General, una vez habilitado un nuevo puesto migratorio.

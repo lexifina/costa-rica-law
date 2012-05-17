@@ -1,0 +1,1 @@
+Artículo 285.- En el caso de la persona extranjera que gocen de una residencia temporal como rentista y que solicite el cambio de categoría, además de cumplir con los requisitos anteriores, deberá solicitar la liberación de la renta estable, permanente y mensual por la que le fue otorgada la residencia temporal, en el caso de que haya efectuado dicho depósito en un banco estatal.

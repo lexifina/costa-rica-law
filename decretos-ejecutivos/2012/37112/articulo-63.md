@@ -1,0 +1,1 @@
+Artículo 63.- La persona extranjera solicitante podrá presentar los recursos de revocatoria y apelación en subsidio ante la Dirección General, o el recurso de apelación directamente ante el Tribunal Administrativo Migratorio en los casos que proceda de conformidad con el artículo 221 de la Ley.

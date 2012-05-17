@@ -1,0 +1,16 @@
+INVITADOS ESPECIALES DEL ESTADO, SUS INSTITUCIONES Y LOS QUE POR
+RAZONES DE SEGURIDAD PÚBLICA EL MINISTERIO DE SEGURIDAD ESTIME
+PERTINENTE ASÍ COMO DENUNCIANTES O TESTIGOS EN PROCESOS JUDICIALES O ADMINISTRATIVOS
+Artículo 128.- La Dirección General mediante la Gestión de Extranjería otorgará autorización de categoría especial para Invitados especiales del Estado, sus instituciones y los que por razones de seguridad pública el Ministerio de Seguridad estime pertinente así como denunciantes o testigos en procesos judiciales o administrativos, por un periodo de un año prorrogable; a aquellas personas extranjeras que cumplan con los siguientes requisitos:
+a) Formulario de filiación debidamente completo con letra imprenta legible y firmado.
+b) Solicitud de permanencia legal donde se indiquen las calidades del interesado(a), pretensión, domicilio actual y lugar o medio para notificaciones; la cual deberá venir firmada por la persona extranjera en presencia de Funcionario Público o debidamente autenticada por Abogado.
+c) Comprobante de pago a favor del Gobierno por concepto de especies fiscales (¢ 125 + ¢ 2,50 por cada folio) de conformidad con la Ley para el Equilibrio Financiero del Sector Público.
+d) Dos fotografías recientes tamaño pasaporte.
+e) Comprobante de huellas emitido por el Ministerio de Seguridad Pública, para personas mayores de 12 años.
+f) Comprobante de inscripción consular. Los requisitos para dicha inscripción serán determinados en el Consulado correspondiente.
+g) Certificación de nacimiento de la persona extranjera emitida en el país de origen debidamente legalizada y autenticada o apostillada.
+h) Certificación de antecedentes penales de la persona extranjera de su país de origen o del lugar donde haya residido legalmente los últimos tres años, debidamente legalizada y autenticada o apostillada. Para esos efectos deberá demostrar adicionalmente la legalidad de su permanencia en ese país mediante copia certificada del documento migratorio obtenido en el plazo indicado.
+i) Fotocopia de todas las páginas del pasaporte vigente de la persona extranjera, la cual deberá certificarse ya sea confrontadas con el original ante funcionario de la plataforma de servicios o sede regional, o mediante Notario Público.
+j) En el caso de invitados especiales, la persona extranjera deberá aportar certificación emitida por la institución pública u órgano de Estado, donde se indican las razones por las cuales permanecerá en el país, las actividades que realizará y el periodo de permanencia.
+k) En el caso de las personas extranjeras que por razones de seguridad pública, el Ministerio de Seguridad así lo solicite, deberá presentar oficio del mismo, indicando las razones por las cuáles la persona extranjera permanecerá en el país, actividades que realizará y el periodo de permanencia.
+l) La persona denunciante o testigo en procesos judiciales o administrativos, deberá aportar oficio suscrito por dicha autoridad, indicando la necesidad de su permanencia en el país en tanto se lleve a cabo el proceso; en la que se indique el tipo de proceso, estado actual del mismo, número de expediente así como las razones que justifiquen su permanencia en el país en tanto se tramita el proceso judicial o administrativo.

@@ -1,0 +1,1 @@
+Artículo 144.- La Dirección General podrá restringir o condicionar el otorgamiento de esta categoría especial, tomando en cuenta criterios de oportunidad conveniencia y seguridad pública al tenor del artículo 67 de la Ley.

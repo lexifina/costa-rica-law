@@ -1,0 +1,1 @@
+Artículo 335.- En el caso de la empresa naviera la Dirección General otorgará la acreditación para que pueda operar bajo los lineamientos del Reglamento de Visas Decreto N° 36626-G del 20 de junio del 2011 y el Reglamento de Control Migratorio Decreto N° 36769-G del 26 de setiembre del 2011.

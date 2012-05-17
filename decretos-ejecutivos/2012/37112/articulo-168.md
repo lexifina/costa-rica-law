@@ -1,0 +1,1 @@
+Artículo 168.- De cumplir el interesado nacional o extranjero con los requisitos establecidos en el artículo 165 del presente reglamento, se otorgará el permiso múltiple para transportista, el cual se consignará únicamente en el pasaporte ordinario del interesado.

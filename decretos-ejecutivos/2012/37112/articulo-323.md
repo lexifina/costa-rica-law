@@ -1,0 +1,1 @@
+Artículo 323.- El procedimiento para el registro de Empresas ante la Dirección General de Migración y Extranjería, se regirá según lo dispuesto en el Decreto N°36576-G-COMEX del 20 de mayo del 2011, Reglamento de Empresas.

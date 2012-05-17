@@ -1,0 +1,1 @@
+Artículo 287.- Si la persona extranjera goza de permanencia bajo la Subcategoría Migratoria de Turismo, deberá presentar su solicitud de cambio de categoría migratoria antes de que se le venza el plazo otorgado para su permanencia regular en el país.

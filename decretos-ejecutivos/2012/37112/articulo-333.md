@@ -1,0 +1,1 @@
+Artículo 333.- Una vez cumplida con la prevención, se precederá a realizar el análisis y valoración respectiva, emitiéndose la resolución correspondiente, para lo cual la Gestión de Extranjería contará con un plazo no mayor a quince días hábiles, a partir de la fecha de recibo de la documentación.
