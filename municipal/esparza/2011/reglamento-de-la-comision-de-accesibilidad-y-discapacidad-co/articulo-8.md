@@ -1,0 +1,1 @@
+Artículo 8º—Es obligación de las y los integrantes, designados/as por el concejo, participar puntualmente en todas las reuniones que se programen y asumir las tareas que le sean asignadas al interior de la COMAD.
