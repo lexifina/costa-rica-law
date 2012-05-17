@@ -1,0 +1,1 @@
+Artículo 32.—Cuando por el cargo que ocupe un funcionario, sea inminentemente necesario que posea su respectiva licencia de conducir vigente y la misma le haya sido suspendida por autoridad competente, el Alcalde Municipal y la Dirección de Gestión Administrativa, deberán aplicar las medidas administrativas y laborales correspondientes, respetando el debido proceso.
