@@ -1,0 +1,1 @@
+Artículo 9º—Del informe de Tesorería. A más tardar antes del quinto día de cada mes, la Oficina de Defensa Civil de las Víctimas remitirá a la Auditoría un informe del movimiento de depósitos y de los giros del mes anterior el cual será, acompañado del correspondiente estado de conciliación de acuerdo con las normas que para ese efecto dicte ese órgano fiscalizador.

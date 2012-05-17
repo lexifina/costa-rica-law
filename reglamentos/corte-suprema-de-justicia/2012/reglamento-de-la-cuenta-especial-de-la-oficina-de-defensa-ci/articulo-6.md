@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la administración de los fondos de la Cuenta Especial
+Artículo 6º—Vinculación normativa. El funcionamiento de los fondos que se autoricen mediante el presente reglamento se sujetará, en lo que fuese aplicable, a las normas contenidas en la Ley General de la Administración Pública, Ley de Contratación Administrativa, Ley de Administración Financiera de la República y Presupuestos Públicos, Ley General de Control Interno, Reglamento para el Funcionamiento de la Caja Única del Estado, Reglamento General de Caja Chica y Reglamento de Cajas Chicas auxiliares de Poder Judicial y demás reglamentos internos del Poder Judicial en cuanto a la compra de dichos bienes así como disposiciones de la Contraloría General de la República.

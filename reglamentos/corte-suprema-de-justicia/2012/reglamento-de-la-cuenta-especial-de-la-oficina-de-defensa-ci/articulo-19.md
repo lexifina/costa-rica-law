@@ -1,0 +1,11 @@
+Artículo 19.—Obligaciones específicas del Encargado de Tesorería. Corresponderá al Profesional Administrativo II designado como encargado de tesorería, las siguientes funciones:
+1. Encargarse de recabar al menos tres cotizaciones para las compras aprobadas por un monto superior a los veinticinco mil colones, tratándose de compras por un monto inferior, se podrá hacer la compra sin necesidad de recabar varias cotizaciones. Para la aceptación de las citadas cotizaciones, será indispensable que las ofertas a considerar provengan de proveedores inscritos en el Registro que al efecto lleva el Poder Judicial. En caso de no existir Registro de Proveedores se tomará en cuenta lo dispuesto en el artículo 11 de este reglamento.
+2. Revisar y firmar los informes de Tesorería y los estados de conciliación bancaria, así como remitirlos a Auditoría y al Departamento Financiero Contable.
+3. Realizar un inventario de caja en caso de renuncia, traslado o cese de funciones por cualquier motivo, del Fiscal Adjunto en calidad de Jefe de la Oficina de Defensa Civil de las Víctimas o del propio encargado de tesorería, el cual deberá remitirlo a Auditoría, con copia al Departamento Financiero Contable.
+4. Llevar un registro de los depósitos que se tenga conocimiento además, de su verificación de si aparecen en el estado de cuenta enviado por el Banco. Igual registro debe llevarse en relación con los giros emitidos contra la cuenta especial.
+5. Comprobar antes de emitir los giros, que la cuenta especial contenga fondos suficientes.
+6. Confeccionar las órdenes de giro que disponga emitir el Fiscal Adjunto en calidad de Jefe de la Oficina de Defensa Civil de las Víctimas.
+7. Archivar en forma consecutiva y segura, los documentos relativos a la Tesorería.
+8. Efectuar el cierre mensual de los movimientos de depósitos y giros en el libro de tesorería y preparar los estados de conciliación respectivos.
+9. Enviar a la Auditoría Judicial, a más tardar el último día de cada mes, el estado de conciliación del mes anterior.
+10. Archivar las copias de los depósitos y de los giros en un lugar seguro, donde se puedan localizar fácilmente, así como cualquier otro documento relacionado con la cuenta especial de la Oficina. De la misma forma debe custodiarse el Libro de Tesorería.

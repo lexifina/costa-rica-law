@@ -1,0 +1,5 @@
+Artículo 12.—Requisitos de las facturas para su pago. Toda factura comercial que respalda el gasto de compra de mercaderías, suministros, pagos de servicios y ayudas a víctimas deberá cumplir con los siguientes requisitos:
+1. Confeccionada en original a nombre de Oficina de Defensa Civil de las Víctimas-Ministerio Público, indicando claramente los bienes y servicios suministrados, y la fecha de adquisición.
+2. Tener el sello de cancelado, firma y número de cédula jurídica de la casa comercial proveedora o de la persona que suministra el bien o el servicio prestado. También debe contener el nombre, firma y número de cédula de la persona que recibió el bien o servicio.
+3. No deben contener, borrones, tachaduras ni alteraciones que hagan dudar de su veracidad. La cantidad indicada debe coincidir tanto en números como en letras.
+4. Las facturas que cuenten con una dispensa al timbraje, deberán adjuntar al documento justificante en caso de pequeños contribuyentes y para aquellos negocios que Tributación Directa haya autorizado a no timbrar, se incluirá dentro de la factura el número de oficio en que se concedió la autorización.

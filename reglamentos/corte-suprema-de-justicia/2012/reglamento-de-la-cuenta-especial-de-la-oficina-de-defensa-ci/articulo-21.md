@@ -1,0 +1,1 @@
+Artículo 21.—Será responsabilidad del Fiscal General de la República y del Fiscal Adjunto en calidad de Jefe de la Oficina de Defensa Civil de las Víctimas el velar por el cumplimiento de las disposiciones contempladas en este reglamento.
