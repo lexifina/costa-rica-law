@@ -12,8 +12,8 @@ Considerando.
 Por tanto,
 DECRETAN:
 ARTÍCULO 1.- Modifíquese la lista de mercancías exentas contenidas en el inciso 1) del artículo 5 del Reglamento de la Ley del Impuesto General sobre las Ventas, Decreto Ejecutivo No. 14082-H de 29 de noviembre de 1982 y sus reformas, para que se lea de la siguiente manera:
-1) Canasta básica alimentaria y de bienes esenciales para la educación:
-I Canasta básica tributaria
+1) Canasta básica tributaria y de bienes esenciales para la educación:
+I. Canasta básica tributaria
 Insumos
 1. Trigo
 2. Frijol de soya
@@ -32,240 +32,221 @@ Azúcar
 13. Azúcar refinado de caña o remolacha
 14. Azúcar regular de caña o remolacha
 15. Panela en presentaciones sólidas
-Carnes
-Las siguientes carnes deben ser frescas, refrigeradas o congeladas. No se incluyen las sazonadas, condimentadas, empanizadas y/o carnes preparadas. Se exceptúan además los cortes finos tales como lomito, lomo, t-bone, delmónico, punta de lomo y sirloin.
-16. Alas de pollo
-17. Bistec de res popular (a juicio de la Administración Tributaria)
-18. Cabeza de cerdo
-19. Carne molida de res
-20. Chuleta de cerdo
-21. Coditos de cerdo
-22. Costilla de cerdo
-23. Costilla de res
-24. Hígado de res
-25. Menudos de pollo o vísceras de pollo
-26. Mondongo
-27.Muslo de pollo
-28. Patas de pollo
-29. Pechuga de pollo
-30. Pellejo de cerdo
-31. Pezuña de cerdo
-32. Pollo entero y limpio
-33. Posta de cerdo popular (a juicio de la Administración Tributaria)
-34. Posta de res popular (a juicio de la Administración Tributaria)
-35. Posta y hueso de res, osobuco
-36. Rabo de cerdo y rabo de res
-37. Tocino
-38. Despojos comestibles de res o cerdo (excepto lengua de res).
+Carnes de res y cerdo
+16.Todas las carnes de res o de cerdo frescas, refrigeradas o congeladas. No se incluyen las sazonadas, marinadas, adobadas, condimentadas, empanizadas y/o carnes preparadas. Tampoco se incluyen los siguientes cortes finos:
+• Lomito de cerdo
+• Lomo de cerdo
+• Lomito de res y sus derivados, en todas sus presentaciones o cortes compuestos por estos
+• Lomo de resy sus derivados, en todas sus presentaciones o cortes compuestos por estos
+• T-bone
+• Sirloin
+• Porter House
+• Demónico o Ribeye
+• Carne tenderizada de cerdo o res.
+Carnes de pollo
+17. Alas
+18- menudos o vísceras
+19-Muslo
+20. Patas
+21.Pechuga
+22. Pollo entero y limpio
 Embutidos
-Los siguientes embutidos excepto los enlatados, envasados
-(Corregido el párrafo anterior mediante Fe de Erratas y publicada en el Alcance digital N° 60 a La Gaceta N° 87 del 7 de mayo de 2012)
-39.Chorizo
-40.Mortadela
-41.Paté
-42.Salchichas
-43.Salchichón
+Los siguientes embutidos excepto los enlatados o envasados
+23.Chorizo
+24. Mortadela
+25.Paté
+26.Salchichas
+27.Salchichón
+Pescado
+28. Atún únicamente entero
+29. Atún en conserva solo o con vegetales, en agua o en aceite.
+30. Pescados (enteros, en partes o en filete), deben ser frescos, refrigerados o congelados, en salmuera, salados o desecados, excepto los enlatados o envasados. No se incluyen los sazonados, condimentados, empanizados y demás preparados.
+Tampoco se incluyen los siguientes pescados:
+• Atún en filet
+• Salmón entero o en filet
+• Róbalo entero o en filet
+• Bacalao entero o en filet.
+Crustáceos y moluscos
+Los siguiente crustáceos y moluscos deben ser frescos, refrigerados o congelados xcepto los enlatados o envasados
+31-Almejas
+32.Calamares blanco y torpedo
+33.Choras
+34. Cangrejos incluyendo las jaibas
+35. Camarón de los tipos Fidel, Pink, camello, camellito y tití.
+36. Pianguas
 Frutas
 Las siguientes frutas frescas no envasadas o enlatadas, ni deshidratadas
-44. Aguacate
-45. Anona
-46. Banano
-47. Caña de azúcar
-48. Caimito
-49. Carambola
-50. Cas
-51. Coco
-52. Fresa
-53. Frambuesa
-54. Granadilla
-55. Guaba
-56. Guanábana
-57. Guayaba
-58. Guineo
-59. Jocote
-60. Limón ácido
-61. Limón dulce
-62. Mamón
-63. Mandarina
-64. Manga
-65. Mango
-66. Manzana de agua
-67. Manzana rosa
-68. Maracuyá
-69. Marañón
-70. Melón
-71. Mora o zarzamora
-72. Nance fresco
-73. Naranja
-74. Naranjilla
-75. Níspero
-76. Papaya
-77. Pejibaye
-78. Piña
-79. Pipa
-80. Pitahaya
-81. Plátano maduro o verde
-82. Sandía
-83. Tamarindo
-84. Yuplón
-85. Zapote
-(*) Hortalizas, leguminosas y tubérculos
-Las siguientes hortalizas, leguminosas y tubérculos deben ser frescos, refrigerados o secos, excepto los enlatados, envasados o empacados en plástico sellado.
-86. Ajo
-87. Apio
-88. Arracache
-89. Arvejas, incluyendo los empacados en plástico sellado
-90. Ayote
-91. Brócoli
-92. Camote
-93. Cebolla y cebollinos
-94. Chayote
-95. Chile dulce
-96. Chile picante
-97. Coliflor
-98. Cubaces, incluyendo los empacados en plástico sellado
-99. Culantro castilla
-100. Culantro coyote
-101. Elote en mazorca
-102. Espinaca
-103. Frijoles blancos y bayos, incluyendo los empacados en plástico sellado
-104. Frijoles negros, incluyendo los empacados en plástico sellado
-105. Frijoles rojos, incluyendo los empacados en plástico sellado
-106. Frijoles tiernos o nacidos, incluyendo los empacados en plástico sellado
-107. Garbanzos, incluyendo los empacados en plástico sellado
-108. Habas secas, incluyendo los empacados en plástico sellado
-109. Lechugas
-110. Lentejas, incluyendo los empacados en plástico sellado
-111. Malanga
-112. Mostaza
-113. Ñame
-114. Ñampí
-115. Papa
-116. Pepino
-117. Pipián
-118. Rábano
-119. Remolacha
-120. Repollo verde o morado
-121. Tiquizque
-122. Tomate
-123. Vainica
-124. Yuca
-125. Zanahoria
-126. Zapallo
-127. Zucchini
-(*)(Corregido el subtítulo “Hortalizas, leguminosas y tubérculos”, mediante Fe de Erratas y publicada en el Alcance digital N° 60 a La Gaceta N° 87 del 7 de mayo de 2012)
-(*) Panes 1 y cereales
-(1) Se permite la adición de mejoradores de panificación en los panes definidos
-128. Arroz blanco y arroz integral, fortificados sin ningún ingrediente adicional. Se excluye el arroz precocido.
-129. Arroz entero (en granza)
-130. Avena (harina y hojuelas o copos, no preparados)
-131. Bizcochos de maíz
-132. Fécula de maíz (maicena)
-133. Harina de maíz y masa de maíz
-134. Harinas finas y gruesas de trigo (corriente)
-135. Maíz cascado excepto el enlatado, envasado o empacado en plástico sellado
-136. Maíz desgranado excepto el enlatado, envasado o empacado en plástico sellado
-137. Pan a base de harina de trigo, levaduras naturales, agua, sal, grasa y cualquier otro ingrediente adicional, incluido el tostado y el molido
-138. Pan cuadrado a base de harina de trigo, levaduras naturales, agua, sal, grasa y cualquier otro ingrediente adicional, incluido el tostado y el molido
-139. Pan dulce a base de harina de trigo, levaduras naturales, agua, sal, azúcar, grasa y cualquier otro ingrediente adicional
-140. Pastas alimenticias (macarrones, fideos, espaguetis, caracoles, caracolitos, tornillitos, coditos, canelones, chop suey y otras pastas similares) sin ningún otro aditamento o ingrediente. Se exceptúan las pastas alimenticias rellenas.
-141. Preparaciones alimenticias en polvo o en bebidas para una nutrición completa y balanceada, del tipo de régimen especial según la norma Codex Alimentarium, excepto del tipo dietético, hidratantes energéticos, restituyentes isotónicos de minerales o similares usualmente para deportistas u otro preparado.
-142. Tamal de maíz
-143. Tortilla de harina de trigo excepto las fritas
-144. Tortilla de maíz, excepto las fritas.
-(*)(Corregido el subtítulo “Panes y cereales”, mediante Fe de Erratas y publicada en el Alcance digital N° 60 a La Gaceta N° 87 del 7 de mayo de 2012)
-(*) Pescado
-145. Atún en conserva solo o con vegetales, en agua o en aceite.
-Los siguientes pescados (enteros o en filet), deben ser frescos o refrigerados o congelados, en salmuera, salados o desecados, excepto los enlatados, envasados o empacados en plástico sellado. No se incluyen los sazonados, condimentados, empanizados y demás preparados.
-146. Atún únicamente entero
-147. Bacalao
-148. Bagre
-149. Bolillo
-150. Cabrilla pequeña
-151. Candado
-152. Cinchada
-153. Congrio
-154. Corvina
-155. Dorado
-156. Macarela
-157. Mero
-158. Pargo
-159. Pescado chatarra
-160. Sardina
-161. Tilapia
-Los siguientes crustáceos, moluscos y otros animales acuáticos invertebrados deben ser frescos, refrigerados o congelados excepto los enlatados, envasados o empacados en plástico sellado.
-162. Almejas
-163. Calamares blanco y torpedo
-164. Choras
-165. Jaibas
-166. Pianguas
-(*)(Corregido el subtítulo “Pescado”, mediante Fe de Erratas y publicada en el Alcance digital N° 60 a La Gaceta N° 87 del 7 de mayo de 2012)
+37. Aguacate
+38. Anona
+39. Banano
+40. Caña de azúcar
+41. Caimito
+42. Carambola
+43. Cas
+44. Coco
+45. Fresa
+46. Frambuesa
+47. Granadilla
+48. Guaba
+49. Guanábana
+50. Guayaba
+51. Guineo
+52. Jocote
+53. Limón ácido
+54. Limón dulce
+55. Mamón
+56. Mandarina
+57. Manga
+58. Mango
+59. Manzana de agua
+60. Manzana rosa
+61. Maracuyá
+62. Marañón
+63. Melón
+64. Mora o zarzamora
+65. Nance fresco
+66. Naranja
+67. Naranjilla
+68. Níspero
+69. Papaya
+70. Pejibaye
+71. Piña
+72. Pipa
+73. Pitahaya
+74. Plátano maduro o verde
+75. Sandía
+76. Tamarindo
+77. Yuplón
+78. Zapote
+Hortalizas, leguminosas y tubérculos
+Las siguientes hortalizas, leguminosas y tubérculos deben ser frescos, refrigerados o secos, excepto los enlatados, envasados o empacados en plástico sellado, salvo que se indique lo contrario.
+79. Ajo
+80. Apio
+81. Arracache
+82. Arvejas, incluyendo los empacados en plástico sellado
+83. Ayote
+84. Brócoli
+85. Camote
+86. Cebolla y cebollinos
+87. Chayote
+88. Chile dulce
+89. Chile picante
+90. Coliflor
+91. Cubaces, incluyendo los empacados en plástico sellado
+92. Culantro castilla
+93. Culantro coyote
+94. Elote en mazorca
+95. Espinaca
+96. Frijoles blancos y bayos, incluyendo los empacados en plástico sellado
+97. Frijoles negros, incluyendo los empacados en plástico sellado
+98. Frijoles rojos, incluyendo los empacados en plástico sellado
+99. Frijoles tiernos o nacidos, incluyendo los empacados en plástico sellado
+100. Garbanzos, incluyendo los empacados en plástico sellado
+101. Habas secas, incluyendo los empacados en plástico sellado
+102. Lechugas
+103. Lentejas, incluyendo los empacados en plástico sellado
+104. Malanga
+105. Mostaza
+106. Ñame
+107. Ñampí
+108. Papa
+109. Pepino
+110. Pipián
+111. Rábano
+112. Remolacha
+113. Repollo verde o morado
+114. Tiquizque
+115. Tomate
+116. Vainica
+117. Yuca
+118. Zanahoria
+119. pallo
+120. ucchini
+Panes y cereals
+121. Arroz blanco y arroz integral, fortificados sin ningún ingrediente adicional. Se excluye el arroz precocido.
+122. Arroz entero (en granza)
+123. Avena (harina y hojuelas o copos, no preparados)
+124. Bizcochos de maíz
+125. Fécula de maíz (maicena)
+126. Harina de maíz y masa de maíz
+127. Harinas finas y gruesas de trigo (corriente)
+128. Maíz cascado excepto el enlatado, envasado
+129. Maíz desgranado excepto el enlatado, envasado
+130. Pan a base de harina de trigo, levaduras naturales, agua, sal, grasa y cualquier otro ingrediente adicional, incluido el tostado y el molido
+131. Pan cuadrado a base de harina de trigo, levaduras naturales, agua, sal, grasa y cualquier otro ingrediente adicional, incluido el tostado
+132. Pan dulce a base de harina de trigo, levaduras naturales, agua, sal, azúcar, grasa y cualquier otro ingrediente adicional
+133. Pastas alimenticias (macarrones, fideos, espaguetis, caracoles, caracolitos, tornillitos, coditos, canelones, chop suey y otras pastas similares) sin ningún otro aditamento o ingrediente. Se exceptúan las pastas alimenticias rellenas.
+134. Preparaciones alimenticias en polvo o en bebidas para una nutrición completa y balanceada, del tipo de régimen especial según la norma Codex Alimentarium, excepto del tipo dietético, hidratantes energéticos, restituyentes isotónicos de minerales o similares usualmente para deportistas u otro preparado.
+135. Tamal de maíz
+136. Tortilla de harina de trigo excepto las fritas
+137. Tortilla de maíz, excepto las fritas.
 Productos alimenticios
-167. Cacao en polvo, sin adición de azúcar u otro edulcorante.
-168. Café, excepto el soluble, el descafeinado y el enlatado o envasado
-169. Hostias
-170. Sal refinada yodada
-171. Sirope de caña de azúcar, aromatizado y coloreado
-172. Vinagre
-(*) Productos lácteos y huevos
-173. Cuajada (no envasada)
-174. Huevos de gallina, frescos con cascarón
-175. Leche deslactosada
-176. Leche en polvo
-177. Leche agria
-178. Leche fórmula maternizada, en polvo
-179. Leche fresca o íntegra líquida
-180. Leche modificada y sucedáneos de leche
-181. Leche pasteurizada y ultrapasteurizada
-182. Natilla
-183. Queso sin ningún grado de maduración, incluido el queso fresco, sin ningún ingrediente adicional (blando, excepto el untable, semiduro, duro y extra duro), excepto el enlatado o el envasado.
-(*)(Corregido el subtítulo “Productos lácteos y huevos”, mediante Fe de Erratas y publicada en el Alcance digital N° 60 a La Gaceta N° 87 del 7 de mayo de 2012)
+138. Cacao en polvo, sin adición de azúcar u otro edulcorante.
+139. Café, excepto el soluble, el descafeinado y el enlatado o envasado
+140. Hostias
+141. Sal de todo tipo excepto la mineral
+142. Sirope de caña de azúcar, aromatizado y coloreado
+143. Miel de abeja natural
+144. Vinagre
+Productos lácteos y huevos
+145. Cuajada (no envasada)
+146. Huevos de gallina, frescos con cascarón
+147. Leche deslactosada
+148. Leche en polvo
+149. Leche agria
+150. Leche fórmula maternizada, en polvo
+151. Leche fresca o íntegra líquida
+152. Leche modificada y sucedáneos de leche
+153. Leche pasteurizada y ultrapasteurizada
+154. Natilla
+155. Queso sin ningún grado de maduración, incluido el queso fresco, sin ningún ingrediente adicional (blando, excepto el untable, semiduro, duro y extra duro), excepto el enlatado o el envasado.
 Prendas de vestir y calzado
-184. Calzado tipo escolar o colegial oficial (a juicio de la Administración Tributaria)
-185. Calzón plástico para bebé
-186. Pañales para bebé
-187. Uniforme escolar y colegial oficial que comprenda blusa o camisa, pantalón o enagua y medias (a juicio de la Administración Tributaria)
+156. Calzado tipo escolar o colegial oficial (a juicio de la Administración Tributaria)
+157. Calzón plástico para bebé
+158. Pañales
+159. Uniforme escolar y colegial oficial que comprenda blusa o camisa, pantalón o enagua y medias (a juicio de la Administración Tributaria)
 Artículos para la vivienda y servicio doméstico
-188. Candelas (excepto decoradas, coloreadas o aromáticas)
-189. Escoba de uso doméstico
-190. Fósforos o cerillas a granel o empacados
-191. Agua natural potable, excepto en recipientes de cualquier material
-192. Jabón para lavar moldeado o troquelado excepto preparaciones orgánicas tensoactivas usadas como jabón
-193. Leña
-194. Palas para basura de uso doméstico
-195. Palo de piso de uso doméstico
+160. Candelas (excepto decoradas, coloreadas o aromáticas)
+161. Escoba de uso doméstico
+162. Fósforos o cerillas a granel o empacados
+163. Agua natural potable, excepto en recipientes de cualquier material
+164. Jabón para lavar moldeado o troquelado excepto preparaciones orgánicas tensoactivas usadas como jabón
+165. Leña
+166. Palas para basura de uso doméstico
+167. Palo de piso de uso doméstico
 Bienes diversos
-196. Cepillo de dientes excepto los electrónicos
-197. Papel higiénico en todas sus presentaciones
-198. Pasta de dientes
-199. Toalla sanitaria
-200. Audífonos para no oyentes
-201. Calzado y plantillas ortopédicos hechos o adaptados a la medida para corregir defectos físicos, con receta médica
-202. Silla de ruedas
+168. Cepillo de dientes excepto los electrónicos
+169. Papel higiénico en todas sus presentaciones
+170. Pasta de dientes
+171. Toalla sanitaria
+172. Audífonos para no oyentes
+173. Calzado y plantillas ortopédicos hechos o adaptados a la medida para corregir defectos físicos, con receta médica
+174. Silla de ruedas
 II Bienes esenciales para la educación
-203. Antologías para fines educativos
-204. Bolígrafo desechable (que no se pueda remover o cambiar el depósito de tinta)
-205. Borrador o goma para borrar, de caucho o material plástico
-206. Colores para estudiantes, incluso en cajas con sus accesorios (témperas)
-207. Compás de uso escolar con o sin lápiz
-208. Crayones
-209. Cuaderno
-210. Diarios y periódicos
-211. Diccionario en cualquier formato o presentación
-212. Enciclopedias en cualquier formato o presentación
-213. Escuadras para uso escolar (únicamente las pequeñas, planas, hasta quince centímetros) y transportadores para uso escolar
-214. Goma cola o pegamentos de toda clase para uso escolar, en envases de contenido neto menor de 250 cc, excepto los preparados a base de caucho.
-215. Hojas de papel para portafolios
-216. Lápices de color para dibujar
-217. Lápices de mina negra con funda de madera para uso escolar (inciso arancelario 960910)
-218. Libro de texto para educación parauniversitaria
-219. Libro de texto para educación universitaria
-220. Libro de texto para preparatoria
-221. Libro de texto para primaria
-222. Libro de texto para secundaria
-223. Libros de prácticas y ejercicios teóricos
-224. Libros de texto en general
-225. Pastas para modelar (plastilina o plasticina)
-226. Regla escolar de medición hasta 30 cm
-227. Tajador o sacapuntas de bolsillo escolar
-228. Tiza en barritas
+175. Antologías para fines educativos
+176. Bolígrafo desechable (que no se pueda remover o cambiar el depósito de tinta)
+177. Borrador o goma para borrar, de caucho o material plástico
+178. Colores para estudiantes, incluso en cajas con sus accesorios (témperas)
+179. Compás de uso escolar con o sin lápiz
+180. Crayones
+181. Cuaderno
+182. Diarios y periódicos
+183. Diccionario en cualquier formato o presentación
+184. Enciclopedias en cualquier formato o presentación
+185. Escuadras para uso escolar (únicamente las pequeñas, planas, hasta quince centímetros) y transportadores para uso escolar
+186. Goma cola o pegamentos de toda clase para uso escolar, en envases de contenido neto menor de 250 cc, excepto los preparados a base de caucho.
+187. Hojas de papel para portafolios
+188. Lápices de color para dibujar
+189. Lápices de mina negra con funda de madera para uso escolar (inciso arancelario 960910)
+190. Libro de texto para educación parauniversitaria
+191. Libro de texto para educación universitaria
+192. Libro de texto para preparatoria
+193. Libro de texto para primaria
+194. Libro de texto para secundaria
+195. Libros de prácticas y ejercicios teóricos
+196. Libros de texto en general
+197. Pastas para modelar (plastilina o plasticina)
+198. Regla escolar de medición hasta 30 cm
+199. Tajador o sacapuntas de bolsillo escolar
+200. Tiza en barritas
+(Así reformado el listado de las mercancías "Canasta básica tributaria y bienes esenciales para la educación", por el artículo 1° del decreto ejecutivo N° 37132 del 17 de mayo de 2012)

@@ -14,3 +14,4 @@ Reforma Reglamento de la Ley de Impuesto General sobre las Ventas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-07 | la propia norma |
+| 2 | 2012-05-17 | Decreto Ejecutivo 37132 (2012-05-17) |
