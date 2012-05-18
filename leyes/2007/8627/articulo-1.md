@@ -1,4 +1,5 @@
 N° 8627
+(La Sala Constitucional mediante resolución N° 006416 del 18 de mayo de 2012 declaro “inconstitucional la omisión del título 210 de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2008, Ley #8627, de prever un monto equivalente o superior al 6% anual del PIB para la educación estatal.”)
 Artículo 1°: Apruébanse los siguientes Ingresos Ordinarios y Extraordinarios del Gobierno de la República para el Ejercicio Económico de 2008
 (Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 41 a La Gaceta N° 251 del 31 de diciembre de 2007).
 Autorizase al Poder Ejecutivo para emitir hasta ¢1.049.143.936.000,00 (UN BILLON CUARENTA Y NUEVE MIL CIENTO CUARENTA Y TRES MILLONES, NOVECIENTOS TREINTA Y SEIS MIL COLONES, SIN CÉNTIMOS). en Títulos Valores de Deuda Interna 2008.
