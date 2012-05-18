@@ -1,0 +1,4 @@
+IV.—Incidencias con el sistema informático
+1. A partir del momento en que finalice la implementación de los sistemas informáticos, cualquier incidencia o consulta que se genere por parte de jueces o auxiliares, con relación a errores, capacitación, uso de las herramientas, etc., serán reportados a Asistencia Tecnológica extensión 4777, quienes de acuerdo a los reportes del circuito atenderán la consulta.
+2. Luego quien reporta, deberá informar por correo electrónico a la Secretaría de la Inspección cuál fue el reporte realizado, a quién se lo asignaron, y cuándo se solucionó.
+3. La Secretaría llevará un documento electrónico denominado “Incidencias Tribunal de la Inspección Judicial”, allí se anotará el detalle de lo reportado y cuándo se le dio respuesta a la inquietud. De ser necesario y con la intención de unificar y estandarizar procesos se comunicarán a los compañeros los cambios o mejoras en los sistemas informatizados.
