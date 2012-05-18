@@ -1,0 +1,1 @@
+Artículo 4º—Horario. La Unidad del Servicio al Cliente únicamente recibirá documentos entre las 8:00 de la mañana y las 3:45 de la tarde. Los documentos que se presenten fuera de dicho horario, o ante funcionarios que no pertenezcan a la Unidad del Servicio al Cliente, se reputarán como no presentados para todos los efectos legales.

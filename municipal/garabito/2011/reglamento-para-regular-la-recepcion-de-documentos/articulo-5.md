@@ -1,0 +1,1 @@
+Artículo 5º—Distribución de la Correspondencia. Una vez que la Unidad del Servicio al Cliente haya recibido los documentos, los distribuirá, en el término de 24 horas, a las diferentes dependencias municipales a las que vayan dirigidos, debiendo dejar constancia de la entrega en un libro, que para tales efectos deberá llevar dicha unidad, debidamente ordenado, foliado.
