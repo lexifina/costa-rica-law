@@ -1,0 +1,1 @@
+Artículo 14°—La Red para operativizar sus procesos y hacer más ágil su articulación, desarrollará un manual de procedimientos en donde se establezca ampliamente la forma en que realizará sus funciones. Este manual deberá estar publicado en la página web del MEIC y el mismo podrá ser modificado según convenga al accionar de la Red.

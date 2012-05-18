@@ -1,0 +1,1 @@
+Artículo 28º—A efecto de obtener la condición PYME, conforme a los artículos precedentes del presente Capítulo de este Reglamento, el MEIC pondrá a disposición de la PYME, los medios tanto digitales como físicos para brindar la información requerida para obtener dicha condición; los cuales estarán a disposición de los interesados tanto en sus oficinas como en la página web.

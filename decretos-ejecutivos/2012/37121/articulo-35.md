@@ -1,0 +1,1 @@
+Artículo 35º—En caso de que las instituciones determinen que las empresas tratan de inducir a error o engaño para obtener los beneficios contemplados en la Ley, se les suspenderá el goce de estos. Lo anterior sin perjuicio de plantear las denuncias penales correspondientes ante el Ministerio Público.

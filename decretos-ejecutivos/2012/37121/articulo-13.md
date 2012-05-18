@@ -1,0 +1,2 @@
+Artículo 13°—La adhesión a la Red Institucional de Apoyo a PYME y emprendedores, por parte de cada institución u organización, estará sujeta a previa aprobación de la Dirección General de Apoyo de la Pequeña y Mediana Empresa (DIGEPYME).
+Tal adhesión se concretará mediante resolución, la cual establecerá las diferentes áreas de cooperación interinstitucional; asimismo, preverá la elaboración de planes de trabajo que contengan las acciones y programas especializados en atención a PYME y emprendedores.

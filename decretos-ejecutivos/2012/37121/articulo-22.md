@@ -1,0 +1,2 @@
+Artículo 22°— Para efectos de clasificar las actividades empresariales como industriales, comerciales o de servicios, se utilizarán las categorías de la Clasificación Industrial Internacional Uniforme de todas las Actividades Económicas de las Naciones Unidas (CIIU).
+Cuando exista una actualización del CIIU, la DIGEPYME, procederá mediante resolución administrativa a incorporar las partidas correspondientes. Esta resolución será publicada en el Diario Oficial La Gaceta.
