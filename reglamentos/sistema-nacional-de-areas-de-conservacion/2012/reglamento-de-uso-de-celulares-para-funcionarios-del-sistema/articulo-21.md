@@ -1,0 +1,1 @@
+Artículo 21.—Aspectos no contemplados en el presente reglamento. Los casos no previstos en este Reglamento, en materia de cuido y control de bienes, serán resueltos previa investigación por la Dirección Ejecutiva o la Dirección del Área de Conservación según corresponda.

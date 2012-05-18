@@ -1,0 +1,3 @@
+Artículo 15.—Adquisición de teléfonos (aparatos). La Proveeduría Institucional realizará los trámites de contratación para la adquisición de teléfonos celulares y sus accesorios.
+Los teléfonos celulares podrán ser cambiados únicamente cada dos años, salvo autorización escrita de las autoridades superiores. También podrán ser cambiados conforme a las políticas reguladoras del ente competente de la línea celular.
+El funcionario autorizado según el artículo tercero, podrá adquirir el teléfono celular de su propio peculio y podría utilizarlo con la línea celular que le suministre el SINAC en los términos que establece el presente reglamento.

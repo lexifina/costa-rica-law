@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento se aplicará a todos los funcionarios del Sistema Nacional de Áreas de Conservación, a quienes se les haya asignado línea y/o equipo de telefonía móvil (teléfono celular) con o sin sus respectivos accesorios

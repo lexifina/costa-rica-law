@@ -1,0 +1,1 @@
+Artículo 8º—Del desglose de las llamadas. La Administración y la Auditoría Interna, cuando lo consideren pertinente, podrán solicitar directamente al proveedor del servicio, un desglose de las llamadas que se efectúan de los teléfonos celulares asignados, como medida para controlar que se esté haciendo un uso adecuado y racional de este bien público.

@@ -1,0 +1,2 @@
+Artículo 18.—Llamadas Internacionales. Tendrán acceso a llamadas telefónicas internacionales, tanto entrantes como salientes, las líneas celulares asignadas a la Directora o Director Ejecutivo y Directores de Áreas de Conservación, siempre y cuando sean realizadas para atender asuntos estrictamente relacionados con el SINAC.
+Las demás líneas celulares, no especificadas en el párrafo anterior, únicamente tendrán derecho de acceso a llamadas internacionales entrantes, sin que esto genere ningún costo económico para la Administración.

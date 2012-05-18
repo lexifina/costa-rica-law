@@ -1,0 +1,1 @@
+Transitorio I.—Una vez publicado el presente reglamento, la Dirección Ejecutiva del SINAC, revisará la asignación de telefonía celular a los puestos no considerados en el artículo 3º, procediendo a revocar sin ninguna responsabilidad para la Administración, aquellos que no respondan a una verdadera y comprobada necesidad institucional.

@@ -1,0 +1,4 @@
+Artículo 13.—Incumplimientos y sanciones.
+a) En caso de incumplimiento a lo establecido en el presente Reglamento, se aplicará el Reglamento Autónomo de Servicio para funcionarios del MINAET y Reglamento de Control de Bienes del SINAC.
+b) Las sanciones por incumplimiento a las cláusulas del presente Reglamento, se aplicarán observando el debido proceso, acorde a la Ley General de la Administración Pública, el Código de Trabajo, el Reglamento Autónomo de Servicios del MINAET y las Leyes vigentes de la República de Costa Rica.
+c) El incumplimiento de las disposiciones contenidas en el presente Reglamento hará acreedor al funcionario de las medidas disciplinarias correspondientes, sin perjuicio de cualquier otro tipo de responsabilidad que conforme al ordenamiento jurídico le sean aplicables.

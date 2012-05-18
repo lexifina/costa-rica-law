@@ -1,0 +1,1 @@
+Artículo 22.—Disposiciones generales obligatorias. Las disposiciones de este Reglamento son de aplicación vinculante y obligatoria para todas las Unidades que conforman la organización del SINAC y para todos los funcionarios de la Institución.

@@ -1,0 +1,1 @@
+Artículo 24.—Revisión de tarifas. Las tarifas contenidas en el artículo noveno de este reglamento, serán revisadas anualmente por el Departamento de Servicios Generales y la Coordinación Administrativa de la Dirección Ejecutiva y sometidas a la aprobación del CONAC.
