@@ -1,0 +1,1 @@
+Artículo 18.- De la comunicación al ejecutor del contrato. El Departamento de Recursos Materiales comunicará a la unidad solicitante y al ejecutor del contrato, de la aprobación interna de los contratos, cuando corresponda, y el inicio del proceso de ejecución contractual.

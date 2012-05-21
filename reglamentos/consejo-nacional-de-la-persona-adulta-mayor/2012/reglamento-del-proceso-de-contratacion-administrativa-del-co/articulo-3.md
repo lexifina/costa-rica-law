@@ -1,0 +1,1 @@
+Artículo 3.- Interpretación. Para la interpretación de este Reglamento serán aplicables los principios que rigen la actividad contractual, establecidos tanto en la Ley de Contratación Administrativa y su Reglamento, como lo son eficiencia, eficacia, publicidad, libre competencia, igualdad, buena fe e intangibilidad patrimonial.

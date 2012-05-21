@@ -1,0 +1,4 @@
+Artículo 8.— Niveles de aprobación. Los procesos de contratación administrativa serán adjudicados de la siguiente forma:
+a.- La Junta Rectora adjudicará todas las contrataciones que se realicen por los procedimientos de licitación pública y abreviada. Además, adjudicará las contrataciones directas que superen el 50% del monto establecido para estos procesos, en el año presupuestario correspondiente.
+b.- La Dirección Ejecutiva adjudicará las contrataciones directas, cuando estas no superen el 50% del monto establecido para estos procesos en el año presupuestario correspondiente.
+En igual sentido corresponderá a la Junta Rectora como Jerarca del CONAPAM y a la Dirección Ejecutiva, declarar infructuosos o desiertos los procesos de licitación, según corresponda, y resolver los recursos de objeción al cartel y revocatoria, cuando estos sean incoados.

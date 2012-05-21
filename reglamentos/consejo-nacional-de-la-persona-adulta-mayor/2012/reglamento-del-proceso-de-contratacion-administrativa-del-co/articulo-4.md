@@ -1,0 +1,6 @@
+CAPÍTULO II
+Planificación de las contrataciones
+Artículo 4.- Del programa anual de adquisiciones. Todas las dependencias del CONAPAM deberán planificar sus necesidades de bienes y servicios.
+Los programas de adquisiciones serán confeccionados por los responsables de cada programa presupuestario, con el visto bueno de la Dirección Ejecutiva y remitidos al Departamento de Recursos Materiales (Proveeduría Institucional) a más tardar la segunda quincena del mes de noviembre de cada año, incluyendo la información solicitada en el artículo 7 del Reglamento a la Ley de Contratación Administrativa.
+El Departamento de Recursos Materiales revisará e integrará toda la información y procederá a la publicación del anuncio del programa anual de adquisiciones, en el Diario Oficial La Gaceta en primera quincena del mes de diciembre anterior al periodo presupuestario respectivo.
+Cualquier modificación al programa anual de adquisiciones, por concepto de modificaciones presupuestarias, presupuestos extraordinarios u otros motivos, deberá ser remitida al Departamento de Recursos Materiales, mediante solicitud formal, autorizada por la Dirección Ejecutiva en la que consten las razones para la modificación correspondiente y se procederá a la publicación del aviso de la modificación en el Diario Oficial La Gaceta, por parte del Departamento en mención.
