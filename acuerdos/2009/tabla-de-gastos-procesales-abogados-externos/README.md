@@ -14,3 +14,4 @@ Tabla de gastos procesales Abogados Externos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-20 | la propia norma |
+| 2 | 2012-05-21 | Acuerdo 0 (2012-05-21) |
