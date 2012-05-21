@@ -1,0 +1,6 @@
+Artículo 7º—Para el análisis correspondiente en cuanto a la justificación y recomendación correspondientes y previo a la aprobación de la representación institucional, deberá documentarse al menos los siguientes requisitos:
+a) Atestados o información relativa al o los organizadores de la actividad, a efectos de determinar la relevancia y pertinencia, de los organizadores, de la actividad y determinar eventuales conflictos de interés, entre otros.
+b) Descripción breve del objeto y la finalidad de la actividad, con el objeto de analizar la pertinencia y el grado de relevancia para el interés de la Superintendencia y la satisfacción del interés público.
+c) Justificación que permita tener claro y demostrar la relación entre la actividad y el interés institucional y la satisfacción del interés público.
+d) Determinación del nivel protocolario y jerárquico del evento, así como la necesidad o no de la representación legal, con indicación del correlativo nivel jerárquico dentro de la Superintendencia que corresponde a la actividad de que se trate.
+e) Breve análisis de la persona propuesta o solicitante en relación al grado de idoneidad y calificación para participar como representante de la Superintendencia de Telecomunicaciones, respecto del resto del recurso humano de la institución.

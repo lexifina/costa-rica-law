@@ -1,0 +1,1 @@
+Artículo 17.—Dictado el acto de aprobación por el Consejo, el Secretario deberá notificar a la Dirección General Operativa a efectos de tramitar lo correspondiente, de acuerdo a la normativa aplicable.

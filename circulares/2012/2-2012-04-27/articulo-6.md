@@ -1,0 +1,6 @@
+Artículo 6º—Para determinar los casos de representación institucional se deberá considerarse los siguientes criterios o parámetros:
+a) El carácter, naturaleza, objeto y fin del o los organizadores de la actividad. (por ejemplo, las Autoridades Nacionales de Regulación);
+b) El objeto y la finalidad de la actividad en particular a participar (por ejemplo, el intercambio regular de información como esta previsto en la Ley);
+c) La relevancia para el interés institucional de la Superintendencia de Telecomunicaciones, y la satisfacción del interés público, en la participación de la actividad de que se trate (por ejemplo, el hecho de que la mayoría de los operadores también están operando y activos en otras jurisdicciones);
+d) El nivel protocolario y jerarquía de la actividad, y la necesidad de la representación legal, a efectos de determinar la representación mediante la Presidencia del Consejo, o de alguno de sus miembros;
+e) Las capacidades, experiencia, y demás aspectos pertinentes del o la funcionario(a) que se propone para representar a la institución, de manera tal que se garantice la participación del recurso humano institucional más idóneo y calificado, según los parámetros anteriores.

@@ -1,0 +1,2 @@
+Artículo 19.—Las presentes disposiciones derogan cualesquier otra disposición de carácter normativo y general dictada anteriormente, entre ellas pero sin limitarse a, en lo que corresponda el acuerdo 004-072-2011, de la sesión ordinaria 072-2011, celebrada el 14 de setiembre del 2011.
+En lo no contemplado por este instrumento se regirá por las disposiciones de la Ley General de la Administración Pública y la Ley de la Autoridad Reguladora de los Servicios Públicos.

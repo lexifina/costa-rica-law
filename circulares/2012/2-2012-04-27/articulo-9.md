@@ -1,0 +1,15 @@
+CAPÍTULO III
+SECCIÓN I
+Responsabilidades
+Artículo 9º—La Dirección General de Operaciones y específicamente el departamento de Recursos Humanos, son los responsables del cumplimiento de los objetivos planteados, dentro de la ejecución de los principios y políticas emanadas por el Consejo de SUTEL como órgano administrativo superior. Para ello deberá ejecutar las siguientes funciones:
+a) Elaborar en forma anual y en coordinación con las jefaturas correspondientes, el Proyecto de Plan de Representación Institucional Internacional, el cual debe incluir en forma explícita las consideraciones necesarias para establecer prioridades de representación en ese año y el contenido presupuestario necesario para llevarlo a cabo, y someterlo a conocimiento de Consejo para su aprobación.
+b) Coordinar la planificación de la representación internacional, facilitar tanto esa planificación como la ejecución del plan, velar por su cumplimiento, y desarrollar la búsqueda y propuesta continua de las mejores opciones de representación internacional. Sin embargo, la fijación de los objetivos que dicha representación persiga, la búsqueda y administración del uso de esos recursos, corresponde a las distintas áreas funcionales de la Institución y debe integrarse dentro de sus metas.
+c) Velar por la ejecución del Plan de Representación Internacional y darle seguimiento, contemplando criterios para asignar prioridades en la selección de actividades, tomando en cuenta como prioridad las relacionadas directamente con organizaciones de reguladores.
+d) Propiciar la decisión conjunta entre las respectivas direcciones, en los casos en que haya dos o más funcionarios de diferentes áreas con capacidad y conocimiento para ejercer una representación.
+e) Recibir las solicitudes de las Direcciones para que sus funcionarios o su persona participen en actividades de representación internacional, a efectos de que el Consejo aprueba acogiendo la recomendación o designando otro funcionario, o denegando la participación.
+f) Recomendar y preparar la información necesaria a presentar al Consejo de la SUTEL, en cuanto a los costos y disponibilidad presupuestaria de la institución, para cumplir con las solicitudes planteadas.
+g) Velar que la representación internacional que se realice, se ajuste a lo que establece el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos, expedido por la Contraloría General de la República.
+h) Velar porque quienes deban hacerlo rindan el informe sobre la representación internacional que reciban y, transmitan los acuerdos alcanzados, las propuestas recibidas o los conocimientos adquiridos, según sea el caso.
+i) Determinar, en consulta con la jefatura del beneficiario, en qué casos resulta necesaria la difusión de conocimientos para beneficio de toda la SUTEL.
+j) Informar al Consejo, cuando éste así lo disponga, sobre el avance del Plan de Representación y la transferencia de conocimientos y experiencias.
+k) Desarrollar la plataforma electrónica interna necesaria para que todos los recursos digitales de la representación puedan ser compartidos por toda la institución.

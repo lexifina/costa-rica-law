@@ -1,0 +1,1 @@
+Artículo 2º—La representación institucional tanto a nivel nacional como internacional será aprobada mediante acto debidamente motivado por el Consejo de la SUTEL, previo informe o dictamen de la Dirección General de Operaciones sobre la justificación, disponibilidad presupuestaria y recomendación correspondiente, de acuerdo con el artículo 17 de este instrumento.

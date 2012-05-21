@@ -1,0 +1,1 @@
+Artículo 3º—En ambos casos de representación institucional a nivel nacional o internacional, el acto de aprobación correspondiente, autorizará el pago de gastos de viaje o viáticos y de transporte, que correspondan, de acuerdo con el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República.

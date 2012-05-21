@@ -1,0 +1,6 @@
+CAPÍTULO II
+De la representación institucional
+Artículo 5º—La representación institucional corresponde al carácter oficial de un funcionario de la Superintendencia de Telecomunicaciones, en ejercicio de su cargo, que representa a la institución, sea en forma ocasional, en actividades, foros o eventos específicos de interés institucional; o en forma permanente organismos internacionales o multilaterales ante los cuales la Superintendencia de Telecomunicaciones está obligado a tener un representante por disposición de ley.
+El intercambio regular de información con otras entidades reguladoras nacionales (según artículo 52 párrafo final de la Ley General de Telecomunicaciones) se considerará como actos de representación institucional.
+Dada la trascendencia, jerarquía y protocolo de la actividad de que se trate la representación institucional debe ser asumida en principio por el Consejo de la SUTEL o por alguno de sus miembros.
+En caso de otras circunstancias como la participación de Grupos de Trabajo, participación en ponencias en distintos foros, o invitaciones de organismos, y considerando la naturaleza, objeto y finalidad de los mismos, y sin que sea necesario de un apoderado o representante legal de la SUTEL, será más conveniente que la representación institucional recaiga sobre el recurso humano más idóneo y calificado.

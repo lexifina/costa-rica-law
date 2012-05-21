@@ -1,0 +1,1 @@
+Artículo 15.—La solicitud será remitida al Departamento de Recursos Humanos de la Dirección General Operativa, a fin de que la Jefatura de ese departamento rinda un informe o dictamen respecto de las condiciones del artículo 7 y emita el análisis respectivo con su recomendación al Consejo, para el acto de aprobación de acuerdo a lo establecido por este instrumento.

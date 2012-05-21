@@ -1,0 +1,1 @@
+Artículo 14.—Cuando corresponda, la solicitud de aprobación de la representación institucional ante el Consejo, deberá contener como mínimo, los requisitos de la justificación que se indican en el artículo 7 del presente instrumento, y deberá acompañarse del informe o dictamen respectivo emitido por el Departamento de Recursos Humanos.
