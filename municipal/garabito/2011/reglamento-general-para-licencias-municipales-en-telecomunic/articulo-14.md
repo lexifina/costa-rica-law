@@ -1,0 +1,1 @@
+Artículo 14.—No se otorgará la certificación del uso de suelo conforme en áreas de protección de ríos, monumentos públicos, zonas de protección histórico-patrimonial, zonas de urbanizaciones donde no se no estipule como uso comercial, ni en zona marítimo terrestre y donde sea expresamente prohibido por la legislación nacional.
