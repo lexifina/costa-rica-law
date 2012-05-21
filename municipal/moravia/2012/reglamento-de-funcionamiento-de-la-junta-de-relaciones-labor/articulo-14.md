@@ -1,0 +1,1 @@
+Artículo 14.—De la representación del presidente. La persona que asuma la Presidencia de la Junta de Relaciones Laborales será quien represente oficialmente a la misma, ante toda otra institución pública o privada, y como tal será portavoz de la misma para efectos de representación.

@@ -1,0 +1,1 @@
+Artículo 34.—Del deber de colaboración de los funcionarios municipales. Todo el personal de la Municipalidad de Moravia deberá colaborar con la Junta de Relaciones Laborales y brindarle las facilidades e información pertinente para el cumplimiento adecuado de sus funciones, quedando obligado a atender sus solicitudes en un plazo que legalmente correspondan.

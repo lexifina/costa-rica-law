@@ -1,0 +1,1 @@
+Artículo 7º—De la conducta de los integrantes de la Junta. Quienes integren la Junta de Relaciones Laborales, están en obligación, no sólo por la representación que ostentan y según la designación que se les ha hecho, a dar ejemplo y conservar una actitud ética y confidencial en el cumplimiento de todas las normas emanadas de la Municipalidad, y leyes pertinentes.

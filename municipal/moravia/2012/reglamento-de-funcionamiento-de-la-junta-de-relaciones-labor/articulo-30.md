@@ -1,0 +1,1 @@
+Artículo 30.—Del trámite de urgencia. Conocido un trámite en el seno de la Junta, esta podrá calificarlo como de trámite preferente, en razón de la urgencia de su resolución, en cuyo caso, este será tramitado preferentemente con respecto a otras gestiones e incluso se podrá convocar sesiones extraordinarias dedicadas exclusivamente a su resolución.

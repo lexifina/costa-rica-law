@@ -1,0 +1,1 @@
+Artículo 19.—De las sesiones. Las sesiones de la Junta de Relaciones Laborales serán privadas, no obstante, la Junta podrá por acuerdo disponer la publicidad de una o varias sesiones, cuando así lo estimen conveniente y dada la confidencialidad del caso a tratar.

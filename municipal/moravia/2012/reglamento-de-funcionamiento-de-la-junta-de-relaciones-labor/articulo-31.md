@@ -1,0 +1,1 @@
+Artículo 31.—De la comunicación de los acuerdos. Todo lo resuelto por la Junta de Relaciones Laborales será debidamente comunicado a los interesados y se dejará constancia mediante acta de dicha comunicación. Una vez comunicados los acuerdos, de forma inmediata se trasladarán a la Alcaldía, con carácter de recomendación para que esta resuelva en definitiva.

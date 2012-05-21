@@ -1,0 +1,1 @@
+Artículo 17.—De las suplencias. La persona suplente que sustituya al titular habrá de manifestarlo al inicio de cada sesión, para que conste en actas y se mantendrá en condición propietaria hasta el final de la sesión. El mismo procedimiento se observa en el caso de que una persona miembro deba de retirarse de la sesión.

@@ -1,0 +1,1 @@
+Artículo 10.—Del nombramiento del presidente. El presidente de la Junta deberá ser nombrado en la primera sesión que se realice para la entrada en función de la misma, y de forma anual podrá ser reelecto por decisión de cada una de las partes.

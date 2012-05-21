@@ -1,0 +1,1 @@
+Artículo 2º—De la naturaleza. La Junta de Relaciones Laborales de la Municipalidad de Moravia, tiene carácter de órgano permanente, y representativo en el que se integran la Administración de la Municipalidad de Moravia y SITRAMUMO, conforme lo establece la Convención Colectiva vigente.

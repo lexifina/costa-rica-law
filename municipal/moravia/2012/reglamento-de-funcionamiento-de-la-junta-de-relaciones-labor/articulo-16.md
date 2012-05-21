@@ -1,0 +1,1 @@
+Artículo 16.—Del quórum de las sesiones. El quórum estará formado por la mitad más uno de la totalidad de integrantes de la Junta de Relaciones Laborales. Para formar quórum se tendrán como válidamente representantes a las personas suplentes, siempre y cuando a la hora límite (quince minutos posteriores a la hora de inicio) la persona propietaria no se haya presentado.

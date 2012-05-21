@@ -1,0 +1,1 @@
+Artículo 18.—De los acuerdos. La Junta de Relaciones Laborales tomará sus acuerdos por mayoría simple de las personas presentes con derecho a voto, y en caso de empate se tendrán por existentes las distintas propuestas y para tomar acuerdo sobre una de estas se utilizará la suerte como en el caso de las elecciones.

@@ -1,0 +1,1 @@
+Artículo 20.—Del uso de la palabra durante las sesiones. Cada representante de la Junta de Relaciones Laborales, tendrá derecho al uso de la palabra durante un máximo de cinco minutos, no obstante quien presenta una moción cuenta en el uso de la palabra, con un periodo doble al señalado anteriormente.

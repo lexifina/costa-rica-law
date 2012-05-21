@@ -1,0 +1,1 @@
+Artículo 8º—Del cumplimiento de las funciones encomendadas. Las personas integrantes de la Junta de Relaciones Laborales gozarán de todas las facilidades necesarias para cumplir eficazmente las tareas que les sean encomendadas, teniendo para ello libre acceso a los documentos relacionados con el caso que se conoce.

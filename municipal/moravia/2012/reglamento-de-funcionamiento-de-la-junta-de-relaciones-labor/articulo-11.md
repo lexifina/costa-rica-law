@@ -1,0 +1,1 @@
+Artículo 11.—Del nombramiento del vicepresidente y de la secretaría. El Vicepresidente y la Secretaría de la Junta de Relaciones Laborales será ejercida por períodos de un año pudiendo ser reelectos por decisión de las partes.
