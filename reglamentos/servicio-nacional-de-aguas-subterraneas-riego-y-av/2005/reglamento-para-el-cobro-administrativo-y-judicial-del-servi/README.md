@@ -14,3 +14,4 @@ Reglamento Para el Cobro Administrativo y Judicial del Servicio Nacional de Agua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-21 | la propia norma |
+| 2 | 2012-05-21 | Reglamento 615 (2012-05-21) |

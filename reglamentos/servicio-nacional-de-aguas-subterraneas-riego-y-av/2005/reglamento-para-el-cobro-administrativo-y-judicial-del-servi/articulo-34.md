@@ -1,5 +1,6 @@
 SECCIÓN IV
-De las sanciones a los abogados externos contratados por el SENARA
+De las sanciones a los abogados
+externos contratados por el SENARA
 Artículo 34.—Resolución del contrato de servicios profesionales. Se resolverá automáticamente el contrato por servicios profesionales cuando se den las siguientes situaciones de incumplimientos:
 a. Cuando el abogado externo infrinja las prohibiciones establecidas en este Reglamento.
 b. Cuando incumpla cualquier condición establecida en el respectivo contrato de servicios profesionales sancionada con la resolución del contrato.
