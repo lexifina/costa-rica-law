@@ -1,0 +1,5 @@
+COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+La Junta de Gobierno en la Sesión Extraordinaria 2012-04-13 celebrada el 13 de abril del año dos mil doce, acuerda lo siguiente:
+Reformar la normativa vigente para el examen médico de licencias de julio del 2009, en su artículo 3 para que diga:
+Artículo 3º—Requisitos del documento: inciso c) “Para la elaboración del certificado el interesado debe aportar el examen de laboratorio correspondiente al grupo sanguíneo y RH. El médico debe custodiar una copia del examen en el expediente del paciente. Cuando se trate de renovación de licencia, el médico obtendrá dicha información del examen de laboratorio que aporte el interesado o bien de cualquier otra fuente que le merezca credibilidad. Es responsabilidad del usuario solicitante, el reportar al médico cualquier error que se consigne o haya consignado en dictámenes previos relacionados con su grupo sanguíneo o su RH”.
+Publíquese esta reforma en La Gaceta y por medio del Boletín Informativo en la página web del Colegio de Médicos y Cirujanos. Comuníquese a las entidades interesadas por medio de oficio (COSEVI y Colegio de Microbiólogos de Costa Rica).
