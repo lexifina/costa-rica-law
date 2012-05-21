@@ -1,0 +1,1 @@
+Artículo 3º—Funciones de la unidad responsable de compras. En el ejercicio de sus funciones la unidad responsable de compras cumplirá con lo establecido en el Reglamento para el funcionamiento de las Proveedurías Institucionales de los Ministerios del Gobierno, Decreto Ejecutivo N° 30640-H.
