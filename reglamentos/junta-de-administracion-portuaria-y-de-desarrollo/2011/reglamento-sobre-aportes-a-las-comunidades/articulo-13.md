@@ -1,0 +1,1 @@
+Artículo 13.—Los aportes destinados a las actividades deportivas, sociales y culturales serán conocidos por la Comisión de Ayudas Comunales, y la Gerencia de Desarrollo será la encargada de someterlo a aprobación del Consejo de Administración.

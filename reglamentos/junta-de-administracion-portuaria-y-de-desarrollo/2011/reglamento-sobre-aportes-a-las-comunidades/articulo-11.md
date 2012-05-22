@@ -1,0 +1,2 @@
+Artículo 11.—Con el propósito de evaluar las solicitudes para que sean incluidas en el presupuesto ordinario del siguiente año, los diferentes departamentos, secciones y unidades contarán con la logística administrativa (transporte automotor, recurso económico para gastos de viaje) y personal necesario.
+Estas solicitudes serán recibidas por el departamento, sección y/o la secretaría de la Comisión hasta el último día del mes de junio de cada año y se tramitarán para su resolución a más tardar el 30 de agosto del mismo año.

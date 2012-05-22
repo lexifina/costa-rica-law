@@ -1,0 +1,1 @@
+Artículo 30.—Para llevar a cabo las funciones asignadas, los diferentes Departamentos contaran con los recursos necesarios, para lo cual presentará a la Comisión un plan de necesidades con su respectivo presupuesto, lo anterior lo hará conjuntamente con el plan indicado en el artículo anterior, permitiendo de esta manera presupuestar para el año siguiente.

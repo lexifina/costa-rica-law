@@ -1,0 +1,1 @@
+Artículo 35.—Las decisiones de la Comisión se tomarán por mayoría de votos o la mitad más uno. El quórum lo conforman tres miembros y las decisiones se tomarán por mayoría de votos. El Presidente será el Gerente de Desarrollo.

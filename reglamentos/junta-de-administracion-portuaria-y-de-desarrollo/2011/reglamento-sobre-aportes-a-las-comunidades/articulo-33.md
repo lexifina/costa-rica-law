@@ -1,0 +1,2 @@
+De la Comisión de Ayudas Comunales
+Artículo 33.—Las solicitudes que la Comisión apruebe serán aquellas que por su índole se enmarquen dentro del Plan de Desarrollo Regional pudiendo recomendar entre otras las siguientes obras: de infraestructura vial, obras de inversión para infraestructura comunal, compra de bienes y servicios, obras de emergencia, drenajes, maquinaria y equipo, salud y deportes y obra de inversión para la producción y turismo infraestructura educativa, asistencia técnica, logística y colaboración de funcionarios.

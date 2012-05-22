@@ -1,0 +1,1 @@
+Artículo 28.—El último día del mes de julio de cada año, las Unidades correspondientes deberán presentar a la Gerencia de Desarrollo un listado de aportes, con la evaluación técnica y la viabilidad de ejecutar el proyecto, para la elaboración del Presupuesto Ordinario del año siguiente.

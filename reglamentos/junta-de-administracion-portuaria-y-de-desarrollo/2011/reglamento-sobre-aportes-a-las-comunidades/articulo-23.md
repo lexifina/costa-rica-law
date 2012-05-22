@@ -1,0 +1,1 @@
+Artículo 23.—Los representantes de las organizaciones beneficiarias deben brindar a los funcionarios de la Auditoría Interna, Unidad de Control Interno e Inspectores de JAPDEVA a cargo, Inspectores de la Contraloría General de la República, cualquier tipo de información, que se les solicite relacionada con el aporte recibido.

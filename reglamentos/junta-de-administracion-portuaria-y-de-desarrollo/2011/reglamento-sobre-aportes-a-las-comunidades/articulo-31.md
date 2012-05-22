@@ -1,0 +1,1 @@
+Artículo 31.—Las Unidades respectivas serán los responsables de fiscalizar el buen manejo de los aportes, por lo que deberá ejercer control permanente y oportuno de la ejecución de los trabajos y del destino de los fondos, deberá ajustarse en un todo al presente Reglamento.

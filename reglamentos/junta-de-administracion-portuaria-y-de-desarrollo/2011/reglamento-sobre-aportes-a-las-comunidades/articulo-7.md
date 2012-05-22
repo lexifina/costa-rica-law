@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión de Ayudas Comunales evaluará las diferentes solicitudes, verificando se ajusten al contenido del Plan de Competitividad Territorial, para ello tomará en cuenta el criterio técnico y la disponibilidad presupuestaria que deberá realizar la Sección o Departamento competente.

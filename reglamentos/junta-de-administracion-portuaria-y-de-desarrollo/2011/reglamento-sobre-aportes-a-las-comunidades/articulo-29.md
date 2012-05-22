@@ -1,0 +1,1 @@
+Artículo 29.—Para una distribución de los aportes, las Unidades respectivas a través de las Jefaturas de Departamentos entregarán un plan de necesidades por cantón de las diferentes comunidades de la provincia, ajustados en un todo al Plan Competitividad Territorial. Este estudio será sometido a consideración de la Comisión, quien lo elevará ante el Consejo de Administración.

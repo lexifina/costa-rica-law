@@ -1,0 +1,1 @@
+Artículo 15.—Las Unidades o Departamentos respetivos rendirán un informe bimestral a la Comisión de Ayudas Comunales sobre el avance de los trabajos y su ejecución. Cualquier anomalía detectada por incumplimiento del presente Reglamento deberá ser notificada y procederá a investigar de oficio a la organización respectiva y tomará las medidas correctivas.

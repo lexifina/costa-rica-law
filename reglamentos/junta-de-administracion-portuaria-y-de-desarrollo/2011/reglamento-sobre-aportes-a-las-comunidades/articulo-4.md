@@ -1,0 +1,3 @@
+CAPÍTULO II
+Disposiciones Generales
+Artículo 4º—De la Comisión de Ayudas Comunales. La Comisión de Ayudas Comunales estará integrada por CINCO miembros, de los cuales TRES serán miembros del Consejo de Administración de JAPDEVA y serán designados por el mismo. El cuarto y quinto integrantes serán el Gerente General y el Gerente de la Administración de Desarrollo. Esta Comisión contara con el personal de apoyo designado por la misma en las decisiones que se adopten, dicho personal tendrá voz pero no voto. El plazo de nombramiento como miembros de la comisión será de un año, pudiendo ser reelegidos por periodos iguales.

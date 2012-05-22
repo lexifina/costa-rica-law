@@ -1,0 +1,2 @@
+Del Presupuesto
+Artículo 14.—Las ayudas que brinde la Institución serán tramitadas de conformidad con el procedimiento que indica el Artículo 6 de este Reglamento. Se exceptúan los aportes en especie (material, equipo y maquinaria, asistencia técnica) para lo cual se requiere únicamente el previo acuerdo de la Comisión y del Consejo de Administración, y que se encuentren dentro de la planificación mensual de la Administración de Desarrollo y hayan sido presupuestados por el objeto del gasto.
