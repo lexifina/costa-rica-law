@@ -1,0 +1,2 @@
+Artículo 27°- Sobre la entrega del reconocimiento y divulgación de las organizaciones reconocidas.
+El Ministro de Ambiente, Energía y Telecomunicaciones, a través de los organizadores, comunicará a las organizaciones en el mes de setiembre los resultados de la evaluación. El listado de organizaciones reconocidas se divulgará en los medios de comunicación masivos y se publicarán en el sitio web del MINAET, además se realizará un acto público en el mes de diciembre de cada año en donde se hará entrega oficial del reconocimiento.

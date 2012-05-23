@@ -1,0 +1,3 @@
+Artículo 24°- Aceptación de requisitos y criterios de reconocimientos y/o certificaciones
+internacionales o nacionales por parte del SIREA.
+En el caso que una Organización cuente con una certificación o reconocimiento de carácter ambiental, otorgada por un ente que esté acreditado para otorgar dicha certificación bajo un sistema de certificación internacional o nacionalmente reconocido, podrá solicitar al Organizador en el plazo contemplado en el artículo 20° de este reglamento la aceptación de los criterios de evaluación, siempre y cuando sean coincidentes con los establecidos en los respectivos reconocimientos iniciales.
