@@ -7,8 +7,8 @@ d) Al conductor que circule un vehículo sin parabrisas o con la visibilidad obs
 e) Al conductor de un vehículo de carga que viole las disposiciones del artículo 101 de esta Ley.
 f) Al conductor que circule con vehículos para competencia de velocidad, en contravención de lo dispuesto en el artículo 110 de esta Ley.
 g) Al conductor de un vehículo de transporte de carga limitada (taxi carga), que viole las disposiciones del artículo 99 de la presente Ley.
-h) A quien se estacione en contra de lo dispuesto en los incisos b), c), ch), *(d)), e), f), g), h) e i) del artículo 96 de esta Ley. La misma sanción se impondrá al propietario o, en ausencia de este, al gerente o administrador del establecimiento público o privado que infrinja lo dispuesto por el inciso i) del artículo 96 de la presente Ley.
-(*)(La Sala Constitucional mediante resolución N° 3940 del 21 de marzo de 2012, anuló del inciso anterior lo dispuesto en relación con el inciso d) del artículo 96 de esta Ley. En el mismo sentido indica la Sala en dicha resolución que: “se tiene por vigente el monto de la multa que se aplicaba antes del establecimiento del monto de multa que aquí se anula…”, misma que dispone que:
+h) A quien se estacione en contra de lo dispuesto en los incisos *(b)), c), ch), *(d)), e), f), g), h) e i) del artículo 96 de esta Ley. La misma sanción se impondrá al propietario o, en ausencia de este, al gerente o administrador del establecimiento público o privado que infrinja lo dispuesto por el inciso i) del artículo 96 de la presente Ley.
+(*)(La Sala Constitucional mediante resoluciones N° 3940 del 21 de marzo de 2012 y N° 6877 del 23 de mayo de 2012, anuló del inciso anterior lo dispuesto en relación con los incisos b) y d) del artículo 96 de esta Ley. En el mismo sentido indica la Sala en ambas resoluciones que: “se tiene por vigente el monto de la multa que se aplicaba antes del establecimiento del monto de multa que aquí se anula…”, misma que dispone que:
 “Se impondrá una multa de cinco mil colones…
 k) Al propietario o conductor que se estacione en contra de lo dispuesto en… esta Ley.” *Ver en este sentido el inciso k) del artículo 131 de la versión N° 9 de esta Ley, antes del corre de numeración hecho por la Ley N° 8696 del 17 de diciembre de 2008.)
 i) Al conductor que incurra en las prohibiciones contenidas en el artículo 123 de esta Ley.
@@ -17,6 +17,6 @@ k) A la persona que dañe, altere o les dé un uso no autorizado a las señales 
 l) A la persona que no atienda la prohibición establecida en el artículo 118 de esta Ley.
 Además de pagar la multa respectiva, el infractor deberá quitar todo obstáculo que entorpezca la lectura de las señales de tránsito, así como la circulación de los vehículos o la visibilidad de las vías.
 ll) A la persona que cierre una vía o le dé los usos indebidos que señala el artículo 126 de esta Ley; se exceptúa de la aplicación de este artículo lo dispuesto en el inciso j) del artículo 132 de esta Ley.
-Así reformado por el inciso p) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008)
+(Así reformado por el inciso p) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008)
 (Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 132 al 133)
 (NOTA DE SINALEVI: con respecto al salario base para el cálculo de la multa aquí establecida ver OBSERVACIONES a la Ley)
