@@ -1,0 +1,1 @@
+Artículo 14.—En cuanto a la potestad de disciplinar, todos los miembros están sometidos al colegio, en cuanto obligados a intervenir en el procedimiento colegial tal y como ha sido determinado por la Presidencia o por el Consejo mismo como unidad.

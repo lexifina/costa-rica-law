@@ -1,0 +1,1 @@
+Artículo 58.— El (la) Secretario(a) del Consejo o quien éste designe, deberá verificar si el acto de comunicación requiere incorporar o incluir algún informe, dictamen, criterio o documento que fuera necesario comunicar como parte de la motivación del acuerdo del Consejo, según lo dispuesto por los artículos 335 y 136.2 de la Ley General de la Administración Pública.

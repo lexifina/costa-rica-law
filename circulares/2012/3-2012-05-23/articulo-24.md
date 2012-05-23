@@ -1,0 +1,1 @@
+Artículo 24.—De la votación. La votación es necesaria para la formación del acto colegial del Consejo. Es un acto oral, sujeto a documentación solemne conforme dispone el artículo 56 de la Ley General de la Administración Pública.

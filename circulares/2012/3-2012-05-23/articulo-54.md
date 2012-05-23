@@ -1,0 +1,1 @@
+Artículo 54.—Las actas estarán debidamente foliadas, consecutiva y ascendentemente y se empastarán en forma de libro, el que será legalizado por la Auditoría Interna de la Autoridad Reguladora, a solicitud del Secretario del Consejo .

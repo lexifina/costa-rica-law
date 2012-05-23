@@ -1,0 +1,1 @@
+Artículo 46.—Los acuerdos adoptados quedarán firmes al momento de aprobarse el acta de la sesión de que se trate, salvo que por motivos de urgencia y por mayoría absoluta de los miembros del Consejo, se decida adoptarlos en firme.

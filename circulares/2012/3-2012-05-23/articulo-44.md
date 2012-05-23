@@ -1,0 +1,1 @@
+Artículo 44.—En las votaciones, cualquiera que sea su naturaleza, los miembros deberán dar su voto necesariamente en sentido afirmativo o negativo. En toda votación, exceptuando las nominales el miembro levantará una de sus manos cuando su voto sea afirmativo. Se entenderá que quienes no lo hagan estarán votando negativamente y deben fundamentar su voto.

@@ -1,0 +1,1 @@
+Artículo 9º—El Directorio deberá ser nombrado de entre los miembros del Consejo, con un mes calendario de anticipación al vencimiento del nombramiento anterior del Directorio en vigencia, a efectos de inscribir en el Registro Público Nacional los poderes correspondientes y dar continuidad sin ningún contratiempo a la representación legal de la institución.

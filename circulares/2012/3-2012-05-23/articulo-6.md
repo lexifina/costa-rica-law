@@ -1,0 +1,1 @@
+Artículo 6º—La Vicepresidencia reemplazará la Presidencia en las ausencias temporales de ésta. En caso de falta definitiva o renuncia de alguno de los miembros del directorio, deberá procederse a la reposición del mismo, mediante la forma y procedimiento que señala la Ley de la Autoridad Reguladora de los Servicios Públicos, ley Nº 7593.

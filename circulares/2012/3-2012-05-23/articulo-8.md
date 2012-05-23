@@ -1,0 +1,1 @@
+Artículo 8º—Los miembros del Directorio del Consejo serán nombrados entre los miembros del órgano colegiado, por la mayoría absoluta de ellos y durarán en sus funciones un año, pudiendo ser reelectos, conforme el artículo 49 de la Ley General de la Administración Pública.

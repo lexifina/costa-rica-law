@@ -1,0 +1,10 @@
+CAPÍTULO IV
+Del procedimiento administrativo colegial
+SECCIÓN I
+Convocatoria, orden del día, participación y votación
+Artículo 31.—Convocatoria. La convocatoria es el acto en virtud del cual se cita a los miembros del Consejo para una reunión, llamada sesión, en la que se habrá de discutir y votar un temario, llamado orden del día. Corresponde normalmente al Presidente y en su ausencia ala Vicepresidente.
+El Presidente tendrá la iniciativa para realizar la convocatoria, sin embargo, cualquier miembro propietario del Consejo podrá pedir al Presidente convocar e incluir en el orden del día un asunto a discutir, siendo vinculante para el Presidente.
+La convocatoria debe ser comunicada por escrito y por un medio auténtico a todos los miembros del Consejo. La omisión de la notificación a los miembros constituye un vicio en la sesión. La comunicación de la convocatoria a sesiones la hará el Secretario del Consejo, a solicitud del Presidente.
+La convocatoria debe hacerse con una anticipación de al menos treinta y seis (36) horas, para garantizar que los miembros del Consejo puedan preparar su intervención en la sesión, con vista del orden del día y de la documentación pertinente, así como el acceso a la sesión cuando ésta se haya declarado por el Consejo como pública. El plazo establecido en este documento para realizar la convocatoria debe respetarse, de lo contrario la convocatoria será inválida, y por consiguiente, la sesión y los acuerdos colegiales.
+La convocatoria debe contener los siguientes requisitos: hora y fecha e indicar el lugar en que se habrá de celebrarse la sesión, en caso de que esos datos no sean fijados por ley o acuerdos generales del Consejo. La hora y fecha deben respetarse, caso contrario será causal de invalidez.
+La convocatoria debe contener el orden del día. La convocatoria deberá contener los documentos y material que serán analizados en la sesión y que forman el objeto de la deliberaciones. Asimismo, las actas de las sesiones anteriores deberán ser remitidas con la convocatoria para que sean leídas y revisadas con la debida antelación y de forma previa a la sesión de aprobación respectiva.

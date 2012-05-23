@@ -1,0 +1,1 @@
+Artículo 13.—El Presidente o Presidenta del Consejo, en virtud de la potestad directiva tiene la potestad de convocar a sesión, fijar el orden del día, verificar y declarar la existencia del quórum, abrir la sesión, conceder o quitar la palabra, abrir la votación, hacer el escrutinio y proclamar el resultado.

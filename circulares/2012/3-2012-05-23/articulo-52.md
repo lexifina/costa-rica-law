@@ -1,0 +1,1 @@
+Artículo 52.—Las actas se aprobarán en la sesión ordinaria siguiente, salvo que las circunstancias lo impidiesen. Antes de la aprobación del acta, carecerán de eficacia y firmeza los acuerdos adoptados en la sesión de que se trate; salvo que se hubieran adoptado con carácter de firme.

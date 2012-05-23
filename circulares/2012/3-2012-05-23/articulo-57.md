@@ -1,0 +1,1 @@
+Artículo 57.—Además de la notificación y la comunicación indicados en el artículo anterior; se publicarán en La Gaceta, las resoluciones y los acuerdos que por ley o reglamento se disponga publicarlos.

@@ -1,0 +1,1 @@
+Artículo 49.—Cuando la Presidencia levante la sesión estando en discusión un asunto, ésta mantendrá su prioridad en la siguiente sesión, en el orden correspondiente, respetándose la precedencia en que se haya solicitado la palabra, por los miembros del Consejo, para referirse al tema.

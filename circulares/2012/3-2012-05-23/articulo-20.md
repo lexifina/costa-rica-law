@@ -1,0 +1,1 @@
+Artículo 20.—Las sesiones ordinarias podrán ser realizadas cualquier otro día distinto al establecido en forma general conforme con los citados artículos 18 y 19, siempre y cuando cuente con la aprobación del Consejo..

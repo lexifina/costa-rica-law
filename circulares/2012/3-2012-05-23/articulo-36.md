@@ -1,0 +1,7 @@
+Artículo 36.—En caso de la participación e intervención de los administrados e interesados con algún interés legítimo que hayan solicitado al Consejo su participación o sometido a su conocimiento algún asunto con una audiencia estará bajo lo dispuesto en los siguientes lineamientos:
+a) Deberá solicitarse la audiencia por escrito a la Secretaría del Consejo, indicando en el escrito de solicitud los temas sobre los cuales versará su participación.
+b) La Secretaría del Consejo pasará todas las solicitudes a conocimiento de la Presidencia.
+c) En caso de que el tema sea de competencia del Consejo, deberá fijarse una audiencia para tal efecto.
+d) Dicha participación no podrá exceder de un tiempo máximo de diez minutos y en caso de réplica se lo concederá un tiempo de cinco minutos más, salvo que por acuerdo del Consejo se considere conveniente otorgar un tiempo mayor.
+e) Cuando la participación tenga por objeto la intervención de un grupo de interesados con intereses de grupo o colectivos, ellos deberán designar un vocero, quien será para todos sus efectos el representante ante el Consejo.
+El Consejo no conferirá audiencia a ningún interesado que sea parte de un procedimiento administrativo que la soliciten, cuando el Consejo deba conocer de los actos finales, recursos administrativos que interesen o pueden interesar a los solicitantes; salvo que se trate de las audiencias propias de la instrucción de un procedimiento administrativo.

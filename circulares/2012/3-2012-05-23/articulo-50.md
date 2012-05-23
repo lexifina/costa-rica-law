@@ -1,0 +1,4 @@
+SECCIÓN II
+Actas de las sesiones, su aprobación, su firma
+y la legalización de libros de actas
+Artículo 50.—La Secretaría del Consejo levantará acta de cada sesión del Consejo. Las actas contendrán el orden del día de cada sesión, la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en se hayan celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos. Sin embargo, el Consejo podrá acordar, por mayoría simple y según la naturaleza del caso, cuándo el acta o parte de ella será literal, sobre la base de la grabación que se hubiera hecho de la sesión de que se trate. En todo caso debe quedar en el acta la transcripción de los aspectos medulares y que razonablemente correspondan a efectos de los fines del contenido de la votación y los acuerdos tomados, salvo aquellos asuntos que se hayan declarado confidenciales mediante acuerdo debidamente motivado.

@@ -1,0 +1,1 @@
+Artículo 12.—La independencia de los miembros del Consejo, suponen la sujeción a la potestad directiva y disciplinaria de la Presidencia del Consejo, durante las sesiones a efecto de dirigir la actividad de los otros miembros y dirigir el procedimiento colegial.

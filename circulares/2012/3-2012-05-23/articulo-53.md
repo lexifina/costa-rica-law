@@ -1,0 +1,1 @@
+Artículo 53.—Las actas aprobadas serán firmadas por el Presidente del Consejo y por quien funja como Secretario del Consejo, de conformidad con el artículo 56.3 de la Ley General de la Administración Pública. También lo harán aquellos miembros que hubieren hecho constar su voto disidente.

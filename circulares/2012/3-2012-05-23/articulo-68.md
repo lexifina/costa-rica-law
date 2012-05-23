@@ -1,0 +1,2 @@
+Artículo 68.—Las presentes disposiciones derogan cualesquier otra disposición de carácter normativo y general dictada anteriormente, salvo lo que se relacione con las funciones atribuidas por el Consejo a la Presidencia en virtud del artículo 61 de la Ley Nº 7593.
+En lo no contemplado por este instrumento se regirá por disposiciones de la Ley General de la Administración Pública y la Ley de la Autoridad Reguladora de los Servicios Públicos.
