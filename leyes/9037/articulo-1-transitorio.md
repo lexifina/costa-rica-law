@@ -1,0 +1,1 @@
+TRANSITORIO I.- La presente ley será reglamentada en un plazo máximo de noventa días naturales, posterior a esto el IDA realizará una publicación en un diario de circulación nacional, para informar a los interesados sobre los procesos y procedimientos para acogerse a lo estipulado en esta ley.
