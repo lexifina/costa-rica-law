@@ -1,0 +1,34 @@
+MUNICIPALIDAD DE SAN JOSÉ
+REFORMA DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LOS FESTEJOS POPULARES DE LA
+MUNICIPALIDAD DE SAN JOSÉ
+Considerando
+La Comisión de Fiestas de San José, somete a aprobación del Concejo Municipal, la modificación de artículos del Reglamento de Organización y Funcionamiento de los Festejos Populares de la Municipalidad de San José. Por tanto
+La Comisión Fiscalizadora de los Festejos Populares, analizada la información brindada por la Comisión de Fiestas de San José, recomienda al Concejo Municipal modificar los artículos del Reglamento de Organización y Funcionamiento de los Festejos Populares de la Municipalidad de San José; y que a continuación se detallan:
+Artículo 1º—El Concejo Municipal del Cantón Central de San José, por mandato de la Ley de Festejos Populares No 4286, del 17 de diciembre de 1968 y sus reformas, tiene a su cargo la designación de la Comisión de Festejos Populares, y la fiscalización de los mismos.
+Artículo 8º—Las Comisiones de Festejos Populares del Cantón Central de San José constituyen un Órgano Colegiado perteneciente a la Municipalidad de San José. Está adscrito al Concejo Municipal. Su titularidad corresponde a un conjunto de personas físicas, que concurren a formar la voluntad u opinión del mismo órgano, sujetas a las disposiciones del Concejo Municipal como su Superior Jerárquico.
+La Comisión de Festejos Populares estará integrada por un máximo de cinco miembros que serán nombrados por el Concejo Municipal, año a año, en la primera sesión de febrero de cada año; en la cual uno de estos miembros es nombrado por el Hospicio de Huérfanos de San José. Los cuatro integrantes correspondientes a la Municipalidad serán designados por el Concejo, en cuya razón podrá atender la recomendación de la Alcaldía Municipal.
+Cada comisión de Festejos Populares, de su seno elegirá un Presidente, un Tesorero, un Secretario, un Contador y un Fiscal, mediante el mecanismo que considere más conveniente.
+Para efectos operativos, la Comisión contará con la asesoría directa y obligatoria de la Tesorería y la Contabilidad Municipal.
+Además tendrán la asesoría de: a) Un abogado de la Dirección de Asuntos Jurídicos; b) Un representante de la Proveeduría Municipal; c) Un representante de la Gerencia Financiera; d) Un representante de la Gerencia de Provisión de Servicios; e) Un representante de la Gerencia Gestión Municipal.
+La Comisión Fiscalizadora de los Festejos Populares del Concejo Municipal, tendrá derecho a participar en las reuniones de la Comisión y deberá informar en forma quincenal, al Concejo Municipal.
+Se elimina el último párrafo del Capítulo II de la Integración de la Comisión de Festejos Populares.
+Artículo 28.—Ningún miembro de la Comisión de Festejos Populares que sea funcionario municipal, devengará dieta alguna de acuerdo con lo que indica la Ley de Enriquecimiento Ilícito.
+El Departamento de Presupuesto deberá identificar todos los gastos, en los que incurra la Administración, para que una vez que esté lista la liquidación de la Comisión, se procede a rebajar los mismos de dicho monto.
+El costeo por concepto de Recolección de Desechos Sólidos, Aseo de Vías, Riego, Lavado de Campo Ferial, y los gastos por concepto de horas extras y las cargas sociales sobre las horas extras; de los miembros de la Comisión de Festejos Populares y del personal de apoyo (incluidas las de la Policía Municipal) deberán de ser incorporados como gastos propios de los Festejos Populares. No se autoriza el pago de recargos de funciones.
+Para tal caso se autoriza a la Administración Municipal a realizar los Ajustes Tributarios correspondientes, por concepto de Tasas de Recolección de Desechos Sólidos y Aseo de Vías.
+Se autoriza la compra de seguro sobre vehículos que no sean propiedad municipal y que hayan sido cedidos en calidad de préstamo o producto de un patrocinio.
+La alimentación de los funcionarios que participen en dicha actividad, será por su propia cuenta, en virtud de estar devengando horas extras, asimismo, para efectos de desayuno ó cena se regirá como lo establece la Convención Colectiva ó dotándole la misma en caso de que así se convenga.
+Artículo 35.—La liquidación se realizará de la siguiente forma:
+a) La Comisión de Festejos Populares deberá presentar una liquidación de ingresos y egreso final, a la Auditoría Interna Municipal, a más tardar 30 días contados a partir de la conclusión de los Festejos Populares. Se elimina la palabra naturales.
+b) La Auditoría Municipal tendrá un plazo improrrogable de 60 días para presentar al Concejo Municipal el informe de liquidación correspondiente, Se modifica de 30 a 60 días y se elimina la palabra naturales.
+c) La liquidación deberá contener: a) Detalle de ingresos que contenga el número de depósito o cheque, nombre del depositante, fecha, monto, concepto; b) Detalle de egresos que contenga el número de depósito o cheque, nombre del depositante, fecha, monto, concepto c) Libros de actas debidamente firmadas; d) Libros contables debidamente firmados; e) Copia de los expedientes administrativos involucrados con el tema, o si no mencionar el sitio y responsable de tal expediente.
+d) Los Activos sobrantes deberán enlistarse en un inventario con el fin de que puedan ser reutilizados por las comisiones subsiguientes.
+e) De todo lo anterior deberán enviarse copia al Concejo Municipal.
+Artículo 36.—En caso de que la Comisión decida realizar el Certamen de Belleza, el mismo deberá llevar el nombre de Señorita San José. En este caso, deberá la Comisión solicitarlo así al Concejo y éste emitir una directriz para su funcionamiento.
+Artículo 37.—Las Actividades Deportivas y Recreativas, deberán coordinarse con el Comité Cantonal de Deportes y Recreación de San José. Se autoriza incluir la respectiva partida presupuestaria en el Presupuesto de la Comisión de Fiestas.
+Artículo 38.—Las Actividades Culturales deberán coordinarse con la Sección de Cultura de la Municipalidad de San José. Se autoriza incluir la respectiva partida presupuestaria en el Presupuesto de la Comisión de Fiestas.
+Artículo 39.—En caso de resultar necesario y así lo acordase la Comisión de Fiestas de San José se podrán concesionar legalmente las actividades de Tope, Carnaval Nacional y Señorita San José”.
+La presente reforma al Reglamento de Organización y Funcionamiento de los Festejos Populares de la Municipalidad de San José, tendrá vigencia a partir de su publicación en el Diario Oficial La Gaceta, la cual lo establece el Artículo 43 del Código Municipal. Así mismo manifestamos que el Proyecto de Reforma fue publicado en el Diario Oficial La Gaceta Nº 188 del 28 de setiembre de 2010, en el cual se someta a consulta por un plazo mínimo de diez días, y no hubo oposición”.
+Acuerdo definitivamente aprobado.—6, Artículo IV, de la Sesión Ordinaria 61, celebrada por el Concejo Municipal del Cantón Central de San José, el 28 de junio de 2011.
+San José, 25 de abril del 2012.
