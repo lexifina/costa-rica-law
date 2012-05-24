@@ -1,0 +1,1 @@
+Artículo 8º—Las y los profesionales responsables de brindar apoyo a las personas denunciantes en los términos descritos en el artículo 6º del presente Reglamento, están obligadas a mantener la confidencialidad de los asuntos puestos a su conocimiento. Asimismo, tienen el deber de trasladar las denuncias a la Jefatura de la DCH de forma inmediata.

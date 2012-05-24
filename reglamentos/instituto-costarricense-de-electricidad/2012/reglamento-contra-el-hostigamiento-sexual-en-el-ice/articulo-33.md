@@ -1,0 +1,1 @@
+Artículo 33.—Durante la tramitación del procedimiento, la víctima así como quienes comparezcan como testigos, tienen derecho a que se les garantice su estabilidad e integridad física, psicológica, emocional.

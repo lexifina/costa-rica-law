@@ -1,0 +1,4 @@
+CAPÍTULO CUARTO
+Trámite de la denuncia por hostigamiento sexual
+Artículo 9º—La denuncia por hostigamiento sexual se podrá plantear en forma verbal o escrita ante el Programa Institucional de Igualdad y Equidad de Género, Promotoras/es Igualdad de Género, ante la jefatura de la víctima o de la persona denunciada, siempre y cuando esta persona no sea quien hostiga. Quien reciba la denuncia, deberá enviarla sin más trámite y de inmediato a la Jefatura de la DCH.
+En caso de que la denuncia se reciba en forma verbal, deberá levantarse en ese momento un acta consignando lo expresado por la víctima, quien una vez leído lo manifestado, deberá firmar el acta, en conjunto con la persona que recibió la denuncia. En dicha acta deberá además consignarse el lugar, hora y fecha en que la denuncia está siendo interpuesta, así como el nombre y cargo de la persona ante quien se interpone.

@@ -1,0 +1,1 @@
+Artículo 14.—El Órgano Director deberá notificar a las partes la apertura del procedimiento en un plazo máximo de ocho días, así como seguir todos los pasos para instruir el procedimiento disciplinario acatando la legislación vigente y relacionada con el hostigamiento sexual.

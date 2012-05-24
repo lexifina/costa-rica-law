@@ -1,0 +1,1 @@
+Artículo 25.—Si durante la tramitación del procedimiento se da la desvinculación laboral con la institución de la persona denunciada o de la víctima, el procedimiento seguirá su trámite hasta el dictado del Acto Final, el cual deberá ser comunicado a la persona denunciada, dejando una copia del mismo en su expediente de personal.

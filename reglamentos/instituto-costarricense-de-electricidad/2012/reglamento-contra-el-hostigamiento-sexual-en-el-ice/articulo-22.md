@@ -1,0 +1,1 @@
+Artículo 22.—Contra las resoluciones procederán los recursos ordinarios y extraordinarios establecidos en la Ley General de la Administración Pública, las cuales deberán ser planteados dentro de los términos de ley.

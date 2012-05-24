@@ -1,0 +1,2 @@
+Artículo 24.—El plazo para interponer la denuncia es de dos años y se computa a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar. El plazo de prescripción se computará de conformidad con el artículo 603 del Código de Trabajo.
+La Administración podrá dictar resolución de suspensión del plazo que interrumpe el cómputo del término de prescripción, mediante acto motivado.

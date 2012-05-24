@@ -1,0 +1,1 @@
+Artículo 37.—Cuando se presente una denuncia por hostigamiento sexual contra un funcionario de una empresa contratada por servicios, como medida cautelar, la institución queda facultada para solicitar al contratista el traslado de su trabajador hasta que la empresa lleve a cabo el procedimiento que corresponde para determinar la veracidad de la denuncia.

@@ -1,0 +1,1 @@
+Artículo 11.—Quien recibe la denuncia, tendrá un plazo máximo de 24 horas a partir de recibida la denuncia para remitirla a la Jefatura de la División Capital Humano, dependencia que cuenta con dos días hábiles para solicitar la apertura del procedimiento al Área de Procedimiento Disciplinario.

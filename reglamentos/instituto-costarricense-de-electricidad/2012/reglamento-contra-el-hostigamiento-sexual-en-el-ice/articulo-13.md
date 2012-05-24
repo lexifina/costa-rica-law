@@ -1,0 +1,1 @@
+Artículo 13.—A fin de garantizar la imparcialidad debida en el análisis de todos los elementos del caso, los miembros del Órgano Director en que concurriere alguna causal de impedimento de las establecidas en el artículo 49 del Código Procesal Civil deberán excusarse del conocimiento del asunto.

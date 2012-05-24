@@ -1,0 +1,1 @@
+Artículo 30.—Tratándose de una persona menor de edad, siempre deben considerarse su edad, grado de madurez y capacidad de discernimiento a la hora de garantizarle el respeto a sus derechos y procurarle su pleno desarrollo personal, de conformidad con lo establecido en el Código de la Niñez y la Adolescencia.

@@ -1,0 +1,1 @@
+Artículo 21.—La tramitación y resolución de la denuncia por hostigamiento sexual deberá cumplirse dentro del plazo tres meses, según lo establecido en el artículo 5º, inciso 2 de la Ley N° 7476. Sin embargo, por tratarse de un plazo ordenatorio, el dictado de acto final fuera del plazo conserva su validez para todo efecto.
