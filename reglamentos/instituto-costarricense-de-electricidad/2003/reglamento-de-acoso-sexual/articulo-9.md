@@ -1,1 +1,0 @@
-Artículo 9.—Dotación presupuestaria. La Gerencia General asignará la dotación presupuestaria correspondiente, que aprobará el Consejo Directivo, para -los fines indicados en el artículo 8, así como otros que se requiera para la eficaz aplicación de esta Ley en la Institución

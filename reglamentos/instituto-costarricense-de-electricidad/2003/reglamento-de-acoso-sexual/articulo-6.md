@@ -1,1 +1,0 @@
-Artículo 6º—Finalidad de la política institucional. La política institucional en la materia de acoso sexual tenderá a implementar la sensibilización de todos los trabajadores y las trabajadoras ante los valores institucionales de respeto a la dignidad humana y la igualdad de género.
