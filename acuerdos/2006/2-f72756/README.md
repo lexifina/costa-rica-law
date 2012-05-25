@@ -14,3 +14,4 @@ Política y Criterios para la Participación en Ensayos/ Pruebas de Aptitud y ot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-22 | la propia norma |
+| 2 | 2012-05-25 | Acuerdo 0 (2012-05-25) |
