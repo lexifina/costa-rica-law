@@ -15,3 +15,4 @@ Crea Comisión Institucional en Materia de Discapacidad (CIMAD) de la Presidenci
 | --- | --- | --- |
 | 1 | 2010-07-22 | la propia norma |
 | 2 | 2011-06-17 | Acuerdo 35 (2011-06-17) |
+| 3 | 2012-05-25 | Acuerdo 51 (2012-05-25) |
