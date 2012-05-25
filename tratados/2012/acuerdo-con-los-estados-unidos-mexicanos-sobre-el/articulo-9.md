@@ -1,0 +1,4 @@
+ARTÍCULO 9
+CONFIDENCIALIDAD
+Cualquier información recibida por una Parte Contratante de conformidad con el presente Acuerdo tendrá el carácter de confidencial y sólo podrá revelarse a personas o autoridades (incluyendo tribunales y órganos administrativos), en la jurisdicción de la Parte Contratante encargadas de la gestión, determinación o recaudación de los tributos o impuestos comprendidos en el presente Acuerdo, de los procedimientos declarativos o ejecutivos relativos a dichos tributos o impuestos o de la resolución de los recursos relativos a los mismos. Las personas o autoridades
+mencionadas sólo utilizarán esa información para dichos fines y podrán revelar la información en procedimientos públicos de los tribunales o en resoluciones judiciales. La información no podrá revelarse a cualquier otra persona, entidad, autoridad o cualquier otra jurisdicción sin el consentimiento expreso por escrito de la autoridad competente de la Parte Requerida.

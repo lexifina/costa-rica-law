@@ -1,0 +1,4 @@
+ARTÍCULO 7
+INSPECCIONES FISCALES EN EL EXTRANJERO
+1. A petición de la autoridad competente de una Parte Contratante, la autoridad competente de la otra Parte Contratante podrá permitir que representantes de la autoridad competente de la Parte mencionada en primer lugar estén presentes en el momento que proceda durante una inspección fiscal en la Parte mencionada en segundo lugar.
+2. Si se accede a la petición a que se refiere el párrafo 1, la autoridad competente de la Parte Contratante que realice la inspección notificará a la autoridad competente de la otra Parte Contratante, tan pronto como sea posible, el momento y el lugar de la inspección, la autoridad o el funcionario designado para llevarla a cabo y los procedimientos y condiciones exigidos por la Parte mencionada en primer lugar para su realización. La Parte que realice la inspección tomará todas las decisiones con respecto a la misma.
