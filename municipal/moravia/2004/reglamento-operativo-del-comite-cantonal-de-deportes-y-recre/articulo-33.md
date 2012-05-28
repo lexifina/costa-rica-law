@@ -1,1 +1,0 @@
-Artículo 33.—Una vez juramentado y debidamente instalado el Comité de Deportes y Recreación, en sus siguientes sesiones formales procederá a formar las Comisiones de apoyo que considera necesarios para facilitar su gestión. Cada Comisión estará integrada por miembros de la comunidad, y será coordinada por un miembro de la Junta Directiva, o por una persona, que designe el Comité.

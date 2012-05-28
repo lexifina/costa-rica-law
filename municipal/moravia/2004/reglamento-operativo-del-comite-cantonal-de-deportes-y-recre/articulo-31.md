@@ -1,1 +1,0 @@
-Artículo 31.—Cuando un miembro del Comité renuncie, deberá de comunicarlo por escrito al Comité Cantonal del Deportes y Recreación con copia al Concejo Municipal, al menos con un día de antelación de la puesta en práctica de la renuncia. Además, deberá de entregar, por escrito, un informe detallado de sus últimas gestiones.

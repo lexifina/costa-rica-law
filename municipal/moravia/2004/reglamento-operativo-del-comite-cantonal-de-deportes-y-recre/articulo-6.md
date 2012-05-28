@@ -1,1 +1,0 @@
-Artículo 6º—El Comité Cantonal de Deportes y Recreación es un ente adscrito a la Municipalidad y, por tanto, actuará como una unidad ejecutora en concordancia con lo estipulado en el artículo anterior, de sus proyectos y actividades con recursos financieros asignados por el Concejo Municipal, principalmente, y otros de origen externo.

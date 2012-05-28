@@ -1,1 +1,0 @@
-Artículo 11.—El Comité deberá de administrar la ejecución del presupuesto, conforme a las líneas programáticas señaladas en el PAO. Presentará las modificaciones presupuestarias necesarias ante la Dirección Administrativa y Financiera Municipal, y la Comisión de Hacienda con las cuales deberá coordinar permanentemente sus acciones en materia financiera y de presupuesto.

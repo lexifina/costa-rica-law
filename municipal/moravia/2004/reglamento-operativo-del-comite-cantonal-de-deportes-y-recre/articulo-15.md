@@ -1,1 +1,0 @@
-Artículo 15.—En caso de renuncia o sustitución de algún miembro, este será electo, de una terna del mismo organismo que se eligió al saliente. Entrará a funcionar con facultades plenas una vez sea electo por el Concejo Municipal. Su juramentación procederá en la sesión siguiente del Concejo Municipal o, si éste lo tiene a bien, delegará esa tarea en el Presidente del Comité.

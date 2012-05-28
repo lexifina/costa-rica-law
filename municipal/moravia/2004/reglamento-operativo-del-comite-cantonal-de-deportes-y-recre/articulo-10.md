@@ -1,1 +1,0 @@
-Artículo 10.—El Comité de Deportes y Recreación goza de personería jurídica instrumental limitada. Por ello, los actos de contratación administrativa están fuera de su marco de acción y atribuciones legales. Por lo tanto, serán ejercidos a través de la Administración Municipal, según la dependencia organizacional que corresponda y ejecutados por el Comité, según el caso.

@@ -1,3 +1,0 @@
-Artículo 40.—
-a) Cada Comité Comunal de Deportes y Recreación, deberá de llevar, como mínimo un libro de actas de Junta Directiva, un libro de ingresos y egresos, y un libro de registro de las diferentes organizaciones deportivas o recreativas adscritas al Comité Comunal, todos con folios numerados. Para ello procederá a los trámites de legalización ante el Departamento Legal y ante la Dirección Administrativa y Financiera, según corresponda.
-b) El Comité Cantonal de Deportes y Recreación y la Administración Municipal podrán, en el momento que lo considere conveniente, solicitar temporalmente los respectivos libros a un Comité Comunal.
