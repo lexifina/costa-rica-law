@@ -1,0 +1,16 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+En pleno uso de las atribuciones que le confiere los incisos 3) y 18) del artículo 140, de la Constitución Política, el artículo 3° inciso e) de la Ley de Creación del Registro Nacional N° 5695 de 28 de mayo de 1975 y la Ley General de la Administración Pública que es Ley N° 6227 del 2 de mayo de 1978.
+Considerando:
+I.—Que mediante Ley 5695 del 28 de mayo de 1975, denominada Ley de Creación del Registro Nacional, se estableció en su artículo 3 que el Registro Nacional será dirigido por una Junta Administrativa, la cual tendrá su propia personalidad jurídica.
+II.—Que en el uso de las facultades y atribuciones conferidas por dicha ley, se procedió a publicar el Reglamento de la Junta Administrativa del Registro Nacional, en el Diario Oficial La Gaceta N° 10 del 13 de enero del 2006.
+III.—Que el artículo 23 del citado reglamento regula lo concerniente a la forma de cómo remunerar a los miembros de la Junta Administrativa por la asistencia a las sesiones ordinarias y extraordinarias, estableciéndose al efecto que la retribución será por medio de la figura de dietas a las que asistan tanto los miembros propietarios como suplentes.
+IV.—Que la Contraloría General de la República mediante oficio DJ-1213-2011 de fecha del 4 de noviembre de 2011, recomendó analizar y valorar lo pertinente respecto de la situación del pago de las dietas establecidas en el artículo 23 del Reglamento de la Junta Administrativa del Registro Nacional, en el sentido de ajustar dicho reglamento a efectos de que se regule acerca de la improcedencia jurídica de remunerar con el pago de dietas a los miembros suplentes de dicha Junta Administrativa, salvo cuando éstos sustituyan la ausencia del miembro propietario del sector que representan, lo que hace indispensable modificar el Reglamento vigente para ajustarlo a ese criterio.
+V.—Que en sesión ordinaria N° 49-2011, celebrada el 17 de noviembre del dos mil once, la Junta Administrativa del Registro Nacional, mediante Acuerdo Firme N° J517, en forma unánime y firme aprobó elaborar una propuesta de modificación al Reglamento de Dietas para los Miembros de la Junta Administrativa del Registro Nacional.
+VI.—Que mediante sesión ordinaria N° 12-2012, celebrada el 22 de marzo del 2012, la Junta Administrativa del Registro Nacional, por medio del Acuerdo Firme N° J 127-2012, ordenó reformar el artículo N° 23 del Reglamento de la Junta Administrativa del Registro Nacional, Por tanto,
+DECRETAN:
+Artículo 1º—Se reforma el artículo 23 del Reglamento de la Junta Administrativa del Registro Nacional, cuyo texto dirá:
+“Artículo 23.—De las dietas. Los integrantes de la Junta devengarán dieta por cada sesión ordinaria y extraordinaria a que asistan. El máximo de dietas a devengar por mes será de cuatro ordinarias y una extraordinaria.
+La inasistencia del miembro de la Junta, causa la pérdida de la dieta.
+En el caso de los suplentes solo se les reconocerá la dieta cuando sustituyan al miembro propietario del sector que respectivamente representan.
+Las dietas serán aumentadas anualmente de conformidad con el índice de inflación que determine el Banco Central de Costa Rica.
+Dado en la Junta Administrativa del Registro Nacional. San José, doce de abril del dos mil doce.
