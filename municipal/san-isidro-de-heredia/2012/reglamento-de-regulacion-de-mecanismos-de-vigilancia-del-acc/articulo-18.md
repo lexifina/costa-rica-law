@@ -1,0 +1,1 @@
+Artículo 18.—Consecuencias del incumplimiento de las medidas correctivas. En caso de que la organización o comité vecinal no cumpla la corrección señalada en el plazo establecido, o bien, se concluye que existe imposibilidad material para la corrección, el Concejo Municipal ordenará el desmantelamiento inmediato de la caseta de vigilancia o los mecanismos de vigilancia.
