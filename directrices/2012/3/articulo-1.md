@@ -1,0 +1,25 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+DIRECTRIZ REGISTRAL
+D.R.P.J.-003-2012
+De: Dirección Registro de Personas Jurídicas
+Para: Subdirección, Coordinación General, Asesoría Jurídica, Asesoría Técnica, Coordinadores y Registradores en general
+Fecha: 25 de abril de 2012
+Asunto: Modificación y ampliación de la Directriz D.R.P.J.-002-2012.
+En aras de dar una adecuada aplicación a las disposiciones contenidas en la Ley Nº 9024, denominada “Impuesto a las Personas Jurídicas”, así como facilitar el trámite de los documentos sometidos a registro, se hace necesario modificar y ampliar la Directriz emitida por esta Dirección, Nº D.R.P.J.-002-2012 de fecha 29 de marzo del año en curso, en cuanto a los siguientes aspectos:
+1º—El apartado VI de la indicada Directriz queda redactado de la siguiente manera:
+VI) Liquidación de sociedades mercantiles en sede notarial:
+En virtud de la reforma del artículo 129 del Código Notarial, que introduce el artículo 14 de la ley en cuestión, se permite de manera optativa la tramitación de la liquidación de sociedades mercantiles en sede notarial, siempre y cuando su disolución se haya producido por acuerdo unánime de los socios y no figuren como interesados menores de edad o incapaces.
+La aplicación de la reforma al artículo indicado está orientada a que el proceso de disolución y liquidación se realice de una manera más expedita, incluso en aquellos casos en los que la sociedad no cuente con los libros sociales legalizados, siendo innecesario proceder a su legalización única y exclusivamente para disolver y liquidar la sociedad.
+Para dar cumplimiento a lo anterior, el trámite se realizará con el otorgamiento de la respectiva escritura pública con la comparecencia de la totalidad de los socios, o la apertura del respectivo expediente por parte del Notario Público, y conlleva en ambos casos necesariamente el cumplimiento de las disposiciones contenidas en los Capítulos VIII y IX del Título I del Libro I del Código de Comercio, como son:
+a) Comprobación de que quiénes se apersonan ante el Notario son los únicos socios de la sociedad.
+b) El acuerdo de disolución y/o liquidación debe tomarse de manera unánime.
+c) Publicación por única vez en el Diario Oficial La Gaceta del edicto que establece el artículo 207 del Código de Comercio.
+d) Distribución de activos y pasivos en caso de que los haya o indicación de que no los hay, en caso contrario.
+e) Presentación del testimonio de escritura pública o el documento de protocolización al Registro para su debida inscripción, cancelando los aranceles y timbres correspondientes de acuerdo a la Ley de Aranceles del Registro Público, e Impuesto a las Personas Jurídicas, salvo lo dispuesto en el párrafo tercero del punto III) de esta Directriz.
+f) En los casos en que el trámite se realice por medio de la apertura de un expediente notarial, deberá darse fe del cumplimiento de los puntos a), b) y c) anteriores. Si se realiza mediante escritura pública deberá hacerse constar lo relativo al punto c) únicamente.
+En los casos en que se produzca la disolución y liquidación simultánea de sociedades, en las que los socios sean los mismos para todas ellas, no haya distribución de activos ni pasivos ni nombramiento de liquidador, podrá realizarse un único acto notarial conteniendo la disolución y liquidación de todas las sociedades, pudiendo presentarse únicamente un testimonio de escritura al Registro para su respectivo trámite. Esta disposición se aplicará a aquellos documentos que ingresen al Registro durante la vigencia del Transitorio II de la Ley Nº 9024, sea hasta el 30 de junio de 2012 y deberá cancelarse el arancel correspondiente a cada una de las disoluciones contenidas en el documento.
+Los documentos de disolución y/o liquidación que se presenten al Registro con posterioridad al 30 de junio de este año, deberán referirse solamente a una sociedad.
+2º—En razón de que es una práctica notarial usual, modificar el plazo de las sociedades mercantiles a efecto de que entren en disolución, de conformidad con lo dispuesto en el inciso a) del artículo 201 del Código de Comercio, se permitirá la presentación en un único documento notarial, la protocolización de actas en las que se realice este tipo de modificación en varias sociedades. Es decir, procede la protocolización de actas de varias sociedades en las que únicamente se realice la variante en el plazo social para acortarlo. Esta disposición se aplicará a aquellos documentos que ingresen al Registro durante la vigencia del Transitorio II de la Ley Nº 9024, sea hasta el 30 de junio de 2012. Debiendo cancelarse el arancel correspondiente a cada una de las modificaciones contenidas en el documento.
+Los documentos de modificación del plazo social que se presenten al Registro con posterioridad al 30 de junio de este año, deberán referirse solamente a una sociedad.
+En virtud de que con el vencimiento del plazo social la sociedad entra en disolución, dichas entidades jurídicas estarán excluidas del pago del impuesto regulado por la Ley Nº 9024.
+25 de abril del 2012.
