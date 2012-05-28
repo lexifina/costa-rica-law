@@ -1,0 +1,1 @@
+Transitorio 6º—Las obras constructivas de telecomunicaciones que antes de la entrada en vigencia de este reglamento ya existieren en zonas residenciales o áreas comunales no residenciales, contarán con el plazo de tres años para convertirse en obras constructivas de telecomunicaciones mimetizadas.

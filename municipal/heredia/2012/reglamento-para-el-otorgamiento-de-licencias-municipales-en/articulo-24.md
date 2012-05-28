@@ -1,0 +1,1 @@
+Artículo 24.—Una vez presentada completa la solicitud de Licencia de Construcción la Administración tendrá un mes para resolverla. (-----) El interesado contará con la posibilidad de impugnar ésta resolución, mediante los recursos previstos en el Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 13.—Una vez presentada la solicitud de Certificación de Uso del Suelo ante la Municipalidad de Heredia, con todos sus requisitos, la administración tendrá un plazo máximo de ocho días naturales para emitir este documento, contando el interesado con la posibilidad de impugnarlo mediante los recursos previstos en el Código Municipal, en el plazo de diez días hábiles.

@@ -1,0 +1,1 @@
+Artículo 21.—La Municipalidad verificará el cumplimiento de los requisitos indicados en el artículo 20, y dará por admitida la Licencia de Construcción. Si la solicitud ha sido rechazada el interesado podrá impugnar la resolución dentro de los términos establecidos en el Código Municipal.
