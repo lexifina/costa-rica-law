@@ -1,0 +1,1 @@
+Artículo 2º—El Registro Electoral y sus departamentos utilizarán, para los efectos dichos, el registro de direcciones de correo electrónico que administra la Secretaría General del Tribunal, según lo estipulado en el citado decreto Nº 06-2009.
