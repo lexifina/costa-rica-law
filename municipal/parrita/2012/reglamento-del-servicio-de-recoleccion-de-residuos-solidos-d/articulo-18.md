@@ -1,0 +1,1 @@
+Artículo 18.—Se toma como tarifa comercial 3, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 101 kilogramos y 175 kilogramos. En la tarifa comercial 3 se toma el factor de ponderación 9.

@@ -1,0 +1,1 @@
+Artículo 33.—Dentro de la tarifa comercial 4 se incluyen todos: arroceras, ferreterías, restaurantes medianos (de 13 a 20 mesas), hoteles medianos (de 13 a 20 camas), aserraderos, alquiler de infraestructuras.

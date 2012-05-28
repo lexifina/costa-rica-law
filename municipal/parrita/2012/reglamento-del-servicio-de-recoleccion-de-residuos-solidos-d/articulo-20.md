@@ -1,0 +1,1 @@
+Artículo 20.—Se toma como tarifa comercial 5, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 301 kilogramos y 500 kilogramos. En la tarifa comercial 5, se toma como factor de ponderación 26.

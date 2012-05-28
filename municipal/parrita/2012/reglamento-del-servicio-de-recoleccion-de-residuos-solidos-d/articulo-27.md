@@ -1,0 +1,1 @@
+Artículo 27.—En toda unidad habitacional en cuya localización exista una patente y se lleve a cabo una actividad comercial dentro de la misma vivienda y que genere una cantidad promedio de basura que sea inferior a 62.5 kilogramos, se le cobrará únicamente la tarifa comercial 1.

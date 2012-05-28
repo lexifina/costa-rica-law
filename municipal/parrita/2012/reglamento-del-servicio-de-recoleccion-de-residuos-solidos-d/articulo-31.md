@@ -1,0 +1,1 @@
+Artículo 31.—Dentro de la tarifa comercial 2 se incluyen todos los: lubricentros, carnicerías, venta de batidos, mini-súper, venta de llantas, panaderías, plantas empacadoras, tiendas de ropa americanas, abastecedores, venta de electrónicos, venta de embutidos, licoreras, veterinarias, servicios de transporte colectivo, cabinas pequeñas (menos de 10 camas), subastas ganaderas.

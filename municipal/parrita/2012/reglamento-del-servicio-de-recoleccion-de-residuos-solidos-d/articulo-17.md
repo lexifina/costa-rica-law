@@ -1,0 +1,1 @@
+Artículo 17.—Se toma como tarifa comercial 2, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 51 kilogramos y 100 kilogramos. En la tarifa comercial 2 el factor de ponderación es 5.

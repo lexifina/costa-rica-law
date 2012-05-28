@@ -1,0 +1,1 @@
+Artículo 59.—La mezcla de residuos especiales con residuo ordinarios u ordinarios, se considera como residuos especiales, por tanto, su manejo y disposición final, le corresponde a cada usuario o generador.

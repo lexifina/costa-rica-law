@@ -1,0 +1,1 @@
+Artículo 39.—La disposición de desechos voluminosos, se hará previo pago en la tesorería Municipal, de los metros cúbicos a depositar, conforme a la tarifa que posea en vigencia la Municipalidad. No se permitirá el ingreso de desechos voluminosos al relleno respectivo sin el recibo correspondiente de pago.

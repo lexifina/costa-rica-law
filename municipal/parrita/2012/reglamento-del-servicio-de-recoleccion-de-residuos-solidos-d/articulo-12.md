@@ -1,0 +1,1 @@
+Artículo 12.—Todo patentado o ente de carácter estatal público o no público, que considere que el factor de ponderación que se le está aplicando no está de acuerdo a la cantidad de residuos que está generando, podrá solicitar un estudio específico, para que se determine la cantidad de residuos producidos en el lugar.

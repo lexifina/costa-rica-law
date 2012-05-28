@@ -1,0 +1,1 @@
+Artículo 48.—El cobro de la recolección de residuos sólidos se realizará al propietario o poseedor, de acuerdo a la cantidad de unidades habitacionales, patentados o entes estatales, ubicados dentro de la propiedad.

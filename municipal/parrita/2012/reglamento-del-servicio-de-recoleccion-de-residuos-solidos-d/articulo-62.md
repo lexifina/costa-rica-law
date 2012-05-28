@@ -1,0 +1,1 @@
+Artículo 62.—El plan de manejo de residuos sólidos debe presentarse con no menos de 15 días de antelación a la fecha de la actividad para ser estudiado y aprobado por la Oficina Ambiental de la Municipalidad de Parrita.

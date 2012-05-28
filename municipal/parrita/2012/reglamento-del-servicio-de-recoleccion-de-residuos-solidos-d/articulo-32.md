@@ -1,0 +1,1 @@
+Artículo 32.—Dentro de la tarifa comercial 3 se incluyen: Servicentro, bodegas distribuidoras, variedades (El amigo y Mundo Hogar), súper, verdulerías, sodas, salón de baile, piladora de arroz, ventas de comidas rápidas, pizzerías, mini-fábricas de plátanos, restaurantes pequeños (menos de 12 mesas), hoteles pequeños (menos de 12 camas), cabinas grandes (de 13 a 25 camas).

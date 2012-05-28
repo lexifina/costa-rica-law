@@ -1,0 +1,1 @@
+Artículo 15.—Se toma como tarifa doméstica, la tasa a aplicar a toda unidad habitacional en donde no exista o se posea una patente, y en donde el promedio estimado en generación de basura que sea inferior a 25 kilogramos por semana. En la tarifa doméstica el factor de ponderación es de 1.

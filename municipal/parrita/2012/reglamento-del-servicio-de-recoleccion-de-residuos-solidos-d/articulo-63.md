@@ -1,0 +1,1 @@
+Artículo 63.—El o los organizadores de la Actividad Especial, deberán cancelar el monto del cobro respectivo, según la clasificación que determine la Municipalidad para la disposición final de los residuos.

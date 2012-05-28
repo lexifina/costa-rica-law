@@ -1,0 +1,1 @@
+Artículo 16.—Se toma como tarifa comercial 1, la tasa a aplicar a todo aquel lugar patentado donde el promedio estimado en generación de basura sea inferior a 50 kilogramos por semana. En la tarifa comercial 1, el factor de ponderación es 2.

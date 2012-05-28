@@ -1,0 +1,1 @@
+Artículo 55.— (Nota de Sinalevi: En la publicación de este Reglamento, o aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto)

@@ -1,0 +1,1 @@
+Artículo 35.—Dentro de la tarifa interinstitucional 1 se incluyen todos los centros educativos públicos, iglesias, hogares de ancianos, oficinas públicas del gobierno central, centros de Rehabilitación, Cruz Roja y cualquier otra institución de igual naturaleza y condiciones semejantes, que se ubiquen dentro del área de cobertura del servicio de recolección.
