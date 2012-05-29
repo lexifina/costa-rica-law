@@ -43,3 +43,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 28 | 2010-01-29 | Reglamento 830 (2010-01-29) |
 | 29 | 2010-03-26 | Reglamento 842 (2010-03-26) |
 | 30 | 2010-04-23 | Reglamento 847 (2010-04-23) |
+| 31 | 2012-05-29 | Reglamento 975 (2012-05-29) |

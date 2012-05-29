@@ -1,3 +1,3 @@
-Artículo 55.—Determinación de la calificación. Cada entidad autorizada responderá la evaluación cualitativa, de acuerdo con los lineamientos que para este fin acuerde el Superintendente. La evaluación reportada por la entidad autorizada será revisada por la Superintendencia. La Superintendencia validará, mediante el proceso de supervisión los resultados de los instrumentos aplicados.
-La entidad autorizada dispondrá de cinco días hábiles, a partir de la fecha de comunicación del resultado de la evaluación cualitativa, para efectuar las observaciones y objeciones que estime pertinente. La Superintendencia analizará el planteamiento de la entidad y emitirá la resolución definitiva con la calificación cualitativa que corresponda.
-(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)
+ARTÍCULO 55. Determinación de la Calificación.
+Cada entidad autorizada aplicará los instrumentos de la evaluación cualitativa, de acuerdo con los lineamientos que para este fin emita el Superintendente. La Superintendencia validará ese cumplimiento mediante el proceso de supervisión.
+(Así reformado mediante sesión N° 975 del 29 de mayo del 2012)

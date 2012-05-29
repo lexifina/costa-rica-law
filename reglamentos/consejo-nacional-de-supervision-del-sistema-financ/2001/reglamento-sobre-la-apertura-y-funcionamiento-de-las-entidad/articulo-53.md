@@ -1,4 +1,5 @@
-Artículo 53.—Elementos de evaluación cualitativa. El Superintendente establecerá, por disposición general, el procedimiento, calendario y los instrumentos para la evaluación cualitativa de la entidad autorizada.
-El instrumento de evaluación considerará las siguientes áreas: gestión del riesgo operativo, cumplimiento de disposiciones normativas y la calidad de la tecnología de información. Las evaluaciones presentadas a la Superintendencia deben ser comunicadas a la Auditoría Interna y al encargado del cumplimiento normativo.
-Las modificaciones al procedimiento o instrumento de evaluación regirán para la evaluación que se realice seis meses después de comunicado en firme a las entidades autorizadas el nuevo instrumento. Todo cambio en los instrumentos de evaluación debe ser comunicado, de previo a su entrada en vigencia, al CONASSIF por parte de la Superintendencia.
-(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)
+ARTÍCULO 53. Elementos de Evaluación Cualitativa.
+El Superintendente establecerá, por disposición general, el procedimiento, calendario y los instrumentos para la evaluación cualitativa de la entidad autorizada.
+El instrumento de evaluación considerará las siguientes áreas: gestión del riesgo operativo, cumplimiento de disposiciones normativas y la calidad de la tecnología de información.
+Las modificaciones al procedimiento o instrumento de evaluación regirán a partir de la fecha de vigencia indicada en el acuerdo que las implemente. La Superintendencia de Pensiones deberá comunicar al CONASSIF todo cambio en los instrumentos de evaluación de previo a su entrada en vigencia.
+(Así reformado mediante sesión N° 975 del 29 de mayo del 2012)
