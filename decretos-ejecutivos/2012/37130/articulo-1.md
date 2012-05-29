@@ -1,0 +1,17 @@
+Nº 37130-C
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140 incisos 3) y 20), artículo 146 de la Constitución Política, 25.1 de la Ley No. 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley No.7555, Ley de Patrimonio Histórico Arquitectónico de Costa Rica del 4 de octubre de 1995, publicada en el Diario Oficial La Gaceta No.199 del 20 de octubre de 1995; y el Decreto Ejecutivo Nº 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica (ley 7555) del 14 de marzo del 2005, publicado en La Gaceta Nº 219 del 14 de noviembre del 2005.
+CONSIDERANDO
+1)Que el edificio del Patronato Nacional de la Infancia (PANI) de Limón, localizado en el distrito 1 Limón, cantón 1 Limón, Provincia 7 Limón, finca número 0809-000, partido de Limón, propiedad del PANI, tiene una antigüedad de cien años, al haber sido construido entre 1907 y 1912;
+2)Que el edificio del PANI de Limón, constituye un documento científico para el estudio de la historia de los sistemas constructivos, por cuanto fue construido con materiales y técnicas hoy ya desaparecidas, tales como ladrillo a tizón y soga confinado en marcos estructurales; combinación técnica que es inusual en nuestro medio;
+3)Que el edificio del PANI de Limón, pertenece a la corriente victoriano-caribeña, tendencia estilística que se integró exitosamente en el medio, llegando a distinguirse como la arquitectura de la Cuenca del Caribe;
+4)Que el edificio del PANI de Limón, conserva la mayoría del tejido histórico original, paredes, losas, pisos, vanos, puertas y ventanas, y detalles constructivos son los del diseño centenario, por lo que preserva la autenticidad, permitiendo tener un documento histórico de la tipología que representa;
+5)Que el edificio del PANI de Limón, posee un alto valor cultural debido a que le son inherentes una serie de valores patrimoniales, como el histórico, el arquitectónico, el simbólico y el de la autenticidad;
+6)Que el edificio del PANI de Limón, es una fuente muy valiosa de la consolidación de la identidad cultural limonense y nacional;
+7)Que por las condiciones histórico-arquitectónicas citadas, y con fundamento en la Ley No. 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica y el Decreto Ejecutivo No. 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica; el Ministerio de Cultura y Juventud realizó la instrucción del procedimiento administrativo para declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble en cuestión.
+8)Que por Acuerdo Firme No. 7 la Comisión Nacional de Patrimonio Histórico-Arquitectónico de Costa Rica, en Sesión No. 16-2011 del 13 de setiembre del 2011, emitió la opinión favorable, requerida por el artículo No. 7 de la Ley No. 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica y el artículo No. 9 inciso b) del Decreto Ejecutivo No. 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica.
+9)Que es deber del Estado conservar, proteger y preservar el patrimonio histórico-arquitectónico y cultural de Costa Rica.
+POR TANTO,
+DECRETAN
+ARTICULO 1.-Declarar e Incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble conocido como “el edificio del Patronato Nacional de la Infancia de Limón”, localizado en el distrito 1 Limón, cantón 1 Limón, Provincia 7 Limón, finca número 0809-000, partido de Limón, propiedad del Patronato Nacional de la Infancia.
