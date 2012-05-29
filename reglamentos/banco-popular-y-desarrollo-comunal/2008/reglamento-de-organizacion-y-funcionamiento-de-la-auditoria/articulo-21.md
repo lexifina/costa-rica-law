@@ -1,9 +1,0 @@
-Artículo 21.—Asistencia a las sesiones de Junta Directiva Nacional. El Auditor General, o en sus ausencias temporales el Subauditor, podrá asistir a las sesiones de la Junta Directiva cuando ese órgano colegiado así lo solicite para brindar asesoría en temas de su competencia, y cuando dicho funcionario así lo estime necesario y conveniente para el desempeño de sus funciones, ejerciendo la asesoría adecuada y con independencia. Dicha asistencia será de carácter excepcional, para lo cual se seguirán los siguientes lineamientos:
-i) Brindará asesoría sobre asuntos concretos y a solicitud explícita de asesoría por parte del jerarca.
-ii) Asistirá a las sesiones con voz pero sin voto.
-iii) Brindará asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
-iv) Pedir y vigilar que su opinión conste en las actas respectivas.
-v) Podrá posponer su opinión cuando a su criterio y por la complejidad del asunto en discusión requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente y conveniente.
-vi) Ni la presencia ni el silencio del Auditor General en las sesiones releva al jerarca de la responsabilidad de respetar el ordenamiento jurídico y técnico en lo que acuerde. El silencio no impide que el Auditor General emita su opinión posteriormente, en forma verbal o por escrito en otra sesión.
-vii) Abstenerse de participar en comisiones de trabajo o similares, de naturaleza eminentemente administrativa, excepto que se trate de comisiones conformadas por miembros de Junta Directiva Nacional, en donde se requiera su participación con carácter de asesor en su campo de competencia.
-viii) Cualesquier otros que sean concordantes con las funciones que desempeña.

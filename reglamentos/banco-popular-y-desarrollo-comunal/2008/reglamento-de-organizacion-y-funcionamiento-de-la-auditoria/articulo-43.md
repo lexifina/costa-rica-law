@@ -1,1 +1,0 @@
-Artículo 43.—Requisitos de las denuncias. Los requisitos esenciales que deben reunir las denuncias que se presenten ante la Auditoría Interna, así como las regulaciones para su trámite se regirán por el procedimiento que se defina al efecto.
