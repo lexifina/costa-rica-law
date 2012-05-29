@@ -14,3 +14,4 @@ Condiciones Generales para el uso del portal de "Tributación Direct@”, para l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-05 | la propia norma |
+| 2 | 2012-05-29 | Resolución 10 (2012-05-29) |
