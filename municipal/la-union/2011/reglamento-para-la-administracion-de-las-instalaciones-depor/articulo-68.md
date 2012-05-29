@@ -1,0 +1,2 @@
+ARTICULO 68. Lugar y condiciones para efectuar las reservas
+La reserva de instalaciones deberá realizarse por el interesado en el lugar que determine el administrador o el mecanismo que este ponga a disposición para ese fin. Para la reservación respectiva se deberá cancelar con antelación la respectiva reserva.

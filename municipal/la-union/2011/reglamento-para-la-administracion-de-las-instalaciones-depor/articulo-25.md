@@ -1,0 +1,2 @@
+ARTICULO 25. Cierre de las instalaciones deportivas municipales
+El Comité Cantonal se reserva el derecho a cerrar las instalaciones deportivas municipales, mediante resolución o acuerdo debidamente motivado, por cuestión de razones sanitarias, de orden público y seguridad, programaciones propias como competiciones, partidos, cursos o cualesquiera otra que debidamente justificada implique el mencionado cierre.

@@ -1,0 +1,2 @@
+ARTICULO 13. Información a disposición de los interesados
+El Comité Cantonal brindará por medio de su página de Internet, en sus oficinas administrativas o por medio de comunicación locales; información general sobre las instalaciones deportivas en su administración directa o indirecta.

@@ -1,0 +1,4 @@
+ARTICULO 46. Del deporte estudiantil. Acceso de los centros escolares a las Instalaciones Deportivas
+Las instalaciones y equipamientos deportivos dedicarán una parte de su estructura a paliar la falta de la misma en los centros estudiantiles del municipio.
+Durante el horario escolar las instalaciones deportivas estarán principalmente dedicadas a acoger tanto las clases de educación física como de natación estudiantil de las escuelas y colegios del Cantón de La Unión
+Por dicho motivo los Centros Educativos del Cantón podrán acceder a las instalaciones deportivas de acuerdo a las condiciones del convenio suscrito de forma individualizada por cada uno de ellos con el Comité Cantonal a tal efecto, y siempre que lo hagan durante el horario lectivo, autorizados expresamente por el Colegio y cada estudiante acompañados de un profesor, que será responsable tanto de la educación física como del comportamiento de los asistentes.

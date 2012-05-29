@@ -1,0 +1,2 @@
+ARTICULO 66. Reservas efectuadas por el Comité Cantonal en instalaciones deportivas administradas por los Comités Comunales o Comisiones de administración de instalaciones.
+El Comité Cantonal, con antelación suficiente, comunicará a los Comités Comunales o las comisiones de administración de instalaciones deportivas los días reservados por el propio Comité Cantonal para el desarrollo de sus actividades, en los cuales no se podrán conceder reservas.
