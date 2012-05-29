@@ -14,3 +14,4 @@ Reglamento del concurso público para la selección y nombramiento del auditor i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-18 | la propia norma |
+| 2 | 2012-05-29 | Reglamento municipal 0 (2012-05-29) |
