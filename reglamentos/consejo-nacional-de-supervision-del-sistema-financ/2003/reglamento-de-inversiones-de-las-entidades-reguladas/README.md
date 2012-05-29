@@ -25,3 +25,4 @@ Reglamento de Inversiones de las Entidades Reguladas
 | 10 | 2009-03-27 | Reglamento 780 (2009-03-27) |
 | 11 | 2009-07-24 | Reglamento 793 (2009-07-24) |
 | 12 | 2009-10-23 | Reglamento 814 (2009-10-23) |
+| 13 | 2012-05-29 | Reglamento 975 (2012-05-29) |
