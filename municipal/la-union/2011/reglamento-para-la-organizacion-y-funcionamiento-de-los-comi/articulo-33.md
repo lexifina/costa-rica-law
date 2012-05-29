@@ -1,0 +1,2 @@
+ARTICULO 33.
+Existen dos tipos de votación: Nominal y Secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto; es secreta aquella votación que se realice en forma escrita o por cualquier otro medio a juicio de la Junta Directiva y en situación calificada según reglamento.

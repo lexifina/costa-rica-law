@@ -1,0 +1,2 @@
+ARTICULO 43.
+Las tarifas por el uso de las instalaciones deportivas y recreativas son de cobro obligatorio y serán fijadas anualmente por el Comité Cantonal, previo estudio autorizado por el Concejo Municipal. El Comité Cantonal deberá presupuestar los ingresos por tal concepto y además establecer los mecanismos apropiados para el giro correspondiente de tales recursos a la Comisión de Instalaciones Deportivas y Comités Comunales según corresponda. Los recursos cobrados en una instalación serán utilizados en ella para su autogestión.

@@ -1,0 +1,2 @@
+ARTICULO 42.
+En el uso de las instalaciones deportivas existentes, las Comisiones de Instalaciones Deportivas y Comités Comunales deberán darle participación a todos los grupos deportivos y recreativos organizados de la comunidad, teniendo preferencia en tal uso, los equipos o grupos que representen al distrito o al cantón en campeonatos oficiales. La programación que para tal efecto se le dé, será respaldada y se hará en forma periódica conforme con las necesidades.
