@@ -1,2 +1,1 @@
-Transitorio IV
-En un plazo de nueve meses posteriores a la entrada en vigencia de esta normativa, los sujetos fiscalizados deben presentar ante la Superintendencia respectiva un informe de avance en la automatización de la metodología para la clasificación del riesgo.
+Transitorio IV.—En un plazo de nueve meses posteriores a la entrada en vigencia de esta normativa, los sujetos fiscalizados deben presentar ante la Superintendencia respectiva un informe de avance en la automatización de la metodología para la clasificación del riesgo.

@@ -1,5 +1,4 @@
-Artículo 38.—Apartados mínimos del informe anual.
-El informe debe referirse a los siguientes apartados:
+Artículo 38.—Apartados mínimos del informe anual. El informe debe referirse a los siguientes apartados:
 a) Elaboración y mantenimiento del manual de cumplimiento.
 b) Metodología para la clasificación del riesgo del cliente. Incluyendo la revisión de las políticas y procedimientos para tal fin.
 c) Perfiles de riesgo de los clientes.

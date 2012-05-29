@@ -1,5 +1,4 @@
-Artículo 25.—Capacitación anual.
-Los sujetos fiscalizados deben desarrollar e implementar un programa anual de capacitación a todo el personal, según sus funciones, así como a sus directivos y miembros externos de los comités. Dicho programa debe incluir fechas propuestas, temario y posibles expositores. Este debe contener, al menos, lo siguiente:
+Artículo 25.—Capacitación anual. Los sujetos fiscalizados deben desarrollar e implementar un programa anual de capacitación a todo el personal, según sus funciones, así como a sus directivos y miembros externos de los comités. Dicho programa debe incluir fechas propuestas, temario y posibles expositores. Este debe contener, al menos, lo siguiente:
 a) Capacitación específica en las políticas, procedimientos y controles del manual de cumplimiento, que le apliquen al personal correspondiente según sus funciones.
 b) Análisis de la legislación nacional y normativa vigente, incluyendo las implicaciones para el sujeto fiscalizado y su personal.
 c) Disposiciones de organismos internacionales y sus implicaciones para el sujeto fiscalizado y el país.

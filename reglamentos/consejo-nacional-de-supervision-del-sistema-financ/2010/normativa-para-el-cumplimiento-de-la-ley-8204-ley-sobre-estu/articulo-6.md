@@ -1,5 +1,4 @@
-Artículo 6º—Criterios o variables para el análisis y descripción del perfil de riesgo del cliente.
-Para el análisis y descripción del perfil de riesgo de cada cliente, los sujetos fiscalizados seleccionarán entre los siguientes criterios o variables, sin estar limitados a estos:
+Artículo 6º—Criterios o variables para el análisis y descripción del perfil de riesgo del cliente. Para el análisis y descripción del perfil de riesgo de cada cliente, los sujetos fiscalizados seleccionarán entre los siguientes criterios o variables, sin estar limitados a estos:
 a) Nacionalidad.
 b) País de origen (país de nacimiento o país de constitución)
 c) País de domicilio.
@@ -12,7 +11,7 @@ i) Tipo, monto y frecuencia de las transacciones (fuera y dentro del país).
 j) Utilización de efectivo (fuera y dentro del país).
 k) Origen de los recursos (fuera y dentro del país).
 l) Temporalidad de la actividad que genera los recursos, si corresponde (por ejemplo: en actividades como la recolección de café, corta de caña, entre otros).
-m) Personas expuestas políticamente (en adelante los PEP’s).
+m) Personas expuestas políticamente (en adelante los PEP ’s).
 n) Productos y servicios que utiliza el cliente.
 o) Comportamiento atípico de los movimientos de la cuenta, dada la información que posee el sujeto fiscalizado sobre el cliente.
 p) Si una cuenta o relación de negocios estuviera inactiva.

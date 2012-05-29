@@ -1,7 +1,6 @@
 CAPÍTULO IV
 Monitoreo de transacciones y programas informáticos
-Artículo 16.—Programas informáticos.
-Los sujetos fiscalizados deben contar con programas informáticos especializados que permitan realizar un monitoreo continuo de las cuentas y servicios ofrecidos a los clientes, para asegurar que su patrón transaccional es congruente con el perfil de riesgo y la cuantía mensual estimada indicada por el cliente al inicio y durante la relación comercial.
+Artículo 16.—Programas informáticos. Los sujetos fiscalizados deben contar con programas informáticos especializados que permitan realizar un monitoreo continuo de las cuentas y servicios ofrecidos a los clientes, para asegurar que su patrón transaccional es congruente con el perfil de riesgo y la cuantía mensual estimada indicada por el cliente al inicio y durante la relación comercial.
 El nivel de monitoreo de las transacciones lo determina la evaluación de riesgo de los clientes de la entidad. Con fundamento en su análisis de riesgo, el sujeto fiscalizado debe establecer señales de alerta particulares para su negocio y en consecuencia establecer los tipos de monitoreo necesarios para identificar operaciones inusuales.
 Los programas informáticos deben generar, en forma automática y oportuna, alertas sobre transacciones que se desvíen del comportamiento esperado del cliente, así como reportes que incluyan, como mínimo pero no limitados a estos, la siguiente información:
 a) Datos personales.

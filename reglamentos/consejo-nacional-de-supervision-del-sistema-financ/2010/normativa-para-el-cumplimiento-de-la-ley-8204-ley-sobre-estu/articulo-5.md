@@ -1,5 +1,4 @@
-Artículo 5º—Metodología para la clasificación de riesgo de los clientes.
-En el diseño de la metodología para la clasificación de riesgo de los clientes deben considerarse los siguientes elementos:
+Artículo 5º—Metodología para la clasificación de riesgo de los clientes. En el diseño de la metodología para la clasificación de riesgo de los clientes deben considerarse los siguientes elementos:
 a) Conceptos y marco teórico.
 b) Criterios o variables mínimas para el análisis del perfil de riesgo del cliente.
 c) Descripción de la clasificación y categorización de riesgo de los clientes.

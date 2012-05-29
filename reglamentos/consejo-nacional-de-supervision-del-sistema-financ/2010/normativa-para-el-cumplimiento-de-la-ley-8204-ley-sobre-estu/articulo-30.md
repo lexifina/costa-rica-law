@@ -1,5 +1,4 @@
-Artículo 30.—Funciones de la Oficialía de Cumplimiento.
-Las funciones de la Oficialía de Cumplimiento son al menos las siguientes:
+Artículo 30.—Funciones de la Oficialía de Cumplimiento. Las funciones de la Oficialía de Cumplimiento son al menos las siguientes:
 a) Ser enlace directo entre el sujeto fiscalizado y el órgano supervisor correspondiente, así como, con cualquier otra autoridad competente.
 b) Elaborar y actualizar anualmente el manual de cumplimiento.
 c) Elaborar un Plan Anual de Trabajo que debe ser aprobado por la junta directiva u órgano colegiado equivalente, basado en las políticas, programas, normas y procedimientos internos.
