@@ -34,3 +34,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 37034 del 5 de marzo del 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37092 del 23 de marzo de 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37120 del 23 de abril del 2012)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37133 del 2 de mayo del 2012)
