@@ -1,0 +1,1 @@
+Artículo 22.—De los reclamos administrativos. Las reclamaciones por lecturas o montos derivados de ellas deberán hacerse ante el Gestor Comercial, por medio de la Plataforma de Servicios, durante los ciento veinte días posteriores al vencimiento del recibo que genera el reclamo.
