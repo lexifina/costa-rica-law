@@ -14,3 +14,4 @@ Reglamento para el Trámite de Revisión de los Planos para la Construcción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-14 | la propia norma |
+| 2 | 2012-05-29 | Decreto Ejecutivo 37174 (2012-05-29) |
