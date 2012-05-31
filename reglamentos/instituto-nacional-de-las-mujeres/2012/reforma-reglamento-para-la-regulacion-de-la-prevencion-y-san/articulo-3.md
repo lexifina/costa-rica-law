@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónese un transitorio al Reglamento para la Regulación de la Prevención y Sanción de las Conductas que Configuren el Hostigamiento Sexual en el Instituto Nacional de las Mujeres:
+“Transitorio.—La Junta Directiva del INAMU, en el plazo de tres meses, a partir de la publicación de las presentes modificaciones, definirá la Política Institucional establecida en el artículo 4° de este Reglamento.

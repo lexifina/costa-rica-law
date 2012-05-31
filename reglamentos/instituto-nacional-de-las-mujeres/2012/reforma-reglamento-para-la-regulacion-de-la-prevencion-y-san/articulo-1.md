@@ -1,0 +1,36 @@
+INSTITUTO NACIONAL DE LAS MUJERES
+Considerando:
+I.—Que el inciso d) del artículo 8º de la Ley de Creación del INAMU, número 7801, faculta a la Junta Directiva a reformar los reglamentos internos de la Institución.
+II.—Que mediante Acuerdo número tres de la sesión ordinaria N° 09-2011 del 9 de marzo de 2011, la Junta Directiva aprobó el Reglamento para la Regulación de la Prevención y Sanción de las Conductas que Configuren el Hostigamiento Sexual en el Instituto Nacional de las Mujeres y fue publicado en La Gaceta N° 63 del 30 de marzo de 2011.
+III.—Que algunos de los artículos del Reglamento para la Regulación de la Prevención y Sanción de las Conductas que Configuren el Hostigamiento Sexual en el Instituto Nacional de las Mujeres vigente, requieren de una reforma para cumplir a cabalidad con los objetivos para los cuales fue promulgado, específicamente para incluir a las personas usuarias del INAMU en su ámbito de aplicación. Por tanto,
+Mediante acuerdo número tres de la sesión ordinaria número once del día veinticinco del mes de abril del año 2012, la Junta Directiva del Instituto Nacional de las Mujeres, aprueba la siguiente:
+REFORMA A LOS ARTÍCULOS 1°, 2° INCISO 1), 3°,
+ARTÍCULO 4º, INCISO 1), 11, 13, 20, 21, 34, 35 Y SE
+ADICIONA TRANSITORIO AL REGLAMENTO
+PARA LA REGULACIÓN DE LA PREVENCIÓN
+Y SANCIÓN DE LAS CONDUCTAS QUE
+CONFIGUREN EL HOSTIGAMIENTO
+SEXUAL EN EL INSTITUTO
+NACIONAL DE LAS MUJERES
+Artículo 1º—Refórmense los artículos 1°, 2º, inciso 1), 4º inciso 1), 11, 13, 20, 21, 34 y 35 del Reglamento para la Regulación de la Prevención y Sanción de las Conductas que Configuren el Hostigamiento Sexual en el Instituto Nacional de las Mujeres, para que en adelante se lean de la siguiente manera:
+“Artículo 1º—Ámbito de aplicación: La presente normativa se establece, en el marco de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, Nº 7476, para prevenir, investigar, repudiar y sancionar el acoso y/o el hostigamiento sexual como práctica discriminatoria en razón del sexo u opción sexual, que atenta contra la dignidad de las personas, en las relaciones de jerarquía o autoridad, relaciones entre personas del mismo nivel jerárquico, entre personas funcionarias y entre personas funcionarias y usuarias, en el ámbito de trabajo, que se establecen dentro del Instituto Nacional de las Mujeres.
+El presente Reglamento se aplicará en relaciones de jerarquía o autoridad; relaciones entre personas del mismo nivel jerárquico, entre personas funcionarias de un nivel jerárquico inferior a uno superior y relaciones entre personas funcionarias y usuarias, en el ámbito de Trabajo del INAMU.
+Artículo 2º—Objetivos: Los objetivos de este Reglamento son:
+1. Contar con un reglamento interno que garantice condiciones de respeto para quienes laboran en el Instituto Nacional de las Mujeres, personal administrativo, técnico y personas que presten o reciben servicios del INAMU, por medio de una política interna que prevenga, desaliente, evite, investigue, sancione las conductas de hostigamiento sexual y garantice un clima organizacional fundamentado en los principios constitucionales de respeto a la libertad, el trabajo, la igualdad y la no discriminación.
+Artículo 4º—Política institucional. (…)
+1. Promover una sistemática y activa divulgación en forma escrita y oral de la ley y el presente reglamento entre las personas funcionarias y las personas usuarias de la institución para darlo a conocer. Para tal efecto el INAMU elaborará y distribuirá toda clase de materiales informativos, educativos y didácticos sobre el hostigamiento sexual (afiches, brochures) e informará los procedimientos establecidos en el presente reglamento e instancias donde acudir.
+Artículo 11.—Deber de colaboración. Todo el personal del INAMU se encuentra en la obligación de brindar su colaboración a solicitud de la Comisión Investigadora del Procedimiento para la debida instrucción del procedimiento especial contra el hostigamiento sexual. La desatención injustificada de este deber por parte de la persona funcionaria, se considerará falta grave y se sancionará conforme con lo establecido en el Reglamento Autónomo de Servicios.
+Artículo 13.—Plazo para instruir investigación. El plazo máximo para concluir el procedimiento es de tres meses, a partir del momento de la interposición de la denuncia ante el Área de Recursos Humanos.
+Artículo 20.—Medidas cautelares. En cualquier estado del procedimiento especial contra el hostigamiento sexual y hasta tanto no adquiera firmeza el acto final, deberán resolverse de manera prevalente y con carácter de urgencia las medidas cautelares solicitadas por la parte. La resolución que al respecto dicte la Presidenta Ejecutiva carecerá de ulterior recurso, excepto el de adición o aclaración.
+La Comisión Investigadora, previa solicitud de parte y mediante resolución motivada podrá solicitar a la Presidencia Ejecutiva adoptar el establecimiento de medidas cautelares tales como:
+1) Traslado temporal o permuta de la persona denunciada a otro puesto, de igual o similar categoría, manteniendo todos sus derechos laborales y percibiendo el mismo salario.
+2) Traslado temporal o permuta (reubicación temporal) de la presunta víctima o de algún testigo cuando estos sean parte del personal del INAMU a un puesto de igual o similar categoría sin afectación en perjuicio de su salario.
+3) Que el presunto hostigador, se abstenga de perturbar al denunciante.
+4) Que el presunto hostigador se abstenga de interferir en el uso y disfrute de los instrumentos de trabajo de la persona hostigada.
+5) Excepcionalmente la separación temporal del cargo con goce de salario.
+6) Cualquier otra medida que permita a la Comisión Investigadora obtener la verdad real de los hechos denunciados, de acuerdo con la ley.
+En la aplicación de las medidas cautelares deberán respetarse los derechos laborales de las personas obligadas a la disposición preventiva, pudiendo ser aplicadas a ambas partes del proceso, procurando mantener la seguridad de la víctima.
+Artículo 21.—Traslado de la denuncia y audiencia. La Comisión Investigadora encargada del procedimiento conferirá un plazo mínimo de quince días hábiles a partir de la notificación a las partes de la resolución inicial, para que se presenten a una audiencia oral y privada con la finalidad de recibir toda la prueba ofrecida, alegatos y conclusiones. En dicha resolución deberán establecerse, de manera expresa, las garantías del debido proceso. No procederá la conciliación.
+Artículo 34.—Prescripción. El plazo para la aplicación de sanciones disciplinarias, prescribirá en un mes calendario, a partir de la fecha en que la Presidencia Ejecutiva recibe el Informe Final por parte de la Comisión Investigadora, conforme con lo que establece el artículo 603 del Código de Trabajo.
+El cómputo, la suspensión, la interrupción y los demás extremos relativos a la prescripción, se regirán por lo estipulado en el título X del Código de Trabajo.
+Artículo 35.—Normativa Supletoria. Para lo no regulado expresamente en este reglamento, se aplicarán supletoriamente las disposiciones del Reglamento Autónomo de Servicios del Instituto Nacional de las Mujeres y la Ley General de la Administración Pública”
