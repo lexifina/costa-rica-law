@@ -757,6 +757,8 @@ PREMIOS DIRECTOS
 25 Premios de | ¢ 1,500,000 | ¢ 37,500
 80 Premios de | ¢ 1,000,000 | ¢ 25,000
 TOTAL: 128 premios por emisión | |
+(Mediante el acuerdo JD-265 tomado en la sesión extraordinaria N° 09-12012 del 31 de mayo del 2012 se establece lo siguiente: "... Lotería Nacional, Gordo Navideño: Se autoriza la incorporación de premios en especie, tomando los recursos del fondo para premios extra.
+- 20 premios con valor aproximado a los 15 millones de colones por premio (automóviles))
 PRIMER SORTEO EXTRAORDINARIO DE CONSOLACIÓN
 NO. 4216 DEL 23 DE DICIEMBRE 2012
 PLAN DE PREMIOS POR EMISIÓN
@@ -840,18 +842,23 @@ SORTEO SÚPER EXTRAORDINARIO DE LOTERIA POPULAR
 “VIERNES NEGRO”
 No. 5800 DEL VIERNES 23 DE NOVIEMBRE 2012
 PLAN DE PREMIOS POR EMISIÓN
-EMISION: 100.000 billetes cada una (Emisión doble): Total 200,000 Billetes.
-El billete consta de 10 fracciones con un valor de ¢6.000 el billete y ¢600 la fracción.
-PLAN DE PREMIOS POR PAGAR EN CADA EMISIÓN
-| Premio Por Billete | Premio Por Fracción
-Primer Premio | ¢ 90,000,000 | ¢ 9,000,000
-Número igual al 1er. Premio con diferente serie | ¢ 160,000 | ¢ 16,000
-| |
-Segundo Premio | ¢ 40,000,000 | ¢ 4,000,000
-Número igual al 2do. Premio con diferente serie | ¢ 40,000 | ¢ 4,000
-| |
-Tercer Premio | ¢ 20,000,000 | ¢ 2,000,000
-Número igual al 3er. Premio con diferente serie | ¢ 22,000 | ¢ 2,200
+VIERNES NNEGRO 2012 | SORTEO SÚPER EXTAORDINARIO DE OTERÍA POPULAR VIERNES NEGRO 23 DE NOVIEMBRE 2012 PLAN DE PREMIOS POR EMISIÓN
+% BOLSA | Emisión: 100.000 billetes cada una (Emisión doble). Total 20.000 Billetes
+| El billete consta de 10 fracciones con un valor de ¢7.000 el billete y ¢700 la fracción
+64.3 % | PLAN DE PREMIOS POR PAGAR EN CADA EMISIÓN
+Premios | Nombre premio | Premio | Premio | Monto Premios
+Por Billete | Por fracción
+1 | Premio Mayor | ¢115.000.000 | ¢11.500.000 | ¢ 115.000.000
+1 | 2do premio | ¢ 45.000.000 | ¢ 4.500.000 | ¢ 45.000.000
+1 | 3er premio | ¢ 20.000.000 | ¢ 2.000.000 | ¢ 20.000.000
+1 | 4to premio especial | ¢10.000.000 | ¢1.000.000 | Fondos premios extra
+999 | Los billetes con el número igual al mayor, con diferente serie | ¢ 180.000 | ¢ 18.000 | ¢ 179.820.000
+999 | Los billetes con el Número igual al Segundo, con diferente serie | ¢ 45.000 | ¢ 4.500 | ¢ 44.955.000
+999 | Los billetes con el número igual al Tercero, con diferente serie | ¢ 25.000 | ¢ 2.500 | ¢ 24.975.000
+1000 | Inverso al número del primer premio | ¢ 20.000 | ¢ 2.000 | ¢ 20.000.000
+4.001 | Cantidad de premios directos | 4 | ¢ 449.700.000
+| Plan de premios total | | ¢ 899.500.000
+(Así reformado el plan de premios anterior mediante acuerdo JD-265 aprobado en sesión extraordinaria N° 09-2012 del 31 de mayo del 2012)
 SORTEOS DE LOTERIA TIEMPOS
 DE ENERO A DICIEMBRE 2012
 PLAN DE PREMIOS POR EMISIÓN

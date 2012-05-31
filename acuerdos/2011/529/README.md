@@ -14,3 +14,4 @@ Calendario Anual de Sorteos y Planes de Premios de Loterías 2012
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-16 | la propia norma |
+| 2 | 2012-05-31 | Acuerdo 265 (2012-05-31) |
