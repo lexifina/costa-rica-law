@@ -1,0 +1,1 @@
+Artículo 15.—Liquidación del proyecto de cánones. Los sujetos comprendidos en el ámbito de aplicación conforme al artículo 2º del presente Reglamento deberán presentar la liquidación del proyecto de cánones en conjunto con la liquidación presupuestaria de cada año.

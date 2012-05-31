@@ -1,0 +1,1 @@
+Artículo 3º—Alcance. Este Reglamento establece las disposiciones que deben observarse en el trámite de la aprobación de los proyectos de cánones de regulación, sujetos a la aprobación de la Contraloría General de la República y deben considerarse complementarias a las regulaciones legales que otorgan la competencia aprobatoria a su cargo.

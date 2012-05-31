@@ -1,0 +1,1 @@
+Artículo 13.—Comunicación de lo resuelto. La Contraloría General de la República procederá a comunicar al ente u órgano regulador el resultado de la solicitud de aprobación. La notificación del acto respectivo se hará en el plazo dispuesto en el inciso b) del artículo 262 de la Ley General de la Administración Pública.

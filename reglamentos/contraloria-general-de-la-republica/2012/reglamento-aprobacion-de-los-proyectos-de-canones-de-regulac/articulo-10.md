@@ -1,0 +1,1 @@
+Artículo 10.—Requerimientos de información. Durante el trámite de aprobación, la Contraloría General de la República podrá formular al órgano o ente regulador los requerimientos de información adicionales que estime necesarios para el estudio de fondo de los cánones de regulación. Las respuestas formarán parte del expediente administrativo y serán de acceso público.

@@ -1,0 +1,1 @@
+Artículo 19.—Obligatoriedad de lo establecido. Lo establecido en este reglamento es de carácter vinculante para los sujetos comprendidos en el ámbito de aplicación conforme al artículo 2. Su inobservancia puede dar lugar a la aplicación de las responsabilidades que establece el ordenamiento jurídico.
