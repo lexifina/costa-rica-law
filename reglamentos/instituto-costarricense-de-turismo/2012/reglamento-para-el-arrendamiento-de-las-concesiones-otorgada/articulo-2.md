@@ -1,0 +1,1 @@
+Artículo 2º—El otorgamiento de un contrato de arrendamiento deberá inscribirse en el Registro de Concesiones del Polo Turístico Golfo de Papagayo del Registro Nacional. En estos casos, el arriendo seguirá la suerte de la concesión.

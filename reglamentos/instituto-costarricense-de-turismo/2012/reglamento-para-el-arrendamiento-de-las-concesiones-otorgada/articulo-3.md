@@ -1,0 +1,1 @@
+Artículo 3º—Los contratos de arrendamiento sobre concesiones otorgadas en el Polo Turístico Golfo de Papagayo podrán ser parciales o totales y podrán ser otorgados por un plazo máximo de diez años, el cual podrá ser prorrogado por períodos iguales hasta por el plazo que ostente la concesión a la que pertenezca la parcela o lote arrendado.
