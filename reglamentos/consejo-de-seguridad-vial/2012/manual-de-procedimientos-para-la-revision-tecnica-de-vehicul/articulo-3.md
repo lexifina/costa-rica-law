@@ -1,0 +1,9 @@
+Artículo 3—El objetivo perseguido con esta nueva revisión del “Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones de RTV " es atender las mejoras propuestas por la población, adaptarse a las nuevas tecnologías automotrices y ajustarse a la normativa vigente.
+Además de las disposiciones reglamentarias y recomendaciones ya citadas, para la revisión del Manual se ha partido de los siguientes principios generales que deben ser seguidos en las revisiones:
+a) La revisión técnica de los vehículos tiene por objeto comprobar si éstos cumplen las condiciones exigidas por la normativa vigente para la circulación por vías públicas, recogidas en el presente manual.
+b) Previamente al inicio de la RTV se deberá proceder a su identificación, comprobando que su VIN o número de chasis y matrícula coinciden con los señalados en los documentos oficiales.
+c) Las comprobaciones técnicas de los diferentes elementos de los sistemas del vehículo durante el proceso de inspección deben ser lo más congruentes y directas posibles.
+d) Durante el proceso de inspección no se efectuará manipulación o desmontaje alguno de los elementos y/o piezas del vehículo.
+e) Los equipos y herramientas que se utilicen en la inspección serán los que al efecto disponga el Ministerio de Obras Públicas y Transportes mediante el Decreto Ejecutivo.
+El reconocimiento de las condiciones técnicas de las instalaciones que constituyen las estaciones de revisión técnica de vehículos es competencia del Ministerio de Obras Públicas y Transportes, y estará bajo la supervisión del Cosevi, siendo éste, por tanto, el que determine los equipos con los cuales debe estar dotada una estación, mediante los procedimientos previstos en la legislación vigente y en concreto, mediante el Reglamento de RTV.
+f) La inspección técnica del vehículo deberá poder realizarse en un tiempo razonable que asegure la calidad y eficiencia del servicio de RTV.

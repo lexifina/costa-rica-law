@@ -1,0 +1,18 @@
+Artículo 5— Los siguientes defectos calificados como graves en el presente manual, serán valorados como leves hasta el 31 de diciembre de 2012:
+- Defectos en el estado de la carrocería que entrañen peligro.
+- Defectos de estado en los amarres de la carrocería al chasis.
+- Defectos de estado en los largueros y travesaños si existe peligro de desacoplamiento de la cabina.
+- Defectos de estado en los largueros y travesaños si existe peligro de rotura.
+- Fijación defectuosa con riesgo de desprendimiento, en retrovisores exteriores, asientos y sus anclajes.
+- Mecanismos de ajuste que no permiten fijación, de asientos y sus anclajes.
+- Inexistencia o no funcionamiento de cinturones traseros.
+- SCECC inexistente o incompleto en vehículo de primero ingreso.
+- Holguras anormales y excesivas que puedan provocar desprendimiento de algún componente, en la caja de dirección.
+- Rótulas con reventadoras y/o con reparaciones inadecuadas.
+- Defectos en la ballesta que ponga en riesgo la fijación del eje.
+- Fijaciones inadecuadas o deformadas con peligro de desprendimiento o rotura, en brazos, tijeretas y rótulas de suspensión.
+- Holguras anormales con peligro de desprendimiento, en brazos, tijeretas y rótulas de suspensión.
+- Defectos en la fijación del depósito o de las conducciones del combustible a la carrocería o al chasis.
+- Inexistencia del silenciador o dispositivo equivalente.
+- Existencia de holguras excesivas en los elementos de la transmisión.
+- Inexistencia de reposacabezas cuando es obligatorio para los vehículos inscritos a partir del 01 de enero de 2009.
