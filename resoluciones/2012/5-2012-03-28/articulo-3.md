@@ -1,0 +1,1 @@
+Artículo 3º—A partir de la entrada en vigencia de esta resolución, ninguna entidad recaudadora podrá recibir el modelo impreso con código de puntos PDF de Declaraciones del Impuesto General sobre las Ventas.
