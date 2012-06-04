@@ -1,0 +1,1 @@
+Artículo 19.—Firma y aprobación del Convenio. Cumplido lo anterior, la Unidad Técnica de Gestión Vial Municipal remitirá el expediente al Concejo Municipal para que resuelva su aprobación o denegatoria y, en su caso, autorice al titular de la Alcaldía su suscripción.

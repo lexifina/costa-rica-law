@@ -1,0 +1,1 @@
+Artículo 21.—Sobre la ubicación geográfica de las obras. Para cada proyecto a intervenir, se deberá incorporar en el expediente respectivo una copia tomada de una hoja cartográfica oficial, en la cual se delimitará el sector objeto de intervención, que permita la ubicación clara de éste y en consecuencia se facilite la verificación y control de las obras.

@@ -1,0 +1,1 @@
+Artículo 12.—Delegación de competencia. El Concejo Municipal delega en la Alcaldía Municipal, la competencia para concertar convenios de cooperación por escasa cuantía a que se refiere el presente capítulo; los cuales se tendrán por formalizados mediante la firma de las partes involucradas, del documento mencionado en el artículo 10 de este Reglamento.

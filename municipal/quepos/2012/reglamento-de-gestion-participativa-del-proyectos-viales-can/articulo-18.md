@@ -1,0 +1,4 @@
+Artículo 18.—Confección y trámite del Convenio. La Unidad Técnica de Gestión Vial Municipal procederá de inmediato a remitir el expediente completo al Departamento Legal.
+Corresponderá al Departamento Legal constatar que estas relaciones interadministrativas se apeguen estrictamente a la normativa vigente, en cuyo caso emitirá la aprobación respectiva, como medida de control interno en lo que atañe al ajuste al bloque de legalidad.
+Tal dependencia deberá requerir la información o documentación que considere haya sido omitida o bien información adicional que estime necesaria a los efectos de la correcta formalización del convenio. En caso de no proceder el convenio, o no subsanarse las omisiones prevenidas, procederá el archivo de las diligencias, debiendo comunicarse lo pertinente al interesado.
+En caso positivo, el Departamento Legal procederá con la confección del documento del convenio respectivo.

@@ -1,0 +1,1 @@
+Artículo 3º—De la autorización de la Municipalidad. Todo convenio que se suscriba al amparo de este reglamento, deberá estar previamente autorizado por el órgano u órganos municipales competentes según este reglamento.
