@@ -1,0 +1,1 @@
+Artículo 6º—Improcedencia de otros rubros. En ningún caso procederá el reconocimiento de combustible ni otros insumos propios del uso de vehículos ajenos a la institución, ni de ninguno otro rubro no autorizado en el Reglamento de Gastos de Viaje y Transporte de la Contraloría General de la República.
