@@ -1,1 +1,0 @@
-3. Las sumas a pagar por concepto de gastos de alimentación, transporte y hospedaje de Regidores y Síndicos, se regirán de acuerdo a lo que se establece en el Reglamento de Gastos de Viaje y Transporte para funcionarios públicos emitido y aprobado por la Contraloría General de la República.

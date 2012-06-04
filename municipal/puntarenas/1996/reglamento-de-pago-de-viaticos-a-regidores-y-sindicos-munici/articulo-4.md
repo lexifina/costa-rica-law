@@ -1,1 +1,0 @@
-4. Las sumas establecidas para gastos a que se refiere el Reglamento son asignaciones máximas, en consecuencia esta Municipalidad si lo considera concerniente, previo acuerdo del Concejo, puede aplicar tarifas menores en casos regulados y especiales.

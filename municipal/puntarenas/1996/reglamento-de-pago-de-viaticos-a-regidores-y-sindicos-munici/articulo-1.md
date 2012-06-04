@@ -1,5 +1,0 @@
-MUNICIPALIDAD DE PUNTARENAS
-REGLAMENTO DE PAGO DE VIATICOS A REGIDORES
-Y SINDICOS MUNICIPALES
-La Municipalidad del cantón Central de Puntarenas, de conformidad con los artículos 21, inciso C) y 76 del Código Municipal, este último reformado por la ley 7385 del 16-03-94, aprueban el siguiente Reglamento para regular el pago de alimentación, transporte y hospedaje de los Regidores y Síndicos para asistir a las sesiones del Concejo, que se regirá por los siguientes artículos:
-1. El presente Reglamento establece las disposiciones generales a que deberán someterse las erogaciones por concepto de pago de gastos de viaje y transporte para Regidores y Síndicos; el mismo será de aplicación únicamente en aquellos casos en que el Regidor o Síndico tenga que asistir a las sesiones municipales oficiales fuera del distrito en que reside, cuando la sesión municipal se realice en el lugar de su residencia, no se cubrirá gasto alguno, cuando deba asistir a la sesión municipal en cualquier lugar cercano a su residencia y existe facilidad de transporte, se reconocerá únicamente el gasto de transporte.
