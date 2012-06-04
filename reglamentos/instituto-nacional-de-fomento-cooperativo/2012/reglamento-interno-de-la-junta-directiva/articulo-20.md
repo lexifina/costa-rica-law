@@ -1,0 +1,1 @@
+Artículo 20.—Una vez firme, el texto del acta se transcribirá dentro de los 20 días siguientes al Libro de Actas de la Junta Directiva, a fin de presentarla para ser firmada por el Presidente o Secretario, o quien los sustituya, y por aquellos miembros que hayan hecho constar su voto disidente.

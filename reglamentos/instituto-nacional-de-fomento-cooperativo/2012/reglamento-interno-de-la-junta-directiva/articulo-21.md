@@ -1,0 +1,1 @@
+Artículo 21.—Las partes dispositivas de los acuerdos y resoluciones, cuando fuere del caso, las comunicará la Dirección Ejecutiva a los interesados, y podrán hacerse del conocimiento público cuando a juicio de la Junta Directiva sea conveniente hacerlo.

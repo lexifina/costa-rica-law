@@ -1,0 +1,2 @@
+Artículo 12.—Cuando algún asunto por su complejidad o importancia no pueda ser estudiado o decidido en una sesión, la Junta Directiva podrá pasarlo a la Comisión Especial que se designe o a la Dirección Ejecutiva, a fin de que aquella o ésta rindan informe detallado sobre el mismo.
+En estos casos deberá fijarse necesariamente el término dentro del cual debe darse el informe, a partir de la fecha en que les sea entregado el expediente respectivo.

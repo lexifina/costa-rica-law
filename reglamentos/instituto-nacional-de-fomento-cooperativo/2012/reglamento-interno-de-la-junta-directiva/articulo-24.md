@@ -1,0 +1,1 @@
+Artículo 24.—Las disposiciones vigentes sobre confidencialidad de los datos consignados en las actas no se aplicarán, cuando la certificación de su contenido sea solicitada por una autoridad judicial.

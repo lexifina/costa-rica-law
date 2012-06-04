@@ -1,0 +1,1 @@
+Artículo 18.—Los acuerdos que no fueran declarados firmes con base en lo estipulado en el inciso b), artículo 14 de este Reglamento, quedarán firmes al aprobarse el acta en la siguiente sesión ordinaria, a menos que se interponga y prospere el recurso de revisión conforme con lo que dispone el artículo siguiente.

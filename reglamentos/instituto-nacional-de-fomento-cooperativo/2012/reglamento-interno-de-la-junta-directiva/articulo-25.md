@@ -1,0 +1,1 @@
+Artículo 25.—La atención de los asuntos sometidos a conocimiento de la Junta Directiva estará a cargo de un funcionario y de los empleados que se crea necesarios para el eficaz funcionamiento de esta Sección.
