@@ -1,0 +1,1 @@
+Artículo 148.—El secretario solo podrá ser suspendido o destituido de su cargo por justa causa y por decisión emanada del Concejo Municipal, previa formación de expediente, con oportunidad suficiente de audiencia y defensa en su favor. Dicho procedimiento deberá de ajustarse al debido proceso establecido en la Ley General de la Administración Pública.

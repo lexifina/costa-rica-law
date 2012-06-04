@@ -1,0 +1,1 @@
+Artículo 114.—Los funcionarios, que incurran en cualquiera de las faltas establecidas en el presente reglamento tienen responsabilidad disciplinaria en los supuestos y circunstancias que se han previsto.

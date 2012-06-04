@@ -1,0 +1,1 @@
+Artículo 168.—Para los efectos de los artículos 34 y 35 de este Reglamento, el Departamento de Recursos Humanos tendrá un plazo improrrogable de 90 días naturales, a partir de la vigencia del presente Reglamento, para que los expedientes personales de los funcionarios municipales cumplan con lo establecido en el presente Reglamento.

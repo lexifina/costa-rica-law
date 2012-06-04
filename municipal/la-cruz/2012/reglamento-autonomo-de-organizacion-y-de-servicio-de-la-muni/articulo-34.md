@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Del expediente personal
+Artículo 34.—El Departamento de Recursos Humanos será el responsable de la formación, actualización y custodia del expediente personal de cada uno de los funcionarios al servicio de la Municipalidad, preservando su confidencialidad, salvo en los casos que aquellos funcionarios que lo requieren para labores propios o el servidor y su representante lo solicitan. El expediente debe de estar compilado en fólder, ampo o carpeta, rotulado, los documentos deben de constar en orden cronológico de manera descendiente, deben de ser los originales y estar debidamente foliados.

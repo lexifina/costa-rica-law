@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento de Recursos Humanos funge como asesor de la Administración Municipal, y por tanto, cumplirá y ejecutará todas las funciones, tareas, y actividades propias de la administración de recursos humanos, asignados por el patrono y el ordenamiento jurídico.

@@ -1,0 +1,1 @@
+Artículo 14.—La contratación, la modificación de las condiciones de trabajo y la sustitución se efectuarán mediante acción de personal expedida por el departamento de Recursos Humanos, conocida por el jefe inmediato y autorizado por el Alcalde Municipal o Concejo Municipal según el caso.

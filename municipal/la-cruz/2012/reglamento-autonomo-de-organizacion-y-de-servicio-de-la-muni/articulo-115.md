@@ -1,0 +1,2 @@
+Artículo 115.—Los funcionarios de la Institución que se encuentren contratados bajo la modalidad de tiempo determinado o por obra determinada, podrán ser sujetos de responsabilidad disciplinaria, si incurrieren en cualquiera de las faltas previstas en el presente reglamento y que pudieren cometer en sus funciones para las cuales fueron contratados por la administración.
+En este caso, de no ser posible el cumplimiento de la sanción en el momento en que se dicte la resolución que procede, ésta se tomara en cuenta para una nueva y futura contratación con la administración.

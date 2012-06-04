@@ -1,0 +1,1 @@
+Artículo 160.—En todo aquello no previsto en éste Reglamento sobre acoso u hostigamiento sexual, rige la Ley Nº 7476 del 3 de febrero de 1995, “Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia”.

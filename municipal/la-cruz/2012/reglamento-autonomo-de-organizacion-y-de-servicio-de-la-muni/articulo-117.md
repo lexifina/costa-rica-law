@@ -1,0 +1,1 @@
+Artículo 117.—Los funcionarios que indujeren o coaccionaren a otros en la realización de actos o conducta constitutivos de falta disciplinaria, incurrirán en la misma responsabilidad que éstos y la sanción se aumentará según los daños o perjuicios ocasionados a la Institución.

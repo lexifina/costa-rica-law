@@ -1,0 +1,1 @@
+Artículo 140.—Cuando el Departamento de Recursos Humanos, conozca que un funcionario ha incurrido en falta grave, deberá remitir el expediente con su relativa evaluación del caso ante el Alcalde Municipal o al Concejo Municipal según corresponda, para que este instruya el correspondiente Órgano Director.

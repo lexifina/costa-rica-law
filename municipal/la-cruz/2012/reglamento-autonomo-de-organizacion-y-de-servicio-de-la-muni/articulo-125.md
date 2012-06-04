@@ -1,0 +1,1 @@
+Artículo 125.—La sanción de apercibimiento por escrito, podrá imponerse por parte del director de la dirección correspondiente, cuando el funcionario hubiere sido apercibido verbalmente, por lo menos en una ocasión, durante un mismo mes calendario, y que debe constar en el expediente personal de dicho funcionario.

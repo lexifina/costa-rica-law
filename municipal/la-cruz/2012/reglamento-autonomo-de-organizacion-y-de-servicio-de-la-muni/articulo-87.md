@@ -1,0 +1,1 @@
+Artículo 87.—Los funcionarios con grado académico de licenciado, podrán solicitar el pago por concepto de Dedicación Exclusiva, sin embargo, es potestad de la administración de otorgar ese beneficio o no.

@@ -1,0 +1,1 @@
+Artículo 169.—Para los efectos del artículo 99 de este Reglamento, el Departamento de Recursos Humanos tendrá un plazo improrrogable de 30 días naturales, a partir de la vigencia del presente Reglamento, para elaborar un formulario estandarizado, para el control de las salidas del personal, fuera del centro de trabajo, en horas laborales.

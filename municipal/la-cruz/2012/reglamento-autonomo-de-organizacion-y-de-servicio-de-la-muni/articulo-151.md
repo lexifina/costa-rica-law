@@ -1,0 +1,1 @@
+Artículo 151.—Los casos no previstos en el presente normativo o la duda sobre el alcance, aplicación e interpretación de las presentes normas, serán resueltas mediante resolución razonada del Alcalde Municipal.

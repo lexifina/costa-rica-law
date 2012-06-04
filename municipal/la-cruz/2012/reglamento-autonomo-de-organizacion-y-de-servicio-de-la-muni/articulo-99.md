@@ -1,0 +1,1 @@
+Artículo 99.—No obstante lo anterior, las ausencias deberán justificarse por escrito, a más tardar dentro del día hábil siguiente a la fecha de ocurrida, según sea el caso. El jefe correspondiente determinará, si la ausencia es justificada o no. Las ausencias por enfermedad se rigen por lo establecido en el Capitulo XIX del presente reglamento.

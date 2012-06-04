@@ -1,0 +1,1 @@
+Artículo 62.—No podrán ser empleados municipales quienes sean cónyuges o parientes, en línea directa o colateral hasta el tercer grado inclusivo con respecto a los Concejales, Alcalde, Vicealcaldes, Directores, Jefes de Personal y Selección de Personal.

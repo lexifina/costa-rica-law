@@ -1,0 +1,1 @@
+Artículo 165.—Para los efectos del artículo 67 del Código de Trabajo, este Reglamento se tendrá expuesto en forma permanente, en la pizarra informativa de los funcionarios de la Municipalidad. Asimismo se procederá a entregar copia digital a los funcionarios municipales.

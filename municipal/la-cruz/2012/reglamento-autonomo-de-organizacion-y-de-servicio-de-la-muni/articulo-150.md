@@ -1,0 +1,10 @@
+Artículo 150.—Para la correcta aplicación e interpretación de conceptos establecidos en el presente Reglamento, debe entenderse por:
+FALTA: Toda infracción o contravención por acción, comisión u omisión en que incurra cualquier funcionario o trabajador de la Municipalidad en contra de las disposiciones de las Leyes especiales y supletorias.
+NEGLIGENCIA: El omitir o descuidar deliberadamente el cumplimiento de sus deberes y obligaciones debidamente asignadas.
+IMPERICIA: No tener el conocimiento, habilidades, ni la capacidad para cumplir con eficiencia y eficacia los deberes y obligaciones de un puesto de trabajo.
+IMPRUDENCIA: Incurrir deliberadamente en la omisión del debido cuidado de los deberes y obligaciones asignados en el desempeño de su cargo.
+INCAPACIDAD MANIFIESTA: Ocupar un cargo sin demostrar fehacientemente la capacidad académica, técnica y operativa que se requiere en el cumplimiento de los deberes y obligaciones debidamente asignados al puesto que se desempeña.
+MEDIDA DISCIPLINARIA: Es la sanción o pena administrativa que se impone a una persona por incumplir o contravenir los deberes y obligaciones que debe realizar o por no observar las normas para la buena marcha del trabajo.
+DEBERES Y OBLIGACIONES: Son las actividades, tareas o atribuciones que tienen que cumplir las personas que ocupan cargos en la Institución y que se encuentran explicadas o descritas en el Manual de Clasificación de Puestos de la Institución.
+INSUBORDINACIÓN: La persona que en ejercicio de su cargo se niegue mediante hechos o actos deliberados a obedecer las órdenes o instrucciones impartidas por sus jefes inmediatos, funcionarios o autoridades de la Municipalidad, dictadas dentro del respectivo ámbito de sus atribuciones y facultades.
+INDISCIPLINA: Son actos o hechos realizados por una persona, que contravienen normas imperativas o prohibitivas establecidas en la Municipalidad, con el fin de que exista orden, respeto, armonía, igualdad y disciplina entre trabajadores, funcionarios y personas a quienes se sirve.

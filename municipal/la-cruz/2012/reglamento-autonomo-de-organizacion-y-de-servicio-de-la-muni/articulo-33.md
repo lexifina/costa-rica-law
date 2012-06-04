@@ -1,0 +1,4 @@
+Artículo 33.—El tiempo laborado que exceda las jornadas ordinarias antes señaladas constituye tiempo extraordinario, y será remunerado atendiendo a los siguientes hechos:
+a) Que se encuentre debidamente y previamente autorizado por la jefatura inmediata, siguiendo el procedimiento establecido al efecto.
+b) Que el tiempo extraordinario no sea utilizado para subsanar errores en la labor del trabajador, que no sea inferior a una hora por día.
+c) Que el reporte sea remitido al Departamento de Recursos Humanos por la jefatura respectiva dentro de los primeros quince días posteriores en que se prestó el servicio. En aquellos casos en que por negligencia de la jefatura inmediata del servidor, la documentación respectiva no sea remitida al Departamento de Recursos Humanos dentro el plazo establecido en el presente artículo, el responsable del atraso tendrá responsabilidad disciplinaria.

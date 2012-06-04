@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De los contratos de trabajo
+Artículo 23.—Todo funcionario de la municipalidad, sea por tiempo determinado o indeterminado, debe estar amparado por un contrato de trabajo o una acción de personal, escrito. Necesariamente deben contener en términos generales las calidades de los contratantes, así como las cláusulas y estipulaciones necesarias que regulan la prestación de servicios, así como el nombre del puesto, salario, jornada de trabajo, lugar de prestación de servicios, duración del contrato, lugar y fecha de la celebración, las firmas de los contratantes y cualquier otro aspecto de interés, cumpliendo así con lo establecido en el artículo 24 del Código de Trabajo.

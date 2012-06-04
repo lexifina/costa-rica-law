@@ -1,0 +1,1 @@
+Artículo 147.—Se reputará como falta grave del funcionario competente para iniciar el procedimiento sancionatorio, el no darle inicio a este oportunamente o el dejar prescribir la responsabilidad del infractor, sin causa justificada.

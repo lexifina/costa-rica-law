@@ -1,0 +1,1 @@
+Artículo 108.—Las medidas disciplinarias establecidas en el presente reglamento, son aplicables en casos concretos y previamente determinados; no guardan ninguna relación de jerarquía en forma ascendente o descendente para su imposición, con excepción de los casos regulados en el presente instrumento o reincidencia.

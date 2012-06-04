@@ -1,0 +1,2 @@
+Artículo 143.—La responsabilidad administrativa de los funcionarios de auditoría y el contador por las infracciones previstas en este Reglamento en concordancia con Leyes especiales, prescribirá según el artículo 71 de la Ley Orgánica de la Contraloría General de la República, Nº 7428, del 7 de setiembre de 1994.
+Se reputará como falta grave del funcionario competente para iniciar el procedimiento sancionatorio, el no darle inicio a este oportunamente o el dejar prescribir la responsabilidad del infractor, sin causa justificada.

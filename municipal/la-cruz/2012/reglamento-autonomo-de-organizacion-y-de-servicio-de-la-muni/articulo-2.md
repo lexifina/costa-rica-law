@@ -1,0 +1,1 @@
+Artículo 2º—Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento, y las políticas que se originan de los mismos, son de aplicación obligatoria en todas las acciones que se relacionen con los derechos, beneficios y obligaciones de los funcionarios que dependen del Alcalde así como del Concejo Municipal.

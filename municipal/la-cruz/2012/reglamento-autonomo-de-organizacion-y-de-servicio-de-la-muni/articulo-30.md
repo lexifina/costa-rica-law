@@ -1,0 +1,1 @@
+Artículo 30.—Se considera tiempo efectivo de trabajo aquel en que los trabajadores permanezcan bajo las órdenes y dirección inmediata o delegada del Patrono o no pueda salir del lugar donde presta sus servicios incluso en los tiempos destinados para descansar o tomar alimentos.

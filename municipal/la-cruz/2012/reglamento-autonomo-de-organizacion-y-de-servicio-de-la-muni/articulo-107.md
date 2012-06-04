@@ -1,0 +1,1 @@
+Artículo 107.—El régimen disciplinario establecido en el presente reglamento es de carácter administrativo y en consecuencia, su aplicación se hará sin perjuicio de la responsabilidad civil o penal en que pudieren incurrir los funcionarios de la Institución, las cuales se harán efectivas en la forma que determina la ley especial a aplicar.

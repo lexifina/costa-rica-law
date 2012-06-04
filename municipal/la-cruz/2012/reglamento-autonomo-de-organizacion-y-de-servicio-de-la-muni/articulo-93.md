@@ -1,0 +1,36 @@
+CAPÍTULO XXIII
+De las Obligaciones de los Trabajadores
+Artículo 93.—Conforme a lo dispuesto en otros artículos de este Reglamento, Ley General de la Administración Pública y de acuerdo con el Código de Trabajo y Código Municipal son obligación de los trabajadores:
+a. Prestar los servicios personales en forma regular y continua y dentro de la jornada de trabajo.
+b. Ejecutar el trabajo con intensidad, cuidado, dedicación y esmero apropiado en la forma, tiempo y lugar convenidos.
+c. Restituir a la Municipalidad los materiales no usados y conservar en buen estado los instrumentos, los vehículos y útiles que se le faciliten para el trabajo. Los funcionarios no serán responsables por el deterioro normal de ellos, que se ocasione por caso fortuito, fuerza mayor, mala calidad o defectuosa confección.
+d. Desempeñar el servicio contratado bajo la dirección del Patrono o de sus representantes a cuya autoridad estarán sujetos en todo lo concerniente al trabajo y ejecutar las labores que los mismos les encomienden dentro de la jornada de trabajo, que sean aquellas labores, los que formen parte del contrato o de la relación de servicio.
+e. Respetar estrictamente el orden jerárquico establecido por el Manual descriptivo de Puestos y canalizar con riguroso apego a este, toda solicitud, reclamo o queja, que estime pertinente presentar y que no esté regulado específicamente en este reglamente, salvo en caso de conflicto grave con su superior jerárquico, en cuya situación deberá acudir al superior inmediato de este.
+f. Conducirse en forma correcta, decorosa y disciplinada durante la jornada laboral y aún fuera de esta, mientras se encuentre dentro de las instalaciones de la Municipalidad o en giras de trabajo, igualmente cuando esté fuera de la institución y porte uniforme o emblemas que lo identifiquen como funcionario de esta.
+g. Vestir con decoro durante la jornada de trabajo. En los casos en que la Municipalidad les proporcione uniformes, será absolutamente obligatorio su uso durante la jornada de trabajo.
+h. Portar en un lugar visible de su vestimenta, dentro del lugar de trabajo o fuera de este, cuando por el cumplimiento de las funciones propias de su cargo requiera identificarse, su carné de identificación.
+i. Tener por sus compañeros de trabajo el debido respeto y evitar que se origine queja por maltrato o irrespeto, debiéndose en todo momento guardar las buenas costumbres y la disciplina.
+j. Prestar los auxilios necesarios, en caso de siniestro o riesgo inminente, en que las personas o intereses de la Municipalidad o algún compañero de trabajo estén en peligro, sin que dicho auxilio le genera derecho a remuneración adicional.
+k. Guardar a sus jefes, compañeros de trabajo así como a los miembros del Concejo Municipal toda la consideración y debido respeto, de modo que no se origine queja injustificada por mal trato o irrespeto.
+l. Guardar al público, en sus relaciones con él, motivadas por el trabajo, toda consideración debida, de modo que no se origine queja justificada por mal servicio, mal trato o falta de atención.
+m. Proteger y conservar los equipos, maquinaria, vehículos y otros enseres que se les suministren para su labor. El funcionario no será responsable por su desgaste o deterioro normal, ni por daños debidos a caso fortuito o fuerza mayor, sin perjuicio de la obligación de dar aviso inmediato a su superior jerárquico respecto de cualquier avería o menoscabo que sufran los bienes asignados.
+n. Responder económicamente de los daños que causara intencionalmente o que se debiera a su negligencia o descuido manifiesto.
+o. Informar a su jefe inmediato de cualquier daño, imprudencia, error, deficiencia, anomalía o falta a los intereses de la Municipalidad, que descubra en el cumplimiento de sus funciones o con ocasión de estas, ya sea cometido por funcionarios o cualquier persona ajena a la Institución.
+p. Reportar al Jefe inmediato de los daños o imprudencias que otros compañeros causaren en perjuicio de la Municipalidad. Si se descubre un robo, daño o imprudencia realizado por cualquier persona, deben denunciarlo de inmediato.
+q. Guardar absoluta discreción sobre los asuntos atinentes a su trabajo que, por su naturaleza o en virtud de instrucciones de sus superiores jerárquicos, lo requieran, o cuya divulgación pueda causar perjuicio a la Municipalidad o a sus funcionarios.
+r. Ayudar a sus compañeros en las labores que se estén ejecutando cuando las circunstancias lo demanden o cuando se lo solicite su superior jerárquico.
+s. Efectuar personalmente su marca de control de asistencia labores o cumplir con cualquier otro sistema establecido al efecto.
+t. Declarar cuando fuere citado como testigo en un procedimiento disciplinario administrativo, evacuar y /o rendir los informes que en estos le sean solicitados por el Departamento de Recursos Humanos. Lo anterior vale igualmente para los procesos judiciales en los cuales se defiendan los derechos e intereses de la Municipalidad.
+u. Someterse a petición de la municipalidad a reconocimiento médico, tanto al iniciar su relación de servicio, como en el curso de esta, a efecto de comprobar que no padece ninguna incapacidad permanente o enfermedad profesional, contagiosa o incurable. Así deberán someterse a los exámenes clínicos que, por cualquier motivo, ordenen las autoridades de la materia de salud pública o seguridad social.
+v. Observar rigurosamente las medidas preventivas que acuerden las autoridades competentes, en materia de salud ocupacional, denunciar toda situación susceptible de provocar riesgos laborales y dar inmediato aviso a su superior jerárquico de cualquier accidente de trabajo que sufriera el o algunos de sus compañeros.
+w. Participar con la Comisión y Brigadas de Salud Ocupacional que se establezcan, y prestar a estas el apoyo y la cooperación necesarios para que cumplan su cometido.
+x. Participar en sesiones del Concejo Municipal, comisiones, reuniones, seminarios, cursos y cualesquiera otras actividades tendientes a su capacitación o a obtener la colaboración en el desarrollo de tareas de interés institucional, si la Administración lo convocara, dentro de la jornada laboral o fuera de la misma.
+y. Liquidar los vales de Caja Chica, según se establece en el Reglamento para el funcionamiento de fondos de caja chica de esta Municipalidad.
+z. Rendir los informes que se le soliciten en virtud de sus labores.
+aa. Desarrollar las labores dentro de un ambiente de seriedad y armonía.
+bb. Comenzar las labores de conformidad con el horario establecido, no pudiendo abandonarlas ni suspenderlas sin causa justificada antes de haber cumplido la jornada de trabajo.
+cc. Obtener autorización del jefe inmediato, para salir del centro de trabajo y reportar con exactitud el lugar donde se encuentra.
+dd. Mantener al día las labores que le han sido encomendadas salvo que motivos justificados lo impidan.
+ee. No sobrepasar los límites de descanso entre las jornadas destinadas a tomar alimentos. Según lo regulado en el Capítulo XXV de este Reglamento.
+ff. No usar materiales, vehículos, ni utensilios de la Municipalidad para fines ajenos a la realización del trabajo.
+gg. Cumplir y acatar las disposiciones que les impartan los jefes respectivos, relativo a su cargo, y sea verbalmente o por escrito, por medio de circulares, notas, instrucciones, etc.

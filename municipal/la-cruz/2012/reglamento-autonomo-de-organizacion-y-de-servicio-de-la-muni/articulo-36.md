@@ -1,0 +1,1 @@
+Artículo 36.—Es deber de las jefaturas, enviar, al Departamento de Recursos Humanos, copia de aquellos documentos, que dentro de su ámbito de competencia, pueden generar efectos jurídico – administrativos, para que este departamento los incorpora al expediente personal de los funcionarios.
