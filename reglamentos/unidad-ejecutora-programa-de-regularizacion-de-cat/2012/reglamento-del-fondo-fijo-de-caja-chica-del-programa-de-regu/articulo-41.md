@@ -1,0 +1,1 @@
+Artículo 41.— El Programa deberá solicitar a la empresa de Auditoría de la Institución, incluir en su programa de trabajo la realización de auditoria al Fondo asignado, con el fin de evaluar la suficiencia y efectividad de su operación y del sistema de control implantado.

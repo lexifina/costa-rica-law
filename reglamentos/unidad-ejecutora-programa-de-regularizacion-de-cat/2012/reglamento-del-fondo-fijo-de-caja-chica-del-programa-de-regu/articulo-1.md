@@ -1,0 +1,19 @@
+UNIDAD EJECUTORA PROGRAMA DE REGULARIZACIÓN
+DE CATASTRO Y REGISTRO
+La Unidad Ejecutora del Programa de Regularización del Catastro y Registro, Ley 8154, comunica que se encuentra publicado en la página electrónica el reglamento denominado “Reglamento del Fondo Fijo de Caja Chica del Programa de Regularización del Catastro y Registro”, el cual puede accederse en la siguiente dirección: http://uecatastro.org/index. php?option=com phocadownload&view=category&id=3:documen tos-legales&Itemid=50.
+San José, 11 de mayo del 2012.—
+(Nota de Sinalevi: La presente norma se extrajo del sitio Web de la Unidad Ejecutora Programa de Regularización de Catastro y Registro, y se transcribe a continuación:)
+Reglamento del Fondo Fijo de Caja Chica del Programa
+de Regularización del Catastro y Registro.
+El Programa de Regularización del Catastro y Registro, en adelante el “Programa”, con fundamento en la Ley No. 8154 del 27 de noviembre del año 2001 que aprueba el Convenio de Préstamo Nº 1284/OC-CR suscrito entre la República de Costa Rica y el Banco Interamericano de Desarrollo”, el Contrato Modificatorio del Préstamo No. 1284/OC-CR suscrito el 16 de abril de 2007, el Decreto D.E. No. 34434-H-J “Reglamento Operativo del Programa de Regularización del Catastro y Registro”, publicado en el Diario Oficial La Gaceta Nro. 68 del 8 de abril del 2008 y el Decreto D.E. Nro. 34594-H-J “Reglamento Interno del Consejo Consultivo del Programa de Regularización del Catastro y Registro”, publicado en el Diario Oficial La Gaceta No. 129 de 4 de julio del 2008, acuerda dictar el presente Reglamento.
+Considerando:
+1. Que es indispensable disponer en el Programa de Regularización del Catastro y Registro de un fondo de recursos que le permita a la institución afrontar gastos indispensables y urgentes, y que exista un instrumento normativo que establezca reglas claras y responsabilidades definidas en su manejo.
+2. Que de acuerdo con lo dispuesto en el artículo 1º, incisos a) y b) de la Ley de Administración Financiera de la República y Presupuestos Públicos, Ley No 8131, resulta indispensable que los órganos y entes administradores y custodios de los fondos públicos, cubiertos por el ámbito de aplicación de dicho texto normativo, dispongan de un fondo fijo de recursos financieros que les permita afrontar gastos menores, indispensables y urgentes, bajo un marco normativo que establezca reglas claras y responsabilidades definidas en su manejo.
+3. Que el artículo 61 inciso h) de la Ley de la Administración Financiera de la República y Presupuestos Públicos No 8131, establece como una de las atribuciones de la Tesorería Nacional la competencia para autorizar la apertura de cajas chicas para gastos menores de la Administración Central, así reglamentado según decreto 32874-H, Reglamento General del Fondo de Cajas Chicas.
+4. Que los artículos 79 y 82 del Reglamento de la Ley de la Administración Financiera de la República y Presupuestos Públicos en concordancia con el artículo 61 de la Ley 8131 supracitada, confieren a la Tesorería Nacional la competencia para emitir la normativa y los procedimientos específicos para regular la operación de los fondos de caja chica que la legislación autorice, dentro del marco de respeto al principio de caja única.
+5. Que las disposiciones que emita el Programa de Regularización del Catastro y Registro deben estar apegadas al marco de legalidad, según el artículo 11 de la Ley General de la Administración Pública. Por tanto,
+SE ESTABLECE:
+El siguiente, REGLAMENTO DEL FONDO FIJO DE CAJA CHICA PROGRAMA DE REGULARIZACIÓN DEL CATASTRO Y REGISTRO.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—El presente Reglamento establece las disposiciones generales que regulan la asignación, operación y control del Fondo Fijo Caja Chica en Efectivo que se tenga o se establezcan en el Programa de Regularización de Catastro y Registro, en adelante “El Programa”.

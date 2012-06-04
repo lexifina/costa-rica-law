@@ -1,0 +1,1 @@
+Artículo 18.—En ausencia temporal o definitiva del encargado del Fondo de Caja Chica, se procederá a asignar a un sustituto y el traspaso del fondo se realizará mediante un arqueo el cual deberá ser efectuado por una persona independiente a su custodia y registro contable.

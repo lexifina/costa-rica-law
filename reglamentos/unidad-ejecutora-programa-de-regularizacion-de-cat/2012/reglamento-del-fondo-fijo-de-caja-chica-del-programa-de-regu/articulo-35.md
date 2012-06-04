@@ -1,0 +1,1 @@
+Artículo 35.—El Departamento Financiero será el responsable de suministrar el formulario denominado: “Solicitud de Compra de Bienes y Servicios por medio de Caja Chica, los cuales deberán ser prenumerados consecutivamente por dicha dependencia.

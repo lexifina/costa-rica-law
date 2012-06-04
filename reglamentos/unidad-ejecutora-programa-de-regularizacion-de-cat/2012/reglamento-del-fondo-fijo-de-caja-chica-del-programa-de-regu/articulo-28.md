@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Reembolsos al fondo
+Artículo 28.—El encargado de la custodia y operación del Fondo de Caja Chica será el responsable de tramitar los reintegros del mismo, adjunto a la Solicitud de Reintegro o Reembolsos se presentarán los justificantes respectivos como son Solicitud de Compra de Bienes y Servicios por medio de Caja Chica, la Factura Comercial o comprobante de caja, y el adelanto de Viáticos. Entre los aspectos a verificar están: veracidad de los datos consignados en los mismos, la relación entre el monto de la factura y el límite del gasto, la liquidación del adelanto en tiempo, la disponibilidad presupuestaria y las autorizaciones correspondientes.

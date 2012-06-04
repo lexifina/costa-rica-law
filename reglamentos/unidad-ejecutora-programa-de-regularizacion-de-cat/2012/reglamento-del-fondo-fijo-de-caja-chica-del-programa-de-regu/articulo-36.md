@@ -1,0 +1,1 @@
+Artículo 36.—El fondo de dinero designado al Fondo de Caja Chica operará por medio de monto fijo, lo que implicará que el monto total asignado deberá ser igual a la sumatoria del efectivo en caja, más los Adelantos del Vale de Caja Chica, más las facturas y comprobantes soportes de los pagos efectuados.

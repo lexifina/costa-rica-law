@@ -1,0 +1,1 @@
+Artículo 15.—El Fondo de Caja Chica mantendrá únicamente dinero y los justificantes que respalden los trámites de compra de bienes y servicios a saber: Solicitud de Compra de Bienes y Servicios por medio de Caja Chica, Solicitud de Viáticos y sus respectivos reintegros, Facturas Originales, Tiquetes o Comprobantes de las Compras.
