@@ -1,0 +1,1 @@
+Artículo 12.—Cuando la Contraloría de Servicios este en presencia de una negativa o negligencia de un funcionario/a o unidad administrativa de atender sus solicitudes y recomendaciones, tendrá el respaldo del Alcalde o Alcaldesa, dicho jerarca deberá prestar atención inmediata y determinar en conjunto con la Unidad de Recursos Humanos cualquier responsabilidad.

@@ -1,0 +1,1 @@
+Artículo 20.—Mantener un registro actualizado sobre la naturaleza y frecuencia de las inconformidades y denuncias, así como de las acciones institucionales acatadas o recomendadas para resolver el caso y su cumplimiento.

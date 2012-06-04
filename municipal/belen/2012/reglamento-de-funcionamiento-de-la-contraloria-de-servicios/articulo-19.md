@@ -1,0 +1,1 @@
+Artículo 19.—Identificar conflictos en la relación de la Administración con el usuario específicamente sobre el exceso de requisitos, trámites administrativos y de control interno, que afecten la prestación del servicio.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Organización de la Contraloría de Servicios
+Artículo 5º—La Contraloría de Servicios estará bajo la responsabilidad de un(a) Contralor(a) de Servicios que deberá ser un(a) profesional competente nombrado(a) en plaza fija y no podrá recaer en un puesto de confianza. Ese puesto se desempeñará sin recargo de funciones, el cargo estará afectado por el régimen de prohibición, desvinculándolo estrictamente de toda actividad privada incompatible con el ejercicio de la función, será nombrado bajo las normas y procedimientos ordinarios de la Municipalidad de acuerdo a las necesidades del gobierno local y cumplir lo indicado para su nombramiento según el Decreto Ejecutivo, Nº 34687-PLAN, artículos 10 y 11.

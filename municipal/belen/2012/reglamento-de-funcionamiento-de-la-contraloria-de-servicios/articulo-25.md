@@ -1,0 +1,1 @@
+Artículo 25.—Informar de inmediato a la Alcaldía, cuanto las sugerencias presentadas a las o los funcionarios, direcciones, unidades administrativas o cualquier otra dependencia de la Municipalidad; situaciones no resueltas que hayan sido ignoradas y por ende, las inconformidades en los ciudadanos o ciudadanas permanezcan sin resolver.

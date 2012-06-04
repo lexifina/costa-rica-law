@@ -1,0 +1,1 @@
+Artículo 23.—Apoyar el proceso de creación de procedimientos de recepción, tramitación y resolución de inconformidades, denuncias, necesidades o sugerencias del usuario, respecto a los servicios públicos que se prestan, así como apoyar los mecanismos de control y seguimiento de las mismas. Dichos procedimientos deberán ser accesibles y expeditos.
