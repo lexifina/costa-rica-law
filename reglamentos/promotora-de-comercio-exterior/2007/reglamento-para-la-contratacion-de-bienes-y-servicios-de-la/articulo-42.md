@@ -1,4 +1,6 @@
-Artículo 42.—Cobro. Para el cobro de las multas, no será necesario demostrar la existencia del daño o perjuicio.
-En caso de incumplimiento total de las obligaciones por parte del contratista, no procede el cobro de multas, posteriores a ese momento, sino la ejecución de la garantía de cumplimiento y la adopción de cualquier otra medida que resulte necesaria.
-El cobro de las multas, podrá hacerse con cargo a las retenciones del precio, que se hubieran practicado y los saldos pendientes de pago. En caso de que ninguna de esas dos alternativas resulte viable, se podrá ejecutar la garantía de cumplimiento hasta por el monto respectivo.
-El cobro por concepto de multas no podrá superar el veinticinco por ciento del precio total.
+Artículo 42.-De la ejecución de garantías
+Una vez comprobado el incumplimiento por parte del Contratista o adjudicado, corresponderá a la Gerencia General la ejecución de la garantía correspondiente, la cual se hará en proporción al incumplimiento, atendiendo al objeto contratado, al plazo de entrega ofrecido y a los daños y perjuicios ocasionados a PROCOMER.
+De previo a la ejecución de la garantía, el Departamento de Servicios Generales y Compras le dará audiencia al Contratista o adjudicado para que en un plazo no mayor a tres días hábiles después de su notificación presente sus alegatos.
+La resolución que ordene la ejecución de la garantía carecerá de recurso alguno.
+La ejecución de las garantías no excluye el cobro de los daños y perjuicios causados a PROCOMER con el incumplimiento del oferente o del contratista, ni excluye la aplicación de las cláusulas penales expresamente previstas en el contrato, ni las retenciones acordadas por las partes, cuando resulte necesario para cubrir el monto de los respectivos daños y perjuicios.
+Ejecutada la garantía de cumplimiento y cuando no afecte la continuación de la ejecución del contrato, el contratista deberá rendir una nueva garantía que respalde el cumplimiento de sus obligaciones contractuales durante la vigencia de éste y hasta su ejecución total.

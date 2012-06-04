@@ -1,19 +1,11 @@
-CAPÍTULO VII
-De la adjudicación
-Artículo 113.- De la Adjudicación
-Indistintamente del procedimiento de contratación utilizado, la adjudicación será realizada por los siguientes órganos:
-a) El Jefe de Servicios Generales, los Gerentes y Directores de Área y los Directores de Oficinas Comerciales en las contrataciones inferiores a cinco mil dólares americanos.
-b) El Gerente Administrativo Financiero en las contrataciones iguales o superiores a cinco mil dólares americanos e inferiores al monto de aprobación legal interna aplicable a PROCOMER según lo establecido en el artículo 17, inciso 5) del Reglamento sobre refrendo de las contrataciones de la Administración Pública. Asimismo, el Gerente Administrativo Financiero adjudicará todas las contrataciones de boletos aéreos iguales o superiores a cinco mil dólares americanos.
-c) El Gerente General en las contrataciones iguales o superiores al monto de aprobación legal interna aplicable a PROCOMER según lo establecido en el artículo 17, inciso 5) del Reglamento sobre refrendo de las contrataciones de la Administración Pública e inferiores a cincuenta mil dólares americanos.
-d) La Comisión Administrativa, en las contrataciones iguales o superiores a cincuenta mil dólares americanos.
-e) La Junta Directiva, en la venta, enajenación y arrendamiento de bienes muebles o inmuebles.
-Así reformado en la sesión 291-2012 del 12 de marzo del 2012
-Artículo 113.- De la Adjudicación
-Indistintamente del procedimiento de contratación utilizado, la adjudicación será realizada por los siguientes órganos:
-a) El Jefe de Servicios Generales, los Gerentes y Directores de Área y los Directores de Oficinas Comerciales en las contrataciones inferiores a cinco mil dólares americanos.
-b) El Gerente Administrativo Financiero en las contrataciones iguales o superiores a cinco mil dólares americanos e inferiores al monto de aprobación legal interna aplicable a PROCOMER según lo establecido en el artículo 17, inciso 5) del Reglamento sobre refrendo de las contrataciones de la Administración Pública. Asimismo, el Gerente Administrativo Financiero adjudicará todas las contrataciones de boletos aéreos iguales o superiores a cinco mil dólares americanos.
-c) El Gerente General en las contrataciones iguales o superiores al monto de aprobación legal interna aplicable a PROCOMER según lo establecido en el artículo 17, inciso 5) del Reglamento sobre refrendo de las contrataciones de la Administración Pública e inferiores a cincuenta mil dólares americanos.
-d) La Comisión Administrativa, en las contrataciones iguales o superiores a cincuenta mil dólares americanos.
-e) La Junta Directiva, en la venta, enajenación y arrendamiento de bienes muebles o inmuebles.
-Así reformado en la sesión 291-2012 del 12 de marzo del 2012
-(En la publicación de este Reglamento se consignó dos veces el artículo N° 113 )
+SECCIÓN SEXTA
+Remate
+Artículo 113.-Procedimiento
+PROCOMER podrá utilizar el mecanismo del remate para la venta de activos o arrendamiento de sus bienes muebles e inmuebles. En la ejecución de este procedimiento se observarán las siguientes reglas:
+a) PROCOMER deberá contar con un avalúo del bien a vender o arrendar que será rematado. Para dichos efectos, podrá realizarse el avalúo de conformidad con las reglas del artículo 27 bis de este Reglamento.
+Así modificado por Junta Directiva en la sesión No.273-2010 del 15 de diciembre del 2010.
+b) La invitación a participar en el remate será publicada en un diario de circulación nacional y en la Gaceta. Esta invitación contendrá la información básica para identificar los bienes, la hora, la fecha y lugar de la diligencia, además de la base del remate.
+a) En el acto del remate, PROCOMER nombrará un encargado quien presidirá la diligencia, quien a su vez será asistido por un secretario y un pregonero. Acto seguido, los oferentes harán sus propuestas verbales, resultando adjudicatario del bien a vender o arrendar aquella persona que haga la propuesta mayor. De la diligencia se levantará un acta, mediante la cual se dará fe de los bienes y/o servicios rematados y en donde se consignarán las incidencias relevantes del remate y las calidades del adjudicatario y el lugar donde éste podrá ser localizado. Esa acta será firmada por la persona que presidió el remate y por el adjudicatario. Adicionalmente PROCOMER tomará nota de la cuantía de la segunda mejor oferta, las calidades de este oferente y del lugar en el que éste podrá ser localizado.
+b) Inmediatamente después de concluida la puja, el adjudicatario debe cancelar, a título de garantía de cumplimiento, al menos un diez por ciento del valor total ofrecido en el remate, o bien la primera mensualidad del arrendamiento, según corresponda. Para pagar el resto del precio, el adjudicatario tendrá el plazo máximo de tres días hábiles. Si el adjudicatario no paga el resto del precio en el plazo citado, perderá, a título de daños y perjuicios, el depósito realizado como garantía de cumplimiento.
+c) Cuando el adjudicatario de un remate no pague el resto del precio dentro del plazo señalado, PROCOMER podrá adjudicar el bien al segundo mejor postor, para lo cual le otorgará un plazo de tres días hábiles para que pague la totalidad del precio ofrecido en el remate.
+d) Una vez que se haya pagado la totalidad del precio ofrecido en el remate, PROCOMER entregará los bienes vendidos o arrendados mediante el remate, y suscribirá los contratos en escritura pública o documento privado, según corresponda.

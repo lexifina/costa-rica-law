@@ -1,1 +1,3 @@
-Artículo 128.—Legitimación. Podrá interponer el recurso de apelación cualquier persona que ostente un interés legítimo, actual, propio y directo. Igualmente estará legitimado para apelar, quien haya presentado oferta, bajo cualquier título de representación, a nombre de un tercero. Dentro de este último supuesto se entenderá en todo caso a quien haya sido acreditado regularmente dentro del expediente de licitación como representante de casas extranjeras.
+Artículo 128.-Monto
+El recurso de apelación procederá contra las contrataciones iguales o superiores al monto que corresponda a PROCOMER según la cuantía fijada por la Contraloría General de la República.
+Así reformado en la sesión 293-2012 del 16 de mayo del 2012.

@@ -1,1 +1,7 @@
-Artículo 158.—Resolución contractual. La Administración , podrá resolver unilateralmente los contratos por motivo de incumplimiento imputable al contratista. Una vez firme la resolución contractual se procederá a ejecutar la garantía de cumplimiento y cualesquiera otras multas, si ello resulta pertinente, sin ningún procedimiento adicional. En el evento de que la Administración haya previsto en el cartel cláusulas de retención, se podrán aplicar esos montos al pago de los daños y perjuicios reconocidos. De ser las garantías y retenciones insuficientes, se adoptarán las medidas en sede administrativa y judicial necesarias para obtener la plena indemnización.
+CAPÍTULO
+Sanciones
+SECCIÓN PRIMERA
+De los contratistas
+Artículo 158.-Obligación a la ejecución
+El contratista tiene la obligación de ejecutar plenamente y sin obstáculo lo pactado en el respectivo contrato, salvo cuando se produce alguna de las circunstancias eximentes previstas en el presente Reglamento, o cuando acuerde con PROCOMER suspender temporalmente la ejecución del contrato.
+La Gerencia General podrá autorizar prórrogas para la ejecución del contrato escrito previa solicitud justificada y por escrito del contratista.

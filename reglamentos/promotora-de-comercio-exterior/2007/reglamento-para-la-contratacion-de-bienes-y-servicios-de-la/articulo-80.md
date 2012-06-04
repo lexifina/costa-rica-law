@@ -1,1 +1,2 @@
-Artículo 80.—Plazo para dictar el acto final. El acto final se dictará dentro del plazo máximo fijado en el cartel. Ese plazo podrá prorrogarse por un período igual y por una sola vez, siempre y cuando se acrediten razones de interés público para tomar esa decisión.
+Artículo 80.-Calificación de ofertas
+Al sistema de calificación solamente podrán ser sometidas aquellas ofertas que sean elegibles. De éstas, la que obtenga la mayor calificación será considerada la más conveniente, salvo que la Administración decida incluir un sistema de valoración en dos fases, en cuyo caso, se estará a las reglas específicas de ese concurso.

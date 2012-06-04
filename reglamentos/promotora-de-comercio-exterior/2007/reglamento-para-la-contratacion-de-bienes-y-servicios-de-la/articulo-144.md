@@ -1,1 +1,4 @@
-Artículo 144.—Formalización en escritura pública. Sólo requerirá formalización en escritura pública las contrataciones administrativas que por su naturaleza requieran de dicho documento y deban inscribirse en el Registro Nacional, así como las que por ley tengan que sujetarse a ese requisito.
+Artículo 144.-Prórroga del plazo
+A solicitud del contratista, la Administración, podrá autorizar prórrogas al plazo de ejecución del contrato cuando existan demoras ocasionadas por ella misma o causas ajenas al contratista.
+El contratista solicitará a la Gerencia o Dirección responsable de la contratación, la prórroga dentro de los diez días hábiles siguientes al conocimiento del hecho que provoca la extensión del plazo y la Administración contará con igual plazo para resolver si procede o no. Si la solicitud se hace fuera de plazo, pero estando aún el contrato en ejecución, la Administración podrá autorizar la prórroga, en caso de estar debidamente sustentada, siempre que esté vigente el plazo contractual.
+Corresponderá a la Gerencia General autorizar las prórrogas.

@@ -1,2 +1,4 @@
-Artículo 29.—Forma de pago. La Administración, indicará en su cartel el plazo máximo para pagar, el cual en ningún caso podrá ser superior a treinta días naturales.
-El plazo indicado en el párrafo anterior, correrá a partir de la presentación de la factura, previa verificación del cumplimiento a satisfacción, de lo indicado en el contrato por parte del contratista.
+Artículo 29.- Reajustes o revisiones del precio
+Las partes tendrán derecho al reajuste o revisión del precio siempre que se acredite la variación de los respectivos costos, conforme las reglas existentes. El derecho a reajuste o revisión de los precios rige desde la presentación de la oferta y podrá ser solicitado una vez que dé inicio la ejecución contractual.
+Las partes estarán obligadas a fundamentar su gestión y a aportar las pruebas en que sustenten su dicho, tomando en cuenta las regulaciones específicas de la materia.
+Las gestiones por este concepto prescriben en cinco años, a partir de que existe la posibilidad de interponer acciones cobratorias en relación con la variación de costos que se demande. Dicha prescripción se interrumpe con la presentación de la gestión.

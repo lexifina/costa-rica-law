@@ -1,1 +1,2 @@
-Artículo 168.—Aplicación de sanciones. En caso de determinarse un incumplimiento dentro de un procedimiento de contratación, para efectos de aplicar la sanción, se valorará el perjuicio ocasionado a PROCOMER y se otorgará el debido proceso.
+Artículo 168.-Derogatorias
+El presente Reglamento deja sin efecto el Reglamento de Contratación aprobado en la sesión número 122-03 de fecha 21 de agosto del 2003, sus reformas y cualquier norma o procedimiento que se le oponga.

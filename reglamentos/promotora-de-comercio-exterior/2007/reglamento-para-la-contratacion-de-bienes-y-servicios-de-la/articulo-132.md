@@ -1,4 +1,6 @@
-Artículo 132.—Supuestos de inadmisiblidad. El recurso de apelación será rechazado de plano por inadmisible, en los siguientes casos:
-a) Cuando se haya presentado en forma extemporánea.
-b) Cuando no se cumpla con los requisitos formales previstos en el ordenamiento para interponerlo, tales como la firma del recurso.
-Al momento de contestar la audiencia inicial, las partes podrán alegar como excepción la presentación extemporánea o la incompetencia por monto, que en caso de prosperar obligará a dictar la resolución final dentro de los quince días hábiles siguientes al recibo de la gestión.
+CAPÍTULO IX
+Validez y ejecución del contrato
+SECCIÓN PRIMERA
+Validez, perfeccionamiento y formalización contractual
+Artículo 132.-Validez del contrato
+Será válido el contrato administrativo sustancialmente conforme con el ordenamiento jurídico, por lo que no lo afectarán aquellos vicios intrascendentes del procedimiento de selección del contratista.

@@ -1,3 +1,5 @@
-Artículo 127.—Monto. Para efectos de determinar la procedencia del recurso en contra del acto de adjudicación, se considerará únicamente el monto impugnado. En el caso de licitaciones compuestas por varias líneas se sumarán los montos adjudicados en las líneas que se impugnen. Si se trata de contratos continuados, se tomará en cuenta el monto adjudicado para el plazo inicial sin considerar eventuales prórrogas. En licitaciones de cuantía inestimable cabrá únicamente el recurso de apelación.
-Cuando se haya declarado desierto o infructuoso la totalidad de un concurso, o bien, algunas de sus líneas, para determinar el recurso a interponer, se considerará el monto ofertado por quien decide recurrir.
-Si el monto adjudicado se encuentra consignado en una moneda extranjera, su conversión a colones para determinar cuál de los recursos es el procedente, se hará utilizando el tipo de cambio de referencia para la venta calculado por el Banco Central de Costa Rica, que se encuentra vigente el día en que se publique en el Diario Oficial La Gaceta el respectivo aviso de adjudicación, o en su defecto, cuando así proceda, se realice la notificación al recurrente.
+SECCIÓN TERCERA
+Recurso de apelación
+Artículo 127.-Supuestos
+Cuando proceda el recurso de apelación ante Contraloría General de la República, su tramitación deberá ajustarse a los procedimientos definidos en la Ley de Contratación Administrativa y su Reglamento.
+Así reformado en la sesión 293-2012 del 16 de mayo del 2012.

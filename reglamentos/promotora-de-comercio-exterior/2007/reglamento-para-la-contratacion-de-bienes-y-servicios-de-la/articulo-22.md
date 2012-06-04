@@ -1,3 +1,4 @@
-Artículo 22.—Desglose del precio. El oferente deberá presentar el desglose de la estructura del precio junto con un presupuesto detallado y completo con todos los elementos que lo componen. Esta disposición será obligatoria para los contratos cuyo objeto contractual lo amerite cuando así se exija en el cartel o pliego de condiciones. La presentación del desglose del precio es requisito obligatorio para aquellos contratistas que soliciten un reajuste de precios.
-La anterior obligación no excluye la posibilidad para la Administración de solicitar información adicional atinente al cálculo de los precios contemplados en la oferta, cuando ello resulte necesario.
-Podrá subsanarse la omisión del desglose de la estructura de precios, únicamente si ello no genera una ventaja indebida para el oferente incumpliente.
+Artículo 22.- Efectos de la resolución
+Si la solicitud de levantamiento es denegada, el interesado podrá solicitar, en cualquier momento, un nuevo estudio, exponiendo de forma fundamentada las razones por las cuales considera que sí procede.
+En todo caso, el levantamiento de la prohibición, surtirá efectos, solamente para los concursos en los que la apertura de ofertas, sea posterior a la fecha y hora de la resolución.
+Los oferentes beneficiados por el levantamiento, deberán aportar junto con cada oferta, copia de la resolución respectiva; sin embargo si consta en el registro de proveedores de la Administración, no será necesaria su presentación en cada oportunidad.

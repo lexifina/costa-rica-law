@@ -1,1 +1,5 @@
-Artículo 98.—Exceso en el límite aplicable a la licitación privada. Cuando se haya adoptado el procedimiento de Licitación Privada con fundamento en la estimación preliminar de la misma, y una vez hecho el análisis y la oferta ganadora supera en no más de un diez por ciento sobre el monto límite para la aplicación de este procedimiento no se invalidará la contratación si se dispone de recursos presupuestarios suficientes para asumir la erogación.
+SECCIÓN SEGUNDA
+Contratación General
+Artículo 98.-Montos de la Contratación General
+Procede la contratación general en las compras y contrataciones iguales o superiores al monto de cuarenta mil dólares e inferiores a trescientos mil dólares, moneda del curso legal de los Estados Unidos de América.
+Así modificado en la sesión 293-2012 del 16 de mayo del 2012.

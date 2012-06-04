@@ -1,5 +1,4 @@
-Artículo 61.- Listado de subcontratación
-En aquellos casos en donde la Administración autorice la subcontratación de servicios en un porcentaje mayor al 50%, los participantes deberán presentar con su oferta el listado de todas las empresas a las que se planea subcontratar para llevar a cabo los servicios o trabajos especializados.
-En ese listado se indicarán los nombres de las personas físicas o jurídicas de quienes se pretende subcontratar y se aportará una declaración jurada de que no están afectas al régimen de prohibiciones previsto en la Ley de Contratación Administrativa, así como una certificación de los titulares de su capital social y de sus representantes legales, cuando ello corresponda.
-En caso de que en la fase de ejecución se modifique el listado de subcontratistas, se deberá reportar con la antelación debida a la Administración, a fin de que ésta verifique lo previsto en el párrafo anterior en cuanto al régimen de prohibiciones.
-Así reformado en la sesión 291-2012 del 12 de marzo del 2012.
+Artículo 61.-Documentos a aportar
+Toda oferta presentada por un proveedor nacional contendrá las siguientes declaraciones y certificaciones, sin perjuicio de cualquier otra documentación de la misma naturaleza, que la Administración, requiera en el cartel. En el caso de las declaraciones, se harán bajo la gravedad de juramento y no será necesario rendirlas ante notario público, salvo que así razonablemente lo requiera la Administración en el cartel. Estas serán admisibles en documento separado o bien como parte del texto de la propuesta.
+a) Declaración jurada de que el oferente no está afectado por ninguna causal de prohibición.
+b) Estar al día con la Caja Costarricense de Seguro Social (en adelante CCSS), o bien, que tiene un arreglo de pago aprobado por ésta, vigente al momento de la apertura de las ofertas. PROCOMER verificará tal condición a través del acceso directo al sistema de la CCSS.

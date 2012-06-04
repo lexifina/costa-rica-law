@@ -1,9 +1,4 @@
-SECCIÓN TERCERA
-Recurso de apelación
-Artículo 126.—Supuestos. El recurso de apelación deberá presentarse ante la Junta Directiva de PROCOMER.
-Dicho recurso procederá contra las contrataciones iguales o superiores a cuarenta millones seiscientos mil colones.
-En las licitaciones públicas, el recurso de apelación en contra del acto de adjudicación o contra el que declare infructuoso o desierto el concurso, deberá presentarse dentro de los cinco días hábiles siguientes a la publicación del respectivo acto. En este caso el recurso debe presentarse ante la Junta Directiva de PROCOMER.
-Cuando se trate de Licitaciones Privadas tres días hábiles siguientes a la notificación o publicación del acto de adjudicación.
-La revocación, regulada en el artículo referente a los actos no firmes de este Reglamento, no tiene recurso alguno, sin embargo el acto originado con posterioridad a una revocación, puede ser recurrido. En tal caso, el plazo para interponer el recurso comenzará a correr a partir de que sea publicado o notificado el nuevo acto. En estos supuestos, aquellos recursos de apelación presentados en contra de la declaratoria de desierto, infructuoso o adjudicación anterior a la revocación, serán rechazados de plano sin mayor trámite.
-Cuando el procedimiento estuviere conformado por líneas independientes, la Administración continuará con la tramitación de las líneas no apeladas.
-Así modificado en la sesión 226-2008 del 21 de octubre del 2008, ratificada en la sesión No.227-2008 del 3 de noviembre del 2008 y publicado en la Gaceta No.234 del 3 de diciembre del 2008.
+Artículo 126.-Objeción en contrataciones públicas
+El recurso de objeción contra el cartel de las contrataciones públicas se impondrá ante la Comisión de Asuntos Administrativos de PROCOMER.
+El recurso será resuelto en el plazo de diez días hábiles contados a partir de su presentación. Cuando resulte totalmente improcedente por el fondo o la forma, ya sea, entre otras cosas, porque se trate de simples aclaraciones, o porque no se presenta debidamente fundamentado, será rechazado de plano en el momento que se verifique tal circunstancia.
+Cuando la resolución disponga la modificación del cartel, la Administración se encuentra obligada a realizar las enmiendas y publicarlas por los medios correspondientes. Si de las modificaciones efectuadas se derivare una variación sustancial del objeto, la Administración deberá ampliar el plazo de recepción de ofertas, para ajustarlo a los plazos mínimos señalados por este Reglamento.

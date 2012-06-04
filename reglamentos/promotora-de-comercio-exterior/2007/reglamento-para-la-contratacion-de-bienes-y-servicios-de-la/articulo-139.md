@@ -1,2 +1,4 @@
-Artículo 139.—Resolución. La Administración deberá resolver el recurso dentro de los quince días hábiles siguientes al vencimiento del plazo conferido al recurrente para su contestación.
-La resolución final dará por agotada la vía administrativa. La que acoja el recurso de revocatoria, dispondrá igualmente sobre la nueva adjudicación o declaratoria de deserción que corresponda según el mérito del expediente o dispondrá que el órgano que ostente la competencia prepare el expediente para un nuevo acto a dictarse dentro del mes contado a partir del día siguiente al de la notificación de la resolución, plazo que podrá ser prorrogado por un mes adicional en casos debidamente justificados mediante resolución motivada.
+SECCIÓN SEGUNDA
+Ejecución del contrato
+Artículo 139.-Orden de inicio del contrato
+La Administración, deberá girar la orden de inicio del contrato dentro del plazo establecido en el cartel, y a falta de estipulación cartelaria, lo hará dentro de los diez días hábiles siguientes contados a partir de la notificación a la entidad contratante del refrendo o de que se dé la aprobación interna, según corresponda. Ese plazo podrá ser extendido siempre que medie resolución razonada exponiendo los motivos calificados para ello y ésta se adopte antes del vencimiento del plazo inicial.

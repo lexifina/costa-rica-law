@@ -1,2 +1,6 @@
-Artículo 17.—Definición de puestos de injerencia o poder de decisión. Cuando exista duda razonable sobre si un puesto específico tiene poder de decisión o injerencia, se podrá plantear, de previo a la participación en cualquier concurso, la consulta respectiva a la Contraloría General de la República, acompañada de un documento emitido por autoridades competentes de PROCOMER, en el que se certifiquen, detalladamente, las funciones inherentes al puesto que el funcionario ocupa, así como cualquier otro documento necesario para resolver el asunto.
-La gestión deberá ser resuelta en un plazo máximo de quince días hábiles, contados a partir del día siguiente de su presentación y tendrá efectos hacia futuro. Cuando quien consulte sea el jerarca, la Contraloría General de la República concederá audiencia al funcionario que ocupe el puesto respectivo.
+Artículo 17.- Impedimentos para contratar
+No podrán contratar con la Administración aquellas personas físicas o jurídicas que estén:
+a) Cubiertas por el régimen de prohibiciones establecido en los artículos 22 y 22 bis de la Ley de Contratación Administrativa.
+b) Inhabilitadas para contratar con la Administración, por habérsele sancionado de acuerdo con el artículo 100 y 100 bis de la Ley de Contratación Administrativa.
+c) Inhabilitadas para el ejercicio del comercio o se encuentren declaradas en estado de insolvencia o quiebra.
+Así reformado en la sesión 291-2012 del 12 de marzo del 2012.

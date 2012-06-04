@@ -1,1 +1,4 @@
-Artículo 129.—Fundamentación. El escrito de apelación deberá indicar con precisión la infracción sustancial del ordenamiento jurídico que se alega como fundamento de la impugnación, así como individualizar las líneas que se recurren. El apelante deberá aportar la prueba en que se apoyen sus argumentaciones, y cuando discrepe de los estudios que sirven de motivo para adoptar la decisión, deberá rebatir en forma razonada tales estudios, aportando los dictámenes y estudios emitidos por profesionales calificados en la materia que se impugna.
+SECCIÓN CUARTA
+Recurso de revocatoria
+Artículo 129.-Supuestos
+Cuando por monto no proceda el recurso de apelación, podrá presentarse recurso de revocatoria en contra del acto de adjudicación o contra aquel que declara desierto o infructuoso el concurso, dentro de los tres días hábiles siguientes a aquel en que se notificó a todas las partes y se regirá en cuanto a la legitimación, fundamentación y procedencia por las reglas del recurso de apelación.

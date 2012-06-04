@@ -1,4 +1,5 @@
-Artículo 8º—Publicidad del Programa de Adquisiciones. En el primer mes de cada período presupuestario, la Gerencia Administrativa - Financiera dará a conocer el Programa de Adquisiciones proyectado para ese año, lo cual no implicará ningún compromiso de contratar.
+Artículo 8.- Publicidad del Programa de Adquisiciones
+En el primer mes de cada período presupuestario, la Gerencia Administrativa - Financiera dará a conocer el Programa de Adquisiciones proyectado para ese año, lo cual no implicará ningún compromiso de contratar.
 Todas las Gerencias y Direcciones que tramiten contrataciones con fondos de PROCOMER estarán en la obligación de brindar la información requerida a más tardar durante los primeros 15 días del mes de octubre para la elaboración de dicho programa. La información debe presentarse en el formato diseñado al efecto por la Gerencia Administrativa – Financiera. El programa de compras y contrataciones podrá ser modificado cuando surja una necesidad no prevista con la autorización previa de la Gerencia General.
 La Administración procurará incluir en el Programa de Adquisiciones al menos, la siguiente información:
 a) Tipo de bien, servicio u obra por contratar.

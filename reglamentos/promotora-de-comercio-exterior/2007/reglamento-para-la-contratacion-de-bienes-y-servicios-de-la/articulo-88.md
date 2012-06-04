@@ -1,1 +1,10 @@
-Artículo 88.—Modificaciones y aclaraciones al Cartel. Las modificaciones o aclaraciones al Cartel deberán hacerse del conocimiento de los interesados a través del mismo medio de comunicación que PROCOMER utilizó para realizar la invitación.
+CAPÍTULO VI
+Tipos de procesos de contratación
+SECCIÓN PRIMERA
+Contratación pública
+Artículo 88.- Contratación pública
+Este procedimiento es aplicable para:
+a) Las contrataciones iguales o superiores al monto de trescientos mil dólares, moneda del curso legal de los Estados Unidos de América.
+b) Toda venta, enajenación o arrendamiento de bienes muebles o inmuebles, salvo cuando se utiliza el procedimiento de remate.
+c) Contrataciones de cuantía inestimable.
+Así reformado en la sesión 293-2012 del 16 de mayo del 2012.

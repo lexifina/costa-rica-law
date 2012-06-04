@@ -1,2 +1,2 @@
-Artículo 60.—Entrega inmediata. Cuando un oferente ofrezca plazo de entrega inmediata se entenderá que corresponde al consignado en el cartel o en su defecto a un día hábil, posterior a la entrega o notificación del pedido u orden de compra.
-Esta regla aplicará para efectos de elegibilidad y comparación de ofertas, así como para cómputo de plazos de entrega en fase de ejecución contractual.
+Artículo 60.-Jurisdicción
+Los contratos a ejecutar en el país, cuyas propuestas u ofertas provengan de empresas extranjeras, deberán incorporar una declaración de someterse a la jurisdicción y tribunales nacionales para todas las incidencias que de modo directo o indirecto puedan surgir del contrato, con renuncia a su jurisdicción.

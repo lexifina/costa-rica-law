@@ -1,1 +1,4 @@
-Artículo 120.—Vicios de nulidad no alegados en el expediente. Cuando en el conocimiento de un recurso PROCOMER considere que se encuentra en presencia de un vicio causante de nulidad absoluta no alegado en el expediente lo pondrá en conocimiento de las partes por un plazo de entre tres a cinco días hábiles para que manifiesten su posición al respecto.
+Artículo 120. Notificación
+Es deber de las partes señalar lugar, fax o medio electrónico donde atender notificaciones. Cuando no se haya fijado un fax o medio electrónico el lugar designado para tales efectos deberá estar ubicado dentro del Cantón Central de San José.
+Para efectos de cómputo de los plazos contemplados, éstos empezarán a correr a partir del día hábil siguiente de aquél en que se recibe la notificación.
+La resolución final que se adopte en la tramitación de los recursos, deberá ser notificada a las partes dentro de los tres días hábiles siguientes a su emisión, en el lugar o medio electrónico designado por las partes. En caso que no se haya efectuado esta indicación, la resolución se tendrá por notificada dos días hábiles luego de su adopción.

@@ -1,5 +1,2 @@
-CAPÍTULO VIII
-De los recursos
-SECCIÓN PRIMERA
-Generalidades
-Artículo 116.—Clases de Recursos. Los medios de impugnación en contra de los actos en los procedimientos de contratación administrativa son el recurso de objeción al cartel, y los recursos de apelación o revocatoria en contra del acto de adjudicación y contra la declaratoria de infructuoso o desierto del concurso.
+Artículo 116.-Remisión del expediente para adjudicar
+Una vez que se ha cumplido con todo el proceso de revisión y calificación de las ofertas, el expediente será remitido a la Gerencia General, la Comisión Administrativa o la Junta Directiva, según corresponda realizar la adjudicación, quienes procederán con su adjudicación en un plazo de 10 días hábiles, salvo disposición en contrario de la invitación.

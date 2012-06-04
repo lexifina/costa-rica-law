@@ -1,7 +1,9 @@
-Artículo 155.—Contratación adicional. Si ejecutado un contrato, la Administración requiere suministros o servicios adicionales de igual naturaleza, podrá obtenerlos del mismo contratista, siempre que éste lo acepte y se cumplan las siguientes condiciones:
-a) Que el nuevo contrato se concluya sobre las bases del precedente.
-b) Que se mantengan los precios y condiciones con base en los cuales se ejecutaron las obligaciones, pudiendo el contratista mejorar las condiciones iniciales.
-c) Que el monto del nuevo contrato no sea mayor al 100% del contrato anterior, contemplando los reajustes o revisiones y modificaciones operadas.
-d) Que no hayan transcurrido más de seis meses desde la recepción provisional del objeto. Cuando la recepción provisional del objeto coincida con la definitiva, el plazo comenzará a contar a partir de esta fecha. En contratos con plazos de entrega diferidos, contará a partir de la última entrega de bienes. e) Que la suma de la contratación original, incluyendo reajustes o revisiones de precio, y el incremento adicional no superen el límite previsto para el tipo de procedimiento tramitado.
-f) Que en el contrato precedente no se hubiera incurrido en ningún incumplimiento grave.
-Para utilizar esta modalidad, será requisito que dentro del plazo de los seis meses, conste en el expediente la debida motivación y promulgación, por quien tenga competencia para adjudicar, del acto administrativo que contenga la decisión en que se funde el nuevo contrato.
+Artículo 155.-Cesión
+Los derechos y obligaciones derivados de un contrato en ejecución o listo para iniciarse, podrán ser cedidos a un tercero, siempre que no se trate de una obligación personalísima.
+En todo caso la cesión debe ser previamente autorizada por la Administración mediante acto debidamente razonado, en el que al menos analizará:
+a) Causa de la cesión.
+b) El cumplimiento por parte del cesionario de las principales condiciones legales, técnicas y financieras solicitadas en el cartel.
+c) Que el cesionario no esté afectado por alguna causal de prohibición.
+d) Ventajas de la cesión de frente a resolver el contrato.
+e) Eventuales incumplimientos del cedente hasta el momento y medidas administrativas adoptadas.
+El cesionario queda subrogado en todos los derechos y obligaciones que corresponderían al cedente y este quedará libre de todas las obligaciones con la Administración. En el supuesto de que la cesión genere modificaciones contractuales éstas seguirán los procedimientos comunes establecidos al efecto.

@@ -1,4 +1,2 @@
-CAPÍTULO V
-La Oferta
-SECCIÓN PRIMERA
-Artículo 53.—Concepto. La oferta es la manifestación de voluntad del participante, dirigida a la Administración, a fin de celebrar un contrato con ella, conforme a las estipulaciones cartelarias.
+Artículo 53.-Experiencia
+Cuando la Gerencia o Dirección responsable de la contratación solicite acreditar la experiencia, se aceptará en el tanto ésta haya sido positiva, entendida ésta, como los bienes, obras o servicios recibidos a entera satisfacción, debiendo indicar el cartel la forma de acreditarla en forma idónea. Igual regla se seguirá cuando se trate de experiencia obtenida en el extranjero.

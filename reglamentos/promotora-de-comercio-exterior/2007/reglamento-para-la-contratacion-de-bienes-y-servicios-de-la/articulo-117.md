@@ -1,4 +1,4 @@
-Artículo 117.—Presentación del recurso. Todo recurso debe presentarse en el lugar y dentro de los plazos previstos en el presente Reglamento.
-Si se presenta por medios físicos, se debe presentar en original debidamente firmado y tantas copias como partes haya en el expediente.
-El recurso podrá ser presentado por fax, debiendo remitirse el original dentro de los tres días hábiles siguientes, salvo en el recurso de objeción donde el original deberá presentarse el día hábil siguiente. En tales casos, la presentación del recurso se tendrá como realizada al momento de recibirse el fax. Si el recurso presentado por fax se remite el último día del plazo para recurrir, éste debe ingresar en su totalidad dentro del horario hábil del despacho. En caso de que el original del recurso no se presente dentro del plazo antes indicado la gestión será rechazada.
-Para la presentación de recursos, también podrán utilizarse medios electrónicos cuando se garantice, al menos, la integridad del documento, la identidad del emisor y el momento de presentación, una vez que sea debidamente autorizado por las autoridades competentes.
+Artículo 117.-Del responsable del procedimiento
+La Gerencia o Dirección responsable de la contratación deberá:
+a. Verificar que la contratación se realice con estricto apego a lo establecido en el presente reglamento, el cartel o pliego de condiciones y la oferta presentada. Lo anterior, sin perjuicio del control que al efecto realice la Gerencia Administrativa Financiera de previo a realizar el pago.
+b. Efectuar los actos de verificación necesarios para establecer que PROCOMER reciba los bienes, obras o servicios dentro de las condiciones de calidad, plazo y demás condiciones establecidas en el correspondiente proceso de contratación.

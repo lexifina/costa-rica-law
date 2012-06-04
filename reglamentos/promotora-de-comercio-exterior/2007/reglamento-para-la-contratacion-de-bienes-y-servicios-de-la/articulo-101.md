@@ -1,9 +1,4 @@
-Artículo 101.—Pliego de condiciones de la Contratación General. Una vez que se ha determinado que procede el proceso de Contratación General, la Gerencia o Dirección responsable de la contratación procederá a confeccionar un pliego de condiciones sencillo en donde se describa:
-1. El objeto.
-2. Las obligaciones del contratista.
-3. El plazo
-4. Forma de pago.
-5. Garantía de participación, en caso de que la Gerencia o Dirección responsable de la contratación considere oportuno la exigencia de este requisito.
-6. Garantía de cumplimiento, en caso de que la Gerencia o Dirección responsable de la contratación considere oportuno la exigencia de este requisito.
-7. Cláusula penal, en caso de que la Gerencia o Dirección responsable de la contratación considere oportuno la exigencia de este requisito.
-8. Cualquier otra condición que la Gerencia o Dirección responsable de la contratación considere necesaria.
+Artículo 101.-Cuadro comparativo de ofertas y recomendación de adjudicación
+Vencido el plazo indicado en la invitación, la Gerencia o Dirección responsable de la contratación y el Departamento de Servicios Generales y Compras procederán a verificar el cumplimiento de los requisitos mínimos de participación. Una vez cumplida esta etapa dichos departamentos procederán a elaborar el cuadro comparativo de los factores de valoración de las ofertas recibidas que hayan cumplido los requisitos mínimos de participación, de conformidad con los parámetros de calificación definidos en el pliego de condiciones.
+La Gerencia o Dirección responsable de la Contratación y la Gerencia Administrativo Financiera recomendarán la adjudicación del proveedor que ofreció el mejor precio y/o adquirió el mayor puntaje del sistema de calificación establecido en el pliego de condiciones.
+En estos casos se adjudicará la oferta de menor precio, sin prejuicio de que se valoren otros factores relevantes, cuando así haya sido definido en la invitación y se cuente con la autorización previa de la Gerencia General.

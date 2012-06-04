@@ -1,6 +1,3 @@
-Artículo 15.— Impedimentos para contratar
-No podrán contratar con la Administración aquellas personas físicas o jurídicas que estén:
-a) Cubiertas por el régimen de prohibiciones establecido en los artículos 22 y 22 bis de la Ley de Contratación Administrativa.
-b) Inhabilitadas para contratar con la Administración, por habérsele sancionado de acuerdo con el artículo 100 y 100 bis de la Ley de Contratación Administrativa.
-c) Inhabilitadas para el ejercicio del comercio o se encuentren declaradas en estado de insolvencia o quiebra.
-Así reformado en la sesión 291-2012 del 12 de marzo del 2012.
+Artículo 15.- Capacidad de actuar
+Se presume la capacidad de actuar de todo oferente, por lo que esa condición solamente deberá acreditarse por parte del adjudicatario. En el caso de los contratistas nacionales, tal acreditación se hará mediante certificación del asiento de su inscripción en el Registro Público correspondiente y en el caso de contratistas extranjeros, lo harán mediante los documentos usuales expedidos en su país de origen.
+Así modificado en la sesión 226-2008 del 21 de octubre del 2008, ratificada en la sesión No.227-2008 del 3 de noviembre del 2008 y publicado en la Gaceta No.234 del 3 de diciembre del 2008.

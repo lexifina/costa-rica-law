@@ -1,4 +1,3 @@
-Artículo 125.—Objeción en licitaciones privadas. Contra el cartel de las licitaciones privadas procederá la interposición del recurso de objeción al cartel, ante la Comisión de Asuntos Administrativos de PROCOMER.
-En los casos en que se curse invitación podrán interponer el recurso los proveedores invitados. Cuando se realice publicación o el cartel haya previsto la participación de oferentes no invitados, el recurso podrá ser interpuesto por cualquier interesado.
-El recurso deberá ser resuelto dentro de los diez días hábiles siguientes a su presentación, mediante acto debidamente motivado.
-Cuando la Administración disponga la modificación del cartel, deberá realizar las enmiendas y publicarlas o comunicarlas por los medios correspondientes. Si de las modificaciones efectuadas se derivare una variación sustancial del objeto, deberá ampliarse el plazo de recepción de ofertas, para ajustarlo a los plazos mínimos señalados por este Reglamento.
+Artículo 125.-Prórrogas, modificaciones y adiciones al cartel
+Contra las modificaciones o adiciones del cartel, podrá interponerse recurso de objeción dentro del primer tercio del plazo que medie entre la publicación o comunicación de la variante del cartel y la fecha señalada para recibir ofertas.
+Cuando la modificación consista únicamente en la prórroga del plazo para presentar ofertas, el plazo para objetar se obtendrá de la sumatoria del plazo inicial más el plazo de la prórroga.

@@ -1,252 +1,239 @@
 Reglamento para la Contratación de Bienes y Servicios de la Promotora de Comercio Exterior de Costa Rica
-(Nota de Sinalevi: El siguiente texto corresponde a la reforma integral realizada y publicada en La Gaceta N° 69 del 9 de abril del 2012)
-Indice
+Reglamento para la Contratación de Bienes y Servicios de la Promotora de Comercio Exterior de Costa Rica
+(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, y publicado en La Gaceta N° 107 del 4 de junio del 2012, por lo que se reproduce a continuación:)
+Índice general
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Cobertura.
-Artículo 2º—Régimen jurídico.
-Artículo 3º—Conceptos.
-Artículo 4º—De los principios.
-Artículo 5º—Régimen jurídico.
-Artículo 6º—Registro de Proveedores.
-Artículo 7º—Información del Registro de Proveedores.
-Artículo 8º—Publicidad del Programa de Adquisiciones.
-Artículo 9º—Requisitos previos de la contratación.
-Artículo 10.—Expediente.
-Artículo 11.—Disponibilidad presupuestaria.
+Artículo 1.- Cobertura
+Artículo 2.-Régimen jurídico
+Artículo 3.- Conceptos
+Artículo 4.- De los principios
+Artículo 5.- Jerarquía de las normas
+Artículo 6.- Registro de Proveedores
+Artículo 7.- Información del Registro de Proveedores
+Artículo 8.- Publicidad del Programa de Adquisiciones
+Artículo 9- Requisitos previos de la contratación
+Artículo 10.- Uso de medios electrónicos
+Artículo 11.- Expediente
+Artículo 12.- Disponibilidad presupuestaria
+Artículo 13 - Estimación de la contratación
 CAPÍTULO II
 Aptitud para contratar con la administración
-Artículo 12.—Aptitud para contratar.
-Artículo 13.—Capacidad de actuar.
-Artículo 14.—Representación.
-Artículo 15.—Impedimentos para contratar.
-Artículo 16.—Verificación del régimen de prohibiciones.
-Artículo 17.—Definición de puestos de injerencia o poder de decisión.
-Artículo 18.—Levantamiento de la prohibición.
-Artículo 19.—Trámite para el levantamiento.
-Artículo 20.—Efectos de la resolución.
+Artículo 14.- Aptitud para contratar
+Artículo 15.- Capacidad de actuar
+Artículo 16.- Representación
+Artículo 17.- Impedimentos para contratar
+Artículo 18.- Verificación del régimen de prohibiciones
+Artículo 19.- Definición de puestos de injerencia o poder de decisión
+Artículo 20.- Levantamiento de la prohibición
+Artículo 21.- Trámite para el levantamiento
+Artículo 22.- Efectos de la resolución
 CAPÍTULO III
 Aspectos económicos
 SECCIÓN PRIMERA
 Precio
-Artículo 21.—Precio.
-Artículo 22.—Desglose del precio.
-Artículo 23.—Precios unitarios y totales.
-Artículo 24.—Descuentos.
-Artículo 25.—Precio inaceptable.
-Artículo 26.—Reajustes o revisiones del precio.
-Artículo 27.—Bienes como parte del pago.
-Artículo 28.—Mecanismos de pago.
-Artículo 29.—Forma de pago.
-Artículo 30.—Pago anticipado.
-Artículo 31.—Cesión de los derechos de pago.
+Artículo 23.- Precio
+Artículo 24.- Desglose del precio
+Artículo 25.- Precios unitarios y totales
+Artículo 26.- Descuentos
+Artículo 27.- Mejoras del precio
+Artículo 28.- Precio inaceptable
+Artículo 29.- Reajustes o revisiones del precio
+Artículo 30.- Bienes como parte del pago
+Artículo 31.- Avalúos
+Artículo 32.-Mecanismos de pago
+Artículo 33.-Forma de pago
+Artículo 34.-Pago anticipado
+Artículo 35.-Cesión de los derechos de pago
 SECCIÓN SEGUNDA
 De las garantías
-Artículo 32.—Disposiciones generales sobre garantías.
-Artículo 33.—Garantía de Participación.
-Artículo 34.—Garantía de cumplimiento.
-Artículo 35.—Otras garantías.
-Artículo 36.—Garantía de participación insuficiente.
-Artículo 37.—Devolución de garantías.
-Artículo 38.—De la ejecución de garantías.
-Artículo 39.—Ejecución de la garantía de participación.
-Artículo 40.—Otras garantías y retenciones.
+Artículo 36.-Disposiciones generales sobre garantías
+Artículo 37.-Garantía de Participación
+Artículo 38.-Garantía de cumplimiento
+Artículo 39.-Otras garantías
+Artículo 40.-Garantía de participación insuficiente
+Artículo 41.-Devolución de garantías
+Artículo 42.-De la ejecución de garantías
+Artículo 43.-Ejecución de la garantía de participación
+Artículo 44.-Otras garantías y retenciones
 SECCIÓN TERCERA
 De la cláusula penal
-Artículo 41.—Generalidades.
-Artículo 42.—Cobro.
-Artículo 43.—Prescripción.
-Artículo 44.—Cláusula penal.
+Artículo 45.-Generalidades
+Artículo 46.-Cobro
+Artículo 47.-Prescripción
+Artículo 48.-Cláusula penal
 CAPÍTULO IV
 El Cartel
-Artículo 45.—Concepto.
-Artículo 46.—Audiencias previas al cartel.
-Artículo 47.—Condiciones invariables.
-Artículo 48.—Sistema de evaluación.
-Artículo 50.—Muestras.
-Artículo 51.—Plazo de recepción de ofertas.
-Artículo 52.—Publicación y contenido de la invitación al concurso.
+Artículo 49.-Concepto
+Artículo 50.-Audiencias previas al cartel
+Artículo 51.-Condiciones invariables
+Artículo 52.-Sistema de evaluación
+Artículo 53.-Experiencia
+Artículo 54.-Muestras
+Artículo 55.-Plazo de recepción de ofertas
+Artículo 56.-Publicación y contenido de la invitación al concurso
 CAPÍTULO V
 La Oferta
 SECCIÓN PRIMERA
-Artículo 53.—Concepto.
-Artículo 54.—Generalidades.
-Artículo 55.—Presentación.
-Artículo 56.—Jurisdicción.
-Artículo 57.—Documentos a aportar.
-Artículo 58.—Integridad.
-Artículo 59.—Vigencia.
-Artículo 60.—Entrega inmediata.
-Artículo 61.—Subcontratación.
-Artículo 62.—Ofertas base y alternativas.
-Artículo 63.—Ofertas en conjunto.
-Artículo 64.—Ofertas en consorcio.
-Artículo 65.—Experiencia en consorcios.
-Artículo 66.—Responsabilidad en consorcios.
-Artículo 67.—Acuerdo consorcial.
-Artículo 68.—Constitución de sociedad en consorcios.
-Artículo 69.—Cambios de participación en el consorcio.
+Artículo 57.-Concepto
+Artículo 58.-Generalidades
+Artículo 59.-Presentación
+Artículo 60.-Jurisdicción
+Artículo 61.-Documentos a aportar
+Artículo 62.-Integridad
+Artículo 63.-Vigencia
+Artículo 64.-Entrega inmediata
+Artículo 65.- Listado de subcontratación
+Artículo 66.-Ofertas base y alternativas
+Artículo 67.-Ofertas en conjunto
+Artículo 68.-Ofertas en consorcio
+Artículo 69.-Experiencia en consorcios
+Artículo 70.-Responsabilidad en consorcios
+Artículo 71.-Acuerdo consorcial
+Artículo 72.- Constitución de sociedad en consorcios
+Artículo 73.-Cambios de participación en el consorcio
 SECCIÓN SEGUNDA
 Estudio de ofertas
-Artículo 70.—Apertura de ofertas.
-Artículo 71.—Presentación de aclaraciones.
-Artículo 72.—Corrección de aspectos subsanables o insustanciales
-Artículo 73.—Aspectos subsanables.
-Artículo 74.—Consecuencias de no atender la prevención.
-Artículo 75.—Estudio de admisibilidad de ofertas.
-Artículo 76.—Calificación de ofertas.
-Artículo 77.—Empate.
-Artículo 78.—Alcances de las mejoras.
-Artículo 79.—Acto final
-Artículo 80.—Plazo para dictar el acto final.
-Artículo 81.—Plazo para comunicar el acto final.
-Artículo 82.—Revocación del acto no firme.
-Artículo 83.—Plazo para dictar un nuevo acto.
+Artículo 74.-Apertura de ofertas
+Artículo 75.-Presentación de aclaraciones
+Artículo 76.-Corrección de aspectos subsanables o insustanciales
+Artículo 77.-Aspectos subsanables
+Artículo 78.-Consecuencias de no atender la prevención
+Artículo 79.-Estudio de admisibilidad de ofertas
+Artículo 80.-Calificación de ofertas
+Artículo 81.-Empate
+Artículo 82.-Alcances de las mejoras
+Artículo 83.-Acto final
+Artículo 84.-Plazo para dictar el acto final
+Artículo 85.-Plazo para comunicar el acto final
+Artículo 86.-Revocación del acto no firme
+Artículo 87.-Plazo para dictar un nuevo acto
 CAPÍTULO VI
 Tipos de procesos de contratación
 SECCIÓN PRIMERA
-La licitación pública
-Artículo 84.—Licitación pública.
-Artículo 85.—Contenido del Cartel o Pliego de condiciones.
-Artículo 86.—Invitación a los oferentes.
-Artículo 87.—Licitación pública con publicación internacional.
-Artículo 88.—Modificaciones y aclaraciones al Cartel.
-Artículo 89.—Plazo de recepción de ofertas.
-Artículo 90.—Alcance y efectos de la oferta.
-Artículo 91.—Forma de la oferta.
-Artículo 92.—Vigencia de la oferta.
-Artículo 93.—Adjudicación.
+Contratación pública
+Artículo 88.- Contratación pública
+Artículo 89.-Contenido del Cartel o Pliego de Condiciones
+Artículo 90.-Invitación a los oferentes
+Artículo 91.-Contratación pública con publicación internacional
+Artículo 92.-Modificaciones y aclaraciones al Cartel
+Artículo 93.-Plazo de recepción de ofertas
+Artículo 94.-Alcance y efectos de la oferta
+Artículo 95.-Forma de la oferta
+Artículo 96.-Vigencia de la oferta
+Artículo 97.-Adjudicación
 SECCIÓN SEGUNDA
-La licitación privada
-Artículo 94.—Montos aplicables a la Licitación Privada.
-Artículo 95.—Cartel de la Licitación Privada.
-Artículo 96.—Invitación y plazo para recibir ofertas.
-Artículo 97.—Cuadro comparativo de las ofertas y recomendación de adjudicación.
-Artículo 98.—Exceso en el límite aplicable a la licitación privada.
-Artículo 99.—Adjudicación.
+Contratación General
+Artículo 98.-Montos de la Contratación General
+Artículo 99.-Pliego de condiciones de la Contratación General
+Artículo 100.-Invitación a proveedores idóneos y plazo para recibir ofertas
+Artículo 101.-Cuadro comparativo de ofertas y recomendación de adjudicación
+Artículo 102.-Exceso en el límite aplicable a la Contratación General
+Artículo 103.-Adjudicación
 SECCIÓN TERCERA
-La Contratación General
-Artículo 100.—Montos de la Contratación General.
-Artículo 101.—Pliego de condiciones de la Contratación General.
-Artículo 102.—Invitación a proveedores idóneos y plazo para recibir ofertas.
-Artículo 103.—Cuadro comparativo de ofertas y recomendación de adjudicación.
-Artículo 104.—Exceso en el límite aplicable a la Contratación General.
-Artículo 105.—Adjudicación.
+Contratación Abreviada
+Artículo 104.-Montos de la contratación abreviada
+Artículo 105.-Adjudicación de la contratación abreviada
+Artículo 106.-Formalización de la contratación abreviada
+Artículo 107 Exceso en el límite aplicable a la Contratación Directa o contratación abreviada
 SECCIÓN CUARTA
-La Contratación Directa de Escasa Cuantía
-Artículo 106.—Montos de la contratación directa de escasa cuantía.
-Artículo 107.—Pliego de condiciones.
-Artículo 108.—Invitación a proveedores idóneos y plazo para recibir ofertas.
-Artículo 109.—Adjudicación.
+Otros supuestos de contratación incompatibles con el concurso
+Artículo 108.- Objetos de naturaleza o circunstancia concurrente incompatibles con el concurso
+Artículo 109.-Exclusión por normativa de organismo internacional en empréstitos, donaciones y cooperaciones técnicas no rembolsables
+Artículo 110.- Contrato de suministro de bienes y servicios
+Artículo 111.- Modalidades del contrato de suministros de bienes y servicios
 SECCIÓN QUINTA
-Otros supuestos de contratación directa
-Artículo 110.—Objetos de naturaleza o circunstancia concurrente incompatibles con el concurso.
-SECCIÓN SEXTA
 Subasta a la baja
-Artículo 111.—Procedimiento.
-SECCIÓN SÉTIMA
+Artículo 112.-Procedimiento
+SECCIÓN SEXTA
 Remate
-Artículo 112.—Procedimiento.
+Artículo 113.-Procedimiento
+Artículo 114.- Modificación del procedimiento de contratación infructuoso
 CAPÍTULO VII
 De la adjudicación
-Artículo 113.—De la Adjudicación.
-Artículo 114.—Remisión del expediente para adjudicar.
-Artículo 115.—Del responsable del procedimiento.
+Artículo 115.- De la Adjudicación
+Artículo 116.-Remisión del expediente para adjudicar
+Artículo 117.-Del responsable del procedimiento
 CAPÍTULO VIII
 De los recursos
 SECCIÓN PRIMERA
 Generalidades
-Artículo 116.—Clases de Recursos.
-Artículo 117.—Presentación del recurso.
-Artículo 118.—Notificación.
-Artículo 119.—Allanamiento y desistimiento del recurso.
-Artículo 120.—Vicios de nulidad no alegados en el expediente.
-Artículo 121.—Diligencias de adición y aclaración.
+Artículo 118.-Clases de Recursos
+Artículo 119.-Presentación del recurso
+Artículo 120. Notificación
+Artículo 121.-Allanamiento y desistimiento del recurso
+Artículo 122.-Vicios de nulidad no alegados en el expediente
+Artículo 123.-Diligencias de adición y aclaración
 SECCIÓN SEGUNDA
 Recurso de objeción
-Artículo 122.—Presentación y legitimación.
-Artículo 123.—Prórrogas, modificaciones y adiciones al cartel.
-Artículo 124.—Objeción en licitaciones públicas.
-Artículo 125.—Objeción en licitaciones privadas.
+Artículo 124.-Presentación y legitimación
+Artículo 125.-Prórrogas, modificaciones y adiciones al cartel
+Artículo 126.-Objeción en contrataciones públicas
+SECCIÓN TERCERA
 Recurso de apelación
-Artículo 126.—Supuestos.
-Artículo 127°—Monto.
-Artículo 128.—Legitimación.
-Artículo 129.—Fundamentación.
-Artículo 130.—Prueba.
-Artículo 131.—Trámite de admisibilidad.
-Artículo 132.—Supuestos de inadmisiblidad.
-Artículo 133.—Supuestos de improcedencia manifiesta.
-Artículo 134.—Acumulación de recursos.
-Artículo 135.—Trámite de procedencia del recurso.
-Artículo 136.—Efectos de la resolución.0
+Artículo 127.-Supuestos
+Artículo 128.-Monto
 SECCIÓN CUARTA
 Recurso de revocatoria
-Artículo 137.—Supuestos.
-Artículo 138.—Trámite.
-Artículo 139.—Resolución.
+Artículo 129.-Supuestos
+Artículo 130.-Trámite
+Artículo 131.-Resolución
 CAPÍTULO IX
 Validez y ejecución del contrato
 SECCIÓN PRIMERA
 Validez, perfeccionamiento y formalización contractual
-Artículo 140.—Validez del contrato.
-Artículo 141.—Perfeccionamiento contractual.
-Artículo 142.—Formalización contractual en simple documento.
-Artículo 143.—Utilización de la orden de compra.
-Artículo 144.—Formalización en escritura pública.
-Artículo 145.—Insubsistencia.3
-Artículo 146.—Autorización legal y/o refrendo contralor.3
+Artículo 132.-Validez del contrato
+Artículo 133.-Perfeccionamiento contractual
+Artículo 134.-Formalización contractual en simple documento
+Artículo 135.- Utilización de la orden de compra
+Artículo 136.-Formalización en escritura pública
+Artículo 137.-Insubsistencia
+Artículo 138.-Autorización legal y/o refrendo contralor
 SECCIÓN SEGUNDA
 Ejecución del contrato
-Artículo 147.—Orden de inicio del contrato.
-Artículo 148.—Recepción provisional.
-Artículo 149.—Recepción definitiva.
-Artículo 150.—Rechazo del objeto.
-Artículo 151.—Recibo de objetos actualizados.
-Artículo 152.—Prórroga del plazo.
-Artículo 153.—Suspensión del plazo.
-Artículo 154.—Modificación unilateral de la contratación.
-Artículo 155.—Contratación adicional.
-Artículo 156.—Suspensión del contrato.
-Artículo 157.—Extinción del contrato.
-Artículo 158.—Resolución contractual.
-Artículo 159.—Procedimiento de resolución.
-Artículo 160.—Rescisión.
-Artículo 161.—Rescisión por mutuo acuerdo.
-Artículo 162.—Procedimiento de rescisión.
-Artículo 163.—Cesión.
-Artículo 164.—Deber de verificación.
-Artículo 165.—Arbitraje.
+Artículo 139.-Orden de inicio del contrato
+Artículo 140.-Recepción provisional
+Artículo 141.-Recepción definitiva
+Artículo 142.-Rechazo del objeto
+Artículo 143.-Recibo de objetos actualizados
+Artículo 144.-Prórroga del plazo
+Artículo 145-Suspensión del plazo
+Artículo 146.-Modificación unilateral de la contratación
+Artículo 147.-Contratación adicional
+Artículo 148.- Suspensión del contrato
+Artículo 149.-Extinción del contrato
+Artículo 150.-Resolución contractual
+Artículo 151.-Procedimiento de resolución
+Artículo 152.-Rescisión
+Artículo 153.-Rescisión por mutuo acuerdo
+Artículo 154.-Procedimiento de rescisión
+Artículo 155.-Cesión
+Artículo 156.-Deber de verificación
+Artículo 157.-Arbitraje
 CAPÍTULO X
 Sanciones
 SECCIÓN PRIMERA
 De los contratistas
-Artículo 166.—Obligación a la ejecución.
-Artículo 167.—Derecho de fiscalización.
-Artículo 168.—Aplicación de sanciones.
-Artículo 169.—De las sanciones.
-Artículo 170.—De la recomendación.
+Artículo 158.-Obligación a la ejecución
+Artículo 159.-Derecho de fiscalización
+Artículo 160.-Aplicación de sanciones
+Artículo 161.-De las sanciones
+Artículo 162.-De la recomendación
 SECCIÓN SEGUNDA
 De los trabajadores
-Artículo 171.—Prohibiciones de los trabajadores.
-Artículo 172.—Prohibición de fragmentar.
-Artículo 173.—Fragmentación.
-Artículo 174.—De los tipos de sanciones.
+Artículo 163.-Prohibiciones de los trabajadores
+Artículo 164.-Prohibición de fragmentar
+Artículo 165.-Fragmentación
+Artículo 166.-De los tipos de sanciones
 CAPÍTULO XI
 Disposiciones finales
-Artículo 175.—De su entrada en vigencia.
-Artículo 176.—Derogatorias.
-TRANSITORIO I.
-TRANSITORIO II.
-REGLAMENTO DE CONTRATACIÓN
-Considerando:
-1º—Que mediante Ley 7638 “Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica” de fecha 30 de octubre de 1996 publicada en el Diario Oficial La Gaceta de fecha 13 de noviembre de 1996.
-2º—Que de conformidad con el artículo 11 de la citada ley, la Junta Directiva de la Promotora del Comercio Exterior debe dictar los reglamentos sobre contratación de esa Promotora.
-3º—Que el Reglamento de Contratación publicado en el Diario Oficial La Gaceta número 179 de fecha 18 de setiembre del 2003 y sus reformas requiere una reforma integral con el fin de que se ajuste a las necesidades de contratación de dicha Promotora.
-4º—Que la Junta Directiva de la Promotora del Comercio Exterior mediante acuerdo número CAJD-047-2007. tomado en la sesión número 188-2007 de fecha 23 de abril del 2007 dispuso reformar en forma integral el Reglamento de Contratación de Contratación.
-LA JUNTA DIRECTIVA DE LA PROMOTORA DEL COMERCIO EXTERIOR DE COSTA RICA, ACUERDA
+Artículo 167.-De su entrada en vigencia
+Artículo 168.-Derogatorias
+Transitorio I.
+PROMOTORA DEL COMERCIO EXTERIOR DE COSTA RICA
 REGLAMENTO DE CONTRATACIÓN
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Cobertura. El presente Reglamento regirá la contratación efectuada por la Promotora del Comercio Exterior de Costa Rica de conformidad con lo establecido en la Ley 7638 “Ley de Creación del Ministerio de Comercio Exterior de Costa Rica y de la Promotora del Comercio Exterior de Costa Rica.
+Artículo 1.- Cobertura
+El presente Reglamento regirá la contratación efectuada por la Promotora del Comercio Exterior de Costa Rica de conformidad con lo establecido en la Ley 7638, “Ley de Creación del Ministerio de Comercio Exterior de Costa Rica y de la Promotora del Comercio Exterior de Costa Rica.”
 Se exceptúa de la aplicación del presente Reglamento la actividad contractual ordinaria, entendiéndose por esta los servicios que presta la Promotora del Comercio Exterior de Costa Rica en el ámbito de su competencia.

@@ -1,5 +1,5 @@
-SECCIÓN TERCERA
-De la cláusula penal
-Artículo 41.—Generalidades. La Gerencia o Dirección responsable de la contratación en coordinación con la Gerencia Administrativa Financiera podrán establecer en el cartel, el pago de multas por defectos en la ejecución del contrato, considerando para ello, aspectos tales como, monto, plazo, riesgo, repercusiones de un eventual incumplimiento para el servicio que se brinde o para el interés público y la posibilidad de incumplimientos parciales o por líneas, siempre que se considere el medio idóneo para el cumplimiento y satisfacción de las obligaciones contractuales. Todo lo anterior con arreglo a criterios de proporcionalidad y razonabilidad.
-En caso de que el objeto esté compuesto por líneas distintas, el monto máximo para el cobro de multas, se considerará sobre el mayor valor de cada una y no sobre la totalidad del contrato, siempre que el incumplimiento de una línea no afecte el resto de las obligaciones.
-Los incumplimientos que originan el cobro de la multa, deberán estar detallados en el cartel. Una vez en firme el cartel, se entenderá que el monto de la multa es definitivo por lo que no se admitirán reclamos posteriores.
+Artículo 41.-Devolución de garantías
+Las garantías serán devueltas, salvo disposición en contrario en el Requerimiento, de la siguiente manera:
+a) La de participación, después de la firmeza de la adjudicación, salvo en el caso del adjudicatario que le será devuelta hasta que rinda la garantía de cumplimiento. En aquellas contrataciones en que se haya descalificado una oferta, el oferente podrá retirar la garantía desde el momento en que se constate dicha circunstancia.
+b) La de cumplimiento, una vez que se tenga por ejecutado el contrato a satisfacción por parte de PROCOMER.
+Aquellas garantías no retiradas después de transcurrido un año a partir del comunicado de retiro por parte de PROCOMER pasarán a formar parte del capital de éste.

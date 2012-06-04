@@ -1,1 +1,3 @@
-Artículo 153.—Suspensión del plazo. La Administración , de oficio o a petición del contratista, podrá suspender el plazo del contrato por motivos de fuerza mayor o caso fortuito, debidamente acreditados en el expediente, mediante acto motivado, en el cual se estipulará a cargo de quien corren las medidas de mantenimiento de lo hecho hasta ese momento.
+Artículo 153.-Rescisión por mutuo acuerdo
+La rescisión contractual por mutuo acuerdo únicamente podrá ser convenida cuando existan razones de interés público y no concurra causa de resolución imputable al contratista.
+En este caso la Administración podrá acordar los extremos a liquidar o indemnizar, que en ningún caso podrá exceder los límites señalados en el artículo anterior, siempre dentro de los límites de razonabilidad y proporcionalidad.

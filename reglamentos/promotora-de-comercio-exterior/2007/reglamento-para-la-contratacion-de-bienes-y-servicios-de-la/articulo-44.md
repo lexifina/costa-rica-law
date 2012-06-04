@@ -1,1 +1,3 @@
-Artículo 44.—Cláusula penal. La cláusula penal procede por ejecución tardía o prematura de las obligaciones contractuales, los supuestos y montos deberán incluirse en el respectivo cartel y le serán aplicables las disposiciones indicadas en los artículos anteriores.
+Artículo 44.-Otras garantías y retenciones
+La Gerencia o Dirección responsable de la contratación en coordinación con la Gerencia Administrativa – Financiera podrá incorporar en el cartel cláusulas de retención porcentual de las sumas pagadas, cuando ello resulte conveniente para asegurar una correcta ejecución contractual. El monto máximo de esas retenciones será de un 10% de los pagos a realizar.
+Cuando existan adelantos de pago y ello resulte viable, la Administración, podrá solicitar garantías colaterales, por todo el monto que se vaya a girar, no obstante, para esta clase de garantías se admitirán otros medios aceptables por las entidades de crédito, como las finanzas, avales, hipotecas y prendas.

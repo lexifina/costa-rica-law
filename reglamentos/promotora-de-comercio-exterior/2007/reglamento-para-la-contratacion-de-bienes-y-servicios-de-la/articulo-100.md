@@ -1,4 +1,6 @@
-SECCIÓN TERCERA
-La Contratación General
-Artículo 100.—Montos de la Contratación General. Procede la contratación general en las compras y contrataciones iguales o superiores al monto de aprobación legal interna aplicable a PROCOMER según lo establecido en el Reglamento de refrendos para la Administración Pública.
-Así modificado en la sesión 226-2008 del 21 de octubre del 2008, ratificada en la sesión No.227-2008 del 3 de noviembre del 2008 y publicado en la Gaceta No.234 del 3 de diciembre del 2008.
+Artículo 100.-Invitación a proveedores idóneos y plazo para recibir ofertas
+Para efectos de garantizar la idoneidad de los proveedores, la Gerencia o Dirección responsable de la contratación suministrará al Departamento de Servicios Generales el perfil de la empresa o consultor a los cuáles se les podrá remitir la invitación.
+El Departamento de Servicios Generales y Compras, cursará invitación a no menos de tres potenciales proveedores idóneos e inscritos en el Registro de Proveedores, sin perjuicio de que se cotice además a otros proveedores no inscritos.
+En caso de existir más de tres proveedores idóneos en el Registro de Proveedores, el Departamento de Servicios Generales podrá elegir tres, utilizando un sistema de rotación que garantice la mayor participación de proveedores.
+El Departamento de Servicios Generales otorgará un plazo mínimo de tres días para recibir ofertas. La Administración considerará únicamente las ofertas de proveedores a los que haya cursado invitación.
+Para la validez del procedimiento no será necesario contar efectivamente con las tres cotizaciones, pero sí que los invitados sean empresas dedicadas al giro propio del objeto contractual específico, cuya constatación le corresponderá al Departamento de Servicios Generales y Compras, con base en la información que conste en el Registro de Proveedores. Se considerará falta grave el trámite seguido en sentido contrario a esta disposición.
