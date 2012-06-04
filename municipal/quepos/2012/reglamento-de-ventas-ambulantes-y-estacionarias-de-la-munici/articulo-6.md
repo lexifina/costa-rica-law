@@ -1,0 +1,1 @@
+Artículo 6º—La patente deberá ser solicitada por escrito, acompañada del estudio socioeconómico realizado por un trabajador social de alguna institución pública o de la municipalidad cuando lo tuviere.

@@ -1,0 +1,1 @@
+Artículo 16.—Los vendedores de flores, limpiadores de calzado, periódicos y revistas, deberán solicitar la respectiva licencia pero se exonerarán de los requisitos del inciso B, del artículo número siete de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Se concederá únicamente una patente para venta ambulatoria o estacionaria por núcleo familiar. En caso de fallecimiento o incapacidad permanente del concesionario, deberá solicitarse una nueva licencia, teniendo prioridad el o la cónyuge, o la compañera o compañero, o algunos de sus hijos mayores, siempre y cuando reúna los requisitos del Artículo 7.

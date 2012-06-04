@@ -1,0 +1,1 @@
+Artículo 20.—El Instituto Costarricense de Electricidad y el Instituto Costarricense de Acueductos y Alcantarillados, podrán suministrarle fuerza eléctrica y agua a los puestos estacionarios, a solicitud del patentado.

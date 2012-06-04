@@ -1,0 +1,1 @@
+Artículo 14.—Los puestos estacionarios no podrán ubicarse en lugares que obstruyan: ventanas, entradas de vehículos, esquina donde converjan zonas de seguridad peatonal, frente a monumentos nacionales, y en la línea de ascenso de las paradas de autobuses autorizadas por la municipalidad.

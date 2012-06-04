@@ -1,0 +1,1 @@
+Artículo 8º—En el otorgamiento de estas patentes, la municipalidad deberá dar preferencia a personas minusválidas que ya hubiesen desempeñado esa actividad; asimismo, tendrán preferencia aquellas personas no minusválidas que, con anterioridad, hubieran trabajado en tal actividad.

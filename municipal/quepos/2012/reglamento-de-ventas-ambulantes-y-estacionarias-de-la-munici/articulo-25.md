@@ -1,0 +1,1 @@
+Artículo 25.—En caso de caducidad o renuncia de una patente por cualquier motivo, la municipalidad procederá a la adjudicación del orden consecutivo de las solicitudes pendientes, mediante acuerdo Municipal.
