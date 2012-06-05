@@ -1,4 +1,6 @@
+(Derogado)
 ENTE COSTARRICENSE DE ACREDITACIÓN
+(Este procedimiento fue dejado sin efecto por el Procedimiento ECA-MC-MA-P03 Procedimiento de Cobro Versión 02, publicado en La Gaceta N° 131 del 6 de julio del 2012)
 APROBACIÓN DEL PROCEDIMIENTO DE COBRO
 Con fundamento en las atribuciones y facultades conferidas por los artículos 11 Constitucional; 120, 121, 122 inciso 3), 128, 129, 130 párrafo 1, 132, 134, 136 párrafo 2 en relación con el 249 y 335, 140, 141, 150, 239, 240 siguientes y concordantes y 362 de la Ley General de la Administración Pública; 1, 2, 19, 21, 27 y 31 de la Ley Nº 8279, 14 y 15 del Decreto Ejecutivo Nº 33963-MICIT “Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación”; y
 Considerando:
