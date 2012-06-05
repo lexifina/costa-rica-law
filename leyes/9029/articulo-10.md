@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Apoyo institucional
+El Ministerio de Cultura y Juventud, el Ministerio de Turismo, el Ministerio de Agricultura y Ganadería, el Ministerio de Ambiente, Energía y Telecomunicaciones y el Ministerio de Salud podrán suministrar el apoyo técnico necesario para el cumplimiento de los objetivos del Centro Histórico, así como también podrán apoyar sus funciones brindando aportes presupuestarios.
