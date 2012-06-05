@@ -1,0 +1,1 @@
+Artículo 11.- Carta de compromiso: El ICE firmará una Carta de Compromiso con cada uno de los dueños de los proyectos que resulten seleccionados en la que se detallarán los requisitos que deben cumplir de previo a la firma del Contrato, de conformidad con lo que establece la Ley N°7200 sus reformas, así como el plazo para su cumplimiento.

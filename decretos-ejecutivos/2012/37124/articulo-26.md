@@ -1,0 +1,1 @@
+Artículo 26.- Recursos: Lo que resuelva cada institución en materia de su competencia tendrán los recursos establecidos para los efectos y dentro de los plazos señalados al efecto en la Ley General de la Administración Pública.

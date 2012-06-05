@@ -1,0 +1,2 @@
+Artículo 16.- Concesión de Aprovechamiento de Fuerzas Hidráulicas: En el caso de proyectos hidroeléctricos los dueños de los proyectos seleccionados deberán también gestionar y obtener la Concesión de Aprovechamiento de Fuerzas Hidráulicas (Concesión de Aguas) por parte del MINAET, de acuerdo con lo dispuesto en la Ley de Aguas, No. 276 y la Ley marco de concesión para el aprovechamiento de las fuerzas hidráulicas para la generación hidroeléctrica, No. 8723.
+El MINAET notificará el otorgamiento de concesiones tanto a los dueños del proyecto como al ICE.

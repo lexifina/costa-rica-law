@@ -1,0 +1,2 @@
+Capítulo VI. Otras disposiciones
+Artículo 24.- Autorización del Banco Central de Costa Rica: Para ejecutar lo dispuesto en el artículo 16 de Ley N° 7200 los bancos comerciales deberán solicitar la autorización correspondiente al Banco Central de Costa Rica, una vez que el proyecto que deseen financiar haya cumplido con todos los requisitos establecidos en dicha ley, debiendo regirse por lo dispuesto en el artículo 135 de la Ley N° 7558 Ley Orgánica del Banco Central de Costa Rica.

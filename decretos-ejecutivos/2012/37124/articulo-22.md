@@ -1,0 +1,2 @@
+Artículo 22.- Duración máxima de contratos: Los contratos para la compra de energía eléctrica a los Productores, por parte del ICE, tendrán una duración máxima de veinte años, incluyendo el período de la construcción de la Planta.
+Previo al vencimiento y con la antelación que se estipule en el respectivo Contrato para, compra de energía, el ICE y el Productor podrán suscribir un nuevo contrato, bajo las condiciones de una planta existente, para permitir la continuidad del servicio. Este contrato podrá tener una duración de hasta veinte años.
