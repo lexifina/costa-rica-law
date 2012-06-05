@@ -14,3 +14,4 @@ Normas Técnicas sobre Presupuesto Público (N-1-2012-DC-DFOE/)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-29 | la propia norma |
+| 2 | 2012-06-05 | Resolución 62 (2012-06-05) |
