@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 36950-H de fecha 5 de diciembre del 2011, publicado en el Diario Oficial La Gaceta Nº 25 de fecha 3 de febrero del 2012, a partir de la vigencia del presente decreto.
