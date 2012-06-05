@@ -1,0 +1,1 @@
+Artículo 9º—No presentación de cuentas. En ningún caso se autorizará una nueva erogación ni se podrá girar suma alguna por concepto de gastos de viaje y transporte a los funcionarios que tuvieren pendiente alguna liquidación por sumas adelantadas en los términos regulados en este Reglamento.

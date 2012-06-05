@@ -1,0 +1,1 @@
+Artículo 2º—Carácter supletorio. El presente Reglamento es de aplicación supletoria, prevaleciendo lo regulado en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República.
