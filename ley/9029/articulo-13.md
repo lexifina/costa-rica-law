@@ -1,0 +1,3 @@
+ARTÍCULO 13.- Autorización para la administración de bienes
+Autorízase al Instituto de Desarrollo Agrario (IDA) para que mediante acuerdo de su Junta Directiva pueda delegar en el Consejo Directivo del Centro Histórico, y bajo el tiempo que defina, los terrenos de su propiedad descritos en los artículos 2 y 3, sea donde se ubicarán las instalaciones del Centro Histórico, parque temático y zona protectora La Amistad.
+El Consejo Directivo del Centro Histórico queda sujeto a todas las normas administrativas y presupuestarias aplicables al ejercicio de sus funciones. Además, deberá cuidar los bienes delegados en administración y velar por su seguridad, por tratarse del patrimonio cultural y forestal.

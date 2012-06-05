@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Sede
+El Centro Histórico se ubicará en el inmueble propiedad del Instituto de Desarrollo Agrario (IDA), inscrito en el Registro Nacional, sección Propiedad, partido de Alajuela, folio real matrícula número dos uno tres cero uno cuatro cero - cero cero cero (N.º 2130140-000), ubicado en Chachagua de Peñas Blancas, que es distrito décimo tercero de San Ramón, cantón segundo de la provincia de Alajuela.
