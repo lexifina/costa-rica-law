@@ -1,0 +1,1 @@
+Artículo 63. _Las resoluciones y disposiciones a que refiere el presente Reglamento tendrán recurso de revocatoria y apelación subsidiaria en los términos que señala la Ley Orgánica del Ministerio de Salud en su Artículo 52.

@@ -1,0 +1,1 @@
+Artículo 45. Queda prohibida la importación y uso de semillas con capacidad germinadora de la adormidera, coca, cáñamo o marihuana así como esquejes, plantas vivas completas o cualquier parte de la Salvia divinorum o sus extractos así como cualquier otra planta de efectos similares así declarado por el Ministerio de Salud.

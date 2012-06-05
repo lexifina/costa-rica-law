@@ -1,0 +1,1 @@
+Artículo 22. Para los efectos del artículo 18, los Colegios de Médicos y Cirujanos de Costa Rica, de Cirujanos Dentistas de Costa Rica y de Médicos Veterinarios, deberán enviar la nómina actualizada de sus profesionales activos a solicitud de la Dirección.

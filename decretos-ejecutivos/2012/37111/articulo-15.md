@@ -1,0 +1,1 @@
+Artículo 15. Los establecimientos farmacéuticos que manejen estupefacientes y psicotrópicos deben cumplir con las leyes, los reglamentos, las normas y los procedimientos establecidos para tal fin, previa permiso sanitario de funcionamiento del Ministerio.

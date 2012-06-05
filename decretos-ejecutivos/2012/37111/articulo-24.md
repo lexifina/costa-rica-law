@@ -1,0 +1,1 @@
+Artículo 24. —Para prescribir y dispensar estupefacientes y psicotrópicos, las personas profesionales en medicina, odontología, veterinaria y farmacia, según corresponda, deberán previamente registrar sus firmas en la Dirección de Atención al Cliente del Ministerio de Salud, para su control.

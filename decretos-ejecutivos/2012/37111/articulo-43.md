@@ -1,0 +1,1 @@
+Artículo 43. — La Junta, bajo condiciones establecidas, podrá autorizar la importación o uso de psicotrópicos y estupefacientes para investigaciones científicas. En caso de que en la investigación participen seres humanos, de previo se deberá contar con aprobación del protocolo del estudio según la normativa correspondiente.

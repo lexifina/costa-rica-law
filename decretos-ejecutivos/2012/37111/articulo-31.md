@@ -1,0 +1,1 @@
+Artículo 31. — El plazo máximo de presentación para el despacho de una receta de estupefacientes o de psicotrópicos en la farmacia es de una semana (siete días) a partir de la fecha de su emisión por el prescriptor.

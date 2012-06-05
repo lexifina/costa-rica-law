@@ -1,0 +1,1 @@
+Artículo 6. Con excepción del Director General de Salud, la revocatoria del nombramiento de los miembros será potestad del Despacho Ministerial. Ante el incumplimiento de funciones o actuación anómala de algún miembro en el desempeño de las mismas, la Junta debe demostrarlo previo debido proceso y derecho a defensa, y lo trasladará al despacho Ministerial.

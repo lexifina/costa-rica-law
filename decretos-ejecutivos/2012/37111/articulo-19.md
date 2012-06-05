@@ -1,0 +1,1 @@
+Artículo 19. El uso de estos medicamentos para el tratamiento de la fármacodependencia y de las adicciones será realizado únicamente en establecimientos de atención médica públicos o privados legalmente autorizados por el Estado para este fin y de acuerdo con las exigencias legales y reglamentarias pertinentes.

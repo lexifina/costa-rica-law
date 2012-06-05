@@ -1,0 +1,1 @@
+Artículo 49. El Ministerio emitirá un permiso de exportación para la salida de psicotrópicos y estupefacientes como producto terminado así como sus materias primas o patrones analíticos, con base en las especificaciones del permiso de importación que emite el país importador, según el procedimiento establecido.

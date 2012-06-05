@@ -1,0 +1,1 @@
+Artículo 48. El Ministerio autorizará el desalmacenaje de psicotrópicos y estupefacientes como producto terminado, así como sus materias primas o patrones analíticos, con base en las especificaciones documentadas en los permisos de importación previamente emitidos, según el procedimiento establecido.

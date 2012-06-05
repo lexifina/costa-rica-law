@@ -1,0 +1,1 @@
+Artículo 42. — Al amparo de las disposiciones contenidas en el artículo 345 inciso 5) de la Ley General de Salud, el Ministerio autorizará las importaciones de estupefacientes y psicotrópicos y limitará sus cantidades de acuerdo con las necesidades nacionales autorizadas por la Dirección en concordancia con los convenios internacionales ratificados o suscritos por el país.
