@@ -1,0 +1,1 @@
+Artículo 25.—Toda resolución tomada en relación con la solicitud de crédito presentada por alguna Empresa del Conglomerado del Banco Popular y de Desarrollo Comunal, deberá ser informada a la Junta Directiva Nacional dentro de los cinco días hábiles siguientes a su adopción.

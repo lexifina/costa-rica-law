@@ -1,0 +1,2 @@
+Artículo 41.—La Junta Directiva Nacional dispondrá de los informes periódicos que la Administración le presentará a fin de que pueda evaluar la aplicación de las políticas y la normativa vigente en materia crediticia. En todo caso, los créditos superiores a US$500.000,00 deberán ser informados a la Junta Directiva Nacional dentro de los cinco días hábiles siguientes al vencimiento del mes de su otorgamiento.
+Trimestralmente, se informará a la Junta Directiva Nacional sobre el estado de los créditos cuyo saldo acumulado sea superior a US$500.000,00.
