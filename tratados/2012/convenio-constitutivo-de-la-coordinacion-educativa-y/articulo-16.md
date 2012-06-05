@@ -1,0 +1,1 @@
+Artículo Décimo Sexto: El presente Convenio entrará en vigencia cuando tres países, por lo menos, hayan comunicado al Gobierno del país donde se haya suscrito este Convenio, su ratificación oficial; y para los demás, en la fecha de depósito del instrumento de ratificación.

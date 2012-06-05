@@ -1,0 +1,1 @@
+Artículo Décimo Séptimo: El presente Convenio tiene duración indefinida y podrá ser denunciado. En tal caso, la denuncia surtirá efecto seis meses después de su presentación oficial a los demás países miembros.

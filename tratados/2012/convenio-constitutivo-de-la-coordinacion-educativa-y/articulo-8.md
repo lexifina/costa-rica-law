@@ -1,0 +1,1 @@
+Artículo Octavo: Habrá una Comisión Técnica por cada uno de los sectores objeto del presente Convenio. Los coordinadores de estas comisiones asistirán a la Reunión de Ministros para informar y asesorar, en coordinación con la Secretaría General.

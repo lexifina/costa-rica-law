@@ -1,0 +1,1 @@
+Artículo Décimo Octavo: El Estado Miembro designado como Sede de la Secretaría General suscribirá el Convenio de Sede y proporcionará las facilidades físicas, materiales y personal local y de apoyo necesario para su funcionamiento.

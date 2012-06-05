@@ -1,0 +1,1 @@
+Artículo Décimo Cuarto: La Secretaría General presentará, anualmente, a la consideración de la Reunión de Ministros, los estados financieros y el proyecto de presupuesto para el año siguiente sobre la base de los planes y programas de actividades presentados por las Comisiones Técnicas.
