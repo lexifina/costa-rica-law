@@ -1,5 +1,7 @@
+(Suspendida)
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 RESOLUCIÓN 780-RCR-2012
+(Mediante resolución N° 869 del 5 de junio de 2012, se suspendida temporalmente las tarifas fijadas en la presente norma durante el tiempo que la Sala Constitucional de la Corte Suprema de Justicia dure en resolver el recurso de amparo o bien resuelva otra situación con respecto a la actual medida cautelar, Asimismo mediante la resolución referida las tarifas a aplicar, a partir de la notificación de esta resolución y durante el tiempo que dure la Sala Constitucional de la Corte Suprema de Justicia, serán las tarifas fijadas mediante la resolución RRG-3223-2003 dictada a las 13:30 horas del 09 de octubre de 2003, publicadas en la Gaceta N º 211 de lunes 3 de noviembre de 2003)
 San José, a las 15:00 horas del 06 de marzo del dos mil doce.
 CONOCE EL COMITÉ DE REGULACIÓN AJUSTE TARIFARIO DE OFICIO PARA
 LOS SERVICIOS MARITIMOS Y PORTUARIOS QUE BRINDA LA JUNTA DE

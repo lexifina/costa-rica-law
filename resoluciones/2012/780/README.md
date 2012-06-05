@@ -14,3 +14,4 @@ Fija tarifas de los servicios marítimos y portuarios que brinda la Junta de Adm
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-29 | la propia norma |
+| 2 | 2012-06-05 | Resolución 869 (2012-06-05) |
