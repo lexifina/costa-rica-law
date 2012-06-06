@@ -13,3 +13,4 @@ Nuevo modelo para el reclutamiento, selección y nombramiento de vacantes en el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-24 | la propia norma |
+| 2 | 2012-06-06 | Circular 75 (2012-06-06) |
