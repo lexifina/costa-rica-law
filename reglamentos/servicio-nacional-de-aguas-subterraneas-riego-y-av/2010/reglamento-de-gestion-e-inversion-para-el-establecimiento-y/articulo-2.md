@@ -1,1 +1,0 @@
-Artículo 2º—Seguidamente el Coordinador Regional realizará un Perfil del Proyecto, señalando como mínimo las generalidades del mismo, la posible fuente de agua, cultivos y área regable, e identificando a los promoventes o usuarios potenciales del proyecto.

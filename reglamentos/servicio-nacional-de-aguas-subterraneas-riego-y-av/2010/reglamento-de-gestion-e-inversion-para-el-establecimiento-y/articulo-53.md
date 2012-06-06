@@ -1,1 +1,0 @@
-Artículo 53.—Las cuentas cuyo saldo total al día que se realice el estudio, sobrepasen el equivalente en colones de US $2.000.00 (dos mil dólares exactos) al tipo de cambio de referencia del Banco Central de Costa Rica, requerirán autorización de la Junta Directiva.

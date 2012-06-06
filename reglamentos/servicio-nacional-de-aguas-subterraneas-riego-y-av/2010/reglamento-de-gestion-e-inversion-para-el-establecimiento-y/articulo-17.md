@@ -1,1 +1,0 @@
-Artículo 17.—La Comisión Técnica Evaluadora, analizará la información suministrada, priorizará el proyecto y de ser procedente, se remitirá la recomendación a la Gerencia sobre las condiciones fundamentales del acuerdo que se debe suscribir entre SENARA y los beneficios para la construcción del proyecto.

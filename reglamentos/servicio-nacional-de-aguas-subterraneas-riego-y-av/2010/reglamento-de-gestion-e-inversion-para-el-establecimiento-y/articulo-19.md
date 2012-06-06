@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Convenios con sociedades de usuarios
-Artículo 19.—Una vez aprobada la ejecución del proyecto y las condiciones fundamentales, el SENARA y la Sociedad de Usuarios, suscribirán un Convenio donde se evidencie la voluntad expresa de los usuarios en la realización del proyecto, sus aportes como organización, tales como, mantener vigente la concesión de agua, permisos de descarga de agua, de paso y ambientales, reembolso total o parcial de la inversión al SENARA, operar y mantener las obras construidas, así como el compromiso de parte de SENARA de facilitar los estudios de preinversión que correspondan y asumir los gastos de supervisión de la construcción del proyecto y de apoyo y acompañamiento durante la operación inicial del proyecto.

@@ -1,1 +1,0 @@
-Artículo 31.—Una vez que la Unidad Financiero Contable tenga en custodia la totalidad de los pagarés del respectivo Proyecto, emitirá una constancia dirigida a Servicios Administrativos como requisito para iniciar el proceso de contratación. Sin esta constancia no se dará inicio a la contratación de las obras.

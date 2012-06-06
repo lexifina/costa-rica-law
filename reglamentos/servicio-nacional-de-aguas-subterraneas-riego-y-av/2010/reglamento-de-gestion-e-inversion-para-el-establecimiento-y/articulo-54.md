@@ -1,4 +1,0 @@
-Artículo 54.—Las cuentas cuyo saldo total (capital más intereses) sean inferiores a su equivalente en colones de US $500,00 (quinientos dólares exactos) del día en que se realice el estudio, al tipo de cambio de referencia del Banco Central de Costa Rica, podrán estimarse incobrables sin necesidad de gestionar su cobro por la vía judicial, siempre y cuando se cumpla con los siguientes requisitos:
-a) Que se haya agotado la gestión de cobro administrativo y así lo acredite por escrito la Unidad Financiero Contable.
-b) Que tanto el deudor como el fiador carezcan de bienes inmuebles y vehículos inscritos a su nombre, y así se acredite mediante un estudio de bienes que elabore la Dirección Jurídica.
-c) En todo caso se requiere de la aprobación de la Gerencia para registrar como gasto la estimación de los incobrables.

@@ -1,1 +1,0 @@
-Artículo 20.—El Convenio debe contener las características generales del proyecto y condiciones de financiamiento, tales como, monto de la deuda, cuadro de pagos por agricultor, garantía de la deuda, vigencia del convenio, período de pago, periodo de gracia e intereses corrientes y moratorios.

@@ -1,1 +1,0 @@
-Artículo 5º—El Coordinador Regional, una vez elaborados los estudios de preinversión necesarios, iniciará junto con la organización de agricultores, la identificación de la fuente de financiamiento para la construcción del proyecto.

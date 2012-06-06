@@ -1,1 +1,0 @@
-Artículo 32.—Toda inclusión, exclusión o cambio de usuarios deberá hacerse mediante solicitud escrita al Director del Área de Ingeniería y Desarrollo de Proyectos y deberá cumplir con los mismos requisitos que los demás usuarios del proyecto, a efecto de que se realicen las gestiones pertinentes para hacer efectiva la solicitud

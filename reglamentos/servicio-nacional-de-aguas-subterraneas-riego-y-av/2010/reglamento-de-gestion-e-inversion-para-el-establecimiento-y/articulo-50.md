@@ -1,1 +1,0 @@
-Artículo 50.—Todo arreglo de pago deberá respaldarse con un nuevo pagaré y con los mismos requisitos solicitados para el pagaré original, salvo que se trate de una mera suspensión temporal de la gestión de cobro (prórroga).

@@ -1,1 +1,0 @@
-Artículo 10.—En los proyectos de riego, el SENARA cobrará a los agricultores el costo total de la inversión en las obras de conducción, distribución y equipos de riego que se realice a partir de la obra de toma de riego parcelario.

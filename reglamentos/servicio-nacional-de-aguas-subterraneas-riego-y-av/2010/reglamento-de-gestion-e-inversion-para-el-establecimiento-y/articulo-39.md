@@ -1,1 +1,0 @@
-Artículo 39.—Vencido el plazo de 60 días naturales posterior a su fecha de vencimiento, el Área Administrativa Financiera contará con 30 días naturales para trasladar la documentación respectiva a la Asesoría Legal para que se proceda al cobro judicial correspondiente.

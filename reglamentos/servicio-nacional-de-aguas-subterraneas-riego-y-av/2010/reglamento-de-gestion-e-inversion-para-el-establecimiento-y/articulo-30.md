@@ -1,1 +1,0 @@
-Artículo 30.—Si el Coordinador Regional tuviera que llevar pagarés a firmar, éste deberá enviar los pagarés debidamente firmados a la Unidad Financiero Contable, para su control y custodia, dentro del término de cinco días hábiles, contados a partir de la firma de estos documentos.
