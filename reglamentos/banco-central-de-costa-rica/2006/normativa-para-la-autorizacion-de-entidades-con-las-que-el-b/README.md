@@ -16,3 +16,4 @@ Normativa para la Autorización de Entidades con las que el Banco Central de Cos
 | 1 | 2006-11-15 | la propia norma |
 | 2 | 2009-02-04 | Reglamento 5413 (2009-02-04) |
 | 3 | 2011-11-30 | Reglamento 5524 (2011-11-30) |
+| 4 | 2012-06-06 | Reglamento 5547 (2012-06-06) |
