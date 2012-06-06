@@ -1,0 +1,1 @@
+2. En lo que se refiere a la actualización de montos u otros aspectos de Cobro Administrativo y Judicial, se formalice mediante una reforma al Reglamento de Cobro Administrativo y Judicial aprobado por la Junta Directiva del SENARA y publicado en La Gaceta 76 del 21 de abril de 2005. Notifíquese.”
