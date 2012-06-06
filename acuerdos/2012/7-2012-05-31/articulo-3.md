@@ -1,0 +1,1 @@
+Tercero.—Los sectores costeros del cantón 05 Carrillo - provincia de Guanacaste, que cuentan a la fecha de firma del presente Aviso, con delimitación de la zona pública de la Zona Marítimo Terrestre a través de la colocación de mojones y respectiva publicación en el Diario Oficial La Gaceta, mantienen su condición de demarcación oficial.
