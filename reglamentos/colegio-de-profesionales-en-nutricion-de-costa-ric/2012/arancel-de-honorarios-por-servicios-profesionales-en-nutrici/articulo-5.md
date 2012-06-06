@@ -1,0 +1,8 @@
+CAPÍTULO III
+Responsabilidad Profesional
+Artículo 5º—Prestación de servicios conjuntos. La responsabilidad profesional corresponde directamente al profesional que haya sido requerido por el cliente en relación con los asuntos que le han sido confiados.
+Los profesionales podrán asociarse de hecho o de derecho para prestar servicios profesionales conjuntamente, sin embargo la responsabilidad personal del profesional que haya sido requerido por el cliente es intransferible a su favor, aún cuando el profesional se haya asociado con otro u otros para brindar esos servicios conjuntamente.
+El profesional requerido por el cliente deviene en calidad de obligado contralor a su favor, en relación con aquellos profesionales con los cuales aquél se ha asociado para brindarle esos servicios conjuntamente. Sin embargo, la responsabilidad trascenderá al profesional asociado cuando se demuestre por el profesional requerido por el cliente, que en tiempo y forma ejercitó las acciones necesarias y conducentes a evitar o a corregir los actos de la mala práctica profesional imputables al profesional asociado.
+El profesional asociado asume la responsabilidad en forma individual e intransferible en aquellos actos por los cuales se le imputa una mala práctica profesional conforme a derecho.
+Las asociaciones de hecho o derecho para la prestación de servicios profesionales conjuntos, son legalmente posibles entre profesionales colegiados y en ejercicio activo profesional.
+El principio de responsabilidad profesional es estrictamente personal y por tanto se es igualmente responsable aún cuando esos servicios profesionales hayan sido requeridos o contratados ante una institución o centro de salud debidamente constituido.

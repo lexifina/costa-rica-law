@@ -1,0 +1,1 @@
+Artículo 28.—Derecho a la información de los consumidores y usuarios. En los centros laborales de los Profesionales en Nutrición se colocará un ejemplar de éste Arancel, en un lugar visible, también disponible en la página Web del Colegio de Profesionales en Nutrición.
