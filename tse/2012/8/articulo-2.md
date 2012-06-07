@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección General del Registro Civil y la Dirección Ejecutiva velarán por el constante estímulo a los administrados en el uso del correo electrónico como medio para recibir notificaciones.
