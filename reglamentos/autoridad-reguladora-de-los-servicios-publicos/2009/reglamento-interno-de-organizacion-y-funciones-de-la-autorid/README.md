@@ -24,3 +24,4 @@ Reglamento interno de organización y funciones de la Autoridad Reguladora de lo
 | 9 | 2011-10-26 | Reglamento 66 (2011-10-26) |
 | 10 | 2011-12-14 | Reglamento 75 (2011-12-14) |
 | 11 | 2012-03-21 | Reglamento 22 (2012-03-21) |
+| 12 | 2012-06-07 | Resolución 0 (2012-06-07) |

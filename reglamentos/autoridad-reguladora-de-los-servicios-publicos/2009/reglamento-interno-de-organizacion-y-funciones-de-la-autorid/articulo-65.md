@@ -7,7 +7,8 @@ Dichas Direcciones asumirán las funciones que el Reglamento Interno de Organiza
 Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas que venían ejerciendo dichas Direcciones, éstas continuarán realizándolas durante el periodo de vigencia de esta medida transitoria.
 Una vez que entren en funcionamiento las Intendencias(*), las respectivas Direcciones pasarán a formar parte de cada Superintendencia, según corresponda.
 (*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
-Esta medida transitoria rige a partir del 1° de enero del 2012 y hasta el 30 de junio del 2012.
+Esta medida transitoria rige a partir del 1° de julio del 2012 y hasta el 31 de diciembre del 2012.
+(Así reformado el párrafo anterior mediante resolución aprobada en sesión N° 44 del 7 de junio del 2012)
 (Así adicionado en sesión extraordinaria N° 039-2010 del 4 de octubre de 2010)
 (Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 51 al 56 actual)
 (Así corrida su numeración en sesión ordinaria N° 054-2011 del 31 de agosto del 2011, que lo traspasó del antiguo artículo 56 al 65 actual)
