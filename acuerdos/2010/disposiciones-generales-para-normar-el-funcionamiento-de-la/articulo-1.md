@@ -9,6 +9,7 @@ Dichas Direcciones asumirán las funciones que el Reglamento Interno de Organiza
 (*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)
 Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas que venían ejerciendo dichas Direcciones, éstas continuarán realizándolas durante el periodo de vigencia de esta medida transitoria.
 Una vez que entren en funcionamiento las Superintendencias, las respectivas Direcciones pasarán a formar parte de cada Superintendencia, según corresponda.
-Esta medida transitoria rige a partir del 1° de enero del 2012 y hasta el 30 de junio del 2012.
-(*)(Así reformado en sesión N° 075 del 14 de diciembre de 2011. Asimimmo en dicha sesión, se reforma el artículo 65 Transitorio II del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus Órganos Desconcentrados, prorrogandose la vigencia del Comité de Regulación cuya vigencia va a partir del 1 de enero de 2012 y hasta el 30 de junio de 2012)
+Esta medida transitoria rige a partir del 1° de julio del 2012 y hasta el 31 de diciembre del 2012.
+(Así reformado el párrafo anterior mediante resolución aprobada en sesión N° 44 del 7 de junio del 2012)
+(*)(Así reformado en sesión N° 075 del 14 de diciembre de 2011)
 Rige a partir del 8 de mayo del 2010 y hasta la primera sesión que lleve a cabo la nueva Junta Directiva.
