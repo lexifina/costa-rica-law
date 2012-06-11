@@ -1,0 +1,1 @@
+Artículo 11.—La Comisión atenderá los asuntos a su cargo a la mayor brevedad posible, salvo los casos especiales en que la Presidencia del Concejo en forma expresa, fije un término menor o superior, de acuerdo al inciso G) del artículo 34 del Código Municipal.
