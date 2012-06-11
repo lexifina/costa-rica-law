@@ -1,0 +1,1 @@
+Artículo 32.—De la elaboración de la garantía. Corresponderá a la Asesoría Jurídica elaborar el documento legal que garantice el arreglo de pago, para los casos de garantías reales, el obligado deberá cancelar los honorarios del notario externo que contrate la Asesoría Jurídica.

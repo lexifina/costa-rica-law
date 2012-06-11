@@ -1,0 +1,5 @@
+Artículo 28.—De los funcionarios responsables para autorizar los arreglos de pago. Los funcionarios responsables para autorizar los arreglos de pago que tramite la Unidad de Administración Tributaria serán quienes ostenten el cargo de Titular subordinado de la Unidad de Administración Tributaria, Jefe del Área de Captación de Recursos, y Subgerente de Gestión de Recursos, de acuerdo a los siguientes rangos:
+a) Montos iguales o inferiores a 14 salarios base, los autoriza el Titular Subordinado de la Unidad de la Administración Tributaria.
+b) Montos superiores a 14 salarios base, pero iguales o inferiores a 45 salarios base los autorizan el (la) Jefe del Área de Capitación de Recursos, conjuntamente con el Titular Subordinado de la Unidad de Administración Tributaria.
+c) Montos superiores a 45 salarios base, sólo podrán ser autorizados por el Subgerente de Gestión de Recursos.
+d) Los profesionales designados en el Área Social serán los responsables de establecer las garantías y las condiciones de pago a los beneficiarios sean individuales o grupales por concepto de préstamos otorgados, así como las solicitudes de arreglos de pago.

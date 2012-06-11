@@ -1,0 +1,2 @@
+Artículo 16.—De la determinación de oficio del monto de los tributos de la Ley Nº 4760/6443. La institución podrá Determinar de Oficio los montos adeudados por los deudores de la Ley Nº 4760/6443, cuando La Unidad de Administración Tributaria, mediante estudio, verifique que lo facturado al IMAS por concepto del aporte patronal establecido, es diferente a la información suministrada por la Caja Costarricense de Seguro Social.
+De previo a esta determinación de oficio, la Unidad de Administración Tributaria deberá realizar el traslado de cargos a través de la vista inicial.

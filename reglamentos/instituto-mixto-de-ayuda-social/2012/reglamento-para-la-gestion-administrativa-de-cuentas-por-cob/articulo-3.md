@@ -1,0 +1,1 @@
+Artículo 3º—De los medios para ejecutar el proceso de cobro administrativo. La institución ejecutará el proceso de Cobro Administrativo por medio de la Unidad de Administración Tributaria, quien podrá contratar a terceros.

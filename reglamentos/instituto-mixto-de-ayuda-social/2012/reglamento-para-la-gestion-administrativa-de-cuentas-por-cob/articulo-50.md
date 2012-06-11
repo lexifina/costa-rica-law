@@ -1,0 +1,2 @@
+Artículo 50.—Órgano que dicta resolución y recursos contra la misma.
+Recursos. Cuando se determine el saldo acreedor en virtud de los actos correspondientes y en consecuencia sea procedente la devolución, corresponde a la Unidad de Administración Tributaria, emitir la resolución de devolución, en la que se liquidará tanto principal como intereses. Contra la resolución que deniegue la solicitud de devolución del saldo acreedor, los interesados pueden interponer el recurso de apelación en el artículo 156 o 157 Del Código de Normas y Procedimientos Tributarios.

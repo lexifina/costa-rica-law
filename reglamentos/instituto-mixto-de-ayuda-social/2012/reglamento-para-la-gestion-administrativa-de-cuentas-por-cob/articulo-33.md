@@ -1,0 +1,1 @@
+Artículo 33.—De la custodia física de la garantía real. Formalizada la respectiva garantía, la Asesoría Jurídica remitirá el original de la garantía emitida a la Tesorería para su custodia y fotocopia a la Unidad de Administración Tributaria.

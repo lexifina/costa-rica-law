@@ -1,0 +1,3 @@
+Artículo 54.—Dependencia responsable de elaborar los estudios con los que se recomienda la declaratoria de incobrabilidad. Corresponde a la Asesoría Jurídica o al abogado contratado para realizar el cobro, elaborar y presentar ante la Unidad de Administración Tributaria, los estudios legales y recomendaciones técnicas señaladas en el artículo anterior para que sea esa Instancia quien decida si lo acoge o no.
+Copias de estos estudios y recomendaciones técnicas deberán incorporarse en el expediente que instrumentaliza la Asesoría Jurídica.
+La Unidad de Administración Tributaria conjuntamente con el Superior Jerárquico, elevará a la Gerencia General estos estudios con las recomendaciones para que sea esa instancia quien en definitiva declare la incobrabilidad.
