@@ -1,0 +1,1 @@
+2.- Autorizar al Ministerio de Obras Públicas y Transportes, para que proceda a la venta mediante subasta pública del sobrante de derecho de vía del bien inmueble antes descrito, de conformidad con lo establecido por los artículos 25 y 26 de la Ley General de Caminos Públicos.
