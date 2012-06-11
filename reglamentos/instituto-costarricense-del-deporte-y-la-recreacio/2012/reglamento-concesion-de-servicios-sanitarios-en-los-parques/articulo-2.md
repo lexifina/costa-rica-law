@@ -1,0 +1,1 @@
+Artículo 2º—El concesionario, en su ausencia, podrá asignar a otras personas, como encargados de los servicios sanitarios; previa comunicación por escrito al Depto. de Administración de Instalaciones del ICODER.

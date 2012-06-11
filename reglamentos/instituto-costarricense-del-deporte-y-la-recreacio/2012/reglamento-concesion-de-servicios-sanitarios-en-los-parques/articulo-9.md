@@ -1,0 +1,1 @@
+Artículo 9º—El Depto. de Administración de Instalaciones, del ICODER podrá solicitar la exoneración del pago de uso de los servicios sanitarios, cuando se organicen actividades de bien social o de voluntariado. Para esto, lo solicitará por medio de una nota, con al menos 5 días hábiles antes de la actividad.
