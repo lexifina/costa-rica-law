@@ -1,0 +1,1 @@
+Artículo 7°.- Desempeño de los integrantes de la Comisión Mixta. Los miembros de la Comisión Mixta realizarán sus funciones de preferencia en su jornada laboral y en forma ad honorem. Lo anterior sin demérito de que se habiliten por parte de la Comisión Mixta horarios extraordinarios según se requiera.

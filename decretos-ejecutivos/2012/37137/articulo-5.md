@@ -1,0 +1,1 @@
+Artículo 5°.- Instalación de la Comisión Mixta. Quien preside la Comisión Mixta, instalará la Comisión Mixta dentro de un plazo no mayor de diez (10) días hábiles posteriores a la publicación del presente Decreto.

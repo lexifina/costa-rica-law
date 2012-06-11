@@ -1,0 +1,1 @@
+Artículo 4°.- Metodología de trabajo. La Presidencia de la Comisión Mixta, que por este Decreto se constituye, entregará en la primera sesión de la Comisión Mixta, posterior a su instalación, una propuesta de la metodología de organización y funcionamiento, para someterla a consideración de sus miembros, la cual deberá ser ratificada en esa misma sesión.
