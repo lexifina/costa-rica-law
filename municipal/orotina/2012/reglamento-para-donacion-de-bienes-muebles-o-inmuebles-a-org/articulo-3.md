@@ -1,0 +1,1 @@
+Artículo 3º—Una vez aprobados y establecidos los requisitos, el concejo municipal mediante acuerdo autorizará al Alcalde u Alcaldesa para que realice la firma de la donación, este acuerdo puede tomarse de forma conjunta con el que aprueba la donación o bien de forma separada.
