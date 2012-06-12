@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios del Ministerio de Obras Públicas y Transporte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-03 | la propia norma |
+| 2 | 2012-06-12 | Decreto Ejecutivo 37204 (2012-06-12) |
