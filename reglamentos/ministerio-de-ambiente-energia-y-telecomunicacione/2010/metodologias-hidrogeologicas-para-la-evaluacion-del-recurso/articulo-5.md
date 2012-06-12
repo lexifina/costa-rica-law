@@ -1,9 +1,0 @@
-CAPÍTULO 5
-Pruebas de Bombeo
-Conforme el Decreto 35884-MINAET, todos los aprovechamientos de agua subterráneas deberán realizar pruebas de bombeo, de acuerdo a los siguientes lineamientos:
-Todos los informes finales de los pozos, deberán adjuntar la interpretación de las pruebas de bombeo. Dichas pruebas deberán tener una duración mínima de 24 horas, según Decreto 35884-MINAET, sin embargo para uso urbanístico (poblacional) la prueba deberá ser de 72 horas.
-En casos particulares, en los que se demuestre claramente con criterios técnicos hidrogeológicos, la duración de las pruebas podría ser de menor duración. Esto podría aplicar en áreas en donde no resulta conveniente extender el radio de influencia a una determinada distancia, como ejemplo en zonas costeras con riesgo de intrusión salina por largos bombeos, o por afectaciones a otras captaciones cercanas.
-Para acuíferos libres, se utilizará la metodología de Neuman (6), para acuíferos confinados Thies y Jacob (6) y para los semiconfinados se usará la metodología de Hantush (6).
-A partir de los datos de las pruebas de bombeo se determinaran los parámetros del acuífero, particularmente la transmisividad, conductividad hidráulica y coeficiente de almacenamiento (siempre y cuando exista un pozo testigo o de observación). En caso de que requiera el pozo de observación será definido por las instituciones públicas competentes.
-Se deberá presentar la curva de recuperación con un mínimo de 80%.
-Las pruebas de bombeo deberán entregarse a las instituciones públicas competentes en formato digital de hoja electrónica e impresa. También se adjuntaran: los datos de campo e interpretación de las pruebas.
