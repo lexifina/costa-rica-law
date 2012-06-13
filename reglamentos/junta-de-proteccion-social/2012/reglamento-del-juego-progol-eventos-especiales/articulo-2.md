@@ -1,0 +1,5 @@
+Artículo 2: Distribución de la Bolsa de Apuestas del Juego Progol
+Del total de los ingresos recibidos para cada modalidad por concepto de ventas, un 52% se destina como bolsa de premios a repartir entre los jugadores que seleccionaron la apuesta ganadora. A este monto se suma el remanente de los premios no acertados en jornadas anteriores, para formar una bolsa total de premios.
+Para las Modalidades Evento Único (marcador exacto) y Dos eventos (marcador exacto), el monto total de la bolsa a repartir por concepto de premios, se distribuye proporcionalmente entre todas las apuestas que acierten el marcador o los marcadores exactos de los eventos deportivos.
+La bolsa de premios para todas las modalidades, se distribuirá en proporción directa al importe de las apuestas acertantes a la jornada ganadora. El factor a aplicar para el reconocimiento de los premios, tendrá un máximo de 4 (cuatro) decimales.
+Cada modalidad de juego genera bolsas de premios separadas para cada cantidad de aciertos, para los casos de no acierto, se acumulan los montos de las diferentes bolsas de premios para la jornada siguiente.
