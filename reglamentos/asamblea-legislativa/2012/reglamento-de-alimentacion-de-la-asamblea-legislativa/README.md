@@ -14,3 +14,4 @@ Reglamento de alimentación de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-13 | la propia norma |
+| 2 | 2012-06-13 | Reglamento 120 (2012-06-05) |
