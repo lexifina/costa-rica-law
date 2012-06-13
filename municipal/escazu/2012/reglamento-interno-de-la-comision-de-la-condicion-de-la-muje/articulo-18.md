@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De los dictámenes de la Comisión
+Artículo 18.—Los dictámenes de la Comisión deberán presentarse por escrito y firmados por la Coordinación y Secretaría de la Comisión, en caso de ausencia de alguno de estos puestos, firmará ad hoc en su lugar, la tercera persona integrante de la Comisión. Cuando no existiere acuerdo unánime sobre un dictamen, las personas integrantes de la Comisión que no lo aprueban, podrán rendir otro dictamen por separado si lo estiman conveniente. De existir un dictamen de mayoría y minoría, se conocerá primero el de mayoría, sin que ello afecte la buena marcha de la Comisión.

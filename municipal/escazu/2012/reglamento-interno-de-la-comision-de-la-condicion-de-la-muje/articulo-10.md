@@ -1,0 +1,1 @@
+Artículo 10.—Posterior a la primera sesión de la Comisión, ésta solicitará a la Administración el nombramiento inmediato de la persona funcionaría competente para que asesore técnicamente a la Comisión en todas las sesiones a las que sea convocada.

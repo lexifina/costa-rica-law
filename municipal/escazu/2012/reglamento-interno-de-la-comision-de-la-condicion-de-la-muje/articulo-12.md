@@ -1,0 +1,1 @@
+Artículo 12.—La Comisión atenderá los asuntos a su cargo a la mayor brevedad posible, dentro del plazo de 15 días hábiles, salvo los casos especiales en que la Presidencia del Concejo en forma expresa, fije un término menor o superior, de acuerdo al inciso G) del artículo 34 del Código Municipal.
