@@ -1,0 +1,1 @@
+ARTICULO 10. Nulidad. Será nula cualquier contratación de servicios que no se ajusten a los términos estipulados en este reglamento. La nulidad de una contratación acarrea responsabilidad administrativa, siempre siguiendo el debido proceso, de conformidad con la Ley General de la Administración Pública.
