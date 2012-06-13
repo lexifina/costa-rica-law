@@ -1,0 +1,1 @@
+Artículo 2º—Brindar acceso a los ciudadanos, por medio de la página web, institucional sobre los atestados curriculares de las personas que ocupan los cargo de ministros, viceministros, presidencias ejecutivas y órganos colegiados
