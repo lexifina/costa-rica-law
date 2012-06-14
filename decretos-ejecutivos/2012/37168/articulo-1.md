@@ -1,0 +1,19 @@
+Nº 37168-MICIT-MEIC
+LA PRESIDENTA DE LA REPÚBLICA,
+EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y LA MINISTRA DE ECONOMÍA,
+INDUSTRIA Y COMERCIO
+En uso de las atribuciones que les confieren los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; los artículos 76 y 77 de la Ley de Promoción del Desarrollo Científico y Tecnológico, Ley Nº 7169 del 26 de junio de 1990; y la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley Nº 8262 del 2 de mayo del 2002; y
+CONSIDERANDO:
+1º—Que el Poder Ejecutivo está comprometido con estimular la innovación y el desarrollo tecnológico de la micro, pequeña y mediana empresa costarricense, como mecanismo para fomentar su competitividad.
+2º—Que el objetivo de la Ley Nº 8262 es financiar las acciones y actividades dirigidas a promover y mejorar la capacidad de gestión y competitividad de las pequeñas y medianas empresas costarricenses, mediante el desarrollo tecnológico como instrumento para contribuir al desarrollo económico y social de las diversas regiones del país.
+3º—Que en el artículo 13 de la Ley Nº 8262 se crea el PROPYME, el cual es un mecanismo viable para la asignación de recursos, los cuales se asignan por medio de la Comisión de Incentivos, la cual está adscrita al Ministerio de Ciencia y Tecnología (MICIT).
+4º—Que corresponde al Ministerio de Economía, Industria y Comercio (MEIC) el desarrollo de las herramientas de coordinación que orienten y guíen la acción de los entes y órganos de la administración central y descentralizada, así como de las entidades privadas que desarrollen programas y proyectos relacionados con las PYME.
+5º—Que es necesario estimular la innovación tecnológica como elemento esencial para fortalecer la capacidad productiva del país.
+6º—Que la Ley Nº 8262 le impone al MICIT la obligación de reglamentar los mecanismos y aspectos referentes a la administración, promoción, recepción, selección y evaluación de las solicitudes para optar por los recursos del Fondo PROPYME, así como los mecanismos de formalización, seguimiento y control de los proyectos aprobados, además de cualquier otro aspecto necesario para el fiel cumplimiento de los objetivos del fondo.
+7º—Que MICIT impulsa la actualización del “Reglamento para el Programa de Fortalecimiento para la innovación y Desarrollo Tecnológico de las PYMES”, DE-36575-MICIT-MEIC con el fin de agilizar los mecanismos existentes que permitan a las PYME un mayor acceso a los beneficios que otorga el artículo 13 de la Ley Nº 8262 dadas las limitantes que presenta en la actualidad evidenciadas luego de un exhaustivo análisis en el que participaron representantes del sector público, privado, y cámaras empresariales.
+Por Tanto,
+DECRETAN:
+“Reglamento para el Programa de Fortalecimiento para la Innovación
+y Desarrollo Tecnológico de las PYME”
+Artículo 1º—El presente Reglamento regula los mecanismos y aspectos referentes a la administración, promoción, recepción, selección y evaluación de las solicitudes para optar por los recursos del Fondo PROPYME, así como los mecanismos de formalización, seguimiento, control e impacto de los proyectos aprobados, además de cualquier otro aspecto necesario para el fiel cumplimiento de los objetivos del “Programa de Apoyo a la Pequeña y Mediana Empresa”, en adelante denominado “PROPYME”, contenido en el capítulo IV de la Ley Nº 8262 y que se enmarca dentro del Fondo de Incentivos de la Ley de Promoción del Desarrollo Científico y Tecnológico, Ley Nº 7169 del 26 de junio de 1990; con el fin de estimular la innovación, promover y mejorar la capacidad de gestión y competitividad de las pequeñas y medianas empresas costarricenses o agrupaciones de las PYME costarricenses; para ello también se considerarán las políticas emanadas por el Ministerio de Economía, Industria y Comercio.

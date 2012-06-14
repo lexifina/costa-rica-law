@@ -1,0 +1,1 @@
+Artículo 6º—Las PYME o agrupaciones de PYME costarricenses podrán concursar por los recursos del PROPYME, de forma ininterrumpida durante todo el año, mediante la participación en el concurso al que convocará el MICIT al inicio de cada año.

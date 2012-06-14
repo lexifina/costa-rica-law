@@ -1,0 +1,1 @@
+Artículo 7º—La convocatoria, los criterios técnicos de evaluación y las guías de presentación de solicitudes para optar por los recursos del Fondo de PROPYME, serán publicados en el Diario Oficial La Gaceta. Además, estarán a disposición en formato digital en los sitios web del MICIT; MEIC y CONICIT, así como en formato impreso en las citadas instituciones.

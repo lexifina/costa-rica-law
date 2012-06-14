@@ -1,0 +1,1 @@
+Artículo 22º—Los plazos de ejecución de los proyectos serán como máximo de veinticuatro (24) meses. Excepcionalmente, la Comisión de Incentivos podrá autorizar plazos mayores que éstos, siempre que la PYME o agrupación de PYME lo justifique técnicamente.

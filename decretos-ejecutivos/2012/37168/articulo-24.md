@@ -1,0 +1,1 @@
+Artículo 24º—El CONICIT deberá rendir a la Comisión de Incentivos informes trimestrales, o cuando esta se lo solicite, sobre todos los aspectos relacionados con los proyectos aprobados, así como de la situación financiera del fideicomiso del fondo PROPYME.

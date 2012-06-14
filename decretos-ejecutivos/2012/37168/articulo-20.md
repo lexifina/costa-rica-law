@@ -1,0 +1,1 @@
+Artículo 20º—La PYME o agrupación de PYME, deberá rendir informes periódicos al CONICIT, tanto del avance técnico como de la utilización de los recursos económicos. La periodicidad de estos informes será establecida por la entidad encargada de dar seguimiento al proyecto, de acuerdo con su naturaleza y duración.

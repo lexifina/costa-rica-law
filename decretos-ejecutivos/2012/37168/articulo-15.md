@@ -1,0 +1,1 @@
+Artículo 15º—La Secretaría Técnica de la Comisión de Incentivos contará con un plazo máximo de cinco días hábiles contados a partir de la firmeza del acuerdo para comunicar por escrito, a la PYME o Agrupación de PYME, el acuerdo tomado por la Comisión de Incentivos en relación con la solicitud del proyecto.

@@ -1,0 +1,1 @@
+Artículo 18º—Las solicitudes aprobadas serán objeto de un contrato de incentivos, el cual contendrá las normas básicas que regirán las relaciones entre el MICIT y el beneficiario, garantizando con esto el uso correcto de los fondos del erario público.

@@ -1,0 +1,1 @@
+Artículo 21º—Como complemento del presupuesto ordinario del CONICIT, se le asignará un tres por ciento (3%) de cada proyecto aprobado con recursos de PROPYME, para que cree y aplique los mecanismos que aseguren la administración, la promoción, la evaluación, el control y seguimiento de los proyectos.

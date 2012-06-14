@@ -1,0 +1,1 @@
+Artículo 10º —A partir del momento de recibo de la propuesta del proyecto por parte del CONICIT, los evaluadores contarán con un plazo máximo de 30 días naturales para elaborar el informe técnico y dictamen correspondiente. Vencido el plazo el informe deberá ser presentado ante la Comisión de Incentivos para que conozca y resuelva según corresponda.

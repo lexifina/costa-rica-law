@@ -1,0 +1,1 @@
+Artículo 11º —En los casos que las propuestas de proyectos tecnológicos sean presentadas sin el acompañamiento de la Unidad de Implementación, el CONICIT tendrá 45 días naturales para encontrar una unidad competente y realizar el informe. Vencido dicho plazo los informes deberán ser entregados a la Comisión de Incentivos para que conozca y resuelva según corresponda.
