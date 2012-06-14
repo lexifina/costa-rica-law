@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Imponer a la citada edificación, las afectaciones derivadas de la Ley No. 7555 y su reglamento, recayendo en el propietario del inmueble citado en el artículo anterior y en la Municipalidad del cantón de Guácimo, velar por su protección.
