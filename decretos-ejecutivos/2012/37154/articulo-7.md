@@ -1,0 +1,2 @@
+Artículo 7°—Modificar el artículo 81 del Reglamento General de Juntas de Educación y Juntas Administrativas, Decreto Ejecutivo N° 31024-MEP del 03 de febrero del dos mil tres y sus reformas, para que en lo sucesivo se lea de la siguiente manera:
+"La oposición del Contador, o del Tesorero, cuando estimare que un acuerdo sea ilegal, deberá consignarse en actas si estuviere presente en el momento de su adopción o, a mas tardar, en la sesión ordinaria siguiente, en cuyo caso hará sus observaciones por escrito."

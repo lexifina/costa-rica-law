@@ -1,0 +1,2 @@
+Artículo 9°—Modificar el artículo 83 del Reglamento General de Juntas de Educación y Juntas Administrativas, Decreto Ejecutivo N° 31024-MEP del 03 de febrero del dos mil tres y sus reformas, para que en lo sucesivo se lea de la siguiente manera:
+"Si la Junta de Educación o Administrativa persistiere en la adopción del acuerdo, el Contador o el Tesorero salvaran su responsabilidad, pero deberán informar inmediatamente y en forma escrita del asunto a la Dirección Regional de Educación correspondiente."

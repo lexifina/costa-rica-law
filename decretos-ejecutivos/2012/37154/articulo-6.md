@@ -1,0 +1,2 @@
+Artículo 6°—Modificar el artículo 80 del Reglamento General de Juntas de Educación y Juntas Administrativas, Decreto Ejecutivo N° 31024-MEP del 03 de febrero del dos mil tres y sus reformas, para que en lo sucesivo se lea de la siguiente manera:
+"Artículo 80. Es obligación del Contador y del Tesorero mantenerse enterados de los acuerdos que adopte la Junta y que impliquen erogaciones econ6micas y oponerse a aquellos que no fueren legalmente procedentes. Para este efecto, tendrá libre acceso a las actas y podrá asistira las sesiones donde su presencia tendrá voz sin voto"

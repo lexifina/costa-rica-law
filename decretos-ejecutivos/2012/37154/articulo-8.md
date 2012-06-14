@@ -1,0 +1,2 @@
+Artículo 8°—Modificar el artículo 82 del Reglamento General de Juntas de Educación y Juntas Administrativas, Decreto Ejecutivo N° 31024-MEP del 03 de febrero del dos mil tres y sus reformas, para que en lo sucesivo se lea de la siguiente manera:
+"La oposición del Contador, o del Tesorero, implicara la necesaria revisión del acuerdo tornado en la sesión ordinaria siguiente a aquella en que se formulo o en sesión extraordinaria convocada al efecto, si, a juicio del Presidente de la Junta de Educación o Junta Administrativa, el asunto fuere de tramitación urgente."
