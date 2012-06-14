@@ -1,3 +1,3 @@
-Artículo 8.- El Banco financiará exclusivamente programas o proyectos económicamente sanos y técnicamente viables y se abstendrá de hacer préstamos o de adquirir responsabilidad alguna por el pago o refinanciamiento de obligaciones anteriores.
-Las operaciones del Banco deberán basarse exclusivamente en criterios técnicos, financieros y económicos; consecuentemente, no deberán influir en las mismas criterios de carácter político relacionados con cualquier Estado miembro.
-(Así reformado por el artículo 1° de la ley N° 7258 del 9 de octubre de 1991)
+Artículo 8. El Banco financiará exclusivamente programas o proyectos económicamente sanos y técnicamente viables.
+Las operaciones que realice el Banco deberán basarse exclusivamente en sanas prácticas bancarias. Estas operaciones se realizarán en el contexto del marco prudencial que establezca el Directorio al amparo del artículo 15 del Convenio Constitutivo, siguiendo los parámetros que defina la Asamblea de Gobernadores.
+(Así reformado por Resolución N° AG-14/2005, de la Asamblea de Gobernadores del Banco Centroamericano de Integración Económica, aprobada por el artículo 1° de la ley N° 9043 del 16 de mayo del 2012)
