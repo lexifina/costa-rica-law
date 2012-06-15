@@ -1,0 +1,21 @@
+CAPÍTULO SEGUNDO
+Artículo 2º—Para la autorización de Fiestas Cívicas, Ferias Rodeos, Montas y Corridas de Toros, Topes, Cabalgatas, Turnos y Mini-turnos se requiere el cumplimiento de los siguientes requisitos:
+- Recomendación de aprobación del Concejo de Distrito respectivo, esta recomendación se deberá solicitar con al menos tres meses de antelación al inicio de la actividad
+- Solicitud dirigida al Coordinador de Gestión Tributaria de la Municipalidad de La Cruz, debiendo indicar con toda claridad tipo de actividades a realizar, programación, integrantes del comité organizador, lugar e instalaciones, días de la actividad, firmas y sello del responsable del evento, el objetivo o destino de las utilidades, lugar, teléfono o correo electrónico para notificaciones. En los casos de que se solicite licencia (s) temporal para expendio de licor se debe expresar y solicitar con sus respectivos horarios y ubicación, ésta solicitud deberá venir autenticada por abogado cuando no la presente el interesado.
+- En los casos que instalen establecimientos fijos o transitorios para ventas, exhibiciones, etc., croquis que indique claramente la ubicación de cada uno de los derechos o puestos que se instalarán.
+- Permiso Sanitario de Funcionamiento para la actividad, dicho permiso deberá detallar las actividades que el Ministerio de Salud autoriza.
+- En el caso de uso de pólvora, se requiere de la autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Pública, permiso del Ministerio de Salud y la póliza respectiva.
+- Permiso del Departamento de Ingeniería del Ministerio de Obras Públicas y Transporte cuando se contemple cerrar vías públicas que correspondan a Ruta Nacional o de la Municipalidad cuando correspondan a caminos de la red vial cantonal.
+- Cuando se realicen corridas de toros certificación de un Ingeniero Civil autenticada por abogada, que garantice la seguridad del redondel y tablados
+- Si en la actividad van a operar carruseles, el original o copia de la póliza respectiva
+- Pólizas de Responsabilidad Civil que garantice la estructura y cobertura por daños a terceros y póliza contra riesgos de la actividad de montadores, toreros y alistadores.
+- Para realizar corridas de toros y en todo evento que la Municipalidad lo considere necesario certificación de la Cruz Roja Costarricense, donde de Fe de que esa entidad participará en el evento con su personal médico o paramédico y que el Plan Operativo de emergencia es suficiente para la magnitud del mismo.
+- Plan de manejo de desechos sólidos con el visto bueno del Departamento de Gestión Ambiental de la Municipalidad
+- Visto bueno de Ministerio de Seguridad Pública.
+- Copia del certificado veterinario para la operación del evento (monta de toros, tope, cabalgata, carrera de cintas), extendido por SENASA (Servicio Nacional de Salud Animal)
+- Nota de nombramiento del médico veterinario que actuará como regente de la actividad (monta de toros, tope, cabalgata, carrera de cintas) con la firma y número de carnet del profesional.
+- Planos y estudios de registro del terreno donde se va realizar la actividad, además nota de autorización del propietario cuando el terreno e instalaciones no sean del organizador del evento, firmada por el propietario o representante legal debidamente autenticada por abogado y personería jurídica con no más de un mes de emitida.
+- Cancelación de impuestos para realizar el evento previo a la entrega de la autorización una vez cumplido con los requisitos legales.
+- Personería Jurídica original con no más de un mes de emitida del organizador del evento, copia de cédula de identidad del representa legal.
+- El organizador y él o los propietarios del terreno donde se realizarán los eventos deberá estar al día con los Tributos Municipales.
+- Constancia de la CCSS vigente donde se indique que es cotizante y que se encuentra al día.

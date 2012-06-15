@@ -1,0 +1,1 @@
+Artículo 3º—Corresponde al Concejo Municipal a través de acuerdo por mayoría absoluta otorgar la Licencia Municipal y Patentes Temporales de Licores para las actividades de Fiestas Cívicas, Ferias Rodeos, Montas y Corridas de Toros, Topes, Cabalgatas, Turnos y Mini-turnos.

@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad no autorizará la realización de más de un evento en el cantón que coincidan en dos o más días, por lo que en estos casos se respetará a quién presente primero la solicitud de los días respectivos ante la Municipalidad, con el visto bueno del Concejo de Distrito Respectivo.

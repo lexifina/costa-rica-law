@@ -1,0 +1,1 @@
+Artículo 7º—En ningún caso La Municipalidad autorizará más de un evento a una misma organización (interesado) si no ha transcurrido como mínimo un año y no se autorizará más de un evento en una misma comunidad si no han transcurrido por lo menos seis meses desde la realización del último evento. Esto aplica para eventos de 3 o más días.

@@ -1,0 +1,4 @@
+Transitorio
+Artículo 17.—Con el fin de conservar y rescatar las tradiciones e identidad de nuestro cantón, en los primeros dos años de vigencia del presente reglamento se tendrá que calendarizar el evento más importante para cada comunidad, de tal forma que al igual que las Fiestas Cívicas cada comunidad de nuestro cantón tenga establecido las fechas del año en que van a celebrar su actividad. Las organizaciones de cada comunidad deberán solicitar al Concejo Municipal que a través de un acuerdo se calendarice la fecha aproximada del año en que realizarán las fiestas de la comunidad.
+Este Reglamento rige 10 días después de su publicación en el Diario Oficial La Gaceta.
+Según acuerdo Nº 4-1, de la sesión ordinaria Nº 02-2012, verificada por la Municipalidad de La Cruz, el día 12 de enero del año 2012.

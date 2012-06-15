@@ -1,0 +1,1 @@
+Artículo 8º—Se autorizarán Ferias Rodeos, Montas y Corridas de Toros, Topes, Cabalgatas y Turnos que no podrán extenderse por más de 4 días, para Mini-turnos no se podrá autorizar más de 1 día y para el caso de Fiestas Cívicas no se podrán extender por más de dos fines de semana.

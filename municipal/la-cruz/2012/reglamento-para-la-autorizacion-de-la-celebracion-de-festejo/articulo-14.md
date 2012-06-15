@@ -1,0 +1,1 @@
+Artículo 14.—Las personas físicas o jurídicas que realicen actividades reguladas en este Reglamento sin la debida autorización se verá sancionadas con la clausura de las mismas y no se le autorizará actividad alguna regulada en este Reglamento, hasta tanto no cumpla dos años de sanción, a partir de la fecha en que incurrió en la irregularidad.
