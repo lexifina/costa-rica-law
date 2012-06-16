@@ -1,0 +1,1 @@
+4) Para los levantamientos de inmuebles de hasta 5.000 m2, que se encuentren dentro del área mapeada a escala 1:5000, se utilizará la misma tolerancia relativa que en las áreas mapeadas a la escala 1:1000. La tolerancia absoluta a aplicar será la misma que corresponde a las áreas mapeadas a la escala 1:5000.

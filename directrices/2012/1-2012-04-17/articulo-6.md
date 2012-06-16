@@ -1,0 +1,1 @@
+6) En el caso de levantamientos de inmuebles, que se encuentren dentro de las áreas de transición mapeadas entre las escalas 1:1000 y 1:5000, no incluidas en el párrafo anterior, el agrimensor deberá ajustarse a los lineamientos de tolerancias establecidos para el área en el que se encuentre la mayor superficie de dicho levantamiento.
