@@ -14,3 +14,4 @@ Reforma Integra Tribunal Ad Hoc Administrativo de Transportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-16 | la propia norma |
+| 2 | 2012-06-16 | Acuerdo 51 (2012-03-08) |
