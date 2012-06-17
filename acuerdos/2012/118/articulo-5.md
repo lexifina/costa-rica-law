@@ -1,0 +1,1 @@
+Artículo 5.—Mecánica de participación. La mecánica de participación es automática al adquirir al menos una fracción del sorteo extraordinario de Lotería Nacional del Día de Padre Nº 4189 del domingo 17 de junio, 2012.
