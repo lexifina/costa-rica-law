@@ -1,1 +1,0 @@
-Artículo 5º—A toda persona que haciendo uso de este reglamento, encuentre errores tipográficos, ortográficos, inexactitudes o ambigüedades, se le solicita notificarlo al Ministerio de Salud, sin demora, aportando, si es posible, la información correspondiente, para hacer las investigaciones necesarias y tomar las previsiones del caso.
