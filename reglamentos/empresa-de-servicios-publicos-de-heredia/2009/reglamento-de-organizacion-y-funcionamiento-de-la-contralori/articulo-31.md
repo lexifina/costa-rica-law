@@ -1,1 +1,0 @@
-Artículo 31.—Servicios de autorización de libros. Los servicios de autorización de libros consisten en la apertura y cierre de libros que llevarán los órganos de la Administración como son los de contabilidad y actas, así como otros libros que a criterio del Contralor Interno, sean necesarios para el fortalecimiento del Sistema de Control Interno.

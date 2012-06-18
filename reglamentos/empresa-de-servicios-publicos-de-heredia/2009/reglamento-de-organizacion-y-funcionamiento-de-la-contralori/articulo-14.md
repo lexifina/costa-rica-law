@@ -1,1 +1,0 @@
-Artículo 14.—Archivo permanente. La Contraloría Interna mantendrá un archivo permanente con información sobre las regulaciones legales y de otro tipo que afecten el ámbito de acción y su actividad, así como las que sean de interés institucional, mediante archivos impresos o electrónicos.

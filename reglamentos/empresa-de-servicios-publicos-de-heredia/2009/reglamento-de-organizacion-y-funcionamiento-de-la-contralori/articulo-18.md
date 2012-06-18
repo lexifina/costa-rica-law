@@ -1,1 +1,0 @@
-Artículo 18.—Asesoría legal. Será obligación de la Unidad de Asuntos Jurídicos brindar a la Contraloría Interna un oportuno y efectivo servicio de asesoría legal, cuando así lo requiera; obligación que es extensiva a las demás unidades administrativas y técnicas.

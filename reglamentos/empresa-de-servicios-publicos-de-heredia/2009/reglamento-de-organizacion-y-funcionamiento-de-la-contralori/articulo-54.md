@@ -1,1 +1,0 @@
-Artículo 54.—Derogatoria. Este Reglamento deroga el Reglamento de la Organización y funcionamiento de la Contraloría Interna de la Empresa de Servicios Públicos de Heredia, publicado en La Gaceta Nº 124 del 28 de junio 2006.

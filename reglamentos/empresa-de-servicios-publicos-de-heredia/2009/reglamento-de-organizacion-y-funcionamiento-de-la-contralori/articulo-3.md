@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Contraloría Interna y funcionarios de la Administración en lo que les resulte aplicable.
