@@ -14,3 +14,4 @@ Publica Resolución 168-2006 (COMIECO XLIX): Reglamento Técnico Centroamericano
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-28 | la propia norma |
+| 2 | 2012-06-18 | Decreto Ejecutivo 37284 (2012-06-18) |
