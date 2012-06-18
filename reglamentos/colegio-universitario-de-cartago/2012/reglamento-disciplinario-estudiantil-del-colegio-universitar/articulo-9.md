@@ -1,0 +1,1 @@
+Artículo 9º—Ningún integrante de este Tribunal Educativo Disciplinario devengará remuneración adicional por su labor, pero su participación será considerada para el estudio de reconocimientos en el desempeño de sus funciones.

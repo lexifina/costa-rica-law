@@ -1,0 +1,8 @@
+Artículo 19.—Son faltas graves las siguientes:
+a. Alterar o entorpecer los procesos de matrícula o el procurar para sí o para otro, la inscripción en uno o varios cursos o actividades, mediante el incumplimiento de las normas que regulan la matrícula.
+b. Procurarse por cualquier medio ilícito, en el momento de la realización de la prueba, examen o control de conocimientos, cualquier tipo de información utilizable para ese efecto, o del mismo modo suministrar a otra persona dicha información.
+c. Copiar de otro estudiante tareas, informes de laboratorio, trabajos de investigación o de cualquier otro tipo de actividad académica.
+d. Presentarse a lecciones, exámenes o cualquier actividad académica, bajo los efectos de bebidas alcohólicas, drogas ilícitas o sustancias enervantes no autorizadas para su uso.
+e. Dañar la pintura de los edificios y aulas, así como pintar rótulos en las paredes de la Institución.
+f. Lesionar la integridad moral de una persona, mediante injurias calumnias, difamación o agresión verbal, durante el desarrollo de actividades académicas e institucionales, o con ocasión de ellas; dentro y fuera de las instalaciones del Colegio Universitario de Cartago y sus dependencias. Para que esta falta se configure debe existir una denuncia oral o escrita por parte del afectado.
+g. Utilizar, sin previa autorización, las instalaciones y recursos de la Institución para otros fines que no sean los directamente relacionados con la actividad académica del estudiante, aún cuando de dicha utilización no se obtuviesen beneficios económicos o de cualquier otro tipo a favor del infractor.

@@ -1,0 +1,1 @@
+Artículo 26.—Sometido a la consideración del Tribunal Educativo Disciplinario una actuación irregular de uno o varios estudiantes, se iniciará una investigación y se notificará al investigado(a) sobre el carácter del mismo y los fines del procedimiento establecido.

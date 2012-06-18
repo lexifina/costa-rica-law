@@ -1,0 +1,14 @@
+Artículo 18.—Son faltas muy graves, las siguientes:
+a. Lesionar o intentar lesionar la integridad física, moral o psicológica, la libertad personal, sexual y los bienes de otro estudiante o de terceras personas, durante el desarrollo de actividades académicas e institucionales o con ocasión de ellas; dentro y fuera de las instalaciones del Colegio Universitario de Cartago y sus dependencias.
+b. Traficar o consumir dentro del Colegio Universitario de Cartago y sus dependencias o durante las actividades académicas o institucionales que se realizan fuera del Campus, cualquier tipo de drogas ilícitas o sustancias enervantes de uso no autorizado.
+c. Hacerse suplantar o suplantar a otro estudiante en la realización de actividades que por su naturaleza debe ser realizada personalmente, ya sea prueba, examen, control de conocimientos o cualquier otra operación susceptible de ser evaluada.
+d. Apoderarse por cualquier medio fraudulento o por abuso de confianza del contenido de una prueba, examen o control de conocimiento, en beneficio propio o ajeno, antes de su realización; o una vez realizada la evaluación procurar la sustracción, alteración o destrucción de fórmulas, cuestionarios, notas o calificaciones, etc., en beneficio propio o ajeno.
+e. Realizar actos vandálicos o incitar a los mismos, en perjuicio del patrimonio o de la buena marcha de la Institución.
+f. Falsificar las firmas de profesores o del personal administrativo, así como documentos de uso oficial del CUC.
+g. Utilizar con pleno conocimiento, documentos falsificados para cualquier gestión universitaria, administrativa, académica o de cualquier otra índole.
+h. Suplantar a un profesional en la realización de la labor propia de éste, ya sea dentro o fuera de las instalaciones del Colegio Universitario de Cartago y sus dependencias, en actividades académicas o administrativas, sin su autorización y vigilancia.
+i. Mostrar conductas que riñan con la moral y las buenas costumbres, durante el desarrollo de actividades académicas e institucionales, o con ocasión de ellas; dentro de las instalaciones del Colegio Universitario de Cartago y sus dependencias, así como en giras u otras actividades académicas o recreativas donde se asista en representación de la institución.
+j. Utilizar el plagio en todo o en parte, contra obras intelectuales de cualquier naturaleza.
+k. Presentar como propia una obra intelectual elaborada por otra u otras personas, para cumplir con los requisitos de cursos.
+l. Realizar bromas o actividades dentro de las aulas, pasillos, laboratorios, zonas verdes, parqueo y otras edificaciones, que causen daños a las mismas o pongan en peligro la salud o integridad física de los miembros de la comunidad institucional, sus visitantes o sus bienes.
+m. Realizar sin la autorización debida, cualquier tipo de apuestas, juegos de azar o ventas de artículos y rifas con fines de lucro, dentro del Campus del CUC.

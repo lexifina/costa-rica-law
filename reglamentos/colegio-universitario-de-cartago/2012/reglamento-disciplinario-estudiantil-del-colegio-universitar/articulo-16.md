@@ -1,0 +1,1 @@
+Artículo 16.—Para el buen funcionamiento de este órgano deliberativo, se deberá contar con la papelería, los sellos, equipos y demás accesorios, así como del apoyo secretarial que brinde la Institución.

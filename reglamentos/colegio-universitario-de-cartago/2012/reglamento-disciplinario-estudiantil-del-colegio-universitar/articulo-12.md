@@ -1,0 +1,1 @@
+Artículo 12.—El o la Presidente(a), deberá ser designado(a) entre sus integrantes y ocupará ese cargo por espacio de un año, pudiendo ser reelecto por un período similar. Deberá proponer la agenda para la sesión correspondiente.
