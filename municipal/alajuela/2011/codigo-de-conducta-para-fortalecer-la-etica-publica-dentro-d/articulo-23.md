@@ -1,0 +1,1 @@
+Artículo 23.—Rechazamos el acoso sexual y laboral, y cualquier otra conducta que atente contra la integridad de las personas, y en caso que detectemos alguna situación la comunicaremos a la autoridad competente.

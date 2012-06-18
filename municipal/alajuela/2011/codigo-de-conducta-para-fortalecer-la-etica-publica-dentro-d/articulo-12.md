@@ -1,0 +1,1 @@
+Artículo 12.—La disciplina. Cumplimiento cabal de la normativa establecida, con digno acatamiento de las órdenes superiores, sirviendo a la continuidad administrativa, al mantenimiento personal en el trabajo y al respeto a la documentación e información ajenas y reservadas.
