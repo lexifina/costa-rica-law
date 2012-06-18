@@ -1,0 +1,1 @@
+Artículo 3°- El informe de seguimiento del plan de acción, debe ser remitido a la Dirección de la Contabilidad Nacional trimestralmente, específicamente la semana siguiente a la finalización del respectivo trimestre. La información debe ser firmada por el Jerarca de la institución y la persona responsable del proceso contable.
