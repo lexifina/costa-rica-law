@@ -1,0 +1,2 @@
+Artículo 140.—Sanción por limitación a la libertad de tránsito. El Prestatario del servicio de seguridad que violente la libertad de tránsito, será sancionado de conformidad con el artículo 14 de la Ley Nº 8892 y la Municipalidad notificará lo pertinente a la Dirección de Servicios de Seguridad Privada del Ministerio de Seguridad Pública, para que proceda de acuerdo con ese artículo.
+Rige a partir de su publicación.

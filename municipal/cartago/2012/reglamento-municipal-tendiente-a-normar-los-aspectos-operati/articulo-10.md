@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Tramitología, autorización y suspensión
+Artículo 10.—Trámite de la solicitud. La solicitud a que se refiere este reglamento será presentada en forma completa al Concejo Municipal, órgano que deberá remitirlo a la Comisión de Obras Públicas y de Urbanismo, que evaluará los motivos que fundamentan la petición, la idoneidad de la ubicación propuesta, y cualquier otro aspecto que resulte relevante en los términos de la Ley Nº 8892. La Comisión rendirá un dictamen en un plazo de 30 días hábiles contados a partir del traslado de la solicitud, dictamen que se acompañará preceptivamente de un informe técnico de los órganos municipales especializados que asesoran esa comisión.
