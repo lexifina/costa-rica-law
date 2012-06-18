@@ -1,1 +1,0 @@
-Artículo 11.—Incorporación de créditos a los programas de crédito: El financiamiento que se otorgue mediante la aprobación de créditos por parte de la Gerencia General deberá estar enmarcado dentro de los programas de crédito aprobados por la Junta Directiva del Banco y cumplir con las condiciones generales que en ellos se establezcan.
