@@ -1,0 +1,2 @@
+Artículo 5º—Transitorio. Dentro del plazo de tres meses naturales, contados a partir de la vigencia de este acuerdo, las entidades supervisadas y las instituciones públicas podrán, para acceder al VES, utilizar cualquiera de los siguientes dos mecanismos: i) firma digital; o bien, ii) clave y usuario.
+Una vez cumplido el plazo indicado en el párrafo anterior, el VES únicamente podrá ser accesado mediante la utilización de la firma digital.
