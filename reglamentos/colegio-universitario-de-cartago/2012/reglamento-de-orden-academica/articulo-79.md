@@ -1,0 +1,3 @@
+CAPÍTULO XXII
+De las áreas que imparte DECAT
+Artículo 79.—De las Áreas de la DECAT. La DECAT ofrece dos áreas de formación, a saber: a- El Área de Educación Comunitaria, subdividida a su vez en: Cursos Libres y Programas Técnicos y b- el Área de Asistencia Técnica, subdividida en Consultorías y Asesorías; que se organizan en ciclos de no menos de diez semanas cada uno. El número de horas que contiene cada curso debe estar en concordancia con los lineamientos que para ello establece el Plan Nacional de Desarrollo, así como contar con un análisis previo de la realidad ocupacional y de las necesidades de desarrollo de una zona, entidad o grupo.

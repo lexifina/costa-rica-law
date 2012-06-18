@@ -1,0 +1,3 @@
+Artículo 2º—Responsabilidad de ejecución. Las Coordinaciones de Carrera tienen la responsabilidad de velar por el cumplimiento de este Reglamento en sus respectivas Carreras.
+La Decanatura, la Dirección Académica, la Dirección Administrativa-Financiera, la Dirección de Planificación y Desarrollo y la Dirección de Educación Comunitaria y Asistencia Técnica en su calidad de superiores jerárquicos, son los responsables de velar por la aplicación de este Reglamento.
+La interpretación de las normas contenidas en este Reglamento, así como sus reformas, son materia de competencia del Consejo Directivo.

@@ -1,0 +1,1 @@
+Artículo 60.—Requisitos para incorporar la información. En los plazos previstos en este Reglamento, todo (a) profesor (a) deberá incorporar en el Acta de Rendimiento Académico, (en adelante el acta) la nota final del curso matriculado por el (la) estudiante.

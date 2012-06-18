@@ -1,0 +1,1 @@
+Artículo 42.—Del docente a cargo de cursos por tutoría. Este profesor tendrá las mismas obligaciones y responsabilidades académicas que un docente de cursos regulares; la diferencia estribará en el número de las horas lectivas del curso.

@@ -1,0 +1,6 @@
+Artículo 71.—Deberes del profesor y del coordinador de carrera.
+a) Los Coordinadores y profesores de carrera deberán reunirse al finalizar cada cuatrimestre, para analizar los programas de los cursos, materiales didácticos bibliográficos, evaluaciones y hacer los cambios respectivos.
+b) Al inicio de cada curso lectivo, el docente entregará a los estudiantes el programa y el cronograma del curso que se desarrollará, el cual deberá contener lo siguiente. Los objetivos, los contenidos, la metodología, el cronograma de actividades, el sistema de evaluación y las referencias bibliográficas, según formato oficial institucional.
+c) Los docentes están obligados a asistir a los Consejos de Carrera, a los cursos de capacitación, actualización y toda actividad de mejoramiento académico-docente propuesta por la coordinación de carrera y/o avalada por la Dirección Académica. La inasistencia debe ser justificada según lo estipulado en la normativa vigente.
+d) Los (as) Coordinadores (as) de Carrera y los docentes tienen la obligación de respetar y cumplir, sin excepción, con todas las actividades académicas establecidas en el Cronograma Institucional.
+e) Los docentes junto con los asistentes de laboratorios son responsables directos del uso adecuado de los equipos de cómputo, según normativa vigente.

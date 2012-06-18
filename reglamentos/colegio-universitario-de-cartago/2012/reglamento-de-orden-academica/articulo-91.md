@@ -1,0 +1,2 @@
+Artículo 91.—De la asistencia a los cursos. La asistencia a los cursos no puede ser menor del 85% de las lecciones estipuladas para cada curso, por lo que es obligación de todo docente llevar el control de la misma y notificar a la dirección de la DECAT, en forma inmediata, aquellos casos que incumplan este articulado.
+La DECAT debe indagar las razones del ausentismo que se reporta con el propósito de minimizar la deserción.

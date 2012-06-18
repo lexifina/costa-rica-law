@@ -1,0 +1,7 @@
+Artículo 62.—La consignación de notas y otras indicaciones en el acta. En el Acta, en la columna “calificación”, solo deberá aparecer la nota final obtenida por el estudiante, en escala de uno (1.00) a diez (10.00) según lo establecido en el Artículo correspondiente de este Reglamento. En la columna “situación” solo podrá aparecer cualquiera de las siguientes letras:
+a) A. (Aprobado). El estudiante aprobó el curso con nota superior o igual a 7.00.
+b) E. (Extraordinario). El estudiante alcanzó una nota entre 6.00 y menos de 7.00.
+c) P. (Perdida). El estudiante obtuvo una nota inferior a 6.00.
+d) R.J (Retiro Justificado). Cuando por medio del acto administrativo correspondiente, el profesor logre comprobar la existencia de las circunstancias que facultaron al estudiante para retirarse del curso.
+e) D. (Deserción por curso). Cuando concluido el ciclo lectivo, al profesor le quede demostrado que el estudiante desertó de su curso. Será prueba suficiente de deserción del curso, la ausencia injustificada del estudiante, en los plazos que se establecen en este Reglamento, a cualquiera de las pruebas. El docente debe informar obligatoriamente al Departamento de Bienestar Estudiantil y Calidad de Vida sobre la deserción de él o los estudiantes, para que el Departamento le de seguimiento.
+f) IN. (Incompleto). Para aquellos casos calificados en que el estudiante no terminó dentro de las catorce semanas su correspondiente práctica supervisada.

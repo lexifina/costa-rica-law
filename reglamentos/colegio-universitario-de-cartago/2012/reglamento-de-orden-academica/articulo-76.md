@@ -1,0 +1,1 @@
+Artículo 76.—Promoción de actividades. El CUC, a través del DECAT, promueve la oferta de programas y actividades de Educación Comunitaria y Asistencia Técnica teniendo en cuenta la diversidad del país, respetando la autonomía de las organizaciones de la sociedad.

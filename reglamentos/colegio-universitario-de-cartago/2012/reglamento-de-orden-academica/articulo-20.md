@@ -1,0 +1,2 @@
+Artículo 20.—Propuesta y entrega del programa del curso. El programa del curso a impartir por el docente, debe ser propuesto con la Coordinación de Carrera, la cual debe concordar con los lineamientos curriculares de la Institución y el perfil del plan de estudios de la carrera aprobada por el Consejo Superior de Educación.
+La propuesta deberá ser aprobada previamente por la Coordinación de Carrera antes de su implementación. Deberán constar las variantes que ajustan el programa y las justificaciones correspondientes.

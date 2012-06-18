@@ -1,0 +1,1 @@
+Artículo 92.—De los retiros justificados. Durante la primera semana del inicio del periodo lectivo, los estudiantes podrán retirarse de los cursos cuando se presenten las causas del numeral 66 de este Reglamento.

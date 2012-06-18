@@ -1,0 +1,4 @@
+Artículo 48.—Sobre el fraude y los actos contrarios a las buenas costumbres
+a) Será considerado plagio la reproducción parcial o total de documentos ajenos presentándolos como propios. En el caso que se compruebe el plagio por parte del estudiante, será suspendido en forma permanente del proceso educativo en la institución.
+b) Se considera una acción irregular por parte del estudiantado la utilización de todo documento o medio no autorizado, utilizado de manera ilegal por el estudiante durante el desarrollo de una prueba. De comprobarse la acción irregular en la realización de prueba, ésta será retirada y después de esta será evaluada con nota de uno (1.00).
+c) En caso de otras causales que impliquen sanción para el estudiante se regirá por lo establecido en el Reglamento Disciplinario Estudiantil.

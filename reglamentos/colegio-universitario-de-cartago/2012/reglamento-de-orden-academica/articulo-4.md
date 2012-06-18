@@ -1,0 +1,1 @@
+Artículo 4º—Integración de Comisiones. La Dirección Académica recomendará a la Decanatura la integración de las Comisiones funcionario está obligado a participar activamente en la Comisión para la cual se le nombre, de acuerdo con su disponibilidad horaria y cargas de trabajo.

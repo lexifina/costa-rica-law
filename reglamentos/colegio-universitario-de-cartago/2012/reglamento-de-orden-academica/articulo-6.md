@@ -1,0 +1,1 @@
+Artículo 6º—Del Consejo de Carrera. El Consejo de Carrera es un órgano de carácter técnico que asesora a la Coordinación de Carrera. Está integrado por el Coordinador de Carrera, quien lo preside, y por el cuerpo docente de la misma.
