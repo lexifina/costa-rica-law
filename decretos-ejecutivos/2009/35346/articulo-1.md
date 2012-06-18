@@ -1,4 +1,6 @@
+(Derogado)
 Nº 35346 MINAET
+(Este decreto fue derogado por el artículo 3° del decreto ejecutivo N° 37208 del 18 de junio de 2012, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE AMBIENTE, ENERGÍA
 Y TELECOMUNICACIONES
