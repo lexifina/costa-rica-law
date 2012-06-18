@@ -1,2 +1,0 @@
-Transitorio único.—A partir de la publicación de este decreto se dará un plazo de 30 días a los interesados para que presenten a la Oficina Nacional de Normas y Unidades de Medida las etiquetas aprobadas bajo la anterior legislación para las correcciones respectivas. A partir de esa fecha las etiquetas aprobadas que no hayan hecho valer sus intereses quedarán anuladas, sin responsabilidad alguna por parte del Estado.
-Dado en la Presidencia de la República.—San José, a los quince días del mes de abril de mil novecientos noventa y siete.

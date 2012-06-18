@@ -1,1 +1,0 @@
-Artículo 4°—Queda prohibido usar con fines propagandísticos y en cualquier medio publicitario, términos que no correspondan a las características y cualidades de los productos alimenticios ni estipularlos en la etiqueta correspondiente.

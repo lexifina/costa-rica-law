@@ -1,2 +1,0 @@
-Artículo 3º—El Ministerio de Economía, Industria y Comercio será, el organismo señalado para dictaminar cualquier asunto relacionado con el presente reglamento en el ámbito de sus competencias y en concordancia con lo dispuesto por la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y su reglamento.
-(Así Reformado por el artículo 9° del Decreto Ejecutivo N° 31700 del 16 de marzo de 2004)
