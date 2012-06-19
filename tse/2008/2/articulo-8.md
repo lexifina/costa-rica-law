@@ -1,1 +1,2 @@
-Artículo 8º—Caucionantes del nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, el Director y Subdirector Ejecutivo y el Coordinador y Subcoordinador de Programas Electorales.
+Artículo 8º- Caucionantes del nivel B. En este nivel, deben rendir caución para el ejercicio de sus cargos los directores y secretarios generales del Tribunal Supremo de Elecciones, Dirección Ejecutiva, Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos, IFED, Estrategia Tecnológica y Registro Civil, con excepción del Secretario General del Registro Civil.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 10-2012 del 19 de junio del 2012)

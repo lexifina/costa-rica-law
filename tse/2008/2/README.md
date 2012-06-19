@@ -14,3 +14,4 @@ Reglamento sobre la rendición de cauciones en favor del Tribunal Supremo de Ele
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-13 | la propia norma |
+| 2 | 2012-06-19 | Decreto TSE 10 (2012-06-19) |
