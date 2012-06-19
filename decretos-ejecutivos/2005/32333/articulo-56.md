@@ -1,4 +1,4 @@
-Artículo 56.—Perfiles de los funcionarios que deben declarar.
+Artículo 56.— Perfiles de los funcionarios que deben declarar.
 Inciso 1.—Perfil para los funcionarios de las aduanas: Estarán afectos a la obligación de declarar, conforme al párrafo segundo del artículo 21 de la Ley contra La Corrupción y el Enriquecimiento Ilícito en la Función Pública , los funcionarios aduaneros que tengan dentro de sus funciones, cualquiera de los siguientes procesos o competencias, sin perjuicio de las funciones que se describan en los perfiles de los incisos 2 y 3 de este artículo.
 a) Los que exijan y comprueben el cumplimiento de los elementos que determinan la obligación tributaria aduanera, así como los que exijan y comprueben los requisitos y obligaciones derivados de la entrada, custodia, permanencia, uso y destino de las mercancías, vehículos y unidades de transporte del territorio.
 b) Los que exijan, comprueben, recauden, fiscalicen y aprueben, el pago de los tributos de importación y exportación.
@@ -32,4 +32,6 @@ e) Aquellos que ostenten la potestad de aprobar procedimientos de fiscalización
 f) Aquellos que ostenten la potestad de emitir actos de control externo.
 g) Aquellos que ostenten la potestad de emitir actos de fiscalización superior.
 h) Aquellos que tengan la potestad de negociar internacionalmente tratados de libre comercio, acuerdos, convenios, empréstitos, renegociación de deuda externa o similar. Independientemente si dicha labor supere o no los seis meses.
-(Así reformado por el artículo 1°, inciso g), del decreto ejecutivo N° 34409 del 27 de febrero de 2008).
+i) Aquellos que tengan a su cargo el otorgamiento de avales, permisos o autorizaciones a particulares, o fiscalizar la ejecución y cumplimiento de obras y servicios.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37182 del 19 de junio del 2012)
+(Así reformado por el artículo 1°, inciso g), del decreto ejecutivo N° 34409 del 27 de febrero de 2008)

@@ -83,7 +83,6 @@ articulo-81.md
 articulo-82.md
 articulo-82-bis.md
 articulo-83.md
-articulo-84.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
@@ -92,3 +91,4 @@ articulo-5-transitorio.md
 articulo-6-transitorio.md
 articulo-7-transitorio.md
 articulo-8-transitorio.md
+articulo-84.md
