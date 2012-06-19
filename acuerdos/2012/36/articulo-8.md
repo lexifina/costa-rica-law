@@ -1,0 +1,2 @@
+Artículo 8º. Vigencia de marca C – Neutral.
+El período de vigencia de la marca C–Neutral está directamente relacionado con el período de vigencia de la Verificación de Carbono Neutralidad bajo la norma nacional INTE 12-01-06. De modo que se actualizará cada vez que la organización compruebe continuidad en la verificación de su carbono neutralidad. Las organizaciones con la marca C–Neutral vigente, serán publicadas en la página web oficial del MINAET.

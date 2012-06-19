@@ -1,0 +1,5 @@
+Artículo 3º. De la verificación de inventario de gases de efecto invernadero (GEI).
+La verificación de los inventarios de emisiones de GEI deberán ser realizados por organismos verificadores acreditados por el Ente Costarricense de Acreditación (ECA). El nivel de aseguramiento en los procesos de verificación de inventarios debe ser razonable, con un umbral de significancia de un 5%.
+Transitorio 1: En el caso de que no se encuentren organismos verificadores/validadores acreditados ante el Ente Costarricense de Acreditación, el proceso de verificación de inventarios de emisiones de GEI podrá ser realizado por:
+a) Organizaciones que se encuentren debidamente acreditadas en otros países bajo la norma ISO 14065, quienes tienen un plazo de tiempo de 1 año calendario para obtener la acreditación nacional, y demuestren competencia como verificadores/validadores.
+b) Organizaciones que sean aprobadas por la Dirección de Cambio Climático del MINAET y demuestren competencia como organismos verificadores/validadores, mientras no se cuente con organismos verificadores/validadores acreditados por ECA.
