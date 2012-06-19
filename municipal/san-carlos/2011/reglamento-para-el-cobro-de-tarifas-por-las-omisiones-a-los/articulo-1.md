@@ -1,0 +1,20 @@
+MUNICIPALIDAD DE SAN CARLOS
+(Nota de Sinalevi: La Municipalidad de San Carlos mediante publicación realizada en La Gaceta N° 118 del 19 de junio del 2012, comunica: “Alejandra Bustamante Segura, cédula Nº 2-526-828, Licenciada en Derecho, secretaria del Concejo Municipal de la Municipalidad de San Carlos, certifica: Que en La Gaceta N° 242 del viernes 16 de diciembre del 2011 en la página 55, se publicó el Proyecto de Reglamento para el Cobro de Tarifas por la Omisión a los Deberes de los Poseedores de Inmuebles del Cantón de San Carlos. Por tanto, pasado el plazo correspondiente, y al no haberse recibido objeciones al mismo, se declara como oficial dicho Reglamento. Rige a partir de su publicación, derogándose cualquier otra normativa reglamentaria existente. Se extiende la presente certificación en Ciudad Quesada, a solicitud de la Administración Municipal, al ser las nueve horas con cincuenta y cinco minutos del viernes veinticinco de mayo del dos mil doce”. Por lo tanto, de acuerdo a lo trascrito el texto del referido reglamento es el siguiente:)
+PROYECTO DE REGLAMENTO PARA EL COBRO
+DE TARIFAS POR LA OMISIÓN A LOS DEBERES
+DE LOS POSEEDORES DE INMUEBLES
+DEL CANTÓN DE SAN CARLOS
+Disposiciones generales
+El Concejo Municipal de la Municipalidad de San Carlos, con sustento en lo establecido en los artículos 169 y 170 de la Constitución Política, artículos 4º, inciso a); 13 inciso c); 43, 75, 76, 76 bis y 76 ter, de la Ley número 7794 del 30 de abril de 1998, artículo 2 de la Ley Nº 7337 del 5 de mayo de 1993 y Ley 7898 del 02 de setiembre de 1999, Ley Nº 7637, y sus reformas, y con fundamento en el acuerdo tomado por el Concejo Municipal de San Carlos en sesión ordinaria, celebrada el lunes 12 de setiembre del 2011, mediante artículo 47, incisos 1), 2), y 3) del acta Nº 60 acordó aprobar el presente Proyecto de Reglamento para el Cobro de Tarifas por las Omisiones a los Deberes de los Poseedores de Inmuebles del Cantón de San Carlos, el cual se regirá por las siguientes disposiciones:
+CAPÍTULO I
+De las definiciones
+Artículo 1º—Para los efectos del presente Reglamento se entenderá por:
+Concejo Municipal | Concejo Municipal del Cantón de San Carlos
+La Municipalidad | Municipalidad del Cantón de San Carlos
+Cantón | Cantón de San Carlos
+Código | Código Municipal
+Limpieza de Lotes | Dar mantenimiento a los lotes públicos y privados en lo que respecta a chapea y eliminación de escombros, además de la transferencia de dichos escombros al lugar apropiado de depósito.
+Construcción y Restauración de Aceras | Realizar trabajos generales en las vías peatonales, de acuerdo a lo que establezca y recomiende la Municipalidad (Cordón de caño, subase, capa superior de las aceras). En las aceras deberá existir como mínimo 2 metros libres para el tránsito peatonal y el diámetro de las alcantarillas de paso de la entrada a los fondos, será estipulado por la Municipalidad fundamentándose el Articulo IX inciso 4 de la Ley de Construcciones.
+Construcción de cercas | Es la instalación de cercas de diferentes materiales en predios públicos y privados donde éstos lo ameritan, según los criterios que al efecto dicte la Municipalidad.
+Limpieza de escombros y descuaje en las vías públicas | Son los trabajos de mantenimiento de las vía públicas a lo ancho de las mismas incluyendo desagües, rondas y ramas de árboles que extiendan hacia la calle pública o aceras, eliminación de elementos que impidan el libre paso de peatones, aguas servidas y pluviales, vehículos o la visibilidad.
+Instalación de caños y bajantes frente a la vía pública. | Es la Construcción de canoas y bajantes en edificios públicos y privados que carezcan de estos elementos, de acuerdo a las especificaciones técnicas previas establecidas en cada caso por la Municipalidad. Se analizará la posibilidad de realizar trabajos para prevenir desastres (taludes o inundaciones), limpieza y mantenimiento de fachadas en edificios, voladizos, aleros, balcones, techos, pintura de inmuebles, etc., según criterio de los profesionales en la materia de la Municipalidad.

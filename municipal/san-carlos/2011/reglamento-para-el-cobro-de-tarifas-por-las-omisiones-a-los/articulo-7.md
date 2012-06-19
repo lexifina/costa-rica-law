@@ -1,0 +1,1 @@
+Artículo 7º—Cuando en un lote exista una edificación inhabitable que arriesgue la vida, el patrimonio o la integridad física de terceros, o cuyo estado de abandono favorezca la comisión de actos delictivos, la Municipalidad podrá formular denuncia contra el poseedor del mismo, ante las autoridades de salud y colaborar con ellas en el cumplimiento de la Ley General de Salud.
