@@ -1,0 +1,1 @@
+III. Las condiciones a aplicar a esos generadores privados son las señaladas en la Resolución RJD-163-2011, así como lo señalado en la sección 4 del respectivo informe técnico que sirve de fundamento a esta resolución.
