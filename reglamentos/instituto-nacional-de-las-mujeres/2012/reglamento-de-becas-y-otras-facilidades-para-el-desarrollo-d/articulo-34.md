@@ -1,0 +1,1 @@
+Artículo 34.—Participación en la convocatoria: En el plazo que indique la convocatoria las personas interesadas deberán aportar al Área de Recursos Humanos los requisitos y documentación respectiva. La presentación de los requisitos fuera del plazo establecido provoca que la persona interesada quede sin posibilidad de concursar para la beca o facilidad.

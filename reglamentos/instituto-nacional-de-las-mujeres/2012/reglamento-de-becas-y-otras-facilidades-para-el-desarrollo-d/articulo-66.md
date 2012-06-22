@@ -1,0 +1,1 @@
+Artículo 66.—Derogatorias: Se derogan los artículos 87 inciso d), 88, 89 inciso d.i, 90 y 91 del Reglamento Autónomo de Servicios del Instituto Nacional de las Mujeres. El presente Reglamento deroga también los reglamentos y manuales anteriores, del INAMU, sobre la materia de capacitación y formación.

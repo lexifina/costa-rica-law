@@ -1,0 +1,2 @@
+Artículo 56.—De la garantía económica: La erogación económica que realice INAMU en calidad de beca de capacitación o formación, cuando ésta supere el monto de quinientos mil colones, deberá asegurarse por medio de garantía fiduciaria. Dicha garantía deberá rendirse en el momento de suscribir el contrato y sin ésta el beneficio no podrá ser otorgado.
+La Junta Directiva fijará el monto al que se refiere este artículo, el cual deberá revisarse y actualizarse, al menos cada dos años, bajo recomendación del Área de Recursos Humanos.

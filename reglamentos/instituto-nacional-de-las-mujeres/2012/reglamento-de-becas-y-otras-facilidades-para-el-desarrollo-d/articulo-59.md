@@ -1,0 +1,10 @@
+CAPÍTULO X
+Sanciones por incumplimiento de obligaciones
+y cancelación de beneficios
+Artículo 59.—De las sanciones: Las personas funcionarias que incumplan los compromisos derivados de los beneficios otorgados, o hagan abandono de sus estudios sin causa justificada, se harán acreedoras a las siguientes sanciones, una vez garantizado el debido proceso:
+a) Abandono de sus estudios de formación en el ámbito local: un año de suspensión para participar en actividades de capacitación y formación, más el reintegro de los costos en que haya incurrido el INAMU, junto con sus respectivos intereses.
+b) Abandono de estudios en el exterior: dos años de suspensión de toda beca o facilidad de capacitación más el reintegro de los costos en que haya incurrido el INAMU, junto con sus respectivos intereses de mercado.
+c) Incumplimiento en el aprovechamiento de dos o más asignaturas financiadas por el INAMU: un año de suspensión para participar en actividades de capacitación y formación, más el reintegro de los costos en que haya incurrido junto con los respectivos intereses de ley.
+d) Incumplimiento en el aprovechamiento en dos o más asignaturas, cuando se le ha otorgado permiso con goce de salario total o parcial: un año de suspensión para participar en actividades de capacitación y formación, más el reintegro de los costos en que se haya incurrido junto con los respectivos intereses de ley.
+e) La negativa a participar como instructora o instructor en cursos, charlas u otras actividades de capacitación relacionados con el conocimiento adquirido será sancionado con la suspensión de la funcionaria o funcionario toda actividad de capacitación hasta tanto no haya cumplido con el compromiso adquirido de beneficios anteriores.
+f) El incumplimiento de las obligaciones establecidas en los artículos 49 incisos b), c), d), e) a 56 del presente Reglamento podrá acarrear la sanción de amonestación por escrito o suspensión del beneficio de capacitación o formación para la persona beneficiaria, dependiendo de la gravedad de lo ocurrido, más el reintegro de los costos en que haya incurrido junto con los respectivos intereses de ley, cuando corresponda.

@@ -1,0 +1,13 @@
+Artículo 10.—Tareas del Área de Recursos Humanos respecto a capacitación y formación: para el fiel cumplimiento de los objetivos propuestos en el artículo 5º de este Reglamento el Área de Recursos Humanos debe:
+a. Gestionar, ante instituciones estatales y organismos, sean estos públicos o privados, nacionales e internacionales la obtención de becas y facilidades de capacitación y formación para personas funcionarias.
+b. Gestionar la firma de convenios interinstitucionales que permitan la obtención de becas u otras facilidades, especialmente con centros de enseñanza reconocidos por las autoridades competentes, que beneficien a las personas funcionarias.
+c. Administrar y ejecutar los concursos para el otorgamiento de becas y facilidades, de acuerdo con las regulaciones contenidas en este Reglamento.
+d. Tramitar las solicitudes de capacitación que surjan a iniciativa de las personas funcionarias para determinar si se ajustan a los objetivos del Plan de Capacitación, cuando no hayan sido programadas en éste pero se identifiquen como una oportunidad de beneficio institucional.
+e. Elaborar el Plan Anual de Capacitación, de forma conjunta con la CCAD, para aprobación de la Junta Directiva del INAMU.
+f. Divulgar las becas o facilidades de capacitación en toda la institución.
+g. Evaluar anualmente los resultados de la capacitación impartida y presentar un informe de los resultados de la evaluación junto al Plan de Capacitación y Formación del año siguiente, a la Junta Directiva del INAMU, para que cuente con elementos suficientes para analizar el plan anual propuesto y para generar, con la Unidad de Planificación, indicadores de impacto que midan el aprovechamiento y beneficio que produce al INAMU el desarrollo intelectual de la persona beneficiaria de becas y otras facilidades.
+h. Ejecutar el diagnóstico de necesidades institucionales en materia de capacitación y formación, de previo a la elaboración del Plan de Capacitación.
+i. Ejecutar las actividades de capacitación y el programa de procesos de formación contenidos en el Plan de Capacitación y Formación, en los plazos y términos en que fue aprobado por la Junta Directiva.
+j. Tramitar en tiempo y forma los contratos de becas, licencias y permisos de estudio, y remitirlos para V°B° de la Unidad de Asesoría Legal.
+k. Analizar, a solicitud de la persona interesada, los cursos de capacitación recibidos por la persona funcionaria para efectos de reconocimiento de carrera profesional.
+l. Implementar los controles administrativos para la concesión de becas y otras facilidades, para garantizar una distribución justa y aprovechamiento óptimo de los recursos disponibles, de acuerdo con el criterio técnico de la CCAD.

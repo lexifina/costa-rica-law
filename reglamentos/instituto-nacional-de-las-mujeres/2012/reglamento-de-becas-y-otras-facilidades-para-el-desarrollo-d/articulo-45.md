@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Criterios técnicos de selección
+Artículo 45.—Criterios aplicables a los concursos de capacitación y formación: Aquellas becas u otras facilidades que sean abiertas a concurso para participación de las personas funcionarias serán valoradas por las instancias intervinientes en el proceso de selección de acuerdo con los criterios que sean establecidos en las respectivas convocatorias, tales como: atinencia, historial disciplinario, perfil, experiencia, grado académico, entre otros. A los criterios deberá asignársele, desde la convocatoria, el puntaje con que se calificarán en cada concurso. Se utilizará como referencia, con las variaciones pertinentes, lo establecido en los artículos siguientes para capacitación y formación no programada.

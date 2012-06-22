@@ -1,0 +1,3 @@
+Artículo 44.—Resolución final: La Presidencia Ejecutiva estudiará la recomendación de la CCAD y procederá a resolver según considere pertinente, mediante auto motivado, y notificará a la CCAD para que ésta comunique a la persona lo resuelto sobre su solicitud, en el plazo de cinco días a partir de recibida la recomendación.
+El otorgamiento o rechazo de la solicitud será comunicada por escrito a la persona interesada, dentro de los cinco primeros días después de resuelta por la Presidencia Ejecutiva y corresponderá hacerlo a la CCAD
+Lo resuelto por la Presidencia Ejecutiva puede ser recurrido, mediante recurso de reposición que deberá interponerse dentro de los siguientes tres días a la notificación correspondiente.

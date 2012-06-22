@@ -1,0 +1,1 @@
+Artículo 40.—Trámite de solicitudes individuales de becas y otras facilidades no programadas: Las personas interesadas deberán presentar su solicitud al Área de Recursos Humanos, con los requisitos previstos en este Reglamento y la indicación clara del tipo de beca o facilidad que desea obtener. La solicitud debe tramitarse con, al menos, quince días hábiles de anticipación.

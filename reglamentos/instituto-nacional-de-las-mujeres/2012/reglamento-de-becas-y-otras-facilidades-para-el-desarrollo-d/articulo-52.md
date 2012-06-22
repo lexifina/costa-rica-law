@@ -1,0 +1,1 @@
+Artículo 52.—Desembolsos para formación: Cuando se trate de becas, la persona beneficiaria debe aportar, para cada desembolso –según sea la beca- el informe de progreso de sus estudios y copia de las calificaciones obtenidas, sea cada cuatrimestre, bimestre o semestre según la modalidad de la institución académica en que realice los estudios.

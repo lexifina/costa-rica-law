@@ -1,0 +1,1 @@
+Artículo 64.—De la omisión de las formalidades: Las personas funcionarias, la persona superior jerárquica o la autoridad o autoridades superiores que omitan las formalidades exigidas en este Reglamento, incurrirán en responsabilidades de acuerdo con la normativa disciplinaria vigente.

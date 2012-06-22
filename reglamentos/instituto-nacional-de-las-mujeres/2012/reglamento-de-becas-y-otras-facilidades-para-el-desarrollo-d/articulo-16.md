@@ -1,0 +1,1 @@
+Artículo 16.—Sesiones ampliadas: Las sesiones de la CCAD serán privadas pero podrá solicitarse la comparecencia de alguna persona funcionaria cuando así se estime conveniente o conceder audiencia a quien lo solicite con anticipación.

@@ -1,0 +1,1 @@
+Artículo 22.—De la divulgación: El Área de Recursos Humanos divulgará en todas las oficinas del INAMU su Plan de Capacitación, así como las oportunidades de cursos abiertos al personal, con al menos un mes de antelación a su asignación, para promover la participación de las personas funcionarias interesadas.

@@ -1,0 +1,2 @@
+Artículo 18.—Presidencia Ejecutiva: la Presidencia Ejecutiva del INAMU es la responsable de tomar las decisiones finales sobre las asignaciones de becas u otras facilidades, para lo cual valorará la recomendación emitida por la CCAD. Si existiera diferencia de criterio respecto a lo recomendado deberá fundamentar lo resuelto.
+Lo resuelto por la Presidencia Ejecutiva podrá ser recurrido, a través del recurso de reposición, que deberá plantear la persona interesada en el plazo de tres días a partir de la comunicación correspondiente ante dicha instancia.

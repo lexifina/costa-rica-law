@@ -1,0 +1,1 @@
+Artículo 54.—Prestación de servicios en INAMU: La persona beneficiaria deberá prestar los servicios a los que se refiere los artículos anteriores en el INAMU; salvo convenio de las partes para que los preste en otra dependencia del Estado, con la que asumiría por entero, la persona funcionaria, las obligaciones y responsabilidades contractuales contraídas.

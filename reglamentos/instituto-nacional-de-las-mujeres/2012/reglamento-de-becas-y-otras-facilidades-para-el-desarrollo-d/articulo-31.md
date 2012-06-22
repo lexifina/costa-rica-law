@@ -1,0 +1,9 @@
+Artículo 31.—De los requisitos para estudios formales: Para que una persona funcionaria sea acreedora de una beca u otra facilidad para estudios formales debe cumplir con los siguientes requisitos:
+a) Tener un nombramiento en propiedad en una plaza del INAMU.
+b) Haber prestado sus servicios al INAMU, de forma ininterrumpida, por un período no menor de un año.
+c) No haber incurrido en sanción disciplinaria correspondiente a falta grave, de conformidad con el Reglamento Autónomo de Servicios, durante el año anterior a la solicitud de la beca o facilidad.
+d) Presentar los documentos específicos que establezca la convocatoria a concurso; o bien, la solicitud correspondiente ante el Área de Recursos Humanos, cuando se trate de una solicitud de formación no programada.
+e) Que los Centros de educación superior estén debidamente acreditados ante el Consejo Nacional de Educación Superior. –CONESUP y que correspondan a aquellos que la institución ha establecido, cuando se hubiese limitado las casas de enseñanza para procesos de formación, en beneficio del interés institucional.
+f) Haber cumplido con los compromisos asumidos con otras capacitaciones o con la normativa de este Reglamento.
+g) No encontrarse en período de retribución de una beca anterior, salvo que se trate de la obtención del grado de licenciatura en forma inmediata siguiente a la obtención del grado de bachiller.
+Las personas beneficiarias que hayan disfrutado de una licencia o permiso con goce de salario para estudios formales mayor de 9 meses, sumados en horas, por períodos consecutivos o intermitentes, no podrán obtener nuevas licencias con goce de salario para estudios, durante el mismo tiempo que han gozado el beneficio, salvo casos muy calificados, que a juicio de la CCAD justifiquen la concesión antes de que haya transcurrido dicho período. Para ello se requerirá de un estudio técnico de Recursos Humanos que adjuntará al expediente antes de elevar el asunto a la CCAD.
