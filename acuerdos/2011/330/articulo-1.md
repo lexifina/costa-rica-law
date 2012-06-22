@@ -93,8 +93,11 @@ ACUERDA:
 66 | Capitán o Tripulante, todo tipo embarcación (nacional o residente) | ¢ 4,000.00
 | Carne de identificación de pesca deportiva o turística, continental o marina (Por año / Por trámite) |
 67 | Nacional, Residente o Extranjero que practica pesca continental o marina desde embarcación (un año) | $ 30.00
+Carné de 1 a 8 días (nacional, residente o extranjero) (Así adicionado el punto anterior mediante acuerdo A.J.D.I.P/315-2012 del 22 de junio del 2012) | $15.00 (Así adicionado el punto anterior mediante acuerdo A.J.D.I.P/315-2012 del 22 de junio del 2012)
+Carné de 30 días (nacional, residente o extranjero) (Así adicionado el punto anterior mediante acuerdo A.J.D.I.P/315-2012 del 22 de junio del 2012) | $25.00 (Así adicionado el punto anterior mediante acuerdo A.J.D.I.P/315-2012 del 22 de junio del 2012)
+Carné anual-nacional, residente o extranjero (Así adicionado el punto anterior mediante acuerdo A.J.D.I.P/315-2012 del 22 de junio del 2012) | $50.00 (Así adicionado el punto anterior mediante acuerdo A.J.D.I.P/315-2012 del 22 de junio del 2012)
 68 | Nacional, Residente o Extranjero que practica pesca subacuática continental o marina (un año) | $ 30.00
-69 | Nacional o Residente que practica pesca marina o continental, desde tierra (un año) | ¢ 4,000.00
+69 | Carné desde tierra-anual (nacional o residente) (Así reformado el punto anterior mediante acuerdo A.J.D.I.P/315-2012 del 22 de junio del 2012) | $10.00 (Así reformado el punto anterior mediante acuerdo A.J.D.I.P/315-2012 del 22 de junio del 2012)
 70 | Extranjero que practica pesca marina o continental desde tierra (un año) | $ 30.00
 71 | Capitán, tripulante o ayudante (nacional o residente), embarcación pesca deportiva o turística, continental o marina (un año) | $ 15.00
 72 | Capitán, tripulante o ayudante (extranjero), embarcación pesca deportiva o turística, continental o marina (un año) | $ 30.00

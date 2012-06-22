@@ -15,3 +15,4 @@ Establece tarifas por la venta de bienes y servicios que brinda y genera el INCO
 | --- | --- | --- |
 | 1 | 2012-01-01 | la propia norma |
 | 2 | 2012-01-01 | Acuerdo 458 (2011-12-19) |
+| 3 | 2012-06-22 | Acuerdo 315 (2012-06-22) |
