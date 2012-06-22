@@ -14,3 +14,4 @@ Reglamento del Fondo de Mutualidad y Subsidios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-14 | la propia norma |
+| 2 | 2012-06-22 | Reglamento 88 (2012-06-22) |

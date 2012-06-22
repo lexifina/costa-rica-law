@@ -1,3 +1,8 @@
-Artículo 10.—Entrega de los subsidios. Al fallecer un miembro del Colegio, se entregará a los beneficiarios que éste haya definido con anticipación, el monto del subsidio correspondiente que al efecto haya aprobado la Asamblea de Mutualistas. A falta de designación de beneficiarios, el monto del subsidio se entregará a:
-A) Al miembro del núcleo familiar del Colegiado que demuestre mediante prueba documental haber realizado los gastos funerarios y sepultura.
-B) En caso de duda sobre la existencia de uno o varios beneficiarios, o sobre la aplicación del inciso anterior, o bien cuando ningún miembro del núcleo familiar del Colegiado reclame el pago del subsidio de fallecimiento, los interesados deberán instaurar el proceso sucesorio correspondiente ante la jurisdicción de los tribunales civiles, siendo ante esa jurisdicción que la Junta Administrativa del Fondo procederá a hacer el depósito del monto del subsidio a que se tenga derecho, una vez así ordenado por la autoridad judicial.
+Artículo 10.—Entrega de los beneficios. Al fallecer un colegiado afiliado del Fondo, alguno de sus padres, hijos menores de dieciocho años, o su cónyuge o conviviente, se entregarán por una única vez los beneficios aprobados por la Asamblea de Mutualistas de la siguiente forma:
+a) al colegiado, en caso de fallecimiento de sus hijos menores de dieciocho años o su cónyuge o conviviente;
+b) al colegiado soltero, en caso de fallecimiento de alguno de sus padres,
+c) a los beneficiarios del colegiado fallecido o a sus herederos
+d) al colegiado divorciado, en caso de fallecimiento de hijos menores de 18 años o alguno de sus padres.
+En caso de duda sobre a quién corresponde la entrega del beneficio, cuando exista uno o varios beneficiarios, o dudas sobre la aplicación de lo establecido en el párrafo anterior, no se podrá ordenar el giro del subsidio y el interesado deberá instaurar el proceso sucesorio correspondiente.
+El plazo para reclamar cualquier beneficio derivado de este reglamento es de diez años.
+(Así reformado mediante sesión ordinaria N° 088-2012 del 22 de junio del 2012)
