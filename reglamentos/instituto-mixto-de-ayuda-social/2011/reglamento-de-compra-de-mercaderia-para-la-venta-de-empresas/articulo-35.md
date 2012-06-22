@@ -1,0 +1,1 @@
+Artículo 35.—De las obligaciones de los proveedores. Los proveedores incluidos en el Registro quedan obligados a comunicar a la Unidad de Proveeduría todo cambio que se presente en sus datos, descripción y característica de los bienes y servicios que ofrecen, o bien en caso de no suscitarse ningún cambio actualizar sus datos cada dos años.

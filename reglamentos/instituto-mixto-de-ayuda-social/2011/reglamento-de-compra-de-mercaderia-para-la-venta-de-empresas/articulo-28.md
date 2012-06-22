@@ -1,0 +1,1 @@
+Artículo 28.—Del cumplimiento de requisitos previo a la entrega de la orden de compra. Previo a realizar la entrega de la orden de compra el proveedor debe estar registrado en la base de datos que lleva la Unidad de proveeduría para este fin.

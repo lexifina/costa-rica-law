@@ -1,0 +1,1 @@
+Artículo 30.—De los documentos que deberán acompañar la mercadería. La mercadería debe venir acompañada de la factura y orden de pedido correspondiente las cuales deben ser firmadas como recibidas. Sin estos documentos no se debe recibir ninguna mercadería.

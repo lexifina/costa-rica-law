@@ -1,0 +1,2 @@
+Artículo 32.—Del trámite de pago. Dentro del plazo de crédito concedido por el proveedor según los términos de pago acordados, la unidad administrativa pasará los documentos del expediente del pedido al Área Financiera del IMAS para trámite de pago, de manera que se cumpla con el plazo de pago.
+No se realizará ningún pago hasta confirmar que en los documentos del expediente consta la aprobación del mismo de parte de la administración de PEC.

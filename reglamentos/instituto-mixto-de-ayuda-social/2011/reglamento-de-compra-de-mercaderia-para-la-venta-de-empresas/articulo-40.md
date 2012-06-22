@@ -1,0 +1,1 @@
+Artículo 40.—De la aprobación del Consejo Directivo. El presente Reglamento fue debidamente aprobado mediante acuerdo CD-447-2011, acta 070-2011 de fecha 19 de setiembre 2011 del Consejo Directivo del IMAS.

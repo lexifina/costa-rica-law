@@ -1,0 +1,1 @@
+Artículo 29.—De la entrega de mercadería. El proveedor debe hacer la entrega de la mercadería, de conformidad con lo dispuesto en manual de procedimientos para la modalidad especial de importación Tiendas Libres del Ministerio de Hacienda aprobado mediante Resolución DGA-083-2004 del 14 de julio del 2004 y Publicada en La Gaceta Nº 169 del 30 de agosto del 2004.
