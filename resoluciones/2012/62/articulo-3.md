@@ -1,0 +1,1 @@
+III.—Aclarar que en todo lo demás las Normas Técnicas rigen a partir de la fase de formulación del presupuesto inicial correspondiente al ejercicio económico del 2013. Rige a partir de su publicación.
