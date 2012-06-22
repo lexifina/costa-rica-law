@@ -14,3 +14,4 @@ Reglamento de Elecciones del Colegio de Profesionales en Ciencias Económicas de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-04 | la propia norma |
+| 2 | 2012-06-22 | Reglamento 88 (2012-06-22) |

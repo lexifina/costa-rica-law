@@ -1,1 +1,2 @@
-Artículo 31.—Cada aspirante inscrito podrá designar un fiscal y un suplente. En cada mesa receptora habrá dos fiscales escogidos por rifa u otro mecanismo, quienes tendrán voz, pero no voto.
+Artículo 31.—En cada mesa receptora de votos podrán apersonarse fiscales designados por los candidatos, quienes podrán verificar los procedimientos y solicitar aclaraciones o pronunciamientos tanto a los colegiados de mesa como a los integrantes del Tribunal. Para tal efecto, cada candidato podrá proponer un fiscal propietario y un suplente, de modo que este último remplace al propietario en caso necesario.
+(Así reformado mediante sesión N° 088-2012 del 22 de junio del 2012)

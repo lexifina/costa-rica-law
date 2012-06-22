@@ -1,1 +1,3 @@
-Artículo 12.—Los miembros del Tribunal de Elecciones con más de tres ausencias continuas a sesiones o cinco ausencias alternas que hayan sido debidamente convocadas, quedarán excluidos y serán sustituidos por el tiempo que le reste de su nombramiento.
+Artículo 12.—Los colegiados del Tribunal de Elecciones con más de tres ausencias injustificadas continuas a sesiones o cinco alternas que hayan sido debidamente convocadas, ocurridas dentro del plazo de un año, quedarán excluidos y serán sustituidos por el tiempo que le reste de su nombramiento.
+Para esos efectos la Junta Directiva adoptará el acuerdo correspondiente, previa audiencia al afectado.
+(Así reformado mediante sesión N° 088-2012 del 22 de junio del 2012)

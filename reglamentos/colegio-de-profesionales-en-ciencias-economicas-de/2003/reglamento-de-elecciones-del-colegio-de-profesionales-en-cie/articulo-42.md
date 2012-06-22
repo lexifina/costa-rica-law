@@ -1,1 +1,3 @@
-Artículo 42.—El miembro activo que por impedimento físico no pueda emitir su voto en la forma prevista por el Tribunal de Elecciones, lo hará públicamente y el Presidente de la junta receptora dejará constancia en la boleta de votación que corresponde y en el acta respectiva.
+Artículo 42.—Una vez iniciado el escrutinio de los votos emitidos, proceso en el cual podrán participar los colegiados a que se refiere el artículo 38 anterior, no se podrá abandonar el recinto correspondiente por parte de ninguno de los presentes, salvo en casos de fuerza mayor o que se tratare de uno de los colegiados del Tribunal de Elecciones. Tampoco podrá ninguno de los presentes en el escrutinio, dar información en relación con el resultado de las elecciones, acatando las disposiciones que emita el Tribunal.
+Quien faltare a las disposiciones del Tribunal podrá ser denunciado ante el Tribunal de Honor.
+(Así reformado mediante sesión N° 088-2012 del 22 de junio del 2012)

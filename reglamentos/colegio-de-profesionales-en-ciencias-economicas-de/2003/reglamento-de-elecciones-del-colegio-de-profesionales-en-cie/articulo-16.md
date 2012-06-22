@@ -1,1 +1,2 @@
-Artículo 16.—El padrón provisional deberá estar expuesto a los interesados por lo menos un mes calendario de antelación a la fecha de elecciones. Esta responsabilidad recaerá en la Dirección Ejecutiva del Colegio.
+Artículo 16.—El Padrón Electoral, estará conformado por los profesionales que se encontraban inscritos en el Padrón Electoral Provisional, más las personas que se empadronen a más tardar ocho días naturales antes de la fecha designada para la Asamblea General , con derecho a estar allí. Lo anterior incluye a las personas que por error no hubieran estado registrados en dicho Padrón Electoral Provisional.
+(Así reformado mediante sesión N° 088-2012 del 22 de junio del 2012)

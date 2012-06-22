@@ -1,1 +1,2 @@
-Artículo 17.—Los profesionales incorporados, a más tardar ocho días naturales antes de la fecha designada para la asamblea general ordinaria y que no figuren en el padrón electoral para la convocatoria, deberán ser incluidos en un padrón adicional o certificación expresa que lo acredite. Ambos constituyen el padrón definitivo.
+Artículo 17.—Una vez recibido formalmente el Padrón Electoral por parte del Tribunal de Elecciones, se remitirá una copia a la Junta Directiva y estará a disposición de los candidatos a elección debidamente inscritos que así lo soliciten.
+(Así reformado mediante sesion N° 088-2012 del 22 de junio del 2012)

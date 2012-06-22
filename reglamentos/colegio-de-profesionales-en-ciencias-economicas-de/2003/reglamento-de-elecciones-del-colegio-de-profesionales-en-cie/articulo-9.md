@@ -1,3 +1,6 @@
 CAPÍTULO IV
 Del Tribunal de Elecciones
-Artículo 9º—Los miembros del Tribunal de Elecciones serán nombrados por la Junta Directiva por un plazo de dos años y podrán ser reelectos. Dicho nombramiento se hará a partir del mes de julio, de su seno elegirán a un presidente y a un secretario. Sus decisiones se adoptarán por simple mayoría, los suplentes sustituirán a los titulares en ausencia de éstos. La renovación de los puestos del Tribunal se hará por mitades.
+Artículo 9º—Los colegiados del Tribunal de Elecciones serán nombrados por la Junta Directiva por un plazo de dos años y podrán ser reelectos. Dicho nombramiento se hará a partir del mes de julio. De su seno elegirán a un Presidente, a un Secretario y tres vocales en orden consecutivo que tendrán la responsabilidad de suplir al Presidente y al Secretario en sus ausencias temporales, por su orden de nombramiento. Sus decisiones se adoptarán por simple mayoría. Los suplentes sustituirán a los propietarios en sus ausencias definitivas, también de conformidad con su orden de nombramiento. La renovación de los puestos del Tribunal se hará por mitades.
+No podrán ser colegiados del Tribunal de Elecciones quienes desempeñen algún otro cargo de nombramiento de Asamblea General del Colegio o quienes estén nombrados en algún puesto administrativo dentro del Colegio.
+Tampoco podrán ser colegiados del Tribunal de Elecciones quienes tengan parentesco hasta el tercer grado por consanguinidad o afinidad con un colegiado de la Junta Directiva.
+(Así reformado mediante sesión N° 088-2009 del 22 de junio del 2012)

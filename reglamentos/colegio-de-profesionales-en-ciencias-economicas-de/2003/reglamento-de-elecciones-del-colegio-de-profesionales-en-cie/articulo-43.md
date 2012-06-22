@@ -1,1 +1,2 @@
-Artículo 43.—Cerrado el período de elección, cada junta receptora procederá a anotar en el acta de la mesa, el número de papeletas recibidas, el número de electores que votaron y el número de papeletas que no fueron utilizadas. La junta receptora entregará todo este material al Tribunal de Elecciones para el escrutinio final.
+Artículo 43.—La elección se hará por simple mayoría, en forma independiente, para cada puesto de elección sin perjuicio de que los candidatos se hayan presentado, en forma individual o grupal.
+(Así reformado mediante sesión N° 088-2012 del 22 de junio del 2012)

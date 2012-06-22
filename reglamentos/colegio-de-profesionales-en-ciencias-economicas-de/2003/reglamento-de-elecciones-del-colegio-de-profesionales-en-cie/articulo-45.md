@@ -1,1 +1,2 @@
-Artículo 45.—La elección de entre los candidatos inscritos se hará en forma individual, para cada puesto que se encuentre en disputa, independientemente de que los candidatos se hayan presentado al Colegio de Electores, en forma individual o por medio de papeleta.
+Artículo 45.—Queda facultado el Tribunal de Elecciones para poner en conocimiento de la Fiscalía del Colegio, cualquier irregularidad que se presente durante el proceso electoral por parte de algún colegiado.
+(Así reformado mediante sesión N° 088-2012 del 22 de junio del 2012)

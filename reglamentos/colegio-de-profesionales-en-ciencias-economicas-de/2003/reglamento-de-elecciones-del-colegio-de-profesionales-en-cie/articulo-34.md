@@ -1,1 +1,2 @@
-Artículo 34.—La recepción de los votos será initerrumpida, se iniciará y se concluirá en la hora señalada en la convocatoria.
+Artículo 34.—Cada junta receptora por medio de los Delegados del Tribunal recibirá del Tribunal de Elecciones la papelería necesaria para el proceso electoral con la antelación suficiente que garantice la apertura de la mesa conforme hora y fecha establecida en la convocatoria. Deberá llevar un acta electoral, donde se deberán consignar la apertura, votos públicos, entrega de papeletas adicionales, demás incidencias y el cierre de la votación.
+(Así reformado mediante sesión N° 088-2012 del 22 de junio del 2012)

@@ -1,1 +1,2 @@
-Artículo 44.—La elección se hará por simple mayoría, en forma independiente, para cada puesto de elección sin perjuicio de que sea papeleta o en forma individual.
+Artículo 44.—Si se produjere empate, el Tribunal de Elecciones someterá a la Asamblea General los nombres de los candidatos, que en el respectivo puesto hubieren obtenido mayor cantidad de votos por igual, para que dicha Asamblea, mediante votación pública debidamente supervisada por el propio Tribunal, proceda a hacer la elección definitiva. Si persistiere el empate, el Tribunal de Elecciones, frente a la Asamblea General , hará la escogencia, mediante el lanzamiento de una moneda.
+(Así reformado mediante sesión N° 088-2012 del 22 de junio del 2012)
