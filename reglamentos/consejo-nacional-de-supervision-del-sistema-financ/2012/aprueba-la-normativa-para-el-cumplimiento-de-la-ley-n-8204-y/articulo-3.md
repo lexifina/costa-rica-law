@@ -1,0 +1,1 @@
+3. Las normativas antes aprobadas, para efectos de los regulados por la Superintendencia de Pensiones rigen, a partir de la publicación en el Diario Oficial La Gaceta, de los acuerdos antes adoptados.
