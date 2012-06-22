@@ -1,0 +1,2 @@
+Artículo 17.—Análisis de las alertas generadas de los programas informáticos. El sujeto fiscalizado debe realizar una revisión de todas las alertas, con el objetivo de identificar las transacciones inusuales a las que debe dárseles seguimiento.
+Para aquellas transacciones inusuales que se descarten, se debe dejar evidencia del motivo por el cual se descartó, la documentación de respaldo y el responsable.

@@ -1,0 +1,18 @@
+Artículo 30.—Funciones de la Oficialía de Cumplimiento. Las funciones de la Oficialía de Cumplimiento son al menos las siguientes:
+a) Ser enlace directo entre el sujeto fiscalizado y el órgano supervisor correspondiente, así como, con cualquier otra autoridad competente.
+b) Elaborar y actualizar anualmente el manual de cumplimiento.
+c) Elaborar un Plan Anual de Trabajo que debe ser aprobado por la junta directiva u órgano colegiado equivalente, basado en las políticas, programas, normas y procedimientos internos.
+d) Vigilar porque existan registros adecuados de los clientes del sujeto fiscalizado, de acuerdo con lo establecido en los Capítulos II y III de esta normativa.
+e) Realizar un monitoreo constante de las operaciones de los clientes, tendiente a identificar transacciones sin fundamento económico o legal evidente, o que se salen de los patrones habituales establecidos por el sujeto fiscalizado, con el fin de prevenir que se efectúen transacciones con fines ilícitos.
+f) Remitir, al menos cada tres meses, un informe al Comité de Cumplimiento sobre las operaciones inusuales analizadas y a partir de ahí indicar cuáles casos fueron objeto de reporte, seguimiento o fueron desestimados, de tal forma que para cada acción se indique la justificación respectiva.
+g) Preparar y comunicar, con absoluta independencia, al órgano supervisor competente las operaciones sospechosas.
+h) Implementar controles y estadísticas sobre las operaciones tanto únicas como múltiples.
+i) La Oficialía de Cumplimiento debe asegurarse de implementar los controles necesarios para que los datos e información relacionada con los reportes e informes requeridos sean precisos, exactos y presentados en los plazos establecidos, conforme lo indicado por esta normativa, la Superintendencia (incluidos los solicitados en las visitas de inspección) y otras autoridades competentes.
+j) Coordinar las labores de capacitación en materia de legitimación de capitales y financiamiento al terrorismo, así como su evaluación, tanto para los funcionarios regulares como para los de nuevo ingreso.
+k) Mantenerse en un constante proceso de actualización en materia de legitimación de capitales, financiamiento al terrorismo y temas relacionados, tanto en el ámbito nacional como internacional.
+l) Es responsabilidad del Oficial de Cumplimiento, o en su ausencia del Oficial adjunto de Cumplimiento, validar y enviar los reportes respecto a transacciones en efectivo únicas y múltiples y transferencias desde o hacia el exterior.
+m) Emitir recomendaciones relativas a la elaboración y ejecución de políticas para prevenir riesgos relacionados con la legitimación de capitales y el financiamiento al terrorismo.
+n) Presentar a la Gerencia General y al Comité de Cumplimiento, al menos cada tres meses, un informe con el detalle de los clientes que han sufrido movimientos ascendentes o descendentes en su clasificación de riesgo, así como, un resumen de las operaciones sospechosas reportadas en dicho período.
+o) Presentar a la Gerencia General y a la Junta Directiva u órgano colegiado equivalente, al menos cada seis meses, un informe en relación con el desempeño de labores relacionadas con la prevención de la legitimación de capitales, el financiamiento al terrorismo y la normativa vigente, así como un resumen de las operaciones sospechosas reportadas al ente regulador durante ese período.
+p) Convocar al Comité de Cumplimiento a reunión ordinaria, al menos cada tres meses, para exponer los diferentes temas relacionados con el desempeño de labores, grado de cumplimiento del sujeto fiscalizado respecto a la normativa y solicitudes concretas de la Superintendencia.
+q) Convocar a reuniones extraordinarias al Comité de Cumplimiento en caso de ser necesario.

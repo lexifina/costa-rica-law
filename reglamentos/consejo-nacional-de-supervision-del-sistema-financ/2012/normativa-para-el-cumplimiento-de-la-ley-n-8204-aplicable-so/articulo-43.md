@@ -1,0 +1,5 @@
+CAPÍTULO XIV
+Disposiciones finales
+Artículo 43.—Ingreso a Grupos o Conglomerados Financieros. Las entidades que se incorporan a un grupo o conglomerado financiero autorizado cuentan con un plazo de tres meses para que cumplan con las disposiciones establecidas en la presente Normativa.
+Lo anterior, únicamente en lo que concierne a la aplicación de la política Conozca a su cliente respecto de aquellos clientes cuya vinculación con la entidad se realizó con anterioridad a la incorporación al grupo o conglomerado financiero, siempre y cuando la entidad no se encontrara sujeta al cumplimiento de lo establecido en la Ley Nº 8204, previo a su incorporación.
+El plazo de tres meses puede ser prorrogado hasta por tres meses adicionales, por una única vez, para lo cual el representante legal del grupo o conglomerado financiero debe solicitar a la Superintendencia correspondiente la autorización, debidamente fundamentada y adjuntar un cronograma de actividades, con responsables y plazos para su cumplimiento. Dicha solicitud debe presentarse por escrito al menos diez días hábiles previos a la fecha que finalice el plazo.
