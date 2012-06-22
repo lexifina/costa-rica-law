@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 21.—Comunicación de determinaciones de errores. Las Superintendencias informarán de los errores y omisiones relevantes encontrados en los informes de auditoría, al Colegio de Contadores Públicos de Costa Rica o a su homólogo en un país extranjero, para los efectos que correspondan. En los casos en que resulte aplicable según el ordenamiento jurídico vigente, la Superintendencia remitirá al Ministerio Público un informe.

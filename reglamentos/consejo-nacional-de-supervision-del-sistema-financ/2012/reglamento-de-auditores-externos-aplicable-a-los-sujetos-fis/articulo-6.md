@@ -1,0 +1,4 @@
+Artículo 6º—Requisitos para los auditores extranjeros. En el caso de auditorías de entidades que formen parte de grupos o conglomerados financieros domiciliadas en el exterior, la firma auditora del país donde se encuentre domiciliada la entidad deberá cumplir con los siguientes, requisitos:
+a) Deberá estar inscrita y activa en el registro profesional del organismo homólogo al Colegio de Contadores Públicos de Costa Rica, así como en el registro del regulador público correspondiente, en caso de que estos registros existan.
+b) Deberá contar con la representación de una firma extranjera que, a su vez, tenga representación en Costa Rica.
+En el caso de emisores de valores domiciliados en el exterior, podrán presentar sus estados financieros auditados por una firma del país de su domicilio, que cumpla el requisito indicado en el inciso a) anterior.

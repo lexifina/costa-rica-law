@@ -1,0 +1,7 @@
+Artículo 5º—Requisitos para los miembros del equipo de auditoría y la firma de auditoría externa o el auditor externo independiente.
+Los miembros del equipo de auditoría y la firma de auditoría externa o el auditor externo independiente deberán cumplir los siguientes requisitos:
+a) No haber sido declarados insolventes o en quiebra durante los cuatro años anteriores al período fiscal correspondiente.
+b) No haber sido condenados por delitos contra la fe pública, la propiedad, o la buena fe en los negocios, durante los últimos diez años.
+c) La firma de auditoría externa, el socio y el encargado del equipo o los auditores externos independientes deberán encontrarse inscritos y activos en el registro profesional del Colegio de Contadores Públicos de Costa Rica.
+d) El socio, auditor externo independiente y los encargados de las auditorias deberán contar con una experiencia mínima de cinco años en labores de auditorías del sector financiero. En el caso de las entidades emisoras no financieras sujetas a auditorías, dicha experiencia podrá ser en una actividad igual o de similar naturaleza.
+Los documentos que respalden la verificación del cumplimiento de los requisitos de la firma de auditoría externa o del auditor externo independiente, y los miembros del equipo de auditoría deberán estar disponibles para efectos de supervisión.
