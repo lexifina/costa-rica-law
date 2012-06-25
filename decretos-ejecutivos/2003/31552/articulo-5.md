@@ -1,1 +1,0 @@
-Artículo 5º—La Comisión podrá invitar y convocar a las personas que por su trayectoria y relevancia considere que podrán aportar su experiencia y conocimientos, con el fin de dar cumplimento a sus fines y funciones.
