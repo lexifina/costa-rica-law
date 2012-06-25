@@ -1,6 +1,7 @@
 ANEXO VI
 Requisitos de información toxicológica para evaluación de parte
-del Ministerio de Ambiente, Energía y Telecomunicaciones
+del Ministerio de Ambiente y Energía (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Adicionados según oficio DIGECA-707-2008
 Presentar la siguiente información técnica:
 REQUISITOS ECOTOXICOLÓGICOS
