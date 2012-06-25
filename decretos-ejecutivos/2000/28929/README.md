@@ -13,3 +13,4 @@ Interés Público 5° Conferencia Latinoamericana Controles Seguridad yAuditorí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-28 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

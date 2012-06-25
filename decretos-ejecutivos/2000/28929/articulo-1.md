@@ -1,7 +1,7 @@
-DECRETOS
-N° 28929-MICIT
+N° 28929-MICITT(*)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Con fundamento en lo dispuesto en los artículos 140, incisos 3) y 4) de la Constitución Política , 27 y 28 de la Ley N ° 7169, Ley de Promoción del Desarrollo Científico y Tecnológico.
 Considerando:
 1°—Que se realizará en nuestro país la 5a Conferencia Latinoamericana sobre Controles, Seguridad y Auditoría de Sistemas "Latín CACS 2000", dicha actividad es organizada por la Asociación Costarricense de Auditores en Informática (ACAI) y por la Information Systems Audit and Control Association (ISACA).
