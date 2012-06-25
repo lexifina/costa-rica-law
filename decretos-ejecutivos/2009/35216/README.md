@@ -14,3 +14,4 @@ Oficialización del Programa de Acción Nacional de Lucha Contra la Degradación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-23 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
