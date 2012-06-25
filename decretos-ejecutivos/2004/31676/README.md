@@ -14,3 +14,4 @@ Crea Oficina Costarricense de Implementación Conjunta como una dependencia del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-17 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

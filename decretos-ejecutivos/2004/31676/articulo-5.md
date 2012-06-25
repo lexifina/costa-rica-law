@@ -1,11 +1,11 @@
-Artículo 5º—El Director de la OCIC será nombrado por el Ministro (a) del Ambiente y Energía y la Dirección a su cargo tendrá las siguientes funciones:
-a) Coordinar y supervisar las labores del personal de la OCIC. El Director actuará como superior jerárquico del personal que el Ministerio del
-Ambiente y Energía le asigne a la oficina.
+Artículo 5º—El Director de la OCIC será nombrado por el Ministro (a) de Ambiente y Energía(*) y la Dirección a su cargo tendrá las siguientes funciones:
+a) Coordinar y supervisar las labores del personal de la OCIC. El Director actuará como superior jerárquico del personal que el Ministerio de Ambiente y Energía(*) le asigne a la oficina.
 b) Proponer al Ministro (a) las políticas y directrices generales de funcionamiento de la OCIC.
 c) Dar seguimiento a los nexos y relaciones de comunicación, coordinación y acción que se establezcan con las diferentes instituciones y organizaciones nacionales e internacionales que realicen proyectos de mitigación de gases de efecto invernadero.
 d) Supervisar la implementación y ejecución de las políticas y criterios nacionales para la promoción, elaboración, evaluación, aprobación y monitoreo de proyectos de mitigación de emisiones de gases de efecto invernadero.
 e) Supervisar la implementación y ejecución de los objetivos y metas nacionales para los sectores de recursos naturales, energía, transporte y cambio climático en materia de proyectos de mitigación de emisiones de gases de efecto invernadero.
 f) Negociar ante las autoridades internacionales correspondientes, la aprobación y financiamiento marginal de los proyectos de mitigación de emisiones de gases de efecto invernadero a través de los certificados de reducción de emisiones.
 g) Proponer al Ministro (a) los criterios nacionales para la promoción, elaboración, evaluación, aprobación y monitoreo de proyectos de mitigación de emisiones de gases de efecto invernadero.
-h) Recomendar la aprobación ante el Ministro (a) del Ambiente y Energía, de acuerdo a las recomendaciones de la Unidad Técnica Administrativa de la OCIC, de los proyectos de emisiones de gases de efecto invernadero que deban someterse a la posterior aprobación de entidades gubernamentales de otros países.
-i) El Director de la OCIC debe ser funcionario del Ministerio del Ambiente y Energía y formar parte de su planilla.
+h) Recomendar la aprobación ante el Ministro (a) de Ambiente y Energía(*), de acuerdo a las recomendaciones de la Unidad Técnica Administrativa de la OCIC, de los proyectos de emisiones de gases de efecto invernadero que deban someterse a la posterior aprobación de entidades gubernamentales de otros países.
+i) El Director de la OCIC debe ser funcionario del Ministerio de Ambiente y Energía(*) y formar parte de su planilla.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
