@@ -14,3 +14,4 @@ Declara de interés nacional 5º Congreso Internacional en Informática y Comput
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-31 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

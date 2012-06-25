@@ -1,6 +1,7 @@
-Nº 30470-MICIT
+Nº 30470-MICITT(*)
 El PRESIDENTE DE LA REPÚBLICA,
-EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+EL MINISTRO DE CIENCIA TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las atribuciones que le confiere el artículo 140 de la Constitución Política en sus incisos 3) y 18), y con fundamento en la "Ley de Promoción del Desarrollo Científico y Tecnológico" Nº 7169 del 26 de junio de 1990.
 Considerando:
 1º—Que es importante para el país conocer que servicios en tecnologías de información es una de las áreas de mayor potencial para el futuro cercano del país, como una forma de participar en el mercado internacional.
