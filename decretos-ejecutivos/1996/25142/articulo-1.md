@@ -1,47 +1,14 @@
 Nº 25142-MINAE
 EL PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DEL AMBIENTE Y ENERGIA,
-En uso de las facultades que les confiere el artículo 140, incisos 3)
-y 18) de la Constitución Política,
+Y EL MINISTRO DE AMBIENTE Y ENERGIA,(*)
+En uso de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política,
 Considerando:
-1º.- Que en "La Gaceta" Nº 205 del 30 de octubre de 1995, fue
-publicado el decreto ejecutivo Nº 24694-MIRENEM del 28 de setiembre de
-1995, que reforma el artículo 95 del decreto ejecutivo Nº 18557-MIRENEM
-del 7 de octubre de 1988 (Reglamento Autónomo de Trabajo del Ministerio
-de Recursos Naturales, Energía y Minas - Actual Ministerio del Ambiente y
-Energía).
-2º.- Que de conformidad con lo dispuesto por el artículo 13, inciso i)
-del estatuto del Servicio Civil y dictamen Nº 316-85 del 4 de diciembre
-de 1985 de la Procuraduría General de la República, los Reglamentos
-Autónomos de "Trabajo" que promulgue el Poder Ejecutivo unilateralmente
-por vía de decreto ejecutivo, requieren previamente del visto bueno de la
-Dirección General de Servicio Civil, afectando la eficacia del Reglamento
-la omisión de dicho trámite.
-3º.- Que mediante oficio Nº AJ-109-96 de la Asesoría Jurídica de la
-Dirección General de Servicio Civil, se otorgó el visto bueno a la
-modificación del decreto ejecutivo Nº 18557-MIRENEM del 7 de octubre de
-1988, que reforma el artículo 95 del mismo.
-4º.- Que de acuerdo con los artículos 145 y 188 de la Ley General de
-la Administración Pública, la omisión de requisitos de eficacia, tales
-como una aprobación previa, podrán subsanarse después del acto,
-acompañados por una expresa manifestación de conformidad con todos los
-términos, por lo cual se hace necesario la publicación de la modificación
-del Reglamento Autónomo de Trabajo del actual Ministerio de Ambiente y
-Energía.
-5º.- Que a efecto de cumplir con los requisitos de la Dirección
-General de Servicio Civil se procede a sanear la omisión referida
-mediante la publicación nuevamente del decreto Nº 24694-MIRENEM Por
-tanto,
+1º.- Que en "La Gaceta" Nº 205 del 30 de octubre de 1995, fue publicado el decreto ejecutivo Nº 24694-MIRENEM del 28 de setiembre de 1995, que reforma el artículo 95 del decreto ejecutivo Nº 18557-MIRENEM del 7 de octubre de 1988 (Reglamento Autónomo de Trabajo del Ministerio de Recursos Naturales, Energía y Minas - Actual Ministerio de Ambiente y Energía(*)).
+2º.- Que de conformidad con lo dispuesto por el artículo 13, inciso i) del estatuto del Servicio Civil y dictamen Nº 316-85 del 4 de diciembre de 1985 de la Procuraduría General de la República, los Reglamentos Autónomos de "Trabajo" que promulgue el Poder Ejecutivo unilateralmente por vía de decreto ejecutivo, requieren previamente del visto bueno de la Dirección General de Servicio Civil, afectando la eficacia del Reglamento la omisión de dicho trámite.
+3º.- Que mediante oficio Nº AJ-109-96 de la Asesoría Jurídica de la Dirección General de Servicio Civil, se otorgó el visto bueno a la modificación del decreto ejecutivo Nº 18557-MIRENEM del 7 de octubre de 1988, que reforma el artículo 95 del mismo.
+4º.- Que de acuerdo con los artículos 145 y 188 de la Ley General de la Administración Pública, la omisión de requisitos de eficacia, tales como una aprobación previa, podrán subsanarse después del acto, acompañados por una expresa manifestación de conformidad con todos los términos, por lo cual se hace necesario la publicación de la modificación del Reglamento Autónomo de Trabajo del actual Ministerio de Ambiente y Energía.
+5º.- Que a efecto de cumplir con los requisitos de la Dirección General de Servicio Civil se procede a sanear la omisión referida mediante la publicación nuevamente del decreto Nº 24694-MIRENEM Por tanto,
 Decretan:
-Artículo 1º.- Refórmese el artículo 95 del decreto ejecutivo Nº
-18557-MIRENEM (Reglamento Autónomo de Trabajo del Ministerio de Recursos
-Naturales, Energía y Minas), publicado en "La Gaceta" Nº 220 del 18 de
-noviembre de 1988, para que se le agregue un párrafo segundo que indicará
-lo siguiente:
-"También se podrá conceder licencias con goce de salario, a los
-servidores regulares que realicen actividades de capacitación dentro
-y fuera del país, financiadas por entidades del sector privado que se
-encuentren efectuando proyectos de inversión en el campo de los
-recursos naturales, energía y minas, siempre y cuando no se cuente
-con suficiente experiencia en el ámbito nacional; lo anterior deberá
-tener aprobación del Sr. Ministro."
+Artículo 1º.- Refórmese el artículo 95 del decreto ejecutivo Nº 18557-MIRENEM (Reglamento Autónomo de Trabajo del Ministerio de Recursos Naturales, Energía y Minas), publicado en "La Gaceta" Nº 220 del 18 de noviembre de 1988, para que se le agregue un párrafo segundo que indicará lo siguiente:
+"También se podrá conceder licencias con goce de salario, a los servidores regulares que realicen actividades de capacitación dentro y fuera del país, financiadas por entidades del sector privado que se encuentren efectuando proyectos de inversión en el campo de los recursos naturales, energía y minas, siempre y cuando no se cuente con suficiente experiencia en el ámbito nacional; lo anterior deberá tener aprobación del Sr. Ministro."
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012).

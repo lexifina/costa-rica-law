@@ -14,3 +14,4 @@ Reforma Reglamento Autónomo De Trabajo del MIRENEM
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-27 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
