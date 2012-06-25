@@ -14,3 +14,4 @@ Declara de Interés Nacional La Misión CARTA- 2003 en Costa Rica.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-27 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
