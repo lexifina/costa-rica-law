@@ -13,3 +13,4 @@ Normas Reguladoras Básicas del Proceso Educativo Colegios Científicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-27 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
