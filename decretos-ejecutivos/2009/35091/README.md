@@ -14,3 +14,4 @@ Reglamento de Biocombustibles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-17 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
