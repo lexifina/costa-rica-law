@@ -1,7 +1,8 @@
-Nº 28036-MINAE-MICIT
+Nº 28036-MINAE-MICITT(*)
 EL PRESIDENTE DE LA REPUBLICA,
 Y LOS MINISTROS DEL AMBIENTE Y ENERGIA
-Y DE CIENCIA Y TECNOLOGÍA,
+Y DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Con fundamento en lo dispuesto en el artículos 140, inciso 18 de la Constitución Política, 27 y 28 de la Ley No 6227 de 2 de mayo de 1978, 2 y 4 incisos a) y f) de la Ley No 6038, Ley Orgánica del Colegio Federado de Químicos y de Ingenieros Químicos de Costa Rica,
 Considerando:
 1º—Que la Química constituye una ciencia fundamental para el desarrollo del hombre en todos sus ámbitos, y su aplicación correcta es fundamental para la conservación del ambiente y el aprovechamiento de los recursos humanos y materiales del país.

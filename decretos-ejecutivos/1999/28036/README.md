@@ -14,3 +14,4 @@ Declara 1999 Año Internacional de la QuímicaDe Interés Público Actividades 5
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-01 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
