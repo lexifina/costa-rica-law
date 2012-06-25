@@ -14,3 +14,4 @@ Incluye el 1° de agosto "Día Nacional de Ciencia y Tecnología" en el calendar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-07-31 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
