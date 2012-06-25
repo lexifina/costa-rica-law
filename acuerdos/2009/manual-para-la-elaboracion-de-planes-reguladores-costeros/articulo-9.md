@@ -5,7 +5,8 @@
 9.1.3. La información financiera de la sección 8 de este documento se debe presentar impresa y en formato digital (Excel o similar) y debe estar firmado por un profesional responsable incorporado al Colegio de Profesionales en Ciencias Económicas de Costa Rica.
 9.1.4. Propuesta de Zonificación con mapa (lámina) impresa a color y en forma digital, ambas a escala: 1:2,000.
 9.1.5. Licencia Ambiental emitida por SETENA, según Decreto Ejecutivo No.32967-MINAE, publicado en La Gaceta N0.85 del 04 de mayo del 2006, que es Manual de Instrumentos Técnicos para el Proceso de Evaluación de Impacto Ambiental (Manual EIA).
-9.1.6. Certificación de la respectiva Área de Conservación (SINAC-MINAET) sobre la delimitación de las áreas de Patrimonio Natural del Estado que se han identificado y mapeado para efectos de la propuesta de plan regulador.
+9.1.6. Certificación de la respectiva Área de Conservación (SINAC-MINAE(*)) sobre la delimitación de las áreas de Patrimonio Natural del Estado que se han identificado y mapeado para efectos de la propuesta de plan regulador.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 9.2. La documentación será remitida por la Municipalidad respectiva, por acuerdo del Concejo Municipal, tanto al ICT como al INVU para el proceso de revisión.
 9.3. Los documentos serán entregados, acompañados de una carta de entrega formal. Como primer paso de revisión se verificará que los documentos hayan sido presentados cumpliendo con lo estipulado en este manual. En caso de no ser así, la documentación será devuelta.
 9.4. Aunque la revisión es integral por parte de ambas instituciones, para efectos prácticos el trabajo de revisión se podrá dividir de la siguiente manera:

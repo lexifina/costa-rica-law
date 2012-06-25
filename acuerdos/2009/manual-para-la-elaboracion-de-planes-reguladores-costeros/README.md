@@ -14,3 +14,4 @@ Manual para la Elaboración de Planes Reguladores Costeros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-10 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
