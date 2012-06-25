@@ -14,3 +14,4 @@ Asignación para la administración de un bien inmueble al Ministerio de Ambient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-03 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
