@@ -8,28 +8,28 @@ MISIÓN DEL ARCHIVO CENTRAL
 “Velar por el adecuado desarrollo de la actividad archivística de la institución, de tal manera que permita a la administración activa controlar, almacenar y recuperar de modo adecuado la información producida o recibida en la Institución”.
 INTRODUCCIÓN
 Para cumplir con el objetivo general y misión planteados anteriormente; se recomienda que la ubicación organizacional actual, del Archivo Central permita que se encuentre adscrito al Despacho del Alcalde como un Órgano de Asesoría y Coordinación con amplia independencia para la custodia y funcionamiento interno, esto según las siguientes recomendaciones brindadas:
- Constitución Política de la República de Costa Rica: que señala en su artículo 89: “Entre los fines culturales de la República están: proteger las bellezas naturales, conservar y desarrollar el patrimonio histórico y artístico de la Nación y apoyar la iniciativa privada para el progreso científico y artístico.”
- Ley del Sistema Nacional de Archivos N° 7202: que establece en su artículo 3, “Todos los documentos con valor científico cultural son bienes inmuebles y forman parte del patrimonio científico cultural de Costa Rica...”
- Código Municipal, Ley N° 7794: que establece en su artículo 17 inciso a, que será obligación del Alcalde; “...Ejercer las funciones inherentes a la condición de administrador general y jefe de las dependencias municipales, vigilando la organización, el funcionamiento, la coordinación y el fiel cumplimiento de los acuerdos municipales, las leyes y los reglamentos en general...” (el resaltado no es del original).
- Ley General de Control Interno N° 8292: que en su Cap. III, artículo 16, indica “En cuanto a la información y comunicación, serán deberes del jerarca y de los titulares subordinados, como responsables del buen funcionamiento del sistema de información...”, inciso c: “Establecer las políticas, los procedimientos y recursos para disponer de un archivo institucional, de conformidad con lo señalado en el ordenamiento jurídico y técnico”.
- “Propuesta sobre la Estructura Organizacional Área Administrativa Financiera de la Administración Central” de febrero de 1999, del Ministerio de Planificación (MIDEPLAN); la cual en su punto L, “...recomienda que los Archivos Centrales tengan un rango departamental dentro de la estructura orgánica de la Institución.”
- Asimismo en la “Reforma Institucional” presentada el 27 de setiembre del 2001 por el MIDEPLAN, en donde establece que entre las bases legales que fundamentan la existencia de los archivos y sus fines, se establece la necesidad “garantizar la custodia de los documentos del Estado, formulando políticas y estableciendo prácticas administrativas racionales y sanas, con el fin de facilitar al ciudadano el acceso a la información, sustentar la toma de decisiones y conservar la memoria institucional del aparato del Estado”.
- Defensoría de los Habitantes: que señala en su Informe final 0554-24-98-IO-RNO que hace hincapié en la necesidad de “...establecer una política nacional a cumplir por parte de todas las instituciones públicas, mediante el establecimiento de los correspondientes archivos (central y de gestión) necesarios...”.
+Ø Constitución Política de la República de Costa Rica: que señala en su artículo 89: “Entre los fines culturales de la República están: proteger las bellezas naturales, conservar y desarrollar el patrimonio histórico y artístico de la Nación y apoyar la iniciativa privada para el progreso científico y artístico.”
+Ø Ley del Sistema Nacional de Archivos N° 7202: que establece en su artículo 3, “Todos los documentos con valor científico cultural son bienes inmuebles y forman parte del patrimonio científico cultural de Costa Rica...”
+Ø Código Municipal, Ley N° 7794: que establece en su artículo 17 inciso a, que será obligación del Alcalde; “...Ejercer las funciones inherentes a la condición de administrador general y jefe de las dependencias municipales, vigilando la organización, el funcionamiento, la coordinación y el fiel cumplimiento de los acuerdos municipales, las leyes y los reglamentos en general...” (el resaltado no es del original).
+Ø Ley General de Control Interno N° 8292: que en su Cap. III, artículo 16, indica “En cuanto a la información y comunicación, serán deberes del jerarca y de los titulares subordinados, como responsables del buen funcionamiento del sistema de información...”, inciso c: “Establecer las políticas, los procedimientos y recursos para disponer de un archivo institucional, de conformidad con lo señalado en el ordenamiento jurídico y técnico”.
+Ø “Propuesta sobre la Estructura Organizacional Área Administrativa Financiera de la Administración Central” de febrero de 1999, del Ministerio de Planificación (MIDEPLAN); la cual en su punto L, “...recomienda que los Archivos Centrales tengan un rango departamental dentro de la estructura orgánica de la Institución.”
+Ø Asimismo en la “Reforma Institucional” presentada el 27 de setiembre del 2001 por el MIDEPLAN, en donde establece que entre las bases legales que fundamentan la existencia de los archivos y sus fines, se establece la necesidad “garantizar la custodia de los documentos del Estado, formulando políticas y estableciendo prácticas administrativas racionales y sanas, con el fin de facilitar al ciudadano el acceso a la información, sustentar la toma de decisiones y conservar la memoria institucional del aparato del Estado”.
+Ø Defensoría de los Habitantes: que señala en su Informe final 0554-24-98-IO-RNO que hace hincapié en la necesidad de “...establecer una política nacional a cumplir por parte de todas las instituciones públicas, mediante el establecimiento de los correspondientes archivos (central y de gestión) necesarios...”.
 Para lograr estos fines se definen los siguientes procedimientos:
 I.—Remisión de documentos (transferencia documental). Consiste en la transferencia de los documentos que ya no son de uso cotidiano en los archivos de gestión, pero que por su importancia deben conservarse para ser facilitados cuando así se requiera. Este proceso permite además que las oficinas dispongan de un mayor espacio físico para custodiar la documentación que se produce constantemente y que es de uso inmediato.
 La transferencia debe realizarse mediante un calendario previamente establecido que deberá respetarse, para poder efectuarla se llenará un instrumento descriptivo denominado “Lista de Remisión de Documentos”, la cual indica claramente cual documentación se está enviando al archivo. En cada departamento deberá designarse un funcionario para llevar a cabo esta labor, por su parte en el Archivo Central uno de los funcionarios la recibirá y corroborará, para ser aceptada. Tanto el encargado del Departamento como el encargado del Archivo deberán firmarla una vez finalizado el proceso.
 La “Lista de Remisión de Documentos” tendrá las siguientes partes:
- Encabezado donde se consignará lo siguiente; Dirección (donde se anota la Dirección a la que se pertenece, en el caso de estar adscrito al Alcalde o al Concejo se indicará aquí), Departamento, Sección y Signatura del Remitente.
- Número de identificación. (Anotar un número en consecutivo a partir del 1. Que corresponde a cada unidad documental o carpeta que se va incluyendo en la Lista de Remisión).
- Tipo Documental: es la forma en que se encuentra dispuesta la información en el soporte, es decir, el nombre con el que se conoce al documento. (Correspondencia, Actas, planillas, presupuestos, contratos, etc.).
- Contenido: se redacta un breve resumen de la información de cada tipo documental. Se debe iniciar siempre con el nombre del tipo documental (acta, informe, contrato, etc.).
- Fechas extremas: anotar la fecha más antigua y la más reciente de cada documento.
- Cantidad: se anotará la cantidad de documentos que se están transfiriendo, en metros lineales o en número de volumen (ampos, cajas, fólderes, entre otros).
- Valor científico-cultural: esto es determinado por las “Tablas de Plazos de Conservación Documental”, por lo tanto si el documento tiene valor permanente se anota “sí” y si no tiene se anota “no”.
- Eliminación: se refiere a la fecha en que debe eliminarse, el documento de acuerdo con la vigencia administrativa. Esta casilla la llena el encargado del Archivo de Gestión después de revisar las Tablas de Plazos de Conservación Documental.
- Entregado por: el nombre de la persona encargada del archivo de gestión que envía la documentación.
- Recibido por: el funcionario responsable del Archivo Central.
- Fecha: en que se envió la documentación.
+Ø Encabezado donde se consignará lo siguiente; Dirección (donde se anota la Dirección a la que se pertenece, en el caso de estar adscrito al Alcalde o al Concejo se indicará aquí), Departamento, Sección y Signatura del Remitente.
+Ø Número de identificación. (Anotar un número en consecutivo a partir del 1. Que corresponde a cada unidad documental o carpeta que se va incluyendo en la Lista de Remisión).
+Ø Tipo Documental: es la forma en que se encuentra dispuesta la información en el soporte, es decir, el nombre con el que se conoce al documento. (Correspondencia, Actas, planillas, presupuestos, contratos, etc.).
+Ø Contenido: se redacta un breve resumen de la información de cada tipo documental. Se debe iniciar siempre con el nombre del tipo documental (acta, informe, contrato, etc.).
+Ø Fechas extremas: anotar la fecha más antigua y la más reciente de cada documento.
+Ø Cantidad: se anotará la cantidad de documentos que se están transfiriendo, en metros lineales o en número de volumen (ampos, cajas, fólderes, entre otros).
+Ø Valor científico-cultural: esto es determinado por las “Tablas de Plazos de Conservación Documental”, por lo tanto si el documento tiene valor permanente se anota “sí” y si no tiene se anota “no”.
+Ø Eliminación: se refiere a la fecha en que debe eliminarse, el documento de acuerdo con la vigencia administrativa. Esta casilla la llena el encargado del Archivo de Gestión después de revisar las Tablas de Plazos de Conservación Documental.
+Ø Entregado por: el nombre de la persona encargada del archivo de gestión que envía la documentación.
+Ø Recibido por: el funcionario responsable del Archivo Central.
+Ø Fecha: en que se envió la documentación.
 Está Lista de Remisión deberá hacerse por triplicado, original y dos copias. Asimismo se debe sellar cada unidad documental o carpeta con el sello respectivo de la oficina productora. La ejecución de este proceso es responsabilidad inmediata de los jefes de departamento, secretarias, oficinistas o encargados de cada uno de los archivos de gestión, para llevar a cabo este proceso el Archivo proveerá lo siguiente:
 A. La lista de remisión de documentos.
 B. El calendario que especifica la fecha en que debe de llevarse a cabo la transferencia.
@@ -49,67 +49,67 @@ IV.—Ordenación documental. Después de la conformación de las series documen
 V.—Signatura (o numeración). Se procede a numerar en forma consecutiva cada una de las unidades archivables del 1 al infinito. Cada documento (fólder, ampo, legajo o volumen), debe ser identificado individualmente con un número o signatura la cual se escribe tanto en la hoja de inventario como en el documento en sí. Por ejemplo 1-2003; donde 1 es el número consecutivo e infinito y 2003, significa el año al que pertenece el expediente. También es vital foliar cada pieza documental que conforme una unidad, lo cual permite un conocimiento más completo del fondo de documentos, este procedimiento se debe realizar una vez que la documentación ha sufrido el proceso de selección documental, dentro del Archivo.
 VI.—Descripción documental. Es una actividad que permite la localización pronta y oportuna de la información contenida en los documentos, para facilitarla a los usuarios. Los instrumentos descriptivos serán confeccionados por los funcionarios del departamento, cada uno de ellos es una especie de mediador entre el archivista y los usuarios para brindar el servicio de consulta y préstamo de la documentación. Una vez que la documentación ha pasado por los procesos anteriores a este en su organización, se procede a realizar la descripción de la información que contienen los documentos remitidos al archivo. Cada “Hoja de inventario” contendrá la información referente solo a un departamento y un tipo documental especifico y se utilizarán las necesarias hasta concluir.
 Esta “Hoja de Inventario” proporciona datos como:
- Departamento: corresponde a la oficina de la cual procede la documentación que se está inventariando.
- Código: se refiere al código que se le asignó al departamento en el Cuadro de Clasificación.
- Tipo Documental: es la forma en que se encuentra dispuesta la información en el soporte, es decir, el nombre con que se conoce al documento. (Correspondencia, Actas, planillas, presupuestos, contratos, etc.).
- Fecha: en que se realizó el inventario.
- Código de Expediente: se refiere al número de consecutivo que se le asigna al documento y que permite su identificación.
- Cantidad: la anotará la cantidad en número de volumen o en metros lineales.
- Fechas extremas: son las fechas de la documentación, de la más antigua a la más reciente.
- Original o copia: se anotará si el documento es original o copia.
- Contenido: se describe el contenido de cada tipo documental.
- Valor científico-cultural: se anotará si el documento tiene valor administrativo o permanente y su período de vida del documento, o sea, el tiempo que se debe conservar en la Institución.
- Ubicación en estantería: codificación que se le asignó a la caja, en donde se guardarán los documentos y que a su vez se colocará en la estantería, y con ello se logra identificar la ubicación de la documentación.
+Ø Departamento: corresponde a la oficina de la cual procede la documentación que se está inventariando.
+Ø Código: se refiere al código que se le asignó al departamento en el Cuadro de Clasificación.
+Ø Tipo Documental: es la forma en que se encuentra dispuesta la información en el soporte, es decir, el nombre con que se conoce al documento. (Correspondencia, Actas, planillas, presupuestos, contratos, etc.).
+Ø Fecha: en que se realizó el inventario.
+Ø Código de Expediente: se refiere al número de consecutivo que se le asigna al documento y que permite su identificación.
+Ø Cantidad: la anotará la cantidad en número de volumen o en metros lineales.
+Ø Fechas extremas: son las fechas de la documentación, de la más antigua a la más reciente.
+Ø Original o copia: se anotará si el documento es original o copia.
+Ø Contenido: se describe el contenido de cada tipo documental.
+Ø Valor científico-cultural: se anotará si el documento tiene valor administrativo o permanente y su período de vida del documento, o sea, el tiempo que se debe conservar en la Institución.
+Ø Ubicación en estantería: codificación que se le asignó a la caja, en donde se guardarán los documentos y que a su vez se colocará en la estantería, y con ello se logra identificar la ubicación de la documentación.
 También el código debe aparecer en la caja de la estantería, con lo cual se establece una relación directa entre este instrumento y la instalación en estantería. Su presentación es la siguiente: E5-D1-A4-C3, donde las letras significan E= estantería, D= división, A= anaquel y C= caja. Asimismo se consignará en el exterior de la caja el departamento, el tipo documental y las fechas extremas de la documentación.
 VII.—Instalación en estantería. Una vez que los documentos han sido organizados correctamente, deben colocarse en cajas de cartón especiales libres de ácido y rotuladas por fuera, con etiquetas adhesivas, indicando su ubicación en la estantería, está ubicación debe coincidir con la anotada en el inventario. Asimismo toda la estantería debe estar rotulada correctamente, indicando en ellas: Número de estantería, división de la misma y número de anaquel.
 VIII.—Conservación. Pretende la conservación física de los documentos, eliminando de ellos todo material que cause daño, (grapas, clips, prensas metálicas y otros) parte de esta función se va realizando desde que ingresan los documentos al archivo, asimismo; cuando se deposita la archivalía ya organizada en cajas de cartón y se ubican en la estantería; hay que estar periódicamente realizando limpiezas por el polvo y la humedad que pueda dañarlos, lo anterior se hace en mayor proporción hasta tanto; se cuente con aire acondicionado o deshumificadores en el depósito.
 Esta conservación incluye también la limpieza del polvo en los documentos, estantería, ventanas, utilizando brochas o instrumentos que no dañen el papel. Asimismo se llevaría a cabo la reparación del papel realizando injertos de papel en aquellos documentos que así lo requieran (mediante instrucción especializada del Archivo Nacional). La fumigación y revisión constante de las instalaciones para prevenir el ingreso directo de la luz solar, el deterioro de las paredes, techo, y por consiguiente la aparición de comején, roedores y de la humedad por la lluvia. Además se debe procurar el uso de luz artificial.
 IX.—Préstamo de documentos. Este aspecto se refiere a la facilitación de los documentos a los usuarios internos y al público en general. Este proceso presenta dos áreas de trabajo:
- Atención a usuarios internos; en el cual el funcionario realiza la solicitud de la documentación por escrito o verbalmente. Inmediatamente el Encargado o técnico del Archivo, procederá a revisar los “Inventarios de documentos” con el fin de localizar y constatar la existencia física de la documentación. Una vez localizada la misma se procederá a consignar la información pertinente al préstamo de la documentación, en los respectivos “Formularios de préstamos de documentos”; la documentación se prestará por un máximo de cuatro días, una vez que el usuario interno ha utilizado la información, procederá a devolver la respectiva documentación al Archivo Central, en ese momento el Encargado o el técnico de Archivo consignará la información relacionada con la devolución en la fórmula denominada “Devolución de documentos”. Por último se vuelve a colocar la documentación en la respectiva estantería.
- Atención al cliente externo: en este caso el Encargado o técnico del Archivo, recibe la solicitud verbal o por escrito del cliente externo para el préstamo de documentos. Inmediatamente el Encargado o técnico del Archivo, procederá a revisar los “Inventarios de documentos” con el fin de localizar y constatar la existencia física de la documentación. Una vez localizada la misma se procederá a consignar la información pertinente al préstamo de la documentación, en los respectivos “Formularios de préstamos de documentos”; la documentación se prestará por un máximo de cuatro días, una vez que el cliente externo ha utilizado la información, procederá a devolver la respectiva documentación al Archivo Central, en ese momento el Encargado o el técnico de Archivo consignará la información relacionada con la devolución en la fórmula denominada “Devolución de documentos”.
+Ø Atención a usuarios internos; en el cual el funcionario realiza la solicitud de la documentación por escrito o verbalmente. Inmediatamente el Encargado o técnico del Archivo, procederá a revisar los “Inventarios de documentos” con el fin de localizar y constatar la existencia física de la documentación. Una vez localizada la misma se procederá a consignar la información pertinente al préstamo de la documentación, en los respectivos “Formularios de préstamos de documentos”; la documentación se prestará por un máximo de cuatro días, una vez que el usuario interno ha utilizado la información, procederá a devolver la respectiva documentación al Archivo Central, en ese momento el Encargado o el técnico de Archivo consignará la información relacionada con la devolución en la fórmula denominada “Devolución de documentos”. Por último se vuelve a colocar la documentación en la respectiva estantería.
+Ø Atención al cliente externo: en este caso el Encargado o técnico del Archivo, recibe la solicitud verbal o por escrito del cliente externo para el préstamo de documentos. Inmediatamente el Encargado o técnico del Archivo, procederá a revisar los “Inventarios de documentos” con el fin de localizar y constatar la existencia física de la documentación. Una vez localizada la misma se procederá a consignar la información pertinente al préstamo de la documentación, en los respectivos “Formularios de préstamos de documentos”; la documentación se prestará por un máximo de cuatro días, una vez que el cliente externo ha utilizado la información, procederá a devolver la respectiva documentación al Archivo Central, en ese momento el Encargado o el técnico de Archivo consignará la información relacionada con la devolución en la fórmula denominada “Devolución de documentos”.
 Por último se vuelve a colocar la documentación en la respectiva estantería.
 Para la realización de este procedimiento se utilizarán las siguientes fórmulas que se detallan:
- “Control de préstamo de documentos del Archivo Central”, en donde se indicará la siguiente información:
- Documento solicitado y código expediente: es el nombre que recibe el documento y la codificación que se le asigno a la documentación.
- Departamento solicitante: departamento al que pertenece el solicitante, en el caso de que sea un cliente externo se consignará la leyenda “cliente o usuario externo”.
- Ubicación en estantería: de la caja donde se encuentra archivada la documentación.
- Recibido por y firma: nombre y firma de la persona que solicita el documento, con su número de cédula.
- Fecha préstamo: es la fecha en que se realiza el servicio.
- Fecha devolución: es la fecha en que se debe devolver el documento.
- Entregado por y firma: nombre y firma del funcionario que autorizó el préstamo.
+Ø “Control de préstamo de documentos del Archivo Central”, en donde se indicará la siguiente información:
+Ø Documento solicitado y código expediente: es el nombre que recibe el documento y la codificación que se le asigno a la documentación.
+Ø Departamento solicitante: departamento al que pertenece el solicitante, en el caso de que sea un cliente externo se consignará la leyenda “cliente o usuario externo”.
+Ø Ubicación en estantería: de la caja donde se encuentra archivada la documentación.
+Ø Recibido por y firma: nombre y firma de la persona que solicita el documento, con su número de cédula.
+Ø Fecha préstamo: es la fecha en que se realiza el servicio.
+Ø Fecha devolución: es la fecha en que se debe devolver el documento.
+Ø Entregado por y firma: nombre y firma del funcionario que autorizó el préstamo.
 Asimismo otro sistema de control que se llevará adicionalmente en el Archivo Central, será la “Boleta de control de documentos prestados del Archivo Central”, la cual consta de las siguientes casillas:
- Documento solicitado es el nombre que recibe el documento.
- Código expediente: es la codificación que se le asignó a la documentación.
- Ubicación: en estantería de la caja donde se encuentra archivada la documentación.
- Departamento solicitante: departamento al que pertenece el solicitante.
- Fecha de préstamo: es la fecha en que el documento es prestado.
- Fecha de devolución: es la fecha en que el documento es devuelto.
- Recibido por: se refiere al nombre de la persona a quién se le prestó el documento.
- Firma: la firma de la persona que solicita el documento.
- Entregado por: nombre del funcionario que entrega la documentación.
- Firma: la firma del funcionario que entrega la documentación.
+Ø Documento solicitado es el nombre que recibe el documento.
+Ø Código expediente: es la codificación que se le asignó a la documentación.
+Ø Ubicación: en estantería de la caja donde se encuentra archivada la documentación.
+Ø Departamento solicitante: departamento al que pertenece el solicitante.
+Ø Fecha de préstamo: es la fecha en que el documento es prestado.
+Ø Fecha de devolución: es la fecha en que el documento es devuelto.
+Ø Recibido por: se refiere al nombre de la persona a quién se le prestó el documento.
+Ø Firma: la firma de la persona que solicita el documento.
+Ø Entregado por: nombre del funcionario que entrega la documentación.
+Ø Firma: la firma del funcionario que entrega la documentación.
 Esta boleta es utilizada cuando el documento es extraído de su unidad de instalación para su préstamo; su retirada temporal es controlada por medio de esta boleta, colocándola en el lugar que ocupa el documento antes de ser retirado.
 El otro formulario es: “Control de Devolución de documentos del Archivo Central”, el cual consta de las siguientes partes:
- Documento devuelto y código del expediente: es el tipo documental o nombre que recibe el documento devuelto, así como la codificación que tiene la documentación.
- Departamento que lo devuelve: es el departamento al que pertenece el solicitante, en el caso de que sea un cliente externo se consignará la leyenda “cliente o usuario externo”.
- Devuelto por y firma: nombre y firma de la persona que devuelve el documento.
- Fecha en se dio el préstamo: es la fecha en que se realizó el préstamo.
- Fecha de la devolución: es la fecha en que se devuelve el documento.
- Recibido por y firma: nombre y firma del funcionario que recibe la documentación.
+Ø Documento devuelto y código del expediente: es el tipo documental o nombre que recibe el documento devuelto, así como la codificación que tiene la documentación.
+Ø Departamento que lo devuelve: es el departamento al que pertenece el solicitante, en el caso de que sea un cliente externo se consignará la leyenda “cliente o usuario externo”.
+Ø Devuelto por y firma: nombre y firma de la persona que devuelve el documento.
+Ø Fecha en se dio el préstamo: es la fecha en que se realizó el préstamo.
+Ø Fecha de la devolución: es la fecha en que se devuelve el documento.
+Ø Recibido por y firma: nombre y firma del funcionario que recibe la documentación.
 Los anteriores formularios serán utilizados en los “Archivos de Gestión” como medio para controlar el préstamo y devolución de documentos a nivel interno y externo; y de esta forma se cumple con la Ley Nº 8292 de Control Interno.
 Por otra parte los usuarios internos y externos del Archivo Central deberán respetar las siguientes normas:
- No ingresar al área de depósito de los documentos.
- Mantener el silencio necesario para asegurar la concentración de las demás personas que se encuentren en el área de consulta del Archivo Central
- Abstenerse de ingerir alimentos y bebidas.
- No fumar.
- Hacer las consultas necesarias al funcionario responsable del Archivo en ese momento.
- Mantener la mesa de trabajo en orden.
- Manipular con el cuidado que requiere cualquier documento, respetando las normas de conservación requeridas. (Estas pueden utilizarse tanto en el Archivo Central como en los archivos de gestión de la Institución).
- No usar lápiz ni dedos para guiar la lectura de los documentos.
- No tocar los documentos con las manos sucias ni mucho menos manchadas.
- No hacer anotaciones en los documentos.
- No doblar, alterar, rasgar o mutilar las páginas de los documentos.
- No escribir apoyándose sobre el documento.
+Ø No ingresar al área de depósito de los documentos.
+Ø Mantener el silencio necesario para asegurar la concentración de las demás personas que se encuentren en el área de consulta del Archivo Central
+Ø Abstenerse de ingerir alimentos y bebidas.
+Ø No fumar.
+Ø Hacer las consultas necesarias al funcionario responsable del Archivo en ese momento.
+Ø Mantener la mesa de trabajo en orden.
+Ø Manipular con el cuidado que requiere cualquier documento, respetando las normas de conservación requeridas. (Estas pueden utilizarse tanto en el Archivo Central como en los archivos de gestión de la Institución).
+Ø No usar lápiz ni dedos para guiar la lectura de los documentos.
+Ø No tocar los documentos con las manos sucias ni mucho menos manchadas.
+Ø No hacer anotaciones en los documentos.
+Ø No doblar, alterar, rasgar o mutilar las páginas de los documentos.
+Ø No escribir apoyándose sobre el documento.
 X.—Acceso a documentos. Para el acceso a los documentos se tomará en cuenta la resolución 0041-99 de la Dirección de Asuntos Jurídicos, de la Municipalidad de Escazú, del 25 de mayo de 1999, en donde indica:
 a) Que información es la que se puede suministrar por parte de la Administración a los munícipes.
 b) Quienes están legitimados para obtenerla.
@@ -130,91 +130,91 @@ a) Traslado de documentos a instituciones externas o departamentos internos.
 Los departamentos internos de la Municipalidad, proceden a dejar en la oficina del Archivo Central la correspondencia que se debe trasladar, el Mensajero/a consigna en el “Control de traslado de documentos del Archivo Central” la información de la documentación que se recibe proveniente de esos departamentos.
 El mensajero/a remite la documentación a la institución a la cual fue enviada. Luego la trae de regreso con “firmas de recibido” una copia de la correspondencia o documentación que se envío, que debe indicar lo siguiente: Nombre de la persona que recibe, fecha y hora en que se recibió la documentación.
 Luego de trasladarla a los respectivos destinos; la regresa a las oficinas del Archivo Central en donde se le colocará el “Sello de recibido del Archivo Central”, le indica la fecha de recibido, la hora y su firma como persona responsable de anotarlo en el control, asimismo le colocará mediante otro sello un número de consecutivo; el cual se consignará por parte del encargado o del técnico del Archivo, dentro del “Control de traslado de documentos del Archivo Central”, indicando en el mismo los siguientes datos:
- Número de registro: este número es el que se consigna a la hora de que ingresa en el Archivo Central.
- Departamento que produce el documento: este es el que envía el documento.
- Fecha del documento: fecha que indica cuando fue producido el documento.
- Destino: se refiere a la dependencia externa o interna al cual va dirigido, debe indicarse si es original este destino o si por el contrario es una copia dirigida a alguna institución o departamento.
- Asunto: se consigna el asunto o número del oficio que se recibe.
- Firma: de la persona que lo envía.
- Fecha en que se recibió: en el Archivo.
- Fecha y hora en que se devolvió: al departamento que lo produjo.
- SI/NO: fue recibido por alguna persona.
- Observaciones.
+Ø Número de registro: este número es el que se consigna a la hora de que ingresa en el Archivo Central.
+Ø Departamento que produce el documento: este es el que envía el documento.
+Ø Fecha del documento: fecha que indica cuando fue producido el documento.
+Ø Destino: se refiere a la dependencia externa o interna al cual va dirigido, debe indicarse si es original este destino o si por el contrario es una copia dirigida a alguna institución o departamento.
+Ø Asunto: se consigna el asunto o número del oficio que se recibe.
+Ø Firma: de la persona que lo envía.
+Ø Fecha en que se recibió: en el Archivo.
+Ø Fecha y hora en que se devolvió: al departamento que lo produjo.
+Ø SI/NO: fue recibido por alguna persona.
+Ø Observaciones.
 b) Convocatoria a sesiones. Para este procedimiento el Mensajero/a recibe la solicitud verbal de la convocatoria a Sesiones Ordinarias o Extraordinarias por parte del Departamento de Secretaria, esto se considera una prioridad ya que las sesiones deben ser convocadas por lo menos con 24 horas de anterioridad.
 Una vez que recibe el aviso el Mensajero/a recoge las respectivas Convocatorias a Sesiones Ordinarias o Extraordinarias, del Departamento de Secretaria y procede a trasladarse a las residencias u oficinas de los regidores para notificarles; en la notificación debe consignarse Nombre de la persona que recibe, cédula, fecha en que se recibe y hora en que lo recibe. Posteriormente trasladará la notificación con las firmas de recibido al Departamento de Secretaría.
 c) Pago de servicios por medio del mensajero. El procedimiento a realizado comienza con el traslado por parte del mensajero de los recibos, facturas, por conceptos de pago de servicios públicos como agua, electricidad, teléfono, pólizas, depósitos judiciales, entre otros del apartado postal de la Municipalidad; al departamento de Tesorería.
 Luego de que el Tesorero ha confeccionado respectivos cheques por pago de estos conceptos se los entrega al mensajero, quien procede a anotar en un “Libro de salidas de cheques” que tendrá para tal efecto los siguientes datos:
- Número del cheque.
- Monto del cheque.
- Fecha de su emisión.
- Persona o institución a la que se le paga.
- Detalle del pago. (Concepto).
- Fecha y hora en que lo recibe el mensajero.
- Fecha y hora en que se devuelve al departamento.
- Observaciones.
+Ø Número del cheque.
+Ø Monto del cheque.
+Ø Fecha de su emisión.
+Ø Persona o institución a la que se le paga.
+Ø Detalle del pago. (Concepto).
+Ø Fecha y hora en que lo recibe el mensajero.
+Ø Fecha y hora en que se devuelve al departamento.
+Ø Observaciones.
 Por último el mensajero devuelve al departamento correspondiente la copia del cheque firmada por el destinatario del cheque.
 d) Recepción de documentos provenientes de instituciones externas. Este proceso corresponde a todo los documentos que se recojan del apartado postal o bien sean entregados por medio del servicio de mensajería. Para el primer procedimiento el mensajero, debe dirigirse al apartado postal que posee la Municipalidad en el correo, verifica si existe documentación en el mismo que deba ser dirigida a algún departamento de la Municipalidad o bien recibe comunicación por parte de algún departamento o institución externa a la Municipalidad para que recoja correspondencia dirigida a la Institución.
 Una vez trasladada al Archivo Central, el encargado o el técnico de Archivo le colocará el “Sello de recibido del Archivo Central”, le indica la fecha de recibido, la hora y su firma como persona responsable de recibirlo, asimismo le colocará mediante otro sello un número de consecutivo; el cual se consignará, dentro del libro de entrada de documentos del Archivo, indicando en el mismo los siguientes datos:
- Número de Registro: se le asigna un número de registro de entrada.
- Institución o particular de donde proviene el documento.
- Departamento al que va dirigido el documento.
- Asunto.
- Fecha de recibido en el Archivo Central.
- Firma funcionario que lo recibe.
- Observaciones.
+Ø Número de Registro: se le asigna un número de registro de entrada.
+Ø Institución o particular de donde proviene el documento.
+Ø Departamento al que va dirigido el documento.
+Ø Asunto.
+Ø Fecha de recibido en el Archivo Central.
+Ø Firma funcionario que lo recibe.
+Ø Observaciones.
 Por último el técnico o el mensajero del Archivo trasladan la correspondencia a las distintas dependencias a las cuales fueron dirigidos.
 e) Recepción de documentos de personas particulares. La persona interesada se dirige al departamento de Archivo Central, en donde deja la correspondencia que debe estar dirigida a algún departamento o funcionario de la Municipalidad.
 Allí el encargado o el técnico de Archivo le colocará el “Sello de recibido del Archivo Central”, le indica la fecha de recibido, la hora y su firma como persona responsable de recibirlo, asimismo le colocará mediante otro sello un número de consecutivo; el cual se consignará, dentro del libro de entrada de documentos del Archivo, indicando en el mismo los siguientes datos:
- Número de registro: este número es el que se consigna a la hora de que ingresa en el Archivo Central.
- Institución o particular de donde proviene el documento.
- Departamento al que va dirigido el documento.
- Asunto.
- Fecha de recibido en el Archivo Central.
- Firma funcionario que lo recibe.
- Observaciones.
+Ø Número de registro: este número es el que se consigna a la hora de que ingresa en el Archivo Central.
+Ø Institución o particular de donde proviene el documento.
+Ø Departamento al que va dirigido el documento.
+Ø Asunto.
+Ø Fecha de recibido en el Archivo Central.
+Ø Firma funcionario que lo recibe.
+Ø Observaciones.
 Por último el técnico o el mensajero del Archivo trasladan la correspondencia a las distintas dependencias a las cuales fueron dirigidos.
 XIII.—Revisión de Gacetas. En este procedimiento el mensajero recibe Las Gacetas en las oficinas del Archivo Central o las recoge del apartado postal de la Municipalidad, las traslada ese día al Departamento de Legal para que este extraiga información que sea de interés para el Municipio, allí ellos señalan cual es la información que tiene relación directa o indirecta con la Municipalidad, asimismo indican a cuales departamentos se les debe de enviar copia de la misma. Las Gacetas con las indicaciones son trasladadas al Archivo Central para que el Técnico del Archivo fotocopie o reproduzca la información señalada, posteriormente el mensajero/a o el técnico/a reparten la información dentro de las distintas dependencias interesadas.
 Por otra parte el Encargado/a del Archivo, procede a incluir dentro de una base de datos desarrollada para tal fin la información referida de las Gacetas. Por último Las Gacetas son colocadas dentro de cajas de Archivo, debidamente rotuladas y se colocan en la estantería.
 XIV.—Creación de las tablas de plazos de conservación documental. La selección documental es una función importante en la administración pues la misma permite la fijación de los plazos de vida para los documentos, como la eliminación de estos cuando han cumplido su vigencia administrativa y legal y que además carecen de valor científico cultural.
 Asimismo en ellas se plasma la producción documental total de la entidad, se detectan duplicidades, se establecen plazos de conservación razonables y se indica cuáles son los documentos más representativos de la institución, para que estos sean conservados permanentemente, y se sumen al patrimonio documental del país.
 La tabla consta de 12 columnas, según el “Instructivo para la elaboración de Tablas de Plazos de conservación de documentos” elaborado por la Dirección General del Archivo Nacional:
- Número de orden: es el número consecutivo que se asigna a cada tipo documental, en el orden en que se anoten.
- Tipo Documental: en esta columna debe anotarse la lista de todos los tipos documentales que produce o recibe la oficina; asimismo se define a “tipo documental” como la forma en que se encuentra dispuesta la información en el soporte, es decir, el nombre con el que se conoce al documento y que responde a funciones, actividades e incluso la legislación de una institución o de un país.
- ¿Es original y/o copia?: se anotará si el documento que se tiene en la oficina es original o una copia. Si tiene el documento original se anota O. Si tiene ambos se anota: O y C. Si tiene 2 ó 3 copias del mismo se anota CC o CCC. En el caso de la correspondencia se anota O y C.
- ¿Cuáles otras oficinas tienen con original y/o copia de este documento?: se anotarán los nombres de otras oficinas que tenga original o copias del tipo documental en estudio. Debe señalarse cuál oficina tiene el original. La información de está casilla es muy importante para detectar duplicados y así evitar la duplicidad de documentos en el Archivo Central.
- ¿El documento y/o la información están microfilmados?: se anota si el tipo documental, o la información están microfilmados.
- ¿El documento o la información están automatizados?: se debe anotar si el tipo documental está respaldado en un programa de cómputo. Este dato tiene importancia para efectos administrativos, pero no altera los plazos de conservación ni sustituye al documento por que la información almacenada en computadora no tiene valor legal en Costa Rica.
- Contenido: se resume el contenido de cada tipo documental, destacando los principales asuntos de cada uno. En el caso de la correspondencia, proyectos o tipos documentales cuya información es muy diversa, lo que se hace es anotar el objetivo, la función o loas actividades básicas de la unidad.
- Vigencia administrativa-legal. Permanencia en la oficina: es el período en que un documento tiene actualidad, plena capacidad para que a través de él, se ordene, se testifique o informe. El valor fundamental durante su vigencia es servir para la toma de decisiones, para los trámites corrientes de la oficina y para la defensa de derechos.
+Ø Número de orden: es el número consecutivo que se asigna a cada tipo documental, en el orden en que se anoten.
+Ø Tipo Documental: en esta columna debe anotarse la lista de todos los tipos documentales que produce o recibe la oficina; asimismo se define a “tipo documental” como la forma en que se encuentra dispuesta la información en el soporte, es decir, el nombre con el que se conoce al documento y que responde a funciones, actividades e incluso la legislación de una institución o de un país.
+Ø ¿Es original y/o copia?: se anotará si el documento que se tiene en la oficina es original o una copia. Si tiene el documento original se anota O. Si tiene ambos se anota: O y C. Si tiene 2 ó 3 copias del mismo se anota CC o CCC. En el caso de la correspondencia se anota O y C.
+Ø ¿Cuáles otras oficinas tienen con original y/o copia de este documento?: se anotarán los nombres de otras oficinas que tenga original o copias del tipo documental en estudio. Debe señalarse cuál oficina tiene el original. La información de está casilla es muy importante para detectar duplicados y así evitar la duplicidad de documentos en el Archivo Central.
+Ø ¿El documento y/o la información están microfilmados?: se anota si el tipo documental, o la información están microfilmados.
+Ø ¿El documento o la información están automatizados?: se debe anotar si el tipo documental está respaldado en un programa de cómputo. Este dato tiene importancia para efectos administrativos, pero no altera los plazos de conservación ni sustituye al documento por que la información almacenada en computadora no tiene valor legal en Costa Rica.
+Ø Contenido: se resume el contenido de cada tipo documental, destacando los principales asuntos de cada uno. En el caso de la correspondencia, proyectos o tipos documentales cuya información es muy diversa, lo que se hace es anotar el objetivo, la función o loas actividades básicas de la unidad.
+Ø Vigencia administrativa-legal. Permanencia en la oficina: es el período en que un documento tiene actualidad, plena capacidad para que a través de él, se ordene, se testifique o informe. El valor fundamental durante su vigencia es servir para la toma de decisiones, para los trámites corrientes de la oficina y para la defensa de derechos.
 El tiempo se puede dividir de tal manera que los documentos permanezcan un tiempo en la oficina productora y otro en el Archivo Central.
- Permanencia en los archivos de gestión: se refiere al tiempo de custodia de los documentos en los archivos de gestión antes de ser transferidos al Archivo Central.
- Permanencia en el Archivo Central: corresponde al tiempo que deben custodiarse los documentos en el Archivo Central, después de ser transferidos de los archivos de gestión.
- Cantidad: la anotará la cantidad en número de volumen o en metros lineales de cada tipo documental.
- Fechas extremas: son las fechas de la documentación, de la más antigua a la más reciente.
- Observaciones: en este espacio la Comisión Nacional de Selección y Eliminación Documental definirá si el tipo documental es de conservación permanente o si puede eliminarse una vez que caduque su vigencia.
+Ø Permanencia en los archivos de gestión: se refiere al tiempo de custodia de los documentos en los archivos de gestión antes de ser transferidos al Archivo Central.
+Ø Permanencia en el Archivo Central: corresponde al tiempo que deben custodiarse los documentos en el Archivo Central, después de ser transferidos de los archivos de gestión.
+Ø Cantidad: la anotará la cantidad en número de volumen o en metros lineales de cada tipo documental.
+Ø Fechas extremas: son las fechas de la documentación, de la más antigua a la más reciente.
+Ø Observaciones: en este espacio la Comisión Nacional de Selección y Eliminación Documental definirá si el tipo documental es de conservación permanente o si puede eliminarse una vez que caduque su vigencia.
 Estas, fórmulas deben llenarse por duplicado, el original debe quedar en el Archivo Central y la copia es devuelta al archivo de gestión una vez que sea aprobada. Esta sirve de control de los diferentes tipos documentales que se producen en las oficinas.
 XV.—Transferencia de documentos con valor histórico al Archivo Nacional. Es la suma de actividades mediante las cuales los documentos producidos, recibidos o administrados por una oficina se organizan para que ingresen a una fase superior, de tal manera que puedan ser localizados y consultados rápidamente.
- Encabezado donde se consignará lo siguiente: dejar en blanco los campos “Transferencia Nº, Signatura y Folios”.
- Campo del fondo documental: anotar el nombre de la entidad productora.
- Campo de la sección: anotar el nombre de la sección.
- Campo de la serie: anotar el nombre de la serie documental.
- Campo de la procedencia: anotar el nombre de la entidad que custodia los documentos al momento de efectuarse la transferencia.
- Campo de “Realizado por”: anotar el nombre de la persona ejecutora del trabajo.
- Campo de la fecha: anotar día, mes y año en que se realizó el trabajo.
- Campo de la “número de orden”: anotar un número en orden consecutivo a partir del 1. (1, 2, 3…).
- Contenido: se redacta un breve resumen de la información de cada tipo documental. Se debe iniciar siempre con el nombre del tipo documental (acta, informe, contrato, etc.).
- Campo de la “Signatura”: no hacer anotaciones. Para uso interno del Archivo Nacional.
- Campo de los folios: no hacer anotaciones.
+Ø Encabezado donde se consignará lo siguiente: dejar en blanco los campos “Transferencia Nº, Signatura y Folios”.
+Ø Campo del fondo documental: anotar el nombre de la entidad productora.
+Ø Campo de la sección: anotar el nombre de la sección.
+Ø Campo de la serie: anotar el nombre de la serie documental.
+Ø Campo de la procedencia: anotar el nombre de la entidad que custodia los documentos al momento de efectuarse la transferencia.
+Ø Campo de “Realizado por”: anotar el nombre de la persona ejecutora del trabajo.
+Ø Campo de la fecha: anotar día, mes y año en que se realizó el trabajo.
+Ø Campo de la “número de orden”: anotar un número en orden consecutivo a partir del 1. (1, 2, 3…).
+Ø Contenido: se redacta un breve resumen de la información de cada tipo documental. Se debe iniciar siempre con el nombre del tipo documental (acta, informe, contrato, etc.).
+Ø Campo de la “Signatura”: no hacer anotaciones. Para uso interno del Archivo Nacional.
+Ø Campo de los folios: no hacer anotaciones.
 Hacer por triplicado la Lista de Remisión. Original y dos copias.
 XVI.—Eliminación de documentos. El Encargado/a de Archivo revisa los inventarios para determinar que documentación se encuentra en etapa de eliminación.
 El Encargado/a de Archivo elabora la lista de documentos por eliminar. Se cotejan las listas con las “Tablas de Plazos de Conservación de Documentos”. Se confecciona el acta de eliminación de documentos, con los siguientes datos.
- Tipo documental: aquí se anota la lista de todos los tipos documentales que se pueden eliminar.
- Contenido: se redacta un breve resumen de la información de cada tipo documental. Se debe iniciar siempre con el nombre del tipo documental (acta, informe, contrato, etc.).
- Fechas extremas: son las fechas de la documentación, de la más antigua a la más reciente.
- Cantidad: la anotará la cantidad en número de volumen o en metros lineales de cada tipo documental.
- Debe indicarse la oficina en la cual se esta llevando a cabo la eliminación.
- Debe contar con el visto bueno del jefe de la unidad productora y el sello de esta unidad.
- Debe contar con el visto bueno y sello del Comité Institucional de Selección y Eliminación de Documentos.
+Ø Tipo documental: aquí se anota la lista de todos los tipos documentales que se pueden eliminar.
+Ø Contenido: se redacta un breve resumen de la información de cada tipo documental. Se debe iniciar siempre con el nombre del tipo documental (acta, informe, contrato, etc.).
+Ø Fechas extremas: son las fechas de la documentación, de la más antigua a la más reciente.
+Ø Cantidad: la anotará la cantidad en número de volumen o en metros lineales de cada tipo documental.
+Ø Debe indicarse la oficina en la cual se esta llevando a cabo la eliminación.
+Ø Debe contar con el visto bueno del jefe de la unidad productora y el sello de esta unidad.
+Ø Debe contar con el visto bueno y sello del Comité Institucional de Selección y Eliminación de Documentos.
 El Encargado/a de Archivo convoca a reunión al Comité Institucional de Selección y Eliminación Documental de la Institución para que apruebe la eliminación de la documentación. Por último la documentación eliminada debe convertirse en material no legible.
 MUNICIPALIDAD DE MONTES DE OCA
 PROCESOS DEL ARCHIVO CENTRAL
@@ -416,9 +416,9 @@ Misión de los archivos de gestión
 INTRODUCCIÓN
 Los Archivos de Gestión son los denominados archivos de oficina, y en los cuales se realizan las siguientes funciones archivísticas: reunir, conservar, clasificar, ordenar, describir, seleccionar administrar y facilitar la documentación producida y recibida en la unidad. Es por ello que su importancia radica en que al brindar un adecuado tratamiento a la información que manejan faciliten en gran medida los procesos de toma de decisiones institucionales.
 Entre la legislación relacionada con el quehacer de estos archivos se encuentra:
- Constitución Política de la República de Costa Rica: que señala en su artículo 89: “Entre los fines culturales de la República están: proteger las bellezas naturales, conservar y desarrollar el patrimonio histórico y artístico de la Nación y apoyar la iniciativa privada para el progreso científico y artístico.”
- Ley del Sistema Nacional de Archivos N° 7202: que establece en su artículo 3, “Todos los documentos con valor científico cultural son bienes inmuebles y forman parte del patrimonio científico cultural de Costa Rica...”
- Ley General de Control Interno N° 8292: que en su Cap. III, artículo 16, indica “En cuanto a la información y comunicación, serán deberes del jerarca y de los titulares subordinados, como responsables del buen funcionamiento del sistema de información...”, inciso c: “Establecer las políticas, los procedimientos y recursos para disponer de un archivo institucional, de conformidad con lo señalado en el ordenamiento jurídico y técnico”.
+Ø Constitución Política de la República de Costa Rica: que señala en su artículo 89: “Entre los fines culturales de la República están: proteger las bellezas naturales, conservar y desarrollar el patrimonio histórico y artístico de la Nación y apoyar la iniciativa privada para el progreso científico y artístico.”
+Ø Ley del Sistema Nacional de Archivos N° 7202: que establece en su artículo 3, “Todos los documentos con valor científico cultural son bienes inmuebles y forman parte del patrimonio científico cultural de Costa Rica...”
+Ø Ley General de Control Interno N° 8292: que en su Cap. III, artículo 16, indica “En cuanto a la información y comunicación, serán deberes del jerarca y de los titulares subordinados, como responsables del buen funcionamiento del sistema de información...”, inciso c: “Establecer las políticas, los procedimientos y recursos para disponer de un archivo institucional, de conformidad con lo señalado en el ordenamiento jurídico y técnico”.
 CUADRO DE CLASIFICACIÓN
 El propósito fundamental de este Cuadro de Clasificación consiste en uniformar los criterios para archivar en cada uno de los archivos de gestión de la institución, ya que esto permite identificar que se produce y que se recibe en cada departamento, con ello se logra que un(a) operador(a) de servicios administrativos 1, que trabaje en la Secretaria del Alcalde pueda archivar documentos de Gestión Tributaria, al seguir este esquema básico; teniendo en cuenta que este esquema tendrá sus variaciones por departamento.
 Cuadro de Clasificación documental.
@@ -569,8 +569,9 @@ III Ámbito: Administración Pública (Aquí se archivará toda documentación q
 3.5.12.2 Archivo Nacional.
 3.5.13 Ministerio de Relaciones Exteriores y Culto…
 3.5.14 Ministerio de Ambiente y Energía…
-3.5.15 Ministerio de Ciencia y Tecnología ...(2)
+3.5.15 Ministerio de Ciencia, Tecnología y Telecomunicaciones (*) ...(2)
 (2) Recargado al Ministerio de Agricultura y Ganadería.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 3.5.16 Ministerio de Comercio Exterior …(3)
 (3) Recargado al Ministerio de Economía, Industria y Comercio
 3.5.17 Ministerio de Trabajo y Seguridad Social…
@@ -612,7 +613,8 @@ III Ámbito: Administración Pública (Aquí se archivará toda documentación q
 3.8.8 Escuela Centroamericana de Ganadería.
 3.8.9 Universidad Nacional.
 3.8.10 Instituto Nacional de Aprendizaje.
-3.8.11 Consejo Nacional de Ciencia y Tecnología.
+3.8.11 Consejo Nacional de Ciencia, Tecnología y Telecomunicaciones (*).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 3.8.12 Instituto Nacional de las Mujeres.
 3.8.13 Promotora de Comercio Exterior.
 3.8.14 Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento.
@@ -665,66 +667,66 @@ Los sellos de recibido, siempre se consignarán dentro de la correspondencia que
 Los expedientes de correspondencia se manejarán de la siguiente manera: se utilizará un fólder al cual se colocará la leyenda “Correspondencia Original”, en donde se archivará la correspondencia original dirigida al respectivo departamento receptor; en otro fólder se colocará la correspondencia emitida por el departamento productor y que va dirigida a un departamento destinatario específico y en el cual se ubicarán las copias denominadas “Archivo o Correspondencia enviada”, estas copias son las que poseen los sellos de recibidos, de los departamentos a los cuales se les envío la correspondencia; los dos tipos de fólders descritos anteriormente para efectos legales y administrativos se considerarán como originales; siendo así que los originales deben estar en el departamento al cual iban dirigidos y los de archivo en el departamento que emite el documento; por último existirá un último fólder denominado “Copias informativas” en donde se colocarán las copias consideradas de carácter informativo, es decir la correspondencia que se envía a los diferentes departamentos con el fin de que el jefe de dicho departamento tenga conocimiento de un asunto.
 PRODUCCIÓN DOCUMENTAL
 Para normalizar la producción documental de la institución y que no existan diferentes formatos al producir la correspondencia institucional se señalarán las siguientes directrices:
- Invocación simbólica: en este caso se colocará el escudo de la Municipalidad en el margen superior derecho de la página.
- Invocación verbal: que se colocará en el margen superior de la página; e indicará “Municipalidad de Montes de Oca, cédula jurídica: 3-014-042053, departamento productor y número de oficio” y en el margen inferior se consignará lo siguiente “Teléfonos: (506) 280-5589, 280-5549, Fax (506) 234-0852, Apartado postal: 789-2050 San Pedro, San José”. Municipalidad de Montes de Oca y la Cédula jurídica se resaltarán en negrita con diferentes tamaños de letra (20 y 11) en letra Times New Roman; el nombre del departamento se colocará en cursiva en letra 12; el número de oficio se colocará en negrita y en otro color que lo diferencie del resto de la invocación; todo esto se colocará centrado en el margen de la página, no se colocarán fondos u otros elementos que distorsionen la identificación del oficio, ni del departamento productor. Por su parte la invocación inferior se colocará centrada y en letra 8 Times New Roman.
- Cuando exista más de una página en un oficio, resolución u otro documento, la invocación verbal tendrá las siguientes características: “Municipalidad de Montes de Oca, Departamento Productor, Número de oficio y número de página” en un tamaño de letra más pequeño, en negrita y con el número de oficio en otro color, colocado en el margen superior izquierdo, asimismo se colocará el escudo de la institución de un menor tamaño en el margen superior derecho. Por su parte la invocación inferior se colocará centrada y en letra 8 Times New Roman.
- Número de oficio: se consignará de la siguiente forma: AC-XX-2003, en donde AC corresponde a las siglas del departamento (Archivo Central por ejemplo); y XX corresponde la numeración del oficio que será de 1 hasta infinito por año. La colocación de otros datos como 01 para indicar el mes es totalmente innecesaria debido a que esta fecha se encuentra consignada en la data crónica y esta se tiene que indicar en el respectivo Control de correspondencia.
- Data crónica: corresponde a la fecha de elaboración del documento, este dato junto al anterior del número de oficio tiene que indicarse en cualquier documento que se produzca, sin importar el tipo que sea (depende del tipo documental, varia su ubicación, por ejemplo correspondencia, escritos legales, notificaciones, entre otros.
- Destinatario: persona o personas a las que va dirigida. En el caso de ser una circular este nombre se indicará en el lugar del número de oficio y se asignará un número. Asimismo esta se tiene que indicar en el respectivo Control de correspondencia.
- Asunto: se refiere a un pequeño resumen informativo sobre el tema o idea central del documento, este se colocará en negrita, subrayado y en otro color (de ser posible), este resumen se indicará en el campo respectivo del Control de Correspondencia. Por ejemplo: Solicitud de permiso sin goce de salario.
- Salutación: Estimado señor, Estimada señora, entre otros.
- Contenido o cuerpo de la carta: la cual puede realizarse en letras Times New Roman o Tahoma, justificada, en tamaño 12.
- Autor del documento: se refiere a la persona encargada de redactar y firmar la carta.
- Escritor: se deben indicar las siglas del nombre de la persona encargada de digitar el documento.
- Por último se colocan los nombres de las personas o departamentos a los cuales se les enviará copia del documento, asimismo se elaborara una copia denominada “Archivo”, en la cual se colocarán los sellos de recibido y se archivarán en el fólder denominado “Archivo o Correspondencia enviada”.
+Ø Invocación simbólica: en este caso se colocará el escudo de la Municipalidad en el margen superior derecho de la página.
+Ø Invocación verbal: que se colocará en el margen superior de la página; e indicará “Municipalidad de Montes de Oca, cédula jurídica: 3-014-042053, departamento productor y número de oficio” y en el margen inferior se consignará lo siguiente “Teléfonos: (506) 280-5589, 280-5549, Fax (506) 234-0852, Apartado postal: 789-2050 San Pedro, San José”. Municipalidad de Montes de Oca y la Cédula jurídica se resaltarán en negrita con diferentes tamaños de letra (20 y 11) en letra Times New Roman; el nombre del departamento se colocará en cursiva en letra 12; el número de oficio se colocará en negrita y en otro color que lo diferencie del resto de la invocación; todo esto se colocará centrado en el margen de la página, no se colocarán fondos u otros elementos que distorsionen la identificación del oficio, ni del departamento productor. Por su parte la invocación inferior se colocará centrada y en letra 8 Times New Roman.
+Ø Cuando exista más de una página en un oficio, resolución u otro documento, la invocación verbal tendrá las siguientes características: “Municipalidad de Montes de Oca, Departamento Productor, Número de oficio y número de página” en un tamaño de letra más pequeño, en negrita y con el número de oficio en otro color, colocado en el margen superior izquierdo, asimismo se colocará el escudo de la institución de un menor tamaño en el margen superior derecho. Por su parte la invocación inferior se colocará centrada y en letra 8 Times New Roman.
+Ø Número de oficio: se consignará de la siguiente forma: AC-XX-2003, en donde AC corresponde a las siglas del departamento (Archivo Central por ejemplo); y XX corresponde la numeración del oficio que será de 1 hasta infinito por año. La colocación de otros datos como 01 para indicar el mes es totalmente innecesaria debido a que esta fecha se encuentra consignada en la data crónica y esta se tiene que indicar en el respectivo Control de correspondencia.
+Ø Data crónica: corresponde a la fecha de elaboración del documento, este dato junto al anterior del número de oficio tiene que indicarse en cualquier documento que se produzca, sin importar el tipo que sea (depende del tipo documental, varia su ubicación, por ejemplo correspondencia, escritos legales, notificaciones, entre otros.
+Ø Destinatario: persona o personas a las que va dirigida. En el caso de ser una circular este nombre se indicará en el lugar del número de oficio y se asignará un número. Asimismo esta se tiene que indicar en el respectivo Control de correspondencia.
+Ø Asunto: se refiere a un pequeño resumen informativo sobre el tema o idea central del documento, este se colocará en negrita, subrayado y en otro color (de ser posible), este resumen se indicará en el campo respectivo del Control de Correspondencia. Por ejemplo: Solicitud de permiso sin goce de salario.
+Ø Salutación: Estimado señor, Estimada señora, entre otros.
+Ø Contenido o cuerpo de la carta: la cual puede realizarse en letras Times New Roman o Tahoma, justificada, en tamaño 12.
+Ø Autor del documento: se refiere a la persona encargada de redactar y firmar la carta.
+Ø Escritor: se deben indicar las siglas del nombre de la persona encargada de digitar el documento.
+Ø Por último se colocan los nombres de las personas o departamentos a los cuales se les enviará copia del documento, asimismo se elaborara una copia denominada “Archivo”, en la cual se colocarán los sellos de recibido y se archivarán en el fólder denominado “Archivo o Correspondencia enviada”.
 Por otra parte los Memorandos se diferencian de las cartas en los siguientes aspectos, estos tendrán un encabezado con los siguientes datos: Municipalidad de Montes de Oca, Cédula Jurídica, Departamento.
 Posteriormente se indicará en mayúscula, en negrita, centrado y en un tamaño de letra 18 la palabra MEMORANDO XX-2003, después se colocará alineado a la izquierda, en mayúscula, en negrita y en letra Times o Tahoma 12, lo siguiente: FECHA: (se indica fecha en que se crea el documento), PARA: (se indica a quién o quienes va dirigido), DE: (la oficina que crea el documento, esta es una diferencia fundamental entre una carta y un memorando, ya que en la primera la identificación de la oficina que crea el documento se consigna al final con la firma del respectivo jefe, mientras en un memorando esto se consigna al principio de la misma); ASUNTO: (el cual es un pequeño resumen de la idea principal del mismo). Y por último se indicará el contenido o cuerpo del memorando. Es importante señalar que la función básica del memorando es indicar, recordar o tramitar acciones sencillas y diarias por lo que su validez es menor a la de una carta por lo cual esta puede tratar de asuntos mucho más complejos.
 Con respecto a los INFORMES y RESOLUCIONES, se debe proceder con las mismas características de la correspondencia (como las invocaciones, asunto, entre otros), pero indicando en el encabezado que es un informe o una resolución y un número de identificación respetando un consecutivo.
 Debe recordarse que los cuatro tipos documentales señalados anteriormente deben tener numeración consecutiva diferente, ya que como lo indican las Tablas de Plazos de Conservación Documental, estos poseen vigencias administrativa, legal y científico-cultural diferentes.
 FÓRMULAS DE CONTROL
 “Formulario de Control de Correspondencia”, su uso viene a simplificar la localización de la documentación producida por el departamento, al identificar el destino de cada uno de los documentos originales; en estas se indicará la siguiente información:
- Dependencia: esta se coloca en la primera página del respectivo formulario, debe indicarse cual unidad, departamento o dirección completa este formulario.
- Oficio y fecha de emisión de documentos: el número de oficio ya viene impreso en cada uno de los formularios del 1 hasta el 2000, este se entregará a cada oficina dependiendo de la producción documental del año anterior, con ello se busca controlar la explosión documental además de asignarle un único número de identificación a cada expediente; por su parte la fecha de creación del documento se consignará en la respectiva columna.
- Persona a la que se dirige: nombre del funcionario o ciudadano al que se le dirige la correspondencia.
- Institución o departamento al que se dirige la documentación: en caso de ser un contribuyente se indicará “Particular”.
- Referencia o asunto: se refiere a un pequeño resumen informativo sobre el tema o idea central.
+Ø Dependencia: esta se coloca en la primera página del respectivo formulario, debe indicarse cual unidad, departamento o dirección completa este formulario.
+Ø Oficio y fecha de emisión de documentos: el número de oficio ya viene impreso en cada uno de los formularios del 1 hasta el 2000, este se entregará a cada oficina dependiendo de la producción documental del año anterior, con ello se busca controlar la explosión documental además de asignarle un único número de identificación a cada expediente; por su parte la fecha de creación del documento se consignará en la respectiva columna.
+Ø Persona a la que se dirige: nombre del funcionario o ciudadano al que se le dirige la correspondencia.
+Ø Institución o departamento al que se dirige la documentación: en caso de ser un contribuyente se indicará “Particular”.
+Ø Referencia o asunto: se refiere a un pequeño resumen informativo sobre el tema o idea central.
 PRÉSTAMO DE DOCUMENTOS
 Este aspecto se refiere a la facilitación de los documentos a los usuarios internos y al público en general. Este proceso presenta dos áreas de trabajo:
- Atención a usuarios internos: en el cual el funcionario realiza la solicitud de la documentación por escrito o verbalmente. Inmediatamente el encargado del archivo de gestión, procede a localizar la documentación basándose en el Cuadro de Clasificación de su departamento; con el fin de localizar y constatar la existencia física de la documentación. Una vez localizada la misma se procederá a consignar la información pertinente al préstamo de la documentación, en los respectivos “Formularios de préstamos de documentos”; la documentación se prestará por un máximo de ocho días, una vez que el usuario interno ha utilizado la información, procederá a devolver la respectiva documentación al archivo de gestión, en ese momento el encargado del archivo de gestión consignará la información relacionada con la devolución en la fórmula denominada “Devolución de documentos”. Por último se vuelve a colocar la documentación en el archivador correspondiente.
- Atención al cliente externo: en este caso el Encargado o técnico del Archivo, recibe la solicitud por escrito del cliente externo para el préstamo de documentos. Inmediatamente el encargado del archivo de gestión procederá a localizar en el Cuadro de Clasificación de su departamento; la existencia física de la documentación. Una vez localizada, se procederá a consignar la información pertinente al préstamo de la documentación, en los respectivos “Formularios de préstamos de documentos”; la documentación se prestará por un máximo de un día, una vez que el cliente externo ha utilizado la información, procederá a devolver la respectiva documentación al archivo de gestión, en ese momento el encargado del archivo de gestión consignará la información relacionada con la devolución en la fórmula denominada “Devolución de documentos”. Por último se vuelve a colocar la documentación en el archivador correspondiente.
+Ø Atención a usuarios internos: en el cual el funcionario realiza la solicitud de la documentación por escrito o verbalmente. Inmediatamente el encargado del archivo de gestión, procede a localizar la documentación basándose en el Cuadro de Clasificación de su departamento; con el fin de localizar y constatar la existencia física de la documentación. Una vez localizada la misma se procederá a consignar la información pertinente al préstamo de la documentación, en los respectivos “Formularios de préstamos de documentos”; la documentación se prestará por un máximo de ocho días, una vez que el usuario interno ha utilizado la información, procederá a devolver la respectiva documentación al archivo de gestión, en ese momento el encargado del archivo de gestión consignará la información relacionada con la devolución en la fórmula denominada “Devolución de documentos”. Por último se vuelve a colocar la documentación en el archivador correspondiente.
+Ø Atención al cliente externo: en este caso el Encargado o técnico del Archivo, recibe la solicitud por escrito del cliente externo para el préstamo de documentos. Inmediatamente el encargado del archivo de gestión procederá a localizar en el Cuadro de Clasificación de su departamento; la existencia física de la documentación. Una vez localizada, se procederá a consignar la información pertinente al préstamo de la documentación, en los respectivos “Formularios de préstamos de documentos”; la documentación se prestará por un máximo de un día, una vez que el cliente externo ha utilizado la información, procederá a devolver la respectiva documentación al archivo de gestión, en ese momento el encargado del archivo de gestión consignará la información relacionada con la devolución en la fórmula denominada “Devolución de documentos”. Por último se vuelve a colocar la documentación en el archivador correspondiente.
 “Formulario de préstamo de documentos”, en donde se indicará la siguiente información:
- Documento solicitado: es el tipo documental o nombre que recibe el documento.
- Departamento solicitante: departamento al que pertenece el solicitante, en el caso de que sea un cliente externo se consignará la leyenda “cliente o usuario externo”, asimismo este deberá indicar un número de teléfono donde pueda localizarse.
- Recibido por: nombre de la persona que solicita el documento, con su número de cédula en el caso de ser un solicitante externo.
- Firma: del solicitante.
- Fecha préstamo: es la fecha en que se realiza el servicio.
- Fecha devolución: es la fecha en que se debe devolver el documento.
- Entregado por: nombre del funcionario que autorizó el préstamo.
- Firma: de quien autoriza el préstamo.
- “Formulario de devolución de documentos”, en donde se indicará la siguiente información:
- Documento devuelto: es el tipo documental o nombre que recibe el documento.
- Departamento que lo devuelve: en el caso de que sea un cliente externo se consignará la leyenda “cliente o usuario externo”.
- Devuelto por: nombre de la persona que devuelve el documento.
- Firma: de quien devuelve la documentación.
- Fecha en que se dio el préstamo: es la fecha en que se realiza el servicio.
- Fecha devolución: es la fecha en que se debe devolver el documento.
- Recibido por: nombre del funcionario que recibe la documentación.
- Firma: la firma de quién recibe la documentación.
+Ø Documento solicitado: es el tipo documental o nombre que recibe el documento.
+Ø Departamento solicitante: departamento al que pertenece el solicitante, en el caso de que sea un cliente externo se consignará la leyenda “cliente o usuario externo”, asimismo este deberá indicar un número de teléfono donde pueda localizarse.
+Ø Recibido por: nombre de la persona que solicita el documento, con su número de cédula en el caso de ser un solicitante externo.
+Ø Firma: del solicitante.
+Ø Fecha préstamo: es la fecha en que se realiza el servicio.
+Ø Fecha devolución: es la fecha en que se debe devolver el documento.
+Ø Entregado por: nombre del funcionario que autorizó el préstamo.
+Ø Firma: de quien autoriza el préstamo.
+Ø “Formulario de devolución de documentos”, en donde se indicará la siguiente información:
+Ø Documento devuelto: es el tipo documental o nombre que recibe el documento.
+Ø Departamento que lo devuelve: en el caso de que sea un cliente externo se consignará la leyenda “cliente o usuario externo”.
+Ø Devuelto por: nombre de la persona que devuelve el documento.
+Ø Firma: de quien devuelve la documentación.
+Ø Fecha en que se dio el préstamo: es la fecha en que se realiza el servicio.
+Ø Fecha devolución: es la fecha en que se debe devolver el documento.
+Ø Recibido por: nombre del funcionario que recibe la documentación.
+Ø Firma: la firma de quién recibe la documentación.
 REMISIÓN DE DOCUMENTOS (Transferencia documental)
 La remisión de documentos consiste en la transferencia de los documentos que ya no son de uso cotidiano en los archivos de gestión, pero que por su importancia deben conservarse para ser facilitados cuando así se requiera. Este proceso permite además que las oficinas dispongan de un mayor espacio físico para custodiar la documentación que se produce constantemente y que es de uso inmediato.
 La transferencia debe realizarse mediante un calendario previamente establecido que deberá respetarse, para poder efectuarla se llenará un instrumento descriptivo denominado “Lista de Remisión de Documentos”, la cual indica claramente cual documentación se está enviando al archivo. En cada departamento deberá designarse un funcionario para llevar a cabo esta labor, por su parte en el Archivo Central uno de los funcionarios la recibirá y corroborará, para ser aceptada. Tanto el encargado del Departamento como el encargado del Archivo deberán firmarla una vez finalizado el proceso.
 La “Lista de Remisión de documentos” tendrá las siguientes partes:
- Encabezado donde se consignará lo siguiente: Dirección (donde se anota la Dirección a la que se pertenece, en el caso de estar adscrito al Alcalde o al Concejo se indicará aquí), Departamento, Sección y Signatura del Remitente.
- Número de identificación: (anotar un número en consecutivo a partir del 1. Que corresponde a cada unidad documental o carpeta que se va incluyendo en la Lista de Remisión).
+Ø Encabezado donde se consignará lo siguiente: Dirección (donde se anota la Dirección a la que se pertenece, en el caso de estar adscrito al Alcalde o al Concejo se indicará aquí), Departamento, Sección y Signatura del Remitente.
+Ø Número de identificación: (anotar un número en consecutivo a partir del 1. Que corresponde a cada unidad documental o carpeta que se va incluyendo en la Lista de Remisión).
 Tipo documental: es la forma en que se encuentra dispuesta la información en el soporte, es decir, el nombre con el que se conoce al documento. (Correspondencia, Actas, planillas, presupuestos, contratos, etc.).
- Contenido: se redacta un breve resumen de la información de cada tipo documental. Se debe iniciar siempre con el nombre del tipo documental (acta, informe, contrato, etc.).
- Fechas extremas: anotar la fecha más antigua y la más reciente de cada documento.
- Cantidad: se anotará la cantidad de documentos que se están transfiriendo, en metros lineales o en número de volumen (ampos, cajas, fólderes, entre otros).
- Valor científico-cultural: esto es determinado por las “Tablas de Plazos de Conservación Documental”, por lo tanto si el documento tiene valor permanente se anota “sí” y si no tiene se anota “no”.
- Eliminación: se refiere a la fecha en que debe eliminarse, el documento de acuerdo con la vigencia administrativa. Esta casilla la llena el encargado del Archivo de Gestión después de revisar las Tablas de Plazos de Conservación Documental.
- Entregado por: el nombre de la persona encargada del archivo de gestión que envía la documentación.
- Recibido por: el funcionario responsable del Archivo Central.
- Fecha: en que se envió la documentación.
+Ø Contenido: se redacta un breve resumen de la información de cada tipo documental. Se debe iniciar siempre con el nombre del tipo documental (acta, informe, contrato, etc.).
+Ø Fechas extremas: anotar la fecha más antigua y la más reciente de cada documento.
+Ø Cantidad: se anotará la cantidad de documentos que se están transfiriendo, en metros lineales o en número de volumen (ampos, cajas, fólderes, entre otros).
+Ø Valor científico-cultural: esto es determinado por las “Tablas de Plazos de Conservación Documental”, por lo tanto si el documento tiene valor permanente se anota “sí” y si no tiene se anota “no”.
+Ø Eliminación: se refiere a la fecha en que debe eliminarse, el documento de acuerdo con la vigencia administrativa. Esta casilla la llena el encargado del Archivo de Gestión después de revisar las Tablas de Plazos de Conservación Documental.
+Ø Entregado por: el nombre de la persona encargada del archivo de gestión que envía la documentación.
+Ø Recibido por: el funcionario responsable del Archivo Central.
+Ø Fecha: en que se envió la documentación.
 Ésta Lista de Remisión deberá hacerse por triplicado, original y dos copias. Asimismo se debe sellar cada unidad documental o carpeta con el sello respectivo de la oficina productora. La ejecución de este proceso es responsabilidad inmediata de los jefes de departamento, secretarias, oficinistas o encargados de cada uno de los archivos de gestión, para llevar a cabo este proceso el Archivo proveerá lo siguiente:
 A. La lista de remisión de documentos.
 B. El calendario que especifica la fecha en que debe de llevarse a cabo
@@ -734,9 +736,9 @@ D. La información logística para su desarrollo.
 El no cumplir con la fecha asignada para la remisión; provocará el atraso en el proceso general de organización del archivo, por cuanto entorpecerá el resto de funciones programadas.
 CONSERVACIÓN
 En los Archivos de Gestión esta labor corresponde a:
- Cuidar de los documentos como propiedad institucional, lo que implica evitar colocarlos en el suelo, rayarlos, hacerles tachaduras, comentarios, girar instrucciones en ellos, comer y tomar líquidos encima de estos, no fumar cerca de donde se encuentren los documentos, utilizar indiscriminadamente grapas y prensas, y en general cualquier manipulación que atente contra la debida conservación de los mismos.
- Respetar el valor administrativo, legal y científico-cultural de los documentos.
- Respetar las leyes, reglamentos y normas técnicas de administración y uso de los documentos.
- Hacer un uso correcto de la información.
+Ø Cuidar de los documentos como propiedad institucional, lo que implica evitar colocarlos en el suelo, rayarlos, hacerles tachaduras, comentarios, girar instrucciones en ellos, comer y tomar líquidos encima de estos, no fumar cerca de donde se encuentren los documentos, utilizar indiscriminadamente grapas y prensas, y en general cualquier manipulación que atente contra la debida conservación de los mismos.
+Ø Respetar el valor administrativo, legal y científico-cultural de los documentos.
+Ø Respetar las leyes, reglamentos y normas técnicas de administración y uso de los documentos.
+Ø Hacer un uso correcto de la información.
 Acuerdo tomado por el Concejo Municipal de Montes de Oca, en su sesión extraordinaria N° 131/2006, artículo Nº 2.1, del día 1º de marzo del 2006.
 San Pedro de Montes Oca, 15 de marzo del 2006.
