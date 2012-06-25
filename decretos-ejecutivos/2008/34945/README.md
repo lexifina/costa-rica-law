@@ -14,3 +14,4 @@ Crea Comisión Técnica para el Manejo y Desarrollo Integral de la Cuenca del R�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-13 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

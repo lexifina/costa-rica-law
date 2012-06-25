@@ -1,7 +1,8 @@
-Nº 34945-MINAET
+Nº 34945-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA Y
-TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Con fundamento en las facultades que les confieren los artículos 140 incisos 3, 18 y 146 de 1i Constitución Política, así como el artículo 2 de la Ley Orgánica del Ambiente número 7554, del 4 de octubre de 1995, los artículos 2 y 34 de la Ley de Uso, Manejo y Conservación de Suelos número 7779 del 30 de abril de 1998, Ley General de Salud número 5395, del 30 de octubre de 1973, y el artículo 22 de la Ley de Biodiversidad número 7788, del 30 de abril de 1998.
 Considerando:
 1º—Que la conservación de los recursos naturales y la recuperación del ambiente es una tarea de todos los costarricenses.
