@@ -14,3 +14,4 @@ Acoge Acuerdo de extensión del Convenio de Financiamiento de la Educación Supe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-11-08 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
