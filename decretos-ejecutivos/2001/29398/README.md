@@ -14,3 +14,4 @@ Declara Refugio Nacional de Vida Silvestre CIPANCI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-28 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
