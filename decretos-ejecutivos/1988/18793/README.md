@@ -13,3 +13,4 @@ Declara 1989 Año para Fortalecimiento y Promoción Ciencia y Tecnologíaal Serv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-02-09 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
