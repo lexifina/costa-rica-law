@@ -14,3 +14,4 @@ Modifica a la Ley de Presupuesto Ordinario y Extraordinario para el ejercicio ec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-08 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

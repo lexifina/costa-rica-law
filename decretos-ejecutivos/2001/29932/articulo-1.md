@@ -1,12 +1,11 @@
-PODER EJECUTIVO
-DECRETOS
 Nº 29932-H
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 Considerando:
 1º—Que en el Anexo Nº 1 de la Ley Nº 8050 del 7 de diciembre del 2000, en la Relación de Puestos de los Programas Presupuestarios pertenecientes al Poder Ejecutivo, se contempla la coletilla Nº 180 para "financiar resoluciones de reasignaciones, asignaciones y reajustes salariales emitidas por la Dirección General de Servicio Civil y la Autoridad Presupuestaria como producto de estudios individuales de puestos, así como por reestructuraciones institucionales". (A distribuir por Decreto Ejecutivo).
 2º—Que se hace necesario adecuar la relación de puestos de los Ministerios afectados por movimientos de reasignación y valoración, de conformidad con las resoluciones emitidas por la Dirección General de Servicio Civil y la Autoridad Presupuestaria.
-3º—Que mediante oficios DM-1638-2001, DM-1639-2001 y DRH-753-01 del Ministerio del Ambiente y Energía, se solicita modificar los puestos incorporados en este decreto en acatamiento a lo dispuesto por la Sala Constitucional al admitir el trámite de los Recursos de Amparo Nos. 01-7981-7-CO, 01-83797981-7-CO y 01-88939-7-CO. Por tanto,
+3º—Que mediante oficios DM-1638-2001, DM-1639-2001 y DRH-753-01 del Ministerio de Ambiente y Energía(*), se solicita modificar los puestos incorporados en este decreto en acatamiento a lo dispuesto por la Sala Constitucional al admitir el trámite de los Recursos de Amparo Nos. 01-7981-7-CO, 01-83797981-7-CO y 01-88939-7-CO. Por tanto,
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Decretan:
 Artículo 1º—Modifícase el anexo Nº 1 de la Ley Nº 8050 del 7 de diciembre del 2000, en la forma que se indica a continuación:
 REBAJAR:
