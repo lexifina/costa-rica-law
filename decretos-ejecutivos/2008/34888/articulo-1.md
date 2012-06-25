@@ -1,7 +1,7 @@
-Nº 34888-MINAET
+Nº 34888-MINAE(*)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que les confiere los incisos, 3) y 18) del artículo 140 de la Constitución Política, el inciso d) del artículo 6º de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y el artículo 14 de la Ley Creación del Parque Marino del Pacífico, Nº 8065 del 27de enero del 2001.
 Considerando:
 1º—Que el Parque Marino del Pacífico contribuye a incrementar en las comunidades y los estudiantes el conocimiento, la información y la sensibilización sobre la biodiversidad marina y costera para su conservación y uso sostenible.
