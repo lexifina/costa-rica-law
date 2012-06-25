@@ -1,7 +1,7 @@
-N° 27430-MEP-MICIT-H-PLAN
+N° 27430-MEP-MICITT(*)-H-PLAN
 EL PRESIDENTE DE L A REPÚBLICA
-Y LOS MINISTROS DE EDUCACIÓN PUBLICA, DE CIENCIA
-Y TECNOLOGÍA, DE HACIENDA Y DE PLANIFICACIÓN
+Y LOS MINISTROS DE EDUCACIÓN PUBLICA, DE CIENCIA,
+TECNOLOGÍA Y TELECOMUNICACIONES(*), DE HACIENDA Y DE PLANIFICACIÓN
 NACIONAL Y POLÍTICA ECONÓMICA,
 Con fundamento en lo establecido en los incisos 3) y 18) del artículo 140 en concordancia con el 85 de la Constitución Política,
 Considerando:
@@ -10,3 +10,4 @@ Considerando:
 3°—Que es del interés de esta Comisión que la base de convenio que se ha adoptado para los cálculos del financiamiento de la Educación Superior Universitaria Estatal no sufra discontinuidad temporal alguna en caso de que el proceso arriba indicado requiera extenderse por unos días para darle la debida culminación. Por tanto,
 DECRETAN:
 Artículo 1°—Que la Comisión de Enlace se mantenga en sesión permanente con el fin de concluir el proceso de definición de los términos del Convenio de Financiamiento de la Educación Superior Universitaria Estatal para el próximo período, según lo acordado en la Sesión de la Comisión de Enlace N° 184, del 5 de noviembre de 1998.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

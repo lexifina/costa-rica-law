@@ -14,3 +14,4 @@ Extiende vigencia de la Comisión de Enlace sobre el Convenio de Financiamiento 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-11-06 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
