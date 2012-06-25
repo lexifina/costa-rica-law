@@ -14,3 +14,4 @@ Modifica para la Academia Nacional de Ciencias el Gasto Presupuestario Máximo F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-01 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
