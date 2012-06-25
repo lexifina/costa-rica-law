@@ -14,3 +14,4 @@ Reforma Reglamento Ley Promoción Desarrollo Científico y Tecnológico Nº 7169
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-13 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
