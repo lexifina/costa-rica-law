@@ -14,3 +14,4 @@ Declara de Interés Público el Seminario de Actualización en Tecnologías de I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-14 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
