@@ -14,3 +14,4 @@ Declaratoria de Interés “IV Congreso Nacional y III Congreso del Caribe de Ci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-05 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
