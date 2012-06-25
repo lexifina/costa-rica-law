@@ -15,3 +15,4 @@ Manual para la Clasificación de Tierras Dedicadas a la Conservación de los Rec
 | --- | --- | --- |
 | 1 | 2009-06-30 | la propia norma |
 | 2 | 2010-03-24 | Decreto Ejecutivo 35869 (2010-03-24) |
+| 3 | 2012-06-25 | Ley 9046 |
