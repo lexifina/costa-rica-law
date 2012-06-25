@@ -1,14 +1,16 @@
-Nº 35369-MINAET
+Nº 35369-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades que les confieren los incisos 3 y 18 del artículo 140 y el artículo 146 de la Constitución Política, los artículos 1 y 3 de la Ley del Servicio de Parques Nacionales Nº 6084 del 24 de agosto de 1977, la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, la Ley de Conservación de la Vida Silvestre Nº 7317 del 30 de octubre de 1992, la Ley Forestal Nº 7575 del 13 de febrero de 1996, la Ley Orgánica del Ambiente Nº 7554 del 04 de octubre de 1995.
 Considerando:
 1º—Que es interés del Estado, fortalecer el sistema de áreas protegidas del país en virtud de la necesidad de un manejo eficiente de los recursos naturales existentes en las aguas jurisdiccionales.
 2º—Que la Convención para la Protección de Flora y Fauna y las Bellezas Escénicas Naturales de los Países de América, aprobada por Ley Nº 3763 del 19 de octubre de 1966, así como el Convenio sobre Diversidad Biológica aprobado por Ley Nº 7416 del 30 del junio de 1994, comprometen al Estado a designar y crear áreas protegidas.
 3º—Que entre las decisiones adoptadas en la Octava Conferencia de las Partes del Convenio de Diversidad Biológica celebrada del 20 al 31 de marzo del 2006 en Brasil, se reconoce la importancia de la gestión integrada marino costera para alcanzar los objetivos del 2010 e impulsar las acciones tendientes a mejorar la protección y el manejo efectivo de los ecosistemas marinos.
 4º—Que el Estado costarricense en el ejercicio de sus competencias debe asegurar un ambiente sano y ecológicamente equilibrado, para lo cual dispone entre otras herramientas, de la creación de áreas marinas protegidas que se ajusten a las necesidades sociales, económicas y biológicas actuales.
-5º—Que la Ley Orgánica del Ambiente y la Ley de Biodiversidad, facultan al Poder Ejecutivo para crear Áreas Silvestres Protegidas en aquellas áreas que presenten características ecológicas importantes o especiales para su protección y conservación, así como el crear nuevas categorías de manejo, las cuales serán administradas por el Ministerio de Ambiente, Energía y Telecomunicaciones.
+5º—Que la Ley Orgánica del Ambiente y la Ley de Biodiversidad, facultan al Poder Ejecutivo para crear Áreas Silvestres Protegidas en aquellas áreas que presenten características ecológicas importantes o especiales para su protección y conservación, así como el crear nuevas categorías de manejo, las cuales serán administradas por el Ministerio de Ambiente y Energía. (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 6º—Que dichas categorías de manejo deberán perseguir un uso racional de los recursos existentes, así como la adopción de las medidas necesarias para la conservación de los recursos naturales y el desarrollo sostenible.
 7º—Que en el Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433 del 11 de marzo del 2008 publicado en La Gaceta Nº 68 del 8 de abril del 2008, en el artículo 70 se establecen y se definen las Categorías de Manejo para Áreas Silvestres Protegidas, incluyendo dos nuevas categorías:
 h) Reservas Marinas.

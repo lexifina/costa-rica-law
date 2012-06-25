@@ -15,3 +15,4 @@ Regulación de las nuevas categorías de manejo para las Áreas Marinas Protegid
 | --- | --- | --- |
 | 1 | 2009-07-20 | la propia norma |
 | 2 | 2009-09-17 | Decreto Ejecutivo 35666 (2009-09-17) |
+| 3 | 2012-06-25 | Ley 9046 |
