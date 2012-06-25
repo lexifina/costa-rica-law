@@ -14,3 +14,4 @@ Declara interés público la actividad científica y tecnológica denominada "Cu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-10-05 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
