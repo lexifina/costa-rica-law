@@ -8,7 +8,8 @@ e) Promover, frente a otras entidades del Estado y los gobiernos locales, el des
 f) Impulsar a nivel nacional e internacional la actividad del TRC, tanto en las campañas que lleva a cabo el ICT como en la divulgación permanente que realiza.
 g) Coordinar el asesoramiento y la capacitación de las acciones formativas para el fomento y el desarrollo de la actividad del TRC.
 h) Promover, en conjunto con otras instituciones públicas, el desarrollo de programas de capacitación específicos para las agrupaciones del TRC.
-i) Promover, en coordinación con el Ministerio de Ambiente, Energía y Telecomunicaciones (Minaet), la implementación de contratos por pago de servicios ambientales en terrenos dedicados al TRC.
+i) Promover, en coordinación con el Ministerio de Ambiente y Energía (Minae)(*), la implementación de contratos por pago de servicios ambientales en terrenos dedicados al TRC.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 j) Fomentar, en coordinación con el Ministerio de Salud, la gestión integral de residuos en el TRC.
 k) Desarrollar campañas publicitarias para informar, tanto a nivel nacional como internacional, las actividades que desarrolla el TRC.
 l) Garantizar el cumplimiento de las disposiciones de esta Ley.

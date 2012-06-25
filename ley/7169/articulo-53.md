@@ -1,8 +1,2 @@
-ARTICULO 53.- El Ministerio de Ciencia y Tecnología (MICIT) y el
-Consejo Nacional para la Investigación Científica y Tecnológica
-(CONICIT), en coordinación con el Consejo Nacional de Rectores (CONARE),
-le propondrán al Ministerio de Educación Pública programas y proyectos
-para el mejoramiento de la enseñanza de las ciencias y de la educación
-técnica, así como los programas anuales para el fortalecimiento de
-actividades en áreas de interés científico y tecnológico nacional,
-susceptibles de financiamiento por el CONICIT.
+Artículo 53.- El Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT)(*) y el Consejo Nacional para la Investigación Científica y Tecnológica (CONICIT), en coordinación con el Consejo Nacional de Rectores (CONARE), le propondrán al Ministerio de Educación Pública programas y proyectos para el mejoramiento de la enseñanza de las ciencias y de la educación técnica, así como los programas anuales para el fortalecimiento de actividades en áreas de interés científico y tecnológico nacional, susceptibles de financiamiento por el CONICIT.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

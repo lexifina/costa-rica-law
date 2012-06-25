@@ -1,7 +1,2 @@
-ARTICULO 47.- Los incentivos para los investigadores,
-correspondientes al régimen de promoción del investigador según el
-artículo anterior, en el caso del inciso a) serán concedidos por el
-Consejo Nacional para la Investigación Científica y Tecnológica
-(CONICIT). La tramitación de las deducciones y exoneraciones indicados en
-los incisos b) y c) será recomendada ante el Ministerio de Hacienda por
-intermedio del Ministerio de Ciencia y Tecnología (MICIT).
+Artículo 47.- Los incentivos para los investigadores, correspondientes al régimen de promoción del investigador según el artículo anterior, en el caso del inciso a) serán concedidos por el Consejo Nacional para la Investigación Científica y Tecnológica (CONICIT). La tramitación de las deducciones y exoneraciones indicados en los incisos b) y c) será recomendada ante el Ministerio de Hacienda por intermedio del Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT)(*).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

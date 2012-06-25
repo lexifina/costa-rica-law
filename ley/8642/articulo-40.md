@@ -1,7 +1,9 @@
 ARTÍCULO 40.- Rendición de cuentas de Fonatel
 Anualmente, Fonatel será objeto de una auditoría externa, la cual será financiada con recursos del Fondo y contratada por la Sutel. Toda la información sobre la operación y el funcionamiento de Fonatel deberá encontrarse disponible para la auditoría interna de la Aresep.
-La Sutel deberá presentar a la Contraloría General de la República y al ministro de Ambiente, Energía y Telecomunicaciones informes semestrales y un informe anual a la Asamblea Legislativa. Estos informes deben incluir la siguiente información:
+La Sutel deberá presentar a la Contraloría General de la República y al jerarca del Ministerio de Ciencia, Tecnología y Telecomunicaciones informes semestrales y un informe anual a la Asamblea Legislativa. Estos informes deben incluir la siguiente información:
+(Así reformado el párrafo anterior por el artículo 9° de la Ley “Traslado del Sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 a) Las estadísticas relevantes sobre la cobertura de los servicios de telecomunicaciones.
 b) Los estados financieros auditados de Fonatel. Estos estados financieros deberán especificar el monto pagado por concepto de la contribución especial parafiscal establecida en el artículo 39 de esta Ley, por cada operador o proveedor y si alguna entidad se encuentra en estado de morosidad.
 c) Un informe sobre el desempeño de las actividades de Fonatel y el estado de ejecución de los proyectos que este financia, así como la información financiera correspondiente desglosada por proyecto.
-La Contraloría General de la República y el ministro de Ambiente, Energía y Telecomunicaciones podrán solicitar los informes adicionales que sean necesarios para garantizar la transparencia y el uso eficiente de los recursos de Fonatel.
+La Contraloría General de la República y el Ministerio de Ciencia, Tecnología y Telecomunicaciones podrán solicitar los informes adicionales que sean necesarios para garantizar la transparencia y el uso eficiente de los recursos de Fonatel.
+(Así reformado el párrafo anterior por el artículo 9° de la Ley “Traslado del Sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

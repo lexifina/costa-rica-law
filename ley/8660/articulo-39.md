@@ -1,5 +1,6 @@
 ARTÍCULO 39.- Rectoría del Sector Telecomunicaciones
-El rector del Sector será el ministro de Ambiente, Energía y (Telecomunicaciones (Minaet), a quien le corresponderán las siguientes funciones:
+El rector del sector será el ministro o la ministra de Ciencia, Tecnología y Telecomunicaciones (Micitt), a quien le corresponderán las siguientes funciones:
+(Así reformado el párrafo anterior por el artículo 10° de la Ley “Traslado del Sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 a) Formular las políticas para el uso y desarrollo de las telecomunicaciones.
 b) Coordinar, con fundamento en las políticas del Sector, la elaboración del Plan nacional de desarrollo de las telecomunicaciones. El primer Plan que se dicte deberá establecer, como mínimo, el acceso para las personas físicas a opciones o paquetes de tarifas que difieran de las aplicadas en
 condiciones normales de explotación comercial, con objeto de garantizar el acceso al servicio telefónico para las personas con necesidades sociales especiales, los habitantes de las zonas donde el servicio no sea financieramente rentable, o las personas que no cuenten con recursos suficientes
@@ -11,6 +12,7 @@ g) Representar al país ante las organizaciones y los foros internacionales de t
 h) Coordinar las políticas de desarrollo de las telecomunicaciones con otras políticas publicas destinadas a promover la sociedad de la información.
 i) Velar por el cumplimiento de la normativa ambiental nacional aplicable y el desarrollo sostenible de las telecomunicaciones en armonía con la naturaleza.
 j) Brindar apoyo técnico al rector en materia de gestión integral de residuos en cuanto a la definición, clasificación y diseño de políticas de gestión de los residuos derivados de las actividades de telecomunicaciones.
-(Así reformdo el inciso anterior por el artículo 58 aparte b) de la ley para la Gestión Integral de Residuos, N° 8839 del 24 de junio de 2010)
+(Así reformado el inciso anterior por el artículo 58 (actual 63) aparte b) de la ley para la Gestión Integral de Residuos, N° 8839 del 24 de junio de 2010)
 k) Las demás funciones que le asigne la ley.
-El Minaet. para cumplir estas funciones y garantizar la calidad e idoneidad (ti.’ su personal, contará con los profesionales y técnicos que requiera en las materias de su competencia. Dichos funcionarios estarán sujetos al régimen jurídico laboral aplicable a los de la Superintendencia de Telecomunicaciones Asimismo, podrá contratar a los asesores y consultores que necesite para el cumplimiento efectivo de sus funciones. La organización, las funciones y demás atribuciones se definirán reglamentariamente
+El ministerio rector, para cumplir estas funciones y garantizar la calidad e idoneidad de su personal, contará con los profesionales y técnicos que requiera en las materias de su competencia. Dichos funcionarios estarán sujetos al régimen jurídico laboral aplicable a los de la Superintendencia de Telecomunicaciones. Asimismo, podrá contratar a los asesores y consultores que necesite para el cumplimiento efectivo de sus funciones. La organización, las funciones y demás atribuciones se definirán reglamentariamente.
+(Así reformado el párrafo anterior por el artículo 10° de la Ley “Traslado del Sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

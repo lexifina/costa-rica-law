@@ -9,4 +9,5 @@ b) En todo el texto de la Ley general de la Administración Pública, N.° 6227,
 b) Al artículo 47, se le adiciona el numeral 7, cuyo texto dirá:
 Artículo 47.-
 [...]
-7.- El Ministerio de Ambiente, Energía y Telecomunicaciones (Minaet) tendrá tres (3) viceministros: uno encargado del Sector Ambiente, uno encargado del Sector Energía y el otro, del Sector Telecomunicaciones. En ausencia del ministro, lo sustituirá cualquiera de los tres (3) viceministros. Las atribuciones asignadas en esta Ley a los viceministros, serán ejercidas por cada uno dentro de sus respectivas áreas de acción.”
+7.- El Ministerio de Ambiente y Energía (Minae) (*) tendrá tres (3) viceministros: uno encargado del Sector Ambiente, uno encargado del Sector Energía y el otro, del Sector Telecomunicaciones. En ausencia del ministro, lo sustituirá cualquiera de los tres (3) viceministros. Las atribuciones asignadas en esta Ley a los viceministros, serán ejercidas por cada uno dentro de sus respectivas áreas de acción.”
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
