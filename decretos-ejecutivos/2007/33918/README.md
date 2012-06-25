@@ -14,3 +14,4 @@ Declara de interés público el Congreso Centroamericano de Innovación Tecnoló
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-17 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
