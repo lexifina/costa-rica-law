@@ -1,9 +1,11 @@
 (Anulada)
-Nº 34959-MINAET-COMEX
+Nº 34959-MINAE(*)-COMEX
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES, Y EL MINISTRO
+EL MINISTRO DE AMBIENTE, ENERGÍA,(*)
+Y EL MINISTRO
 DE COMERCIO EXTERIOR
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades y atribuciones contenidas en los artículos 50, 140, incisos 3) y 18); y 146 de la Constitución Política; los numerales 25, 27 párrafo primero, 28 párrafo segundo, inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; el artículo 8º, inciso j) del Convenio sobre la Diversidad Biológica y sus Anexos, Ley de Aprobación Nº 7416 de 30 de junio de 1994; el artículo 27 del Acuerdo sobre los Aspectos de los Derechos de Propiedad Intelectual relacionados con el Comercio (ADPIC), aprobado mediante la Ley Nº 7475 del 20 de diciembre de 1994; el artículo 117 de la Ley de Biodiversidad, Ley Nº 7788 del 30 de abril de 1998; la Ley Orgánica del Ministerio del Ambiente y Energía, Ley Nº 7152 del 5 de junio de 1990, y el Decreto Ejecutivo Nº 34582-MP-MIDEPLAN del 4 de junio del 2008, denominado Reglamento Orgánico del Poder Ejecutivo; y
 Considerando:
 I.—Que el artículo 8, inciso j) del Convenio sobre la Diversidad Biológica y sus Anexos, aprobado por Costa Rica mediante la Ley Nº 7416 de 30 de junio de 1994, establece el compromiso de respetar, preservar y mantener los conocimientos, las innovaciones y las prácticas de las comunidades indígenas y locales que entrañen estilos tradicionales de vida pertinentes para la conservación y la utilización sostenible de la diversidad biológica y promover su aplicación más amplia, con la aprobación y la participación de quienes posean esos conocimientos, innovaciones y prácticas, y fomentar que los beneficios derivados de la utilización de esos conocimientos, innovaciones y prácticas se compartan equitativamente.
