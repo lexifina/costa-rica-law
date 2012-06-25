@@ -2,10 +2,11 @@ Artículo 2º—Para todos los efectos legales que se deriven de la aplicación 
 a) Consejos: Los Consejos Regionales de Ciencia y Tecnología.
 b) CORECIT: Consejo Regional de Ciencia y Tecnología.
 c) Ley 7169, Ley del 26 de junio de 1990. Ley de Promoción del Desarrollo Científico y Tecnológico.
-d) El Decreto: El Decreto Ejecutivo 28031 - MICIT.
+d) El Decreto: El Decreto Ejecutivo 28031 – MICITT(*).
 e) Ley 6227, Ley General de la Administración Pública del 02 de mayo de 1978.
 f) Ley 7494, Ley de la Contratación Administrativa del 02 de mayo de 1995.
-g) MICIT, Ministerio de Ciencia y Tecnología.
+g) MICITT(*), Ministerio de Ciencia Tecnología y Telecomunicaciones(*).
 h) PNCyT, Programa Nacional de Ciencia y Tecnología.
 i) CyT, Científicas y Tecnológicas.
 j) MIDEPLAN, Ministerio de Planificación Nacional y Política Económica.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

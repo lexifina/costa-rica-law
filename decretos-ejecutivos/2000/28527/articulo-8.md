@@ -14,7 +14,8 @@ Artículo 8º—Los Consejos tendrán las funciones y deberes siguientes:
 a) Presentar a la Coordinación General de los CORECIT, el programa anual de actividades científicas y tecnológicas de la región a ejecutar.
 b) Ejecutar y dar seguimiento al programa anual de actividades.
 c) Asistir a los cursos y capacitaciones que programe la Coordinación General, con el fin de tener un entrenamiento adecuado, para el cumplimiento de los fines establecidos en el Decreto y en la Ley Nº 7169.
-d) Velar por el cumplimiento de las directrices emanadas del Despacho Ministerial del MICIT.
+d) Velar por el cumplimiento de las directrices emanadas del Despacho Ministerial del MICITT(*).
 e) Velar por el efectivo desarrollo científico y tecnológico regional.
 13. Ser intermediario con las jerarquías de las instituciones que representan.
 14. Cualquier otra función que la legislación le asigne.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

@@ -15,3 +15,4 @@ Reglamento de los Consejos Regionales de Ciencia y Tecnología.
 | --- | --- | --- |
 | 1 | 2000-03-23 | la propia norma |
 | 2 | 2000-03-23 | Ley 7 |
+| 3 | 2012-06-25 | Ley 9046 |
