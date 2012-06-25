@@ -22,4 +22,5 @@ XVIII) Extralimitarse en las funciones o deberes que les están encomendados y t
 XIX) Dar órdenes a sus subalternos para la ejecución de asuntos ajenos a su labor oficial.
 XX) Hacerse cargo del trabajo de otros compañeros mediante remuneración.
 XXI) Registrar los escritorios u otros muebles donde se mantengan objetos personales o de trabajo de otro servidor, o hacer uso de los mismos sin la previa autorización de este. En casos excepcionales para fines de trabajo y bajo la responsabilidad del jefe inmediato, podrán utilizarse los útiles de trabajo u obtener documentos que estén bajo la custodia de un servidor ausente. Cualquier otro proceder contrario a las normas, disposiciones o buenas costumbres.
-XXII) Fumar durante su tiempo de servicio dentro de las instalaciones del MICIT.
+XXII) Fumar durante su tiempo de servicio dentro de las instalaciones del MICITT(*).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
