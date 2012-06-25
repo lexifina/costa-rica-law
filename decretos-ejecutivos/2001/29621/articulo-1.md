@@ -1,14 +1,16 @@
-N° 29621-MAG-MICIT
+N° 29621-MAG-MICITT(*)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE AGRICULTURA Y GANADERÍA
-Y DE CIENCIA Y TECNOLOGÍA
-En uso de las facultades establecidas el artículo 140, incisos 3) y 18), de la Constitución Política, la Ley N° 6227 del 2 de mayo de 1978, Ley Genera de la Administración Pública, la Ley N° 7064, del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería y la Ley N° 7169 de 26 de junio del 1990, Ley de Promoción del Desarrollo Científico y Tecnológico.
+Y DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
+En uso de las facultades establecidas el artículo 140, incisos 3) y 18), de la Constitución Política, la Ley N° 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley N° 7064, del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería y la Ley N° 7169 de 26 de junio del 1990, Ley de Promoción del Desarrollo Científico y Tecnológico.
 Considerando:
 1°—Que es necesario coordinar e integrar los esfuerzos de las instituciones del Sector Agropecuario y afines a este que producen, controlan y procesan información.
-2°—Que mediante Decreto Ejecutivo N° 23212-MAG-MICIT, del 27 de abril de 1994, publicado en La Gaceta N° 94 del 17 de mayo del mismo año, se creó la Red Nacional del Información Agropecuaria.
+2°—Que mediante Decreto Ejecutivo N° 23212-MAG-MICITT(*), del 27 de abril de 1994, publicado en La Gaceta N° 94 del 17 de mayo del mismo año, se creó la Red Nacional del Información Agropecuaria.
 3°—Que es necesario actualizar las funciones y estructura de dicha Red, para que esté de acuerdo con el papel que juega la información en los últimos tiempos. Por tanto,
 DECRETAN:
-Artículo 1º—Modifíquense el inciso g) del artículo 2 y los artículos 6, 7, 10, 13, 16, 17, 18 y 20, del Decreto Ejecutivo N° 23212-MAG-MICIT DEL 27 de abril de 1994, y su reforma, para que se lean de la siguiente manera:
+Artículo 1º—Modifíquense el inciso g) del artículo 2 y los artículos 6, 7, 10, 13, 16, 17, 18 y 20, del Decreto Ejecutivo N° 23212-MAG-MICITT(*) DEL 27 de abril de 1994, y su reforma, para que se lean de la siguiente manera:
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 "Artículo 2°—La Red tendrá los siguientes objetivos:
 ...
 ...

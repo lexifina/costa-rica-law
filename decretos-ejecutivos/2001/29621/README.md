@@ -14,3 +14,4 @@ Reforma Red Nacional de Información Agropecuaria.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-05 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
