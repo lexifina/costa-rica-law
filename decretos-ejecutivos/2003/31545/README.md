@@ -16,3 +16,4 @@ Reglamento de Aprobacion y Operación de Sistemas de Tratamiento de Aguas Residu
 | 1 | 2003-12-22 | la propia norma |
 | 2 | 2004-07-02 | Decreto Ejecutivo 32262 (2004-07-02) |
 | 3 | 2006-08-09 | Decreto Ejecutivo 33601 (2006-08-09) |
+| 4 | 2012-06-25 | Ley 9046 |
