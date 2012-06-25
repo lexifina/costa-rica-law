@@ -15,3 +15,4 @@ Se crea "Programa Interinstitucional Aula Móvil"
 | --- | --- | --- |
 | 1 | 2006-03-21 | la propia norma |
 | 2 | 2011-08-30 | Decreto Ejecutivo 36787 (2011-08-30) |
+| 3 | 2012-06-25 | Ley 9046 |
