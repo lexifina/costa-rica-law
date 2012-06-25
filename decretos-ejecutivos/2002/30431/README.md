@@ -15,3 +15,4 @@ Reglamento de la Educación Superior Parauniversitaria
 | --- | --- | --- |
 | 1 | 2002-04-23 | la propia norma |
 | 2 | 2010-10-06 | Decreto Ejecutivo 36289 (2010-10-06) |
+| 3 | 2012-06-25 | Ley 9046 |
