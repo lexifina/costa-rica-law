@@ -14,3 +14,4 @@ Reforma Comisión Internet Costa Rica (CI-CR)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-28 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
