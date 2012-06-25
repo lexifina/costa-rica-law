@@ -15,3 +15,4 @@ Reforma acuerdo SJD-1165-2005 del 6 de diciembre del 2005 "Procedimiento Institu
 | --- | --- | --- |
 | 1 | 2006-03-07 | la propia norma |
 | 2 | 2011-05-03 | Acuerdo 0 (2011-05-03) |
+| 3 | 2012-06-25 | Ley 9046 |
