@@ -13,3 +13,4 @@ Crea Comisión 2000
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-07 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
