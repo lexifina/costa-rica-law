@@ -1,6 +1,7 @@
 Nº 33018
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Con fundamento en lo dispuesto en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; y el artículo 33 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, Nº 8454 del 30 de agosto del 2005.
 Considerando:
 1º—Que la sociedad de la información y del conocimiento se debe construir sobre la base de la confianza de los ciudadanos y sobre la garantía de la utilización de las tecnologías de la información y las comunicaciones en un doble plano: la protección y confidencialidad de los datos de carácter personal y la seguridad de las transacciones electrónicas.

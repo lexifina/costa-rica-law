@@ -4,4 +4,5 @@ Quien sea designado Director deberá reunir los siguientes requisitos:
 1) Poseer un título universitario pertinente al cargo, con grado mínimo de licenciatura.
 2) Tener experiencia profesional demostrable en el tema.
 3) Estar incorporado al respectivo colegio profesional y al día en sus obligaciones con éste.
-4) Los demás que establezca el manual de clasificación y puestos del Ministerio de Ciencia y Tecnología.
+4) Los demás que establezca el manual de clasificación y puestos del Ministerio de Ciencia, Tecnología y Telecomunicaciones (*).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

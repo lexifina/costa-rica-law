@@ -20,13 +20,15 @@ b. Durante el uso, es el acto de comparar electrónicamente las credenciales y l
 16) CONTROL MÚLTIPLE: Condición mediante la cual dos o más partes, separada y confidencialmente, tienen la custodia de los componentes de una llave particular, pero que individualmente no tienen conocimiento de la llave resultante.
 17) DATOS DE ACTIVACIÓN: Valores de datos (que no son las llaves), que son requeridos para operar los módulos criptográficos y que necesitan ser protegidos (ejemplo: PINs, frase clave, biométricos o llaves distribuidas manualmente).
 18) DECLARACIÓN DE LAS PRÁCTICAS DE CERTIFICACIÓN (DPC): Declaración de las prácticas que utiliza el certificador para la emisión de los certificados (define el equipo, las políticas y los procedimientos que el certificador utiliza para satisfacer los requerimientos especificados en las políticas del certificado que son soportados por él).
-19) DIRECCIÓN DE CERTIFICADORES DE FIRMA DIGITAL (DCFD): Dependencia del Ministerio de Ciencia y Tecnología, encargada de la administración y supervisión del sistema de certificación digital.
+19) DIRECCIÓN DE CERTIFICADORES DE FIRMA DIGITAL (DCFD): Dependencia del Ministerio de Ciencia, Tecnología y Telecomunicaciones (*), encargada de la administración y supervisión del sistema de certificación digital.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 20) DISPOSITIVO O MODULO SEGURO DE CREACION DE FIRMAS (MSCF): Dispositivo que resguarda las claves y el certificado de un suscriptor, utilizado para generar su firma digital y que, al menos, garantiza:
 a. Que los datos utilizados para la generación de la firma solo pueden producirse una vez en la práctica y se garantiza razonablemente su confidencialidad;
 b. Que existe una expectativa razonable de que los datos utilizados para la generación de la firma no pueden ser descubiertos por deducción y la firma está protegida contra falsificación por medio de la tecnología disponible a la fecha, siendo posible detectar cualquier alteración posterior; y,
 c. Que los datos empleados en la generación de la firma pueden ser protegidos de modo fiable por el firmante legítimo, contra su utilización por cualesquiera terceros.
 21) DOCUMENTO ELECTRÓNICO: Cualquier manifestación con carácter representativo o declarativo, expresada o transmitida por un medio electrónico o informático.
-22) ENTE COSTARRICENSE DE ACREDITACIÓN (ECA): La dependencia pública a que se refiere la “Ley del Sistema Nacional para la Calidad”, número 8279 de 2 de mayo del 2002.
+22) ENTE COSTARRICENSE DE ACREDITACIÓN (ECA): La dependencia pública a que se refiere la “Ley del Sistema Nacional para la Calidad”, número 8279(*) de 2 de mayo del 2002.
+(*) (Nota de Sinalevi: La ley N° 8279 a la que hace referencia el inciso anterior fue derogada por el numeral 83 de la Ley del Sistema Nacional para la Calidad, N° 10473 del 24 de abril de 2024)
 23) ENTIDAD FINAL: Suscriptor del certificado.
 24) FIRMA DIGITAL: Conjunto de datos adjunto o lógicamente asociado a un documento electrónico, que permita verificar su integridad, así como identificar en forma unívoca y vincular jurídicamente al autor con el documento.
 25) FIRMA DIGITAL CERTIFICADA: Una firma digital que haya sido emitida al amparo de un certificado digital válido y vigente, expedido por un certificador registrado.
