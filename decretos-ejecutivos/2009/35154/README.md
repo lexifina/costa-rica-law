@@ -14,3 +14,4 @@ Modificación al Artículo 1° del Decreto Ejecutivo N° 34931-MINAET, del 15 de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-27 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
