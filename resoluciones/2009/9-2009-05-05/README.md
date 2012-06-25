@@ -14,3 +14,4 @@ Comunica la emisión de resoluciones de la Dirección General de Servicio Civil:
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-19 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
