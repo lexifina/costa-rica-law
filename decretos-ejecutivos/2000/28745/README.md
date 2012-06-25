@@ -17,3 +17,4 @@ Traspaso tierras al INDER programa de Titulación Cuenca del Río Aranjuez
 | 2 | 2007-06-13 | Ley 7 |
 | 3 | 2008-02-14 | Decreto Ejecutivo 34506 (2008-02-14) |
 | 4 | 2012-05-11 | Ley 9036 |
+| 5 | 2012-06-25 | Ley 9046 |
