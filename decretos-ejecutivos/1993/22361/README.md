@@ -14,3 +14,4 @@ Declara de Interés Histórico Edificio de Antigua Penitenciaría Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-08-18 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
