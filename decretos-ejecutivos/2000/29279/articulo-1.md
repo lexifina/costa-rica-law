@@ -1,9 +1,10 @@
 (Derogado)
-(Este decreto fue derogado por el artículo 19° del decreto ejecutivo N° 35216 del 11 de marzo del 2009).
 Nº 29279-MINAE-MAG
+(Este decreto fue derogado por el artículo 19° del decreto ejecutivo N° 35216 del 11 de marzo del 2009).
 EL PRESIDENTE DE LA REPÚBLICA
-Y LOS MINISTROS DEL AMBIENTE Y ENERGÍA
+Y LOS MINISTROS DE AMBIENTE Y ENERGÍA(*)
 Y DE AGRICULTURA Y GANADERÍA
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En el ejercicio de las facultades que les confiere el artículo 140, inciso 3) de la Constitución Política.
 Considerando:
 1º—Que tanto el gobierno como los diversos segmentos de la sociedad costarricense se han comprometido a promover en forma conjunta la puesta en marcha de la Declaración de Río de Janeiro, así como la Agenda 21 y la Alianza Centroamericana para el Desarrollo Sostenible.

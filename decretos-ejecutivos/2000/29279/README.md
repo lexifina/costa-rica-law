@@ -16,3 +16,4 @@ Crea la Comisón Asesora sore Degradación de Tierras (CEDETI)
 | 1 | 2001-02-12 | la propia norma |
 | 2 | 2002-02-06 | Decreto Ejecutivo 30231 (2002-02-06) |
 | 3 | 2009-03-11 | Decreto Ejecutivo 35216 (2009-03-11) |
+| 4 | 2012-06-25 | Ley 9046 |
