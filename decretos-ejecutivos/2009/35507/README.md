@@ -14,3 +14,4 @@ Reglamento del Consejo Regional del Área de Conservación Tempisque
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-29 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

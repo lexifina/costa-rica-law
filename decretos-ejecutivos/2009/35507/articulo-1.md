@@ -1,7 +1,8 @@
-Nº 35507-MINAET
+Nº 35507-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades constitucionales conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política de Costa Rica, artículos 29 y 30 de la ley de Biodiversidad Nº 7788 del 30 de abril de 1998 y los artículos 22, 30, 31, 32, 33,34, 35, 36 37, 38 y 39 del Reglamento a la Ley de Biodiversidad Decreto Ejecutivo Nº 34433-MINAE del 11 de marzo del 2008.
 Considerando:
 1º—Que el artículo 50 de la Constitución Política consagra a favor de todos los habitantes de la Nación el derecho a un ambiente sano y ecológicamente equilibrado, siendo que este derecho incluye la conservación uso y manejo sostenible de la biodiversidad y la equitativa distribución de beneficios derivados de esta, asegurando la mayor participación de la comunidad.
