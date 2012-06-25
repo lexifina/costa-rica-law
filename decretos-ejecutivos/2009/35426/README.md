@@ -14,3 +14,4 @@ Crea Refugio Nacional de Vida Silvestre Conchal, categoría mixto y crea Comité
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-18 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
