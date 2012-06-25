@@ -13,3 +13,4 @@ De Interés II Semana Nacional Profesional Informática y Computación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-22 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
