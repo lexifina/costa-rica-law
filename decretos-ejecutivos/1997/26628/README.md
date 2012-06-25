@@ -14,3 +14,4 @@ Declara de Interés Público Acceso a INTERNET
 | --- | --- | --- |
 | 1 | 1998-01-30 | la propia norma |
 | 2 | 1998-01-30 | SINALEVI (sin norma nombrada) |
+| 3 | 2012-06-25 | Ley 9046 |
