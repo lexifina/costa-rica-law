@@ -1,6 +1,7 @@
 Artículo 6º—Sobre los Miembros de la CR2Net. Los miembros se clasifican de la siguiente forma:
 a. Miembro Fundador:
-1.Ministerio de Ciencia y Tecnología.
+1.Ministerio de Ciencia Tecnología y Telecomunicaciones(*).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 2. Consejo Nacional de Rectores.
 3. Universidad de Costa Rica.
 4. Universidad Nacional.

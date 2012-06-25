@@ -10,7 +10,8 @@ g. El Rector de la Universidad Estatal a Distancia o su representante.
 h. El Presidente de la Academia Nacional de Ciencias o su representante.
 i. El Presidente de la Asociación CRNet o su representante.
 El segundo nivel, denominado Comité Técnico inicialmente está conformado por un representante técnico de cada una de las siguientes instituciones:
-a. Ministerio de Ciencia y Tecnología (MICIT).
+a. Ministerio de Ciencia Tecnología y Telecomunicaciones(MICITT)(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 b. Instituto Costarricense de Electricidad (ICE).
 c. Caja Costarricense del Seguro Social (CCSS).
 d. Universidad de Costa Rica (UCR).
