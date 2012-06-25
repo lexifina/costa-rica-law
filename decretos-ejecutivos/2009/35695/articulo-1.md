@@ -1,7 +1,8 @@
-Nº 35695-MINAET
+Nº 35695-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 De conformidad con las atribuciones que les conceden los artículos 50, 140, incisos 3), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27 inciso 1, 28 inciso 2 punto b) de la Ley General de la Administración Pública, Ley No 6227 del 2 de mayo de 1978 y los artículos 2), 3), 15), 16), 21) y 31 inciso c) y e) y transitorio I) y II) del Título I de la Ley Orgánica del Colegio de Ingenieros Químicos y Profesionales Afines y Ley Orgánica del Colegio de Químicos de Costa Rica, Ley Nº 8412 del 22 de abril de 2004.
 Considerando:
 1º—Que la Ley 8412, Titulo I, creó el Colegio de Ingenieros Químicos y Profesionales Afines y que la implementación de la mencionada ley requiere los reglamentos adecuados para su funcionamiento y operación.

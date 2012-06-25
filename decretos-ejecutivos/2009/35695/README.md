@@ -15,3 +15,4 @@ Reglamento al Título I de la Ley Orgánica del Colegio de Ingenieros Químicos 
 | --- | --- | --- |
 | 1 | 2010-01-26 | la propia norma |
 | 2 | 2011-09-27 | SINALEVI (sin norma nombrada) |
+| 3 | 2012-06-25 | Ley 9046 |
