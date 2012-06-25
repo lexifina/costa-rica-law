@@ -13,3 +13,4 @@ Nombramiento de Inspectores de Aguas del MINAE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-27 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
