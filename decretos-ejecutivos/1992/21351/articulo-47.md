@@ -1,1 +1,0 @@
-Artículo 47.-Las instituciones integrantes del Subsector proveerán a la Secretaría de Planificación Subsectorial, mediante convenio, de los recursos humanos y técnicos necesarios para la realización de sus funciones de conformidad con las disposiciones legales vigentes.

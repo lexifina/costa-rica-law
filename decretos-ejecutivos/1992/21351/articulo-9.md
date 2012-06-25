@@ -1,2 +1,0 @@
-Artículo 9°-El Consejo Nacional Sectorial de Recursos Naturales, Energía y Minas se reunirá ordinariamente por lo menos cada tres meses y extraordinariamente cada vez que sea convocado por su Presidente.
-El Consejo establecerá sus propios procedimientos y normas de trabajo, que deberán formularse mediante reglamento interno. Los miembros del Consejo Nacional Sectorial de Recursos Naturales, Energía y Minas, realizarán sus funciones adhonorem y serán juramentados por el Ministro Rector en la primera sesión a la que sean convocados.

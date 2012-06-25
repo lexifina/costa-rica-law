@@ -1,1 +1,0 @@
-Artículo 23.-Corresponderá al Comité Sectorial Regional de Recursos Naturales, Energía y Minas como tal. programar y coordinar las actividades del Sector Recursos Naturales, Energía y Minas en la región, en apoyo tanto del Ministro Rector como del Consejo Regional de Desarrollo, respectivo.

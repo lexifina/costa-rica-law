@@ -1,1 +1,0 @@
-Artículo 14.-EI Secretario de la Secretaría Ejecutiva de Planificación Sectorial de Recursos Naturales, Energía y Minas, actuará como colaborador directo del Ministro Rector y será asimismo el Secretario Ejecutivo del Consejo Nacional Sectorial de Recursos Naturales, Energía y Minas, participando en sus sesiones con derecho a voz.

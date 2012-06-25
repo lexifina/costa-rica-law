@@ -1,1 +1,0 @@
-Artículo 58.-La Secretaría de Planificación Subsectorial de Minas estará a cargo de un Director, nombrado y removido por el Presidente del Consejo Nacional Sectorial de Recursos Naturales, Energía y Minas, previa consulta con el Consejo.
