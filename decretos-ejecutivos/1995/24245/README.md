@@ -13,3 +13,4 @@ Creación Consejo Nacional para la Competitividad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-05-25 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
