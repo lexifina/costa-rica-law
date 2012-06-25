@@ -14,3 +14,4 @@ Reglamento Premio de Periodismo en Ciencia, Tecnología e Innovación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-13 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
