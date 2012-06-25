@@ -15,3 +15,4 @@ Reforma Estudios hidrogeológicos para el trámite de perforación de pozos
 | --- | --- | --- |
 | 1 | 2009-06-17 | la propia norma |
 | 2 | 2011-01-31 | Acuerdo 4078 (2011-01-31) |
+| 3 | 2012-06-25 | Ley 9046 |
