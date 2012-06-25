@@ -14,3 +14,4 @@ Autorización Compensatoria a las Empresas y Embarcaciones Dedicadas a Actividad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-24 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
