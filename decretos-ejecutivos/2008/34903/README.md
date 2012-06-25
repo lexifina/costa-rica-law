@@ -15,3 +15,4 @@ Reforma Reglamento sobre Registro, Uso y Control de Plaguicidas Sintéticos Form
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
 | 2 | 2010-02-25 | Decreto Ejecutivo 35828 (2010-02-25) |
+| 3 | 2012-06-25 | Ley 9046 |

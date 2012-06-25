@@ -1,12 +1,14 @@
 (Derogado)
-Nº 34903-MAG-S-MINAET-MEIC-COMEX
+Nº 34903-MAG-S-MINAE(*)-MEIC-COMEX
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 (Este decreto fue derogado por el artículo 1° del decreto jecutivo N° 35828 del 25 de febrero de 2010)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE AGRICULTURA Y GANADERÍA,
 LA MINISTRA DE SALUD,
-EL MINISTRO DE AMBIENTE, ENERGÍA Y TELECOMUNICACIONES,
+EL MINISTRO DE AMBIENTE Y ENERGÍA(*),
 EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
 Y EL MINISTRO DE COMERCIO EXTERIOR
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades y atribuciones contenidas en los artículos 50, 140 incisos 3) y 18); y 146 de la Constitución Política; los numerales 25, 27 párrafo primero, 28 párrafo segundo, inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; la Ley de Información no Divulgada, Ley Nº 7975 del 4 de enero de 2000; la Ley de Fomento a la Producción Agropecuaria (FODEA) y Orgánica del Ministerio de Agricultura y Ganadería (MAG), Ley Nº 7064 del 29 de abril de 1987; la Ley de Protección Fitosanitaria, Ley Nº 7664 del 8 de abril de 1997; la Ley para la Importación y Control de la Calidad de Agroquímicos, Ley Nº 7017 del 16 de diciembre de 1985; la Ley General de Salud, Ley Nº 5395 del 30 de octubre de 1973; la Ley Orgánica del Ministerio de Salud, Ley Nº 5412 del 8 de noviembre de 1973; la Ley de Biodiversidad, Ley Nº 7788 del 30 de abril de 1998; la Ley de Conservación de la Vida Silvestre, Ley Nº 7317 del 30 de octubre de 1992; la Ley de Uso, Manejo y Conservación de Suelos, Ley Nº 7779 del 30 de abril de 1998; Ley Orgánica del Ministerio del Ambiente y Energía, Ley Nº 7152 del 5 de junio de 1990; la Ley Orgánica del Ambiente, Ley Nº 7554 del 4 de octubre de 1995; la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977; la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994; la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley Nº 8220 del 4 de marzo de 2002; la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, Ley Nº 7638 del 30 de octubre de 1996; el Tratado de Libre Comercio República Dominicana-Centroamérica-Estados Unidos, Ley de Aprobación Nº 8622 del 21 de noviembre de 2007; y el Decreto Ejecutivo Nº 34582–MP-MIDEPLAN del 4 de junio de 2008, denominado Reglamento Orgánico del Poder Ejecutivo; y
 Considerando:
 I.—Que es un derecho fundamental de los habitantes gozar de un ambiente sano y ecológicamente equilibrado, así como un deber ineludible del Estado procurarlo.
@@ -21,7 +23,8 @@ Ingrediente Activo Grado Técnico, Coadyuvantes
 y Sustancias Afines de Uso Agrícola, Decreto Ejecutivo
 Nº 33495-MAG-S-MINAE-MEIC del
 31 de octubre de 2006
-Artículo 1º—Modifíquese el artículo 2 del Decreto Ejecutivo Nº 33495-MAG-S-MINAET-MEIC del 31 de octubre de 2006, publicado en el Diario Oficial La Gaceta Nº 7 del 10 de enero de 2007, que aprobó el “Reglamento sobre Registro, Uso y Control de Plaguicidas Sintéticos Formulados, Ingrediente Activo Grado Técnico, Coadyuvantes y Sustancias Afines de Uso Agrícola”, de la siguiente forma:
+Artículo 1º—Modifíquese el artículo 2 del Decreto Ejecutivo Nº 33495-MAG-S-MINAE(*)-MEIC del 31 de octubre de 2006, publicado en el Diario Oficial La Gaceta Nº 7 del 10 de enero de 2007, que aprobó el “Reglamento sobre Registro, Uso y Control de Plaguicidas Sintéticos Formulados, Ingrediente Activo Grado Técnico, Coadyuvantes y Sustancias Afines de Uso Agrícola”, de la siguiente forma:
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 a) Adiciónese a la Sección 3 “Definiciones”, tres apartados cuyos textos serán:
 “3. Definiciones.
 […]
