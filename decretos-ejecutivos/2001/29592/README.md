@@ -14,3 +14,4 @@ Declara de Interés Cultural el Proyecto "Parque Marino del Pacífico"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-14 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
