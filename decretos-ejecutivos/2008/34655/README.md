@@ -14,3 +14,4 @@ Declara de interés público "X Congreso Internacional de topografía, Catastro,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-31 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
