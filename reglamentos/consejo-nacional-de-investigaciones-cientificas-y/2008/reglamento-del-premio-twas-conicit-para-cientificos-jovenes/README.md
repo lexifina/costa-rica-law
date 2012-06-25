@@ -14,3 +14,4 @@ Reglamento del Premio Twas/CONICIT para Científicos Jóvenes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
