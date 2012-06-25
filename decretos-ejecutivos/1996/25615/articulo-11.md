@@ -1,1 +1,0 @@
-Artículo 11.—La administración deberá establecer y mantener programas de entrenamiento para los funcionarios de la Auditoría, en el área propia de su competencia y en disciplinas complementarias, como: informática, presupuesto, fundamentos legales, entre otras.
