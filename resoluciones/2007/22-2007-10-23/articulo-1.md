@@ -13,5 +13,6 @@ DG-248-07.—Prorrogar la delegación otorgada por medio de la Resolución DG-10
 DG-249-07.—Prorrogar la delegación otorgada por medio de la Resolución DG-107-2007 a el funcionario Fernando Lobo Ugalde, cédula 7-041-543, quien ocupa la Jefatura del Departamento de Recursos Humanos del Ministerio de Cultura, Juventud y Deportes.
 DG-250-07.—Prorrogar la delegación otorgada por medio de la Resolución DG-177-2007 al funcionario Carlos Calvo Coto, cédula 1-615-274, quien ocupa la Jefatura de Recursos Humanos del Registro Nacional.
 DG-251-07.—Delegar en el funcionario Juan Carlos Pérez Gómez, cédula 3-0227-0587, quien ocupa la Jefatura de Recursos Humanos del Instituto Costarricense contra Drogas (ICD).
-DG-252-07.—Delegar en la funcionaria Marjorie Romero Odio, cédula 1-0540-0393, quien ocupa la Jefatura de Recursos Humanos del Ministerio de Ciencia y Tecnología.
+DG-252-07.—Delegar en la funcionaria Marjorie Romero Odio, cédula 1-0540-0393, quien ocupa la Jefatura de Recursos Humanos del Ministerio de Ciencia, Tecnología y Telecomunicaciones (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 DG-253-07.—Delegar en el funcionario Abelardo Quirós Rojas, cédula 2-0406-0652, quien ocupa la Jefatura de Recursos Humanos del Ministerio de Relaciones Exteriores y Culto
