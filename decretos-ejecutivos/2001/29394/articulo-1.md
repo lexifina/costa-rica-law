@@ -1,8 +1,7 @@
-PODER EJECUTIVO
-DECRETOS
 Nº 29394-MINAE
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+Y LA MINISTRA DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política en relación con los artículos 3º, 46, 47, inciso d) y 69) de la Ley Forestal Nº 7575 del 5 de febrero de 1996, y de conformidad con el artículo 3 inciso c) y d), del Convenio Regional para el Manejo y Conservación de Ecosistemas Naturales Forestales y el Desarrollo de Plantaciones Forestales, Ley Nº 7572 del 1º de febrero de 1996 y el artículo 4º, párrafo 1, inciso d), de La Convención Marco de las Naciones Unidas sobre Cambio Climático, Ley Nº 7414 del 6 de junio de 1994.
 Considerando:
 1º—Que es política del Gobierno reconocer a los propietarios y propietarias de bosques y plantaciones forestales el pago de los servicios ambientales que brindan las áreas boscosas, tales como mitigación de emisiones de gases efecto invernadero, protección de recurso hídrico para el consumo humano y generación de energía eléctrica, protección de la biodiversidad y belleza escénica.
@@ -20,7 +19,8 @@ Considerando:
 a. Cien hectáreas de bosque dedicados a la protección, en terrenos ubicados dentro de las áreas del Proyecto Corredor Biológico Mesoamericano (Sección Costa Rica).
 b. Aumento de 100% en la participación de comunidades indígenas en el Programa de Pago de Servicios Ambientales.
 c. Aumento de un 30% en la participación de mujeres propietarias en el Programa de Pago de Servicios Ambientales.
-13.—Que en la ejecución del Proyecto ECOMERCADOS, deberá garantizarse en el cumplimiento de las políticas de equidad de género emanadas del Ministerio del Ambiente y Energía, las cuales deberán expresarse en el aumento de un 30% de mujeres beneficiarias del pago de servicios ambientales en un plazo de cinco años, con una meta anual del 6% de mujeres beneficiarias. Este 30% comprenderá un 17% para proyectos de grupos y un 13% para proyectos individuales.
+13.—Que en la ejecución del Proyecto ECOMERCADOS, deberá garantizarse en el cumplimiento de las políticas de equidad de género emanadas del Ministerio de Ambiente y Energía(*), las cuales deberán expresarse en el aumento de un 30% de mujeres beneficiarias del pago de servicios ambientales en un plazo de cinco años, con una meta anual del 6% de mujeres beneficiarias. Este 30% comprenderá un 17% para proyectos de grupos y un 13% para proyectos individuales.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 14.—Que en la selección de proyectos bajo la modalidad de protección de bosques las Áreas de Conservación, deben dar prioridad a las solicitudes de áreas ubicadas dentro del Proyecto Corredor Biológico Mesoamericano (Sección Costa Rica), con el fin de contribuir a su fortalecimiento y consolidación de este.
 15.—Que en concordancia con las políticas de género establecidas por el Ministerio de Ambiente y Energía, el Programa de Pago de Servicios Ambientales promoverá la participación equitativa entre propietarias y propietarios.
 16.—Que el acuerdo de cooperación financiera firmado entre el gobierno de Costa Rica y Alemania, fortalece el Programa de Pago de Servicio Ambientales, mediante la reforestación, manejo sostenible y la protección de 43 000 hectáreas en un período de tres años, ubicados en la zona norte del país (Área de Conservación Arenal Huetar Norte y la Subregión Sarapiquí, del Área de Conservación Cordillera Volcánica Central), contribuyendo a mejorar el balance neto de emisiones de CO2 en Costa Rica y aumentar los efectos externos positivos de los bosques.
