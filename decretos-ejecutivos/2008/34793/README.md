@@ -15,3 +15,4 @@ Nombran miembros que integran la Comisión Nacional para la Gestión de la Biodi
 | --- | --- | --- |
 | 1 | 2008-10-17 | la propia norma |
 | 2 | 2011-01-24 | Decreto Ejecutivo 36603 (2011-01-24) |
+| 3 | 2012-06-25 | Ley 9046 |
