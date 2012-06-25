@@ -1,1 +1,2 @@
-Artículo 5º—Los aspectos técnicos del proceso serán coordinados por un Comité Técnico integrado por representantes del Ministerio de Ciencia y Tecnología, de la Cámara de Industrias de Costa Rica y de las empresas promotoras.
+Artículo 5º—Los aspectos técnicos del proceso serán coordinados por un Comité Técnico integrado por representantes del Ministerio de Ciencia, Tecnología y Telecomunicaciones(*), de la Cámara de Industrias de Costa Rica y de las empresas promotoras.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

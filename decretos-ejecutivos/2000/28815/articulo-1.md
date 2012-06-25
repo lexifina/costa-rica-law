@@ -1,8 +1,6 @@
-PODER EJECUTIVO
-DECRETOS
-Nº 28815-MICIT
+Nº 28815-MICITT(*)
 El PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
 En uso de las atribuciones que les confiere el artículo 140 de la Constitución Política en sus incisos 3) y 18), y con fundamento en la "Ley de Promoción del Desarrollo Científico y Tecnológico" No. 7169, del 26 de junio de 1990.
 Considerando:
 1º—Que en el contexto mundial de grandes transformaciones hacia la competitividad, la búsqueda de la excelencia resulta una vía facilitadora para la evolución económica y social de los países.
@@ -13,4 +11,5 @@ Considerando:
 6º—Que tanto las Universidades Públicas como privadas deben involucrarse en este tipo de procesos para fortalecer la vinculación Universidad-Empresa.
 7º—Que la excelencia es un mecanismo para propiciar una mejora en la calidad de vida de todos los costarricenses.
 DECRETAN:
-Artículo 1º—Se declara de interés nacional el "Proceso de Excelencia" coordinado por la Cámara de Industrias de Costa Rica y las empresas fundadoras o promotoras quienes trabajarán en estrecha coordinación con el Ministerio de Ciencia y Tecnología.
+Artículo 1º—Se declara de interés nacional el "Proceso de Excelencia" coordinado por la Cámara de Industrias de Costa Rica y las empresas fundadoras o promotoras quienes trabajarán en estrecha coordinación con el Ministerio de Ciencia, Tecnología y Telecomunicaciones(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

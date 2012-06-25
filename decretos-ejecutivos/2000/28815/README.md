@@ -14,3 +14,4 @@ Declara de Interés Nacional el "Proceso de Exelencia" de la Cámara de Industri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-09 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
