@@ -14,3 +14,4 @@ Crea y Regula Sistema Integrado de Servicios a la Inversión SISI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-05-16 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
