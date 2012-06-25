@@ -14,3 +14,4 @@ Declara de interés público todas las actividades que se realicen con ocasión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-19 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

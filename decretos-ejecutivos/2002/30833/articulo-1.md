@@ -1,9 +1,10 @@
-Nº 30833-MP-MINAE-MICIT
+Nº 30833-MP-MINAE-MICITT(*)
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
 LA MINISTRA DE LA PRESIDENCIA,
-EL MINISTRO DEL AMBIENTE Y ENERGÍA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+Y EL MINISTRO DE CIENCIA TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Con fundamento en lo dispuesto en artículos 140, incisos 3), 18), y 20) y 146 de la Constitución Política.
 Considerando:
 I.—Que el campo de la definición de las políticas energéticas, marco regulatorio, aplicación de nuevas tecnologías, así como el acceso a la asistencia técnica y en pro de la mejora del campo académico de los profesionales en la ingeniería eléctrica, es base del progreso de cualquier país y Costa Rica quiere estar a la vanguardia, para alcanzar un alto nivel técnico en el desarrollo eléctrico, para mejorar la calidad de vida y el crecimiento económico de los costarricenses.
