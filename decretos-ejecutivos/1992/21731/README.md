@@ -14,3 +14,4 @@ Reglamento al Capítulo II del Título IV de la Ley 7169 Creación de los Colegi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-11-17 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
