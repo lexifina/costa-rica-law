@@ -15,3 +15,4 @@ Reglamento de asignación del beneficio correspondiente al "Fondo de Promoción 
 | --- | --- | --- |
 | 1 | 2009-05-18 | la propia norma |
 | 2 | 2009-07-31 | Reglamento 0 (2009-07-31) |
+| 3 | 2012-06-25 | Ley 9046 |
