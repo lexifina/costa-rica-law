@@ -15,3 +15,4 @@ Procedimiento de cobro aplicable mediante el formulario ECA-MC-MA-P07
 | --- | --- | --- |
 | 1 | 2009-04-15 | la propia norma |
 | 2 | 2012-06-05 | Acuerdo 0 (2012-06-05) |
+| 3 | 2012-06-25 | Ley 9046 |
