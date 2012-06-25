@@ -18,3 +18,4 @@ Reglamento "Plan Maestro General del Proyecto Turístico Golfo de Papagayo"
 | 3 | 2004-08-03 | Reglamento 5317 (2004-08-03) |
 | 4 | 2010-06-22 | Acuerdo 0 (2010-06-22) |
 | 5 | 2012-03-27 | Reglamento 5740 (2012-03-27) |
+| 6 | 2012-06-25 | Ley 9046 |
