@@ -14,3 +14,4 @@ Amplía alcances del Programa Bandera Azul Ecológica, como incentivo para organ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-15 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
