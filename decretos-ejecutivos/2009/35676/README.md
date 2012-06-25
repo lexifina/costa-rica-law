@@ -14,3 +14,4 @@ Reglamento de control de sustancias agotadoras de la capa de ozono (SAO) de acue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-05 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
