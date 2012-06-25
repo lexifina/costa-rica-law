@@ -16,3 +16,4 @@ Reglamento Orgánico del Centro de Formación de Formadores y de Personal Técni
 | 1 | 2004-01-23 | la propia norma |
 | 2 | 2006-05-18 | Decreto Ejecutivo 33284 (2006-05-18) |
 | 3 | 2007-03-09 | Decreto Ejecutivo 33686 (2007-03-09) |
+| 4 | 2012-06-25 | Ley 9046 |
