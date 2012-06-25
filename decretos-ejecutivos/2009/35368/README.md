@@ -14,3 +14,4 @@ Reglamento para Quemas Agrícolas Controladas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-30 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
