@@ -14,3 +14,4 @@ Manual de Procedimientos para el pago de servicios ambientales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-05 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

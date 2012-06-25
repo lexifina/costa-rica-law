@@ -1,7 +1,7 @@
 Anexo 10
 FORMATO DE RESOLUCIÓN DE APROBACIÓN PSA
 Resolución Nº ______
-Ministerio del Ambiente y Energía, Fondo Nacional de Financiamiento Forestal, Oficina Regional de FONAFIFO _________________________, a las __________horas (minutos) del día _________ del mes _________ del dos mil
+Ministerio de Ambiente y Energía(*), Fondo Nacional de Financiamiento Forestal, Oficina Regional de FONAFIFO _________________________, a las __________horas (minutos) del día _________ del mes _________ del dos mil
 Resultando:
 PRIMERO: Vista la solicitud presentada por (Calidades del solicitante: nombre, cédula de identidad, oficio, estado civil, vecino de ___________ (en caso de persona jurídica, indicar representante de la sociedad, cédula jurídica, cita de inscripción, nombre y calidades de la representación legal), y con fundamento en lo establecido en la Ley Forestal Nº 7575 del 16 de abril de 1996 y su reglamento Decreto Ejecutivo Nº 25721-MINAE del 23 de enero de 1997 y sus reformas, se acuerda: _______________
 Considerando:
@@ -20,7 +20,7 @@ Firma:_________________________________
 Anexo 10a
 FORMATO RESOLUCIÓN DE APROBACIÓN DE PSA PARA SAF
 Resolución Nº ______
-Ministerio del Ambiente y Energía, Fondo Nacional de Financiamiento Forestal, Oficina Regional de FONAFIFO ________________a las ________horas (minutos) del día _________ del mes _________ del dos mil__________
+Ministerio de Ambiente y Energía(*), Fondo Nacional de Financiamiento Forestal, Oficina Regional de FONAFIFO ________________a las ________horas (minutos) del día _________ del mes _________ del dos mil__________
 Resultando:
 PRIMERO: Vista la solicitud presentada por (Calidades del solicitante: nombre, cédula de identidad, oficio, estado civil, vecino de ___________ (en caso de persona jurídica, indicar representante de la sociedad, cédula jurídica, cita de inscripción, nombre y calidades de la representación legal), y con fundamento en lo establecido en la Ley Forestal Nº 7575 del 16 de abril de 1996 y su reglamento Decreto Ejecutivo Nº 25721-MINAE del 23 de enero de 1997 y sus reformas, se acuerda:_________________________
 Considerando:
@@ -36,3 +36,4 @@ Notificado por:__________________________
 Fecha:_________________________________
 Lugar:_________________________________
 Firma:_________________________________
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
