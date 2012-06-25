@@ -2,7 +2,8 @@
 N° 21316-MICIT
 (Este decreto fue derogado por el artículo 12 del Reglamento al Título II de la Ley de Promoción de Desarrollo Científico y Tecnológico, aprobado mediante decreto jecutivo N° 32817 del 19 de setiembre de 2005)
 EL PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGIA,
+Y EL MINISTRO DE CIENCIA, TECNOLOGIA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las atribuciones que le confiere los incisos 3) y 18) del artículo 140 de la Constitución Política, en la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978 y en cumplimiento de lo dispuesto por el transitorio único de la Ley de Promoción del Desarrollo Científico y Tecnológico, ley N° 7169 del 26 de junio de 1990,
 Considerando:
 1°- Que la Ley de Promoción del Desarrollo Científico y Tecnológico crea al Sistema Nacional de Ciencia y Tecnología.
@@ -16,7 +17,8 @@ Considerando:
 9°- Que se hace indispensable mejorar las políticas de metrología, de normalización de gestión de calidad y gestión tecnológica, para lograr mejor competitividad y crecimiento del sector productivo nacional.
 10- Que la enseñanza y la formación de científicos y tecnólogos se debe adaptar paulatinamente al desarrollo del país, lo que requiere establecer medidas a corto, mediano y largo plazo.
 11- Que la Ley de Promoción del Desarrollo Científico y Tecnológico crea mecanismos que fortalecen los servicios científicos y tecnológicos en campos relacionados con la producción, la promoción, la difusión y la aplicación de conocimiento de todas las áreas de la ciencia y tecnología.
-12- Que es obligación del Ministerio de Ciencia y Tecnología en representación del Estado costarricense, promover la elaboración de instrumentos jurídicos adecuados para la promoción del desarrollo científico y tecnológico. Por tanto,
+12- Que es obligación del Ministerio de Ciencia, Tecnología y Telecomunicaciones(*) en representación del Estado costarricense, promover la elaboración de instrumentos jurídicos adecuados para la promoción del desarrollo científico y tecnológico. Por tanto,
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Decretan:
 REGLAMENTO DEL TITULO II DE LA LEY DE PROMOCION DEL DESARROLLO
 CIENTIFICO Y TECNOLOGICO

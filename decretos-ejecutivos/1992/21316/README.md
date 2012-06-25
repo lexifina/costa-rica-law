@@ -15,3 +15,4 @@ Reglamento al Título II Ley de Promoción del Desarrollo Científico y Tecnoló
 | --- | --- | --- |
 | 1 | 1992-06-25 | la propia norma |
 | 2 | 2005-09-19 | Decreto Ejecutivo 32817 (2005-09-19) |
+| 3 | 2012-06-25 | Ley 9046 |

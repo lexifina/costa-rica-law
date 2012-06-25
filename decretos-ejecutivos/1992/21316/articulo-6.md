@@ -3,7 +3,8 @@ De la integración y estructura organizativa del Sistema Nacional
 De Ciencia y Tecnología
 Artículo 6°- El Sistema Nacional de Ciencia y Tecnología está integrado por:
 a) Las instituciones cuyo campo de acción es objeto de dirección jerárquica o política por parte del Ministro Rector, sa saber:
-- Ministerio de Ciencia y Tecnología (MICIT).
+- Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT)(*).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 - Consejo Nacional de Investigación Científica y Tecnológica (CONICIT).
 b) Los Ministerios cuyas actividades influyen en el desarrollo científico y tecnológico del país:
 - Ministerio de Planificación Nacional y Política Económica.
