@@ -15,3 +15,4 @@ Reglamento a la Ley N° 8591 Reglamento para el Desarrollo, Promoción y Fomento
 | --- | --- | --- |
 | 1 | 2009-06-04 | la propia norma |
 | 2 | 2010-11-02 | Decreto Ejecutivo 36472 (2010-11-02) |
+| 3 | 2012-06-25 | Ley 9046 |

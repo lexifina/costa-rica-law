@@ -14,7 +14,8 @@ Artículo 5º—Abreviaturas utilizadas en este Reglamento
 13. INTA: Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria
 14. MAG: Ministerio de Agricultura y Ganadería
 15. MEP: Ministerio de Educación Pública
-16. MINAET: Ministerio de Ambiente, Energía y Telecomunicaciones
+16. MINAE(*): Ministerio de Ambiente y Energía (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 17. OIT: Organización Internacional del Trabajo
 18. ONS: Oficina Nacional de Semillas
 19. PAI: Programa de Abastecimiento Institucional
