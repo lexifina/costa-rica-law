@@ -1,8 +1,9 @@
 N° 34276
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE EDUCACIÓN PÚBLICA, CULTURA,
-JUVENTUD Y DEPORTES, CIENCIA Y TECNOLOGÍA, AMBIENTE
+JUVENTUD Y DEPORTES, CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES (*), AMBIENTE
 Y ENERGÍA Y RELACIONES EXTERIORES Y CULTO
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades contenidas en los artículos 89 y 140 de la Constitución Política y el artículo 27 de la Ley General de la Administración Pública.
 Considerando:
 I.—Que la República de Costa Rica es miembro integrante de la Organización de las Naciones Unidas para la Educación, la Ciencia y la Cultura (UNESCO).
