@@ -15,3 +15,4 @@ Modifica para el Instituto de Desarrollo Rural (INDER), el gasto Presupuestario 
 | --- | --- | --- |
 | 1 | 2009-05-04 | la propia norma |
 | 2 | 2012-05-11 | Ley 9036 |
+| 3 | 2012-06-25 | Ley 9046 |
