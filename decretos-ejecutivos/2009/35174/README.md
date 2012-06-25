@@ -14,3 +14,4 @@ Declara de Interés Público Investigación y Producción de Insulina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-22 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
