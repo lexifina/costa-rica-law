@@ -1,11 +1,11 @@
 N° 27103-H
-LA PRIMERA VICEPRES 1DENTA
+LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA.
-En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140^ de la Constitución Política ; el 1° de la Ley N ° 6821 y el 2° de su Reglamento.
+En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 de la Constitución Política; el 1° de la Ley N ° 6821 y el 2° de su Reglamento.
 Considerando:
 1°—Que la Autoridad Presupuestaria está facultada para emitir el procedimiento de aplicación e implementación de las Directrices Generales de Política Presupuestaria del Sector Público.
-2°—Que para lograr las metas del Gobierno se requiere una mejor asignación de los recursos públicos, por lo que es conveniente agrupar a las entidades publicas por sectores de acción gubernamental.
+2°—Que para lograr las metas del Gobierno se requiere una mejor asignación de los recursos públicos, por lo que es conveniente agrupar a las entidades públicas por sectores de acción gubernamental.
 3°—Que es necesario a efectos de uniformar los términos presupuestarios, tomar como referencia algunas de las definiciones del Manual de Normas Técnicas de la Contraloría General de la República.
 4°—Que la Autoridad Presupuestaria formuló el Procedimiento, en acuerdo número 5099, tomado en sesión extraordinaria No 1-98, celebrada el 28 de mayo de 1998. Por tanto,
 DECRETAN:
@@ -46,7 +46,8 @@ Sector agropecuario: Ministerio de Agricultura y Ganadería, Consejo Nacional de
 Sector ambiente y energía: Ministerio de Ambiente y Energía, Compañía Nacional de Fuerza y Luz, Dirección de Geología, Minas e Hidrocarburos, Fondo Forestal, Fondo Parques Nacionales, Fondo Vida Silvestre, Instituto Costarricense de Electricidad, Instituto Meteorológico Nacional, Radiográfica Costarricense, S. A.. Refinadora Costarricense de Petróleo.
 Sector condición de la mujer: Ministerio de la Condición de la Mujer , Instituto Nacional de las Mujeres.
 Sector cultura y recreación: Ministerio de Cultura, Juventud y Deportes, Centro Costarricense de Producción Cinematográfica, Centro Cultural', Histórico José Figueres Ferrer, Comisión de Conmemoraciones Históricas, Compañía Nacional de Teatro y sus Programas, Dirección General del Archivo Nacional, Dirección General de Educación Física y Deportes, Dirección General de Museos, Movimiento Nacional de Juventudes, Museo de Arte Costarricense, Museo Dr., Rafael Ángel Calderón Guardia, Museo Histórico Cultural Juan Santamaría, Museo Nacional de Costa Rica, Orquesta Sinfónica Nacional, Teatro Mélico Salazar, Teatro Nacional de Costa Rica, Sistema Nacional de Radio y Televisión Cultural:
-Sector desarrollo tecnológico: Ministerio de Ciencia y Tecnología, Academia Nacional de Ciencias, Consejo Nacional de Investigaciones Científicas y Tecnológicas, Comisión' Nacional de Energía Atómica.
+Sector desarrollo tecnológico: Ministerio de Ciencia, Tecnología y Telecomunicaciones(*), Academia Nacional de Ciencias, Consejo Nacional de Investigaciones Científicas y Tecnológicas, Comisión Nacional de Energía Atómica.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Sector economía, industria y comercio: Ministerio de Economía, Industria y Comercio, Ministerio de Comercio Exterior, Instituto Costarricense de Turismo, Junta de Desarrollo Regional de la Zona Sur.
 Sector educación y recursos humanos: Ministerio de Educación Pública. Centro de Formación de Formadores, Colegio Universitario de Alajuela, Colegio Universitario de Cartago, Colegio Universitario de Puntarenas, Colegio Universitario para el Riego y Desarrollo del Trópico Seco, Comisión Nacional Préstamos para Educación, Editorial Costa Rica, Escuela Centroamericana de Ganadería, Instituto Nacional de Aprendizaje, Programa de Mejoramiento de Calidad dé la Educación Básica.
 Sector finanzas y crédito público: Ministerio dé Hacienda, Instituto de Fomento y Asesoría Municipal, Instituto de Fomento Cooperativo, Instituto Nacional de Seguros.
