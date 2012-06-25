@@ -1,8 +1,10 @@
-Nº 35152-S-MINAET-RE
+Nº 35152-S-MINAE(*)-RE
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA,
-LA MINISTRA DE SALUD, EL MINISTRO DE AMBIENTE,
-ENERGÍA Y TELECOMUNICACIONES Y EL MINISTRO
+LA MINISTRA DE SALUD, EL MINISTRO DE AMBIENTE Y
+ENERGÍA (*) Y EL MINISTRO
 DE RELACIONES EXTERIORES Y CULTO
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que les confieren los artículos 140 incisos 3), 18) y 146 de la Constitución Política; 2, 4, 7, 37, 38, 39, 293, 294, 327, 328, 329, 337, 345 inciso 7), 347, 349, 355, 363 y 364 y concordantes de la Ley N° 5395 del 30 de octubre de 1973, “Ley General de Salud”; 6 del Ley Nº 5412 del 8 de noviembre de 1973, “Ley Orgánica del Ministerio de Salud”, 25, 49, 59, 60, 62, 63 de la Ley Nº 7554 del 4 de octubre de 1995, “Ley Orgánica del Ambiente”, así como en lo dispuesto en el numeral 18 de la Ley N° 7438, “Convenio de Basilea sobre el Control de los Movimientos Transfronterizos de los Desechos Peligrosos y su Eliminación.”,
 Considerando:
 1º—Que de conformidad con el artículo 1° de la Ley General de Salud, “La salud de la población es un bien de interés público tutelado por el Estado.”
