@@ -13,3 +13,4 @@ Declara Interés Público Reunión Complementaria Sociedad Americana deFarmacogn
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-10-10 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
