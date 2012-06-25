@@ -1,2 +1,3 @@
-Artículo 145.—De la inscripción. Una vez notificada la resolución de otorgamiento de la autorización el Ministerio del Ambiente y Energía inscribirá de oficio la misma, en el libro de inscripciones del Registro Nacional Minero, a efecto de terceros.
+Artículo 145.—De la inscripción. Una vez notificada la resolución de otorgamiento de la autorización el Ministerio de Ambiente y Energía(*) inscribirá de oficio la misma, en el libro de inscripciones del Registro Nacional Minero, a efecto de terceros.
 Una vez otorgada la autorización, el órgano solicitante podrá iniciar las labores demostrando haber realizado los trámites pertinentes para la publicación ordenada en el artículo anterior.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

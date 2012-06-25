@@ -17,3 +17,4 @@ Reglamento al Código de Minería
 | 2 | 2001-07-12 | Decreto Ejecutivo 29677 (2001-07-12) |
 | 3 | 2004-04-28 | Decreto Ejecutivo 31792 (2004-04-28) |
 | 4 | 2007-06-18 | Decreto Ejecutivo 33777 (2007-06-18) |
+| 5 | 2012-06-25 | Ley 9046 |
