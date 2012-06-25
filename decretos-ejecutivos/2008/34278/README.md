@@ -14,3 +14,4 @@ Creación del Subsistema Nacional de Indicadores de Ciencia, Tecnología e Innov
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-07 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

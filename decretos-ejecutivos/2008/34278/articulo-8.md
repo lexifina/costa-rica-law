@@ -1,4 +1,5 @@
-Artículo 8º—Funciones. Para el cumplimiento de sus objetivos, la Dirección de Planificación del Ministerio de Ciencia y Tecnología, tendrá las siguientes funciones:
+Artículo 8º—Funciones. Para el cumplimiento de sus objetivos, la Dirección de Planificación del Ministerio de Ciencia, Tecnología y telecomunicaciones (*), tendrá las siguientes funciones:
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 a. Ejercer la Secretaría Técnica de la Comisión de Indicadores de Ciencia, Tecnología e Innovación, mediante la asistencia del (a) Director (a) o su representante, a las reuniones, levantamiento de actas, seguimiento de acuerdos y otros. Tendrá el derecho a voz pero no a voto.
 b) Fortalecer enlaces de cooperación con Organismos o Programas nacionales e internacionales relacionados con el tema.
 c) Establecer los mecanismos de coordinación necesarios con los distintos sectores del país generadores y recolectores de información, con el fin de que la información sea suficiente, confiable y oportuna.
