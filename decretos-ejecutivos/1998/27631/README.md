@@ -14,3 +14,4 @@ Regulaciones para la Caza Menor y Mayor y Pesca Continental e InsularRige a part
 | --- | --- | --- |
 | 1 | 1999-02-23 | la propia norma |
 | 2 | 1999-02-23 | SINALEVI (sin norma nombrada) |
+| 3 | 2012-06-25 | Ley 9046 |
