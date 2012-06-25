@@ -15,3 +15,4 @@ Política y Criterios para la Participación en Ensayos/ Pruebas de Aptitud y ot
 | --- | --- | --- |
 | 1 | 2006-03-22 | la propia norma |
 | 2 | 2012-05-25 | Acuerdo 0 (2012-05-25) |
+| 3 | 2012-06-25 | Ley 9046 |
