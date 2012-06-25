@@ -13,7 +13,8 @@ j) Solicitar a la Comisión para Promover la Competencia los criterios técnicos
 k) Desarrollar e implementar los mecanismos e instrumentos necesarios para vigilar la conducta y actuaciones de los operadores y proveedores en relación con el régimen de acceso e interconexión y recomendar al Consejo sobre las interpretaciones de los acuerdos de acceso e interconexión y las acciones y medidas para asegurar que el acceso e interconexión sea provisto en forma oportuna y en términos y condiciones no discriminatorias, razonables transparentes, proporcionadas al uso.
 l) Recibir la notificación de los operadores cuando inicien negociaciones para el acceso e interconexión. Promover la diversidad de los servicios de telecomunicaciones y la introducción de nuevas tecnologías.
 m) Asegurar el cumplimiento de las obligaciones de acceso e interconexión que se impongan a los operadores de redes de telecomunicaciones, así como la interoperabilidad de dichas redes.
-n) Emitir criterio sobre expropiación forzosa o la imposición de servidumbres que le solicite el Ministerio de Ambiente, Energía y Telecomunicaciones.
+n) Emitir criterio sobre expropiación forzosa o la imposición de servidumbres que le solicite el Ministerio de Ambiente y Energía (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 o) Aprobar los contratos de acceso a la capacidad de cables submarinos.
 p) Suplir los criterios técnicos al Poder Ejecutivo para que autorice la ruta de cada cable submarino.
 q) Proponer las razones para apartarse de los criterios de la Comisión para Promover la Competencia.

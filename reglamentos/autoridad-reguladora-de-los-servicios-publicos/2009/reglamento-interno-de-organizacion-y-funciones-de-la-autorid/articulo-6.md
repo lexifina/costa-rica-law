@@ -15,7 +15,8 @@ b. Dictar los reglamentos técnicos que se requieran para la correcta aplicació
 c. Dictar las metodologías regulatorias que se aplicarán en los diversos mercados.
 d. Establecer las definiciones, los requisitos y las condiciones a que se someterán los trámites de tarifas y precios de los servicios públicos.
 e. Otorgar las concesiones de servicio público para la venta de energía.
-f. Emitir criterio sobre las normas técnicas que la SUTEL vaya a proponer al MINAET.
+f. Emitir criterio sobre las normas técnicas que la SUTEL vaya a proponer al MINAE (*).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 g. Resolver, agotando la vía administrativa, los recursos relacionados con asuntos de competencia de la Autoridad Reguladora conforme lo establece la ley.
 h. Conocer y resolver las apelaciones a las resoluciones que, en temas regulatorios, sean emitidas por las Superintendencias y sus órganos desconcentrados.
 i. Resolver los recursos que se presenten contra las resoluciones que dicte la SUTEL en materia de fijación de tarifas, cánones, tasas y contribuciones de telecomunicaciones.
