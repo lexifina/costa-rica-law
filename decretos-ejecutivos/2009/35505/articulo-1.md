@@ -1,9 +1,9 @@
-Nº 35505-MOPT-S-MEIC-MINAET
+Nº 35505-MOPT-S-MEIC-MINAE(*)
 EL PRESIDENTE DE LA REPÚBLICA,
 LA MINISTRA DE OBRAS PÚBLICAS Y TRANSPORTES,
 LA MINISTRA DE SALUD, EL MINISTRO DE ECONOMÍA
-INDUSTRIA Y COMERCIO, Y EL MINISTRO DE AMBIENTE,
-ENERGÍA Y TELECOMUNICACIONES
+INDUSTRIA Y COMERCIO, Y EL MINISTRO DE AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades que les confieren los artículos 11, 140, incisos 3), 8), 18) y 20); 146, 148, 149 inciso 6) de la Constitución Política del 7 de noviembre de 1949; artículos 4, 11, 25, 27, 98, 99, 100, 112 inciso 3), 113 inciso 1) de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978; y de conformidad con lo dispuesto por la Ley de Creación del Ministerio de Obras Públicas y Transportes, Ley Nº 4786 del 5 de julio de 1971 y sus reformas; la Ley de Administración Vial, Ley Nº 6324 del 24 de mayo de 1979; el artículo 101 de la Ley de Tránsito por Vías Públicas Terrestres, Nº 7331 del 13 de abril de 1993; y sus reformas la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977; la Ley Orgánica del Ministerio de Salud, Ley Nº 5412 del 8 de noviembre de 1973, y la Ley General de Salud, Ley Nº 5395 del 30 de octubre de 1973.
 Considerando:
 1º—Que ha sido notable el intercambio comercial y el uso de las vías públicas para el transporte de toda clase de bienes y productos, desde y hacia cualquier punto del territorio nacional e internacional.
@@ -14,7 +14,8 @@ Considerando:
 6º—Que el Ministerio de Salud tiene la obligación de velar porque toda persona natural o jurídica que se ocupe de la importación, fabricación, manipulación, almacenamiento, venta, distribución, transporte y suministro de sustancias o productos tóxicos, o sustancias peligrosas o así declaradas, realice dichas operaciones en condiciones tales, que permitan eliminar o minimizar el riesgo para la salud y la seguridad de las personas y animales que pudieren quedar expuestos con ocasión de su trabajo, tenencia, uso o consumo, según corresponda.
 7º—Que es función del Ministerio de Salud, dictar las disposiciones reglamentarias pertinentes en relación con el registro obligatorio, el contenido de la rotulación del producto, sus envases y empaques, la simbología pertinente, la naturaleza del producto, sus riesgos y contraindicaciones, los antídotos que correspondieren, entre otros, todo lo cual resulta de especial importancia tratándose de sustancias o productos tóxicos o de sustancias peligrosas o así declaradas.
 8º—Que el Ministerio de Economía, Industria y Comercio, por medio del Órgano de Reglamentación Técnica, es el órgano competente en lo relacionado con la confección de las normas técnicas relacionadas con dicha materia.
-9º—Que en el artículo 5 de la Ley Nº 7593 publicada el 5 de setiembre de 1996, establece el suministro de combustible derivado de hidrocarburos como un servicio público y dispone que sea el Ministerio del Ambiente, Energía y Telecomunicaciones, quien otorgue la autorización para prestar el servicio público de almacenamiento y venta de combustibles derivados de hidrocarburos a consumidores finales.
+9º—Que en el artículo 5 de la Ley Nº 7593 publicada el 5 de setiembre de 1996, establece el suministro de combustible derivado de hidrocarburos como un servicio público y dispone que sea el Ministerio del Ambiente y Energía (*), quien otorgue la autorización para prestar el servicio público de almacenamiento y venta de combustibles derivados de hidrocarburos a consumidores finales.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 10.—Que en virtud de lo expuesto, se requiere reglamentar las condiciones técnicas y jurídicas bajo las cuales es posible el transporte terrestre de productos o sustancias tóxicas y peligrosas. Por tanto,
 Decretan:
 “OFICIALIZACIÓN DE GUÍA DE RESPUESTA EN CASO

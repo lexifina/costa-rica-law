@@ -15,3 +15,4 @@ Oficializa "Guia de Respuesta en Caso de Emergencia para el Transporte de Materi
 | --- | --- | --- |
 | 1 | 2009-09-23 | la propia norma |
 | 2 | 2010-02-04 | Decreto Ejecutivo 35861 (2010-02-04) |
+| 3 | 2012-06-25 | Ley 9046 |
