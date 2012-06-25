@@ -1,14 +1,14 @@
-DECRETOS
 Nº 31610-S-MINAE-TUR
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE SALUD,
-EL MINISTRO DEL AMBIENTE Y ENERGÍA Y EL MINISTRO DE TURISMO
+EL MINISTRO DE AMBIENTE Y ENERGÍA(*) Y EL MINISTRO DE TURISMO
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que le confiere el artículo 140, incisos 3) y 18) de la Constitución Política y;
 Considerando:
 I.—Que por Decreto Ejecutivo Nº 25636-MINAE-S del 31 de octubre de 1996, publicado en el Diario Oficial, el jueves 28 de noviembre de 1996, se le dio fundamento legal al Programa Bandera Azul Ecológica.
-II.—Que mediante el Decreto Ejecutivo Nº 27010-MINAE-S del 21 de abril de 1998, publicado el jueves 4 de junio de 1998, se modificó el Decreto original con el objetivo de introducir la gradación de las estrellas o categorías “A”, “AA” y “AAA”, en el incentivo Bandera Azul Ecológica. III.—Que el Programa Bandera Azul Ecológica, nace como una respuesta al constante peligro de contaminación existente en nuestras costas, que atenta contra la salud pública y la industria del turismo.
-IV.—Que la Comisión Nacional del Programa Bandera Azul Ecológica, realizó, el 3 de mayo del 2001 un Plan Estratégico para el período 2001-2006, en el cual se modificó el objetivo general, se establecieron nuevas metas y se amplió el programa a comunidades; para lo cual se definen dos categorías de agrupaciones participantes:
-Organización comunal de playas y comunidades.
+II.—Que mediante el Decreto Ejecutivo Nº 27010-MINAE-S del 21 de abril de 1998, publicado el jueves 4 de junio de 1998, se modificó el Decreto original con el objetivo de introducir la gradación de las estrellas o categorías “A”, “AA” y “AAA”, en el incentivo Bandera Azul Ecológica.
+III.—Que el Programa Bandera Azul Ecológica, nace como una respuesta al constante peligro de contaminación existente en nuestras costas, que atenta contra la salud pública y la industria del turismo.
+IV.—Que la Comisión Nacional del Programa Bandera Azul Ecológica, realizó, el 3 de mayo del 2001 un Plan Estratégico para el período 2001-2006, en el cual se modificó el objetivo general, se establecieron nuevas metas y se amplió el programa a comunidades; para lo cual se definen dos categorías de agrupaciones participantes: Organización comunal de playas y comunidades.
 V.—Que es de interés nacional promover la excelencia higiénicosanitaria de las playas y comunidades, con el objetivo de fortalecer la salud pública y el atractivo turístico del mayor número de comunidades y playas ubicadas en el territorio nacional. Por tanto,
 DECRETAN:
 Artículo 1º—El Programa BAE tiene por objetivo general establecer un incentivo para promover la organización de comités locales que involucren la participación de la ciudadanía, con el afán de desarrollar las playas y comunidades y mejorar las condiciones higiénico sanitarias, en concordancia con la protección de los recursos hídricos y ambiente en general.

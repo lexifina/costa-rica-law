@@ -17,3 +17,4 @@ Promueve la excelencia higiénicosanitaria de las playas y comunidades, mediante
 | 2 | 2007-01-31 | Decreto Ejecutivo 33604 (2007-01-31) |
 | 3 | 2008-07-01 | Decreto Ejecutivo 34777 (2008-07-01) |
 | 4 | 2009-03-13 | Decreto Ejecutivo 35162 (2009-03-13) |
+| 5 | 2012-06-25 | Ley 9046 |
