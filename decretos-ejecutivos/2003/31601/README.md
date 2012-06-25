@@ -14,3 +14,4 @@ Declara de Interés Nacional el Proyecto de la Fundación Paniamor denominado "T
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-22 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
