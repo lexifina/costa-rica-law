@@ -1096,7 +1096,8 @@ SOMÁTICO PARA LECHE). 21.000.000,00
 Total Aumento del Programa: 873-00 23.380.388,00
 Total Aumento del Título: 127 2.278.619.358,24
 TÍTULO: 128
-Ministerio de Ciencia y Tecnología
+Ministerio de Ciencia, Tecnología y Telecomunicaciones(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Programa: 894-00
 TRANSFERENCIAS Y APORTES VARIOS
 Registro Contable: 128-894-00
