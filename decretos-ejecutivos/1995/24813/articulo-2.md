@@ -1,1 +1,0 @@
-Artículo 2º.- Para realizar las funciones asignadas, dicha dependencia cuenta con los recursos provenientes de los presupuestos ordinarios y extraordinarios de la República, así como los recursos captados por medio de donaciones u otras transferencias, ya sea de entes públicos como de entes privados.

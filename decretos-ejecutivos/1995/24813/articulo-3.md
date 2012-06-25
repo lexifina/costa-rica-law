@@ -1,2 +1,0 @@
-Artículo 3º.- Por el interés que tiene para la seguridad de los habitantes de la República y para la vida económica del país, se declaran de interés público los servicios de transporte de todos los productos derivados de petróleo, producidos nacionalmente o importados.
-Este servicio se prestará conforme a lo establecido en la legislación nacional, este Decreto Ejecutivo y las resoluciones administrativas dictadas por los órganos competentes.
