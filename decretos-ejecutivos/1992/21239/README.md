@@ -14,3 +14,4 @@ Crea Comisión Democratización y Formación Empresas de Exfuncionarios
 | --- | --- | --- |
 | 1 | 1992-05-11 | la propia norma |
 | 2 | 2006-11-01 | Decreto Ejecutivo 33504 (2006-11-01) |
+| 3 | 2012-06-25 | Ley 9046 |
