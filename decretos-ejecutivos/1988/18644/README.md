@@ -13,3 +13,4 @@ Acuerdo Financiamiento Educación Superior Universitaria Estatal1989-1993
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-11-28 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
