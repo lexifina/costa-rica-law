@@ -1,6 +1,7 @@
 28610-MINAE
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+Y LA MINISTRA DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades que le confiere el artículo N° 140, incisos 3) y 18) de la Constitución Política en relación con los artículos 3°, 46, 47, inciso d) y 69 de la Ley Forestal, N° 7575 del 5 de febrero de 1996, y de conformidad con el artículo 3° inciso c) y d), del Convenio Regional para el Manejo y Conservación de Ecosistemas Naturales Forestales y el Desarrollo de Plantaciones Forestales, Ley N° 7572 del 1 ° de febrero de 1996 y el artículo 4, párrafo 1, inciso d), de la Convención Marco de las Naciones Unidas sobre Cambio Climático, Ley N° 7414 del 6 de junio de 1994.
 Considerando:
 1°-Que es política del Gobierno reconocer a los propietarios de bosques y plantaciones forestales el pago de los servicios ambientales que brindan las áreas boscosas, tales como, mitigación de emisiones de gases electo invernadero, protección de recurso hídrico para el consumo humano) generación de energía eléctrica, protección de la biodiversidad y belleza escénica.
