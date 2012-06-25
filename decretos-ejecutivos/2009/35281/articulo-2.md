@@ -1,4 +1,5 @@
-Artículo 2º—Modifíquese al artículo 23) del Decreto Ejecutivo Número 33963-MICIT “Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación”, del 31 de julio del 2007, publicado en La Gaceta Nº 185 del 26 de setiembre del 2007; para que en lo consiguiente se lea de la siguiente manera:
+Artículo 2º—Modifíquese al artículo 23) del Decreto Ejecutivo Número 33963-MICITT (*) “Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación”, del 31 de julio del 2007, publicado en La Gaceta Nº 185 del 26 de setiembre del 2007; para que en lo consiguiente se lea de la siguiente manera:
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 “Artículo 23.—De las funciones del Comité Ejecutivo: Son funciones del Comité Ejecutivo:
 a) Dar seguimiento a la adecuada ejecución del plan anual de trabajo y el presupuesto anual del ECA.
 b) Autorizar los permisos de salida del país y disfrute de periodo de vacaciones de la Gerencia.
