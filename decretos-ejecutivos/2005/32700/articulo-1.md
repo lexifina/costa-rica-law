@@ -1,9 +1,10 @@
 Nº 32700
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE PLANIFICACIÓN NACIONAL
-Y POLÍTICA ECONÓMICA, DE CIENCIA Y TECNOLOGÍA,
+Y POLÍTICA ECONÓMICA, DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES (*),
 DE ECONOMÍA, INDUSTRIA Y COMERCIO
 Y DE COMERCIO EXTERIOR
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades establecidas en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25.1 y 28.2. inciso b) de la Ley General de la Administración Pública, (Nº 6227 de 2 de mayo de 1978); 3 inciso c) de la Ley de Planificación Nacional (Nº 5525 de 2 de mayo de 1974); 1 al 8 y 21 de la Ley de Promoción del Desarrollo Científico y Tecnológico (N° 7169 de 26 de junio de 1990); 1 y 2 de la Ley Orgánica del Ministerio de Economía, Industria y Comercio (N° 6054 de 23 de junio de 1977) y 2 de la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica (N° 7638 de 30 de octubre de 1996).
 Considerando:
 I.—Que durante el siglo XX la sociedad costarricense realizó millonarias inversiones en educación, salud e infraestructura de telecomunicaciones y electricidad, bases para que el país desarrollara una sólida plataforma pública y privada de tecnologías de información y comunicación (TIC) que hoy es reconocida internacionalmente y que representa una sobresaliente oportunidad para que el país acelere su desarrollo económico y social, en la era de la globalización y la construcción de la sociedad del conocimiento.

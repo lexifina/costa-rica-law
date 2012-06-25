@@ -14,3 +14,4 @@ Declara de interés público las actividades científicas, tecnológicas, indust
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-21 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
