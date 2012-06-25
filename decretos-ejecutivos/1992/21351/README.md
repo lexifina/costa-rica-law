@@ -15,3 +15,4 @@ Constitución del Sector Recursos Naturales, Energía y Minas
 | --- | --- | --- |
 | 1 | 1992-07-14 | la propia norma |
 | 2 | 2011-06-14 | Decreto Ejecutivo 36646 (2011-06-14) |
+| 3 | 2012-06-25 | Ley 9046 |

@@ -1,7 +1,7 @@
 Artículo 2°-Integran el Sector de Recursos Naturales, Energía y Minas:
 a) El Ministerio de Recursos Naturales, Energía y Minas.
 b) El Ministerio de Planificación Nacional y Política Económica.
-c) El Ministerio de Ciencia y Tecnología.
+c) El Ministerio de Ciencia, Tecnología y Telecomunicaciones(*).
 ch) El Instituto Costarricense de Acueductos y Alcantarillados.
 d) El Instituto Costarricense de Electricidad.
 e) El Servicio Nacional de Electricidad.
@@ -24,3 +24,4 @@ i) Serán instituciones de apoyo a la actividad sectorial, a través de los prog
 -La Comisión Nacional de Asuntos Indígenas.
 -La Comisión Nacional de Energía Atómica; y
 j) Cualesquiera otras instituciones que determine el Presidente de la República, atendiendo propuesta del Ministro de Recursos Naturales, Energía y Minas.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

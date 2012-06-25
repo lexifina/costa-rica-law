@@ -3,7 +3,7 @@ De la integración de los Subsectores
 Artículo 32.-El Subsector Recursos Naturales estará integrado por las siguientes instituciones:
 a) El Ministerio de Recursos Naturales, Energía y Minas.
 b) El Ministerio de Planificación Nacional y Política Económica.
-c) El Ministerio de Ciencia y Tecnología.
+c) El Ministerio de Ciencia, Tecnología y Telecomunicaciones(*).
 ch) El Instituto Costarricense de Electricidad.
 d) El Instituto Costarricense de Acueductos y Alcantarillados.
 e) El Servicio Nacional de Electricidad.
@@ -22,3 +22,4 @@ g) Serán instituciones de apoyo, a través de los programas y proyectos afines 
 -La Comisión Nacional de Asuntos Indígenas.
 -Los Centros de Educación Superior con programas de investigación y enseñanza afines al Subsector.
 h) Cualesquiera otras instituciones que determine el Ministro Rector de Recursos Naturales, Energía y Minas.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
