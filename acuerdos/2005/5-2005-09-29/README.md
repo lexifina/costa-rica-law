@@ -14,3 +14,4 @@ Política de Trazabilidad e Incertidumbre de las Mediciones (El Ente Costarricen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-04 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

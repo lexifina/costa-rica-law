@@ -1,7 +1,8 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
 POLÍTICA DE TRAZABILIDAD E INCERTIDUMBRE DE LAS MEDICIONES
 (Nota de Sinalevi: El Ente Costarricense de Acreditación aprobó mediante publicación en La Gaceta N° 94 del 16 de mayo de 2008, una nueva Política de Trazabilidad e Incertidumbre de las mediciones )
-La Junta Directiva del Ente Costarricense de Acreditación, en cumplimiento del artículo 21 de la Ley del Sistema Nacional para la Calidad, Nº 8279, en su sesión Nº 013 del 29 de setiembre del 2005, mediante acuerdo Nº 5, declarado firme y de conformidad con el apartado 8.2.2 de la Norma INTE-ISO/IEC 17011:2004, ha establecido la Política de Trazabilidad e Incertidumbre de las Mediciones, como requisito de acreditación que deben cumplir todos los interesados (Organismos de Evaluación de la Conformidad) acreditados y en proceso. Esta Política rige a partir de su publicación y notificación a los Organismos de Evaluación de la Conformidad, de conformidad con el inciso c) del artículo 20 del Reglamento de Estructura Interna y Funcionamiento del ECA, Decreto Ejecutivo Nº 31821-MICIT.
+La Junta Directiva del Ente Costarricense de Acreditación, en cumplimiento del artículo 21 de la Ley del Sistema Nacional para la Calidad, Nº 8279, en su sesión Nº 013 del 29 de setiembre del 2005, mediante acuerdo Nº 5, declarado firme y de conformidad con el apartado 8.2.2 de la Norma INTE-ISO/IEC 17011:2004, ha establecido la Política de Trazabilidad e Incertidumbre de las Mediciones, como requisito de acreditación que deben cumplir todos los interesados (Organismos de Evaluación de la Conformidad) acreditados y en proceso. Esta Política rige a partir de su publicación y notificación a los Organismos de Evaluación de la Conformidad, de conformidad con el inciso c) del artículo 20 del Reglamento de Estructura Interna y Funcionamiento del ECA, Decreto Ejecutivo Nº 31821-MICITT (*).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 POLÍTICA DE TRAZABILIDAD E INCERTIDUMBRE
 DE LAS MEDICIONES
 TABLA DE CONTENIDO
@@ -208,7 +209,8 @@ IV. DOCUMENTOS DE REFERENCIA Y BIBLIOGRAFÍA
 · Guía BIPM/ISO para la expresión de la incertidumbre en mediciones.
 · Norma INTE-ISO/IEC 17025:2005 Requisitos generales para la competencia de laboratorios de ensayo y calibración.
 · Ley del Sistema Nacional para la Calidad número 8279, 21 de mayo del 2002.
-· Reglamento de Estructura Interna y Funcionamiento del ECA, Decreto Ejecutivo número 31821-MICIT.
+· Reglamento de Estructura Interna y Funcionamiento del ECA, Decreto Ejecutivo número 31821-MICITT (*).
+· (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 · ECA-MC Manual de Calidad.
 · ECA-MC-P20-G01 Guía para el cálculo de la incertidumbre.
 · ECA-MC-P09 Procedimiento general de evaluación y acreditación.
