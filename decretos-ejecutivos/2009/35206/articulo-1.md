@@ -1,8 +1,9 @@
-Nº 35206-MP-MINAET
+Nº 35206-MP-MINAE (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE LA PRESIDENCIA,
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades que les confiere los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, y de conformidad con lo dispuesto por la Ley Nº 8641 “Declaratoria del Servicio de Hidrantes como Servicio Público y Reforma de Leyes Conexas”, de 11 de junio del 2008.
 Considerando:
 1º—Que el Estado debe adaptar su normativa vigente a los cambios sociales y a favor de los derechos y obligaciones de los administrados.
