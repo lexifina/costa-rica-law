@@ -1,9 +1,10 @@
 (Anulada)
-Nº 34801-MINAET
+Nº 34801-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 (Nota de Sinalevi: Mediante sentencia oral del Tribunal Contencioso Administrativo N° 4399-2010 del 14 de diciembre de 2010, (expediente 08-001282-1027-CA), se anula el presente decreto ejecutivo). Adicionalmente esta sentencia fue objeto de Recurso de Casación N° 1469-F-S1-2011 del 30 de noviembre de 2011, la cual reafirma el contenido de la sentencia referida)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENT Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades que les confieren los artículos 11, 140 incisos 3) y 18) y 146 de la Constitución Política y el numeral 27 de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978 y los artículos 3 inciso m), 19 inciso b) 33 y 34 de la Ley Forestal Nº 7575 del 13 de febrero de 1996 y el artículo 2 del Decreto Ejecutivo Nº 25721-MINAE, del 17 de octubre de 1996.
 Considerando:
 I.—Que los artículos 19, inciso b) y 34 de la Ley Forestal Nº 7575 prohíben el cambio de uso de suelo y la corta de árboles en terrenos cubiertos de bosque y en áreas de protección, exceptuando aquellos proyectos estatales o privados que el Poder Ejecutivo declare de Conveniencia Nacional.
