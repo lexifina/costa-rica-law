@@ -14,3 +14,4 @@ Crea Sector de Ciencia y Tecnología
 | --- | --- | --- |
 | 1 | 1994-04-05 | la propia norma |
 | 2 | 2008-06-04 | Decreto Ejecutivo 34582 (2008-06-04) |
+| 3 | 2012-06-25 | Ley 9046 |
