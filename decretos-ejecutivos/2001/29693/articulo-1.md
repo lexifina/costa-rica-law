@@ -1,9 +1,8 @@
-PODER EJECUTIVO
-DECRETOS
-Nº 29693-MICIT
+Nº 29693-MICITT(*)
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las atribuciones que le confiere el artículo 140 de la Constitución Política en su inciso 8), y con fundamento en la "Ley de Promoción del Desarrollo Científico y Tecnológico" Nº 7169, del 26 de junio de 1990.
 Considerando:
 1º—Que el alto interés que para el Gobierno de la República tiene la promoción de la competitividad en la agroindustria costarricense.
