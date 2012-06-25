@@ -14,3 +14,4 @@ Creación y Calendarización Premios Nacionales en la Ciencia y la Tecnología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-01-05 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
