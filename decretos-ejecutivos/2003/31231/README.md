@@ -14,3 +14,4 @@ Asigna al Ministerio de Ambiente y Energía el Inmueble Ubicado dentro de la Zon
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-10 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
