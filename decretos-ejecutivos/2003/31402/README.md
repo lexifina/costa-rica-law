@@ -15,3 +15,4 @@ Crea Consejo Interinstitucional.
 | --- | --- | --- |
 | 1 | 2003-10-20 | la propia norma |
 | 2 | 2006-11-01 | Decreto Ejecutivo 33504 (2006-11-01) |
+| 3 | 2012-06-25 | Ley 9046 |

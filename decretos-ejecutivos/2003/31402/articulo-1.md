@@ -1,9 +1,9 @@
 (Derogado)
 (Este decreto ejecutivo fue derogado por el inciso 12) del artículo 1° del decreto ejecutivo N° 33504 del 1 de noviembre del 2006)
-Nº 31402-MAG-MICIT-MEIC-COMEX-MEP
+Nº 31402-MAG-MICITT(*)-MEIC-COMEX-MEP
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE AGRICULTURA Y GANADERÍA,
-EL MINISTRO DE CIENCIA Y TECNOLOGÍA,
+EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
 EL MINISTRO DE EDUCACIÓN PÚBLICA,
 EL MINISTRO DE COMERCIO EXTERIOR
 Y EL MINISTRO DE ECONOMÍA INDUSTRIA Y COMERCIO
@@ -14,7 +14,7 @@ Considerando:
 3º—Que el Estado costarricense tiene como uno de sus objetivos fundamentales la creación de las condiciones macroeconómicas necesarias que faciliten el desarrollo económico y social sostenible del país.
 4º—Que el desarrollo integral del país requiere de la creación de nuevas oportunidades en el medio rural en un marco equilibrado entre el crecimiento económico, la equidad social y el uso racional de los recursos naturales.
 5º—Que el Ministro de Agricultura y Ganadería, en su calidad de Rector del Sector Público Agropecuario se le ha asignado la tarea de conducir los esfuerzos nacionales en materia de desarrollo del medio rural.
-6º—Que uno de los objetivos del Ministerio de Ciencia y Tecnología es promover el desarrollo en el país de la plataforma tecnológica necesaria para el surgimiento y desarrollo de empresas competitivas.
+6º—Que uno de los objetivos del Ministerio de Ciencia, Tecnología y Telecomunicaciones(*) es promover el desarrollo en el país de la plataforma tecnológica necesaria para el surgimiento y desarrollo de empresas competitivas.
 7º—Que el Ministerio de Comercio Exterior le corresponde definir y dirigir, la política comercial externa y de inversión extranjera.
 8º—Que el Ministerio de Educación Pública es el vínculo entre el Poder Ejecutivo y las demás instituciones que trabajan en el campo educativo y cultural, tanto públicas como privadas, nacionales e internacionales.
 9º—Que el Ministerio de Economía, Industria y Comercio es el ente rector de las políticas públicas de Estado en materia de fomento a la iniciativa privada, desarrollo empresarial y fomento de la cultura empresarial para los sectores de industria, comercio y servicios, así como para el sector de las pequeñas y medianas empresas.
@@ -25,4 +25,5 @@ Considerando:
 14.—Que la sociedad civil de los Cantones de Sarapiquí, Guácimo y Siquirres ha formulado una idea de Proyecto para la Instalación de un Complejo Industrial y Tecnológico "Tecnoparque" en la zona de Leesville, Roxana, Pococí.
 15.—Que la Asociación Pro Desarrollo Agropecuario, Industrial y Tecnológico del Caribe (ADAINTEC) ha sido la principal promotora del Proyecto para la Instalación del Complejo Industrial y Tecnológico "Tecnoparque" en la zona. Por tanto,
 DECRETAN:
-Artículo 1º—Créase un Consejo Interinstitucional formado por el Ministerio de Ciencia y Tecnología (MICIT), quién lo Coordinará, Ministerio de Agricultura y Ganadería (MAG), Ministerio de Comercio Exterior (COMEX), Ministerio de Educación Pública (MEP) y Ministerio de Economía, Industria y Comercio (MEIC), Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), representados por su ministro ó quien él designe; por la Junta de Administración Portuaria de la Vertiente Atlántica (JAPDEVA) representada por el Gerente de Desarrollo o quien él designe; Instituto Nacional de Aprendizaje (INA), Instituto Costarricense de Pesca y Acuicultura (INCOPESCA) y Consejo Nacional de Producción (CNP), representadas por su Presidente Ejecutivo o quien él designe; por la Municipalidad de Pococí, representada por su alcalde o quien él designe y por el Consejo Director de Tecnoparque. Cada miembro durará en su puesto cuatro años y podrá ser reelecto.
+Artículo 1º—Créase un Consejo Interinstitucional formado por el Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT)(*), quién lo Coordinará, Ministerio de Agricultura y Ganadería (MAG), Ministerio de Comercio Exterior (COMEX), Ministerio de Educación Pública (MEP) y Ministerio de Economía, Industria y Comercio (MEIC), Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), representados por su ministro ó quien él designe; por la Junta de Administración Portuaria de la Vertiente Atlántica (JAPDEVA) representada por el Gerente de Desarrollo o quien él designe; Instituto Nacional de Aprendizaje (INA), Instituto Costarricense de Pesca y Acuicultura (INCOPESCA) y Consejo Nacional de Producción (CNP), representadas por su Presidente Ejecutivo o quien él designe; por la Municipalidad de Pococí, representada por su alcalde o quien él designe y por el Consejo Director de Tecnoparque. Cada miembro durará en su puesto cuatro años y podrá ser reelecto.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
