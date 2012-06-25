@@ -1,10 +1,11 @@
-Nº 31721-MAG-MICIT
-LA PRIMERA VICEPRESIDENTA EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA EL MINISTRO DE AGRICULTURA Y GANADERÍA Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Nº 31721-MAG-MICITT(*)
+LA PRIMERA VICEPRESIDENTA EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA EL MINISTRO DE AGRICULTURA Y GANADERÍA Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
 De conformidad con las facultades establecidas en los artículos 140, incisos 3), 8), 18) y 20), y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, la Ley Nº 7169 del 26 de junio de 1990, Ley de Promoción del Desarrollo Científico y Tecnológico.
 Considerando:
-1º—Que la Presidencia de la República, el Ministerio de Agricultura y Ganadería y el Ministerio de Ciencia y Tecnología están organizando la Reunión Ministerial sobre "El uso de la ciencia la tecnología en el mejoramiento de la competitividad en el Sector Agropecuario", a celebrarse en nuestro país los días 10 y 11 de mayo, del 2004.
-2º—Que dicha actividad representa un evento que conlleva un alto grado de capacitación profesional e intelectual para los participantes, en especial para el Ministerio de Agricultura y Ganadería y el Ministerio de Ciencia y Tecnología y demás instituciones involucradas.
+1º—Que la Presidencia de la República, el Ministerio de Agricultura y Ganadería y el Ministerio de Ciencia, Tecnología y Telecomunicaciones(*) están organizando la Reunión Ministerial sobre "El uso de la ciencia la tecnología en el mejoramiento de la competitividad en el Sector Agropecuario", a celebrarse en nuestro país los días 10 y 11 de mayo, del 2004.
+2º—Que dicha actividad representa un evento que conlleva un alto grado de capacitación profesional e intelectual para los participantes, en especial para el Ministerio de Agricultura y Ganadería y el Ministerio de Ciencia, Tecnología y Telecomunicaciones(*) y demás instituciones involucradas.
 3º—Que resulta de importancia que dicha actividad sea apoyada por las diferentes instancias tanto públicas como privadas a fin de garantizar su éxito y con ello ofrecer un espacio para que los profesionales del sector agropecuario y científico discutan temas de interés legal, técnico, político y económico, con miras en la formulación general y progresiva de una política agroambiental centroamericana dentro del proceso de integración regional.
 Por tanto:
 DECRETAN:
 Artículo 1º—Se declara de interés público nacional la celebración de la Reunión Ministerial sobre "El uso de la ciencia y la tecnología en el mejoramiento de la competitividad en el Sector Agropecuario", a celebrarse en Costa Rica, del 10 al 11 de mayo del 2004.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
