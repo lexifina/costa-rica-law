@@ -14,3 +14,4 @@ Procedimiento para la Solicitud, Confección y Trámite de Avalúos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-07 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

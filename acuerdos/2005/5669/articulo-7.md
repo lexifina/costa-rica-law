@@ -31,7 +31,8 @@
 7.30 Ley Orgánica del Colegio de Ingenieros Agrónomos, Nº 7221 del 6 de abril de 1991, publicada en La Gaceta Nº 76 del 23 de abril de 1991.
 7.31 Ley Indígena, Nº 6172.
 7.32 Ley Orgánica del Ambiente, Nº 7554 del 4 de octubre de 1996, publicada en La Gaceta Nº 215 del 13 de noviembre de 1995.
-7.33 Código Sísmico de Costa Rica, Decreto Ejecutivo Nº 31553- MICIT-MOPT del 19 de noviembre del 2003.
+7.33 Código Sísmico de Costa Rica, Decreto Ejecutivo Nº 31553- MICITT (*)-MOPT del 19 de noviembre del 2003.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 7.34 División Territorial Administrativa de Costa Rica, Decreto Ejecutivo Nº 25677-G del 26 de noviembre de 1996.
 7.35 Reglamentos de Zonificación.
 7.36 Reglamento de Construcciones, Reglamento a la Ley de Planificación Urbana, Nº 4240, publicado en La Gaceta Nº 56, Alcance Nº 17 del 22 de marzo de 1983.
