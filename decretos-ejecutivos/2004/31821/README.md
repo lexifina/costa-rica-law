@@ -15,3 +15,4 @@ Reglamento de structura interna y funcionamiento del Ente Costarricense de Acred
 | --- | --- | --- |
 | 1 | 2004-06-09 | la propia norma |
 | 2 | 2007-07-31 | Decreto Ejecutivo 33963 (2007-07-31) |
+| 3 | 2012-06-25 | Ley 9046 |

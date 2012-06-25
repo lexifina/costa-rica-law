@@ -1,7 +1,8 @@
 (Derogado)
-Nº 31821-MICIT
+Nº 31821-MICITT(*)
 (Este decreto fue derogado por el artículo 41° del decreto ejecutivo N° 33963 del 31 de julio de 2007)
-EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE CIENCIA,
+TECNOLOGÍA Y TELECOMUNICACIONES(*)
 En uso de las atribuciones que les confieren los artículos 140 incisos 3), y 18) y artículo 146 de la Constitución Política, 28 inciso b) de la Ley General de la Administración Pública, y la Ley Nº 8279, "Ley del Sistema Nacional para la Calidad".
 Considerando:
 1º—Que la Ley Nº 8279, del Sistema Nacional para la Calidad, creó el Ente Costarricense de Acreditación, como entidad pública no estatal encargada de la labor de acreditación para la evaluación de la conformidad en Costa Rica, de respaldar la competencia técnica y credibilidad de los entes acreditados para garantizar la confianza del Sistema Nacional de la Calidad, de asegurar que los servicios ofrecidos por los entes acreditados mantengan la calidad bajo la cual fue reconocida su competencia técnica y de promover y estimular la cooperación entre ellos.
