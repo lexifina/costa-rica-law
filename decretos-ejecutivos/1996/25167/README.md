@@ -14,3 +14,4 @@ Restricción para el Aprovechamiento Maderable de Arboles de Almendro
 | --- | --- | --- |
 | 1 | 1996-06-12 | la propia norma |
 | 2 | 1996-06-12 | SINALEVI (sin norma nombrada) |
+| 3 | 2012-06-25 | Ley 9046 |
