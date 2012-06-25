@@ -1,9 +1,11 @@
 (Derogado)
-Nº 34769-MINAET
+Nº 34769-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 (Este decreto fue derogado por el artículo 3°, punto 1° del decreto ejecutivo N° 37257 del 27 de abril del 2012, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 LA PRIMERA VICEPRESIDENTA
 EN EL EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que les confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, y la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998.
 Considerando:
 I.—Que la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, creó la Comisión Nacional para la Gestión de la Biodiversidad como un órgano desconcentrado del Ministerio del Ambiente, Energía y Telecomunicaciones con personería jurídica instrumental.
