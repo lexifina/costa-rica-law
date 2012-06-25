@@ -14,3 +14,4 @@ Declara de Interés Público el "II Congreso Centroamericano de Ingeniería en p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-20 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
