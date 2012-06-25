@@ -14,3 +14,4 @@ Reglamento Técnico de Eficiencia Energética y Etiquetado para la Regulación d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-06 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

@@ -1,8 +1,9 @@
 Nº 29751-MINAE-H-MEIC
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPUBLICA
-Y LOS MINISTROS DEL AMBIENTE Y ENERGIA, HACIENDA
+Y LOS MINISTROS DE AMBIENTE Y ENERGIA(*), HACIENDA
 Y ECONOMIA, INDUSTRIA Y COMERCIO
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Con fundamento en las facultades que les confiere el artículo 140 de la Constitución Política en sus incisos 3) y 18). Artículo 28 .2b de la Ley General Administración Pública, Nº 6227 del 02 de mayo de 1978, Ley de Normas Industriales, Nº 1698 del 16 de noviembre de 1953, Ley del Sistema Internacional de Unidades, Nº 5292 del 29 de agosto de 1973, Ley de la Promoción de la Competencia y Defensa efectiva del consumidor, Nº 7472 del 19 de enero de 1995, Ley de Aprobación Tratado de Libre Comercio Estados Unidos Mexicanos-Costa Rica, Nº 7474 del 23 de diciembre de 1994, Ley de Aprobación del Acta Final en que se incorporan los Resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales, Nº 7475 del 26 de diciembre de 1994 y Ley Orgánica de Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 23 de junio de 1977 y sus reformas, Ley de Regulación del Uso Racional de la Energía, Ley Nº 7447 del 13 de diciembre de 1994.
 Considerando:
 1º—Que el uso eficiente de los recursos energéticos debe ser una prioridad del gobierno con miras a lograr un desarrollo sostenible.
@@ -102,8 +103,8 @@ Tipo | Tipo Descarche | Estilo | Valor de las constantes para el cálculo del co
 | | | k1 | k2 | k1 | k2
 Refrigeradores y refrigeradores- Congeladores | Manual | Todos | 0.576 | 316 | 0.48 | 299
 Refrigeradores- Congeladores | SemiAutomático | Todos | 0.77 | 429 | 0.37 | 398
-Refrigeradores-congeladores | Automático | Congelador en parteSuperior | 0.83 | 471 | 0.565 | 355
-Refrigeradores-Congeladores | Automático | Congelador de lado | 0.98 | 488 | 0.42 | 501
+Refrigeradores-congeladores | Automático | Congelador en parte Superior | 0.83 | 471 | 0.565 | 355
+Refrigeradores- Congeladores | Automático | Congelador de lado | 0.98 | 488 | 0.42 | 501
 Refrigeradores- Congeladores | Automático | Congelador en parte inferior | 0.98 | 488 | 0.58 | 367
 Refrigeradores- Congeladores | Automático | Congelador arriba con formador de hielo | 0.93 | 535 | 0.62 | 391
 Refrigeradores- congeladores | Automático | Congelador de lado con formador de hielo | 1.09 | 547 | 0.575 | 527
