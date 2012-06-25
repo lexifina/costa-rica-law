@@ -14,3 +14,4 @@ Impone Servidumbre Forzosa de acueducto sobre el inmueble propiedad de los seño
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-15 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
