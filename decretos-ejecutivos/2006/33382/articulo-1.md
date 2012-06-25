@@ -14,7 +14,8 @@ DECRETAN:
 Artículo 1º—Modifícase el artículo 2° de la Ley Nº 8490, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2006, publicada en el Alcance Nº 49 a La Gaceta Nº 253 de 30 de diciembre de 2005, en la forma que se indica a continuación:
 REBAJAR:
 TÍTULO: 218
-Ministerio de Ciencia y Tecnología
+Ministerio de Ciencia, Tecnología y Telecomunicaciones (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 PROGRAMA: 893-00
 COORDINACIÓN Y DES. CIENTIF, Y TECNOLÓGICO
 Registro Contable: 218-893-00
@@ -74,7 +75,8 @@ MEDIANTE ACUERDO MARCO
 INTERINSTITUCIONAL. ACTA DE LA
 XXI ASAMBLEA GENERAL DEL
 CYTED DE NOVIEMBRE 2002.
-DECRETO 31882-MICIT.)
+DECRETO 31882-MICITT (*).)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Ced. Jur.: 2-100-098311 10.000.000
 TOTAL REBAJA DEL PROGRAMA: 895-00 22.000.000
 TOTAL REBAJA DEL TÍTULO: 218 58.133.550
@@ -98,7 +100,8 @@ TOTAL REBAJA DEL TÍTULO: 219 1.850.491
 TOTAL REBAJAR 59.984.041
 AUMENTAR:
 TÍTULO: 218
-Ministerio de Ciencia y Tecnología
+Ministerio de Ciencia, Tecnología y Telecomunicaciones (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 PROGRAMA: 893-00
 COORDINACIÓN Y DES. CIENTIF, Y TECNOLÓGICO
 Registro Contable: 218-893-00
@@ -156,7 +159,8 @@ TOTAL AUMENTO DEL
 PROGRAMA: 889-00 1.850.491
 TOTAL AUMENTO DEL TÍTULO: 219 1.850.491 TOTAL AUMENTAR 59.984.041 REBAJAR:
 RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2006
-218 - MINISTERIO DE CIENCIA Y TECNOLOGÍA
+218 - MINISTERIO DE CIENCIA, TECNOLOGÍA y TELECOMUNICACIONES (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Cuota Cuota
 Código Clase Detalle de los Puestos Mensual Anual
 218.893 COORDINACIÓN Y DES.
