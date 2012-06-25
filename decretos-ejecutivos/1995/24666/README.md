@@ -14,3 +14,4 @@ Reforma al Reglamento a la Ley de Promoción del Desarrollo Científico y Tecnol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-19 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
