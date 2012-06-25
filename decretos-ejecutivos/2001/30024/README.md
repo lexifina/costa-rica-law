@@ -15,3 +15,4 @@ Reforma al al Decreto N° 29540- MINAE que Constituye el Centro Nacional de Info
 | --- | --- | --- |
 | 1 | 2002-01-12 | la propia norma |
 | 2 | 2009-12-04 | Decreto Ejecutivo 35669 (2009-12-04) |
+| 3 | 2012-06-25 | Ley 9046 |
