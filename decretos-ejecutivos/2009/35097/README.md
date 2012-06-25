@@ -14,3 +14,4 @@ Reforma al Decreto Ejecutivo N° 32868-MINAE, Canon por Concepto de Aprovechamie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-20 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
