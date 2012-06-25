@@ -14,3 +14,4 @@ Modifica para el Consejo Nacional para Investigaciones Científicas y Tecnológi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
