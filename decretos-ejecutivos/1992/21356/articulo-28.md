@@ -1,1 +1,0 @@
-Artículo 28.—Serán alumnos del CEFOF quienes, después de haber cumplido los requisitos de admisión establecidos, formalicen su inscripción y sigan los cursos tendentes a obtener los títulos, certificados o diplomas que otorgue del CEFOF.

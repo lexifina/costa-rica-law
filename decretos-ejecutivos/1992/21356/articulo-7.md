@@ -1,1 +1,0 @@
-Artículo 7°—El Consejo Directivo sesionará ordinariamente una vez al mes y extraordinariamente por convocatoria del Presidente, siempre que lo haga con una antelación no menor de veinticuatro horas. Se requerirá de un quórum mínimo de cuatro de sus miembros para sesionar válidamente.
