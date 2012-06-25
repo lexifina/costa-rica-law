@@ -14,3 +14,4 @@ Deroga la Determinación de Inventario de Bienes de Computación y Telemáticos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-27 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
