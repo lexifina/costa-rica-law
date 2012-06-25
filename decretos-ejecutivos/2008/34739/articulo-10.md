@@ -35,7 +35,8 @@ i. Que la empresa cuenta con la capacidad de sujetarse a los mecanismos necesari
 ii. Que la empresa proveerá a la Dirección, COMEX y PROCOMER todas las facilidades y asistencia dispuesta en el artículo 14 de la Ley.
 n) Empresas ubicadas fuera de parque bajo la categoría a) y empresas de servicios ubicadas dentro de la GAMA: en este caso las empresas deberán acreditar que la naturaleza del proyecto les impide desarrollarlo dentro de un parque. El cumplimiento de este requisito se acreditará mediante declaración jurada en la cual la empresa detalle las ventajas significativas para la ejecución del proyecto fuera de parque.
 II. Información para el otorgamiento del Régimen:
-a) Información detallada sobre la contaminación que producirá el proceso productivo y sus desechos, o bien, copia del formulario presentado ante la instancia respectiva del Ministerio de Ambiente, Energía y Telecomunicaciones (MINAET) en relación con el estudio de impacto ambiental, cuando corresponda, según las leyes y reglamentos aplicables.
+a) Información detallada sobre la contaminación que producirá el proceso productivo y sus desechos, o bien, copia del formulario presentado ante la instancia respectiva del Ministerio de Ambiente y Energía (MINAE)(*) en relación con el estudio de impacto ambiental, cuando corresponda, según las leyes y reglamentos aplicables.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 b) Monto de la inversión nueva inicial en activos fijos, así como la inversión total prevista y el nivel de empleo.
 c) Proyección del Valor Agregado Nacional que se comprometerá a mantener la empresa. Este cálculo se hará con base en la fórmula establecida para tal efecto en este Reglamento.
 d) Fecha de inicio de operaciones productivas.
