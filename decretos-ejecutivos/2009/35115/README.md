@@ -14,3 +14,4 @@ Reglamento de la Comisión Mixta para el Desarrollo Integral de la Zona de El Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-09 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

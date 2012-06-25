@@ -2,8 +2,10 @@ CAPÍTULO II
 Integración y Organización
 Artículo 4º—Integración. La Comisión Mixta para el Desarrollo Integral de la Zona de El Coyol y su área de influencia, estará integrada por un representante propietario y un único suplente de las siguientes entidades y organizaciones:
 a) Serán miembros plenos los siguientes Ministerios de Gobierno:
-1. Ministerio de Ambiente, Energía y Telecomunicaciones;
-2. Ministerio de Ciencia y Tecnología;
+1. Ministerio de Ambiente y Energía (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+2. Ministerio de Ciencia, Tecnología y Telecomunicaciones;
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 3. Ministerio de Comercio Exterior;
 4. Ministerio de Economía, Industria y Comercio;
 5. Ministerio de Obras Públicas y Transportes, así como sus órganos desconcentrados y adscritos;
