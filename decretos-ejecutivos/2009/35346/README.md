@@ -15,3 +15,4 @@ Reforma Comisión Nacional para la Gestión de la Biodiversidad
 | --- | --- | --- |
 | 1 | 2009-07-06 | la propia norma |
 | 2 | 2012-06-18 | Decreto Ejecutivo 37208 (2012-06-18) |
+| 3 | 2012-06-25 | Ley 9046 |
