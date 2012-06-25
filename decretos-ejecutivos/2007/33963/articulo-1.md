@@ -1,7 +1,9 @@
+(Derogado)
 Nº 33963
 (Nota de Sinalevi: el Ente Costarricense de Acreditación aprobó un nuevo Reglamento de estructura interna y funcionamiento del Ente Costarricense de Acreditación, mediante publicación en La Gaceta N°94 del 19 de mayo del 2014)
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+Y LA MINISTRA DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Con fundamento en las atribuciones y facultades conferidas por los incisos 3) y 18) del artículo 140 y el 146 de la Constitución Política, la Ley del Sistema Nacional para la Calidad, Nº 8279 del 02 de mayo del 2002, publicada en La Gaceta Nº 96 de 21 de mayo de 2002, la Ley de Promoción del Desarrollo Científico y Tecnológico, Nº 7169 de fecha 26 de junio de 1990, publicada en La Gaceta Nº 144 de fecha 1º de agosto de 1990, los artículos 27 y 28 de la Ley General de la Administración Pública, Nº 6227 de 02 mayo de 1978, y
 Considerando:
 1º—Que la Ley del Sistema Nacional para la Calidad, Nº 8279, creó el Ente Costarricense de Acreditación (ECA), como una entidad pública no estatal encargada de la labor de acreditación para la evaluación de la conformidad en Costa Rica, de respaldar la competencia técnica y credibilidad de los entes acreditados para garantizar la confianza del Sistema Nacional para la Calidad, de asegurar que los servicios ofrecidos por los entes acreditados mantengan la calidad bajo la cual fue reconocida su competencia técnica y de promover y estimular la cooperación entre ellos.
