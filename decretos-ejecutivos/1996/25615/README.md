@@ -15,3 +15,4 @@ Reglamento de organización y funciones de la Auditoría Interna del Ministerio 
 | --- | --- | --- |
 | 1 | 1996-11-21 | la propia norma |
 | 2 | 2009-03-23 | Decreto Ejecutivo 35227 (2009-03-23) |
+| 3 | 2012-06-25 | Ley 9046 |
