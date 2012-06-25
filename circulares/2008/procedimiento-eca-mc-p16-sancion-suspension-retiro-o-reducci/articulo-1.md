@@ -1,6 +1,7 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
 AVISO
-El Ente Costarricense de Acreditación ECA, en cumplimiento de la obligación establecida en el artículo 12 del Reglamento de Estructura Interna y Funcionamiento, Decreto Ejecutivo Nº 33963-MICIT, da a conocer el procedimiento ECA-MC-P16 sanción, suspensión, retiro o reducción el alcance de la acreditación:
+El Ente Costarricense de Acreditación ECA, en cumplimiento de la obligación establecida en el artículo 12 del Reglamento de Estructura Interna y Funcionamiento, Decreto Ejecutivo Nº 33963-MICITT (9), da a conocer el procedimiento ECA-MC-P16 sanción, suspensión, retiro o reducción el alcance de la acreditación:
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Tabla de contenido
 1 Objetivo
 2 Alcance
@@ -193,7 +194,7 @@ Apartado/Inciso | Páginas | Cambio(s)
 1 | 1 | Se agrega “o en proceso”
 2 | 1 | Se agrega “en proceso de acreditación”
 3 | 1 | Se agrega ECA-MC-P14-F09 Compromiso de acreditación Instituciones públicas
-3 | 2 | Se elimina Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación Nº 31821-MICIT
+3 | 2 | Se elimina Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación Nº 31821-MICITT(*) (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 4 | 2 | Tercer párrafo se agrega al segundo renglón de la definición “del alcance acreditado”
 4 | 3 | Nota del inciso de notificaciones se cambia redacción
 5 | 3 | Se modifica todo el apartado para que sea alineado a la estructura de documentos ECA
