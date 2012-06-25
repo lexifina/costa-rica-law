@@ -15,3 +15,4 @@ Memorando de Entendimiento entre el Gobierno de Canadá y el de Costa Rica sobre
 | --- | --- | --- |
 | 1 | 1998-07-03 | la propia norma |
 | 2 | 1998-07-03 | Ley 8 |
+| 3 | 2012-06-25 | Ley 9046 |

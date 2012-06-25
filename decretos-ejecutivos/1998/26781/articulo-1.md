@@ -107,8 +107,9 @@ Ministro de Relaciones Embajador de Canadá en
 Exteriores y Culto Costa Rica
 Excelentísimo señor Excelentísimo señor
 Leonardo Garnier René Castro Salazar
-Ministro de Planificación Ministro del Ambiente y Energía
+Ministro de Planificación Ministro de Ambiente y Energía(*)
 y Política Económica
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 ANEXO "A" PLAN DE GESTION
 PROYECTO REGIONAL DE ENERGÍA ELÉCTRICA
 ISTMO CENTROAMERICANO
