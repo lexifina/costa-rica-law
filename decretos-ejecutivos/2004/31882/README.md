@@ -14,3 +14,4 @@ Declara de Interés nacional la XXXIII Asamblea Extraordinaria del Programa Iber
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-16 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

@@ -1,6 +1,7 @@
-Nº 31882-MICIT
+Nº 31882-MICITt(*)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las atribuciones que les confiere el artículo 140 de la Constitución Política en sus incisos 3), y 18), y con fundamento en la "Ley de Promoción del Desarrollo Científico y Tecnológico" Nº 7169, del 26 de junio de 1990.
 Considerando:
 1º—Que el Programa Iberoamericano de Ciencia y Tecnología para el Desarrollo (CYTED) fue creado en 1984 mediante un Acuerdo Marco Interinstitucional firmado por 19 países de América Latina, España y Portugal.
