@@ -15,3 +15,4 @@ Establece Áreas de Fiscalización Superior de la División de Fiscalización Op
 | --- | --- | --- |
 | 1 | 2009-08-01 | la propia norma |
 | 2 | 2010-06-11 | Resolución 101 (2010-06-11) |
+| 3 | 2012-06-25 | Ley 9046 |

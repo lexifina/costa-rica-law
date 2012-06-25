@@ -161,7 +161,7 @@ Fideicomiso de Contingencia (Poder Judicial)
 Deuda Política
 Asociación de Amigos de la Diócesis de Limón
 Arquidiócesis de San José
-Ministerio de Ciencia y Tecnología
+Ministerio de Ciencia, Tecnología y Telecomunicaciones (*) (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Consejo Nacional de Investigaciones Científicas y Tecnológicas
 Fideicomiso CONICIT-BANCREDITO Ley 7169 (21-02)
 Fideicomiso CONICIT-BANCREDITO Ley 7099 (4-99)
