@@ -14,3 +14,4 @@ Se impone servidumbre de acueducto sobrel inmueble ubicado en la Provincia de Ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-05 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
