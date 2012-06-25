@@ -20,3 +20,4 @@ Reglamento sobre Procedimientos de la Secretaría Técnica Nacional Ambiental SE
 | 5 | 2002-02-06 | SINALEVI (sin norma nombrada) |
 | 6 | 2004-05-24 | Decreto Ejecutivo 31849 (2004-05-24) |
 | 7 | 2005-07-19 | Decreto Ejecutivo 32711 (2005-07-19) |
+| 8 | 2012-06-25 | Ley 9046 |
