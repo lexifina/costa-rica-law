@@ -1,14 +1,16 @@
-Nº 35151-MINAET
+Nº 35151-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En el ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18), 50, y 146 de la Constitución Política de la República; con fundamento en lo dispuesto en los artículos 82 y 87 de la Ley de Conservación de la Vida Silvestre Nº 7317 del 30 de octubre de 1992; la Ley del Servicio de Parques Nacionales Nº 6084, del 24 de agosto de 1977, los artículos 1, 35 y 36 de la Ley Orgánica del Ambiente Nº 7554 de 4 de octubre de 1995; los artículos 59 y 60 de la Ley de Biodiversidad Nº 7788 de 30 de abril de 1998; los artículos 13 y siguientes de la Ley Forestal Nº 7575 del 13 de febrero de 1996; los artículos 6, 11, 27 de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978.
 Considerando:
 1º—Que mediante el artículo 81 de la Ley Nº 6975 del 30 de noviembre de 1984 se estableció la Zona Protectora El Chayote, no obstante la descripción de los límites dados en dicha ley son muy generales y endebles.
 2º—Que estudios realizados por funcionarios de la entonces Dirección General Forestal, demostraron que dentro de dicha zona protectora, quedaron comprendidos terrenos de aptitud agropecuaria, abocándose a corregir, describir y definir por coordenadas los límites naturales y artificiales de dicha Zona Protectora, mediante Decreto Ejecutivo Nº 21853-MIRENEM del 07 de diciembre de 1992.
 3º—Que mediante Decreto Ejecutivo Nº 22669-MIRENEM del 2 de noviembre de 1993 se modifican y redefinen los límites del Parque Nacional Juan Castro Blanco.
 4º—Que el artículo Nº 6 del Decreto Ejecutivo Nº 22669-MIRENEM deroga los Decretos Ejecutivos Nº 18763-MIRENEM del 12 de setiembre de 1988, sea la Declaratoria de Reserva Forestal a Zona Protectora Juan Castro Blanco y el Nº 21853-MIRENEM del 07 de diciembre de 1992, sea la Definición por coordenadas de los límites de la Zona Protectora El Chayote.
-5º—Que el Parque Nacional del Agua Juan Castro Blanco y la Zona Protectora El Chayote no colindan entre sí. No obstante es de suma importancia y necesidad para el Ministerio de Ambiente, Energía y Telecomunicaciones, definir los límites de la Zona Protectora El Chayote, y por ende consolidar la protección y uso adecuado de los ecosistemas que ahí se encuentran. Por tanto,
+5º—Que el Parque Nacional del Agua Juan Castro Blanco y la Zona Protectora El Chayote no colindan entre sí. No obstante es de suma importancia y necesidad para el Ministerio de Ambiente y Energía (*), definir los límites de la Zona Protectora El Chayote, y por ende consolidar la protección y uso adecuado de los ecosistemas que ahí se encuentran. Por tanto,
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 DECRETAN:
 Límites Naturales y Artificiales de la Zona
 Protectora El Chayote

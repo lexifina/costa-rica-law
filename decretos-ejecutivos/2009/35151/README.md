@@ -14,3 +14,4 @@ Define y describe Límites Naturales y Artificiales de la Zona Protectora El Cha
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-16 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
