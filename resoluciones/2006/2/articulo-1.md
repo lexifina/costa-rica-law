@@ -140,7 +140,8 @@ Laboratorio Costarricense de Metrología 166,4 H
 Liga de Municipalidades de Guanacaste y Upala 5,4 J
 Liga de Municipalidades de los Cantones Productores de Banano 40,4 J
 Ministerio de Agricultura y Ganadería-MAG 1.337,9 F
-Ministerio de Ciencia y Tecnología 72,5 I
+Ministerio de Ciencia, Tecnología y Teconología (*) 72,5 I
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Ministerio de Comercio Exterior 319,4 H
 Ministerio de Cultura, Juventud y Deportes 1.209,9 F
 Ministerio de Economía, Industria y Comercio 511,9 G
