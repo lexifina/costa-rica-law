@@ -20,7 +20,7 @@ Cobertura máxima | 70 %
 Área de jardín | 20 %
 Retiro frontal | 2 m
 Verjas | Todos los tipos (Según artículo 32 de este Reglamento)
-Área de drenaje: | Según disposiciones del Ministerio de Salud y Ministerio del Ambiente y Energía
+Área de drenaje: | Según disposiciones del Ministerio de Salud y Ministerio de Ambiente y Energía(*) (*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 23.4.2. Industrias, Comercios y servicios (incluye sodas),Talleres, Almacenes distribuidores y bodegas, Depósitos de materiales de construcción
 Área mínima de Lote | 360 m2.
 Frente mínimo de lote | 12 m

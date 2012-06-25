@@ -17,7 +17,7 @@ Densidad Máxima: 143 hab/ha
 -Cobertura máxima, más superficie pavimentada | 75 %
 -Superficie de jardín | 25%
 -Área de piso | 2 veces la cobertura
--Área drenaje T.Séptico | Según disposiciones el Ministerio de Salud y Ministerio del Ambiente y Energía
+-Área drenaje T.Séptico | Según disposiciones el Ministerio de Salud y Ministerio de Ambiente y Energía(*) (*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 -Retiro frontal | 2 m
 -Retiro posterior | 3 m
 -Verjas | Tipo 7.(Según disposiciones del artículo 32 de este Reglamento).
@@ -27,7 +27,7 @@ Densidad Máxima: 143 hab/ha
 -Cobertura máxima, más superficie pavimentada | 75 %
 -Superficie de jardín | 25%
 -Área de piso | 2 veces la cobertura
--Área drenaje T.Séptico | Según disposiciones el Ministerio de Salud y Ministerio del Ambiente y Energía
+-Área drenaje T.Séptico | Según disposiciones el Ministerio de Salud y Ministerio de Ambiente y Energía(*) (*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 -Retiro frontal | 2 m
 -Retiro posterior | 3 m
 -Verjas | Tipo 7

@@ -26,7 +26,8 @@ Superficie pavimentada | 5 %
 Área de piso | dos veces la cobertura
 Retiros de cualquier lindero | 15 m
 Verjas y Tapias | Tipos 1,2,4, y 8 (Ver Art.32 de este Reglamento).
-Tratamiento de aguas negras y servidas Según disposiciones de Ministerios de Salud, y del Ambiente y Energía.
+Tratamiento de aguas negras y servidas Según disposiciones de Ministerios de Salud, y de Ambiente y Energía.(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 9.4.2. Agroindustria.
 Área mínima de finca o lote | 2 has.
 Frente a calle | 50 m
@@ -57,7 +58,8 @@ Lateral | 5 m
 Posterior | 10 m
 Área forestada | 30%
 Tapias | Tipos 1,2,4, y 8 (Ver Art.32 de este Reglamento).
-Tratamiento de aguas negras y servidas: Según disposiciones de Ministerios de Salud, y del Ambiente y Energía
+Tratamiento de aguas negras y servidas: Según disposiciones de Ministerios de Salud, y de Ambiente y Energía(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 9.4.5. Centros Recreativos. Deportivos
 Área mínima de lote | 2 Ha
 Frente a calle | 25 m
@@ -70,7 +72,8 @@ Lateral | 20 m
 Posterior | 20 m
 Área forestada | 30%
 Tapias | Tipos 1,2,4, y 8 (Ver Art.32 de este Reglamento).
-Tratamiento de aguas negras y servidas: Según disposiciones de Ministerios de Salud, y del Ambiente y Energía
+Tratamiento de aguas negras y servidas: Según disposiciones de Ministerios de Salud, y de Ambiente y Energía(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 9.4.2. Hoteles y albergues (máximo 12 habitaciones)
 Área mínima de lote | 2 hás
 Frente a calle | 50 m

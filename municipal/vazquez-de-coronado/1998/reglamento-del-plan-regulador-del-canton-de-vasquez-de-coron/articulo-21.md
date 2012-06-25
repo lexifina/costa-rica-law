@@ -25,7 +25,7 @@ Frente mínimo de lote | 16 m
 Cobertura máxima | 65 %
 Área de jardín | 15 %
 Área de parqueo | 20%
-Área de drenaje Tanque Séptico | Según disposiciones del Ministerio de Salud y Ministerio del Ambiente y Energía
+Área de drenaje Tanque Séptico | Según disposiciones del Ministerio de Salud y Ministerio de Ambiente y Energía(*) (*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Retiros |
 Frontal | 5 m
 Posterior | 3 m
