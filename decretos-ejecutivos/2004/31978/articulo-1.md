@@ -1,8 +1,9 @@
 N° 31978-MEP-MINAE-S-TUR
 EL PRESIDENTE DE LA REPÚBLICA,
-LA MINISTRA DE SALUD, EL MINISTRO DEL AMBIENTE
+LA MINISTRA DE SALUD, EL MINISTRO DE AMBIENTE(*)
 Y ENERGÍA, EL MINISTRO DE EDUCACIÓN PÚBLICA
 Y EL MINISTRO DE TURISMO
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política, y
 Considerando:
 I.—Que por Decreto Ejecutivo N° 25636-MINAE-S del 31 de octubre de 1996, publicado en el Diario Oficial, el jueves 28 de noviembre de 1996, se le dio fundamento legal al Programa Bandera Azul Ecológica (PBAE) y mediante el Decreto Ejecutivo N° 27010-MINAE-S del 21 de abril de 1998, publicado el jueves 4 de junio de 1998, se modificó el Decreto original con el objetivo de introducir la gradación de las estrellas o categorías “A”, “AA” y “AAA”, en el incentivo Bandera Azul Ecológica, los cuales fueron derogados por el decreto ejecutivo número 31610-SMINAE-TUR, del 22 de enero del 2004.
