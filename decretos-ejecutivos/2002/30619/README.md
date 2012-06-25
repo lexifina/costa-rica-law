@@ -14,3 +14,4 @@ Modifica a la Ley de presupuesto ordinario y extraordinario para el 2002
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-19 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

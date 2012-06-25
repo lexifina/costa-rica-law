@@ -1,5 +1,3 @@
-PODER EJECUTIVO
-DECRETOS
 Nº 30619-H
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
@@ -583,7 +581,8 @@ Registro Contable: 128-893-00
 Total Rebaja del Programa: 893-00 1.500.000
 Total Rebaja del Título: 128 1.500.000
 TÍTULO: 129
-MINISTERIO DEL AMBIENTE Y ENERGÍA
+MINISTERIO DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 PROGRAMA: 879-00
 ACTIVIDADES CENTRALES
 Registro Contable: 129-879-00
