@@ -1,1 +1,0 @@
-Artículo 25.—De la contratación de servicios profesionales de consultoría: Para la contratación de servicios profesionales de consultoría, se seguirán los procedimientos estipulados en Anexo C del Contrato de Préstamo, dependiendo si se trata de expertos individuales o firmas consultoras.

@@ -1,1 +1,0 @@
-Artículo 10.—De las instituciones participantes: Las responsabilidades de cada una de las Instituciones participantes se definirán en el Convenio Marco Interinstitucional, y serán parte integral de este Reglamento.

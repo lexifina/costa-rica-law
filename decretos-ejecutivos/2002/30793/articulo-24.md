@@ -1,1 +1,0 @@
-Artículo 24.—Licitación de conformidad con los procesos administrativos nacionales: Cuando el monto de la adquisición sea inferior al $250.000,00, las contrataciones se regirán por lo establecido en la Ley de Contratación Administrativa y su Reglamento.
