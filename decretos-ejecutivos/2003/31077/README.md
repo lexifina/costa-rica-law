@@ -16,3 +16,4 @@ Regulaciones para la caza menor y mayor y pesca continental e insular
 | 1 | 2003-01-01 | la propia norma |
 | 2 | 2003-06-10 | Decreto Ejecutivo 31238 (2003-06-10) |
 | 3 | 2004-03-29 | Decreto Ejecutivo 31737 (2004-03-29) |
+| 4 | 2012-06-25 | Ley 9046 |
