@@ -1,1 +1,0 @@
-Artículo 11.—Los miembros del Consejo Directivo durarán en sus cargos tres años, excepto el representante estudiantil que durará un año, pudiendo todos ser reelectos. La credencial se perderá por ausencia a tres sesiones consecutivas o seis alternas, en ambos casos injustificados.

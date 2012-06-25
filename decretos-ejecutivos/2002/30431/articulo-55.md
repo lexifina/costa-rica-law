@@ -1,1 +1,0 @@
-Artículo 55.—Además de los requisitos inherentes a sus puestos de trabajo el personal de los institutos o escuelas de Educación Superior Parauniversitaria privados deberá reunir condiciones morales acordes con sus funciones.

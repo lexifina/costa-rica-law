@@ -1,1 +1,0 @@
-Artículo 13.—Los miembros del Consejo Directivo serán remunerados mediante dietas que devengarán a cada sesión que asistan. El número de sesiones remuneradas, incluyendo ordinarias y extraordinarias, no podrá exceder de (8) ocho, al mes. Dichas dietas serán remuneradas con base en lo establecido en la Ley Nº 7138.

@@ -1,1 +1,0 @@
-Artículo 47.—Los presupuestos extraordinarios y las modificaciones externas que hagan los Colegios Universitarios, deberán ser presentados para su conocimiento y aprobación ante los entes correspondientes, según la normativa vigente.

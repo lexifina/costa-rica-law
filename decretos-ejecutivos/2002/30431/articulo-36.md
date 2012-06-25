@@ -1,1 +1,0 @@
-Artículo 36.—Los Colegios Universitarios podrán ofrecer carreras cortas de diplomado con una duración de cuatro períodos lectivos de 14 a 16 semanas lectivas cada uno y con un valor en créditos no menor de sesenta y ni más de noventa y seis créditos. Los ciclos lectivos se programarán de manera cuatrimestral.

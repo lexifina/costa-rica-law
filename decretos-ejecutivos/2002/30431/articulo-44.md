@@ -1,1 +1,0 @@
-Artículo 44.—Todo funcionario de los colegios universitarios encargado de recibir, custodiar o pagar bienes o valores cuyas atribuciones permitan o exijan su tenencia, será responsable de ellos y de cualquier pérdida, daño, empleo o pago ilegal que sea atribuido a negligencia o dolo.

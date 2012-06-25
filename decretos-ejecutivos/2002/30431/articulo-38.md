@@ -1,1 +1,0 @@
-Artículo 38.—En el caso de laboratorios, talleres y prácticas de campo un crédito es equivalente a tres horas de trabajo semanal debidamente aprobado y supervisado por un profesor durante un ciclo lectivo.

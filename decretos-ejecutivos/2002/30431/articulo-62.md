@@ -1,1 +1,0 @@
-Artículo 62.—Una vez recibida la documentación completa para el funcionamiento de un Instituto de Educación Superior Parauniversitaria Privado el Consejo Superior de Educación ordenará la inspección ocular de las instalaciones físicas, recursos, servicios y demás condiciones necesarias para el cumplimiento de los fines, objetivos y funciones de este tipo de instituciones.
