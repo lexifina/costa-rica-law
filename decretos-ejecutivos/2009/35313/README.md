@@ -14,3 +14,4 @@ Crea Consejo Nacional de Innovación (CNI), la Comisión Técnica de Innovación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-25 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
