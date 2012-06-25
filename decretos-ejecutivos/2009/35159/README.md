@@ -14,3 +14,4 @@ Establece cantidad de hectáreas disponibles para el pago de servicios ambiental
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-27 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
