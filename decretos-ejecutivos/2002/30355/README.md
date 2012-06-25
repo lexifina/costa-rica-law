@@ -17,3 +17,4 @@ Tarifas para las Áreas Silvestres Protegidas bajo la Administración del Sistem
 | 2 | 2004-05-04 | Decreto Ejecutivo 31804 (2004-05-04) |
 | 3 | 2005-05-16 | Decreto Ejecutivo 32442 (2005-05-16) |
 | 4 | 2007-12-05 | Decreto Ejecutivo 34164 (2007-12-05) |
+| 5 | 2012-06-25 | Ley 9046 |
