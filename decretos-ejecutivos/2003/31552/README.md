@@ -15,3 +15,4 @@ Crea Subsistema Nacional de Indicadores de Ciencia y Tecnología
 | --- | --- | --- |
 | 1 | 2003-12-23 | la propia norma |
 | 2 | 2008-01-11 | Decreto Ejecutivo 34278 (2008-01-11) |
+| 3 | 2012-06-25 | Ley 9046 |
