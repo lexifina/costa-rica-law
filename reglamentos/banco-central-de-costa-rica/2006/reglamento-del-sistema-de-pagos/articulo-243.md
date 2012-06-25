@@ -1,1 +1,0 @@
-Artículo 243.—Los Registradores son los encargados de validar la identidad de los futuros Suscriptores de certificados, tramitar las solicitudes (de emisión, revocación, renovación, suspensión o reestablecimiento) y entregar los certificados.

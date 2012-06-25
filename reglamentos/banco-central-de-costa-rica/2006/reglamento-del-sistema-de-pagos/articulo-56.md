@@ -1,1 +1,0 @@
-Artículo 56.—Para efecto de su participación en el SINPE, las entidades financieras representadas podrán tener un código de entidad únicamente con el fin de asignar Cuentas Clientes a sus clientes y operar en el SINPE como representado.

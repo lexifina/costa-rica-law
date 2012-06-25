@@ -1,3 +1,0 @@
-CAPÍTULO IV
-De las responsabilidades
-Artículo 135.—Todo Operador de Medios de Pago deberá liquidar las obligaciones derivadas de los procesos de compensación de tarjetas de crédito, tarjetas de débito o cualquier otro medio de pago, producto de su utilización en puntos de venta o en redes de cajeros automáticos, sobre las Cuentas SINPE de los Asociados que operen en dichas redes. La incorporación de una entidad financiera a un servicio de compensación proveído por un Operador de Medios de Pago, automáticamente implica su autorización de débito para la liquidación sobre su Cuenta SINPE de las obligaciones derivadas de este servicio.

@@ -1,1 +1,0 @@
-Artículo 180.—El BCCR podrá establecer topes mínimos o máximos en relación con el numerario que deberán mantener los bancos en cada una de las CAN bajo su responsabilidad, de manera que garantice un manejo adecuado del riesgo y la atención oportuna de situaciones de carácter contingente a las que están expuestas las entidades del Sistema Financiero.

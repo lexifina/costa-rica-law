@@ -1,1 +1,0 @@
-Artículo 184.—Los bancos deberán mantener físicamente en la CAN el mismo monto y la misma estructura denominativa que reporta electrónicamente el servicio CAN. Asimismo, deberán practicar las conciliaciones diarias y demás mecanismos de control dispuestos en las normas complementarias del Servicio.

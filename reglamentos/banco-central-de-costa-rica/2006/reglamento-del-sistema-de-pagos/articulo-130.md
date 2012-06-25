@@ -1,1 +1,0 @@
-Artículo 130.—El BCCR es responsable de custodiar los enteros de impuestos específicos, a su vez es responsable de remitirlos a las entidades beneficiarias, de conformidad con los plazos establecidos en las normas complementarias.

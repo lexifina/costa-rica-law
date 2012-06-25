@@ -1,1 +1,0 @@
-Artículo 255.—Las Partes Confiantes deberán utilizar los certificados solamente en aplicaciones de negocio autorizadas y funciones criptográficas apropiadas, tales como verificación de firma digital, encripción y otros detallados en las políticas establecidas en la PC.

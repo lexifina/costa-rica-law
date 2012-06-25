@@ -1,1 +1,0 @@
-Artículo 162.—El BCCR cobrará, diariamente y en forma automática sobre la Cuenta SINPE de la entidad participante en MONEX, por concepto del MIC, el monto definido en el Reglamento para las Operaciones Cambiarias de Contado.

@@ -1,1 +1,0 @@
-Artículo 157.—Las ofertas de compra o venta que realicen las entidades participantes a precios diferentes a los tipos de cambio de intervención de BCCR, estarán sujetas a calce automático bajo los principios de “mejor oferta de mercado” y de “primero en tiempo, primero en derecho”, pudiendo calzarse parcialmente una oferta.

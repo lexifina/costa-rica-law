@@ -1,1 +1,0 @@
-Artículo 221.—El BCCR realizará la liberación de nuevas versiones de software del SINPE o actualización de su plataforma tecnológica, siempre que sea factible, en horarios que no afecten la operativa del SINPE, para lo cual estructurará los respectivos procedimientos, los cuales incluirán las pruebas con los usuarios que se requieran.

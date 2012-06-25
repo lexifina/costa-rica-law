@@ -1,1 +1,0 @@
-Artículo 90.—La autorización de débito automático se efectuará por medio de la suscripción por parte del cliente destino de una orden de domiciliación, donde se establecen todas las condiciones que debe cumplir el cobro para que pueda ser aplicado sobre su Cuenta Cliente.

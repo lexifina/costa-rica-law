@@ -1,1 +1,0 @@
-Artículo 7º—Durante los feriados bancarios no se liquidará ningún servicio del SINPE, ni se habilitará el envío de archivos de cobro o devolución de alguno de los servicios de compensación multilateral neta.

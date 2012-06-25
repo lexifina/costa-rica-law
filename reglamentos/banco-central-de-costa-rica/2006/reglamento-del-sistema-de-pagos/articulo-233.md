@@ -1,1 +1,0 @@
-Artículo 233.—El asociado asume la responsabilidad por la creación, como usuario de su entidad, de un funcionario que ya está registrado por otro asociado como usuario en el sistema, pudiendo por tanto, realizar operaciones en nombre de las entidades en las que esté registrado. De parte del SINPE se alertará a la entidad sobre esta situación.

@@ -1,1 +1,0 @@
-Artículo 41.—Las sanciones y multas consignadas en el artículo 69 de la Ley Orgánica del BCCR serán determinadas por el Director del Departamento de Sistema de Pagos del BCCR, quien para estos efectos fungirá como órgano decisor que resolverá estos procedimientos.

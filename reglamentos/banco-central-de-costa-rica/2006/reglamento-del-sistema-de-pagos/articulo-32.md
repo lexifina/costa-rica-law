@@ -1,1 +1,0 @@
-Artículo 32.—Toda Cuenta Cliente constituida en una entidad financiera deberá tener asociado el número de identificación de la persona física o jurídica propietaria de dicha cuenta. En el caso de los extranjeros, dicha Cuenta Cliente deberá tener asociado el número de identificación del documento respectivo emitido por la Dirección General de Migración y Extranjería o pasaporte.

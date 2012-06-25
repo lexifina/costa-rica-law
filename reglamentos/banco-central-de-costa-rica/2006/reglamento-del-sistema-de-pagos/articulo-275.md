@@ -1,1 +1,0 @@
-Artículo 275.—En caso de cierre de la Cuenta SINPE de algún asociado, el BCCR efectuará el cobro del monto correspondiente a las comisiones adeudadas al momento del cierre, utilizando el tipo de cambio del día del cierre de la cuenta.

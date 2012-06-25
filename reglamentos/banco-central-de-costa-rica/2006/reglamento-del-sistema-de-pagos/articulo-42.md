@@ -1,1 +1,0 @@
-Artículo 42.—De resolverse la viabilidad de la apertura de un procedimiento administrativo, el Director del Departamento de Sistema de Pagos, nombrará al Órgano Director del Proceso. En esta labor los funcionarios designados deberán observar, cumplir a cabalidad y resolver, de acuerdo con la Ley General de la Administración Pública.

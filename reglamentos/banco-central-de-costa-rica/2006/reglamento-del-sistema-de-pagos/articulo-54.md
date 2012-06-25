@@ -1,1 +1,0 @@
-Artículo 54.—Todo asociado debe tener una Cuenta SINPE en colones y puede, a lo sumo, tener una cuenta en las demás divisas, excepto cuando medie autorización expresa de la División de Servicios Financieros para abrir cuentas adicionales a las antes señaladas.

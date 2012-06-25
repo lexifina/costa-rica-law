@@ -1,7 +1,0 @@
-Artículo 190.—Sin perjuicio de las distintas tarifas que muestra el esquema tarifario de este Reglamento para el Servicio CAN, las faltas enumeradas en el artículo anterior serán sancionadas según los siguientes criterios, los cuales rigen para cada año calendario:
-a) La primera vez: comunicado de la falta al Responsable del Servicio ante el BCCR y bloqueo temporal de la CAN en el Servicio CAN, hasta tanto sean corregidas las faltas señaladas.
-b) La segunda vez: comunicado de la falta al Responsable del Servicios ante el BCCR y bloqueo de la CAN en el Servicio CAN por 10 días hábiles. Aplica para la CAN que incurra en la falta.
-c) La tercera vez: comunicado de la falta a la Gerencia del banco y bloqueo de la CAN en el Servicio CAN por un mes calendario. Aplica para la CAN que incurra en la falta.
-d) La cuarta vez: comunicado de la falta a la Gerencia del banco y bloqueo de la CAN en el Servicio CAN por tres meses calendario. Aplica para la CAN que incurra en la falta.
-e) La quinta vez: comunicado de la falta a la Gerencia del banco y bloqueo indefinido de todas las CAN en el Servicio CAN.
-La acumulación progresiva de los anteriores criterios de sanción, se extingue al finalizar cada año calendario. Además, el banco correspondiente podrá presentar, dentro de un plazo de diez días hábiles, contados a partir de la fecha en que el Banco Central le comunique la falta, las pruebas de descargo que considere pertinentes, previo a la ejecución de la sanción que en cada caso se señala.

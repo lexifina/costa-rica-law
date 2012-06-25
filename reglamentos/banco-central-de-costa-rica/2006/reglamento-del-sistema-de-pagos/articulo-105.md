@@ -1,1 +1,0 @@
-Artículo 105.—La entidad origen con el propósito de cubrir la responsabilidad que asumen en nombre de su cliente por la gestión de cobro realizada, podrán solicitar a éste, la formalización de una garantía de conformidad con las condiciones que establezcan de mutuo acuerdo.

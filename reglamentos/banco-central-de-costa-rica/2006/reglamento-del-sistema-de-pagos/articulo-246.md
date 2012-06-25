@@ -1,1 +1,0 @@
-Artículo 246.—Cualquier persona que desee solicitar la renovación, revocación, suspensión o reestablecimiento de un certificado por cualquiera de las circunstancias establecidas en la PC que rige ese certificado, debe presentar la solicitud ante un Registrador. Esta persona debe estar autorizada por la PC de ese certificado para realizar la gestión específica.

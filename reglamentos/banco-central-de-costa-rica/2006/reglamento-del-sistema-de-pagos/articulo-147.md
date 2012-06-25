@@ -1,9 +1,0 @@
-CAPÍTULO III
-Del ciclo del servicio
-Artículo 147.—El ciclo del Servicio VBC se efectuará de conformidad con las siguientes etapas:
-a) Registro y publicación de la convocatoria: El BCCR abre una convocatoria de captación con los instrumentos financieros que ofrecerá a los inversionistas, indicando el periodo y el horario durante el cual dicha convocatoria estará abierta.
-La información relacionada con los términos y condiciones financieras de los instrumentos ofrecidos podrá ser consultada por los inversionistas a partir del momento en que se activa la convocatoria; no obstante, el BCCR podrá crear los mecanismos de comunicación adicionales que considere necesarios para promocionar su oferta entre los inversionistas.
-b) Registro de órdenes de inversión: Los inversionistas registran sus órdenes de inversión, debiendo activarlas para que el servicio las procese en la fecha valor que especifiquen.
-La constitución en firme de las órdenes de inversión se hará dentro del horario establecido para el periodo de captación, pudiendo el inversionista registrar órdenes calendarizadas para que se constituyan en una fecha futura, cuando el BCCR así lo disponga en las normas complementarias del servicio.
-c) Liquidación de órdenes de inversión y vencimientos: El SIL efectúa en firme la liquidación de la constitución de inversiones y el pago de vencimientos mediante las Cuentas SINPE, según corresponda, y a través del mecanismo de entrega contra pago. Las inversiones que se constituyan mediante el servicio son irrevocables.
-Cuando un inversionista presente una insuficiencia de fondos en la cuenta de pago, por la cual no pueda cubrir el monto de una orden de inversión, la liquidación final se ejecutará anulando las órdenes de inversión no cubiertas, siempre bajo el principio de primero en tiempo primero en derecho.

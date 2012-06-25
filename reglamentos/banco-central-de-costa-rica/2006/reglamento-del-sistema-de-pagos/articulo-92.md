@@ -1,1 +1,0 @@
-Artículo 92.—El cliente destino deberá presentar el comprobante de la orden de domiciliación, ante el cliente origen, para efecto de que éste inicie la gestión de cobro automático. En estos casos, la entidad destino podrá proveer a sus clientes, el servicio de entrega de la copia de la orden de domiciliación ante el cliente origen.

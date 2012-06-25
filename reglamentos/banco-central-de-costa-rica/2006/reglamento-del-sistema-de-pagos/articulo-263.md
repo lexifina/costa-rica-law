@@ -1,1 +1,0 @@
-Artículo 263.—Los asociados y demás instituciones señaladas en el presente libro, deberán suministrar información de conformidad con las especificaciones definidas en la norma complementaria correspondiente que para esos efectos elaborará el BCCR.

@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Del truncamiento de cheques
-Artículo 73.—Se define el truncamiento de cheques como el procedimiento mediante el cual, para todos aquellos cheques menores al monto de truncamiento anual definido para el servicio CLC, la entidad destino utilizará para efecto de validación, únicamente, la información contenida en el registro electrónico intercambiado.
