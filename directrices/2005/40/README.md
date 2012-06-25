@@ -14,3 +14,4 @@ Instruir a las Instituciones Públicas que aún no tienen Internet a tomar medid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-23 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
