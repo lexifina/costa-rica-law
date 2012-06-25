@@ -52,7 +52,8 @@ VI. Contenido
 - Se considerará indispensable la total colaboración del interesado para permitir el acceso al predio a inspeccionar, así como también el aporte de cualquier documentación extra que se solicite.
 6.3.3.5 Si el estudio técnico determina que el inmueble se ubica FUERA DE LOS LIMITES DE LAS AREAS SILVESTRES, se le insertará a los planos un sello donde se indicará tal situación. (SII-005), Dicho sello, debe quedar preferiblemente al frente del plano. En caso de no ser posible, se insertará al frente un sello que indique que el visado está al dorso.
 6.3.3.6 Si el estudio técnico determina que el inmueble se ubica DENTRO DE LOS LIMITES DE UN PARQUE NACIONAL, UNA RESERVA BIOLOGICA, UNA RESERVA FORESTAL, UNA ZONA PROTECTORA O UN HUMEDAL, se le insertará a los planos un sello donde se indicará tal situación (SII-006). En los casos en que el estudio técnico determine que el inmueble se ubica DENTRO DE LOS LIMITES DE UN REFUGIO NACIONAL DE VIDA SILVESTRE, se le insertará a los planos un sello donde se indicará tal situación (SII-007)
-6.3.3.7. En los casos de visado de planos cuya localización indique que se ubican dentro de alguna Área Silvestre Protegida administrada por MINAET y a su vez, dentro de la Zona Marítimo Terrestre, y que no correspondan a fincas debidamente inscritas por particulares, se tramitarán sólo para efectos de “Permiso de Uso”. Para estos casos se le insertará a los planos un sello donde se indicará tal situación (SII-008), debiendo indicarse en el plano que es un terreno en Administración del Ministerio de Ambiente, Energía y Telecomunicaciones, cédula jurídica número 2-100-042014 y Para Permiso de Uso. Deberá indicar amarre a dos mojones mínimo del Instituto Geográfico Nacional (I.G.N.) y el respectivo visado de esta institución. En ningún caso el visado de estos planos no implica el otorgamiento del Permiso de Uso, para lo cual el interesado deberá realizar el trámite correspondiente.
+6.3.3.7. En los casos de visado de planos cuya localización indique que se ubican dentro de alguna Área Silvestre Protegida administrada por MINAET y a su vez, dentro de la Zona Marítimo Terrestre, y que no correspondan a fincas debidamente inscritas por particulares, se tramitarán sólo para efectos de “Permiso de Uso”. Para estos casos se le insertará a los planos un sello donde se indicará tal situación (SII-008), debiendo indicarse en el plano que es un terreno en Administración del Ministerio de Ambiente y Energía (*), cédula jurídica número 2-100-042014 y Para Permiso de Uso. Deberá indicar amarre a dos mojones mínimo del Instituto Geográfico Nacional (I.G.N.) y el respectivo visado de esta institución. En ningún caso el visado de estos planos no implica el otorgamiento del Permiso de Uso, para lo cual el interesado deberá realizar el trámite correspondiente.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 6.3.3.8. Para cada uno de los planos visados, se elaborará una “Ficha de Información” (SII-009) y luego se localizará en el mapa de Tenencia de la Tierra, que para cada Área Silvestre Protegida tendrá el Área de Conservación, con su número de parcela, el cual corresponde a una identificación que llevará orden ascendente e individual para cada Área Silvestre Protegida.
 6.3.3.9. Cada uno de los casos de planos que se vayan a visar se incluirá en un Registro Diario de Visados (SII-010), que para esos efectos mantendrá el técnico calificador. En este registro deberán constar los datos contenidos en el plano y mencionar los estudios realizados para su aprobación.
 6.3.3.10. Cuando la Dirección del Catastro Nacional solicite otros visados además del visado de MINAET, el interesado deberá obtenerlos previamente.
@@ -148,7 +149,8 @@ ________________________________________________________________________________
 RESPONSABLE_________________________________________ FECHA____________________________________
 Instrucción de trabajo SII-005
 TEXTO DE VISADO FUERA DE A.S.P.
-MINISTERIO DEL AMBIENTE ENERGÍA Y TELECOMUNICACIONES
+MINISTERIO DEL AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
 VISADO Nº ………….….. 200 ………....Fecha…………
 Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica FUERA DE AREA SILVESTRE PROTEGIDA administrada por este Ministerio y legalmente establecida. Se exceptúa de lo anterior el artículo 33 de la Ley Forestal 7575 del 16-04-96. Se autoriza para efectos catastrales la inscripción de este plano.---
@@ -156,7 +158,8 @@ Con base en la ubicación que aparece en este plano, el inmueble que describe se
 Firma responsable estudio Nombre y Firma autorizada
 Instrucción de trabajo SII-006
 TEXTO DE VISADO DENTRO DE A.S.P.
-MINISTERIO DEL AMBIENTE, ENERGÍA Y TELECOMUNICACIONES
+MINISTERIO DEL AMBIENTE Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
 VISADO Nº ................... 200 .............Fecha…………
 Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica DENTRO de...................................................................... según Decreto Ejecutivo o Ley Nº......................................................... del ......................... lo dispuesto en la Ley Forestal Nº 7575 del 16 de abril de 1996 y legislación conexa. Se autoriza para efectos catastrales la inscripción de este plano.
@@ -164,7 +167,8 @@ Con base en la ubicación que aparece en este plano, el inmueble que describe se
 Firma calificador Nombre y Firma autorizada
 Instrucción de trabajo SII-007
 TEXTO DE VISADO DENTRO DE REFUGIOS DE VIDA SILVESTRE
-MINISTERIO DE AMBIENTE, ENERGÍA Y TELECOMUNICACIONES
+MINISTERIO DE AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
 VISADO Nº ................... 200 .............
 Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica DENTRO DEL REFUGIO NACIONAL DE FAUNA SILVESTRE…....................................……………………………..según Decreto Ejecutivo o Ley Nº..............................................del....................lo dispuesto en la Ley Forestal Nº 7575 del 16 de abril de 1996, la Ley de Conservación de Vida Silvestre 7317 del 07 de diciembre de 1992 y legislación conexa. Se autoriza para efectos catastrales la inscripción de este plano.
@@ -173,11 +177,13 @@ Firma calificador Nombre y Firma autorizada
 Instrucción de trabajo SII-008
 TEXTO DE VISADO DENTRO DE REFUGIOS DE VIDA
 SILVESTRE Y DENTRO DE ZONA MARÍTIMO TERRESTRE
-MINISTERIO DE AMBIENTE, ENERGÍA Y TELECOMUNICACIONES
+MINISTERIO DE AMBIENTE Y ENERGÍA(*)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 VISADO Nº ................... 200 .............Fecha……….
 Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica DENTRO DEL REFUGIO NACIONAL DE FAUNA SILVESTRE………………………..
-................................................................................................... según Decreto Ejecutivo o Ley Nº........................................del............................ ESTE VISADO NO IMPLICA AUTORIZACION ALGUNA PARA TRAMITES DE INFORMACIONES POSESORIAS y corresponderá al MINISTERIO DE AMBIENTE, ENERGIA Y TELECOMUNICACIONES otorgar el respectivo permiso de uso. Se autoriza para efectos catastrales la inscripción de este plano.
+................................................................................................... según Decreto Ejecutivo o Ley Nº........................................del............................ ESTE VISADO NO IMPLICA AUTORIZACION ALGUNA PARA TRAMITES DE INFORMACIONES POSESORIAS y corresponderá al MINISTERIO DE AMBIENTE Y ENERGIA (*)otorgar el respectivo permiso de uso. Se autoriza para efectos catastrales la inscripción de este plano.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 ....................................................................................................
 Firma calificador Nombre y Firma autorizada
 Instrucción de trabajo SII-009
