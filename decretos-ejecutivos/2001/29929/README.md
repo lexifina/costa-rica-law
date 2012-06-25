@@ -14,3 +14,4 @@ Laboratorios para realizar las Pruebas de Marcadores Genéticos, ADN.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-16 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
