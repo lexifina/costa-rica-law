@@ -1,21 +1,27 @@
-Nº 34890-MICIT
+Nº 34890-MICITT(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Con fundamento en lo dispuesto en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; y el artículo 33 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, N° 8454 del 30 de agosto del 2005.
 Considerando:
 I.—Que el Decreto Ejecutivo N° 33018-MICIT, del 20 de marzo del 2006, que es el Reglamento a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, tiene por objeto reglamentar y dar cumplida ejecución a la Ley número 8454, Ley de Certificados, Firmas Digitales y Documentos Electrónicos.
 II.—Que el artículo 19 de la Ley N° 8454, Ley de Certificados, Firmas Digitales y Documentos Electrónicos, establece que la Dirección de Certificadores de Firma Digital será la encargada de establecer, vía reglamento, todos los requisitos, el trámite y las funciones de las personas que soliciten su registro ante la misma, fijando los requerimientos técnicos para el estudio, de acuerdo con la Ley N° 8279, de 2 de mayo de 2002, y las prácticas y los estándares internacionales.
-III.—Que es necesario modificar algunas de las disposiciones contenidas en el Decreto Ejecutivo N° 33018-MICIT del 20 del marzo del 2006, con el propósito de adecuarlo a los lineamientos establecidos en la Norma INTE/ISO 21188 versión vigente.
+III.—Que es necesario modificar algunas de las disposiciones contenidas en el Decreto Ejecutivo N° 33018-MICITT(*) del 20 del marzo del 2006, con el propósito de adecuarlo a los lineamientos establecidos en la Norma INTE/ISO 21188 versión vigente.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 IV.—Que los ajustes propuestos se hacen con el fin de facilitar el avance y desarrollo de toda clase de transacciones y actos jurídicos, públicos o privados, así como ofrecer un trámite expedito y efectivo en la emisión de los certificados, las firmas digitales y los documentos electrónicos. Por tanto;
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA, DECRETAN
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES, (*)
+DECRETAN
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Reforma al Reglamento a la Ley de Certificados,
 Firmas Digitales y Documentos Electrónicos,
 Decreto Ejecutivo N° 33018-MICIT, del 20
 de marzo de 2006, publicado en el
 Diario Oficial La Gaceta Nº 77
 del 21 de abril de 2006
-Artículo 1º—Modifíquense los artículos 2 incisos 7) y 30), 5, 6 incisos 1) y 4), 8, 11, 12 incisos 1), 2) y 5), 13 párrafo 1°, 14, 15, 19 incisos 6) y 9), 22, 23 párrafo 2°, 24 párrafos 2° y 3°, 26 párrafo 1° y 28 párrafos 3° y 4° del Decreto Ejecutivo N° 33018-MICIT, de 20 de marzo del 2006, que es el Reglamento a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, para que en adelante se lean:
+Artículo 1º—Modifíquense los artículos 2 incisos 7) y 30), 5, 6 incisos 1) y 4), 8, 11, 12 incisos 1), 2) y 5), 13 párrafo 1°, 14, 15, 19 incisos 6) y 9), 22, 23 párrafo 2°, 24 párrafos 2° y 3°, 26 párrafo 1° y 28 párrafos 3° y 4° del Decreto Ejecutivo N° 33018-MICITT(*), de 20 de marzo del 2006, que es el Reglamento a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, para que en adelante se lean:
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 “Artículo 2°—Definiciones. Para los efectos del presente Reglamento, se entenderá por:
 …
 7) CERTIFICADO DIGITAL: Una estructura de datos creada y firmada digitalmente por un certificador, del modo y con las características que señalan este Reglamento, la Norma INTE/ISO 21188 versión vigente y las políticas que al efecto emita la DCFD, cuyo propósito primordial es posibilitar a sus suscriptores la creación de firmas digitales, así como la identificación personal en transacciones electrónicas. Sin perjuicio del concepto anterior, la DCFD podrá autorizar a los certificadores registrados la generación de certificados con propósitos diferentes o adicionales a los indicados.

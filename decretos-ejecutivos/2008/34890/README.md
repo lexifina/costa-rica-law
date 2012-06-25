@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley de Certificados, Firmas Digitales y Documentos Elect
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-26 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
