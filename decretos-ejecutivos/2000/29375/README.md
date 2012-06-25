@@ -16,3 +16,4 @@ Reglamento a la Ley de Uso, Manejo y Conservación de Suelos
 | 1 | 2001-03-21 | la propia norma |
 | 2 | 2001-08-21 | Decreto Ejecutivo 29884 (2001-08-21) |
 | 3 | 2009-05-06 | Decreto Ejecutivo 35368 (2009-05-06) |
+| 4 | 2012-06-25 | Ley 9046 |

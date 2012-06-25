@@ -1,10 +1,9 @@
-PODER EJECUTIVO
-DECRETOS
 Nº 29375 MAG-MINAE-S-HACIENDA-MOPT
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE AGRICULTURA Y GANADERÍA,
-DEL AMBIENTE Y ENERGÍA, SALUD, HACIENDA
+DE AMBIENTE Y ENERGÍA(*), SALUD, HACIENDA
 Y DE OBRAS PÚBLICAS Y TRANSPORTES
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Con fundamento en lo dispuesto en los incisos 3 y 18 del Artículo 140 de la Constitución Política, incisos 2b del Artículo 28 de la Ley General de la Administración Pública, y Ley 7779 del 23 de abril de 1998.
 Decretan:
 Reglamento a la Ley de Uso, Manejo

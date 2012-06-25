@@ -42,7 +42,8 @@ Lixiviados. Para los efectos de la ley que aquí se reglamenta, son contaminante
 MAG. Ministerio de Agricultura y Ganadería.
 Manejo de suelos. Prácticas que se hacen para modificar, mantener o mejorar sus características químicas, físicas y biológicas, con el fin de optimizar su productividad y función ambiental y evitar su degradación en el tiempo.
 Materia orgánica. Material animal o vegetal en cualquier estado de descomposición que se encuentra sobre o integrado al suelo.
-MINAE. Ministerio del Ambiente y Energía.
+MINAE. Ministerio de Ambiente y Energía(*).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 MOPT. Ministerio de Obras Públicas y Transportes.
 MS. Ministerio de Salud.
 Nivel freático. Es la superficie superior del agua subterránea o el nivel debajo del cual el suelo está saturado de agua.
