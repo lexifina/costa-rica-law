@@ -1,9 +1,11 @@
 (Anulada)
-Nº 34958-MINAET-COMEX
+Nº 34958-MINAE(*)-COMEX
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES, Y EL MINISTRO
+EL MINISTRO DE AMBIENTE, ENERGÍA,(*)
+Y EL MINISTRO
 DE COMERCIO EXTERIOR
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades y atribuciones contenidas en los artículos 50, 140, incisos 3) y 18); y 146 de la Constitución Política; los numerales 25, 27 párrafo primero, 28 párrafo segundo, inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; los artículos 2º y 80 de la Ley de Biodiversidad, Ley Nº 7788 del 30 de abril de 1998; el artículo 15 del Convenio sobre Diversidad Biológica y sus Anexos, Ley de Aprobación Nº 7416 del 30 de junio de 1994, la Ley Orgánica del Ministerio del Ambiente y Energía, Ley Nº 7152 del 5 de junio de 1990; la Ley Orgánica del Ambiente, Ley Nº 7554 del 4 de octubre de 1995, y el Decreto Ejecutivo Nº 34582–MP-MIDEPLAN del 4 de junio del 2008, denominado Reglamento Orgánico del Poder Ejecutivo; y
 Considerando:
 I.—De conformidad con el principio de soberanía de los Estados, establecido en el artículo 15 del Convenio sobre la Diversidad Biológica, aprobado por Costa Rica mediante Ley Nº 7416 del 30 de junio de 1994, publicada en el Diario Oficial La Gaceta Nº 143 de 28 de julio de 1994; y el artículo 2º de la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, publicada en el Diario Oficial La Gaceta Nº 101 del 27 de mayo de 1998, el Estado ejercerá la soberanía completa y exclusiva sobre los elementos de la biodiversidad.
