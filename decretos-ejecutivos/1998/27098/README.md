@@ -20,3 +20,4 @@ Reglamento General Concesión de Obras Públicas con Servicios Públicos.
 | 5 | 2003-09-09 | Decreto Ejecutivo 31429 (2003-09-09) |
 | 6 | 2004-06-10 | Decreto Ejecutivo 31836 (2004-06-10) |
 | 7 | 2007-01-12 | Decreto Ejecutivo 33672 (2007-01-12) |
+| 8 | 2012-06-25 | Ley 9046 |
