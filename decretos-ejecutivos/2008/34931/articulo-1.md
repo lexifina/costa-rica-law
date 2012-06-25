@@ -1,7 +1,8 @@
-Nº 34931-MINAET
+Nº 34931-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Con fundamento en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política y el artículo 25, inciso 1) y 28 de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978 y
 Considerando:
 1º—Que el Primer Encuentro Mundial por los Bosques, denominado “Chico Mendes”, organizado por la Fundación para la Juventud, el Ambiente y los Deportes, YFSE por sus siglas en inglés, está orientado a utilizar mecanismos educativos para informar y crear conciencia ecológica en la juventud y público en general, sobre la importancia de proteger los bosques y acerca de la conservación de los recursos del planeta.

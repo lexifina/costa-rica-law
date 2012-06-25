@@ -15,3 +15,4 @@ Declaratoria de interés público del primer encuentro mundial por los bosques d
 | --- | --- | --- |
 | 1 | 2009-02-02 | la propia norma |
 | 2 | 2009-03-12 | Decreto Ejecutivo 35154 (2009-03-12) |
+| 3 | 2012-06-25 | Ley 9046 |
