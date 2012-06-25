@@ -14,3 +14,4 @@ Modificación al Reglamento a la Ley General de Telecomunicaciones, Decreto Ejec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-04 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
