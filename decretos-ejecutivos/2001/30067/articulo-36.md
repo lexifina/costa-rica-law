@@ -1,1 +1,0 @@
-Artículo 36.—Los recursos económicos obtenidos con la aplicación de este Decreto Ejecutivo, serán depositados en el Fondo de Parques Nacionales, y serán trasladados al Fideicomiso de Áreas Silvestres Protegidas cuando este sea creado e inicie su funcionamiento.

@@ -1,1 +1,0 @@
-Artículo 26.—Las filmaciones de carácter científico, cultural o educativo, dentro de los límites de parques nacionales, reservas biológicas y monumentos nacionales deberán ser autorizadas por escrito, por la Dirección Regional del Área de Conservación a la cual pertenezca el área silvestre protegida.

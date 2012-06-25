@@ -1,1 +1,0 @@
-Artículo 22.—Previo a efectuar cualquier labor de investigación en un área silvestre, el investigador deberá cumplir con todos los requisitos establecidos por la Ley de Conservación de Vida Silvestre, la Ley de Biodiversidad, y por la reglamentación existente en el Ministerio de Ambiente y Energía, para estos casos.
