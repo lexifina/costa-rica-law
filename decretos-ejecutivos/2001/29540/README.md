@@ -16,3 +16,4 @@ Constituye el Centro Nacional de Información Geoambiental como un órgano de la
 | 1 | 2001-06-11 | la propia norma |
 | 2 | 2001-11-02 | Decreto Ejecutivo 30024 (2001-11-02) |
 | 3 | 2009-12-04 | Decreto Ejecutivo 35669 (2009-12-04) |
+| 4 | 2012-06-25 | Ley 9046 |
