@@ -1,7 +1,8 @@
-Nº 35187-MINAET
+Nº 35187-MINAE (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, artículos 25 inciso 1), 27 inciso l) y 28 inciso 2), acápite b), y 361 de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978, artículo 77 inciso d), la Ley General de Telecomunicaciones, Nº 8642 del 4 de junio del 2008, y la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, Nº 8660, del 8 de agosto del 2008.
 Considerando:
 I.—Que corresponde al Poder Ejecutivo reglamentar las leyes de la República.

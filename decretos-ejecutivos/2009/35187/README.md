@@ -14,3 +14,4 @@ Plan Nacional de Numeración
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-04 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
