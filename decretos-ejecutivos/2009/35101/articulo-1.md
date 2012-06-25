@@ -1,7 +1,8 @@
-Nº 35101-MINAET
+Nº 35101-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades conferidas en el artículo 50 y en los incisos 3), y 18) del artículo 140 y 146 de la Constitución Política, y en el artículo 23, de la Ley Nº 7788 Ley de Biodiversidad del 30 de abril de 1998 y el artículo 35 de la Ley Nº 7575 Ley Forestal del 13 de febrero de 1996.
 Considerando:
 1º—Que es deber del Estado velar por la protección de los recursos naturales y establecer las medidas preventivas para evitar el deterioro de los mismos.
