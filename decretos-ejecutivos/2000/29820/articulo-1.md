@@ -2,7 +2,8 @@ PODER EJECUTIVO
 DECRETOS
 Nº 29820-MINAE-H-MEIC
 EL PRESIDENTE DE LA REPÚBLICA
-Y LOS MINISTROS DEL AMBIENTE Y ENERGÍA, DE HACIENDA Y DE ECONOMÍA, INDUSTRIA Y COMERCIO
+Y LOS MINISTROS DE AMBIENTE Y ENERGÍA(*), DE HACIENDA Y DE ECONOMÍA, INDUSTRIA Y COMERCIO
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Con fundamento en las facultades que les confiere el artículo 140 de la Constitución Política, en sus incisos 3) y 18); artículo 28. 2b de la Ley General Administración Pública, Nº 6227 del 2 de mayo de 1978, Ley de Normas Industriales, Nº 1698 del 26 de noviembre de 1953, Ley del Sistema Internacional de Unidades, Nº 5292 del 9 de agosto de 1973, Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor, Nº 7472 del 20 de diciembre de 1994, Ley de Aprobación Tratado de Libre Comercio Estados Unidos Mexicanos-Costa Rica, Nº 7474 del 20 de diciembre de 1994, Ley de Aprobación del Acta Final en que se incorporan los Resultados de la Ronda de Uruguay de Negociaciones Multilaterales, Nº 7475 del 20 de diciembre de 1994 y Ley Orgánica de Ministerio de Economía Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977 y sus reformas y de conformidad con capítulos III, IV y V de la Ley Nº 7447, Ley de Regulación del Uso Racional de la Energía, publicada en La Gaceta el trece de diciembre de 1994.
 Considerando:
 1º—Que el uso eficiente de los recursos energéticos debe ser una prioridad del gobierno con miras a lograr un desarrollo sostenible.
@@ -109,7 +110,7 @@ BEF mínimo (1 lámp) | 4.00 | 2.50 | 1.50 | -
 BEF mínimo (2 lámp) | 2.00 | 1.30 0. | 0.70 | 50
 BEF mínimo (3 lámp) | 1.80 | 1.00 | - | -
 BEF mínimo (4 lámp) | 1.40 | 0.70 | - | -
-Distorsión total de armónicas(DTA%) | £ 33% | £ 33% | £ 33% | £ 33%
+Distorsión total de armónicas (DTA%) | £ 33% | £ 33% | £ 33% | £ 33%
 Factor de potencia % mínimo | ³ 90 | ³ 90 | ³ 90 | ³ 90
 Etiqueta de origen incluyendo: | | | |
 Marca (indeleble) | Requerida | Requerida | Requerida | Requerida
