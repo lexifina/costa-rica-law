@@ -1,1 +1,2 @@
-Artículo 11.—El MINAET apoyará técnicamente a la Comisión Nacional del Programa Bandera Azul Ecológica (CNPBAE), en la evaluación de los planes de trabajo y en el informe final de esta categoría.
+Artículo 11.—El MINAE (*) apoyará técnicamente a la Comisión Nacional del Programa Bandera Azul Ecológica (CNPBAE), en la evaluación de los planes de trabajo y en el informe final de esta categoría.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
