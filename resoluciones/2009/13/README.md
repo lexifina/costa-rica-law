@@ -15,3 +15,4 @@ Lineamientos para la Oficialización de Corredores Biológicos en Costa Rica
 | --- | --- | --- |
 | 1 | 2009-04-15 | la propia norma |
 | 2 | 2011-05-30 | Resolución 28 (2011-05-30) |
+| 3 | 2012-06-25 | Ley 9046 |
