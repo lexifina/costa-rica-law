@@ -191,7 +191,9 @@ Junta de Protección Social de San José 3.576,9 E
 Laboratorio Costarricense de Metrología 164,6 H
 Ministerio de Agricultura y
 Ganadería - MAG 1.225,3 F
-Ministerio de Ciencia y Tecnología 152,8 I
+Ministerio de Ciencia, Tecnología y
+Telecomunicaciones (*) 152,8 I
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Ministerio de Comercio Exterior 473,5 G
 Ministerio de Cultura,
 Juventud y Deportes 1.038,4 F

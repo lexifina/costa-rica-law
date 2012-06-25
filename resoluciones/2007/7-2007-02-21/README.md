@@ -15,3 +15,4 @@ Actualiza límites económicos que establece el artículo 27 Ley de Contratació
 | --- | --- | --- |
 | 1 | 2007-03-01 | la propia norma |
 | 2 | 2012-05-11 | Ley 9036 |
+| 3 | 2012-06-25 | Ley 9046 |
