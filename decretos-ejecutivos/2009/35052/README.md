@@ -14,3 +14,4 @@ Declaratoria de interés público II Congreso Nacional de Ingeniería Agrícola
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-16 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
