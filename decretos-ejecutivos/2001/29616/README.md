@@ -15,3 +15,4 @@ Modifica a la Ley de Presupuesto Ordinario y Extraordinario del 2001
 | --- | --- | --- |
 | 1 | 2001-07-18 | la propia norma |
 | 2 | 2001-09-28 | Decreto Ejecutivo 29870 (2001-09-28) |
+| 3 | 2012-06-25 | Ley 9046 |
