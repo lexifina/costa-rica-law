@@ -142,8 +142,10 @@ Ministerio de Agricultura y Ganadería (MAG) (Anexo N°4) Ministerio de Economí
 Ministerio de Salud
 Ministerio de Trabajo y Seguridad Social (MTSS) Ministerio de Cultura, Juventud y Deportes (MCJD) Ministerio de Justicia y Gracia
 Ministerio de la Vivienda y Asentamientos Humanos (MIVAH) Ministerio de Comercio Exterior (COMEX)
-Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) Ministerio de Ciencia y Tecnología (MICIT)
-Ministerio de Ambiente, Energía y Telecomunicaciones (MINAET) Servicio de la Deuda Pública
+Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT)(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Ministerio de Ambiente y Energía (MINAE)(*) Servicio de la Deuda Pública
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Regímenes de Pensiones con Cargo al Presupuesto de la República
 Obras Específicas Poder Judicial
 Tribunal Supremo de Elecciones (TSE)
