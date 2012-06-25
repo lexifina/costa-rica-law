@@ -1,9 +1,2 @@
-ARTÖCULO 48.-
-Adem s de los requisitos que establezca el CONICIT; para
-acogerse a
-los beneficios que establecen los incisos b) y c) del art¡culo
-26 de este
-reglamento, deber n ser satisfechos los requisitos que al
-respecto defina
-el Ministerio de Hacienda y el Ministerio de Ciencia y
-Tecnolog¡a.
+Artículo 48.- Además de los requisitos que establezca el CONICIT; para acogerse a los beneficios que establecen los incisos b) y c) del artículo 26 de este reglamento, deberán ser satisfechos los requisitos que al respecto defina el Ministerio de Hacienda y el Ministerio de Ciencia, Tecnología y Telecomunicaciones(*).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

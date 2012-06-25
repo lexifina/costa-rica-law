@@ -1,5 +1,6 @@
-ARTICULO 99.- Además de los incentivos fiscales indicados en el artículo anterior, se otorgarán los siguientes beneficios a las personas físicas o jurídicas o entidades científicas privadas:
-a) Premios periódicos que otorgará el Ministerio de Ciencia y Tecnología a las empresas cuya adaptación, asimilación o innovación tecnológica, se haya distinguido más por su alcance o beneficio económico y social para el país.
+Artículo 99.- Además de los incentivos fiscales indicados en el artículo anterior, se otorgarán los siguientes beneficios a las personas físicas o jurídicas o entidades científicas privadas:
+a) Premios periódicos que otorgará el Ministerio de Ciencia, Tecnología y Telecomunicaciones(*) a las empresas cuya adaptación, asimilación o innovación tecnológica, se haya distinguido más por su alcance o beneficio económico y social para el país.
 b) Financiamiento bancario para promover la innovación tecnológica.
-c) Apoyo financiero y técnico anualmente, bajo la coordinación del Ministerio de Ciencia y Tecnología a las empresas y entidades científicas privadas que desarrollen programas de gestión tecnológicas para la reconversión industrial.
+c) Apoyo financiero y técnico anualmente, bajo la coordinación del Ministerio de Ciencia, Tecnología y Telecomunicaciones(*) a las empresas y entidades científicas privadas que desarrollen programas de gestión tecnológicas para la reconversión industrial.
 d) Cofinanciamiento de proyectos de innovación tecnológica y a las empresas de bienes y servicios, de acuerdo con el Programa Nacional de Ciencia y Tecnología, por parte del CONICIT, con base en el artículo 41 de la ley N° 7169.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

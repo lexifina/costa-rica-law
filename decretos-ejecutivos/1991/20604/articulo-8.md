@@ -1,4 +1,4 @@
-Artículo 8º—Se crea una Secretaría Técnica, la cual funcionará con el recurso humano y presupuestario ya existentes en el Ministerio de Ciencia y Tecnología; la cual estará coordinada por un funcionario de este Ministerio y tendrá las siguientes funciones:
+Artículo 8º—Se crea una Secretaría Técnica, la cual funcionará con el recurso humano y presupuestario ya existentes en el Ministerio de Ciencia, Tecnología y Telecomunicaciones(*); la cual estará coordinada por un funcionario de este Ministerio y tendrá las siguientes funciones:
 1. Llevar un archivo de los contratos firmados y de la documentación de expedientes de las solicitudes presentadas, así como las actas de las sesiones de la Comisión tanto de fondo de Incentivos de la Ley Nº 7169 como las de PROPYME Ley Nº 8262.
 2. Conseguir la información y mecanismos necesarios para resolver las solicitudes.
 3. Asistir con voz pero sin voto a las sesiones de la Comisión de Incentivos.
@@ -9,3 +9,4 @@ Artículo 8º—Se crea una Secretaría Técnica, la cual funcionará con el rec
 8. Otros que la Comisión le asigne.
 El CONICIT así como las demás instituciones que forman parte de la Comisión podrán destinar tanto recursos humanos como financieros con el fin de apoyar las funciones que ejerce esta Secretaría Técnica.
 (Así reformado por el artículo 2 de la norma que aprueba el Reglamento para el Programa de Fortalecimiento para la Innovación y Desarrollo Tecnológico de las PYME", aprobado mediante decreto ejecutivo N° 36575 del 6 de mayo del 2011)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
