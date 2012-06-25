@@ -14,3 +14,4 @@ Reglamento de Zonificación del Refugio Nacional de Vida Silvestre Gandoca-Manza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-23 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

@@ -1,7 +1,8 @@
 Artículo 22.—Zona 4: Llanura costera Gandoca.
 Recomendaciones de uso:
 Usos recomendados: conservación e investigación.
-Uso condicionado: vivienda unifamiliar actividades eco turísticas de pequeña escala y pesca con licencia otorgada por el MINAET. No se darán más permisos de uso en la Zona Marítimo Terrestre.
+Uso condicionado: vivienda unifamiliar actividades eco turísticas de pequeña escala y pesca con licencia otorgada por el MINAE(*). No se darán más permisos de uso en la Zona Marítimo Terrestre.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Tamaño de propiedad: 1 hectárea (10.000 metros cuadrados) mínimo.
 Recomendaciones de regulación: construcción
 Retiro de construcción: 15 metros medidos desde los límites de la propiedad, excepto el lindero con la Zona Pública que será de 30 metros.
