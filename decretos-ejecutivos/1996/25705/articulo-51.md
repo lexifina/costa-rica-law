@@ -1,1 +1,0 @@
-Artículo 51: Para efectos de lo estipulado en el artículo 93, inciso d) de la Ley, la SETENA y el Banco respectivo donde se establecerá el fideicomiso, elaborarán el reglamento que regulará lo concerniente a la condición para su manejo.

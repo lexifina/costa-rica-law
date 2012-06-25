@@ -1,1 +1,0 @@
-Artículo 9º: Los acuerdos serán notificados al interesado dentro del término de tres días naturales contados después de adquirir su firmeza. Las notificaciones se harán por medio de notificador, en el lugar señalado para tal efecto por el interesado, dentro del perímetro administrativo de la ciudad de San José o por fax, si el interesado lo ha solicitado por escrito.

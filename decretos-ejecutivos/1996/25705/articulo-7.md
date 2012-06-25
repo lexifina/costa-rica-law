@@ -1,2 +1,0 @@
-Artículo 7º: De cada sesión se levantará un acta que contendrá hora, fecha y lugar en que se celebra, personas presentes y ausentes, así como los puntos principales de deliberación y acuerdos tomados. Las actas se aprobarán en la siguiente sesión y antes de su aprobación carecerán de firmeza sus resoluciones, salvo que los miembros presentes acuerden su firmeza por votación de no menos de los dos tercios de la totalidad de los integrantes de la SETENA. Los acuerdos serán tomados por mayoría simple.
-Las actas serán firmadas por los miembros presentes en la respectiva sesión.

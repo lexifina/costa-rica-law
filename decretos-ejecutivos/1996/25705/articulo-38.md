@@ -1,1 +1,0 @@
-Artículo 38: Deberá levantarse un acta de la audiencia que contendrá como mínimo: fecha, hora de inicio y de conclusión, nombre de los presentes, puntos principales de discusión y opinión general de los presentes sobre el proyecto. Dicha acta deberá ser firmada por los personeros indicados en el artículo 37 de este reglamento.

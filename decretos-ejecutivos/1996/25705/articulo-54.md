@@ -1,3 +1,0 @@
-Artículo 54: Transcurrido el plazo que se le otorgó para realizar las medidas correctivas, el proponente deberá demostrar a satisfacción de la SETENA, el cumplimiento de las mismas.
-Si las medidas y acciones adoptadas resultaran satisfactorias para la SETENA, ésta podrá autorizar al proponente continuar con las obras u operación del proyecto.
-Caso contrario, se cancelará la aprobación del EsIA por incumplimiento de las acciones establecidas para la conservación y protección del medio ambiente. Esta cancelación implica la suspensión o cierre definitivo de las operaciones del proyecto, sin perjuicio alguno para la Administración.

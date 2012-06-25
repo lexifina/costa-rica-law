@@ -1,1 +1,0 @@
-Artículo 8º: El quórum para que la SETENA pueda sesionar válidamente será de cinco miembros. En casos de urgencia, podrá sesionar válidamente media hora después de la primera convocatoria, y para ello será suficiente la asistencia de cuatro de sus miembros.

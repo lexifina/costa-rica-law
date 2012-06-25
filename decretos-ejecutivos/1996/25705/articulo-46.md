@@ -1,1 +1,0 @@
-Artículo 46: El consultor inscrito en el libro de registro, asume la obligación de mantener actualizados los datos proporcionados para su inscripción, debiendo comunicar cualquier modificación significativa dentro del término de un mes, de haberse producido la misma.

@@ -1,1 +1,0 @@
-Artículo 20.— (Anulado por resolución de la Sala Constitucional de la Corte Suprema de Justicia, N° 1220-2002 de las 14:48 horas del 06 de febrero del 2002, por razones de conexidad con la reforma introducida al mismo por el Decreto Ejecutivo N° 26228.)

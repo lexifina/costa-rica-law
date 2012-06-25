@@ -1,1 +1,0 @@
-Artículo 37: En la audiencia pública necesariamente deberán estar presentes representantes de la SETENA, de la o las Comunidades involucradas, de la o las Municipalidades correspondientes y el proponente del proyecto, quien deberá exponerlo.

@@ -1,1 +1,0 @@
-Artículo 40: Asimismo, si el proponente o un grupo organizado desea ser recibido por la SETENA de acuerdo con el artículo 22 de la Ley, podrá solicitarlo por escrito, señalando dirección postal o número telefónico o de fax donde se le comunicará la hora y el día en que serán atendidos, dentro del plazo de quince días después de haberse recibido la petición.

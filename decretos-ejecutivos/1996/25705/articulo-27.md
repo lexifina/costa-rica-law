@@ -1,2 +1,0 @@
-Artículo 27: En contra de las resoluciones de la SETENA cabrá recurso de revocatoria y de apelación para ante el Ministro de Ambiente y Energía(*), dentro del plazo de tres días a partir de la notificación de la resolución.
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
