@@ -14,3 +14,4 @@ Declara de Interés Nacional el desarrollo de la Investigación en Ciencias de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-02 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
