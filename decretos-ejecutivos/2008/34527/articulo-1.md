@@ -1,6 +1,8 @@
-Nº 34527-MICIT
+Nº 34527-MICITT (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+Y LA MINISTRA DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las facultades conferidas por los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, la Ley de Promoción del Desarrollo Científico y Tecnológico, Nº 7169 del 26 de junio de 1990, publicada en La Gaceta Nº 144 de 1º de agosto de 1990, el artículo 27 de la Ley General de la Administración Pública, Nº 6227 de 2 de mayo de 1978, y
 Considerando:
 1º—La carrera de Biotecnología del Instituto Tecnológico de Costa Rica, con el apoyo de Instituciones y empresas, llevará a cabo el Encuentro Bio Tica 2008 que se realizará el día 07 octubre del presente año en el Hotel Ramada Herradura.

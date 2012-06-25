@@ -14,3 +14,4 @@ Declara de Interés Público el "Encuentro Bio Tica 2008"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-29 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
