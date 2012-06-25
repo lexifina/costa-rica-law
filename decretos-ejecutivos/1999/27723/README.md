@@ -14,3 +14,4 @@ Declara de interés público el Congreso Nacional de Ciencia y Tecnología de Al
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-25 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
