@@ -8,5 +8,6 @@ f) Controlar la distribución de cupones de combustible. Asimismo, controlar el 
 g) Velar porque los vehículos estén debidamente asegurados y dar seguimiento de denuncias presentadas ante el Instituto Nacional de Seguros.
 h) Velar por el adecuado mantenimiento, las reparaciones, y en general, por el buen estado de los vehículos a su cargo, con inclusión de la medidas permanentes de limpieza y las de revisión, periódica en talleres especializados según el kilometraje de cada vehículo.
 i) Rendir informes sobre la tenencia, el uso, el mantenimiento y situaciones especiales de los vehículos.
-j) Velar porque los vehículos sean debidamente depositados y custodiados en los estacionamientos previamente establecidos por el MICIT.
+j) Velar porque los vehículos sean debidamente depositados y custodiados en los estacionamientos previamente establecidos por el MICITT(*).
 k) Realizar cualquier otra diligencia necesaria para el buen uso y conservación de los vehículos.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

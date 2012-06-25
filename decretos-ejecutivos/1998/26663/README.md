@@ -14,3 +14,4 @@ Reglamento para Uso de Vehículos del Ministerio de Ciencia y Tecnología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-16 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
