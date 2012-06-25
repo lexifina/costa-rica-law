@@ -14,3 +14,4 @@ Impone servidumbre de acueducto en finca ubicada en la provincia de San José, c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-26 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
