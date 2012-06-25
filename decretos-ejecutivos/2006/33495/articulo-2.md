@@ -204,7 +204,8 @@ Cuando los datos de prueba y cualquier otra información calificada y clasificad
 6.2.9 El Ministerio no aceptará certificaciones que tengan más de un año de haber sido expedidas.
 (*) 7. MODALIDADES DE REGISTRO
 A los efectos de los procedimientos necesarios para la obtención del Registro, el presente Reglamento establece los siguientes tipos de registros:
-1- Registro Experimental (Derogado por Decreto Ejecutivo N° 35284-MAG-S-MINAET-MEIC del 27 de abril de 2009).
+1- Registro Experimental (Derogado por Decreto Ejecutivo N° 35284-MAG-S-MINAE (*)-MEIC del 27 de abril de 2009).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 2- Registro de ingrediente activo grado técnico.
 3- Registro de ingrediente activo grado técnico por equivalencia.
 4- Registro de plaguicidas sintéticos formulados.
