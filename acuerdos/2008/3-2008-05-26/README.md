@@ -14,3 +14,4 @@ Manual de Procedimientos para la Adquisión de Terrenos dentro de Áreas Silvest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-24 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
