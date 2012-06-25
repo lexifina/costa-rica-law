@@ -14,3 +14,4 @@ Declara de interés público y necesidad social el diseño, financiamiento, ejec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-07 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

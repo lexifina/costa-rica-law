@@ -1,7 +1,8 @@
 Nº 32133
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE SALUD Y EL MINISTRO
-DEL AMBIENTE Y ENERGÍA
+DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las facultades conferidas en los artículos 140, incisos 3) y 18), 50 y 146 de la Constitución Política; y con fundamento en lo establecido en la Ley General de Administración Pública Nº 6227 del 2 de mayo de 1978, la Ley General de Salud Nº 5395 del 30 de octubre de 1973, la Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995; la Ley de Aguas Nº 276 del 27 de agosto de 1942 y sus reformas; y la Ley Nº 7317 del 30 de octubre de 1992 “Ley de Conservación de Vida Silvestre”.
 Considerando:
 1º—Que el Estado debe procurar el mayor bienestar de los ciudadanos, planificando y estimulando la producción hacia una justa distribución de la riqueza, con un ambiente sano y ecológicamente equilibrado, que propicie el desarrollo sostenible para garantizar la existencia de la vida humana y de los diversos ecosistemas, como garantía de la sobrevivencia de las generaciones actuales y sin menoscabo de las generaciones futuras, en una ecuación que propicie precisamente el desarrollo de los diversos componentes y actividades sectoriales.
