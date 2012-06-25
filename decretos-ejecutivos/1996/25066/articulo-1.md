@@ -1,111 +1,25 @@
 (Derogado)
 Nº 25066-MINAE
 EL PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DEL AMBIENTE Y ENERGIA,
-(DEROGADO, por artículo 9° del Decreto Ejecutivo No. 31676 de 16 de enero de 2004).
-En uso de las facultades que les confieren los artículos 50, 140,
-incisos 3), 8) y 18) de la Constitución Política, en relación con los
-artículos 26, inciso b) y 28, inciso a) y 83 de la ley Nº 6227 del 2 de
-mayo de 1978, Ley General de la Administración Pública; artículos 2,
-incisos a), b), ch) y e) de la ley Nº 7152 del 4 de junio de 1990, Ley de
-Conversión del Ministerio de Industria, Energía y Minas en Ministerio de
-Recursos Naturales, Energía y Minas; ley Nº 7223 del 8 de abril de 1991,
-"Protocolo de Montreal relativo a sustancias agotadoras de la capa de
-Ozono" del 16 de setiembre de 1987; artículos 1 y 2 de la ley Nº 7228 del
-6 de mayo de 1991, "Aprobación de la Adhesión de Costa Rica al Convenio
-de Viena para la Protección de la Capa de Ozono" del 22 de marzo de 1985;
-artículos 2, 3, párrafos 1 y 3, 4, párrafo 1, incisos b) y c) de la ley
-Nº 7414 del 13 de junio de 1994, "Convención Marco de las Naciones Unidas
-sobre el Cambio Climático" del 9 de mayo de 1992; y los artículos 2,
-inciso a), b) y c), 46, 49, 59, 60, 61, 62 y 64 de la ley Nº 7554 del 4
-de octubre de 1995, Ley Orgánica del Ambiente.
+Y EL MINISTRO DE AMBIENTE Y ENERGIA,
+(Derogado por el artículo 9° del Decreto Ejecutivo N° 31676 de 16 de enero de 2004).
+En uso de las facultades que les confieren los artículos 50, 140, incisos 3), 8) y 18) de la Constitución Política, en relación con los artículos 26, inciso b) y 28, inciso a) y 83 de la ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública; artículos 2, incisos a), b), ch) y e) de la ley Nº 7152 del 4 de junio de 1990, Ley de Conversión del Ministerio de Industria, Energía y Minas en Ministerio de Recursos Naturales, Energía y Minas; ley Nº 7223 del 8 de abril de 1991, "Protocolo de Montreal relativo a sustancias agotadoras de la capa de Ozono" del 16 de setiembre de 1987; artículos 1 y 2 de la ley Nº 7228 del 6 de mayo de 1991, "Aprobación de la Adhesión de Costa Rica al Convenio de Viena para la Protección de la Capa de Ozono" del 22 de marzo de 1985; artículos 2, 3, párrafos 1 y 3, 4, párrafo 1, incisos b) y c) de la ley Nº 7414 del 13 de junio de 1994, "Convención Marco de las Naciones Unidas sobre el Cambio Climático" del 9 de mayo de 1992; y los artículos 2, inciso a), b) y c), 46, 49, 59, 60, 61, 62 y 64 de la ley Nº 7554 del 4 de octubre de 1995, Ley Orgánica del Ambiente.
 Considerando:
-1º.- Que desde 1985, la comunidad internacional ha suscrito una serie
-de Convenios con el propósito de mitigar y regular las actividades
-humanas que provocan un deterioro de la capa de ozono y generan gases que
-provocan el cambio climático, todo lo cual causa serias alteraciones y
-danos a los ecosistemas y a la diversidad biológica del planeta.
-2º.- Que las actividades humanas han aumentado sustancialmente las
-concentraciones de gases de efecto invernadero en la atmósfera y ese
-aumento intensifica el efecto invernadero natural, lo cual da como
-resultado, en promedio, un calentamiento adicional de la superficie y la
-atmósfera de la Tierra, que provoca cambios en el medio ambiente físico o
-en la biota con efectos nocivos significativos en la composición, la
-capacidad de recuperación o la productividad de los ecosistemas naturales
-o sujetos a ordenación, o en el funcionamiento de los sistemas
-socioeconómicos, en la salud y el bienestar humanos.
-3º.- Que los distintos acuerdos internacionales han establecido la
-necesidad de que los países desarrollados tomen la iniciativa en lo que
-respecta a combatir los efectos adversos del cambio climático y para
-proteger la biodiversidad en su conjunto. En este sentido, la Convención
-Marco de las Naciones Unidas sobre el Cambio Climático, a prescrito la
-necesidad de que las Partes, principalmente los países desarrollados,
-coadyuden a los países en desarrollo en la implementación de proyectos
-conjuntos que mitiguen el cambio climático por medio de una limitación de
-las emisiones antropógenas de gases de efecto invernadero y de la
-protección y mejoramiento de los sumideros y depósitos de gases de efecto
-invernadero.
-4º.- Que en virtud de lo anterior, en octubre de 1993 el Gobierno de
-los Estados Unidos de Norte América dio a conocer la denominada
-"Iniciativa de los Estados Unidos de Norte América para la Implementación
-Conjunta (Unites States Initiative on Joint Implementation-USIJI), el
-cual es un programa que contribuye a apoyar financieramente a través de
-entidades privadas norteamericanas, proyectos que mitiguen las emisiones
-de gases de efecto invernadero en las distintas regiones geográficas del
-mundo.
-5º.- Que el día 30 de setiembre de 1994 en la ciudad de Washington, el
-Gobierno de Costa Rica y el Gobierno de los Estados Unidos de Norte
-América, firmaron la denominada "Carta de Intenciones para el Desarrollo
-Sostenible, la Cooperación y la Implementación Conjunta de medidas para
-evitar y reducir la emisión de gases que provocan el efecto invernadero",
-en la cual se establece la intención de ambos países por explorar el
-mecanismo de los certificados de reducción de emisiones de gases que
-producen el efecto invernadero y su potencial mercado, con el objeto de
-fomentar proyectos de implementación conjunta.
-6º.- Que el Gobierno de la República se ha comprometido a través de
-Convenios internacionales, a implementar medidas administrativas y
-económicas para mitigar, disminuir o fijar los gases que provocan el
-efecto invernadero y el deterioro de la biodiversidad, y es de interés
-del Gobierno de la República, desarrollar un programa de Implementación
-Conjunta para Costa Rica
-7º.- Que dentro de los compromisos adquiridos se ha establecido la
-necesidad de implementar una acción coordinada entre órganos
-gubernamentales y no gubernamentales para la utilización óptima y
-racional de los recursos naturales, el control de la contaminación y el
-restablecimiento del equilibrio ecológico. Por lo tanto y en esta medida,
-se tiene gran interés en aprovechar oportunidades que existen actualmente
-para ejecutar proyectos de implementación conjunta dirigidos hacia el uso
-y mejora de tecnologías y estrategias que: 1) Reduzcan la emisión de
-gases que provocan el efecto invernadero y, 2) Conserven, restauren y
-amplíen los sumideros o depósitos de carbono, constituidos principalmente
-por la biomasa, los bosques, así como otros ecosistemas terrestres, 3)
-Generen la producción de energía renovable y ahorro energético.
-8º.- Que con fundamento en lo indicado en el punto inmediato el
-Ministerio del Ambiente y Energía, la Fundación FUNDEX, la Coalición
-Costarricense de Iniciativas de Desarrollo y la Fundación para el
-Desarrollo de la Cordillera Volcánica Central, firmaron un Convenio de
-Cooperación el 18 de agosto de 1995 con el objetivo de definir políticas
-y criterios para la elaboración y evaluación de proyectos de
-implementación conjunta y la promoción y mercadeo de Costa Rica en el
-exterior, como país generador de proyectos que contribuyan al secuestro
-de dióxido de carbono de la atmósfera, la reducción de la emisión de
-gases y la generación de fuentes de energía renovable.
-9º.- Que en la Primera Conferencia de las Partes del Convenio Marco de
-Cambio climático, celebrada en Berlín, Alemania, el 7 de abril de 1995,
-se acordó que cada proyecto de implementación conjunta tiene que recibir
-la aprobación oficial del país anfitrión y del país inversionista, para
-que pueda ser considerado como un proyecto oficial de Implementación
-Conjunta.
-10.- Que dada la dimensión del proyecto que se ha generado, se hace
-necesario oficializar el establecimiento de la Oficina Costarricense de
-Implementación Conjunta (OCIC), como una entidad encargada de definir las
-políticas y criterios para la promoción, evaluación, aprobación y
-monitoreo de proyectos de implementación conjunta. Por tanto,
+1º.- Que desde 1985, la comunidad internacional ha suscrito una serie de Convenios con el propósito de mitigar y regular las actividades humanas que provocan un deterioro de la capa de ozono y generan gases que provocan el cambio climático, todo lo cual causa serias alteraciones y danos a los ecosistemas y a la diversidad biológica del planeta.
+2º.- Que las actividades humanas han aumentado sustancialmente las concentraciones de gases de efecto invernadero en la atmósfera y ese aumento intensifica el efecto invernadero natural, lo cual da como resultado, en promedio, un calentamiento adicional de la superficie y la atmósfera de la Tierra, que provoca cambios en el medio ambiente físico o en la biota con efectos nocivos significativos en la composición, la capacidad de recuperación o la productividad de los ecosistemas naturales o sujetos a ordenación, o en el funcionamiento de los sistemas socioeconómicos, en la salud y el bienestar humanos.
+3º.- Que los distintos acuerdos internacionales han establecido la necesidad de que los países desarrollados tomen la iniciativa en lo que respecta a combatir los efectos adversos del cambio climático y para proteger la biodiversidad en su conjunto. En este sentido, la Convención Marco de las Naciones Unidas sobre el Cambio Climático, a prescrito la necesidad de que las Partes, principalmente los países desarrollados, coadyuden a los países en desarrollo en la implementación de proyectos conjuntos que mitiguen el cambio climático por medio de una limitación de las emisiones antropógenas de gases de efecto invernadero y de la protección y mejoramiento de los sumideros y depósitos de gases de efecto invernadero.
+4º.- Que en virtud de lo anterior, en octubre de 1993 el Gobierno de los Estados Unidos de Norte América dio a conocer la denominada "Iniciativa de los Estados Unidos de Norte América para la Implementación Conjunta (Unites States Initiative on Joint Implementation-USIJI), el cual es un programa que contribuye a apoyar financieramente a través de entidades privadas norteamericanas, proyectos que mitiguen las emisiones de gases de efecto invernadero en las distintas regiones geográficas del mundo.
+5º.- Que el día 30 de setiembre de 1994 en la ciudad de Washington, el Gobierno de Costa Rica y el Gobierno de los Estados Unidos de Norte América, firmaron la denominada "Carta de Intenciones para el Desarrollo Sostenible, la Cooperación y la Implementación Conjunta de medidas para evitar y reducir la emisión de gases que provocan el efecto invernadero", en la cual se establece la intención de ambos países por explorar el mecanismo de los certificados de reducción de emisiones de gases que producen el efecto invernadero y su potencial mercado, con el objeto de fomentar proyectos de implementación conjunta.
+6º.- Que el Gobierno de la República se ha comprometido a través de Convenios internacionales, a implementar medidas administrativas y económicas para mitigar, disminuir o fijar los gases que provocan el efecto invernadero y el deterioro de la biodiversidad, y es de interés del Gobierno de la República, desarrollar un programa de Implementación Conjunta para Costa Rica
+7º.- Que dentro de los compromisos adquiridos se ha establecido la necesidad de implementar una acción coordinada entre órganos gubernamentales y no gubernamentales para la utilización óptima y racional de los recursos naturales, el control de la contaminación y el restablecimiento del equilibrio ecológico. Por lo tanto y en esta medida, se tiene gran interés en aprovechar oportunidades que existen actualmente para ejecutar proyectos de implementación conjunta dirigidos hacia el uso y mejora de tecnologías y estrategias que: 1) Reduzcan la emisión de gases que provocan el efecto invernadero y, 2) Conserven, restauren y amplíen los sumideros o depósitos de carbono, constituidos principalmente por la biomasa, los bosques, así como otros ecosistemas terrestres, 3) Generen la producción de energía renovable y ahorro energético.
+8º.- Que con fundamento en lo indicado en el punto inmediato el Ministerio de Ambiente y Energía(*), la Fundación FUNDEX, la Coalición Costarricense de Iniciativas de Desarrollo y la Fundación para el Desarrollo de la Cordillera Volcánica Central, firmaron un Convenio de Cooperación el 18 de agosto de 1995 con el objetivo de definir políticas y criterios para la elaboración y evaluación de proyectos de implementación conjunta y la promoción y mercadeo de Costa Rica en el exterior, como país generador de proyectos que contribuyan al secuestro de dióxido de carbono de la atmósfera, la reducción de la emisión de gases y la generación de fuentes de energía renovable.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+9º.- Que en la Primera Conferencia de las Partes del Convenio Marco de Cambio climático, celebrada en Berlín, Alemania, el 7 de abril de 1995, se acordó que cada proyecto de implementación conjunta tiene que recibir la aprobación oficial del país anfitrión y del país inversionista, para que pueda ser considerado como un proyecto oficial de Implementación Conjunta.
+10.- Que dada la dimensión del proyecto que se ha generado, se hace necesario oficializar el establecimiento de la Oficina Costarricense de Implementación Conjunta (OCIC), como una entidad encargada de definir las políticas y criterios para la promoción, evaluación, aprobación y monitoreo de proyectos de implementación conjunta. Por tanto,
 Decretan:
 CREACION DE LA OFICINA COSTARRICENSE DE
 IMPLEMENTACION CONJUNTA
 CAPITULO I
 De la Constitución de la OCIC
-Artículo 1º.- Créase la Oficina Costarricense de Implementación
-Conjunta, cuyas siglas serán OCIC, como un órgano de desconcentración
-máxima y oficina técnica-ejecutora del Ministerio del Ambiente y Energía.
+Artículo 1º.- Créase la Oficina Costarricense de Implementación Conjunta, cuyas siglas serán OCIC, como un órgano de desconcentración máxima y oficina técnica-ejecutora del Ministerio de Ambiente y Energía.(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
