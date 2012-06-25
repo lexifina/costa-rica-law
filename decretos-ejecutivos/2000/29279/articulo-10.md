@@ -1,1 +1,0 @@
-Artículo 10.—Serán funciones del Secretario preparar la agenda de cada sesión, tomar la minuta, redactar las actas respectivas y contestar la correspondencia. Será además responsable de los expedientes de la Comisión y tendrá las demás atribuciones que esta le asigne.
