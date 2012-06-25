@@ -15,3 +15,4 @@ Crea Comisión Intersectorial de Gobierno Digital
 | --- | --- | --- |
 | 1 | 2009-04-06 | la propia norma |
 | 2 | 2010-09-08 | Decreto Ejecutivo 36176 (2010-09-08) |
+| 3 | 2012-06-25 | Ley 9046 |
