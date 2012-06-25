@@ -14,3 +14,4 @@ Reforma Política de Uso de Logotipo y Símbolo de Acreditación” aplicable me
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-15 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
