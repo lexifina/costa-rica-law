@@ -15,3 +15,4 @@ Crea Premio Nacional de Ciencia, Clodomiro Picado Twight y el Premio Nacional de
 | --- | --- | --- |
 | 1 | 2000-06-16 | la propia norma |
 | 2 | 2010-11-02 | Decreto Ejecutivo 36326 (2010-11-02) |
+| 3 | 2012-06-25 | Ley 9046 |
