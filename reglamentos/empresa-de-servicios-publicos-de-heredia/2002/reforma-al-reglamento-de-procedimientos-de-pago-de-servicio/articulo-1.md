@@ -91,7 +91,8 @@ CONTRATO: Léase el presente contrato
 CONVENIO DE COOPERACION: Convenio suscrito entre la ESPH S.A. y ACCVC del MINAE para la puesta en marcha de PROCUENCAS
 E.S.P.H. S.A.: Empresa de Servicios Públicos de Heredia Sociedad Anónima
 FUERZA MAYOR: Significa un evento que esté fuera del control de las partes y que no haya ocurrido por falta o negligencia de las partes
-MINAE: Ministerio del Ambiente y Energía
+MINAE: Ministerio de Ambiente y Energía(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 OFICINA AMBIENTAL: Oficina de la ESPH S.A. encargada de la ejecución de PROCUENCAS y del Pago por Servicio Ambiental Hídrico
 PAGO POR SERVICIO AMBIENTAL HIDRICO: Retribución que realiza la Empresa al Beneficiario a cambio de que este realice actividades de reforestación, conservación y/o regeneración natural del bosque en su propiedad con el fin de proteger el recurso hídrico. Esta retribución comprende: a) la provisión de plántulas y/o estacas forestales y/o b) la retribución con dinero en efectivo
 PLAN DE MANEJO: Documento debidamente aprobado por la Oficina Ambiental en el que se describen las actividades técnicas a cargo del Beneficiario que se realizan en el AREA durante el período de vigencia de este contrato
@@ -174,7 +175,8 @@ CONVENIO DE COOPERACIÓN: Convenio suscrito entre la ESPH S.A. y ACCVC del MINAE
 CONSERVACIÓN: Léase Conservación del bosque natural. Significa mantener, cuidar y evitar cualquier intervención en las áreas de bosque natural.
 E.S.P.H. S.A.: Empresa de Servicios Públicos de Heredia Sociedad Anónima
 FUERZA MAYOR: Evento que está fuera del control de las partes y que no ha ocurrido por falta o negligencia de las partes
-MINAE: Ministerio del Ambiente y Energía
+MINAE: Ministerio de Ambiente y Energía(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 OFICINA AMBIENTAL: Oficina de la ESPH S.A. encargada de la ejecución de PROCUENCAS y del Pago por Servicio Ambiental Hídrico
 PAGO POR SERVICIO AMBIENTAL HÍDRICO: Retribución que realiza la Empresa al Beneficiario a cambio de que este realice actividades de reforestación, conservación y/o regeneración natural del bosque en su propiedad con el fin de proteger el recurso hídrico. Esta retribución comprende: a) la provisión de plántulas y/o estacas forestales y/o b) la asistencia técnica o regente forestal y/o c) la retribución con dinero en efectivo
 PLAN DE MANEJO: Documento debidamente aprobado por la Oficina Ambiental en el que se describen las actividades técnicas a cargo del Beneficiario que se realizan en el AREA durante el período de vigencia de este contrato

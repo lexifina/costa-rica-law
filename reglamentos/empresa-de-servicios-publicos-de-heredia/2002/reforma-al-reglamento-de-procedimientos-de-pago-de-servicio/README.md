@@ -15,3 +15,4 @@ Reforma al Reglamento de procedimientos de pago de servicio ambiental hídrico
 | --- | --- | --- |
 | 1 | 2002-10-14 | la propia norma |
 | 2 | 2005-02-01 | Reglamento 28 (2005-02-01) |
+| 3 | 2012-06-25 | Ley 9046 |
