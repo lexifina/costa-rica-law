@@ -1,11 +1,9 @@
 (Anulada)
-PODER EJECUTIVO
-DECRETO
-Nº 28215-MAG-MICIT (ANULADO)
+Nº 28215-MAG-MICITT(*) (ANULADO)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERIA
-Y DE CIENCIA Y TECNOLOGIA
-*(Por resolución de la Sala Constitucional No. 11881 de las 14 horas con 50 minutos del 27 de octubre de 2004 se anula por Inconstitucional el presente Decreto Ejecutivo.)
+Y DE CIENCIA, TECNOLOGIA Y TELECOMUNICACIONES(*)
+(*)(Por resolución de la Sala Constitucional No. 11881 de las 14 horas con 50 minutos del 27 de octubre de 2004 se anula por Inconstitucional el presente Decreto Ejecutivo.)
 En uso de las atribuciones establecidas en los incisos 3) y 18) del artículo 140 de la Constitución Política, la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería y la Ley Nº 7169 del 26 de junio de 1990, Ley de Promoción del Desarrollo Científico y Tecnológico.
 Considerando:
 1º—Que la globalización de los mercados es el creciente grado de interdependencia que existe entre las economías producto de la avalancha tecnológica, la desregulación en los mercados y la apertura comercial, la reducción del intervencionismo estatal y la mayor libertad de tránsito internacional de capitales y bienes.
@@ -13,7 +11,7 @@ Considerando:
 3º—Que el Estado costarricense tiene como uno de sus objetivos fundamentales la creación de las condiciones macroeconómicas necesarias que faciliten el desarrollo económico y social sostenible del país.
 4º—Que el desarrollo integral del país requiere de la creación de nuevas oportunidades en el medio rural en un marco equilibrado entre el crecimiento económico, la equidad social y el uso racional de los recursos naturales.
 5º—Que al Ministro de Agricultura y Ganadería, en su calidad de Rector del Sector Público Agropecuario se le ha asignado la tarea de conducir los esfuerzos nacionales en materia de desarrollo del medio rural.
-6º—Que uno de los objetivos del Ministerio de Ciencia y Tecnología es promover el desarrollo en el país de la plataforma tecnológica necesaria para el surgimiento y desarrollo de empresas competitivas.
+6º—Que uno de los objetivos del Ministerio de Ciencia, Tecnología y Telecomunicaciones(*) es promover el desarrollo en el país de la plataforma tecnológica necesaria para el surgimiento y desarrollo de empresas competitivas.
 7º—Que en varios países del mundo se han desarrollado los parques tecnológicos como respuesta a la necesidad de combinar la investigación con los sistemas productivos de la zona, donde el componente tecnológico es clave para modernizar y adaptar los productos a los requerimientos de los mercados.
 8º—Que los Parques Tecnológicos se han constituido en un instrumento catalizador del desarrollo, donde se atraen iniciativas, se promueve la inversión y se mejoran los procesos de desarrollo de la comunidad.
 9º—Que en la gestación y desarrollo, a nivel internacional, de la mayoría de los Parques Tecnológicos han participado en forma activa los sectores público y privado para dar respuesta a las necesidades de innovación tecnológica de zonas geográficas específicas y de los países en general.
@@ -25,3 +23,4 @@ Considerando:
 15.—Que el Consejo Nacional de Producción posee una propiedad en donde se encuentra instalada la Planta La Rita, que actualmente no está operando, y que por su ubicación geográfica, infraestructura y extensión, permitiría la instalación y el desarrollo de un Parque Tecnológico Por tanto,
 Decretan:
 Artículo 1º—Se declara de interés público nacional el desarrollo e implementación del Proyecto para la Instalación de un Parque Tecnológico en la zona de Leesville, Roxana-Pococí y se autoriza a las Instituciones del Estado a destinar recursos y brindar apoyo en general a la Asociación Pro Desarrollo Agropecuario, Industrial y Tecnológico del Caribe (ADAINTEC), para lograr la concreción de este Proyecto.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
