@@ -13,3 +13,4 @@ Declara 31 de Octubre Día Nacional de la Calidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-12-04 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
