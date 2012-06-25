@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-04 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
