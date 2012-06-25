@@ -15,3 +15,4 @@ Reglamento para la Regulación del Uso Racional de la Energía.
 | --- | --- | --- |
 | 1 | 1996-11-08 | la propia norma |
 | 2 | 2011-03-17 | Decreto Ejecutivo 36499 (2011-03-17) |
+| 3 | 2012-06-25 | Ley 9046 |

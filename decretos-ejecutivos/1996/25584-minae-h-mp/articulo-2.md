@@ -98,9 +98,11 @@ Lumen: Unidad de flujo luminoso, igual al flujo emitido en el ángulo sólido de
 Luminaria: Artefacto que distribuye, filtra o transforma el flujo luminoso proveniente de una lámpara o fuente luminosa y que incluye todos los accesorios necesarios para fijar y proteger dicha lámpara, los elementos necesarios para el funcionamiento y permite conectarla a la fuente de energía.
 Medidas de bajo costo o inversión: Aquellas acciones incluidas en el Programa de Uso Racional de la Energía que en su conjunto tienen un costo inferior al 15% de la respectiva factura energética, y que se propone realizar una empresa con la previa aprobación del MINAE.
 Memoria de cálculo: Documento que muestra los cálculos con que se obtuvieron los resultados intermedios y finales de un determinado estudio, que se usa con el fin de tomar decisiones.
-MICIT: Ministerio de Ciencia y Tecnología.
+MICIT: Ministerio de Ciencia, Tecnología y Telecomunicaciones(*).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Microbús: Vehículo automotor destinado al transporte de personas, cuya capacidad para pasajeros sentados oscila entre nueve y veinticinco pasajeros. Para efectos de este reglamento se considera que la Microbús es solamente para el transporte público de personas para lo cual se cobra una tarifa (incluidos dentro de la partida 8702 del SA).
-MINAE: Ministerio del Ambiente y Energía.
+MINAE: Ministerio de Ambiente y Energía(*).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Módulo fotovoltáico: Conjunto de celdas o células que convierten las radiaciones electromagnéticas en electricidad.
 Monto total pagado por concepto de energía: Monto expresado en colones resultante de sumar todos los montos pagados anualmente por los distintos energéticos consumidos por la empresa.
 "Panel": Vehículo de carga liviana que se diseñó de tal manera que entre el compartimiento de carga y el del conductor no exista ninguna división. El comportamiento de carga se diseña totalmente cerrado y con una o más puertas de acceso.

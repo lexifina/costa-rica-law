@@ -1,11 +1,11 @@
 Articulo 94.-Materiales para la fabricación de equipos para el aprovechamiento de las energías renovables.
-Únicamente podrán contar con este beneficio los FABRICANTES NACIONALES que cuenten con su respectiva licencia de fabricación vigente expedida por el Ministerio del Ambiente y Energía (MINAE).
-Para efecto de otorgar la licencia el fabricante deberá aportar adicionalmente, a los requisitos establecidos en el articulo 91 del Reglamento de la Ley 7447, la siguiente información por producto:
+Únicamente podrán contar con este beneficio los FABRICANTES NACIONALES que cuenten con su respectiva licencia de fabricación vigente expedida por el Ministerio de Ambiente y Energía(*) (MINAE).
+Para efecto de otorgar la licencia el fabricante deberá aportar adicionalmente, a los requisitos establecidos en el artículo 91 del Reglamento de la Ley 7447, la siguiente información por producto:
 i) Producción y ventas realizadas mensualmente durante los dos años anteriores a la solicitud.
 ii) Lista de materiales requeridos para la fabricación de una unidad del producto.
 iii) Proyección de producción y ventas detalladas mensualmente para los próximos dos años, con una estimación sobre los requerimientos de material.
 Con esta información el MINAE establecerá los límites de importación de material durante el año.
-Si el fabricante desea incrementar este limite, deberá aportar al MINAE la información necesaria que le permita verificar que se han fabricado la producción proyectada para el año en estudio.
+Si el fabricante desea incrementar este límite, deberá aportar al MINAE la información necesaria que le permita verificar que se han fabricado la producción proyectada para el año en estudio.
 Todos los materiales que se listan en el presente artículo, se eximen del pago de los impuestos selectivo de consumo, ad valorem, de ventas, y la Ley N° 6946, del 14 de enero de 1984.
 En la lista aparecen las partes, accesorios o materiales necesarios para fabricar o ensamblar sistemas de aprovechamiento de energías renovables.
 Estas partes, accesorios o materiales no podrán ser comercializados en forma individual, únicamente en sistemas completos, previa presentación del diseño según consta en los requisitos de la licencia de fabricación.
@@ -75,3 +75,4 @@ Filtros de agua.
 p) Bombas de ariete.
 q) Cobertores de piscina y sus recogedores para sistemas solares de piscina.
 (Así reformado por el artículo 2° del decreto ejecutivo N° 28099 del 27 de abril de 1999)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
