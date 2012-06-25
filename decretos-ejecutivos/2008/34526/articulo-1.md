@@ -1,6 +1,8 @@
-Nº 34526-MICIT
+Nº 34526-MICITT (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+Y LA MINISTRA DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las facultades conferidas por los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, la Ley de Promoción del Desarrollo Científico y Tecnológico, N° 7169 del 26 de junio de 1990, publicada en La Gaceta N° 144 de 01 de agosto de 1990, el artículo 27 de la Ley General de
 la Administración Pública, N° 6227 de 02 de mayo de 1978, y
 Considerando:

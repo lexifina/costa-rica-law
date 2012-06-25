@@ -14,3 +14,4 @@ Declaratoria de Interés Público el V Congreso Internacional Denominado: "Innov
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-27 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
