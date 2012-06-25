@@ -1,6 +1,7 @@
 Nº 29277-MINAE
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+Y LA MINISTRA DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política y de conformidad con lo dispuesto en el artículo 82 de la Ley de Conservación de la Vida Silvestre Nº 7317 del 30 de octubre de 1992, los artículos 32 y 42 de la Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995,
 Considerando:
 1º—Que como consecuencia directa del aumento de la población, la agricultura intensiva, la urbanización, la contaminación, la sobreexplotación de los recursos marinos y otras formas de intervención en el sistema ecológico e hidrológico, los ecosistemas de humedales, principalmente en el Golfo de Nicoya, se están perdiendo en forma acelerada, lo que podría traer serias consecuencias para la biodiversidad, las actividades de pesca y la economía del país a mediano y largo plazo.
