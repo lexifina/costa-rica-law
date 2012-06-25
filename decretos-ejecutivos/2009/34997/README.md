@@ -15,3 +15,4 @@ Reglamento de organización del Viceministerio de telecomunicaciones
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
 | 2 | 2009-01-23 | Decreto Ejecutivo 35026 (2009-01-23) |
+| 3 | 2012-06-25 | Ley 9046 |
