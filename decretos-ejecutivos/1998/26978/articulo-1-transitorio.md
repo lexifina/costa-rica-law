@@ -1,2 +1,0 @@
-Transitorio único.—En un plazo de treinta días a partir de la publicación de este decreto se establecerán la Unidades Regionales de Información Sectorial Agropecuaria en cada una de las regiones, integradas por funcionarios de las instituciones del sector relacionados con información regional.
-Dado en la Presidencia de la República.—San José, a los veinte días del mes de abril de mil novecientos noventa y ocho.

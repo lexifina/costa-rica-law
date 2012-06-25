@@ -1,1 +1,0 @@
-Artículo 2°—El mantenimiento del contenido de la Red será responsabilidad de las diferentes áreas funcionales de las instituciones del sector que manejen temas considerados de interés para los diferentes usuarios del sistema y que intervienen en cualquier punto de la cadena agroproductiva.
