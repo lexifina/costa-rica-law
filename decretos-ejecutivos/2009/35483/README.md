@@ -14,3 +14,4 @@ Declara de Interés Público y Conveniencia Nacional el Proyecto Hidroeléctrico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-28 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
