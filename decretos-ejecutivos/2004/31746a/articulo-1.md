@@ -89,9 +89,9 @@ c.- El tercer dígito se asigna a los grupos institucionales del Gobierno Genera
 d.- En el cuarto dígito se agrupan los subgrupos: Gobierno de la República, Instituciones Descentralizadas no Empresariales, Gobiernos Locales, Empresas Públicas no Financieras Nacionales, Empresas Públicas no Financieras Municipales, Instituciones Públicas Financieras Bancarias, Instituciones Públicas Financieras no Bancarias y las Instituciones Financieras de Rectoría y Supervisión.
 e.- Los tres dígitos del quinto nivel corresponden a la numeración asignada a las instituciones, la cual es consecutiva dentro de cada subgrupo, dejando las respectivas previsiones para nuevas inclusiones. En el caso de los Gobiernos Locales, se asigna una numeración que es consistente con la división político-administrativa costarricense.
 f.- Finalmente, los últimos tres dígitos del sexto nivel son de uso de control para el Gobierno Central, que permitirá identificar el Ministerio al cual están adscritos los Órganos Desconcentrados. Esto significa, que los Órganos Descentrados llevarán la codificación del Ministerio respectivo y que fue asignado en los tres códigos del quinto nivel.
-[imagen]
 ESTRUCTURA
 La estructura base del clasificador parte de un primer nivel denominado Sector Público con dos grandes ramificaciones que dan origen al Sector Público No Financiero y Sector Público Financiero, los cuales se van subdividiendo hasta llegar al nivel de Instituciones en que se identifica cada entidad en forma individual con su respectivo código, por medio de la utilización de los tres dígitos del quinto nivel. A continuación se presenta esquemáticamente la estructura del sector público de acuerdo al clasificador institucional:
+[imagen]
 DETALLE DEL CLASIFICADOR INSTITUCIONAL
 [imagen]
 1.0.0.0.000.000 SECTOR PÚBLICO
@@ -119,8 +119,8 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.1.215.000 Ministerio de la Vivienda y Asentamientos Humanos (MIVAH)
 1.1.1.1.216.000 Ministerio de Comercio Exterior (COMEX)
 1.1.1.1.217.000 Ministerio de Planificación Nacional y Política Económica (MIDEPLAN)
-1.1.1.1.218.000 Ministerio de Ciencia y Tecnología (MICIT)
-1.1.1.1.219.000 Ministerio del Ambiente y Energía (MINAE)
+1.1.1.1.218.000 Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT)(*)
+1.1.1.1.219.000 Ministerio de Ambiente y Energía(*) (MINAE)
 1.1.1.1.230.000 Servicio de la Deuda Pública
 1.1.1.1.231.000 Regímenes de Pensiones con Cargo al Presupuesto de la
 República
@@ -472,3 +472,4 @@ RECTORÍA Y SUPERVISIÓN
 1.2.1.3.202.000 Superintendencia General de Pensiones (SUPEN)
 [imagen]
 (●) Corresponden a Entes Públicos no Estatales
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

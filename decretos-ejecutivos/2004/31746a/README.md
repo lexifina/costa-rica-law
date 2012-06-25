@@ -16,3 +16,4 @@ Clasificador Presupuestario Institucional de uso generalizado para el Sector Pú
 | 1 | 2004-04-23 | la propia norma |
 | 2 | 2006-04-20 | Decreto Ejecutivo 33086 (2006-04-20) |
 | 3 | 2012-05-11 | Ley 9036 |
+| 4 | 2012-06-25 | Ley 9046 |
