@@ -14,3 +14,4 @@ Reforma al Reglamento Autónomo de Servicio del Ministerio de Ciencia y Tecnolog
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-13 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
