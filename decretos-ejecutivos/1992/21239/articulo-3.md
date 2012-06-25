@@ -1,1 +1,0 @@
-Artículo 3°-La Comisión de Coordinación del Programa de Democratización Económica y Formación de Empresas Laborales contará con una Secretaría Técnica que sirva de soporte y facilite el cumplimiento de sus tareas.
