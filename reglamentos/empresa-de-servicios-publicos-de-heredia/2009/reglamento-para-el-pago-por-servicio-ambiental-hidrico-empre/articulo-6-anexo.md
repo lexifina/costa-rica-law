@@ -17,7 +17,8 @@ CONTRATO: Léase el presente contrato
 CONSERVACIÓN: Léase Conservación del bosque natural. Significa mantener, cuidar y evitar cualquier intervención en las áreas de bosque natural.
 E.S.P.H. S. A.: Empresa de Servicios Públicos de Heredia Sociedad Anónima
 FUERZA MAYOR: Evento que está fuera del control de las partes y que no ha ocurrido por falta o negligencia de las partes
-MINAET: Ministerio del Ambiente, Energía y Telecomunicaciones.
+MINAET: Ministerio del Ambiente y Energía (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 PAGO POR SERVICIO AMBIENTAL HÍDRICO: Retribución que realiza la Empresa al Beneficiario a cambio de que este realice actividades de reforestación, conservación y/o regeneración natural del bosque en su propiedad con el fin de proteger el recurso hídrico. Esta retribución comprende: a) la provisión de plántulas y/o estacas forestales y/o b) la asistencia técnica o regente forestal y/o c) la retribución con dinero en efectivo.
 PLAN DE MANEJO: Documento debidamente aprobado por la Unidad de Gestión Ambiental en el que se describen las actividades técnicas a cargo del Beneficiario que se realizan en el ÁREA durante el período de vigencia de este contrato
 PROCUENCAS: Programa de la Empresa de Servicios Públicos de Heredia S. A. para la conservación y recuperación de las microcuencas de los ríos Ciruelas, Segundo, Bermúdez y Tibás de la provincia de Heredia. Este se financia con los fondos de la Tarifa Hídrica
@@ -29,7 +30,8 @@ SERVICIOS AMBIENTALES: Los que brindan el bosque y las plantaciones forestales y
 TARIFA HÍDRICA: Monto de la tarifa de agua potable que corresponde al ajuste ambiental. Esta puede definirse como: a) el valor del servicio ambiental hídrico o servicio de producción de agua que brindan los bosques y b) el costo ambiental necesario para recuperar y conservar las fuentes de agua que administra la ESPH S. A.
 UNIDAD DE GESTIÓN AMBIENTAL: Oficina de la ESPH S. A. encargada de la ejecución de PROCUENCAS y del Pago por Servicio Ambiental Hídrico
 CLÁUSULA SEGUNDA: ANTECEDENTES
-1. La Empresa de Servicios Públicos de Heredia S. A., según su Ley de Transformación (Nº 7789 del 30 de abril 1998), tiene entre sus objetivos la conservación, administración y explotación racional de los recursos hídricos de la región de Heredia en asocio con el Ministerio de Ambiente y Energía (MINAET) y demás organismos oficiales y privados de similar naturaleza que operan en la región.
+1. La Empresa de Servicios Públicos de Heredia S. A., según su Ley de Transformación (Nº 7789 del 30 de abril 1998), tiene entre sus objetivos la conservación, administración y explotación racional de los recursos hídricos de la región de Heredia en asocio con el Ministerio de Ambiente y Energía (MINAE)(*) y demás organismos oficiales y privados de similar naturaleza que operan en la región.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 2. La ESPH S. A. ejecutará el Programa de Pago de Servicios Ambientales Hídricos para la conservación y recuperación de las microcuencas de los Ríos Ciruelas, Segundo, Bermúdez, Tibás y Para de la provincia de Heredia con el objeto de promover la conservación del bosque natural existente y la regeneración natural en áreas desprovistas de vegetación mediante el Pago por el Servicio Ambiental Hídrico que brindan estas áreas a la sociedad, así como actividades de reforestación. Todo esto en los sitios aledaños a las fuentes de abastecimiento de agua potable administradas por la Empresa.
 CLÁUSULA TERCERA: OBJETO DEL CONTRATO
 1. El Beneficiario o la Beneficiaria es propietario o propietaria de un inmueble inscrito en el Registro de la Propiedad, bajo el Folio Real ______, sita en el distrito ____, cantón ____ de la provincia de ____con una superficie total de ____ has.
@@ -59,7 +61,7 @@ k) Cumplir con las obligaciones establecidas en la Ley Forestal, sus reglamentos
 l) Permitir la anotación del presente contrato en el Registro de la Propiedad de declaratoria total o parcial de afectación a PROCUENCAS por el término de vigencia de este contrato sobre la finca a que éste se refiere.
 CLÁUSULA SEXTA: OBLIGACIONES DE LA EMPRESA
 1. En retribución a los servicios del Beneficiario, la Empresa cancelará por concepto de Pago por Servicio Ambiental Hídrico y durante un período de diez años, la suma que a continuación se describe:
-[imagen] [imagen]
+[imagen]
 2. El primer desembolso de la remuneración aquí prevista será girado por la Empresa al Beneficiario, una vez formalizado el respectivo contrato. Para los años siguientes, los desembolsos se realizarán doce meses después de recibido el primer pago, previa presentación del Informe de Regencia en que se hace constar el cumplimiento del Plan de Manejo.
 3. La ESPH suministrará los rótulos publicitarios del programa de Pago por Servicio Ambiental Hídrico.
 CLÁUSULA SÉTIMA: VIGENCIA DE ESTE CONTRATO
