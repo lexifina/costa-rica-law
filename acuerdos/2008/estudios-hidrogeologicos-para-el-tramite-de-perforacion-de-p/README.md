@@ -17,3 +17,4 @@ Estudios hidrogeológicos para el trámite de perforación de pozos
 | 2 | 2008-11-19 | Acuerdo 3672 (2008-12-02) |
 | 3 | 2009-05-27 | Acuerdo 3748 (2009-05-27) |
 | 4 | 2011-01-31 | Acuerdo 4078 (2011-01-31) |
+| 5 | 2012-06-25 | Ley 9046 |
