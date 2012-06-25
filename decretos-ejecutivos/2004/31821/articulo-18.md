@@ -1,1 +1,0 @@
-Artículo 18.—De las denuncias o quejas. Cualquier interesado podrá presentar ante el ECA quejas fundamentadas en contra de un organismo de evaluación de la conformidad acreditado, siempre que sufrague el costo de las visitas técnicas necesarias para su trámite, cuando las quejas o denuncias resulten infundadas.

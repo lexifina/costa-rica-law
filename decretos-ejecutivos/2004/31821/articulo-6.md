@@ -1,1 +1,0 @@
-Artículo 6º—De las funciones. Para el desarrollo de su misión, el ECA cumple con las funciones que la ley le asigna. Realiza la promoción de organismos acreditados que brindan servicios de evaluación de la conformidad, así como la capacitación en materia de acreditación y evaluación de la conformidad.

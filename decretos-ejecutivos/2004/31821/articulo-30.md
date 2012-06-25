@@ -1,4 +1,0 @@
-Artículo 30.—Del Comité Ejecutivo. La Junta Directiva conformará de entre sus miembros un Comité Ejecutivo, manteniendo una representación equilibrada de los intereses que lo conforman, y estará integrado por el Presidente de la Junta Directiva, un representante del sector público, un representante de los entes acreditados, un representante del sector privado, un representante elegido entre los restantes intereses representados y el Gerente del Ente.
-La principal finalidad de este Comité es servir de apoyo a las labores y actividades de la Junta Directiva y de la Gerencia, en los asuntos, temas y tópicos a él encargados; o bien en las materias que este Reglamento le establezca.
-Los miembros del Comité durarán en sus cargos dos años desde la fecha de su elección, y podrán ser reelegidos por períodos similares y sucesivos.
-La ausencia recurrente a tres sesiones consecutivas de un miembro será notificada a la Junta Directiva, para que proceda a su sustitución.

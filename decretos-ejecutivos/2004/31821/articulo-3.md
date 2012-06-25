@@ -1,1 +1,0 @@
-Artículo 3º—De la misión. El ECA realiza la evaluación de la competencia técnica de los organismos de evaluación de la conformidad y respalda la credibilidad de los que acredita, mediante su evaluación y fiscalización continua, así como promover y estimular la cooperación entre los organismos acreditados.

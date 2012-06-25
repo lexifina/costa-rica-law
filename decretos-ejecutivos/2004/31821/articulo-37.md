@@ -1,2 +1,0 @@
-Artículo 37.—De las Secretarías de Acreditación. Existirán tres secretarías de acreditación en las áreas de competencia del ECA: laboratorios de ensayo y calibración; inspección y control; y certificación y afines.
-Los secretarios de acreditación deben contar con la educación, la destreza, el conocimiento técnico y la experiencia necesarios para las actividades de acreditación por desarrollar y estarán imposibilitados para desempeñar actividades que puedan generar conflictos de interés con los usuarios.

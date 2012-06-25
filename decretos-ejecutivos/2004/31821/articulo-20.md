@@ -1,7 +1,0 @@
-Artículo 20.—De las obligaciones del ECA. Obligaciones del ECA como ente acreditador:
-a. Mantener a disposición de cualquier interesado toda la información actualizada sobre los sistemas y esquemas de acreditación.
-b. Mantener a disposición de cualquier interesado un registro actualizado sobre el estado de las acreditaciones que ha concedido, sus alcances y limitaciones, por medio de un Registro de Acreditaciones. La información particular sobre cada uno de los organismos de evaluación de la conformidad acreditados o en proceso de acreditación, que se reciba o genere en el proceso de conceder o renovar la acreditación, se consideran confidenciales para todos los efectos.
-c. Cuando se produzcan cambios en los requisitos de acreditación, informar y notificar a cada uno de los acreditados afectados, en el domicilio fijado en el expediente, concediéndole el tiempo necesario para el cumplimiento de conformidad con la naturaleza del requisito que se haya modificado.
-d. Velar porque los organismos de evaluación de la conformidad acreditados cumplan plenamente con todas sus obligaciones.
-e. Iniciar de oficio o por denuncia de cualquier interesado, a través del órgano competente, el procedimiento cada vez que conozca de un posible incumplimiento por parte de un organismo de evaluación de la conformidad acreditado, así como imponer las sanciones respectivas.
-f. Recibir y resolver toda denuncia o queja que cualquier persona con interés legítimo interponga con relación a su actividad.

@@ -1,4 +1,0 @@
-Artículo 29.—Suplencias de la Junta Directiva. Cada miembro que conforma la Junta Directiva, debe nombrar un representante suplente.
-El representante suplente solo ostentará las funciones y atribuciones que le asigna el ordenamiento, incluyendo, la Ley y este Reglamento, al propietario, en los siguientes casos:
-a. En casos de ausencia temporal del propietario, para lo cual debe comunicarse a la Gerencia del Ente con al menos ocho días por escrito; salvo casos calificados de caso fortuito y fuerza mayor, en los cuales la comunicación podrá hacerse con al menos veinticuatro horas de antelación.
-b. En todos los otros casos de ausencia definitiva del propietario, y hasta que el sector respectivo nombre el sustituto de aquel. La ausencia recurrente a tres sesiones consecutivas de un miembro será notificada al sector correspondiente, para que proceda a su sustitución.

@@ -1,4 +1,0 @@
-CAPÍTULO V
-De la responsabilidad
-Artículo 54.—Alcance de la responsabilidad. Los miembros de la Junta Directiva, el Gerente, los miembros de la Comisión de Acreditación, los Secretarios de Acreditación y los Evaluadores que ejecuten o permitan ejecutar actos notoriamente contrarios a los intereses del ECA, o que infrinjan la ley, este reglamento y la normativa que rige esta materia, responderán solidariamente con sus bienes, de las pérdidas que dichos actos irregulares causen al ECA, sin perjuicio de las demás responsabilidades que les correspondan.
-El Director, Gerente, miembro de la Comisión de Acreditación, Secretario o Evaluador que desee salvar su responsabilidad personal, debe hacer constar, por escrito, su criterio contrario en el momento oportuno, solicitando si es del caso, que quede constando en el acta respectiva.

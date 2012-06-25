@@ -1,1 +1,0 @@
-Artículo 15.—Del trámite de recursos. Todas las resoluciones dictadas por los órganos del ECA tendrán los recursos ordinarios previstos y regulados por la Ley General de la Administración Pública, los cuales se tramitarán conforme a los dictados de dicha ley.
