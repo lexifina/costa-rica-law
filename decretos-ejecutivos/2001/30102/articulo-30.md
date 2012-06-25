@@ -1,1 +1,0 @@
-Artículo 30.—Modifíquese el inciso p), del artículo 15 del Decreto Nº 26435 MINAE, para que en lo sucesivo las oficinas subregionales puedan autorizar las licencias de caza y pesca y autorizar los torneos de caza y pesca.
