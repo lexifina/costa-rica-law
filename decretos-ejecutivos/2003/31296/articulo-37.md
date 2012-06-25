@@ -1,1 +1,0 @@
-Artículo 37.—El beneficiario que haga uso indebido o incurra en incumplimiento del contrato tendrá que reintegrar al Fondo las sumas desembolsadas y los daños y perjuicios ocasionados, de acuerdo con el ordenamiento jurídico vigente.

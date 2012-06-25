@@ -1,1 +1,0 @@
-Artículo 13.—Las necesidades serán sometidas a un proceso de evaluación, para el cual el CONICIT u otro ente técnico podrá asesorarse por evaluadores expertos en el área científica y/o tecnológica respectiva.

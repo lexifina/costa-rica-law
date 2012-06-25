@@ -1,1 +1,0 @@
-Artículo 31.—En el caso de los proyectos de desarrollo de potencial humano y de formación de las patentes de invención, los mismos estarán excluidos de la aplicación del procedimiento de concurso que se establece en el presente reglamento. Con el fin de atender dichas solicitudes se deberá seguir el procedimiento establecido en los siguientes artículos.

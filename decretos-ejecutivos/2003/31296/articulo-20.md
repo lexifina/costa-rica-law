@@ -1,1 +1,0 @@
-Artículo 20.—A partir de que se cuente con toda la documentación e información de la oferta, el CONICIT u otro ente técnico contará con un plazo de veinte días naturales para elaborar su informe sobre la misma. Vencido el plazo, dicho informe deberá ser presentado a la Comisión de Incentivos para que conozca y resuelva según corresponda.

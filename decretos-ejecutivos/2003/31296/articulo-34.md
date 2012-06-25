@@ -1,1 +1,0 @@
-Artículo 34.—Una vez trasladada la solicitud al CONICIT u otro ente técnico, este hará una revisión y verificación de la documentación presentada, con el fin de establecer si existe la necesidad de solicitarle una aclaración sobre la información suministrada.

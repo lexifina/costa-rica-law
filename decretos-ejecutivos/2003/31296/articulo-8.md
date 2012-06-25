@@ -1,2 +1,0 @@
-Artículo 8º—Las pequeñas y medianas empresas o agrupaciones de PYME podrán competir por los recursos del PROPYME mediante su participación en los concursos a los que convocará la Comisión de Incentivos, sobre bases competitivas y criterios técnicos pertinentes. Se efectuarán convocatorias, con el fin de recibir las demandas de las necesidades.
-No se recibirán solicitudes en períodos no contemplados en las respectivas convocatorias, ni tampoco aquellas que no reúnan los requisitos mínimos de presentación que se establezcan al efecto en la guía de solicitud.

@@ -1,1 +1,0 @@
-Artículo 12.—A partir del momento de cierre y posterior envió de la documentación de las solicitudes, el CONICIT u otro ente técnico correspondiente contará con un plazo máximo de 15 días naturales para elaborar su informe. Vencido el plazo, el informe deberá ser presentado ante la Comisión de Incentivos.

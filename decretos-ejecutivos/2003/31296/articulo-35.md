@@ -1,1 +1,0 @@
-Artículo 35.—A partir del momento de cierre del plazo para la recepción de solicitudes y su posterior envío, el CONICIT u otro ente técnico contará con un plazo de veinte días naturales para elaborar su informe. Vencido ese plazo, dicho informe deberá ser presentado a la Comisión de Incentivos para que conozca y resuelva según corresponda.

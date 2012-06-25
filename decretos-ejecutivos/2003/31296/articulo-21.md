@@ -1,1 +1,0 @@
-Artículo 21.—Cada oferta será sometida a un proceso de evaluación, para lo cual el CONICIT u otro ente técnico podrá asesorarse por evaluadores externos expertos en el área científica y/o tecnológica respectiva. Para tal efecto, el CONICIT elaborará una tabla de honorarios para el pago de servicios de evaluación.

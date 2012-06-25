@@ -1,1 +1,0 @@
-Artículo 14.—Aquellas solicitudes que demuestren que su necesidad solo puede ser satisfecha por un único oferente, serán analizadas en el acto de preselección y, de ser aprobadas, estarán exentas del procedimiento de la recepción ofertas, sin que ello constituya un compromiso final de aprobación.
