@@ -19,9 +19,11 @@ DTI: Dirección de Tecnología de la Información
 DIGECA: Dirección de Gestión de Calidad Ambiental
 FONAFIFO: Fondo Nacional de Financiamiento Forestal
 IMN: Instituto Meteorológico Nacional
-MINAET: Ministerio de Ambiente, Energía y Telecomunicaciones
+MINAE: Ministerio de Ambiente y Energía(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 OCIC: Oficina Costarricense de Implementación Conjunta
 PMP: Parque Marino del Pacifico
 SETENA: Secretaría Técnica Nacional Ambiental
 SINAC: Sistema Nacional de Áreas de Conservación
 TAA: Tribunal Ambiental Administrativo
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

@@ -1,7 +1,8 @@
 TÍTULO ll
 CAPÍTULO I
 Estructura orgánica
-Artículo 6º—Organización. Para los efectos de este reglamento, el Ministerio de Ambiente, Energía y Telecomunicaciones está integrado por los siguientes órganos y dependencias:
+Artículo 6º—Organización. Para los efectos de este reglamento, el Ministerio de Ambiente y Energía(*) está integrado por los siguientes órganos y dependencias:
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Son órganos superiores del Ministerio, en orden jerárquico los siguientes:
 1. Despacho del Ministro
 a. Auditoría Interna

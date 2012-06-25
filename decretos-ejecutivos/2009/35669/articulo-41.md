@@ -22,7 +22,8 @@ t. Elaborar las normas técnicas para la asignación del recurso y el aprovecham
 u. Promover y coordinar según corresponda, los programas de monitoreo para la evaluación hidrológica del recurso hídrico superficial y subterráneo.
 v. Realizar la gestión de cobro de los instrumentos económicos como el canon de aprovechamiento de aguas, el canon ambiental por vertidos y otros que se promulguen.
 w. Elaborar, ejecutar y evaluar su presupuesto anual con recursos provenientes de cánones, presupuesto nacional y otras fuentes.
-x. Elaborar con el apoyo de otras unidades del MINAET, los informes financieros y administrativos que soliciten las autoridades competentes.
+x. Elaborar con el apoyo de otras unidades del MINAE(*), los informes financieros y administrativos que soliciten las autoridades competentes.
 y. Llevar a cabo el control financiero del gasto.
 z. Las que la Ley de Aguas Nº 276 y otras normas legales atribuyan.
 (Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
