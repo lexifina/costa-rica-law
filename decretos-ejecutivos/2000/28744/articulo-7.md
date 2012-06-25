@@ -1,2 +1,0 @@
-Artículo 7º—Al segregarse las proporciones adjudicadas de conformidad con el artículo número dos de la Ley número siete mil quinientos noventa y nueve, no será necesaria la descripción del resto que se reserve el Instituto de Desarrollo Rural(*) de la finca que se inscribirá conforme con lo descrito en el artículo primero de este Decreto.
-(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
