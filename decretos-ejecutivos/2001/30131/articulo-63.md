@@ -17,5 +17,6 @@ Tipos de islas.
 63.5.5 Cuarto de máquinas.
 63.5.6 Edificio de oficinas.
 63.5.7 Especificaciones para equipo de Gas L.P.
-Las especificaciones del equipo, tuberías y accesorios que se utilicen para el almacenamiento y manejo de gas L.P., deberán cumplir con las Normas Oficiales correspondientes en vigencia. En ausencia de Normas Oficiales, el Ministerio del Ambiente y Energía previa solicitud y valoración autorizará el uso de equipo, tuberías y accesorios para almacenar y distribuir el gas L.P., ya sean de fabricación nacional o extranjera cuyas especificaciones de fabricación y características cumplan con la normativa internacional.
+Las especificaciones del equipo, tuberías y accesorios que se utilicen para el almacenamiento y manejo de gas L.P., deberán cumplir con las Normas Oficiales correspondientes en vigencia. En ausencia de Normas Oficiales, el Ministerio de Ambiente y Energía(*) previa solicitud y valoración autorizará el uso de equipo, tuberías y accesorios para almacenar y distribuir el gas L.P., ya sean de fabricación nacional o extranjera cuyas especificaciones de fabricación y características cumplan con la normativa internacional.
 Los acoplamientos y conexiones de las mangueras deberán resistir una presión no menor a 13,78 Mpa (140,6kg/cm2).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

@@ -1,4 +1,4 @@
-Artículo 58.—Obra Arquitectónica. Conforme con lo establecido para las estaciones de servicio, este artículo cubre los requerimientos que se deben adicionar para el diseño y construcción de una estación de servicio mixta y determina el empleo de los materiales para los diferentes elementos que la conforman, los cuales estarán de acuerdo con los procedimientos establecidos en los manuales y reglamentos de construcción correspon-dientes. De acuerdo a su capacidad de almacenamiento de gas L.P., las estaciones se clasifican como:
+Artículo 58.—Obra Arquitectónica. Conforme con lo establecido para las estaciones de servicio, este artículo cubre los requerimientos que se deben adicionar para el diseño y construcción de una estación de servicio mixta y determina el empleo de los materiales para los diferentes elementos que la conforman, los cuales estarán de acuerdo con los procedimientos establecidos en los manuales y reglamentos de construcción correspondientes. De acuerdo a su capacidad de almacenamiento de gas L.P., las estaciones se clasifican como:
 a. Con capacidad de almacenamiento hasta 5 000 litros de agua.
 b. Con capacidad entre 5 001 y 25 000 litros de agua.
 c. Con capacidad mayor a 25 000 litros de agua.
@@ -13,13 +13,14 @@ d. Utilización de los tanques de una planta de almacenamiento.
 Tipos de islas.
 58.1.4.1 De Gas: Se destina para el despacho exclusivo de Gas L.P. a un vehículo automotor.
 58.1.4.2 Sencillas, dobles, satélites: Cumplirán con lo establecido en el Reglamento de estaciones de servicio.
-58.1.4.2 Queda prohibida cualquier otra disposición en las islas de abastecimiento diferentes a las descritas anteriormente. Salvo casos excepcio-nales, para lo cual será necesario presentar previamente la solicitud por escrito a la DGTCC. Se permitirán islas en forma de hueso o con ambos extremos redondeados. No se permite que sus extremos tengan ángulo.
+58.1.4.2 Queda prohibida cualquier otra disposición en las islas de abastecimiento diferentes a las descritas anteriormente. Salvo casos excepcionales, para lo cual será necesario presentar previamente la solicitud por escrito a la DGTCC. Se permitirán islas en forma de hueso o con ambos extremos redondeados. No se permite que sus extremos tengan ángulo.
 58.1.5 Equipo contra incendio a ubicarse en:
 58.1.5.1 Zona de abastecimiento.
 58.1.5.2 Zona de almacenamiento.
 58.1.5.3 Cuarto de máquinas..
 58.1.5.4 Edificio de oficinas.
-58.2 Especificaciones para equipo de Gas L.P. Las especificaciones del equipo, tuberías y accesorios que se utilicen para el almacenamiento y manejo de gas L.P., deberán cumplir con las Normas Oficiales correspondientes en vigencia. En ausencia de Normas Oficiales, el Ministerio Del Ambiente y Energía autorizará el uso para almacenar y distribuir el gas L.P., de equipo y accesorios de fabricación nacional o extranjera cuyas especificaciones de fabricación y características cumplan con la normativa internacional.
+58.2 Especificaciones para equipo de Gas L.P. Las especificaciones del equipo, tuberías y accesorios que se utilicen para el almacenamiento y manejo de gas L.P., deberán cumplir con las Normas Oficiales correspondientes en vigencia. En ausencia de Normas Oficiales, el Ministerio de Ambiente y Energía(*) autorizará el uso para almacenar y distribuir el gas L.P., de equipo y accesorios de fabricación nacional o extranjera cuyas especificaciones de fabricación y características cumplan con la normativa internacional.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Los acoplamientos y conexiones de las mangueras deberán resistir una presión no menor a 13,78 MPa (140,6 kg/cm2 ).
 58.3 Medidas de Seguridad.
 58.3.1 Sistema de protección por medio de extintores. La determinación de la cantidad de extintores necesarios en las áreas que se describen a continuación se hará siguiendo el procedimiento de cálculo de unidades de riesgo "UR" y los factores que se anotan.
@@ -93,11 +94,11 @@ superior a 5 001 1.50
 58.5.3 El diseño y construcción de las bases de sustentación deberán ajustarse a las especificaciones del reglamento de construcción de la entidad correspondiente.
 58.5.4 Para facilitar la lectura de los instrumentos de medición de los tanques de almacenamiento, se debe contar con una escalerilla fija de material incombustible.
 58.5.5 Los tanques de almacenamiento deben contar con escalera de material incombustible, instalada permanentemente para el fácil y seguro acceso a la parte superior de éstos, terminada en plataforma de operación Para los recipientes de 5000 litros o menores, esta puede ser la misma del inciso anterior sin plataforma.
-58.5.6 Los recipientes tipo intemperie deberán tener salida para gas liquido en la parte inferior de estos, con válvula de exceso de gasto y válvula de cierre.
+58.5.6 Los recipientes tipo intemperie deberán tener salida para gas líquido en la parte inferior de estos, con válvula de exceso de gasto y válvula de cierre.
 58.5.7 La ubicación de los recipientes o de los sistemas se hará en áreas libres de construcciones o en áreas ventiladas y a la intemperie.
 58.5.8 Los linderos del área del tanque deberán circundarse con muretes que permitan la adecuada ventilación en puntos opuestos y acceso restringido al personal no autorizado.
 58.5.9 Deberá contarse con bitácora en la que conste el mantenimiento e inspecciones que se le proporcionen a los recipientes, accesorios e instalaciones.
-58.6 Recipientes subterráneos. Se aplicarán los siguientes requerimien-tos de diseño:
+58.6 Recipientes subterráneos. Se aplicarán los siguientes requerimientos de diseño:
 58.6.1 Los recipientes deberán ser diseñados, construídos y certificados para servicio subterráneo.
 58.6.2 El recipiente subterráneo debe instalarse dentro de una fosa.
 58.6.3 En caso de ser necesario, esta fosa estará forrada en todas sus caras menos la superior y la interior por muros de concreto. Deberá existir una distancia de por lo menos 1 m entre el tanque y los muros.
