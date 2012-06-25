@@ -1,6 +1,8 @@
-Nº 35227-MICIT
+Nº 35227-MICITT (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DE CIENCIA Y TECNOLOGIA
+Y LA MINISTRA DE CIENCIA, TECNOLOGIA Y TELECOMUNICACIONES (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 De conformidad con las facultades que les confieren los artículos 140 y 146 incisos 3) y 18) de la Constitución Política; el artículo 28 de la Ley General de la Administración Pública, Capítulo IV de la Ley Nº. 8292 Ley General de Control Interno; la Norma 2.11 del Manual de Normas Generales de Control Interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización, y las Directrices Generales relativas al reglamento de organización y funcionamiento de las Auditorías Internas del Sector Público, emitidas por la Contraloría General de la República y publicadas en La Gaceta Nº 236 del 8 de diciembre de 2006.
 Considerando:
 1º—Que los artículos 183 y 184 de la Constitución Política de la República de Costa Rica establecen a la Contraloría General de la República como institución auxiliar de la Asamblea Legislativa en la vigilancia de la Hacienda Pública, y que el artículo 12 de su Ley Orgánica Nº 7428 la designa como órgano rector del Sistema de Control y Fiscalización Superiores de la Hacienda Pública.
@@ -13,9 +15,11 @@ Considerando:
 Decretan:
 Reglamento de Organización y Funciones de la
 Auditoría Interna del Ministerio de
-Ciencia y Tecnología
+Ciencia, Tecnología y Telecomunicaciones (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 TÍTULO I
 Conceptos Generales de Auditoría
 CAPÍTULO I
 Presentación
-Artículo 1º—El presente Reglamento regula las actividades, organización, objetivos, funciones y atribuciones de la Auditoria Interna del Ministerio de Ciencia y Tecnología, de manera que su accionar se oriente y se perciba como una actividad que en realidad coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados.
+Artículo 1º—El presente Reglamento regula las actividades, organización, objetivos, funciones y atribuciones de la Auditoria Interna del Ministerio de Ciencia, Tecnología y Telecomunicaciones (*), de manera que su accionar se oriente y se perciba como una actividad que en realidad coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
