@@ -19,3 +19,4 @@ Reglamento de Patentes Municipales.
 | 4 | 2004-07-27 | Reglamento municipal 117 (2004-07-27) |
 | 5 | 2007-02-14 | SINALEVI (sin norma nombrada) |
 | 6 | 2007-04-18 | SINALEVI (sin norma nombrada) |
+| 7 | 2012-06-25 | Ley 9046 |
