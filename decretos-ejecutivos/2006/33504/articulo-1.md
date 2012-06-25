@@ -27,7 +27,8 @@ Artículo 1º—Deróguense los siguientes decretos ejecutivos y déjense sin ef
 9) Decreto Ejecutivo Nº 11742-MEIC-OP de 12/08/1980 (Constitución Subsector Turismo).
 10) Decretos Ejecutivos Nº 6066-MEIC de 09/06/1976 y Nº 8853-MEIC de 01/08/1978 (Comité Nacional de Energía).
 11) Decretos Ejecutivos Nº 8655-MEIC de 05/06/1978, Nº 10743-MEIC de 01/11/1979 y Nº 13653-MEIC de 24/05/1982 (Comisión Asesora Nacional Incentivos Desarrollo Industrial).
-12) Decreto Ejecutivo Nº 31402-MAG, MICIT, MEIC, COMEX, MEP de 15/07/2003 (Consejo Interinstitucional).
+12) Decreto Ejecutivo Nº 31402-MAG, MICITT (*), MEIC, COMEX, MEP de 15/07/2003 (Consejo Interinstitucional).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 13) Decretos Ejecutivos Nº 15033-PLAN-MIEM de 23/11/1983 y Nº 15543-MIEM de 06/07/1984 (Comisión Nacional de Agroindustria).
 14) Decreto Ejecutivo Nº 17850-MIEM de 17/09/1987 (Comisión Nacional de Promoción de Industrias Electrointensivas).
 15) Decreto Ejecutivo Nº 11856-MEIC-OP de 10/09/1980 (Comisión Consultiva de la Industria Alimentaria).
