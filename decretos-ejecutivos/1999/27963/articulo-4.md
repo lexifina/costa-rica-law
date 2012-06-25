@@ -1,1 +1,0 @@
-Artículo 4º—Investigadores, biólogos, inspectores de recursos naturales y demás funcionarios del Área de Conservación Tempisque, del Sistema Nacional de Áreas de Conservación del Ministerio de Ambiente y Energía, tendrán la colaboración necesaria al momento que en cumplimiento de sus funciones, visiten el refugio.
