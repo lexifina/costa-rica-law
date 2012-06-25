@@ -1,1 +1,2 @@
-Artículo 6º—Delegación de donación. Se delega expresa y formalmente en el Viceministro del Ministerio de Ciencia y Tecnología, dictar la resolución y firma del acta de Donación.
+Artículo 6º—Delegación de donación. Se delega expresa y formalmente en el Viceministro del Ministerio de Ciencia, Tecnología y Telecomunicaciones(*), dictar la resolución y firma del acta de Donación.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
