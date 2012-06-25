@@ -15,3 +15,4 @@ Comisión Internet Costa Rica (CI-CR).
 | --- | --- | --- |
 | 1 | 2004-11-05 | la propia norma |
 | 2 | 2005-06-03 | Decreto Ejecutivo 32496 (2005-06-03) |
+| 3 | 2012-06-25 | Ley 9046 |
