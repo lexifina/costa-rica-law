@@ -14,3 +14,4 @@ Derogatoria del Decreto Ejecutivo N°32715-MINAE el 7 de marzo del 2005 y Actual
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-31 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
