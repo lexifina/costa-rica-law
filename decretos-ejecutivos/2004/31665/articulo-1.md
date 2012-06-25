@@ -2699,7 +2699,8 @@ INSTITUC. 5.599.176
 TOTAL REBAJAR SUELDOS
 TÍTULO: 127 MINIST. DE
 PLANIF. NAC. Y POL. ECO. 8.204.232
-128 MINISTERIO DE CIENCIA Y TECNOLOGÍA
+128 MINISTERIO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 128.893 COORDINACION Y DES. CIENTIF,
 Y TECNOLÓGICO
 128.893-00.01 UNIDAD DE DIRECCIÓN 4.594.800 128.893-00.01.0001 OFICINA DEL MINISTRO 2.811.000 11601 1 PROFESIONAL JEFE 1 (12.0 meses) (Puesto: 96684) 234.250 2.811.000 128.893-00.01.0003 OFICIALÍA MAYOR 1.783.800 3675 1 CONTADOR 1 (12.0 meses)
@@ -2725,7 +2726,8 @@ NACIÓN Y DES. CIENTIF,Y
 TECNOLÓGICO 8.045.562
 TOTAL REBAJAR SUELDO
 TITULO: 128 MINIST. DE
-CIENCIA Y TECNOLOGÍA 8.045.562
+CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*) 8.045.562
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 129 MINISTERIO DE AMBIENTE Y ENERGÍA
 129.887 CONSERVACIÓN Y MANEJO
 DE LA BIODIVERSIDAD

@@ -15,3 +15,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | --- | --- | --- |
 | 1 | 2004-03-12 | la propia norma |
 | 2 | 2004-03-16 | Decreto Ejecutivo 31725 (2004-03-16) |
+| 3 | 2012-06-25 | Ley 9046 |
