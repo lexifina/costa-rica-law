@@ -1,3 +1,4 @@
+(Derogado)
 Nº 33748
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
@@ -6,7 +7,9 @@ Considerando:
 1º—Que el Estado tiene como uno de sus objetivos fundamentales aumentar el aprovechamiento de las oportunidades que brinda la ciencia y la tecnología para incrementar el nivel de desarrollo del país.
 2º—Que de conformidad con los incisos ch) y d) del artículo 3 de la Ley de Promoción del Desarrollo Científico y Tecnológico, N° 7169, son objetivos específicos del desarrollo científico y tecnológico, crear las condiciones adecuadas para que la ciencia y la tecnología cumplan con su función instrumental de ser factores básicos para lograr mayor competitividad y crecimiento del sector productivo nacional y estimular la innovación tecnológica como elemento esencial para fortalecer la capacidad del país, para adaptarse a los cambios en el comercio y la economía internacional, y elevar la calidad de vida de los costarricenses.
 3º—Que esa misma Ley, en el inciso g) del artículo 4, establece como deber y responsabilidad del Estado, promover la elaboración de los instrumentos jurídicos adecuados para la promoción del desarrollo científico y tecnológico.
-4º—Que en el Plan Nacional de Desarrollo 2006-2010, el Estado costarricense adquirió con la ciudadanía el compromiso público, de que el sector Ciencia y Tecnología diseñará y pondrá en marcha, un Sistema Nacional de Ciencia y Tecnología para la Innovación. 5º—Que el Ministerio de Ciencia y Tecnología tiene como área de acción prioritaria implementar y apoyar los programas y proyectos específicos que se establezcan dentro del Sistema Nacional de Ciencia y Tecnología para la Innovación. Por tanto,
+4º—Que en el Plan Nacional de Desarrollo 2006-2010, el Estado costarricense adquirió con la ciudadanía el compromiso público, de que el sector Ciencia y Tecnología diseñará y pondrá en marcha, un Sistema Nacional de Ciencia y Tecnología para la Innovación.
+5º—Que el Ministerio de Ciencia y Tecnología tiene como área de acción prioritaria implementar y apoyar los programas y proyectos específicos que se establezcan dentro del Sistema Nacional de Ciencia y Tecnología para la Innovación. Por tanto,
 DECRETAN:
-Artículo 1º—Créase la Comisión Nacional para la Innovación, adscrita al Ministerio de Ciencia y Tecnología (MICIT) con una vigencia de seis meses contados a partir de la publicación del presente decreto ejecutivo y que tendrá la misión de promover la creación del Sistema Nacional de Ciencia y Tecnología para la Innovación.
+Artículo 1º—Créase la Comisión Nacional para la Innovación, adscrita al Ministerio de Ciencia, Tecnología y Telecomunicaciones (*)(MICITT)(*) con una vigencia de seis meses contados a partir de la publicación del presente decreto ejecutivo y que tendrá la misión de promover la creación del Sistema Nacional de Ciencia y Tecnología para la Innovación.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Los recursos financieros y humanos necesarios para la puesta en funcionamiento de la Comisión serán proporcionados por el MICIT, así como cualquier otra institución que desee colaborar en dicho aspecto, en la medida de sus posibilidades.

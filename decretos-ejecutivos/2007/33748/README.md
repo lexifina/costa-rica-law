@@ -14,3 +14,4 @@ Crea Comisión Nacional para la Innovación, adscrita al Ministerio de Ciencia, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-15 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
