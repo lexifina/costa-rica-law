@@ -14,3 +14,4 @@ Declara de interés nacional el IV Taller “Ciencia, Comunicación y Sociedad�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-19 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
