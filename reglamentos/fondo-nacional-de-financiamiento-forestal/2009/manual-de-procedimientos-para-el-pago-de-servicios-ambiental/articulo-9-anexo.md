@@ -1,7 +1,8 @@
 ANEXO 9
 RESOLUCIÓN DE APROBACIÓN PSA
 Resolución Nº ______
-Ministerio del Ambiente, Energía y Telecomunicación, Fondo Nacional de Financiamiento Forestal, Oficina Regional de FONAFIFO _________________________, a las __________horas (minutos) del día _________ del mes _________ del dos mil________.
+Ministerio del Ambiente y Energía (*), Fondo Nacional de Financiamiento Forestal, Oficina Regional de FONAFIFO _________________________, a las __________horas (minutos) del día _________ del mes _________ del dos mil________.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Resultando:
 PRIMERO: Vista la presolicitud presentada por nombre y calidades del solicitante (estado civil, profesión u oficio, cédula de identidad) vecino de ___________ (en caso de persona jurídica, indicar representante de la sociedad, cédula jurídica, cita de inscripción, nombre y calidades de la representación legal), para la implementación de una proyecto de Pago de servicios Ambientales y con fundamento en lo establecido en la Ley Forestal Nº 7575 del 16 de abril de 1996 y su Reglamento Decreto Ejecutivo Nº 25721-MINAE del 23 de enero de 1997 y sus reformas, y el Manual de procedimientos para el PSA.
 Considerando:
