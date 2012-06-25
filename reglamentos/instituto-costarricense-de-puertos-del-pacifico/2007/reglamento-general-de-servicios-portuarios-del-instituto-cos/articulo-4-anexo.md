@@ -16,7 +16,8 @@ Código IMDG: Código Marítimo Internacional de Mercancías Peligrosas
 INCOP: Instituto Costarricense de Puertos del Pacífico
 Ley GIR: Ley para la Gestión Integral de Residuos N° 8839
 M.S.: Ministerio de Salud
-MINAET: Ministerio de Ambiente, Energía y Telecomunicaciones
+MINAE(*): Ministerio de Ambiente y Energía (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 MOPT: Ministerio de Obras Públicas y Transportes
 SENARA: Servicio Nacional de Aguas Subterráneas y Avenamiento
 SENASA: Servicio Nacional de Salud Animal
