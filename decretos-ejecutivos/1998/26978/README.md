@@ -15,3 +15,4 @@ Crea Red de Información Agropecuaria Costarricense -INFOAGRO-.
 | --- | --- | --- |
 | 1 | 1998-05-26 | la propia norma |
 | 2 | 2003-07-21 | Decreto Ejecutivo 31344 (2003-07-21) |
+| 3 | 2012-06-25 | Ley 9046 |
