@@ -15,3 +15,4 @@ Nombra miembros que integran la Comisión Nacional para la Gestión de la Biodiv
 | --- | --- | --- |
 | 1 | 2009-02-16 | la propia norma |
 | 2 | 2012-03-19 | Decreto Ejecutivo 37107 (2012-03-19) |
+| 3 | 2012-06-25 | Ley 9046 |

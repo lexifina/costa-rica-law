@@ -1,9 +1,10 @@
 (Derogado)
-Nº 35050-MINAET
+Nº 35050-MINAE(*)
 (Este decreto fue derogado por el artículo 3° del decreto ejecutivo N° 37107 del 19 de marzo del 2012, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política y la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998.
 Considerando:
 I.—Que la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, creó la Comisión Nacional para la Gestión de la Biodiversidad como un órgano desconcentrado del Ministerio del Ambiente y Energía con personería jurídica instrumental.
