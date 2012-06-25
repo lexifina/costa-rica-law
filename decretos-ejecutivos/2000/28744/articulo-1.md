@@ -1,8 +1,9 @@
 (Derogado)
 Nº 28744-MINAE-MAG
 EL PRESIDENTE DE LA REPÚBLICA
-Y LOS MINISTROS DEL AMBIENTE Y ENERGÍA
+Y LOS MINISTROS DE AMBIENTE Y ENERGÍA(*)
 Y DE AGRICULTURA Y GANADERÍA
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 (Este Decreto fue derogado por el artículo 1° del decreto ejecutivo N° 34506 del 14 de febrero del 2008)
 (Este Decreto se declara inconstitucional por conexidad, según resolución de la Sala Constitucional N° 8457-2007 del trece de junio de dos mil siete)
 En uso de las facultades que les confieren los incisos tercero y decimooctavo del artículo ciento cuarenta de la Constitución Política; los artículos primero, segundo, sexto y sétimo de la Ley siete mil quinientos noventa y nueve del nueve de agosto de mil novecientos noventa y seis, primero de la Ley dos mil ochocientos veinticinco del catorce de octubre de mil novecientos sesenta uno y artículo trece de la Ley siete mil quinientos setenta y cinco del dieciséis de abril de mil novecientos noventa y seis,

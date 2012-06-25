@@ -18,3 +18,4 @@ Traspaso de Tierras al INDER bajo el Programa de Titulación Pascua
 | 3 | 2007-06-13 | SINALEVI (sin norma nombrada) |
 | 4 | 2008-02-14 | Decreto Ejecutivo 34506 (2008-02-14) |
 | 5 | 2012-05-11 | Ley 9036 |
+| 6 | 2012-06-25 | Ley 9046 |
