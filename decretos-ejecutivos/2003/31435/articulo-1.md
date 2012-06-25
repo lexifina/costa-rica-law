@@ -1,6 +1,7 @@
-Nº 31435-MICIT
+Nº 31435-MICITT(*)
 El PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA TECNOLOGÍA Y TELECOMUNICACION(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las atribuciones que les confieres los artículos 140 en sus incisos 3) y 18), y el artículo 146 de la Constitución Política, con fundamento en la "Ley de Promoción del Desarrollo Científico y Tecnológico" Nº 7169, del 26 de junio de 1990.
 Considerando:
 1º—Que es importante para el país conocer que los problemas y soluciones de seguridad que se presentan en aplicaciones tecnológicas de la actualidad.
