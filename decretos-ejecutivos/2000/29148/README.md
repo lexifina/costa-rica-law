@@ -15,3 +15,4 @@ Regulaciones para la Caza Menor y Mayor y Pesca Continental e Insular
 | --- | --- | --- |
 | 1 | 2001-01-01 | la propia norma |
 | 2 | 2001-11-27 | Decreto Ejecutivo 30102 (2001-11-27) |
+| 3 | 2012-06-25 | Ley 9046 |
