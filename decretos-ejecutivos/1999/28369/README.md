@@ -16,3 +16,4 @@ Determinación Inventario Bienes Computación y Telemáticos en Desuso(Bienes de
 | 1 | 2000-01-10 | la propia norma |
 | 2 | 2000-01-10 | Ley 7 |
 | 3 | 2000-11-03 | Decreto Ejecutivo 29187 (2000-11-03) |
+| 4 | 2012-06-25 | Ley 9046 |
