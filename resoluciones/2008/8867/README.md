@@ -14,3 +14,4 @@ Norma Técnica: Hidrómetros para el Servicio de Acueducto AR-HSA-2008
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-14 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
