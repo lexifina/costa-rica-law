@@ -1,7 +1,9 @@
-Nº 34905-MINAET-MIVAH
+Nº 34905-MINAE(*)-MIVAH
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE
-AMBIENTE, ENERGÍA Y TELECOMUNICACIONES
+AMBIENTE Y ENERGÍA (*)
 Y LA MINISTRA DE VIVIENDA Y ASENTAMIENTOS HUMANOS
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En ejercicio de las facultades que les confieren los artículos 46, párrafo final, 50, 78, 140 incisos 3) y 18) y 146 de la Constitución Política, 25.1 y 27.1 de la Ley General de la Administración Pública (Nº 6227 de 2 de mayo de 1978) y 3 inciso m) de la Ley Forestal (Nº 7575 de 16 de abril de 1996).
 Considerando:
 I.—Que de conformidad con la obligatoriedad que establecen los artículos 46 párrafo final, 50 y 78 de la Constitución Política es deber del Estado garantizar la salud, las condiciones ambientales y la educación general básica.
