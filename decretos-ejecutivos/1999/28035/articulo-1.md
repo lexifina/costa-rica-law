@@ -1,8 +1,9 @@
-Nº 28035-MINAE-MICIT
+Nº 28035-MINAE-MICITT(*)
 EL PRESIDENTE DE LA REPUBLICA,
 Y LOS MINISTROS DEL AMBIENTE Y ENERGIA
-Y DE CIENCIA Y TECNOLOGÍA,
-De conformidad con lo dispuesto por los incisos 3 y 18 del Articulo 140 de la Constitución Política de Costa Rica, 28.2b de la Ley General de la Administración Pública, la ley 7503 de la Ley Orgánica del Colegio de Físicos,
+Y DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*),
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
+De conformidad con lo dispuesto por los incisos 3 y 18 del Artículo 140 de la Constitución Política de Costa Rica, 28.2b de la Ley General de la Administración Pública, la ley 7503 de la Ley Orgánica del Colegio de Físicos,
 Considerando:
 1º—Que dentro de la actividad científica y tecnológica el Colegio de Físicos desarrolla un rol de suma importancia;
 2º—Que el aporte de la Física a la Ciencia y la Tecnología es de gran significado nacional;
