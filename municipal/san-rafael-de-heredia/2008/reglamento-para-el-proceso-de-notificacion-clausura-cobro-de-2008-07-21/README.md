@@ -14,3 +14,4 @@ Reglamento para el proceso de notificación, clausura, cobro de multa y demolici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-01 | la propia norma |
+| 2 | 2012-06-25 | Reglamento municipal 178 (2012-06-25) |
