@@ -1,4 +1,5 @@
-Artículo 10.—La Unidad de Planificación Estratégica del Ministerio de Ciencia y Tecnología tendrá las siguientes funciones, entre otras:
+Artículo 10.—La Unidad de Planificación Estratégica del Ministerio de Ciencia, Tecnología y Telecomunicaciones (*) tendrá las siguientes funciones, entre otras:
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 a) Velar por el cumplimento de los objetivos y cumplimiento del sistema de ciencia y tecnología.
 b) Promover la política científica y tecnológica, incluyendo la de Política en Tecnologías de la Información y Telecomunicaciones, mediante el uso de los mecanismos de concertación que establece el Sistema Nacional de Ciencia y Tecnología y contribuir a la integración de esa política con la política global de carácter económico y social del país, en lo cual servirá de enlace y como interlocutor directo ante los organismos de decisión política superior del Gobierno de la República.
 c) Asesorar al Ministro de Ciencia y Tecnología, en el dictado de políticas científicas y tecnológicas con base en los indicadores producidos.

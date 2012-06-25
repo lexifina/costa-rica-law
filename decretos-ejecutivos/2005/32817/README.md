@@ -14,3 +14,4 @@ Reglamento al Título II de la Ley de Promoción de Desarrollo Científico y Tec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-14 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

@@ -1,6 +1,7 @@
 Artículo 5º— El SINCITi está integrado por:
 a) Las instituciones cuyo campo de acción es objeto de dirección jerárquica o política por parte del Ministerio Rector, a saber:
-1) Ministerio de Ciencia y Tecnología (MICIT).
+1) Ministerio de Ciencia, Tecnología y Telecomunicaciones (*) (MICITT) (*).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 2) Consejo Nacional para Investigaciones Científicas y Tecnológicas (CONICIT).
 3) Academia Nacional de Ciencias (ANC).
 4) Comisión de Energía Atómica (CEA).
