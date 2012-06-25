@@ -14,3 +14,4 @@ Procedimientos para la Aplicación y Seguimiento de la Política Presupuestaria 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-18 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
