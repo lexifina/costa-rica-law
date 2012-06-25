@@ -1,8 +1,9 @@
-Nº 35463-MINAET-MEP
+Nº 35463-MINAE(*)-MEP
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y LOS MINISTROS DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y LOS MINISTROS DE AMBIENTE Y ENERGÍA(*)
 Y DE EDUCACIÓN PÚBLICA
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Con fundamento en las facultades que les confieren los incisos 3 y 18 del artículo 140 y el artículo 146 de la Constitución Política, los artículos 104 y 120 de la Ley de Conservación de la Vida Silvestre Nº 7317 dada el 30 de octubre de 1992, el artículo 22 de la Ley de Biodiversidad Nº 7788 dada el 30 de abril de 1998 y los artículos 1, 7, 16, 17, 18 de la Ley Orgánica del Ministerio de Educación Nº 3481 dada el 13 de enero de 1965.
 Considerando:
 1º—Que la Dirección General de Vida Silvestre desde su creación ha desarrollado una función de gran importancia en la conservación y manejo de la vida silvestre de nuestro país, consolidándose con la promulgación de la Ley de Conservación de la Vida Silvestre.
