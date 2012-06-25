@@ -14,3 +14,4 @@ Definición del contenido del informe de bandas de frecuencia que deben rendirle
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-19 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
