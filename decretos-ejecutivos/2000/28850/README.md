@@ -14,3 +14,4 @@ Reglamento del Concurso del "Premio de Tecnología de la Información para el Me
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-18 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

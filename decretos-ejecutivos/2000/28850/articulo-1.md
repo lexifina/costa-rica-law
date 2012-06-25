@@ -1,8 +1,7 @@
-PODER EJECUTIVO
-DECRETOS
-Nº 28850-MICIT
+Nº 28850-MICITT(*)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las atribuciones constitucionales previstas en los incisos 3 y 18 del artículo 140 de la Constitución Política, en concordancia con lo establecido en el artículo 10 de la Ley General de la Administración Pública y,
 Considerando:
 1º—Que el bienestar de los ciudadanos depende en gran medida de la calidad y la eficiencia con que las instituciones públicas presten sus servicios. La tecnología de la información es hoy en día la herramienta más efectiva con que se puede contar para el mejoramiento de la administración pública y de la calidad de su servicio a los ciudadanos. Con esa motivación, se realizará un Concurso Tecnología de la Información para el Mejoramiento de la Administración Pública.
