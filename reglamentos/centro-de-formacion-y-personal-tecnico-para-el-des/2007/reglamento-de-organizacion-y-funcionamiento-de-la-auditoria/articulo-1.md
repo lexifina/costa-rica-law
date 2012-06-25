@@ -1,3 +1,4 @@
+(Derogado)
 CENTRO DE FORMACIÓN DE FORMADORES Y DE
 PERSONAL TÉCNICO PARA EL DESARROLLO
 INDUSTRIAL DE CENTROAMÉRICA
@@ -5,8 +6,10 @@ Con fundamento en el artículo 103, párrafo primero, de la Ley General de la Ad
 Considerando:
 I.—Que el CEFOF fue creado mediante Decreto Ejecutivo Nº 21331-MEP del 2 de julio de 1992, como una institución de enseñanza superior parauniversitaria oficial, cuya sede principal será la ciudad de Alajuela.
 II.—Que el CEFOF fue creado al amparo del artículo 19 de la Ley Nº 6541 del 19 de noviembre de 1980, Ley de creación y funcionamiento de las instituciones de educación superior parauniversitaria.
-III.—Que mediante Decreto Ejecutivo Nº 33686-MICIT-MEP, publicado en La Gaceta Nº 71 del 12 de abril de 2007, se modificó la naturaleza jurídica del CEFOF, de tal manera que a partir de esta fecha funcionará como un ente público menor adscrito al Colegio Universitario de Alajuela (CUNA).
-IV.—Que el Jerarca Superior del CEFOF es su Consejo Directivo, conforme lo establece el artículo 5 del Reglamento Orgánico del CEFOF y sus reformas, Decreto Ejecutivo Nº 31596-MICIT-MEP, publicado en La Gaceta Nº 16 del 23 de enero de 2004.
+III.—Que mediante Decreto Ejecutivo Nº 33686-MICITT (*)-MEP, publicado en La Gaceta Nº 71 del 12 de abril de 2007, se modificó la naturaleza jurídica del CEFOF, de tal manera que a partir de esta fecha funcionará como un ente público menor adscrito al Colegio Universitario de Alajuela (CUNA).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+IV.—Que el Jerarca Superior del CEFOF es su Consejo Directivo, conforme lo establece el artículo 5 del Reglamento Orgánico del CEFOF y sus reformas, Decreto Ejecutivo Nº 31596-MICITT (*)-MEP, publicado en La Gaceta Nº 16 del 23 de enero de 2004.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 V.—Que el artículo 103 de la Ley General de la Administración Pública faculta al Superior Jerárquico a organizar la administración y la prestación de servicios mediante la promulgación de reglamentos autónomos de organización y de servicio, internos y externos, siempre que, en este último caso, la actividad regulada no implique el uso de potestades de imperio frente al administrado.
 VI.—Que la Autoridad Presupuestaria mediante acuerdo en firme Nº 6324, contenido en la Sesión Ordinaria 02-2002, celebrada el 14 de febrero de 2002, autorizó la creación de una plaza de Auditor Interno en el CEFOF.
 VII.—Que con fundamento en el artículo 20 de la Ley General de Control Interno, el Consejo Directivo del CEFOF, en la Sesión Nº 140 celebrada el 20 de abril, Acuerdo Nº 683, acordó en firme nombrar por tiempo indefinido al Auditor Interno de la entidad, a partir del 2 de mayo de 2005.
