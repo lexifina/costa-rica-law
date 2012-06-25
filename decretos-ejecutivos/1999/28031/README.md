@@ -14,3 +14,4 @@ Crea Consejos Regionales de Ciencia y Tecnología
 | --- | --- | --- |
 | 1 | 1999-08-19 | la propia norma |
 | 2 | 1999-08-19 | Ley 7 |
+| 3 | 2012-06-25 | Ley 9046 |
