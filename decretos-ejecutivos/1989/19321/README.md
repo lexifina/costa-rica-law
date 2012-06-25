@@ -14,3 +14,4 @@ Declara Interés Público Centro Nacional Ciencia y Tecnología
 | --- | --- | --- |
 | 1 | 1989-12-14 | la propia norma |
 | 2 | 1990-06-22 | Decreto Ejecutivo 19847 (1990-06-22) |
+| 3 | 2012-06-25 | Ley 9046 |
