@@ -1,3 +1,4 @@
+(Derogado)
 30795 MP-J-H
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA,
@@ -18,7 +19,7 @@ Artículo 1º—Se establece la conformación del Consejo Consultivo del Program
 5- Un representante de Catastro Nacional, de nombramiento del Ministro de Justicia.
 6- Un representante del Registro de Propiedad Inmueble, de nombramiento del Ministro de Justicia.
 7- Un representante de la Dirección de Resolución Alterna de Conflictos, de nombramiento del Ministro de Justicia.
-8- El Ministro del Ambiente y Energía o un representante designado por él.
+8- El Ministro de Ambiente y Energía(*) o un representante designado por él.
 9- Un representante del Instituto Geográfico Nacional, de nombramiento del Ministro de Obras Públicas y Transportes.
 10- Un representante del Instituto de Desarrollo Agrario, de nombramiento del Presidente Ejecutivo del IDA.
 11- Un representante de la Comisión Nacional de Asuntos Indígenas, de nombramiento del Presidente Ejecutivo.
@@ -29,3 +30,4 @@ Artículo 1º—Se establece la conformación del Consejo Consultivo del Program
 16- Un representante del Colegio de Abogados, quien deberá ser Notario Público en ejercicio de sus funciones.
 Los Representantes a este Consejo Consultivo, deberán poseer el más alto nivel jerárquico posible de acuerdo a la estructura de la Institución que representa.
 Los Representantes enlistados bajo los números 13, 14, 15 y 16 asistirán a las sesiones con voz pero sin voto.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

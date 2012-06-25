@@ -14,3 +14,4 @@ Establece la conformación del Consejo Consultivo del Programa de Catastro y Reg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-04 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
