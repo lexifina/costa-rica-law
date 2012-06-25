@@ -11,4 +11,5 @@ i) Salud.
 j) Atracción de Industria de Alta Tecnología.
 k) Informática.
 Se nombrará un representante por cada una de las áreas anteriormente citadas y además un representante de la Presidencia de la República. Los miembros serán nombrados en su cargo por un período de dos años, y ejercerán sus funciones Ad-Honorem. El nombramiento lo hará el Poder Ejecutivo y serán juramentados por el Presidente de la República.
-El Ministro de Ciencia y Tecnología será el responsable del tema de las Infocomunicaciones ante el Consejo.
+El Ministro de Ciencia, Tecnología y Telecomunicaciones(*) será el responsable del tema de las Infocomunicaciones ante el Consejo.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

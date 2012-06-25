@@ -15,3 +15,4 @@ Creación del Consejo Consultivo de Ciencia y Tecnología
 | --- | --- | --- |
 | 1 | 2000-08-29 | la propia norma |
 | 2 | 2005-09-19 | Decreto Ejecutivo 32817 (2005-09-19) |
+| 3 | 2012-06-25 | Ley 9046 |
