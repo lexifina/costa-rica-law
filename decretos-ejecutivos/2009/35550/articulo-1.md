@@ -1,8 +1,10 @@
-Nº 35550-MINAET-S-MOPT-MAG-MEIC
+Nº 35550-MINAE(*)-S-MOPT-MAG-MEIC
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y LOS MINISTROS DE AMBIENTE, ENERGÍA Y TELECOMUNICACIONES,
+Y LOS MINISTROS DE AMBIENTE Y ENERGÍA (*),
 SALUD PÚBLICA, OBRAS PÚBLICAS Y TRANSPORTES, AGRICULTURA
 Y GANADERÍA Y ECONOMÍA, INDUSTRIA Y COMERCIO
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 De conformidad con las atribuciones que les confieren los artículos 50, 140, incisos 3) y 18) y 146 de la Constitución Política, 25 inciso 1) y 28 párrafo segundo inciso b), de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978; 17, 83, 84, 86 y 89 de la Ley Orgánica del Ambiente, Nº 7554 del 4 de octubre de 1995; 3 y 9, inciso h), de la Ley del Patrimonio Histórico-Arquitectónico de Costa Rica, Nº 7555 del 4 de octubre de 1995 y el Decreto Ejecutivo Nº 31849-MINAE-S-MOPT-MAG-MEIC del 24 de mayo de 2004 Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental y sus modificaciones.
 Considerando:
 1º—Que es política del Poder Ejecutivo lograr el desarrollo sostenible, en todas las áreas del quehacer nacional, tanto en el ámbito público como del sector privado, conservando y protegiendo el ambiente, en todas sus esferas, mediante acciones armónicas, coordinadas, sistematizadas y uniformes.
