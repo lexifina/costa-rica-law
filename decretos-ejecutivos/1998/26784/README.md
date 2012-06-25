@@ -15,3 +15,4 @@ Declara Interés Nacional y Público el Concurso sobre Aportes al Mejoramiento d
 | --- | --- | --- |
 | 1 | 1998-03-31 | la propia norma |
 | 2 | 1998-03-31 | Ley 8 |
+| 3 | 2012-06-25 | Ley 9046 |
