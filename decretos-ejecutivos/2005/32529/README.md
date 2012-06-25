@@ -15,3 +15,4 @@ Reglamento de las Asociaciones Administradoras de Sistemas de Acueductos y Alcan
 | --- | --- | --- |
 | 1 | 2005-08-05 | la propia norma |
 | 2 | 2012-04-20 | Decreto Ejecutivo 37169 (2012-04-20) |
+| 3 | 2012-06-25 | Ley 9046 |
