@@ -13,3 +13,4 @@ Incluye PIAGRO en Sistema Información Científica Tecnológica SINICIT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-18 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
