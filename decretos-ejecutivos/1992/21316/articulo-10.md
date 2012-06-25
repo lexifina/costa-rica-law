@@ -1,1 +1,0 @@
-Artículo 10- Será potestad del Ministro Rector de Ciencia y Tecnología invitar a representantes de empresas o instituciones públicas o privadas que no siendo parte del Sistema, resulta pertinente conocer su criterio cobre determinados acuerdos que deba tomar el Consejo Nacional de Ciencia y Tecnología.

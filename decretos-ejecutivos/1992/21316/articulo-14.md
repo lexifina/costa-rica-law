@@ -1,3 +1,0 @@
-Artículo 14.—El Consejo se reunirá ordinariamente convoc ado por el Ministro, cada seis meses con los integrantes citados. Extraordinariamente cuando el Ministro de Ciencia y Tecnología lo considere conveniente, previa convocatoria de este o cuando tres de sus miembros lo convoquen, al considerar que algún tema debe ser sometido a análisis.
-Extraordinariamente el Ministro de Ciencia y Tecnología podrá convocar, si lo considera conveniente para una mayor agilidad y cuando se trate de asuntos específicos, solamente aquellos integrantes que se vinculen directamente con los puntos a tratar.
-El modus operandi de las sesiones, será el que dispone la 1 .ey General de Admi nistración Pública en sus artículos 49 y concordantes.

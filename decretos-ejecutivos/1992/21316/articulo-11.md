@@ -1,1 +1,0 @@
-Artículo 11- Corresponderá al Ministro Rector de Ciencia y Tecnología buscar la concertación entre los miembros del Consejo Nacional de Ciencia y Tecnología, manteniendo la potestad de emitir directrices, en consulta o conjuntamente con el Presidente de la República , según requiera.
