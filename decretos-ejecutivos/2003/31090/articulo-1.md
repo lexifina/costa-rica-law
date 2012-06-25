@@ -64,7 +64,8 @@ Ministerio de la Condición de la Mujer, Instituto Nacional de las Mujeres.
 SECTOR CULTURA Y RECREACIÓN:
 Ministerio de Cultura, Juventud y Deportes, Centro Costarricense de Producción Cinematográfica, Centro Cultural Histórico José Figueres Ferrer, Comisión Nacional de Conmemoraciones Históricas, Consejo Nacional de Política Pública de la Persona Joven, Dirección General del Archivo Nacional, Editorial Costa Rica, Instituto Costarricense del Deporte y la Recreación, Museo de Arte y Diseño Contemporáneo, Museo de Arte Costarricense, Museo Dr. Rafael Ángel Calderón Guardia, Museo Histórico Cultural Juan Santamaría, Museo Nacional de Costa Rica, Sistema Nacional de Radio y Televisión Cultural, Teatro Popular Melico Salazar y Teatro Nacional.
 SECTOR DESARROLLO TECNOLÓGICO:
-Ministerio de Ciencia y Tecnología, Academia Nacional de Ciencias, Centro de Formación de Formadores y Personal Técnico para el Desarrollo Industrial de Centroamérica, Consejo Nacional de Investigaciones Científicas y Tecnológicas, Comisión Nacional de Energía Atómica.
+Ministerio de Ciencia, Tecnología y Telecomunicaciones(*), Academia Nacional de Ciencias, Centro de Formación de Formadores y Personal Técnico para el Desarrollo Industrial de Centroamérica, Consejo Nacional de Investigaciones Científicas y Tecnológicas, Comisión Nacional de Energía Atómica.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 SECTOR ECONOMÍA, INDUSTRIA Y COMERCIO:
 Ministerio de Economía, Industria y Comercio, Ministerio de Comercio Exterior, Instituto Costarricense de Turismo, Instituto Nacional de Estadística y Censos, Junta de Desarrollo Regional de la Zona Sur.
 SECTOR EDUCACIÓN Y RECURSOS HUMANOS:

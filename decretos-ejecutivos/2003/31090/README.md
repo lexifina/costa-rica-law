@@ -15,3 +15,4 @@ Procedimientos para la aplicación y seguimiento de la Política Presupuestaria 
 | --- | --- | --- |
 | 1 | 2003-03-31 | la propia norma |
 | 2 | 2003-07-01 | Decreto Ejecutivo 31282 (2003-07-01) |
+| 3 | 2012-06-25 | Ley 9046 |
