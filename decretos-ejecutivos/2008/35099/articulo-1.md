@@ -1,6 +1,7 @@
 Nº 35099-MICIT
 EL PRESIDENTE DE LA REPÚBLICA EN EJERCICIO
-Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que le confieren los artículos 140 incisos 3) y 146 de la Constitución Política; y los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978.
 Considerando:
 1º—Que la ciencia y la tecnología crean nuevo conocimiento y levantan la curiosidad del ser humano y, por todo ello, tienen el potencial de cambiar la sociedad. Su fomento cultiva individuos con un sentido de la historia de la civilización que son capaces de pensar estratégicamente para avanzar hacia una sociedad más equitativa, justa e incluyente para el desarrollo humano sostenible.

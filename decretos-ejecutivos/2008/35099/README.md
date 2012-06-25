@@ -14,3 +14,4 @@ Declara Interés Público el Premio Estrategia Siglo XXI: Jorge Manuel Obregón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-05 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
