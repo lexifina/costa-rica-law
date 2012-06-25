@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario del ejercicio Económico 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-24 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
