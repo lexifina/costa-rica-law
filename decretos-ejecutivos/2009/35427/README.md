@@ -14,3 +14,4 @@ Nombra miembros de la Comisión Nacional para la Gestión de la Biodiversidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-13 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
