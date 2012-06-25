@@ -15,3 +15,4 @@ Manual Procedimientos Pago Servicios Ambientales.
 | --- | --- | --- |
 | 1 | 2000-03-21 | la propia norma |
 | 2 | 2000-03-21 | SINALEVI (sin norma nombrada) |
+| 3 | 2012-06-25 | Ley 9046 |
