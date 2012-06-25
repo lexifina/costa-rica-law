@@ -14,3 +14,4 @@ Reglamento a los Artículos 3,10,11,12 y 13 de la Ley para el Bienestar de los A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-04 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
