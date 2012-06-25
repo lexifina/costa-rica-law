@@ -1,1 +1,0 @@
-Artículo 29.—El presente decreto ejecutivo deroga los Decretos Ejecutivos que establecen y regulan tarifas para las áreas silvestres administradas por el Sistema Nacional de Áreas de Conservación: No 27214-MIRENEM del 18 de agosto de 1998 y No 27347-MINAE del 14 de octubre de 1998.

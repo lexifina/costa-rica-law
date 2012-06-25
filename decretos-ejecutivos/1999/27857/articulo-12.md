@@ -1,1 +1,0 @@
-Artículo 12.—Previo a efectuar cualquier labor de investigación en el área silvestre, el investigador deberá cumplir los requisitos establecidos por la Ley de Conservación de Vida Silvestre y por la reglamentación existente en el Ministerio de Ambiente y Energía, para estos casos.
