@@ -15,3 +15,4 @@ Establece el Sistema Nacional de la Calidad.
 | --- | --- | --- |
 | 1 | 1995-10-09 | la propia norma |
 | 2 | 2001-02-28 | Decreto Ejecutivo 29648 (2001-02-28) |
+| 3 | 2012-06-25 | Ley 9046 |
