@@ -1,6 +1,7 @@
-Nº 31798-MICIT
+Nº 31798-MICITT(*)
 EL PRESIDENTE DE LA REPÚBLICA
-EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las atribuciones que les confiere los artículos 140 en sus incisos 3) y 18), y 146 de la Constitución Política y con fundamento en la "Ley de Promoción del Desarrollo Científico y Tecnológico" Nº 7169, del 26 de junio de 1990.
 Considerando:
 I.—Que es importante para el desarrollo de nuestro país conocer que servicios en tecnologías de información es una de las áreas de mayor potencial para el futuro cercano, como una forma de participar en el mercado internacional.
