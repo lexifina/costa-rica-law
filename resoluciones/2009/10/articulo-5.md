@@ -118,7 +118,7 @@ Junta de Desarrollo Regional de la Zona Sur – JUDESUR | 974,6 | G
 Junta de Protección Social de San José | 4.508,8 | E
 Laboratorio Costarricense de Metrología | 107,3 | I
 Ministerio de Agricultura y Ganadería – MAG | 2.276,0 | E
-Ministerio de Ciencia y Tecnología – MICIT | 991,6 | F
+Ministerio de Ciencia, Tecnología y Telecomunicaciones – MICITT (*) (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012) | 991,6 | F
 Ministerio de Comercio Exterior | 1.732,7 | F
 Ministerio de Cultura, Juventud y Deportes | 2.245,1 | E
 Ministerio de Economía, Industria y Comercio –MEIC | 589,5 | G
@@ -134,7 +134,7 @@ Ministerio de Salud | 3.735,2 | E
 Ministerio de Seguridad Pública | 17.882,9 | D
 Ministerio de Trabajo y Seguridad Social | 1.633,4 | F
 Ministerio de Vivienda y Asentamientos Humanos | 610,5 | G
-Ministerio del Ambiente, Energía y Telecomunicaciones- MINAET | 2.105,9 | E
+Ministerio del Ambiente y Energía- MINAE (*) (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012) | 2.105,9 | E
 Municipalidad de Abangares | 303,1 | H
 Municipalidad de Acosta | 164,2 | I
 Municipalidad de Aguirre | 476,8 | H
