@@ -1,5 +1,4 @@
-INSTITUTO COSTARRICENSE DE ACUEDUCTOS
-Y ALCANTARILLADOS
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
 ACUERDO Nº 2009-190
 JUNTA DIRECTIVA DEL INSTITUTO COSTARRICENSE DE
 ACUEDUCTOS Y ALCANTARILLADOS
@@ -37,12 +36,14 @@ En caso de que el anteproyecto de abastecimiento y/o saneamiento sea propuesto p
 I. Memoria del anteproyecto de infraestructura de abastecimiento y/o saneamiento.
 II. Definición del alcance del proyecto de abastecimiento y/o saneamiento. El proyecto deberá incluir en la conceptualizacion de la obra, cuyo periodo de diseño será de al menos de 20 años. Lo anterior, según sea definido por AyA bajo criterios de razonabilidad y proporcionalidad.
 III. Estudios básicos que sustentan el anteproyecto propuesto (hidrológicos e hidrogeológicos, topográficos, ambientales, cálculo de la demanda, conceptualización hidráulica y sanitaria, estudios de costos estimados, etc.), cuando corresponda.
-IV. Compromiso de gestionar, en el momento procesal oportuno, todos los permisos necesarios (CFIA, Municipalidad, SETENA; SENARA; Ministerio de Salud, etc.) y tramitar, en caso de requerirse, las derechos de uso de agua a nombre del AyA ante el MINAET.
+IV. Compromiso de gestionar, en el momento procesal oportuno, todos los permisos necesarios (CFIA, Municipalidad, SETENA; SENARA; Ministerio de Salud, etc.) y tramitar, en caso de requerirse, las derechos de uso de agua a nombre del AyA ante el MINAE (*).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 V. Presupuesto aproximado desglosado del proyecto.
 VI. Compromiso manifiesto de donar al AyA los inmuebles necesarios para las obras, así como las servidumbres que correspondan.
 En caso de que el anteproyecto de abastecimiento y saneamiento sea propuesto por AyA, los desarrolladores deberán aportar:
 I. Nota aceptando el proyecto, cuyo periodo de diseño será de al menos de 20 años, según haya sido definido bajo criterios de razonabilidad y proporcionalidad. La aceptación incluye el compromiso de aportar los estudios básicos que falten para sustentar la propuesta, los diseños que no tenga realizados el AyA (hidráulicos, arquitectónicos, estructurales, electromecánicos, sanitarios, etc.), la topografía, la viabilidad ambiental, entre otros.
-II. Compromiso de gestionar, en el momento oportuno, todos los permisos necesarios (CFIA, Municipalidad, SETENA, etc.) y tramitar los derechos de uso de aguas a nombre del AyA ante el MINAET.
+II. Compromiso de gestionar, en el momento oportuno, todos los permisos necesarios (CFIA, Municipalidad, SETENA, etc.) y tramitar los derechos de uso de aguas a nombre del AyA ante el MINAE (*).
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 III. Presupuesto aproximado desglosado del proyecto.
 IV. Compromiso manifiesto de traspasar gratuitamente al AyA los inmuebles necesarios para las obras, así como las servidumbres que correspondan.
 1. Bajo los principios rectores del servicio público, entre ellos el de “primero en tiempo, primero en derecho”, la dependencia responsable de la administración y operación de cada sistema deberá llevar un registro automatizado, depurado y actualizado de la oferta y demanda de estos, en el que que se deben incluir las solicitudes de servicios entrantes, de manera que pueda determinar, por proyecto de desarrollo urbanístico, el número total de servicios en relación estricta con el caudal, tomando en consideración la metodología de cálculo de unidades de servicios equivalentes:
@@ -70,7 +71,8 @@ Para la aprobación de los planos, la Subgerencia de Investigación y Desarrollo
 I. Copia digital y dos impresas de los planos (hidráulicos, arquitectónicos, estructurales, electromecánicos, sanitarios) y de las especificaciones técnicas del proyecto.
 II. Los diseños deberán cumplir con el Volumen Nº 4 del AyA denominado “Especificaciones Técnicas” y con la Reglamentación Técnica para Diseño y Construcción de Urbanizaciones, Condominios y Fraccionamientos. Acuerdo de Junta Directiva Nº 2006-730.
 III. Presupuesto definitivo y desglosado del proyecto.
-IV. Informes que sustentan el proyecto: estudios de suelo, estudio de viabilidad ambiental de SETENA, concesiones otorgadas por MINAET o el ICT, caudal de explotación, análisis de calidad de agua y cualesquiera otros estudios necesarios del proyecto previamente definidos .
+IV. Informes que sustentan el proyecto: estudios de suelo, estudio de viabilidad ambiental de SETENA, concesiones otorgadas por MINAE (*) o el ICT, caudal de explotación, análisis de calidad de agua y cualesquiera otros estudios necesarios del proyecto previamente definidos .
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 1. Formalizado lo anterior, la Gerencia General podrá emitir, dentro de los cinco días hábiles siguientes a la recepción de la solicitud de los interesados, la “Certificación de Compromiso”, documento en el que se hará constar la existencia de las obligaciones asumidas por el desarrollador con el AyA. Dicho documento podrá ser aportado por el desarrollador ante las autoridades públicas competentes, para lo que corresponda.
 2. La Subgerencia Ambiental, de Investigación y Desarrollo nombrará un profesional o profesionales responsables de la inspección, control, monitoreo, fiscalización y evaluación permanente de las obras de acueducto y alcantarillado de las que se trate, durante toda su fase de ejecución.
 Durante el proceso constructivo, y hasta su entrega formal al AyA, se requerirá lo siguiente:
