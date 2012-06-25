@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Funcionamiento del Consejo Regional del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-02 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

@@ -1,7 +1,8 @@
-Nº 35484-MINAET
+Nº 35484-MINAE(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE AMBIENTE, ENERGÍA
-Y TELECOMUNICACIONES
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Con fundamento en las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, el artículo 2º inciso a) de la Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995, los artículos 22, 27 y 29 de la Ley de Biodiversidad, Nº 7788 del 30 de abril de 1998 y los artículos 30 y siguientes del Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433-MINAE del 11 de marzo del 2008.
 Considerando:
 1º—Que mediante el artículo 29 de la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, se crean los Consejos Regionales de Áreas de Conservación del Sistema Nacional de Áreas de Conservación, no obstante no establece claramente las funciones de cada uno de sus miembros.
