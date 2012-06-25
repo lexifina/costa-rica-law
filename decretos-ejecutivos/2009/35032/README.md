@@ -14,3 +14,4 @@ Declaratoria de interés público de la Décima Cuarta Conferencia Anual sobre G
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-11 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
