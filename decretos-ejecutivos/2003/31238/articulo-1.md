@@ -1,6 +1,7 @@
 Nº 31238-MINAE
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En el ejercicio de las facultades que les confiere el artículo 140, inciso 3) y 148 de la Constitución Política y de conformidad con la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestre (CITES), Ley N° 5605 del 30 de octubre de 1974 y lo establecido en los artículos 6°, 12, 14 y 18 de la Ley de Conservación de la Vida Silvestre N° 7317 de 30 de octubre de 1992.
 Considerando:
 1º—Que la administración de los recursos de vida silvestre, como la facultad para dictar medidas y establecer procedimientos necesarios para asegurar la conservación de la diversidad biológica del país, es función del Ministerio de Ambiente y Energía.
