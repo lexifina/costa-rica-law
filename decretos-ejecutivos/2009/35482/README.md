@@ -14,3 +14,4 @@ Modifica Decreto Ejecutivo N° 34888 del 29 de agosto de 2008, denominado Tarifa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-23 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
