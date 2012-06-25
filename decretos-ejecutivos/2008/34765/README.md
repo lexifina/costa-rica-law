@@ -18,3 +18,4 @@ Reglamento a la Ley General de Telecomunicaciones
 | 3 | 2010-01-12 | Decreto Ejecutivo 35726 (2010-01-12) |
 | 4 | 2011-09-06 | Decreto Ejecutivo 36774 (2011-09-06) |
 | 5 | 2011-09-09 | Decreto Ejecutivo 36796 (2011-09-09) |
+| 6 | 2012-06-25 | Ley 9046 |
