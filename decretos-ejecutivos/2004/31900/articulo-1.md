@@ -1,7 +1,8 @@
 Nº 31900
 EL PRESIDENTE DE LA REPÚBLICA
 EL MINISTRO DE EDUCACIÓN PÚBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las atribuciones que les confieren los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, La Ley General de la Administración Pública Nº 6227, del 2 de mayo de 1978 y la Ley de Promoción del Desarrollo Científico y Tecnológico Ley Nº 7169 del 26 de junio de 1990.
 Considerando:
 1º—Que la renovación de la enseñanza de la ciencia y la tecnología, por vías formales e informales, debe apuntar también a promover la comprensión pública de la ciencia y la tecnología como parte de la cultura.
