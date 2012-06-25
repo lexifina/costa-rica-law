@@ -13,3 +13,4 @@ Reforma Reglamento Autónomo de Servicio del MICYT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-08 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
