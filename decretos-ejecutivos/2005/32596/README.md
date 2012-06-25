@@ -15,3 +15,4 @@ Creación de la Subcomisión Técnica de Indicadores para las Tecnologías de In
 | --- | --- | --- |
 | 1 | 2005-09-09 | la propia norma |
 | 2 | 2008-01-11 | Decreto Ejecutivo 34278 (2008-01-11) |
+| 3 | 2012-06-25 | Ley 9046 |
