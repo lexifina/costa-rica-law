@@ -1,6 +1,6 @@
-Nº 31553-MICIT-MOPT
+Nº 31553-MICITT(*)-MOPT
 (Nota de Sinalevi: El Poder Ejecutivo aprobó un nuevo “Dicta documento denominado: Código Sísmico de Costa Rica 2010” mediante decreto ejecutivo N° 37070 del 10 de abril de 2012)
-EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE CIENCIA Y TECNOLOGÍA Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*) Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
 En uso de las facultades que les confieren los incisos 3), y 18), de los artículos 140 y 146 de la Constitución Política; artículos 4º, inciso g), y 20), inciso g), de la Ley N° 7169, Ley de Promoción del Desarrollo Científico y Tecnológico de 26 de junio de 1990; artículos 1 y 2 de la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 3155 de 5 de agosto de 1963, reformada por Ley N° 4786 de 5 de julio de 1971; artículos 1º y 3º de la Ley Nº 6119, Ley que Establece el Código Antisísmico en Obras Civiles, de 9 de setiembre de 1977.
 Considerando:
 1º—Que es deber del Estado procurar, dotar y realizar las acciones necesarias para garantizar a los costarricenses un ambiente sano, equilibrado y seguro dentro del cual vivir, así como defender y preservar el bienestar de todos los habitantes de la Nación.
@@ -8,4 +8,5 @@ Considerando:
 3º—Que el artículo 3º de la misma Ley Nº 6119 contempla la obligación del Poder Ejecutivo de dictar normas mínimas en materia de construcción sismo-resistente, contando para ello con el Colegio Federado de Ingenieros y Arquitectos en calidad de obligado colaborador.
 4º—Que el Colegio Federado antes mencionado redactó y aprobó el nuevo Código Sísmico 2002 que reúne los requerimientos técnicos, científicos y de oportunidad que exige el ordenamiento jurídico nacional.
 DECRETA:
-Artículo 1º—Díctase el documento denominado "Código Sísmico de Costa Rica 2002", el cual estará a disposición tanto en los sitio Web del Ministerio de Ciencia y Tecnología () y del Ministerio de Obras Públicas y Transportes (), como en las Oficialías Mayores de ambos ministerios antes indicados; y además se encontrará a disposición en la Sede Central del Colegio Federado de Ingenieros y Arquitectos de Costa Rica.
+Artículo 1º—Dictase el documento denominado "Código Sísmico de Costa Rica 2002", el cual estará a disposición tanto en los sitio Web del Ministerio de Ciencia, Tecnología y Telecomunicaciones(*) () y del Ministerio de Obras Públicas y Transportes (), como en las Oficialías Mayores de ambos ministerios antes indicados; y además se encontrará a disposición en la Sede Central del Colegio Federado de Ingenieros y Arquitectos de Costa Rica.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
