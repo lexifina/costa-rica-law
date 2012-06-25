@@ -16,3 +16,4 @@ Normas Generales para el Acceso a los Elementos y Recursos Genéticos y Bioquím
 | 1 | 2003-12-15 | la propia norma |
 | 2 | 2004-03-19 | Decreto Ejecutivo 32066 (2004-03-19) |
 | 3 | 2007-02-06 | Decreto Ejecutivo 33697 (2007-02-06) |
+| 4 | 2012-06-25 | Ley 9046 |

@@ -1,5 +1,6 @@
 Nº 31514-MINAE
-EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 En uso de las facultades que le confieren los artículos 46, 50, 140 incisos 3) y 18) y 146 de la Constitución Política, los artículos 46 y 47 de la Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995 y el artículo 62 de la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998.
 Considerando:
 1º—Que el Convenio sobre la Diversidad Biológica, en su artículo 15 afirma que en reconocimiento de los derechos soberanos de los Estados sobre sus recursos naturales, la facultad de regular el acceso a los recursos genéticos incumbe a los gobiernos y está sometida a la legislación nacional y que cada parte procurará crear condiciones para facilitar su acceso para utilizaciones ambientalmente adecuadas.
