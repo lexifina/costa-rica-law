@@ -14,3 +14,4 @@ Declara de Interés Nacional y Público el "VI Congreso Sociedad Mesoamericana p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-16 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |
