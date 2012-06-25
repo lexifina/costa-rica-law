@@ -9,7 +9,8 @@ Artículo 5º—La Comisión Intersectorial para la Inocuidad de Alimentos estar
 - Un representante de la Oficina Nacional de Normas y Unidades de Medida del Ministerio de Economía, Industria y Comercio (ONNUM-MEIC).
 - Un representante del Consejo Nacional de Producción (CNP).
 - Un representante del Programa Integral de Mercadeo Agropecuario (PIMA).
-- Un representante del Centro Nacional de Ciencia y Tecnología de Alimentos (Convenio UCR-MICIT-MAG).
+- Un representante del Centro Nacional de Ciencia y Tecnología de Alimentos (Convenio UCR-MICITT(*)-MAG).
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 - Un representante del Centro de Investigaciones Agronómicas de la Universidad de Costa Rica (CIA).
 - Un representante de la Federación Nacional de Asociaciones de Consumidores (FENASCO).
 - Un representante del Centro de Formación de Formadores (CEFOF).
