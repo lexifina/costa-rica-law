@@ -1,4 +1,5 @@
-MINISTERIO DEL AMBIENTE Y ENERGÍA
+MINISTERIO DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Resolución Nº R-355-MINAE.—San José, a las quince horas del diecisiete de setiembre del dos mil cuatro.
 Considerando:
 I.—Que el Poder Ejecutivo, mediante Decreto Ejecutivo Nº 31176- MINAE, modificado por Decreto Ejecutivo Nº 31858-MINAE, publicados en el Diario Oficial La Gaceta Nº 122 del jueves 26 de junio del 2003, el primero y en La Gaceta Nº 127 del 30 de junio del 2004, el segundo, crea la figura del Canon Ambiental por Vertidos, el cual es un instrumento económico de regulación ambiental, que establece el cobro o cargo por contaminación que pagan quienes usen los cuerpos de agua para el vertimiento puntual de desechos líquidos.
