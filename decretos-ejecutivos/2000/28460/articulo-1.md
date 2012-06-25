@@ -1,7 +1,8 @@
-Nº 28460-MICIT
+Nº 28460-MICITT(*)
 LA SEGUNDA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPUBLICA
-Y EL MINISTRO DE CIENCIA Y TECNOLOGIA
+Y EL MINISTRO DE CIENCIA, TECNOLOGIA Y TELECOMUNICACIONES(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Con fundamento en lo dispuesto en los artículos 140, incisos 18) de la Constitución Política, 27 y 28 de la Ley Nº 7169 Ley de Promoción del Desarrollo Científico y Tecnológico.
 Considerando:
 1º—Que la realización del Primer Congreso de Investigación es fundamental para el desarrollo, cambio y avances científicos en los diferentes campos de la actividad humana y de gran importancia para las instituciones de educación superior, en particular por el momento histórico actual.
