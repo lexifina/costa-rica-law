@@ -2,7 +2,8 @@
 N°28216
 (Este decreto fue Derogado por el inciso b) del artículo 67 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+Y LA MINISTRA DE AMBIENTE Y ENERGÍA(*)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
 Con fundamento en los artículos 7,50 y 140 incisos 3) y 18) de la Constitución Política, ley Nº 7142 del 8 de marzo de 1990, ley Nº 2694 del 22 de noviembre de 1960, ley Nº 7476 del 3 de febrero de 1975, Ley de la Promoción de la Igualdad Social de la Mujer y decreto Nº 25554-MINAE.
 Considerando:
 1°—Que Costa Rica ha suscrito diversos convenios y declaraciones internacionales tanto en materia de ambiente como de equidad de género, entre éstos el Convenio sobre la Diversidad Biológica, la Declaración y Plataforma de Acción de la IV Conferencia Mundial Sobre la Eliminación de todas las formas de discriminación contra la Mujer.
@@ -13,4 +14,4 @@ Considerando:
 Por tanto,
 DECRETAN:
 La constitución de la Oficina de Género y Ambiente en el Ministerio de Ambiente y Energía.
-Articulo 1°—Créase la Oficina de Género y Ambiente como una dependencia del Ministerio de Ambiente y Energía, adscrita al despacho de la Ministra/o.
+Artículo 1°—Créase la Oficina de Género y Ambiente como una dependencia del Ministerio de Ambiente y Energía, adscrita al despacho de la Ministra/o.

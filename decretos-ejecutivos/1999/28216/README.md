@@ -15,3 +15,4 @@ Creación de la Oficina de Género y Ambiente del Ministerio de Ambiente y Energ
 | --- | --- | --- |
 | 1 | 1999-11-30 | la propia norma |
 | 2 | 2009-12-04 | Decreto Ejecutivo 35669 (2009-12-04) |
+| 3 | 2012-06-25 | Ley 9046 |
