@@ -14,3 +14,4 @@ Procedimiento para la Selección de Proyectos de Generación para la Venta de el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-12 | la propia norma |
+| 2 | 2012-06-25 | Ley 9046 |

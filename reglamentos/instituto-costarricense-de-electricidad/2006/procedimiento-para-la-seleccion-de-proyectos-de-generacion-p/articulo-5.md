@@ -1,7 +1,8 @@
 5. Términos, abreviaturas y simbología
 5.1. Términos
 Carta de Compromiso: Documento que firmará el ICE con aquellos interesados cuyos proyectos resulten seleccionados en el concurso y en el cual se detallan los requisitos establecidos en la Ley N° 7200, sus reformas y su Reglamento, que se deben cumplir previo a la firma del contrato, así como el plazo para dicho cumplimiento.
-Concesión de Aprovechamiento de Fuerzas Hidráulicas (Concesión de Aguas): Es el acto administrativo, emitido por el MINAET, por el cual se autoriza a un productor privado, a la utilización de las fuerzas hidráulicas para generación de electricidad.
+Concesión de Aprovechamiento de Fuerzas Hidráulicas (Concesión de Aguas): Es el acto administrativo, emitido por el MINAE (*), por el cual se autoriza a un productor privado, a la utilización de las fuerzas hidráulicas para generación de electricidad.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Concesión de Servicio Público de Generación (Concesión de Generación): Es el acto administrativo, emitido por la ARESEP, mediante el cual se autoriza a un productor privado, a la prestación del servicio público de generación de electricidad.
 Elegibilidad: Manifestación previa a la firma del contrato que emite el ICE, ante una propuesta del Interesado en desarrollar una planta eléctrica con fines de venderle su energía, indicando que dicha propuesta cumple con los requisitos exigidos por la legislación vigente.
 Informe de Viabilidad: Informe en el que se detallan las características básicas y se describen los estudios técnicos, económicos y financieros que demuestran que el proyecto es realizable.
@@ -18,6 +19,7 @@ ARESEP: Autoridad Reguladora de los Servicios Públicos.
 EsIA: Estudio de Impacto Ambiental: Análisis técnico aprobado por la SETENA.
 EIA: Evaluación Impacto Ambiental: Proceso de análisis técnico de los efectos de un proyecto en el medio ambiente, definido en el Reglamento sobre Procedimientos de la SETENA.
 ICE: Instituto Costarricense de Electricidad.
-MINAET: Ministerio de Ambiente, Energía y Telecomunicaciones.
+MINAE (*): Ministerio de Ambiente, Energía y Telecomunicaciones.
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 SEN: Sistema Eléctrico Nacional. Es el conjunto de centrales eléctricas de generación en el territorio nacional, redes de transmisión, subestaciones transformadoras y redes de transmisión y distribución eléctrica, las cargas de los usuarios, y sistemas aislados, establecidos en el territorio nacional, destinados al servicio público de energía eléctrica.
 SETENA: Secretaría Técnica Nacional Ambiental.
