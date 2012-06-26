@@ -1,0 +1,4 @@
+VI. El CET AC, debe presentar sus Estados Financieros debidamente auditados para la próxima petición tarifaria.
+En cumplimiento de lo que ordena el artículo 345 de la Ley general de la administración pública, se informa que contra esta resolución pueden interponerse los recursos ordinarios de revocatoria y de apelación y el extraordinario de revisión. El de revocatoria podrá interponerse ante el Comité de Regulación, al que corresponde resolverlo y los de apelación y de revisión podrán interponerse ante la Junta Directiva, a la que corresponde resolverlos.
+De conformidad con el artículo 346 de la Ley general de la administración pública, los recursos de revocatoria y de apelación deberán interponerse en el plazo de tres días hábiles contado a partir del día hábil siguiente al de la publicación en el Diario Oficial y, el extraordinario de revisión, dentro de los plazos señalados en el artículo 354 de dicha ley.
+NOTIFIQUESE Y PUBLIQUESE
