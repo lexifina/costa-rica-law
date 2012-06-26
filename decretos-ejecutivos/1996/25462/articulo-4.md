@@ -1,5 +1,0 @@
-Artículo 4.-
-Los restaurantes, cafeterías y similares deberán contar con áreas de fumado, siempre que éstas cumplan con requisitos de ventilación. Estas áreas estarán debidamente identificadas con leyendas con caracteres visibles y legibles que indicarán: AREA DE FUMADO O AREA DE NO FUMADO. El Ministerio de Salud velará porque los establecimientos citados cumplan con la presente disposición.
-El Consejo lo hará en el campo de Control de Propaganda del Tabaco, conforme a los artículos 13, 15 y 16 de la Ley.
-El Ministerio de Obras Públicas y Transportes, a través de la Dirección General de Tránsito, velará por el cumplimiento de las disposiciones establecidas en Ley y en el presente Reglamento, en cuanto a la prohibición del fumado en los vehículos de Transporte Público remunerado de personas.
-El Ministerio de Economía, Industria y Comercio, velará porque en cada cajetilla o empaque de tabaco para el consumo nacional, lleve impresas las leyendas preventivas, establecidas en el artículo 8 de la Ley.
