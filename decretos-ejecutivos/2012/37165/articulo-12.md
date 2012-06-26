@@ -1,0 +1,1 @@
+Artículo 12.- Las personas que laboran en el hogar de larga estancia para personas adultas mayores, deben tener acceso a capacitación e información tendiente al mejoramiento de las condiciones y medio ambiente del trabajo de acuerdo a la legislación vigente.

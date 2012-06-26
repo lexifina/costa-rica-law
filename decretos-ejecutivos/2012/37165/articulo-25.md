@@ -1,0 +1,2 @@
+Artículo 25.- El hogar de larga estancia para personas adultas mayores en el servicio de lavandería debe tener un manual de procedimientos técnicos y administrativos y de control del proceso, que deben ser conocidos por todo el personal.
+En caso de contratación a terceros del servicio de lavandería, debe aportar copia del contrato con la empresa correspondiente. La empresa debe contar con el permiso sanitario de funcionamiento emitido por el Ministerio de Salud.

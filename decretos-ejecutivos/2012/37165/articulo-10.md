@@ -1,0 +1,1 @@
+Artículo 10.- El hogar de larga estancia para personas adultas mayores debe de contar con personal misceláneo para la actividad de limpieza. Este personal debe de tener capacitación en el trato del adulto mayor.

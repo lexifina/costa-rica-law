@@ -1,0 +1,1 @@
+Artículo 26.- En el hogar de larga estancia para personas adultas mayores, el área administrativa debe tener registro de vacunas de hepatitis B y tétano (DT, Difteria tétanos) del personal que labora en el servicio de lavandería.

@@ -1,0 +1,1 @@
+Artículo 8.- El hogar de larga estancia para personas adultas mayores debe de contar con una persona coordinador o coordinadora, responsable del área administrativa, con capacitación en el campo de la persona adulta mayor, que tenga conocimientos básicos y experiencia en administración y gestión.

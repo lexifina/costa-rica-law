@@ -1,0 +1,1 @@
+Artículo 28.- El hogar de larga estancia para personas adultas mayores debe contar con un manual de organización que especifique las relaciones de mando y coordinación entre sus funcionarios. El organigrama respectivo debe estar a la vista.

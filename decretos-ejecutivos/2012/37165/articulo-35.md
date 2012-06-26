@@ -1,0 +1,1 @@
+Artículo 35.-Todas las áreas de trabajo del hogar de larga estancia para personas adultas mayores deben contar con equipo de protección personal, en cantidad y tipo apropiado, según el tipo de riesgo que signifique realizar las funciones.

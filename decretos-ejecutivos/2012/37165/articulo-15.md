@@ -1,0 +1,3 @@
+CAPITULO III
+DE LA PLANTA FISICA
+Artículo 15.- Los hogares de larga estancia para personas adultas mayores deben disponer de una planta física que cumpla con lo estipulado en la Ley Nº.7600 “Ley de Igualdad de Oportunidades para las Personas con Discapacidad”, Reglamentos sobre Seguridad Humana y Protección contra Incendios que emite el Instituto Nacional de Seguros, el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo y el Decreto Ejecutivo N° 36550-MP-MIVAH-S-MEIC, “Reglamento para el Trámite de Revisión de los planos para la Construcción, según Anexo A y C (recursos materiales y equipo) del presente Reglamento.

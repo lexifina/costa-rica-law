@@ -1,0 +1,1 @@
+Artículo 37.-El establecimiento debe contar con un sistema para la disposición final de residuos peligrosos producidos en el mismo, con bolsas plásticas rotuladas para la cristalería, aplicadores, gasas, guantes con secreciones, entre otros.

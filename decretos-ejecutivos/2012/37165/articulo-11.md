@@ -1,0 +1,1 @@
+Artículo 11.- El hogar de larga estancia para personas adultas mayores debe de contar, en promedio, con una persona encargada del cuido básico de la persona adulta mayor por cada 10 residentes. El número de personas encargadas de cuido se definirá de acuerdo al grado de ocupación y no en la capacidad instalada del centro.
