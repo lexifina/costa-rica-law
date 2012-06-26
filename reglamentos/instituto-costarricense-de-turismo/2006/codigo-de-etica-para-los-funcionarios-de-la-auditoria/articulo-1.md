@@ -31,3 +31,8 @@ Responsabilidad: Se debe responder de frente al país y a los órganos de contro
 Integridad: Los actos deben estar alejados de buscar beneficios en lo personal, familiar o para sus amigos.
 Honestidad: Todo interés diferente al público, que pudiese ocasionar un conflicto de intereses, debe ser declarado. De inmediato debe detenerse aquel actuar que potencialmente puede comprometer la recta honestidad y probidad que deben prevalecer.
 Liderazgo: Se debe promover y respaldar con sano liderazgo y ejemplo los principios antes indicados.
+Competencia: Respecto a la competencia, el Auditor Interno y los funcionarios de la Auditoría General cumplirán lo siguiente:
+• Participarán sólo en aquellos servicios para los cuales tengan los suficientes conocimientos, aptitudes y experiencia.
+• Desempeñarán todos los servicios de auditoría interna de acuerdo con las Leyes Nos. 1917, 7428 y 8292, el Reglamento de Organización y Funcionamiento de la Auditoría General, el presente Código, las normas y demás regulaciones emitidas por la Contraloría General de la República y las Normas Internacionales para el Ejercicio Profesional de la Auditoría Interna.
+• Mejorarán continuamente sus habilidades y la efectividad y calidad de sus servicios.
+(Así reformado mediante acuerdo N° SJD-292 de la sesión 5752 del 26 de junio de 2012)

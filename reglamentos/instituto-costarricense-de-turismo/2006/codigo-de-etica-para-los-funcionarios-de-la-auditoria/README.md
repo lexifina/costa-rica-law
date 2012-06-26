@@ -14,3 +14,4 @@ Código de Ética para los Funcionarios de la Auditoría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-10 | la propia norma |
+| 2 | 2012-06-26 | Reglamento 5752 (2012-06-26) |
