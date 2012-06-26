@@ -1,0 +1,1 @@
+Artículo 4.°- El resto del contenido del Decreto Ejecutivo No.36811-MEIC-MAG-S del 24 de agosto del 2011, “RTCR 441: 2010 REGLAMENTO TÉCNICO QUESO CREMA”, publicado en La Gaceta No. 201 del 20 de octubre del 2011, se mantiene idéntico.
