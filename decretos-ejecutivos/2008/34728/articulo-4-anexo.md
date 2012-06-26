@@ -8,6 +8,8 @@ Dirección del establecimiento: ______________________, cuya razón social es:__
 Primero: Que la actividad señalada en el formulario de solicitud del PSF que se realizará en el establecimiento denominado ________________________ cumple con toda la normativa establecida para el caso en concreto.
 Segundo.—Que la información que contiene el formulario unificado que adjunto a esta declaración es verdadera.
 Tercero.—Que en cumplimiento de lo establecido en el artículo 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social declaro estar al día en el pago de mis obligaciones con esa institución.
+Tercer bis.- Que cumple con lo establecido en la Ley N° 9028 del 22 de marzo de 2012 " Ley General de Control de Tabaco y sus Efectos Nocivos a la Salud" y sus reglamentos
+(Así adicionado el punto "Tercer bis" anterior por el inciso a) del artículo 61 del Reglamento a la Ley General de Control de Tabaco y sus Efectos Nocivos en la Salud, aprobado mediante decreto ejecutivo N° 37185 de 26 de junio de 2012)
 Cuarto.—Que de conformidad con lo establecido en el Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud en su Artículo 8, Condiciones previas, mi representada cumple con lo ahí solicitado y para ello suministro la siguiente información según corresponda: (Aplica solo para trámites de permisos sanitarios de funcionamiento por primera vez).
 1- Resolución Municipal de Ubicación Nº _________otorgada por la Municipalidad de ______________, emitida el día ___ del mes de _________del año_____
 2- Viabilidad (licencia) Ambiental Nº ____________ emitida por la SETENA , el día _____del mes de ___________ del año____.
