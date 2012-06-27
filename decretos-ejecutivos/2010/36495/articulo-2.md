@@ -1,5 +1,6 @@
-Artículo 2º—Para todos los efectos legales que se deriven de la aplicación de este Reglamento, se establecen las siguientes conceptualizaciones:
-a) Usuario: Funcionario que opera el equipo de cómputo para el desempeño de sus labores.
+Artículo 2°—Para todos los efectos legales que se deriven de la aplicación de este Reglamento, se establecen las siguientes conceptualizaciones:
+a) Usuario: Funcionario que opera el equipo de cómputo para el desempeño de sus labores y representantes sindicales o gremiales formalmente constituidos y que tengan un interés directo con el fin público encomendado por ley al Ministerio de Justicia y Paz.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37207 del 27 de junio del 2012)
 b) Departamento de Informática: Dependencia del Ministerio de Justicia y Paz encargada de garantizar la orientación y soporte sobre el uso adecuado de los recursos de tecnología de información y está conformado por todos los funcionarios que laboren en esa área, así como sus oficinas de apoyo que se ubiquen en los Centros Penitenciarios del País.
 c) Inbox: bandeja de entrada del correo electrónico
 d) Jerarca: Ministro o Viceministro del Ministerio de Justicia y Paz.

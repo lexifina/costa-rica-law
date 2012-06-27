@@ -1,5 +1,6 @@
-Artículo 5º—Del usuario. El usuario es responsable de la adecuada conservación del equipo de cómputo que la institución le provea para el desempeño de sus labores. Son deberes del usuario:
-a) Utilizar el equipo de cómputo y sus componentes únicamente para realizar trabajos afines a sus funciones, procurando la racionalidad en su uso y los suministros que se le otorguen en relación con éste.
+Artículo 5°—Del usuario. E! usuario es responsable de la adecuada conservación del equipo de cómputo que la institución le provea para el desempeño de sus labores. Son deberes del usuario:
+a) Utilizar el equipo de cómputo y sus componentes únicamente para realizar trabajos afínes a sus funciones o con relación directa a los fines institucionales, procurando la racionalidad en su uso y los suministros que se le otorguen en relación con éste.
+(Así refromado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37207 del 27 de junio del 2012)
 b) Procurar que el equipo de cómputo y sus componentes se mantengan en condiciones adecuadas de limpieza en su exterior.
 c) Comprobar, con la ayuda del programa antivirus Institucional, la existencia de virus en los dispositivos de almacenamiento masivo, discos duros externos, “diskettes”, entre otros, antes de ser utilizados, así como en el disco duro local.
 d) Mantener un respaldo de la información que resida en el disco duro de la computadora que se le haya asignado para ejecutar sus labores. Los archivos que se encuentren en el disco duro serán respaldados en medios magnéticos externos para conservar la información.
