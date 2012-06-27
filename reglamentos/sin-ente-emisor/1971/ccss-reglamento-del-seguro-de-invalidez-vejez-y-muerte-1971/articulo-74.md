@@ -1,1 +1,0 @@
-Artículo 74.-El Seguro de Invalidez, Vejez y Muerte conforme lo dispuesto en los artículos 2° y 71 de la Ley Constitutiva de la Caja, no cubre ni protege riesgos provenientes de enfermedades profesionales y de accidentes de trabajo.

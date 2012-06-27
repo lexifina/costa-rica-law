@@ -1,2 +1,0 @@
-Artículo 67. -Las cotizaciones de los trabajadores del Estado, serán deducidas o enteradas a la Caja a través de la Tesorería Nacional, dentro de los plazos que el presente reglamento establece como obligatorios.
-En cuanto a la cuota correspondiente al Estado como tal y como patrono, una vez aplicadas a su pago las rentas que por ley percibe la Caja, se comunicará el faltante al Ministerio de Hacienda, para que con base en el artículo 177 de la Constitución Política en el próximo presupuesto ordinario o extraordinario se cubra tal faltante.

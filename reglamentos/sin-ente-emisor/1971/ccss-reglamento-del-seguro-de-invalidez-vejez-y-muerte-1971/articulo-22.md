@@ -1,2 +1,0 @@
-Recursos de Revocatoria y Apelación
-Artículo 22.-Contra lo que resuelva la Gerencia con respecto a los beneficios a que se refiere este Reglamento, cabrán los recursos de revocatoria y apelación por parte de los interesados, siempre que se interpongan ante la Gerencia dentro de los cinco días hábiles posteriores a la notificación que se hará por medio de comunicación certificada. El pronunciamiento de la Gerencia, en caso de revocatoria, o de la Junta Directiva en el de apelación, deberá dictarse dentro de los diez días siguientes a aquél en que se formuló- el recurso.

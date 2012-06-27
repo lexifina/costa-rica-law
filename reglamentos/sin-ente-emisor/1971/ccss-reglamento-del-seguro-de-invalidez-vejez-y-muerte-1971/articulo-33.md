@@ -1,1 +1,0 @@
-Artículo 33.-Para estudiar las solicitudes de pensión en el Seguro de Invalidez, Vejez y Muerte, así como para resolver lo que corresponda, se crea la Comisión de Pensiones, la que por medio de un reglamento especial integrará la Gerencia indicando su forma de operar.

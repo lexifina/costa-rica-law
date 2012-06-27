@@ -1,1 +1,0 @@
-Artículo 17.-El trámite de las solicitudes de pensión, así como cualesquiera otras gestiones relacionadas con estos beneficios, estará a cargo de la Sección de Prestaciones en Dinero, la que ajustará sus procedimientos al instructivo que para tal efecto se emita.

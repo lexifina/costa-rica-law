@@ -1,2 +1,0 @@
-Montos Mínimos y Máximos de Pensiones
-Artículo 58.-El monto mínimo de pensión mensual será de doscientos cincuenta colones cuando se trate de invalidez y de vejez. Para los de viudez, orfandad, beneficios a padre y hermanos, se observará la correspondiente proporción y acrecimiento en su caso, basándose en el mínimo indicado y acatando las disposiciones de anteriores artículos con respecto a grupos de beneficiarios que simultáneamente tengan derecho a pensión.

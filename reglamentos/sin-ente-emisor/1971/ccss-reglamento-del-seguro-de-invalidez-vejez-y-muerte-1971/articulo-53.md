@@ -1,1 +1,0 @@
-Artículo 53.-El derecho a disfrutar de la pensión de orfandad empieza en la fecha del fallecimiento del asegurado y termina con el fallecimiento del beneficiario o con el cumplimiento de las condiciones previstas en el artículo 50. En caso de huérfanos inválidos se mantendrá la pensión mientras perdure el estado de invalidez.

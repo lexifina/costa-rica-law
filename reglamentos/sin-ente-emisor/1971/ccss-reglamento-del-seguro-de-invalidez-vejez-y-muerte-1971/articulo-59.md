@@ -1,1 +1,0 @@
-Artículo 59.-El monto de la pensión por invalidez o por vejez, o el conjunto de las que se otorguen en caso de muerte, se calcularán con base en el sueldo promedio teniendo en cuenta únicamente los primeros cinco mil colones mensuales de salario. El máximo de pensión no podrá exceder al 100% del sueldo promedio sobre el que se calcula la pensión.

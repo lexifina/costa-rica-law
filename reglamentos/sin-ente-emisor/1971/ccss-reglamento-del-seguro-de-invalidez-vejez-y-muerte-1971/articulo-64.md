@@ -1,1 +1,0 @@
-Artículo 64.-Los fondos que se obtengan del Estado, después de ese refuerzo de financiamiento, se destinarán, junto con los aportes personales del asegurado, el de los patronos y el producto de la inversión de los fondos en reserva, a financiar el costo de los beneficios ordinarios de los asegurados y sus causahabientes.

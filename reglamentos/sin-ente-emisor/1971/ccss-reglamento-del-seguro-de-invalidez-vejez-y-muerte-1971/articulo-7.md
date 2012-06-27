@@ -1,1 +1,0 @@
-Artículo 7°-Las solicitudes para la continuación voluntaria deben presentarse por escrito, dirigidas a la Sección de Prestaciones en Dinero, en los formularios que al efecto suministrará la institución.

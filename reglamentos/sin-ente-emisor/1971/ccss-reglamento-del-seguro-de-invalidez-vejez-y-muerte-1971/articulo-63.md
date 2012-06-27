@@ -1,4 +1,0 @@
-Artículo 63.-En cuanto a los recursos financieros regirán las siguientes disposiciones:
-1) La Junta Directiva de la Caja determinará periódicamente las contribuciones, de acuerdo con el costo de las prestaciones que otorga el sistema y de conformidad con las respectivas revisiones actuariales.
-2) Las cuotas a pagar sobre los primeros cinco mil colones de sueldo mensual son: 2 ½% los patronos, 2 ½% los trabajadores y 2 ½% el Estado en su condición de tal. Sobre el exceso de cinco mil colones de salario mensual, cada una de las partes indicadas contribuirán con un 1%.
-3) El aporte del Estado en su calidad de tal, se destinará preferentemente a reforzar el financiamiento del costo que impliquen las pensiones y beneficios que se acuerden en favor del grupo de trabajadores del campo y otros grupos de características particulares qué se lleguen a cubrir por este Seguro, los que se regirán por reglamento especial.

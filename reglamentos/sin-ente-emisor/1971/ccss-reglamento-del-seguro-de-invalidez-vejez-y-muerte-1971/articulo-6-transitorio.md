@@ -1,1 +1,0 @@
-Transitorio VI-Las personas ya pensionadas por vejez y por invalidez al 1° de agosto de 1971 podrán trabajar en los términos autorizados por el anterior reglamento de este Seguro, sin embargo mientras no se ajusten en todo a las disposiciones de este reglamento no recibirán los porcentajes de revaloración que se citan en el transitorio V.

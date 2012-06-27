@@ -1,7 +1,0 @@
-Forma de hacer efectiva las Cotizaciones
-Artículo 65.-Las planillas del mes vencido anterior deben presentarse en los cinco primeros días hábiles del mes siguiente y el pago de esas planillas debe hacerse durante el curso del citado mes. En ningún caso se aceptará el pago global de una o más cotizaciones mensuales vencidas con el propósito de revalidar o adquirir derechos dentro de este Seguro. Es entendido que los patronos responderán íntegramente por todas las prestaciones que esta ley y este reglamento otorgan a los asegurados, cuando por su culpa, dolo u omisión no los hayan afiliado al régimen oportunamente o no hayan pagado el número de cotizaciones para adquirir el derecho respectivo, tal como se establece en el artículo 44 de la Ley Constitutiva de la Caja.
-Los patronos que no presenten o cancelen sus planillas dentro de los plazos reglamentarios, estarán sujetos al pago de recargos sobre el monto de las cuotas, con fundamento en lo dispuesto en el artículo 36 de la Ley Constitutiva de la Caja. Dichos recargos se aplicarán en la siguiente forma:
-a) Por presentación tardía el 1%, sin que la suma pueda ser menor a veinte colones.
-b) Por atraso en el pago durante los primeros quince días calendarios o fracción, se aplicará el 1%.
-c) Transcurrido el plazo señalado en el inciso anterior, por mes o fracción de atraso, se aplicará el 2% mensual progresivo, hasta un máximo de 24%.
-Estos cobros se harán sin perjuicio de las sanciones establecidas en los artículos 44 y siguientes de la Ley Constitutiva de la Caja.

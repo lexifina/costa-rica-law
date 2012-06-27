@@ -1,1 +1,0 @@
-Artículo 66.-El pago de las cotizaciones de los asegurados y sus patronos se hará efectivo en la Caja, quedando obligado el patrono a hacer las correspondientes deducciones a los asegurados en el momento de pagar los salarios. En las planillas el patrono deberá suministrar los datos que la Caja establezca como necesarios, principalmente el número de afiliación del asegurado.

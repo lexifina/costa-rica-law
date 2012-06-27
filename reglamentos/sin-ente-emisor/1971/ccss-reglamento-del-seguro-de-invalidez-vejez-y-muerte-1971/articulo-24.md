@@ -1,1 +1,0 @@
-Artículo 24.-El derecho de cobrar la mensualidad de pensión ya acordada prescribe en dos años en el caso de vejez y en un año las de invalidez y muerte, en ambos casos a partir de la fecha de su otorgamiento. La prescripción a que se refiere este artículo afecta solamente a las cuotas ya acumuladas en los períodos citados.

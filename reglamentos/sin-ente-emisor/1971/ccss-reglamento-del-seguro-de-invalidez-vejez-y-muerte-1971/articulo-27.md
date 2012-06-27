@@ -1,2 +1,0 @@
-Determinación de la edad
-Artículo 27.-Cuando la edad de los asegurados o beneficiarios no puede ser comprobada por medio de las certificaciones o constancias de nacimiento, de bautizo o de cualquier otro documento público, la Caja fijará la edad, teniendo en cuenta para ellos los resultados de la investigación que realice la institución, los documentos privados y otras pruebas que los interesados presenten.

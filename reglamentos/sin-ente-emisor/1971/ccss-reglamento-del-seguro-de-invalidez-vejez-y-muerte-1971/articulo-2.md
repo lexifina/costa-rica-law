@@ -1,2 +1,0 @@
-Objeto de estos Beneficios
-Artículo 2°-Los beneficios que se otorgan en el presente Reglamento tienen por objeto garantizar al asegurado y sus familiares una protección básica. Adicionalmente a tales beneficios, los patronos pueden, financiando su costo en forma exclusiva o conjuntamente con sus empleados, tener sistemas complementarios de esta protección, todo sin perjuicio de la obligatoriedad de este seguro.

@@ -1,1 +1,0 @@
-Artículo 28.-Para efecto de otorgar y reconocer los derechos y beneficios, así como para los cálculos correspondientes del caso a que se refiere este Reglamento, las edades se computarán a base de años, meses y días.

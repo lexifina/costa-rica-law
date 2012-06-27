@@ -1,1 +1,0 @@
-Artículo 56.-El derecho a pensión a favor de padres y hermanos comienza en la fecha del fallecimiento del asegurado y termina con la muerte de los beneficiarios, o al cumplir los hermanos no inválidos los dieciocho años de edad o veintidós los estudiantes, o al rehabilitarse los inválidos.

@@ -1,2 +1,0 @@
-Prescripción de pagos y de reconocimiento de beneficios
-Artículo 23.-El derecho para reclamar el otorgamiento de las pensiones de invalidez prescribe en dos años y para las de muerte en 10 años, contados en ambos casos a partir de la fecha en que ocurra el respectivo riesgo. Los plazos de prescripción no correrán en perjuicio de menores con derecho a pensión de orfandad, que no convivían con el padre o la madre sobrevivientes y que carezcan de tutor. El derecho de reclamar las pensiones por vejez es imprescriptible.
