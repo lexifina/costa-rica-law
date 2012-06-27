@@ -1,3 +1,1 @@
-Artículo 48.—Del nivel político-estratégico de las Direcciones Regionales de Nutrición y Desarrollo Infantil. El nivel político-estratégico del nivel regional está conformado por:
-a) El Despacho del Director Regional.
-b) La Unidad de Desarrollo Estratégico.
+Artículo 48.—(Derogado por el artículo 67 del Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición de Centros Infantiles de Atención Integral, aprobado mediante decreto ejecutivo N° 37270 del 27 de junio de 2012)

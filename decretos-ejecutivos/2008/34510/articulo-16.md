@@ -3,6 +3,6 @@ El Consejo Ministerial está integrado por:
 a) El Ministro.
 b) El Viceministro de Salud.
 c) El Director General de Salud.
-d) El Director General de Nutrición y Desarrollo Infantil.
+d) (Derogado por el artículo 67 del Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición de Centros Infantiles de Atención Integral, aprobado mediante decreto ejecutivo N° 37270 del 27 de junio de 2012)
 e) El Director de Asuntos Jurídicos.
 f) El Jefe de la Unidad de Asuntos Internacionales en Salud.

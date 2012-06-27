@@ -9,4 +9,4 @@ f) Dirección de Asuntos Jurídicos.
 g) Unidad de Asuntos Internacionales en Salud.
 h) Dirección General de Auditoría.
 i) Dirección General de Salud.
-j) Dirección General de Nutrición y Desarrollo Infantil.
+j) (Derogado por el artículo 67 del Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición de Centros Infantiles de Atención Integral, aprobado mediante decreto ejecutivo N° 37270 del 27 de junio de 2012)

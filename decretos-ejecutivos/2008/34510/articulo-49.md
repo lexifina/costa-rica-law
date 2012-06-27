@@ -1,3 +1,1 @@
-Artículo 49.—Del nivel operativo de las Direcciones Regionales de Nutrición y Desarrollo Infantil. El nivel operativo del nivel regional está conformado por:
-a) La Unidad Técnica de Nutrición y Desarrollo Infantil.
-b) La Unidad de Gestión de Recursos.
+Artículo 49.—(Derogado por el artículo 67 del Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición de Centros Infantiles de Atención Integral, aprobado mediante decreto ejecutivo N° 37270 del 27 de junio de 2012)

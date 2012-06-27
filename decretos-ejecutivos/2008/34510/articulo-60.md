@@ -1,6 +1,1 @@
-Artículo 60.—De los Consejos de Gestión Regional de Nutrición y Desarrollo Infantil. Los Consejos de Gestión Regional de Nutrición y Desarrollo Infantil son instancias de asesoría y coordinación y están coordinados por los Directores Regionales de Nutrición y Desarrollo Infantil. Les corresponde colaborar con la formulación de los lineamientos tácticos regionales en el ámbito de los Servicios de Nutrición y Desarrollo Infantil, acorde con las políticas y prioridades definidas por el Ministro de Salud y con los lineamientos estratégicos emitidos por el Director General de Nutrición y Desarrollo Infantil, y con la definición, seguimiento y evaluación del accionar de la Institución en este ámbito a nivel regional. Además, en estas instancias, se comunican asuntos clave y, en general, se facilita la integración de los esfuerzos regionales para contribuir con el logro del marco estratégico de los Servicios de Nutrición y Desarrollo Infantil.
-Los Consejos de Gestión Regional de Nutrición y Desarrollo Infantil están integrados por:
-a) El Director Regional de Nutrición y Desarrollo Infantil.
-b) El Jefe de la Unidad de Desarrollo Estratégico.
-c) El Jefe de la Unidad Técnica de Nutrición y Desarrollo Infantil.
-d) El Jefe de la Unidad de Gestión de Recursos.
+Artículo 60.—(Derogado por el artículo 67 del Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición de Centros Infantiles de Atención Integral, aprobado mediante decreto ejecutivo N° 37270 del 27 de junio de 2012)
