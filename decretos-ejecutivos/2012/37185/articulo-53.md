@@ -1,0 +1,1 @@
+Artículo 53.- El Órgano Director emitirá una recomendación al Órgano Decisor, con sustento en la verificación de la verdad real de los hechos investigados. En cada caso recomendará las sanciones que correspondan o bien el archivo del expediente, cuando no haya mérito o pruebas suficientes para la aplicación de medidas sancionatorias.

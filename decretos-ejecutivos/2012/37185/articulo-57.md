@@ -1,0 +1,1 @@
+Artículo 57.- En el supuesto de que el infractor incumpla con la obligación del pago de la sanción pecuniaria impuesta, el jerarca del Ministerio de Salud emitirá el certificado de adeudo, el que para tales efectos se constituye en título ejecutivo, que se hará ejecutorio en la vía jurisdiccional correspondiente.

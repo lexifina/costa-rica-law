@@ -1,0 +1,5 @@
+SECCIÓN IV
+DEL REGISTRO NACIONAL DE INFRACTORES
+Artículo 60.- El Ministerio de Salud implementará el Registro Nacional de Infractores, que se encargará de llevar el historial de faltas y sanciones que cometan las personas infractoras de la Ley, las cuales deberán mantenerse hasta por el plazo máximo de cuatro años, salvo que las personas infractoras no hayan cancelado la multa, en cuyo caso permanecerá en el registro.
+Las instituciones del Estado que otorguen permisos o licencias para el funcionamiento de algún establecimiento o actividad de comercio, deberán verificar en el Registro Nacional de Infractores si la persona administrada gestionante se encuentra al día en el pago de las multas.
+Cuando se trate de la renovación de permisos sanitarios de funcionamiento el Ministerio de Salud, verificará en el Registro Nacional de Infractores que el interesado se encuentra al día en el pago de las multas, para lo cual deberá dejar constancia en el expediente administrativo del establecimiento.

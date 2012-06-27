@@ -1,0 +1,2 @@
+TRANSITORIO VIII
+Las personas físicas o jurídicas, importadoras y/o fabricantes de productos de tabaco y sus derivados, incluido el cigarrillo electrónico que contiene nicotina, tendrán un plazo de tres meses contado a partir de la entrada en vigencia de este reglamento, para presentar la primera declaración jurada ante el Ministerio de Salud, de los ingredientes y las emisiones de nicotina, alquitrán y monóxido de carbono, así como los métodos de análisis utilizados, de los productos de tabaco y sus derivados, que comercialicen en el país.

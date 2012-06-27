@@ -1,0 +1,3 @@
+CAPÍTULO VI
+DE LA EDUCACIÓN, PREVENCIÓN Y COOPERACIÓN
+Artículo 24.- De conformidad con las disposiciones de la Ley No. 8289, el Ministerio de Salud a través del IAFA, creará el Programa Nacional de Educación para la Prevención e Información sobre el Consumo de Tabaco y sus Derivados, el cual indicará asimismo, las entidades responsables para la ejecución del programa. El objetivo de este Programa es fomentar la promoción, la educación para la salud, así como la difusión del conocimiento a las generaciones presentes y futuras de los riesgos atribuibles al consumo de productos elaborados con tabaco y por la exposición al humo de tabaco.

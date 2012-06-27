@@ -1,0 +1,8 @@
+Artículo 23.- Otras prohibiciones referentes a la venta y el suministro de productos de tabaco y sus derivados.
+a) Quedan totalmente prohibidas las ventas al consumidor por medios telefónicos, digitales, electrónicos, internet, correos y otros medios, por los cuales no se pueda comprobar de forma clara y oportuna la identificación de la persona compradora mayor de edad, así como en las ventas ambulantes y similares.
+b) Se prohíbe la venta de productos de tabaco a personas menores de edad.
+c) Se prohíbe la venta de cigarrillos sueltos o al menudeo, así como en cajetillas que contengan menos de veinte cigarrillos.
+d) Se prohíbe utilizar máquinas expendedoras o dispensadoras de productos de tabaco o sus derivados.
+e) Se prohíbe la fabricación, importación y venta de alimentos o juguetes que tengan la forma o diseño de productos de tabaco.
+f) Los vendedores al por mayor o al detalle de estos productos, tendrán la obligación de colocar a su costo, carteles visibles, claros y destacados en el interior de los lugares de venta que indiquen que se prohíbe la venta de productos de tabaco y sus derivados a personas menores de edad. Estos rótulos no deben llevar logos, imágenes o colores que hagan referencia a marcas o productos de tabaco. Los comerciantes permanentes u ocasionales que vendan productos de tabaco estarán obligados a exigir la presentación de la cédula de identidad, cédula de residencia, pasaporte u otro documento de identificación, en el momento de la venta.
+g) La venta de productos de tabaco al público, deberá realizarse exclusivamente en los anaqueles ubicados en las cajas de pago de los puntos de venta de los establecimientos, de tal forma que estos no estén, directamente, accesibles al consumidor final.

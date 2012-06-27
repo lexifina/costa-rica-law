@@ -1,0 +1,1 @@
+Artículo 18.- Únicamente se permite la publicidad y promoción de los productos derivados de tabaco en el interior de lugares y eventos donde sólo se permite el acceso limitado a personas adultas y no sea declarado un espacio cien por ciento (100%) libre de la exposición al humo de tabaco y sus derivados

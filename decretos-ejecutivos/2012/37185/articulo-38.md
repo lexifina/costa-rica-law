@@ -1,0 +1,2 @@
+Artículo 38.-
+Cuando la Dirección General de Aduanas o la Policía de Control Fiscal constate que, en las instalaciones de venta de productos de tabaco o los vehículos de distribución, existen productos que no hayan pagado los derechos o impuestos aduaneros correspondientes, en forma total o parcialmente, procederá al decomiso preventivo de esos productos y, siguiendo el debido proceso, le serán aplicables, según corresponda, las disposiciones sancionatorias establecidas en la Ley General de Aduanas, sus reformas y normas conexas o en el Código Penal.

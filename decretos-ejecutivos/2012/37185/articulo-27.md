@@ -1,0 +1,1 @@
+Artículo 27.- El Ministerio de Seguridad Pública, por medio de la Dirección de Programas Policiales Preventivos, coadyuvará con el IAFA, previa coordinación, en la divulgación de los programas educativos.

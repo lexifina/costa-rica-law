@@ -1,0 +1,1 @@
+Artículo 58.- La División Administrativa del Ministerio de Salud, por medio de la Dirección Financiera, Bienes y Servicios, elaborará y actualizará los valores monetarios establecidos para las diferentes multas, en relación al salario base, según el artículo 2 de la Ley 7337 del 5 de mayo de 1993 “Crea Concepto Salario Base para Delitos Especiales del Código Penal”.

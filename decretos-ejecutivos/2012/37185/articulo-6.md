@@ -1,0 +1,2 @@
+Artículo 6.- De la información a las personas con discapacidad visual.
+Toda persona física o jurídica, representante de sitios cien por ciento (100%) libres de la exposición al humo de tabaco y sus derivados, tendrán la obligación de informar a las personas con discapacidad visual, sobre la prohibición de consumir o fumar en los espacios o lugares públicos y privados señalados en el artículo anterior.

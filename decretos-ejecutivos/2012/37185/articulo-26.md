@@ -1,0 +1,1 @@
+Artículo 26.- En cuanto a los programas educativos elaborados por el IAFA y por ser éstos competencia exclusiva del Consejo Superior de Educación, deberán ser sometidos a su conocimiento, para que por acuerdo de dicho Consejo, sean incorporados al sistema educativo costarricense.

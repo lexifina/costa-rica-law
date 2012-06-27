@@ -1,0 +1,2 @@
+TRANSITORIO II
+La industria tabacalera y personas vendedoras de productos de tabaco y sus derivados tendrán un plazo de doce meses a partir de la publicación del presente reglamento para cumplir con la prohibición establecida en el inciso a) del artículo 18 de la Ley, en lo que se refiere a la distribución y venta de cajetillas de cigarrillos preempacados que contengan menos de veinte unidades. Una vez acaecido este plazo no se podrá importar, distribuir o vender el producto en presentaciones inferiores a veinte unidades.

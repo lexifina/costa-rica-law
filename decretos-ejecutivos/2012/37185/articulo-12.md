@@ -1,0 +1,1 @@
+Artículo 12.- El Ministerio de Salud deberá prohibir el uso de determinados ingredientes siempre que se demuestre, de acuerdo a criterios científicos objetivos y estándares internacionales, que estos incrementan la toxicidad total inherente y la dependencia de los productos de tabaco y sus derivados.

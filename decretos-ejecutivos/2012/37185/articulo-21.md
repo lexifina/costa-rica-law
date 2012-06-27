@@ -1,0 +1,1 @@
+Artículo 21.- Se prohíbe el uso del nombre, logo o distintivo visible de marcas de cigarrillos, así como cualquier forma de publicidad, promoción y patrocinio de tabaco y sus derivados, en las actividades desarrolladas bajo el concepto de responsabilidad social de parte de personas físicas o jurídicas.

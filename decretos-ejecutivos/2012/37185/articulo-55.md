@@ -1,0 +1,2 @@
+Artículo 55.- La ejecución del acto final que imponga una sanción pecuniaria, deberá estar precedida de dos intimaciones consecutivas; para tal propósito el acto final deberá contener la primera intimación.
+La segunda intimación deberá ser notificada a los tres días hábiles posteriores a la primera notificación; en ambas intimaciones se deberá apercibir a la persona infractora que debe proceder a la cancelación de lo dispuesto en el acto final, so pena de clausurarse el establecimiento en caso de incumplimiento de dicha obligación, dentro del plazo señalado.

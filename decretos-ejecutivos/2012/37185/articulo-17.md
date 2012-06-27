@@ -1,0 +1,1 @@
+Artículo 17.- Se exceptúa de lo anterior la publicidad y promoción por comunicación directa que lleva a cabo la industria tabacalera con los vendedores y los consumidores de tabaco y sus derivados, mayores de edad, de conformidad con el protocolo establecido para dicho fin en el Anexo 3 del presente reglamento.

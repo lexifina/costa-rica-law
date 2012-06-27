@@ -1,0 +1,1 @@
+Artículo 52.- Cuando la complejidad o tecnicidad del caso así lo amerite, el Órgano Director podrá hacerse asesorar por técnicos en la materia o por todo aquel profesional con competencia técnica para tales efectos.

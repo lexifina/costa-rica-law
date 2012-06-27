@@ -1,0 +1,1 @@
+Artículo 14.- Las modificaciones o reformulaciones de los productos de tabaco y sus derivados, indicadas en la declaración jurada que se presentó en la Dirección de Atención al Cliente del Ministerio de Salud, requerirán de una nueva declaración jurada en la que consten esas nuevas modificaciones o reformulaciones.
