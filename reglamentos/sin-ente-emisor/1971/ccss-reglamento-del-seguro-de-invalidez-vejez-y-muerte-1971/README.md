@@ -13,3 +13,4 @@ CCSS: Reglamento del Seguro de Invalidez, Vejez y Muerte (1971)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1971-07-13 | la propia norma |
+| 2 | 2012-06-27 | SINALEVI (sin norma nombrada) |
