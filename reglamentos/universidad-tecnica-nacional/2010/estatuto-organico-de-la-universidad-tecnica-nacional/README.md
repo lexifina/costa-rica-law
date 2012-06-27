@@ -14,3 +14,4 @@ Estatuto Orgánico de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-28 | la propia norma |
+| 2 | 2012-06-27 | SINALEVI (sin norma nombrada) |
