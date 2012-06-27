@@ -1,3 +1,0 @@
-De Artículo 41.-Los miembros de la Junta Directiva de los Comités no podrán ser a la vez proveedores únicos de alimentos del Centro, salvo circunstancias especiales de la comunidad y que deberá constar y ser justificadas en el libro de actas del Comité. Será responsabilidad del Comité, de la Comisión de Abastecimiento y del Técnico de Nutrición velar porque se seleccionen las mejores ofertas para la adquisición de los productos.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 18321 del 11 de julio de 1988).
-(NOTA: Antes de su reforma, este artículo derogaba el Decreto No. 2299 de 24 de abril de 1972, derogación que actualmente se encuentra consignada en el artículo 46 de este decreto).

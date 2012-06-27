@@ -1,2 +1,0 @@
-CAPITULO VIII
-Artículo 35.-Se prohíbe en forma absoluta hacer préstamos personales con cargo a los referidos fondos o disponer de esos recursos para fines ajenos a los centros. Cualquier irregularidad en materia de manejo de fondos, debidamente comprobada, autorizará al Ministerio para remover a los responsables sin perjuicio de poner los antecedentes en conocimiento de los Tribunales de Justicia por la Vía que corresponda, para la determinación de las responsabilidades penales, si procedieren.

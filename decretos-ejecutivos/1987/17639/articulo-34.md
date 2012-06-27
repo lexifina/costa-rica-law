@@ -1,2 +1,0 @@
-Artículo 34.-Los Comités de Nutrición deberán abrir una cuenta corriente bancaria para el manejo de los fondos y para girar contra ella deberán firmar conjuntamente la Directora del Centro y el Presidente de la Junta Directiva. En ausencia de la Directora firmará la Técnica de Atención Integral, y en ausencia del Presidente firmará el Tesorero. Cualquier suplencia en la firma de los cheques deberá constar en el libro de actas del Comité.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 18321 del 11 de julio de 1988).

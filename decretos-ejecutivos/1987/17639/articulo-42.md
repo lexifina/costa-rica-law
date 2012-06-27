@@ -1,4 +1,0 @@
-CAPITULO IX
-Del Comité Nacional de Nutrición
-Artículo 42.-Se podrá constituir un Comité Nacional de Nutrición. Para este efecto los comités zonales de cada una de las Regiones de Salud del país nombrarán un delegado propietario y uno suplente, y el conjunto de éstos formará la asamblea. En dicha asamblea se designará la Junta Directiva que estará integrada por un Presidente, un Secretario, un Tesorero y tres vocales. Los integrantes de la Junta Directiva tendrán las mis. mas funciones de los miembros de las Juntas Directivas de los comités zonales y de nutrición, y durarán en sus cargos dos años, pudiendo ser reelegidos solamente aquellos miembros que se conservan la calidad de delegado de los comités zonales de la región de salud respectiva.
-(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 18321 del 11 de julio de 1988).

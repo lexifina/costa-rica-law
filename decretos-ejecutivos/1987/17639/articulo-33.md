@@ -1,1 +1,0 @@
-Artículo 33.-Las vacantes que se produjeren en la Junta Directiva y comisiones de nutrición o comité zonal serán llenadas por el sustituto (vocales). Si no hubiere sustituto. la vacante será ocupada por un miembro escogido de una terna por el Técnico de Nutrición. Esta terna será presentada por la Junta Directiva.

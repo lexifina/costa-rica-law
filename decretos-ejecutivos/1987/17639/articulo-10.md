@@ -1,1 +1,0 @@
-Artículo 10.-Los Comités de Nutrición deberán reunirse en sesión ordinaria ,al menos una vez cada seis meses, y extraordinariamente cuando lo determine la Junta Directiva, o lo solicite la mayoría de los miembros. El quórum lo constituirá la mitad más uno de los miembros y los acuerdos se adoptarán por mayoría de votos.

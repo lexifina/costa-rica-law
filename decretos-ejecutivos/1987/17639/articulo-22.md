@@ -1,1 +1,0 @@
-Articulo 22.-Una vez que los Comités de Nutrición se hayan constituido, el trabajador social tendrá la responsabilidad de capacitar a ese grupo de acuerdo con lo establecido por el manual de normas del Departamento de Trabajo Social.

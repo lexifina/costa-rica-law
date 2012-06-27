@@ -1,1 +1,0 @@
-Artículo 32.-Para que proceda la aceptación de la renuncia de un miembro de la Junta Directiva del Comité de Nutrición o de un comité zonal. será indispensable que se presente conjuntamente con un informe completo del estado actual de los asuntos que han estado a su cargo.

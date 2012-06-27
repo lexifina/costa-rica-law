@@ -1,1 +1,0 @@
-Artículo 4°-La Dirección Técnica y normativa de los Centros corresponderá al Departamento de Nutrición, sin perjuicio de las atribuciones que competan a otras ,autoridades del Ministerio de Salud. Asimismo se respetarán las atribuciones del Ministerio de Educación Pública y del Ministerio de Trabajo y Seguridad Social que por ley les corresponde.
