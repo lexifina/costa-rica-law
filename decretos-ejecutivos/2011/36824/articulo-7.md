@@ -1,1 +1,0 @@
-Artículo 7º—El cargo de Viceministro/a Administrativo será ejercido por el Oficial Mayor, como recargo. La organización que por esta vía se establece no supondrá incremento en el gasto público pues se redistribuirán los recursos materiales y humanos existentes.

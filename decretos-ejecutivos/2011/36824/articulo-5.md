@@ -1,2 +1,0 @@
-Artículo 5º—El Viceministro/a Administrativo tendrá a su cargo la adecuada gestión de los recursos públicos asignados a las tareas propias del Ministerio de Justicia y Paz, incluyendo la programación, formulación, planeación, ejecución, control y evaluación de las políticas y planes. Lo anterior, sin detrimento de las competencias previstas en el artículo 22 del Reglamento a la Ley de Administración Financiera de la República y Presupuestos Públicos.
-Además, tendrá las otras funciones que el Ministro/a de Justicia y Paz le encomiende o delegue.

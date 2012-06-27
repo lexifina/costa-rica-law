@@ -1,2 +1,0 @@
-Artículo 3º—El Viceministro/a de Justicia tendrá a su cargo la coordinación de los programas necesarios para fortalecer la Dirección General de Adaptación Social, en todo lo referente a la adecuada gestión técnica del sistema penitenciario nacional y en especial velar por la seguridad en dichos centros y por la ejecución de las políticas nacionales en materia de criminalidad y lucha contra la delincuencia.
-Esto sin perjuicio de otras funciones que el Ministro/a de Justicia y Paz le encomiende o delegue.
