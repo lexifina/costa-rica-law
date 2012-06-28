@@ -1,0 +1,1 @@
+IV. Indicar a los operadores y proveedores que brinden el servicio de transferencia de llamadas que deberán comunicar en su página web y en los contratos de adhesión de forma adecuada a sus usuarios sobre el esquema tasación cuando intervienen diferentes operadores.
