@@ -14,3 +14,4 @@ Aprueba prórroga aplicación a los transitorios II,III,IV y V del Reglamento qu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-25 | la propia norma |
+| 2 | 2012-06-28 | Reglamento 8588 (2012-06-28) |
