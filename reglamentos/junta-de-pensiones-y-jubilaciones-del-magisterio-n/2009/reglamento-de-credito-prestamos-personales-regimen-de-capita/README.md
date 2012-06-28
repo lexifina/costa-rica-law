@@ -19,3 +19,4 @@ Reglamento de Crédito Préstamos Personales Régimen de Capitalización Colecti
 | 4 | 2011-05-09 | Reglamento 0 (2011-05-09) |
 | 5 | 2011-10-04 | Reglamento 110 (2011-10-04) |
 | 6 | 2011-12-16 | Reglamento 144 (2011-12-16) |
+| 7 | 2012-06-28 | Reglamento 72 (2012-06-28) |
