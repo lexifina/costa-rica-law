@@ -14,3 +14,4 @@ Modificación de la fecha de entrada en funcionamiento de las Oficinas de Comuni
 | --- | --- | --- |
 | 1 | 2012-02-29 | la propia norma |
 | 2 | 2012-04-27 | Circular 54 (2012-04-27) |
+| 3 | 2012-06-28 | Circular 94 (2012-06-28) |
