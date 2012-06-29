@@ -1,0 +1,1 @@
+Artículo 10.—La Dirección tendrá como objetivo liderar las acciones administrativas del Sistema de Emergencias 9-1-1, para garantizar la calidad en la gestión que brinda, así como ejecutar los acuerdos operativos tomados por la Comisión Coordinadora para garantizar una atención eficiente y oportuna de la emergencia.

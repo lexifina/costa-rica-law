@@ -1,0 +1,1 @@
+Artículo 2º—Que corresponde al Sistema de Emergencias 9-1-1, dictar el Reglamento Autónomo de Organización para distribuir competencias a lo interno de la institución y asegurar por este medio su funcionamiento en el ejercicio de las funciones que le otorga el ordenamiento jurídico.
