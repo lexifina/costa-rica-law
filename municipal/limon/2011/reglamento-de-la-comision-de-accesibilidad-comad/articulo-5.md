@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión sesionará ordinariamente dos veces al mes y extraordinariamente las veces que sea necesario en virtud de los asuntos que le sean trasladados desde el Concejo, para lo cual podrá utilizar la sala de sesiones del Concejo Municipal o cualquier otro espacio que el fin requiera, así como los equipos tecnológicos disponibles.

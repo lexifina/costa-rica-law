@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión nombrará un presidente(a) y un secretario(a). El presidente coordinara las reuniones y actividades programadas. La secretaria será la responsable de llevar las actas de cada reunión, elaborar dictámenes o informes, así como resguardar documentos.

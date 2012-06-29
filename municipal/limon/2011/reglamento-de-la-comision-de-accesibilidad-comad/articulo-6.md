@@ -1,0 +1,1 @@
+Artículo 6º—Quienes asuman la integración de la Comisión, deberán ser puntuales a las reuniones que se programen y cumplir fielmente con las tareas asignadas, debiendo rendir informe al Concejo Municipal en un plazo de un mes contado de la fecha en que fuera recibido el asunto.

@@ -1,0 +1,1 @@
+Artículo 3º—Esta Comisión estará integrada por un mínimo de cinco miembros del Concejo Municipal, con la asesoría voluntaria de la administración y sociedad civil, estas últimas tendrán voz, pero sin voto.
