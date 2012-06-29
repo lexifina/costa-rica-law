@@ -1,0 +1,2 @@
+Artículo 13.—Será obligación de la Administración Municipal, elaborar el estudio correspondiente de cada representante del Concejo Municipal. Para la cancelación de gasto de transporte de alimentación y hospedaje, al igual que confeccionar todos los controles de fiscalización que estén a su alcance, esto en respeto al principio de probidad, transparencia, razonabilidad y de respeto al ordenamiento jurídico (principio de legalidad).
+Evitando el despilfarro y uso indebido o ilegal de los fondos públicos y presentarlo al Honorable Concejo Municipal.

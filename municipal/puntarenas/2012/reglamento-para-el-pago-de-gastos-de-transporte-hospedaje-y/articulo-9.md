@@ -1,0 +1,5 @@
+Artículo 9°—Los montos asignados por concepto de transporte, contemplan el desplazamiento de su casa de habitación a la Municipalidad y viceversa.
+Por concepto de alimentación, se le pagará únicamente a aquellos Regidores y Síndicos, que residan a una distancia igual o mayor a los cinco kilómetros, o zonas de difícil acceso (transporte público) de la Sede Municipal y bajo los siguientes términos:
+A. Desayuno. Serán reconocidos únicamente al regidor o síndico, que inicie el viaje de su casa de habitación, entre las cero horas a las seis horas, para estar presente en la sesión del Concejo Municipal y esté presente en las instalaciones de la Municipalidad de Puntarenas.
+B. Almuerzo. Será reconocido únicamente al Regidor o Síndico, que inicie el viaje de su casa de habitación, entre las seis horas a las doce horas, para estar presente en la sesión de Concejo Municipal y esté presente en las instalaciones municipales.
+C. Cena. Será reconocido únicamente este beneficio al Regidor o Síndico, que participe en una sesión del Concejo Municipal que inicie a las dieciséis horas hasta que la misma finalice y esté presente en toda la sesión municipal.

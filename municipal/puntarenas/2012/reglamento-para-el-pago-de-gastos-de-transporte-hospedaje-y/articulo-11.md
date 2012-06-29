@@ -1,0 +1,1 @@
+Artículo 11.—Si por decisión del Concejo Municipal o del Alcalde Municipal se brindará el transporte requerido para que los señores Regidores y Síndicos, puedan asistir sin problemas a las sesiones del Concejo, éstos en ningún caso pueden solicitar el pago.

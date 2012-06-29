@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad proveerá un refrigerio que no exceda los dos mil colones por persona con un aumento automático por año del diez por ciento en las sesiones ordinarias para los regidores y síndicos propietarios y suplentes que asistan a las sesiones ordinarias, en las sesiones extraordinarias (el refrigerio quedará a discreción del Presidente Municipal).
