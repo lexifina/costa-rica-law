@@ -1,1 +1,0 @@
-Artículo 13.—Asignación presupuestaria. Una vez verificado el cumplimiento de los requisitos que establece este reglamento el proceso de Hacienda Municipal solicitará al subproceso de Control de Presupuesto, que haga constar la asignación presupuestaria para cubrir estos gastos.

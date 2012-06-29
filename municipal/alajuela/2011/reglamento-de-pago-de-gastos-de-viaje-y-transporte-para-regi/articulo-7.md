@@ -1,1 +1,0 @@
-Artículo 7º—Tarifas. Las tarifas que reconocerá la Municipalidad de Alajuela por concepto de gastos de alimentación y hospedaje a la luz de este reglamento, serán aquellas autorizadas por la Contrataría General de la República en el Reglamento de gastos de viaje y transporte para Funcionarios Públicos.

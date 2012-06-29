@@ -1,1 +1,0 @@
-Artículo 2º—Concepto. Por gastos de viaje y trasporte o viáticos, debe entenderse aquellas sumas destinadas por los beneficiarios de este Reglamento, a la atención de gastos concretos de alimentación, hospedaje y de movilización desde el lugar de su residencia, hasta la sede donde se realicen las sesiones municipales.

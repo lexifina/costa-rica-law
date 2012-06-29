@@ -1,1 +1,0 @@
-Artículo 5º—Por alimentación, la municipalidad reconocerá gastos por concepto de desayuno o cena de acuerdo con las siguientes reglas: a) Se pagará desayuno, únicamente en aquellos casos en de acuerdo con las disposiciones de este reglamento, el que beneficiario sea acreedor también al pago de hospedaje en caso fortuito o de fuerza mayor.
