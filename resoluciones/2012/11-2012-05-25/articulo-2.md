@@ -1,0 +1,1 @@
+Artículo 2°—Se deja sin efecto la resolución N° 24-11 de las quince horas del día 06 de mayo del dos mil once, de la Dirección General de Hacienda, publicada en La Gaceta N° 101 del 26 de mayo del 2011.
