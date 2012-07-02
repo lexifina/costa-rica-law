@@ -1,1 +1,0 @@
-Artículo 29.—La Jefatura de Ventas exigirá el cobro del deducible a cualquier funcionario que sea declarado judicialmente responsable de un accidente (por dolo o culpa grave) en que se vea involucrado un vehículo de INS Pensiones, fundamentándose en el artículo 238 de la Ley de Tránsito.

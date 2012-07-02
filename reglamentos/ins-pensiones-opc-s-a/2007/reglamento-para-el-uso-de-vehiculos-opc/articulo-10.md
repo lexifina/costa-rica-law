@@ -1,2 +1,0 @@
-Artículo 10.—Queda prohibida la circulación de los vehículos de uso administrativo fuera del horario normal de trabajo de la Institución, sea de las 7:00 a.m. a las 5:00 p.m., de lunes a viernes.
-Se exceptúan los casos especiales en que se amerite desarrollar una función específica de la Institución en horas diferentes a las estipuladas, siempre y cuando la Jefatura de Ventas o la Gerencia General extiendan el debido permiso, previa solicitud y justificación.

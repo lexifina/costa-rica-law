@@ -1,1 +1,0 @@
-Artículo 37.—Los conductores autorizados por la OPC del INS no podrán dejar estacionados los vehículos institucionales donde se ponga en peligro su seguridad, accesorios o equipos o la seguridad de otras personas o bienes de terceros.

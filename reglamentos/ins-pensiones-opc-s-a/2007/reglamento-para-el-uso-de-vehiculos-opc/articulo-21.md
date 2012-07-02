@@ -1,3 +1,0 @@
-CAPÍTULO VII
-De la autorización para conducir vehículos de INS Pensiones
-Artículo 21.—Será requisito indispensable para la conducción de los vehículos de INS Pensiones poseer la licencia vigente extendida por el MOPT. Se autorizara la conducción de vehículos de INS Pensiones a aquellos funcionarios que así lo requieran para el adecuado desempeño de sus labores. Este permiso se formalizara mediante la emisión de una Autorización Institucional que deberá portar obligatoriamente todo trabajador mientras conduce un vehículo de la Institución. Previamente deberá firmar boleta para autorizar a INS Pensiones a deducir de su salario la cancelación de multas por infracciones a la Ley de Tránsito. La autorización Institucional será extendida por la Jefatura de Ventas.

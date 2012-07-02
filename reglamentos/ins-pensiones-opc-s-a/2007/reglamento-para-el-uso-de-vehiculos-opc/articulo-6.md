@@ -1,1 +1,0 @@
-Artículo 6º—Se incluyen dentro de la definición anterior los vehículos asignados a unidades o departamentos que así lo requieran. Tales vehículos estarán bajo la responsabilidad de los encargados de dichos Departamentos y sujetos a los controles establecidos en este Reglamento.

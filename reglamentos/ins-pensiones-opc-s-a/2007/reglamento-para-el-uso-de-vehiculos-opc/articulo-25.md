@@ -1,1 +1,0 @@
-Artículo 25.—Se denegará la autorización para conducir vehículos de INS Pensiones a aquellos funcionarios que padezcan de enfermedades crónicas u otras que hagan peligrosa la conducción de vehículos, previa valoración medica extendida por el médico de empresa del INS.
