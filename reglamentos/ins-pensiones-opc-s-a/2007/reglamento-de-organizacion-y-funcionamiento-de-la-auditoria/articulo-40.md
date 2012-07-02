@@ -1,2 +1,0 @@
-Artículo 40.—Estructura de los Informes. Los informes que elabora la Auditoría Interna con la finalidad de comunicar los resultados de las investigaciones que realiza deberán incluir: objetivos, alcance, hallazgos, conclusiones y recomendaciones y demás resultados del trabajo, según la naturaleza de éste, manteniendo la objetividad, la claridad, la veracidad y la exactitud de la información.
-Según la naturaleza de la investigación, la estructura mencionada en el párrafo anterior puede ser variada previa autorización del Auditor Interno.

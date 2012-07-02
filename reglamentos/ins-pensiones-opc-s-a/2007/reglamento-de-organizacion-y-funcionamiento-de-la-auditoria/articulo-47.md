@@ -1,1 +1,0 @@
-Artículo 47.—Sanciones administrativas. Las faltas al presente reglamento serán sancionadas según su gravedad de acuerdo con lo estipulado al efecto en la Ley 8292; el Código de Trabajo; la Ley de la Administración Financiera y Presupuestos Públicos, y cualquier normativa vigente que incida en éste.

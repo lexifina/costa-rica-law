@@ -1,6 +1,0 @@
-Artículo 37.—Lineamientos y supervisión del estudio. El Auditor Interno será responsable de establecer los lineamientos relacionados con la identificación, análisis, evaluación y registro de la información, al momento de ejecutar las labores de auditoría por su personal; así como también sobre la custodia y control de acceso a los registros del trabajo.
-También será responsable de establecer un adecuado proceso de supervisión del trabajo dentro de la Unidad a su cargo, la cual puede ser llevada a cabo por él o por los funcionarios que designe para tal efecto. Dicha supervisión deberá cubrir entre otros, los siguientes aspectos:
-a) Ejercerá el debido cuidado para que las instrucciones dadas al inicio de los trabajos, sean claras, adecuadas, y cumplidas en el desarrollo del trabajo.
-b) Las observaciones, conclusiones y recomendaciones de la auditoría deberán estar soportadas por información suficiente, útil y competente.
-c) Esa información y los análisis efectuados, deberán estar respaldados debidamente en papeles de trabajo, de manera que sean el soporte principal de las observaciones y recomendaciones que se efectúen.
-d) Asegurar que las comunicaciones del trabajo sean precisas, objetivas, claras, concisas, constructivas y oportunas.

@@ -1,3 +1,0 @@
-Artículo 50.—Vigencia del Reglamento. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, previa aprobación de la Junta Directiva de INS PENSIONES OPC, S. A. y de la Contraloría General de la República de Costa Rica.
-(Este Reglamento fue aprobado por la Junta Directiva de INS PENSIONES OPC, S. A., mediante acuerdos IV, de las sesiones Extraordinarias 139 y 142, celebradas el 17 de julio y 11 de setiembre del 2007, respectivamente, y por la Contraloría General de la República según oficio 10308 (DAGJ-1092-2007) del 4 de setiembre del 2007).
-San José, 24 de setiembre del 2007.—

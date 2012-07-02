@@ -1,5 +1,0 @@
-CAPÍTULO V
-Del personal de la Auditoría Interna
-Artículo 18.—Requisitos de los puestos. La Auditoría Interna requiere contar con personal profesional y técnico, capacitado y suficiente, el cual cumpla con las condiciones éticas, morales, académicas, humanas y de experiencia esenciales para que logre desempeñarse de manera idónea en su respectivo puesto.
-Los funcionarios de Auditoría Interna deberán contar también con habilidad para comunicarse tanto en forma verbal como escrita, asimismo poseer las cualidades necesarias para relacionarse de la mejor forma con el resto del personal de la Operadora y demás usuarios, con la finalidad de lograr su colaboración en las investigaciones que emprenda la Unidad.
-El Auditor Interno definirá las cualidades, habilidades, requisitos académicos y profesionales que deberá poseer el candidato idóneo en cada uno de los puestos de la Unidad a su cargo. Dicho perfil será presentado ante la Junta Directiva de INS PENSIONES OPC, S.A. para su aprobación y posterior inclusión en el Manual de Puestos de la Operadora.

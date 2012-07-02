@@ -1,1 +1,0 @@
-Artículo 26.—Asesoría Legal. Con base en lo que estipula el artículo 33, inciso c), de la Ley 8292, se deberá establecer la coordinación necesaria con el propósito de que la Auditoría Interna tenga acceso a un oportuno y efectivo servicio de asesoría en los estudios jurídicos que requiera, a fin de atender adecuadamente su ámbito de acción y sus necesidades de orden legal.

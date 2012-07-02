@@ -1,1 +1,0 @@
-Artículo 38.—Admisibilidad y trámite de denuncias. La admisibilidad y trámite de las denuncias por parte de la Auditoría Interna se resolverá conforme a los criterios y parámetros que dispone el Reglamento a la Ley Nº 8422.

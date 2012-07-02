@@ -1,4 +1,0 @@
-CAPÍTULO VII
-Relaciones y coordinaciones
-Artículo 23.—Facultad de establecerlas. De acuerdo con la norma 2.1.5 del Manual de normas para el ejercicio de la auditoría interna, el Auditor Interno establecerá y regulará a lo interno de su Unidad, las pautas principales sobre las relaciones y coordinaciones de los funcionarios de ella con los auditados.
-Asimismo, tendrá la facultad de proveer e intercambiar información con la Contraloría General de la República, así como con otros entes u órganos de control y judiciales que conforme a la ley correspondan, para minimizar la duplicación de esfuerzos y en el ámbito de sus competencias, sin perjuicio de la coordinación interna que al respecto deba darse y sin que ello implique limitación alguna para la efectiva actuación de la auditoría interna a su cargo.
