@@ -100,11 +100,11 @@ Mínimo $10.00.
 5.21.1. Envíos corredor Costa Rica – Nicaragua / Colombia
 De $ 0,01 a $ 100,00: $ 3,00
 De $ 100,01 en adelante: 3% del monto del envío
-1.1.2Envíos de Costa Rica hacia Costa Rica y el resto del mundo
-De $ 0,01 a $ 100,00: 4% del monto de envío
-De $ 100,01 en adelante: 2% del monto de envío más $ 2,00
-Nota: recibos de dinero no se cobra.
-(*)(Así reformado el punto 5.21) anterior mediante sesión N° 10 del 5 de marzo del 2012)
+(*) 5.21.2.Envíos de Costa Rica hacia Costa Rica y el resto del mundo
+De $0.01 a $100.00: $4 exactos
+De $100.01 en adelante: 2% del monto de envío más $2.00
+Nota: Recibos de dinero no se cobra.
+(*)(Así reformado el punto 5.21.2) anterior mediante sesión N° 26 del 2 de julio del 2012)
 5.22- U.S. Direct Deposit – Acreditación Pensiones Gobierno de los E.E.U.U.
 Acreditación $6.00 por transacción.
 De ésta tarifa que cobra el BCR, se comparte el 50% con el Bank of New York

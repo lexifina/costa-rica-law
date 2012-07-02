@@ -29,3 +29,4 @@ Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica
 | 14 | 2011-10-24 | Reglamento 46 (2011-10-24) |
 | 15 | 2011-11-14 | Reglamento 49 (2011-11-14) |
 | 16 | 2012-03-05 | Reglamento 10 (2012-03-05) |
+| 17 | 2012-07-02 | Reglamento 26 (2012-07-02) |
