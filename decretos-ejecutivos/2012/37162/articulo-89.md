@@ -1,0 +1,1 @@
+Artículo 89.-Presentación por escrito. Toda petición, queja o reclamo deberá plantearse de manera escrita por el funcionario involucrado directo, y serán resueltas de esa misma forma. Sin perjuicio de lo anterior, podrán plantearse verbalmente cuando así lo exija la urgencia de una resolución o cuando por mínima gravedad del asunto justifique ese proceder.

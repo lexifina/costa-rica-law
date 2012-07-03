@@ -1,0 +1,1 @@
+Artículo 41.- Subsidio por enfermedad. Toda incapacidad emitida por la Caja Costarricense de Seguro Social, el Instituto Nacional de Seguros o médico privado gozará de un subsidio de conformidad con lo que establece el artículo 34 del Reglamento de Estatuto de Servicio Civil.

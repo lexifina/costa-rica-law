@@ -1,0 +1,1 @@
+Artículo 14.- Pago de salarios. Los salarios serán depositados en un banco del Sistema Bancario Nacional, o bien donde el funcionario estime conveniente, en las fechas estipuladas en las guías de pagos para empleados públicos emitidas por el Ministerio de Hacienda, salvo casos especiales a juicio de la Administración.

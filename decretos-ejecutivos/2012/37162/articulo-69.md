@@ -1,0 +1,1 @@
+Artículo 69.-Sobre la denuncia falsa. Quien denuncie falsamente haber sido víctima de acoso laboral incurrirá en falta gravísima y cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según lo establecido en el Código Penal.

@@ -1,0 +1,1 @@
+Artículo 79.- Principios: El uso de tiempo extraordinario deberá ajustarse al principio de excepción y eventualidad, por lo tanto queda prohibido que un individuo trabaje en forma permanente la jornada ordinaria y la extraordinaria.

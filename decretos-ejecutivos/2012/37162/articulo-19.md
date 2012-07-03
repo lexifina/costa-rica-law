@@ -1,0 +1,2 @@
+Artículo 19.-Período de disfrute de las vacaciones. Las vacaciones se disfrutarán dentro del período anual correspondiente, salvo excepciones debidamente justificadas. Cualquier acumulación deberá regirse por el Estatuto del Servicio Civil y el artículo 32 de su Reglamento.
+No podrán otorgarse vacaciones proporcionales, salvo las vacaciones colectivas autorizadas o cuando al no cumplir las cincuenta semanas de servicio continuo, deviene la terminación de dicho servicio.

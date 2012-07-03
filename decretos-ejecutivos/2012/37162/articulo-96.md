@@ -1,0 +1,1 @@
+Artículo 96.-Derogatoria. Se derogan el Decreto Ejecutivo N°- 32597 “Reglamento Autónomo de Organización y Servicio del ICD”, el “Reglamento para la autorización o pago del tiempo extraordinario del Instituto Costarricense sobre Drogas”, número 07-2008 del 31 de julio del 2008, así como las demás disposiciones reglamentarias o acuerdos ejecutivos que se le opongan.

@@ -1,0 +1,1 @@
+Artículo 91. -Supervisión. La Oficina de Recursos Humanos y el superior jerárquico inmediato del funcionario que solicita una licencia o presente un reclamo, serán los responsables de velar por el cumplimiento de las anteriores normas.

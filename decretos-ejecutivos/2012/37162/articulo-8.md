@@ -1,0 +1,2 @@
+Artículo 8.- De la actualización. Le corresponderá a cada funcionario mantener actualizado su expediente personal. Asimismo, las jefaturas de cada una de las unidades del Instituto o encargados, deberán remitir copia al expediente personal de sus funcionarios, sobre las gestiones que demuestren el buen o mal desempeño del servidor.
+En los casos en que se hayan tramitado procesos administrativos y en éstos se haya dictado resolución final, la Dirección General deberá remitirla a la Oficina de Recursos Humanos con el fin de que esta sea incorporada al expediente personal.

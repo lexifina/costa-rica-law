@@ -1,0 +1,1 @@
+Artículo 61.-Sanción: Se sancionará de conformidad con lo establecido en el presente reglamento y el artículo 34 de la Ley 7476 Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia y sus reformas.

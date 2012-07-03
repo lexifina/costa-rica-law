@@ -1,0 +1,2 @@
+Artículo 76-No procede el pago: Resulta improcedente la autorización del pago en dinero de tiempo extraordinario ya laborado sin autorización previa, salvo casos especiales, indicados en artículo 72, segundo párrafo.
+Tampoco procederá el pago en aquellos casos en que existan inconsistencias, detectadas por la oficina de Recursos Humanos, que no hayan sido justificadas, dentro del plazo de tres días hábiles, por el superior jerárquico inmediato.

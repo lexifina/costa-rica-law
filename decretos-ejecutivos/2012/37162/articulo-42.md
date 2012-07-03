@@ -1,0 +1,1 @@
+Artículo 42.- Reportes de asistencia. Una vez concluido el mes, la Oficina de Recursos Humanos generará los reportes de llegadas tardías, ausencias, salidas anticipadas, omisiones de marca y aplicará de oficio las sanciones que correspondan.

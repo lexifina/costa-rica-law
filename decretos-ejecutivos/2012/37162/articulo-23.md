@@ -1,0 +1,1 @@
+Artículo 23.-Salud ocupacional. La Dirección General del ICD estará obligada a cumplir la normativa contenida en el Título IV, Capítulo VIII del Código de Trabajo sobre Salud Ocupacional, así como cualquier otra regulación referente a este tema.

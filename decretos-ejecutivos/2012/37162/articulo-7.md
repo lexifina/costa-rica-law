@@ -1,0 +1,2 @@
+Artículo 7.- Del acceso al expediente. La información contenida en el expediente personal es de carácter confidencial y sólo tendrán acceso a ella el servidor, a quien éste autorice o aquellos funcionarios que lo requieran con válida justificación para labores propias del cargo.
+En lo que respecta al trámite de solicitud del expediente personal, se deberá proceder con lo establecido en el Manual de Procedimientos de la Oficina de Recursos Humanos.

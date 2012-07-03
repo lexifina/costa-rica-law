@@ -1,0 +1,1 @@
+Artículo 5.- Del Personal Interino. El procedimiento para ingreso y selección de personal interino será establecido por el Reglamento de Reclutamiento y Selección del ICD, el Manual de Procedimientos correspondiente y la legislación vigente.

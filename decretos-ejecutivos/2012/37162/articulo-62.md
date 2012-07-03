@@ -1,0 +1,1 @@
+Artículo 62.-Aplicación supletoria. Para todo lo no establecido en el presente reglamento se aplicará supletoriamente lo regulado en la Ley N° 7476 Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia y sus reformas.

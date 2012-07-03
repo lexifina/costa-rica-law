@@ -1,0 +1,1 @@
+Artículo 17.-Salario Escolar: Todos los servidores del ICD, cualquiera que sea la función que desempeñen, tendrán derecho a un ajuste adicional al aumento de salarios por costo de vida, pagadero en forma acumulativa en el mes de enero para hacer frente a las erogaciones del ciclo lectivo, según lo establecido en el Decreto 23495-MTSS del 19 de julio 1994 y sus reformas.

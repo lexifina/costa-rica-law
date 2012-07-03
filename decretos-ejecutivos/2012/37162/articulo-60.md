@@ -1,0 +1,1 @@
+Artículo 60.-Causas de impedimento, recusación o abstención. En lo relativo a las causales de impedimento, recusación y abstención, se procederá según lo establecido en la Ley General de la Administración Pública.

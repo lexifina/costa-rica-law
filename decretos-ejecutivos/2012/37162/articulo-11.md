@@ -1,0 +1,1 @@
+Artículo 11.-Modificación de horario. Quien ejerza la Dirección General podrá modificar transitoriamente el horario establecido en este Reglamento, siempre que circunstancias especiales así lo exijan y no se cause un grave perjuicio al servicio público o a los servidores.

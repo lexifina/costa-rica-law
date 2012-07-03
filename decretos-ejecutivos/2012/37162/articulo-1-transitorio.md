@@ -1,0 +1,1 @@
+Transitorio Único.- Se otorga un plazo de hasta 1 año, contados a partir de la entrada en vigencia de este Reglamento, para que la Comisión de Teletrabajo, Comisión de Salud Ocupacional y Comisión Institucional en Materia de Discapacidad, emita la normativa y lineamientos exigida.

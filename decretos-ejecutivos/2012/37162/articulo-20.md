@@ -1,0 +1,1 @@
+Artículo 20.-Disfrute de vacaciones. El jefe respectivo, tendrá la obligación de disponer las fechas y tractos en las que los funcionarios disfrutarán de las vacaciones, programación que podrá variar cuando las necesidades así lo ameriten.

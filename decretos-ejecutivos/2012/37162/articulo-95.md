@@ -1,0 +1,1 @@
+Artículo 95.-Sanciones de Control Interno. Las responsabilidades y sanciones establecidas en la Ley General de Control Interno y su Reglamento serán aplicables a los funcionarios del ICD, siguiendo los procedimientos establecidos en el presente Reglamento y demás normativa aplicable.

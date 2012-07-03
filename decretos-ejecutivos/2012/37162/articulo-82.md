@@ -1,0 +1,1 @@
+Artículo 82- De la autorización. El jefe de la unidad velará porque el tiempo extraordinario aprobado, se utilice conforme a lo solicitado y con apego a los principios de razonabilidad, equidad, excepcionalidad y la norma vigente en la materia.

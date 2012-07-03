@@ -1,0 +1,2 @@
+Artículo 15.-Recargo de funciones. En caso de recargo de funciones que exceda de un mes, el servidor sustituto tendrá derecho a recibir su salario de acuerdo con el salario base del servidor sustituido, siempre y cuando la Oficina de Recursos Humanos constate que el servidor a quien se hiciera el recargo, reúna los requisitos del puesto según lo dispuesto en el Estatuto de Servicio Civil y su Reglamento.
+El pago de los recargos podrá tramitarse para sustituir al titular de un cargo, durante sus vacaciones, incapacidades, licencias u otro motivo justificado.
