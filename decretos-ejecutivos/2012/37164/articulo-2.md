@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Las personas ciegas o de baja visión que trabajen en la administración pública, podrán participar de todas las actividades organizadas para esta fecha, quienes podrán diligenciar el permiso con goce de salario ante el jerarca respectivo.
