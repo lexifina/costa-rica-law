@@ -1,1 +1,1 @@
-Artículo 12.—El acceso al inmueble donde se ubique la obra constructiva deberá ser por calle pública.
+Artículo 12.—(Derogado mediante sesión ordinaria N° 113 del 3 de julio del 2012)

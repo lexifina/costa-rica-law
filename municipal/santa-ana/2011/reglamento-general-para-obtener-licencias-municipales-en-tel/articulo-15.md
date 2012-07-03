@@ -1,1 +1,2 @@
-Artículo 15.—Retiro de establecimientos con población sensible. No se permitirán construcciones de torres, postes o estructuras e instalación de antenas sobre estructuras existentes a menor distancia de cien metros; medida radialmente de establecimientos con población sensible como: centros de salud, hospitales, centros educativos, asilos, albergues, centros diurnos de atención de infantes o adultos mayores, y similares.
+Artículo 15.-Toda estructura, ubicada fuera del área de influencia del Aeropuerto, podrá ser mimetizada con colores que se disimulen con el entorno.
+(Así reformado mediante sesión ordinaria N° 113 del 3 de julio del 2012)
