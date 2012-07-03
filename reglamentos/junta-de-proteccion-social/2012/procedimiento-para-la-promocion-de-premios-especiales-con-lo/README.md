@@ -14,3 +14,4 @@ Procedimiento para la Promoción de Premios Especiales con los sorteos de Pega 1
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-14 | la propia norma |
+| 2 | 2012-07-03 | Reglamento 0 (2012-07-03) |
