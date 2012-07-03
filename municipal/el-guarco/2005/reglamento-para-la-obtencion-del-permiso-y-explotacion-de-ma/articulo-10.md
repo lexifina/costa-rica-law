@@ -1,1 +1,0 @@
-Artículo 10.—Permisos temporales. La Municipalidad se reserva el derecho de otorgar permisos temporales para el establecimiento de este tipo de máquinas durante la celebración de actividades especiales como festejos populares y patronales, turnos y actividades afines o similares.
