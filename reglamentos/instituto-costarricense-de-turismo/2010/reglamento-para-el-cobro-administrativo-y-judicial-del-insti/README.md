@@ -14,3 +14,4 @@ Reglamento para el Cobro Administrativo y Judicial del Instituto Costarricense d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-17 | la propia norma |
+| 2 | 2012-07-03 | Reglamento 5754 (2012-07-03) |
