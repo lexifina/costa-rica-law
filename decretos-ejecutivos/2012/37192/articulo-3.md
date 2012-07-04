@@ -1,0 +1,1 @@
+Artículo 3º—Premiación. En el Certamen se otorgará un premio en dinero a la propuesta ganadora. La suma de dinero establecida para la premiación, se definirá en el presupuesto anual ordinario del programa 751-Conservación del Patrimonio Cultural del Ministerio de Cultura y Juventud.
