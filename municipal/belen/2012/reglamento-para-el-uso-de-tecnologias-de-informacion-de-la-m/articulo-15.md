@@ -1,0 +1,1 @@
+Artículo 15.—Revisión técnica: La coordinación de las personas usuarias, así como las direcciones de área y la Alcaldía, en cualquier momento podrán solicitar a la Unidad de Informática una revisión técnica del equipo de tecnologías de información, ubicado en las oficinas de la Municipalidad donde existan indicios de violación a las disposiciones del presente Reglamento.

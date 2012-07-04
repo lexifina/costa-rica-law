@@ -1,0 +1,1 @@
+Artículo 23.—Vigencia de mensajes: Vigencia de los mensajes existentes en los buzones tendrán una vigencia de 60 días naturales contados a partir de la fecha de la entrega. Vencida esa fecha los mensajes serán eliminados en forma automática de los buzones.

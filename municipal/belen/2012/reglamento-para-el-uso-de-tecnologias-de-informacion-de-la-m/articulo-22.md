@@ -1,0 +1,1 @@
+Artículo 22.—Revisión y descarga de mensajes: Será deber de la persona usuaria de una cuenta de correo electrónico, revisar diariamente el buzón y descargar los mensajes a su equipo de Tecnologías de Información.

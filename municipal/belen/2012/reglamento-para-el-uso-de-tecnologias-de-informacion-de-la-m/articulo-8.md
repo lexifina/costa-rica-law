@@ -1,0 +1,1 @@
+Artículo 8º—Uso exclusivo de los equipos: Los equipos Tecnologías de Información asignados a las Unidades o dependencias de la Municipalidad, se utilizarán exclusivamente para las labores propias de cada unidad u oficina, por lo que queda terminantemente prohibido un uso diferente al aquí regulado.

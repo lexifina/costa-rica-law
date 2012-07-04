@@ -1,0 +1,1 @@
+Artículo 11.—Equipo portátil: Será responsabilidad directa de cada Director y Coordinador el uso, la asignación y protección de los distintos equipos portátiles con que cuente la Municipalidad de Belén. Estos equipos recibirán soporte técnico de mantenimiento preventivo y correctivo por la Unidad de Informática de la Municipalidad.

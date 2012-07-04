@@ -1,0 +1,1 @@
+Artículo 28.—Prohibición de uso de correro electrónico personal: Se establece que para comunicación institucional, no se debe de usar el correo electrónico personal. Así mismo como cliente de correo, solo se debe utilizar el software aportado por la Unidad de Informática.

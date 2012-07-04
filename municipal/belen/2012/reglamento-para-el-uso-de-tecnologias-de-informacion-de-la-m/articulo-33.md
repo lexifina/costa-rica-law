@@ -1,0 +1,1 @@
+Artículo 33.—Uso exclusivo de contraseña: La contraseña de acceso asignada a cada persona usuaria es exclusivo, y no podrá ser compartida. Y será la única responsable por el uso que se le dé a los servicios a los que acceda por medio de la ésta.

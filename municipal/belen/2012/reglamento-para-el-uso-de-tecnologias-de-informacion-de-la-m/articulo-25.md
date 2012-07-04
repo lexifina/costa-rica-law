@@ -1,0 +1,1 @@
+Artículo 25.—Representación de la Municipalidad: Ningún funcionario podrá salvo previa autorización por parte del Alcalde o Alcaldesa podra actuar en representación de la Municipalidad, en medios de comunicación, foros, paginas de Internet, encuestas, redes sociales, o cualquier otro medio electrónico.

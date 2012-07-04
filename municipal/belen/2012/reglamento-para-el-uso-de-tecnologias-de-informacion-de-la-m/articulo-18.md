@@ -1,0 +1,1 @@
+Artículo 18.—Contraseña: Los accesos a cualquier recurso compartido dentro de la intranet municipal, deberán estar protegidos mediante contraseñas que garanticen su seguridad, la Unidad de Informática en forma periódica realizara revisiones para que se cumpla con dicha disposición y hará sus recomendaciones.

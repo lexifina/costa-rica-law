@@ -1,0 +1,1 @@
+Artículo 6º—Diagnóstico: En caso de falla técnicas en la plataforma tecnológica, la Unidad de Informática realizará un diagnóstico preliminar, con el objetivo de procurar buscar la solución para su reparación. En caso de que esta reparación represente un costo superior al cincuenta por ciento de su precio actual en el mercado, se recomendará la reposición.

@@ -1,0 +1,1 @@
+Artículo 34.—Uso adecuado de las Tecnologías de Información: Las direcciones de área, las coordinaciones y demás personas usuarias, velarán por el uso adecuado, el cuidado de los equipos de tecnologías de información que tengan asignado.

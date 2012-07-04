@@ -1,0 +1,1 @@
+Artículo 26.—Uso de los datos de los contribuyentes: Los datos de los contribuyeres, tales como cuentas de correo y cualquier otra información, no podrán ser utilizados por los usuarios para fines ajenos a su función; el envío de correos esta supeditado a la labor propia de su cargo.

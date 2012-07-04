@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Este reglamento tiene por objeto: regular las atribuciones de la Unidad de Informática, lograr la adquisición y mantenimiento de las Tecnologías de Información, garantizar su seguridad física y ambiental, procurar la responsabilidad de los usuarios y aclarar el uso de sus herramientas.

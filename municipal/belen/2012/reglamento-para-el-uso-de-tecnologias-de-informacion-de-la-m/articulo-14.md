@@ -1,0 +1,1 @@
+Artículo 14.—Imagen Corporativa: Todos los monitores de los equipos de tecnologías de información instalados en la municipalidad deberán de utilizar como fondo de pantalla una imagen corporativa definida por la Unidad de Comunicación de la Municipalidad.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Uso de la Intranet, Internet y Correo Electrónico
+Artículo 16.—Derecho de privacidad de la información: Ningún funcionario o funcionaria debe interceptar, revelar, ni contribuir en la interceptación o revelación de las comunicaciones electrónicas, tal y como lo ha dispuesto la jurisprudencia constitucional de la Corte Suprema de Justicia. La Municipalidad se compromete a respetar los derechos de sus usuarios internos incluyendo el respeto a su privacidad. De ser necesario bloquear y/o eliminar los casos de correos electrónicos con virus, cadenas (spam). La Unidad de Informática podrá realizar la revisión de correos electrónicos, bloqueo o reenvío en coordinación con el usuario de la cuenta de correo electrónico.

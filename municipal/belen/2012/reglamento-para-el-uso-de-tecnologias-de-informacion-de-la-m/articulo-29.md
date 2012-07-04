@@ -1,0 +1,1 @@
+Articulo 29.—Actualización de uso de herramientas: Es obligación de toda persona usuaria mantenerse actualizado sobre el uso de herramientas tecnológicas municipales que tiene en sus manos o que utiliza

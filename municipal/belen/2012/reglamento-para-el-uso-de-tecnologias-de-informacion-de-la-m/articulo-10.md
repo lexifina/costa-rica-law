@@ -1,0 +1,1 @@
+Artículo 10.—Traslado del equipo: El equipo Tecnologías de Información, no podrá ser trasladado a otra dependencia ajena a La Municipalidad, salvo autorización expresa y justificada por el Alcalde ó Alcaldesa ú otra persona autorizada para tal efecto.
