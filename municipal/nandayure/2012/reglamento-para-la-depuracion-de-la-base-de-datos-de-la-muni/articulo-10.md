@@ -1,0 +1,1 @@
+Artículo 10.—Rige a partir de su publicación. Este Concejo Municipal por unanimidad acuerda aprobar en todas sus partes el Reglamento de la Depuración de Datos de Gestión Tributaria de la Municipalidad de Nandayure. Publíquese en el Diario Oficial La Gaceta.

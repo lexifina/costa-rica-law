@@ -1,0 +1,1 @@
+Artículo 9º—Del pendiente de recaudación. Previo a iniciar la labor de depuración, el Encargado de Informática emitirá un informe del Pendiente de Recaudación a la fecha, el cual se realizará por tributo y por período.
