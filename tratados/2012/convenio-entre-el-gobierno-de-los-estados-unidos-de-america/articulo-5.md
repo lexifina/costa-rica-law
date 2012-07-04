@@ -1,0 +1,4 @@
+Artículo 5
+Funciones de la Autoridad Central de la Parte Requerida
+1. La Autoridad Central o entidad pública designada por la Parte Requerida efectuará todas las gestiones pertinentes, en nombre del demandante, para el cobro o reembolso de la manutención, incluyendo la interposición de la demanda y el impulso procesal correspondiente, la determinación de paternidad, cuando sea necesaria; y la ejecución de las resoluciones judiciales o administrativas, así como el cobro y envío de las cantidades cobradas.
+2. La Autoridad Central u otra entidad pública designada por la Parte Requerida, así como sus servidores públicos, tomarán las medidas necesarias a efecto de gestionar el cobro efectivo y ágil de las obligaciones de manutención, así como el pronto envío de las cantidades cobradas y recibidas, por lo que serán responsables de conformidad con las normativas vigentes.

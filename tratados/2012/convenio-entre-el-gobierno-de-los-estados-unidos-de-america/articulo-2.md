@@ -1,0 +1,6 @@
+Artículo 2
+Ámbito
+1. Este Convenio deberá aplicarse a las obligaciones alimentarias derivadas de una relación de familia o de paternidad, incluida la obligación de proporcionar alimentos a favor de un niño o niña nacido (a) fuera de matrimonio. Sin embargo, la obligación de manutención con respecto a un cónyuge, ex cónyuge o cualquier otro pariente, cuando no haya hijos menores de edad, se ejecutará en los Estados Unidos de América, de acuerdo con este Convenio, solamente en aquellos estados, territorios o posesiones de los Estados Unidos de América que así lo hayan determinado y comunicado a su Autoridad Central, quien a la vez lo informará a la Autoridad Central de Costa Rica.
+2. Este Convenio se aplicará al cobro de los pagos atrasados derivados de una resolución de manutención y de los intereses aplicables originados por atrasos en el pago, y a las modificaciones u otros cambios de oficio en las cantidades debidas de conformidad con una resolución vigente de manutención.
+3. El presente Convenio será de aplicación a toda resolución de manutención vigente y montos adeudados por ese mismo concepto, sin importar cuál sea la fecha de esa resolución.
+4. Las medidas previstas en este Convenio para la ejecución de una obligación de manutención no son excluyentes y no afectan la disponibilidad de cualquier otra.

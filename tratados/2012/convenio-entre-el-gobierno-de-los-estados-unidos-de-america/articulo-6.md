@@ -1,0 +1,3 @@
+Artículo 6
+Costo de los Servicios
+Todos los procedimientos descritos en el presente Convenio, incluidos los servicios de la Autoridad Central y la asistencia jurídica y administrativa necesaria, serán proporcionados por la Autoridad Central u otra entidad pública designada por la Parte Requerida sin costo alguno para la persona demandante. Los costos de los exámenes para la determinación de la paternidad serán sufragados por la Autoridad Central u otra entidad pública designada por la Parte Requerida. La Autoridad Central u otra entidad pública designada por la Parte Requerida podrá cobrar costas a la persona demandada que comparezca en su jurisdicción.
