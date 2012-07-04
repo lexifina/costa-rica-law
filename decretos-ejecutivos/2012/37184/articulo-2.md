@@ -1,0 +1,4 @@
+Artículo 2.- De la elección de los miembros de los Comités Permanentes de Trabajadores
+Los Comités Permanentes de Trabajadores estarán integrados por no más de tres miembros.
+Dichos representantes deben ser electos en una Asamblea de Trabajadores convocada al efecto, durante la cual se deberá garantizar un procedimiento conforme los principios democráticos del voto secreto y libre participación, quedando expresamente prohibida la intervención, directa o indirecta, del patrono o sus representantes durante la Asamblea. De dicha Asamblea se deberá levantar un Acta.
+Cuando la empresa u organización cuente con varios centros de trabajo, se podrán designar delegados, en cuyo caso se considerará el número de personas trabajadoras que representan para efectos de quórum durante la Asamblea, pero su voto tendrá el mismo valor que el del resto de asistentes a la Asamblea, a efectos de la elección del Comité.
