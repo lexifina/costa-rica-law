@@ -14,3 +14,4 @@ Reglamento para la inscripción de candidaturas y sorteo de la posición de los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-14 | la propia norma |
+| 2 | 2012-07-05 | Decreto TSE 11 (2012-07-05) |

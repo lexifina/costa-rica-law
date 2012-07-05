@@ -5,3 +5,5 @@ c. Verificar que la asamblea superior del partido ratifique la designación de l
 d. Verificar que los candidatos propuestos en las nóminas cumplan con todos los requisitos establecidos en el ordenamiento jurídico.
 e. Completar y presentar, dentro del plazo establecido, el formulario que, para tales efectos, prepare la Dirección.
 f. Verificar la veracidad de los datos consignados en los formularios de solicitud de inscripción de candidaturas.
+g. Presentar seis meses antes de la elección que corresponda los pactos de coalición para su inscripción por parte de la Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos.
+(Así adicionado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 11 del 05 de julio de 2012)
