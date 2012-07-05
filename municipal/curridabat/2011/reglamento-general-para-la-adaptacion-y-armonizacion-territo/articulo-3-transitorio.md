@@ -1,2 +1,3 @@
-Transitorio III.—Los operadores de telefonía móvil podrán colocar instalaciones provisionales de telecomunicaciones en los bienes públicos municipales de previo al otorgamiento de los permisos de uso en precario a que se refiere el presente Reglamento. Estos permisos deberán ser conocidos por el Concejo Municipal en la sesión siguiente a la presentación de la solicitud, la cual deberá cumplir con los requisitos establecidos en el artículo 9.2, 9.3 y 9.5 del presente Reglamento. Los permisos de uso en precario de instalaciones provisionales de telecomunicaciones no podrán superar los tres (3) meses de plazo.
+TRANSITORIO III: Los permisos de uso en precario de instalaciones provisionales de telecomunicaciones no podrán superar los doce (12) meses de plazo, salvo excepciones muy calificadas.
+(Así reformado mediante sesión N° 114-2012 del 5 de julio del 2012)
 Curridabat, 8 de agosto del 2011.—

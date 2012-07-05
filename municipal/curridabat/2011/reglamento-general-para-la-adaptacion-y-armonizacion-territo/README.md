@@ -15,3 +15,4 @@ Reglamento general para la adaptación y armonización territorial del sistema d
 | --- | --- | --- |
 | 1 | 2011-09-07 | la propia norma |
 | 2 | 2012-01-26 | Reglamento municipal 91 (2012-01-26) |
+| 3 | 2012-07-05 | Reglamento municipal 114 (2012-07-05) |
