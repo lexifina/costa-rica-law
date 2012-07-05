@@ -1,2 +1,0 @@
-Artículo 29.-Se establece como obligación de la Tesorera, presentar periódicamente o cuando la Junta Directiva lo solicite, análisis de las operaciones efectuadas, con indicación de los índices de cumplimiento, morosidad y reportes sobre los registros contables a fin de conocer en forma adecuada la inversión de esos fondos.
-Es entendido que deberá presentar un informe anual para el ejercicio, entre el 1° de julio y el 30 de junio del año siguiente.

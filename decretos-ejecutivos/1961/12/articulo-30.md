@@ -1,1 +1,0 @@
-Artículo 30. - El Colegio de Enfermeras de Costa Rica aportará, a título de inversión de sus fondos de mutualidad y subsidios, la suma de cincuenta mil colones ( ¢ 50,000.00) para iniciar las operaciones a que se refiere este Reglamento.

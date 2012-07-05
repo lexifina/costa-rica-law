@@ -1,1 +1,0 @@
-Artículo 22.- Toda solicitud de préstamo se presentará a la Tesorería , por medio de fórmulas especiales que se suministrarán gratuitamente a toda solicitante. De conformidad con los requisitos que establezca este Reglamento, corresponderá a la Junta Directiva , previo informe de la Tesorera , su aprobación, si fuere del caso.

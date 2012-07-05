@@ -1,1 +1,0 @@
-Artículo 14.-Con el propósito de fiscalizar las incapacidades, la Junta Directiva podrá nombrar funcionarios respectivos, quienes informarán por escrito, de todos los antecedentes que sean necesarios con respecto a los casos de enfermedad, sometidos a su conocimiento.

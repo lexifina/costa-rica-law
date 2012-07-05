@@ -1,1 +1,0 @@
-Artículo 7°.-El derecho de percibir el auxilio de mutualidad, caduca en un año a partir de la fecha de fallecimiento; salvo que por la naturaleza o causa del deceso, éste no pudiera saberse o comprobarse de inmediato.

@@ -1,1 +1,0 @@
-Artículo 5°.-El nombre del beneficiario debe ser indicado por escrito a la Tesorería del Colegio, a fin de anotarlo en la respectiva Póliza de Mutualidad, o de verificar los endosos correspondientes que autorizare la interesada.
