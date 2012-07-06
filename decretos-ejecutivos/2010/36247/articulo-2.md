@@ -1,2 +1,1 @@
-Artículo 2º—Rige a partir del 01 de enero de 2011.
-Dado en la Presidencia de la República.—San José, a los veintisiete días del mes de octubre del año dos mil diez.
+Artículo 2º—Anulado. (Anulado este artículo mediante resolución del Tribunal Contencioso Administrativo, Sección VI, N° 137-12 del 6 de julio de 2012.).

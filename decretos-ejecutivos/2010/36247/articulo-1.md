@@ -1,4 +1,6 @@
+(Anulada)
 Nº 36247-MEIC
+(Anulado este Decreto Ejecutivo mediante resolución del Tribunal Contencioso Administrativo, Sección VI, N° 137-12 del 6 de julio de 2012).
 LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE ECONOMÍA, INDUSTRIA Y COMERCIO
 En el ejercicio de las facultades que les confiere los artículos 50, 140 incisos 3) y 18) y el artículo 146 de la Constitución Política; los artículos 25.1, 27.1 y 28.2 b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; el artículo 7 de la Ley de Creación de la Corporación Arrocera Nacional, Ley Nº 8285 del 30 de mayo de 2002; y su Reglamento, Decreto Ejecutivo Nº 32968 del 26 de octubre de 2005.
@@ -20,5 +22,4 @@ Decretan:
 Nº 35189-MEIC DEL 24 DE MARZO DE 2009, PUBLICADO
 EN EL ALCANCE Nº 17 A LA GACETA Nº 82
 DEL 29 DE ABRIL DE 2009”
-Artículo 1º—Refórmese el artículo 1º del Decreto Ejecutivo Nº 35189-MEIC del 24 de marzo del año 2009, publicado en el Alcance Nº 17 a La Gaceta Nº 82 del 29 de abril de 2009, para que en lo sucesivo se lea de la siguiente manera:
-“Se establece un precio mínimo de compra, del industrial al productor nacional de arroz, el cual será de ¢20.050,00 por saco de 73,6 kilogramos de arroz en granza. Este equivale al precio de arroz en granza puesto en planta, con 13% de humedad y 1,5% de impurezas”.
+Artículo 1º—Anulado. (Anulado este artículo mediante resolución del Tribunal Contencioso Administrativo, Sección VI, N° 137-12 del 6 de julio de 2012, misma que declaró "la invalidez del precio mínimo de compra del industrial al productor de arroz... fijado en ¢20050". Así mismo, indica el Tribunal que: "A efectos de dimensionar los efectos de la declaratoria de invalidez, se fija..." en forma provisional "...el precio de venta del arroz en ¢23.131,72 por saco de 73,6 kilogramos de arroz en granza, puesto en planta con un 13% de humedad y un 1.5% de impurezas.).

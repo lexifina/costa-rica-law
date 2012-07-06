@@ -14,3 +14,4 @@ Reforma Establecimiento del Precio Mínimo de Compra del Industrial al Productor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-01 | la propia norma |
+| 2 | 2012-07-06 | SINALEVI (sin norma nombrada) |
