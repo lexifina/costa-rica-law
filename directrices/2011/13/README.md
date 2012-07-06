@@ -18,3 +18,4 @@ No se autoriza creación de plazas ni la utilización de plazas que queden vacan
 | 3 | 2011-08-25 | Decreto Ejecutivo 36752 (2011-08-25) |
 | 4 | 2012-03-21 | Directriz 29 (2012-03-21) |
 | 5 | 2012-06-22 | Directriz 33 (2012-06-22) |
+| 6 | 2012-07-06 | Directriz 34 (2012-07-06) |
