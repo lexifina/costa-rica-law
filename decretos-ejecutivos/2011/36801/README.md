@@ -14,3 +14,4 @@ Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-14 | la propia norma |
+| 2 | 2012-07-06 | Decreto Ejecutivo 37351 (2012-07-06) |
