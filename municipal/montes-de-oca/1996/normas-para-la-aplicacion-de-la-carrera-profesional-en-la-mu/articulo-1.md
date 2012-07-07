@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE MONTES DE OCA
+(La presente norma fue derogada por el artículo 24 del Reglamento de Normas para aplicación de la carrera profesional en la Municipalidad de Montes de Oca, aprobado mediante sesión N° 49-2012 del 7 de julio del 2012)
 NORMAS PARA LA APLICACION DE LA CARRERA PROFESIONAL
 EN LA MUNICIPALIDAD DE MONTES DE OCA
 CAPITULO I
