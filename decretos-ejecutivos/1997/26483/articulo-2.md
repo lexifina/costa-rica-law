@@ -1,1 +1,0 @@
-Artículo 2. Será la Oficina Nacional de Normas y Unidades de Medida la encargada de la actualización permanente de este reglamento técnico, procediendo en su caso a la modificación del presente De cr eto.
