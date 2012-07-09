@@ -1,0 +1,1 @@
+Segundo: Los otros finqueros en general deberán maximizar las medidas de limpieza de sus establecimientos especialmente las lecherías, porquerizas, estabulados y otros a fin de controlar y evitar la presencia de materia orgánica en sus establecimientos que sirva de sustrato para la reproducción de la mosca del establo.
