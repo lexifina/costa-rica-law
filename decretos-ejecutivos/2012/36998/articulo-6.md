@@ -1,1 +1,0 @@
-Artículo 6º—Los barcos atuneros de cerco de bandera extranjera que operen en aguas jurisdiccionales de Costa Rica en el OPO con capacidad de pesca de Costa Rica deberán cumplir con la legislación nacional relativa a embarcaciones atuneras de cerco de bandera extranjera.
