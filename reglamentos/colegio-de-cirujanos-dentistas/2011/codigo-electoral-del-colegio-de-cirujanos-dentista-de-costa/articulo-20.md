@@ -5,8 +5,10 @@ DE LA PROPAGANDA
 Artículo 20.—Toda forma de propaganda se encuentra sometida a las siguientes disposiciones:
 a) En cualquier forma la propaganda debe ser presentada ante el Tribunal Electoral para que éste imparta su aprobación o desaprobación, la propaganda desaprobada no podrá hacerse pública. A esta disposición queda sometida también cualquier frase, título, etc., que se haya consignado dentro del programa de trabajo presentado ante el Tribunal Electoral, y se quiera destacar por separado durante la Campaña Electoral.
 b) El Colegio de Cirujanos Dentistas no podrá realizar ni patrocinar ninguna actividad un mes antes del día de las elecciones tanto dentro como fuera de sus instalaciones.
-c) Únicamente podrán hacer propaganda de cualquier tipo los partidos que se encuentren debidamente inscritos ante el Tribunal Electoral.
-d) El período de tiempo para llevar a cabo la propaganda se inicia el 1° de setiembre hasta el día anterior de la elección, con excepción de la propaganda en los medios de comunicación colectiva la que deberá ser suspendida dos días naturales antes de las votaciones.
+c) Únicamente podrán hacer propaganda de cualquier tipo las papeletas que se encuentren debidamente inscritas ante el Tribunal Electoral
+(Así reformado el inciso anterior en sesión extraordinaria celebrada el 9 de julio de 2012)
+d) La propaganda electoral terminará el día anterior de las elecciones, con excepción de la propaganda en los medios de comunicación colectiva, la que deberá ser suspendida dos días naturales antes de las elecciones.
+(Así reformado el inciso anterior en sesión extraordinaria celebrada el 9 de julio de 2012)
 e) Los grupos contendores no podrán utilizar en ninguna forma ni el escudo, ni los colores oficiales del Colegio.
 f) Durante el proceso electoral ninguno de los grupos contendores podrá autoproclamarse como papeleta oficial.
 g) Cada partido inscrito deberá tener uno o dos colores oficiales en su propaganda debidamente inscrito y autorizado por el Tribunal Electoral y no podrá ser igual al de las otras papeletas, ni los de la bandera de Costa Rica.
