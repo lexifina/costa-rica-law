@@ -15,3 +15,4 @@ Reglamento para Uso y Control del Transporte Automotor de la Dirección Nacional
 | --- | --- | --- |
 | 1 | 2007-03-07 | la propia norma |
 | 2 | 2007-06-28 | Decreto Ejecutivo 34374 (2007-06-28) |
+| 3 | 2012-07-09 | Decreto Ejecutivo 37273 (2012-07-09) |
