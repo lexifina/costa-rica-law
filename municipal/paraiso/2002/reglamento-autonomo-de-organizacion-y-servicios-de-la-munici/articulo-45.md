@@ -1,1 +1,0 @@
-Artículo 45.—No pago de las ausencias injustificadas. No se cancelará el salario correspondiente a las ausencias injustificadas conforme a lo establecido en este Reglamento y a la normativa vigente, sin perjuicio d la sanción disciplinaria correspondiente.

@@ -1,1 +1,0 @@
-Artículo 42.—De las licencias para capacitación o adiestramiento. Todo servidor que asista a un curso de capacitación o adiestramiento con goce de salario estará obligado a rendir un informe a su Jefe inmediato Superior y este a informar al Alcalde acerca de dicha presentación y resultados de la gestión.

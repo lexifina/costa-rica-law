@@ -1,5 +1,0 @@
-Artículo 40.—Licencias con goce de salario. Se establecen como casos de excepción al artículo anterior los siguientes, de manera que el servidor disfrutará de licencia con goce de salario:
-a) Cuando contraiga matrimonio o se de el fallecimiento de cualquiera de sus padres hijos o cónyuge, en cuyo caso tendrá licencia hasta por una semana. Lo anterior sin perjuicio de lo estipulado en el Código de Trabajo, Código Municipal y legislación vigente.
-b) En caso de alumbramiento de la esposa o compañera del Servidor, que sean reconocidos y comprueben el ejercicio amplio de la patria potestad, se les otorgará licencia hasta por tres días.
-c) Cuando se trate de licencias para estudio en cuyo caso se regularán por la normativa vigente aplicable al caso concreto.
-d) En caso de calamidad doméstica, enfermedad grave y debidamente comprobada de un familiar hasta tercer grado de consanguinidad o afinidad, incendio, inundación, terremoto, derrumbes u otros sucesos propios de la naturaleza, se otorgará licencia hasta por ocho días hábiles.

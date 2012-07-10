@@ -1,1 +1,0 @@
-Artículo 30.—Incrementos salariales. En todos los casos en que el salario de los servidores debe ser incrementado, la Oficina de Personal deberá hacer las gestiones pertinentes ante el Alcalde, aportando los elementos necesarios de cálculo, fuentes de recursos y demás datos necesarios para la toma de decisiones y trámites correspondientes.

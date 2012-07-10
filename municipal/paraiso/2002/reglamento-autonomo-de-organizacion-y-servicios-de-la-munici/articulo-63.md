@@ -1,1 +1,0 @@
-Artículo 64.—Cualquier infidencia de una persona del Órgano Director o de cualquier otro funcionario vinculado directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este Reglamento.

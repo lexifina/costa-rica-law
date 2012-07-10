@@ -1,2 +1,0 @@
-Artículo 66.—El Órgano Director contará con tres días naturales para dictar el auto inicial del procedimiento, en el cual se dará el traslado de denuncia al funcionario acusado, concediéndole un plazo de diez días hábiles para que comparezca y se refiera a todos y cada uno de los hechos que se imputan y ofrezca los elementos de prueba de descargo que estime necesario.
-Si el denunciado no ejerce su defensa se continuará con el procedimiento hasta el informe final de parte del Órgano Director.

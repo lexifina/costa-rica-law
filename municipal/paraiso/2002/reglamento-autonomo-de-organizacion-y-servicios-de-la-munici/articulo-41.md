@@ -1,1 +1,0 @@
-Artículo 41.—De la concesión de licencias. Todas las licencias serán otorgadas únicamente por el Alcalde sin desmeritar que debe existir consentimiento previo del Jefe inmediato correspondiente para su trámite.

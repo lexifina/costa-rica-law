@@ -1,1 +1,0 @@
-Artículo 26.—Obligación de dar aviso en caso de ausencia. En todos los casos el servidor deberá notificar a su Jefe inmediato lo antes posible verbalmente o por escrito, las causas que le impidieron asistir a su trabajo. Por ninguna razón, salvo fuerza mayor, deberá esperar al segundo día para justificarlo.
