@@ -1,1 +1,0 @@
-Artículo N° 13.—Este beneficio no constituye ningún derecho adquirido y por lo tanto, la Administración puede suspender su concesión en el momento en que se considere oportuno, siempre y cuando se cuente con una razón de peso.

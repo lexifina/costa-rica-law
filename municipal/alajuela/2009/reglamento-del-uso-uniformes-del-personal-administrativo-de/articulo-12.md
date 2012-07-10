@@ -1,1 +1,0 @@
-Artículo N° 12.—No tendrán derecho del uniforme el funcionario que ocupe puestos en plazas de confianza, suplencias e interinos que tengan un período menor a los tres meses. Salvó que mediante justificación escrita de la Alcaldía Municipal se incluya algún funcionario que se encuentra nombrado en estas categorías, para dicho beneficio.
