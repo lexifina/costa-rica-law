@@ -1,0 +1,1 @@
+Artículo 28.—El presente Reglamento rige a partir de su publicación y deroga cualquier otra disposición reglamentaria anterior que con respecto a licencias municipales en telecomunicaciones haya adoptado esta Municipalidad.

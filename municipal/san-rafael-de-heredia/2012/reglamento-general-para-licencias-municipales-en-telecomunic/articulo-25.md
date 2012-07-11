@@ -1,0 +1,1 @@
+Artículo 25.—Una vez presentada completa la solicitud de licencia de construcción la administración tendrá treinta días naturales para emitir la resolución final. El interesado contará con la posibilidad de impugnar esta resolución, mediante los recursos previstos en el Código Municipal.
