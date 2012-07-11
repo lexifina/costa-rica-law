@@ -1,0 +1,1 @@
+Artículo 2º- Se insta a las instituciones públicas y privadas, para que asuman los costos, en la medida de sus posibilidades, dentro del marco legal respectivo y sin perjuicio del cumplimiento de sus propios objetivos, de la visita a territorio costarricense de la Misión Técnica de la Secretaría General de la Convención Ramsar sobre los Humedales.
