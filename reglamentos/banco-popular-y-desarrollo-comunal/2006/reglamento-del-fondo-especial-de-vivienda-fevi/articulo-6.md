@@ -1,2 +1,0 @@
-Artículo 6º—Del nivel de compromiso. Se permite que un cliente asalariado con o sin deducción de planilla adquiera un compromiso de hasta el 70% de su salario bruto. En el caso de clientes con ingresos propios, se permite un nivel de compromiso de hasta el 55% de su ingreso bruto. Para efectos del cálculo del compromiso la Gerencia General Corporativa emitirá una política específica para el FEVI.
-(Así reformado mediante sesión N° 4510 del 16 de agosto de 2007)

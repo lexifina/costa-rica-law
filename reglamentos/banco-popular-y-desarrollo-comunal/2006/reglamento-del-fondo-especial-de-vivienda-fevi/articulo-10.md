@@ -1,1 +1,0 @@
-Artículo 10.—De los seguros sobre garantías. Todo seguro cobrado con fundamento en un crédito otorgado de conformidad con el presente Reglamento deberá ser registrado en la cuenta de orden correspondiente del FEVI.
