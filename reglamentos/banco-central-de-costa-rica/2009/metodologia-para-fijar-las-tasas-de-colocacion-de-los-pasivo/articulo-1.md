@@ -17,7 +17,7 @@ II.- La Administración cuente con un margen de +-250(*) puntos base, con respec
 III.- En la subasta competitiva, el uso del margen se medirá contra la tasa de corte del instrumento en la subasta.
 IV.- En el caso de la tasa de subasta no competitiva, la tasa se fijará a partir de la tasa promedio ponderada de captación de la subasta competitiva para el instrumento correspondiente menos un castigo. En todo caso, la tasa final deberá ubicarse dentro del margen de los +200 puntos base, con respecto a la tasa estimada en el punto I.
 V.- En el caso de los títulos a tasa variable, el uso del margen se evaluará a partir de la tasa base a 6 meses estimada con base en el modelo descrito. Sin embargo, dado que la convención para este tipo de títulos es fijar el margen sobre la tasa básica, la tasa estimada por el modelo y el margen de +200 puntos base alrededor de ella, se compararán con la tasa básica, con el fin de definir la tasa de colocación del instrumento correspondiente.
-VI. Con independencia de la curva de rendimiento antes señalada, para los títulos ligados a la inflación, la Administración dispondrá de un margen entre 0 y 325 puntos base para establecer la tasa real a la que se colocarán dichos instrumentos.
+VI. Conindependencia de la curva de rendimiento antes señalada, para los títulosligados a la inflación, la Administración dispondrá de un margen entre 0 y450 puntos base para establecer la tasa real a la que se colocarán dichosinstrumentos.
 (Así adicionado el punto anterior mediante sesión N° 5436 del 23 de setiembre de 2009)
-(Así reformado el punto anterior mediante sesión N° 5438 del 14 de octubre de 2009)
+(Así reformado el punto anterior mediante sesión N° 5552-2012 del 11 de julio del 2012)
 VII.- Le corresponde al Comité de Gestión de Pasivos, fijar los detalles operativos que se presenten en la aplicación de esta metodología.

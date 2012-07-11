@@ -17,3 +17,4 @@ Metodología para fijar las tasas de colocación de los pasivos
 | 2 | 2009-09-23 | Reglamento 5436 (2009-09-23) |
 | 3 | 2009-10-14 | Reglamento 5438 (2009-10-14) |
 | 4 | 2010-10-20 | Reglamento 5475 (2010-10-20) |
+| 5 | 2012-07-11 | Reglamento 5552 (2012-07-11) |
