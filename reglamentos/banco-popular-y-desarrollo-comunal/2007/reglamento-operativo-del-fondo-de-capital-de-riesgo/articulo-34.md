@@ -1,2 +1,0 @@
-Artículo 34.—Selección de la organización beneficiaria. Las entidades públicas o privadas que brindan acompañamiento, asistencia técnica y capacitación, serán seleccionadas de conformidad con la Ley de Contratación Administrativa, el Reglamento General de Contratación Administrativa y el Reglamento Complementario de Contratación Administrativa del Banco Popular y de Desarrollo Comunal.
-Para esta contratación y la ejecución de estos recursos la Dirección de Banca de Desarrollo podrá elaborar un procedimiento para tal efecto.

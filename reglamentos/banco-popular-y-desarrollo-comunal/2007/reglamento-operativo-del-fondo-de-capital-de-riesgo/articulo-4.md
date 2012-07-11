@@ -1,1 +1,0 @@
-Artículo 4º—Comunicación de lo resuelto. La resolución final sobre la solicitud de crédito o aval será comunicada al prestario directo o a las organizaciones de segundo piso, en un plazo máximo de ocho días hábiles.

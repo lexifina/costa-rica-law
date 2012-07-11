@@ -1,4 +1,0 @@
-Artículo 28.—Requisitos y condiciones para liquidar avales. Cuando las organizaciones auxiliares requirieren la liquidación de avales, previa aprobación de la Dirección de Banca de Desarrollo, se procederá a pagar el monto avalado dentro de un plazo máximo de 15 días hábiles contados desde la fecha en que se demuestre el cumplimiento de todas las siguientes condiciones:
-a) Estar al día en el pago de comisiones relativas a ese aval.
-b) Que la organización auxiliar demuestre la debida diligencia en el cobro de la obligación que generó el aval, para lo cual deberá aportar copia de la demanda judicial presentada ante la autoridad competente, dentro de los 65 días naturales siguiente a la constitución de la mora.
-c) Que el avalado haya cancelado al menos el 20% del principal del crédito.

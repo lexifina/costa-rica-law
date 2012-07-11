@@ -1,1 +1,0 @@
-Artículo 13.—Intereses moratorios. Los intereses moratorios serán de dos puntos sobre la tasa vigente del crédito y se aplicarán a partir del primer día de atraso y únicamente sobre las cuotas vencidas, disposición que es aplicable a las organizaciones intermediarias, sus prestatarios y los prestatarios directos del Banco.
