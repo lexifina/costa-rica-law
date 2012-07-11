@@ -20,3 +20,4 @@ Lineamientos para el Ejercicio y Control del Servicio Notarial
 | 6 | 2008-05-09 | Resolución 740 (2008-05-09) |
 | 7 | 2010-10-06 | Reglamento 27 (2010-10-06) |
 | 8 | 2011-11-09 | Acuerdo 1 (2011-11-09) |
+| 9 | 2012-07-11 | Acuerdo 7 (2012-07-11) |
