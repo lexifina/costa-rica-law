@@ -1,0 +1,1 @@
+Artículo 30.—Reglas para la fijación de los honorarios de las y los auxiliares ejecutores. Los honorarios de las y los Auxiliares Ejecutores se fijarán de conformidad con las tablas aprobadas por el Consejo Superior.

@@ -1,0 +1,1 @@
+Artículo 25.—Giro de honorarios. Las y los Auxiliares Ejecutores coordinarán con el despacho judicial lo correspondiente al giro de sus honorarios. Queda terminantemente prohibido que soliciten suma alguna por ese concepto a la parte interesada en forma adelantada o como adición a la suma establecida por el despacho.

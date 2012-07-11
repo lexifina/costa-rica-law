@@ -1,0 +1,1 @@
+Artículo 26.—Interés directo o indirecto en un proceso determinado. En caso de que un Auxiliar Ejecutor tenga interés directo o indirecto en el proceso, debe excusarse de realizar la diligencia para la cual fue designado o designada.

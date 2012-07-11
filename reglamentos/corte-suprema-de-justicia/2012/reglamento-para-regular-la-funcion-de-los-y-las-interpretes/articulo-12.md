@@ -1,0 +1,1 @@
+Artículo 12.—Inopia. Cuando algún despacho no cuente con intérprete, traductor, traductora, perita o perito, se podrá nombrar otra persona de la Lista Oficial, y si ninguna pudiere realizar el acto, se podrá nombrar por inopia, procurando que la persona escogida cumpla con los requisitos establecidos para el cargo.

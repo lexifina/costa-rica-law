@@ -1,0 +1,1 @@
+Artículo 27.—Inopia. Cuando algún Despacho no cuente con un o una Auxiliar Ejecutora, se podrá nombrar otra persona de la Lista Oficial, y si ninguna pudiere, el Despacho podrá nombrar por inopia, procurando que la persona escogida cumpla con los requisitos establecidos para el cargo. Deberá ser juramentada para el acto.

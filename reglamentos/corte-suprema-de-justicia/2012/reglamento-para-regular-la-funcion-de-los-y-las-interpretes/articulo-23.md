@@ -1,0 +1,2 @@
+Artículo 23.—De la lista oficial de auxiliares ejecutores. La Lista Oficial de Auxiliares Ejecutores se publicará periódicamente a criterio de la Dirección Ejecutiva, en el Boletín Judicial distribuidos por Circuitos o por despachos.
+Las y los Auxiliares Ejecutores actuarán en la zona que indica el acta donde consta su juramentación, salvo que a criterio del despacho o cuando la naturaleza de los bienes a embargar así lo justifiquen, deban hacerlo en lugar o lugares diferente.

@@ -1,0 +1,1 @@
+Artículo 16.—Honorarios de intérpretes, traductoras y traductores. Los honorarios de los intérpretes, traductores y traductoras, se fijarán de acuerdo con el Arancel de Honorarios por Servicios Profesionales de Traductores e Intérpretes Oficiales del Ministerio de Relaciones Exteriores y Culto, excepto en caso de inopia, en que el Despacho resolverá el monto de los honorarios.

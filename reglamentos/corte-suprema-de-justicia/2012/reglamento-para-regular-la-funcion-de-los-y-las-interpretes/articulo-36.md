@@ -1,0 +1,1 @@
+Artículo 36.—Aplicación supletoria de la normativa. En lo no previsto en este Reglamento se aplicará en lo conducente, las disposiciones de la Ley de Cobro Judicial, Código Procesal Civil, la Ley Orgánica del Poder Judicial, la Ley General de la Administración Pública y demás ordenamiento jurídico en lo que sea conexo y aplicable.

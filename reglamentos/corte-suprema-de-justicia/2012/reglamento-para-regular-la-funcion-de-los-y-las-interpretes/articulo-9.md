@@ -1,0 +1,1 @@
+Artículo 9º—Actualización de la lista oficial de personas intérpretes, traductoras y peritos. La Sección de Asesoría Legal de la Dirección Ejecutiva mantendrá actualizada la Lista Oficial y el Sistema de Administración de Peritos, Intérpretes y Traductores, a los que deberán acudir los despachos judiciales para realizar los nombramientos respectivos.

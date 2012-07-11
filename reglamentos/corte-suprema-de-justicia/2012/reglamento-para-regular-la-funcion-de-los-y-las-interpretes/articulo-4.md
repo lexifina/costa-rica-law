@@ -1,0 +1,1 @@
+Artículo 4º—Requisitos. Las y los intérpretes, traductores, peritos y ejecutores en el Poder Judicial, por primera vez deberán ajustarse a lo dispuesto en los artículos 12 y 28 de la Ley Orgánica del Poder Judicial.

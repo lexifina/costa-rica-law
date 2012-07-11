@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Del Régimen Disciplinario
+Artículo 31.—Procedimiento administrativo sancionatorio y recursos. Las denuncias por las faltas que se alegue hayan sido cometidas por los intérpretes, traductores, traductoras, peritos y peritas, y auxiliares ejecutores, serán investigadas conforme al debido proceso administrativo. En tal caso, se les hará el traslado de cargos por el plazo de cinco días a fin de que ejerzan el derecho de defensa.
+El Director Ejecutivo del Poder Judicial será el órgano competente para dictar el acto final del procedimiento disciplinario que se entable. Contra lo resuelto cabrán los recursos ordinarios de revocatoria ante dicha Dirección y de apelación ante el Consejo Superior. Ambos recursos deben interponerse dentro de un plazo de tres días, contados a partir del día siguiente a la notificación del acto final.
