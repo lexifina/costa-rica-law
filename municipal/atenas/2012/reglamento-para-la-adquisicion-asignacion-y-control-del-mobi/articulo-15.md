@@ -1,0 +1,2 @@
+Artículo 15.
+Cada dependencia llevará control individual de los bienes bajo su responsabilidad en los registros diseñados al efecto. En estos registros se indicará el puesto al que se asigna el activo, de tal manera que todo activo quede a cargo de un funcionario responsable. Dicho registro deberá mantenerse actualizado y servirá de base para los inventarios que debe realizar el Departamento de Proveeduría.

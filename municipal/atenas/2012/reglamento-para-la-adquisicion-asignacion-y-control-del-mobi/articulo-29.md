@@ -1,0 +1,2 @@
+Artículo 29.
+Para efectos de las pruebas de funcionamiento, las dependencias usuarias podrán solicitar la asistencia de la casa proveedora, entidades como el Instituto de Fomento y Asesoría Municipal (IFAM) o personal especializado en la materia siempre que no haya en ellos interés directo ni indirecto en el asunto y no cuente la dependencia en su organización interna con los elementos técnicos requeridos.

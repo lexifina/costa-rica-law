@@ -1,0 +1,2 @@
+Artículo 11.
+El Departamento de Cómputo llevará el control de los préstamos efectuados entre las dependencias internas de la Municipalidad y coordinado con el Departamento de Proveeduría (El software, los discos duros, las tarjetas de emulación y demás equipo de cómputo de esta naturaleza). Una vez concluido el plazo de los préstamos deberá retirar los activos de la dependencia donde estén y reintegrarlos a donde corresponda.

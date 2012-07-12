@@ -1,0 +1,2 @@
+Artículo 18.
+Todas las dependencias están en la obligación, inmediatamente después que se determine que no se utilizará un activo, de enviarlo al Departamento de Proveeduría con su respectivo oficio. Este Departamento procederá a levantar un acta en coordinación con el Departamento Legal y la dependencia involucrada para su respectivo desecho. Dicha acta será enviada al Departamento de Contabilidad para que excluya el bien de los registros contables y mecanizados.

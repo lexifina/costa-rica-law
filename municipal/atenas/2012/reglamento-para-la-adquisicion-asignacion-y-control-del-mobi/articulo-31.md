@@ -1,0 +1,2 @@
+Artículo 31.
+A efecto de iniciar las acciones que procedan, el departamento de Proveeduría, tan pronto reciba el informe a que se refiere el artículo anterior, se pondrá en contacto con el Departamento Legal, para que en forma conjunta determinen la mejor estrategia de actuación en el campo jurídico- administrativo, de modo que los intereses de la Municipalidad sean pronta y eficazmente defendidos.

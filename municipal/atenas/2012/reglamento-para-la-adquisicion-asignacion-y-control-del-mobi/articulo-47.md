@@ -1,0 +1,2 @@
+Artículo 47.
+Cuando se compruebe que un funcionario causó daño, hizo mal uso o propicio la desaparición de un activo de la Municipalidad, deberá correr con los gastos necesarios para su reparación o reposición o se hará acreedor a las sanciones disciplinarias que corresponda, de acuerdo con lo que establece el Reglamento Autónomo de Trabajo de la Municipalidad, sin perjuicio de cualquier otro tipo de responsabilidad que le corresponda.

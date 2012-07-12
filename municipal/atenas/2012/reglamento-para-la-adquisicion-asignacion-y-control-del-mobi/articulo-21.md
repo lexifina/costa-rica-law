@@ -1,0 +1,2 @@
+Artículo 21.
+Los traslados de activos entre puestos de una misma dependencia deberán comunicarse al encargado de mobiliario y equipo de la misma, con el propósito de que actualicen en cada oportunidad el registro de control de bienes muebles, con indicación del puesto al que queda asignado y el funcionario responsable, con una boleta de Mobiliario y Equipo asignado que firmará el nuevo responsable.
