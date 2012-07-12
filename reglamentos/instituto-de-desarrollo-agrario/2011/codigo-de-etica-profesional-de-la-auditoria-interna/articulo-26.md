@@ -1,0 +1,1 @@
+Artículo 26—Los funcionarios de la Auditoría Interna no se aprovecharán de su posición, ni utilizarán influencias personales en favor propio o de alguna persona física o jurídica, para la adquisición de bienes o servicios, ni para hacer negocios sobre la base de vínculos familiares o intereses personales.

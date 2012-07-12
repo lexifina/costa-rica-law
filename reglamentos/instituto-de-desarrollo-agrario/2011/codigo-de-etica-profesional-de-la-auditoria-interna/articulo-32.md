@@ -1,0 +1,1 @@
+Artículo 32—Los funcionarios no pueden tratar en forma indiferente o poco respetuosa a personas externas a la Auditoría Interna, lo que podría dar lugar a que se sientan maltratados o a percibir que no se les dio la debida atención.

@@ -1,0 +1,1 @@
+Artículo 6º—Honradez. Las labores de auditoría están delimitadas en un alto porcentaje por la integridad de los profesionales que conforman su campo, constituyéndose este valor en uno de los pilares de la objetividad con que se emitan los criterios producto de la función diaria, prevaleciendo la honradez en la emisión de resultados, conclusiones y recomendaciones.

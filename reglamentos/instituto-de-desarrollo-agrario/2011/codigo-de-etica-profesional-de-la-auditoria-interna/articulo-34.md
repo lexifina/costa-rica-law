@@ -1,0 +1,1 @@
+Artículo 34—Es prohibido para los funcionarios de Fiscalización Superior, utilizar en el equipo de cómputo destinado a sus labores programas no autorizados por la institución, o que no cuenten con la licencia respectiva de uso, salvo que exista autorización expresa para ello.

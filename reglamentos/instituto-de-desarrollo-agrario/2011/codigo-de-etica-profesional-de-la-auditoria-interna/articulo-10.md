@@ -1,0 +1,1 @@
+Artículo 10—Sinceridad. El funcionario de la Auditoría Interna debe estar siempre dispuesto a manifestarse con la verdad y a mostrarse ante las personas que le rodean tal y como es interiormente. Mantener la verdad en las palabras y responder ante ella con el pensamiento y las obras, con el propósito de fundamentar la confianza y la credibilidad en su gestión.

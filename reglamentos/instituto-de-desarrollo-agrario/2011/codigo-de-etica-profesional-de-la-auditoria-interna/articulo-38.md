@@ -1,0 +1,1 @@
+Artículo 38—Está totalmente prohibido revelar información sobre los servicios de la Auditoria Interna que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a la Ley General de Control Interno.

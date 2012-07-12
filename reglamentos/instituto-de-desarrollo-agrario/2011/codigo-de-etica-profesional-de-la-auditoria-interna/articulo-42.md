@@ -1,0 +1,1 @@
+Artículo 42—Los funcionarios de la Auditoría Interna no deben desempeñar simultáneamente dos cargos públicos, al tenor de lo dispuesto en el Artículo 17 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Nº 8422.

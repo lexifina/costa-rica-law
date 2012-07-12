@@ -1,0 +1,1 @@
+Artículo 7º—Superación personal. El personal de la Auditoría Interna debe mantenerse en una búsqueda permanente de mejora continua, intentando exceder las expectativas, y en una actitud de superación personal y profesional diaria que le permita incrementar sus conocimientos, experiencia y solidez moral; independientemente del área interna para la cual se desempeñe.

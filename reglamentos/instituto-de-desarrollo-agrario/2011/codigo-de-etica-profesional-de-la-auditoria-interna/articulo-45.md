@@ -1,0 +1,2 @@
+Artículo 45—Los funcionarios de la Auditoría Interna no deben auditar operaciones específicas de las cuales hayan sido previamente responsables como funcionarios de la administración, proveedores u otras relaciones.
+Si el funcionario con impedimento es el Auditor Interno, éste deberá excusarse ante la Junta Directiva o ante la Contraloría General de la República, según corresponda. En caso de la abstención del Auditor Interno, la Junta Directiva podrá designar al Sub Auditor para atender el asunto, si así lo estima necesario.

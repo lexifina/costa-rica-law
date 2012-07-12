@@ -1,0 +1,1 @@
+Artículo 16—Debido cuidado profesional. Los funcionarios de la Auditoría Interna deben ejecutar sus actividades con la debida diligencia, guardando el cuidado, la pericia y el buen juicio profesional, todo en total apego a la normativa legal y técnica aplicable, y bajo los procedimientos e instrucciones pertinentes.

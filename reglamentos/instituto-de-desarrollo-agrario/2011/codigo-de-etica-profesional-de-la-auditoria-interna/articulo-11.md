@@ -1,0 +1,1 @@
+Artículo 11—Liderazgo. Es obligación de los funcionarios de la Auditoría Interna, llevar a cabo sus actividades de forma tal que evidencien compromiso y credibilidad en sus actuaciones delante de las personas que le rodean, tanto de la Auditoría Interna como de personas externas a esta dependencia.

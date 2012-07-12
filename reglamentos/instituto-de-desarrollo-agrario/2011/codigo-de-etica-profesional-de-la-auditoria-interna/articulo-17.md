@@ -1,0 +1,1 @@
+Artículo 17—Atención de consultas. Ante consultas que formulen las instancias institucionales en ausencia del Auditor Interno, los Profesionales auditores brindarán asesoría únicamente con base en las leyes, Reglamentos, lineamientos y demás disposiciones que rigen la materia, sin externar opinión personal alguna.

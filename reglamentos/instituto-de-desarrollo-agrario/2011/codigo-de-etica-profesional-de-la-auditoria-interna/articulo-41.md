@@ -1,0 +1,1 @@
+Artículo 41—Los funcionarios de Fiscalización Superior no deben recibir compensaciones salariales distintas de las reguladas en el servicio público, otorgadas en el cumplimiento de su deber como funcionarios dentro o fuera del país.

@@ -1,0 +1,1 @@
+Artículo 35—Es prohibido ejercer alguna profesión liberal fuera del cargo, salvo en asuntos estrictamente personales, en los del cónyuge, ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, y actividades docentes en centros universitarios, siempre fuera de la jornada laboral.

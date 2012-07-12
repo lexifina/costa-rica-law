@@ -1,0 +1,1 @@
+Artículo 21—Asertividad. En el desarrollo de los trabajos y en las relaciones que deba mantener con los funcionarios de la Institución, el personal de la Auditoría Interna mostrará una actitud creativa, demostrando y aplicando en forma directa sus observaciones o comentarios, con respeto y honestidad.

@@ -1,0 +1,1 @@
+Artículo 27—Los funcionarios de la Auditoría Interna no deberán utilizar en negocios o asuntos personales, las instalaciones, los recursos energéticos, los recursos materiales, los procedimientos, la metodología, los sistemas de cómputo, los datos y los servicios del Instituto.

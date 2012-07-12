@@ -1,0 +1,1 @@
+Artículo 13—Comunicación. La comunicación debe ser un pilar fundamental sobre el cual se desempeñan los funcionarios de esta Auditoría y se debe fomentar hacia el mejoramiento y optimización de las actividades y como mecanismo de resolución de problemas.

@@ -1,0 +1,1 @@
+Artículo 14—Compromiso. El personal de la Auditoría Interna está en la obligación de desempeñar sus funciones identificado con la Institución para la cual se desempeña, con claridad sobre la responsabilidad que les asiste como funcionarios del Estado, y por consiguiente, con la sociedad costarricense.
