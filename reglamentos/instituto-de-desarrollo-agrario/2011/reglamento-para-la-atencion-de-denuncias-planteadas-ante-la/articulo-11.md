@@ -1,0 +1,3 @@
+Artículo 11.─De las denuncias anónimas
+La denuncia anónima puede ser presentada a través de cualquier medio de comunicación ante la Auditoría Interna y deberán contener los elementos que permita la identificación de los hechos, los presuntos responsables, momento y lugar en que sucedieron los hechos y los elementos de prueba que permita sustentar la denuncia.
+La Auditoría Interna analizará el contenido y razonabilidad de la denuncia anónima. Si esta aporta elementos suficientes y prueba idónea que permita valorar los hechos, se aceptará la denuncia. De no cumplir con dicho requisito, procederá a su archivo.

@@ -1,0 +1,2 @@
+Artículo 5°─Confidencialidad
+La identidad del denunciante, la información, la documentación y otras evidencias de las investigaciones que se efectúen serán confidenciales de conformidad con lo establecido en el artículo 6 de la Ley General de Control Interno y 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
