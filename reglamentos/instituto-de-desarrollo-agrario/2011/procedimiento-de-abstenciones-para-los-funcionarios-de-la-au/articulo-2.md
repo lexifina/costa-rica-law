@@ -1,0 +1,1 @@
+Artículo 2°— Aplicación. Los motivos de abstención serán aplicables a los funcionarios de la Auditoría Interna del Instituto de Desarrollo Agrario, u otros colaboradores internos y externos al Instituto, en quienes concurran dichos motivos, cuando intervengan auxiliando o asesorando en un asunto o procedimiento a funcionarios de esta Auditoría Interna.

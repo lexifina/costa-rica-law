@@ -1,0 +1,7 @@
+Artículo 4°— Abstención solicitada por el propio funcionario (excusa).
+1) Los funcionarios con motivo de abstención, deberán excusarse de intervenir en el asunto respecto del cual la tengan.
+2) Toda excusa la formulará el funcionario por escrito ante el Auditor Interno y en el caso de éste, ante la Junta Directiva o la Contraloría General de la República según se trate, expresando concretamente el hecho o los hechos en que se fundamenta, la causal que la autoriza, y ofreciendo o aportando en el mismo acto las pruebas correspondientes.
+Cualquier otra excusa que no conste en este procedimiento o la Ley, será valorada discrecional y racionalmente por quien corresponda conocer el asunto.
+3) El funcionario a lo interno del Instituto de Desarrollo Agrario que conozca la causa de abstención que le alcanza, pondrá razón de ello en el expediente el mismo día, remitiéndolo de inmediato al Auditor Interno, quien decidirá lo correspondiente.
+4) Si el funcionario con impedimento es el Auditor Interno, deberá informarlo a la Junta Directiva o a la Contraloría General de la República, según corresponda. En caso de que la Junta Directiva sea el órgano que resuelva, podrá hacerlo conforme lo indicado en el Artículo 6), inciso 6 de este procedimiento.
+En caso de la abstención del Auditor Interno, podrá la Junta Directiva si así lo estima necesario, delegar el asunto en el Subauditor Interno, si existiere, o en su defecto designaría a otro funcionario de la Auditoría Interna.
