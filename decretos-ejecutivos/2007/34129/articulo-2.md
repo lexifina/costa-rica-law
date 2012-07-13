@@ -1,9 +1,0 @@
-Artículo 2º—Para efectos de este decreto, los siguientes conceptos y definiciones, se entenderán y utilizarán, en el sentido que se indica seguidamente:
-2.1 aduana: La aduana es la unidad técnico-administrativa encargada de las gestiones aduaneras y del control de las entradas, la permanencia y la salida de las mercancías objeto del comercio internacional, así como de la coordinación de la actividad aduanera con otras autoridades gubernamentales ligadas al ámbito de su competencia, que se desarrollen en su zona de competencia territorial o funcional.
-2.2 alimento: Toda sustancia procesada, semiprocesada o no procesada, que se destina para la ingesta humana, incluidas las bebidas, la goma de mascar, frutas, hortalizas, granos y cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento del mismo, pero no incluye los cosméticos, el tabaco ni las sustancias que se utilizan como medicamentos.
-2.3 frutas y verduras (hortalizas, tubérculos y vegetales): Productos de origen vegetal, perecederos, generalmente de períodos cortos de vida útil, para el consumo en estado fresco.
-2.4 granos: Productos de origen vegetal, que requieren procesamiento para su conservación y consumo, que incluyen entre otros: arroz, fríjol, maíz, trigo, soya, maní.
-2.5 inspección: Examen de las materias primas, los productos y subproductos alimenticios, con el fin de comprobar que estos se ajustan a los requisitos.
-2.6 inspector: Funcionario competente o investido de autoridad, encargado de la inspección recolección, de muestras y verificación del mercado en materias primas, productos y subproductos alimenticios para el consumo humano.
-2.7 territorio aduanero: es el ámbito terrestre, acuático y aéreo en los cuales el Estado de Costa Rica ejerce la soberanía completa y exclusiva.
-2.8 verificación conjunta: Programa de verificación e investigación de mercado permanente desarrollado en forma conjunta por las instituciones involucradas.

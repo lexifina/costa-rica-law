@@ -1,1 +1,0 @@
-Artículo 15.—El costo de los servicios que genere la aplicación del presente Reglamento, de conformidad con lo dispuesto en las leyes de cada una de las instituciones participantes, los deberá cubrir el administrado al cual se le efectúa la verificación conjunta.
