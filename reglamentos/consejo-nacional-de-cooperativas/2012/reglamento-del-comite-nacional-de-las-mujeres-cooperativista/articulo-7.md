@@ -1,0 +1,2 @@
+Artículo 7º—En su primera sesión, la Asamblea elegirá al directorio, que ejercerá sus funciones durante el año calendario correspondiente. En la misma forma, la Asamblea elegirá a tres representantes que conformarán dicho directorio, junto con las representantes de los sectores del CONACOOP y de Uniones y Federaciones. Para un Directorio de siete personas.
+Los acuerdos de la asamblea general ordinaria y/o extraordinaria se tomarán por mayoría simple del total de las miembras presentes.

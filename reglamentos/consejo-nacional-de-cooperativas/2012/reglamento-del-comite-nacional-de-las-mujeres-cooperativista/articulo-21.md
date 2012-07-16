@@ -1,0 +1,2 @@
+Artículo 21.—Cada comisión de apoyo regional, nombrará de su seno tres personas para su dirección, que serán la coordinadora, la secretaria y la vocal, con el fin de organizar el trabajo regional y durarán en su cargo dos años reelegibles.
+Cada Comisión regional coordinará con el Directorio del Comité Nacional de las Mujeres Cooperativistas, Coordinadora Ejecutiva y con la Comisión de Capacitación realizar un plan de trabajo regional, que a su vez se contemplará en el Plan Anual de Trabajo del directorio.

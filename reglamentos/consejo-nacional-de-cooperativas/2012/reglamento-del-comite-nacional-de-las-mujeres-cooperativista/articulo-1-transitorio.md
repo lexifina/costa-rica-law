@@ -1,0 +1,2 @@
+Transitorio: La Asamblea General Ordinaria para el período 2012-2014, será convocada por el CONACOOP, para el día viernes 17 de agosto, 2012 a las 9 horas en primera convocatoria, y en segunda convocatoria a las 10 horas.
+El presente reglamento fue aprobado por la asamblea plenaria del CONACOOP número doscientos cuarenta y siete dos mil doce, acuerdo número ocho, del día lunes dieciséis de julio del año dos mil doce y rige a partir de su aprobación y deroga cualquier reglamentación anterior que se le oponga.

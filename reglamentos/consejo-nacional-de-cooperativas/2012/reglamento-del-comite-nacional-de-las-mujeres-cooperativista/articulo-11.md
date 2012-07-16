@@ -1,0 +1,2 @@
+Artículo 11.—En la primera sesión anual, del directorio, elegirá de entre sus propietarias a una Presidenta, un Vicepresidenta, una Secretaria, y cuatro vocales, numeradas de la uno a la cuatro.
+La Presidenta representará al Comité, en las distintas actividades a las que sea invitado lo mismo que en el otorgamiento de los documentos requeridos para cumplir o ejecutar los acuerdos y las resoluciones firmes del la asamblea general o directorio.

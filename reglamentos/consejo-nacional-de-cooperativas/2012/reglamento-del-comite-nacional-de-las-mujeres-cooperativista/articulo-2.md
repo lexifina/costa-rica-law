@@ -1,0 +1,1 @@
+Artículo 2º—El Comité Nacional de las Mujeres Cooperativistas (C.N.M.C) es una comisión política del Consejo Nacional de Cooperativas (CONACOOP) para la defensa y representación de las mujeres cooperativistas, la gestión de sus necesidades e intereses.
