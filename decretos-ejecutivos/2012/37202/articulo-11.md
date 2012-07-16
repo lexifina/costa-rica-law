@@ -1,0 +1,15 @@
+Artículo 11.- Del Área de Tramitología Documentación, Notificación y Archivo. Los funcionarios del Área de Tramitología Documentación y Archivo deberán realizar las siguientes funciones:
+1. Brindar apoyo administrativo al Director, Subdirector, Encargados de los Procesos y a los abogados de la Dirección Asesoría Jurídica del Ministerio de Gobernación y Policía, con la finalidad de garantizar una atención ágil y oportuna a las diversas gestiones.
+2. Recibir, clasificar, sellar y asignar número a la correspondencia y otros documentos diversos, de acuerdo con las gestiones realizadas por los funcionarios de la Asesoría Jurídica del Ministerio de Gobernación y Policía para su comunicación y tramitación posterior.
+3. Distribuir la correspondencia interna y externa, registrándola en los respectivos controles, para brindar en forma precisa y oportuna la información requerida por los usuarios de sus servicios.
+4. Digitar diversos documentos: controles de correspondencia, cartas, informes, formularios y otros, mediante el uso de paquetes de cómputo, para brindar el servicio más ágil y oportuno a los usuarios.
+5. Tramitar solicitudes de suministros de oficina, de acuerdo a las necesidades establecidas por la Dirección y Subdirección, de útiles y materiales de trabajo, para asegurar las existencias requeridas para la realización eficiente de la labor asignada.
+6. Llevar un control de los suministros que se poseen en la Asesoría Jurídica del Ministerio de Gobernación y Policía así como la asignación de los mismos, según las necesidades de cada uno de los funcionarios.
+7. Atender consultas de usuarios, por teléfono o personalmente, sobre el estado de los diferentes trámites que se realizan en la Asesoría Jurídica del Ministerio de Gobernación y Policía para orientar y atender sus requerimientos.
+8. Llevar la agenda de reuniones, citas, compromisos y otras actividades, con base en las instrucciones recibidas de su superior, para organizar efectivamente el tiempo disponible, así como el control de los expedientes de todo el personal de esta Asesoría Jurídica del Ministerio de Gobernación y Policía
+9. Diligenciar órdenes de compra, requisiciones, facturas y otros, de acuerdo con los requerimientos de la Asesoría Jurídica del Ministerio de Gobernación y Policía.
+10. Hacer reportes sobre el mal funcionamiento de los equipos de trabajo, con base en la revisión y observación de su funcionamiento, para procurar su adecuada y oportuna reparación.
+11. Archivar y llevar un control de todos los documentos que se tramitan en la Asesoría Jurídica del Ministerio de Gobernación y Policía así como ubicar y localizar los documentos que soliciten sus funcionarios, otras dependencias del Ministerio, dependencias externas públicas o sujetos privados.
+12. Realizar y confirmar las notificaciones.
+13. Establecer y proponer periódicamente ante sus superiores, mecanismos de control para evitar el extravío de documentos.
+14. Todo lo relacionado con el Sistema de Control Interno y Sistema de Valoración de Riesgos, de la Asesoría Jurídica del Ministerio de Gobernación y Policía.

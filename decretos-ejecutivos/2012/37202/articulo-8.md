@@ -1,0 +1,18 @@
+Artículo 8.- Proceso de Inspección Policial y Administrativo. Corresponde al Proceso de Inspección Policial y Administrativo.
+1. Fungir como Órgano Director de procedimientos administrativos disciplinarios para la instrucción de todos los asuntos por faltas disciplinarias graves, de los funcionarios de la Policía Profesional de Migración.
+2. Fungir como Órgano Director de procedimientos administrativos disciplinarios para la instrucción de todos los asuntos por faltas disciplinarias que deban iniciarse contra los servidores de la Administración Central del Ministerio de Gobernación y Policía.
+3. Emitir el informe de recomendación, con autonomía de criterio, ante el órgano competente de decisión, sea el Consejo de Personal o el Despacho del Viceministro del Ministerio de Gobernación y Policía, según corresponda.
+4. Estudiar, analizar e investigar expedientes judiciales en donde se involucra a un servidor de la Policía Profesional de Migración o a un funcionario administrativo.
+5. Celebrar y dirigir audiencias orales y privadas conforme a los procedimientos establecidos por la Ley General de la Administración Pública.
+6. Estudiar, solicitar y admitir nuevos elementos de prueba que surjan con posterioridad a la apertura del procedimiento realizando la ampliación correspondiente.
+7. Realizar giras para instruir las causas administrativas cuando la naturaleza de los hechos requiera el desplazamiento del órgano director del procedimiento a la zona donde se encuentre la prueba testimonial y el encartado.
+8. Comprobar la correcta aplicación de normas, disposiciones, leyes y reglamentos que rigen los diferentes procesos disciplinarios que se llevan a cabo en el Proceso.
+9. Elaborar escritos de respuesta a incidencias, excepciones y cualquier otro trámite procesal; emitir y suscribir los actos resolutivos propiamente dichos: autos de apertura de procedimientos disciplinarios, resoluciones interlocutorias, el informe de recomendación que dirigirá al Consejo de Personal o Despacho del Viceministro, así como los proyectos de respuesta a los recursos de revocatoria contra las resoluciones emitidas.
+10. Recomendar la suspensión provisional con goce de salario o la reubicación temporal de los servidores de la Policía Profesional de Migración, previo a la apertura de la causa administrativa y como medida cautelar, de conformidad con lo estipulado en la normativa vigente.
+11. Recomendar al Ministro de Gobernación y Policía, enviar al Ministerio Público las diligencias correspondientes, cuando de los procesos disciplinarios se evidencie la posible comisión de un delito por parte de un servidor de la Policía Profesional de Migración y de la Actividad Central.
+12. Notificar al Patronato Nacional de la Infancia las causas administrativas en donde se involucre a una persona menor de edad.
+13. Tramitar las solicitudes y brindar información en materia disciplinaria que planteen instituciones vinculadas al ámbito jurídico o cualquier otra instancia o particular legitimado que la requiera.
+14. Preparar los proyectos de resoluciones interlocutorias y finales, así como los informes que soliciten las instancias competentes, por las causas administrativas disciplinarias a su cargo.
+15. Conocer y tramitar las gestiones e informes que deban interponerse o rendirse ante la Sala Constitucional, así como las diferentes instancias de los Tribunales de Justicia, la Procuraduría General de la República, de la Contraloría General de la República, la Defensoría de los Habitantes y otras instituciones del Estado.
+16. Estudiar, analizar e investigar expedientes judiciales.
+17. Cualquier otra propia de su competencia.
