@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-16 | la propia norma |
+| 2 | 2012-07-16 | Reglamento 0 (2012-07-16) |
