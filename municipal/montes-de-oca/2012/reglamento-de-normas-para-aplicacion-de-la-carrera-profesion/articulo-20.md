@@ -1,0 +1,2 @@
+Artículo 20:
+Una vez resuelto lo que corresponda por parte de la Comisión de Carrera Profesional y si el interesado persistiera en su disconformidad, podrá recurrir, durante los tres días hábiles siguientes, ante la Alcaldía, con el fin de plantear la Apelación del caso. La Alcaldía contara con un plazo de quince días hábiles para resolver el asunto, y si la decisión no satisface al interesado, este podrá recurrir ante la instancia de Ley.

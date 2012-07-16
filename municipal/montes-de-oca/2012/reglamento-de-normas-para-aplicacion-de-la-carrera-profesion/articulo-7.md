@@ -1,0 +1,9 @@
+b) ACTIVIDADES DE CAPACITACIÓN RECIBIDA:
+Artículo 7:
+Las actividades de capacitación recibidas en sus modalidades de participación y aprovechamiento, se reconocerán siempre que:
+a) El servidor la haya recibido después de haber obtenido, como mínimo, el grado de Bachiller de un plan educativo de nivel superior.
+b) Sea atinente con las funciones del puesto desempeñado y con la disciplina académica del servidor.
+c) Haya sido reconocida y clasificada en la modalidad de Aprovechamiento o Participación -según corresponda- en el caso de las capacitaciones por aprovechamiento, los certificados de las mismas deberán indicar explícitamente este tipo de modalidad, las horas de duración, la nota obtenida en la capacitación, y/o las evaluaciones realizadas para obtener el título. Las capacitaciones por participación deberán indicar claramente las horas de duración. En el caso que los certificados por participación o aprovechamiento que se presenten y que no cumplan con estos requisitos, los posibles puntos que correspondan no podrán ser adjudicados.
+d) Las actividades recibidas que no correspondan a cursos regulares de una carrera universitaria o para universitaria.
+e) No se trate de cursos que constituyan requisito esencial o legal (o ambas a la vez) para la graduación o incorporación al respectivo Colegio Profesional.
+f) No sean actividades de capacitación patrocinadas por la Municipalidad. La Municipalidad otorgara dentro de sus posibilidades a los servidores los permisos necesarios con goce de sueldo para capacitarse, pero si las capacitaciones además son pagadas por la Institución estas no serán reconocidas para efectos del incentivo de Carrera Profesional. Los permisos con goce de sueldo para capacitarse serán aprobados por el Alcalde con el previo aval del Departamento de Recursos Humanos donde se fundamente el beneficio municipal de la capacitación o se determine que encuentra contemplada dentro del Plan de Capacitación.

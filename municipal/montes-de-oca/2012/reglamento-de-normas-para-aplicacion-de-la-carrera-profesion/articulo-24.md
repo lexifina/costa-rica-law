@@ -1,0 +1,2 @@
+Artículo 24:
+El presente Reglamento que contiene las Normas para la Aplicación de la Carrera Profesional deroga las Normas para la Aplicación de la Carrera Profesional en la Municipalidad de Montes de Oca, aprobadas por el Concejo Municipal de Montes de Oca en la Sesión Extraordinaria N. 23-1996, Artículo N. 4, del 24 de setiembre de 1996, publicadas en La Gaceta N. 137 del 17 de julio de 1997, y cualquier otra disposición sobre el mismo asunto y todas aquellas que se le opongan.

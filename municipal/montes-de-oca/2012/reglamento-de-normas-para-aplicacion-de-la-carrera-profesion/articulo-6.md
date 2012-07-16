@@ -1,0 +1,12 @@
+CAPÍTULO IV
+INTERPRETACIÓN Y APLICACIÓN DE LOS FACTORES
+a) GRADOS Y POSGRADOS ACADÉMICOS:
+Artículo 6:
+Los grados y postgrados académicos se reconocerán con fundamento en la presentación del título o la respectiva certificación extendida por la universidad correspondiente, siempre que sea:
+a) Propios del área de actividad del puesto o afines con esta, determinado mediante un estudio del Departamento de Recursos Humanos.
+b) Conferidos por alguna de las universidades del país facultadas para ello.
+c) Correspondientes a carreras autorizadas por el CONESUP cuando se trate de títulos extendidos por universidades privadas.
+d) Reconocidos y equiparados por alguna de las universidades del país facultadas para ello, cuando se trate de títulos obtenidos en el extranjero, de conformidad con las normas establecidas por el CONARE (19 de agosto de 1986), aportando la certificación respectiva emitida por el Departamento de Registro o instancia administrativa competente.
+Los grados, posgrados y títulos académicos obtenidos antes de la promulgación de las normas sobre el reconocimiento y equiparación de los grados y títulos por parte del CONARE (19 de agosto de 1986), serán aceptados de acuerdo con la condición con que los haya reconocido el Colegio Profesional respectiva La especialidad se ponderara como tal, si fue obtenida con base en la Licenciatura. A la especialidad obtenida con base en el Bachillerato se le otorgara el puntaje previsto para la Licenciatura, según el respectivo detalle contenido en el artículo 4 de este cuerpo normativa
+Los profesionales en Derecho que se graduaron con anterioridad a la entrada en vigencia del Código Notarial, no tienen derecho a que su titulo de notariado se les reconozca como una especialidad; lo anterior por cuanto, hasta esa fecha dichos títulos se emitían como parte del programa de estudios de la licenciatura en Derecho. No obstante, las personas que se graduaron posteriormente al 22 de noviembre del 2003 (fecha límite en la cual las Universidades Privadas y Estatales tengan que incorporar el posgrado en Derecho Notarial y Registral), si tienen la posibilidad de que su titulo sea reconocido como especialidad dentro de la Carrera Profesional. (Según de la Dirección General de Servicio Civil conforme Resolución DG-662-2006 del 26 de octubre de 2006).
+Entiéndase por grados, posgrados y especialidades adicionales aquellas que sean obtenidos por el servidor, después de haber presentado un primer grado, posgrado o especialidad considerada en la ponderación de ingreso al incentivo.

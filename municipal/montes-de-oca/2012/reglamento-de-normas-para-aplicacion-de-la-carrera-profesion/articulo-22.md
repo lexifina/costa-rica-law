@@ -1,0 +1,2 @@
+Artículo 22:
+El monto del incentivo derivado de la aplicación de los factores previstos para la Carrera Profesional, se establecerá mediante el valor de cada punto y de acuerdo con los procedimientos indicados en este cuerpo de normas, fijándose el monto de cada punto igual al pagado por el Servicio Civil, y los ajustes de este se harán utilizando el mismo monto porcentual y procedimiento utilizado por el Servicio Civil, quedando sujeto al contenido presupuestario correspondiente.

@@ -1,0 +1,1 @@
+Artículo 17: Los ajustes de carrera profesional podrán ser solicitados una sola vez al año. Su aprobación se hará de conformidad con lo que dictamine la Comisión de Carrera Profesional el cual tendrá vigencia a partir del mes de enero del año siguiente en que su solicitud sea aprobada y quedará sujeto a disponibilidad presupuestaria y aprobación por parte del Concejo Municipal.
