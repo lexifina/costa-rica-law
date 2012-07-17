@@ -14,3 +14,4 @@ Reglamento para el Trámite de Planos y la Conexión de los Servicios Eléctrico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-05 | la propia norma |
+| 2 | 2012-07-17 | Reglamento 35 (2012-07-17) |
