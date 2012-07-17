@@ -1,1 +1,0 @@
-Artículo 7º—El Ministerio del Ambiente y Energía, en coordinación con el Instituto Costarricense de Pesca y Acuicultura, instituciones, organizaciones gubernamentales y no gubernamentales gestionarán y coordinarán el soporte técnico y financiero para el desarrollo de las actividades de la Comisión Interdisciplinaria Marino Costera de la Zona Económica Exclusiva.

@@ -1,1 +1,0 @@
-Artículo 5º—El Ministerio del Ambiente y Energía será el coordinador de las labores de la Comisión Interdisciplinaria Marino Costera de la Zona Económica Exclusiva, correspondiendo a la propia Comisión, adoptar su metodología de trabajo.
