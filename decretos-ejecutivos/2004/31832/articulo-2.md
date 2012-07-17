@@ -1,1 +1,0 @@
-Artículo 2º—Esta Comisión será integrada de común acuerdo entre el Ministro del Ambiente y Energía, en coordinación con el Instituto Costarricense de Pesca y Acuacultura, tomando en consideración a los representantes públicos y privados del Sector Marino-Costero.
