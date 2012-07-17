@@ -1,1 +1,0 @@
-Artículo 5. Para el financiamiento del Consejo Nacional del Mar y su Secretaría Técnica, las Instituciones que lo integran procurarán su financiamiento, dentro de las posibilidades legales de cada una.

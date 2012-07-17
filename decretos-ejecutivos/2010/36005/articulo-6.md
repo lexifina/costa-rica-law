@@ -1,1 +1,0 @@
-Artículo 6. El Ministro de la Presidencia convocará a la constitución del Consejo Nacional del Mar y establecerá su reglamento interno de funcionamiento en un plazo máximo de seis meses, una vez publicado el presente Decreto en el Diario Oficial La Gaceta.
