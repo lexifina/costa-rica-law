@@ -1,2 +1,0 @@
-Artículo 5º—Caucionantes del Nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, quienes ocupen los puestos de jefe de Unidad Administrativa, El Auditor y Sub Auditor Interno, en caso de ascensos interinos rendirán caución con nombramientos mayores a seis meses.
-(Así reformado mediante acuerdo N° 242-08 tomado en sesión del 21 de julio de 2008, artículo tercero, del Acta N° 055-08)

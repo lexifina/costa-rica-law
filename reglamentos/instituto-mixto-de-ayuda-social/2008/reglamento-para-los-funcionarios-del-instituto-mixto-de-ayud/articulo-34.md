@@ -1,1 +1,0 @@
-Artículo 34.—De los Intereses. El IMAS no reconocerá intereses por las garantías que se den en virtud de depósitos de dinero que se realicen en virtud del presente reglamento. Únicamente corresponderán al caucionante aquellos intereses que se devenguen en virtud del depósito de títulos valores.

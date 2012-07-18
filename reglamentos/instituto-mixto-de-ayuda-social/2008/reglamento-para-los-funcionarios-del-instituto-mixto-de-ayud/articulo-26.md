@@ -1,1 +1,0 @@
-Artículo 26.—Del cese del caucionante. La unidad de Tesorería del Equipo de Apoyo y Asesoría Financiera, cuando un funcionario cesare del puesto o cargo que ocupa, de conformidad con la información que reciba de Recursos Humanos; procederá a cancelar la obligación del funcionario del registro respectivo.

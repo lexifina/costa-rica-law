@@ -1,1 +1,0 @@
-Artículo 27.—De los controles de seguimiento. La unidad de Tesorería del Equipo de Apoyo y Asesoría Financiera deberá establecer los controles pertinentes; con el fin de asegurar y dar seguimiento a la efectiva prestación de las cauciones por parte de los funcionarios obligados a ello, su sustitución o la rendición de cauciones adicionales cuando fuere precedente.

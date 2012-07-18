@@ -1,2 +1,0 @@
-Artículo 25.—Cumplimiento de requisitos. Recursos Humanos previo a realizar el nombramiento, traslado temporal o definitivo de cualquier funcionario, u otro movimiento de personal, deberá constatar si este deberá rendir o no caución y cotejará su debida prestación o cancelación ante la unidad de Tesorería del Equipo de Apoyo y Asesoría Financiera.
-Recursos Humanos deberá informar al funcionario, por escrito y dentro de los tres días hábiles previos a la toma de posesión del cargo o puesto, si se encuentra obligado a rendir caución.

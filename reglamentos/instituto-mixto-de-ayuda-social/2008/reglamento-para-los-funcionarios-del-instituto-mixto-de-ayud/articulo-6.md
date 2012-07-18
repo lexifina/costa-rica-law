@@ -1,5 +1,0 @@
-Artículo 6º—Caucionantes del nivel C. En este nivel deben rendir caución quienes desempeñen alguno de los siguientes cargos:
-Coordinador de Categoría, Asistente de Finanzas, Coordinador de Bodega (bodegas Centrales y Almacén de Suministros), Encargado de Bodega de Donaciones, Encargado de Transportes, Planillero, Profesional Financiero de la Administración Tributaria , Recaudador, Técnicos Administrativos y Financieros de las Gerencias Regionales, Técnicos Financieros de Oficinas centrales (Tesorería y Administración Tributaria).
-Aparte de estos funcionarios, deberán rendir caución dentro de este nivel los funcionarios que con una regularidad mayor a los 6 meses administren fondos institucionales de alta cuantía.
-La Gerencia General , por vía de resolución razonada determinará el monto específico que se considerará como de alta cuantía y lo hará en el mes de enero de cada año.
-(Así reformado mediante acuerdo N° 242-08 tomado en sesión del 21 de julio de 2008, artículo tercero, del Acta N° 055-08)

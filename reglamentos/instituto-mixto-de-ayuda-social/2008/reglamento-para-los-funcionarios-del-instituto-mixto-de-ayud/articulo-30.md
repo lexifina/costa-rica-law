@@ -1,1 +1,0 @@
-Artículo 30.—Sanciones. El incumplimiento de las obligaciones, las funciones, los procedimientos y los plazos aquí establecidos por parte del funcionario obligado a rendir garantía, será sancionado como falta grave de acuerdo con las penas instituidas en el Reglamento Autónomo de Servicios.

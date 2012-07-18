@@ -1,1 +1,0 @@
-Artículo 33.—Del resarcimiento de daños y perjuicios. La ejecución de la caución no impedirá que el IMAS por medio del Gerente, u otra Unidad administrativa facultada para ello, realice los procedimientos administrativos y procesos judiciales necesarios para recuperar la totalidad de los daños y perjuicios causados a la Institución, cuando éstos excedieren los montos asegurados.
