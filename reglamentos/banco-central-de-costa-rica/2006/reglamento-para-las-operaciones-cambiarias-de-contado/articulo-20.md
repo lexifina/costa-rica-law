@@ -1,4 +1,4 @@
-Artículo 20.—Procedimiento Previo
-Cuando se detecte una infracción a las disposiciones legales o reglamentarías en materia cambiaría, la Superintendencia General de Entidades Financieras enviará un informe al Banco Central de Costa Rica que contendrá el criterio técnico sobre lo sucedido, con el fin de que el Banco Central valore la procedencia de la apertura de la investigación pertinente. En el caso de los Puestos de Bolsa ese informe será presentado por la SUGEVAL.
-(Así reformado mediante aparte C. de sesión N° 5447 del 13 de enero de 2010)
+Artículo 20. Procedimiento Previo. Cuando se detecte una infracción a las disposiciones legales o reglamentarías en materia cambiaría, la Superintendencia General de Entidades Financieras enviará un informe al Banco Central de Costa Rica que contendrá el criterio técnico sobre lo sucedido, con el fin de que el Banco Central valore la procedencia de la apertura de la investigación pertinente.
+Cuando la entidad infractora no esté supervisada en lo sustantivo de su actividad por la Superintendencia General de Entidades Financieras, ésta última podrá coordinar lo que estime pertinente con la superintendencia que corresponda, siempre y cuando el informe final cumpla con los requisitos que estipula el artículo 93 de la Ley Orgánica del Banco Central de Costa Rica”.
 (Así corrida su numeración mediante aparte C. de sesión N° 5447 del 13 de enero de 2010, que lo traspasó del antiguo 19 al 20 actual)
+(Así reformado mediante sesión N° 5553-2012 del 18 de julio del 2012)
