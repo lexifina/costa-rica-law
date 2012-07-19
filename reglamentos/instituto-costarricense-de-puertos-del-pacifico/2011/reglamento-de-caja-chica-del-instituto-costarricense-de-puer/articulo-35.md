@@ -1,1 +1,0 @@
-Artículo 35.—Del registro de firmas: El Tesorero debe mantener actualizado el registro de firmas que le permita verificar las firmas al realizar los trámites respectivos por caja. Los vales de caja chica que se presenten sin firmas autorizadas serán rechazados de inmediato por él.

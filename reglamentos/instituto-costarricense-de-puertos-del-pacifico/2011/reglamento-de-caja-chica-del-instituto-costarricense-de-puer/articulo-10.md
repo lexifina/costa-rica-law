@@ -1,5 +1,0 @@
-Artículo 10.—De los límites para tramitar vales de caja chica. Los límites con que cuenta cada dependencia para tramitar vales de caja chica en el portal del SIAF son los siguientes:
-1) La Administración Superior (Gerencia y Presidencia) hasta por un monto de ¢250.000,00.
-2) La Secretaria de la Junta Directiva , la Auditoría General , la Dirección Administrativa Financiera, la Dirección de Planificación, la Dirección Portuaria , la Dirección Jurídica , la Unidad Técnica de Supervisión y Control, la Junta Promotora de Turismo, la Secretaría de Fiscalización y Tecnologías de Información, quedan facultados para tramitar vales hasta por un monto de ¢150.000,00, sin requerir firma adicional de otro nivel jerárquico.
-3) Las Jefaturas pertenecientes a la Dirección Administrativa Financiera y las Jefaturas pertenecientes a la Dirección Portuaria (Muelle de Quepos, Muelle de Puntarenas, Muelle de Golfito) quedan facultadas para tramitar vales hasta por un monto de ¢100.000,00, requiriendo la firma de aprobación de la Dirección Administrativa Financiera y la Dirección Portuaria según corresponda.
-(Así reformado en sesión N° 3733 del 29 de setiembre de 2011)

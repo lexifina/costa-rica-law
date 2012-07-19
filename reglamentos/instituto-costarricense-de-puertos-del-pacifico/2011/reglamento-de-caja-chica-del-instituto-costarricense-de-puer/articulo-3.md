@@ -1,1 +1,0 @@
-Artículo 3º—De los arqueos: La Dirección Administrativa-Financiera (o a quien sea designado por esa Dirección) deberá realizar los arqueos correspondientes de las cajas chicas, en forma periódica por lo menos cada dos meses, o bien en el momento que se considere necesario.

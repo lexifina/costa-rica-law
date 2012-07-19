@@ -1,4 +1,0 @@
-Artículo 26.—De la imposibilidad para tramitar: La prohibición indicada en el artículo anterior no será extensiva para las siguientes situaciones:
-a) Las compras de combustible y lubricantes, siempre y cuando sea para atender giras en lugares alejados en donde las compras deben ser en efectivo y de contado.
-b) En caso de la contratación de cursos de capacitación, seminarios, o similares relativos a formación, este tipo de gestiones se realizarán mediante vales de caja chica hasta por el monto máximo establecido, cuando el monto sea superior se realizará mediante orden de compra / servicios.
-c) Las compras de bienes y servicios descritas en el presente artículo que la Administración Superior motive por condición especial o conveniencia institucional. Dicha motivación deberá quedar impresa en el vale o en hoja adicional, exceptuando los incisos a, h, i, y j de este Artículo.
