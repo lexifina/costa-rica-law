@@ -1,1 +1,0 @@
-Artículo 27.—De la entrega de cheques. La entrega de los cheques a los beneficiarios sólo podrá efectuarla la Tesorería, previa identificación y comprobación de los documentos necesarios para realizar el retiro.

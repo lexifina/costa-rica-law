@@ -1,1 +1,0 @@
-Artículo 15.—De la solicitud de información para alimentación del auxiliar. La Tesorería deberá solicitar a los clientes, al banco y ha algunas dependencias internas del INCOP, los diferentes comprobantes de débitos y créditos que se requieren para la alimentación del auxiliar de bancos y con ello poder controlar el efectivo de las cuentas bancarias.

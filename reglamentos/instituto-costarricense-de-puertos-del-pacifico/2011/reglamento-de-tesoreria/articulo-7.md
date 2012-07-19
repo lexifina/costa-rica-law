@@ -1,1 +1,0 @@
-Artículo 7º—Del transporte de Valores. En caso de ser necesario, el Tesorero y su personal autorizado por escrito, dispondrán de las facilidades de transporte requeridos para el traslado de dinero y valores de y para los bancos. Durante el tiempo de traslado, el conductor y el vehículo estarán bajo sus órdenes.
