@@ -1,0 +1,19 @@
+CAPITULO III
+Del funcionamiento de la Auditoría Interna
+SECCION PRIMERA
+Competencias, Deberes y Potestades de la Auditoría Interna
+Artículo 42º-. Competencias. De conformidad con lo dispuesto en la Ley General de Control Interno, La Ley Orgánica de la Contraloría General de la República, La Ley No. 7935 y su Reglamento, compete a la Auditoría Interna, primordialmente lo siguiente:
+a) Realizar auditorías o estudios especiales semestralmente, en relación con los fondos públicos sujetos a su competencia institucional, incluidos fideicomisos, fondos especiales y otros de naturaleza similar. Asimismo, efectuar semestralmente auditorías o estudios especiales sobre fondos y actividades privadas, de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General, en el tanto estos se originen en transferencias efectuadas por componentes de su competencia institucional.
+b) Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia institucional, informar de ello y proponer las medidas correctivas que sean pertinentes.
+c) Verificar que la administración activa tome las medidas de control interno correspondientes, en los casos de desconcentración de competencias, o bien la contratación de servicios de apoyo con terceros; asimismo, examinar regularmente la operación efectiva de los controles críticos, en esas unidades desconcentradas o en la prestación de tales servicios.
+d) Asesorar, en materia de su competencia, a la Junta Rectora; además, advertir a los órganos pasivos que fiscaliza sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+e) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que deban llevar los órganos sujetos a su competencia institucional y otros libros que, a criterio del Auditor General, sean necesarios para el fortalecimiento del sistema de control interno.
+f) Preparar los planes de trabajo y sus modificaciones, por lo menos de conformidad con los lineamientos que prescriba la Contraloría General.
+g) Elaborar un informe anual de la ejecución de su plan de trabajo y del estado de sus recomendaciones, de la Contraloría General y de los despachos de contadores públicos; en los últimos dos casos, cuando sean de su conocimiento, sin perjuicio de que se elaboren informes y se presenten a la Junta Rectora, cuando las circunstancias lo ameriten.
+h) Mantener debidamente actualizado el presente reglamento.
+i) Evaluar el contenido informativo, la oportunidad y confiabilidad de la información contable, financiera, administrativa y de otro tipo, producida en el CONAPAM.
+j) Evaluar los informes que prepara la Administración del CONAPAM, sobre la eficiencia y eficacia con que se han utilizado los recursos en el cumplimiento de metas y objetivos.
+k) Revisar en forma posterior las operaciones contables, financieras o administrativas, los registros, los informes y los estados financieros, así como la ejecución y liquidación presupuestaria del CONAPAM, cuando lo considere pertinente, de acuerdo con su plan anual de trabajo.
+l) Realizar la evaluación de la gestión de tecnologías de información del CONAPAM, y de la información producida por sus procesos, incluidos los sistemas de información para la gestión social, administrativa, de recursos humanos y cualquier otro. Lo anterior, de acuerdo con la normativa técnica aplicable y las Normas de Control Interno para el Sector Público.
+m) Comunicar los resultados de las auditorías o estudios especiales que realice, por medio de memorandos e informes escritos que contengan comentarios, conclusiones y recomendaciones.
+n) Las demás competencias que contemplen la normativa legal, reglamentaria y técnica aplicable, con las limitaciones que establece el artículo 34 de la Ley de Control Interno.

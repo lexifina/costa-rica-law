@@ -1,0 +1,1 @@
+Artículo 82º-. Derogatoria. Este Reglamento deroga el Reglamento Interno de la Dirección de Auditoría del Consejo Nacional de la Persona Adulta Mayor (CONAPAM), publicado en gaceta 206 del viernes 27 de octubre de 2006, mediante Decreto Ejecutivo Número 33363-MP.

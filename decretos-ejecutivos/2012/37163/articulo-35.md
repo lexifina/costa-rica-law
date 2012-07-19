@@ -1,0 +1,1 @@
+Artículo 35º-. Obligación de asesorar a la Auditoría. La Asesoría Jurídica, así como cualquier otro profesional en Áreas específicas del CONAPAM, estará en la obligación de atender de manera oportuna y efectiva, las necesidades de orden jurídico o técnico de la Auditoría Interna, que le permitan cumplir sus competencias.

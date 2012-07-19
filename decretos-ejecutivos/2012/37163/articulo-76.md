@@ -1,0 +1,1 @@
+Artículo 76º-.Programas de trabajo específicos. El programa específico de trabajo de cada estudio de auditoría, será diseñado contemplando aquellos aspectos que se consideren de mayor interés para la Auditoría Interna. Este programa deberá ser elaborado por el equipo de trabajo asignado al estudio y aprobado por el Auditor General o Subauditor.

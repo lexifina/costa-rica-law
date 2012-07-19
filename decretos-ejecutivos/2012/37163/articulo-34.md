@@ -1,0 +1,1 @@
+Artículo 34º-. Registro separado del presupuesto. Será obligación de la administración del CONAPAM, llevar un registro separado del monto asignado y aprobado para la Auditoría Interna, como una categoría programática, detallado por objeto del gasto de manera que se controle con toda exactitud la ejecución y modificaciones del gasto asignado y aprobado.

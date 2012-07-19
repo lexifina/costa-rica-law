@@ -1,0 +1,3 @@
+SECCION SETIMA
+De la planificación y programación del trabajo de auditoría
+Artículo 74º-. Planificación Estratégica y Anual. La Auditoría Interna formulará la planificación estratégica y anual de sus procesos, conforme a los lineamientos aplicables al CONAPAM y para ello debe basarse en las normas contenidas en el manual de normas para el ejercicio de la auditoría interna en el sector público, en la valoración de riesgo institucional hasta donde sea posible, con énfasis en temas sensibles y del sistema de control interno, incluidos los referentes a la prevención de la corrupción y del enriquecimiento ilícito.

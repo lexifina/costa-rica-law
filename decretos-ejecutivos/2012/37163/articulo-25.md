@@ -1,0 +1,1 @@
+Artículo 25º-. De los Coordinadores de Auditoría. El Auditor General podrá nombrar los coordinadores que considere necesario para el efectivo cumplimiento de sus labores, según lo establece el artículo 14 del presente Reglamento.

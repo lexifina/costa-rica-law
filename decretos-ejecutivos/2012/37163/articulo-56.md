@@ -1,0 +1,1 @@
+Artículo 56º-. Posibilidad de comunicar verbalmente resultados. Con el objeto de que las deficiencias se corrijan sobre la marcha, la Auditoría Interna podrá comunicar a la Administración verbalmente los resultados obtenidos durante la ejecución de un estudio de control interno y luego informará por escrito.
