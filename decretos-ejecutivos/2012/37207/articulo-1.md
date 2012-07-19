@@ -1,0 +1,23 @@
+No 37207-JP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+En uso de las facultades que les confiere los incisos 3) y 18) del artículo 140 de la Constitución Política, la Ley Orgánica del Ministerio de Justicia y Paz número 6739 del 28 de abril de mil novecientos ochenta y dos y sus reformas, la Ley General de la Administración Pública número 6227 del dos de mayo de mil novecientos setenta y ocho, y,
+Considerando:
+1°—Que mediante decreto ejecutivo número 36495-JP, publicado en La Gaceta N° 63 de 30 de marzo de 2011, se emitió el Reglamento para el Uso de los Recursos Tecnológicos de Información del Ministerio de Justicia y Paz.
+2° Que el uso de la tecnología informática se ha convertido en un instrumento de vital importancia para la función del Estado, el cual debe garantizar su uso eficiente y racional en beneficio del interés institucional.
+3°—Que resulta de vital importancia para el cumplimiento del principio de legalidad en la Administración Pública y la utilización eficiente de los recursos informáticos, el manejo adecuado de los mismos por parte tanto de funcionarios como de grupos formalmente organizados que tengan un interés directo con el fin público encomendado por ley al Ministerio de Justicia y Paz.
+4°— Que la utilización de los medios electrónicos de información y comunicación, particularmente el correo electrónico, se encuentra íntimamente vinculado con los derechos fundamentales de la libertad sindical y la libertad de expresión. En este orden de ideas, tanto la normativa internacional como la nacional y la jurisprudencia constitucional, han establecido como una facilidad sindical el uso de las tecnologías de información y comunicación disponibles por parte de la Institución empleadora.
+5°—Que de conformidad con lo expuesto es necesario reformar y actualizar la regulación en materia informática. Por tanto,
+DECRETAN:
+Artículo 1—Refórmese los artículos 2°, inciso a); 5°, inciso a); 15; 20; 28 y 29, incisos b), i) y j) del Decreto Ejecutivo número 36495-JP, publicado en La Gaceta N° 63 de 30 de marzo de 2011, Reglamento para el Uso de los Recursos Tecnológicos de Información del Ministerio de Justicia y Paz, para que en adelante se lean de la siguiente manera:
+“Artículo 2°—Para todos los efectos legales que se deriven de la aplicación de este Reglamento, se establecen las siguientes conceptualizaciones:
+a) Usuario: Funcionario que opera el equipo de cómputo para el desempeño de sus labores y representantes sindicales o gremiales formalmente constituidos y que tengan un interés directo con el fin público encomendado por ley al Ministerio de Justicia y Paz. (...)”
+“Artículo 5°—Del usuario. E! usuario es responsable de la adecuada conservación del equipo de cómputo que la institución le provea para el desempeño de sus labores. Son deberes del usuario:
+a) Utilizar el equipo de cómputo y sus componentes únicamente para realizar trabajos afínes a sus funciones o con relación directa a los fines institucionales, procurando la racionalidad en su uso y los suministros que se le otorguen en relación con éste. (...)”
+“Artículo 15.—La red de microcomputadoras es de uso exclusivo para asuntos de trabajo o comunicación de los representantes sindicales o gremiales formalmente constituidos que tengan relación directa con los fines institucionales encomendados por ley.”
+Artículo 20.—El uso del Internet está limitado a atender las necesidades derivadas del desempeño de las labores del usuario, o de comunicación de los representantes sindicales o gremiales, y se regirá por las siguientes pautas: (...)”
+“Artículo 28.—El correo electrónico institucional es una herramienta de comunicación e intercambio de información relacionada con los fines e intereses de la Institución. Previo a su instalación, el funcionario deberá firmar un documento de compromiso, en el cual manifieste su conformidad con esta disposición. Además, los funcionarios del Ministerio de Justicia y Paz deben utilizar el correo electrónico asignado únicamente para comunicación cuyo fin sea lícito, digno y ético.”
+“Artículo 29.—Se entiende por un uso racional de la cuenta de correo electrónico lo siguiente:
+b) El uso de la cuenta con fines de interés Institucional. (...)
+i) El no enviar correos a destinatarios que no los han solicitado, salvo que sean laborales, académicos o institucionales. Los representantes sindicales o gremiales deberán respetar el derecho de los funcionarios y usuarios en general de no recibir información no deseada, de manera que ante la solicitud espresa en ese sentido, velarán por que se respete la decisión del usuario.
+j) El respetar la privacidad del usuario y el derecho a ser excluido de listas de correos o correos masivos.”
