@@ -1,4 +1,5 @@
-Artículo 8º—De las funciones y atribuciones del Presidente.
+ARTÍCULO 8
+DE LAS FUNCIONES Y ATRIBUCIONES DEL PRESIDENTE
 a. El Presidente del Fondo será el encargado de dirigir las sesiones ordinarias y extraordinarias de la Junta Administradora.
 b. Elaborará la agenda de cada sesión, previa consulta con los demás miembros de la Junta.
 c. El presidente es el representante de la Junta Administradora.

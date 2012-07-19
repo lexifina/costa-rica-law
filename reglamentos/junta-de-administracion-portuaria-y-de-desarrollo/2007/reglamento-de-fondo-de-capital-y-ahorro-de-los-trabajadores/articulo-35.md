@@ -1,4 +1,6 @@
-Artículo 35.—De la recepción y aprobación de solicitudes. Solo se recibirán las solicitudes cuando se aporten todos los documentos necesarios.
+ARTÍCULO 35
+DE LA RECEPCIÓN Y APROBACIÓN DE SOLICITUDES
+Solo se recibirán las solicitudes cuando se aporten todos los documentos necesarios.
 En caso de fotocopias deberá mostrar el original y el funcionario del Fondo estará en la obligación de firmar la fotocopia garantizando que la misma es copia fiel del original.
 Las solicitudes debidamente documentadas serán numeradas por su orden de presentación y por línea de crédito.
 1. La aprobación de las solicitudes de crédito se regirá por las siguientes prioridades:

@@ -1,2 +1,3 @@
-Artículo 68.—La Junta del Fondo podrá revisar y variar cada seis meses las condiciones de los préstamos en lo referente a montos, plazos y tasas de interés, con previa audiencia conferida a las Juntas Directivas de JAPDEVA y SINTRAJAP para que se pronuncien al respecto.
-Esta variación no tendrá efectos retroactivos a los créditos ya formalizados.
+ARTÍCULO 68
+DEL DESVÍO DE LOS FONDOS
+Aquel asociado que se le compruebe desvío en el uso de los fondos o cuando el Fondo haya tenido que recurrir a la vía judicial para recuperar los saldos, se le aplicará la tasa actual de mercado.

@@ -1,5 +1,12 @@
-Artículo 60.—De las pólizas. Todo prestatario de crédito del Fondo debe suscribir ante el Instituto Nacional de Seguros o una Entidad Financiera y mantener una póliza de incendio a favor de JAPDEVA y una póliza colectiva de saldos deudores para todos los acreedores del Fondo.
-En caso de que el afiliado(a) fallezca durante la vigencia del crédito, la administración suspenderá a partir de esa fecha el registro contable de los intereses y solicitará al Instituto Nacional de Seguros el reintegro del principal adeudado hasta la fecha de su fallecimiento, es decir, no correrán nuevos intereses
-El Fondo automáticamente dentro de cada crédito rebajará la póliza que corresponda.
-En los préstamos para adquisición de vehículo, donde se ofrece en garantía el auto, el Fondo incluirá en la cuota mensual el monto correspondiente a todas las coberturas de riesgo, durante todo el plazo que dure el préstamo.
-El propietario en todas las pólizas tiene que dejar como acreedor a JAPDEVA (Fondo de Capital y Ahorro).
+ARTÍCULO 60
+PRÉSTAMO DE LÍNEA RÁPIDA
+Línea rápido de hasta ¢1,000.000,00 (un millón de colones), con un interés del catorce por ciento (14%) anual sobre saldos, a un plazo de cuarenta y ocho meses (4 años), con un fiador, con
+capacidad de pago y formalización a través de un pagaré a favor del Fondo de Capital y Ahorro.
+Para ser sujeto de crédito de préstamo rápido, deberá tener seis meses de estar cotizando. El afiliado (a) no podrá tener saldo pendiente en la misma línea.
+Requisitos de Préstamo de Línea Rápida:
+*Fotocopia de un recibo de luz o teléfono.
+*Constancia de salario del deudor y del fiador.
+*Original y copia de la cédula de identidad del deudor y los fiadores.
+*Original y copia de colillas de pago del deudor de los últimos tres meses.
+*Original y copia de las tres últimas colillas de pago de los fiadores.
+*Dirección exacta de la casa del deudor y del fiador.

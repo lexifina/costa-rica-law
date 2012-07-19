@@ -1,3 +1,5 @@
-Artículo 16.—Del nombramiento del administrador. La Junta Administradora del Fondo nombrará a través de una terna un administrador mediante votación de mayoría simple quien tendrá a su cargo las funciones administrativas, financieras y operativas del Fondo. En su función deberá velar y hacer cumplir con la normativa general y específica que regule el Fondo y la Ley de Contratación Administrativa y las conexas.
+ARTÍCULO 16
+DEL NOMBRAMIENTO DEL ADMINISTRADOR
+La Junta Administradora del Fondo nombrará a través de una terna un administrador mediante votación de mayoría simple quien tendrá a su cargo las funciones administrativas, financieras y operativas del Fondo. En su función deberá velar y hacer cumplir con la normativa general y específica que regule el Fondo y la Ley de Contratación Administrativa y las conexas.
 El contrato se regirá por las normas establecidas vigentes del Código de Trabajo, y una vez nombrado, el administrador deberá suscribir una póliza de fidelidad.
 Las directrices administrativas serán a través de la Junta, mediante acuerdos.

@@ -1,3 +1,5 @@
-Artículo 78.—Del recurso de revocatoria. El recurso de revocatoria procede contra las decisiones que emanen del seno de la Junta Administradora. Podrá ser interpuesto en forma verbal o escrita por cualquier directivo ya sea en el mismo momento en que se adopte la decisión, o en sesión posterior fundamentando debidamente la solicitud.
+ARTÍCULO 78
+DEL RECURSO DE REVOCATORIA
+El recurso de revocatoria procede contra las decisiones que emanen del seno de la Junta Administradora. Podrá ser interpuesto en forma verbal o escrita por cualquier directivo ya sea en el mismo momento en que se adopte la decisión, o en sesión posterior fundamentando debidamente la solicitud.
 En la misma forma establecida anteriormente, cualquier asociado o funcionario del Fondo que se vea afectado por un acuerdo o decisión de la Junta Administradora podrá plantear un recurso en forma escrita.
 Los recursos de revocatoria interpuestos serán resueltos en la misma sesión o bien en la siguiente según sea el caso, salvo que la Junta considere necesario más tiempo para resolverlo, pero en ningún caso podrá excederse de treinta días hábiles para fallarlo. Si no hubiese decisión se tendrá por rechazado.

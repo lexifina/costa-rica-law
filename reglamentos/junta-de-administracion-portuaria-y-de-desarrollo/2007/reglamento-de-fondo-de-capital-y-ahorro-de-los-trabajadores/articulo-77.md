@@ -1,3 +1,5 @@
 CAPÍTULO X
-De los medios de impugnación
-Artículo 77.—De las clases de recursos. Habrá dos tipos de recursos para ser ejercidos ante la Junta Administradora a saber: revocatoria y apelación.
+DE LOS MEDIOS DE IMPUGNACIÓN
+ARTÍCULO 77
+DE LAS CLASES DE RECURSOS
+Habrá dos tipos de recursos para ser ejercidos ante la Junta Administradora a saber: revocatoria y apelación.

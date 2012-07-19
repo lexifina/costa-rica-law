@@ -1,4 +1,6 @@
-Artículo 6º—Cargos de la Junta Administradora. La Junta Administradora estará formada por:
+ARTÍCULO 6
+CARGOS DE LA JUNTA ADMINISTRADORA
+La Junta Administradora estará formada por:
 a. Un Presidente.
 b. Un Vicepresidente.
 c. Un Tesorero.

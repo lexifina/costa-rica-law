@@ -1,4 +1,6 @@
-Artículo 79.—Del recurso de apelación. Los afiliados(as) del Fondo tendrán derecho a presentar recurso de apelación ante la Junta del Fondo.
+ARTÍCULO 79
+DEL RECURSO DE APELACIÓN.
+Los afiliados(as) del Fondo tendrán derecho a presentar recurso de apelación ante la Junta del Fondo.
 La Junta administradora conocerá en apelación todos los actos, acuerdos y resoluciones emanadas de la Administración y de las Comisiones, cuando consideren que afectan sus derechos.
 El recurso deberá ser interpuesto a partir del momento de la notificación del acto.
 El recurso debe ser dirigido a la Junta Administradora y presentado ante el administrador o administradora del Fondo.
