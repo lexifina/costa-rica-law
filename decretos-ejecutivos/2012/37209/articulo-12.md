@@ -1,0 +1,1 @@
+Artículo 12: Del Premio. Una vez seleccionado el proyecto, el mismo será dotado de un estímulo económico que será destinado a su desarrollo. Esta dotación económica será definida de acuerdo con los criterios establecidos por la Comisión Seleccionadora, señalada en el Artículo 4, inciso a) del presente Decreto Ejecutivo.

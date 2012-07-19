@@ -1,0 +1,1 @@
+Artículo 21: De la divulgación y promoción. El Colegio de Costa Rica estará facultado a destinar un porcentaje de su presupuesto, para la divulgación y promoción del Programa para las Artes Literarias y la contratación de profesionales que realizarán las evaluaciones de losproyectos seleccionados en las Convocatorias.

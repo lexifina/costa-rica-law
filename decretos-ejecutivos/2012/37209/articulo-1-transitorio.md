@@ -1,0 +1,1 @@
+TRANSITORIO I: Para el presente año de 2012, los tiempos de la convocatoria correspondiente a la ejecución del presupuesto del 2012, serán los siguientes: apertura de recepción de propuestas de mayo a junio; evaluación y selección de beneficiarios mes de julio; comunicación mes de julio; período de ejecución de los proyectos agosto a diciembre.

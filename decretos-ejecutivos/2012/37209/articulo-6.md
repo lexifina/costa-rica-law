@@ -1,0 +1,1 @@
+Artículo 6: Beneficiarias(os). Podrá aspirar a los beneficios del presente Reglamento todo(a) creador(a), investigador(a), productor(a), promotor(a), gestor(a) o cualquier otro trabajador(a) de la cultura, en forma individual o colectiva. En este último caso, el proyecto será coordinado por uno(a) de sus integrantes, quien será responsable legal del proyecto.

@@ -1,0 +1,1 @@
+Artículo 17: Destino de los proyectos presentados. Todas las propuestas no ganadoras serán desechadas, por lo que es responsabilidad de cada participante conservar copia de su trabajo. En el caso de los ganadores se conservará la copia para el archivo.

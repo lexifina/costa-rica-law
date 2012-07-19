@@ -1,0 +1,4 @@
+Artículo 9: Presentación del proyecto. La o el interesado (a) en optar por el apoyo estipulado en el presente Reglamento, deberá presentar ante el Colegio de Costa Rica:
+a) Un ejemplar del proyecto y una versión digital del mismo.
+b) Indicación del nombre y calidades completas de la o el postulante, debiendo señalar lugar para recibir comunicaciones, incluyendo datos tales como teléfono, fax, correo electrónico, dirección exacta y apartado postal, en caso de que contara con uno o varios medios de comunicación.
+c) Copia de la cédula de identidad del solicitante o si es una agrupación, de la persona que será responsable del proyecto. En caso de una persona jurídica se deberá aportar: certificación de personería vigente, así como certificación literal en la cual conste el nombre de los miembros de la Junta Directiva.
