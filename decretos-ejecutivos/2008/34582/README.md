@@ -17,3 +17,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | 2 | 2008-09-10 | Decreto Ejecutivo 34741 (2008-09-10) |
 | 3 | 2008-12-16 | Decreto Ejecutivo 34986 (2008-12-16) |
 | 4 | 2011-06-14 | Decreto Ejecutivo 36646 (2011-06-14) |
+| 5 | 2012-07-19 | Decreto Ejecutivo 37241 (2012-07-19) |
