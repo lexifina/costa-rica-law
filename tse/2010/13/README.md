@@ -14,3 +14,4 @@ Reglamento para la aplicación de cargos automáticos sobre tarjetas de crédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-03 | la propia norma |
+| 2 | 2012-07-20 | Resolución 5414 (2012-07-20) |
