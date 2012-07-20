@@ -1,0 +1,1 @@
+Artículo 2º—Dicho programa está dirigido a instituciones públicas, municipalidades, universidades, organizaciones no gubernamentales, grupos locales organizados, empresa privada, medios de comunicación masiva, que con su quehacer en educación ambiental contribuyen al logro de un desarrollo ambientalmente sostenible del país.
