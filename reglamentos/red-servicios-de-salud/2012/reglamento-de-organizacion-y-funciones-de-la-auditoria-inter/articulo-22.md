@@ -1,0 +1,1 @@
+Artículo 22.—Del comportamiento de los servidores de Auditoría. Los funcionarios de Auditoría Interna desempeñarán sus funciones de modo que su labor sea medio de mejoramiento, funcionamiento y consecución en general, del logro de los objetivos institucionales.

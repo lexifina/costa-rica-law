@@ -1,0 +1,1 @@
+Artículo 41.—Informes parciales. La Auditoría, si las circunstancias lo ameritan, podrá emitir informes parciales de control interno durante el transcurso de los estudios o cuando situaciones graves así lo justifican, y al finalizar la intervención por medio del informe final, a efecto de que se tomen las decisiones del caso en tiempo, propósito y conveniencia.

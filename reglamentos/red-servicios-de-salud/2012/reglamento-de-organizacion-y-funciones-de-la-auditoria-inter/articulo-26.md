@@ -1,0 +1,1 @@
+Artículo 26.—Medidas formales de control. Los funcionarios de la Auditoría Interna deberán informar al Auditor Interno, cuando existan factores que puedan comprometer su independencia y objetividad o exista algún tipo de conflicto de intereses, de conformidad con las normas, políticas y directrices emitidas o que en el futuro emita la Contraloría General de la República.
