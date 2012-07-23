@@ -1,1 +1,8 @@
-Artículo 3º.- La Fundación será dirigida por un Comité Nacional, que se integrará con quince miembros nombrados por el Poder Ejecutivo. Necesariamente tendrán representación en ese Comité, la Universidad Nacional y los Ministerios de Educación Pública y de Agricultura, con dos miembros cada uno de estos organismos; la Cámara de Agricultores, de Ganaderos e Industriales con un representante cada una; dos representantes de los Clubes 4-S, una mujer y un varón; los miembros restantes serán de libre nombramiento del Poder Ejecutivo.
+Artículo 3.- Un Comité Nacional dirigirá el Consejo Nacional de Clubes 4-S y estará integrado por los siguientes siete miembros:
+a) El ministro (a) o viceministro (a) del Ministerio de Agricultura y Ganadería, quien lo presidirá.
+b) Un (a) representante del Ministerio de Educación Pública.
+c) Un (a) representante del Consejo Nacional de la Política Pública de la Persona Joven.
+d) Un (a) representante del Instituto Nacional de las Mujeres.
+e) Dos representantes -un hombre y una mujer- de los Clubes 4-S.
+f) Un (a) representante de libre escogencia del Poder Ejecutivo, de una terna que presentará el Consejo a consideración del jerarca del Ministerio de Agricultura y Ganadería.
+(Así reformado por el artículo 1° de la ley N° 9056 del 23 de julio del 2012)

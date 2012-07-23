@@ -1,1 +1,1 @@
-Artículo 4º.- La Fundación Nacional de Clubes 4-S, tendrá personería legal para todo lo relacionado con el cumplimiento de sus fines, y tendrá su domicilio en la ciudad de San José.
+Artículo 4º.- (Derogado por el artículo 3° de la ley N° 9056 del 23 de julio del 2012)
