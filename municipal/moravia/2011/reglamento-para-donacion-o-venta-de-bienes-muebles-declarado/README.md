@@ -14,3 +14,4 @@ Reglamento para Donación o Venta de Bienes Muebles declarados en Mal Estado o D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-07 | la propia norma |
+| 2 | 2012-07-23 | Reglamento municipal 117 (2012-07-23) |
