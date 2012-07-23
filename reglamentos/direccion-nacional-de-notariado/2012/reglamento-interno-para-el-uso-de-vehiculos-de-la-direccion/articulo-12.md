@@ -1,0 +1,3 @@
+CAPÍTULO III
+Condiciones de uso de los vehículos
+Artículo 12.—Solicitud de uso de los vehículos: Cuando un funcionario requiera el uso de un vehículo deberá solicitar a la Coordinación Administrativa el correspondiente formulario de control de uso de vehículos según lo indicado en el artículo 5. Dicha solicitud debe indicar el tipo de servicio que se requiere, fecha y hora de salida, funcionario o funcionaria que conducirá el vehículo y que será el encargado y responsable del mismo, nombre del coordinador del área que requiere el vehículo y demás información que resulte relevante para la asignación del servicio.

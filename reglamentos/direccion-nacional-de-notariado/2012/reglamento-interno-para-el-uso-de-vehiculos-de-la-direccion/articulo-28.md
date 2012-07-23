@@ -1,0 +1,5 @@
+Artículo 28.—Responsabilidades derivadas de la participación en un accidente: Será responsabilidad del conductor o conductora:
+a) Presentarse a declarar ante el juzgado de tránsito correspondiente dentro del plazo establecido al efecto, con el respectivo parte oficial. Al momento de rendir la declaración, deberá solicitar al juzgado que cualquier comunicación relacionada con el caso se le notifique mediante fax en la Dirección Nacional de Notariado.
+b) Informar a la Coordinación Administrativa, al menos la siguiente información: juzgado de tránsito que conoce la causa, número de expediente y copia de la declaración rendida ante dicho juzgado.
+c) Realizar un informe escrito sobre los hechos acontecidos, que entregará a la Coordinación Administrativa, en un plazo máximo de tres días hábiles posteriores al evento, siempre que no se encuentre imposibilitado para ello.
+d) Mantener debidamente informada y actualizada a la Coordinación Administrativa, de todos los pormenores relacionados con el caso, para efectos de que esa unidad pueda realizar los trámites que corresponden en forma oportuna.

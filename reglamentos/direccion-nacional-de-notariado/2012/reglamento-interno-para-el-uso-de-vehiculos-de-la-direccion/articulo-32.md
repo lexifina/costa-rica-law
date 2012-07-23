@@ -1,0 +1,2 @@
+Artículo 32.—Responsabilidad en caso de accidente: Todo funcionario o funcionaria de la Dirección Nacional de Notariado que ejerciere la conducción de un vehículo propiedad de la institución, deberá responder civilmente, de conformidad con lo dispuesto en el artículo anterior, sin perjuicio de cualquier otra responsabilidad de tipo penal o disciplinaria.
+Será igualmente responsable el funcionario o funcionaria que sin justa causa y sin la debida autorización, haya permitido a otra persona conducir el vehículo asignado.

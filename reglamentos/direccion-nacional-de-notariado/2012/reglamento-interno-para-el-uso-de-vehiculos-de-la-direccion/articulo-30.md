@@ -1,0 +1,1 @@
+Artículo 30.—Apoyo de la Asesoría Jurídica: La Asesoría Jurídica brindará el soporte legal que la atención de los casos de accidente generen, en representación exclusiva de los intereses de la institución, en apoyo a la Dirección Ejecutiva y la Procuraduría General de la República, según corresponda y lo determine la autoridad judicial correspondiente.

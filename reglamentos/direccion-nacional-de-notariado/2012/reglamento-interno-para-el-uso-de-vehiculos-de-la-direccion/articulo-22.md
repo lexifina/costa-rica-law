@@ -1,0 +1,1 @@
+Artículo 22.—Uso de vehículos fuera del país: Corresponderá al Director Ejecutivo autorizar la salida del país de los vehículos de la Dirección Nacional de Notariado cuando las situaciones de trabajo así lo demanden, lo cual deberá constar en forma escrita.

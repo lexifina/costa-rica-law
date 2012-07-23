@@ -1,0 +1,1 @@
+Artículo 2º—Vehículos de la Institución: Se consideran vehículos propiedad de la Dirección Nacional de Notariado todas aquellas unidades automotrices que la Institución haya adquirido, le hayan donado y que se encuentren inscritas o en trámite de inscripción en el Registro de Bienes Muebles del Registro Nacional.

@@ -1,0 +1,1 @@
+Artículo 33.—Cobro de deducible a terceros: Si en la resolución de la autoridad judicial de tránsito se declara como responsable a un tercero, la Coordinación Administrativa deberá iniciar los respectivos trámites de cobro a las personas físicas o jurídicas implicadas. Esta unidad si así lo necesita, podrá solicitar el apoyo de la Asesoría Jurídica cuando corresponda.
