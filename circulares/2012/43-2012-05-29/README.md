@@ -13,3 +13,4 @@ Datos que deben anotar los abogados litigantes en cualquier escrito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-29 | la propia norma |
+| 2 | 2012-07-23 | Circular 53 (2012-07-23) |
