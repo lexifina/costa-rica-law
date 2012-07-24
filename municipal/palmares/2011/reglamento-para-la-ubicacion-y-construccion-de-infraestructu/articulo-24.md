@@ -1,1 +1,13 @@
-Artículo 24.—Para garantizar la responsabilidad civil o daños a terceros, será necesario que el propietario de la estación terrena o estructura de telecomunicaciones, suscriba y exhiba póliza de seguro como garantía expedida por una compañía autorizada para la emisión de las mismas, por un monto mínimo equivalente a trescientas (300) veces el salario mínimo mensual de un trabajador no calificado genérico establecido por el Ministerio de Trabajo y Seguridad Social de Costa Rica. Garantía que deberá ajustarse, mantenerse vigente, al día, y responderá por daños parciales y totales causados a la municipalidad y a terceros en sus bienes o en personas, requisito sin el cuál no se otorgará licencia alguna. La cancelación de la póliza sólo procederá cuando sea retirado el elemento estructural, con la autorización municipal competente, y previa comprobación de que no existen daños por los que se tenga que responder ante; terceros o ante ella. Queda entendido, que la Municipalidad a efectos de poder exigir las coberturas correspondientes por daños provocados en los bienes de dominio público, se libera de cualquier reclamo que terceros pudieren hacer en su contra.
+CAPÍTULO
+Obligaciones de los interesados
+Artículo 24.—Las personas físicas o jurídicas que construyan, instalen, hayan instalado o renten estructuras deberán identificarlas por medio de una placa metálica con una medida mínima de 0,90 x 1,20 metros y visible desde la vía pública, debe colocarse en el acceso al inmueble donde se va a ubicar. La placa debe contener los siguientes datos:
+a) Número de finca
+b) Número de licencia de obra
+c) Número de permiso de construcción
+d) Número de viabilidad ambiental
+e) Nombre, denominación o razón social de la empresa o persona física.
+f) Números telefónicos de contacto en caso de emergencias y para el mantenimiento de la estructura y red
+g) Domicilio y/o medio para recibir notificaciones en este Municipio.
+h) Nombre y numero del profesional responsable de la obra cuando está en proceso de construcción
+i) (Derogado mediante sesión N° 117 del 24 de julio del 2012)
+(Así adicionado mediante sesión N° 117 del 24 de julio del 2012)

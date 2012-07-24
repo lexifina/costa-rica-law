@@ -3,7 +3,8 @@ a) Dictar las medidas necesarias para el cumplimiento de este Reglamento con el 
 b) Salvaguardar el orden urbanístico, incluyendo la estética, la paisajística rural, urbana o natural y seguridad de las edificaciones y sus repercusiones medioambientales, derivadas de los riegos de daño del medio ambiente urbano que puedan generar.
 c) Fiscalizar que se cumpla con todos los criterios de protección socio-ambiental.
 d) Evitar la saturación, el desorden y el menoscabo del patrimonio histórico y del medio ambiente urbano que pueda producirse.
-e) Regular, otorgar, registrar, inspeccionar, denegar, anular y ejercer cualquier facultad sancionatoria en relación con las licencias municipales.
+e) Regular, registrar, inspeccionar, denegar y anular las licencias municipales. (En aplicación a el artículo 36 de la Constitución Política de Costa Rica).
+(Así reformado el inciso anterior mediante sesión N° 117 del 24 de julio del 2012)
 f) Ordenar la clausura y demolición de las obras e instalaciones en caso de no sujetarse a lo dispuesto en la Ley de Construcciones y su Reglamento.
 g) Realizar un inventario de estructuras para redes y/o sistemas de telecomunicación, que se encuentren ya instaladas en la jurisdicción del cantón para el control y planificación interna.
 h) Otorgar el certificado de uso del suelo como uso conforme, siempre y cuando cumpla con los requisitos y condiciones establecidas en los capítulos siguientes.

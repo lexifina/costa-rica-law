@@ -14,3 +14,4 @@ Reglamento para la ubicación y construcción de infraestructura en Telecomunica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-14 | la propia norma |
+| 2 | 2012-07-24 | Reglamento municipal 117 (2012-07-24) |

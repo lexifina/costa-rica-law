@@ -1,1 +1,2 @@
-Artículo 31.—Una vez presentada completa la solicitud anterior ante la Municipalidad con todos los requisitos, la administración tendrá treinta días naturales para emitir la resolución. Si fuese negativa, el interesado podrá impugnar la resolución denegatoria de la licencia mediante los recursos previstos en el Código Municipal.
+Artículo 31.—El pago por concepto de licencia construcción se calculara conforme al artículo 70 de la Ley de Planificación Urbana.
+(Así corrida su numeración mediante sesión N° 117 del 24 de julio del 2012, que lo traspasó del antiguo artículo 29 al 31)

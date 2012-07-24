@@ -1,26 +1,11 @@
-CAPÍTULO
-Licencia Municipal
-Artículo 27.—Para la obtención de la licencia de construcción deberá presentarse los siguientes documentos:
-a) Formulario Especial de solicitud lleno y debidamente firmado por el propietario de la infraestructura y por el Profesional responsable de la obra civil y de la obra eléctrica. La obra civil debe estar firmada por un Ingeniero Civil o Arquitecto y la obra eléctrica por un ingeniero en telecomunicaciones, electricista o electromecánico.
-b) Cuando se pretenda establecer las estructuras en inmuebles propiedad de un tercero que no sea el solicitante debe presentar copia del contrato de arrendamiento que acredite su uso, goce y disfrute respectivo y que revele la voluntad del propietario para la obtención de la licencia.
-c) Estudio Registral del inmueble Cuando se pretenda establecer las estructuras en inmuebles inscritos en condición de derechos, se deberá contar con autorización de la totalidad de los derechohabientes.
-d) Copia de la cédula de persona física o del representante legal y personería jurídica de los propietarios de la infraestructura y del inmueble.
-e) Certificado de uso del suelo conforme que se requiere para los permisos de construcción.
-f) Copia del plano catastrado del inmueble con una fecha de emisión del Catastro Nacional no mayor a cinco años y en el cual se ubique exactamente la obra.
-g) Presentación de tres copias de los planos constructivos de conformidad con Reglamento para el Trámite de Visado de Planos para la Construcción. Decreto No 27967-MP-MP-MIVAH-S Reglamento de Construcciones y normativa conexa en materia de telecomunicaciones debidamente firmados por el profesional responsable.
-h) Alineamientos y afectaciones entendidos por las instituciones atinentes:
-Frente a Ruta Nacional MOPT.
-Frente a Ruta Cantonal Planificación Urbana
-Colindancia a Ríos y Quebradas INVU
-Colindancia a Pozos, Nacimientos y Humedales MINAE
-Afectación Servicios Eléctricos u otros ICE-CNFL- AyA
-i) La viabilidad Ambiental otorgada por la Secretaría Nacional Técnica Ambiental (SETFNA-MINAET). Presentar al respecto el Documento de Evaluación Ambiental
-j) Constancia de estar al día en el pago de impuestos de Bienes inmuebles y de otras tasas por servicios municipales
-k) Autorización de la Dirección General de Aviación Civil del MOPT.
-l) En caso de que exista afectación por alguna amenaza natural se solicitará un informe de la Comisión Nacional de emergencias, debiendo atender el solicitante las recomendaciones Técnicas que en él se incluyan.
-m) Póliza de responsabilidad civil a terceros al día
-n) Póliza de seguro de riesgos del trabajo
-o) Constancia de la CCSS donde se consigne estar al día con las obligaciones patronales
-p) Documentos fehacientes (fidedignos) de audiencia pública para informar a los vecinos al menos en un radio de 250 metros del sitio de instalación en el caso de torres, con el fin de garantizar la participación ciudadana previo a emitir actos que afecten la colectividad. Aportar adjunto fotografías, publicidad, registro de asistencia y firmas de los representantes de la empresa. En esta audiencia deben ponerse a disposición del público estudios técnicos y legales.
-q) Declaración jurada, otorgada ante notario público, en la que haga constar que las obras constructivas, en el caso de torres, se construirán para ser compartidas por un mínimo de tres emplazamientos de antenas y equipos.
-r) Otros datos técnicos solicitados como lista de requisitos.
+Artículo 27.—Son obligaciones además para los propietarios de las infraestructuras, de telecomunicaciones, las siguientes:
+a- Notificar y solicitar cualquier cambio que varíe el provecto o autorización municipal.
+b- Presentar en un plazo ocho días hábiles posteriores a la conclusión de lo obra el informe del profesional responsable en el que se acredite la ejecución conforme al proyecto, así como el cumplimiento estricto de las condiciones técnicas de ley, medidas corredoras y condiciones establecidas e impuestas en la licencia otorgada y prevista por la ley.
+c- Dar el mantenimiento necesario a las estructuras o instalaciones para asegurar la operación adecuada de éstas.d- Suspender de forma inmediata los trabajos y retirar las estructuras y/o equipos cuando así lo ordene la autoridad municipal competente, o las autoridades rectoras de la materia en telecomunicaciones dentro del plazo de tres días hábiles a partir de su comunicación.
+e- Cumplir con la señalización de torres, postes y estructuras de telecomunicaciones conforme con la normativa de Aviación Civil.
+f- Pagar y mantener al día la póliza de seguro por responsabilidad civil a terceros durante el tiempo que esté instalada la torre de telecomunicaciones.
+g- Dar aviso inmediato a la Municipalidad en caso de ser a su vez propietario de las estructuras y concesionario, de la cancelación o revocación de cualquier requisito o autorización otorgada por autoridad competente en materia de telecomunicaciones.
+h- Solicitar al Ministerio de Salud una medición de radiaciones no ionizantes emitidas desde su estructura de telecomunicaciones al inicio de operaciones, al instalar una nueva antena y posteriormente una vez al año para presentarla y adjuntarla al expediente municipal y-o para la renovación de patentes.
+i- (Derogado mediante sesión N° 117 del 24 de julio del 2012. En dicha sesión se indica lo siguiente: "...En aplicación a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos. Ley Nº 8220, artículo 4)...")
+j- Presentar un informe anual por parte de un Ingeniero Civil en el cual se certifique el estado estructural de la Obra constructiva (que sirve para construir) y el plan de mantenimiento y reparaciones necesarias, de igual manera se debe aportar documento que prueba que la póliza de daños a terceros se encuentra vigente.
+(Así corrida su numeración mediante sesión N° 117 del 24 de julio del 2012, que lo traspasó del antiguo artículo 25) al 27)
