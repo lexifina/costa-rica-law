@@ -37,3 +37,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 22 | 2012-07-12 | Decreto Ejecutivo 37226 (2012-07-12) |
 | 23 | 2012-07-19 | Decreto Ejecutivo 37259 (2012-07-19) |
 | 24 | 2012-07-24 | Decreto Ejecutivo 37247 (2012-07-24) |
+| 25 | 2012-07-24 | Decreto Ejecutivo 37246 (2012-07-24) |
