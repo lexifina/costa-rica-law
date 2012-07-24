@@ -15,3 +15,4 @@ Lista de Valores de Vehículos Automotores, Embarcaciones y Aeronaves
 | --- | --- | --- |
 | 1 | 2009-11-01 | la propia norma |
 | 2 | 2010-11-09 | Decreto Ejecutivo 36285 (2010-11-09) |
+| 3 | 2012-07-24 | SINALEVI (sin norma nombrada) |
