@@ -14,3 +14,4 @@ Aprueba medidas mínimas para regular adecuadamente las actividades temporales c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-07-06 | la propia norma |
+| 2 | 2012-07-24 | Acuerdo municipal 0 (2012-07-24) |
