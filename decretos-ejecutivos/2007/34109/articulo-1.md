@@ -1,5 +1,5 @@
-(Derogado)
 (Este decreto fue derogado por el artículo 6° del decreto ejecutivo N° 34871 del 28 de octubre de 2008)
+(La Sala Constitucional mediante resolución N° 010015 del 24 de julio de 2012, declaró inconstitucional este Decreto, en la medida que aplica “el cobro del tributo establecido en el artículo 9 de la Ley 7088 a la maquinaria de construcción.”)
 N° 34109
 LA PRIMERA VICEPRESIDENTA EN EJERCICIO
 DE LA PRESIDENCIA DE LA REPÚBLICA
