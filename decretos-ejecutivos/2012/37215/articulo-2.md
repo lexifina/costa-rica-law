@@ -1,0 +1,2 @@
+Artículo 2°- Modifíquese el número del transitorio único para que pase a ser el transitorio primero y adiciónese un transitorio segundo al Decreto Ejecutivo N° 37188, que dirá así:
+“Transitorio segundo: El Reglamento de Uniformes y Distintivos de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública, Decreto Ejecutivo N°32342 del 18 de febrero del 2005 y sus reformas, mantendrá su vigencia hasta el 31 de diciembre del 2012.”
