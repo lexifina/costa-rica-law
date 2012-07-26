@@ -1,0 +1,1 @@
+2º— Conceder permiso para no asistir a clases el día jueves 26 de julio de 2012 a los estudiantes de los centros educativos citados en el aparte anterior, que hayan participado de las actividades el día 25 de julio de 2012.
