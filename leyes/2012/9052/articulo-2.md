@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Queda autorizada la Municipalidad de Alajuela para construir, en dicha propiedad, las instalaciones necesarias para la operación de la terminal de transporte, así como todas las otras construcciones que estime conveniente para dar servicios a los usuarios, tales como locales comerciales y estacionamientos de vehículos; estos últimos podrán ser arrendados a terceros, tanto para su uso particular como para el subarriendo al público, en los precios que determine anualmente el Concejo Municipal.
