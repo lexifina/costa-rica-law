@@ -1,0 +1,1 @@
+Transitorio II.—Todos los beneficios aprobados que no se hubiesen terminado de cumplir se ajustarán a la equivalencia y condiciones establecidas en el presente, pudiendo cada beneficiado o beneficiada solicitar revisión de las condiciones que le han sido establecidas para el cumplimiento del beneficio para que le sean adaptadas a la presente normativa.

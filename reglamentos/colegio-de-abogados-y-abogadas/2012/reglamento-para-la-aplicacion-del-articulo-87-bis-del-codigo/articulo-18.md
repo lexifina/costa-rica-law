@@ -1,0 +1,1 @@
+Artículo 18.—Suspensión de la ejecución del beneficio. Otorgado el beneficio, si la persona beneficiaría acude a la vía judicial se suspenderá la ejecución del beneficio acordado, hasta tanto se tenga resolución jurisdiccional en firme.
