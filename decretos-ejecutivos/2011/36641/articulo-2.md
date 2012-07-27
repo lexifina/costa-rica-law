@@ -1,6 +1,7 @@
 Artículo 2º—Conformar un Comité Organizador, el cual decidirá sobre las sedes e instalaciones deportivas para la práctica de las diferentes disciplinas deportivas, así como todo lo relacionado al albergue de delegaciones, apoyo logístico y de la organización en general y estará integrado por las siguientes personas e instituciones:
 Presidente: Señor Johnny Araya Monge, Alcalde de San José.
-Vicepresidente: Señor Francisco Marín Monge, Presidente del Consejo Nacional del Deporte y la Recreación.
+Vicepresidente: Señor William Gerardo Corrales Araya, Ministro del Deporte y Presidente del Consejo Nacional del Deporte y la Recreación.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37232 del 27 de julio del 2012)
 Tesorero: Señor Óscar Alfaro Zamora, Diputado de la República.
 Secretario: Señor Jorge Arturo Villalobos Loaiza, Jefe de Relaciones Internacionales y Protocolo de la Municipalidad San José.
 Directora: Señora Alba Quesada Rodríguez, Directora del ICODER.

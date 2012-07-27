@@ -15,3 +15,4 @@ Declara de interés público los X Juegos Deportivos Centroamericanos y Conforma
 | --- | --- | --- |
 | 1 | 2011-07-13 | la propia norma |
 | 2 | 2012-01-18 | Decreto Ejecutivo 36964 (2012-01-18) |
+| 3 | 2012-07-27 | Decreto Ejecutivo 37232 (2012-07-27) |
