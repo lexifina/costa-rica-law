@@ -1,0 +1,4 @@
+CAPÍTULO II
+De los debates y deliberaciones
+Artículo 27º—La Presidencia Municipal concederá el uso de la palabra en el orden estricto en que lo soliciten los Regidores (as), Síndicos (as) y el Alcalde (sa) Municipal.
+Salvo los casos en que la ley o este Reglamento General fijen un lapso menor cada Regidor (a) Propietario o Suplente, y cada Síndico (a) Propietario o Suplente podrá referirse al asunto en discusión hasta por un término de cinco minutos la primera vez y por dos lapsos más, de los cuales, el primero será de tres minutos y el segundo será de dos minutos, este último si la situación lo amerita a juicio de la Presidencia Municipal. La Presidencia Municipal deberá pedirle a los participantes en un debate o deliberación en el Concejo Municipal que se concreten al punto en discusión y en caso de renuencia podrá retirarle el uso de la palabra.
