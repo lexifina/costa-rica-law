@@ -1,0 +1,1 @@
+Artículo 37.—Contrataciones de Recursos Externos. La Auditoría Interna podrá realizar la contratación de recursos externos para llevar a cabo los estudios especiales, los cuales deben ser previamente justificados. La Administración facilitará estas contrataciones, cumpliéndose para ello con los procesos de contratación establecidos.
