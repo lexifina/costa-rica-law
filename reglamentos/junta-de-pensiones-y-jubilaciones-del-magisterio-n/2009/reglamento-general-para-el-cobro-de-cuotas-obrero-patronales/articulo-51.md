@@ -1,10 +1,9 @@
-Artículo 51.—De los requisitos para formalizar un arreglo de pago: El Departamento Financiero Contable al recibir una solicitud de arreglo de pago, deberá llevar un expediente el cual deberá contener como mínimo los siguientes requisitos:
-a. Cuando la deuda alcance un rango hasta de ¢4.000.000,00, el saldo deberá ser cancelado en un plazo no mayor a los 18 meses, podrá ser autorizado por el jefe del Departamento Financiero Contable.
-b. Para los arreglos de pago entre ¢4.000.001,00 y ¢10.000.000,00, las instituciones deben cancelar el saldo en un plazo no mayor a veinticuatro meses. Estos serán autorizados por el Director Ejecutivo.
-c. Los arreglos de pago mayores a ¢10.000.000,00, deben cancelar el saldo en un plazo no mayor a treinta y seis meses. Estos serán autorizados por la Junta Directiva.
-d. Los montos o topes para definir los arreglos de pago serán modificados por la Dirección Ejecutiva anualmente, tomando como referencia el índice de precios al consumidor y se informarán a la Junta Directiva.
-e. Cancelar el pago de honorarios o costas legales si las hubiere.
-f. Suscripción de un documento en el que se formaliza el arreglo de pago, firmado por el representante legal de la institución y del Director Ejecutivo de la Junta de Pensiones, el cual detallará todas las condiciones del pacto.
+Artículo 51.—De los montos y plazos para formalizar un arreglo de pago:
+a. Cuando la deuda alcance un rango hasta de ¢4.189.600,00, el saldo deberá ser cancelado en un plazo no mayor a los 18 meses, podrá ser autorizado por el jefe del Departamento Financiero Contable.
+b. Para los arreglos de pago entre ¢4.189.601,00 y ¢10.474.000,00, las instituciones deben cancelar el saldo en un plazo no mayor a veinticuatro meses. Estos serán autorizados por el Director Ejecutivo.
+c. Los arreglos de pago mayores a ¢10.474.001,00, deben cancelar el saldo en un plazo no mayor a treinta y seis meses. Estos serán autorizados por la Junta Directiva.
+Los montos o topes para definir los arreglos de pago serán modificados por la Dirección Ejecutiva anualmente, tomando como referencia el índice de precios al consumidor y se informará a la Junta Directiva.
+El Centro Educativo debe cancelar el pago de honorarios o costas legales si las hubiere y proceder a la suscripción de un documento en el que se formaliza el arreglo de pago, el cual detallará todas las condiciones del pacto y debe ser firmado por el representante legal del Centro Educativo.
 A las instituciones que incumplan un arreglo de pago, se procederá según lo indicado en el artículo 52. Cuando una institución se encuentre amparada a un proceso de pago y solicite readecuar la deuda, por situaciones imprevistas y fuera de su alcance deberá demostrar mediante los documentos que así disponga a la Junta de Pensiones para que esta analice la solicitud.
 Los plazos para la cancelación de la deuda solo podrán ser modificados por indicación de la Dirección Ejecutiva. La solicitud de la institución deberá estar debidamente motivada y razonada vía escrita.
-(Así reformado mediante sesión ordinaria N° 011-2012 del 31 de enero del 2012)
+(Así reformado en sesión N° 083 del 30 de julio de 2012)
