@@ -1,0 +1,1 @@
+Artículo 3º— Sujeción a la Doctrina de Protección Integral. Los instrumentos de planificación y operativos conocidos en el seno del Consejo (políticas, planes, programas y proyectos) deben de considerar la Doctrina de Protección Integral.

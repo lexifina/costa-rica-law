@@ -1,0 +1,1 @@
+Artículo 20.—Comité Técnico Asesor. El Consejo dentro de las comisiones permanentes de trabajo nombrará una Comisión con el nombre de Comité Técnico Asesor, conformado por las personas asesoras que designe el Consejo y será coordinada por la Secretaría Técnica del Consejo

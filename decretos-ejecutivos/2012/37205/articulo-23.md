@@ -1,0 +1,3 @@
+Artículo 23.— Otras instancias coadyuvantes. El Consejo puede fortalecer su gestión por medio de invitación para la participación permanente o temporal de personas e instancias especiales, que no forman parte oficial de su conformación.
+La participación de otras instancias coadyuvantes, puede ser propuesta por cualquiera de sus miembros, y será consignada en agenda previa para su análisis y aprobación por parte del Consejo.
+La participación de una instancia invitada deberá ser acordada por el voto positivo de al menos dos terceras partes de las entidades que conforman el Consejo. Las instancias coadyuvantes, que participan en forma permanente o temporal, tienen voz, pero no tienen voto.
