@@ -14,3 +14,4 @@ Reglamento Interno de Organización y Funcionamiento de la Unidad Interna del Mi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-25 | la propia norma |
+| 2 | 2012-07-31 | Decreto Ejecutivo 37366 (2012-07-31) |
