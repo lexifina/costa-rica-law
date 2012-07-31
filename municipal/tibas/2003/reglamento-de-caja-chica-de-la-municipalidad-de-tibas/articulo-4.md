@@ -1,1 +1,0 @@
-Artículo 4º—La Jefatura de la Tesorería Municipal, es la responsable de la custodia del fondo fijo y responderá ante su superior jerárquico. El Alcalde Municipal podrá ordenar y/o realizar arqueos sorpresivos, revisiones, verificaciones, al fondo y documentos de Caja Chica, cuando lo considere necesario y en presencia de la Jefatura de la Tesorería Municipal.

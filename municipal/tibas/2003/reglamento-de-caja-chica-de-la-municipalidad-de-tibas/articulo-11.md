@@ -1,1 +1,0 @@
-Artículo 11.—La Jefatura de la Tesorería Municipal, no podrá aceptar ni tramitar pagos por bienes y servicios fraccionados que traten de eludir y/o evadir lo dispuesto en el artículo 10. La infracción a este Artículo será motivo de sanción conforme a las disposiciones contenidas en este Reglamento, en el Reglamento de Organización y Servicio de la Municipalidad y Leyes conexas.

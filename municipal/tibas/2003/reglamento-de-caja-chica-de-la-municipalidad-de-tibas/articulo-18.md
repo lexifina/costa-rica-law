@@ -1,1 +1,0 @@
-Artículo 18.—Todo arqueo de Caja Chica se realizará en presencia de la Jefatura de Tesorería o del funcionario que designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación si mantiene dudas sobre el resultado obtenido.

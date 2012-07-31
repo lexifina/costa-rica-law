@@ -1,3 +1,0 @@
-CAPÍTULO IV
-De los reintegros
-Artículo 14.—Los desembolsos hechos por la Caja Chica se reintegran semanalmente, o antes de este período si el fondo llegare a ser igual o mayor al 75% del fondo asignado. Para tal efecto la Jefatura de Tesorería presentará al Alcalde Municipal o Dirección Financiera el detalle de los egresos realizados, clasificados por cuentas de presupuesto y adjunta a dicho detalle los originales de los comprobantes de Caja Chica y las facturas o recibos originales con que cuenta, para que proceda a ordenar al Departamento de Contabilidad la emisión de cheque a nombre de la Jefatura de la Tesorería Municipal.

@@ -1,1 +1,0 @@
-Artículo 3º—El propósito de la Caja Chica, es solventar necesidades urgentes de bienes y servicios en forma ágil y oportuna, cuyo origen requiere del pago inmediato. No se deben cancelar por medio de Caja Chica, compras que se hayan efectuado al crédito.
