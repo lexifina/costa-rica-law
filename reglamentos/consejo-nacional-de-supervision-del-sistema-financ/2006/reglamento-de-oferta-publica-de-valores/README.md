@@ -18,3 +18,4 @@ Reglamento de Oferta Pública de Valores
 | 3 | 2010-09-17 | Reglamento 881 (2010-09-17) |
 | 4 | 2010-11-12 | Reglamento 890 (2010-11-12) |
 | 5 | 2011-01-07 | Reglamento 896 (2011-01-07) |
+| 6 | 2012-07-31 | Reglamento 986 (2012-07-31) |
