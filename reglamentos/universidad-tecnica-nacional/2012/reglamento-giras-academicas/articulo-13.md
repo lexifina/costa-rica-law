@@ -1,0 +1,1 @@
+Artículo 13.- Tampoco se permitirán visitas fortuitas de personas ajenas al grupo no contenidas en el artículo 10 de este Reglamento y que se unan al grupo de estudiantes y profesores en el lugar donde se realiza la gira.

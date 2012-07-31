@@ -1,0 +1,1 @@
+Artículo 6.-Cuando las giras deban ser programadas en horarios de otros cursos del mismo ciclo lectivo del plan de estudios, los responsables de las giras y los Directores correspondientes coordinarán lo pertinente para que el estudiante no se vea afectado por la pérdida de lecciones que ocasiona la gira.

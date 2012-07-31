@@ -1,0 +1,1 @@
+Artículo 31.- Cualquier participante de la gira podrá denunciar ante el Director respectivo el incumplimiento de las obligaciones del responsable de la gira, así como cualquier situación que considere impropia o inapropiada por parte de cualesquiera de los participantes en la gira.

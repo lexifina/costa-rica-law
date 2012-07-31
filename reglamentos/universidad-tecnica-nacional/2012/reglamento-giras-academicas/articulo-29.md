@@ -1,0 +1,1 @@
+Artículo 29.- La asistencia a cualquier gira tendrá carácter de obligatoriedad para todos los estudiantes y la ausencia a estas será considerada como no justificada, salvo 7 casos muy especiales y comprobados que a criterio del responsable de la gira respectivo puedan ser sustituidos por otro instrumento de evaluación.

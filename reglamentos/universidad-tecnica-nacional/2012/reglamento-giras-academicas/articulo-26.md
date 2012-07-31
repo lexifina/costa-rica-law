@@ -1,0 +1,1 @@
+Artículo 26.- Si por algún motivo especial un estudiante, una vez terminadas las actividades y sin la autorización del responsable de la gira, no regresa con el grupo, el responsable quedará exento de toda culpa.

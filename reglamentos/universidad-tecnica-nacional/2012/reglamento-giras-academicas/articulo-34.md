@@ -1,0 +1,1 @@
+Artículo 34.- Informar a los responsables de la gira sobre los trámites para la liquidación de viáticos, procedimiento en cuanto al uso del transporte institucional, equipo institucional, cuentas presupuestarias y códigos de los subprogramas presupuestarios.

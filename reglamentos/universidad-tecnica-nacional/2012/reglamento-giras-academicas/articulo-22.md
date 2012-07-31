@@ -1,0 +1,1 @@
+Artículo 22.- Es obligación del responsable de la gira propiciar el bienestar de los estudiantes y preparar con anticipación las condiciones de alojamiento y alimentación (reserva de hoteles, planeamiento de campamentos, sitios de comida, entre otras)

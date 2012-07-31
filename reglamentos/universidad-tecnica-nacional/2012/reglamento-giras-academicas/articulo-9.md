@@ -1,0 +1,1 @@
+Artículo 9.- Aprobado el plan de gira, el Director correspondiente deberá enviar la programación de giras al departamento respectivo con copia a la Dirección involucrada. Asimismo, deberá completar la boleta de uso de vehículo institucional, además de anexar la lista de participantes a la Unidad respectiva, por lo menos con ocho días previos a la ejecución de la gira.

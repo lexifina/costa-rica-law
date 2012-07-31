@@ -1,0 +1,1 @@
+Artículo 21.- En caso que el estudiante cometa una falta durante la gira, el responsable deberá levantar el acta correspondiente y presentar la respectiva denuncia de conformidad con los lineamientos del Régimen Disciplinario Estudiantil. En caso que se haya interpuesto alguna medida cautelar, esta denuncia deberá presentarse dentro de las veinticuatro horas hábiles siguientes.

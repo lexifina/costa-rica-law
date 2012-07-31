@@ -1,0 +1,1 @@
+Artículo 12.- No se permitirá la asistencia de personas invitadas, salvo los casos previstos en los incisos c) y d) del artículo 10 de este Reglamento. El responsable de la actividad definirá las funciones que justifiquen la participación de la persona invitada, previa autorización del Director correspondiente.

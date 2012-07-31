@@ -1,0 +1,1 @@
+Artículo 41.- Cualquier daño causado a los medios de transporte, infraestructura, equipo, componente natural u otro bien durante una gira, deberá ser asumido por el responsable directo del daño ocasionado, quien además deberá reponer el mismo.

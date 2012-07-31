@@ -1,0 +1,1 @@
+Artículo 19.- El responsable de la gira deberá entregar a sus estudiantes y al Director respectivo, el plan de trabajo de las giras con al menos quince días naturales 5 de antelación, para su respectivo conocimiento, preparación y discusión con los participantes.

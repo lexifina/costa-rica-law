@@ -1,0 +1,1 @@
+Artículo 30.- El estudiante podrá ser amonestado en forma verbal, escrita o retirado de la gira, cuando incurra en comentarios o acciones que puedan perjudicar la integridad y seguridad del grupo; sin perjuicio de las sanciones que se le puedan imponer de conformidad con el Reglamento de Régimen Disciplinario.
