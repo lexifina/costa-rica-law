@@ -1,7 +1,8 @@
 ANEXO 15
-Registro de pólizas tipo, nota técnica
-y servicios auxiliares conexos
-Documentación requerida para el registro de pólizas tipo, notas técnicas y servicios auxiliares conexos.
+Registro de pólizas comercializadas mediante contratos de adhesión, notas técnicas y servicios auxiliares conexos(*)
+(*)(Modificada su denominación por el aparte g) subaparte i) de la sesión N° 986 del 31 de julio de 2012)
+Documentación requerida para el registro de pólizas, comercializadas mediante contratos de adhesión, notas técnicas y servicios auxiliares conexos.
+(Así reformado el párrafo anterior por el aparte g) subaparte ii) de la sesión N° 986 del 31 de julio de 2012)
 I. BASE LEGAL
 A. LEY REGULADORA DEL MERCADO DE SEGUROS, LEY 8653
 1. En materia de registro de pólizas: Artículos 25, k y 29, d.
@@ -12,18 +13,21 @@ A. INFORMACIÓN GENERAL
 3. La nota técnica que ampara el producto cuyo registro se solicita.
 4. La documentación contractual.
 5. El dictamen jurídico que certifique el apego de la documentación contractual a lo previsto en la Ley 8653 y la normativa vigente.
+Cuando la póliza corresponda a un contrato tipo y el producto se encuentre referenciado a un producto ya registrado, deberá indicarse si el dictamen jurídico del producto registrado aplica para el que se comercializa como contrato tipo. En caso que no sea así, debe presentarse el dictamen jurídico correspondiente.
+(Así adicionado el párrafo anterior por el aparte g) subaparte iii) de la sesión N° 986 del 31 de julio de 2012)
 6. El análisis de congruencia entre la nota técnica y la documentación contractual.
 7. Información mínima para el registro de servicios auxiliares según lo dispuesto en el anexo 17. (Obligatorio en caso de que la póliza limite la libre elección del proveedor de servicios auxiliares para la reparación de daños).
 8. Descripción del canal de distribución del producto.9. En el caso de Productos de Seguro Autoexpedible los documentos señalados en los incisos 3), 4), 5) y 6) deberán acreditar el cumplimiento de las características definidas en el artículo 24 de la Ley Reguladora del Mercado de Seguros.
 III. REQUISITOS FORMALES PARA EL REGISTRO DE POLIZA DE SEGUROS
 1. La nota técnica que deberá ser firmada por un actuario. La carátula de dicha nota técnica se consignará la siguiente leyenda:
 “(Nombre del profesional) con cédula de identidad ____________, hago constar bajo mi responsabilidad profesional, que la metodología para la determinación de la prima, provisiones y demás elementos técnicos considerados en la presente nota técnica, se apega a lo previsto en la Ley Reguladora del Mercado de Seguros y la normativa vigente”.
-2. El contrato tipo el cual deberá ser firmado por el responsable de la elaboración del dictamen jurídico que lo sustenta.
+2. El modelo de contrato, el cual deberá ser firmado por el responsable de la elaboración del dictamen jurídico que lo sustenta.
+(Así reformado el punto anterior por el aparte g) subaparte iv) de la sesión N° 986 del 31 de julio de 2012)
 3. El dictamen jurídico que certifique el apego de la documentación contractual a lo previsto en la Ley Reguladora del Mercado de Seguros y la normativa vigente para el contrato de seguros. El documento deberá contener la siguiente leyenda:
 “(Nombre del profesional) con cédula de identidad __________ y código del Colegio de Abogados de Costa Rica _____________, hago constar bajo mi responsabilidad profesional, que la documentación contractual del producto denominado (nombre del producto) se apega a lo previsto en la Ley Reguladora del Mercado de Seguros, la normativa que regula el contrato de seguros y demás disposiciones aplicables”.
 4. El análisis de congruencia entre la nota técnica y la documentación contractual. Este documento será firmado tanto por el actuario encargado de la elaboración de la nota técnica, como por un abogado de la entidad, el cual deberá incluir al menos la siguiente leyenda:
 “Los que suscribimos (nombre del actuario) con cédula de identidad___________ y código _____________ y (nombre del abogado de la institución) con cédula de identidad___________ y código profesional _________, bajo nuestra responsabilidad profesional, hacemos constar que hemos verificado que las obligaciones asumidas en las condiciones contractuales del producto denominado (nombre del producto), se encuentran fielmente respaldadas mediante los métodos actuariales descritos en la nota técnica correspondiente” .
-5. Las entidades podrán solicitar un número de registro único para los productos de seguros que se ofrezcan al público como contratos de no adhesión. En este caso deberá remitirse los formatos o modelos generales que se utilizarán en este tipo de contratos y declararse con precisión cuáles cláusulas o conceptos son sujetos de variación durante el proceso de contratación. Si al celebrarse el contrato se modifica el proyecto de la documentación contractual previamente registrada la entidad deberá solicitar la sustitución del producto en el registro.
+5. (Derogado el punto anterior por el aparte g) subaparte v) de la sesión N° 986 del 31 de julio de 2012)
 IV. CONTENIDO MÍNIMO DE LA NOTA TÉCNICA
 A. CARACTERÍSTICAS DEL PRODUCTO
 a) Se deberán establecer las características técnicas y contractuales del producto.
@@ -32,11 +36,18 @@ c) Categoría y ramo al que corresponde el producto.
 d) Modalidades de contratación del producto: En el caso de seguros de vida, así como de accidentes y enfermedades, se deberán señalar las modalidades en que se podrá contratar el producto. Se entenderá que tales modalidades deben ser individual o colectivo.
 e) Característica especial del producto: En virtud que una misma institución puede registrar y operar dos o más productos que sean iguales en nombre y modalidad de contratación, deberá indicar si el producto tiene alguna característica especial que lo distinga de otro igual en nombre y modalidad de contratación.
 f) Temporalidad del producto: Se deberá indicar el número de años o fracción de tiempo que tendrá de vigencia el contrato. Se podrá indicar un número de años en concreto, un rango de valores, o una descripción genérica como “edad alcanzada”, “vitalicio”, “edad de retiro”, “multianual”, u otros.
-g) Tipo de contrato: Se deberá indicar si la nota técnica corresponde a un contrato de adhesión o de no adhesión.
+g) Tipo de contrato: Se deberá indicar que la nota técnica corresponde a un contrato de adhesión o a un contrato de adhesión en la modalidad de contrato tipo.
+(Así reformado el punto anterior por el aparte g) subaparte vi) de la sesión N° 986 del 31 de julio de 2012)
 B. DESCRIPCIÓN DE LAS COBERTURAS. Se deberán indicar los riesgos cubiertos, beneficios, plazos y demás aspectos técnicos que caracterizarán las formas de coberturas del producto:
 a) Descripción de la forma de cobertura básica: Se deberá dar una descripción clara del riesgo cubierto por la entidad, del tipo o tipos de bienes que se cubrirán, del beneficio o indemnización que se otorgará en caso de siniestro, así como cualquier circunstancia en que tales coberturas o beneficios puedan variar o modificarse durante la vigencia del seguro.
+En el caso de contratos tipo, deberá declararse si la cobertura principal es susceptible de negociación con el tomador del seguro, de ser así, deberá indicarse con precisión en cuáles aspectos es modificable.
+(Así adicionado el párrafo anterior por el aparte g) subaparte vii) de la sesión N° 986 del 31 de julio de 2012)
 b) Descripción de las coberturas adicionales: Se deberá indicar cada una de las coberturas adicionales y opcionales que incluirá el producto o que se podrán contratar mediante convenio expreso, así como el riesgo cubierto por la entidad, el bien que se cubre, y el beneficio o indemnización que se otorgará en caso de siniestro, en cada una de dichas coberturas.
+En el caso de contratos tipo, deberá declararse si las coberturas adicionales son susceptibles de negociación con el tomador del seguro, de ser así, deberá indicarse con precisión en cuáles aspectos son modificables.
+(Así adicionado el párrafo anterior por el aparte g) subaparte viii) de la sesión N° 986 del 31 de julio de 2012)
 c) Descripción de coberturas de servicios: Se deberá indicar el tipo de servicios que incluirá el producto como son: asistencia médica, jurídica, automovilística, en viajes, al hogar, u otras, así como las condiciones de su disfrute.
+En el caso de contratos tipo, deberá declararse si las coberturas de servicios son susceptibles de negociación con el tomador del seguro, de ser así, deberá indicarse con precisión en cuáles aspectos son modificables.
+(Así adicionado el párrafo anterior por el aparte g) subaparte ix) de la sesión N° 986 del 31 de julio de 2012)
 C. HIPÓTESIS TÉCNICAS. Para el cálculo de primas de riesgo y provisión de riesgos en curso:
 a) En el caso de los seguros del ramo de vida, se deberán indicar e incluir las hipótesis demográficas como son tablas de mortalidad, de morbilidad, incapacidad o cualquier otra, que se utilizarán para el cálculo de las primas de riesgo y provisiones de riesgos en curso.
 b) Para los seguros de accidentes y enfermedades, se deberán indicar e incluir las tablas de frecuencia, montos promedio, morbilidad, índice de siniestralidad o cualquier otra, que se utilizarán para el cálculo de las primas de riesgo, así como indicar su fuente.
@@ -98,7 +109,15 @@ b. Se deberá presentar la documentación contractual consolidada del producto p
 c. En la documentación contractual consolidada que se utilizará en el producto paquete, se deberá indicar en forma precisa las condiciones contractuales que serán de aplicación general a todas las coberturas y aquellas que serán de aplicación específica a cada una de las coberturas del producto paquete.
 d. El análisis de congruencia y el dictamen jurídico deberán realizarse en los mismos términos que para el registro de productos no considerados como productos paquete, y se presentarán al momento del registro.
 Tratándose de productos paquete integrados por productos que se encuentran previamente registrados, si alguna de las notas técnicas o documentación contractuales previamente registradas en que se basaron es modificada, la entidad deberá proceder en forma inmediata a realizar la actualización y sustitución del registro del producto paquete respectivo. En caso de que la entidad no realice la actualización mencionada, el producto paquete de que se trate se considerará revocado.
+En el caso de contratos tipo, si existe referencia a notas técnicas y documentación contractual de productos previamente registrados, se deberá especificar los aspectos contenidos en esa documentación que pueden ser negociados.
+(Así adicionado el párrafo anterior por el aparte g) subaparte x) de la sesión N° 986 del 31 de julio de 2012)
 VI. DOCUMENTACIÓN CONTRACTUAL. La documentación contractual de modelos de los contratos de adhesión y las cláusulas adicionales independientes se deberá presentar los documentos que formen parte de los mismos y que sean necesarios para su operación. Estos documentos comprenden: solicitudes, carátulas, certificados, consentimientos, cuestionarios, recibos de pago de primas y todos aquellos que deban ser firmados por el contratante o asegurado.
+(*)En el caso de productos comercializados como contratos tipo, además de lo indicado en el párrafo anterior deberá cumplirse lo siguiente:
+a. Aportar el formato o modelo general con todas sus cláusulas. Si el producto se encuentra referido al clausulado de un producto ya registrado, deberá hacerse una manifestación en ese sentido.
+b. Con base en el modelo aportado y en su contenido, indicar con precisión, cuáles cláusulas o conceptos son sujetos de variación durante el proceso de contratación.
+c. Especificar si las condiciones particulares para este producto corresponden a las del producto ya registrado. En caso que no sea así, debe aportarse el formulario de condiciones particulares correspondiente.
+d. Aclarar si el resto de la documentación contractual del producto registrado será utilizada para este producto. En caso que no sea así, debe aportarse la documentación correspondiente.
+(*)(Así adicionado el párrafo anterior por el aparte g) subaparte xi) de la sesión N° 986 del 31 de julio de 2012)
 1. En los seguros de Vida, de Accidentes y de Enfermedades que contengan el rubro para hacer la designación de beneficiarios, se deberá incluir un texto de advertencia en los siguientes términos:
 “Advertencia:
 En el caso de que se desee nombrar beneficiarios a menores de edad, no se debe señalar a un mayor de edad como representante de los menores para efecto de que, en su representación, cobre la indemnización.
@@ -148,4 +167,9 @@ d. Incluya los aspectos y cláusulas necesarias conforme a las disposiciones leg
 e. Concuerde plenamente con la nota técnica.
 9. Declaración de registro del producto. Debe consignarse en la carátula de la póliza, formato de solicitud, folleto explicativo en su caso, en la última página de las condiciones generales, certificados y endosos, que el producto que ofrece al público se encuentra registrado ante la Superintendencia, mediante la inclusión de la siguiente leyenda la cual deberá presentarse para efectos de registro:
 “La documentación contractual y la nota técnica que integran este producto, están registrados ante la Superintendencia General de Seguros de conformidad con lo dispuesto por el artículo 29, inciso d) de la Ley Reguladora del Mercado de Seguros, Ley 8653, bajo el(los) registro(s) número _______________ de fecha____________”.
+(*)10. En los contratos de adhesión negociados en la modalidad de contrato tipo, deberá agregarse la siguiente declaración:
+El presente es un contrato tipo donde las coberturas, exclusiones y demás términos contractuales han sido predeterminados por el asegurador con base en su experiencia y profesionalidad, sin detrimento de que las partes de común acuerdo puedan incluir bajo el principio de la libre negociación, aquellas cláusulas que se estimen convenientes según el tipo de riesgo y giro empresarial.
+(*)(Así adicionado el párrafo anterior por el aparte g) subaparte xii) de la sesión N° 986 del 31 de julio de 2012)
 VII. ANÁLISIS DE CONGRUENCIA. Para efecto de la elaboración del análisis de congruencia el actuario y el abogado de la entidad, que suscriban dicho análisis, deberán verificar que las obligaciones asumidas en las condiciones contractuales del producto se encuentren fielmente respaldadas mediante los métodos actuariales descritos en la nota técnica correspondiente. Adicionalmente, el referido análisis deberá detallar los aspectos contractuales más relevantes, que a juicio del actuario y del abogado, repercutan en el diseño técnico del plan o del contrato.
+Cuando la póliza corresponda a un contrato tipo y el producto se encuentre referenciado a un producto ya registrado, deberá indicarse si el análisis de congruencia del producto registrado aplica para el que se comercializa como contrato tipo. En caso que no sea así, debe presentarse el análisis de congruencia correspondiente.
+(Así adicionado el párrafo anterior por el aparte g) subaparte xiii) de la sesión N° 986 del 31 de julio de 2012)

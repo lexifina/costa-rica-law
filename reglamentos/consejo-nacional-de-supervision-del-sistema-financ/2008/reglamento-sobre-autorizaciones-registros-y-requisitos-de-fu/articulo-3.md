@@ -16,14 +16,14 @@ l) Comercio transfronterizo de seguros: Los definidos mediante una suscripción 
 m) Ley 8653: Ley Reguladora del Mercado de Seguros, Ley 8653.
 n) Oficial de cumplimiento: Según lo dispuesto en la Ley 8204, “Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, legitimación de capitales y actividades conexas”, y los reglamentos que regulan la materia.
 o) Participación en el capital social: El porcentaje de participación en el capital social de una entidad se determina como la suma de los siguientes porcentajes:
-i. El porcentaje de participación directa que tenga la persona física o jurídica en el capital social de la entidad.
-ii. El porcentaje de participación indirecta que tenga la persona física en el capital social de la entidad, a través de personas físicas, con participación directa o indirecta en el capital social de la entidad, con las que tenga relación de parentesco.
+i. El porcentaje de participación directa que tenga la persona física o jurídica en el capital social de la entidad.ii. El porcentaje de participación indirecta que tenga la persona física en el capital social de la entidad, a través de personas físicas, con participación directa o indirecta en el capital social de la entidad, con las que tenga relación de parentesco.
 iii. El porcentaje de participación indirecto que tenga la persona física o jurídica en el capital social de la entidad, a través de personas jurídicas, calculado como la multiplicación de los porcentajes de participación a lo largo de la línea de propiedad.
 iv. El porcentaje de participación indirecto que tenga la persona física o jurídica, en calidad de fideicomisario, en el capital social de la entidad, a través de fideicomisos u otros vehículos de similar naturaleza.
 v. Se entiende por capital social a las acciones comunes, las acciones preferentes y cualquier otro título representativo del capital social.
 p) Prima Pura o de riesgo: Es aquella necesaria para hacer frente a los costos derivados de la prestación, estimada con base en técnicas actuariales.
 q) Prima de inventario: Corresponde a la prima pura incrementada en el recargo para gastos previstos en la nota técnica.r) Prima comercial o de tarifa: Es aquella que paga el tomador del seguro. Incluye la prima pura, los gastos y otros recargos que correspondan de acuerdo a la nota técnica. Los recargos adicionales que no establezca la nota técnica y cualquier tributo creado por ley se cobrarán de forma independiente.
-s) Póliza Tipos: Documento que establece las condiciones generales y particulares del contrato de seguro que define los derechos y obligaciones de las partes relacionados con determinado seguro.
+s) Contrato tipo: Conjunto de disposiciones o cláusulas contractuales establecidas por la entidad aseguradora, o por ésta en conjunto con uno o más grupos de agentes económicos con intereses particulares, con el propósito de ofrecerlo, como póliza de seguro, en forma masiva y con cláusulas que permiten un margen de negociación a las partes.
+(Así reformado el inciso anterior por el aparte a) de la sesión N° 986 del 31 de julio de 2012)
 t) Recargo de seguridad: Costo adicional a la prima pura estimado sobre modelos actuariales a efecto de incorporar las desviaciones desfavorables futuras de siniestralidad. Normalmente se expresa como un porcentaje de la prima pura.
 u) Relación de parentesco: La relación de parentesco con el cónyuge y los ascendientes y descendientes hasta el segundo grado de consanguinidad o afinidad.
 v) Socio con participación relevante: Son socios con participación relevante en el capital social de la entidad los siguientes:
@@ -33,3 +33,9 @@ w) Solicitante: Persona que presenta una solicitud de autorización o registro p
 x) Superintendencia: Superintendencia General de Seguros creada por Ley 8653.
 y) Superintendente: Superintendente General de Seguros.
 z) Transformación de la entidad: Proceso mediante el cual una entidad supervisada modifica su objeto sea para especializarse en seguros personales o generales, en el caso de entidades mixtas, o para transformarse en una entidad mixta. En el caso de asociaciones cooperativas de seguros se transformen en sociedades anónimas.
+aa) Agente económico: Persona jurídica, pública o privada, partícipe de cualquier forma e actividad económica, como comprador, vendedor oferente o demandante de bienes o servicios, en nombre propio o por cuenta ajena, con independencia de que sean importados o nacionales, o que hayan sido producidos o prestados por él o por un tercero.
+(Así adicionado el inciso anterior por el aparte b) de la sesión N° 986 del 31 de julio de 2012)
+bb) Contrato de adhesión: conjunto de disposiciones o cláusulas contractuales predispuestas por la entidad aseguradora para ser comercializado como póliza de seguros en forma masiva y estandarizada.
+(Así adicionado el inciso anterior por el aparte b) de la sesión N° 986 del 31 de julio de 2012)
+cc) Contrato paritario o de libre discusión: Acuerdo obtenido de la libre discusión entre agentes económicos -que negocian en condiciones de igualdad y que, en virtud de ello, constituye un documento personalísimo que no es negociado de forma masiva.
+(Así adicionado el inciso anterior por el aparte b) de la sesión N° 986 del 31 de julio de 2012)
