@@ -1,0 +1,1 @@
+Artículo 29.- En todo momento, los órganos encargados de la instrucción y resolución, en cualquier fase del proceso, deberán observar el principio de objetividad, investigando o solicitando que se investigue no solo las circunstancias que permitan comprobar si la denuncia tiene mérito, sino también aquellas que eximan de responsabilidad al ofensor.

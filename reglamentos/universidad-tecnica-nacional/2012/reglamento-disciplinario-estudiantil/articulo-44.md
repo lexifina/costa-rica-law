@@ -1,0 +1,3 @@
+Sección V
+Procedimiento Sumario Disciplinario para Faltas Leves
+Artículo 44.- Inicio del Proceso. Recibida la denuncia correspondiente, el Director de Docencia realizará la notificación correspondiente al presunto ofensor y en la misma, lo citará a una audiencia oral que deberá realizarse en un plazo de cinco a los diez días hábiles siguientes de la recepción de la denuncia. Asimismo, en un plazo máximo de veinticuatro (24) horas deberá realizar la apertura del expediente disciplinario, resolver sobre cualquier medida cautelar y, de ser el caso, señalar al denunciante cualquier defecto que deba ser subsanado.

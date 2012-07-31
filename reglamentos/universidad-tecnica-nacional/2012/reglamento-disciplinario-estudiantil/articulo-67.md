@@ -1,0 +1,1 @@
+Artículo 67.- El Director de Docencia contará con ocho días naturales a partir de la recepción del recurso de revocatoria, para confirmar o revocar, en todo o en parte, la resolución, según lo considere.

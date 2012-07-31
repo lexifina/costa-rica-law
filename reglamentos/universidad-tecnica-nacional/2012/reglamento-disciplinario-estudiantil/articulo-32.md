@@ -1,0 +1,3 @@
+Sección II
+Medidas Cautelares
+Artículo 32.- En los casos de flagrancia, donde por la naturaleza de la falta se deba ejercer una acción que prevenga que la acción continúe, cualquier funcionario docente o administrativo de la UTN podrá ejercer medidas cautelares que no atenten contra la dignidad de la persona, con el solo fin de evitar mayores daños o para preservar la prueba. En estos casos en que exista una medida cautelar, la denuncia deberá ser presentada de manera inmediata, según lo dispuesto por este Reglamento y, de tratarse de un día no hábil, deberá presentarse a primera hora del siguiente día hábil.

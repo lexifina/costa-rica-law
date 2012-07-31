@@ -1,0 +1,1 @@
+Artículo 45.- Audiencia. En la audiencia oral, el Director de Docencia hará lectura de la denuncia y evacuará la prueba de cargo y de descargo correspondiente, también podrá solicitar cualquier prueba adicional que considere necesaria para la resolución de la causa.

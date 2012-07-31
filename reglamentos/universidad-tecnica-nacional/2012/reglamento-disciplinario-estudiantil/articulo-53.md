@@ -1,0 +1,1 @@
+Artículo 53.- Evacuación de Prueba de Cargo y de Descargo. Recibido el expediente disciplinario, la Comisión Disciplinaria tendrá catorce días hábiles para evacuar la prueba de cargo y descargo, y recabar otras pruebas para mejor proveer que le permitan de manera justificada concluir si existe mérito o no para la apertura del proceso disciplinario.

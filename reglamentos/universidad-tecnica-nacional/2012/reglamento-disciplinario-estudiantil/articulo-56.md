@@ -1,0 +1,1 @@
+Artículo 56.- Recalificación de la Falta. La calificación de la falta contenida en el documento de denuncia no exime a la Comisión de la obligación de recalificar la misma o incluir cualquier otra falta que considere se haya cometido, en los casos en que lo considere necesario.

@@ -1,0 +1,1 @@
+Artículo 12.- Cuando se aplica una suspensión, ésta imposibilita al estudiante a asistir a clases durante el período de vigencia de la misma y sus ausencias durante este período serán consideradas como injustificadas.

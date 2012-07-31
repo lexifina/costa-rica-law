@@ -1,0 +1,1 @@
+Artículo 42.- Para el levantamiento de actas de cualquier acto, el funcionario que lo practique deberá hacer constar el lugar y la fecha de su realización, la descripción del acto y la firma de quien la levanta y aquellos que intervinieron en el mismo, previa lectura del documento.

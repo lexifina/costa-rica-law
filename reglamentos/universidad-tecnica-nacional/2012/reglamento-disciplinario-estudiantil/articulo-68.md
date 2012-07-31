@@ -1,0 +1,1 @@
+Artículo 68.- Contra la resolución dada por el Director de Docencia al recurso de revocatoria, cabrá recurso de apelación ante la Vicerrectoría de Docencia. El mismo deberá presentarse dentro de los cinco días hábiles posteriores a la notificación de esta última resolución.

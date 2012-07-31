@@ -1,0 +1,1 @@
+Artículo 17.- En el caso de que el plagio, fraude o intento de fraude en pruebas de evaluación o la presentación falsa como de autoría o coautoría propia de una obra sea cometida en un trabajo final de graduación, la sanción conjunta será la suspensión de uno a tres años lectivos y la presentación de una nueva evaluación, trabajo o proyecto final.

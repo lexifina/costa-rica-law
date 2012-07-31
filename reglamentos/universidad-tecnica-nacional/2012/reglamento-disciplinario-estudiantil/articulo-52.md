@@ -1,0 +1,1 @@
+Artículo 52.- Comisión Disciplinaria. Corresponderá a la Comisión Disciplinaria, de conformidad con los lineamientos que se establecen a continuación, instruir el caso en un plazo máximo de quince días hábiles. Las decisiones de esta Comisión se tomarán por mayoría simple.

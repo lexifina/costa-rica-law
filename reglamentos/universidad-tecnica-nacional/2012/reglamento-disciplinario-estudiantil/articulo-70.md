@@ -1,0 +1,1 @@
+Artículo 70.- Mediante la resolución del recurso de apelación podrá declararse en firme la sentencia absolutoria o condenatoria o, revertir, en todo o en parte, el fallo. En caso de reversión de la pena, la nueva pena impuesta no podrá ser mayor a la dictada por la autoridad de la primera instancia. Esta resolución agotará la vía y por ello no tendrá recurso ulterior.

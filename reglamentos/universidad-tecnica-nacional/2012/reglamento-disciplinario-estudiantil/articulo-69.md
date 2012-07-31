@@ -1,0 +1,1 @@
+Artículo 69.- El recurso de apelación deberá ser resuelto dentro de un plazo de ocho días naturales por el Vicerrector de Docencia. Para ello, deberá solicitar una copia certificada del expediente disciplinario y podrá ordenar en cualquier momento de este plazo, prueba para mejor resolver.

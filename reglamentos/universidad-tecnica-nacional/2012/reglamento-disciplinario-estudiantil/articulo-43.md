@@ -1,0 +1,1 @@
+Artículo 43.- Del testimonio rendido por un testigo, en cualquier etapa del proceso, deberá consignarse un acta que contenga lo relatado por el mismo y que cuente con los requisitos establecidos en esta sección.

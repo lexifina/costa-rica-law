@@ -1,0 +1,1 @@
+Artículo 2.- Las disposiciones incluidas en el presente reglamento regirán en todas las sedes, centros y programas de la Universidad Técnica Nacional. Asimismo, se aplicará en los lugares en los que se realicen giras, laboratorios, prácticas profesionales, acciones y actividades de los estudiantes, relacionadas con su actividad académica, que comprometan el prestigio de la UTN.

@@ -1,0 +1,1 @@
+Artículo 33.- Recibida la denuncia correspondiente, el Director de Docencia deberá resolver de manera justificada, basado en razones de hecho y de derecho, y en un plazo máximo de veinticuatro (24) horas hábiles, si mantiene la medida, la revoca o la modifica por un período no mayor a la duración total del proceso disciplinario.

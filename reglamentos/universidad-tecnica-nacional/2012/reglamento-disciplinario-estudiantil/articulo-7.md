@@ -1,0 +1,16 @@
+Artículo 7.- Son faltas graves:
+a) El incumplimiento intencional de normas y procesos de matrícula con el objetivo de alterar o entorpecer los mismos.
+b) Cometer o intentar cometer fraude en la aplicación de instrumentos de evaluación mediante la utilización o posesión de material de apoyo no autorizado durante la prueba o el copiar de otro estudiante las respuestas. En este caso se sancionará también a aquel estudiante que facilite dolosamente el fraude, suministrando las respuestas del instrumento de evaluación.
+c) Presentarse al recinto universitario, residencias estudiantiles, o cualquier lugar donde se lleven a cabo actividades institucionales bajo los efectos del alcohol, estupefacientes, psicotrópicos o psicofármacos no prescritos a su persona.
+d) Fumar en el recinto universitario, residencias estudiantiles, o cualquier otro lugar donde se lleven a cabo actividades institucionales.
+e) Amenazar por cualquier medio a docentes, estudiantes o personal universitario, a propósito de su condición como estudiante, docente o personal de la UTN, dentro o fuera de los recintos universitarios, residencias estudiantiles, o cualquier otro lugar donde se lleven a cabo actividades institucionales.
+f) Cometer actos de injurias, calumnias, difamación o agresión verbal, por cualquier medio, contra docentes, estudiantes o personal universitario dentro o fuera de los recintos universitarios, a propósito de su condición como estudiante, docente o personal de la UTN. Para iniciar el proceso disciplinario en estos casos es necesario la presentación de la denuncia por parte del afectado, ante la autoridad correspondiente.
+g) Utilizar, sin previa autorización de la autoridad correspondiente, las instalaciones y recursos de la UTN, para fines que no estén relacionados con la actividad académica.
+h) Atribuirse sin autorización la representación de la UTN en cualquier tipo de actividades.
+i) Hurtar, robar o dañar deliberadamente bienes muebles o inmuebles, tangibles o intangibles, productivos o semovientes, pertenecientes a la UTN o de los cuales la UTN tiene posesión será considerado como falta grave si el valor del bien no excede el monto de un salario mínimo vigente al momento de la comisión de la falta.
+j) Hurtar, robar y/o dañar deliberadamente bienes pertenecientes a los estudiantes o al personal docente y/o administrativo será considerado como falta grave si el valor del bien no excede el monto de un salario mínimo vigente al momento de la comisión de la falta.
+k) Constituirá también una falta grave la sola tentativa de realizar el hurto, robo o daño sobre el bien cuyo valor no exceda el monto de un salario mínimo.
+l) Dentro de las residencias universitarias y de conformidad con el Reglamento de Residencias Estudiantiles:
+l.1) Hacer cambios de ubicación en casas o cuartos tanto de estudiantes como de equipos y mobiliario sin la debida autorización del Encargado de Residencias.
+l.2) Rayar las paredes, destruir la pintura o pintar rótulos en los edificios de residencias.
+La comisión de tres o más faltas graves en concurso material o la reincidencia en dos o más ocasiones en la misma falta o en cualquiera de las estipuladas en este artículo y en un mismo año académico, será considerada como falta muy grave.

@@ -1,0 +1,1 @@
+Artículo 61.- Recepción de Prueba. A partir del día siguiente de la notificación al presunto ofensor, el Director de Docencia tendrá ocho días hábiles para analizar la prueba de cargo y descargo, así como cualquier otra prueba que considere necesaria para mejor resolver.

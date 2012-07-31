@@ -1,0 +1,1 @@
+Artículo 23.- La reincidencia en la misma falta o la comisión de tres o más faltas de la misma gravedad, en concurso material o en diferentes ocasiones en un mismo ciclo lectivo, así como la doble condición de funcionario y estudiante de la UTN, constituyen agravantes de la falta.

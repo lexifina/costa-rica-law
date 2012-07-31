@@ -1,0 +1,1 @@
+Artículo 10.- La regulación de las faltas disciplinarias aquí contenida no exime al estudiante de la responsabilidad civil, penal o laboral que de las faltas pueda derivarse, en cuyo caso deberá tenerse presente el principio non bis in idem para la aplicación de las sanciones contenidas en este cuerpo normativo.
