@@ -1,9 +1,0 @@
-Artículo 4. Atribuciones de la Contraloría de Servicios
-Corresponde a la Contraloría de Servicios
-a) Establecer un modelo que le permita evaluar y diagnosticar los servicios que brinda el Grupo Financiero INS, que permita efectuar un control con el tipo de gestiones planteadas por los usuarios, así como el seguimiento, resolución y respuesta generada sobre las gestiones, de modo que pueda fiscalizar que las unidades técnicas apliquen las acciones correctivas pertinentes.
-b) Procesar la recepción de las sugerencias, reclamos, quejas y denuncias, con el fin de determinar cuáles ameritan ser elevadas a las Gerencias del Grupo Financiero INS o ser canalizadas por medio de las jefaturas correspondientes.
-c) Fomentar para los usuarios del Grupo Financiero INS, la eficacia, eficiencia y la celeridad en los canales de comunicación de modo que se logre la excelencia en la prestación de los servicios, a los cuales tienen derecho los usuarios, a través de un Plan de Comunicación.
-Asimismo, creará y/o mantendrá los indicadores de gestión que indiquen las necesidades de los servicios que brinda el Grupo Financiero INS, con el fin de focalizar las correcciones o mejoras pertinentes y disminuir los reclamos y futuras quejas.
-d) Promover ante las Gerencias del Grupo Financiero INS la simplificación de los procedimientos que permitan eliminar todas las regulaciones, trámites, requisitos y pasos innecesarios, los traslapes de competencia y las contradicciones, salvo los establecidos expresamente en una ley.
-e) Buscar mediante la implementación de un sistema de cuestionarios dirigidos a los usuarios, la identificación de los obstáculos que impidan que el Grupo Financiero INS les brinde servicios de calidad y eficiencia.
-f) Hacer del conocimiento de las Gerencias del Grupo Financiero INS, las debilidades irresolutas que afectan la calidad de la prestación de los servicios que ofrece la Institución.

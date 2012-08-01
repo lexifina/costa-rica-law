@@ -1,2 +1,0 @@
-Artículo 9º—Plazo de resolución. La Contraloría de Servicios del Grupo Financiero INS, deberá atender las solicitudes presentadas por los gestionantes y usuarios en un plazo no mayor a cinco días hábiles, en caso de que se requiera de tiempo adicional por motivos de investigación, el Contralor(a) dejará constancia de las razones en el expediente del caso y lo informará al gestionante.
-En caso de que el requerimiento presentado se traslade a otra dependencia para su atención, esto será comunicado al gestionante.

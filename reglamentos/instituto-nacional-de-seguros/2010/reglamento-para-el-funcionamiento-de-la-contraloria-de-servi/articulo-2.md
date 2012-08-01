@@ -1,3 +1,0 @@
-Artículo 2º—Definiciones:
-Usuario: Aquella persona que utiliza los servicios que brinda el Grupo Financiero INS.
-Grupo Financiero INS: Conjunto de Sociedades que realizan actividades financieras, constituidas como Sociedades Anónimas o como Entes de naturaleza Cooperativa, sometidas a control común, gestión común o vinculación funcional, y organizado y registrado conforme lo establece la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, Ley de Protección al Trabajador, el artículo 8 de la Ley 8653, Ley Reguladora del Mercado de Seguros, y este Reglamento. Actualmente está constituida por INS Inversiones SAFI; INS Pensiones, OPC, S. A.; INS Valores Puesto de Bolsa, S. A. e Insurance Servicios, S. A.
