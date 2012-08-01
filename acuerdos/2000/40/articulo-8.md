@@ -1,1 +1,0 @@
-Artículo 8°—Carácter confidencial del informe complementario. El informe complementario tendrá el carácter de confidencial; sin perjuicio de las facultades de la Superintendencia General de Valores para solicitar al emisor o sujeto fiscalizado la comunicación al mercado de información que éste contenga cuando considere que constituye un hecho relevante.

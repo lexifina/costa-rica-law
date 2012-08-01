@@ -1,1 +1,0 @@
-Artículo 6°—Observaciones generales para la redacción de los hallazgos. La redacción de las observaciones debe realizarse conforme a las prácticas usuales de reportes de hallazgo establecidos en las Normas de Auditoría.
