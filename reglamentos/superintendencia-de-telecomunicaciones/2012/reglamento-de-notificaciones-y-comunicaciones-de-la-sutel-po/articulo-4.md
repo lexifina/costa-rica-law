@@ -1,0 +1,1 @@
+Artículo 4: Notificación realizada: El notificado se tendrá por notificado a partir del día siguiente del envío de la comunicación, es decir, en el momento en que el funcionario designado, pulse la opción de envío en el sistema y quede registrada en el buzón de enviados del funcionario que notifica.

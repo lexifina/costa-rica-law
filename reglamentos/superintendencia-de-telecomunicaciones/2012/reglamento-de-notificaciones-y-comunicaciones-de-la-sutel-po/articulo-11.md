@@ -1,0 +1,1 @@
+Artículo 11: Notificación incompleta: En caso de que el contenido del acto notificado electrónicamente esté incompleto, la parte notificada, deberá comunicarlo por la vía telefónica dentro de las veinticuatro horas hábiles siguientes al recibo de la notificación a la Unidad de Gestión Documental, la cual dejará constancia de lo anterior y procederá conforme a derecho.

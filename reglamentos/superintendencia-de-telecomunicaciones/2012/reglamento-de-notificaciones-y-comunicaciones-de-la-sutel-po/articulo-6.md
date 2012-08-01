@@ -1,0 +1,1 @@
+Artículo 6: Responsabilidad del interesado: La recepción de las notificaciones y comunicaciones relativas a los actos administrativos de esta Superintendencia mediante correo electrónico, correrá por cuenta y bajo exclusiva responsabilidad del interesado.

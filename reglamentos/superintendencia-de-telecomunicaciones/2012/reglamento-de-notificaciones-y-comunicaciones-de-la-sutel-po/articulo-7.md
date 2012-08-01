@@ -1,0 +1,1 @@
+Artículo 7: Consulta de cuentas: Las cuentas de correo autorizadas podrán ser consultadas por todos los funcionarios de la SUTEL, a efecto de determinar si el correo electrónico que señala un administrado como medio para recibir notificaciones está autorizado para dicho fin.

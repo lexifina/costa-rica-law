@@ -1,0 +1,1 @@
+Artículo 2: Excepciones: Se exceptúa del uso de correo electrónico, las notificaciones y comunicaciones determinadas en el artículo 19 de la Ley de Notificaciones Judiciales y el artículo 243, inciso 4) de la Ley General de la Administración Pública; así como lo actos que de conformidad con esta ley requieran publicación.

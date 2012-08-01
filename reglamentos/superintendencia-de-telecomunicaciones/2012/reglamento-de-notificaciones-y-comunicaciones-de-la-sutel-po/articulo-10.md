@@ -1,0 +1,1 @@
+Artículo 10: Error en la notificación: Si por error se enviara una notificación electrónica a un destinatario que no corresponde, la Unidad de Gestión Documental deberá proceder a remitir la notificación electrónica a la dirección electrónica correcta. A partir de ese momento, se tendrá por efectuada la notificación.

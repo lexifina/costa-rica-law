@@ -1,0 +1,2 @@
+Procedimiento para realizar notificaciones y comunicaciones por correo electrónico
+Artículo 8: Centralización de las notificaciones: La Unidad de Gestión Documental de la Dirección General de Operaciones será la encargada de realizar las notificaciones y comunicaciones por correo electrónico. En caso que algún otro funcionario deba efectuar una notificación o comunicación por correo electrónico, deberá consultar la lista oficial y apegarse al procedimiento aquí descrito.

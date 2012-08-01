@@ -1,0 +1,1 @@
+Artículo 12: Interrupción del sistema: Si el proceso de transmisión se interrumpe por cualquier motivo, cuando éste se restablezca, la Unidad de Gestión Documental deberá verificar en el sistema cuáles notificaciones no fueron transmitidas, para proceder de inmediato a realizar su transmisión.

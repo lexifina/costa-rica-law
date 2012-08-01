@@ -1,0 +1,3 @@
+Recepción de documentos por medios electrónicos
+Artículo 13: Recepción de documentos: Los interesados podrán utilizar el correo electrónico notificaciones@sutel.go.cr para presentar sus solicitudes y recursos, siempre que remitan el documento original dentro de los tres días hábiles siguientes, en cuyo caso la presentación de la petición o recurso se tendrá como realizada en el momento de recibida la primera comunicación.
+Para el caso de procedimientos de contratación administrativa, se deberán cumplir los plazos y procedimientos establecidos en la Ley General de Contratación Administrativa, Ley 7494 y su Reglamento.
