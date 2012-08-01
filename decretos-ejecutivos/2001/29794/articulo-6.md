@@ -1,2 +1,1 @@
-Artículo 6º—Modifíquese el párrafo primero del artículo 12 del Decreto Ejecutivo Nº 25439-MP-TUR, para que diga:
-"Corresponde a la Junta Directiva, autorizar los traspasos totales o parciales, la hipoteca y fideicomiso de concesiones previo informe del Consejo Director. Los adquirentes deberán reunir todos los requisitos para ser concesionarios, salvo el caso de cesiones para uso habitacional individual y a favor de sujetos físicos, así como para el caso de adjudicatarios de remates de concesiones otorgadas en garantía."
+Artículo 6º—(Derogado por el artículo 2° de decreto ejecutivo N° 37701 del 1° de agosto del 2012)

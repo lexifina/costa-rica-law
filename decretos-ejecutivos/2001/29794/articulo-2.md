@@ -1,1 +1,2 @@
-Artículo 2º—En caso de que se proceda a la ejecución de una garantía que pese sobre un derecho de concesión, se tendrá como nuevo concesionario a quien resulte adjudicatario de la misma.
+Artículo 2. En caso que se proceda con la ejecución de una garantía que pese sobre una concesión del Polo Turístico Golfo de Papagayo, quien resulte adjudicatario de la misma se tendrá como nuevo titular de la concesión y deberá comprobar ante el Instituto Costarricense de Turismo que cumple todos los requisitos impuestos por la normativa para ser concesionario dentro del Polo Turístico Golfo de Papagayo, salvo en el caso del acreedor ejecutante regulado en el artículo 7º del presente Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37701 del 1° de agosto del 2012)

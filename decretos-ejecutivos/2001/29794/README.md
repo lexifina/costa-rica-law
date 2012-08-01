@@ -15,3 +15,4 @@ Reglamento Regula el otorgamiento de las garantías reales que graven las conces
 | --- | --- | --- |
 | 1 | 2001-09-19 | la propia norma |
 | 2 | 2002-02-21 | Decreto Ejecutivo 30259 (2002-02-21) |
+| 3 | 2012-08-01 | Decreto Ejecutivo 37701 (2012-08-01) |
