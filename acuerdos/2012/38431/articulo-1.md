@@ -1,0 +1,5 @@
+CONSEJO NACIONAL DE PRODUCCIÓN
+Acuerdo de Junta Directiva # 38431, Artículo 3°, de la Sesión Ordinaria # 2844, celebrada el día 20 de junio de 2012.
+SE ACUERDA:
+Tomando en consideración el estudio técnico elaborado por el Área de Análisis de Políticas Agropecuarias de la Dirección de Planificación “Estimación de tarifas de servicios en Plantas, mayo del 2012”; remitido con oficios AAPA-032, 038 y 044-12 de 18-05-12 y 08 y 19-06-12, respectivamente; para la venta de servicios de almacenamiento, secado, secado y almacenamiento, limpieza de granos, descascarado de maní, uso de romana camionera y de silos en las plantas del CNP, la recomendación formulada por la Dirección Administrativa Financiera, Dirección de Planificación, Administradores de Planta La China y Silos Barranca se dispone:
+a) Derogar el acuerdo tomado en el artículo 8º de la Sesión Ordinaria Nro. 2801 del 11 de mayo del 2011, correspondiente a las tarifas aprobadas por la Junta Directiva para servicios que se brindan en las plantas de la Institución.
