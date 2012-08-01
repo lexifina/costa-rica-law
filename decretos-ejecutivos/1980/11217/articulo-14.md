@@ -1,2 +1,4 @@
-Artículo 14.—La reservación para que sea válida, deberá ser confirmada por escrito, y se considerará como una promesa del contrato de hospedaje turístico, sujeta al cumplimiento de los requisitos del contrato.
+Artículo 14. La reservación para que sea válida, deberá ser confirmada por escrito, y se considerará como una promesa del contrato de hospedaje turístico, sujeta al cumplimiento de los requisitos del contrato.
 Junto con la solicitud de reservación, las empresas podrán exigir el pago anticipado de parte del monto a pagar.
+La confirmación de reservación debe incluir la siguiente información: categoría del establecimiento, precios, descripción del servicio (tipo de habitación, alimentación o cualquier otro servicio que se contrate), forma de pago, forma de reservar válidamente, políticas de cancelación, hora de ingreso y hora de salida, de conformidad con el Artículo 24 del presente Reglamento; así como otra información que la empresa de hospedaje considere oportuno que el cliente conozca.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 37471 del 1° de agosto del 2012)

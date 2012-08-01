@@ -1,1 +1,1 @@
-Articulo 15.-Salvo acuerdo diverso entre las partes, o política en contrario de la empresa, el anticipo a que se refiere el artículo anterior será el equivalente a la tarifa de un día, si la reserva se realizare para una ocupación inferior a diez días, y el equivalente a la tarifa de un día por los primeros diez días y el del uno más por cada cinco días adicionales, si la reserva se realizare para una ocupación superior a los diez días.
+Articulo 15.-(Derogado por el artículo 9° del decreto ejecutivo N° 37471 del 1° de agosto del 2012)

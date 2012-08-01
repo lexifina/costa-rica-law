@@ -18,3 +18,4 @@ Reglamento Empresas Hospedaje Turístico
 | 3 | 2007-07-11 | Decreto Ejecutivo 33972 (2007-07-11) |
 | 4 | 2008-07-08 | Decreto Ejecutivo 34717 (2008-07-08) |
 | 5 | 2011-04-26 | Decreto Ejecutivo 36660 (2011-04-26) |
+| 6 | 2012-08-01 | Decreto Ejecutivo 37471 (2012-08-01) |
