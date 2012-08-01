@@ -17,3 +17,4 @@ Creación de las Oficinas de Comunicaciones Judiciales y Otras Comunicaciones
 | 3 | 2012-05-01 | Circular 54 (2012-04-27) |
 | 4 | 2012-05-01 | Circular 0 (2012-04-27) |
 | 5 | 2012-06-28 | Circular 94 (2012-06-28) |
+| 6 | 2012-08-01 | Circular 108 (2012-08-01) |
