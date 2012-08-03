@@ -1,0 +1,6 @@
+Artículo 7°—De las actas, los acuerdos y el quórum:
+De todas las sesiones de la Secretaría Técnica se levantará acta, la cual será sometida a la aprobación en la primera parte de la siguiente sesión. En ésta se consignará al menos los nombres de los asistentes, la agenda del día, un extracto de la discusión y transcripción literal de los acuerdos tomados, fechas de cumplimiento y responsables. Las actas serán firmadas por el Presidente y el Secretario designados.
+Las ponencias de los integrantes serán discutidas e integradas al acta.
+Los votos serán públicos y se consignarán por escrito en el acta correspondiente. Cuando alguno de los participantes deseé razonar su voto sobre un punto en particular, su razonamiento será consignado en el acta y deberá dejar copia electrónica o impresa de la misma.
+El quórum lo conforman tres miembros. Los acuerdos se toman por simple mayoría, constituida por la mitad más uno de los miembros presentes. En caso de empate, el asunto será puesto nuevamente a votación, quince minutos después. De continuar el empate, el Presidente de la Secretaría Técnica tendrá voto de calidad. Los acuerdos podrán declararse en firme si así se acordare en el momento de su aprobación.
+Una vez firme el acuerdo se remitirá el mismo a la Comisión Nacional Marina para que ésta refrende o no los acuerdos sometidos a su conocimiento.

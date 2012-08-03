@@ -1,0 +1,2 @@
+Artículo 6º—De las audiencias:
+La Secretaría Técnica podrá dar audiencias durante las sesiones a quienes lo soliciten formalmente por escrito y notificará por escrito su acuerdo al interesado. Del mismo modo recibirá a organizaciones públicas o privadas, funcionarios o personas a quienes convoque formalmente para realizar consultas, o cualquier otro requerimiento dentro de su marco de competencias.
