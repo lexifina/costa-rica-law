@@ -15,3 +15,4 @@ Reglamento para la negociación de convenciones colectivas en el Sector Público
 | --- | --- | --- |
 | 1 | 2001-06-15 | la propia norma |
 | 2 | 2002-06-17 | Decreto Ejecutivo 30582 (2002-06-17) |
+| 3 | 2012-08-03 | Decreto Ejecutivo 37283 (2012-08-03) |
