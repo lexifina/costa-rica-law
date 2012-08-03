@@ -1,0 +1,1 @@
+Artículo 47.- Firme el acto administrativo que declará la existencia de la deuda tributaria, en caso de que el contribuyente no haya hecho el pago, la deuda será ejecutada conforme al artículo 12 de este Reglamento.

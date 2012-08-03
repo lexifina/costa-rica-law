@@ -1,0 +1,1 @@
+Artículo 21.- El sujeto pasivo podrá solicitar la compensación, pero podrá aplicarla hasta que haya sido aceptada mediante resolución de la Municipalidad, retrotrayéndose la compensación al momento del surgimiento del crédito.

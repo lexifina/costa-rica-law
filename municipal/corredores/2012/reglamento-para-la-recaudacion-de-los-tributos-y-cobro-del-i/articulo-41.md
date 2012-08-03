@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Sobre el impuesto a la venta de la producción de palma
+Artículo 41.- A los efectos del artículo trece de la ley siete mi ciento treinta y nueve, todo productor de palma producida en el Cantón de Corredores, deberá presentar a la Municipalidad, dentro de los primeros quince días de cada mes, una declaración jurada, en los formularios respectivos, en donde consigne la cantidad total de hectáreas de tierra sembrada de palma, la cantidad total de fruta producida en el mes anterior, así como el valor de venta efectivo de cada tonelada. Dichos formularios serán confeccionados y entregados por la Municipalidad.

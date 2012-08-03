@@ -1,0 +1,1 @@
+Artículo 36.- La ejecución del cierre material podrá ser realizada a cualquier hora del día como mejor convenga a los intereses fiscales, pero de preferencia se efectuará en horas en que hubiere el menor número de personas dentro del establecimiento. La Municipalidad podrá habilitar horas inhábiles de conformidad con la Ley General de la Administración Pública.

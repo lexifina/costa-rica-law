@@ -1,0 +1,1 @@
+Artículo 42.- La Municipalidad, por medio del departamento correspondiente, podrá requerir a los productores de palma, la documentación que considere pertinente a efectos de determinar la veracidad de la información consignada en la declaración jurada.
