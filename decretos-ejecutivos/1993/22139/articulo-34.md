@@ -6,7 +6,9 @@ ch) Agredir, verbalmente o por escrito, a los demás privados o privadas de libe
 d) Establecer relaciones de explotación física, sexual o laboral con otros privados o privadas de libertad.
 e) Realizar prácticas sexuales que afecten la dinámica institucional.
 f) Ingresar o permanecer en el Centro en estado de ebriedad o bajo los efectos de sustancias psicotrópicas.
-g) Introducir, poseer, fabricar, consumir, suministrar o expender licor, drogas u otras sustancias y productos no autorizados.
+g) Mantener en su poder más dinero del monto superior que la Administración Penitenciaria pague como incentivo económico a la población privada de libertad, de conformidad con lo establecido en el Reglamento de Requisa de Personas e Inspección de Bienes en el Sistema Penitenciario Nacional.
+Para este último caso, además de la sanción que corresponda aplicar, el dinero decomisado será depositado por la Administración del Centro Penitenciario en una cuenta del sistema bancario nacional, para ser devuelto al privado de libertad al finalizar la pena, comunicando a la Dirección Administrativa y a la Dirección Financiera del Ministerio de Justicia y Paz.
+(Así reformado el inciso g) anterior por el artículo 4° del decreto ejecutivo N° 37275 del 3 de agosto del 2012)
 h) Introducir, poseer, fabricar, suministrar o utilizar objetos punzocortantes, armas o explosivos.
 i) Amenazar a sus compañeros o compañeras, personal del Centro o visitantes.
 j) Sustraer, vender, adquirir u ocultar ilegítimamente pertenencias de otros privados o privadas de libertad, del personal del Centro, de los visitantes o de la institución.
@@ -18,4 +20,4 @@ n) Brindar información falsa al personal de la institución o inducir a otros a
 ñ) Violar las disposiciones referentes a la visita o inducir a otros a que lo hagan.
 o) Incumplir con las pautas establecidas en su ubicación laboral, ya sea porque hizo abandono del trabajo o porque ejecutó cambio laboral sin comunicación previa al personal del Centro u oficina.
 p) Resistirse u obstaculizar la requisa de personas y las inspecciones de bienes que se realicen en el Centro.
-(Así reformado el inciso p) de este artículo mediante el artículo 33 del Decreto Ejecutivo No. 25882, del 20 de febrero de 1997).
+(Así reformado el inciso p) de este artículo mediante el artículo 33 del Decreto Ejecutivo No. 25882, del 20 de febrero de 1997)

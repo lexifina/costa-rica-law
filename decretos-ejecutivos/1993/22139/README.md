@@ -17,3 +17,4 @@ Reglamento sobre Derechos y Deberes de los Privados y Privadas de Libertad
 | 2 | 1997-02-20 | Decreto Ejecutivo 25882 (1997-02-20) |
 | 3 | 2005-10-03 | Decreto Ejecutivo 32724 (2005-10-03) |
 | 4 | 2007-07-11 | Decreto Ejecutivo 33876 (2007-07-11) |
+| 5 | 2012-08-03 | Decreto Ejecutivo 37275 (2012-08-03) |
