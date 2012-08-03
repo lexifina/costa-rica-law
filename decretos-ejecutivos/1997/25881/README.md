@@ -14,3 +14,4 @@ Reglamento de Visita a Centros del Sistema Penitenciario Costarricense
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-03-31 | la propia norma |
+| 2 | 2012-08-03 | Decreto Ejecutivo 37275 (2012-08-03) |
