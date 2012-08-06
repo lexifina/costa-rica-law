@@ -14,3 +14,4 @@ Reglamento al Artículo 12 del Anexo 3 de la Ley 7017 "Ley de Incentivos para la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-07 | la propia norma |
+| 2 | 2012-08-06 | Decreto Ejecutivo 37438 (2012-08-06) |
