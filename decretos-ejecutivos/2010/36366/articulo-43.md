@@ -1,9 +1,8 @@
-Artículo 43.—El Departamento de Remuneraciones y Compensaciones tendrá las siguientes funciones:
-1) Coordinar la elaboración del anteproyecto de presupuesto en materia salarial.
-2) Tramitar, ejecutar y controlar el contenido económico para asignar, reasignar, reclasificar, entre otros, los puestos de la institución; así como, el presupuesto general de la institución.
-3) Velar por el correcto trámite y aplicación de las gestiones relacionadas con la administración de salarios y derechos pecuniarios derivados de la relación laboral; asimismo, acatar las disposiciones emitidas por resolución con respecto al pago en materia salarial.
-4) Administrar el cobro de las Sumas Acreditadas que no corresponden, incapacidades, elaborar las denuncias por accidentes laborales, certificaciones de componentes salariales y deducciones, reclamos administrativos por salarios dejados de percibir, desgloses salariales; así como, elaborar y remitir las propuestas de planillas del Instituto Nacional de Seguros y la Caja Costarricense de Seguro Social.
-5) Velar por la correcta aplicación en el Sistema de Pagos, en acato a las disposiciones que en materia de salario se emitan, todo movimiento de personal relacionado con inclusiones, exclusiones, licencias, incapacidades, deducciones, reajustes; así como, las propuestas de pago salarial, entre otras modificaciones que afecten la condición de puestos, salarios e información de los servidores.
-6) Dar trámite y efectuar investigaciones y estudios de cumplimiento de requisitos que determinen el pago de los distintos incentivos salariales, beneficios y vacaciones; así como mantener el registro y control de los mismos.
-7) Realizar los cálculos, proyecciones y resoluciones de pago de extremos laborales.
-8) Atender cualquier otra actividad propia de su competencia.
+Artículo 43.—La Sección Análisis Administrativo tendrá las siguientes funciones:
+1) Analizar la estructura ocupacional del área policial, para proponer un orden congruente con la estructura organizativa de la Institución.
+2) Definir necesidades de clases de puestos que requiera la Institución.
+3) Ajustar y mantener actualizado el Manual de Clases y Cargos Policiales, conforme la estructura orgánica vigente.
+4) Diseñar instrumentos de valoración que permitan estudiar la capacidad de producción del recurso humano, con respecto a los métodos de trabajo establecidos.
+5) Desarrollar estudios de productividad relacionados con: optimización del recurso humano, aprovechamiento del tiempo laboral, estudios de cargas de trabajo, tomando como insumos manuales ocupacionales, de procedimientos, de funciones u otros, así como datos estadísticos de control de la gestión operacional, técnica, profesional o gerencial.
+6) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 42 al 43)

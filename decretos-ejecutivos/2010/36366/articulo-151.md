@@ -1,1 +1,7 @@
-Artículo 151.—La actuación de las unidades especializadas estará circunscrita únicamente a las atribuciones, deberes, competencia y potestades que le señale el ordenamiento, en especial, la Ley General de Policía y la Ley de Armas y Explosivos y sus reformas. Tendrán competencia en todo el territorio nacional.
+Artículo 151.—Esta Dirección estará conformada por las siguientes unidades:
+1) Unidad Especial de Apoyo.
+2) Unidad de Intervención Policial.
+3) Unidad Canina.
+4) Unidad de Operaciones en Armas y Explosivos y Seguridad Privada.
+5) Unidad Especializada de Seguridad y Protección.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 150 al 151)

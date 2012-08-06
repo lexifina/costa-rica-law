@@ -1,2 +1,4 @@
-Artículo 224.—Rige a partir de su publicación.
-Dado en San José, a las diez horas del dos de noviembre del dos mil diez.
+Artículo 224.—Deróguese los siguientes Decretos Ejecutivos:
+1) Decreto Ejecutivo N° 32177 del primero de diciembre del 2004 y sus reformas. (Reglamento de Organización del Ministerio de Seguridad Pública, que antecede).
+2) Decreto Ejecutivo N° 28856 del veinticuatro de julio del dos mil. (Reglamento del Departamento Disciplinario Legal del Ministerio de Seguridad Pública).
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 223 al 224)

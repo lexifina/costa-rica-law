@@ -1,3 +1,4 @@
-Artículo 223.—Deróguese los siguientes Decretos Ejecutivos:
-1) Decreto Ejecutivo N° 32177 del primero de diciembre del 2004 y sus reformas. (Reglamento de Organización del Ministerio de Seguridad Pública, que antecede).
-2) Decreto Ejecutivo N° 28856 del veinticuatro de julio del dos mil. (Reglamento del Departamento Disciplinario Legal del Ministerio de Seguridad Pública).
+CAPÍTULO XI
+Servicio Nacional de Guardacostas
+Artículo 223.—El Servicio Nacional de Guardacostas, creado mediante la Ley N° 8000, del 5 de mayo, 2000, cumplirá las funciones y tendrá la organización establecida en este cuerpo legal y en su reglamento.”
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 222 al 223)

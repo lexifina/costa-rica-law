@@ -1,7 +1,4 @@
-Artículo 211.—La Reserva de las Fuerzas de Policía, cuando haya sido convocada de conformidad con lo establecido en la Ley General de Policía y sus reformas, tendrá, en esas circunstancias y dentro de ese marco de competencias, las siguientes funciones:
-1) Coordinar con la Fuerza Pública las labores de prevención, vigilancia y protección en el territorio nacional, para preservar la seguridad de los (las) habitantes, sus bienes y sus derechos y libertades constitucionales.
-2) Cooperar con la Fuerza Pública, instituciones gubernamentales y otras entidades en casos de calamidad o desastre natural, eventos masivos, conflagraciones y conmoción civil.
-3) Hacer cumplir lo ordenado por el Tribunal Supremo de Elecciones, en materia electoral, en coordinación con la Fuerza Pública y de conformidad con la Constitución Política y demás normativa aplicable.
-4) Velar por el cumplimiento de la normativa ambiental, ejerciendo las labores de vigilancia, protección y conservación del ambiente y denunciando, ante los órganos administrativos y judiciales competentes, aquellos actos y omisiones que contravengan esta normativa.
-5) Realizar las acciones pertinentes para procurar la capacitación de los miembros de la Reserva de las Fuerzas de Policía, de acuerdo con las necesidades y funciones que desempeñan.
-6) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+CAPÍTULO IX
+Reserva de las Fuerzas de Policía
+Artículo 211.—La Dirección de la Reserva de las Fuerzas de Policía dependerá del (de la) Ministro (a). Tendrá competencia en todo el territorio nacional y sus miembros deberán respetar las órdenes, directrices y lineamientos que establezca la Dirección.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 210 al 211)

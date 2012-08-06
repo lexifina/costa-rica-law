@@ -1,7 +1,9 @@
-Artículo 39.—El Departamento de Análisis Ocupacional tendrá las siguientes funciones:
-1) Elaborar y mantener actualizada la estructura ocupacional del Ministerio, con la finalidad de que guarde armonía con la estructura organizativa de la Institución.
-2) Realizar estudios técnicos que permitan la optimización del Recurso Humano y mejoren la productividad Institucional.
-3) Realizar estudios técnicos ocupacionales que afecten la clasificación de puestos.
-4) Dar seguimiento a la continuidad de las tareas de un puesto en estudio, en concordancia con lo establecido en el Reglamento al Estatuto del Servicio Civil.
-5) Realizar las gestiones necesarias para atender consultas interpuestas por servidores del Ministerio de Seguridad Pública, en casos relacionados con procedimientos llevados a cabo por este Departamento.
-6) Atender cualquier otra actividad propia de su competencia.
+Artículo 39.—La Sección de Selección asumirá las siguientes funciones:
+1) Aplicar los predictores de selección de personal según las características de los puestos de trabajo.
+2) Realizar entrevistas a los candidatos que ocuparán puestos asignados en alguna dependencia del Ministerio.
+3) Verificar información y requisitos para los nombramientos y ascensos, acorde a la normativa.
+4) Tramitar las valoraciones del periodo de prueba y actualizar la información pertinente.
+5) Confeccionar las nóminas de elegibles ante las jefaturas correspondientes para su respectiva resolución.
+6) Tramitar ante el Consejo de Personal las solicitudes de ingreso de los oferentes que reúnan los requisitos para ser incluidos en el Estatuto Policial.
+7) Atender cualquiera otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 38 al 39)

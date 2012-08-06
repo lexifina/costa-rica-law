@@ -1,13 +1,7 @@
-Artículo 117.—También estará adscrita a la Dirección General de la Fuerza Pública el Centro de Servicios de Transporte el cual se ocupará de las siguientes funciones:
-1) Diagnosticar el estado mecánico de los vehículos automotores y equipo móvil asignado al Ministerio y realizar las reparaciones pertinentes.
-2) Brindar el servicio de reparación y mantenimiento del equipo móvil que posee y administra el Ministerio.
-3) Mantener un registro actualizado con los datos generales de los vehículos automotores y el equipo móvil reparado, así como elaborar los informes a la Dirección General Administrativa y al Despacho del Ministro de las reparaciones realizadas a dicho equipo.
-4) Registrar y controlar el ingreso y egreso de repuestos y materiales, tanto nuevos como usados, evitando la adquisición innecesaria de estos y la subutilización o desuso de aquellos que ostenten vida útil.
-5) Realizar los estudios y trámites para la adquisición de los repuestos necesarios, evitando la adquisición innecesaria de estos y la subutilización o desuso de aquellos que ostenten vida útil.
-6) Emitir el criterio técnico de evaluación sobre los vehículos asignados a este Ministerio, cuando así sea requerido.
-7) Elaborar el plan de mantenimiento, cuido y uso anual de los vehículos asignados.
-8) Gestionar y actualizar periódicamente el equipo tecnológico necesario para brindar un servicio de calidad.
-9) Revisar y diagnosticar los vehículos asignados a este Ministerio, en calidad de préstamo o comodato, al momento de su recibo y entrega.
-10) Supervisar el funcionamiento de los talleres mecánicos ubicados en las diferentes regiones.
-11) Participar en la Comisión de Adjudicación de los vehículos del Ministerio que serán reparados por los talleres autorizados por el Instituto Nacional de Seguros.
-12) Cualquier otra propia de su competencia.
+Artículo 117.—La Dirección General de la Fuerza Pública tendrá a cargo la Vicaría Episcopal, la cual tendrá las siguientes funciones:
+1) Suministrar los sacramentos, previa preparación, a los miembros de la Fuerza Pública que lo soliciten o requieran de acuerdo con las circunstancias.
+2) Impartir cursos de instrucción ética y religiosa en lugares de capacitación, delegaciones y diferentes unidades de la Fuerza Pública.
+3) Suministrar servicios de consulta y orientación espiritual, religiosa y moral.
+4) Bendecir e inaugurar instalaciones y equipos para uso de los miembros de la Fuerza Pública.
+5) Cualquier otra actividad propia de su competencia o fuero.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 116 al 117)

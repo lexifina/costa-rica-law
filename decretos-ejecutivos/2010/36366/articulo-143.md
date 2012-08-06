@@ -1,7 +1,7 @@
-Artículo 143.—La Sección de Dactiloscopia tendrá las siguientes funciones:
-1) Realizar la identificación dactilar y verificación de antecedentes penales y policiales de las personas aprehendidas por la Fuerza Pública en todo el país.
-2) Realizar pericias técnico-dactiloscópicas orientadas a la identificación de presuntos responsables de hechos delictivos.
-3) Asistir técnicamente en materia lofoscópica a las autoridades policiales y judiciales nacionales e internacionales que lo requieran en virtud del principio de cooperación y auxilio recíprocos, de conformidad con los convenios y tratados internacionales vigentes.
-4) Realizar la identificación dactilar y verificación de antecedentes penales y policiales de nacionales y extranjeros que realicen algunos de los siguientes trámites: residencia, permisos temporales, solicitudes de pensionados rentistas, matrículas y permisos de portación de armas, permisos de seguridad privada, pasaportes nuevos; así como de los funcionarios públicos dados de alta en la Fuerza Pública.
-5) Participar en las operaciones policiales ordinarias y extraordinarias que se realicen en todo el territorio nacional, en el ejercicio de la labor policial y brindando asistencia técnica en el campo de su especialidad.
-6) Cualquier otra de su competencia.
+Artículo 143.—La Sección de Operaciones de Inteligencia tendrá las siguientes funciones:
+1) Recopilar y verificar información estratégica y táctica de interés policial que colabore con el mejoramiento de acciones policiales.
+2) Ejercer labores de vigilancia visual y técnica en zonas de interés policial, utilizando tecnologías de apoyo permitidas por el ordenamiento jurídico.
+3) Realizar operaciones abiertas o encubiertas para la obtención de información de relevancia policial.
+4) Mantener un registro de información documental de medios de comunicación masivos, escritos y electrónicos en materia policial, que puedan generar un accionar de la Fuerza Pública.
+5) Participar en las operaciones policiales que se requiera.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 142 al 143)

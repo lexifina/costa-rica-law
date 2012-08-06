@@ -1,3 +1,2 @@
-SECCIÓN III
-Órganos de apoyo de carácter policial
-Artículo 122.—La Dirección General de la Fuerza Pública tendrá en forma permanente, como órganos de apoyo, al Consejo de Directores (as) de la Fuerza Pública, la Inspección General, la Guardia Presidencial y las Direcciones Regionales.
+Artículo 122.—La labor de los (las) Subdirectores (as) Generales de la Fuerza Pública, se desarrollará las 24 horas del día, durante todos los días del año. Será ejercida por los (las) funcionarios (as) que designe el (la) Ministro (a) de Seguridad Pública, previo cumplimiento de los requisitos establecidos para el puesto.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 121 al 122)

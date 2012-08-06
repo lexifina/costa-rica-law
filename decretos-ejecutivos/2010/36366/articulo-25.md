@@ -1,1 +1,16 @@
-Artículo 25.—La Auditoría General como órgano asesor y fiscalizador de este Ministerio, está adscrita y supeditada solo al Despacho del (de la) Ministro (a) y se regirá por las disposiciones contenidas en la Ley General de Control Interno, en la Ley Orgánica de la Contraloría General de la República, en los lineamientos de organización y funcionamiento de las auditorías internas emitidos por la Contraloría General de la República, en el Manual para el Ejercicio de la Auditoría General en las entidades y órganos sujetos a la fiscalización de ese órgano Contralor, el propio Reglamento de la Auditoría Interna y la demás normativa correspondiente.
+Artículo 25.—El Consejo Superior de Oficiales tendrá las siguientes funciones:
+1) Acatar las políticas dictadas por el Consejo Nacional de Seguridad Ciudadana.
+2) Proponer políticas y lineamientos generales de organización, funcionamiento y desarrollo de las fuerzas de policía adscritas al Ministerio de Seguridad Pública.
+3) Definir lineamientos para el diseño y ejecución de los programas de formación, capacitación y entrenamiento policial.
+4) Emitir lineamientos que generen condiciones favorables para la adecuada promoción, humana, social y profesional de los miembros de los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública.
+5) Conocer, evaluar y recomendar propuestas de ascensos, pensiones y separaciones de los (las) funcionarios (as) de nivel de Dirección, Superior y Medio, de conformidad con las disposiciones de ley y demás disposiciones generales relativas a la carrera, estatuto, escalafón y régimen disciplinario.
+6) Brindar asesoría en cuanto a tácticas, experiencias, técnicas, estrategias, fortalezas, procedimientos, protocolos, necesidades y limitaciones de las unidades policiales.
+7) Recomendar la creación de nuevas Direcciones Operativas, siguiendo lineamientos de los órganos competentes.
+8) Determinar procedimientos aplicables internamente en los casos de violación a las leyes y reglamentos por parte de funcionarios policiales en servicio, que pudieren configurar un crimen o un delito.
+9) Conocer y recomendar al Ministro (a) las propuestas de creación o modificaciones a leyes y reglamentos que afecten la función policial.
+10) Conocer y evaluar los informes del Inspector General y del Ministerio Público, en los casos en que corresponda y brindar asesoría al (a la) Jerarca sobre su proceder.
+11) Emitir lineamientos que contribuyan a regular el uso de armas reglamentarias y servicios para los cuales se autoriza el uso de armas especiales.
+12) Revisar y realizar sugerencias sobre nuevo equipo policial, avituallamiento y tecnología a adquirir por parte del Ministerio.
+13) Solicitar a los (las) Directores (as), tanto Policiales como Administrativos, la rendición de cuentas sobre la aplicación de las políticas y lineamientos dictados por este Consejo.
+14) Cualquier otra de su competencia o que le sea asignada por el (la) Ministro (a).
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 24 al 25)

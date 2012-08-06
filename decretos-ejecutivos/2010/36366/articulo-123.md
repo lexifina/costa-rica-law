@@ -1,1 +1,4 @@
-Artículo 123.—El Consejo de Directores (as) de la Fuerza Pública será el órgano asesor de la Dirección General de la Fuerza Pública y estará integrado por los siguientes Directores (as): Director (a) General de la Fuerza Pública, quien lo presidirá; Director (a) de Apoyo Legal Policial; Director (a) de Unidades Especializadas; Director (a) de Operaciones, Director (a) de Programas Preventivos Policiales; Director (a) de Seguridad Turística; Directores (as) Regionales.
+SECCIÓN III
+Órganos de apoyo de carácter policial
+Artículo 123.—La Dirección General de la Fuerza Pública tendrá en forma permanente, como órganos de apoyo, al Consejo de Directores (as) de la Fuerza Pública, la Inspección General, la Guardia Presidencial y las Direcciones Regionales.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 122 al 123)

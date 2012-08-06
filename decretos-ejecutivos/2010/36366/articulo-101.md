@@ -1,1 +1,2 @@
-Artículo 101.—La prevención del delito se llevará a cabo, mediante la actuación de la Fuerza Pública y el desarrollo de estrategias para la colaboración, capacitación y concientización de los habitantes.
+Artículo 101.—Se entiende por prevención del delito, el conjunto de estrategias, tácticas y acciones que realiza el Ministerio, con la finalidad de conservar el orden público, la tranquilidad de los habitantes, el libre disfrute de las libertades públicas y de disminuir el riesgo de los habitantes a ser víctimas de alguna conducta delictiva.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 100 al 101)

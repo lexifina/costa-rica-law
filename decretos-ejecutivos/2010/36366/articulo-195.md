@@ -1,5 +1,3 @@
-Artículo 195.—El Consejo Académico tendrá las siguientes funciones.
-1) Asesorar a la Dirección de la Escuela en los procesos de educación policial.
-2) Revisar y aprobar los programas de educación policial que establezca la Escuela, y emitir las observaciones y recomendaciones pertinentes.
-3) Establecer mecanismos de control y evaluación para las diferentes instancias de la Escuela.
-4) Otras propias de su competencia.
+Artículo 195.—El Consejo Académico estará integrado por el (la) Ministro (a) o su representante, quien lo presidirá, el (la) Director (a) General de la Fuerza Pública, el (la) Presidente (a) del Consejo de Personal, el (la) Director (a) de la Escuela Nacional de Policía, el (la) Director (a) del Servicio Nacional de Guardacostas, el (la) Director (a) de la Policía Control de Drogas, el (la) Director (a) del Servicio de Vigilancia Aérea y un (una) representante del Ministerio de Educación Pública. El Consejo se reunirá ordinariamente una vez al mes y extraordinariamente, cuando su presidente (a) lo convoque. Habrá quórum con la presencia de cinco de sus miembros, y sus acuerdos serán tornados por mayoría simple de los presentes, en caso de empate el (la) Presidente (a) ejercerá doble voto. Las funciones de Secretaría Técnica del Consejo, las realizará el Departamento Administrativo de la Escuela.
+(Así reformado por el artículo 7° del decreto ejecutivo N° 37310 del 6 de agosto de 2012)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 194 al 195)

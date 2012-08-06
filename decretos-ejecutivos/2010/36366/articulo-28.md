@@ -1,20 +1,11 @@
-CAPÍTULO IV
-Direcciones Generales y Direcciones Adscritas
-Artículo 28.—Las direcciones tendrán a cargo las siguientes funciones:
-1) Velar por el cumplimiento de la Constitución Política, los Tratados Internacionales y el resto del ordenamiento jurídico.
-2) Participar en la elaboración del Plan Operativo Anual Institucional.
-3) Dirigir, ejecutar, controlar y evaluar el Plan Operativo Anual Institucional en lo que corresponde a su área, de acuerdo con las disposiciones generales establecidas.
-4) Establecer los canales adecuados, con la finalidad de que exista un flujo de información oportuna sobre los asuntos que son de su respectiva competencia.
-5) Establecer, implementar, perfeccionar y evaluar los controles internos necesarios de conformidad con lo establecido en la Ley General de Control Interno, para garantizar la eficiencia del servicio en el cumplimiento de las disposiciones legales y administrativas establecidas, así como también los aspectos éticos y morales de la función.
-6) Gestionar la capacitación profesional y técnica del personal a su cargo.
-7) Gestionar el suministro de recursos humanos, materiales y financieros para el buen desempeño de sus funciones.
-8) Velar por la correcta administración de los recursos humanos y materiales, de acuerdo con las necesidades del servicio, tomando las previsiones necesarias para las eventuales contingencias.
-9) Velar porque los (las) funcionarios (as) bajo su cargo, observen un estricto orden y disciplina en el desempeño de sus funciones.
-10) Aplicar y fiscalizar la implementación de las normas sobre la seguridad del personal, de los vehículos, de las instalaciones y demás bienes públicos a su cargo.
-11) Aplicar el régimen disciplinario de conformidad con el Reglamento Autónomo de Servicio y demás normativa aplicable.
-12) Informar oportunamente a la Dirección de Recursos Humanos, lo relativo a movimientos de personal.
-13) Desarrollar acciones para el mejoramiento de las condiciones administrativas de los funcionarios, en materia de salud ocupacional.
-14) Realizar reuniones de control y evaluación con las dependencias a su cargo.
-15) Rendir informes semestrales al (a la) Ministro (a) sobre el desempeño de la Dirección.
-16) Establecer, desarrollar e implementar en sus respectivas áreas de competencia, las metodologías de auto evaluación del Sistema de Control Interno y de la valoración del riesgo, para garantizar el cumplimiento de los objetivos de gestión.
-17) Atender aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
+CAPÍTULO III
+Consejo de Personal
+Artículo 28.—El Consejo de Personal es un órgano adscrito al Despacho del (de la) Ministro (a), que tendrá las siguientes funciones:
+1) Conocer de los reclamos originados e interpuestos por disposiciones emanadas de cualquier jerarca de las dependencias de las fuerzas de policía.
+2) Determinar las políticas generales de la Dirección de Recursos Humanos en relación con el ingreso al Estatuto Policial.
+3) Refrendar las listas de servidores policiales elegibles confeccionadas por la Dirección de Recursos Humanos, con el fin de que el (la) Ministro (a) efectué los nombramientos correspondientes.
+4) Conocer y resolver, en primera instancia, las recomendaciones de suspensiones temporales, al aplicar el régimen disciplinario a los (las) funcionarios (as) policiales, así como elevar el asunto ante el (la) Ministro (a), cuando se apele la resolución de que se trate. Y conocer y recomendar las causas de despido ante el (la) superior (a) jerárquico (a), en aplicación del régimen disciplinario.
+5) Decretar la nulidad de los concursos de antecedentes que incumplan los requisitos dispuestos en el ordenamiento jurídico.
+6) Autorizar las permutas y los descensos de los (las) funcionarios (as) policiales de la Institución.
+7) Las demás atribuciones establecidas legal y reglamentariamente y las que sean asignadas por el (la) Ministro (a).
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 27 al 28)

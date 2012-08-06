@@ -1,6 +1,9 @@
-Artículo 53.—La Sección Gestión de Becas y Facilidades al exterior tendrá las siguientes funciones:
-1) Gestionar y dar seguimiento a los trámites necesarios para salidas al exterior para el aprovechamiento de becas y facilidades de capacitación.
-2) Coordinar con la Oficina de Cooperación Internacional las diferentes actividades relacionadas con invitaciones, becas u otras facilidades de capacitación en el exterior, para los (las) funcionarios (as) del Ministerio.
-3) Realizar concursos para el otorgamiento y aprovechamiento de becas otorgadas por organismos internacionales y gobiernos extranjeros.
-4) Elaborar, gestionar y dar seguimiento a los contratos de adiestramiento del personal que participa en becas en el exterior.
-5) Atender cualquier otra actividad propia de su competencia.
+Artículo 53.—La Sección de Desarrollo tendrá las siguientes funciones:
+1) Gestionar y coordinar acciones referentes a la obtención de facilidades de educación y formación del personal, con instituciones, tanto públicas como privadas.
+2) Elaborar contratos de adiestramiento para el personal que participa en los diferentes cursos que imparte la Escuela Nacional de Policía, la Academia del Servicio Nacional de Guardacostas y cualquier otra instancia.
+3) Tramitar descuentos universitarios conforme a los lineamientos establecidos en los distintos convenios suscritos con universidades y otras organizaciones formativas.
+4) Realizar estudios de las condiciones de trabajo y de calidad de vida laboral en que se encuentran los servidores del Ministerio de Seguridad Pública.
+5) Diseñar y aplicar programas de inducción al funcionario que permita una expedita socialización y adaptación institucional.
+6) Organizar y ejecutar actividades que permitan el fortalecimiento de la cultura institucional.
+7) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 52 al 53)

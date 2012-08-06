@@ -1,7 +1,7 @@
-Artículo 48.—La Sección de Prestaciones tendrá las siguientes funciones:
-1) Realizar estudios y cálculos de proyecciones emitidas mediante resoluciones relacionadas con la materia de pago de extremos laborales.
-2) Monitorear el saldo de cada programa presupuestario en relación con el pago de extremos laborales.
-3) Elaborar resoluciones de pago de extremos laborales.
-4) Elaborar estadísticas mensuales que permitan determinar los diferentes tipos de ceses de personal y el costo correspondiente.
-5) Emitir certificaciones de pago de extremos laborales a solicitud de otras instituciones del Estado.
-6) Atender cualquier otra actividad propia de su competencia.
+Artículo 48.—La Sección de Incentivos y Beneficios tendrá las siguientes funciones:
+1) Efectuar los estudios y dar trámite a los incentivos y beneficios para los (las) funcionarios (as) del Ministerio según su viabilidad jurídica y material; así como el seguimiento del cumplimiento de los requisitos establecidos.
+2) Verificar el efectivo cumplimiento de la normativa legal que regula la materia de incentivos.
+3) Mantener una base de datos actualizada sobre los (las) funcionarios (as) que disfruten de los incentivos, vacaciones y anualidades.
+4) Dar trámite y seguimiento a las gestiones relacionadas con vacaciones y horas extras.
+5) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 47 al 48)

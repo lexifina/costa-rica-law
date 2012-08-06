@@ -1,14 +1,8 @@
-SECCIÓN VIII
-Dirección de Informática
-Artículo 79.—La Dirección de Informática además de las funciones contempladas en el Decreto Ejecutivo 28921-SP tendrá las siguientes funciones:
-1) Analizar, diseñar, planificar, desarrollar y dar mantenimiento a los sistemas informáticos necesarios para la labor del Ministerio, considerando las recomendaciones y decisiones de la Comisión de Informática.
-2) Determinar y recomendar a la Comisión de Informática el equipo y programas informáticos necesarios para este Ministerio.
-3) Definir y aplicar procedimientos para el mejor aprovechamiento de los recursos informáticos.
-4) Elaborar y actualizar manuales técnicos de los diversos sistemas en operación.
-5) Coordinar y ejecutar actividades de capacitación en el Área de la Informática para el personal del Ministerio.
-6) Analizar los avances tecnológicos en Informática y su viabilidad y la eventual aplicación en el Ministerio.
-7) Administrar y dar mantenimiento a la red de transmisión de datos del Ministerio.
-8) Coordinar la obtención de información sistematizada de otros entes, que resulte de interés para este Ministerio.
-9) Recomendar y ejecutar las políticas de protección y seguridad de la información digital institucional.
-10) Brindar criterio técnico sobre los dispositivos físicos y lógicos o programas de cómputo que requiera este Ministerio.
-11) Atender cualquier otra propia de su competencia.
+Artículo 79.—El Departamento de Almacén Institucional tendrá las siguientes funciones:
+1) Recibir y verificar pedidos y existencias. Registrar, custodiar, conservar y distribuir los bienes adquiridos por el Ministerio, observando para ello las políticas, directrices, normas técnicas y procedimientos que al efecto dicten los (las) superiores (as) jerárquicos (as), así como el Departamento de Programación y Control, la Dirección General de Administración de Bienes y Contratación Administrativa, u otros órganos competentes.
+2) Recibir y verificar en cada caso, que los proveedores entreguen los bienes dentro del plazo contractual establecido y cumplan con las respectivas condiciones de cantidad, calidad y especificaciones técnicas acordadas, e informar lo pertinente a los órganos competentes según corresponda. Para tales efectos podrá obtener la asesoría y criterio técnico de las dependencias competentes del Ministerio de Seguridad Pública, como de la Dirección General de Administración de Bienes y Contratación Administrativa.
+3) Almacenar y custodiar, en condiciones físicas, técnicas y de seguridad apropiadas, y bajo un adecuado sistema de control e inventario, los bienes adquiridos por el Ministerio de Seguridad Pública, a través de los diferentes procedimientos de contratación administrativa.
+4) Distribuir, con arreglo a un sistema de control eficiente y oportuno y en óptimas condiciones de traslado, los bienes adquiridos por el Ministerio de Seguridad Pública, en acatamiento a lo establecido en el Reglamento de Administración de Bienes emitido por la Dirección General de Administración de Bienes y Contratación Administrativas.
+5) Elaborar diferentes prendas, como pantalones largos y cortos, camisas, faldas, blusas, chaquetas, maternales, sacos de gala, enaguas de gala y otras prendas de vestir de acuerdo con diseños y patrones establecidos.
+6) Realizar cualquier otra función propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 78 al 79)

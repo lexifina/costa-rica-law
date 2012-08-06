@@ -1,13 +1,6 @@
-Artículo 166.—Las Delegaciones Distritales tendrán las siguientes funciones:
-1) Velar por el cumplimiento de la Constitución Política, los tratados internacionales y del ordenamiento jurídico en general.
-2) Desarrollar acciones efectivas de prevención y control de la criminalidad a través de servicios policiales de patrullaje y vigilancia.
-3) Administrar adecuadamente los recursos humanos, materiales, avituallamientos, armas de reglamento, equipo de protección policial, equipo de comunicación y otros implementos asignados a la Delegación Distrital para el servicio de seguridad ciudadana.
-4) Actuar según el principio de cooperación y auxilio recíproco, en procura de la debida coordinación con autoridades policiales y judiciales.
-5) Ejecutar y hacer cumplir lo que resuelvan o dispongan, según su competencia, los tribunales de justicia y los organismos electorales, a solicitud de éstos.
-6) Participar en el desarrollo de operaciones o acciones en que intervienen los cuerpos policiales especializados en el área de responsabilidad de la Delegación Distrital.
-7) Auxiliar a las comunidades y organizaciones de servicio público y colaborar con ellas en casos de emergencia nacional o conmoción pública.
-8) Establecer adecuados canales de comunicación y coordinación con las autoridades locales y demás organizaciones de la sociedad civil.
-9) Cumplir con las órdenes de operaciones y de servicio emanadas por la Dirección Regional y Delegación Policial a la cual se encuentra subordinada.
-10) Desarrollar proyectos asignados a la Unidad, en el Plan Operativo Anual de la Delegación Policial.
-11) Establecer un enlace permanente y dinámico con las Comisiones Distritales de Seguridad y los Comités de Prevención Comunitaria.
-12) Representar al (a la) Jefe (a) de la Delegación Policial Cantonal en el área de responsabilidad de la Delegación Distrital.
+Artículo 166.—Los (las) Jefes (as) de Delegación Distrital tendrán como principal cometido, cumplir con los siguientes preceptos doctrinarios:
+1) La aplicación de estrategias de seguridad basadas en la proximidad de la policía con los habitantes de su distrito, que impliquen reciprocidad con la población que coadyuva con los programas policiales preventivos.
+2) La configuración del modelo de proximidad policial basado en los siguientes aspectos: máxima sectorización, alta especialización, oposición a la estanqueidad, subsidiariedad, total asimetría, óptima adaptación a la demanda, proximidad al ciudadano, adaptabilidad y ausencia de rigidez.
+3) Relacionarse con las organizaciones comunales, según principios generales de rendición de cuentas ante la respectiva comunidad.
+4) Rescatar y fortalecer los valores fundamentales de la actuación policial, tales como la disciplina, respeto a la cadena de mando, desarrollo de hábitos de ornato y aseo en las unidades policiales, así como el deber de probidad en su servicio.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 165 al 166)

@@ -1,2 +1,2 @@
-Artículo 105.—La Escuela Nacional de Policía es la instancia responsable de aprobar o convalidar los cursos obligatorios antes de incorporarse a la función policial y los cursos de especialidad antes de ocupar un puesto de mando o dirección.
-De igual forma, corresponde a este órgano definir si los (las) funcionarios (as) policiales que están en el proceso de capacitación en la Escuela y las personas que han convalidado cursos, tienen la formación adecuada para incorporarse a la función policial.
+Artículo 105.—La Dirección General de la Fuerza Pública recomendará al (a la) Ministro (a), mediante un estudio técnico, las regiones en que se dividirá territorialmente la Fuerza Pública. Para su implementación contará con el apoyo de las instancias policiales y técnicas del Ministerio.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 104 al 105)

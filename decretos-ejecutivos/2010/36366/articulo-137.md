@@ -1,12 +1,15 @@
-Artículo 137.—La Sección de Operaciones tendrá las siguientes funciones:
-1) Confeccionar la orden de operaciones para las unidades policiales y asesorar a las unidades policiales en la elaboración de la orden de servicio que da sustento a la operación policial.
-2) Elaborar informes para la jefatura del Departamento de Planes y Operaciones, la Dirección de Operaciones y la Dirección General de la Fuerza Pública, referente al trabajo ordinario y extraordinario.
-3) Coordinar con instituciones públicas y privadas, a nivel nacional, la ejecución de operativos policiales.
-4) Participar en operaciones policiales ejecutadas por la Fuerza Pública, supervisar y evaluar su ejecución.
-5) Establecer y ejecutar con las unidades especializadas competentes, los dispositivos para la atención del tráfico de armas y sustancias prohibidas, desalojos, eventos masivos, atención a comunidades y otros.
-6) Brindar apoyo estratégico y táctico, en la toma de decisiones de los mandos superiores ante la presencia de manifestaciones a nivel nacional, operativos nacionales, secuestros, toma de rehenes, entre otros.
-7) Brindar apoyo táctico in situ, para el desarrollo satisfactorio de la orden de operaciones emitida por el Departamento.
-8) Coordinar y participar en los operativos requeridos por la Policía de Control de Drogas, para la erradicación de plantaciones de drogas en las diferentes zonas del país.
-9) Desarrollar en conjunto con los cuerpos y unidades policiales acciones policiales orientadas a la protección y preservación del ambiente y de los recursos naturales, como colaboración a las instituciones u organismos públicos o privados dedicados a esa actividad.
-10) Colaborar con la Escuela Nacional de Policía, brindando instrucción a los servidores policiales, en temas afines con la función policial desarrollada por el Departamento de conformidad con los conocimientos y experiencia en la materia.
-11) Brindar soporte a las Direcciones Regionales en el campo operacional, estandarizando los procedimientos y estrategias.
+Artículo 137.—La Sección de Planeamiento tendrá las siguientes funciones:
+1) Planificar las diversas acciones policiales operativas ordinarias y extraordinarias, para la atención de emergencias naturales o antrópicas, en pro del mantenimiento de la seguridad nacional, de los habitantes, sus bienes, el orden público y la prevención del delito.
+2) Participar en la toma de decisiones tanto operativas como administrativas, para el desarrollo de las operaciones policiales coordinadas por el Departamento de Planes y Operaciones.
+3) Apoyar y asesorar en materia técnico-policial en el área de planeamiento en coordinación con el personal administrativo del Ministerio de Seguridad Pública.
+4) Atender las solicitudes que presentan las comunidades vulnerables y sensibles a nivel nacional y coordinar con los grupos organizados no gubernamentales y entidades estatales competentes, la atención de dichos requerimientos, mejorando el servicio de seguridad ciudadana y prevenir las manifestaciones delictivas.
+5) Elaborar estudios, programas, proyectos, protocolos e informes orientados a mejorar la función operacional de las fuerzas de policía, para la vigilancia y la conservación de la seguridad pública y remitirlos a la jefatura del Departamento para su revisión y aprobación ante las instancias pertinentes.
+6) Confeccionar documentos operativos necesarios para la ejecución de los dispositivos policiales, estratégicos y/o tácticos, tanto de orden preventivo y de carácter represivo.
+7) Brindar asesoría en el campo de su competencia, a sus superiores (as), jefaturas y subjefaturas de las Direcciones Regionales, Delegaciones Policiales, Direcciones y demás unidades policiales que conforman la Fuerza Pública.
+8) Realizar diagnósticos, estudios e investigaciones, para determinar la ubicación del recurso humano policial, que permita fortalecer la presencia en lugares de mayor riesgo, establecimiento de requerimientos logísticos, creación, reubicación o eliminación de delegaciones o casetas policiales.
+9) Elaborar y/o modificar los protocolos de actuación operativa requeridos para el funcionamiento de las diferentes unidades policiales de la Fuerza Pública y remitirlos a la jefatura del Departamento para su revisión y aprobación.
+10) Representar a la Institución en diferentes comisiones interinstitucionales, a solicitud de instancias superiores del Ministerio.
+11) Fungir como intermediarios institucionales ante diferentes grupos sociales, facilitando los procesos de organización, planeamiento y coordinación de actividades con otras organizaciones y entes estatales.
+12) Confeccionar los croquis, mapas o cualquier tipo de audiovisual que se requiera para una operación determinada.
+13) Elaborar material informativo, tipo folleto, con recomendaciones a la ciudadanía sobre prevención en materia de seguridad.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 136 al 137)

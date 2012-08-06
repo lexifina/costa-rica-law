@@ -35,6 +35,8 @@ CAPÍTULO I
 Despacho del (de la) Ministro(a)
 Artículo 1º—El (la) Ministro(a) es el órgano jerárquico superior de esta Cartera y le corresponde, conjuntamente con el (la) Presidente(a) de la República, las siguientes funciones:
 1) Nombrar y remover en forma libre, a los (las) miembros de la Fuerza Pública, empleados (as) y funcionarios (as) que sirvan en cargos de confianza y a los demás que determine, en casos calificados, el Estatuto de Servicio Civil, de conformidad con el artículo 140 de la Constitución Política y las disposiciones correspondientes del Estatuto del Servicio Civil y de la Ley General de Policía.
+Dentro de estas atribuciones se comprende la posibilidad de nombrar y remover a consultores, asesores o instructores, para que de manera voluntaria, colaboren con la Fuerza Pública en aquellos aspectos propios de la función policial; deberán ser de reconocida solvencia moral, no serán remunerados por el servicio que presten ni ostentarán investidura pública alguna.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 37310 del 6 de agosto de 2012)
 2) Sancionar y promulgar leyes y reglamentos, velando por su ejecución y exacto cumplimiento.
 3) Mantener el orden y la tranquilidad de la Nación y tomar providencias necesarias para el resguardo de las libertades públicas.
 4) Ejecutar y hacer cumplir lo que resuelvan o dispongan en los asuntos de su competencia, los Tribunales de Justicia y los organismos electorales a solicitud de los mismos.

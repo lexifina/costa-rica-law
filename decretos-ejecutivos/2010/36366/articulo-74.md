@@ -1,1 +1,6 @@
-Artículo 74.—Además, la Dirección de Proveeduría Institucional contará con una Comisión de Recomendación y Adjudicación, con carácter de apoyo, que se integrará y funcionará, de conformidad con lo preceptuado en el Reglamento para el Funcionamiento de las Proveedurías Institucionales de los Ministerios del Gobierno, emitido por el Ministerio de Hacienda.
+Artículo 74.—La Dirección de Proveeduría Institucional estará conformada por los siguientes Departamentos:
+1) Departamento de Programación y Control.
+2) Departamento de Contratación Administrativa.
+3) Departamento de Control y Fiscalización de Activos.
+4) Departamento Almacén Institucional.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 73 al 74)

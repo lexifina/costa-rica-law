@@ -1,5 +1,6 @@
-Artículo 83.—El Departamento de Soporte Técnico tendrá las siguientes funciones:
-1) Atender y solucionar problemas técnicos derivados de la operación de equipos y programas.
-2) Coordinar con el Departamento de Salud Ocupacional, en materia de competencia, la solución de problemas que afecten o puedan afectar la integridad de los (las) usuarios (as) en materia de su competencia.
-3) Brindar mantenimiento preventivo y correctivo a los dispositivos físicos y lógicos cuando éstos no cuenten con garantía, esta haya caducado o que no exista contrato, con alguna empresa externa al Ministerio que realice el servicio.
+Artículo 83.—El Departamento de Telemática tendrá las siguientes funciones:
+1) Instalar los diferentes equipos que conforman la red de transmisión de datos, tanto lo correspondiente a la fuente de energía, como a los programas que estos necesitan para su operación.
+2) Fijar los estándares de protocolo de comunicación.
+3) Velar por el eficiente y adecuado funcionamiento de la red de transmisión de datos y los servidores de bases de datos.
 4) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 82 al 83)

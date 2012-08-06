@@ -1,16 +1,7 @@
-CAPÍTULO II
-Atribuciones y deberes de la Fuerza Pública
-Artículo 112.—La Fuerza Pública tendrá las siguientes atribuciones y deberes en concordancia con lo establecido en los artículos 8 y 10 de la Ley General de Policía:
-1) Ejecutar las políticas y acciones de seguridad ciudadana y nacional para el ejercicio y respeto a la Constitución Política, a la soberanía nacional, a la integridad territorial y el mantenimiento del orden público.
-2) Asegurar el respeto de los bienes, derechos y libertades de los (las) habitantes de la Nación.
-3) Velar por el cumplimiento de los tratados internacionales y la normativa jurídica que garantice el orden en las zonas fronterizas terrestres, incluidas las edificaciones públicas, diplomáticas, sedes aeroportuarias y donde se realizan actividades aduanales y migratorias.
-4) Ejecutar aquellas actuaciones policiales, dentro del ámbito de su competencia, que le sean debidamente requeridas por instituciones estatales, elaborando un informe y remitiendo los elementos probatorios, si así procede.
-5) Coordinar para que de manera pronta y eficaz, se efectúe o realice la captura de personas evadidas de las cárceles o prófugos de la justicia.
-6) Brindar auxilio y cooperación, dentro del marco de sus competencias, a gobiernos locales, instituciones del Estado, entidades de servicio público y en general a las comunidades.
-7) Colaborar en la prevención y represión del delito, con base en el principio de reciprocidad con aquellas organizaciones internacionales de policía y de conformidad con la normativa y los convenios vigentes.
-8) Velar por el cumplimiento de lo estipulado en la Ley de Armas y Explosivos y sus reformas.
-9) Mantener actualizados los registros e inventarios de armas, municiones, explosivos y equipos indispensables para el cumplimiento de sus funciones.
-10) Elaborar los registros necesarios para hacer constar las operaciones policiales, sus responsables, el personal que intervenga en el operativo, patrullaje o acción policial, así como el nombre completo y demás calidades de las personas detenidas, sus horas de ingreso y egreso de la unidad policial.
-11) Cumplir sus funciones sin limitación de horario, con el debido esmero, denuedo y dedicación, para el cumplimiento de lo dispuesto por el ordenamiento jurídico.
-12) Guardar estricta confidencialidad sobre la información obtenida de las investigaciones y operativos policiales llevados a cabo o en proceso.
-13) Los demás deberes y atribuciones señalados en el ordenamiento jurídico.
+Artículo 112.—Las direcciones generales y direcciones que estén conformadas a su vez en programas o subprogramas presupuestarios, podrán contar con una Unidad de Proyectos para lograr que las necesidades reales se transformen en proyectos concretos de corto, mediano y largo plazo, de conformidad con las necesidades y la dinámica institucional.
+Las unidades de proyectos que se constituyan tendrán las siguientes funciones generales:
+1) Elaborar estudios e investigaciones para determinar las necesidades de inversión de las direcciones de programas o subprogramas presupuestarios y establecer el orden de prioridades.
+2) Elaborar los perfiles y estudios técnicos de prefactibilidad y factibilidad de los proyectos en coordinación con la Oficina de Planificación Institucional.
+3) Formular, dar seguimiento y evaluar los proyectos de inversión compatible con las prioridades institucionales y el Plan Nacional de Desarrollo, en coordinación con la Oficina de Planificación Institucional y de acuerdo con los lineamientos establecidos en el Sistema Nacional de Inversión Pública.
+4) Colaborar en la formulación presupuestaria en lo atinente a la ejecución de proyectos de inversión.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 111 al 112)

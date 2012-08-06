@@ -1,9 +1,6 @@
-Artículo 221.—Al Museo de Armas le corresponde:
-1) Seleccionar el armamento, equipo policial y materiales explosivos que tengan interés histórico o tecnológico.
-2) Recopilar, ordenar y catalogar información de interés histórico referente a las armas del Estado.
-3) Custodiar y dar mantenimiento a todas las piezas que conformen el Museo.
-4) Solicitar a las instituciones gubernamentales que realizan decomisos, las piezas que puedan ser integradas al Museo de Armas.
-5) Gestionar frente a particulares, instituciones no gubernamentales, organismos internacionales y gobiernos amigos, piezas para ser integradas a la colección del Museo.
-6) Crear la base de datos que permita mantener actualizada la información e inventario de las piezas que integran el Museo.
-7) Establecer programas de difusión y proyección mediante los cuales se instruya al público sobre la reseña histórica y la problemática de la tenencia de armas y explosivos.
-8) Cualquier otra propia de su competencia.
+Artículo 221.—Al Departamento de Registro de Armas le corresponde:
+1) Organizar y mantener actualizados los registros de armas, municiones, aditamentos, accesorios y explosivos propiedad del Estado.
+2) Elaborar el inventario permanente de armas de fuego, para lo cual los entes estatales y unidades policiales deberán informar cada seis meses sobre la cantidad, tipo, marca, calibre, número de serie, patrimonio y estado de conservación y utilidad de las armas de fuego que tenga a su cargo.
+3) Preparar el informe anual sobre el inventario de armas para la Dirección General de Armamento y mantener confidencialidad sobre este.
+4) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 220 al 221)

@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-Dirección de Servicios de Seguridad Privados
-Artículo 204.—La Dirección de Servicios de Seguridad Privados dependerá del (de la) Ministro (a) y deberá garantizar el cumplimiento de la normativa vigente en esta materia. Su competencia será la de verificar, supervisar y controlar que las personas físicas y jurídicas dedicadas a prestar el servicio de seguridad privado, se ajusten a lo dispuesto por el ordenamiento, en especial a la Ley N° 8395, denominada Ley de Servicios de Seguridad Privados y su reglamento
+Artículo 204.—La Escuela Nacional de Policía podrá contar con sedes regionales, con la finalidad de cumplir con sus objetivos y fortalecer el proceso de expansión y regionalización de dichas actividades. Sus instalaciones serán de uso exclusivo para las actividades docentes oficiales.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 203 al 204)

@@ -1,5 +1,11 @@
-Artículo 71.—El Departamento de Cobros Administrativos tendrá las siguientes funciones:
-1) Tramitar los procesos de lesividad y de nulidad absoluta, evidente y manifiesta de conformidad con el ordenamiento jurídico.
-2) En relación con el personal, gestionar los procesos de cobro o recuperación de sumas giradas de más, enriquecimiento sin causa, preavisos, incumplimiento de contratos, incluyendo los convenios de estudio, incapacidades no deducidas, o cualquier otro concepto de naturaleza pecuniaria que implique un perjuicio o un disvalor económico para la Administración, para lo cual se constituirá en órgano Director del respectivo procedimiento.
-3) Tramitar los procesos de carácter indemnizatorio a favor de la administración por concepto de daños y perjuicios, incumplimiento de contratos, responsabilidad extracontractual, enriquecimiento sin causa o cualquiera otro concepto de naturaleza pecuniaria que implique un perjuicio o un disvalor económico para el Estado relacionados con los bienes y/o derechos del Ministerio.
-4) Cualquier otra propia de su competencia.
+Artículo 71.—El Departamento de Presupuesto tendrá las siguientes funciones:
+1) Controlar y dar seguimiento a la ejecución de las partidas presupuestarias, así como velar por la aplicación de la normativa y procedimientos necesarios para una adecuada, racional y proporcional ejecución.
+2) Vigilar que el control y ejecución presupuestario del Ministerio sea acorde con el ordenamiento jurídico y la normativa técnica impartida por la Dirección General de Presupuesto Nacional, así como las demás instituciones que intervienen en los procesos de ejecución presupuestaria.
+3) Coordinar con las diferentes unidades ejecutoras de presupuesto, la elaboración del Ante Proyecto Presupuestario, con el objetivo de que este responda a los Planes Operativos Institucionales.
+4) Coordinar y consolidar el anteproyecto de presupuesto del Ministerio, atendiendo la normativa técnica establecida por la Dirección General de Presupuesto Nacional, así como los lineamientos y directrices, generales y específicos, emitidos por la Autoridad Presupuestaria y la Contraloría General de la República.
+5) Ejercer supervisión sobre las actividades presupuestarias, de conformidad con las disposiciones y políticas que imparta el Ministerio de Hacienda y la Dirección General de Presupuesto Nacional.
+6) Valorar el resultado de la ejecución de las partidas presupuestarias, de acuerdo con los recursos asignados y ejecutados en cada subpartida, en concordancia con los principios de eficiencia, eficacia, economía y calidad.
+7) Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respalde las operaciones económicas y financieras que se realicen, de conformidad con las regulaciones y lineamientos que defina el Ministerio de Hacienda, en coordinación con la Contraloría General de la República.
+8) Formular las opciones de contenido presupuestario a los documentos de ejecución, estudios o proyectos que generen los programas, subprogramas y actividades presupuestarias.
+9) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 70 al 71)

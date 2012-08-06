@@ -1,10 +1,15 @@
-Artículo 77.—El Departamento de Control y Fiscalización de Activos tendrá las siguientes funciones:
-1) Realizar, coordinar, asignar, dirigir, controlar y supervisar los procedimientos administrativos y su aplicación, relacionados con los activos del Ministerio de Seguridad Pública, de conformidad con las disposiciones normativas legales y reglamentarias existentes, y demás disposiciones que los entes gubernamentales competentes, en relación con la materia de Control y Fiscalización de Activos de la Hacienda Pública.
-2) Implementar las medidas correctivas y de control interno que se estimen necesarias, en materia de registro y control de bienes.
-3) Coordinar con los órganos competentes y superiores, lo pertinente con respecto a las modificaciones o nuevas disposiciones normativas que puedan darse, en relación con la materia de administración, registro y control de bienes.
-4) Realizar la incorporación al patrimonio del Ministerio, de todos los bienes que sean adquiridos por compra, donación, canje, permuta o cualquiera otro procedimiento que implique su ingreso.
-5) Realizar la desincorporación de bienes del patrimonio del Ministerio, de los bienes que egresen por motivo de venta, donación, canje, permuta o cualquier otro procedimiento que implique su egreso.
-6) Programar y realizar periódicamente inventarios físicos totales y parciales y velar por que se lleve un registro actualizado de los bienes muebles e inmuebles, semovientes y otros sobre los que se tenga derecho, que sean propios o estén asignados al Ministerio.
-7) Elaborar informes periódicos y consolidar el Informe Anual del Inventario de Bienes del Ministerio, para su remisión a la Dirección General de Administración de Bienes y Contratación Administrativa.
-8) Mantener actualizado el valor de los bienes patrimoniales del Ministerio.
-9) Realizar cualquier otra función propia de su competencia.
+Artículo 77.—El Departamento de Contratación Administrativa tendrá las siguientes funciones:
+1) Programar, dirigir y tramitar los diversos procedimientos de contratación administrativa necesarios para la adquisición de los bienes, obras y servicios requeridos por el Ministerio, en los términos de calidad, cantidad, oportunidad y precio, según lo establecido en el Programa Anual de Adquisiciones, de acuerdo con la legislación aplicable, manuales de procedimiento respectivos y la disponibilidad presupuestaria.
+2) Recibir, revisar y analizar todo tipo de documentos que amparen o estén relacionados con la actividad de la Proveeduría Institucional y determinar, de conformidad con el ordenamiento jurídico, el tipo de procedimiento de contratación administrativa que corresponde.
+3) Elaborar los carteles o pliegos de condiciones de bienes, servicios u obras, en los distintos procedimientos de contratación administrativa, dándole la publicidad necesaria, en los medios legalmente establecidos.
+4) Conformar un expediente único bajo un número de identificación exclusivo, para cada procedimiento de contratación administrativa, cuyos documentos incorporados deberán estar debidamente foliados; y llevar un control de los expedientes que se conformen.
+5) Contar con un compendio de información a disposición de todos los interesados.
+6) Recibir y custodiar los documentos de garantía, tanto de participación como de cumplimiento y de cualquier otra índole, que se aporten dentro de los procedimientos de contratación administrativa y darles el seguimiento correspondiente en cuanto a su vigencia.
+7) Realizar el análisis integral de las ofertas presentadas en las contrataciones administrativas, de conformidad con el Sistema de Evaluación previsto, sometiendo sus conclusiones a la Comisión de Recomendación de Adjudicaciones, en caso de que se requiera.
+8) Elaborar los documentos de formalización contractual, cuando ello corresponda y gestionar su respectiva suscripción, así como la solicitud del refrendo del Órgano Contralor o la aprobación interna, según corresponda.
+9) Informar a la Dirección de Bienes y Contratación Administrativa, la existencia de personas físicas o jurídicas afectadas por el régimen de prohibiciones, con la finalidad de que actualice sus registros.
+10) Generar en el Sistema Integrado de Gestión de la Administración Financiera (SIGAF), el documento de ejecución presupuestaria denominado Pedido de Compra, una vez firme el acto de adjudicación.
+11) Coordinar sus funciones con las demás dependencias y unidades administrativas del Ministerio de Seguridad Pública, del Ministerio de Hacienda y las entidades externas contraloras, fiscalizadoras y ejecutoras del gasto público.
+12) Realizar todos los trámites requeridos para el pago de contrataciones a los proveedores radicados en el exterior, lo relativo a las exenciones de impuestos que resulten aplicables y al desalmacenaje de las mercancías correspondientes.
+13) Realizar cualquier otra función propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 76 al 77)

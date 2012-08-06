@@ -1,8 +1,10 @@
-Artículo 52.—La Sección de Desarrollo tendrá las siguientes funciones:
-1) Gestionar y coordinar acciones referentes a la obtención de facilidades de educación y formación del personal, con instituciones, tanto públicas como privadas.
-2) Elaborar contratos de adiestramiento para el personal que participa en los diferentes cursos que imparte la Escuela Nacional de Policía, la Academia del Servicio Nacional de Guardacostas y cualquier otra instancia.
-3) Tramitar descuentos universitarios conforme a los lineamientos establecidos en los distintos convenios suscritos con universidades y otras organizaciones formativas.
-4) Realizar estudios de las condiciones de trabajo y de calidad de vida laboral en que se encuentran los servidores del Ministerio de Seguridad Pública.
-5) Diseñar y aplicar programas de inducción al funcionario que permita una expedita socialización y adaptación institucional.
-6) Organizar y ejecutar actividades que permitan el fortalecimiento de la cultura institucional.
-7) Atender cualquier otra actividad propia de su competencia.
+Artículo 52.—La Sección de Capacitación tendrá las siguientes funciones:
+1) Gestionar y coordinar acciones de capacitación para el personal del Ministerio, con instituciones, tanto públicas como privadas.
+2) Elaborar estudios técnicos para el reconocimiento de títulos para carrera profesional del personal administrativo.
+3) Estudiar y recomendar las solicitudes de licencia de estudio con goce de salario para el personal administrativo y policial, de acuerdo con las disposiciones legales.
+4) Organizar y mantener actualizados los registros que identifiquen los recursos de facilitadores, personal capacitado, programas, con el fin de satisfacer necesidades internas de planificación de la capacitación y necesidades externas del Subsistema de Capacitación Desarrollo del Servicio Civil.
+5) Realizar estudios para determinar necesidades de capacitación del personal del Ministerio.
+6) Diseñar y desarrollar programas de capacitación orientados a mejorar el desempeño laboral.
+7) Diseñar e implementar metodologías de evaluación para medir el impacto de las actividades de capacitación en el personal.
+8) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 51 al 52)
