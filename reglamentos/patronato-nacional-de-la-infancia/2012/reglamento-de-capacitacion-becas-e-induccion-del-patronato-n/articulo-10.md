@@ -1,0 +1,11 @@
+Artículo 10.—Comisión de Capacitación y Becas y sus atribuciones.
+a. Créase la Comisión Institucional de Capacitación y Becas del PANI, la cual estará conformada por seis funcionarios o funcionarias, que representan las siguientes instancias: Presidencia Ejecutiva, Planificación y Desarrollo Institucional, un representante de la Gerencia de Administración; un representante de la Gerencia Técnica, Centro de Cultura y el Coordinador del Departamento de Recursos Humanos, quien presidirá la Comisión y convocará a los representantes de la misma a las sesiones.
+b. Las decisiones de la Comisión de Capacitación tendrán validez con la ratificación de acuerdos por parte de cuatro de sus miembros, quienes tienen además condición de quórum. En aquellos casos donde la votación quede en empatada, el voto de quien preside, tendrá voto de calidad.
+Serán atribuciones de la Comisión de Capacitación.
+a. Analizar y aprobar la propuesta del Programa Anual de Capacitación con base en el insumo borrador que presente el Centro de Cultura, el cual debe ser finalmente aprobado por la Presidencia Ejecutiva.
+b. Conocer los informes semestrales que en materia de capacitación emite el Centro de Cultura, y realizar las observaciones y sugerencias técnicas pertinentes.
+c. Conocer y emitir criterio sobre ajustes al Programa Anual de Capacitación que deban realizarse sobre la marcha.
+d. Conocer y emitir criterio sobre solicitudes de capacitación no programada en el Programa Anual, cuando estas sean gestionadas por instancias internas o funcionarios. Estas solicitudes deben ser previamente aprobadas por la jefatura correspondiente.
+e. Analizar los estudios técnicos realizados por el Departamento de Recursos Humanos relacionados con solicitudes de becas que presenten los funcionarios y funcionarias y emitir el criterio correspondiente, el cual será incluido en el expediente que será conocido por la Presidencia Ejecutiva.
+f. Conocer, analizar y emitir criterio sobre situaciones especiales en materia de capacitación que le sea transferido por cualquier instancia interna del PANI.
+g. Retroalimentar cualquier proceso relacionado con capacitación y becas que sea presentado a la Comisión por iniciativa de quien preside o alguno de sus miembros.

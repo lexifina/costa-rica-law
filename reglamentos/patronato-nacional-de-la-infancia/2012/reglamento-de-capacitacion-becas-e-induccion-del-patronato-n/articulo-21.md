@@ -1,0 +1,1 @@
+Artículo 21.—De las sanciones disciplinarias. El Departamento de Recursos Humanos pondrá en conocimiento de la Presidencia Ejecutiva, el incumplimiento de las disposiciones contempladas en este Reglamento para determinar la procedencia o no de ordenar la respectiva investigación disciplinaria por parte del Órgano Director del Procedimiento Administrativo Disciplinario.
