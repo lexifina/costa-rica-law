@@ -15,3 +15,4 @@ Establece la posibilidad de ser llevados en formato digital los Libros Sociales 
 | --- | --- | --- |
 | 1 | 2011-11-01 | la propia norma |
 | 2 | 2011-12-12 | Resolución 41 (2011-12-12) |
+| 3 | 2012-08-06 | Resolución 16 (2012-08-06) |
