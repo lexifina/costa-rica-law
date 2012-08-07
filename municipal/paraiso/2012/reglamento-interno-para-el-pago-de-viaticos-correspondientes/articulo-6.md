@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad proveerá un refrigerio que no exceda los tres mil colones por persona con una aumento automático por año del diez por ciento en las sesiones ordinarias para los regidores y síndicos propietarios y suplentes que asistan a la sesión o en las sesiones extraordinarias cuando estas se extiendan más de dos horas.
