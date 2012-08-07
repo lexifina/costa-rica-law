@@ -1,0 +1,1 @@
+Artículo 11.—De la gestión cobratoria e incobrabilidad. Para los efectos de la gestión cobratoria (administrativa y judicial), arreglos de pago, tramitación de incobrabilidad administrativa o judicial, de los Fondos Especiales debe aplicarse los reglamentos y disposiciones vigentes en el Banco Popular y Desarrollo Comunal.

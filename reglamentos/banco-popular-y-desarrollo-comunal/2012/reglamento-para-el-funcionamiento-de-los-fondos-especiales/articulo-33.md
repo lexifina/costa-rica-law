@@ -1,0 +1,1 @@
+Artículo 33.—Del acompañamiento a la organización. Se podrá establecer convenios de cooperación con organizaciones públicas o privadas, a fin de brindarle el seguimiento y acompañamiento a la organización que suscriba crédito o bien a sus beneficiarios.

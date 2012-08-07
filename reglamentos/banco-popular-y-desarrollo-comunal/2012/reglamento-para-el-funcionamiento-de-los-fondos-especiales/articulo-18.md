@@ -1,0 +1,1 @@
+Artículo 18.—De las garantías: Todos los créditos deberán ser respaldados en su totalidad por la organización, con garantías de conformidad con lo indicado en la Tabla sobre las Garantías para el FEDE de este Reglamento.

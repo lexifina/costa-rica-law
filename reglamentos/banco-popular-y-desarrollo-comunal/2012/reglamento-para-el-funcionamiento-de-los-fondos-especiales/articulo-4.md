@@ -1,0 +1,1 @@
+Artículo 4º—Áreas encargadas de la administración: La Gerencia General Corporativa definirá las áreas encargadas de realizar las funciones operativas y administrativas en cada uno de los fondos especiales.

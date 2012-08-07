@@ -1,0 +1,1 @@
+Artículo 5º—Sobre la solicitud de recursos: La Gerencia General Corporativa presentará anualmente el informe de “Solicitud de Traslado de Recursos a los Fondos Especiales” a la Junta Directiva Nacional para análisis y aprobación; este informe deberá contemplar una proyección estimada de colocación.

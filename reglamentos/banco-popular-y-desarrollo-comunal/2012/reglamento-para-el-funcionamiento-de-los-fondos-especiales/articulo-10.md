@@ -1,0 +1,1 @@
+Artículo 10.—De la inversión de recursos: La Gerencia General Corporativa emitirá los lineamientos de inversión, los cuales serán de conocimiento de la Comisión de Emprendimiento y Fondos Especiales de la Junta Directiva Nacional para ser analizados y remitidos a esta Junta Directiva Nacional para su aprobación.

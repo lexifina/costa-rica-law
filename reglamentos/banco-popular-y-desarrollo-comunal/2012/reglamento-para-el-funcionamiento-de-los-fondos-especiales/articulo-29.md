@@ -1,0 +1,1 @@
+Artículo 29.—Los niveles de resolución de créditos y los montos máximos que éstos pueden aprobar; así como, los procedimientos para ejecutar esta función; serán los mismos establecidos en el Reglamento General de Crédito del Banco Popular.
