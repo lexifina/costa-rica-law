@@ -1,0 +1,1 @@
+Artículo 25.—Quórum: Los acuerdos de la Junta Administradora, serán tomados por mayoría simple, constituida en este caso por tres miembros, salvo en aquellos casos donde el Reglamento exija una mayoría calificada, se requerirá el voto de cuatro de sus miembros.

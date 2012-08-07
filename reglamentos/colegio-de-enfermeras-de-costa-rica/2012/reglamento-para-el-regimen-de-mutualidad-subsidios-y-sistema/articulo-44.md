@@ -1,0 +1,2 @@
+Artículo 44.—Nuevos montos a cubrir. Los colegiados (as) que han hecho su aporte de la nueva cuota a partir de julio del 2011 y se han acogido a la jubilación /o ha habido defunciones después de esa fecha se reconocerá los nuevos montos, al momento de la vigencia de este Reglamento. Estos montos se indican en la tabla anexa al reglamento.
+Este Reglamento fue debidamente aprobado en la asamblea general extraordinaria de colegiados (as) afiliados (as) del Fondo, celebrada en el salón de sesiones del Colegio de Enfermeras de Costa Rica, el día 5 de julio del año dos mil doce.

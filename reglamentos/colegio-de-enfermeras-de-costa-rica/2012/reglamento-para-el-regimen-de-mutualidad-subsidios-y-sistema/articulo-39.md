@@ -1,0 +1,3 @@
+Artículo 39.—De la aprobación, publicación y vigencia de este Reglamento: El presente Reglamento deberá aprobarse, por mayoría simple de los miembros presentes en la Asamblea General Extraordinaria, convocada al efecto.
+Las reformas totales o parciales que se le hagan a este Reglamento, posterior a su aprobación por parte de la Asamblea General, deberán ser aprobados por mayoría simple de los miembros presentes de la Asamblea General Ordinaria de colegiados (as) afiliados (as) convocada, conforme al artículo 7 inciso 5) de este Reglamento.
+Una vez aprobado el reglamento o sus reformas, deberán publicarse en el diario oficial La Gaceta, fecha a partir de la cual entrará en vigencia.

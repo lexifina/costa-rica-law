@@ -1,0 +1,3 @@
+CAPÍTULO X
+Disposiciones finales
+Artículo 38.—De la derogatoria del Reglamento anterior: Por disposición del Poder Ejecutivo, según Decreto Ejecutivo Nº 35943, publicado en el Diario Oficial La Gaceta Nº 82 del día 29 de abril del 2010, se procedió a derogar el artículo 32 del Decreto Ejecutivo Nº 12 del 10 de agosto de 1961, que corresponde al “Reglamento de Mutualidad y Subsidios del Colegio de Enfermeras de Costa Rica”, de tal manera que a partir de esa fecha, este Colegio, no requiere la aprobación del Poder Ejecutivo para derogar o reformar parcial o totalmente dicho Reglamento, en razón de lo cual en uso de esas potestades conferidas al Colegio de Enfermeras de Costa Rica, se procede a dejar sin ningún valor ni efecto jurídico, el citado Reglamento.
