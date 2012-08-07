@@ -1,0 +1,1 @@
+Artículo 125.—En todo aquello no previsto en éste Reglamento sobre acoso u hostigamiento sexual, rige la Ley Nº 7476 de 3 de febrero de 1995, Ley contra el Hostigamiento sexual en el empleo y la docencia.

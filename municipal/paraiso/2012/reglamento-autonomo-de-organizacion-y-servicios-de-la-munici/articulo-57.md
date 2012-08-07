@@ -1,0 +1,1 @@
+Artículo 57.—Cuando se haya cumplido la jornada semanal conforme al artículo 43 de este Reglamento, los servidores municipales disfrutaran de un día absoluto de descanso, con goce de salario según el artículo 152 del Código de Trabajo.

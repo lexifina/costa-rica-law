@@ -1,0 +1,4 @@
+CAPÍTULO XX
+De las comisiones de salud ocupacional y de las condiciones
+de seguridad e higiene del trabajo
+Artículo 103.—Declárese de interés público de conformidad con el Artículo 273 del Código de Trabajo, todo lo referente a la salud ocupacional, que tiene como finalidad promover y mantener el más alto nivel de bienestar físico, mental y social del servidor en general, prevenir todo daño causado a la salud de éste por condiciones del trabajo, protegerlo en su empleo contra riesgos resultantes de la existencia de agentes nocivos a la salud, colocar y mantener al servidor en un empleo con sus aptitudes fisiológicas y en síntesis, adaptar el trabajo al hombre y cada hombre a su tarea.

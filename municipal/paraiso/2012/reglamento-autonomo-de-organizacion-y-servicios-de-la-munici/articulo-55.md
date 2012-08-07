@@ -1,0 +1,1 @@
+Artículo 55.—En caso que el trabajador por razones justificadas no pueda disfrutar las vacaciones en el período establecido, deberá comunicarlo de inmediato por escrito a su jefatura para que ésta reprograme las mismas en coordinación con la Unidad de Recursos Humanos.

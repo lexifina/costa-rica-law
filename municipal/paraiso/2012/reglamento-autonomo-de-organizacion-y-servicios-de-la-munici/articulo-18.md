@@ -1,0 +1,1 @@
+Artículo 18.—En todo caso, las plazas vacantes podrán ser ocupadas en forma interina por la persona designada para ello por el Alcalde mientras se realiza el concurso interno, hasta por el término de dos meses, atendiendo siempre las disposiciones de los artículos 116 y 130 del Código Municipal.

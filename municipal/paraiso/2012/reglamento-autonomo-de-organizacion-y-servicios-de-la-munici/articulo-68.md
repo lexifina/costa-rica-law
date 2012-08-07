@@ -1,0 +1,1 @@
+Artículo 68.—En todo caso lo que no se encuentre aquí expresamente regulado respecto de las incapacidades, se consideran disposiciones supletorias las contenidas en el Reglamento de la Ley de Riesgos del Trabajo, e interpretaciones que haga la CCSS o el INS.

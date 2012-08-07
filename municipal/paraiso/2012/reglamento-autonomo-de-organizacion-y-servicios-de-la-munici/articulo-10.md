@@ -1,0 +1,1 @@
+Artículo 10.—La aplicación del presente reglamento corresponde al Alcalde Municipal y a los representantes patronales y rige para todos los empleados municipales, salvo para aquellos funcionarios que dependan directamente del Concejo Municipal cuyas acciones laborales serán acordadas por ese cuerpo colegiado.

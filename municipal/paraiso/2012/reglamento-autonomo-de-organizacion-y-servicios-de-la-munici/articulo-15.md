@@ -1,0 +1,1 @@
+Artículo 15.—Cuando resulte necesario realizar un concurso interno por oposición, la Unidad de Recursos Humanos, publicará su apertura dentro de los siguientes quince días naturales posteriores a aquel en que se produjo la vacante.

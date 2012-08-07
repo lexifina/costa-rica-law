@@ -1,0 +1,2 @@
+Artículo 139.—La Unidad de Recursos Humanos de la Municipalidad de Paraíso verificará cuando lo considere pertinente y de conformidad con los procedimientos que al respecto establezca, el fiel cumplimiento de todas las disposiciones contenidas en este Reglamento y el respectivo contrato.
+Cuando se comprobare incumplimiento de las obligaciones contraídas por los servidores suscriptores, deben tomar las medidas convenientes.

@@ -1,0 +1,1 @@
+Artículo 153.—El incumplimiento del servidor de la Municipalidad de Paraíso a esta norma se considerará falta grave en sus funciones y será sancionado de acuerdo a lo previsto en la normativa que regula la prestación de servicios y/o el Código de Trabajo y normas legales atinentes.

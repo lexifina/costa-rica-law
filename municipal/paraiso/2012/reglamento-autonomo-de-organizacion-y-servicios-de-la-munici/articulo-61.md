@@ -1,0 +1,1 @@
+Artículo 61.—La concesión de un asueto la dispone el Concejo Municipal de conformidad con la ley, lo que será hecho del conocimiento de los trabajadores por el Alcalde Municipal. No se constituye un derecho adquirido por los trabajadores.

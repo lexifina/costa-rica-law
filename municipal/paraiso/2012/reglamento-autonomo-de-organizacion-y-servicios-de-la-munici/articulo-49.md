@@ -1,0 +1,3 @@
+Artículo 49.—La Municipalidad pagará salarios por períodos vencidos por medio del cajero automático de la entidad bancaria que crea más conveniente. La modalidad de pago será la siguiente: Al personal Administrativo se le pagará su salario quincenalmente según las fechas....
+Al personal de Servicios Básicos (jornales) se pagarán semanalmente el día jueves..... (bajo la misma modalidad).
+En aquellos casos en que un funcionario no tenga su tarjeta de pago, se le cancelará mediante cheque girado por la municipalidad.

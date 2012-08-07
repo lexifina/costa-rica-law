@@ -1,0 +1,1 @@
+Artículo 52.—No podrán acumularse periodos de vacaciones salvo por una sola vez, cuando el trabajador desempeñe labores técnicas, de confianza u otras análogas que hagan difícil su reemplazo. No obstante podrá el Alcalde Municipal en caso de urgencia, solicitar una interrupción del período de vacaciones, que será completado inmediatamente de pasada la emergencia.
