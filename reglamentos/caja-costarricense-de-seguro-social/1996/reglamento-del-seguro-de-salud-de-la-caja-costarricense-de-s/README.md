@@ -25,3 +25,4 @@ Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social
 | 10 | 2007-03-22 | Reglamento 8140 (2007-03-22) |
 | 11 | 2009-12-03 | Reglamento 8403 (2009-12-03) |
 | 12 | 2012-05-02 | SINALEVI (sin norma nombrada) |
+| 13 | 2012-08-08 | SINALEVI (sin norma nombrada) |
