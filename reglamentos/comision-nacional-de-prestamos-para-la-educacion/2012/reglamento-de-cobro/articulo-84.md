@@ -1,0 +1,1 @@
+Artículo 84.—El prestatario, fiadores o apoderados legales deben presentarse a formalizar el addendum al Contrato de Crédito para Estudios en un plazo no mayor a diez días después del comunicado, de lo contrario, se dará por anulado y se archivará, salvo casos debidamente justificados y autorizados por el Jefe de la Sección de Cobro.

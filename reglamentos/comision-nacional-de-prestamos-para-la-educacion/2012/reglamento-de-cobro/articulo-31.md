@@ -1,0 +1,1 @@
+Artículo 31.—El prestatario, fiador o terceros podrán realizar abonos extraordinarios al principal de la deuda, para lo cual ésta debe estar al día y el monto a pagar debe ser superior al monto de la cuota mensual establecida en el plan de amortización.

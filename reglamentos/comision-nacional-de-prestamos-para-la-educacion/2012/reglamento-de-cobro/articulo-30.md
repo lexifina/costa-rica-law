@@ -1,0 +1,1 @@
+Artículo 30.—Cuando la operación crediticia este atrasada en el pago de sus cuotas mensuales, CONAPE cobrará adicional al monto de la cuota mensual un monto correspondiente al arreglo extrajudicial, conforme a la normativa vigente, por las gestiones administrativas realizadas por el abogado que designe la Institución.

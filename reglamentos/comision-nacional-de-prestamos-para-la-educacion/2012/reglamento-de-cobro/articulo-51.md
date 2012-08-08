@@ -1,0 +1,3 @@
+SECCIÓN IX
+Periodo de gracia o prórroga de pago
+Artículo 51.—El prestatario podrá solicitar por escrito un periodo de gracia o prorroga de pago, al iniciar o durante el periodo de amortización de la deuda, para realizar el pago de sus cuotas mensuales en una fecha posterior a la fecha establecida para realizar el pago, lo que implicaría una vez finalizado el periodo de gracia o prórroga de pago autorizado, un aumento en el saldo de principal adeudado debido a los intereses y al saldo de la póliza de vida que se acumulan en el periodo de gracia o de prórroga aprobado, resultando un nuevo saldo de principal y de cuota mensual.

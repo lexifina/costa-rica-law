@@ -1,0 +1,1 @@
+Artículo 16.—Los ajustes a la tasa de interés corriente y a la moratoria durante el período de gracia y amortización del préstamo se harán conforme al mecanismo de fluctuación establecido en el respectivo Contrato de Crédito para Estudios y cualquier otra disposición que al respecto determine el Consejo Directivo.

@@ -1,0 +1,1 @@
+Artículo 106.—Cuando un fiador o tercero, realicé el pago de cuotas mensuales, sin que ello implique la cancelación total del monto adeudado, no se entregará el Contrato de Crédito para Estudios o addendum. La entrega de dichos documentos se realizará luego de cancelada la operación crediticia únicamente a quien(es) efectúe(n) el trámite de subrogación de la deuda.

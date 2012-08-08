@@ -1,0 +1,1 @@
+Artículo 6º—Se faculta a la Sección de Cobro de la Institución, para que utilice los servicios de localización de personas, cuando al realizar la gestión de cobro, requiera contactar al prestatario, fiadores u otras personas y la información necesaria no esté disponible.

@@ -1,0 +1,1 @@
+Artículo 92.—La Sección de Cobro rebajará del monto de la indemnización las cuotas atrasadas de la operación crediticia, que presente un reclamo por defunción o incapacidad total y permanente del prestatario y aplicará el saldo remanente de la indemnización al principal de la deuda.

@@ -1,0 +1,1 @@
+Artículo 18.—El plazo y la cuota mensual de cada operación crediticia se definirá con base en la Tabla de Plazos de Amortización (ver anexo Nº 1), misma que deberá ser revisada y sometida a aprobación del Consejo Directivo.

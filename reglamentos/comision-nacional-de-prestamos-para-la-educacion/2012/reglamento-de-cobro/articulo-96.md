@@ -1,0 +1,1 @@
+Artículo 96.—El Jefe de la Sección de Cobro, en coordinación con la Asesoría Legal de la Institución, determinarán los documentos necesarios que se deben remitir al Juzgado para el trámite judicial de la operación.

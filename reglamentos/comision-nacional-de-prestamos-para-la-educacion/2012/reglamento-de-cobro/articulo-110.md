@@ -1,0 +1,1 @@
+Artículo 110.—El Jefe de la Sección de Cobro y la Asesoría Legal de la Institución estarán facultadas para solicitar al Comité de Cobro que se analice la recomendación de trasladar a incobrables una operación crediticia que se encuentra en cobro judicial.

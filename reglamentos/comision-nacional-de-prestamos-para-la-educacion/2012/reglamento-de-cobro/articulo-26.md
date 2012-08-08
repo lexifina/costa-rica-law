@@ -1,0 +1,1 @@
+Artículo 26.—La reversión de las operaciones crediticias de la cartera de cobro hacia la de transición, se podrán realizar siempre y cuando el prestatario no haya efectuado ningún pago y medie solicitud expresa de la Sección de Desembolsos y Control de Crédito, en donde indique el motivo del trámite; casos de excepción serán autorizados por el Jefe de la Sección de Cobro.

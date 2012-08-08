@@ -1,0 +1,1 @@
+Artículo 40.—CONAPE determinará y autorizará el número de cuotas mensuales atrasadas que los clientes de CONAPE podrán pagar mediante el sistema de pago en línea, si se excedieren de ese número de cuotas el pago se tendrá que efectuar en las Cajas de CONAPE.

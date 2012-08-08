@@ -1,0 +1,1 @@
+Artículo 97.—El Abogado Director en un plazo no mayor a cinco días hábiles a partir del recibo de la documentación completa debe confeccionar el escrito de demanda; el cual luego de firmado por el Representante Legal de CONAPE, se debe presentar en un plazo máximo de tres días hábiles ante la autoridad judicial respectiva.

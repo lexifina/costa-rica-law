@@ -1,0 +1,1 @@
+Artículo 57.—El Jefe de la Sección de Cobro podrá autorizar el trámite del periodo de gracia o prórroga de pago por un motivo diferente a los enunciados en el artículo Nº 56, siempre y cuando se cumpla con los requisitos establecidos en este Reglamento.

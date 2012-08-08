@@ -1,0 +1,1 @@
+Artículo 50.—El reintegro de dinero se realizará mediante cheque o cualquier otro medio de pago que establezca CONAPE. Los reintegros de dinero cuyos cheques no se retiren en un plazo menor o igual a los tres meses, serán anulados por la Sección de Tesorería de CONAPE conforme a la normativa establecida para ese fin.

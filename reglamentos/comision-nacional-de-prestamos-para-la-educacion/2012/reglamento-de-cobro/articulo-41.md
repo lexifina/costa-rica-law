@@ -1,0 +1,1 @@
+Artículo 41.—Los recibos de pago cancelados con cheques que sean devueltos por la entidad bancaria al momento de hacerlos efectivo, serán anulados por la Sección de Cobro a la mayor brevedad posible posterior a la fecha en que la Sección de Tesorería se lo comunique y se le informará al cliente para que proceda a solventar dicha situación.

@@ -1,0 +1,1 @@
+Artículo 100.—En caso de existir montos remanentes a favor de los demandados en las instancias judiciales no girados a CONAPE, una vez cancelada la operación, se autoriza al Abogado Director, a efectuar las gestiones judiciales para que dichas sumas sean devueltas a los interesados.

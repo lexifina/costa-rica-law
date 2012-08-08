@@ -1,0 +1,4 @@
+SECCIÓN XIII
+Formalización del addendum al contrato
+de crédito para estudios
+Artículo 80.—El prestatario, fiadores o apoderados legales deberán firmar un addendum al Contrato de Crédito para Estudios cuando se modifiquen los términos originales contractuales; esto es, cuando el monto de la deuda, el plazo de amortización o el monto de la cuota sean superiores al fijado en el respectivo contrato o en el último addendum debidamente formalizado, cuando se sustituya o excluya uno o más fiadores, cuando se modifique el mecanismo de fluctuación de la tasa de interés o cuando las condiciones así lo requieran.

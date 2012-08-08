@@ -1,0 +1,3 @@
+SECCIÓN V
+Condiciones de pago
+Artículo 27.—El monto de la cuota mensual de la operación crediticia se definirá al inicio del periodo de amortización, considerando la tasa de interés vigente según el Contrato de Crédito para Estudios, el monto total adeudado y el plazo que conforme al monto de la deuda se establezca en la Tabla de Plazos de Amortización, de mutuo acuerdo con el prestatario, caso contrario, el deudor deberá pagar el monto que se indica en el Contrato de Crédito para Estudios para aquellas operaciones crediticias que hayan sido trasladadas a la Sección de Cobro con estado de cumplimiento del Contrato.

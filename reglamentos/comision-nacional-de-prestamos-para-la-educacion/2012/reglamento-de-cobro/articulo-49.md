@@ -1,0 +1,1 @@
+Artículo 49.—La Sección de Cobro podrá informar a los clientes de los reintegros de dinero en aquellos casos que lo considere necesario y conveniente; siendo el prestatario o fiadores los únicos responsables de gestionar dichos reintegros ante la Sección de Cobro de CONAPE.

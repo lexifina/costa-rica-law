@@ -1,0 +1,1 @@
+Artículo 58.—O desempleo, fondos económicos insuficientes, embarazo de la deudora, problemas de salud física y emocional o estudios. Cualquier otro motivo deberá ser aprobado por el Jefe de la Sección de Cobro.

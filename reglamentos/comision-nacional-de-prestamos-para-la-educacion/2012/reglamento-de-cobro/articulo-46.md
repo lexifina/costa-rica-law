@@ -1,0 +1,1 @@
+Artículo 46.—Cuando la cancelación se efectúa por el ente asegurador en aplicación al pago por indemnización, el Comprobante de Pago se confeccionará a nombre del prestatario y los reintegros de dineros se girarán a nombre de la persona que presente los recibos o comprobantes de pago originales, que generen el reintegro.

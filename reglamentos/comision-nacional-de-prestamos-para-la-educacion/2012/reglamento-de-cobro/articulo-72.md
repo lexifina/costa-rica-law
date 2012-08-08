@@ -1,0 +1,1 @@
+Artículo 72.—Cuando sea necesario firmar un addendum al Contrato de Crédito para Estudios por cualquier trámite que pueda cambiar las condiciones originales del contrato y uno o más fiadores no estén disponibles para efectuar la firma, se debe realizar de forma previa a la solicitud de dicho trámite, la sustitución de los fiadores que sea necesario.

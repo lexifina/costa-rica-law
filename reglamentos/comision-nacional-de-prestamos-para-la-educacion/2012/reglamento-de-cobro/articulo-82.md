@@ -1,0 +1,1 @@
+Artículo 82.—El deudor siempre tiene que firmar el addendum al contrato de crédito para estudios en las oficinas de CONAPE y sólo él puede retirarlo para que los fiadores puedan firmarlo fuera de CONAPE. Se exceptúa casos especiales a juicio del Jefe de la Sección de Cobro.

@@ -1,0 +1,1 @@
+Artículo 53.—Durante el periodo de amortización, la operación crediticia podrá tener uno o más periodos de gracia o prórrogas de pago aprobados, no pudiendo exceder el periodo de gracia los doce meses y la prórroga de pago los dieciséis meses.

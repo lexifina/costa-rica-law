@@ -1,0 +1,1 @@
+Artículo 55.—El periodo de la prórroga de pago se considera desde la fecha de la última cuota pagada en condiciones normales y registradas en el sistema, hasta el último día del mes anterior a la fecha en que el cliente reanude de nuevo los pagos de las cuotas mensuales; para lo cual deberá haber pagado al menos la primera cuota del plan de amortización.

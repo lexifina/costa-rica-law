@@ -1,0 +1,5 @@
+Artículo 66.—Para tramitar un arreglo de pago administrativo o extrajudicial, el interesado deberá cumplir con los siguientes requisitos:
+a. Cumplir con lo establecido en los artículos 64 y 65, según corresponda.
+b. Solicitud escrita firmada por el prestatario, fiador(es) o terceros, en el formulario establecido por la Sección de Cobro para ese efecto. La firma registrada debe ser igual a la de la cédula de identidad vigente.
+c. Actualización de direcciones, números de teléfonos de residencia, trabajo, número de celular, correo electrónico del prestatario y fiadores, éstos últimos en caso de garantía fiduciaria. Para las garantías hipotecarias se deberá actualizar en el formulario establecido por CONAPE, los datos anteriores tanto del prestatario como de l(os) dueño(s) de la propiedad.
+d. En aquellos casos que hayan requerido de garantía hipotecaria, deberán tener la póliza de incendio y terremoto al día y con una vigencia de un año a partir de la fecha de la solicitud, para lo cual debe presentar el respectivo comprobante emitido por el ente asegurador.

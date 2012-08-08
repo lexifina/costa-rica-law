@@ -1,0 +1,1 @@
+Artículo 4º—Los requisitos de las solicitudes que gestionen los prestatarios ante la Sección de Cobro, podrán entregarse de forma personal, por fax o cualquier otro medio que la Sección de Cobro ponga a disposición de los clientes; excepto para aquellos trámites en que sea necesario la entrega de documentación original.

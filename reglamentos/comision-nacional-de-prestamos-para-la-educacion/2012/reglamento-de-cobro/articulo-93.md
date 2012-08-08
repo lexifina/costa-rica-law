@@ -1,0 +1,1 @@
+Artículo 93.—Los saldos adeudados que no sean cubiertos por el monto de la indemnización girada por el ente asegurador deberán ser cubiertos por el o los fiadores o cualquier otra persona que voluntariamente así lo desee, caso contrario, la Sección de Cobro procederá a cobrar los saldos adeudados por la vía judicial.
