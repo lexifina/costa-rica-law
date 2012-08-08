@@ -1,0 +1,2 @@
+Artículo 2.- Disposiciones generales.
+Se considera la ética como la orientación racional de la conducta hacia la consecución de unos fines determinados, los cuales no pueden atentar contra nuestra condición de seres sociales. Con ello se afirma que los fines que se planteen deben tener presente que el límite de nuestro bienestar es el bienestar de los otros que comparten nuestra vida diaria, por ende es alcanzar la excelencia en el actuar abarcando todo el quehacer humano.
