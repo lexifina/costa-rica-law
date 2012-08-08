@@ -1,4 +1,4 @@
-Artículo 46.- (*)Prohíbese la venta de todo tipo de licores, aguardiente y cerveza en los estadios y gimnasios.
+Artículo 46.- (*)(Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")
 (*) El artículo 1º de la ley Nº 5817 de 15 de octubre de 1975, adicionó el presente artículo sin precisar su correspondiente número. En consecuencia, para efectos del Sistema y congruente con la numeración del articulado de esta ley, se le ha asignado el Nº 46).
 NOTA FINAL A LA LEY: La Ley Nº 183 de 1º de agosto de 1941 dispone:
 "Artículo Unico.- La ley Nº 361 de 24 de agosto de 1940, que reformó en parte la de Licores, entrará en vigencia cuando el Poder Ejecutivo emita el reglamento correspondiente, en tal forma que el número de patentes que ahora hay autorizadas por la ley, no sea disminuído."

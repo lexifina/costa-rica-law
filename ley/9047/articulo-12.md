@@ -1,0 +1,3 @@
+ARTÍCULO 12.- Publicidad comercial
+El Ministerio de Salud tendrá a su cargo la regulación y el control de todo tipo de publicidad comercial relacionada con la comercialización de bebidas con contenido alcohólico, efectuadas por cualquier medio de comunicación a título gratuito o mediante pago. Todo control se realizará de previo a la divulgación de la publicidad.
+Se prohíbe la utilización de marcas o nombres de bebidas con contenido alcohólico en publicidad, como rotulación de uniformes, medios de transporte utilizados para competencias y artículos deportivos de todo equipo, asociación, federación y liga deportiva, así como en actividades recreativas o culturales dirigidas a menores de edad.
