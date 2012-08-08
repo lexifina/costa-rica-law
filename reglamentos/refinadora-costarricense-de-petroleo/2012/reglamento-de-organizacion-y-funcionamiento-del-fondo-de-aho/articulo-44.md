@@ -1,0 +1,1 @@
+Artículo 44.- Cada Junta estará integrada por un Presidente, un Secretario y dos suplentes; sin embargo, en ausencia de alguno o algunos de ellos, por cualquier causa, podrá funcionar con uno solo de los integrantes. El Tribunal les expedirá un distintivo que los identifique como miembros de su mesa.

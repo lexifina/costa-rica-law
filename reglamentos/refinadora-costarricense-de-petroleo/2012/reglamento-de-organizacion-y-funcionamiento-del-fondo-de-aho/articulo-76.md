@@ -1,0 +1,1 @@
+Artículo 76.- El Presidente dirigirá las sesiones de la Junta. En su ausencia transitoria las dirigirá el Vicepresidente (a). En ausencia transitoria del Vicepresidente (a) dirigirá la Junta el miembro titular de mayor edad.

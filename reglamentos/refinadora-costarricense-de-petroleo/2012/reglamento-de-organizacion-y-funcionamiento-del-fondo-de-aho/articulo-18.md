@@ -1,0 +1,1 @@
+Artículo18.- Se celebrarán en el domicilio del FONDO de Ahorro, Préstamo, Vivienda, Recreación y Garantía de los Trabajadores de Recope, ubicado en Guadalupe Centro 100 metros norte y 50 metros oeste del correo en la hora y fecha que señale la convocatoria y se cerrarán en el momento en que el Presidente de la asamblea informe el resultado definitivo de las votaciones.

@@ -1,0 +1,1 @@
+Artículo 49.- Coincidiendo con la asamblea, las Juntas receptoras de votos deberán abrir la votación a las siete horas y se cerrará a las diecisiete horas del día de la elección. Bajo ninguna circunstancia la mesa podrá cerrarse antes de las diecisiete horas.

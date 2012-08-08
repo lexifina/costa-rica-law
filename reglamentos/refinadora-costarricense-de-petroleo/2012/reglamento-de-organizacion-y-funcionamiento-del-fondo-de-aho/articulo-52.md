@@ -1,0 +1,1 @@
+Artículo 52.- El elector discapacitado que no pueda emitir el voto secreto, podrá hacerlo público frente a la Junta Receptora de Votos, el Presidente marcará con una equis la casilla correspondiente al candidato que el elector a viva voz le indique, para cada uno de los puestos y depositará las papeletas en la caja respectiva.

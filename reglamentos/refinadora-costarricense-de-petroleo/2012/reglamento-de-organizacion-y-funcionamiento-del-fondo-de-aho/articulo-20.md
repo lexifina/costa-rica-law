@@ -1,0 +1,1 @@
+Artículo 20.- En las asambleas se conocerá de la elección directa, secreta y universal de los miembros titulares y suplentes de la Junta y el Fiscal, que durarán en sus cargos por un período de dos años.

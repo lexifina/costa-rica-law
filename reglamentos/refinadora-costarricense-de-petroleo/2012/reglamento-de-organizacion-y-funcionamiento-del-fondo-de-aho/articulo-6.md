@@ -1,0 +1,1 @@
+Artículo 6.- El patrimonio del FONDO estará compuesto por el aporte personal de los trabajadores y el pago que hace RECOPE en cumplimiento de la convención colectiva de trabajo y el FONDO; así como por los bienes producto de su giro normal y por los demás bienes y derechos que el FONDO llegue a adquirir.

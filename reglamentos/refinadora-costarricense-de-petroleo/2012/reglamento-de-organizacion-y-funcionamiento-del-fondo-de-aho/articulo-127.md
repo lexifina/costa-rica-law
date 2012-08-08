@@ -1,0 +1,13 @@
+Capítulo XIV
+De la Junta de Relaciones Laborales
+Artículo 127.- Junta Relaciones Laborales
+127.1 La Junta de Relaciones Laborales estará integrada por dos representantes del FONDO y dos representantes de los trabajadores; y sus respectivos suplentes. Los representantes de los trabajadores los nombrará SITRAFAR. Será coordinada por un representante del FONDO.
+127.2 Conocerá de los procedimientos que tiendan a imponer sanciones disciplinarias, suspensión o despido, a los trabajadores del FONDO. También conocerá sobre los reclamos que presenten los trabajadores por el nombramiento en plazas vacantes que haya realizado la administración.
+127.3 El coordinador convocará por escrito y con al menos 24 horas de anticipación cuando existan asuntos a tratar. El quorum lo integran dos representantes de cada parte y los acuerdos se tomarán por mayoría. Es obligación de ambas partes completar y mantener el quórum en las sesiones de Junta de Relaciones Laborales.
+127.4 Cuando no se obtuviere una única recomendación o resolución en virtud del desacuerdo de los integrantes de la Junta de Relaciones Laborales, el asunto se elevará a la Gerencia General para su resolución. Recibido el expediente en la Gerencia, ésta en un plazo de cinco días hábiles dará audiencia a las partes por tres días hábiles para que se manifiesten sobre el asunto. Vencida la audiencia, la Gerencia deberá resolver el asunto en un plazo de ocho días hábiles y la resolución que recaiga deberá ser notificada a las partes.
+127.5 Cuando la Junta de Relaciones Laborales emitiere una recomendación o resolución por simple mayoría, ésta deberá ser considerada por la Gerencia General a la hora de decidir el asunto.
+127.6 Las sesiones de la Junta se asentarán en actas, que deberán ser firmadas por los miembros asistentes. Copia debidamente firmada se entregará a la Gerencia General y a SITRAFAR.
+127.7 El FONDO proveerá a la Junta de Relaciones Laborales los recursos necesarios para su adecuado funcionamiento.
+127.8 En los asuntos sometidos a conocimiento de la Junta de Relaciones Laborales, se entenderán interrumpidos los plazos de caducidad y prescripción, sin embargo, presentado el caso en Junta esta deberá resolverlo en un plazo no mayor a treinta días naturales, caso contrario, se tendrá por agotado el trámite y la administración procederá según corresponda.
+127.9 Para los efectos de suspensión o despido, quedan excluidos expresamente de la competencia y los procedimientos de la Junta de Relaciones Laborales el Gerente General, Auditor General, Directores de Área y Administradores de los Centros de Recreación.
+127.10 La Junta de Relaciones Laborales, se dará su propio reglamento

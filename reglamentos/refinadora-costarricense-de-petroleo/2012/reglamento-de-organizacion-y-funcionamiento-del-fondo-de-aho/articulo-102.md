@@ -1,0 +1,1 @@
+Artículo 102.- El Auditor General justificará a la Junta la creación de plazas y servicios que considere indispensables para el cumplimiento de su plan anual de auditoría y en general para el buen funcionamiento de su Unidad.

@@ -1,0 +1,1 @@
+Artículo 47.- Deberá el Tribunal Electoral entregar el material correspondiente a las Juntas Receptoras de Votos con una anticipación acorde a la distancia del Centro de Trabajo y el centro de funcionamiento, en todo caso, tal anticipación no deber ser menor a un día.

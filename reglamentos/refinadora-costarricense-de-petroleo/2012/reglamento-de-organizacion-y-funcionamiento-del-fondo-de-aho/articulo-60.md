@@ -1,0 +1,1 @@
+Artículo 60.- El Tribunal Electoral, antes de comunicar el resultado de las elecciones al Presidente de la Asamblea deberá confirmar, recontando las papeletas, el resultado de las elecciones, para cada uno de los puestos.

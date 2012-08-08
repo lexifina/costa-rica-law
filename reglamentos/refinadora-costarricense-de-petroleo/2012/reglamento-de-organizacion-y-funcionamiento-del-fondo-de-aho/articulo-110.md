@@ -1,0 +1,1 @@
+Artículo 110.- La Administración, una vez aceptadas las recomendaciones de la Auditoría Interna, es su responsabilidad implementarlas y debe girar por escrito, dentro de los plazos establecidos en el artículo anterior, la orden para su ejecución al responsable, con copia a la Auditoría Interna.

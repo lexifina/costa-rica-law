@@ -1,0 +1,1 @@
+Artículo 46.- El Tribunal Electoral establecerá Juntas receptoras de votos en todos los centros de trabajo de RECOPE y el FONDO. Dependiendo del número de votantes de cada centro de trabajo, el Tribunal Electoral podrá autorizar una o más Juntas receptoras de votos.

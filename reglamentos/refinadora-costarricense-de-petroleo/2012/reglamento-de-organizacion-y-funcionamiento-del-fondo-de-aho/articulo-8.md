@@ -1,0 +1,1 @@
+Artículo 8.- La representación judicial y extrajudicial del FONDO corresponderá al Presidente y al Tesorero de la Junta, quienes deberán actuar conjuntamente y tendrán las facultades determinadas en los artículos 1253 y 1264 del Código Civil.

@@ -1,0 +1,1 @@
+Artículo 111.- La comunicación de los servicios preventivos se hará a criterio del Auditor General, a quien le corresponde definir el contenido y la forma de presentación de los informes, oficios u otros medios de comunicación, de conformidad con la naturaleza de los asuntos a que se refiera y en atención a su criterio profesional.

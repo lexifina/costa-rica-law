@@ -1,0 +1,1 @@
+Artículo 80.- Los acuerdos se ejecutarán hasta que quede firme el acta respectiva, salvo aquellos que hayan sido declarados firmes por unanimidad, en cuyo caso se redactarán en el mismo acto y se ejecutarán de inmediato.

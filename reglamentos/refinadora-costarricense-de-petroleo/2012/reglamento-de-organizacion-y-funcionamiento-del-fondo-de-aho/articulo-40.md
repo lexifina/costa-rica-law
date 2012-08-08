@@ -1,0 +1,1 @@
+Artículo 40.- El Tribunal le ordenara al candidato retirar la propaganda que sea contraria a lo dispuesto en el artículo anterior. De persistir en su conducta, el Tribunal podrá cancelar su credencial.

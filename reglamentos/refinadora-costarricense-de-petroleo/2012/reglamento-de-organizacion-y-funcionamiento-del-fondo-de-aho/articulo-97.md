@@ -1,0 +1,1 @@
+Artículo 97.- La auditoría se regula por Normas Internacionales para el Ejercicio Profesional de a Auditoría Interna y por las disposiciones que emita el Colegio de Contadores Públicos de Costa Rica, en lo que sea aplicable y el presente Reglamento.

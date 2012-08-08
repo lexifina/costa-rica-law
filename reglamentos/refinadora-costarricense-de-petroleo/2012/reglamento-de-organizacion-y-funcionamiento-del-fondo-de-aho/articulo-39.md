@@ -1,0 +1,1 @@
+Artículo 39.- Los candidatos podrán hacer todo tipo de propaganda, siempre y cuando, sea orientada a exaltar solamente los meritos del candidato (a) y la exposición de sus programas o ideas que se proponga desarrollar. Debiendo guardar el debido respeto a sus adversarios.

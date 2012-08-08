@@ -1,0 +1,1 @@
+Artículo 25.- El Tribunal Electoral tendrá a su cargo el proceso para la elección de los miembros de la Junta y Fiscal, garantizando el derecho de elegir y ser electo. Deberá además promover la mayor participación de los beneficiarios.

@@ -1,0 +1,1 @@
+Artículo 45.- Los candidatos podrán asignar un Fiscal en cada mesa. Esos fiscales deberán ser acreditados ante el Tribunal Electoral, por escrito, al menos ocho días naturales antes del día de las votaciones, estos (as) participarán en calidad de observadores. El Tribunal les expedirá un distintivo que los identifique.

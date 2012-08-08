@@ -1,0 +1,1 @@
+Artículo 61.- El Presidente de la Asamblea, una vez recibido el comunicado del Tribunal Electoral sobre el resultado de las elecciones, hará pública la integración y conformación de la Junta y Fiscal, elegida. Acto seguido levantará la Asamblea.

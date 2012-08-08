@@ -1,0 +1,1 @@
+Artículo 108.- La Auditoría Interna debe comunicar los resultados de sus auditorías o estudios especiales de auditoría, en forma oficial por escrito a la Junta, la gerencia general y direcciones. El auditor general define los niveles y competencias para esa comunicación.

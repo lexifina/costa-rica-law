@@ -1,0 +1,2 @@
+Artículo 70.- La Junta sesionará ordinariamente al menos una vez al mes, según el calendario anual aprobado por la misma; y lo hará en forma extraordinaria cada vez que sea convocada por el Presidente o cuando lo soliciten por lo menos tres miembros titulares.
+La convocatoria a sesiones extraordinarias se hará por medio de correo electrónico o por fax, por lo menos con cuarenta y ocho horas de anticipación.

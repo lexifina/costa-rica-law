@@ -1,0 +1,1 @@
+Artículo 28.- El beneficiario (a) que desee optar a un cargo en la Junta o Fiscal deberá hacerlo saber por escrito, en forma individual, al Tribunal Electoral, dentro del período que este formalmente determine, en ningún caso podrá ser inferior a 45 días naturales.

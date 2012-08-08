@@ -1,0 +1,1 @@
+Artículo 74.- El Gerente General, los Directores de Área cuando se requieran, el Auditor General y el asesor legal asistirán a las sesiones de la Junta. También asistirán los invitados que ésta convoque.
