@@ -1,0 +1,2 @@
+ARTÍCULO 23.- Reincidencia
+Si hay reincidencia en las conductas establecidas en los artículos 14, 16 y 18 de esta ley, la municipalidad respectiva ordenará el procedimiento administrativo correspondiente, de acuerdo con el Código Municipal y la Ley General de la Administración Pública, con el fin de proceder a cancelar la licencia otorgada, sin perjuicio de las demás responsabilidades civiles y penales del caso.

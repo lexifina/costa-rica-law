@@ -1,2 +1,1 @@
-Artículo 28.- Los negocios de comercio que no tengan patente para vender licores no podrán vender tampoco bebidas fermentadas de ningún género, y si las vendieren, o si vendieren licores, les será cancelada inmediatamente la patente correspondiente.
-Las pulperías, en todo caso, deberán cerrarse los domingos y días feriados a las doce horas, salvo cuando después de esa hora las atiendan exclusivamente sus dueños.
+Artículo 28.- (Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")

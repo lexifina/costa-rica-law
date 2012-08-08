@@ -1,1 +1,1 @@
-Artículo 4º.- En la ventas al por mayor no se podrán vender licores ni cerveza al menudeo. La infracción de este artículo se penará cada vez, con una multa de cincuenta colones.
+Artículo 4º.-(Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012, "Ley de Regulación y Comercialización de bebidas con contenido alcohólico")
