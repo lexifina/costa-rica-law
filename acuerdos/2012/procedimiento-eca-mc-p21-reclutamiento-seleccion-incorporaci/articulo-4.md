@@ -1,0 +1,22 @@
+4 DEFINICIONES
+- Cuerpo de evaluadores y expertos técnicos del ECA (CEE).Conjunto de personas que realizan procesos de evaluación de la conformidad. Lo integran tanto los evaluadores como los expertos técnicos.
+- Categorías de evaluadores. Estructura organizacional del CEE, la cual se clasifica en las categorías de experto técnico y evaluador, dividiendo se esta última en las siguientes sub categorías: evaluador en formación observador, evaluador en formación bajo supervisión, evaluador y evaluador líder.
+- ECA. Ente Costarricense de Acreditación.
+- Evaluación. Proceso realizado por el ECA para determinar la competencia de un organismo de evaluación de la conformidad con base en determinadas normas, u otros documentos normativos, para un alcance de acreditación definido.
+- Evaluación de la conformidad. Actividad que permite la demostración del cumplimiento de los requisitos especificados relativos a un producto, proceso, sistema, persona u organismo.
+- Evaluación Técnica: Evaluación realizada para verificar la competencia técnica de las personas interesadas en ocupar una categoría en el CEE.
+- Evaluación psicológica. Evaluación realizada por un profesional en psicología con el fin de calificar sus atributos personales, actitudes y habilidades en el ámbito psicosocial, para ocupar una categoría en el CEE.
+- Evaluador en formación observador (EFO). Persona designada por ECA para observar, como parte de un equipo evaluador, la evaluación de un OEC.
+- Evaluador en formación bajo supervisión (EFBS). Persona designada por ECA para ejecutar, como parte de un equipo evaluador y bajo la supervisión de un evaluador líder o un evaluador, algunas etapas de la evaluación de un OEC.
+- Evaluador (EVAL). Persona designada por ECA para ejecutar, como parte de un equipo evaluador, la evaluación de un organismo que realiza evaluación de la conformidad.
+- Evaluador líder (EL).Persona a quien el ECA le asigna la completa responsabilidad para las actividades de evaluación específica y de equipo. Evaluador que coordina las actividades realizadas durante una evaluación y figura como responsable del resultado de ésta.
+- Experto técnico (ET). Persona asignada por el ECA, para proveer conocimientos específicos o experiencia con respecto al alcance de la acreditación a ser evaluado.
+- Institución signataria de convenio. Institución pública o privada que autoriza la participación de un funcionario en los procesos de evaluación de la conformidad realizados por ECA, respaldado por la firma de un convenio de cooperación interinstitucional.
+- Inopia. Participación de un experto técnico ajeno al CEE en una evaluación cuando no se cuenta con el personal requerido en el directorio.
+- Organismo de evaluación de la conformidad (OEC). Organismo que realiza servicios de evaluación de la conformidad y pueden ser objeto de la acreditación.
+- Plan de mejora. Mecanismo utilizado por ECA para documentar las oportunidades de mejora detectadas a los integrantes del CEE.
+- Protocolo de realimentación. Plan de acciones a tomar para intervenir en una situación específica, resultado de las realimentaciones.
+- Testificación a evaluadores. Proceso de observación sobre el desempeño de los evaluadores, en el cual el testificador ECA emite una declaración acerca de lo acontecido durante un proceso de evaluación de la conformidad en un OEC, así como la evaluación del desempeño del testificado.
+- Testificador ECA. Evaluador líder designado por ECA que participa como observador del desempeño de un equipo o de un evaluador durante uno o varios procesos de evaluación de conformidad.
+- Recurso. Petición de cualquier postulante o integrante del CEE para que se impugne la legalidad y/o la oportunidad de cualquier resolución adversa dictada por la Comisión de Acreditación del ECA a través del recurso de revocatoria y/o apelación.
+- Inactividad. Estado mediante el cual un integrante del CEE no realiza evaluaciones, por decisión propia, en un periodo máximo de un año o por decisión establecida por la Comisión de Acreditación, cuando el integrante del CEE no evidencia: actualización, mantenimiento de su competencia, o por ineficacia en las oportunidades de mejora detectadas.
