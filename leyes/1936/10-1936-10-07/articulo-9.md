@@ -1,1 +1,1 @@
-Artículo 9º.- Ningún puesto de licores podrá situarse en lugar interior de una casa, sino en habitación que dé a la calle, salvo el caso de clubes, o casinos, hoteles, restaurantes, casas de huéspedes y hosterías.
+Artículo 9º.- (Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")

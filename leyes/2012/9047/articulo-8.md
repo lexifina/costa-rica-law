@@ -1,0 +1,8 @@
+ARTÍCULO 8.- Requisitos
+Para ser adjudicatario de una licencia para expendio de bebidas con contenido alcohólico se deberán cumplir los siguientes requisitos:
+a) Las personas físicas deberán ser mayores de edad, con plena capacidad cognoscitiva y volitiva. Las personas jurídicas deberán acreditar su existencia, vigencia, representación legal y la composición de su capital accionario.
+b) Demostrar ser el propietario, poseedor, usufructuario o titular de un contrato de arrendamiento o de comodato de un local comercial apto para la actividad que va a desempeñar, o bien, contar con lote y planos aprobados por la municipalidad para la construcción del establecimiento donde se usará la licencia y contar con el pago correspondiente del permiso de construcción.
+c) Acreditar, mediante permiso sanitario de funcionamiento, que el local donde se expenderán las bebidas cumple las condiciones requeridas por el Ministerio de Salud.
+d) En caso de las licencias clase C, demostrar que el local cuenta con cocina debidamente equipada, además de mesas, vajilla y cubertería, y que el menú de comidas cuenta con al menos diez opciones alimenticias disponibles para el público, durante todo el horario de apertura del negocio.
+e) Estar al día en todas las obligaciones municipales, tanto en las materiales como formales, así como con la póliza de riesgos laborales y las obligaciones con la Caja Costarricense de Seguro Social (CCSS) y Asignaciones Familiares.
+En los negocios que hayan recibido su licencia antes de estar construidos, esta entrará en vigencia al contar con el permiso sanitario de funcionamiento.

@@ -1,2 +1,1 @@
-Artículo 22.- En los establecimientos públicos de licores no se permitirán juegos (ni aun los autorizados por la ley) ni espectáculos o diversiones. Se entenderá que el juego, espectáculo o diversión se encuentra en el mismo establecimiento, cuando estuviere en departamento que tenga comunicación con aquél
-(Anulado por Resolución de la Sala Constitucional No. 10000-99 del 21 de diciembre de 1999).
+Artículo 22.- (Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")

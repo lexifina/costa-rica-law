@@ -1,1 +1,1 @@
-Artículo 30.- Cuando el que se encontrare en lugar público en estado de embriaguez, fuere un empleado público, a más de la pena que determina el Código Penal, se le impondrá suspensión por quince días, y si reincide se le destituirá; si el ebrio fuese un militar, se le dará de baja, inmediatamente después de sufrir las penas respectivas.
+Artículo 30.- (Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")

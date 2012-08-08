@@ -1,1 +1,1 @@
-Artículo 33.- Los días de fiestas cívicas y patronal de cada lugar, el 15 de setiembre, el 24 y 31 de diciembre y los otros en que la ley declare libre la venta de licores, ésta podrán efectuarla todos los patentados de dicho negocio sin excepción y sin perjuicio de que la policía ordene la suspensión de tales ventas en el momento en que lo crea conveniente para el resguardo del orden y tranquilidad públicos.
+Artículo 33.- (Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")

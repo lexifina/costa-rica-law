@@ -1,2 +1,1 @@
-Artículo 15.- El rematario queda obligado a pagar puntualmente el impuesto convenido, so pena de indemnizar daños y perjuicios. Por tales se tendrán desde luego, la diferencia que resultare para el Tesoro Municipal con el nuevo remate que se practique por el tiempo que falte para la conclusión del bienio, y la pérdida del impuesto durante el tiempo que estuviere el establecimiento cerrado o sin pagarlo.
-(Así reformado por el artículo 1º de la ley Nº 2940 de 18 de diciembre de 1961).
+Artículo 15.-(Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")

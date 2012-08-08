@@ -1,0 +1,4 @@
+ARTÍCULO 7.- Licencias temporales
+La municipalidad, previo acuerdo del concejo municipal, podrá otorgar licencias temporales para la comercialización de bebidas con contenido alcohólico los días en que se realicen fiestas cívicas, populares, patronales, turnos, ferias y afines. El pago de derechos por las licencias temporales será reglamentado por cada municipalidad.
+Los puestos que se instalen deben estar ubicados únicamente en el área demarcada para celebrar los festejos por la municipalidad respectiva.
+Las licencias temporales no se otorgarán, en ningún caso, para la comercialización de bebidas con contenido alcohólico dentro de los centros educativos, instalaciones donde se realicen actividades religiosas que cuenten con el permiso de funcionamiento correspondiente, centros infantiles de nutrición ni en los centros deportivos, estadios, gimnasios y en los lugares donde se desarrollen actividades deportivas, mientras se efectúa el espectáculo deportivo.

@@ -1,2 +1,1 @@
-Artículo 16.- En remate público nadie podrá adquirir autorización para tener más de un establecimiento de licores extranjeros y otro de licores del país en la misma población.
-(Ver Nota al final de la presente ley).
+Artículo 16.-(Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012, "Ley de Regulación y Comercialización de bebidas con contenido alcohólico")

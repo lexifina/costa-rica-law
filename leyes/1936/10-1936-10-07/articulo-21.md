@@ -1,2 +1,1 @@
-Artículo 21.- Los menores de veintiún años no podrán ser dependientes, mozos, porteros, o de otra manera empleados de un establecimiento de licores. Sin embargo, podrán serlo los m ayores de diez y ocho años, si su padre o tutor lo consintiere por escrito.
-(Ver nota del artículo 19 inciso a).
+Artículo 21.-(Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")

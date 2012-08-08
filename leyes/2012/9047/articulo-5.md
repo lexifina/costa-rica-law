@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Vigencia de las licencias
+Toda licencia de comercialización de bebidas con contenido alcohólico tendrá una vigencia de cinco años, prorrogable de forma automática por períodos iguales, siempre y cuando los licenciatarios cumplan todos los requisitos legales establecidos al momento de otorgar la prórroga y se encuentren al día en el pago de todas sus obligaciones con la municipalidad respectiva.

@@ -1,1 +1,1 @@
-Artículo 5º.- Los clubes o casinos, hoteles, restaurantes, casas de huéspedes, cafeterías y hosterías podrán mantener puestos para el expendio de licores, sujetándose a las disposiciones de esta ley y siempre que satisfagan, a las municipalidades interesadas, además de sus propios impuestos como clubes, etc., los que corresponden a patentes de licores.
+Artículo 5º.- (Derogado por el artículo 29 de la ley N° 9047 del 25 de junio del 2012,"Ley de Regulación y Comercialización de bebidas con contenido alcohólico")
