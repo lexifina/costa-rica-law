@@ -18,3 +18,4 @@ Reglamento Servicio Social Obligatorio Profesionales Ciencias Salud
 | 3 | 1997-02-05 | Decreto Ejecutivo 25841 (1997-02-05) |
 | 4 | 1998-11-19 | Decreto Ejecutivo 27467 (1998-11-19) |
 | 5 | 2001-11-09 | SINALEVI (sin norma nombrada) |
+| 6 | 2012-08-09 | Decreto Ejecutivo 37359 (2012-08-09) |
