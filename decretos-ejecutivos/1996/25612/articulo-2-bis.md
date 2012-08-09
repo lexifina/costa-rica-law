@@ -1,4 +1,4 @@
-Artículo 2 bis.—Para efectos de calcular el área de techo industrial a la que se hace referencia en el artículo anterior, su medición deberá hacerse con base en los siguientes parámetros:
+Artículo 2 bis.— Para efectos de calcular el área de techo industrial a la que se hace referencia en el artículo anterior, su medición deberá hacerse con base en los siguientes parámetros:
 1. En el caso de empresas procesadoras de exportación, se deberá cancelar el derecho por el uso del régimen sobre las áreas que sean catalogadas como de producción industrial, tales como las siguientes:
 a) Plantas de producción.
 b) Bodegas.
@@ -31,7 +31,8 @@ d) Parqueos.
 e) Pasillos que den acceso únicamente a áreas no productivas (las áreas de bienestar social, recreación, salud y capacitación de personal).
 f) Áreas que sean dedicadas exclusivamente a capacitación.
 g) Caminos internos de acceso que comunican distintas plantas de producción.
-4. Cuando una empresa tenga más de un piso se cancelará el derecho por el uso del régimen sobre la medida de su techo industrial, independientemente del número de pisos que ocupe la empresa. Para tal efecto se tomará el piso que cuente con mayor área productiva y se le excluirán las áreas de bienestar social, recreación, salud y capacitación de personal de ese piso específico; o cualquier otra sobre la cual no se deba cancelar el canon, según lo establecido en el presente decreto.
+4. Si una empresa opera en un edificio con varios pisos, el derecho de uso del Régimen se pagará por todos y cada uno de los pisos utilizados, excluyendo todas aquellas áreas de bienestar social, recreación, salud y capacitación de personal, así como cualquier otra área sobre la cual no se deba cancelar el canon, según lo establecido en el presente Decreto Ejecutivo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37281 del 9 de agosto del 2012)
 5. Si una empresa no utiliza parte de su techo industrial, no se cancelará el derecho por el uso del régimen, siempre y cuando la empresa le demuestre a Procomer que efectivamente no lo está utilizando.
 6. Todas las empresas deberán contar con al menos una medición cada dos años.
 (Así adicionado el artículo anterior por el artículo 2° del decreto ejecutivo N° 32799 de 20 de octubre de 2005).
