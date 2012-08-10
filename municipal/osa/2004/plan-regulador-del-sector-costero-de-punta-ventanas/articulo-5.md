@@ -1,8 +1,0 @@
-Artículo 5º—Zona de protección (ZP).
-a). Propósitos: Zona destinada a la conservación y protección de áreas de topografía pronunciada y de cobertura vegetal importante.
-b). Localización: De acuerdo con la lámina 19, existen cuatro zonas de protección, identificadas con las siglas ZP. La primera, y más amplia se ubica a lo largo de la sección posterior de la zona restringida, entre mojones 654 y 679 + 22m. La segunda, se localiza a la altura del mojón 638 hasta el mojón 649, sector central de la zona restringida, luego encontramos una tercera ubicada entre el límite B del Plan Regulador y la vialidad propuesta, específicamente entre los mojones 633 y 639, finalmente existe un área destinada a la protección de la quebrada ubicada entre el mojón 653 y 654.
-c). Usos permitidos: Protección, conservación, limpieza y rectificación de cauces, reforestación y arreglo paisajístico, senderos y obras de infraestructura (calles, etc.) estrictamente necesarias para comunicar zonas.
-d). Usos condicionales: Parques, ranchos para almuerzo, refugios, bancas e iluminación.
-e). Usos conflictivos: Industrias, ganadería, agricultura intensiva o cualquier edificación no expresada en los incisos c), y d), y que genere ruidos, olores, humo, vibración o desechos no controlables.
-f). Concesiones: Esta zona se dará en concesión a las personas físicas o jurídicas que así lo soliciten, siempre y cuando se ajusten a los requisitos citados en el presente reglamento.
-g). Requisitos: Los senderos y refugios deben ser diseñados siguiendo las normas establecidas para las áreas silvestres administradas por el Ministerio del Ambiente y Energía (MINAE).
