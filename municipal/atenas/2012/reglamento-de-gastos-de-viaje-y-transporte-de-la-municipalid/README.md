@@ -14,3 +14,4 @@ Reglamento de Gastos de Viaje y Transporte de la Municipalidad de Atenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-05 | la propia norma |
+| 2 | 2012-08-13 | Reglamento municipal 187 (2012-08-13) |
