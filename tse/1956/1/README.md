@@ -14,3 +14,4 @@ Reglamento para Obtención de Documentos de Identidad y la Naturalización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1956-05-11 | la propia norma |
+| 2 | 2012-08-14 | Decreto TSE 12 (2012-08-14) |
