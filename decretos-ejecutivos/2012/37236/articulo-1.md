@@ -1,0 +1,19 @@
+Nº 37236-C
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO A.I. DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140 incisos 3) y 20), artículo 146 de la Constitución Política, 25.1 de la Ley No. 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley No.7555, Ley de Patrimonio Histórico Arquitectónico de Costa Rica del 4 de octubre de 1995, publicada en el Diario Oficial La Gaceta No.199 del 20 de octubre de 1995; y el Decreto Ejecutivo Nº 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica (ley 7555) del 14 de marzo del 2005, publicado en La Gaceta Nº 219 del 14 de noviembre del 2005.
+CONSIDERANDO
+1) Que el Templo Parroquial Nuestra Señora de los Desamparados, perteneciente a Las Temporalidades de la Iglesia Católica, ubicado en el distrito Desamparados, cantón de Desamparados, provincia de San José fue construido entre 1930 y 1947, por lo que posee una antigüedad significativa cercana a los setenta años;
+2) Que el diseño neoclásico del Templo Parroquial Nuestra Señora de los Desamparados fue creado por el prestigioso y fecundo arquitecto nacional José María Barrantes Monge, diseñador y constructor de gran cantidad de edificios de importancia histórico arquitectónica, en el país y en el extranjero; y quien durante treinta años fue el arquitecto de la Iglesia Católica Costarricense, dejando una huella profunda en la identidad cultural nacional;
+3) Que el edificio Templo Parroquial Nuestra Señora de los Desamparados tiene un relevante valor arquitectónico, pues está construido en concreto armado, un sistema constructivo cuya eficacia ante la inestabilidad sísmica del país es irrefutable;
+4) Que el edificio Templo Parroquial Nuestra Señora de los Desamparados ha sido preservado en su estructura original desde la década de 1940, pues no ha sido significativamente intervenido desde entonces, y ha recibido un mantenimiento aceptable, evidencia también de su valor simbólico para las y los habitantes del cantón;
+5) Que el Templo Parroquial Nuestra Señora de los Desamparados posee características
+técnicas, estéticas y formales especiales, que hacen de la edificación un hito histórico arquitectónico
+nacional;
+6) Que el Templo Parroquial Nuestra Señora de los Desamparados posee un valor cultural sobresaliente, por lo que merece ser preservado para el disfrute de generaciones contemporáneas y futuras;
+7) Que por las condiciones histórico-arquitectónicas citadas, y con fundamento en la Ley No. 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica y el Decreto Ejecutivo No. 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica; el Ministerio de Cultura y Juventud realizó la instrucción del procedimiento administrativo para declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble en cuestión.
+8) Que por Acuerdo Firme No. 3 la Comisión Nacional de Patrimonio Histórico- Arquitectónico de Costa Rica, en Sesión ordinaria No. 01-2012 del 11 de enero del 2012, emitió la opinión favorable, requerida por el artículo No. 7 de la Ley No. 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica y el artículo No. 9 inciso b) del Decreto Ejecutivo No. 32749-C, Reglamento a la Ley de Patrimonio Histórico- Arquitectónico de Costa Rica.
+9) Que es deber del Estado conservar, proteger y preservar el patrimonio histórico arquitectónico y cultural de Costa Rica.
+POR TANTO,
+DECRETAN
+ARTICULO 1.-Declarar e Incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble sin inscribir, conocido como “Templo Parroquial Nuestra Señora de Desamparados”, localizado frente al parque de Desamparados, diagonal al Palacio Municipal, cantón de Desamparados, Provincia de San José, en posesión de Temporalidades de la Arquidiócesis de San José.-
