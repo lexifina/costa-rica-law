@@ -1,0 +1,5 @@
+Artículo 5º—Procedimiento para la cancelación total de una obligación que se ejecuta en cobro judicial o bien que se haya entregado a los abogados externos del Fondo para su ejecución: La obligación que se encuentra en cobro judicial tendrá los siguientes rubros, los cuales deben ser cancelados en su totalidad:
+1. Gastos administrativos: Serán los que el Fondo designe, los cuales corresponden a gastos de papelería, certificaciones, timbres, peritajes, insumos utilizados para lograr interponer la demanda con todos sus requisitos ante la autoridad judicial correspondiente, además de los gastos propios de un proceso judicial que se manifiesten en el transcurso de su ejecución.
+2. Honorarios del abogado externo responsable: Serán cobrados de conformidad con lo establecido en el Decreto Ejecutivo vigente del Arancel de Honorarios por Servicios Profesionales de Abogacía y notariado, por los abogados externos del Fondo.
+3. Capital: Corresponde al monto adeudado por concepto del subsidio entregado por el Fondo.
+4. Intereses: Corresponde a los intereses generados del Capital hasta la fecha del pago efectivo de la totalidad de la obligación.

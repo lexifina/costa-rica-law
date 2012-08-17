@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de Aplicación. Este reglamento será de aplicación obligatoria, tanto para la Dirección Ejecutiva y Financiera de este Fondo como para los abogados externos que sean contratados para gestionar el cobro extrajudicial y judicial de las obligaciones dinerarias.
+Todo beneficiario tendrá por aceptado los términos del presente Reglamento, al pactar los términos del beneficio que se le otorga. Así será informado y suscrito en el documento contractual respectivo.

@@ -1,0 +1,1 @@
+Artículo 11.—Arreglos de pago parciales: La Dirección Ejecutiva del Fondo podrá autorizar los arreglos de pago parciales de aquellos deudores que su obligación se encuentre en cobro judicial cuando por circunstancias especiales el deudor no pueda pagar todas las cuotas que tenga atrasadas y siempre previo estudio de las condiciones económicas de éste.
