@@ -1,0 +1,5 @@
+2º—Con independencia de su categorización, toda embarcación a la cual el Instituto Costarricense de la Pesca y Acuicultura, en uso de sus competencias le otorgue certificación de captura como requisito de exportación de los productos pesqueros capturados, deberá contar con Certificado Veterinario de Operación en un plazo no mayor a seis meses calendario a partir de la vigencia de la presente Directriz.
+A los efectos de ordenar la incorporación de dichas embarcaciones al sistema sanitario a través del Certificado Veterinario de Operación y tomando en consideración el impacto de las mismas en la introducción de productos de origen pesquero a la cadena de consumo y al cumplimiento de obligaciones de carácter comercial sanitario establecidos con nuestros socios comerciales, se establecen los siguientes plazos contados a partir de la vigencia de la presente Directriz y a partir de los cuales deberán contar con dicho Certificado:
+Embarcaciones industriales y semiindustriales y avanzada | Un año calendario
+Embarcaciones mediana escala | Dos años calendario
+Embarcaciones pequeña escala (artesanal) | Cuatro años calendario
