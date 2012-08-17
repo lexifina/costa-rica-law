@@ -1,0 +1,2 @@
+Artículo 4º—Solicitudes de Autorización. Los solicitantes deben presentar dentro de los plazos preestablecidos todos y cada uno de los requisitos que establece esta normativa ante la Plataforma de Servicios o en cualquiera de las sedes regionales.
+De ninguna manera les será admitida documentación a quienes presenten sus atestados en forma extemporánea, tampoco les será admitida documentación incompleta aun y cuando se encuentren dentro del plazo, por lo que deberán verificar el cumplimiento de todos los requisitos de forma previa.
