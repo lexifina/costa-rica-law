@@ -1,0 +1,2 @@
+Artículo 3: Detalle de los premios
+Se otorgará en el sorteo un vehículo tipo 4x4 Hyundai Tucson 2012, el cual puede verse en las oficinas centrales de la Junta, con las siguientes características: número de motor G4KDBU498996, combustible gasolina, transmisión manual, tracción 4x4, 2000 cc, capacidad para 5 pasajeros, bolsas de aire AIR BAG, tapicería de tela, cinturones de seguridad para todos los pasajeros, sistema de aire acondicionado original de fábrica, cierre central, vidrios eléctricos.
