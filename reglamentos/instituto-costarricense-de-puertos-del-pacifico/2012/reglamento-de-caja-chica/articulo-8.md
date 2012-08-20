@@ -1,0 +1,1 @@
+ARTICULO 8.- Del porcentaje fijado para motivar el reintegro: Todo reintegro o reembolso será emitido por el Cajero en formulario respectivo cuando se tenga entre un 25% y un 40% de utilización de los fondos de caja chica o en su defecto uno diario, si no alcanza el mínimo fijado.

@@ -1,0 +1,1 @@
+ARTICULO 6.- Del control de los reintegros: Todo reintegro de caja chica deberá respaldarse con documentos originales que serán revisados en cuanto a su integridad y autenticidad por la Contabilidad y sellados por la Tesorería, a efecto de que no puedan ser utilizados posteriormente.
