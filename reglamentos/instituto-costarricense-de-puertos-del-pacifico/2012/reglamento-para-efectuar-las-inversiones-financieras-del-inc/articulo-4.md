@@ -1,0 +1,1 @@
+Artículo 4.- De las recomendaciones de la Comisión de Inversiones. Las recomendaciones que esta Comisión emita serán de acatamiento obligatorio, ya que constituye una instancia técnica especializada en materia de inversiones.

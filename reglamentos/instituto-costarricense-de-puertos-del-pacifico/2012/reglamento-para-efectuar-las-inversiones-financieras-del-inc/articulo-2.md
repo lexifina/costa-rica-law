@@ -1,0 +1,2 @@
+Artículo 2.- De la legislación vigente. Las disposiciones de este reglamento se regirán por las normas establecidas en la Ley Financiera de la Republica, Ley General de Administración Pública y la ley orgánica de INCOP.
+Supletoriamente a estas leyes se aplicarán las resoluciones y disposiciones que en la materia emita la Contraloría General de la República, la Autoridad Presupuestaria y el Poder Ejecutivo.
