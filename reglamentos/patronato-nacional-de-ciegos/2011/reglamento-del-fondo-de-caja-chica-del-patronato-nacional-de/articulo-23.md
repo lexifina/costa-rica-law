@@ -1,0 +1,4 @@
+Artículo 23. – Informes de arqueos. El contador de la institución realizará un programa de revisiones y arqueos internos, para los fondos de Caja; y seguidamente, archivando en el Área de Administración Financiera la siguiente información:
+a) Informe trimestral con arqueos mensuales con los anexos correspondientes, el cual deberá remitirse al Director Ejecutivo por medio de oficio, firmado por el Responsable del Fondo Fijo – Caja Chica.
+b) La información detallada en los documentos elaborados por funcionarios del Área de Administración Financiera referente a los arqueos, deberá contar con el nombre, firma y sello de la Dependencia.
+c) Se deberá mantener en custodia en el Área de Administración Financiera copia del informe equivalente al enviado al Director Ejecutivo, a fin de que pueda ser revisado por otros entes u órganos de fiscalización y control.

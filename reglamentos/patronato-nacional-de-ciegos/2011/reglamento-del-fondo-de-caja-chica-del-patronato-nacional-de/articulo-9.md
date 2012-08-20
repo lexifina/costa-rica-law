@@ -1,0 +1,4 @@
+Artículo 9. – Ampliaciones temporales o permanentes. Por disposición de la Junta Directiva del PANACI, se podrá solicitar formalmente a la Tesorería Nacional, ampliaciones temporales o permanentes para el Fondo de Caja Chica, con el fin de atender situaciones sumamente especiales de acuerdo con las siguientes disposiciones:
+a) La solicitud habrá de indicar la composición del fondo o el estado actual de los recursos autorizados al cierre del último trimestre, para ampliaciones temporales se debe señalar la fecha del reintegro del monto solicitado a la cuenta de Caja Única en la Tesorería Nacional o acatar otra disposición que brinde la Tesorería Nacional al respecto.
+b) Realizar el trámite de la transferencia de fondos de la cuenta en Caja Única a la cuenta corriente del PANACI para alimentar el fondo.
+c) Acatar las disposiciones que por medio de lineamientos emite la Tesorería Nacional relacionado con la Caja Única.

@@ -1,0 +1,1 @@
+Artículo 13. – Límite de Gasto. Para incurrir en gastos por medio del Fondo Fijo – Caja Chica se deberá acatar los límites económicos establecidos al efecto por la autoridad competente, conforme el respectivo manual o regulaciones internas establecidas al efecto.

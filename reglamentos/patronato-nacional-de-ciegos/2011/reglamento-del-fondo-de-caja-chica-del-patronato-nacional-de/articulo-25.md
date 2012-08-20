@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Mecanismos de Control
+Artículo 25. – Responsable del control interno. Corresponderá al Responsable del Fondo Fijo – Caja Chica, evaluar y mantener un adecuado sistema de control interno del fondo autorizado, en concordancia con las sanas prácticas de control interno, establecidas en la Ley General de Control Interno No. 8292 del 31 de julio del 2002, en el Manual de Normas Generales de Control Interno para la Contraloría General de la República y demás Órganos sujetos a su fiscalización, en este Reglamento y en los lineamientos que al efecto emita el Área de Administración Financiera. El Responsable del Fondo Fijo – Caja Chica, será el responsable de su custodia, responderá por su correcto manejo de conformidad con lo establecido en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7.- Contenido Presupuestario y Económico. Todas las compras o pagos que se realicen por medio de Caja Chica, deberán contar con el debido contenido presupuestario y económico autorizado por el Área de Contabilidad y será responsabilidad de los funcionarios autorizados velar por el fiel cumplimiento de esta disposición.

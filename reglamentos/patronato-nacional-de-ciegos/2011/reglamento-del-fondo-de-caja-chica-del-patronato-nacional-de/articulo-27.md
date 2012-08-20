@@ -1,0 +1,1 @@
+Artículo 27. – Montos asignados. Todos los fondos de dinero establecidos al amparo de este Reglamento operarán por medio del sistema de Fondo Fijo, lo que implica que el encargado del fondo tendrá en todo momento la suma total asignada, representada por efectivo y los documentos que respaldan las operaciones.

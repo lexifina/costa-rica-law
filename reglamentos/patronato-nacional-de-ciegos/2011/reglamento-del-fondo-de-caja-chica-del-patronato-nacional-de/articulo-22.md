@@ -1,0 +1,1 @@
+Artículo 22. – Liquidación pendiente. No se autorizará un vale de dinero a un funcionario que tenga una liquidación previa pendiente, debiendo en tal caso el encargado de la Caja solicitar al funcionario la presentación de la liquidación pendiente.

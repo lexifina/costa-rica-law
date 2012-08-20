@@ -1,0 +1,3 @@
+Artículo 29. – Reintegro de recurso por faltantes ocasionados por actos delictivos.
+a) Cuando se conoce el objeto del gasto que originó el faltante, se deberá emitir una resolución administrativa firmada por el Jerarca de la Institución, en donde se autoriza el reintegro del faltante, afectando el presupuesto de la Entidad en la Subpartida previamente identificada.
+b) Cuando por razones de pérdida de la documentación, no se pueda determinar la Subpartida de objeto del gasto y a manera de excepción se utilizará la Subpartida 6.06.02 Reintegros o Devoluciones, debiendo mediar la emisión de una resolución administrativa firmada por el Jerarca de la Institución.

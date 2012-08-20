@@ -1,0 +1,1 @@
+Artículo 33– Responsables. Todo funcionario que sea designado como responsables de la Caja Chica deberá conocer el presente Reglamento. Su desacato o desobediencia se sancionara conforme lo establecido en las disposiciones del Título X del Régimen de Responsabilidad, de la Ley de Administración Financiera de la República y Presupuestos Públicos No. 8131.

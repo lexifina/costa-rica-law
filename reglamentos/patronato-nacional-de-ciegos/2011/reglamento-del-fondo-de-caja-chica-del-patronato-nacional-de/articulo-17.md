@@ -1,0 +1,1 @@
+Artículo 17. – Liquidación pendiente. No se autorizará un adelanto de viáticos a un funcionario que tenga una liquidación previa pendiente, debiendo en tal caso el Responsable de Fondo Fijo –Caja Chica solicitar al funcionario la presentación de la liquidación pendiente.
