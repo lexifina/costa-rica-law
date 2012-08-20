@@ -1,0 +1,3 @@
+ARTÍCULO 10- La adecuada utilización de los vehículos de uso general, estarán bajo la responsabilidad de Servicios Generales o en su defecto, del funcionario responsable del viaje, consignado así en la boleta de solicitud de vehículo.
+En caso de giras que se realicen en el área de Puntarenas, una vez que se ha concluido la misión que motivó el Servicios de trasporte, el vehículo deberá ser guardado en las instalaciones del Instituto para su custodia.
+Los vehículos asignados a las Direcciones u Oficinas Regionales estarán bajo la responsabilidad de la jefatura respectiva, sin estar exentos de los mecanismos de control y vigilancia que efectúe Servicios Generales en cumplimiento de sus funciones.

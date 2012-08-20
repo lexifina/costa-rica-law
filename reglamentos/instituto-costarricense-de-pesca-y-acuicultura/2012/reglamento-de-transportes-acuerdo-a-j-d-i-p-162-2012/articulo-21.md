@@ -1,0 +1,1 @@
+ARTÍCULO 21- Servicios Generales definirá y llevará el control de kilometraje sobre las reparaciones y revisiones de los vehículos de la institución, de conformidad con lo indicado en el artículo 11 inciso d del presente reglamento

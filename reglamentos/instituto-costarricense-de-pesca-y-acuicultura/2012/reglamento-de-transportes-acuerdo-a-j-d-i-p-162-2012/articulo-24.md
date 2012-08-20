@@ -1,0 +1,4 @@
+ARTÍCULO 24- Servicios Generales mantendrá un fondo de caja chica ajustable en cada periodo presupuestario según la necesidad del Departamento o Sección, para lo cual únicamente deberá haber solicitud y aprobación de La Dirección General Administrativa.
+El fondo se utilizará para cualquier imprevisto y gastos menores urgentes relacionados con el servicio vehicular de la Institución (repuestos menores, accesorios varios, reparaciones y mantenimientos menores) ello para no suspender la circulación del vehículo por daño menor.
+Los usos que se le den al dinero del fondo serán determinados y autorizados previamente por la jefatura de Servicios Generales.
+Quedará bajo la responsabilidad de Servicios Generales el manejo adecuado de este fondo y la respectiva liquidación. Además la Auditoría Interna y el departamento financiero tendrán la potestad de realizar los procesos de verificación y control necesarios sobre dicho fondo.

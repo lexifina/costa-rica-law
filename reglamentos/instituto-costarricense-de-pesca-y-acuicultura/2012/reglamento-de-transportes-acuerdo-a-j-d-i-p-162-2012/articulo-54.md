@@ -1,0 +1,1 @@
+ARTÍCULO 54- Cada vehículo únicamente podrá ser utilizado por el funcionario que tiene derecho a éste (o a través de un chofer designado para tales labores) en razón del cargo que ostenta, en estricto cumplimiento de las funciones propias del mismo y en ningún caso por otra persona.

@@ -1,0 +1,1 @@
+ARTÍCULO 22- En caso de fallas imprevistas en el funcionamiento del vehículo, el chofer o conductor tendrá la obligación de reportarlo inmediatamente e indicar el desperfecto mecánico a fin de solventar el problema

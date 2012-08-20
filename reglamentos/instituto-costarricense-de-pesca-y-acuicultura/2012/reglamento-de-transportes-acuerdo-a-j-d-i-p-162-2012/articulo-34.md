@@ -1,0 +1,5 @@
+ARTÍCULO 34- En caso de accidente, el INCOPESCA reparará inmediatamente el vehículo colisionado o accidentado para que este continúe brindando el servicio. Posteriormente, conforme a la sentencia dictada por la autoridad judicial competente, el INCOPESCA tomará las medidas correspondientes para la recuperación del pago de deducible.
+Con excepción de lo antes indicado, el INCOPESCA tendrá la potestad de exonerar, al chofer o al conductor, total o parcialmente del pago de deducible, tomando en consideración los siguientes requisitos.
+1. Que el chofer o conductor haya mantenido un record de buen manejo en su expediente registrado en Servicios Generales.
+2. Que no le sea aplicable el artículo No. 33 del presente reglamento.
+El INCOPESCA hará efectivo el pago del deducible con cancelación de parte o todo el monto de la reparación del accidente, de acuerdo a la recomendación, que brinda la Sección de Servicios Generales con la aprobación de la Dirección General Administrativa y basado en la sentencia judicial correspondiente

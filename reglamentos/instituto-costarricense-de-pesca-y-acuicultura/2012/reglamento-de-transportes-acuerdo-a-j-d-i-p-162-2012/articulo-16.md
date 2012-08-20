@@ -1,0 +1,1 @@
+ARTÍCULO 16-Las boletas de solicitud de vehículo podrán ser enviada a la Servicios Generales por medio de un mensajero, vía fax, o por Internet. En estos últimos casos, la boleta original deberá ser enviada dentro de los siguientes cinco días hábiles al envió del comunicado.

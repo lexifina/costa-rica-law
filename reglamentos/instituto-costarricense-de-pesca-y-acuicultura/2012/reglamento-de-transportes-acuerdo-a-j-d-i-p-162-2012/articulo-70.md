@@ -1,0 +1,1 @@
+ARTÍCULO 70- Cualquier otro aspecto referente a transportes y que no esté regulado por el presente Reglamento, deberá ajustarse a lo dispuesto por la Ley de Tránsito por Vías Públicas Terrestres N° 7331, o a las directrices emanadas por la jefatura de Servicios Generales.

@@ -1,0 +1,3 @@
+CAPÍTULO XII
+De los inventarios de los vehículos
+ARTÍCULO 58- Cuando corresponda, un funcionario de Servicios Generales, o bien los oficiales de seguridad que brindan el servicio de resguardo de los vehículos, podrán realizar inventarios periódicos de todos los vehículos propiedad de la institución, cuando mínimo una vez cada seis meses, a fin de verificar la existencia, localización, estado físico y mecánico cuyos resultados serán comparados con los registros que lleve Servicios Generales. En el caso de los vehículos asignados a las Direcciones y oficinas Regionales, se coordinara entre las jefaturas respectivas la toma de inventario, por parte de algún funcionario de la Servicios Generales.

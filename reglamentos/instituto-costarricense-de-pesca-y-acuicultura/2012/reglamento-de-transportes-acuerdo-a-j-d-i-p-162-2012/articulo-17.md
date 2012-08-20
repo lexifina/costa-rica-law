@@ -1,0 +1,1 @@
+ARTÍCULO 17- En caso de suma necesidad y existiendo la posibilidad de que haya vehículos disponibles después de realizar la programación, quedará a criterio de la jefatura de Servicios Generales o un funcionario de la sección, debidamente autorizado, asignar el vehículo extemporáneamente.

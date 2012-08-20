@@ -1,0 +1,1 @@
+ARTÍCULO 59- Servicios Generales, establecerá los mecanismos óptimos, así como los formularios que considere pertinentes a fin de cumplir con lo establecido en ese sentido. Dicho trabajo se puede apoyar en los servicios de vigilancia destinados para el resguardo de los vehículos.

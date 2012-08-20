@@ -1,0 +1,1 @@
+ARTÍCULO 36- Toda documentación relacionada con el accidente deberá ser incluida en el expediente general del vehículo en el apartado referente a los accidentes sufridos por el automotor, así como en el registro general de accidentes y en el expediente del conductor.

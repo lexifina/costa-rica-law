@@ -1,0 +1,2 @@
+ARTÍCULO 57- Servicios Generales deberá ejercer cierto control sobre estos vehículos, tal como se ejerce con cualquier bien de su propiedad de acuerdo con principios de sana administración y racional uso de los recursos.
+Los controles que al menos se ejercerán sobre este tipo de vehículos, deben ser: asignación de vehículos con esta categoría, kilometraje recorrido por período, consumo de combustible por período, reparación y mantenimiento, seguros, y estado físico (carrocería, llantas, motor, herramientas y demás piezas complementarias).

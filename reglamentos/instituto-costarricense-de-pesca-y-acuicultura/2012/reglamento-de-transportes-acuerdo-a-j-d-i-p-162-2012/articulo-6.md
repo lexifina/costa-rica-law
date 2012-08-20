@@ -1,0 +1,1 @@
+ARTÍCULO 6- Todos los vehículos que pertenezcan a convenios nacionales, internacionales o de programas especiales se regirán por los trámites administrativos de INCOPESCA, salvo que el mismo convenio disponga lo contrario.

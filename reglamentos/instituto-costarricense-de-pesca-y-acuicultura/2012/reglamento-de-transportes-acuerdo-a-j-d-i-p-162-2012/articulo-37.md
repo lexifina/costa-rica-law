@@ -1,0 +1,1 @@
+ARTÍCULO 37- En caso de robo de algún vehículo de la Institución, el chofer o conductor deberá de presentar la denuncia respectiva ante el Organismo de Investigación Judicial. Así mismo, entregar a Servicios Generales Copia de la denuncia con el informe correspondiente a los hechos.

@@ -1,0 +1,2 @@
+ARTÍCULO 29- Es responsabilidad del chofer o conductor una vez presentada la declaración del accidente ante Servicios Generales, llevar personalmente al Instituto Nacional de Seguros, el aviso de accidente.
+Después de presentado el aviso de accidente, debe llevar el vehículo, siempre y cuando esté en condiciones de rodar, al departamento de Avalúos del Instituto Nacional de Seguros, para la respectiva valoración de los daños. Deberá de retirar copia del avaluó y entregarla a Servicios Generales para proceder a los trámites pertinentes.

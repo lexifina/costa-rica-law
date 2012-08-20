@@ -1,0 +1,2 @@
+ARTÍCULO 8- Los mantenimientos periódicos tales como cambios de aceites y filtros, fluidos hidráulicos, lubricantes y demás repuestos y reparaciones que tienen marcada su vida útil por kilometrajes relativamente cortos, serán asumidos por las dependencias encargadas para el caso de los vehículos asignados y discrecionales.
+Dicha labor deberá ser asumida por la unidad de transportes para los casos de los vehículos de uso general.

@@ -1,0 +1,2 @@
+ARTÍCULO 23- Las Direcciones u oficinas Regionales que tienen asignado un vehículo tendrán a cargo los mantenimientos correctivos y preventivos y velar por que los mismos se realicen de forma ágil, oportuna y con un nivel de calidad aceptable.
+En caso de ser necesario, y a mayor conveniencia para la institución, se puede coordinar con la jefatura de Servicios Generales cualquier reparación de los mismos, cuando por situaciones especiales se determine mayor conveniencia de realizarlo así.

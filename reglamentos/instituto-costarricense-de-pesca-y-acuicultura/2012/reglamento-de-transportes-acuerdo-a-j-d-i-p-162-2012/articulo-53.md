@@ -1,0 +1,1 @@
+ARTÍCULO 53- Con fundamento en principios de razonabilidad del uso, oportunidad y conveniencia, sólo se podrá asignar un vehículo de uso discrecional por funcionario que tenga derecho a ese beneficio. No se le podrá dar un uso arbitrario en provecho de él ni de su familia.

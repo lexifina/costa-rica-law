@@ -1,0 +1,2 @@
+ARTÍCULO 15- Al realizar la programación, las solicitudes de servicios deberán ser atendidas en estricto orden cronológico de presentación, salvo en casos de emergencia comprobada o prioridades establecidas por la Dirección General Administrativa.
+En el caso de no poder atender una solicitud por escases de unidades, se deberá informar inmediatamente a la dependencia solicitante, a fin que tome las medidas pertinentes para el cumplimiento de su cometido.

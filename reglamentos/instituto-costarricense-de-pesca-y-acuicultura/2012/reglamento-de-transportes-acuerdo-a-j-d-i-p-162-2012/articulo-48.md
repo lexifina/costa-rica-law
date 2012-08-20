@@ -1,0 +1,1 @@
+ARTÍCULO 48- Todo conductor o chofer de vehículos del Instituto, cuya licencia le fuere suspendida, temporal o definitivamente por fallo dictado por autoridad Judicial deberá informarlo de inmediato a Servicios Generales, para la respectiva anotación en el Registro General de conductores y choferes, y por ende no podrán conducir ningún vehículo de la institución

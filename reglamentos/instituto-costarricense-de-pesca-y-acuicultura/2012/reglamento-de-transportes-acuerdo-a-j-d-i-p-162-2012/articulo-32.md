@@ -1,0 +1,1 @@
+ARTÍCULO 32- El INCOPESCA procederá a cubrir en su totalidad el monto por concepto de deducible cuando un funcionario en el ejercicio de sus funciones sufra una colisión o accidente de tránsito, siempre y cuando no medie sentencia condenatoria de los Tribunales de Justicia, en que se establezca su responsabilidad en el mismo.

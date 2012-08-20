@@ -1,0 +1,1 @@
+ARTÍCULO 55- Los vehículos de uso discrecional no podrán usarse para fines contrarios a la ley, a la moral y a las buenas costumbres o para usos en lugares que no contribuyan al objeto de la institución.

@@ -1,0 +1,2 @@
+ARTÍCULO 30- En un plazo no mayor de ocho (8) días naturales el chofer o el conductor deberán de presentarse a los Tribunales de Tránsito, a rendir su declaración sobre los hechos que originaron el accidente y deberán de aportar una copia de esa declaración a Servicios Generales.
+Se prohíbe al conductor efectuar arreglos extrajudiciales, ello precederá de acuerdo con los que en estos casos dictamine la ley de Tránsito.

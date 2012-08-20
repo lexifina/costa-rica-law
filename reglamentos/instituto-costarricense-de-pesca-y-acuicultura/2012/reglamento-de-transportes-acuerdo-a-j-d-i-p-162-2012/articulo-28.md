@@ -1,0 +1,1 @@
+ARTÍCULO 28- En caso de accidente, el funcionario implicado, siempre y cuando las condiciones de salud lo permitan, deberá realizar el reporte de colisión a la dirección de tránsito, al 911 y al Instituto Nacional de Seguros al número 800-800-8000
