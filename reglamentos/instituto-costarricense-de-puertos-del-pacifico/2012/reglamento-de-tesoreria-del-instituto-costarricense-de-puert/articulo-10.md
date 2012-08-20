@@ -1,0 +1,1 @@
+Artículo 10.- De la Responsabilidad en caso de faltante. El Tesorero en conjunto con el encargado de la sección caja, serán los responsables de cualquier faltante que se produzca en los valores de que es depositario. El plazo para que cubra el faltante será de 24 horas después de que éste sea identificado, sin perjuicio de cualquier sanción que la falta amerite.

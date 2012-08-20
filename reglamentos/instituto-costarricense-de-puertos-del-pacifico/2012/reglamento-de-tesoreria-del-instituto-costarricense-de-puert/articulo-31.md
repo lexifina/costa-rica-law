@@ -1,0 +1,1 @@
+Artículo 31.- Del Registro de documentos de garantía. La Tesorería llevará un registro para el control de la existencia de los documentos de garantías recibidas. Deberá indicar al menos: nombre del adjudicatario, número de documento, proyecto, institución emisora del título valor, número de licitación, tipo de garantía, fecha de vencimiento y monto de la garantía.

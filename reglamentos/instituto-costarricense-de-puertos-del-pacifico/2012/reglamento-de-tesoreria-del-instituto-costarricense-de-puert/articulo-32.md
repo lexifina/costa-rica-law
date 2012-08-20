@@ -1,0 +1,1 @@
+Artículo 32.- Del Registro de las pólizas. La Tesorería llevará un registro para el control de las pólizas de seguro del INCOP y otras exigidas por la Ley. Se anotará como mínimo la siguiente información: número de póliza, mención de los bienes asegurados, período del pago, monto de la prima y vencimiento.

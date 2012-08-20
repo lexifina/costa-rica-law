@@ -1,0 +1,1 @@
+Artículo 5.- De las precauciones del Tesorero y su personal. La obligación del Tesorero y su personal debe ser tomar todas las precauciones posibles para proteger debidamente su integridad física, así como los valores bajo su custodia, de los riesgos normales previsibles.
