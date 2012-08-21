@@ -1,3 +1,2 @@
-Artículo 16.- Las certificaciones que expida el Registro serán
-firmadas por el jefe y en ausencia de éste, por el secretario, conforme
-lo regule la Corte Plena.
+Artículo 16.- Las certificaciones que expida el Registro serán firmadas por el jefe y por el secretario, conforme lo regule el Consejo Superior. Cuando se trate de solicitudes de personas o entidades autorizadas que residan o tengan su sede en zonas alejadas de San José, el Consejo Superior podrá autorizar al jefe de las oficinas administrativas, que previamente designe por acuerdo firme, a suscribir las certificaciones de antecedentes penales y de obligados alimentarios que por vía electrónica les remita el Registro Judicial.
+(Así reformado por el artículo único de la ley N° 9055 del 23 de julio del 2012)
