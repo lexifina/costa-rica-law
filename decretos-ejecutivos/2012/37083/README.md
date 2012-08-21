@@ -14,3 +14,4 @@ Reglamento para la Calidad del Agua para consumo humano en establecimientos de s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-07 | la propia norma |
+| 2 | 2012-08-21 | Decreto Ejecutivo 37314 (2012-08-21) |
