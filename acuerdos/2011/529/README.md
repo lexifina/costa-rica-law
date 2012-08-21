@@ -15,3 +15,4 @@ Calendario Anual de Sorteos y Planes de Premios de Loterías 2012
 | --- | --- | --- |
 | 1 | 2011-12-16 | la propia norma |
 | 2 | 2012-05-31 | Acuerdo 265 (2012-05-31) |
+| 3 | 2012-08-21 | Acuerdo 282 (2012-08-21) |

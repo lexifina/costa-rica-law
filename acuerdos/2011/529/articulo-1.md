@@ -40,7 +40,7 @@ FECHA | SORTEOS EXTRAORDINARIOS | BILLETE | FRACCIÓN | PREMIO MAYOR
 1 DE JULIO | GORDITO DE MEDIO AÑO | ¢15.000 | ¢1.500 | ¢250.000.000
 19 DE AGOSTO | DÍA DE LA MADRE | ¢12.000 | ¢1.200 | ¢200.000.000
 16 DE SETIEMBRE | DÍA DE LA INDEPENDENCIA | ¢12.000 | ¢1.200 | ¢200.000.000
-14 DE OCTUBRE | MES DEL ADULTO MAYOR | ¢12.000 | ¢1.200 | ¢200.000.000
+14 DE OCTUBRE | DÍA DE LAS CULTURAS (Así reformado el nombre del sorteo anterior mediante acuerdo JD-282 tomado en sesión N° 10-2012 y publicado en La Gaceta N° 160 del 21 de agosto del 2012) | ¢12.000 | ¢1.200 | ¢200.000.000
 18 DE NOVIEMBRE | DIA MUNDIAL DE LA DISCAPACIDAD | ¢12.000 | ¢1.200 | ¢200.000.000
 2 DE DICIEMBRE | DÍA NACIONAL DE LA VACUNACION | ¢5.000 | ¢500 | ¢90.000.000
 9 DE DICIEMBRE | PERSONA JOVEN | ¢5.000 | ¢500 | ¢90.000.000
@@ -476,7 +476,7 @@ FECHA | DIA | LOTERIA | NUMERO SORTEO | PREMIO MAYOR
 12/10/2012 | VIERNES | POPULAR | 5788 | 36.000.000
 12/10/2012 | VIERNES | TIEMPOS | 2161 | 75 VECES LA INVERSIÓN
 13/10/2012 | SÁBADO | TIEMPOS DIGITALES | 2162 | 75 VECES LA INVERSIÓN
-14/10/2012 | DOMINGO | EXTRAOR. "MES DEL ADULTO MAYOR" | 4206 | 200.000.000
+14/10/2012 | DOMINGO | EXTRAOR. "DIA DE LAS CULTURAS" (Así reformado el nombre del sorteo anterior mediante acuerdo JD-282 tomado en sesión N° 10-2012 y publicado en La Gaceta N° 160 del 21 de agosto del 2012) | 4206 | 200.000.000
 14/10/2012 | DOMINGO | TIEMPOS | 2163 | 75 VECES LA INVERSIÓN
 15/10/2012 | LUNES | TIEMPOS DIGITALES | 2164 | 75 VECES LA INVERSIÓN
 17/10/2012 | MIÉRCOLES | POPULAR | 5789 | 36.000.000
@@ -677,12 +677,14 @@ PREMIOS DIRECTOS
 50 Premios de | ¢ 400,000 | ¢ 40,000
 TOTAL: 93 premios por emisión | |
 SORTEOS EXTRAORDINARIOS DE LOTERÍA NACIONAL
-“DIA DE LA INDEPENDENCIA”, “MES DEL ADULTO MAYOR”, Y
+“DIA DE LA INDEPENDENCIA”, “DIA DE LAS CULTURAS (*)”, Y
 “DIA MUNDIAL DE LA DISCAPACIDAD”
 PLAN DE PREMIOS POR EMISION
+(Así reformado el nombre del sorteo anterior mediante acuerdo JD-282 tomado en sesión N° 10-2012 y publicado en La Gaceta N° 160 del 21 de agosto del 2012)
 Sorteo No. 4202 del 16-09-12 "DÍA DE LA INDEPENDENCIA"
 Emisión: 100.000 billetes cada una (Emisión Doble): Total 200.000 billetes.
-Sorteo No. 4206 del 14-10-12 "MES DEL ADULTO MAYOR"
+Sorteo No. 4206 del 14-10-12 "DIA DE LAS CULTURAS"
+(Así reformado el nombre del sorteo anterior mediante acuerdo JD-282 tomado en sesión N° 10-2012 y publicado en La Gaceta N° 160 del 21 de agosto del 2012)
 Emisión: 100.000 billetes cada una (Emisión Doble): Total 200.000 billetes.
 Sorteo No. 4211 del 18-11-12 “DIA MUNDIAL DE LA DISCAPACIDAD”
 Emisión: 100.000 billetes cada una (Emisión Doble) Total 200.000 billetes.
