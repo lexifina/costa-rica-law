@@ -1,0 +1,1 @@
+Artículo 21°. Trámite de las oposiciones. En caso de presentarse alguna oposición, la misma debe ser resuelta de acuerdo con lo establecido en los artículos del 81 al 83 del Código de Minería, previo a la emisión de la recomendación de otorgamiento al Ministro del Ambiente, Energía y Telecomunicaciones.

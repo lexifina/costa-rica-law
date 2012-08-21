@@ -1,0 +1,1 @@
+Artículo 20°. De los edictos. Una vez cumplidos a cabalidad los requisitos requeridos en los artículos anteriores, dentro del plazo de ocho días, el RNM confeccionará los edictos correspondientes, conforme lo establece el artículo 80 del Código de Minería.

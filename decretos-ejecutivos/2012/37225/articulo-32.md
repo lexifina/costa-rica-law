@@ -1,0 +1,4 @@
+TITULO VI
+CAPITULO UNICO
+Artículo 32º. De las investigaciones. La investigación únicamente podrá ser realizada por el Estado a través de sus instituciones y la Universidades Estatales. La entidad solicitante deberá presentar ante la DGM un anteproyecto indicando el tipo de investigación, funcionamiento y cronograma de las actividades a realizar. Una vez concluida la investigación, la información obtenida pasará a formar parte de la documentación técnica que custodia la DGM, la cual podrá ponerla a disposición de las cooperativas o grupos organizados que hayan demostrado con las labores realizadas en otros proyectos su capacidad organizativa, técnica y financiera en aras de ejecutar una actividad responsable ambientalmente.
+El plazo máximo para realizar la exploración para investigación será de tres años con una posible prórroga de dos años previa justificación técnica de las instituciones interesadas.
