@@ -1,0 +1,1 @@
+Artículo 2º.- Eliminase la palabra “y” al final de los incisos m) de los artículos 2º y 5º respectivamente, del Reglamento Orgánico del Poder Ejecutivo (Decreto Ejecutivo Nº34582-MPPLAN de 4 de junio de 2008).
