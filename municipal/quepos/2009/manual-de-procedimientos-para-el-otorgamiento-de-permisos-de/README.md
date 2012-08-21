@@ -14,3 +14,4 @@ Manual de Procedimientos para el otorgamiento de permisos de uso en la Zona Mar√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-03 | la propia norma |
+| 2 | 2012-08-21 | Reglamento municipal 219 (2012-08-21) |
