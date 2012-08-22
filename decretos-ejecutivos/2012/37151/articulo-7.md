@@ -1,2 +1,1 @@
-Artículo 7º— Deber de confidencialidad.
-Los miembros del Consejo que asistan a las sesiones deberán guardar la más absoluta reserva sobre las deliberaciones y resoluciones que ahí se adopten, en especial los que tengan el carácter de confidencial.
+Artículo 7º— Deber de confidencialidad. (Derogado por el artículo 1° del decreto ejecutivo N° 37249 del 27 de junio del 2012)

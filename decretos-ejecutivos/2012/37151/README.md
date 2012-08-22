@@ -14,3 +14,4 @@ Declara de interés público y nacional el desarrollo del mercado de valores y c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-22 | la propia norma |
+| 2 | 2012-08-22 | Decreto Ejecutivo 37249 (2012-06-27) |
