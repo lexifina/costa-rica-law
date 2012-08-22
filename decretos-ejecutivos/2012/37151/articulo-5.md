@@ -1,0 +1,3 @@
+Artículo 5º— Integración del Consejo Nacional.
+Corresponde a la Segunda Vicepresidencia de la República en coordinación con las autoridades monetarias, financieras y hacendarias, designar a los miembros del Consejo Nacional para el Desarrollo del Mercado de Valores, el cual contará con representantes y expertos del sector privado y del sector público, quienes deberán tener un alto conocimiento y experiencia en el mercado de valores, y serán nombrados por un periodo de 2 años que inicia el 1 de junio de 2012 y finaliza el 31 de mayo de 2014, pudiendo ser reelectos por periodos iguales.
+Los miembros del Consejo prestarán sus servicios en forma ad honorem y deberán ser personas de reconocida y probada honorabilidad.

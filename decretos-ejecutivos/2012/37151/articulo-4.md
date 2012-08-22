@@ -1,0 +1,2 @@
+Artículo 4º— Objetivos del Consejo Nacional.
+Los principales objetivos del Consejo Nacional para el Desarrollo del Mercado de Valores consisten en asesorar a la Segunda Vicepresidencia de la República en el diseño, aprobación, implementación, monitoreo y evaluación de un plan de ruta estratégica para el desarrollo del mercado de valores costarricense, consistente con las políticas indicadas en el Artículo 2º del presente decreto.
