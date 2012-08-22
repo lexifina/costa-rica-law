@@ -1,0 +1,9 @@
+CIRCULAR Nº 124-2012
+ASUNTO: 1) Tribunales de Flagrancias del Primer Circuito Judicial de San José; 2) Modificación de competencia territorial del Tribunal de Flagrancias del Segundo Circuito Judicial de San José.
+A LOS DESPACHOS JUDICIALES DE TODO EL PAÍS
+SE LES HACE SABER QUE:
+La Corte Plena, en sesión Nº 25-12, celebrada el 23 de julio último, artículo XXIII, acordó comunicar lo siguiente:
+1) El programa de flagrancias en el Primer Circuito Judicial de San José, cuyas secciones estarán adscritas al Tribunal Penal del Primer Circuito Judicial de San José, inició a partir del 1 de agosto del año en curso, en horario de 7:30 a las l6:30 horas y de las 17:00 a las 23:00 horas de lunes a viernes, cuya competencia territorial comprenderá Pavas (exceptuando Puriscal), Hatillo y Primer Circuito Judicial de San José.
+2) Modificar la competencia territorial del Tribunal de Flagrancias con asiento en el Segundo Circuito Judicial de San José, en el sentido que atenderá los casos del Segundo Circuito Judicial de San José y del Cantón de Desamparados, de lunes a viernes, en el entendido que los fines de semana, días feriados o inhábiles la competencia de ese Tribunal se ampliará comprendiendo la posibilidad de conocer los hechos de los tres circuitos judiciales de San José, a excepción de Puriscal.
+Se aclara que la competencia territorial del Tribunal de Flagrancia del Primer Circuito Judicial de San José, al asignarle el conocimiento de los asuntos de la zona de Hatillo comprenderá también las localidades de Alajuelita. En cuanto a la del Tribunal de Flagrancia del Segundo Circuito Judicial de San José, al establecerse el conocimiento de los asuntos que incluyen la zona de Desamparados, le corresponderá además la zona de Aserrí. (Aclarado en sesión de Corte Plena número 33-12, celebrada el 17 de setiembre de 2012, artículo XXII)
+San José, 22 de agosto del 2012.
