@@ -42,3 +42,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 37180 del 5 de junio del 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37201 del 15 de junio del 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37211 del 5 de julio del 2012)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37254 del 13 de agosto del 2012)
