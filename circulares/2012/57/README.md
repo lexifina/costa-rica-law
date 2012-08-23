@@ -13,3 +13,4 @@ Lineamientos para la transferencia documental al Archivo Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-02 | la propia norma |
+| 2 | 2012-08-23 | Circular 127 (2012-08-23) |
