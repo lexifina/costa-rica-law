@@ -111,6 +111,8 @@ articulo-106.md
 articulo-107.md
 articulo-108.md
 articulo-109.md
+articulo-109-bis.md
+articulo-109-ter.md
 articulo-110.md
 articulo-111.md
 articulo-112.md
