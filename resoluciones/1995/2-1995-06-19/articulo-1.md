@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE TRANSPORTE MARÍTIMO
+(Esta norma fue revocada mediante resolución N° 001 del 23 de agosto del 2012)
 Dirección General de Transporte Marítimo.- San José, a las once horas del día diecinueve de junio de mil novecientos noventa y cinco.
 Resolución interna Dirección General de Transporte Marítimo N° 002.
 Considerando:

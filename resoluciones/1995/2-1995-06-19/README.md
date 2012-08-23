@@ -14,3 +14,4 @@ Fija el importe a pagar por concepto de los gastos administrativos derivados de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-05 | la propia norma |
+| 2 | 2012-08-23 | Resolución 1 (2012-08-23) |
