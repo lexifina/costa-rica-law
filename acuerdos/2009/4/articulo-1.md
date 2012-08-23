@@ -17,8 +17,9 @@ Dispone además dicha norma que en lo que respecta al representante del Minister
 5º—Que mediante Acuerdo Nº 205 del 12 de diciembre del 2006, se integró la Junta Directiva del Fondo de Desarrollo de Limón, siendo necesaria la modificación de dicho Acuerdo, en lo que respecta a la designación de los siguientes miembros: el representante del Presidente Ejecutivo de JAPDEVA, el representante de la Ministra de Obras Públicas y Transportes y el representante de la Federación Provincial de Uniones Cantonales y de Asociaciones de Desarrollo Comunal de Limón. Por tanto,
 ACUERDAN:
 Artículo 1º—Se modifica el Acuerdo Nº 205 del 12 de diciembre del 2006, de forma tal que la Junta Directiva del Fondo de Desarrollo de la Provincia de Limón, creado mediante Ley Nº 7454 del 22 de noviembre de 1994, modificada mediante la Ley Nº 7901 del 27 de julio de 1999, se integra de la siguiente manera:
-a) Virginia Aguiluz Barboza, cédula de identidad número 1-460-654, como represente del Presidente Ejecutivo de JAPDEVA, quien la presidirá y será su representante legal.
-b) Victoria León Wong, cédula de identidad número 1-407-578, como representante del Ministerio de Obras Públicas y Transportes.
-c) Alfredo Hidalgo Bermúdez, cédula de identidad 7-050-445, como representante de los Concejos Municipales de la Provincia de Limón.
-d) Patricia Aguilar Araya, cédula de identidad 7-092-532, como represente de la Federación Provincial de Uniones Cantonales de Asociaciones de Desarrollo de la Provincia de Limón.
-e) Ronaldo Blear Blear, cédula de identidad 7-077-288, como representante de Limón en Lucha.
+a) Virginia Aguiluz Barboza, cédula de identidad Nº 1-460-654, como representante del Presidente Ejecutivo de JAPDEVA, quien la presidirá y será su representante legal.
+b) Victoria León Wong, cédula de identidad Nº 1-407-578, como representante del Ministerio de Obras Públicas y Transportes.
+c) Néstor Mattis Williams, cédula de identidad Nº 1-0759-0539 como representante de los Consejos Municipales de la Provincia de Limón.
+d) Patricia Aguilar Araya, cédula de identidad Nº 7-092-532, como representante de la Federación Provincial de Uniones Cantonales de Asociaciones de Desarrollo de la Provincia de Limón.
+e) Winston Norman Scott, cédula de identidad Nº 7-066-374, como representante del Movimiento Limón en Lucha.
+(Así reformado por el artículo 1° del acuerdo N° 172 del 23 de agosto de 2012)

@@ -14,3 +14,4 @@ Reforma Integra Junta Directiva del Fondo de Desarrollo de la Provincia de Limó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-11 | la propia norma |
+| 2 | 2012-08-23 | Acuerdo 172 (2012-08-23) |
