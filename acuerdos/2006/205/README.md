@@ -15,3 +15,4 @@ Integra Junta Directiva del Fondo de Desarrollo de la Provincia de Limón
 | --- | --- | --- |
 | 1 | 2007-01-19 | la propia norma |
 | 2 | 2009-01-20 | Acuerdo 4 (2009-01-20) |
+| 3 | 2012-08-23 | Acuerdo 172 (2012-08-23) |
