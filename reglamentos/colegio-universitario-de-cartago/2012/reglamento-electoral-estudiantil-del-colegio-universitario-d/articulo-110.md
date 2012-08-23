@@ -1,0 +1,4 @@
+Artículo 110.—Tipos de faltas y sanciones aplicables. Las faltas y sanciones aplicables en caso de infracciones serán:
+Leves. Amonestación privada verbal y dos días sin poder efectuar ningún tipo de actividad o propaganda a criterio del T.E.E.C.U.C. En caso de reincidencia se considerarán como falta grave y se aplicarán las sanciones que a ella correspondan.
+Graves. Amonestación pública y cinco días sin poder efectuar ningún tipo de actividad o propaganda a criterio del T.E.E.C.U.C. En caso de reincidencia se considerarán como falta gravísima y se aplicarán las sanciones que a ella correspondan.
+Gravísimas. Acarrearán la descalificación definitiva de la calidad con que fue acreditado el infractor ante el T.E.E.C.U.C. y de todos los derechos inherentes a su cargo, o la suspensión definitiva de todos los medios de propaganda del candidato infractor.

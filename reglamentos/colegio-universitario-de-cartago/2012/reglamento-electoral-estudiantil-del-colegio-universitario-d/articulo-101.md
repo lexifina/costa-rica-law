@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+Infracciones y Sanciones
+Artículo 101.—Potestades del T.E.E.C.U.C. Toda acción u omisión que conlleve a la violación o amenaza de violación de normas electorales aquí consignadas, ya sea en forma oral o escrita, o bien a resoluciones debidamente notificadas por el T.E.E.C.U.C., serán conocidas por el T.E.E.C.U.C. como único órgano competente para imponer sanciones en virtud de sus potestades; en los casos de funcionarios, será el señor Decano quien ejerza la debida sanción, esto en caso de irrespetarse el artículo 99.— del presente Reglamento y demás normas relacionadas del mismo.

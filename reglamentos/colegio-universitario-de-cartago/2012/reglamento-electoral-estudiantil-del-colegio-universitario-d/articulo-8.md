@@ -1,0 +1,1 @@
+Artículo 8—Tienen derecho a ser electos o electas como integrantes del T.E.E.C.U.C. todos los y las alumnas regulares del Colegio Universitario de Cartago y cumplan con los requisitos establecidos más adelante.

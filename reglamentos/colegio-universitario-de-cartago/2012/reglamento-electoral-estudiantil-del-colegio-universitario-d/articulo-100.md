@@ -1,0 +1,1 @@
+Artículo 100.—Intervención Externa. Está terminantemente prohibido para cualquier candidato, valerse de personas físicas o jurídicas ajenas al Colegio Universitario de Cartago que intervengan directa o indirectamente en cualquier actividad electoral estudiantil. El incumplimiento de esta disposición será considerado como falta grave y puede acarrear su descalificación inmediata.

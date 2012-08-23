@@ -1,0 +1,1 @@
+Artículo 51.—Acreditación de Fiscales. Los Candidatos que participen en la elección del Representante Estudiantil al Consejo Directivo, deberán acreditar, ante el T.E.E.C.U.C, por lo menos un fiscal de mesa propietario y uno suplente, y un máximo de dos propietarios y dos suplentes. En caso de no hacerlo, no tendrá derecho a solicitar revisión del conteo de votos.

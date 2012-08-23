@@ -1,0 +1,1 @@
+Artículo 84.—Lugar de votación. Cada candidato contará con una columna vertical en la papeleta, previamente asignada por el T.E.E.C.U.C. mediante rifa, al pie de la cual habrá un espacio para que el votante marque con una equis (X) la casilla correspondiente al candidato de su simpatía.

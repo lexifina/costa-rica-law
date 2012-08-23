@@ -1,0 +1,1 @@
+Artículo 102.—Derecho de Defensa. De toda sanción que pudiera ser impuesta por el T.E.E.C.U.C. se dará audiencia a la parte interesada para que dentro del término de dos días hábiles de notificada la sanción, diga si acepta o rechaza los hechos de que se le hace responsable y presente las pruebas del caso.

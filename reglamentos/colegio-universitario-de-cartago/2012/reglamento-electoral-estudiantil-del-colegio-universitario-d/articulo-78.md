@@ -1,0 +1,1 @@
+Artículo 78.—Horas de votación. Una semana antes de la fecha de la elección el T.E.E.C.U.C. comunicará el horario de votación respectivo, que deberá estar comprendido entre las 8:00 a.m. y las 8:00 p.m. del día de las votaciones.

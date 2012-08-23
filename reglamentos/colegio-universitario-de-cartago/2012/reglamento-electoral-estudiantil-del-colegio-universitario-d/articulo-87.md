@@ -1,0 +1,1 @@
+Artículo 87.—Ordenes de acatamiento obligatorio. Las disposiciones del T.E.E.C.U.C. para asegurar la tranquilidad del proceso electoral en general y del recinto de votación en particular, serán de estricto cumplimiento y no cabrá ningún recurso contra ellas. La violación a esta disposición será considerada como falta grave.

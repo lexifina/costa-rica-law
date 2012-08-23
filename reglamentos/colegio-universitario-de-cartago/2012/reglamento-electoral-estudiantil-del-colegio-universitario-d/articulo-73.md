@@ -1,0 +1,1 @@
+Artículo 73.—Asignación de la secretaría de la Mesa Receptora: El T.E.E.C.U.C. asignará equitativamente la secretaría de la misma, entre los fiscales de los candidatos inscritos. Para este efecto el T.E.E.C.U.C. previo al día de la elección, le informará a los Candidatos, el período en que su fiscal deberá estar en la mesa receptora en calidad de secretario de la misma.

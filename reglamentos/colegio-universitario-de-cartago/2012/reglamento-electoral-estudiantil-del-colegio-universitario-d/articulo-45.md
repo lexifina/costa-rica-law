@@ -1,0 +1,1 @@
+Artículo 45.—El representante estudiantil que se elegirá, ejercerá funciones por el período comprendido entre el 01 de octubre del año en que resulte electo, al 30 de septiembre del año siguiente o según lo señale la norma respectiva.

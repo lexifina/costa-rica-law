@@ -1,0 +1,1 @@
+Artículo 35.—Solicitud de aclaración y adición. Las partes interesadas podrán pedir al T.E.E.C.U.C. y por una sola vez, que aclare o adicione sus resoluciones sin alterar los razonamientos de fondo que lo sustentan, dentro de los dos días siguientes a la notificación de la resolución.

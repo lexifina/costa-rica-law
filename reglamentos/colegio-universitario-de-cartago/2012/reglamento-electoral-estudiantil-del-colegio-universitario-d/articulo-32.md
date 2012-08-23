@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De los Recursos contra las Decisiones del T.E.E.C.U.C.
+Artículo 32.—Contra decisiones individuales. Contra las decisiones tomadas individualmente por los miembros del T.E.E.C.U.C., en materia de propaganda electoral, cabe el Recurso de Apelación ante el T.E.E.C.U.C. a fin de que colegiadamente éste resuelva lo que corresponda. La apelación deberá ser interpuesta dentro de un día hábil siguiente a la notificación de la resolución del miembro del tribunal y será resuelta por el T.E.E.C.U.C. dentro del día hábil siguiente al momento de la presentación del recurso. La resolución que resuelva esta apelación, no tendrá ulterior recurso.

@@ -1,0 +1,1 @@
+Artículo 77.—Cierre temporal de la mesa. Si el miembro del T.E.E.C.U.C debe ausentarse de la mesa y en ese momento no se encuentra otro miembro del Tribunal, ésta deberá cerrarse hasta que sea sustituido, con un máximo de treinta minutos.

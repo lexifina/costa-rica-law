@@ -1,0 +1,1 @@
+Artículo 72.—Integración de la mesa receptora: La mesa receptora de votos estará integrada por un miembro del T.E.E.C.U.C. en calidad de Presidente de la misma y un fiscal de cada candidato, debidamente acreditado. Para estos efectos el T.E.E.C.U.C. deberá previamente organizarse entre sus miembros propietarios y suplentes para la atención de este requerimiento.

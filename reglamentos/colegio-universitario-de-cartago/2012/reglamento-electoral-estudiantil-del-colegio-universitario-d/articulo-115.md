@@ -1,0 +1,1 @@
+Artículo 115.—El Tribunal valorará la elaboración y establecimiento de formularios (machotes) para la inscripción de candidatos, quejas, etc., los cuales sean usados por los interesados en participar en el proceso electoral estudiantil.

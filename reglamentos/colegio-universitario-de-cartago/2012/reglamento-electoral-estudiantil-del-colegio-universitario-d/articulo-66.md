@@ -1,0 +1,8 @@
+Artículo 66.—Reglas de propaganda. La propaganda electoral deberá ajustarse a las siguientes reglas:
+Ser coherente con los fines y principios de todo proceso electoral democrático.
+Ser respetuosa de la vida privada de los candidatos y de todos aquellos que hayan integrado o integre cualquier órgano de representaciones estudiantiles anteriores.
+No se podrá pegar información de ningún tipo en paredes ni pizarras (que no sean autorizadas por la Institución, ni consecuentemente por el T.E.E.C.U.C.), ventanas, puertas, árboles, señales de tránsito, ni emplear estas superficies para hacer letreros con pintura u otras sustancias.
+En el día de la elección queda prohibido cualquier tipo de propaganda. Antes de proceder a la votación el T.E.E.C.U.C. ordenará el retiro de la propaganda de los lugares de votación.
+En el día de la elección, la actividad electoral de los candidatos se limitará a brindar facilidades a los votantes para que ejerzan su derecho al sufragio, o bien, en caso necesario, podrá el T.E.E.C.U.C. establecerle directrices a los candidatos legalmente inscritos sobre su actividad y correcto comportamiento el día de la elección, procurando en todo momento la disciplina, el orden, y el respeto.
+De acuerdo con los incisos d) y e), no se podrá entrar sin autorización o permiso al recinto de votación (a no ser para ejercer el voto); y se deberá evitar obstruir el paso en los alrededores del recinto de votación.
+Una vez dada la declaratoria oficial de los resultados de la elección, el T.E.E.C.U.C. gestionará el retiro de la propaganda por medio del Departamento de Servicios Generales, o bien podrá solicitarle a los candidatos participantes el retiro de la misma, en el momento que estime conveniente.
