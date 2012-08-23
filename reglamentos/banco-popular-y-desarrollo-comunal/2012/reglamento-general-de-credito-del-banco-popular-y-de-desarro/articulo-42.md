@@ -11,7 +11,7 @@ d) Aval FODEMIPYME Y FINADE | Hasta el 100% del monto avalado.
 II-GARANTÍA PRENDARIA |
 A-BIENES MUEBLES |
 Prenda o pignoración sobre bienes muebles, excepto instrumentos financieros, e hipoteca sobre maquinaria fijada permanentemente al terreno. |
-a) Vehículos para uso personal (nuevos). | Hasta un 70% del valor del vehículo.
+a)Vehículos para uso personal (nuevos) (Así reformado el punto anterior mediante sesión N° 4994 del 23 de agosto del 2012) | Hasta un 80% del valor del vehículo. (Así reformado el punto anterior mediante sesión N° 4994 del 23 de agosto del 2012)
 b) Usados con un máximo de antigüedad de 5 años. | Hasta un 60% del valor del avalúo.
 c) Vehículos para transporte público y privado: | Hasta el 70% del valor del avalúo.
 Nuevos (según disposiciones legales vigentes para este tipo de vehículos). |

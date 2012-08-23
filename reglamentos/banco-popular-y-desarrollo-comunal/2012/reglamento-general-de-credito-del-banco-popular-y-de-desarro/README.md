@@ -14,3 +14,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-05 | la propia norma |
+| 2 | 2012-08-23 | Reglamento 4994 (2012-08-23) |
