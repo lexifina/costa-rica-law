@@ -8,6 +8,7 @@ Artículo 1°: Apruébanse los siguientes Ingresos Ordinarios y Extraordinarios 
 INCISO A: DETALLE DE LA PROYECCIÓN DE LOS INGRESOS CORRIENTES DEL
 GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2012 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance Digital N° 106 a La Gaceta N° 244 del 20 de diciembre de 2011)
+(Así reformado el inciso a) anterior por el artículo 1° de la ley N° 9065 del 23 de agosto del 2012)
 INCISO B:
 DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO
 DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2012 (en colones corrientes)
@@ -21,3 +22,6 @@ Pago de intereses de títulos de la deuda pública. En el marco de la renegociac
 En caso de colocación con no residentes la Tesorería Nacional deberá publicar la información financiera de esas colocaciones.
 (Modificado el inciso c) de este numeral por el artículo 1° del decreto ejcutivo N° 37038 del 27 de febrero del 2012)
 (Modificado el inciso c) de este numeral por el artículo 1° del decreto ejcutivo N° 37183 del 31 de mayo del 2012)
+(Así reformado el inciso a) anterior por el artículo 1° de la ley N° 9065 del 23 de agosto del 2012)
+(Así reformado el inciso b) anterior por el artículo 1° de la ley N° 9065 del 23 de agosto del 2012)
+(Así reformado el inciso c) anterior por el artículo 1° de la ley N° 9065 del 23 de agosto del 2012)
