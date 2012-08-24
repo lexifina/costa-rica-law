@@ -1,0 +1,1 @@
+Artículo 8º—Ninguna persona que haya denunciado el acoso moral u hostigamiento psicológico o haya comparecido como testigo de las partes, podrá sufrir, por ello, perjuicio personal alguno en su empleo.

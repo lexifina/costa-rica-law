@@ -1,0 +1,1 @@
+Artículo 17.—Las exigencias técnicas, los requerimientos de eficiencia y las peticiones de colaboración a que se refiere el artículo anterior deberán ser justificadas, fundamentadas en criterios objetivos y no discriminatorios.

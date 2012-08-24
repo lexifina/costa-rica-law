@@ -1,0 +1,1 @@
+Artículo 24.—Todo trabajador está en la obligación de dar colaboración cuando sea requerida por el personal de la Comisión de Hostigamiento o Acoso Laboral, que realiza la investigación sobre el presunto acoso moral u hostigamiento psicológico en su fase preliminar o por el personal del Órgano Director para la debida tramitación del procedimiento ordinario disciplinario.

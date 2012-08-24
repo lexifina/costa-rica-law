@@ -1,0 +1,1 @@
+Artículo 6º—Serán competentes para conocer de las demandas por acoso moral u hostigamiento psicológico en el lugar de trabajo, el Departamento de Recursos Humanos, Comisión de Hostigamiento o Acoso Laboral y el Órgano de Procedimiento Disciplinario que se designe cuando se refiera a la apertura de un procedimiento disciplinario.

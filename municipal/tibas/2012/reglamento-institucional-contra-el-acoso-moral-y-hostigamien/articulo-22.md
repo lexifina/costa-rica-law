@@ -1,0 +1,1 @@
+Artículo 22.—La Municipalidad debe poner en práctica los métodos necesarios para crear conciencia y dar a conocer la prohibición del acoso moral u hostigamiento psicológico en el trabajo mediante la Comisión de Hostigamiento o Acoso Laboral.

@@ -1,0 +1,1 @@
+Artículo 7º—Las partes podrán acudir al Departamento de Personal o a la Comisión de Hostigamiento o Acoso Laboral personalmente sin necesidad de representación legal, sin que ello sea obstáculo para que la Municipalidad, en casos evidentes, ordene de oficio la apertura del procedimiento disciplinario sin que implique perjuicio.

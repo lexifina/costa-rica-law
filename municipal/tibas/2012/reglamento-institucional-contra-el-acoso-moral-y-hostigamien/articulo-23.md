@@ -1,0 +1,1 @@
+Artículo 23.—La Municipalidad debe dar suficiente publicidad en el lugar de trabajo, para los aspirantes a empleo y a los trabajadores, de los derechos y protecciones que se les confiere y otorga bajo este Reglamento al amparo de la Constitución Política, la Ley General de la Administración Pública, Ley Riesgos del Trabajo, el Código de Trabajo, y otras.

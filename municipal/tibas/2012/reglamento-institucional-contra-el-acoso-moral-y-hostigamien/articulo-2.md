@@ -1,0 +1,1 @@
+Artículo 2º—Una vez agotado el procedimiento administrativo en la Municipalidad, o si no se cumple por motivos que no se le pueden imputar a la persona ofendida y si el trabajador considera que no se ha resuelto definitivamente su denuncia por acoso moral u hostigamiento psicológico, podrá presentar la demanda ante la autoridad correspondiente.

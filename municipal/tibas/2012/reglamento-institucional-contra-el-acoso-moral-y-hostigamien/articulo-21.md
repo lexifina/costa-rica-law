@@ -1,0 +1,1 @@
+Artículo 21.—La Municipalidad debe exigir a sus superiores jerárquicos y trabajadores el cumplimiento del reglamento contra el acoso moral u hostigamiento psicológico en el trabajo y garantizar que puedan laborar con seguridad y dignidad.

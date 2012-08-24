@@ -1,0 +1,1 @@
+Artículo 26.—Mientras se realiza la investigación de la denuncia por acoso moral u hostigamiento psicológico en el trabajo, puede recomendarse, como medida cautelar, el traslado a otra dependencia de la misma Municipalidad, bien sea de la persona acosadora o de la persona afectada, esto a solicitud del acosado u hostigado o del presunto acosador.

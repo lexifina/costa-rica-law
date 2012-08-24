@@ -1,0 +1,1 @@
+Artículo 5º—No incurre en responsabilidad patronal, de acuerdo con lo que establece la normativa laboral, el patrono que despida a un trabajador que haya incurrido en acoso moral u hostigamiento psicológico en el trabajo.

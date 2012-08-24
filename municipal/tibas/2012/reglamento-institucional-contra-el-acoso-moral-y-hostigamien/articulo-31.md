@@ -1,0 +1,2 @@
+Artículo 31.—La Municipalidad debe encargarse de la difusión de los alcances del presente Reglamento, para lo cual deberán organizar planes y programas de información, servicio y orientación profesional.
+Asimismo, debe facilitar al personal, información acerca del procedimiento a seguir, los medios de prevención, los mecanismos de denuncia y los organismos especializados en la materia que pueden brindarle apoyo.

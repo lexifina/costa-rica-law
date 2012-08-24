@@ -1,0 +1,1 @@
+Artículo 33.—Las sanciones por acoso moral u hostigamiento psicológico en el trabajo se aplican según la gravedad del hecho y son: la prevención, la amonestación verbal, la amonestación escrita, la suspensión sin goce de salario y el despido sin responsabilidad patronal según lo estipula el Código Municipal y otros.

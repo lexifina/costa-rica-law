@@ -1,0 +1,1 @@
+Artículo 25.—La Municipalidad debe establecer mecanismos de prevención de las conductas de acoso moral u hostigamiento psicológico en el trabajo, así como un procedimiento interno, confidencial y efectivo para superar las que ocurran y sancionar a las personas acosadoras u hostigadoras cuando exista causa.
