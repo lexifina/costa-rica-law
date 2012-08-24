@@ -1,0 +1,14 @@
+MUNICIPALIDAD DE TIBÁS
+La Municipalidad de Tibás, informa: de conformidad con el acuerdo VI-5 en su sesión ordinaria Nº 112, celebrada el 19 de junio del 2012, se publica el Reglamento que dice:
+REGLAMENTO SOBRE LAS CAUCIONES
+QUE DEBEN RENDIR LOS FUNCIONARIOS
+DE LA MUNICIPALIDAD DE TIBÁS
+Considerando:
+1º—Que el artículo 13 de la Ley Nº 8131 “Ley de la Administración Financiera de la República y Presupuestos Públicos” establece que todo encargado de recaudar, custodiar o administrar fondos y valores públicos, deberá rendir garantía con cargo a su propio peculio, a favor de la Hacienda Pública o la entidad respectiva, para asegurar el correcto cumplimiento de sus deberes y obligaciones.
+2º—Que el artículo 110 inciso L) de la citada Ley, establece como un hecho generador de responsabilidad administrativa, el nombramiento de un servidor con facultades de uso y disposición de recursos públicos, que no reúna las condiciones exigidas por el ordenamiento jurídico o los manuales y las reglamentaciones internas, o darle al servidor posesión del cargo sin rendir previamente la caución que ordena la Ley Nº 8131.
+3º—Que mediante la resolución Nº R-CCO-10-2007 de las 13 horas del 19 de marzo del 2007, la Contraloría General de la República emitió las directrices que deben observar la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización para elaborar la normativa interna relativa a la rendición de garantías o cauciones.
+4º—Que el objeto general del control interno es proteger y conservar el patrimonio institucional, siendo responsabilidad de la Administración, en especial del Jerarca y en cooperación con los titulares subordinados, implementar y ejecutar medidas efectivas para administrar en forma adecuada el nivel de riesgo existente en las labores de custodia y administración de fondos y valores públicos; teniéndose que un mecanismo idóneo para proteger el patrimonio del Estado es la rendición de garantías por parte de quienes tienen la responsabilidad de administrar y custodiar esos fondos y valores públicos. El Concejo Municipal de Tibás: Aprueba el siguiente, Reglamento sobre las cauciones que deben rendir los funcionarios de la Municipalidad de Tibás, Encargados de recaudar, custodiar o administrar fondos y valores públicos.
+CAPÍTULO I
+Ámbito de aplicación y funcionarios
+obligados a rendir caución
+Artículo 1º—Objeto y ámbito de aplicación. El presente Reglamento tiene por objeto regular lo atinente a las garantías que deben rendir los funcionarios de la Municipalidad de Tibás, encargados de recaudar, custodiar o administrar fondos y valores públicos, para asegurar el correcto cumplimiento de sus deberes y obligaciones. Lo anterior conforme a lo dispuesto en el numeral 13 de la Ley Nº 8131 “Ley de la Administración Financiera de la República y Presupuestos Públicos”.

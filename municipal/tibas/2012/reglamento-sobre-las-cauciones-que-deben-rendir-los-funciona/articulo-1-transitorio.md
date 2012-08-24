@@ -1,0 +1,1 @@
+Transitorio I.—Una vez que entre a regir este Reglamento, los funcionarios que ostenten cargos para los cuales es exigida la rendición de una garantía de fidelidad, de acuerdo con estas disposiciones, contarán con un plazo de quince días hábiles para suscribir la respectiva póliza y acreditar el respectivo comprobante ante el Departamento de Recursos Humanos.
