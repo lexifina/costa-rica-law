@@ -1,2 +1,0 @@
-Artículo 2º—Los directores y funcionarios de los establecimientos de salud y las personas profesionales en medicina, en el ejercicio privado de la profesión, están obligados a remitir al Centro de Registro de Enfermedades Congénitas, toda la información pertinente para su estudio y seguimiento, de los niños y niñas cuyas características indiquen alguna alteración congénita detectada desde su nacimiento hasta el primer año de vida.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 34398 del 12 de febrero de 2008)

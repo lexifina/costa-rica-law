@@ -1,2 +1,0 @@
-Artículo 3º—El Centro Nacional de Referencia de Enfermedades Congénitas deberá informar en forma periódica a la Dirección de Vigilancia del Ministerio de Salud sobre los estudios realizados, y para el mejor desempeño de sus funciones podrá recibir ayudas económicas de dependencias del Sector Público y del Sector Privado, en la medida de sus posibilidades legales y materiales.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 34398 del 12 de febrero de 2008)
