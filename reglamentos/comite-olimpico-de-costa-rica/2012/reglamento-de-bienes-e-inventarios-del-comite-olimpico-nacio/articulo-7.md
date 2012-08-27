@@ -1,0 +1,1 @@
+Artículo 7—Del registro de los bienes. Para efectos de los bienes adquiridos por el CON, la UAF deberá establecer un registro contable y deberá colocar una placa que facilite la identificación y el control de estos.

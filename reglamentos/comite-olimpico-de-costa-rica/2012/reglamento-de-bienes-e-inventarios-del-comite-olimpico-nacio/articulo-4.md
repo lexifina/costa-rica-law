@@ -1,0 +1,3 @@
+Artículo 4—De la clasificación de los bienes. Los bienes del CON se clarifican en bienes muebles o inmuebles, de acuerdo con el “Clasificador por Objeto del Gasto para el Sector Público” según el siguiente detalle:
+· Bienes inmuebles: comprenden los terrenos, edificios y demás construcciones, cuyo control será responsabilidad de la UAF y para ello llevará un registro y deberá realizar las gestiones necesarias para la inscripción correspondiente en el Registro Nacional de la Propiedad.
+· Bienes muebles: comprenden aquellos que se requieren para el uso o consumo que se requieren para la realización de las actividades propias del CON, con las cuales se espera cumplir los objetivos institucionales.

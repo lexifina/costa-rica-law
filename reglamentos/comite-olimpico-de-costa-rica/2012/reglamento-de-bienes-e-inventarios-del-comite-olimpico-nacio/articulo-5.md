@@ -1,0 +1,1 @@
+Artículo 5—Ámbito de aplicación: Este Reglamento se aplicará para asegurar una gestión de control tanto oportuna como eficaz, en el manejo de los recursos públicos administrados por el Comité con los cuales se adquieran equipos, materiales y bienes inmuebles que pasan a ser parte del CON.

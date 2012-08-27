@@ -1,0 +1,1 @@
+Artículo 8—De la asignación de los bienes. Los bienes inmuebles serán asignados a los responsables de los centros de costos y estos a su vez llevarán un control de los funcionarios responsables de su uso. Los materiales se entregarán a los usuarios para su consumo, sin embargo será responsabilidad de la UAF llevar un control de la entrega y el responsable de recibirlos.
