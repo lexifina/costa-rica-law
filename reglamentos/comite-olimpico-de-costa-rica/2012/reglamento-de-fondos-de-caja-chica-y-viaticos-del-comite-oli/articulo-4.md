@@ -1,0 +1,2 @@
+Artículo 4—Utilización del fondo de caja chica. El fondos de caja chica, se utilizará para cubrir los gastos de operación autorizados en el Presupuesto Institucional en que se incurran a lo interno del CON, tales como: pago de los bienes o servicios que se adquieran, de conformidad con el Reglamento del Sistema de Compras.
+El fondo de caja chica operará mediante una cuenta corriente en algún Banco del Sistema Bancario Nacional.

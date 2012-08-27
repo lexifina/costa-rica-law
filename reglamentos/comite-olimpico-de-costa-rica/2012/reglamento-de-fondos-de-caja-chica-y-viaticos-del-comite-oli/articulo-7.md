@@ -1,0 +1,1 @@
+Artículo 7—Cierre. El cierre del fondo de Caja Chica será responsabilidad exclusiva de la Unidad Administrativa Financiera, quien deberá elaborar un informe escrito debidamente fundamentado con indicación clara de las razones que justifican el cierre.

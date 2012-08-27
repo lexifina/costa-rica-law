@@ -1,0 +1,3 @@
+CAPÍTULO II
+Asignación de fondos caja chica
+Artículo 6—Creación. El Comité Ejecutivo del CON aprobará la creación de un fondo de Caja Chica. Para tal efecto se requerirá una justificación por parte del Presidente del Comité, donde se indique al menos el objetivo que cumplirá el fondo, el volumen aproximado de transacciones que se realizarán, el monto total del fondo, el monto máximo a cancelar en cada compra, el funcionario responsable de la administración de los recursos y la ubicación del fondo, considerando que se debe contar con la seguridad y condiciones mínimas requeridas para la adecuada administración del efectivo correspondiente.

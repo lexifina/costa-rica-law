@@ -1,0 +1,5 @@
+Artículo 2—Definiciones y abreviaturas. Para los efectos del presente Reglamento se entiende por:
+Encargado del fondo de Caja Chica: Funcionario del la UAF que tiene la responsabilidad de administrar y custodiar el fondo de Caja Chica.
+Fondo de Caja Chica: Son los recursos en efectivo que se asignan para cubrir las compras de bienes y servicios requeridos para el normal funcionamiento del CON, sus desembolsos se realizan por medio de adelantos de dinero en efectivo. El fondo de Caja Chica estará constituido por dinero en efectivo, comprobantes de compras realizadas o facturas, vales por adelanto de dinero no liquidados y de solicitudes de reintegros pendientes.
+Viáticos: Suma de dinero utilizada para la atención de gastos de hospedaje, alimentación y otros gastos menores, que el CON reconoce a sus colaboradores o representantes de las federaciones o comisiones que la conforman, cuando estos deban desplazarse en forma transitoria de su centro de trabajo con el fin de cumplir
+con las obligaciones de su cargo.

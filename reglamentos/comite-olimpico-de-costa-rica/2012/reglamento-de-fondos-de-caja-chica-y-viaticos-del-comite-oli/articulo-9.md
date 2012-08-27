@@ -1,0 +1,1 @@
+Artículo 9—Autorización. Los vales de Caja Chica deberán ser autorizados por el coordinador de la UAF, además deberá contar con el control presupuestario, con el fin de garantizar la existencia de contenido presupuestario.
