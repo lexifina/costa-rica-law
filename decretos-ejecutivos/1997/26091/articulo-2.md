@@ -1,1 +1,0 @@
-Artículo 2°—Los directores, administradores de centros hospitalarios públicos y privados, instituto Nacional de Seguros y de la Cruz Roja Costarricense, se encuentran en la ineludible obligación de notificar al Registro Nacional de Quemados, por medio del Sistema de Información del Ministerio de Salud, los casos atendidos por quemaduras.

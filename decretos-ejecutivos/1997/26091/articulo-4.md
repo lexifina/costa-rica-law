@@ -1,1 +1,0 @@
-Artículo 4°—Las estadísticas vitales que se emitan, serán puestas en conocimiento de la Comisión Reguladora de la Pólvora y Prevención de Quemados, a fin de que ésta en materia de prevención de salud pública, recomiende al despacho del Ministro, las medidas ordinarias y extraordinarias que se requieren a nivel nacional, para evitar una incidencia mayor en quemaduras.
