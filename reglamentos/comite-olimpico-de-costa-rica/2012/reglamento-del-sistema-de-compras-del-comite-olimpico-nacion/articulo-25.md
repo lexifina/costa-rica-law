@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Recepción de bienes
+Artículo 25—De la recepción, almacenamiento y distribución de bienes. Para la recepción de los bienes deberá completarse un formulario en el cual deberán constar las cantidades, características, naturaleza de los bienes y concordancia con lo adjudicado, así como toda otra información pertinente y será suscrita por el funcionario encargado de recibir los bienes y el contratista o por quien haga la entrega.
+La UAF será la responsable de establecer y llevar a cabo los procedimientos y controles para la adecuada recepción, almacenamiento y distribución de bienes en el CON para asegurar un servicio eficiente y tendrá la obligación de garantizar que los trámites de pago y plaqueo se realizarán previa verificación del cumplimiento de las condiciones de adjudicación. Esa verificación deberá efectuarla el órgano competente según sea la naturaleza de los bienes de que se trate.
+En el caso de los servicios, el usuario o centro de costos solicitante será en responsable de la supervisión y trámite de pago del mismo y de toda la documentación generada deberá enviarse copia al expediente de contratación respectivo.

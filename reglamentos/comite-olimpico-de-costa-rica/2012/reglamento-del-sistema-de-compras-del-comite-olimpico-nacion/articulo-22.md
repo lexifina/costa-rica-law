@@ -1,0 +1,3 @@
+Artículo 22—Definición de Fondo de Trabajo. Un Fondo de Trabajo tiene por objeto atender con prontitud la adquisición de bienes y servicios previamente autorizados en el presupuesto, para una unidad o usuario que justifique su compra, siempre y cuando la misma no supere el 40% del monto de la Compra Directa de escasa cuantía (artículo 136 del RCA). Todo pago o gasto efectuado por medio del fondo de trabajo deberá ser al contado, mediante cheque y contra presentación de la factura respectiva.
+El Fondo de Trabajo operará mediante una cuenta corriente en algún Banco del Sistema Bancario Nacional.
+Esta materia esta excluida del ámbito de aplicación de la Ley de Contratación Administrativa, de conformidad con el artículo 2, inciso e) de ese mismo cuerpo legal.

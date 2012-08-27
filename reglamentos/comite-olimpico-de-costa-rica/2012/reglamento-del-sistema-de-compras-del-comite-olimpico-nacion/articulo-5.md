@@ -1,0 +1,1 @@
+Artículo 5—Actualización del sistema. La UAF será el responsable del sistema de compras de bienes y servicios deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de bienes y servicios que requieran las diversas dependencias internas y externas al CON.

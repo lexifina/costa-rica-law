@@ -1,0 +1,1 @@
+Artículo 4—Ámbito de aplicación. Este Reglamento se aplicará para la adquisición de bienes y servicios mediante los procedimientos de contratación, remates, subastas o contrataciones directas que se lleven a cabo en el CON. Las contrataciones que se hagan mediante el procedimiento de compras por fondo de trabajo serán realizadas según lo definido en el presente reglamento.

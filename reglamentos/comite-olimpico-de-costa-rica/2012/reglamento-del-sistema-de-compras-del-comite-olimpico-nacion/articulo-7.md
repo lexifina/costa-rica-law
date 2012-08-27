@@ -1,0 +1,3 @@
+CAPÍTULO II:
+Planificación y programación de los procesos de contratación
+Artículo 7—Programación anual de compras. Los usuarios o centros de costo del CON deberán indicar en la formulación del plan-presupuesto sus requerimientos de bienes y servicios del año correspondiente. En lo referente a la contratación de servicios que pertenezcan al rubro de objeto gasto de servicios y la compra de bienes que pertenezcan al rubro de objeto gasto de materiales y suministros y bienes duraderos, deberán en la formulación del plan-presupuesto determinar el tipo de bien a adquirir. Lo anterior, con el propósito de que la UAF proceda a preparar la publicación del Programa de Adquisiciones en el Diario Oficial La Gaceta, de conformidad con lo establecido en la LCA.
