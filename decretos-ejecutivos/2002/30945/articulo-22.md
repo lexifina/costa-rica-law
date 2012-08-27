@@ -1,1 +1,0 @@
-Artículo 22.—Los laboratorios de centros de investigación públicos y privados, que manipulen o estudien agentes patógenos que no circulan en el ámbito nacional, deben informar de su existencia a la Dirección de Vigilancia de la Salud.

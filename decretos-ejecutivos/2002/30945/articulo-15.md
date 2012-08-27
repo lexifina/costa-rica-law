@@ -1,1 +1,0 @@
-Artículo 15.—Las Áreas Rectoras de Salud o los niveles regiones del Ministerio de Salud, informarán diariamente vía telefónica a la Dirección de Vigilancia de la Salud, cualquier evento que las autoridades de salud determinen, cuyo interés y repercusión sean de trascendencia social e institucional.

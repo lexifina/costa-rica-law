@@ -1,1 +1,0 @@
-Artículo 5º—Para efectos de la unidad e integración de acciones en la gestión de salud pública, el Sistema de Vigilancia de la Salud articula y concerta con las instituciones del sector salud e instituciones de otros sectores, mediante el funcionamiento de las comisiones interinstitucionales de vigilancia de la salud.

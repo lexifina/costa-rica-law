@@ -1,1 +1,0 @@
-Artículo 25.—La periodicidad de la divulgación de la información será diferente para cada uno de los eventos sujetos a vigilancia; sin embargo los equipos técnicos deberán realizar informes periódicos a sus jefaturas inmediatas y tener a disposición la información para otros usuarios.

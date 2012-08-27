@@ -1,1 +1,0 @@
-Artículo 19.—Los directores de los establecimientos tienen la obligación de verificar que los funcionarios de los servicios a su cargo, estén cumpliendo con la notificación de enfermedades de declaración obligatoria en forma oportuna.

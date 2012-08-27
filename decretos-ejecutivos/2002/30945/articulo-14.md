@@ -1,1 +1,0 @@
-Artículo 14.—Los directores de centros hospitalarios, laboratorios, clínicas y consultorios de salud privados así como el Instituto Nacional de Seguros, deberán enviar la información al Área Rectora de Salud del Ministerio de Salud correspondiente, según su ubicación geográfica, con la periodicidad establecida en el presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 8º—Se crean las salas de situación, como la instancia donde se analiza, discute y evalúa en forma concertada y sostenida la situación de salud. Las salas de situación serán conducidas por la autoridad máxima del Ministerio de Salud del nivel regional y local o su designado y en el nivel central por la Dirección de Vigilancia de la Salud.
