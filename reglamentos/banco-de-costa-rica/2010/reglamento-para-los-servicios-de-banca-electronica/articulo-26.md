@@ -1,2 +1,0 @@
-Artículo 26.—Los servicios que ofrece el Banco a través de la red de cajeros automáticos por la misma naturaleza de éstos, supone su ubicación en sitios de irrestricto acceso público, por lo que corresponde al usuario observar la debida prudencia para no ser sorprendido por acciones de personas inescrupulosas.
-El Banco queda liberado de toda responsabilidad si por descuido del cliente o por acciones de terceros, aquél resultare perjudicado.

@@ -1,1 +1,0 @@
-Artículo 43.—Inicialmente ningún cliente del Banco va a estar afiliado al servicio, el mismo debe ser solicitado propiamente por el cliente. Dicha solicitud no representará ningún trámite que implique papeleo, ya que todo se efectuará a través de www.bancobcr.com.
