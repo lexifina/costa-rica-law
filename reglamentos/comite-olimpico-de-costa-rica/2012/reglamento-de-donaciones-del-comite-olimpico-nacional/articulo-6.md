@@ -1,0 +1,1 @@
+Artículo 6—Bienes susceptibles de donación. El CON podrá donar aquellos bienes que de conformidad con criterios técnicos y legales son la mejor forma de satisfacer el interés público que el CON como institución satisface.

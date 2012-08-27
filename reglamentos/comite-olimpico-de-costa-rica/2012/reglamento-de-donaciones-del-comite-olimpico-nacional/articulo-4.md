@@ -1,0 +1,1 @@
+Artículo 4—Ámbito de aplicación: Este Reglamento se aplicará a todos los bienes propiedad del CON susceptibles de ser donados a las organizaciones deportivas a nivel nacional, con el fin de promover el desarrollo del deporte en función del interés público que satisface el CON.

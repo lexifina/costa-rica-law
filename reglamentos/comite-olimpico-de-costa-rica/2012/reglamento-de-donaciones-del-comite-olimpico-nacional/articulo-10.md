@@ -1,0 +1,1 @@
+Artículo 10—Requisitos de la exclusión de los bienes. Los bienes cuya donación haya sido aprobada deberán ser excluidos del inventario del CON, para lo cual será necesario contar con el acuerdo de donación de bienes por parte del Comité Ejecutivo, así como el acta de entrega de los bienes donados con su respectiva aceptación por parte del interesado.
