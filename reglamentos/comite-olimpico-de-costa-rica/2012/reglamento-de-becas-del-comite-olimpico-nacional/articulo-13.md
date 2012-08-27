@@ -1,0 +1,1 @@
+Artículo 13—Gestión de cobro. Queda facultado el Presidente del Comité a gestionar la devolución de los recursos otorgados en calidad de beca, cuando se logré demostrar que los mismos no se han utilizado para los fines para los cuales han sido previamente aprobados por el Comité Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 4—Ámbito de aplicación. Este Reglamento se aplicará para garantizar una adecuada gestión de todo lo relacionado con las becas o ayudas económicas otorgadas por el CON a los atletas participantes de procesos de procesos formales de formación o de entrenamiento con miras a participar en competencias a nivel nacional o internacional

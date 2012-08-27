@@ -1,0 +1,1 @@
+Artículo 7—Clasificación de los beneficiarios. El CON deberá elaborar una clasificación de los potenciales beneficiarios de las becas deportivas, en al cual se indique el monto recomendado de la beca y los requisitos o perfiles mínimos requeridos por cada uno de los atletas de acuerdo con dicha clasificación.
