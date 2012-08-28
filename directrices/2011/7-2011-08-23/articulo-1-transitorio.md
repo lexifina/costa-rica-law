@@ -1,1 +1,0 @@
-Transitorio primero.—Para la implementación de la obligación establecida en el párrafo segundo del artículo 7º de la presente Directriz, se establece un plazo de cinco años contados a partir de la publicación.

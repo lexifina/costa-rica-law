@@ -1,2 +1,0 @@
-Artículo 3º—Cálculo de la edad. Cuando no se tenga acceso a registros que revelen la edad del animal, los médicos veterinarios responsables de los establecimientos y plantas de sacrificio determinarán la edad de los mismos utilizando la dentición de los incisivos.
-En aquellos establecimientos en que no lleve registro de las edades de los animales sacrificados, la clasificación de riesgo tendrá en cuenta la franja de edad superior en que puedan encontrarse los animales.

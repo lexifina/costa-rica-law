@@ -1,4 +1,0 @@
-Artículo 7º—Uso de harinas de carne y huesos (HCH) en animales no rumiantes. Se prohíbe la utilización de los MER procedentes de rumiantes en la fabricación de HCH.
-Las plantas de producción de alimentos para animales que utilicen HCH procedentes de rumiantes deben establecer líneas de producción separadas para alimentos con y sin HCH procedentes de rumiantes, si se elaboran alimentos para rumiantes.
-Sólo se permite la venta de HCH a establecimientos y personas que posean el CVO y cuenten con el aval de la Dirección de Alimentos para Animales, para ello esta Dirección se comprometerá a suministrar a los renderings una lista actualizada cada 6 meses de los establecimientos y personas autorizadas.
-Los regentes de los rendering deberán emitir una certificación por cada lote producido, indicando la especie que fue utilizada en la fabricación de la HCH.

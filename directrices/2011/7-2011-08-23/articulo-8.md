@@ -1,2 +1,0 @@
-Artículo 8º—Transporte, almacenamiento y distribución de alimentos. La Dirección de Alimentos para Animales establecerá los requisitos para el transporte, almacenamiento, precintado y distribución de alimentos para animales con el objeto de evitar la contaminación cruzada de alimentos para animales.
-Los camiones que transporten alimentos a granel que contengan HCH deben ser sometidos a limpieza para el transporte de alimentos sin HCH destinados a rumiantes.

@@ -1,1 +1,0 @@
-Transitorio segundo.—La Dirección de Alimentos para Animales contará con un plazo de seis meses calendario a partir de la publicación de la presente Directriz para establecer los requisitos para el transporte, almacenamiento, precintado y distribución de alimentos para animales.
