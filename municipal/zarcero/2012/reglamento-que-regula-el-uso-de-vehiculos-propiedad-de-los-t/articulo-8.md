@@ -1,0 +1,1 @@
+Artículo 8º—El Departamento de Transportes deberá inspeccionar y comprobar periódicamente cada vehículo y constatar las condiciones mecánicas y de carrocería en que estos se encuentren. Únicamente aquellos que están en condiciones adecuadas de operación, permanecerán al servicio de la Municipalidad.

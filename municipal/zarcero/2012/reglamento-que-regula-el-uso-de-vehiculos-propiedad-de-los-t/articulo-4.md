@@ -1,0 +1,2 @@
+Artículo 4º—La Municipalidad pagará como retribución por los servicios que presten sus servidores en sus vehículos particulares, los montos resultantes de la aplicación de las tarifas máximas por kilómetro autorizadas por la Contraloría General de la República para cada tipo de vehículo, considerando para ello las tarifas vigentes a la fecha de realización del servicio.
+Adicionalmente se reconocerán los pagos por concepto de peajes, utilización de transbordadores y estacionamiento que deba pagar el trabajador, debiendo presentar el comprobante respectivo cuando proceda.

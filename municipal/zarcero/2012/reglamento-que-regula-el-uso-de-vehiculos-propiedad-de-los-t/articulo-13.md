@@ -1,0 +1,1 @@
+Artículo 13.—Para lograr un uso racional y correcto del sistema se establece que el control administrativo de los trámites estará a cargo del Departamento de Transportes y el control de la legitimidad de los servicios prestados corresponde al Jefe que autoriza el uso del vehículo y solicita el pago respectivo.

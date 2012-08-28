@@ -1,0 +1,1 @@
+Artículo 5º—El Departamento de transportes no le facilitará movilización con vehículos de la Municipalidad a los trabajadores acogidos al Sistema. Casos especiales serán analizados por el Departamento de Transportes. Asimismo la Municipalidad no asignará chofer a los vehículos propiedad de sus empleados, debiendo estos ser conducidos por sus propietarios.
