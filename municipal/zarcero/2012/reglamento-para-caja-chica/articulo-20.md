@@ -1,0 +1,1 @@
+Artículo 20.—El funcionario que tenga bajo su responsabilidad la caja chica, no podrá mantener junto a estos documentos, efectivo o cheques que sean propiedad particular. Tampoco podrá suplir dinero de su propiedad para realizar o completar pagos que corresponden a la Municipalidad.
