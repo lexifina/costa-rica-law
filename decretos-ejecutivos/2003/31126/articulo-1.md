@@ -36,6 +36,7 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 37107 del 19 de marzo del 2012, se nombra como miembro propietario de esta Comisón a la señora Fiorella Donato Calderón, representante del Consejo Nacional de Rectores)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 37257 del 27 de abril del 2012, se nombra como miembro propietario de esta Comisón a la señora Eva María Carazo Vargas, representante de la Federación Costarricense para la Conservación del Ambiente)
 (Nota de Sinalevi: Mediante el numeral 1° del decreto ejecutivo N° 37208 del 18 de junio de 2012, se nombra como miembro propietario de esta Comisión al señor Rafael Ángel Gutiérrez Rojas, representante del Sistema Nacional Nacional de Äreas de Conservación)
+(Nota de Sinalevi: Mediante el numeral 1° del decreto ejecutivo N° 37344 del 28 de agosto del 2012, se nombra como miembro propietario de esta Comisión a la señora Eugenia Solano Villalobos, representante de la Unión Costarricense de Cámaras de la Empresa Privada)
 2. Miembros suplentes:
 a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010)
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
@@ -66,3 +67,4 @@ k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36806 del 18 de agosto del 2011, se nombra como miembros suplentes de esta Comisión a la señora Elizabeth Arnáez Serrano representante del Consejo Nacional de Rectores)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 36900 del 26 de setiembre de 2011, se nombra como miembro suplente de esta Comisión a la señora Silvia Elena Chaves Quesada, representante de la Unión Costarricense de Cámaras de la Empresa Privada)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37012 del 2 de enero del 2012, se nombra como miembro suplente de esta Comisión al señor Nevio Bonilla Morales, representante de la Ministra de Agricultura y Ganadería)
+(Nota de Sinalevi: Mediante el numeral 1° del decreto ejecutivo N° 37344 del 28 de agosto del 2012, se nombra como miembros suplentes de esta Comisión a la señora Eugenia Arguedas Montezuma, representante del sistema Nacional de Áreas de Conservación y a la señora Mariemilia Morales Zárate, representante de la Unión Costarricense de Cámaras de la Empresa Privada)
