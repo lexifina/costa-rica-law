@@ -1,0 +1,1 @@
+2º—En cumplimiento de lo ordenado, se ordena al Área de Conservación de Osa del Sistema Nacional de Áreas de Conservación, rendir informes mensuales a la señora Jueza Ejecutora de este Tribunal sobre el cumplimiento de las conductas impuestas a las sociedades codemandadas en el presente acuerdo conciliatorio, de conformidad con la fiscalización que al efecto realice.

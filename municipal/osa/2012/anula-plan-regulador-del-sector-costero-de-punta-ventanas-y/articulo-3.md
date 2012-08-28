@@ -1,0 +1,1 @@
+3º—Se levantan las medidas cautelares adoptadas mediante resolución 836-2008 de quince horas con treinta minutos del catorce de octubre de dos mil ocho, modificada por resoluciones 170-2011 de trece horas y cuarenta y cinco minutos del ocho de agosto de dos mil once.
