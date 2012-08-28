@@ -10,6 +10,5 @@ II.—Que la citada Ley le asigna a esa Comisión, funciones referentes a la con
 III.—Que el artículo 15 de la Ley de Biodiversidad, establece la forma en que se integrará la Comisión, de acuerdo al nombramiento realizado por los entes y organizaciones que señala la ley. Por tanto,
 Decretan:
 Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad, a los siguientes representantes de la Unión Costarricense de Cámaras de la Empresa Privada:
-1. Miembro propietario:
-Erick Manuel Vargas Campos.
+1. (Derogado por elartículo 3° aparte 1) del decreto ejecutivo N° 37344 del 28 de agosto del 2012)
 2. (Derogado por el artículo 2° del decreto ejecutivo N° 36900 del 26 de setiembre de 2011)

@@ -16,3 +16,4 @@ Nombra miembros de la Comisión Nacional para la Gestión de la Biodiversidad
 | 1 | 2009-07-24 | la propia norma |
 | 2 | 2011-09-26 | Decreto Ejecutivo 36900 (2011-09-26) |
 | 3 | 2012-06-25 | Ley 9046 |
+| 4 | 2012-08-28 | Decreto Ejecutivo 37344 (2012-08-28) |
