@@ -1,0 +1,1 @@
+Artículo 22.—El funcionario encargado de la dependencia donde el estudiante Beca 0 es asignado a realizar su Servicio Becario, deberá entregar en forma mensual el reporte de cumplimiento de las respectivas horas y la apreciación de su desempeño, según instrumento elaborado para este fin, al Departamento de Bienestar Estudiantil y Calidad de Vida.

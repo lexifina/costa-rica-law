@@ -1,0 +1,2 @@
+Artículo 15.—Cualquier caso no previsto en este Reglamento, será analizado y estudiado por la Jefatura del Departamento de Bienestar Estudiantil y Calidad de Vida y un profesional en Trabajo Social para su estudio y resolución, mismo que deberá presentar un informe escrito al Consejo Directivo.
+En caso de ausencia de alguno de los dos miembros del Departamento de Bienestar Estudiantil, éste será suplido por un representante de la Dirección Administrativa Financiera o la Decanatura.

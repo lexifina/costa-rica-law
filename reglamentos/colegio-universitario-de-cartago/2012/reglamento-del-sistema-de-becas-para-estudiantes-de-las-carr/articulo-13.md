@@ -1,0 +1,1 @@
+Artículo 13.—Beca Especial: Se le confiere este beneficio a los estudiantes que elaboren los diseños ganadores en la exhibición de proyectos por Carrera que cada año se celebra con ocasión del Aniversario Institucional. Esta beca exonera por una única vez y solamente a los estudiantes ganadores del certamen, y consiste en la exoneración del pago de la matrícula.

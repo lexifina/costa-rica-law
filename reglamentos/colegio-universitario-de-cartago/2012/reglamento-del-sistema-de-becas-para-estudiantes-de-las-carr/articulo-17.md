@@ -1,0 +1,1 @@
+Artículo 17.—La Institución dará por periodos definidos y según criterio del Departamento de Bienestar Estudiantil, ayuda económica extraordinaria a estudiantes que por alguna situación imprevista no puedan pagar el costo de giras, materiales y equipo básico de su carrera u otros costos adicionales.

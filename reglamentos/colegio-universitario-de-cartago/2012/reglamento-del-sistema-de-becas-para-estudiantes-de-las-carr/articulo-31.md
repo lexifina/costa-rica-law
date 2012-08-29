@@ -1,0 +1,1 @@
+Artículo 31.—La definición de los montos de las ayudas económicas extraordinarias a otorgar, corresponderá al Departamento de Bienestar Estudiantil en consulta con la Dirección Administrativa Financiera. El monto dependerá del límite de presupuesto que se asigne para este fin.

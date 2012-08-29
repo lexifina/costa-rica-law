@@ -1,0 +1,1 @@
+Artículo 30.—Las solicitudes de ayuda extraordinaria serán valoradas por un profesional en Trabajo Social del Departamento de Bienestar Estudiantil y Calidad de Vida, en consulta con la Jefatura de Bienestar Estudiantil.

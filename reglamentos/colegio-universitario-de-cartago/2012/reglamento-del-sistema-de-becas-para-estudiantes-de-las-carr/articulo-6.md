@@ -1,0 +1,1 @@
+Artículo 6º—Las becas socioeconómicas no cubrirán los cargos administrativos adicionales correspondientes a: a) Pago de matrícula general; b) Cuota de Bienestar Estudiantil y Calidad de Vida; c) Pago por uso de laboratorios y daños ocasionados en éstos; d) Pago de material informativo; e) Pago de licencias y cualquier otro arancel que en un futuro se establezca.

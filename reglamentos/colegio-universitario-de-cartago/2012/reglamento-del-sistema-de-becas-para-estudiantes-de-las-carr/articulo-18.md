@@ -1,0 +1,1 @@
+Artículo 18.—Todo estudiante interesado en recibir ayuda económica extraordinaria debe presentar ante el Departamento de Bienestar Estudiantil y Calidad de Vida, el formulario de solicitud y demás documentación que justifique su petición. Dicha valoración la realizará un profesional en Trabajo Social
