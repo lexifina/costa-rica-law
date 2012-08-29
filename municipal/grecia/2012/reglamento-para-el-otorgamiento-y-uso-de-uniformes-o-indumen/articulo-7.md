@@ -1,0 +1,1 @@
+Artículo 7º—En caso de que un funcionario deba realizar una gira fuera de su lugar de trabajo, deberá usar el uniforme respectivo, excepto que por el tipo de gira se recomiende otro tipo de vestimenta, para ello la coordinación o jefatura responsable deberá informar al Departamento de Recursos Humanos el cambio correspondiente.

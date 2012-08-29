@@ -1,0 +1,1 @@
+Artículo 9º—No tendrán derecho del uniforme el funcionario que ocupe puestos en plazas de confianza, suplencias e interinos que tengan un período menor a los seis meses de manera consecutiva. Salvó que mediante justificación escrita de la Alcaldía Municipal se incluya algún funcionario que se encuentra nombrado en estas categorías, para dicho beneficio.

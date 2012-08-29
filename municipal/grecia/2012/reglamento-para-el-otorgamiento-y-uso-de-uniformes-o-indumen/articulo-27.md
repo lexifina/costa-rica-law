@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO
+Disposiciones finales
+Artículo 27.—Para cualquier efecto y en particular para la aplicación del presente Reglamento, se entenderá que los uniformes, calzado y cualquier otro equipo, herramienta, implementos o prenda, facilitado en fundamento en este Reglamento, tiene la condición de herramientas de trabajo, bajo ninguna circunstancia dejarán de ser propiedad de la Municipalidad de Grecia, concediéndose a quienes se les asigna dichos uniformes o implementos en derecho de uso y posesión a nombre de esta Municipalidad, por lo que serán responsables de su debido uso y conservación.

@@ -1,0 +1,1 @@
+Artículo 30.—Este Reglamento rige a partir de la fecha de su publicación, pero para su ejecución, corresponde a la Alcaldía, distribuir un ejemplar, físico o electrónico, del mismo a cada trabajador de la Institución, por lo menos con quince días de anticipación, a su aplicación.

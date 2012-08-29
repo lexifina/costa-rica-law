@@ -1,0 +1,1 @@
+Artículo 16.—Todo trabajador, deberá cumplir con las medidas de seguridad correspondientes; para lo cual la Municipalidad brindará los equipos de protección que se consideren necesarios de acuerdo al riesgo existente en las funciones que ejecuta.

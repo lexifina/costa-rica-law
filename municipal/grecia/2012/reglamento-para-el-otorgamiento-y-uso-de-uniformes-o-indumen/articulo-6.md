@@ -1,0 +1,1 @@
+Artículo 6º—En caso de que una funcionaria esté embarazada se le permitirá hacer los arreglos necesarios al uniforme. En el momento que el mismo le deje de ser funcional, debido a su estado se le excusará por el resto del embarazo siempre y cuando mantenga la decencia y la formalidad.
