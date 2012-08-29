@@ -14,3 +14,4 @@ Manual de Trámites del Ministerio de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-03 | la propia norma |
+| 2 | 2012-08-29 | Resolución 18 (2012-08-29) |

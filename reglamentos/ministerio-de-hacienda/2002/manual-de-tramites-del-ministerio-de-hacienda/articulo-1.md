@@ -356,6 +356,7 @@ Requisitos:
 6. Se le entregará una copia de la misma, con el sello, fecha y firma del funcionario que la recibió.
 7. Si falta algún requisito se le prevendrá su aportación en el plazo de 10 días hábiles. Si no indicó dirección para notificaciones se tendrá por notificado automáticamente 24 horas después de emitida la prevención. De no cumplir con la prevención en el plazo indicado, se declarará inadmisible la solicitud y se archivará el caso.
 Devolución de Saldos Acreedores las Solicitudes de Devolución
+(Nota: La sección titulada "Devolución de saldos acreedores las Solicitudes de Devolución", anterior fue sustituida por la resolución DGT-018 29 de agosto de 2012, denominada "Requisitos generales de las solicitudes de devolución de créditos fiscales, misma que puede ser consultada aquí)
 Oficina: Cualquier Administración Tributaria en todo el país
 Ubicación: Alajuela, Cartago, Grandes Contribuyentes, Guanacaste, Heredia, Limón, Puntarenas, San José, Zona Norte, Zona Sur
 Requisitos:
