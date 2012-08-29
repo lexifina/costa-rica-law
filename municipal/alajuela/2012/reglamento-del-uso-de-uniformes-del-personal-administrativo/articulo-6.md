@@ -1,0 +1,1 @@
+Artículo 6º—El uniforme debe estar siempre bien limpio, ordenado y aplanchado, debiendo en el caso de los hombres, usar siempre las faldas por dentro y sin mangas dobladas en caso de camisas de manga larga.

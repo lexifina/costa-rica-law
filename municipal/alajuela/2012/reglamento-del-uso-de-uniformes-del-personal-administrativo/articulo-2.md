@@ -1,0 +1,3 @@
+Artículo 2º—Uniforme del personal operativo. El uniforme del personal operativo, estará compuesto por las prendas elegidas y aprobadas por la administración municipal, según las funciones que cada Unidad desarrolle, así como por el carné de identificación.
+En el caso de los hombres utilizarán pantalón tipo cargo o jeans (pantalón de mezclilla color azul), camiseta tipo polo o camisa manga corta y/o larga, todo con el respectivo logo de la Municipalidad de Alajuela.
+Las mujeres, utilizarán pantalón tipo cargo, blusa o camiseta tipo polo, debidamente identificada con el logo de la Municipalidad de Alajuela, y según lo disponga el jefe de la unidad respectiva.

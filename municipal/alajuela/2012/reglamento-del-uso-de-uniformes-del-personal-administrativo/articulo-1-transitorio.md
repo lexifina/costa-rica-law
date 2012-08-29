@@ -1,0 +1,2 @@
+Transitorio único.—El presente Reglamento aplica en caso de que se entreguen zapatos, equipos y herramientas tal y como mascarillas, anteojos de protección, palas, limas, cuchillos, picos carretillas, entre otros.
+El presente Reglamento deroga el Reglamento del Uso de Uniforme del Personal Administrativo y Operativo de la Municipalidad de Alajuela publicado en el Diario Oficial La Gaceta N° 8 del día 13 de enero del 2010 y rige a partir de su publicación.

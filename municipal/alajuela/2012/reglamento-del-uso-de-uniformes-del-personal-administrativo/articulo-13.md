@@ -1,0 +1,5 @@
+Artículo 13.—En caso de que las prendas que conforman el uniforme requieran de una reparación, estas deberán ser autorizadas de previo por el Proceso de Recursos Humanos o por quien designe esta Dependencia.
+Para ello, el funcionario/a deberá presentar una solicitud por escrito ante este Departamento, quien valorará su procedencia o no, para lo cual se considerará los argumentos del funcionario, así como la disponibilidad presupuestaria.
+En caso de que se apruebe su solicitud, se le otorgará un plazo de dos días según se haya negociado con la empresa encargada de realizar las reparaciones, para que haga entrega de los uniformes. Una vez reparados, le serán devueltos inmediatamente para su uso.
+En caso de que se rechace la solicitud por cuestiones de presupuesto, el funcionario/a podrá esperar hasta la existencia de contenido presupuestario, o correr con los gastos que implica la reparación.
+Si se rechaza por otras razones, deberá el funcionario/a valorar si realiza las reparaciones, asumiendo el costo.

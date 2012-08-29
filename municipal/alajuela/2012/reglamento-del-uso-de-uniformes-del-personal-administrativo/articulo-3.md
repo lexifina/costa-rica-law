@@ -1,0 +1,2 @@
+Artículo 3º—Es obligación del personal municipal utilizar el uniforme completo que incluye el carné de identificación, dentro de la jornada laboral.
+El carné es el documento oficial que identifica al funcionario/a y será proporcionado por el Proceso de Recursos Humanos de la Municipalidad, constará de: carné o tarjeta de identificación con fotografía y el nombre de cada funcionario/a; porta carné transparente y un cordón con el nombre de Municipalidad de Alajuela.

@@ -1,0 +1,2 @@
+Artículo 12.—El cuidado y buen uso del uniforme es responsabilidad absoluta del funcionario/a, lo que significa que si por descuido u otra causa que le sea imputable, el uniforme se deteriora antes del año o cumplida su vida útil, su reparación o sustitución correrá en su totalidad por parte del funcionario/a.
+En caso de que concurran circunstancias no imputables a los funcionarios/as como razones de caso fortuito o fuerza mayor, la Administración deberá reponer al funcionario su uniforme.

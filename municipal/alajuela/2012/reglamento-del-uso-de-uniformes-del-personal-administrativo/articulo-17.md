@@ -1,0 +1,1 @@
+Artículo 17.—En caso de extravío del uniforme, el funcionario/a deberá coordinar directamente con el Proceso de Recursos Humanos y en caso de que la causa sea imputable a su persona, deberá correr con el costo de su reposición.
