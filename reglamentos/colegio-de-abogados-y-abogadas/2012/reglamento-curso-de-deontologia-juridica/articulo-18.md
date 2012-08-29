@@ -1,0 +1,1 @@
+Artículo 18.—Plazo para presentar el recurso de revisión. El plazo para plantear el recurso será de tres días hábiles posteriores a la realización de la prueba de ampliación y de haber recibo el correspondiente resultado.

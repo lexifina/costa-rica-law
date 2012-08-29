@@ -1,0 +1,1 @@
+Artículo 11.—Principios a observarse en las pruebas. Las pruebas deberán aplicarse cumpliendo los principios pedagógicos y andragógicos de validez, confiabilidad, equilibrio, transparencia y buena fe.

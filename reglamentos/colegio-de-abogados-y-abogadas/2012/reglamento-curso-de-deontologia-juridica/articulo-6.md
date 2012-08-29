@@ -1,0 +1,6 @@
+Artículo 6º—Asistencia, ausencias y llegadas tardías.
+1. La asistencia a las clases del Curso es obligatoria, por lo cual sólo podrán rendir la prueba final aquellos estudiantes que hayan cumplido con la asistencia mínima prevista. En la modalidad virtual se atiende a lo pertinente de acuerdo con los criterios del profesor debidamente fundamentados.
+2. Solo podrá justificarse una ausencia por causa de fuerza mayor o caso fortuito, que deberá ser demostrada de manera fehaciente con documentos o elementos probatorios apropiados al efecto.
+3. El trámite de justificación deberá realizarlo el estudiante ante la Dirección Académica dentro de las veinticuatro horas siguientes a la fecha en la que se produjo su ausencia.
+4. Una ausencia injustificada acarreará en forma automática la pérdida del Curso. En el curso presencial dos llegadas tardías superiores a veinte minutos, se computarán como una ausencia.
+5. Cuando una persona no pueda llevar el Curso que ha matriculado por motivos de caso fortuito o fuerza mayor, podrá solicitar de forma anticipada a la Dirección Académica que se le mantenga la matrícula para aplicarla en los cursos que se impartan en los seis meses inmediatos siguientes. Si el interesado no puede llevar el Curso en el plazo indicado, perderá el derecho a dicha matrícula.

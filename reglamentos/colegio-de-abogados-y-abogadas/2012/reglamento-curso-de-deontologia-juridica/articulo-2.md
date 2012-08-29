@@ -1,0 +1,1 @@
+Artículo 2º—Requisito de incorporación. Todas aquellas personas egresadas de la carrera de Derecho de Universidades debidamente reconocidas por el Consejo Nacional de Rectores (CONARE) y Consejo Nacional de Enseñanza Superior Privado (CONESUP) deberán cumplir y aprobar el Curso como requisito obligatorio para su incorporación al Colegio.

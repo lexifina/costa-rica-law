@@ -1,0 +1,1 @@
+Artículo 12.—Ausencia a la prueba. Cuando un candidato no se presente a la prueba reprobará el Curso, salvó justificación adecuada. En este caso tendrá derecho a realizar la prueba en la próxima fecha fijada sin pagar nuevamente el importe correspondiente.

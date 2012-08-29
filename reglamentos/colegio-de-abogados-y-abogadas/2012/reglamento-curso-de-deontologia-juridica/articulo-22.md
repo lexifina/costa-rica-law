@@ -1,0 +1,1 @@
+Artículo 22.—Notificación. Las resoluciones serán comunicadas a los estudiantes y a los profesores miembros del Tribunal, de conformidad con los medios que contempla la Ley de Citaciones y Notificaciones del Poder Judicial.
