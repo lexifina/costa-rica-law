@@ -1,0 +1,5 @@
+Artículo 2.- Modifíquese el párrafo tercero y adiciónese un párrafo cuarto al artículo 6 del Decreto 36916-MP-MBSF, para que se lea:
+Artículo 6.- Modalidades de prestación de servicios de cuido y desarrollo infantil.
+[…
+Para efectos del Instituto Mixto de Ayuda Social, podrán ser beneficiarias de subsidio estatal aquellas familias que se encuentren en los grupos de pobreza 1, 2 y 3 o condición de pobreza extrema (según línea de pobreza) de acuerdo a la clasificación de las familias obtenida mediante el Sistema de Información de la Población Objetivo (SIPO) del IMAS u otro similar que utilice esta institución. Las familias del grupo 4 que, de acuerdo al estudio del profesional ejecutor, presenten una situación de riesgo o de vulnerabilidad social que limita el desarrollo infantil de los niños y niñas, podrán recibir un subsidio total o parcial.
+Las demás instituciones que forman parte de la REDCUDI, establecerán sus propios esquemas de financiamiento, subsidios y selección de beneficiarios.
