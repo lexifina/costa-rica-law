@@ -1,1 +1,0 @@
-Artículo 10.—Expediente Administrativo. La solicitud de compra y su anexos dará inicio al expediente administrativo de la respectiva contratación, cuya conformación, actualización, custodia y numeración consecutiva será responsabilidad de la Proveeduría.
