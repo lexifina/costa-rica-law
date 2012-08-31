@@ -1,0 +1,2 @@
+Artículo 18 bis.—Las llegadas tardías injustificadas superiores a los treinta minutos se considerarán como media ausencia, se computarán según lo establecido en el artículo 19 párrafo segundo y se sancionarán conforme lo que establece el artículo 22, ambos del presente reglamento.
+(Así adicionado por el artículo 3° del decreto del Tribunal Supremo de Elecciones, N° 14-2012 del 31 de agosto del 2012)

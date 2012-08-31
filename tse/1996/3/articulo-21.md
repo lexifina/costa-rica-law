@@ -1,1 +1,2 @@
-Artículo 21.—Las ausencias por enfermedad se justificarán con la presentación del certificado médico correspondiente, extendido por la Caja Costarricense de Seguro Social, Instituto Nacional de Seguros o un médico particular.
+Artículo 21.—La ausencia por enfermedad se justificará con la presentación del certificado médico correspondiente, extendido por la Caja Costarricense del Seguro Social, Instituto Nacional de Seguros o un médico particular. Dicha justificación implicará el pago del subsidio respectivo únicamente cuando sea amparada en un documento emitido por la CCSS o el INS.
+(Así reformado por el artículo 3° del decreto del Tribunal Supremo de Elecciones, N° 14-2012 del 31 de agosto del 2012)
