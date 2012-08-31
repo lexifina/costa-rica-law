@@ -1,0 +1,2 @@
+Artículo 2°: Competencia del Ministerio de Seguridad Pública. El Ministerio de Seguridad Pública será competente para conocer, instruir, resolver, ordenar y ejecutar los desalojos administrativos que se le presenten de conformidad con el artículo anterior.
+Corresponderá al Viceministro de Seguridad Pública suscribir las resoluciones y actos que se emitan en materia de desalojos administrativos. Lo anterior sin perjuicio de las facultades del Ministro para avocarse al conocimiento de la gestión.

@@ -1,0 +1,5 @@
+Artículo 3°: Naturaleza sumarísima del trámite de desalojo administrativo. El trámite del
+desalojo administrativo es de carácter sumarísimo, y básicamente consistirá en lo siguiente:
+a) Presentada la solicitud de desalojo con la documentación probatoria pertinente, se valorará la misma y de estimarse procedente conforme las causales autorizadas por el ordenamiento jurídico, se emitirá la resolución en la que se ordena el desalojo correspondiente, concediendo un plazo de tres días hábiles para presentar recurso contra dicha orden de desalojo.
+b) La posibilidad de ejercer el derecho de defensa de la parte accionada, será coincidente con la posibilidad de presentar recurso ordinario único contra la orden de desalojo emitida, por lo que en esa misma oportunidad deberán aportarse las pruebas pertinentes.
+c) La interposición del recurso no suspenderá por si misma la ejecución del desalojo; no obstante, la Administración podrá suspender la ejecución a efectos de conocer y resolver el recurso interpuesto.

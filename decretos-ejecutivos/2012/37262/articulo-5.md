@@ -1,0 +1,1 @@
+Artículo 5°: Documentación probatoria. Junto con el escrito de solicitud de desalojo administrativo, necesariamente deberá adjuntarse la documentación pertinente que demuestre la titularidad sobre el bien y la legitimación del solicitante para actuar.

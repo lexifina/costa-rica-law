@@ -1,0 +1,4 @@
+Artículo 7°: De la Instrucción. Las gestiones que se presenten serán instruidas por el funcionario designado al efecto, quien valorará la solicitud de desalojo y la documentación adjunta, y elaborará el proyecto de resolución que se estime procedente.
+De considerarse necesario aclarar aspectos básicos de la gestión presentada, o si la solicitud tuviere omisiones de información o de documentos esenciales, podrá prevenirse al interesado, por única vez, para que en el plazo de diez días hábiles, aporte la información o documentación pertinente.
+Si la prevención no es cumplida en el tiempo y la forma debida, la gestión será resuelta conforme a Derecho.
+Si el desalojo administrativo se estimare procedente, se elaborará la resolución con que se acoge la solicitud presentada, ordenando el desalojo respectivo.

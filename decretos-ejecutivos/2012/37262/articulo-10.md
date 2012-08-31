@@ -1,0 +1,1 @@
+Artículo 10°: El recurso no suspende la ejecución del desalojo. La interposición del recurso no tendrá la virtud de suspender la ejecución del desalojo ordenado; sin embargo, el instructor podrá disponer la suspensión con la finalidad de que se conozca la impugnación presentada.

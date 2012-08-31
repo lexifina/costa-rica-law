@@ -1,0 +1,1 @@
+Artículo 9°: Ejercicio del derecho de defensa. Por la naturaleza sumarísima del trámite de desalojo administrativo, el momento oportuno para el ejercicio del derecho de defensa será con la presentación del recurso contra la resolución que se emita. Consecuentemente, junto con el escrito del recurso deberá adjuntarse la prueba que confirme lo alegado.
