@@ -17,3 +17,4 @@ Reforma el decreto que determina el impuesto por caja o envase de banano de 40 l
 | 2 | 2005-03-02 | Decreto Ejecutivo 32251 (2005-03-02) |
 | 3 | 2006-03-06 | Decreto Ejecutivo 32928 (2006-03-06) |
 | 4 | 2007-09-29 | Decreto Ejecutivo 34028 (2007-09-29) |
+| 5 | 2012-08-31 | Decreto Ejecutivo 37313 (2012-08-31) |
