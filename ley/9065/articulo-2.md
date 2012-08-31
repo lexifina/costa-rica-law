@@ -1,0 +1,2 @@
+Artículo 2º.— Modifícase el artículo 2º de la Ley No. 9019, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2012, publicada en el Alcance No. 106 a La Gaceta No. 244 de 20 de diciembre de 2011, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido el texto de la reforma debe ser consultado en el Alcance Digital N° 122 a La Gaceta N° 168 del 31 de agosto del 2012)
