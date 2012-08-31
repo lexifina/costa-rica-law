@@ -1,2 +1,0 @@
-Artículo 39.—Perfil del personal de la Auditoría General. El perfil del funcionario de la Auditoría General, reunirá profesionales y técnicos de las diversas disciplinas académicas y personales deseables para garantizar el éxito en la labor de control y fiscalización encomendada.
-La capacidad y formación del personal de la Auditoría General se orientará hacia el perfil que los faculte adecuadamente para el ejercicio y desempeño eficaz y eficiente de sus funciones, en los distintos ámbitos de acción en que se desenvuelven.

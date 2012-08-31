@@ -1,1 +1,0 @@
-Artículo 27.—Pericia y cuidado en las funciones del Auditor(a) y Subauditor(a) Generales. El Auditor(a) y Subauditor(a) deberán cumplir sus funciones con pericia y el debido cuidado profesional, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que el personal de Auditoría responda de igual manera.

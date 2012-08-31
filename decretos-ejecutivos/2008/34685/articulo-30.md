@@ -1,1 +1,0 @@
-Artículo 30.—Régimen Jurídico Laboral del Auditor(a) y Subauditor(a) Generales. El Auditor(a) y Subauditor(a) Generales, están exceptuados del Estatuto de Servicio Civil, de acuerdo con el artículo 5 del Estatuto del Servicio Civil.

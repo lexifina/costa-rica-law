@@ -1,4 +1,0 @@
-CAPÍTULO VIII
-De la atención de denuncias
-Artículo 54.—Principios generales y formas de presentación. La Auditoría General dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos incluidos dentro del ámbito de competencia institucional. En la admisión de denuncias se atenderán los principios de simplicidad, economía, eficacia y eficiencia.
-Las denuncias podrán presentarse en forma escrita o por cualquier otro medio y, excepcionalmente, de manera verbal cuando las circunstancias así lo exijan. Sólo serán atendidas denuncias anónimas, en el tanto aporten elementos de prueba suficientes o indiquen de manera precisa y perfectamente accesible, la forma de alcanzar la prueba correspondiente de manera tal que se encuentren soportadas en medios probatorios idóneos, que permitan iniciar la investigación respectiva; de lo contrario se procederá con su archivo.
