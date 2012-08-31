@@ -1,1 +1,0 @@
-Artículo 11.—Control del plan de inversión. Con el objeto de controlar el avance del plan de inversión, CORBANA, a través de la Dirección de Asistencia Técnica, hará cortes periódicos del mismo y los comparará con el avance material corroborado en el campo.
