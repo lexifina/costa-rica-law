@@ -1,0 +1,3 @@
+ARTÍCULO 5.- Se autoriza a la Caja Costarricense de Seguro Social, así como al Ministerio de Salud, para utilizar convenios o programas interinstitucionales con el fin de implementar o enriquecer los tratamientos psicológicos establecidos en esta Ley; así como, establecer acuerdos con las Universidades Públicas y Privadas, nacionales y extranjeras, para que estudiantes avanzado/as de Licenciatura, Maestría o Doctorado en Psicología, con la supervisión adecuada y de manera gratuita, apoyen sustancialmente dichos programas de atención psicológica.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los ocho días del mes de agosto del año dos mil doce.
