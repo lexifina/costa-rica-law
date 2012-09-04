@@ -61,3 +61,4 @@ Establece las Reservas Indígenas Chirripó, Guaymi de Coto Brus, La Estrella y 
 | 46 | 2001-10-26 | Decreto Ejecutivo 29957 (2001-10-26) |
 | 47 | 2001-10-26 | Decreto Ejecutivo 29960 (2001-10-26) |
 | 48 | 2010-09-01 | SINALEVI (sin norma nombrada) |
+| 49 | 2012-09-04 | Decreto Ejecutivo 37372 (2012-09-04) |
