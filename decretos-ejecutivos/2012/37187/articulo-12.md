@@ -1,0 +1,4 @@
+Artículo 12-. Con el fin de atender las funciones administrativas tales como el seguimiento y control de los planes operativos, las acciones directas, los acuerdos de coordinación y los demás aspectos propios del funcionamiento de la Comisión, ésta podrá nombrar un “Director Ejecutivo” de su propio seno o bien mediante colaboración interinstitucional. Este tendrá entre sus funciones:
+-El manejo administrativo de los diversos proyectos que promueva la Junta Directiva de la Comisión.
+-Conocer el contenido presupuestario y los planes de trabajo de las instituciones públicas en el manejo de la cuenca, mediante recolección y sistematización de información.
+-Conocer destinos específicos establecidos en decretos de vertidos, aprovechamiento y concesiones de agua, llevando a cabo consultas legales para el uso de estos cánones. Esto se comprobará mediante indicadores con análisis jurídicos.

@@ -1,0 +1,2 @@
+Artículo 7-. La Comisión será coordinada por el Director (a) del Área de Conservación Arenal-Tempisque o su representante, quién tendrá la facultad de convocar por iniciativa propia o a solicitud de cualquiera de los miembros de la Comisión a las asambleas respectivas. La Comisión también podrá ser convocada por al menos cinco de sus miembros, en forma conjunta.
+Las sesiones se llevarán a cabo con al menos ocho miembros presentes, las decisiones se tomarán por mayoría simple de votos presentes y en caso de empate el coordinador tendrá la facultad de ejercer doble voto.

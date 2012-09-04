@@ -1,0 +1,1 @@
+Articulo 5-. Los miembros de las instituciones estatales que conformen la Comisión, deberán ser designados por sus respectivos jerarcas, quienes por escrito lo deberán comunicar al coordinador de la Comisión.

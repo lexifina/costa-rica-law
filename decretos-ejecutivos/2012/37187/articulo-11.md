@@ -1,0 +1,1 @@
+Artículo 11-. Las funciones de la Junta Directiva de la Comisión consistirán en: controlar, planificar, evaluar y velar la puesta en marcha de las medidas necesarias para el correcto funcionamiento de los fines de la Comisión.

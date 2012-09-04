@@ -1,0 +1,1 @@
+Artículo 14-. Para el cumplimiento de sus objetivos, la Junta Directiva de la Comisión podrá solicitar la participación y colaboración de organismos internacionales ambientales y financieros, con asiento en el país o fuera de éste, para lo cual se deberá guardar estricto apego a la legislación vigente en la materia.

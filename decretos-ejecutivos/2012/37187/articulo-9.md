@@ -1,0 +1,1 @@
+Artículo 9-. Para el cumplimiento de las funciones de coordinación, seguimiento, rendición y elaboración de informes de labores, crease la Junta Directiva de la Comisión, la cual contará con el apoyo de un Director Ejecutivo.
