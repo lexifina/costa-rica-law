@@ -1,0 +1,1 @@
+ARTÍCULO 4.- La Caja Costarricense de Seguro Social brindará a las personas referidas en el artículo 2 de la presente ley, las sesiones de psicoterapia, de tipo individual, o de trabajo terapéutico grupal, serán realizadas por una persona profesional con un grado mínimo de licenciatura en Psicología. La cantidad de sesiones de psicoterapia serán de ocho como mínimo.
