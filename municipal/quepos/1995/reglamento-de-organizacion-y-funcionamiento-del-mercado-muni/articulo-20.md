@@ -1,1 +1,0 @@
-Artículo 20.—En caso de daños o reparaciones en los servicios públicos del electricidad, agua u otros, los inquilinos están en la obligación de facilitar la entrada al puesto, a las operaciones municipales o de otras entidades para las labores respectivas.
