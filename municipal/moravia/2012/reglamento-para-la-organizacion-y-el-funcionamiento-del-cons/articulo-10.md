@@ -1,0 +1,1 @@
+Artículo 10.—Es atribución exclusiva del COLOSEVI, solicitar por escrito al Concejo Municipal, interponer ante la organización respectiva, el retiro y/o sustitución de su (s) representante (s) por incumplimiento en sus deberes, por deceso o por renuncia. Deberán elaborarse en una matriz de actividades con un cronograma.

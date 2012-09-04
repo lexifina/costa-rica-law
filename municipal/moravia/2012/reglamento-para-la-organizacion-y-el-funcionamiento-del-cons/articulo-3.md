@@ -1,0 +1,1 @@
+Artículo 3º—El COLOSEVI es un ente adscrito a la Municipalidad del cantón de Moravia, reconocido por el Consejo de Seguridad Vial; el cual se encarga de fiscalizar los gastos que se ejecuten con fondos provenientes de la Ley Nº 6324 de la Ley de Administración Vial, la Ley Nº 7331 ley de tránsito y otros que reciban para los fines específicos.

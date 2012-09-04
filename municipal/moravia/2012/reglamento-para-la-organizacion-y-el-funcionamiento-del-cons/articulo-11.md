@@ -1,0 +1,1 @@
+Artículo 11.—El Contador Municipal deberá certificar los recursos financieros para justificar el financiamiento del proyecto de conformidad con el Artículo 217 inciso b de la Ley de Tránsito por Vías Públicas y Terrestres.

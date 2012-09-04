@@ -1,0 +1,1 @@
+Artículo 7º—A criterio y por disposición del Concejo Municipal de Moravia, cuando lo considere pertinente, nombrará un representante adicional en la Junta Directiva del Consejo Local de Seguridad Vial que demuestre amplia experiencia en materia de seguridad vial o empeño en la consecución de los programas en mención.
