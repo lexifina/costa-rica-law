@@ -1,24 +1,4 @@
-Artículo 3º.- El Caserío Indígena de Matambú se localiza en la hoja cartográfica del Instituto Geográfico Nacional, escala 1/50.000, Matambú 3146 III.
-El caserío está delimitado por los puntos y coordenadas que se detallan a continuación:
-N 231260 E 382600 en río Momollejo y carretera a Matambú.
-N 231000 E 382125
-N 229475 E 383100
-N 228850 E 382700 en camino que conduce de La Mansión a Hojancha, continúa al Norte camino, hasta el punto de coordenadas.
-N 228450 E 381900
-N 229000 E 379900
-N 230875 E 378700
-N 231100 E 378150 Cerro Varillal (Zapotillo).
-N 231700 E 378450
-N 231700 E 378450
-N 233050 E 378500 Cerro Grande.
-N 233400 E 378375
-N 233900 E 378425 en río Potrero, sigue aguas abajo por la margen derecha hasta el punto N 233750 E 379350, continúa por el costado Sur del camino que conduce a Hondores, hasta N 233000 E 380000.
-N 233000 E 380325
-N 232400 E 380800
-N 232750 E 381825
-N 232625 E 382150
-N 232325 E 382450
-N 232450 E 382750
-Se continúa con rumbo SE, hasta la naciente de la quebrada Ojo de Agua, siguiendo por ésta aguas abajo hasta un punto N 232075 E 382125, en el camino que lleva a Matambú, al NE, a la carretera Nicoya-Mansión.
-Se sigue por el costado Oeste hasta el punto inicial de la presente descripción en río Momollejo.
-Área aproximada: 1 710 hectáreas.
+Artículo 3º—Los límites de la Reserva Indígena de Matambú se describen con las siguientes coordenadas referidas al sistema de proyección cartográfica oficial para Costa Rica CRTM05 y su datum asociado CR05:
+Se inicia partiendo del Vértice 1: N 1116831,67 E 346285,18, punto que se ubica en la intersección entre el Río Momollejo y la carretera que va de Matambú a Polvazales; Vértice 2: N 1116511,16 E 345800,48; Vértice 3: N 1114984,96 E 346774,26; Vértice 4: N 1114378,48 E 346385,31; continuando a la margen derecha del camino que conduce de La Mansión a Hojancha hasta el Vértice 5: N 1113960,05 E 345575,97; Vértice 6: N 1114512,78 E 343573,14; Vértice 7: N 1116389,27 E 342374,62; Vértice 8: N 1116614,82 E 341824,71, que se ubica en Cerro Varillal (Zapotillo), hasta el Vértice 9: N 1117214,68 E 342125,33; y se continúa por los siguientes vértices: Vértice 10: N 1118564,93 E 342176,61 que se ubica en Cerro Grande; Vértice 11: N 1118915,12 E 342051,91; Vértice 12: N 1119406,41 E 342101,51, punto que interseca el Río Potrero y sigue aguas abajo hasta el Vértice 13: N 1119292,51 E 343060,41, de ahí continúa por el margen derecho del camino que conduce a Hondores, hasta el Vértice 14: N 1118494,48 E 343609,35; continuando por los siguientes vértices: Vértice 15: N 1118513,23 E 344001,97; Vértice 16: N 1117912,46 E 344475,57, Vértice 17: N 1118261,80 E 345502,05; Vértice 18: N 1118136,47 E 345827,00, Vértice 19: N 1117836,13 E 346126,78, Vértice 20: N 1117960,88 E 346426,96, continuando por el Vértice 21: N 1117870,15 E 346505,41, siguiendo aguas abajo por la Quebrada Ojo de Agua, hasta el vértice 22: N 1117636,02 E 346849,29. De este punto se sigue por el margen derecho del camino que va de Polvazales a Matambú, hasta el vértice inicial de la presente descripción.
+El área de la Reserva Indígena de Matambú es de 1.623 Ha, 9989.38 metros cuadrados.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37372 del 4 de setiembre de 2012)

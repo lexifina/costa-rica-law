@@ -9,4 +9,5 @@ Que este núcleo tiene personalidad propia y forma una comunidad homogénea y pr
 Que Matambú ya tiene estatuto de "Reserva Indígena", pero sin límites definidos.
 Por tanto,
 DECRETAN:
-Artículo 1º.- Se establece el "Caserío Indígena de Matambú".
+Artículo 1º.- Se establece la Reserva Indígena de Matambú.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37372 del 4 de setiembre de 2012)

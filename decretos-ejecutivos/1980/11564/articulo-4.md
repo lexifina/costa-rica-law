@@ -1,1 +1,2 @@
-Artículo 4º.- La zona así delimitada en el artículo 3º corresponde a la zona de acción de la Asociación de Desarrollo Integral de Matambú, las zonas de acción de las Asociaciones de Desarrollo vecinas deberán ajustarse a estos límites.
+Artículo 4º—Dentro de los límites establecidos en el artículo anterior, la Asociación de Desarrollo Integral de Matambú, en su condición de órgano de gobierno y administración de la comunidad y del territorio, ejerce las funciones y competencias que le son reconocidas por el ordenamiento jurídico costarricense.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37372 del 4 de setiembre de 2012)

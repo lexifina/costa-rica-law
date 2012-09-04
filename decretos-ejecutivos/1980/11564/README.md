@@ -15,3 +15,4 @@ Establece Caserío Indígena de Matambú
 | --- | --- | --- |
 | 1 | 1980-06-18 | la propia norma |
 | 2 | 1980-06-18 | SINALEVI (sin norma nombrada) |
+| 3 | 2012-09-04 | Decreto Ejecutivo 37372 (2012-09-04) |
