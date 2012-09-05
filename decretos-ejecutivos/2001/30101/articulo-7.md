@@ -1,1 +1,1 @@
-Artículo 7°—Se autoriza a los órganos e instituciones representadas en la Comisión Ejecutiva, para que otorguen la ayuda material y técnica requerida para el funcionamiento de esta.
+Artículo 7°—(Mediante decreto ejecutivo N° 37342 del 5 de setiembre del 2012, se acordó disolver la Comisión Ejecutiva creada mediante la presente norma, de conformidad con el acuerdo tomado por el Consejo de Administración del Consejo de Vialidad, en sesión celebrada el 17 de setiembre del 2008, razón por la cual este artículo se deja sin efecto ni valor alguno)

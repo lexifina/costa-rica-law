@@ -1,7 +1,1 @@
-Artículo 3°—La Comisión Ejecutiva estará integrada por siete miembros, de la siguiente manera:
-a) El Viceministro de Obras Públicas y Transportes, quién la presidirá.
-b) El Viceministro de Ambiente y Energía.
-c) Un representante del Consejo Nacional de Vialidad, nombrado por el Consejo Director.
-d) El Viceministro de Ingresos del Ministerio de Hacienda o en defecto al Director de General de Hacienda.
-e) Un representante del Despacho del Ministro de Obras Públicas y Transportes.
-f) Dos representantes de la Embajada de la República de China.
+Artículo 3°—(Mediante decreto ejecutivo N° 37342 del 5 de setiembre del 2012, se acordó disolver la Comisión Ejecutiva creada mediante la presente norma, de conformidad con el acuerdo tomado por el Consejo de Administración del Consejo de Vialidad, en sesión celebrada el 17 de setiembre del 2008, razón por la cual este artículo se deja sin efecto ni valor alguno)

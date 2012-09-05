@@ -14,3 +14,4 @@ Se declara de interés nacional y de interés público el proyecto de construcci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-23 | la propia norma |
+| 2 | 2012-09-05 | Decreto Ejecutivo 37342 (2012-09-05) |

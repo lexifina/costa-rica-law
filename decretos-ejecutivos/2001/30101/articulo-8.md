@@ -1,2 +1,2 @@
-Artículo 8°—Se autoriza a los órganos y entidades de la Administración Pública para que colaboren, dentro de sus posibilidades materiales y de recursos humanos, con el desarrollo del Proyecto así como con las tareas de la Comisión Ejecutiva y de la Unidad Coordinadora establecidas en este Decreto.
+Artículo 8°—(Mediante decreto ejecutivo N° 37342 del 5 de setiembre del 2012, se acordó disolver la Comisión Ejecutiva creada mediante la presente norma, de conformidad con el acuerdo tomado por el Consejo de Administración del Consejo de Vialidad, en sesión celebrada el 17 de setiembre del 2008, razón por la cual este artículo se deja sin efecto ni valor alguno)
 Rige a partir de su publicación.
