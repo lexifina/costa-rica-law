@@ -1,0 +1,4 @@
+Artículo 7.- Exclusión del registro de participantes. Serán excluidos del registro, los participantes cuando se compruebe que posterior a su la inclusión en el registro, incumpla algunos de los requisitos establecidos en el artículo 8 del presente reglamento.
+Además procederá la exclusión del adjudicatario que no cumpla con las obligaciones adquiridas con el ICD, para la adquisición de los bienes obtenidos por medio del presente procedimiento.
+La comunicación de la exclusión del Registro la hará el ICD a través del medio que para tales efectos haya indicado cada participante en el formulario presentado. Esta decisión podrá ser recurrida por el participante, de acuerdo con lo establecido en el artículo 10 de este reglamento.
+El participante podrá, en cualquier momento, solicitar su exclusión del registro.

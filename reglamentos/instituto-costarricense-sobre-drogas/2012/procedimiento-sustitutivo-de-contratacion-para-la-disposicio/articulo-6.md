@@ -1,0 +1,3 @@
+Artículo 6.- Impugnación de la inadmisibilidad y la exclusión. Cabrá recurso de revocatoria o apelación, contra el acto que declare la inadmisibilidad del oferente en el registro de participantes.
+El recurso de revocatoria y apelación deberá presentarse en el plazo de tres días hábiles posteriores a la comunicación de inadmisibilidad. La revocatoria se debe presentar ante la Jefatura de la UAB y la apelación ante la Dirección General del ICD.
+La Administración resolverá los recursos dentro de los tres días hábiles siguientes a su conocimiento. En el caso de que se presente de manera simultánea los recursos de revocatoria y de apelación, se procederá a resolver en primera instancia el de revocatoria y posteriormente el de apelación.

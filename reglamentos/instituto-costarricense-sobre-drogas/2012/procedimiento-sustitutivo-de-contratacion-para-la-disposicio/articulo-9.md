@@ -1,0 +1,2 @@
+Artículo 9.- Decisión Inicial.- Una vez que se cuente con la aprobación de la Dirección General prevista en el artículo anterior, el Jefe de la UAB emitirá la decisión inicial del procedimiento sustitutivo de contratación.
+La decisión inicial deberá contener la forma de disposición autorizada, la descripción del objeto de la contratación, su estimación e indicación del encargado general del contrato.
