@@ -14,3 +14,4 @@ Reforma Resolución N° RCS-615-2009 del 18 de diciembre del 2009 en cuanto a la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-14 | la propia norma |
+| 2 | 2012-09-05 | Resolución 105 (2012-09-05) |

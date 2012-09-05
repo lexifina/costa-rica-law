@@ -1,4 +1,5 @@
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Mediante resolución RJD-105-2012 del 5 de setiembre del 2012, se acordó anular parcialmente la presente resolución únicamente en cuanto a la flexibilización de la banda horaria para la telefonía fija, quedando las tarifas para este servicio, bajo los términos establecidos en la resolución RCS-615-2009 del 18 de diciembre del 2009)
 RCS-061-2011.—Resolución del Consejo de la Superintendencia de Telecomunicaciones.—San José, a las 11:00 horas del 16 de marzo del 2011.
 “Flexibilización gradual de las bandas horarias aplicadas actualmente a los servicios de telefonía”. SUTEL-OT-060-2010.
 Resultando:
