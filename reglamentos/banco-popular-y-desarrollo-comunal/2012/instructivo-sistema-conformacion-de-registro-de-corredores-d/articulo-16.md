@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento para la promoción de venta de bienes inmuebles
+Artículo 16.—Objeto del procedimiento. El “Sistema de conformación de registro de corredores de bienes raíces para la venta nacional e internacional de bienes inmuebles transferidos al Banco Popular en pago de obligaciones ó adjudicados en remates judiciales”, regulado mediante este instructivo, pretende convertirse en un mecanismo ágil y efectivo para logar la venta de estos bienes inmuebles en el menor tiempo posible y de acuerdo con los plazos establecido en el artículo 72 de la Ley Orgánica del Sistema Bancario Nacional Nº 1644.
