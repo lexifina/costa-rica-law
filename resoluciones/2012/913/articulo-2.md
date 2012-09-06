@@ -1,0 +1,1 @@
+II. Establecer como criterio de resolución que a partir de la vigencia de este acto no se utilizarán más las “herramientas complementarias” ni ningún otro criterio de valoración de los resultados del modelo econométrico, para sustentar las tarifas en el servicio público de transporte remunerado de personas, modalidad autobús.
