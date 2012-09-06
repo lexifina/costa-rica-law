@@ -1,0 +1,4 @@
+Artículo 7º—Requisitos de Nombramiento: El (la) Contralor (a) de Servicios en Popular Pensiones deberá contar con los siguientes requisitos:
+a. Poseer 3 años de experiencia en puestos afines.
+b. Poseer como mínimo grado académico de Licenciatura en Administración de Empresas o carrera afín.
+c. Estar incorporado al colegio respectivo.

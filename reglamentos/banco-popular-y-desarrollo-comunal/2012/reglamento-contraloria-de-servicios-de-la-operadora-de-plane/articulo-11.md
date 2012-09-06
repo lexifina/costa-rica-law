@@ -1,0 +1,16 @@
+Artículo 11.—Presentación de inconformidades, denuncias ó sugerencias de los usuarios y clientes: La Contraloría de Servicios en su procedimiento denominado, “Gestión para la atención de Inconformidades”, publicado en la Intranet de Popular Pensiones en el apartado Sistema de Gestión; establece:
+a. Toda persona física o jurídica podrá interponer inconformidades, reclamos o denuncias respecto de los servicios prestados por la Operadora y sus colaboradores o bien por aquellos funcionarios del Banco Popular y de Desarrollo Comunal que ofrezcan productos de pensiones desde las plataformas del Banco, cuando se estime que afectan directa o indirectamente los servicios brindados.
+b. Las inconformidades, reclamos o denuncias deben presentarse por escrito y pueden ser interpuestas por los siguientes medios: fax, correo electrónico ó personalmente, ante la Contraloría de Servicios. Deberán incluir, al menos, los siguientes datos:
+1. Residencia y lugar para notificaciones
+2. Detalle de los hechos u omisiones denunciadas, con indicación de las personas y órganos involucrados en la inconformidad
+3. Aportar evidencias de la situación presentada en la prestación del servicio (cuando se requiera)
+4. Firma del usuario o cliente que presenta la inconformidad, reclamo o denuncia.
+5. Copia de cédula de identidad de la persona.
+c. Aquellas inconformidades cuya resolución involucre revelar información protegida, deberán ser autorizadas personalmente por el cliente o usuario por escrito.
+d. El denunciante podrá requerir reserva y secreto de su identidad, la que deberá ser guardada especialmente en aquellos casos en que considere que a raíz de las investigaciones, se pueda afectar la continuidad y atención de los servicios prestados al quejoso.
+e. La inconformidad o reclamo sometido a la Contraloría de Servicios deberá ser resuelto y notificado al cliente por el área en la cual se originó con copia a la Contraloría de Servicios, en un plazo de cinco días hábiles. En casos excepcionales y debidamente justificados se podrá ampliar dicho plazo a dos días y medio hábiles previa comunicación al cliente o usuario, en la dirección señalada por él para atender notificaciones.
+f. Si el área competente no resolviera lo correspondiente dentro del plazo indicado (cinco días hábiles ó la extensión de plazo de los dos días y medio hábiles) y no existe motivo razonado para ello, una vez informada la Contraloría de Servicios, deberá dejar constancia de tal situación en el expediente e informar de ello a la Gerencia General de la Operadora, para que esta tome las medidas que procedan con el fin de que se atienda la inconformidad interpuesta.
+g. En casos especiales a juicio de la Contraloría de Servicios, los colaboradores deberán atender los requerimientos o solicitudes de dicha Contraloría en un plazo no mayor a tres días hábiles contados a partir del recibido de la solicitud.
+El presente Reglamento fue aprobado por la Junta Directiva de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., en su sesión ordinaria Nº 377 del 26 de abril del 2012, por medio del acuerdo firme Nº 108, Artículo 5.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+21 de agosto del 2012.
