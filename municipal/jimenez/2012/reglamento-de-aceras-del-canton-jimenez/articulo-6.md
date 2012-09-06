@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad de Jiménez realizará las obras y servicios correspondientes cuando los propietarios de bienes inmuebles omitan el cumplimiento de los deberes a que hace referencia el artículo 75 del Código Municipal y por lo cual cobrará la tarifa y multa respectiva.

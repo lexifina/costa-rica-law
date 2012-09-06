@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad de Jiménez debe velar de oficio por el cumplimiento de las disposiciones de este Reglamento, iniciando el procedimiento sancionador aquellos casos en los cuales se detecte un infractor al Reglamento, para lo cual deberá cumplir con el debido proceso.
