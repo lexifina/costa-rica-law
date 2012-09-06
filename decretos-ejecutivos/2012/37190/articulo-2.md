@@ -1,1 +1,0 @@
-Artículo 2º— Derogatoria. Deróguese el Decreto Ejecutivo Nº 37048-H de fecha 5 de marzo del 2012, publicado en el Diario Oficial La Gaceta Nº 72 de fecha 13 de abril del 2012, a partir de la vigencia del presente decreto.
