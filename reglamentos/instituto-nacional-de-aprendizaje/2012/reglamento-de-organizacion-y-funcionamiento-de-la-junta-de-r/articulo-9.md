@@ -1,0 +1,2 @@
+Artículo 9º—Directorio. Los integrantes de la Junta elegirán de su seno a un presidente y a un secretario quienes durarán en sus cargos un período de seis meses. La designación de esos puestos será rotativa y alternativa entre ambas representaciones, de manera que cuando una de ellas ocupe la presidencia, corresponderá a la otra ocupar la secretaría y así sucesivamente.
+Transitorio: La designación del primer directorio se hará por azar, respetando el principio de alternabilidad mencionado.

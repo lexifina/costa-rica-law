@@ -1,0 +1,1 @@
+Artículo 3º—Naturaleza de la Junta de Relaciones Laborales. La Junta es un órgano permanente, bipartito y paritario, conformada por una delegación del SITRAINA otra del INA. Actuará con independencia de criterio y en equilibrio de los intereses de las partes que la integran.

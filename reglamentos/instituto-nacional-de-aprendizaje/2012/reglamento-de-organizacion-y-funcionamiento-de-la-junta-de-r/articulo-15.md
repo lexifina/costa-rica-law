@@ -1,0 +1,1 @@
+Artículo 15.—Quórum. La Junta se reunirá y sesionará válidamente con al menos dos representantes de cada una de las partes. Las ausencias de los miembros propietarios serán cubiertas por los miembros suplentes. Para efectos de la sustitución, solamente se requerirá memorial suscrito por quien ostenta la respectiva participación.

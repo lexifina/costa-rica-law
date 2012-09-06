@@ -1,0 +1,1 @@
+Artículo 6º—Período de nombramiento. Los miembros de la Junta durarán en sus cargos un año y podrán ser reelectos por períodos iguales y consecutivos. También podrán ser removidos en cualquier momento por la parte que los hubiera designado.

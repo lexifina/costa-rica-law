@@ -1,0 +1,1 @@
+Artículo 5º—Nombramiento. Los representantes del SITRAINA serán nombrados por la Junta Directiva de esa organización y los del INA, por el Presidente Ejecutivo, dentro del mes anterior a la fecha en que concluye el nombramiento de los anteriores, o desde la fecha en que sea requerida la sustitución de alguno de ellos.

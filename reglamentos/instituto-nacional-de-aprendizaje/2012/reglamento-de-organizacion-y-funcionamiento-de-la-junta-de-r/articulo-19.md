@@ -1,0 +1,3 @@
+Artículo 19.—Procedimiento general de intervención. Toda solicitud de intervención de la Junta bajo los supuestos señalados en el artículo 8 de este reglamento, deberá ser formulada por escrito. En la medida de lo posible, el gestionante aportará todos los elementos de prueba que considere pertinentes para apoyar su petición.
+La Junta actuará sometida estrictamente a su competencia y emitirá sus acuerdos o recomendaciones con base en la documentación aportada por los interesados o las pruebas que recabe; en cuya apreciación aplicará las reglas de la sana crítica.
+Cuando el asunto requiera de la evacuación de alguna prueba adicional, la Junta podrá designar de su seno a un integrante para que cumpla esa función.
