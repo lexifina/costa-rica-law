@@ -1,0 +1,1 @@
+Artículo 37.—Área para Desarrollo Futuro (FAD): Áreas reservadas para desarrollo futuro Para decidir si las FAD pueden ser o no utilizadas para desarrollo, es necesario revisar el plan general de uso de la tierra.

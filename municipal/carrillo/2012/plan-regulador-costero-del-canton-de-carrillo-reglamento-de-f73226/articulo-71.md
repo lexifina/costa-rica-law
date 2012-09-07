@@ -1,0 +1,1 @@
+Artículo 71.—Mantenimiento: La Municipalidad coordinará con las instancias que considere necesario –sean éstas públicas, privadas o comunales- el sistema para el mantenimiento e inspección de las áreas verdes, recreativas. Los parques o áreas verdes y recreativas deberán tener un basurero por cada 250 m2 y a menos de 50 metros del punto más alejado al basurero más próximo.

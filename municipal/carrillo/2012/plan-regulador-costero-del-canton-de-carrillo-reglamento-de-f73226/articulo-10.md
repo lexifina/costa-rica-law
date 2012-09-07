@@ -1,0 +1,1 @@
+Artículo 10.—Recursos: Procederán los recursos de revocatoria y apelación establecidos en el derecho administrativo y municipal vigentes contra todas y cada una de las resoluciones administrativas que dicte la administración en el ejercicio de la gestión del presente plan.

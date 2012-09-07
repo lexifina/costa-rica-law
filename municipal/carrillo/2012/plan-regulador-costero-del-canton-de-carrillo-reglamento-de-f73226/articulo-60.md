@@ -1,0 +1,1 @@
+Artículo 60.—Terminación de vías y estacionamientos: Todo camino de acceso, garajes, parqueo y entradas a las propiedades en ZCL, deberán incorporar barreras vegetativas que reduzcan el reflejo temporal de luz hacia el mar. Los garajes y parqueos deberán diseñarse de manera que las luces de vehículos no se dirijan ni vean hacia la playa.

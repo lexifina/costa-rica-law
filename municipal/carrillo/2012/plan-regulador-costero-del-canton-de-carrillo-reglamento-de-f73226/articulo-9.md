@@ -1,0 +1,1 @@
+Artículo 9º—Derechos y deberes de los concesionarios: Los derechos y deberes de los concesionarios se ejercerán de conformidad con lo establecido en el contrato respectivo, así como en las disposiciones vigentes del Ordenamiento Jurídico y las consignadas en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 77.—Tramitación: Corresponderá al departamento respectivo de la municipalidad el estudio detallado de la solicitud presentada y la evaluación del adecuado cumplimiento de los requisitos para cada caso en particular. La evaluación del cumplimiento de requisitos se hará en función de lo establecido por el marco jurídico vigente.

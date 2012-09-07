@@ -1,0 +1,1 @@
+Artículo 64.—Protección de la flora: Toda persona o entidad, pública o privada, por cuya cuenta se realicen obras que puedan afectar la integridad de árboles en la ZMT, deberá proteger su integridad o desarrollo. La inobservancia de este precepto será motivo para la suspensión de la obra por parte de la Municipalidad.

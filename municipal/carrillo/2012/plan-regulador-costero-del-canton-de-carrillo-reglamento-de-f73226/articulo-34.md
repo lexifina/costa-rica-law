@@ -1,0 +1,1 @@
+Artículo 34.—Áreas Núcleo para la Comunidad (CAN): Áreas en donde se deben preservar las instalaciones públicas y comerciales para los pobladores locales. Incluye la dotación de servicios públicos, seguridad, recreación y otros relacionados, necesarios para el funcionamiento de los poblados o comunidades locales.

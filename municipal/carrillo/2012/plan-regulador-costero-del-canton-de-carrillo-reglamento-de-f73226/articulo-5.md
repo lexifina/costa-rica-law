@@ -1,0 +1,1 @@
+Artículo 5º—Aplicación del Plan Regulador: La Administración y aplicación del Plan Regulador estará a cargo de las dependencias administrativas municipales relacionadas con la materia, bajo la supervisión y vigilancia del Instituto Nacional de Vivienda y Urbanismo y el Instituto Costarricense de Turismo, según lo establece la Ley 8506 que adiciona el 73 bis a la Ley 6043.

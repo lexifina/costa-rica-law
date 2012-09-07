@@ -1,0 +1,2 @@
+Artículo 57.—Alumbrado público y otras luces externas: El alumbrado público y las luces externas en las ZCL deberán colocarse por debajo del límite de altura generado por la barrera vegetativa, de forma tal que el reflejo de éstas no interfiera con los procesos naturales asociados a la anidación de tortugas.
+El cono lumínico de las farolas del alumbrado público existente deberá cubrirse hacia los laterales y hacia arriba, mediante canastos o envoltorios. En el caso de la instalación de nuevo alumbrado, éste deberá ser dirigido al peatón y carecer de emanaciones laterales.

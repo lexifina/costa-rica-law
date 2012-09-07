@@ -1,0 +1,1 @@
+Artículo 15.—Empleo de usos: El Plan Regulador podrá únicamente utilizar los usos establecidos en el artículo anterior. Sin embargo, en función de las particularidades del área a planificar podrá hacer uso omiso de alguno de éstos.

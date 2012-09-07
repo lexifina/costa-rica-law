@@ -1,0 +1,2 @@
+Artículo 4º—Vigencia y derogatorias: El Plan Regulador Costero es de acatamiento obligatorio para toda persona, sea esta física, pública o privada, nacional o extranjera, en todo el territorio de Zona Marítimo Terrestre del Cantón. Su aplicación debe hacerse en coordinación con el Plan Regulador Integral que abarca parte del área de ZMT del cantón.
+Este Plan deroga y sustituye todos y cada uno de los Planes vigentes a la fecha de promulgación del éste, que se localicen dentro del área del Cantón de Carrillo que aquí se regula.

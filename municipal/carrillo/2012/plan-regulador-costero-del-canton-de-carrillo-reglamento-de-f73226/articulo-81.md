@@ -1,0 +1,1 @@
+Artículo 81.—De las sociedades público privadas: Cuando los programas planificados así lo requieran, la Municipalidad podrá promover los mecanismos legalmente permitidos para la construcción de acuerdos público-privados para su ejecución.

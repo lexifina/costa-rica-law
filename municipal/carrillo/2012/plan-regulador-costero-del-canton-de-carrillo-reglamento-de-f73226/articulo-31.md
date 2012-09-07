@@ -1,0 +1,2 @@
+1.1.4. Descripción de usos
+Artículo 31.—Área Núcleo de Facilidades Turísticas (TAN): Se define como TAN el Centro de la zona turística, con servicios que faciliten el disfrute público del espacio turístico. Esta categoría se divide en tres subcategorías de regulación: a) TAN 1:donde se permitirá el desarrollo de servicios básicos, b) TAN 2: donde se promoverá el establecimiento de usos de esparcimiento público y c) TAN 3: para áreas designadas para usos comerciales.

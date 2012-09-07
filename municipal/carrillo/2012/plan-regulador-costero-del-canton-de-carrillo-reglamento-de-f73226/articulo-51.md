@@ -1,0 +1,1 @@
+Artículo 51.—Aplicación de retiros adicionales: En aquellas áreas donde existan diversos tipos de usos que compartan un mismo frente de vía o frente marino, se deberá aplicar el Retiro Anterior máximo para todos los usos, es decir 5 metros en los casos de que existan en la zona usos TAP, CAN, CBP, OAC.

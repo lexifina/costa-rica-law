@@ -1,0 +1,1 @@
+Artículo 54.—Densidad: Salvo en aquellos casos en que, por razones de Fragilidad Ambiental se imponga una limitante mayor, la densidad máxima en las ZCL se limitará al 40% del área incluyendo las calles, aceras, edificios y demás edificaciones.

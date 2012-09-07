@@ -1,0 +1,2 @@
+1.1.3. Gestión del plan regulador
+Artículo 22.—Gestión pública del Plan Regulador: Compete a la Municipalidad, en coordinación y consulta permanente con el ICT, la gestión efectiva del Plan Regulador de conformidad con las disposiciones de transparencia, diligencia y probidad establecidas en el ordenamiento jurídico costarricense. Corresponde a la Municipalidad velar por el debido cumplimiento de las disposiciones incluidas en el presente Reglamento, mediante la implementación de los mecanismos de inspección que considere pertinentes.

@@ -1,0 +1,1 @@
+Artículo 52.—Otros ajustes en aplicación de restricciones: Corresponderá a la municipalidad establecer, de modo autónomo o mediante la abrogación de disposiciones nacionales vigentes, las disposiciones técnicas correspondientes para la regulación efectiva de cualquier restricción constructiva que aquí se establezca.

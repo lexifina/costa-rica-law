@@ -1,0 +1,1 @@
+Artículo 36.—Área para vialidad (OAV) Esta área incluye las vías públicas de acceso que conectan la ZMT con el sistema vial del país, sea nacional o cantonal y la vías públicas que corren dentro de los 150 metros del área restringida de la ZMT.

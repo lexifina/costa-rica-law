@@ -1,0 +1,2 @@
+Artículo 30.—Disposiciones adicionales: Cuando sea pertinente construir pozos, éstos deberán cumplir con y basarse en estudios especializados y contar con la aprobación del Departamento de Aguas del MINAET.
+Aquellos lotes que tengan colindancias con ríos, quebradas, cárcavas o escorrentías permanentes, deberán de presentar el alineamiento de los mismos dado por la Dirección de Urbanismo del INVU antes de iniciar cualquier construcción.

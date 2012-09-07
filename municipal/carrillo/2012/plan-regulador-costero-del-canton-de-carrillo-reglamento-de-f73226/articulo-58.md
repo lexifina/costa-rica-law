@@ -1,0 +1,1 @@
+Artículo 58.—Iluminación residencial: En las ZCL se permite la regulación de la longitud de onda en la iluminación exterior. En las ZCL no se podrán otorgar permisos de construcción que incorporen luminarias que sobrepasen los 1300 lúmenes, según la Clasificación Internacional del Funcionamiento, de la Discapacidad y de la Salud de la Organización Mundial de la Salud.

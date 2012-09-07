@@ -1,0 +1,1 @@
+Artículo 59.—Rotulación: La municipalidad no podrá autorizar en las ZCL rotulación comercial con iluminación que esté orientada al mar. La rotulación comercial con iluminación que se permita no deberá superar los 2 metros de altura.

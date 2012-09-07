@@ -1,0 +1,1 @@
+Artículo 38.—Área para protección (PA): Áreas que debido a su condición actual (natural, histórica, arqueológica) represente una necesidad de protección en función de: la puesta en valor o conservación de atractivos turísticos, la seguridad de turistas y visitantes, mantenimiento de procesos ecológicos para la estabilidad de la dinámica costera.

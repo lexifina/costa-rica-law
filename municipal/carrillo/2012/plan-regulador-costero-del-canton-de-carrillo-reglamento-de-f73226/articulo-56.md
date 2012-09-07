@@ -1,0 +1,3 @@
+Artículo 56.—Limitantes por razones de iluminación: En las ZCL, la municipalidad deberá rechazar cualquier solicitud de permiso de construcción que incorpore estructuras que sobrepasen la altura máxima permitida, o que incorpore luces que se dirijan directamente en dirección al mar o hacia los manglares.
+Del mismo modo la municipalidad deberá rechazar cualquier solicitud de permiso de construcción que no incorpore ventanería que incorpore filtros de luz que reduzcan su paso en al menos un 95%, en aquellas ventanas que se planteen de frente al mar.
+La municipalidad condicionará el otorgamiento del respectivo permiso de construcción en zonas de anidación a la incorporación de barreras artificiales, tales como el sarán, durante el proceso de construcción de las obras.
