@@ -1,0 +1,1 @@
+Artículo 7º—Diseño básico de vías: Las vías en la ZMT que se incluye en el Plan Regulador deberán incorporar adecuadamente las características establecidas en el presente Reglamento –y en lo omiso aquí en la Ley General de Caminos Públicos y el Reglamento Nacional de Fraccionamientos y Urbanizaciones, y deberán estar amarrados a vías públicas existentes fuera de la ZMT.
