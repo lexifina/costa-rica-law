@@ -1,0 +1,3 @@
+ARTÍCULO 10.- Otras autorizaciones
+Los actos requeridos para formalizar las operaciones autorizadas en los artículos 1, 2 y 3 de esta ley, así como la inscripción de esos documentos estarán exentos del pago de cualesquiera impuestos, tasas, contribuciones o derechos.
+Asimismo, se autoriza al Ministerio de Hacienda a realizar pagos adicionales en caso de que por efecto del pago de cualesquiera impuestos, tasas, contribuciones, derechos o retenciones, los pagos destinados a atender las obligaciones resultantes de la emisión y colocación de los títulos autorizados por la presente ley resulte inferior a lo originalmente pactado con los inversionistas.

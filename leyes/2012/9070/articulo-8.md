@@ -1,0 +1,3 @@
+ARTÍCULO 8.- Justificación técnica de las operaciones autorizadas en esta ley
+Dentro de un mes posterior a la fecha de cierre de cada transacción, el Ministerio de Hacienda deberá enviar a la Comisión para el Control del Ingreso y el Gasto Públicos en la Asamblea Legislativa y a la Contraloría General de la República un informe detallado del proceso de colocación y/o reestructuración de la deuda y de sus costos, así como la justificación técnica de la tasa de interés pactada en función de las condiciones prevalecientes del mercado, donde se demuestren los ahorros y otros beneficios obtenidos en dicho proceso.
+La Contraloría General de la República como ente auxiliar de la Asamblea Legislativa coadyuvará en el análisis periódico de dichos informes.

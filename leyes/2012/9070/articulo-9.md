@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Utilización de los recursos
+Cuando el Poder Ejecutivo utilice los recursos para disminuir el monto de deuda interna se deberá disminuir el monto de la emisión de bonos de deuda interna autorizado en el presupuesto de la República para el año correspondiente, en el mismo monto en que coloque los títulos autorizados por esta ley. Para ello, mediante decreto, sustituirá los ingresos sin que pueda modificar el destino de los ingresos sustituidos aprobado en la ley de presupuesto del año respectivo, antes de publicar el decreto correspondiente.
