@@ -1,0 +1,1 @@
+Artículo 4º—Requisitos para la emisión de licencias: Corresponderá a la Municipalidad la definición, oficialización y publicación en el Diario Oficial La Gaceta, de conformidad con la Ley de Protección al ciudadano del Exceso de Requisitos y Trámites Administrativos.

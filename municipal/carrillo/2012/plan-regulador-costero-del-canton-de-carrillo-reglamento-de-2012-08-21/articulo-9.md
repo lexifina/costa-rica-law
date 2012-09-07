@@ -1,0 +1,2 @@
+Artículo 9º—Exenciones: Toda publicidad exterior que sirva para la promoción de establecimientos comerciales que cuenten con patente municipal debidamente otorgada estará exento de pago de canon de licencia. La exención del pago se otorgará únicamente al Concesionario que esté al día en el pago de sus obligaciones de patente.
+Estará exenta del pago de licencia igualmente toda la publicidad exterior que tenga fines públicos, tales como nomenclatura de vías, sitios públicos, atracciones turísticas o naturales y servicios públicos.

@@ -1,0 +1,1 @@
+Artículo 11.—Sitios de anidación de tortuga: La regulación de publicidad exterior en áreas de anidación de tortugas se regulara por las disposiciones específicas sobre sitios de anidación de tortugas contenidas en el Reglamento de Zonificación del presente plan regulador.

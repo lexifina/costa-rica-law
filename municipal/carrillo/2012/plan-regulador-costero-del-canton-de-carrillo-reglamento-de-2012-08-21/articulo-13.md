@@ -1,0 +1,1 @@
+Artículo 13.—Sanciones: La Municipalidad impondrá las sanciones que correspondan de conformidad con lo establecido en los artículos 33 de la Ley de Construcciones, 386 del Código Penal o 14 del Código Municipal, a las infracciones a este Reglamento.

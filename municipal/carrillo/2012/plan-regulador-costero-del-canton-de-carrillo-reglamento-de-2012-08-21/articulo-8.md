@@ -1,0 +1,1 @@
+Artículo 8º—Cálculo y definición del salario mínimo: El salario mínimo para el cálculo del canon por licencia se determinará una vez al año y equivaldrá al salario mínimo pagado por la Municipalidad al día 1 de Enero de cada año.
