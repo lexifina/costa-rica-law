@@ -1,0 +1,1 @@
+Artículo 2.- Deróguese el Transitorio IV del Decreto Ejecutivo N° 36948-MP-SP-JP-H-S, “Reglamento General sobre Legislación contra el Narcotráfico, Actividades Conexas, Legitimación de Capitales, Financiamiento al Terrorismo y Delincuencia Organizada”.
