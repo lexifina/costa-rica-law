@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Sarchí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-17 | la propia norma |
+| 2 | 2012-09-11 | Reglamento municipal 121 (2012-09-11) |
