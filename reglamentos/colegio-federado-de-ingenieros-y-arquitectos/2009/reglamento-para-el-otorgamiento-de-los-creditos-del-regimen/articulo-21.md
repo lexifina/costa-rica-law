@@ -1,2 +1,6 @@
-Artículo 21.—Del desembolso inicial de cada crédito aprobado serán deducidos los gastos de formalización correspondientes, así como los intereses del primer mes.
-El otorgamiento de los créditos caducará si no han sido formalizados a los treinta días de la fecha que el Régimen le asigne para la formalización.
+CAPÍTULO VIII
+Aprobación de créditos y desembolsos
+Artículo 21.—Una vez cumplidos los trámites correspondientes, los préstamos se aprobarán por tipo de crédito de conformidad con los siguientes parámetros:
+a) La disponibilidad financiera del Régimen, presupuestado en el Plan Anual de Inversiones.
+b) El orden numérico en que fueron presentadas las solicitudes.
+c) Siempre se le dará prioridad a los préstamos de auxilio.

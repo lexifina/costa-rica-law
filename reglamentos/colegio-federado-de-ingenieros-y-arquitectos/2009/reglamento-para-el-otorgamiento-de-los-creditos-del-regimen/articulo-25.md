@@ -1,8 +1,8 @@
-CAPÍTULO XII
-Clasificación de deudores
-Artículo 25.—Para efectos de otorgamiento y aprobación de créditos y de organización administrativa y control interno de pago, los deudores del Régimen serán clasificados de la siguiente manera:
-a. TIPO A Deudores de Riesgo Normal: Deudores que no presentaron problemas en el manejo de sus créditos anteriores con el Régimen de Mutualidad y otros entes financieros o nuevos solicitantes. Entrarán en esta clasificación aquellos deudores cuyos pagos están al día o presentan un atraso de hasta tres días.
-b. TIPO B Deudores con Problemas Transitorios: Son los que tuvieron atrasos constantes en sus créditos anteriores con el Régimen de Mutualidad y otros entes financieros e hicieron arreglos de pago y los cumplieron. A estos solicitantes se les pedirá al menos un fiador asalariado. En esta clasificación se encuentran aquellos deudores que estén o estuvieron en mora de 31 hasta 60 días. Se incluirán dentro de este grupo a los que por una única vez se les haya aplicado una gestión de cobro extrajudicial.
-c. TIPO C Deudores con Pérdida esperada: Deudores con serios problemas de pago anteriores con el Régimen de Mutualidad y otros entes financieros y que se les ha aplicado repetidamente gestiones de cobro extrajudicial. Únicamente podrán optar por un crédito ofreciendo garantía hipotecaria.
-d. TIPO D Deudores de Dudosa Recuperación: Son los deudores de cualquier entidad nacional o internacional, que llevados a cobro judicial hayan sido ejecutados mediante sentencia firme a pagar las sumas adeudadas. En estos casos, los interesados tendrán oportunidad de optar por un nuevo crédito, únicamente cuando haya transcurrido un plazo de 5 años desde la fecha en que se encuentre debidamente acreditada la cancelación de las deudas, quedando sujetos a lo establecido para deudores TIPO C.
-Aprobado en sesión de Junta Directiva General Nº 13-08/09-G. E. del 17 de febrero de 2009.
+CAPÍTULO XI
+Cancelación automática de deuda por fallecimiento
+Artículo 25.—Se establece un sistema de cancelación automática del crédito en caso de muerte del deudor, pagando una prima mensual que será establecida por la Junta Administradora.
+Para tener derecho a esta cancelación automática debe cumplirse con los siguientes requisitos:
+a) La causa de muerte no debe ser por enfermedad o causa preexistente a la suscripción del préstamo, debiendo presentarse una declaración jurada haciendo constar tales circunstancias. Si se comprueba la falsedad de la declaración se perderá el derecho, sin responsabilidad para el Régimen.
+b) No haber solicitado préstamos para gastos médicos personales que se encuentren sin cancelar en el momento del deceso.
+c) Estar al día con el pago de las cuotas de la colegiatura.
+d) Tener su operación al día. En caso de estar atrasado quedará a criterio de la Junta Administradora el análisis del caso.
