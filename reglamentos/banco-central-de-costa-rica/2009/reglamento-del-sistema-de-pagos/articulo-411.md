@@ -56,6 +56,7 @@ g) Billete mal clasificado (aplica a toda la remesa entregada a la Custodia Prin
 Mercado Electrónico de Numerario | 95.000 | 120 c/operación
 a) Entrega de numerario circulable (aplica al demandante – el oferente es el beneficiario) | | Tarifa fijada por cada entidad
 b) Billete mal clasificado en cualquier remesa entregada (aplica a la entidad que entrega la remesa) | | 1.200 c/ paquetón
+c) Entrega de numerario por parte del BCCR (paga la entidad demandante) (Así adicionado el punto anterior mediante sesión N° 5561-2012 del 12 de setiembre del 2012) | | Tarifa fijada por el BCCR, según la política de precios establecida para tal efecto en el artículo 247 de este Reglamento. (Así adicionado el punto anterior mediante sesión N° 5561-2012 del 12 de setiembre del 2012)
 f) Seguridad del Sistema de Pagos
 Servicio | Beneficiario
 Suscripción mensual | Otros conceptos
