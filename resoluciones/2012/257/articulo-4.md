@@ -1,0 +1,1 @@
+4º—Reiterar que en la interacción entre el sistema informático SIOPJ y el TICA, se validará la coincidencia del número de contenedor declarado en el manifiesto de carga de ingreso o salida con el declarado en el DUA, Declaraciones Únicas de Tránsito (DUT) o viajes.

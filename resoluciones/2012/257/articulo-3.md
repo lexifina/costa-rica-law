@@ -1,0 +1,1 @@
+3º—Reiterar la necesidad e importancia de dar inicio al viaje en DUAS de reexportación, exportación cuando exista, ya que de lo contrario el sistema no reportará la autorización de ingreso o salida al funcionario de JAPDEVA responsable del control de ingreso al puerto, cuando éste efectúe la consulta en el SIOPJ.
