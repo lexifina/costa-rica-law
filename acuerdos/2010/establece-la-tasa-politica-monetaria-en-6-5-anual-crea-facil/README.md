@@ -14,3 +14,4 @@ Establece la Tasa Política Monetaria en 6.5% anual, crea facilidad de depósito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-21 | la propia norma |
+| 2 | 2012-09-12 | Reglamento 5561 (2012-09-12) |

@@ -13,5 +13,5 @@ dispuso, por unanimidad y en firme:
 2. Crear una facilidad permanente de depósito a un día plazo en el Mercado Integrado de Liquidez, en la cual se captarán recursos mediante la colocación de Operaciones Diferidas de Liquidez y que estará permanentemente a disposición de los participantes de este mercado de negociación durante el horario bancario.
 3. Ubicar en 4,5% la tasa de interés bruta anual de la facilidad permanente de depósito a un día plazo del Banco Central de Costa Rica en el MIL.
 4. Ubicar en 3,42% la tasa de interés bruta anual de los depósitos a un día plazo (DON), para ser colocados por medio de Central Directo y Captación de Fondos (CAF).
-5. Permitir que los bancos comerciales, empresas financieras no bancarias y mutuales de ahorro y préstamo puedan constituir depósitos a un día plazo (DON), por medio de Central Directo y Captación de Fondos.
+5. (Derogado mediante sesión N° 5561-2012 del 12 de setiembre del 2012)
 Las resoluciones anteriores rigen a partir del 21 de octubre del 2010.
