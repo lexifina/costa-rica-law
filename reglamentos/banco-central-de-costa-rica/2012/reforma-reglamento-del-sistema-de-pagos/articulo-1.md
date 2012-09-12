@@ -1,0 +1,32 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 8 del acta de la sesión 5561- 2012, celebrada el 12 de setiembre del 2012,
+considerando que:
+a) El artículo 3 de la Ley Orgánica del Banco Central de Costa Rica establece que una de las funciones esenciales de la Institución es emitir el billete y la moneda, según las necesidades reales de la economía.
+b) Según el criterio legal de la Asesoría Jurídica del Banco Central, en oficio DAJ-215-2011 del 15 de julio del 2011, y de conformidad con el artículo 69 de la Ley Orgánica del Banco Central de Costa Rica, por ser un servicio propio y natural del Sistema de Pagos, es jurídicamente viable que el Banco Central establezca una tarifa por el servicio involucrado en la expedición de numerario a las entidades financieras.
+c) El hecho de que el Banco Central entregue numerario sin costo alguno a las entidades demandantes, mientras las oferentes mantengan en las Custodias Auxiliares de Numerario (CAN) volúmenes significativos con los cuales se podrían satisfacer las necesidades de los primeros, presiona la capacidad de espacio físico y el monto mantenido en las CAN de las entidades oferentes de efectivo, lo cual deriva en que la bóveda principal del Banco Central deba recibirles a éstos el numerario remanente y asumir los costos que eso implica, por un servicio que ya prestan de manera eficiente y efectiva estas últimas entidades.
+d) Dado lo expuesto en el literal c) anterior, establecer una tarifa por el servicio de suministro de numerario por parte de la bóveda principal del Banco Central, propicia un uso más eficiente del numerario mantenido en las Custodias Auxiliares, lo cual conduce a menores costos para proveer este servicio a la sociedad. En efecto, se aprovechan las mayores facilidades de movilización de efectivo con las cuales cuentan los bancos comerciales; además, se da un uso más eficiente a las importantes inversiones hechas a lo largo del tiempo por los bancos, principalmente en equipos para facilitar estos procesos. Un efecto colateral en la misma dirección es estimular que los agentes económicos se orienten al uso de otros medios de pago de menor costo y riesgo, como son los servicios ofrecidos por la plataforma SINPE y por las facilidades de transferencias electrónicas de fondos en el sistema bancario costarricense.
+e) El detalle de las unidades de medida utilizadas por el Banco Central para la colocación de efectivo en las entidades financieras, son las que se describen en la siguiente tabla:
+Tipo | Unidad de medida | Denominación | Piezas por unidad
+Billetes | Caja | Todas | 40.000.0
+| Bolsa | Todas | 10.000.0
+Monedas | Caja | ¢500.0 | 3.000.0
+¢100.0
+¢50.0 | 4.000.0
+¢25.0 | 5.000.0
+¢10.0 | 10.000.0
+¢5.0
+f) Aunque el Reglamento del Sistema de Pagos por medio del libro Mercado de Numerario detalla las generalidades operativas que se requieren para gestionar las negociaciones interbancarias de efectivo, tales condiciones deben complementarse con una estructura de precios por el servicio de suministro del efectivo que ponga en circulación el Banco Central, de manera que estimule y desarrolle en mayor medida las negociaciones bilaterales entre los bancos oferentes y demandantes de numerario.
+g) La plataforma del SINPE le permite al Banco Central desarrollar un mercado totalmente electrónico, propiciar cálculos y controles automáticos así como una baja interacción manual que reduce costos, riesgos operativos y discrecionalidades al fijar precios.
+h) Para estimular el desarrollo del Mercado de Numerario es necesario que en primera instancia las entidades logren colocar sus remanentes de efectivo, de manera que el Banco Central actúe como proveedor de última instancia.
+i) La estructura de tarifas debe basarse en observaciones históricas de un período razonable que, por un lado, evite distorsiones de los precios y, por otro, refleje adecuadamente necesidades estacionales, lo cual se puede lograr con observaciones de los tres últimos meses.
+j) Aún y cuando dos de las siete entidades financieras que respondieron la consulta formulada respecto a la tarifa que aplicaría el Banco Central por el servicio de suministro de numerario, proponen incrementar el porcentaje a aplicar para determinar el precio superior que cobrará el Banco Central, se considera pertinente iniciar el Servicio de modo que rija el porcentaje inicialmente propuesto y, en concordancia con el numeral anterior, observar el comportamiento histórico de la demanda de numerario al BCCR, para que con base en ello, definir posteriormente la necesidad de ajustar o no dicho porcentaje.
+dispuso en firme:
+Modificar el Reglamento del Sistema Nacional de Pagos Electrónicos (SINPE), en los términos que se indican a continuación:
+1. Modificar el artículo 247, del libro XXIII Mercado de Numerario (MEN), de forma que se lea de la siguiente manera:
+Artículo 247. Precios del BCCR. El Banco Central se regirá por los siguientes criterios para fijar
+el precio que cobrará por el servicio de suministro de numerario, teniendo como unidad de agrupamiento de referencia, la bolsa de billete y la caja de moneda:
+a) El Servicio MEN calculará diariamente el precio máximo y el promedio ponderado por denominación, cobrado en las ventas efectuadas entre las entidades financieras, durante los tres meses calendario anteriores a la fecha de cálculo. Cuando en ese periodo se registren menos de cinco días con operaciones negociadas, se ampliará hasta completar esa cantidad de días.
+b) Utilizando como referencia los resultados obtenidos, el Servicio MEN establecerá de manera automática dos precios, los cuales cobrará el Banco Central según los siguientes criterios:
+i. Precio superior: corresponde al precio máximo calculado más un 20%. El Banco Central aplicará este precio cada vez que en el Servicio MEN existan ofertas disponibles para la denominación deseada.
+ii. Precio inferior: corresponde al precio promedio ponderado. El Banco Central aplicará este precio cada vez que en el Servicio MEN no existan ofertas disponibles para la denominación deseada.
+c) Ante casos especiales o de fuerza mayor debidamente comprobados, que provoquen un retiro masivo de numerario del BCCR por parte de las entidades financieras, la Gerencia del BCCR podrá autorizar mediante resolución el retiro del efectivo sin costo alguno, debiendo en tal caso informar a la Junta Directiva en la sesión inmediata posterior al evento.
