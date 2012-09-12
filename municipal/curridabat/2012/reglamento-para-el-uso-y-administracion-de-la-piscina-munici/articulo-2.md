@@ -1,0 +1,1 @@
+Artículo 2º—El fin del uso de las piscinas según las normas de este Reglamento conduce fundamentalmente al mejor desenvolvimiento físico y mental de los miembros de la comunidad que conforma el cantón de Curridabat a través de actividades de natación.

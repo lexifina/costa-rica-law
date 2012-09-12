@@ -1,0 +1,1 @@
+Artículo 10.—Las pertenencias de los bañistas depositadas en el guardarropía serán inviolables. Sin embargo, queda bajo la responsabilidad del usuario, depositar objetos de valores de especial costo que pudieran ser sustraídos.

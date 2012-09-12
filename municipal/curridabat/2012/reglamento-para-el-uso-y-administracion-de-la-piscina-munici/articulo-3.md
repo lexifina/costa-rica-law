@@ -1,0 +1,1 @@
+Artículo 3º—Los habitantes del cantón de Curridabat podrán disfrutar de los beneficios de la piscina y de la actividad y servicio que en ella se desarrolle o se preste para el cumplimiento de sus fines.

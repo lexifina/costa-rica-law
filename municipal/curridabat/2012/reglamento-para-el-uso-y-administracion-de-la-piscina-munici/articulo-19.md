@@ -1,0 +1,1 @@
+Artículo 19.—El encargado o los encargados podrán, discrecionalmente negar a cualquier persona el ingreso a las instalaciones o hacerla salir de ellas, sin estar en alguna de las situaciones expresamente señaladas, si su presencia resulta inconveniente para el buen orden y prestación del servicio o del cumplimiento de los fines que rigen el uso de la piscina municipal.

@@ -1,0 +1,1 @@
+Artículo 13.—El servicio de misceláneos contará con los encargos de la limpieza adecuada de la piscina, vestidores, servicios higiénicos así como de un guarda de protección a usuarios e instalaciones.

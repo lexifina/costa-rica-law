@@ -1,0 +1,1 @@
+Artículo 5º—La administración de la instalación estará a cargo de la Alcaldía, la cual velará por el cumplimiento de los fines establecidos en este Reglamento así como de buen uso y mantenimiento en la piscina.

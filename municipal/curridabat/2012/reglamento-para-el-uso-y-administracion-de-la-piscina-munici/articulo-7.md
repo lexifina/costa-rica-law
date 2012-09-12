@@ -1,0 +1,1 @@
+Artículo 7º—El encargado administrativo velará por el cumplimiento de las disposiciones de este Reglamento y tomará las providencias necesarias para asegurar en la práctica la realización de los fines y el buen uso y mantenimiento de la piscina.

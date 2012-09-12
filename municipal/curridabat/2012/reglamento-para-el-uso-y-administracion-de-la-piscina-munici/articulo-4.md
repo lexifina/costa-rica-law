@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá a la Alcaldía, establecer los horarios de utilización de la piscina dentro del orden de los servicios y actividades se determinen en cumplimiento de los fines establecidos para la recreación y deporte.
