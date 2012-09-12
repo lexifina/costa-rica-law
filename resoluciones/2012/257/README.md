@@ -14,3 +14,4 @@ Mensaje TD DUA Versión 3.5.1 en lo relacionado con la descripción del formato 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-12 | la propia norma |
+| 2 | 2012-09-12 | Resolución 258 (2012-08-31) |
