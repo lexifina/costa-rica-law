@@ -1,0 +1,8 @@
+Artículo 11.—Función. La Auditoría es parte integrante y vital del Sistema de Control Interno del Banco Popular y de Desarrollo Comunal, debe mantener una oportuna y efectiva participación y coordinación con los demás componentes del sistema, a fin de que se alcance el objetivo que une a esos componentes, esto es, garantizar la legalidad y la eficiencia en los sistemas de control interno en el manejo de los fondos públicos.
+Tendrá como función principal la comprobación de la existencia, el cumplimiento, la suficiencia y la validez del sistema de control interno en aquellas áreas y programas sujetos a su estudio, competencia y fiscalización, proporcionando una garantía razonable de que la actuación del jerarca y el resto de la administración activa se realizan conforme al marco legal y a las sanas prácticas.
+Deberá prestar además un servicio de asesoría constructiva, advertencia y de protección a la administración activa del Banco, para que alcancen sus metas y objetivos con mayor eficiencia, economía y eficacia, proporcionándole información oportuna, análisis, evaluación, comentarios y recomendaciones pertinentes sobre las operaciones que examina, normalmente en forma posterior.
+Su valor agregado está directamente relacionado con mejorar la efectividad de la administración de riesgos, controles y procesos de dirección en la consecución de los objetivos de:
+a) Proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal.
+b) Exigir confiabilidad y oportunidad de la información.
+c) Garantizar eficiencia y eficacia de las operaciones.
+d) Cumplir con el ordenamiento jurídico y técnico.

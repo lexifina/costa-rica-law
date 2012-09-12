@@ -1,0 +1,9 @@
+Trámite de los informes de relación de hechos que emita
+la Auditoría Interna como producto de sus
+auditorías a Entes Privados
+Artículo 41.—Si el informe trata sobre asuntos que presumen el establecimiento de responsabilidades disciplinarias, civiles o penales, se regulará bajo los siguientes criterios:
+a) A estos informes les será aplicable lo que disponen los artículos 36, 37 y 38 de la LGCI.
+b) No se debe realizar la comunicación preliminar, lo que si es aplicable en el caso de los informes sobre asuntos de control interno.
+c) Cuando del informe de relación de hechos se deriven indicios de responsabilidad penal, el Auditor General deberá presentar la denuncia ante el Ministerio Público.
+d) En caso de determinarse responsabilidades de orden administrativo del ente privado al cual se ha transferido recursos del Banco, el Gerente General Corporativo, a partir del conocimiento del informe y del resultado del procedimiento administrativo efectuado, deberá tomar las medidas pertinentes con arreglo a los plazos establecidos y demás disposiciones del ordenamiento jurídico aplicable como se dispone en el inciso e) siguiente.
+e) De conformidad con lo establecido en el artículo 7 de la Ley Orgánica de la Contraloría General de la República, cuando el Banco otorgue un beneficio patrimonial gratuito o sin contraprestación alguna a favor de entes privados, con fundamento en una autorización legal genérica, está facultado para suspender o revocar las transferencias o el beneficio concedido según la gravedad de la falta cometida, cuando compruebe que dicho ente se ha apartado de los fines para los cuales se otorgan aquellos, así como, aplicar la sanción correspondiente, conforme lo establecido en el artículo 4 de la LGCI y 7 de la Ley Orgánica de la Contraloría General de la República.

@@ -1,0 +1,4 @@
+Artículo 55.—Informe y plan de mejora. Los resultados de las evaluaciones internas y externas deben constar en un informe con el respectivo plan de mejoras y deberá ser comunicado oportunamente a la Junta Directiva Nacional y al personal de la Auditoría Interna. El Auditor General es responsable de dar seguimiento adecuado a la implementación del plan de mejora.
+Con excepción de las autoevaluaciones que vayan a ser objeto de validación independiente, el informe de la autoevaluación anual de calidad y los respectivos planes de mejora deben comunicarlos dentro del plazo máximo establecido en las directrices de la Contraloría General de la República.
+En el caso de que la autoevaluación anual vaya a ser objeto de una validación independiente, no será obligatorio realizar esta comunicación, sino hasta que se haya efectuado esa validación.
+En el caso de la comunicación del informe al jerarca, ésta podrá hacerse, al menos, por medio del informe periódico de labores.

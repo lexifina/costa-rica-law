@@ -1,0 +1,1 @@
+Artículo 54.—Evaluaciones externas. Deberán efectuarse al menos una vez cada cinco años, para lo cual podrá optar por la modalidad de una revisión externa de calidad o una autoevaluación de calidad con validación independiente, todo de conformidad con las directrices emitidas por el Órgano Contralor.

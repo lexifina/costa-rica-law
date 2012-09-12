@@ -1,0 +1,1 @@
+Artículo 17.—Jerarquía. La Auditoría estará bajo la responsabilidad y dirección del Auditor General, quien le corresponde dictar los lineamientos, políticas, directrices e instrucciones según la normativa legal y técnica.
