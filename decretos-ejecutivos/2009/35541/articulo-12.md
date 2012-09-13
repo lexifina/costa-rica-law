@@ -1,1 +1,0 @@
-Artículo 12.—Sobre los peritajes. En cualquier momento, el Tribunal, podrá ordenar la práctica de un dictamen pericial, como prueba para la resolución de cualquier asunto que así lo requiera. Para este fin, el Tribunal mantendrá un registro de profesionales en las diferentes ramas técnicas, relacionadas con la materia.

@@ -1,1 +1,0 @@
-Artículo 24.—Del Horario de Atención. Para los efectos de la prestación del servicio público, el Tribunal Administrativo de Transporte, ofrecerá un horario de atención al público de las ocho horas hasta las dieciséis horas en jornada continua.

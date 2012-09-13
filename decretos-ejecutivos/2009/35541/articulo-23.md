@@ -1,1 +1,0 @@
-Artículo 23.—Régimen Disciplinario. El personal del Tribunal Administrativo de Transporte estará sometido en todo lo relacionado con el régimen disciplinario, al ordenamiento jurídico administrativo vigente y los procedimientos preestablecidos.

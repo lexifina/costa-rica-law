@@ -1,1 +1,0 @@
-Artículo 7º—De la Vicepresidencia del Tribunal. Sin perjuicio de las demás funciones que le sean encargadas por el pleno del Tribunal, la Vicepresidencia, sustituirá las ausencias temporales del Presidente o Presidenta del Tribunal, ejerciendo todas las funciones propias del cargo.
