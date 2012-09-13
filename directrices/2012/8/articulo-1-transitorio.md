@@ -1,0 +1,1 @@
+Transitorio I.—El SENASA en un término de seis meses publicará los protocolos de vigilancia, los planes de contingencia y cualquier otro procedimiento relacionado con esta enfermedad, en la página Web del SENASA, los cuales serán de aplicación obligatoria en todo el país.

@@ -1,0 +1,4 @@
+Artículo 10.—Importación de animales vivos. El certificado sanitario de importación emitido por la Autoridad competente del país de origen de los bovinos deberá declarar que los animales:
+a) Están identificados por medio de un sistema de identificación permanente que facilite su rastreabilidad, según lo establece las normas y procedimientos de identificación y registro del ganado bovino y bufalino importado a Costa Rica.
+b) Provienen de un país que prohíbe expresamente la alimentación de rumiantes con harinas de carne y hueso o chicharrones derivados de rumiantes y que demuestre que la prohibición entró en vigor antes del nacimiento de los animales;
+c) Cumplen con los requisitos de importación establecidos por el SENASA en función de la categoría de riesgo de EEB del país, zona o compartimento de origen.

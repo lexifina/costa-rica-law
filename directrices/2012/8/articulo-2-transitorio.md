@@ -1,0 +1,1 @@
+Transitorio II.—Para la implementación de la obligación establecida en el párrafo primero del artículo 8º anterior, se establece un plazo de seis (6) meses contados a partir de la publicación de la presente Directriz.

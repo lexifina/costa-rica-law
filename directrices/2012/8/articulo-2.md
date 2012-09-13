@@ -1,0 +1,2 @@
+Artículo 2º—Utilización del Material Específico de Riesgo. Se prohibe la utilización de MER para la elaboración de productos o ingredientes destinados al consumo humano, la alimentación de animales, la preparación de fertilizantes, productos cosméticos, farmacéuticos y biológicos o de material médico.
+Se exceptúa del apartado anterior el uso de la columna vertebral para la elaboración de productos o ingredientes destinados al consumo humano, la alimentación de animales no rumiantes y la preparación de fertilizantes.

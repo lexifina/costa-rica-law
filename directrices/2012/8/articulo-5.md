@@ -1,0 +1,2 @@
+Artículo 5º—Aturdimiento y sacrificio. Se prohíben los métodos de aturdimiento de bovinos que inyecten aire o gas comprimido en la bóveda craneana así como el corte de médula espinal, que puedan producir la expansión del agente causal de la EEB.
+El SENASA podrá restringir el uso de otros métodos de aturdimiento y sacrificio, cuando estos puedan causar riesgo de expansión del agente causal de la EEB o bien autorizar otros cuando así lo recomiende la OIE.
