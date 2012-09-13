@@ -1,0 +1,3 @@
+Artículo Cuarto: Adiciónese el artículo 47 bis al Decreto Ejecutivo No 26831-MP “Reglamento Ley de Igualdad de Oportunidades para Personas con Discapacidad”, para que en lo sucesivo se lea de la siguiente manera:
+ARTÍCULO 47 Bis.- Adecuaciones curriculares no significativas.
+Las adecuaciones al currículo no significativas serán determinadas y aplicadas por los docentes del centro educativo. Así mismo, realizarán los ajustes pertinentes en la mediación pedagógica que consideren necesarios. Dado el carácter no significativo de estas adecuaciones, no se requerirá de la apertura de un expediente administrativo del estudiante que documente la aplicación de adecuaciones curriculares por ese concepto.
