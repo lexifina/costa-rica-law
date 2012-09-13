@@ -1,26 +1,18 @@
-14.—Lineamientos de control sobre conflictos de interés del régimen de pensión complementaria
-Del objeto
-Los presentes lineamientos tienen por objeto establecer las normas que regulan los posibles conflictos de interés por las transacciones con valores, de las actividades del gestor de portafolios, las que realicen los funcionarios, directivos, miembros de comités del Régimen de Pensión Complementaria y terceros o empresas del grupo económico al que pertenecen los fondos.
-Definición del Conflicto de Interés
-Existe Conflicto de Intereses cuando en el ejercicio de las labores dentro de una institución, sobreviene una contraposición entre los intereses propios y los de la Institución.
-Otra definición que clarifica aún más este concepto, la encontramos en la doctrina española: es aquella situación en que por acción u omisión, incurre un cargo o funcionario público que, estando en cuanto tal vinculado por un deber de servicio al interés general, asume el riesgo de abusar de su poder subordinando dicho interés general a su interés particular en forma de ánimo de lucro o en especie 2.
-De los sujetos de estos Lineamientos
-Estos lineamientos están dirigidos para su observancia y cumplimiento a los miembros del Órgano de Dirección (Junta Administrativa del Régimen de Pensiones Complementarias del ICE), miembros de los distintos Comités, Comité de Inversiones, Comité de Riesgos, Comité de Auditoría, u otros, miembros de la Unidad de Riesgo del ICE, Administradores de los Recursos y Gestores de Cartera.
-Lineamientos sobre Conflictos de Interés
-Son deberes de cada uno de los sujetos de estos Lineamientos:
-1. Estarán obligados a orientar su gestión a la satisfacción del interés del Régimen de Pensiones. Este deber se manifestará fundamentalmente, al identificar y atender las necesidades colectivas prioritarias, de manera planificada, regular, eficiente, continua y en condiciones de igualdad para todos los beneficiarios. Asimismo, al demostrar rectitud y buena fe en el ejercicio de las potestades que le confiere su cargo y asegurándose que las decisiones que adopte en cumplimiento de sus atribuciones, se ajustan a los objetivos propios del ente en el que se desempeña, administrando los recursos con apego a los principios de legalidad, eficacia, economía y eficiencia.
-2. Mantener objetividad técnica en sus decisiones de compra de valores.
-3. Tener un interés primordial en la promoción y preservación de los intereses de todos los beneficiarios del Régimen de Pensiones Complementarias.
-4. Si por motivo de relaciones familiares de consanguinidad o comerciales se pudiera estar ante un conflicto de interés, los sujetos de estos lineamientos deberán abstenerse de participar con su voto o con su decisión y deberán advertirlo en la respectiva instancia.
-5. Cada uno de los sujetos de estos Lineamientos, deberá aportar una declaración jurada haciendo constar que los respetará, y que de encontrarse en una situación que podría aparejar un posible conflicto de intereses, se abstendrá de participar en el seno del órgano al que pertenece como miembro, no votando y separándose del conocimiento del negocio, haciéndolo constar ante el propio órgano a que pertenece.
-De las prohibiciones a los sujetos de estos Lineamientos
-Se prohíbe a todos los sujetos de esta política lo siguiente:
-1. La realización de inversiones con prescindencia de alguno de los procedimientos establecidos en el ordenamiento jurídico.
-2. El suministro o empleo de la información confidencial de la cual tenga conocimiento en razón de su cargo y que confiera una situación de privilegio que derive un provecho indebido, de cualquier carácter, para sí o para terceros, o brinde una oportunidad de dañar, ilegítimamente, al Régimen de Pensiones del ICE.
-3. El concurso con particulares o empresas interesados para producir un determinado resultado en el cual tenga un interés, o el uso de maniobras o artificios conducentes a tal fin, al intervenir, por razón de su cargo.
-4. En asuntos en que tenga interés directo para sí o para algún miembro de su familia hasta sea éste su cónyuge, sus ascendientes o descendientes, hermanos, cuñados, tíos y sobrinos, suegros, yernos, padres o hijos adoptivos.
-5. En asuntos en que fuere, o haberlo sido en los doce meses anteriores, apoderado, representante o administrador de bienes de alguna de las empresas en que se deben realizar inversiones.
-De la responsabilidad de los sujetos de estos Lineamientos.
-La actuación de los funcionarios sujetos a estos Lineamientos, que violente el régimen de prohibiciones descrito en el artículo anterior, dará lugar a la responsabilidad que por ley corresponda, según el procedimiento establecido para esos efectos.
-De la difusión de la presente política
-El Régimen de Pensión Complementaria deberá difundir estos Lineamientos a nivel de toda la organización y además deberá introducirla en su página Web.
+14.—Seguimiento de las políticas de gobierno corporativo. Los miembros de la Junta Administrativa , el Director (a) Ejecutivo, Ejecutivos, miembros de los comités de apoyo y funcionarios del RPC, están obligados a cumplir las obligaciones establecidas en este Código y para dicho efecto se encuentran sujetos al régimen disciplinario existente en el ICE.
+Sin perjuicio, de otras obligaciones establecidas en el este Código, deben cumplir las siguientes:
+1. Informe anual de Gobierno Corporativo. La Junta Administrativa debe aprobar, remitir y publicar, por los medios que disponga la SUPEN , el informe anual de Gobierno Corporativo con corte al 31 de diciembre. Dicho informe será de carácter público y deberá enviarse como máximo el último día hábil de marzo de cada año. El contenido mínimo del Informe será el establecido en el anexo Nº 1 del Reglamento de Gobierno Corporativo.
+2. Reglamentos Internos y Libro de Actas. El Comité de Auditoría y cada Comité de Apoyo debe elaborar una propuesta de su reglamento de trabajo, el cual debe contener al menos las políticas y procedimientos para el cumplimiento de sus funciones, para la selección miembros del comité, esquema de votación, periodicidad de sus reuniones y los informes que se remitan a la Junta administrativa.
+Dichas propuestas se deben adecuar a las disposiciones establecidas en el marco jurídico que resulte aplicable y a lo dispuesto en el Reglamento de Gobierno Corporativo. Las modificaciones se deben aprobar por la Junta Administrativa y estar dispuestos para la SUPEN.
+En el caso del Comité de Auditoría las reuniones deben ser al menos cada tres meses, en las cuales pueden participar sin derecho a voto, el director Ejecutivo, el auditor interno, y los funcionarios que el Comité de Auditoría considere necesarios, así como el auditor externo cuando así lo requiera dicho comité.
+Los acuerdos adoptados en las reuniones del Comité de Auditoría y demás comités de apoyo deben constar en un Libro de Actas, el cual debe estar a disposición de la SUPEN.
+Este libro debe ser llevado en forma electrónica de acuerdo con las disposiciones que emita el Órgano Supervisor.
+3. Mecanismos de control. La Junta Administrativa cuenta para el seguimiento y control de la gestión del Régimen con lo siguiente:
+- Un sistema de control interno de toda la organización, evaluado anualmente por la Auditoria Interna.
+- Dictamen anual del Auditoria Interna.
+- Dictamen anual de Auditoria de Riesgos.
+- Informe semestral del Comité de Auditoria.
+- Informe Financiero Mensual presentado en las sesiones Junta Administrativa.
+- Informe de evaluación de riesgos del portafolio mensual.
+- Informes periódicos de Comités de Riesgos e Inversiones.
+- Plan anual operativo.
+- Informes de gestión de la Administración.
