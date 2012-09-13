@@ -1,2 +1,1 @@
-Artículo 10.—La Dirección de Navegación y Seguridad y el Núcleo Náutico Pesquero del Instituto Nacional de Aprendizaje, establecerán un calendario anual en forma racional y lógica, de los cuatro cursos requeridos para la obtención del certificado de zafarrancho y además de los cursos de actualización. Para inscribirse en tales cursos, los interesados observarán las normativas que sobre la materia dicte el Núcleo Náutico Pesquero del Instituto Nacional de Aprendizaje y la Dirección de Navegación y Seguridad.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N°. 31076 del 13 de marzo de 2003)
+Artículo 10.—(Derogado pro el artículo 1° del decreto ejecutivo N° 37343 del 13 de setiembre del 2012)
