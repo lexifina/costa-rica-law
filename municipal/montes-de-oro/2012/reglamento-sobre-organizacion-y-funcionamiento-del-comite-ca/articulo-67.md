@@ -1,0 +1,3 @@
+Articulo 67.De la presentación de los Planes de trabajo. En la segunda semana del mes de mayo de cada año, los Comités Comunales harán entrega al Comité Cantonal de Deportes y Recreación del documento que contenga los planes de trabajo para el año inmediato posterior, los cuales, serán aprobados por el Comité Cantonal de Deportes y Recreación o devueltos sin aprobar en el lapso de cinco días al Comité Comunal para la Formulación de una nueva propuesta o para corregir el presentado inicialmente, según corresponda. Será competencia del Comité Cantonal de Deportes y Recreación implementar los procedimientos y controles para la ejecución de dichos planes.
+CAPÍTULO XII
+De las instalaciones deportivas

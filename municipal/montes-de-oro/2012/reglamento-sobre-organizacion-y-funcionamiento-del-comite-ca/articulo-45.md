@@ -1,0 +1,1 @@
+Artículo 45.De la subordinación de las comisiones. Las comisiones como órganos subalternos, deben guiarse por las leyes, reglamentos, decretos y lineamientos generales, que regulan el funcionamiento del Comité Cantonal de Deportes y Recreación.

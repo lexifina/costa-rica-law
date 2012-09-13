@@ -1,0 +1,1 @@
+Artículo 11.Del domicilio Legal. El domicilio legal del Comité Cantonal de Deportes y Recreación será en un local ubicado en propiedad municipal para tales efectos, en el Distrito de Miramar, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo de la Junta Directiva.

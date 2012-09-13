@@ -1,0 +1,1 @@
+Artículo 12. De la responsabilidad. A los miembros del Comité Cantonal de Deportes y Recreación, se les aplicarán las normas de responsabilidad establecidas en los artículos 190 siguientes y concordantes de la Ley General de la Administración Pública.

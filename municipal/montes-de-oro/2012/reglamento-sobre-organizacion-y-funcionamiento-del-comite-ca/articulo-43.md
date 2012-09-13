@@ -1,0 +1,1 @@
+Artículo 43.Del plan de trabajo. Cada comisión debe elaborar y ejecutar su plan de trabajo, mismos que previamente deben ser aprobados por el Comité Cantonal de Deportes y Recreación, que le brindar? para su funcionamiento el soporte administrativo y económico en la medida de sus posibilidades.

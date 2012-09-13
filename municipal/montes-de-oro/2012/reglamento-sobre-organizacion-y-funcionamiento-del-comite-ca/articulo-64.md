@@ -1,0 +1,1 @@
+Artículo 64.De las prohibiciones. Los concejales, el alcalde, los vicealcaldes, tesorero, el auditor y el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, estén inhibidos para integrar estos comités.

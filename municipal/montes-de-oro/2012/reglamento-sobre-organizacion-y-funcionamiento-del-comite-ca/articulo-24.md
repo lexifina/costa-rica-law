@@ -1,0 +1,1 @@
+Artículo 24.De la validez de las sesiones. Para que las sesiones tengan validez deberán iniciarse a más tardar (15) minutos después de la hora señalada. En los casos de falta de quórum, se hará constar la asistencia de los presentes para efectos de computar la ausencia de los restantes miembros.

@@ -1,0 +1,1 @@
+Artículo 60.Del procedimiento. Para la aplicación de éstas sanciones se deberá seguir el debido proceso, y adicionalmente, de ser procedente, el Comité Cantonal de Deportes y Recreación podrá exigir la reparación integral del daño causado y el pago de los daños y perjuicios producidos por la actuación del infractor.

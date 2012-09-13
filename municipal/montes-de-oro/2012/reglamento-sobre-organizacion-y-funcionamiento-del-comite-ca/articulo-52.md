@@ -1,0 +1,1 @@
+Artículo 52.Del destino de los recursos. Los recursos del Comité Cantonal de Deportes y Recreación solamente se podrán invertir en obras, actividades y/o servicios, de interés deportivo y/o recreativo para el Cantón de Montes de Oro, as? como en la capacitación, promoción y participación de atletas, entrenadores, árbitros y dirigentes del Cantón.

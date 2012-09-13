@@ -1,0 +1,2 @@
+Artículo 17.De las funciones del Vicepresidente. Son funciones del Vicepresidente, las siguientes:
+Sustituir al Presidente en sus ausencias temporales, con las mismas atribuciones y obligaciones establecidas para éste, reguladas en el artículo anterior.

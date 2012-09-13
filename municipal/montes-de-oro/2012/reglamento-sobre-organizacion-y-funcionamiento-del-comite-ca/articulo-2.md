@@ -1,0 +1,1 @@
+Artículo 2° De la personería jurídica. El Comité Cantonal de Deportes y Recreación de conformidad con lo que establece el artículo 164 del Código Municipal, cuenta con personería jurídica instrumental, únicamente para el cumplimiento de los fines que la Ley le otorgue. La certificación de personería será extendida por la Secretaría del Concejo Municipal.

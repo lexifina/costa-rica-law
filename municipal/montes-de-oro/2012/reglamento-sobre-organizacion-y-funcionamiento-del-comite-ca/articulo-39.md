@@ -1,0 +1,1 @@
+Artículo 39.De la solicitud de los libros de actas. El Comité? Cantonal de Deportes y Recreación podrá solicitar en cualquier momento estos libros a las entidades que se encuentran bajo su responsabilidad, con la finalidad de verificar que estén en perfecto estado y debidamente al día. Debiendo hacer constar en un memorial sus observaciones.
