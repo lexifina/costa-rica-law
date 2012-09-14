@@ -1,4 +1,5 @@
 Nº 35027-C
+(Este decreto fue derogado por el artículo 6° del decreto ejecutivo N° 37389 del 14 de setiembre del 2012, "Crea el Viceministerio Administrativo del Ministerio de Cultura y Juventud")
 El PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE CULTURA Y JUVENTUD
 Con fundamento en los artículos 140, incisos 8) y 18) y 146 de la Constitución Política; 27, inciso 1º de la Ley General de la Administración Pública, Nº 6227 y en la Ley de Creación del Ministerio de Cultura y Juventud, Nº 4788 y,

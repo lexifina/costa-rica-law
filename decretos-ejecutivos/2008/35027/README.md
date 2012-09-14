@@ -14,3 +14,4 @@ Reglamento de Creación de la Dirección Ejecutiva del Ministerio de Cultura y J
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-10 | la propia norma |
+| 2 | 2012-09-14 | Decreto Ejecutivo 37389 (2012-09-14) |
