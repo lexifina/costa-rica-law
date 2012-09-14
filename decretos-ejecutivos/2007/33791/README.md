@@ -14,3 +14,4 @@ Reglamento para la Autorización, Reconocimiento y Compensación del Tiempo Extr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-06 | la propia norma |
+| 2 | 2012-09-14 | SINALEVI (sin norma nombrada) |
