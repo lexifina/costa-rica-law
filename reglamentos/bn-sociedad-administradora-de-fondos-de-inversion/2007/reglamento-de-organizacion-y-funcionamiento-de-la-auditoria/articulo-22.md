@@ -1,1 +1,2 @@
-Artículo 22.—El auditor interno tendrá la facultad de proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que conforme a la ley correspondan y en el ámbito de sus competencias. Sin perjuicio de la coordinación interna que al respecto deba darse, sin que ello implique limitación para la efectiva actuación de la auditoría interna.
+ARTÍCULO 22°
+La Auditoría Interna dará cumplimiento a los deberes establecidos en el artículo 32 de la Ley General del Control Interno así como a aquéllos que determine la normativa emitida por la Contraloría General de la República.

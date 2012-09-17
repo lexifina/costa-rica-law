@@ -1,1 +1,2 @@
-Artículo 35.—Cuando los informes de auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá de acuerdo con el artículo 36 de la Ley General de Control Interno. En caso de contener recomendaciones dirigidas al jerarca, el proceder se realizará de conformidad con el artículo 37 de esa Ley.
+ARTÍCULO 35°
+La auditoría interna durante el desarrollo de su trabajo considerará los siguientes aspectos para el procesamiento de la información: las cualidades de la información, análisis y evaluación, registros, acceso, custodia y supervisión del trabajo.

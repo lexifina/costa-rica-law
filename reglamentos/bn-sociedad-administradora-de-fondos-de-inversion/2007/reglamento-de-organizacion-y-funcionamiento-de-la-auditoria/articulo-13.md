@@ -1,1 +1,3 @@
-Artículo 13.—Los funcionarios de la Auditoría Interna ejercerán sus atribuciones con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la Administración activa. El auditor interno, dentro de sus obligaciones, deberá fijar medidas ante situaciones que comprometan tal independencia, objetividad y de conflicto de intereses.
+ARTÍCULO 13°
+El Auditor Interno deberá cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.
+El Auditor Interno podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública.

@@ -14,3 +14,4 @@ Reglamento de organización y Funcionamiento de la Auditoría Interna de BN Soci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-07 | la propia norma |
+| 2 | 2012-09-17 | Reglamento 221 (2012-09-17) |

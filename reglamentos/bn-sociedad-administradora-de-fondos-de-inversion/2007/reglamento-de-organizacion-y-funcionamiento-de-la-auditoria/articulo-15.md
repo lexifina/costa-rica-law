@@ -1,1 +1,5 @@
-Artículo 15.—El auditor interno tendrá la obligación de establecer y regular a lo interno de la auditoría, las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su unidad con los auditados.
+CAPÍTULO III
+ÁMBITO DE ACCION Y COMPETENCIAS
+ARTÍCULO 15°
+La Auditoría Interna ejercerá sus competencias en todos los órganos que integran la institución.
+La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción, actividad que se realizará anualmente cuando se elabora el plan de trabajo.

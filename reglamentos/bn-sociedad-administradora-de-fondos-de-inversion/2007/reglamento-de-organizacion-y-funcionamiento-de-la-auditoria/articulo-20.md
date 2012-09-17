@@ -1,1 +1,2 @@
-Artículo 20.—El auditor interno responderá por su gestión ante el jerarca y ante éste, presentará al menos, el informe de labores previsto en la Ley General de Control Interno.
+ARTÍCULO 20°
+El Auditor Interno responderá por su gestión ante el jerarca, a quien le presentará al menos una vez al año, el informe de labores previsto en el artículo 22 de la Ley General de Control Interno.

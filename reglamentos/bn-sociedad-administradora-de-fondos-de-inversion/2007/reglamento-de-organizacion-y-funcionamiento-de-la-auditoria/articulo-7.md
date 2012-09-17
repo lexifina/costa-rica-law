@@ -1,1 +1,4 @@
-Artículo 7º—El auditor interno dependerá orgánicamente de la Junta Directiva de BN Sociedad Administradora de Fondos de Inversión S. A., quien le establecerá las regulaciones de tipo administrativo que le serán aplicables y lo nombrará por tiempo indefinido y por jornada completa de conformidad con lo previsto en el numeral 31 de la Ley General de Control Interno Nº 8292 y de acuerdo con los lineamientos para la descripción de las funciones y requisitos de los cargos de auditor y subauditor internos emitidos por la Contraloría General de la República. Asimismo, dicho cargo deberá observar las respectivas funciones establecidas en los manuales institucionales de cargos y clases y los requisitos que en esa materia establezca la Sociedad, sólo podrá ser removido del cargo por justa causa, conforme con el artículo 15 de la Ley Orgánica de la Contraloría General de la República.
+ARTÍCULO 7°
+La Auditoría Interna estará bajo la responsabilidad del Auditor Interno, a quien le corresponde dictar los lineamientos, políticas, directrices e instrucciones según la normativa legal y técnica.
+ESTRUCTURA ORGANIZACIONAL DE LA AUDITORIA INTERNA
+[imagen]

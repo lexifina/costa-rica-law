@@ -1,1 +1,2 @@
-Artículo 9º—El auditor interno y sus subalternos no podrán pertenecer ni ejercer funciones de ninguna otra unidad administrativa de BN Sociedad Administradora de Fondos de Inversión S. A., y tampoco ser miembros de juntas directivas, comités, comisiones de trabajo o similares; con excepción del Comité de Auditoría Corporativo u otro que la función de auditoría así lo amerite.
+ARTICULO 9º
+El Auditor Interno participará en las sesiones de la Junta Directiva, cuando lo disponga este Órgano Colegiado. Su actuación será conforme a su responsabilidad de asesor, según la normativa y criterios establecidos por la Contraloría General de la República al respecto.

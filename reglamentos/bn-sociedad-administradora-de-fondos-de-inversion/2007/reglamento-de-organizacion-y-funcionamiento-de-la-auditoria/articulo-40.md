@@ -1,4 +1,3 @@
-CAPÍTULO IV
-Disposiciones finales
-Artículo 40.—Se deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de BN Sociedad Administradora de Fondos de Inversión S. A., publicado en el Diario Oficial La Gaceta Nº 174 del 11 de setiembre del 2006.
-Rige a partir de su publicación en el Diario Oficial La Gaceta.
+ARTÍCULO 40°
+La Auditoría Interna contará con la asesoría legal de la Dirección Jurídica del Banco Nacional de Costa Rica a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico.
+La Auditoría Interna podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que se realicen.

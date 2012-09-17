@@ -1,2 +1,4 @@
-Artículo 6º—La Auditoría Interna constituye un órgano asesor de muy alto nivel dentro de la estructura institucional y con dependencia orgánica de la Junta Directiva.
-La Auditoría Interna estará bajo la responsabilidad del auditor interno; dicho funcionario deberá reunir las condiciones de idoneidad profesional y moral requeridos para el cargo y deberá conocer las disposiciones legales que rigen en general a la Administración Pública y específicamente las de BN Sociedad Administradora de Fondos de Inversión S. A.
+CAPÍTULO II
+UBICACIÓN Y ESTRUCTURA ORGANIZATIVA
+ARTÍCULO 6°
+La Auditoría, conforme a sus competencias, es el órgano asesor principal del jerarca en materia de control interno. Se organizará para su funcionamiento conforme lo disponga el Auditor Interno, de conformidad con lo establecido en el artículo 23 de la LGCI y acorde con las disposiciones que emita la Contraloría General de la República, con el propósito de garantizar la administración eficaz, eficiente y económica de los recursos, en el logro de los objetivos y el cumplimiento de las obligaciones legales y técnicas.
