@@ -13,3 +13,4 @@ Acceso a los expedientes judiciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-09 | la propia norma |
+| 2 | 2012-09-17 | Circular 91 (2012-09-17) |
