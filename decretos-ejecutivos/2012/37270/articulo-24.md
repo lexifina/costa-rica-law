@@ -1,0 +1,2 @@
+Artículo 24.- Atención al Cliente y Contraloría de Servicios.
+Es la instancia asesora, depende orgánicamente del Director o Directora Nacional, es responsable de velar por la agilización y simplificación de los procesos y mecanismos que se desarrollan en la gestión de la Dirección Nacional de CEN-CINAI, así como la ejecución de los procedimientos, para satisfacer las necesidades y expectativas del cliente interno y externo según la legislación vigente.

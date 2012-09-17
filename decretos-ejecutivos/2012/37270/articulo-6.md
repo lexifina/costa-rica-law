@@ -1,0 +1,8 @@
+Artículo 6º- Niveles de gestión institucional.
+La estructura organizacional de la Dirección Nacional de CEN-CINAI se divide en tres niveles de gestión, que tienen las siguientes características:
+a) Nivel Nacional.
+Constituye el nivel político, estratégico, técnico y normativo de la Dirección Nacional de CEN-CINAI. Planifica, determina, formula y garantiza el cumplimiento de las políticas, reglamentos, normas, lineamientos, directrices, planes, programas, proyectos, procedimientos y sistemas que aseguran la implementación del marco estratégico institucional. Brinda supervisión capacitante al nivel regional y acompañamiento técnico, según corresponda, a los niveles regional y local.
+b) Nivel Regional.
+Constituye el nivel táctico-estratégico de la Dirección Nacional de CEN-CINAI y es el enlace entre el nivel nacional y el nivel local. Supervisa que las políticas, normas y procedimientos se cumplan en el nivel operativo. Apoya a las unidades organizativas del nivel nacional en la planificación, determinación, formulación y en la garantía del cumplimiento de las políticas, reglamentos, normas, lineamientos, directrices, planes, programas, proyectos, procedimientos y sistemas que aseguren la implementación del marco estratégico institucional. Brinda supervisión capacitante y acompañamiento al nivel local.
+c) Nivel Local.
+Constituye el nivel operativo de la Dirección Nacional de CEN-CINAI para la ejecución de las funciones de provisión de servicios de salud en nutrición y desarrollo para la población materno-infantil. Ejecuta directamente las actividades operativas, para cumplir con la prestación de servicios de la Dirección Nacional de CEN-CINAI.

@@ -1,0 +1,2 @@
+Artículo 41.- Funciones de coordinación de los Comités de CEN CINAI.
+A los Comités les corresponderá en conjunto con los y las funcionarias de los establecimientos, la coordinación con gobiernos locales, organizaciones no gubernamentales, entidades públicas y privadas, para la gestión de recursos, promoción de actividades en salud, nutrición preventiva y desarrollo integral en cada comunidad, para cumplir con los objetivos de la Dirección Nacional de CEN CINAI.

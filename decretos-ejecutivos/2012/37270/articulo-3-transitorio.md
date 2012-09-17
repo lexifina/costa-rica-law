@@ -1,0 +1,1 @@
+TRANSITORIO III.- Por una única vez en el momento de la constitución del Comité, los miembros de la Junta Directiva de las Asociaciones de Desarrollo Específicas Pro CEN-CINAI y Bienestar Comunal, podrán conformarse como miembros del Comité, sin realizar asamblea de vecinos y vecinas del establecimiento respectivo.

@@ -1,0 +1,2 @@
+Artículo 28.- Área Técnica.
+Es la Unidad responsable de articular, conducir y armonizar los contenidos técnicos interdisciplinarios. Vela y supervisa el cumplimento de la normativa y da soporte técnico al desarrollo de los procesos sustantivos en los niveles de gestión regional y local de la Dirección Nacional de CEN-CINAI. Analiza y evalúa la información que se genera de la implementación de procesos sustantivos para la toma de decisiones. Propone estrategias de cobertura y de mejoramiento de calidad de los servicios.

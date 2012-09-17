@@ -1,0 +1,2 @@
+Artículo 10.- Núcleo operativo-unidades/áreas.
+Las Unidades Financiera, Unidad Gestión Recursos Humanos, Unidad Proveeduría Institucional, Unidad Servicios Generales, Unidad Normalización y Asistencia Técnica, Unidad Investigación y Vigilancia del Crecimiento y Desarrollo, Unidad de Tecnologías de Información y Comunicación, Unidad Gestión Documental, Áreas de Gestión-Regionales, Áreas de información- Regionales, Áreas Técnicas-Regionales, Establecimientos CEN, CINAI, CENCE y CD conforman el núcleo operativo-Unidades/Áreas.

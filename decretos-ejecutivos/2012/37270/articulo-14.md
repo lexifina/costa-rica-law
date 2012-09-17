@@ -1,0 +1,2 @@
+Artículo 14.- Despacho del Director o Directora Nacional.
+El Despacho del Director o Directora de la Dirección Nacional de CEN-CINAI, es el órgano jerárquico superior de la Dirección Nacional de CEN-CINAI, está conformado por el Director o Directora Nacional y el Subdirector o Subdirectora y depende orgánicamente del Ministro o Ministra de Salud. Su objetivo consiste en emitir e implementar los lineamientos políticoestratégicos de la Dirección Nacional de CEN-CINAI.

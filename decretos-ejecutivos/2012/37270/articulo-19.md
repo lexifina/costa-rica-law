@@ -1,0 +1,10 @@
+Artículo 19.- Conformación de la Dirección de Gestión.
+La Dirección de Gestión está conformada por las siguientes unidades organizativas:
+a) Unidad Financiera.
+Es la Unidad encargada de coordinar, programar, formular, ejecutar, controlar y evaluar la gestión financiera institucional. Brinda apoyo técnico administrativo en la ejecución de planes, proyectos y actividades para la consecución de los objetivos de la Dirección Nacional de CEN-CINAI. Además, asesora y capacita en el manejo de recursos financieros en los niveles de gestión nacional, regional y local.
+b) Unidad Gestión de Recursos Humanos.
+Es la Unidad encargada de proponer, coordinar, supervisar y ejecutar las políticas de la Dirección Nacional de CEN-CINAI de la gestión de Recursos Humanos. Además debe ejecutar aquellas políticas que emiten los entes competentes especializados en la materia. Deberá gestionar las necesidades del capital humano en cantidad, calidad y oportunidad en los tres niveles de gestión para el cumplimiento de los objetivos institucionales y será el órgano de enlace con la Dirección General de Servicio Civil y otras instancias relacionadas con esta materia.
+c) Unidad de Proveeduría Institucional.
+Es la unidad encargada de garantizar a la Dirección Nacional de CEN-CINAI, la disponibilidad y accesibilidad continua de los bienes y servicios en los tres niveles de gestión, mediante la existencia de un ciclo integral que contempla la programación de contrataciones, mecanismos de adquisición, almacenamiento y distribución; así como el control de bienes y servicios y del monitoreo continuo del abastecimiento en las diferentes unidades organizativas de la Dirección Nacional de CEN-CINAI.
+d) Unidad de Servicios Generales.
+Es la Unidad encargada de planear, organizar, ejecutar, controlar, evaluar y coordinar, los servicios generales y de gestión inmobiliaria requeridos por las diferentes dependencias de los tres niveles de gestión de la Dirección Nacional de CEN-CINAI, para el cumplimiento de los objetivos institucionales.

@@ -1,0 +1,5 @@
+CAPÍTULO V
+De la Organización interna de las Direcciones Regionales de CEN-CINAI
+Artículo 26.- Direcciones Regionales de CEN CINAI.
+Las Direcciones Regionales de CEN-CINAI son unidades organizativas que responden a un modelo de desconcentración técnico, administrativo, geográfico y dependen jerárquicamente del Despacho de la Dirección Nacional de CEN-CINAI. Su objetivo es garantizar la calidad y la cobertura de los servicios de nutrición y desarrollo infantil a nivel regional, asegurando el cumplimiento de la normativa y los procesos sustantivos y administrativos, para que se ejecuten de manera articulada, eficaz y oportunamente, acorde con el Modelo Conceptual y Estratégico y lineamientos de la Dirección Nacional de CEN-CINAI.
+Les corresponde dirigir, conducir y articular las Áreas de la Dirección Regional de CEN-CINAI, equipos responsables de los procesos de planificación institucional, desarrollo organizacional, mercadotecnia, control interno, asesoría legal y atención al cliente interno y externo, así como las Oficinas Locales de CEN-CINAI.
