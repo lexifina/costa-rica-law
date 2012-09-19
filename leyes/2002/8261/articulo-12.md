@@ -7,3 +7,5 @@ e) Promover la investigación sobre temas y problemática de las personas jóven
 f) Estimular la cooperación en materia de asistencia técnica y económica, nacional o extranjera, que permita el desarrollo integral de las personas jóvenes.
 g) Coordinar acciones con las instituciones públicas y privadas, a cargo de programas para las personas jóvenes, para proporcionarles información y asesorarlas tanto sobre las garantías consagradas en esta Ley como sobre los derechos estatuídos en otras disposiciones a favor de las personas jóvenes.
 h) Impulsar la atención integral e interinstitucional de las personas jóvenes por parte de las entidades públicas y privadas y garantizar el funcionamiento adecuado de los programas y servicios destinados a esta población.
+i) Gestionar, por medio de los comités cantonales de la persona joven, la administración, custodia, conservación y protección de las casas cantonales de la juventud.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley de Creación de las Casas Cantonales de la Juventud, Ley N° 9051 del 9 de julio de 2012).

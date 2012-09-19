@@ -1,0 +1,2 @@
+Artículo 39.—Leyes referentes al Movimiento Nacional de Juventudes. A partir de la vigencia de esta Ley, en toda norma del ordenamiento jurídico nacional donde se mencione el Movimiento Nacional de Juventudes, deberá leerse el Consejo Nacional de Política Pública de la Persona Joven.
+(Así corrida su numeración por el artículo 1° de la Ley de Creación de las Casas Cantonales de la Juventud, Ley N° 9051 del 9 de julio de 2012, que lo traspasó del antiguo artículo 34 al 39)
