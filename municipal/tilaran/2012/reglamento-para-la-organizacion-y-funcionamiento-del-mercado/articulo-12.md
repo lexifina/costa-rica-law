@@ -1,0 +1,1 @@
+Artículo 12°—Solo serán reconocidos como arrendatario de puestos fijos aquellas personas con locales cerrados, que hayan firmado en contrato respectivo y que se encuentren al día con el valor del arrendamiento.
