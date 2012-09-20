@@ -1,0 +1,4 @@
+Artículo 23. Uso de medios electrónicos
+El Banco procurará desarrollar los procedimientos de contratación administrativa por medios electrónicos, ya sea utilizando su propia plataforma tecnológica o la que desarrollen otros entes u órganos públicos, siempre que la naturaleza de los actos lo permita y sea posible establecer con toda precisión, por medio de registros fidedignos la identificación del emisor y el receptor, la hora, la fecha y el contenido del mensaje, conformándose en tal caso un expediente electrónico.
+Asimismo deberá cumplirse con lo establecido en la Ley de certificados, firmas digitales y documentos electrónicos, Ley n.° 8454 y su reglamento, así como observarse las disposiciones que al efecto contiene el Reglamento a la Ley de contratación administrativa.
+En caso de utilizar medios electrónicos se deberá procurar que el sistema a utilizar realice la calificación de las ofertas de manera automática.

@@ -1,0 +1,13 @@
+Artículo 29. Casos en que procede el refrendo interno del contrato
+Se requerirá el refrendo o aprobación interna de los contratos administrativos en los siguientes casos:
+a. Cuando el contrato se derive de la aplicación del procedimiento de licitación pública y no requiera del refrendo de la Contraloría General de la República.
+b. Cuando el contrato se derive de la aplicación del procedimiento de licitación abreviada y el precio alcance el límite inferior vigente para la aplicación de de procedimiento.
+c. Cuando el contrato se derive de una contratación directa autorizada por la Contraloría General de la República y esta así lo disponga en la autorización respectiva.
+d. Cuando el contrato se derive de la aplicación de las excepciones de único oferente establecida en el artículo 2 de la Ley de contratación administrativa y de objetos que requieren seguridades calificadas, dispuesta en el inciso h) del
+artículo 131 del Reglamento a la Ley de contratación administrativa, ello en el
+tanto no esté sujeto a refrendo de la Contraloría General de la República y el
+precio contractual alcance el límite inferior vigente para la aplicación de la
+licitación abreviada.
+e. Cuando una de las partes sea un ente, empresa u órgano público cuya actividad contractual esté regida por principios de contratación y no por los procedimientos de selección del contratista previstos en la Ley de contratación administrativa y en su Reglamento, en el tanto no esté sujeto al refrendo de la Contraloría General de la República y el precio contractual alcance el límite inferior vigente para la aplicación de la licitación abreviada.
+Para los efectos anteriores la estimación del precio del contrato considerará únicamente su plazo original y no sus eventuales prórrogas.
+No se requerirá el refrendo interno en el caso de cesión de los derechos y obligaciones del contratista, cuando se trate de permisos de uso otorgados de conformidad con el artículo 154 de la Ley general de la administración pública, o bien de convenios que tengan por objeto transferencias del Banco a sujetos privados autorizados por la ley, o que se trate de simples convenios de cooperación celebrados por el Banco con órganos públicos o sujetos privados cuyo objeto no implique para el Banco el aprovisionamiento de bienes y servicios que deba realizarse mediante la promoción de procedimientos de contratación al amparo de la Ley de contratación administrativa y su Reglamento.

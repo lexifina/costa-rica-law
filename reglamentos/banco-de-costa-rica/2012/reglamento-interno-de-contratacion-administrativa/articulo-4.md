@@ -1,0 +1,3 @@
+I. Órganos competentes
+Artículo 4. Oficina de Compras y Pagos
+La Oficina de Compras y Pagos será la encargada de tramitar todos los procedimientos que el Banco promueva para la construcción de obras y la adquisición de los bienes y servicios que requiere en el cumplimiento de sus funciones. Para dicho propósito utilizará los procedimientos que contienen la Ley de contratación administrativa y su Reglamento, así como los procedimientos especiales autorizados por la Contraloría General de la República, además de las disposiciones administrativas y procedimientos que dicte la Administración. También, tendrá las demás funciones y atribuciones que le asigna este Reglamento, incluyendo el control sobre las garantías de participación rendidas y su eventual ejecución.

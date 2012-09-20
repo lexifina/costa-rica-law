@@ -1,0 +1,5 @@
+III. Requisitos previos de la contratación administrativa
+Artículo 16. Programa de adquisiciones institucional
+La Oficina de Compras y Pagos deberá publicar en enero de cada año un Programa de Adquisiciones Institucional, a partir de la información que le suministren las diferentes oficinas y órganos de la Institución, conforme a los lineamientos que establece el artículo 7 del Reglamento a la Ley de contratación administrativa.
+Las contrataciones previstas en el Programa de Adquisiciones Institucional deberán contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación administrativa en cuanto a inicio y adjudicación de procesos de adquisición de bienes y servicios con cargo a presupuestos futuros, según lo establecido en el artículo 9 del Reglamento a la Ley de contratación administrativa.
+Las contrataciones urgentes no previstas podrán ejecutarse sin necesidad de modificar el Programa de Adquisiciones Institucional, cuando se justifique en el cumplimiento de los fines públicos del Banco, debidamente acreditado en el expediente de la contratación que al efecto se tramite.

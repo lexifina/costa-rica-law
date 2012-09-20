@@ -1,0 +1,6 @@
+Artículo 2. Principios generales
+Todo procedimiento de contratación administrativa del Banco de Costa Rica deberá respetar los principios constitucionales y legales dispuestos en la Ley de contratación administrativa y su Reglamento, así como los siguientes principios:
+Los requisitos formales de identificación de las personas físicas o jurídicas y en general sus atestados, serán analizados e interpretados de manera que se permita la más amplia participación de potenciales oferentes.
+Todo proceso de contratación tendrá una etapa de saneamiento de requisitos formales, cumplida la cual se procederá al análisis de las ofertas en su contenido técnico y económico.
+Los requisitos técnicos y económicos que sean exigidos en los procesos de contratación del Banco serán siempre lo más general y neutral posible, con el propósito de permitir la más amplia participación de potenciales oferentes. La decisión de seleccionar una determinada tecnología deberá ser aprobada por el gerente de área y el director o subgerente a cargo.
+Los requisitos legales, técnicos y económicos deberán ser analizados e interpretados de manera que permitan cumplir los fines públicos encomendados al Banco; así como la selección del mejor bien o servicio al mejor precio y condiciones.

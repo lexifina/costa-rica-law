@@ -1,0 +1,2 @@
+Artículo 7. Otros servidores competentes
+La Gerencia General, las subgerencias, los directores y gerentes de división, los gerentes de área y empresarial, el jefe de la Oficina de Compras y Pagos, el jefe de la Oficina de Seguridad, el jefe de la Oficina de Diseño y Construcción, el jefe de la Oficina de Mantenimiento, los supervisores de Obras Civiles y Eléctricas, y el Secretario General de la Junta Directiva General, emitirán el acto final de adjudicación en los procedimientos, conforme a las disposiciones que contiene el artículo 11 del presente Reglamento.

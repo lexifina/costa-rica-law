@@ -1,0 +1,2 @@
+Artículo 36.Régimen jurídico aplicable
+El régimen jurídico aplicable a la función de refrendo de los contratos administrativos del Banco de Costa Rica es el establecido en la Ley Orgánica de la Contraloría General de la República, en la Ley de contratación administrativa y su Reglamento ejecutivo, así como en las disposiciones del Reglamento sobre el Refrendo de las contrataciones de la administración pública y de este Reglamento.

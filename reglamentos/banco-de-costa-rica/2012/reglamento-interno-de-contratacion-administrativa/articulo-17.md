@@ -1,0 +1,2 @@
+Artículo 17. Evaluación del Programa de Adquisiciones institucional
+Al finalizar cada período presupuestario la Oficina de Finanzas e Información Ejecutiva realizará una evaluación de la ejecución presupuestaria del Programa de Adquisiciones Institucional y formulará las recomendaciones que estime pertinentes. El informe de evaluación será dirigido al gerente general y, posteriormente, al Comité Corporativo Ejecutivo.
