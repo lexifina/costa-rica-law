@@ -1,9 +1,17 @@
-Artículo 12°.-Prácticas monopolísticas relativas.
-Sujeto a la comprobación de los supuestos referidos en los artículos 13, 14 y 15 de esta Ley, se consideran prácticas monopolísticas relativas, los actos, los contratos, los convenios, los arreglos o las combinaciones cuyo objeto o efecto sea o pueda ser el desplazamiento indebido de otros agentes del mercado, el impedimento sustancial de su acceso o el establecimiento de ventajas exclusivas en favor de una o varias personas, en los siguientes casos:
-a) La fijación, la imposición o el establecimiento de la distribución exclusiva de bienes o servicios, por razón del sujeto, la situación geográfica o por períodos de tiempo determinados, incluyendo la división, la distribución o la asignación de clientes o proveedores, entre agentes económicos que no sean competidores entre sí.
-b) La imposición de precio o las demás condiciones que debe observar un distribuidor o proveedor, al vender o distribuir bienes o prestar servicios.
+Artículo 12°.-Prácticas monopolísticas relativas
+Sujeto a la comprobación de los supuestos referidos en los artículos 13, 14 y 15 de esta ley, se consideran prácticas monopolísticas relativas los actos, los contratos, los convenios, los arreglos o las combinaciones cuyo objeto o efecto sea o pueda ser el desplazamiento indebido de otros agentes del mercado, el impedimento sustancial de su acceso o el establecimiento de ventajas exclusivas en favor de una o varias personas, en los siguientes casos:
+a) La fijación, la imposición o el establecimiento de la compra, venta o distribución exclusiva de bienes o servicios, por razón del sujeto, la situación geográfica o por períodos de tiempo determinados, incluyendo la división, la distribución o la asignación de clientes o proveedores, entre agentes económicos que no sean competidores entre sí.
+b) La imposición del precio o las demás condiciones que debe observar un distribuidor o proveedor, al vender o distribuir bienes o prestar servicios.
 c) La venta o la transacción condicionada a comprar, adquirir, vender o proporcionar otro bien o servicio adicional, normalmente distinto o distinguible, o sobre la reciprocidad.
-d) La venta o la transacción sujeta a la condición de no usar, adquirir, vender ni proporcionar los bienes o servicios disponibles y normalmente ofrecidos a terceros.
+d) La venta, la transacción o el otorgamiento de descuentos o beneficios comerciales, sujetos a la condición de no usar, adquirir, vender ni proporcionar los bienes o servicios disponibles y normalmente ofrecidos a terceros.
 e) La concertación entre varios agentes económicos o la invitación a ellos para ejercer presión contra algún cliente o proveedor, con el propósito de disuadirlo de una conducta determinada, aplicar represalias u obligarlo a actuar en un sentido específico.
-f) La producción o la comercialización de bienes y servicios a precios inferiores a su valor normal.
-g) En general, todo acto deliberado que induzca a la salida de competidores del mercado o evite su entrada.
+f) La producción o la comercialización de bienes y servicios a precios inferiores a su costo medio por períodos prolongados y cuando existan indicadores de que las pérdidas pueden ser recuperadas mediante aumentos futuros de precios, salvo el caso de las promociones o la introducción de productos nuevos a precios especiales.
+g) Rehusarse injustificadamente a vender bienes o servicios normalmente ofrecidos a terceros.
+h) La imposición de diferentes precios o diferentes condiciones de compra o venta para compradores o vendedores situados en igualdad de condiciones.
+i) Las acciones injustificadas para incrementar los costos u obstaculizar el proceso productivo de algún competidor.
+j) El condicionamiento, la imposición o cualquier acto tendiente a exigirle a un agente económico el cambio, la modificación o la sustitución de su marca comercial como requisito para comercializar sus bienes o servicios, así como exigirle la producción de bienes o servicios idénticos o similares a los ofrecidos por este con una marca impuesta distinta de la suya.
+k) En general, todo acto deliberado que induzca la salida de competidores del mercado o evite su entrada.
+l) El condicionamiento de la celebración de contratos a la aceptación de prestaciones suplementarias que, por su naturaleza o con arreglo a los usos de comercio, no guarden relación con el objeto de dichos contratos.
+m) Imponer, bajo la amenaza de ruptura de las relaciones comerciales, condiciones de pago u otras condiciones de tipo comerciales no reconocidas en las costumbres comerciales.
+Para determinar si estas prácticas son sancionables, la Comisión deberá analizar y pronunciarse sobre las pruebas que aporten las partes tendientes a demostrar los efectos procompetitivos o la mayor eficiencia en el mercado derivada de sus acciones.
+(Así reformado por el artículo 1° de la ley N° 9072 del 20 de setiembre de 2012)
