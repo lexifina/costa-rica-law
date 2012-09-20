@@ -1,0 +1,3 @@
+Sección 2: Organización
+Artículo 27.- Ubicación y Estructura organizativa
+La Auditoría Interna se ubica como órgano asesor de la Junta Directiva en el organigrama del COSEVI y está conformada por la Dirección de Auditoría a cargo del Auditor Interno o Auditora Interna y del Subauditor Interno o Subauditora Interna, así como por las siguientes áreas de trabajo: Área Auditoría Financiera, Área Auditoría Operativa, Área de Auditoría Técnica y Área Auditoría Administrativa. Las mismas deberán contar con personal que reúna las condiciones de idoneidad profesional, requeridas para ejercer sus funciones.

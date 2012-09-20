@@ -1,0 +1,2 @@
+Artículo 20.- Asignación de recursos
+La Junta Directiva, deberá asignar a la Auditoría Interna los recursos humanos, materiales, tecnológicos, de transporte, asesoría técnica, capacitación, instalaciones físicas y otros, necesarios y suficientes para que pueda cumplir su gestión, los cuales serán tramitados por el Auditor Interno o Auditora Interna, conforme a lo dispuesto en el artículo 27.- de la LGCI.

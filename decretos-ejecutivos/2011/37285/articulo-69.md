@@ -1,0 +1,2 @@
+Artículo 69.- Declaración de cumplimiento de las normas.
+En la fase de introducción del informe se indicara “realizado de acuerdo con las normas,” únicamente si el programa de mejoramiento de la calidad demuestran que la actividad de la Auditoría Interna cumple con las normas descritas en las Normas para el ejercicio de la Auditoría Interna en el Sector Público. No obstante, todo estudio debe realizarse usando de referencia estas normas, como herramienta de control de calidad del trabajo realizado.

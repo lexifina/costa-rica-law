@@ -1,0 +1,2 @@
+Artículo 103.- Relaciones cordiales y Comunicación efectiva
+En aras de mejorar el desempeño de la Auditoría Interna y de propiciar un mayor conocimiento de la función que se realiza, el Auditor Interno o Auditora Interna y su personal deben mantener relaciones cordiales y una efectiva comunicación en el ámbito de su competencia con la Junta Directiva, el personal del COSEVI, los diferentes órganos sujetos a su fiscalización, la CGR y las demás instituciones que correspondan.

@@ -1,0 +1,3 @@
+Artículo 14.- Participación en comisiones o grupos de trabajo
+El Auditor Interno o Auditora Interna, cuando así lo solicite la Junta Directiva podrá participar en comisiones o grupos de trabajo, exclusivamente en su calidad de asesor en asuntos de su competencia y no podrá ser de carácter permanente.
+Cuando se requiera la participación del personal de la Auditoría Interna en comisiones o grupos de trabajo de la Administración, la participación estará sujeta a la aprobación previa del Auditor Interno o Auditora Interna. Lo anterior en resguardo de la independencia y objetividad de la Auditoría Interna.

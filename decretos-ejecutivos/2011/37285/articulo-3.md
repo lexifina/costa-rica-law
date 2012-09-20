@@ -1,0 +1,2 @@
+Artículo 3.- Ámbito de Aplicación
+El presente reglamento es de aplicación obligatoria para la Auditoría Interna del COSEVI, para la Administración y las unidades ejecutoras de programas de seguridad vial, de conformidad con la Ley de Administración Vial N° 6324, en todos aquellos artículos que les sean aplicables, conforme lo dispuesto por la LGCI y las disposiciones de la Contraloría General de la República, al respecto.

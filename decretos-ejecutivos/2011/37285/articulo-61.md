@@ -1,0 +1,2 @@
+Artículo 61.- Comunicación de resultados de los servicios de auditoría
+Los hallazgos, las conclusiones y las recomendaciones de los estudios realizados por la Auditoría Interna, deberán comunicarse oficialmente, mediante informes, oficios o memorandos, para que se tomen las decisiones del caso. Dicha comunicación se dirigirá con esa finalidad a la Dirección Ejecutiva y la Junta Directiva quienes son los responsables de ordenar, en primera instancia, la implantación de las recomendaciones emitidas por la Auditoría Interna, dentro de los plazos establecidos.

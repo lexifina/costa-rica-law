@@ -1,0 +1,2 @@
+Artículo 106.- Independencia para comunicación e intercambio de información
+El Auditor Interno o Auditora Interna goza de total independencia para proveer e intercambiar información con la CGR, así como con otros entes y órganos de control externo que conforme a la ley así corresponda en el ámbito de sus competencias. Lo anterior sin perjuicio de la coordinación interna que deba darse, sin que ello implique limitación para la efectiva actuación de la Auditoría Interna.

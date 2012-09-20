@@ -1,0 +1,2 @@
+Artículo 8.- Visión
+Ser una unidad de asesoría, evaluación y fiscalización, motivada, capacitada y comprometida, que agregue valor al COSEVI y coopere al logro de los objetivos institucionales, brindando servicios de calidad, mediante la práctica de un enfoque objetivo, preventivo, concomitante, comprobatorio, sistemático y profesional, para fiscalizar y mejorar la efectividad de la administración del riesgo, de control y el proceso de dirección de la Administración Activa.

@@ -1,0 +1,4 @@
+Artículo 25.- Administración del recurso humano
+El Auditor Interno es el jefe de personal de los funcionarios de la Auditoría Interna y en esa condición ejercerá todas las funciones que le son propias en la administración de personal (planificar, organizar, coordinar, dirigir, supervisar, evaluar, motivar, informar decisiones y brindar apoyo de capacitación, entre otros).
+Para efectos de los nombramientos, remociones, sanciones, promociones, concesión de licencias y demás movimientos del personal, deberán contar con la autorización del Auditor Interno o Auditora Interna, todo de acuerdo con el marco jurídico que en la materia rige para el COSEVI y el artículo 24.- de la LGCI.
+En cuanto a las regulaciones de tipo administrativo de personal de la Auditoría Interna, deberá atenderse lo dispuesto en el artículo 24.- de la LGCI.

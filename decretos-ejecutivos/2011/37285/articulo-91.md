@@ -1,0 +1,2 @@
+Artículo 91.- Planteamiento de conflictos ante la Contraloría General de la República
+En caso de que no se llegue a un acuerdo entre el funcionario responsable de la implantación de las recomendaciones y la Auditoría Interna, el asunto lo resolverá la Junta Directiva y si fuera con ésta, sobre asuntos de absoluta relevancia que afecten la sana marcha de la Institución, se deberá recurrir a la CGR para que resuelva.

@@ -1,0 +1,2 @@
+Artículo 37.- Cualidades del personal
+La Auditoría Interna para el cumplimiento de sus funciones contará con el personal profesional y asistente necesario, el cual debe poseer suficiente conocimiento y experiencia sobre la actividad de la Auditoría Interna, sobre el funcionamiento del COSEVI y sobre la normativa jurídica y técnica pertinente, así como las políticas, procedimientos, prácticas y demás disposiciones administrativas que les sean aplicables, de modo que lo califiquen para ejercer en forma apropiada sus funciones.

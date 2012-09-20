@@ -1,0 +1,3 @@
+Artículo 64.- Confección de acta de discusión del borrador del informe
+El Auditor Interno o la Auditora Interna o el funcionario de la Auditoría Interna que realizó el estudio, debe confeccionar un acta de la discusión del borrador de informe o conferencia final, en la cual resumirá los asuntos más relevantes ocurridos en ella y fijará los compromisos asumidos.
+El acta será firmada por todos los asistentes a dicha conferencia. El acta deberá respetar el formato establecido para este efecto. Una vez concluida la reunión de discusión se sellará el acta con el sello de Auditoría Interna, y se entregará una copia a los participantes. El documento original quedará adjunto al informe discutido en el archivo dispuesto para este efecto.

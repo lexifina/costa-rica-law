@@ -1,0 +1,2 @@
+Artículo 26.- Plazas vacantes
+Las plazas vacantes de la Auditoría Interna deberán llenarse en un plazo máximo de tres meses, contado a partir del momento en que la plaza adquiera la condición de vacante. El plazo podrá prorrogarse por otros tres meses por razones debidamente acreditadas en el expediente que se confeccione para tal efecto. La disminución de plazas, de cualquier índole, deberá ser previamente autorizada por el Auditor Interno o Auditora Interna, lo anterior conforme lo dispone el artículo 28.- de la LGCI.

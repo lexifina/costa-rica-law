@@ -1,0 +1,2 @@
+Artículo 54.- Administración de la documentación
+El Auditor Interno o Auditora Interna debe definir, establecer y mantener actualizadas las políticas, procedimientos, y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna. El Manual de Políticas y Procedimientos de la Auditoría Interna establecerá las disposiciones para custodia y manejo del archivo de auditoría, el archivo permanente y de los asuntos de carácter confidencial, conforme lo definido por el artículo 6º de la LGCI y el artículo 8º de la Ley N° 8422.

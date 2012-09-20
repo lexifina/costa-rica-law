@@ -1,0 +1,3 @@
+Artículo 6- Servicio constructivo y valor agregado
+Corresponde a la Auditoría Interna brindar un servicio constructivo, midiendo y valorando la eficacia y eficiencia de todas las actividades y controles establecidos por la Administración, para el alcance de sus objetivos y metas propuestas, procurando agregar valor en todas sus funciones y mejorar la efectividad de la administración del riesgo, formulando las recomendaciones pertinentes para su prevención.
+La labor de la Auditoría Interna es realizada en forma posterior, mediante la prestación de servicios de auditoría, y en forma previa concomitante y posterior mediante la prestación de servicios preventivos conocidos como de asesoría, advertencia y legalización de libros.

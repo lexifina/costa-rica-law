@@ -1,0 +1,2 @@
+Artículo 109.- Asesoría a la Auditoría Interna
+Para atender evaluaciones del ámbito de acción de la Auditoría Interna, cuando por confidencialidad o agilidad a criterio del Auditor Interno o Auditora Interna se requiera de servicios profesionales especiales, se procederá con la contratación de estos, conforme lo dispuesto por la Ley de la Contratación Administrativa y el artículo 131, inciso p), del Reglamento a la Ley de Contratación Administrativa, la LGCI, la reglamentación interna del COSEVI y criterios de la CGR.
