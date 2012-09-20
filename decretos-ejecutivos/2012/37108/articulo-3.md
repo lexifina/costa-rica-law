@@ -12,13 +12,13 @@ Concepto | Unidad de cobro | Tarifas propuestas 2012-2013 | Tarifas 2011-2012 | 
 2.1 | Uso (renta) instalaciones áreas Terminal de pasajeros | | | | |
 (a) | Mostradores de aerolíneas y act. conexas | US$ / m2/ mes | $21.05 | $20.21 | $0.84 | 4.15%
 (b) | Circulación | US$ / m2/ mes | $7.01 | $6.73 | $0.28 | 4.15%
-(c) | Salas VIP | US$ / m2/ mes | $41.28 | $41.65 | ($0.37$ | 4.15%
+(c) (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | Salas VIP (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | US$ / m2/ mes (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 40.23 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 41.28 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 1.05 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 4.15%
 (d) | Áreas de equipaje | US$ / m2/ mes | $5.49 | $5.27 | $0.22 | 4.15%
 (e) | Oficinas | US$ / m2/ mes | $19.78 | $18.99 | $0.79 | 4.15%
 (f) | Soporte operacional y eléctrico/mecánico | US$ / m2/ mes | $7.01 | $6.73 | $0.28 | 4.15%
 | Rentas Comerciales | | | | |
-(g) | Rentas base concesiones comerciales | US$ / m2/ mes | $41.28 | $41.65 | ($0.37) | -0.88%
-(h) | Servicios financieros y similares | US$ / m2/ mes | $41.28 | $41.65 | ($0.37) | -0.88%
+(g) (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | Rentas base concesiones comerciales (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | US$ / m2/ mes (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 40.23 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 41.28 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 1.05 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | -0.88%
+(h) (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | Servicios financieros y similares (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | US$ / m2/ mes (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 40.23 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 41.28 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 1.05 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | -0.88%
 2.2 | Uso (renta) instalaciones y áreas-otras terminales | | | | |
 (a) | Circulación | US$ / m2/ mes | n/a | n/a | n/a | n/a
 (b) | Soporte Operaconal y Eléctro Mecánico | US$ / m2/ mes | n/a | n/a | n/a | n/a
@@ -30,7 +30,7 @@ Concepto | Unidad de cobro | Tarifas propuestas 2012-2013 | Tarifas 2011-2012 | 
 2.3 | Seguridad | | | | |
 (a) | Pasajeros vuelos internacionales | US$/ pasajeros de salida y entrada | $1.48 | $1.42 | $0.06 | 4.15%
 (b) | Pasajeros vuelos domésticos | US$/ pasajeros de salida y entrada | $0.75 | $0.72 | $0.03 | 4.15%
-2.4 | CUAC | US/ pasajero de salida | $7.45 | $7.69 | ($0.24) | -3.10%
+2.4 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | CUAC (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | US/ pasajero de salida (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 7.21 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 7.45 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | 0.24 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 37365 del 20 de setiembre del 2012) | -3.10%
 3 | LADO TERRESTRE | | | | |
 3.1 | Concesionarios uso (renta) instalaciones y áreas | US$ / m2/ mes | | | |
 (a) | Oficinas Aerolíneas, actividades conexas | US$ / m2/ mes | $10.07 | $9.67 | $0.40 | 4.15%
