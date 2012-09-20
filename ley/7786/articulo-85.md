@@ -1,4 +1,6 @@
-Artículo 85.—La autoridad judicial depositará el dinero decomisado en la cuenta corriente del Instituto Costarricense sobre Drogas y, de inmediato, le remitirá copia del depósito efectuado. De los intereses que produzca, el Instituto deberá destinar:
-a) El sesenta por ciento (60%) al cumplimiento de los programas preventivos, de este porcentaje, al menos la mitad será para los programas de prevención del consumo, tratamiento y rehabilitación que desarrolla el IAFA.
-b) Un treinta por ciento (30%) a los programas represivos.
-c) Un diez por ciento (10%) al aseguramiento y mantenimiento de los bienes decomisados, cuyo destino sea el señalado en el artículo anterior.
+Artículo 85.—La autoridad judicial depositará el dinero decomisado en las cuentas corrientes del Instituto Costarricense sobre Drogas que para tal efecto dispondrá en cualquier banco del Sistema Bancario Nacional y, de inmediato, le remitirá copia del depósito efectuado. El Instituto podrá invertir esos dineros decomisados bajo cualquier modalidad financiera ofrecida por los bancos estatales, que permita maximizar los rendimientos y minimizar los riesgos. El dinero decomisado también podrá ser invertido por el Instituto en la compra de equipo para la lucha antidrogas, previo aseguramiento de que en caso de que no proceda el comiso este será devuelto.
+De los intereses que produzca el dinero invertido, el Instituto deberá destinar:
+1) El sesenta por ciento (60%) al cumplimiento de los programas preventivos; de este porcentaje, al menos la mitad será para los programas de prevención del consumo, tratamiento y rehabilitación que desarrolla el Instituto sobre Alcoholismo y Farmacodependencia (IAFA).
+2) El treinta por ciento (30%) a los programas represivos.
+3) Un diez por ciento (10%) al aseguramiento y el mantenimiento de los bienes decomisados, cuyo destino sea el señalado en el artículo 84 de esta ley.
+(Así reformado por el artículo 1° de la ley N° 9074 del 20 de setiembre de 2012)
