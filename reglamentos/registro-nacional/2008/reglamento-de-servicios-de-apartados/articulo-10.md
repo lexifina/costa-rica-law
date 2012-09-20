@@ -19,11 +19,12 @@ LA JUNTA ADMINISTRATIVA ACUERDA POR MAYORÍA:
 J566
 a- Tener por recibido el oficio DF-RN-572-2009 de fecha 24 de setiembre del 2009, suscrito por los Licenciados William Astúa Meléndez, Director Administrativo y Octavio Suárez Mayorga, Jefe del Departamento Financiero, mediante el cual presentan para valoración de los señores miembros de la Junta Administrativa, una propuesta de ajuste de tarifas a cobrar por el servicio de uso de apartados.
 b- Fijar las siguientes tarifas para el servicio de apartados del Registro Nacional:
-Tipo de Servicio | Nuevo precio
-Anualidad de apartado | ¢13.700,00
-Cambio de llavín | ¢12.300,00 (Así reformado el punto anterior en sesión N° 41 del 22 de setiembre de 2011)
-Extravío del llavero | ¢3.400,00 (Así reformado el punto anterior en sesión N° 41 del 22 de setiembre de 2011)
-(Así reformado el cuadro anterior mediante sesión ordinaria N° 37-2010 del 9 de setiembre de 2010)
-c- Rige a partir del mes de enero 2010.
+Tipo de servicios | Nuevo precio
+Alquiler de apartado | ¢15.000,00
+Cambio de llavín | ¢12.700,00
+Extravío del llavero | ¢3.500,00
+(Así reformado el cuadro anterior mediante sesión ordinaria N° 38 del 20 de setiembre de 2012)
+c- Rige a partir del mes de enero 2013(*).
+(*)(Así reformado el punto anterior mediante sesión ordinaria N° 38 del 20 de setiembre de 2012)
 d- Publíquese en el Diario Oficial La Gaceta, y en un diario de circulación nacional
 San José, 02 de noviembre del 2009")
