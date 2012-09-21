@@ -15,3 +15,4 @@ Reglamento del Cementerio Central de Desamparados
 | --- | --- | --- |
 | 1 | 2004-03-23 | la propia norma |
 | 2 | 2010-10-05 | Reglamento municipal 59 (2010-10-05) |
+| 3 | 2012-09-21 | Reglamento municipal 56 (2012-09-21) |
