@@ -1,1 +1,0 @@
-Artículo 7º—Fiscal de Escrutinio. Será fiscal de escrutinio aquella persona designada por un partido político que haya inscrito candidaturas, para participar como tal durante la celebración del escrutinio de votos por parte del Tribunal Supremo de Elecciones.

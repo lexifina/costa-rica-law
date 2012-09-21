@@ -1,3 +1,0 @@
-Artículo 31.—Anulación y revocación de credencial. La Dirección General de Registro Electoral o el programa electoral designado por ésta podrán anular la credencial del fiscal que, estando acreditado, tuviere algún motivo de impedimento o careciere de algún requisito establecido legal o reglamentariamente.
-De igual forma, el incumplimiento de sus deberes y obligaciones facultará a la Dirección General de Registro Electoral a revocar la credencial y ordenar la sustitución inmediata del infractor, sin perjuicio de las medidas urgentes que deban adoptar las juntas electorales.
-Lo anterior sin perjuicio de las acciones que se puedan plantear, tratándose de la comisión de ilícitos de naturaleza electoral.

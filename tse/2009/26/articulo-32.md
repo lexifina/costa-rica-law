@@ -1,1 +1,0 @@
-Artículo 32.—Reposición de credenciales. La solicitud de reposición de credenciales deberá ser planteada por quien esté legitimado para acreditar fiscales en representación de un partido político; ésta se tramitará según el procedimiento que indique la Dirección General del Registro Electoral.

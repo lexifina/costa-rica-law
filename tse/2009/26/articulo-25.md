@@ -1,3 +1,0 @@
-Artículo 25.—Limitaciones en las mesas escrutadoras. Los fiscales se ubicarán en cada una de las mesas escrutadoras y presenciarán el trabajo sin obstaculizar la labor ni participar en las deliberaciones de los funcionarios electorales.
-No se permitirá la asistencia de más de un fiscal por partido político en cada mesa y sólo en caso de ausencia de un propietario se autorizará el ingreso al recinto del respectivo suplente.
-A los fiscales se les proporcionarán todas las facilidades necesarias para el buen cumplimiento de su función, pero sólo podrán manipular el material electoral bajo las condiciones y lineamientos que fije el Magistrado responsable de la mesa.

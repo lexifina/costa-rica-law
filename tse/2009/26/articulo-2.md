@@ -1,2 +1,0 @@
-Artículo 2º—Sobre el derecho de fiscalización. Los partidos políticos debidamente inscritos tienen el derecho de fiscalizar los procesos electivos o consultivos, a través de sus representantes oportunamente acreditados por el programa electoral que indique la Dirección General de Registro Electoral.
-Los fiscales serán nombrados por las instancias partidarias indicadas en los artículos 212 a 214 del Código Electoral.
