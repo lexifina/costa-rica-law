@@ -1,0 +1,1 @@
+Artículo 2º—Será el Ministerio de Salud a quien le corresponderá la autorización de la publicidad o promoción al público de los medicamentos biológicos y estará sujeta a la fiscalización previa de conformidad con la normativa específica vigente.
