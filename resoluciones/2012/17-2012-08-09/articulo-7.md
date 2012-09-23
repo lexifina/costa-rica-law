@@ -1,0 +1,1 @@
+Artículo 7º—Para el caso de segregaciones en cabeza de su dueño, se seguirá el mismo procedimiento establecido en el artículo anterior, a efecto de que para futuros movimientos sobre ese inmueble, conste como actualizado su valor fiscal.

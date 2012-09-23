@@ -1,0 +1,1 @@
+Artículo 8º—En los casos regulados en los dos artículos anteriores, deberá el Registro Nacional informar a la Dirección General de Tributación en forma inmediata y por los medios tecnológicos disponibles.

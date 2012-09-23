@@ -1,0 +1,1 @@
+Artículo 2º—Corresponde al Registro Nacional, en los traspasos de segregaciones de lotes por fraccionamiento, como órgano auxiliar de la Administración Tributaria, registrar los valores en el Registro Único de Valores, de conformidad con el procedimiento establecido en los artículos siguientes. Este registro deberá hacerse previamente al cálculo del impuesto.
