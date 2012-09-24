@@ -16,3 +16,4 @@ Reglamento para la Gestión y Administración del Crédito
 | 1 | 2010-08-11 | la propia norma |
 | 2 | 2011-06-15 | Reglamento 4045 (2011-06-15) |
 | 3 | 2012-01-25 | Reglamento 4103 (2012-01-25) |
+| 4 | 2012-09-24 | Reglamento 4166 (2012-09-24) |
