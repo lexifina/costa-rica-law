@@ -1,0 +1,2 @@
+Artículo 2º- Facultar a las instituciones del Sector Público y organizaciones del Sector Privado, dentro del marco legal respectivo, para que contribuyan con recursos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de las actividades que se llevarán a cabo en Costa Rica en el marco de la Presidencia Pro Témpore de la Conferencia Regional sobre Migración (CRM) o Proceso Puebla
+.
