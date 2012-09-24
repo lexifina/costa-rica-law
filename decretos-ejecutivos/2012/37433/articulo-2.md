@@ -1,0 +1,1 @@
+Artículo 2º—Que las instituciones y organizaciones del sector público y privado, dentro del marco legal respectivo, podrán contribuir con la misión humanitaria y de asistencia médica denominada Promesa Continua 2013 en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos.
