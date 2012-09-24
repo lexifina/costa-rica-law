@@ -1,10 +1,11 @@
 MUNICIPALIDAD DE SANTA DOMINGO
 Artículo tercero: Informe del Señor Alcalde
 1º—El Concejo conoce la moción presentada por el señor Alcalde, tendiente a que se apruebe el Reglamento para el Cobro de Tarifas por la Omisión Parcial o Total de los Deberes de los Propietarios y/o Poseedores de Bienes Inmuebles, del cantón de Santo Domingo de Heredia y considerando: Que mediante acuerdo de la sesión número 179-2010, de fecha 12 de abril de 2010, Artículo Tercero, Inciso 2.- a.- El Concejo dispuso iniciar el trámite de aprobación del Reglamento para el Cobro de Tarifas por la Omisión Parcial o Total de los Deberes de los Propietarios y/o Poseedores de Bienes Inmuebles, del cantón de Santo Domingo de Heredia, y dispuso la publicación del respectivo Proyecto en el Diario Oficial La Gaceta 130 de fecha 6 de julio de 2010, que transcurrido el plazo para la consulta pública no se presentó ninguna objeción u observación al texto del reglamento; Por tanto: Se aprueba el Reglamento para el Cobro de Tarifas por la Omisión Parcial o Total de los Deberes de los Propietarios y/o Poseedores de Bienes Inmuebles dentro de la Jurisdicción Territorial del cantón de Santo Domingo de Heredia, cuyo texto dirá:
-Proyecto de Reglamento a los artículos 75 y 76 del Código Municipal para el cobro de tarifas por la Omisión Parcial o Total de los deberes de los propietarios y/o poseedores de Bienes Inmuebles, del cantón de Santo Domingo de Heredia.
-Se presenta al Concejo Municipal el Proyecto de Reglamento, para su análisis, revisión legal, publicación en el Diario Oficial, puesta en consulta a los interesados y su posible aplicación.
-Disposiciones Generales
-El Concejo Municipal, en conformidad con lo indicado en tos artículos 169 y 170 de la Constitución Política, de los artículos: 4, inciso a), 13, inciso c), 43, 68, 75 y 76 del Código Municipal, así como en atención de la Ley de Planificación Urbana, la Ley y el Reglamento de Construcciones y la Ley General de Caminos Públicos, Ley de Igualdad de Oportunidades, la Ley Nº 7898 de Modificación de los artículos 75 y 76 del Código Municipal y Legislación conexa, y en uso de sus atribuciones, dicta el presente Proyecto de Reglamento, que se regirá de la siguiente forma:
+(Derogado el párrafo 2° mediante sesión N° 200-2012 del 24 de setiembre del 2012)
+(Derogado el párrafo 3° mediante sesión N° 200-2012 del 24 de setiembre del 2012)
+Disposiciones generales
+El Concejo Municipal, en conformidad con lo indicado en los artículos 169 y 170 de la Constitución Política , de los artículos: 4, inciso a), 13, inciso c), 43, 68. 75 y 76 del Código Municipal, así como en atención de la Ley de Planificación Urbana, la Ley y el Reglamento de Construcciones y la Ley General de Caminos Públicos, Ley de Igualdad de Oportunidades, la Ley N ” 7898 de Modificación de los artículos 75 y 76 del Código Municipal y Legislación conexa, y en uso de sus atribuciones, dicta el presente Reglamento, que se regirá de la siguiente forma.
+(Así reformado el texto anterior referente a las Disposiciones Generales mediante sesión N° 200-2012 del 24 de setiembre del 2012)
 CAPÍTULO 1
 De las definiciones
 Artículo 1º—Para efectos de interpretación y aplicación del presente reglamento, se entenderá por:
@@ -12,14 +13,17 @@ Artículo 1º—Para efectos de interpretación y aplicación del presente regla
 2. Alcaldía: Representante legal, electo popularmente, de la Municipalidad de Santo Domingo.
 3. Alineamiento: Línea fijada por la Municipalidad o por el Ministerio de Obras Públicas y Transportes. El alineamiento o línea de propiedad es aquella línea que divide el derecho de vía (establecido para cada zona) o propiedad pública y la propiedad privada, en donde normalmente se colocan los cerramientos frontales.
 Esta determinado en conformidad con el derecho de vía oficial del lugar
-4. Calle pública: Cualquier vía que se encuentre aceptada o autorizada por la municipalidad, que se encuentre en los mapas oficiales y cumpla con los requisitos y la legislación correspondiente y que permita el libre transito de vehículos automotores o similares y de los peatones.
+4. Calle pública: Cualquier vía que se encuentre aceptada o autorizada por la municipalidad o que se incorpore o encuentre en los mapas oficiales y cumpla con los requisitos y ía legislación correspondiente y que permita el libre tránsito de vehículos automotores o similares y de los peatones.
+(Así reformado el inciso anterior mediante sesión N° 200-2012 del 24 de setiembre del 2012)
 5) Calzada: Parte de la calle destinada primordialmente para el tránsito de vehículos, comprendida entre cordones y caños, cunetas o zanjas de drenaje.
 6) Concejo Municipal: Concejo Municipal de la Municipalidad de Santo Domingo.
 7) Construcción: Arte de crear o construir toda estructura que se fija o incorpora en un terreno; incluye obras de edificación, reconstrucción, alteración o ampliación que impliquen permanencia.
 8) Construcción, reconstrucción y restauración de aceras: Realizar las obras necesarias en las secciones de la vía pública de uso peatonal para que se permita el libre e igualitario tránsito de las personas, por medio de nuevos espacios, de la recuperación de los existentes, así como en consideración del ornato del cantón en las áreas de interés, en cumplimiento de los requerimientos técnicos del caso.
 9) Cordón y caño: Desagüe pluvial que conforma el límite entre la calzada de la calle y las franjas verdes y/o la acera.
-10) Costo efectivo: La suma del costo de los materiales, la mano de obra, el uso de equipo y suministros, más un diez por dentó de utilidad, de conformidad con el Artículo 74 del Código Municipal.
-11) Derecho de vía: El ancho total de la carretera, calle, camino, sendero, servidumbre, esto es la distancia entre las líneas de propiedad incluyendo en su caso, calzadas, franjas verdes y/o aceras.
+10) Costo efectivo: La suma del costo de los materiales, la mano de obra, el uso de equipo y suministros, más un diez por ciento de utilidad de conformidad con el Artículo 74 del Código Municipal.
+(Así reformado el inciso anterior mediante sesión N° 200-2012 del 24 de setiembre del 2012)
+11) Derecho de vía: El ancho total de la carretera, calle, camino, sendero, servidumbre, esto es la distancia entre las líneas de propiedad incluyendo en su caso, calzadas, franjas verdes, caños y o aceras.
+(Así reformado el inciso anterior mediante sesión N° 200-2012 del 24 de setiembre del 2012)
 12) Frente de lote: Es la longitud de la línea frontal de demarcación de la propiedad.
 13) Instalación de canoas y bajantes frente a vía públicas: Es la colocación de dichos elementos de detalle constructivo, en edificios y edificaciones privadas.
 14) Limpieza de escombros en vías públicas: Es el proceso de mantenimiento de las áreas públicas que enfrentan propiedades privadas o públicas, mediante la eliminación de objetos abandonados y todo lo que impida el libre paso, la visibilidad o afecte el ornato del lugar.

@@ -1,8 +1,10 @@
 CAPÍTULO II
 Del cobro trimestral cuando se incumplan con las
 obligaciones dispuestas en el artículo
-Artículo 4º—En el caso en que el propietario, representante legal, poseedor o similar de un inmueble, lote o propiedad omita uno o varios de los deberes y obligaciones que le competen, en conformidad con lo indicado en los artículos anteriores, la municipalidad por medio del Departamento de Gestión de Cobros o similar con la competencia, cobrara trimestralmente con carácter de multa y en conjunto con las demás obligaciones, de la siguiente forma:
-1) Por no limpiar la vegetación de sus predios situados a orillas de las vías públicas ni recortar la que perjudique el paso de las personas o lo dificulte, seiscientos cincuenta y un colones (¢651,00) por metro lineal del frente total de la propiedad.
+Artículo 4. En el caso en que el propietario, representante legal, poseedor o similar de un inmueble, lote o propiedad omita uno o varios de los deberes y obligaciones que le competen, en conformidad con lo indicado en los artículos anteriores, la municipalidad o similar con la competencia, cobrara trimestralmente con carácter de multa y en conjunto con las demás obligaciones, de la siguiente forma.
+(Así reformado el párrafo anterior mediante sesión N° 200-2012 del 24 de setiembre del 2012)
+1) Por no limpiar la vegetación de sus predios situados a orillas de las vías públicas ni recortar la que perjudique el paso de las personas o lo dificulte, seiscientos cincuenta y un colones.
+(Así reformado el inciso anterior mediante sesión N° 200-2012 del 24 de setiembre del 2012)
 2) Por no cercar los lotes donde no haya construcciones o existan construcciones en estado de demolición, ochocientos sesenta y siete colones (¢867,00) por metro lineal del frente total de la propiedad.
 3) Por no separar, recolectar ni acumular, para el transporte y la disposición final, los desechos sólidos provenientes de las actividades personales, familiares, públicas o comunales, o provenientes de operaciones agrícolas, ganaderas, industriales, comerciales y turísticas solo mediante los sistemas de disposición final aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud o la Municipalidad, doscientos dieciséis colones (¢216,00) por metro cuadrado del área total de la propiedad.
 4) Por no construir, reconstruir o restaurar las aceras frente a las propiedades ni darles mantenimiento, mil ochenta y cuatro colones (¢1.084,00), por metro cuadrado correspondiente al área de la acera del frente total de la propiedad.

@@ -1,1 +1,1 @@
-Artículo 31º—Procédase a la publicación en el Diario Oficial La Gaceta. Rige a partir de su publicación. Se dispensa de trámite de comisión. Acuerdo definitivamente aprobado. Votos de los señores regidores Moreira Ramírez, Chacón Zamora, Villalobos Palma, Zamora González y Madrigal Méndez. Sesión número 60-2011 de fecha 12 de enero del 2011, Artículo III, Inciso 1.-.
+Artículo 31.—(El texto del presente artículo debe ser consultado en el artículo 29 del presente reglamento)

@@ -14,3 +14,4 @@ Reglamento para el Cobro de Tarifas por la Omisión Parcial o Total de los Deber
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-22 | la propia norma |
+| 2 | 2012-09-24 | Reglamento municipal 200 (2012-09-24) |
