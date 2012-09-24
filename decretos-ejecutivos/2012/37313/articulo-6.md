@@ -1,0 +1,1 @@
+Artículo 6°- Se deroga el decreto ejecutivo 34984-H-MAG del 17 de diciembre de 2008, Reglamento para la Financiación de Crédito para la Rehabilitación Bananera ante daños causados por fenómenos naturales, publicado en La Gaceta N° 15 del 22 de enero de 2009.

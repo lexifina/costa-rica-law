@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO: Las disposiciones del decreto ejecutivo 34984-H-MAG del 17 de diciembre de 2008, "Reglamento para la Financiación de Crédito para la Rehabilitación Bananera ante daños causados por fenómenos naturales", que establezcan las condiciones que rigen los créditos otorgados por CORBANA con recursos propios aportados al fondo, continuarán vigentes hasta la efectiva extinción de tales créditos.
+Dado en Limón, a los treinta y un días del mes de agosto de dos mil doce.

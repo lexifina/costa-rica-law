@@ -1,0 +1,2 @@
+Artículo 5°- Se reforma el artículo 2°, del decreto ejecutivo N° 30841-H-MAG, de 25 de octubre de 2002, para que en adelante se lea así:
+"Artículo 2°-Del impuesto establecido por la Ley N° 5515, se destinará un centavo de dólar de los Estados Unidos de América (US$ 0,01) para la seguridad ciudadana de las poblaciones aledañas a las fincas bananeras de la Zona Atlántica y otras zonas productoras de banano, así como para la seguridad de la población de la provincia de Limón en general y toda instalación productiva de dicha provincia."

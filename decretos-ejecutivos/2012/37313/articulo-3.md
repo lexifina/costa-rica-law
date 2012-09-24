@@ -1,0 +1,1 @@
+Artículo 3° - Del impuesto establecido por la Ley N° 5515, las empresas compradoras o comercializadoras retendrán y girarán directamente a CORBANA, dos centavos de dólar de los Estados Unidos de América (US$ 0,02), destinados a integrar el "Fondo Especial de Prevención e Infraestructura" a favor de los productores bananeros.
