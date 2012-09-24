@@ -26,3 +26,4 @@ Reglamento de las Empresas y Actividades Turísticas
 | 11 | 2011-10-18 | Decreto Ejecutivo 36871 (2011-10-18) |
 | 12 | 2011-10-28 | Decreto Ejecutivo 36898 (2011-10-28) |
 | 13 | 2012-08-01 | Decreto Ejecutivo 37471 (2012-08-01) |
+| 14 | 2012-09-24 | Decreto Ejecutivo 37393 (2012-09-24) |

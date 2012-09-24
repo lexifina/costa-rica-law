@@ -18,6 +18,12 @@ Copia de los planos catastrados.
 Título de propiedad del inmueble donde se va a desarrollar o se esté desarrollando el proyecto o empresa. De no poseer título de propiedad, deberá presentar contrato de arrendamiento, o contrato de concesión, u opción de compra del terreno en que se desarrollará el proyecto.
 e) Las empresas de transporte acuático de turistas, deberán presentar adicionalmente:
 certificación del título de propiedad o contrato de arrendamiento del muelle o atracadero donde va a operar u opera la empresa, conforme a la Ley de Concesión y Operación de Marinas Turísticas Nº 7744 y sus reformas. En el caso de que en la zona desde donde se operará (y así quede demostrado) no se cuente con muelles, atracaderos o embarcaderos; el interesado deberá proponer para autorización del ICT otro tipo de facilidades o maneras alternas de embarque y desembarque de pasajeros.
+f) En el caso de las empresas de hospedaje y actividades temáticas localizadas dentro de una Reserva Indígena, el interesado deberá presentar:
+f.1- Referencia por escrito del número y fecha de vigencia y publicación de la Ley o el Decreto Ejecutivo, mediante el cual se dio origen a la Reserva Indígena donde se localiza el proyecto.
+f.2- Certificación de personería jurídica de la Asociación de Desarrollo Integral u órgano que opere como autoridad competente dentro de dicha Reserva.
+f.3- Documento de autorización emitido por la Asociación de Desarrollo Integral o Autoridad competente dentro de la reserva, para desarrollar la actividad que se pretende amparar a la declaratoria turística, dentro del territorio de la reserva.
+f.4- Un levantamiento topográfico del sitio (croquis) con indicación de la delimitación física de la actividad turística, en el cual se señale su medida y linderos.
+(Así adicionado el inciso f) anterior por el artículo 1° del decreto ejecutivo N° 37393 del 24 de setiembre de 2012)
 2. Requisitos de tipo técnico:
 2.1 Las empresas de hospedaje, gastronómicas o diversión nocturna que estén en operación al momento de presentar la solicitud, deberán:
 a) Cumplir con los requisitos de Equipamiento e Infraestructura Mínima de servicios detallados en el Anexo 1.

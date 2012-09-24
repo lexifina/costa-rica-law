@@ -21,6 +21,12 @@ c) Declaración jurada, firmada por el interesado para personas físicas o del r
 d) Copia del Plano Inscrito en el Catastro Nacional. Debe indicar el número de Folio Real (o Folio, Número y Asiento) y éste tiene que coincidir con el que señala en la certificación de la propiedad (punto 4 siguiente). Si no coincide deberá traer copia certificada de la Oficina de Catastro o por notario público.
 e) Certificación, notarial o registral, de la propiedad en donde se desarrollará el proyecto, que incluya todas las características del inmueble. Si la propiedad no pertenece a la empresa interesado, deberá presentar una copia autenticada: de la opción de compra del terreno, o del contrato de arrendamiento, o del contrato de concesión en el caso de terrenos ubicados en la zona marítimo terrestre, el cual debe estar inscrito en el registro correspondiente. Si el arrendante es una persona jurídica debe presentar la Personería Jurídica del arrendante.
 Toda certificación deberá tener una vigencia no mayor a tres meses.
+(*)f) En el caso de terrenos ubicados en reservas indígenas, debe aportarse:
+f.1- Referencia por escrito del número y fechas de vigencia y publicación de la Ley o el Decreto Ejecutivo, mediante el cual se dio origen a la Reserva Indígena donde se localiza el proyecto.
+f.2- Certificación de personería jurídica de la Asociación de Desarrollo Integral u órgano que opere como autoridad competente dentro de dicha Reserva.
+f.3- Documento de autorización emitido por la Asociación de Desarrollo Integral o Autoridad competente dentro de la reserva para desarrollar la actividad que se pretende amparar a la declaratoria turística dentro del territorio de la reserva.
+f.4- Un levantamiento topográfico del sitio (croquis) con indicación de la delimitación física del área de la actividad turística, en el cual se señale su medida y linderos.
+(*) (Así adicionado el inciso f) anterior por el artículo 2° del decreto ejecutivo N° 37393 del 24 de setiembre de 2012)
 II- Requisitos Técnicos
 Las empresas que se encuentran en operación y solicitan la declaratoria, deberán:
 1. Presentar una carta donde se autoriza la realización de una inspección por parte del Departamento de Fomento del ICT, con el propósito de realizar una evaluación y clasificación conforme a la Guía de inspección que se detalla en el anexo 3.
