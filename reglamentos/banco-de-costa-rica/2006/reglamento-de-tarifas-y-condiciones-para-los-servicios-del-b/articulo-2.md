@@ -1,10 +1,18 @@
 2. Productos de captación
-(*)2.1. Comisión por el exceso de cheques girados en cuenta corriente.
-Saldos Promedios Mensuales | Cantidad cheques sin costo | S/ exceso de cheques girados
-Hasta $500,00 | 4 | $1,00 c/u
-$501.00 a $2.500,00 | 7 | $1,00 c/u
-$2.501,00 | 10
-(*)(Así reformado el punto anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)2.1.- Comisión por el exceso de cheques girados en cuenta corriente
+Cuentas personales:
+Saldos promedios mensuales | Cantidad cheques sin costo | S/ exceso de cheques girados
+Hasta $500,00 | 5 | $1,00 c/u
+$501,00 a $2.500,00 | 10 | $1,00 c/u
+$2.501,00 | 15 | $1,00 c/u
+Cuentas empresariales, corporativas o de personas físicas con actividad lucrativa:
+Saldos promedios mensuales | Cantidad cheques sin costo | S/ exceso de cheques girados
+Hasta $10.000,00 | 50 | $1,00 c/u
+$10.001,00 a $25.000,00 | 150 | $1,00 c/u
+$25.001,00 a $100.000,00 | 300 | $1,00 c/u
+A partir de $100.001,00 | Sin Límite
+| | |
+(*)(Así reformado el punto 2.1) anterior mediante sesión N° 39-12 del 24 de setiembre del 2012)
 2.2.- Órdenes de no pago de cheques y depósitos a plazo.
 Cheques $4.00
 Depósitos a plazo $7.00
@@ -25,7 +33,13 @@ $18.50
 2.8.3 Reapertura por cuentas cerradas pérdidas e insolutos $ 10,00
 (*)(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 2.9.- Chequeras Colones y Dólares $6.00
-2.10.-Traspaso de fondos entre cuentas corrientes y de ahorros manualmente en las plataformas $5.00 por cada traspaso.
+(*)2.10.-Traspaso de fondos entre cuentas corrientes y de ahorros manualmente en las plataformas
+$5.00 por cada traspaso excepto:
+- El cobro de la comisión cuando BCR Empresas este fuera de servicio o tengan problemas de clave.
+- A las empresas que por cambios administrativos, se queden sin firmas o autorizados para procesar BCR Empresas.
+- Cuando el cliente realice compras y ventas de dólares.
+- Los pagos de proveedores a cuentas del BCR, ya que esto genera profundidad de línea, al retener los fondos dentro del BCR.
+(*)(Así reformado el punto 2.10) anterior mediante sesión N° 39-12 del 24 de setiembre del 2012)
 2.11.-Cuentas corrientes y de ahorro inactivas (180 días de inactividad):
 2.11.1 Saldos inferiores a $20.00 (cuentas en colones) $2.00 cada mes hasta su liquidación.
 2.11.2 Saldos inferiores a $ 50.00 (cuentas en dólares) $3.00 cada mes hasta su liquidación.
