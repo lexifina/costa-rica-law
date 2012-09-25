@@ -14,3 +14,4 @@ Reglamento de Beneficios del Régimen de Capitalización Individual, reforma Reg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-16 | la propia norma |
+| 2 | 2012-09-25 | Reglamento 999 (2012-09-25) |
