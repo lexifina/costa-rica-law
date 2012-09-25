@@ -1,1 +1,0 @@
-Artículo 29.—El o la Agente de Seguridad y Vigilancia tiene derecho a disfrutar dentro de la jornada laboral, sea jornada diurna, nocturna o mixta, de un período de descanso y alimentación, atendiendo a la naturaleza del trabajo y respetando las disposiciones legales, de diez minutos para ingerir un refrigerio y cuarenta minutos para alimentación.

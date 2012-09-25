@@ -1,1 +1,0 @@
-Artículo 33.—El o la Agente de Seguridad y Vigilancia tendrá un lugar adecuado e higiénico para colocar, o guardar sus pertenencias, y para consumir sus alimentos. Asimismo tendrá a su disposición un servicio sanitario durante su jornada laboral.

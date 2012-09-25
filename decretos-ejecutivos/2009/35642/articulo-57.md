@@ -1,1 +1,0 @@
-Artículo 57.—El o la Agente de Seguridad y Vigilancia designado para portar arma deberá contar previamente con el permiso de uso y portación de armas y aprobar el curso básico de seguridad policial para agentes de seguridad privada de conformidad con la Ley de Armas y Explosivos.

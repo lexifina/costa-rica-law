@@ -1,1 +1,0 @@
-Artículo 32.—La jornada laboral es continua, no obstante el superior inmediato podrá fraccionar o modificar la misma cuando las necesidades imperiosas del servicio así lo demanden, con el fin de no menoscabar el servicio de seguridad y vigilancia, el interés público y la prestación efectiva del servicio.

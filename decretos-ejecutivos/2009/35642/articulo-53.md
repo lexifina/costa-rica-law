@@ -1,2 +1,0 @@
-Artículo 53.—Los y las Agentes de Seguridad y Vigilancia están obligados a acatar las medidas que tiendan a prevenir accidentes de trabajo o enfermedades profesionales.
-Para tales efectos, deberán tomarse en consideración los dictámenes y recomendaciones médicas y los criterios técnicos que procedan. Así mismo tendrán igual validez los dictámenes o recomendaciones que otorguen los médicos del Instituto Nacional de Seguros o de la Caja Costarricense de Seguro Social.

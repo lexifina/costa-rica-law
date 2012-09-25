@@ -1,1 +1,0 @@
-Artículo 31.—El o la Agente de Seguridad y Vigilancia tendrá derecho a un día de descanso por cada seis días de trabajo continuo, que no tiene que coincidir, necesariamente, con día sábado o domingo porque su jornada podría incluir -como de hecho sucede con frecuencia- esos días.

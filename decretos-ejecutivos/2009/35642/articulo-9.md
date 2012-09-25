@@ -1,1 +1,0 @@
-Artículo 9º—Los y las Agentes de Seguridad y Vigilancia no están obligados a ejercer labores de vigilancia que no estén relacionadas con su centro de trabajo. Queda a salvo lo establecido en el artículo 6 inciso f) de este Reglamento.

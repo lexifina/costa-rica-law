@@ -1,1 +1,0 @@
-Artículo 20.—La suspensión del trabajo sin goce de salario podrá aplicarse, de conformidad con lo que establece el Artículo 60 del Reglamento Interior de Trabajo del Ministerio de Educación Pública, en concordancia con lo planteado en el Título Primero del Estatuto de Servicio Civil.

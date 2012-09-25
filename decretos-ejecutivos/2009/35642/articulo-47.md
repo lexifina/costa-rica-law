@@ -1,1 +1,0 @@
-Artículo 47.—Los superiores jerárquicos deberán observar expresamente los artículos 29 y 32 del Reglamento del Estatuto de Servicio Civil, sobre el procedimiento para determinar el período de vacaciones de los y las Agentes de Seguridad y Vigilancia, así como, para disponer el momento en que éstos los disfruten.

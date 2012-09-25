@@ -1,1 +1,0 @@
-Artículo 35.—La Dirección del centro de trabajo estará obligada a disponer de un lugar adecuado y seguro para que el o la Agente de Seguridad y Vigilancia guarde los implementos que utilice en el desempeño de sus funciones, a efecto de conservarlos y preservar su buen estado.
