@@ -14,3 +14,4 @@ Reglamento de matrícula de estudiantes regulares de la Universidad Técnica Nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-16 | la propia norma |
+| 2 | 2012-09-25 | Reglamento 31 (2012-09-25) |

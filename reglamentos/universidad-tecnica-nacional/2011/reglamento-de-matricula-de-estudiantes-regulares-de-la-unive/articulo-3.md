@@ -5,7 +5,8 @@ c. Estudiante activo: corresponde a la condición que adquiere el estudiante una
 d.Matricula ordinaria: proceso que realiza el estudiante para matricular cursos durante el período ordinaria establecido en el calendario institucional.
 e. Matricula extraordinaria: proceso que realiza el estudiante para matricular cursos en los que haya disponibilidad de cupos una vez efectuada la matricula ordinaria y durante el período establecido en el calendario institucional para esos efectos.
 f. Matrícula por inclusión: proceso que realiza el estudiante regular ante la Dirección de Carrera para resolver casos de excepción de matrícula debidamente calificados.
-g. Promedio ponderado: es el promedio que obtuvo el estudiante durante un ciclo lectivo determinado y se establece mediante la sumatoria de las notas obtenidas en cada curso multiplicadas por el numero de créditos del curso correspondiente y divididas entre el número total de créditos matriculados.
+g. índice de ubicación: Corresponde a la sumatoria de la multiplicación de cada nota obtenida por la cantidad de créditos de cada curso.
+(Así reformado el inciso anterior mediante sesión N° 31 del 25 de setiembre del 2012)
 h. Promedio de admisión: corresponde al promedio que obtiene el estudiante producto de los criterios de admisión establecidos para su ingreso por primera vez a una carrera.
 i.Padrón de matrícula: corresponde al listado donde se consignan los estudiantes activos o de nuevo ingreso que pueden realizar matricula durante el período lectivo correspondiente.
 j. Estudiantes de nuevo ingreso a carrera: son los estudiantes que han sido admitidos a carrera según los criterios establecidos en las políticas y reglamentos de admisión y que matriculan por primera vez en esa carrera.
