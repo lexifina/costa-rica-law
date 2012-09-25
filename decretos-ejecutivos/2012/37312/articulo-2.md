@@ -1,0 +1,1 @@
+Artículo 2°—En dicho proceso de arbitraje la Administración interesada (Poder Ejecutivo) deberá colaborar y velará también porque el Consejo Nacional de Concesiones también lo haga, con la Procuraduría General de la República en todo lo que requiera, y cubrir oportunamente los gastos del proceso.
