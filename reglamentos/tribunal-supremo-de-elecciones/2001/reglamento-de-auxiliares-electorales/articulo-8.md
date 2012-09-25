@@ -1,2 +1,0 @@
-Artículo 8º—Concluido el proceso electoral, los Auxiliares recibirán la suma fija que disponga el Tribunal para compensar simbólicamente los servicios de apoyo al proceso electoral, entendiendo que dicha retribución no se contabiliza como salario para efectos del cálculo de prestaciones laborales, aguinaldo, vacaciones u otros derechos inherentes a los contratos de trabajo.
-(Así reformado mediante el artículo 2° del decreto del Tribunal Supremo de Elecciones N° 16 del 17 de octubre del 2006).
