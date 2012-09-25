@@ -14,3 +14,4 @@ Reglamento para el Registro de la Deuda Externa del Sector Público Costarricens
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-16 | la propia norma |
+| 2 | 2012-09-25 | Decreto Ejecutivo 37396 (2012-09-25) |

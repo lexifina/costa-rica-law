@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32000
+(Este decreto fue derogado por el artículo 18 del Reglamento para la Renegociación, Amortización de la Deuda Externa del Gobierno de la República y Registro de la Deuda Pública, aprobado mediante decreto ejecutivo N° 37396 del 25 de setiembre del 2012)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 Con fundamento en lo establecido en los artículos 140 incisos 3), 8) y 18), 146, 185, 186 y 178 de la Constitución Política, en el artículo 80 inciso g) de la Ley de Administración Financiera de la República y Presupuestos Públicos, Nº 8131, del 18 de setiembre del 2001, publicada en el Diario Oficial La Gaceta Nº 198 del 16 de octubre del mismo año, 25 inciso 1), 27 inciso l), 28 inciso b) y 157 de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978, publicada en La Gaceta Nº 102 de fecha 30 de mayo de 1978, Decreto Ejecutivo N° 30058- H-MP-PLAN de 19 de diciembre del 2001, publicado en La Gaceta N° 68 del 9 de abril del 2002.
