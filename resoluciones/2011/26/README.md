@@ -14,3 +14,4 @@ Establece los Modelos Electrónicos de declaraciones informativas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-30 | la propia norma |
+| 2 | 2012-09-26 | Resolución 22 (2012-09-26) |
