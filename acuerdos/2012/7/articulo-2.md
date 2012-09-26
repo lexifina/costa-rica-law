@@ -1,5 +1,5 @@
 Artículo 2º—Integración. La Comisión estará integrada por los siguientes funcionarios del Ministerio:
-1) El Jefe de la Oficina de Mejoramiento y Control de la Gestión Institucional, en representación del Ministro, quien fungirá como Presidente.
+1) El Jefe de la Oficina de Mejoramiento y Control de la Gestión Institucional , en representación del Ministro, quien fungirá como Presidente.
 2) El Jefe o encargado de la Oficina de Planificación Institucional.
 3) Un representante de la Dirección General de la Fuerza Pública.
 4) El Jefe del Departamento de Control y Fiscalización de Activos.
@@ -8,5 +8,7 @@ Artículo 2º—Integración. La Comisión estará integrada por los siguientes 
 7) El Jefe del Departamento de Servicios Generales.
 8) El Jefe del Departamento de Transportes.
 9) El Jefe del Centro de Servicios de Transportes.
+10) El Jefe de la Dirección de Proveeduría Institucional.
 La Comisión sesionará bajo la dirección del Presidente y, en ausencia de éste, a quien designe los integrantes de la Comisión.
 Los miembros de la Comisión nombrarán a un secretario.
+(Así reformado mediante acuerdo N° 382-2012 del 26 de setiembre del 2012)

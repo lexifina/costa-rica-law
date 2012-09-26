@@ -14,3 +14,4 @@ Creación de la comisión institucional para la elaboración de programas de ges
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-16 | la propia norma |
+| 2 | 2012-09-26 | Acuerdo 382 (2012-09-26) |
