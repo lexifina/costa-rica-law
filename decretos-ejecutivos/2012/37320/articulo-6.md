@@ -1,0 +1,1 @@
+Artículo 6º—Recursos para el funcionamiento de la Secretaría. Se autoriza al IMAS, para que realice las asignaciones presupuestarias necesarias para financiar con sus propios recursos el desarrollo y funcionamiento del Sistema Nacional de Información Social, ya sea a través de personal propio, o de contrataciones externas.

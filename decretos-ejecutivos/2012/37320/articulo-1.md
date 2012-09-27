@@ -1,0 +1,16 @@
+Nº 37320-MTSS-MBSF
+LA PRESIDENTA DE LA REPÚBLICA,
+LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL
+Y EL MINISTRO DE BIENESTAR SOCIAL Y FAMILIA
+En uso de las facultades y atribuciones que les confieren los artículos 140, incisos 3), 8), 18), 20) y 146 de la Constitución Política; los numerales 25, 27 inciso 1), 28 inciso 2), acápite b) de la Ley General de la Administración Pública y el Decreto Ejecutivo Nº 36916 del 28 de noviembre de 2012.
+Considerando:
+1º—Que la aspiración de reducir la pobreza en Costa Rica, por debajo de los niveles en que se ha estancado durante las últimas décadas, exige un uso más eficiente de los recursos humanos y materiales destinados a ese fin, y someter la política social a una evaluación sistemática y periódica, que promueva una mayor eficacia.
+2º—Que un instrumento fundamental para dicho fin es la constitución de un Sistema Nacional de Información Social, que propicie una atención más integral de los beneficiarios existentes, facilite la identificación de nuevos beneficiarios, arroje información sobre las oportunidades de mejora en el uso y la asignación de los recursos públicos y empodere a los ciudadanos en el ejercicio de sus derechos y de sus obligaciones.
+3º—Que el artículo 5 de la Ley Nº 5662, reformado por la Ley Nº 8783 “Reforma de la Ley de Desarrollo Social y Asignaciones Familiares, Nº 5662” del 13 de octubre de 2009, establece que “se creará un Centro de información ubicado donde lo determine la rectoría del sector social” y que “cada institución y programa financiado, por medio de ley o convenio, con recursos del FODESAF deberá hacerle llegar, trimestralmente a dicho Centro, la lista completa de beneficiarios de ese período…”; información con la cual “el Centro levantará una única base de datos para evitar la duplicación en el otorgamiento de beneficios por parte de cualquier entidad pública”.
+4º—Que el inciso g) del artículo 4 de la Ley Orgánica del IMAS, Nº 4760, del 4 de mayo de 1971, establece que corresponde al IMAS “coordinar los programas nacionales de los sectores públicos y privados cuyos fines sean similares a los expresados en esa ley;” y que el artículo 32 dispone que “el Poder Ejecutivo determinará, por medio de decreto, los términos y condiciones en que los ministerios, de acuerdo con su naturaleza, deberán participar en la lucha contra la pobreza a través del IMAS”.
+5º—Que con el propósito de cumplir con su mandato, el IMAS ha desarrollado y administra el Sistema de Información de la Población Objetivo (SIPO), el cual, según diagnósticos realizados recientemente, puede constituirse, con pocos ajustes, en el Sistema Nacional de Información Social (SINAIS). Por tanto,
+Decretan:
+CONSTITUCIÓN Y DECLARATORIA DE INTERÉS PÚBLICO
+DEL SISTEMA NACIONAL DE INFORMACIÓN SOCIAL
+DE COSTA RICA
+Artículo 1º—Creación y declaratoria de interés público. De acuerdo al artículo 5 de la Ley Nº 5662, reformada por la Ley Nº 8783, se crea y declara de interés público el Sistema Nacional de Información Social (SINAIS), como un registro unificado de información sobre los programas sociales selectivos de carácter público, sus beneficios y sus beneficiarios. En su primera fase, el Sistema se concentrará, principalmente, en los programas que reciben financiamiento del Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF).

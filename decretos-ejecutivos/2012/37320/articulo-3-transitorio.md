@@ -1,0 +1,1 @@
+Transitorio III.—Sobre el Plan de constitución del Sistema Nacional de Información Social. El Plan de constitución del Sistema Nacional de Información Social, deberá ser presentado al Consejo Superior del Sistema Nacional de Información Social para su aprobación, a más tardar seis meses después de publicado el presente Decreto.
