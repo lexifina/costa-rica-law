@@ -1,4 +1,3 @@
 Artículo 16.—De las causas de suspensión. La pensión se suspenderá, previo procedimiento administrativo seguido al efecto:
-a) Cuando el pensionado(a) se encuentre privado(a) de libertad u hospitalizado, por un lapso mayor a tres meses, salvo aquellos casos donde existen dependientes y quede demostrado que la pensión es el ingreso básico de subsistencia.
-b) Cuando sin razones justificadas el monto de la pensión no sea retirado por espacio de tres meses consecutivos.
-c) Cuando se determine que la pensión no se utiliza para la satisfacción de las necesidades básicas de la persona pensionada y ésta no se encuentre en condiciones físicas o mentales para solicitar el cambio de endosatario(a). El monto de la pensión se girará a nombre del pensionado, quedando pendiente su retiro hasta que se designe un nuevo endosatario para que administre el beneficio.
+Cuando el pensionado (a) se encuentre privado (a) de libertad u hospitalizado, por un lapso mayor a tres meses, salvo aquellos casos donde existen dependientes y quede demostrado que la pensión es el ingreso básico de subsistencia.
+(Así reformado mediante sesión N° 8602 del 27 de setiembre del 2012)
