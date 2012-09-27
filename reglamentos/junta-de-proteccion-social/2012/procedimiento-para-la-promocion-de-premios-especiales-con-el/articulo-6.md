@@ -1,0 +1,6 @@
+Artículo 6: Mecánica de Juego
+El sorteo se llevará a cabo el sábado 20 de octubre, 2012 en el programa La Rueda de la Fortuna, el cual se transmite a las 4.00 p.m. por Canal 7.
+Mediante una tómbola electrónica previamente elaborada por el Departamento de Informática se obtendrá el ganador. La tómbola contiene una restricción la cual permite excluir de la promoción a funcionarios de la Junta de Protección Social.
+El corte de las apuestas se realizará 15 minutos antes de que inicie el último evento de Progol que participa en la promoción, es decir, el partido Costa Rica-Guyana.
+El premio será otorgado en especie no en efectivo. El ganador deberá presentar en el Departamento de Mercadeo de la Junta de Protección Social el comprobante ganador original, no se aceptará copia, junto con la cédula de identidad vigente o documento de identidad vigente que lo identifique, para validar su premio y así poder realizar la entrega oficial del premio.
+La entrega del premio se efectuará en el Departamento de Mercadeo, en el momento que el ganador lo reclame, siempre y cuando no se exceda el período de caducidad, con toma de fotografía para publicar en redes sociales o en diferentes medios, en algunos casos se grabará una nota para el programa La Rueda de la Fortuna, de acuerdo con el objetivo de ésta promoción y respetando el derecho de imagen.

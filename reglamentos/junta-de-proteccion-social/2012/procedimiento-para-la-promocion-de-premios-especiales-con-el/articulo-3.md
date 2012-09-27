@@ -1,0 +1,2 @@
+Artículo 3: Detalle de los premios
+Se otorgará en el sorteo un cuadraciclo marca KAWASAKI, modelo Brute Force 650, con las siguientes características: año 2011, motor VF650AE644622, chasis JKAVFED14BB530171, combustible gasolina, 4 tiempos, arranque eléctrico, enfriado por agua, transmisión automática con sistema de reversa y bloque, tracción 4x4 ó 4x2, suspensión delantera independiente, frenos delanteros y traseros de disco independientes, equipado con rejillas para transporte de carga y otros, de 650 cc.
