@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento se aplicará a toda clase de transacciones, actos jurídicos, públicos o privados relacionados con los trámites internos de la Universidad, gestionados ante y por cualquier funcionario de la UTN.
