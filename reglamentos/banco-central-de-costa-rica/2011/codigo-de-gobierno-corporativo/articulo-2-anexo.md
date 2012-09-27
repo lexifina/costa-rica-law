@@ -1,17 +1,19 @@
 ANEXO 2. REGLAMENTO DE GOBIERNO CORPORATIVO SUGEF-SUGEVAL-SUPENSUGESE
 (Nota de Sinalevi: La presente norma se extrajo del sitio Web del Banco Central de Costa Rica , y se transcribe a continuación:)
+CONSEJO NACIONAL DE SUPERVISIÓN DEL
+SISTEMA FINANCIERO
+[imagen]
 REGLAMENTO DE GOBIERNO
 CORPORATIVO
 SUGEF-SUGEVAL-SUPENSUGESE
-APROBADO POR EL CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO, MEDIANTE ARTÍCULOS 16 Y 5 DE LAS ACTAS DE LAS SESIONES 787-2009 Y 788-2009, RESPECTIVAMENTE, CELEBRADAS EL 19 DE JUNIO DEL 2009. PUBLICADO EN EL DIARIO OFICIAL “LA GACETA” 129 DEL 6 DE JULIO DEL 2009.
-RIGE A PARTIR DE SU PUBLICACIÓN EN EL DIARIO OFICIAL “LA GACETA”
+APROBADO POR EL CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO, MEDIANTE ARTÍCULOS 16 Y 5 DE LAS ACTAS DE LAS SESIONES 787-2009 Y 788-2009, RESPECTIVAMENTE, CELEBRADAS EL 19 DE JUNIO DEL 2009. PUBLICADO EN EL DIARIO OFICIAL “ LA GACETA ” 129 DEL 6 DE JULIO DEL 2009.
+RIGE A PARTIR DE SU PUBLICACIÓN EN EL DIARIO OFICIAL “ LA GACETA ”
 “REGLAMENTO DE GOBIERNO CORPORATIVO
-CAPÍTULO I.
-DISPOSICIONES GENERALES
+CAPÍTULO I. DISPOSICIONES GENERALES
 Artículo 1. Objeto
 Este Reglamento tiene por objeto establecer los órganos de gobierno que deben tener como mínimo las entidades supervisadas, así como las políticas y procedimientos que deben emitir, con el fin de asegurar la adopción de sanas prácticas de gobierno corporativo.
 Artículo 2. Ámbito de aplicación
-Las disposiciones establecidas en el presente Reglamento son de aplicación para las entidades supervisadas por los órganos supervisores del sistema financiero costarricense, incluyendo la sociedad controladora de los grupos y conglomerados financieros; se deben aplicar en el tanto no contravengan lo establecido en leyes especiales vigentes
+Las disposiciones establecidas en el presente Reglamento son de aplicación para las entidades supervisadas por los órganos supervisores del sistema financiero costarricense, incluyendo la sociedad controladora de los grupos y conglomerados financieros; se deben aplicar en el tanto no contravengan lo establecido en leyes especiales vigentes.
 Los emisores no financieros de valores deben aplicar lo dispuesto en los artículos 8 y 20 del presente Reglamento, respecto a las declaraciones juradas que deben rendir el gerente general y presidente de la Junta Directiva u órgano equivalente, así como aplicar lo dispuesto en las Secciones II y IV del Capítulo III respecto al Comité de Auditoría. Les será aplicable también el resto de disposiciones de este Reglamento, a aquellos emisores que no adopten el Reglamento sobre gobierno corporativo y sus reformas emitido por la bolsa de valores respectiva.
 El reglamento de gobierno corporativo que emitan las bolsas de valores deben considerar como mínimo lineamientos sobre:
 a) Integración y operación de la Junta Directiva y responsabilidades de los miembros.
@@ -22,11 +24,11 @@ e) Elaboración y divulgación de un informe anual sobre el cumplimiento del reg
 f) Divulgación de la adopción del reglamento o código de gobierno corporativo.
 Artículo 3. Definiciones
 Para los propósitos de este Reglamento se entiende como:
-a) Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”, Acuerdo SUGEF 8-08.
+a) Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF , y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”, Acuerdo SUGEF 8-08.
 b) Ejecutivo: Cualquier persona física que, por su función, cargo o posición en una entidad, intervenga o tenga la posibilidad de intervenir en la toma de decisiones importantes dentro de la entidad.
 c) Entidad supervisada: Aquellas bajo el ámbito de regulación del Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF), la Superintendencia General de Entidades Financieras (SUGEF), la Superintendencia General de Valores (SUGEVAL), la Superintendencia de Pensiones (SUPEN) y la Superintendencia General de Seguros (SUGESE).
 d) Gobierno corporativo: Conjunto de políticas, normas y órganos internos mediante los cuales se dirige y controla la gestión de una entidad. Comprende las relaciones entre los accionistas o asociados, la Junta Directiva u órgano equivalente, ejecutivos, sus comités de apoyo, las unidades de control, la gerencia y las auditorías interna y externa.
-e) Grupo financiero: Conjunto de sociedades que realizan actividades financieras, constituidas como sociedades anónimas o como entes de naturaleza cooperativa, solidarista o mutualista, sometidas a control común, gestión común o vinculación funcional, y organizado y registrado conforme lo establece la Ley 7558 y el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”.
+e) Grupo financiero: Conjunto de sociedades que realizan actividades financieras, constituidas como sociedades anónimas o como entes de naturaleza cooperativa, solidarista o mutualista, sometidas a control común, gestión común o vinculación funcional, y organizado y registrado conforme lo establece la Ley 7558 y el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF , y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”.
 f) Grupo vinculado: Grupo conformado por todas las personas vinculadas por propiedad, por gestión, o ambos, según lo dispuesto en el “Reglamento sobre el grupo vinculado a la entidad” (Acuerdo SUGEF 4-04 vigente).
 g) Participación significativa: Se entiende como la titularidad de derechos que permitan, directa o indirectamente, ejercer el voto con al menos el diez por ciento (10%) del capital social de la entidad.
 h) Refrendar: Verificación de que cada una de las cuentas que integran los estados financieros fueron extraídos de los folios de los libros legalizados u hojas legalizadas que la entidad lleva para el registro contable de sus transacciones, así como la verificación de los importes incluidos en los estados financieros.
@@ -35,10 +37,8 @@ Artículo 4. Código de Gobierno Corporativo
 Las entidades supervisadas deben elaborar un documento denominado Código de Gobierno Corporativo que contenga la estructura de gobierno que ha establecido para la gestión del negocio, las políticas, el perfil de los directores así como los mecanismos y medios de control para acreditar su cumplimiento que ha dispuesto la entidad según lo señalado en este Reglamento. Este código y sus actualizaciones deben ser aprobados por la Junta Directiva u órgano equivalente y debe estar disponible en el sitio Web oficial.
 La Junta Directiva u órgano equivalente debe mantener actualizado el Código y por lo menos una vez al año, revisarlo.
 El Código de Gobierno Corporativo de la sociedad controladora de un grupo o conglomerado financiero costarricense, será de acatamiento obligatorio para las entidades miembros de dicho grupo o conglomerado, que sean supervisadas por alguna de las Superintendencias.
-CAPÍTULO II.
-JUNTA DIRECTIVA U ÓRGANO EQUIVALENTE
-Sección I.
-Integración e Idoneidad
+CAPÍTULO II. JUNTA DIRECTIVA U ÓRGANO EQUIVALENTE
+Sección I. Integración e Idoneidad
 Artículo 5. Integración
 La Junta Directiva u órgano equivalente debe integrarse según la ley específica que regule la entidad o, en ausencia de norma específica, de conformidad con lo establecido en el Código de Comercio y los estatutos de la sociedad.
 En la integración se debe considerar que los miembros de la Junta Directiva u órgano equivalente no pueden desempeñar cargos como gerente general o ejecutivo de la entidad.
@@ -51,8 +51,7 @@ d) Lineamientos para la formalidad y transparencia del proceso de propuesta y el
 Además debe establecerse los mecanismos y medios de control para acreditar el cumplimiento de requisitos previo a su nombramiento y durante el ejercicio de sus funciones. Como mínimo los miembros deben rendir una declaración jurada, en donde conste su firma debidamente autenticada por Notario Público, para verificar el cumplimiento de los requisitos, la cual se debe requerir en el momento del nombramiento y ser actualizada ante cualquier cambio.
 Si un miembro de la Junta Directiva u órgano equivalente deja de cumplir con los requisitos de idoneidad establecidos, la entidad debe proceder con su sustitución, según los lineamientos establecidos en los estatutos sociales respectivos o en la legislación especial que la regula.
 El órgano supervisor respectivo tendrá acceso a la documentación que demuestre el cumplimiento de los requisitos indicados.
-Sección II.
-Funciones
+Sección II. Funciones
 Artículo 7. Funciones
 Sin perjuicio de las funciones y responsabilidades que asignan las leyes, reglamentos y otros órganos a las juntas directivas u órganos equivalentes, éstos deben cumplir en forma colegiada al menos con las siguientes funciones:
 a) Establecer la visión, misión estratégica y valores de la entidad.
@@ -65,7 +64,7 @@ g) Aprobar el plan de continuidad de operaciones.
 h) Solicitar a la auditoría interna u órgano de control que aplique los informes sobre temas específicos, en el ámbito de su competencia e independencia funcional y de criterio, que requieran los órganos supervisores.
 i) Dar seguimiento a los informes de la auditoría interna u órgano de control que aplique relacionados con la atención, por parte de la administración, de las debilidades comunicadas por los órganos supervisores, auditores y demás entidades de fiscalización.
 j) Aprobar las políticas establecidas en el presente Reglamento, dentro de ellas las necesarias para procurar la confiabilidad de la información financiera y un adecuado ambiente de control interno de la entidad supervisada, así como las políticas de los comités de apoyo. En los casos en que aplique, se deben aprobar los procedimientos respectivos.
-k) Cumplir con sus funciones respecto a la información de los estados financieros y controles internos requeridos en el “Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE”. Evaluar periódicamente sus propias prácticas de gobierno corporativo y ejecutar los cambios a medida que se hagan necesarios, lo cual debe quedar debidamente documentado.
+k) Cumplir con sus funciones respecto a la información de los estados financieros y controles internos requeridos en el “Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE”. Evaluar periódicamente sus propias prácticas de gobierno corporativo y ejecutar los cambios a medida que se hagan necesarios, lo cual debe quedar debidamente documentado.
 l) Incluir o velar porque se incluya en el informe anual a la Asamblea General de Accionistas, u órgano equivalente, los aspectos relevantes de los trabajos realizados por cada uno de los comités y la cantidad de reuniones que se celebraron durante el periodo por cada comité.
 m) Mantener un registro actualizado de las políticas y decisiones acordadas en materia de gobierno corporativo.
 n) Promover una comunicación oportuna y transparente con los órganos supervisores, sobre situaciones, eventos o problemas que afecten o pudieran afectar significativamente a la entidad.
@@ -78,13 +77,13 @@ La Junta Directiva u órgano equivalente es responsable de que la información f
 Artículo 9. Operación
 Para cumplir adecuadamente con sus funciones y responsabilidades, la Junta Directiva u órgano equivalente debe reunirse con la frecuencia que le permita asegurar el seguimiento adecuado y permanente de los asuntos de la entidad, según lo establecido en la ley específica, disposiciones reglamentarias que las regulen o sus estatutos.
 Debe implementarse un proceso y un programa sobre la participación y la sucesión.
-Sección III .
-Políticas de Gobierno y Conflicto de interés
+Sección III. Políticas de Gobierno y Conflicto de interés
 Artículo 10. Políticas
 La Junta Directiva u órgano equivalente de las entidades supervisadas debe aprobar políticas claras, exhaustivas y auditables para el gobierno de la entidad y la administración de los conflictos de intereses actuales y potenciales que se identifiquen por las actuaciones de la entidad, sus directores y empleados en las relaciones con los clientes, órganos reguladores, otras entidades vinculadas y otros sujetos con los que interactúa regularmente la entidad.
 Las políticas de gobierno y conflicto de interés deben considerar como mínimo el contenido descrito en esta Sección. Además, la entidad debe establecer los lineamientos para la identificación y gestión de cualesquiera otros conflictos de intereses.
 Artículo 11. Políticas de selección, retribución, calificación y capacitación
-El objetivo de estas políticas consiste en la alineación de los intereses a largo plazo de la entidad con la selección y retribución de los miembros del órgano directivo, gerencias, ejecutivos, miembros de comité de apoyo, auditor interno y demás empleados o funcionarios de la entidad. Como mínimo la política debe considerar:
+El objetivo de estas políticas consiste en la alineación de los intereses a largo plazo de la entidad con la selección y retribución de los miembros del órgano directivo, gerencias, ejecutivos, miembros de comité de apoyo, auditor interno y demás empleados o funcionarios de la entidad.
+Como mínimo la política debe considerar:
 a) Requisitos de calificación, conocimientos o experiencia en la selección.
 b) Incompatibilidades y prohibiciones por posibles conflictos de intereses.
 c) Planes de sucesión, al menos para directores, gerentes y ejecutivos.
@@ -129,20 +128,16 @@ Deben establecerse e implementarse políticas de rotación para los miembros de 
 Artículo 18. Seguimiento de las Políticas de Gobierno Corporativo
 Se deben establecer políticas sobre las consecuencias para los miembros del órgano directivo, gerencias, ejecutivos, miembros de comité de apoyo, y demás empleados o funcionarios, por el incumplimiento de las políticas planteadas en el Código de Gobierno Corporativo.
 En el caso de entidades que se rijan por leyes especiales, debe hacerse una revelación de los tipos de sanciones que le aplican según la normativa respectiva.
-Sección IV.
-Informe Anual de Gobierno Corporativo
-Artículo 19. Informe anual de gobierno corporativ
+Sección IV. Informe Anual de Gobierno Corporativo
+Artículo 19. Informe anual de gobierno corporativo
 La Junta Directiva u órgano equivalente debe aprobar, remitir y publicar, por los medios que disponga el superintendente respectivo, el informe anual de gobierno corporativo con corte al 31 de diciembre. Dicho informe es de carácter público y deberá enviarse como máximo el último día hábil de marzo de cada año. El contenido mínimo del informe se establece en el Anexo 1 de este Reglamento.
 Las entidades que formen parte de grupos y conglomerados financieros supervisados por los órganos supervisores costarricenses, pueden remitir el informe anual de gobierno corporativo elaborado por la controladora para todo el grupo o conglomerado, a cada uno de los órganos supervisores.
-CAPÍTULO III .
-OTROS ÓRGANOS DE GOBIERNO
-Sección I.
-Gerencia General
+CAPÍTULO III. OTROS ÓRGANOS DE GOBIERNO
+Sección I. Gerencia General
 Artículo 20. Gerencia General
 La gerencia general debe desarrollar sus funciones acorde con los lineamientos del Código de Gobierno Corporativo aprobado. Además, debe establecer e implementar los controles internos y tomar las decisiones para que en la organización se acate lo dispuesto en dicho Código.
 La gerencia general, al igual que la Junta Directiva u órgano equivalente, son responsables de que la información financiera de la entidad sea razonable, para lo cual deben establecer los sistemas de control interno necesarios para obtener información financiera confiable y procurar un adecuado ambiente de control interno. El gerente general debe rendir una declaración jurada, respecto de su responsabilidad sobre los estados financieros y el control interno, para lo cual utilizarán como guía el formato que se adjunta como anexo 3 a este Reglamento. Dicha declaración se debe presentar conjuntamente con los estados financieros auditados a la Superintendencia respectiva.
-Sección II.
-Comité de Auditoría
+Sección II. Comité de Auditoría
 Artículo 21. Integración del Comité de Auditoría
 La Junta Directiva u órgano equivalente debe integrar un Comité de Auditoría, como órgano de apoyo para el control y seguimiento de las políticas, procedimientos y controles que se establezcan.
 El Comité de Auditoría es un cuerpo colegiado integrado por un mínimo de dos directores de la Junta Directiva u órgano equivalente y por el fiscal de dicho órgano o el presidente del comité de vigilancia en el caso de entidades cooperativas. Si la entidad, en virtud de su ley especial, no puede contar con un fiscal o comité de vigilancia, el Comité de Auditoría se integrará al menos con tres directores de la Junta Directiva u órgano equivalente. Adicionalmente, el Comité puede contar con miembros externos a la organización.
@@ -156,7 +151,7 @@ a) Propiciar la comunicación entre los miembros de la Junta Directiva u órgano
 b) Conocer y analizar los resultados de las evaluaciones de la efectividad y confiabilidad de los sistemas de información y procedimientos de control interno.
 c) Cuando exista la función de auditoría interna, proponer a la Junta Directiva u órgano equivalente los candidatos para auditor interno, excepto las entidades supervisadas que se rigen por lo dispuesto en la Ley General de Control Interno, Ley 8292.
 d) Dar seguimiento al cumplimiento del programa anual de trabajo de la auditoría Interna u órgano de control que aplique.
-e) Proponer a la Junta Directiva u órgano equivalente la designación de la firma auditora o el profesional independiente y las condiciones de contratación, una vez verificado el cumplimiento por parte de estos de los requisitos establecidos en el “Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE”.
+e) Proponer a la Junta Directiva u órgano equivalente la designación de la firma auditora o el profesional independiente y las condiciones de contratación, una vez verificado el cumplimiento por parte de estos de los requisitos establecidos en el “Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE”.
 f) Revisar la información financiera anual y trimestral antes de su remisión a la Junta Directiva u órgano equivalente, poniendo énfasis en cambios contables, estimaciones contables, ajustes importantes como resultado del proceso de auditoría, evaluación de la continuidad del negocio y el cumplimiento de leyes y regulaciones vigentes que afecten a la entidad.
 g) Revisar y trasladar a la Junta Directiva u órgano equivalente, los estados financieros anuales auditados, el informe del auditor externo, los informes complementarios y la carta de gerencia.
 h) En caso de que no se realicen los ajustes propuestos en los estados financieros auditados por el auditor externo, trasladar a la Junta Directiva u órgano equivalente un informe sobre las razones y fundamentos para no realizar tales ajustes. Este informe debe remitirse conjuntamente con los estados financieros auditados, asimismo debe presentarse firmado por el contador general y el gerente general o representante legal. En el caso de las entidades, grupos y conglomerados financieros supervisados por la Superintendencia General de Entidades Financieras, aplica lo establecido en el artículo 10 del “Reglamento Relativo a la Información Financiera de Entidades, Grupos y Conglomerados Financieros”.
@@ -164,24 +159,22 @@ i) Dar seguimiento a la implementación de las acciones correctivas que formulen
 j) Proponer a la Junta Directiva u órgano equivalente el procedimiento de revisión y aprobación de los estados financieros internos y auditados, desde su origen hasta la aprobación por parte de los miembros del respectivo cuerpo colegiado.
 k) Velar porque se cumpla el procedimiento de aprobación de estados financieros internos y auditados.
 l) Evitar los conflictos de interés que pudiesen presentarse con el profesional o la firma de contadores públicos que se desempeñan como auditores externos al contratarles para que realicen otros servicios para la empresa.
-m) Además de los informes particulares que se requieran para dar cumplimiento a las funciones aquí señaladas, el Comité de Auditoría debe rendir un reporte semestral sobre sus actividades a la Junta Directiva u órgano equivalente.
-Sección III .
-Comités de Apoyo
+m) Además de los informes particulares que se requieran para dar cumplimiento a las funciones aquí señaladas, el Comité de Auditoría debe rendir un reporte semestral sobre sus actividades
+a la Junta Directiva u órgano equivalente.
+Sección III. Comités de Apoyo
 Artículo 23. Comités de Apoyo
 La Junta Directiva u órgano equivalente o la gerencia, según corresponda, de las entidades supervisadas debe establecer los Comités de Apoyo que se requieran para la ejecución de las operaciones de la entidad, la observancia de las normativas aplicables y el ejercicio de las normas de gobierno corporativo.
 Los grupos y conglomerados financieros pueden contar con comités corporativos, para lo cual debe dejarse constancia sobre su creación y sujeción a las disposiciones corporativas en las actas de la Junta Directiva u órgano equivalente de la entidad controladora y comunicarlo a cada entidad supervisada.
 Es de observancia obligatoria por parte de la Junta Directiva u órgano equivalente o la gerencia, la integración del Comité de Cumplimiento como órgano de apoyo y vigilancia al Oficial de Cumplimiento. La integración, funciones y operación de este Comité y del Oficial de Cumplimiento se regirá por lo dispuesto en la Normativa para el Cumplimiento de la “Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo” Ley 8204.
 Artículo 24. Idoneidad de miembros de Comités de Apoyo
 Los miembros de los comités de apoyo deben contar con el conocimiento o experiencia de acuerdo con la normativa especial aplicable y con los requisitos aprobados por la Junta Directiva u órgano equivalente. Si un miembro no cumple con los requisitos de idoneidad exigidos en la normativa vigente o en las políticas internas de la entidad, se debe proceder con su sustitución, según los lineamientos establecidos por la entidad.
-Sección IV.
-Reglamentos Internos y Libros de Actas
+Sección IV. Reglamentos Internos y Libros de Actas
 Artículo 25. Reglamentos internos y libros de actas
 El Comité de Auditoría y cada comité de apoyo debe elaborar una propuesta de su reglamento de trabajo, el cual debe contener al menos las políticas y procedimientos para el cumplimiento de sus funciones, para la selección de los miembros del comité, esquema de votación, periodicidad de sus reuniones y los informes que se remitan a la Junta Directiva u órgano equivalente o gerencia, según corresponda.
 Dicha propuesta se debe adecuar a las disposiciones establecidas en el marco jurídico que le resulte aplicable y en este Reglamento. Los reglamentos y sus modificaciones deben ser aprobados por la autoridad competente de conformidad con la estructura de la entidad, y estar a disposición de la Superintendencia correspondiente.
 Los comités de apoyo deben reunirse con la periodicidad definida en su reglamento interno. En el caso del Comité de Auditoría las reuniones deben ser al menos cada tres meses, en las cuales pueden participar sin derecho a voto, el gerente general, el auditor interno, y los funcionarios que el Comité de Auditoría considere necesarios, así como el auditor externo cuando así lo requiera dicho comité.
-Los acuerdos adoptados en las reuniones del Comité de Auditoría y demás comités de apoyo deben constar en un Libro de Actas, el cual debe estar a disposición del órgano supervisor correspondiente. Este libro debe ser llevado en forma electrónica u otros medios, de acuerdo con las disposiciones que emita el órgano supervisor. En el caso de las entidades integrantes de la Hacienda Pública que estén sujetas a la supervisión de la SUGEF, la SUGEVAL, la SUPEN y la SUGESE, el Libro de Actas del Comité de Auditoría debe adicionalmente cumplir con la normativa aplicable emitida por la Contraloría General de la República.
-CAPÍTULO IV.
-AUDITORÍA INTERNA
+Los acuerdos adoptados en las reuniones del Comité de Auditoría y demás comités de apoyo deben constar en un Libro de Actas, el cual debe estar a disposición del órgano supervisor correspondiente. Este libro debe ser llevado en forma electrónica u otros medios, de acuerdo con las disposiciones que emita el órgano supervisor. En el caso de las entidades integrantes de la Hacienda Pública que estén sujetas a la supervisión de la SUGEF , la SUGEVAL , la SUPEN y la SUGESE , el Libro de Actas del Comité de Auditoría debe adicionalmente cumplir con la normativa aplicable emitida por la Contraloría General de la República.
+CAPÍTULO IV. AUDITORÍA INTERNA
 Artículo 26. Auditoría interna
 Las entidades supervisadas deben contar con un órgano de control, ya sea un funcionario, comité o área, encargado de revisar y analizar en forma objetiva la ejecución de las operaciones de la organización. Esto permite a la entidad contar con un enfoque sistemático para evaluar y mejorar la eficiencia de los sistemas de administración de riesgos, control y procesos de gobernabilidad.
 Debe gozar de independencia funcional y de criterio. Debe contar con los recursos y autoridad necesaria para el cumplimiento de sus funciones y debe actuar observando los principios de diligencia, lealtad y reserva.
@@ -198,13 +191,11 @@ h) Mantener a disposición del órgano supervisor correspondiente, los informes 
 i) Evaluar el cumplimiento de los procedimientos y políticas para la identificación de, al menos, los riesgos de crédito, legal, liquidez, mercado, operativo y reputación.
 j) Evaluar la idoneidad, suficiencia y cumplimiento de los procedimientos y políticas de las principales operaciones en función de los riesgos indicados en el literal anterior, incluyendo las transacciones que por su naturaleza se presentan fuera de balance, así como presentar las recomendaciones de mejora, cuando corresponda.
 En el caso de entidades sujetas al cumplimiento de la Ley General de Control Interno, deben considerar estas funciones en forma complementaria a lo dispuesto en dicha Ley.
-CAPÍTULO V.
-DISPOSICIONES FINALES
+CAPÍTULO V. DISPOSICIONES FINALES
 Artículo 28. Sanciones
 El no envío de información exigido en este Reglamento dentro de los plazos establecidos, será sancionado según el marco legal que rige para cada una de las entidades supervisadas.
 Artículo 29. Modificaciones al “Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN”
-a) Se modifica el nombre del Reglamento, para que en lo sucesivo se lea:
-“Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE.”
+a) Se modifica el nombre del Reglamento, para que en lo sucesivo se lea: “Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE.”
 b) Se reforma el artículo 1 a efecto de adicionar la Superintendencia General de Seguros, cuyo texto dirá:
 “Artículo 1°. Objeto
 (…) todo ello con el objeto de procurar la confiabilidad de la información financiera provista por los sujetos fiscalizados por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores, la Superintendencia de Pensiones y la Superintendencia General de Seguros, en adelante, las Superintendencias.”
@@ -213,10 +204,10 @@ c) Se adiciona un Transitorio. El texto dirá:
 De conformidad con lo acordado por el Consejo Nacional de Supervisión del Sistema Financiero, artículo 6 del acta de la sesión 732-2008 del 31 de julio del 2008, y durante el plazo del recargo de funciones de la Superintendencia General de Seguros en la Superintendencia de Pensiones, para efectos de este Reglamento deberá entenderse que toda referencia a la competencia de la Superintendencia o al Superintendente lo es a la Superintendencia o al Superintendente de Pensiones.”
 Artículo 30. Derogatorias
 Se deroga:
-a) El Acuerdo SUGEF 12-96 “Directrices que regirán las labores de las auditorías internas en los entes fiscalizados por la Superintendencia General de Entidades Financieras (SUGEF)”, publicado en el diario oficial “La Gaceta” N° 231, del 2 de diciembre de 1996.
+a) El Acuerdo SUGEF 12-96 “Directrices que regirán las labores de las auditorías internas en los entes fiscalizados por la Superintendencia General de Entidades Financieras (SUGEF)”, publicado en el diario oficial “ La Gaceta ” N° 231, del 2 de diciembre de 1996.
 b) Los artículos 20, 23, 24, 25, 26, 27, 28, 29 y los anexos 1-A y 1-B del “Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN” y se reenumeran, los capítulos y el articulado respectivo de dicho Reglamento.
 Artículo 31. Vigencia
-El presente Reglamento rige a partir de su publicación en el diario oficial “La Gaceta”.
+El presente Reglamento rige a partir de su publicación en el diario oficial “ La Gaceta ”.
 TRANSITORIO I
 La Junta Directiva u órgano equivalente de las entidades supervisadas debe aprobar y publicar el código de gobierno corporativo establecido en este Reglamento, a más tardar al 30 de noviembre de 2009.
 TRANSITORIO II
@@ -258,7 +249,7 @@ e) Indique la cantidad de sesiones que realizó la Junta Directiva u órgano equ
 f) Indique la existencia de las políticas sobre conflicto de interés, el lugar en que están disponibles para su consulta, y las modificaciones que se hayan realizado durante el periodo.
 g) Realice una descripción de las políticas para la remuneración de los miembros de la Junta Directiva u órgano equivalente que se hayan aprobado.
 h) Si la entidad ha dispuesto voluntariamente una política interna sobre rotación, realice una descripción de las políticas sobre rotación de los miembros de la Junta Directiva u órgano equivalente.
-III . Comités de apoyo
+III. Comités de apoyo
 a) Indique los comités de apoyo con que cuenta la entidad en donde se incluya al menos la siguiente información:
 i. Nombre del comité.
 ii. Cantidad de miembros.
@@ -324,19 +315,19 @@ v. Puesto de bolsa designado para su ejecución
 vi. Saldo recomprado en el periodo (monto o número de acciones)
 vii. Saldo recomprado acumulado (monto o número de acciones)
 viii. Informar si planea vender las acciones recompradas, así como las condiciones en que lo haría.
-VII . Preparación del informe
+VII. Preparación del informe
 a) Fecha y número de sesión en que se haya aprobado el informe anual de gobierno corporativo por parte de la Junta Directiva u órgano equivalente.
 b) Nombre de los miembros de Junta Directiva u órgano equivalente que hayan votado en contra o se hayan abstenido en relación con la aprobación del informe anual de gobierno corporativo.
 ANEXO 2
 CONTENIDO MÍNIMO DE LA DECLARACIÓN JURADA FIRMADA POR EL
 PRESIDENTE DE JUNTA DIRECTIVA U ÓRGANO EQUIVALENTE
-(PERSONA RESPONSABLE), a partir de un proceso de debida diligencia en relación con la información financiera de (NOMBRE DE LA ENTIDAD) y sus sistemas de control interno para el periodo que termina el (FECHA) declaro bajo fe de juramento que:
-a. Hasta donde tengo conocimiento los estados financieros de (NOMBRE DE LA ENTIDAD) no contienen ninguna aseveración falsa de un hecho material ni omiten incorporar un hecho material necesario para que las declaraciones realizadas no resulten engañosas.
-b. Hasta donde tengo conocimiento los estados financieros y cualquier otra información financiera complementaria adjunta a esta declaración presentan razonablemente en todos los aspectos materiales la situación financiera de (NOMBRE DE LA ENTIDAD) así como el resultado de sus operaciones para el periodo que termina el (FECHA).
-c. (NOMBRE DE LA ENTIDAD) ha establecido y mantenido los controles y procedimientos efectivos y eficientes que aseguren que la información material relacionada con la entidad y sus subsidiarias consolidadas. Asimismo ha procurado contar con el personal idóneo y capacitado para manejar el control interno.
+(PERSONA RESPONSABLE), a partir de un proceso de debida diligencia en relación con la información financiera de (NOMBRE DE LA ENTIDAD ) y sus sistemas de control interno para el periodo que termina el (FECHA) declaro bajo fe de juramento que:
+a. Hasta donde tengo conocimiento los estados financieros de (NOMBRE DE LA ENTIDAD ) no contienen ninguna aseveración falsa de un hecho material ni omiten incorporar un hecho material necesario para que las declaraciones realizadas no resulten engañosas.
+b. Hasta donde tengo conocimiento los estados financieros y cualquier otra información financiera complementaria adjunta a esta declaración presentan razonablemente en todos los aspectos materiales la situación financiera de (NOMBRE DE LA ENTIDAD ) así como el resultado de sus operaciones para el periodo que termina el (FECHA).
+c. (NOMBRE DE LA ENTIDAD ) ha establecido y mantenido los controles y procedimientos efectivos y eficientes que aseguren que la información material relacionada con la entidad y sus subsidiarias consolidadas. Asimismo ha procurado contar con el personal idóneo y capacitado para manejar el control interno.
 d. Se ha velado para que el Comité de Auditoría se reúna periódicamente, se lleven minutas de las reuniones y reporte con prontitud a la Junta Directiva. Asimismo han revisado y aprobado los estados financieros mensuales de la entidad.
 e. Se ha procurado la existencia de una auditoría interna con independencia de criterio.
-f. De acuerdo con lo informado por el Comité de Auditoría, se ha verificado el cumplimiento de los requisitos de independencia, experiencia e idoneidad establecidos en el Capítulo II del “Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE”.
+f. De acuerdo con lo informado por el Comité de Auditoría, se ha verificado el cumplimiento de los requisitos de independencia, experiencia e idoneidad establecidos en el Capítulo II del “Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE”.
 g. He recibido y entendido toda la información significativa que me ha suministrado el Gerente General y el Comité de Auditoría respecto a:
 i. Todas las deficiencias significativas en el diseño u operación de los controles internos, los cuales pueden tener un efecto adverso para la habilidad de la entidad de recopilar, procesar, seleccionar y reportar la información financiera.
 ii. La existencia de cualquier tipo de fraude que envuelva a gerentes u otros empleados que desempeñen un rol significativo en el control interno de la entidad.
@@ -345,11 +336,11 @@ Es todo. Al ser las (HORA) horas del (DÍA) de (MES) de (AÑO). FIRMA
 ANEXO 3
 CONTENIDO MÍNIMO DE LA DECLARACIÓN JURADA FIRMADA POR EL
 GERENTE GENERAL
-(PERSONA RESPONSABLE), a partir de un proceso de debida diligencia en relación con la información financiera de (NOMBRE DE LA ENTIDAD) y sus sistemas de control interno para el periodo que termina el (FECHA) declaro bajo fe de juramento que:
-a. Los estados financieros de (NOMBRE DE LA ENTIDAD) no contienen ninguna aseveración falsa de un hecho material ni omiten incorporar un hecho material necesario para que las declaraciones realizadas no resulten engañosas.
-b. Los estados financieros y cualquier otra información financiera complementaria adjunta a esta declaración presentan razonablemente en todos los aspectos materiales la situación financiera de (NOMBRE DE LA ENTIDAD) así como el resultado de sus operaciones para el periodo que termina el (FECHA).
-c. (NOMBRE DE LA ENTIDAD) ha establecido y mantenido los controles y procedimientos efectivos y eficientes que aseguren que la información material relacionada con la entidad y sus subsidiarias consolidadas. Asimismo ha procurado contar con el personal idóneo y capacitado para manejar el control interno.
-d. Se ha verificado el cumplimiento de los requisitos de independencia, experiencia e idoneidad establecidos en el Capítulo II del “Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE”.
+(PERSONA RESPONSABLE), a partir de un proceso de debida diligencia en relación con la información financiera de (NOMBRE DE LA ENTIDAD ) y sus sistemas de control interno para el periodo que termina el (FECHA) declaro bajo fe de juramento que:
+a. Los estados financieros de (NOMBRE DE LA ENTIDAD ) no contienen ninguna aseveración falsa de un hecho material ni omiten incorporar un hecho material necesario para que las declaraciones realizadas no resulten engañosas.
+b. Los estados financieros y cualquier otra información financiera complementaria adjunta a esta declaración presentan razonablemente en todos los aspectos materiales la situación financiera de (NOMBRE DE LA ENTIDAD ) así como el resultado de sus operaciones para el periodo que termina el (FECHA).
+c. (NOMBRE DE LA ENTIDAD ) ha establecido y mantenido los controles y procedimientos efectivos y eficientes que aseguren que la información material relacionada con la entidad y sus subsidiarias consolidadas. Asimismo ha procurado contar con el personal idóneo y capacitado para manejar el control interno.
+d. Se ha verificado el cumplimiento de los requisitos de independencia, experiencia e idoneidad establecidos en el Capítulo II del “Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE”.
 e. Se ha revelado al Comité de Auditoría, a la Junta Directiva u órgano equivalente y a los auditores externos lo siguiente:
 i. Todas las deficiencias significativas en el diseño u operación de los controles internos, los cuales pueden tener un efecto adverso para la habilidad de la entidad de recopilar, procesar, seleccionar y reportar la información financiera.
 ii. La existencia de cualquier tipo de fraude que envuelva gerentes u otros empleados que tienen un rol significativo en el control interno de la entidad.

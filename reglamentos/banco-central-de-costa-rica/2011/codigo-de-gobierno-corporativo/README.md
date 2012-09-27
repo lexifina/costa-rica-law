@@ -14,3 +14,4 @@ Código de Gobierno Corporativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-25 | la propia norma |
+| 2 | 2012-09-27 | Reglamento 5563 (2012-09-27) |
