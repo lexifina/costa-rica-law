@@ -1,5 +1,3 @@
 Artículo 83.- Incumplimiento en el suministro de información
-En caso de imcumplimiento en el suministro de información, se aplicarán las siguientes sanciones:
-a) Sanción equivalente a dos salarios base, cuando se incumpla la obligación de suministrar la información dentro del plazo determinado por la ley, el reglamento o la Administración Tributaria.
-b) Sanción de un salario base cuando la información se presente con errores de contenido o no corresponda a lo solicitado.
-(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)
+En caso de incumplimiento en el suministro de información, se aplicará una sanción equivalente a una multa pecuniaria proporcional del dos por ciento (2%) de la cifra de ingresos brutos del sujeto infractor, en el período del impuesto sobre las utilidades, anterior a aquel en que se produjo la infracción, con un mínimo de diez salarios base y un máximo de cien salarios base. De constatarse errores en la información suministrada, la sanción será de un uno por ciento (1%) del salario base por cada registro incorrecto, entendido como registro la información de trascendencia tributaria sobre una persona física o jurídica u otras entidades sin personalidad jurídica.
+(Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

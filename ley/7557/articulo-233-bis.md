@@ -1,0 +1,3 @@
+Artículo 233 bis.- Autoliquidación de sanciones
+El sujeto pasivo podrá autodeterminar la multa correspondiente. En este caso, utilizando los medios que defina la Dirección General de Aduanas, podrá fijar el importe que corresponde de acuerdo con la sanción de que se trate y, una vez realizada la autoliquidación, podrá pagar el monto determinado. El sujeto pasivo deberá comunicar a la autoridad aduanera el pago realizado, sin demérito de las facultades de control a cargo de la autoridad aduanera.
+(Así adicionado por el artículo 5° de la ley N° 9069 del 10 de setiembre del 2012,"Ley de Fortalecimiento de la Gestión Tributaria")

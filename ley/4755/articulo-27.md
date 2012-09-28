@@ -1,6 +1,3 @@
-Artículo 27.- Personas jurídicas. Para todos los efectos tributarios, se presume que el domicilio en el país de las personas jurídicas es:
-a) El lugar donde se encuentre su dirección o su administración central;
-b) El lugar donde se halle el centro principal de su actividad en Costa Rica, en caso de no conocerse dicha dirección o administración;
-c) El lugar donde ocurra el hecho generador de la obligación tributaria, a falta de los anteriores; y
-d) El que elija la Administración Tributaria, en caso de existir más de un domicilio de los contemplados en este artículo.
-Las disposiciones de este artículo se aplican también a las sociedades de hecho, fideicomisos, sucesiones y entidades análogas que no sean personas naturales.
+Artículo 27.- Domicilio fiscal de personas físicas
+Para las personas físicas es el lugar donde tengan su residencia habitual. No obstante, para las personas físicas que desarrollen principalmente actividades económicas, en los términos que reglamentariamente se determinen, la Administración Tributaria podrá considerar como domicilio fiscal el lugar donde esté efectivamente centralizada la gestión administrativa y la dirección de las actividades desarrolladas.
+(Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

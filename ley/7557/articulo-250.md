@@ -1,3 +1,1 @@
-ARTICULO 250.- Impugnación
-Los datos que suministre y utilice el Servicio Nacional de Aduanas
-estarán sujetos a los medios de impugnación que establece la ley.
+ARTICULO 250.- (Derogado por el artículo 7° de la ley N° 9069 del 10 de setiembre de 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

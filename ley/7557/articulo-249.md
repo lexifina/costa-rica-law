@@ -1,7 +1,1 @@
-ARTICULO 249.- Requerimientos
-Para el desempeño de las funciones del Organo nacional de valoración
-y verificación aduanera, el Ministerio de Hacienda proporcionará la
-infraestructura informática y tecnológica para conformar y actualizar una
-base de datos y la infraestructura de telecomunicaciones en el nivel
-nacional, a fin de interconectar las diferentes oficinas aduaneras con la
-base nacional de datos.
+ARTICULO 249.- (Derogado por el artículo 7° de la ley N° 9069 del 10 de setiembre de 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

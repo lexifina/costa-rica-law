@@ -1,6 +1,8 @@
-Artículo 128 bis.- Venta de formularios.
-Facúltase a la Administración Tributaria para vender los formularios utilizados para el cumplimiento de las obligaciones tributarias, tanto formales como sustanciales, de los sujetos pasivos, cuando así lo determine mediante resolución general.
-La Administración queda facultada para adoptar convenios con entidades públicas y privadas para que emitan, distribuyan y vendan los formularios. Las entidades autorizadas deberán cumplir con las condiciones y los requisitos dispuestos en la resolución general de la Administración, de manera que se garanticen el control tributario y la distribución correcta de los formularios.
-La Administración fijará, por medio de resolución general, el precio público de tales formularios, los cuales estarán exentos del impuesto de ventas.
-La suma que los sujetos pasivos paguen por los formularios citados se considerará gasto deducible de la renta bruta para calcular el impuesto sobre las utilidades.
+Artículo 128 bis.- Venta de formularios
+Se faculta a la Administración Tributaria para vender los formularios utilizados para el cumplimiento de las obligaciones tributarias, así como para cobrar por servicios que puedan facilitar el cumplimiento de las obligaciones fiscales a los contribuyentes, tanto formales como sustanciales, de los sujetos pasivos, cuando así lo determine mediante resolución general.
+La Administración queda facultada para adoptar convenios con entidades públicas y privadas, para que emitan, distribuyan y vendan los formularios, siguiendo para ello los procedimientos establecidos en la Ley de Contratación Administrativa y su reglamento, evitándose, en todo caso, que las entidades seleccionadas controlen el mercado e impongan las condiciones en que el servicio será prestado. Las entidades autorizadas deberán cumplir las condiciones y los requisitos dispuestos en la resolución general dictada por la Administración , debidamente aprobada por la Contraloría General de la República , de manera que se garanticen el control tributario, la distribución correcta de los formularios y el costo razonable para el usuario.
+La Administración fijará, por medio de resolución general y con base en su costo, la tasa de tales formularios o servicios, los cuales serán no sujetos al impuesto general sobre las ventas.
+La suma que los sujetos pasivos paguen por los formularios citados se considerará gasto deducible de la renta bruta, para calcular el impuesto sobre las utilidades.
+Se entiende que estos formularios pueden ser electrónicos.
 (Así adicionado por el artículo 1º de la ley No.7865 de 22 de febrero de 1999)
+(Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")
