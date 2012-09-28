@@ -1,0 +1,3 @@
+Artículo 227 bis.- Cobro de tributos cuando exista causa penal pendiente
+En los supuestos en que la autoridad aduanera estime que las irregularidades detectadas pudieran ser constitutivas de delito, deberá presentar la denuncia ante el Ministerio Público y se abstendrá de seguir el procedimiento administrativo sancionador hasta que concluya el proceso penal, en cuyo caso se suspenderá la prescripción del procedimiento sancionatorio. Lo anterior no impide el cobro de los tributos adeudados y sus intereses, de conformidad con el procedimiento administrativo respectivo.
+(Así adicionado por el artículo 5° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

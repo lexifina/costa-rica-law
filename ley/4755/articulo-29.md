@@ -1,4 +1,6 @@
-Artículo 29.- Domicilio especial. Los contribuyentes y los responsables pueden fijar un domicilio especial para los efectos tributarios con la conformidad expresa de la Administración Tributaria, la cual sólo puede negar su aceptación, mediante resolución fundada firme, si resulta inconveniente para el correcto desempeño de las tareas de terminación y recaudación de los tributos.
-La aceptación de dicha Administración se presume si no manifiesta oposición dentro de los treinta días.
-El domicilio especial así constituido es el único válido para todos los efectos tributarios.
-La Administración Tributaria puede en cualquier momento exigir la constitución de un domicilio especial o el cambio del ya existente, cuando, a través de una resolución fundada firme, demuestre que ocurre la circunstancia prevista en la última parte del primer párrafo de este artículo.
+Artículo 29.- Personas domiciliadas en el extranjero
+En cuanto a las personas domiciliadas en el extranjero, rigen las siguientes normas:
+a) Si tienen establecimiento permanente en el país, se deben aplicar a este las disposiciones de los artículos 26 y 27 de este Código.
+b) En los demás casos, el domicilio es el de su representante legal.
+c) A falta de dicho representante, se debe tener como domicilio el lugar donde ocurra el hecho generador de la obligación tributaria.
+(Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria ")

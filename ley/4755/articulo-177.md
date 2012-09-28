@@ -1,2 +1,3 @@
-Artículo 177.- Honorarios abogados de la Oficina de Cobros. Los honorarios de los abogados de la Oficina de Cobros se deben regir por lo que dispone el artículo 100 de la Ley Reguladora de la Jurisdicción Contencioso-Administrativa.
-(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 168 al actual)
+Artículo 177.- Límites de la avocación
+El superior jerárquico de la Administración Tributaria no puede avocar el conocimiento y la decisión de un asunto confiado con carácter general para su decisión al inferior jerárquico, cuando a dicho superior no le corresponda resolver en grado el recurso.
+(Así adicionado por el artículo 2° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de fortalecimiento de la Gestión Tributaria")

@@ -1,9 +1,8 @@
-TITULO VIII
+TITULO IX
+(Corrida la numeración del Título anterior por el artículo 2° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de fortalecimiento de la Gestión Tributaria", que lo traspasó del antiguo Título VIII al Título IX)
 DISPOSICIONES TRANSITORIAS
 CAPITULO UNICO
-Transitorio I.- El Presidente y los cuatro propietarios del acual -sic- (*) Tribunal Fiscal Administrativo, deben pasar a integrar, hasta
-completar un período de ocho años, el nuevo Tribunal que instituye el Título V de este Código y deben desempeñar sus cargos conforme a la
-siguiente división de funciones:
+Transitorio I.- El Presidente y los cuatro propietarios del acual -sic- (*) Tribunal Fiscal Administrativo, deben pasar a integrar, hasta completar un período de ocho años, el nuevo Tribunal que instituye el Título V de este Código y deben desempeñar sus cargos conforme a la siguiente división de funciones:
 a) Presidente del Tribunal: El Presidente del actual Tribunal Fiscal Administrativo;
 b) Propietarios de la Sala Primera: Los dos miembros con títulos de abogado y contador público autorizado; y
 c) Propietarios de la Sala Segunda: El Presidente del Tribunal y los dos miembros con título de Ingeniero. Al concluir dicho período se aplicará lo establecido por el párrafo final del artículo 153 (**), con aquellos miembros que reúnan los requisitos enunciados en el artículo 151 (**) ibídem.
