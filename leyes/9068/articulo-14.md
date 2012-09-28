@@ -1,0 +1,3 @@
+ARTÍCULO 14.- Se reforma el artículo 271 del Código de Comercio, Ley N.º 3284, de 30 de abril de 1964, y sus reformas. El texto es el siguiente:
+“Artículo 271.-
+Si fallece el comerciante o empresario, se presume que los libros, los comprobantes y la correspondencia están en poder de los herederos. En caso de liquidación deben conservarlos los liquidadores por el tiempo indicado de cinco años, y si se trata de quiebra, los conservará el juzgado respectivo. En todos estos casos, los tenedores de los libros y los comprobantes están obligados a exhibirlos en la misma forma que el dueño original, bajo pena de resarcir daños y perjuicios, si se negaran a hacerlo.”
