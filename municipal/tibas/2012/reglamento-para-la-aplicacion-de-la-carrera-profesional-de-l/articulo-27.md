@@ -1,0 +1,1 @@
+Artículo 27.—La obtención de una calificación inferior a Muy Bueno será motivo para no otorgar el ajuste que se solicita. El año de experiencia respectivo, no será tomado en cuenta por lo tanto en estudios posteriores.

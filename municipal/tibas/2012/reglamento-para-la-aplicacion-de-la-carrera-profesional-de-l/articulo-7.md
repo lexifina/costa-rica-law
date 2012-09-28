@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión de Carrera Profesional no hará estudios de oficio, solo realizará aquellos a solicitud de los interesados, excepto en la ponderación del factor experiencia lo cual deberá hacerse de oficio, para lo que requerirá llevar los controles indispensables para ello.
