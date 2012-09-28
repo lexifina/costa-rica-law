@@ -1,4 +1,1 @@
-ARTICULO 247.- Obligación de archivos
-Los agentes aduaneros deberán mantener, en sus archivos, por un plazo
-no menor de cinco años, copia de las cédulas jurídicas, personerías y
-demás documentos necesarios para la declaración aduanera de sus clientes.
+ARTICULO 247.- (Derogado por el artículo 7° de la ley N° 9069 del 10 de setiembre de 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

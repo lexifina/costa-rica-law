@@ -1,4 +1,7 @@
-ARTICULO 61.- Pago
-El adeudo tributario no pagado en cinco días hábiles contados a partir de su notificación se incrementará con un interés igual a la tasa básica pasiva calculada por el Banco Central de Costa Rica, vigente a la fecha de vencimiento del plazo, más quince puntos. Igual interés devengarán las deudas de la autoridad aduanera resultantes del cobro indebido de tributos, en los términos y las condiciones de los artículos 47 y 58 del Código de Normas y Procedimientos Tributarios.
-Las formas de pago admisibles serán la vía electrónica u otras autorizadas reglamentariamente.
-(Así reformado por artículo 1° de la Ley No. 8373 de 18 de agosto de 2003).
+Artículo 61.- Pago
+La obligación tributaria aduanera deberá pagarse en el momento en que ocurre el hecho generador. El pago efectuado fuera de ese término produce la obligación de pagar un interés, junto con el tributo adeudado. En todos los casos, los intereses se calcularán a partir de la fecha en que los tributos debieron pagarse, sin necesidad de actuación alguna de la administración aduanera.
+En los casos en que la resolución determinativa de la obligación tributaria o la que resuelva recursos contra dichas resoluciones se dicte fuera de los plazos establecidos, el cómputo de los intereses se suspenderá durante el tiempo que se haya excedido para la emisión de dichos actos.
+Los medios de pago admisibles serán la vía electrónica u otros autorizados reglamentariamente.
+La administración aduanera, mediante resolución, fijará la tasa del interés, la cual deberá ser equivalente al promedio simple de las tasas activas de los bancos estatales para créditos del sector comercial y, en ningún caso, podrá exceder en más de diez puntos de la tasa básica pasiva fijada por el Banco Central de Costa Rica. Dicha tasa deberá actualizarse al menos cada seis meses.
+Igual interés devengarán las deudas de la autoridad aduanera resultantes del cobro indebido de tributos, en los términos y las condiciones de los artículos 43 y 58 del Código de Normas y Procedimientos Tributarios.
+(Así reformado por el artículo 4° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

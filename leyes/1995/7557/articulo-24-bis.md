@@ -1,0 +1,7 @@
+Artículo 24 bis.- Regularización
+Cuando el órgano fiscalizador de la Dirección General de Aduanas, en el ejercicio de sus atribuciones aduaneras, establezca que no se cancelaron los tributos debidos, deberá proponer al sujeto pasivo la regularización de su situación, de conformidad con los procedimientos definidos por el reglamento de esta ley y el Servicio Aduanero.
+Los casos excepcionales para los cuales no será obligatoria la propuesta de regularización se establecerán mediante el reglamento de esta ley.
+La conformidad total o parcial del sujeto pasivo, con la propuesta de regularización, constituye una manifestación voluntaria de aceptación de los adeudos tributarios y sus intereses, determinados por el órgano fiscalizador.
+En caso de que el sujeto pasivo manifieste su conformidad con la propuesta, él mismo deberá realizar el pago por la totalidad del monto adeudado, por los medios acordados en la audiencia de regularización y en el plazo de cinco días hábiles posteriores a la realización de dicha audiencia. Caso contrario, por tratarse de una obligación líquida y exigible, la autoridad aduanera procederá a la ejecución del cobro correspondiente, sin necesidad de ulterior procedimiento.
+En el supuesto de que el sujeto pasivo no acepte regularizar su situación, la autoridad aduanera seguirá el procedimiento administrativo ordinario establecido en esta ley.
+(Así adicionado por el artículo 5° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

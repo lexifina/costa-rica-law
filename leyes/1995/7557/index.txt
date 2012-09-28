@@ -23,6 +23,7 @@ articulo-21.md
 articulo-22.md
 articulo-23.md
 articulo-24.md
+articulo-24-bis.md
 articulo-25.md
 articulo-26.md
 articulo-27.md
@@ -73,6 +74,7 @@ articulo-67.md
 articulo-68.md
 articulo-69.md
 articulo-70.md
+articulo-70-bis.md
 articulo-71.md
 articulo-72.md
 articulo-73.md
@@ -150,6 +152,7 @@ articulo-138.md
 articulo-139.md
 articulo-140.md
 articulo-141.md
+articulo-141-bis.md
 articulo-142.md
 articulo-143.md
 articulo-144.md
@@ -241,12 +244,15 @@ articulo-224.md
 articulo-225.md
 articulo-226.md
 articulo-227.md
+articulo-227-bis.md
 articulo-228.md
 articulo-229.md
 articulo-230.md
 articulo-231.md
+articulo-231-bis.md
 articulo-232.md
 articulo-233.md
+articulo-233-bis.md
 articulo-234.md
 articulo-235.md
 articulo-236.md
@@ -257,6 +263,7 @@ articulo-239.md
 articulo-240.md
 articulo-241.md
 articulo-242.md
+articulo-242-bis.md
 articulo-243.md
 articulo-244.md
 articulo-245.md
