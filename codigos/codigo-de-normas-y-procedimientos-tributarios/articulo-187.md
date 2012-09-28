@@ -1,0 +1,4 @@
+Artículo 187.- Motivación de los actos
+Los actos jurídicos y las actuaciones materiales de la Administración Tributaria deben ser motivados, cuando establezcan deberes u obligaciones a cargo de los contribuyentes. La motivación consistirá en la referencia explícita o inequívoca a los motivos de hecho y de derecho que sirven de fundamento a la decisión. La falta de motivación de un acto o de una actuación material de la Administración, en los términos expresados, causa su nulidad.
+Toda resolución de la Administración Tributaria debe reunir los requisitos establecidos por la normativa aplicable, así como indicar, si es del caso, las infracciones cometidas, las sanciones y los recargos que procedan.
+(Así adicionado por el artículo 2° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de fortalecimiento de la Gestión Tributaria")

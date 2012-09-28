@@ -1,0 +1,3 @@
+Artículo 185.- Carga de la prueba
+La carga de la prueba incumbe a la Administración Tributaria respecto de los hechos constitutivos de la obligación tributaria material, mientras que incumbe al contribuyente respecto de los hechos impeditivos, modificativos o extintivos de la obligación tributaria. En ese sentido, corresponde a este último, según el caso, demostrar los hechos o actos que configuren sus costos, gastos, pasivos, créditos fiscales, exenciones, no sujeciones, descuentos y, en general, los beneficios fiscales que alega existentes a su favor.
+(Así adicionado por el artículo 2° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de fortalecimiento de la Gestión Tributaria")

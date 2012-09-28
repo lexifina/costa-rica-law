@@ -1,3 +1,6 @@
-Artículo 176.- Limitaciones al embargo administrativo y sustitución. El embargo administrativo que autorizan los artículos 174 y 175 (*) de este Código se debe practicar observando las limitaciones que establecen los artículos 984 del Código Civil y 172 del Código de Trabajo, pudiendo ser sustituido por garantía suficiente a juicio de la Oficina de Cobros.
-(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 167 al actual)
-(*) (Así reformado tácitamente por el artículo 10 de la indicada Ley de Justicia Tributaria, que corrió la numeración de los antiguos artículos 165 y 166, siendo ahora 174 y 175, respectivamente)
+CAPÍTULO III
+GARANTÍAS PROCESALES
+Artículo 176.- Observancia del procedimiento
+Las normas del procedimiento administrativo tributario serán de observancia obligatoria para la Administración Tributaria, como garantía de eficiencia y defensa de los derechos del contribuyente. El órgano administrativo competente de conocer en grado, de oficio o en virtud de recurso declarará la nulidad del acto, prima facie, antes de conocer sobre el fondo del asunto, cuando exista una violación al procedimiento o a los derechos del contribuyente.
+Las actuaciones administrativas contrarias a derecho, así como la información y las demás pruebas obtenidas por la Administración Tributaria de forma ilegal, no podrán surtir efecto alguno en contra del contribuyente.
+(Así adicionado por el artículo 2° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de fortalecimiento de la Gestión Tributaria")

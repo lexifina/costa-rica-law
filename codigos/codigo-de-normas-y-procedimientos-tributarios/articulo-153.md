@@ -1,3 +1,5 @@
-Artículo 153.- Inicio de causa.
-Para iniciar la causa, no será necesario que el procedimiento de determinación de los tributos haya agotado la vía administrativa.
+Artículo 153.- Inicio de causa
+Para iniciar el procedimiento sancionador por las infracciones establecidas en el artículo 81 de este Código, no será necesario que el procedimiento de determinación de los tributos haya agotado la vía administrativa.
+Acorde con lo anterior, cada órgano que deba intervenir en el procedimiento ha de dictar el acto que le corresponda según lo dispuesto en el artículo 150 anterior, inmediatamente después de haber emitido el que le corresponda en el procedimiento de liquidación de oficio a que se refieren los artículos 144 a 146 de este Código. Sin perjuicio de lo anterior, la ejecución de la sanción quedará automáticamente suspendida sin necesidad de aportar garantía, por la presentación en tiempo y forma de los recursos administrativos que procedan contra aquella y sin que pueda ejecutarse hasta que quede firme en vía administrativa.
 (Así adicionado por el artículo 9 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995. El artículo 10 de esa misma ley corrigió la numeración subsiguiente, siendo el antiguo numeral 153 el actual 162)
+(Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012 "Ley de Fortalecimiento de la Gestión Tributaria")

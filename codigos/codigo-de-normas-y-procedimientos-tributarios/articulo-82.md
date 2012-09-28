@@ -1,8 +1,14 @@
-Artículo 82.- Hechos irregulares en la contabilidad
-Serán sancionados con una multa equivalente a un salario base, quienes incurran en las siguientes infracciones:
-a) No llevar libros de contabilidad, si existe obligación de llevarlos.
-b) No tener legalizados los libros de contabilidad, cuando sea obligatorio.
-c) No exhibir los libros de contabilidad o los justificantes de las operaciones cuando las autoridades tributarias lo exigan.
-d) Mantener los libros con un atraso superior a los tres meses.
-Impuesta una sanción en virtud de alguna de las causales anteriores, no podrá volverse a sancionar por la misma causal en un plazo de dos meses.
-(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)
+Artículo 82.- Resistencia a las actuaciones administrativas de control
+Constituye infracción tributaria la resistencia a las actuaciones de control del cumplimiento de deberes materiales y formales debidamente notificadas a un determinado sujeto pasivo. Se entenderá como actuación de la Administración toda acción realizada con la notificación al sujeto pasivo, conducente a verificar el cumplimiento de las obligaciones tributarias referidas al impuesto y el período del que se trate.
+Se entiende producida esta circunstancia, cuando se incurra en cualquiera de las siguientes conductas:
+a)No facilitar el examen de documentos, informes, antecedentes, libros, registros, ficheros, facturas, justificantes y asientos de contabilidad principal o auxiliar, programas y archivos informáticos, sistemas operativos y de control, y cualquier otro dato con trascendencia tributaria.
+b)No atender algún requerimiento debidamente notificado.
+c)La incomparecencia, salvo causa justificada, en el lugar y el tiempo que se haya señalado.
+d)Negar o impedir indebidamente la entrada o permanencia en fincas, locales o establecimientos a los funcionarios actuantes o el reconocimiento de locales, máquinas, instalaciones y explotaciones, relacionados con las obligaciones tributarias.
+Las sanciones serán las siguientes:
+a)Multa pecuniaria de dos salarios base, si no se comparece o no se facilita la actuación administrativa o la información requerida en el plazo concedido, en el primer requerimiento notificado al efecto.
+b)Multa pecuniaria de cinco salarios base, si no se comparece o no se facilita la actuación administrativa o la información exigida, en el plazo concedido en el segundo requerimiento notificado al efecto. También, se aplicará esta multa cuando la infracción cometida corresponda a la enunciada en el inciso d) de este artículo.
+c) Multa pecuniaria proporcional del dos por ciento (2%) de la cifra de los ingresos brutos del sujeto infractor, en el período del impuesto sobre las utilidades, anterior a aquel en que se produjo la infracción, con un mínimo de diez salarios base y un máximo de cien salarios base, cuando no se haya comparecido o no se haya facilitado la actuación administrativa o la información exigida en el plazo concedido en el tercer requerimiento notificado al efecto. En caso de que no se conozca el importe de las operaciones o el requerimiento no se refiera a magnitudes monetarias, se impondrá el mínimo establecido en este apartado.
+Las multas previstas en este artículo no podrán ser objeto de acumulación, por lo que deberá imponerse una única sanción que se determinará en función del número de veces que se haya desatendido cada requerimiento.
+Los plazos otorgados por la Administración Tributaria para que los sujetos pasivos cumplan los deberes tributarios indicados en el presente artículo deberán ser razonables y proporcionados, a la mayor o menor complejidad que represente para el sujeto pasivo el cumplimiento del requerimiento respectivo.
+(Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

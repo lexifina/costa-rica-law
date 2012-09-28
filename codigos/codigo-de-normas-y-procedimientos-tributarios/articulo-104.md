@@ -1,8 +1,11 @@
-Artículo 104.- Requerimientos de información al contribuyente.
-Para facilitar la verificación oportuna de la situación tributaria de los contribuyentes, la Administración Tributaria podrá requerirles la presentación de los libros, los archivos, los registros contables y toda otra información de trascendencia tributaria, que se encuentre impresa en forma de documento, en soporte técnico o registrada por cualquier otro medio tecnológico.
+Artículo 104.- Requerimientos de información al contribuyente
+Para facilitar la verificación oportuna de la situación tributaria de los contribuyentes, la Administración Tributaria podrá requerirles la presentación de los libros, los archivos, los registros contables y toda otra información de trascendencia tributaria que se encuentre impresa en forma de documento, en soporte técnico o registrada por cualquier otro medio tecnológico.
 Sin perjuicio de estas facultades generales, la Administración podrá solicitar a los contribuyentes y los responsables:
-a) Copia de los libros, los archivos y los registros contables.
-b) Información relativa al equipo de cómputo utilizado y a las aplicaciones desarrolladas.
-c) Copia de los soportes magnéticos que contengan información tributaria.
-Los gastos por la aplicación de los incisos anteriores correrán por parte de la Administración Tributaria.
-(Así modificado por el artículo 4 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995. Previamente, el artículo 3 de esa misma ley había derogado el contenido del antiguo artículo 104 y traspasó el antiguo mumeral 110 al actual)
+a)A contribuyentes clasificados, según los criterios establecidos como grandes contribuyentes nacionales o grandes empresas territoriales, los estados financieros debidamente dictaminados por un contador público autorizado, incluyendo las notas explicativas sobre las políticas contables más significativas y demás notas explicativas contenidas en el dictamen del profesional independiente que los haya auditado. La Administración Tributaria queda facultada para requerirlos, también, a otros colectivos de contribuyentes en los que, por el volumen y la naturaleza de sus operaciones, este requerimiento no les suponga costos desproporcionados.
+b)Copia de los libros, los archivos y los registros contables.
+c) Información relativa al equipo de cómputo utilizado y a las aplicaciones desarrolladas.
+d) Copia de los soportes magnéticos que contengan información tributaria.
+e) Copia de los soportes documentales o magnéticos de las operaciones de crédito, las compraventas y/o los arrendamientos de bienes y contratos de fideicomiso (financieros u operativos), que se tramiten en empresas privadas, entidades colectivas, cooperativas, bancos del Sistema Bancario Nacional, entidades financieras, se encuentren o no reguladas; sociedades de hecho o cualquier otra persona física, jurídica o de hecho, debiendo identificarse los montos de las respectivas operaciones, las calidades de los sujetos que intervienen y las demás condiciones financieras de las transacciones, en los términos regulados en el reglamento.
+Los gastos por la aplicación de lo dispuesto en los incisos b), c), d) y e) anteriores correrán por cuenta de la Administración Tributaria.
+(Así modificado por el artículo 4 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995. Previamente, el artículo 3 de esa misma ley había derogado el contenido del antiguo artículo 104 y traspasó el antiguo numeral 110 al actual)
+(Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")

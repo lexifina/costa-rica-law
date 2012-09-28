@@ -1,10 +1,11 @@
 SECCIÓN II
 DELITOS
-Artículo 92.- Inducción a error a la Administración Tributaria
-Cuando la cuantía del monto defraudado exceda de doscientos salarios base, será sancionado con prisión de cinco a diez años quien induzca a error a la Administración Tributaria, mediante simulación de datos, deformación u ocultamiento de información verdadera o cualquier otra forma de engaño idónea para inducirla a error, con el propósito de obtener, para sí o para un tercero, un beneficio patrimonial, una exención o una devolución en perjuicio de la Hacienda Pública.
+Artículo 92.- Fraude a la Hacienda Pública
+El que, por acción u omisión, defraude a la Hacienda Pública con el propósito de obtener, para sí o para un tercero, un beneficio patrimonial, evadiendo el pago de tributos, cantidades retenidas o que se hayan debido retener, o ingresos a cuenta de retribuciones en especie u obteniendo indebidamente devoluciones o disfrutando beneficios fiscales de la misma forma, siempre que la cuantía de la cuota defraudada, el importe no ingresado de las retenciones o los ingresos a cuenta o de las devoluciones o los beneficios fiscales indebidamente obtenidos o disfrutados exceda de quinientos salarios base, será castigado con la pena de prisión de cinco a diez años.
 Para los efectos de lo dispuesto en el párrafo anterior debe entenderse que:
-a) El monto defraudado no incluirá los intereses, las multas ni los recargos de carácter sancionatorio.
-b) Para determinar el monto mencionado, si se trata de tributos cuyo período es anual, se considerará la cuota defraudada en ese período; para los impuestos cuyos períodos sean inferiores a doce meses, se adicionarán los montos defraudados durante el lapso comprendido entre el 1º de enero y el 31 de diciembre del mismo año.
-En los demás tributos, la cuantía se entenderá referida a cada uno de los conceptos por los que un hecho generador es susceptible de determinación.
-Se considerará excusa legal absolutoria el hecho de que el sujeto repare su incumplimiento, sin que medie requerimiento ni actuación alguna de la Administración Tributaria para obtener la reparación. Para los efectos del párrafo anterior, se entenderá como actuación de la Administración toda acción realizada con la notificación al sujeto pasivo, conducente a verificar el cumplimiento de las obligaciones tributarias referidas al impuesto y período de que se trate.
-(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)
+a) El monto de quinientos salarios base se considerará condición objetiva de punibilidad.
+b) El monto no incluirá los intereses, las multas ni los recargos de carácter sancionador.
+c) Para determinar la cuantía mencionada, si se trata de tributos, retenciones, ingresos a cuenta o devoluciones, periódicos o de declaración periódica, se estará a lo defraudado en cada período impositivo o de declaración y, si estos son inferiores a doce meses, el importe de lo defraudado se referirá al año natural. En los demás supuestos la cuantía se entenderá referida a cada uno de los distintos conceptos por los que un hecho imponible sea susceptible de liquidación.
+Se considerará excusa legal absolutoria el hecho de que el sujeto repare su incumplimiento, sin que medie requerimiento ni actuación de la Administración Tributaria para obtener la reparación.
+Para los efectos del párrafo anterior, se entenderá como actuación de la Administración toda acción realizada con la notificación al sujeto pasivo, conducente a verificar el cumplimiento de las obligaciones tributarias.
+(Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")
