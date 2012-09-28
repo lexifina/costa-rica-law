@@ -1,0 +1,1 @@
+Artículo 6º—Los jerarcas de los entes, órganos y empresas públicas, a lo interno de sus instituciones, deben difundir e inducir al acatamiento de las disposiciones contenidas en la presente Directriz Ejecutiva.
