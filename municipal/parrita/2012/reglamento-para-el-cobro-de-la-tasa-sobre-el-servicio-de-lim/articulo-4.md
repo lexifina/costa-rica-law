@@ -1,1 +1,0 @@
-Artículo 4°—Es sujeto pasivo para los efectos de este reglamento, toda aquella persona física o jurídica que sea propietario de un inmueble, que en por tal condición está obligada al pago de la tasa que cobra la Municipalidad.
