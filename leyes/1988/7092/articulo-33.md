@@ -3,10 +3,10 @@ De la tarifa del impuesto
 (Así modificada su numeración por el artículo 1º de ley No.7551 del 22 de setiembre de 1995, del antiguo XII al actual)
 ARTICULO 33.- Escala de tarifas.
 El empleador o el patrono retendrá el impuesto establecido en el artículo anterior y lo aplicará sobre la renta total percibida mensualmente por el trabajador. En los casos de los incisos a), b) y c) del artículo anterior lo aplicará el Ministerio de Hacienda y, en el caso del inciso ch) de ese mismo artículo, todas las demás entidades, públicas o privadas, pagadoras de pensiones. La aplicación se realizará según la siguiente escala progresiva de tarifas:
-a) Las rentas de hasta ¢ 685.000,00 mensuales no estarán sujetas al impuesto.
-b) Sobre el exceso de ¢ 685.000,00 mensuales y hasta ¢ 1.028.000,00, mensuales, se pagará el diez por ciento (10%).
-c) Sobre el exceso de ¢ 1.028.000,00 mensuales se pagará el quince por ciento (15%).
-(Modificado los tramos de renta establecidos en los incisos a), b) y c) por el artículo 1° del decreto ejecutivo N° 36822 del 12 de setiembre de 2011)
+a) Las rentas de hasta ¢ 714.000,00 mensuales no estarán sujetas al impuesto.
+b) Sobre el exceso de ¢ 714.000,00 mensuales y hasta ¢ 1.071.000,00, mensuales, se pagará el diez por ciento (10%).
+c) Sobre el exceso de ¢ 1.071.000,00 mensuales se pagará el quince por ciento (15%).
+(Modificado los tramos de renta establecidos en los incisos a), b) y c) por el artículo 1° del decreto ejecutivo N° 37346 del 11 de setiembre de 2012)
 ch) Las personas que obtengan rentas de las contempladas en los incisos b) y c) del artículo 32 pagarán sobre el ingreso bruto, sin deducción alguna, el quince por ciento (15%).
 (Así reformado por inciso i) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
 El impuesto establecido en este artículo, que afecta a las personas que solamente obtengan ingresos por los conceptos definidos en este artículo, tendrá el carácter de único, respecto a las cantidades a las cuales se aplica.
