@@ -1,0 +1,1 @@
+Artículo 2°—Se entenderá por mantenimiento y limpieza de vías públicas, aquella actividad técnica y artesanal, así como el costo financiero que realiza la Municipalidad de Parrita a través de sus dependencias. Para la atención de las comunidades que se brinda el servicio en el cantón.
