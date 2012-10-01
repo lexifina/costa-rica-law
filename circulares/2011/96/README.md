@@ -13,3 +13,4 @@ Identificación de expedientes cuya causal sea despido por embarazo o acoso sexu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-23 | la propia norma |
+| 2 | 2012-10-01 | Circular 166 (2012-10-01) |
