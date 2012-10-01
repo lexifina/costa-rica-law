@@ -1,0 +1,1 @@
+Artículo 3° -Se faculta al Instituto Geográfico Nacional para que interprete los límites señalados en el Artículo Segundo y los adecue en caso de que ofrezcan duda. Se declara oficial el mapa de este distrito que el mismo prepare.
