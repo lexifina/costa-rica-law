@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 37190-H de fecha 5 de junio del 2012, publicado en el Alcance Nº 87 a La Gaceta Nº 129 del 4 de julio del 2012, a partir de la vigencia del presente decreto.
