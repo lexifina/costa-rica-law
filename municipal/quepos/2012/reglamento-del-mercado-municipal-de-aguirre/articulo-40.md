@@ -1,0 +1,3 @@
+Articulo 40 El procedimiento citado para la fijación de alquileres estará vigente hasta que la Municipalidad de Aguirre cancele en su totalidad el contrato de préstamo suscrito con el IFAM-BID, que financio la construcción del mercado. A partir de ese momento los precios de los alquileres se establecerán en forma que estipula la ley sobre arrendamiento de los locales municipales, o la que estuviese vigente a la fecha.
+Artículo 40.—En lo no previsto en este reglamento se aplicará supletoriamente la Ley de Arrendamientos Urbanos y Suburbanos.
+(Nota de Sinalevi: En la publicación de este reglamento se publicó dos veces el artículo 40, con diferente contenido. Debe aclararse que este segundo 40 pertenece al Capítulo XI denominado “Disposiciones Finales”)
