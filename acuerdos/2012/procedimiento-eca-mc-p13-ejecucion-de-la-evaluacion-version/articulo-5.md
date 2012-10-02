@@ -1,0 +1,15 @@
+5 RESPONSABILIDADES
+Las responsabilidades se detallan en cada actividad incluida dentro del procedimiento. La simbología utilizada es la siguiente:
+- Responsable Comisión de Acreditación: [CA]
+- Responsable Gestoría de Calidad: [GC]
+- Responsable Secretaría de Acreditación: [SA]
+- Responsable Comité Asesor Técnico: [CAT]
+- Responsable Organismo de Evaluación de la Conformidad : [OEC]
+- Responsable Unidad de Logística: [LOG]
+- Responsable Evaluador Líder: [EL]
+- Responsable Evaluador: [E]
+- Responsable Evaluador en formación observador: [EFO]
+- Responsable Evaluador en formación bajo supervisión: [EFBS]
+- Responsable Experto Técnico: [ET]
+- Responsable Equipo Evaluador y Evaluador Líder: [EE]
+- Responsable Representante de la Institución Reguladora : [RIR]

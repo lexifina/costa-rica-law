@@ -1,0 +1,6 @@
+Anexo 2: Ejemplos de redacción de objetivos de evaluación.
+Tipo de evaluación | Objetivo de evaluación
+Inicial | Determinar el cumplimiento del Organismo de Evaluación de la Conformidad XXX , con su sistema de gestión de calidad, la norma INTE-ISO/IEC XXXX:200X, los criterios y las políticas emitidas por el Ente Costarricense de Acreditación, ECA, para los ensayos, calibraciones, inspecciones o certificaciones declarados dentro del alcance de la evaluación.
+Seguimiento o Reevaluación | Evaluar la continuidad del sistema de gestión de calidad del OEC XXX ,en el cumplimiento de la norma INTE-ISO/IEC XXXX:20XX, los criterios y las políticas emitidas por el Ente Costarricense de Acreditación ECA, para el seguimiento de su alcance acreditado.
+Ampliación | Determinar el cumplimiento e implementación del Sistema de Gestión de Calidad, del OEC XXX, en el cumplimiento de las cláusulas de la Norma INTE-ISO /IEC XXXX:200X, los criterios y las políticas emitidas por el Ente Costarricense de Acreditación ECA, para la ampliación solicitada en su alcance de acreditación.
+Nota: Cuando la evaluación sea un seguimiento o reevaluación en conjunto con una ampliación se deben documentar los dos objetivos.
