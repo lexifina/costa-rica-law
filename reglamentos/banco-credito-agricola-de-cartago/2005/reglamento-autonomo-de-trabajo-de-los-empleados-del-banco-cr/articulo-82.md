@@ -1,4 +1,3 @@
-CAPÍTULO XV
-Hostigamiento Sexual
-(Este capítulo fue derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)
-Artículo 82.—(Derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)
+Artículo 82.—Notificación de Riesgos de Trabajo. Todo riesgo de trabajo que le ocurra a sus trabajadores bajo la dirección y dependencia del Banco, serán notificados por la Institución al ente asegurador, en un plazo no mayor de ocho días hábiles, contados a partir del momento en que ocurra el riesgo, para que esta Institución otorgue al trabajador accidentado todas las prestaciones médicos–asistenciales y económicas, así conforme al artículo 221 del Código de Trabajo. La notificación aquí indicada, se ajustará al contenido del artículo 220 del mismo Código.
+Si el Banco incumpliere esta obligación, será quien deberá correr con las responsabilidades derivadas de los riesgos que ocurrieren.
+(El corre numeración practicado a este norma por sesión N° 8586/12 del 2 de octubre de 2012, que lo trasapasó de antiguo artículo 80 al 82, posteriormente fue derogada mediante sesión N° 8751/14 del 20 de mayo del 2014. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)

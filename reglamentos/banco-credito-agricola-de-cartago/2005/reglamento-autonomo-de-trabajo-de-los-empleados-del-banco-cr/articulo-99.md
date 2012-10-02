@@ -1,5 +1,2 @@
-CAPÍTULO XVI
-Normas relativas al Sistema de Remuneración Salario Único
-Artículo 99.—Ámbito de Aplicación. Se incluyen dentro de este grupo a los funcionarios que ocupan los puestos de Gerente General, Subgerentes Generales, Asistentes de Gerencia y Subgerencia, Auditor, Subauditor, Gerentes de Centros de Negocios, Directores de Área, Jefe de Secretaría de Junta Directiva y Jefe de Sección 2-P, o sus homólogos, en caso de que la nomenclatura se modifique.
-El nombramiento del Gerente General, Subgerentes Generales, Auditor y Subauditor, así como de los Gerentes de Centros de Negocios, es atribución exclusiva de la Junta Directiva General. El plazo de nombramiento y las condiciones del mismo, se rigen por las normas legales específicas que le son aplicables.
-El Director de Área, Asistente de Gerencia General, Asistente de Subgerencia y Jefe de Secretaría de Junta Directiva y Jefe de Sección 2-P serán nombrados por el Gerente General, de conformidad con las leyes y normativa aplicables.
+Artículo 99.—(Derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)
+(El corre numeración practicado a este norma por sesión N° 8586/12 del 2 de octubre de 2012, que lo trasapasó de antiguo artículo 97 al 99, posteriormente fue derogada mediante sesión N° 8751/14 del 20 de mayo del 2014. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)

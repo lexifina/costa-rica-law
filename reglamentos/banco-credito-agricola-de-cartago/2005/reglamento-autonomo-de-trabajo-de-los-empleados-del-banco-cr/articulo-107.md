@@ -1,5 +1,3 @@
-Artículo 107.—Interrupción de vacaciones. El disfrute de las vacaciones será obligatorio e irrenunciable y solamente se podrá interrumpir en los siguientes casos:
-· Por accidente comprobado.
-· Por enfermedad comprobada.
-· Por acuerdo entre ambas partes.
-· Por fuerza mayor o caso fortuito, en caso de trabajadores de difícil sustitución.
+Artículo 107.—Vacaciones Anuales. Los trabajadores de nuevo ingreso y quienes ingresaron al Banco después de abril de 1998, disfrutarán de 15 días hábiles de vacaciones anuales no compensables, por cada cincuenta semanas laboradas.
+Para los trabajadores que a la fecha tengan derecho a más días de vacaciones, se respetarán los derechos adquiridos. En caso de terminación del contrato de trabajo o relación laboral, antes de cumplir el trabajador el período de cincuenta semanas, tendrá derecho a la proporción de los días equivalentes a cada mes completo de trabajo, según lo indicará la Dirección de Recursos Humanos, de acuerdo al período de vacaciones que goza el trabajador.
+(El corre numeración practicado a este norma por sesión N° 8586/12 del 2 de octubre de 2012, que lo trasapasó de antiguo artículo 105 al 107, posteriormente fue derogada mediante sesión N° 8751/14 del 20 de mayo del 2014. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)

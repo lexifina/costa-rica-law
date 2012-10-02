@@ -1,4 +1,4 @@
-Artículo 67.—De la suspensión del trabajador. La suspensión del trabajador se aplicará hasta por ocho días y sin goce de salario, una vez que se haya oído al interesado y a los compañeros de trabajo que él indique, en los siguientes casos:
-a) Cuando el trabajador, después de haber sido amonestado por escrito, incurra de nuevo en la falta que motivó la amonestación;
-b) Cuando el trabajador viole alguna de las prohibiciones del artículo 72 del Código de Trabajo o del artículo 66 anterior, salvo que la falta dé mérito para el despido, o esté sancionada por otra disposición de este Reglamento; y
-c) Cuando el trabajador cometa alguna falta de cierta gravedad que no dé mérito para el despido, excepto si está sancionada de manera especial por otra disposición de este Reglamento.
+Artículo 67.—De la amonestación verbal. La amonestación verbal se aplicará:
+a) Cuando el trabajador, en forma expresa o tácita, cometa alguna falta leve a las obligaciones que le impone el contrato o relación de trabajo, según lo señalado en el Código de Trabajo y en este Reglamento; y
+b) En los casos expresamente previstos en este Reglamento.
+(El corre numeración practicado a este norma por sesión N° 8586/12 del 2 de octubre de 2012, que lo trasapasó de antiguo artículo 65 al 67, posteriormente fue derogada mediante sesión N° 8751/14 del 20 de mayo del 2014. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)
