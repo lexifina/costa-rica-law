@@ -69,18 +69,42 @@ Mediana unidad productiva agropecuaria: Unidad productiva agropecuaria cuyos ing
 48) Proyectos viables y factibles: Aquellos proyectos o emprendimientos que hayan sido definidos por la Unidad considerando aspectos como: oferta y demanda del producto y servicio; conocimiento del negocio; capacidad administrativa y gerencial; mercado meta; canales de distribución; riesgos del sector; ciclo de producción; capacidad de producción; inversiones requeridas y retorno de inversión, todo en concordancia con el ordenamiento jurídico del país.
 49) Pyme o mipyme: Micro, pequeña y mediana empresa, según lo establecido en el artículo 3º de la Ley Nº 8262, Ley de Fortalecimiento a la Pequeñas y Medianas Empresas y su reglamento vigente.
 50) Registro Nacional PYME: Registro de las empresas con la condición PYME, que se encuentran inscritas ante la Dirección General de Apoyo a la Pequeña y Mediana Empresa (DIGEPYME) en el MEIC.
-51) Sectores económicos: Se reconocen como sectores económicos, para efectos de este Reglamento: industria, comercio, servicios y agropecuario.
-52) Servicios de desarrollo empresarial: Todas aquellas actividades tendientes a fortalecer el desempeño y la competitividad de las empresas, tales como capacitación, asistencia técnica, innovación, investigación, transferencia tecnológica, pasantías y otras acciones similares.
-53) Sistema de Información Empresarial Costarricense (SIEC): Entiéndase el Portal PYME del MEIC.
-54) Subasta: Mecanismo mediante el cual se asigna periódicamente el uso de los recursos del Fondo de Avales y Garantías, empleando una serie de variables para distribuir estos recursos entre las entidades operadoras.
-55) Subrogación de derechos crediticios: Potestad que un acreedor le da a un tercero mediante el traspaso en propiedad del documento garante para que lo utilice para ejercer su derecho al cobro de la obligación incumplida al deudor y otros obligados.
-56) Sugef: Superintendencia General de Entidades Financieras.
-57) Sugeval: Superintendencia General de Valores.
-58) TBP: Tasa básica pasiva, calculada por el Banco Central de Costa Rica.
-59) Transferencias: Recursos asignados por el Fodemipyme a entidades públicas, organizaciones cooperativas, organizaciones privadas y organizaciones no gubernamentales, como aporte no reembolsable o mediante la contratación de servicios, para apoyar el desarrollo de programas tendientes a fortalecer y desarrollar las micro, pequeñas y medianas empresas, y las empresas de economía social.
-60) Transferencia tecnológica: Transmisión de un conocimiento generado por un área funcional de investigación y desarrollo, interna o externa o nacional internacional, al área funcional de producción para la fabricación de un bien o servicio.
-61) Unidad productiva de carácter permanente: Se entenderá por unidad productiva de carácter permanente aquella que goce de condiciones que garanticen que se trata de un establecimiento empresarial cuya explotación tenga un horizonte futuro en términos de permanencia en el mercado, potencial de crecimiento y viabilidad financiera. Para calificar la unidad productiva como permanente deberá al menos cumplir una de las siguientes condiciones:
+51) Riesgo: Es la posibilidad de que eventos con una determinada probabilidad de ocurrencia tengan un impacto adverso sobre los ingresos y patrimonio de la Institución, o sobre el valor de los fondos que administra.
+(Así adicionado el inciso 51) anterior mediante sesión N° 5005 del 2 de octubre del 2012)
+52) Riesgo de contraparte: Riesgo, asociado al portafolio de inversiones, de que la contraparte (con quien se hace el negocio) no entregue o pague el instrumento financiero correspondiente a la transacción, en la fecha de vencimiento o de traspaso pactado. El riesgo de contraparte existe cuando se da la posibilidad de que una de las partes de un contrato financiero sea incapaz de cumplir con las obligaciones financieras contraídas, haciendo que la otra parte del contrato incurra en una pérdida.
+(Así adicionado el inciso 52) anterior mediante sesión N° 5005 del 2 de octubre del 2012)
+53) Riesgo de crédito: Riesgo, asociado a la cartera crediticia, de que un deudor incumpla sus obligaciones de pago con la institución en el plazo estipulado. La naturaleza del incumplimiento puede ser total o parcial, tanto del principal como de los intereses, y depende adicionalmente de la calidad de las garantías que el acreedor se haya reservado para afrontar tal incumplimiento.
+(Así adicionado el inciso 53) anterior mediante sesión N° 5005 del 2 de octubre del 2012)
+54) Riesgo legal: Posible pérdida debida al incumplimiento de las normas jurídicas y directrices administrativas aplicables; a la emisión de normas jurídicas y directrices administrativas, resoluciones administrativas o judiciales desfavorables y a la aplicación de sanciones con relación a las operaciones que realiza la entidad.
+(Así adicionado el inciso 54) anterior mediante sesión N° 5005 del 2 de octubre del 2012)
+55) Riesgo de liquidez: Es la posibilidad de que no se posean los recursos líquidos necesarios para atender los compromisos en el corto plazo. El riesgo de liquidez en general tiene dos componentes:
+- La iliquidez de mercado, que puede surgir por la falta de profundidad en el mercado en general, o en un instrumento en particular y que implica costos distorsionantes para liquidar activos o revertir posiciones antes de su vencimiento
+- La insuficiencia del flujo de caja, que surge de eventuales presiones sobre los flujos de efectivo ante pagos y obligaciones frente a terceros.
+(Así adicionado el inciso 55) anterior mediante sesión N° 5005 del 2 de octubre del 2012)
+56) Sectores económicos: Se reconocen como sectores económicos, para efectos de este Reglamento: industria, comercio, servicios y agropecuario.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 51 al 56)
+57) Servicios de desarrollo empresarial: Todas aquellas actividades tendientes a fortalecer el desempeño y la competitividad de las empresas, tales como capacitación, asistencia técnica, innovación, investigación, transferencia tecnológica, pasantías y otras acciones similares.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 52 al 57)
+58) Sistema de Información Empresarial Costarricense (SIEC): Entiéndase el Portal PYME del MEIC.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 53 al 58)
+59) Subasta: Mecanismo mediante el cual se asigna periódicamente el uso de los recursos del Fondo de Avales y Garantías, empleando una serie de variables para distribuir estos recursos entre las entidades operadoras.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 54 al 59)
+60) Subrogación de derechos crediticios: Potestad que un acreedor le da a un tercero mediante el traspaso en propiedad del documento garante para que lo utilice para ejercer su derecho al cobro de la obligación incumplida al deudor y otros obligados.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 55 al 60)
+61) Sugef: Superintendencia General de Entidades Financieras.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 56 al 61)
+62) Sugeval: Superintendencia General de Valores.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 57 al 62)
+63) TBP: Tasa básica pasiva, calculada por el Banco Central de Costa Rica.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 58 al 63)
+64) Transferencias: Recursos asignados por el Fodemipyme a entidades públicas, organizaciones cooperativas, organizaciones privadas y organizaciones no gubernamentales, como aporte no reembolsable o mediante la contratación de servicios, para apoyar el desarrollo de programas tendientes a fortalecer y desarrollar las micro, pequeñas y medianas empresas, y las empresas de economía social.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 59 al 64)
+65) Transferencia tecnológica: Transmisión de un conocimiento generado por un área funcional de investigación y desarrollo, interna o externa o nacional internacional, al área funcional de producción para la fabricación de un bien o servicio.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 60 al 65)
+66) Unidad productiva de carácter permanente: Se entenderá por unidad productiva de carácter permanente aquella que goce de condiciones que garanticen que se trata de un establecimiento empresarial cuya explotación tenga un horizonte futuro en términos de permanencia en el mercado, potencial de crecimiento y viabilidad financiera. Para calificar la unidad productiva como permanente deberá al menos cumplir una de las siguientes condiciones:
 - Seis meses de permanencia en el mercado en la actividad que se va a apoyar.
 - Que el empresario (a) tenga dos años de experiencia en la actividad.
 - Que su permanencia sea asegurada por: la existencia de una franquicia y el respaldo del franquiciador la participación en una incubadora de empresas o la existencia de contratos en firme.
-62) Unidad técnica: Unidad creada en el artículo 12 de Ley Nº 8262, responsable directa de la administración del Fodemipyme.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 61 al 66)
+67) Unidad técnica: Unidad creada en el artículo 12 de Ley Nº 8262, responsable directa de la administración del Fodemipyme.
+(Así corrida la numeración del inciso anterior mediante sesión N° 5005 del 2 de octubre del 2012, que lo traspasó del antiguo inciso 62 al 67)

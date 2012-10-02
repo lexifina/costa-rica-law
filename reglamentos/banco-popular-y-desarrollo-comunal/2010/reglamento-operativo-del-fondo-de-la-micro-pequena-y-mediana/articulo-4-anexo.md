@@ -1,28 +1,17 @@
 ANEXO 4
-Indicadores de gestión (Art. 75)
-Definiciones:
-Riesgo: Cualquier evento futuro incierto que pueda obstaculizar el logro de los objetivos estratégicos, operativos y financieros del Fodemipyme.
-Riesgo de mercado: Pérdidas en las posiciones dentro y fuera del balance provenientes de movimientos o fluctuaciones de los precios de mercado (precios de títulos, acciones, tasas de interés, posiciones en moneda extranjera, opciones). Se podrían citar principalmente los siguientes riesgos: liquidez, cambiario, tasa de interés, calce de plazos, inversiones.
-Riesgo operacional: Pérdidas resultantes de procesos internos inadecuados o en falla, personas y sistemas o eventos externos, fraudes, prácticas laborales inadecuadas, prácticas comerciales no apropiadas, daños activos, fallas en los procesos, restitución a terceros, disminución de valor en activos financieros.
-Riesgo de crédito: Pérdida causada por el incumplimiento o por la deterioración de la calidad crediticia, de un cliente que le impide efectuar los pagos acordados contractualmente.
-Límites de riesgo de mercado: La Unidad Técnica del Fondo deberá considerar los siguientes límites en la administración del portafolio de inversiones, con el fin de mitigar el riesgo de mercado:
-Las inversiones podrán ser en títulos valores o en anotaciones electrónicas en cuenta, todo según la Ley Reguladora del Mercado de Valores y la normativa establecida por el Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF) y la SUGEVAL.
-Las inversiones se realizarán exclusivamente en:
-ú Valores del Gobierno de Costa Rica, de deuda interna y externa.
-ú Valores emitidos por entidades públicas costarricenses.
-ú Valores emitidos por los Bancos privados integrantes del Sistema Bancario Nacional, con patrimonios de US$10 millones o superiores y que mantengan una probada posición de solidez, rentabilidad y liderazgo en el mercado financiero costarricense.
-ú Emisiones estandarizadas de empresas constituidas como sociedades anónimas de servicios, comerciales e industriales, domiciliadas en Costa Rica, con la máxima clasificación según los parámetros del mercado bursátil costarricense, establecidos por las empresas clasificadoras autorizadas por la SUGEVAL. Además, deberán tener un patrimonio mínimo de US$10 millones y un apalancamiento máximo de 4 veces su patrimonio. En todo caso, deberán observarse todas aquellas regulaciones emanadas de la SUGEF aplicables a la materia.
-ú Participaciones de fondos de inversión propiedad de empresas públicas y fondos de inversión de propiedad privada, cuyas carteras estén compuestas por títulos públicos.
-ú Valores emitidos por sociedades anónimas con aval de algún Banco estatal, los cuales, para efectos de este Reglamento, se considerarán como emitidos por el sector público.
-c) El Fodemipyme no podrá adquirir valores que impliquen violación al artículo 73, inciso 3, de la Ley Orgánica del Sistema Bancario Nacional.
-d) El Fodemipyme podrá realizar compra-ventas, recompras, operaciones a plazo, reportos u otras operaciones bursátiles, siempre que sean de valores emitidos por las entidades indicadas en este artículo.
-e) Cualquier otro tipo de inversión deberá ser aprobado por la Junta Directiva Nacional.
-f) Las inversiones que se realicen en valores y participaciones del sector privado estarán sujetas a las siguientes restricciones:
-ú El total de las mismas no podrá exceder el 20% del total de inversiones temporales y permanentes del Fodemipyme.
-ú Como máximo se podrá adquirir el 25% del total de una emisión particular.
-ú Como máximo se podrá invertir el 5% del total de inversiones del Fodemipyme en valores de un solo emisor del sector privado.
-g) El Fondo podrá adquirir valores de emisores domiciliados en el país y denominados en colones costarricenses o en dólares de los Estados Unidos de América.
-h) El Fondo solicitará la asesoría del Puesto de Bolsa y de la Sociedad Administradora de Fondos de Inversión, en cuanto a la composición de la Cartera de inversiones, procurando obtener la mayor liquidez, seguridad y rentabilidad posibles dentro de las condiciones imperantes en el mercado.
+(*) Indicadores de gestión (Art. 75)
+1. INDICADORES DE RIESGO PARA FODEMIPYME
+a. Control interno: Cumplimiento de la Ley General de Control Interno.
+b. Calificación de Riesgo Operativo: Para la evaluación de riesgo operativo se utilizará la metodología SERO (Sistema de Evaluación de Riesgo Operativo) y el límite será establecido anualmente por la Junta Directiva Nacional.
+2. INDICADORES DE RIESGO PARA EL FONDO DE AVALES Y GARANTÍAS
+a. Rentabilidad del fondo: Utilidad Neta del Fondo de Avales entre Patrimonio Auditado del Fondo de Avales. El nivel mínimo para este indicador deberá ser la inflación esperada divulgada por el Banco Central de Costa Rica, medida por las variaciones interanuales del IPC a diciembre de cada año.
+b. Eficiencia administrativa: costos directos del Fondo de Avales entre ingresos totales del Fondo de Avales. El valor máximo de este indicador será fijado por la Junta Directiva Nacional anualmente o cada vez que esta lo considere necesario.
+c. Morosidad del fondo: Saldo de la cartera morosa del Fondo de Avales mayor a 70 días entre Saldo de la cartera avalada del Fondo de Avales. El nivel máximo de este indicador será revisado por la Junta Directiva Nacional anualmente o cada vez que esta lo considere necesario.
+3. INDICADORES DE RIESGO PARA EL FONDO DE CRÉDITO
+a. Rentabilidad del fondo: Utilidad Neta del Fondo de Crédito entre Patrimonio Auditado del Fondo de Crédito. El nivel mínimo para este indicador deberá ser la inflación esperada divulgada por el Banco Central de Costa Rica, medida por las variaciones interanuales del IPC a diciembre de cada año.
+b. Eficiencia administrativa: costos directos del Fondo de Crédito entre ingresos totales del Fondo de Crédito. El valor máximo de este indicador será fijado por la Junta Directiva Nacional anualmente o cada vez que esta lo considere necesario.
+c. Morosidad del fondo: Saldo de la cartera morosa del Fondo de Crédito mayor a 70 días entre Saldo de la cartera avalada del Fondo de Crédito. El nivel máximo de este indicador será revisado por la Junta Directiva Nacional anualmente o cada vez que esta lo considere necesario.
+(*)(Así reformado el punto anterior "Indicadores de Riesgo" mediante sesión N° 5005 del 2 de octubre del 2012)
 RIESGO OPERACIONAL:
 a) Control interno: Cumplimiento de la Ley de Control Interno de la Contraloría General de la República.
 b) Calificación de Riesgo Operativo: Para la evaluación de riesgo operativo se utilizará la metodología SERO (Sistema de Evaluación de Riesgo Operativo) y el límite lo establecerá anualmente la Junta Directiva Nacional.
