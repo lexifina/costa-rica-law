@@ -241,8 +241,8 @@ Constancias de deudas | $10.00 cada uno
 Fotocopias de expedientes | $0.05 por folio
 FIDEICOMISOS
 Fideicomiso de Inversión | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $200.00 mensual+% de costos propios de cada fideicomiso.
-Fideicomiso de Administración | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $200.00 mensual + % de costos propios de cada fideicomiso
-Fideicomiso de Testamentarios | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $200.00 mensual +% de los costos propios de cada fideicomiso
+Fideicomiso de Administración | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $50.00 por mes + % de costos asociados propios de cada fideicomiso. (Así reformado el párrafo anterior mediante sesión N° 8586/12 del 2 de octubre de 2012)
+Fideicomiso de Testamentarios | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $50.00 por mes + % de los costos asociados propios de cada fideicomiso. (Así reformado el párrafo anterior mediante sesión N° 8586/12 del 2 de octubre de 2012)
 Mandatos | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $200.00 mensual + % de los costos propios de cada mandato.
 Fideicomiso de Garantía | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $700.00 anuales pagadero por anticipado. Podrá incrementarse la comisión según negociación en caso de incurrirse en costos por labores del tipo notarial.
 Fideicomisos de Ejecución de Proyectos | (Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades según la magnitud de la obra a desarrollar y existencia de unidades técnicas.
