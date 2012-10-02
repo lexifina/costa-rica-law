@@ -1,0 +1,3 @@
+Artículo 11 Bis: Toda infraestructura de Telecomunicaciones deberá contar con una franja de amortiguamiento o retiro alrededor de la infraestructura, que facilite y permita el tránsito de personal necesario para la conservación y mantenimiento de ésta. Los accesos podrán ser por calle pública o por servidumbre de paso.
+Esta franja será del 15% de la altura de infraestructura de Telecomunicaciones, medida desde el centro de la base de ésta, para los supuestos de infraestructura de Telecomunicaciones con tres o más emplazamientos, y/o se requiera instalar, construir, y colocar infraestructura adicional para colocar equipos a nivel de suelo.
+(Así adicionado mediante sesión ordinaria N° 40-12 del 2 de octubre del 2012)

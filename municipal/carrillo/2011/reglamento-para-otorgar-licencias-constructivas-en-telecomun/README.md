@@ -14,3 +14,4 @@ Reglamento para otorgar Licencias Constructivas en Telecomunicaciones de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-02 | la propia norma |
+| 2 | 2012-10-02 | Reglamento municipal 40 (2012-10-02) |
