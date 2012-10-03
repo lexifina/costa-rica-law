@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE SANTA CRUZ
+El Concejo de la Municipalidad de Santa Cruz, Guanacaste, en la sesión extraordinaria Nº 17-2012, llevada a cabo en el edificio de la Cruz Roja, frente al parque Bernabela Ramos de esta Ciudad el 6 de setiembre del 2012, artículo 02, inciso 02), apartados 01, 02, 03, 04, tomó el acuerdo que literalmente dicen:
+Se acuerda por unanimidad: Con dispensa de trámite de Comisión lo siguiente:
+1. Se declara estado de emergencia cantonal en razón de terremoto ocurrido el día cinco de setiembre del año en curso en horas de la mañana.
+2. Que en vista de que, como consecuencia de ese terremoto, el Edificio del Palacio Municipal sufrió severos daños, que por recomendaciones técnicas preliminares quedó inhabilitado para ser utiliza utilizado por el personal, contribuyentes y el público en general.
+3. Que es necesario el traslado de la sede para realizar las sesiones, por lo que con base en el artículo 13 inciso e) del Código Municipal por medio de convenio interinstitucional solidario, las Sesiones Ordinarias del Concejo se llevarán a cabo a las diecisiete horas (5:00 p.m.) los día martes, en la Ciudad de Santa Cruz, del edificio del Banco Popular trescientos metros al sur, en la Sede Regional Chorotega de la Rectoría del Consejo Nacional de Rehabilitación y Educación Especial, antiguo SILOR.
+4. Que en cumplimiento de lo dispuesto por el artículo 35 del Código Municipal, y que por su naturaleza democrática las sesiones del Concejo Municipal son públicas, se ordena la publicación de este Acuerdo en el Diario Oficial La Gaceta.
+San Cruz, 20 de setiembre del 2012.
