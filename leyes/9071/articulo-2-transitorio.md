@@ -1,0 +1,1 @@
+TRANSITORIO II.- La elaboración de la plataforma de valores agropecuarios, a que hace referencia el artículo 2 de esta ley, deberá elaborarse dentro del plazo de cuatro años contado desde la entrada en vigencia de esta ley.
