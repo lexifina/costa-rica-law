@@ -1,0 +1,4 @@
+Artículo 13. Procedimiento de actualización anual del prospecto
+La entidad emisora selecciona en la Ventanilla Virtual la opción para crear un trámite de “Actualización anual de prospecto” y procede a presentar la siguiente documentación:
+a) Documento en formato MS Word que contenga el prospecto actualizado y firmado digitalmente por el representante legal de la entidad emisora.
+Además debe presentar en original la declaración jurada del representante legal de la entidad emisora sobre el procedimiento de actualización anual del prospecto, según lo establecido en el artículo 16. Este documento se deberá presentar en un plazo máximo de 24 horas a partir de la remisión del prospecto por Ventanilla Virtual. Una vez recibida esta información, se registrará en el Registro Nacional de Valores e Intermediarios.
