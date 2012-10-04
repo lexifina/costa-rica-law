@@ -15,3 +15,4 @@ Restricción Vehicular mediante el Esquema Hora/Placa en el Centro de San José
 | --- | --- | --- |
 | 1 | 2011-05-02 | la propia norma |
 | 2 | 2011-05-05 | Decreto Ejecutivo 36586 (2011-05-05) |
+| 3 | 2012-10-04 | Decreto Ejecutivo 37353 (2012-10-04) |
