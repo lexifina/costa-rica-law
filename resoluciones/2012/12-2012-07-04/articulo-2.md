@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-R-007-2012 del 10 de abril del 2012, publicada en el Alcance Digital N° 51 a La Gaceta Nº 78 del 23 de abril del 2012.
