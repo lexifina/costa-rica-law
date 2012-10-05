@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento será de aplicación obligatoria para todos los contribuyentes a los que se les brinde el servicio de mantenimiento y limpieza de vías públicas en el cantón de Parrita.
