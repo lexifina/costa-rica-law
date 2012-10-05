@@ -1,7 +1,5 @@
 CAPITULO III
 Promoción de la competencia
-Artículo 9°.- Campo de aplicación. La normativa de este capítulo se aplica a todos los agentes económicos, con las salvedades y las previsiones indicadas en este capítulo.
-Se exceptúan de la aplicación de la normativa de este título:
-a) Los agentes prestadores de servicios públicos en virtud de una concesión, en los términos que señalen las leyes para celebrar las actividades necesarias para prestar esos servicios, de acuerdo con las limitaciones establecidas en la concesión y en las regulaciones especiales.
-b) Los monopolios del Estado creados por ley, mientras subsistan por leyes especiales para celebrar las actividades expresamente autorizadas en ellas.
-(Así reformado por el artículo 73 de la ley General de Telecomunicaciones, N° 8642 del 4 de junio de 2008)
+Artículo 9.- Campo de aplicación
+La normativa de este capítulo se aplica a todos los agentes económicos, a excepción de los concesionarios de servicios públicos en virtud de una ley, de aquellos que ejecuten actos debidamente autorizados en leyes especiales y de los monopolios del Estado, todos ellos en los términos y las condiciones que establezca su normativa.
+(Así reformado por el artículo 1° de la ley N° 9072 del 20 de setiembre de 2012)
