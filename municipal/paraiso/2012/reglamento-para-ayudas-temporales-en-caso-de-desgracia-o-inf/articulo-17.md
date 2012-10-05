@@ -1,0 +1,1 @@
+Artículo 17.—El solicitante deberá comprometerse en caso de que la Municipalidad e Paraíso otorgue la ayuda por medio de un documento escrito con la Municipalidad de Paraíso a que las ayudas solicitadas se utilizarán íntegra única y exclusivamente para el fin para el cual fue solicitado.

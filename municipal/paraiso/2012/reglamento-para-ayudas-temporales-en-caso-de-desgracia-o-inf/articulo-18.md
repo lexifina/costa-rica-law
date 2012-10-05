@@ -1,0 +1,1 @@
+Artículo 18.—Que el Concejo Municipal previo a aprobar o improbar la solicitud trasladará a la Comisión de Hacienda y esta deberá rendir un informe al Concejo Municipal donde aprueban o imprueben la solicitud comprometiéndose a otorgar los recursos necesarios mediante presupuesto ordinario, extraordinario o modificación interna según la disponibilidad de los recursos.

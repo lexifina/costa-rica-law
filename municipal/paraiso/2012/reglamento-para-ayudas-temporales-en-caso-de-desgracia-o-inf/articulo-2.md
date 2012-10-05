@@ -1,0 +1,1 @@
+Artículo 2º—Para otorgar esta clase de beneficios, la Municipalidad de Paraíso presupuestará anualmente los recursos necesarios que serán administrados por una comisión especial nombrada por el Concejo Municipal y que estará integrada por tres personas incluyendo al Alcalde Municipal.

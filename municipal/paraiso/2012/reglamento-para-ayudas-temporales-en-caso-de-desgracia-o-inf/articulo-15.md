@@ -1,0 +1,1 @@
+Artículo 15.—Cualquier grupo interesado en ser merecedor de una ayuda de Gobierno Local deberá solicitarlo por escrito al Concejo Municipal y demostrar que la obra que realizara es de gran importancia y de interese para el cantón de Paraíso. Deberán indicar en forma clara en que se utilizará el bien que oportunamente aportará la Municipalidad de Paraíso
