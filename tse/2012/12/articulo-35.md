@@ -1,0 +1,1 @@
+Artículo 35.- Resolución final.- Vencidos los plazos concedidos, recibidas las pruebas y efectuadas las correcciones a las cuales se refiere el artículo 32 de este reglamento, el Registro Civil dictará la resolución correspondiente.

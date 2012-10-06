@@ -1,0 +1,1 @@
+Artículo 19.- Publicación del aviso de solicitud.- Antes de concluir el trámite de revisión de requisitos, la Sección de Opciones y Naturalizaciones mandará a publicar en La Gaceta un aviso en el cual pondrá en conocimiento del público la solicitud de naturalización, y emplazará, durante diez días hábiles, a quienes tuvieren reparos comprobados que hacer a esta.

@@ -1,0 +1,2 @@
+Artículo 119.- Resolución de los recursos.- Los recursos interpuestos contra las resoluciones finales dictadas por el Registro serán resueltos observando un estricto orden cronológico, considerado a partir de la fecha de ingreso del respectivo expediente al Tribunal.
+El orden será variado solamente si la parte gestionante alega una causa justa debidamente demostrada. Tanto la solicitud como la respuesta del Tribunal deberán quedar constando en el expediente.

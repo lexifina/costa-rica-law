@@ -1,0 +1,1 @@
+Artículo 98.- Reposición de expedientes.- En caso de pérdida o extravío de un expediente, se aplicará para su reposición lo establecido en los artículos 142 del Código Procesal Civil y 289 de la Ley General de la Administración Pública.

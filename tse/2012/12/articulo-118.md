@@ -1,0 +1,1 @@
+Artículo 118.- Recurso de revisión.- Al recurso de revisión que se plantee en contra de una resolución dictada por el Tribunal Supremo de Elecciones, le serán aplicables las normas establecidas en la Ley General de la Administración Pública.

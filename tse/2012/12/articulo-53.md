@@ -1,0 +1,1 @@
+Artículo 53.- Declaración única.- Los dos testigos a los cuales hace referencia el presente capítulo podrán manifestarse, en una misma declaración, en relación con todos o algunos de los requisitos, ya sea ante la sede central o alguna oficina regional del Tribunal Supremo de Elecciones.

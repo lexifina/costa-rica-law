@@ -1,0 +1,1 @@
+Artículo 77.- Principios rectores.- El Registro Civil deberá conducir el procedimiento con la intención de lograr un máximo de celeridad, eficiencia y eficacia, dentro del respeto al ordenamiento jurídico y a los derechos e intereses del gestionante.

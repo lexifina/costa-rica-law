@@ -1,0 +1,1 @@
+Artículo 96.- Nulidad de la naturalización.- La naturalización obtenida fraudulentamente es nula de pleno derecho y para su declaratoria se seguirá el procedimiento establecido en el artículo 18 de la Ley de Opciones y Naturalizaciones.

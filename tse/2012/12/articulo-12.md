@@ -1,0 +1,1 @@
+Artículo 12.- Prueba para demostrar la buena conducta.- La buena conducta se deberá demostrar por medio de la declaración de dos testigos de honorabilidad reconocida que deberá ofrecer la parte gestionante.

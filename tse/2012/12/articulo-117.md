@@ -1,0 +1,1 @@
+Artículo 117.- Recurso de reposición.- Si en el trámite de alzada o de consulta preceptiva el Tribunal Supremo de Elecciones revoca una resolución del Registro Civil que aprueba una solicitud de naturalización, la parte gestionante podrá plantear recurso de reposición en un plazo de tres días hábiles contados a partir del día hábil siguiente de notificada la resolución.

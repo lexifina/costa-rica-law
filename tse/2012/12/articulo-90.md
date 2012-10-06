@@ -1,0 +1,2 @@
+Artículo 90.- Suspensión de plazos.- Los plazos establecidos solo se podrán suspender por caso fortuito o fuerza mayor, de oficio o a petición de parte. Tal actuación deberá estar debidamente motivada.
+No obstante, si de la prueba que consta en autos se desprende que hay una causa penal en trámite que puede incidir en la resolución por medio de la cual el Registro se pronuncia en relación con una solicitud de naturalización, o una causa penal en la que se discute la validez del vínculo jurídico matrimonial, dicho órgano procederá a suspender el trámite correspondiente.

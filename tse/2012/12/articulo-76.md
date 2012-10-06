@@ -1,0 +1,1 @@
+Artículo 76.- Impulso procesal.- El impulso del procedimiento se realizará de oficio sin perjuicio del que puedan darle las partes. En este sentido, la inercia de la Administración no excusará la del administrado.

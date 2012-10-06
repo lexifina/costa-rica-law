@@ -1,0 +1,1 @@
+Artículo 3.- Intervención del Tribunal Supremo de Elecciones.- De acuerdo con la Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil y la Ley de Opciones y Naturalizaciones, el Tribunal Supremo de Elecciones conocerá de las resoluciones dictadas por el Registro Civil en materia de naturalizaciones, ya sea en consulta preceptiva o en alzada, según corresponda.

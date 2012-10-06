@@ -1,0 +1,1 @@
+Artículo 87.- Impedimentos.- En ningún caso se concederá la nacionalidad costarricense cuando la parte gestionante haya cometido alguno de los delitos a los que se refiere el artículo 15 de la Ley de Opciones y Naturalizaciones.

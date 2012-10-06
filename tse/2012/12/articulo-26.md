@@ -1,0 +1,1 @@
+Artículo 26.- Prueba para demostrar el matrimonio con costarricense.- Para acreditar que la parte gestionante ha estado casada con costarricense la Sección de Opciones y Naturalizaciones solicitará la respectiva certificación a la correspondiente oficina del Registro Civil.

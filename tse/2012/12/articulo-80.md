@@ -1,0 +1,2 @@
+Artículo 80.- Información de otros órganos públicos.- La Sección de Opciones y Naturalizaciones requerirá a los órganos públicos correspondientes que remitan la prueba necesaria, para lo cual se les concederá un plazo de tres días contados a partir del día hábil siguiente de la respectiva notificación.
+Si de la prueba aportada a los autos se desprende que la parte gestionante tiene un 'conocido como', este deberá incluirse en las solicitudes a las cuales hace referencia el párrafo anterior.

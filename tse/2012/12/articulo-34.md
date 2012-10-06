@@ -1,0 +1,1 @@
+Artículo 34.- Plazo para realizar correcciones en Actos Jurídicos.- Recibida la solicitud planteada por la Sección de Opciones y Naturalizaciones, la Sección de Actos Jurídicos procederá a practicar las correcciones indicadas en un plazo no mayor de dos meses.

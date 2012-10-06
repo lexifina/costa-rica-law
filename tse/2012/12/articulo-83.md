@@ -1,0 +1,1 @@
+Artículo 83.- Seguimiento a las prevenciones.- De toda prevención de requisitos, la Sección de Opciones y Naturalizaciones dará puntual seguimiento y, si transcurrido el plazo concedido, no se ha recibido respuesta alguna, la solicitud se resolverá conforme a los documentos que obren en el expediente.

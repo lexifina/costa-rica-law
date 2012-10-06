@@ -1,0 +1,2 @@
+Artículo 88.- Orden de resolución de las solicitudes de naturalización.- Las solicitudes de naturalización serán resueltas observando un estricto orden cronológico, considerado a partir de la fecha en la que fue presentadas y al cumplimiento exacto de los requisitos en los términos establecidos en este reglamento.
+El orden será variado solamente si la parte gestionante alega una causa debidamente justificada y demostrada. Tanto la solicitud como la respuesta del Registro deberán quedar constando en el expediente.

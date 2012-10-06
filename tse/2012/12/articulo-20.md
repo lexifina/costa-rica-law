@@ -1,0 +1,1 @@
+Artículo 20.- Oposiciones a la solicitud.- De cualquier reparo u oposición que se hiciere a la solicitud, se dará audiencia a la parte gestionante por el término de ocho días hábiles, y si esta ofreciere prueba en su favor, se procederá a recibirla y valorarla y sobre su admisión o rechazo se decidirá con la resolución que apruebe o deniegue la solicitud de naturalización.

@@ -1,0 +1,1 @@
+Artículo 115.- Recurso de apelación por inadmisión.- El recurso de apelación por inadmisión podrá interponerse, y se tramitará según las normas establecidas en la Ley n.º 7130 de 4 de diciembre de 2008 y sus reformas –Código Procesal Civil–.

@@ -1,0 +1,1 @@
+Artículo 21.- Deber de notificación a la Procuraduría General de la República.- De todo acto de procedimiento emitido en el marco de la naturalización por residencia, dictado con posterioridad a la audiencia a la que se refiere el artículo 18 de este reglamento, deberá notificarse a la Procuraduría General de la República.

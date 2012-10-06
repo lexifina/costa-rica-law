@@ -1,0 +1,1 @@
+Artículo 42.- Resolución final en solicitudes autónomas de trascendencia.- Cuando la solicitud de naturalización por trascendencia se presente luego de que el progenitor o progenitora adquirió la calidad de costarricense, una vez recibidas las pruebas el Registro Civil dictará la resolución correspondiente.
