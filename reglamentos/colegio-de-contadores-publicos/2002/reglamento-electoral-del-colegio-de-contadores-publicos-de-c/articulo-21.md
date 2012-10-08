@@ -1,1 +1,0 @@
-Artículo 21.—De la revisión y supervisión de urnas electorales: La revisión y supervisión de las urnas electorales estará a cargo del Comité Electoral en conjunto con las Mesas Receptoras de Votos y fiscales designados por los candidatos.
