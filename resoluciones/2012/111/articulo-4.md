@@ -1,0 +1,1 @@
+IV.— Que la Contraloría General creará y conservará bajo su custodia el correspondiente expediente electrónico en el que mantendrá el registro de toda la información relacionada al trámite de cada documento presupuestario presentado para su aprobación.

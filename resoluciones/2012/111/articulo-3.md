@@ -1,0 +1,1 @@
+III.—Que toda la información complementaria posterior a la presentación de los presupuestos, que este órgano contralor requiera para el análisis de aprobación respectivo, se solicitará y recibirá por medio de la dirección de correo electrónico que cada institución indique en el oficio con el que haya remitido su documento presupuestario.
