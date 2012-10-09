@@ -14,3 +14,4 @@ Normativa para el cumplimiento de la ley N° 8204 aplicable solo a la Superinten
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-22 | la propia norma |
+| 2 | 2012-10-09 | Reglamento 1005 (2012-10-09) |
