@@ -1,4 +1,4 @@
-Artículo 16.—Los observadores nacionales acreditados por el Tribunal Supremo de Elecciones tendrán las siguientes obligaciones:
+Artículo 16.- Los observadores nacionales acreditados por el Tribunal Supremo de Elecciones tendrán las siguientes obligaciones:
 a) Respetar la Constitución Política, el Código Electoral y demás leyes, reglamentos, normas y disposiciones emanadas del Tribunal Supremo de Elecciones.
 b) Portar la credencial entregada por el Tribunal Supremo de Elecciones.
 c) No interferir ni obstaculizar el desarrollo de las votaciones u otras fases del proceso electoral.
@@ -9,4 +9,5 @@ g) Abstenerse de transmitir o publicar resultados del escrutinio provisional o d
 h) No intervenir directa o indirectamente en la toma de decisiones por parte de las Juntas Receptoras de Votos.
 i) Acatar las indicaciones que realizare el Tribunal, sus delegados, auxiliares o las Juntas Receptoras de Votos.
 j) Cooperar con otros observadores.
-k) Rendir, a más tardar dentro del mes siguiente a las votaciones, un informe sobre el ejercicio de observación efectuado, que deberá remitirse a la Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos del Tribunal Supremo de Elecciones.
+k) Rendir, a más tardar dentro del mes siguiente a las votaciones, un informe sobre el ejercicio de observación efectuado, que deberá remitirse a la Dirección General de Registro Electoral y de Financiamiento de Partidos Políticos; el informe deberá ajustarse a los lineamientos que determinará esa Dirección General.
+(Así reformado el inciso anterior mediante decreto del Tribunal Supremo de Elecciones, N° 19-2012 del 9 de octubre del 2012)
