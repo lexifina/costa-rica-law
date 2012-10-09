@@ -14,3 +14,4 @@ Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-15 | la propia norma |
+| 2 | 2012-10-09 | Reglamento 1005 (2012-10-09) |
