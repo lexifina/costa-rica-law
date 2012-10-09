@@ -1,0 +1,1 @@
+Artículo 17.—Sólo se aceptarán distancias mayores a las establecidas por las tablas cuando se demuestre que la variación obedeció a desvíos ordenados por la autoridad competente, cierres de carreteras u otras causa análogas ajenas a los funcionarios; en cuyo caso, se deberá anotar la justificación correspondiente en el formulario de “Liquidación de gastos de kilometraje”.

@@ -1,0 +1,2 @@
+Artículo 4º—Bajo ninguna circunstancia, la remuneración o facilidad que pueda representar el pago de kilometraje, será considerado como beneficio, mejora salarial, o salario en especie, ni dará lugar a derechos adquiridos a favor del funcionario arrendante, lo cual quedará expresamente establecido en el Contrato de Arrendamiento.
+El reconocimiento económico por concepto de pago de kilometraje no obliga a la Operadora a otorgar espacios de parqueo en las zonas de estacionamiento de su propiedad.

@@ -1,0 +1,10 @@
+Artículo 6º—Para que el funcionario ingrese al sistema de arrendamiento, deberá presentar ante su Jefatura inmediata un formulario de solicitud de ingreso al sistema y ésta deberá autorizarlo dicha solicitud expresamente, además deberá cumplir con los siguientes requisitos:
+a. Que el vehículo por utilizar se encuentre inscrito en el Registro Nacional de la Propiedad de Vehículos Automotores a nombre del funcionario. Para acreditar este hecho se deberá aportar la certificación correspondiente. Este vehículo debe ser registrado en el sistema de arrendamiento.
+b. Que el vehículo por utilizar se encuentre en excelentes condiciones mecánicas y de carrocería, que el odómetro esté en excelente estado y que el vehículo sea adecuado para la clase de trabajo para la cual se va a utilizar.
+c. Que se encuentre al día en el pago de los derechos de circulación y que el vehículo cuente con el marchamo.
+d. Que su licencia para conducir se encuentre vigente.
+e. El vehículo deberá contar con pólizas del Instituto Nacional de Seguros, cuyas coberturas respondan razonablemente, a juicio de la Administración, por lesiones o muertes, y por daños a la propiedad de terceras personas. El deducible de la póliza, en caso de accidente deberá ser cubierto por el dueño del vehículo. La póliza por robo del vehículo será opcional. Si el funcionario no adquiere esta última póliza deberá en su lugar aportar una declaración jurada donde manifieste que no hará responsable a BN VITAL en caso de robo o tacha de su vehículo.
+f. El vehículo deberá tener la “Revisión técnica vehicular” vigente para el año calendario en curso, exigida por el Ministerio de Obras Públicas y Transportes (MOPT).
+g. Que el vehículo será conducido únicamente por el Funcionario propietario.
+No procederá el cobro ni el reconocimiento del kilometraje recorrido cuando el funcionario utilice otro vehículo que no se encuentre registrado en el sistema.
+El funcionario admitido en el sistema de arrendamiento se obliga a informar de inmediato a su jefe y esté a la Jefatura del Departamento de Administración y Finanzas, cualquier cambio de las condiciones esenciales aquí indicadas.

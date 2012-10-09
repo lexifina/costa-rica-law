@@ -1,0 +1,2 @@
+Artículo 13.—Será responsabilidad de la jefatura del colaborador usuario del sistema de “Pago de Kilometraje”, previo a autorizar la gira o gestión, constatar la disponibilidad de recursos presupuestarios.
+Quienes realicen giras o gestiones sin contar con el sustento económico y autorizaciones estipuladas estarán siendo los responsables directos de cubrir con su peculio los gastos en que se pueda haber incurrido, sin que ello los exima de la aplicación de eventuales sanciones disciplinarias.

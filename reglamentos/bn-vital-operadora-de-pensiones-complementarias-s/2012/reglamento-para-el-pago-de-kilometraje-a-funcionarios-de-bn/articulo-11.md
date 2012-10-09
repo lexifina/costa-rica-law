@@ -1,0 +1,2 @@
+Artículo 11.—La Operadora no se hará responsable en caso de robo del vehículo, por lo cual la póliza referida en el artículo 9 debe tener cobertura contra robo o, en su defecto, el funcionario deberá rendir la declaración jurada señalada en el inciso e, del artículo 8 de este Reglamento.
+La Operadora tampoco se hará responsable de ningún daño o perjuicio que sobrevenga por robo, hurto, accidentes, o cualquier otra situación que se genere por la utilización del vehículo dentro del sistema de arrendamiento.
