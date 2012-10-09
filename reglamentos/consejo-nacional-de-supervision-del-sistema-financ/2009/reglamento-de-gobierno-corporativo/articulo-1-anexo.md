@@ -33,7 +33,8 @@ e) Indique la cantidad de sesiones que realizó la Junta Directiva u órgano equ
 f) Indique la existencia de las políticas sobre conflicto de interés, el lugar en que están disponibles para su consulta, y las modificaciones que se hayan realizado durante el periodo.
 g) Realice una descripción de las políticas para la remuneración de los miembros de la Junta Directiva u órgano equivalente que se hayan aprobado.
 h) Si la entidad ha dispuesto voluntariamente una política interna sobre rotación, realice una descripción de las políticas sobre rotación de los miembros de la Junta Directiva u órgano equivalente.
-III. Comités de apoyo
+(*) III.—Comités de apoyo
+Esta sección se aplica a todos los comités de apoyo establecidos por la entidad, excepto en lo indicado en el inciso a) numeral v., y lo indicado en el inciso b) únicamente para el Comité de Cumplimiento, dispuesto en la Normativa para el Cumplimiento de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, Ley 8204.
 a) Indique los comités de apoyo con que cuenta la entidad en donde se incluya al menos la siguiente información:
 i. Nombre del comité.
 ii. Cantidad de miembros.
@@ -45,15 +46,14 @@ COMITÉ DE _______________
 Nombre y número de identificación del miembro | Cargo | Fecha de último nombramiento
 | |
 | |
-| |
 Nombre y número de identificación miembros independientes
-| |
 | |
 c) Realice una descripción de las políticas para la selección, nombramiento y destitución de los miembros de los comités de apoyo.
 d) Realice una descripción de las políticas para la remuneración de los miembros de los comités de apoyo.
 e) Si la entidad ha dispuesto voluntariamente una política interna sobre rotación, realice una descripción de las políticas sobre rotación de los miembros de los comités de apoyo.
 f) Realice una descripción de las políticas aprobadas por la entidad mediante las cuales los miembros de los comités de apoyo se ven obligados a abstenerse a votar o participar en las reuniones del comité, o inclusive a dimitir de su nombramiento.
 g) Indique la cantidad de sesiones que realizó cada comité de apoyo durante el periodo.
+(*)(Así reformado el aparte III) anterior mediante sesión N° 1005-2012 del 9 de octubre del 2012)
 (*)IV. Operaciones vinculadas
 a) Detalle las operaciones relevantes que supongan una transferencia de recursos u obligaciones entre la entidad y los miembros de Junta Directiva u órgano equivalente y los ejecutivos de alguna de las entidades del grupo o conglomerado, incluyendo la controladora. Revele en forma agregada para cada empresa que comprende el informe, lo siguiente:
 ENTIDAD: _____________________ Fecha de Corte: __________________
