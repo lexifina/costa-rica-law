@@ -1,0 +1,1 @@
+Artículo 21.—El CORRESPONSAL AGENTE PROMOTOR deberá guardar la confidencialidad y exclusividad de la información y material del que sea titular o que posea BN VITAL, y a la cual tenga acceso, en virtud del convenio existente entre las partes, así como asegurar el respeto de este carácter de confidencialidad de la información.

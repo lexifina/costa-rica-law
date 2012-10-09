@@ -1,0 +1,1 @@
+Artículo 11.—BN VITAL nombrará un representante para que funja como Administrador del Contrato, quien tendrá a cargo la coordinación de los detalles de su ejecución. Dicho representante será nombrado por la Gerencia General una vez entrado en vigencia dicho reglamento.

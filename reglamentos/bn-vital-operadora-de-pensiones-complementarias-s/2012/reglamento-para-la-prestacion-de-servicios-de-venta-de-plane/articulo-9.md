@@ -1,0 +1,1 @@
+Artículo 9º—Toda Persona física o jurídica que quiera participar como Corresponsal Agente Promotor deberá de llenar el formulario 7F11 Registro de proveedores, el mismo lo pueden retirar en las oficinas de BN VITAL OPC, o solicitarlo al correo electrónico bnvcontranadm@bncr.fi.cr.

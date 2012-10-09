@@ -1,0 +1,2 @@
+Selección de los corresponsales agentes promotores
+Artículo 13.—De previo a emitir la recomendación para afiliar al CORRESPONSAL AGENTE PROMOTOR, la Dirección Administrativa en Conjunto con la Gerencia Comercial realizará una entrevista en las oficinas de la Operadora, con el fin de validar información presentada, conocer a los solicitantes y conversar acerca de los métodos de trabajo a desarrollar. En caso de las personas Jurídicas realizará la entrevista con el representante legal de la empresa.

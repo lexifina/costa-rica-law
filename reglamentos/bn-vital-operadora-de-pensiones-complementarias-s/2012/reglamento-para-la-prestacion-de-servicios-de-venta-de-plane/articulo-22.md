@@ -1,0 +1,1 @@
+Artículo 22.—Durante todo el plazo de la ejecución del contrato, será de acatamiento obligatorio para el CORRESPONSAL AGENTE PROMOTOR de todas y cada una de las disposiciones contenidas en este Reglamento, y el contrato suscrito con BN VITAL.

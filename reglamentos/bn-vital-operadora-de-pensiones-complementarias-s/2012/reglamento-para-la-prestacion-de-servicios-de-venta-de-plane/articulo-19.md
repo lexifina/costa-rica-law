@@ -1,0 +1,1 @@
+Artículo 19.—El CORRESPONSAL AGENTE PROMOTOR es totalmente responsable ante BN VITAL por los daños y perjuicios ocasionados a terceros, en razón de la no prestación del servicio por factores ajenos a BN VITAL, así como por cualquier acción u omisión que se realice en detrimento de las obligaciones contractuales que ahora se asumen.

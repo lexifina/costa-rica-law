@@ -1,0 +1,1 @@
+Artículo 6º—La contratación de CORRESPONSALES AGENTES PROMOTORES permite a BN VITAL ofrecer a los Afiliados la facilidad para la realización de trámites de afiliación en el campo de las pensiones obligatorias, por medio de contratos que se suscriben con los CORRESPONSALES AGENTES PROMOTORES.

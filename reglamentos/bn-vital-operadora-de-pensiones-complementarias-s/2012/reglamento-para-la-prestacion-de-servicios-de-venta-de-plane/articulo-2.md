@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento tiene como finalidad asegurar el trato igualitario por parte del BN VITAL OPC S. A. en adelante denominado BN VITAL, en la escogencia de los CORRESPONSALES AGENTES PROMOTORES y la relación contractual entre ambos, todo en apego a los requerimientos señalados en la legislación en materia de Contratación Administrativa.
