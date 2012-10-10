@@ -1,0 +1,1 @@
+Artículo 2º— Deróguese el artículo 10 del Decreto N°29389-MOPT publicado en el Diario Oficial La Gaceta Nº 61 de fecha 27 de marzo del 2001 (Reglamento para la Emisión de los Certificados de Zafarrancho) y sus reformas.
