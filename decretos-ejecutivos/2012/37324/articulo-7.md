@@ -1,0 +1,2 @@
+Artículo 7°— Del Ministerio de Justicia y Paz:
+El Ministerio de Justicia y Paz, como organismo ejecutor, será responsable de la dirección estratégica del programa, así como de su supervisión permanente, para lo cual establecerá los mecanismos de asesoramiento, coordinación, comunicación, monitoreo y evaluación, que resulten necesarios para la adecuada ejecución de las actividades previstas en cada uno de sus componentes y proyectos.

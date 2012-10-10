@@ -1,0 +1,2 @@
+Artículo 28°— De la Coordinación Administrativa:
+El OE/MJP y las EP, en aplicación de los principios de eficiencia y sana administración que rigen el servicio público, en la medida de sus posibilidades deberán apoyar administrativa y logísticamente a la UEP en caso de que se requiera, por medio de la estructura administrativa existente. Así mismo, las instituciones participantes deberán apoyar administrativa, técnica y logísticamente a cada uno de los Gerentes Técnicos de los proyectos donde estén involucradas.

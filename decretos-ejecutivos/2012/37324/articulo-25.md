@@ -1,0 +1,2 @@
+Artículo 25°— De la Asesoría en Tecnologías de Información:
+La UEP podrá contar con la asesoría y apoyo en tecnologías de información que sean necesarios para la implementación de los sistemas informáticos en las áreas de documentación, control interno, administración, finanzas, contabilidad, monitoreo u otros que se requieran para el mejor desempeño de las gestiones o del desarrollo sustantivo del programa.

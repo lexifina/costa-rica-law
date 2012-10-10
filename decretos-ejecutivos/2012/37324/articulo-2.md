@@ -1,0 +1,2 @@
+Artículo 2º— Objetivo del Programa:
+El objetivo general es contribuir a la disminución del delito violento en el país. Los objetivos específicos son: i) Incrementar la eficacia de la fuerza policial a nivel nacional; ii) Reducir la incidencia delictiva de los jóvenes en riesgo en las áreas de influencia del proyecto; y iii) Reducir la tasa de reincidencia de la población en conflicto con la ley penal.

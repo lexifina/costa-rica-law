@@ -1,0 +1,3 @@
+Artículo 30°— De la Comisión de adjudicaciones:
+Todo procedimiento de contratación deberá ser conocido por la comisión de adjudicaciones, que deberá emitir la recomendación que corresponda en derecho al Coordinador/ra General, velando por el cumplimiento de los principios y procedimientos contractuales que resulten aplicables. Para tal efecto deberá contar con el análisis y recomendación legal y técnica respectivos.
+Estará conformada por las personas que el Coordinador General designe, además de un funcionario de los procesos de Adquisiciones, Financiero y el/ la Gerente Técnico/a del componente que corresponda.

@@ -1,0 +1,2 @@
+Artículo 16°— De la Sub Coordinación General:
+La UEP contará con una Sub - Coordinación General que será ejercida por un(a) funcionario (a) del MJP, y será considerado como parte de la contrapartida nacional. Sustituirá al Coordinador General en su ausencia temporal con iguales facultades y deberes, y se ocupará primordialmente de los aspectos operativos de la gestión del programa, con especial interés en los temas del ámbito administrativo. Será designado(a) y removido(a) del cargo directamente por el MJP.
