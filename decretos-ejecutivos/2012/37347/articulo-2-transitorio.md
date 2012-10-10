@@ -1,0 +1,1 @@
+Transitorio II.—Todos los procedimientos de contratación administrativa ya iniciados y proyectos de obras públicas que se estén ejecutando, se concluirán bajo los términos y disposiciones contratados; por haber sido formulados y pactados bajo dicha especificación.
