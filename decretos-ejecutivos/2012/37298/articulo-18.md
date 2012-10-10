@@ -1,0 +1,1 @@
+Artículo 18°- Los miembros del CAN pueden pedir la revisión de los acuerdos que se tomen en la sesión inmediata siguiente, antes de la aprobación del acta respectiva. Si el CAN acoge el recurso, el asunto volverá al estado en que se encontraba antes de votarse.

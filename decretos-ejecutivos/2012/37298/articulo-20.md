@@ -1,0 +1,1 @@
+Artículo 20°- Los documentos o comunicaciones que deban ser conocidos por el CAN, cuya presentación y resolución esté sujeta a término, se entregarán directamente en el Despacho de la Ministra para que sean sometidos al conocimiento del CAN en la siguiente sesión.

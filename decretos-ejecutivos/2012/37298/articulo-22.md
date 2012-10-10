@@ -1,0 +1,2 @@
+Artículo 22°- Cada Directivo expresará su voto afirmativo o negativo, pero no podrá abstenerse de votar. La Ministra Rectora, quien preside la sesión, recibirá los votos, los cuales se consignarán en el acta con la especificación del nombre de cada votante. Todo voto salvado deberá hacerse constar en el acta respectiva, debiendo ser firmada la misma por el Directivo que lo emitió.
+El Director que lo desee puede razonar su voto por escrito o verbalmente, limitándose al fondo del asunto.

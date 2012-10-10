@@ -1,0 +1,7 @@
+Artículo 7º- Rectorías intersubjetivas: Para el cumplimiento de las funciones de Rectoría, la Presidenta de la República junto con la Ministra Rectora competente podrán emitir directrices a los entes públicos pertenecientes al respectivo Sector.
+El Poder Ejecutivo ejercerá la potestad de dirección intersubjetiva mediante la promulgación de directrices generales.
+Podrán concurrir dos o más Ministros Rectores en la promulgación de directrices que regulen actividades sectoriales de varias instituciones vinculadas entre sí por razón de la materia.
+Para estos efectos la Presidenta de la República junto con la Ministra Rectora del Sector Agroalimentario podrán emitir directrices para:
+a) Ordenar, orientar, dirigir, vigilar, programar, planificar y coordinar la actividad de las instituciones del Sector con la Administración Central y el resto de la administración descentralizada, con el fin de satisfacer los intereses generales, de fiscalizar y rendir cuentas sobre los fondos públicos asignados para el cumplimiento de sus fines, imponiéndoles las metas y los tipos de medios que habrán de emplear para realizarlas.
+b) Asegurar la unidad de acción por parte de las instituciones públicas para una gestión administrativa armónica y coherente, así como el cumplimiento efectivo de los fines y cometidos públicos asignados a las instituciones que conforman el respectivo Sector, de acuerdo al orden jurídico vigente.
+c) Ejercer control tutelar preventivo o sucesivo, cuando lo disponga expresamente la Ley.

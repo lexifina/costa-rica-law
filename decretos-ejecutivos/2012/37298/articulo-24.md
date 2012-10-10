@@ -1,0 +1,1 @@
+Artículo 24º- Cualquier administrado que esté legitimado podrá interponer por escrito los recursos ordinarios regulados en la Ley General de la Administración Pública, y en el Código Procesal Contencioso Administrativo en contra de los acuerdos del CAN, en el plazo dispuesto por la legislación, según sea el caso, luego de haber sido notificado o que tenga conocimiento del asunto.

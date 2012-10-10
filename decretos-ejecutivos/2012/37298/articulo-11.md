@@ -1,0 +1,1 @@
+Artículo 11º- Los organismos del Sector Público Agroalimentario estarán obligados, cada vez que la Ministra Rectora lo solicite, a rendir informes sobre el avance, resultados e impactos de los planes, programas y proyectos agropecuarios, que corresponda ejecutar a cada una de sus organizaciones, en los plazos y procedimientos establecidos por la Rectoría.

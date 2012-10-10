@@ -1,0 +1,1 @@
+Artículo 17°- Cuando por razones de oportunidad, mérito y conveniencia se requiera ejecutar en forma inmediata un acuerdo tomado en la sesión, se podrá declarar como un acuerdo firme por la totalidad de los miembros presentes.

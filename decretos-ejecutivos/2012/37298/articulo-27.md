@@ -1,0 +1,1 @@
+Artículo 27°- Se deroga cualquier disposición de igual o menor rango que contravenga lo regulado en este Reglamento y en todo lo no dispuesto en él se aplicará las normas establecidas en la Ley General de la Administración Pública para los Órganos Colegiados y en la Ley de Fomento a la Actividad Agropecuaria y Orgánica del Ministerio de Agricultura y Ganadería

@@ -1,0 +1,1 @@
+Artículo 12º- La coordinación, articulación e integración de los servicios que brindan los organismos del Sector Agroalimentario se podrá ejercer por medio de cualquiera de las figuras jurídicas existentes, tales como convenios, cartas de entendimiento, directrices, foros y equipos de trabajo conjunto.
