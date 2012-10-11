@@ -44,3 +44,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 29 | 2012-09-07 | Decreto Ejecutivo 37330 (2012-09-07) |
 | 30 | 2012-09-07 | Decreto Ejecutivo 37304 (2012-09-07) |
 | 31 | 2012-09-10 | Decreto Ejecutivo 37318 (2012-09-10) |
+| 32 | 2012-10-11 | Decreto Ejecutivo 37374 (2012-10-11) |
