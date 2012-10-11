@@ -1,0 +1,1 @@
+Artículo 11º —Cualquier medida técnica que se ordene, deberá estar debidamente sustentada y cumplirse, según sea el caso, con el debido proceso establecido en la Ley General de la Administración Pública y las leyes correspondientes de cada institución.

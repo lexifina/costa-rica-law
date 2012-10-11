@@ -1,0 +1,1 @@
+Artículo 10º —Para el cumplimiento de los fines de este decreto, las personas físicas y jurídicas, así como los funcionarios públicos, estarán en la obligación de prestar toda la colaboración necesaria, de acuerdo con las facultades que se le confiere a la Administración Pública en la legislación vigente.

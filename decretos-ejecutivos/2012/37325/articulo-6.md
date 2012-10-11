@@ -1,0 +1,2 @@
+Artículo 6º —De las Sesiones de la Comisión. La Comisión sesionará ordinariamente una vez cada dos meses y extraordinariamente cuando sea convocada por la Presidencia, en el lugar que para el efecto designe la convocatoria correspondiente.
+Para la regulación de las sesiones y sus formalidades, la Comisión deberá observar el Libro Primero, Título Segundo, Capítulo Tercero de la Ley Nº 6227, Ley General de Administración Pública.

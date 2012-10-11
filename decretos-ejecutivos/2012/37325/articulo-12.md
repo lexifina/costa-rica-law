@@ -1,0 +1,1 @@
+Artículo 12º —Derogaciones. Deróguese el Decreto Ejecutivo Nº 34129-MEIC-MAG-MS del 31de julio del 2007, Reglamento para la Verificación Conjunta del Cumplimiento de los Reglamentos Técnicos, publicado en el Diario Oficial La Gaceta N° 240 del 13 de diciembre de 2007.

@@ -1,0 +1,1 @@
+Artículo 7º —La función de verificación de los reglamentos técnicos y los reglamentos para la aplicación de medidas sanitarias en inocuidad de alimentos, estará a cargo de las dependencias indicadas en el artículo 4 del presente decreto.
