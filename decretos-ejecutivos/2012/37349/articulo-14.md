@@ -1,0 +1,1 @@
+Artículo 14.—Autorización de documentos de ejecución presupuestaria. Los documentos de ejecución presupuestaria que oportunamente se deban tramitar, de acuerdo con el procedimiento institucional vigente, deberán contener la autorización previa, mediante firma o medio electrónico similar, del Auditor(a) General o el funcionario designado por éste para esa función.

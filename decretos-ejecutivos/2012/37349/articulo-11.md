@@ -1,0 +1,4 @@
+CAPÍTULO III
+Asignaciones presupuestarias
+Artículo 11.—Asignación de recursos para la Auditoría General por parte del Jerarca. De acuerdo con el artículo 27 de la Ley General de Control Interno, el Jerarca deberá asignar los recursos humanos, materiales, tecnológicos, de transporte y otros que sean necesarios y suficientes para que la Auditoría General pueda cumplir satisfactoriamente con los objetivos para los cuales se ha constituido.
+Será deber del Auditor(a) General, proponer oportuna y debidamente justificados los requerimientos de recursos para llevar adelante su plan, así como establecer técnica y objetivamente, la cantidad y características de los recursos humanos y de otra naturaleza que requiera, para que las condiciones de su funcionamiento sean las idóneas y le permitan cumplir sus competencias, deberes y potestades.

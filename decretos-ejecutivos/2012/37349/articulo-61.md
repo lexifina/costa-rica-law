@@ -1,0 +1,1 @@
+Artículo 61.— Etapas del proceso de Auditoría. El proceso de auditoría financiera, operativa (conocida como de Gestión) o de carácter especial, debe comprender las etapas de administración, planificación, ejecución del estudio, comunicación de resultados y seguimiento de disposiciones o recomendaciones.

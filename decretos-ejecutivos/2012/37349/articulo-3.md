@@ -1,0 +1,10 @@
+Artículo 3.—Definiciones. Para la adecuada comprensión del presente reglamento, se utilizaran las siguientes definiciones:
+Administración Activa: Es el conjunto de órganos y funciones de la Administración, que incluyendo al Jerarca despliegan una actividad decisoria, ejecutiva, resolutoria, directiva u operativa.
+Auditoría General: Auditoría General del Ministerio de Obras Públicas y Transportes.
+Auditor(a) General: Funcionario(a) de mayor jerarquía dentro de la Auditoría General y responsable directo del planeamiento, dirección, coordinación y supervisión de actividades del más alto grado de dificultad o complejidad en la Auditoría General, así como la evaluación y examen de bienes y operaciones financiero-contables, administrativas y especiales de este Ministerio.
+Contraloría General: Contraloría General de la República. Órgano de Fiscalización Superior de la Hacienda Pública.
+Jerarca: El Ministro(a) de Obras Públicas y Transportes, el cual ejerce la máxima autoridad en la Institución.
+Ministerio: Ministerio de Obras Públicas y Transportes, MOPT.
+Niveles jerárquicos: Ministro, Viceministros y Titulares Subordinados.
+Personal de Auditoría: Cada uno de los funcionarios que laboran para la Auditoría General, ejecutando los diversos servicios de fiscalización y evaluación, así como de apoyo técnico, legal e informático, incluyendo los que ejecutan las actividades operativas de índole administrativa, secretariado, mensajería, transporte, entre otros.
+Sistema de Control Interno: Según la Ley General de Control Interno, es la serie de acciones ejecutadas por la Administración Activa, diseñadas para proporcionar seguridad en la consecución de los siguientes objetivos: a) Proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal; b) Exigir confiabilidad y oportunidad de la información; c) Garantizar eficiencia y eficacia de las operaciones y d) Cumplir con el ordenamiento jurídico y técnico. Los órganos del Sistema de Control Interno son la Administración Activa y la auditoría interna de los órganos o entes sujetos a la Ley de Control Interno.

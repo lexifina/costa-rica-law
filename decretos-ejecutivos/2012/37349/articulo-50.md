@@ -1,0 +1,2 @@
+Artículo 50.—Integración a solicitud de la Auditoría en comisiones o similares. La Auditoría Interna deberá participar en comisiones u órganos similares cuando así lo requiera el Jerarca y fuere compatible con su normativa reguladora.
+Cuando fuere la Auditoría Interna quien estimare necesario formar parte de alguna comisión o grupo de trabajo, así lo solicitará al respectivo Jerarca, quien resolverá lo que corresponda según cada caso.
