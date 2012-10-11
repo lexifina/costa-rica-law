@@ -1,1 +1,0 @@
-Artículo 9°—Cuando hubiere empate en la votación de una moción, de un acuerdo o de otra disposición de la Junta, aquél o aquélla será puesto de nuevo en discusión y votación en la siguiente sesión; si resultare otro empate, el Presidente o quien lo sustituya decidirá la votación por medio de un voto de calidad que gozará para estos casos.

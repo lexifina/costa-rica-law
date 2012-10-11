@@ -1,1 +1,0 @@
-Artículo 24.—Las partes considerativas generales, cuando fuere del caso, y las dispositivas de las resoluciones de la Junta Directiva las comunicará el Presidente o la Secretaría de la Junta Directiva a los interesados y podrán hacerse del conocimiento del público a través de los diferentes órganos de publicidad cuando, a juicio délos Directores, sea conveniente hacerlo.

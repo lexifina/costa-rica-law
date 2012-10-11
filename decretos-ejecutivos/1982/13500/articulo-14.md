@@ -1,1 +1,0 @@
-Artículo 14.—Cuando las circunstancias lo ameritan, el Presidente o quien lo supla, podrá convocar a sesiones de la Junta Directiva en lugar distinto a las oficinas centrales. Además podrá organizar visitas de la Junta Directiva a los lugares donde se realicen obras del Consejo.

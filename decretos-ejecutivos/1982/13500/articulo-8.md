@@ -1,1 +1,0 @@
-Artículo 8°—Las mociones estarán referidas a las peticiones o proposiciones para modificar el asunto o proyecto que se discute. Las mociones de orden han de referirse necesariamente a cuestiones de procedimiento, y tendrán prioridad en la discusión.
