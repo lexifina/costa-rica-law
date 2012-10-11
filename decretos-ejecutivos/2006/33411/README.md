@@ -20,3 +20,4 @@ Reglamento a la Ley de Contratación Administrativa
 | 5 | 2008-11-28 | Decreto Ejecutivo 34974 (2008-11-28) |
 | 6 | 2009-04-30 | Decreto Ejecutivo 35218 (2009-04-30) |
 | 7 | 2011-04-01 | SINALEVI (sin norma nombrada) |
+| 8 | 2012-10-11 | Decreto Ejecutivo 37427 (2012-10-11) |
