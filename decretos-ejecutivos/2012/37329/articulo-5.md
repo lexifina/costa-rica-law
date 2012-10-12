@@ -1,0 +1,1 @@
+QUINTO.- Informar al propietario, poseedores y/o titulares de derechos reales de las edificaciones y el inmueble citados, que esta declaratoria prohíbe la demolición, o remodelación parcial o total de las edificaciones y sus entornos, sin la autorización previa del Centro de Investigación y Conservación del Patrimonio Cultural de esta Cartera Ministerial.
