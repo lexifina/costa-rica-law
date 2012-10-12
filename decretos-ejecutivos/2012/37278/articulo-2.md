@@ -1,0 +1,1 @@
+Artículo 2°- Sustitúyase del párrafo segundo del articulo 71, la frase “Dirección General de Tributación Directa”, para que en su lugar se lea “Municipalidad o del Concejo Municipal de Distrito, según el caso”.
