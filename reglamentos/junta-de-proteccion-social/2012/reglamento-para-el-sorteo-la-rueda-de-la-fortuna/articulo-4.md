@@ -1,0 +1,2 @@
+4. Se aprueba el presente Reglamento, según acuerdos JD-669, correspondiente al artículo VI), inciso 20) de la sesión No.47-2011 celebrada el 15 de diciembre del 2011, JD-190, artículo V), inciso 1) de la sesión ordinaria No. 14-2012 celebrada el 17 de abril del 2012 y JD-481, artículo I), inciso 3) de la sesión extraordinaria No. 14-2012 celebrada el 20 de setiembre del 2012.
+San José, 10 de octubre del 2012.
