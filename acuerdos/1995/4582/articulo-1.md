@@ -9,6 +9,7 @@ B) Declarar de APTITUD NO TURISTICA el sector costero de Playa Tigre y Punta Tig
 280.380 N - 537.400 E
 277.750 N - 539.350 E
 según hoja cartográfica Golfo Dulce 3541 IV a escala 1:50.000 del I.G.N.
+(Mediante acuerdo N° SJD-485-2012 del 16 de octubre del 2012 "Declaratoria de las áreas de zona marítimo terrestre que no forman parte del Patrimonio Natural del Estado, para el cantón de Golfito, Declara de aptitud turística los sectores de zona marítimo terrestre del frente costero del cantón de Golfito", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el Cantón de Golfito)
 C) Declarar de APTITUD TURISTICA el sector costero de Playa Hermosa sita en el distrito Cortés, cantón Osa, provincia de Puntarenas, ubicado entre las coordenadas Lambert, Costa Rica Sur:
 349.900 N - 486.750 E
 349.000 N - 487.900 E
@@ -22,4 +23,5 @@ según hoja cartográfica Sierpe 3442 II, a escala 1:50.000 del I.G.N.
 277.750 N - 539.350 E
 según hoja cartográfica Golfo Dulce 3541 IV a escala 1:50.000 del I.G.N.
 (*) (Mediante sesión N° 4902 del 8 de marzo de 1999, "Declara Aptitud Turística Sector Costero Puerto Jiménez Golfito Desde Puerto Jiménez hasta Boca del Río Platanares", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el sector de Puerto Jiménez)
+(Mediante acuerdo N° SJD-485-2012 del 16 de octubre del 2012 "Declaratoria de las áreas de zona marítimo terrestre que no forman parte del Patrimonio Natural del Estado, para el cantón de Golfito, Declara de aptitud turística los sectores de zona marítimo terrestre del frente costero del cantón de Golfito", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el Cantón de Golfito)
 Lic. Ana Catalina Brenes Loaiza, Jefa Departamento de Concesiones.-
