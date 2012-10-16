@@ -1,0 +1,2 @@
+Artículo 7º-. El desarrollador o fraccionador deberá entregar el área para juegos infantiles con el equipamiento necesario. La zona del parque se deberá dejar enzacatada y arborizada.
+Para la arborización de las áreas de parque y juegos infantiles se seguirá lo indicado en el artículo III.2.9.1 del Reglamento de Fraccionamiento y Urbanización (Así reformado por el artículo IV de la Sesión Ordinaria NO. 3928 del INVU, de 19 de junio de 1989).

@@ -1,0 +1,1 @@
+Artículo 12-. En el área de juegos para niños en edad escolar se podrán incluir canchas de fútbol infantil, de baloncesto y de uso múltiple. En el área para párvulos se debe incluir un área para bebés con las debidas facilidades para que los adultos puedan permanecer períodos prolongados de tiempo.

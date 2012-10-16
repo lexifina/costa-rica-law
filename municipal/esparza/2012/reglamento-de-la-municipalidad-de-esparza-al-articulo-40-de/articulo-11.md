@@ -1,0 +1,1 @@
+Artículo 11-. De los indicados 10 m²/familia se destinará para juegos infantiles: 2 m²/ vivienda a zona de juego para párvulos (menores de 3 años). 4 m²/vivienda a zona de juego para niños de (3 a 7 años). 4 m² /vivienda a zona de juego para niños en edad escolar (mayores de 7 y menores de 13 años).

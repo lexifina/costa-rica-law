@@ -1,0 +1,2 @@
+Artículo 13-. En las áreas destinadas a parque, juegos y en general a recreación al aire libre, el desarrollador o fraccionador proveerá espacios abiertos para refugio de las personas, con un área mínima de 6 metros cuadrados por cada 500 metros cuadrados. Por fracción adicional de parque se incrementará proporcionalmente el área de refugio.
+El diseño de estas estructuras deberá contar con la aprobación del INVU, el Ministerio de Salud y la Municipalidad.

@@ -1,0 +1,3 @@
+Artículo 9º-. Con el fin de que los juegos sean adecuados a la zona, durables y seguros, el INVU proveerá planos de juego cuyo uso recomienda. Las copias de planos serán pagadas por los interesados.
+Por razón de seguridad o durabilidad, el INVU o la Municipalidad podrán rechazar los tipos de juegos que propongan el desarrollador o fraccionador.
+En el caso de que el área de juegos infantiles esté inmediata a una quebrada, río, canal o calle primaria y en general sitios peligrosos es obligación del desarrollador o fraccionador cerrar el sitio con malla, seto, tapia u otro sistema que ofrezca seguridad.

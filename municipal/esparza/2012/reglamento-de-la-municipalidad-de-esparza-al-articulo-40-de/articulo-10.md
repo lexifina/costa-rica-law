@@ -1,0 +1,1 @@
+Artículo 10-. Cuando el fraccionamiento no vaya a ser habitado de inmediato, el desarrollador podrá pagar en efectivo a la Municipalidad el costo de las obras y el equipo para que ésta habilite el área en el momento en que se requiera, según precio que determine la Municipalidad.

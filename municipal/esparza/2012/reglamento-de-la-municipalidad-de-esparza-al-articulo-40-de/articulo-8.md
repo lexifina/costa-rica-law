@@ -1,0 +1,3 @@
+Artículo 8º-. Para cumplir lo anterior, presentará al INVU y la Municipalidad un plano completo en que se indiquen las obras a realizar y el equipamiento que se les dará.
+Dichas obras incluirán: juegos, refugios, pavimentos, aceras, vallas, arborización, terraceos, bancas y cualquier otro detalle pertinente, todo según sea del caso. En todo caso proveerá salidas de agua potable, distribuidas de acuerdo a una cobertura no menor de cincuenta metros (50 m) de radio.
+Para efecto del cálculo de los juegos a instalar se considerará un núcleo por cada 50 unidades de vivienda. En proyectos de más de l000 viviendas o lotes el número de juegos se definirá en cada caso.

@@ -1,0 +1,5 @@
+Artículo 4º-. El desarrollador o fraccionador cederá gratuitamente para áreas verdes y equipamiento comunal el siguiente porcentaje de área urbanizable: (Así reformado por el artículo IV de la Sesión No. 3773 del INVU, de 17 de noviembre de 1987)
+a-) Urbanización o fraccionamiento residencial: El criterio a utilizar es el de densidad habitacional debiendo cederse (20) metros cuadrados por lote o 20 m² por unidad de vivienda.
+Esta cantidad en porcentaje no podrá ser menor de un 5%, ni mayor de un 20% del área urbanizable, salvo en viviendas de interés social en cuyo caso el mínimo será el 10%, Turismo 15%, Comercial 10%, Industrial 10%. (Así reformado por el artículo IV de la Sesión NO.3773 del INVU, de 17 de noviembre de 1987).
+b-) Áreas Verdes: La porción del área que se ubique en la urbanización deberá destinarse prioritariamente a juegos infantiles y parque.
+Lo necesario para estos usos se calculará así: por lote o casa 10 m² para juegos infantiles, el resto del área hasta completar l/3 del área pública para parque o juegos deportivos. Estas dos áreas deberán estar preferentemente juntas.
