@@ -18,7 +18,8 @@ El sector costero de Punta Barrigona, perteneciente a la Provincia de Puntarenas
 178.600 N-410.200 E
 176.400 N-410.850 E
 de la proyección Lambert de Costa Rica, según hoja cartográfica "Cabuya" a escala 1:50.000, editada por el Instituto Geográfico Nacional.
-El sector costero de Playa Pilón, perteneciente a la Provincia de Puntarenas, Cantón VII, Golfito, como Zona Turística entre coordenadas:
+(*) El sector costero de Playa Pilón, perteneciente a la Provincia de Puntarenas, Cantón VII, Golfito, como Zona Turística entre coordenadas:
 266.00 N-561.93 E
 267.10 N-563.05 E
 de la proyección Lambert de Costa Rica, según hoja cartográfica "Pavón" a escala 1:50.000, editada por el Instituto Geográfico Nacional.
+(*)(Mediante acuerdo N° SJD-485-2012 del 16 de octubre del 2012 "Declaratoria de las áreas de zona marítimo terrestre que no forman parte del Patrimonio Natural del Estado, para el cantón de Golfito, Declara de aptitud turística los sectores de zona marítimo terrestre del frente costero del cantón de Golfito", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el Cantón de Golfito)

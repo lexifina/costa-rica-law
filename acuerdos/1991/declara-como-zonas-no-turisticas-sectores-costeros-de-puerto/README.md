@@ -14,3 +14,4 @@ Declara como Zonas No Turísticas Sectores Costeros de Puerto Humo, Playa Garza 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-08 | la propia norma |
+| 2 | 2012-10-16 | Acuerdo 485 (2012-10-16) |
