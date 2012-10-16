@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE DESAMPARADOS
+La Municipalidad de Desamparados comunica que mediante acuerdo Nº 2 de la sesión Nº 56-2012 celebrada por el Concejo Municipal de Desamparados el día 21 de setiembre del 2012, se aprobó el proyecto de modificación del artículo 19 del Reglamento del Cementerio Central de Desamparados, publicado por primera vez en La Gaceta Nº 172 del 6 de setiembre del 2012. Dicha modificación reglamentaria entra a regir a partir de la presente publicación y reza finalmente del siguiente modo:
+Artículo 19.—Cuando el derecho pertenezca a dos o más personas vivas, cada una tendrá igual derecho respecto al uso y posesión del lote en el cementerio. Para el ejercicio de esos derechos se requiere el consentimiento de todos los coposeedores, no obstante, cuando alguno de ellos haya fallecido, los demás coposeedores tendrán el derecho de uso y posesión proporcionales, pudiendo incluso traspasarlos a terceras personas.
+Desamparados, 26 de setiembre del 2012.—
