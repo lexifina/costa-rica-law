@@ -14,3 +14,4 @@ Declara Aptitud Turística Sector Costero Puerto Jiménez Golfito Desde Puerto J
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-06 | la propia norma |
+| 2 | 2012-10-16 | Acuerdo 485 (2012-10-16) |

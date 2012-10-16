@@ -5,3 +5,4 @@ a) Declarar de Aptitud Turística el sector costero comprendido desde el Puerto 
 277.350 N - 540.000 E
 276.690 N - 540.925 E
 según hoja cartográfica Golfo Dulce 3541 IV a escala 1:50.000 del Instituto Geográfico Nacional.
+(Mediante acuerdo N° SJD-485-2012 del 16 de octubre del 2012 "Declaratoria de las áreas de zona marítimo terrestre que no forman parte del Patrimonio Natural del Estado, para el cantón de Golfito, Declara de aptitud turística los sectores de zona marítimo terrestre del frente costero del cantón de Golfito", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el Cantón de Golfito)
