@@ -1,0 +1,7 @@
+Artículo 8º—Para inscribir una nueva tecnología en la lista oficial autorizada y reconocida por el Colegio de Médicos y Cirujanos, el interesado elevará a la Junta de Gobierno del Colegio solicitud escrita indicando:
+I. Nombre de la tecnología que solicita se incluya en la lista oficial reconocida por el Colegio de Médicos y Cirujanos.
+II. Razones por las cuales se solicita la autorización de la nueva tecnología.
+III.Fundamentos científicos que conformen la nueva tecnología. Se debe aportar las referencias y documentos científicos que sustentan y fundamentan la solicitud.
+a. Con la intención de realizar el debido análisis de la solicitud, se debe adjuntar de carácter obligatorio el programa de estudios de la nueva tecnología, certificación de estudios o equivalente, donde se especifique duración del programa de estudios, carga académica (por horas o créditos), así como el título y grado académico que se otorga al culminar el programa de estudios cuando corresponda.
+b. La solicitud y todos los documentos aportados, serán evaluados por la Junta de Gobierno del Colegio de Médicos y Cirujanos. De considerarlo necesario la Junta de Gobierno se asesorará con quién estime pertinente.
+c. La Junta de Gobierno, posterior a la aprobación de la autorización de la nueva tecnología en la lista oficial de tecnologías autorizadas y reconocidas por el Colegio de Médicos y Cirujanos, procederá a su inclusión en la presente Normativa y a su publicación en el Diario Oficial La Gaceta.

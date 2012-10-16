@@ -1,0 +1,1 @@
+Artículo 17.—De las Ausencias de los Integrantes del Comité Coordinador. Las ausencias a las Sesiones que convoque el Comité Coordinador deberán ser justificadas idealmente de previo y en forma escrita a efecto de llevar un apropiado control de las mismas.

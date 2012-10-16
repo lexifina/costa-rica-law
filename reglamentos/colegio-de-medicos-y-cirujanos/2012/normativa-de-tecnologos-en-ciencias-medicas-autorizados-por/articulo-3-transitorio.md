@@ -1,0 +1,4 @@
+Transitorio III.—Aquellos Tecnólogos que iniciaron estudios con anterioridad a la vigencia de esta Normativa podrán inscribirse acogiéndose a lo vigente en el momento del inicio de estudios o a la Normativa que se deroga. Este transitorio tendrá una vigencia de cuatro años, a partir de la fecha de aprobación de la presente Normativa y su respectiva publicación en el diario oficial La Gaceta; automáticamente una vez cumplido este plazo, quedará sin vigencia su aplicación.
+Aprobado en Asamblea General Extraordinaria del Comité de Tecnólogos en Salud celebrada en el Auditorio del Colegio de Médicos y Cirujanos por unanimidad el 19 de mayo del 2012.
+Envíese a la Junta de Gobierno para su aprobación: Tec. Leonor Bolaños Chacón, Vicepresidenta. Tec. Miguel Vega Guerrero, Secretario. Comité Coordinador de Tecnólogos en Salud.
+Dado en San José, sesión ordinaria de la Junta de Gobierno número 2012-09-19 del 19 de setiembre del 2012. Publíquese

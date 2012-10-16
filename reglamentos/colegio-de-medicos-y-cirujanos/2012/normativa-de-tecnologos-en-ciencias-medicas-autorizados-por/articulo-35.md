@@ -1,0 +1,1 @@
+Artículo 35.—Del Voto Asistido. El Tecnólogo discapacitado, podrá votar de manera asistida por un Tecnólogo de su entera confianza, para lo cual se tomara en cuenta estrictamente la voluntad del votante y se indicará en el Acta respectiva los motivos por los cuales el voto fue emitido de forma asistida.

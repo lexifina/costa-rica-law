@@ -1,0 +1,1 @@
+Artículo 29.—De la forma de convocar a asamblea general. Las convocatorias a Asamblea General Ordinaria o Extraordinaria del Capítulo de Tecnólogos en Ciencias Médicas, se harán por publicación en uno de los diarios de mayor circulación nacional, con cinco días hábiles de anticipación, sin contar en este plazo el día de la publicación, ni el de la celebración de la Asamblea.

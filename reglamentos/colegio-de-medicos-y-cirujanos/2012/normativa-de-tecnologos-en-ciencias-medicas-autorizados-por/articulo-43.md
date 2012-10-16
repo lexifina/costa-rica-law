@@ -1,0 +1,1 @@
+Artículo 43.—De la Autorización. Para mantener la autorización el Tecnólogo en Salud deberá cumplir con lo dispuesto por la Junta de Gobierno del Colegio de Médicos y Cirujanos; las disposiciones del Comité de Tecnólogos en Ciencias Médicas, y mantener al día el pago de las cuotas de colegiatura.

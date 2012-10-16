@@ -1,0 +1,1 @@
+Artículo 27—De la Asesoría Legal. El Comité Coordinador, contará permanentemente en sus reuniones y actividades programadas con Asesoría Legal, la cual debe ser realizada de manera objetiva por un profesional con Licenciatura en Derecho debidamente activo e incorporado al Colegio de Abogados quien brindara su criterio desde una perspectiva netamente jurídica

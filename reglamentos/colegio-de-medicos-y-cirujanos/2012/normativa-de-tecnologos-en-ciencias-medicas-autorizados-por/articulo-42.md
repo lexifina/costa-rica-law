@@ -1,0 +1,1 @@
+Artículo 42.—De la Ejecución del Presupuesto. Para gestionar el desembolso de aquellos fondos aprobados en el presupuesto, se debe seguir el procedimiento general, que establece el Colegio de Médicos para todas sus dependencias.
