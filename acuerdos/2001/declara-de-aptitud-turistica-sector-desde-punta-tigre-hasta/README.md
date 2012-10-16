@@ -14,3 +14,4 @@ Declara de Aptitud Turística Sector desde Punta tigre hasta Quebrada Canchera, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-30 | la propia norma |
+| 2 | 2012-10-16 | Acuerdo 485 (2012-10-16) |
