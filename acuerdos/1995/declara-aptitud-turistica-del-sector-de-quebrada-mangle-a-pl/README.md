@@ -14,3 +14,4 @@ Declara Aptitud Turística del Sector de Quebrada Mangle a Playa Banco en Golfit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-09-12 | la propia norma |
+| 2 | 2012-10-16 | Acuerdo 485 (2012-10-16) |
