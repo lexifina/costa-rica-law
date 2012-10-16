@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE VALVERDE VEGA
+La Municipalidad del cantón Valverde Vega, comunica que mediante el artículo VI, inciso h), de la sesión ordinaria Nº 121, celebrada el día 11 de setiembre del 2012, se aprobó por unanimidad: Modificar el artículo Nº 85 del Reglamento Autónomo de Organización y Servicios de la Municipalidad de Valverde Vega, quedando de la siguiente manera: El pago de salario del personal municipal se hará en forma bisemanal, para el personal administrativo, los días viernes, y para el personal operativo o de campo de forma semanal, los días viernes, mediante depósito en cuenta corriente o de ahorros en cualquiera de los bancos del Sistema Bancario Nacional.
+Comuníquese en el Diario Oficial La Gaceta.
