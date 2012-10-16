@@ -1,0 +1,3 @@
+Artículo 13 Interposición de quejas o reclamos
+Cualquier inconformidad, queja o reclamo que experimente el cliente producto del modo o forma en la prestación del servicio por parte del Banco, deberá interponerla ante la Gerencia de Contraloría de Servicios del Banco, no obstante, por la distancia y a conveniencia del cliente, ésta podrá presentarla ante el oficial de operaciones de la oficina más cercana del Banco.
+En ambos casos, corresponderá a la Contraloría de Servicios, tramitar la diligencia de conformidad con lo que establece el Reglamento para el trámite de reclamos administrativos en el conglomerado BCR.

@@ -1,0 +1,6 @@
+Artículo 9 Obligaciones del Banco
+Con el propósito de cumplir el derecho de acceso a la información previsto en las leyes, y en cumplimiento con el principio del Consentimiento Informado, el Banco asumirá las siguientes obligaciones:
+a) Entregar al cliente de manera confidencial la clave secreta o pin.
+b) Informar de manera clara, veraz y oportuna las particularidades de los servicios que se brindan a través de Banca Electrónica.
+c) Prestar los servicios bancarios que demanden la transferencia o aplicación de fondos de las cuentas corrientes y de ahorro, o cargos contra una tarjeta de crédito, cuando existan los fondos suficientes o el disponible en la línea de crédito de tarjeta para dar cumplimiento a las operaciones.
+d) Notificar por escrito al usuario, y por el medio que éste haya elegido cualquier modificación que se haga al reglamento de Banca Electrónica, previniéndole que puede objetarla si lo comunica por escrito, en el plazo de ocho días, a partir de la recepción. Si el Banco no recibiera ninguna comunicación, entenderá como aceptada por parte del usuario la modificación. En caso de no ser aceptadas, el Banco podrá suspender o cancelar al usuario los servicios que comprende la Banca Electrónica sin ninguna responsabilidad.

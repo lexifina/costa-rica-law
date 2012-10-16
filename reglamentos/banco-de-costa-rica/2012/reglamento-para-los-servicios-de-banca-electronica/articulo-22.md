@@ -1,0 +1,4 @@
+Artículo 22 Afiliación al sistema- Módulo cliente
+La afiliación al sistema se realizará automáticamente en el momento que se abra una cuenta corriente o de ahorro. Una vez que se le haga entrega al usuario de la tarjeta BCR Débito correspondiente, se podrá ingresar por primera vez al sistema con el número de pin de la tarjeta de débito. Los clientes que no posean tarjetas de débito con el Banco de Costa Rica, y deseen utilizar el servicio, deben dirigirse personalmente a una plataforma de servicios para que se les afilie de manera manual, de acuerdo a los procedimientos establecidos para tal efecto.
+Afiliación al sistema- Módulo negocios
+La afiliación a este modulo se realizará en cualquiera de las oficinas del Banco en todo el país, por lo cual es necesario que los clientes se dirijan personalmente a una plataforma de servicio, de acuerdo con los procedimientos establecidos para tal efecto.
