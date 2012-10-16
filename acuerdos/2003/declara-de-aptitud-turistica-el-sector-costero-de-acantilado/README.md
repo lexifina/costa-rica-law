@@ -14,3 +14,4 @@ Declara de Aptitud Turística el sector costero de acantilados al norte de Playa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-27 | la propia norma |
+| 2 | 2012-10-16 | Acuerdo 485 (2012-10-16) |

@@ -2,3 +2,4 @@ B. Declarar de Aptitud Turística el sector costero comprendido desde la declara
 Coordenadas: 284 000 N - 558 400 E
 274 200 N - 558 550 E
 Según la hoja cartográfica Golfito 3541 I a escala 1:50.000 del Instituto Geográfico Nacional, proyección Costa Rica Sur.
+(Mediante acuerdo N° SJD-485-2012 del 16 de octubre del 2012 "Declaratoria de las áreas de zona marítimo terrestre que no forman parte del Patrimonio Natural del Estado, para el cantón de Golfito, Declara de aptitud turística los sectores de zona marítimo terrestre del frente costero del cantón de Golfito", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el Cantón de Golfito)
