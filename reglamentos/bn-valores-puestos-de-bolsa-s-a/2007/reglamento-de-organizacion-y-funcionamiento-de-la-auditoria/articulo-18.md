@@ -1,1 +1,0 @@
-Artículo 18.—El auditor interno deberá presentar su plan de trabajo de conformidad con los lineamientos de la Contraloría General de la República y debe proponer al jerarca oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la unidad.
