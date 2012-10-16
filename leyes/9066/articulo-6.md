@@ -1,0 +1,2 @@
+6. CONFIDENCIALIDAD Y NO REVELACIÓN
+Ninguna de las Partes, revelará, en ningún momento, a una tercera parte, cualquier información confidencial sobre hardware/software, especificaciones de producto, información financiera, documentos, material de capacitación, etc., que se requiera de conformidad con este Memorando de Entendimiento sin previo consentimiento escrito de la otra parte bajo este Memorando.
