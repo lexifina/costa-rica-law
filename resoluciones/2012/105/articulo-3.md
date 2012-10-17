@@ -1,0 +1,1 @@
+III. Instruir al Consejo de la SUTEL, para que dentro del plazo de un mes, contado a partir de la comunicación de la resolución que llegue a dictarse, realice un estudio de oficio sobre las tarifas para el servicio de telefonía fija, y de determinarse que deben ajustarse, se proceda a su fijación.
