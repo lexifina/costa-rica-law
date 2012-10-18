@@ -1,0 +1,1 @@
+Artículo 24.- Comunicación. La Unidad de Proveeduría será la encargada de comunicar los actos de adjudicación o resoluciones dentro de los plazos previstos en el artículo 88 del RLCA, por los mismos medios utilizados para invitar a participar.

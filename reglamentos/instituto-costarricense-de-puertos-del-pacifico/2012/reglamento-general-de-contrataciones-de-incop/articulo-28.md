@@ -1,0 +1,2 @@
+Artículo 28.- Recepción y apertura de ofertas. El plazo máximo para la recepción de ofertas será de cinco (5) días hábiles contados a partir del día de la invitación o la divulgación correspondiente.
+La oferta podrá ser enviada en sobre cerrado, por facsímile o cualquier otro medio electrónico de transferencia de datos, o bien ser entregada personalmente, en los números de facsímile o lugar que para tal efecto se disponga en los términos de referencia, a más tardar a la hora y fecha señalada para la apertura de ofertas.

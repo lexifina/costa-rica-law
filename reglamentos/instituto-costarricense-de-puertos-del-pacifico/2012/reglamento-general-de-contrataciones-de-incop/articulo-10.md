@@ -1,0 +1,1 @@
+Artículo 10. Expediente Administrativo. La Decisión Inicial y su anexos dará inicio al expediente administrativo de la respectiva contratación administrativa, cuya conformación, actualización, custodia y numeración consecutiva será responsabilidad de la Unidad de Proveeduría.

@@ -1,0 +1,1 @@
+Artículo 2. Alcances del Reglamento. Este reglamento comprende todas las contrataciones de bienes, servicios y obras que ejecute el INCOP. El órgano encargado de realizar los trámites será la Unidad de Proveeduría.

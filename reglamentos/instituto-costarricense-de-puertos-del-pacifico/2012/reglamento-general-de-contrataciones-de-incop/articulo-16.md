@@ -1,0 +1,5 @@
+SECCIÓN IV
+Estudio de Ofertas
+Artículo 16.- Recepción y apertura de ofertas. Las ofertas deberán presentarse en el lugar que así se indique en el cartel en sobre cerrado, en el que se consigne como mínimo el número y nombre del concurso para el cual se está ofertando, así como el nombre o razón social de la persona física o jurídica que presenta la propuesta. Deberá ser acompañada de los demás documentos y atestados solicitados por el cartel, a más tardar a la hora y fecha señalada para la apertura de las ofertas.
+Las ofertas presentadas por facsímil o cualquier medio de transmisión electrónica de datos, deberán ser ratificadas por medio de la presentación de las ofertas originales dentro de los tres (3) días hábiles posteriores al acto de apertura, siempre y cuando dicha condición se encuentre estipulada en el cartel.
+En ningún caso se admitirán ofertas u otros documentos que modifiquen las condiciones de la propuesta, después de vencido el tiempo señalado por el cartel para la presentación de las ofertas. Vencido ese plazo, se procederá de inmediato al acto público de apertura de las ofertas.

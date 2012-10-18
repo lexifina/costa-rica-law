@@ -1,0 +1,3 @@
+Artículo 39.- Forma de pago. Los pagos a proveedores se harán contra la prestación del servicio, recepción de bienes o avance de la obra, a entera satisfacción del INCOP exceptuando los casos previstos en el artículo 35 del RLCA.
+En contratos de servicios profesionales, los pagos se harán conforme al programa de actividades, recibidos a entera satisfacción de INCOP, o dentro del plazo establecido en el cartel licitatorio.
+En las contrataciones de obra los pagos se harán contra avance y de manera mensual; si el período de ejecución es por un plazo menor, se pagará al finalizar satisfactoriamente los trabajos.
