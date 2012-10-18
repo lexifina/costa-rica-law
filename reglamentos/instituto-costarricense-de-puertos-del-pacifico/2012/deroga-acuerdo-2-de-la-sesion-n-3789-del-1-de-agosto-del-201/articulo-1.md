@@ -1,0 +1,2 @@
+INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+Que la Junta Directiva de esta Institución mediante Acuerdo Nº 2 tomado en la Sesión Nº 3792, celebrada el día 16 de agosto del año en curso, acordó derogar el Acuerdo 2 tomado en la Sesión N° 3789 celebrada el 1 de agosto de 2012 donde se dispuso variar para las cinco de la tarde la hora de inicio de las sesiones. Por lo tanto, la hora de inicio continuará siendo a las cinco y treinta de la tarde.
