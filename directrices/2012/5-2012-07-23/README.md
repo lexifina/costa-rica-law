@@ -14,3 +14,4 @@ Establece que las embarcaciones que integren la Flota Pesquera Comercial Costarr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-17 | la propia norma |
+| 2 | 2012-10-19 | Directriz 10 (2012-10-19) |
