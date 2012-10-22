@@ -14,3 +14,4 @@ Reglamento del Cementerio de Santa Elena de Monteverde
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-06 | la propia norma |
+| 2 | 2012-10-22 | Reglamento municipal 790 (2012-10-22) |
