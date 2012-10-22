@@ -1,0 +1,3 @@
+Artículo 41°- De la verificación del cumplimiento con la notificación obligatoria.
+Los directores o responsables de los establecimientos de salud y otros mencionados en el artículo 32° de este reglamento, tienen la obligación de verificar que los funcionarios a su cargo cumplan, oportunamente, con la notificación de los eventos y riesgos de declaración obligatoria, cuando así les corresponda.
+A su vez, la Dirección de Vigilancia de la Salud, las Direcciones Regionales de Rectoría de la Salud y las Direcciones de las Áreas Rectoras de Salud, controlarán que los entes notificadores cumplan de forma oportuna con sus obligaciones.

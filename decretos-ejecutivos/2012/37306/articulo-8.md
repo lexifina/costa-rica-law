@@ -1,0 +1,6 @@
+CAPÍTULO III
+De la Organización y Funcionamiento del Ministerio de Salud en el nivel nacional para la
+vigilancia de la salud
+Artículo 8º.- De la Dirección de Vigilancia de la Salud.
+Esta dirección pertenece al nivel central operativo del Ministerio de Salud y depende orgánicamente de la División Técnica de Rectoría de la Salud. Su objetivo consiste en garantizar que la ejecución del proceso de Vigilancia de la Salud a nivel nacional se realice de manera articulada, eficaz y con la calidad requerida, para lo cual define directrices, formula planes y proyectos, establece procedimientos, desarrolla sistemas y ejecuta directamente las actividades del proceso de Vigilancia de la Salud correspondientes al nivel central, en coordinación con las unidades organizativas institucionales o actores sociales que corresponda.
+Brinda supervisión capacitante al nivel regional y acompañamiento técnico a las unidades organizativas de los niveles central y regional, según corresponda. Es responsable de la producción de información oportuna y veraz sobre la situación de salud del país que permita fundamentar la toma de decisiones para ejercer la rectoría en forma efectiva, eficiente y con enfoque de promoción, para garantizar la protección y mejoramiento del estado de salud de la población.

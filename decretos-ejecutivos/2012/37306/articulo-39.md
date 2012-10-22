@@ -1,0 +1,2 @@
+Artículo 39°- De los medios para la notificación inmediata.
+Los casos de riesgos y eventos de notificación inmediata deberán ser reportados, con carácter urgente de manera electrónica, personal, telefónica, o por fax, a la autoridad de salud más cercana o disponible en el momento. Cuando esta información sea recibida por los niveles local y regional del Ministerio de Salud, éstos procederán a comunicarla de inmediato al Centro Nacional de Enlace en la Dirección de Vigilancia de la Salud en el Nivel Central.

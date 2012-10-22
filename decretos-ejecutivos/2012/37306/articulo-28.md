@@ -1,0 +1,3 @@
+Artículo 28°- De la seguridad y confidencialidad de la información.
+En materia de datos personales de tipo privado, y sin demérito del interés colectivo, el Ministerio de Salud y los proveedores de información aplicarán estrictas normas éticas y mecanismos efectivos que permitan salvaguardar la privacidad e intimidad de las personas afectadas por un evento, la de sus familias y contactos.
+En todos los ámbitos o componentes del sistema se adoptarán las medidas necesarias para garantizar la seguridad de tales datos. Todas las personas que en virtud de sus funciones tengan acceso a ellos, quedan sometidos al deber de la confidencialidad.
