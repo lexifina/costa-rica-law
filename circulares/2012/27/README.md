@@ -13,3 +13,4 @@ Depósito provisional de Vehículos o partes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-22 | la propia norma |
+| 2 | 2012-10-22 | Circular 27 (2012-10-22) |
