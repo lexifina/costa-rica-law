@@ -18,12 +18,13 @@ Comunidades | - Agua para consumo humano | 20%
 | - Disposición y tratamiento de vertidos industriales | 10%
 | - Protección de recursos hídricos | 10%
 | - Seguridad policial y ambiental | 5%
-Centros Educativos | - Calidad del agua | 10%
-| - Gestión del riesgo a desastres | 20%
-| - Educación Ambiental | 35%
-| - Servicios Sanitarios | 15%
-| - Promoción de espacios limpios y seguros | 10%
-| - Informes | 10%
+Centros Educativos del nivel de prescolar, primaria y secundaria (Así reformada la categoría anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | - Gestión del agua (Así reformado el párametro anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | 15% (Así reformado el valor anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012)
+| - Gestión de riesgos (Así reformado el párametro anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | 10% (Así reformado el valor anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012)
+| - Proyectos de educación ambiental (Así reformado el párametro anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | 20% (Así reformado el valor anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012)
+| - Gestión de servicios sanitarios (Así reformado el párametro anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | 20% (Así reformado el valor anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012)
+| - Promoción de espacios limpios (Así reformado el párametro anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | 10% (Así reformado el valor anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012)
+| - Plan integral de residuos (Así reformado el párametro anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | 15% (Así reformado el valor anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012)
+| -Gestión energética (Así reformado el párametro anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | 10% (Así reformado el valor anterior por el artículo 1° del decreto ejecutivo N° 37484 del 22 de octubre de 2012)
 Espacios Naturales Protegidos | - Protección de la cobertura vegetal. | 25%
 | - Conservación y uso adecuado del recurso hídrico. | 25%
 | - Adopción de medidas de control y Protección Ambiental. | 20%

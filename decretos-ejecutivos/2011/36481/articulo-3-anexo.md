@@ -26,20 +26,20 @@ Comunidades | - Una estrella (A): Si el valor obtenido está entre 90% y 100%. |
 | - Dos estrellas (AA): Si la evaluación obtenida es del 100% y se tiene participación del acueducto en el programa “Sello de Calidad Sanitaria impulsado por el AyA”.
 | - Tres estrellas (AAA): Cumple con lo indicado para dos estrellas y se hagan acciones de limpieza de criaderos de vectores transmisores de enfermedades.
 | - Cuatro estrellas (AAAA): Cumple con lo indicado para tres estrellas y se tenga un plan de atención de emergencias y un programa de desarrollo urbano para un mínimo de cinco años plazo.
-Centros Educativos | - Una estrella (A): Si el valor obtenido está entre 90% y 100%. | 90 puntos
-| - Dos estrellas (AA): Si la evaluación obtenida es del 100% y se tiene:
-| a) Proyectos socio – ambientales institucionales.
-| b) inclusión del componente ambiental en el PEI.
-| - Tres estrellas (AAA): Cumple con lo indicado para dos estrellas y se tenga:
-| c) Proyectos de rescate de valores y costumbres de la comunidad
-| d) Decálogo de compromisos ambientales
-| e) Participación en el programa de escuelas saludables.
-| f) Otros proyectos socio – ambientales con proyección comunal.
-| Nota: Los proyectos en mención deberán ser sostenibles, es decir de carácter permanente en el centro educativo o comunidad, (ejemplo: Lucha contra los criaderos de vectores transmisores de enfermedades).
-| - Cuatro estrellas (AAAA): Lo requerido en la bandera con tres estrellas más:
-| g) El centro educativo realiza gestiones administrativa tendientes a ahorrar energía y agua.
-| - Cinco estrellas (AAAAA): lo requerido en la bandera de cuatro estrellas más:
-| h) El centro educativo participa activamente en al menos una de las otras categorías del Programa Bandera Azul Ecológica
+Centros educativos del nivel preescolar, primaria y secundaria: | | 90 puntos
+(Así reformado la categoria anterior por el artículo 2° del decreto ejecutivo N° 37484 del 22 de octubre de 2012) | Una estrella (A): Si el valor obtenido es de al menos un 70% (realizando como mínimo dos acciones para cada uno de los rubros contemplados en la tabla de criterios de evaluación) y además se tiene: a) Proyectos de educación ambiental del centro educativo con participación estudiantil. Dos estrellas (AA): Si la evaluación obtenida es de al menos 80% (realizando como mínimo dos acciones para cada uno de los rubros contemplados en la tabla de criterios de evaluación) y además se tiene: a) Proyectos de educación ambiental del centro educativo con participación estudiantil. b) Componente de educación ambiental incluido en el Plan de Centro Educativo. Tres estrellas (AAA): Si la evaluación obtenida es de al menos 90% (realizando como mínimo dos acciones para cada uno de los rubros contemplados en la tabla de criterios de evaluación) y además se tiene: a) Proyectos de educación ambiental del centro educativo con participación estudiantil. b) Componente de educación ambiental incluido en el Plan de Centro Educativo. c) Proyectos de educación ambiental con proyección comunal. Cuatro estrellas (AAAA): Si la evaluación obtenida es del 100% (realizando como mínimo dos acciones para cada uno de los rubros contemplados en la tabla de criterios de evaluación) y además se tiene: a) Proyectos de educación ambiental del centro educativo con participación estudiantil. b) Componente de educación ambiental incluido en el Plan de Centro Educativo. c) Proyectos de educación ambiental con proyección comunal. d) Gestiones administrativas para el ahorro de agua y energía. Cinco estrellas (AAAAA): Si la evaluación obtenida es del 100% (realizando como mínimo dos acciones para cada uno de los rubros contemplados en la tabla de criterios de evaluación) y además se tiene: a) Proyectos de educación ambiental del centro educativo con participación estudiantil. b) Componente de educación ambiental incluido en el Plan de Centro Educativo. c) Proyectos de educación ambiental con proyección comunal. d) Gestiones administrativas para el ahorro de agua y energía. e) Gestiones para lograr que el centro educativo sea Carbono Neutral.
+| (Así reformado los parámetros anteriores por el artículo 2° del decreto ejecutivo N° 37484 del 22 de octubre de 2012)
+|
+|
+|
+|
+|
+|
+|
+|
+|
+|
+|
 Espacios Naturales Protegidos | - Una estrella (A): Si el valor obtenido está entre 90% y 100%. | 90 puntos
 | - Dos estrellas (AA): aquella reserva natural que obtenga un 100% y además, cuente con un plan de atención de emergencias y programas de cooperación comunal de siembra de árboles.
 | - Tres estrellas (AAA): aquella reserva natural que obtenga lo de las dos estrellas, más un desarrollo planificado del espacio natural protegido a futuro y con acciones de proyección comunal bajo el concepto de Responsabilidad Social dirigida a comunidades y centros educativos.
