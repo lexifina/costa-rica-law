@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE SAN JOSÉ
+(Nota de Sinalevi: Mediante el artíuclo 14 del Reglamento para la instalacón de casetas de seguridad y mecanismos de vigilancia para el acceso a barrios residenciales de la Municipalidad de San José, aprobado mediante sesión ordinaria N°130 del 23 de octubre del 2012, se estableció lo siguiente "... téngase por tácitamente derogada toda disposición del Plan Director Urbano que se contraponga a lo dispuesto en dicha ley y este reglamento")
 PLAN DIRECTOR URBANO DEL CANTÓN DE SAN JOSÉ
 ÍNDICE
 SECCIÓN PRIMERA:
