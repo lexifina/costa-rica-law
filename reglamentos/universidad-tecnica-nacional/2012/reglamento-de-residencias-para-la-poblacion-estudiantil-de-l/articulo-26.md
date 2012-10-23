@@ -1,0 +1,1 @@
+Artículo 26. Para los casos contenidos en los incisos c) y d) del artículo 21 de este Reglamento, la sanción consistirá en la suspensión del beneficio de residencia y cualquier beneficio económico otorgado por la Institución y la imposibilidad de realizar una nueva solicitud para el mismo, durante el mismo período.

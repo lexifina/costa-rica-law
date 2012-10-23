@@ -1,0 +1,1 @@
+Artículo 16. En caso de retirarse voluntariamente del Programa, el estudiante deberá informarlo por escrito al Encargado de Residencias con un mínimo de cinco días hábiles al retiro. De no cumplirse con este requisito, se aplicará la sanción respectiva de conformidad con el Reglamento Disciplinario Estudiantil.

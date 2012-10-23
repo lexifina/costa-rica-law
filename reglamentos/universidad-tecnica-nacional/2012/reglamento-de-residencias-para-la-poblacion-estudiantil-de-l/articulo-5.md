@@ -1,0 +1,1 @@
+Artículo 5. Se concederá un plazo de cinco días hábiles antes del inicio de cuatrimestre para la instalación de la población estudiantil y de cinco días hábiles luego de la finalización del cuatrimestre para el desalojo de la residencia.

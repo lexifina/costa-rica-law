@@ -1,0 +1,1 @@
+Artículo 12. La asignación de cupos para residencias se determinará con base en la solicitud del o la estudiante según los siguientes criterios: la categoría de beca de asistencia socioeconómica, la zona geográfica de procedencia o la dificultad de acceso, el promedio ponderado de las materias matriculadas el cuatrimestre anterior, así como la disponibilidad de cupos.
