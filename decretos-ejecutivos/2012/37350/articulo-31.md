@@ -1,0 +1,1 @@
+Artículo 31°—El banco y el centro de recolección de leche humana deben contar con un área de acceso restringido para la preparación de donadoras (vestidor y casilleros), con un espacio de al menos seis metros cuadrados y con acceso a una estación de lavado de manos debidamente instalada.

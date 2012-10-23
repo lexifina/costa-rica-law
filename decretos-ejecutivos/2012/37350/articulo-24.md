@@ -1,0 +1,1 @@
+Artículo 24°—El banco de leche humana y el centro de recolección de leche humana deben contar o tener acceso servicios sanitarios para uso de las donantes de leche humana y de los funcionarios. Al menos un servicio sanitario debe cumplir los requisitos de la Ley de igualdad de oportunidades para las personas con discapacidad, (Ley 7600).

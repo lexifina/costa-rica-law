@@ -1,0 +1,1 @@
+Artículo 15°—El banco y el centro de recolección de leche humana deben tener ventilación natural en las áreas que es posible, mediante ventanas que sean un 20% del área de piso y con un 50% abatible o mediante inyección y extracción mecánica donde se requiera, garantizando una temperatura ambiental entre dieciocho a veinticuatro grados Celsius.

@@ -1,0 +1,1 @@
+Artículo 3°—Condiciones previas y requisitos para la solicitud del trámite. Se podrá iniciar el trámite de solicitud de permiso de funcionamiento cuando cumpla o cuente con la aprobación de las condiciones y requisitos establecidos en el Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud.

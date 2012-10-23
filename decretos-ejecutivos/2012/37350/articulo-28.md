@@ -1,0 +1,1 @@
+Artículo 28°—El banco de leche humana y el centro de recolección de leche humana deben contar o tener acceso a una sala para educación en salud, con espacio no menor de dos metros cuadrados por persona, con mobiliario apropiado, en buen estado y en cantidad suficiente para el desempeño de las actividades.

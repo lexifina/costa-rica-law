@@ -1,0 +1,1 @@
+Artículo 16°—El banco y el centro de recolección de leche humana debe tener iluminación natural o artificial de al menos 500 lux por metro cuadrado en la superficie de trabajo y 300 lux por metro cuadrado en las oficinas. Todas las lámparas deben tener protección para evitar la caída de vidrios en caso de rompimiento accidental.

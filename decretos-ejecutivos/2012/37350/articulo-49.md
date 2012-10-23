@@ -1,0 +1,1 @@
+Artículo 49°—El banco y el centro de recolección de leche humana debe contar con documento donde quede constancia de que existe consentimiento informado para las acciones sobre la donación de la leche
