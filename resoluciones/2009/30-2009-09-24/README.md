@@ -15,3 +15,4 @@ Establece que la base imponible del Impuesto Solidario para el Fortalecimiento d
 | --- | --- | --- |
 | 1 | 2009-09-29 | la propia norma |
 | 2 | 2011-10-19 | Resolución 35 (2011-10-19) |
+| 3 | 2012-10-23 | Resolución 28 (2012-10-23) |
