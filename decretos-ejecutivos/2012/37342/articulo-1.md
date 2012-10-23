@@ -1,0 +1,13 @@
+No. 37342–MOPT
+LA PRESIDENTA DE LA REPÚBLICA
+Y
+EL MINISTRO a. i. DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las facultades que les confieren los incisos 3) y 18) del numeral 140 y el artículo 146 de la Constitución Política; la Ley de Creación del Ministerio de Obras Públicas y Transportes, No 3155 del 5 de agosto de 1963, reformada mediante Ley 4786 del 5 de julio de 1971 y la Ley General de la Administración Pública, No. 6227 del 2 de mayo de 1978 y sus reformas.
+CONSIDERANDO:
+1.- Que mediante Decreto Ejecutivo N° 30101-MOPT del 7 de diciembre de 2001, publicado en La Gaceta N° 16 del 23 de enero de 2002, se declaró de interés nacional y de interés público el proyecto de construcción de la nueva carretera que comunica Florencia de San Carlos con Naranjo. Y a la vez se constituyó una Comisión Ejecutiva que en asocio con el Consejo Nacional de Vialidad brinde apoyo, seguimiento, control, supervisión e inspección al citado proyecto.
+2.- Que el Consejo de Administración del Consejo Nacional de Vialidad, acordó en sesión celebrada el 17 de setiembre del 2008, disolver la Comisión Ejecutiva creada mediante Decreto Ejecutivo N° 30101-MOPT del 7 de diciembre del 2001, publicado en La Gaceta N° 16 del 23 de enero de 2002.
+3.- Que mediante Oficio N° DVOP-4189-08 del 24 de octubre del 2008, dirigido a la Dirección Jurídica del Ministerio de Obras Públicas y Transportes, el Doctor Pedro Luis Castro Fernández, Ph,D. Viceministro de Obras Públicas y Transportes de ese entonces, solicitó gestionar la disolución de la Comisión Ejecutiva creada mediante Decreto Ejecutivo N° 30101-MOPT del 7 de diciembre del 2001.
+4.- Que en razón de lo anterior, resulta necesario disolver la Comisión Ejecutiva creada mediante Decreto Ejecutivo N° 30101-MOPT del 7 de diciembre de 2001, señalado en el Considerando primero, por lo que procede emitir el presente Decreto, de conformidad con la Ley General de la Administración Pública, que en sus numerales 152 y siguientes y concordantes, determinan que la Administración Pública puede dejar sin efecto (revocar) por causas de oportunidad, conveniencia o mérito los actos administrativos emitidos.
+POR TANTO;
+DECRETAN:
+Artículo 1.- Disolver la Comisión Ejecutiva creada mediante Decreto Ejecutivo N° 30101-MOPT del 7 de diciembre de 2001, publicado en La Gaceta N° 16 del 23 de enero de 2002, de conformidad con el acuerdo tomado por el Consejo de Administración del Consejo Nacional de Vialidad, en sesión celebrada el 17 de setiembre del 2008, en consecuencia se deja por este acto sin efecto ni valor alguno los artículos del 2 al 8 inclusive del Decreto Ejecutivo N° 30101-MOPT del 7 de diciembre de 2001, publicado en La Gaceta N° 16 del 23 de enero de 2002.
