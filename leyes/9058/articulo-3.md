@@ -1,0 +1,3 @@
+ARTÍCULO 3.-
+La condonación solo podrá ser concedida por el concejo municipal, mediante acuerdo debidamente razonado y por votación calificada de más de dos terceras partes de sus miembros.
+La condonación indicada deberá ser solicitada por el interesado adjuntando, como mínimo, certificación de la Comisión Nacional de Emergencias en la que consten las afectaciones sufridas por el terremoto del 8 de enero del año 2009. De existir contribuyentes de las zonas afectadas, que honraron sus deudas para estos períodos condonados, podrán solicitar los beneficios de esta ley a la administración municipal para que apliquen esos pagos a períodos fiscales siguientes y tendrá una vigencia de dos años calendario para su solicitud, a partir de la vigencia de la presente ley.
