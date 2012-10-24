@@ -1,0 +1,1 @@
+Artículo 23.—Del Personal. El Tribunal Administrativo de Transporte aprobará las solicitudes de vacaciones, licencias, permisos e incapacidades y demás vicisitudes que surjan de la administración de todo su personal, de conformidad con la normativa legal y procedimientos vigentes aplicables.

@@ -1,0 +1,1 @@
+Artículo 18.—Agotamiento de la vía Administrativa.-Las resoluciones del Tribunal Administrativo de Transporte, relativas a la materia desconcentrada, agotan la vía administrativa, por lo que contra sus resoluciones no cabe recurso ordinario alguno.

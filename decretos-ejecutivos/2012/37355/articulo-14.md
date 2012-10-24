@@ -1,0 +1,1 @@
+Artículo 14.—Sobre el proyecto de resolución. Una vez concluida la etapa de estudio del expediente, el juez instructor preparará un proyecto de resolución que presentará a los otros jueces, para su discusión y votación.

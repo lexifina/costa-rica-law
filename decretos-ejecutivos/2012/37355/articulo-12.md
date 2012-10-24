@@ -1,0 +1,1 @@
+Artículo 12.—Sobre las prevenciones. El juez instructor podrá realizar las prevenciones que estime necesarias a las partes, para tener un cuadro fáctico completo que facilite la resolución del asunto. La resolución que ordene la prevención, será notificada a ambas partes.

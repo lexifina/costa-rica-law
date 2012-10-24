@@ -1,0 +1,3 @@
+CAPÍTULO VII
+DISPOSICIONES FINALES
+Artículo 26.—Integración de Normas. El presente Reglamento se entenderá integrado por la Ley 7969 de diciembre del 1999, Ley General de la Administración Pública, Ley General de la Contratación Administrativa y su Reglamento, Código Procesal Contencioso Administrativo, Ley General de Administración Financiera de la República y Presupuestos Públicos, Ley Orgánica del Poder Judicial, Estatuto de Servicio Civil y su Reglamento, Ley de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Reglamento Autónomo de Organización y Servicio del Ministerio de Obras Públicas y Transportes, el Código de Trabajo y demás legislación administrativa vigente aplicable.

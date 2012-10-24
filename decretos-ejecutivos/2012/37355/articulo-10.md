@@ -1,0 +1,1 @@
+Artículo 10º—Sobre la notificación de prevenciones y resoluciones. Cualquier comunicación del Juez Instructor o del Tribunal en pleno a cualquiera de las partes, tendrá que ser notificada en el lugar señalado para tal efecto, esta acción será ejecutada por la Secretaría de Instrucción.
