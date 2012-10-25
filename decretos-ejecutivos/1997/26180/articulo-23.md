@@ -1,2 +1,3 @@
 Artículo 23.—Plazo para levantar la información disciplinaria
-El término dentro del cual se debe realizar la instrucción no podrá exceder de tres meses contados a partir del momento en que el órgano instructor conoce la denuncia.
+La investigación o instrucción correspondiente deberá concluirse dentro del plazo ordenatorio de tres meses, contados a partir de la interposición de la denuncia por hostigamiento sexual.
+(Así reformado por el artículo 15° del decreto ejecutivo N° 37406 del 25 de octubre de 2012)

@@ -1,2 +1,3 @@
 Artículo 26.—Valoración de la prueba
-El órgano instructor valorará las pruebas de forma objetiva, con amplitud de criterio, de acuerdo con los principios de la sana crítica racional.
+El órgano investigador valorará las pruebas de forma objetiva, de acuerdo con los principios de la sana crítica, la lógica y la experiencia; ante ausencia de prueba directa se deberá valorar la prueba indiciaria y todas las otras fuentes del derecho común, atendiendo los principios especiales que rigen en materia de hostigamiento sexual, particularmente el principio de confidencialidad. En caso de duda se estará a lo que más beneficie a la persona hostigada, en aplicación del principio “pro víctima”, con la prohibición expresa de considerar los antecedentes de la persona denunciante, particularmente en lo relativo al ejercicio de su sexualidad. No procederá la conciliación.
+(Así reformado por el artículo 16° del decreto ejecutivo N° 37406 del 25 de octubre de 2012)

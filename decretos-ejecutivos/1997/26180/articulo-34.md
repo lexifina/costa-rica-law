@@ -1,2 +1,5 @@
-Artículo 34.—Derogatoria
-Se deroga expresamente el Decreto Ejecutivo N° 25.673-MEP del 11 de septiembre de 1996, en cuya virtud se adicionó el Capítulo XXIII al Reglamento Interior de Trabajo del Ministerio de Educación Pública, y cualquier otra disposición de igual o menor rango que se le oponga.
+CAPÍTULO OCTAVO
+Disposiciones finales
+Artículo 34.—Prescripción
+Los plazos contenidos en el presente reglamento se presumirán, para todo efecto legal, como términos de prescripción, y su cómputo, suspensión, interrupción y demás extremos se regirán por lo que se estipula el Título X del Código de Trabajo.
+(Así corrida su numeración por el artículo 18° del decreto ejecutivo N° 37406 del 25 de octubre de 2012, que lo traspasó del antiguo artículo 33 al 34)

@@ -14,3 +14,4 @@ Reglamento para prevenir, investigar y sancionar el Hostigamiento Sexual en el M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-22 | la propia norma |
+| 2 | 2012-10-25 | Decreto Ejecutivo 37406 (2012-10-25) |

@@ -1,4 +1,3 @@
-CAPÍTULO OCTAVO
-Disposiciones finales
-Artículo 33.—Prescripción
-Los plazos contenidos en el presente reglamento se presumirán, para todo efecto legal, como términos de prescripción, y su cómputo, suspensión, interrupción y demás extremos se regirán por lo que se estipula el Título X del Código de Trabajo.
+Artículo 33.— Adopción de las Medidas Precautorias.
+El Director de Recursos Humanos deberá adoptar de manera prevalente y con carácter de urgencia, las medidas precautorias procedentes. Su vigencia será determinada por su instrumentalidad para el proceso.
+(Así adicionado por el artículo 18° del decreto ejecutivo N° 37406 del 25 de octubre de 2012)

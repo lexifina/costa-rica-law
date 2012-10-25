@@ -1,2 +1,3 @@
-Artículo 19.—Ratificación, aclaración y adición de la denuncia
-Cuando lo estime conveniente, el órgano instructor podrá solicitar la comparecencia del denunciante para que ratifique, aclare o amplíe el contenido de su denuncia.
+Artículo 19.— Improcedencia de la ratificación de la denuncia y de investigación preliminar.
+El órgano instructor o investigador, en ningún caso deberá solicitar la ratificación de la denuncia como acto previo a dar curso a la misma, ni llevará a cabo investigación preliminar respecto de los hechos denunciados. La manifestación de la(s) víctima(s) se requerirá solo cuando -a juicio del instructor o investigador- sea necesario para arribar a la verdad real del asunto que se conoce, sea porque la denuncia interpuesta resultase oscura u omisa, o porque existiese duda sobre la identidad del denunciado, o las circunstancias espaciales o temporales de comisión de las faltas acusadas.
+(Así reformado por el artículo 13° del decreto ejecutivo N° 37406 del 25 de octubre de 2012)
