@@ -1,0 +1,1 @@
+II. Apercibir a los operadores y proveedores de servicios de telefonía, que de no cumplir con las instrucciones giradas en el Resuelve I, podrían estar incurriendo en una infracción grave o muy grave de conformidad con el artículo 67 de la Ley General de Telecomunicaciones, Ley N° 8642, la que a su vez podría ser sancionada conforme a lo que establece el artículo 68 de dicha Ley.
