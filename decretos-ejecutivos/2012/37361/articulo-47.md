@@ -1,0 +1,2 @@
+Artículo 47: Los miembros del Tribunal de Honor se excusarán de conocer los asuntos de su competencia en que figuren personas con quienes tengan parentesco, por consanguinidad o afinidad, hasta tercer grado y cuando así fuere, pondrán la excusa razonada en conocimiento de la
+Junta Directiva, que con vista y aceptación de ella, procederá a reintegrar el Tribunal con uno de los colegiados suplentes.

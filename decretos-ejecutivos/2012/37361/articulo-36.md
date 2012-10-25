@@ -1,0 +1,1 @@
+Artículo 36: Sin perjuicio de las funciones permanentes que les asigne la Presidencia para que atiendan necesidades específicas del Colegio o de sus órganos, corresponde a las Vocalías, sustituir por orden de su designación, las ausencias temporales de los demás Directivos.

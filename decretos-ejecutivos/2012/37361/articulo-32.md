@@ -1,0 +1,1 @@
+Artículo 32: En ausencia temporal de quien ejerce la Presidencia, sus funciones serán ejercidas por la Vicepresidencia y en ausencia de ambos por las Vocalías conforme al orden de su designación.

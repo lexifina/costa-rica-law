@@ -1,0 +1,1 @@
+Artículo 16: A toda persona física dedicada a las labores de investigación, diagnóstico, asesoría, capacitación, evaluación e intervención en Criminología, o que se anuncie o identifique como profesional en Criminología sin serlo, o sin estar incorporado al Colegio, incurrirá en las sanciones previstas por el Artículo Nº 315 del Código Penal Costarricense.

@@ -1,0 +1,1 @@
+Artículo 40: Los miembros del Comité Consultivo desempeñarán sus cargos Ad-Honoren, únicamente en consultas sobre asuntos que puedan llevar implícitos resultados económicos para las personas interesadas en la consulta, podrá remunerárseles en el monto y la forma que determine la Junta Directiva.
