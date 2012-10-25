@@ -1,0 +1,1 @@
+Artículo 2º-. Se prohíbe importar aletas de tiburón de cualquier especie de otros países, sin que se demuestre por medio de una certificación emitida por las autoridades aduaneras del país de origen, que esas aletas fueron embarcadas adheridas en forma natural al vástago del tiburón.

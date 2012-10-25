@@ -1,0 +1,1 @@
+Artículo 4°-. Se cancelará la licencia de pesca al responsable o dueño de la embarcación, extranjera o nacional, con respeto del debido proceso, que por primera vez o con reincidencia descargue, transporte, importe, trasiegue y porte dentro de la embarcación aletas de tiburón, contraviniendo la presente disposición.
