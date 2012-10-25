@@ -1,0 +1,1 @@
+Artículo 30. Los contratos que no se tramiten bajo la modalidad indicada en el artículo 28 anterior, deberán ser tramitados según el rol de llegada que maneja el titular de la Proveeduría General, según sea reportado por parte de cada Asesor de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 25. En caso de contrataciones directas de escasa cuantía, el acto de adjudicación deberá realizarse y comunicarse dentro del día hábil siguiente al recibido del mismo por parte del Asesor de Contrataciones de la Proveeduría General que le corresponda.

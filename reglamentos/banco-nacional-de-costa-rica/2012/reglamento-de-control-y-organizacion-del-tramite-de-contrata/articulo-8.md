@@ -1,0 +1,1 @@
+Artículo 8. Con el insumo anterior, se procederá a la confección del cartel, cuya responsabilidad recae en una actuación en forma conjunta entre los funcionarios de la oficina usuaria y el personal especializado designado para tal fin por la Proveeduría General.
