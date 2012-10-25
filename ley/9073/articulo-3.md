@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Cuando se trate de zonas declaradas patrimonio natural del Estado, únicamente el ministro de Ambiente y Energía podrá desaplicar la moratoria, mediante la fundamentación técnica pertinente, cuando se determine la comisión de daño ambiental o peligro o amenaza de daño al medio ambiente.
