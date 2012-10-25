@@ -1,0 +1,2 @@
+ARTÍCULO 2.- La disposición prevista en el artículo anterior no excluye dictar las medidas cautelares judiciales o administrativas, ni la ejecución de resoluciones judiciales o administrativas en firme, en ambos casos cuando se determine la comisión de daño ambiental o peligro o amenaza de daño al medio ambiente.
+Las resoluciones administrativas referidas en el párrafo anterior serán exclusivamente las emitidas por el Tribunal Administrativo Ambiental o por el ministro de Ambiente y Energía.
