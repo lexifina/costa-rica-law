@@ -1,1 +1,0 @@
-Artículo 9º—Sanciones. El incumplimiento de las disposiciones contenidas en el presente Decreto serán sancionadas de conformidad con lo establecido en la Ley de Tránsito por Vías Públicas Terrestres, N° 7331 del 13 de abril de 1993 y sus reformas, sin perjuicio de las sanciones conexas, al conductor que infrinja las disposiciones relativas a la restricción vehicular.
