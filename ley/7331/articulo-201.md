@@ -1,2 +1,2 @@
 ARTÍCULO 201.- Lo afirmado en las boletas de citación, en los partes impersonales y en las informaciones sumarias de un inspector de tránsito, tendrá el valor que el juez le atribuya, conforme a las reglas de la sana crítica y no pueden revertir la carga de la prueba.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 200 al 201).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 200 al 201. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

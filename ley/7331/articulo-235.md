@@ -1,6 +1,6 @@
 (*) CAPÍTULO VIII
 DEFINICIONES
-(*) (Así corrida la numeración de este Capítulo por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del anterior Capítulo IV al VIII).
+(*) (Así corrida la numeración de este Capítulo por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del anterior Capítulo IV al VIII. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
 ARTÍCULO 235.-
 (NOTA de Sinalevi: véase infra sobre la futura derogación del este artículo)
 Para la interpretación de esta Ley y de su Reglamento, tienen el carácter de definiciones las siguientes:
@@ -107,7 +107,7 @@ Para la interpretación de esta Ley y de su Reglamento, tienen el carácter de d
 101.- Virar: cambiar la dirección del vehículo en su trayectoria.
 102.- Zona de paso: zona demarcada en una vía pública, destinada para el cruce de peatones.
 103.- Zona de seguridad: zona de paso regulada por semáforos que, en forma alterna, permite el paso de peatones y de vehículos.
-(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 220 al 235).
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 220 al 235. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
 (NOTA de Sinalevi: este numeral será derogado cuando se elabore y entre en vigencia el Reglamento respectivo, de acuerdo con la disposición del artículo 3º de la ley No.7721 de 9 de diciembre de 1997. Véase el Transitorio siguiente)
 TRANSITORIO DE LA LEY No.7331 DE 13 DE ABRIL DE 1997.-
 “La derogación del artículo 220 de la Ley de Tránsito operará y regirá a partir de la emisión del Reglamento correspondiente.”

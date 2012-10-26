@@ -1,3 +1,3 @@
 ARTÍCULO 75.- Las personas con licencia para conducir los vehículos automotores, expedida en el extranjero, quedan autorizadas para conducir, en el territorio nacional, por un período máximo de tres meses, el mismo tipo de vehículos que les autoriza esa licencia. La licencia debe estar al día y el conductor debe portarla junto con su pasaporte.
 Sin embargo, podrán obtener la licencia de conducir con la sola presentación de la licencia del otro país y el examen médico, de conformidad con lo que establece esta Ley.
-(Así corrida su numeración por el inciso a) del artículo 2° de la Ley N ° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 74 al 75).
+(Así corrida su numeración por el inciso a) del artículo 2° de la Ley N ° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 74 al 75. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

@@ -1,3 +1,3 @@
 ARTÍCULO 258.- La aplicación de esta Ley deroga otras normas, leyes o reglamentos que rigen en este campo, para el Gobierno Central, instituciones autónomas y semiautónomas y los otros Poderes del Estado.
 (NOTA de Sinalevi: véanse la Observaciones de la ley sobre persistencia de aplicación de la ley No.5691 a las entidades públicas no contempladas en este artículo, tales como municipalidades, empresas públicas, etc.)
-(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 243 al 258).
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 243 al 258. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

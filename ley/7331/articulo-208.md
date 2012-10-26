@@ -6,4 +6,4 @@ d) Brindar informes e incluso recabar pruebas para el órgano competente, con el
 e) Realizar investigaciones especiales en el interior del cuerpo policial, para prevenir, detectar y erradicar la ocurrencia de focos de corrupción, incrementando la ética y la transparencia en el cumplimiento de la función policial.
 f) Plantear directamente las denuncias correspondientes, ante los órganos jurisdiccionales, cuando medien hechos que se tipifiquen como ilícitos penales.
 g) Todas las otras atribuciones que tiendan a mejorar y fortalecer el servicio que brinda la Policía de Tránsito, que le sean encargadas por el ministro o la ministra.
-(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

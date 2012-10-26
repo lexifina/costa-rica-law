@@ -10,4 +10,4 @@ h) La condenatoria en abstracto por los daños y perjuicios ocasionados a las pe
 i) La condenatoria en abstracto de las costas personales y procesales.
 En los casos de los incisos h) e i) de este artículo, se acudirá a la ejecución de sentencia en la vía civil.
 (Así reformado mediante el artículo único de la Ley No. 8431 del 10 de diciembre del 2004).
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 174 al 175).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 174 al 175. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
