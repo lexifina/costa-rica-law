@@ -3,4 +3,4 @@ a) Desde media hora antes de la hora natural del anochecer y hasta media hora de
 b) La luz alta del vehículo se utilizará en las carreteras, siempre y cuando no vengan vehículos en el sentido contrario de circulación.
 c) La luz baja del vehículo se utilizará en las zonas urbanas y en las carreteras, cuando vengan vehículos en el sentido contrario de circulación o cuando se transite detrás de otro vehículo.
 ch) Las luces para la neblina se utilizarán, únicamente, cuando las condiciones climatológicas así lo exijan.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 88 al 89).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 88 al 89. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

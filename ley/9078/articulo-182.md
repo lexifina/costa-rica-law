@@ -1,0 +1,3 @@
+ARTÍCULO 182.- Derecho de defensa del imputado
+Durante la audiencia, el imputado puede defenderse de forma personal o por medio de un abogado, pero este solo puede participar si se hace acompañar de su defendido o, en su defecto, si cuenta con un poder especial judicial otorgado al efecto. Igualmente, al imputado debe advertírsele sobre su derecho a abstenerse de declarar.
+Si todos los imputados o alguno de ellos no se presenta a la audiencia convocada, el juez procederá a abrir la audiencia, si hay prueba que recabar; interrogará a las partes y testigos presentes junto con los abogados si los hay, y a continuación procederá a escuchar los alegatos finales, salvo lo dispuesto en el artículo 183 de esta ley.

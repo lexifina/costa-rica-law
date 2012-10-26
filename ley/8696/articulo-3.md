@@ -1,2 +1,1 @@
-ARTÍCULO 3.- Derogaciones
-Deróganse los artículos 136 y 249 de la Ley de tránsito por vías públicas terrestres, Nº 7331, de 13 de abril de 1993, y sus reformas. Una vez operada la modificación parcial dispuesta por la presente Ley, a dichos artículos derogados les corresponden correctamente los números 137 y 264.
+ARTÍCULO 3.- (Derogado por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)

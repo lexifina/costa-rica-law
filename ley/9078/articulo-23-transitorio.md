@@ -1,0 +1,6 @@
+TRANSITORIO XXIII.-
+Los propietarios de vehículos con volante a la derecha que se encuentren inscritos a la fecha de publicación de esta ley deberán realizar la conversión del volante para que este sea ubicado al lado izquierdo del vehículo, en concordancia con lo establecido en el inciso d) del artículo 32 de la presente ley. Lo anterior dentro de un plazo máximo e improrrogable de seis meses contado a partir de la publicación de esta ley.
+La modificación deberá ser certificada por un ingeniero mecánico incorporado al colegio profesional respectivo y la verificación de esta conversión deberá realizarse en los CIVE, los cuales comunicarán al Registro Nacional para que, mediante una anotación al margen del asiento registral del vehículo, se informe al consumidor sobre el cambio de características del vehículo.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los cuatro días del mes de octubre del año dos mil doce.
+(*)(Corregido mediante Fe de Erratas y publicada en el Alcance digital N° 166 a La Gaceta N° 207 del 26 de octubre de 2012. Anteriormente se indicaba: “Dado en la Presidencia de la República.—San José, a los cuatro días del mes de octubre del año dos mil once”)

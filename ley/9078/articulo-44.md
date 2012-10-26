@@ -1,0 +1,7 @@
+ARTÍCULO 44.- Modalidad autobús y buseta en ruta regular
+Los vehículos dedicados a la prestación del servicio de transporte público de personas en modalidad autobús o buseta en ruta regular, sin perjuicio de lo establecido en otras normas, se rigen por las siguientes disposiciones:
+a) En las áreas de entrada y salida, debe marcarse con una franja amarilla de por lo menos diez centímetros de ancho el límite de la zona en la que no pueden viajar los pasajeros.
+b) Deben llevar, en la parte delantera y de manera visible al público, un rótulo luminoso o de material retrorreflectivo que indique el origen y destino, el número de la ruta y la tarifa fijada, cuando esta sea una tarifa única.
+c) Los operadores deberán cumplir, estrictamente, con los recorridos, las paradas y los horarios establecidos por el CTP, salvo caso fortuito, fuerza mayor o hecho de un tercero.
+d) Se prohíbe subir o bajar pasajeros, si la unidad no se encuentra detenida en los sitios autorizados por el CTP o que no utilice las bahías destinadas a tal fin, en los lugares donde existan.
+e) De producirse un desperfecto mecánico que le impida a la unidad terminar el recorrido, el operador estará en la obligación de garantizarle al usuario, sin costo alguno, el abordaje en otra unidad de la misma ruta o bien el reemplazo de la unidad en un plazo razonable, en coordinación con el concesionario de la ruta, o bien, si así lo solicita, se le deberá reintegrar la totalidad de la tarifa cobrada.

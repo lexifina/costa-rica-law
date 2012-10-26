@@ -5,4 +5,4 @@ Mediante el Reglamento de esta Ley, el Poder Ejecutivo regulará las especificac
 Las regulaciones del control de emisiones contaminantes no serán obligatorias para los tractores de oruga, los vehículos de competencia de velocidad, los de interés histórico ni los catalogados como equipo especial, excepto los vehículos grúa. Para autorizar la importación de los tractores de llanta, no deberá presentarse a las autoridades competentes el certificado de cumplimiento.
 Los límites de control de emisiones establecidos en los artículos subsiguientes de esta ley incorporan el factor de corrección por altura.
 (Así reformado por el artículo 1º, inciso 2), de la ley No.7721 de 9 de diciembre de 1997)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 33 al 34).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 33 al 34. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

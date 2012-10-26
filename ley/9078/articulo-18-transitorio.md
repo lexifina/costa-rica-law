@@ -1,0 +1,2 @@
+TRANSITORIO XVIII.-
+Los autobuses y las busetas autorizados por el CTP en una ruta regular al momento de entrar en vigencia esta ley no verán modificada su naturaleza original de autobús o buseta, aunque la capacidad de pasajeros se vea disminuida en virtud de la adaptación de rampas o elevadores para sillas de ruedas, siempre que se realice para cumplir con lo establecido en el transitorio VIII de la Ley N.º 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, y sus modificaciones.

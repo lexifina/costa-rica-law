@@ -1,0 +1,6 @@
+ARTÍCULO 131.- Cierre o clausura de vías sin autorización
+Se prohíbe clausurar, total o parcialmente, las vías públicas o usarlas para fines distintos de los de circulación de peatones o vehículos, salvo que se proceda en virtud de un permiso escrito dado con anterioridad por la Dirección General de Ingeniería de Tránsito. En caso de vías bajo la jurisdicción municipal, bastará una comunicación formal del municipio a la Dirección General de Tránsito para su debida coordinación. Del mismo modo, se prohíbe ocupar las vías públicas urbanas y suburbanas para:
+a) La construcción de tramos o puestos, con motivo de festejos populares, patronales o de otra índole.
+b) Ser usadas como lugar permanente de reparación de vehículos u otros menesteres que obstaculicen el libre tránsito.
+c) La construcción de obras públicas y privadas en la superficie de un derecho de vía, que no reúna las condiciones mínimas de seguridad establecidas en esta ley y su reglamento. Se exceptúa de dicha disposición, el cierre temporal de vía que amerite la atención de incidentes donde deban participar cuerpos de emergencia.
+La Dirección General de Ingeniería de Tránsito, previa realización de los estudios del caso, está facultada para clausurar las vías cuyo cierre se determine conveniente para los intereses públicos.

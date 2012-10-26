@@ -1,0 +1,4 @@
+ARTÍCULO 18.- Derechos de inscripción
+Los derechos de inscripción a favor del Registro Nacional, así como el pago de toda tasa o impuesto relativos a la inscripción, el traspaso, la cancelación o la modificación de las características de los vehículos, deberán ser cancelados mediante entero bancario, a excepción del timbre fiscal cancelado para la adjudicación de vehículos en un juicio sucesorio y así conste en la respectiva escritura pública bajo fe notarial.
+Los tributos serán calculados con base en el valor fiscal de cada vehículo, según determine mediante acuerdo de carácter general el Ministerio de Hacienda cada año, salvo que el valor contractual sea superior, en cuyo caso el impuesto se determinará con base en ese valor.
+Esos tributos deberán ser cancelados en su totalidad para la admisión de su presentación en el Registro Nacional.

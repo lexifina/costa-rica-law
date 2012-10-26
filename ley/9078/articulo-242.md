@@ -1,0 +1,4 @@
+ARTÍCULO 242.- Accidentes de tránsito con vehículos oficiales
+En caso de accidentes con vehículos oficiales, el particular debe apersonarse o comunicarse con la dependencia interna correspondiente, con el fin de efectuar las gestiones del caso. Se prohíbe al conductor del vehículo oficial, efectuar arreglos extrajudiciales.
+El conductor que sea declarado responsable judicialmente, con motivo de un accidente en que hubiera participado con el vehículo oficial debe pagar el monto correspondiente al deducible, así como las indemnizaciones que deba hacer la institución a la que pertenece en favor de terceros afectados, o en su totalidad cuando el costo del daño sea inferior al monto del deducible.
+Es igualmente responsable quien permita a otra persona conducir un vehículo oficial sin causa justificada o sin la debida autorización.

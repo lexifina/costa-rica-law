@@ -1,2 +1,2 @@
 ARTÍCULO 22.- Prohíbese toda alteración, alquiler de equipos, sistemas de emisiones, dispositivos de seguridad u otras prácticas que se utilicen temporalmente, para modificar los resultados de las pruebas de emisiones vehiculares realizadas por las autoridades competentes; el incumplimiento de esta disposición se sancionará, de conformidad con lo dispuesto en el artículo 131 de esta Ley.
-(Así adicionado por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así adicionado por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

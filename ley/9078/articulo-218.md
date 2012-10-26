@@ -1,0 +1,2 @@
+ARTÍCULO 218.- Campañas de educación vial
+El Cosevi desarrollará campañas de educación vial destinadas a dar a conocer la información relacionada con la seguridad vial, en las que se incluyan temas relacionados con el uso correcto de los dispositivos de seguridad para personas menores de edad, el comportamiento de los peatones y ciclistas en las vías públicas, los aspectos generales de conducción y los principios básicos que integran esta ley.

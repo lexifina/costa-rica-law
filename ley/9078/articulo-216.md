@@ -1,0 +1,6 @@
+ARTÍCULO 216.- Obligaciones de la Sección de Asuntos Internos
+Además de las obligaciones establecidas en la Ley N.º 7410, Ley General de Policía, de 26 de mayo de 1994, y sus reformas, son obligaciones de la Sección de Asuntos Internos las siguientes:
+a) Realizar, de oficio y permanentemente, acciones concretas tendientes a que el oficial de tránsito cumpla fielmente y con estricto apego al ordenamiento jurídico las directrices y las instrucciones de carácter operacional dictadas por los responsables de la Dirección General de la Policía de Tránsito, así como cualquier otra disposición emitida por los órganos competentes del Ministerio.
+b) Realizar las inspecciones y los operativos de cualquier naturaleza, en cualquier momento, en el ámbito de sus competencias, con la finalidad de comprobar el uso adecuado, proporcional, racional, eficaz y eficiente de los recursos asignados a los oficiales de tránsito, así como el cumplimiento regular de su función.
+c) Realizar investigaciones especiales en el interior del cuerpo policial para prevenir, detectar y erradicar la ocurrencia de focos de corrupción, incrementando la ética y la transparencia en el cumplimiento de la función policial.
+d) Plantear, directamente y de oficio, las denuncias correspondientes ante los órganos jurisdiccionales, cuando medien hechos que se tipifiquen como ilícitos penales.

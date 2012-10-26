@@ -1,2 +1,2 @@
 ARTÍCULO 46.- En caso de mora en el pago de la póliza, el Instituto Nacional de Seguros aplicará un recargo del tres por ciento mensual (3%) sobre el monto original, hasta un máximo del treinta y seis por ciento (36%).
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 45 al 46)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 45 al 46. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

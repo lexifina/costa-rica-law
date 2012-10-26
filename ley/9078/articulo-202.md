@@ -1,0 +1,6 @@
+ARTÍCULO 202.- Plazo para la reclamación civil
+Para establecer la responsabilidad civil solidaria de los terceros en los términos de la presente ley, se procederá bajo las siguientes condiciones: el conductor infractor se apersonará dentro de los diez días posteriores a su declaración, y el propietario dentro de los diez días siguientes a la notificación conforme al contenido del artículo 172 de esta ley.
+El interesado aportará al proceso el nombre, el número de cédula y las calidades de la persona contra la cual se dirige la acción, así como el lugar donde se le puede notificar. Si se trata de una persona jurídica, deberá aportar el nombre del representante legal, el domicilio social y el lugar donde notificarla.
+De aportarse los datos fuera del plazo señalado o incompletos, la gestión se tendrá por no interpuesta.
+Recibida la gestión, el despacho procederá a notificar al demandado y este contará con diez días para ejercer su defensa, sin perjuicio de su participación posterior en la audiencia.
+En caso de que el conductor imputado sea una persona menor de edad, el interesado deberá realizar las gestiones de responsabilidad civil solidaria de daños y perjuicios en la sede civil correspondiente, en contra del propietario del vehículo.

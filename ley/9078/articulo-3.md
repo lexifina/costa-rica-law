@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Ejecución de la ley
+La ejecución de esta ley le corresponde al MOPT por medio de sus órganos, sin perjuicio de las competencias que esta ley asigne a otras entidades u órganos. Asimismo, el MOPT podrá suscribir, con otras autoridades, convenios de cooperación y alianzas estratégicas para el cumplimiento de sus objetivos institucionales; para ello, podrá transferir los recursos que posibiliten su ejecución en estricto apego a la ley.

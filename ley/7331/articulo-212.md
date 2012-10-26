@@ -1,2 +1,2 @@
 ARTÍCULO 212.- Las personas interesadas en integrar el cuerpo de instructores en educación y seguridad vial, que no tengan conocimiento previo en la materia, deberán realizar y aprobar, para tal efecto, los cursos que serán impartidos por las universidades estatales, el INA y la Dirección General de Educación Vial.
-(Así adicionado por el inciso q) artículo 2° de la ley N° 8696 de 17 de diciembre de 2008)
+(Así adicionado por el inciso q) artículo 2° de la ley N° 8696 de 17 de diciembre de 2008. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
