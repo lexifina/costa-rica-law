@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 37370
+
+Restricción Vehicular mediante el Esquema Hora/Placa en el Centro de San José
+
+- Tipo: Decreto Ejecutivo
+- Número: 37370
+- Fecha: 2012-10-26
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 207 del 2012-10-26, Alcance 167
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73522&param2=90260&param3=1 (ficha 73522)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2012-10-26 | la propia norma |

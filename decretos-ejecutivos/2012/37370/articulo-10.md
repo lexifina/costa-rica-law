@@ -1,0 +1,2 @@
+Artículo 10.—Desaplicación temporal.
+Se autoriza al Ministerio de Obras Públicas y Transportes para que por vía de resolución administrativa disponga, cuando así lo estime pertinente por razones de oportunidad, conveniencia o interés público, la desaplicación temporal de la restricción vehicular que por este Reglamento se establece para la Ciudad Capital, durante los días de fin y principio de año, semana santa o vacaciones escolares, feriados, así como con motivo de cualquier otro evento o fecha que así se justifique.

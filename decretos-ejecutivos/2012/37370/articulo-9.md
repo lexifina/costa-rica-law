@@ -1,0 +1,2 @@
+Artículo 9º—Sanciones.
+El incumplimiento de las disposiciones contenidas en el presente Decreto serán sancionadas de conformidad con lo establecido en la Ley de Tránsito por Vías Públicas Terrestres, N° 9078 del 4 de octubre del 2012, publicada en el Diario Oficial La Gaceta del 26 de octubre de 2012, sin perjuicio de las sanciones conexas, al conductor que infrinja las disposiciones relativas a la restricción vehícular.

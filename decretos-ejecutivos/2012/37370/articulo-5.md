@@ -1,0 +1,2 @@
+Artículo 5º—Plazo de vigencia de la restricción vehicular y monitoreo.
+Durante el lapso de vigencia de la restricción vehicular en referencia, la Dirección General de Ingeniería de Tránsito mantendrá un monitoreo periódico, con el fin de corroborar los efectos positivos del sistema, sugerir las medidas correctivas del caso y detectar, así mismo, cualquier otra situación de interés público en materia de seguridad vial que se genere como resultado de la aplicación de la restricción vehicular.

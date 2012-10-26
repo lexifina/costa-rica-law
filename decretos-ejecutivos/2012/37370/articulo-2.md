@@ -1,0 +1,2 @@
+Artículo 2º—Obligatoriedad.
+Las disposiciones del presente decreto son de acatamiento obligatorio para todas las personas físicas o jurídicas propietarias de vehículos automotores y para los conductores de los mismos, en cuanto a su uso y circulación en las vías comprendidas en el área descrita en el artículo tercero que a continuación se describe.
