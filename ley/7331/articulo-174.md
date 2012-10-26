@@ -1,3 +1,3 @@
 ARTÍCULO 174.— Si el imputado no comparece dentro del plazo señalado o si rechaza los cargos, pero no ofrece prueba de descargo, o si los acepta, el juzgado resolverá con los elementos de juicio que consten en el expediente, sin perjuicio de su facultad de ordenar la recepción de la prueba que considere necesaria para mejor resolver.
 (Así reformado mediante el artículo único de la Ley No. 8431 del 10 de diciembre del 2004)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 173 al 174).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 173 al 174. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

@@ -1,22 +1,6 @@
 ARTÍCULO 6.- Modificación de la Ley Nº 6324
 Modifícase la Ley de administración vial, Nº 6324, de 25 de mayo de 1979, en las siguientes disposiciones:
-a) Se reforman los artículos 3, 5 y 6. Los textos dirán:
-“Artículo 3.-
-La administración vial estará constituida por los órganos que determine el Ministerio de Obras Públicas y Transportes, con el apoyo del Cosevi.”
-“Artículo 5.-
-La Junta Directiva es el órgano máximo del Cosevi y está integrada por los siguientes miembros:
-a) El ministro o la ministra de Obras Públicas y Transportes o su delegado, quien la presidirá.
-b) El presidente ejecutivo de la CCSS o su delegado.
-c) El ministro de Educación Pública o su delegado.
-d) El presidente ejecutivo del INS o su delegado.
-e) El presidente ejecutivo del INA o su delegado.
-La Junta Directiva nombrará a un vicepresidente, por períodos anuales.
-Todos los funcionarios a que se refiere el presente artículo fungirán como miembros de la Junta Directiva, mientras se encuentren nombrados en sus respectivos cargos. Cuando se trate de delegados, su condición quedará supeditada a la vigencia del nombramiento del titular.
-La Junta Directiva será presidida por el ministro o la ministra de Obras Públicas y Transportes o su delegado. Quien presida el Cosevi tendrá la representación judicial y extrajudicial de la Institución, con las facultades que determina el artículo 1253 del Código Civil para los apoderados generalísimos y las facultades que le otorgue de manera expresa, la Junta Directiva, para los casos especiales. El presidente de la Junta Directiva podrá otorgar poderes generales, judiciales y especiales, cuando sea de comprobado interés para el Cosevi.”
-Artículo 6.-
-Formarán quórum un número superior o igual a la mitad más uno de los miembros, quienes, en todo caso, deberán tomar los acuerdos por mayoría.
-El Consejo, para regular su gestión, elaborará un reglamento interno, el cual, así como sus reformas, requerirá para su validez y eficacia la aprobación del Poder Ejecutivo.
-A las sesiones de la Junta Directiva deberá asistir el director ejecutivo del Cosevi, con voz pero sin voto, y podrán asistir también, si el Consejo lo solicita, el asesor legal y el auditor interno, con iguales prerrogativas.”
+a) (Derogado este inciso por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)
 b) Refórmanse los artículos 20, 21, 22, 23, 24, 25 y 26. Los textos dirán:
 “Artículo 20.-
 La Dirección General de Educación Vial será la responsable de todo el Sistema Nacional de Acreditación de Conductores, que incluye el proceso de formación de conductores y la expedición de las licencias de conducir.
@@ -61,4 +45,4 @@ Contra las resoluciones o los acuerdos de la Junta Directiva del Cosevi, cabrán
 Los recursos de revocatoria serán conocidos por la Junta Directiva del Cosevi y la apelación subsidiariamente interpuesta, será conocida por el ministro o la ministra del MOPT, quien dará por agotada la vía administrativa.
 Artículo 26.-
 Los integrantes de la Junta Directiva del Cosevi, únicamente podrán recibir dietas en los términos señalados en el artículo 17 de la Ley contra la corrupción y el enriquecimiento ilícito en la función pública, N.º 8422, de 6 de octubre del año 2004, y su Reglamento.”
-c) Deróganse los artículos 27, 28, 29, 30, 31, 32, 33 y 34 de la Ley de administración vial, Nº 6324, de 25 de mayo de 1979, y sus reformas.
+c) (Derogado este inciso por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)

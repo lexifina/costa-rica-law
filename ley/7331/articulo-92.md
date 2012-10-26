@@ -11,4 +11,4 @@ La señal que rige es de fondo verde con dibujos en blanco y en su parte inferio
 e) No se permite cambiar de carril dentro de la rotonda, excepto en las maniobras de entrada y de salida.
 f) No se permite rebasar a otro vehículo dentro de la rotonda.
 g) Aun en los casos en que el diseño geométrico de la rotonda facilite maniobrar, de forma expedita, hacia la primera salida, es obligatorio para los vehículos que deseen ingresar a la rotonda, respetar la señal de “ceda” y dar el paso prioritario a los vehículos que circulen dentro.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 91 al 92).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 91 al 92. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

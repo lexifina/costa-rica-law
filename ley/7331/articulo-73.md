@@ -3,4 +3,4 @@ Los conductores deben comunicar, por escrito, todo cambio de domicilio a la Dire
 Esa dirección se tendrá como domicilio para oír notificaciones, las que también se practicarán por correo certificado.
 En el caso de que la dirección no conste o sea incorrecta, de modo que la notificación no pueda practicarse, se hará mediante su publicación en el Diario Oficial, por tres veces, a costa del infractor.
 No se renovará ninguna licencia mientras el conductor no cancele los costos de publicación, los que se anotarán, también, como gravamen sobre el vehículo de mayor valor inscrito a nombre del poseedor de la licencia.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 72 al 73).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 72 al 73. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

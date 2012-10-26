@@ -1,0 +1,3 @@
+TRANSITORIO XV.-
+Por un período de seis meses, contado a partir de la entrada en vigencia de la presente ley, los propietarios de los vehículos que no hayan presentado sus escrituras de venta ante el Registro Nacional, confeccionadas con fecha anterior a la entrada en vigencia de la presente ley, podrán hacerlo sin el pago del impuesto de la transferencia de vehículos; pagarán únicamente los timbres respectivos y los derechos correspondientes, sin multa ni intereses.
+Los propietarios de vehículos a quienes se les indemnizó por robo o pérdida total real del bien, antes de la entrada en vigencia de esta ley, podrán tramitar la desinscripción del vehículo sin el pago de impuestos, seguro obligatorio de vehículos y derechos correspondientes.

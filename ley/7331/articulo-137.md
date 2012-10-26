@@ -1,2 +1,2 @@
-ARTÍCULO 137.- (DEROGADO, por el artículo 3° de la ley N° 8696 de 17 de diciembre de 2008).
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 136 al 137)
+ARTÍCULO 137.-(La abrogación práctica a este numeral por el artículo 3° de la ley N° 8696 de 17 de diciembre de 2008, posteriormente fue derogada por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 136 al 137. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

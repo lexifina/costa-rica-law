@@ -1,0 +1,6 @@
+CAPÍTULO VII
+RESPONSABILIDAD CIVIL
+ARTÍCULO 197.- Sujetos de la responsabilidad civil
+En todo accidente de tránsito en el que no esté identificado el conductor, el propietario registral será el responsable civil objetivo de las consecuencias que se deriven del uso, manipulación, posesión o tenencia del vehículo. En tal caso, el interesado podrá plantear un proceso civil en contra del propietario registral. Dicho propietario podrá liberarse de responsabilidad mediante documento que demuestre que el vehículo fue vendido, traspasado a un tercero, sustraído, o no se encuentra dentro de su apoderamiento, con fecha anterior al accidente de tránsito. De comprobarse lo anterior, se tendrá que encausar el proceso en contra del nuevo adquirente o poseedor e igualmente se actuará por cualquier otra salvedad legítimamente válida.
+En los accidentes en que el conductor sea identificado, la responsabilidad civil solidaria del propietario o poseedor podrá tramitarse dentro del proceso de tránsito respectivo, de conformidad con lo dispuesto en el artículo 199 y siguientes de la presente ley.
+Los peatones, el conductor y los pasajeros de un vehículo a quienes les sea imputable un accidente de tránsito podrán ser civilmente responsables por los daños y perjuicios que se deriven de este.

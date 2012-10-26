@@ -1,0 +1,6 @@
+ARTÍCULO 214.- Inspectores municipales de tránsito
+Sin perjuicio de las labores ordinarias de la Policía de Tránsito, en cada cantón podrá investirse a policías municipales como inspectores de tránsito municipal, previo cumplimiento de los requisitos establecidos por la Dirección General de Tránsito para la designación de sus inspectores. Para ello, el alcalde del municipio respectivo deberá presentar la solicitud ante la Dirección General de Tránsito, órgano que deberá resolver la solicitud en el plazo de veinte días hábiles.
+Los inspectores municipales de tránsito podrán confeccionar las boletas por infracciones contempladas en los artículos 96, 143, 144, 145, 146 y 147 de esta ley.
+Las autoridades municipales investidas deberán cumplir las disposiciones, las obligaciones, los protocolos y el ámbito geográfico de competencia territorial debidamente demarcado mediante señalización vertical y definido por la Dirección General de la Policía de Tránsito, así como con la reglamentación respectiva.
+Las boletas de infracción que se confeccionen fuera de dicho ámbito de competencia territorial carecerán de validez y serán anuladas de oficio por el Cosevi.
+El avituallamiento de este cuerpo policial corresponderá a la municipalidad respectiva.

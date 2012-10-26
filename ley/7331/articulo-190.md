@@ -1,3 +1,3 @@
 ARTÍCULO 190.- La acción para el resarcimiento de los daños y perjuicios que se ocasionen con el accidente y el cobro de las costas, deben ser establecidos por el perjudicado o su representante, ante el tribunal civil competente.
 (Así reformado por el artículo 1º de la ley No.7833 de 29 de setiembre de 1998)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 189 al 190).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 189 al 190. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

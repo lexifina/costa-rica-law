@@ -10,5 +10,5 @@ h) Cuando el conductor incurra en la conducta sancionada por el inciso i) del ar
 i) Cuando el conductor incurra en la conducta sancionada en el inciso f) del artículo 130, por violación a lo dispuesto en el artículo 102 de la presente Ley.
 j) Cuando el conductor incurra en la conducta sancionada en el inciso e) del artículo 133 de esta Ley, por violación a lo dispuesto en el artículo 101 de la presente Ley.
 (Así reformado el inciso anterior por el artículo 1°, punto 19) de la ley N° 8779 del 17 de setiembre de 2009)
-(Así reformado este artículo por el inciso r) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 140 al 141).
+(La reformada practicada por el inciso r) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, fue derogada posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 140 al 141. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

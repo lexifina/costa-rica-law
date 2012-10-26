@@ -4,4 +4,4 @@ ARTÍCULO 79.- Al usar las vías públicas, los conductores, los pasajeros de lo
 a) Acatar de inmediato las indicaciones verbales o escritas de las autoridades de tránsito y detenerse cuando les indiquen la señal de parada, la cual puede realizarse con la mano o por medio de señales acústicas o luminosas.
 b) Respetar las instrucciones de cualquier dispositivo oficial de control de tránsito, que haya sido instalado y funcione de acuerdo con las respectivas disposiciones legales reglamentarias.
 c) Observar y cumplir con las señales verticales y con las demarcaciones en las vías públicas.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 78 al 79).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 78 al 79. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

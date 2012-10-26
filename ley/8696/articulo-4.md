@@ -1,32 +1,3 @@
 CAPÍTULO II
 Modificaciones de otras leyes
-ARTÍCULO 4.- Modificación de la Ley Nº 4573
-Modifícase el Código Penal, Ley Nº 4573, en las siguientes disposiciones:
-a) Se reforman los artículos 117 y 128. Los textos dirán:
-“Homicidio culposo
-Artículo 117.-
-Se impondrá prisión de seis (6) meses a ocho (8) años, a quien por culpa mate a otro. En la adecuación de la pena al responsable, el tribunal deberá tomar en cuenta el grado de culpa y el número de víctimas, así como la magnitud de los daños causados.
-En todo caso, al autor del homicidio culposo también se le impondrá inhabilitación de uno (1) a cinco (5) años para el ejercicio de la profesión, el oficio, arte o la actividad en la que se produjo el hecho. Al conductor reincidente se le impondrá, además, la inhabilitación para conducir todo tipo de vehículos, por un período de cinco (5) a diez (10) años.
-Se impondrá pena de prisión de tres (3) a quince (15) años e inhabilitación para la conducción de todo tipo de vehículos, por un período de cuatro (4) a veinte (20) años, a quien, por culpa y por medio de un vehículo, haya dado muerte a una persona, encontrándose el autor bajo las condiciones establecidas para la conducción temeraria, conforme se dispone en los incisos b), c) y d) del numeral 107 de la Ley de tránsito por vías públicas terrestres, Nº 7331, de 13 de abril de 1993, y sus reformas, o bajo la influencia de bebidas alcohólicas, cuando la concentración de alcohol en la sangre sea mayor a cero coma setenta y cinco (0,75) gramos de alcohol por cada litro de sangre.
-Cuando se trate de un conductor reincidente de alguna de las conductas señaladas en el párrafo anterior, el mínimo de la pena de inhabilitación para la conducción de todo tipo de vehículos, será de diez (10) años y el máximo podrá ser hasta de treinta (30) años. Cuando se imponga una pena de prisión de tres (3) años o menos, el tribunal podrá sustituir la pena privativa de libertad, por una medida alternativa de prestación de servicio de utilidad pública, que podrá ser de trescientas ochenta (380) horas a mil ochocientas (1800) horas de servicio, en los lugares y la forma señalados en el artículo 71 ter de la Ley de tránsito por vías públicas terrestres, Nº 7331, de 13 de abril de 1993, y sus reformas.”
-“Lesiones culposas
-Artículo 128.-
-Se impondrá prisión hasta de un (1) año, o hasta cien (100) días multa, a quien por culpa cause a otro lesiones de las definidas en los artículos 123, 124 y 125. Para la adecuación de la pena al responsable, el tribunal deberá tener en cuenta el grado de culpa, el número de víctimas y la magnitud de los daños causados.
-En todo caso, al autor de las lesiones culposas también se le impondrá inhabilitación de seis (6) meses a dos (2) años para el ejercicio de la profesión, el oficio, el arte o la actividad en la que se produjo el hecho. Al conductor reincidente se le impondrá, además, la cancelación de la licencia para conducir vehículos, por un período de uno (1) a dos (2) años.
-Se impondrá pena de prisión de dos (2) a seis (6) años, a quien por culpa y por medio de un vehículo, haya causado lesiones a una persona, encontrándose el autor bajo las condiciones establecidas para la conducción temeraria, conforme se dispone en los incisos b), c) y d) del numeral 107 de la Ley de tránsito por vías públicas terrestres, N.º 7331, de 13 de abril de 1993, y sus reformas, o bajo la influencia de bebidas alcohólicas, cuando la concentración de alcohol en la sangre sea mayor a cero coma setenta y cinco (0,75) gramos de alcohol por cada litro de sangre. En los casos previstos en este párrafo, al autor del delito se le impondrá una pena de inhabilitación para la conducción de todo tipo de vehículos por un período de dos (2) a diez (10) años.
-Cuando se trate de un conductor reincidente de alguna de las conductas señaladas en el párrafo anterior, el mínimo de la pena de inhabilitación para la conducción de todo tipo de vehículos, será de cinco (5) años y el máximo podrá ser hasta de quince (15) años. Cuando se imponga una pena de prisión de tres (3) años o menos, el tribunal podrá sustituir la pena privativa de libertad, por una medida alternativa de prestación de servicio de utilidad pública, que podrá ser de doscientas (200) horas hasta de novecientas cincuenta (950) horas de servicio, en los lugares y la forma señalados en el artículo 71 ter de la Ley de tránsito por vías públicas terrestres, Nº 7331, de 13 de abril de 1993, y sus reformas.”
-b) Se adiciona el artículo 254 bis al título IX, Delitos contra la seguridad común, sección II, Delitos contra medios de transporte y de comunicaciones. El texto dirá:
-“Título IX
-Delitos contra la seguridad común
-[...]
-Sección II
-Delitos contra medios de transporte y de comunicaciones
-[...]
-Conducción temeraria
-Artículo 254 bis.-
-Se impondrá pena de prisión de uno (1) a tres (3) años y la inhabilitación para conducir vehículos de todo tipo, de uno (1) a cinco (5) años, a quien conduzca en las vías públicas en carreras ilícitas, concursos de velocidad ilegales o piques contra uno o varios vehículos, contra reloj o cualquier otra modalidad.
-Si el conductor se encuentra bajo alguna de las condiciones indicadas en el párrafo anterior y las señaladas en los incisos a) y b) del artículo 107 de la Ley de tránsito por vías públicas terrestres, N.° 7331, de 13 de abril de 1993, y sus reformas, se impondrá pena de prisión de dos (2) a seis (6) años y, además, se le inhabilitará para conducir todo tipo de vehículos de dos (2) a diez (10) años.
-Se impondrá pena de prisión de uno (1) a tres (3) años, a quien conduzca un vehículo automotor a una velocidad superior a ciento cincuenta (150) kilómetros por hora.
-Se impondrá prisión de uno (1) a tres (3) años, a quien conduzca bajo la influencia de bebidas alcohólicas, cuando la concentración de alcohol en la sangre sea mayor a cero coma setenta y cinco (0,75), gramos de alcohol por cada litro de sangre.
-Al conductor reincidente se le impondrá una pena de prisión de dos (2) a ocho (8) años.
-Cuando se imponga una pena de prisión de tres (3) años o menos, el tribunal podrá sustituir la pena privativa de libertad por una medida alternativa de prestación de servicio de utilidad pública que podrá ser desde doscientas (200) horas hasta novecientas cincuenta (950) horas de servicio, en los lugares y la forma señalados en el artículo 71 ter de la Ley de tránsito por vías públicas terrestres, N.° 7331, de 13 de abril de 1993, y sus reformas.”
+ARTÍCULO 4.- (Derogado por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)

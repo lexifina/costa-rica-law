@@ -1,0 +1,6 @@
+ARTÍCULO 139.- Suspensión de licencia por acumulación de la totalidad de puntos
+La acumulación total de los puntos permitidos afectará la validez de todas las licencias de conducir del infractor, cualquiera que sea su clase y tipo.
+El conductor cuya licencia hubiese perdido validez como consecuencia de la acumulación total de los puntos permitidos no podrá reacreditarse para conducir hasta que hayan transcurrido doce meses. Este plazo se reducirá a seis meses en el caso de que el conductor demuestre fehacientemente y por medios idóneos, ante el Cosevi, que laboralmente depende de la conducción de vehículos automotores como modo de subsistencia.
+Si el conductor reacreditado acumula por segunda vez la totalidad de los puntos permitidos no podrá obtener una nueva licencia de conducción hasta que hayan transcurrido veinticuatro meses, contados desde la firmeza de la sanción. Este plazo será de treinta y seis meses tras una tercera infracción y siguientes. Lo anterior, sin perjuicio de las sanciones conexas.
+En caso de inhabilitación para conducir, declarada en sentencia penal, se ajustará a lo dispuesto por la autoridad jurisdiccional correspondiente.
+La suspensión de licencia, declarada en vía administrativa, o la inhabilitación para conducir, declarada en vía judicial, se extenderá a cualquier tipo de licencia de conducir que ostente el infractor.

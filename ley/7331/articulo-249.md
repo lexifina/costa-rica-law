@@ -9,4 +9,4 @@ ch) Conducir bajo los efectos del licor o de cualquier otra droga que disminuya 
 d) Conducir a velocidades que superen las establecidas en esta Ley.
 e) Transportar a particulares, salvo en los casos que, por aspectos de trabajo o emergencia, se justifique.
 f) Utilizar la bandera como placa o distintivo especial en vehículos distintos de los que, por disposición legal, pueden portarlas.
-(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la Ley N ° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 234 al 249)
+(Así corrida su numeración por los incisos a), q) y r) del artículo 2° de la Ley N ° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 234 al 249. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

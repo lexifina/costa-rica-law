@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Obligatoriedad de cancelación del derecho para circular legalmente
+El propietario del vehículo deberá pagar todos los derechos de circulación atrasados, según las disposiciones del artículo 196 de esta ley. Esta obligación no procederá cuando las placas respectivas hayan sido depositadas en el Registro Nacional, junto con una explicación que indique las razones por las que se depositan y el sitio donde el vehículo permanecerá inmovilizado. Igualmente, no procederá esta obligación cuando conste registralmente el robo del vehículo automotor.

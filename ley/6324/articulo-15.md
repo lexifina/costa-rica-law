@@ -1,7 +1,2 @@
-Artículo 15.- La Dirección de Ingeniería de Tránsito tendrá una
-Oficina Coordinadora y de Asistencia Técnica para asesorar a las
-municipalidades en los aspectos de ingeniería, planificación y regulación
-del tránsito. Los programas, planes y diseños para proyectos relacionados
-con el tránsito en los cantones, deberán ser revisados y aprobados por la
-Dirección General de Ingeniería de Tránsito antes de ser ejecutados por
-la respectiva municipalidad.
+Artículo 15.- La Dirección de Ingeniería de Tránsito tendrá una Oficina Coordinadora y de Asistencia Técnica para asesorar a las municipalidades en los aspectos de ingeniería, planificación y regulación del tránsito. Los programas, planes y diseños para proyectos relacionados con el tránsito en los cantones deberán ser revisados y aprobados en un plazo hasta de treinta días hábiles por la Dirección General de Ingeniería de Tránsito antes de ser ejecutados por la respectiva municipalidad; vencido este plazo sin haberse emitido un criterio, se tendrán por aprobados. Lo anterior sin perjuicio de los proyectos que involucren el traslado o aprobación de paradas de transporte público, en tránsito o terminales, que requieren la aprobación del Consejo de Transporte Público, por lo que en estos casos el plazo anterior no aplicará respecto de esta institución.
+(Así reformado por el artículo 248 de la ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre de 2012)

@@ -1,0 +1,3 @@
+ARTÍCULO 99.- Control de velocidad
+Para comprobar la velocidad que lleva un vehículo, las autoridades de tránsito podrán utilizar, indistintamente, todo equipo y/o dispositivo tecnológico disponible por la Dirección General de la Policía de Tránsito. El interesado tiene derecho a que, de inmediato, se le muestre el equipo y/o dispositivo con la medición de la velocidad y a impugnar esa medición por cualquier medio de prueba, salvo lo dispuesto para las infracciones generadas por el sistema inteligente de control de infracciones.
+En el caso del sistema de vigilancia automática, deben cumplirse los requisitos establecidos en el artículo 160 de esta ley.

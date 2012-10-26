@@ -1,0 +1,2 @@
+ARTÍCULO 132.- Abandono de vehículos en la vía pública
+Se prohíbe abandonar un vehículo automotor en la vía pública de forma definitiva. En caso de averías, los conductores deben adoptar las medidas del caso para que se retire el vehículo en el menor plazo posible, el cual no puede ser superior a las veinticuatro horas, siempre que quede fuera de la calzada y cumpla los requisitos establecidos en esta ley y su reglamento.

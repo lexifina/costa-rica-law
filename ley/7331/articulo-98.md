@@ -19,5 +19,5 @@ b) Los de modalidad taxi:
 8) Cumplir todo lo estipulado sobre esta actividad en el Reglamento de esta Ley.
 A los vehículos citados en los incisos a) y b) de este artículo, se les prohíbe aprovisionarse de combustible cuando transporten pasajeros.
 En caso de empleo indebido de la concesión o de infracciones reiteradas contra esta Ley y su Reglamento, el Consejo suspenderá o cancelará la concesión.
-(Así reformado por el inciso l) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 97 al 98).
+(La reformada practicada por el inciso l) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, fue derogada posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 97 al 98. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

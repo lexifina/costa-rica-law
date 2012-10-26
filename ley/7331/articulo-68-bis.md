@@ -1,3 +1,3 @@
 ARTÍCULO 68 bis.- En el caso de una persona con discapacidad, el procedimiento para obtener el certificado de idoneidad para conducir un vehículo, no podrá ser diferente del que utilice el resto de los conductores.
 (Así adicionado por el artículo 76 de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad No.7600 de 2 de mayo de 1996)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 67 bis al 68 bis).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 67 bis al 68 bis. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

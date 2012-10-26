@@ -1,3 +1,3 @@
 ARTÍCULO 70.- El examen práctico al que se refiere el inciso ch) del artículo 68 de esta Ley, debe realizarse en los vehículos que presenten las características propias del tipo de licencia a la que el conductor aspira, con la advertencia de que cuando se trate de vehículos articulados la realización de ese examen requerirá el manejo del vehículo completo (cabezal y remolque).
 (Así reformado por el artículo 1°, punto 13) de la ley N° 8779 del 17 de setiembre de 2009)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 69 al 70).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 69 al 70. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

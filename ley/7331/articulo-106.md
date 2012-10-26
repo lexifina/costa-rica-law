@@ -11,5 +11,5 @@ f) Los peatones no podrán transitar por las carreteras de acceso restringido ni
 g) Los peatones no podrán llevar, sin las debidas precauciones, elementos que puedan obstaculizar o afectar el tránsito.
 h) Los peatones no podrán colocarse delante ni detrás de un vehículo que tenga el motor encendido.
 i) Los peatones no podrán hacerse remolcar por vehículos en movimiento.
-(Así reformado por el inciso n) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 105 al 106).
+(La reformada practicada por el inciso n) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, fue derogada posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 105 al 106. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

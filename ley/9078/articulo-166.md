@@ -1,0 +1,5 @@
+ARTÍCULO 166.- Retiro de la licencia de conducir
+Al confeccionar una boleta de citación por infracción a lo establecido en esta ley y de comprobarse que la infracción cometida conlleva la acumulación del total de los puntos permitidos y la consecuente suspensión de licencia de conducir, el inspector de tránsito procederá a retirar, de inmediato, la licencia y deberá remitirla al Departamento de Licencias de la Dirección de Educación Vial, para su custodia.
+El retiro cautelar de la licencia surtirá los efectos de la notificación de la suspensión provisional de la licencia por medio de la boleta de citación hasta tanto la boleta de citación adquiera su firmeza o se revoque la decisión.
+El supuesto infractor podrá recurrir la boleta de citación, según lo establecido en el artículo 164 de esta ley. Si el recurso se declara con lugar, se ordenará la devolución de la licencia, siempre que no se encuentre vencida. En caso contrario, la infracción y la sanción conexa quedarán firmes.
+La Dirección General de Educación Vial queda facultada para que destruya las licencias que tenga bajo su custodia y se encuentren vencidas.

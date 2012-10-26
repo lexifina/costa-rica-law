@@ -7,4 +7,4 @@ d) En las intersecciones reguladas, simultáneamente, con semáforo y señal de 
 e) Los vehículos regulados por una señal de “ceda”, en relación con los regulados por una señal de “alto”.
 f) En las intersecciones con dos accesos controlados con una señal fija de “alto”, los vehículos que giren a la izquierda desde la vía principal, tienen prioridad sobre los vehículos, que se encuentren en los dos accesos secundarios. Los vehículos que continúen directo, por los accesos secundarios, tienen prioridad sobre los que giren a la izquierda, desde esos mismos accesos.
 g) La regulación del tránsito mediante inspector tiene prioridad sobre las señales de “alto” y aun sobre el semáforo en funcionamiento.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 90 al 91).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 90 al 91. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

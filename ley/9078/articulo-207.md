@@ -1,0 +1,2 @@
+ARTÍCULO 207.- Potestades de investigación
+Se autoriza a las autoridades de tránsito para que ingresen a los establecimientos públicos o privados de uso público e ingresar en calles privadas a petición de algún dueño o inquilino durante la investigación de infracciones y accidentes de tránsito. Esta potestad es excepcional y con el fin único de proteger a las personas y propiedades y se ejercerá guardando los límites generales de razonabilidad, proporcionalidad y normalidad.

@@ -3,4 +3,4 @@ En mediciones ulteriores y para los efectos de control policial y de la revisió
 (Así reformado el párrafo anterior por el artículo 1°, punto 4) de la ley N° 8779 del 17 de setiembre de 2009)
 Transitorio único.— Las disposiciones del artículo anterior deberán aplicarse en todos los trámites para el desalmacenaje de vehículos que no hayan sido nacionalizados
 (Así reformado por el artículo 1° de la Ley N ° 8430 del 30 de noviembre del 2004)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 36 al 37).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 36 al 37. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

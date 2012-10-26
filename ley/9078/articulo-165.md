@@ -1,0 +1,4 @@
+ARTÍCULO 165.- Firmeza de la boleta
+Si el infractor no impugna la boleta, la multa y las sanciones conexas que de ella dependan quedarán firmes y se procederá a su anotación definitiva en el asiento de la licencia de conducir; asimismo, se efectuará la cancelación de la acreditación según corresponda.
+De igual manera, se comunicará al ente recaudador del seguro obligatorio de vehículos autorizado por ley, el número de placa del vehículo, así como el monto de la multa, el número de boleta de citación y los artículos infringidos, sin perjuicio de las acciones cobratorias que pueda efectuar el Cosevi.
+Las multas impuestas se levantarán una vez que hayan sido canceladas, de conformidad con lo dispuesto en el artículo 192 de esta ley; en caso de haberse dispuesto una suspensión definitiva, esta se levantará una vez que venza el plazo por el cual fue establecida; para tales efectos, dicho plazo comienza a correr a partir de la fecha de la boleta de citación.
