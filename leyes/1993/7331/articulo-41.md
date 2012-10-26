@@ -1,3 +1,3 @@
 ARTÍCULO 41.- Los propietarios de los vehículos deberán mantener vigente el seguro obligatorio por medio del pago de la prima que fije el Instituto Nacional de Seguros (INS), según los términos del artículo 44 de esta Ley.
 (Así reformado por el artículo 1°, punto 6) de la ley N° 8779 del 17 de setiembre de 2009)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 40 al 41)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 40 al 41. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

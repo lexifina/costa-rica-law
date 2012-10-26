@@ -1,3 +1,3 @@
 ARTÍCULO 164.—Si alguno de los imputados está protegido por el fuero diplomático, el juzgador se abstendrá, antes de continuar con el procedimiento en su contra, y lo podrá continuar contra los restantes involucrados.
 (Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 163 al 164).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 163 al 164. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

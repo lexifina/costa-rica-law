@@ -7,4 +7,4 @@ En caso de que existan testigos, se consignarán todos los datos relativos a ell
 La boleta de citación deberá contener impresa la advertencia al infractor sobre las consecuencias legales que apareja la renuncia a la apelación de la boleta de citación, así como las consecuencias derivadas de la falta de pago de la multa, dentro del plazo establecido en el artículo 184 de esta Ley.
 (Así reformado el párrafo anterior por el artículo 1°, punto 21) de la ley N° 8779 del 17 de setiembre de 2009)
 (Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 148 al 149)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 148 al 149. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

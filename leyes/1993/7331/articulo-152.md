@@ -2,7 +2,7 @@ ARTÍCULO 152.- El supuesto infractor podrá recurrir ante la Unidad de Impugnac
 Para tal efecto, el oficial de tránsito deberá indicar, obligatoriamente, en la boleta al supuesto infractor, en qué lugar puede presentar su recurso.
 El supuesto infractor deberá indicar en su recurso, los motivos de este, así como la prueba de descargo que estime oportuna.
 Cuando se trate de personas menores de edad, la impugnación puede ser presentada por él mismo, por sus padres o representantes legales.
-(Así reformado por el inciso t) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 151 al 152).
+(La reformada practicada por el inciso t) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, fue derogada posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 151 al 152. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
 (Nota de Sinalevi: De acuerdo con el transitorio II de la ley N° 8696 del 17 de diciembre de 2008, “…Durante el plazo de nueve (9) meses, la competencia para el conocimiento, el trámite y la resolución de las impugnaciones de las infracciones de multa fija, permanecerá en la Unidad de Control de la Dirección General de la Policía de Tránsito. Vencido el plazo, entrará en funcionamiento la Unidad de Impugnación de Boletas de Citación del Consejo de Seguridad Vial.”)
 (No obstante lo anterior, y de conformidad con lo establecido en la ley No.8779 de 17 de setiembre de 2009, estas disposiciones comenzarán a regir a partir del 1 de marzo de 2010)

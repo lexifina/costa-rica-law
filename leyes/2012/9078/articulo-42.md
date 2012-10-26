@@ -1,0 +1,3 @@
+ARTÍCULO 42.- Requisitos documentales de circulación para vehículos de transporte público
+Además de lo establecido en el artículo 4 de esta ley, todas las unidades autorizadas para la prestación de cualquier servicio de transporte público deben portar la documentación correspondiente original y vigente que acredite la autorización para la prestación del servicio. En el caso de las unidades de ruta regular, la tarjeta de capacidad fungirá como dicha autorización. Esta documentación podrá ser requerida en cualquier momento por las autoridades de tránsito.
+Asimismo, los vehículos de transporte público deberán contar con una póliza voluntaria de responsabilidad civil que ampare daños a la propiedad de terceros y lesión y muerte de personas.

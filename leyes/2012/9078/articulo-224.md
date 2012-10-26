@@ -1,0 +1,2 @@
+ARTÍCULO 224.- Potestad de acceso a información
+Los responsables del Sistema de Estadísticas en Accidentes de Tránsito y de Investigación en Materia de Seguridad Vial tendrán libre acceso a las estadísticas que se lleven sobre los factores asociados a accidentes de tránsito, en instancias tales como aseguradoras autorizadas por la Sugese, la CCSS, el Sistema de Emergencias 9-1-1, la Cruz Roja Costarricense y el Poder Judicial, los CIVE, así como otras instituciones que por su naturaleza o competencia manejen información referente a la seguridad vial.

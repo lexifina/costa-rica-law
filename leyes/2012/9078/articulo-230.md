@@ -1,0 +1,4 @@
+ARTÍCULO 230.- Estaciones de pesaje
+Con el fin de ejercer el control, la vigilancia y la regulación sobre los pesos, cargas y dimensiones de los vehículos automotores que circulan por las vías públicas terrestres, así como de las materias y mercancías que estos transportan, el MOPT establecerá puntos de control para verificar los pesos y las dimensiones autorizados y demás aspectos asociados a las cargas, según se definirá reglamentariamente. Realizada la verificación, las autoridades deberán emitir el respectivo comprobante de pesaje, el cual deberá ser portado durante el trayecto de tránsito de la carga.
+Los puntos de control podrán estar ubicados en estaciones fijas o en diferentes puntos de la red nacional vial mediante estaciones móviles.
+Para el funcionamiento de dichas estaciones se contará con el apoyo de la Policía de Tránsito y en ellos se efectuará también la verificación de los otros requisitos para la circulación definidos en esta ley.

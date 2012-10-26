@@ -6,4 +6,4 @@ ch) Para ingresar al carril central de giro a la izquierda, desde una vía later
 Preferiblemente, se debe ingresar al carril derecho por ser el de tránsito de menor velocidad.
 d) Un vehículo detenido en este carril no debe obstaculizar el paso de los que circulen por los carriles adyacentes.
 e) El carril central de giro a la izquierda, está marcado con líneas externas continuas y líneas internas discontinuas, ambas de color amarillo . Esta demarcación no permite los giros en “U”.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 92 al 93)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 92 al 93. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

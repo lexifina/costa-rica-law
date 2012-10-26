@@ -6,4 +6,4 @@ Las autoridades judiciales podrán solicitar la cooperación de las autoridades 
 (Así reformado este inciso por el artículo 177 del Código Notarial No.7764 de 17 de abril de 1998)
 ch) El embargo practicado. La anotación de embargo practicado caduca, de pleno derecho, a los cuatro años y el registrador hará caso omiso de ella, al inscribir nuevos títulos o al certificar el asiento respectivo.
 d) El gravamen legal decretado con motivo de un accidente de tránsito o de delitos cometidos mediante vehículo.
-(Así reformado el inciso anterior por el artículo 1° inciso e) de la ley N° 8696 de 17 de diciembre de 2008).
+(La reformada practicada por el inciso e) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, fue derogada posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

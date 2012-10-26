@@ -1,4 +1,4 @@
 ARTÍCULO 197.- Los inspectores de tránsito gozarán de los mismos derechos y facultades que ostentan los miembros de la Fuerza Pública en la actualidad o que ostenten en el futuro, para un mejor logro en el cumplimiento de las responsabilidades establecidas en esta Ley y en su Reglamento.
 En lo que respecta al transporte de madera en trozas o productos forestales, los inspectores de tránsito deben velar porque se cumpla lo estipulado en la Ley Forestal No. 4465 del 25 de noviembre de 1969 y sus reformas.
 (Nota de Sinalevi: la Ley Forestal vigente es la No.7575 de 13 de febrero de 1996)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 196 al 197).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 196 al 197. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

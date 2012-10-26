@@ -1,0 +1,2 @@
+ARTÍCULO 210.- Potestad de retirar documentos alterados
+Las autoridades de tránsito pueden retirar las licencias o los permisos de conducir y circulación, que presenten alteración o que por uso indebido no cumplan las características de diseño y confección originales, así como en los demás casos en que se tenga sospecha fundada de su legitimidad; remitirán el correspondiente informe al Ministerio Público.

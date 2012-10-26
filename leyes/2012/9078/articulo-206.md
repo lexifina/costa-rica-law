@@ -1,0 +1,2 @@
+ARTÍCULO 206.- Poder de policía
+Los inspectores de tránsito gozarán de los derechos y las facultades de las fuerzas de policía según lo estipulado en la Ley N.º 7410, Ley General de Policía, de 26 de mayo de 1994 y sus reformas; velarán además por el cumplimiento de lo estipulado en la Ley N.º 7575, Ley Forestal, de 13 de febrero de 1996, y sus reformas, en lo que respecta al transporte de madera en trozas o productos forestales.

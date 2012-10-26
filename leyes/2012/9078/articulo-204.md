@@ -1,0 +1,5 @@
+ARTÍCULO 204.- Levantamiento de gravamen
+Se levantará el gravamen sobre el vehículo y se cancelará la garantía que se haya rendido cuando conste en el proceso que las indemnizaciones civiles han sido pagadas o renunciadas en forma legal, o sustituida la garantía a satisfacción del tribunal que conoce la causa.
+El tribunal que conozca la causa ordenará levantar, a solicitud de la parte interesada, el gravamen y cancelar las garantías que se hubieran dado, si pasado un año contado a partir de la firmeza de la sentencia, el tribunal que conozca la ejecución de sentencia no le hubiera comunicado la solicitud para que ponga el gravamen a su orden.
+Ni el gravamen ni las garantías se cancelarán si la multa no ha sido pagada, excepto que haya transcurrido el plazo de prescripción de la multa.
+Recibida la solicitud expresada en el párrafo segundo de este artículo, la autoridad dejará, a la orden del tribunal respectivo, los gravámenes y otras garantías que se hayan rendido, que comunicará al Registro Nacional.

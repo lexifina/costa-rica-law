@@ -1,0 +1,2 @@
+ARTÍCULO 231.- Protección del derecho de vía
+El MOPT y las municipalidades estarán obligados a proteger el derecho de vía de las rutas, de acuerdo con sus respectivas competencias, removiendo cualesquiera obstáculos, construcciones, rótulos, vallas publicitarias, señales o anuncios instalados ilegalmente y procurará que en las vías terrestres del país no existan barreras arquitectónicas que impidan el libre tránsito de las personas de la tercera edad o de aquellas con limitaciones funcionales.

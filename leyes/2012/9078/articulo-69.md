@@ -1,0 +1,2 @@
+ARTÍCULO 69.- Libertad de elección
+Para el suministro de las prestaciones sanitarias que deban otorgarse al amparo del presente seguro, se garantiza la libertad de elección de la víctima y los asegurados para seleccionar los servicios médicos, ya sea de la red de proveedores de servicios auxiliares contratada por la entidad aseguradora y debidamente registrada ante la Superintendencia General de Seguros, o por los que contrate en su condición de lesionada en el ejercicio de esta libertad de elección.

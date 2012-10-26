@@ -3,4 +3,4 @@ ARTÍCULO 205.-Independientemente de lo indicado en el artículo 198 de esta Ley
 Con este fin, la dirección del centro educativo correspondiente presentará ternas, ante la Dirección General de Tránsito. Los elegidos deben portar, en el ejercicio de sus funciones, la respectiva identificación.
 Quienes así sean investidos, están autorizados únicamente para hacer partes o boletas de citación, para efectos del inciso a) del artículo 131 de esta Ley. En tales casos, se permite el parte impersonal.
 (Así reformado el párrafo anterior por el artículo 1°, punto 31) de la ley N° 8779 del 17 de setiembre de 2009)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 204 al 205).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 204 al 205. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

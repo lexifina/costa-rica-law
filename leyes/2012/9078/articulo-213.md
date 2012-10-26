@@ -1,0 +1,5 @@
+ARTÍCULO 213.- Inspectores institucionales de tránsito
+La Dirección General de la Policía de Tránsito, a solicitud de instituciones públicas y privadas, podrán investir inspectores de tránsito para velar por el cumplimiento de las señales de tránsito, particularmente, las zonas de paso o de seguridad, circundantes a la respectiva institución.
+Estos deben portar, en el ejercicio de sus funciones, la respectiva identificación que para tal efecto determinará la Dirección General de la Policía de Tránsito.
+Quienes así sean investidos están autorizados únicamente para hacer partes o boletas de citación, para efectos del inciso d) del artículo 144, el inciso s) del artículo 145 y los incisos b) y c) del artículo 146 de esta ley.
+En el caso de las universidades públicas podrán contar con un cuerpo especial de inspectores de tránsito que tendrá las atribuciones y competencias que esta ley otorga para ejercer el control y la vigilancia vehicular dentro de sus instalaciones. Fuera de las instalaciones, estas competencias se establecerán mediante convenio de cada universidad pública con la División General de la Policía de Tránsito.

@@ -1,0 +1,3 @@
+ARTÍCULO 159.- Firma de la boleta y notificación automática
+La firma del presunto infractor será prueba de la notificación. Si aquel no puede o se niega a firmar la boleta, el inspector dejará constancia de dicha situación en esta y la constancia del inspector de esta situación se tendrá como declaración jurada del acto.
+Con la confección de la boleta de citación, el inspector deberá advertir al infractor sobre las consecuencias legales que apareja la renuncia a la apelación de la boleta de citación, así como las consecuencias derivadas de la falta de pago de la multa, dentro del plazo establecido en el artículo 192 de esta ley.

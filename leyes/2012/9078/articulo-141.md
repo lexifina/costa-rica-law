@@ -1,0 +1,3 @@
+ARTÍCULO 141.- Medida alternativa a la suspensión de licencia declarada en vía administrativa
+El conductor no reincidente, cuya licencia hubiese perdido vigencia como consecuencia de la acumulación total de los puntos permitidos, podrá obtenerla antes del vencimiento del plazo de la suspensión, previo cumplimiento de horas en la prestación de trabajo comunitario.
+El Poder Ejecutivo establecerá reglamentariamente las instituciones u organizaciones que podrán acreditar las horas laboradas, la cantidad de horas requeridas según la conducta y los mecanismos para regular el cumplimiento y demás condiciones asociadas a la aplicación de la medida.

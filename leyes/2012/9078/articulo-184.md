@@ -1,0 +1,2 @@
+ARTÍCULO 184.- Ausencia de prueba
+Si el imputado no comparece dentro del plazo señalado, si rechaza los cargos, pero no ofrece prueba de descargo, o si los acepta, o si habiendo declarado y ofrecido medio para atender notificaciones no se presenta a la audiencia de recepción de prueba, o no presenta la prueba ofrecida sin una causa justa, el juzgado resolverá con los elementos de juicio que consten en el expediente, sin perjuicio de su facultad de ordenar la recepción de la prueba que considere necesaria para mejor resolver.

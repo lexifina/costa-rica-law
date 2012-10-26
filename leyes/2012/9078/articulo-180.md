@@ -1,0 +1,2 @@
+ARTÍCULO 180.- Peritaje médico en caso de lesiones
+En caso de que alguna persona haya sufrido lesiones como consecuencia del accidente, esta deberá someterse a un examen que practicará el Departamento de Medicina Legal del Organismo de Investigación Judicial, el cual determinará la magnitud de la lesión. Si la persona se rehúsa a que se le practique dicho peritaje o manifiesta su desinterés en el trámite del proceso por lesiones, el juzgado prescindirá de esa prueba y continuará únicamente el proceso por los daños del accidente de tránsito.

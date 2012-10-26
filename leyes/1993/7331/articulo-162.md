@@ -2,4 +2,4 @@ ARTÍCULO 162.—En el plazo de diez días hábiles, contado a partir del recibo
 Si, por cualquier razón, alguno de los imputados no ha sido citado por medio de la boleta o el parte respectivo, el juzgado lo hará por medio de una cédula de citación, la cual deberá ser entregada personalmente o en su casa de habitación. Esta cédula de citación irá acompañada de una copia de la información levantada y surtirá los efectos previstos en el artículo 174 de esta Ley, en caso de que el imputado no comparezca.
 (Así reformado el párrafo anterior por el artículo 1°, punto 24) de la ley N° 8779 del 17 de setiembre de 2009)
 (Así reformado mediante el artículo único de la Ley No. 8431 del 10 de diciembre del 2004.)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 161 al 162).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 161 al 162. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

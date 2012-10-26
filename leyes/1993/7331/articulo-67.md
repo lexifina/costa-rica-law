@@ -1,3 +1,3 @@
 ARTÍCULO 67.- Al usar el permiso para practicar, el aprendiz debe estar acompañado por un instructor que posea una licencia de conductor del mismo tipo o superior a la que aspira. En el caso de las escuelas de manejo, los instructores deberán cumplir lo establecido en la Ley de regulación de las escuelas de manejo.
 (Así reformado por el artículo 28 de la ley de Regulación de las Escuelas de Manejo, N° 8709 del 3 de febrero de 2009)
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 66 al 67)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 66 al 67. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

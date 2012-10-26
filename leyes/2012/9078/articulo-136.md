@@ -1,0 +1,6 @@
+ARTÍCULO 136.- Acumulación de puntos por categoría de conductas
+Los puntos se acumularán de forma automática en el expediente del conductor en los siguientes casos:
+a) Acumulará doce puntos el conductor condenado en sentencia firme por la comisión de los delitos tipificados en los artículos 117, 128, 254 bis(*) del Código Penal, Ley N.º 4573, de 4 mayo de 1970, y sus reformas. En el caso de condena por lesiones leves, de conformidad con lo dispuesto por el artículo 125 del mismo Código, no se acumularán puntos, sin perjuicio de lo que disponga el juez penal en cuanto a la inhabilitación del conductor. La autoridad judicial correspondiente comunicará al órgano competente la firmeza de la sentencia para efectos de control, la cual se consignará en el expediente del conductor de forma automática y deberá dejarse constancia del total acumulado.
+(*) (Nota de Sinalevi: De acuerdo con la reforma efectuada por la Ley sobre delitos informáticos y conexos, N° 9048 del 10 de julio de 2012, la cual corrió la numeración de los artículos del Código Penal, el numeral 254 bis, que castiga la conducción temeraria, corresponde ahora el 261 bis)
+b) Acumulará seis puntos el conductor que haya cometido alguna de las infracciones categoría A de esta ley.
+c) Acumulará cuatro puntos el conductor que haya cometido alguna de las infracciones categoría B de esta ley.

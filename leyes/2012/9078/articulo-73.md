@@ -1,0 +1,2 @@
+ARTÍCULO 73.- Incapacidad temporal
+En el caso de incapacidad temporal, el accidentado tendrá derecho a un monto que complemente el que reconoce la CCSS y el patrono para el cual labora. En ninguna circunstancia, el subsidio que perciba el lesionado será superior al ciento por ciento (100%) del ingreso debidamente comprobado, según se señala en el artículo 74 de esta ley, ni inferior al salario mínimo que esté vigente en la fecha del percance, y que sea proporcional a la jornada de trabajo desempeñada en la actividad a la que se dedica el perjudicado.

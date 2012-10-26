@@ -1,0 +1,2 @@
+ARTÍCULO 60.- Seguro obligatorio para vehículos de matrícula extranjera
+Los propietarios de los vehículos de matrícula extranjera o sus conductores deben suscribir y mantener vigente, mientras el automotor permanezca en el país, el seguro obligatorio en los términos que fija esta ley. Las autoridades de aduana extenderán el permiso para que el vehículo circule en el país, solo si se demuestra que se ha suscrito el seguro obligatorio con la vigencia definida en el reglamento de esta ley.

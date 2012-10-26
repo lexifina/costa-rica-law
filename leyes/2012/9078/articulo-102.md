@@ -1,0 +1,2 @@
+ARTÍCULO 102.- Reducción de velocidad, cambio de carril e indicación previa de maniobra
+Todo conductor que reduzca la velocidad, que intente detenerse, cambiar de carril, de dirección o que estando estacionado pretenda reingresar a la vía, debe cerciorarse, antes de iniciar la maniobra, de que puede ejecutarla con seguridad. Además, está obligado a dar aviso por medio de las señales luminosas correspondientes. Esta señal no otorga derecho a realizar la maniobra, si con ello pone en peligro a los demás usuarios de la vía.

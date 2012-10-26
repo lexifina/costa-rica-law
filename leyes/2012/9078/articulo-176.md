@@ -1,0 +1,2 @@
+ARTÍCULO 176.- Imputados personas menores de edad
+Si alguno de los imputados es menor de dieciocho años, el juzgado remitirá el testimonio de piezas al juzgado penal juvenil, antes de que transcurran seis meses de la fecha consignada en la boleta y continuará con el procedimiento respecto de quienes sean penalmente imputables. Lo anterior, sin perjuicio de la responsabilidad civil objetiva directa del propietario del vehículo o los vehículos involucrados, de conformidad con el artículo 198 de esta ley.

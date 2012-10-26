@@ -1,0 +1,2 @@
+ARTÍCULO 64.- Cobertura del seguro obligatorio del vehículo automotor
+El seguro obligatorio de los vehículos automotores cubre la lesión y la muerte de las personas víctimas de un accidente de tránsito, exista o no responsabilidad subjetiva del conductor. Asimismo, la lesión o muerte ocurrida en un accidente producido con responsabilidad civil, derivados de la posesión, el uso o el mantenimiento del vehículo. En este último caso, esta responsabilidad debe ser fijada mediante los procedimientos establecidos y ante los tribunales competentes.

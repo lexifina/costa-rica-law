@@ -5,7 +5,7 @@ Tipo A-2: Autoriza para conducir motocicletas, bicimotos, triciclos y cuadracicl
 Tipo A-3: Autoriza para conducir motocicletas, triciclos y cuadraciclos de 126 a 500 cc. No se requieren condiciones adicionales.
 Tipo A-4: Autoriza para conducir motocicletas, triciclos y cuadraciclos de más de 501 cc. No se requieren condiciones adicionales.
 Para otorgar las licencias de los tipos A-1, A-2 y A- 3, a personas menores de edad, debe contarse con la autorización escrita de alguno de los padres o de su representante legal; además, deberán suscribir una póliza de seguro, que incluya las siguientes coberturas: por lesiones o muerte, un mínimo de cuarenta (¢40.000.000,00) millones de colones por persona; por accidente, un mínimo de cien (¢100.000.000,00) millones de colones y, por daños a terceros, un mínimo de veinte (¢20.000.000,00) millones de colones por accidente.
-(Así reformado por el inciso i) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008)
+(La reformada practicada por el inciso i) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, fue derogada posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
 Licencias de conducir de clase B:
 Tipo B-1: Autoriza para conducir solo vehículos livianos de un cuarto a una y media tonelada. No requiere condiciones adicionales.
 Tipo B-2: Autoriza para conducir vehículos de todo peso hasta de cinco (5) toneladas.
@@ -13,7 +13,7 @@ Tipo B-3: Autoriza para conducir vehículos de todo peso, incluso los mayores de
 Tipo B-4: Autoriza para conducir vehículos de todo peso, incluso los articulados.
 En los casos relativos a las licencias de conducir de clase B-2, B-3 y B-4, en el Reglamento se establecerán los requisitos de idoneidad, en resguardo de la libertad de trabajo y los principios de racionabilidad.
 Además de los otros requisitos establecidos en esta Ley para obtener las licencias tipo B-2, B-3 y B-4, se requiere para la obtención de las licencias tipo B-2, haber estado acreditado por un (1) año para conducir la licencia B-1; para la licencia tipo B-3, se requiere haber sido titular por dos (2) años de la licencia B-2 y para la licencia B-4, se requiere haber estado acreditado para utilizar la licencia tipo B-3 por (3) tres años, y ser mayor de veinticinco años (25) de edad para el caso de la licencia B-4.
-(Así reformado por el inciso i) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
+(La reformada practicada por el inciso i) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008, fue derogada posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
 LICENCIA DE CONDUCIR CLASE C:
 TIPO C-1: Autoriza para conducir solo los vehículos modalidad taxi:
 Requisitos del conductor: Estar capacitado para el manejo de vehículos de servicio público, de acuerdo con el reglamento de la presente ley; aportar el bono de garantía para el servicio válido por el período vigente de la licencia, por la suma que se fije en el reglamento de la presente ley y haber obtenido el certificado del curso básico de Educación Vial para el transporte público, que incluirá, entre otros temas, las normas de urbanidad y relaciones humanas. Si la persona solicitante de una licencia de tipo C-1 ya posee la licencia tipo B-1, será innecesario que realice nuevamente el examen práctico.
@@ -33,4 +33,4 @@ TIPO E-1: Autoriza para conducir los vehículos comprendidos dentro de las clase
 Requisitos del conductor: tener un año de experiencia, como mínimo, en el manejo de los vehículos que autorizan conducir las licencias tipos A-4 y B-4. Haber obtenido el certificado del Curso Básico de Educación Vial para equipo especial.
 TIPO E-2: Faculta para manejar tractores de llanta, de oruga y toda clase de vehículos de dos, tres, cuatro o más ejes, así como la maquinaria que se autoriza mediante la licencia tipo D-3.
 Requisitos del conductor: haber obtenido el certificado del Curso Básico de Educación Vial para conducir tractores de llanta y de oruga, así como el de equipo especial y tener un año de experiencia en el manejo de los vehículos que autorizan a conducir las licencias tipos A-4 y B-4.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 68 al 69).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 68 al 69. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

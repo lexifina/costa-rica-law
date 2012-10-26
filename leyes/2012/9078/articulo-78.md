@@ -1,0 +1,2 @@
+ARTÍCULO 78.- Legislación supletoria
+En materia de seguro obligatorio no contemplada en esta ley, en su reglamento ejecutivo y en los reglamentos técnicos emitidos, se procederá a aplicar de forma supletoria las normas contenidas en la Ley N.° 2, Código de Trabajo, de 27 de agosto de 1943, y sus reformas; la Ley N.° 8653, Ley Reguladora del Mercado de Seguros, de 22 de julio de 2008, y sus reformas, y la Ley N.° 8956, Ley Reguladora del Contrato de Seguros, de 17 de junio de 2011.

@@ -1,2 +1,2 @@
 ARTÍCULO 124.- Se prohíbe emplear un vehículo para otros fines que no sean los manifestados en su certificado de propiedad o en una forma que contraríe, totalmente, su naturaleza. Además, se prohíbe poner a circular vehículos en vías no autorizadas por la Dirección General de Ingeniería de Tránsito.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 123 al 124).
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 123 al 124. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)

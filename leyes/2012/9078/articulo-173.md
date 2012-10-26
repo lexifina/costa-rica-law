@@ -1,0 +1,3 @@
+ARTÍCULO 173.- Comparecencia del imputado
+En el plazo de diez días hábiles, contado a partir del recibo de la boleta de citación, el imputado deberá comparecer ante el juzgado competente para manifestar si acepta o no los cargos, o si se abstiene de declarar.
+Si, por cualquier razón, alguno de los imputados no ha sido citado y notificado por medio de la boleta respectiva, el juzgado lo hará por medio de una cédula de citación, la cual deberá ser entregada personalmente o en su casa de habitación. Esta cédula de citación irá acompañada de una copia de la información levantada y surtirá los efectos previstos en el artículo 184 de esta ley, en caso de que el imputado no comparezca.

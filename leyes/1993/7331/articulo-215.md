@@ -1,2 +1,2 @@
 ARTÍCULO 215.- El INA será el encargado de impartirles los cursos para la obtención de la licencia a los choferes de vehículos de carga, el equipo especial y el equipo de servicio público de transporte; para desarrollar dicha tarea, podrán realizar convenios con otros centros de enseñanza o universitarios estatales.
-(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008).
+(Así adicionado por el inciso q) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008. Dicho artículo 2° fue derogado posteriormente por el artículo 251 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 de 4 de octubre de 2012)
