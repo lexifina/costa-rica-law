@@ -1,0 +1,1 @@
+Artículo 7º—La nueva asignación de tareas entre los Viceministerios no supondrá incremento en el gasto público ni estructura organizativa nueva, pues se equipará con una redistribución de funciones con los recursos materiales y humanos existentes.
