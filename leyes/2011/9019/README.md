@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2012
 
-Ley N° 9019 del 2011-12-02. SINALEVI, ficha 71669: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=71669&param2=90243&param3=1>.
+Ley N° 9019 del 2011-12-02. SINALEVI, ficha 71669: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=71669&param2=90208&param3=1>.
 
 Publicada en La Gaceta N° 244 del 2011-12-20.
 
@@ -33,3 +33,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 23 de 45 | 2012-09-17 | Decreto Ejecutivo 37296 (2012-09-10) | 2012-09-10 |
 | 24 de 45 | 2012-10-17 | Decreto Ejecutivo 37311 (2012-09-19) | 2012-09-19 |
 | 25 de 45 | 2012-10-26 | Decreto Ejecutivo 37356 (2012-10-01) | 2012-10-01 |
+| 26 de 45 | 2012-10-26 | Decreto Ejecutivo 37363 (2012-10-08) | 2012-10-08 |
