@@ -1,0 +1,1 @@
+Artículo 2º—De la Observancia: Estas normas son de acatamiento obligatorio por parte de todos los funcionarios del MIVAH. Para su consulta será divulgado a través del sitio Web de la Intranet del Ministerio.

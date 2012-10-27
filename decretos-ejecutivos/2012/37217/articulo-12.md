@@ -1,0 +1,1 @@
+Artículo 12º— Toda unidad ininterrumpida de energía eléctrica (UPS) debe conectarse a un tomacorriente que satisfaga lo indicado en el artículo anterior, preferiblemente que cuente con suministro de energía alterna por medio de planta eléctrica.

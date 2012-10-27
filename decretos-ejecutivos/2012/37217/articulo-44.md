@@ -1,0 +1,2 @@
+Artículo 44º— El usuario no debe utilizar el servicio de correo electrónico institucional o la cuenta asignada para facilitar copias de música, juegos, programas y similares contrarios a la observancia del Decreto 30.151-J, publicado en La Gaceta N° 37, del 21 de febrero de 2002;
+El usuario es responsable de respetar la Ley de Derechos de Autor y Derechos Conexos, no abusando del servicio de correo electrónico para distribuir en forma ilegal software licenciado o reproducir información sin conocimiento del autor.

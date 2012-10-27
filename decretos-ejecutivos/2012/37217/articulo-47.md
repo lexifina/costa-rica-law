@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Administración de la Información Institucional
+Artículo 47º— El funcionario público encargado -en virtud de su competencia- deberá velar porque en toda información o software generados mediante la utilización de los recursos institucionales, por parte de personas físicas o jurídicas contratadas por el MIVAH, se estipule que el MIVAH posee el derecho patrimonial, preservando el autor el derecho moral. La Proveeduría Institucional velará porque este aspecto sea notificado a los contratados de previo a la firma del contrato y será considerado en los términos de referencia correspondientes.

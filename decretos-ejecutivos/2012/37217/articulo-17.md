@@ -1,0 +1,1 @@
+Artículo 17º—El DTIC podrá, mediante la implementación de políticas de respaldo institucionales, implementar el esquema de respaldo de la información institucional ubicada en las computadoras de los usuarios de acuerdo a los recursos de almacenamiento existentes.

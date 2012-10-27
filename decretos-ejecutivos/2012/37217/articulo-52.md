@@ -1,0 +1,1 @@
+Artículo 52º— Toda Jefatura o Dirección, deberá velar por el uso adecuado y el cuidado de los recursos tecnológicos asignados a su dependencia e implementar controles apropiados para cada uno de ellos.

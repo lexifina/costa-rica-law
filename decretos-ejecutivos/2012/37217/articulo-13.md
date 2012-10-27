@@ -1,0 +1,1 @@
+Artículo 13º—Todas las computadoras y teléfonos IP de la Institución deben contar con un sistema de protección contra fallos de la energía eléctrica mediante una UPS, para proteger el equipo, siendo responsabilidad del usuario velar por el buen funcionamiento de los componentes que estén conectados a la UPS.

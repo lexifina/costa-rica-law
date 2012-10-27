@@ -1,0 +1,1 @@
+Artículo 34º— El DTIC pondrá en funcionamiento herramientas de control que posibiliten detectar, analizar y bloquear accesos no permitidos (aquellos que no guarden relación con aspectos de trabajo), que puedan comprometer o poner en riesgo la seguridad de los recursos informáticos y que atenten contra su desempeño.

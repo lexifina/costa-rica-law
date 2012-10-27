@@ -1,0 +1,1 @@
+Artículo 32º— El DTIC no ejercerá ningún control sobre el contenido de la información que viaje sobre la red de comunicaciones, salvo aquellos controles requeridos para salvaguardar la seguridad informática institucional.

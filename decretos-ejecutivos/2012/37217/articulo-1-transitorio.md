@@ -1,0 +1,1 @@
+Transitorio único: El DTIC contará con noventa días a partir de la publicación de este Reglamento para coordinar las acciones necesarias con otras dependencias del MIVAH para una adecuada implementación de esta norma; así como para proceder con la inducción a los usuarios para su correcta aplicación.

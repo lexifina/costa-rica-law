@@ -1,0 +1,1 @@
+Artículo 30º— El uso de Internet está permitido solo para efectos institucionales y sólo para consulta especifica; por lo cual, se prohíbe a los usuarios mantener el navegador con sitios web de Internet activos si no se están utilizando, quedando prohibido su uso para asuntos personales.

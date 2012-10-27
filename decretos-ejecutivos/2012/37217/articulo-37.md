@@ -1,0 +1,8 @@
+Artículo 37º— Acceso a Redes Inalámbricas: Las siguientes son las medidas para el acceso a las redes inalámbricas del MIVAH.
+a) Las redes inalámbricas del MIVAH son un servicio que el DTIC pone a disposición de los usuarios autorizados, por lo que únicamente pueden ser usadas de acuerdo con lo que establece el Marco de Seguridad de las TIC del MIVAH.
+b) El DTIC, deberá definir los puntos estratégicos dentro de las instalaciones del MIVAH donde se podrán ubicar dispositivos de acceso inalámbrico, previa coordinación con las demás unidades administrativas competentes; para lo cual el DTIC, deberá considerar la seguridad física en la ubicación de los puntos de acceso inalámbrico y otros componentes de las redes inalámbricas.
+c) La gestión técnica de los dispositivos de conexión inalámbrica podrá ser ejecutada sólo por el DTIC.
+d) Los dispositivos de comunicaciones para la red inalámbrica, podrán ser movilizados o manipulados únicamente por funcionarios del DTIC o personal técnico autorizado por éste.
+e) La Administración, puede solicitarle al DTIC la instalación de un dispositivo de acceso inalámbrico. El DTIC, deberá analizar la solicitud, los aspectos técnicos-operativos del equipo y las posibilidades presupuestarias necesarias para la implementación, en coordinación con el Jefe de Programa de la unidad solicitante.
+f) El DTIC, deberá implementar las medidas de seguridad que garanticen que las redes inalámbricas disponibles sean accedidas sólo por usuarios autorizados por el DTIC.
+g) Los usuarios que hagan uso de las redes inalámbricas, sean funcionarios, personal bajo la modalidad de contrato u otros autorizados, deberán acatar las disposiciones que el DTIC determine para el uso de este tipo de comunicación.

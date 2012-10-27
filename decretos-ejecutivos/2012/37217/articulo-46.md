@@ -1,0 +1,1 @@
+Artículo 46º— El DTIC podrá establecer otros lineamientos y recomendaciones de uso del correo electrónico, según los avances tecnológicos, las necesidades o capacidades institucionales, los cuales deberán ser notificados oportunamente a los usuarios.

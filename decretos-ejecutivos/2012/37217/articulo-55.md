@@ -1,0 +1,1 @@
+Artículo 55º— Las faltas cometidas al tenor de lo dispuesto en el presente reglamento, serán sancionadas de conformidad con las disposiciones establecidas en el Código de Trabajo y el Reglamento Autónomo de Servicios de la Institución, así como las demás disposiciones vigentes y aplicables, sin perjuicio de las responsabilidades civiles y penales que deba asumir el infractor.

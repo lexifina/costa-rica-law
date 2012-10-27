@@ -1,0 +1,1 @@
+Artículo 45º— En caso en que la demanda de servicios de TIC exceda la capacidad instalada en el MIVAH, o en caso de contingencias que puedan afectar la continuidad de los servicios de TIC el DTIC podrá recomendar el establecimiento de prioridades.

@@ -1,0 +1,1 @@
+Artículo 26º—El usuario podrá almacenar en los servidores de red únicamente información institucional, sea a través de las aplicaciones institucionales o los recursos compartidos debidamente definidos por el DTIC.

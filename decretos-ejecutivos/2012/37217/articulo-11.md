@@ -1,0 +1,1 @@
+Artículo 11º—Todos los tomacorrientes al que se conecte equipo de cómputo, deben estar debidamente identificados, aterrizados y polarizados. En caso que el usuario detecte alguna anomalía en este sentido, debe recurrir el servicio ante el Departamento de Servicios Generales para que realice la gestión pertinente.
