@@ -14,3 +14,4 @@ Aprueba adopción íntegra de Evaluación de Impacto Ambiental del Plan Regulado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-01 | la propia norma |
+| 2 | 2012-10-29 | Acuerdo municipal 0 (2012-10-29) |
