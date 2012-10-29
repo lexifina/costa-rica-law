@@ -1,0 +1,1 @@
+Artículo 5º—También se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás documentos propiedad de la Municipalidad, que han sido adquiridos o creados por las diferentes Unidades Administrativas para su uso.

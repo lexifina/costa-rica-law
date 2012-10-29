@@ -1,0 +1,1 @@
+Artículo 31.—La Unidad de Proveeduría en coordinación con la Unidad de Contabilidad y Auditoría, anualmente, entre los meses de octubre y diciembre, efectuará un inventario físico para verificar que los bienes asignados a cada Unidad sean realmente los existentes y se encuentren en perfecto funcionamiento.

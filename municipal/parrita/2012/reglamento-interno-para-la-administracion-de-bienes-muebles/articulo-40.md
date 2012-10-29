@@ -1,0 +1,1 @@
+Artículo 40.—Queda prohibido a los funcionarios tomar bienes para ser movilizados sin permiso del empleado a quien están asignados o sin la autorización del jefe o Gestor a cargo del mismo y sin haber confeccionado antes el formulario de “Movimiento de Activos”.

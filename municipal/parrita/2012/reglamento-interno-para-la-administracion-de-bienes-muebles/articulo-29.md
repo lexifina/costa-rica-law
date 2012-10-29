@@ -1,0 +1,1 @@
+Artículo 29.—Es responsabilidad de cada Funcionario firmar el correspondiente formulario al recibir un activo, previa verificación de que los bienes anotados están en las condiciones que se indica y que todas las casillas contengan la información correcta. Si este no firmare este documento se le podría denegar la entrega del activo.

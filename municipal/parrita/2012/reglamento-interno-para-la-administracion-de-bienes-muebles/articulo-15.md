@@ -1,0 +1,1 @@
+Artículo 15.—Los funcionarios reportarán de cualquier daño o imprudencias que otros compañeros causaren en perjuicio de la Municipalidad. Si descubrieren un robo realizado por cualquier persona, deberán denunciarlo inmediatamente.

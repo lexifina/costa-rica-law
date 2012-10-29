@@ -1,0 +1,1 @@
+Artículo 43.—Cuando los bienes deban salir temporalmente de las instalaciones de la Municipalidad para ser objeto de reparación, la Unidad de Proveeduría coordinará la respectiva salida, para lo cual deberá llenar el formulario “Movimiento de Activo”.

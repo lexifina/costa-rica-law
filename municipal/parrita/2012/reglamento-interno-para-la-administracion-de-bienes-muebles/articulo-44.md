@@ -1,0 +1,1 @@
+Artículo 44.—Una vez que sean reparados los bienes, la Unidad de Proveeduría lo entregará a la dependencia interesada, donde el Funcionario firmará el original de la factura dando por recibido el equipo.

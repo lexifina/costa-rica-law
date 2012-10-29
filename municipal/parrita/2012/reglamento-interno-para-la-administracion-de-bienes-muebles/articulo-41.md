@@ -1,0 +1,1 @@
+Artículo 41.—En los casos de activos que por su estado no estén sujetos de donación y tengan que ser desechados, el Alcalde Municipal solicitará al Concejo Municipal su autorización mediante un acta, comunicando de inmediato a la Unidad de Proveeduría y Contabilidad, para que sean retirados de sus registros.
