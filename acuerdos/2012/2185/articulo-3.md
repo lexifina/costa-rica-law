@@ -1,0 +1,1 @@
+Artículo 3°— La presente estructura organizativa deja sin efecto la anterior estructura del Consejo Nacional de Rehabilitación y Educación Especial (CNREE), aprobada por Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) mediante oficio DM-1028-97 del 23 de diciembre de 1997.
