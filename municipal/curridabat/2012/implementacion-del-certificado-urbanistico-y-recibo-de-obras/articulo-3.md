@@ -1,0 +1,1 @@
+Artículo 3º—Solicitud. El Certificado de Cumplimiento Urbanístico y recibo de obras, debe ser solicitado por el propietario del proyecto o por el profesional acreditado en la Municipalidad como responsable de la misma una vez finalizada la obra o que tenga un mínimo de avance del 95% de las obras de infraestructuras.

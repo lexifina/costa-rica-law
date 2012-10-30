@@ -1,0 +1,2 @@
+Artículo 9º—Otorgamiento Parcial del Certificado de Cumplimiento Urbanístico. El Certificado de Cumplimiento Urbanístico podrá ser otorgado en forma parcial, en caso de que la construcción haya sido ejecutada por etapas.
+Las instituciones públicas, semi-públicas o autónomas, o las empresas privadas, mixtas, que mediante concesión tengan a cargo la prestación de un Servicio Público, exigirán, previo al otorgamiento de cualquiera de los servicios públicos que presta, el Certificado de Cumplimiento Urbanístico.

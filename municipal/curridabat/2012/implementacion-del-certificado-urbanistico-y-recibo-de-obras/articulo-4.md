@@ -1,0 +1,1 @@
+Artículo 4º—Importancia. Para la autorización de ocupación y uso del proyecto, sea este residencial, comercial o mixto, debe ostentar con el Certificado de Cumplimiento Urbanístico y Recibo de Obras, según esta normativa.
