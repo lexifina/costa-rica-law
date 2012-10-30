@@ -1,0 +1,1 @@
+Articulo l4.- Se les recuerda a los representantes legales de las Cooperativa, que el beneficio de la CONSIGNACION, otorgado en este Reglamento, por la Junta de Protección Social, debe ser extendido a los adjudicatarios de cada Cooperativa. En caso de incumplimiento a esta norma, la Junta se reserva el derecho de eliminar este beneficio a la Cooperativa que incumpla.

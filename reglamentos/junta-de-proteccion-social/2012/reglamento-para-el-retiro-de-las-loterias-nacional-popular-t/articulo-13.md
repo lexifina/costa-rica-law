@@ -1,0 +1,1 @@
+Artículo 13.- De los contratos de Lotería en Consignación deberán emitirse cuatro ejemplares de los cuales uno será para el Consignatario, y los otros serán distribuidos para el Departamento de Loterías y el Departamento de Tesorería.

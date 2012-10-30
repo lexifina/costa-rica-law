@@ -1,0 +1,1 @@
+Artículo 6.- En caso de que la solicitud sea aprobada y notificada, el interesado contará con 10 días hábiles para presentarse al Departamento de Loterías para formalizar el contrato respectivo, caso contrario la gestión será archivada.
