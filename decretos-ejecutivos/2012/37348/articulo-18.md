@@ -1,0 +1,3 @@
+Artículo 18.- Informe de labores en casos de imposibilidad de registrar la marca
+En aquellos casos en que se labore en jornada extraordinaria durante giras de trabajo, y que por la distancia y ubicación no sea posible registrar la marca respectiva, el funcionario deberá realizar un informe, al cual deberá adjuntar los documentos probatorios respectivos (minutas, firmas de asistencia a reuniones, hora de inicio y finalización de actividades, otros) sobre la utilización real de horas extras reportadas, incluyendo las actividades que se han atendido en esas jornadas.
+Corresponderá al Jefe inmediato analizar ese informe, valorar resultados y en orden a lo anterior, determinar si autoriza o no el reconocimiento de tales horas extras.

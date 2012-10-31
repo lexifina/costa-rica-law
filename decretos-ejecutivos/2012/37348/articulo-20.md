@@ -1,0 +1,3 @@
+Artículo 20.- Deber de la Dirección de Recursos Humanos de conciliar información
+La Dirección de Recursos Humanos deberá cotejar la información brindada que se señala en el artículo anterior, verificando los montos de la columna del devengado y los de la columna de pagado. De encontrar inconsistencias, indicará las razones de tal situación a la Dirección Financiera, con la finalidad de que esta última realice la conciliación respectiva.
+Con dicha información la Dirección de Recursos Humanos llevará el control en cuanto a si los programas presupuestarios disponen de fondos para cubrir tiempo extraordinario.

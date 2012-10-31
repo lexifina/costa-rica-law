@@ -1,0 +1,4 @@
+Artículo 12.- Horas extraordinarias trabajadas en programas o subprogramas
+presupuestarios diferentes
+Corresponderá a la Dirección de Recursos Humanos aprobar el pago de horas extraordinarias a funcionarios que prestan este servicio entre programas y subprogramas presupuestarios diferentes a los que pertenecen; o bien a los funcionarios que presten servicios al Ministerio de Obras Públicas y Transportes en virtud de convenios interinstitucionales; todo conforme las disposiciones del Decreto Ejecutivo No. 34047 del 27 de setiembre de 2007. Lo anterior en el tanto se cumpla con los trámites y requisitos que establece el presente reglamento y tomando como base las autorizaciones y controles que los superiores inmediatos efectúen a la luz de las disposiciones contenidas en este cuerpo normativo.
+Asimismo dicha Dirección deberá ejercer el registro, control y demás obligaciones que sobre el pago de horas extra establece este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 19- Informes de control de saldos de la Dirección Financiera
+La Dirección Financiera deberá remitir a la Dirección de Recursos Humanos un informe mensual de disponibilidad por Partida Presupuestaria, correspondiente a la partida 00201 Tiempo Extraordinario, con indicación de: programa, área, actividad, presupuesto acumulado (aprobado al inicio), factura en trámite, solicitado, comprometido (recursos reservados por el Ejecutor de Programa respectivo), pagado, devengado, decretos en trámite y el disponible presupuestario.

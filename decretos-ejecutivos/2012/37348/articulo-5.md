@@ -1,0 +1,5 @@
+Artículo 5.- Límite de la jornada extraordinaria
+En concordancia con lo dispuesto en el numeral 140 del Código de Trabajo, la jornada extraordinaria, sumada a la ordinaria, no podrá exceder de doce horas diarias. En consecuencia, la jornada extraordinaria no podrá exceder de 4 horas por día. Lo anterior, a excepción de los supuestos en que por siniestro ocurrido o riesgo inminente peligren las personas, los establecimientos, las máquinas o instalaciones, en cuyo caso podrá extenderse ese límite, en el tanto, sin evidente perjuicio, no puedan sustituirse los trabajadores o suspenderse las labores de los que están trabajando.
+Se computa como tiempo extraordinario, el que se labore fuera de la jornada ordinaria, ya sea antes o después del horario de trabajo establecido, siempre que se respeten los límites que regula el presente Reglamento.
+Solamente se autorizará el tiempo extraordinario a funcionarios que laboren una hora extra o más.
+No se considerarán horas extraordinarias las que el trabajador ocupe en subsanar los errores imputables sólo a él, cometidos durante la jornada ordinaria.

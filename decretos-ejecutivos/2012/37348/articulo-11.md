@@ -1,0 +1,2 @@
+Artículo 11.- Deber de verificar la existencia de contenido económico.
+El Director o Subdirector, según corresponda, deberá verificar la disponibilidad de fondos, de previo a autorizar que los funcionarios a su cargo laboren tiempo extraordinario. No se podrá autorizar a ningún funcionario laborar en jornada extraordinaria, si no existe contenido presupuestario suficiente y disponible para respaldar su pago. Lo anterior con la salvedad establecida en el presente Reglamento, atinente a la compensación de la hora extra con tiempo.
