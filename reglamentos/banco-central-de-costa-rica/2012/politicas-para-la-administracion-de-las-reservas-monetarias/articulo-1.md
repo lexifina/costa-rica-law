@@ -1,4 +1,5 @@
 BANCO CENTRAL DE COSTA RICA
+(El Banco Central de Costa Rica en sesión N° 5567-2012 del 31 de octubre del 2012, estableció lo siguiente: "... las Políticas para la Administración de las Reservas Monetarias Internacionales, aprobadas en el artículo 12 del acta de la sesión 5547-2012, celebrada el 6 de junio del 2012, entrarán a regir a partir de hoy, 31 de octubre del 2012")
 (Nota de Sinalevi Sobre este tema el Banco Central de costa Rica, había emitido anteiormente las Políticas Generales para Administración de Reservas Monetarias Internacionales y reforma Normativa Autorización de Entidades con las que el BCRR puede Efectuar Operaciones Relacionadas con Gestión de Reservas Monetarias Internacionales, en sesión N° 5413-2009 del 4 de febrero del 2009)
 La Junta Directiva del Banco Central de Costa Rica en los numerales 8 y 9 del artículo 12 del acta de la sesión 5547-2012, celebrada el 6 de junio del 2012,
 dispuso:
