@@ -1,0 +1,7 @@
+Artículo 15. Movimiento de Tierras.
+Al proyectar urbanizaciones sobre terrenos accidentados o de fuerte pendiente, tanto las hileras de vivienda como las vías deberán colocarse preferiblemente paralelas a las curvas de nivel.
+La capa vegetal que se remueva debe colocarse provisionalmente en lugares apropiados a fin de utilizarla después en el tratamiento final de las áreas.
+¨N________No deberán dejarse escombros en el área destinada a futuras construcciones ni en las zonas públicas, sino en lugares designados precisamente por la Municipalidad como botaderos, en cuyo caso deberá indicarse así en los planos.
+Las áreas destinadas a construcción no deberán quedar en zonas de relleno; eventualmente la municipalidad con base en estudios presentados por el urbanizador, podrán permitir que se construyan viviendas en dichas áreas, en cuyo caso se deberá especificar claramente el grado de compactación de los rellenos e informar el momento en que se iniciarán las obras de descompactación a la municipalidad, todo sin responsabilidad de esta.
+La municipalidad se reserva el derecho de rechazar el grado de compactación propuesta para el área cuando ésta no esté de acuerdo con los estudios de suelo u otras variables técnicas de diseño.
+Los sitios de relleno podrán ser utilizados para parques en cuyo caso el INVU podrá exigir la construcción de muros de retención y de elementos protectores contra accidentes, si fuere pertinente.

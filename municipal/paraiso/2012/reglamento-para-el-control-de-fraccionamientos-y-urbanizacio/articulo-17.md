@@ -1,0 +1,2 @@
+Artículo 17. Acueducto.
+El abastecimiento de agua potable y la evacuación de aguas pluviales se ajustarán a las normas del Instituto Costarricense de Acueductos y Alcantarillados. Si la red de recolección de aguas pluviales cae directamente a un río o quebrada, su salida debe estar en dirección del flujo de las aguas en un ángulo no mayor de 45º y a no más de un metro de altura para disminuir el golpe de agua al caer.
