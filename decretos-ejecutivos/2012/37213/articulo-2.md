@@ -1,1 +1,0 @@
-Artículo 2º—Por todo trabajo no cubierto por las disposiciones del artículo 1º de este decreto, todo patrono pagará un salario no menor al de Trabajador no Calificado del inciso 1ª del Articulo 1º- de este decreto.
