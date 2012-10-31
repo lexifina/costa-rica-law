@@ -1,0 +1,1 @@
+Artículo 19.—Ningún servidor podrá acogerse a la Dedicación Exclusiva, si está gozando de la compensación económica por prohibición del ejercicio liberal de la profesión u otra compensación económica que, a juicio de la Unidad de Capital Humano, resulta incompatible con la Dedicación Exclusiva.

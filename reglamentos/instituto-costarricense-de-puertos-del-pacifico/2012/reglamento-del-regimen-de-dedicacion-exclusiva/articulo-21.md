@@ -1,0 +1,1 @@
+Artículo 21.—Los contratos de Dedicación Exclusiva podrán ser objeto de modificaciones por los motivos indicados en el artículo 4º. Las modificaciones introducidas regirán a partir de la fecha en que se suscriba el Addéndum correspondiente.

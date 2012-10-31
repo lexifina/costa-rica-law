@@ -1,0 +1,1 @@
+Artículo 7º—La Unidad de Capital Humano deberá comprobar el cumplimiento de los requisitos que señalan los incisos a), b), c), d), e), f) y g) del artículo 5 y de estar conforme confeccionará el contrato respectivo y gestionará la obtención de las respectivas firmas.

@@ -1,0 +1,1 @@
+Artículo 10.—Una vez firmado el contrato de Dedicación Exclusiva, el servidor no podrá ejercer la profesión comprometida con dicha exclusividad, ni actividades relacionadas con las mismas o con su cargo, si no es la desempeñada en el Instituto Costarricense de Puertos del Pacífico.
