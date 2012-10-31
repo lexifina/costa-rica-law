@@ -51,3 +51,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 37368 del 12 de octubre del 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37381 del 16 de octubre de 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37385 del 30 de octubre del 2012)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37394 del 31 de octubre del 2012)
