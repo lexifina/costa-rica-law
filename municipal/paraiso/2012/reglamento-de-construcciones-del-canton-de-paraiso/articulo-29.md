@@ -1,0 +1,4 @@
+Artículo 29. Uso del antejardín.
+Al menos un tercio del área del antejardín debe mantenerse como área verde, y en el resto podrán construirse cocheras, corredores abiertos, terrazas, parqueos, tanques sépticos, tanques de captación, cajas de registro, casetas de seguridad, transformadores, escaleras adosadas a la pared y recipientes de recolección de basura.
+En zona de antejardín no se podrán construir vallas sólidas con altura de más de un metro, con la instalación de verjas o portones que permitan un 80% de visibilidad como mínimo. Esta última norma aplica también para las colindancias laterales dentro del área de antejardín.
+En el caso de ampliación vial prevista, se procederá a exigir el retiro mayor al antejardín, solo cuando se haya iniciado un proceso para expropiación. La dimensión del retiro será acorde al alineamiento establecido por la entidad correspondiente.
