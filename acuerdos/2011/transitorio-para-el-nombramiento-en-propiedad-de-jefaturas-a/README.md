@@ -14,3 +14,4 @@ Transitorio para el nombramiento en propiedad de jefaturas administrativas en la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-13 | la propia norma |
+| 2 | 2012-10-31 | SINALEVI (sin norma nombrada) |

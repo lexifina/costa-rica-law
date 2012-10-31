@@ -3,6 +3,7 @@ CAJA COSTARRICENSE DE SEGURO SOCIAL
 APROBACIÓN TRANSITORIO PARA EL NOMBRAMIENTO
 EN PROPIEDAD DE JEFATURAS ADMINISTRATIVAS
 EN LA CAJA COSTARRICENSE DE SEGURO SOCIAL
+(Anulado este Acuerdo mediante resolución de la Sala Constitucional N° 15254 del 31 de octubre de 2012.)
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 11º de la sesión 8514, celebrada el 23 de junio de 2011, acordó aprobar la aplicación del siguiente Transitorio para el nombramiento en propiedad de jefaturas administrativas en la Caja Costarricense de Seguro Social:
 En consideración al proceso que la Caja Costarricense de Seguro Social (CCSS) inició, a partir del año 2005, con la aprobación de un conjunto de normas excepcionales, conocidas como “Transitorios para el nombramiento en propiedad”, las cuales han tenido como objetivo fundamental otorgar estabilidad laboral a los funcionarios de la Institución que han venido prestando sus servicios, a través de nombramientos interinos prolongados, y protegiendo el principio de trato igualitario, dado que las jefaturas administrativas son el único grupo ocupacional que no ha estado sujeto a los alcances de un Transitorio que, como vía excepcional, permita su nombramiento en propiedad, en tanto, satisfaga un conjunto de requisitos y condiciones, se adoptan las siguientes acciones:
 Transitorio Único
