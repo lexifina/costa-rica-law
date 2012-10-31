@@ -1,0 +1,16 @@
+# Reglamento municipal (2012-10-12)
+
+Reglamento de Zonificación de los usos del suelo
+
+- Tipo: Reglamento municipal
+- Número: 189
+- Fecha: 2012-10-12
+- Ente emisor: Municipalidad de Paraíso
+- Publicación: La Gaceta N° 210 del 2012-10-31, Alcance 169
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73528&param2=90295&param3=1 (ficha 73528)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2012-10-31 | la propia norma |
