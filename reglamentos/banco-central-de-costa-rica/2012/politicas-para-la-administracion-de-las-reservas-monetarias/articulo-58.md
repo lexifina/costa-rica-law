@@ -1,0 +1,2 @@
+Artículo 58.—Montos y plazos máximos de inversión. Corresponderá al Comité de Reservas definir los montos máximos que podrán ser invertidos en los diferentes instrumentos y entidades para las carteras gestionadas internamente, de conformidad con los parámetros de riesgo indicados en el presente reglamento.
+Este comité cuando lo considere necesario, podrá limitar aún más los plazos máximos de inversión de los tramos de liquidez y de inversión para las carteras de dólares y euros.

@@ -1,0 +1,1 @@
+Artículo 27.—Instrumentos elegibles. Esta cartera podrá ser invertida en notas de descuento, instrumentos de corto plazo, bonos y títulos de tasa de interés flotante. Todos los instrumentos deben ser negociables a través de mercados secundarios.

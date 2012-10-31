@@ -1,0 +1,1 @@
+Artículo 4º—Responsabilidades de la Junta Directiva. La Junta Directiva del Banco Central de Costa Rica evaluará trimestralmente la gestión de reservas, con base en los informes que al efecto prepare la División Gestión de Activos y Pasivos, de acuerdo con lo consignado en estas normas.

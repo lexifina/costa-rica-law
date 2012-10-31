@@ -1,0 +1,1 @@
+Artículo 65.—Administración de cuentas para contratos de futuros. Se permitirá la apertura de cuentas de margen con el clearing róker que autorice el Comité de Reservas para efectos de los contratos de futuros. Estas cuentas deberán mantenerse en su saldo mínimo exigido.

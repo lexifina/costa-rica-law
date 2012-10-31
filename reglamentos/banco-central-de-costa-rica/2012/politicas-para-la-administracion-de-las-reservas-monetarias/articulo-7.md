@@ -1,0 +1,2 @@
+Artículo 7º—Ejecución. La División Gestión de Activos y Pasivos será la responsable de ejecutar y velar por el cumplimiento de las presentes políticas y demás lineamientos que en esta materia instituya la Junta Directiva del Banco Central de Costa Rica o el Comité de Reservas.
+En las carteras gestionadas en forma externa, la ejecución de las políticas de inversión corresponderá a los administradores designados por la Junta Directiva y la División Gestión de Activos y Pasivos deberá velar porque dichos administradores cumplan con las presentes políticas y demás lineamientos.

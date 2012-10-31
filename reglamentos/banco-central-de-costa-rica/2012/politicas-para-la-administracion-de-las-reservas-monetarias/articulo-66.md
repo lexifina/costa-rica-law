@@ -1,0 +1,1 @@
+Artículo 66.—Apalancamiento. No será permitido el apalancamiento. No se considerará que la cartera está apalancada si la suma del valor de mercado de todas las posiciones del portafolio (excluyendo los instrumentos del mercado de dinero y el efectivo), más la exposición nominal neta de los futuros; es menor o igual al valor total de mercado del portafolio.

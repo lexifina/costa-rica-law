@@ -1,0 +1,1 @@
+Artículo 41.—Agentes negociadores. Las operaciones de compra y venta de títulos deberán realizarse a través de agentes negociadores de activos en los mercados internacionales. Estos deberán ser reconocidos como primary dealers por: el Banco de la Reserva Federal de Nueva York o la European Primary Dealers Association.

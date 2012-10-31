@@ -1,0 +1,1 @@
+Artículo 56.—Restricción para contratos forwards. En el caso de gestores externos, no será permitido la negociación de contratos “forward” con contrapartes o afiliadas que pertenezcan al mismo grupo corporativo o financiero del gestor.

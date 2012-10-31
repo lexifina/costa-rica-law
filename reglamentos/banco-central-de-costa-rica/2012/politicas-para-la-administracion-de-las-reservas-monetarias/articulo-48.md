@@ -1,0 +1,4 @@
+Artículo 48.—Montos máximos por emisiones y emisores. Aplican los siguientes límites:
+a. La inversión en los instrumentos autorizados en el inciso b del artículo 44, se harán únicamente en las emisiones cuyo monto total sea igual o superior a US$500 millones o su equivalente en la moneda autorizada en el artículo 43 de la presente Normativa.
+b. El monto máximo de inversión por emisión autorizada en el inciso b del artículo 44 de esta normativa, será como máximo un 20% del monto en circulación de dicha emisión.
+d. El monto máximo permitido para inversiones en emisores no incluidos en el índice de referencia, será de un 5% del valor de mercado de la cartera. Además, el valor total en emisores que no pertenecen al índice de referencia no puede exceder el 50% del valor de mercado de la cartera.

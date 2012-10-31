@@ -1,0 +1,1 @@
+Artículo 37.—Parámetro de referencia. El desempeño de esta cartera será contrastado con el índice de referencia de bonos del Tesoro de los Estados Unidos con plazo al vencimiento entre uno y tres años, calculado por Merrill Lynch (ticket de Bloomberg: G1O2).

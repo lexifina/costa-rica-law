@@ -1,0 +1,1 @@
+Artículo 61.—Calificaciones de Riesgo. En el caso de que no exista equivalencia entre las calificaciones de riesgo de una entidad, gobierno o país que cuentan con ratings de dos o más de las agencias calificadoras de riesgo internacional, de Standard & Poor’s, Moody’s Investor Services y Fitch Iba, aplicará la calificación menor.

@@ -1,0 +1,1 @@
+Artículo 29.—Parámetro de referencia. El desempeño de esta cartera será contrastado con el índice de referencia de notas del tesoro de Estados Unidos de América con plazo al vencimiento entre 3 y 6 meses, calculado por la entidad Merrill Lynch (ticket de Bloomberg: G0B2).

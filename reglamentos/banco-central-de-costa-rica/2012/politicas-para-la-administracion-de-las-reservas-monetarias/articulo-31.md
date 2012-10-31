@@ -1,0 +1,1 @@
+Artículo 31.—Agentes negociadores. Las operaciones de compra y venta de títulos deberán realizarse directamente con el emisor o a través de agentes negociadores de activos en los mercados internacionales. En este último caso, deberán ser reconocidos como primary dealers por: el Banco de la Reserva Federal de Nueva York o la European Primary Dealers Association.

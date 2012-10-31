@@ -1,0 +1,1 @@
+Artículo 47.—Parámetro de referencia. El desempeño de esta cartera será contrastada con el índice de referencia de bonos de gobiernos soberanos excluyendo Estados Unidos, con calificaciones crediticias AAA, ponderados por el Producto Interno Bruto, con cobertura en dólares de los Estados Unidos de América y plazo al vencimiento entre 1 y 3 años.

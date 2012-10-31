@@ -1,0 +1,1 @@
+Artículo 64.—Contrapartes y bolsas para contratos de futuros. Los Contratos Futuros sobre instrumentos de renta fija o con subyacente de tasas de interés podrán ser negociados únicamente con Futures Commission Merchants members de alguna de las bolsas autorizadas.

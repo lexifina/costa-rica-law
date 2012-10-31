@@ -1,0 +1,5 @@
+Artículo 44.—Instrumentos elegibles. Esta cartera podrá ser invertida en los siguientes instrumentos:
+a. Instrumentos de corto plazo: Certificados de Depósito a Plazo (CDs) y Euro Certificados de Depósito a Plazo (ECD); Papel Comercial y Euro Papel Comercial; Depósitos Bancarios a la vista y a plazo.
+b. Instrumentos de largo plazo: Bonos, notas y otros instrumentos de deuda incluyendo instrumentos de descuento, emitidos con garantía incondicional de pagos puntuales de intereses, principal y premio (si existe), emitidos por alguna de las entidades autorizadas en el artículo 45 de la presente Normativa. Pueden ser a tasas fijas, variables o ligadas a la inflación.
+c. Contratos “forward” sobre tipos de cambio denominados en alguna de las monedas autorizadas en el artículo 43; siempre y cuando la contraparte cumpla con las condiciones establecidas en el artículo 46 de la presente Normativa.
+d. Contratos de futuros donde el subyacente es un bono de gobierno soberano y es emitido por alguna de las bolsas de futuros autorizadas y denominada en alguna de las monedas autorizadas en el artículo 43.

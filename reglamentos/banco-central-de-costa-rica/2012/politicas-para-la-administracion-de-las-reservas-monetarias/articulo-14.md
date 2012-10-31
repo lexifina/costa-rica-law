@@ -1,0 +1,1 @@
+Artículo 14.—Parámetro de referencia. El desempeño de la cartera de Capital de Trabajo será contrastado con el índice de referencia de la LIBID con plazo promedio de un mes, calculado por la entidad Merrill Lynch (ticket de Bloomberg: L4US).

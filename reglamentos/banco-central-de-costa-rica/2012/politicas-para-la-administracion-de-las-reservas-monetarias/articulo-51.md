@@ -1,0 +1,1 @@
+Artículo 51.—Error de seguimiento. El error de seguimiento anual (tracking error) deberá mantenerse por debajo de los 100 b.p. Si dicho límite fuera excedido a raíz de movimientos propios del mercado, la cartera deberá ser rebalanceada dentro de los 30 días naturales siguientes, con el fin de cumplir con el límite establecido.
