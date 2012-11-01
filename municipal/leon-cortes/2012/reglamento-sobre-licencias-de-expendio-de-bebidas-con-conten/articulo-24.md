@@ -1,0 +1,1 @@
+Artículo 24.—Recursos. La resolución que deniegue una licencia o que imponga una sanción tendrá los recursos de revocatoria y apelación, de conformidad con el régimen impugnatorio contemplado en el Código Municipal.

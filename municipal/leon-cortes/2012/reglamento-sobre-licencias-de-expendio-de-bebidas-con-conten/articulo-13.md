@@ -1,0 +1,1 @@
+Artículo 13.—Plazo para resolver. La Municipalidad se ajustará a los plazos dispuestos en la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Nº 8220 del 4 de marzo de 2002 y sus reformas.

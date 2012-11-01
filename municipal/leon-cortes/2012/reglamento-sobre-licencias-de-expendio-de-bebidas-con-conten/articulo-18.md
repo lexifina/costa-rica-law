@@ -1,0 +1,1 @@
+Artículo 18.—Inspección y control. Del total recaudado, en virtud de la Ley 9047, para las funciones de inspección y control encomendadas a la Municipalidad, anualmente se destinará un máximo del 40%, conforme las necesidades financieras determinadas mediante el trámite de presupuestos municipales ordinario y extraordinarios.

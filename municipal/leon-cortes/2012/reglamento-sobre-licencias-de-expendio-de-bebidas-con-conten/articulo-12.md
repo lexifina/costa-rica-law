@@ -1,0 +1,1 @@
+Artículo 12.—De la ubicación de licencia tipo A, B y C en Centros Comerciales. El uso de licencias clase A, B y C no estará sujeto a límites de distancia alguno, cuando los locales respectivos se encuentren ubicados en centros comerciales, siendo definidos estos últimos conforme el Manual de Valores Base Unitarios por Tipología Constructiva en el punto 10.1.8.
