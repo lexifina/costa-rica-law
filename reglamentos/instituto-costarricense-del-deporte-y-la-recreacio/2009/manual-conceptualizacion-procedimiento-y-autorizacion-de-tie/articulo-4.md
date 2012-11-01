@@ -1,3 +1,0 @@
-IV.—Reconocimiento y pago del tiempo extraordinario: El ICODER, sólo reconocerá el pago del trabajo laborado en jornada extraordinaria, cuando éste se haya ejecutado de conformidad con el presente Manual. La jornada extraordinaria será remunerada de acuerdo con el artículo 139 del Código de Trabajo. En ningún caso se considerará como jornada extraordinaria, el tiempo inferior a una hora por día laborado a los servidores después de su jornada ordinaria.
-Para su debido reconocimiento, la jornada extraordinaria previsible no se deberá laborar, si no se cuenta previamente con la autorización del Director de Área correspondiente.
-El trabajo extraordinario se pagará de acuerdo a la normativa que al respecto se fija.

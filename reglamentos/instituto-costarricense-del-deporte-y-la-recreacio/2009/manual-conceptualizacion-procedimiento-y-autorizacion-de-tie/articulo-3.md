@@ -1,1 +1,0 @@
-III.—Obligatoriedad de laborar la jornada extraordinaria. Cuando las necesidades del servicio así lo requieren, los servidores públicos quedan en la ineludible obligación de laborar horas extraordinarias, dentro de los límites señalados por el presente Manual, salvo causa justa o fuerza mayor para negarse.
