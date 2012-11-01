@@ -14,3 +14,4 @@ Solicitudes de Antecedentes Fonéticos de Marca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-12 | la propia norma |
+| 2 | 2012-11-01 | Acuerdo 470 (2012-11-01) |
