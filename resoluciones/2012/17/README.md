@@ -14,3 +14,4 @@ Metodología para el ajuste extraordinario de las tarifas del servicio de electr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-17 | la propia norma |
+| 2 | 2012-11-01 | Resolución 128 (2012-11-01) |

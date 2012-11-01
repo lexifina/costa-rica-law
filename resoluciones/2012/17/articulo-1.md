@@ -1,5 +1,6 @@
 AUTORIDAD REGULADORA
 DE LOS SERVICIOS PÚBLICOS
+(Nota de Sinalevi: La Autoridad Reguladora de los Servicios Públicos, aprobó una nueva Metodología ajuste tarifas servicio electricidad, producto de variaciones en costo combustibles (CVC), utilizados en generación térmica consumo nacional para servicio generación y distribución (aprueba cargos trimestrales C1, C2, C3 y CD1, CD2, CD3, CD4), mediante resolución N° 1031 del 11 de diciembre de 2012)
 Resolución RJD-017-2012.—San José, a las quince horas del diecinueve de marzo de dos mil doce. Expediente OT-111-2011.
 Conoce la Junta Directiva metodología para el ajuste extraordinario de las tarifas del servicio de electricidad, producto de variaciones en el costo de los combustibles (CVC) utilizados en la generación térmica para consumo nacional.
 Resultando:
@@ -135,7 +136,6 @@ a. El primer objetivo de la metodología de CVC, consiste en enviar señales de 
 b. El segundo objetivo de la metodología de CVC, es permitir el equilibrio financiero del ICE, al posibilitarle obtener, mediante el reconocimiento oportuno del ajuste por CVC, un flujo de ingresos acorde con su nivel de gastos.
 3. Fórmula general de la metodología
 La metodología de estimación y fijación del ajuste por Costo Variable por Combustibles (CVC), está diseñada para que la tarifa refleje los costos derivados de la generación térmica para consumo nacional. Con ese fin, se debe cumplir la siguiente relación:
-[imagen]
 Donde:
 IR = Ingreso real recaudado por concepto de generación.
 CR = Costo real incurrido por concepto de generación.
@@ -164,14 +164,12 @@ IEi= Ingreso estimado total a otorgar mediante tarifa por generación de electri
 CSCi= Costo estimado en el trimestre i que incluye todos los componentes reconocidos en la tarifa de generación (incluyendo alta tensión), menos el CVCi. Este costo solo se modifica vía fijación ordinaria.
 CVCi= Es el cargo estimado por costo variable del combustible, en la fase de generación, a reconocer en el trimestre i.
 Luego, se divide a ambos lados de la ecuación entre la variable CSCi, y se obtienen sucesivamente las siguientes fórmulas:
-[imagen]
 Donde:
 Ci= Proporción entre el costo variable estimado del combustible del trimestre i, en generación, y el costo estimado, sin combustibles, del trimestre i.
 FAi= Es el factor de ajuste de la tarifa de generación y es igual a (1 + Ci).
 El ingreso estimado total por concepto de generación, debe ser igual al costo estimado de generación, excluyendo combustibles, multiplicado por el factor de ajuste (FAi). Este último incorpora el efecto del CVC como porcentaje del costo total del servicio, excluyendo combustibles.
 Un paso adicional en la definición de Ci, que tiene el propósito de facilitar su estimación, consiste en sustituir el costo total estimado sin CVC, por el ingreso total estimado sin CVC (IESCi). De esta forma, tenemos que el CSCi = IESCi. La razón es que, por el principio del servicio al costo, el CSCi incluye todos los costos del servicio de generación; entre ellos, operación, mantenimiento, administración y rentabilidad sobre la inversión, pero excluyendo combustibles.
 Aplicando este concepto exclusivamente al CVC destinado a generación térmica para consumo nacional, se tiene que:
-[imagen]
 Donde:
 Ci = Proporción entre el costo variable estimado del combustible del trimestre i, en generación térmica, y el costo estimado, sin combustibles, del trimestre i.
 CVCi= Es el cargo estimado por costo variable del combustible para generación térmica, a reconocer en el trimestre i.
@@ -221,7 +219,6 @@ Cia =Proporción entre el CVC del trimestre i, actualizado con los datos reales 
 El proceso técnico para determinar el monto a reconocer por concepto de CVC a las empresas distribuidoras de energía, es análogo al descrito en las secciones 4.1 y 4.2 de este informe, para reconocer el consumo de CVC en la generación térmica del Instituto Costarricense de Electricidad (ICE). En ese proceso, se estima el CVC que se transfiere del subsistema de generación al de distribución y también el que se transfiere del Subsistema de Distribución al de Alumbrado Público.
 En noviembre de cada año, se iniciará el proceso para determinar el CVC para los cuatro trimestres del año siguiente en las tarifas de distribución. Este proceso deberá estar concluido antes de finalizar el año, de tal forma, que el respectivo cargo empiece a regir el 1° de enero del año siguiente.
 Como consecuencia de los ajustes tarifarios (C1, C2, C3 y C4) que se aprueben en la tarifa de generación, las tarifas del Servicio de Distribución Eléctrica de cada una de las empresas eléctricas se deben ajustar de oficio por la Autoridad Reguladora de los Servicios Públicos, según el siguiente criterio:
-[imagen]
 Donde:
 CDi = Es la proporción entre el costo variable estimado del combustible del trimestre i y el ingreso estimado por ventas de energía y potencia a usuarios finales (en colones), sin considerar en las tarifas el componente de combustibles para la generación térmica (incluido el pago que efectúa el sistema de alumbrado público al de distribución).
 CVCi= Es el cargo estimado por costo variable del combustible, a reconocer en el trimestre i.
@@ -236,7 +233,8 @@ En los cálculos anteriores se utilizarán sólo los pagos por energía y potenc
 Los ajustes en las tarifas de distribución se realizarán simultáneamente con los ajustes en las tarifas de generación (C1, C2, C3 y C4), de tal forma, que no provoquen un desequilibrio financiero en las empresas distribuidoras de electricidad. Si por cualquier motivo estos ajustes se desfasan con respecto de los de generación, se debe incorporar el reajuste correspondiente para evitar el desequilibrio financiero de estas empresas, de tal forma, que siempre se cumpla la premisa establecida en la fórmula 0.
 Para asegurar el equilibrio financiero que pretende esta metodología, la información de mercado que se utilice para los ajustes a las empresas distribuidoras, debe ser la misma que se utiliza para calcular los ajustes en el proceso de generación de electricidad del ICE.
 6. Transitorio: Aplicación por primera vez
-Esta sección describe el transitorio para aplicar la metodología propuesta por primera vez. Se hace referencia a dos aspectos: el reconocimiento de rezagos acumulados antes del inicio de la metodología; y la primera aplicación del ajuste trimestral.
+Esta sección describe las pautas para aplicar la metodología propuesta por primera vez. Se hace referencia a tres aspectos: el reconocimiento de rezagos acumulados antes del inicio de la metodología, la primera aplicación del ajuste trimestral y la vigencia de las tarifas resultantes de la primera aplicación.
+(Así modificado el párrafo anterior por el punto 1° de la resolución RJD- 128 del 1 de noviembre de 2012)
 6.1 Reconocimiento de rezagos acumulados antes del inicio de la metodología
 En el trimestre en que inicie la aplicación de esta metodología, se ajustará el cargo por CVC incurrido durante los cuatro últimos trimestres, que eventualmente no haya sido cubierto vía tarifas o, en su defecto, se devolverá al usuario el excedente cobrado por el generador. Ese cargo, de más o de menos, se distribuirá en partes iguales entre los primeros cuatro trimestres en que se aplique la metodología.
 Para la aplicación de la metodología descrita, se requiere necesariamente de una solicitud previa de tarifa ordinaria por parte del Instituto Costarricense de Electricidad (ICE), que no tome en cuenta los combustibles entre sus costos. No obstante, si para cualquier fecha en que entre a regir la metodología que aquí se detalla, no se cuenta con tarifas del sistema de generación del ICE que excluyan los combustibles destinados a la generación térmica de ese período. La Autoridad Reguladora de los Servicios Públicos, en defensa de los intereses de los consumidores, podrá aplicar la metodología tarifaria extraordinaria sobre las tarifas vigentes, excluyendo de oficio el rubro por combustibles, según sus propios cálculos.
@@ -248,9 +246,13 @@ CSCi=Costo estimado en el trimestre i por todos los componentes reconocidos en l
 FAi = Factor de ajuste de la tarifa de generación y es igual a (1 + Ci).
 Dua =Diferencial tarifario por CVC en los últimos cuatro trimestres.
 i = Subíndice que representa los diferentes trimestres de año.
-6.2 Primera aplicación del ajuste trimestral
-Durante el primer trimestre de vigencia de la metodología descrita en este informe, no se aplicará el ajuste trimestral. A partir del segundo trimestre, se aplicará el ajuste trimestral normal descrito en la sección 4.2.3.b).
+6.2 Primera aplicación del ajuste trimestral(*)
+Durante el primer trimestre de vigencia de la metodología descrita en este informe, no se aplicará el ajuste trimestral, en razón de que el reconocimiento de rezagos acumulados (Por Tanto I, apartado 6.1 de la presente resolución) ya incorpora los costos de los meses que corresponderían al ajuste del primer trimestre. A partir del segundo trimestre, se aplicará el ajuste trimestral normal descrito en la sección 4.3.2.de la presente resolución.
 En adelante, las dos fases de reconocimiento del CVC (fijación inicial y ajuste trimestral), permitirán recuperar de manera más oportuna los recursos destinados a la compra de combustibles para generación.
+(*) (Así modificado el apartado 6.2) anterior por el punto 2° de la resolución RJD- 128 del 1 de noviembre de 2012)
+6.3. Vigencia de las tarifas calculadas para el año 2013(*)
+Las tarifas calculadas como resultado de la primera aplicación de esta metodología regirán a partir del 1 de enero de 2013. En ese sentido, para esta primera aplicación, las empresas distribuidoras y el ICE deberán aportar a más tardar el 10 de noviembre de 2012, la información que se indica en los apartados 8.a; 8.b; 8.c y 8.d. del Por Tanto I de esta resolución.
+(*) (Así adicionado el apartado 6.3) anterior por el punto 3° de la resolución RJD- 128 del 1 de noviembre de 2012)
 7. Disposiciones a cumplir para la aplicación de la metodología
 En esta sección se establecen varias disposiciones que deben ser cumplidas para aplicar la metodología establecida en este informe:
 a) Todas las tarifas que fije la ARESEP para reconocer el CVC en los servicios de generación y distribución de electricidad serán tramitadas de oficio, mediante el mecanismo de ajuste extraordinario contemplado en el artículo 30 de la Ley Nº 7593.
