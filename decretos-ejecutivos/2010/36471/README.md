@@ -14,3 +14,4 @@ Reglamento a la Ley de Marcas de Ganado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-23 | la propia norma |
+| 2 | 2012-11-01 | Acuerdo 471 (2012-11-01) |
