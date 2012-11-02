@@ -1,0 +1,3 @@
+Artículo 8º- DE LAS SANCIONES ADMINISTRATIVAS
+Los incumplimientos a medidas u órdenes sanitarias dictadas, infracciones, alteraciones u omisiones a las disposiciones del presente Reglamento y sus anexos, serán conocidos por el SENASA a los efectos de establecer las correcciones y sanciones administrativas que corresponda según la gravedad de la falta, con respeto al debido proceso y derecho de defensa, de conformidad con lo establecido en el Capítulo IX y X de la Ley Nº 8495.
+Igualmente dichas sanciones podrán aplicarse con independencia de las acciones civiles o penales que puedan establecerse contra quién o quienes hayan incurrido en la falta por acción u omisión.
