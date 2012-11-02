@@ -1,4 +1,6 @@
+(Derogado)
 N° 32475
+(Este decreto fue derogado por el artículo 48 (actual 54) del Reglamento a la Ley N° 6054 "Ley Orgánica del Ministerio del Economía, Industria y Comercio", aprobado mediante decreto ejecutivo N° 37457 del 2 de noviembre del 2012)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
 Con fundamento en las facultades que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política, artículo 28.2.b) de la Ley General de la Administración Pública y Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley N° 6054 del 14 de junio de 1977 y sus reformas, Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472, publicada en La Gaceta número 14 del 19 de enero de 1995 y su Reglamento, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, número 8262, publicada en La Gaceta número 94 del 17 de mayo del 2002 y su Reglamento y Ley del Sistema Nacional para la Calidad número 8279, publicada en La Gaceta número 96 del 21 de mayo del 2002.
