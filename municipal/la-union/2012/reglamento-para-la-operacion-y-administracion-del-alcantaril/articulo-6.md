@@ -1,0 +1,4 @@
+Artículo 6º—Las Plantas de Tratamiento de Aguas Residuales: Para efectos del presente reglamento, las plantas de tratamiento de aguas residuales se clasificaran de acuerdo con los procesos biológicos que se generan en el tratamiento, los cuales pueden ser aeróbicos, anaeróbicos o facultativos, o la combinación de varios de estos procesos y pueden operar por gravedad o haciendo uso de equipos electromecánicos como son bombas, rotores, aireadores, entres otros. Para lo cual se entenderá como:
+a.- Procesos aeróbicos aquellos que utilizan aireación y microorganismos aeróbicos en el tratamiento del agua residual.
+b.- Procesos anaeróbicos aquellos cuyo tratamiento de las aguas residuales se lleva a cabo por medio de microorganismos anaeróbicos.
+c.- Procesos facultativos son aquellos que utilizan tanto procesos aeróbicos como anaeróbicos para el tratamiento del agua residual.
