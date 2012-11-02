@@ -1,1 +1,0 @@
-Artículo 2º—Quedan derogados por el presente decreto los incisos d), f), g), i), j) del artículo 3º y los artículos 15, 16, 16.1 y 16.2 del Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio, decreto Nº 24762-MEIC del 19 de octubre de 1995.
