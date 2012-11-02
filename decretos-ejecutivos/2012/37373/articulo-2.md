@@ -1,0 +1,1 @@
+Artículo 2º—Las autoridades del sector público y privado, dentro de las atribuciones que les confiere la legislación vigente, sus posibilidades y sin perjuicio del cumplimiento de sus obligaciones propias, podrán contribuir con la Dirección General de Servicio Civil, con recursos técnicos y económicos para la exitosa realización de la actividad indicada.
