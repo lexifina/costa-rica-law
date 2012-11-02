@@ -1,3 +1,1 @@
-Artículo 11.—Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por al menos votación de dos tercios de la totalidad de los miembros del Consejo Director.
-Las actas serán firmadas por el Coordinador y por aquellos miembros que hubieren hecho constar su voto disidente.
-Los miembros del Consejo Director podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.
+Artículo 11.—(Derogado por el artículo 65° del Reglamento General a la Ley para la Gestión Integral de Residuos, aprobado mediante decreto ejecutivo N° 37567 del 2 de noviembre de 2012)

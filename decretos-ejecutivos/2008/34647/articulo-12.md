@@ -1,1 +1,1 @@
-Artículo 12.—En lo no regulado en el presente decreto, rige lo dispuesto en la Ley General de la Administración Pública, en materia de órganos colegiados.
+Artículo 12.—(Derogado por el artículo 65° del Reglamento General a la Ley para la Gestión Integral de Residuos, aprobado mediante decreto ejecutivo N° 37567 del 2 de noviembre de 2012)

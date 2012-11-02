@@ -14,3 +14,4 @@ Aprobación y declaratoria de interés público y nacional del Plan de Residuos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-29 | la propia norma |
+| 2 | 2012-11-02 | Decreto Ejecutivo 37567 (2012-11-02) |

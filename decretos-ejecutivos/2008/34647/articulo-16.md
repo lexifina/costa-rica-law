@@ -1,1 +1,1 @@
-Artículo 16.—Para la sostenibilidad financiera a la UCIP y la implementación del PRESOL, las instituciones que la conforman deberán hacer las gestiones necesarias a fin de dotarla de recursos económicos suficientes mediante los presupuestos institucionales, préstamos, donaciones, fondos provenientes de la cooperación internacional u otras que se consideren pertinentes.
+Artículo 16.—(Derogado por el artículo 65° del Reglamento General a la Ley para la Gestión Integral de Residuos, aprobado mediante decreto ejecutivo N° 37567 del 2 de noviembre de 2012)

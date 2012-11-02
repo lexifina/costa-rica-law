@@ -1,1 +1,1 @@
-Artículo 9º—No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros del Consejo Director y sea declarada la urgencia del asunto por el voto favorable de la totalidad de los miembros presentes.
+Artículo 9º—(Derogado por el artículo 65° del Reglamento General a la Ley para la Gestión Integral de Residuos, aprobado mediante decreto ejecutivo N° 37567 del 2 de noviembre de 2012)

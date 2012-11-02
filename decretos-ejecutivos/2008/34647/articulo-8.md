@@ -1,1 +1,1 @@
-Artículo 8º—Las sesiones de Consejo Director serán siempre privadas, pero éste podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tenga acceso a ella el público en general, o bien personas que puedan contribuir con su gestión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+Artículo 8º—(Derogado por el artículo 65° del Reglamento General a la Ley para la Gestión Integral de Residuos, aprobado mediante decreto ejecutivo N° 37567 del 2 de noviembre de 2012)
