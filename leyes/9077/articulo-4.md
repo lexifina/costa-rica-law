@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Convenios interinstitucionales
+Se autoriza a todas las instituciones y los órganos de la Administración Pública central y descentralizada, a las empresas públicas y las universidades, para que puedan realizar convenios interinstitucionales, de naturaleza cultural, científica, académica y deportiva con la Fundación Ayúdenos para Ayudar, la cual administra el programa del Centro Costarricense de la Ciencia y la Cultura.

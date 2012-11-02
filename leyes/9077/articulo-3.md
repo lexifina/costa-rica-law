@@ -1,0 +1,3 @@
+ARTÍCULO 3.- Bienes inmuebles
+Se autoriza a todas las instituciones y los órganos de la Administración Pública central y descentralizada, así como a las empresas públicas para que donen o cedan en administración, de forma directa, previo cumplimiento del procedimiento legal, bienes inmuebles de su propiedad para que sean destinados al cumplimiento de los objetivos y programas del Centro Costarricense de la Ciencia y la Cultura administrado por la Fundación Ayúdenos para Ayudar.
+Los bienes inmuebles donados o cedidos se destinarán exclusivamente para lo que se indica en el párrafo segundo del artículo 2 de la presente ley.
