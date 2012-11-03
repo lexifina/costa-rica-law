@@ -1,6 +1,6 @@
-Artículo 8º—Aquellos colegiados que se encuentren en alguno de los supuestos del artículo 4 de este reglamento podrán solicitar al Colegio se les brinde el subsidio. El colegiado deberá hacer la solicitud por escrito y adjuntar los siguientes documentos:
-En los casos de enfermedad grave o terminal del colegiado, presentar copia fotostática y original de dictamen médico que la especifique.
-En los casos de catástrofe natural o antrópica deberá presentarse documento probatorio emitido por la autoridad competente que acredite dicha situación.
-c) En los casos de emergencia o calamidad por situaciones económicas que señala el inciso c) del artículo 4 del Reglamento al FMS, deberá presentarse la documentación respectiva que lo demuestre.
-(Así adicionado el inciso anterior por Asamblea General Extraordinaria CXIV, celebrada el día 6 de noviembre del 2009)
-(Así reformado por la Asamblea General Extraordinaria CV, celebrada el 29 de octubre de 2005)
+Artículo 8°—Aquellos colegiados que se encuentren en alguno de los supuestos del artículo 4 de este reglamento podrán solicitar al Colegio se les brinde el subsidio.
+La persona colegiada realizará la solicitud por escrito donde conste su firma y deberá adjuntar los documentos según corresponda:
+a) En los casos de enfermedad grave de la persona colegiada, debe presentar epicrisis o dictamen original emitido por la C.C.S.S donde se especifique la enfermedad.
+b) En los casos de catástrofe natural o antrópica deberá presentarse documento probatorio emitido por la autoridad competente que acredite dicha situación.
+c) En los casos de emergencia por situaciones económicas que señala el inciso c) del artículo 4 del Reglamento al FMS, deberá presentarse la documentación respectiva.
+(Así reformado mediante sesión extraordinaria N° CXX del 3 de noviembre del 2012)

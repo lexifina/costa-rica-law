@@ -17,3 +17,4 @@ Reglamento del Fondo de Mutualidad y Subsidios
 | 2 | 2003-02-08 | Reglamento 97 (2003-02-08) |
 | 3 | 2005-10-29 | Reglamento 105 (2005-10-29) |
 | 4 | 2009-11-06 | Reglamento 114 (2009-11-06) |
+| 5 | 2012-11-03 | Reglamento 120 (2012-11-03) |

@@ -1,4 +1,5 @@
 CAPÍTULO II
-Articulo 6°—El Fondo girará el subsidio señalado en el artículo 3, siempre y cuando el colegiado no tenga más de tres cuotas atrasadas.
-El estado de morosidad no impedirá el giro del subsidio en aquellos casos en los que haya sido previamente justificado por el colegiado y aprobado por la Junta Directiva.
-(Así reformado por la Asamblea General Extraordinaria CV, celebrada el 29 de octubre de 2005)
+Artículo 6°—
+a) Se girará el pago de la póliza señalado en el artículo 3, siempre y cuando el colegiado no tuviese más de tres cuotas atrasadas a la fecha del fallecimiento.
+b) Se girará el pago del subsidio señalado en el artículo 3, siempre y cuando la persona colegiada se encuentre al día con las obligaciones ante el colegio.
+(Así reformado mediante sesión extraordinaria N° CXX del 3 de nvoviembre del 2012)
