@@ -1,1 +1,0 @@
-Artículo 45°- No se pagará salario que corresponda a las ausencias injustificadas, conforme a lo establecido en este Reglamento, en el Estatuto del Servicio Civil y su Reglamento, leyes conexas y supletorias.

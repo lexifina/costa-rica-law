@@ -1,1 +1,0 @@
-Artículo 28°- Cuando necesidades imperiosas del Ministerio lo requieran los servidores quedan en la ineludible obligación de laborar horas extraordinarias dentro de los límites señalados por tos artículos 140 y 141 del Código de Trabajo, salvo causa justa o fuerza mayor para negarse.

@@ -1,1 +1,0 @@
-Artículo 17°- Los funcionarios profesionales del Ministerio podrán acogerse a la Carrera Profesional de conformidad con los términos de la resolución del Servicio Civil. La Comisión de Carrera Profesional será el enlace entre los profesionales y la Dirección General de Servicio Civil para dichos efectos.

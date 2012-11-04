@@ -1,1 +1,0 @@
-Artículo 65°- No obstante lo estipulado en este Capítulo, la concesión de licencias para estudios y prórrogas podrá ser denegada cuando así lo justifique la necesidad del servicio, sin responsabilidad para el Ministerio y sin que situaciones similares o sucedidas con anterioridad, puedan considerarse como derechos adquiridos.

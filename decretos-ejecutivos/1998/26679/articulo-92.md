@@ -1,1 +1,0 @@
-Artículo 92°- En un plazo irrevocable de veinticuatro horas siguientes a la denuncia, el señor Ministro procederá a integrar el Órgano Director, que tendrá bajo su responsabilidad el procedimiento sumario administrativo.

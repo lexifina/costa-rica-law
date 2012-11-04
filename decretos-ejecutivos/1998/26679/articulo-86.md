@@ -1,1 +1,0 @@
-Artículo 86°- La evaluación interna la realizará el jefe inmediato cada cuatro meses, tratando de lograr una mayor eficiencia y eficacia en las labores que realiza cada Unidad o Área y la suma de las mismas serán la base de la calificación anual.

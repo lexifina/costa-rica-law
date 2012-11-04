@@ -1,1 +1,0 @@
-Artículo 9°- Del máximo jerarca. El Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre, el Ministerio y sus servidores, pero la representación, inmediata está delegada en el Ministro de Economía, Industria y Comercio, quien es el máximo jerarca y como tal está facultado para dar por agotada la vía administrativa.

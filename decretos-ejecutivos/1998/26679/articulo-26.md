@@ -1,2 +1,0 @@
-Artículo 26°- No están sometidos a los límites máximos de jornada de servicio, los servidores que señale el Ministerio y que se encuentran en los casos previstos en el artículo 143 del Código de Trabajo, a quienes se les podrá exigir una jornada de hasta doce horas diarias con una y media horas de descanso según lo establece esa disposición legal.
-En ningún caso esta disposición deberá originar discriminaciones injustificadas que afecten la buena marcha del Ministerio.

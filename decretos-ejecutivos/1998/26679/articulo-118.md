@@ -1,2 +1,0 @@
-Artículo 118°- La amonestación verbal relacionada con aspectos disciplinarios ajenos a la asistencia corresponderá imponerla al superior inmediato. Las advertencias o amonestaciones por asistencia, por falta grave o muy grave así como las suspensiones sin goce de salario por motivos de asistencia u otros las aplicará la Unidad de Recursos Humanos.
-El trámite de despido lo ejercerá el máximo jerarca.

@@ -1,2 +1,0 @@
-Artículo 38º—La justificación de omisiones de marca, tardías, ausencias o cualquier irregularidad en la asistencia, deberá realizarse ante el superior inmediato a más tardar el segundo día hábil después de sucedido el hecho y ante el Departamento de Recursos Humanos al tercer día hábil después de cometida la falta.
-(Asi reformado mediante artículo 1° del decreto ejecutivo N° 33825 del 28 de mayo de 2007).

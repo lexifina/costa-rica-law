@@ -1,1 +1,0 @@
-Artículo 69°- El Ministro podrá conceder licencia o permiso con goce de sueldo hasta por tres meses para estudio en el exterior o para participar en seminarios o visitas de observación para aprovechamiento cuando se determine que ello habrá de representar indudable beneficio para el Ministerio. En caso de que se exceda de los tres meses, ha de realizarse el respectivo contrato.

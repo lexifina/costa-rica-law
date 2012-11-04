@@ -1,1 +1,0 @@
-Articulo 27°- Los servidores del Ministerio están obligados al desempeño de sus cargos durante los días hábiles y las horas reglamentarias y no se podrá por lo mismo conceder privilegios, prerrogativas o licencia alguna que autorice una asistencia irregular, excepto lo establecido específicamente en este Reglamento y las demás disposiciones aplicables.

@@ -1,1 +1,0 @@
-Artículo 71°- En caso de que el servidor tenga un contrato de estudio y repruebe una o más materias comprendidas en el contrato el servidor deberá reintegrar al Estado el monto correspondiente de los salarios percibidos durante el tiempo que se le concedió la licencia de estudio. Dicho trámite estará a cargo del Área Administrativa Financiera.

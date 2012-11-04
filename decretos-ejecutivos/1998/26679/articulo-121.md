@@ -1,1 +1,0 @@
-Artículo 121°- Las gestiones de los funcionarios de acuerdo con el artículo anterior, deberán ser planteadas por escrito y resueltas dentro de los ocho días hábiles siguientes. Podrán hacerlo verbalmente cuando así lo exija la urgencia de una resolución o la menor importancia del asunto.

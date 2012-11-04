@@ -1,2 +1,0 @@
-Artículo 64°- Para la revalidación de los contratos para estudios, al concluirse cada ciclo académico, el interesado deberá demostrar que sus calificaciones lo hacen merecedor de la prórroga de la licencia.
-Se tomará en cuenta asimismo, la calificación anual de servicios obtenida por el solicitante. El Ministro no aprobará nuevo contrato de licencia para estudios si el servidor ha omitido presentar la certificación sobre las calificaciones obtenidas durante el curso lectivo anterior o si el funcionario fuere reprobado en dos o más asignaturas.

@@ -1,1 +1,0 @@
-Artículo 4º- De los encargados de aplicar el Reglamento. Los Coordinadores de Área o Unidad o y Sección y en general todos aquellos servidores que tengan bajo su responsabilidad tareas de administración o supervisión de personal aún temporalmente, son responsables ante el Ministerio de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

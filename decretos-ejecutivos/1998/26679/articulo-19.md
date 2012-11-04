@@ -1,1 +1,0 @@
-Artículo 19°- Los funcionarios regulares del Ministerio tendrán la posibilidad a que se les brinde la debida capacitación y adiestramiento complementarios, mediante cursos, seminarios, becas, etc., por medio de la unidad respectiva. Esta deberá hacer del conocimiento de todos los funcionarios, en su oportunidad, las posibilidades mencionadas.

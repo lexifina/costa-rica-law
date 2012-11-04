@@ -1,4 +1,0 @@
-Artículo 29°- El trabajo extraordinario, tanto después de la jornada ordinaria como durante los días feriados y de descanso semanal, sólo podrá autorizarse en situaciones excepcionales cuando sea indispensable satisfacer exigencias improrrogables del servicio público, de conformidad con lo que establece el artículo 17 de la Ley de Salarios de la Administración Pública.
-No se reconocerá en ningún caso el trabajo extraordinario ejecutado sin la autorización previa y expresa del respectivo Coordinador, así como a errores de los cuales sólo el trabajador fuere responsable.
-Para reconocer el trabajo extraordinario es necesario la autorización previa de la Comisión de Recursos Humanos de la Dirección General de Servicio Civil, la cual es solicitada por el Área Administrativa Financiera, previa autorización del Coordinador respectivo.
-La jornada ordinaria sumada a la extraordinaria, no podrá exceder de doce horas diarias excepto situaciones muy especiales e imprevisibles.

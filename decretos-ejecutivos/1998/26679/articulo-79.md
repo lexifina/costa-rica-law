@@ -1,1 +1,0 @@
-Artículo 79°- Al acordarse un recargo total de funciones, por no menos de un mes, el Sustituto, tendrá derecho a recibir su salario de acuerdo al salario base del puesto de categoría superior, si éste fuere mayor, siempre y cuando reúna los requisitos respectivos.

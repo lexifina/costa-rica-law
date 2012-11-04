@@ -1,1 +1,0 @@
-Artículo 63°- Las licencias concedidas de acuerdo con lo anteriormente dispuesto lo serán únicamente por el tiempo necesario para concurrir a lecciones, debiéndose asistir al trabajo durante los períodos o los días libres que conceda el respectivo centro educacional.

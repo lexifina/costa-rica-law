@@ -1,1 +1,0 @@
-Artículo 81°- El servidor del Ministerio que deba trasladarse en funciones propias de su cargo, se le pagarán los viáticos conforme lo establece el Reglamento de gastos de viaje y transporte para funcionarios o empleados del Estado. Los viáticos no se considerarán salario para ningún efecto legal.

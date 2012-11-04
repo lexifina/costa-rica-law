@@ -1,1 +1,0 @@
-Artículo 91°- La persona ofendida podrá poner en consideración del señor Ministro su reubicación temporal en la Institución en cualquier momento del proceso. El señor Ministro resolverá en única instancia la procedencia de la reubicación temporal solicitada.

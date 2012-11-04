@@ -1,1 +1,0 @@
-Artículo 67°- En casos muy especiales, no sujetos a las anteriores disposiciones, podrán concederse licencias sin goce de sueldo para realizar estudios, reservándose el Ministro el derecho de cancelarlas en cualquier momento que lo estime necesario.

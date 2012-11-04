@@ -1,1 +1,0 @@
-Artículo 33°- En todos los casos de los días feriados cuya jornada haya sido laborada previamente en jornada acumulativa el Ministerio reconocerá el descanso correspondiente adicionándolo a su período de vacaciones.

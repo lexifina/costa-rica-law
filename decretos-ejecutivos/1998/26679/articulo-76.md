@@ -1,1 +1,0 @@
-Artículo 76°- Para llenar una plaza vacante temporal la administración podrá recurrir a lo que dispone el artículo 15 del Reglamento al Estatuto, así como a los ubicados en otros ministerios, en el registro de elegibles o en los archivos de la Administración, escogiendo a la persona más idónea para el cargo.

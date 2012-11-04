@@ -1,1 +1,0 @@
-Artículo 113°- La amonestación verbal corresponderá imponerla al superior inmediato cuando el trabajador en forma expresa o tácita, incurra en alguna falta leve a las obligaciones de su relación de servicio en los artículos 10, 11 excepto los incisos 22), 24) los cuales tienen sanción establecida, el artículo 12 excepto el inciso 11), y el artículo 13.

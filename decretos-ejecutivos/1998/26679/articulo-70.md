@@ -1,1 +1,0 @@
-Artículo 70°- Podrá concederse licencia o permiso con goce de sueldo para viajes al exterior con motivo de presentación oficial del Ministerio o de alguna otra institución, siempre que este último caso el Ministerio derive algún beneficio y autorización del Ministerio.

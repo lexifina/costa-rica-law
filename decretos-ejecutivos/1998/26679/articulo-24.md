@@ -1,1 +1,0 @@
-Artículo 24°- El Ministerio podrá autorizar a los coordinadores y al Área Administrativa para que de común acuerdo con los servidores puedan modificar la jornada ordinaria de trabajo, siempre y cuando no se cause perjuicio al servicio público ni a la duración de la misma, previa notificación a quien corresponda de conformidad con el artículo anterior.

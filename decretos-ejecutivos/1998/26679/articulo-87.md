@@ -1,1 +1,0 @@
-Artículo 87°- El jefe inmediato será responsable de la calificación que dé a sus subalternos y del seguimiento del proceso que lleve a establecer las necesidades de capacitación y otros aspectos necesarios para el mejoramiento del desempeño de los servidores.

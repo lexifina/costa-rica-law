@@ -1,1 +1,0 @@
-Artículo 85°- No obstante lo indicado en el artículo anterior el Ministerio tendrá un sistema interno de control y evaluación, cuyos parámetros servirán para realizar la calificación anual del funcionario.

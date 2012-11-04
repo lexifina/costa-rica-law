@@ -1,1 +1,0 @@
-Artículo 40°- No obstante lo dispuesto en el artículo anterior, no se considerará como falta si el servidor que marcó la tarjeta de otro por error evidente o aquel al que se la marcaron informa el hecho ante la Unidad de Recursos Humanos o funcionario encargado de la vigilancia a más tardar en la siguiente mitad de jornada que le tocare laborar.

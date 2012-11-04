@@ -1,1 +1,0 @@
-Artículo 35°- El control de la entrada y salida de tiempo destinado al almuerzo, queda bajo responsabilidad de cada coordinador, quien establecerá los mecanismos necesarios de manera que no se ocasione menoscabo en la presentación del servicio. Quedará a juicio del Coordinador respectivo, determinar que el mencionado control se registre por medio del reloj marcador.

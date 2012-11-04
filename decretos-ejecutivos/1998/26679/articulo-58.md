@@ -1,1 +1,0 @@
-Artículo 58°- Los permisos sin goce de salario de conformidad con el artículo 33 del Reglamento al Estatuto correrán automáticamente la fecha en que el servidor cumple las 50 semanas que le dan derecho al disfrute de sus vacaciones.

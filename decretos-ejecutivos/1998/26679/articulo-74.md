@@ -1,1 +1,0 @@
-Artículo 74°- Para utilizar las plazas que quedan vacantes en este Ministerio y realizar los demás movimientos de personal, se seguirá lo que al efecto señala el Estatuto de Servicio Civil y su Reglamento u otras disposiciones normativas.

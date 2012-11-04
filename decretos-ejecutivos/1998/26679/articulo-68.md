@@ -1,1 +1,0 @@
-Artículo 68°- Las licencias para asistir a cursos de adiestramiento o capacitación mediante el otorgamiento de becas y otras facilidades, se regularán por las disposiciones de la Ley 1810 del 15 de octubre de 1954, Ley 3009 de 18 de julio de 1962 y su Reglamento así como las normas que al efecto dicte el Ministerio.

@@ -1,1 +1,0 @@
-Artículo 95°- Transcurrido el plazo de los cinco días hábiles, el órgano Director hará comparecer a las partes recibiendo los distintos medios de prueba pertinentes así como las respectivas declaraciones.

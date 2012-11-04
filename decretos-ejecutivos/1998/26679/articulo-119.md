@@ -1,2 +1,0 @@
-Artículo 119°- La advertencia escrita, la suspensión y el despido requerirá para su aplicación el derecho de defensa del afectado, abriéndose el procedimiento sumario disciplinario correspondiente, contando el responsable de aplicar la sanción con un mes para hacerlo, contados desde que se cometió la falta o desde que se tuvo conocimiento de la misma.
-Las sanciones disciplinarias por irregularidades en la asistencia de los servidores deberán ser impuestas durante el mes siguiente a aquel en que se cometió el hecho.

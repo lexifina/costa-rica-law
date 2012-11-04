@@ -1,1 +1,0 @@
-Artículo 124°- Los funcionarios que el Ministerio nombre en plazas de confianza, estarán al servicio del Despacho Ministerial. Su relación de servicio pertenece al Régimen de Méritos será regulada de conformidad con lo que dictados de la Dirección General de Servicio Civil.

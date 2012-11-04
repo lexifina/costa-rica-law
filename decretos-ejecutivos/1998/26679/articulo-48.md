@@ -1,1 +1,0 @@
-Artículo 48°- En todos los casos el servidor deberá notificar lo antes posible a su superior inmediato o coordinador, verbalmente o por fuerza mayor, no deberá, esperar hasta el segundo día de ausencia para notificarlo. Dicho aviso por si solo no justifica la ausencia, el empleado deberá comprobar ante su superior la justa causa de la misma.

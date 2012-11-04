@@ -1,2 +1,0 @@
-Artículo 78°- El Departamento de Recursos Humanos revisará y modificará los salarios mínimos que sean variados por el Poder Ejecutivo, a fin de que ningún trabajador perciba una suma inferior ni superior al sueldo que le corresponde.
-A la vez realizará las gestiones correspondientes ante la Dirección General de Servicio Civil y la Oficina de Presupuesto Nacional, para que los salarios mínimos se reconozcan lo más pronto posible.

@@ -1,2 +1,0 @@
-Artículo 39°- El servidor que intencionalmente marcare una tarjeta que no le corresponde, incurrirá en falta grave a sus obligaciones haciéndose acreedor, por la primera vez, a suspensión disciplinaria hasta por ocho días, y en caso de reincidencia, al despido sin responsabilidad para el Ministerio.
-La misma sanción se le aplicará al servidor que se le comprueba haber consentido que otra persona le marcará su tarjeta de registro

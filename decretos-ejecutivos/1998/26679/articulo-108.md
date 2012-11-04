@@ -1,1 +1,0 @@
-Artículo 108°- Todo lo relacionado con infracciones o sanciones será tramitado por la Unidad de Recursos Humanos en coordinación con el Área Administrativa Financiera a excepción de la amonestación verbal y escrita que corresponderá al Superior inmediato. El trámite de despido lo ejercerá el máximo Jerarca.
