@@ -1,1 +1,0 @@
-Artículo 19.—En casos de excepción que resulten de conveniencia institucional, la Comisión podrá aprobar, en forma extraordinaria, concursos para becas o facilidades, siempre y cuando la divulgación de las bases que rigen el respectivo concurso se haya hecho, por lo menos, con 48 horas de anticipación.

@@ -1,1 +1,0 @@
-Artículo 21.—El superior que se oponga a que alguno de sus colaboradores sea beneficiado con una beca o facilidad deberá presentar sus objeciones por escrito a la Unidad de Recursos Humanos, indicando las razones de su negativa. Por su parte, el colaborador podrá llevar el caso a las instancias superiores del Ministerio.

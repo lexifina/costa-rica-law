@@ -1,5 +1,0 @@
-Artículo 20.—Para que un servidor se haga acreedor de una Beca o facilidad debe cumplir con los siguientes requisitos:
-a) Ser funcionario del Ministerio y haber prestado sus servicios en forma ininterrumpida durante un periodo no inferior al año. Sin embargo, cuando deban ser evaluados servidores interinos, o bien, servidores regulares con menos de un año de servicios, la comisión deberá tomar en cuenta el tiempo de servicio a la institución y el plazo de contratación pendiente, de manera que aquellos casos especiales puedan ser debidamente evaluados por la Comisión..
-b) No haber obtenido calificación de servicios inferior a Bueno, en los dos años anteriores a la concesión de la beca o facilidad.
-c) No haber sido sancionado por faltas disciplinarias cometidas durante los dos años anteriores a la concesión de la beca o facilidad.
-d) Presentar, con el visto bueno del superior inmediato, su solicitud para participar en el concurso de la beca o facilidad, en el formulario que para tal efecto, diseñe la Comisión.
