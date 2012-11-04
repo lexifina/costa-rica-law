@@ -1,5 +1,0 @@
-Artículo 9º—De la formulación del presupuesto. A más tardar en la primera semana de abril de cada año, todas las Direcciones, Departamentos u Unidades del Ministerio que requerirán laborar horas extras en el periodo presupuestario siguiente remitirán al Oficial Mayor y Director Administrativo una estimación de las horas y monto requerido. La Oficialía Mayor y Dirección Administrativa hará las estimaciones necesarias para la previsión presupuestaria, atendiendo lo requerido por las Direcciones y/o Departamentos, prioridades institucionales y disponibilidad de recursos. Esta información será traslada al Departamento de Recursos Humanos y a las diferentes Direcciones y/o Departamentos que requirieron la presupuestación de horas extras. La solicitud debe contener:
-a) Justificación razonada de la necesidad de realizar trabajos fuera de la jornada ordinaria,
-b) Descripción de las labores que se desarrollarán,
-c) Total de horas requeridas, monto y el periodo aproximado de duración del trabajo,
-d) Cantidad y nombres de los funcionarios que participarán en el trabajo.

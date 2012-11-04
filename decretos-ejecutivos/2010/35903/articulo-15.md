@@ -1,1 +1,0 @@
-Artículo 15.—El Departamento de Recursos Humanos no tramitará ninguna solicitud de horas extraordinarias no autorizadas por la Oficialía Mayor y Dirección Administrativa, Directores de Programa y que no cuente con el respectivo contenido presupuestario.
