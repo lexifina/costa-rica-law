@@ -14,3 +14,4 @@ Reglamento de Extranjería y Créa Día del Costarricense en el Exterior, cuyo f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-17 | la propia norma |
+| 2 | 2012-11-05 | Decreto Ejecutivo 37399 (2012-11-05) |
