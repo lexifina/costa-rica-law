@@ -1,0 +1,1 @@
+4º—Que el transportista internacional terrestre debe llegar a la Ventanilla Única de Tránsito con la DUT asociada al DUA e impresa, caso contrario deberá ingresar a un depósito aduanero en la jurisdicción de Peñas Blancas para que realice los trámites.

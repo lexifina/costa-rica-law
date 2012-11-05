@@ -1,0 +1,1 @@
+3º—Que para todas las exportaciones definitivas o temporales y las reexportaciones declaradas con aduana de control y aduana de salida Peñas Blancas, deberán declarar como código de lugar de ubicación de las mercancías en el DUA el habilitado para un depósito aduanero que pertenezca a la jurisdicción de dicha Aduana.
