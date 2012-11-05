@@ -1,1 +1,1 @@
-Artículo 10.—La competencia de la Comisión de Licitaciones terminará una vez que el acto de adjudicación se encuentre firme.
+Artículo 10.—Las actas de la Comisión deberán ser firmadas por la Presidencia y la Secretaria Ejecutiva de la Comisión.

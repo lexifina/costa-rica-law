@@ -1,1 +1,1 @@
-Artículo 11.—Rige a partir de su publicación en el Diario Oficial La Gaceta y deroga cualquier otra disposición administrativa anterior que se le oponga. Acuerdo Firme.
+Artículo 11.—La competencia de la Comisión de Licitaciones terminará una vez que el acto de adjudicación se encuentre firme.

@@ -14,3 +14,4 @@ Reglamento de la comisión de licitaciones del Servicio Nacional de Aguas Subter
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-27 | la propia norma |
+| 2 | 2012-11-05 | Reglamento 618 (2012-11-05) |
