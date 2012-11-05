@@ -14,3 +14,4 @@ Promulga como vigente el Acuerdo mediante canje de notas, sobre le desarrollo fr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-16 | la propia norma |
+| 2 | 2012-11-05 | Decreto Ejecutivo 37400 (2012-11-05) |

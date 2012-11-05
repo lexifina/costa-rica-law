@@ -1,5 +1,5 @@
 Nº 30678-RE
-EL PRESIDENTE DE LA REPÚBLICA
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 37400 del 5 de noviembre de 2012, se promulgó Acuerdo bajo la modalidad de Canje de Notas constituido mediante la nota diplomática de fecha 31 de octubre de 2012, mediante el cual se amplía el presente decreto, dicho acuerdo puede ser consultado aquí)
 Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO,
 POR CUANTO:
 Mediante la nota número 10-OAT del 31 de mayo de 2002 del señor Canciller Roberto Tovar Faja y la nota DGREI-DGN-92-02 del 6 de junio de 2002 (nota de respuesta) del señor Canciller José Miguel Alemán de la República de Panamá, se formalizó un Acuerdo por canje de notas sobre Desarrollo Fronterizo.
