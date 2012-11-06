@@ -1,3 +1,8 @@
-Perjurio.
-ARTÍCULO 311.-
-Se impondrá prisión de tres meses a dos años al que faltare a la verdad cuando la ley le impone bajo juramento o declaración jurada, la obligación de decirla con relación a hechos propios. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 309 al 311)
+TITULO XIII
+DELITOS CONTRA LA AUTORIDAD PÚBLICA
+SECCIÓN
+ÚNICA
+Atentado.
+Artículo 311.-Será reprimido con prisión de un mes a tres años el que empleare intimidación o fuerza contra un funcionario público para imponerle la ejecución u omisión de un acto propio de sus funciones.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 302 al 304)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 304 al 311)

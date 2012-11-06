@@ -1,6 +1,9 @@
-ARTÍCULO 404.-
-Las penas de multa que se apliquen en virtud de disposiciones consignadas en leyes especiales se transformarán en días multa, debiendo las autoridades juzgadoras establecer los reajustesnecesarios, de acuerdo con el nuevo concepto que se da a esta pena.
-(Así modificada la numeración de este artículo por el numeral 9 de ley Nº 7538 de 22 de agosto de 1995, que lo traspasó del 415 al 417)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasódel 417 al 419)
-NOTA: La Numeración de este artículo fue modificada por el artículo 2° de la Ley No. 8250 de 2 de mayo de 2002, que reforma integralmente el Libro Tercero de las Contravenciones, ordenando adecuar la numeración del artículado restante, pasando el artículo 419 a ser el artículo 402).
-(Así modificada la numeración de este artículo por el numeral 2 de la Ley N° 8272 de 2 de mayo de 2002, que lo traspasó del 402 al 404 actual).
+SECCIÓN IV
+VIGILANCIA DE ENAJENADOS
+Custodia ilegal de enajenados
+Artículo 404.- Será penado con diez a treinta días multa quien, sin dar aviso inmediatamente a la autoridad o sin autorización, reciba a personas con discapacidad intelectual o trastornos emocionales severos para custodiarlas. Igual pena se impondrá a quien, teniendo bajo su custodia a dichas personas, las dejare circular públicamente sin vigilancia.
+(Así reformado por el artículo 2 de la ley N° 8250 de 2 de mayo del 2002)
+(Así corrida su numeración por el artículo N° 9 de la “Ley Reforma Código Familia, Ley Orgánica del Patronato Nacional Infancia, Ley General Migración y Extranjería, Ley Orgánica del TSE y Registro Civil y Código Penal, para regular la adopción de personas “, Nº 7538 de 22 de agosto de 1995, que lo traspasó del antiguo artículo 391 al 393)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores; No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 393 al 395)
+(Así corrida su numeración por el artículo N° 2 de la “Ley Represión Penal como castigo por los Crímenes de Guerra y de Lesa Humanidad”, N° 8272 de 2 de mayo de 2002, que lo traspasó del antiguo artículo 395 al 397).
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 397 al 404)

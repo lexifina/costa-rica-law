@@ -1,1 +1,8 @@
-(NOTA: Este artículo quedó eliminado por la Ley N° 8250 de 2 de mayo de 2002, la cual reformó integralmente el Libro Tercero de las Contravenciones).
+Escapes inconvenientes de humo, vapor o gas
+Artículo 409.- Se impondrá de quince a doscientos días multa a los empresarios o industriales que no adoptaren las medidas convenientes para evitar los escapes de humo, vapor o gas que causen molestias al público o perjudiquen su salud, o no provean a la eliminación de desechos contaminantes del ambiente.
+Igual sanción se impondrá a los propietarios o arrendatarios de todos los vehículos automotores que no adopten las medidas necesarias para evitar los escapes de monóxido de carbono, humos y otras fuentes de contaminación atmosférica que ocasionen molestias al público o perjudiquen su salud.
+(Así reformado por el artículo 2 de la Ley No. 8250 de 2 de mayo de 2002).
+(Así corrida su numeración por el artículo N° 9 de la “Ley Reforma Código Familia, Ley Orgánica del Patronato Nacional Infancia, Ley General Migración y Extranjería, Ley Orgánica del TSE y Registro Civil y Código Penal, para regular la adopción de personas “, Nº 7538 de 22 de agosto de 1995, que lo traspasó del antiguo artículo 396 al 398)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores; No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 398 al 400)
+(Así corrida su numeración por el artículo N° 2 de la “Ley Represión Penal como castigo por los Crímenes de Guerra y de Lesa Humanidad”, N° 8272 de 2 de mayo de 2002, que lo traspasó del antiguo artículo 400 al 402).
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 402 al 409)

@@ -1,8 +1,4 @@
-Corrupción agravada.
-ARTÍCULO 342.-
-Si los hechos a que se refieren los dos artículos anteriores tuvieren como fin el otorgamiento de puestos públicos, jubilaciones, pensiones, o la celebración de contratos en los cuales esté interesada la administración a la que pertenece el funcionario, la pena de prisión será:
-1) En el caso del artículo 338*, de uno a cinco años;
-*(NOTA DE SINALEVI: debido a modificación efectuada por la ley No.7732 de 17 de diciembre de 1997, que corrió su numeración, el artículo 338 actualmente corresponde al 340).
-2) En el caso del artículo 339*, de tres a diez años.
-*(NOTA DE SINALEVI: debido a modificación efectuada por la ley No.7732 de 17 de diciembre de 1997, que corrió su numeración, el artículo 339 actualmente corresponde al 341).
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 340 al 342)
+Abandono del cargo.
+Artículo 342.- (Derogado por el artículo 1º de la ley Nº 7348 de 22 de junio de 1993)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores” No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 333 al 335)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 335 al 342)

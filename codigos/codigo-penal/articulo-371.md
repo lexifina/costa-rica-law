@@ -1,4 +1,4 @@
-Restauración fraudulenta de sellos.
-ARTÍCULO 371.-
-Será reprimido con prisión de seis meses a dos años, el que hiciere desaparecer de cualquiera de los sellos, timbres, marcas o contraseñas a que se refieren los artículos anteriores, el signo que indique haber ya servido o sido utilizado para el objeto de su expedición. En la misma pena incurrirá el que a sabiendas usare, hiciera usar o pusiere en venta los efectos inutilizados a que se refiere el párrafo anterior.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 369 al 371)
+Falsedad ideológica en certificados médicos.
+Artículo 371.-Se impondrá de cuarenta a ciento cincuenta días multa, al médico que extendiere un certificado falso, concerniente a la existencia, o inexistencia, presente o pasada de alguna enfermedad o lesión, cuando de ello pueda resultar perjuicio. La pena será de uno a tres años de prisión si el falso certificado tuviere por fin que una persona sana fuere recluida en un hospital psiquiátrico o en otro establecimiento de salud.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 362 al 364)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 364 al 371)

@@ -1,3 +1,5 @@
-Divulgación de secretos.
-ARTÍCULO 339.-
-Será reprimido con prisión de tres meses a dos años el funcionario público que divulgare hechos, actuaciones o documentos, que por la ley deben quedar secretos. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 337 al 339)
+Incumplimiento de deberes
+Artículo 339 Sera reprimido con pena de inhabilitación de uno a cuatro años, el funcionario público que ilegalmente omita, rehuse hacer o retarde algún acto propio de su función. Igual pena se impondrá al funcionario público que ilícitamente no se abstenga, se inhiba o se excuse de realizar un trámite, asunto o procedimiento, cuanto está obligado a hacerlo."
+(Así reformado por el artículo 11 de la “Ley para las Negociones Comerciales y la Administración de los Tratados de Libre Comercio, Acuerdos e Instrumentos de Comercio Exterior “, N° 8056 del 21 de diciembre del 2000)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores” No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 330 al 332)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 332 al 339)

@@ -1,10 +1,9 @@
-Apoderamiento ilícito o destrucción de aeronaves
-ARTÍCULO 260.-
-Será reprimido con prisión de cinco a quince años quien:
-a) Se apoderare, mediante violencia en las personas o en las cosas, o utilizando amenazas graves, de una aeronave que se encuentre en vuelo.
-b) Destruyere, mediante la utilización de armas, explosivos, provocación de explosión o incendio, una aeronave que se encuentre en vuelo o la carga que en ella se transporte.
-c) Cause daños que incapaciten la nave para el vuelo.
-(Así adicionado el inciso anterior por el artículo 1°, punto 2., aparte e) de la Ley de Fortalecimiento de la Legislación contra el Terrorismo, N° 8719 de 4 de marzo de 2009).
-La pena será de quince a veinticinco años de prisión cuando los hechos descritos en los incisos anteriores produzcan la muerte de personas o les causen lesiones graves o gravísimas. Si el autor desistiere voluntariamente de los hechos mencionados y en el intento o en el apoderamiento no se produjere daño a la aeronave ni a su carga, ni lesiones o muerte de alguna persona, la pena podrá ser reducida discrecionalmente por el juez, sin que pueda ser inferior a tres años de prisión. Para los fines del presente artículo, se considerará que una aeronave se encuentra en vuelo desde el momento en que se cierran todas las puertas externas después del embarque, hasta el momento en que se abra cualquiera de dichas puertas para el desembarque.
-(Así reformado por el artículo 1º de la ley Nº 6989 de 16 de julio de 1985).
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 258 al 260)
+Atentado contra plantas, conductores de energía y de comunicaciones.
+Artículo 260.-Se impondrán las penas establecidas por el artículo 255, aumentada en un tercio, al que creare peligro para la seguridad común:
+1) Atentado contra plantas, obras e instalaciones destinadas a la producción o transmisión de energía eléctrica o de sustancias energéticas;
+2) Atentado contra la seguridad de cualquier medio de telecomunicaciones; y
+3) Obstaculizando la reparación de desperfectos de las plantas, obras o instalaciones a que se refiere el inciso 1), o el restablecimiento de comunicaciones interrumpidas.
+Si de esos hechos se deriva un desastre, la pena será de prisión de tres a ocho años.
+Los hechos previstos por el presente artículo serán punibles con la pena establecida por el artículo 246, cuando sean ejecutados para impedir o dificultar las tareas de defensa o salvamento contra un desastre ocurrido.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 251 al 253)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 253 al 260)

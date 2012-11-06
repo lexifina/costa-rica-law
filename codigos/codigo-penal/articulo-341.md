@@ -1,4 +1,4 @@
-Cohecho propio.
-ARTÍCULO 341.-
-Será reprimido, con prisión de dos a seis años y con inhabilitación para el ejercicio de cargos y empleos públicos de diez a quince años, el funcionario público que por sí o por persona interpuesta, recibiere una dádiva o cualquier otra ventaja o aceptare la promesa directa o indirecta de una retribución de esa naturaleza para hacer un acto contrario a sus deberes o para no hacer o para retardar un acto propio de sus funciones. (Así reformado por el artículo 251 de la Ley Nº 7331 de 13 de abril de 1993)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 339 al 341)
+Requerimiento de fuerza contra actos legítimos.
+Artículo 341.- Será reprimido con prisión de tres meses a tres años, el funcionario público que requiriere la asistencia de la fuerza pública contra la ejecución de disposiciones u órdenes legales de la autoridad o de sentencias o de mandatos judiciales.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores” No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 332 al 334)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 334 al 341)

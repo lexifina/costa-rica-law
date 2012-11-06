@@ -1,3 +1,8 @@
-Demora injustificada de pagos ARTÍCULO 357.-
-Será reprimido con treinta a noventa días multa, el funcionario público que teniendo fondos expeditos, demorare injustificadamente un pago ordinario decretado por la autoridad competente o no observare en los pagos las prioridades establecidas por la ley o sentencias judiciales o administrativas. En la misma pena incurrirá el funcionario público que requerido por la autoridad competente, rehusare entregar una cantidad o efecto depositado o puesto bajo su custodia o administración.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 355 al 357)
+SECCIÓN IV
+PREVARICATO Y PATROCINIO INFIEL
+Prevaricato.
+Artículo 357.-Se impondrá prisión de dos a seis años al funcionario judicial o administrativo que dictare resoluciones contrarias a la ley o las fundare en hechos falsos.
+Si se tratare de una sentencia condenatoria en causa criminal, la pena será de tres a quince años de prisión.
+Lo dispuesto en el párrafo primero de este artículo será aplicable en su caso, a los árbitros y arbitradores.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 348 al 350)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 350 al 357)

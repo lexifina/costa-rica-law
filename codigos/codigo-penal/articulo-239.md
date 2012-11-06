@@ -1,6 +1,4 @@
-SECCION III
-Delitos Contra la Confianza Pública
-Ofrecimiento fraudulento de efectos de crédito.
+Quiebra culposa.
 ARTÍCULO 239.-
-Ofrecimiento fraudulento de efectos de crédito Quien ofrezca al público bonos de cualquier clase, acciones u obligaciones de sociedades mercantiles disimulando u ocultando hechos o circunstancias verdaderas o afirmando o haciendo entrever hechos o circunstancias falsas, será sancionado con pena de prisión de seis meses a dos años. La pena podrá ser aumentada hasta el doble, cuando se trate de oferta pública de valores.
-(Así reformado por el artículo 184 de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
+Se impondrá prisión de seis meses a dos años, e inhabilitación para ejercer el comercio, de uno a cinco años, al comerciante declarado en quiebra que haya determinado su propia insolvencia y perjudicado a sus acreedores por sus gastos excesivos con relación al capital, especulaciones ruinosas, juego, abandono de sus negocios o cualquier otro acto de negligencia o imprudencia manifiesta.
+(Así corrida su numeración por el artículo 3° de la Ley N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 232 al 239, "Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal")

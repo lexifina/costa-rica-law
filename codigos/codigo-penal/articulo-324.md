@@ -1,5 +1,5 @@
-Receptación de cosas de procedencia sospechosa.
-ARTÍCULO 324.- Receptación de cosas de procedencia sospechosa . Será reprimido con prisión de seis meses a cuatro años al que, sin promesa anterior al delito, recibiere cosas o bienes que de acuerdo con las circunstancias, debía presumir provenientes de un delito. Si el autor hiciere de ello un tráfico habitual, se le impondrá la respectiva medida de seguridad.
-(Corregido mediante Fe de Erratas publicada La Gaceta N° 234 de 24 de noviembre de 1971).
-(Así reformado por el artículo 19 de la “Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009”. La frase "Si el autor hiciere de ello un tráfico habitual, se le impondrá la respectiva medida de seguridad", había sido anulada por resolución de la Sala Constitucional N° 1052 del 8 de enero del 2009. Nótese que el voto de la Sala Constitucional es del 8 de enero del 2009 y la reforma de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 es del 4 de marzo de 2009, es decir de fecha posterior.)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 322 al 324)
+Soborno.
+Artículo 324.-Se impondrá prisión de seis meses a tres años al que ofreciere o prometiere una dádiva o cualquiera otra ventaja a una de las personas a que se refiere el artículo anterior, para que cometa falso testimonio, si la oferta o la promesa no fueren aceptadas o, siéndolo, la falsedad no fuere cometida.
+En caso contrario, son aplicables al sobornante las penas correspondientes al falso testigo.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 315 al 317)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 317 al 324)

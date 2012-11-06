@@ -1,4 +1,5 @@
-Violación de sellos.
-ARTÍCULO 312.-
-Será reprimido con prisión de tres meses a dos años, el que violare los sellos puestos por la autoridad sobre una cosa. Si el responsable fuere funcionario público y hubiere cometido el hecho con abuso de su cargo, el máximo de la pena se elevará hasta tres años.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 310 al 312)
+Artículo 312.-Resistencia
+Se impondrá prisión de un mes a tres años al que empleare intimidación o violencia contra un funcionario público o contra la persona que le prestare asistencia a requerimiento de aquel o en virtud de un deber legal, para impedir u obstaculizar la ejecución de un acto propio del legítimo ejercicio de sus funciones. La misma pena se impondrá a quien empleare fuerza contra los equipamientos policiales utilizados por la autoridad policial para realizar su labor.
+(Así reformado por el artículo 19 de la “Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal”, N° 8720 de 4 de marzo de 2009.)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 303 al 305)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 305 al 312)

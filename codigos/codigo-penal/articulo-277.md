@@ -1,7 +1,4 @@
-TITULO XI
-DELITOS CONTRA LA SEGURIDAD DE LA NACION
-SECCION I
-Actos de Traición.
-Traición.
-ARTÍCULO 277.-
-Será reprimido con prisión de cinco a diez años, todo costarricense que tomare armas contra la nación o se uniere a sus enemigos prestándoles ayuda o socorro. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 275 al 277)
+Violación de medidas sanitarias y violación de medidas para la prevención de epizootias o plagas vegetales.
+Artículo 277.-Será reprimido con prisión de uno a tres años, o de cincuenta a doscientos días multa, el que violare las medidas impuestas por la ley o por las autoridades competentes para impedir la introducción o propagación de una epidemia, y con prisión de uno a seis meses o de veinte a cien días multa, el que violare las medidas impuestas por la ley o por las autoridades competentes para impedir la introducción o propagación de una epizootia o de una plaga vegetal.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 268 al 270)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 270 al 277)

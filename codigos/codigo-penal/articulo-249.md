@@ -1,3 +1,4 @@
-ARTÍCULO 249.-
-Será reprimido con prisión de un mes a dos años, el que por culpa causare un desastre de los definidos en los artículos 244 y 245. La pena será de seis meses a tres años cuando concurra la circunstancia del inciso 1) del artículo 244 y de un año a cuatro años, cuando concurra la circunstancia del inciso 2) del mismo artículo. Fabricación o tenencia de materiales explosivos.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 247 al 249)
+Propaganda desleal.
+Artículo 249.-Será reprimido con treinta a cien días multa, al que, por maquinaciones fraudulentas, sospechas malévolas o cualquier medio de propaganda desleal, tratare de desviar en provecho propio o de un tercero la clientela de un establecimiento comercial o industrial.
+(Nota de Sinalevi: Mediante el artículo 60 de la Ley de Promoción de la Competencia Nº 7472 de 20 de diciembre de 1994 amplía este tipo penal al duplicar sus penas cuando la acción sea cometida en perjuicio de los consumidores, en los términos del artículo 2º de dicha ley. Además, indica dos supuestos más en que dichas penas se aplicarán, según el monto del daño causado o el número de productos o servicios transados)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 242 al 249)

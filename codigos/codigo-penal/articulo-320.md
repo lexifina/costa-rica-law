@@ -1,3 +1,4 @@
-Simulación de delito.
-ARTÍCULO 320.-
-Se impondrá prisión de un mes a dos años, al que falsamente afirmare ante la autoridad que se ha cometido un delito de acción pública o simulare los rastros de éste con el fin de inducir a la instrucción de un proceso para investigarlo. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 318 al 320)
+Violación de la custodia de cosas.
+Artículo 320.- Será reprimido con prisión de seis meses a cuatro años, el que sustrajere, ocultare, destruyere o inutilizare objetos destinados a servir de prueba ante la autoridad, registros o documentos confiados a la custodia de un funcionario o de otra persona, en el interés del servicio público.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 311 al 313)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 313 al 320)

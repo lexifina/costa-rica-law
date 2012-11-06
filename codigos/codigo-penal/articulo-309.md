@@ -1,2 +1,4 @@
-Artículo 309.—Amenaza a un funcionario público. Será reprimido con prisión de un mes a dos años quien amenazare a un funcionario público a causa de sus funciones, dirigiéndose a él personal o públicamente, o mediante comunicación escrita, telegráfica o telefónica o por la vía jerárquica. (Así reformado por Ley N° 8224 de 13 de marzo del 2002, que deroga el tipo penal de Desacato)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 307 al 309)
+Infracción al deber de resistencia.
+Artículo 309.-Serán reprimidos con prisión de un mes a dos años, los funcionarios públicos que no hubieren resistido una rebelión o motín por todos los medios legales a su alcance.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 300 al 302)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 302 al 309)

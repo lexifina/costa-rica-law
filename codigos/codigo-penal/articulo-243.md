@@ -1,8 +1,8 @@
-Libramiento de cheques sin fondo.
-ARTÍCULO 243.-
-Será reprimido con prisión de seis meses a tres años, o con sesenta a cien días multa, el que librare un cheque, si concurren las siguientes circunstancias y el hecho no constituye el delito contemplado en el artículo 221:
-1) Si lo girare sin tener provisión de fondos o autorización expresa del banco, y si fuere girado para hacerlo en descubierto;
-(Corregido el inciso anterior mediante Fe de Erratas publicada en La Gaceta N° 102 del 27 de mayo del 1982. Posteriormente fue anulada por Resolución de la Sala Constitucional Nº 2994-92 de las 14:55 horas del 6 de octubre de 1992, por lo que dicho inciso conserva la redacción dada por la reforma hecha por la ley N° 6726 del 10 de marzo de 1982).
-2) Si diese contraorden de pago, fuera de los casos en que la ley autoriza para ello;
-3) Si lo hiciere a sabiendas de que al tiempo de su presentación no podrá ser legalmente pagado.
-En todo caso el librador deberá ser informado personalmente de la falta de pago, mediante acta notarial, o por medio de la autoridad que conozca del proceso. Quedará exento de pena, si abonare el importe del cheque dentro de los cinco días siguientes a la notificación. ( Así reformado por el artículo 1º de la ley Nº 6726 de 10 de marzo de 1982 ).
+SECCIÓN II
+USURA Y AGIOTAJE
+Usura.
+Artículo 243.-Será reprimido con prisión de seis meses a dos años o con veinte a ochenta días multa, el que, aprovechado la necesidad, la ligereza o la inexperiencia de una persona, le hiciere dar o prometer cualquier ventaja pecuniaria evidentemente desproporcionada con su prestación, u otorgar garantías de carácter extorsivo. La misma pena es aplicable al que a sabiendas adquiriese o hiciere valer un crédito usurario.
+La pena será de nueve meses a tres años o de treinta a cien días multa, cuando el delito fuere cometido por quien, hallándose dedicado habitualmente al negocio de préstamo o arrendamiento de dinero con garantía personal o prendaria, sobre sueldos o salarios no llevare libros de contabilidad conforme a las exigencias legales o no presentare para su inscripción en el Registro de Prendas, en los casos en que éstas se constituyan en documento público o en que el acreedor no renuncie al privilegio prendario, el documento en que consta la operación dentro de un plazo no mayor de sesenta días posteriores a la fecha en que se constituyó el contrato.
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 234 de 24 de noviembre de 1971).
+(Nota de Sinalevi: Mediante el artículo 60 de la Ley de Promoción de la Competencia; Nº 7472 de 20 de diciembre de 1994 amplía este tipo penal al duplicar sus penas cuando la acción sea cometida en perjuicio de los consumidores, en los términos del artículo 2º de dicha ley. Además, indica dos supuestos más en que dichas penas se aplicarán, según el monto del daño causado o el número de productos o servicios transados)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 236 al 243)

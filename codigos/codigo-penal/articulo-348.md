@@ -1,7 +1,5 @@
-SECCION III
-Concusión y Exacción
-Concusión.
-ARTÍCULO 348.-
-Se impondrá prisión de dos a ocho años, el funcionario público que, abusando de su calidad o de sus funciones, obligare o indujere a alguien a dar o prometer indebidamente, para sí o para un tercero, un bien o un beneficio patrimonial.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 234 de 24 de noviembre de 1971).
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 346 al 348)
+Cohecho propio.
+Artículo 348.-Será reprimido, con prisión de dos a seis años y con inhabilitación para el ejercicio de cargos y empleos públicos de diez a quince años, el funcionario público que por sí o por persona interpuesta, recibiere una dádiva o cualquier otra ventaja o aceptare la promesa directa o indirecta de una retribución de esa naturaleza para hacer un acto contrario a sus deberes o para no hacer o para retardar un acto propio de sus funciones.
+(Así reformado por el artículo 251 de la “Ley de Tránsito por Vías Públicas Terrestres”, Nº 7331 de 13 de abril de 1993)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores” No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 339 al 341)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 341 al 348)

@@ -1,10 +1,8 @@
-SECCION II
-Delitos Contra los Medios de Transporte y de Comunicaciones
-Peligro de naufragio y de desastre aéreo.
-Artículo 251.-
-Será reprimido con prisión de dos a seis años quien, a sabiendas, ejecute cualquier acto que ponga en peligro la seguridad de una nave, construcción flotante o un transporte aéreo.
-Si el hecho produce naufragio, varamiento o desastre aéreo, la pena será de seis a doce años de prisión.
-Si el accidente causa lesión a alguna persona, la pena será de seis a quince años de prisión y si ocasiona la muerte, será prisión de ocho a dieciocho años.
-Las disposiciones precedentes se aplicarán, aunque la acción recaiga sobre una cosa propia, las instalaciones de un puerto marítimo o fluvial o un aeropuerto, si el hecho constituye peligro para la seguridad común.”
-(Así reformado por el artículo 1°, punto 1., aparte d) de la Ley de Fortalecimiento de la Legislación contra el Terrorismo, N° 8719 de 4 de marzo de 2009).
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 249 al 251)
+SECCIÓN IV
+Delitos Bursátiles
+(Así adicionada esta Sección por el artículo 185, inciso a), de la Ley Reguladora del Mercado de Valores; No.7732 de 17 de diciembre de 1997. Además, ordena correr la numeración del articulado subsiguiente, pasando el antiguo artículo 244 a ser el 246 y así sucesivamente hasta el 419, que pasó a ser el 421)
+Manipulación de precios del mercado
+Artículo 251.-Será sancionado con pena de prisión de tres a ocho años, quien con el ánimo de obtener un beneficio para sí o para un tercero, o de perjudicar a otro participante del mercado, haga subir, bajar o mantener el precio de valores negociables en bolsa, mediante la afirmación o simulación de hechos o circunstancias falsas o la deformación u ocultamiento de hechos o circunstancias verdaderas, de modo que induzca a error sobre las características esenciales de la inversión o las emisiones.
+(Así adicionado por el inciso a) del artículo 185, de la Ley Reguladora del Mercado de Valores; No.7732 de 17 de diciembre de 1997.
+(El anterior artículo 244 es ahora 246)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 244 al 251)

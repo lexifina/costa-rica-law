@@ -1,7 +1,4 @@
-Propagación de enfermedad.
-ARTÍCULO 264.-
-Propagación de enfermedades infecto-contagiosas Se impondrá prisión de tres a dieciséis años a quien conociendo que está infectado con alguna enfermedad infecto-contagiosa que implica grave riesgo para la vida, la integridad física o la salud, infecte a otra persona, en las siguientes circunstancias:
-a) Donando sangre o sus derivados, semen, leche materna, tejidos u órganos. b) Manteniendo relaciones sexuales con otra persona sin informarle de la condición de infectado.
-c) Utilizando un objeto invasivo, cortante o de punción que haya usado previamente en él.
-(Así reformado por el artículo 51 de la Ley General del VIH-Sida No.7771 de 29 de abril de 1998)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 262 al 264)
+Abandono de servicio de transporte.
+Artículo 264.- Serán reprimidos con prisión de un mes a un año o de diez a sesenta días multa, si el hecho no importare un delito más severamente penado, los conductores, capitanes, pilotos y mecánicos de un tren, un buque o de una aeronave, o de cualquier vehículo destinado al transporte remunerado de personas, que abandonaren sus puestos durante sus servicios respectivos antes del término del viaje.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 255 al 257)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 257 al 264)

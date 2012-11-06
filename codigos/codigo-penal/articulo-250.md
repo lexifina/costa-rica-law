@@ -1,5 +1,9 @@
-ARTÍCULO 250.-
-Será reprimido con prisión de cuatro a ocho años el que, con el fin de contribuir a la comisión de delitos, fabricare, suministrare, adquiriere, sustrajere o tuviere bombas o materiales explosivos, inflamables, asfixiantes o tóxicos, o sustancias o materiales destinados a su preparación. La misma pena se impondrá al que, sabiendo o debiendo presumir que contribuye a la comisión de delitos, diere instrucciones para la preparación de las sustancias o materiales a que se refiere el párrafo anterior.
-Se le impondrá prisión de dos a cuatro años a quien tuviere en su poder, para fines distintos a los señalados, sin autorización de las autoridades correspondientes, los materiales indicados en el párrafo primero del presente artículo.
-(Así reformado por el artículo 1º de la ley No. 6989 de 16 de julio de 1985)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 248 al 250)
+Libramiento de cheques sin fondo.
+Artículo 250.-Será reprimido con prisión de seis meses a tres años, o con sesenta a cien días multa, el que librare un cheque, si concurren las siguientes circunstancias y el hecho no constituye el delito contemplado en el artículo 221:
+1) Si lo girare sin tener provisión de fondos o autorización expresa del banco, y si fuere girado para hacerlo en descubierto;
+(Corregido el inciso anterior mediante Fe de Erratas publicada en La Gaceta N° 102 del 27 de mayo del 1982. Posteriormente fue anulada por Resolución de la Sala Constitucional Nº 2994-92 de las 14:55 horas del 6 de octubre de 1992, por lo que dicho inciso conserva la redacción dada por la reforma hecha por la ley N° 6726 del 10 de marzo de 1982).
+2) Si diese contraorden de pago, fuera de los casos en que la ley autoriza para ello;
+3) Si lo hiciere a sabiendas de que al tiempo de su presentación no podrá ser legalmente pagado.
+En todo caso el librador deberá ser informado personalmente de la falta de pago, mediante acta notarial, o por medio de la autoridad que conozca del proceso. Quedará exento de pena, si abonare el importe del cheque dentro de los cinco días siguientes a la notificación.
+(Así reformado por el artículo 1º de la ley Nº 6726 de 10 de marzo de 1982).
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 243 al 250)

@@ -1,5 +1,4 @@
-ARTÍCULO 370.-
-Será reprimido con prisión de seis meses a tres años;
-1) El que falsificare marcas, contraseñas o firmas oficialmente usadas para contrastar pesas o medidas, identificar cualquier objeto o certificar su calidad, cantidad o contenido y el que los aplicare a objetos distintos de aquéllos a que debían ser aplicados. 2) El que falsificare billetes de empresas públicas de transporte; y
-3) El que falsificare, alterare o suprimiere la numeración individualizadora de un objeto, registrada de acuerdo con la ley por razones de seguridad o fiscales.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 368 al 370)
+Documentos equiparados.
+Artículo 370.-Será reprimido con las penas señaladas en el artículo 357 el que ejecutare cualquiera de los hechos reprimidos en dicho artículo o en el artículo 360 en un testamento cerrado, en un cheque, sea oficial o giro, en una letra de cambio, en acciones u otros documentos o títulos de créditos transmisibles por endoso o al portador.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 361 al 363)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 363 al 370)

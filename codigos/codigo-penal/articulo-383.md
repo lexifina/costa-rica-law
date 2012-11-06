@@ -1,5 +1,7 @@
-Mendicidad
-Artículo 383.—Se impondrá pena de diez a sesenta días multa, a quien enviare a mendigar a un menor de edad o incapaz confiado a su potestad, cuidado, protección o vigilancia.
-(Así reformado por el artículo 2 de la Ley No. 8250 de 2 de mayo de 2002).
-(Así modificada la numeración de este artículo por el numeral 9 de ley Nº 7538 de 22 de agosto de 1995, que lo traspasó del 377 al 379) (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 379 al 381)
-(Así mofidificada la numeración de este artículo por el numeral 2 de la Ley N° 8272 de 2 de mayo de 2002, que lo traspasó del 381 al 383 actual).
+Pena por tráfico de menores para adopción.
+Artículo 383.- Pena por tráfico de personas menores Se impondrá prisión de dos a cuatro años a quien venda, promueva o facilite la venta de una persona menor de edad y perciba por ello cualquier tipo de pago, gratificación, recompensa económica o de otra naturaleza. Igual pena se impondrá a quien pague, gratifique o recompense con el fin de recibir a la persona menor de edad.
+La prisión será de cuatro a seis años cuando el autor sea un ascendiente o pariente hasta el tercer grado de consanguinidad o afinidad, el encargado de la guarda, custodia o cualquier persona que ejerza la representación de la persona menor de edad. Igual pena se impondrá al profesional o funcionario público que venda, promueva, facilite o legitime por medio de cualquier acto la venta de la persona menor. Al profesional y al funcionario público se le impondrá también inhabilitación de dos a seis años para el ejercicio de la profesión u oficio en que se produjo el hecho.
+(Así adicionado por el artículo 9° de la ley N° 7538 del 22 de agosto de 1995).
+(Así corrida su numeración por el artículo 185 de la ley N° 7732 del 17 de diciembre de 1997, que lo traspasó del anterior artículo 374 al 376 actual).
+(Así reformado por el artículo único de la ley N° 7999 del 05 de mayo del 2000).
+(Así corrida su numeración por el artículo 3° de la Ley N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 376 al 383,"Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal")

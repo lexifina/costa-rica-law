@@ -1,4 +1,4 @@
-Publicación y autorización de balances falsos.
+Responsabilidad de personeros legales.
 ARTÍCULO 240.-
-El fundador, director, administrador, gerente, apoderado, síndico o fiscal de una sociedad mercantil o cooperativa o de otro establecimiento comercial que, a sabiendas, publique o autorice un balance, una cuenta de ganancias y pérdidas o las correspondientes memorias, falsos o incompletos, será sancionado con la pena de prisión de seis meses a dos años. La pena podrá ser aumentada hasta el doble, cuando se trate de una entidad que realiza oferta pública de valores.
-(Así reformado por el inciso b) del artículo 184 de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
+Serán reprimidos con las penas contempladas en los dos artículos anteriores y cuando les sean imputados los hechos en ellos previstos: los directores, administradores, gerentes, apoderados o liquidadores de las sociedades mercantiles declaradas en quiebra, así como los tutores o curadores que ejerzan el comercio en nombre de menores o incapacitados.
+(Así corrida su numeración por el artículo 3° de la Ley N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 233 al 240, "Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal")

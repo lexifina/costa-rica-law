@@ -1,3 +1,5 @@
-Documentos equiparados.
-ARTÍCULO 363.-
-Será reprimido con las penas señaladas en el artículo 357 el que ejecutare cualquiera de los hechos reprimidos en dicho artículo o en el artículo 360 en un testamento cerrado, en un cheque, sea oficial o giro, en una letra de cambio, en acciones u otros documentos o títulos de créditos transmisibles por endoso o al portador. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 361 al 363)
+Malversación
+Artículo 363.- Malversación. Serán reprimidos con prisión de uno a ocho años, el funcionario público, los particulares y los gerentes, administradores o apoderados de las personas jurídicas privadas, beneficiarios, subvencionados, donatarios o concesionarios que den a los caudales, bienes, servicios o fondos que administren, custodien o exploten por cualquier título o modalidad de gestión, una aplicación diferente de aquella a la que estén destinados. Si de ello resulta daño o entorpecimiento del servicio, la pena se aumentará en un tercio.
+(Así reformado por el artículo 64 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, N° 8422 , de 6 de octubre de 2004).
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 354 al 356)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 356 al 363)

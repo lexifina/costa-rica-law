@@ -1,3 +1,4 @@
-Revelación por culpa.
-ARTÍCULO 287.-
-Será reprimido con prisión de un mes a un año al que, por culpa, revelare hechos o datos o diere a conocer los secretos mencionados en el artículo precedente, de los que se hallare en posesión en virtud de su empleo, oficio o de un contrato oficial. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 285 al 287)
+Traición cometida por extranjeros
+Artículo 287.- Las disposiciones precedentes son aplicables a los extranjeros residentes en territorio costarricense, salvo lo establecido por los tratados ratificados por Costa Rica o por el derecho internacional acerca de los funcionarios diplomáticos y de los nacionales de los países en conflicto. Las penas respectivas podrán ser, en todo caso, prudencialmente rebajadas por el Juez.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 278 al 280)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 280 al 287)

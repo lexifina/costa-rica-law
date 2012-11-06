@@ -1,3 +1,4 @@
-Intimidación pública.
-ARTÍCULO 275.-
-Será reprimido con prisión de seis meses a cuatro años, el que, para infundir un temor público o suscitar tumultos o desórdenes, hiciere señales, diere gritos de alarma, provocare estruendos o amenazare con un desastre de peligro común. Si a consecuencia del tumulto provocado resultare grave daño o la muerte de alguna persona, la pena se elevará a seis años de prisión. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 273 al 275)
+Formas agravadas.
+Artículo 275.-La pena será de uno a cinco años de prisión, cuando esas sustancias, estupefacientes o enervantes sean proporcionadas indebidamente a un menor de dieciocho años.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 266 al 268)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 268 al 275)

@@ -1,11 +1,8 @@
-SECCIÓN II
-Protección a menores
-Artículo 382.—Se impondrá de diez a sesenta días multa a las siguientes personas:
-Castigos inmoderados a los hijos
-1) Los padres de familia, tutores o guardadores de menores que los castigaren en forma inmoderada o trataren de entregarlos a otra persona o establecimiento público, con el fin de evadir las responsabilidades inherentes a su deber legal, o los expusieren a la corrupción.
-Exposición de menores a peligro
-2) Quien tuviere bajo su cuidado a un menor y lo expusiere a cualquier peligro predecible o evitable.
-(Así reformado por el artículo 2 de la Ley No. 8250 de 2 de mayo de 2002).
-(Así modificada la numeración de este artículo por el numeral 9 de ley Nº 7538 de 22 de agosto de 1995, que lo traspasó del 376 al 378)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 378 al 380).
-(Así mofidificada la numeración de este artículo por el numeral 2 de la Ley N° 8272 de 2 de mayo de 2002, que lo traspasó del 380 al 382 actual).
+Genocidio.
+Artículo 382.-Se impondrá prisión de diez a veinticinco años, a quien tome parte con propósito homicida, en la destrucción total o parcial de un determinado grupo de seres humanos, por razón de su nacionalidad, raza, o creencia religiosa o política. Con idéntica pena será sancionado quien:
+1) Causare a los miembros de esos grupos graves daños corporales o psíquicos;
+2) Colocare a dichos grupos en condiciones de vida tan precaria, que haga posible la desaparición de todos o parte de los individuos que los constituyen;
+3) Tomare medidas destinadas a impedir los nacimientos dentro de esos grupos; y
+4) Trasladare, por medio de fuerza o intimidación, niños de uno de esos grupos a otros distintos.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 373 al 375)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 375 al 382)

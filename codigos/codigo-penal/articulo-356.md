@@ -1,4 +1,4 @@
-Malversación
-Artículo 356.—Malversación. Serán reprimidos con prisión de uno a ocho años, el funcionario público, los particulares y los gerentes, administradores o apoderados de las personas jurídicas privadas, beneficiarios, subvencionados, donatarios o concesionarios que den a los caudales, bienes, servicios o fondos que administren, custodien o exploten por cualquier título o modalidad de gestión, una aplicación diferente de aquella a la que estén destinados. Si de ello resulta daño o entorpecimiento del servicio, la pena se aumentará en un tercio.
-(Así reformado por el artículo 64 de la Ley N° 8422 Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 354 al 356)
+Exacción ilegal.
+Artículo 356.-Será reprimido con prisión de un mes a un año el funcionario público que abusando de su cargo, exigiere o hiciere pagar o entregar una contribución o un derecho indebidos o mayores que los que corresponden.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 347 al 349)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 349 al 356)

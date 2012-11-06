@@ -1,7 +1,4 @@
-SECCION IV
-Prevaricato y Patrocinio Infiel
-Prevaricato.
-ARTÍCULO 350.-
-Se impondrá prisión de dos a seis años al funcionario judicial o administrativo que dictare resoluciones contrarias a la ley o las fundare en hechos falsos. Si se tratare de una sentencia condenatoria en causa criminal, la pena será de tres a quince años de prisión.
-Lo dispuesto en el párrafo primero de este artículo será aplicable en su caso, a los árbitros y arbitradores.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 348 al 350)
+Aceptación de dádivas por un acto cumplido.
+Artículo 350.-Será reprimido, según el caso, con las penas establecidas en los artículos 338 y 339 disminuidas en un tercio, el funcionario público que, sin promesa anterior, aceptare una dádiva o cualquier otra ventaja indebida por un acto cumplido u omitido en su calidad de funcionario.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 341 al 343)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal, "N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 343 al 350)

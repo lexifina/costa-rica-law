@@ -1,9 +1,4 @@
-TITULO XIV
-DELITOS CONTRA LA ADMINISTRACION DE JUSTICIA
-SECCION I
-Falso Testimonio y Soborno de Testigo
-Falso testimonio.
-ARTÍCULO 316.-
-Será reprimido con prisión de uno a cinco años, el testigo, perito, intérprete o traductor que afirmare una falsedad o negare o callare la verdad, en todo o en parte, en su deposición, informe, interpretación o traducción, hecha ante la autoridad competente. Si el falso testimonio fuere cometido en una causa criminal, en perjuicio del inculpado, la pena será de dos a ocho años de prisión.
-Las penas precedentes se aumentarán en un tercio cuando el falso testimonio sea cometido mediante soborno.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 314 al 316)
+Artículo 316.- Amenaza a un funcionario público. Será reprimido con prisión de un mes a dos años quien amenazare a un funcionario público a causa de sus funciones, dirigiéndose a él personal o públicamente, o mediante comunicación escrita, telegráfica o telefónica o por la vía jerárquica.
+(Así reformado por el artículo único de la Ley “Derogación del tipo penal de Desacato”, N° 8224 de 13 de marzo del 2002)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 307 al 309)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 309 al 316)

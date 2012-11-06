@@ -1,4 +1,6 @@
-Negociaciones incompatibles.
-ARTÍCULO 347.-
-Sera reprimido con prision de uno a cuatro años, el funcionario publico que, directamente, por persona interpuesta o por acto simulado, se interese en cualquier contrato u operacion en que intervenga por razon de su cargo o el funcionario publico que participe en una negociacion comercial internacional para obtener un beneficio patrimonial para si o para un tercero. Esta disposicion es aplicable a los arbitros, amigables componedores, peritos, contadores, tutores, albaceas y curadores, respecto de las funciones cumplidas en el caracter de tales. En igual forma ser sancionado el negociador comercial designado por el Poder Ejecutivo para un asunto especifico que, durante el primer año posterior a la fecha en que haya dejado su cargo, represente a un cliente en un asunto que fue objeto de su intervencion directa en una negociacion comercial internacional. No incurre en este delito el negociador comercial que acredite que habitualmente se ha dedicado a desarrollar la actividad empresarial o profesional objeto de la negociacion, por lo menos un año antes de haber asumido su cargo."
-(Así reformado por Ley N° 8056 del 21 de diciembre del 2000) (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 345 al 347)
+SECCIÓN II
+CORRUPCIÓN DE FUNCIONARIOS.
+Cohecho impropio.
+Artículo 347.- Será reprimido con prisión de seis meses a dos años, el funcionario público que, por sí o por persona interpuesta, recibiere una dádiva o cualquier otra ventaja indebida o aceptare la promesa de una retribución de esa naturaleza para hacer un acto propio de sus funciones.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores” No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 338 al 340)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 340 al 347)

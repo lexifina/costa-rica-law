@@ -1,6 +1,8 @@
-Pena por tráfico de menores para adopción.
-Artículo 376.- Pena por tráfico de personas menores Se impondrá prisión de dos a cuatro años a quien venda, promueva o facilite la venta de una persona menor de edad y perciba por ello cualquier tipo de pago, gratificación, recompensa económica o de otra naturaleza. Igual pena se impondrá a quien pague, gratifique o recompense con el fin de recibir a la persona menor de edad.
-La prisión será de cuatro a seis años cuando el autor sea un ascendiente o pariente hasta el tercer grado de consanguinidad o afinidad, el encargado de la guarda, custodia o cualquier persona que ejerza la representación de la persona menor de edad. Igual pena se impondrá al profesional o funcionario público que venda, promueva, facilite o legitime por medio de cualquier acto la venta de la persona menor. Al profesional y al funcionario público se le impondrá también inhabilitación de dos a seis años para el ejercicio de la profesión u oficio en que se produjo el hecho.
-(Así adicionado por el artículo 9° de la ley N° 7538 del 22 de agosto de 1995).
-(Así corrida su numeración por el artículo 185 de la ley N° 7732 del 17 de diciembre de 1997, que lo traspasó del anterior artículo 374 al 376 actual).
-(Así reformado por el artículo único de la ley N° 7999 del 05 de mayo del 2000).
+SECCIÓN III
+FALSIFICACIÓN DE SELLOS, SEÑAS Y MARCAS
+Falsificación de Sellos.
+Artículo 376.-Será reprimido con prisión de uno a seis años, el que falsificare sellos oficiales, papel sellado, estampillas del correo nacional, cualquier clase de efectos timbrados cuyas emisiones estén reservadas por ley, o billetes de lotería autorizadas.
+La misma pena se impondrá al que a sabiendas los introdujere, expendiere o usare.
+En estos casos, así como en los de artículos siguientes, se considerará falsificación la impresión fraudulenta del sello verdadero.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 367 al 369)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 369 al 376)

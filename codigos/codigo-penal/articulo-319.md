@@ -1,5 +1,5 @@
-SECCION II Falsas Acusaciones.
-Denuncias y querella calumniosa y calumnia real.
-ARTÍCULO 319.-
-Será reprimido con prisión de uno a seis años el que denunciare o acusare ante la autoridad como autor o partícipe de un delito de acción pública a una persona que sabe inocente o simulare contra ella la existencia de pruebas materiales. La pena será de tres a ocho años de prisión si resultare la condena de la persona inocente. (NOTA: el artículo 33 de la Ley de Justicia Tributaria Nº 7535 de 1º de agosto de 1995 amplia tácitamente el presente artículo al disponer que la pena será de tres a diez años cuando el sujeto que incurra en este delito sea funcionario público de la Administración Tributaria)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley N° 7732 de 17 de diciembre de 1997, que lo pasó del 317 al 319)
+Violación de sellos.
+Artículo 319.-Será reprimido con prisión de tres meses a dos años, el que violare los sellos puestos por la autoridad sobre una cosa.
+Si el responsable fuere funcionario público y hubiere cometido el hecho con abuso de su cargo, el máximo de la pena se elevará hasta tres años.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 310 al 312)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 312 al 319)

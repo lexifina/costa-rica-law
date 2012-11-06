@@ -1,9 +1,4 @@
-Enriquecimiento ilícito.
-ARTÍCULO 346.-
-Será reprimido con prisión de seis meses a dos años, el funcionario público que sin incurrir en un delito más severamente penado: 1) Aceptare una dádiva cualquiera o la promesa de una dádiva para hacer valer la influencia derivada de su cargo ante otro funcionario, para
-que éste haga o deje de hacer algo relativo a sus funciones;
-2) Utilizare con fines de lucro para sí o para un tercero informaciones o datos de carácter reservado de los que haya tomado conocimiento en razón de su cargo;
-3) Admitiere dádivas que le fueren presentadas u ofrecidas en consideración a su oficio, mientras permanezca en el ejercicio del cargo;
-y
-4) (DEROGADO, por el artículo 69 de la Ley N° 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 344 al 346)
+Divulgación de secretos.
+Artículo 346.- Será reprimido con prisión de tres meses a dos años el funcionario público que divulgare hechos, actuaciones o documentos, que por la ley deben quedar secretos.
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores” No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 337 al 339)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 339 al 346)

@@ -1,3 +1,3 @@
-Connivencia maliciosa.
-ARTÍCULO 235.-
-Será reprimido con prisión de tres meses a dos años o sesenta a ciento cincuenta días multa, el acreedor que consintiere en un avenimiento, convenio o transacción judicial en connivencia con el deudor o con un tercero y hubiere concertado ventajas especiales para el supuesto de aceptación del avenimiento, convenio o transacción. La misma pena se aplicará al deudor o a las personas a que se refiere el artículo 233 que concluyeren un convenio de este género.
+Artículo 235.- Narcotráfico y crimen organizado
+La pena se duplicará cuando cualquiera de los delitos cometidos por medio de un sistema o red informática o telemática, o los contenedores electrónicos, ópticos o magnéticos afecte la lucha contra el narcotráfico o el crimen organizado.
+(Así adicionado por el artículo 3° de la Ley N° 9048 del 10 de julio de 2012, "Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal")

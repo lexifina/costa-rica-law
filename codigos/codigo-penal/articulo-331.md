@@ -1,8 +1,6 @@
-TITULO XV
-DELITOS CONTRA LOS DEBERES DE LA FUNCION PUBLICA
-SECCION I
-Abusos de Autoridad
-Abuso de Autoridad.
-ARTÍCULO 331.-
-Será reprimido con prisión de tres meses a dos años, el funcionario público, que, abusando de su cargo, ordenare o cometiere cualquier acto arbitrario en perjuicio de los derechos de alguien.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 329 al 331)
+Receptación de cosas de procedencia sospechosa.
+Artículo 331.- Receptación de cosas de procedencia sospechosa Será reprimido con prisión de seis meses a cuatro años al que, sin promesa anterior al delito, recibiere cosas o bienes que de acuerdo con las circunstancias, debía presumir provenientes de un delito. Si el autor hiciere de ello un tráfico habitual, se le impondrá la respectiva medida de seguridad
+(Así reformado por el artículo 19 de la “Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009)
+(Nota de Sinalevi: La frase "Si el autor hiciere de ello un tráfico habitual, se le impondrá la respectiva medida de seguridad", había sido anulada por resolución de la Sala Constitucional N° 1052 del 8 de enero del 2009. Nótese que el voto de la Sala Constitucional es del 8 de enero del 2009 y la reforma de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 es del 4 de marzo de 2009, es decir de fecha posterior.)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores” No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 322 al 324)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 324 al 331)

@@ -1,5 +1,4 @@
-Inutilización de defensas contra desastres.
-ARTÍCULO 248.-
-Será reprimido con prisión de uno a cuatro años el que dañare o inutilizare diques u otras obras destinadas a la defensa común contra desastres, haciendo surgir el peligro de que éstos se produzcan. Si el desastre se produce la pena se agravará a juicio del Juez. La misma pena se aplicará al que, para impedir o dificultar las tareas de defensa contra un desastre, substrajere, ocultare o inutilizare materiales, instrumentos u otros medios destinados a la defensa referida.
-Desastre culposo.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 246 al 248)
+Autorización de actos indebidos.
+Artículo 248.-El director, administrador, gerente o apoderado de una sociedad comercial o cooperativa que, a sabiendas, preste su concurso o consentimiento a actos contrarios a la ley o a los estatutos, de los cuales pueda derivar algún perjuicio para su representada o para el público, será sancionado con pena de prisión de seis meses a dos años. La pena podrá ser aumentada hasta el doble, cuando se trate de un sujeto que realiza oferta pública de valores.
+(Así reformado por el inciso c) del artículo 184 de la Ley Reguladora del Mercado de Valores; N° 7732 de 17 de diciembre de 1997)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 241 al 248)

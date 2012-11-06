@@ -1,4 +1,5 @@
-Creación de peligro para transportes terrestres.
-ARTÍCULO 252.-
-Será reprimido con prisión de uno a seis años, el que, a sabiendas, ejecutare cualquier acto que ponga en peligro la seguridad de un tren, de un alambrecarril, o de otros medios de transporte terrestre. Si el hecho produjere descarrilamiento, choque u otro accidente grave, la pena será de seis a quince años de prisión y si ocasionare la muerte, prisión de ocho a dieciocho años.
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 250 al 252)
+Uso de información privilegiada
+Artículo 252.- Será sancionado con pena de prisión de tres a ocho años quien conociendo información privilegiada relativa a los valores negociables en bolsa, sus emisores o relativa a los mercados de valores, adquiera o enajene, por sí o por medio de un tercero, valores de dichos emisores con el fin de obtener un beneficio indebido para sí o para un tercero. Para los efectos de este artículo, se considera como información privilegiada la que por su naturaleza puede influir en los precios de los valores emitidos y que aun no ha sido hecha del conocimiento público.
+(Así adicionado por el inciso b) del artículo 185, de la Ley Reguladora del Mercado de Valores; No.7732 de 17 de diciembre de 1997.
+(El anterior artículo 245 es ahora 247)
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 245 al 252)

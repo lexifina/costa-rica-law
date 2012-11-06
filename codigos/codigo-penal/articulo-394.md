@@ -1,18 +1,14 @@
-SECCIÓN II
-Seguridad de las construcciones y los edificios
-Artículo 394.—Será reprimido con diez a treinta días multa:
-Retardo en la reparación o demolición de una construcción
-1) Quien omitiere o retardare la reparación o demolición de una construcción o parte de ella que amenace ruina, cuando está obligado a repararla o demolerla.
-Omisión de medidas de seguridad en defensa de personas
-2) El director de la construcción o demolición de una obra que omitiere tomar las medidas de seguridad adecuadas, en defensa de personas o propiedades.
-Apertura de pozos con peligro para las construcciones o propiedades limítrofes
-3) El que con autorización o sin ella abriere pozos, excavaciones o efectuare obras que involucren peligro para personas o bienes, sin adoptar las medidas de prevención necesarias, siempre que no se cause daño.
-Obligación de mantener los terrenos limpios
-4) Quien omitiere cumplir la obligación de mantener los terrenos y edificios de su propiedad en las condiciones necesarias de seguridad, ornato y salubridad y, por ello, ocasione peligro a la salud, los bienes y la integridad de vecinos o transeúntes o cause detrimento al ornato público.
-Violación de reglamentos sobre construcciones
-5) El que violare los reglamentos de construcción sobre ornato público y accesibilidad para todas las personas.
-En los casos previstos en este artículo, el juez ordenará realizar todas las reparaciones necesarias, a cargo de la persona condenada.
-(Así reformado por el artículo 2 de la ley N° 8250 de 2 de mayo del 2002)
-(Así modificada la numeración de este artículo por el numeral 9 de ley Nº 7538 de 22 de agosto de 1995, que lo traspasó del 388 al 390)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 390 al 392)
-(Así modificada la numeración de este artículo por el numeral 2 de la Ley N° 8272 de 2 de mayo de 2002, que lo traspasó del 392 al 394 actual).
+TÍTULO IV
+CONTRAVENCIONES CONTRA LA PROPIEDAD Y EL PATRIMONIO
+SECCIÓN
+ÚNICA
+Artículo 394.-Se impondrá de diez a sesenta días multa:
+Dibujo en paredes
+1)A quien escribiere, exhibiere o trazare dibujos o emblemas o fijare papeles o carteles en la parte exterior de una construcción, un edificio público o privado, una casa de habitación, una pared, un bien mueble, una señal de tránsito o en cualquier otro objeto ubicado visiblemente, sin permiso del dueño o poseedor o de la autoridad respectiva, en su caso. Si reincidiere, la pena será de cinco a veinte días de prisión.
+Pesas o medidas falsas
+2) A quien, al ejercer el comercio, usare pesas o medidas falsas o medidas exactas no contrastadas o diferentes de las autorizadas por la ley.
+(Así reformado por el artículo 19 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009.)
+(Así corrida su numeración por el artículo N° 9 de la “Ley Reforma Código Familia, Ley Orgánica del Patronato Nacional Infancia, Ley General Migración y Extranjería, Ley Orgánica del TSE y Registro Civil y Código Penal, para regular la adopción de personas “, Nº 7538 de 22 de agosto de 1995, que lo traspasó del antiguo artículo 381 al 383)
+(Así corrida su numeración por el inciso a) del artículo 185, de la “Ley Reguladora del Mercado de Valores; No.7732 de 17 de diciembre de 1997, que lo traspasó del antiguo artículo 383 al 385)
+(Así corrida su numeración por el artículo N° 2 de la “Ley Represión Penal como castigo por los Crímenes de Guerra y de Lesa Humanidad”, N° 8272 de 2 de mayo de 2002, que lo traspasó del antiguo artículo 385 al 387).
+(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal", N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 387 al 394)
