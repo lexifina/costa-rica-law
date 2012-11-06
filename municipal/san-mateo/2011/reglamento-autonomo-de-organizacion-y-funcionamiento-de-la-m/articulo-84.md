@@ -1,0 +1,3 @@
+Artículo 84.
+El pago de sobresueldo por disponibilidad no crea en favor de quien lo recibe, derechos adquiridos, dado que el acuerdo de pago de sobresueldo es por circunstancias particulares y excepcionales de tiempo y lugar que pueden variar, asimismo es una contraprestación a un servicio que se da en la Municipalidad, el cual se paga si se da únicamente.
+Cuando desaparezcan los motivos que originaron la declaratoria de servidor en disponibilidad, la jefatura inmediata lo debe de comunicar al Departamento de Personal para que haga los cambios necesarios en el salario del servidor.

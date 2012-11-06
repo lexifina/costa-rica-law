@@ -1,0 +1,2 @@
+Artículo 60.
+El Concejo Municipal según corresponda o el Alcalde, según corresponda, con la información suministrada por el Departamento de Recursos Humanos de la Municipalidad, aprobará o no, dicho beneficio, en un plazo no mayor de diez días hábiles contados a partir de la fecha de presentación, por parte del funcionario. Una vez aprobado, la Municipalidad procederá a través de la oficina de Recursos Humanos, a confeccionar la acción de personal, la cual deberá seguir el trámite usual que rige en la institución.

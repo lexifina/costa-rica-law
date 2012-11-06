@@ -1,0 +1,2 @@
+Artículo 29.
+No obstante lo anterior, dejará de imponerse la sanción disciplinaria al que por error marcó en el reloj marcador la tarjeta ajena, o aquel al que le marcaron la tarjeta propia, sin informar el hecho a quien corresponda a mas tardar en el curso de la jornada de trabajo siguiente a aquella en que el hecho sucedió.

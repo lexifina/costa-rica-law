@@ -1,0 +1,3 @@
+Artículo 92.
+Se establecen treinta minutos como tiempo máximo para que el trabajador responda al llamado cuando se le requiera, independientemente del medio de comunicación con que cuente el trabajador.
+Pasado ese tiempo sin que el trabajador haya respondido, se considerará para todo efecto legal, como incumplimiento parcial del contrato y por lo tanto la Municipalidad estará facultada, sin responsabilidad alguna de su parte, para no efectuar pago alguno al trabajador por todo el período de responsabilidad, independientemente del día en que haya ocurrido la falta.

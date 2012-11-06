@@ -1,0 +1,3 @@
+Artículo 7.
+Los contratos de trabajo o acciones de personal se harán en tres tantos uno para la Municipalidad para efectos de trámite interno, otro para el funcionario interesado y la tercera para el expediente de Recursos Humanos.
+Pese a lo dispuesto en los artículos anteriores se presume la existencia de la relación de empleo entre la Municipalidad y quienes presten sus servicios personales en forma subordinada y a cambio de una retribución o salario de cualquier clase o forma, por el simple hecho de la prestación de servicios.

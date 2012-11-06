@@ -1,0 +1,3 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I. El pago de la carrera profesional, dedicación exclusiva y disponibilidad para el sector no profesional, se dará en el momento que la Municipalidad cuente con el contenido económico necesario, y previo acuerdo de aprobación por parte del Concejo Municipal, por lo que no se tramitara ninguna solicitud hasta tanto el Alcalde Municipal, mediante circular indique que se cuenta con la partida presupuestaria correspondiente, ni la misma aplica en forma retroactiva.
+Aprobado por el Concejo Municipal de San Mateo, mediante sesión ordinaria 50 del 13 de abril de 2011.

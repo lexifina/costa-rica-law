@@ -1,0 +1,3 @@
+Artículo 83.
+Para que a un servidor se le pueda pagar disponibilidad deberá existir acuerdo formal del jerarca administrativo de la institución a solicitud del respectivo jefe de unidad o sección, quien deberá demostrar que el servidor está asignado a trabajos que justifican el mencionado pago, además, que está en capacidad e idoneidad de asumir la responsabilidad correspondiente y en general que se cumple con las disposiciones de ésta regulación.
+La solicitud de pago por disponibilidad debe ser acompañada de todos los documentos e información necesaria para justificar el mismo. La solicitud y documentos deben enviarse al Departamento de Personal, el que con su dictamen los remitirá al Jerarca Administrativo.

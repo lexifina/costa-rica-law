@@ -1,0 +1,2 @@
+Artículo 18.
+El patrono señalará la época en que el servidor gozará de sus vacaciones, pero deberá hacerlo dentro de las quince semanas posteriores al día en que se cumplieren las cincuenta semanas de servicio continuo, tratando de que no se altere la buena marcha de la Municipalidad ni la efectividad del descanso. En casos especiales el Alcalde convendrá con el empleado o funcionario la fecha en que gozarán las vacaciones.

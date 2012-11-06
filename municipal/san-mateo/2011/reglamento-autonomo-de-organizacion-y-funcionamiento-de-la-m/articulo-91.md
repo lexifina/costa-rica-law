@@ -1,0 +1,2 @@
+Artículo 91.
+El beneficio de disponibilidad rige a partir de su aprobación, pero para cada trabajador el efecto cobra validez al ser declarado en estado de disponibilidad, incluido en el rol de disponibles y las asignaciones presupuestarias sean autorizadas por los entes correspondientes según disposiciones regulatorias.

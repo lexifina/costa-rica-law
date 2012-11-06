@@ -1,0 +1,2 @@
+Artículo 36.
+La amonestación o reprensión escrita, la suspensión sin goce de salario o el despido sin responsabilidad patronal, deberán imponerse dentro del mes siguiente al día en que se cometió la falta o el Alcalde o representantes patronales tuvieron conocimiento de la misma.

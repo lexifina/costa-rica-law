@@ -1,0 +1,2 @@
+Artículo 94.
+La Municipalidad de San Mateo les permitirá permutas en la disponibilidad a los trabajadores por un período completo de servicio o fracción de éste, siempre que tal cambio haya sido aprobado por la jefatura respectiva y que ésta considere que las razones aducidas son válidas para permitirla.

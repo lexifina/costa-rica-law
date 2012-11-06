@@ -1,0 +1,2 @@
+Artículo 73:
+El incumplimiento por parte del beneficiario de lo establecido en el presente Reglamento en cuanto a la Dedicación Exclusiva se considerará como infracción grave a la relación laboral y por cuanto será causal de despido sin responsabilidad patronal, adicional a los contemplado en el artículo 81 de Código de Trabajo, sin perjuicio de la responsabilidad penal y administrativa que pudiera generarse con base en dicho reglamento.

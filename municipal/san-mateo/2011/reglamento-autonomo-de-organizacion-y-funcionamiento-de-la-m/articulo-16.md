@@ -1,0 +1,3 @@
+Artículo 16.
+La Municipalidad pagará salarios por períodos vencidos por medio del cajero automático, de la entidad bancaria que crea más conveniente. La modalidad de pago será la siguiente:
+Al personal Administrativo y Operativo se le pagará su salario quincenalmente, las fechas serán los días 14 y 28 de cada mes, asimismo se le cancelará a los funcionarios que se encuentren contratos por servicios especiales. En aquellos casos que un funcionario no tenga su tarjeta de pago, se le cancelará mediante cheque girado por la municipalidad, y ésta se hará cargo de los trámites que corresponden para la consecución de ese documento.
