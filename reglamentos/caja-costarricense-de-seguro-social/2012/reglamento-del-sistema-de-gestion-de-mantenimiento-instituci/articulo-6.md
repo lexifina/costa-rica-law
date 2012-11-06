@@ -1,0 +1,3 @@
+Artículo 6º—De la aprobación y verificación de la aplicación de las políticas de mantenimiento
+a) La Junta Directiva es la instancia institucional responsable de aprobar las políticas en materia de mantenimiento.
+b) Corresponde a la Gerencia de Infraestructura y Tecnologías, verificar la aplicación de las políticas en materia de mantenimiento, con el apoyo de las Direcciones de Mantenimiento Institucional, Equipamiento Institucional y Tecnologías de Información y Comunicaciones, en el ámbito de sus competencias, mediante la aplicación de los instrumentos de evaluación de la gestión de mantenimiento y estado del recurso físico.

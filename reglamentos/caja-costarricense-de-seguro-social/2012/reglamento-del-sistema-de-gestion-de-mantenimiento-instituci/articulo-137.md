@@ -1,0 +1,1 @@
+Artículo 137.—Sobre la recepción definitiva y puesta en marcha del recurso físico. El personal profesional de mantenimiento debe participar activamente, en todas las actividades de recepción definitiva y puesta en marcha del nuevo recurso físico, firmando las respectivas actas.

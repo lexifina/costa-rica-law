@@ -1,0 +1,1 @@
+Artículo 129.—Sobre los términos de referencia para la contratación del mantenimiento del recurso físico. El personal de mantenimiento asignado, deberá elaborar los términos de referencia que se deben incluir en el cartel para la contratación del mantenimiento de todo aquel recurso físico, que así lo requiera.

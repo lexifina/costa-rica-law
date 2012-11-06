@@ -1,0 +1,6 @@
+Artículo 88.—De las actividades a desarrollar por el grupo de funcionarios en el Nivel Regional responsable de ejecutar actividades de mantenimiento. Entre otras acciones, les corresponde a estos funcionarios lo siguiente:
+a) Participar en la capacitación como instructor, para lo cual previamente deberá haber recibido la formación o capacitación por parte del Nivel Central Rector-Regulador.
+b) Gestionar la capacitación de los diferentes usuarios para la operación adecuada del equipamiento suministrado, conforme con los manuales técnicos y de operación, con el fin de maximizar el aprovechamiento del mismo.
+c) Participar en la implementación del presente reglamento en el Nivel Local (establecimientos de salud, sucursales u otros).
+d) Orientar y coordinar las actividades de los funcionarios que ejecutan las actividades operativas de mantenimiento del establecimiento en el Nivel Local (establecimientos de salud, sucursales u otros).
+e) Supervisar que con la implementación de la norma se logre el cumplimiento cabal de la misma, e informar al Nivel Central Rector-Regulador los problemas o inconsistencias que se presenten, en especial para determinar si lo que se necesita es una modificación a la norma.

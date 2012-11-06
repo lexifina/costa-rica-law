@@ -1,0 +1,3 @@
+CAPÍTULO V:
+Etapa de cierre
+Artículo 134.—Sobre el personal responsable, registro y documentación del inventario técnico del recurso físico. El funcionario responsable del mantenimiento del nuevo recurso físico en conjunto con el encargado de activos del centro, disponiendo de los documentos respectivos en donde conste el precio, representante en el país, período de garantía, concurso, contrato, descripción completa y otros de cada equipo, procederán a levantar los respectivos datos para incorporarlos en el Registro de Bienes Muebles de la CCSS, así como en el sistema de información local para la gestión del mantenimiento.

@@ -1,0 +1,1 @@
+Artículo 12.—De la aplicación de la normativa institucional. Las normas institucionales son de acatamiento obligatorio para todas las unidades y funcionarios responsables del mantenimiento y uso del recurso físico.

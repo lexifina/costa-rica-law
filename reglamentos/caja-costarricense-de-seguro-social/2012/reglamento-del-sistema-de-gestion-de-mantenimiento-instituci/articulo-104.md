@@ -1,0 +1,1 @@
+Artículo 104.—Del almacenamiento y custodia de la información levantada. La documentación generada en las verificaciones será almacenada y custodiada por la unidad que realiza la verificación por el plazo establecido en la normativa vigente.

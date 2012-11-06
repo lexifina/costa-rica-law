@@ -1,0 +1,1 @@
+Artículo 87.—De las funciones de los profesionales. El grupo de funcionarios en el Nivel Regional responsable de ejecutar actividades de mantenimiento, a solicitud del Nivel Central Rector-Regulador, deberán coadyuvar en la formulación, actualización y evaluación de la normativa en materia de mantenimiento.

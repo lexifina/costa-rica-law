@@ -1,0 +1,3 @@
+Artículo 117.—Sobre el mantenimiento aplicado al recurso físico. El mantenimiento a aplicar al recurso físico, se realizará en base a lo establecido en el artículo 42.
+El mantenimiento se debe ajustar a las condicionantes de competencia del recurso humano disponible, de la complejidad del recurso físico y de otros condicionantes relevantes para la operación (ubicación geográfica, aspectos socioeconómicos de la población adscrita y otros).
+De igual manera se deberá gestionar la disponibilidad del recurso presupuestario, con el fin de realizar las contrataciones del recurso físico que se definan.

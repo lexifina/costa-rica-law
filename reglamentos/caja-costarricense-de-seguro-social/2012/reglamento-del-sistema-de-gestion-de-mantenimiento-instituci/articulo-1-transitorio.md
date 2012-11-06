@@ -1,0 +1,5 @@
+TRANSITORIOS DEL REGLAMENTO
+El cumplimiento de los deberes y obligaciones, establecidos en varios artículos del reglamento, están supeditados, al desarrollo previo de una serie de normas institucionales, procesos, procedimientos y otras actividades, por parte de la Gerencia de Infraestructura y Tecnologías y sus unidades técnicas, así como también por parte de las unidades locales y regionales dedicadas a la gestión del mantenimiento.
+Para un efectivo control del cumplimiento de lo indicado en los siguientes transitorios, la Gerencia de Infraestructura y Tecnologías y sus unidades técnicas, deben elaborar un cronograma para la implementación de los diferentes apartados de cada uno de ellos.
+Transitorio Nº 1
+La Gerencia de Infraestructura y Tecnologías y sus unidades técnicas contarán con un plazo de nueve (9) meses para elaborar, validar, revisar, aprobar y publicar en los medios internos de la Caja, las normas básica del sistema de gestión de mantenimiento. Una vez ejecutado lo anterior, se dispondrá de un periodo adicional de tres (3) meses para capacitar a los operadores del recurso físico en la implementación de estas normas.

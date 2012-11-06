@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las relaciones
+Artículo 29.—Relación de los desarrolladores de proyectos y la función de planeamiento y ejecución de inversiones de la Gerencia de Infraestructura y Tecnologías. En todo proyecto incorporado en el Portafolio de Inversiones Físicas, los desarrolladores de proyectos de infraestructura, equipamiento y tecnologías de información y comunicaciones, en cumplimiento del concepto del ciclo de proyectos, deberán cumplir lo dispuesto en este Reglamento, de forma que se consideren las necesidades y requisitos de mantenimiento desde el inicio del proyecto. Esta condición es igualmente aplicable cuando las unidades locales o regionales desarrollen proyectos sin estar incluidos en el Portafolio de Inversiones Físicas.

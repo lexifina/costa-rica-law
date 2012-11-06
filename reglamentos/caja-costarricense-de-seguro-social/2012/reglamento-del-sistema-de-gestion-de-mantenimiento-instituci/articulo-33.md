@@ -1,0 +1,11 @@
+CAPÍTULO VII
+De los deberes y responsabilidades de los funcionarios
+participantes en el SIGMI
+Artículo 33.—Del superior jerárquico del establecimiento en el Nivel Local. El Superior del establecimiento en el Nivel Local, como máxima autoridad, asume los siguientes deberes y responsabilidades respecto al SIGMI:
+a) Debe conocer el recurso físico asignado a la Unidad Ejecutora y el estado de su funcionamiento.
+b) Es el responsable de coordinar con el encargado administrativo o administrador de la unidad y el funcionario responsable de coordinar y dirigir las actividades de mantenimiento del establecimiento en el Nivel Local, la implementación del programa de mantenimiento en la Unidad Ejecutora a su cargo, de acuerdo con lo previsto en este Reglamento.
+c) Debe asegurar que para toda inversión que le corresponda gestionar en el establecimiento, la variable de mantenimiento se haya incluido en los estudios de preinversión necesarios de acuerdo con la normativa aplicable. La verificación del cumplimiento de esta disposición debe ser documentada y suscrita por la persona que ejecuta la verificación y por el Superior Jerárquico del Establecimiento.
+d) Es responsable de gestionar y/o asignar los recursos necesarios a efecto de garantizar la protección de las inversiones. No podrá gestionar la ejecución de inversiones en recurso físico, si no existe seguridad razonable en la dotación de los recursos para conservar y mantener esa inversión en condiciones de operación, que respondan a las características de confiabilidad y disponibilidad previstas en este reglamento. Cuando la dotación de recursos supere sus competencias, deberá hacer la solicitud formal respectiva al Nivel Regional o a la Gerencia respectiva, según corresponda.
+e) Debe instruir y supervisar a la Jefatura o funcionario responsable del mantenimiento, sobre la implementación de las decisiones administrativas relacionadas con los Programas y Planes Anuales Operativos en materia de mantenimiento.
+f) Implementar los principios éticos y técnicos de este reglamento para la administración de la unidad o actividad de mantenimiento, utilizando en forma efectiva los recursos asignados para la gestión del mantenimiento.
+g) Gestionar la evaluación de la gestión del manteamiento y el estado del recurso físico de la unidad.

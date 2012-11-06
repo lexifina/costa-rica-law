@@ -1,0 +1,1 @@
+Artículo 123.—Sobre el inicio de la gestión para la dotación de plazas para el recurso humano de mantenimiento. La Gerencia promotora del proyecto, con la colaboración de la Gerencia de Infraestructura y Tecnologías, presentará la solicitud de plazas al Consejo Financiero y de Control Presupuestario de la Institución al final de la etapa de diseño.

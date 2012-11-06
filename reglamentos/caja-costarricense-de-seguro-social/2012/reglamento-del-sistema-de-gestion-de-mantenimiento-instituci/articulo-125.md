@@ -1,0 +1,2 @@
+Artículo 125.—Sobre la participación del personal de mantenimiento en la etapa de ejecución. Cuando se trate de recurso físico que sustituye uno existente, el jefe o responsable de mantenimiento deberá participar en las reuniones semanales de coordinación de la supervisión del proyecto durante toda la etapa de ejecución.
+Cuando se trate de recurso físico totalmente nuevo, el personal profesional asignado deberá participar en las reuniones semanales de coordinación de la supervisión, durante toda la etapa de ejecución.

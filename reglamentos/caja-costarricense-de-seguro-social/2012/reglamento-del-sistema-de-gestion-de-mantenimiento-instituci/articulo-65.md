@@ -1,0 +1,4 @@
+APARTADO III:
+Sobre el recurso físico modificado o nuevo gestionado
+por las unidades de sede desarrolladoras de proyectos
+Artículo 65.—De la verificación de condiciones para el uso del recurso físico. Los funcionarios de máxima jerarquía del Nivel Local o Regional en coordinación con el responsable administrativo o Administrador y el funcionario responsable de coordinar y dirigir las actividades de mantenimiento, deben verificar que aquellos componentes de recurso físico transferidos por las unidades de sede desarrolladoras de proyectos para su operación, cuenten con todos los recursos para garantizar su apropiada protección, uso y mantenimiento (humanos, presupuestarios, materiales y otros). De esta verificación, debe quedar constancia escrita suscrita por los funcionarios antes indicados.

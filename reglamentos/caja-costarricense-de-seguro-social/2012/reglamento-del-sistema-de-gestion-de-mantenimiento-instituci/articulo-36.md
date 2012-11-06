@@ -1,0 +1,15 @@
+Artículo 36.—Del funcionario responsable de coordinar y dirigir las actividades de mantenimiento del establecimiento en el Nivel Local. El funcionario responsable de coordinar y dirigir las actividades de mantenimiento tiene las siguientes funciones, deberes y responsabilidades respecto del SIGMI:
+a) Implementar los principios éticos y técnicos de este reglamento para la administración de la unidad o actividad de mantenimiento, utilizando en forma efectiva los recursos asignados para la gestión del mantenimiento.
+b) Planificar, ejecutar, evaluar y controlar los programas de mantenimiento del recurso físico de la Unidad Ejecutora.
+c) Elaborar procedimientos de operación y mantenimiento de la infraestructura, instalaciones, equipos médicos, industriales, de oficina, mobiliario y otros, subordinados a la política, el reglamento y a las normas generales. Establecer los métodos de trabajo para asegurar la disponibilidad y confiabilidad del recurso físico de la Unidad Ejecutora.
+d) Establecer los mecanismos de coordinación permanente con el nivel jerárquico superior y las jefaturas de las unidades usuarias, así mismo con el Nivel Regional y los entes técnicos del Nivel Central Rector-Regulador, cuando así corresponda.
+e) Levantar y mantener actualizado el inventario técnico del recurso físico de la Unidad Ejecutora.
+f) Elaborar los términos de referencia para la contratación de bienes y servicios para el mantenimiento del recurso físico, que no pueda asumir la unidad o el responsable de la actividad de mantenimiento. Así mismo, deberá verificar que los contratos contengan las condiciones técnicas de cómo se brindará el servicio contratado.
+g) Controlar y verificar el cumplimiento de la ejecución de los contratos a terceros en lo que respecta a los aspectos técnicos y administrativos de mantenimiento del recurso físico y dar visto bueno, cuando corresponda, a las facturas de cobro para el trámite.
+h) Generar información relevante para una oportuna toma de decisiones, incluyendo indicadores de gestión.
+i) Elaborar los informes semestrales y anuales sobre la ejecución y control de la gestión de mantenimiento y del estado del recurso físico.
+j) Formular el Plan Anual Operativo y el presupuesto de la unidad o actividad de mantenimiento para su posterior discusión con la Administración.
+k) Definir las necesidades de capacitación del personal de la unidad o actividad de mantenimiento de acuerdo con el requerimiento de conocimiento, destrezas y habilidad.
+l) Cuando participe en la etapa de recomendación relacionada con la adquisición de equipos médicos, industriales o administrativos, al igual que en la recepción de los equipos que se adquieran, debe indicar si los mismos cumplen con las especificaciones establecidas en la contratación respecto al mantenimiento.
+m) Promover en los colaboradores de la Unidad Ejecutora el buen uso de los recursos físicos asignados.
+n) Desarrollar los programas relacionados con la seguridad del recurso físico, en lo que corresponda atender a la actividad de mantenimiento en la Unidad Ejecutora.

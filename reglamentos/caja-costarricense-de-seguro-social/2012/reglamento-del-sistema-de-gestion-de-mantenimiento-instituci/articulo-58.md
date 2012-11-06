@@ -1,0 +1,1 @@
+Artículo 58.—De los indicadores de la gestión de mantenimiento y del estado del recurso físico. En los informes semestrales y anuales, deben incorporarse indicadores de eficiencia y eficacia de la gestión del mantenimiento y del estado del recurso físico, todo de acuerdo con la normativa que para ese propósito emita la Gerencia de Infraestructura y Tecnologías.

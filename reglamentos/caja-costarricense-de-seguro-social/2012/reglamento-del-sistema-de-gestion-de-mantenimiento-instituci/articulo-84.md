@@ -1,0 +1,1 @@
+Artículo 84.—Del acatamiento de las recomendaciones. El superior jerárquico del Nivel Local (establecimientos de salud, sucursales u otros) deberá acatar todas las recomendaciones incorporadas en el informe de supervisión y control, sujeto a los plazos indicados para las recomendaciones correctivas y preventivas, e instruirlo a sus colaboradores según corresponda.

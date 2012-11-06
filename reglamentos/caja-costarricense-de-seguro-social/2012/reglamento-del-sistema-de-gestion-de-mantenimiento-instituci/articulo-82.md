@@ -1,0 +1,1 @@
+Artículo 82.—De la elaboración del plan de supervisión y control. El plan de supervisión y control, las visitas y la elaboración de los informes deben hacerse de acuerdo con la norma que para ese propósito emitirá la Gerencia de Infraestructura y Tecnologías, en relación con el estado del recurso físico, la gestión del mantenimiento y el seguimiento de informes técnicos.

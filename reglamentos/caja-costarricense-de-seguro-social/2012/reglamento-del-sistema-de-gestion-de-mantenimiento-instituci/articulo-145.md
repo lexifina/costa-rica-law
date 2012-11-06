@@ -1,0 +1,1 @@
+Artículo 145.—De las disposiciones internas que se opongan a este reglamento. Este Reglamento deja sin efecto cualquier otra disposición interna de la Caja en materia de protección y mantenimiento del recurso físico, circulares, normas reglamentarias y otros, que se le opongan.

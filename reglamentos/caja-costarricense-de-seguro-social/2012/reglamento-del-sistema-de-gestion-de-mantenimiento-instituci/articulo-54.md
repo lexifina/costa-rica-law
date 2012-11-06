@@ -1,0 +1,2 @@
+Artículo 54.—De la asignación y/o desviación de recursos asignados al mantenimiento. Se entiende por recursos asignados al mantenimiento como: presupuestario, humano, espacio físico, herramientas, equipos de medición, materiales y tecnológicos.
+Se declaran intransferibles los recursos asignados al mantenimiento, hacia otros tipos de actividades ajenas al programa de mantenimiento, que impidan el cumplimiento de todas las actividades programadas en el Plan Anual Operativo de Mantenimiento.

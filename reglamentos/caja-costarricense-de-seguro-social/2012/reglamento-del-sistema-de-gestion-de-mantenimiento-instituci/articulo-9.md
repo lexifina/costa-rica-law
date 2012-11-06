@@ -1,0 +1,1 @@
+Artículo 9º—De la actualización de las normas de mantenimiento. La Gerencia de Infraestructura y Tecnologías queda facultada por la Junta Directiva para emitir y actualizar las normas generales y específicas, concordantes con este Reglamento.

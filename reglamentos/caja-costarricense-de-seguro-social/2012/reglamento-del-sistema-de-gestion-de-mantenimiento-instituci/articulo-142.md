@@ -1,0 +1,1 @@
+Artículo 142.—Sobre las responsabilidades de los usuarios externos. Es responsabilidad de todo usuario externo, utilizar correctamente el recurso físico puesto a su disposición, procurando su cuidado y buen uso, con el fin de contribuir en la protección, confiabilidad y disponibilidad del mismo.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones contenidas en este reglamento regulan y son de aplicación obligatoria en el ámbito Institucional para todas aquellas unidades de producción de bienes y servicios que tengan bajo su responsabilidad el desarrollo, operación y mantenimiento de los recursos físicos.

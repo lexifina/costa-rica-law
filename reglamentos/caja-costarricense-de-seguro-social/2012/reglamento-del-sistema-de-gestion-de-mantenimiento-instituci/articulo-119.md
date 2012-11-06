@@ -1,0 +1,8 @@
+Artículo 119.—Sobre los elementos críticos de la gestión y ejecución del mantenimiento que deben incorporarse en el estudio de preinversión. Los responsables de la elaboración de la planificación funcional deberán contemplar al menos los siguientes aspectos:
+a) Definición de la función, incluyendo actividades y tareas propias a desarrollar.
+b) Cantidad y características generales del personal que brindará los servicios de mantenimiento.
+c) Infraestructura: recintos apropiados en cantidad y calidad con instalaciones electromecánicas y de otro tipo, requeridas para ejercer las labores sean éstas con recursos propios o contratados, considerando las características de los equipos y muebles a los que se dará mantenimiento en dichos recintos.
+d) Condiciones ambientales de la infraestructura: especificar requerimientos ambientales que son particulares de cada ambiente/recinto, tales como características de ventilación, de iluminación, de flujos de procesos (qué se busca propiciar o evitar), de ubicación en relación con otros recintos (cercanía, lejanía) o en relación con accesos o con la unidad en general, entre otros.
+e) Equipamiento: considerar el equipo necesario y suficiente para brindar las labores de mantenimiento y calibración cuando corresponda.
+f) Estimación preliminar global del recurso financiero, de inversión y de operación necesarios para la gestión del mantenimiento, se elaborará en consulta con las Direcciones de Mantenimiento, Equipamiento y Tecnologías de Información y Comunicaciones.
+g) La capacitación del personal responsable del mantenimiento del nuevo recurso físico, debe ser incorporado en los estudios de preinversión, así como en el cartel de contratación.

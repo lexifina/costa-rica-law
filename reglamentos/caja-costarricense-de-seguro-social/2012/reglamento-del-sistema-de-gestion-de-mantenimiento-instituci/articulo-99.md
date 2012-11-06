@@ -1,0 +1,1 @@
+Artículo 99.—De la comunicación de los resultados de la verificación. El informe producto de las verificaciones debe remitirse a la máxima autoridad del centro y al funcionario responsable de coordinar y dirigir las actividades de mantenimiento local o regional.

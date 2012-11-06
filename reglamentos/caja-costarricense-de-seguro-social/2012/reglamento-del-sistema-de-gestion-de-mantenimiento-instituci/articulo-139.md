@@ -1,0 +1,1 @@
+Artículo 139.—Sobre la capacitación del personal del Centro respecto al uso de la infraestructura e instalaciones. El Director o Jefe de Proyecto es responsable de gestionar la capacitación al personal del centro en el uso de toda la infraestructura e instalaciones antes de la puesta en operación del nuevo recurso físico.

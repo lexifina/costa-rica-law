@@ -1,0 +1,5 @@
+CAPÍTULO IV:
+Etapa de ejecución
+Artículo 124.—Sobre la dotación de plazas para la participación del personal de mantenimiento en la etapa de ejecución. La dotación efectiva de plazas para la gestión del mantenimiento del nuevo recurso físico deberá iniciarse en esta etapa, independientemente de si la obra es de sustitución de una existente o es totalmente nueva. Esta dotación debe hacerse efectiva en el primer tercio del plazo de la ejecución y la jefatura inmediata de cada uno de los servicios, será la responsable de que el personal seleccionado sea idóneo para el puesto.
+Las plazas a asignar inicialmente deberán ser del perfil profesional y corresponder al menos al cincuenta por ciento del personal profesional estimado, en las plantillas de recurso humano, determinado en la etapa de planificación, para dicho recurso físico.
+Al finalizar el segundo tercio de la ejecución, deberá estar asignado el total del personal profesional y al menos el cincuenta por ciento del personal técnico estimado en las plantillas de recurso humano, elaboradas en la etapa de planificación, para dicho recurso físico.

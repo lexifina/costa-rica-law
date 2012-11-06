@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Del recurso humano que labora en el SIGMI
+Artículo 23.—De los nombramientos en los puestos del sistema de gestión de mantenimiento institucional. En los diferentes puestos necesarios para el funcionamiento del SIGMI en los diferentes niveles local, regional y central rector-regulador, se nombrará únicamente personal que cumpla con los requisitos legales, técnicos y/o profesionales definidos para un puesto específico en el Manual Descriptivo de Puestos de la Caja, indistintamente que se trate de nombramientos en propiedad o temporales (interinos).
+Son responsables de velar por el cumplimiento de esta disposición las unidades y/o funcionarios responsables de la gestión de recursos humanos; así mismo compete al área especializada correspondiente de la Dirección Administración y Gestión de Personal, mantener actualizados todos los requisitos para los puestos que se desempeñan dentro del SIGMI.

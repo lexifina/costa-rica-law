@@ -1,0 +1,1 @@
+Artículo 4º—Sobre el sistema de gestión de mantenimiento institucional. El Sistema de Gestión de Mantenimiento Institucional, define el conjunto de actores institucionales, componentes, sus interrelaciones y los elementos normativos, necesarios para garantizar el buen estado, disponibilidad y confiabilidad de los recursos físicos de la Caja Costarricense del Seguro Social.

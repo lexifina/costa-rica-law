@@ -1,0 +1,1 @@
+Artículo 138.—Sobre el traslado del personal de mantenimiento a las nuevas instalaciones. Posterior a la conclusión de la etapa de cierre e inmediatamente antes de la puesta en operación del nuevo recurso físico, deberá trasladarse el personal de mantenimiento a las nuevas instalaciones.

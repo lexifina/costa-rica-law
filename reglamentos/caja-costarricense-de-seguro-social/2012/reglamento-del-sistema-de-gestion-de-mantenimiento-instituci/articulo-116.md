@@ -1,0 +1,1 @@
+Artículo 116.—Sobre las responsabilidades del personal profesional y técnico respecto de las previsiones de la gestión del mantenimiento. El personal profesional y técnico encargado de la función de mantenimiento en las diferentes etapas del desarrollo del recurso físico, será responsable por la obtención de los productos esperados relativos al mantenimiento.

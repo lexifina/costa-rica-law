@@ -1,0 +1,4 @@
+Artículo 141.—Sobre las funciones y responsabilidades de los operadores, usuarios y personal de mantenimiento del recurso físico.
+a) Son responsables de la administración, buen uso, cuidado y mantenimiento del recurso físico, los Gerentes, Directores, jefaturas en general y todo aquel funcionario que tenga dentro de las labores propias de su cargo, el disponer de bienes para el adecuado desarrollo de las funciones y tareas encomendadas.
+b) Funciones: los usuarios deben operar correctamente todo el recurso físico, velando por la vigencia y cumplimiento de las garantías de operación. Cuando las mismas finalicen, deberá gestionar su mantenimiento siguiendo lo indicado en el Manual de Gestión de Mantenimiento.
+c) El personal de mantenimiento será responsable de realizar sus tareas con la máxima diligencia, siguiendo las normativas técnicas y de seguridad que permitan una confiabilidad y disponibilidad razonable del recurso físico.

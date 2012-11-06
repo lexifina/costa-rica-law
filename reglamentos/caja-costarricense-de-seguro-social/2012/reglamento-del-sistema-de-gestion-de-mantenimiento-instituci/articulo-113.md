@@ -1,0 +1,1 @@
+Artículo 113.—De las obligaciones de los responsables del recurso físico respecto de la capacitación y formación. Es obligación de los responsables del recurso físico, gestionar la capacitación y/o formación del recurso humano que ejecuta las actividades de mantenimiento, para procurar que el desempeño de sus funciones sea acorde con la capacitación y/o formación recibida.

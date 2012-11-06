@@ -1,0 +1,1 @@
+Artículo 42.—Del liderazgo en el SIGMI. El liderazgo del SIGMI compete en forma directa al director de la Dirección de Mantenimiento Institucional, responsabilidad que es compartida con los directores de Equipamiento Institucional y de Tecnologías de Información y Comunicaciones en la materia de su competencia.

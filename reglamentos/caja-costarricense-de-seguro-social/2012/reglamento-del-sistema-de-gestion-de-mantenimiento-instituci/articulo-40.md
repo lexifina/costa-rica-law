@@ -1,0 +1,16 @@
+Artículo 40.—Del funcionario responsable de coordinar y dirigir las actividades de mantenimiento en el ámbito regional. El funcionario responsable de coordinar y dirigir las actividades de mantenimiento en el ámbito Regional, tendrá los siguientes deberes y responsabilidades:
+a) Implementar los principios éticos y técnicos de este reglamento para la administración de la unidad o actividad del mantenimiento regional, utilizando en forma efectiva los recursos asignados para la gestión del mantenimiento.
+b) Planificar, ejecutar, evaluar y controlar los programas de mantenimiento del recurso físico de la región.
+c) Aplicar las normas, los manuales de procedimientos y establecer los métodos de trabajo para asegurar la disponibilidad y confiabilidad del recurso físico en la región.
+d) Establecer los mecanismos de coordinación permanente con el nivel jerárquico superior y con los funcionarios responsables de coordinar y dirigir las actividades de mantenimiento en los distintos establecimientos de la región.
+e) Mantener actualizado el inventario técnico del recurso físico de la región.
+f) Elaborar los términos de referencia para la contratación de bienes y servicios para el mantenimiento del recurso físico regional, que no puedan asumir las Unidades Ejecutoras locales (establecimientos de salud, sucursales u otros). Así mismo, deberá verificar que los contratos de mantenimiento contengan las condiciones técnicas de cómo se brindará el servicio contratado.
+g) Controlar y verificar el cumplimiento de la ejecución de los contratos a terceros, en lo que respecta a los aspectos técnicos de mantenimiento del recurso físico, y dar visto bueno cuando corresponda, a las facturas de cobro para el trámite de pago, para aquellas Unidades Ejecutoras que no cuentan con una unidad de mantenimiento.
+h) Realizar con la orientación del Nivel Central Rector-Regulador, la evaluación de la gestión del mantenimiento y del estado del recurso físico del Nivel Local en su ámbito de competencia.
+i) Consolidar los informes semestrales y anuales sobre la ejecución y control de la gestión de mantenimiento y del estado del recurso físico de la región.
+j) Coadyuvar en la consolidación de los informes sobre la evaluación de la gestión de mantenimiento y del estado del recurso físico.
+k) Formular el Plan Anual Operativo y el presupuesto de la unidad o actividad de mantenimiento Regional, para su posterior discusión con el director regional.
+l) Gestionar las necesidades de capacitación y formación del personal de la unidad o actividad de mantenimiento regional, y del personal de mantenimiento de los establecimientos de la región, de acuerdo con el requerimiento de conocimiento, destrezas y habilidades.
+m) Cuando participe en la etapa de recomendación relacionada con la adquisición de equipos médicos, industriales o administrativos, al igual que en la recepción de los equipos que se adquieran, debe indicar formalmente si los mismos cumplen con las especificaciones establecidas en la contratación respecto al mantenimiento.
+n) Asesorar a los funcionarios responsables de coordinar y dirigir o ejecutar las actividades de mantenimiento locales, sobre la implementación de normas y/o directrices relacionadas con el mantenimiento y estado del recurso físico.
+o) Implementar indicadores de desempeño en la gestión de mantenimiento.
