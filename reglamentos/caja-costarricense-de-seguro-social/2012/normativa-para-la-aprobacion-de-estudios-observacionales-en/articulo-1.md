@@ -1,0 +1,13 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+APROBACIÓN MODIFICACIÓN Y ADICIÓN NORMATIVA
+PARA LA APROBACIÓN DE ESTUDIOS OSERVACIONALES
+EN LOS CENTROS ASISTENCIALES DE LA CAJA
+COSTARRICENSE DE SEGURO SOCIAL
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 26º de la sesión 8601, celebrada el 20 de setiembre del año 2012, aprobó la siguiente “Modificación y Adición a la Normativa para la aprobación de estudios observacionales en los centros asistenciales de la Caja Costarricense de Seguro Social”, con el objeto de contar con una regulación adecuada para poder garantizar el bienestar y los derechos de los pacientes que se involucren en un proyecto de investigación biomédica de tipo observacional, que se modifica y adiciona de la siguiente manera:
+“MODIFICACIÓN Y ADICIÓN NORMATIVA PARA LA
+APROBACIÓN DE ESTUDIOS OBSERVACIONALES
+EN LOS CENTROS ASISTENCIALES DE LA CAJA
+COSTARRICENSE DE SEGURO SOCIAL
+I.—Estudio Observacional: Definición. Para efectos de esta normativa se entenderá como estudio observacional (epidemiológico o no intervencionista), aquella investigación cualitativa o cuantitativa que se fundamenta en la observación, descripción y análisis de los eventos de interés, en las cuales no se realiza intervención diagnóstica o terapéutica alguna por parte del investigador con fines experimentales, ni se somete a las personas participantes (sujetos de investigación) a condiciones controladas por el investigador, de modo que no se modifica el desenlace del fenómeno estudiado.
+Entre los estudios observacionales, están los estudios descriptivos (series de casos, estudios de prevalencia e incidencia, estudios ecológicos), los estudios analíticos (cohortes y casos y controles) y los estudios de vigilancia epidemiológica, los cuales conllevan un riesgo mínimo o nulo para las personas participantes.
+Los estudios descriptivos son generadores de hipótesis y tienen como objeto hacer una descripción de la distribución de las enfermedades de acuerdo con las variables de persona, lugar y tiempo. Los estudios analíticos buscan la asociación o correlación entre variables, así como contestar por qué sucede determinado fenómeno, cuál es la causa o factor de riesgo asociado, o cuál es el efecto de esa causa o factor de riesgo. Sirven para aceptar o rechazar hipótesis. Los estudios de vigilancia epidemiológica sirven para recopilar, analizar, interpretar y difundir, en forma sistemática y constante, datos específicos sobre las principales características y componentes de la morbilidad y la mortalidad en una población para utilizarlos en la planificación, ejecución y evaluación de medidas de control en salud pública.

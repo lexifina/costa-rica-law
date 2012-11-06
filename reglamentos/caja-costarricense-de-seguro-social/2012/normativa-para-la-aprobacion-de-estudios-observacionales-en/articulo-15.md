@@ -1,0 +1,4 @@
+XV.—Suspensión de investigaciones. Se dispondrá, previo debido proceso, la suspensión de una investigación cuando los investigadores incurran en incumplimientos graves de sus obligaciones, que afecten la protección de los participantes o cuando surjan circunstancias negativas para la prestación de los servicios de la CCSS.
+La suspensión deberá estar precedida de una audiencia y será dispuesta por la Dirección Ejecutiva del CENDEISSS, con dictamen del CECI, o por el Director del centro asistencial, con dictamen del CLOBI.
+En casos graves y urgentes, el Director del centro asistencial respectivo podrá, razonadamente, suspender la investigación y deberá informar inmediatamente a la Subárea de Bioética en Investigación del CENDEISSS.
+El Centro para la Instrucción del Procedimiento Administrativo (CIPA) instruirá el procedimiento.
