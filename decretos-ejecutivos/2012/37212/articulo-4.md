@@ -1,1 +1,2 @@
-Artículo 4. La Comisión Nacional Marina se reunirá obligatoriamente cada dos meses y será convocada por el Presidente de la República o quien lo represente.
+Artículo 4º— La Comisión Nacional del Mar se reunirá obligatoriamente cada dos meses y será convocada por el Presidente de la República o quien lo represente. Contará con un Secretario Ejecutivo que será nombrado por el Presidente de la República , que tendrá derecho a asistir a las sesiones de la Comisión con voz pero sin voto. Para su funcionamiento se regirá por lo dispuesto en la Ley General de Administración Pública en lo que respecta a órganos colegiados.
+Podrán además asistir a las sesiones de la Comisión , con derecho a voz pero sin voto quienes determine el (la) Presidente de la República.
