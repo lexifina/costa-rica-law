@@ -1,0 +1,9 @@
+Artículo 2. Definiciones. Para efectos de este reglamento, se entenderá por:
+a. Municipalidad: Municipalidad del Cantón de Aguirre
+b. Permiso de Funcionamiento. Autorizaciones que conforme a las regulaciones aplicables deben obtener los interesados ante organismos estatales de previo al ejercicio de ciertas actividades.
+c. Ley: La Ley de “Regulación y Comercialización de Bebidas con Contenido Alcohólico” N° 9047 de 8 de agosto del 2012.
+d. Bebidas con contenido alcohólico: Bebidas con contenido alcohólico: Son los productos que contienen alcohol etílico en solución y que son aptos para el consumo humano, provenientes de la fermentación, destilación, preparación o mezcla de productos alcohólicos de origen vegetal, trátese de cervezas, vinos y licores y de todo producto considerado como tal de conformidad con las disposiciones legales y reglamentarias. No se incluyen dentro de esta normativa las preparaciones farmacéuticas, perfumes, jarabes y los demás productos industriales no atinentes a la industria licorera.
+e. Licencias: Las Licencias de expendio de bebidas con contenido alcohólico, según lo establece el párrafo primero del artículo 3 de la Ley.
+f. Mini súper: Establecimiento comercial de venta al por menor en el que se expenden todo género de artículos alimenticios, bebidas, productos de limpieza, etc., y en el que el cliente se sirve a sí mismo y paga a la salida. Además se entenderá por mini súper aquel establecimiento que no sobre pase los cincuenta metros cuadrados de construcción.
+g. Supermercado: Establecimiento comercial de venta al por menor en el que se expenden todo género de artículos alimenticios, bebidas, productos de limpieza, etc., y en el que el cliente se sirve a sí mismo y paga a la salida. Además se entenderá por supermercado aquel establecimiento que sobre pase los cincuenta y un metros cuadrados de construcción.
+Asimismo, se tienen por incorporadas las definiciones establecidas en el artículo 2 de la Ley.
