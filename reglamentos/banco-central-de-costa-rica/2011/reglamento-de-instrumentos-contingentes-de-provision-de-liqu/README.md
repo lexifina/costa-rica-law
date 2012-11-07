@@ -14,3 +14,4 @@ Reglamento de instrumentos contingentes de provisión de liquidez por parte del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-05 | la propia norma |
+| 2 | 2012-11-07 | Reglamento 5569 (2012-11-07) |
