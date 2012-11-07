@@ -17,3 +17,4 @@ Reglamento al artículo cinco de la Ley Nº 7293 denominada “Ley Reguladora de
 | 2 | 2008-11-18 | Decreto Ejecutivo 35242 (2008-11-18) |
 | 3 | 2011-05-09 | Resolución 2 (2011-05-09) |
 | 4 | 2011-05-20 | Resolución 1 (2011-05-20) |
+| 5 | 2012-11-07 | Resolución 3 (2012-11-07) |

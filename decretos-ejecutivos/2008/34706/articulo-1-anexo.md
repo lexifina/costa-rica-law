@@ -314,6 +314,8 @@ LISTA DE PRODUCTOS PARA LA ACTIVIDAD AGROPECUARIA
 - Rotavator con o sin motor incorporado.
 - Ruedas fangueadoras únicamente para arroz inundado.
 - Sacabocados.
+- Sacos de yute para el empaque de café en grano con las siguientes medidas: 71.12 cm x 101.6 cm con peso de 740 gramos , 720 gramos , 700 gramos y 500 gramos , todos con ruedo en la boca.
+(Así adicionado el item anterior mediante resolución RES-STE-03-2012 del 7 de noviembre del 2012)
 - Sarán.
 - Segadoras.
 - Semen.
