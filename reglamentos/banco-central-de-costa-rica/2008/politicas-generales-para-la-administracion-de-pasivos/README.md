@@ -22,3 +22,4 @@ Políticas Generales para la Administración de Pasivos
 | 7 | 2011-06-01 | Reglamento 5499 (2011-06-01) |
 | 8 | 2012-03-28 | Reglamento 5539 (2012-03-28) |
 | 9 | 2012-09-12 | Reglamento 5561 (2012-09-12) |
+| 10 | 2012-11-07 | Reglamento 5569 (2012-11-07) |

@@ -1,2 +1,3 @@
-Artículo 20.Composición por tipo de instrumento. El Tramo de Deuda mantendrá una composición por instrumento que permita cumplir con los objetivos estipulados en el artículo 2º, inciso c., y en el artículo 21 de la presente normativa.
+Artículo 20. Estructura de vencimientos. Las emisiones que se efectúen como parte del Tramo de Deuda serán programadas por la División Gestión de Activos y Pasivos de tal forma que anualmente venza no más del 20% del saldo total del Tramo vigente al principio de cada año. Esta estructura meta debe cumplirse en cualquier momento, aunque se admitirán desviaciones hasta de +/-5%.
 (Así reformado mediante sesión N° 5539-2012 del 28 de marzo del 2012)
+(Así corrida su numeración en sesión N° 5569-2012 del 7 de noviembre del 2012, que lo traspaso del antiguo artículo 21 al 20. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 12 original y correr la numeración de los artículos siguientes)
