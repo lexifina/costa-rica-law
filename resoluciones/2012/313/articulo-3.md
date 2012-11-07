@@ -11,8 +11,10 @@ g. El funcionario aduanero encargado del despacho, previo a dar el levante y en 
 h. El funcionario encargado del despacho, corrobora el depósito con la Tesorería Nacional en la Unidad de Control de Ingresos, llamando a los teléfonos 2284-5268 ó 2284-5317.
 i. El funcionario aduanero encargado del despacho, una vez verificado que el declarante autodeterminó y pagó los intereses correctamente, autoriza el levante de la declaración.
 j. En caso de que el monto autodeterminado sea inferior al monto que correspondía pagar por concepto de intereses, el funcionario encargado del despacho lo informará al declarante para que haga el pago por la diferencia, en este supuesto, el funcionario encargado del despacho no autorizará el levante.
-k. El declarante una vez realizado el pago, transmitirá nuevamente la imagen del primer comprobante y también del segundo comprobante en un solo archivo, y procederá a desasociar el primer archivo de imagen.
-l. El funcionario aduanero encargado del despacho verifica el monto de los intereses pagados mediante los dos comprobantes de pago y autoriza el levante.
+k. El declarante una vez realizado el pago, transmitirá nuevamente la imagen del primer comprobante y también del segundo comprobante en un solo archivo.
+(Así reformado el punto anterior mediante resolución RES-DGA-364 del 07 de noviembre de 2012)
+l. El funcionario aduanero encargado del despacho verifica que el monto de los intereses pagados mediante los dos comprobantes de pago sea correcto, y en caso de ser procedente, desasocia de la declaración el primer archivo de la imagen que debe corresponder a los dos comprobantes de pago y autoriza el levante.
+(Así reformado el punto anterior mediante resolución RES-DGA-364 del 07 de noviembre de 2012)
 m. El funcionario aduanero encargado del despacho informa al Jefe de la Sección Técnica Operativa, el número del DUA, el número del comprobante del pago y el monto de intereses autodeterminados y pagados.
 n. El Jefe de la Sección Técnica operativa de la aduana de control del DUA, completa un cuadro en una tabla Excel que contenga al menos número de DUA, número de identificación del declarante, número de comprobante, monto de los intereses, datos del depósito asociado al DUA y fecha de pago.
 o. De la anterior información remite un informe semanal al Departamento de Estadística y Registro de la Dirección General de Aduanas, con copia para la Dirección de Gestión de Riesgo de la Dirección General de Aduanas.

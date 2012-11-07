@@ -14,3 +14,4 @@ Comunica la realización de ajustes en la aplicación informática TICA para que
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-02 | la propia norma |
+| 2 | 2012-11-07 | Resolución 364 (2012-11-07) |
