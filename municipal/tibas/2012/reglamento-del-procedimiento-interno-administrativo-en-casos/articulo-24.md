@@ -1,0 +1,1 @@
+Artículo 24.—Valoración de la prueba. Para la valoración de la prueba deberán tomarse en consideración todos los elementos indiciarios y directos aportados, así como los principios de la sana crítica, lógica y experiencia.

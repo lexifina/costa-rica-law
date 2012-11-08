@@ -1,0 +1,1 @@
+Artículo 11.—Del apoyo a las partes afectadas. Las partes afectadas, denunciante y denunciada, podrán acudir al procedimiento con el patrocinio letrado y con el apoyo emocional o psicológico de su confianza, quienes deberán cumplir con lo señalado en el artículo anterior.

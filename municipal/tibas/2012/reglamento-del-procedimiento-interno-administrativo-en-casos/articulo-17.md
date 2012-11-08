@@ -1,0 +1,5 @@
+Artículo 17.—De la integración de la comisión investigadora. La comisión investigadora estará conformada por tres funcionarios(as) de la Institución, designados(as) por el Alcalde, en la siguiente forma:
+a) El Coordinador(a) del Departamento de Recursos Humanos, quien dirigirá la Comisión Investigadora. En caso de que el Coordinador(a) de Recursos Humanos no pudiera asumir el cargo, la designación recaerá en alguno de los(las) Coordinadores(as) de Área.
+b) Coordinador(a) de Gestión Social.
+c) Un(a) profesional, con grado de licenciatura en leyes y con conocimientos en materia disciplinaria, que velará porque se respete el debido proceso y tendrá en custodia el expediente administrativo.
+Dependiendo del sexo del(la) denunciante, la comisión investigadora estará conformada, en mayoría, por su igual. Cada uno de los(las) integrantes tendrán su respectivo suplente, para aquellas ausencias de fuerza mayor, por parte de los(las) titulares. Todos estos funcionarios(as) tendrán el deber de mantener la confidencialidad sobre lo conocido y resuelto en el caso.

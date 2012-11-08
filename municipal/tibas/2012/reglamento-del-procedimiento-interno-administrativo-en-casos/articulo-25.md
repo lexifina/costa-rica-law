@@ -1,0 +1,1 @@
+Artículo 25.—Comparecencia de la persona denunciada. La persona denunciada tendrá derecho a una audiencia oral y privada ante la Comisión Investigadora, la cual deberá ser notificada con un mínimo de quince días hábiles.

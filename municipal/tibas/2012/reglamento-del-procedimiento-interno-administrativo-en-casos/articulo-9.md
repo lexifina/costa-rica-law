@@ -1,0 +1,1 @@
+Artículo 9º—Del derecho a recurrir. Las partes tienen derecho a los recursos ordinarios y extraordinarios contenidos en el Libro II de la Ley General de la Administración Pública, artículo 342 siguientes y concordantes.
