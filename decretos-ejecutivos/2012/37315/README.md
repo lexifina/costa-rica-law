@@ -14,3 +14,4 @@ Promulga la Carta de Entendimiento sobre la Iniciativa Regional para Prevención
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-10 | la propia norma |
+| 2 | 2012-11-08 | Decreto Ejecutivo 37487 (2012-11-08) |
