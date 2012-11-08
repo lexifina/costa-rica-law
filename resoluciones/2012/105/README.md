@@ -14,3 +14,4 @@ Anula parcialmente las resoluciones RCS-061-2011 y RCS-100-2011 en cuanto a la f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-17 | la propia norma |
+| 2 | 2012-11-08 | Resolución 129 (2012-11-08) |
