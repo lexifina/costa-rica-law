@@ -1,1 +1,0 @@
-Artículo 7°-Le corresponderá al Coordinador General elevar a conocimiento del "Consejo Coordinador", las acciones y propósitos para análisis y supervisión del mismo, además del informe de labores ejecutado en el Programa.
