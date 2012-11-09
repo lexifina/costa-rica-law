@@ -1,1 +1,0 @@
-Artículo 3°—De la población sujeta a atención: Se considera población meta del Sistema Nacional para la Atención y la Prevención de la Violencia Intrafamiliar a las personas afectadas por la violencia intrafamiliar y las personas ofensoras.

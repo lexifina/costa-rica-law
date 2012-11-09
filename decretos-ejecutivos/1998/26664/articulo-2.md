@@ -1,3 +1,0 @@
-Artículo 2°—Objetivos: Los objetivos generales del Sistema Nacional para la Atención y la Prevención de la Violencia Intrafamiliar son:
-a) Poner en funcionamiento un sistema de atención integral que permita la detección de la violencia intrafamiliar y el abuso sexual extrafamiliar, la atención oportuna para detener las agresiones y brindar a la persona afectada la intervención que necesite para posibilitar su recuperación y la construcción de su nuevo proyecto de vida.
-b) Promover acciones que incidan y busquen cambiar los patrones socioculturales que justifican y alientan las conductas violentas, para propiciar un estilo de relaciones humanas no violentas, basadas en el respeto a la individualidad y la diferencia.
