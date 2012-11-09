@@ -1,2 +1,0 @@
-Artículo 4°-Para los fines de apoyar a COPRE en este proceso, créase un órgano asesor del Comité Directivo que en adelante se denominará Unidad de Modernización de la Economía, adscrito al Ministerio de Planificación Nacional y Política Nacional. Esta Unidad deberá formular, redactar y proponer al Comité Directivo las acciones y las políticas pertinentes para reestructuración de los mercados y la venta de activos.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 27523 del 9 de diciembre de 1998).
