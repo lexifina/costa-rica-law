@@ -1,1 +1,0 @@
-Articuló 5°— La Comisión establecerá sus propios procedimientos y normas de trabajo y levará a cabo sus actividades de acuerdo a un programa que someterá al Presidente de la República para su aprobación o improbación, así como sus proposiciones, ya sean individuales o informe anual.
