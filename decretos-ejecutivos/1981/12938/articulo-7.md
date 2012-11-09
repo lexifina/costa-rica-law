@@ -1,1 +1,0 @@
-Articulo 7°—A las sesiones de la Comisión Nacional podrán ser convocados por su Presidente o a iniciativa de la mayoría de sus representantes de instituciones públicas o privadas y en general, a todas aquellas, personas cuya opinión se estime conveniente recabar.

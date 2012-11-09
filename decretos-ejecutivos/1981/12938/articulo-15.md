@@ -1,1 +1,0 @@
-Artículo 15 —El Consejo de Coordinación se reunirá ordinariamente una vez por mes y extraordinariamente, cuando la convoque su Presidente. Podrá invitar a sus reuniones a funcionarios de otras instituciones públicas o privadas.

@@ -1,1 +1,0 @@
-Articulo 10.—Con el fin de lograr mayor eficiencia y eficacia, el Subsistema establecerá mecanismos permanentes de coordinación con las instituciones privadas promotoras de empresas asociativas en las diferentes áreas y sectores.
