@@ -1,2 +1,0 @@
-Artículo 2-EI Proyecto de Ley de Presupuesto Ordinario y Extraordinario de la República deberá ser presentado por el Presidente de la República y los Ministros de Hacienda y de Planificación Nacional y Política Económica a la Asamblea Legislativa a más tardar el 1° de setiembre de cada año.
-Las instituciones y empresas públicas cubiertos por el ámbito de la Autoridad Presupuestaria deberán presentar sus presupuestos a la Contraloría General de la República antes del 30 de setiembre de cada año con copia a la Autoridad Presupuestaria.

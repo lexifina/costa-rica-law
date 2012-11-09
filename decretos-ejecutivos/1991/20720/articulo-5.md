@@ -1,2 +1,0 @@
-Artículo 5-Los anteproyectos de presupuesto deberán ser presentados por las dependencias gubernamentales al Ministro de Hacienda a más tardar el 10 de junio de cada año, quien los trasladará para su análisis a la Dirección General de Presupuesto Nacional.
-Durante el análisis, dicha Dirección podrá reducir o suprimir cualquiera de las partidas que figuren en los anteproyectos formulados. También tendrá presente que los anteproyectos presentados respondan a los lineamientos de políticas que se originen en el Plan Nacional de Desarrollo.

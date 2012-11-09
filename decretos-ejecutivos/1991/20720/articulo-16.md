@@ -1,1 +1,0 @@
-Artículo 16.-La Contraloría General de la República deberá presentar a la Asamblea Legislativa, a más tardar el 30 de junio de cada año. con copia a las instituciones rectoras, los informes de auditorias correspondientes a las partidas específicas, transferencias y subvenciones de los presupuestos de la República.
