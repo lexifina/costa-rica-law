@@ -1,1 +1,0 @@
-Artículo 7°—El quórum de la Comisión estará constituido por cinco de sus miembros y sus-acuerdos se tomarán por simple mayoría de votos, pudiendo el miembro que votó en minoría hacer constar sus razones en el acta respectiva.

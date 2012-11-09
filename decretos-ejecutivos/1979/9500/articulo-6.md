@@ -1,1 +1,0 @@
-Artículo 6°— La Comisión deberá reunirse ordinariamente por lo menos dos veces, al mes y extraordinariamente cuando la convoque su Presidente, por iniciativa propia o a solicitud de dos de sus miembros o en cumplimiento de algún acuerdo tomado por la propia Comisión.:
