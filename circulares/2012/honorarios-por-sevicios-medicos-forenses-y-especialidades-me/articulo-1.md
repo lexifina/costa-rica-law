@@ -1,7 +1,8 @@
 A LAS AUTORIDADES JUDICIALES, INSTITUCIONES,
 ABOGADOS Y PÚBLICO EN GENERAL
 SE LES HACE SABER QUE:
-El Consejo Superior en sesión celebrada el 3 de setiembre de 2009, artículo LIII dispuso que la Dirección Ejecutiva actualice anualmente las diferentes tablas de honorarios. Por lo tanto, a partir del 1° de enero de 2012, regirá la siguiente tabla de honorarios para ejecutores.
+El Consejo Superior en sesión celebrada el 3 de setiembre de 2009, artículo LIII dispuso que la Dirección Ejecutiva actualice anualmente las diferentes tablas de honorarios. Por lo tanto, a partir del 1° de marzo de 2012(*), regirá la siguiente tabla de honorarios para ejecutores.
+(*) (Así reformada la fecha anterior mediante circular N° 99-2012, publicada en el Boletín Judicial N° 230 del 28 de noviembre del 2012)
 Tabla de Honorarios para Ejecutores
 Detalle | Honorarios actuales ¢ | Porcentaje de actualización (4,36%) | Honorarios actualizados ¢ (redondeado a la centena superior próxima)
 Embargos hasta ¢100.000.00 de capital, más el porcentaje de Ley. | 5.900,00 | 6.157,24 | 6.200,00

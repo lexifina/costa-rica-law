@@ -13,3 +13,4 @@ Honorarios por Sevicios Médicos Forenses y Especialidades Médicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-01 | la propia norma |
+| 2 | 2012-11-09 | Circular 99 (2012-11-09) |
