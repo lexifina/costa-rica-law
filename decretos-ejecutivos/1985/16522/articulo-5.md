@@ -1,1 +1,0 @@
-Artículo 5°—La Junta Directiva de JAPDEVA, confirmará los nombres de los representantes de las instituciones y eligirá los representantes de los sectores sindicales y comunales, basado en las ternas que cada uno presentará a su seno.
