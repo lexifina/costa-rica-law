@@ -13,3 +13,4 @@ Reforma Comisión Desarrollo Integral de Cuenca del Arenal y Baja delRío Tempis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-12-15 | la propia norma |
+| 2 | 2012-11-09 | Decreto Ejecutivo 37498 (2012-11-09) |

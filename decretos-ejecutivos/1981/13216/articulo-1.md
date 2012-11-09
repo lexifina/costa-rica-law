@@ -18,29 +18,4 @@ Considerando:
 11.-Que con base en la evolución del proyecto, se hace imprescindible la incorporación a la Comisión de los organismos nacionales encargados de la comercialización y del fortalecimiento de agroindustrias.
 Por tanto,
 DECRETAN:
-Articulo 1°-Reformanse los artículos 3°, 8°, 12 y 13 del Decreto Ejecutivo numero 11689-A-OP del diez de julio de mil novecientos ochenta, para que en lo sucesivo se lean así:
-"Articulo 3°-La Comisión estará formada por:
-a) El Ministro-Director de la Oficina de Planificación Nacional y Política Económica, quien será su Presidente; en ausencias temporales suyas, su representante será el Viceministro-Subdirector de OFIPLAN;
-b) El Ministro de Agricultura y Ganadería o en ausencias temporales suyas, el Viceministro de ese Despacho;
-c)El Obispo de la Diócesis de Tilarán, en representación de la comunidad regional;
-d) El Director Gerente del Servicio Nacional de Electricidad o en ausencias temporales suyas, uno de los Subdirectores;
-e) El Presidente Ejecutivo del Instituto de Tierras y Colonización o en ausencias temporales suyas, el Gerente General;
-f) El Presidente Ejecutivo del Instituto Costarricense de Turismo o en ausencias temporales suyas, el Gerente;
-g) Un representante del Sistema Bancario Nacional nombrado por el Presidente de la Republica;
-h) El Presidente Ejecutivo del Consejo Nacional de Producción o en ausencias temporales suyas, el Subgerente; e
-i) El Presidente Ejecutivo de la Corporación Costarricense de Desarrollo o en ausencias temporales suyas, el Gerente".
-"Articulo 8°-La Comisión determinará sus propios procedimientos y normas de trabajo, de conformidad con lo establecido en la Ley General de la Administración Pública. Los miembros de la Comisión realizarán sus funciones ad honórem.
-Además, deberán rendir trimestralmente al Presidente de la Republica, un informe de labores desarrolladas durante el periodo correspondiente".
-"Articulo 12.-La Comisión contará con un equipo de trabajo interdisciplinario o interinstitucional, para que actúe como grupo técnico asesor en todo lo estipulado en el articulo 7 ° de este decreto.
-Corresponderá a OFIPLAN, en consulta con la Comisión, integrar dicho grupo técnico, el cual estará a cargo de un coordinador propuesto por OFIPLAN y que actúe con la aprobación de la Comisión.
-Al coordinador del grupo técnico asesor Ie corresponderá, sin perjuicio de las tareas adicionales que la Comisión decidiera asignarle las siguientes:
-a) Proponer a la Comisión las necesidades de personal técnico y de apoyo que estime necesario; y
-b) Informar periódicamente, y cuando la Comisión lo solicite, sobre los avances y obstáculos que se presenten en la ejecución de los planes, programas y proyectos.
-A OFIPLAN Ie corresponderá gestionar la asistencia técnica internacional que fuera requerida para el cometido de este grupo técnico asesor".
-"Articulo 13.-Para velar por la ejecución de responsabilidad institucional de los planes, programas y proyectos en la cuenca del Arenal y cuenca baja del río Tempisque, se establece una Junta Ejecutiva, la cual estará formulada por los delegados regionales o funcionarios responsables de las diversas instituciones destacadas en las subregiones de Liberia, Cañas y Santa Cruz, que tengan responsabilidad en la ejecución de los diversos componentes del proyecto. La Junta será presidida por un Director Ejecutivo elegido entre sus miembros por la Comisión".
-Corresponde a la Junta Ejecutiva:
-1) Velar por la ejecución de los planes, programas, proyectos y otros acuerdos institucionales que apruebe la Comisión, y colaborar con el equipo técnico asesor en la preparación de los mismos;
-2) Informar, al Director Ejecutivo, sobre los avances y obstáculos que se presenten en la ejecución de los planes, programas y proyectos, en las actividades que competen a su institución;
-3) Mantener una estrecha vinculación con los consejos de desarrollo correspondientes, a través de sus respectivos coordinadores regionales o subregionales;
-4) Estudiar las propuestas del Director Ejecutivo sobre los mecanismos alternativos de coordinación interinstitucional necesarios para la ejecución de las obras previstas del proyecto; y
-5) Presentar a la Comisión, por medio de su Director Ejecutivo, un cronograma de actividades, asignando las responsabilidades a cada institución y la mecánica operativa para llevar a cabo el cumplimiento de dicho cronograma" ,
+Articulo 1°-(Derogado por el artículo 2° del decreto ejecutivo N° 37498 del 9 de noviembre de 2012, "Derogatoria de normativa que comprenda órganos interinstitucionales constituidos ad hoc que hayan concluido su ciclo operativo o haya entrado en desuso")
