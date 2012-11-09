@@ -1,1 +1,0 @@
-Artículo 2°-Tener como válida la actuación de los actuales representantes, hasta tanto no se cumpla con lo establecido en el decreto N° 15184-MIEM, para lo cual se concede un plazo hasta el 16 de abril de los corrientes.
