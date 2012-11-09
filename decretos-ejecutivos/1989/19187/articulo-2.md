@@ -1,2 +1,0 @@
-Artículo 2°— La Comisión estará integrada por funcionarios técnicos de los Ministerios de Hacienda; Planificación Nacional y Política Económica; Justicia y Gracia; Trabajo y Seguridad Social y la Caja Costarricense de Seguro Social. La Coordinación de la Comisión recaerá en el Ministro de Trabajo y Seguridad Social o en el funcionario en quien delegue esta función.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 19780 del 31 de mayo de 1990)
