@@ -14,3 +14,4 @@ Reforma Comisión Asesora Nacional de los Incentivos Fiscales al Desarrollo Indu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-05-15 | la propia norma |
+| 2 | 2012-11-09 | Decreto Ejecutivo 37498 (2012-11-09) |
