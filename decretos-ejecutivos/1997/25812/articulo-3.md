@@ -1,1 +1,0 @@
-Artículo 3°— La Autoridad Nacional en Concesión de Obras y Servicios Públicos se reunirá ordinariamente una vez al mes y extraordinariamente cuando la convoque su presidente por iniciativa propia o de alguno de sus miembros, de acuerdo con los incisos 3°y 4° del articulo 52 de la Ley General de la Administración Pública.

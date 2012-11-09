@@ -1,1 +1,0 @@
-Artículo 8°—Habrá un Director Ejecutivo a cargo de la Secretaria , quien será nombrado por unanimidad de votos de los miembros de la Autoridad Nacional en Concesión de Obras y Servicios Públicos, el cual será el superior jerárquico de la Secretaría Técnica.

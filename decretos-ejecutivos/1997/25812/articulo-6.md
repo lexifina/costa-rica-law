@@ -1,1 +1,0 @@
-Artículo 6°— La Autoridad Nacional someterá las directrices laboradas a conocimiento del Presidente de la República al cual corresponde emitirlas, previa consulta al Consejo de Gobierno. Las directrices emitidas por el Presidente de la República deberán ser ubicadas en el diario oficial " La Gaceta ".
