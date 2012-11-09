@@ -1,8 +1,0 @@
-Artículo 2°— La Comisión tendrá las siguientes funciones:
-a) Coordinar la ejecución del "Programa de Producción Agrícola para el Incremento. de las Exportaciones" y el fomento de la agroindustrialización de los correspondientes productos;
-b) Proponer la estructura jurídica, y las fuentes de fmanciamiento y funcionamiento de la, o. las empresas que ejecuten el programa, y promover su formación;
-c) Resolver los problemas que se presenten y coadyuvar a su-solución en la ejecución del programa, así como definir todo lo concerniente a la cooperación técnica y capacitación que pudiere requerirse, a cuyo efecto esta comisión tendrá potestades de gestión ante los ministerios e instituciones públicas respectivas;
-ch) Gestionar y promover la participación de las instituciones públicas, las empresas y comunidades beneficiarías en el programa, mediante el esfuerzo conjunto de las instituciones y organismos que forman la comisión o a través de la acción de cada una de ellas ;en, el ámbito de su competencia;
-d) Promover, orientar y evaluar todos les estudios, planes y programas, proyectos y otras acciones relacionadas con el incremento de la producción agrícola para la exportación y el establecimiento de las plantas industriales de los productos seleccionados en el programa;
-e) Sugerir acciones tendientes a racionalizar y perfeccionar la legislación vigente que norma la exportación "de producto-s agrícolas frescos o procesados o incide sobre ella; y
-f) Realizar las demás tareas que, en el ámbito de su cometido, le asignen el Presidente de la República o la Oficina de Planificación Nacional y Política Económica.
