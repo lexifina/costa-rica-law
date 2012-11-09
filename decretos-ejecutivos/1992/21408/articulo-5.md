@@ -1,1 +1,0 @@
-Artículo 5°—Para los efectos del funcionamiento interno de la Comisión de Reforma Presupuestaria, se estará á lo señalado en la Ley General de la Administración Pública sobre las actuaciones de los órganos colegiados.
