@@ -1,2 +1,0 @@
-Artículo 4°-Las Instituciones Públicas que la Comisión considere en sus planes de trabajo podrán, en la medida de sus posibilidades y de acuerdo con las disposiciones que regulan el gasto público, incorporar en los presupuestos extraordinarios de 1997 y en el ordinario de 1998, las partidas que sean necesarias para la ejecución de los actos conmemorativos.
-(Así reformado mediante el artículo 2° del decreto ejecutivo N° 26119 del 22 de mayo de 1997).
