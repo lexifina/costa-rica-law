@@ -1,0 +1,2 @@
+Artículo 6º—Las casetas ubicadas sobre espacio público deberán cancelar el canon correspondiente por su ocupación conforme a lo dispuesto en el Plan Director Urbano, Sección Tercera, Reglamento de Espacios Públicos Vialidad y Transporte, Título II, Capítulo I, artículo 8.
+La falta de pago por al menos dos o más trimestres del canon correspondiente acarrea la suspensión de la autorización con las implicaciones del numeral 12 de la Ley 8892 una vez cumplido el debido proceso.

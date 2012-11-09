@@ -1,0 +1,1 @@
+Artículo 8º—La instalación de postes de seguridad deberán contribuir directamente con su instalación con la seguridad de peatones y edificaciones; y estos cumplirán con los lineamientos contenidos en el artículo 9.2.2 del Plan Director Urbano.
