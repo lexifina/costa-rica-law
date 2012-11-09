@@ -1,1 +1,0 @@
-Artículo 2°-Las instituciones que operen estos registros en forma computarizada deberán adicionar los números de tales cédulas de identidad con un digito verificador, el cual será obtenido mediante la aplicación del procedimiento técnico denominado "Módulo 37" .
