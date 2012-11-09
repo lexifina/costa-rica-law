@@ -1,1 +1,0 @@
-Artículo 2º—Derogar los artículos VII.10.4.1. y VII.10.4.2. del Reglamento de Construcciones, Capítulo VII, de edificaciones bajo el Régimen de Propiedad Horizontal o en Condominio, publicado en La Gaceta Nº 84 del 3 de mayo de 1995.
