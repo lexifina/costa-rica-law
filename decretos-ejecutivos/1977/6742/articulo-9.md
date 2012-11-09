@@ -1,1 +1,0 @@
-Artículo 9°.- Podrán efectuar aportes extraordinarias para los fines del artículo anterior, los Ministerios, Instituciones del Estado, y las Municipalidades. Dichos aportes se harán a favor de la Municipalidad del cantón Central de Heredia, con carácter específico para la Comisión Coordinadora.
