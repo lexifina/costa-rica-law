@@ -1,7 +1,0 @@
-N° 4957-T
-EL PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES,
-DECRETAN:
-Artículo 1°-Modificar el artículo 2° del Decreto Ejecutivo N° 17 de 29 de mayo de 1969, reformado por los decretos ejecutivos números 20, 1356-T y 4542-T de 24 de junio de 1969, 12 de noviembre de 1970 y 6 de febrero de 1975, que integra la Comisión Asesora sobre Instalaciones Portuarias, para que en lo sucesivo se lea así:
-Artículo 2°-Dicha Comisión estará integrada por el Ministro o Viceministro de Obras Públicas y Transportes, Ministro o Viceministro de Hacienda, el Director o Subdirector de la Oficina de Planificación, el Gerente del Banco Central o su Delegado, el Director General de Aduanas, por representantes de la Junta de Administración Portuaria y de Desarrollo de la Vertiente Atlántica, del Ministerio de Agricultura, de la Cámara Nacional de Bananeros, del Instituto Costarricense de Puertos del Pacífico, de la Cámara de Agentes de Aduana de Costa Rica, de la Cámara Nacional de Armadores y Agentes de Vapores, de la Cámara de Industrias de Costa Rica y por un delegado Personal del Presidente de la República".
-Las reuniones de la Comisión serán presididas por el Ministro o Viceministro de Obras Públicas y Transportes, se efectuarán con un quórum de cinco de sus integrantes y podrán ser convocados por los citados representantes del Ministerio de Obras Públicas y Transportes o por tres cualesquiera de sus miembros.
