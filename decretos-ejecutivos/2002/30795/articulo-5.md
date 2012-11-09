@@ -1,1 +1,0 @@
-Artículo 5º—Se derogan los Decretos Ejecutivos Nº 27897-MP del 27 de mayo de 1999, publicado en La Gaceta N° 121 de 23 de junio de 1999, reformado por el Decreto N° 29320-MP, de 6 de febrero de 2001, publicado en La Gaceta N° 44 de 2 de marzo de 2001.

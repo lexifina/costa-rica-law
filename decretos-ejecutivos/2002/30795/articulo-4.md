@@ -1,2 +1,0 @@
-Artículo 4º—La Comisión Técnica Interinstitucional y el Comité Técnico que se integran por este Decreto serán presididos y coordinados por el Ministro de Hacienda o su Representante.
-En su actuación observarán lo establecido en la Ley N° 8154, de 27 de noviembre de 2001, publicada en La Gaceta N° 237 de 10 de diciembre de 2001, el Reglamento Operativo del Programa de Regularización del Catastro y Registro, el Convenio Marco Interinstitucional y en lo conducente por la Ley General de la Administración Pública.
