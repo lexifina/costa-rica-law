@@ -1,1 +1,0 @@
-Artículo 10.-En sesiones ordinarias la Comisión conocerá aquellos asuntos que figuren en el orden del día, pudiendo ser alterado éste por decisión de mayoría o por disposición del miembro que presida, haciendo uso de las facultades que le confiere este Reglamento.

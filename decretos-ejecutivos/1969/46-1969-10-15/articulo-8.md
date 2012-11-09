@@ -1,1 +1,0 @@
-Artículo 8°-En la primera sesión ordinaria anual se fijará día, hora y lugar para las sesiones ordinarias. La semana anterior a aquella en la qué el día de sesión no sea hábil, se acordará el día y la hora en que se celebrará la sesión correspondiente a esa semana.

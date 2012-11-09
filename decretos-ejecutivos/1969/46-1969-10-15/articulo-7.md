@@ -1,2 +1,0 @@
-Artículo 7°-La Comisión celebrará una sesión ordinaria semanal, y sesiones extraordinarias cuando la convoque su Presidente, por propia iniciativa o en cumplimiento de algún acuerdo tomado por la Comisión.
-Este acuerdo se tomará por simple mayoría, y contra él no cabe recurso de revisión. La convocatoria a sesión extraordinaria se hará por lo menos con veinticuatro horas de anticipación, indicando los asuntos que se van a tratar.
