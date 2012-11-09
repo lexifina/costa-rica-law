@@ -1,1 +1,0 @@
-Artículo 5°—La Comisión contara con una Secretaría Ejecutiva a cargo del INCOPESCA, la cual asumirá la coordinación de la Comisión, correspondiéndole el cumplimiento de las labores propias de ese cargo y adicionalmente el fungir como unidad de enlace y coordinación entre la Comisión y los Programas Ejecutivos y entre estos Programas.
