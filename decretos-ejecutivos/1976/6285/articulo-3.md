@@ -1,2 +1,0 @@
-Artículo 3°—Para la ejecución del Programa se establece una Unidad, Técnica adscrita a la Oficina , de Planificación Nacional y Política Económica que, sin aumentar el personal ya nombrado, dispondrá de los recursos profesionales para cada una de las disciplinas requeridas.
-Los ministerios, entes descentralizados y organismos de derecho público, aportarán el personal técnico que requiera este Programa, a solicitud de la Oficina de Planificación racional y Política Económica, conforme a lo dispuesto en el artículo 8° de la Ley de Planificación Nacional, N° 5525.
