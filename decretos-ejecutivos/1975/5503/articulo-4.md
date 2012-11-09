@@ -1,2 +1,0 @@
-Artículo 4°—Este Comité designará de su seno un Presidente que fungirá por períodos de dos años, pudiendo ser reelecto. Se reunirá por lo menos una vez cada tres meses y extraordinariamente cada vez que sea necesario. Se regirá por el Reglamento Interno que deberá emitir el propio Comité a mas tardar tres meses después de la publicación del presente decreto.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 8844 de 2/8 de julio de 1978).

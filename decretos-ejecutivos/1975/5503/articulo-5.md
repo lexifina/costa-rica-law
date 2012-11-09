@@ -1,1 +1,0 @@
-Artículo 5°—La Oficina de Planificación Nacional y Política Económica de la Presidencia de la República será la encargada de coordinar la formación de este Comité con base en este decreto, mediante los procedimientos que juzgue del caso.
