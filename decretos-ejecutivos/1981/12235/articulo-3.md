@@ -1,1 +1,0 @@
-Artículo 3°-Para su informe, la comisión deberá cuidar que no afecten las partidas vinculadas directamente con el mejoramiento de la infraestructura productiva, de aquéllas que tienden a la conservación de monumentos nacionales y de las que tengan como objetivo el desarrollo urbano.
