@@ -1,1 +1,0 @@
-Artículo 4°—Los miembros del Consejo Técnico serán funcionarios con puestos de jerarquía en las áreas de Análisis Estadísticos y Sistemas de Información, nombrados por el titular de cada uno de los Ministerios citados en e! articulo anterior.
