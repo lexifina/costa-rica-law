@@ -1,1 +1,0 @@
-Artículo 2°-Estará integrada por todos los entes descentralizados que voluntariamente se incorporen a esta Comisión y por la Oficina de Planificación Nacional, por ser este organismo central encargado de la elaboración del Plan Nacional de Desarrollo.
