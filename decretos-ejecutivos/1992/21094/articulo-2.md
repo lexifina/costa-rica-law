@@ -1,4 +1,0 @@
-Articulo 2°— La Comisión Nacional de Información y Estadística Agropecuaria en el ámbito sectorial y en el marco de los objetivos de la COPOIN tendrá los siguientes objetivos específicos:
-a) Procurar el aprovechamiento racional de los recursos informáticos técnicos y humanos existentes en el Sector Agropecuario.
-b) Promover la incorporación de la informática en los procesos de planificación y de gestión administrativa en el sector agropecuario estimulando las iniciativas de diseño y producción de sistemas, equipos y programas de aplicación en el sector.
-c) Establecer la base interinstitucional adecuada para un desarrollo coordinado y uniforme de la informática en el sector, en concordancia con las disposiciones de los entes nacionales competentes y las necesidades específicas del agro costarricense.
