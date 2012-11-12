@@ -1,4 +1,5 @@
-CAPÍTULO XIII
+CAPÍTULO XXV
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 De las excepciones, renuncias y sanciones
 Artículo 138.—El servidor que se acoja a la dedicación exclusiva está facultado para ejercer excepcionalmente su profesión en los siguientes casos:
 1. Cuando se trate de labores docentes en establecimientos de enseñanza Universitaria, Para-universitaria o Vocacional, sean estos centros de enseñanza públicos o privados de conformidad con el ordenamiento vigente en este sentido. Será competencia de la Alcaldía el establecer el número de horas, las cuales en ningún caso podrán ser mayores a las estipuladas por el ordenamiento vigente.

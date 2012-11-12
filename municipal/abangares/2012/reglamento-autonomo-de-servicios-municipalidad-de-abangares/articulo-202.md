@@ -1,2 +1,3 @@
 Artículo 202.—Las amonestaciones verbales o escritas por faltas leves, las emitirá el jefe inmediato del amonestado dentro del término establecido, sin más trámite que concederle audiencia. La escrita deberá contener un relato sucinto de los hechos que motivaron la infracción y fundamento que justifican la sanción disciplinaria.
-Lo anterior salvo que para la determinación del hecho sea necesario llevar a cabo una investigación, en tal caso deberá iniciarse el procedimiento administrativo y el término para aplicar la sanción se regirá por lo establecido en el artículo 125 de este Reglamento.
+Lo anterior salvo que para la determinación del hecho sea necesario llevar a cabo una investigación, en tal caso deberá iniciarse el procedimiento administrativo y el término para aplicar la sanción se regirá por lo establecido en el artículo 225 de este Reglamento.
+(Así reformado el párrafo anterior mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)

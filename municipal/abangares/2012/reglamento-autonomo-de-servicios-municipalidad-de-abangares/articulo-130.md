@@ -1,4 +1,5 @@
-CAPÍTULO XI
+CAPÍTULO XXIII
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 Del procedimiento para acogerse al régimen
 de dedicación exclusiva y disponibilidad
 Artículo 130.—Para acogerse a la dedicación exclusiva y disponibilidad, el interesado deberá presentar a la Alcaldía la solicitud y aportar la documentación requerida, de ser aceptada la solicitud, el profesional deberá suscribir un contrato con la Municipalidad, comprometiéndose a prestar servicios en forma exclusiva para el Municipio y no ejercer de manera particular ninguna profesión que ostente. A cambio de ello percibirá una compensación económica equivalente a un 35% a aquellos servidores que poseen el grado académico de bachillerato universitario y ocupen un puesto para el que se requiere la condición anterior y además satisfaga los literales a), b), c) y d) del artículo 127 de este reglamento. Un 55%, a aquellos otros que ostentando el grado académico de licenciatura.

@@ -4,5 +4,6 @@ REGLAMENTO AUTÓNOMO DE SERVICIOS
 MUNICIPALIDAD DE ABANGARES
 El presente documento está analizado y avalado por la Comisión que para sus efectos nombro el Concejo Municipal y en la que participaron representantes sindicales. Este reglamento contiene elementos básicos de la legislación laboral, así como una serie de propuestas que ayudarían en el proceso de profesionalización de los funcionarios y por ende de nuestra corporación municipal, lo cual redundara al final en una mayor eficiencia en la atención de los ciudadanos de nuestro cantón y sus necesidades. Mucho agradeceremos sus comentarios y aportes para con el presente reglamento.
 CAPÍTULO I
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 Disposiciones generales
 Artículo 1º—Se establece el presente Reglamento Autónomo de Servicio, para normar las relaciones de servicio entre la Municipalidad de Abangares y sus servidores, de conformidad con el ordenamiento administrativo vigente.

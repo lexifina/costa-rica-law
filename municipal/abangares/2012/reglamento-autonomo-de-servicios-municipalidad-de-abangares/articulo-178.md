@@ -1,4 +1,5 @@
-CAPÍTULO XX
+CAPÍTULO XXXI
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 Del hostigamiento psicológico y moral
 Artículo 178.—Definiciones. Para los efectos de una correcta interpretación y aplicación del presente capítulo, se establecen las siguientes definiciones:
 a. “Hostigamiento psicológico y moral”: Se entiende por hostigamiento o acoso psicológico y moral en el trabajo, toda aquella actuación en la que una o varias personas, se encuentren en una relación, superior de jerarquía laboral o no, ejerzan violencia psicológica extrema en forma sistemática y recurrente, durante un tiempo prolongado, sobre una o varias personas en el lugar de trabajo, mediante comportamientos, palabras o actitudes, con los siguientes fines:

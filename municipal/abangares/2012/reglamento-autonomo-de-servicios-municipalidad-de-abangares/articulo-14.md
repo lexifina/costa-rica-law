@@ -1,4 +1,5 @@
-CAPÍTULO V
+CAPÍTULO VI
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 De las prohibiciones y restricciones de los servidores
 Artículo 14.—Además de lo dispuesto en los artículos 72 del Código de Trabajo. La ley de Administración Financiera de la República, otras normas del presente Reglamento y demás normativa que regule la materia, queda absolutamente prohibido a los servidores:
 1- Ocupar tiempo dentro de las horas de trabajo para asuntos ajenos a las labores asignadas.

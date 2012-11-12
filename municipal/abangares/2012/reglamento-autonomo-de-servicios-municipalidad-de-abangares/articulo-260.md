@@ -1,4 +1,5 @@
-CAPÍTULO XXIV
+CAPÍTULO XXXV
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 De la terminación de las relaciones de servicio
 Artículo 260.—Los funcionarios regulares terminaran su relación de servicios, cuando se dé uno de los siguientes supuestos:
 a) Renuncia debidamente aceptada.

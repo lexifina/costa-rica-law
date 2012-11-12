@@ -1,1 +1,2 @@
-Artículo 168.—El Jerarca de la Institución y Jefes de Departamentos, que incurran en el hostigamiento sexual, serán responsables personalmente por sus actuaciones, así mismo tendrán responsabilidad, si, pese a haber recibido las quejas de la persona ofendida no cumple con lo establecido en este articulado.
+Artículo 168.—El Alcalde Municipal (*) y Jefes de Departamentos, que incurran en el hostigamiento sexual, serán responsables personalmente por sus actuaciones, así mismo tendrán responsabilidad, si, pese a haber recibido las quejas de la persona ofendida no cumple con lo establecido en este articulado.
+(*)(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, anteriormente decía "Jerarca de la Institución")

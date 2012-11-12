@@ -1,4 +1,5 @@
-(*) CAPÍTULO XXI
+(*) CAPÍTULO XXXII
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 De la salud ocupacional, condiciones de seguridad,
 higiene y recreación en el trabajo
 Artículo 191.—La Salud ocupacional se entenderá como una derivación directa de los derechos constitucionales a un ambiente sano y equilibrado, y a la seguridad social establecidos en los artículos 50 y 74 constitucionales respectivamente. En virtud de lo anterior la política de salud ocupacional en la Municipalidad, deberá de comprender su aspecto laboral propiamente dicho, así con la política ambiental del Cantón de Abangares. Por tal razón esta política debe incluir al menos los siguientes componentes:

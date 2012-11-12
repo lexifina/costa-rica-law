@@ -1,4 +1,5 @@
-CAPÍTULO XXII
+CAPÍTULO XXXIII
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 Del régimen disciplinario y su procedimiento de aplicación
 Artículo 201.—Las faltas en que incurran los servidores, serán sancionadas con las medidas disciplinarias que a continuación se indican:
 1- Amonestación verbal.

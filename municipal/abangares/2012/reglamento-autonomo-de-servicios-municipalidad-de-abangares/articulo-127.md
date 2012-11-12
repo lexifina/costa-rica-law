@@ -1,4 +1,5 @@
-CAPÍTULO XIX
+CAPÍTULO XXI
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 De los requisitos exigidos para acogerse
 a la dedicación exclusiva y disponibilidad
 Artículo 127.—Podrán optar a la dedicación exclusiva y disponibilidad, aquellos profesionales que tengan el grado de Bachiller Universitario, Licenciatura, Máster y Doctorado.

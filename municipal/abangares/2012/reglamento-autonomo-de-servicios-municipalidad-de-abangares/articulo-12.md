@@ -1,4 +1,5 @@
 CAPÍTULO V
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
 De los deberes de los servidores
 Artículo 12.—Sin perjuicio de lo que al efecto disponga la Ley General de la Administración Pública, el Código de Trabajo y demás normativa de derecho público que corresponda, son deberes de los servidores de la Municipalidad:
 1- Desempeñar personalmente y ejecutar en forma regular y continua sus labores bajo la dirección del jefe inmediato, a cuya autoridad estarán sujetos en todo lo concerniente a ellas dentro de la jornada y lugar señalado.

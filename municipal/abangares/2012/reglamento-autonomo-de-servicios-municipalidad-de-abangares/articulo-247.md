@@ -1,1 +1,2 @@
-Artículo 247.—Una vez dictada la resolución por parte del Jerarca de la Institución, ella deberá remitirse a las instancias externas de la Municipalidad para el trámite de rigor. Es responsabilidad del gestionante efectuar los trámites correspondientes para su efectivo pago en caso de corresponderle.
+Artículo 247.—Una vez dictada la resolución por parte del Alcalde Municipal (*), ella deberá remitirse a las instancias externas de la Municipalidad para el trámite de rigor. Es responsabilidad del gestionante efectuar los trámites correspondientes para su efectivo pago en caso de corresponderle.
+(*)Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, anteriormente decía "Jerarca de la Institución")
