@@ -14,3 +14,4 @@ Uso del formulario Impuesto Solidario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-22 | la propia norma |
+| 2 | 2012-11-12 | Resolución 32 (2012-11-12) |
