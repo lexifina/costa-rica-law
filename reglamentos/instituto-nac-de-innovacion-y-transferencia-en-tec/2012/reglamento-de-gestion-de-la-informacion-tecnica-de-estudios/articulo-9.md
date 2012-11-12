@@ -1,0 +1,1 @@
+Artículo 9º—Con respecto a los Estudios Especiales, Consultorías y Actividades Institucionales, que se rijan bajo convenios o cartas de entendimiento, entre una o varias instituciones y el INTA, el registro de información generada en el transcurso de la actividad, deberá cumplir con lo dispuesto en este reglamento.

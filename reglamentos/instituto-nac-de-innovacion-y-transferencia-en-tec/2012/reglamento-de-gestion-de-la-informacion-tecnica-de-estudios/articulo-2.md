@@ -1,0 +1,4 @@
+Artículo 2º—Definiciones: Para los propósitos de este reglamento, se establecen las siguientes definiciones:
+Estudios Especiales: Se entiende aquella actividad específica y puntual enmarcada tanto en el quehacer como en el marco legal del INTA. Pagada en forma parcial o total, o asumida con recursos propios de la institución, que responda a una demanda institucional, de interés nacional, sectorial o local.
+Consultoría: Es una actividad específica y puntual enmarcada en el quehacer del INTA y su marco legal. Responde a una demanda puntual, realizada por un agente externo, tiene términos de referencia y es respaldada por un contrato y pagada en forma total o parcial.
+Actividad Institucional: Se entiende por aquellas actividades propias de las funciones de las Direcciones y Departamentos y que no se enmarcan en un proyecto.
