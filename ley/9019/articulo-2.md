@@ -13,7 +13,6 @@ PRIORIDADES INSTITUCIONALES:
 7 Transparencia en la función pública a través de la información permanente y la rendición de cuentas.
 8 Establecimiento de un modelo curricular que fortalezca la calidad y la pertinencia de la educación, promoviendo la creación de las capacidades humanas necesarias para competir e integrarse a la economía mundial.
 9 Coordinación de los Consejos Presidenciales: Bienestar Social y Familia, Seguridad Ciudadana y Paz Social, Competitividad e Innovación y Ambiental.
-[imagen]
 OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 1. Mejorar las condiciones de vida de las personas que se desenvuelven en los diferentes sectores de la economía nacional, especialmente aquellas que se encuentran en desventaja socio-económica.
 2. Dar seguimiento a las acciones, planes y programas aprobados en el seno de la Junta Directiva y dotar de recursos financieros a la Comisión Nacional de Emergencias para el cumplimiento de las funciones asignadas a esta Comisión relacionadas con los mecanismos de emergencia para minimizar las consecuencias ante eventuales situaciones de desastres naturales.
@@ -51,3 +50,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 37363 del 8 de octubre del 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37368 del 12 de octubre del 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37381 del 16 de octubre de 2012)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37385 del 30 de octubre del 2012)
