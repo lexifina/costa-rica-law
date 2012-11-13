@@ -1,0 +1,5 @@
+Artículo 6º—De las prohibiciones. Mientras la resolución que autorice la solicitud no haya adquirido firmeza, el partido gestionante no podrá hacer uso del local.
+Una vez autorizado, el local deberá dedicarse de inmediato, de modo permanente y efectivo, al propósito para el que fue autorizado.
+De igual manera, quienes ocupen el local se abstendrán, en todo momento, de hacer o difundir propaganda o discursos fuera del local o en las puertas o aceras del mismo, ya sea de viva voz o por medio de radios, altavoces u otros instrumentos análogos.
+Dentro de los locales partidarios estará prohibido el expendio de licor, el consumo de drogas de uso no autorizado, la realización de actividades ilícitas y su uso para actividades que no sean las propias de los partidos.
+Los locales de los demás partidos ubicados en las proximidades del sitio en donde otro partido político efectuará su manifestación o reunión pública, permanecerán cerrados durante las veinticuatro horas de ese día. También se mantendrán clausurados el día de las elecciones si se encuentran ubicados a menos de cincuenta metros de un centro de votación.
