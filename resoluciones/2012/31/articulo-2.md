@@ -1,0 +1,1 @@
+Artículo 2º. — Derogatoria. Deróguese en todos sus extremos la resolución DGT-R- 022-2012, de las 14:26 horas del 26 de setiembre del 2012, publicada en el Alcance Nº 159 a La Gaceta Nº 202, del 19 de octubre del 2012.
