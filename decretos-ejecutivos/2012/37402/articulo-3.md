@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Salud, el Instituto Costarricense de Pesca y Acuicultura y el Servicio Nacional de Salud Animal, velarán por el cumplimiento de las medidas establecidas en el presente decreto.

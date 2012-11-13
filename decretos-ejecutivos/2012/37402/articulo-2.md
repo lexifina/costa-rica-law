@@ -1,0 +1,1 @@
+Artículo 2º—Aquellos proyectos de cultivo de moluscos bivalvos debidamente registrados ante el INCOPESCA, solo podrán comercializar sus productos, previa autorización expresa y por escrito de parte del INCOPESCA y SENASA.
