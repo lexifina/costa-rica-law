@@ -1,0 +1,2 @@
+Artículo 6. Fijación de dirección física.
+Las partes interesadas en un trámite o procedimiento de contratación administrativa que se encuentre en conocimiento de la División de Contratación Administrativa, podrán señalar un lugar físico ubicado dentro del Cantón Central de San José, entendido éste conforme la distribución territorial y administrativa dispuesta en el Decreto Ejecutivo No. 35213 MG, publicado en el Diario Oficial La Gaceta No. 85 de 05 de mayo del año 2009 o su versión vigente.

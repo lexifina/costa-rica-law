@@ -1,0 +1,4 @@
+Artículo 3. Deber de señalar medio o lugar para recibir notificaciones.
+Es deber de las partes señalar un lugar físico dentro del cantón central de San José o medio electrónico donde atender notificaciones.
+Con la finalidad prevista en el párrafo anterior, las partes indicarán en la primera gestión en que participen, el medio o lugar escogido para recibir notificaciones. La omisión producirá las consecuencias de una notificación automática, en las formas descritas en los artículos ocho y catorce del presente Reglamento.
+En el caso de recursos de apelación, al momento en que el funcionario tramitador del procedimiento solicita el expediente administrativo correspondiente, le ordenará a la Administración licitante indicar el último medio o lugar señalado por las partes involucradas en el procedimiento de compra para recibir notificaciones, lo anterior a efectos de notificar únicamente la eventual audiencia inicial.

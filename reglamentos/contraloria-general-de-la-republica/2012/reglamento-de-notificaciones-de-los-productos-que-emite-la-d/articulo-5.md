@@ -1,0 +1,3 @@
+Artículo 5. Fijación de medio electrónico.
+Para cada caso en concreto, las partes podrán señalar a la División de Contratación Administrativa de la Contraloría General de la República, una dirección de correo electrónico o número de fax para recibir toda notificación con ocasión de cualquier asunto administrativo en que deban intervenir. Esta fijación podrá ser modificada o revocada en cualquier tiempo, por la persona interesada mediante el documento respectivo.
+Queda bajo responsabilidad del interesado garantizar que su cuenta de correo electrónico o fax, tienen la capacidad, disponibilidad y seguridad para recibir las notificaciones que se efectúen en ese medio.

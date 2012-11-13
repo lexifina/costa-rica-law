@@ -1,0 +1,2 @@
+Artículo 9. Notificaciones complejas o partes múltiples.
+En la tramitación de los procedimientos de recursos de apelación y de objeción en que existan más de 20 partes involucradas o bien el documento respecto del cual debe otorgarse audiencia supere los 25 folios en total, para efectos de notificación a los interesados, en el auto en que se otorgue la audiencia respectiva se podrá hacer referencia expresa de los folios del expediente en que se encuentra el documento original, a efectos que las partes accedan a la información correspondiente.

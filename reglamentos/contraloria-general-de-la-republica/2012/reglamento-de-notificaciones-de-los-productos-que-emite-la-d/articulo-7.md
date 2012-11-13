@@ -1,0 +1,3 @@
+Artículo 7. Medios simultáneos.
+Las partes están autorizadas a establecer dos medios de notificación distintos de manera simultánea, pero el interesado deberá indicar, en forma expresa, cuál de ellos se utilizará como principal. En caso de omisión, respecto a la determinación de cuál es el medioprincipal, se entenderá que el primero que conste en el documento respectivo será el utilizado como principal. La notificación automática recaerá sobre el medio principal.
+De conformidad con el artículo 8 del presente Reglamento se realizarán tres intentos al medio principal el primer día y dos el siguiente día hábil. En caso que resulte imposible la notificación al medio principal en el primer día hábil, se efectuará un intento al medio accesorio.
