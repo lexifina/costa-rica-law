@@ -1,0 +1,1 @@
+Artículo 2º—El TSE, a través del programa de Asesores Electorales, llevará a cabo el proceso de selección y reclutamiento de las personas auxiliares electorales. Se procurará designar un número suficiente a fin de que cada junta receptora de votos cuente, en la medida de lo posible, con dos de ellos.

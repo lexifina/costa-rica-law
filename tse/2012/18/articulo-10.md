@@ -1,0 +1,1 @@
+Artículo 10.—Para ser encargado de centro de votación, se requiere, como mínimo, cumplir los requisitos establecidos para ser auxiliar electoral. En su designación se preferirá a quienes sean docentes o personas funcionarias del centro educativo que se utilizará como centro de votación.
