@@ -1,0 +1,3 @@
+Artículo 26.—Las personas fiscales se ubicarán en cada una de las mesas escrutadoras y presenciarán el trabajo sin obstaculizar la labor ni participar en las deliberaciones de las y los funcionarios electorales.
+No se permitirá la asistencia de más de una persona fiscal por partido político en cada mesa y sólo en caso de ausencia de una propietaria, se autorizará el ingreso al recinto del respectivo suplente.
+A las personas fiscales se les proporcionarán todas las facilidades necesarias para el buen cumplimiento de su función, pero sólo podrán manipular el material electoral bajo las condiciones y lineamientos que fije el Magistrado o Magistrada responsable de la mesa.

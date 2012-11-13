@@ -1,0 +1,2 @@
+Artículo 14.—Al momento de la presentación de una nómina de fiscales y sus respectivos carnés, se hará constar en el documento un número consecutivo de orden de presentación, además de la hora y fecha, y se entregará un comprobante a quien la presente.
+Con la documentación recibida se formará un expediente separado, en el cual se consignarán todas las diligencias que se lleven a cabo. La persona encargada del programa de Acreditación de Fiscales dictará las resoluciones correspondientes.

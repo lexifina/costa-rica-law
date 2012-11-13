@@ -1,0 +1,2 @@
+Artículo 11.—Los partidos políticos y las coaliciones deberán aportar los carnés preimpresos para cada una de las personas indicadas en las respectivas nóminas. Estas credenciales deben estar debidamente llenas y cotejadas con el respectivo listado, a efectos de proceder con su validación, con el distintivo que disponga la Dirección General de Registro Electoral y Financiamiento de Partidos Políticos (en adelante “la Dirección”), una vez verificada la información.
+No se tramitará ninguna solicitud de acreditación hasta tanto no se presenten los carnés respectivos.

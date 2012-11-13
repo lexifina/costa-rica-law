@@ -1,0 +1,4 @@
+CAPÍTULO V
+De las personas fiscales de escrutinio
+Artículo 23.—Para participar en las sesiones de escrutinio de votos que celebre el TSE, los partidos políticos y coaliciones que hayan inscrito candidaturas podrán designar tantas personas fiscales propietarias como cantidad de mesas de escrutinio sean instaladas. Además, cada partido político o coalición podrá tener hasta dos suplentes por cada propietario. No obstante, a las sesiones de escrutinio sólo podrán asistir las personas fiscales acreditadas por los partidos o coaliciones que hubieren participado en la elección cuya documentación se esté escrutando en el momento específico de que se trate.
+La omisión de acreditación o la ausencia parcial o total de fiscales a una sesión en particular no interrumpirá el desarrollo normal del escrutinio.
