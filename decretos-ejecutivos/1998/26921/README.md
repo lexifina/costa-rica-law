@@ -19,3 +19,4 @@ Reglamento a la Ley de Protección Fitosanitaria.
 | 4 | 2004-07-09 | Decreto Ejecutivo 31946 (2004-07-09) |
 | 5 | 2011-09-20 | Decreto Ejecutivo 36801 (2011-09-20) |
 | 6 | 2012-06-25 | Ley 9046 |
+| 7 | 2012-11-14 | Decreto Ejecutivo 37588 (2012-11-14) |
