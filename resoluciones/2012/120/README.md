@@ -14,3 +14,4 @@ Aprueba Modelo de Ajuste Extraordinario para el servicio de transporte remunerad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-06 | la propia norma |
+| 2 | 2012-11-14 | Resolución 141 (2012-11-14) |
