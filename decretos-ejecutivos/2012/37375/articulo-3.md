@@ -1,0 +1,2 @@
+ARTICULO 3.-
+Para los fines previstos en el acápite 1 del Artículo 2, cada una de las Partes designará a los técnicos que colaborarán con los expertos que envíe la otra Parte. En cumplimiento de su misión, los expertos proporcionarán a los técnicos todas las informaciones útiles sobre métodos, técnicas y prácticas aplicables en su respectiva esfera de acción y los principios en los cuales se asientan dichos métodos, técnicas y prácticas.
