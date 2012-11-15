@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Los casinos que, a la entrada en vigencia de esta ley, se encuentren autorizados y operando válidamente en hoteles de primera categoría, con calificación igual a tres estrellas, o fuera de hoteles, pero que cuenten con autorización, conservarán sus derechos y deberán cumplir con el pago de los tributos que establece esta ley.
+No obstante, cualquier ampliación de sus servicios o la tramitación de nuevas autorizaciones se regirán por lo dispuesto en el artículo 3 de esta ley.
