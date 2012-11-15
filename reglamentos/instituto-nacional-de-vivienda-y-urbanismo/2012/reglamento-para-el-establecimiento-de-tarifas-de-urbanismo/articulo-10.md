@@ -1,0 +1,1 @@
+Artículo 10.—En la determinación del costo para revisión de un plan regulador, su modificación o actualización, se tomarán en cuenta los estudios requeridos, mencionados en los Reglamentos antes indicados y utilizando las variables del esquema básico indicado en el anexo Nº 2.

@@ -1,0 +1,1 @@
+Artículo 16.—El Área Administrativa Financiera en consuno con la Dirección de Urbanismo realizará la actualización de las tarifas a cobrar por los servicios previamente descritos en el presente reglamento, basados en los costos de generación de estos servicios proyectados para el año siguiente.

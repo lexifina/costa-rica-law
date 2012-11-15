@@ -1,0 +1,2 @@
+Artículo 18.—La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, con la debida justificación, revisará y aprobará la propuesta de actualización de las tarifas de Urbanismo a más tardar la primera semana de diciembre. Lo anterior, sin perjuicio de que la Junta Directiva establezca en el acuerdo de tarifas, un mecanismo de actualización automático de precios contenidos en este Reglamento.
+Las tarifas aprobadas serán publicadas en el Diario Oficial La Gaceta y entrarán a regir el día de su publicación.

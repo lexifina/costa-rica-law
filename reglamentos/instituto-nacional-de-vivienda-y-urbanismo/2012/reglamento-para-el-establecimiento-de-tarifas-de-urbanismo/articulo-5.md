@@ -1,0 +1,1 @@
+Artículo 5º—Las tarifas a cobrar por los servicios citados serán las aprobadas mediante acuerdo por la Junta Directiva del INVU, y publicadas en el Diario Oficial La Gaceta para cada año. Lo anterior, sin perjuicio de que la Junta Directiva establezca en el acuerdo de tarifas, un mecanismo de actualización automático de precios contenidos en este Reglamento.

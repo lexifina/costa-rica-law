@@ -1,0 +1,1 @@
+Artículo 8º—Los presupuestos deben ser elevados a conocimiento, revisión y aprobación de la Gerencia General; la cual tendrá un plazo de 5 días hábiles siguientes al recibo del presupuesto para su revisión y aprobación.

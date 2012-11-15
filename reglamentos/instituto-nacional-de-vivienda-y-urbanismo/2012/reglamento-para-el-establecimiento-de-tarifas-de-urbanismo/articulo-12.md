@@ -1,0 +1,1 @@
+Artículo 12.—Una vez realizado el pago, el usuario deberá presentar el recibo del mismo, junto con los demás requisitos establecidos legalmente, en la plataforma de servicios, para que se le brinde el servicio requerido.

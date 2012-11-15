@@ -1,0 +1,1 @@
+Artículo 2º—Todos los servicios que presta la Dirección de Urbanismo del INVU deberán ser autofinanciados; por lo que se fijan las tarifas de los servicios que brinda, con base en los costos que estos generen, incorporando todos los elementos de costos de tramitación y operación de cada uno de ellos.
