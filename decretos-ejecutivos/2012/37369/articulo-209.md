@@ -1,0 +1,1 @@
+Artículo 209. - Una vez remitida el informe por el Órgano Director del Procedimiento Administrativo, el Máximo Jerarca cuenta con un mes para establecer la sanción correspondiente, lo anterior de conformidad con el artículo 603 del Código de Trabajo.

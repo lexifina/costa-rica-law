@@ -1,0 +1,1 @@
+Artículo 32. - El financiamiento total o parcial por concepto de becas u otras facilidades para la capacitación de los servidores, dentro o fuera del país, queda sujeto a la existencia de contenido presupuestario y a que dichos beneficios correspondan a las necesidades del Ministerio.

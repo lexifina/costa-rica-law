@@ -1,0 +1,1 @@
+Artículo 163. - Si existe la necesidad de readecuar el horario de un funcionario (a) al que se le autoriza laborar tiempo extraordinario, el Director(a) o Jefatura inmediata debe presentar con anticipación la solicitud debidamente razonada ante el Departamento de Recursos Humanos con la autorización del Director Administrativo-Financiero.

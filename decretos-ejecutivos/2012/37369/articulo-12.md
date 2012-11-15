@@ -1,0 +1,1 @@
+Artículo 12. - Deber de imparcialidad, el funcionario (a) debe ejercer el cargo sin discriminar, en cuanto a las formas y condiciones del servicio, a ninguna persona por razón de color, género, religión, nacionalidad, situaciones económicas, ideología o afiliación política.

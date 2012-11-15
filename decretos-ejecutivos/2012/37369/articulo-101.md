@@ -1,0 +1,1 @@
+Artículo 101. - Para todo lo que no se regula en el presente Capítulo, se aplicarán, supletoriamente, el Código de Trabajo y las leyes laborales conexas. Se aplicará el Código Civil cuando no existan normas reguladoras.

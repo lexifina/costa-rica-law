@@ -1,0 +1,1 @@
+Artículo 159. - El reconocimiento de jornada extraordinaria de funcionarios(as) que brinden sus servicios al Ministerio, en virtud de convenios que determinen el préstamo de sus plazas a favor de la institución, únicamente procederá cuando ello se haya contemplado en el documento mediante el cual se efectuó el préstamo.

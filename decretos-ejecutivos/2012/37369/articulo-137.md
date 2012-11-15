@@ -1,0 +1,5 @@
+Artículo 137. - El Departamento de Recursos Humanos con la autorización previa o visto bueno de la Jefatura o Dirección realizará el trámite de las siguientes licencias:
+a) Licencia para impartir lecciones a nivel superior, mismas que se tramitarán conforme a lo establecido por el Artículo 39 del Reglamento del Estatuto de Servicio Civil.
+b) Licencia de maternidad a toda funcionaria de conformidad con lo que se dispone el artículo 34 del Reglamento del Estatuto de Servicio Civil y 17 y 18 del Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios del Seguro de Salud.
+c) Licencia por Fase Terminal al funcionario(a) que solicite el beneficio de conformidad con lo que se establece en la Ley N° 7756 y sus reformas, y el Instructivo Beneficios para los responsables de pacientes en fase terminal.
+d) Licencia de hasta por un mes en los casos de funcionarios(as) con discapacidad, que por su condición requieran ausentarse de sus labores para capacitarse en el uso de tecnologías o perros guías, o cualquier otro animal de asistencia que requiera la persona

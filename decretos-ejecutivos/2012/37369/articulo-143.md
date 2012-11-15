@@ -1,0 +1,1 @@
+Artículo 143. - El funcionario(a) autorizado(a) para laborar jornada extraordinaria, deberá registrar su asistencia en el control que para sus efectos tenga el Director o Jefatura, en donde se demuestre el tiempo efectivamente laborado. el cual debe ser refrendado por el Superior Inmediato dando fe, mediante declaración jurada, del tiempo extraordinario reportado por el servidor.

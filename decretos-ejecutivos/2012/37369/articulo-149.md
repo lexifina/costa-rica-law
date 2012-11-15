@@ -1,0 +1,1 @@
+Artículo 149. - En la primera semana del mes de enero de cada año, el Departamento Financiero Contable debe remitir al Departamento de Recursos Humanos una certificación de fondos por programa donde especifique la existencia del contenido económico en la subpartida correspondiente a tiempo extraordinario.

@@ -1,0 +1,1 @@
+Artículo 136. - Las licencias concedidas por el Máximo(a) Jerarca que excedan de un mes, deberán de otorgarse mediante resolución razonada, debiendo luego remitirse al Departamento de Recursos Humanos, la cual llevará un registro de licencias otorgadas.

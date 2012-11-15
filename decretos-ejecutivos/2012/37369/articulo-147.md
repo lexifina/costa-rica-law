@@ -1,0 +1,1 @@
+Artículo 147. - Para los funcionarios(as) que ejercen labores de seguridad y vigilancia en jornada nocturna de seis horas y que por razones especiales justificadas, tengan que laborar turnos de doce horas, se autoriza un máximo de seis horas extraordinarias por jornada.

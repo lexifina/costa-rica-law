@@ -1,0 +1,1 @@
+Artículo 65. - El Ministerio deberá dar aviso al Instituto Nacional de Seguros de cualquier accidente o enfermedad ocupacional, que sufran sus funcionarios, dentro del término de ocho días hábiles contados a partir del acaecimiento del hecho, esto de conformidad con el artículo 221 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 42. - El funcionario(a) a quien se le otorgue una Licencia para estudio o capacitación, deberá prestar sus servicios al Ministerio u otra Institución del Estado, cuando así lo acuerden las partes, debiendo respetarse lo dispuesto en los artículo 37 y 38 del Reglamento al Estatuto del Servicio Civil; así como el artículo 7 de la Ley N° 3009.

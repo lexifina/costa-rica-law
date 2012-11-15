@@ -1,0 +1,1 @@
+Artículo 23. - La Dirección Administrativa-Financiera a tráves del Departamento de Recursos Humanos, coordinará los procesos de inducción y reinducción de los funcionarios(as) de primer ingreso o regulares, procesos que pueden realizarse de manera presencial o por medio de la utilización de herramientas tecnológicas que faciliten el acceso al conocimiento de los funcionarios.

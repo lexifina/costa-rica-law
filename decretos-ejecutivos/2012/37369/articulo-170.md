@@ -1,0 +1,1 @@
+Artículo 170. - Es responsabilidad del funcionario(a) justificar la irregularidad en su asistencia, a más tardar en los dos días hábiles siguientes de incurrida la misma, o cuando se utilice más tiempo del establecido para el descanso, ante la jefatura inmediata.

@@ -1,0 +1,1 @@
+Artículo 155. - Se prohíbe el pago o reconocimiento de la jornada extraordinaria que no se ajuste a las disposiciones generales y específicas contenidas en el presente Capítulo. En cuanto a las solicitudes que no cumplan con los requisitos, serán devueltas sin que medie responsabilidad de la Administración por las consecuencias que el atraso ocasione.

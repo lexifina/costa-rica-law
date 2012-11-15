@@ -1,0 +1,1 @@
+Artículo 214. - Las Comisiones señaladas en el presente Decreto Ejecutivo se regirán en materia de Órganos Colegiados por el Libro Primero, Título Segundo, Capítulo III, de la Ley General de la Administración Pública.

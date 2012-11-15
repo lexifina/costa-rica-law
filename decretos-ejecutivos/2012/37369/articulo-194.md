@@ -1,0 +1,1 @@
+Artículo 194. - Se considerarán faltas leves las infracciones de las disposiciones de los artículos 72, 141, 178, incisos 3), 4), 5), 6), 7), 8), 9), 13), 15), 18), 20), 34), artículo 179, incisos 5), 10) y 11) y el artículo 190 del presente Reglamento.

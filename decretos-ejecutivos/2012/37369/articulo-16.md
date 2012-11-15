@@ -1,0 +1,1 @@
+Artículo 16. - Deber de comportarse con decoro y respeto, todo funcionario (a) debe ser justo(a), cuidadoso(a), respetuoso(a) y cortés en el trato con los usuarios(as) del servicio, sus jefes, subalternos y compañeros(as).

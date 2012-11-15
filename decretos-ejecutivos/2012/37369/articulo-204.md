@@ -1,0 +1,2 @@
+Artículo 204. - Las suspensiones sin goce de salario, serán impuestas por el Ministro(a), en ausencia de éste, serán aplicadas por el Viceministro(a) nombrado(a) como Ministro(a) auxiliar interino(a).
+Estas se aplicarán una vez escuchado al interesado con las pruebas del caso, las cuales serán investigadas y resueltas por el Órgano Director a través del debido proceso pertinente, bajo los términos del capítulo correspondiente.

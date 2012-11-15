@@ -1,0 +1,4 @@
+Artículo 21. - Las personas que ingresen al servicio del Ministerio, lo harán mediante nombramiento, o por contrato a plazo fijo, o por obra determinada cuando fuese procedente, conforme a las siguientes disposiciones:
+a) Cuando se tratare de puestos incluidos en el Régimen, estarán sometidos a las disposiciones del Estatuto de Servicio Civil, su reglamento, legislación conexa y las de este reglamento, sea en propiedad o interinidad.
+b) Cuando se tratare de los puestos de confianza a que se refieren los incisos f) y g) del artículo 4, del Estatuto de Servicio Civil, los nombramientos se harán de conformidad con las políticas que al efecto establezca el (la) Ministro(a) o Viceministro(a) y las disposiciones que haya emitido la Autoridad Presupuestaria.
+c) Los nombramientos que se hicieren en puestos denominados de servicios especiales excluidos del Régimen del Servicio Civil, estarán sometidos al Código de Trabajo.

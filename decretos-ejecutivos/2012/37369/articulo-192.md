@@ -1,0 +1,1 @@
+Artículo 192. - Las anteriores sanciones se aplicarán sin perjuicio de que si la falta reviste una gravedad mayor, se aplique una medida disciplinaria más drástica, sin que para ello deba agotarse el orden establecido en este artículo. Para los efectos de aplicar una sanción, la reincidencia se considerará en un lapso de tres meses.

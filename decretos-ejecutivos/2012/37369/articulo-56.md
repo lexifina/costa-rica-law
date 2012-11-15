@@ -1,0 +1,1 @@
+Artículo 56. - El Departamento de Recursos Humanos elaborará e impulsará el programa de salud ocupacional que cubra a todas las dependencias del Ministerio, de conformidad con la Ley sobre Riesgos de Trabajo, Nº 6727 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 106. - Sobre la instancia para la recepción de la denuncia por acoso laboral, el debido proceso y la aplicación de medidas cautelares, se aplicará lo dispuesto en el Capítulo VII, Sección II del apartado de Hostigamiento Sexual.

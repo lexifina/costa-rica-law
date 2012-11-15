@@ -1,0 +1,7 @@
+Artículo 183. - Además de lo contemplado en el artículo 181 y en otros de este Reglamento, queda absolutamente prohibido a los choferes y a los funcionarios(as) autorizados para conducir vehículos del Ministerio:
+1. Conducir a velocidades superiores a las permitidas por las leyes o reglamentos de tránsito o incumplir sus disposiciones.
+2. Conducir los vehículos oficiales cuando haya ingerido algún tipo de bebida alcohólica o alguna otra clase de drogas.
+3. Utilizar el vehículo oficial en lugares diferentes al itinerario que corresponda, de darse lo anterior, por circunstancias muy calificadas, el (la) chofer deberá, al término de la jornada o de la gira, brindar un informe al funcionario(a) encargado(a) del área de transportes.
+4. Ceder la conducción del vehículo a otras personas, salvo razones muy calificadas o de fuerza mayor. El funcionario(a) que incurra en esta falta se hará acreedor a las mismas responsabilidades que tiene el conductor(a) autorizado(a).
+5. Ocupar o permitir que se use el vehículo en actividades ajenas al servicio del Ministerio, así como transportar a servidores(as) o particulares que no tengan relación con el servicio que presta, excepto los casos que así se lo indique el funcionario(a) responsable del área de transporte, o amerite, a requerimiento del funcionario (a) responsable de la misión, por la índole o el propósito del viaje.
+6. Inobservar lo dispuesto en el Reglamento para el uso de Vehículo del Ministerio Economía, Industria y Comercio.

@@ -1,0 +1,1 @@
+Artículo 61. - Los miembros nombrados por los funcionarios (as) durarán en sus cargos tres años, pudiendo ser reelectos por periodos iguales. El cargo se debe desempeñar dentro de la jornada ordinaria de trabajo, sin remuneración adicional y sin menoscabo de ninguno de los derechos laborales que corresponden al funcionario (a).

@@ -1,0 +1,1 @@
+Artículo 205. - En las suspensiones, el funcionario(a) podrá impugnar la sanción en un plazo de tres días hábiles mediante el recurso ordinario, conforme al artículo 345 inciso 2), y siguientes de la Ley General de la Administración Pública.

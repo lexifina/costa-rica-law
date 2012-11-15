@@ -1,0 +1,3 @@
+Artículo 198. - La suspensión disciplinaria se aplicará hasta por quince días sin goce de salario, cuando se dé alguno de los siguientes casos:
+1. Cuando el funcionario (a), después de que se haya apercibido por escrito, incurra de nuevo en la falta que motivó dicha sanción, en un período de tres meses.
+2. Cuando el funcionario (a) incurra en alguna de las faltas graves establecidas en los artículos 178, 179, 180, 181, 182, 183, 194 y 195, de este Reglamento, salvo que la falta diere mérito para el despido, según los criterios de valoración citados en el artículo 193 del presente Reglamento o por así estipularse en otra disposición legal.

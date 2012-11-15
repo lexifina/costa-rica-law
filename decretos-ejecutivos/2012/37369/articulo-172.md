@@ -1,0 +1,1 @@
+Artículo 172. - La llegada tardía acarreará la pérdida de media jornada, correspondiente esta falta a la mitad de una ausencia, para efectos de sanción, salvo que la Dirección o Jefatura avale la justificación, bajo su responsabilidad.

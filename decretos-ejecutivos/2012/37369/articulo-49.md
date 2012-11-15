@@ -1,0 +1,1 @@
+Artículo 49. - Las obligaciones y garantías contraídas con el Ministerio, se extinguirán por caso fortuito, muerte, incapacidad parcial o permanente del funcionario(a) acogido a cualquiera de los beneficios establecidos en este Reglamento, todo a juicio del Despacho, cuya resolución será debidamente fundamentada.

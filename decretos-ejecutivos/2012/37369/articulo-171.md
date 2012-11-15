@@ -1,0 +1,1 @@
+Artículo 171. - No se considerará llegada tardía la presentación al trabajo dentro de los diez minutos de la hora señalada para el comienzo de las labores en la jornada diaria, situación que será permitida en un máximo de cuatro ocasiones al mes. Siendo responsabilidad del Director o Jefatura que este tiempo de gracia no afecte el servicio al público que se brinda.

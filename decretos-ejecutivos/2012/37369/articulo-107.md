@@ -1,0 +1,1 @@
+Artículo 107. - Considerando la gravedad de los hechos, si se logra determinar que un funcionario(a) incurrió en acoso laboral se podrá sancionar de acuerdo con lo estipulado en los artículos 193, 196, 197, 198 y 199 de este Reglamento.

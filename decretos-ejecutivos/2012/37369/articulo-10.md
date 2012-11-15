@@ -1,0 +1,1 @@
+Artículo 10. - Deber de rendir cuentas todo funcionario (a) debe brindar los informes de labores, seguimiento, evaluación, informes de cumplimiento de las metas, tareas y procesos asignados, cuando le sean requeridos.

@@ -1,0 +1,2 @@
+Artículo 27. - Es deber de las Direcciones y Jefaturas administrativas de las dependencias del Ministerio, enviar copia al expediente personal de los funcionarios(as), de aquellas gestiones que dentro de su ámbito de competencia, pueden generar actos jurídico- administrativos.
+La información contenida en el prontuario, así como en el expediente personal, es de carácter confidencial y sólo tendrán acceso a ella los funcionarios(as) del Ministerio que lo requieran para labores propias del cargo, el servidor(a) y su representante autorizado(a).

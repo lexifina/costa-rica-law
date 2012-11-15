@@ -1,0 +1,1 @@
+Artículo 154. - El Departamento de Recursos Humanos no tramitará ninguna solicitud de horas extraordinarias no autorizadas por la Dirección Administrativa-Financiera, Directores de Programa y que no cuente con el respectivo contenido presupuestario.

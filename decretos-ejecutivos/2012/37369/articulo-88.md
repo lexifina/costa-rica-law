@@ -1,0 +1,1 @@
+Artículo 88. - La Comisión Investigadora se integrará por tres personas, a saber dos abogados(as) de la Unidad de Asuntos Jurídicos y un funcionario(a) del Departamento de Recursos Humanos, las cuales deben de tener conocimientos en materia de hostigamiento sexual y régimen disciplinario.

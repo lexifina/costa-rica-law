@@ -1,0 +1,1 @@
+Artículo 158. - El pago de tiempo extraordinario autorizado a los funcionarios(as) que prestan servicio en otras instituciones, se realizará con cargo a la partida presupuestaria correspondiente en aquella institución.

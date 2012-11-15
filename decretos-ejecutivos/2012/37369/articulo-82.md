@@ -1,0 +1,1 @@
+Artículo 82. - Toda dependencia y funcionarios(as) del Ministerio están en la obligación de brindar su colaboración cuando así se solicite por el órgano instructor o decisor para facilitar su labor y el cabal desempeño del procedimiento.

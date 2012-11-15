@@ -1,0 +1,5 @@
+Artículo 80. - La labor de divulgación del presente capítulo, así como de la política institucional de prevención y de cumplimiento de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, será responsabilidad del Ministro(a) en coordinación con la Dirección Administrativa a través del Departamento de Recursos Humanos en coordinación con las Direcciones y departamentos, así como las diferentes dependencias que integran el Ministerio, mediante:
+a) Circulares, boletines informativos, panfletos divulgativos u otros medios de información para el personal del Ministerio.
+b) Incorporación dentro del Plan Anual de Capacitación impartidos por las instancias correspondientes, charlas, seminarios o talleres sobre la política interna de prevención, investigación y sanción del hostigamiento sexual a todo el personal, así como a las personas de nuevo ingreso en coordinación con la Defensoría de la Mujer.
+c) Elaboración de materiales informativos que fomenten el respeto entre el personal y personas usuarias del servicio e informen el procedimiento para denunciar conductas constitutivas de hostigamiento sexual.
+d) Cualquier otro que se considere pertinente.

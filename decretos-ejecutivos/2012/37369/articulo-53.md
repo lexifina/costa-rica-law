@@ -1,0 +1,1 @@
+Artículo 53. - En el caso de que un funcionario(a) deje de laborar para el Ministerio o que disfrute de permiso sin goce de salario para laborar bajo otro patrono, dejará de disfrutar los beneficios que este Reglamento otorga.

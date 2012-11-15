@@ -1,0 +1,1 @@
+Artículo 130. - Si durante el disfrute de sus vacaciones el funcionario (a) se enferma o accidenta y es incapacitado(a) para trabajar por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, el periodo se interrumpe. Los días no disfrutados se concederán al término de la incapacidad.

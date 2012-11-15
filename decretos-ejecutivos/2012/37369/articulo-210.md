@@ -1,0 +1,1 @@
+Artículo 210. - Una vez concluido el procedimiento administrativo, el Máximo Jerarca remitirá al Departamento de Recursos Humanos, el expediente del procedimiento, haciendo constar la sanción impuesta y motivo de la misma, a fin de que se archive en el expediente personal correspondiente.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Principios y deberes éticos de los funcionarios del MEIC
+Artículo 3. - Los principios que regulan este reglamento y que deben orientar las labores del Ministerio y sus funcionarios(as), al servicio al usuario(a), van dirigidos a la armonización de los procedimientos, la simplificación, flexibilidad, eficacia, trabajo en equipo y el apego a las más estrictas normas de ética en el ejercicio de la función pública, así como el respeto a la dignidad y a los derechos del funcionario (a), con acato riguroso del principio de legalidad y los principios generales del Régimen de Servicio Civil.

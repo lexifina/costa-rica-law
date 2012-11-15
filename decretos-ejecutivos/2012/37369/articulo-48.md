@@ -1,0 +1,1 @@
+Artículo 48. - En la designación de candidatos(as) a recibir una beca, licencia con goce de salario para estudio o capacitación u otra facilidad, sólo podrá considerarse a un funcionario(a) interino(a), cuando ningún funcionario(a) en propiedad reúna los requisitos correspondientes o si éstos(as) no tienen interés en la beca o facilidad.

@@ -1,0 +1,1 @@
+Artículo 18. - Deber de denuncia, es obligación de todo funcionario (a) formular la denuncia correspondiente ante la autoridad competente, cuando en el ejercicio de su cargo tenga conocimiento de cualquier irregularidad en perjuicio del Ministerio, del Estado y de los funcionarios(as).

@@ -1,0 +1,1 @@
+Artículo 103. - El acoso laboral puede ser vertical, horizontal o mixto. El vertical se presenta cuando la conducta hostigadora proviene del jerarca, es horizontal cuando el acoso es provocado por los propios compañeros(as) y el mixto se da por una combinación entre el acoso propiciado por la jefatura y los compañeros(as).

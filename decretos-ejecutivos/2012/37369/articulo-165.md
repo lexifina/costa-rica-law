@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Del registro y control de asistencias, llegadas tardías y ausencias
+Artículo 165. - El (la) Director(a) tendrá la responsabilidad de llevar el registro de asistencia de la forma que lo determine para aquellos(as) funcionarios(as) que han demostrado irregularidad en la asistencia debiendo estos(as) registrar personalmente su asistencia al inicio y terminación de la jornada de trabajo.
+El control de entrada y salida del tiempo destinado al descanso, queda bajo la responsabilidad de cada Jefatura, quien establecerá el medio de control para tal efecto, de manera que no se ocasione menoscabo de la prestación del servicio, en el entendido que por tal motivo no podrá interrumpirse el mismo o cerrarse la oficina. En todo caso, la Administración podrá utilizar cualquier otro medio de registrar la asistencia, que resulte idóneo a dichos efectos, según las circunstancias.

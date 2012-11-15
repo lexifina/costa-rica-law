@@ -1,0 +1,1 @@
+Artículo 63. - Las Comisiones de Salud Ocupacional; en coordinación con las Autoridades Superiores de cada dependencia, podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa que permiten el desarrollo de actitudes.

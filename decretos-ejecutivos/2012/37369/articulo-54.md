@@ -1,0 +1,2 @@
+Artículo 54. - Los adiestramientos y capacitaciones que no excedan de los tres meses, deben ser aprobadas por las Direcciones o Jefaturas correspondientes de conformidad con el Plan Anual establecido, debiendo ser comunicadas al Departamento de Recursos Humanos, a efectos de control.
+Una vez concluido el adiestramiento o capacitación, el o los funcionarios(as), que disfrutaron de dicho beneficio, deben de remitir al Departamento de Recursos Humanos el respectivo certificado.

@@ -1,0 +1,1 @@
+Artículo 157. - Se exceptúan del pago de tiempo extraordinario los funcionarios que ocupen puestos excluidos de la limitación de la jornada de trabajo, según el artículo 143 del Código de Trabajo, salvo que realicen labores fuera de la jornada de doce horas.

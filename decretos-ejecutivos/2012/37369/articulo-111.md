@@ -1,0 +1,1 @@
+Artículo 111. - Los funcionarios (as) que se acojan a este beneficio mantendrán los mismos beneficios, derechos y obligaciones garantizados por la legislación que tienen los demás funcionarios de la institución, siempre y cuando cumplan con las disposiciones establecidas y procedimientos para este fin.

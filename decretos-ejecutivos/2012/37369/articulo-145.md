@@ -1,0 +1,1 @@
+Artículo 145. - Se procederá a reconocer pago de la jornada extraordinaria, después de la jornada ordinaria, se reconocerá un máximo de cuatro horas, a tiempo y medio. La laborada los días de descanso, feriados o fuera de rol, las primeras ocho horas se reconocerán a tiempo sencillo y las siguientes cuatro horas serán contabilizadas a doble tiempo.

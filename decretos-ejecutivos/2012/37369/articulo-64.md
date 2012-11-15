@@ -1,0 +1,2 @@
+Artículo 64. - Todo funcionario(a), grupo u organización de funcionarios (as) del Ministerio, tendrá derecho a presentar las quejas y propuestas por escrito tendientes a mejorar las condiciones laborales a la Comisión de Salud Ocupacional, la cual deberá pronunciarse en el plazo de quince días hábiles, debiendo notificar lo resuelto.
+Dichas quejas y propuestas deberán venir firmadas por el o la funcionaria, o los funcionarios proponentes. La Comisión no actuará sobre acciones anónimas que se presenten, las cuales se archivarán de oficio.
