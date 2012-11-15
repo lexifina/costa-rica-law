@@ -1,0 +1,1 @@
+ARTÍCULO 8.- Para las gestiones de recaudación, administración y fiscalización de los tributos creados en esta ley, así como para la aplicación de sanciones, rige lo dispuesto en la Ley N.º 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y sus reformas.

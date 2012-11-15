@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Las municipalidades, en cuya jurisdicción se ubiquen los casinos o las empresas dedicados a la recepción y el procesamiento de datos que generan apuestas electrónicas, conservarán todas sus facultades para otorgar los permisos y las licencias que correspondan.
