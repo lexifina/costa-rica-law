@@ -1,0 +1,8 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 8 del acta de la sesión 5567-2012, celebrada el 31 de octubre del 2012,
+considerando que:
+a) La Junta Directiva en el artículo 12 del acta de la sesión 5547-2012, celebrada el 6 de junio del 2012, dispuso aprobar una nueva versión de las Políticas para la Administración de las Reservas Monetarias Internacionales. Asimismo, estableció también que los cambios a dichas Políticas entrarían a regir para cada uno de los gestores, una vez que se hubieran finiquitado los detalles operativos para su implementación, para lo que se delegó en el Comité de Reservas la responsabilidad de evaluar el avance en dichas tareas.
+b) El Comité de Reservas, en reunión celebrada el 19 de octubre del 2012, después de evaluar los avances en la implementación de la nueva asignación estratégica de activos, dispuso informar a la Junta Directiva del Banco Central que ya se habían finiquitado los detalles operativos para la implementación de las nuevas Políticas, a fin de que éstas inicien su vigencia a partir del 31 de octubre del 2012.
+c) Es conveniente que la Junta Directiva fije una fecha a partir de la cual entrarán a regir las Políticas para la Administración de las Reservas Monetarias Internacionales, aprobadas en el artículo 12 del acta de la sesión 5547-2012, celebrada el 6 de junio del 2012.
+dispuso, en firme:
+dejar establecido que las Políticas para la Administración de las Reservas Monetarias Internacionales, aprobadas en el artículo 12 del acta de la sesión 5547-2012, celebrada el 6 de junio del 2012, entrarán a regir a partir de hoy, 31 de octubre del 2012. Publíquese en el Diario Oficial La Gaceta.
