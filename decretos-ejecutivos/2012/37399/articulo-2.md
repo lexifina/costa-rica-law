@@ -1,0 +1,1 @@
+Artículo 2.- Estas disposiciones transitorias y sus modificaciones se aplicarán únicamente a las solicitudes que se presenten para los fines ahí descritos, cuyo periodo abarca del 17 de mayo del 2012 y hasta la fecha de vigencia de las mismas, según sea el caso.
