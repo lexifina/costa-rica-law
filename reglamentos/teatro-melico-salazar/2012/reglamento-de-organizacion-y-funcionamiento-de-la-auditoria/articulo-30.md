@@ -1,0 +1,1 @@
+Artículo 30.—Formulación del presupuesto de la Auditoría. Será obligación de la Auditoría Interna, presentar su presupuesto, el cual debe ser formulado técnica y profesionalmente de conformidad con los lineamientos aplicables y su plan anual de trabajo.

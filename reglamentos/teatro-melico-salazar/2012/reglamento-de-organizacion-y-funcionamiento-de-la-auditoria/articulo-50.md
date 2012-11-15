@@ -1,0 +1,1 @@
+Artículo 50.—Políticas de administración y supervisión. El Auditor Interno emitirá políticas para administrar y supervisar la ejecución de los estudios contenidos en los planes de trabajo, con el objeto de asegurar su conformidad con las normas de auditoría interna, las políticas y los programas de auditoría.

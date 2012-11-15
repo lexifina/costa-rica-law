@@ -1,0 +1,1 @@
+Artículo 22.—Deberes y prohibiciones de los funcionarios de la Auditoría Interna. Los funcionarios de la Auditoría Interna, tendrán los deberes y prohibiciones que se estipulan en la Ley General de Control Interno, en sus artículos 32 y 34 respectivamente.

@@ -1,0 +1,1 @@
+Artículo 13.—Organización. La Auditoría Interna se organizará y funcionará conforme lo disponga el auditor interno, de conformidad con las disposiciones, normas y políticas y directrices que emita la Contraloría General de la República, las cuales serán de acatamiento obligatorio.

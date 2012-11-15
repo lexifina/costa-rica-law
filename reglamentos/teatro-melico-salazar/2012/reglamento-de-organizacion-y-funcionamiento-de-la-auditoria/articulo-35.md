@@ -1,0 +1,1 @@
+Artículo 35.—Asesoría de profesionales. Cuando la Auditoría Interna realice evaluaciones en campos diferentes a su especialidad, podrá contar, cuando las circunstancias lo requieran, con la asesoría pertinente de profesionales en el área objeto de examen.

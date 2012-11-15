@@ -1,0 +1,1 @@
+Artículo 53.—Obligación de acudir a la conferencia final de resultados. Será obligación de los funcionarios convocados, acudir a la presentación verbal de los resultados del estudio y se podrá refutar como un eventual debilitamiento del sistema de control interno, la ausencia injustificada a dicha presentación.

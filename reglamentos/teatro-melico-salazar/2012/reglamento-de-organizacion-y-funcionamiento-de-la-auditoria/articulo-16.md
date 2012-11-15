@@ -1,0 +1,1 @@
+Artículo 16.—Del Auditor Interno. La Auditoría Interna estará bajo la responsabilidad del Auditor Interno, quién deberá cumplir con todos los requisitos que exige la Ley General de Control Interno. Además deberá conocer las disposiciones que rige la Administración Pública.

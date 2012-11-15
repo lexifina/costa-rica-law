@@ -1,0 +1,1 @@
+Artículo 45.—Comunicación de los productos de fiscalización posterior. El resultado de los servicios de fiscalización posterior se comunicarán mediante informes, los cuales serán básicamente de dos tipos: de control interno, incluidos los de seguimiento de recomendaciones y de responsabilidades (Relaciones de Hechos).

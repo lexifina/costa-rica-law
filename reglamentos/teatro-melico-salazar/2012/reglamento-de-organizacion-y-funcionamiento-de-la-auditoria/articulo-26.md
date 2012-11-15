@@ -1,0 +1,5 @@
+SECCIÓN SETIMA
+De las relaciones y coordinaciones
+Artículo 26.—Relaciones y coordinación. La Auditoría Interna mantendrá relaciones y coordinaciones con la Junta Directiva, Director Ejecutivo(a), Directores Artísticos del TPMS, con los titulares subordinados y otras instancias internas y externas, fundamentalmente con la Contraloría General de la República, Instituciones de Control y Fiscalización, Comisiones Legislativas, Ministerio Público, Procuraduría General, denunciantes y otras pertinentes.
+Corresponderá al Auditor Interno administrar esas relaciones y regular las de los demás funcionarios de la Auditoría Interna con los órganos internos y externos del ámbito de su competencia institucional, a fin de que se realicen de conformidad con el ordenamiento jurídico y técnico aplicable.
+De conformidad con el inciso c), artículo 33 de la Ley General de Control Interno, el Auditor podrá solicitar, a funcionarios de cualquier nivel jerárquico, la colaboración, el asesoramiento y las facilidades que demande el ejercicio de la Auditoría Interna.
