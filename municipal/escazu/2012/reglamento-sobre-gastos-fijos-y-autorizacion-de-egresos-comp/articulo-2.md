@@ -1,0 +1,1 @@
+Artículo 2º—Se exceptúa de la aplicación de estas disposiciones la materia producto de la contratación administrativa, la cual se regirá por el Reglamento para definir niveles de adjudicación y autorización de compras y contratos de los procedimientos de contratación administrativa de la Municipalidad de Escazú.
