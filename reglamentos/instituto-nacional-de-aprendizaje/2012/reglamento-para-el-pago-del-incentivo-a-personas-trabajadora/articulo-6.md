@@ -1,0 +1,1 @@
+Artículo 6º—Una vez notificada la autorización del pago del incentivo por peligrosidad, la Unidad de Recursos Humanos aplicará el reconocimiento de dicho incentivo salarial en la planilla ordinaria y de manera automática, durante todo el tiempo que perduren las condiciones que justificaron su reconocimiento.

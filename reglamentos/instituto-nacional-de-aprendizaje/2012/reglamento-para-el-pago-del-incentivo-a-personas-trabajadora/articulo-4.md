@@ -1,0 +1,2 @@
+Artículo 4º—La Unidad de Recursos Humanos del INA será la responsable de determinar mediante estudio técnico la naturaleza peligrosa de las actividades que se clasificarán como tales, considerando las posibles consecuencias para la salud o vida de las personas trabajadoras que las ejecutan.
+La Unidad de Recursos Humanos elevará los procedimientos y formularios respectivos en el Sistema de Información de la Calidad (SICA) en el plazo de un mes a partir de la publicación del presente reglamento en el Diario Oficial La Gaceta.
