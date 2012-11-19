@@ -1,0 +1,1 @@
+Artículo 10.—Del cese del nombramiento interino. Sin perjuicio de las causales de suspensión y destitución estipuladas en la normativa aplicable al régimen de servicio público, todo nombramiento interino cesará una vez aprobado el nombramiento de Auditor o Subauditor Interno por tiempo indefinido.

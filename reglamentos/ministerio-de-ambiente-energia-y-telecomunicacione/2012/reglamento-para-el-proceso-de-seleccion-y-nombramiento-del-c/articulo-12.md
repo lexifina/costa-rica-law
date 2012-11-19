@@ -1,0 +1,1 @@
+Artículo 12.—Principios rectores. El concurso regulado en este Reglamento se rige por los principios de la libre concurrencia, igualdad de trato, publicidad, legalidad, transparencia, seguridad jurídica, idoneidad comprobada, buena fe y eficiencia.

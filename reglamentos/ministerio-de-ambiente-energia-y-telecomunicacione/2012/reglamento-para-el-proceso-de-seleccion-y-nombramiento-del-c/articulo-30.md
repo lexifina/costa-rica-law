@@ -1,0 +1,1 @@
+Artículo 30.—Sobre la comunicación de los resultados previos y finales del concurso. Las calificaciones obtenidas por los oferentes en las diversas etapas (I y II) del concurso, serán comunicadas por la Comisión Especial a cada uno de los participantes por el medio señalado por éstos para recibir notificaciones.

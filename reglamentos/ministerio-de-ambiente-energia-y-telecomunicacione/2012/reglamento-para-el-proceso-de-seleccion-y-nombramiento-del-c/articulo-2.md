@@ -1,0 +1,1 @@
+Artículo 2º—Facultad de nombramiento. Al Jerarca del MINAET de conformidad con el artículo 31 de la Ley Nº 8292, le compete la decisión de designar a los funcionarios que ocuparán por recargo, en forma interina o por tiempo indefinido los puestos de Auditor y Subauditor Internos de dicha Institución.

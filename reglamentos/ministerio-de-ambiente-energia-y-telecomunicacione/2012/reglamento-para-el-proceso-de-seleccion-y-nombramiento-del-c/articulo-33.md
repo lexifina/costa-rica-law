@@ -1,0 +1,6 @@
+CAPÍTULO V
+De la aprobación final del procedimiento concursal por parte
+de la Contraloría General de la República y la
+formalización de los nombramientos
+Artículo 33.—De la aprobación final por parte de la Contraloría General de la República y el plazo para hacer efectivo el nombramiento. Una vez recibida la autorización por parte de la Contraloría General de la República del proceso de concurso, así como de la terna respectiva para hacer el nombramiento por tiempo indefinido, el Jerarca del MINAET procederá dentro de los diez días siguientes al recibido de dicha autorización y con base a la terna propuesta, realizar de forma discrecional la escogencia del candidato que a su criterio considere idóneo para ocupar el puesto de Auditor o Subauditor Interno del MINAET; según corresponda, para lo cual el Jerarca, deberá cumplir con los plazos y el procedimiento establecido en los puntos 5.4 y 5.5 de la Resolución R-CO-91-2006 (L-1-2006-CO-DAGJ).
+En el caso de que la Contraloría General de la República vetara el proceso del Concurso realizado, se procederá de conformidad con lo que al respecto señala el punto 5.4 de la Resolución en mención y se acatará de inmediato lo señalado por dicho Órgano Contralor sobre el particular, debiendo la Administración respetar las acciones que deben ser implementadas para subsanar el acto.
