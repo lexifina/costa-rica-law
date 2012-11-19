@@ -14,3 +14,4 @@ Reglamento de Caja Chica de la Municipalidad de Guácimo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-29 | la propia norma |
+| 2 | 2012-11-19 | Reglamento municipal 48 (2012-11-19) |
