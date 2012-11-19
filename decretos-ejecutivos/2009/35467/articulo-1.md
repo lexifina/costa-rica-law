@@ -41,7 +41,7 @@ Enmienda No. 7 con fecha 21 de setiembre. 2010 a la Carta de Entendimiento firma
 IN23CRXP - Interdicción Regional Marítima y Terrestre (en adelante, IN23CRND – Interdicción Regional Marítima y Terrestre
 Las descripciones completas y las metas del proyecto se describen en las secciones II y III a continuación. Todas las otras obligaciones, términos y condiciones incluidas en la Carta de Entendimiento con fecha 17 de junio del 2009 se mantienen en plena vigencia y efecto.
 El futuro financiamiento de estos proyectos por parte del Gobierno de Estados Unidos de América estará sujeto a la disponibilidad de fondos debidamente autorizados y asignados, al avance del satisfactorio en cuanto a las metas del proyecto y la aprobación del Departamento de Estado de los Estados Unidos de América.")
-II.—DESCRIPCIÓN DE LOS PROYECTOS.
+(*) II.—DESCRIPCIÓN DE LOS PROYECTOS.
 Los proyectos a desarrollar según los términos de esta Carta de Entendimiento (LOA) como parte de la Iniciativa Mérida se enumeran a continuación. El Gobierno de los Estados Unidos y el Gobierno de Costa Rica emprenderán las acciones y comprometerán los recursos cada año según lo autoricen sus respectivos procesos legislativos en apoyo a esta Carta de Entendimiento (LOA).
 Las Partes pueden aumentar, modificar o terminar los proyectos que se emprendan en conexión con esta Carta de Entendimiento (LOA) según lo acuerden las Partes por escrito. Dichas modificaciones al proyecto estarán sujetas a los términos y condiciones de esta Carta de Entendimiento (LOA).
 Iniciativa Centroamericana para Intercambio de Huellas Dactilares $200.000
@@ -182,6 +182,7 @@ Este proyecto de cinco años mejorará la cooperación y comunicación entre los
 (*) Nombre del proyecto: Reforma al Sector Judicial
 Financiamiento: $ 682.000
 (*)(Así adicionado el anterior proyecto por el artículo 1° del decreto ejecutivo N° 36987 del 29 de noviembre del 2011)
+(Nota de Sinalevi: Mediante el artículo 1 del decreto ejecutivo N° 37490 del 19 de noviembre del 2012, se publicó la Enmienda N° 15 a la Carta de Entendimiento sobre la Iniciativa Mérida con el Gobierno de los Estados Unidos de América, en donde se establece que el Gobierno de los Estados Unidos de América está suministrando recursos adicionales por un monto de $4,100,000, para los proyectos descritos en la presente carta de entendimiento)
 III.—METAS DE RENDIMIENTO Y MEDICIÓN DE LA EFECTIVIDAD
 Las metas del rendimiento general de los proyectos de la Iniciativa Mérida y sus medidas de efectividad se detallan en el Anexo 1 (Metas, Objetivos e Indicadores Estratégicos de la Iniciativa Mérida).
 Para proyectos específicos, las Partes acuerdan que el propósito de las metas de rendimiento y las medidas de efectividad es demostrar a sus respectivos ciudadanos que los recursos comprometidos, para los esfuerzos de cooperación descritos en esta Carta de Entendimiento (LOA), se están utilizando de manera eficiente. Para lograrlo, las Partes acuerdan establecer objetivos y medidas adecuadas para los proyectos cubiertos conforme a los términos de esta Carta de Entendimiento (LOA) e incorporar, en los casos que resulte apropiado, los objetivos y medidas descritas en la Iniciativa Mérida. Para el primer año de operación, cada uno de estos programas incluirá las siguientes medidas de desempeño.

@@ -18,3 +18,4 @@ Promulga teniendo como vigente para los efectos internos y externos la Carta de 
 | 3 | 2010-05-13 | Decreto Ejecutivo 36061 (2010-05-13) |
 | 4 | 2010-10-04 | Decreto Ejecutivo 36264 (2010-10-04) |
 | 5 | 2011-11-29 | Decreto Ejecutivo 36987 (2011-11-29) |
+| 6 | 2012-11-19 | Decreto Ejecutivo 37490 (2012-11-19) |
