@@ -1,0 +1,1 @@
+Artículo 3°- Los procedimientos contables deben de cumplir con un requisito vital que es la unión del Presupuesto con la Contabilidad, generando asientos contables producto de operaciones presupuestarias, a partir de una base de datos institucional únicos, que permita almacenar información para obtener estados financieros presupuestarios, programáticos y patrimoniales.
