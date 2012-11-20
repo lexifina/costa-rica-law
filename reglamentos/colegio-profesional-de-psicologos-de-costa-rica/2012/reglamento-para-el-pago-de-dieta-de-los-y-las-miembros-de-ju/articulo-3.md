@@ -1,0 +1,1 @@
+Artículo 3º—Los y las directores de Junta Directiva se les cancelará la dieta por su asistencia y permanencia en las dos sesiones ordinarias del mes. No se pagará dieta por sesiones extraordinarias. Para el control y pago de la dieta se deberá de firmar la respectiva hoja de asistencia.

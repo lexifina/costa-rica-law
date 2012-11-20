@@ -1,0 +1,1 @@
+Artículo 7º—El pago de dieta se hará dentro de los 15 días hábiles del mes siguiente al que se celebraron las sesiones respectivas. La Administración dispondrá la forma y medios para realizar el pago correspondiente.

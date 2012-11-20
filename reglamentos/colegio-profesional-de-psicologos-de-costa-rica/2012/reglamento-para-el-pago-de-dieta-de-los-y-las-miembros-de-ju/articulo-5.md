@@ -1,0 +1,1 @@
+Artículo 5º—Cuando por falta de quórum, la sesión de Junta Directiva ó del Tribunal de Honor no se realice, se cancelará únicamente el cincuenta por ciento de dieta correspondiente a los directores y directoras o tribunos o tribunas que se presenten a la sesión, para lo cual deberán de levantar el acta correspondiente dejando constancia de los presentes.

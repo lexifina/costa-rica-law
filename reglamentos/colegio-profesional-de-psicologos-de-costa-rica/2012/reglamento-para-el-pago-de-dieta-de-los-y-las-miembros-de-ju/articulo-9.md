@@ -1,0 +1,1 @@
+Artículo 9º—Cualquier asunto no previsto en este Reglamento, se resolverá en apego y aplicación de la Ley Orgánica del Colegio, la Ley General de Administración Pública, y las normas de Derecho Público.

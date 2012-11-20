@@ -1,0 +1,1 @@
+Artículo 6º—El o la directora o el o la miembro del Tribunal que, sin la autorización previa y expresa del cuerpo colegiado, se ausente o llegue quince minutos tarde a la hora, salvo caso fortuito o fuerza mayor, o bien rompa el quórum, perderá la dieta correspondiente a esa sesión.
