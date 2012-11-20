@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Se reforma el artículo 12 de la Ley N.º 8023, Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón, de 27 de setiembre de 2000. El texto dirá:
+“Artículo 12.- Se autoriza a las instituciones y organizaciones del Estado costarricense para que aporten recursos, tales como apoyo logístico, materiales, personal administrativo, pago de viáticos, gastos administrativos, otros gastos no personales y cualesquiera otros necesarios para el cumplimiento de esta ley.”

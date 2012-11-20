@@ -1,0 +1,2 @@
+ARTÍCULO 15.- Se reforma el artículo 17 de la Ley N.º 8023, Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón, de 27 de setiembre de 2000. El texto dirá:
+“Artículo 17.- El Consejo de cuenca designará de su seno a un presidente o una presidenta, quien permanecerá en su cargo por un período de dos años y podrá ser reelegido. Se reunirá al menos dos veces al año, convocado por su presidente o presidenta o cuando el presidente o presidenta de Comcure lo solicite.”

@@ -1,14 +1,19 @@
-Artículo 15.—El comité consultivo estará conformado de la siguiente manera:
-a) El alcalde de cada una de las municipalidades de los cantones enumerados en el artículo 1 de la presente Ley, o su representante.
-b) Un representante del Servicio Nacional de Riego y Avenamiento.
-c) Un representante del Ministerio de Salud.
-d) Un representante de la Junta Administrativa de Servicio Eléctrico de Cartago.
-e) Un representante del Ministerio de Obras Públicas y Transportes.
-f) Un representante del Ministerio de Educación Pública.
-g) Un representante de la Refinadora Costarricense de Petróleo.
-h) Dos representantes de la Unión Cantonal de Asociaciones de Desarrollo de Cartago.
-i) Tres representantes de las asociaciones ambientalistas de la provincia de Cartago.
-j) Dos representantes del sector empresarial de la provincia de Cartago.
-k) Dos representantes del sector industrial de la provincia de Cartago.
-l) Tres representantes de las organizaciones de agricultores de la provincia de Cartago.
-m) Un representante de las unidades de trabajo locales establecidas en el artículo 18 de esta Ley.
+Artículo 15.- El Consejo de cuenca estará conformado de la siguiente manera:
+a) El ministro o la ministra de Ambiente y Energía o su representante.
+b) EI ministro o la ministra de Agricultura y Ganadería o su representante de nivel superior.
+c) EI presidente ejecutivo o la presidenta ejecutiva del Instituto Costarricense de Electricidad o su representante de nivel superior.
+d) EI presidente ejecutivo o la presidenta ejecutiva del Instituto Costarricense de Acueductos y Alcantarillados o su representante de nivel superior.
+e) EI presidente ejecutivo o la presidenta de la Refinadora Costarricense de Petróleo Sociedad Anónima o su representante.
+f) EI presidente ejecutivo o la presidenta ejecutiva de la Junta de Administración Portuaria y Desarrollo Económico de la Vertiente Atlántica o su representante de nivel superior.
+g) EI presidente o la presidenta de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias o su representante de nivel superior.
+h) EI rector o la rectora del lnstituto Tecnológico de Costa Rica o su representante de nivel superior.
+i) El gerente y la gerenta de la Junta Administrativa de Servicios Eléctricos de Cartago o su representante de nivel superior.
+j) El alcalde o la alcaldesa de cada una de las municipalidades de los cantones enumerados en el artículo 1 de la presente ley, o su representante.
+k) Una persona representante del Servicio Nacional Aguas Subterráneas, Riego y Avenamiento.
+l) Una persona representante del Consejo Regional de Desarrollo (Coredes-Proli).
+m) Una persona representante de la provincia de Cartago y un representante de la provincia de Limón, de la Unión Cantonal de Asociaciones de Desarrollo.
+n) Una persona representante de la provincia de Cartago y un representante de la provincia de Limón, de las asociaciones ambientalistas.
+ñ) Una persona representante de la provincia de Cartago y un representante de la provincia de Limón, del sector empresarial e industrial.
+o) Una persona representante de la provincia de Cartago y un representante de la provincia de Limón, de las organizaciones de agricultores.
+p) Una persona representante de la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado por el artículo 13 de la ley N° 9067 del 10 de setiembre del 2012)

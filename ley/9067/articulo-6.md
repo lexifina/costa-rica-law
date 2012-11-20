@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Se reforma el artículo 5 de la Ley N.º 8023, Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón, de 27 de setiembre de 2000. El texto dirá:
+“Artículo 5.- El objetivo general de Comcure será definir, ejecutar y controlar el Plan de ordenamiento y manejo de la cuenca del río Reventazón, con el apoyo de su estructura funcional y en coordinación con las instituciones públicas, privadas y los órganos colegiados creados al tenor de la Ley General de la Administración Pública y leyes conexas.”

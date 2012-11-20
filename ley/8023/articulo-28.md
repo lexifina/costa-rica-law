@@ -1,1 +1,2 @@
-Artículo 28.—Autorízase a los entes usuarios y a los que prestan servicios públicos en la provincia de Cartago, para que ingresen en sus tarifas los costos para el manejo de la cuenca alta del río Reventazón, según el artículo 37 de la Ley de Biodiversidad, Nº 7788, de 30 de abril de 1998.
+Artículo 28.- Se autoriza a los entes usuarios y a los que prestan servicios públicos en la provincia de Cartago, y en los cantones de Siquirres, Guácimo y Pococí, en la provincia de Limón, para que ingresen en sus tarifas los costos para el manejo de la cuenca del río Reventazón, según el artículo 37 de la Ley N.º 7788, Ley de Biodiversidad, de 30 de abril de 1998.
+(Así reformado por el artículo 25 de la ley N° 9067 del 10 de setiembre del 2012)

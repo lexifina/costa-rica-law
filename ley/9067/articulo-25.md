@@ -1,0 +1,2 @@
+ARTÍCULO 25.- Se reforma el artículo 28 de la Ley N.º 8023, Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón, de 27 de setiembre de 2000. El texto dirá:
+“Artículo 28.- Se autoriza a los entes usuarios y a los que prestan servicios públicos en la provincia de Cartago, y en los cantones de Siquirres, Guácimo y Pococí, en la provincia de Limón, para que ingresen en sus tarifas los costos para el manejo de la cuenca del río Reventazón, según el artículo 37 de la Ley N.º 7788, Ley de Biodiversidad, de 30 de abril de 1998.”

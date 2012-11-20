@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Se reforma el artículo 19 de la Ley N.º 8023, Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón, de 27 de setiembre de 2000. El texto dirá:
+“Artículo 19.- La Gerencia de cuenca estará constituida por el personal técnico aportado o contratado por las instituciones representadas en Comcure o contratado por la Gerencia de cuenca. Este personal conformará grupos de trabajo para realizar las acciones y los estudios específicos programados.”
