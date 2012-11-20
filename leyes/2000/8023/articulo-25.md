@@ -1,4 +1,7 @@
 CAPÍTULO III
 Régimen de Financiamiento
 Artículo 25.—Autorízase a las instituciones centralizadas y descentralizadas y las empresas públicas del Estado, para que incluyan en sus presupuestos las partidas anuales que estimen convenientes o donen fondos, para contribuir con los proyectos de ordenamiento y manejo de la cuenca, aprobados por Comcure, especialmente a aquellas instituciones que utilizan los recursos hídricos.
-Las municipalidades de la provincia de Cartago y los demás organismos de la Administración Pública, prestarán su colaboración al Ministerio de Ambiente y Energía para cumplir con los fines de esta Ley.
+Las municipalidades de los cantones de las provincias de Cartago y Limón, comprendidos en el artículo 1 de esta ley, y los demás organismos de la Administración Pública prestarán su colaboración a Comcure para cumplir los fines de esta ley.
+(Así reformado el párrafo anterior por el artículo 23 de la ley N° 9067 del 10 de setiembre del 2012)
+La Dirección de Aguas del Minae recaudará los cánones de recurso hídrico creados al amparo de la Ley N.º 276, de 27 de agosto de 1942, y con base en la información suministrada por la Comcure presupuestará los recursos para su funcionamiento, los cuales no serán inferiores a cinco por ciento (5%) del monto total recaudado en los cánones de recurso hídrico existentes. Los recursos presupuestados únicamente se utilizarán para su funcionamiento y para el financiamiento de las actividades que corresponde desarrollar a la Comcure. La Dirección de Aguas del Minae los transferirá en el plazo máximo de un mes, contado a partir de la aprobación legislativa del presupuesto de la República.
+(Así adicionado el párrafo anterior por el artículo 23 de la ley N° 9067 del 10 de setiembre del 2012)
