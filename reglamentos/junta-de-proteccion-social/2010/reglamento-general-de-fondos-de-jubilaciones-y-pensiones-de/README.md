@@ -14,3 +14,4 @@ Reglamento General de fondos de Jubilaciones y Pensiones de los vendedores de lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-07 | la propia norma |
+| 2 | 2012-11-20 | Reglamento 36 (2012-11-20) |
