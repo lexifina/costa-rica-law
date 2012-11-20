@@ -1,0 +1,2 @@
+ARTÍCULO 24.- Se reforma el artículo 27 de la Ley N.º 8023, Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón, de 27 de setiembre de 2000. El texto dirá:
+“Artículo 27.- Las municipalidades de los cantones de las provincias de Cartago y Limón, comprendidos en el artículo 1 de esta ley, podrán destinar un porcentaje de lo establecido en los incisos 1) y 5) del artículo 43 de la Ley N.º 7788, Ley de Biodiversidad, de 30 de abril de 1998, a la formulación e implementación de los programas dispuestos en la presente ley.”
