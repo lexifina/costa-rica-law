@@ -1,0 +1,1 @@
+Artículo 4. La modalidad de Suficiencia debe entenderse como aquella que permite a un estudiante demostrar que posee los conocimientos, habilidades, destrezas y actitudes correspondientes a los objetivos y contenidos de un determinado curso mediante la realización de una prueba. No requiere la asistencia sistemática a clases.

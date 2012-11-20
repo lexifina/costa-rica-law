@@ -1,0 +1,1 @@
+Artículo 28. Para impartir una tutoría mediante el uso de herramientas virtuales, ya sea a distancia o híbrida, el docente deberá estar certificado por la Dirección de Tecnología Educativa o en su defecto, poseer una certificación homóloga.

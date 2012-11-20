@@ -1,0 +1,1 @@
+Artículo 12. No se aceptará la matrícula por suficiencia en los cursos de formación humanística, seminarios, de las áreas cultural y deportiva, ni de cursos que impliquen ejecución de procesos, proyectos, requieran giras académicas o laboratorios (en este último caso se exceptúan los cursos básicos de informática).

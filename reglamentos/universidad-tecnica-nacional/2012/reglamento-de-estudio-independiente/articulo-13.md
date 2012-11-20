@@ -1,0 +1,1 @@
+Artículo 13. Aquellos estudiantes que el día del examen no presenten el comprobante de matrícula de la prueba por suficiencia emitido por Registro de la Sede o Centro y su identificación, no podrán realizar la prueba.

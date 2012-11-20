@@ -1,0 +1,1 @@
+Artículo 30. Para las tutorías a distancia o híbridas que hagan uso de herramientas virtuales, el Director de Carrera deberá enviar copia del programa y cronograma de actividades a la Dirección de Tecnología Educativa con la finalidad de la apertura en el aula virtual de la UTN y el respectivo acompañamiento.

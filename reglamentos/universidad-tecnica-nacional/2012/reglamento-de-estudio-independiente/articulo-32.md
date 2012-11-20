@@ -1,0 +1,1 @@
+Artículo 32. Las formalidades de ambos recursos y los plazos de resolución se ajustarán a lo dispuesto en los artículos relativos de la Ley General de la Administración Pública. La Revocatoria será resuelta por el Director de Carrera la Apelación por el Director de Docencia.

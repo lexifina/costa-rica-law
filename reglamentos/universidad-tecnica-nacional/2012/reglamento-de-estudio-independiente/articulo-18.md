@@ -1,0 +1,1 @@
+Artículo 18. El estudiante que desee matricular un curso por tutoría debe realizar la solicitud ante el Director de Carrera respectivo dentro del período establecido por el calendario institucional, con la excepción de aquellos cursos que son matriculados de manera regular pero que por lo dispuesto en el artículo siguiente, son impartidos en la modalidad de tutoría.

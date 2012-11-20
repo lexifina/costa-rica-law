@@ -1,0 +1,1 @@
+Artículo 27. Cuando la modalidad de la tutoría sea una combinación presencial y a distancia (tutorías híbridas), se aplicará lo dispuesto para las tutorías presenciales y las tutorías a distancia respectivamente.

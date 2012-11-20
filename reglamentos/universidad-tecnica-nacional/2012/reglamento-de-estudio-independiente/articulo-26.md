@@ -1,0 +1,1 @@
+Artículo 26. Para el caso de las tutorías a distancia, las sesiones de aprendizaje se realizarán utilizando las herramientas virtuales y tecnologías emergentes disponibles para la comunicación entre el docente y el estudiante. Como se establece para las tutorías presenciales, el tiempo de la tutoría no podrá ser menor de quince horas lectivas por cuatrimestre.

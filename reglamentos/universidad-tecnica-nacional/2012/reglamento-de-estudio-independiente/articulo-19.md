@@ -1,0 +1,1 @@
+Artículo 19. Los cursos regulares cuya matrícula sea menor a diez (10) estudiantes y que por su naturaleza se adapten a esta modalidad, podrán ser impartidos por tutoría, previa determinación por parte del Director de Carrera.
