@@ -282,6 +282,10 @@ VIH-SIDA: hasta un 20%
 7.12.1.5. Menores privados de libertad/programas atención hijos de privados de libertad hasta un 20%
 7.12.1.6. Adulto mayor (hogares y centros diurnos): hasta un 60%
 7.12.2. Se autoriza la contratación de servicios profesionales en los campos de salud, legal y contable, en los dos últimos casos, cuando dichas erogaciones sean necesarias para obtener apoyo económico de instituciones públicas.
+Se autoriza en el área de adulto mayor incrementar del porcentaje para pago de salarios de un 60 a un 80%.
+(Así adicionado el párrafo anterior mediante acuerdo JD-4646 tomado en sesión N° 36-2012 del 20 de noviembre del 2012)
+Este incremento también se aplicará para los recursos transferidos para este año 2012.
+(Así adicionado el párrafo anterior mediante acuerdo JD-4646 tomado en sesión N° 36-2012 del 20 de noviembre del 2012)
 Vigencia
 Una vez aprobadas las modificaciones efectuadas al presente manual de criterios técnicos, se procederá a su publicación en el Diario Oficial La Gaceta y se dará a conocer a las organizaciones sociales beneficiarias.
 San José, 21 de abril del 2010.
