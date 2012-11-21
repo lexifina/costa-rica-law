@@ -1,0 +1,1 @@
+Artículo 23.—Actividades concurrentes: La realización de actividades comerciales reguladas en el artículo 4 de la Ley en forma concurrente o coincidente, tales como “Salón y Bar”, “Bar y Restaurante”, o similares, requerirá la gestión y otorgamiento de una licencia por cada actividad desplegada, así como la separación temporal y espacial de dichas actividades.

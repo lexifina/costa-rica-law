@@ -1,0 +1,6 @@
+Artículo 27.—Revocación de licencias. Siguiendo el debido proceso, conforme lo establece el Código Municipal y la Ley General de la Administración Pública, la municipalidad podrá revocar la licencia para la comercialización de bebidas con contenido alcohólico, en los siguientes casos:
+a) Por renuncia expresa o muerte del patentado. Para los efectos de este reglamento, considerando que las patentes se deben cancelarse por adelantado, cuando la renuncia se presente durante el transcurso de un trimestre la Municipalidad no devolverá ni acreditará monto alguno por la fracción del trimestre no explotada. En todo caso, la Municipalidad no tramitará solicitudes de renuncia de licencias que no se encuentren al día en el pago de patente.
+b. Cuando resulte evidente el abandono de la actividad aún cuando el interesado no lo haya comunicado, de lo cual se conformará un expediente que sustente la respectiva resolución.
+c. Por la pérdida o cancelación del permiso de funcionamiento del establecimiento, independientemente del motivo que lo origine.
+d. Por el incumplimiento de los requisitos o la contravención de las prohibiciones establecidas en la Ley, previa suspensión conforme lo establece el artículo 10 de la Ley.
+e. Por cualquiera de las causales establecidas en el artículo 6 de la Ley.

@@ -1,0 +1,1 @@
+Artículo 17.—Denegatoria. La licencia podrá denegarse cuando se incumplan los artículos 8 o 9 de la Ley, o en observancia del artículo 81 del Código Municipal, de lo cual se expedirá copia al Proceso de Licencias Municipales o Departamento de Patentes y a la Delegación Policial del lugar.

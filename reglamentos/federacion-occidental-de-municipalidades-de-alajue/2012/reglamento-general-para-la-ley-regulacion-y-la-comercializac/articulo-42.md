@@ -1,0 +1,1 @@
+Artículo 42.—La licencia otorgada por la Municipalidad para la comercialización de bebidas con contenido alcohólico, solo puede ser utilizada en el establecimiento para el cual se solicitó y no podrá cambiar de ubicación, de nombre comercial o de titular.

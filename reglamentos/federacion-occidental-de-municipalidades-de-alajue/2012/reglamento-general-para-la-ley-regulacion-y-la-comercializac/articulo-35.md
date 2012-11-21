@@ -1,0 +1,1 @@
+Artículo 35.—Del acuerdo que autorice o deniegue una solicitud de licencia temporal para venta de bebidas con contenido alcohólico, se expedirá copia al Departamento de Patentes y a la Delegación Policial del lugar.
