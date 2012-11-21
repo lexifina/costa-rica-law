@@ -1,0 +1,1 @@
+3. Sustituir el nombre del Tramo de afinamiento de la política monetaria por el de Tramo de Política Monetaria, en los artículos 2, 5 y 7 de las “Políticas Generales para la Administración de Pasivos”.

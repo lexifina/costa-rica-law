@@ -1,0 +1,4 @@
+10. Modificar el inciso f) del artículo 6 de las “Políticas para la Administración de las Reservas Internacionales” para que en adelante se lea:
+Artículo 6º—Funciones de la Comisión
+f. Cuando la Junta Directiva del Banco Central esté imposibilitada legal o materialmente para sesionar y existan condiciones en el mercado o necesidades de liquidez extraordinarias que aconsejen la pronta adopción de cambios en la cartera de Reservas; adoptar medidas que estime convenientes de forma urgente para reducir riesgos, como movimientos de montos entre carteras, cambios en los índices de referencia u otras medidas de naturaleza similar. Las medidas adoptadas serán comunicadas inmediatamente a cada uno de los Miembros de la Junta Directiva.
+Cada vez que la Comisión de Reservas ejerza la facultad atribuida en el párrafo anterior, deberá informar lo actuado a la Junta Directiva en su sesión inmediata siguiente.

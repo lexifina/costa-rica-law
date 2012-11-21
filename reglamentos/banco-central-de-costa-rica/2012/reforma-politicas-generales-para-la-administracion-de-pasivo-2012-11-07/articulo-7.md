@@ -1,0 +1,2 @@
+7. Asignar a la Comisión de Estabilidad Financiera, la siguiente función adicional en materia de estabilización del mercado cambiario:
+Autorizar la participación en el mercado cambiario con el objetivo de influir sobre el tipo de cambio cuando a criterio de la Comisión se presente una situación que pueda llevar a desequilibrios por especulación o movimientos abruptos del mercado. La Comisión deberá ajustarse a los criterios de intervención que haya emitido la Junta Directiva o, en caso de que no existan, deberá definirlos de manera explícita.

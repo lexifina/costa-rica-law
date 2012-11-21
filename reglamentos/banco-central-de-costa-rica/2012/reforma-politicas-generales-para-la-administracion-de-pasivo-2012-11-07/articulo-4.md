@@ -1,0 +1,9 @@
+4.Modificar los incisos 2.E, 3.C, 4.D y 5, del Título IV, de las “Regulaciones de Política Monetaria”, para que en adelante se lean de la siguiente manera:
+2. Lineamientos Generales
+E. La Junta Directiva del Banco Central de Costa Rica, también determinará la tasa de interés de captación a un día plazo. Las tasas de interés brutas para las operaciones del mercado abierto a plazos superiores a un día deberán ser las necesarias para captar o inyectar los montos requeridos. Para este fin, la Administración contará con un margen que utilizará de acuerdo con la metodología aprobada por la Junta Directiva del Banco Central de Costa Rica.
+Cuando la Junta Directiva del Banco Central se encuentre imposibilitada legal o materialmente para sesionar, la determinación de la tasa de interés de captación a un día plazo la hará la Comisión para la Fijación de las Tasas de Interés del Banco Central de Costa Rica.
+3. Subastas
+C. El Banco Central podrá convocar a subastas no competitivas de títulos. Se entiende por oferta no competitiva aquella donde no se indique el rendimiento deseado y el oferente esté dispuesto a aceptar una tasa determinada por el Banco Central de Costa Rica. Dicha tasa de interés se establecerá por medio de las metodologías definidas por la Comisión de Mercados, aprobadas por la Junta Directiva del Banco Central de Costa Rica y comunicadas debidamente al público.
+4. Operaciones para el control de liquidez
+D. La coordinación de las operaciones de contracción e inyección de liquidez estará a cargo de la Comisión de Mercados.
+5. La intervención del Banco Central de Costa Rica en el Mercado Integrado de Liquidez estará a cargo del Departamento de Operaciones Nacionales de la División Gestión de Activos y Pasivos, bajo los parámetros definidos por la Comisión de Mercados y las condiciones definidas en el Ejercicio Diario de Seguimiento de Liquidez.
