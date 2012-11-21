@@ -1,15 +1,7 @@
+N° 7361
 LEY DE PROTECCION DEL PARQUE
 LA SABANA PADRE CHAPUI
-ARTICULO 1.- Prohíbese realizar construcciones en el Parque La Sabana
-Padre Chapuí, entendido éste como la propiedad descrita en el párrafo
-primero del artículo 5 de la Ley No. 3656 del 6 de enero de 1966.
-También se prohíbe cerrar espacios en el referido Parque, con mallas,
-cercas u otros medios, que impidan al público en general el uso de la
-propiedad, para prácticas deportivas y de recreación; excepto las áreas en
-las que actualmente se ubican la piscina María del Milagro París, los
-gimnasios y el Estadio Nacional.
-Como excepción, además se permitirá realizar obras de conservación y
-mejoramiento en las instalaciones existentes, para atención y facilidad
-del público, así como la construcción de canchas y de otras instalaciones
-deportivas, siempre y cuando sean al aire libre y no se encuentren
-aisladas por vallas, cercas u obras parecidas.
+ARTICULO 1.- Prohíbese realizar construcciones en el Parque La Sabana Padre Chapuí, entendido éste como la propiedad descrita en el párrafo primero del artículo 5 de la Ley No. 3656 del 6 de enero de 1966.
+También se prohíbe cerrar espacios en el referido Parque, con mallas, cercas u otros medios, que impidan al público en general el uso de la propiedad, para prácticas deportivas y de recreación; excepto las áreas en las que actualmente se ubican la piscina María del Milagro París, los gimnasios y el Estadio Nacional.
+Como excepción, además se permitirá realizar obras de conservación, mejoramiento y sustitución, total o parcial, de las instalaciones existentes, para atención y facilidad del público, así como la construcción de canchas y de otras instalaciones deportivas, siempre y cuando sean al aire libre y no se encuentren aisladas por vallas, cercas u obras parecidas, en el tanto las obras señaladas no impliquen, bajo ninguna circunstancia, la tala de árboles o la reducción de las áreas verdes existentes. No obstante lo anterior, se podrán talar árboles con fines de reforestación y sustitución de especies foráneas por nativas, así como la corta de árboles individuales que pongan en riesgo la seguridad de los usuarios del Parque La Sabana , siempre que sean sustituidos según los criterios técnicos del Sistema Nacional de Áreas de Conservación (Sinac).
+(Así reformado el párrafo anterior por el artículo único de la ley N° 9079 del 12 de octubre del 2012)
