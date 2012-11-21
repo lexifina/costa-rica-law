@@ -1,0 +1,1 @@
+Artículo 9º—Para la realización de consultas populares echando mano a los mecanismos del referéndum, plebiscitos y cabildos, se aplicará la normativa vigente en el respectivo reglamento de consultas populares en el Cantón de Santa Ana.
