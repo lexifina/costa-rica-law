@@ -1,0 +1,17 @@
+Nº 37386-MAG
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE AGRICULTURA Y GANADERÍA
+Con fundamento en lo dispuesto en el artículo 140, incisos 3), 8), 18) y 20), 50 y 146 de la Constitución Política; la Ley Nº 7291, que ratifica la Convención de las Naciones Unidas sobre el Derecho del Mar, publicado en La Gaceta Nº 134 del 15 de julio de 1992, Alcance Nº 10; la Ley Nº 8059, que aprueba el Acuerdo de las Naciones Unidas sobre Poblaciones de Peces Transzonales y Altamente Migratorios, publicado en La Gaceta Nº 24 del 2 de febrero del 2001; la Ley Nº 8712, Convención para el Fortalecimiento de la Comisión Interamericana del Atún Tropical, publicada en La Gaceta Nº 64 del 1 de abril del 2009; la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley Nº 7064, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, del 29 de abril de 1987; la Ley Nº 7384, Ley de Creación del Instituto Costarricense de Pesca y Acuicultura del 16 de marzo de 1994 y la Ley Nº 8436, Ley de Pesca y Acuicultura, del 1º de marzo de 2005;
+Considerando
+I.—Que en el seno de la Sexagésima Reunión de la Comisión Interamericana del Atún Tropical (CIAT), a Costa Rica se le reconoció un límite de capacidad de pesca de atún de cerco de 9364 metros cúbicos, utilizables por embarcaciones de red de cerco, para incorporar en el Registro Regional de Buques Cerqueros autorizados a faenar en el Océano Pacífico Oriental.
+II.—Que la Capacidad de Pesca reconocida a Costa Rica en el seno de la CIAT responde al derecho soberano del país como Estado Ribereño a participar en la pesquería de atunes en el Océano Pacífico Oriental (OPO) y a la obligación de su manejo acorde con los principios de la Pesca Responsable, en el interés legítimo de la Nación para el desarrollo de sus actividades pesqueras.
+III.—Que el Gobierno de la República y las Instituciones Públicas del Sector Agroalimentario, tienen como uno de sus objetivos fundamentales, incentivar la actividad pesquera en sus diferentes procesos y etapas, como una forma de generar divisas y mejorar los niveles socioeconómicos de la población.
+IV.—Que la Ley de Pesca y Acuicultura declaró de utilidad pública e interés nacional la actividad pesquera y su industria afín, sujeta a los tratados y convenios internacionales suscritos por el país.
+V.—Que se reconoce la importancia de mejorar la competitividad de la Industria Atunera Nacional, potenciando el correcto aprovechamiento del recurso atunero siguiendo las regulaciones determinadas por la CIAT y las políticas de manejo de pesca sustentable del país, buscando garantizar la suficiencia de materia prima de las plantas de proceso que operen en Costa Rica en el contexto de aprovechamiento y conservación del Recurso Atunero.
+VI.—Que dados los derechos de Costa Rica a participar en la pesquería de atún en el OPO, acorde con su Capacidad de Pesca reconocida, es necesario definir y establecer los parámetros y condiciones bajo los cuales se utilizarán en el futuro. Por tanto,
+Decretan
+Reglamento para la utilización de la capacidad
+de pesca de Atún de Cerco reconocida a
+Costa Rica en el seno de la Comisión
+Interamericana del Atún Tropical
+Artículo 1º—La capacidad de pesca de atún de cerco reconocida al país en la Comisión Interamericana del Atún Tropical (CIAT), constituye un derecho soberano de participación cuyo manejo responderá al desarrollo sostenible de las pesquerías nacionales.

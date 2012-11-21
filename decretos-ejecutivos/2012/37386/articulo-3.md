@@ -1,0 +1,1 @@
+Artículo 3º—La utilización de la mencionada capacidad de pesca se asignará por medio de autorizaciones temporales efectuadas por el Poder Ejecutivo mediante Acuerdo Ejecutivo a favor del armador solicitante para la embarcación específica, que indique el acto de autorización, conforme las regulaciones del presente Reglamento.
