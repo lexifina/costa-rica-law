@@ -1,0 +1,2 @@
+De las licencias temporales
+Artículo 31.-Otorgamiento. El Concejo Municipal mediante acuerdo podrá autorizar licencias temporales a personas físicas o jurídicas, por un plazo máximo de un mes, para habilitar el expendio de bebidas con contenido alcohólico en ocasiones específicas tales como fiestas cívicas, fiestas populares, ferias, turnos y afines. Las clases de licencias otorgadas bajo esta modalidad serán B1 y B2.

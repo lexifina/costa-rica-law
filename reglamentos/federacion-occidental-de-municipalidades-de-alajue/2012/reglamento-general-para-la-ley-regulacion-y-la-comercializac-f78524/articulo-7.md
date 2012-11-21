@@ -1,0 +1,1 @@
+Artículo 7º-Tipos de licencia. Por la naturaleza de la actividad relacionada con la comercialización de bebidas con contenido alcohólico y la duración de las mismas, las licencias se clasifican como a) permanentes y b) temporales.
