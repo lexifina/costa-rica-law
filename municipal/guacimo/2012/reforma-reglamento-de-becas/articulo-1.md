@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE GUÁCIMO
+Este Concejo Municipal por unanimidad acuerda: modificar el artículo 9 del Reglamento de Becas de la siguiente manera:
+Artículo 9º—Todo estudiante que desea optar el beneficio de una beca, deberá haber ganado el año anterior, además durante el periodo que tenga beca deberá mantener su rendimiento académico general del ciclo básico con el mínimo de un 70%, para 7°, 8° y 9° y 75% en el caso de 10°, 11°, y 12º, y en los CINDEAS la nota mínima de un 65%. Todo lo anterior a un promedio final que se obtendrá del total de las notas del ciclo básico cuyo resultado debe hacer acorde con las anteriores estipulaciones en las calificaciones. La verificación y control de la suma de dicha nota le corresponderá a la comisión de becas del Concejo Municipal de Guácimo.
+Acuerdo N° Diecisiete. Aprobado unánimemente, acuerdo en firme. (Acuerdo tomado en Acta Nº 62-12 de la Sesión Ordinaria N° 40-12, celebrada el 24 setiembre 2012).
+Publíquese en Diario Oficial La Gaceta, rige a partir de su publicación.—
