@@ -1,0 +1,1 @@
+Artículo 76.—La Junta, no podrá otorgar arrendamiento sobre derechos que contengan Mausoleos de Honor, pero sí podrá suprimir esa distinción cuando los restos de la persona que dio origen a esa honra hayan sido trasladados a otro lugar.

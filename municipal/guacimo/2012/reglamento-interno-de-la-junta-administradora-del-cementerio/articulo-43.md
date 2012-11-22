@@ -1,0 +1,1 @@
+Artículo 43.—La Junta tiene la potestad de paralizar cualquier obra que infrinja la normativa interna sobre construcciones y reparaciones, o bien porque a criterio justificado de la Administración el obrero no presente conductas acordes a la moral y a las buenas costumbres.

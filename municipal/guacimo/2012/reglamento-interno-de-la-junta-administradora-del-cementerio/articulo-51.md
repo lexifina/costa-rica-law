@@ -1,0 +1,1 @@
+Artículo 51.—Queda absolutamente prohibido al personal de campo, así como a peones y jardineros que trabajen para la Junta, el contratar con arrendatarios de derechos, la construcción, reparación, pintura o lavado de las mismas.

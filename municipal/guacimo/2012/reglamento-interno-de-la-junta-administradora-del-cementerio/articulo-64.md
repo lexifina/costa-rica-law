@@ -1,0 +1,1 @@
+Artículo 64.—Si el arrendador del derecho falleciera sin haber realizado traspaso alguno, y no hubiese dejado testamento donde estipule ello, se admitirá únicamente solicitud de familiares en primer, segundo grado o mediante sentencia del proceso sucesorio.

@@ -1,0 +1,1 @@
+Artículo 3º—Para la obtención y conservación de un derecho de arrendamiento para bóveda, arrendamiento de nicho para inhumaciones u otro tipo de construcción autorizada, los interesados deberán cumplir con los requisitos establecidos en el Decreto Ejecutivo Nº 32833-S, del 19 de diciembre del 2005, denominado Reglamento General de Cementerios.

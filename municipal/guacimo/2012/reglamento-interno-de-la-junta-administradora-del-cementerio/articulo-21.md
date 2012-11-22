@@ -1,0 +1,1 @@
+Artículo 21.—Los acuerdos tomados por la totalidad o la mayoría de los miembros presentes de la Junta, siempre serán firmes, salvo que se acuerde lo contrario, quedando abierta la posibilidad de revisión y revocatoria.

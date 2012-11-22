@@ -1,0 +1,1 @@
+Artículo 18.—La Junta será responsable de la administración y cuido de los activos de los cementerios a cargo. Asimismo administrará los recursos económicos, pudiendo realizar la compra de bienes o la adquisición de servicios.
