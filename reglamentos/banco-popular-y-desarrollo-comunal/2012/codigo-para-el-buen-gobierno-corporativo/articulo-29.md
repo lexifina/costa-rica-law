@@ -1,1 +1,0 @@
-Artículo 29.—Comité de Auditoría Corporativo. El Conglomerado dispondrá de un único Comité de Auditoría Corporativo cuya integración, funciones y responsabilidades se regirán por el Reglamento del Comité de Auditoría Corporativo.

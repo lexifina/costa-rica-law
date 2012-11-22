@@ -1,4 +1,0 @@
-Artículo 33.—Funcionamiento de los Comités de Apoyo. Cada Comité de Apoyo deberá elaborar un Plan de Trabajo Anual, que deberá ser aprobado por la Junta Directiva respectiva a más tardar en el mes de diciembre del año anterior a su vigencia.
-Salvo disposición superior o especial en contrario, cada Comité sesionará ordinariamente en la fecha y con la frecuencia que él mismo acuerde y extraordinariamente cuando su Presidencia lo convoque.
-Formarán quórum la mitad más uno de sus integrantes. Cuando así lo disponga una norma superior o especial, ningún Comité que cuente con una persona integrante externo podrá sesionar sin su presencia.
-De cada reunión se levantará un acta y se llevará el control en el Libro de Actas debidamente legalizado. Siempre que sea jurídicamente posible, este proceso de legalización estará a cargo de la Consultoría Jurídica interna del Banco Popular o la SUGEF, según corresponda.
