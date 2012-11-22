@@ -1,0 +1,1 @@
+Artículo 47.—Se considerarán actos de discriminación cuando los mecanismos empleados para este proceso no estén adaptados a las condiciones del candidato o la candidata, cuando se exijan requisitos adicionales a los establecidos para todas las personas solicitantes o cuando no se emplee a un trabajador o trabajadora idónea en razón de su discapacidad.

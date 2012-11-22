@@ -1,0 +1,1 @@
+Artículo 17.—Los funcionarios interinos de la Municipalidad de Upala y los funcionarios de confianza, no están amparados por los derechos y beneficios de la Carrera Administrativa Municipal, aunque desempeñen puestos comprendidos en ella.

@@ -1,0 +1,1 @@
+Artículo 108.—La Municipalidad de Upala, para efectos del pago de la Prohibición, Dedicación Exclusiva, Carrera Profesional, Carrera Administrativa o cualquier otro plus, se regirá con base en la normativa existente sobre la materia.

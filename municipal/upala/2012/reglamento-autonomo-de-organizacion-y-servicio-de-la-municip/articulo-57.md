@@ -1,0 +1,1 @@
+Artículo 57.—El funcionario Municipal que denuncie hostigamiento sexual falso, podrá incurrir cuando así se tipifique en cualquiera de las conductas propias de difamación, la injuria o la calumnia según se señala en el Código Penal.

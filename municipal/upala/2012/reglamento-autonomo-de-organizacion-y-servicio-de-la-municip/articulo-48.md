@@ -1,0 +1,1 @@
+Artículo 48.—La Municipalidad debe propiciar de acuerdo a sus posibilidades presupuestarias, las facilidades necesarias con el fin de que todo el personal, sin discriminación alguna, pueda capacitarse y superarse en el desempeño de sus puestos.

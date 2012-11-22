@@ -1,0 +1,5 @@
+CAPÍTULO XVIII
+De la jornada de trabajo
+Artículo 112.—La jornada de trabajo para el personal se desarrollará en las instalaciones de la Municipalidad, ubicadas o no en el edificio principal en este cantón. Para el personal que debe laborar fuera de las instalaciones centrales, a causa de la naturaleza del servicio que presta, la jornada de trabajo se desarrollará en los sitios o lugares que la administración señale y de acuerdo a las necesidades del servicio que se preste.
+El cambio de lugar donde se prestarán los servicios o el cambio de horario, deberá ser puesto en conocimiento del personal afectado, con no menos de dos días de anticipación, salvo casos de fuerza mayor que imposibiliten tal disposición. No obstante, la Municipalidad, podrá establecer jornadas ordinarias inferiores a estas por razones de salud, ocupación u horarios de trabajo distintos a los señalados.
+En cuanto a la jornada y horario de trabajo de los conserjes, choferes, inspectores, peones y cualquier otro puesto que lo justifique, debe ser regulado por la instancia encargada de los Recursos Humanos, en conjunto con el jefe inmediato de la dependencia respectiva.

@@ -1,0 +1,4 @@
+Artículo 28.—Los salarios de los funcionarios de la Municipalidad de Upala se regirán de la siguiente forma:
+a) Ningún funcionario o funcionaria devengará un sueldo inferior al mínimo o correspondiente al desempeño del cargo que ocupa.
+b) Los salarios de los funcionarios que prestan sus servicios en la Municipalidad de Upala, serán determinados por una escala de sueldos, que fijará sumas mínimas y máximas correspondientes a cada categoría de puestos, para lo cual deberá sustentarse en lo dispuesto por los estudios o directrices que en esta materia indique la Unión Nacional de Gobiernos Locales, debiendo ser aprobado por parte del Concejo Municipal.
+c) Para determinar los salarios, se tomarán en cuenta las condiciones presupuestarias de la Municipalidad, el costo de vida en las distintas regiones, los salarios que prevalezcan en el mercado para puestos iguales y cualesquiera otras disposiciones legales en materia salarial.

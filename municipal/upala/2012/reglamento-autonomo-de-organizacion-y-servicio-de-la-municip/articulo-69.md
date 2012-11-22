@@ -1,0 +1,1 @@
+Artículo 69.—Cualquier infidencia de una persona del Órgano Director o de cualquier otra vinculada directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este Reglamento, y ameritará su sustitución, sin perjuicio de las sanciones aplicables por su falta.

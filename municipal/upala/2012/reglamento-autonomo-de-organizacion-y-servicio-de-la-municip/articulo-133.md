@@ -1,0 +1,1 @@
+Artículo 133.—Cuando se produzca una llegada tardía injustificada superior a quince minutos, contados a partir de la hora de entrada, el trabajador no deberá permanecer laborando durante esa fracción de la jornada y esta falta para efectos de sanción y no pago del salario correspondiente, se calificará y computará como media ausencia.

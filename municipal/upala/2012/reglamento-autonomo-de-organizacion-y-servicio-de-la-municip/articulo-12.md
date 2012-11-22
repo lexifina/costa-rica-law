@@ -1,0 +1,1 @@
+Artículo 12.—Es deber de las unidades administrativas de las dependencias de la Municipalidad, enviar copia al expediente personal, de aquellas gestiones que dentro de su ámbito de competencia, pueden generar efectos jurídico-administrativos, relacionados con el desempeño del funcionario o funcionaria en el ejercicio de su función.

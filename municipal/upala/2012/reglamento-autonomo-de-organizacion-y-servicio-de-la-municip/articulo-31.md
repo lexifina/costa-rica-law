@@ -1,0 +1,1 @@
+Artículo 31.—La evaluación o calificación anual de servicios servirá como reconocimiento a los funcionarios para estimular y lograr una mayor eficiencia, y factor que debe considerarse en el proceso de reclutamiento y la selección, la capacitación, los ascensos, el aumento de sueldo, la concesión de permisos y las reducciones forzosas de personal.

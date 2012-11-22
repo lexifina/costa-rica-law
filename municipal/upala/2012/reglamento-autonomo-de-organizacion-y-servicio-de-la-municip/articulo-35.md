@@ -1,0 +1,1 @@
+Artículo 35.—El desacuerdo entre el jefe inmediato y el funcionario (a) en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde o Alcaldesa, previa audiencia a las partes interesadas.

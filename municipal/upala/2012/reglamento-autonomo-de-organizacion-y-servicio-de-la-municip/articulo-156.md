@@ -1,0 +1,1 @@
+Artículo 156.—Podrá laborarse tiempo extraordinario en aquellas dependencias que por su naturaleza a la estructura administrativa así lo requieran, tal como: Recolección de Basura, caminos vecinales, etc.

@@ -1,0 +1,1 @@
+Artículo 62.—Cuando mediante sentencia, se compruebe el hostigamiento, el funcionario (a) ofendido (a) tendrá derecho a una indemnización por daño moral, si ha sido acreditado, lo cual será de conocimiento del juez de trabajo.

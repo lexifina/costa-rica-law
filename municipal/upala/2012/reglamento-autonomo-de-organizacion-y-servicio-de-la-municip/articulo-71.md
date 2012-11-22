@@ -1,0 +1,2 @@
+Artículo 71.—El Órgano Director contará con tres días hábiles para dictar el auto inicial del procedimiento, en el cual se dará el traslado de la denuncia al funcionario y/o funcionaria acusada(o), concediéndole un plazo de cinco días hábiles para que comparezca y se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los elementos de prueba de descargo que estime necesario.
+Si la persona denunciada no ejerce su defensa se continuará con el procedimiento hasta el informe final de parte del Órgano Director.

@@ -1,0 +1,1 @@
+Artículo 92.—Los trabajadores gozarán sin interrupción del periodo de vacaciones. Excepcionalmente podrán fraccionarse en dos periodos como máximo cuando exista convenio de las partes al respecto y se trate de labores de índole tan especial, que no permitan una ausencia prolongada del servidor.

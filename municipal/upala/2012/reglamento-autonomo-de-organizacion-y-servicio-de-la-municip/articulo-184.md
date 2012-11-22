@@ -1,0 +1,6 @@
+Artículo 184.—Sin perjuicio de cualquier otra prevista en otras leyes y reglamentos propios de la relación de servicio, serán hechos generadores de responsabilidad administrativa, independientemente de la responsabilidad civil o penal, las siguientes sanciones a un trabajador cuando incurra en los siguientes causales establecidos en:
+Ley Nº 8131 (Ley de Administración Financiera de la República), en los artículos del 110 al 116.
+Ley Nº 8220 (Ley de Protección al Ciudadano frente al exceso de Requisitos y Trámites Administrativos), en los artículos 199 y siguientes de la Ley General de la Administración Pública.
+Ley Nº 7476 (Ley contra Hostigamiento Sexual en el Empleo y la Docencia), en los artículos 25 y siguientes.
+Ley Nº 7428 (Ley Orgánica de la Contraloría General de la República) en los artículos 67, 68, 69 y 70.
+Ley Nº 8292 (Ley General de Control Interno).

@@ -1,0 +1,1 @@
+Artículo 175.—Los plazos para denunciar la comisión de la falta y, aquel dentro del cual el Departamento de Recursos Humanos o legal, deban dictar la resolución final, son perentorios e improrrogables.

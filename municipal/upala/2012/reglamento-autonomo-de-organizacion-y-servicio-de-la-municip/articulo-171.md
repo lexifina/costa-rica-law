@@ -1,0 +1,5 @@
+Artículo 171.—El procedimiento o instrucción disciplinaria atenderá los siguientes pasos:
+Las jefaturas deberán reportar a la Alcaldía, las faltas en que incurran sus subalternos dentro de los tres días hábiles siguientes en que estas sean de su conocimiento.
+Toda denuncia deberá ser presentada por escrito y contener una relación circunstanciada de los hechos, indicación del o los servidores participantes, los testigos que puedan dar certeza de los hechos, fechas, lugares y otros datos de interés. El denunciante deberá aportar y ofrecer las pruebas en que fundamenta su denuncia.
+La Alcaldía por medio del Departamento de Recursos Humanos o legal, hará una pre-valoración de la falta reportada para determinar su naturaleza, circunstancias y gravedad y establecer la necesidad o no de iniciar una investigación.
+Establecida la falta y definida la sanción correspondiente, de ser esta suspensión sin goce de salario o despido patronal, procederá a comunicarla al trabajador conforme el procedimiento establecido en los artículos 150 y 151 del Código Municipal.

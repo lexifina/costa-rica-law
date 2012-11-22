@@ -1,0 +1,1 @@
+Artículo 64.—Para todo lo que se refiere a esta materia, se aplicarán supletoriamente el Código de Trabajo y las leyes laborales conexas y se aplicará el Código Civil cuando no existan normas reguladoras.

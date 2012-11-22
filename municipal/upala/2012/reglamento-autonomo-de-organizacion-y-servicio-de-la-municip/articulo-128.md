@@ -1,0 +1,1 @@
+Artículo 128.—Las asistencias a la CCSS, o al INS, cuando son en horas laborales y en el tiempo utilizado para ese fin, se consideraran como licencia con goce de salario, para lo cual deberá presentarse la constancia de asistencia expedida, por esas autoridades y a esos efectos.

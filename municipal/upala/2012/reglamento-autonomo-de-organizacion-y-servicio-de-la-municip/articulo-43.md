@@ -1,0 +1,1 @@
+Artículo 43.—La Municipalidad de Upala deberá adoptar las medidas necesarias para que los funcionarios (as) que por razones médicas, no sea aconsejable su permanencia en un puesto que entrañe exposiciones a los riegos de su trabajo, este, sea trasladado (a) a un puesto más adecuado en caso de ser posible.

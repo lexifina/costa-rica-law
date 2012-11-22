@@ -1,0 +1,1 @@
+Artículo 7º—Corresponde al Alcalde o Alcaldesa realizar nombramientos, promociones y remoción de los funcionarios y funcionarias municipales, con excepción de quienes dependan directamente del Concejo Municipal, así mismo, las empleadas y los empleados ocasionales contratados con cargo a las partidas presupuestarias de Servicios Especiales o Jornales Ocasionales.

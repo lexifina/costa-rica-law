@@ -1,0 +1,1 @@
+Artículo 73.—En el plazo de diez días hábiles después de la comparecencia y evacuación de la prueba, el Órgano Director rendirá a la jerarquía correspondiente a la resolución sobre la investigación y recomendará las sanciones disciplinarias correspondientes, en caso de que considere probado el acoso sexual.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Principios y propósitos que inspiran este reglamento
+Artículo 3º—Son principios que inspiran este reglamento y que deben orientar las labores de la Municipalidad y de las personas que laboran en ella, el servicio al usuario y usuaria , la armonización de los procedimientos, la simplificación, flexibilidad, eficacia, trabajo en equipo y el apego a las más estrictas normas de ética en el ejercicio de la función pública, así como el respeto a la dignidad y a los derechos de los funcionarios, con acato riguroso del principio de legalidad y los principios generales del Régimen Municipal. Así como con la aplicabilidad del concepto de poli funcionalidad y el servicio cliente-ciudadano (a) como objetivo primordial en la prestación de servicios.

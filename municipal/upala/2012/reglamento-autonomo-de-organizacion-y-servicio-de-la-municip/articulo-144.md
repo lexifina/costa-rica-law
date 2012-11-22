@@ -1,0 +1,1 @@
+Artículo 144.—La pérdida de confianza será causa de la terminación de la relación de servicio en el caso de los funcionarios amparados al artículo 118 del Código Municipal, que estén al servicio directo del alcalde o el concejo.

@@ -1,0 +1,1 @@
+Artículo 154.—Cualquier mal uso o empleo de este recurso y que vayan en contra del buen gobierno afectando los intereses municipales contravendrá lo establecido en el artículo 147 del Código Municipal, inciso a) quedando tipificado como falta grave, considerándose la primera vez para un sanción de suspensión por quince días y por segunda vez, despido sin responsabilidad patronal.

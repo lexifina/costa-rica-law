@@ -1,0 +1,1 @@
+Artículo 33.—La evaluación y calificación de servicios en la Municipalidad de Upala, deberá darse a los funcionarios nombrados en propiedad que durante el año hayan trabajado continuamente en la Municipalidad.

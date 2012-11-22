@@ -1,0 +1,1 @@
+Artículo 10.—El expediente de personal deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicios, atestados académicos, referencias personales y laborales, así como cualquier otro documento pertinente, siendo responsabilidad del o la funcionaria actualizar su expediente.

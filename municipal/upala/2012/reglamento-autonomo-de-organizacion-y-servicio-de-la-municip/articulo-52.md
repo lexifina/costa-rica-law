@@ -1,0 +1,4 @@
+Artículo 52.—La Municipalidad tendrá la responsabilidad de mantener, en el lugar de trabajo, condiciones de respeto para quienes laboran ahí, por medio de una política interna que prevenga, desaliente, evite y sancione las conductas de hostigamiento sexual. Con ese fin, deberá tomar medidas expresas en el presente reglamento. Sin limitarse solo a él, incluirá las siguientes:
+1. Comunicar, en forma escrita y oral, a los funcionarios (as) y los administrados la existencia de una política contra el hostigamiento sexual.
+2. Establecer un procedimiento interno, adecuado y efectivo, para permitir las denuncias de hostigamiento sexual, garantizar la confidencialidad de las denuncias y sancionar a las personas hostigadoras cuando exista causa.
+El procedimiento mencionado en el inciso anterior, en ningún caso, podrá exceder el plazo de tres meses, contados a partir de la interposición de la denuncia por hostigamiento sexual.

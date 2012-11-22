@@ -1,0 +1,1 @@
+Artículo 56.—Quien haya formulado una denuncia de hostigamiento sexual, sólo podrá ser despedido por causas justificadas, contempladas en los artículos 147, 148, y 149 del código Municipal, así como las señaladas en el artículo 81 del código de Trabajo, debiendo demostrar la existencia de la causa o causas justas para su despido, mediante el debido proceso.

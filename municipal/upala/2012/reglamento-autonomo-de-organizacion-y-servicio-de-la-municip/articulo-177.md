@@ -1,0 +1,1 @@
+Artículo 177.—Toda cita que para los efectos del artículo anterior se curse, deberá hacerse por escrito mediando entre la fecha en que se entrega la cita y aquel en que comparece, un plazo lógico de convocatoria, el cual no deberá ser menor a 24 horas.

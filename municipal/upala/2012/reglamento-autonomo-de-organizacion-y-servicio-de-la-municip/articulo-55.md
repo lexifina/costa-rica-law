@@ -1,0 +1,1 @@
+Artículo 55.—Ningún funcionario(a) de la Municipalidad de Upala, que haya denunciado ser víctima de hostigamiento sexual o que haya comparecido como testigo de las partes, podrá sufrir por ello, perjuicio personal alguno en su empleo.

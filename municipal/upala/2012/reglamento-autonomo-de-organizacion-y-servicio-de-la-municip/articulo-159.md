@@ -1,0 +1,1 @@
+Artículo 159.—La valoración de las faltas en que incurrieren los funcionarios, se fundamentará para determinación de la sanción correspondiente en los Principios de Derecho, de causalidad, objetividad y de proporcionalidad.

@@ -1,0 +1,1 @@
+Artículo 181.—Se sancionará con amonestación escrita por primera vez a la jefatura que incumpla con lo dispuesto en el artículo 145 y con quince días hábiles de suspensión sin goce de salario en caso de reincidencia; de repetirse nuevamente dicha situación se sancionará con el despido sin responsabilidad patronal.

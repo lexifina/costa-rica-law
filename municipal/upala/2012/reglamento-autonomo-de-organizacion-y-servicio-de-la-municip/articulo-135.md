@@ -1,0 +1,1 @@
+Artículo 135.—Sólo se consideraran como validas y justificadas las omisiones de marca que se originen en la imposibilidad real de registrar la marca con ocasión o falta del fluido eléctrico, desperfecto mecánico, por inasistencia justificada de funcionario (a) a sus labores y/o por la atención de asuntos propios del cargo fuera del centro de trabajo debidamente autorizados.

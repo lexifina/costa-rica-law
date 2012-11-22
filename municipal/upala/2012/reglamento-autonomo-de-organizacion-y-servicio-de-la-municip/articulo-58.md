@@ -1,0 +1,1 @@
+Artículo 58.—Agotados los procedimientos establecidos en la Municipalidad de Upala, o si no se cumplen por motivos que no se le pueden imputar a la persona ofendida, las denuncias de hostigamiento sexual, se podrán presentar ante los tribunales competentes.

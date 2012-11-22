@@ -1,0 +1,1 @@
+Artículo 53.—La Municipalidad de Upala estará obligada a informar sobre las denuncias de hostigamiento sexual que se reciban en su lugar de trabajo, así como el resultado del procedimiento que se realice, a la Defensoría de los Habitantes. Para efectos de la Municipalidad de Upala, se entiende por patrono al superior jerárquico de la institución.

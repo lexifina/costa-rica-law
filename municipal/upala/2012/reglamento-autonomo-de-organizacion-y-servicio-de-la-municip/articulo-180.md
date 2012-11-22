@@ -1,0 +1,1 @@
+Artículo 180.—Suspensión por cinco días cuando la jefatura correspondiente no presente dentro del plazo de quince días hábiles de iniciado un nuevo año el rol de vacaciones que señala el artículo 90 del presente Reglamento.
