@@ -1,0 +1,1 @@
+Artículo 14.—Deber de reserva. Los miembros de la Junta Directiva, asesores, funcionarios públicos y particulares que fueren admitidos en una sesión deberán guardar absoluta reserva y/o confidencialidad sobre las deliberaciones y votaciones que en la misma se produjeran.

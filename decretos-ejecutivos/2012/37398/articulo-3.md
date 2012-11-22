@@ -1,0 +1,1 @@
+Artículo 3º—Sustituciones y suplencias. Para los casos de ausencia del Presidente, la Junta Directiva deberá nombrar, una vez al año, a un Vicepresidente, y su actuación se regirá por lo dispuesto en los artículos 1 y 2 de este reglamento, quien actuará únicamente en ausencia del Presidente.

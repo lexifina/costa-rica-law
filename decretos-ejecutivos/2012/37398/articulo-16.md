@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Comisiones de especiales
+Artículo 16.—De las Comisiones Especiales. El Presidente de la Junta Directiva o la Junta Directiva, podrán acordar crear durante su gestión, las comisiones de trabajo que consideren convenientes en forma temporal y permanente, para el estudio, examen o investigación de cualquier asunto del Consejo de Seguridad Vial sometido a su conocimiento y que amerite su conformación.
+La Presidencia podrá nombrar a uno o varios miembros de la Junta Directiva como integrantes de esas comisiones, así como de los funcionarios del Consejo de Seguridad Vial que estime pertinentes, designando también al coordinador responsable de las mismas, quien será responsable ante la Junta Directiva.
+Las comisiones de estudio o de trabajo, deberán rendir su informe en los asuntos que se les haya encomendado, dentro del término estipulado por la Junta Directiva y el cual deberá ser firmado por el coordinador de la comisión.
+Cuando por falta de datos, por la complejidad o volumen de los expedientes, la comisión no pueda terminar el estudio de los asuntos encomendados dentro del plazo estipulado, la Junta Directiva, atendiendo las circunstancias y razones aducidas por la comisión, concederá la prórroga que estime conveniente, por una única vez.
