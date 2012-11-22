@@ -1,4 +1,0 @@
-Artículo 21.—Dietas. Los miembros de las Juntas de Crédito Local devengarán la suma de ¢28.285,38 (veintiocho mil doscientos ochenta y cinco colones con treinta y ocho céntimos) por cada asistencia a sesiones, dieta que será devengada por quien funja con voz y voto durante la mayor parte de la sesión.
-La inasistencia o llegada tardía de más de treinta minutos después de iniciada la sesión o el abandono de la misma sin la debida justificación avalada por la Presidencia de la Junta, ocasionará la pérdida de la respectiva dieta.
-Dicha dieta será aumentada el 1º de enero de cada año, en un monto igual a la inflación para el período, medida por el índice de Precios al Consumidor correspondiente al año anterior.
-No se podrá pagar más de ocho sesiones entre sesiones ordinarias y extraordinarias por mes.

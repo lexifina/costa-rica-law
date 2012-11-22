@@ -1,3 +1,0 @@
-La Junta Directiva Nacional, en sesión 4607 del 11 de setiembre del 2008, aprobó el “Reglamento para las Juntas de Crédito Local”, el cual se leerá así:
-“REGLAMENTO DE LAS JUNTAS DE CRÉDITO LOCAL”
-Artículo 1º—Fundamento, fines y normativa aplicable. El presente Reglamento se emite con fundamento en el artículo 24 b de la Ley Orgánica del Banco Popular y de Desarrollo Comunal y regula el procedimiento para la integración de las Juntas de Crédito Local y su organización, las cuales se regirán por lo dispuesto en la Ley Orgánica del Banco Popular y de Desarrollo Comunal, en la Ley General de la Administración Pública, en el Reglamento a la Ley Orgánica del Banco Popular y de Desarrollo Comunal y en el presente Reglamento.

@@ -1,1 +1,0 @@
-Artículo 17.—Asistencia a las sesiones. La asistencia de los miembros de las Juntas de Crédito Local a sesiones es obligatoria. Si por justa causa estuvieren imposibilitados de asistir, deberán comunicarlo a la Presidencia. La ausencia injustificada durante cuatro sesiones consecutivas ordinarias, será sancionada con la destitución.
