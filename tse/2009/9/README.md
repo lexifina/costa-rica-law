@@ -14,3 +14,4 @@ Reconocimiento de un incentivo por peligrosidad para los funcionarios de la Ofic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-01 | la propia norma |
+| 2 | 2012-11-22 | Decreto TSE 20 (2012-11-22) |
