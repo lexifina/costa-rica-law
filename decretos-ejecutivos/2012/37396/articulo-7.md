@@ -1,0 +1,1 @@
+Artículo 7º—Requisitos para la renegociación. La renegociación de títulos valores de deuda externa deberá contar con el correspondiente análisis técnico realizado por la Dirección de Crédito Público, el cual debe establecer que se cumple al menos con uno de los supuestos establecidos en el artículo 4 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 6º—Renegociación de títulos valores de deuda externa. La renegociación de títulos valores se podrá realizar a través del canje, sustitución, redención anticipada, la conversión o la consolidación de los valores.

@@ -1,0 +1,1 @@
+Artículo 5º—Deuda pública externa sujeta a renegociación. El Ministerio de Hacienda podrá renegociar deuda pública externa originada en títulos valores de deuda externa. El presente Reglamento no regula las modificaciones de los contratos de préstamos con fuentes bilaterales o multilaterales que realice el Gobierno de la República.

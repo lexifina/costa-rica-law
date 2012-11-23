@@ -1,0 +1,22 @@
+Artículo 2º—Definiciones. Para los efectos del presente reglamento se tendrán las siguientes definiciones:
+a) SIGADE: El Sistema de Gestión y Análisis de la Deuda (SIGADE) es un programa destinado a ayudar a los países en la gestión de su deuda pública, externa e interna, permitiendo controlar las obligaciones de la deuda y ofreciendo información precisa y oportuna para la gestión de la deuda. El sistema oficial de registro de la deuda externa es el SIGADE el cual es desarrollado por la Conferencia de las Naciones Unidas sobre Comercio y Desarrollo (UNCTAD por sus siglas en inglés).
+b) Amortización: Erogaciones por concepto de reembolsos mediante pagos parciales o totales a entes públicos o privados internos y externos por concepto de obligaciones formalmente adquiridas o asumidas, producto de la colocación de títulos valores, préstamos recibidos y otras obligaciones.
+c) Canje: Intercambio de deuda, por ejemplo préstamos o títulos, por un nuevo contrato de deuda.
+d) Contrato de préstamo: Documento jurídico por el cual el prestamista se obliga a tener a disposición del prestatario una determinada suma de dinero para su desembolso. La cantidad desembolsada será devuelta con arreglo a las condiciones fijadas en un calendario de reembolsos o un pagaré.
+e) Consolidación: Consiste en convertir una deuda provisional en una deuda estable, lo que implica la agrupación de varias deudas o un número menor de obligaciones que las originales. De este modo el deudor tendrá una única deuda con un mismo organismo.
+f) Conversión: Procedimiento por el cual el deudor cambia o sustituye las obligaciones de deudor en circulación por nuevas emisiones o activos, son técnicas de alivio de la deuda pública que alteran el valor inicial o la naturaleza de los mecanismos de endeudamiento.
+g) Desembolso: Es la operación por la cual se ponen a disposición del país prestatario o beneficiario recursos tales como bienes, servicios o fondos en virtud de un acuerdo de préstamo.
+h) Deuda pública: Endeudamiento resultante de las operaciones de crédito público, que puede generarse por cualquiera de los mecanismos previstos en el artículo 81 de la Ley de Administración Financiera de la República y Presupuestos Públicos. Comprende tanto el endeudamiento público interno como externo del Gobierno de la República, así como la Administración Descentralizada y las empresas públicas.
+i) Deuda pública externa: Deberá entenderse como la deuda pública externa contraída en plazas financieras extranjeras y regidas por normativa internacional.
+j) Deuda pública interna: Deberá entenderse como la deuda pública interna contraída en plazas financieras nacionales y regidas por normativa interna.
+k) Deuda a corto plazo: Deuda que vence dentro del período presupuestario en el cual fue contratada.
+l) Deuda de mediano y largo plazo: Deuda cuyo vencimiento supera el ejercicio económico en el cual es contraída.
+m) Fecha valor: Fecha a partir de la cual una operación es válida.
+n) Fecha pago o fecha de operación: fecha en la que el pago se hizo efectivo.
+o) Renegociación: Acuerdo entre deudor y acreedor o emisor y el inversionista a través del canje, sustitución, redención anticipada, la conversión o la consolidación mediante el cual se puede dar un mejoramiento en las condiciones financieras, se extinguen obligaciones o bien, se reestructura el plazo de vencimiento.
+p) Prestatario: La organización o entidad sobre la cual recae, según el acuerdo de préstamo o emisión de valores la responsabilidad de pagar el servicio de la deuda.
+q) Redención anticipada: Reembolso parcial o total por parte del prestatario tal vez con descuento de una obligación de deuda pendiente con anterioridad a la fecha de vencimiento.
+r) Reembolsos: Es la devolución o pago de principal de una deuda.
+s) Servicio de la deuda: Los pagos efectuados para satisfacer una obligación de deuda incluida la amortización de los intereses, las comisiones y los cargos por pagos atrasados. Para efectos del presente reglamento la amortización se encuentra incluida dentro del servicio de la deuda.
+t) Sustitución: Procedimiento por el cual se sustituye títulos de deuda interna o externa, por cambios en las condiciones financieras y modalidad del instrumento.
+u) Unidad Ejecutora: Órgano designado por las partes firmantes de un Contrato de Préstamo o Empréstito para llevar a cabo la ejecución de un proyecto y la administración de los recursos del financiamiento asignados al mismo.

@@ -1,0 +1,1 @@
+Artículo 18.—Derogaciones. Deróguese el Decreto Ejecutivo Nº 32000-H, publicado en el Diario Oficial La Gaceta Nº 159 del 16 agosto de 2004. Asimismo, se deroga toda norma de rango reglamentario e inferior que se le oponga al presente reglamento.

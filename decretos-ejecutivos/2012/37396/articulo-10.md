@@ -1,0 +1,1 @@
+Artículo 10.—Proceso de renegociación de la deuda externa. Corresponderá a la Dirección de Crédito Público realizar los actos preparatorios requeridos para dar inicio al proceso de renegociación, así como ser el contacto directo con las personas físicas o jurídicas contratadas para llevar a cabo el proceso de renegociación y proveer la información requerida para tal efecto.
