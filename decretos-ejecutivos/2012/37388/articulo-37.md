@@ -1,0 +1,1 @@
+Artículo 37.—De la función de asesoría. La asesoría consiste en proveer al Jerarca del LACOMET criterios, opiniones u observaciones que coadyuven a la toma de decisiones sobre asuntos financieros, operativos, informáticos o de estudios especiales puntuales, siempre dentro del ámbito de acción de la auditoría interna.

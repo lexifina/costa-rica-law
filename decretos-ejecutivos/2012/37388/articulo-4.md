@@ -1,0 +1,1 @@
+Artículo 4º—Visión, misión y políticas de la auditoría. La Auditoría Interna debe asegurarse de establecer la misión, visión, y las principales políticas que regirán el accionar de la auditoría interna, así como darles la debida difusión a nivel interno y externo del LACOMET.

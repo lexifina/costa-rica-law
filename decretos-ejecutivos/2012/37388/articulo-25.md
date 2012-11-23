@@ -1,0 +1,6 @@
+Artículo 25.—Sobre la confidencialidad de las Relaciones de Hechos. La información, documentación y otras evidencias de las investigaciones efectuadas por la auditoría interna, cuyos resultados puedan originar la apertura de un procedimiento administrativo, serán confidenciales durante la formulación del informe respectivo.
+Una vez notificado el informe correspondiente y hasta la resolución final del procedimiento administrativo, la información contenida en el expediente será calificada como información confidencial, excepto para las partes involucradas, las cuales tendrán libre acceso a todos los documentos y pruebas que se incluyan en el expediente administrativo, según lo que establece el artículo 6 de la LGCI y el artículo 8 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+Esta confidencialidad no se aplicará ante:
+a) Solicitud o requerimiento de la Contraloría General de la República en el ejercicio de su competencia fiscalizadora.
+b) Solicitud o requerimiento del Ministro cuando haya solicitud expresa de Autoridad Judicial competente.
+c) Solicitud o requerimiento de información de la Asamblea Legislativa en el ejercicio de las atribuciones, de conformidad con el artículo 121, inciso 23) de la Constitución Política.

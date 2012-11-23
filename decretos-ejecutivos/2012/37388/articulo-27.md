@@ -1,0 +1,1 @@
+Artículo 27.—Sobre la implementación de recomendaciones. El jerarca una vez aceptadas las recomendaciones de la auditoría interna, debe girar por escrito la orden para su implementación al responsable designado, con copia a la auditoría interna, disponiendo las fechas de inicio y de finalización probable de la misma.
