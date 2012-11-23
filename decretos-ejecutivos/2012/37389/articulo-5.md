@@ -1,0 +1,1 @@
+Artículo 5º—El cargo de Viceministro/a Administrativo/a remplazará el cargo de Oficial Mayor-Director Ejecutivo. Por ello, la implementación de este decreto no supondrá la creación de nuevas plazas ni duplicidad de funciones, pues se redistribuirá el recurso humano existente.
