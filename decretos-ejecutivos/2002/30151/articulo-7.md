@@ -1,6 +1,0 @@
-Artículo 7º—Para los efectos de las adquisiciones y la utilización de programas de cómputo de acuerdo con las disposiciones de este Decreto, el experto en informática de cada Ministerio del Gobierno Central deberá cumplir con las siguientes reglas:
-a. Establecer y mantener una política comprensiva de manejo de programas de cómputo y un sistema efectivo para garantizar la adquisición y uso adecuado de todos los programas de cómputo.
-b. Garantizar que el respectivo Ministerio cumpla con la protección del derecho de autor de los programas de cómputo.
-c. Establecer medidas para evaluar el cumplimiento en respectivo Ministerio de las disposiciones en materia de derecho de autor en lo concerniente a la adquisición de programas de cómputo, utilizados por el referido Ministerio de conformidad con las disposiciones de este decreto;
-d. Dirigir y ofrecer apoyo institucional al entrenamiento apropiado del personal de servicio público en materia de derecho de autor relacionado con los programas de cómputo y las políticas y procedimientos adoptados para cumplir con ellos.
-e. Exhortar a todos los contratistas y proveedores del Gobierno Central a cumplir con las normas sobre derecho de autor, a adquirir y utilizar programas de cómputo con sus respectivas licencias de uso.
