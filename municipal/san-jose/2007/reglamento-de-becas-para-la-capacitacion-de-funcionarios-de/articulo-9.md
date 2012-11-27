@@ -1,1 +1,0 @@
-Artículo 9º—Todo beneficio concedido a la luz de este reglamento, deberá formalizarse, mediante la suscripción de un contrato entre el funcionario y la Municipalidad. Este documento se adjuntará al presente reglamento como anexo, con el fin de que los solicitantes conozcan las generalidades del mismo.
