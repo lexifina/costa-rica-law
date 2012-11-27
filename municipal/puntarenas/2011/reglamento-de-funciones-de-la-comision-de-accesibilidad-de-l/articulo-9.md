@@ -1,0 +1,1 @@
+Artículo 9º—La COMAD despachará los asuntos a su cargo y rendirá el dictamen correspondiente al concejo municipal, en un plazo de un mes, a partir de la fecha fueron recibidos los asuntos trasladados. Si por la naturaleza del asunto se imposibilite rendir informe en tal plazo, la COMAD JUSTIFICARÁ ANTE LA PRESIDENCIA LOS MOTIVOS DEL ATRASO.

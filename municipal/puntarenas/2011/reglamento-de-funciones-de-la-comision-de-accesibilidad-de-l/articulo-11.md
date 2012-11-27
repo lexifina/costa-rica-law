@@ -1,0 +1,1 @@
+Artículo 11.—La COMAD podrá sesionar en la sala de sesiones del Concejo Municipal, y en otros espacios dispuestos para tal fin, en el horario y fechas que se dispongan en el seno de esta comisión . De igual manera podrán hacer uso de los equipos tecnológicos con que cuenta dicha instalación municipal.

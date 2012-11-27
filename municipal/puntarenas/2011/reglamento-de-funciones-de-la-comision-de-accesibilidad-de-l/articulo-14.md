@@ -1,0 +1,2 @@
+Artículo 14.—Las anteriores disposiciones reglamentarias rigen a partir de su publicación.
+En conocimiento de lo anterior y de conformidad al criterio emitido por la Asesora legal del Concejo Municipal Se Acuerda: Aprobar en todas sus partes el Reglamento de funciones de la Comisión de Accesibilidad de la Municipalidad de Puntarenas el cuál rige a partir de su publicación en el Diario Oficial La Gaceta. Votación al acuerdo tomado este es Aprobado unánime. Aplicado el artículo 45 del Código Municipal es definitivamente aprobado.
