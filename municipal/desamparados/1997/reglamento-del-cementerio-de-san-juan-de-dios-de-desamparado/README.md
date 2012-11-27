@@ -15,3 +15,4 @@ Reglamento del Cementerio de San Juan de Dios de Desamparados
 | --- | --- | --- |
 | 1 | 1998-07-03 | la propia norma |
 | 2 | 2012-01-07 | Reglamento municipal 10 (2012-01-07) |
+| 3 | 2012-11-27 | Reglamento municipal 70 (2012-11-27) |

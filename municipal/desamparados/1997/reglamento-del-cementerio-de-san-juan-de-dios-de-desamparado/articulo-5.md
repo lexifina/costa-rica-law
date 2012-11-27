@@ -1,3 +1,4 @@
 CAPITULO II
 De los lotes y sus nichos
-Artículo 5°-Del total de los lotes que conforman este cementerio, el 80% será para los habitantes del distrito de San Juan de Dios y el restante 20% se destinará a los vecinos de los distritos adyacentes. Las dimensiones de los lotes serán de acuerdo a los planos establecidos para este cementerio.
+Artículo 5°-Del total de los lotes en el Cementerio del distrito de San Juan de Dios al día 17 de julio del 2012, los cuales hay disponibles seiscientos veinte lotes que se distribuirán de la siguiente manera: cuatrocientos veinte quedarán a la disposición de los habitantes del distrito de San Juan de Dios, cien lotes para los habitantes del distrito de San Rafael Arriba y los cien lotes restantes al distrito de San Rafael Abajo. En caso de que alguno de los distritos adyacentes construya su propio cementerio, el distrito de San Juan de Dios podrá disponer de los derechos no utilizados hasta ese momento por tal distrito. Las dimensiones de los lotes serán de acuerdo a la normativa para este cementerio.
+(Así reformado en sesión N° 47 del 14 de agosto de 2012 y definitivamente aprobado en sesión N° 70 del 27 de noviembre de 2012)
