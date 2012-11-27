@@ -1,6 +1,6 @@
 CAPÍTULO III
 Conductas
-Artículo 4º—Los valores definidos en el artículo anterior se regirán y estarán apoyados por las siguientes conductas:
+Artículo 4º—Los valores definidos en el artículo anterior se regirán y estarán apoyados por lo siguiente: (Párrafo reformado en sesión de Junta Directiva Nacional 5021 del 27 de noviembre del 2012).
 I) Integridad:
 a) Actuar con rectitud y respeto ante nuestras y nuestros compañeros y clientes.
 b) Fomentar una comunicación formal, asertiva y sincera.
@@ -18,7 +18,7 @@ b) Brindar un trato cortés a nuestros compañeros y clientes.
 c) Aplicar la normativa vigente correspondiente.
 IV) Responsabilidad social:
 a) Promover el desarrollo a través de formas asociativas, en las que hay una primacía de las personas y la solidaridad por encima del capital.
-b) Promover proyectos generadores de trabajo y que sean ambientalmente sostenibles
+b) Promover proyectos generadores de trabajo y que sean ambientalmente sostenibles.
 c) Promover la participación en proyectos de interés social.
 V) Liderazgo:
 a) Comunicación efectiva de las metas del equipo.
@@ -42,9 +42,4 @@ IX) Prudencia:
 a) Usar la información adecuada, analizando las circunstancias y tomando las decisiones necesarias en beneficio del Conglomerado y sus clientes.
 b) Moderación y sensatez, para obrar ponderando las acciones que se realizan.
 c) Inteligencia para discernir y elegir los medios para el logro del fin.
-X) Cumplimiento de la ley 8204.
-a) Todos los funcionarios deberán relacionarse con los clientes dentro de un ámbito de buena fe comercial y sigilo.
-b) Tener conocimiento de la identidad del cliente, su actividad comercial y origen de sus fondos.
-c) Mantener actualizado y documentada la información del cliente y cumplir con la normativa vigente de la Política Conozca a su Cliente.
-d) Reportar las transacciones inusuales o atípicas al Oficial de Cumplimiento del Conglomerado.
-e) Prestar especial atención a las operaciones realizadas por clientes y que representan un mayor riesgo en materia de legitimación de activos, cumplir con la debida diligencia y proceder a la verificación de aquella información que sea requerida, dándole especial seguimiento a la evolución de las transacciones realizadas por esta clase de clientes.
+X) (Apartado derogado en sesión de Junta Directiva Nacional 5021 del 27 de noviembre del 2012).

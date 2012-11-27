@@ -14,3 +14,4 @@ Código de Ética del Conglomerado Financiero Banco Popular y de Desarrollo Comu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-24 | la propia norma |
+| 2 | 2012-11-27 | Reglamento 5021 (2012-11-27) |

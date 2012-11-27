@@ -1,6 +1,14 @@
 CAPÍTULO IX
-Disposiciones Finales
-Artículo 16.—Se derogan los Códigos de Ética del Banco Popular y de Desarrollo Comunal, aprobados por la Junta Directiva Nacional en las sesiones extraordinaria N° 3509 y ordinaria N° 4252 celebradas los días 28 de julio de 1998 y 19 de octubre del 2004, publicados en el Diario Oficial Gaceta N° 144 y 219 de los días 27 de julio del 2001 y 9 de noviembre del 2004 respectivamente; el Código de Ética de la Operadora de Planes de Pensiones Complementarios del Banco Popular y de Desarrollo Comunal S. A., aprobado por la Junta Directiva de dicha sociedad en sesión 216 del 15 de marzo del 2006 publicado en La Gaceta Nº 100 del 25 de mayo del 2006, el Código de Ética de Popular Valores Puesto de Bolsa S. A. aprobado por la Junta Directiva de dicha Sociedad en sesión 145 celebrada el día 24 de febrero del 2005,el Código de Ética de Popular Sociedad de Fondos de Inversión S. A., aprobado en sesión de Junta Directiva de dicha sociedad en sesión 148 del 24 de agosto del 2005, así como cualquier otro Código de Ética que estuviere vigente en el Banco o en cualquiera de dichas sociedades anónimas.
-Este Reglamento deroga al aprobado por la Junta Directiva Nacional, actuando como tal y en el ejercicio de las funciones propias de Asamblea de Accionistas de Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., Popular Valores Puesto de Bolsa S. A. y Popular Fondos de Inversión S. A., en sesión Nº 4626 del 20 de noviembre del 2008, y publicado en el Diario Oficial La Gaceta Nº 242 del 15-12-2008”.
-Rige a partir de su publicación en el Diario Oficial.
-6 de setiembre del 2010.
+Del cumplimiento de la Ley N ° 8204 (Así modificado
+en sesión de Junta Directiva Nacional 5021
+del 27 de noviembre del 2012)
+Artículo 16.—Deberes de los destinatarios. Serán deberes de las personas indicadas en el artículo primero de este Código, en cumplimiento de la Ley N ° 8204 y su normativa conexa, la implementación de las siguientes conductas:
+a) Mantener una actitud de colaboración en todas aquellas acciones derivadas de las obligaciones del Conglomerado que se desprenden de la Ley N ° 8204 y su normativa conexa.
+b) Tener una actitud de interés por su propia capacitación en materia de la Ley N ° 8204 y su normativa conexa, de acuerdo con sus obligaciones o su cargo.
+c) Anteponer la observancia de los principios éticos al logro de sus metas comerciales y personales.
+d) Prestar atención a sus actos de manera tal que no comprometa a las entidades del Conglomerado por omisiones o actuaciones descuidadas.
+e) Contribuir con el fortalecimiento de los controles internos relacionados con el cumplimiento de la ley 8204 y su normativa conexa.
+f) No recibir regalos o dádivas de los clientes, proveedores o terceros relacionados con actividades propias de las entidades del Conglomerado.
+g) Denunciar ante las instancias que correspondan, según los procedimientos establecidos, cualquier actuación o intento, interno o externo, que conlleve el incumplimiento de las disposiciones legales y reglamentarias de la Ley N ° 8204 y su normativa conexa.
+h) Impedir que el Conglomerado sea utilizado como herramienta para ocultar, invertir, asegurar o atesorar recursos provenientes de actividades ilícitas.
+No celebrar ningún tipo de contrato o convenio, de cualquier naturaleza, en que medien actos que impliquen delito o sean deshonestos, o actos que menoscaben o lesionen la imagen, honestidad, confianza y competencia profesional del Conglomerado. (Así modificado en sesión de Junta Directiva Nacional 5021 del 27 de noviembre del 2012).

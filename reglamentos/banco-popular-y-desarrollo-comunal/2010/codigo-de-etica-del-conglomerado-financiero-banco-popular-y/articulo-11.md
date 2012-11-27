@@ -1,5 +1,6 @@
 SECCIÓN II
-Deberes del conglomerado con sus trabajadoras y trabajadores
+Deberes del conglomerado con sus trabajadoras
+y trabajadores
 Artículo 11.—El Conglomerado tendrá los siguientes deberes con sus trabajadoras y trabajadores:
 a) Respetar de manera absoluta la legislación laboral vigente y procurará siempre las mejores condiciones laborales.
 b) Procurar en aras de la excelencia de servicio al cliente, que posean la suficiente competencia técnica para desarrollar su trabajo eficientemente, mediante programas de formación continua.
