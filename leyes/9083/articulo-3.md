@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Procederá de pleno derecho la inmediata reversión de la propiedad del bien inmueble donado a favor del Estado en caso de disolución de la organización donataria, o en caso de que el bien inmueble donado se destine a otra finalidad o uso no autorizado por la presente ley.
