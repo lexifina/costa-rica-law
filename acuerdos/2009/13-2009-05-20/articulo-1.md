@@ -457,6 +457,11 @@ Realizar reparaciones de muebles, estanterías, armarios, etc.; dar mantenimient
 Remodelar oficinas e interpretar planos, bocetos, croquis o diagramas.
 Elaborar reportes sobre los desperfectos del equipo y la maquinaria.
 Realizar otras funciones relacionadas con el cargo.
+(*) LAVADO DE VEHÍCULOS: Lavado y encerado de los vehículos institucionales cuando se requiera durante la semana y después de las giras que realicen los señores diputados o cuando por una necesidad institucional se vea alterado las condiciones normales de limpieza del vehículo.
+Hacer el uso apropiado del equipo necesario para llevar a cabo el cumplimiento de esta actividad. Utilizar los insumos adecuados para mantener en perfecto estado la carrocería, tapicería y otros accesorios del vehículo.
+Reportar al jefe de la Unidad de Transportes mediante documento idóneo el lavado por cada unidad vehicular.
+Realizar otras funciones relacionadas con el cargo
+(*)(Así adicionado el punto anterior mediante acuerdo N° 46-12-13 aprobado en sesión ordinaria N° 149 del 27 de noviembre del 2012)
 OPERADOR DE EQUIPO DE IMPRESIÓN: Operar equipo de reproducción: fotocopiadora, máquinas matrizadoras; preparar el equipo con papel o tóner, tinta y matrices; mantener en orden el material por utilizar; realizar corte de guillotina y encuadernación sencilla.
 Llevar controles sobre el material fotocopiado y reproducido; elaborar informes mensuales.
 Realizar otras funciones relacionadas con el cargo.

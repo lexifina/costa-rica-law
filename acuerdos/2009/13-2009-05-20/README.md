@@ -18,3 +18,4 @@ Manual descriptivo de clases de puestos de la Asamblea Legislativa
 | 3 | 2011-10-13 | Acuerdo 32 (2011-10-13) |
 | 4 | 2012-05-15 | Acuerdo 5 (2012-05-15) |
 | 5 | 2012-10-30 | Acuerdo 38 (2012-10-30) |
+| 6 | 2012-11-27 | Acuerdo 46 (2012-11-27) |
