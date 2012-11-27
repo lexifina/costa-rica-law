@@ -19,3 +19,5 @@ Extender el "Permiso para conducir vehículos oficiales", a los conductores y fu
 Investigar todo accidente de tránsito, percance, robo, hurto o malversación en que se involucre un vehículo de la Institución y rendir un informe con recomendaciones a sus superiores.
 Velar por el cumplimiento de las disposiciones del presente Reglamento y reportar al superior inmediato cualquier violación que se determine, con la recomendación pertinente, especificando el recorrido, objeto del servicio, numero de solicitud, fecha, nombre del diputado o departamento que solicita el servicio, nombre de los usuarios, nombre del conductor y vehículo asignado, hora de salida y regreso, kilómetros recorridos.
 Verificar que toda solicitud de transpone tenga la autorización expresa del miembro del Directorio a quien se delegue tal potestad o del Director Ejecutivo.
+ñ) Coordinar con la Unidad de Mantenimiento la asignación del funcionario responsable de lavar y encerar los vehículos institucionales. Asimismo, deberá elaborar un cronograma de trabajo semanal.
+(Así adicionado el inciso anterior mediante acuerdo N° 46-12-13 aprobado en sesión ordinaria N°149 del 27 de noviembre del 2012)
