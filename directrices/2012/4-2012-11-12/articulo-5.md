@@ -1,0 +1,3 @@
+5. Del sistema de evaluación establecido para los postulantes
+Aprobación. La aprobación del examen deberá ser con una nota igual o superior a un setenta por ciento (70%), dentro de una escala de uno a cien por ciento.
+Reprobados. El postulante que de conformidad con el artículo anterior, no apruebe el examen, quedará reprobado, tendrá derecho a aplicar nuevamente la prueba en una próxima convocatoria, siempre y cuando la empresa lo incluya en la lista de postulantes y cuando cumpla con los requisitos establecidos. La empresa de seguridad privada en la modalidad de adiestramiento acreditará al estudiante.
