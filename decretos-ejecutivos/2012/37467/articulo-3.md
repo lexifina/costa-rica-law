@@ -1,0 +1,10 @@
+Artículo 3º—Requisitos y procedimiento: El interesado deberá llenar y firmar el formulario de solicitud de condonación, en cualquiera de las oficinas subregionales o en el área de Crédito Rural del IDA y cumplir con los siguientes requisitos:
+a. Presentar comprobante del depósito o pagar en efectivo, el veinticinco por ciento (25%) del saldo del principal restante.
+b. Presentar fotocopia de la cédula de identidad vigente.
+Si el pago es en efectivo, se emitirá el comprobante de ingreso (a nivel regional se confeccionará el recibo provisional de dinero y a nivel central el recibo de dinero definitivo) y luego se procederá a hacer el respectivo depósito bancario.
+Si el trámite se realiza a nivel subregional, la oficina enviará al área de Crédito Rural del IDA, los documentos requeridos, para su aplicación y registro.
+Para hacer efectiva la condonación, se procederá de las siguientes dos maneras:
+a. Para las operaciones constituidas antes del 31 de diciembre del 2005, se calculará el monto total adeudado (principal, intereses, honorarios y póliza) a la fecha en que se ejecute la condonación y se aplicará un registro en el sistema, por el monto calculado a la fecha indicada, el cual dará por cancelada la operación.
+b. Para las operaciones formalizadas entre el 1 de enero del 2006 y el 31 de diciembre del 2009, se calculará el monto de intereses, honorarios y póliza, a la fecha del pago total del veinticinco por ciento (25%) del principal restante y se aplicará un registro por ese monto y a esa fecha, el cual daría por condonados todos los montos por esos conceptos.
+Luego se aplicará otro registro, por el setenta y cinco por ciento (75%) del principal, el cual dará por condonado ese porcentaje por ese concepto; seguidamente se emitirá el recibo, por el monto correspondiente al total del veinticinco por ciento (25%) del principal restante, dando con esto por cancelada la operación.
+Una vez aplicada la condonación, por cualquiera de las dos modalidades descritas, el área de Crédito Rural del IDA, emitirá un comprobante, en donde se indicará los montos y los conceptos condonados.
