@@ -1,0 +1,2 @@
+Artículo 4º—Propiedad de los residuos. Los residuos sólidos ordinarios generados serán propiedad y responsabilidad de la Municipalidad en el momento de que los usuarios del servicio público sitúan o entregan los residuos para su recolección, de conformidad con lo que establece este reglamento.
+Sin embargo, la Municipalidad puede otorgar el derecho de la recolección y la valorización a terceros calificados previamente.
