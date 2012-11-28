@@ -1,0 +1,1 @@
+Artículo 5.-En todo caso y para maximizar recursos, la Administración procurará en tanto sea posible, aprobar el uso de la modalidad del servicio de transporte de autobús, siendo que por caso de excepción se aprobará bajo criterio de razonabilidad el uso de la modalidad de taxi.

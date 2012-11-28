@@ -1,0 +1,1 @@
+Artículo 6.- En todo lo demás los formatos y parámetros para el pago y cancelación, se hará conforme a los principios definidos por la Contraloría General de la República, en el Reglamento de Gastos de Viajes y de Transportes para Funcionarios Públicos, en el entendido de que la liquidación presentada tendrá para todos sus efectos carácter de declaración jurada.
