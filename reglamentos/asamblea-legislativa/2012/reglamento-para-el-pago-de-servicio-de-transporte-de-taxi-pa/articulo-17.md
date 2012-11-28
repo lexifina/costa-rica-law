@@ -1,0 +1,1 @@
+Artículo 17: Los directores y jefes de los departamentos y demás oficinas de la Asamblea Legislativa velarán por el cumplimiento del presente reglamento. Cuando se compruebe negligencia o abuso de su parte, serán responsables conjuntamente con el usuario del servicio.

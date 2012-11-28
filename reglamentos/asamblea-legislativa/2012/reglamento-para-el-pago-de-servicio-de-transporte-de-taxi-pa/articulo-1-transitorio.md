@@ -1,0 +1,1 @@
+Transitorio I- El Departamento de Relaciones Públicas, Prensa y Protocolo, tendrá un término de hasta 15 días naturales, contados a partir de la entrada en vigencia de este reglamento, para que lo divulgue por medio del boletín digital institucional.

@@ -1,0 +1,1 @@
+Artículo 13: Los datos consignados en el formulario tendrán el carácter de declaración jurada, por lo cual en caso de falsedad, se aplicará la normativa penal e interna institucional atinente al tema.

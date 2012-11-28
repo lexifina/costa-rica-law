@@ -1,0 +1,1 @@
+Transitorio II: El Director del Departamento Financiero tendrá un término perentorio de 15 días naturales, contados a partir de la entrada en vigencia de este reglamento, para gestionar la confección y puesta en práctica del formulario contenido en el artículo 11. Mientras este nuevo instrumento no esté disponible, se utilizarán las boletas actuales.

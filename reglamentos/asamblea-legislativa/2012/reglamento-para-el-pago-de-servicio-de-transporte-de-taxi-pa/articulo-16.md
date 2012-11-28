@@ -1,0 +1,1 @@
+Artículo 16: El funcionario deberá reportar al agente de seguridad su nombre, hora de salida y número de placa del taxi, cuando corresponda, a fin de que este lo anote en su bitácora, para que el jefe que así lo requiera pueda efectuar un control cruzado.

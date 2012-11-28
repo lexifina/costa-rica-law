@@ -1,0 +1,1 @@
+Artículo 15: Para seguridad de los funcionarios o funcionarias, el servicio de taxi podrá ser abordado en los puestos de seguridad que sean designados para tal efecto, función que le corresponderá al Director del Departamento de Servicios Generales.

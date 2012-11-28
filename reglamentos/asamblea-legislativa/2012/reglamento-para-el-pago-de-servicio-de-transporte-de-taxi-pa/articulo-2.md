@@ -1,0 +1,1 @@
+Artículo 2: Este Reglamento será de acatamiento obligatorio para todos los funcionarios y las funcionarias legislativas, y la Asamblea Legislativa se reserva el derecho de adicionarlo o modificarlo, con sujeción, en cada caso, a las disposiciones legales aplicables a la materia.

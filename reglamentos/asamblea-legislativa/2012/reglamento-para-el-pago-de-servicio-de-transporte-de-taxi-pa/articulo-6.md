@@ -1,0 +1,1 @@
+Artículo 6: En el caso de los agentes de seguridad y vigilancia, este beneficio se les aplicará única y exclusivamente los días Jueves y Viernes Santos, o como consecuencia de un imprevisto o emergencia, previa valoración y autorización por parte del Director del Departamento de Servicios Generales y en el entendido de que se demuestre que no hay servicio de autobús.

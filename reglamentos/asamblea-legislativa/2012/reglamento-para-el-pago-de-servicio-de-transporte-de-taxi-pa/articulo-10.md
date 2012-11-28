@@ -1,0 +1,1 @@
+Artículo 10: En caso de que se requiera autorizar a varios funcionarios y funcionarias para que laboren después de las veintiún horas, se tratará de que su parada de autobús o residencia coincida con un destino similar, con el fin de que puedan abordar un mismo taxi.
