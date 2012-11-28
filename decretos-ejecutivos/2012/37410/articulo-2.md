@@ -1,0 +1,2 @@
+Artículo 2: Los inmuebles antes descritos se transfieren gratuitamente al Instituto de Desarrollo Rural(*), institución que queda autorizada para llevar a cabo todos los trámites legales y administrativos correspondientes para lograr la inscripción registral de los inmuebles a su nombre.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
