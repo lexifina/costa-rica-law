@@ -1,0 +1,2 @@
+Artículo 13.—Confidencialidad de la información:
+Es propiedad del IMAS y de carácter estrictamente confidencial, toda la información de índole laboral institucional, contenida en cualquier computador o servidor y sus dispositivos de almacenamiento y respaldo. Su acceso, modificación, así como su distribución está regulado y autorizado según lo especifiquen las normativas o políticas de TI y del IMAS.

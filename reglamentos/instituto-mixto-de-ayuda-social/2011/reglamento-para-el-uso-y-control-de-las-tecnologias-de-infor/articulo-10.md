@@ -1,0 +1,4 @@
+Artículo 10.—Responsabilidades de los usuarios sobre la normativa:
+Este Reglamento así como la normativa relacionada con el área de TI es de acatamiento obligatorio para todos los funcionarios del IMAS, por lo cual:
+a. Conocer y cumplir con la normativa brindada por el área de TI y autorizada por la Dirección Superior, es responsabilidad, sin excepción, de todos los funcionarios del IMAS, cualquiera que sea su estatus (en propiedad o interinos, personal contratado o por convenios). La misma incluye: reglamentos, políticas y procedimientos, directrices en general.
+b. Colocar la normativa disponible y al alcance para su acceso, lectura y conocimiento por parte de los usuarios, personal por contrato o convenios, es una función de coordinación de área de Desarrollo Humano, el área de TI y los titulares subordinados.

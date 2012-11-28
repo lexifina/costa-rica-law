@@ -1,0 +1,29 @@
+Artículo 2º—Definiciones y términos: Para los efectos de esta normativa, se define en orden alfabético los significados de los términos que se entenderán en el Reglamento por:
+Antivirus: programa (software) cuya función es estar instalado en las computadoras para protegerlas y limpiarlas de los virus informáticos que ataquen al sistema.
+Contraseña (Clave o Password): Junto con la identidad del usuario, permite tener acceso a los diferentes servicios informáticos; es la parte secreta o privada que cada dueño de la identidad del usuario debe conocer exclusivamente. Puede conformarse mediante el empleo de combinaciones de letras mayúsculas, minúsculas y números.- También se le llama “palabra de paso” o “clave”.- (password).-
+Cuartos de comunicación: son áreas pequeñas de acceso limitado donde se encuentran los equipos de telecomunicación.
+Dirección Superior: Consejo Directivo, Presidencia Ejecutiva, Gerencial General y Sub Gerencias.
+Dispositivos de almacenamiento: Dispositivos que permiten almacenar de forma permanente o temporal, información, datos o archivos para su procesamiento, traslado o resguardo. Algunos ejemplos son:
+- CD: disco compacto.
+- Disco duro o disco fijo.
+- DVD: disco versátil digital o disco de video digital.
+- Llave: llave USB o llave maya.
+Hardware: Se refiere al equipo electrónico o tecnológico: son los circuitos electrónicos y componentes que pueden verse y son tangibles tanto a nivel del computador como en cuartos de telecomunicaciones o similares, tales como computadoras, teclados, impresoras, enrutadores (routers), switches, entre otros.
+Componentes internos del computador: se entiende por componentes internos, dispositivos tales como.- tarjetas de red, tarjetas de fax, unidad central de proceso (C.P.U.), tarjeta madre, tarjetas de memoria, discos duro o fijos, fuente de poder, unidad de disco compacto o disco de video (CD o DVD).
+Componentes externos del computador: se entiende por componentes externos: monitor, teclado, mouse, impresora, dispositivo de almacenamiento USB (llave maya, disco duro externo) u otros de similar naturaleza.
+Identidad del Usuario o Login: es el nombre con el que el sistema identifica a una persona, mediante el cual se perfilan los derechos del usuario dentro de la red de servicios, ya sea por un acceso a un equipo o sistema de información.
+IMAS: Instituto Mixto de Ayuda Social.
+Institución o Instituto: se hará referencia a estos términos para referirse al Instituto Mixto de Ayuda Social.
+Perfil de Usuario: Son las características personales de un usuario, incluyendo los derechos y permisos atribuidos a él; a través del perfil del usuario se indica al sistema los permisos para acceder, ejecutar, modificar, ver, imprimir, borrar, copiar y cualquier otra función respecto a los sistemas de información, datos o archivos y directorios a los que tenga acceso en un ambiente computacional.
+Programas (software). Son las instrucciones que hacen que el computador sea útil para el usuario. Es el componente intangible, pero necesario para que todo el equipo funcione, abarca desde la base de trabajo que es el sistema operativo, pasando por las aplicaciones de escritorio y oficina, hasta complejos sistemas de información.
+Red Internet: Red global digital. También se le llama “ciberespacio”. Es la red de comunicación mediante redes a nivel mundial. Conjunto de servidores interconectados electrónicamente, distribuidos en todo el mundo de manera que permiten compartir información y recursos desde diferentes puntos de conexión o acceso de los usuarios de la red. También se refiere a ella como la Gran Red Mundial (World Wide Web www): Es el área de Internet a la que se puede acceder mediante un navegador web.
+Red Intranet: Red privada o interna de la institución, se basa en las mismas tecnologías que Internet, pero con acceso restringido para el uso exclusivo de un grupo de usuarios específicos pertenecientes a una misma organización. Esta red permite el acceso a servicios de tecnologías de información institucionales manteniendo los niveles y compromisos de seguridad digital dispuestos para cada servicio.
+Recurso informático: Abarca desde equipo (hardware), programas (software), redes y servicios, el presupuesto para desarrollo tecnológico y el recurso humano disponible.
+Reglamento: Para el caso de esta normativa, se entenderá como Reglamento el presente “Reglamento para el Uso y Control de las Tecnologías de Información” del IMAS.
+Sala de Servidores: se refiere al área donde se encuentran los servidores, donde se localiza información y demás servicios tecnológicos que están a disposición de los usuarios internos y externos, es un área de acceso restringido.
+SPAM: se refiere a mensajes de correo electrónico no deseados por el usuario y que son enviados deliberadamente por emisores externos al buzón del usuario sin que este los solicite o desee.
+TI: Área de Tecnologías de Información o también para referirse a las tecnologías de información como tal.
+Titular Subordinado: se refiere al funcionario de la administración activa responsable de un proceso, área, unidad, departamento o sección, con autoridad para ordenar y tomar decisiones.
+Usuario: se define como una persona autorizada para utilizar o acceder a los equipos o servicios de tecnología de información brindados en el Instituto.
+Unidades: se refiere a las áreas, departamentos, direcciones o centros de trabajo a cargo de un profesional responsable.
+Virus: Secuencia de código que se inserta en un archivo, sin consentimiento del dueño de la computadora, denominado “huésped”, de forma que cuando el archivo se ejecuta, el “virus” también lo hace y se duplica a sí mismo en otros programas.- Los “virus” informáticos generalmente tienen como objetivo afectar el correcto funcionamiento de los recursos computacionales.

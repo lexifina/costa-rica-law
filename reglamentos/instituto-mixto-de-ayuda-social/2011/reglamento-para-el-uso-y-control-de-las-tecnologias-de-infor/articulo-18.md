@@ -1,0 +1,2 @@
+Artículo 18.—De la cobertura y aplicación:
+El presente reglamento es de aplicación obligatoria para todos los funcionarios del Instituto Mixto de Ayuda Social, no discriminando su estatus, sea como personal de planta, contratado o por convenio y será responsabilidad del encargado de cada unidad velar por el cumplimiento de las disposiciones del presente reglamento, así como de las normativas o políticas que de esta área se generen para el conocimiento y acatamiento.
