@@ -1,1 +1,0 @@
-ARTICULO 13. Anualmente se hará una liquidación de ingresos y gastos para obtener un balance de situación y los informes complementarios que la Junta Administrativa crea oportuno. Los respectivos estados serán presentados a la consideración de la Junta Administrativa y de la Junta Directiva del Banco.

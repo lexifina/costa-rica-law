@@ -1,1 +1,0 @@
-ARTICULO 15. Los miembros que dejaren el servicio del Banco antes de haber adquirido el derecho a una pensión del Fondo podrán retirar la totalidad de los haberes netos a su favor. Para los que se retiren después de haber adquirido ese derecho la pensión será obligatoria.

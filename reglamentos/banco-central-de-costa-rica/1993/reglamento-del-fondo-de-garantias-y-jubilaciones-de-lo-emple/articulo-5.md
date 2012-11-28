@@ -1,2 +1,0 @@
-ARTICULO 5. Los delegados de la Junta Directiva del Banco serán designados por ella preferiblemente en el mes de diciembre del año respectivo.
-Los delegados de los Miembros serán elegidos por mayoría de votos a más tardar en el mes de diciembre del año que corresponda. En caso de que la persona elegida no acepte el cargo, se escogerá a la que haya obtenido el siguiente lugar en la votación y así sucesivamente. Igual procedimiento se aplicará en caso de renuncia de un delegado de los empleados o de la aplicación del Artículo 6.

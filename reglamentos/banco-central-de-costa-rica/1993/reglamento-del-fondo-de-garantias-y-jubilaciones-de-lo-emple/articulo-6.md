@@ -1,1 +1,0 @@
-ARTICULO 6. Si un delegado dejare de asistir injustificadamente a cuatro sesiones de la Junta en un periodo de seis meses, automáticamente perderá tal condición y deberá ser sustituido conforme al procedimiento establecido en los Artículos 4 y 5 de este Reglamento.

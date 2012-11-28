@@ -1,4 +1,0 @@
-ADMINISTRACIÓN DEL FONDO
-ARTICULO 4. La Administración del Fondo está a cargo de una Junta Administrativa compuesta por el Gerente o el Subgerente del Banco, o por el funcionario en quien él delegue, por dos delegados de la Junta Directiva designados por ésta y por tres delegados de los Miembros. Su nombramiento será por periodos de dos años, los cuales van desde el 1° de enero de uno al 31 de diciembre del siguiente. En casos de vacancia se nombrará reemplazante, por quien corresponda, únicamente por el tiempo que falte para terminar el periodo correspondiente.
-La representación legal, judicial y extrajudicial la tendrá el Gerente o en su defecto el Subgerente del Banco, considerándose para ese efecto el Fondo como una dependencia del mismo Banco.
-Modificado en Sesión Nº 4981, Artículo 4, Numeral 1, celebrada el 16 de diciembre de 1998.

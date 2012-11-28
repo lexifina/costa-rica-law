@@ -1,2 +1,0 @@
-MIEMBROS DEL FONDO
-ARTICULO 2. El Fondo de Garantías y Jubilaciones de los Empleados del Banco Central de Costa Rica se denominará en adelante con el nombre de "Fondo" y los empleados que forman parte de él con el de "Miembros". Son "Miembros" del Fondo los empleados contratados a plazo indefinido, los de elección de la Junta Directiva del Banco Central de Costa Rica y aquellos de nombramiento a tiempo determinado que adquieran esa condición por disposición legal.
