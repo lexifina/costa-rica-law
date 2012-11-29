@@ -1,0 +1,1 @@
+2. Mantener bajo el carácter de pública, la información suministrada por los operadores y proveedores de servicios de telecomunicaciones, atinente a los demás indicadores de calidad establecidos en el Reglamento de Prestación y Calidad de los Servicios y que no fueron indicados en la tabla resumen establecida en la anterior disposición.

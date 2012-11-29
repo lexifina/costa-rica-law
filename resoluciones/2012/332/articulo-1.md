@@ -1,0 +1,232 @@
+El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, ley 6227, y el inciso 10) del artículo 22 del Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, me permito comunicarle (s) que en Sesión Ordinaria No. 070-2012 del Consejo de la Superintendencia de Telecomunicaciones, celebrada el día 07 de noviembre del 2012, mediante acuerdo 021-070-2012, se ha aprobado la siguiente resolución:
+RCS-332-2012
+RESOLUCIÓN DEL CONSEJO DE LA
+SUPERINTENDENCIA DE TELECOMUNICACIONES
+SAN JOSÉ, A LAS 11:00 HORAS DEL 07DE NOVIEMBRE DEL 2012
+“DECLARATORIA DE CONFIDENCIALIDAD DE INDICADORES DE CALIDAD
+DEL REGLAMENTO DE PRESTACION Y CALIDAD DE LOS SERVICIOS”
+En relación con la declaratoria de confidencialidad de los indicadores de calidad del Reglamento de Prestación y Calidad de los Servicios (en adelante RPCS), solicitados por la Dirección General de Calidad de la SUTEL en el cumplimiento de las funciones definidas en los artículos 28 y 29 del Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados (RIOF); el Consejo de la Superintendencia de Telecomunicaciones ha adoptado, en el artículo 3, acuerdo 021-070-2012 celebrada el 07 de noviembre del 2012, la siguiente resolución:
+RESULTANDO
+1. Que el artículo 3 inciso c) de la Ley General de Telecomunicaciones, Ley No. 8642, establece dentro de sus principios rectores el Beneficio del usuario, mismo que establece las “garantías y derechos a favor de los usuarios finales de los servicios de telecomunicaciones, de manera que puedan acceder y disfrutar, oportunamente, de servicios de calidad, a un precio asequible, recibir información detallada y veraz, ejercer su derecho a la libertad de elección y a un trato equitativo y no discriminatorio.”
+2. Que este mismo cuerpo legal (Ley No. 8642), en su artículo 45 inciso 14 determina dentro de los derechos de los usuarios finales de los servicios de telecomunicaciones “conocer los indicadores de calidad y rendimiento de los proveedores de servicios de telecomunicaciones disponibles al público.”
+3. Que el artículo 17 y 137 del RPCS dispone la obligación de los operadores y proveedores de los servicios de telecomunicaciones remitir de forma periódica los resultados de las mediciones atinente a los parámetros de calidad de los servicios establecidos en el citado Reglamento.
+4. Que el artículos 29 inciso 1 sub inciso i) del Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus Órganos Desconcentrados (RIOF) establece que es función de la Dirección General de Calidad, efectuar cualquier acción directa de supervisión, verificación, inspección o vigilancia respecto de los operadores y proveedores, de conformidad con lo señalado en el artículo 76 de la Ley Nº 7593.
+5. Que desde el segundo semestre del año 2011, la Dirección General de Calidad emitió un recordatorio a todos los operadores y proveedores de servicios de telecomunicaciones para la remisión de los indicadores de calidad del RPCS, siendo que los datos solicitados se deben presentar de manera trimestral.
+6. Que en las remisiones de información hechas por los distintos operadores y proveedores de los servicios de telecomunicaciones, se adjuntan las solicitudes para el resguardo de los datos presentados como información confidencial.
+7. Que en virtud de lo anterior la Comisión de Confidencialidad, constituida por el Consejo de la SUTEL, en fecha 19 de marzo de 2012 procedió a emitir un informe con el criterio respecto a la declaratoria de confidencialidad de los datos aportados por los operadores y proveedores de los servicios de telecomunicaciones vinculados con los indicadores de calidad definidos en el RPCS, información requerida y procesada por la Dirección General de Calidad.
+8. Que el Consejo de la Superintendencia de Telecomunicaciones dio por recibido y aprobado mediante acuerdo 007-020-2012, de la sesión ordinaria N° 020-2012, celebrada el día 28 de marzo de 2012, el informe técnico-jurídico denominado “Confidencialidad Indicadores de Calidad del Reglamento de Prestación y Calidad de los Servicios“, el cual fue rendido mediante oficio número 1028-SUTEL-2012.
+9. Que se han realizado las diligencias necesarias para el dictado de la presente resolución.
+CONSIDERANDO
+I. Que de conformidad con el artículo 30 de la Constitución Política, toda persona tiene el derecho fundamental de acudir a la Administración Pública para obtener información sobre asuntos de valor de interés público (derecho de acceso a la información administrativa).
+II. Que la Ley No. 6227, Ley General de Administración Pública, en su artículo 273 inciso 1) determina que “[n]o habrá acceso a las piezas del expediente cuyo conocimiento pueda comprometer secretos de Estado o información confidencial de la contraparte o, en general, cuando el examen de dichas piezas confiera a la parte un privilegió indebido o una oportunidad para dañar ilegítimamente a la Administración, a la contraparte o a terceros, dentro o fuera del expediente”; lo anterior con el fin de determinar si estas se encuentran protegidas por el principio de confidencialidad y por lo tanto su acceso debe ser restringidos al público.
+III. Que la Ley N° 7975, Ley de Información No Divulgada, en su numeral 2 dispone los requerimientos que se deben valorar para determinar la confidencialidad de información referida a secretos comerciales e industriales, en este sentido determina dicho artículo que:
+“Protégese la información no divulgada referente a los secretos comerciales e industriales que guarde, con carácter confidencial, una persona física o jurídica para impedir que información legítimamente bajo su control sea divulgada a terceros, adquirida o utilizada sin su consentimiento por terceros, de manera contraria a los usos comerciales honestos, siempre y cuando dicha información se ajuste a lo siguiente:
+a) Sea secreta, en el sentido de que no sea, como cuerpo ni en la configuración y reunión precisas de sus componentes, generalmente conocida ni fácilmente accesible para las personas introducidas en los círculos donde normalmente se utiliza este tipo de información.
+b) Esté legalmente bajo el control de una persona que haya adoptado medidas razonables y proporcionales para mantenerla secreta.
+c) Tenga un valor comercial por su carácter de secreta.
+La información no divulgada se refiere, en especial, a la naturaleza, las características o finalidades de los productos y los métodos o procesos de producción.
+Para los efectos del primer párrafo del presente artículo, se definirán como formas contrarias a los usos comerciales honestos, entre otras, las prácticas de incumplimiento de contratos, el abuso de confianza, la instigación a la infracción y la adquisición de información no divulgada por terceros que hayan sabido que la adquisición implicaba tales prácticas o que, por negligencia grave, no lo hayan sabido.
+La información que se considere como no divulgada deberá constar en documentos, medios electrónicos o magnéticos, discos ópticos, microfilmes, películas u otros elementos similares.”
+IV. Que en este sentido, la Procuraduría General de la República en el dictamen C-344-2001 del 12 de diciembre del 2001, ha reconocido que podría considerarse como confidencial “la información que sólo es útil para la empresa y respecto de la cual ésta tiene un derecho a que no se divulgue, como las copias de las declaraciones tributarias, cartas, correspondencia, certificaciones personales, libros contables, los informes relativos a los estados financieros, balance de situación, los relativos a estrategias de mercado, las políticas comerciales de la empresa, los métodos de producción, etc.”
+V. Que de conformidad con el artículo 80 inciso h) de la Ley No. 7593, Ley de la Autoridad Reguladora de los Servicios Públicos, es necesario inscribir en el Registro Nacional de Telecomunicaciones que administra la SUTEL “Las normas y los estándares de calidad de los servicios de telecomunicaciones, así como los resultados de la supervisión y verificación de su cumplimiento.”
+VI. Que la declaratoria de confidencialidad de las piezas de los expedientes debe ser temporal y corresponde a la SUTEL fijar el plazo durante el cual esa información mantendrá dicho carácter conforme a las reglas de la sana crítica, proporcionalidad y razonabilidad, y considerando aspectos tales como los motivos expuestos, la naturaleza de la información presentada y su impacto en el mercado.
+VII. Que del informe técnico-jurídico presentado por la Comisión de Confidencialidad mediante oficio número 1028-SUTEL-2012, mismo que fue denominado “Confidencialidad Indicadores de Calidad del Reglamento de Prestación y Calidad de los Servicios“, resulta de relevancia resaltar lo siguiente:
+“(…)
+1. Servicio de Telefonía Fija
+i. Condiciones de prestación de servicios
+Esta Comisión considera que, con base en lo determinado en el artículo 7 de la LFM y en el artículo 28 de la LGT, y en razón de que el servicio de telefonía fija básico tradicional por conmutación de circuitos se mantiene bajo el régimen de monopolio, la información relacionada con el mismo no requiere tratamiento confidencial, en cuanto el ICE es el único operador o proveedor habilitado para la prestación de este servicio.
+Por lo anterior, esta información no revestiría de un valor comercial para el ICE, ya que el conocimiento de la misma por parte del mercado no le significa a esta institución una desventaja competitiva frente a los otros operadores y proveedores de telecomunicaciones.
+ii.Indicadores de eficiencia
+Se considera que la información base para construir los indicadores de eficiencia no requiere ser calificados como confidenciales, a partir de los elementos definidos en el apartado 1.i de la sección III del presente informe.
+iii. Indicadores técnicos
+Se considera que la información base para construir los indicadores técnicos no requiere ser calificados como confidenciales, a partir de los elementos definidos en el apartado 1.i de la sección III del presente informe.
+2. Servicio de Telefonía Móvil
+i.Condiciones de prestación de servicios
+Disponibilidad de equipos de prueba
+Los números de prueba aportados por los operadores y proveedores de servicios de telefonía móvil deben ser tratados como confidenciales, ya que los mismos son de uso exclusivo de la SUTEL para sus pruebas de numeración, tasación y evaluaciones de calidad, por lo tanto estos números deben permanecer disponibles de manera permanente y los datos que se recopilen deben conservarse sin alteración alguna por factores externos.
+Características de la red
+Las características y dimensionamiento de la red de telefonía móvil se dividen en dos categorías: (1) técnicas y (2) utilización. A continuación se analizara la confidencialidad de las características técnicas y de utilización definidas en el RPCS.
+Técnicas:
+a. Áreas de cobertura de la red móvil.
+b. Número de centrales de la red móvil.
+c. Número de radiobases por red.
+d. Cantidad de circuitos de interconexión entre las radiobases y su central.
+e. Cantidad de circuitos de interconexión con la red fija o cualquier otra red:
+f. Ubicación geográfica de cada radiobases.
+g. Altura, cantidad de sectores, identificador de sector, potencia, canales utilizados, apertura e inclinación de los sectores en cada radiobase.
+h. Cantidad de canales dedicados a transmisión de datos en cada radiobase:
+i. Capacidad total para prestar servicios de voz, datos y demás servicios brindados a través de esta red.
+La información suministrada para calcular el inciso a. no puede ser catalogada como confidencial ya que el artículo 24 del RPCS estipula que con base en el artículo 45 de la LGT, todo operador y proveedor deberá poner a disposición de sus clientes o usuarios información relacionada con las condiciones de prestación de los servicios de telecomunicaciones y parámetros de calidad de estos, entre los cuales se incluyen los mapas de cobertura reales en los que se identifiquen las áreas de cobertura del país donde se brindan los servicios. Por tal motivo, la citada información es de carácter público.
+Asimismo, la información base empleada en la estimación de los incisos b., c., d., e., f. no se considera confidencial ya que no reúne las características definidas en el artículo 2 de la LIND para poder ser considerados como información confidencial, ya que no hacen referencia “a la naturaleza, las características o finalidades de los productos y los métodos o procesos de producción”. De igual forma, esta información no reviste un valor comercial, ya que no revela información técnica estratégica que ponga en evidencia el diseño de la red de telefonía móvil.
+No obstante, la información base para construir los indicadores correspondientes a los incisos g., h., i., debe recibir un tratamiento confidencial con fundamento en el artículo 2 de la LIND, tomando en consideración que la información correspondiente a altura, cantidad de sectores, potencia, canales utilizados, apertura e inclinación de sectores, así como la cantidad de canales dedicados a la transmisión de datos en cada radiobase y la cantidad total para prestar servicios de voz, datos y demás servicios, sí tiene relación directa con el diseño propio de la red de telefonía móvil de cada operador o proveedor de servicios de telecomunicaciones y por lo tanto, es información secreta y de valor comercial para cada uno de ellos.
+Utilización:
+a. Hora de máximo tráfico de cada servicio
+b. Tráfico promedio por cliente o usuario móvil
+c. Duración promedio de las llamadas
+d. Cantidad promedio de consumo en cuanto a ancho de banda ( en kbps o múltiplos) por cliente o usuario por servicio de datos
+e.Cantidad total de clientes por servicio de transmisión de datos
+f. Cantidad total de mensajes de texto
+g. Cantidad total de clientes facturados de mensajería de texto
+h. Total de clientes facturados mensualmente
+i. Total de líneas activas en servicios prepago y postpago por separado
+Los datos base para construir los indicadores definidos en los incisos a., c., e., g., h., i. no se consideran confidenciales ya que no reúnen las características definidas en el artículo 2 de la LIND para poder ser considerados como información confidencial, ya que no hace referencia “a la naturaleza, las características o finalidades de los productos y los métodos o procesos de producción”. De igual forma, esta información no reviste un valor comercial, ya que no revela información técnica estratégica que ponga en evidencia el diseño de la red de telefonía móvil.
+La información base para elaborar los indicadores correspondientes a los incisos b., d., f. debe recibir un tratamiento confidencial con fundamento en el artículo 2 de la LIND, tomando en consideración que la información correspondiente a tráfico promedio por cliente, así como cantidad promedio de consumo, cantidad total de mensajes de texto, sí es información con valor comercial y que por tanto su divulgación puede conferir un perjuicio comercial a los operadores y proveedores.
+Plazo propuesto: Respecto a los números de prueba, el plazo de confidencialidad se mantendrá hasta que por solicitud de la SUTEL se modifiquen las condiciones establecidas. Con relación a las características de la red, la Comisión de Confidencialidad estima que un plazo de tres años es suficiente para proteger los datos que requieren ser tratados como confidenciales en vista de que las variaciones en el diseño de la red, en los flujos de usuarios por localidad, en la implementación de nuevos sitios, entre otros, son factores que hacen que dicha información pierda su valor comercial en un período superior al establecido.
+ii. Indicadores de eficiencia
+En el artículo 2 de la LIND, se establece la protección de información no divulgada referente a los secretos comerciales e industriales, siempre y cuando esta información (1) sea secreta, (2) esté legalmente bajo el control de una persona que haya adoptado medidas razonables y proporcionales para mantenerla secreta y (3) tenga un valor comercial por su carácter de secreta.
+Con fundamento en estos requerimientos normativos, esta Comisión considera que, los datos base que vayan a ser aportados por los operadores o proveedores de los servicios de telefonía móvil, con excepción de la información referente al indicador de “Grado de satisfacción y percepción de la calidad”, al presentarse de manera desglosada y dividida por tecnología de telefonía móvil, y al estar relacionados de manera directa con la eficiencia con la cual los operadores atienden a los usuarios y clientes, reúnen las características para ser declarados como confidenciales.
+Adicionalmente, se debe considerar que los datos base son elaborados por cada operador o proveedor, como producto de su actividad comercial. En virtud de lo anterior, el eventual conocimiento público de estos datos base, con excepción de los resultados del indicador de “Grado de satisfacción y percepción de la calidad”, con el nivel de detalle presentado, podría ser utilizado, como un instrumento informativo pernicioso para el giro comercial de cada uno de ellos. En este sentido, se debe considerar lo dispuesto en el artículo 273 de la LGAP, el cual establece dentro de los supuestos de confidencialidad aquella información que “confiera a la parte un privilegio indebido o una oportunidad para dañar ilegítimamente a la Administración, a la contraparte o a terceros, dentro o fuera del expediente”. (El subrayado es nuestro).
+La información suministrada para estimar el indicador de “Grado de satisfacción y percepción de la calidad”, no se considera confidencial ya que no reúne las características definidas en el artículo 2 de la LIND para poder ser considerada como información confidencial, ya que no hace referencia “a la naturaleza, las características o finalidades de los productos y los métodos o procesos de producción”. De igual forma, esta información no reviste un valor comercial, ya que lo que se solicita aportar son los porcentajes finales obtenidos luego de evaluar los parámetros de “grado de satisfacción del cliente del servicio telefónico” y “percepción general de la calidad del servicio telefónico”, no así el detalle individual por encuesta, por lo que el nivel de desglose no es tal que deban ser tratados los datos aportados como confidenciales.
+Plazo propuesto: En razón de lo anterior, la Comisión de Confidencialidad estima que un plazo de tres años es suficiente para proteger la información base aportada por los operadores y proveedores para construir los indicadores de eficiencia que se consideran confidenciales, lo anterior en vista de que las variaciones en el diseño de la red, en los flujos de usuarios por localidad, en la implementación de nuevos sitios, entre otros, son factores que hacen que dicha información pierda su valor comercial en un período superior al establecido.
+iii. Indicadores técnicos
+Con fundamento en el artículo 2 de la LIND, esta Comisión considera que, los datos que pueden ser aportados por los operadores y proveedores de los servicios de telecomunicaciones, al presentarse de manera desglosada y dividida por tecnología de telefonía móvil, reúnen las características para ser declarados como confidenciales, pues son datos técnicos los cuales sólo pueden ser conocidos por personal de dichas empresas o instituciones, y que por tanto no sólo no son de dominio público sino que tampoco resultan evidentes para un técnico versado en la materia. En razón de lo cual y según lo establecido en el artículo 2 de la LIND, la información correspondiente a dicho punto debe mantenerse como confidencial en el grado de detalle presentado.
+Plazo propuesto: En razón de lo anterior, la Comisión de Confidencialidad estima que un plazo de tres años es suficiente para proteger los datos suministrados para elaborar los indicadores técnicos del servicio de telefonía móvil que requieren tratamiento confidencial, en vista de que las variaciones en el diseño de la red, en los flujos de usuarios por localidad, en la implementación de nuevos sitios, entre otros, son factores que hacen que dicha información pierda su valor comercial en un período superior al establecido.
+3. Servicio de Telefonía Internacional
+i. Indicadores de eficiencia
+Se considera aplicar las condiciones de confidencialidad definas en el apartado 2 inciso ii de la sección III del presente informe (se aplicará mismo plazo).
+ii. Indicadores técnicos
+Se considera aplicar las condiciones de confidencialidad definas en el apartado 3 inciso iii de la sección III del presente informe (se aplicará mismo plazo). RCS-332-2012
+4. Servicio de Transferencia de datos
+i. Condiciones de prestación de servicios
+Características de la red
+Las características y dimensionamiento de la red de transferencia de datos se dividen en tres categorías: (1) tamaño y dimensión de la red de transferencia de datos a nivel local (nacional), (2) tamaño y dimensión de la red de transferencia de datos a nivel internacional y (3) topología de la red de transferencia de datos nacional. A continuación se analizara la confidencialidad de las dos categorías antes mencionadas.
+Tamaño y dimensión de la red de transferencia de datos a nivel local (nacional):
+a. Capacidad de las redes núcleo a nivel local
+b. Capacidad de las redes de transporte a nivel local
+c. Capacidad de la red de acceso a nivel local
+d. Cantidad de conexiones simultáneas soportadas por los servidores de acceso remoto, en la hora cargada media.
+e. Grados de congestión de la red núcleo nacional en la hora cargada media
+f. Grados de congestión de las redes de transporte nacional en la hora cargada media
+g. Grados de congestión de red de acceso nacional en la hora cargada media
+h. Grados de congestión (completación de llamadas) de los servidores de acceso remoto conmutado en la hora cargada media
+i. Grados de pérdida de paquetes de la red núcleo local en la hora cargada media
+j. Grados de pérdida de paquetes de las redes de transporte local en la hora cargada media
+k. Grados de pérdida de paquetes de red de acceso local en la hora cargada media
+La información suministrada para estimar los indicadores correspondientes a los incisos a., b., c., d., debe recibir un tratamiento confidencial con fundamento en el artículo 2 de la LIND, tomando en consideración que la información correspondiente a capacidades y cantidades de conexión simultaneas está relacionado directamente con el diseño propio de la red de transferencia de datos y por tal motivo, sí es información con valor comercial y que por tanto su divulgación puede devenir en un perjuicio comercial a los operadores y proveedores. RCS-332-2012 No obstante, la información empleada para calcular los indicadores de los incisos e., f., g., h., i., j., k. no debe recibir tratamiento confidencial, ya que los datos aportados son valores generales y no específicos, por lo tanto engloba un gran número de dispositivos de la red y por tal motivo no permite tener acceso al punto origen de congestión o pérdida de paquetes. Asimismo, la información relacionada con calidad del servicio es información que se considera de interés público y que por lo tanto, de acuerdo con el artículo 45 inciso 14 de la LGT “[c]onocer los indicadores de calidad y rendimiento de los proveedores de servicios de telecomunicaciones disponibles al público”, se configura en un derecho de los usuarios finales de los servicios de telecomunicaciones.
+Tamaño y dimensión de la red de transferencia de datos a nivel internacional
+a. Cantidad de enlaces internacionales contratados
+b. Capacidad de transmisión por enlace
+c. Puntos de acceso (backhaul)
+d. Niveles de congestión para cada enlace contratado, para la hora cargada media
+e. Niveles de pérdida de paquetes para cada enlace contratado, para la hora cargada media
+La información base para estimar los indicadores correspondientes a los incisos a., b., c., debe recibir un tratamiento confidencial con fundamento en el artículo 2 de la LIND, tomando en consideración que la información correspondiente a la cantidad de enlaces internacionales, capacidad de transmisión por enlace y puntos de acceso, sí tiene relación directa con el diseño propio de la red de transferencia de datos de cada operador o proveedor de servicios de telecomunicaciones y que por lo tanto, es información secreta y de valor comercial para cada uno de ellos.
+La información suministrada para calcular los indicadores de los incisos d., e., no debe recibir tratamiento confidencial, ya que los datos aportados son valores generales relacionados con calidad del servicio que se le puede brindar a los clientes, y que por tanto es información que se considera de interés público y que por lo tanto, de acuerdo con el artículo 45 inciso 14 de la LGT “[c]onocer los indicadores de calidad y rendimiento de los proveedores de servicios de telecomunicaciones disponibles al público”, se configura en un derecho de los usuarios finales de los servicios de telecomunicaciones.
+Topología de la red de transferencia de datos nacional:
+a. Cantidad y tipo de dispositivos interconectados
+b. Ancho de banda por enlace dispositivos
+c. Direcciones IP y máscara de subred de las interfaces interconectadas
+d. Equipos DSLAM, BAS, IMAPS, CMTS, MMDS, radiobases Wi-Fi, radiobases Wi-MAX, y demás tipos de acceso interconectados a la red, especificando la capacidad de manejo de clientes, puertos, y ancho de banda.
+e. Cantidad de puertos ocupados en las redes de acceso
+f. Cantidad de puertos disponibles en las redes de acceso
+g. Cantidad de clientes atendidos
+h. Capacidad de atención de clientes
+La información base suministrada para la estimación de los indicadores correspondiente a los incisos a., b., c., d., e., f., h., deben recibir un tratamiento confidencial con fundamento en el artículo 2 de la LIND, tomando en consideración que la información correspondiente a cantidad y tipo de dispositivos, anchos de banda por enlaces, direcciones IP y máscaras de subred, puertos ocupados y disponibles y capacidad de atención de clientes, si tiene relación directa con el diseño propio de la red de transferencia de datos de cada operador o proveedor de servicios de telecomunicaciones y que por lo tanto, es información secreta y de valor comercial para cada uno de ellos.
+La información de respaldo del indicador del inciso g., no se considera confidencial ya que no reúne las características definidas en el artículo 2 de la LIND para poder ser considerado como información confidencial, ya que no hace referencia “a la naturaleza, las características o finalidades de los productos y los métodos o procesos de producción”. De igual forma, esta información no reviste un valor comercial, ya que no revela información técnica estratégica que ponga en evidencia el diseño de la red de transferencia de datos o que ponga en evidencia la cartera de clientes con nombres, y datos de contacto.
+Plazo propuesto: Con relación a las información base referente a las características de la red para el servicio de transferencia de datos, la Comisión de Confidencialidad estima que un plazo de tres años es suficiente para proteger los datos que requieren ser tratados como confidenciales en vista de que las variaciones en el diseño de la red, en los flujos de usuarios por localidad, en la ampliaciones e instalación de nuevos dispositivos, entre otros, son factores que hacen que dicha información pierda su valor comercial en un período superior al establecido.
+ii. Indicadores de eficiencia
+Se considera aplicar las condiciones de confidencialidad definas en el apartado 2 inciso ii de la sección III del presente informe (se aplicará mismo plazo).
+iii. Indicadores técnicos
+Se considera aplicar las condiciones de confidencialidad definas en el apartado 2 inciso iii de la sección III del presente informe (se aplicará mismo plazo).
+5. Servicio de Telefonía IP
+i. Indicadores de eficiencia
+Se considera aplicar las condiciones de confidencialidad definas en el apartado 2 inciso ii de la sección III del presente informe (se aplicará mismo plazo).
+ii. Indicadores técnicos
+Se considera aplicar las condiciones de confidencialidad definas en el apartado 2 inciso iii de la sección III del presente informe (se aplicará mismo plazo).
+6. Servicio de Telefonía pública
+i. Indicadores de eficiencia
+Se considera aplicar las condiciones de confidencialidad definas en el apartado 2 inciso ii de la sección III del presente informe (se aplicará mismo plazo).
+ii. Indicadores técnicos
+Se considera aplicar las condiciones de confidencialidad definas en el apartado 2 inciso iii de la sección III del presente informe (se aplicará mismo plazo).
+Con excepción de la información aportada para el artículo 122 “Condiciones del equipo terminal de telefonía pública”, ya que no reúne las características definidas en el artículo 2 de la LIND para poder ser considerada como información confidencial, ya que no hace referencia “a la naturaleza, las características o finalidades de los productos y los métodos o procesos de producción”. De igual forma, esta información no reviste un valor comercial ya que lo que se solicita es aportar información referente a la calidad de las terminales de telefonía pública, instrucciones de uso de los terminales, que los mismos sean de fácil acceso de acuerdo a la Ley 7600, entre otras.
+(…)”
+VIII. Que en razón de lo anterior, lo procedente es declarar confidenciales, parte de los indicadores de calidad establecidos en el RPCS y requeridos a los operadores y proveedores de servicios de telecomunicaciones solicitados por parte de la Dirección General de Calidad a los operadores.
+POR TANTO
+Con fundamento en los artículos 273 y 274 de la Ley General de la Administración Pública, Ley No. 6227, los artículos 73 inciso a) y 80 inciso h) de la Ley de la Autoridad Reguladora de los Servicios Públicos, No. 7593, los artículos 3 inciso c) y 45 inciso 14) 49 inciso 3) de la Ley No. 8642, Ley General de Telecomunicaciones.
+EL CONSEJO DE LA
+SUPERINTENDENCIA DE TELECOMUNICACIONES
+RESUELVE:
+1. Declarar con carácter confidencial por un plazo de tres (3) años, los datos aportados por los operadores y proveedores de servicios de telecomunicaciones debidamente habilitados, atinentes a los siguientes artículos del Reglamento de Prestación y Calidad de los Servicios, según se indica en la siguiente tabla resumen:
+Tabla 1. Resumen de Indicadores de Calidad del RPCS y su respectivo
+tratamiento confidencial
+Servicio | Categoría de Indicador | Número de artículo RPCS | Descripción del artículo | Tratamiento Confidencial | Plazo (años)
+Telefonía Móvil | Condiciones de Prestación del Servicio | 47 | Disponibilidad de equipos de prueba | Sí | 3
+48 | Características de la red | Técnicos: Sí a los inciso b,d,f | 3
+| Utilización: Sí a los inciso b,d,f | 3
+Eficiencia | 49 | Oportunidad en la activación y desactivación de servicios | Sí | 3
+49,b | Atención y reporte de incidencias | Sí | 3
+50 | Oportunidad en la facturación de de servicios | Sí | 3
+51 | Reclamaciones sobre facturaciones | Sí | 3
+52 | Cumplimiento del tiempo de respuesta en el centro de telegestión. | Sí | 3
+Técnicos | 54 | Cumplimiento de disponibilidad de centrales de comunicaciones de la red móvil | Sí | 3
+55 | Cumplimiento de disponibilidad de radiobases de la red móvil | Sí | 3
+56 | Congestión de rutas troncales finales | Sí | 3
+57 | Congetión de la radiobase (Terminal-Radiobase) | Sí | 3
+58 | Completación de llamadas de tráfico a la red móvil | Sí | 3
+59 | Completación de llamadas de tráfico originado en la red móvil | Sí | 3
+60 | Completación de llamadas del tráfico determinado por servicio en los centros de telegestión | Sí | 3
+61 | Comunicaciones interrumpidas | Sí | 3
+62 | Demora del tono de conexión de llamada (DTCLL) | Sí | 3
+63 | Áreas de cobertura del servicio móvil | Sí | 3
+64 | Relación portadora contra interferente | Sí | 3
+65 | Calidad de voz en servicios móviles | Sí | 3
+66 | Tasa de entrega de mensajes multimedia | Sí | 3
+67 | Cumplimiento del tiempo del tiempo de entrega de mensaje de texto | Sí | 3
+68 | Tasa de entrega de mensajes multimedia | Sí | 3
+69 | Cumplimiento del tiempo de entrega de mensajes multimedia | Sí | 3
+70 | Completación de llamadas al correo de voz | Sí | 3
+Telefonía internacional | Eficiencia | 71 | Oportunidad en la entrega del servicio | Sí | 3
+72 | Atención y reporte de incidencias | Sí | 3
+73 | Oportunidad en la facturación de servicios | Sí | 3
+74 | Reclamaciones en la facturación de servicios | Sí | 3
+75 | Reclamación sobre facturaciones | Sí | 3
+Técnicos | 77 | Cumplimiento del tiempo de respuesta en el centro de telegestión | Sí | 3
+78 | Congestión de rutas troncales finales | Sí | 3
+79 | Completación de llamadas de tráfico terminado por servicio en centros de telegestión | Sí | 3
+80 | Completación de llamadas en centro de telegestión | Sí | 3
+81 | Calidad de voz en servicio de telefonía internacional | Sí | 3
+Transferencia de datos | Condiciones de prestación del servicio | 82 | Características de la red | Tamaño y dimensión de la red de transferencia de datos a nivel local (nacional): Sí a los inciso a, b, c y d | 3
+Tamaño y dimensión de la red de transferencia de datos a nivel internaciones: Sí a los incisos: a,b y c | 3
+Topología de la red de transferencia de datos nacional: Sí a los incisos a, b, c, d, e, f y h | 3
+Eficiencia | 83 | Oportunidad en la prestación de servicios | Sí | 3
+84 | Atención y reporte de incidencias | Sí | 3
+85 | Oportunidad en la facturación de servicios | Sí | 3
+86 | Reclamaciones sobre facturaciones | Sí | 3
+87 | Cumplimiento del tiempo de respuesta en el centro de telegestión | Sí | 3
+Técnicos | 89 | Cumplimiento de los niveles de sobresuscripción a nivel local de los servicios de transferencia de datos | Sí | 3
+90 | Cumplimiento de niveles de sobresuscripción a nivel intencional de los servicios de transferencia de datos | Sí | 3
+91 | Cumplimiento del nivel de retardo a nivel local | Sí | 3
+92 | Cumplimiento del nivel de retardo a nivel internacional | Sí | 3
+93 | Cumplimiento del nivel de variaciones en el retardo a nivel local | Sí | 3
+94 | Cumplimiento del nivel de variaciones en el retardo a nivel internacional | Sí | 3
+95 | Cumplimiento de niveles de pérdida de paquetes a nivel local | Sí | 3
+96 | Cumplimiento de niveles de pérdida de paquetes a nivel internacional | Sí | 3
+97 | Cumplimiento de niveles de ocupación en los enlaces locales e internacionales | Sí | 3
+98 | Cumplimiento del desempeño de la velocidad local e internacional respecto a la velocidad contratada | Sí | 3
+99 | Completación de llamadas de los servidores de acceso remoto conmutado | Sí | 3
+Telefonía IP | Eficiencia | 31 (telefónica IP Art 103) | Oportunidad en la entrega del servicio | Sí | 3
+32 (telefónica IP Art 103) | Atención y reporte de incidencias | Sí | 3
+33 (telefónica IP Art 103) | Oportunidad en la facturación de servicios | Sí | 3
+34 (telefónica IP Art 103) | Reclamaciones sobre facturaciones | Sí | 3
+35 (telefónica IP Art 103) | Cumplimiento del tiempo de respuesta en el centro de telegestión | Sí | 3
+Técnicos | 37 (telefónica IP Art 103) | Cumplimiento de disponibilidad de centrales de telecomunicaciones | Sí |
+38 (telefónica IP Art 103) | Congestión de rutas troncales finales | Sí | 3
+39 (telefónica IP Art 103) | Completación de llamadas tráfico terminado en las centrales de comunicaciones | Sí | 3
+40 (telefónica IP Art 103) | Completación de llamadas tráfico originado en las centrales de comunicaciones | Sí | 3
+41 (telefónica IP Art 103) | Completación de llamadas de tráfico terminado por servicio en los centros de telegestión | Sí | 3
+42 (telefónica IP Art 103) | Completación de llamadas del centro de telegestión | Sí | 3
+43 (telefónica IP Art 103) | Completación de mensajes de voz | Sí | 3
+44 (telefónica IP Art 103) | Efectividad de respuesta del servicio de información de los registros de números telefónicos de los clientes | Sí | 3
+105 | Establecimiento de niveles de prioridad al tráfico de voz de telefonía IP | Sí | 3
+106 | Cumplimiento de parámetros de calidad de transmisión de datos para servicios de telefonía IP | Sí | 3
+107 | Cumplimiento de parámetros de calidad de operación de los servicios de telefonía IP | Sí | 3
+108 | Calidad de voz para los servicios de telefonía IP | Sí | 3
+Telefonía Pública | Eficiencia | 112 | Atención de reporte de incidencias | Sí | 3
+113 | Oportunidad en la facturación de servicios | Sí | 3
+114 | Reclamaciones sobre facturaciones | Sí | 3
+115 | Cumplimiento del tiempo de respuesta en el centro de telegestión | Sí | 3
+Técnica | 117 | Cumplimiento de disponibilidad de plataformas de la red de telefonía pública | Sí | 3
+117.a | Congestión de rutas troncales finales | Sí | 3
+118 | Completación de llamadas tráfico originado en las plataformas | Sí | 3
+119 | Completación de llamadas del tráfico originado en las plataformas | Sí | 3
+120 | Completación de llamadas del tráfico terminado por servicio en centro de telegestión | Sí | 3
+121 | Completación de llamadas en centro de telegestión | Sí | 3

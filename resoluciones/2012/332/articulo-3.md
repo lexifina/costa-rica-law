@@ -1,0 +1,1 @@
+3. Indicar que los criterios establecidos en esta resolución en materia de confidencialidad aplican para todos los operadores y proveedores telecomunicaciones debidamente habilitados, esto con el objetivo de garantizar los principios jurídicos de Beneficio del usuario, Transparencia, Igualdad y No discriminación.
