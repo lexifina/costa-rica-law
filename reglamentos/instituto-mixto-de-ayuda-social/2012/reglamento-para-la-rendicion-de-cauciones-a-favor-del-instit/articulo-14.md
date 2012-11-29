@@ -1,0 +1,1 @@
+Artículo 14.—Actualización del Monto. Anualmente, el monto de la póliza será actualizado por Desarrollo Humano, en la misma proporción al incremento salarial decretado por el Gobierno de la República para el último semestre. Es decir para cada año, se tomará el salario base del año anterior, que rige a partir de julio de cada año.

@@ -1,0 +1,1 @@
+Transitorio I.—Los funcionarios obligados en este Reglamento a prestar caución que actualmente se desempeñan en los cargos y puestos comprendidos en el artículo 4º y que aún no posean la garantía deberán rendirla dentro de los diez días hábiles posteriores a la publicación de este Reglamento.

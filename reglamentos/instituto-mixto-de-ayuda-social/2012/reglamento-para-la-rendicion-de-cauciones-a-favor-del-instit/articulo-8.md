@@ -1,0 +1,1 @@
+Artículo 8° —Caucionantes del nivel D. En este nivel deben rendir caución los profesionales que ocupen los siguientes cargos: Encargado de Donaciones, Encargado de Transportes, Coordinador de Categoría, Profesional en Administración Tributaria, Profesional en Tesorería, Profesional en Administración Área Regional y Profesional Financiero Área Regional.

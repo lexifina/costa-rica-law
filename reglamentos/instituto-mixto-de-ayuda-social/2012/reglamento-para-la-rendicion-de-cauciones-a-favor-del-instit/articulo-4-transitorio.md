@@ -1,0 +1,2 @@
+Transitorio IV.—Si en el futuro resulta conveniente tanto para el IMAS como para los causionantes, se podrá realizar la caución por medio de póliza colectiva con el INS o cualquier otra Aseguradora autorizada. En este caso, corresponde a Desarrollo Humano controlar mensualmente que todos causionantes aparezcan incluidos en la póliza colectiva.
+Aprobado por Consejo Directivo 269-07-2012, fecha aprobación, 18-07-2012.
