@@ -1,0 +1,1 @@
+XVI. Todos los días del año se realizarán ventanas de cambio con excepción de los domingos y feriados de ley. Debido a que los domingos y los feriados de ley no se realizarán ventanas de cambio, las portaciones que se encuentren programadas para estos días deben realizarse en la madrugada del día natural posterior.

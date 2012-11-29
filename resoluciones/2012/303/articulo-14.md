@@ -1,0 +1,1 @@
+XIV. Los operadores y proveedores de servicios de telecomunicaciones, deberán suministrar en todo momento a los usuarios finales de telecomunicaciones, información clara, veraz, suficiente, precisa y oportuna sobre el derecho de portabilidad numérica, para ello deberán participar activamente en las campañas informativas que para este fin establezca la SUTEL.

@@ -1,0 +1,1 @@
+III. Una vez seleccionada la ERPN, los operadores y proveedores miembros del CTPN contarán con un periodo máximo de dos (2) meses desde la firmeza del acto de selección para realizar el proceso de contratación respectivo y efectuar la firma del contrato con la ERPN.

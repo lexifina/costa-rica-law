@@ -1,0 +1,1 @@
+IX. Con base en lo anterior, los operadores y proveedores miembros del CTPN, son directamente responsables por posibles atrasos o problemas en la ejecución que afecten el cumplimiento de la portabilidad numérica en los términos establecidos en la presente resolución.
