@@ -1,1 +1,0 @@
-Artículo 26.—Obligada colaboración. Para el eficiente y eficaz cumplimiento de las funciones de la Proveeduría, todas las demás unidades administrativas del Instituto de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle asistencia en el cumplimiento de sus cometidos.
