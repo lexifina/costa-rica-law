@@ -1,0 +1,2 @@
+Artículo 28.—Condonación. Las deudas por obligaciones tributarias municipales solo podrán ser condonadas por ley.
+Las obligaciones accesorias, bien sea que se trate de intereses, recargos o multas, podrán ser condonadas únicamente cuando se demuestre que éstas tuvieron como causa, error imputable a la administración y que el sujeto pasivo o responsable no pudo realizar el pago en su momento oportuno. Para tales efectos se deberá emitir por parte del departamento de Cobros una resolución administrativa, con las formalidades y bajo las condiciones que establece la ley.

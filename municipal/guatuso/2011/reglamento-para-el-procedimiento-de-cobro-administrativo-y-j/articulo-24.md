@@ -1,0 +1,1 @@
+Artículo 24.—Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por el departamento de Cobros de la Municipalidad para la suscripción del arreglo de pago, así como dicho documento, serán agregados al expediente y debidamente foliado, para su conservación.

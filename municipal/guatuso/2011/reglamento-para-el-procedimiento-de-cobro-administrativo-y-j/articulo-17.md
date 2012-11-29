@@ -1,0 +1,10 @@
+SECCIÓN III
+Del Departamento de Cobros de la Municipalidad
+SUBSECCIÓN I
+Del cobro de las obligaciones tributarias
+municipales en la etapa administrativa
+Artículo 17.—Obligaciones del departamento de Cobros de la Municipalidad. El departamento de Cobros de la Municipalidad, en cumplimiento de su función de recaudación tendrá las siguientes obligaciones:
+a) Realizar las gestiones de cobro administrativo de las cuentas atrasadas. Este se iniciará el día siguiente después de haberse vencido el plazo para el pago de la obligación vencida respectiva, y las acciones consistirán en avisos, llamadas telefónicas, publicaciones generales u otros. El Concejo Municipal, El Alcalde (sa) y el área Financiera de la Municipalidad deberá dotar de los recursos económicos necesarios al departamento de Cobros para que realicen esta gestión.
+b) Las obligaciones tributarias municipales que tengan un atraso de un trimestre, serán notificadas dos veces administrativamente (de acuerdo al artículo 150 de la Ley General de Administración Pública), otorgándosele al contribuyente diez días hábiles en la primera ocasión y cinco días hábiles en la segunda, para que se efectúe el pago respectivo; si vencido dicho plazo después de la última notificación no se hiciere presente el sujeto pasivo a cancelar, se remitirán, dejando copia en el expediente administrativo, los originales de las notificaciones de cobro realizadas a éste que consten en el expediente, junto con la documentación adicional que corresponda para efectos de proceder al cobro judicial, a los profesionales en derecho externos, de conformidad con lo que se indica en este Reglamento. Las notificaciones indicadas se realizarán por los medios legales correspondientes, establecidos en el presente Reglamento.
+c) Ejercer las funciones de control y fiscalización sobre la actuación que ejerzan los abogados externos en la etapa ejecutiva.
+d) Rendir informe mensualmente al departamento de administración tributaria con copia al Alcalde Municipal sobre el estado de las obligaciones vencidas que se encuentran en la etapa administrativa.

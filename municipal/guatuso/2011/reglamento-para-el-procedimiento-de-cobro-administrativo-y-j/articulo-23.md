@@ -1,0 +1,1 @@
+Artículo 23.—Monto mínimo para realizar arreglo de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas muestren un monto mínimo de cincuenta mil colones (¢50.000,00) al momento de efectuarse el arreglo de pago respectivo. Aportando una prima del 30% sobre el monto y el saldo en cuotas mensuales según lo establece el artículo 18 del presente reglamento.

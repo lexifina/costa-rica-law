@@ -1,0 +1,1 @@
+Artículo 40.—Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el profesional en derecho director del proceso, el cual lo hará constar mediante nota dirigida al Departamento de Cobros de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de Aplicación. Este Reglamento será de aplicación obligatoria tanto para la Administración Tributaria Municipal en su proceso de cobro administrativo, como para los profesionales en derecho externos que sean contratados por la Municipalidad de Guatuso, para gestionar el cobro judicial de las obligaciones dinerarias que se le adeuden a ésta.
