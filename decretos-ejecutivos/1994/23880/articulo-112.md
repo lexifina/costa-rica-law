@@ -1,2 +1,2 @@
-Artículo 112.- En cada grupo se designará un "Distinguido" quien fungirá como colaborador de los instructores en la disciplina del grupo y otras actividades de aprendizaje. Su designación será hecha por conducto del Jefe de Instrucción. Tal designación no le concede prerrogativa alguna.
+Artículo 112.- (Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 104 al 112 actual)

@@ -1,2 +1,2 @@
-Artículo 107.- Es requisito para graduación, en cualquier tipo de programa, haber aprobado la totalidad de las materias que lo conforman, con una nota no inferior a setenta, en la escala de uno a cien, además aprobar el entrenamiento dirigido en los cursos en que esto sea pertinente.
+Artículo 107.- (Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 99 al 107 actual)

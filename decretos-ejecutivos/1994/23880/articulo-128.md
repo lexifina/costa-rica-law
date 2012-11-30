@@ -1,2 +1,2 @@
-Artículo 128.- En los dormitorios deberá existir orden y disciplina y evitarán cualquier acto que pueda atentar contra sus compañeros o que implique transgresión a las reglas de cortesía. Igual comportamiento deben guardar en otros recintos de la Escuela, tales como el baño, barbería, etc.
+Artículo 128.-(Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 120 al 128 actual)

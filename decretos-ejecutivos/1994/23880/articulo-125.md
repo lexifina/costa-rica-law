@@ -1,2 +1,2 @@
-Artículo 125.- Los estudiantes deberán comportarse de una manera seria y ordenada, pudiendo conversar en un tono de voz moderada, sin emitir bromas fuera de tono. Inmediatamente después de haber terminado de ingerir los alimentos, el estudiante recogerá y lavará los utensilios y luego podrá retirarse del comedor pidiendo el permiso necesario y guardando el respeto debido a los compañeros que allí queden.
+Artículo 125.-(Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 117 al 125 actual)

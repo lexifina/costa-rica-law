@@ -1,2 +1,2 @@
-Artículo 105.- Para ser aspirante a un curso de especialización es necesario que tenga un rango formalmente otorgado de Sargento de Policía o superior a este, que se haya desempeñado en forma eficiente y ejemplar en sus labores y que satisfaga el perfil de entrada correspondiente al curso por recibir.
+Artículo 105.- (Derogado pro el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 97 al 105 actual)

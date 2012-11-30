@@ -1,2 +1,2 @@
-Artículo 139.- Los casos en que los actos y conductas no alcanzaren la consideración de falta leve, por corresponder a un nivel inferior a este, serán corregidos por el Instructor Profesor, Táctico o funcionario competente, con el apercibimiento respectivo.
+Artículo 139.- (Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 131 al 139 actual)

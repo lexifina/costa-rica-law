@@ -1,2 +1,2 @@
-Artículo 130.- En caso de que ocurriera alguna emergencia en horas de la noche el Oficial de Compañía será la persona encargada de tomar todas las medidas que considere necesarias.
+Artículo 130.- (Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 122 al 130 actual)

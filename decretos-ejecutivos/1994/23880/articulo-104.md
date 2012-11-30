@@ -1,2 +1,2 @@
-Artículo 104.- Los cursos de especialización tienen como propósito consolidar, profundizar y ampliar los conocimientos y habilidades adquiridos por el servidor policial para el desempeño de su cargo, en función con las necesidades administrativas y operativas específicas de la Unidad a que está adscrito.
+Artículo 104.- (Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 96 al 104 actual)
