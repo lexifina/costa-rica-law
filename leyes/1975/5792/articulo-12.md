@@ -1,2 +1,2 @@
-Artículo 12.- El Banco Central girará, mensualmente y en forma directa, el producto del gravamen establecido en el artículo 10, al Instituto de Desarrollo Agrario.
-(Así reformado por el artículo 35 de la Ley Nº 6735 de 29 de marzo de 1982).
+Artículo 12.- El producto de los gravámenes establecidos en la presente ley será recaudado por el Inder en las cajas recaudadoras que al efecto designe, mediante los bancos del Sistema Financiero Nacional y por los medios electrónicos que establezca la Administración Tributaria.
+(Así reformado por el inciso a) del artículo 37 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

@@ -1,0 +1,2 @@
+ARTÍCULO 32.- Facultades
+Las dependencias del Inder estarán obligadas a presentarle al auditor toda la información pública que este les solicite, en la forma y en el plazo que él mismo determine. El auditor y los funcionarios de su dependencia, autorizados por él, tendrán libre acceso a todos los libros, los documentos, los valores y los archivos del Inder. Los funcionarios y empleados estarán obligados a prestarle ayuda para el mejor desempeño de sus funciones de vigilancia y fiscalización.

@@ -1,0 +1,2 @@
+ARTÍCULO 63.- Asignación en los centros de población
+El Inder promoverá la formación de centros de población mediante la adquisición o recuperación de tierras para este fin específico en los asentamientos y en los territorios rurales, así como el desarrollo de la infraestructura y los servicios necesarios, en estos centros de población, ya sea de forma directa con sus propios recursos o indirecta mediante la coordinación con otras instituciones.

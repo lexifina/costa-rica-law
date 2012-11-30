@@ -1,0 +1,10 @@
+ARTÍCULO 17.- Prerrogativas del Inder
+a) Inembargabilidad de sus bienes de dominio público.
+b) Carácter de título ejecutivo de las certificaciones que emita la Tesorería del Inder, en que consten obligaciones a cargo de personas naturales o jurídicas por concepto de impuestos, tasas, precios, cánones, amortizaciones, intereses, créditos o cualquier otro tipo de ingresos o deudas a favor del Inder.
+Tratándose de obligaciones de naturaleza tributaria, las certificaciones con carácter de título ejecutivo serán emitidas por el presidente ejecutivo en su condición de director tributario y les será aplicable el procedimiento establecido al efecto en el Código de Normas y Procedimientos Tributarios.
+Serán objeto de certificación las obligaciones tributarias autoliquidadas no pagadas y los actos administrativos que hayan adquirido firmeza.
+c) Exención de fianza de costas y depósitos para garantizar medidas precautorias.
+d) Ejecutoriedad de las resoluciones válidas, eficaces o anulables que el Inder dicte en asuntos de su competencia, y en el tanto no exista resolución judicial firme en contrario, en los términos de la Ley General de la Administración Pública, salvo lo que expresamente disponga esta ley y sin menoscabo de la responsabilidad civil en que pudiera incurrir el Inder por los perjuicios que ocasione a particulares.
+En caso de las resoluciones definitivas que versen sobre el cobro o la determinación de la obligación tributaria, la vía administrativa finalizará por medio de resolución del Tribunal Fiscal Administrativo o cuando el sujeto pasivo no recurra ante este Tribunal la resolución definitiva que dicte el Inder, de conformidad con lo establecido en el Código de Normas y Procedimientos Tributarios.
+e) Exoneración del pago de toda clase de impuestos, tasas y contribuciones especiales directas o indirectas, nacionales o municipales, que incluyen aquellos que suponen la adquisición o posesión de bienes muebles o inmuebles.
+f) Instaurar y ejecutar cualquier acción tendiente a realizar fiscalización sobre los predios que se encuentren dentro de su competencia.
