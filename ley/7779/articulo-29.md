@@ -1,7 +1,2 @@
-ARTÍCULO 29.- El Ministerio del Ambiente y Energía y el Ministerio de
-Agricultura y Ganadería, coordinados por el Ministerio de Salud, deberán
-investigar, divulgar y recomendar prácticas de manejo de suelos que eviten
-en ellos la lixiviación y acumulación de agrotóxicos y lixiviados
-industriales, pecuarios y urbanos; para esto se autoriza a las
-instituciones mencionadas para que incluyan, en sus presupuestos, las
-partidas necesarias para ejecutar adecuadamente esta norma.
+Artículo 29.- El Ministerio de Ambiente y Energía(*) y el Ministerio de Agricultura y Ganadería, coordinados por el Ministerio de Salud, deberán investigar, divulgar y recomendar prácticas de manejo de suelos que eviten en ellos la lixiviación y acumulación de agrotóxicos y lixiviados industriales, pecuarios y urbanos; para esto se autoriza a las instituciones mencionadas para que incluyan, en sus presupuestos, las partidas necesarias para ejecutar adecuadamente esta norma.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
