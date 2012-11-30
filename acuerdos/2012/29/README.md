@@ -14,3 +14,4 @@ Reforma Reglamento para la autorización de desembarques de productos pesqueros 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-20 | la propia norma |
+| 2 | 2012-11-30 | Acuerdo 458 (2012-11-30) |

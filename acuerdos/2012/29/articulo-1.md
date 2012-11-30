@@ -1,5 +1,6 @@
 INSTITUTO COSTARRICENSE DE PESCA
 Y ACUICULTURA
+(Nota de Sinalevi: Mediante acuerdo AJDIP/458-2012 del 30 de noviembre del 2012, se acuerda prorrogar de manera indefinidad, hasta tanto no se resuelva en contrario, la vigencia del presente acuerdo, en las mismas condiciones y términos contenidos en el mismo)
 A.J.D.I.P./029-2012.—Puntarenas, 27 de enero de 2012.
 Considerando:
 I.—Que mediante Acuerdo AJDIP/042-2009 de 30 de enero del 2009, se emitió el Reglamento para la descarga de productos pesqueros en muelles privados y centros de acopio, inicialmente destinado a la comercialización de recurso tiburón y pez vela, con la posibilidad de establecer otras especies por parte del Instituto.
