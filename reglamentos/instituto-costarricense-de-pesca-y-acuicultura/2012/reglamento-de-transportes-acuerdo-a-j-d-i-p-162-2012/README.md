@@ -14,3 +14,4 @@ Reglamento de Transportes (Acuerdo A.J.D.I.P./162-2012)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-20 | la propia norma |
+| 2 | 2012-11-30 | Acuerdo 459 (2012-11-30) |
