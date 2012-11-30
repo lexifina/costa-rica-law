@@ -810,7 +810,7 @@ los bienes y las obras civiles deberán ser adquiridos mediante contratos
 adjudicados en virtud de procedimientos similares a los establecidos por
 las Secciones I y II de las "Guías para la Adquisición en virtud de
 Préstamos del Banco Interamericano de Reconstrucción y Fomento (BIRF) y de
-Créditos del Instituto de Desarrollo Agrario (IDA)" publicadas por el
+Créditos del Instituto de Desarrollo Rural (INDER)"(*) publicadas por el
 Banco en mayo de 1992 (Las Guías). Para contratos de valor fijo, la
 invitación de licitación a la que se hace referencia en el párrafo 2.13 de
 las Guías debe establecer que, cuando la adjudicación del contrato se
@@ -820,6 +820,7 @@ semana de atraso en dos factores de corrección previamente establecidos y
 aprobados por el Banco, uno que será aplicado en todos los componentes en
 moneda extranjera y otro que será aplicado a los componentes del valor de
 la licitación en moneda local.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Dicho aumento no será tomado en cuenta en la evaluación de las
 licitaciones.
 2.- Hasta donde sea posible, los contratos para bienes y obras

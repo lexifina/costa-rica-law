@@ -1,6 +1,6 @@
 # Normas Generales del Convenio de Préstamo N° 1284/OC-CR "Programa de Regularización del Catastro y Registro", entre la República de Costa Rica y el Banco Interamericano de Desarrollo.
 
-Ley N° 8154 del 2001-11-27. SINALEVI, ficha 47611: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47611&param2=50518&param3=1>.
+Ley N° 8154 del 2001-11-27. SINALEVI, ficha 47611: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47611&param2=94291&param3=1>.
 
 Publicada en La Gaceta N° 237 del 2001-12-10.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 2001-12-10 | Ley 8154 | 2001-11-27 |
+| 2 de 2 | 2012-11-30 | Ley 9036 | 2012-05-11 |

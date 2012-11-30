@@ -1,2 +1,3 @@
-Artículo 3°—En el caso de que la Asociación se disuelva, el inmueble y las instalaciones que se hayan introducido en él pasarán gratuitamente al Instituto de Desarrollo Agrario.
-Si en el término de cinco años no se hubiere efectuado la construcción de la sede, en el inmueble que mediante esta ley se traspasa a la Asociación, éste pasará nuevamente a ser propiedad del Instituto de Desarrollo Agrario.
+Artículo 3°—En el caso de que la Asociación se disuelva, el inmueble y las instalaciones que se hayan introducido en él pasarán gratuitamente al Instituto de Desarrollo Rural(*).
+Si en el término de cinco años no se hubiere efectuado la construcción de la sede, en el inmueble que mediante esta ley se traspasa a la Asociación, éste pasará nuevamente a ser propiedad del Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
