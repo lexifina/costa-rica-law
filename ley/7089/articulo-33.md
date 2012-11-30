@@ -317,12 +317,8 @@ para que, por medio de las municipalidades, y sin perjuicio de sus propios
 programas, done a las comunidades de las provincias de Limón, Cartago y
 Puntarenas, materiales y equipo que no tengan utilidad para la empresa, a
 fin de que se utilicen en obras de bienestar social.
-44. Se autoriza al Instituto Costarricense de Ferrocarriles (INCOFER)
-para que venda un terreno de su propiedad, sito en el cantón de Siquirres,
-distrito primero, provincia de Limón, al Instituto de Desarrollo Agrario,
-a un precio a convenir por ambas partes. Dicha propiedad se compone de
-lote y casa, y está ubicada setenta y cinco metros oeste del puente negro
-sobre la vía férrea.
+44. Se autoriza al Instituto Costarricense de Ferrocarriles (INCOFER) para que venda un terreno de su propiedad, sito en el cantón de Siquirres, distrito primero, provincia de Limón, al Instituto de Desarrollo Rural(*), a un precio a convenir por ambas partes. Dicha propiedad se compone de lote y casa, y está ubicada setenta y cinco metros oeste del puente negro sobre la vía férrea.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 45. Se autoriza al Instituto Costarricense de Ferrocarriles (INCOFER)
 para que done piedra quebrada a las municipalidades de la provincia de
 Limón, con el fin de que éstas la empleen en la pavimentación de las
@@ -373,13 +369,8 @@ Presupuesto, ley No. 7055 del 18 de diciembre de 1986, por ¢ 5.000.000
 (para el entubamiento de las aguas negras de la ciudadela la Mora), en la
 construcción del alcantarillado sanitario de la calle Calderón y la calle
 Río Abajo de Guadalupe, Goicoechea.
-51. Se autoriza al Instituto de Desarrollo Agrario para que aporte al
-suma de ¢ 4.000.000, de acuerdo con el convenio suscrito entre el I.D.A.
-y el Centro de Estudios Cooperativos (CENECOOP, R.L.), con el fin de darle
-contenido al programa de capacitación campesina de pequeños y medianos
-productores cooperativistas, y para la construcción del Centro de
-Capacitación Cooperativa del valle Central, en Ochomogo, Cartago, finca
-No. 31139, tomo 1701, folio 60, asiento 11.
+51. Se autoriza al Instituto de Desarrollo Rural(*) para que aporte al suma de ¢ 4.000.000, de acuerdo con el convenio suscrito entre el I.N.D.E.R(*) y el Centro de Estudios Cooperativos (CENECOOP, R.L.), con el fin de darle contenido al programa de capacitación campesina de pequeños y medianos productores cooperativistas, y para la construcción del Centro de Capacitación Cooperativa del valle Central, en Ochomogo, Cartago, finca No. 31139, tomo 1701, folio 60, asiento 11.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 52. Se autoriza al Instituto Costarricense de Electricidad para que done
 campos deportivos en el cantón de Pococí, así como todos los materiales
 que le sea posible.

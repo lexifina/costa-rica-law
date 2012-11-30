@@ -1,5 +1,1 @@
-Artículo 23.- El Presidente Ejecutivo tendrá la representación
-judicial y extrajudicial del Instituto, con las facultades que para los
-apoderados generalísimos determina el artículo 1253 del Código Civil y
-las que, para casos especiales, le otorgue de manera expresa de la Junta
-Directiva.
+Artículo 23.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

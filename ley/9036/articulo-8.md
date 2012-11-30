@@ -1,0 +1,7 @@
+ARTÍCULO 8.- Estrategias de coordinación y fomento en la participación rural
+El Inder asesorará y facilitará la participación y organización de los actores en los territorios rurales bajo los siguientes criterios:
+a) La unidad básica de la coordinación del desarrollo rural territorial la constituyen las instancias de convergencia de los actores sociales de cada territorio.
+b) En el nivel regional, se constituirán los consejos regionales de desarrollo rural, con la participación de los entes públicos pertinentes y de las organizaciones de la sociedad civil participantes en los consejos territoriales de desarrollo rural.
+c) El Inder facilitará, con fundamento en la Ley N.º 8801, Ley General de Transferencia de Competencias del Poder Ejecutivo a las Municipalidades, la coordinación con los gobiernos locales y las diferentes instituciones gubernamentales y no gubernamentales, las acciones que se realizarán en cada cantón del país, lo que permitirá la eficacia y la eficiencia en la utilización de los recursos disponibles.
+d) El Inder promoverá el diálogo y la negociación para fomentar la participación rural, facilitar la toma de decisiones y la formulación de estrategias para resolver las necesidades existentes en materia de desarrollo rural.
+e) A nivel nacional, el órgano máximo de coordinación del desarrollo rural, en atención a las políticas emanadas del MAG en su condición de rector del sector agropecuario, será el Inder.

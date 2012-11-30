@@ -1,10 +1,2 @@
-ARTÍCULO 6.- Autorización
-Autorízase al Instituto de Desarrollo Agrario para vender la planta
-extractora de palma aceitera, actualmente a su nombre, a la Cooperativa
-Agroindustrial de Productores de Palma Aceitera R.L., cédula jurídica No.
-3-004-078431. El precio de venta será determinado por la Junta Directiva
-de este Instituto, previo avalúo del Ministerio de Hacienda. En la
-eventualidad de que quede un saldo pendiente del precio de la venta por
-parte de la Cooperativa mencionada, esta deberá otorgar las garantías
-hipotecarias y prendarias necesarias y suficientes a criterio del
-Instituto de Desarrollo Agrario.
+ARTÍCULO 6.- Autorización. Autorízase al Instituto de Desarrollo Rural(*) para vender la planta extractora de palma aceitera, actualmente a su nombre, a la Cooperativa Agroindustrial de Productores de Palma Aceitera R.L., cédula jurídica No. 3-004-078431. El precio de venta será determinado por la Junta Directiva de este Instituto, previo avalúo del Ministerio de Hacienda. En la eventualidad de que quede un saldo pendiente del precio de la venta por parte de la Cooperativa mencionada, esta deberá otorgar las garantías hipotecarias y prendarias necesarias y suficientes a criterio del Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

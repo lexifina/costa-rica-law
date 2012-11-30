@@ -1,6 +1,2 @@
-Artículo 9º.- De los terrenos que adquiera el SENARA conforme con el
-artículo 8º de esta Ley, el Instituto de Desarrollo Agrario podrá
-adquirir aquellos que no sean utilizados en obras de infraestructura. El
-monto que deba pagar por ellos se determinará conforme con un avalúo que
-realizará la Dirección General de la Tributación Directa, al momento del
-traspaso de los bienes.
+Artículo 9º.- De los terrenos que adquiera el SENARA conforme con el artículo 8º de esta Ley, el Instituto de Desarrollo Rural(*) podrá adquirir aquellos que no sean utilizados en obras de infraestructura. El monto que deba pagar por ellos se determinará conforme con un avalúo que realizará la Dirección General de la Tributación Directa, al momento del traspaso de los bienes.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

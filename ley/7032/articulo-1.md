@@ -92,9 +92,9 @@ a) El Ministro o el Viceministro de Agricultura y Ganadería, quien lo presidir�
 b) El Director General Forestal, quien actuará como secretario, excepto cuando represente al
 Ministro o al Viceministro, caso en el cual el Subdirector General Forestal actuará como secretario.
 c) El Ministro de Planificación Nacional y Política Económica o su representante.
-ch) El Presidente Ejecutivo del Instituto de Desarrollo Agrario o su representante.
-d) El Presidente Ejecutivo del Instituto Costarricense de Acueductos y Alcantarillados o su
-representante.
+ch) El Presidente Ejecutivo del Instituto de Desarrollo Rural(*) o su representante.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+d) El Presidente Ejecutivo del Instituto Costarricense de Acueductos y Alcantarillados o su representante.
 e) Un representante de la Cámara Nacional de Empresarios Forestales.
 f) Un representante de las corporaciones forestales.
 g) Un representante de las cooperativas forestales.
@@ -130,7 +130,8 @@ Artículo 37.—Al establecer reservas forestales, zonas protectoras, parques na
 Cuando se trate de parques nacionales y de reservas biológicas, los terrenos serán adquiridos por compra o por expropiación, o por ambas. En el caso de reservas forestales, zonas protectoras y refugios de vida silvestre, los predios o partes de predios también se deberán comprar o expropiar, salvo que, a requerimiento de la Dirección General Forestal, sus propietarios acepten someterse al régimen forestal respectivo. Dicha sujeción al régimen forestal será notificada al Registro Público de la Propiedad para la anotación correspondiente, la cual se mantendrá durante el tiempo que establezca el plan de manejo.
 Artículo 38.—El Ministerio de Agricultura y Ganadería, por medio de la Dirección General Forestal o del Servicio de Parques Nacionales, delimitará, en el terreno, los linderos de las áreas que conforman el patrimonio forestal del Estado.
 El procedimiento de deslinde será fijado en el reglamento de esta ley. Se habilita a la Dirección General Forestal para crear el catálogo de utilidad pública, cuyos efectos serán regulados por vía reglamentaria.
-Artículo 39.—El Poder Ejecutivo, por medio del Ministerio de Agricultura y Ganadería, administrará las reservas nacionales. También deberá traspasar al Instituto de Desarrollo Agrario aquellos terrenos que éste le solicite, exclusivamente cuando hayan sido calificados de aptitud agropecuaria.
+Artículo 39.—El Poder Ejecutivo, por medio del Ministerio de Agricultura y Ganadería, administrará las reservas nacionales. También deberá traspasar al Instituto de Desarrollo Rural(*) aquellos terrenos que éste le solicite, exclusivamente cuando hayan sido calificados de aptitud agropecuaria.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Artículo 40.—El área de las reservas forestales, zonas protectoras, parques nacionales, refugios de vida silvestre, reservas biológicas del patrimonio forestal, sólo podrá ser reducida por ley de la República, previos los estudios técnicos correspondientes que justifiquen esta medida.
 Artículo 41.—La Dirección General Forestal podrá otorgar concesiones para el aprovechamiento de productos forestales provenientes de terrenos y bosques del patrimonio forestal del Estado, lo cual no origina, derecho real alguno sobre el inmueble a favor del concesionario.
 Artículo 42.—La construcción, uso y mantenimiento de caminos y mejoras que sean necesarias para el aprovechamiento de los recursos naturales renovables y no renovables, existentes en terrenos y bosques pertenecientes al patrimonio forestal del Estado, o que se hayan realizado a raíz de cualquier otro tipo de concesión otorgada, serán efectuados con recursos de los interesados, de acuerdo con las especificaciones que la Dirección General Forestal fije por vía reglamentaria o contractual.

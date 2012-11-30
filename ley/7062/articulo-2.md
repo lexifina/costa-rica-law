@@ -1,6 +1,8 @@
-Artículo 2°—Apruébanse los Contratos de Préstamo y Garantía suscritos el 21 de abril de 1986 entre el Instituto de Desarrollo Agrario, el Gobierno de la República de Costa Rica y la Commonwealth Development Corporation, por ocho millones ochocientos mil libras esterlinas (£ 8.800.0-00). destinadas a financiar la planta procesadora de aceite para el Proyecto Agroindustrial de Coto Sur, cuyos textos son los siguientes:
+Artículo 2°—Apruébanse los Contratos de Préstamo y Garantía suscritos el 21 de abril de 1986 entre el Instituto de Desarrollo Rural(*), el Gobierno de la República de Costa Rica y la Commonwealth Development Corporation, por ocho millones ochocientos mil libras esterlinas (£ 8.800.0-00). destinadas a financiar la planta procesadora de aceite para el Proyecto Agroindustrial de Coto Sur, cuyos textos son los siguientes:
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 FECHADO el 21 de abril de 1986
-INSTITUTO DE DESARROLLO AGRARIO
+INSTITUTO DE DESARROLLO RURAL(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Y
 COMMONWEALTH DEVELOPMENT CORPORATION
 CONTRATO DE PRÉSTAMO
@@ -8,11 +10,13 @@ relativo al financiamiento de una planta
 extractora de aceite de palma africana que
 se establecerá en Coto Sur, Costa Rica
 PARTES CONTRATANTES
-(1) INSTITUTO DE DESARROLLO AGRARIO (el “Deudor”)
+(1) INSTITUTO DE DESARROLLO RURAL(*) (el “Deudor”)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 (2) COMMONWEALTH DEVELOPMENT CORPORATION (“CDC”)
 EL PRESENTE CONTRATO DE PRÉSTAMO se celebra el día 21 de abril de 1986
 ENTRE
-(1) INSTITUTO DE DESARROLLO AGRARIO, institución autónoma establecida por la Ley de Creación del Instituto de Desarrollo Agrario (N° 6735 del 29 de marzo de 1982) con domicilio en San José, Costa Rica (en adelante llamado aquí el “Deudor”) por una parte; y
+(1) INSTITUTO DE DESARROLLO RURAL(*), institución autónoma establecida por la Ley de Creación del Instituto de Desarrollo Rural(*) (N° 6735 del 29 de marzo de 1982) con domicilio en San José, Costa Rica (en adelante llamado aquí el “Deudor”) por una parte; y
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 (2) COMMONWEALTH DEVELOPMENT CORPORATION, una empresa creada por ley, constituida en el Reino Unido, cuya oficina principal se encuentra en 33 Hill Street, Londres W1A 3AR, Inglaterra (en adelante llamada aquí la “CDC”) por otra parte.
 CONSIDERANDO
 A) El Deudor se propone realizar el Proyecto que se describe en el Anexo 1 para el desarrollo de aproximadamente 13.000 hectáreas de tierras en los alrededores de Coto Sur en la región Brunca de Costa Rica.
@@ -207,7 +211,8 @@ SECCIÓN 8 — AMORTIZACIÓN INMEDIATA
 (15) que la Cooperativa deje de llevar adelante todas, o una parte considerable de sus operaciones;
 (16) que el monto o el saldo de cualquier préstamo a plazo fijo hecho al Deudor por un acreedor fuera de Costa Rica (inclusive cualquier otro préstamo hecho por la CDC) u otra deuda del Deudor respecto de sumas recibidas en préstamo de un acreedor fuera de Costa Rica llegue a hacerse exigible antes de su vencimiento establecido, por motivo de incumplimiento o por motivo de requerimiento de pago inmediato por parte de persona o personas con derecho a su beneficio;
 (17) incumplimiento en observar o satisfacer alguna obligación de parte del Fiador que deba observarse o satisfacerse de conformidad con cualquier contrato que haya ido o que en el futuro pueda ser celebrado entre el Fiador y la CDC en el que se disponga la garantía por parte del Fiador del pago de sumas de dinero debidas a la CDC por alguna persona (pero excluyendo el Contrato de Garantía);
-(18) la reforma, suspensión, abrogación o derogación de la Ley de Creación del Instituto de Desarrollo Agrario (N° 6735 del 29 de marzo de 1982) o cualquier alteración de la estructura, la organización, las facultades, las responsabilidades o los recursos financieros del Deudor que afecte de un modo sustancial y adverso la capacidad del Deudor para cumplir sus obligaciones conforme con el presente Contrato, el Contrato de Préstamo Subsidiario, el Contrato de Delegación o el Contrato de Infraestructura.
+(18) la reforma, suspensión, abrogación o derogación de la Ley de Creación del Instituto de Desarrollo Rural(*) (N° 6735 del 29 de marzo de 1982) o cualquier alteración de la estructura, la organización, las facultades, las responsabilidades o los recursos financieros del Deudor que afecte de un modo sustancial y adverso la capacidad del Deudor para cumplir sus obligaciones conforme con el presente Contrato, el Contrato de Préstamo Subsidiario, el Contrato de Delegación o el Contrato de Infraestructura.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 SECCIÓN 9 — AMORTIZACIÓN ANTICIPADA
 9.01 A partir de y después de la Fecha de Cierre, el Deudor tendrá el derecho, oportunamente, de darle a la CDC aviso con no menos de tres meses de anticipación sobre su intención de efectuar la amortización anticipada de todo o parte del Préstamo CDC, SIEMPRE Y CUANDO:
 (1) el monto de cada amortización anticipada sea un múltiplo entero del monto total pagadero en cada una de las fechas de amortización del capital a cuales se refiere la Cláusula 7.01;
@@ -271,11 +276,12 @@ SECCIÓN 17 — VARIOS
 17.01 Todo aviso que deba darse bajo el presente Contrato se podrá dar mandándolo por correo por la ruta más rápida disponible, o por cable de servicio ordinario, o por télex (si el destinatario tiene instalaciones de télex) dirigido a la parte de quien se trate en su dirección tal como se da en la Cláusula 17.02 o en cualquier otra dirección para tal fin que dicha parte haya comunicado por escrito a la parte que dé el aviso o entregándolo personalmente al destinatario en dicha dirección, y todo aviso así dado se tendrá por entregado siete día después de haberse puesto en el correo o veinticuatro horas después de haberse entregado a la oficina del cable o, según sea el caso, en la fecha en que se entregó personalmente o se envió por télex según queda dicho.
 17.02 Las direcciones a que se hace referencia en la Cláusula que antecede son las siguientes:
 (1) en el caso de un aviso dado al Deudor:
-Instituto de Desarrollo Agrario,
+Instituto de Desarrollo Rural(*),
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Apartado Postal 5054,
 San José, Costa Rica.
-Dirección cablegráfica: IDA, San José,
-Costa Rica
+Dirección cablegráfica: INDER(*), San José, Costa Rica
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 (2) en el caso de un aviso dado a la CDC:
 Commonwealth Development Corporation,
 33 Hill Street,
@@ -330,7 +336,7 @@ Crédito para Plantaciones Permanentes - | |
 Inversión en Infraestructura | | 9.8 9.4
 Planta Extractora | | 9.8
 Maquinaria, Equipo y Repuestos | | 1.7
-Costos Concurrentes - Titulación de Tierras Gastos de personal en incremento – IDA Promoción, capacitación y organización de los productores | 0.2 0.6 0.5 |
+Costos Concurrentes - Titulación de Tierras Gastos de personal en incremento – INDER(*) (*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural") Promoción, capacitación y organización de los productores | 0.2 0.6 0.5 |
 Imprevistos | | 1.3
 Escalamiento de Precios | | 2.7
 Gastos Financieros | | 3.9
@@ -374,7 +380,8 @@ Manifestaciones garantizadas como ciertas y exactas
 1 El balance de situación del Deudor al 31 de diciembre de 1984 y su estado de ganancias y pérdidas correspondiente al período de doce meses hasta dicha fecha, copias de los cuales han sido proporcionadas a la CDC, han sido preparados de conformidad con principios contables de general aceptación debidamente aplicados y dan una idea cierta y justa de la situación financiera del Deudor en esa fecha y de sus resultados financieros correspondientes a dicho período, y desde tal fecha no ha habido ningún cambio adverso significativo en la situación financiera del Deudor. Los estados mencionados muestran todo el pasivo significativo, tanto contingente como de cualquier otra índole.
 2 El Deudor es una institución autónoma debidamente creada y con existencia legal de acuerdo con las leyes de Costa Rica y con las facultades para poseer bienes y activos propios, llevar adelante sus actividades como lo hace actualmente, ejecutar y llevar a cabo el Proyecto y celebrar el presente Contrato.
 3 El presente Contrato ha sido debidamente autorizado, otorgado y entregado por el Deudor y constituye obligaciones legales, válidas y vinculantes del Deudor que pueden hacerse cumplir de acuerdo con sus términos expresos.
-4 Ni el otorgamiento del presente Contrato ni el recibo en préstamo por parte del Deudor de alguna suma conforme con el mismo, entrarán en conflicto con, ni constituirán infracción de ninguno de los términos, condiciones o disposiciones de, ni constituirán incumplimiento o requerirán ningún consentimiento conforme con escritura, contrato u otro instrumento del cual el Deudor sea parte o por medio del cual esté obligado, ni violación de ninguno de los términos o disposiciones de la Ley de Creación del Instituto de Desarrollo Agrario o de ningún fallo, decreto u orden, o decreto legislativo, ley, regla, o reglamento aplicable al Deudor.
+4 Ni el otorgamiento del presente Contrato ni el recibo en préstamo por parte del Deudor de alguna suma conforme con el mismo, entrarán en conflicto con, ni constituirán infracción de ninguno de los términos, condiciones o disposiciones de, ni constituirán incumplimiento o requerirán ningún consentimiento conforme con escritura, contrato u otro instrumento del cual el Deudor sea parte o por medio del cual esté obligado, ni violación de ninguno de los términos o disposiciones de la Ley de Creación del Instituto de Desarrollo Rural(*) o de ningún fallo, decreto u orden, o decreto legislativo, ley, regla, o reglamento aplicable al Deudor.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 5 El Deudor le ha dado a la CDC por escrito toda la información, estimaciones y pronósticos pertinentes para ser revelados a personas que estén considerando hacer un préstamo considerable al Deudor. Toda la información, las estimaciones y los pronósticos revelados fueron preparados con el debido cuidado y el Deudor no conoce razón alguna por la cual la información las estimaciones o los pronósticos dichos deban ahora alterarse en algún sentido significativo.
 6 No ha habido ningún acontecimiento que constituya o que, mediante aviso o el transcurso del tiempo, o ambas cosas, constituirá un .incumplimiento o haría inmediatamente pagadero o amortizable por parte del Deudor cualquier préstamo a plazo fijo u otra deuda del Deudor.
 7 El Deudor ha obtenido todas las aprobaciones y otras autorizaciones que por el momento se necesitan bajo las leyes de Costa Rica para permitirle llevar a cabo y terminar el Proyecto.
@@ -387,15 +394,18 @@ Forma de Recibo
 RECIBIDA el día de de 19
 de la COMMONWEALTH DEVELOPMENT CORPORATION, cuya oficina principal se encuentra en 33 Hill Street, Londres W1A 3AR, Inglaterra, la suma de
 en libras esterlinas del Reino Unido/US$
-suma que es un anticipo hecho de conformidad con las disposiciones de un Con trato de Préstamo fechado el día de de 1986 y celebrado entre el Instituto de Desarrollo Agrario por una parte, y dicha Commonwealth Development Corporation, por la otra.
+suma que es un anticipo hecho de conformidad con las disposiciones de un Con trato de Préstamo fechado el día de de 1986 y celebrado entre el Instituto de Desarrollo Rural(*) por una parte, y dicha Commonwealth Development Corporation, por la otra.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Fechado el día de de 19
 Firmado por
 por y a nombre del
-Instituto de Desarrollo Agrario
+Instituto de Desarrollo Rural(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 FIRMADO en Londres, Inglaterra por
 MARIO E. COTO CARRANZA
-por y a nombre del INSTITUTO DE DESARROLLO AGRARIO en presencia
+por y a nombre del INSTITUTO DE DESARROLLO RURAL(*) en presencia
 de:
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 FIRMADO en Londres, Inglaterra por
 JAMES RIDLEY TOCKETT
 por y a nombre de COMMONWEALTH
@@ -406,7 +416,8 @@ Y
 COMMONWEALTH DEVELOPMENT CORPORATION
 EL CONTRATO DE GARANTÍA
 Relativo a un préstamo que se hará al
-Instituto de Desarrollo Agrario
+Instituto de Desarrollo Rural(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 PARTES CONTRATANTES
 (1) LA REPÚBLICA DE COSTA RICA (el “Fiador”)
 (2) COMMONWEALTH DEVELOPMENT CORPORATION (“CDC”)
@@ -414,7 +425,8 @@ EL PRESENTE CONTRATO se celebra el día 21 de abril de 1986, ENTRE:
 (1) LA REPÚBLICA DE COSTA RICA (en adelante llamada aquí “el Fiador”) representada en este acto por el Ministerio de Hacienda; y
 (2) COMMONWEALTH DEVELOPMENT CORPORATION, una corporación creada por ley, constituida en el Reino Unido, cuya oficina principal se encuentra en 33 Hill Street, Londres W1A 3AR, Inglaterra (en adelante llamada aquí “la CDC”, expresión que, donde el contexto lo permita, incluye a sus derechohabientes).
 CONSIDERANDO:
-A) A solicitud del Fiador, la CDC ha convenido, conforme y con sujeción a los términos y las condiciones del Contrato de Préstamo fechado el día 21 de abril de 1986, en prestarle al Instituto de Desarrollo Agrario (una institución autónoma de la República de Costa Rica, en adelante llamado aquí “el Deudor”) hasta la suma de i 8,800,000 con el fin de financiar parte del costo de una planta extractora de aceite de palma africana que se establecerá en Coto Sur, Costa Rica.
+A) A solicitud del Fiador, la CDC ha convenido, conforme y con sujeción a los términos y las condiciones del Contrato de Préstamo fechado el día 21 de abril de 1986, en prestarle al Instituto de Desarrollo Rural(*) (una institución autónoma de la República de Costa Rica, en adelante llamado aquí “el Deudor”) hasta la suma de i 8,800,000 con el fin de financiar parte del costo de una planta extractora de aceite de palma africana que se establecerá en Coto Sur, Costa Rica.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 B) Las obligaciones de la CDC conforme con dicho Contrato de Préstamo están supeditadas a que el Fiador convenga en otorgar a la CDC el beneficio de la Garantía y los compromisos que aparecen más adelante en el presente Contrato.
 POR TANTO, POR ESTE MEDIO SE CONVIENE en lo siguiente:
 SECCIÓN 1 — INTERPRETACIÓN

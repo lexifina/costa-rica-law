@@ -66,22 +66,8 @@ como Unidad Ejecutora de las actividades que se realizarán en el
 área del Proyecto, incluidas las que se ejecuten en el Distrito
 Zapandí, de cuya capacidad legal y financiera para actuar como
 tal deja constancia el Prestatario.
-b) En la ejecución del Proyecto, el SENARA contará con la
-colaboración del Ministerio de Agricultura y Ganadería ("MAG")
-para la generación de conocimientos en cultivos bajo riego y para
-la ejecución de las medidas de protección ambiental; del
-Instituto de Desarrollo Agrario ("IDA") para la adquisición de
-tierras en el subdistrito Piedras, la selección de nuevos
-productores y la adjudicación de las parcelas a los mismos; del
-Banco Nacional de Costa Rica ("BNCR") para el otorgamiento de
-crédito y el cobro de las tarifas; del Instituto Nacional de
-Aprendizaje ("INA") para la capacitación de los productores; de
-la Universidad de Costa Rica ("UCR") para la capacitación y el
-adiestramiento del personal profesional y técnico del SENARA y
-para la ejecución de las medidas de protección ambiental; y del
-Museo Nacional de Costa Rica ("MNCR") para la ejecución de las
-medidas de protección ambiental (en adelantedenominados
-conjuntamente las "instituciones coparticipantes").
+b) En la ejecución del Proyecto, el SENARA contará con la colaboración del Ministerio de Agricultura y Ganadería ("MAG") para la generación de conocimientos en cultivos bajo riego y para la ejecución de las medidas de protección ambiental; del Instituto de Desarrollo Rural ("INDER")(*) para la adquisición de tierras en el subdistrito Piedras, la selección de nuevos productores y la adjudicación de las parcelas a los mismos; del Banco Nacional de Costa Rica ("BNCR") para el otorgamiento de crédito y el cobro de las tarifas; del Instituto Nacional de Aprendizaje ("INA") para la capacitación de los productores; de la Universidad de Costa Rica ("UCR") para la capacitación y el adiestramiento del personal profesional y técnico del SENARA y para la ejecución de las medidas de protección ambiental; y del Museo Nacional de Costa Rica ("MNCR") para la ejecución de las medidas de protección ambiental (en adelantedenominados conjuntamente las "instituciones coparticipantes").
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 CAPITULO II
 Elementos Integrantes del Contrato
 Cláusula 2.01. Elementos integrantes del Contrato. Este Contrato
@@ -176,9 +162,8 @@ Venezuela (FIV) los instrumentos que sean apropiados para la
 formalización y el desembolso del préstamo del FIV referido en
 al Cláusula 6.04 a) i) o, en su defecto, se ha comprobado la
 existencia de una fuente alternativa de financiamiento.
-iii) el IDA posee títulos de dominio inscritos en el Registro
-Público de no menos de dos mil (2.000) hectáreas regables
-netas ubicadas en el Subdistrito Piedras.
+iii) el INDER(*) posee títulos de dominio inscritos en el Registro Público de no menos de dos mil (2.000) hectáreas regables netas ubicadas en el Subdistrito Piedras.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 iv) el SENARA ha suscrito con la instituciones coparticipantes
 sendos acuerdos en los que se determinen derechos y
 obligaciones en la ejecución del Proyecto.
@@ -452,12 +437,8 @@ informes antes citados, la existencia en el área de influencia del
 proyecto de alguna alteración ecológica que pueda generar un impacto
 ambiental adverso de importancia, el Prestatario deberá adoptar las
 medidas que sena necesarias para controlarla y/o mitigarla.
-Cláusula 6.14. Títulos de dominio. Dentro de los veinticuatro (24)
-meses de la vigencia del contrato, el Prestatario, a través del SENARA,
-deberá demostrar a satisfacción del Banco que el IDA, en adición a la
-superficie señalada en la cláusula 4.02 (a) (iii), posee títulos de
-dominio inscritos en el Registro Público de no menos de mil doscientas
-(1.200) hectáreas regables netas ubicadas en el subdistrito Piedras.
+Cláusula 6.14. Títulos de dominio. Dentro de los veinticuatro (24) meses de la vigencia del contrato, el Prestatario, a través del SENARA, deberá demostrar a satisfacción del Banco que el INDER(*), en adición a la superficie señalada en la cláusula 4.02 (a) (iii), posee títulos de dominio inscritos en el Registro Público de no menos de mil doscientas (1.200) hectáreas regables netas ubicadas en el subdistrito Piedras.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Cláusula 6.15. Selección de beneficiarios y posesión provisoria de
 las parcelas. Dentro de los plazos de treinta (30) y cuarenta y dos (42)
 meses de la vigencia del contrato, el Prestatario, a través del SENARA,
@@ -1500,8 +1481,8 @@ operación y administración. Logros en la ejecución del plan
 anual de mantenimiento.
 c) En materia de tenencia de la tierra
 i) La clasificación de las explotaciones con base en su tamaño.
-ii) Las áreas adquiridas por el IDA, redistribuidas y tituladas,
-por subdistrito.
+ii) Las áreas adquiridas por el INDER(*), redistribuidas y tituladas, por subdistrito.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 d) En materia de utilización de la tierra y producción agropecuaria.
 i) La producción agrícola y precios promedios para cada cultivo,
 productividad por hectárea bajo riego y secano (promedio y

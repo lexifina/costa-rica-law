@@ -1,0 +1,3 @@
+TRANSITORIO II.- Convenio colectivo, pensiones y jubilaciones
+Consérvanse los derechos laborales contemplados en el convenio colectivo, en el Reglamento Autónomo de Servicios y en todas las leyes y reglamentos que tutelan los derechos de los trabajadores.
+Los funcionarios del Inder con derecho a pensión tienen un año plazo a partir de la entrada en vigencia de esta ley; podrán acogerse al disfrute de diez años por concepto de cesantía en un solo pago. Los demás años laborados serán reconocidos con un beneficio a razón de un veinticinco por ciento (25%) por cada año laborado, pagaderos en dos tractos, en un término de dos años contados a partir de la publicación de la presente ley.

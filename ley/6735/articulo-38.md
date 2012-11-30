@@ -1,3 +1,1 @@
-Artículo 38.- DEROGADO
-(Derogado por el artículo 19 inciso 1) de la Ley Nº 7097 de 1 de
-setiembre de 1988).
+Artículo 38.- (Derogado por el artículo 19 inciso 1) de la Ley Nº 7097 de 1 de setiembre de 1988. Posteriormente por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)"), se vuelve a derogar este numeral)
