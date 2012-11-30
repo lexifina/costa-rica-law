@@ -24,9 +24,9 @@ PDESC: Porcentaje aplicable por concepto de descuento
 por volumen.
 PUDIST: Porcentaje de utilidad presuntiva de
 distribución.
-IIDA: Monto del impuesto a favor del Instituto de
-Desarrollo Agrario.
-IGV: Monto del impuesto general sobre las ventas.
+IINDER: Monto del impuesto a favor del Instituto de
+Desarrollo Rural(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural") IGV: Monto del impuesto general sobre las ventas.
 TISC: Tarifa porcentual del impuesto selectivo de
 consumo.
 Todos los elementos porcentuales consignados en la fórmula anterior
