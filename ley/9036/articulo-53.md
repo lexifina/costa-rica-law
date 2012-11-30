@@ -1,0 +1,2 @@
+ARTÍCULO 53.- Plazos
+El plazo de vigencia en todo arrendamiento que otorgue el Inder será hasta de cinco años, prorrogable por períodos iguales de común acuerdo. Vencido el plazo, las eventuales renovaciones serán autorizadas en función del desarrollo mostrado por el proyecto, previo estudio correspondiente, sin perjuicio de que pueda otorgarse un plazo mayor en función del proyecto productivo previo al estudio correspondiente. En casos de instituciones públicas, el Inder podrá otorgar plazos de mayor vigencia.

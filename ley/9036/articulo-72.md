@@ -1,0 +1,2 @@
+ARTÍCULO 72.- Autorización de traspaso de tierras
+La Junta Directiva podrá donar a otras instituciones estatales terrenos que adquiera dentro del territorio rural o que estén bajo su propiedad, independientemente del origen de los recursos con que fueron adquiridos, a efectos de llenar necesidades de tipo comunal, social, deportivo, cultural, sanitario, ambiental o educativo, previo estudio técnico de viabilidad del proyecto y de recomendación por parte de los Fondos de Tierras y de Desarrollo Rural.

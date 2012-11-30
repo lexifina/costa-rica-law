@@ -1,0 +1,3 @@
+ARTÍCULO 23.- Dietas
+La asistencia puntual de los miembros de la Junta Directiva a las sesiones les dará derecho a cobrar dietas y estas serán las únicas remuneraciones que podrán percibir por sus servicios, en el desempeño de sus funciones. Por vía reglamentaria y conforme a las disposiciones de la Ley General de la Administración Pública y otras normas conexas, se regularán el monto y el límite de esas dietas.
+EI presidente ejecutivo y los ministros y viceministros no tendrán derecho al cobro de dietas, además de su salario, ni lo tendrá ningún otro funcionario del Inder que por algún motivo asista a las sesiones.
