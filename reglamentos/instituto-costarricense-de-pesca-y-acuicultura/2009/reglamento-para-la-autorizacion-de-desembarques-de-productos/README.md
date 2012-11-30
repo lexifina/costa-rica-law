@@ -15,3 +15,4 @@ Reglamento para la autorización de desembarques de productos pesqueros provenie
 | --- | --- | --- |
 | 1 | 2009-03-05 | la propia norma |
 | 2 | 2012-01-27 | Acuerdo 29 (2012-01-27) |
+| 3 | 2012-11-30 | Acuerdo 458 (2012-11-30) |

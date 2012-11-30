@@ -24,3 +24,4 @@ Flota Artesanal Media y Flota Avanzada:
 Playa Portete y Cieneguita.
 De conformidad con los dispuesto y competencias otorgadas, por la Ley N ° 8495, en todos los sitios indicados anteriormente, corresponderá a las autoridades del SENASA velar por la aplicación y el ejercicio de las competencias relativas a las condiciones mínimas o básicas sobre sanidad e inocuidad y trazabilidad de los recursos hidrobiológicos que en dichos sitios se desembarquen.
 (Así adicionado mediante acuerdo A.J.D.I.P.029-2012 del 27 de enero del 2012)
+(Nota de Sinalevi: Mediante acuerdo AJDIP/458-2012 del 30 de noviembre del 2012, se acuerda prorrogar de manera indefinidad, hasta tanto no se resuelva en contrario, la vigencia del acuerdo A.J.D.I.P.029-2012 del 27 de enero del 2012, el cual adicionó este numeral, en las mismas condiciones y términos contenidos en el mismo)
