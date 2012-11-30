@@ -750,7 +750,7 @@ Instituto Costarricense de Acueductos y alcantarillados –AYA | Si | Si
 Consejo Nacional de la Producción – CNP | Si | Si
 Consejo Nacional de Investigaciones Científicas y Tecnológicas –CONICIT | Si | Si
 Instituto Nacional de Aprendizaje – INA | Si | No
-Instituto de Desarrollo Agrario – IDA | Si | No
+Instituto de Desarrollo Rural – INDER(*) (*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural") | Si | No
 Instituciones Autónomas | Instituto Costarricense de Turismo – ICT | Si | No
 Instituto Costarricense de Puertos del Pacifico – INCOOP | Si | No
 Instituto de Fomento y Asesoría Municipal- IFAM | Si | Si

@@ -1,6 +1,6 @@
 # Tratado de Libre Comercio República Dominicana - Centroamérica - Estados Unidos (TLC)
 
-Tratados Internacionales N° 8622 del 2007-11-21. SINALEVI, ficha 62270: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=62270&param2=87643&param3=1>.
+Tratados Internacionales N° 8622 del 2007-11-21. SINALEVI, ficha 62270: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=62270&param2=94426&param3=1>.
 
 Publicada en La Gaceta N° 246 del 2007-12-21.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 21 | 2011-07-15 | Decreto Ejecutivo 36596 (2011-05-26) | 2011-05-26 |
 | 7 de 21 | 2011-08-08 | Decreto Ejecutivo 36680 (2011-06-24) | 2011-06-24 |
 | 8 de 21 | 2012-02-10 | Decreto Ejecutivo 36981 (2011-12-19) | 2011-12-19 |
+| 9 de 21 | 2012-11-30 | Ley 9036 | 2012-05-11 |
