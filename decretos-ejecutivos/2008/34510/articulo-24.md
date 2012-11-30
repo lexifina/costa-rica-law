@@ -2,4 +2,4 @@ Artículo 24.—De la Dirección de Atención al Cliente. La Dirección de Atenc
 Esta Dirección cuenta con las siguientes unidades organizativas:
 a) Unidad de Plataforma de Servicios.
 b) Unidad de Gestión de Trámites.
-c) Unidad de Contraloría de Servicios Institucionales.
+c) (Derogado por el artículo 3° del decreto ejecutivo N° 37497 del 30 de noviembre de 2012)

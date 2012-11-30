@@ -15,3 +15,4 @@ Reglamento Orgánico del Ministerio de Salud
 | --- | --- | --- |
 | 1 | 2008-06-02 | la propia norma |
 | 2 | 2012-06-27 | Decreto Ejecutivo 37270 (2012-06-27) |
+| 3 | 2012-11-30 | Decreto Ejecutivo 37497 (2012-11-30) |

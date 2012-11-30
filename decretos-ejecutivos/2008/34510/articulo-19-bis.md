@@ -1,0 +1,3 @@
+Artículo 19 bis.- De la Unidad de Contraloría de Servicios.
+La Unidad de Contraloría de Servicios es una unidad organizativa dependiente orgánicamente del Ministro de Salud. Su objetivo consiste en involucrar a la ciudadanía en la fiscalización de la prestación de los servicios públicos, mediante el ejercicio de su derecho de petición y manifestación de su inconformidad en forma individual o colectiva sobre la calidad de los servicios, con el propósito de garantizarle de esta manera que sus demandas sean escuchadas y resueltas.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 37497 del 30 de noviembre de 2012)
