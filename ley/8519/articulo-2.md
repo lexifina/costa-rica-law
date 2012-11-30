@@ -1,1 +1,2 @@
-Artículo 2º—Autorízase al Instituto de Desarrollo Agrario para que levante las limitaciones existentes en los inmuebles descritos en el artículo anterior, con el fin de que el Concejo Municipal del distrito de Cervantes pueda traspasar el dominio de sus predios.
+Artículo 2º—Autorízase al Instituto de Desarrollo Rural(*) para que levante las limitaciones existentes en los inmuebles descritos en el artículo anterior, con el fin de que el Concejo Municipal del distrito de Cervantes pueda traspasar el dominio de sus predios.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

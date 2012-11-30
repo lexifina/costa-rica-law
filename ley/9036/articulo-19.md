@@ -1,0 +1,4 @@
+ARTÍCULO 19.- Requisitos
+Para ser miembro de la Junta Directiva es necesario ser costarricense por nacimiento o naturalización, con diez años de residencia en el país como mínimo, y no estar inhabilitado para ejercer cargos públicos.
+No podrán ser designados miembros de la Junta Directiva quienes estén ligados entre sí o con jefes de departamento o funcionarios de más alto nivel de la institución, por parentesco de consanguinidad o afinidad, hasta el tercer grado inclusive. Tampoco podrán serlo personeros o empleados del propio Inder.
+Cuando, con posterioridad al nombramiento, se compruebe la existencia de alguno de los impedimentos a que se refiere el párrafo anterior, se considerará nula la designación del miembro. Si la causa del impedimento es sobreviniente, caducará el nombramiento desde el momento en que surgió esa causa.

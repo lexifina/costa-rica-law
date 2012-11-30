@@ -1,4 +1,2 @@
-ARTÍCULO 26.- La adquisición de terrenos y su adjudicación por parte
-del Instituto de Desarrollo Agrario de acuerdo con sus competencias
-legales, deberá tomar en cuenta las directrices definidas en el Plan
-nacional y los planes por áreas de manejo y conservación de suelos.
+ARTÍCULO 26.- La adquisición de terrenos y su adjudicación por parte del Instituto de Desarrollo Rural(*) de acuerdo con sus competencias legales, deberá tomar en cuenta las directrices definidas en el Plan nacional y los planes por áreas de manejo y conservación de suelos.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

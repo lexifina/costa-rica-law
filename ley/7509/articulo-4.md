@@ -4,7 +4,8 @@ ARTÍCULO 4.- Inmuebles no afectos al impuesto. No están afectos a este impuest
 a) Los inmuebles del Estado, las municipalidades, las instituciones autónomas y semiautónomas que, por ley especial, gocen de exención.
 b) Los inmuebles que constituyan cuencas hidrográficas o hayan sido declarados, por el Poder Ejecutivo, reserva forestal, indígena o biológica, parque nacional o similar.
 c) Las instituciones públicas de educación y de salud.
-d) Los parceleros o los adjudicatarios del Instituto de Desarrollo Agrario (IDA), durante los primeros cinco años de la adjudicación.
+d) Los parceleros o los adjudicatarios del Instituto de Desarrollo Rural (INDER)(*), durante los primeros cinco años de la adjudicación.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 e) Los inmuebles que constituyan bien único de los sujetos pasivos (personas físicas) y tengan un valor máximo equivalente a cuarenta y cinco salarios base; no obstante, el impuesto deberá pagarse sobre el exceso de esa suma. El concepto de "salario base" usado en esta Ley es el establecido en el artículo 2 de la Ley No. 7337, de 5 de mayo de 1993.
 (Así reformado por el artículo 1º, inciso b), de la ley No.7729 de 15 de diciembre de 1997)
 f) DEROGADO.-

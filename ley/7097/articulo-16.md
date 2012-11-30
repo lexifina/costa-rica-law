@@ -25,14 +25,8 @@ mil quinientos metros cuadrados de la Finca Vargas, ubicada en San
 Isidro. Este terreno se destinará para las siguientes organizaciones
 sociales: Movimiento Familiar Cristiano, Centro Diurno para Ancianos y
 Biblioteca Pública.
-6º.- Autorízase al Instituto de Desarrollo Agrario para que le
-traspase cinco manzanas de terreno al Concejo Municipal del distrito de
-Cervantes, de los terrenos que fueron propiedad de don Alfonso Madriz
-Zamora, o sea, de la Compañía Agrícola de Santiago. Estos terrenos se
-encuentran ubicados seiscientos metros al oeste del templo católico del
-distrito de Cervantes, frente a la carretera Nacional. Dos manzanas
-serán para el cementerio nuevo de Cervantes y tres para programas de
-vivienda para personas de escasos recursos económicos.
+6º.- Autorízase al Instituto de Desarrollo Rural(*) para que le traspase cinco manzanas de terreno al Concejo Municipal del distrito de Cervantes, de los terrenos que fueron propiedad de don Alfonso Madriz Zamora, o sea, de la Compañía Agrícola de Santiago. Estos terrenos se encuentran ubicados seiscientos metros al oeste del templo católico del distrito de Cervantes, frente a la carretera Nacional. Dos manzanas serán para el cementerio nuevo de Cervantes y tres para programas de vivienda para personas de escasos recursos económicos.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 7º.- Autorízase al Ministerio de Agricultura y Ganadería para que
 le done a la Municipalidad de Cañas el tractor (en mal estado) que tiene
 las siguientes características: marca Hinomoto BEST E 23 Nº de

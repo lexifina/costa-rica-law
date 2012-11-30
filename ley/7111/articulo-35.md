@@ -1,18 +1,5 @@
-ARTÖCULO 35.-Apru‚banse las siguientes autorizaciones al
-Estado y sus
-instituciones, para que traspasen, vendan, donen o segreguen
-bienes muebles e
-inmuebles de su propiedad:
-1. Autor¡zase al Ministerio de Obras P£blicas y Transportes
-para que le traspase a
-la Municipalidad del Cant¢n de Tib s, el resto de sus
-fincas inscritas en el
-partido de San Jos‚, tomos 1593, 2061, 2789, folios 292,
-398, 570 y 469, n£meros
-147283, 205609 y 281416, asientos 8, 5 y 1,
-respectivamente, cuyas reas constan
-en el plano catastrado N§. SJ-755471-88, con una medida
-total de 6.167,42 m2.
+ARTÖCULO 35.-Apru‚banse las siguientes autorizaciones al Estado y sus instituciones, para que traspasen, vendan, donen o segreguen bienes muebles e inmuebles de su propiedad:
+1. Autor¡zase al Ministerio de Obras P£blicas y Transportes para que le traspase a la Municipalidad del Cant¢n de Tib s, el resto de sus fincas inscritas en el partido de San Jos‚, tomos 1593, 2061, 2789, folios 292, 398, 570 y 469, n£meros 147283, 205609 y 281416, asientos 8, 5 y 1, respectivamente, cuyas reas constan en el plano catastrado N§. SJ-755471-88, con una medida total de 6.167,42 m2.
 Lo anterior para obras de ornato y recreaci¢n del cant¢n.
 2. Autor¡zase a la Municipalidad de Puriscal para que le
 done al Comit‚ de la Cruz
@@ -68,15 +55,8 @@ de que sea utilizado
 en el desarrollo de un proyecto de vivienda para
 funcionarios del Ministerio de
 Salud.
-6. Autor¡zase al Instituto de Desarrollo Agrario (IDA) para
-que le traspase a
-COOPROSUR, las tierras que ocupa el proyecto cooperativo
-de palma de esa
-cooperativa. El Poder Ejecutivo deber compensar,
-mediante el pago de bonos, el
-valor que el IDA le pag¢ a la Compa¤¡a Bananera de Costa
-Rica por estas mismas
-fincas.
+6. Autor¡zase al Instituto de Desarrollo Rural (INDER)(*) para que le traspase a COOPROSUR, las tierras que ocupa el proyecto cooperativo de palma de esa cooperativa. El Poder Ejecutivo deber compensar, mediante el pago de bonos, el valor que el INDER(*) le pag¢ a la Compa¤¡a Bananera de Costa Rica por estas mismas fincas.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 7. Autor¡zase a la Municipalidad de San Jos‚ para que le
 done al Club de Leones de
 Hatillo N§. 3, el terreno inscrito en los tomos

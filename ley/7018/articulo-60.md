@@ -1,5 +1,2 @@
-Artículo 60.- El Instituto de Desarrollo Agrario deberá utilizar los
-recursos provenientes de las sobretasas temporales a las importaciones, en
-resolver el problema agrario del cantón de Sarapiquí. Especialmente
-deberá adquirir las tierras necesarias para resolver la situación de los
-siguientes grupos: La Flaminia, California Tica, Baldíos de la Standard.
+Artículo 60.- El Instituto de Desarrollo Rural(*) deberá utilizar los recursos provenientes de las sobretasas temporales a las importaciones, en resolver el problema agrario del cantón de Sarapiquí. Especialmente deberá adquirir las tierras necesarias para resolver la situación de los siguientes grupos: La Flaminia, California Tica, Baldíos de la Standard.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

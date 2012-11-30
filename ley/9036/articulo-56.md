@@ -1,0 +1,2 @@
+ARTÍCULO 56.- Reconocimiento de mejoras
+Reconocimiento de mejoras y accesiones. Extinguida la modalidad de arrendamiento dentro del período de prueba o un contrato de asignación por motivos imputables al arrendatario o asignatario, respectivamente, las construcciones que existan en el terreno quedarán a favor del Inder, reconociendo este solamente las mejoras útiles y necesarias relacionadas con el objeto del contrato, sin que el incumpliente tenga derecho a retención. El contenido de esta disposición deberá incluirse dentro de las cláusulas del respectivo contrato.

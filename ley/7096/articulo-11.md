@@ -1,5 +1,2 @@
-Artículo 11.- Durante el período de prueba del nuevo
-"parcelario-beneficiario" en el Distrito de Riego Arenal-Tempisque, el
-Instituto de Desarrollo Agrario le dará un aval por el monto necesario, a
-efecto de que se le garantice el crédito ante los bancos del Sistema
-Bancario Nacional y pueda comenzar a producir.
+Artículo 11.- Durante el período de prueba del nuevo "parcelario-beneficiario" en el Distrito de Riego Arenal-Tempisque, el Instituto de Desarrollo Rural(*) le dará un aval por el monto necesario, a efecto de que se le garantice el crédito ante los bancos del Sistema Bancario Nacional y pueda comenzar a producir.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

@@ -1,0 +1,2 @@
+ARTÍCULO 62.- Período de prueba
+Las formas de asignación deberán contar con un período de prueba, bajo la modalidad de contrato de arrendamiento, por un período de tres años como mínimo. Vencido el término del contrato de arrendamiento, los asignatarios que hayan satisfecho todas las obligaciones tendrán derecho a que se les otorgue título de propiedad, garantizando el pago de la tierra y de los créditos otorgados por el Inder con hipoteca sobre su tierra y la presentación de la respectiva póliza de deudor que respalde sus deudas.
