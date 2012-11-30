@@ -1,7 +1,1 @@
-Artículo 30.- Las dependencias del Instituto estarán obligadas a
-presentar, al auditor, toda la información que ese funcionario les
-solicite, en la forma y en el plazo que él mismo determine. El auditor y
-los funcionarios de su dependencia, que él disponga, tendrán libre acceso
-a todos los libros, documentos, valores y archivos del Instituto. Los
-funcionarios y empleados estarán obligados a prestarle ayuda para el
-mejor desempeño de sus funciones de vigilancia y fiscalización.
+Artículo 30.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

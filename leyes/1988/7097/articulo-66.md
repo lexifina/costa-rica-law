@@ -1,17 +1,6 @@
-ARTICULO 66.-Autorízase a la Dirección General de Asignaciones
-Familiares, a la Caja Costarricense de Seguro Social y al Banco Popular
-y de Desarrollo Comunal, para que realicen un convenio con el Instituto
-Costarricense de Ferrocarriles, a efecto de lograr arreglos
-extraordinarios de pago de dicha institución con esas entidades.
-ARTICULO 67.- Autorízase al Instituto de Desarrollo Agrario para
-que, de los terrenos destinados a asentamientos campesinos, pueda
-segregar y trasladar lotes, por un precio simbólico, a cualquiera de las
-instituciones de los supremos poderes, instituciones autónomas y
-semiautónomas, municipalidades, organismos internacionales y
-asociaciones debidemente inscritas; en cuyos terrenos se vayan a
-instalar y poner a funcionar, por cuenta del cesionario, servicios
-considerados por el Estado de utilidad pública, para beneficio del
-asentamiento campesino.
+ARTICULO 66.-Autorízase a la Dirección General de Asignaciones Familiares, a la Caja Costarricense de Seguro Social y al Banco Popular y de Desarrollo Comunal, para que realicen un convenio con el Instituto Costarricense de Ferrocarriles, a efecto de lograr arreglos extraordinarios de pago de dicha institución con esas entidades.
+ARTICULO 67.- Autorízase al Instituto de Desarrollo Rural(*) para que, de los terrenos destinados a asentamientos campesinos, pueda segregar y trasladar lotes, por un precio simbólico, a cualquiera de las instituciones de los supremos poderes, instituciones autónomas y semiautónomas, municipalidades, organismos internacionales y asociaciones debidemente inscritas; en cuyos terrenos se vayan a instalar y poner a funcionar, por cuenta del cesionario, servicios considerados por el Estado de utilidad pública, para beneficio del asentamiento campesino.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 ARTICULO 68.- Autorízase al Consejo Nacional de la Producción para
 que segregue y traspase, a título oneroso, los siguientes terrenos,
 según acuerdo entre la Presidencia Ejecutiva del CNP y el sindicato de

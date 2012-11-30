@@ -1,1 +1,1 @@
-Transitorio VII.- El Gobierno Central, a través del Ministerio de Hacienda, tendrá a su cargo la atención del servicio de la deuda de los bonos autorizados en esta ley.
+Transitorio VII.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

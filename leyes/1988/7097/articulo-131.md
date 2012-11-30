@@ -1,21 +1,16 @@
-ARTICULO 131.- La Guardería Casa del Niño del Ministerio de Trabajo
-y Seguridad Social formará parte, para todos los efectos, de las
-guarderías del programa del Ministerio de Trabajo y Seguridad Social,
-que es financiado con fondos de Asignaciones Familiares.
-ARTICULO 132.-Los recursos asignados por el Estado al Programa
-Nacional de Cooperativas Juveniles de Producción, desde 1987, serán
-fiscalizados exclusivamente de conformidad con el artículo 31 de la ley
-Nº 6975 del 30 de noviembre de 1984.
+ARTICULO 131.- La Guardería Casa del Niño del Ministerio de Trabajo y Seguridad Social formará parte, para todos los efectos, de las guarderías del programa del Ministerio de Trabajo y Seguridad Social, que es financiado con fondos de Asignaciones Familiares.
+ARTICULO 132.-Los recursos asignados por el Estado al Programa Nacional de Cooperativas Juveniles de Producción, desde 1987, serán fiscalizados exclusivamente de conformidad con el artículo 31 de la ley Nº 6975 del 30 de noviembre de 1984.
 ARTICULO 133.- Autorízase el aumento de las pensiones de los
 premios nacionales "Magón", a treinta mil colones mensuales, monto que
 podrá ser revisado de acuerdo con la tasa del aumento del costo de la
 vida que fije el Banco Central de Costa Rica.
 ARTICULO 134.- Las cooperativas de autogestión y los asentamientos
-campesinos del Instituto de Desarrollo Agrario podrán ser beneficiarios
+campesinos del Instituto de Desarrollo Rural(*) podrán ser beneficiarios
 de los programas del Banco Hipotecario de la Vivienda. Para ello
 brindarán como garantía global la propiedad común destinada a viviendas
 y su garantía fiduciaria. El bono familiar se otorgará bajo las mismas
 condiciones que señale la ley.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 ARTICULO 135.- Autorízase a las personas físicas a quienes se les
 ha otorgado una concesión y hayan suscrito los respectivos contratos con
 el Depósito Libre Comercial de Golfito, para que operen dentro del

@@ -38,18 +38,14 @@ compromete a respetar los contratos privados de arrendamiento entre el
 Ministerio de Justicia ye los actuales arrendatarios. Además, se
 compromete a prorrogarlos a su vencimiento, o a vender a aquéllos los
 terrenos que han venido explotando, si fueran calificados como
-beneficiarios según los estudios socioeconómicos que realice el Instituto
-de Desarrollo Agrario.
+beneficiarios según los estudios socioeconómicos que realice el Instituto de Desarrollo Rural(*).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Se faculta al Estado para que le pague las prestaciones al personal
 que labora actualmente en el Centro penitenciario de Tierra Blanca y que
 no pueda trasladarse a otra zona por dificultades geográficas, a partir
 del traspaso de los terrenos citados.
-Las disposiciones contenidas en esta artículo se harán efectivas una
-vez que el Instituto de Desarrollo Agrario le traspase al Estado una finca
-en la que pueda instalarse un centro penitenciario de confianza, de
-conformidad con el convenio suscrito entre la Unión Nacional de Pequeños
-y Medianos Agricultores y el Ministerio de justicia el pasado 11 de
-setiembre de 1987.
+Las disposiciones contenidas en esta artículo se harán efectivas una vez que el Instituto de Desarrollo Rural(*) le traspase al Estado una finca en la que pueda instalarse un centro penitenciario de confianza, de conformidad con el convenio suscrito entre la Unión Nacional de Pequeños y Medianos Agricultores y el Ministerio de justicia el pasado 11 de setiembre de 1987.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 5. Se autoriza al Estado para que segregue, de su finca número 80957,
 tomo 1.906, folio 167, asiento 5, sita en Barrio San Gerardo de ZApote,
 destinada para la ampliación del polideportivo de Zapote, un lote de

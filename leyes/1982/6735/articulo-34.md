@@ -1,5 +1,1 @@
-Artículo 34.- Sin perjuicio de lo dispuesto en el artículo anterior,
-y atendiendo a razones de conveniencia pública y de orden práctico, el
-Instituto podrá delegar, parcialmente, en casos excepcionales, la
-administración y aplicación de sus recursos en otros órganos o
-instituciones públicas, cuando ello favorezca los objetivos de esta ley.
+Artículo 34.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

@@ -1,16 +1,13 @@
-ARTICULO 10.- Refórmase el artículo 30 de la Ley Forestal, No. 4465
-del 25 de noviembre de 1969, reformada por la ley No. 7032 del 2 de mayo
-de 1986, cuyo texto dirá:
+ARTICULO 10.- Refórmase el artículo 30 de la Ley Forestal, No. 4465 del 25 de noviembre de 1969, reformada por la ley No. 7032 del 2 de mayo de 1986, cuyo texto dirá:
 "Artículo 30.- El Consejo Forestal Nacional estará integrado por:
-a) El Ministro de Recursos Naturales, Energía y Minas, o su
-representante, quien lo presidirá.
+a) El Ministro de Recursos Naturales, Energía y Minas, o su representante, quien lo presidirá.
 b) El Director General Forestal, quien actuará como secretario,
 excepto cuando represente al Ministro, caso en el cual el Subdirector
 General Forestal actuará como secretario.
 c) El Ministro de Planificación Nacional y Política Económica o su
 representante.
-ch) El Presidente Ejecutivo del Instituto de Desarrollo Agrario o su
-representante.
+ch) El Presidente Ejecutivo del Instituto de Desarrollo Rural(*) o su representante.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 d) El Presidente Ejecutivo del Instituto Costarricense de Acueductos
 y Alcantarillados o su representante.
 e) Dos representantes de las organizaciones forestales privadas del

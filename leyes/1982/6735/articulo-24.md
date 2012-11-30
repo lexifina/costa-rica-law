@@ -1,8 +1,1 @@
-Artículo 24.- La Junta Directiva determinará las operaciones que
-pueden ser resueltas por el Presidente Ejecutivo y las que requieran,
-necesariamente, la intervención de la propia Junta. Asimismo, designará
-a los funcionarios y empleados que estarán facultados para autorizar
-determinadas operaciones y regulará los límites y condiciones a que
-deberán sujetarse.
-Las operaciones que deban ser resueltas por la Junta Directiva,
-serán aprobadas por mayoría absoluta de los miembros presentes.
+Artículo 24.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

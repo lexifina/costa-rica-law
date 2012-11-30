@@ -1,6 +1,7 @@
 N° 7062
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
-(Nota de Sinalevi: El artículo 10 de Ley Reguladora de Exoneraciones Vigentes, Derogatorias y Excepciones”, N° 7293 de 31 de marzo de 1992, establece lo siguiente:… “Exonéranse de todo tributo y sobretasas la maquinaria y el equipo que sean importados por el Instituto de Desarrollo Agrario para el Proyecto Agroindustrial de Coto Sur, financiado con recursos del préstamo 196 IC/C-R, suscrito entre el Gobierno de Costa Rica y el Banco Interamericano de Desarrollo, y aprobado por Ley No. 7062 de 2 de abril de 1987”)
+(Nota de Sinalevi: El artículo 10 de Ley Reguladora de Exoneraciones Vigentes, Derogatorias y Excepciones”, N° 7293 de 31 de marzo de 1992, establece lo siguiente:… “Exonéranse de todo tributo y sobretasas la maquinaria y el equipo que sean importados por el Instituto de Desarrollo Rural(*) para el Proyecto Agroindustrial de Coto Sur, financiado con recursos del préstamo 196 IC/C-R, suscrito entre el Gobierno de Costa Rica y el Banco Interamericano de Desarrollo, y aprobado por Ley No. 7062 de 2 de abril de 1987”)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 DECRETA:
 Artículo 1°.- Apruébase el Contrato de Préstamo suscrito el 24 de marzo de 1986 entre el Gobierno de la República de Costa Rica y el Banco Interamericano de Desarrollo, por treinta y un millones de dólares estadounidenses (US $ 31,000.000), destinados a financiar el Proyecto Agroindustrial de Coto Sur, cuyo texto es el siguiente:
 CONTRATO DE PRÉSTAMO
@@ -19,7 +20,8 @@ CAPITULO I
 Monto, Objeto y Organismo Ejecutor
 Cláusula 1.01 Monto. Conforme con este Contrato, el Banco se compromete a otorgar al Prestatario, y éste acepta, un financiamiento (en adelante denominado el “Financiamiento”) con cargo a los recursos del capital interregional del Banco, hasta por una suma de treinta y un millones de dólares de los Estados Unidos de América (US$ 31.000.000), o su equivalente en otras monedas que formen parte de dichos recursos. Las cantidades que se desembolsen con cargo a este Financiamiento constituirán el “Préstamo”.
 Cláusula 1.02 Objeto. El propósito del Financiamiento es cooperar en la ejecución de un proyecto (en adelante denominado el “Proyecto”) de desarrollo agroindustrial de Coto Sur, en la región Brunca. En el Anexo A se detallan los aspectos más relevantes del Proyecto.
-Cláusula 1.03 Organismo Ejecutor. Las partes convienen en que la ejecución del Proyecto y la utilización de los recursos del Financiamiento habrán de ser llevadas a cabo por el Instituto de Desarrollo Agrario (en adelante denominado indistintamente el “ IDA ” o el “Organismo Ejecutor”), a través de la Unidad Ejecutora del Proyecto a que se refiere el inciso (a) (ii) de la Cláusula 4.02, con la colaboración del Banco Nacional de Costa Rica (en adelante denominado el “BNCR”), a través del fideicomiso a que se refiere el inciso (a) (v) de la Cláusula 4.02, de cuyas capacidades legales y financieras para actuar como tales deja constancia el Prestatario.
+Cláusula 1.03 Organismo Ejecutor. Las partes convienen en que la ejecución del Proyecto y la utilización de los recursos del Financiamiento habrán de ser llevadas a cabo por el Instituto de Desarrollo Rural(*) (en adelante denominado indistintamente el “ INDER(*) ” o el “Organismo Ejecutor”), a través de la Unidad Ejecutora del Proyecto a que se refiere el inciso (a) (ii) de la Cláusula 4.02, con la colaboración del Banco Nacional de Costa Rica (en adelante denominado el “BNCR”), a través del fideicomiso a que se refiere el inciso (a) (v) de la Cláusula 4.02, de cuyas capacidades legales y financieras para actuar como tales deja constancia el Prestatario.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 CAPITULO II
 Elementos Integrantes del Contrato
 Cláusula 2.01 Elementos integrantes del Contrato. Este Contrato está integrado por esta Parte Primera, en adelante denominada las Estipulaciones Especiales, por la Parte Segunda, en adelante denominada las Normas Generales, y por los Anexos A, B, C y D, que se agregan.
@@ -115,7 +117,8 @@ MINHACIENDA
 SAN JOSÉ (COSTA RICA)
 (Para asuntos relacionados con la ejecución del Proyecto)
 Dirección postal:
-INSTITUTO DE DESARROLLO AGRARIO
+INSTITUTO DE DESARROLLO RURAL(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Apartado Postal 5054
 San José, Costa Rica
 Dirección cablegráfica:

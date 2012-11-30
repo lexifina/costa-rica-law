@@ -1,4 +1,2 @@
-ARTICULO 65.- Cuando el Instituto de Desarrollo Agrario adquiera una
-finca que esté hipotecada a cualquier banco del Sistema Bancario
-Nacional, esa institución podrá recibir bonos por su valor facial del
-Instituto.
+ARTICULO 65.- Cuando el Instituto de Desarrollo Rural(*) adquiera una finca que esté hipotecada a cualquier banco del Sistema Bancario Nacional, esa institución podrá recibir bonos por su valor facial del Instituto.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

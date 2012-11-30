@@ -1,6 +1,6 @@
 # Ley de Presupuesto Extraordinario
 
-Ley N° 6995 del 1985-07-22. SINALEVI, ficha 6149: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6149&param2=72617&param3=1>.
+Ley N° 6995 del 1985-07-22. SINALEVI, ficha 6149: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6149&param2=90674&param3=1>.
 
 Publicada en La Gaceta N° 140 del 1985-07-24.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1997-06-19 | Ley 7033 | 1986-08-04 |
 | 3 de 5 | 2005-06-02 | SINALEVI | 2005-06-02 |
 | 4 de 5 | 2008-06-04 | Ley 8638 | 2008-05-14 |
+| 5 de 5 | 2012-11-30 | Ley 9036 | 2012-05-11 |

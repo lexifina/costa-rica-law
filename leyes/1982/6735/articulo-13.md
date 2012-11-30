@@ -1,4 +1,1 @@
-Artículo 13.- La Junta Directiva ejercerá sus funciones con absoluta
-independencia y bajo su exclusiva responsabilidad, dentro de las normas
-establecidas en la Constitución Política, las leyes, los reglamentos y
-los principios técnicos aplicables.
+Artículo 13.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

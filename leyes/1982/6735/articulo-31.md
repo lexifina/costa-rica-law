@@ -1,3 +1,1 @@
-Artículo 31.- El gerente, el auditor y el subauditor perderán sus
-cargos si incurrieren en cualquiera de las causales de remoción,
-aplicables a los miembros de la Junta Directiva.
+Artículo 31.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

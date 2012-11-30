@@ -1,15 +1,9 @@
 N° 6735
+(Esta norma fue derogada por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)", y se exceptua de dicha derogación los numerales 35 y 40, los cuales fueron reformado mediante el artículo 37 de la misma ley N° 9036)
 TITULO I
 CAPITULO I
-DEL INSTITUTO DE DESARROLLO AGRARIO
+DEL INSTITUTO DE DESARROLLO RURAL(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 SECCION I
 Creación y Funciones
-Artículo 1º.- Transfórmase el Instituto de Tierras y Colonización
-(ITCO), en el Instituto de Desarrollo Agrario (IDA), como una institución
-autónoma de derecho público, con personalidad jurídica, patrimonio propio
-e independencia administrativa; teniéndose por reformada, para tales
-efectos, la ley Nº 2825 del 14 de octubre de 1961 y sus reformas, así
-como cualquier otra ley que se le oponga.
-Su domicilio legal será la ciudad de San José, sin perjuicio de que
-puedan establecerse dependencias o delegaciones regionales en otros
-lugares del país.
+Artículo 1º.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

@@ -1,1 +1,2 @@
-Artículo 60.- Se autoriza al Instituto de Desarrollo Agrario para que, en coordinación con la Municipalidad de Orotina, desarrolle proyectos industriales, comerciales y turísticos, en áreas destinadas para ese propósito en el asentamiento Coyolar del cantón de Orotina.
+Artículo 60.- Se autoriza al Instituto de Desarrollo Rural(*) para que, en coordinación con la Municipalidad de Orotina, desarrolle proyectos industriales, comerciales y turísticos, en áreas destinadas para ese propósito en el asentamiento Coyolar del cantón de Orotina.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

@@ -1,241 +1,66 @@
-Artículo 12.- Apruébanse las siguientes autorizaciones a los
-organismos e instituciones del Estado que a continuación se detallan:
-1.- Autorízase al Estado para que done a la Cooperativa Agrícola
-Múltiple de Alfaro Ruiz, R. L. (Coopagrimar, R. L.), un lote de terreno
-parte de la finca número 134.136, inscrita en el párrafo de Alajuela, tomo
-1916 folio 519, asiento 1.
-El lote tiene una superficie de una hectárea y los siguientes
-linderos: NOrte, resto de finca sur; sur, calle pública; este, resto de
-finca; y oeste, Carlos Salas. Tiene 110 metros de frente y 90.91 metros de
-fondo; forma un rectángulo con topografía plana y pendiente media.
-2.- Autorízase al Ministerio de Hacienda para que done, por medio de
-la Dirección General de Aduanas, libre de tasas, sobretasas e impuestos, un
-vehículo a la Asociación Integral de Desarrollo de la Comunidad de Río
-Segundo de Alajuela, que se destinará específicamente para uso de la
-Delegación de la Guardia de Asistencia Rural de ese lugar y para otros usos
-comunales.
+Artículo 12.- Apruébanse las siguientes autorizaciones a los organismos e instituciones del Estado que a continuación se detallan:
+1.- Autorízase al Estado para que done a la Cooperativa Agrícola Múltiple de Alfaro Ruiz, R. L. (Coopagrimar, R. L.), un lote de terreno parte de la finca número 134.136, inscrita en el párrafo de Alajuela, tomo 1916 folio 519, asiento 1.
+El lote tiene una superficie de una hectárea y los siguientes linderos: Norte, resto de finca sur; sur, calle pública; este, resto de finca; y oeste, Carlos Salas. Tiene 110 metros de frente y 90.91 metros de fondo; forma un rectángulo con topografía plana y pendiente media.
+2.- Autorízase al Ministerio de Hacienda para que done, por medio de la Dirección General de Aduanas, libre de tasas, sobretasas e impuestos, un vehículo a la Asociación Integral de Desarrollo de la Comunidad de Río Segundo de Alajuela, que se destinará específicamente para uso de la Delegación de la Guardia de Asistencia Rural de ese lugar y para otros usos comunales.
 3).-
 a) VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
 No obstante, el Poder Ejecutivo deja constancia que habida cuenta que tales artículos del Código Penal han producido roces en su aplicación e interpretación; y preocupado de que puedan no estar acordes con las garantías constitucionales básicas de índole social, ni con los Convenios Internacionales de la Organización Internacional del Trabajo, el Poder Ejecutivo, consciente de tal situación, elaborará un proyecto de ley que tome en cuenta los factores que inciden en una adecuada regulación de los problemas que esos artículos pretenden solucionar y lo enviará oportunamente al Poder Legislativo para su trámite ordinario como lo señala la Constitución Política.
-b) Otórgasele personería jurídica a la Fundación de Organizaciones
-Privadas Juveniles Voluntarias.
-c) La Fundación canalizará los recursos que obtenga por medio de esta
-ley, a la financiación de proyectos y programas que le presenten las
-organizaciones juveniles no políticas.
-ch) Esta disposición es de orden público y deroga todas las que se le
-opongan.
-4) Se autoriza al Ministerio de Hacienda para que revalide el giro de
-Gobierno número 831785665, por ¢ 40.000m a nombre de la Junta de Educación
-de San Ramón, para construcción gimnasio del Colegio Patriarca San José de
-San Ramón.
-5.- Se autoriza al Ministerio de Hacienda para que revalide el giro de
-Gobierno número 840598417, por ¢ 212.500, a nombre de la Municipalidad de
-Abangares para obras y gastos varios en el cantón.
-6.- Autorízase al Ministerio de Hacienda para que reponga a la Junta de
-Educación de San Miguelito de Barranca, el giro de Gobierno Nº 840598924,
-por la suma de ¢ 51.000, para la cañería de esa comunidad.
-7.- Autorízase al Ministerio de Hacienda para que revalide el giro de
-Gobierno número 840598924, por ¢ 51.000, a nombre de la Junta de Educación
-de San Miguelito de Barranca, para la cañería de esa comunidad.
-8.- La Junta de Educación de San Ramón podrá depositar en su cuenta
-corriente el giro de gobierno número 831785665, por ¢ 40.000, para gastos
-de la construcción del gimnasio del colegio Patriarca San José de San
-Ramón.
-9.- La Asociación de Desarrollo Integral de Alfaro de San Ramón podrá
-depositar en su cuenta corriente los giros de gobierno número 851093104,
-851093101, 851093102, 851247344, y usar esos recursos en obras y gastos
-varios.
-10.- La Asociación de Desarrollo Integral de Zaragoza de Palmares podrá
-depositar en su cuenta corriente el giro de gobierno número 850565111, y
-usar esos recursos en gastos varios del sector "La Cocaleca".
-11.- Se autoriza a la Asociación de Desarrollo Integral de El Llano de
-Barrio Los Angeles de Cartago para que deposite en su cuenta el giro Nº
-831785800 destinado a la comunidad de Caragral de El Guarco, para arreglo
-de caminos.
-12.- Destínase el giro Nº 851247409, por ¢ 180.000, para la Asociación
-de Desarrollo Integral de la Comunidad de Barrio La Soledad de Cartago, a
-la Asociación Deportiva de Barrio La Soledad de Cartago.
-13.- La Municipalidad de Abangares podrá depositar en su cuenta
-corriente el giro de gobierno Nº 840598417, por ¢ 212.500, para obras y
-gastos varios.
-14.- Se autoriza a la asociación de estudios e investigaciones
-diversificados "Las Tres Américas", para que deposite en su cuenta
-corriente de gobierno número 850921727. Estos fondos podrán invertirse en
-la compra de un vehículo automotor, que estará exento de todo tipo de
-impuestos, tasas, sobretasas, timbres, consular y de muellaje, así como de
-derechos.
-15.- Autorízase al Estado para que, por medio del Ministerio de
-Agricultura y Ganadería, asuma, por un monto de hasta veinticinco millones
-de colones, las deudas de maíz de los cantones de Guácimo, Siquirres y
-Pococí que fueron afectados por los vientos huracanados ocurridos el 11 de
-mayo de 1985, de conformidad con el decreto ejecutivo Nº 16287-MAG del 23
-de mayo de 1985. Las deudas pendientes que se reconocerán serán únicamente
-aquellas contraídas por concepto de créditos desembolsados para siembra de
-maíz de la cosecha veranera de 1985. El contenido económico para el
-cumplimiento de esta disposición se incorporará en los próximos
-presupuestos ordinarios y extraordinarios de la República.
-Se autoriza a los bancos comerciales del Estado para que readecuen y
-acepten la novación de las deudas señaladas en el párrafo primero de esta
-disposición.
-16.- Autorízase al Ministerio de Obras Públicas y Transportes para que
-traspase al colegio de Licenciados en Ciencias Económicas y Sociales, un
-terreno de dos mil metros cuadrados, ubicado al costado suroeste del
-Monumento a la Bandera, carretera a Sabanilla, en Mercedes, de Montes de
-Oca, folio real 154284-000 y 154282-000, para que construyan la sede del
-colegio.
-17.- Autorízase al Ministerio de Obras Públicas y Transporte (MOPT)
-para que done al Instituto Mixto de Ayuda Social (IMAS) el inmueble situado
-en Quebrada del Fierro, Cartago, comprendido desde la intersección de la
-Ruta 1 con la antigua rampa de entrada a La Pesa, hasta la colindancia con
-las fincas de Westomatic y Encasa. Este inmueble será destinado a un
-programa de vivienda para personas de escasos recursos económicos. Por
-cada familia beneficiada se adjudicará un lote, de acuerdo con el estudio
-socioeconómico pre previamente hará el IMAS. El Ministerio de Obras
-Públicas y Transportes hará el estudio previo de lineamiento.
-18.- El Ministerio de Obras Públicas y Transportes colaborará con el
-Colegio Universitario de Alajuela para que éste construya su sede. Quedan
-autorizadas todas las instituciones del Estado, antes autónomos,
-semiautónomos, el Sistema Bancario Nacional y el Banco Popular para hacer
-donaciones para la citada construcción.
-19.- El Ministerio de Salud financiará, con los fondos del CEN-CINAI, la
-conclusión del jardín de niños con parálisis cerebral, que se construye en
-los terrenos de la Municipalidad de Goicoechea, en coordinación con el
-Club de Leones de Guadalupe.
-20.- Autorízase al Ministerio de Gobernación y al Ministerio de
-Hacienda para que donen a la Escuela Pedro María Badilla de San Rafael de
-Heredia, los vehículos placa 06-59, motor M-160-456 y placa 06-19, los
-cuales se encuentran en mal estado.
-21.- Autorízase al Ministerio de Cultura, Juventud y Deportes, al
-Ministerio de Industria, Energía y Minas, al Instituto Costarricense de
-electricidad, a la refinadora Costarricense de Petróleo, S.A. y demás
-instituciones, para que trasladen recursos para la creación y desarrollo de
-un museo de la energía. Igualmente se autoriza al Instituto Costarricense
-de Ferrocarriles (INCOFER) para que done al Ministerio de Cultura, Juventud
-y Deportes las instalaciones y edificios de su propiedad en el Barrio La
-California, en la ciudad de San José (estación ferroviaria del Atlántico).
-22.- Autorízase a la Corte Suprema de Justicia para que del superávit
-anual que genere el Fondo de Jubilaciones y Pensiones, se destine un mínimo
-de treinta por ciento (30%) para realizar operaciones de crédito con
-cooperativas, cajas de ahorro y crédito de los servidores o instituciones
-bancarias del Estado, que serán destinadas a préstamos para construcción,
-mejoramiento de vivienda u otros fines de carácter social para empleados o
-funcionarios judiciales, según el reglamento que al efecto debe dictarse,
-en un término no mayor a los sesenta días posteriores a la publicación de
-esta ley.
-Autorízase igualmente a la Corte para que financie, hasta con un
-veinte por ciento (20%) del superávit del Fondo de Jubilaciones y
-Pensiones, la construcción de oficinas con casa de habitación en cantones
-que no sean cabecera de provincia.
-Estos dineros serán reintegrados al Fondo en un plazo no mayor de
-quince años a partir de la fecha en que fueron dispuestos; la Corte
-efectuará este reintegro por medio de cuotas anuales que obtendrá del
-porcentaje que le corresponda al Poder Judicial en el Presupuesto Ordinario
-de la República para la atención de sus propias necesidades.
-23.- Autorízase a la Notaría del Estado para que, sin costo alguno,
-efectúe el traspaso, de la finca situada en los cantones de Montes de Oca
-y Curridabat, distritos de San Rafael y Granadilla Norte, respectivamente,
-a la Asociación Junta Progresista de Barrio Luján, así como los traspasos
-a los beneficiarios individuales.
-Dicha finca es propiedad de la citada Asociación y se encuentra
-actualmente a nombre del IMAS. Las municipalidades de ambos cantones
-autorizarán, exentas de tasas, la urbanización y construcción de las
-vivie1ndas de los proyectos que ahí se desarrollan.
-24.- La Notaría del Estado inscribirá a nombre de la Asociación
-Integral de Desarrollo de la Comunidad de San José de Alajuela, el terreno
-o finca ubicado en ese lugar, que es parque público y que tiene los
-siguientes linderos: Este, carretera a Grecia; oeste, propiedad de la
-familia Jiménez Castro; norte, calle a La Garita sur, calle pública. Esta
-inscripción se hará libre de timbres, impuestos y similares.
-25.- Autorízase a los bancos del Sistema Bancario Nacional y al Banco
-Popular y de Desarrollo Comunal, para que otorguen un préstamo a la
-Municipalidad de Paraíso, por un monto de hasta treinta millones de
-colones, para llevar a cabo el cambio de la red de distribución de agua
-potable y la instalación de hidrómetros.
-26.- Autorízase al Banco de Costa Rica para que done, en favor de la
-Municipalidad de Paraíso, los terrenos de su propiedad conocidos como
-"Terrenos de Juan Braizon", inscritos en el Registro Público, partido de
-Cartago, al tomo 2486, folio 507. asiento 1, finca número 82.800. Este
-traspaso se realizará por medio de la Notaría del Estado.
-27.- Autorízase al Banco Nacional de Costa Rica para que done, en
-favor de la Municipalidad de Paraíso, el inmueble inscrito en el Registro
-Público, partido de Cartago, tomos 1248 y 1420, folios 108 y 61, asientos 4
-y 2, números 43058 y 47357, que es terreno con una construcción y que mide
-550,93 m2, que será destinado para el funcionamiento de la biblioteca
-pública municipal y del salón comunal. Dicho traspaso se llevará a cabo
-por medio de la Notaría del Estado.
-28.- Autorízase el Instituto Costarricense de Electricidad para que
-done, en favor de la Municipalidad de Paraíso, los terrenos en donde está
-ubicada actualmente la plaza de deportes de Loaiza de Cachí. Dicho traspaso
-se realizará por medio de la Notaría del Estado.
-29.- Autorízase al Instituto Costarricense de Electricidad para que
-traspase a la Junta de Educación del Castillo de La Fortuna o a la Junta de
-Educación que corresponda, el lote de 12 008 metros cuadrados que ocupa la
-escuela del lugar. Este lote tiene los siguientes linderos: norte, calle
-pública; sur, Juventud Obregón; este, calle pública; y oeste, calle
-pública.
-30.- Autorízase al Instituto Costarricense de Electricidad para que
-done a la Asociación de Desarrollo Integral de Orosi un terreno de hasta
-cuatrocientos metros cuadrados, frente a la cancha de deportes del Río
-Macho, para la construcción de la ermita de la localidad. Dicha donación
-estará exenta del pago de todo tipo de impuesto y derechos.
-31.- Autorízase al Instituto Costarricense de Electricidad para que
-traspase al Comité Cantonal de Deportes de San Carlos la manzana de terreno
-adyacente a la escuela de El Castillo de La Fortuna de San Carlos. Este
-terreno será destinado a plaza de deportes. El traspaso lo hará la Notaría
-del Estado y estará exento de todo pago de derechos y timbres.
-32.- Autorizase al Instituto Costarricense de Electricidad para que
-colabore con el asfaltado de la carretera Cebadilla-Turrúcares,
-Turrúcares-Ciruelas.
-33.- El Instituto Costarricense de electricidad donará los postes
-necesarios para la iluminación de los tres campos deportivos del catón
-central de Alajuela, así como todos los materiales que le sea posible.
-34.- El Instituto Costarricense de Electricidad donará los poste, y
-materiales que posea para la iluminación de los campos deportivos de La
-Garita, Barrio San José, San Antonio, Dulce Nombre y Turrúcares.
-35.- Autorízase al Instituto Costarricense de electricidad (ICE) para
-que traspase, gratuitamente, al Instituto Mixto de Ayuda Social (IMAS), los
-terrenos ocupados por familias en precario, en la denominada Ciudadela
-Estados Unidos de América, ubicada en el distrito primero del cantón
-segundo de la provincia de Puntarenas, sita frente al costado sur del
-cementerio de Esparza, para que el IMAS realice programa habitacional de
-interés social.
-36.- Autorízase al Instituto de Desarrollo Agrario a fin de que aporte
-un máximo de hasta ¢ 10.000.000 para un programa de avales y garantías para
-pequeños agricultores, organizados en cooperativas o empresas de
-autogestión, en cumplimiento de los fines que establecen su ley orgánica y
-la Ley de Tierras y Colonización.
-37.- Autorízase al Instituto de Desarrollo Agrario (IDA) para que
-otorgue el respectivo título de propiedad a los parceleros del proyecto
-Santa Clara de El Guarco de Cartago.
-38.- El Instituto de Desarrollo Agrario destinará para el cumplimiento
-de los fines del acuerdo nº XI de su Junta Directiva, de la Sesión Nº 1511,
-celebrada el 1º de agosto de 1972, la finca inscrita en el partido de
-Puntarenas, tomo 872, folio 228, número 5190 asiento 2, sita en Esparza,
-con base en el decreto ejecutivo Nº 3071-G del 27 de junio de 1973,
-publicado en "La Gaceta" del 14 de julio de 1973 en el cual se expropia el
-fundo citado. El Instituto de Desarrollo Agrario indemnizará de inmediato
-a sus actuales propietarios por el valor total del inmueble, de conformidad
-con el respectivo avalúo.
-39.- Autorízase al Instituto Mixto de Ayuda Social (IMAS) para que
-compre, previo avalúo de la Tributación Directa, la finca inscrita en el
-partido de San José, tomo 1885, folio 580, número 181.063, asiento 13
-propiedad de COOPEALIANZA R. L.
-El traspaso lo hará el Instituto Mixto de Ayuda Social, previo pago
-del inmueble a su dueño.
+b) Otórgasele personería jurídica a la Fundación de Organizaciones Privadas Juveniles Voluntarias.
+c) La Fundación canalizará los recursos que obtenga por medio de esta ley, a la financiación de proyectos y programas que le presenten las organizaciones juveniles no políticas.
+ch) Esta disposición es de orden público y deroga todas las que se le opongan.
+4) Se autoriza al Ministerio de Hacienda para que revalide el giro de Gobierno número 831785665, por ¢ 40.000m a nombre de la Junta de Educación de San Ramón, para construcción gimnasio del Colegio Patriarca San José de San Ramón.
+5.- Se autoriza al Ministerio de Hacienda para que revalide el giro de Gobierno número 840598417, por ¢ 212.500, a nombre de la Municipalidad de Abangares para obras y gastos varios en el cantón.
+6.- Autorízase al Ministerio de Hacienda para que reponga a la Junta de Educación de San Miguelito de Barranca, el giro de Gobierno Nº 840598924, por la suma de ¢ 51.000, para la cañería de esa comunidad.
+7.- Autorízase al Ministerio de Hacienda para que revalide el giro de Gobierno número 840598924, por ¢ 51.000, a nombre de la Junta de Educación de San Miguelito de Barranca, para la cañería de esa comunidad.
+8.- La Junta de Educación de San Ramón podrá depositar en su cuenta corriente el giro de gobierno número 831785665, por ¢ 40.000, para gastos de la construcción del gimnasio del colegio Patriarca San José de San Ramón.
+9.- La Asociación de Desarrollo Integral de Alfaro de San Ramón podrá depositar en su cuenta corriente los giros de gobierno número 851093104, 851093101, 851093102, 851247344, y usar esos recursos en obras y gastos varios.
+10.- La Asociación de Desarrollo Integral de Zaragoza de Palmares podrá depositar en su cuenta corriente el giro de gobierno número 850565111, y usar esos recursos en gastos varios del sector "La Cocaleca".
+11.- Se autoriza a la Asociación de Desarrollo Integral de El Llano de Barrio Los Angeles de Cartago para que deposite en su cuenta el giro Nº 831785800 destinado a la comunidad de Caragral de El Guarco, para arreglo de caminos.
+12.- Destínase el giro Nº 851247409, por ¢ 180.000, para la Asociación de Desarrollo Integral de la Comunidad de Barrio La Soledad de Cartago, a la Asociación Deportiva de Barrio La Soledad de Cartago.
+13.- La Municipalidad de Abangares podrá depositar en su cuenta corriente el giro de gobierno Nº 840598417, por ¢ 212.500, para obras y gastos varios.
+14.- Se autoriza a la asociación de estudios e investigaciones diversificados "Las Tres Américas", para que deposite en su cuenta corriente de gobierno número 850921727. Estos fondos podrán invertirse en la compra de un vehículo automotor, que estará exento de todo tipo de impuestos, tasas, sobretasas, timbres, consular y de muellaje, así como de derechos.
+15.- Autorízase al Estado para que, por medio del Ministerio de Agricultura y Ganadería, asuma, por un monto de hasta veinticinco millones de colones, las deudas de maíz de los cantones de Guácimo, Siquirres y Pococí que fueron afectados por los vientos huracanados ocurridos el 11 de mayo de 1985, de conformidad con el decreto ejecutivo Nº 16287-MAG del 23 de mayo de 1985. Las deudas pendientes que se reconocerán serán únicamente aquellas contraídas por concepto de créditos desembolsados para siembra de maíz de la cosecha veranera de 1985. El contenido económico para el cumplimiento de esta disposición se incorporará en los próximos presupuestos ordinarios y extraordinarios de la República.
+Se autoriza a los bancos comerciales del Estado para que readecuen y acepten la novación de las deudas señaladas en el párrafo primero de esta disposición.
+16.- Autorízase al Ministerio de Obras Públicas y Transportes para que traspase al colegio de Licenciados en Ciencias Económicas y Sociales, un terreno de dos mil metros cuadrados, ubicado al costado suroeste del Monumento a la Bandera, carretera a Sabanilla, en Mercedes, de Montes de Oca, folio real 154284-000 y 154282-000, para que construyan la sede del colegio.
+17.- Autorízase al Ministerio de Obras Públicas y Transporte (MOPT) para que done al Instituto Mixto de Ayuda Social (IMAS) el inmueble situado en Quebrada del Fierro, Cartago, comprendido desde la intersección de la Ruta 1 con la antigua rampa de entrada a La Pesa, hasta la colindancia con las fincas de Westomatic y Encasa. Este inmueble será destinado a un programa de vivienda para personas de escasos recursos económicos. Por cada familia beneficiada se adjudicará un lote, de acuerdo con el estudio socioeconómico pre previamente hará el IMAS. El Ministerio de Obras Públicas y Transportes hará el estudio previo de lineamiento.
+18.- El Ministerio de Obras Públicas y Transportes colaborará con el Colegio Universitario de Alajuela para que éste construya su sede. Quedan autorizadas todas las instituciones del Estado, antes autónomos, semiautónomos, el Sistema Bancario Nacional y el Banco Popular para hacer donaciones para la citada construcción.
+19.- El Ministerio de Salud financiará, con los fondos del CEN-CINAI, la conclusión del jardín de niños con parálisis cerebral, que se construye en los terrenos de la Municipalidad de Goicoechea, en coordinación con el Club de Leones de Guadalupe.
+20.- Autorízase al Ministerio de Gobernación y al Ministerio de Hacienda para que donen a la Escuela Pedro María Badilla de San Rafael de Heredia, los vehículos placa 06-59, motor M-160-456 y placa 06-19, los cuales se encuentran en mal estado.
+21.- Autorízase al Ministerio de Cultura, Juventud y Deportes, al Ministerio de Industria, Energía y Minas, al Instituto Costarricense de electricidad, a la refinadora Costarricense de Petróleo, S.A. y demás instituciones, para que trasladen recursos para la creación y desarrollo de un museo de la energía. Igualmente se autoriza al Instituto Costarricense de Ferrocarriles (INCOFER) para que done al Ministerio de Cultura, Juventud y Deportes las instalaciones y edificios de su propiedad en el Barrio La California, en la ciudad de San José (estación ferroviaria del Atlántico).
+22.- Autorízase a la Corte Suprema de Justicia para que del superávit anual que genere el Fondo de Jubilaciones y Pensiones, se destine un mínimo de treinta por ciento (30%) para realizar operaciones de crédito con cooperativas, cajas de ahorro y crédito de los servidores o instituciones bancarias del Estado, que serán destinadas a préstamos para construcción, mejoramiento de vivienda u otros fines de carácter social para empleados o funcionarios judiciales, según el reglamento que al efecto debe dictarse, en un término no mayor a los sesenta días posteriores a la publicación de esta ley.
+Autorízase igualmente a la Corte para que financie, hasta con un veinte por ciento (20%) del superávit del Fondo de Jubilaciones y Pensiones, la construcción de oficinas con casa de habitación en cantones que no sean cabecera de provincia.
+Estos dineros serán reintegrados al Fondo en un plazo no mayor de quince años a partir de la fecha en que fueron dispuestos; la Corte efectuará este reintegro por medio de cuotas anuales que obtendrá del porcentaje que le corresponda al Poder Judicial en el Presupuesto Ordinario de la República para la atención de sus propias necesidades.
+23.- Autorízase a la Notaría del Estado para que, sin costo alguno, efectúe el traspaso, de la finca situada en los cantones de Montes de Oca y Curridabat, distritos de San Rafael y Granadilla Norte, respectivamente, a la Asociación Junta Progresista de Barrio Luján, así como los traspasos a los beneficiarios individuales.
+Dicha finca es propiedad de la citada Asociación y se encuentra actualmente a nombre del IMAS. Las municipalidades de ambos cantones autorizarán, exentas de tasas, la urbanización y construcción de las vivie1ndas de los proyectos que ahí se desarrollan.
+24.- La Notaría del Estado inscribirá a nombre de la AsociaciónIntegral de Desarrollo de la Comunidad de San José de Alajuela, el terreno o finca ubicado en ese lugar, que es parque público y que tiene los siguientes linderos: Este, carretera a Grecia; oeste, propiedad de la familia Jiménez Castro; norte, calle a La Garita sur, calle pública. Esta inscripción se hará libre de timbres, impuestos y similares.
+25.- Autorízase a los bancos del Sistema Bancario Nacional y al Banco Popular y de Desarrollo Comunal, para que otorguen un préstamo a la Municipalidad de Paraíso, por un monto de hasta treinta millones de colones, para llevar a cabo el cambio de la red de distribución de agua potable y la instalación de hidrómetros.
+26.- Autorízase al Banco de Costa Rica para que done, en favor de la Municipalidad de Paraíso, los terrenos de su propiedad conocidos como "Terrenos de Juan Braizon", inscritos en el Registro Público, partido de Cartago, al tomo 2486, folio 507. asiento 1, finca número 82.800. Este traspaso se realizará por medio de la Notaría del Estado.
+27.- Autorízase al Banco Nacional de Costa Rica para que done, en favor de la Municipalidad de Paraíso, el inmueble inscrito en el Registro Público, partido de Cartago, tomos 1248 y 1420, folios 108 y 61, asientos 4 y 2, números 43058 y 47357, que es terreno con una construcción y que mide 550,93 m2, que será destinado para el funcionamiento de la biblioteca pública municipal y del salón comunal. Dicho traspaso se llevará a cabo por medio de la Notaría del Estado.
+28.- Autorízase el Instituto Costarricense de Electricidad para que done, en favor de la Municipalidad de Paraíso, los terrenos en donde está ubicada actualmente la plaza de deportes de Loaiza de Cachí. Dicho traspaso se realizará por medio de la Notaría del Estado.
+29.- Autorízase al Instituto Costarricense de Electricidad para que traspase a la Junta de Educación del Castillo de La Fortuna o a la Junta de Educación que corresponda, el lote de 12 008 metros cuadrados que ocupa la escuela del lugar. Este lote tiene los siguientes linderos: norte, calle pública; sur, Juventud Obregón; este, calle pública; y oeste, calle pública.
+30.- Autorízase al Instituto Costarricense de Electricidad para que done a la Asociación de Desarrollo Integral de Orosi un terreno de hasta cuatrocientos metros cuadrados, frente a la cancha de deportes del Río Macho, para la construcción de la ermita de la localidad. Dicha donación estará exenta del pago de todo tipo de impuesto y derechos
+31.- Autorízase al Instituto Costarricense de Electricidad para que traspase al Comité Cantonal de Deportes de San Carlos la manzana de terreno adyacente a la escuela de El Castillo de La Fortuna de San Carlos. Este terreno será destinado a plaza de deportes. El traspaso lo hará la Notaría del Estado y estará exento de todo pago de derechos y timbres.
+32.- Autorizase al Instituto Costarricense de Electricidad para que colabore con el asfaltado de la carretera Cebadilla-Turrúcares, Turrúcares-Ciruelas.
+33.- El Instituto Costarricense de electricidad donará los postes necesarios para la iluminación de los tres campos deportivos del catón central de Alajuela, así como todos los materiales que le sea posible.
+34.- El Instituto Costarricense de Electricidad donará los poste, y materiales que posea para la iluminación de los campos deportivos de La Garita, Barrio San José, San Antonio, Dulce Nombre y Turrúcares.
+35.- Autorízase al Instituto Costarricense de electricidad (ICE) para que traspase, gratuitamente, al Instituto Mixto de Ayuda Social (IMAS), los terrenos ocupados por familias en precario, en la denominada Ciudadela Estados Unidos de América, ubicada en el distrito primero del cantón segundo de la provincia de Puntarenas, sita frente al costado sur del cementerio de Esparza, para que el IMAS realice programa habitacional de interés social.
+36.- Autorízase al Instituto de Desarrollo Rural(*) a fin de que aporte un máximo de hasta ¢ 10.000.000 para un programa de avales y garantías para pequeños agricultores, organizados en cooperativas o empresas de autogestión, en cumplimiento de los fines que establecen su ley orgánica y la Ley de Tierras y Colonización.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+37.- Autorízase al Instituto de Desarrollo Rural (INDER)(*) para que otorgue el respectivo título de propiedad a los parceleros del proyecto Santa Clara de El Guarco de Cartago.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+38.- El Instituto de Desarrollo Rural(*) destinará para el cumplimiento de los fines del acuerdo nº XI de su Junta Directiva, de la Sesión Nº 1511, celebrada el 1º de agosto de 1972, la finca inscrita en el partido de Puntarenas, tomo 872, folio 228, número 5190 asiento 2, sita en Esparza, con base en el decreto ejecutivo Nº 3071-G del 27 de junio de 1973, publicado en "La Gaceta" del 14 de julio de 1973 en el cual se expropia el fundo citado. El Instituto de Desarrollo Rural(*) indemnizará de inmediato a sus actuales propietarios por el valor total del inmueble, de conformidad con el respectivo avalúo.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+39.- Autorízase al Instituto Mixto de Ayuda Social (IMAS) para que compre, previo avalúo de la Tributación Directa, la finca inscrita en el partido de San José, tomo 1885, folio 580, número 181.063, asiento 13 propiedad de COOPEALIANZA R. L.
+El traspaso lo hará el Instituto Mixto de Ayuda Social, previo pago del inmueble a su dueño.
 40.- VETADO. Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos ochenta y cinco.
 El Poder Ejecutivo devuelve con la correspondiente sanción constitucional la ley de Presupuesto Ordinario para el Ejercicio Fiscal de 1986, N° 7018, la cual en consecuencia puede ser válidamente ejecutada; pero por razones de inconveniencia devuélvase sin la sanción correspondiente las “Normas Generales” números:
 Artículo 12 incisos 3 a), 40) y 94); Artículo 13 incisos 1), 4), 24), 28), 31) y 46); Artículo 14 incisos 7),11), 12), 16), 42), 43), 44), y 46); Artículo 18, Artículo 19, Artículo 20, Artículo 23, Artículo 24, Artículo 34, Artículo 35, Artículo 36, Artículo 40, Artículo 41, Artículo 42, Artículo 65 y Artículo 67.
 En lo que se refiere al inciso 44 del Artículo 14 el Poder Ejecutivo considera que no es éste el mecanismo más apropiado para lograr las reformas propuestas al Código Penal en sus artículo 333 y 334, que son de gran trascendencia para la institucionalidad del país y el acuerdo equilibrio en el desarrollo de las relaciones laborales.
 No obstante, el Poder Ejecutivo deja constancia que habida cuenta que tales artículos del Código Penal han producido roces en su aplicación e interpretación; y preocupado de que puedan no estar acordes con las garantías constitucionales básicas de índole social, ni con los Convenios Internacionales de la Organización Internacional del Trabajo, el Poder Ejecutivo, consciente de tal situación, elaborará un proyecto de ley que tome en cuenta los factores que inciden en una adecuada regulación de los problemas que esos artículos pretenden solucionar y lo enviará oportunamente al Poder Legislativo para su trámite ordinario como lo señala la Constitución Política.
-41.- Autorízase al Instituto Nacional de Vivienda y Urbanismo (INVU)
-para que apruebe los planos y dé las autorizaciones que correspondan para
-la segregación e inscripción de los lotes de la Finca La Tabla en San
-Rafael Abajo de Desamparados, que la Municipalidad de desamparados
-traspasará a sus actuales ocupantes. Tales trámites estarán exentos de
-todo impuesto o tasa.
+41.- Autorízase al Instituto Nacional de Vivienda y Urbanismo (INVU) para que apruebe los planos y dé las autorizaciones que correspondan para la segregación e inscripción de los lotes de la Finca La Tabla en San Rafael Abajo de Desamparados, que la Municipalidad de desamparados traspasará a sus actuales ocupantes. Tales trámites estarán exentos de todo impuesto o tasa.
 42.- El Instituto Nacional de Fomento Cooperativo (INFOCOOP) deberá
 girar al Consejo Nacional de Cooperativas el mon o correspondiente al 1.5%
 de su presupuesto de capital y operaciones y un monto similar al Centro de

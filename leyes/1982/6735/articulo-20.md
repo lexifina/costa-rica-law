@@ -1,5 +1,1 @@
-Artículo 20.- No podrá ser elegido Presidente Ejecutivo ninguno de
-los miembros de la Junta a los cuales se refiere el inciso b) del
-artículo 8º. El Presidente Ejecutivo deberá poseer conocimiento y
-experiencia en materia agraria y reunir los demás requisitos exigidos
-para los demás miembros de la Junta.
+Artículo 20.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

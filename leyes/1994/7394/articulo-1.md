@@ -31,9 +31,10 @@ colaboración técnica, ayudar en sus diferentes campos de actividad al
 Departamento de Riego y Avenamiento del SNE, en particular, y a dicha
 Institución en general, en sus programas de desarrollo de regadío en la
 Cuenca Baja del Tempisque y a los proyectos de asentamientos campesinos
-bajo el control del Instituto de Desarrollo Agrario (IDA) dentro de
+bajo el control del Instituto de Desarrollo Rural (INDER)(*) dentro de
 dicha área, para cuyo efecto se realizarán oportunamente los acuerdos
 internos de coordinación de actividades.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 3.- A este efecto, ambos Gobiernos adoptarán las disposiciones
 necesarias para que el IRYDA y el SNE puedan proceder, mediante los
 oportunos programas, al intercambio, colaboración e información de
@@ -102,9 +103,10 @@ Misión.
 Asimismo, el IRYDA procurará designar a otro experto con título de
 Ingeniero Superior, con experiencia en organización y desarrollo de
 comunidades campesinas y en el desarrollo y operación de distritos de
-riego, para que colabore con el Instituto de Desarrollo Agrario de Costa
+riego, para que colabore con el Instituto de Desarrollo Rural(*) de Costa
 Rica en los programas de asentamientos campesinos que este Instituto
 tiene establecidos.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 2.- Independientemente de los dos expertos citados, el IRYDA
 procurará poner a disposición del SNE, a petición de este Organismo, los
 siguientes expertos:

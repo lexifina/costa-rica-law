@@ -1,5 +1,2 @@
-ARTICULO 59.- Se autoriza al Instituto de Desarrollo Agrario para
-que segregue un máximo de hasta dos hectáreas de la finca de su propiedad
-número 267183, inscrita en el partido de San José, tomo 2652, folio 13,
-asiento 1, para que este terreno sea donado al Colegio de Ingenieros
-Agrónomos, según el convenio suscrito entre ambas instituciones.
+ARTICULO 59.- Se autoriza al Instituto de Desarrollo Rural(*) para que segregue un máximo de hasta dos hectáreas de la finca de su propiedad número 267183, inscrita en el partido de San José, tomo 2652, folio 13, asiento 1, para que este terreno sea donado al Colegio de Ingenieros Agrónomos, según el convenio suscrito entre ambas instituciones.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

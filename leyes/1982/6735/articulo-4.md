@@ -1,6 +1,1 @@
-Artículo 4º.- El Instituto deberá, con prioridad, procurar la
-solución de los problemas que resulten de la ocupación de las reservas
-nacionales y de la ocupación en precario de tierras del dominio privado.
-El Instituto queda facultado, cuando proceda, para redistribuir y
-reordenar las áreas que fueren objeto del conflicto, posteriormente a su
-financiación.
+Artículo 4º.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

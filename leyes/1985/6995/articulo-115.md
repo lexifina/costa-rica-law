@@ -1,6 +1,3 @@
-Artículo 115.- El Instituto de Desarrollo Agrario (IDA), en un plazo
-no mayor de sesenta días naturales después de la vigencia de esta ley,
-reubicará a los asociados de COOPECARARA, R.L. en condiciones semejantes
-o mejores a las actuales, de común acuerdo entre la Cooperativa y el IDA.
-Al venderles la nueva propiedad, el precio por hectárea no podrá ser mayor
-al fijado en la actual concesión.
+Artículo 115.- El Instituto de Desarrollo Rural (INDER)(*), en un plazo no mayor de sesenta días naturales después de la vigencia de esta ley, reubicará a los asociados de COOPECARARA, R.L. en condiciones semejantes o mejores a las actuales, de común acuerdo entre la Cooperativa y el INDER(*).
+Al venderles la nueva propiedad, el precio por hectárea no podrá ser mayor al fijado en la actual concesión.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

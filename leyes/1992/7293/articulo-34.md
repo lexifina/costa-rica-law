@@ -14,8 +14,10 @@ Artículo 34.- Modifícase el artículo 4 de la Ley Nº 27 del 2 de marzo de 193
 - El Instituto Nacional de Vivienda y Urbanismo.
 - El Banco Interamericano de Desarrollo (BID).
 - El Instituto Costarricense de Acueductos y Alcantarillados (ICAA).
-- El Instituto de Desarrollo Agrario (IDA) y los parceleros y colonos adjudicatarios de este, pero sólo durante los primeros cinco años contados desde la fecha de adjudicación.
-Independientemente de lo dicho en el párrrafo anterior, en el caso de que el valor de la propiedad de los parceleros del IDA sea modificado por inversiones para la producción agropecuaria financiadas por instituciones crediticias, la parte del aumento en el valor de la propiedad correspondiente al crédito, sólo la afectará para efectos del impuesto territorial después de cinco años de realizada la totalidad de la inversión.
+- El Instituto de Desarrollo Rural (INDER)(*) y los parceleros y colonos adjudicatarios de este, pero sólo durante los primeros cinco años contados desde la fecha de adjudicación.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+Independientemente de lo dicho en el párrrafo anterior, en el caso de que el valor de la propiedad de los parceleros del INDER(*) sea modificado por inversiones para la producción agropecuaria financiadas por instituciones crediticias, la parte del aumento en el valor de la propiedad correspondiente al crédito, sólo la afectará para efectos del impuesto territorial después de cinco años de realizada la totalidad de la inversión.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 - La Escuela Centroamericana de Ganadería (ECG).
 - Instituciones de beneficiencia declaradas de utilidad pública, por ley o decreto del Poder Ejecutivo (fundaciones y asociaciones entre otras).
 - El Instituto de Fomento y Asesoría Municipal (IFAM).

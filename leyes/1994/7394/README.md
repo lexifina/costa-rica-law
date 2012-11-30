@@ -1,6 +1,6 @@
 # Acuerdo Complementario de Cooperación Técnica con España en Regadíos
 
-Ley N° 7394 del 1994-05-03. SINALEVI, ficha 11933: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11933&param2=12818&param3=1>.
+Ley N° 7394 del 1994-05-03. SINALEVI, ficha 11933: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11933&param2=92933&param3=1>.
 
 Publicada en La Gaceta N° 90 del 1994-05-11.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1994-05-11 | Ley 7394 | 1994-05-03 |
 | 2 de 3 | 1994-05-11 | SINALEVI | 1994-05-03 |
+| 3 de 3 | 2012-11-30 | Ley 9036 | 2012-05-11 |

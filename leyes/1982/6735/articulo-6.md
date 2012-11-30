@@ -1,4 +1,1 @@
-Artículo 6º.- El Instituto promoverá, por sí mismo, o en cooperación
-con las instituciones de enseñanza superior que tengan interés, estudios
-agronómicos, ecológicos, jurídicos y económicos, en las diferentes zonas
-del país.
+Artículo 6º.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

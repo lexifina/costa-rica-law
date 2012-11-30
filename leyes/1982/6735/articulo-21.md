@@ -1,6 +1,1 @@
-Artículo 21.- La Junta Directiva elegirá, de su seno, un
-Vicepresidente, quien sustituirá al Presidente en caso de impedimento o
-ausencia en el ejercicio de sus atribuciones y deberes.
-Cuando estuvieren ausentes el Presidente Ejecutivo y el
-Vicepresidente de la Junta, ésta nombrará a uno de sus miembros como
-Presidente ad hoc para el desempeño de sus funciones.
+Artículo 21.- (Derogado por el artículo 81 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")

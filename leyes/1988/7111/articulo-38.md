@@ -19,9 +19,8 @@ negociables. El plazo, el
 tipo de inter‚s y las otras caracter¡sticas ser n
 establecidas por el Ministerio
 de Hacienda mediante reglamento.
-Se autoriza al Instituto de Desarrollo Agrario para que
-invierta recursos en el
-Fideicomiso Agrario del Banco Nacional de Costa Rica.
+Se autoriza al Instituto de Desarrollo Rural(*) para que invierta recursos en el Fideicomiso Agrario del Banco Nacional de Costa Rica.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
 Los recursos de este
 fideicomiso no podr n ser utilizados en la compra de
 tierras invadidas.
