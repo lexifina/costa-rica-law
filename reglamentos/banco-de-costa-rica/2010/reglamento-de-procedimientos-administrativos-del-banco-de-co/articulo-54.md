@@ -1,1 +1,2 @@
-Artículo 54.—De acuerdo con lo establecido en el artículo 367, numerales 2 inciso e) y 3 de la Ley General de la Administración Pública, los procedimientos administrativos especiales aquí regulados serán de aplicación en el Banco de Costa Rica, sin perjuicio de que en lo no regulado, se aplicará lo establecido en el Libro Segundo la Ley General de la Administración Pública y el Código Procesal Contencioso Administrativo, en lo que resulte razonable.
+Artículo 54.
+De acuerdo con lo establecido en el artículo 367, numerales 2 inciso e) y 3 de la Ley general de la administración pública, los procedimientos administrativos.

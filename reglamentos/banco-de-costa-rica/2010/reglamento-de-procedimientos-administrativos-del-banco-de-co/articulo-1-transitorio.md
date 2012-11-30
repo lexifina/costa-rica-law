@@ -1,2 +1,0 @@
-Transitorios
-Transitorio I.—A las investigaciones que a la fecha de aprobación de este Reglamento hayan sido trasladadas por la Unidad Coordinadora para el trámite del respectivo procedimiento y ya se le haya hecho el respectivo traslado de cargos, continuarán tramitándose bajo lo previsto en el Reglamento para el Trámite de Investigaciones y Procedimientos Administrativos del Banco de Costa Rica. Los demás casos, se tramitarán conforme con el Reglamento que ahora se aprueba.

@@ -35,6 +35,8 @@ articulo-34.md
 articulo-35.md
 articulo-36.md
 articulo-37.md
+articulo-37-bis.md
+articulo-37-ter.md
 articulo-38.md
 articulo-39.md
 articulo-40.md
@@ -54,5 +56,3 @@ articulo-53.md
 articulo-54.md
 articulo-55.md
 articulo-56.md
-articulo-1-transitorio.md
-articulo-2-transitorio.md

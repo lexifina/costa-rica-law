@@ -1,4 +1,5 @@
-Artículo 35.—Los recursos contra las resoluciones que se dirán se deberán interponer en los siguientes plazos:
+Artículo 35.
+Los recursos contra las resoluciones que se dirán se deberán interponer en los siguientes plazos:
 a. Contra la resolución que ordena el acto inicial de procedimiento: Cabrá recurso de revocatoria que deberá plantearse ante el Órgano Director dentro del plazo de tres días hábiles siguientes a su notificación. Cabrá recurso de apelación ante la Gerencia General que deberá interponerse en el plazo de cinco días hábiles.
 b. Contra las resoluciones de mero trámite cabrá recurso de revocatoria que deberá interponerse ante el órgano que las dictó, en el acto mismo en que se dicten o dentro del plazo de veinticuatro horas siguientes a su notificación.
 c. Contra el acto final: Cabrá recurso de reposición o reconsideración que deberá interponerse ante el Órgano que lo dictó dentro del plazo de cinco días hábiles, contados a partir del día siguiente de su notificación. En todo caso, el escrito de interposición del recurso deberá incorporarse en el expediente administrativo de forma inmediata a su recibo. De igual forma se procederá con la resolución que resuelva el recurso y con el acto de notificación.

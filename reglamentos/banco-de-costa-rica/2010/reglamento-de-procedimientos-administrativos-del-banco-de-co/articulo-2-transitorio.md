@@ -1,2 +1,0 @@
-Transitorio II.—La Gerencia General contará con un plazo de tres meses a partir de la vigencia de este Reglamento para poner en marcha la nueva conformación del Órgano Director de Procedimiento. Durante ese plazo, continuará funcionando, en forma transitoria, la conformación establecida en el Reglamento para el Trámite de Investigaciones y Procedimientos Administrativos del Banco de Costa Rica, para la tramitación de los procedimientos nuevos.
-San José, 18 de febrero del 2011.—
