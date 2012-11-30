@@ -5,20 +5,20 @@ Modificación de la carga tributaria
 que pesa sobre los combustibles
 Artículo 1º—Objeto, hecho generador y sujetos pasivos. Establécese un impuesto único por tipo de combustible, tanto de producción nacional como importado, según se detalla a continuación:
 Tipo de combustible por litro | Impuesto en colones (¢)
-Gasolina regular | 212,00
-Gasolina súper | 221,75
-Diésel | 125,25
+Gasolina regular | 212,50
+Gasolina súper | 222,50
+Diésel | 125,50
 Asfalto | 42,50
 Emulsión asfáltica | 31,75
 Búnker | 20,75
 LPG | 42,50
-Jet Fuel A1 | 126,75
-Av Gas | 212,00
-Queroseno | 61,00
+Jet Fuel A1 | 127,00
+Av Gas | 212,50
+Queroseno | 61,25
 Diésel pesado (Gasóleo) | 41,00
 Nafta pesada | 30,25
 Nafta liviana | 30,25
-(Nota de Sinalevi: Los montos aquí establecidos, fueron actualizados por el artículo 1º del decreto ejecutivo N° 37233 del 4 de julio de 2012, mediante un ajuste del 1.79%)
+(Nota de Sinalevi: Los montos aquí establecidos, fueron actualizados por el artículo 1º del decreto ejecutivo N° 37519 del 3 de octubre de 2012, mediante un ajuste del 0,29%)
 Se exceptúa del pago de este impuesto, el producto destinado a abastecer las líneas aéreas y los buques mercantes o de pasajeros en líneas comerciales, todas de servicio internacional; asimismo, el combustible que utiliza la Asociación Cruz Roja Costarricense, así como la flota de pescadores nacionales para la actividad de pesca no deportiva, de conformidad con la Ley Nº 7384.
 (Así reformado por el artículo 1° de la Ley N° 8451 del 13 de julio del 2005)
 El hecho generador del impuesto establecido en el primer párrafo ocurre, en la producción nacional, en el momento de la fabricación, la destilación o la refinación, entendiendo por producción nacional el momento en el cual un producto está listo para la venta, lo que excluye su reproceso, y en la importación o internación, el momento de la aceptación de la declaración aduanera.
