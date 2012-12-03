@@ -1,0 +1,13 @@
+ACUERDO EJECUTIVO N° 52-2012-MGP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA
+De conformidad con lo dispuesto en el artículo 140, incisos 3) y 18) y 146, de la Constitución Política de Costa Rica, artículo 25 de la Ley 6227 Ley general de la Administración Pública y la Ley 4366 Ley Sobre División Territorial Administrativa.
+CONSIDERANDO:
+1º—Que de conformidad con la Ley 4366 del 19 de agosto de 1969, corresponde al Poder Ejecutivo con el asesoramiento de la Comisión Nacional de División Territorial Administrativa entre otros la creación de distritos, así como atender problemas limítrofes de estos.
+2º—Que el Consejo Municipal de la Municipalidad de Santa Cruz, en la Sesión Ordinaria N° 02- 2012, Articulo 03, Inciso 03 del 9 de enero de 2012 acordó, contestar al Comité Técnico de División Territorial Administrativa que siempre han estado anuentes en apoyar la gestión que realizan los vecinos del Jobo de Tempate, en el sentido de pertenecer al distrito de Cartagena y no a Tempate como está actualmente.
+3º—Que dentro del análisis que hace el Comité Técnico de División Territorial Administrativa dada la situación de accesos, facilidad de comunicación con las cabeceras de los distritos y a fin de mantener una hegemonía de que los límites se den por accidentes geográficos, indica se valore la posibilidad de que no solo el poblado del Jobo pertenezca al Distrito Cartagena sino se incluya a los poblados de Cañafístula e Higuerón, decisión que compete a los pobladores de esos lugares e igualmente valorado por el Gobierno local.
+4º—Que el Concejo Municipal de la Municipalidad de Santa Cruz, en sesión extraordinaria Nº 14-2012, articulo 2, inciso 05 del 5 de julio de 2012 indica que de conformidad con lo solicitado por los vecinos de Barrio Cañafistula y Barrio El Higuerón de Tempate acordó: Comunicar la anuencia del Consejo Municipal de Santa Cruz, Guanacaste, para que los Barrios Cañafistula e Higuerón del Distrito Tempate, Cantón Santa Cruz, pasen a ser parte del distrito Quinto Cartagena.
+5º—Que la Comisión Nacional de División Territorial Administrativa, por recomendación del Comité Técnico de División Territorial Administrativa; en sesión ordinaria N° 03 del día 11 de octubre de 2012 aprobó la modificación del límite entre los distritos Tempate y Cartagena del cantón Santa Cruz, provincia Guanacaste.
+Por tanto:
+ACUERDAN:
+Artículo 1º—Modifíquese los límites entre los distritos Tempate y Cartagena del cantón Santa Cruz en el sector de los poblados Cañafístula, Higuerón y Jobo para que éstos pasen a formar parte del distrito Cartagena, quinto del cantón Santa Cruz.
