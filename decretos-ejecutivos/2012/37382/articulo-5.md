@@ -1,0 +1,2 @@
+Artículo 5º—Otorgamiento del Seguro de Salud por el Estado. Los integrantes de las familias beneficiarias de la Estrategia de Atención Integral, que no estén cubiertos por ninguna modalidad del seguro social de salud, tendrán derecho al “Seguro de Salud por el Estado”.
+Para la respectiva afiliación, bastará que la Caja Costarricense de Seguro Social verifique que la persona es beneficiaria de este plan de atención, consultando los sistemas de información que para tales efectos establezca el IMAS, o ante referencia escrita de esta institución.
