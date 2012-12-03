@@ -1,0 +1,1 @@
+Artículo 16.—Interpretación y aplicación de las normas de este capítulo: Las anteriores disposiciones de este capítulo serán interpretadas, aplicadas y exigidas en función de la edad física y mental de cada integrante de la población beneficiada.
