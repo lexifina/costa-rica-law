@@ -1,0 +1,1 @@
+Artículo 8º—En todo lo relativo a activos fijos sujetos a depreciación serán tratados y adquiridos por la contratación de la Proveeduría Municipal (salvo casos sumamente excepcionales), así como aquellos artículos que el monto supere el tope establecido para caja chica.
