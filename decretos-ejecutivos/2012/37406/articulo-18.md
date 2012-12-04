@@ -1,0 +1,3 @@
+Artículo 18. — Adiciónese en el Capítulo Sétimo “Garantías procedimentales” del Decreto Ejecutivo número 26180-MEP, “Reglamento para prevenir, investigar y sancionar el hostigamiento sexual en el Ministerio de Educación Pública”, un artículo, para que en lo sucesivo se lea de la siguiente manera, y en su virtud córrase la numeración del artículo 33 al 35 del Decreto Ejecutivo No. 26180-MEP, “Reglamento para prevenir, investigar y sancionar el hostigamiento sexual en el Ministerio de Educación Pública”.
+“Artículo 33.— Adopción de las Medidas Precautorias.
+El Director de Recursos Humanos deberá adoptar de manera prevalente y con carácter de urgencia, las medidas precautorias procedentes. Su vigencia será determinada por su instrumentalidad para el proceso.”

@@ -1,0 +1,3 @@
+Artículo 14. — Refórmese el artículo 21 del Decreto Ejecutivo número 26180-MEP, “Reglamento para prevenir, investigar y sancionar el hostigamiento sexual en el Ministerio de Educación Pública”, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 21.— Admisión de prueba y señalamiento para su evacuación.
+En el mismo acto donde se admite la prueba, el órgano instructor señalará lugar, hora y fecha para recibirla en una sola audiencia -prorrogable por el tiempo necesario-, con mención expresa de los nombres de los testigos aceptados, cuya citación correrá por cuenta de la parte promovente, sin perjuicio de que el instructor pueda hacerla de oficio. La audiencia se realizará en forma privada.”

@@ -1,0 +1,3 @@
+Artículo 7. — Refórmese el artículo 7 del Decreto Ejecutivo número 26180-MEP, “Reglamento para prevenir, investigar y sancionar el hostigamiento sexual en el Ministerio de Educación Pública”, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 7.— Deber de denunciar.
+Todo servidor docente o administrativo que tenga conocimiento de algún acto de acoso u hostigamiento sexual en perjuicio de un estudiante menor de edad, tendrá la obligación de denunciar al presunto hostigador ante el Departamento de Asuntos Disciplinarios de la Dirección de Recursos Humanos, quien deberá proceder de conformidad.”
