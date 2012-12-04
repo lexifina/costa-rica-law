@@ -1,0 +1,1 @@
+Artículo 12.—Supletoriedad. Se aplicará supletoriamente a las normas de este reglamento las disposiciones legales contenidas en el Código Municipal y su Reglamento, así como el bloque de legalidad de los actos administrativos.

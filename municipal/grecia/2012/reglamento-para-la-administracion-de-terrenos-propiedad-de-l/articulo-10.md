@@ -1,0 +1,1 @@
+Artículo 10.—Expediente. La Alcaldía Municipal conformará un expediente por cada caso solicitado al cual deberá adjuntar copia del plano, certificación literal de la propiedad en mención y/o observaciones respectivas.

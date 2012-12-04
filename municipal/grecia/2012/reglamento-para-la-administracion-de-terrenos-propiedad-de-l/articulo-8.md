@@ -1,0 +1,1 @@
+Artículo 8º—En caso de que el beneficiario del Bien Municipal desee alquilar, prestar o ceder a un tercero, el mismo deberá obtener la autorización previa por parte del Concejo Municipal, y en ningún caso se podrán superar los plazos establecidos para cada convenio específico.
