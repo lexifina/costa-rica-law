@@ -1,0 +1,1 @@
+Artículo 3º—De la Inocuidad alimentaria: Será obligación de todos los actores del Mercado Municipal velar por el cumplimiento de los lineamientos generales de inocuidad de los alimentos. Para este propósito se emitirá una directriz, por parte del Administrador del Mercado, que contendrá las prácticas obligatorias en materia de inocuidad de alimentos.
