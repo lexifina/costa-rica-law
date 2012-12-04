@@ -4,4 +4,4 @@ b) Certificación del Registro Público o de Notario Público de su inscripción
 c) Dirección exacta del local donde se prestará el servicio.
 d) Horario de atención al público.
 e) Declaración jurada que demuestre lo indicado en el inciso c) del artículo 9 del presente Reglamento.
-f) Cualquier otra información que sea contemplada en este Reglamento
+f) Cualquier otra información que sea contemplada en este Reglamento.
