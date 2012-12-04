@@ -1,0 +1,2 @@
+Artículo 16.—Los Entrenadores deportivos en cada disciplina, propondrán semestralmente a la Comisión asignada por el CODEA, los(as) candidatos(as) a ser beneficiarios de dicho incentivo de acuerdo con las disposiciones establecidas en este Reglamento
+En el caso de los comités comunales y agrupaciones deportivas del cantón central de Alajuela, le corresponderá al encargado de dichas agrupaciones deportivas la presentación de los(as) candidatos(a) a este tipo de incentivo ante el CODEA.
