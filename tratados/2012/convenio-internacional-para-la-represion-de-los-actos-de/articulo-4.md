@@ -1,0 +1,5 @@
+Artículo 4
+1. Nada de lo dispuesto en el presente Convenio menoscabará los derechos, las obligaciones y las responsabilidades de los Estados y de las personas con arreglo al derecho internacional, en particular los propósitos y principios de la Carta de las Naciones Unidas y el derecho internacional humanitario.
+2. Las actividades de las fuerzas armadas durante un conflicto armado, según se entienden esos términos en el derecho internacional humanitario, que se rijan por ese derecho no estarán sujetas al presente Convenio y las actividades que lleven a cabo las fuerzas armadas de un Estado en el ejercicio de sus funciones oficiales, en la medida en que se rijan por otras normas de derecho internacional, no estarán sujetas al presente Convenio.
+3. No se considerará que lo dispuesto en el párrafo 2 del presente artículo exonera o legitima actos que de otro modo serían ilícitos, ni que obsta para su enjuiciamiento en virtud de otras leyes.
+4. El presente Convenio no se refiere ni podrá interpretarse en el sentido de que se refiera en modo alguno a la cuestión de la legalidad del empleo o la amenaza del empleo de armas nucleares por los Estados.

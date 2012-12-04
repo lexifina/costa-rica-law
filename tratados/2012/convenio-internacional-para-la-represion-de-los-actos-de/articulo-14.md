@@ -1,0 +1,3 @@
+Artículo 14
+1. Los Estados Partes se prestarán la mayor asistencia posible en relación con cualquier investigación, proceso penal o procedimiento de extradición que se inicie con respecto a los delitos enunciados en el artículo 2 incluso respecto de la obtención de todas las pruebas necesarias para el proceso que obren en su poder.
+2. Los Estados Partes cumplirán las obligaciones que les incumban en virtud del párrafo 1 del presente artículo de conformidad con los tratados u otros acuerdos de asistencia judicial recíproca que existan entre ellos. En ausencia de esos tratados o acuerdos, los Estados Partes se prestarán dicha asistencia de conformidad con su legislación nacional.

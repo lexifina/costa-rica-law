@@ -1,0 +1,2 @@
+Artículo 3
+Salvo lo dispuesto en los artículos 7, 12, 14, 15, 16 y 17 según corresponda, el presente Convenio no será aplicable cuando el delito se haya cometido en un solo Estado, el presunto autor y las víctimas sean nacionales de ese Estado y el presunto autor se halle en el territorio de ese Estado y ningún otro Estado esté facultado para ejercer la jurisdicción con arreglo a lo dispuesto en los párrafos 1 ó 2 del artículo 9 del presente Convenio.
