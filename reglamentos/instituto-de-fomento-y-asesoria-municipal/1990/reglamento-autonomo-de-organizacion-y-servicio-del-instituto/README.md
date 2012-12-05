@@ -31,3 +31,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto de Fomento y Ases
 | 16 | 2011-06-20 | Reglamento 4046 (2011-06-20) |
 | 17 | 2012-03-28 | Reglamento 4120 (2012-03-28) |
 | 18 | 2012-04-18 | Reglamento 4124 (2012-04-18) |
+| 19 | 2012-12-05 | SINALEVI (sin norma nombrada) |
