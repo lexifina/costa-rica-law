@@ -1,2 +1,1 @@
-Artículo 9º—Vigencia. Rige a partir del 01 de enero del 2009.
-Dado en la Presidencia de la República, a los once días del mes de diciembre del año dos mil ocho.
+Artículo 9º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 2012-17058, del 05 de diciembre de 2012.)

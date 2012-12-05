@@ -19,4 +19,5 @@ DECRETAN:
 El siguiente:
 Reglamento al Artículo 80 de la Ley de Biodiversidad,
 Ley Nº 7788 del 30 de abril de 1998
-Artículo 1º—Objeto. El presente Reglamento tiene por objeto desarrollar los procedimientos aplicables a la consulta previa obligada prevista en el artículo 80 de la Ley de Biodiversidad, Ley Nº 7788 del 30 de abril de 1998.
+(Anulado este Decreto Ejecutivo mediante resolución de la Sala Constitucional N° 2012-17058, del 05 de diciembre de 2012.).
+Artículo 1º— Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 2012-17058, del 05 de diciembre de 2012.)

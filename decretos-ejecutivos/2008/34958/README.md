@@ -15,3 +15,4 @@ Reglamento al Artículo 80 de la Ley de Biodiversidad, Ley Nº 7788 del 30 de ab
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2012-12-05 | SINALEVI (sin norma nombrada) |
