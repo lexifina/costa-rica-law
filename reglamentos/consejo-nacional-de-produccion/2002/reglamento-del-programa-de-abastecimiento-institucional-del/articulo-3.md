@@ -1,6 +1,7 @@
 CAPÍTULO II
 De los productos de abastecimiento
-Artículo 3º—Los Productos o bienes que se consideran de actividad ordinaria del Programa de Abastecimiento Institucional son los siguientes:
+Artículo 3º—Los productos autorizados para abastecer a las instituciones públicas, así como los productos necesarios para el abastecimiento mínimo que requiere y demanda la CNE , son los siguientes:
+(Así reformado el párrafo anterior mediante publicación en La Gaceta N° 235 del 5 de diciembre de 2012)
 a. Productos alimenticios:
 · Aceites comestibles.
 · Atún y calamares enlatados.
@@ -122,3 +123,5 @@ c. Bienes esenciales:
 24- | Productos del mar: frescos, refrigerados, congelados, procesados y sus derivados, tales como: Pescado, mariscos, marlen, dorado, pelágicos, bolillo o cazón, posta o tiburón grande, filete de candado. corvina, anguila, raya, Atún, camarón, pulpo, entre otros.
 25- | Suministros de primera necesidad industriales no alimenticios requeridos para completar el abastecimiento mínimo que requiere y demanda la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias ( CNE ).
 (*) (Así reformados los productos autorizados para abastecer a las instituciones públicas, así como los productos necesarios para el abastecimiento mínimo que requiere y demanda la CNE, mediante acuerdo N° 37820 tomado en sesión N° 2757 del 25 de noviembre de 2009).
+W Agua de Consumo Humano(*)
+(*) (Así adicionado el producto anterior, mediante publicación en La Gaceta N° 235 del 5 de diciembre de 2012. Anteriormente mediante sesión N° 2757 del 25 de noviembre de 2009, se reformaron los productos autorizados para abastecer a las instituciones públicas, eliminando las letras por numeración, por tal motivo se hizo la presente reforma mediante nota)
