@@ -1,0 +1,12 @@
+CAPITULO VI
+SECCIÓN I
+DE LAS PROHIBICIONES
+Artículo 42: No se permitirá la explotación de patente de licores en los términos que define el artículo 9º de la Ley y en los siguientes:
+a. El uso de licencias clase A, B y C no estará sujeto a límites de distancia alguno, cuando los locales respectivos se encuentren ubicados en centros comerciales
+b. No se aplicará restricción de distancias para la comercialización de bebidas con contenido alcohólico a los establecimientos comerciales correspondientes a la categoría D en razón de que en esas actividades no hay consumo de licor en el sitio.
+c. La municipalidad cancelará el permiso de operación de una licencia de licor si en la realidad, el establecimiento comercial de que se trate, infringe la categoría bajo la cual se le otorgó el permiso inicialmente.
+d. Tampoco aplicará el régimen de distancias previsto en el artículo 9 de la Ley, respecto de las actividades que de conformidad con el artículo 7 de la misma ley, cuenten con licencia temporal para la comercialización de bebidas con contenido alcohólico. Sin perjuicio de ello, los puestos que se instalen deben estar ubicados únicamente en el área demarcada para celebrar los festejos de acuerdo con el artículo 7 de la ley.
+e. La medición de las distancias a que se refieren los incisos a) y b) del artículo 9 la Ley, se hará de puerta a puerta entre el establecimiento que pretenda comercializar bebidas con contenido alcohólico y aquel punto de referencia. Se entenderá por puerta, la entrada o sitio principal de ingreso al público. En igual sentido se entenderá que existen los establecimientos a que se refieren esos incisos, aun en el caso de que estuvieren en proyecto formal de construcción, con permisos aprobados por la Municipalidad.
+f. Queda terminantemente prohibido la comercialización de bebidas con contenido alcohólico en casas de habitación.
+g. Se prohíbe la utilización de marcas o nombres de bebidas con contenido alcohólico en publicidad, uniformes, medios de transporte utilizados para competencias y artículos deportivos de todo equipo, asociaciones, federaciones, ligas deportivas o cualquier otro nombre que se les dé a las agrupaciones que organizan deportes; así como a las actividades culturales, deportivas y recreativas dirigidas a menores de edad.
+Las infracciones de este tipo serán motivo suficiente para cancelar la licencia otorgada para la comercialización de bebidas con contenido alcohólico, lo que implica la clausura del establecimiento, previo debido proceso en los términos de los capítulos siguientes.

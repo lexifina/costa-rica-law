@@ -1,0 +1,1 @@
+Artículo 34: TIPOS DE LICENCIAS TEMPORALES PARA LA COMERCIALIZACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO QUE PUEDEN SER AUTORIZADOS: Las licencias autorizadas bajo esta categoría serán únicamente del tipo B1 y B2.

@@ -1,0 +1,1 @@
+Artículo 4: SUPUESTOS PARA DENEGAR SOLICITUDES DE LICENCIA PARA LA COMERCIALIZACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO: La licencia municipal para ejercer la actividad, sólo podrá ser denegada cuando se presenten los supuestos del artículo 81 del Código Municipal, así como cuando se esté ante alguna de las prohibiciones del numeral 9 de la Ley.

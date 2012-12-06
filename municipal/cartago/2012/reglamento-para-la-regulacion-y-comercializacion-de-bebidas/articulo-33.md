@@ -1,0 +1,1 @@
+Artículo 33: ÁMBITO TEMPORAL DE LAS LICENCIAS TEMPORALES PARA LA COMERCIALIZACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO: Las licencias que se otorguen bajo este capítulo no podrán ser aprobadas por un plazo mayor a un mes y no podrán ser otorgadas más de dos veces durante el mismo año.
