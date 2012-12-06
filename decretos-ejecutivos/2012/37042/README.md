@@ -18,3 +18,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 3 | 2012-12-06 | Decreto Ejecutivo 37447 (2012-12-06) |
 | 4 | 2012-12-06 | Decreto Ejecutivo 37450 (2012-12-06) |
 | 5 | 2012-12-06 | Decreto Ejecutivo 37452 (2012-12-06) |
+| 6 | 2012-12-06 | Decreto Ejecutivo 37451 (2012-12-06) |
