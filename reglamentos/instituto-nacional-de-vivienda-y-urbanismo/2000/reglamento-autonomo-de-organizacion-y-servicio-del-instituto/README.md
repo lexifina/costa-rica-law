@@ -20,3 +20,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto Nacional de Vivie
 | 5 | 2007-12-12 | Reglamento 5647 (2007-12-12) |
 | 6 | 2008-02-08 | Reglamento 5658 (2008-02-08) |
 | 7 | 2008-08-13 | Reglamento 5688 (2008-08-13) |
+| 8 | 2012-12-06 | Reglamento 5970 (2012-12-06) |
