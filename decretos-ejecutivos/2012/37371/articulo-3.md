@@ -1,0 +1,1 @@
+Artículo 3º—Entidades participantes. Las entidades participantes en la ejecución del Proyecto Germinadora son: Despacho del Ministro de Bienestar Social y Familia, INA, UNA, CENECOOP, INFOCOOP, CONACOOP, BPDC, JUDESUR, IMAS y otras que se incorporen a la iniciativa mediante la firma del Convenio Marco Interinstitucional.

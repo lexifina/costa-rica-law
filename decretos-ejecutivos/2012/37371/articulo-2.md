@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo del Proyecto Germinadora: Contribuir a la generación de condiciones y oportunidades para el desarrollo organizacional, empresarial asociativo, especialmente cooperativo y comunitario, en las zonas fronterizas y costeras del país, así como en otras comunidades en condición de pobreza o de riesgo y vulnerabilidad social.
