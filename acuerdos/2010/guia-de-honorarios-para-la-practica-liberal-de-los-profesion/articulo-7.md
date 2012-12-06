@@ -1,1 +1,0 @@
-Artículo 7º—Formato de contratos. NO CONTRATOS. La Comisión podrá ayudar a los y las profesionales liberales estableciendo plantillas de contratos que puedan ser usados en su ejercicio, los cuales deberán de cumplir todas las normas específicas de un contrato legalmente constituido, de considerarlo conveniente.

@@ -1,4 +1,0 @@
-CAPÍTULO IV
-De la contratación profesional
-Artículo 6º—Contratos de servicios profesionales. NO CONTRATOS. El contrato escrito entre el profesional y su cliente constituye la forma idónea para probar y determinar los alcances de la labor profesional a cumplir y su retribución.
-El documento en que consten los términos de la contratación debe contener, cuando menos, el objeto detallado del servicio, el monto de los honorarios, su forma de pago, así como cumplir con los demás requisitos que establece la ley para este tipo de actos.

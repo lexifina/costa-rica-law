@@ -1,1 +1,0 @@
-Artículo 9º—Servicios profesionales por retribución de honorarios. Cuando el profesional brinde servicios profesionales mediante el pago de honorarios, para su determinación regirán las disposiciones de esta Guía, salvo contrato escrito en el cual convenga profesional con su cliente otros términos de referencia, los cuales no pueden ser menores a lo aquí establecido.
