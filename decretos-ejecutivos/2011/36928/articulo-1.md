@@ -15,11 +15,12 @@ Considerando:
 10.—Que para facilitar la adecuada gestión y administración de los impuestos, se ha considerado conveniente redondear a la unidad de millón más cercana. Por tanto,
 Decretan:
 Artículo 1º—Actualización de los tramos de la escala. Para el período fiscal 2012, se actualizan los tramos de la escala establecida en el artículo 5 de la Ley N° 8683 de 19 de noviembre del 2008 y en el artículo 1º del Decreto Ejecutivo Nº 36338-H del 13 de diciembre del 2010, de la siguiente manera:
-Valor Tarifa
-a) Hasta ¢277.000.000,00 0,25%
-b) Sobre el exceso de ¢ 277.000.000,00 y hasta ¢555.000.000,00 0,30%
-c) Sobre el exceso de ¢ 555.000.000,00 y hasta ¢832.000.000,00 0,35%
-d) Sobre el exceso de ¢ 832.000.000,00 y hasta ¢1.109.000.000,00 0,40%
-e) Sobre el exceso de ¢ 1.109.000.000,00 y hasta ¢1.386.000.000,00 0,45%
-f) Sobre el exceso de ¢ 1.386.000.000,00 y hasta ¢1.665.000.000,00 0,50%
-g) Sobre el exceso de ¢ 1.665.000.000,00 0,55%
+| Valor | Tarifa
+a) Hasta | ¢ 291.000.000,00 | 0,25%
+b) Sobre el exceso de ¢291.000.000,00 y hasta | ¢584.000.000,00 | 0,30%
+c) Sobre el exceso de ¢584.000.000,00 y hasta | ¢875.000.000,00 | 0,35%
+d) Sobre el exceso de ¢875.000.000,00 y hasta | ¢1.167.000.000,00 | 0,40%
+e) Sobre el exceso de ¢1.167.000.000,00 y hasta | ¢1.458.000.000,00 | 0,45%
+f) Sobre el exceso de ¢1.458.000.000,00 y hasta | ¢1.752.000.000,00 | 0,50%
+g) Sobre el exceso de | ¢1.752.000.000,00 | 0,55%
+(Así reformados los tramos anteriores por el artículo 1° del decreto ejecutivo N° 37444 del 6 de diciembre de 2012)
