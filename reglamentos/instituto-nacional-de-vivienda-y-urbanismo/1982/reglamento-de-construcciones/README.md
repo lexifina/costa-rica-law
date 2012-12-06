@@ -29,3 +29,4 @@ Reglamento de Construcciones
 | 14 | 2009-05-27 | SINALEVI (sin norma nombrada) |
 | 15 | 2009-09-16 | Reglamento 5764 (2009-09-16) |
 | 16 | 2012-04-19 | Reglamento 5936 (2012-04-19) |
+| 17 | 2012-12-06 | Reglamento 5970 (2012-12-06) |
