@@ -1,0 +1,1 @@
+Artículo 8°.- Las entidades del Sector Público que requieran adquirir equipo de cómputo, procurarán prioritariamente realizar dicha gestión mediante la modalidad de "Leasing operativo" (arrendamiento). De igual forma, para la adquisición de bienes y servicios, procurarán hacer uso del mecanismo denominado "Convenio Marco".
