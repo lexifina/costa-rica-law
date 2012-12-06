@@ -16,3 +16,4 @@ CAPÍTULO I
 Disposiciones Generales
 Artículo 1º—Estas directrices serán aplicables a las entidades públicas, ministerios y demás órganos, cubiertos por el ámbito de la AP.
 (Mediante el artículo 1° del decreto ejecutivo N° 37449 del 6 de diciembre del 2012, se amplia para el Instituto Nacional de Estadística y Censo (INEC), el gasto presupuestario máximo para el año 2013, en la suma de ¢670.000.000,00 (seiscientos setenta millones de colones exactos), para ese período)
+(Mediante el artículo 1° del decreto ejecutivo N° 37447 del 6 de diciembre de 2012, se amplia para la Refinadora Costarricense de Petróleo (RECOPE); el gasto presupuestario máximo para el año 2013, en la suma de ¢62.938.090.240,00 (sesenta y dos mil novecientos treinta ocho millones noventa mil doscientos cuarenta colones exactos), para ese período)

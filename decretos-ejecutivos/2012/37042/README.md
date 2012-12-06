@@ -15,3 +15,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | --- | --- | --- |
 | 1 | 2012-03-22 | la propia norma |
 | 2 | 2012-12-06 | Decreto Ejecutivo 37449 (2012-12-06) |
+| 3 | 2012-12-06 | Decreto Ejecutivo 37447 (2012-12-06) |
