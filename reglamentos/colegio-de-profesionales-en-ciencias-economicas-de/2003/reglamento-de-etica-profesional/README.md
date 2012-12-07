@@ -14,3 +14,4 @@ Reglamento de Ética Profesional.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-22 | la propia norma |
+| 2 | 2012-12-07 | Reglamento 90 (2012-12-07) |

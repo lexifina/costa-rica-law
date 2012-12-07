@@ -1,2 +1,2 @@
-Artículo 14.—Será deber del Colegiado abstenerse de participar en actuaciones profesionales reñidas con la ley, la moral o que desnaturalice y desprestigie a los profesionales en ciencias económicas y al Colegio.
-Además, deberá poner en conocimiento del Colegio cualquier conducta contraria a los principios antes señalados.
+Artículo 14.—Será deber del colegiado abstenerse de participar en actuaciones profesionales reñidas con la ley, la moral y las buenas costumbres, o que desnaturalice o desprestigie a los profesionales en Ciencias Económicas y al Colegio. Además, deberá poner en conocimiento del Colegio cualquier conducta contraria a los principios antes señalados.
+(Así reformado mediante sesión extraordinaria N° 090-2012 del 7 de diciembre del 2012)
