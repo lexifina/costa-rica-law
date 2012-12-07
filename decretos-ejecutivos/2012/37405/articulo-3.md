@@ -1,0 +1,1 @@
+Artículo 3º— El ICE dispondrá de mecanismos de información y divulgación de los resultados de la investigación. Además, deberá presentar una copia del informe final de la investigación a la Presidencia de la República, al Ministerio de Ambiente, Energía y Telecomunicaciones y al Sistema Nacional de Áreas de Conservación.
