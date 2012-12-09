@@ -1,1 +1,0 @@
-Artículo 7º—Puede optar por ingresar al Sistema de Recertificación Profesional Farmacéutica de Costa Rica, todo farmacéutico en su calidad de miembro activo del Colegio de Farmacéuticos de Costa Rica.

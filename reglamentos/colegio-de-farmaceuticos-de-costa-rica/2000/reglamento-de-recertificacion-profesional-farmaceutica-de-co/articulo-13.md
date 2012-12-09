@@ -1,2 +1,0 @@
-Artículo 13.—La CRPF será nombrada por la Junta Directiva del Colegio de Farmacéuticos de Costa Rica en las primeras cuatro sesiones ordinarias del año y estará integrada por cinco miembros activos de dicho Colegio. El Jefe del Departamento de Desarrollo Profesional será miembro permanente, con derecho a voz pero sin voto. Otros miembros activos de Colegio podrán participar como invitados en las sesiones de la CRPF, con derecho a voz pero sin voto.
-(Así reformado mediante acuerdo de Junta Directiva del 11 de diciembre del 2005)

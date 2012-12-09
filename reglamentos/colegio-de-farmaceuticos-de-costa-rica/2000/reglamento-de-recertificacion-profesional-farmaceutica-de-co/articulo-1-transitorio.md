@@ -1,1 +1,0 @@
-Transitorio I.—Los miembros actuales de la CRPF permanecerán en sus cargos hasta la segunda sesión ordinaria del año 2001 de la Junta Directiva del Colegio de Farmacéuticos, fecha en que la misma deberá renovar a dos de sus miembros.

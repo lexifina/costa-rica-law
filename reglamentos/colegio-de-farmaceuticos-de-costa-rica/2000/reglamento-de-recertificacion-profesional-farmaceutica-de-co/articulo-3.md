@@ -1,1 +1,0 @@
-Artículo 3º—Los principios que rigen la Recertificación Profesional Farmacéutica de Costa Rica son: la voluntariedad, la accesibilidad, la periocidad, la revocabilidad, la confiabilidad y la agilidad.
