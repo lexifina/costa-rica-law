@@ -25,18 +25,18 @@ c) Ciencias Sociales y Administrativas
 4) Gestión de servicios y establecimientos de salud
 5) Salud pública
 d) Farmacia Industrial
-1) Análisis y control de calidad de medicamentos
-2) Aseguramiento de la calidad de medicamentos
-3) Biotecnología farmacéutica
-4) Cosmetología y dermofarmacia
-5) Farmacia galénica
-6) Farmacia industrial
-7) Ingeniería farmacéutica
-8) Visita Médica
-9) Mercadeo farmacéutico
-10) Tecnología farmacéutica
-11) Investigación, Desarrollo e Innovación de Medicamentos
-(Así adicionada la especialidad anterior mediante sesión de asamblea extraordinaria celebrada el 30 de enero de 2012)
+1) Análisis y control de calidad de materias primas para elaboración de medicamentos y afines
+2) Análisis y control de calidad de medicamentos y afines
+3) Aseguramiento de la calidad de medicamentos y afines
+4) Biotecnología farmacéutica
+5) Cosmetología y dermofarmacia
+6) Farmacia galénica
+7) Farmacia industrial
+8) Ingeniería farmacéutica
+9) Visita Médica
+10) Mercadeo farmacéutico
+11) Tecnología farmacéutica
+12) Investigación desarrollo e innovación de medicamentos y afines
 e) Farmacia Clínica y Atención Farmacéutica
 1) Atención farmacéutica
 2) Cuidados paliativos y control del dolor
@@ -52,7 +52,7 @@ e) Farmacia Clínica y Atención Farmacéutica
 12) Farmacología clínica
 13) Farmacoterapia o farmacoterapéutica
 14) Fitofarmacia o fitoterapia
-15) Información de medicamentos
+15) Información de medicamentos y afines
 16) Monitoreo en estudios clínicos
 17) Radiofarmacia
 18) Soporte nutricional clínico
@@ -64,11 +64,12 @@ f) Educación farmacéutica
 2) Evaluación educativa
 g) Regulación y política farmacéutica
 1) Auditoría farmacéutica
-2) Propiedad intelectual de medicamentos
+2) Propiedad intelectual de medicamentos y afines
 3) Evaluación de patentes farmacéuticas
 4) Merciología farmacéutica
-5) Registros sanitarios de medicamentos
+5) Registros sanitarios de medicamentos y afines
 h) Otros
 1) Farmacia forense
 2) Farmacia veterinaria
 3) Auditoría farmacéutica
+(Así reformado en asamblea general ordinaria y extraordinaria del 9 de diciembre de 2012)
