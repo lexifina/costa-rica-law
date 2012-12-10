@@ -1,0 +1,1 @@
+4°- La imagen del entero de pago ser? transmitida al Sistema de Información para el Control Aduanero (TICA) por el Agente de Aduanas mediante el código 0146 asignado por la Dirección General de Aduanas. Esto permitir? comprobar el pago del impuesto INDER para que se de trámite al desalmacenaje.

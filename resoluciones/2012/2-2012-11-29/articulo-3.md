@@ -1,0 +1,1 @@
+3°- Los agentes de aduanas en el campo de observaciones del DUA deberán anotar el número del entero de pago a favor del INDER, así como enviar copia del entero cancelado y el comprobante de pago o transferencia electrónica extendida por el banco a la dirección electrónica recaudacion@ida.go.cr

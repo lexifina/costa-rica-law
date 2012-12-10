@@ -1,0 +1,1 @@
+2°- Una vez confeccionado el entero de pago en el INDER, cada Agente de Aduanas debe realizar la cancelación de la suma determinada, en la cajas del INDER o mediante depósito o transferencia a la cuenta corriente 12617-9, cuenta cliente 15201001001261797 del Banco de Costa Rica, a nombre del Instituto de Desarrollo Rural (INDER), cédula jurídica 4-000-042143.
