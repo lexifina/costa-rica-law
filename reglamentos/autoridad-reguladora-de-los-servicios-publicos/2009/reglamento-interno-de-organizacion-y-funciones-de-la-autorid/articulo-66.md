@@ -1,6 +1,6 @@
 Artículo 66.—Transitorio III . Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas de la Autoridad Reguladora, la Dirección Administrativa Financiera asumirá las actividades y funciones gerenciales de administración financiera y de servicios generales, estipuladas en el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, mientras que la Gerencia General se prepara para asumir dichas funciones directamente.
-Esta medida transitoria estará vigente hasta el 31 de diciembre del 2012.
-(Así reformado el párrafo anterior mediante resolución aprobada en sesión N° 44 del 7 de junio del 2012)
+Esta medida transitoria estará vigente hasta que se encuentre implementada la nueva estructura organizativa que llegare a aprobar la Junta Directiva o hasta el 30 de junio del 2013, como fecha máxima.
+(Así reformado el párrafo anterior mediante sesión extraordinaria N° 100-2012 del 10 de diciembre del 2012)
 (Así adicionado en sesión extraordinaria N° 039-2010 del 4 de octubre de 2010)
 (Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 52 al 57 actual)
 (Así corrida su numeración en sesión ordinaria N° 054-2011 del 31 de agosto del 2011, que lo traspasó del antiguo artículo 57 al 66 actual)

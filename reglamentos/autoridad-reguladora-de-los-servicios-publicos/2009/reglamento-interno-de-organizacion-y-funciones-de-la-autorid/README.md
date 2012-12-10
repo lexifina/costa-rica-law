@@ -26,3 +26,4 @@ Reglamento interno de organización y funciones de la Autoridad Reguladora de lo
 | 11 | 2012-03-21 | Reglamento 22 (2012-03-21) |
 | 12 | 2012-06-07 | Resolución 0 (2012-06-07) |
 | 13 | 2012-06-25 | Ley 9046 |
+| 14 | 2012-12-10 | Reglamento 100 (2012-12-10) |
