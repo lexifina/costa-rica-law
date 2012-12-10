@@ -1,0 +1,3 @@
+3°- De conformidad con el artículo 6 de la Ley N? 5792, párrafo tercero, es obligación del INDER actualizar de oficio, el impuesto que pesa sobre bebidas carbonatadas. Siendo que la próxima fecha en que debe actualizarse el impuesto es el período que inicia en el mes de enero del año dos mil trece, se dispone el siguiente método de actualización:
+El índice de precios al consumidor (índice general, variaciones mensuales y acumuladas), a finales del mes de octubre del 2012, entre el índice de precios al consumidor (índice general, variaciones mensuales y acumuladas) a finales del mes de julio del 2012, menos 1 (uno), por 100=
+[ (154,993 ÷ 153,387) - 1 ] * 100 = 1.047%
