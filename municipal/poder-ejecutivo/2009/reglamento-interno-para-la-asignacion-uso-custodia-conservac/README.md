@@ -14,3 +14,4 @@ Reglamento Interno para la Asignación, Uso, Custodia, Conservación y Control d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-04 | la propia norma |
+| 2 | 2012-12-10 | Decreto Ejecutivo 37527 (2012-12-10) |
