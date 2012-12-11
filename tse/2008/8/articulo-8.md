@@ -1,9 +1,0 @@
-Artículo 8º—Potestades. Los delegados serán nombrados directamente por los Magistrados del Tribunal Supremo de Elecciones y responderán, para todos los efectos, ante éste. Tendrán las siguientes potestades:
-a) Velar por el cabal y correcto cumplimiento de las instrucciones, órdenes y demás medidas que el Tribunal establezca, imparta o llegare a girar, a los efectos de que los procesos electorales y consultivos se desarrollen y transcurras en condiciones de garantía, de orden y libertad absoluta e irrestricta.
-b) Actuar como representantes del Tribunal ante los alcaldes municipales, cuerpos de rescate y emergencias y autoridades de los distintos cuerpos policiales del país.
-c) Vigilar el desarrollo de las reuniones públicas, mítines políticos, piquetes y demás actos y manifestaciones que organizaren los partidos políticos y aplicar respecto de dichas actividades las medidas que resulten oportunas y convenientes, para que éstas se realicen en concordancia con la autorización expedida por la autoridad competente y con respeto absoluto de la propiedad privada, la integridad y la seguridad de las personas y el orden público.
-d) Ejecutar con la mayor celeridad las órdenes e instrucciones que el Tribunal les imparta en forma directa o a través del funcionario de enlace y que corresponda con las competencias propias del Cuerpo de Delegados.
-e) Cooperar en todas los etapas de los procesos electorales y consultivos con la ejecución de todas aquellas actividades delegadas por el propio Tribunal en otros sujetos de relevancia en el proceso.
-f) Llevar una bitácora donde se hagan constar todas las incidencias de su labor, lo cual deberá informar en forma oportuna al Tribunal.
-g) Tramitar y resolver las gestiones para la realización de piquetes que formulen los partidos políticos que intervienen en la elección o consulta.
-h) Las demás atribuciones que por ley, reglamento o por acuerdo del Tribunal se les asigne.

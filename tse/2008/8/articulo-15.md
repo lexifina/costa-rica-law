@@ -1,1 +1,0 @@
-Artículo 15.—Del régimen de responsabilidad. Los actos que, en ejecución de sus funciones, llegaren a adoptar los delegados del Tribunal estarán sujetos al régimen de responsabilidad establecido en el Título Sétimo del Libro Primero de la Ley General de la Administración Pública.
