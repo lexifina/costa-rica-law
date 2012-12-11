@@ -16,3 +16,4 @@ Reglamento Operativo del Fondo de la Micro, Pequeña y Mediana Empresa (FODEMIPY
 | 1 | 2010-05-03 | la propia norma |
 | 2 | 2010-12-07 | Reglamento 4808 (2010-12-07) |
 | 3 | 2012-10-02 | Reglamento 5005 (2012-10-02) |
+| 4 | 2012-12-11 | Reglamento 5026 (2012-12-11) |
