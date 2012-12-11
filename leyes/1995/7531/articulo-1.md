@@ -390,14 +390,19 @@ Para acceder al beneficio contemplado en este artículo, los padres o hermanos d
 De concurrir varios derechos, se aplicará lo dispuesto en el párrafo segundo del artículo 66 anterior.
 CAPITULO VI
 Cotizaciones
-Artículo 70.- Cotización básica de los funcionarios activos y de los pensionados
-Todos los funcionarios activos cubiertos por este Régimen, así como los pensionados, sea que hayan adquirido su derecho al amparo de esta ley o de cualquiera de las anteriores, sean estas la No. 2248, del 5 de setiembre de 1958 y sus reformas o la No. 7268, del 14 de noviembre de 1991 y su reforma, *(cotizarán en favor del Estado), según la siguiente tabla:
-a) Hasta dos veces la base cotizable, con el diez por ciento (10%) de su salario o pensión.
-b) Sobre el exceso de lo establecido en el inciso anterior y hasta cuatro veces la base cotizable, con el doce por ciento (12%) de su salario o pensión.
-c) Sobre el exceso de lo establecido en el inciso anterior y hasta seis veces la base cotizable, con el catorce por ciento (14%) de su salario o pensión.
-d) Sobre el exceso de lo establecido en el inciso anterior y hasta el monto establecido en el artículo 41 de esta ley, con el dieciséis por ciento (16%) de su salario o pensión.
-Debe entenderse por base cotizable, el salario base más bajo pagado por la Administración Pública.
-*(La Sala Constitucional mediante resolución N° 5236-99, de las 14:00 horas del 7 de julio de 1999, declaró inconstitucional del artículo anterior la frase destacada entre paréntesis.)
+Artículo 70.- Cotizaciones básicas de los funcionarios activos y de los pensionados
+1.- Todos los funcionarios activos cubiertos por este régimen cotizarán lo siguiente:
+a) Hasta dos veces la base cotizable, con el ocho punto setenta y cinco por ciento (8.75%) de su salario.
+b) Sobre el exceso de los establecido en el inciso anterior y hasta cuatro veces la base cotizable, con el doce por ciento (12%) de ese exceso.
+c) Sobre el exceso de lo establecido en el inciso anterior y hasta seis veces la base cotizable, con un catorce por ciento (14%) de ese exceso.
+d) Sobre el exceso de lo establecido en el inciso anterior y hasta el monto establecido en el artículo 44 de esta ley, con un dieciséis por ciento (16%) de ese exceso.
+2.- Todos los pensionados cubiertos por este régimen, sea que hayan adquirido su derecho al amparo de esta ley o de cualquiera de las anteriores, sean estas la Ley N° 2248, de 5 de setiembre de 1958, y sus reformas, o la Ley N ° 7268, de 14 de noviembre de 1991, y sus reformas, cotizarán según lo siguiente:
+a) Hasta tres veces la base cotizable, exento.
+b) Sobre el exceso de lo establecido en el inciso anterior y hasta cuatro veces la base cotizable, con un doce por ciento (12%) de ese exceso.
+c) Sobre el exceso de lo establecido en el inciso anterior y hasta seis veces la base cotizable, con un catorce por ciento (14%) de ese exceso.
+d) Sobre el exceso de lo establecido en el inciso anterior y hasta el monto establecido en el artículo 44 de esta ley, con un dieciséis por ciento (16%) de ese exceso.
+Para los efectos de este artículo, debe entenderse por base cotizable el salario base más bajo pagado por la Administración Pública ”.
+(Así reformado el artículo 70) anterior por el artículo 1° de la ley N° 9104 del 10 de diciembre del 2012)
 Artículo 71.- Contribución especial, solidaria y redis-tributiva de los pensionados y jubilados
 Además de la cotización común establecida en el artículo anterior, los pensionados y los jubilados cuyas prestaciones superen los montos que se fijarán, contribuirán en forma especial, solidaria y redistributiva, de acuerdo con la siguiente tabla:
 a) Sobre el exceso del tope establecido en el artículo 44, y hasta por el veinticinco por ciento (25%) de dicho tope, contribuirán con el veinticinco por ciento (25%) de tal exceso.
@@ -621,9 +626,7 @@ En la regulación y supervisión del Sistema de Pensiones del Magisterio se apli
 Artículo 115.- Garantía de pago.
 El Estado garantiza el pago de los derechos otorgados y los que se lleguen a otorgar en el Régimen transitorio de reparto de acuerdo con esta ley.
 (Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
-Artículo 116.- Exoneración de pensiones.
-Solo quedarán exonerados de la contribución correspondiente al Régimen de reparto, los derechos por vejez, invalidez, muerte o supervivencia, iguales o menores a dos veces el salario base más bajo pagado por la Administración Pública.
-En caso de supervivencia, la exoneración se aplicará sobre la sumatoria de los montos derivados de un derecho jubilatorio.
+Artículo 116.- (Derogado por el artículo 2° de la ley N° 9104 del 10 de diciembre del 2012)
 (Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 117.- Los servidores adscritos a este Régimen, que desempeñen cargos en propiedad en la Administración Pública , tendrán el derecho de percibir, además de su salario, la pensión que les corresponda en razón del fallecimiento de su cónyuge, mientras permanezcan viudos. La presente normativa reforma, en lo conducente, el artículo 15 de la Ley general de pensiones, Nº 14, de 2 de diciembre de 1935, y el artículo 31 de la Ley N º 7302, de 8 de julio de 1992, así como cualquier otra disposición que se le oponga.
 (Así adicionado por el artículo 2° de la ley N° 8721 del 18 de marzo de 2009)
