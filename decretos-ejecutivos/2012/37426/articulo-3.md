@@ -1,0 +1,1 @@
+Artículo 3: Ámbito de aplicación del programa de operaciones garantizadas. El Programa de Operaciones Garantizadas, regulado en el presente Reglamento, será puesto a disposición de aquellas Entidades Autorizadas del Sistema Financiero Nacional para la Vivienda que se encuentran sujetas a la supervisión de la Superintendencia General de Entidades Financieras.

@@ -1,0 +1,1 @@
+Artículo 9: Características específicas de las operaciones objeto de la garantía. Las características específicas de las operaciones de crédito que podrán contar con la garantía otorgada por el BANHVI, serán establecidas por la Junta Directiva de esa Entidad a través de las Disposiciones Normativas para la Ejecución del Programa de Operaciones Garantizadas.

@@ -1,0 +1,9 @@
+CAPÍTULO III
+De las operaciones garantizadas
+Artículo 8: Criterios generales para la originación de operaciones objeto de la garantía. El BANHVI garantizará créditos hipotecarios individuales de primer grado destinados a la adquisición de la primera vivienda, los cuales deberán cumplir con las siguientes condiciones:
+a) El plan de inversión de los recursos del crédito deberá señalar si es compra de vivienda nueva o usada, individual o en proyectos o condominios; en propiedad horizontal o vertical.
+b) El inmueble únicamente podrá soportar el gravamen hipotecario que será objeto de la garantía prevista en este Reglamento. Tampoco podrá soportar litigios, embargos o ser objeto de contenciones o litigios de cualquier tipo.
+c) No pueden corresponder a operaciones de crédito formalizadas como complemento del Bono Familiar de Vivienda, a operaciones del programa de bono diferido contemplado en el artículo 54 de la Ley del Sistema Financiero Nacional para la Vivienda o a créditos que la Entidad Autorizada ceda o llegue a ceder al BANHVI como garantía por el otorgamiento de créditos de todo tipo, en los cuales figure el BANHVI como acreedor.
+d) La Entidad Autorizada acreedora, que desee acogerse a los beneficios de esta garantía no podrá autorizar novaciones de deudor o nuevos gravámenes hipotecarios en los cuales figure como acreedor. Lo anterior salvo que cuente con la autorización previa y expresa del BANHVI.
+e) La Entidad Autorizada no podrá, bajo ningún procedimiento, vender, donar, ceder o gravar los créditos hipotecarios objeto de la garantía regulada por este Reglamento, salvo que cuente con la autorización previa y expresa del BANHVI.
+f) Las demás que sean establecidas por la Junta Directiva del BANHVI en las Disposiciones Normativas para la Ejecución del Programa de Operaciones Garantizadas.

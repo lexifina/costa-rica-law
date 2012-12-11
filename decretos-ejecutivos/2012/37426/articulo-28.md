@@ -1,0 +1,10 @@
+CAPÍTULO VIII
+Rescisión y resolución contractual y supervisión del BANHVI
+Artículo 28: Terminación anticipada. El BANHVI podrá rescindir o resolver, según fuere el caso, las obligaciones vinculadas con la garantía otorgada respecto de uno, varios o la totalidad de los créditos garantizados mediante simple aviso por escrito a la Entidad Autorizada en cualquier momento, en caso de que se presente cualquiera de las siguientes situaciones:
+a) Falta de pago de las comisiones a que se refiere el artículo 18 de este Reglamento.
+b) Falta de pago de las primas de seguros de saldos deudores y pólizas de incendios, en donde el beneficiario de los mismos sea la Entidad Autorizada.
+c) Verificación de que el deudor o la solución habitacional financiada no cumplen con las condiciones mínimas requeridas por el BANHVI para la originación de las operaciones garantizadas, según lo establecido en este Reglamento y en las Disposiciones Normativas para la Ejecución del Programa de Operaciones Garantizadas.
+d) Cualquier modificación de las características, términos, condiciones o vigencia de los créditos garantizados, no autorizada por el BANHVI.
+e) Las demás que sean establecidas por la Junta Directiva del BANHVI en las Disposiciones Normativas para la Ejecución del Programa de Operaciones Garantizadas
+En caso de que la garantía se dé por terminada anticipadamente por cualquiera de las razones citadas, el BANHVI no estará en la obligación de rembolsar a la Entidad Autorizada las comisiones recibidas conforme el artículo 18 de este Reglamento y los efectos de la garantía quedarán extinguidos respecto de los créditos de que se trate.
+La rescisión o la resolución contractual parcial serán dictadas por la Gerencia General del BANHVI. Contra lo resuelto por ese órgano procederá el recurso de revocatoria con apelación en subsidio ante la Junta Directiva del BANHVI. No obstante, cuando la rescisión o la resolución contractual, sea total y ponga fin a la aplicación total de la garantía prevista en estas normas, será dictada por la Junta Directiva del BANHVI, previo procedimiento administrativo para garantizar el debido proceso.
