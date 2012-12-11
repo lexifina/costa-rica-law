@@ -1,0 +1,4 @@
+TRANSITORIO II.-
+Los propietarios de los establecimientos comerciales e industriales que tengan publicidad de cualquier tipo, mediante rótulos, anuncios o vallas que se ajusten a lo dispuesto en esta ley, contarán con un plazo de ciento veinte días naturales siguientes a la publicación de esta ley y deberán presentarse a la Municipalidad a registrar la cantidad de rótulos, anuncios o vallas que tengan en su establecimiento; caso contrario, la Municipalidad mediante inspección de campo, determinará las calidades del rótulo, el anuncio o la valla y asignará la categoría para su respectivo cobro, más una multa equivalente al monto anual determinado por la Municipalidad por concepto de la publicidad exterior de los locales comerciales.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los siete días del mes de noviembre del año dos mil doce.

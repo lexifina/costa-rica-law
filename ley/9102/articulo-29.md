@@ -1,0 +1,2 @@
+ARTÍCULO 29.- Obligatoriedad de contar con licencia para la instalación de rótulos, anuncios y vallas publicitarias
+Los propietarios de bienes inmuebles o patentados de negocios comerciales donde se instalen rótulos o anuncios, y las empresas que vendan o alquilen espacios para publicidad de cualquier tipo, mediante rótulos, anuncios o vallas, deberán contar con una licencia municipal adicional a la licencia e impuesto establecido en el artículo 1 de este ley. Para tal fin, pagarán un impuesto anual dividido en cuatro tractos trimestrales.

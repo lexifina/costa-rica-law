@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Licencia e impuesto
+El ejercicio de cualquier actividad lucrativa en el cantón de Belén obliga al interesado a obtener, de parte de la Municipalidad, un permiso, autorización o licencia, la cual a su vez origina la obligación de pagar el impuesto respectivo. La licencia se cancela o llega a su fin a solicitud razonada del interesado, o cuando haya evidencia de que la actividad no está siendo ejercida, lo cual será decidido por la Municipalidad mediante la respectiva resolución.
