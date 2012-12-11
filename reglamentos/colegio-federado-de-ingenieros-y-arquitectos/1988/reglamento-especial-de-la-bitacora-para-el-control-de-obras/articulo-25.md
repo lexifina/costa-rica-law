@@ -1,0 +1,2 @@
+Artículo 25.—El documento de información de la obra, cuyas dimensiones serán de 21.59 cm x 27.94 cm, será entregado por el Colegio Federado al momento en que se registra la responsabilidad profesional para la ejecución del proyecto (Dirección Técnica o Administración). En dicho documento se detallará la siguiente información: número de proyecto, área registrada, nombre del profesional responsable del proyecto total, y de los profesionales responsables de todas las especialidades involucradas en el proyecto.
+(Así adicionado en sesión N° 06 del 11 de diciembre de 2012)

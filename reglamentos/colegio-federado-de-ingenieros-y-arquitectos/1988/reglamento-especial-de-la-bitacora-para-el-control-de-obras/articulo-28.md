@@ -1,0 +1,2 @@
+Artículo 28.—En caso de sustitución de la responsabilidad profesional, el Colegio Federado otorgará un nuevo documento de información de la obra, que incluye las nuevas responsabilidades registradas. Es obligación del profesional responsable colocar el nuevo documento en el sitio de la obra. Asimismo, cada vez que se registre un cambio en la responsabilidad profesional, para alguno de los servicios registrados del proyecto, el Colegio Federado otorgará un nuevo documento de información de obra.
+(Así adicionado en sesión N° 06 del 11 de diciembre de 2012)

@@ -1,0 +1,2 @@
+Artículo 30.—Sin perjuicio de las sanciones penales que correspondan ante esa vía, la alteración o inserción de información no fidedigna en el documento de información de obra, hará que los agremiados incurran en las faltas establecidas en los artículos 3, 9 y 31 del Código de Ética Profesional. Asimismo, el incumplimiento de las obligaciones contempladas en el presente capítulo, se considerarán faltas contra la Ética Profesional.
+(Así adicionado en sesión N° 06 del 11 de diciembre de 2012)
