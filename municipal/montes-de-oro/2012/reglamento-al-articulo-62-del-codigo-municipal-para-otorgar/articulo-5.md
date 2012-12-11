@@ -1,0 +1,1 @@
+Artículo 5°—De la clasificación de los daños y los montos máximos de donaciones. Las donaciones ejecutadas al amparo del presente reglamento, servirán para cubrir daños leves y moderados, según la información que se encuentra vinculada a la Emergencia Nacional declarada. Los montos indicados son límites máximos que no pueden ser superados.

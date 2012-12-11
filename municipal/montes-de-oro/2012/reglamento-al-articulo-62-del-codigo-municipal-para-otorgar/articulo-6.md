@@ -1,0 +1,6 @@
+Artículo 6°—De la aprobación del giro de los fondos. El procedimiento de aprobación del giro de los fondos de ayuda será el siguiente:
+a. Recibida la solicitud completa, la Alcaldía Municipal tendrá un plazo máximo de cinco días para ordenar la revisión de los documentos e inspección de la vivienda por parte de un profesional en ingeniería o arquitectura, con el fin de corroborar la vinculación del presupuesto presentado con el reporte de daños, realizado ante la Comisión Nacional de Emergencias.
+b. El profesional deberá rendir su informe positivo o negativo en un plazo máximo de tres días y comunicarlo a la alcaldía con copia al solicitante.
+c. Si el informe es negativo, el profesional deberá adecuar en su informe el monto de presupuesto requerido, el cual será el monto aprobado de forma definitiva.
+d. Recibido en la Alcaldía Municipal el informe del profesional, esta ordenará de inmediato el giro del 50% del monto aprobado y girará instrucciones al profesional para que al invertirse el monto desembolsado, proceda a inspeccionar las obras y autorizar el restante 50%.
+e. Finalizada la obra, la Municipalidad podrá inspeccionar nuevamente las obras para asegurar el debido uso de los recursos.
