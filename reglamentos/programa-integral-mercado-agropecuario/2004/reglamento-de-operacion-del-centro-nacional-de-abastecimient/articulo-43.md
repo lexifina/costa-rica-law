@@ -1,2 +1,2 @@
-Artículo 43.—Horario y calendario: El CENADA funcionará de acuerdo con el horario y calendario dispuesto expresamente por el Consejo Directivo. Ese horario podrá ser variado según las conveniencias de la comercialización y la variación debe ser publicada en lugar visible con antelación.
-El cierre total del CENADA por un día o periodo mayor debe ser acordado por el Consejo Directivo.
+Artículo 43.—El CENADA funcionará de acuerdo con el horario y calendario dispuesto expresamente por la gerencia general del PIMA. Ese horario podrá ser variado según las conveniencias de la comercialización y la variación debe ser publicada en lugar visible, con una semana de anticipación como mínimo, y de todo esto se informará al consejo directivo oportunamente. El cierre total del CENADA por más de tres días debe ser acordado por el consejo directivo, el tiempo menor a este por la gerencia general.
+(Así reformado y publicado en La Gaceta N° 239 del 11 de diciembre del 2012)
