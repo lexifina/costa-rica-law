@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo Nº 23653-MIRENEM del 21 de julio de 1994, publicado en La Gaceta Nº 193 del 11 de octubre de 1994, mediante el cual se emitió Reglamento para los Promotores Turísticos que operan dentro de los Refugios de Vida Silvestre.
