@@ -1,1 +1,0 @@
-Artículo 12.—Para la compra de bienes y servicios por medio de las cajas chicas, deberá utilizarse una solicitud dirigida al contador o al funcionario que haga las veces de éste, la cual requiere la firma de aprobación de la Proveeduría haciendo constar que no hay existencia en bodega.

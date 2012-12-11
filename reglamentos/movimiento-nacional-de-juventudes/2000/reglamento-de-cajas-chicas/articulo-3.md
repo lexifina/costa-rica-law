@@ -1,1 +1,0 @@
-Artículo 3°—Las cajas chicas a las que se refiere este Reglamento deberán ser usadas única y exclusivamente en la adquisición de bienes y servicios tan indispensables y de verdadera urgencia, que justifique su pago fuera de los trámites ordinarios establecidos. Éstos fondos podrán usarse solamente para gastos en las partidas de materiales y suministros y servicios no personales.

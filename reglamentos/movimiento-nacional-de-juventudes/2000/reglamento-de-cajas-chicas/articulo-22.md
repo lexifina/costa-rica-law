@@ -1,1 +1,0 @@
-Artículo 22.—En ausencia de los responsables del manejo de las cajas chicas deberá designarse un nuevo responsable; y se le entregará el fondo mediante arqueo previo por parte de la Contabilidad a solicitud del Coordinador del Área Administrativa o quien haga las veces de éste.

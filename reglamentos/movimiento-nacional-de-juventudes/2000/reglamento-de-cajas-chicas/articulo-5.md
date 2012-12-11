@@ -1,1 +1,0 @@
-Artículo 5°—La Contabilidad, periódicamente y sin previo aviso, efectuará arqueos, los cuales deberán estar avalados por el Coordinador del Área Administrativa de la Institución. Dicho arqueo deberá revisar toda la documentación que muestren las operaciones realizadas hasta ese momento. Cuando se estime necesario se enviará copia a la Dirección General de la Institución

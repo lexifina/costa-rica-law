@@ -1,1 +1,0 @@
-Artículo 19.—Para emitir el cheque respectivo se presentará la liquidación acompañada de los originales de las facturas comerciales debidamente canceladas y firmadas al dorso o por el funcionario que recibió el bien o servicio.

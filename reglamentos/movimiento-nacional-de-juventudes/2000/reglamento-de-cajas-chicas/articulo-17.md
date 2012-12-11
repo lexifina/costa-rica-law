@@ -1,1 +1,0 @@
-Artículo 17.—Todo sobrante de dinero, originado en la liquidación de los adelantos de cajas chicas por medio de cheque, deberá ser depositado en la cuenta corriente de la Institución, a más tardar el día hábil siguiente a la liquidación.

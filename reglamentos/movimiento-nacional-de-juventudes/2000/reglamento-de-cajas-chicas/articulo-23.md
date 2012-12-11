@@ -1,1 +1,0 @@
-Artículo 23.—Ante inactividad de alguna caja chica por un período de tres meses se deberá cerrar, efectuando con antelación un arqueo por parte de la Contabilidad a solicitud del Coordinado del Área Administrativa o quien haga las veces de éste, el cual custodiará y dará el trámite que corresponda a la documentación que a esa fecha se encuentre pendiente, procediendo a liquidar.

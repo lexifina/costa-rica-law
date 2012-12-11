@@ -1,1 +1,0 @@
-Artículo 16.—El funcionario que tenga una liquidación de un anticipo de dinero, para la adquisición de bienes y servicios o gastos de viaje, no le será entregado otro anticipo hasta tanto no liquide el que tiene pendiente.

@@ -1,1 +1,0 @@
-Artículo 4°—Las cajas chicas serán en efectivo y operarán por medio del sistema de fondo fijo. El monto autorizado será hasta por ¢50.000,00 por caja chica para cubrir gastos que no superen los ¢5.000,00. Sin embargo, la Contabilidad podrá autorizar montos mayores siempre y cuando las necesidades, debidamente justificadas, así lo exijan.
