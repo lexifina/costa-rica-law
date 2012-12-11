@@ -1,0 +1,11 @@
+ARTÍCULO 12.- Requerimiento de información y documentos para actuaciones
+fiscalizadoras
+La información es un insumo fundamental para determinar la obligación tributaria, por lo que los contribuyentes del impuesto de patentes están obligados a facilitarla cuando la Administración Tributaria Municipal se la solicite en el proceso de declaración o para realizar actuaciones fiscalizadoras. La negación por segunda vez de información trascendente hará acreedor al sujeto pasivo rebelde a la sanción respectiva que adelante se señala.
+En casos especiales de actuaciones fiscalizadoras del impuesto de patentes, la Municipalidad de Belén podrá solicitar los elementos o indicios que permitan realizar la determinación de la obligación tributaria, entre ellos los siguientes:
+a) Certificación literal de la propiedad donde se ubica el local de la empresa fiscalizada.
+b) Personería jurídica con detalle de la representación legal, composición de la Junta Directiva y distribución de la propiedad de las acciones, se trate o no de empresas vinculadas o pertenecientes a un mismo grupo económico de interés.
+c) Copia de una o más planillas presentadas a la Caja Costarricense de Seguro Social, que permitan la verificación y determinación de la obligación tributaria.
+d) Copias certificadas de los contratos y los recibos por concepto de alquiler de local.
+e) Copias de los recibos del consumo de servicios públicos, que puedan ser utilizadas como indicios o parámetros de comparación en las actuaciones fiscalizadoras.
+f) Cualquier otro documento o información que constituya un indicio o elemento de prueba de relevancia tributaria para la actuación fiscalizadora.
+Cuando lo considere necesario, la Administración Tributaria Municipal podrá citar a los sujetos pasivos para que comparezcan en sus oficinas, con el fin de que contesten las preguntas necesarias para verificar la obligación. Si la comparecencia es oral, se deberá levantar un acta dejando constancia de las preguntas, respuestas y otra manifestación que cualquiera de las partes desee que se incluya. El acta debe contar con las formalidades señaladas por el artículo 270 de la Ley General de la Administración Pública. En caso de que la comparecencia sea escrita, bastará con que los documentos de solicitud de información y respuesta se agreguen al respectivo expediente.

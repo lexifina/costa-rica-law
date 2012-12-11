@@ -1,0 +1,3 @@
+ARTÍCULO 28.- Rótulos, anuncios y vallas publicitarias
+Todo lo referente a la publicidad exterior de los locales comerciales e industriales, ubicados en la vía pública, centros comerciales en propiedad horizontal, o bien, en propiedad privada pero con proyección al espacio público en el cantón de Belén deberán ser rótulos de una cara adosados de forma paralela a la fachada del edificio y no podrán proyectarse perpendicularmente.
+Se autoriza a la Municipalidad de Belén para que regule y controle todo lo referente a la instalación, las dimensiones y la exhibición exterior de anuncios, rótulos, letreros, avisos, mantas publicitarias o vallas, pantallas luminosas, mupis y similares, por medio del Plan regulador o el reglamento correspondiente.
