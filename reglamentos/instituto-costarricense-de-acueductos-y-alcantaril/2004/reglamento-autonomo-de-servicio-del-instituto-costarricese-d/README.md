@@ -14,3 +14,4 @@ Reglamento autónomo de servicio del Instituto Costarricese de Acueductos y Alca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-18 | la propia norma |
+| 2 | 2012-12-11 | Reglamento 57 (2012-12-11) |
