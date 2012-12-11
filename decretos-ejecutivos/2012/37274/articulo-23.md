@@ -1,0 +1,1 @@
+Artículo 23.—De la ejecución de fondos. La ejecución de los fondos designados al CORAC, se realizara según se haya establecido en el Plan de Trabajo del CORAC, con el fin de garantizar la transparencia en el uso de los mismos.

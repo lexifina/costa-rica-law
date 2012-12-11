@@ -1,0 +1,1 @@
+Artículo 6°—De la representatividad. Los representantes de cada sector, lo son en virtud de sus cargos y no a título personal, por tal razón en caso de perder esa representatividad, deberán ser sustituidos por su sucesor en el respectivo sector que representan.

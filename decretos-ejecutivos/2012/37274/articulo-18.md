@@ -1,0 +1,1 @@
+Artículo 18.—Funciones de los demás miembros del CORAC. De conformidad al numeral 44 del Reglamento a la Ley de Biodiversidad, las funciones para los miembros restantes, serán las establecidas por la Ley General de la Administración Pública Nº 6227.

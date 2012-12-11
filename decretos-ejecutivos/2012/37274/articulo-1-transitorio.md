@@ -1,0 +1,1 @@
+Transitorio Único.—Una vez aprobado el presente reglamento se hará una convocatoria a la Asamblea para que se elija el CORAC ACLA-C, por un periodo de cuatro años y el cual se regirá por lo dispuesto en el presente reglamento.

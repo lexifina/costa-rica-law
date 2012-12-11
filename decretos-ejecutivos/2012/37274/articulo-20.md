@@ -1,0 +1,2 @@
+Artículo 20.—Comisiones Interdisciplinarias. Sin menoscabo de las potestades del CORAC, cuando este lo considere necesario, podrá nombrar comisiones interdisciplinarias, bajo su supervisión, responsables del seguimiento y monitoreo de proyectos de gran magnitud e importancia económica.
+Estas comisiones tendrán además el propósito de facilitar el diálogo y concertar arreglos en asuntos relacionados con el ambiente que se susciten entre empresas, el Gobierno y terceros interesados.

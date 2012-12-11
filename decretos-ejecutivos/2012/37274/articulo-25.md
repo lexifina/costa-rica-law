@@ -1,0 +1,1 @@
+Artículo 25.—De las normas supletorias. Para todo lo no establecido aplica lo estipulado en los artículos 29 y 30 de la Ley de Biodiversidad, los artículos 30 al 48 del Reglamento a la Ley de Biodiversidad y lo dispuesto en la Ley General de la Administración Pública con respecto a los órganos colegiados.

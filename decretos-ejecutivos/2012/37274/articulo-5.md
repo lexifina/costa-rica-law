@@ -1,0 +1,1 @@
+Artículo 5°—Participantes. A la Asamblea que hace referencia el artículo anterior participaran dos personas por organización, la postulada como propietaria y la postulada como suplente, quien representará al titular de conformidad a lo dispuesto en el artículo 31 del Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433. De todo lo acontecido se elaborará un acta.

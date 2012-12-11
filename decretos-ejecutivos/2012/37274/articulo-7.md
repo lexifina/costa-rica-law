@@ -1,0 +1,1 @@
+Artículo 7°—Nombramiento de la Junta Directiva. Durante la Asamblea del CORAC se elegirán entre sí, los cargos en la Junta Directiva, dichos nombramientos regirán por un período de cuatro años y podrán ser reelectos por una única vez por un periodo igual.

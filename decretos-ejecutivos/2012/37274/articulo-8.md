@@ -1,0 +1,1 @@
+Artículo 8°—Del Secretario Ejecutivo. El Director del Área de Conservación La Amistad Caribe será el Secretario Ejecutivo del CORAC, custodiará las actas y demás documentos y participará en las reuniones con derecho a voz y voto y las demás funciones indicadas en el artículo 42 del Reglamento a la Ley de Biodiversidad.

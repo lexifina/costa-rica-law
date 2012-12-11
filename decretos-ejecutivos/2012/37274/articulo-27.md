@@ -1,0 +1,1 @@
+Artículo 27.—Publicidad de los documentos emitidos por el CORAC. Todo documento interno o de trabajo que se utilice en el Consejo Regional, podrá ser consultado por los interesados y se consideraran públicos y consultables, de conformidad a lo dispuesto en el artículo 46 del Reglamento a la Ley de Biodiversidad.

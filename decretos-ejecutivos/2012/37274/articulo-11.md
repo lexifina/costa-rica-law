@@ -1,0 +1,1 @@
+Artículo 11.—De las ausencias a las reuniones. Habrán justificadas e injustificadas, sólo se aceptarán justificaciones de manera escrita y a la tercera ausencia injustificada se solicitará el reemplazo del miembro del CORAC, a la Asamblea General y se le comunicará al sector involucrado.
