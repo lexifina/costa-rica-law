@@ -14,3 +14,4 @@ Reglamento para el pago de servicio de transporte de taxi para los funcionarios 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-28 | la propia norma |
+| 2 | 2012-12-11 | Acuerdo 52 (2012-12-11) |
