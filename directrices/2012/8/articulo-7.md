@@ -1,6 +1,7 @@
-Artículo 7º—Elaboración de las Harinas de Carne y Hueso (HCH) para animales rumiantes. Las materias primas utilizadas para la elaboración de las HCH de rumiantes, deberán ser reducidas a partículas de un tamaño máximo de 50 mm antes de ser sometidas a tratamiento térmico.
+Artículo 7º—Elaboración de las Harinas de Carne y Hueso (HCH) para animales no rumiantes. Las materias primas derivadas de rumiantes utilizadas para la elaboración de las HCH para no rumiantes, deberán ser reducidas a partículas de un tamaño máximo de 50 mm antes de ser sometidas a tratamiento térmico.
 Las materias primas deberán ser sometidas a un tratamiento térmico en una atmósfera saturada de vapor cuya temperatura ascienda a 133 °C durante 20 minutos como mínimo.
 Los establecimientos de rendering deben documentar el cumplimiento de éstos parámetros, mediante registros en cada lote de producción. El regente del establecimiento es el responsable de supervisar o verificar la implementación de éstos registros.
 Se prohíbe la utilización de los MER (excepto la columna vertebral) procedentes de rumiantes en la fabricación de HCH.
 Se prohíbe la utilización de partes de rumiantes procedentes de animales postrados, en condición no ambulatoria, o que en las inspecciones ante mortem presenten signos clínicos de enfermedades nerviosas o de animales muertos encontrados en los establecimientos mercantiles, en la fabricación de HCH.
 Los rendering deben contar con instrumentos de medición calibrados por un ente oficial o acreditado.
+(Así reformado por el artículo 1° de la directriz DG-D011 del 12 de diciembre de 2012)
