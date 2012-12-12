@@ -14,3 +14,4 @@ Reglamento para elaborar Reglamentos Técnicos Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-15 | la propia norma |
+| 2 | 2012-12-12 | Decreto Ejecutivo 37662 (2012-12-12) |
