@@ -1,0 +1,1 @@
+Artículo 88: En todo caso lo que no se encuentre aquí expresamente regulado respecto de las incapacidades, se consideran disposiciones supletorias contenidas en el Reglamento de la Ley de Riesgos del Trabajo, e interpretaciones que haga la CCSS o el INS.

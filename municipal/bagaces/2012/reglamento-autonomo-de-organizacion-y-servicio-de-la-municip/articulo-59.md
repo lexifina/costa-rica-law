@@ -1,0 +1,1 @@
+Artículo 59: No podrán ser empleados municipales quienes estén comprendidos en el artículo 19 inciso c de este reglamento, y aquellos que no cumplan con los requisitos mínimos para el puesto establecido.

@@ -1,0 +1,4 @@
+Artículo 19: Para integrar la nómina de elegible se requiere:
+a) Cumplir con los requisitos que establezca el manual descriptivo de puestos y normas de Reclutamiento y Selección de Personal el cual deberá de ser elaborado por la Oficina de Recursos Humanos para tal efecto.
+b) Someterse a las pruebas de idoneidad que disponga la Oficina de Recursos Humanos.
+c) No tener parentesco, hasta tercer grado de consanguinidad o afinidad con el jefe de la dependencia donde esté la vacante de que se trata o con el superior jerárquico de éste, en la respectiva dependencia, con el Alcalde Municipal, de alguno de los concejales, Auditor Municipal, coordinador de Recursos Humanos y/o Jefe de Reclutamiento y Selección de Personal, quien ejerciera en los puestos mencionados durante los últimos 6 meses de vigencia del nombramiento de su puesto.

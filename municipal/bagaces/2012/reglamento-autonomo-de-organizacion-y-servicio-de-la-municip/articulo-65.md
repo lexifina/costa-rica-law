@@ -1,0 +1,1 @@
+Artículo 65: Las vacaciones son incompensables. En caso de no darse los casos previstos en los artículos 156 y 159 del Código de Trabajo, el Alcalde Municipal, previa recomendación de Recursos Humanos, con base en la solicitud de la jefatura respectiva y debidamente justificada, podrá autorizar la compensación en dinero en efectivo, de vacaciones no disfrutadas.

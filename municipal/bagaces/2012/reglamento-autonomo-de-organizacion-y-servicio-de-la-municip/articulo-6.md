@@ -1,0 +1,1 @@
+Artículo 6°: El acto administrativo interno solo producirá su efecto después de notificado el servidor, en la forma prescrita por el Código Municipal, y de Trabajo, excepto si se concede únicamente derechos o beneficios, en cuyo caso lo producirá desde que se adopte.

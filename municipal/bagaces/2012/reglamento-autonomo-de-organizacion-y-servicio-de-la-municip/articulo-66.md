@@ -1,0 +1,1 @@
+Artículo 66: El pago de las vacaciones se hará con base en el promedio de las remuneraciones ordinarias y extraordinarias, devengadas por el servidor durante las cincuenta semanas anteriores al momento en que adquirió el derecho, de acuerdo al artículo 157 del Código de Trabajo.

@@ -1,0 +1,7 @@
+CAPITULO XV
+DE LAS LICENCIAS
+Artículo 73: El Alcalde Municipal, según lo establecido en los artículos 145 del Código Municipal, podrá otorgar permisos sin goce de salario hasta por seis meses prorrogables, por una sola vez, a los funcionarios que así lo soliciten. Esta solicitud, se hará por escrito, presentada ante el jefe inmediato del solicitante, quien la remitirá dentro de los dos días siguientes a su recibo, con su criterio al Alcalde Municipal, para su trámite.
+Quien haya disfrutado de un permiso sin goce de salario, no podrá obtener otro si no ha transcurrido un período igual al doble del tiempo del permiso anterior concedido. El permiso se otorgará al servidor que tenga como mínimo, un año de laborar con la municipalidad, solo por excepción se otorgará permiso sin goce de salario a aquellos funcionarios que nombrados en puestos de elección popular se les otorgue un permiso sin goce de salario hasta por el período que le corresponda ejercerlo.
+1. Al servidor cuyo cónyuge, compañero(a), de vida, hijos, entenados, padres, hermanos o abuelos hayan enfermado y necesiten su atención personal.
+2. Al servidor que fuere invitado, a título personal a participar en un seminario, congreso o actividad similar, siempre y cuando dicha actividad no se enmarque dentro de lo que al efecto establece el Reglamento de Becas.
+3. Al servidor que se encuentre en alguna u otra situación que, a juicio de la Oficina de Recursos Humanos, lo amerite.

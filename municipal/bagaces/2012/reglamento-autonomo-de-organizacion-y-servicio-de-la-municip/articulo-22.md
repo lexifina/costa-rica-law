@@ -1,0 +1,1 @@
+Artículo 22: En los casos de permutas y traslados será aplicable el período de seis meses prueba en la forma de un mínimo de tres meses, y un máximo de mutuo acuerdo entre los jefes inmediatos; al final de los cuales el jefe inmediato del departamento debe de entregar a Recursos Humanos la calificación de las labores desarrolladas por el funcionario.

@@ -1,0 +1,1 @@
+Artículo 109: El control y salida durante el tiempo destinado al almuerzo, queda bajo responsabilidad de cada jefe inmediato, quien establecerá los mecanismos necesarios para ello, de manera que no se cierre el despacho y no se ocasione menoscabo en la prestación de servicios.

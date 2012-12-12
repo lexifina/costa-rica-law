@@ -1,0 +1,8 @@
+Artículo 147: El procedimiento o instrucción disciplinaria atenderá los siguientes pasos:
+a) Las jefaturas deberán reportar a la Oficina de Recursos Humanos o funcionario competente, las faltas en que incurran sus subalternos, dentro de los tres días hábiles siguientes en que estas sean de su conocimiento.
+b) Toda denuncia deberá ser presentada por escrito y, contener una relación circunstanciada de los hechos, indicación del o los servidores participantes, fechas, lugares y otros datos de interés. El denunciante deberá aportar y ofrecer las pruebas en que fundamenta su denuncia.
+c) La sección de Relaciones Laborales, hará una prevaloración de la falta reportada para determinar su naturaleza, circunstancias y gravedad y establecer la necesidad o no de iniciar una investigación.
+d) Establecida la falta y definida la sanción correspondiente, de ser esta suspensión sin goce de salario o despido sin responsabilidad patronal, la Sección de Relaciones Laborales, procederá a comunicarla al trabajador conforme el procedimiento establecido en los artículos 154 y 155 Código Municipal. ***
+e) Si el trabajador no apela, se eleva el expediente ante la junta en un plazo no mayor de quince días contados a partir del último día en que aquel pudo presentar la apelación.
+f) Contra las sanciones recomendadas por la Junta, el trabajador podrá interpone el recurso ordinario de revocatoria y apelación para ante el Concejo Municipal una vez se halla agotado la vía administrativa.
+h) Le corresponderá al Concejo Municipal a través de su Asesoría Legal, atender y responder dichos recursos dentro del plazo establecido en el Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 91: La administración podrá otorgar, suspender o mantener el beneficio del pago de dedicación exclusiva o disponibilidad de acuerdo con los recursos que cuente la municipalidad según criterio de oportunidad o conveniencia a los funcionarios con grado de licenciatura según las disposiciones legales vigente en esa materia.

@@ -1,0 +1,2 @@
+Artículo 25: En caso de inopia en el concurso interno, se sacará la plaza a concurso externo publicado en un periódico de circulación nacional, bajo las mismas condiciones de esta decisión con sus principales justificantes; en caso de no tener oferentes en el concurso externo el mismo se realizará las veces que sea necesario.
+En el caso de concurso interno se excluye la participación del personal interino.

@@ -1,0 +1,1 @@
+Artículo 26: En todo las plazas podrán ser ocupadas en forma interina por la persona designada para ello, mientras se realiza el concurso interno, hasta por el término de dos meses, período que podrá ser prorrogado atendiendo a las circunstancias particulares del mismo.

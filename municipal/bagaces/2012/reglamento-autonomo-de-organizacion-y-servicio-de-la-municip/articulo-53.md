@@ -1,0 +1,1 @@
+Artículo 53: Cuando el resultado de la evaluación y calificación anual del servidor arroje un resultado de Regular por dos veces consecutivas, se considerará como falta grave y por lo tanto se le aplicará las sanciones correspondientes.
