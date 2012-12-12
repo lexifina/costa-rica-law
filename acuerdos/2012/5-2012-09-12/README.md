@@ -14,3 +14,4 @@ Establece el valor de la hora de docencia universitaria de medicina (clases teó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-12 | la propia norma |
+| 2 | 2012-12-12 | Acuerdo 2 (2012-09-19) |
