@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO: Los procedimientos en los que se haya cursado invitación al momento de entrar en vigencia estas disposiciones, se terminarán hasta el acto de adjudicación con la misma regulación con que dieron inicio.
