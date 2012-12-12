@@ -1,3 +1,0 @@
-Artículo 8°—La Auditoría General del CNP mantendrá en FANAL un departamento permanente, cuyo titular será designado por el Auditor General y cuyas atribuciones y funcionamiento será, respecto de FANAL, las que contempla el reglamento propio de la Auditoría Interna del CNP. Queda definido, consecuentemente, que la Auditoría específica que se destacará en FANAL no guardará línea jerárquica con ninguno de sus órganos e instancias, sino que forma parte integral de la Auditoria General del CNP.
-Todos los órganos y servidores del FANAL quedan obligados a dar las más amplias facilidades y colaboración a la Auditoría para el mejor desempeño de sus deberes.
-Sección segunda: Del Administrador General.

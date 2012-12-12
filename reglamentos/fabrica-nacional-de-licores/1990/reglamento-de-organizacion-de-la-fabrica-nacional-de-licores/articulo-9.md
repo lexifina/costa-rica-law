@@ -1,2 +1,0 @@
-Artículo 9: El Administrador General de FANAL será designado por la Junta Directiva, al igual que el Subadministrador General, deberán ser preferiblemente profesionales graduados con al menos licenciatura en alguna profesión a fin a las actividades de FANAL. En todo caso, el Administrador será responsable ante la Junta Directiva por la buena marcha de FANAL, para lo cual contará con la colaboración de las restantes dependencias administrativas que dependerán jerárquicamente de él.
-(Así reformado mediante sesión N° 2768 del 21 de abril del 2010)

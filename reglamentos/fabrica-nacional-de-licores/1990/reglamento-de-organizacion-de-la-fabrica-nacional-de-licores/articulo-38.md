@@ -1,2 +1,0 @@
-Artículo 38.—La Junta Directiva acordará los precios de los productos de FANAL, previo estudio y recomendación del Departamento de Mercadeo y la Administración de FANAL, los que fundarán sus opiniones y recomendaciones en los informes de costos y márgenes de utilidad adecuados que serán proporcionados por el Departamento Financiero y en la investigación de los precios de mercado de lo productos competitivos y de baja rotación.
-Sección octava: De la administración de los recursos humanos
