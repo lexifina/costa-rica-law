@@ -14,3 +14,4 @@ Procedimiento ECA-MC-P16 Procedimiento de Investigación Versión 06
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-07-06 | la propia norma |
+| 2 | 2012-12-13 | Acuerdo 0 (2012-12-13) |
