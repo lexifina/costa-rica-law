@@ -1,0 +1,6 @@
+Artículo 9°—Multas y cláusula penal: El INA penalizará administrativamente los siguientes hechos:
+a) La entrega tardía de los productos perecederos con un 2% del total de la factura por cada día hábil indicado para el plazo de entrega en la orden de pedido.
+b) La entrega incompleta: de producirse una entrega incompleta en cualquier punto para el cual cotizó el interesado, con un 10% del total de la factura.
+c) La entrega de productos de inferior calidad que la especificada en la lista de compra, sea porque se entrega otra marca de la especificada, productos en mal estado o vencidos. Este hecho se penalizará con la devolución inmediata del producto, el cual no será recibido por la persona encargada y, además con una multa de un 15% sobre el pago de la factura del producto recibido a satisfacción. El producto devuelto en el acto, no será cancelado.
+d) La no entrega del producto: el INA penalizará con un 25% del monto total de la orden de compra no entregada. En tal caso, ese monto será requerido al contratista para que lo deposite en las cajas del INA. No se girarán más invitaciones hasta tanto el responsable no hubiese cancelado la multa.
+e) Lo correspondiente a multas o cláusula penal se rebajará de los pagos pendientes, salvo la previsión especial en caso de no entrega del producto.

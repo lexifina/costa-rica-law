@@ -1,0 +1,1 @@
+Transitorio único: La Unidad de Compras Institucional tendrá el plazo de un mes contado a partir de la publicación en el diario oficial La Gaceta para establecer los procedimientos relacionados con la ejecución del presente Reglamento.

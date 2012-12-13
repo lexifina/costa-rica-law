@@ -1,0 +1,1 @@
+Artículo 13.—Autorización de la Contraloría General de la República. Conforme a lo previsto en el artículo 2, bis, de la Ley de Contratación Administrativa y 138 de su Reglamento, el presente procedimiento especial de compra requiere autorización de la Contraloría General de la República para su puesta en operación.

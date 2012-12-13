@@ -1,0 +1,2 @@
+Artículo 7°—Entrega de los productos: Las entregas de los productos se harán en el plazo y condiciones fijadas por el INA, de acuerdo con el horario de los servicios de capacitación y formación profesional y en la forma en que se favorezca su conservación y su óptima utilización, todo lo cual se especificará en la orden de compra.
+Salvo que se indique lo contrario, los plazos de entrega se entienden en días hábiles.
