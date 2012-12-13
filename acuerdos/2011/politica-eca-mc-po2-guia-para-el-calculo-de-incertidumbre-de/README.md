@@ -14,3 +14,4 @@ Política ECA-MC-PO2 Guía para el Cálculo de Incertidumbre de las Mediciones V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-02 | la propia norma |
+| 2 | 2012-12-13 | Acuerdo 0 (2012-12-13) |

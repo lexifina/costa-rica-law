@@ -9,20 +9,21 @@ Considerando:
 6º—Que en cumplimiento a lo preceptuado en los artículos 134, 136 inciso e) y 362 de la LGAP; siendo este un acto discrecional de alcance general; y en virtud que la actividad del ECA debe desplegarse con observancia de los principios generales del ordenamiento jurídico administrativo y en concordancia con las normas internacionales que rigen la materia. Por tanto:
 La Gerencia del Ente Costarricense de Acreditación (ECA) informa que se ha incorporado al Sistema de Gestión de Calidad del ECA la Política ECA-MC-PO2 Política de Incertidumbre de las Mediciones V01, la cual deja sin efecto la Guía ECA-MC-P20 Guía para el Cálculo de Incertidumbre V01.
 La Política ECA-MC-PO2 Política de Incertidumbre de las Mediciones V01 se encontrará a disposición de los interesados en nuestra página electrónica: http://www.eca.or.cr/docs.php; una vez publicado este anuncio en el Diario Oficial La Gaceta; así mismo podrán solicitar gratuitamente una copia no controlada en la Gestoría de Calidad de las Oficinas Centrales del ECA ubicadas en San José, 50 metros este del Museo Nacional, edificio del MICIT, de lunes a viernes de las 08:00 a las 16:00 horas. Entra en vigencia a partir de esta publicación en el Diario Oficial La Gaceta.
-San José, 14 de octubre del 2011.—
+San José, 14 de octubre del 2011.
 (Nota de Sinalevi: La presente norma se extrajo del sitio Web del Ente Costarricense de Acreditación y se transcribe a continuación:)
-[imagen]
+(Nota de Sinalevi: El texto del presente procedimiento fue reformado parcialmente y reproducido de forma íntegra mediante publicación en La Gaceta N° 16 del 23 de enero del 2013, donde se actualiza la versión 01 existente y se publica la versión 02, por lo que se reproduce a continuación):
+[imagen] <![endif]>
 TABLA DE CONTENIDO
-1. OBJETIVO ...................................................................................................................................... 1
-2. ALCANCE ................................................................................................................................... …1
-3. INTRODUCCIÓN .............................................................................................................................. 1
-4. DOCUMENTOS DE REFENCIA ........................................................................................................ 2
-5. DEFINICIONES................................................................................................................................ 2
-6. CRITERIOS PARA LABORATORIOS DE CALIBRACIÓN .................................................................... 4
-7. CRITERIOS PARA LABORATORIOS DE ENSAYO. ........................................................................... 6
-8. TRANSITORIO................................................................................................................................. 7
-9. BIBLIOGRAFÍA ............................................................................................................................... 7
-10. ANEXOS: EJEMPLOS DE ESTIMACIÓN DE INCERTIDUMBRE: ....................................................... 8
-11. CONTROL DE CAMBIOS .............................................................................................................. 20
+1. OBJETIVO .................................................................................................................................. 1
+2. ALCANCE .................................................................................................................................. 1
+3. INTRODUCCIÓN .......................................................................................................................... 1
+4. DOCUMENTOS DE REFENCIA .................................................................................................. 2
+5. DEFINICIONES........................................................................................................................... 2
+6. CRITERIOS PARA LABORATORIOS DE CALIBRACIÓN ............................................................ 4
+7. CRITERIOS PARA LABORATORIOS DE ENSAYO. .................................................................... 7
+8. TRANSITORIO............................................................................................................................ 8
+9. BIBLIOGRAFÍA ............................................................................................................................ 9
+10. ANEXOS: EJEMPLOS DE ESTIMACIÓN DE INCERTIDUMBRE: ........................................... 10
+11. CONTROL DE CAMBIOS ........................................................................................................ 22
 1. OBJETIVO
-Establecer los lineamientos que deben cumplir los laboratorios de ensayo y laboratorios de calibración, con respecto a la expresión de la incertidumbre de las mediciones.
+Establecer los lineamientos que deben cumplir los laboratorios de ensayo, laboratorios clínicos y laboratorios de calibración, con respecto a la expresión de la incertidumbre de las mediciones.

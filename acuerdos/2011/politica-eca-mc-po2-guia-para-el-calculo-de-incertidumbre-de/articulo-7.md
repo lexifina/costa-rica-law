@@ -1,7 +1,7 @@
 7. CRITERIOS PARA LABORATORIOS DE ENSAYO.
 7.1 Los laboratorios de ensayo deben poseer y aplicar procedimientos para estimar la incertidumbre de medición asociada con los resultados de los ensayos o mediciones que realicen. Así mismo, esta información debe estar disponible y ser lo suficientemente clara para los usuarios.
 7.2 Las fuentes que contribuyen a la incertidumbre incluyen, pero no se limitan necesariamente, a los patrones de referencia y los materiales de referencia utilizados, los métodos y equipos utilizados, las condiciones ambientales, las propiedades y la condición del ítem sometido al ensayo y el operador.
-7.3 Para mayor información consúltese la Norma ISO 5725 y la Guía para la Expresión de la Incertidumbre en la Medición (GUM).
+7.3 Para mayor información consúltese la Norma ISO 5725 y la Guía para la Expresión de la Incertidumbre en la Medición (GUM), en sus versiones vigentes.
 7.4 El grado de rigor requerido en una estimación de la incertidumbre de la medición depende de factores tales como:
 a. los requisitos del método de ensayo;
 b. los requisitos del cliente;
