@@ -3,7 +3,8 @@ ASUNTO: 1) Plan de Vacaciones Colectivas del Poder Judicial 2012-2013. 2) Lineam
 A LAS INSTITUCIONES, ABOGADOS, ABOGADAS, SERVIDORES
 Y SERVIDORAS JUDICIALES Y PÚBLICO EN GENERAL
 SE LES HACE SABER QUE:
-El Consejo Superior en sesiones Nº 80-12 y 100-12, celebradas el 6 de setiembre y el 15 de noviembre de 2012, artículos XLIV y XLIII, dispuso a su conocimiento que las oficinas judiciales permanecerán cerradas del 24 de diciembre del 2012, al 4 de enero del 2013, por vacaciones concedidas a las servidoras y servidores judiciales. Se reanudará funciones el 7 de enero del 2013, además, se aprobó el Plan de Vacaciones Colectivas del Poder Judicial 2012-2013, así como los lineamientos generales sobre sustituciones para el 2013, que en lo conducente indica:
+El Consejo Superior en sesiones Nº 80-12 y 100-12, celebradas el 6 de setiembre y el 15 de noviembre de 2012, artículos XLIV y XLIII, dispuso a su conocimiento que las oficinas judiciales permanecerán cerradas del 24 de diciembre del 2012, al 4 de enero del 2013, por vacaciones concedidas a las servidoras y servidores judiciales. Se reanudará funciones el 7 de enero del 2013; además, se aprobó el Plan de Vacaciones Colectivas del Poder Judicial 2012-2013, así como los lineamientos generales sobre sustituciones para el 2013. La Corte Plena concedió asueto durante la segunda audiencia de los días 24 y 31 de diciembre próximo. Durante esas audiencias deberá atenderse bajo la modalidad de disponibilidad en el caso de las materias sujetas a este tipo de atención. (Adicionada por Corte Plena en sesión número 42-12, celebrada el 3 de diciembre del año en curso, artículo XXIII.).
+(Así reformado el párrafo aterior mediante aviso N° 18 del 13 de diciembre de 2012)
 “PLAN DE VACACIONES PARA EL PERÍODO 2012-2013”
 I. Fechas de Cierre General:
 Se definen las siguientes fechas para el cierre general por vacaciones colectivas del periodo 2012/2013:
