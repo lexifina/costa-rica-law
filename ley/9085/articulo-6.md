@@ -1,0 +1,1 @@
+ARTÍCULO 6.- En cumplimiento con lo dispuesto en la presente ley, se autoriza al Sistema Nacional de Áreas de Conservación para que suscriba convenios de cooperación con la Municipalidad de Naranjo y la Municipalidad de Zarcero, así como con organizaciones de la comunidad, personas físicas o jurídicas interesadas por la consecución de los fines de esta ley.

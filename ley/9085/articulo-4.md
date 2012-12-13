@@ -1,0 +1,1 @@
+ARTÍCULO 4.- El Ministerio de Hacienda podrá presupuestar, de acuerdo con la disponibilidad, los fondos requeridos para el pago de tierras, con el fin de adquirir la mayor cantidad de terrenos dentro de la Zona Protectora El Chayote, de acuerdo con la legislación ambiental vigente y aplicable.
