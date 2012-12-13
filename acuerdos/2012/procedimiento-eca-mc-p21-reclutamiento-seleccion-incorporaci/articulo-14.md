@@ -1,4 +1,17 @@
-14 IDENTIFICACIÓN DE CAMBIOS
-Motivo: | Modificación de documento
-Refiérase a la solicitud de elaboración o modificación del documento numero 2012-058
-Observaciones: Se modifica totalmente el procedimiento en formato y contenido, derivado del análisis del mismo y de las oportunidades de mejora detectadas para el proceso detectadas por el personal ECA y el CAMCEE.
+14 ANEXO 3 PLAN DE TRANSICIÓN.
+14.1 El tiempo asignado por la Gestoría de Calidad para la transición del procedimiento es de 30 días hábiles a partir de su publicación en el Diario Oficial La Gaceta.
+14.2 La Gestoría de Calidad proporciona la inducción correspondiente sobre los cambios más relevantes a las áreas involucradas en el desarrollo del proceso descrito en el procedimiento ECA-MC-P21.
+14.3 De la misma manera los evaluadores y expertos técnicos deben participar en el proceso de inducción, si en dado caso se dificulta la participación en el proceso de inducción, la Gestoría de Calidad evalúa la situación y procede a hacer efectivo el proceso de inducción mediante los mecanismos que considere oportunos (vía electrónica, videoconferencia, vía telefónica, entre otros) y resguarda la evidencia generada según lo indica el procedimiento ECA-MC-P22 Inducción.
+14.4 La Gestoría de Calidad identifica a los integrantes del CEE que no cumplen con los nuevos requerimientos establecidos en el procedimiento ECA –MC-P21 V03, específicamente en el formulario ECA-MC-P21-F05.
+14.5 Una vez identificados se incorporan los cursos o conocimientos que deben de poseer, en las necesidades de capacitación de cada integrante y posteriormente se envían de manera electrónica a cada integrante según corresponda. La GC resguarda una copia de las necesidades de capacitación en cada expediente.
+14.6 Los integrantes del CEE deben cumplir con los nuevos requerimientos establecidos, los mismos cuentan con un lapso de 6 meses para actualizar su área de competencia con respecto a los nuevos requisitos.
+14.7 Para el cumplimiento de estos requisitos, el ECA debe realizar en el primer semestre del año 2013, jornadas o talleres de trabajo para abarcar los conocimientos en las políticas ECA u otros conocimientos establecidos. Aquellos integrantes del CEE que no participen en esta actualización de requerimientos se expondrán a las medidas que el CAMCEE considere necesarias.
+14.8 Los evaluadores en el área organismos de certificación, deben cumplir con los nuevos requerimientos establecidos en la versión 03 del ECA-MC-P21, específicamente en los cursos de formación de auditores en la norma ISO 9001 e ISO 14001.
+14.9 El ECA les facilita un curso o taller a los evaluadores en el área de certificación para abarcar los nuevos requerimientos y de no tener asistencia al mismo se expondrán a las medidas que el CAMCEE considere necesarias.
+14.10 La Gestoría de Calidad junto con las Secretarías de Acreditación toman la decisión de conformar un solo listado de expertos técnicos, eliminando de esta manera el uso del concepto de inopia.
+14.11 Por lo tanto la Gestoría de Calidad tendrá 30 días hábiles a partir de la publicación del procedimiento ECA-MC-P21 en el Diario Oficial La Gaceta , para hacer la debida transición y actualización del listado de respaldo de expertos técnicos.
+Nota 1: En el listado de respaldo ECA-MC-P21-F12-B, se registran los expertos técnicos del CEE junto con los expertos técnicos INOPIA.
+Nota 2: Una vez que un experto técnico vaya a ser utilizado en algún proceso de evaluación, la información correspondiente se traslada al directorio oficial ECA-MC-P21-F12-A.
+Nota 3: Los expertos técnicos mantendrán el código que se le fue asignado en el momento de su incorporación.
+14.12 Para agilizar el proceso de incorporación de expertos técnicos, se elimina la etapa de postulación y se modifica la incorporación de expertos técnicos.
+14.13 Por lo tanto, una vez recibida la información del experto técnico por parte de la SA respectiva, la Gestoría de Calidad procede a asignar el número de identificación (CEE-xxx, donde xxx pertenece al consecutivo) y continúa con el proceso según el apartado 6.7.6 de este procedimiento.

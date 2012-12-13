@@ -1,0 +1,4 @@
+16 TRANSITORIO.
+Transitorio (apartado 6.5): los requisitos descritos en el apartado 6.5, para postularse como evaluador o integrarse como experto técnico al CEE empiezan a regir 120 días hábiles a partir de la entrada de vigencia de este procedimiento.
+Transitorio (apartado 7.3): Para el caso de los evaluadores líderes y evaluadores en esquemas nuevos o con poca demanda, se permite la participación de evaluadores líderes y evaluadores de organismos homólogos con experiencia en una evaluación completa, hasta que el ECA determine que cuenta con la cantidad de evaluadores necesarios para cubrir el volumen de trabajo en esta área.
+Transitorio (apartado 9): En caso de la toma de decisión del CAMCEE con respecto a los cambios de categoría empieza a regir 120 días hábiles a partir de la entrada de vigencia de este procedimiento.
