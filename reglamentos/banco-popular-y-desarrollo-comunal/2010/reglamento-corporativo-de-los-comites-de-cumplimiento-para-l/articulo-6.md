@@ -1,3 +1,0 @@
-Artículo 6º—Revisión y actualización. Este Reglamento debe ser revisado y actualizado, en forma conjunta con la revisión anual del Manual de Cumplimiento Corporativo de Políticas y Procedimiento para la Prevención y Control de Legitimación de Capitales y Financiamiento al Terrorismo, o cuando se considere necesario.
-Este Reglamento rige a partir de su publicación en el diario oficial La Gaceta y deroga el Reglamento Corporativo para la Prevención y Control de Legitimación de Capitales del Conglomerado Financiero Banco Popular, aprobado por la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal en sesión Nº 4709 del 2 de noviembre del 2009 y publicado en La Gaceta Nº 241 del 11 de diciembre del 2009.
-San José, 06 de setiembre del 2010.
