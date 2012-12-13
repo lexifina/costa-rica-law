@@ -14,3 +14,4 @@ Política de validación de métodos código ECA-MC-PO01
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-03 | la propia norma |
+| 2 | 2012-12-13 | Acuerdo 0 (2012-12-13) |
