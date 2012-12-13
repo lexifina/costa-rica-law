@@ -1,0 +1,1 @@
+Artículo 16.—Derogatoria. Este reglamento deroga el Reglamento para el pago de zonaje a personal del Instituto Nacional de Aprendizaje, aprobado en la sesión 3967 del 13 de mayo del 2002, publicado en La Gaceta N° 103 del 30 de mayo del 2002.

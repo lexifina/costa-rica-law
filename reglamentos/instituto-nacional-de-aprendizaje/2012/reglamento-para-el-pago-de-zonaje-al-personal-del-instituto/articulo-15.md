@@ -1,0 +1,1 @@
+Artículo 15.—Normativa supletoria. Los aspectos no contemplados en este reglamento, se resolverán de acuerdo con la normativa y principios de la Ley General de la Administración Pública, el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos y las disposiciones de la Contraloría General de la República y demás disposiciones relativas a esta materia.
