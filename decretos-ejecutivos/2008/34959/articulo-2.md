@@ -1,2 +1,1 @@
-Artículo 2º—Rige a partir del 01 de enero del 2009.
-Dado en la Presidencia de la República, a los once días del mes de diciembre del año dos mil ocho.
+Artículo 2º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 18147-12, del 14 de diciembre de 2012.)
