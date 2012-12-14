@@ -1,0 +1,1 @@
+Artículo 7°—Confidencialidad de la identidad del cliente y/o usuario. La Contraloría de Servicios así como los demás funcionarios, en el trámite de inconformidades, denuncias, sugerencias o felicitaciones presentadas por los clientes, usuarios y funcionarios, deberán reservar la identidad del cliente o usuario.

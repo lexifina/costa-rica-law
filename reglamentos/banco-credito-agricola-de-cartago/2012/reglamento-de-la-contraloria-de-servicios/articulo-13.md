@@ -1,0 +1,1 @@
+Artículo 13.—Vigencia. Este reglamento fue aprobado por la Junta Directiva General en sesión N°8598/12, artículo 24°, celebrada el 13 de noviembre del 2012. Rige a partir de su publicación en el Diario Oficial La Gaceta.
