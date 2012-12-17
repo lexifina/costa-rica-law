@@ -1,2 +1,0 @@
-Artículo 27.—El asesor legal de BN Corredora de Seguros brindará oportuna y efectivamente, asesoría a la Auditoría Interna de BN Corredora de Seguros S.A., si esta así lo requiere, a fin de atender adecuadamente su ámbito de acción y sus necesidades de orden jurídico.
-La Auditoría Interna de BN Corredora de Seguros S.A. podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionarios de la Institución o externos, para que lleven a cabo labores de su especialidad en apoyo a las actividades que realice la Auditoría.

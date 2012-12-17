@@ -1,1 +1,0 @@
-Artículo 18.—El Auditor Interno desempeñará sus funciones con pericia y debido cuidado profesional, haciendo valer sus competencias con independencia funcional y de criterio, y será vigilante de que su personal responda de igual manera.

@@ -1,3 +1,0 @@
-SECCIÓN IV
-Otros aspectos relativos al funcionamiento de la Auditoría
-Artículo 31.—Los servicios de fiscalización que brinda la Auditoría Interna de BN Corredora de Seguros S. A. de conformidad con sus competencias, se clasifican en los servicios de auditoría y los servicios preventivos. Los servicios de auditoría son los referidos a los distintos tipos de auditoría, incluidos los estudios de evaluación integral basada en riesgos, los estudios integrales, los estudios regulares, los estudios especiales y los estudios de relación de hechos, entre otros. Por su parte, los servicios preventivos incluyen la asesoría, la advertencia y la autorización de libros.

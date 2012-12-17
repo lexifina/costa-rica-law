@@ -1,1 +1,0 @@
-Artículo 5º—El Auditor Interno, dentro de sus obligaciones, deberá fijar medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que comprometan la independencia y objetividad de los funcionarios de la Auditoría Interna de BN Corredora de Seguros S. A.

@@ -1,1 +1,0 @@
-Artículo 13.—El Auditor Interno presentará a Junta Directiva para su conocimiento, el plan anual de labores de conformidad con los lineamientos que establece la Contraloría General de la República, el cual deberá incorporar las actividades que deberán realizarse durante el periodo, dejando la holgura necesaria para trabajos especiales que se presenten.

@@ -1,1 +1,0 @@
-Artículo 35.—De existir conflictos entre las recomendaciones emitidas por la Auditoría Interna y las soluciones ordenadas por el jerarca, aplicará lo establecido en el artículo 38 de la Ley General de Control Interno.
