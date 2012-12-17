@@ -1,0 +1,1 @@
+Artículo 74.—El Presidente Municipal saliente procederá a instar a los integrantes del Concejo Municipal para que propongan candidaturas para el Cargo de la Presidencia y de la Vicepresidencia en el momento que corresponda elegir cada uno de los puestos.

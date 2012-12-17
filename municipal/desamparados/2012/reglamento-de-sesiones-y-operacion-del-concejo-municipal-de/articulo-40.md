@@ -1,0 +1,1 @@
+Artículo 40.—Una vez designadas las comisiones, el Presidente Municipal nombrará en cada comisión, un coordinador (a) provisional, quien deberá convocar para la primera reunión. Las comisiones nombrarán posteriormente, de su seno, a las personas que ocuparán los cargos de coordinador(a) y de secretario.

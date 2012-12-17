@@ -1,0 +1,1 @@
+Artículo 50.—La numeración de las sesiones será mediante un consecutivo por períodos máximos de un año, iniciando con “1-(año)”. La numeración es indistinta para sesiones ordinarias, extraordinarias o solemnes.

@@ -1,0 +1,1 @@
+Artículo 78.—Después de elegidos el Presidente y Vicepresidente Municipal, el Auditor levantará un acta de la votación que firmarán los tres miembros del Tribunal de Honor, acto seguido, el Señor Auditor procederá a destruir las fórmulas donde cada Regidor o Regidora emitió su voto.

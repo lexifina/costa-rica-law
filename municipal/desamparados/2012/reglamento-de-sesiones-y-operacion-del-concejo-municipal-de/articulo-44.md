@@ -1,0 +1,1 @@
+Artículo 44.—Las comisiones deberán establecer los días y horas de reuniones ordinarias a más tardar una semana después de haber sido nombradas. Las sesiones extraordinarias de comisiones podrán ser convocadas con al menos 48 horas de anticipación. El Coordinador de la comisión instruirá a las Asistentes de Fracción para que realicen las convocatorias.

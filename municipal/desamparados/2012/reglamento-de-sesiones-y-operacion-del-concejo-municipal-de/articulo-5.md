@@ -1,0 +1,1 @@
+Artículo 5.—En caso de que se requiera realizar más sesiones extraordinarias, las mismas no serán pagadas, el Concejo podrá convocar a sesiones extraordinarias no pagas por acuerdo de mayoría simple, y se podrán realizar la cantidad de sesiones extraordinarias no pagas que así acuerde el Concejo, sin que exista un máximo de sesiones extraordinarias por realizar.

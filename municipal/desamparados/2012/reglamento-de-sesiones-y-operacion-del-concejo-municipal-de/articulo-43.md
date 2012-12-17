@@ -1,0 +1,1 @@
+Artículo 43.—El Concejo podrá trasladar los dictámenes de comisión a conocimiento de la Asesoría Legal del Concejo, de otra comisión o a alguna designada especialmente por el Presidente (a), para que se pronuncie sobre un caso en particular.

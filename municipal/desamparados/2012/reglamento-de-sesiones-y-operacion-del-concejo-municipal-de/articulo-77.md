@@ -1,0 +1,1 @@
+Artículo 77.—Si se diera un empate múltiple en cualquiera de los dos puestos a elegir, decidirá la suerte mediante el lanzamiento de un dado, y se hará el mismo procedimiento las veces que sean necesarias hasta que se produzca el desempate, con la participación de todos los candidatos o candidatas. El que obtenga el mayor valor, quedará electo para el cargo correspondiente.

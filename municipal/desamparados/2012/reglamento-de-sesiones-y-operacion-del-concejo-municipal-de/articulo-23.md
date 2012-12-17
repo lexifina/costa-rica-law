@@ -1,0 +1,2 @@
+II. De los acuerdos
+Artículo 23.—Los acuerdos del Concejo serán tomados por mayoría absoluta de los miembros presentes en el Concejo, salvo cuando el Código Municipal establezca una mayoría diferente; en caso de producirse un empate, se realizará una nueva votación en el mismo acto o en la sesión ordinaria posterior; en el caso de que se mantenga el empate, el tema se tendrá como desechado, de conformidad con lo estipulado por el artículo 42 del Código Municipal.

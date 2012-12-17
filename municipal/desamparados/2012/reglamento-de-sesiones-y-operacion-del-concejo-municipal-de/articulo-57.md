@@ -1,0 +1,2 @@
+VII. De la ausencia del Secretario del Concejo
+Artículo 57.—En ausencia fortuita del Secretario o Secretaria del Concejo, este nombrará de entre sus asistentes a alguno (a) para que lo sustituya; en caso de que por alguna razón el Secretario (a) se deba ausentar durante la sesión, este podrá ser sustituido preferiblemente por algún (a) asistente de fracción. Para lo anterior se requiere un acuerdo por mayoría simple.

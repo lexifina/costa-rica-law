@@ -1,0 +1,1 @@
+Artículo 47.—Al inicio de cada período de gobierno y una vez se nombren las comisiones por parte del Presidente (a) Municipal, los coordinadores (as) que se nombren deberán gestionar ante la Auditoria Interna la apertura del libro correspondiente, que debe estar compuesto de folios sueltos, tamaño oficio, numerados consecutivamente a partir del número 1.

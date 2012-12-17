@@ -1,0 +1,1 @@
+Artículo 53.—Corresponde a la Secretaría del Concejo comunicar oportunamente a los interesados las audiencias conferidas, indicándoseles en la convocatoria las reglas generales que regirán su intervención.

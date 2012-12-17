@@ -1,0 +1,1 @@
+Artículo 72.—Se integrará un Tribunal de Honor conformado por el Secretario del Concejo Municipal, el Asesor Legal del Concejo Municipal y el Auditor, para conducir el proceso de elección de la Presidencia y la Vicepresidencia del Concejo Municipal de Desamparados

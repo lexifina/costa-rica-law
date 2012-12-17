@@ -1,0 +1,1 @@
+Artículo 8.—Cuando la convocatoria a sesión extraordinaria no se realice mediante un acuerdo del Concejo, la Secretaría del Concejo notificará al o a la concejal por los medios y procedimientos definidos por la Ley de Notificaciones.

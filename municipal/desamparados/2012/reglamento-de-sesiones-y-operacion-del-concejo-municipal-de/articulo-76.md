@@ -1,0 +1,1 @@
+Artículo 76.—Cuando todos los Regidores y Regidoras emitan su voto, el Tribunal de Honor procederá a abrir la caja y se contarán los votos; si hay votos en blanco o nulos, quedarán anulados y no se le sumarán al candidato o candidata de mayor votación.

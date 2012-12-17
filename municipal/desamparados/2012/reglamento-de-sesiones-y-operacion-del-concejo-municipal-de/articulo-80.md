@@ -1,0 +1,1 @@
+Artículo 80.—Acto seguido el directorio electo ofrecerá un breve discurso y le darán la palabra a cada Jefatura de Fracción, o a quien hayan designado para exponer ante los presentes. Solo se tendrá un único orador por Fracción y un máximo de cinco minutos para cada intervención.

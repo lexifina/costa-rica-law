@@ -1,0 +1,2 @@
+X. De la ejecución del presupuesto asignado al Concejo
+Artículo 60.—Corresponderá al Secretario Municipal firmar las solicitudes de bienes para las actividades protocolarias o sociales del Concejo (agasajos, ofrendas póstumas, reconocimientos). También corresponderá a este solicitar la compra de equipo o mobiliario, siempre que este no exceda el 02 del Presupuesto ordinario del año correspondiente. Las solicitudes de compras mayores a dichas sumas, las hará el Concejo mediante el respectivo acuerdo.
