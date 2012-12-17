@@ -1,0 +1,1 @@
+Artículo 8º—Aplicación normativa. Todas las actuaciones del Comité de TI serán regidas por lo establecido en el presente reglamento y en caso de duda por lo que al efecto establezca la Junta Directiva del Instituto de Desarrollo Agrario.

@@ -1,0 +1,1 @@
+Artículo 2º—Coordinación General del Comité. El Comité de TI estará bajo la responsabilidad de la Gerencia General quien ejercerá la dirección, coordinación y el control de las actividades, procesos y programas que serán desarrollados por este Comité.

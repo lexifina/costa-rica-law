@@ -1,0 +1,4 @@
+Artículo 6º—De las sesiones. El Comité de TI se reunirá en forma ordinaria una vez al mes y extraordinariamente cuando así sean convocadas por quien ostente la Gerencia General.
+La convocatoria de los miembros del Comité de TI a las sesiones estará a cargo del Gerente General, quien establecerá la fecha, hora y lugar de celebración de la sesión correspondiente.
+Salvo en casos de urgencia y necesidad, así valorada por la Gerencia General, las convocatorias a las sesiones del Comité de TI se realizarán por medio escrito, electrónico o cualquier otro medio que permita corroborar la recepción de la convocatoria, con al menos veinticuatro horas de antelación
+A la convocatoria de las sesiones ordinarias se acompañará copia del orden del día y en la medida de lo posible en las convocatorias a las extraordinarias también, salvo en los casos de urgencia a juicio de la Gerencia General.
