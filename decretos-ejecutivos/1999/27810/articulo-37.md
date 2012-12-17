@@ -1,1 +1,1 @@
-Artículo 37.—Las entidades bancarias están en la obligación de realizar los depósitos en un plazo máximo de veinticuatro horas, por medio de la acreditación en las cuentas destinadas para tales efectos.
+Artículo 37.—(Derogado por el artículo 29 del Reglamento para Transferencias de la Administración Central a Entidades Beneficiarias, aprobado mediante decreto ejecutivo N° 37485 del 17 de diciembre del 2012)

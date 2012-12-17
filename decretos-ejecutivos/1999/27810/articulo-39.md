@@ -1,1 +1,1 @@
-Artículo 39.—Los cheques de gerencia de entidades bancarias recibidos en la Tesorería Nacional por concepto de pagos no efectuados en los bancos, deben ser depositados a favor del Fondo General del Gobierno a más tardar el día hábil siguiente del recibo.
+Artículo 39.—(Derogado por el artículo 29 del Reglamento para Transferencias de la Administración Central a Entidades Beneficiarias, aprobado mediante decreto ejecutivo N° 37485 del 17 de diciembre del 2012)

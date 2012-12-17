@@ -15,3 +15,4 @@ Reglamento a la Ley de Control de las Partidas Específicas con Cargo al Presupu
 | --- | --- | --- |
 | 1 | 1999-04-21 | la propia norma |
 | 2 | 2007-12-17 | Decreto Ejecutivo 34230 (2007-12-17) |
+| 3 | 2012-12-17 | Decreto Ejecutivo 37485 (2012-12-17) |

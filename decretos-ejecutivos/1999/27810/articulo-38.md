@@ -1,2 +1,1 @@
-Artículo 38.—Los bancos dispondrán de ocho días hábiles a partir de la fecha de pago establecida por la Tesorería Nacional, para agotar las posibilidades de acreditar aquellos pagos que presenten inconsistencias.
-Transcurrido este lapso de tiempo, deberá devolverlos a la Tesorería Nacional mediante cheque de gerencia a nombre de la Tesorería Nacional. Deberá remitir además, el concepto de pago, el detalle de los pagos devueltos, número de giro, número de cédula, nombre del beneficiario y número de resumen.
+Artículo 38.—(Derogado por el artículo 29 del Reglamento para Transferencias de la Administración Central a Entidades Beneficiarias, aprobado mediante decreto ejecutivo N° 37485 del 17 de diciembre del 2012)

@@ -1,1 +1,1 @@
-Artículo 32.—Una vez cumplida la totalidad de los requisitos señalados en el artículo 28 del presente Reglamento, la Tesorería Nacional determinará la ruta bancaria y definirá los montos totales a girar para cada emisión, con base en la programación financiera del gasto que se lleve a cabo en esta dependencia.
+Artículo 32.—(Derogado por el artículo 29 del Reglamento para Transferencias de la Administración Central a Entidades Beneficiarias, aprobado mediante decreto ejecutivo N° 37485 del 17 de diciembre del 2012)

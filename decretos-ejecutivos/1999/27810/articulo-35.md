@@ -1,1 +1,1 @@
-Artículo 35.—Los pagos de las partidas específicas sólo podrán depositarse en las cuentas bancarias de las Organizaciones autorizadas, y en las fechas establecidas por la Tesorería Nacional.
+Artículo 35.—(Derogado por el artículo 29 del Reglamento para Transferencias de la Administración Central a Entidades Beneficiarias, aprobado mediante decreto ejecutivo N° 37485 del 17 de diciembre del 2012)
