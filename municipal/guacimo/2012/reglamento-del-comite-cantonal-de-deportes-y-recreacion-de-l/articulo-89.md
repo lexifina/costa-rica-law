@@ -1,0 +1,1 @@
+Artículo 89.—Los Comités Comunales de Deportes deberán reunirse una vez al mes ordinariamente y extraordinariamente cuando lo requieran. Deberán comunicar por escrito al Comité Cantonal el día, lugar y la hora de las sesiones.

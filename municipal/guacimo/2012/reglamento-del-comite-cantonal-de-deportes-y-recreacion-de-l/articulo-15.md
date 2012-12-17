@@ -1,0 +1,3 @@
+Artículo 15.—Los miembros de la junta directiva no podrán:
+a) Celebrar contratos ni convenios con el organismo del que forma parte.
+b) Intervenir en la discusión y votación de los asuntos en que tenga interés directo a nivel personal de su cónyuge o alguno de sus parientes dentro del tercer grado de consanguinidad o afinidad.

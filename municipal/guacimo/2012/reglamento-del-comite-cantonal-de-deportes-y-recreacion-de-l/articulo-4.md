@@ -1,0 +1,1 @@
+Artículo 4º—El domicilio legal del Comité Cantonal de Deportes y Recreación será el cantón de Guácimo Limón, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo de la junta directiva.

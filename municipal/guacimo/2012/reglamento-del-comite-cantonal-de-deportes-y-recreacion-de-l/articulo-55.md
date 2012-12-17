@@ -1,0 +1,1 @@
+Artículo 55.—Corresponde al vigilante cuidar y velar por el orden y seguridad del complejo deportivo, cumplir con el horario de trabajo establecido y cualquier otra función que le asigne el Comité Cantonal.

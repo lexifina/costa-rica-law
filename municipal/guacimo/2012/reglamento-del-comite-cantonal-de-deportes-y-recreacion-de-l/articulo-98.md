@@ -1,0 +1,1 @@
+Artículo 98.—Para la satisfacción de sus necesidades los comités comunales deben organizar actividades para recaudar fondos, pudiendo solicitar par ello, la colaboración de la empresa privada y de las instituciones públicas.

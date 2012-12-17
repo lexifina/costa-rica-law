@@ -1,0 +1,2 @@
+Artículo 105.—Los Subcomité de Deportes y Recreación estarán integrados por cinco miembros de la Comunidad que serán elegidos por el Comité Comunal bajo el siguiente procedimiento:
+a) Los cinco miembros serán elegidos a propuesta de las organizaciones deportivas, comunales, juveniles y cualquiera otra que colabore con el deporte, la recreación y bienestar de la comunidad, para lo cual el Comité Cantonal promoverá la más amplia y razonable participación de organizaciones en la forma que considere apropiada.

@@ -1,0 +1,2 @@
+Artículo 115.—En caso de renuncia o destitución de uno o más de los miembros del Subcomité de Deportes, la sustitución se realizará de la siguiente forma:
+a) La sustitución de uno de los miembros representantes de las organizaciones indicadas en el Artículo 117, inciso b anterior, se obtendrá de la terna que al efecto enviarán las referidas organizaciones al Comité Cantonal de Deportes y Recreación.

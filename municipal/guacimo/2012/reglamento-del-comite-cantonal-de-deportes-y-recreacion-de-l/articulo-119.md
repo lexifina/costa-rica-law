@@ -1,0 +1,1 @@
+Artículo 119.—Los directivos del Comité Cantonal no podrán formar parte o integrar los Comité Comunales, los distritos deportivos y estos a su vez, los Subcomités de Deportes de Recreación y Subcomités Administrativos de Campos, según la estructura organizada contenida en este Reglamento.

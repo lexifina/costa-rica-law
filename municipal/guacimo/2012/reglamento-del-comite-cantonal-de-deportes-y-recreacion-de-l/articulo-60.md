@@ -1,0 +1,1 @@
+Artículo 60.—Los recursos del Comité Cantonal solamente se podrán invertir en obras de interés deportivo y recreativo, ubicados dentro de los límites territoriales del cantón de Guácimo; así como en la capacitación, promoción y participación de atletas, entrenadores, árbitros y dirigentes Guacimeños.

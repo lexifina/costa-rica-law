@@ -1,0 +1,1 @@
+Artículo 77.—Los comités comunales de deportes serán nombrados en Asamblea General convocada para tal efecto por el Comité Cantonal en la Comunidad respectiva por un periodo de tres años, estar debidamente nombrados a más tardar el 31 de enero del que corresponda.

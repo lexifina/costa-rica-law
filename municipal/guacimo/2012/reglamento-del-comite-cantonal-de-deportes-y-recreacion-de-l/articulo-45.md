@@ -1,0 +1,1 @@
+Artículo 45.—El Comité Cantonal de Deportes, una vez se haya acreditado el extravío de los libros de actas, deberá a través de su representante legal, interponer la denuncia respectiva ante la autoridad judicial competente, así como el reporte de rigor ante la Municipalidad de Guácimo.

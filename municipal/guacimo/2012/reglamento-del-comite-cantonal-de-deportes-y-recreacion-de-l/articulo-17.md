@@ -1,0 +1,1 @@
+Artículo 17.—Los miembros de la junta directiva no devengarán dieta ni remuneración alguna, ya que el cargo es ad honoren, pero si gozarán del reconocimiento del pago de gastos de viaje y representación.

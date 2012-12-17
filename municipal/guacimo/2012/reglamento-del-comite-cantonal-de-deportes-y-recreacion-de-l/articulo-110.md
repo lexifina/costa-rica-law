@@ -1,0 +1,1 @@
+Artículo 110.—El quórum para sesionar estará integrado por la mitad más uno del total de los miembros del Subcomité. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo este Reglamento señala un mayor número de votos. En caso de empate en una votación el Presidente tendrá voto calificado.

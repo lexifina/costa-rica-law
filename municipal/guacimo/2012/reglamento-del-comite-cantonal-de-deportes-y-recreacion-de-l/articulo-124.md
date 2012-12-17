@@ -1,0 +1,1 @@
+Artículo 124.—Los colores oficiales del deporte en el cantón de Guácimo son el verde, amarillo y rojo. Sin perjuicio que por razones de diseño artístico y estética puedan combinarse adicionalmente con el rojo.

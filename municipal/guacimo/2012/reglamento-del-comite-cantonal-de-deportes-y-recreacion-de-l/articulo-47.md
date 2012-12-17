@@ -1,0 +1,1 @@
+Artículo 47.—La reposición de libros deberá ser autorizada por el Departamento de Auditoria Municipal, siendo que ante dicha Dependencia el Comité de Deportes, deberá acreditar y presentar la documentación respectiva que así sea requerida, con el fin de que le sean autorizados el nuevo asiento de libros.
