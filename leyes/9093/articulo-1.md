@@ -1,0 +1,15 @@
+N° 9093
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL ARTÍCULO 21 DE LA LEY N.º 8422, LEY CONTRA
+LA CORRUPCIÓN Y EL ENRIQUECIMIENTO ILÍCITO
+EN LA FUNCIÓN PÚBLICA
+ARTÍCULO ÚNICO.-
+Se reforma el artículo 21 de la Ley N.º 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004, cuyo texto dirá:
+“Artículo 21.- Funcionarios obligados a declarar su situación patrimonial
+Deberán declarar la situación patrimonial, ante la Contraloría General de la República, según lo señalan la presente ley y su reglamento, los diputados a la Asamblea Legislativa, el presidente y los vicepresidentes de la República; los ministros, con cartera o sin ella, o los funcionarios nombrados con ese rango y los viceministros; los magistrados propietarios y suplentes del Poder Judicial y del Tribunal Supremo de Elecciones; los jueces y las juezas de la República, tanto interinos como en propiedad; el contralor y el subcontralor generales de la República; el defensor y el defensor adjunto de los habitantes; el procurador general y el procurador general adjunto de la República; el fiscal general de la República; los fiscales adjuntos, los fiscales y los fiscales auxiliares del Ministerio Público; los rectores, los contralores o los subcontralores de los centros estatales de enseñanza superior; el regulador general de la República; los superintendentes de entidades financieras, de valores y de pensiones, así como los respectivos intendentes; los oficiales mayores de los ministerios; los miembros de las juntas directivas, excepto los fiscales sin derecho a voto; los presidentes ejecutivos, los gerentes, los subgerentes, los auditores o los subauditores internos, y los titulares de las proveedurías de toda la Administración Pública y de las empresas públicas, así como los regidores, los propietarios y los suplentes, y los alcaldes municipales.
+También, declararán su situación patrimonial los empleados de las aduanas, los empleados que tramiten licitaciones públicas, los demás funcionarios públicos que custodien, administren, fiscalicen o recauden fondos públicos, establezcan rentas o ingresos en favor del Estado; los que aprueben y autoricen erogaciones con fondos públicos, según la enumeración contenida en el reglamento de esta ley, que podrá incluir también a empleados de sujetos de derecho privado que administren, custodien o sean concesionarios de fondos, bienes y servicios públicos, quienes, en lo conducente, estarán sometidos a las disposiciones de la presente ley y su reglamento.
+El contralor y el subcontralor generales de la República enviarán copia fiel de sus declaraciones a la Asamblea Legislativa, la cual, respecto de estos funcionarios, gozará de las mismas facultades que esta ley asigna a la Contraloría General de la República en relación con los demás servidores públicos.”
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los diecinueve días del mes de octubre del año dos mil doce.
+Ejecútese y publíquese.
