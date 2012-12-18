@@ -14,3 +14,4 @@ Instrucciones para la remisión de prospectos de entidades emisoras y documentos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-04 | la propia norma |
+| 2 | 2012-12-18 | Acuerdo 184 (2012-12-18) |
