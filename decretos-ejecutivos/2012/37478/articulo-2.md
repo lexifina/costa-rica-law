@@ -1,0 +1,1 @@
+Artículo 2.- Se insta a las dependencias del Sector Público, para que dentro del marco de sus competencias, contribuyan con recursos humanos y económicos o alternativas de colaboración, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, en la consecución de las actividades indicadas.
