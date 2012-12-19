@@ -1,1 +1,0 @@
-Artículo 15.—Las variaciones presupuestarias que se presenten para su trámite, deberán de contar con la “Resolución de aprobación” correspondiente, en la cual se deberá detallar las consideraciones técnicas o jurídicas que justifiquen la solicitud formulada. (Ver Anexo).

@@ -1,2 +1,0 @@
-Artículo 9º—Corresponderá al CONASSIF aprobar o improbar las variaciones presupuestarias de los ODM. Podrán elevarse al Consejo las modificaciones presupuestarias una vez adjuntado el criterio de la Comisión Permanente de Análisis Presupuestario del CONASSIF.
-Las funciones desempeñadas por la Comisión Permanente de Análisis Presupuestario no eximen a la Administración de la responsabilidad en la verificación del cumplimiento de la normativa técnica y del bloque de legalidad que regula la materia.
