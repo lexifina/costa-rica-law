@@ -14,3 +14,4 @@ Reglamento del Cementerio Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-31 | la propia norma |
+| 2 | 2012-12-19 | Reglamento municipal 53 (2012-12-19) |
