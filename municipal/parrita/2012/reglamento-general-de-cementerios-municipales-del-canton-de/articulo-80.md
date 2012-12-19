@@ -1,0 +1,1 @@
+Artículo 80.—La finalidad de la Municipalidad de Parrita, es prestar un servicio público ágil, expedito y ordenado para que todos los usuarios que deseen hacer uso de los derechos de uso de suelo en los cementerios del cantón de Parrita, conozcan con detalle cuáles son sus obligaciones, responsabilidades y derechos.

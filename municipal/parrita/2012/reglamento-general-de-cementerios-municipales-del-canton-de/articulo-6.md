@@ -1,0 +1,1 @@
+Artículo 6°—Es permitido en los cementerios la práctica de todo rito religioso, siempre que no sea contrario a la ley, a la moral universal y las buenas costumbres. En cada cementerio podrá existir una Capilla para honras fúnebres y para actos religiosos.

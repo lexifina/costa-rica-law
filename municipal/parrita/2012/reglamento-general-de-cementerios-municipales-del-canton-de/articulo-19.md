@@ -1,0 +1,1 @@
+Artículo 19.—Los nichos municipales que se describen en el artículo anterior, están destinados a cubrir las necesidades de la población más necesitada y/o de emergencia de personas de la comunidad de Parrita que no cuentan con derecho funerario en un momento apremiante.

@@ -1,0 +1,1 @@
+Artículo 51.—El contrato de derecho funerarios tendrá un plazo de 10 años, contados a partir de la fecha en que se suscriba el contrato, y podrá prorrogarse previo acuerdo del Alcalde Municipal, una vez que se haya verificado el buen mantenimiento de su(s) nicho(s), mausoleo o similar, por parte arrendatario.

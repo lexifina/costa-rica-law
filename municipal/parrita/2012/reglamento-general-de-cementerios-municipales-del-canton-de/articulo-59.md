@@ -1,0 +1,1 @@
+Artículo 59.—En caso de que todos los beneficiarios hayan fallecido, no se haya dejado beneficiarios, o no se tenga certeza de quien es el titular del derecho, la Administración brindará un mes calendario para que los familiares por consaguinidad o/y afinidad, del arrendatario fallecido, soliciten la prórroga, siendo necesario que exista consenso por escrito de la decisión

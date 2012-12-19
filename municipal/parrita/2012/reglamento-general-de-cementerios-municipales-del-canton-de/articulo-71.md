@@ -1,0 +1,2 @@
+Artículo 71.—Servicios autorizados: La Municipalidad de Parrita queda facultada para cobrar precios por los servicios de inhumación, exhumación, re-inhumación, mantenimiento, adjudicación, arrendamiento de lotes, prórroga y construcción de nichos, de acuerdo con tarifas que fije según el artículo 72 de este reglamento.
+El pago del Derecho Funerario se realizará en el mismo acto de la firma del Contrato.

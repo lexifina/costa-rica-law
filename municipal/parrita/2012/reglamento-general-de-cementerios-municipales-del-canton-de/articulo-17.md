@@ -1,0 +1,1 @@
+Artículo 17.—La Municipalidad dispondrá de un sector para entierro de niños hasta doce años de edad. Estos nichos tendrán una dimensión de 1,50 metros de largo por de 0.50 metros de ancho, una altura de 0.50 metros y regirán las mismas normas que para adultos.

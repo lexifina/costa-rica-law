@@ -1,0 +1,1 @@
+Artículo 77.—La administración inspeccionará la colocación de lápidas, cruces, etc., así como los colores a usarse que serán blancos y gris, pudiéndose aplicar el color negro para fines decorativos, a fin de que mantenga uniformidad en la estética del Cementerio.
