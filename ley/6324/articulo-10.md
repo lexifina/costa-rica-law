@@ -1,6 +1,7 @@
 Artículo 10.- Para el cumplimiento de sus funciones el Consejo contará con los siguientes recursos, que formarán el Fondo de Seguridad Vial:
 a) Las sumas que se le asignen en los presupuestos ordinarios de la República.
-b) El treinta y tres por ciento (33%) de la prima comercial del seguro obligatorio de vehículos. Las entidades aseguradoras serán consideradas para estos efectos como agentes de retención y de percepción, conforme al Código de Normas y Procedimientos Tributarios, Ley N.º 4755, de 3 de mayo de 1971, y sus reformas, de la suma recaudada por concepto de seguro obligatorio de vehículos, la cual se deberá transferir mensualmente.
+b) El treinta y tres por ciento (33%) de la prima comercial del seguro obligatorio de vehículos particulares. Las entidades aseguradoras serán consideradas para estos efectos como agentes de retención y de percepción, conforme al Código de Normas y Procedimientos Tributarios, Ley N.º 4755, de 3 de mayo de 1971, y sus reformas, de la suma recaudada por concepto de seguro obligatorio de vehículos particulares, la cual se deberá transferir mensualmente.
+(Así reformado el inciso anterior por el artículo único de la ley N° 9107 del 19 de diciembre de 2012)
 c) Los ingresos provenientes de las multas por infracciones de tránsito establecidas en la ley.
 d) Las donaciones que reciba tanto de los entes descentralizados del Estado, a los cuales se les autoriza para hacerlas, así como de personas físicas o jurídicas del sector privado.
 e) Los ingresos originados en los distintos servicios que prestan las direcciones de Educación Vial, Ingeniería de Tránsito, Policía de Tránsito y el propio Cosevi.
