@@ -57,3 +57,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 37401 del 14 de noviembre del 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37414 del 29 de noviembre del 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37415 del 29 de noviembre de 2012)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37435 del 29 de noviembre de 2012)
