@@ -1,0 +1,1 @@
+Artículo 2.- Para dar fiel cumplimiento a lo establecido en anterior artículo, las instituciones centralizadas y descentralizadas, del Subsector Energía deberá rendir informes periódicos al Ministro Rector sobre las acciones tomadas. El primer informe deberá ser presentado en un plazo de 30 días hábiles, contados a partir de la firma de la presente Directriz.
