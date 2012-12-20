@@ -1,3 +1,0 @@
-Artículo 32.—Este Reglamento rige a partir de su publicación en el Diario Oficial.
-De conformidad con las recomendaciones contenidas en el oficio Nº CPE-350-2009 del 08 de junio de 2009, conocido en la sesión ordinaria Nº 057-2009, celebrada por este Tribunal el 11 de junio de 2009, las cuales fueron formuladas por el señor Héctor Fernández Masís, Coordinador de Programas Electorales y la señora Mary Anne Mannix Arnold, Jefa a. í. del Departamento Legal, el Encargado del Programa de Transportes y la Coordinación de Servicios Regionales deberán elaborar una tabla de distancias, para los efectos correspondientes.
-Dado en San José, a los veintiocho días del mes de julio de dos mil nueve.

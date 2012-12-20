@@ -1,1 +1,0 @@
-Artículo 31.—Será aplicable a esta figura en forma supletoria la Ley de Tránsito por vías públicas y terrestres 7331 del 13 de abril de 1993 y sus reformas, el Reglamento para el uso de vehículos propiedad del Tribunal Supremo de Elecciones y Registro Civil, Reglamento Autónomo de Servicios del Tribunal Supremo de Elecciones y Registro Civil, así como cualquier otra normativa.

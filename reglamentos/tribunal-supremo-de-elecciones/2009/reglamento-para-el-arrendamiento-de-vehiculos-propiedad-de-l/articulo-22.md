@@ -1,4 +1,0 @@
-Artículo 22.—Procedimiento. El funcionario arrendante deberá realizar el siguiente procedimiento:
-a) Completará un formulario de “Reporte de kilometraje” por cada gira que realice y lo presentará al Encargado del Programa Electoral de que se trate, o al jefe inmediato de la Unidad en que se prestó el servicio, para el respectivo visto bueno.
-b) Posteriormente, el funcionario arrendante completará el formulario denominado “Liquidación de pago de kilometraje” con todas las indicaciones ahí establecidas y lo trasladará a cada uno de los encargados de otorgar los respectivos visados.
-c) Una vez que el reporte de liquidación se encuentre visado tanto por el Encargado del Programa Electoral o jefe de la Unidad Administrativa que corresponda, por el Encargado del Programa de Transportes y por el Coordinador de Programas Electorales, remitirá dicho formulario a la Contaduría institucional para el respectivo trámite de pago.

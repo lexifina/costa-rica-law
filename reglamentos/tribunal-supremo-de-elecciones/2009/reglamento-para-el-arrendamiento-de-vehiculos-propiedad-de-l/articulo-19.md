@@ -1,1 +1,0 @@
-Artículo 19.—De la no calificación como salario. El pago de kilometraje y de los otros rubros regulados en este reglamento no serán considerados como beneficio o mejora salarial, salario en especie o parte del contrato de trabajo y no generarán derechos adquiridos a favor de quien suscribe el contrato de arrendamiento.

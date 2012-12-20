@@ -1,1 +1,0 @@
-Artículo 11.—Resolución de cese. Si se produjere algunas de las causales anteriores, el Coordinador de Programas Electorales deberá, mediante resolución motivada, dar por finalizada la relación contractual y notificar de ello al funcionario arrendante.
