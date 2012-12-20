@@ -14,3 +14,4 @@ Uso obligatorio del portal de Tributación Diret@ por parte de los contribuyente
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-05 | la propia norma |
+| 2 | 2012-12-20 | Resolución 41 (2012-12-20) |
