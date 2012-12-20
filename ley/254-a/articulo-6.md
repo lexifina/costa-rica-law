@@ -1,5 +1,2 @@
-Articulo 6°—La Asociación estará compuesta por los siguientes organismos:
-a) Congreso Nacional de Educadores;
-b) Directiva Central ; y
-c) Filiales
-La integración, funcionamiento y atribuciones, serán los que .sus estatutos señalen.
+Artículo 6.- La ANDE estará compuesta por los órganos que establezca su Estatuto.
+La integración, el funcionamiento y las atribuciones de cada órgano, serán los que su Estatuto señale.
