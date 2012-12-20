@@ -1,0 +1,1 @@
+Artículo 53.- El diseño y colocación de los anuncios deberá respetar la composición, homogeneidad y armonía de los inmuebles en los que se coloquen, de acuerdo con los artículos siguientes y, en su defecto, a lo normado en el Reglamento de Publicidad Exterior y en el de Las Ruinas de Santiago Apóstol.

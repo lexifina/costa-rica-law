@@ -1,0 +1,1 @@
+Artículo 48.- La Municipalidad de Cartago en coordinación con la COSECOP estará en obligación de asesorar y tramitar las intervenciones de tipo menor y mayor a las que se sometan los inmuebles. Se creará un expediente por cada inmueble, donde se registrará el estado del mismo y sus subsecuentes intervenciones.

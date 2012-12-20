@@ -1,0 +1,1 @@
+Artículo 42.- La aplicación de las disposiciones previstas en este reglamento corresponderá a la Municipalidad de Cartago a través de la Oficina de Planificación Urbana, la que coordinará lo pertinente con COSECOP y otras organizaciones afines.
