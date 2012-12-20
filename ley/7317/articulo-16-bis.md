@@ -1,0 +1,2 @@
+Artículo 16 bis.- Se crea el pago por disponibilidad para funcionarios y funcionarias que trabajen en actividades de manejo, control y protección de la vida silvestre fuera de su jornada laboral normal, de acuerdo con lo que se disponga en el reglamento de esta ley. Para este pago se utilizarán los recursos del Fondo de Vida Silvestre.
+(Así adicionado por el artículo 2° de la ley N° 9106 del 20 de diciembre del 2012)

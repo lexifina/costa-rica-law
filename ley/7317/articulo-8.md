@@ -1,10 +1,1 @@
-Artículo 8.- Para la mejor orientación de los fines perseguidos en esta Ley, la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**) tendrá un Comité Asesor de la Vida Silvestre que estará integrado por:
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
-a) El Director de la Dirección General de Vida Silvestre, quien lo presidirá.
-b) Un representante de las organizaciones conservacionistas privadas no gubernamentales, sin fines de lucro, especializadas en el campo de la conservación de la vida silvestre.
-c) Un representante de la Universidad de Costa Rica.
-ch) Un representante de la Universidad Nacional.
-d) Un representante del Ministerio de Agricultura y Ganadería.
-Los miembros del Comité Asesor de la Vida Silvestre deberán ser personas de reconocida solvencia moral, adecuada formación, preferiblemente profesional, por lo menos, con tres años de experiencia en el campo y que hayan manifestado su preocupación por los principios que inspiran esta Ley.
-Los miembros del Comité Asesor de la Vida Silvestre durarán, en el ejercicio de sus funciones, dos años a partir de la fecha de su nombramiento y podrán ser reelectos por períodos iguales. El funcionamiento de dicho Comité será normado por vía reglamentaria.
+ARTICULO 8.- (Derogado por el artículo 5° de la ley N° 9106 del 20 de diciembre de 2012)
