@@ -1,0 +1,2 @@
+Artículo 3º.— Modifícanse los artículos No. 2º y 6º de la Ley No. 9019, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2012, publicada en el Alcance No. 106 a La Gaceta No. 244 de 20 de diciembre de 2011, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por el tipo de formato y lo extenso de su contenido consultar el Alcance digital N° 209 a La Gaceta N° 246 del 20 de diciembre de 2012)
