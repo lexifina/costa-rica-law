@@ -1,3 +1,1 @@
-ARTICULO 3º.- No es obligatoria la propina para consumisiones
-inferiores a diez colones o en los casos en que el servicio en las mesas
-lo presta el propietario del negocio.
+ARTICULO 3º.- (Derogado por el artículo 5° de la Ley para Proteger el empleo de los Saloneros y Meseros, N° 9116 del 21 de diciembre de 2012)
