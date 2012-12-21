@@ -1,0 +1,1 @@
+Artículo 19: La Municipalidad reconocerá al trabajador que sustituya a otro de mayor jerarquía, el equivalente al 50% del salario al trabajador que además de sus propias funciones asuma las del funcionario ausente. Eso se considerará como recargo de funciones.

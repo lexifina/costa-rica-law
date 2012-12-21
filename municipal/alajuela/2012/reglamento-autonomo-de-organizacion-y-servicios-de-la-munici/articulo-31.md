@@ -1,0 +1,1 @@
+Artículo 31: El empleado que cometa alguno de los actos señalados en el artículo anterior, o que incumpla alguna de las obligaciones a que se refiere el artículo 28 de este Reglamento, o el 29 si se trata de un jefe de departamento será sancionado conforme a este Reglamento.

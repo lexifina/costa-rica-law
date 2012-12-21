@@ -1,0 +1,1 @@
+Artículo 46: Las ausencias al trabajo deberán ser comprobadas mediante documento expedido por la Caja Costarricense de Seguro Social en los casos protegidos por ese régimen o por el instituto Nacional de Seguros si se trata de in riesgo del trabajo. En casos muy calificados, la ausencia podrá dispensarse mediante presentación de un certificado médico particular.

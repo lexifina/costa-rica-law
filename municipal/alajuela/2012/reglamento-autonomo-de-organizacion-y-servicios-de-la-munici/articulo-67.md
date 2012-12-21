@@ -1,0 +1,1 @@
+Artículo 67: El presente Reglamento deroga expresamente el Reglamento interior de Trabajo de la Municipalidad de Alajuela, emitido en 1952 por Acuerdo Municipal No. 3 de 22 de julio, con las reformas introducidas por el Artículo 12 de 4 de noviembre y aprobado por la Inspección General de Trabajo por resolución dictada a las 16 hrs del 17 de noviembre de 1952.
