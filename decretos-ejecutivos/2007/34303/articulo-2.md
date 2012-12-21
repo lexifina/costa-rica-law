@@ -1,2 +1,1 @@
-Artículo 2°-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República, en San José, a los veintitrés días del mes de noviembre de dos mil siete.
+Artículo 2°-Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 18298-12, del 19 de diciembre de 2012, misma que fue anulada por resolución de la Sala Constitucional N° 18665-12, del 21 de diciembre de 2012, que a su vez anula este artículo .).

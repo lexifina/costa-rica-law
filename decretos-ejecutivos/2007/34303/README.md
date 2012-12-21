@@ -14,3 +14,4 @@ Reforma Declara Zonas Reservadas para Fines Utilidad Pública Indicadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-13 | la propia norma |
+| 2 | 2012-12-21 | SINALEVI (sin norma nombrada) |
