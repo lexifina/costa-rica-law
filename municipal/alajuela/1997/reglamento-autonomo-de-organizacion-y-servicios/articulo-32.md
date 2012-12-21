@@ -1,1 +1,0 @@
-Artículo 32.-EI empleado que cometa alguno de los actos señalados en el artículo anterior, o que incumpla alguna de las obligaciones a que se refiere el artículo 29 de este Reglamento, o el 30 si se trata de un jefe de departamento o sección será sancionado conforme a este reglamento.

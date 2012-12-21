@@ -1,3 +1,0 @@
-Artículo 67.-Ninguna persona que haya denunciado ser víctima de hostigamiento o acoso sexual o haya comparecido como testigo de las partes, podrá por ello sufrir perjuicio personal en su empleo.
-Conforme a lo previsto en la ley 7475-95, quien haya formulado denuncia por acoso u hostigamiento sexual, sólo podrá ser despedido por justa causa, previa intervención de la Dirección Nacional e Inspección General de Trabajo, donde deberá acreditarse la causal en que la municipalidad funda su despido.
-Esta garantía rige durante el plazo que se sustancie 'la denuncia y hasta tres meses después de concluido el procedimiento.

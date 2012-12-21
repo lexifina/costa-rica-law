@@ -1,1 +1,0 @@
-Artículo 49.-Las llegadas tardías mayores a los quince minutos después de la hora exacta de iniciación de la jornada de trabajo, impedirá al funcionario laborar en la respectiva fracción de jornada, lo que se considera como media ausencia para efectos de sanción.

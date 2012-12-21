@@ -1,1 +1,0 @@
-Artículo 38.-Las asistencias al Seguro Social cuando sean en horas laborales, se considerarán como licencias con goce de salario pare ello el funcionario deberá presentar el documento de control de asistencia que la institución aseguradora otorga pare estos fines.

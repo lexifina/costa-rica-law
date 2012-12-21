@@ -1,1 +1,0 @@
-Artículo 68.-En todo aquello no previsto en este Reglamento sobre acoso u hostigamiento sexual, rige la ley 7476 del 3 de febrero de 1995, Ley contra el hostigamiento sexual en el empleo y la docencia.
