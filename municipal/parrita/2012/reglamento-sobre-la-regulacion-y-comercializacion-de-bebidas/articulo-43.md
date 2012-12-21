@@ -1,0 +1,1 @@
+Artículo 43.—Denegatoria de renovación. Para denegar una renovación de quinquenio, la dependencia encargada de tramitar y aprobar las licencias en la municipalidad deberá haber comprobado las denuncias presentadas en el plazo del quinquenio anterior, cumpliendo con el proceso debido correspondiente.

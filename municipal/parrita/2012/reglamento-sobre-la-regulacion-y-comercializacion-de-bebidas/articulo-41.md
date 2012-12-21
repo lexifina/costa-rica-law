@@ -1,0 +1,6 @@
+Artículo 41.—Requisitos de renovación. Compete a la dependencia encargada de tramitar y aprobar las licencias en la municipalidad todo lo relacionado al proceso de renovaciones de quinquenio. Los solicitantes deberán cumplir con los siguientes requisitos:
+a) Devolución del certificado del bienio concedido bajo la Ley Nº 10 o quinquenio anterior.
+b) Presentar copia del Permiso Sanitario de Funcionamiento vigente.
+c) Si se trata de una persona jurídica, deberá mantener actualizada el acta constitutiva de la sociedad, acreditando su existencia, vigencia y representación legal, así como la composición de su capital accionario.
+d) Deberá encontrarse al día en todas las obligaciones municipales, tanto materiales como formales, así como en la póliza de riesgos laborales, Caja Costarricense de Seguro Social y Asignaciones Familiares. En los casos que esas instituciones no tengan la información a través de los medios tecnológicos y la municipalidad no pueda obtenerla, deberá el solicitante aportar la certificación respectiva.
+La fotocopia de los documentos citados en el inciso b), c) y d) deberán venir certificados por notario público, o bien, el solicitante podrá aportar las copias y presentarlas ante el funcionario municipal respectivo quién confrontará el original y dejará constancia de dicho acto al dorso de la copia.

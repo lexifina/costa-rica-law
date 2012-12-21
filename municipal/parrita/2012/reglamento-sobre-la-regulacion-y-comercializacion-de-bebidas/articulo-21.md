@@ -1,0 +1,5 @@
+Artículo 21.—De los criterios para otorgar licencias. En cada distrito, la dependencia encargada de tramitar y aprobar las licencias en la municipalidad podrá autorizar licencias de comercialización de bebidas con contenido alcohólico bajo las siguientes condiciones:
+a. Las actividades declaradas de interés turístico por el ICT, con excepción de la categoría B, no tendrán limitación de población, más no será obligatorio para la municipalidad la aprobación de la licencia, de conformidad con lo que dispone el inciso d) del artículo 3 de la Ley.
+b. Deberá respetar lo dispuesto en el Plan Regulador para la ubicación de las actividades expendedoras de bebidas con contenido alcohólico.
+c. Deberá aplicar criterios de conveniencia, racionalidad, proporcionalidad, interés superior del menor, riesgo social y desarrollo equilibrado del cantón, así como al respeto de la libertad de comercio y del derecho a la salud.
+Para la aplicación de este último criterio se puede solicitar la colaboración del Ministerio de Salud y del Instituto de Farmacodependencia con el fin de que brinden el asesoramiento necesario.
