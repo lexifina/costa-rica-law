@@ -14,3 +14,4 @@ Declara Zonas Reservadas para Fines Utilidad Pública Indicadas
 | --- | --- | --- |
 | 1 | 1994-01-13 | la propia norma |
 | 2 | 2007-11-23 | Decreto Ejecutivo 34303 (2007-11-23) |
+| 3 | 2012-12-21 | SINALEVI (sin norma nombrada) |
