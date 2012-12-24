@@ -1,4 +1,1 @@
-ARTICULO 2º.- La propina autorizada conforme a esta ley, será de un
-10% con respecto al monto total de la consumición correspondiente. La
-propina para los efectos de registrarla por escrito se llamará: "servicio
-10%".
+ARTICULO 2º.- (Derogado por el artículo 5° de la Ley para Proteger el empleo de los Saloneros y Meseros, N° 9116 del 21 de diciembre de 2012)
