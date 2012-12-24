@@ -1,0 +1,2 @@
+ARTÍCULO 3.- El empleador deberá entregar al trabajador el monto de lo recaudado por concepto del diez por ciento (10%) de servicio de la siguiente manera: en el plazo de un mes, cuando el pago se haya realizado mediante tarjeta de débito o crédito y, en el plazo de una semana, cuando el pago se haya realizado en dinero efectivo.
+En el caso de la propina voluntaria el empleador deberá entregar el monto de lo recaudado al trabajador en el plazo de un mes, cuando el pago se realice mediante tarjeta de débito o crédito.
