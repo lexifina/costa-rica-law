@@ -1,0 +1,1 @@
+Artículo 5°—La Dirección de Administración y Planificación será la responsable de la institucionalización y aplicación del presente reglamento, constituyéndose en la parte técnica y logística de las decisiones que a través de este reglamento determine el Concejo Municipal o la Alcaldía Municipal.

@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad de Naranjo velará por la protección de los derechos e intereses de todos y todas los y las que tienen su domicilio en la jurisdicción territorial del Cantón de Naranjo, respondiendo y garantizando lo establecido en el Código Municipal en su Título I: Disposiciones Generales.

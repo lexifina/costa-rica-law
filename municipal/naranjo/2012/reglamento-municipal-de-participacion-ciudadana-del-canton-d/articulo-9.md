@@ -1,0 +1,1 @@
+Artículo 9°—La Municipalidad de Naranjo mediante y la Dirección de Administración y Planificación, son los instrumentos inmediatos de los procesos de participación ciudadana en los asuntos públicos y asimismo el municipio es ámbito territorial para el ejercicio de los derechos reconocidos en la legislación de régimen local del cantón de Naranjo.
