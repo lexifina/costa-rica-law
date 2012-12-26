@@ -1,0 +1,1 @@
+3. Solicitar al Consejo Nacional de Supervisión del Sistema Financiero que instruya a la Superintendencia General de Entidades Financieras a efecto de que verifique la aplicación, por parte de los supervisados, de lo dispuesto en el presente Acuerdo.
