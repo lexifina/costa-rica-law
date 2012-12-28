@@ -1,0 +1,1 @@
+Artículo 3º- Competencia para la legalización de libros sociales. Corresponde al Registro Nacional a través del Registro de Personas Jurídicas, la autorización de legalización de los libros sociales de las sociedades mercantiles.

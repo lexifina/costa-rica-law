@@ -1,0 +1,2 @@
+Artículo 17°- Publicidad de la información de la base de datos de legalización de libros. El Registro Nacional ofrecerá publicidad de la información contenida en la base de datos de legalización de libros sociales, respecto de aquellas legalizaciones que se realicen a partir de la entrada en vigencia del presente reglamento.
+Dado en la Junta Administrativa del Registro Nacional. San José, el trece de diciembre del dos mil doce y rige a partir del veintiocho de diciembre del dos mil doce.

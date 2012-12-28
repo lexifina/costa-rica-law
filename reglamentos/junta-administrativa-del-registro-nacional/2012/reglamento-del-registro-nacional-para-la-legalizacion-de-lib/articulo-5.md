@@ -1,0 +1,1 @@
+Artículo 5º- Tasa. La Junta Administrativa del Registro Nacional establecerá la tarifa para la legalización de los libros sociales que establece el artículo 263 del Código de Comercio, para las sociedades mercantiles, quedando facultada para modificarla por medio de acuerdo de Junta, cuando lo considere conveniente para la prestación eficiente del servicio.
