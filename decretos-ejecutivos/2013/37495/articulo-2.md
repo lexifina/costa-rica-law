@@ -1,0 +1,1 @@
+Artículo 2°- Adicional a ello, se aplicará un 1% (uno por ciento) a la base a los funcionarios públicos con salarios base iguales o inferiores a los ¢275.150 (doscientos setenta y cinco mil ciento cincuenta colones), quedando un incremento de 2.84% (dos punto ochenta y cuatro por ciento) en el salario base para el primer semestre del año 2013, para este grupo de servidores.
