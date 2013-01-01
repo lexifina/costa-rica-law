@@ -1,0 +1,1 @@
+Artículo 69. Derogatoria. Deróguese el Decreto Ejecutivo N°32342 del dieciocho de febrero del dos mil cinco y sus reformas. (Reglamento de Uniformes y Distintivos de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública).

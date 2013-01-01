@@ -1,0 +1,1 @@
+Artículo 63. El libro para el registro de condecoraciones y reconocimientos deberá estar debidamente identificado con tomo, folio y asiento. En cada asiento constará el nombre de la persona a condecorar o a reconocer, tipo de condecoración o reconocimiento que se otorga, número y fecha del acuerdo del Consejo Superior de Oficiales según corresponda.

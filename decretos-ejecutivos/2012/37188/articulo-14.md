@@ -1,0 +1,1 @@
+Artículo 14. De la Bandera de la Fuerza Pública. La bandera de la Fuerza Pública será de dos metros de largo por un metro veinte centímetros de ancho, estará compuesta por tres franjas, la central en color blanco de 50 centímetros de ancho y dos franjas azul oscuro de 35 centímetros. En la franja blanca tendrá bordado el escudo de la Fuerza Pública.

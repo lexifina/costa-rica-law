@@ -1,0 +1,1 @@
+Artículo 13. De la Bandera Nacional en el uniforme. Deberá ubicarse cosida en la manga de la camisa al lado derecho a 3.5 cm de la costura superior. Tendrá el borde tejido en color amarillo, la bandera medirá nueve centímetros de largo por seis centímetros de ancho, la franja roja medirá dos centímetros de ancho y las azules y blancas un centímetro.

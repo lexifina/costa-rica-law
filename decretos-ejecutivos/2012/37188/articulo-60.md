@@ -1,0 +1,1 @@
+Artículo 60. De la aprobación de los reconocimientos. El Consejo Superior de Oficiales deberá conocer y estudiar las propuestas de candidatos a recibir el reconocimiento, así como elaborar y aprobar el dictamen correspondiente.

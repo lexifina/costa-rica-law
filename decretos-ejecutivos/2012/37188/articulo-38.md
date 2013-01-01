@@ -1,0 +1,1 @@
+Artículo 38. Del chaleco reflectivo del personal de la Fuerza Pública. Será de bandas reflectivas, con la leyenda “Policía” al frente y “Fuerza Pública” en su parte trasera. Será parte del uniforme cuando así se requiera.

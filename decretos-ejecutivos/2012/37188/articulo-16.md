@@ -1,0 +1,1 @@
+Artículo 16. Del escudo de la Fuerza Pública. Deberá ubicarse cosido en la manga de la camisa al lado izquierdo a 3.5 cm de la costura superior, salvo para los uniformes de fatiga, en los que se ubicará de la misma forma, pero adherido por medio de velcro.

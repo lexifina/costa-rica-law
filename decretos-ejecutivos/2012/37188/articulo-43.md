@@ -1,0 +1,1 @@
+Artículo 43. Del avituallamiento: La Administración será la encargada de proveer los uniformes de la Fuerza Pública, de los demás cuerpos de Policía adscritos al Ministerio de Seguridad Pública y de la Escuela Nacional de Policía, así como los accesorios que se utilizarán para el buen desempeño de la función policial.

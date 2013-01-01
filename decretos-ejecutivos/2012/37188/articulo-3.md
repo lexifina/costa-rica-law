@@ -1,0 +1,2 @@
+Artículo 3. Disposiciones Generales. El uso y porte del uniforme policial, constituye un motivo de honor y dignidad personal, su uso debe ser correcto, impecable y elegante, en todo lugar y ocasión.
+Les corresponde a los Directores de cada Cuerpo Policial y de la Escuela Nacional de Policía, disponer las medidas necesarias para que las diferentes unidades policiales y la Escuela Nacional de Policía cuenten con las dotaciones reglamentarias y cumplan las normas establecidas en este reglamento.
