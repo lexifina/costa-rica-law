@@ -1,0 +1,1 @@
+Artículo 2º—Ese plus consistirá en un 26% del salario base de los letrados del Tribunal Supremo de Elecciones, cuya percepción no repercutirá en el cálculo de los demás pluses salariales de los que disfrutan.
