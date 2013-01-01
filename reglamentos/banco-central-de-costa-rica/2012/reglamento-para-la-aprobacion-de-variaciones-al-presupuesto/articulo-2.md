@@ -1,0 +1,1 @@
+Artículo 2º—Las disposiciones de esta normativa son de acatamiento obligatorio para todas las dependencias del Banco Central de Costa Rica, Consejo Nacional de Supervisión del Sistema Financiero y sus Órganos de Desconcentración Máxima.
