@@ -1,0 +1,3 @@
+Artículo 2º.— La modificación indicada en el artículo anterior es por un monto de cuatrocientos cuarenta y nueve mil quinientos cincuenta y ocho millones, sin céntimos (¢449.558.000.000,00); y su desglose en ingresos así como gastos en los niveles de programa, partida y subpartida presupuestaria estarán disponibles en la página electrónica del Ministerio Hacienda en la siguiente dirección: www.hacienda.go.cr (Modificaciones Presupuestarias), y en forma impresa, en los archivos que se custodian en la Dirección General de Presupuesto Nacional.
+Las rebajas en este Decreto se muestran como sigue:
+[imagen] [imagen]
