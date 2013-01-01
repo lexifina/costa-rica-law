@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 37357-H de fecha 6 de setiembre del 2012, publicado en el Diario Oficial La Gaceta N° 207 del 26 de octubre del 2012, a partir de la vigencia del presente decreto.
