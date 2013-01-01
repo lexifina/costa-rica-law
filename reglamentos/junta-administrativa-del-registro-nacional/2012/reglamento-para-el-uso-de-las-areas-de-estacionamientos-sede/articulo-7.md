@@ -1,0 +1,1 @@
+Artículo 7º—No ampliación del área utilizada para estacionamiento. No se podrá en ningún caso utilizar para estacionamiento, las áreas destinadas a áreas verdes o aquellos nuevos terrenos que adquiera el Registro Nacional, salvo que en caso de fuerza mayor o caso fortuito la Dirección General así lo autorice.

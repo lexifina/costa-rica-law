@@ -1,0 +1,1 @@
+Artículo 16.—Velocidad de conducción dentro del estacionamiento. Es obligación conducir dentro del estacionamiento, a una velocidad que no supere los 10 km/hora. Además debe respetar las vías de acceso, la señalización vial y las instrucciones que impartan los funcionarios de seguridad, mismas que deben apegarse al presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.—Vigencia del permiso de Estacionamiento: El plazo del permiso concedido es de un año calendario contado desde el primero de enero al treinta y uno de diciembre del año calendario respectivo. Si hubiere espacios vacantes o se construyeren más espacios, la concesión lo será por el resto del plazo hasta el 31 de diciembre.

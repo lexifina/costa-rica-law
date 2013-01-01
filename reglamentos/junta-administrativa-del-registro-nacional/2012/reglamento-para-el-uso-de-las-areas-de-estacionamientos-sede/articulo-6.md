@@ -1,0 +1,1 @@
+Artículo 6º—Responsabilidad del Registro. El estacionamiento es un servicio gratuito y la Institución no se hará responsable por robo de vehículos y objetos dejados en ellos, colisiones, contingencias tales como, pero no limitadas a: inundación, temblor, desprendimiento de objetos u otros de naturaleza similar, o cualquier otro daño que le ocurra al automotor.

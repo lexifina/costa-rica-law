@@ -1,0 +1,1 @@
+Artículo 25.—Vigencia. Rige a partir del primero de enero del dos mil trece. Acuerdo Firme J457, adoptado por la Junta Administrativa del Registro Nacional en la Sesión Ordinaria N° 41-2012, celebrada el día dieciocho de octubre del dos mil doce.

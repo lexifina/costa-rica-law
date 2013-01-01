@@ -1,0 +1,4 @@
+Artículo 11.—Solicitud de Permiso de Estacionamiento. El funcionario deberá plantear la solicitud del respectivo permiso de estacionamiento ante la Dirección General, dentro del plazo que esta señale adjuntando copia de su licencia de conducir y de la tarjeta de circulación del vehículo. En su solicitud el funcionario deberá manifestar que conoce el presente reglamento y la aceptación expresa de sus disposiciones.
+Una vez asignados por la Dirección General todos los espacios disponibles en las áreas de estacionamiento, las modificaciones en la jerarquía y antigüedad que se generen posteriormente no modificarán las asignaciones de espacios efectuadas previamente.
+Cuando un espacio asignado quede vacante, se procederá a su asignación analizando las solicitudes de permiso de uso de parqueo formuladas.
+La Dirección Administrativa, coadyuvara a la Dirección General para que disponga del mejor medio de identificación del vehículo.

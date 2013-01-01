@@ -1,0 +1,1 @@
+Artículo 15.—Prohibición de estacionar en zonas verdes o de paso. Por ningún motivo el usuario del estacionamiento podrá parquear el vehículo en las áreas verdes, de paso de peatones u otra que no esté señalada como espacio de parqueo.

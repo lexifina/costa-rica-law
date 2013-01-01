@@ -1,0 +1,1 @@
+Artículo 19.—Uso de los espacios de estacionamiento. El vehículo deberá aparcarse en el espacio que le ha sido asignado al funcionario. Los vehículos se parquearán en posición de salida, sea con la parte delantera del vehículo hacia la salida, de manera que permita su desplazamiento oportuno y rápido en caso de emergencia, sin afectar los aparcamientos colindantes.

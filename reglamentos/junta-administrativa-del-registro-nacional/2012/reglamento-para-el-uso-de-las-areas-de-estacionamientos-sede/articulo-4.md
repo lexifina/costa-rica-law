@@ -1,0 +1,1 @@
+Artículo 4º—Espacios destinados para discapacitados y visitantes. Los espacios disponibles para discapacitados y visitantes serán exclusivamente para este fin, sin que pueda ubicarse temporalmente en ese lugar algún funcionario o visitante que no cuente con los requisitos exigidos por la ley para utilizarlo.
