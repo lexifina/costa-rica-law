@@ -1,0 +1,1 @@
+b) Modificar el acuerdo Firme J 515 tomado en la sesión ordinaria N° 44-2010 de fecha 10 de octubre 2010, de tal forma que en adelante se deja sin efecto la instrucción girada, relativa a utilizar la moneda dólar ($) para la tarifa del “Servicio de Inscripción de Marca de Ganado” por consiguiente en adelante deberá utilizarse la moneda de colones (¢).
