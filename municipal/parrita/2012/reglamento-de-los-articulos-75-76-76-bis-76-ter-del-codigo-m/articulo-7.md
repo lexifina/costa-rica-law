@@ -1,0 +1,1 @@
+Artículo 7º—Las inspecciones y notificaciones relacionadas con la aplicación del presente Reglamento, serán competencia de la Administración Municipal y su ejecución deberá ser conforme al debido proceso.

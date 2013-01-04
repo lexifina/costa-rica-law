@@ -1,0 +1,1 @@
+Artículo 13.—Cercado de lotes baldíos: Para la construcción de cercas en lotes baldíos, la Municipalidad exigirá los mismos sistemas señalados en el artículo 11 o bien en el artículo 12 del presente Reglamento, según corresponda la localización de la finca o predio.

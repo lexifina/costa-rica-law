@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE PARRITA
+SM-408-2012.—Sandra Hernández Chinchilla, Secretaria Municipal certifico, que el Concejo Municipal mediante acuerdo Nº 06, Articulo Tercero, Informes, Asunto N° 01, sesión ordinaria Nº 2480-2012, celebrada el veinticuatro de setiembre del dos mil doce, aprobó el Reglamento de los artículos 75, 76, 76 bis, 76 ter. del Código Municipal, Ley 7794
+REGLAMENTO DE LOS ARTÍCULOS 75, 76, 76 BIS, 76 TER.
+DEL CÓDIGO MUNICIPAL, LEY 7794
+CAPÍTULO I
+Aspectos generales
+Artículo 1º—La Municipalidad del cantón de Parrita, en adelante denominada como la Municipalidad, de conformidad con las facultades que le otorga el artículo 169 de la Constitución Política de Costa Rica, Ley de Planificación Urbana número 4240 y sus reformas, la Ley de Construcciones número 833 y su Reglamento, el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones y el Código Municipal Ley 7794, promulga el presente Reglamento de los Artículos 75, 76, 76 bis y 76 ter. del Código Municipal. Las disposiciones del Reglamento serán de aplicación y acatamiento obligatorio para todas las personas, físicas o jurídicas, propietarias de bienes inmuebles localizados dentro de los límites político-administrativos que corresponden al cantón de Parrita, conforme a lo establecido en el Decreto 29267-G de la División Territorial Administrativa y según la delimitación realizada por el Instituto Geográfico Nacional en los mapas oficiales de Costa Rica.
