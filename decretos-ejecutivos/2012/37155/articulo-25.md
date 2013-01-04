@@ -1,0 +1,1 @@
+Artículo 25°.- Confinamiento de cerdos. Se prohíbe en todo el territorio nacional la tenencia de cerdos sueltos que deambulen en propiedades tanto públicas como privadas, debiendo por el contrario estar debidamente confinados.

@@ -1,0 +1,1 @@
+Artículo 18°.- Prohibiciones. Queda prohibida la alimentación de cerdos con sobrantes de alimentos provenientes de centros hospitalarios, clínicas y similares, asilos y terminales marítimas y aéreas; asimismo aquellos en estado de putrefacción. Tampoco se podrá suministrar subproductos que por su origen representan un riesgo sanitario.

@@ -1,0 +1,1 @@
+Artículo 21°.- Sacrificio Sanitario. Las autoridades del SENASA procederán al sacrificio sanitario de cerdos, cuando valoradas técnicamente las condiciones zoosanitarias y ambientales de una granja, se determine que es la única medida sanitaria aplicable para eliminar el riesgo para la salud de las personas, del hato nacional o para el ambiente.

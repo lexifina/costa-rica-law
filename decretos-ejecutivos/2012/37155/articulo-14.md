@@ -1,0 +1,1 @@
+Artículo 14°.- Modificación del establecimiento. En caso de que las condiciones en que fue otorgado el CVO se modifiquen, el propietario o encargado debe solicitar la reinspección de la granja porcina de previo a la renovación del registro anual ante el SENASA.

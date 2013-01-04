@@ -1,0 +1,1 @@
+Artículo 6º.- De la ubicación. Las granjas porcinas solo podrán ubicarse, construirse o ampliar sus instalaciones en zonas o sitios previamente aprobados por la Municipalidad correspondiente a través del Certificado de Uso de Suelo.

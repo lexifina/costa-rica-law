@@ -1,0 +1,1 @@
+Artículo 24°.- Criterios de aplicación. Para la aplicación del presente reglamento se tomarán en consideración los aspectos relacionados con la salud humana, la salud de los animales, el medio ambiente, los derechos del porcicultor y el fomento y protección del sector pecuario.

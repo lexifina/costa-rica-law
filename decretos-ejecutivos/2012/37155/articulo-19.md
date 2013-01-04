@@ -1,0 +1,1 @@
+Artículo 19°.- Control de moscas, artrópodos y roedores. Todo propietario, administrador o encargado de una granja porcina deberá implementar un programa de control de moscas, artrópodos y roedores, el cual será verificado en campo por el SENASA.

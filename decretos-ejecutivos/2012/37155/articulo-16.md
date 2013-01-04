@@ -1,0 +1,1 @@
+Artículo 16°.- Disposición de restos. Los animales muertos o partes de estos, fetos, placentas u otras, deberán ser dispuestos en lugares especialmente diseñados para tal fin dentro de la granja porcina; gestionando los residuos en forma tal que no pongan en peligro la salud o el ambiente, o signifiquen una molestia por malos olores o impactos visuales entre otro.

@@ -1,0 +1,1 @@
+Artículo 9º.- Certificado Veterinario de Operación. Toda persona física o jurídica propietaria de una granja porcina deberá solicitar el CVO ante el SENASA, de conformidad con lo dispuesto en el artículo 56 de la Ley N° 8495 y el Decreto N° 34858-MAG del 20 de octubre del 2008 “Reglamento General para el Otorgamiento del Certificado Veterinario de Operación”.

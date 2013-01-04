@@ -1,0 +1,1 @@
+Artículo 27°.- Área de Cuarentena. El productor que importe pie de cría, deberá contar con un área para cuarentena domiciliar previamente aprobada por la Dirección de Operaciones del SENASA, que garantice las medidas de bioseguridad y seguimiento epidemiológico.

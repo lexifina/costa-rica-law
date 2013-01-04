@@ -1,0 +1,8 @@
+Artículo 7º.- De la instalación. Toda persona física o jurídica que desee instalar una granja porcina debe contar con lo siguiente:
+a) Certificado de Uso de Suelo.
+b) Plano catastrado de la propiedad, finca o lote donde se ubicarán las instalaciones.
+c) Planos constructivos de las instalaciones y de los sistemas de tratamiento de las aguas residuales de conformidad con lo establecido Reglamento para el Trámite de Revisión de los Planos para la Construcción, Decreto Ejecutivo N° 36550-MP-MIVAH-S-MEIC del 28 de abril de 2011. En caso de los productores de subsistencia y pequeños serán eximidos de los anteriores requisitos, pero deberán de demostrar que cuentan con un sistema de tratamiento conforme lo establece el Anexo N° 1, que garantice el manejo adecuado de las aguas y las excretas de manera que no contaminen ni causen molestias.
+d) Cumplir con lo establecido en el Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental de la Setena, Decreto Ejecutivo N° 31849-MINAE-S-MOPT-MAG-MEIC del 24 de mayo del 2004.
+e) Abastecimiento de agua, con suficiente cantidad, accesible a todas las áreas.
+f) Servicio sanitario para uso del personal, lavamanos, agua para consumo humano, baño con sus aditamentos y accesorios completos en buen estado de uso; provistos de jabón, desinfectantes y toallas. Cuando la granja cuente con casa de peones, los servicios sanitarios para el personal pueden ser los mismos.
+g) Pisos, paredes, zócalos, callejones, pasadizos, caño y aceras serán construidos de forma que permitan la movilización expedita en las instalaciones, la limpieza y la eliminación de los desechos que se generen en la granja.
