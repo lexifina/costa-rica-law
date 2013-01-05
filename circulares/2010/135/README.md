@@ -13,3 +13,4 @@ Reforma Integral al Reglamento Interno del Sistema de Carrera Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-17 | la propia norma |
+| 2 | 2013-01-05 | Circular 29 (2013-01-05) |
