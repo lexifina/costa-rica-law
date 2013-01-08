@@ -14,3 +14,4 @@ Reglamento del Mercado Municipal de Poás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-26 | la propia norma |
+| 2 | 2013-01-08 | Reglamento municipal 141 (2013-01-08) |
