@@ -1,1 +1,0 @@
-Artículo 7º—Los contribuyentes que continúen utilizando sus libros legalizados en la forma física tradicional u opten por utilizar los libros indicados en el artículo 1° de esta resolución de esta forma, deberán estarse a lo dispuesto en la Resolución Nº 09-2010 de las 11:15 horas del 13 de mayo de 2010 y sus reformas.

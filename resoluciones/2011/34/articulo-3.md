@@ -1,1 +1,0 @@
-Artículo 3º—Fuerza probatoria de los libros digitales legalizados. Una vez legalizados, los libros referidos en el artículo 1° de esta resolución, tendrán la fuerza probatoria en las mismas condiciones que los documentos físicos.
