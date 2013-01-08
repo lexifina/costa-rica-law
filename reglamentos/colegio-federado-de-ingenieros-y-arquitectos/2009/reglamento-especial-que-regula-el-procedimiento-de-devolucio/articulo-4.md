@@ -1,7 +1,5 @@
-Artículo 4º—El sello que debe llevar todo plano de construcción o de urbanización tendrá una vigencia de un año.
-Si las obras no se inician dentro del término señalado, deberá procederse de la siguiente manera:
-a) El interesado deberá solicitar la renovación o resello dentro de los dos meses siguientes al vencimiento del sello.
+Artículo 4°—El sello que debe llevar todo plano de construcción o de urbanización tendrá una vigencia de un año. Si las obras no se inician dentro del término señalado, deberá procederse de la siguiente manera:
+a) El interesado deberá solicitar la renovación del sello dentro de los dos meses siguientes al vencimiento del sello.
 b) Deberá cancelar la diferencia con respecto al pago de los timbres y derechos sufragados anteriormente.
-c) El Colegio Federado procederá a renovar o resellar el plano, el cual tendrá una vigencia de un año, contabilizado a partir de la fecha de vencimiento del sello plasmado originalmente. Una vez vencido dicho período, el interesado podrá solicitar, por una última vez, un nuevo resello del plano por otro período igual consecutivo.
-Si el interesado no cumpliere con los plazos señalados anteriormente, deberá cumplir con todos los requisitos de una nueva solicitud de sellado de planos.
-(Así reformado mediante mediante sesión N° 09 del 11 de enero del 2011)
+c) El Colegio Federado procederá a renovar el sello del plano, por una vigencia de un año contabilizado a partir de la fecha de vencimiento del sello plasmado originalmente. Una vez vencido dicho periodo, el interesado podrá solicitar, por una última vez, una nueva actualización del sello del plano por otro periodo igual consecutivo. Para los planos sellados antes del 13 de enero del 2013, fecha de entrada en vigencia del Código Sísmico 2010, publicado en el Diario Oficial La Gaceta N° 94 del 13 de julio del 2012, no aplica la solicitud de renovación del sello.
+(Así reformado mediante sesión N° 08-12/13-GO del 8 de enero del 2013)
