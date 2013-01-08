@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Informar a los poseedores y/o titulares de derechos reales del inmueble que esta declaratoria prohíbe la demolición o remodelación parcial o total, sin la autorización previa del Centro de Investigación y Conservación del Patrimonio Cultural, de esta Cartera Ministerial.
