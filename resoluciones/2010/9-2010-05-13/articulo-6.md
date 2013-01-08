@@ -1,6 +1,0 @@
-CAPÍTULO IV
-Razón de legalización
-(Modificada la denominación del capítulo anterior mediante resolución DGT-R-041-2011 del 12 de diciembre del 2011)
-Artículo 6º—Razón de legalización: Todos los libros indicados en el artículo 5º de la presente resolución, deberán llevar en el folio1, la razón de legalización preimpresa, en la cual deben detallarse todos los datos requeridos en la misma. El interesado deberá transcribir en el espacio correspondiente al Nº de asiento el número de autorización otorgado por la Administración, así como el tipo de trámite autorizado por la misma.
-Como una forma de garantizar el servicio de legalización a todos aquellos que así lo soliciten, la Administración recibirá un máximo de tres solicitudes por interesado o autorizado. En caso de que se requiera presentar más de tres solicitudes de legalización, el encargado del Área de Servicio de cada Administración Tributaria tomará las acciones administrativas correspondientes para dar cumplimiento a los principios fundamentales del servicio público, en cuanto a la eficiencia, continuidad, igualdad y adaptación al cambio legal imperante.
-(Así reformado mediante resolución N° DGT-R-034-2011 del 18 de octubre del 2011, "Establece la posibilidad de ser llevados en formato digital los Libros Sociales y Comerciales que la Dirección General de Tributación debe legalizar")

@@ -1,1 +1,0 @@
-Artículo 7º—(Derogado mediante resolución N° DGT-R-034-2011 del 18 de octubre del 2011, "Establece la posibilidad de ser llevados en formato digital los Libros Sociales y Comerciales que la Dirección General de Tributación debe legalizar")
