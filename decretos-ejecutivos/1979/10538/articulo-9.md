@@ -1,1 +1,0 @@
-Artículo 9°—Se faculta a la Junta de Gobierno del Colegio de Médicos y Cirujanos para incluir especialidades distintas a las que se establecen por este Reglamento así como a determinar sus requisitos específicos.

@@ -1,1 +1,0 @@
-Artículo 7°—Únicamente los médicos especialistas debidamente inscritos en el Registro de Especialidades Médicas, podrán anunciarse como tales, siempre y cuando se ajusten en un todo a las disposiciones del Código de Moral Médica.
