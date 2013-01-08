@@ -1,1 +1,0 @@
-Artículo 5º—Las administraciones tributarias no atenderán solicitudes de información sobre autorizaciones de legalizaciones de libros, pues para esos efectos se pone a disposición la consulta desde el sitio de CrearEmpresa, que se podrá acceder desde cualquier sitio con acceso a Internet o bien, desde los Quioscos tributarios ubicados en las administraciones tributarias del país.
