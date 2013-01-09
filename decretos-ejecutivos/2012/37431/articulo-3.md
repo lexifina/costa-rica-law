@@ -1,0 +1,1 @@
+Artículo 3.- La Escuela Nacional de Policía deberá incluir dentro de sus programas de instrucción la enseñanza del Himno de los Funcionarios Policiales del Ministerio de Seguridad Pública, y con su ejecución y canto deberá iniciar diariamente la actividad que se realice en ese Centro de Estudio y sus Sedes.

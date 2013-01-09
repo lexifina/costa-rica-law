@@ -1,0 +1,1 @@
+Artículo 2.- El Himno de los Funcionarios Policiales del Ministerio de Seguridad Pública solamente podrá ser entonado en los actos oficiales de solemnidad, de carácter cultural, cívico, otros actos públicos que se lleven a cabo en el territorio de la República de Costa Rica o en el extranjero, y en aquellos que así lo determine el Ministro de Seguridad Pública.
