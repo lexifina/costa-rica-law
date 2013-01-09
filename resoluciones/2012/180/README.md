@@ -14,3 +14,4 @@ Esquemas de tasación del servicio de transferencia de llamadas aplicable entre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-28 | la propia norma |
+| 2 | 2013-01-09 | Resolución 4 (2013-01-09) |

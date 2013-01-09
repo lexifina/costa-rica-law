@@ -152,3 +152,50 @@ El cliente que desvía la llamada es quién paga la comunicación entre (B) y (C
 El esquema anterior es aplicable para múltiples desvíos de llamadas, en este esquema el cliente que desvía la llamada es quien debe asumir el costo de la misma.
 Si la originación de la llamada es dentro del mismo operador pero a redes diferentes (fijo-móvil), se debe liquidar el costo de interconexión.
 Si el desvío es dentro de la misma red (on-net), no se debe de cobrar el costo de interconexión.
+(Nota de Sinalevi: Mediante RCS-004-2013 del 9 de enero de 2013, la Superintendencia de Telecomunicaciones resolvió lo siguiente: "... I. Declarar parcialmente con lugar el recurso presentado por el ICE contra la resolución RCS-180-2012, en cuanto a: (i) El esquema debe ser completado adicionando los dos escenarios faltantes (Fijo-Fijo-Internacional y Móvil-Fijo-Internacional). (ii) El único esquema para aplicar las tasas vigentes al servicio de transferencia de llamadas es el siguiente:
+• ESQUEMA DE TRANSFERENCIA DE LLAMADAS Y TASACIÓN ENTRE REDES DE DIFERENTES OPERADORES
+Origen comunicación (A) | Red en la que se hace el desvío(nueva originación) (B) | Destino por desvío (C) | Tasación aplicable al Usuario | Tasación aplicable entre Operadores (Costos de interconexión)
+| Origen (A) Desvío (B) | Origen | Desvío
+Servicio Fijo | Servicio Fijo | Servicio Fijo | Tasa fija | Tasa fija | CIF* | CIF
+Servicio Móvil | Servicio Móvil | Servicio Móvil | Tasa móvil | Tasa móvil | CIM** | CIM
+Servicio Fijo | Servicio Móvil | Servicio Móvil | Tasa móvil | Tasa móvil | CIM | CIM
+Servicio Móvil | Servicio Fijo | Servicio Fijo | Tasa móvil | Tasa fija | CIF | CIF
+Servicio Fijo | Servicio Móvil | Servicio Fijo | Tasa móvil | Tasa móvil | CIM | CIF
+Servicio Fijo | Servicio Móvil | Casillero de voz | Tasa móvil | No hay cargo | CIM | NA***
+Servicio Fijo | Servicio Fijo | Servicio Móvil | Tasa fija | Tasa móvil | CIF | CIM
+Servicio Móvil | Servicio Fijo | Servicio Móvil | Tasa móvil | Tasa móvil | CIF | CIM
+Servicio Fijo | Servicio Móvil | Servicio Internacional | Tasa móvil | Tasa Internacional | CIM | CIInt.****
+Servicio Móvil | Servicio Móvil | Servicio Internacional | Tasa móvil | Tasa internacional | CIM | CIInt.
+Servicio Fijo | Servicio Fijo | Servicio Internacional | Tasa fija | Tasa internacional | CIF | CIInt.
+Servicio Móvil | Servicio Fijo | Servicio Internacional | Tasa móvil | Tasa internacional | CIF | CInt.
+*) Costo de interconexión de terminación en una red fija
+**) Costo de interconexión de terminación en una red móvil
+***) No aplica
+****) Liquidación de la llamada internacional con el operador destino El cliente que origina la llamada es quién paga el costo de la comunicación entre (A) y (B) conforme a la tasación aplicable cuando se origina una llamada.
+El cliente que desvía la llamada es quién paga la comunicación entre (B) y (C) conforme a la tasación aplicable en el cuadro anterior.
+El esquema anterior es aplicable para múltiples desvíos de llamadas, en este esquema el cliente que desvía la llamada es quien debe asumir el costo de la misma.
+Si la originación de la llamada es dentro del mismo operador pero a redes diferentes (fijo-móvil), se debe liquidar el costo de interconexión.
+Si el desvío es dentro de la misma red (on-net), no se debe de cobrar el costo de interconexión.
+Para desvíos al casillero de voz, el usuario que es dueño del casillero, no pagará ningún cargo por el desvío.
+• ESQUEMA DE TRANSFERENCIA DE LLAMADAS Y TASACIÓN ENTRE REDES DEL MISMO OPERADOR
+Origen comunicación (B) | Red en la que se hace el desvío(nueva originación) (B) | Destino por desvío (C) | Tasación aplicable al Usuario | Tasación aplicable entre Operadores (Costos de interconexión)
+Origen (A) | Desvío (B) | Origen | Desvío
+Servicio Fijo | Servicio Fijo | Servicio Fijo | Tasa fija | No hay cargo | NA* | NA
+Servicio Móvil | Servicio Móvil | Servicio Móvil | Tasa móvil | No hay cargo | NA | NA
+Servicio Fijo | Servicio Móvil | Servicio Móvil | Tasa móvil | No hay cargo | CIM** | NA
+Servicio Móvil | Servicio Fijo | Servicio Fijo | Tasa móvil | No hay cargo | CIF*** | NA
+Servicio Fijo | Servicio Móvil | Servicio Fijo | Tasa móvil | Tasa móvil | CIM | CIF
+Servicio Fijo | Servicio Móvil | Casillero de voz | Tasa móvil | No hay cargo | CIM | NA
+Servicio Fijo | Servicio Fijo | Servicio Móvil | Tasa fija | Tasa móvil | NA | CIM
+Servicio Móvil | Servicio Fijo | Servicio Móvil | Tasa móvil | Tasa móvil | CIF | CIM
+Servicio Fijo | Servicio Móvil | Servicio Internacional | Tasa móvil | Tasa Internacional | CIM | CIInt.****
+Servicio Móvil | Servicio Móvil | Servicio Internacional | Tasa móvil | Tasa internacional | NA | CIInt.
+Servicio Fijo | Servicio Fijo | Servicio Internacional | Tasa fija | Tasa internacional | NA | CIInt.
+Servicio Móvil | Servicio Fijo | Servicio Internacional | Tasa móvil | Tasa internacional | CIF | CInt.
+*) No aplica
+**) Costo de interconexión de terminación en una red fija
+***) Costo de interconexión de terminación en una red móvil
+****) Liquidación de la llamada internacional con el operador destino El cliente que origina la llamada es quién paga el costo de la comunicación entre (A) y (B) conforme a la tasación aplicable cuando se origina una llamada.
+Si la originación de la llamada es dentro del mismo operador pero a redes diferentes (fijo-móvil), se debe liquidar el costo de interconexión.
+Si el desvío es dentro de la misma red (on-net), no se debe de cobrar el costo de interconexión.
+Para desvíos al casillero de voz, el usuario que es dueño del casillero no pagará ningún cargo por el desvío")
