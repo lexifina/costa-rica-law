@@ -1,0 +1,1 @@
+Artículo 9º—Cualquier persona que tale, corte o elimine árboles de estas áreas, o en caso de que realice la destrucción, daño o extracción de la infraestructura, mobiliario urbano existente o que se instale en los parques y zonas verdes, se hará acreedor de una sanción la cual será penalizada siguiendo el trámite judicial.

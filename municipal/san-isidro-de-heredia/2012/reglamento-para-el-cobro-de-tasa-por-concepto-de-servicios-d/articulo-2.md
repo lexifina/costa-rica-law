@@ -1,0 +1,1 @@
+Artículo 2º—El servicio de mantenimiento de parques, zonas de verdes y obras de ornato considera el costo de lo invertido por la Municipalidad. Esta tasa deberá pagarla el sujeto pasivo a que se refiere este Reglamento.
