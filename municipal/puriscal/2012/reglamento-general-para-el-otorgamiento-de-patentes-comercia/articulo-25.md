@@ -1,0 +1,1 @@
+Artículo 25 Declaración de Renta. Los patentados que sean declarantes del impuesto sobre la renta deberán presentar copia de la declaración que brinden a la Dirección General de Tributación, con el fin de realizar la tasación correspondiente.

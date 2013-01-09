@@ -1,0 +1,4 @@
+CAPITULO VI
+DECLARACIÓN JURADA DEL IMPUESTO DE PATENTE
+Artículo 24 Fecha de presentación. Antes del diecinueve de diciembre de cada año, las personas a que se refiere el artículo 1 de esta ley presentarán a la Municipalidad una declaración jurada de sus ingresos brutos, intereses, comisiones o renta neta, según sea el caso. Con base en esta información, la Municipalidad calculará el impuesto por pagar, en firme y sin previo procedimiento. Para tales efectos, la Municipalidad tendrá los formularios respectivos a disposición de los contribuyentes un mes antes de la fecha señalada.
+En casos especiales, cuando las empresas tengan autorización de la Dirección General de Tributación para presentar la declaración en fecha posterior a la que establece la Ley y éstas empresas lo informen previamente a la Municipalidad, podrán presentar la declaración correspondiente dentro de los cinco días hábiles siguientes a la fecha autorizada por la Dirección General de Tributación.

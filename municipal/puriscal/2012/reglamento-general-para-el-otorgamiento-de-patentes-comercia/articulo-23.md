@@ -1,0 +1,1 @@
+Artículo 23.-Imposibilidad de ampliación de la patente: En caso de que los patentados ya existentes deseen abrir nuevas sucursales o expandir sus actividades a otros locales distintos del que ya opera, deberán gestionar una patente nueva, ya que no se aceptarán ampliaciones o modificaciones de las patentes ya existentes.

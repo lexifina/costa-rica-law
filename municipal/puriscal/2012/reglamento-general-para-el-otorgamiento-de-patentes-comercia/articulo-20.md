@@ -1,0 +1,1 @@
+Artículo 20.-Revocatoria del permiso de funcionamiento. La revocatoria del permiso de funcionamiento por el ente competente involucra la cancelación automática de la licencia y la pérdida de la calidad condición de patentado. En estos casos, la Municipalidad liquidará de inmediato los saldos pendientes y los intereses que de éstos saldos se calculen.

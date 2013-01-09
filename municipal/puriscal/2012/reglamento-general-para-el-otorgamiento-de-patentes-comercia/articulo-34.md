@@ -1,0 +1,1 @@
+Artículo 34 Notificación automática de la calificación de oficio o la recalificación de oficio: La calificación de oficio o la recalificación de oficio quedará notificada en forma automática en el momento en que el contribuyente se presente a cancelar el impuesto por patente municipal del 1° trimestre o bien utilizando algunos de los medios establecidos por él.

@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+OTROS PROCEDIMIENTOS ESPECIALES
+Artículo 38.- Traslado de lugar de la patente.- Cualquier patente podrá ser trasladada del lugar en que fue otorgada o que existe actualmente siempre y cuando este cambio no implique la violación o incumplimiento de lo establecido en la legislación vigente y que no cambie de distrito. Para el traslado es necesario que se formule una solicitud por escrito al Subproceso de Administración Tributaria de la Municipalidad, Unidad de Licencias Municipales. En todos los casos será necesario que el solicitante compruebe el cumplimiento de todos los requisitos que establece este Reglamento para el funcionamiento de la patente en el nuevo lugar solicitado.
+En caso de las licencias de salas de juegos, los cuales se rige por una Ley y Reglamento especial, el traslado de la patente deberá hacerse en las condiciones de distancias de los lugares señalados en el Reglamento a la Ley de Juegos.

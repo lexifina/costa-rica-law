@@ -1,0 +1,1 @@
+Artículo 67. La base imponible para la determinación de este impuesto, es la sumatoria del cinco por ciento (5%) por cada uno de los tiquetes, boletas o entradas individuales, del respectivo espectáculo público que se efectúe en el Cantón de Puriscal, conforme lo establece la Ley 6844.

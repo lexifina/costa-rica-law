@@ -1,0 +1,1 @@
+Articulo 27 Presentación de constancia de la Caja Costarricense de Seguro Social Todos los patentados deberán de adjuntar a su declaracion jurada de patente, constancia de estar al día con sus obligaciones con la Caja Costarricense de Seguro Social.

@@ -1,0 +1,3 @@
+Artículo 53 Acta de decomiso por incumplimiento con el control del tabaco y sus efectos nocivos en la salud
+Cuando se proceda al decomiso de los productos de tabaco, se levantará un acta en presencia de dos testigos. Ese documento deberá contener la fecha, el lugar, el nombre y los apellidos de las personas que actúan con indicación de las diligencias realizadas y la firma de todos los intervinientes o la mención de que alguno no puede o quiere firmar.
+Se entregará copia del acta a la persona a quien se le decomisen los productos o a quien se encuentre en el lugar del decomiso. Los productos decomisados serán depositados en el lugar designado según lo dispuesto en el artículo 33 de la Ley Nº 9028 Ley General de Control del Tabaco y sus efectos Nocivos en la Salud.

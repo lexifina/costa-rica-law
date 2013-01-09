@@ -1,0 +1,1 @@
+Artículo 42 Renuncia Tácita: Se considerará una renuncia tácita de la licencia el hecho de que el administrado no pague dos trimestres consecutivos el monto de la patente otorgada y no ejerza la actividad lucrativa.

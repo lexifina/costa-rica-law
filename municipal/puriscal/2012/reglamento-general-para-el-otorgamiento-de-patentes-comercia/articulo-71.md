@@ -1,0 +1,1 @@
+Artículo 71. El pago del impuesto por parte del contribuyente, será establecida mediante el conteo de los boletos o en su defecto sobre la tasación de oficio hecha por el Inspector Municipal, in sito.

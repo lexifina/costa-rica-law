@@ -1,0 +1,1 @@
+Artículo 15 Del término para resolver.-Las solicitudes de licencia municipal deberán ser presentadas en la oficina del Subproceso de Administración Tributaria, dicha oficina por medio de la unidad de Licencias municipales, otorgará o negará la solicitud de Licencia municipal, en un plazo no mayor de 30 días naturales, contados a partir de su presentación en forma.
