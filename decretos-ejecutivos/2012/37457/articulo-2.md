@@ -1,0 +1,5 @@
+Artículo 2º—Funciones. Además de las funciones señaladas en otras leyes, corresponde al MEIC las siguientes funciones:
+a. Participar en la formulación de la política económica del Gobierno y en la planificación nacional, en los campos de su competencia.
+b. Ser el ente rector de las políticas públicas de Estado en materia de fomento a la iniciativa privada, desarrollo empresarial y fomento de la cultura empresarial para los sectores de industria, comercio y servicios, así como para el sector de las micro, pequeñas y medianas empresas.
+c. Tener a su cargo, con carácter de máxima autoridad, la formulación y supervisión de la ejecución de las políticas empresariales, especialmente para las PYMES y emprendedores; para ello, podrá establecer la organización interna más apropiada acorde con este cometido y los mecanismos de coordinación idóneos con las instituciones tanto del sector público como del sector privado, para mejorar la efectividad de los programas de apoyo ejecutados por instituciones del sector público y del sector privado.
+d. Ser ente rector en materia de mejora regulatoria, consumidor, competencia y defensa comercial.
