@@ -1,1 +1,0 @@
-Artículo 9º—Los Ministerios, entidades del Estado, Municipalidades y organismos no gubernamentales nacionales e internacionales, podrán proporcionar a CONIFOR, en la medida de sus posibilidades, el apoyo que ésta requiera en cuanto a la prevención y control de incendios forestales.

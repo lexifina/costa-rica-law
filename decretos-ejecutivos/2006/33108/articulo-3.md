@@ -1,1 +1,0 @@
-Artículo 3º—Le corresponderá a la CONIFOR apoyar y contribuir con el desarrollo del rol de cada una de las instituciones y organizaciones que integran la Comisión, para el desarrollo de programas institucionales sobre el manejo del fuego, dentro de las competencias de protección de los recursos naturales establecidas para cada una de ellas.
