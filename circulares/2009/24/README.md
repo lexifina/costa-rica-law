@@ -13,3 +13,4 @@ Ampliación de la Circular 134-08, publicada en el Boletín Judicial Nº 157-08 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-13 | la propia norma |
+| 2 | 2013-01-09 | Circular 1 (2013-01-09) |
