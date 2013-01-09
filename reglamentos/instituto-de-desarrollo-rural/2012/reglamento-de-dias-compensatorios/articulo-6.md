@@ -1,0 +1,1 @@
+Artículo VI.—Una vez recibida la solicitud, el jefe inmediato deberá estudiarla y dispondrá, conforme al artículo VIII, de un lapso de quince días hábiles para tramitar la compensación. Para esto deberá tomar en cuenta el volumen de trabajo en la oficina, así como otras solicitudes que se le hayan formulado previamente.

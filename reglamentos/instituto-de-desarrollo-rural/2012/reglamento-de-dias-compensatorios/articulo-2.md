@@ -1,0 +1,1 @@
+Artículo II.—Se entiende, para este efecto, como días libres los sábados, domingos y feriados, que por circunstancias propias del cargo, deben laborarse y siempre que esta sea previamente autorizada por sus superiores.

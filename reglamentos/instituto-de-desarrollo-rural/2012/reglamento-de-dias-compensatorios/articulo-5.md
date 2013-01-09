@@ -1,0 +1,1 @@
+Artículo V.—Para disfrutar de los días compensatorios el empleado deberá pedirlos a través de su jefe inmediato, por escrito y preferiblemente en un lapso de quince días hábiles, después de realizada la gira.

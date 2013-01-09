@@ -1,0 +1,1 @@
+Artículo IV.—Se obtendrá el derecho, a cada compensatorio, cuando el empleado labore o permanezca al servicio de la Institución, por un lapso, igual o mayor, de seis horas continuas, durante la jornada diurna de trabajo y conforme al artículo II.

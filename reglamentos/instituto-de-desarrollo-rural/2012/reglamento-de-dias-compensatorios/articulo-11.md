@@ -1,0 +1,1 @@
+Artículo XI.—La Oficina de Personal y el Departamento de Auditoría en todo caso, verificarán con base en, las tarjetas de asistencia, reportes de trabajo y de otros medios, la efectividad de los compensatorios que se concedan.
