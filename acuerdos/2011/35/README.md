@@ -14,3 +14,4 @@ Aprueba Regulación del territorio vieja Cinchona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-14 | la propia norma |
+| 2 | 2013-01-09 | Acuerdo 5 (2013-01-09) |

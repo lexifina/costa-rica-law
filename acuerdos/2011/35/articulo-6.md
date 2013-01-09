@@ -1,3 +1,4 @@
 Artículo 6º—Otros usos de la tierra en el área restringida son permitidos, siempre y cuando no se contrapongan a lo dispuesto en el artículo 2º, cumplan con la capacidad de uso de la tierra, la normativa forestal y ambiental vigente, y las orientaciones de la Ley Nº 8488 en materia de gestión del riesgo, y otras leyes conexas.
+(Mediante acuerdo N° 005-01-2013 aprobado en sesión extraordinaria N° 01-01-2013 del 9 de enero del 2013 se establece ampliar el artículo anterior por no indicar expresamente en que consiste la ampliación se transcribe a continuación: "...Artículo 6: Otros usos de la tierra en el área restringida son permitidos, siempre y cuando no se contrapongan a lo dispuesto en el artículo 2º, cumplan con la capacidad de uso de la tierra, la normativa forestal y ambiental vigente, y las orientaciones de la Ley Núm. 8488 en materia de gestión del riesgo, y otras leyes conexas...")
 Acuerdo unánime y firme.
 San José, 29 de junio del 2011.—
