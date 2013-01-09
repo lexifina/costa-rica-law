@@ -14,3 +14,4 @@ Modificación de la circular 96-08 de “Indicaciones generales sobre los inform
 | --- | --- | --- |
 | 1 | 2008-08-04 | la propia norma |
 | 2 | 2009-04-13 | Circular 24 (2009-04-13) |
+| 3 | 2013-01-09 | Circular 1 (2013-01-09) |

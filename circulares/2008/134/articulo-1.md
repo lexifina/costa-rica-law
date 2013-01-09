@@ -7,20 +7,26 @@ El Consejo Superior en sesión Nº 52-08, celebrada el 17 de julio en curso, art
 Posteriormente, en sesión Nº 09-08 de este Consejo, celebrada el 5 de febrero de 2008, artículo LXIII, se aclaró que para aquellas oficinas en las que no existe la figura del Juez Coordinador, el Suplente debe rendir el informe directamente al Departamento de Planificación.
 Los acuerdos anteriores, fueron comunicados mediante las Circulares 66-2005 y 33-2008, publicadas en los Boletines Judiciales números 131 de 9 de julio de 2007 y 48 de 7 de marzo, respectivamente.
 A fin de darle cumplimiento a lo dispuesto, se les informa que para los casos que corresponda, deberán rendir el citado informe por mes al Departamento de Planificación, con base en el formato que se adjunta y que será instalado en los equipos de cómputo de los despachos e incorporado en los formatos del Sistema de Gestión.
-INFORME DE LABORES DE JUECES SUPLENTES
-DESPACHO JUDICIAL:____CÓDIGO DE OFICINA: _______
-Nombre de Juez Sustituido:___ CÓDIGO DEL JUEZ: _______
-Nombre de Juez Suplente:________________________________
-Período de la Suplencia : _________________________________
-Nº único de los casos asignados | Materia y Tipo de asunto | Estado de los casos asignados al finalizar la suplencia (1) | Trámite realizado (2) | Motivo de término de los casos salidos | Observaciones
+INFORME DE FIN DE GESTIÓN
+(para períodos menores a tres meses)
+1.- Nombre de la persona sustituida:
+2.- Nombre de la persona sustituta:
+3.- Código de Oficina:
+4.- Nombre de la oficina o despacho judicial:
+5.- Fecha de inicio y término del período al que corresponde el informe de gestión:
+6.- Motivo de cese del nombramiento:
+7.- Nº único de los casos asignados según ámbito (1) | 8.- Materia y Tipo de asunto | 9.- Estado de los casos asignados al finalizar la suplencia (2) | 10.- Trámite realizado (3) | 11.- Motivo de término de los casos salidos | 12.- Observaciones
 | | | | |
 | | | | |
-NOTA: En caso de requerir ampliar la información, puede indicar lo que considere necesario, en hojas adicionales a este reporte de labores efectuadas durante la suplencia.
-________________ Sello de la Oficina ______________________
-Firma Juez Suplente Firma Juez Coordinador (1)
-(1) En esta casilla se debe indicar la etapa procesal en que se encuentra el expediente, de acuerdo con la materia que se tramita.
-(2) Debe consignarse el trámite realizado ya sea: providencias, autos, sentencias o audiencias realizadas, entre otros.
-(1) En caso de que en el despacho haya solo un puesto de Juez, que es precisamente al que se sustituye, en el espacio “Firma del Juez Coordinador” firmará en su lugar el Asistente Judicial del Juzgado.”
-Finalmente, se les comunica, que según lo dispuesto por el Consejo Superior en sesión Nº 47-08, artículo LIV, en el caso concreto de los jueces supernumerarios, que se encuentren asignados a cada Consejo de Administración, presentarán un único informe tanto a la Presidencia de la Corte , como al Consejo de Administración del lugar y al Departamento de Planificación.”
-(Así reformada mediante sesión Nº 52-08, celebrada el 17 de julio del 2008, aprobada mediante circular N° 24 del 13 de abril del 2009, publicada en el Boletín Judicial N° 79 del 24 de abril del 2009)
+| | | | |
+NOTAS: (1) En los asuntos administrativos, se refiere al N° consecutivo con que identifican los temas asignados en la oficina. (2) En esta casilla se debe indicar la etapa procesal en que se encuentra el expediente, de acuerdo con la materia que se tramita. En los casos administrativos consiste en identificar en qué fase se encuentra el asunto (inicio, intermedio o final). (3) Debe consignarse el trámite realizado según el ámbito al que corresponda; por ejemplo en el caso de las oficinas jurisdiccionales indicar: providencias, autos, sentencias o audiencias realizadas, entre otros; en lo concerniente al ámbito administrativo, debe consignar la labor realizada en forma resumida.
+En caso de requerir ampliar la información, puede indicar lo que considere necesario, en hojas adicionales a este reporte de labores efectuadas durante la suplencia.
+Si la persona sustituida corresponde a la Jefatura o al titular subordinado, quien recibe el informe será la servidora o servidor de mayor categoría de puesto en el despacho.
+Sello de la Oficina
+_______________________________________________
+Firma de Servidora o Servidor Suplente
+__________________________________________________
+Firma de Servidora o Servidor (de mayor categoría de puesto
+en el despacho) que recibe el informe
+(Así reformadomediante sesión N° 102-12 del 22 de noviembre del 2012, aprobada mediante circular N° 001-2013 del 9 de enero del 2013, publicada en el Boletín Judicial N° 20 del 29 de enero del 2013)
 San José, 4 de agosto de 2008.
