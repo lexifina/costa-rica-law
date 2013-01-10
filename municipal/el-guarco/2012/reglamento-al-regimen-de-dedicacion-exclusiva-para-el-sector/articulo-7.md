@@ -1,0 +1,1 @@
+Artículo 7º—De ser aprobada la solicitud, se definirá el plazo, y el funcionario debe firmar el contrato con la Institución. El original se conservará en la Unidad de recursos Humanos, acompañado de una copia certificada del título profesional, con el fin de incorporarlo al expediente laboral, una copia para el funcionario y otra para la Alcaldía.

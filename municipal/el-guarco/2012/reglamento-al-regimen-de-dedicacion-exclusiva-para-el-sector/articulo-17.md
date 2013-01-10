@@ -1,0 +1,1 @@
+Artículo 17.—El plus salarial que se otorga con el Contrato de Dedicación Exclusiva debe ser incluido en el presupuesto municipal siguiente más cercano y se empezará a girar desde el momento en que la erogación sea aprobada por el Concejo Municipal y la Contraloría General de la República.

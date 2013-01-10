@@ -1,0 +1,1 @@
+Artículo 9º—Una vez aprobado el contrato respectivo por el Alcalde, la Unidad de Recursos Humanos, procederá a confeccionar el documento acción de personal, firmado por el Alcalde, con copia para la Auditoría Interna, a fin de que se haga efectivo el pago correspondiente.

@@ -1,0 +1,16 @@
+Artículo 18.—Se establece como modelo de uso obligado, del Contrato para la Dedicación Exclusiva, el siguiente:
+“CONTRATO DE DEDICACIÓN EXCLUSIVA PARA LA
+MUNICIPALIDAD DE EL GUARCO”
+Nosotros, _________________________, en mi condición de Alcalde (sa) Municipal de la Municipalidad de El Guarco, para el período legal que inició, según resolución del Tribunal Supremo de Elecciones, número ___________, comunicada mediante circular número, publicada en el Diario Oficial La Gaceta número ___________, llamado en adelante la Municipalidad de El Guarco, y el (la) señor(a), _________________________, nombrado (a) a tiempo completo, en el puesto de ___________, desde el día ___________, de ___________, de dos mil ___________, llamado (a) en adelante el (la) trabajador (a), hemos convenido en celebrar el presente Contrato de Dedicación Exclusiva, el cual se regirá por las siguientes cláusulas:
+Primera: El trabajador se compromete en forma voluntaria a prestar sus servicios profesionales exclusivamente para la Municipalidad de El Guarco, con las excepciones indicadas en el artículo 5 del Reglamento de Dedicación Exclusiva.
+Segunda: En virtud de lo anterior, la Municipalidad de El Guarco le reconocerá un _____% sobre su salario base mensual, en virtud de su condición de ___________, universitario en la carrera de ___________.
+Tercera: La Municipalidad de El Guarco velará por el cumplimiento de las obligaciones que asume el trabajador en el presente contrato, sin perjuicio de las facultades de inspección que puede realizar la Unidad de Recursos Humanos, la Auditoría Interna Municipal o u otros Entes de Control y Fiscalización.
+Cuarta: El trabajador se compromete bajo juramento, advertido de las penas por falso testimonio que contempla el Código Penal, que cumplirá estrictamente con las disposiciones que contempla el Reglamento de Dedicación Exclusiva de la Municipalidad de El Guarco. El incumplimiento por parte del trabajador de la cláusula primera del presente contrato y por parte de la Municipalidad de la cláusula segunda del mismo, dará lugar al rompimiento del contrato y el debido resarcimiento a favor del trabajador o de la Administración según sea el caso, de conformidad con lo establecido en el Título V del Código Municipal y en los artículos 308 y siguientes de la Ley General de la Administración Pública, y la demás legislación aplicable. Al trabajador que después del cumplimiento del debido proceso, se le demuestre que no cumplió con su obligación, no se le volverá a incluir dentro del régimen voluntario.
+Quinta: El presente contrato se preparará en tres originales así, Alcaldía Municipal, Trabajador, Departamento de Recursos Humanos, y pasa a partir del momento en que sea suscrito por las partes, a formar parte integral del contrato de trabajo.
+Sexta: Forma parte de este contrato el Reglamento de Dedicación Exclusiva de la Municipalidad de El Guarco y solo será rescindido por lo que dispongan las leyes y demás normativa legal.
+En fe de lo anterior, firmamos en El Guarco, en tres tantos de igual valor, el ________, de ________, de dos mil ___________.
+____________________
+Recursos Humanos
+______________________ ______________________
+Alcalde Trabajador
+CC: Recursos Humanos/ Expediente

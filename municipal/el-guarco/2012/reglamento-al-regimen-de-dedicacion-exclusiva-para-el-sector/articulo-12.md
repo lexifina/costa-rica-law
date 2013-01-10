@@ -1,0 +1,1 @@
+Artículo 12.—En caso de que el profesional disfrute de un permiso sin goce de salario por motivos de estudio, los efectos del contrato se suspenderán en forma temporal, no obstante, a su regreso el servidor seguirá acogido a la Dedicación Exclusiva.

@@ -1,0 +1,1 @@
+Artículo 8º—Una vez suscrito el contrato entre el funcionario y la Municipalidad, la Unidad de Recursos Humanos lo tramitará para su refrendo legal y ante el Alcalde para su aprobación, el cual contará con un plazo máximo de diez días naturales, adjuntando para ello una certificación en donde conste que en el caso concurren todas las condiciones y requisitos.
