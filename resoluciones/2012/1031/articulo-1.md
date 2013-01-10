@@ -1,5 +1,6 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 (Nota de Sinalevi: Sobre este tema la Autoridad Reguladora de los Servicios Públicos había emitido anteriormente la Metodología para el ajuste extraordinario de las tarifas del servicio de electricidad, producto de variaciones en el costo de los combustibles (CVC) utilizados en la generación térmica para consumo nacional, mediante resolución N° 017 del 19 de marzo de 2012)
+(Nota de Sinalevi: Mediante el considerando VI de la resolución N° 001-RIE-2012 del 10 de enero del 2013 se establece lo siguiente: "... VI. Aclarar que la fijación tarifaria realizada mediante la resolución 1031-RCR-2012, toma como base la estructura de costos propios (sin combustibles) del ICE, definida en los análisis tarifarios para los sistemas de generación y distribución, resoluciones 1027-RCR-2012 y 1029-RCR-2012...")
 RESOLUCIÓN 1031-RCR-2012
 San José, a las 08:35 horas del 21 de diciembre de dos mil doce
 CONOCE EL COMITÉ DE REGULACION

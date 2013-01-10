@@ -14,3 +14,4 @@ Metodología ajuste tarifas servicio electricidad, producto de variaciones en co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-24 | la propia norma |
+| 2 | 2013-01-10 | Resolución 1 (2013-01-10) |

@@ -1,5 +1,6 @@
 II. Fijar las tarifas para el servicio de generación de electricidad del ICE, de la siguiente manera:
-Rige sobre los consumos que se originen a partir del 1 de enero del 2012 y hasta el 3 de marzo de 2013
+Rige sobre los consumos que se originen a partir del 1 de enero del 2013 y hasta el 3 de marzo de 2013
+(Así reformado el párrafo anterior mediante resolución N° 001-RIE-2013 del 10 de enero del 2013)
 Tarifa T-CB Ventas a ICE distribución y CNFL, S.A.
 A. Aplicación: Aplicable a la Compañía Nacional de Fuerza y Luz S.A. y al servicio de distribución del Instituto Costarricense de Electricidad.
 B. Características del servicio: Medición: En los puntos de entrega de energía a las empresas distribuidoras.
