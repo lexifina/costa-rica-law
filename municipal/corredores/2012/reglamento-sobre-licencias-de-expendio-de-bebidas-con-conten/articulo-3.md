@@ -1,0 +1,1 @@
+Artículo 3º—Firmas y certificaciones digitales. documentos electrónicos: Cuando los medios tecnológicos a disposición de la municipalidad lo ,permitan, La Ley de Certificados, firmas digitales y documentos electrónicos, N° 8454 del 30-08-2005, se aplicara para tramitación de licencias, pago de tributos y otros procedimientos relacionados con la aplicación de la Ley N° 9047.

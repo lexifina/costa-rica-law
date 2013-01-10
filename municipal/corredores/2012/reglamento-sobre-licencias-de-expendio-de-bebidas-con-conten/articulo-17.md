@@ -1,0 +1,1 @@
+Artículo 17.—Es obligación del solicitante informar a la municipalidad de cualquier modificación de las condiciones acreditadas en su actividad, bajo pena de las sanciones con que castiga la Ley.

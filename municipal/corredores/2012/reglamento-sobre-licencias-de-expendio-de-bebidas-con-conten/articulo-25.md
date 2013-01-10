@@ -1,0 +1,1 @@
+Artículo 25.—Las licencias referidas en el artículo 3 de la Ley podrán suspenderse por falta de pago. Independientemente de la aplicación del artículo 81 Bis del Código Municipal en las demás patentes del local.

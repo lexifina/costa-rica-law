@@ -1,0 +1,3 @@
+Transitorio II.—A la entrada en vigencia de esta Ley, las Licencias para venta de bebidas con contenido alcohólico adquiridas mediante Ley 10 del 7 octubre 1936, que se encuentren en estado de inactividad, sea que no estén ligadas a ninguna actividad comercial en particular, deberán cancelar a la municipalidad la patente trimestral, tasada en el monto mínimo equivalente en colones, a medio salario base, que corresponde a las clases B y C conforme a los conceptos definidos en los artículos 2, 4 y 10 de la Ley.
+Rige a partir de su publicación en el Diario Oficial.
+Ciudad Neily, 12 de diciembre del 2012.

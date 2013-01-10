@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Disposiciones transitorias
+Transitorio I.—Los titulares de patentes de licores adquiridas mediante la Ley N-10, Ley sobre venta de licores del 7 octubre 1936, deberán solicitar a la Municipalidad de Corredores, una clasificación de su patente de licores dentro del plazo establecido en el Transitorio I de la Ley, momento a partir del cual deberán efectuar el pago de impuesto correspondiente. En caso de no apersonarse en tiempo, La Municipalidad podrá categorizarlas de Oficio.
+Conforme a lo estipulado en el mencionado transitorio I de la Ley, los titulares de dichas patentes de licores, mantendrán los derechos derivados de las mismas, incluyendo el derecho de traspasarla, trasladarla, arrendarla, autorizar su uso a terceros y demás que regían a dichas patentes de previo a la vigencia de la ley,

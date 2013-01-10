@@ -1,0 +1,1 @@
+Artículo 8º—Los establecimientos donde se otorgue algún tipo de licencia para bebidas con contenido alcohólico, deberán estar separado de cualquier tipo de vivienda u cualquier otro tipo de negocio comercial.

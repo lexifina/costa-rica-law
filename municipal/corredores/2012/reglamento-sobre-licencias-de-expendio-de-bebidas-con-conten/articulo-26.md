@@ -1,0 +1,1 @@
+Artículo 26.—Los establecimientos autorizados deben mostrar en un lugar visible el tipo de licencia que poseen, el recibo de pago y el horario autorizado para la comercialización de bebidas con contenido alcohólico.

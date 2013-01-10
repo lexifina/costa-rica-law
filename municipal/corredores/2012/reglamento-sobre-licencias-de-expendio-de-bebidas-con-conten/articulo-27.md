@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Licencias Temporales
+Artículo 27.—Otorgamiento. Las licencias temporales de concederán únicamente con la aprobación mediante acuerdo del Concejo Municipal de Corredores en pleno. Donde se indicara la cantidad total de puestos autorizados, para habilitar el expendio de bebidas con contenido alcohólico en ocasiones específicas ocasionales, tales como fiestas cívicas, populares, ferias, tómbolas, turnos y afines. Estas licencias tendrán una vigencia máxima de 15 días con un horario de 11:00 am a 12:00 medianoche. En todo caso queda a criterio del Concejo Municipal ampliar el horario para el funcionamiento de las patentes temporales hasta ajustarlo a lo que establece la ley.
+Estas deben ser solicitadas específicamente por la persona o entidad que va a ejecutar la explotación en forma directa, indistintamente si se trata del ente organizador de la actividad o del adjudicatario del derecho mediante remate de puestos.
