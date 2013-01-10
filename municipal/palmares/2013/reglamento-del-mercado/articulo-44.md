@@ -1,0 +1,1 @@
+Artículo 44.—Los arrendatarios deberán limpiar sus tramos o locales, por lo menos una vez al día, colocando la basura en recipientes con bolsa, debidamente tapados. El servicio especial de cañería deberá ser pagado por el arrendatario que lo solicite y el importe se cargará en el recibo correspondiente.

@@ -1,0 +1,2 @@
+Transitorios
+I.—Las personas jurídicas actualmente concesionarias de tramos o puestos en el Mercado Municipal, tendrán, hasta seis meses previos al vencimiento del actual contrato de concesión, para traspasar el tramo o local a una persona física cumpliendo con los requisitos que establece este Reglamento. Si vencido el contrato el traspaso no se ha realizado, no habrá prórroga y el tramo o local entrará en posesión municipal para realizar un nuevo proceso arrendatario.

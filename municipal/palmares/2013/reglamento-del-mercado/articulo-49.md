@@ -1,0 +1,1 @@
+Artículo 49.— La infracción al presente Reglamento, por parte de los arrendatarios implicará la resolución del contrato de concesión del local. Siendo competencia del Concejo instaurar el debido proceso, según el proceso ordinario establecido en el Libro Segundo de la Ley General de la Administración Pública.

@@ -1,0 +1,4 @@
+II.—De conformidad con el artículo 8 de la Ley 7027, Reforma Ley sobre Arrendamiento de Locales Municipales, la Municipalidad de Palmares no prorrogará a su vencimiento en el año 2014, los contratos de concesión de los locales o tramos del Mercado Municipal destinados a bar o cantina. Tres meses previos, al vencimiento de los contratos respectivos, la Municipalidad notificará a los arrendatarios la orden de desalojo, el cual se producirá vencido ese término.
+Este Reglamento rige a partir del día de su publicación y deroga cualquier otro existente sobre el Mercado, en la Municipalidad de Palmares.
+De conformidad con lo establecido en el artículo 43 del Código Municipal, este proyecto de Reglamento se somete a consulta pública por un lapso de diez días hábiles; vencido se pronunciará sobre el fondo.
+Palmares, 11 de diciembre del 2012

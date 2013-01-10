@@ -1,0 +1,1 @@
+Artículo 34.—La municipalidad no tiene responsabilidad en cuanto a la conservación o seguridad de la mercadería y otros bienes de propiedad de los arrendatarios, pero procurará mantener el orden público y la seguridad social dentro del Mercado.

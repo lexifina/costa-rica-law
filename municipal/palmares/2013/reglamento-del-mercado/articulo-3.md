@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad coordinará y resolverá los asuntos pertinentes a la administración, a través del Administrador del Mercado, el cual está adscrito a la Alcaldía o bien, al departamento que ésta última determine.

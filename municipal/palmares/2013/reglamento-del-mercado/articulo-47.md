@@ -1,0 +1,2 @@
+Artículo 47.—Todas aquellas personas que se dediquen al traslado de mercadería dentro del Mercado (camareros), deben de contar con autorización previa y por escrito, otorgada por el Administrador del mismo.
+Si esta práctica se realiza se deberá hacer con el máximo cuidado de no maltratar al usuario de este inmueble y en caso de lesión corporal o daño material la empresa física o jurídica será la responsable.

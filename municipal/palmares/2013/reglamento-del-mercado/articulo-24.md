@@ -1,0 +1,2 @@
+Artículo 24.—De los dependientes. Todo arrendatario deberá atender personalmente su negocio y podrá ocupar los dependientes que estime necesario para la buena marcha del mismo. Todo dependiente portará una identificación autorizada y suministrada por la Administración del Mercado, cuyo valor será asumido por el arrendatario.
+La Administración proveerá a todo arrendatario de su respectiva identificación por medio de un carné en que además de aparecer el retrato del arrendatario, se incluirá su nombre y clase de local.

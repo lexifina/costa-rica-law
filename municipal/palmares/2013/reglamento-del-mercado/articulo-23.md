@@ -1,0 +1,1 @@
+Artículo 23.—Del agua potable y el suministro de electricidad. El servicio de suministro de agua potable y electricidad serán cancelados por cada arrendatario como un cargo diferente al monto del canon.

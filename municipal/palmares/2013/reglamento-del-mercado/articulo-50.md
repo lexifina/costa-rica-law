@@ -1,0 +1,1 @@
+Artículo 50.—En caso de resolución del contrato por cualquiera de las causas contempladas en el artículo 48, se procederá a una nueva adjudicación del tramo, conforme lo establece el artículo 15 del presente reglamento.

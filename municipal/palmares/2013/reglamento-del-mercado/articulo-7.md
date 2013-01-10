@@ -1,0 +1,1 @@
+Artículo 7º—Los tramos del mercado con entrada independiente a los ingresos principales de éste y con frente hacia la calle, no estarán sujetos a las restricciones de horario indicados en los artículos 5 y 6 del presente reglamento; sin embargo el valor del metro cuadrado, a efectos de establecer el canon será un 10% mayor que los tramos que se encuentren dentro del mercado.

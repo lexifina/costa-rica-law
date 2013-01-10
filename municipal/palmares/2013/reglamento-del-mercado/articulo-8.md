@@ -1,0 +1,1 @@
+Artículo 8º—El Mercado Municipal se organizará internamente en zonas o sectores comerciales destinados a la venta de artículos afines. La administración correspondiente velará para que en el futuro se cumpla estrictamente esta limitación.

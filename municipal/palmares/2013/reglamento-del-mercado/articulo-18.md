@@ -1,0 +1,1 @@
+Artículo 18.—Presentada en forma la solicitud de traspaso, el Concejo Municipal la aprobará en caso de que los interesados cumplan con todos los requisitos exigidos y lo comunicará así al Alcalde para los efectos consiguientes.

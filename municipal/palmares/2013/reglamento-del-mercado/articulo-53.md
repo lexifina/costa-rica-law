@@ -1,0 +1,1 @@
+Artículo 53.—La construcción de un nuevo edificio para el mercado municipal o remodelación del edificio actual que implique el desalojo de un 20% de los arrendatarios deberá tener contenido presupuestario y el proyecto deberá ser dictaminado por la Comisión Especial de Asuntos del Mercado, y aprobada por mayoría calificada por el Concejo Municipal.

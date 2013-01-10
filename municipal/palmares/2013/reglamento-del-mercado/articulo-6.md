@@ -1,0 +1,2 @@
+Artículo 6º—Las variaciones en el horario del Mercado, serán notificadas al público mediante cualquier sistema de comunicación que estime conveniente la administración, y a los arrendatarios a través de un comunicado a la Asociación de Inquilinos.
+Solamente en caso de emergencia, de evidente riesgo y a juicio de la Administración Municipal se podrá acordar la no prestación temporal del servicio sin previa notificación a los interesados, cuando la medida sea necesaria.
