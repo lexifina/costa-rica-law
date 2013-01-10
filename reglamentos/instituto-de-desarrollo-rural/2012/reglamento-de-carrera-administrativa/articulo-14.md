@@ -1,0 +1,1 @@
+Artículo 14.—Nombramiento de Presidente y Vicepresidente. La Comisión para su funcionamiento interno nombrará dentro de los miembros propietarios a un Presidente y un Vicepresidente, quienes durarán dos años en sus funciones, pudiendo ser reelectos, de acuerdo al artículo 15 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 19.—Contra la decisión adoptada por la Presidencia Ejecutiva en relación a la solicitud de ascenso, incentivos y méritos, el interesado podrá plantear dentro del plazo de 3 días hábiles a partir de su notificación, formal reconsideración a la Presidencia Ejecutiva, debiendo exponer en ella los argumentos de hecho y de derecho que fundamentan su inconformidad.
