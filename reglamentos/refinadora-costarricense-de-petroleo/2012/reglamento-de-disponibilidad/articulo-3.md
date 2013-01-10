@@ -1,0 +1,2 @@
+Artículo 3. Solicitud
+La jefatura de la dependencia que solicite el otorgamiento de disponibilidad para el funcionario(a) o los funcionarios(as), deberá presentar una solicitud formal con la justificación correspondiente, con el visto bueno del Gerente de Área, junto con el rol de disponibilidad. Dicho rol comprenderá la programación mensual y anual, según los periodos en que deberán estar disponibles.
