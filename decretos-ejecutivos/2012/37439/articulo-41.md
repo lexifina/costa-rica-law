@@ -1,0 +1,1 @@
+Artículo 41.—Toda madre en época de lactancia podrá disponer de una hora de período de lactancia durante su jornada laboral, que podrá ser distribuido, ya sea tomando la hora completa, en intervalos de quince minutos cada tres horas o de media hora dos veces al día durante sus labores.

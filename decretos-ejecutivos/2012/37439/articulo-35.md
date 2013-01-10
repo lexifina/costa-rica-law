@@ -1,0 +1,1 @@
+Artículo 35.—Dentro de su jornada habitual de trabajo, se pondrá a disposición un teléfono para uso exclusivo del Agente de Seguridad y Vigilancia o del o la Auxiliar de Vigilancia para reportar cualquier emergencia o necesidad que se presente, o cualquier otra eventualidad que ponga en peligro su seguridad personal y del centro de trabajo.

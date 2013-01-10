@@ -1,0 +1,1 @@
+Artículo 16.—Las ausencias al trabajo por enfermedad deberá él o la Agente de Seguridad y Vigilancia, o el o la Auxiliar de Vigilancia incapacitado, justificarlas mediante un certificado médico o comprobante extendido por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros.

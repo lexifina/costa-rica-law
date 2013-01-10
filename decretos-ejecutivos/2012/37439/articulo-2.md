@@ -1,0 +1,1 @@
+Artículo 2º—Los y las Agentes de Seguridad y Vigilancia y los y las Auxiliares de Vigilancia son servidores administrativos puros del Ministerio de Educación Pública, regidos por el Estatuto de Servicio Civil, su Reglamento, el Reglamento Interior de Trabajo del MEP y el Código de Trabajo.

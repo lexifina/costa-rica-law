@@ -1,0 +1,1 @@
+Artículo 11.—Los o las Agentes de Seguridad y Vigilancia y los y las Auxiliares de Vigilancia no están obligados a ejercer labores de vigilancia, monitoreo e inspección que no estén relacionadas con su centro de trabajo y con las funciones propias de su puesto.

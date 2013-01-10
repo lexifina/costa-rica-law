@@ -1,0 +1,1 @@
+Artículo 33.—El o la Agente de Seguridad y Vigilancia, o el o la Auxiliar de Vigilancia tendrá derecho a un día de descanso por cada seis días de trabajo continuo, que no tiene que coincidir, necesariamente, con día sábado o domingo porque su jornada podría incluir esos días.

@@ -1,0 +1,1 @@
+Artículo 29.—Serán causales de despido, las previstas en el artículo 81 del Código de Trabajo y las contempladas en el Estatuto de Servicio Civil y su Reglamento, en el Reglamento Interior de Trabajo del Ministerio de Educación Pública, y el presente Reglamento.

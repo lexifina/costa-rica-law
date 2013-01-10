@@ -1,0 +1,1 @@
+Artículo 39.—Los y las Agentes de Seguridad y Vigilancia y los o las Auxiliares de Vigilancia gozarán de las licencias y los subsidios contemplados en la Ley Nº 7756, del 25 de febrero de 1998, Beneficios para los Responsables de Pacientes en Fase Terminal, que regula los beneficios para los responsables de pacientes en fase terminal.

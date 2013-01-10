@@ -1,0 +1,1 @@
+Artículo 54.—El Ministerio de Educación Pública suministrará a los y las Agentes de Seguridad y Vigilancia y los y las Auxiliares de Vigilancia los implementos o equipos y condiciones necesarias para poder cumplir con sus labores y garantizar su integridad física.

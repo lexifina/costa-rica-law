@@ -1,0 +1,1 @@
+Artículo 23.—El despido se efectuará sin responsabilidad patronal cuando el servidor incurra en alguna de las causales de despido contempladas en el Estatuto de Servicio Civil, en su Reglamento, el Reglamento Interior de Trabajo del Ministerio de Educación Pública, el Código de Trabajo y en esta normativa.

@@ -1,0 +1,1 @@
+Artículo 62.—Deróguese el Decreto Ejecutivo Nº 35642 “Reglamento de Servicio para los Agentes de Seguridad y Vigilancia del Ministerio de Educación Pública”, publicado en La Gaceta Nº 244 del 16 de diciembre del 2009.

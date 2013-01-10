@@ -1,0 +1,1 @@
+Artículo 22.—La suspensión del trabajo sin goce de salario podrá aplicarse, de conformidad con lo que establece el artículo 60 del Reglamento Interior de Trabajo del Ministerio de Educación Pública, en concordancia con lo planteado en el Título Primero, Capítulo VIII, del Estatuto de Servicio Civil.

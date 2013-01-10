@@ -1,0 +1,2 @@
+Artículo 15.—Se considerará ausencia la falta de un día completo de trabajo. La falta de una fracción de la jornada, que por su extensión no pueda calificarse como llegada tardía, se computará como la mitad de una ausencia. Dos mitades de ausencia, para efectos de este Reglamento, se computarán como una ausencia.
+No se pagará el salario que corresponde a las ausencias, a excepción hecha de los casos señalados por los artículos 72, 73 y 74 del Reglamento Interior de Trabajo del Ministerio de Educación Pública o que se justifiquen debidamente.

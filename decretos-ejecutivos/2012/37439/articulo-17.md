@@ -1,0 +1,1 @@
+Artículo 17.—En casos muy calificados, no contemplados en el Reglamento Interior de Trabajo de este Ministerio, ni en el Estatuto de Servicio Civil y su Reglamento, queda a juicio del superior jerárquico justificar ausencias que no sean por enfermedad comprobada, para efectos de evitar sanción disciplinaria, sin que ello signifique obligación al pago del salario.

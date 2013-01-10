@@ -1,0 +1,1 @@
+Artículo 55.—La Dirección del centro de trabajo estará obligada a disponer de un lugar adecuado y seguro para que él o la Agente de Seguridad y Vigilancia y el o la Auxiliar de Vigilancia guarde los implementos que utilice en el desempeño de sus funciones, a efecto de conservarlos y preservar su buen estado.

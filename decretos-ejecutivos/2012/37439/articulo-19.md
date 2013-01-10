@@ -1,0 +1,1 @@
+Artículo 19.—Para la tramitación de las causas administrativas disciplinarias seguidas contra los funcionarios cubiertos por el presente reglamento, se estará a lo dispuesto en los artículos 308 y siguientes de la Ley General de la Administración Pública.

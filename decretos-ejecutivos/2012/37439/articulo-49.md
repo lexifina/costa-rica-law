@@ -1,0 +1,2 @@
+Artículo 49.—Una vez acordado el período de vacaciones, éste debe ser disfrutado sin interrupciones, observando lo dispuesto en el artículo 32 del Reglamento del Estatuto de Servicio Civil.
+En caso de que el servidor estando en período de vacaciones sea incapacitado por la Caja Costarricense de Seguro Social, el disfrute de sus vacaciones se suspende y continuará después de terminada su incapacidad.

@@ -1,0 +1,1 @@
+Artículo 61.—En lo no regulado expresamente por este Reglamento se aplicarán en forma supletoria el Estatuto del Servicio Civil y su Reglamento, Reglamento Interior de Trabajo del MEP, Ley Nº 7530 del 10 de julio de 1995, Ley de Armas y Explosivos, Ley N° 7410 del 26 de mayo de 1994, Ley General de Policía y Código de Trabajo.

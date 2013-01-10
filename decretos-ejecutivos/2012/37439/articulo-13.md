@@ -1,0 +1,1 @@
+Artículo 13.—Se considera llegada tardía la presentación al trabajo, después de diez minutos de la hora señalada para el comienzo de labores, de acuerdo con los horarios establecidos en cada centro de trabajo. Sólo en casos muy calificados, a juicio del superior jerárquico, se justificarán las llegadas tardías, para efectos de no aplicar la sanción disciplinaria correspondiente.

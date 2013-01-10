@@ -1,0 +1,1 @@
+Artículo 26.—En todos los casos, el servidor deberá notificar a su superior jerárquico lo antes posible, salvo casos de fuerza mayor, verbalmente, telefónicamente o por escrito de las causas que le impiden asistir a su trabajo, de conformidad con el artículo 42 inciso o) del Reglamento Interior de Trabajo del Ministerio de Educación Pública.
