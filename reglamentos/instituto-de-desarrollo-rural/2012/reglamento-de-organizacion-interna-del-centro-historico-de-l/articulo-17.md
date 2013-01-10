@@ -1,0 +1,7 @@
+Artículo 17.—De las sesiones. En su primera sesión ordinaria de cada año, el Consejo Directivo determinará el día y hora de sus sesiones ordinarias, que se celebrarán mínimo una vez al mes. Las extraordinarias, cuando sean solicitadas por un tercio de la Consejo Directivo o resueltas por el Presidente del Consejo Directivo, especificando el objeto de la sesión y la hora en que ésta debe verificarse.
+Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, vía fax, telegrama u otro medio, con una antelación mínima de veinticuatro horas.
+No obstante, quedará válidamente constituido el Consejo Directivo sin cumplir todos los requerimientos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.
+Las sesiones del Consejo Directivo serán de carácter privado.
+El Consejo Directivo podrá conceder audiencias a personas ajenas a la organización, una vez incluida en la agenda o acordándolo así por mayoría simple de los miembros del Consejo Directivo. Además el Consejo Directivo procederá o no a otorgar a la persona el derecho de participar en deliberaciones con voz pero sin voto.
+Los acuerdos serán adoptados por mayoría simple de los miembros asistentes.
+No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros del Consejo Directivo y sea declarada la urgencia del asunto por el voto favorable de todos ellos.

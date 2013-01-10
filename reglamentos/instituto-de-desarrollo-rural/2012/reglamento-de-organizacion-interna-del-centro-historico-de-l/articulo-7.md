@@ -1,0 +1,1 @@
+Artículo 7º—Requisitos. Para ser miembro del Consejo Directivo es necesario ser costarricense por nacimiento o naturalización, con diez años de residencia en el país como mínimo, y no estar inhabilitado para ejercer cargos públicos.

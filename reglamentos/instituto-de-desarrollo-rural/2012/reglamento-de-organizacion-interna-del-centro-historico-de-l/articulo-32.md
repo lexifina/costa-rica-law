@@ -1,0 +1,1 @@
+Artículo 32.—Previsión. En lo no previsto en este Reglamento, se Consejo Directivo se regirá por las mismas disposiciones aplicables a la Junta Directiva del Inder, así como por las normas contenidas en los artículos 49 a 58, inclusive de la Ley general de la Administración Pública, concernientes a los órganos colegiados.

@@ -1,0 +1,1 @@
+Artículo 34.—Previsiones presupuestarias. El Instituto de Desarrollo Rural tomará las previsiones presupuestarias para el desarrollo de las actividades y cumplimiento de los objetivos del Centro Histórico.

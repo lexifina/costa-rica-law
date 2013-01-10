@@ -1,0 +1,1 @@
+Artículo 3º—Sede. El Centro Histórico se ubica en el inmueble propiedad del Instituto de Desarrollo Rural, inscrito en el Registro Nacional, partido de Alajuela, Folio Real matrícula Nº 2130140-000 ubicado en Chachagua de Peñas Blancas que es distrito décimo tercero de San Ramón, cantón segundo, de la provincia de Alajuela.

@@ -1,0 +1,1 @@
+Artículo 4º—Componentes del Centro Histórico. Formará parte del Centro Histórico, un parque temático y una zona protegida denominada “La Amistad”, ambos terrenos ubicados dentro de la finca propiedad del Instituto de Desarrollo Rural, inscrita en el Registro Nacional, Sección Propiedad, partido de Alajuela, Folio Real matrícula Nº 2130140-000.

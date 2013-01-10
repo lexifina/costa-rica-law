@@ -1,0 +1,1 @@
+Artículo 27.—Del libro de actas. Una vez aprobada el acta se transcribirá dentro de los 8 días hábiles al Libro de Actas del Consejo Directivo, a fin de presentarla para ser firmada por el presidente y el secretario o quien los sustituya y por aquellos miembros que hayan hecho constar con su voto negativo.

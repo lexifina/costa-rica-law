@@ -1,0 +1,1 @@
+Artículo 38.—Nombramiento de los funcionarios del Centro Histórico. Los funcionarios del Centro Histórico serán nombrados por idoneidad comprobada y deberán cumplir los requisitos aplicables en los Reglamentos creados por el INDER en esta materia.

@@ -1,0 +1,4 @@
+Artículo 18.—De la revisión de los acuerdos. Las mociones, acuerdos y demás disposiciones aprobadas por el Consejo Directivo, podrán revisarse una sola vez, a solicitud de cualquier director siempre que la revisión se pida a más tardar al discutirse el acta, recurso que deberá resolverse en la misma sesión.
+En caso de que alguno de los miembros del Consejo Directivo interponga recurso de revisión contra un acuerdo, el mismo será resuelto al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que el presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas como recursos de revisión.
+Los miembros del Consejo Directivo votarán afirmativa o negativamente, sin que les sea permitido abstenerse de emitir el voto.

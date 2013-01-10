@@ -1,0 +1,1 @@
+Artículo 30.—Ejecución de los acuerdos. La ejecución de los acuerdos aprobados por el Consejo Directivo estará a cargo del Director o Subdirector si el primero no estuviera presente, para los casos que así procediese.

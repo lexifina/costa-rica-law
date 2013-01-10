@@ -1,0 +1,4 @@
+Artículo 14.—De la presidencia y la secretaría del Consejo. Según lo establecido por la ley de creación del Centro Histórico en su artículo 5° inciso a) el Presidente del Consejo será el representante por parte del Inder, quién permanecerá dos años en su cargo y podrá ser reelegido.
+Anualmente en la primera sesión ordinaria correspondiente a un nuevo periodo, el Consejo procederá a elegir de su seno, por simple mayoría de votos al secretario, quien también podrá ser reelecto.
+En caso de ausencia o de enfermedad y en general, cuando concurra alguna causa justa, el presidente y el secretario del Consejo Directivo serán sustituidos por un Presidente ad-hoc y un Secretario ad-hoc, respectivamente, quienes serán electos por simple mayoría.
+En el evento de que alguno de los miembros deje de serlo, se procederá a elegir los puestos que resulten vacantes.

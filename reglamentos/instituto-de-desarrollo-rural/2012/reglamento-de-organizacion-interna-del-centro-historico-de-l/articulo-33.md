@@ -1,0 +1,3 @@
+Del INDER
+Artículo 33.—Elaboración y aprobación del POI y Presupuesto. Cada año la Gerencia General del Inder asignará a los técnicos correspondientes para que en coordinación con el Director y los miembros del Consejo Directivo del Centro Histórico elaboren el POI y presupuesto correspondiente. Lo anterior deberá realizarse de acuerdo a los plazos que determine la legislación vigente.
+Una vez aprobado el POI y el Presupuesto por el Consejo Directivo del Centro Histórico, este será incorporado por la Gerencia General en los programas presupuestarios del Inder, para su posterior aprobación por parte de la Junta Directiva.

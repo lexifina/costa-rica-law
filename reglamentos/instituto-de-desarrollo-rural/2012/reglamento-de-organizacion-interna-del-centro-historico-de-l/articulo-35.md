@@ -1,0 +1,1 @@
+Artículo 35.—Autorización para la administración de bienes. El Consejo Directivo del Centro Histórico, queda sujeto a todas las normas administrativas y presupuestarias aplicables al ejercicio de sus funciones. Además, deberá cuidar los bienes delegados en administración y velar por su seguridad, por tratarse del patrimonio cultural y forestal.

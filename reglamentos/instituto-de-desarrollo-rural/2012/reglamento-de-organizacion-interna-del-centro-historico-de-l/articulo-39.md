@@ -1,0 +1,1 @@
+Artículo 39.—Del personal. Cuando se requiera la contratación de personal para el Centro Histórico, el Consejo Directivo lo solicitará a la Presidencia Ejecutiva del INDER, previa justificación técnica.

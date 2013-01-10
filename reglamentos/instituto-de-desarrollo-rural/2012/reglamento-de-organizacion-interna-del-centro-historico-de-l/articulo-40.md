@@ -1,0 +1,1 @@
+Artículo 40.—De la relación laboral. El personal que labore para el Centro Histórico, tendrán la calidad de funcionarios del Inder, por lo cual estarán sujetos a los Reglamentos establecidos en esta materia y a lo que la Ley establezca para los funcionarios públicos.

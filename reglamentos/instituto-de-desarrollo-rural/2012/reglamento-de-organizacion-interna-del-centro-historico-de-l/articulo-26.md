@@ -1,0 +1,1 @@
+Artículo 26.—Firmeza de los acuerdos. Los acuerdos tomados por el Consejo Directivo quedarán firmes al aprobarse el acta en la siguiente sesión ordinaria, salvo los expresamente declarados firmes por la Junta Directiva. Se exceptúan los acuerdos contra los cuales se interponga y prospere el recurso de revisión conforme a lo establecido en la Ley General de Administración Pública.

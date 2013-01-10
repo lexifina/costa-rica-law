@@ -1,0 +1,1 @@
+Artículo 10.—Dietas. Los miembros del Consejo Directivo trabajarán en forma ad honoren, por lo cual no devengarán dietas, según lo establece el artículo 5° de la Ley del Centro Histórico de la Reforma Agraria de Costa Rica y Parque Temático.

@@ -1,0 +1,1 @@
+Artículo 19.—De las comisiones. El Consejo Directivo nombrará las Comisiones Especiales que considere convenientes, para el estudio, examen o investigación de cualquier asunto relativo al Centro Histórico.
