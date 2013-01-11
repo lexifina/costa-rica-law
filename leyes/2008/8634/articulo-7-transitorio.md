@@ -1,2 +1,2 @@
-TRANSITORIO VII.-
-El Fondo de crédito para el desarrollo será administrado por el Banco Crédito Agrícola de Cartago, por un lapso de cinco años. Al término de este período, el Consejo Rector designará al administrador mediante concurso o a conveniencia de este. El Banco administrará dichos recursos como parte de sus cuentas normales, pero dará acceso a los demás integrantes del SBD de orden financiero, a excepción de la banca privada.
+TRANSITORIO VII.-(Derogado por el artículo único de la ley N° 9094 del 26 de octubre de 2012)
+Transitorio de la ley N° 9094 del 26 de octubre de 2012: "TRANSITORIO ÚNICO.- El Consejo Rector del Sistema Banca para el Desarrollo, en un plazo de tres meses, deberá tener asignado el banco estatal que administrará el Fondo de Crédito para el Desarrollo de acuerdo con lo establecido en el artículo 35 de esta misma ley")
