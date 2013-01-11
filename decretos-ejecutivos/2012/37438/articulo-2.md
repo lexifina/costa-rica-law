@@ -1,0 +1,3 @@
+Artículo 2.- Refórmese el inciso a) del artículo 7 del Reglamento al artículo 12 del Anexo 3 de la Ley 7017 “Ley de Incentivos para la Producción Industrial Anexo A del Arancel Centroamericano de Importación”, Decreto Ejecutivo N° 32448-MP-MEIC-COMEX del 28 de abril de 2005, publicado en el Diario Oficial La Gaceta N° 131 del 07 de julio de 2005, para que se lea como sigue:
+“Artículo 7.- Parámetros para la comparación:
+a) Para efectos de comparación de precios entre las manufacturas nacionales con las extranjeras, la Administración aplicará el inciso a) del artículo 8 del Reglamento Especial para la Promoción de las PYMES en las Compras de Bienes y Servicios de la Administración, Decreto Ejecutivo N° 33305-MEIC-H del 13 de junio de 2006.”
