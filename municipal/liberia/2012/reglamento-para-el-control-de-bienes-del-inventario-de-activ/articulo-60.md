@@ -1,0 +1,6 @@
+Artículo 60.—Egresos por desmantelamiento de máquinas, equipos, vehículos, aparatos, etc. Se podrá dar el egreso de inventarios por desmantelamiento a toda aquella maquinaria, equipo, vehículo, aparatos, etc., con el fin de aprovechar sus partes utilizables previo diagnóstico técnico y/o mecánico que así lo recomiende. Para dar baja por este fin, los activos deben estar en pérdida total o parcial, el costo de mantenimiento debe ser alto, o por inutilidad o grave daño que haga aconsejable esta medida. Se cumplirán los siguientes requisitos:
+a) Solicitud escrita al Alcalde Municipal, hecha por el Jefe(a) del Departamento de Proveeduría. Se debe incluir una descripción de los activos que se quieren desmantelar, clase, marca, número, capacidad, valor de inventario y la justificación técnica del desmantelamiento;
+b) Escrito de autorización firmado por el Alcalde Municipal;
+c) Nombramiento por parte del Alcalde Municipal de una Comisión que deba intervenir en la diligencia de desmantelamiento;
+d) Expedición de la orden de baja de los activos desmantelados;
+e) Inventario de las partes utilizables; las piezas que sean sobrantes podrán ser rematadas, donadas o destruidos siguiendo el procedimiento estipulado en el presente Reglamento.

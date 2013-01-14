@@ -1,0 +1,1 @@
+Artículo 5º—Concepto de bienes muebles. Se consideran bienes muebles todos aquellos activos adquiridos por la Municipalidad de Liberia o los provenientes de donaciones, tales como maquinaria, mobiliario, vehículos y todo el equipo y herramientas utilizadas en la ejecución de sus funciones y actividades conexas.

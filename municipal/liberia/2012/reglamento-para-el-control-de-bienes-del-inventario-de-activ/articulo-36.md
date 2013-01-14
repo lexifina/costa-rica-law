@@ -1,0 +1,1 @@
+Artículo 36.—Aparición de activos Egresados del Inventario. Cuando se ubica o recupera tiempo después un activo que anteriormente haya sido egresado del inventario se deberá inventariar nuevamente, registrando el bien con un número nuevo de patrimonio.

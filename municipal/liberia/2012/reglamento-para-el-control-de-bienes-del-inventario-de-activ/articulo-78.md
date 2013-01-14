@@ -1,0 +1,1 @@
+Artículo 78.—Prohibición. Será considerada una falta grave a sus obligaciones funciones, el no ejercer la debida custodia y protección de los activos propiedad de la Municipalidad de Liberia, previa demostración de la responsabilidad del funcionario en su actuación u omisión en su proceder.

@@ -1,0 +1,1 @@
+Artículo 8º—Para la aplicación de los Procedimientos Administrativos establecidos en el presente Reglamento los mismos se efectuarán conforme al Libro Segundo de la Ley General de Administración Pública, así como para las disposiciones disciplinarias que correspondan por el no acatamiento de lo establecido en el presente Reglamento.

@@ -1,0 +1,5 @@
+Artículo 59.—Egresos de activos para donaciones a centros educativos estatales del cantón de Liberia. Para dar de baja elementos, artículos, herramientas, máquinas, aparatos, etc., para destinarlos en donación como ayuda destinada a los centros educativos estatales ubicados en el cantón de Liberia, se deben cumplir los siguientes requisitos:
+a) Solicitud formal por escrito del centro educativo que requiere el tipo de bien de interés;
+b) Acuerdo del Concejo Municipal de Liberia donde se aprueba la donación de conformidad al artículo 63 del presente Reglamento.
+c) Relación de los activos por clasificación de inventario, pormenorizando las características, cantidad y valor correspondiente;
+d) Acta de entrega de los activos, en donde el Alcalde Municipal procede a la entrega del activo, con las estipulaciones y requisitos que deben llenar los interesados; y firmada por el Alcalde Municipal, Jefatura del Departamento de Proveeduría y los beneficiados. Este último, deberá firmar el acta en el acto de entrega de los activos.

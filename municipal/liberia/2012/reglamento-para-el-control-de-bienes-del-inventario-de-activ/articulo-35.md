@@ -1,0 +1,1 @@
+Artículo 35.—Ingresos por aprovechamiento de activos inservibles. Cuando se egresan activos del inventario por inservibles de los cuales puedan utilizarse parte de ellos se hará una relación de aquellos elementos aprovechables que servirá para su registro físico y contable, debiéndoseles asignar un número de patrimonio.

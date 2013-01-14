@@ -1,0 +1,1 @@
+Artículo 19.—Inscripción de bienes. El Departamento de Proveeduría velará para que se realicen las gestiones necesarias, para inscribir con la premura requerida los bienes que por su naturaleza requieran ser inscritos en los respectivos registros públicos existentes, para lo cual contará con la colaboración de otras dependencias administrativas.

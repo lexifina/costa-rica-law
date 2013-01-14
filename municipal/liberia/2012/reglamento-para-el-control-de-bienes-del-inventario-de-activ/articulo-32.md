@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Trámite de Ingreso de Bienes
+Artículo 32.—Ingreso de activos. Es la entrada o alta de bienes a la Municipalidad de Liberia, por compra, permuta, donación, inventario inicial, aparición de bienes dados de baja, o por aprovechamiento de inservibles. Además es la operación física, fiscal y contable que registra el valor de los activos que ingresen a la Municipalidad por conceptos distintos a la compra o recibo por traspaso, cuyo valor no se encuentre registrado en la contabilidad y el origen o procedencia no responda a operaciones realizadas corrientemente. Ejemplo: Elementos encontrados por fuera de inventario, cuyo origen es difícil de establecer, los reavalúos, las donaciones recibidas, etc.

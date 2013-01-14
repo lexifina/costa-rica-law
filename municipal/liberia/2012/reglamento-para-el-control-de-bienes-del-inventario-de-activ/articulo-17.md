@@ -1,0 +1,1 @@
+Artículo 17.—Sistema Informático. Con el respaldo técnico del Departamento de Informática, se implementará el Sistema de Activos Fijos (SAF) para que el Departamento de Proveeduría pueda efectuar el registro respectivo de los bienes de la Municipalidad de Liberia.

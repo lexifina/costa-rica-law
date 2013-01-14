@@ -1,0 +1,1 @@
+Artículo 66.—Delegación de donación. Le corresponde al Alcalde Municipal firmar las Actas de Donaciones. No obstante éste o ésta podrán delegar formalmente esta función siguiendo al efecto las disposiciones y observando los límites que establecen la Ley General de la Administración Pública la Ley de la Administración Financiera y Presupuestos Públicos.

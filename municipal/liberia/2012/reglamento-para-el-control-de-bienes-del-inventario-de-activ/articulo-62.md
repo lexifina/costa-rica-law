@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+Egresos por donación de activos en desuso y equipo desechado
+Artículo 62.—Activos susceptibles de donación. Los bienes municipales susceptibles de donación serán aquellos que se encuentren en desuso o mal u obsoleto estado, conforme al criterio de la unidad técnica competente, situación que deberá quedar debidamente documentada en la Proveeduría Municipal de conformidad con las siguientes definiciones:
+a) Bien en desuso: aquel que por razones de obsolescencia, deterioro u otras razones calificadas no sea útil y/o necesario para las labores que desarrolla la institución.
+b) Bien en mal estado reparable: aquel que en virtud de su estado físico, se tenga que incurrir en costos adicionales para dejar dicho bien funcional, y que la institución no tiene la intención de incurrir en dichos costos, ya sea porque; dichos costos superan el valor del bien, que el bien ya haya sido sustituido por otro más reciente, o que la necesidad institucional por ese bien ya haya sido satisfecha por otro medio.
