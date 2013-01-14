@@ -1,0 +1,1 @@
+Artículo 8º—Una vez firmado el convenio de marras, el Departamento del Personal o la persona a cargo, procederá a confeccionar la acción de personal respectiva que deberá seguir el trámite usual en esta materia.
