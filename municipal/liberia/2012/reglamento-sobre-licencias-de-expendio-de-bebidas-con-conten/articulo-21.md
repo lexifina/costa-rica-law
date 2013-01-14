@@ -1,0 +1,1 @@
+Artículo 21.—El pago de derechos según la clase de licencia, corresponderá de acuerdo a la clasificación del evento por parte de la Comisión de Control y Calificación de Espectáculos Públicos o del Comité Cantonal de Espectáculos Públicos, o en su defecto la que determine el Encargado del Departamento de Rentas y Cobranzas Municipales, de hasta tres salarios base.
