@@ -1,0 +1,2 @@
+Artículo 50.—La representación de la Junta Administrativa y de la Fiscalía será por un período de 2 años, el cual comienza a regir a partir del acuerdo de nombramiento de la misma por parte del Concejo Municipal, prorrogable por un período igual, en forma consecutiva o en forma alterna, las veces que se requiera, debiéndose luego constituirse una nueva junta administrativa.
+(Así adicionado en sesión N° 70 del 30 de noviembre de 2010 y definitivamente aprobado en sesión N° 4 del 15 de enero de 2013)
