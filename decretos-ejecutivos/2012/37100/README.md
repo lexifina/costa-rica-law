@@ -15,3 +15,4 @@ Publica Resolución N° 277-2011 (COMIECO-LXI) del 2 de diciembre de 2011 y su a
 | --- | --- | --- |
 | 1 | 2012-07-02 | la propia norma |
 | 2 | 2012-07-02 | Decreto Ejecutivo 37295 (2012-06-18) |
+| 3 | 2013-01-15 | Decreto Ejecutivo 37624 (2013-01-15) |
