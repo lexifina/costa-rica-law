@@ -14,3 +14,4 @@ Pone en Vigencia la Resolución N° 118-2004 (COMIECO)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-13 | la propia norma |
+| 2 | 2013-01-15 | Decreto Ejecutivo 37561 (2013-01-15) |
