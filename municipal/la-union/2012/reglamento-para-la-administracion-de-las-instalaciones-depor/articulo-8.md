@@ -1,0 +1,5 @@
+ARTÍCULO 8. Lenguaje no discriminatorio por razón del sexo
+Todos los artículos del presente Reglamento que hagan referencia a expresiones o nombres en masculino o femenino, habrán de entenderse referidos siempre a ambas opciones, de tal manera que el lenguaje utilizado pueda considerarse no discriminatorio por razón del sexo.
+ARTÍCULO 8. De las tarifas.
+Las tarifas por el uso de las instalaciones deportivas y recreativas son de cobro obligatorio y serán fijadas anualmente por el Comité Cantonal, previo estudio autorizado por el Concejo Municipal. El Comité Cantonal deberá presupuestar los ingresos por tal concepto en el caso de las instalaciones administradas por el Comité Cantonal y además establecer los mecanismos apropiados para el control de los recursos financieros en las instalaciones administradas por las Comisiones de Instalaciones Deportivas y Comités Comunales según corresponda. Los recursos cobrados en una instalación serán utilizados en ella para su autogestión.
+(Nota de Sinalevi: En la publicación del presente reglamento se consignó dos veces el numeral 8°)

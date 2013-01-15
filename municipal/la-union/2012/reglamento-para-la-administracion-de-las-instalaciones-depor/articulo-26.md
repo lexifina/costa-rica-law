@@ -1,0 +1,5 @@
+ARTÍCULO 26. Aplicación de las normas particulares
+Serán de aplicación a cada una de las Instalaciones Deportivas Municipales, además de las normas genéricas contenidas en el presente Reglamento, las que seguidamente se especifican de forma individualizada.
+Asimismo, cada instalación deportiva debe brindar espacios para la recreación y el desarrollo del deporte por medio de las escuelas deportivas. Durante la semana el administrador deberá ofrecer espacios que permitan a la familia Pilarica la recreación. Asimismo los fines de semana deberán haber espacios para el desarrollo deportivo y espacios para la recreación, por lo que deberán programar sus actividades deportivas los fines de semana brindado espacios para estos dos fines.
+En caso de emergencia o de extrema necesidad, el personal de la instalación, podrán desalojar o evacuar a los usuarios de las instalaciones.
+Queda prohibido el acceso a las instalaciones de cualquier clase de animales. Cuando la afluencia de público llegue a los límites del aforo de la piscina, se impedirá el acceso a más bañistas.

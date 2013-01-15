@@ -1,0 +1,2 @@
+ARTÍCULO 63. Alquiler de las instalaciones deportivas para escuelas deportivas de terceros.
+Las Asociaciones, Equipos, o terceros, podrán bajo su responsabilidad desarrollar escuelas deportivas y solicitar en alquiler las instalaciones al administrador respectivo. Para ello deberá presentar planes anuales con la necesidad de uso de la instalación. Queda a criterio del administrador el cobre que se le realice a dicha escuela deportiva por el uso de la instalación deportiva.

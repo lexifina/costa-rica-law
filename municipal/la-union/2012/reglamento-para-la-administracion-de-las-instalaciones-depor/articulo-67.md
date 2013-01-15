@@ -1,0 +1,2 @@
+ARTÍCULO 67. Modificación o anulación de la reserva
+Cuando se encontrasen en mal estado las canchas, pistas deportivas o el material a utilizar, que haría impracticable o peligrosa la practica de cualquier deporte, se podrá cambiar la hora de reserva elegida por el usuario. Se podrá modificar la hora o día de uso de la instalación deportiva siempre y cuando exista disposición de la nueva hora o día y se realice con suficiente antelación el cambio.
