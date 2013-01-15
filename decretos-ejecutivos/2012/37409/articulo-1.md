@@ -1,0 +1,11 @@
+N° 37409-JP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones N° 218 y en los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J publicada en La Gaceta N° 96 de veintiuno de mayo del dos mil uno.
+CONSIDERANDO
+I. Que el artículo 32 de la Ley de Asociaciones N° 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II. Que la ASOCIACIÓN DE ACUEDUCTO DE CIPRESES DE OREAMUNO DE CARTAGO, cédula de persona jurídica número 3-002-227240, se inscribió en el Registro de Asociaciones del Registro Público desde el día veinte de mayo del dos mil cuatro, bajo el tomo N° 453, asiento 17214.
+III. Que los fines que persigue la Asociación, según el artículo tercero de sus Estatutos, son: "(…) ARTÍCULO TERCERO: (...) A.-Construir un acueducto en el Cantón de Oreamuno, Provincia de Cartago. B.-Administrar, operar y conservar en buenas condiciones el acueducto de acuerdo a las disposiciones y reglamentos que al respecto emita Acueductos y Alcantarillados. C.-Obtener la participación efectiva de la comunidad en la construcción y mantenimiento del acueducto. D.-Colaborar en los programas y campañas de índole educativas que se emprendan. E.-Ayudar a explicar y divulgar en la comunidad las disposiciones y Reglamentos de Acueductos y Alcantarillados. F.-Cooperar con los planes, proyectos y obras que emprenda Acueductos y Alcantarillados. G.-Participar en la vigilancia y protección de las fuentes de abastecimiento del acueducto, evitar las contaminaciones de las mismas y ayudar a la protección de las cuencas hidrográficas de la Región’’.
+IV. Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+DECRETAN
+Artículo 1.- Declárese de Utilidad Pública para los intereses del Estado la ASOCIACIÓN DE ACUEDUCTO DE CIPRESES DE OREAMUNO DE CARTAGO, cédula de persona jurídica número 3-002-227240.
