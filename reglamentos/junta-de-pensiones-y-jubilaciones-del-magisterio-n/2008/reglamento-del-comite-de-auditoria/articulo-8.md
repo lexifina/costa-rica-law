@@ -1,1 +1,1 @@
-Artículo 8°—Situaciones imprevistas. Las situaciones no previstas en este Reglamento, sobre las materias aquí reguladas, serán resueltas por la Junta Directiva conforme a la Ley de Control Interno (N° 8292) y disposiciones conexas.
+Artículo 8º—Situaciones imprevistas. Las situaciones no previstas en este Reglamento, sobre las materias aquí reguladas, serán resueltas por la Junta Directiva conforme a la Ley de Control Interno (Nº 8292) y disposiciones conexas.

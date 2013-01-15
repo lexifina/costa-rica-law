@@ -1,7 +1,6 @@
-Reglamento del Comité de Auditoría
 JUNTA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL
 Transcripción del acuerdo adoptado por la Junta Directiva en la sesión ordinaria Nº 54-2008, celebrada el día 21 de mayo del 2008, analizado el oficio DE-277-08, que incluye el Reglamento del Comité de Auditoría, de conformidad con el Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN.
 REGLAMENTO DEL COMITÉ DE AUDITORÍA
-De conformidad con las disposiciones del Reglamento de Auditores Externos y Medidas de Gobierno Corporativo Aplicable a los Sujetos Fiscalizados por SUGEF, SUGEVAL y SUPEN, se dicta el siguiente Reglamento del Comité de Auditoría de la Institución:
-(Nota de Sinalevi: El texto de este reglamento fue reformado parcialmenmte y reproducido su texto en forma íntegra en sesión N° 006 del 17 de enero de 2012, y publicado en La Gaceta N° 31 del 13 de febrero de 2012, por lo que se reproduce a continuación:)
-Artículo 1°—De su naturaleza, constitución y sus informes. El Comité de Auditoría fungirá como un órgano de apoyo para el control y seguimiento de las políticas, procedimientos y controles que se establezcan por parte de la Administración y la Junta Directiva, con respecto al Régimen de Capitalización Colectiva (RCC).
+De conformidad con las disposiciones del Reglamento de Auditores Externos y Medidas de Gobierno Corporativo Aplicable a los Sujetos Fiscalizados por SUGEF, SUGEVAL y SUPEN, se dicta el siguiente Reglamento del Comité de Auditoría de la Institución :
+(Nota de Sinalevi: El texto de este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 004-2013 del 15 de enero de 2013, y publicado en La Gaceta N° 36 del 20 de febrero de 2013, por lo que se reproduce a continuación:)
+Artículo 1º—De su naturaleza, constitución y sus informes. El Comité de Auditoría fungirá como un órgano de apoyo para el control y seguimiento de las políticas, procedimientos y controles que se establezcan por parte de la Administración y la Junta Directiva , con respecto al Régimen de Capitalización Colectiva (RCC).

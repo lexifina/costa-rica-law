@@ -15,3 +15,4 @@ Reglamento del Comité de Auditoría
 | --- | --- | --- |
 | 1 | 2008-05-21 | la propia norma |
 | 2 | 2012-01-17 | Reglamento 6 (2012-01-17) |
+| 3 | 2013-01-15 | Reglamento 4 (2013-01-15) |

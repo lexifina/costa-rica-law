@@ -1,1 +1,1 @@
-Artículo 6°—De la agenda y los acuerdos. Los asuntos serán conocidos en el orden de agenda, no obstante el Comité podrá modificarlo. Los acuerdos serán adoptados por mayoría simple de los miembros titulares o sustitutos.
+Artículo 6º—De la agenda y los acuerdos. Los asuntos serán conocidos en el orden de agenda, no obstante el Comité podrá modificarlo. Los acuerdos serán adoptados por mayoría simple de los miembros titulares o sustitutos.
