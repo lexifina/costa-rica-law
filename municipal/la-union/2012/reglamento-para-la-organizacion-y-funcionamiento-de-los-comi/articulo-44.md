@@ -1,0 +1,2 @@
+ARTÍCULO 44.
+Para la realización de eventos o actividades no deportivas como ferias, bingos, fiestas o similares, dentro de las instalaciones deportivas o en los alrededores de las mismas, debe contarse con la autorización escrita del Comité Cantonal. Para tal fin se podrá exigir un depósito de garantía en dinero efectivo, por un monto suficiente, para resarcir el pago de los eventuales daños que puedan ocasionarse al inmueble.

@@ -1,0 +1,5 @@
+ARTÍCULO 33.
+Existen dos tipos de votación: Nominal y Secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto; es secreta aquella votación que se realice en forma escrita o por cualquier otro medio a juicio de la Junta Directiva y en situación calificada según reglamento.
+ARTÍCULO 33.
+Las actas del Comité Comunal deberán ser aprobadas en la sesión inmediata posterior, salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria. Antes de la aprobación del acta cualquier miembro podrá plantear revisión de acuerdos, salvo respecto de los aprobados definitivamente conforme a este Reglamento. Para acordar la revisión se necesitará la misma mayoría requerida para dictar el acuerdo.
+(Nota de Sinalevi: En la publicación de este reglamento se publicó dos veces el artículo 33, con diferente contenido. Debe aclararse que el segundo 33, pertenece al Capítulo VII denominado “De las Actas”, contenido en el artículo 31 segundo)
