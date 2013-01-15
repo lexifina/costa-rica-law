@@ -50,3 +50,4 @@ CODIGO | DESCRIPCION | GUA % | ES % | HO % | NI % | CR %
 0403.10 | - Yogur: | | | | |
 0403.10.10 | - - Leche fermentada tratada térmicamente | 15 | 0 | 35 | 40 | 65
 0403.10.90 | - - Otros | 15 | 40 | 35 | 40 | 65)
+(Modificado por Resolución N° 295-2012 (COMIECO-LXIV) del 11 de diciembre de 2012, aprobada mediante decreto ejecutivo N° 37524 del 15 de enero del 2013)
