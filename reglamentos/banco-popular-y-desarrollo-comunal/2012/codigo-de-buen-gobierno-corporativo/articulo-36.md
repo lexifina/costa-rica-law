@@ -1,0 +1,3 @@
+Artículo 36.—Políticas aplicables en relación con los Comités de Apoyo. Con la finalidad de fortalecer el establecimiento de los Comités de Apoyo a las Juntas Directivas, estas deberán aprobar:
+a. Su constitución, así como los procedimientos de selección y rotación de las personas que lo integren, dejando constancia de ello en el acta correspondiente.
+b. El perfil profesional o de competencias de quienes integren los Comités, deberá estar de acuerdo con la especialidad funcional de cada Comité de Apoyo, y satisfacer los requisitos de idoneidad personal exigidos por las normas aplicables en cada entidad.
