@@ -1,0 +1,1 @@
+Artículo 15.- ESTUDIANTES INCAPACITADOS.- Los estudiantes incapacitados deben comunicar inmediatamente su situación al distinguido del grupo o al instructor guía. Tendrán tres días hábiles para entregar en el Departamento Administrativo la boleta original emitida por la institución donde fue atendido y se le extendió la incapacidad.

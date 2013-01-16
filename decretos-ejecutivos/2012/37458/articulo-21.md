@@ -1,0 +1,1 @@
+Artículo 21.- ESCALA BÁSICA.- Está conformada por el Curso Básico Policial que es el curso de iniciación a las labores básicas policiales y es el necesario para propiciar la carrera policial, donde se incluye el Curso de Inspectores y el Curso de Sargentos, los cuales continúan en el proceso de formación hacia el ascenso en la carrera policial.

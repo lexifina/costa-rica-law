@@ -1,0 +1,3 @@
+Artículo 46.- INTEGRACIÓN DEL COMITÉ DE EVALUACIÓN DE LOS APRENDIZAJES. El Comité estará integrado por el Director General de la Escuela Nacional de Policía quien presidirá, los Jefes de Departamento Académico y el de Investigación y Evaluación, el encargado de Secretaria Estudiantil, los coordinadores de las áreas de conocimiento, el encargado de instrucción y el Asesor Legal.
+La Secretaría del Comité de Evaluación estará a cargo del Departamento de Investigación y Evaluación.
+Las sesiones ordinarias se realizarán los primeros jueves de cada mes y las sesiones extraordinarias cuando el Director General de la Escuela Nacional de Policía así lo requiera.

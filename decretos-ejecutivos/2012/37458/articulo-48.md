@@ -1,0 +1,1 @@
+Artículo 48.- COMPONENTES DE LA CALIFICACIÓN.- La calificación de los estudiantes en cada materia, se obtendrá sumando los siguientes componentes: trabajo en clase, trabajo extra clase, pruebas y concepto.

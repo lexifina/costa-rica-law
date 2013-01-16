@@ -1,0 +1,1 @@
+Artículo 26.- CURSOS DE ESPECIALIZACIÓN.- Los cursos de especialización tienen como propósito consolidar, profundizar y ampliar los conocimientos y habilidades adquiridos por el servidor policial para el desempeño de su cargo, en función con las necesidades operativas y administrativas específicas de la Unidad Policial a la que pertenece.

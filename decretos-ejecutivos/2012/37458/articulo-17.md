@@ -1,0 +1,1 @@
+Artículo 17.- PRÁCTICA SUPERVISADA.- Para efectos de la educación policial, la práctica supervisada es la actividad formativa que consiste en la inserción gradual del estudiante con la realidad laboral, que le posibilite la aplicación de los conocimientos teóricos adquiridos durante su formación académica.

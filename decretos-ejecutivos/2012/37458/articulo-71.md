@@ -1,0 +1,2 @@
+Artículo 71.- HORARIOS DE LOS ESTUDIANTES.- El Departamento Académico establecerá mediante los planificadores los horarios de clase que deberán cumplir los estudiantes.
+Cuando los estudiantes estén en un horario de lunes a viernes, en los casos de los estudiantes que vivan en zonas alejadas del centro de formación académica, se podrán retirar a las catorce horas del último día de lecciones, previo análisis y visto bueno de la Secretaría Estudiantil, o en su defecto en las diferentes sedes, por el encargado de la unidad estudiantil.

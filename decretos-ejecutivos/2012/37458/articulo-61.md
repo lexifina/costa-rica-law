@@ -1,0 +1,1 @@
+Artículo 61.- INCAPACIDAD DURANTE EL PROCESO DE ENSEÑANZA-APRENDIZAJE.- Una vez finalizado el periodo de incapacidad, el alumno deberá reincorporarse a la Escuela Nacional de Policía para continuar con el proceso de formación. Las materias que queden pendientes por evaluar serán coordinadas por medio del Comité de Evaluación, para su finalización.

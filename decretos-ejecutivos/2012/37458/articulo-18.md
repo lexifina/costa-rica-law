@@ -1,0 +1,1 @@
+Artículo 18.- TRABAJO COMUNAL POLICIAL.- El Trabajo Comunal Policial (TCP) es un componente vital del proceso de formación de los policías; dentro de este contexto deberá brindar seguridad para generar espacios lúdicos, cívicos, deportivos, entre otros, e interactuar con la comunidad.

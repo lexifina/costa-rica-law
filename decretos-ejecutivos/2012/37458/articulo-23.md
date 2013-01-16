@@ -1,0 +1,1 @@
+Artículo 23.- ESCALA SUPERIOR.- Está conformada por los cursos de Comandante, Comisionado y Comisario de Policía, tiene como objeto habilitar al funcionario policial para asumir cargos en mandos de dirección por la vía de la carrera policial.

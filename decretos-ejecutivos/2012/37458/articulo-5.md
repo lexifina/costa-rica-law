@@ -1,0 +1,1 @@
+Artículo 5.- CONSEJO ACADÉMICO. El Consejo Académico es el órgano asesor que recomienda las políticas generales a aplicar en el ámbito de educación policial, de conformidad con los criterios establecidos en la legislación vigente.

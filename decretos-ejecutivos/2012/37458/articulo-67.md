@@ -1,0 +1,1 @@
+Artículo 67.- VELAR POR EL CUMPLIMIENTO.- Los diferentes órganos administrativos y personal instructor o policial de la institución, están en el deber de velar por el cumplimiento del presente Reglamento reportando cualquier anomalía o transgresión al mismo ante las autoridades correspondientes.

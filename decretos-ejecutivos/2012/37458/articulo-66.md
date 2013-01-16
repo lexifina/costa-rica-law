@@ -1,0 +1,1 @@
+Artículo 66.- PERSONAL POLICIAL QUE UTILIZA LAS INSTALACIONES DE LA ESCUELA NACIONAL DE POLICÍA.- El personal policial que se le autorice el alojamiento, la alimentación y el uso de las instalaciones de la Escuela deberá cumplir a cabalidad con lo estipulado en este reglamento.

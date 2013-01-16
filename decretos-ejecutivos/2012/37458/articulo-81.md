@@ -1,0 +1,4 @@
+Artículo 81.- DE LOS ACTOS IRREGULARES.- Todo acto irregular, comisión de delito o falta del educando que demande la aplicación de una sanción, deberá ajustarse al debido proceso.
+1. En el caso de las faltas leves, se ajustará a lo estipulado en la Ley General de Policía y se instruirá el expediente por parte de superior inmediato en acompañamiento de la Asesoría Jurídica de la Escuela Nacional de Policía.
+2. En el caso de faltas graves deberá remitirse el expediente al Departamento Disciplinario Legal de acuerdo con lo estipulado en la Ley General de Policía.
+3. La Dirección General de la Escuela podrá solicitar al Ministro el cese inmediato de su nombramiento mediante la aplicación del artículo 140 inciso 1) Constitucional, sin perjuicio de aplicar lo establecido en las cláusulas del contrato de adiestramiento suscrito por el estudiante con el Ministerio, que le causará el cese de su nombramiento inmediato.

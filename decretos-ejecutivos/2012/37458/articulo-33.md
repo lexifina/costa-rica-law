@@ -1,0 +1,1 @@
+Artículo 33.- FALSEDAD DE DOCUMENTOS.- En caso de falsedad declarada judicialmente, detectada por un perito o comprobada mediante un proceso de investigación por parte de la Escuela, del grado o título, el acto de reconocimiento, equiparación o convalidación, para cuyo trámite se haya presentado el título que resultó falso, será nulo de pleno derecho.

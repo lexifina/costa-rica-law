@@ -1,0 +1,1 @@
+Artículo 9.- INTEGRACIÓN DE LA COMISIÓN DE ESTUDIOS TÉCNICOS.- La Comisión de Estudios Técnicos estará integrada por el encargado del Departamento Académico quien en este caso fungirá como Secretaría Técnica, el encargado del Departamento de Investigación y Evaluación y el Asesor Legal de la Escuela Nacional de Policía.

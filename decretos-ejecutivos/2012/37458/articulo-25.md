@@ -1,0 +1,2 @@
+Artículo 25.- CURSOS DE CAPACITACIÓN.- Los cursos de capacitación son aquellos diseñados con el fin de fortalecer las habilidades, conocimientos y aptitudes que necesita la población policial.
+La Escuela Nacional de Policía implementará los cursos de capacitación de acuerdo a su capacidad logística y profesional. Se atenderán de manera integral las necesidades educativas de los diferentes subprogramas.

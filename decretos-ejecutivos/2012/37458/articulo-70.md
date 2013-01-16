@@ -1,0 +1,1 @@
+Artículo 70.- ACONDICIONAMIENTO FÍSICO Y ORDEN CERRADO.- Las clases de acondicionamiento físico y orden cerrado serán obligatorias para todos los educandos, salvo casos especiales, de prescripción médica, debidamente justificados ante las autoridades correspondientes.

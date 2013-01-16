@@ -1,0 +1,1 @@
+Artículo 59.- PÉRDIDA DE MATERIAS.- Se considera que el estudiante ha perdido una materia cuando obtiene una nota inferior a setenta en el promedio final una vez concluido el proceso de reposición, por ende pierde su condición de estudiante según lo estipulado en el artículo catorce de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 95.- DEL USO DEL ÁREA DE LAVADO.- Los estudiantes y personal instructor podrán hacer uso del área de lavado sea lavadoras de ropa y secadoras de ropa en un horario previamente establecido por el coordinador de instrucción para el uso eficiente y eficaz del recurso.

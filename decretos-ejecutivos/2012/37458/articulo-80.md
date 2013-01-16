@@ -1,0 +1,1 @@
+Artículo 80.- NO EXCLUSIÓN DE LAS SANCIONES.- Las sanciones de carácter administrativas son independientes de las responsabilidades de orden y disciplina, penales y civiles. Cualquier sentencia judicial o auto con este carácter no es excluyente de la aplicación o exclusión de sanciones administrativas.

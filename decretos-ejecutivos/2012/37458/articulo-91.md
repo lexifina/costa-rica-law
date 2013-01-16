@@ -1,0 +1,13 @@
+Artículo 91.- INSTRUCTOR GUÍA.- Es el instructor encargado de coordinar, orientar al grupo de estudiantes que se le asigne, propiciando la vocación de servicio y la disciplina policial, dentro de sus funciones se encuentran las siguientes:
+1. Colaborar en la organización y conformación de los grupos de estudiantes de nuevo ingreso. (formándolos por orden de tamaño, estableciendo una cadena de mando interna: Distinguido y Jefe de Escuadra).
+2. Colaborar con el Instructor de Servicio de la Unidad Estudiantil en la revisión diaria de los y las estudiantes.
+3. Informar a los estudiantes en los siguientes temas: Régimen Interno, Acoso Sexual y Laboral, Deberes, Derechos y Responsabilidades, Equidad de Género, Leyes y Reglamentos del Ministerio de Seguridad Pública y otros atinentes a su condición de funcionario policial.
+4. Comunicar por escrito a Secretaria Estudiantil las ausencias, llegadas tardías, deserción, disciplina, amonestaciones y otros aspectos de los estudiantes.
+5. Tramitar ante la Unidad de Registro Estudiantil las boletas de incapacidad de los estudiantes.
+6. Llevar un registro y control de las situaciones de rendimiento académico, disciplina, ausencias, permisos, llegadas tardías, incapacidades, amonestaciones y otros aspectos relacionados con los estudiantes.
+7. Verificar y llevar un control de la asistencia de los y las estudiantes para lo cual deberá de realizar un conteo y completar el parte de grupo diario, el cual debe remitir al Oficial de Servicio de Unidad Estudiantil.
+8. Supervisar las labores diarias y comportamiento de su grupo en las aulas de clase, dormitorios, comedor y otras áreas internas y externas de la Escuela Nacional de Policía (aseo, orden, disciplina)
+9. Planificar y desarrollar actividades de orientación colectiva de los grupos a su cargo, de acuerdo con los lineamientos emanados por la Escuela Nacional de Policía y Ministerio de Seguridad Pública, adecuándolos a las necesidades reales de su comunidad educativa; con el fin de fortalecer el desarrollo vocacional de los estudiantes.
+10. Atender y referir ante Secretaria Estudiantil las situaciones de los estudiantes que requieren atención especializada, dar seguimiento a la evolución de estas situaciones, para emitir criterios al respecto.
+11. Participar en la planificación, ejecución y evaluación de actividades orientadas a la atención de la disciplina, ética y otras conductas y habilidades de los estudiantes en formación.
+12. Confeccionar y mantener actualizados los expedientes acumulativos de los estudiantes, los cuales se deben remitir a la Unidad de Registro Estudiantil.

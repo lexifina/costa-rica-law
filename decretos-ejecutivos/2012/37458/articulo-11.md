@@ -1,0 +1,1 @@
+Artículo 11.- SECRETARÍA ESTUDIANTIL.- La Secretaría Estudiantil es la instancia que vela por la población estudiantil en aspectos tales como control administrativo, control disciplinario y asuntos estudiantiles.

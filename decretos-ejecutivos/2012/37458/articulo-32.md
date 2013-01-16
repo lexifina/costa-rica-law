@@ -1,0 +1,1 @@
+Artículo 32.- PLAZOS PARA LA SOLICITUD DEL RECONOCIMIENTO Y EQUIPARACIÓN.- Los plazos para recibir la solicitud de reconocimiento y equiparación, serán en el primer trimestre que comprende los días laborales de los meses de enero a marzo y último trimestre del año que comprende de los meses de setiembre a diciembre.

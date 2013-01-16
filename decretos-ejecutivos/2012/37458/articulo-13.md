@@ -1,0 +1,1 @@
+Artículo 13.- CONDICIÓN DE ESTUDIANTES. Son estudiantes quienes habiendo superado el proceso de selección, se encuentren dentro de los programas de formación, capacitación y especialización ofrecidos por la Escuela Nacional de Policía.

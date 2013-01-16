@@ -1,0 +1,1 @@
+Artículo 79.- ACTOS O CONDUCTAS QUE NO ALCANCEN LA CONSIDERACIÓN DE FALTA LEVE.- Los casos en que los actos y conductas no alcanzaren la consideración de falta leve, por corresponder a un nivel inferior a este, serán corregidos por el Instructor, instructor guía o funcionario competente, con el apercibimiento oral respectivo.
