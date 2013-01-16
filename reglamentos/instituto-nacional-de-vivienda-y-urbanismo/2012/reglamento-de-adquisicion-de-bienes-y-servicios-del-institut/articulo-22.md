@@ -1,0 +1,1 @@
+Artículo 22: La ejecución de garantías: Se regulará según lo dispuesto en los artículos 39 y 41 del Reglamento. La ejecución de las garantías de participación y cumplimiento no excluye el cobro de daños y perjuicios ocasionados a la Institución por el incumplimiento del oferente o del contratista ni la aplicación de las cláusulas penales expresamente contempladas en el contrato.

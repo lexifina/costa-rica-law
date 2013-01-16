@@ -1,0 +1,1 @@
+Artículo 16: Aprobación de cartel: Todo cartel deberá contar con la aprobación de la Gerencia General, previa valoración de la Comisión de Recomendación de Adjudicaciones, a excepción de las contrataciones de escasa cuantía, quien las aprobará el Proceso de Proveeduría.

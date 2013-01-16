@@ -1,0 +1,1 @@
+Artículo 17: Multas y Cláusulas Penales: Deberá de establecerse en el cartel, el pago de las multas con los supuestos, montos y el detalle de los incumplimientos que originan el cobro de la multa. La cláusula penal procede por ejecución tardía o prematura de las obligaciones contractuales.

@@ -1,0 +1,1 @@
+Artículo 38: Responsabilidad del contratista: El contratista será el responsable de los daños y perjuicios ocasionados por el incumplimiento de lo pactado por un período de 5 años contados a partir del recibo. Si se tratara de obras públicas el término para reclamar la indemnización por vicios ocultos será por 10 años a partir del recibo de la obra.

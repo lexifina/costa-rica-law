@@ -1,0 +1,1 @@
+Artículo 13: Sistema Integrado de Actividad Contractual: Será responsabilidad del Departamento de Proveeduría el registro de toda información sobre la actividad contractual en el Sistema Integrado de Actividad Contractual (SIAC), de conformidad con lo que establece la Contraloría General de la República.

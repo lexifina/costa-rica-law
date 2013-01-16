@@ -1,0 +1,1 @@
+Artículo 19: Control y vigencia de las garantías: La vigencia de las garantías de participación y de cumplimiento se regirán por lo estipulado en el artículo 43 del Reglamento de Contratación Administrativa. Corresponderá a Proveeduría llevar el control y vigencia de las garantías de participación pero la recepción y custodia es responsabilidad del Proceso de Tesorería.

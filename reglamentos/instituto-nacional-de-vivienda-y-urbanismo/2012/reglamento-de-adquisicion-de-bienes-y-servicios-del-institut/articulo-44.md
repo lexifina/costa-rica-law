@@ -1,0 +1,1 @@
+Artículo 44: Forman parte del presente Reglamento el Manual de Funciones y Procedimientos del Proceso de Proveeduría, el cual deberá ser revisado y actualizado cada seis meses, por la Gerencia General, que será la encargada de velar por el cumplimiento de lo aquí dispuesto.
