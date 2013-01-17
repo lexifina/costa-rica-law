@@ -13,3 +13,4 @@ Disponibilidad en materia penal juvenil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-11 | la propia norma |
+| 2 | 2013-01-17 | Circular 7 (2013-01-17) |
