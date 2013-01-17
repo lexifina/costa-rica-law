@@ -1,1 +1,0 @@
-ARTICULO 3.- De los arqueos: La Dirección Administrativa-Financiera (o quien sea designado por esa Dirección) deberá realizar arqueos sorpresivos de las cajas chicas, por lo menos una vez por semestre, o bien en el momento que se considere necesario.
