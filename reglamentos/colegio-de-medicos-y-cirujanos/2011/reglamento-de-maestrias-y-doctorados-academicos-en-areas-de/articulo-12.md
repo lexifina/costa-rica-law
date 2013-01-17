@@ -1,1 +1,0 @@
-Artículo 12.—Se deroga la Normativa de Maestrías y Doctorados Académicos del Colegio de Médicos y Cirujanos, aprobado por la Junta de Gobierno en Sesión Ordinaria 2008.01.16, celebrada el 16 de enero de 2008 y publicada en La Gaceta Nº 50 del martes 11 de marzo de 2008 y toda disposición legal de igual rango o rango inferior que rija sobre la materia y que se le oponga.

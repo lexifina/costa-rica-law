@@ -1,2 +1,0 @@
-Artículo 2º—Podrá inscribirse en una Maestría o Doctorado Académico en áreas de las Ciencias Médicas, el médico y cirujano, debidamente inscrito ante el Colegio de Médicos y Cirujanos, que demuestre ante la Junta de Gobierno del Colegio, el cumplimiento a cabalidad de los requisitos, establecido por este Reglamento.
-Para ello deberá presentar solicitud escrita ante dicha Junta de Gobierno del Colegio de Médicos y Cirujanos, y cumplir con los requisitos generales que establece el artículo 3° del presente reglamento.

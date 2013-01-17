@@ -1,1 +1,0 @@
-II. Este transitorio tendrán una vigencia de 2 años, a partir de la fecha de aprobación del presente Reglamento y su respectiva publicación en el Diario Oficial La Gaceta; automáticamente una vez cumplido este plazo, quedará sin vigencia su aplicación.
