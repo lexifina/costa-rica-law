@@ -1,0 +1,1 @@
+Artículo 31: Acuerdos firmes y definitivamente aprobados: Los acuerdos tomados por el Concejo, quedarán firmes al aprobarse el acta respectiva. Cuando el Concejo lo estime conveniente, por razones de oportunidad y conveniencia, por votación de las dos terceras partes de la totalidad de sus miembros podrá declarar sus acuerdos como definitivamente aprobados.

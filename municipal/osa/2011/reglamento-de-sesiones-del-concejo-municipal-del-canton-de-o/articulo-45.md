@@ -1,0 +1,1 @@
+Artículo 45: Mociones: En el capítulo de Mociones, los (as) Regidores y la Alcaldía presentaran las mismas por escrito y firmadas. La secretaría le anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

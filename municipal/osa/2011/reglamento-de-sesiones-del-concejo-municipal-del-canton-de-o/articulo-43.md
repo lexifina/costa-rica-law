@@ -1,0 +1,1 @@
+Artículo 43: Audiencias Públicas: El Concejo recibirá un máximo de tres audiencias las primeras y terceras Sesiones Ordinarias de cada mes, en las que, quienes la hayan solicitado, tendrán 20 minutos para hacer su exposición.

@@ -1,0 +1,1 @@
+Artículo 22: Del quórum: El quórum de las sesiones será la mitad más uno de las personas que integran el Concejo. Deberán encontrarse en el Salón de Sesiones, ocupando sus respectivas curules al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

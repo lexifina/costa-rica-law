@@ -1,0 +1,1 @@
+Artículo 26: Convocatoria a sesiones extraordinarias: A las Sesiones Extraordinarias se convocará a las y los Regidores Propietarios y Suplentes, y a las y los Síndicos Propietarios y Suplentes, y se conocerán exclusivamente los asuntos indicados en la convocatoria.
