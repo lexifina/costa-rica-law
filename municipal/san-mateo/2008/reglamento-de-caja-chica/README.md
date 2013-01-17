@@ -17,3 +17,4 @@ Reglamento de Caja Chica
 | 2 | 2010-01-18 | Reglamento municipal 193 (2010-01-18) |
 | 3 | 2010-02-08 | Reglamento municipal 196 (2010-02-08) |
 | 4 | 2010-05-17 | Reglamento municipal 3 (2010-05-17) |
+| 5 | 2013-01-17 | Reglamento municipal 141 (2013-01-17) |
