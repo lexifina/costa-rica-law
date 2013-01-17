@@ -1,2 +1,0 @@
-Artículo 6º—En caso de no aprobar el examen, el solicitante puede realizar una nueva solicitud, pasados seis meses.
-Si no aprobare el examen en segunda ocasión, podrá presentarlo a los seis meses siguientes con las mismas condiciones indicadas y si en esa ocasión tampoco fuere aprobado deberá esperar un año para una nueva presentación y así sucesivamente en caso de no aprobar en las siguientes ocasiones.

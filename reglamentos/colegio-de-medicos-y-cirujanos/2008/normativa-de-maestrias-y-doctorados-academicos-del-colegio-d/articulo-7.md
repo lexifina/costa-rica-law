@@ -1,1 +1,0 @@
-Artículo 7º—La Junta de Gobierno mantendrá actualizado el Registro de Médicos inscritos en cada uno de los postgrados existentes y enviará anualmente copia de la misma a las Instituciones contratantes de servicios médicos.

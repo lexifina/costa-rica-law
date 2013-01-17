@@ -1,4 +1,0 @@
-Doctorados
-Artículo 3º—Podrá inscribirse en el Colegio de Médicos y Cirujanos como máster o doctor (académico); el médico cirujano inscrito en el Colegio de Médicos y Cirujanos que demuestre ante la Junta de Gobierno del Colegio haber cumplido satisfactoriamente el adiestramiento de postgrado. Para ello deberá presentar solicitud escrita ante dicha Junta, acompañando los requisitos que establece el artículo 4º de la presente normativa.
-Todos los documentos provenientes del exterior, deberán ser presentados con las autenticaciones de las Autoridades del país de origen, la del Cónsul de Costa Rica en dicho país y el Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica.
-Aquellos documentos que vengan en otro idioma, deberán ser traducidos al idioma español por un traductor oficial.

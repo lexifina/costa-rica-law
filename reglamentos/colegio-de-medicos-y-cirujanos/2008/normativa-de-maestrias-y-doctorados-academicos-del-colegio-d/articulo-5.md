@@ -1,2 +1,0 @@
-Artículo 5º—El solicitante tendrá derecho a recusar los miembros del Jurado. La recusación deberá ser presentada a la Junta de Gobierno a más tardar ocho días hábiles después se serle notificada al solicitante la integración del Jurado Calificador, exponiendo y fundamentando los motivos por los cuales debe recusarse al miembro del Jurado.
-La Junta de Gobierno analizará la solicitud y la resolverá, aceptando o denegando la recusación, en este último caso deberá fundamentar su decisión.
