@@ -1,0 +1,2 @@
+2. ALCANCE
+Este procedimiento se realizó de conformidad con lo establecido en el artículo 2 Bis, inciso c) de la Ley de Contratación Administrativa y a los términos establecidos por la Contraloría General de la República en su oficio de autorización. Los servicios a contratar se refieren a servicios operativos asociados a las tarjetas, tales como pagos y adelantos de efectivo de las tarjetas de crédito VISA Banco Popular, retiros de efectivo de tarjetas de débito del Banco Popular.
