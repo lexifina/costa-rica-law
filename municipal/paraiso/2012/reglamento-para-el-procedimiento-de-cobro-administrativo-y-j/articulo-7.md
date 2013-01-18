@@ -1,0 +1,2 @@
+Artículo 7º—Horario de actuaciones. Los funcionarios de la Sección de Cobros actuarán normalmente en horas y días hábiles. Sin embargo, podrán actuar fuera de esas horas y días, cuando sea necesario para lograr el cumplimiento de sus deberes de gestión, fiscalización o recaudación tributaria.
+En estos casos no se requerirá la habilitación de horas.
