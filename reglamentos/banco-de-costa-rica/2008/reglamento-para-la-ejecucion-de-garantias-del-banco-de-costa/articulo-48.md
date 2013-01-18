@@ -1,2 +1,0 @@
-Artículo 48.—Si el Banco se adjudica los bienes objeto del remate, una vez firme, el abogado director tendrá 30 días naturales para presentar ante el Registro Público la respectiva protocolización de piezas. Una vez inscrito deberá enviar el testimonio al CSOR respectivo.
-Si el proceso es dirigido por un Abogado de planta, éste coordinará la protocolización de piezas con la Unidad de Notarios Institucionales; en estos casos aplicará el plazo anterior para efectos de presentación de la protocolización en el Registro Público.

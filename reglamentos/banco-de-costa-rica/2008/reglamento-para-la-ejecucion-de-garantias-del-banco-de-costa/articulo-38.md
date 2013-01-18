@@ -1,1 +1,0 @@
-Artículo 38.—En los procesos de ejecución prendaria se deberá practicar embargo de bienes e inspección ocular, a fin de comprobar oportunamente la existencia y estado de estos. Si el obligado no presenta los bienes prendados una vez que se le previene, el abogado recomendará al Banco si procede o no acudir a la vía penal.

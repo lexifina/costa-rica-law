@@ -1,1 +1,0 @@
-Artículo 47.—En caso de tercer remate, de haber oferentes, se aplicará lo dispuesto en el Artículo 46 anterior. Si no hubiere postores, el Banco será el adjudicatario del bien por el veinticinco por ciento (25%) de la base original.

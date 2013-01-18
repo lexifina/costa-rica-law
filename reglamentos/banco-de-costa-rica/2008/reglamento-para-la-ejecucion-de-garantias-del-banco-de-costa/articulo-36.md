@@ -1,1 +1,0 @@
-Artículo 36.—Una vez dictada la sentencia en los procesos monitorios, no se podrá solicitar la terminación definitiva del proceso, aunque existan negociaciones en trámite; con la excepción de que el crédito sea cancelado.

@@ -1,2 +1,0 @@
-Artículo 52.—En el caso de procesos ejecutivos simples o monitorios que resultan incobrables, estando firme la sentencia o la resolución intimatoria y establecida la inexistencia de bienes perseguibles dentro de la ejecución de garantías, el Banco abonará la última tercera parte de los honorarios al verificar el respectivo informe justificativo del abogado externo donde así lo indica.
-(Así reformado y publicado en La Gaceta N° 15 del 22 de enero de 2010)

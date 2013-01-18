@@ -1,2 +1,0 @@
-Artículo 26.—Los abogados no podrán tramitar ejecuciones de garantías en las que tengan parentesco hasta el cuarto grado por afinidad o consanguinidad con las partes a demandar, o que ostenten cualquier forma de representación o participación en las personas jurídicas involucradas.
-Asimismo, si el abogado tiene cualquier otro impedimento para tramitar la ejecución, deberá renunciar a la dirección del proceso, lo cual informará al CSOR respectivo.

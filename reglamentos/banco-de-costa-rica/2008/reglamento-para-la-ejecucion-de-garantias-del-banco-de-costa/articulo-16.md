@@ -1,1 +1,0 @@
-Artículo 16.—Será obligación de los abogados directores presentar al proceso las liquidaciones anuales de intereses y velar que su aprobación sea en los términos solicitados. El CSOR respectivo suministrará a pedido del abogado director el cálculo de los intereses. Esta gestión deberá realizarse aún cuando el proceso esté suspendido provisionalmente.

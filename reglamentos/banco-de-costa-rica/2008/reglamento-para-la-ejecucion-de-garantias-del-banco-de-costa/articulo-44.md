@@ -1,1 +1,0 @@
-Artículo 44.—El abogado deberá informar del resultado del remate el día hábil siguiente a su celebración y si los bienes se hubiesen adjudicado, deberá efectuar las gestiones que sean necesarias para que la aprobación y firmeza de dicho remate se dé en el menor plazo posible.

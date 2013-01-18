@@ -1,1 +1,0 @@
-Artículo 55.—Los procesos ordinarios que se deriven del proceso de ejecución de garantías y concursales indicados en el Artículo 20, serán atendidos por los abogados de la Gerencia Jurídica de Procesos Judiciales, quienes no devengarán honorarios por estas gestiones.

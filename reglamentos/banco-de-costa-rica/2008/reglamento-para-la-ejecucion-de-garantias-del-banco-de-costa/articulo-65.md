@@ -1,2 +1,0 @@
-Artículo 65.—Los órganos colegiados y los Gerentes de Zona 2 Comercial, conjuntamente con otro funcionario de igual o mayor nivel con atribuciones conferidas en el Reglamento General de Crédito, podrán declarar incobrables y autorizar que se liquide en dicha cuenta aquellos créditos con un saldo de capital mayor a US$1.000,00 y hasta por US$5.000,00 o su equivalente en moneda nacional.
-Operaciones con un saldo de capital mayor a US$5.000,00

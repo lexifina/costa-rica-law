@@ -1,1 +1,0 @@
-Artículo 67.—Toda operación a pasar a incobrables, independientemente de su monto, debe contar con el informe justificativo que lo respalde, incluyendo el análisis costo-beneficio, cuando corresponda.

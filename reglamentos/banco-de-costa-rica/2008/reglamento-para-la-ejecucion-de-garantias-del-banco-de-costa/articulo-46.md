@@ -1,1 +1,0 @@
-Artículo 46.—En primer o segundo remate, si hay oferentes, se elevará la oferta hasta cubrir el saldo de capital, intereses, gastos judiciales y honorarios. Si el avalúo fuere inferior a la liquidación total de la deuda, la oferta del Banco podrá hacerse hasta el 100% del avalúo.

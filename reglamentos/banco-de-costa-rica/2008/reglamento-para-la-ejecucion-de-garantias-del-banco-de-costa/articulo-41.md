@@ -1,1 +1,0 @@
-Artículo 41.—Para practicar un embargo sobre bienes que no fueron dados en garantía, el abogado deberá, junto con la Gerencia de Zona Comercial o el CSOR, hacer los estudios costo-beneficio necesarios para determinar la conveniencia o no de practicarlo.

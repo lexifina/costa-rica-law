@@ -1,2 +1,0 @@
-Artículo 17.—Los abogados directores deben rendir cada cuatro meses un informe cronológico de las gestiones y resoluciones logradas en ese período en los juicios bajo su dirección, a las Gerencias de Zona Comercial o al CSOR, según corresponda. No obstante, cuando le sea solicitada, deberán rendir información de cualquiera de los juicios en un plazo no mayor a cinco días hábiles, según sea la urgencia y la magnitud del informe requerido.
-(Así reformado y publicado en La Gaceta N° 15 del 22 de enero de 2010)

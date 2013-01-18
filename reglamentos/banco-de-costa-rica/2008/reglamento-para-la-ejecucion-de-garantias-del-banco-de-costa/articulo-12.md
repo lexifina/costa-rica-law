@@ -1,1 +1,0 @@
-Artículo 12.—Es deber de los abogados coordinar y llevar adelante dentro de los plazos otorgados por la autoridad jurisdiccional, los remates, las inspecciones oculares y embargos, así como cualquier otra diligencia que fuere necesaria. Para ello coordinará dichas gestiones con las Gerencias de Zona Comerciales o con el CSOR, según corresponda.

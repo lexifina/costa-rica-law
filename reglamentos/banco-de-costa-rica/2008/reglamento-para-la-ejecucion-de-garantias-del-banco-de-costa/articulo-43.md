@@ -1,3 +1,0 @@
-SECCIÓN II
-Remates
-Artículo 43.—Es responsabilidad del abogado del juicio, velar por que el edicto de remate se publique correctamente y en tiempo. Deberá verificar que las partes se encuentren notificadas, constatando con antelación que las comisiones estén cumplidas; de lo contrario, no se resarcirá el valor del edicto. Asimismo, dentro de los tres días hábiles inmediatos después que salió publicado, deberá enviar copia al CSOR para que se prepare lo concerniente a la oferta en el remate. Con tres días de anticipación al remate, deberá ponerse en contacto con la Gerencia de Zona respectiva o con el CSOR, según corresponda, a fin de conocer cualquier circunstancia que pueda incidir en el resultado del remate.

@@ -1,1 +1,0 @@
-Artículo 42.—Tratándose de embargo de salarios, corresponde al abogado director del proceso velar porque el juzgado esté recibiendo las retenciones en el expediente correspondiente, y tramitar su giro inmediato a favor del Banco.

@@ -1,1 +1,0 @@
-Artículo 34.—En caso de suspensión provisional no se levantará el embargo sobre bienes de los obligados. Sólo en los casos de terminación definitiva de la ejecución se ordenará el levantamiento de embargos, de conformidad con el procedimiento establecido por el Banco.

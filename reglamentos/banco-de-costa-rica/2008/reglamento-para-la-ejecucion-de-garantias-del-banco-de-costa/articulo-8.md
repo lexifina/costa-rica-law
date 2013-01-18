@@ -1,3 +1,0 @@
-Artículo 8º—Es obligación de los abogados brindar asesoría oportuna a las Gerencias (Comercial al Detalle o Empresarial e Institucional), o al Oficial del CSOR responsable del seguimiento de la cartera en ejecución de garantías, con respecto a los asuntos bajo su dirección; además, sugerir alternativas que faciliten recuperar operaciones en ejecución de garantías.
-Estos profesionales deberán acatar las disposiciones de carácter general e instrucciones, que le sean comunicadas a través de cartas, circulares u otros medios; no obstante lo anterior, el abogado director deberá manifestar oportunamente mediante documento si considera inconveniente o riesgosa alguna instrucción que se le gire.
-(Así reformado y publicado en La Gaceta N° 15 del 22 de enero de 2010)

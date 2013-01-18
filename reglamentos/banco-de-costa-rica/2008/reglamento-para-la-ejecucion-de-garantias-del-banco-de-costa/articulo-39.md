@@ -1,1 +1,0 @@
-Artículo 39.—Si en virtud de la inspección ocular se comprueba que los bienes están sumamente deteriorados, el abogado deberá recomendar por escrito sobre la conveniencia y posibilidad de perseguir otros bienes, conforme lo preceptuado en el numeral 12 de la Ley de Cobro Judicial.

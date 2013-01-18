@@ -1,1 +1,0 @@
-Transitorio. Las operaciones cuya demanda fue debidamente cursada antes de la fecha de entrada en vigencia de la Ley de Cobro Judicial, se regirán por la normativa para la ejecución de garantías vigente al momento de habérsele dado curso.

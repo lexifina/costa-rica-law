@@ -1,2 +1,0 @@
-Artículo 10.—En todos los juicios hipotecarios y prendarios, se solicitará en el escrito de la demanda, a la autoridad jurisdiccional que ordene la anotación de la misma en el Registro Público de la Propiedad tanto para bienes muebles como inmuebles, según corresponda, y diligenciar lo pertinente para que se lleve a cabo, así como gestionar la interrupción de la prescripción de las obligaciones en el Registro Público.
-El abogado director será responsable de que la anotación de la demanda se mantenga en vigencia.
