@@ -1,0 +1,3 @@
+Artículo 4º.- Requerimientos de información a terceros relacionados.
+En el caso de convenios internacionales de intercambio de información tributaria, la justificación que motive el requerimiento de la información a un tercero, se limita a la verificación de que la solicitud cumple con lo establecido en el convenio internacional suscrito, teniéndose tal supuesto como indicador de que la información debe considerarse como previsiblemente pertinente.
+La prohibición de los incisos a), b), c) y d) del artículo 105 del Código de Normas y Procedimientos Tributarios no aplica cuando el requerimiento se fundamente en el vínculo económico entre el tercero requerido y el obligado tributario respecto del cual se solicita la información.

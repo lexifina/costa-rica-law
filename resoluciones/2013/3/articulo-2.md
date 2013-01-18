@@ -1,0 +1,2 @@
+Artículo 2º.- Competencia en el trámite de solicitud de información financiera.
+Cuando se haya solicitado información financiera por parte de otra jurisdicción, en aplicación de un convenio internacional que contemple el intercambio de información de esta naturaleza, el procedimiento señalado en el artículo 106 ter del Código de Normas y Procedimientos Tributarios únicamente será llevado a cabo por el Director General de Tributación, a través de la Dirección de Tributación Internacional y Técnica Tributaria.

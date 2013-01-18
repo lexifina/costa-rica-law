@@ -1,0 +1,2 @@
+Artículo 7º.- Sello de confidencialidad en el intercambio internacional de información tributaria.
+La respuesta a la solicitud del Estado contratante y toda la información que se remita a otra jurisdicción bajo el amparo de un convenio internacional que contemple el intercambio de información en materia tributaria, debe llevar un sello en el cual se indique que esa información es confidencial y proporcionada bajo el amparo de un convenio internacional con otra jurisdicción, por lo que su uso y manejo debe ajustarse a lo regulado en el convenio.
