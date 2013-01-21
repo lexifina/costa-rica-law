@@ -11,6 +11,6 @@ i) Mantener actualizada la información proporcionada a la Unidad de Origen como
 j) Enviar los informes, reportes y cualquier documento solicitado por la Unidad de Origen en los plazos previstos, así como colaborar con tal autoridad para el ejercicio de sus funciones.
 k) Otorgar la mayor colaboración a los funcionarios de la Unidad de Origen para el ejercicio de sus funciones de control, incluyendo un área de trabajo con las condiciones básicas y acceso a los sistemas informáticos para que el funcionario pueda ejecutar sus labores, cuando así se requiera.
 l) Notificar a la Unidad de Origen cuando tenga razones para creer que la certificación o declaración de origen contiene información incorrecta, lo cual deberá hacerlo por escrito y de forma inmediata.
-m) Estar al día con todas las obligaciones obrero-patronales con la Caja Costarricense de Seguro Social.
-n) Estar inscrito en el Registro de Contribuyentes del Ministerio de Hacienda.
-En caso de incumplimiento de alguna de las obligaciones indicadas en los incisos anteriores, no se tramitarán nuevas solicitudes de certificados de origen hasta tanto se subsanen las omisiones.
+m) Estar inscrito en el Registro de Contribuyentes del Ministerio de Hacienda.
+El incumplimiento de estas obligaciones, así como los demás requisitos establecidos en el presente Reglamento, impedirá a la Unidad de Origen la emisión del certificado correspondiente. Este impedimento subsistirá hasta tanto el solicitante no haya cumplido con dichas obligaciones y requisitos ante la Unidad de Origen.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37550 del 21 de enero de 2013)
