@@ -1,0 +1,11 @@
+ARTÍCULO 9. - DE LOS DEBERES DE QUIENES INTEGRAN EL CUERPO NACIONAL DE DELEGADOS. En el cumplimiento de sus atribuciones constitucionales, legales y reglamentarias, los delegados observarán los siguientes deberes:
+a) Cumplir todas sus funciones con la responsabilidad, diligencia y probidad inherentes al cargo. Estarán siempre atentos, procurando mantener el control de las acciones que se les encomienden.
+b) Poner todo su empeño en ser totalmente objetivos e imparciales en sus juicios y actuaciones, evitando perjudicar a alguien con ello.
+c) Actuar siempre con transparencia, consideración y honestidad, sirviendo en el marco de la legalidad y el respeto hacia los demás.
+d) Ayudar a los distintos actores de los procesos electorales y consultivos, siempre que con ello no se vea comprometido su deber de imparcialidad, tratando de no entorpecerles con un acoso indebido o un comportamiento autoritario.
+e) Mantener sus opiniones para sí mismos y respetar las creencias de cualquier persona o grupo en el ámbito de la contienda electoral o consulta popular.
+f) Procurar mantenerse en conocimiento de toda la normativa que involucra el desempeño de sus actividades como delegados, haciendo consciencia, con ello, de la importancia que tiene el actuar apegado al ordenamiento jurídico.
+g) Atender con prontitud y responsabilidad el llamado que sus superiores les hagan sobre las diferentes actividades que requieran de su presencia o participación. Durante el desarrollo de una actividad en la que actúen como delegados, su atención se centrará en cumplir y hacer cumplir las disposiciones vigentes e instrucciones que se les impartan acerca de esta, con la debida autoridad pero con el respeto que los demás se merecen.
+h) Evitar el consumo de bebidas alcohólicas o drogas de uso no permitido antes y durante una actividad en la que funjan como delegados.
+i) Honrar en todo momento las diferentes credenciales, insignias y distintivos que les fueron dados, en el entendido de que constituyen los símbolos de la investidura de servicio que ostentan.
+j) Procurar comunicarse adecuadamente con sus compañeros y superiores, evitando recurrir a formas que puedan más bien generar daño al Cuerpo o desunión entre sus miembros.
