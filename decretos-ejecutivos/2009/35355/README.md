@@ -15,3 +15,4 @@ Reglamento de Evaluación de los Aprendizajes
 | --- | --- | --- |
 | 1 | 2009-07-14 | la propia norma |
 | 2 | 2009-08-10 | Decreto Ejecutivo 35480 (2009-08-10) |
+| 3 | 2013-01-22 | Decreto Ejecutivo 37502 (2013-01-22) |
