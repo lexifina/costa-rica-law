@@ -1,0 +1,1 @@
+Artículo 2º—Los tribunales colegiados de la República, contarán con un presidente quien asumirá el recargo de las funciones administrativas del despacho. Igualmente, cuando en los tribunales exista más de una sección, habrá un coordinador encargado de las funciones propias del recargo.

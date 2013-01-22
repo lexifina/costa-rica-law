@@ -1,0 +1,1 @@
+Artículo 3º—Los presidentes y coordinadores serán nombrados por períodos fijos de cuatro años, aunque dicho recargo de funciones administrativas podrá suspenderse o perderse antes de ese plazo por las razones contempladas por la Ley Orgánica –

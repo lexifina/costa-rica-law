@@ -1,0 +1,1 @@
+Artículo 5º—Tanto el nombramiento de presidente cuanto el de coordinador, se harán por votación secreta. El de presidente por mayoría de la totalidad de los integrantes del respectivo tribunal colegiado. El de coordinador por mayoría de los integrantes de la respectiva sección.

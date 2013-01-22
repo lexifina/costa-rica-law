@@ -1,0 +1,1 @@
+Artículo 7º—Mientras se encuentren en la situación o condición de recargo de funciones, los presidentes y coordinadores en los tribunales colegiados, devengarán por tal concepto, el incremento salarial establecido al efecto. Una vez que cese o se suspenda dicho nombramiento dejarán de percibir ese aumento el cual no se considera derecho adquirido.
