@@ -1,1 +1,0 @@
-Artículo 18.—Daños o colisión de vehículo sin otro involucrado. En los casos en que a un conductor o chofer le dañen el vehículo, sin lograr identificar quién o qué lo realizó, deberá reportar el incidente de forma inmediata a la entidad aseguradora, Policía de Tránsito y Oficina de Transportes y mantener el vehículo en el propio lugar de los hechos

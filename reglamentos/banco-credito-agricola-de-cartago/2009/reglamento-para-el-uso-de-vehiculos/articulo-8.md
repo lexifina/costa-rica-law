@@ -1,1 +1,0 @@
-Artículo 8º—De los Seguros. Todos los vehículos deberán estar cubiertos por una póliza de seguro para flotilla, que cubra al menos lesión o muerte de personas, daños a la propiedad de terceros, robo o hurto y colisión y vuelco.

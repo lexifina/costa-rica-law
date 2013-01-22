@@ -1,3 +1,0 @@
-Artículo 9º—Del control y mantenimiento de vehículos. El control y mantenimiento de los vehículos del Banco, es responsabilidad de la Oficina de Transportes o del superior jerárquico de la Unidad Administrativa a la cual se le ha asignado.
-En el caso de vehículos de uso discrecional, la Oficina de Transportes ejercerá el control sobre el estado del vehículo, kilometraje y mantenimiento que se le deba brindar.
-En los casos de los vehículos que hayan sido asignados a Centros de Negocios u oficinas en particular, los responsables serán los titulares de esas unidades, debiendo coordinar lo pertinente con la Oficina de Transportes para el debido control y mantenimiento de los vehículos.
