@@ -1,0 +1,10 @@
+Artículo 12.—De la Comisión de Transferencias. Se crea la Comisión de Transferencias, integrada por un representante de la Dirección de Hacienda y su suplente -quien la presidirá-, el Planificador Municipal, un representante de la Dirección Urbana y su suplente. Todos designados por el/la señor(a) Alcalde(a), los/las cuales fungirán como un órgano colegiado que sesionará ordinariamente la cuarta semana de cada mes y extraordinariamente cuando la convoque el/la Presidente(a). Esta Comisión tendrá las siguientes funciones:
+a. Coordinar con la Plataforma de Servicios, la solicitud del expediente administrativo de las organizaciones solicitantes de transferencias de recursos.
+b. Verificar que los documentos presentados por cada organización privada solicitante de recursos, cumpla con los requisitos establecidos en este reglamento.
+c. Realizar audiencia oral y pública a cada entidad privada solicitante “exposición y defensa del programa o proyecto”.
+d. Rendir al señor (a) Alcalde(a) un criterio técnico no vinculante de cada una de las solicitudes de transferencias presentadas por las Asociaciones y Fundaciones, con la respectiva recomendación para su aprobación o denegación posterior por parte del Concejo Municipal.
+e. Conocer los informes mensuales de seguimiento de avance de la ejecución de los distintos convenios que le presente la Auditoría Interna y demás informes de liquidación respectivos, así como recomendar oportunamente al(a) Alcalde(o) las acciones que estimen más apropiadas.
+f. Programar visitas y otros medios de control por parte del personal competente, conforme con las áreas críticas de valoración de riesgo que se determinen. Lo anterior, sin perjuicio de la fiscalización que debe ejercer la Auditoría Interna de la Municipalidad.
+g. Gestionar el apoyo especializado que se requiera en cada caso, incluyendo el que puedan proporcionar los Colegios Profesionales.
+h. Rendir un informe anual al(a) Alcalde(a) consignando recomendaciones y mejores prácticas en la materia.
+i. Otras tareas que el Alcalde(a) le asigne.
