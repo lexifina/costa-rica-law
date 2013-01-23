@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la regulación de bebidas con contenido alcohólico
+Artículo 7º—Fiscalización: el Departamento de Patentes, deberá fiscalizar la buena marcha de las actividades autorizadas en aras de controlar la continuidad normal de la explotación de la actividad, la revocatoria de la licencia, o la renovación de la misma, para lo cual la administración deberá proveer los recursos tecnológicos, económicos y humanos necesarios que le permitan realizar esta labor.
