@@ -2,7 +2,7 @@ Artículo 32.—Orden del día. El orden del día es la lista de las proposicion
 El orden del día de cada sesión se aprobará por mayoría simple de los miembros presentes, al inicio de la respectiva sesión.
 El Presidente del Consejo preparará, con la asistencia del Secretario, el orden del día o la agenda de las sesiones del Consejo. El orden del día de sesiones ordinarias, necesariamente deberá incluir los siguientes capítulos:
 a) Asuntos del Consejo.
-b) Propuestas de los miembros del Consejo.
+b) Propuestas de los miembros del Consejo
 c) Asuntos como materias de cada una de las Direcciones de la Superintendencia.
 Al confeccionar el orden del día, el Presidente incluirá dentro del capítulo de “Propuestas de los (las) otros (as) miembros del Consejo” aquellos temas que ha pedido de algún miembro del Consejo se le hubiere formulado al menos con tres días naturales de antelación, salvo casos de urgencia. No se podrán conocer asuntos propuestos por los miembros del Consejo que no cumplan con lo anteriormente indicado, salvo que así lo acuerde el Consejo por mayoría absoluta.
 La correspondencia dirigida al Consejo, se elevará a su conocimiento, en la sesión inmediata siguiente a la fecha en la que haya sido recibida por la Secretaría del Consejo, salvo en aquellos casos cuya urgencia requiera ponerla en conocimiento de previo.

@@ -14,3 +14,4 @@ Disposiciones internas de orden, dirección y deliberaciones del Consejo de la S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-23 | la propia norma |
+| 2 | 2013-01-23 | Circular 3 (2013-01-23) |
