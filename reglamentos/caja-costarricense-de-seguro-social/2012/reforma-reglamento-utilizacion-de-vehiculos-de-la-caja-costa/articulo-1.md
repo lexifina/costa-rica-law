@@ -1,0 +1,9 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+APROBACIÓN REFORMA REGLAMENTARIA
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 44º de la sesión 8613, celebrada el 29 de noviembre de 2012 acordó modificar los artículos 6º y 11º del “Reglamento para la utilización de vehículos de la Caja Costarricense de Seguro Social”, para que en adelante se lean así:
+“REGLAMENTO PARA LA UTILIZACIÓN DE VEHÍCULOS
+DE LA CAJA COSTARRICENSE DE SEGURO SOCIAL
+Artículo 6º—Estos vehículos serán asignados únicamente al presidente ejecutivo. No cuentan con restricciones para su uso, responsabilidad que asumirá bajo estricto criterio el funcionario titular. Este vehículo porta placa particular y no tendrá marcas visibles que los distingan como vehículo oficial.
+Artículo 11.—La autorización para que vehículos de uso administrativo general circulen en horas y días fuera del horario normal deberá hacerla la autoridad superior, en circunstancias debidamente justificadas o por causas de fuerza mayor, para desarrollar una función específica. Bajo ninguna circunstancia se permitirá la circulación sin el respectivo vale de transporte; únicamente se obviará el requisito en emergencia plenamente calificada.
+En el caso de los gerentes institucionales, auditor y subauditor, considerando lo particular y relevante de sus funciones así como la disponibilidad laboral obligatoria sin límite de horario que reviste su cargo, se autoriza su movilización diaria sin límite de horario, a fin de atender funciones propias de su cargo y de índole estrictamente laboral, para lo cual debe, en acato a las disposiciones internas, cumplir con el llenado de los formularios y controles establecidos por la institución en esta materia. Asimismo, los vehículos quedarán asignados a la gerencia correspondiente, la cual designará el funcionario o área administrativa encargada de su administración y control”.
+Acuerdo firme.
