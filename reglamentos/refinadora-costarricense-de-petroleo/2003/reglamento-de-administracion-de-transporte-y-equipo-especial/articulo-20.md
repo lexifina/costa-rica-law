@@ -1,1 +1,0 @@
-Artículo 20.—Preferencia de aparcamiento en los estacionamientos de RECOPE. Los vehículos automotores, equipos especiales y equipo que se remolque que administra RECOPE tienen preferencia para aparcar en los estacionamientos propiedad o arrendados por la Empresa.
