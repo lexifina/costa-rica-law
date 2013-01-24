@@ -1,0 +1,3 @@
+Artículo 213.—Conformación del Órgano Director del Procedimiento Administrativo Disciplinario: la jefatura competente conformará el órgano director con funcionarios(as) que no podrán ser de la misma unidad de trabajo, velando que no exista relación de parentesco por consanguineidad o afinidad, ni de subordinación jerárquica directa con la parte denunciada o con la parte denunciante.
+A la autoridad competente que se le solicite la colaboración para conformar un órgano director, debe prestar la asistencia obligatoriamente, salvo causal debidamente fundamentada, y comunicar dentro del plazo de cinco días los nombres de los funcionarios que integrarán el órgano director.
+(Así adicionado mediante sesión N° 8620 del 24 de enero del 2013)

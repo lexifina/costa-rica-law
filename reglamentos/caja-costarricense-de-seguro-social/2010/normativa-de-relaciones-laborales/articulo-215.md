@@ -1,0 +1,2 @@
+Artículo 215.—Partes: se considerará parte en el procedimiento, con todos los derechos inherentes, además de la Administración , al (a la) denunciante en su condición de víctima, por contar con un interés legítimo o un derecho subjetivo que pueda resultar directamente afectado (a), lesionado (a) o satisfecho (a), con el acto, además de la persona denunciada.
+(Así adicionado mediante sesión N° 8620 del 24 de eenro del 2013)

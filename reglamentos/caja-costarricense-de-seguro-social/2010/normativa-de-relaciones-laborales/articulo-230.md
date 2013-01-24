@@ -1,0 +1,2 @@
+Artículo 230.—Calificación y Gravedad de la Falta : para calificar la falta, el órgano decisor deberá tomar en cuenta lo establecido en el artículo 213 de la Ley General de la Administración Pública , para efectos de determinar la existencia y el grado de la culpa, dolo o negligencia del denunciado, el rango jerárquico, naturaleza de las funciones, impacto en el servicio y reincidencia en casos similares.
+(Así adicionado mediante sesión N° 8620 del 24 de enero del 2013)

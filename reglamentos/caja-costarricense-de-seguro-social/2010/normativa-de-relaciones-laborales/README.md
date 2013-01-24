@@ -15,3 +15,4 @@ Normativa de Relaciones Laborales
 | --- | --- | --- |
 | 1 | 2010-12-08 | la propia norma |
 | 2 | 2012-03-15 | Reglamento 8568 (2012-03-15) |
+| 3 | 2013-01-24 | Reglamento 8620 (2013-01-24) |

@@ -1,0 +1,2 @@
+Artículo 223.—Excepciones de Fondo: si el investigado opone las excepciones de falta de derecho, falta de legitimación, falta de causa o cualquier otra, éstas se resolverán cuando se dicte el acto final del procedimiento, las cuales podrán interponerse en cualquier momento e incluso en las conclusiones. La propuesta de sanción disciplinaria considerará y analizará la procedencia de estas excepciones.
+(Así adicionado mediante sesión N° 8620 del 24 de enero del 2013)

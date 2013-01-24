@@ -1,0 +1,3 @@
+Artículo 220.—Suspensión de la Comparecencia : la persona investigada, representante sindical y/o su abogado o el testigo con impedimento para asistir a la comparecencia, deberán informarlo al órgano director, por escrito, aportando documento idóneo que así lo justifique y con tres días de antelación a la celebración de la comparecencia, salvo situaciones de caso fortuito o de fuerza mayor.
+El Órgano Director es el único competente para suspender una comparecencia, con base en la justificación aportada por quien argumente tener algún impedimento para que ésta se celebre.
+(Así adicionado mediante sesión N° 8620 del 24 de enero del 2013)

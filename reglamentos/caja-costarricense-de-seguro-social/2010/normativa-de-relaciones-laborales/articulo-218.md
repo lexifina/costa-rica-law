@@ -1,0 +1,2 @@
+Artículo 218.—Sede de la Comparecencia : la comparecencia deberá tener lugar normalmente en la sede del órgano director, salvo supuestos de inspección ocular, prueba pericial, o bien, razones de economía de gastos o cualesquiera otras ventajas administrativas evidentes, siempre que ello no cause pérdida de tiempo y/o perjuicio grave para las partes; para ello debe habilitarse debidamente el lugar destinado y notificar a las partes.
+(Así adicionado mediante sesión N° 8620 del 24 de eenero del 2013)
