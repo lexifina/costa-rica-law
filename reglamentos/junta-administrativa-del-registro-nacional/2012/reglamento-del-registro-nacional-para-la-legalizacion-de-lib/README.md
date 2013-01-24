@@ -14,3 +14,4 @@ Reglamento del Registro Nacional para la legalización de libros de Sociedades M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-28 | la propia norma |
+| 2 | 2013-01-24 | Reglamento 2 (2013-01-24) |
