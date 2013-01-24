@@ -62,3 +62,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 (Reformado por los artículos 2° y 3° de la ley N° 9015 del 18 de diciembre de 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37470 del 12 de diciembre de 2012)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37475 del 19 de diciembre de 2012)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37476 del 20 de diciembre de 2012)
