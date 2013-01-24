@@ -25,3 +25,4 @@ En caso de colocación con no residentes la Tesorería Nacional deberá publicar
 (Así reformado el inciso a) anterior por el artículo 1° de la ley N° 9065 del 23 de agosto del 2012)
 (Así reformado el inciso b) anterior por el artículo 1° de la ley N° 9065 del 23 de agosto del 2012)
 (Así reformado el inciso c) anterior por el artículo 1° de la ley N° 9065 del 23 de agosto del 2012)
+(Nota de Sinalevi: Mediante el artículo 8° de la ley N° 9103 del 4 de diciembre del 2012, "Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2013", se estableció lo siguiente: "... Para que en el código presupuestario 232 906 70104 334 001 2310 2151 de la Ley N.º 9019. Donde dice: “Proyecto pro mejoras de caminos Barrio Santa Cecilia, Distrito, Pocora”. Debe decir: “Proyecto pro mejoras de caminos Barrio Santa Emilia, Distrito Pocora”)
