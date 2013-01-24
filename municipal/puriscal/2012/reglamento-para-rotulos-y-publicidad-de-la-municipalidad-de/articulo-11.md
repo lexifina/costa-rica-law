@@ -1,0 +1,1 @@
+Artículo 11.—Trámite de licencias y renovaciones: La Municipalidad tramitará en un plazo no mayor de quince días calendario de la solicitud de permisos para la instalación de anuncios o rótulos, así como la renovación de los mismos en los Departamentos de Construcciones y la unidad de patentes de la Administración Tributaria.
