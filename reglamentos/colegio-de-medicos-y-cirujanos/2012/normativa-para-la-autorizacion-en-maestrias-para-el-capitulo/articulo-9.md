@@ -1,0 +1,2 @@
+Artículo 9º—El Colegio de Médicos y Cirujanos de Costa Rica autorizará únicamente las maestrías en el campo específico en el cual el profesional afín se encuentra autorizado por este Colegio.
+Además se podrán autorizar profesionales afines en la maestría de administración en servicios de salud, dicha autorización se limitará únicamente al ejercicio profesional de la maestría en la disciplina específica autorizada por el Colegio de Médicos y Cirujanos.

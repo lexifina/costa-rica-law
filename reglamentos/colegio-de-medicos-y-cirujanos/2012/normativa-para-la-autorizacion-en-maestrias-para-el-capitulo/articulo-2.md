@@ -1,0 +1,2 @@
+Artículo 2º—Podrá autorizarse en una maestría, el profesional afín, debidamente autorizado por el Colegio de Médicos y Cirujanos, que demuestre ante la Junta de Gobierno del Colegio, el cumplimiento a cabalidad de los requisitos, establecido por esta normativa.
+Para ello deberá presentar solicitud escrita ante dicha Junta de Gobierno del Colegio de Médicos y Cirujanos, y cumplir con los requisitos generales que establece el artículo 3° de la presente normativa.
