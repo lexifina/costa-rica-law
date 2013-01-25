@@ -1,0 +1,1 @@
+Artículo 25.- Para el cumplimiento de las sanciones administrativas establecidas en el capítulo IV de la Ley No. 9047, la municipalidad podrá solicitar la colaboración de las autoridades de policía u otras que considere convenientes. La fuerza pública, la policía municipal y los inspectores municipales, deberán decomisar el producto y levantar el parte correspondiente.
