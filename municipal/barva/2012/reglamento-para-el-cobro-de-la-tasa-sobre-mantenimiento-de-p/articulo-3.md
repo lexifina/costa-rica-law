@@ -1,0 +1,1 @@
+Artículo 3º——Del servicio de mantenimiento de parques y zonas verdes. Los respectivos servicios que presta la Municipalidad, en relación con el mantenimiento de parques y zonas verdes relacionados con los bienes inmuebles ubicados en cada uno de los distritos del cantón corresponden a recolección, transporte y disposición de residuos sólidos así como de la limpieza de la zona.

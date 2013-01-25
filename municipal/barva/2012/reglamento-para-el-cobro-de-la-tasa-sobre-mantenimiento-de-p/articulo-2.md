@@ -1,0 +1,11 @@
+Artículo 2º—Definiciones. Para los efectos de este Reglamento, se entenderá por:
+- Cantón: El Cantón de Barva.
+- Concejo: El Concejo Municipal de la Municipalidad de Barva.
+- Ley 7794: Código Municipal.
+- Mantenimiento de parques y zonas verdes: aquellas actividades técnicas y artesanales, así como el costo financiero que realiza la Municipalidad a través de sus distintas dependencias para la atención de los parques ubicados en cada uno de los distritos que componen el cantón, así como las distintas zonas verdes localizadas al frente o cercanos a cada uno de los bienes inmuebles situados en esta jurisdicción.
+- Municipalidad: La Municipalidad del Cantón de Barva.
+- Parque: Todo terreno de uso público, destinado por la Municipalidad, con base en la Ley, que sea destinado para el esparcimiento o recreación de los habitantes y que por esa condición son de orden público y de libre acceso a todos los habitantes del país, quienes al usarlos tienen la obligación de conservarlos en el mejor estado posible. Dentro de esta definición se incluye parques, plazas, plazoletas, pasajes y bulevares.
+- Sujeto pasivo: Toda aquella persona que sea propietaria de un inmueble, que por tal condición está obligada al pago de la tasa que cobra la Municipalidad por mantenimiento de parque y zonas verdes, en los distritos del cantón; aunque no muestre interés en el servicio.
+- Tarifa: Tasa.
+- Tasa: Tributo cuya obligación tiene como hecho generador la prestación efectiva o potencial del servicio de mantenimiento de parques y zonas verdes que brinda la Municipalidad, cuyo producto no puede tener un destino ajeno al servicio.
+- Zona verde: áreas, jardines o terrenos públicos existentes entre la línea de construcción de los inmuebles ubicados en la jurisdicción del cantón y la vía pública o como parte de ella, en las que la Municipalidad ejercerá la debida vigilancia para que en éstos no se levanten construcciones que impidan su uso o provoquen el cambio del mismo.

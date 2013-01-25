@@ -1,0 +1,1 @@
+Artículo 10.—Del 10% de utilidad para el desarrollo. El diez por ciento de utilidad para el desarrollo en que se incrementa la tasa (de acuerdo a lo dispuesto en el artículo 74 de la Ley 7794) se destinará únicamente para impulsar la creación de nuevos parques y para la remodelación, mantenimiento y mejora de los existentes.

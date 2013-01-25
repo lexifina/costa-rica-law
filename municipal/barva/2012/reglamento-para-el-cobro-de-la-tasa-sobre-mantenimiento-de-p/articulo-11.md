@@ -1,0 +1,1 @@
+Artículo 11.—Vigencia de la tarifa. La tarifa o tasa por el servicio de mantenimiento de parques y áreas verdes, una vez aprobada por el Concejo Municipal, deberá ser publicada en el Diario Oficial La Gaceta y empezará a regir treinta días después de su publicación definitiva.

@@ -1,0 +1,1 @@
+Artículo 6º—Previsiones. Cuando por motivos de interés general se autoricen en dichos lugares actos públicos, se deberán tomar las medidas previsoras necesarias para que la mayor afluencia de personas a los mismos no cause detrimento en los árboles, plantas o mobiliario urbano.

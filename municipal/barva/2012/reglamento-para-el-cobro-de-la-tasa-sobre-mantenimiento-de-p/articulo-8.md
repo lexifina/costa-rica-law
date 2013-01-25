@@ -1,0 +1,1 @@
+Artículo 8º—Tasa. Para el mantenimiento de los servicios indicados en el capítulo anterior, la Municipalidad cobrará una tasa a cada uno de los sujetos pasivos, que distribuirá el costo total de acuerdo con el metraje lineal de frente de cada propiedad. Su cálculo se rige de conformidad con el modelo establecido en el artículo 74 de la Ley 7794.
