@@ -1,0 +1,1 @@
+Artículo 8° El Servicio Fitosanitario del Estado, el Instituto del Café de Costa Rica y el Servicio de Extensión Agropecuaria del Ministerio de Agricultura y Ganadería suscribirán un convenio de cooperación donde se describirá las actividades que se desarrollan para la atención de esta emergencia fitosanitaria a nivel nacional.

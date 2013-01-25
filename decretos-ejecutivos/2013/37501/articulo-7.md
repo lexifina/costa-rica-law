@@ -1,0 +1,1 @@
+Artículo 7º—El Servicio Fitosanitario del Estado se encargará de disponer y ejecutar en coordinación con el Instituto del Café de Costa Rica, y el Servicio de Extensión Agropecuaria del Ministerio de Agricultura y Ganadería, las medidas técnicas y económicas que sean necesarias para el control de esta epifitia.

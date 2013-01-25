@@ -1,0 +1,1 @@
+Artículo 5º—Los funcionarios de las Agencias de Servicios Agropecuarios del Ministerio de Agricultura y Ganadería de las zonas involucradas atenderán con carácter prioritario las acciones que requiera la atención de la problemática en mención.

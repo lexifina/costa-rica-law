@@ -1,0 +1,1 @@
+Artículo 6º—El Estado de Emergencia Fitosanitaria se dará por un lapso de hasta dos años, a partir de la publicación de este Decreto, de ser necesario será prorrogable hasta tanto la epifitia provocada por la plaga conocida como Roya del cafeto sea controlada.
