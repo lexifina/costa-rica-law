@@ -1,0 +1,28 @@
+RESOLUCIÓN DE ALCANCE GENERAL
+RES-DGA-018-2013
+DIRECCIÓN GENERAL DE ADUANAS, San José, a las nueve horas del día veinticinco de enero de 2013.
+CONSIDERANDO:
+1. Que el artículo 6 de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 publicada en La Gaceta Nº212 del 08 de noviembre de 1995 y sus reformas, establece entre los fines del régimen jurídico, facilitar y agilizar las operaciones de comercio exterior y facultar la correcta percepción de los tributos.
+2. Que el artículo 11 de la Ley General de Aduanas señala que la Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera. En el uso de esta competencia, le corresponde la dirección técnica y administrativa de las funciones aduaneras que esta ley y las demás disposiciones del ramo le conceden al Servicio Nacional de Aduanas.
+3. Que el artículo 6 del Reglamento a la Ley General de Aduanas, Decreto Ejecutivo N° 25270-H de fecha 14 de junio de 1996 y sus reformas, publicado en Alcance No. 37 a La Gaceta Nº 123 de 28 de junio de 1996, indica que le corresponde al Director General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
+4. Que el artículo 4 de la Ley General de la Administración Pública Nº 6227 de 02 de mayo de 1978, establece que “La actividad de los entes públicos deberá estar sujeta en su conjunto a los principios fundamentales del servicio público, para asegurar su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios”.
+5. Que el artículo 9 de la Ley General de Aduanas, establece como funciones del Servicio Nacional de Aduanas, actualizar los procedimientos aduaneros y proponer las modificaciones de las normas, para adaptarlas a los cambios técnicos, tecnológicos y a los requerimientos del Comercio Internacional.
+6. Que en virtud de la entrada en vigencia en el ordenamiento jurídico costarricense de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078, publicada en el Alcance Nº 165 al Diario Oficial La Gaceta Nº 207 de fecha 26 de octubre del 2012, se le atribuyen competencias al Servicio Nacional de Aduanas, referentes a las obligaciones y prohibiciones que debe ejercer la autoridad aduanera para el control de los vehículos que ingresen o salgan del territorio nacional bajo los Regímenes Aduaneros de Importación Temporal o Definitiva, mismas que se describen en los artículos 5, 23, 32, 38, 60, 193, 200, transitorios IX, XIX y XX.
+7. Que el artículo 2 de la Ley supra citada establece en el numeral 87 la definición de Pérdida total: “Daño estructural o de los sistemas de un vehículo automotor, que impide su circulación por razones de seguridad jurídica o vial”.
+8. Que el artículo 5 de esa misma ley en lo referente a la prohibición por pérdida total y otros supuestos, indica lo siguiente:
+“ARTÍCULO 5.- Prohibición por pérdida total y otros supuestos:
+Se prohíbe la importación para la inscripción de vehículos que:
+a) Hayan sido declarados pérdida total.
+b) Presenten uniones estructurales del chasis no autorizadas.
+c) Hayan sido manipulados en su número de identificación, VIN o chasis.
+d) Hayan sido sacados de circulación en su país de exportación.
+e) Incumplan el requisito general para la circulación, establecido en el inciso d) del artículo 32, relativo a la ubicación del volante de conducción.
+El importador de vehículos de primer ingreso, inscritos en el país de su procedencia, deberá aportar en el proceso de nacionalización el título de propiedad y una declaración jurada protocolizada indicando que el vehículo no se encuentra bajo ninguno de los supuestos indicados en los incisos anteriores y la cantidad de kilómetros o millas recorridas por este.
+El Poder Ejecutivo, mediante su órgano competente, implementará las medidas necesarias para verificar el cumplimiento de esta disposición, antes de la nacionalización correspondiente.
+Se prohíbe la reinscripción de los vehículos automotores declarados pérdida total y la reutilización del número de VIN o chasis.
+El importador de vehículos que infrinja las disposiciones de este artículo estará sujeto a una multa equivalente a cinco veces la multa estipulada en la categoría A”.
+9. Que con el fin de implementar los controles descritos en el articulo No. 5 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078, se requiere efectuar ajustes a la operativa del sistema TICA y así controlar la importación de aquellos vehículos que posean las características descritas en dicho artículo.
+POR TANTO
+Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6, 7 y 8 del Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano, 3, 5 de su Reglamento, así como los ordinales 6, 9, 11, 55, 59 y 61 de la Ley General de Aduanas, Nº 7557 del 20/10/1995 y sus reformas.
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+1. Que para la importación de vehículos usados se deberá adjuntar a la declaración aduanera dos nuevos documentos obligatorios, siendo: la “Declaración Jurada Protocolizada art. 5 Ley de Tránsito” identificada en el Sistema informático TICA con el código de documento 0353 y el “Título de Propiedad” identificado con el código de documento 0114; dichos documentos serán obligatorios para vehículos clasificados en cualquiera de las partidas arancelarias establecidas en la circular No. DGT-158-2008 de fecha 25 de noviembre de 2008.
