@@ -14,3 +14,4 @@ Reglamento para el Pago de Sobresueldo por Coordinaciones Temporales en el Insti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-20 | la propia norma |
+| 2 | 2013-01-28 | Reglamento 6 (2013-01-28) |

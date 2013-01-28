@@ -1,4 +1,2 @@
-CAPÍTULO III
-De los controles
 Artículo 7º—De los responsables del control: Los titulares subordinados serán los responsables de velar por la aplicación correcta de las disposiciones que se establecen en el presente reglamento, así como de proponer los cambios que sean necesarios para garantizar el uso adecuado de la compensación aquí estipulada, en términos de eficacia y eficiencia para la gestión del Instituto Mixto de Ayuda Social, sin perjuicio del control que pueda ejercer la Auditoría Interna del IMAS.
-Dicha labor será asesorada y apoyada por Recursos Humanos del IMAS, la cual deberá controlar el debido cumplimiento de las funciones asignadas a los titulares subordinados.
+Dicha labor será asesorada, y apoyada por Desarrollo Humano del IMAS, la cual deberá controlar el debido cumplimiento de las funciones asignadas a los titulares subordinados.
