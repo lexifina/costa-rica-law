@@ -1,5 +1,2 @@
-Articulo 80.—Cuotas de ingreso. EL COMITÉ regulará y aprobará las cuotas de ingreso a las instalaciones deportivas. Los ingresos que por ese concepto se produzcan, se destinarán a las actividades y en el porcentaje que a continuación se indica:
-a) Un 10% para gastos administrativos de EL COMITE.
-b) Un 15% para los programas de promoción deportiva.
-c) Un 111% para las ligas menores de la jurisdicción.
-d) Un 65% para mantenimiento de las instalaciones.
+Artículo 80.—Cuotas de ingreso. El Comité regulará y aprobará las cuotas de ingreso a las instalaciones deportivas. Las organizaciones deportivas o recreativas adscritas a el Comité, previo convenio, podrán cobrar el ingreso de público a una instalación deportiva o recreativa que este bajo la administración del Comité, durante los eventos específicos organizados por estas agrupaciones o durante los torneos en que participen, siempre que cumplan con el Procedimiento establecido para tal fin y le reconozcan al Comité, del total de los ingresos que se generen por este concepto, el porcentaje que el Comité establezca motivadamente al momento de entrar en vigencia la presente modificación. Este porcentaje, podrá ser revisado y modificado por el Comité cada 12 meses.
+(Así reformado mediante sesión ordinaria N° 144 del 28 de enero del 2013)

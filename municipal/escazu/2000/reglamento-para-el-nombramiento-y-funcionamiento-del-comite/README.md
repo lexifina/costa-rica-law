@@ -15,3 +15,4 @@ Reglamento para el Nombramiento y Funcionamiento del Comité Cantonal de Deporte
 | --- | --- | --- |
 | 1 | 2000-06-22 | la propia norma |
 | 2 | 2010-11-22 | Reglamento municipal 30 (2010-11-22) |
+| 3 | 2013-01-28 | Reglamento municipal 144 (2013-01-28) |
