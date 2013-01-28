@@ -1,0 +1,3 @@
+Artículo 2º—Vigencia. Rige a partir de la debida publicación en el Diario Oficial La Gaceta de la modificación del artículo 36 del Reglamento General sobre Sociedades Administradoras y Fondos de Inversión, aprobado mediante artículo 12 del acta de la sesión 1018-2012, celebrada el 11 de diciembre del 2012. [1]
+1 La modificación del artículo 36 del Reglamento General sobre Sociedades Administradoras y Fondos de Inversión rige a partir de su publicación en el Diario Oficial La Gaceta N°.19 del 28 de enero de 2013.
+Consulte en el sitio web de la SUGEVAL (www.sugeval.fi.cr) en su sesión de “Normativa/Acuerdos del Superintendente/Acuerdos aplicados a Sociedades Administradoras de Fondos de Inversión”, para acceder al texto del acuerdo original con todas sus reformas.
