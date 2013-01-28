@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna del Servic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-27 | la propia norma |
+| 2 | 2013-01-28 | Reglamento 623 (2013-01-28) |

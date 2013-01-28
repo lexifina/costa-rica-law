@@ -1,4 +1,6 @@
+(Derogado)
 SERVICIO NACIONAL DE AGUAS SUBTERRANEAS, RIEGO Y AVENAMIENTO
+(Esta norma fue derogada por el artículo 51 del Reglamento de organización y funcionamiento de la Auditoría Interna del Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, aprobado mediante sesión ordinaria N° 623-2013 del 28 de enero del 2013)
 SENARA
 La Junta Directiva del SENARA, con fundamento en el Acuerdo Nº 3479, de la sesión ordinaria Nº 529 del día 09 de octubre del 2007.
 Considerando:
