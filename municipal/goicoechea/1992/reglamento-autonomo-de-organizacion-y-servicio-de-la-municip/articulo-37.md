@@ -25,3 +25,5 @@ t) Alterar las tarjetas de control de tiempo o los registros que se establezcan 
 u) Solicitar, sugerir, exigir o recibir obsequios, recompensas o dádivas, como retribuciones por actos inherentes a sus cargos.
 v) Utilizar el equipo informático, líneas telefónicas, conexiones a satélite, claves de acceso a Internet, propietario de la Municipalidad, así como cualquier otro medio telemático, impreso o audiovisual para acceder y observar material pornográfico, erótico, así como contrario a la moral y las buenas costumbres.
 (Así adicionado el inciso anterior mediante sesión N° 46 del 19 de noviembre de 2001)
+w) Discriminar a sus compañeras o compañeros de trabajo por motivos de raza, color, sexo, orientación sexual, género, idioma, religión, origen nacional o social, posición económica, nacimiento, discapacidad o cualquier otra situación social.
+(Así adicionado el inciso anterior por el artículo 12 del Reglamento interno contra la discriminación, aprobado en sesión ordinaria N° 04-13 del 28 de enero del 2013)
