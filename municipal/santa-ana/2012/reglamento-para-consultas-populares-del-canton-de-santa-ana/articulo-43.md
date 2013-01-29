@@ -1,0 +1,2 @@
+Artículo 43. Derecho a voz: Los ciudadanos participantes harán llegar al Presidente en forma escrita su solicitud de utilizar la palabra, la cual deberá contener su nombre completo y número de cédula. Dicha solicitud será recibida por el Secretario del Concejo Municipal y la palabra será concedida por el Presidente conforme al orden numérico que el Secretario haya consignado en la misma solicitud.
+El derecho a voz será ejercido por todos los presentes que así lo soliciten y que sean mayores de dieciocho años.

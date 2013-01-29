@@ -1,0 +1,1 @@
+Artículo 9. Eficacia del resultado de la consulta popular: El resultado de la consulta popular, cuando se trate de plebiscito o referendo, será de acatamiento obligatorio e inmediato para el Concejo Municipal.

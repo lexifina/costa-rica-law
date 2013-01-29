@@ -1,0 +1,2 @@
+Artículo 33. Recolección de firmas: El Concejo Municipal fijará los lugares para la recolección de las firmas. El Concejo Municipal podrá autorizar, a propuesta de las personas responsables de la gestión, el señalamiento de los lugares para la recolección de firmas y las personas que las custodiarán.
+El Concejo acreditará previamente a los responsables de custodiar los formularios de firmas, así como la recolección de dichos formularios cuando corresponda.

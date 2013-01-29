@@ -1,0 +1,6 @@
+Artículo 20. Requisitos de los miembros de mesa: Los interesados en ser miembros de mesa de las Juntas de Votos deberán cumplir con los siguientes requisitos:
+a. Ser ciudadano en ejercicio.
+b. No tener motivo de impedimento legal.
+c. Ser vecino del distrito donde se encuentra la Junta respectiva.
+d. Saber leer y escribir.
+Será prohibido que una misma Junta Receptora de Votos esté integrada por hermanos (as), cónyuges, padres o hijos entre sí. De igual forma, será prohibido que una persona sea nombrada como integrante de más de una junta para un mismo proceso electoral.

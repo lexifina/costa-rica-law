@@ -1,0 +1,5 @@
+Artículo 19. Juntas Receptoras de Votos: Las Juntas Receptoras de Votos estarán conformadas por un mínimo de tres propietarios y tres suplentes, compuestas por nómina que presentará cada Concejo de Distrito ante el Concejo Municipal.
+Cada Concejo de Distrito deberá enviar su nómina a más tardar un mes antes de la fecha señalada para la realización de la consulta; en caso de no hacerlo con esa antelación o bien, en caso de inopia, el Concejo Municipal podrá nombrar a los miembros de juntas receptoras de votos de manera directa.
+En todo caso será el Concejo Municipal quien realice la integración e instalación de las juntas receptoras de votos.
+Los miembros de mesa deberán recibir la instrucción adecuada para el cumplimiento de sus funciones y serán juramentados por quien ejerza la Presidencia del Concejo Municipal.
+Sin perjuicio de la asesoría que brinde el Tribunal Supremo de Elecciones, cada Junta Receptora de votos instalará un recinto de votación cerrado frente a los miembros de la Junta e instalará una urna en la cual los electores depositarán sus votos.

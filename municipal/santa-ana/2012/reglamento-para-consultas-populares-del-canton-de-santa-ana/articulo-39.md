@@ -1,0 +1,1 @@
+Artículo 39. Convocatoria: El Concejo Municipal hará la convocatoria a cabildo abierto por medios idóneos que garanticen su conocimiento por parte de la población, en un tiempo que no podrá ser menor a un mes anterior a la celebración del cabildo.
