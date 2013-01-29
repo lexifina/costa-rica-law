@@ -1,9 +1,13 @@
-Artículo 3º—De los objetivos: El Centro Nacional de Información Geoambiental ( abreviado CENIGA ) tendrá los siguientes objetivos:
-a. Establecer un sistema de información geográfica integrado para lo cual deberá recopilar e incorporar en él toda la información resultante del uso de la base de datos territoriales 1:25.000 generada por las instituciones autónomas y otros órganos estatales, según convenios interinstitucionales que éstos suscriban con el CENIGA.
-b. Colaborar en las gestiones de desarrollo institucional orientados a la implementación de plataformas SIG y gestión de datos espaciales como un centro de orientación y asesoría básica, que permita una toma de decisiones inteligente y adecuada según las necesidades.
-c. Iniciar una estructura nacional para el desarrollo y gestión de metadatos.
-d. Constituir un centro de acopio y de distribución de datos geoespaciales a nivel nacional, lo cual permitirá desarrollar capas temáticas de base para la generación de nueva información.
-e. Coordinar con las instituciones autónomas y órganos estatales pertinentes las diferentes acciones para la actualización de la información obtenida.
-f. Finalizar las tareas de fotografía aérea y restitución pendientes del Convenio Minae-Recope que contenía el Programa de Acción Territorial y mantener actualizada dicha información.
-g. Completar el desarrollo que se inició en el convenio Minae-Recope de las aplicaciones orientadas a la publicación, consulta y acceso de la información digital, utilizando herramientas telemáticas vigentes.
-h. Apoyar en lo demás al ordenamiento territorial nacional conforme lo estipula la Ley Orgánica del Ambiente.
+Artículo 3º—De los objetivos: El Centro Nacional de Información Geoambiental tendrá los siguientes objetivos:
+a. Consolidar la organización del CENIGA para atender adecuadamente los alcances de su misión y visión.
+b. Desarrollar los instrumentos legales para la conformación y operación del SINIA y la RENIA.
+c. Establecer una estrecha relación de coordinación y soporte con el SINIA y la RENIA a través de los mecanismos que se establezcan en el instrumento legal que se defina.
+d. Desarrollar el sistema oficial de estadísticas e indicadores ambientales nacionales.
+e. Desarrollar el sistema integral de información geográfica de cobertura nacional para la incorporación y difusión de la información geográfica ambiental y fundamental.
+f. Elaborar los informes anuales sobre el estado del ambiente.
+g. Representar al MINAET en las instancias nacionales y en los organismos internacionales relacionados con el ámbito de acción del CENIGA y del SINIA.
+h. Desarrollar los catálogos de información ambiental para disponerlos a los usuarios interesados.
+i. Compilar y distribuir información ambiental relevante.
+j. Brindar apoyo en la temática de ordenamiento territorial nacional, conforme lo estipula la Ley Orgánica del Ambiente.
+k. Cualquier otra que se le asigne.
+(Así reformado por el artículo 14 del decreto ejecutivo N° 37658 del 29 de enero del 2013 "Establece el Sistema Nacional de Información Ambiental (SINIA) y reforma el decreto ejecutivo N° 29540 "Constituye el Centro Nacional de Información Geoambiental como un órgano de la Dirección General de Hidrocarburos del Ministerio de Ambiente y Energía")
