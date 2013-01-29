@@ -14,3 +14,4 @@ Plan de Cuentas para las Entidades de Seguros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-01 | la propia norma |
+| 2 | 2013-01-29 | Reglamento 1024 (2013-01-29) |
