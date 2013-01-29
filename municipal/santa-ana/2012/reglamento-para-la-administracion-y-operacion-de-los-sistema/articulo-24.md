@@ -1,0 +1,3 @@
+Artículo 24. Del destino de los ingresos generados por el sistema de estacionamientos autorizados. El ingreso por venta de boletas para estacionamiento, cobro de multas e intereses constituirá un fondo especial que se designará:
+1) A cubrir todos los gastos e inversiones propias de la administración y operación del sistema de estacionamientos en las vías públicas del cantón de Santa Ana. Se incluye el pago de comisiones a recaudadores externos designados por la municipalidad, autorizados específicamente para facilitar el cobro de este impuesto.
+2) A la formación de un fondo para mejoras, construcción y mantenimiento de vías y otros beneficios en materia de seguridad y vigilancia para el cantón.

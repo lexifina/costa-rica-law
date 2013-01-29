@@ -1,0 +1,3 @@
+Artículo 7: Tasa establecida: Para el uso de los espacios debidamente demarcados como Zonas de Estacionamiento Autorizado, los usuarios pagarán un monto de ochocientos colones por hora, cuatrocientos colones por media hora y seis mil cuatrocientos colones por día.
+Dicho monto deberá pagarse por adelantado mediante los mecanismos previstos para tales efectos.
+Las tarifas se revisaran al menos una vez al año y podrán ser variadas por acuerdo del Concejo Municipal. Sin embargo en ningún caso estas tarifas podrán ser menores a un 75% del valor de cobro de los estacionamientos privados por servicios similares.
