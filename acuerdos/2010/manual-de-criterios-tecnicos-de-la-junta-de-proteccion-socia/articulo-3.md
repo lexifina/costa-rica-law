@@ -732,7 +732,8 @@ Por más de 50% del presupuesto anual | 0.10 |
 A- Número de beneficiarios (valor máximo 60%)
 Se consideran beneficiarios del programa a:
 a) Niños, niñas y adolescentes menores de 18 años que reciben los servicios en forma constante.
-b) Los que aportan un monto inferior al 50% del costo de atención, sea por parte del PANI, contribución familiar u otro medio.
+b) Los que aportan un monto inferior al 80% del costo de atención, sea por parte del PANI, contribución familiar u otro medio.
+(Así reformado el inciso anterior mediante acuerdo N° JD-049 tomado en sesión ordinaria N° 03-2013 del 29 de enero del 2013)
 En los programas de Centros de Atención o tratamiento especial ambulatorio/Cuidados paliativo pediátricos se considera el promedio de asistencia diaria, en los últimos tres meses.
 Categoría % Valor máximo
 60

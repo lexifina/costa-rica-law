@@ -15,3 +15,4 @@ Manual de Criterios Técnicos de la Junta de Protección Social
 | --- | --- | --- |
 | 1 | 2010-04-30 | la propia norma |
 | 2 | 2012-11-20 | Acuerdo 646 (2012-11-20) |
+| 3 | 2013-01-29 | Acuerdo 49 (2013-01-29) |
