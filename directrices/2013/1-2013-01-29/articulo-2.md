@@ -1,0 +1,1 @@
+2º—Todo establecimiento al cual se le cancele el CVO y solicite el otorgamiento de uno nuevo deberá cumplir con la presentación de los requisitos de primera vez. En caso de que en el correspondiente expediente del CVO que se canceló, se encuentre acreditado el Permiso de Uso de Suelo concedido por la correspondiente Municipalidad, no se exigirá la presentación de uno nuevo.
