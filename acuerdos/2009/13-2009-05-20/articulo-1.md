@@ -1304,9 +1304,19 @@ DETALLE DE CLASES UBICADAS DENTRO DE ESTE ESTRATO
 (*) (Así eliminada la clase de puesto anterior anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 (*) SUBDIRECTOR DE DEPARTAMENTO
 (*) (Así eliminada la clase de puesto anterior anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
-.
+(*)SUBDIRECTOR DEPARTAMENTO
+DE SERVICIOS DE SALUD
+· Licenciado en Medicina y Cirugía
+· Experiencia mínima de tres años en el manejo y supervisión de personal
+· Experiencia mínima de cinco años en labores relacionadas con el cargo a nivel de licenciatura
+· Incorporado al Colegio Profesional respectivo.
+(*)(Así adicionada la categoría anterior mediante acuerdo N° 53 tomado en sesión N° 154 del 29 de enero del 2013)
 MÉDICO JEFE (G5)
-(*) (Así eliminada la clase de puesto anterior anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
+· Médico y cirujano, licenciado o grado superior en medicina y cirugía
+· Seis años de experiencia en labores relacionados con el cargo
+· Cuatro años de experiencia en la dirección y supervisión de personal
+· Requisito legal: Incorporado al colegio profesional respectivo.
+(*)(Así reformada la categoría anterior mediante acuerdo N° 53 tomado en sesión N° 154 del 29 de enero del 2013)
 AUDITOR INTERNO (según lineamientos girados por la Contraloría General de la República- L-I-2003-CO-DDI)
 NATURALEZA DEL PUESTO
 Planear, organizar, dirigir, supervisar, coordinar y controlar la ejecución de las actividades propias de la Auditoría Interna y cumplir las demás funciones establecidas en el Reglamento de auditoría y, en general, en la normativa vigente.
