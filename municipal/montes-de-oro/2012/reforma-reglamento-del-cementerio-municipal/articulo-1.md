@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE MONTES DE ORO
+El Concejo Municipal de la Municipalidad de Montes de Oro, mediante inciso Nº 7, capítulo Nº IV, de la sesión ordinaria Nº 53-12, celebrada el día 19 de diciembre del 2012, acordó en forma definitiva: Modificar el artículo Nº 24 del “Reglamento del Cementerio Municipal de Miramar”, para que quede de la siguiente forma:
+“Artículo Nº 24: “El monto a pagar por los derechos será propuesto por la administración y aprobado por el Concejo Municipal, misma que entrará en vigencia una vez que se publique en el Diario Oficial La Gaceta y será revisado cada vez que se juzgue conveniente, no debiendo exceder de dos años desde la última revisión y su pago podrá realizarse, hasta en tres tractos, firmando un título ejecutivo como garantía”.
