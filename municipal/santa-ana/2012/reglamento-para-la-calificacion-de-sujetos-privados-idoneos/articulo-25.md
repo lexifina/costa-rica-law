@@ -1,0 +1,3 @@
+Artículo 25. Sanciones y responsabilidades. El incumplimiento de lo establecido en este reglamento dará lugar a las sanciones previstas en la Ley General de la Administración Pública, Ley de Administración Financiera de la República y Presupuestos Públicos, Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, sin perjuicio de la aplicación de otras causales de responsabilidad contenidas en el ordenamiento jurídico.
+De conformidad con lo establecido en el artículo 43 del Código Municipal, este proyecto de Reglamento se somete a consulta pública por un lapso de diez días hábiles, vencido se pronunciará sobre el fondo.
+Santa Ana, 15 de junio del 2012.—

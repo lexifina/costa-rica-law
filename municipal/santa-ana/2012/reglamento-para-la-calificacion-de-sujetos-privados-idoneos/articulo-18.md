@@ -1,0 +1,1 @@
+Artículo 18. Vigencia de la calificación de idoneidad. La calificación de idoneidad otorgada por el Concejo Municipal de Santa Ana tendrá una vigencia de dos años, contados a partir de la fecha en que se adopte el acuerdo.

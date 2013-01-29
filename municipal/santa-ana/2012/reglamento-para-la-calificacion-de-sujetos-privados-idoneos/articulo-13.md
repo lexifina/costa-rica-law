@@ -1,0 +1,1 @@
+Artículo 13. Conformación de expediente administrativo. De cada solicitud el Departamento Municipal de Planificación creará un expediente administrativo debidamente foliado, lo mantendrá bajo su custodia y le agregará toda la documentación aportada y generada sobre el sujeto y/o el proyecto realizado con los fondos públicos asignados.

@@ -1,0 +1,2 @@
+Artículo 12. Subsanación o aclaración de requisitos. El Departamento Municipal de Planificación queda facultado para verificar la información presentada por el sujeto privado y prevenirle, por una única vez y por escrito, que complete los requisitos omitidos en la solicitud o que aclare o subsane la información.
+La prevención indicada suspende el plazo para la presentación del dictamen y otorgará al sujeto privado hasta diez días hábiles para completar o aclarar; transcurridos estos continuará el cómputo del plazo restante previsto para dictaminar.
