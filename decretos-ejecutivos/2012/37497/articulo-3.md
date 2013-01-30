@@ -1,0 +1,1 @@
+Artículo 3.- Deróguense los artículos 24 inciso c), 25, y 26 del Decreto Ejecutivo No. 34510-S de 4 de abril de 2008, publicado en La Gaceta No. 105 del 2 de junio de 2008 “Reglamento Orgánico del Ministerio de Salud”.
