@@ -1,1 +1,0 @@
-Artículo 8º—El Área de Recursos Humanos presumirá como cierta toda la información suministrada tanto en la boleta de autorización como en la de liquidación, en caso de duda verificará la información y realizará las investigaciones que considere oportunas y necesarias, sin prejuicio de realizar verificaciones periódicas cuando crea conveniente realizarlas.

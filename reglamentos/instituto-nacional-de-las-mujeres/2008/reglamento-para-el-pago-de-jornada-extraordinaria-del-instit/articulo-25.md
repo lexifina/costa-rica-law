@@ -1,9 +1,0 @@
-Artículo 25.—Son responsabilidades de las funcionarias y de los funcionarios:
-a) Completar las boletas de solicitud y el formulario de liquidación según los lineamientos del presente Reglamento y entregarlas a quien autoriza, para su trámite correspondiente.
-b) Realizar la reserva presupuestaria correspondiente ante la Contabilidad.
-c) El original tanto de la solicitud como de la liquidación, permanecerán en el Área de Recursos Humanos
-d) Registrar en la boleta de solicitud, el tiempo de jornada extraordinaria (entrada y salida) mediante el uso del sistema de control vigente destinado para tal fin. Salvo casos excepcionales y temporales, se permitirá el control en forma manual, el cual debe ser refrendado por el superior inmediato, dando fe del tiempo extraordinario reportado por el funcionario o funcionaria. En el caso de las personas Operadoras de Equipo Móvil cuando se registra el tiempo extraordinario en forma manual debe ser refrendado por la encargada o encargado de la gira.
-e) Brindar información veraz y concordante tanto en la boleta de autorización como en el formulario de liquidación.
-f) Notificar inmediatamente a la Coordinadora o Coordinador Administrativo cualquier daño o desperfecto encontrado en el sistema de control vigente, a fin de que el tiempo extraordinario laborado se registre manualmente con autorización en la boleta correspondiente.
-g) Aclarar al Área de Recursos Humanos o a la persona que autoriza cualquiera duda o incoherencia encontrada en la documentación presentada luego de la realización de los controles correspondientes e investigaciones pertinentes.
-h) La inobservancia de alguna de las responsabilidades mencionadas acarreará las sanciones correspondientes estipuladas en el artículo 44, incisos f), m) y r) del Reglamento Autónomo de Servicios del INAMU.

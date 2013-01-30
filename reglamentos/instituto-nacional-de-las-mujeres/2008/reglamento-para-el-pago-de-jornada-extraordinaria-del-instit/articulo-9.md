@@ -1,1 +1,0 @@
-Artículo 9º—No se reconocerá como jornada extraordinaria aquella que no hubiese sido autorizada de acuerdo con las condiciones anteriores, así como el tiempo que las personas funcionarias ocupe en subsanar los errores imputables a ella o él, cometidos durante la jornada ordinaria.

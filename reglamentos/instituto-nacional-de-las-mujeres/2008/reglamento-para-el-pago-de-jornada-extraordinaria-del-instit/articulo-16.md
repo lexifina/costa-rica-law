@@ -1,1 +1,0 @@
-Artículo 16.—Con el objeto de corroborar la jornada extraordinaria laborada, la funcionaria o el funcionario deberá registrar en la boleta de solicitud autorizada la hora de entrada y salida de sus labores, utilizando el sistema de control vigente.

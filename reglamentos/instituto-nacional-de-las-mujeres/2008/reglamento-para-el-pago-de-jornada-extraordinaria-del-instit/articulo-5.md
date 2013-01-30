@@ -1,1 +1,0 @@
-Artículo 5º—Las funcionarias y los funcionarios que ocupan puestos de dirección, coordinación de área, jefatura de unidad o de confianza, tendrán derecho al pago de jornada extraordinaria solamente si laboran los días sábado, domingo, feriados o asueto, la cual se pagará de acuerdo al artículo 2º de este Reglamento.
