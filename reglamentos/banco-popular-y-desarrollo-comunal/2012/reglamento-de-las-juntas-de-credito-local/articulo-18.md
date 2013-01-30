@@ -1,0 +1,1 @@
+Artículo 18- Lugar de reuniones. La Junta de Crédito Local sesionará en el recinto de la Sucursal y podrá reunirse fuera de éste pero dentro de la región cubierta por la Sucursal, únicamente cuando motivos de razonabilidad y racionalidad lo ameriten, y excepcionalmente, por razones de interés institucional, fuera de la región cubierta por la Sucursal.
