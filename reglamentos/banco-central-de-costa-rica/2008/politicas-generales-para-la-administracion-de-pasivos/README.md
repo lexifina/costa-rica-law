@@ -24,3 +24,4 @@ Políticas Generales para la Administración de Pasivos
 | 9 | 2012-09-12 | Reglamento 5561 (2012-09-12) |
 | 10 | 2012-11-07 | Reglamento 5569 (2012-11-07) |
 | 11 | 2013-01-23 | Reglamento 5581 (2013-01-23) |
+| 12 | 2013-01-30 | Reglamento 5582 (2013-01-30) |
