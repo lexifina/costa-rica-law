@@ -14,3 +14,4 @@ Crea beneficio Transferencia Monetaria Condicionada "Manos a la Obra"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-12 | la propia norma |
+| 2 | 2013-01-30 | Decreto Ejecutivo 37764 (2013-01-30) |

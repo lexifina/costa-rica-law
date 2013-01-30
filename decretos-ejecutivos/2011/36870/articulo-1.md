@@ -24,4 +24,5 @@ Considerando:
 Por tanto,
 DECRETAN:
 Transferencia Monetaria Condicionada “Manos a la Obra”
-Artículo 1º—Creación del beneficio. Se crea, como parte de los beneficios del Programa Bienestar y Promoción Familiar del IMAS, la transferencia condicionada para personas desempleadas que realicen aportes comunales; beneficio que en adelante se denominará “Manos a la Obra”.
+Artículo 1º—Creación del beneficio. Se crea, como parte de los beneficios del Programa de Bienestar y Promoción Familiar del IMAS, la transferencia condicionada para personas en condición de pobreza o de riesgo y vulnerabilidad social, que realicen aportes comunales; beneficio que en adelante se denominará “Manos a la Obra"
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37764 del 30 de enero de 2013)
