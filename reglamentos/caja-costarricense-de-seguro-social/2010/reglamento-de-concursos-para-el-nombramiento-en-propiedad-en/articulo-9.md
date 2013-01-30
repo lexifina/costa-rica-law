@@ -1,4 +1,4 @@
 Artículo 9º—De la admisibilidad. Para que las solicitudes de inscripción en el Registro de Elegibles sean admisibles, el interesado deberá cumplir con lo siguiente:
-a) Poseer un total de 180 días acumulados continuos o discontinuos de nombramiento en la C.C.S.S., durante el último año contado retroactivamente a partir de la presentación de la solicitud de inscripción.
+a) Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 1593-13 del 30 de enero de 2013.)
 b) Obtener en los dos últimos períodos de evaluación (sea de Desempeño Anual o de Período Interino), anteriores a la presentación de la solicitud de inscripción al Registro, un promedio igual o superior a la nota mínima establecida en la regulación institucional aplicable. En el caso que el interesado cuente solamente con una evaluación, se resolverá la admisibilidad en el tanto cumpla con la calificación antes señalada, indistintamente del período evaluado.
 Asimismo, las condiciones señaladas deberán cumplirse al momento de inscripción del concurso, a efectos de considerar al participante con la condición de activo señalada en el artículo 17 del presente Reglamento.
