@@ -1,0 +1,1 @@
+Artículo 24.—Terminación de la relación laboral. Si al producirse la terminación de la relación laboral se determina que se han girado sumas de más, Recursos Humanos deberá proceder de acuerdo a lo estipulado en los artículos 7, inciso a) y 28 de presente Reglamento.

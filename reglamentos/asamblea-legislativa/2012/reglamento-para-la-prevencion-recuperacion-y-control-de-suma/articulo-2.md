@@ -1,0 +1,1 @@
+Artículo 2º—Aplicación. Este reglamento es de aplicación para todo funcionario de la Institución, ya sea que se encuentre a prueba, interino en plaza vacante, interino sustituto, regular, que pertenezca al régimen de confianza, así como a ex funcionarios de la Asamblea Legislativa, a quienes se les haya girado una suma de dinero de más.

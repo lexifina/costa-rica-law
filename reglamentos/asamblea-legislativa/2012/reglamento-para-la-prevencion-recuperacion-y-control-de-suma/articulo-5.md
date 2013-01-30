@@ -1,0 +1,3 @@
+CAPÍTULO II
+Unidades administrativas responsables y su competencia
+Artículo 5º—Unidades administrativas responsables de la aplicación. El Directorio Legislativo, la Dirección Ejecutiva, el Departamento de Recursos Humanos, el Departamento Financiero y el Departamento de Asesoría Legal, velarán por el cumplimiento de las disposiciones del presente Reglamento. Además, serán responsables por los daños causados al omitir la aplicación de las disposiciones, los procedimientos y los controles contenidos en este Reglamento, según las disposiciones de la Ley General de la Administración Pública, la Ley de la Administración Financiera de la República y Presupuestos Públicos y la Ley General de Control Interno.

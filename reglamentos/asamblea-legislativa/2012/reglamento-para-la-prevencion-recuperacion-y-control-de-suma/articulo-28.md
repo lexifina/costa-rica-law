@@ -1,0 +1,1 @@
+Artículo 28.—Cancelación. La Asesoría Legal solicitará a la Procuraduría General de la República, una copia del documento en donde conste la cancelación del monto adeudado o la declaratoria de incobrable, y enviará una copia de dicho documento a Recursos Humanos, a la Dirección Ejecutiva y al Departamento Financiero.

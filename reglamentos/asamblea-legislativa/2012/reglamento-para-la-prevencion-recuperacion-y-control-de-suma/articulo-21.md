@@ -1,0 +1,1 @@
+Artículo 21.—Cuantía adeudada y salario líquido. Para la recuperación de sumas pagadas de más mediante arreglo de pago, el Departamento de Recursos Humanos deberá tomar en cuenta la cuantía del monto pagado en exceso y el monto del salario líquido que recibe el funcionario. En el caso del exfuncionario, este deberá presentar documentación que certifique su ingreso líquido.
