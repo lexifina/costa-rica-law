@@ -68,7 +68,8 @@ VIERNES 04 DE OCTUBRE | ¢5.000 | ¢500 | ¢70.000.000
 VIERNES 01 DE NOVIEMBRE | ¢5.000 | ¢500 | ¢70.000.000
 SORTEO SÚPER EXTRAORDINARIO DE LOTERÍA POPULAR “VIERNES NEGRO” 2013
 VIERNES 29 DE NOVIEMBRE | ¢8.000 | ¢800 | ¢130.000.000
-CALENDARIO ANUAL DE SORTEOS
+(*) CALENDARIO ANUAL DE SORTEOS
+(*)(Nota de Sinalevi: Mediante el acuerdo de junta directiva JD-059 tomado en sesión ordinaria N° 01-2013 del 31 de enero del 2013 se modifica el plan de premios de sorteos ordinarios de Lotería Nacional de manera que se incorporan 20 premios de ¢ 500.000 por emisión)
 ENERO 2013
 FECHA | DÍA | LOTERÍA | NÚMERO SORTEO | PREMIO MAYOR
 04/01/2013 | VIERNES | POPULAR | 5805 | 44,000,000
