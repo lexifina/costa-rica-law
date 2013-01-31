@@ -1,5 +1,2 @@
-ARTÍCULO 30.- El Ministerio de Agricultura y Ganadería, en
-coordinación con el Ministerio del Ambiente y Energía, deberá reglamentar
-y controlar la utilización de productos, maquinaria, herramientas e
-implementos que puedan perjudicar las características físicas, químicas o
-biológicas de los suelos.
+Artículo 30.- El Ministerio de Agricultura y Ganadería, en coordinación con el Ministerio de Ambiente y Energía(*), deberá reglamentar y controlar la utilización de productos, maquinaria, herramientas e implementos que puedan perjudicar las características físicas, químicas o biológicas de los suelos.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

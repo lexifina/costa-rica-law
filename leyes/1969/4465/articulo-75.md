@@ -1,3 +1,2 @@
-Artículo 75.- Compete al Ministerio de Ambiente y Energía, por medio
-de la Dirección General Forestal, ordenar y encauzar todas las acciones
-que tengan por objeto la prevención de los incendios forestales.
+Artículo 75.- Compete al Ministerio de Ambiente y Energía(*), por medio de la Dirección General Forestal, ordenar y encauzar todas las acciones que tengan por objeto la prevención de los incendios forestales.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

@@ -2,7 +2,7 @@ Artículo 6.-Creación de la Comisión Interinstitucional de Marinas y Atracader
 Créase la Comisión Interinstitucional de Marinas y Atracaderos Turísticos (Cimat), como un órgano de desconcentración en grado máximo del ICT. La Cimat es el órgano técnico especializado en el desarrollo y la operación de marinas y atracaderos turísticos en el país.
 La Comisión tendrá su sede en el ICT; contará con un consejo director integrado por la persona que ocupe el cargo de mayor jerarquía o la persona representante de cada una de las siguientes instituciones:
 a) Del ICT, cuyo representante presidirá la Comisión.
-b) Del Minaet.
+b) Del Minae(*).
 c) Del Ministerio de Obras Públicas y Transportes (MOPT).
 d) Del Ministerio de Salud.
 e) Del Instituto Nacional de Vivienda y Urbanismo (INVU).
@@ -10,3 +10,4 @@ El ICT proporcionará los medios económicos, materiales y técnicos para el ade
 La dirección ejecutiva contará con el personal necesario para el cumplimiento de sus funciones, mediante una asesoría legal, una unidad administrativa y una unidad técnica. La persona que ocupe el cargo de superior administrativo será quien ocupe la dirección ejecutiva; será nombrada por la Cimat y podrá asistir a las sesiones de la Comisión con voz pero sin voto.
 Se autoriza a las entidades públicas y a la Cimat para que suscriban convenios para el préstamo de recursos materiales y humano calificado, de acuerdo con las necesidades de la Cimat.
 (Así reformado por el artículo 2° de la ley N° 8969 del 7 de julio del 2011)
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

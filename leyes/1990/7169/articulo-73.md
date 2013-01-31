@@ -1,6 +1,2 @@
-ARTICULO 73.- El Ministerio de Ciencia y Tecnología (MICIT) otorgará
-premios periódicamente a las empresas cuya adaptación, asimilación o
-innovación tecnológica se haya distinguido más por su alcance o beneficio
-económico y social para el país. Las áreas por premiar serán la
-industria, la agricultura, las actividades pecuarias, la pesca y las
-otras que la Comisión Nacional de Incentivos defina.
+Artículo 73.- El Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT)(*) otorgará premios periódicamente a las empresas cuya adaptación, asimilación o innovación tecnológica se haya distinguido más por su alcance o beneficio económico y social para el país. Las áreas por premiar serán la industria, la agricultura, las actividades pecuarias, la pesca y las otras que la Comisión Nacional de Incentivos defina.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
