@@ -1,0 +1,2 @@
+Artículo 13.—Todos los fondos que perciba la Comisión y las donaciones en dinero efectivo, materiales y servicios deberán ser comunicados por el Tesorero en la sesión próxima inmediata que realice la Comisión, y constar en el acta respectiva.
+Al efectuar los depósitos de los ingresos recaudados, el Tesorero deberá llevar un registro de ingresos, que cuente al menos con numero de depósito o cheque, nombre del depositante, fecha y concepto.

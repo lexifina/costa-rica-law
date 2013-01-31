@@ -1,0 +1,1 @@
+Artículo 28.—Todos los reembolsos de caja chica deberán respaldarse con justificantes que reúnan los requisitos establecidos en los artículos 17 y 18 de este reglamento. Los cheques que se emitan para efectuar dichos reembolsos deberán girarse a nombre del Tesorero.

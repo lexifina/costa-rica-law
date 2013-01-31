@@ -1,0 +1,5 @@
+Artículo 5º—En la primera sesión de la Comisión entre sus integrantes deberán nombrar una Junta Directiva, constituida por Presidente o Presidenta, secretario o secretaria, tesorero o tesorera y dos vocales, junta que será responsable de la dirección de cada una de las subcomisiones que la Comisión resuelva nombrar.
+Para efectos operativos, la comisión contará con la asesoría directa y obligatoria de la Tesorería y la Contabilidad Municipal.
+Además tendrán la asesoría de: a) Un abogado de la Dirección de Asuntos Jurídicos; b) Un representante de la Proveeduría Municipal; c) Un representante de la Dirección Financiera y un representante de la Auditoria Municipal de conformidad con lo establecido en la Ley de Control Interno que preceptúa la obligación de brindar asesoría al órgano superior.
+La Comisión podrá apoyar sus funciones y planes de ejecución con los funcionarios municipales atinentes a la materia y al cargo.
+También podrá el Concejo Municipal designar funcionarios municipales que cumplan los perfiles que establece este Reglamento, a los fines de concebir un vínculo más estrecho entre la actividad de los festejos populares y la municipalidad.
