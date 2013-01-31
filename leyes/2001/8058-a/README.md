@@ -1,6 +1,6 @@
 # Contrato de Prestamo Suscrito entre el Banco Internacional de Reconstrucción y Fomento (Banco Mundial) y el Gobierno de la República de Costa Rica
 
-Ley N° 8058 del 2001-01-08. SINALEVI, ficha 45643: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=45643&param2=48104&param3=1>.
+Ley N° 8058 del 2001-01-08. SINALEVI, ficha 45643: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=45643&param2=97618&param3=1>.
 
 Publicada en La Gaceta N° 13 del 2001-01-18.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 2001-01-18 | Ley 8058 | 2001-01-08 |
+| 2 de 2 | 2013-01-31 | Ley 9046 | 2012-06-25 |
