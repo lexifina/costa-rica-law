@@ -1,0 +1,1 @@
+Artículo 17.—Todo contrato de otorgamiento de beca o programa de capacitación deberá especificar, como mínimo, el objeto, la duración y la indicación del beneficio que se otorga, además deberá incluir una cláusula de compromiso, mediante la cual el beneficiario, en caso de reprobar una parte o todos los cursos matriculados, se obliga a pagar la totalidad del beneficio recibido.

@@ -1,0 +1,1 @@
+Artículo 19.—Cuando un funcionario desee realizar estudios formales o capacitaciones no formales, que no tengan relación directa con su puesto de trabajo, se le podrá otorgar una licencia de estudio de cinco horas semanales, como máximo, durante su jornada laboral, para recibir sus lecciones o realizar exámenes, siempre y cuando tenga el aval de la jefatura.

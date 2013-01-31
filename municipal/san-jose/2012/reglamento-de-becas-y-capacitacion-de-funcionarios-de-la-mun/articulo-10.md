@@ -1,0 +1,1 @@
+Artículo 10.—Cuando un funcionario finalice su relación laboral con la Institución el Área de Trámite y Registro del Departamento de Recursos Humanos, deberá consultar a la Sección de Desarrollo de Personal si tiene pendiente alguna deuda relacionada con la obtención del beneficio derivado de este Reglamento.

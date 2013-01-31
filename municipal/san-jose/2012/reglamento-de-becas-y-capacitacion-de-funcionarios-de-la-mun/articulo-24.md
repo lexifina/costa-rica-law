@@ -1,0 +1,1 @@
+Artículo 24.—De conformidad con lo establecido en el artículo 43, del Código Municipal, procédase a la publicación de este Reglamentó en el diario oficial La Gaceta. Es vigente a partir de la presente publicación.

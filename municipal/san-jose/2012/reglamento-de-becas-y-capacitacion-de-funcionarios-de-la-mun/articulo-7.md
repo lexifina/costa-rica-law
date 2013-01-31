@@ -1,0 +1,1 @@
+Artículo 7º—Las gerencias serán las responsables de indicar sus necesidades de capacitación, de acuerdo con los proyectos propuestos en el Plan Operativo Anual; además, deberán enviar la información a la Sección de Desarrollo de Personal con la justificación de las necesidades presupuestarias para su efectivo cumplimiento.

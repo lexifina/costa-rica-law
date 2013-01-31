@@ -1,0 +1,1 @@
+Artículo 9º—Todo beneficio concedido al amparo de este Reglamento deberá formalizarse mediante la suscripción de un contrato entre el funcionario y la Municipalidad. La versión original será autenticada por la Dirección de Asuntos Jurídicos y el contrato se archivará en el expediente de cada funcionario.

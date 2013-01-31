@@ -1,0 +1,1 @@
+Artículo 16.—Toda decisión o modificación que afecte los beneficios aprobados, o varíe alguno de los elementos sustantivos del contrato, deberá constar por escrito y ser entregada a la Sección de Desarrollo Personal en un tiempo no mayor a ocho días hábiles a partir del momento en que se presentaron los hechos que la causaron.

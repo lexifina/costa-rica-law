@@ -1,0 +1,1 @@
+Artículo 12.—Cuando el funcionario se haya beneficiado de una beca o de una capacitación institucional y concluye la relación laboral por causas imputables a él o ella, deberá reintegrar la totalidad de la ayuda otorgada, de acuerdo con el artículo 11 inciso b.

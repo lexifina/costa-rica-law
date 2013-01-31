@@ -1,0 +1,1 @@
+Artículo 6º—La Sección de Desarrollo de Personal, abrirá un expediente para cada solicitud que reciba, donde incluirá la documentación requerida para la beca o el programa de capacitación que se gestiona.

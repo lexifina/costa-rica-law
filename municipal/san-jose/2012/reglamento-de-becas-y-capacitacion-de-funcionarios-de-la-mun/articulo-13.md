@@ -1,0 +1,1 @@
+Artículo 13.—El beneficiario que por causas imputables a su persona haya incumplido alguna de las obligaciones establecidas en el presente Reglamento, estará imposibilitado de disfrutar de una beca o capacitación durante un año.
