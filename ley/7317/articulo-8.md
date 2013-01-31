@@ -1,5 +1,6 @@
-Artículo 8.- Para la mejor orientación de los fines perseguidos en esta Ley, la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente, Energía y Telecomunicaciones tendrá un Comité Asesor de la Vida Silvestre que estará integrado por:
+Artículo 8.- Para la mejor orientación de los fines perseguidos en esta Ley, la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**) tendrá un Comité Asesor de la Vida Silvestre que estará integrado por:
 (*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
+(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 a) El Director de la Dirección General de Vida Silvestre, quien lo presidirá.
 b) Un representante de las organizaciones conservacionistas privadas no gubernamentales, sin fines de lucro, especializadas en el campo de la conservación de la vida silvestre.
 c) Un representante de la Universidad de Costa Rica.

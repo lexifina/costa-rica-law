@@ -1,5 +1,2 @@
-ARTÍCULO 31.- El Ministerio del Ambiente y Energía y el Ministerio de
-Agricultura y Ganadería, coordinados por el Ministerio de Salud, deberán
-ejecutar todas las medidas de publicidad y divulgación, necesarias para
-concientizar a los usuarios de agroquímicos sobre la contaminación que
-estos provocan sobre los suelos y las aguas.
+Artículo 31.- El Ministerio de Ambiente y Energía(*) y el Ministerio de Agricultura y Ganadería, coordinados por el Ministerio de Salud, deberán ejecutar todas las medidas de publicidad y divulgación, necesarias para concientizar a los usuarios de agroquímicos sobre la contaminación que estos provocan sobre los suelos y las aguas.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)

@@ -1,5 +1,3 @@
-ARTICULO 3.- Las competencias que leyes anteriores les hubiesen
-asignado a otras instituciones del Estado, referentes a las que esta ley
-le otorga al Ministerio del Ambiente, Energía y Telecomunicaciones(*), corresponderán a
-éste.
+Artículo 3.- Las competencias que leyes anteriores les hubiesen asignado a otras instituciones del Estado, referentes a las que esta ley le otorga al Ministerio del Ambiente y Energía(**), corresponderán a éste.
 (*) (El nombre del Ministerio fue así reformado el artículo 48 aparte a) de la Ley N° 8660 del 8 de agosto de 2008, Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones.)
+(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

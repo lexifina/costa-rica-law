@@ -1,5 +1,6 @@
-ARTICULO 26.- Facúltase a la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente, Energía y Telecomunicaciones para otorgar permisos de importación de especies de vida silvestre.
+ARTICULO 26.- Facúltase a la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**) para otorgar permisos de importación de especies de vida silvestre.
 (*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
+(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Toda solicitud para esos permisos deberá presentarse, ante esa Dirección, con una evaluación del impacto ambiental la que, para los efectos de esta Ley, se considerará documento público y deberá incluir los siguientes requisitos:
 1.- Objetivos de la introducción.
 2.- Demanda real del recurso en el país de origen.
@@ -20,8 +21,9 @@ Toda solicitud para esos permisos deberá presentarse, ante esa Dirección, con 
 17.- Número óptimo y razón de sexos de los individuos por introducir.
 18.- Sistema apropiado de transporte de los animales.
 19.- Experiencias de introducción de la especie en otros países.
-La Dirección General de Vida Silvestre del (*)Ministerio de Ambiente, Energía y Telecomunicaciones contará con un mes, a partir de la fecha de presentación, para estudiar y resolver la solicitud planteada.
+La Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**) contará con un mes, a partir de la fecha de presentación, para estudiar y resolver la solicitud planteada.
 En el caso de especies ornamentales como se establece en el Reglamento de esta Ley, el (*)Ministerio de Ambiente, Energía y Telecomunicaciones podrá prescindir del estudio de impacto ambiental.
-Los permisos de importación otorgados no serán transferibles a terceras personas, sin previa autorización de la Dirección General de Vida Silvestre del (*)Ministerio deAmbiente, Energía y Telecomunicaciones.
+Los permisos de importación otorgados no serán transferibles a terceras personas, sin previa autorización de la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**).
 (*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
 (Derogado parcialmente, respecto de las tasa por derecho de importación de animales y plantas, por el inciso d) del artículo 31 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001).
+(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

@@ -1,3 +1,2 @@
-TRANSITORIO UNICO.- Para los efectos de esta ley, se tendrán como
-miembros fundadores a los integrantes de la Academia de Ciencias, creada
-mediante el Decreto Ejecutivo No. 21358-MICIT, del 26 de junio de 1992.
+TRANSITORIO UNICO.- Para los efectos de esta ley, se tendrán como miembros fundadores a los integrantes de la Academia de Ciencias, creada mediante el Decreto Ejecutivo No. 21358-MICITT(*), del 26 de junio de 1992.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

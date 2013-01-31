@@ -1,7 +1,8 @@
 CAPITULO II
 De la organización administrativa
-ARTICULO 6.- La Dirección General de Vida Silvestre del Ministerio de Ambiente, Energía y Telecomunicaciones(*) es el órgano competente en materia de planificación, desarrollo y control de la flora y de la fauna silvestres.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
+Artículo 6.-El Sistema Nacional de Áreas de Conservación(**) del Ministerio de Ambiente y Energía(*) es el órgano competente en materia de planificación, desarrollo y control de la flora y de la fauna silvestres.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+(**)(Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre de 2012, anteriormente se indicaba:"Dirección General de Vida Silvestre")
 El Ministro, en su condición de rector del sector de recursos naturales, energía y minas, tiene las siguientes competencias en esta materia:
 a) Definir, conjuntamente con el Presidente de la República, las directrices de Gobierno para el sector.
 b) Velar porque la organización y el funcionamiento de las instituciones del sector de recursos naturales respondan adecuadamente a los requerimientos de los objetivos de esta Ley, así como a las directrices y disposiciones en materia de planificación.

@@ -988,7 +988,8 @@ TOTAL REBAJA DEL PROGRAMA:
 874-00 14.623.000,00
 TOTAL REBAJA DEL TITULO: 127 23.532.000,00
 TÍTULO: 128
-Ministerio de Ciencia y Tecnología
+Ministerio de Ciencia, Tecnología y Telecomunicaciones (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 PROGRAMA: 893-00
 COORDINACION Y DES. CIENTIF. Y TECNOLOGICO
 Registro Contable: 128-893-00
@@ -4616,7 +4617,8 @@ TOTAL REBAJAR SUEL-
 DOS TITULO: 127
 MINIST. DE PLANIF. NAC.
 Y POL. ECO. 23.532.000
-128 MINISTERIO DE CIENCIA Y TECNOLOGIA
+128 MINISTERIO DE CIENCIA, TECNOLOGIA y TELECOMUNICACIONES (*)
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 128.893 COORDINACION Y DES.
 CIENTIF. Y TECNOLOGICO
 82 RECONOCIMIENTO DE

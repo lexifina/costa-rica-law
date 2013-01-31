@@ -1,0 +1,2 @@
+ARTÍCULO 11.-
+Refórmase toda ley de manera que donde se lea “Ministerio de Ciencia y Tecnología,” en lo sucesivo deberá leerse “Ministerio de Ciencia, Tecnología y Telecomunicaciones”, y donde se indiquen las siglas “Micit” deberá leerse “Micitt”. De igual forma, donde se lea “Ministerio de Ambiente, Energía y Telecomunicaciones” en lo sucesivo deberá leerse “Ministerio de Ambiente y Energía” y donde se indiquen las siglas “Minaet” deberá leerse “Minae”.
