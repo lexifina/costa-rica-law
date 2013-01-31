@@ -577,7 +577,8 @@ Por estar directamente relacionadas con materias que son competencia específica
 6. Contraloría General de la República
 7. Ministerio de Turismo
 8. Radiográfica Costarricense S.A.
-9. Ministerio de Ciencia y Tecnología
+9. Ministerio de Ciencia , Tecnología y Telecomunicaciones
+(*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 10. Registro Nacional. Ministerio de Justicia
 11. Ministerio de Trabajo y Seguridad Social
 12. Confederaciones Sindicales
@@ -629,7 +630,7 @@ Ministerio de Salud | | Si | Si
 Contraloría General de la Republica | | Si | Si
 Ministerio de Turismo | | Si | No
 Radiográfica Costarricense S.A.- RACSA | | Si | Si
-Ministerio de Ciencia y Tecnología | | Si | Si
+Ministerio de Ciencia, Tecnología y Telecomunicaciones (*) (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012) | | Si | Si
 Ministerio de Trabajo y Seguridad Social | | Si | Si
 Confederaciones Sindicales | Central del Movimiento de Trabajadores Costarricenses | Si | Si
 Confederación Costarricense de Trabajadores Democráticos erva Novarum | Si | Si
