@@ -1,6 +1,0 @@
-Artículo 13
-De los controles
-La documentación que conforma el estudio deberá estar foliada, y quedará constando en el respectivo expediente administrativo, mismo que contendrá como mínimo:
-1. En cuanto a los expedientes judiciales que se tengan del patrono y/o del trabajador independiente objeto del estudio, dentro de estos, deberá quedar copia del análisis técnico – legal debidamente certificada por la jefatura de la Subárea de Cobro Judicial a Patronos, Área Gestión de Cobro a Trabajadores Independientes o de la Sucursal según corresponda.
-2. Mensualmente el Área Gestión de Cobro a Patronos, el Área Gestión de Cobro a Trabajadores Independientes y la sucursal según corresponda deberán comunicar al Área Gestión de Cobro a Patronos, a la Dirección de Cobros y a la Dirección Regional respectivamente, un detalle de los casos registrados en SICERE como de difícil recuperación.
-3. Cada año, la Subárea de Cobro Judicial, el Área de Gestión de Cobro Trabajador Independiente, y las Sucursales, durante el último trimestre del tercer año, realizarán una revisión de los casos declarados como de difícil recuperación, a fin de determinar si la condición de cada uno de ellos se mantiene, o si en su defecto han variado al punto de ser considerados como recuperables.
