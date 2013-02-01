@@ -1,1 +1,0 @@
-Artículo 9°—Por la sede central del Ministerio de Educación Pública se postulará un candidato escogido por la reunión de jefes superiores, para este efecto 'e excluirán el Ministro, el Viceministro y el Oficial Mayor.
