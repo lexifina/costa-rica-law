@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE SAN CARLOS
+(Esta norma fue derogada por el transitorio II del Reglamento para la Regulación y Comercialización de Bebidas con contenido alcohólico de la Municipalidad de San Carlos, aprobado en sesión N° 07 del 4 de febrero del 2013)
 El Concejo Municipal de San Carlos en su sesión ordinaria celebrada el lunes 15 de febrero del 2010, en el salón de Sesiones de esta Municipalidad, mediante artículo 15, acta 09. Acordó: autorizar a la Administración Municipal a publicar el reglamento denominado “Reglamento de Otorgamiento de Patentes para el Expendio Temporal de Licores de la Municipalidad de San Carlos”, tal y como fue solicitado por el Departamento de Administración Tributaria mediante oficio AT-014-10 de fecha 15 de febrero del año 2010.
 REGLAMENTO DE OTORGAMIENTO DE PATENTES
 PARA EL EXPENDIO TEMPORAL DE LICORES,

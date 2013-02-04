@@ -15,3 +15,4 @@ Reglamento de Otorgamiento de Patentes para el Expendio Temporal de Licores de l
 | --- | --- | --- |
 | 1 | 2010-03-16 | la propia norma |
 | 2 | 2010-04-26 | Reglamento municipal 0 (2010-04-26) |
+| 3 | 2013-02-04 | Reglamento municipal 7 (2013-02-04) |
