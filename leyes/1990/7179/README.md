@@ -1,6 +1,6 @@
 # Impuestos Municipales de Cañas
 
-Ley N° 7179 del 1990-07-24. SINALEVI, ficha 7037: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7037&param2=7520&param3=1>.
+Ley N° 7179 del 1990-07-24. SINALEVI, ficha 7037: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7037&param2=91205&param3=1>.
 
 Publicada en La Gaceta N° 147 del 1990-08-07.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1990-08-07 | Ley 7179 | 1990-07-24 |
 | 2 de 3 | 1990-08-07 | SINALEVI | 1990-07-24 |
+| 3 de 3 | 2013-02-04 | Ley 9109 | 2012-12-20 |
