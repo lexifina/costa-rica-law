@@ -1,0 +1,1 @@
+Artículo 14.—Contra las decisiones del Departamento de Registro, cabrá el recurso de apelación ante la Dirección Ejecutiva, el cual deberá ser presentado en el plazo de tres días contados desde la comunicación de lo resuelto.
