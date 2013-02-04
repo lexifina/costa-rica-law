@@ -1,0 +1,2 @@
+Artículo 8º—Derecho a revocar el consentimiento. El consentimiento para realizar el procedimiento recomendado puede ser revocado por el otorgante, parcial o totalmente, en cualquier momento. De la anterior situación el profesional responsable del procedimiento clínico deberá dejar constancia en el expediente de salud o registro respectivo.
+La revocatoria de un procedimiento por parte de la persona usuaria o su representante legal, no supone ninguna sanción o pérdida de derechos.

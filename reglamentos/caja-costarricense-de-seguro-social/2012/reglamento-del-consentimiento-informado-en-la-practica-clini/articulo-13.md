@@ -1,0 +1,2 @@
+Artículo 13.—Derecho a no ser informado. Cuando la persona usuaria manifieste expresamente su deseo de no recibir información clínica, para efectos del consentimiento informado, se dejará constancia en el expediente de salud o registro respectivo. El caso anterior no excluye el derecho de la persona usuaria de brindar el consentimiento previo para el procedimiento clínico recomendado.
+En todo caso, deberá respetarse la facultad de la persona usuaria a delegar el consentimiento informado con base en el artículo 17 del presente Reglamento.
