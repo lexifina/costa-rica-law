@@ -1,0 +1,2 @@
+ARTÍCULO 12.-
+A los ingresos brutos o las ventas brutas anuales obtenidas durante el período fiscal del año que se grava, se les aplicará la tarifa del cero como treinta por ciento (0,30%), es decir, tres colones (¢3,00) por cada mil colones (¢1.000), y el resultado obtenido constituirá el impuesto a pagar por año. El total del resultado obtenido, dividido entre cuatro, constituirá el impuesto a pagar por trimestre.
