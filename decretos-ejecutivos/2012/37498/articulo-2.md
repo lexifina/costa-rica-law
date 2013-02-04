@@ -1,0 +1,1 @@
+Artículo 2°- Deróganse el artículo 1° del Decreto Ejecutivo N° 1003-MIC de 15 de mayo de 1970, el artículo 1" del Decreto Ejecutivo N° 8655-MEIC de 5 de junio de 1978 y el artículo 1° del Decreto Ejecutivo N° 13216-A-OP de 15 de diciembre de 1981.
