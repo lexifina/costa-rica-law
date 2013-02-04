@@ -1,0 +1,1 @@
+Artículo 4º Estructura y organización: La Contraloría de Servicios estará bajo la responsabilidad de un Contralor, estará integrada además por un Sub-Contralor y el personal necesario para el cumplimiento de los objetivos establecidos, esta dependerá del máximo jerarca institucional, o sea el Consejo de Administración.

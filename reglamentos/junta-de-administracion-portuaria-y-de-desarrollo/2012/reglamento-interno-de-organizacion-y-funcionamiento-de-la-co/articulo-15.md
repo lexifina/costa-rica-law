@@ -1,0 +1,1 @@
+Artículo 15° Casos de atención colectiva. Si en relación con un mismo tema o problema se presentan denuncias que por su cantidad sobrepasa las posibilidades reales de resolución y atención individualizada, la Contraloría tratará el tema en forma colectiva, si hay conexidad, y de tal circunstancia y su resultado, se informará a los usuarios.

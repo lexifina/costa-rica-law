@@ -1,0 +1,2 @@
+Artículo 3° Apoyo institucional:
+Todas las instancias y funcionarios de JAPDEVA, deberán prestar su colaboración a la Contraloría de Servicios, cuando esta así lo requiera, acorde a lo que establece el artículo 13 del decreto ejecutivo de las Contralorías de Servicio. La negativa o incumplimiento del funcionario a los deberes impuestos por este reglamento, lo hará incurrir en responsabilidad disciplinaria según lo estipulado en el: Código de Trabajo, Reglamento Interior de Trabajo de JAPDEVA y demás normas concomitantes.
