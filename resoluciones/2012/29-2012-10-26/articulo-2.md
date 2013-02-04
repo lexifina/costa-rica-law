@@ -1,0 +1,6 @@
+Artículo 2º—Requisitos. Para la comprobación de la concurrencia de los requisitos contemplados en el párrafo segundo del artículo 15 supra citado, el perceptor de la remuneración deberá tener en su poder, para presentarlos ante la Administración Tributaria, en caso de que le sean requeridos, los documentos citados a continuación:
+- Certificado de residencia fiscal a su nombre emitido por la autoridad competente de España.
+- Certificación de entradas y salidas de Costa Rica, emitida por la Dirección General de Migración y Extranjería, en la que se compruebe que no ha permanecido en Costa Rica durante un período o períodos cuya duración exceda en conjunto 183 días en cualquier período de doce meses que comience o termine en el año fiscal considerado.
+- Constancia del empleador no residente en Costa Rica, en la cual se indique que él es el pagador y en la que debe detallarse el concepto por el cual se está haciendo el pago, a quién se hace el pago y las fechas que cubre ese pago. Esta constancia debe tener las autenticaciones consulares correspondientes.
+- Certificación de residencia fiscal del empleador que no es residente en Costa Rica.
+Los documentos aportados deberán ser originales.

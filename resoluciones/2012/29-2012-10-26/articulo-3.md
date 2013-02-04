@@ -1,0 +1,1 @@
+Artículo 3º—El perceptor deberá conservar los documentos citados en el artículo 2° de esta resolución, durante su permanencia en Costa Rica y aportarlos en el momento en que la Administración Tributaria los requiera.
