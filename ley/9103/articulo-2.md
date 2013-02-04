@@ -3,3 +3,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 37479 del 9 de enero de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37511 del 21 de enero de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37507 del 24 de enero de 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37520 del 4 de febrero de 2013)
