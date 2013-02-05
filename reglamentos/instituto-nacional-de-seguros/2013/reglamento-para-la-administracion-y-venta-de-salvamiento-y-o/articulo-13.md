@@ -1,0 +1,2 @@
+Artículo 13.—Custodia y venta del bien
+Una vez que la Dependencia formalice la adjudicación de un bien (salvamento y/o chatarra) a nombre del INS, transferirá su custodia al Centro de Servicios Administrativos, transfiriéndole a su vez el expediente respectivo con toda la información ordenada cronológicamente y debidamente foliado con el detalle y el estado de cada uno de los bienes, donde consten las resoluciones de mayor interés sobre el proceso de reclamo y/o posesión. Esta información deberá ser consistente con la requerida en el artículo 7 del presente Reglamento.

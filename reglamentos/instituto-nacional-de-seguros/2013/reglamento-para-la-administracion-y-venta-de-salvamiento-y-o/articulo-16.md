@@ -1,0 +1,4 @@
+Artículo 16.—Elaboración del avalúo
+Una vez que se complete la posesión del bien a nombre del INS y recibida toda la documentación requerida en el Artículo 14, del presente Reglamento, para su custodia y proceso de venta, el Centro de Servicios Administrativos solicitará, en un plazo máximo de cinco (5) días hábiles la elaboración del respectivo avalúo, mismo que deberá ser rendido ante el Centro de Servicios Administrativos dentro del plazo máximo de diez (10) días hábiles.
+Los salvamentos y/o chatarra deberán ser objeto de un avalúo o estimación previa a su disposición para determinar el precio de base correspondiente. Tal avalúo deberá ser efectuado por un perito valuador especializado del propio INS o de cualquiera de las instituciones del Estado, o en su defecto, persona física o jurídica particular idónea.
+El informe de avaluó deberá contemplar el estado de funcionamiento del bien.

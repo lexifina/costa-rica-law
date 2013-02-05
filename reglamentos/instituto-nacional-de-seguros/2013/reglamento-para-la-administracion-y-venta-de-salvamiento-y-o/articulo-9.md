@@ -1,0 +1,2 @@
+Artículo 9º—Casos especiales
+Los salvamentos y/o chatarra que por condiciones muy especiales de su naturaleza, lugar donde se encuentren ubicados, altos costos de transporte o que por diversos factores, no puedan ser trasladados a los predios designados o a las bodegas del Almacén de Existencias, podrán permanecer bajo la custodia de un depositario particular. El depositario tendrá los derechos y obligaciones que le confiere el Código de Comercio en sus artículos 521 a 529.
