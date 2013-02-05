@@ -1,1 +1,0 @@
-Artículo 47.—Información adicional. En caso de conocerlo, el denunciante brindará información complementaria respecto a la estimación del perjuicio económico producido a los fondos públicos, la indicación de probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.

@@ -1,2 +1,0 @@
-Artículo 40.—Los hallazgos y observaciones obtenidos como resultado de la auditoría o estudio especial de auditoría, deben ser comentados con los funcionarios responsables antes de comunicarlos en forma definitiva por escrito, con el fin de obtener de ellos sus puntos de vista, sus opiniones y de propiciar acciones correctivas inmediatas.
-Tratándose de estudios de naturaleza confidencial, o las llamadas relaciones de hechos, éstos se regirán con la normativa y directrices establecidas por la Contraloría General de la República.

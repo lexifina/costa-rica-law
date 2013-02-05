@@ -1,1 +1,0 @@
-Artículo 3º—La Auditoría Interna debe establecer su visión, misión, políticas y procedimientos que regirán el accionar de la dependencia y velar por su actualización. La misión y visión serán incorporadas en el Programa de Trabajo de la Auditoría.

@@ -1,1 +1,0 @@
-Artículo 21.—Del personal de la Auditoría Interna. Corresponde al Auditor Interno de la JPS autorizar los movimientos del personal a su cargo, de conformidad con lo que establecen los artículos N° 24 y 28 de la Ley de Control Interno.

@@ -1,1 +1,0 @@
-Artículo 22.—El Auditor Interno deberá proponer debidamente justificada a la Junta Directiva de la JPS, la creación de plazas y servicios que considere indispensables para el cumplimiento de su Plan Anual Operativo y en general para el buen funcionamiento de la Auditoría.

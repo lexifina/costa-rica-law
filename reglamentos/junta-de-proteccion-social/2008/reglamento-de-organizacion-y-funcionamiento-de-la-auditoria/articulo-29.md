@@ -1,1 +1,0 @@
-Artículo 29.—La Auditoría podrá incorporar entre sus recursos, el uso de profesionales o técnicos de diferentes disciplinas - funcionarios o no de la institución- para que lleven a cabo labores de su especialidad, en apoyo a las labores de Auditoría que requieran de conocimientos, técnicas u otras competencias adicionales.

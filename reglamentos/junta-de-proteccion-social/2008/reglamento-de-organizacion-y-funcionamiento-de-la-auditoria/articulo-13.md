@@ -1,1 +1,0 @@
-Artículo 13.—La jornada laboral del Auditor y Subauditor Internos será de tiempo completo, tal como lo establece el artículo N° 30 de la Ley de Control Interno, y el nombramiento de ambos es por plazo indefinido.

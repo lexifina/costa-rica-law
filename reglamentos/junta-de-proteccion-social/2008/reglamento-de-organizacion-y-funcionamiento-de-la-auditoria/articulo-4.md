@@ -1,1 +1,0 @@
-Artículo 4º—Los funcionarios de Auditoría deberán observar las normas éticas que rigen la profesión, caracterizándose con valores como: integridad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que la institución promueva para guiar su actuación.

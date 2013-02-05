@@ -1,1 +1,0 @@
-Artículo 28.—De conformidad con lo que establece el artículo N° 33, inciso c) de la Ley de Control Interno, la Auditoría tiene la potestad de solicitar el servicio de la Asesoría Legal y “y cualquier otra dependencia administrativa o servicio”, de la institución que considere necesario para el cumplimiento de sus funciones.
