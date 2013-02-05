@@ -1,1 +1,0 @@
-Artículo 15.—Quedan sujetas a las estipulaciones de este Reglamento las empresas de prensa, radio, cine y televisión y en general todas aquellas que exploten algún medio de comunicación individual o colectiva, las que serán solidariamente responsables de las infracciones que se cometan al presente Reglamento.
