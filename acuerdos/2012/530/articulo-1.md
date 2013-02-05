@@ -171,7 +171,7 @@ FECHA | DÍA | LOTERÍA | NÚMERO SORTEO | PREMIO MAYOR
 23/04/2013 | MARTES | POPULAR | 5835 | 44,000,000
 23/04/2013 | MARTES | TIEMPOS IMPRESOS | 2274 | 75 VECES LA INVERSION
 26/04/2013 | VIERNES | POPULAR | 5836 | 44,000,000
-26/04/2013 | VIERNES | TIEMPOS IMPRESOS | 2275 | 75 VECES LA INVERSION
+26/04/2013 (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | VIERNES (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | TIEMPOS IMPRESOS (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | 2275 (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | 75 VECES LA INVERSION (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo)
 28/04/2013 | DOMINGO | NACIONAL | 4233 | 140,000,000
 28/04/2013 | DOMINGO | TIEMPOS IMPRESOS | 2276 | 75 VECES LA INVERSION
 30/04/2013 | MARTES | POPULAR | 5837 | 44,000,000
@@ -203,7 +203,7 @@ FECHA | DÍA | LOTERÍA | NÚMERO SORTEO | PREMIO MAYOR
 28/05/2013 | MARTES | POPULAR | 5845 | 44,000,000
 28/05/2013 | MARTES | TIEMPOS IMPRESOS | 2289 | 75 VECES LA INVERSION
 31/05/2013 | VIERNES | EXTRAORDINARIO- POPULAR | 5846 | 70,000,000
-31/05/2013 | VIERNES | TIEMPOS IMPRESOS | 2290 | 75 VECES LA INVERSION
+31/05/2013 (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | VIERNES (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | TIEMPOS IMPRESOS (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | 2290 (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | 75 VECES LA INVERSION (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo)
 JUNIO 2013
 FECHA | DÍA | LOTERÍA | NÚMERO SORTEO | PREMIO MAYOR
 02/06/2013 | DOMINGO | NACIONAL | 4238 | 140,000,000
@@ -217,7 +217,7 @@ FECHA | DÍA | LOTERÍA | NÚMERO SORTEO | PREMIO MAYOR
 11/06/2013 | MARTES | POPULAR | 5849 | 44,000,000
 11/06/2013 | MARTES | TIEMPOS IMPRESOS | 2295 | 75 VECES LA INVERSION
 14/06/2013 | VIERNES | POPULAR | 5850 | 44,000,000
-14/06/2013 | VIERNES | TIEMPOS IMPRESOS | 2296 | 75 VECES LA INVERSION
+14/06/2013 (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | VIERNES (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | TIEMPOS IMPRESOS (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | 2296 (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo) | 75 VECES LA INVERSION (Mediante acuerdo JD-061 aprobado mediante sesión ordinaria N° 04-2013 del 05 de febrero se establece la anulación de los números y la no realización del presente sorteo)
 16/06/2013 | DOMINGO | EXTRAOR."DÍA DEL PADRE" | 4240 | 250,000,000
 16/06/2013 | DOMINGO | TIEMPOS IMPRESOS | 2297 | 75 VECES LA INVERSION
 18/06/2013 | MARTES | POPULAR | 5851 | 44,000,000

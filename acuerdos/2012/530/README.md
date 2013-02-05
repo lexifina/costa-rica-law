@@ -15,3 +15,4 @@ Calendario Anual de Sorteos y Planes de Premios de Loterías 2013
 | --- | --- | --- |
 | 1 | 2013-01-08 | la propia norma |
 | 2 | 2013-01-31 | Acuerdo 59 (2013-01-31) |
+| 3 | 2013-02-05 | Acuerdo 61 (2013-02-05) |
