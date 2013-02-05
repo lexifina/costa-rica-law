@@ -1,0 +1,2 @@
+ARTÍCULO 21.-
+Todo sujeto pasivo que realice actividades en diferentes cantones, además del cantón de Esparza, y que en su declaración de impuesto sobre la renta incluya las ventas brutas o el ingreso bruto de manera general, deberá aportar una certificación de un contador público, en la que se detallen los montos correspondientes que le corresponde gravar a cada municipalidad, incluida la de Esparza. Esta información deberá ser verificada por la Municipalidad de Esparza.
