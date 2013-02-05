@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por el artículo 31° de la ley N° 9111 del 20 de diciembre de 2012, "Licencias para actividades lucrativas y no lucrativas del Cantón de Esparza")
 TARIFAS DE IMPUESTOS MUNICIPALES
 DEL CANTON DE ESPARZA
 ARTICULO 1.- Obligatoriedad del pago del impuesto
