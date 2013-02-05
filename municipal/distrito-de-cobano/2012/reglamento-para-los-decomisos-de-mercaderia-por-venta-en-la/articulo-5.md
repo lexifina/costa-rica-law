@@ -1,0 +1,1 @@
+Artículo 5º—De la inspección municipal. El Concejo Municipal de Distrito de Cóbano por medio de sus funcionarios y/o habilitados al efecto, podrá ejercer las labores de inspección que considere oportunas, para el fiel cumplimiento del presente Reglamento y el del Reglamento de Inspección y Notificación.

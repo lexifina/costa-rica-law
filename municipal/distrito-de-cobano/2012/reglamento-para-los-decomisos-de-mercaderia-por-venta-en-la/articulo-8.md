@@ -1,0 +1,1 @@
+Artículo 8º —Suspensión de la licencia. En el caso de contar con licencia para la actividad desplegada y ser reincidente en venta de mercadería no autorizada; la licencia será suspendida temporalmente, en la segunda reincidencia se cancelará en forma definitiva.

@@ -1,0 +1,1 @@
+Artículo 10º.—Denuncias ante los órganos jurisdiccionales. El Concejo Municipal de Distrito de Cóbano procederá a denunciar ante los órganos jurisdiccionales competentes en los casos contemplados en el inciso b) del artículo 9 y 8 de este Reglamento.
