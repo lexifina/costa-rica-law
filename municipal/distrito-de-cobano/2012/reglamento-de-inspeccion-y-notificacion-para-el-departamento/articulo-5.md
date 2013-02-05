@@ -1,0 +1,1 @@
+Artículo 5: Desobediencia. El irrespeto a lo afirmado en el artículo anterior será considerado una falta disciplinaria. Por tal motivo se le sancionará según lo que establece el artículo 19 del presente reglamento.

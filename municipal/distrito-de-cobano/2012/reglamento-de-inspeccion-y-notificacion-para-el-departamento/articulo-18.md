@@ -1,0 +1,2 @@
+Artículo 18: Responsabilidad. Los inspectores serán responsables de resguardar los activos entregados. En caso de pérdida, desperfecto o robo de los mismos, el funcionario encargado del activo deberá informar de forma inmediata al Departamento de proveeduría y a la Administración Tributaria y financiera sobre lo ocurrido ante quien deberá rendir un informe detallado de los hechos.
+En caso de comprobarse negligencia en su uso, deberá responder por el daño o extravío de los mismos.

@@ -1,0 +1,1 @@
+Artículo 22: Violación al procedimiento de notificación o inspección. Aquel funcionario que en su función de inspector o notificador omita lo establecido sobre la aceptación o petición de regalías, pagos, honorarios o beneficios será sancionado según el artículo 149 inciso d) del Código Municipal.

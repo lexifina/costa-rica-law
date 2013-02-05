@@ -1,0 +1,9 @@
+Capítulo IV: La notificación
+Artículo 9: Procedimiento de notificación. La labor de notificación es tarea vinculante para todos los inspectores municipales y necesarios para que los contribuyentes morosos se pongan al día con la cancelación de sus deudas con el Concejo Municipal de Distrito de Cóbano. Por sus características será una labor amplia que abarcará materias de cobro, patente, declaraciones juradas de catastro o cualquier otro tipo que sea requerido por la Dirección Tributaria y Financiera. Se realizará de la siguiente forma:
+a) Se informara la ruta de inspección al Administrador Tributario y Financiero o en su defecto al Intendente Municipal en ejercicio.
+b) Al llegar al sitio requerido, el inspector procederá a identificarse con el dueño de la propiedad o persona que lo atienda, dándole también una explicación acerca de la razón por la cual realiza la visita.
+c) Hará entrega de la notificación remitida por la administración, solicitando la firma del dueño de la propiedad, patentado o persona que lo atienda, para adjuntarla a la copia del archivo correspondiente.
+d) En caso de que el dueño de la propiedad, patentado o persona no acepte firmar la notificación del cobro que se le realiza, el inspector debe anotarlo en la boleta de notificación y firmarla ante un testigo.
+e) En el caso de las patentes, si existiera un atraso en la cancelación de una cuota o más o bien por falta de requisitos, se procederá a clausurar la actividad.
+f) Al llegar a la oficina, el inspector elaborará un informe de la visita, tal como se establece en el artículo 12 de este reglamento.
+g) Queda terminantemente prohibido que cualquier funcionario en su función notificadora pida cualquier tipo de regalía, pago, honorario o beneficio por ejercer, o en su defecto, dejar de ejercer sus labores. La omisión a este apéndice será sancionada con base en lo establecido en el artículo 19 de este reglamento.

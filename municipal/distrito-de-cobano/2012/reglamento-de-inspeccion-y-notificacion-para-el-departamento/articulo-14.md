@@ -1,0 +1,1 @@
+Artículo 14: Descanso. En caso estrictamente necesario de que un inspector tenga que laborar el día sábado en jornada de ocho horas o cualquier otro a convenir, se le concederá como día libre el lunes siguiente o el día a convenir dentro de la misma semana siguiente al fin de semana laborado.

@@ -1,0 +1,3 @@
+Artículo 24: Rige a partir de su publicación en el Diario Oficial “La Gaceta.”
+Aprobado en sesión extraordinaria numero 16-12, articulo II, inciso a y b, del primero de noviembre del dos mil doce a las diecisiete horas en la sala de sesiones de este Concejo, que dice: ACUERDO Nº 1 Aprobar los proyectos de reglamentos denominados ”Reglamento de inspección y notificación para el Departamento de inspecciones del Concejo Municipal de Distrito de Cóbano” y “Reglamento para los decomisos de Mercadería por venta en la vía publica y decomisos de bebidas fermentadas (alcohólicas) en lugares no autorizados”. ACUERDO UNANIME basándose en el criterio de la abogada, se abstiene de votar la regidora Reina Gloria Cruz Jiménez.
+Cóbano, 29 de noviembre del 2012
