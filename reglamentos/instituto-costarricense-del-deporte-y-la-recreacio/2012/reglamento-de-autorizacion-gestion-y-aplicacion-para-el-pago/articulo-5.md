@@ -1,0 +1,2 @@
+V.—Límite de la jornada laboral. La jornada ordinaria sumada a la extraordinaria no podrá ser mayor de doce horas diarias. Por lo tanto, el máximo de horas extraordinarias no puede exceder las 4 horas diarias.
+Sin embargo, en los trabajos que por su condición no sean insalubres o peligrosos, podrá estipularse una jornada ordinaria diurna hasta de diez horas y una jornada mixta hasta de ocho horas, siempre que el trabajo semanal no exceda de las cuarenta y ocho horas. Artículo 136 Código de Trabajo.

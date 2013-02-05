@@ -1,0 +1,4 @@
+VII.—Forma de pago. Con base en lo establecido en el Código de Trabajo, artículo Nº 139 y al pronunciamiento de la Procuraduría General de la República C-173-2000, el pago de las horas extras se hará de la siguiente manera:
+- Días especiales: sábado, domingo, feriados y asueto de ley, las primero ocho horas de trabajo ordinario se pagan en tiempo sencillo (H-1), después de las ocho horas se pagarán doble (H-3), hasta un máximo de cuatro horas.
+- Días normales: días hábiles de lunes a viernes, después de la jornada de ocho horas se pagan a tiempo y medio (H-2), hasta un máximo de 4 horas por día.
+- Para los colaboradores que cumplen funciones de vigilantes de la institución, el cálculo de pago de las horas extras se considerará de acuerdo al rol de trabajo establecido. (Diurno, mixto o nocturno).

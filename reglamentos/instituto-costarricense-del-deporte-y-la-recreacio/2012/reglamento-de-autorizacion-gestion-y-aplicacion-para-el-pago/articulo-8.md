@@ -1,0 +1,6 @@
+VIII.—Responsabilidades de los Directores de Dirección:
+1. Tramitar la autorización para trabajar horas extras con el tiempo suficiente ante la Dirección Nacional y presentarlo a la Administración de Recursos Humanos previo a la realización del trabajo que vaya a efectuar sus subalternos.
+2. Firmar los reportes de horas extras que le presenten sus colaboradores para su debido pago.
+3. Tendrá a su cargo la asignación del contenido presupuestario correspondiente, previo a la autorización de la hora extra.
+4. Indicar en la autorización previa de la hora extra si el mismo inicia antes o después del horario ordinario en días hábiles establecido por Reglamento Autónomo, de no existir dicha anotación se entenderá de oficio que el mismo se generará después de las 8 horas ordinarias reglamentarias.
+5. En el periodo de realización de los Juegos Deportivos Nacionales (una vez al año), el Director de Área de Deporte, debe solicitarle a la Dirección Nacional que extienda una resolución aprobando el pago de horas extras a los colaboradores que tengan que trabajar en esta actividad. Dicha resolución, igualmente, debe ser presentada en la Administración de Recursos Humanos previo al inicio de estos trabajos.
