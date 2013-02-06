@@ -1,3 +1,3 @@
-Artículo 24. Otros mecanismos para la gestión de deuda. La División Gestión de Activos y Pasivos podrá proponer, la reapertura de emisiones, la realización de canjes de deuda u otros mecanismos; con el fin de hacer frente a determinadas coyunturas o bien para fomentar la liquidez en el mercado. Los mismos se efectuarán de forma transparente para el mercado y en condiciones competitivas.
-(Así reformado mediante sesión N° 5539-2012 del 28 de marzo del 2012)
+Artículo 24. Otros mecanismos para la gestión de deuda. La División Gestión de Activos y Pasivos podrá proponer la reapertura de emisiones, la realización de canjes de deuda u otros mecanismos, con el fin de hacer frente a determinadas coyunturas, o bien, para fomentar la liquidez en el mercado. Estos se efectuarán de forma transparente para el mercado y en condiciones competitivas.
+(Así reformado mediante sesión N° 5583 del 6 de febrero de 2013)
 (Así corrida su numeración en sesión N° 5569-2012 del 7 de noviembre del 2012, que lo traspaso del antiguo artículo 25 al 24. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 12 original y correr la numeración de los artículos siguientes)
