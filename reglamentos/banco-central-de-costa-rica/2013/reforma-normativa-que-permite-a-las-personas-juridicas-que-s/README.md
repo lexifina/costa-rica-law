@@ -14,3 +14,4 @@ Reforma normativa que Permite a las personas jurídicas que se dedican a la inte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-31 | la propia norma |
+| 2 | 2013-02-06 | Reglamento 5583 (2013-02-06) |
