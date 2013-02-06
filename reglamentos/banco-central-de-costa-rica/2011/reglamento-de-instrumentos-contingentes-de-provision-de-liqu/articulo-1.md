@@ -29,11 +29,13 @@ Además, para las operaciones en moneda extranjera el monto máximo que el Banco
 CAPÍTULO I
 Facilidad de crédito contingente en el MIL
 I.—GARANTÍAS
-Las entidades participantes en el MIL podrán presentar como colaterales los siguientes títulos valores:
+Las entidades participantes en el mil podrán presentar como colaterales los siguientes títulos valores:
 1. Valores estandarizados emitidos por el BCCR y el Ministerio de Hacienda en moneda nacional y extranjera.
 2. Títulos valores negociables emitidos por las instituciones autónomas.
-3. Títulos valores emitidos por otros gobiernos soberanos que cuenten con una calificación AAA o del Gobierno de los Estados Unidos de América. Estos títulos deberán ser en dólares estadounidenses, con amortización al vencimiento y emitidos entre 3 meses y 10 años. La Comisión de Estabilidad Financiera (*) podrá establecer restricciones adicionales para la aceptación de este tipo de instrumentos.
-(*) (Modificada su denominación mediante sesión N° 5569-2012 del 7 de noviembre del 2012, anteriormente indicaba: "Comisión para Operaciones Contingentes de Liquidez")
+3. Títulos valores emitidos por otros gobiernos soberanos que cuenten con calificación de riesgo propio o soberano de largo plazo igual a AAA, según las agencias calificadoras de riesgo internacional Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, o del Gobierno de los Estados Unidos de América. Estos títulos deberán ser en dólares estadounidenses, con amortización al vencimiento y emitidos entre 3 meses y 10 años. La Comisión para Operaciones Contingentes de Liquidez podrá establecer restricciones adicionales para la aceptación de este tipo de instrumentos.
+4. Títulos valores emitidos por entidades supranacionales que cuenten con una calificación de riesgo de largo plazo igual a AAA, según las agencias calificadoras de riesgo internacional Standard & Poor’s, Moody’s Investor Services y Fitch Ibca. Estos títulos deberán ser en dólares estadounidenses ó en colones costarricenses, con amortización al vencimiento y emitidos entre 3 meses y 10 años. La Comisión para Operaciones Contingentes de Liquidez podrá establecer restricciones adicionales para la aceptación de este tipo de instrumentos.
+Todos los valores admitidos en garantía deberán estar valorados a mercado según los vectores de precios que el Banco Central emplee en la valoración de garantías. Además, estos títulos deberán contar con una liquidez adecuada en el mercado secundario, de acuerdo con parámetros que serán establecidos por la Comisión de Mercados.
+(Así reformado el inciso I) referente a "Garantías" en sesión N° 5583 del 6 de febrero de 2013)
 II. LAZO
 1. Colones: entre 2 y 90 días, ambos inclusive.
 2. Dólares: entre 1 y 90 días, ambos inclusive.
