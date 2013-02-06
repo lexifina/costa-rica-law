@@ -15,3 +15,4 @@ Permite a las personas jurídicas que se dedican a la intermediación financiera
 | --- | --- | --- |
 | 1 | 2013-02-06 | la propia norma |
 | 2 | 2013-02-06 | Reglamento 5582 (2013-01-30) |
+| 3 | 2013-02-06 | Reglamento 5583 (2013-02-06) |
