@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Hecho generador
+El hecho generador del impuesto es el ejercicio de cualquier tipo de actividad lucrativa (empresarial, profesional o artística) efectuada por los sujetos pasivos a título oneroso, sea esta con lucro o no, se desarrolle en un establecimiento o no, y cualquiera que sea el resultado obtenido, así como los fideicomisos, los fondos de inversión, las cuentas de participación y las sucesiones, mientras permanezcan indivisas.

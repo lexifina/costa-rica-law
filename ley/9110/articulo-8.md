@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Requisitos para la licencia municipal
+Para ejercer la actividad lucrativa (económica, profesional o artística) los interesados deberán contar con licencia municipal. En toda solicitud de otorgamiento, traslado o traspaso de licencia municipal será requisito indispensable que los interesados satisfagan lo solicitado por la Administración, conforme al ordenamiento jurídico vigente, además de estar al día en el pago de los tributos y el cumplimiento de las obligaciones tributarias municipales.
