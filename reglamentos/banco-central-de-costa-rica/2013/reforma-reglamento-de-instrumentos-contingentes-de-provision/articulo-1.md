@@ -1,0 +1,17 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 5 del acta de la sesión 5583-2013, celebrada el 6 de febrero del 2013,
+considerando que:
+a. La agencia supranacional Corporación Financiera Internacional (IFC) recibió el consentimiento por parte del Ministerio de Hacienda, para llevar a cabo emisiones en bonos en Costa Rica, a partir del primero de enero del 2013.
+b. El 19 de octubre del 2012, la Corporación Financiera Internacional solicitó al Banco Central de Costa Rica la aprobación, para que los bonos emitidos en el país por la IFC fueran aceptados como colateral en las diversas operaciones de crédito/liquidez del Banco Central de Costa Rica. Dicha entidad cuenta con la más alta calificación crediticia AAA.
+c. Actualmente, se permite emplear, como colateral, para las operaciones de liquidez y valores emitidos por gobiernos soberanos con calificación mínima de AAA. Se estima conveniente requerir este mismo perfil crediticio a las entidades supranacionales con un perfil similar.
+d. Los emisores multilaterales mantienen un estatus de acreedor preferencial y están respaldados por un amplio grupo de países.
+e. Los títulos utilizados como garantía deben ser valorados a mercado, con el fin de que se puedan calcular los montos de crédito que se pueden otorgar sobre dichas garantías. Asimismo, éstos deben cumplir con requisitos mínimos de liquidez, que permitan ejecutar la garantía de manera oportuna, en caso de un incumplimiento.
+dispuso en firme:
+I. Modificar el inciso I, Capítulo I, Título III, del Reglamento de instrumentos contingentes de provisión de liquidez por parte del Banco Central de Costa Rica, para que, en adelante, se lea de la siguiente forma:
+“I. GARANTÍAS
+Las entidades participantes en el mil podrán presentar como colaterales los siguientes títulos valores:
+1. Valores estandarizados emitidos por el BCCR y el Ministerio de Hacienda en moneda nacional y extranjera.
+2. Títulos valores negociables emitidos por las instituciones autónomas.
+3. Títulos valores emitidos por otros gobiernos soberanos que cuenten con calificación de riesgo propio o soberano de largo plazo igual a AAA, según las agencias calificadoras de riesgo internacional Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, o del Gobierno de los Estados Unidos de América. Estos títulos deberán ser en dólares estadounidenses, con amortización al vencimiento y emitidos entre 3 meses y 10 años. La Comisión para Operaciones Contingentes de Liquidez podrá establecer restricciones adicionales para la aceptación de este tipo de instrumentos.
+4. Títulos valores emitidos por entidades supranacionales que cuenten con una calificación de riesgo de largo plazo igual a AAA, según las agencias calificadoras de riesgo internacional Standard & Poor’s, Moody’s Investor Services y Fitch Ibca. Estos títulos deberán ser en dólares estadounidenses ó en colones costarricenses, con amortización al vencimiento y emitidos entre 3 meses y 10 años. La Comisión para Operaciones Contingentes de Liquidez podrá establecer restricciones adicionales para la aceptación de este tipo de instrumentos.
+Todos los valores admitidos en garantía deberán estar valorados a mercado según los vectores de precios que el Banco Central emplee en la valoración de garantías. Además, estos títulos deberán contar con una liquidez adecuada en el mercado secundario, de acuerdo con parámetros que serán establecidos por la Comisión de Mercados.”
