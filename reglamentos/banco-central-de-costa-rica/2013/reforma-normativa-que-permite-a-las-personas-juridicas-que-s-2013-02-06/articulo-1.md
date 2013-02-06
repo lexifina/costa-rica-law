@@ -1,0 +1,9 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 6 del acta de la sesión 5583-2013, celebrada el 6 de febrero del 2013,
+considerando que:
+a.- En el artículo 11 del acta de la sesión 5581-2013, celebrada el 23 de enero del 2013, la Junta Directiva del Banco Central de Costa Rica permitió que las personas jurídicas que se dedican a la intermediación financiera constituyan depósitos electrónicos a un día plazo o a más de 30 días plazo.
+b.- En el artículo 5 del acta de la sesión 5582-2013, celebrada el 30 de enero del 2013, la Junta Directiva del Banco Central de Costa Rica estableció que la entrada en vigencia y cierre de la facilidad de inversión a más de 30 días, antes mencionada, sería una facultad de la Comisión de Mercados.
+c.- En ambos acuerdos se instituyó modificar el artículo 24 de las Políticas Generales para la Administración de Pasivos, cuando lo correcto debió ser modificar el artículo 23 de dicho cuerpo normativo.
+d.- Ante consultas recibidas del medio financiero, se requiere definir, con mayor claridad, el alcance de los acuerdos antes mencionados, dado que en éstos no queda explícito que se exceptúa de lo ahí preceptuado a las personas jurídicas dedicadas a la intermediación financiera que deben mantener una reserva de liquidez.
+dispuso, en firme:
+1.- Adicionar a lo resuelto en el artículo 5 del acta de la sesión 5582-2013, celebrada el 30 de enero del 2013, que se exceptúa de esta disposición a las personas jurídicas dedicadas a la intermediación financiera que deben mantener una reserva de liquidez, según lo establecido en el artículo 117 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, del 3 de noviembre de 1995, y en el Título VI de las Regulaciones de Política Monetaria, por lo que dichas entidades pueden constituir Depósitos Overnight (DON) y DEP en Central Directo y en Captación de Fondos (CAF), a cualquier plazo y sin restricción de monto.
