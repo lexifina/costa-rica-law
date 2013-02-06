@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Venta de formularios
+Se autoriza a la Municipalidad para resarcirse el costo de los formularios utilizados para el cumplimiento de las obligaciones tributarias municipales de los sujetos pasivos, tanto formales como substanciales. Asimismo, los emitidos o expedidos en otros trámites o gestiones municipales que requieren la aprobación municipal, cuando así lo determine mediante resolución general. La Municipalidad fijará mediante resolución general el precio de los formularios, los cuales estarán exentos de impuestos.
