@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Se autoriza al Instituto Mixto de Ayuda Social, cédula jurídica número cuatro-cero cero cero-cero cuatro dos uno cuatro cuatro (N.º4-000-042144), para que done a la Municipalidad del cantón Central de Alajuela, cédula jurídica número tres-cero uno cuatro-cuatro dos cero seis tres-uno seis (N.º 3-014-42063-16), la finca de su propiedad descrita en el artículo anterior; esto, independientemente de la fuente de los recursos utilizados por el IMAS para adquirir tal inmueble.
