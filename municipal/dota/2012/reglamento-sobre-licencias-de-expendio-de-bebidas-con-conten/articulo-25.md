@@ -1,0 +1,2 @@
+Artículo 25. Procedimiento sancionatorio.
+El funcionario encargado de la administración tributaria valorara las pruebas y emitirá recomendación al alcalde sobre la procedencia o no de la denuncia ante el juzgado Contravencional correspondiente, en caso de que el Alcalde proceda con la denuncia respectiva, bastará para la interposición de la misma un escrito con breve relación de los hechos, copia del parte policial y demás elementos de prueba que considere pertinentes a efectos de que la autoridad judicial proceda con la aplicación de lo estipulado por esta ley.
