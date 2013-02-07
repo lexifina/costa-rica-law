@@ -1,0 +1,1 @@
+Artículo 21º.—El oficial de la Policía Municipal o el Inspector Municipal estará autorizado para exigir la identificación debida de quien recibe la intimación, así como solicitar ayuda de otras autoridades de la Fuerza Pública, si la necesitare a fin de cumplir con su cometido.
