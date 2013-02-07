@@ -1,0 +1,2 @@
+Artículo 5º—Convocatoria y elección.
+La convocatoria a asamblea general de vecinos y vecinas estará a cargo de las y los interesados (a) y deberá realizarse utilizando los medios de comunicación idóneos (radio, televisión, carteles, invitaciones, prensa, perifoneo y otros) y al menos con quince días naturales de anticipación. La elección será nominal y bajo las reglas de la mayoría simple; resultando electos (a) las y los miembros que alcancen el mayor número de votos de los asambleístas.
