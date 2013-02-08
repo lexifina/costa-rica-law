@@ -1,0 +1,2 @@
+ARTÍCULO 34.- Asesoramiento
+Corresponde a la Secretaría Técnica de la Coalición asesorar a las autoridades municipales para que incluyan, en sus planes de desarrollo, programas de prevención de la trata de personas y de atención a las víctimas del delito en el marco de los derechos humanos, procurando una integración dentro de la comunidad. Lo anterior, sin detrimento de las iniciativas que promueva y realice dicha Secretaría Técnica en instituciones públicas y privadas y la comunidad en general, con el apoyo y la coordinación con las instituciones correspondientes.

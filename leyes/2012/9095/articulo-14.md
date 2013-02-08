@@ -1,0 +1,2 @@
+ARTÍCULO 14.- Secretaría Técnica
+Estará a cargo de la Dirección General de Migración y Extranjería, siendo su máximo representante el director o la directora general, quien a su vez preside la Conatt. La Dirección General de Migración y Extranjería, con el apoyo de las demás instituciones que integran la Conatt estipuladas en esta ley, aportarán a nivel técnico y operativo lo necesario para el funcionamiento adecuado de la Secretaría Técnica, de acuerdo con sus competencias respectivas.

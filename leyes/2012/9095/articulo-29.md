@@ -1,0 +1,2 @@
+ARTÍCULO 29.- Protocolo de actuaciones
+Todas las instituciones públicas y privadas a cargo de la identificación, asistencia a víctimas y persecución del delito de trata de personas en el país, de común acuerdo, implementarán y aplicarán un protocolo de actuaciones que se detallará en el reglamento de la presente ley, sobre la recepción, el almacenamiento, el suministro y el intercambio de información relacionada con casos de trata de personas.

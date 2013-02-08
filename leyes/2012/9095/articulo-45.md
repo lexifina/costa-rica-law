@@ -1,0 +1,2 @@
+ARTÍCULO 45.- Participación de la persona víctima en el proceso
+Las autoridades competentes en sede judicial o administrativa deberán proporcionarle, a la persona víctima del delito de trata de personas, la oportunidad de presentar sus opiniones, necesidades, intereses e inquietudes para su consideración en las diferentes fases del proceso penal o los procedimientos administrativos relacionados con el delito, ya sea directamente o por medio de su representante.

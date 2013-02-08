@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Concepto de actividades conexas
+Para efectos de esta ley son actividades conexas de la trata de personas: el embarazo forzado, la actividad de transporte, el arrendamiento, la posesión o la administración de casas de habitación y locales con fines de trata de personas, la demanda por parte del cliente explotador de los servicios realizados por la víctima, así como otras actividades que se deriven directamente de la trata de personas.

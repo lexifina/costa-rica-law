@@ -1,0 +1,2 @@
+ARTÍCULO 60.- Plan nacional estratégico
+Corresponde a la Conatt la formulación de un Plan nacional estratégico contra la trata de personas y el tráfico ilícito de migrantes, en el que se definan las metas, las prioridades y los proyectos para el cumplimiento de los objetivos de la presente ley. Los proyectos a ejecutarse con los fondos del Fonatt deben estar contenidos en dicho Plan y ser debidamente aprobados por la Conatt para que sean presentados ante la Junta Administrativa de la Dirección General de Migración y Extranjería (DGME).

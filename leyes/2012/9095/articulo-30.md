@@ -1,0 +1,2 @@
+ARTÍCULO 30.- Denuncia
+La denuncia, así como la respectiva entrevista de la persona víctima y/o los testigos durante las actuaciones judiciales o administrativas, se llevará a cabo con el debido respeto a su vida privada y fuera de la presencia del público y los medios de comunicación. El nombre, la dirección y otra información de identificación, incluyendo imágenes, de una persona víctima de trata de personas, sus familiares o allegados, no serán divulgados ni publicados en los medios de comunicación ni en las redes sociales.

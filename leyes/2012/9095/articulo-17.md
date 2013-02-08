@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Coalición
+La Coalición Nacional contra el Tráfico Ilícito de Migrantes y la Trata de Personas elaborará, implementará por medio de sus instituciones y dará seguimiento a las diferentes acciones estratégicas contenidas en la política nacional, en coordinación con las instituciones estatales, no estatales, organizaciones de la sociedad civil y los organismos internacionales, de acuerdo con sus competencias y el apoyo que brinden a la lucha contra la trata de personas.

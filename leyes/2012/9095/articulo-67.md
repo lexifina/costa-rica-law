@@ -1,0 +1,2 @@
+ARTÍCULO 67.- Donaciones deducibles
+De conformidad con la Ley N.° 7092, Ley del Impuesto sobre la Renta, de 21 de abril de 1988, serán deducibles del cálculo del impuesto sobre la renta, las donaciones de personas, físicas o jurídicas, públicas o privadas que realicen en beneficio de los planes y programas que autorice la Coalición Nacional contra el Tráfico Ilícito de Migrantes y la Trata de Personas.

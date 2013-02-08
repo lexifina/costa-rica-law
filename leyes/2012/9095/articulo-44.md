@@ -1,0 +1,4 @@
+ARTÍCULO 44.- Instituciones responsables de asistencia a víctimas de trata
+Cuando las víctimas de trata sean personas menores de edad, el Patronato Nacional de la Infancia (PANI) será la entidad encargada de suministrar la atención, la protección de derechos y la asistencia requerida.
+Si se trata de víctimas mujeres mayores de edad, esta responsabilidad de asistencia le corresponde al Instituto Nacional de las Mujeres (Inamu). Si son personas adultas mayores, se deberá coordinar con el Consejo Nacional de la Persona Adulta Mayor (Conapam).
+Si las víctimas son personas con discapacidad mayores de dieciocho años y menores de sesenta y cinco años, el Consejo Nacional de Rehabilitación y Educación Especial, por medio de su función rectora, coordinará con las demás instituciones del Estado las competencias que les correspondan, para suministrarles la atención y asistencia que requieran de su programa de protección.

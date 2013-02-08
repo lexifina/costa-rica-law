@@ -1,0 +1,2 @@
+ARTÍCULO 61.- Comisión Técnica Permanente de Gestión de Proyectos
+Las instituciones públicas, las entidades, las organizaciones no gubernamentales o los organismos internacionales que pretendan el financiamiento de algún proyecto, deberán presentarlo a la Comisión Técnica Permanente de Gestión de Proyectos un mes antes del inicio de cada año fiscal, término dentro del cual deberán ser conocidos y revisados por esta Comisión, la cual remitirá una recomendación técnica a la Conatt para que esta los apruebe o deniegue.

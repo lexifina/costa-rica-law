@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Observadores
+Pueden asistir como observadores a las sesiones de la Coalición representantes de cualquier institución pública, de la Organización Internacional para las Migraciones (OIM), del Alto Comisionado para las Naciones Unidas para los Refugiados (Acnur), de la Organización Internacional del Trabajo (OIT), del Fondo de las Naciones Unidas para la Infancia (Unicef), así como otros representantes de organismos internacionales y de organizaciones sociales relacionados con la materia, que sean invitados por la Conatt.

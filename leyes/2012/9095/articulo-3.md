@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Ámbito de aplicación
+Esta ley se aplica al combate integral de todas las formas de trata de personas y actividades conexas, sea nacional o transnacional, esté o no relacionada con el crimen organizado, y al abordaje integral de las personas víctimas de este delito y sus dependientes previa valoración técnica. En el caso de personas menores de edad se deben atender las disposiciones establecidas en el Código de la Niñez y la Adolescencia y la legislación conexa nacional e internacional.

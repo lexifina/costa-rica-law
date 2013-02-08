@@ -1,0 +1,2 @@
+ARTÍCULO 26.- Cláusula de confidencialidad
+Toda información relacionada con los expedientes administrativos de las personas víctimas de trata, por su naturaleza tendrá carácter confidencial y será de manejo exclusivo de las personas integrantes del ERI que estén a cargo del caso, y así será declarado. La Secretaría Técnica mantendrá un total control sobre el acceso a este tipo de información. El mismo deber de confidencialidad aplica para otras personas que tengan acceso a esta información.

@@ -1,0 +1,2 @@
+ARTÍCULO 39.- Obligación de informar sobre posibles casos de víctima de trata
+Cualquier funcionario de entidades públicas o privadas que determine, en razón de su función, que existen motivos razonables para presumir que una persona es víctima del delito de trata, coordinará de manera inmediata con los miembros del Equipo de Respuesta Inmediata, el Ministerio Público o por medio del servicio 911, de acuerdo con lo establecido en el reglamento de la presente ley y los protocolos de actuación aprobados.
