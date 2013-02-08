@@ -1,0 +1,2 @@
+ARTÍCULO 28.- Confidencialidad
+Toda la información relacionada con un caso de trata de personas es confidencial, tanto la obtenida en el proceso de investigación como la suministrada por la víctima y los testigos en sede judicial o administrativa o ante funcionarios de entidades privadas, y de uso exclusivo para fines judiciales en el proceso penal por las partes directamente interesadas y acreditadas.

@@ -1,0 +1,3 @@
+ARTÍCULO 50.- Reintegración
+Las instituciones del Estado, conforme a sus competencias, establecerán programas orientados a facilitar y apoyar la reintegración familiar, comunitaria, social, educativa, laboral y económica de las víctimas de trata de personas y sus dependientes. La Comisión de Atención de Víctimas de la Conatt determinará las medidas de reintegración y el apoyo técnico y económico, cuando corresponda.
+Tanto en los procesos de repatriación voluntaria, reasentamiento y reintegración se respetarán los derechos humanos de la víctima y sus dependientes, se tomará en cuenta el criterio de la víctima y se mantendrá la confidencialidad de su condición de víctima de trata de personas. Estos procedimientos serán detallados en el reglamento de la presente ley.

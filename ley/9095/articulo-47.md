@@ -1,0 +1,2 @@
+ARTÍCULO 47.- Protección de víctimas de la trata de personas y actividades conexas
+Las víctimas de la trata de personas que decidan no presentar la denuncia o colaborar con las autoridades podrán recibir protección policial ante situaciones de amenaza, previa valoración del riesgo. La protección estará a cargo del Ministerio de Gobernación, Policía y Seguridad Pública, conforme al programa de protección que establece el reglamento de la presente ley.

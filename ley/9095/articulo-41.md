@@ -1,0 +1,3 @@
+ARTÍCULO 41.- Derecho a la privacidad y reserva de identidad
+En ningún caso se dictarán normas o disposiciones administrativas que dispongan la inscripción de las personas víctimas de la trata de personas en un registro especial, o que les obligue a poseer un documento especial que las identifique expresamente como víctimas de trata de personas o a cumplir algún requisito con fines de vigilancia o notificación.
+Asimismo, y según lo establecido en la presente ley, se hace extensivo el principio de confidencialidad a todos los medios de comunicación, para el adecuado manejo de los casos y la protección de las víctimas y los demás actores involucrados.
