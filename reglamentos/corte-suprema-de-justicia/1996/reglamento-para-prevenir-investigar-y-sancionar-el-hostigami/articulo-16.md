@@ -1,1 +1,1 @@
-Artículo 16.—Secretaría Técnica de Género como coadyuvante. Que la Secretaría Técnica de Género del Poder Judicial, será reconocida expresamente como coadyuvante de la víctima en todos los procesos por hostigamiento sexual.
+Artículo 16.—Secretaría Técnica de Género como Coadyuvante. Que la Secretaría Técnica de Género del Poder Judicial, será reconocida expresamente como coadyuvante de la víctima en todos los procesos por hostigamiento sexual.

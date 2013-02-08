@@ -1,5 +1,4 @@
-Artículo 17.—Medidas cautelares.
-El Órgano Instructor podrá gestionar ante el Consejo Superior que se ordene, en forma provisional y en cualquier momento, a partir de la presentación de la denuncia, las siguientes medidas cautelares:
+Artículo 17.—Medidas Cautelares. El Órgano Instructor podrá gestionar ante el Consejo Superior que se ordene, en forma provisional y en cualquier momento, a partir de la presentación de la denuncia, las siguientes medidas cautelares:
 1) La suspensión temporal con goce de salario:
 Se dispondrá en relación con el denunciado, en los siguientes casos:
 a) Cuando su presencia pueda causar un mayor agravio a la presunta víctima;

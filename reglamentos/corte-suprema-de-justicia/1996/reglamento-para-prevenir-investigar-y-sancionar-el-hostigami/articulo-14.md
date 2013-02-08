@@ -1,4 +1,4 @@
-Artículo 14.—Recepción de la denuncia. La denuncia será recibida por el Órgano Instructor, en forma privada y se consignará por escrito. Necesariamente contendrá:
+Artículo 14—Recepción de la Denuncia. La denuncia será recibida por el Órgano Instructor, en forma privada y se consignará por escrito. Necesariamente contendrá:
 1) Nombre y calidades completas de la presunta víctima y del denunciado o denunciada.
 2) Identificación precisa de la relación laboral e interpersonal entre la presunta víctima y el denunciado o denunciada.
 3) Descripción objetiva de todas aquellas situaciones que se pudieran constituir manifestaciones de acoso sexual, con mención aproximada de fecha y testigos.

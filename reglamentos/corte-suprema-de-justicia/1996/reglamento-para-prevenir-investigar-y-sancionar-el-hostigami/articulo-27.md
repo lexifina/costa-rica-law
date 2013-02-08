@@ -1,1 +1,1 @@
-Artículo 27.—Comunicación de lo resuelto. Una vez firme lo resuelto, se comunicará a las respectivas oficinas del Poder Judicial, así como a la Defensoría de los Habitantes, para lo que corresponda.
+Artículo 27.—Comunicación de lo Resuelto. Una vez firme lo resuelto, se comunicará a las respectivas oficinas del Poder Judicial, así como a la Defensoría de los Habitantes, para lo que corresponda.
