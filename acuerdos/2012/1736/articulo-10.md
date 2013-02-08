@@ -1,0 +1,5 @@
+Artículo 10.—Son requisitos para el ingreso al régimen de trabajo meritorio:
+1. La solicitud formal por parte del interesado/a o de la institución. En dicho documento deberá justificarse el objetivo personal o institucional de la solicitud, la disponibilidad de tiempo en cuanto al plazo, jornada y horario que estaría dispuesto a ofrecer y cualquier otra indicación o circunstancia particular que la institución deba considerar para su ingreso,
+2. La presentación del curriculum vitae y de los documentos que respalden sus atestados personales, laborales, profesionales y académicos.
+3. La existencia de una necesidad objetiva y del interés institucional en que se preste esta colaboración, así como el visto bueno del director, directora o jefe de la oficina donde se pretende desempeñar la persona meritoria.
+4. La suscripción de una carta de entendimiento en donde se describan las condiciones mediante las cuales se prestará la modalidad de trabajo y la aceptación de las partes a través de la firma del documento.

@@ -1,0 +1,1 @@
+Artículo 11.—Una vez aprobado el ingreso del personal meritorio, el Departamento de Recursos Humanos reportará a estos servidores ante e! Instituto Nacional de Seguros para efectos de la protección de la Póliza de Riesgos de Trabajo. El costo de esta cobertura será asumido por la Defensoría de los Habitantes cuando así corresponda.
