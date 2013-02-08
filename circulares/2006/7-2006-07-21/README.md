@@ -14,3 +14,4 @@ Circulares vigentes para la determinación del año modelo de los vehículos aut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-18 | la propia norma |
+| 2 | 2013-02-08 | Resolución 33 (2013-02-08) |

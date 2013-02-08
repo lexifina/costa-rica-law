@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante resolución RES-DGA-033-2013 del 8 de febrero de 2013, se ordena dejar sin efecto lo indicado en esta circular referente a la aplicación de la circular 003-89-DV del 26 de setiembre de 1989)
 21 de julio del 2006
 Circular DGA-007-2006
 Señores (as):
