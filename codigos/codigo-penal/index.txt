@@ -166,6 +166,7 @@ articulo-160.md
 articulo-161.md
 articulo-161-bis.md
 articulo-162.md
+articulo-162-bis.md
 articulo-163.md
 articulo-164.md
 articulo-165.md
@@ -181,6 +182,7 @@ articulo-173.md
 articulo-173-bis.md
 articulo-174.md
 articulo-175.md
+articulo-175-bis.md
 articulo-176.md
 articulo-177.md
 articulo-178.md
@@ -200,9 +202,11 @@ articulo-187.md
 articulo-188.md
 articulo-188-bis.md
 articulo-189.md
+articulo-189-bis.md
 articulo-190.md
 articulo-191.md
 articulo-192.md
+articulo-192-bis.md
 articulo-193.md
 articulo-194.md
 articulo-195.md
@@ -399,6 +403,7 @@ articulo-366.md
 articulo-367.md
 articulo-368.md
 articulo-369.md
+articulo-369-bis.md
 articulo-370.md
 articulo-371.md
 articulo-372.md
@@ -414,6 +419,7 @@ articulo-381.md
 articulo-382.md
 articulo-383.md
 articulo-384.md
+articulo-384-bis.md
 articulo-385.md
 articulo-386.md
 articulo-387.md

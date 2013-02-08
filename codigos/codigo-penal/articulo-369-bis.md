@@ -1,0 +1,4 @@
+Artículo 369 bis.-Venta o distribución de documentos públicos o privados
+Será reprimido con pena de prisión de tres a seis años, quien comercialice o distribuya un documento público o privado, falso o verdadero por cualquier medio ilícito y de modo que resulte perjuicio. La pena será de cuatro a ocho años de prisión, si quien comercializa o distribuye el documento es un funcionario público.
+(Así adicionado por el artículo 76 de la Ley contra la Trata de Personas y Creación de la Coalición Nacional contra el Tráfico Ilícito de Migrantes (CONATT) N° 9095 del 26 de octubre de 2012)
+(Nota de Sinalevi: De acuerdo con la reforma efectuada por ley de reforma de delitos informáticos y conexos N° 9048 del 10 de julio de 2012, se modificó la numeración del Código Penal, por lo cual el número de artículo por adicionar es el 369 bis y no 362 bis como se indica en la norma afectante)
