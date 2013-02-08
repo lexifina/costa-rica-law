@@ -29,13 +29,21 @@ A. Aplicación: Todos aquellos clientes directos del servicio de generación del
 B. Características del servicio:
 Medición: En los puntos de entrega de energía.
 Disponibilidad: En subestaciones de transmisión.
-C. Precios mensuales:
+(*) C. Precios mensuales:
 Cargo por energía, por cada kWh
 Periodo punta: $ 0,078
 Periodo valle: $ 0,064
 Periodo nocturno: $ 0,055
 La demanda de potencia mensual, para efectos de facturación, será de $4,15/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
 Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público, el¿ impuesto de venta, ni el tributo a bomberos.
+(*)(Nota de Sinalevi: Mediante resolución N° RIE-019-2013 del 8 de febrero del 2013 se ordena revocar los precios para los usuarios directos del servicio de generación del ICE tarifas T-UD, incluidos en el apratado Precios mensuales y fijar para los consumos que se originen a partir de su publicación y hasta el 31 de marzo de 2013 los siguientes precios: "
+Precios mensuales:
+Cargo por energía, por cada kWh
+Periodo punta: | $ 0,066
+Periodo valle: | $ 0,054
+Periodo nocturno: | $ 0,046
+La demanda de potencia mensual, para efectos de facturación, será de $3,53/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
+Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público, el impuesto de venta, ni el tributo a bomberos...")
 DISPOSICIONES GENERALES:
 1.- La demanda de potencia a facturar a las empresas distribuidoras con generación propia, será la diferencia algebraica, entre la suma de las potencias demandadas por laempresa distribuidora en los puntos en que sus redes retiran la energía de la red de transmisión del ICE y la suma de las potencias suplidas a las red del ICE, por los generadores propiedad de la empresa distribuidora, registradas en idénticos períodos de integración.
 Para efectos de lo anterior, los equipos de medición deberán de operarse en forma sincronizada y con las características señaladas en el apartado 11 de la norma técnica AR-NTCON “Uso, Funcionamiento y Control de Contadores de Energía Eléctrica”.
@@ -91,13 +99,20 @@ A. Aplicación: Todos aquellos clientes directos del servicio de generación del
 B. Características del servicio:
 Medición: En los puntos de entrega de energía.
 Disponibilidad: En subestaciones de transmisión.
-C. Precios mensuales:
+(*) C. Precios mensuales:
 Cargo por energía, por cada kWh
 Periodo punta: $ 0,078
 Periodo valle: $ 0,064
 Periodo nocturno: $ 0,055
 La demanda de potencia mensual, para efectos de facturación, será de $4,15/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
 Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público o el impuesto de ventas.
+(*)(Nota de Sinalevi: Mediante resolución N° RIE-019-2013 del 8 de febrero del 2013 se ordena revocar los precios para los usuarios directos del servicio de generación del ICE tarifas T-UD, incluidos en el apratado Precios mensuales y fijar para los consumos que se originen a partir de su publicación y hasta el 31 de marzo de 2013 los siguientes precios: " ...Precios mensuales:
+Cargo por energía, por cada kWh
+Periodo punta: | $ 0,066
+Periodo valle: | $ 0,054
+Periodo nocturno: | $ 0,046
+La demanda de potencia mensual, para efectos de facturación, será de $3,53/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
+Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público, el impuesto de venta, ni el tributo a bomberos...)
 DISPOSICIONES GENERALES:
 1.- La demanda de potencia a facturar a las empresas distribuidoras con generación propia, será la diferencia algebraica, entre la suma de las potencias demandadas por la empresa distribuidora en los puntos en que sus redes retiran la energía de la red de transmisión del ICE y la suma de las potencias suplidas a las red del ICE, por los generadores propiedad de la empresa distribuidora, registradas en idénticos períodos de integración.
 Para efectos de lo anterior, los equipos de medición deberán de operarse en forma sincronizada y con las características señaladas en el apartado 11 de la norma técnica ARNTCON “Uso, Funcionamiento y Control de Contadores de Energía Eléctrica”.
@@ -151,13 +166,14 @@ A. Aplicación: Todos aquellos clientes directos del servicio de generación del
 B. Características del servicio:
 Medición: En los puntos de entrega de energía.
 Disponibilidad: En subestaciones de transmisión.
-C. Precios mensuales:
+(*) C. Precios mensuales:
 Cargo por energía, por cada kWh
-Periodo punta: $ 0,089
-Periodo valle: $ 0,073
-Periodo nocturno: $ 0,062
-La demanda de potencia mensual, para efectos de facturación, será de $4,73/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
-Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público o el impuesto de ventas.
+Periodo punta: | $ 0,075
+Periodo valle: | $ 0,062
+Periodo nocturno: | $ 0,053
+La demanda de potencia mensual, para efectos de facturación, será de $4,02/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
+Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público y el impuesto de ventas.
+(*)(Así reformado el punto c) anterior mediante resolución N° N° RIE-019-2013 del 8 de febrero del 2013)
 DISPOSICIONES GENERALES:
 1.- La demanda de potencia a facturar a las empresas distribuidoras con generación propia, será la diferencia algebraica, entre la suma de las potencias demandadas por la empresa distribuidora en los puntos en que sus redes retiran la energía de la red de transmisión del ICE y la suma de las potencias suplidas a las red del ICE, por los generadores propiedad de la empresa distribuidora, registradas en idénticos períodos de integración.
 Para efectos de lo anterior, los equipos de medición deberán de operarse en forma sincronizada y con las características señaladas en el apartado 11 de la norma técnica ARNTCON “Uso, Funcionamiento y Control de Contadores de Energía Eléctrica”.
@@ -213,13 +229,14 @@ A. Aplicación: Todos aquellos clientes directos del servicio de generación del
 B. Características del servicio:
 Medición: En los puntos de entrega de energía.
 Disponibilidad: En subestaciones de transmisión.
-C. Precios mensuales:
+(*) C. Precios mensuales:
 Cargo por energía, por cada kWh
-Periodo punta: $ 0,069
-Periodo valle: $ 0,056
-Periodo nocturno: $ 0,048
-La demanda de potencia mensual, para efectos de facturación, será de $3,67/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
-Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público o el impuesto de ventas.
+Periodo punta: | $ 0,058
+Periodo valle: | $ 0,048
+Periodo nocturno: | $ 0,041
+La demanda de potencia mensual, para efectos de facturación, será de $3,1/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
+Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público y el impuesto de ventas.
+(*)(Así reformado el punto c) anterior mediante resolución N° RIE-019-2013 del 8 de febrero del 2013)
 DISPOSICIONES GENERALES:
 1.- La demanda de potencia a facturar a las empresas distribuidoras con generación propia, será la diferencia algebraica, entre la suma de las potencias demandadas por la empresa distribuidora en los puntos en que sus redes retiran la energía de la red de transmisión del ICE y la suma de las potencias suplidas a las red del ICE, por los generadores propiedad de la empresa distribuidora, registradas en idénticos períodos de integración.
 Para efectos de lo anterior, los equipos de medición deberán de operarse en forma sincronizada y con las características señaladas en el apartado 11 de la norma técnica ARNTCON
@@ -276,13 +293,14 @@ A. Aplicación: Todos aquellos clientes directos del servicio de generación del
 B. Características del servicio:
 Medición: En los puntos de entrega de energía.
 Disponibilidad: En subestaciones de transmisión.
-C. Precios mensuales:
+(*) C. Precios mensuales:
 Cargo por energía, por cada kWh
-Periodo punta: $ 0,060
-Periodo valle: $ 0,049
-Periodo nocturno: $ 0,042
-La demanda de potencia mensual, para efectos de facturación, será de $3,19/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
-Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público o el impuesto de ventas.
+Periodo punta: | $ 0,051
+Periodo valle: | $ 0,042
+Periodo nocturno: | $ 0,036
+La demanda de potencia mensual, para efectos de facturación, será de $2,71/kW sobre el promedio más alto en kilovatios para cualquier intervalo de quince minutos, registradas en los periodos de punta y valle durante el mes, exceptuando la registrada los sábados y domingos.
+Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público y el impuesto de ventas.
+(*)(Así reformado el punto c) anterior mediante resolución N° RIE-019-2013 del 8 de febrero del 2013)
 DISPOSICIONES GENERALES:
 1.- La demanda de potencia a facturar a las empresas distribuidoras con generación propia, será la diferencia algebraica, entre la suma de las potencias demandadas por la empresa distribuidora en los puntos en que sus redes retiran la energía de la red de transmisión del ICE y la suma de las potencias suplidas a las red del ICE, por los generadores propiedad de la empresa distribuidora, registradas en idénticos períodos de integración.
 Para efectos de lo anterior, los equipos de medición deberán de operarse en forma sincronizada y con las características señaladas en el apartado 11 de la norma técnica ARNTCON
