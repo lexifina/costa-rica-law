@@ -165,3 +165,6 @@ a. Todas las inspecciones por descarga serán cobradas, independientemente de la
 14. Las licencias, permisos o autorizaciones que no sean pagadas en el periodo correspondiente, deberán ser canceladas con el monto de la tarifa anual que corresponda a cada año adeudado, más un 10% por año por concepto de multa por el atraso al momento de su pago. (Modificado con AJDIP/469-2012).
 15. El dinero recaudado por las tarifas cobradas será depositado e ingresado en las cuentas bancarias que el INCOPESCA tenga en los bancos del Sistema Bancario Nacional. De igual manera, los usuarios podrán pagar el importe por las tarifas mediante medios electrónicos (transferencia, datáfono, pago electrónico).
 16. Las tarifas establecidas estarán sujetas a revisión y ajuste cuando ello fuere procedente, por parte del INCOPESCA.
+17. Se autoriza a las diversas dependencias institucionales la emisión de carnés para la práctica de la pesca deportiva desde tierra sin ningún costo para quien lo solicite.
+Igualmente deberá identificarse con claridad meridiana en dicho documento, que el mismo únicamente autoriza la práctica de la pesca deportiva desde tierra, careciendo de total validez para el ejercicio de ésta actividad a bordo de una embarcación.
+(Así adicionada la nota anterior mediante acuerdo AJDIP/057-2013 del 8 de febrero del 2013)
