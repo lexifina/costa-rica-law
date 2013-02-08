@@ -13,3 +13,4 @@ Reforma Integral Reglamento para prevenir, investigar y sancionar el hostigamien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-15 | la propia norma |
+| 2 | 2013-02-08 | Circular 174 (2013-02-08) |
