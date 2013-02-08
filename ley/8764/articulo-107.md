@@ -1,2 +1,2 @@
-ARTÍCULO 107.-
-La Dirección General de Migración y Extranjería podrá otorgar permanencia temporal a víctimas de trata de personas, previa recomendación técnica que realice la comisión creada por esta Dirección para tal efecto y en cumplimiento de las demás condiciones que establezcan el Reglamento de la presente Ley, los tratados y los convenios internacionales.
+ARTÍCULO 107.La Dirección General de Migración y Extranjería podrá otorgar permanencia temporal a víctimas de trata de personas, previa acreditación y recomendación del Equipo de Respuesta Inmediata, en cumplimiento de los tratados y los convenios internacionales.
+(Así reformado por el artículo 82° de la Ley contra la Trata de Personas y Creación de la Coalición Nacional contra el tráfico ilícito de migrantes y la trata de personas (CONATT), N° 9095 del 26 de octubre de 2012)

@@ -1,0 +1,2 @@
+ARTÍCULO 53.- Destinación del Fondo
+La constitución y los dineros del Fondo serán única y exclusivamente destinados al financiamiento de gastos administrativos y operativos para la prevención, investigación, persecución y detección del delito de trata de personas; atención integral, protección y reintegración social de las víctimas de trata de personas acreditadas, nacionales y extranjeras, así como el combate integral del delito de tráfico ilícito de migrantes. Para los gastos administrativos no podrá destinarse más de un veinte por ciento (20%) de los recursos recaudados.

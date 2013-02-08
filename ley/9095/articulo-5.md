@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Concepto de trata de personas
+Por trata de personas se entenderá el promover, facilitar o favorecer la entrada o salida del país o el desplazamiento, dentro del territorio nacional, de personas de cualquier sexo para realizar uno o varios actos de prostitución o someterlas a explotación o servidumbre, ya sea sexual o laboral, esclavitud o prácticas análogas a la esclavitud, trabajos o servicios forzados, matrimonio servil, mendicidad forzada, extracción ilícita de órganos o adopción irregular.

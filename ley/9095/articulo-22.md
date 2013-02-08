@@ -1,0 +1,2 @@
+ARTÍCULO 22.- Representantes del ERI
+El jerarca o la jerarca de cada una de las instancias públicas indicadas en el artículo 20 designará una persona representante propietaria y dos suplentes con conocimientos técnicos especializados en materia de trata de personas, que mantendrá sus funciones por un período de dos años prorrogables, de manera que se garantice la continuidad de las acciones del ERI.

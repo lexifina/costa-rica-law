@@ -1,0 +1,2 @@
+ARTÍCULO 71.- Deber de denunciar
+Las funcionarias y los funcionarios públicos estarán obligados a denunciar, ante los órganos policiales especializados o ante el Ministerio Público, cualquier situación que constituya sospecha razonable de actividad de trata de personas o tráfico ilícito de migrantes. Poseen igual obligación los miembros y representantes de las instituciones y organizaciones que conforman la Coalición Nacional.
