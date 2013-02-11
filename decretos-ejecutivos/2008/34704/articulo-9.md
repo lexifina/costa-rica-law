@@ -1,1 +1,0 @@
-Artículo 9º—Políticas Públicas en torno al teletrabajo: El Equipo Coordinador podrá recomendar al Poder Ejecutivo la implementación de políticas públicas, en relación con la infraestructura tecnológica que se requiera para el desarrollo eficiente de las funciones del teletrabajador.

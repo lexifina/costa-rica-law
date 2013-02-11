@@ -1,8 +1,0 @@
-Artículo 2º—Definiciones:
-a) Teletrabajo: Es toda modalidad de prestación de servicios de carácter no presencial, en virtud de la cual un funcionario público, puede desarrollar parte de su jornada laboral mediante el uso de medios telemáticos desde sus propio domicilio, u otro lugar habilitado al efecto, siempre que las necesidades y naturaleza del servicio lo permitan, y en el marco de la política de conciliación de la vida personal, familiar y laboral de los funcionarios públicos.
-b) Instituciones del Estado: Dependencias públicas que podrán acogerse al programa de teletrabajo.
-c) Tecnologías de la Información y Comunicaciones (TIC): Es un conjunto de servicios, redes, software y dispositivos que tienen como fin el mejoramiento de la calidad de vida, de las personas dentro un entorno, y que se integran a un sistema de información interconectado y complementario.
-d) Domicilio personal o lugar habilitado a los efectos: La casa de habitación del teletrabajador o cualquier otro lugar autorizado y habilitado adecuadamente desde donde se van a realizar las labores encomendadas.
-e) Teletrabajador: Aquella persona que, en el desempeño de su puesto de trabajo en una institución pública, alterna su presencia en el centro de trabajo con alguna de las modalidades de carácter no presencial.
-f) Servicios no presenciales: Aquellos servicios públicos, en este caso, que para su correcta y oportuna ejecución no es necesario que el funcionario que los realiza se encuentre dentro de la entidad o institución donde brinda sus servicios.
-g) Ofimática: Equipamiento que se utiliza para generar, almacenar, procesar o comunicar información en un entorno de oficina.

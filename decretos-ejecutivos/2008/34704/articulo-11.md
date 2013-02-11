@@ -1,1 +1,0 @@
-Artículo 11.—Análisis global. Concluida la ejecución de los Programas de Teletrabajo, las instituciones del Estado remitirán al Equipo Coordinador, en un plazo no mayor a tres meses, la evaluación de sus resultados, a fin de efectuar un análisis global integrado sobre su implementación.
