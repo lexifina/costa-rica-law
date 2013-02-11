@@ -1,0 +1,3 @@
+Artículo 29
+Los objetivos, alcance, hallazgos, las conclusiones y recomendaciones de los estudios realizados por la Auditoría Interna, deberán comunicarse oficialmente por escrito, mediante informes al jerarca o a los titulares subordinados de la Administración activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones, a efecto de que se tomen las decisiones del caso oportunamente, de acuerdo con lo establecido en el artículo 35 de la Ley General de Control Interno.
+En el caso de resultados de los que pueden derivarse eventuales responsabilidades, la comunicación deberá realizarse observando la normativa específica emitida por la Contraloría General de la República.

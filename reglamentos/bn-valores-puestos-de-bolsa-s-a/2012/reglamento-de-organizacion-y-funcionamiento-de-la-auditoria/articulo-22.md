@@ -1,0 +1,2 @@
+Artículo 22
+La Auditoría Interna dará cumplimiento a los deberes establecidos en el artículo 32 de la Ley General del Control Interno así como a aquéllos que determine la normativa emitida por la Contraloría General de la República.
