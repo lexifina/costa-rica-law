@@ -1,0 +1,11 @@
+12. Proceso de Certificación
+12.1. La duración de un ciclo de certificación es de cinco años calendario.
+12.2. Para certificarse por vez primera, el solicitante debe tener, al menos cinco años de haber obtenido la licencia para el ejercicio profesional otorgada por el Colegio Federado.
+12.3. Por cada ciclo de certificación, el miembro objeto de evaluación, debe completar al menos 100UC. Reiniciándose la cuenta de unidades de certificación válidas, cada vez que se complete un ciclo.
+12.4. De no completarse las 100UC en la suma de actividades de actualización, de desarrollo o de experiencia profesional, en el período considerado, el solicitante podrá realizar un examen de certificación para completar las UC restantes.
+12.5. Con la solicitud se deberá aportar el curriculum vitae actualizado y los atestados que comprueban la participación en actividades de actualización, de desarrollo profesional, de experiencia profesional certificada, o solicitar la realización de un examen de certificación.
+12.6. Los profesionales que ejerzan liberalmente la profesión, deben presentar documentos que certifiquen su experiencia profesional, tal como declaración jurada, carta satisfacción del cliente por trabajo realizado y/o certificaciones de consultorías realizadas.
+12.7. El profesional deberá cancelar los aranceles establecidos por la Junta Directiva General.
+12.8. Cumpliendo todos los requisitos establecidos de certificación, bajo las modalidades de evaluación establecidas en el presente reglamento, el C.F.I.A. otorgará un título o certificado, que da fe de la condición del sustentante y su período de vigencia. Una copia del título de certificación, se incorporará al expediente personal del miembro evaluado.
+12.9. Toda certificación, de actualización profesional, podrá renovarse cada cinco años calendario, que contará a partir de la fecha de su otorgamiento. Para efectos de revalidación de la certificación, no se tomarán en cuenta estudios realizados que ya fueron evaluados en certificaciones anteriores.
+12.10. La Resolución de Junta Directiva General que rechace la certificación de un profesional miembro del Colegio Federado, tendrá recurso de revocatoria ante la misma Junta Directiva General y recurso de apelación ante la Asamblea de Representantes.
