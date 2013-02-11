@@ -14,3 +14,4 @@ Reglamento General para la Ley Regulación y la Comercialización de Bebidas con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-21 | la propia norma |
+| 2 | 2013-02-11 | Reglamento municipal 7 (2013-02-11) |
