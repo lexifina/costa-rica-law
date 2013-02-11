@@ -14,3 +14,4 @@ Reglamento para el trámite de revisión y aprobación de los Reglamentos intern
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-25 | la propia norma |
+| 2 | 2013-02-11 | Decreto Ejecutivo 37620 (2013-02-11) |
