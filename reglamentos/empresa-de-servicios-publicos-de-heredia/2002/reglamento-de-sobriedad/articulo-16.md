@@ -1,0 +1,1 @@
+16.—Este reglamento es de observancia obligatoria para todos los funcionarios de la Empresa de Servicios Públicos de Heredia S.A. y entra en vigencia a partir de su publicación oficial en el Diario Oficial La Gaceta.

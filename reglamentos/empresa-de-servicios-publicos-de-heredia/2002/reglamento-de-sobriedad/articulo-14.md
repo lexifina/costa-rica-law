@@ -1,1 +1,1 @@
-Artículo 14.—Se sancionará conforme al Reglamento Interno de trabajo a todas y cada una de la jefaturas que incumplan con su responsabilidad indicada en este Reglamento.
+14.—Para todos los casos no contemplados en este reglamento se aplicará lo indicado en el Reglamento Autónomo de Servicios y el Código de Trabajo.

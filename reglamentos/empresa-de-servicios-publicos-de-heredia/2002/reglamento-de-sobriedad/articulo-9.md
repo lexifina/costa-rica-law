@@ -1,1 +1,1 @@
-Artículo 9º—El jefe inmediato superior remitirá una amonestación escrita al trabajador que incumpla las presentes disposiciones, indicando con claridad los motivos por los cuales se sanciona. Asimismo, deberá remitir copia de la sanción al Departamento de Recursos Humanos.
+Artículo 9°—El jefe inmediato superior remitirá un informe a Recursos Humanos, cuando se percate de que algún trabajador ha incumplido con las disposiciones de esta normativa y Recursos Humanos se encargará de dar el trámite correspondiente, con forme con la normativa vigente en materia sancionatoria.

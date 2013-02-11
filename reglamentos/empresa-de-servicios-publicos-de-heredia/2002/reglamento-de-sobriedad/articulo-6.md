@@ -1,1 +1,1 @@
-Artículo 6º—Todo trabajador que por problemas de alcoholismo o fármaco dependencia sea remitido a terapia previo dictamen del médico de empresa, está en la obligación de asistir a la misma, siendo la desobediencia un motivo de despido sin responsabilidad patronal.
+Artículo 6°—Todo trabajador que por problemas de alcoholismo o fármaco dependencia sea remitido a terapia previo dictamen del médico de empresa, está en la obligación de asistir a la misma, siendo la desobediencia un motivo para despido sin responsabilidad patronal.

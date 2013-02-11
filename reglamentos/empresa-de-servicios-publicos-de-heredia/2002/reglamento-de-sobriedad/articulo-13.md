@@ -1,1 +1,1 @@
-Artículo 13.—Para todos los actos procedimentales dirigidos a un eventual despido y que se inicien en ejecución de este reglamento, se aplicará lo indicado por la Ley General de la administración Pública.
+13.—Se sancionará conforme a la normativa existente para la materia a las jefaturas que incumplan con su responsabilidad indicada en este Reglamento.

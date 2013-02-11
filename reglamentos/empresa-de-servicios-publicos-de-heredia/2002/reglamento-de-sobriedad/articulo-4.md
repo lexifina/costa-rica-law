@@ -1,1 +1,1 @@
-Artículo 4º—Es prohibida la venta o uso de bebidas alcohólicas, drogas enervantes o estimulantes dentro de las instalaciones de la ESPHSA.
+Artículo 4º—Es prohibido portar, consumir, comercializar o de cualquier forma utilizar o suministrar a compañeros de trabajo o terceros, bebidas alcohólicas, drogas prohibidas enervantes o estimulantes en los sitio de trabajo de la E.S.P.H.S.A.

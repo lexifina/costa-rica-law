@@ -14,3 +14,4 @@ Reglamento de Sobriedad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-08 | la propia norma |
+| 2 | 2013-02-11 | Reglamento 3327 (2013-02-11) |
