@@ -1,1 +1,0 @@
-Artículo 4°.- Debido a los ajustes que se requieren para implantar el sistema aquí establecido, esta resolución rige para las ventas e imprtaciones que se realien a partir del 1° de marzo de mil novecientos noventa y cinco.
