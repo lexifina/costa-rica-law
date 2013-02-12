@@ -21,3 +21,4 @@ Reglamento del Registro Público
 | 6 | 2001-12-17 | Decreto Ejecutivo 30097 (2001-12-17) |
 | 7 | 2009-09-30 | Decreto Ejecutivo 35509 (2009-09-30) |
 | 8 | 2012-02-24 | Decreto Ejecutivo 37020 (2012-02-24) |
+| 9 | 2013-02-12 | Decreto Ejecutivo 37593 (2013-02-12) |

@@ -1,9 +1,9 @@
-Artículo 50. —Requisitos para que el documento sea recibido en la Oficina del Diario. Para que un documento sea recibido en la Oficina del Diario, debe de haber cumplido los siguientes requisitos:
+Artículo 50. —Requisitos para que el documento sea recibido en la Oficina del Diario. Para que un documento sea recibido en el Departamento del Diario del Registro Nacional debe de haber cumplido los siguientes requisitos:
 a) Haber satisfechos los derechos de registro y timbres correspondientes.
 b) Haber cumplido los requisitos formales requeridos por Ley.
 c) Cuando se trate de cancelación de hipoteca de cédulas, entregar la cédula de previo al Registrador de Cédulas, quien pondrá razón de recibido en el documento y en la cédula.
-d) Indicar la oficina del Registro Público en que dicho acto o contrato debe inscribirse
+d) Indicar la oficina del Registro Público en que dicho acto o contrato debe inscribirse.
 e) En los documentos donde se somete un inmueble al régimen de propiedad horizontal, debe contener una razón inserta por el Catastro Nacional, haciendo constar el recibido de los planos y de la copia del documento.
 f) Portar la boleta de seguridad del Notario que autoriza el acto, en caso que se realice la presentación en forma electrónica no debe presentarse dicho requisito.
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 48 al 50 actual)
-(Así reformado por el artículo 30 del Reglamento para la utilización y funcionamiento del Portal "Crearempresa", aprobado mediante decreto ejecutivo N° 37020 del 24 de febrero del 2012)
+(Así reformado por el artículo 64 del Reglamento para el Funcionamiento y la Utilización del Portal "Crearempresa", aprobado mediante decreto ejecutivo N° 37593 del 12 de febrero de 2013)
