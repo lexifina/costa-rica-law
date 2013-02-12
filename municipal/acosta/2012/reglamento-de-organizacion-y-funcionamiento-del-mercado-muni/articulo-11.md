@@ -1,0 +1,13 @@
+Artículo 11.—Obligaciones de la Administración:
+Además de las obligaciones contenidas en otras disposiciones de este Reglamento y en el resto del Ordenamiento Jurídico vigente, corresponderá a la persona titular del cargo de Administración del Mercado lo siguiente:
+a) Hacer cumplir el presente Reglamento ante las personas concesionarias, administradores, dependientes y público en general; para lo cual podrá solicitar colaboración institucional a la Administración Municipal para lo que considere pertinente. La Administración Municipal podrá requerir igualmente la colaboración de la Fuerza Pública y de las autoridades de seguridad para hacer cumplir lo que establece el Bloque de Legalidad.
+b) Atender las emergencias en jornada extraordinaria ante el requerimiento de su presencia.
+c) Coadyuvar en la gestión de cobro administrativo de los precios públicos y de los tributos municipales en la relaciones con los concesionarios de locales comerciales en estos inmuebles y compulsar el pago entrado en mora.
+d) Conocer y resolver las solicitudes, denuncias, quejas y demás procedimientos administrativos que se le formulen con relación al funcionamiento de estos inmuebles.
+e) Denunciar ante las autoridades municipales o judiciales correspondientes, los hechos delictivos, las contravenciones y las faltas a este Reglamento que fueren cometidos dentro de las instalaciones del Mercado.
+f) Hacer del conocimiento de las personas superiores jerárquicas las deficiencias que encuentre durante el ejercicio de sus funciones y sugerir las medidas que estime necesarias para la buena marcha del Mercado.
+g) Exigir corrección y cumplimiento de las obligaciones a cargo del personal subalterno, para lo cual ejercerá las facultades disciplinarias.
+h) Sugerir a la Administración las reformas que crea pertinente introducir a este Reglamento, para su traslado al Concejo.
+i) Ejercer su autoridad y atribuciones de forma que mantenga la armonía y cooperación con sus subalternos, inquilinos y público en general.
+j) Promover entre los adjudicatarios la suscripción de pólizas de riesgos, individuales o colectivas para la protección de sus activos en virtud de que el ayuntamiento no está obligado a asumir pérdidas a consecuencia de siniestros o desastres naturales.
+k) Permanecer en las instalaciones del mercado en su horario normal y extraordinario en un local destinado a ese fin.

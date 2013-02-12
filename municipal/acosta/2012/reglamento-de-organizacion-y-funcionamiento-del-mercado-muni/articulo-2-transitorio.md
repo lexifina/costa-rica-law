@@ -1,0 +1,2 @@
+Transitorio II. Elaboración de expedientes administrativos
+La Alcaldía, en conjunto con la Administración del Mercado, deberá de abrir un expediente administrativo por cada uno de los locales comerciales, tanto del mercado como de las propiedades en arriendo de la Municipalidad. En estos expedientes deberá de cumplirse con la totalidad de los requisitos que se enuncian en este reglamento. Para ello la Administración deberá concluir esta labor en un plazo de un año a partir de esta aprobación y su publicación en el diario oficial La Gaceta.

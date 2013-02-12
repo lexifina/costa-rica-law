@@ -1,0 +1,10 @@
+Artículo 8º—Competencia de la persona titular en la Alcaldía Municipal:
+Es competencia del Alcalde o a quien éste delegue de las siguientes competencias:
+a. Aquellos aspectos relacionados con el ejercicio de la disciplina en relación con las personas servidoras de la Actividad de y la tramitación de aspectos laborales relacionados con estos mismos funcionarios.
+b. En coordinación con la Actividad de Mercado, formular y ejecutar todos los Proyectos, Programas y Planes institucionales y administrativos, de transformación y remodelación en general de los inmuebles, así como relacionado con aspectos organizacionales, de jerarquía y de toma de decisiones referidos al Inmueble.
+c. Decidir acerca de los asuntos que competen a la Actividad de Mercado en caso de ausencia de las personas servidoras a cargo.
+d. Podrá, también en el marco de sus funciones, avocar conocimiento de cualquier asunto o expediente administrativo, de conformidad con lo que al respecto establece la Ley General de Administración Pública.
+e. Proponer oportunamente al Concejo Municipal los estudios técnicos que puedan fundamentar los aumentos en los precios públicos que deberán pagar las personas concesionarias de los locales comerciales de estos inmuebles cada año de acuerdo con los contratos. Para estos efectos deberá considerar la Ley sobre arrendamiento de locales Municipales en sus artículos 1º, 2º, 3º y 4º. (Anexo al documento)
+f. Proponer oportunamente al Concejo Municipal acerca de las actividades y destinos que se deben dar a los locales comerciales con criterios técnicos especializados, de conformidad con los mapas y planos de zonificación y sectorización así como mantener actualizados éstos de acuerdo a los mejores intereses institucionales.
+g. Fijar las limitaciones de transformación interna, mejoras y acondicionamiento de los locales. En todos estos casos será necesario el criterio técnico de las personas ingenieras y arquitectas al servicio de la institución.
+h. Cualquier otro que le impongan las leyes y los reglamentos al efecto y que se presenten a su consideración a efectos de mejorar las condiciones de operación del Mercado Municipal.

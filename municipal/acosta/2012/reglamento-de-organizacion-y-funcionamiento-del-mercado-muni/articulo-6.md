@@ -1,0 +1,5 @@
+Artículo 6.—De la Organización interna.
+a) El Mercado se organizara internamente en zonas o sectores comerciales destinados a la venta de artículos similares cuando el espacio físico se adapte para brindar estas condiciones.
+b) El Concejo, conforme a la competencia de sus órganos, estará facultado para denegar un cambio de actividad solicitado por las personas comerciantes que sean concesionarias de locales en estos inmuebles cuando el mismo esté en contra de la zonificación y sectorización que haya sido definida para cada uno de estos inmuebles.
+c) En caso de autorizar un cambio de actividad, en contra del plano de zonificación, el Concejo, deberá fundamentar y motivar su decisión en criterios técnicos suficientes que apoyen la conveniencia del cambio autorizado.
+d) El Concejo no autorizará bajo ninguna circunstancia actividades dentro del Mercado Municipal que se relacione con expendio de licor, máquinas tragamonedas o juegos de azar. En estos últimos se exceptúa los puestos de patentados debidamente autorizados por la Junta de Protección Social.

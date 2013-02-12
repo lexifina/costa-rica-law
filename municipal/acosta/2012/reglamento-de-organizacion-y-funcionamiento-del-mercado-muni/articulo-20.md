@@ -1,0 +1,6 @@
+Artículo 20.—Concesionarios con Cesiones de Derechos:
+a. Podrán también ser personas concesionarias de derechos de locales comerciales en estos inmuebles los familiares hasta cuarto grado de consanguinidad y tercer grado de afinidad, que hayan obtenido del titular una cesión de estos derechos.
+b. Para la validez plena de estas cesiones, necesitarán la autorización expresa y previa del Concejo Municipal, sin cuya autorización esos contratos carecerán de valor y no serán oponibles ni reconocidos por la institución municipal ni contra terceros.
+c. En caso de autorización por parte del Concejo Municipal el contrato, que la Municipalidad tuviere con el anterior concesionario, deberá ser rescindido y generará otro con el nuevo titular del derecho autorizado.
+d. En caso de no autorización de la cesión correspondiente por parte del Concejo Municipal, se mantendrá el contrato original con el titular, si ello procediere, de lo contrario se procederá de acuerdo al inciso siguiente.
+e. El derecho del titular que no cumpliere los requisitos de este reglamento, quedará a disposición de la Municipalidad para ser adjudicado en remate público conforme a los procedimientos de contratación administrativa.

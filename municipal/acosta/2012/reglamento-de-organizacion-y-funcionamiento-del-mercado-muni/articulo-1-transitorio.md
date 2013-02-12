@@ -1,0 +1,2 @@
+Transitorio I.—Procedimientos:
+La Alcaldía en coordinación con la Administración del Mercado, deberá presentar planos con propuesta de zonificación o sectorización de las actividades del Mercado considerando los criterios técnicos necesarios que admitan una adecuada distribución de las actividades comerciales. Esta propuesta deberá estar lista en un plazo de seis meses a partir de la publicación de este Reglamento.
