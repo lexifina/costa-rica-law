@@ -1,0 +1,1 @@
+Artículo 5—Competencia Administrativa. Tanto el Director como el Subdirector de la Dirección General del Registro Nacional, como superiores jerárquicos gozan de competencia administrativa para dar el visto bueno correspondiente, entratándose del trámite de solicitudes de documentos de orden administrativo.

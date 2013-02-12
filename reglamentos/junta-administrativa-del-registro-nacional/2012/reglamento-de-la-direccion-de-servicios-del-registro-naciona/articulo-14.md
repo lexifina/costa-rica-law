@@ -1,0 +1,1 @@
+Artículo 14.—Vigencia. Rige a partir de la fecha de su publicación. Acuerdos Firmes J424 de la sesión ordinaria N° 38-2012 celebrada el día 20 de setiembre del 2012 y Acuerdo J503-2012 de la sesión ordinaria N° 46-2012 celebrada el día 22 de noviembre del 2012, ambos acuerdos tomados por la Junta Administrativa del Registro Nacional.

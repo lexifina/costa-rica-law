@@ -1,0 +1,1 @@
+Artículo 13.—Servicios, requisitos y procedimientos. Se establece la Guía de servicios, requisitos y procedimientos aplicables a todos los Departamentos de la Dirección de Servicios y a las Sedes Regionales aquí descritos.

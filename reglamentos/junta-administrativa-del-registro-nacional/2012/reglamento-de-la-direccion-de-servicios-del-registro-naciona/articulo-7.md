@@ -1,0 +1,1 @@
+Artículo 7°—Del Subdirector. La Dirección de Servicios, contará con un subdirector con el propósito de coadyuvar en el desarrollo de estrategias encaminadas al fortalecimiento de la Dirección de Servicios, ejecutando las disposiciones que le encomiende el Director en aras de brindar un servicio ágil y oportuno.
