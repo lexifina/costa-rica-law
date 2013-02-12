@@ -1,0 +1,2 @@
+Artículo 14.—De la tarjeta o registro de control de kilometraje y combustible:
+Esta deberá ser completada por el funcionario a cargo del vehículo, deberá llenarla cada vez que se le suministra combustible al vehículo y contendrá al menos la siguiente información: placa del vehículo, tipo de combustible, fecha, kilómetros al momento del suministro del combustible, cantidad de combustible suministrado (respaldado con el respectivo tiquete), costo del combustible, número de orden, número de factura y firma responsable.
