@@ -1,1 +1,0 @@
-Artículo 8º—Concepto funcional de auditoría interna. De conformidad con lo establecido en el artículo 21 de la Ley General de Control Interno, la auditoría interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones.
