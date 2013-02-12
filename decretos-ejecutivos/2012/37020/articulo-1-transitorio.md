@@ -1,1 +1,0 @@
-TRANSITORIO ÚNICO. — La inscripción de sociedades mercantiles iniciada con anterioridad a la publicación del presente Reglamento en el Diario Oficial La Gaceta continuarán su trámite en documentos físicos.

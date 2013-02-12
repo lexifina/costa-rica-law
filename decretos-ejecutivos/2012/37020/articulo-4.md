@@ -1,1 +1,0 @@
-Artículo 4.— Uso de firma digital. Todos los actos jurídicos que se realicen por medio de CrearEmpresa deben estar suscritos mediante firma digital certificada emitida al amparo de lo dispuesto en la Ley de Certificados, Firmas Digitales y Documentos Electrónicos y su Reglamento.
