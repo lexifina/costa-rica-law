@@ -1,0 +1,1 @@
+Artículo 21—Para todo trámite de presentación de documentos. Deberá el usuario presentar el documento de identificación, vigente y en buen estado, según sea el caso: cédula de identificación mayor de edad, tarjeta identificación para menores de edad entre 15 y 17 años, el pasaporte del país de origen en el caso de extranjeros o cédula de residencia.

@@ -1,0 +1,1 @@
+Artículo 74—Sobre los subprocesos en Sede Regional. Cada Sede Regional tendrá a su cargo subprocesos, los cuales serán regulados según la naturaleza de los mismos siguiendo las disposiciones que dicta esta guía de procedimientos y requisitos para cada uno de ellos en Sede Central.

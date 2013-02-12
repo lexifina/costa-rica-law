@@ -1,0 +1,6 @@
+Artículo 54— Procedimiento para presentar la solicitud de reposición de título de propiedad de vehículo automotor.
+a) La solicitud de reposición de título de propiedad de un vehículo, debe presentarse por escrito a máquina de escribir o computadora, o bien llenando el formulario que para tal efecto dispone la oficina de información del Registro Nacional, sea en sede central o sedes regionales, con letra legible, sin borrones, tachaduras, ni entrerrenglonaduras, cumpliendo además con los requisitos señalados.
+b) Se presenta toda la documentación en la ventanilla correspondiente, junto con el documento de identificación de la persona que realiza el trámite.
+c) El funcionario confrontará la información de la solicitud con la información que consta registralmente, y verificará además que cumpla con los requisitos requeridos y de encontrar conforme la información y documentación, procederá a emitir en forma inmediata el título de propiedad del vehículo, firmando y sellando el mismo.
+d) En caso de que los timbres de Registro se hayan cancelado mediante entero bancario, el funcionario de ventanilla deberá registrarlo en el Sistema.
+e) La solicitud conjuntamente con los documentos presentados quedan en custodia del Registro, para su respectiva digitalización.

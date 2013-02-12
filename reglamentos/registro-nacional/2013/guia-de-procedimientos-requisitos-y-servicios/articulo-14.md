@@ -1,0 +1,8 @@
+Artículo 14—De los requisitos en la petición de documentos por personas físicas o jurídicas contratadas por instituciones exoneradas del pago por los servicios que brinda la Dirección. El oficio o petitoria debe aportar los siguientes requisitos:
+a) Oficio redactado a máquina de escribir o impreso por computador en papel debidamente membretado de la oficina que representa (empresa que le vende los servicios a la institución exonerada).
+b) Especificar el número de concurso, donde se le dio la adjudicación para fungir como consultor externo en la institución exonerada (identificar el contrato) o bien aportar copia certificada del poder otorgado que lo faculta jurídicamente para hacer este tipo de trámite.
+c) Exposición clara e inequívoca de los documentos que se requieren, aunado con la información pertinente para ubicarlo en las bases de datos.
+d) Aportar en el oficio, la justificación normativa que fundamenta la exoneración, exención o no sujeción, plasmando literalmente en el documento, ley, artículo e inciso que se utiliza para legitimar el no pago de los servicios, cual debe expresamente contemplar la exoneración para aquellas entidades o personas físicas contratadas por la institución exonerada.
+e) En caso de que el autorizante no retire los documentos se debe consignar el nombre completo y número de identificación de la persona que estaría autorizada para el retiro de los mismos.
+f) Nombre completo, número de identificación, cargo y firma de la persona física que autoriza el oficio.
+g) Número de teléfono, fax o correo electrónico donde se pueda localizar al funcionario autorizante del documento o a la empresa petente.

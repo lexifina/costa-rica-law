@@ -1,0 +1,2 @@
+Artículo 39—Horario de atención. El horario de atención será de las 8:00 horas a las 15:30 horas. Podrá ser variado por la Dirección, previa autorización de la Junta Administrativa del registro Nacional, a efecto de mejorar el servicio público que se brinda.
+En el caso de la recepción de certificaciones literales, el usuario podrá solicitar la recepción de la misma hasta el cierre pétero del sistema informático, el cual se realiza a las 15: 30 horas.

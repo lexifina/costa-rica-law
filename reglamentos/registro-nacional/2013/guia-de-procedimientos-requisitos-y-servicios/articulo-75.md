@@ -1,0 +1,1 @@
+Artículo 75—Sobre la solicitud de documentos a Sede Central. Todo documento que sea solicitado por el usuario en alguna de las Sedes Regionales y por sus características de elaboración deba ser trasladado a la Sede Central, deberá cumplir con las formalidades y formularios dispuestos por el Registro Nacional para su debida tramitación.

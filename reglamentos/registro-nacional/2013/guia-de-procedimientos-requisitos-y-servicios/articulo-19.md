@@ -1,0 +1,1 @@
+Artículo 19— De la presentación de varios documentos en una sola Boleta de Seguridad o Presentación. Podrán ser presentados bajo una misma presentación, varios documentos autorizados por diferentes notarios, siempre y cuando cada uno de esos documentos contengan individualmente los mecanismos de seguridad asignados a la autoridad que los expide.

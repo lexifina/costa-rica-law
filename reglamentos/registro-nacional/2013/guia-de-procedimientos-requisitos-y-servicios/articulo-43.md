@@ -1,0 +1,1 @@
+Artículo 43—Exoneración de Responsabilidad: El usuario exonera al Registro Nacional de toda responsabilidad en lo referente a la custodia de los documentos, que según los controles llevados por el Departamento, se depositen en el apartado.

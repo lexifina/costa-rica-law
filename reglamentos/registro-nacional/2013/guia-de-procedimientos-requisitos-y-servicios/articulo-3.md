@@ -1,0 +1,1 @@
+Artículo 3—Sobre el documento de identificación para nacionales. Será indispensable para el usuario aportar la cédula de identidad personal y vigente, cuando el trámite administrativo lo requiera. El funcionario de atención no estará autorizado para recibir un documento distinto a este, según lo dispone la Ley Orgánica del Tribunal Supremo de Elecciones y Registro Civil.

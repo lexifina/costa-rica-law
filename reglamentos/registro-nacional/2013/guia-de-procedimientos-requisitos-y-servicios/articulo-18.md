@@ -1,0 +1,1 @@
+Artículo 18— Del documento otorgado ante dos o más Notarios. En caso de que un documento se haya otorgado ante dos o más notarios, deberá presentarse con los mecanismos de seguridad asignados al notario que expide el testimonio; con independencia del notario dueño del protocolo en el cual se haya otorgado la escritura.

@@ -1,0 +1,2 @@
+Artículo 98—Los vehículos que circulan actualmente con soportes metálicos de color azul, verde y rojo; seguirán transitando con dichos colores y se les asignarán, hasta que se termine el inventario de los soportes metálicos que existen activos en el sistema.
+Posteriormente se les asignará soportes metálicos blancos con franja amarilla, para unificarlos con los demás vehículos de transporte público.

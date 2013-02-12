@@ -1,0 +1,5 @@
+Artículo 44—Requisitos generales para el retiro de documentos. Se entregarán en ventanillas los documentos de bienes muebles, inmobiliario y personas jurídicas, que no indiquen apartado, Sede regional u otra condición. Los documentos podrán ser retirados por:
+a) Quien presente la boleta de seguridad o de reingreso firmado y sellada por el notario, con el respectivo sello de presentación del registro.
+b) El profesional que suscribe el documento, contra presentación de carné del colegio respectivo.
+c) Persona autorizada. Mediante una nota hecha en computadora u otro medio tecnológico, la cual debe ser actualizada cada año o por plazo indefinido expresamente dispuestos en el documento, deberá indicar el nombre completo y número de identificación de la persona autorizada; el nombre completo, calidades, número de teléfono, correo electrónico u otro medio de contacto del profesional que autoriza y el plazo de la autorización o las citas de presentación del documento específico a retirar.
+Debe ser firmada por el profesional, además de indicar su número de carné y el sello blanco en el caso de los notarios.

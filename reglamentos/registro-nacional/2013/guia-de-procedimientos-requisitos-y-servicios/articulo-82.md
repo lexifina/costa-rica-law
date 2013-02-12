@@ -1,0 +1,1 @@
+Artículo 82—De la placa metálica. El Registro, de acuerdo a sus posibilidades y conveniencia, en el menor tiempo posible, procederá a sustituir las placas metálicas y el documento de identificación adicional, acorde al cronograma que autorice la Junta Administrativa del Registro Nacional.

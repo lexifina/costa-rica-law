@@ -1,0 +1,1 @@
+Artículo 23—Del Reparto Automático. Una vez finalizado el horario de recepción de documentos los mismos deberán estar debidamente digitalizados y anotados con el fin de efectuar el reparto automático asignando la cantidad de documentos correspondientes a cada registrador por los medios tecnológicos disponibles.

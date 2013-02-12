@@ -1,0 +1,3 @@
+Artículo 78— Sobre los medios de atención al usuario. Este departamento proporcionara los medios indispensables para la atención del administrado, para lo cual brindará la posibilidad de gestionar los siguientes espacios:
+a) Ventanilla exclusiva de entrega de placas. El Departamento de Placas contara con ventanas exclusivas para la entrega de placas.
+b) Ventanilla exclusiva de atención para abogados y notarios públicos. En el Departamento de Placas podrá abrirse una ventanilla de recepción de documentos para uso exclusivo de abogados y Notarios Públicos, previo acuerdo de la Junta Administrativa del Registro Nacional considerando la factibilidad tanto de personal como de infraestructura. Los Notarios deberán presentar documento de identificación como notarios.

@@ -1,0 +1,10 @@
+Artículo 66—Registro Inmobiliario, documentos y requisitos. En lo correspondiente a este Registro el administrado podrá adquirir, previo a llenar con la información la solicitud, los siguientes servicios:
+a) Certificación de bienes inmuebles ya sea de fincas comunes o aquellas afectadas por regímenes especiales. El usuario debe aportar la provincia, número de matrícula y derecho.
+b) Impresión de pantalla correspondiente a datos del Registro Inmobiliario, en lo referente a tomos y asientos de inscripción de documentos, movimientos históricos de finca de 1994 a la fecha, listado de derechos de finca, linderos, gravámenes, segregaciones, fincas filiales, antecedentes y su descripción, tramites y defectos de una presentación, usuario debe contribuir con la información pertinente para la búsqueda en las bases de datos.
+c) Índices Registrales: indican si una persona física o jurídica posee bienes inscritos a su nombre, aportando su nombre completo y el número de identificación de la misma.
+d) Informes Registrales de finca: aporta la información referente a la finca junto con el valor fiscal, se brinda por el usuario el nombre completo y el número de cédula de la persona, o bien, el número de finca, provincia y derecho.
+e) Certificación y copia de planos catastrados, el administrado debe aportar el número o el nombre de la provincia seguido del número de inscripción del plano más el año de inscripción.
+f) Índices históricos de inmuebles correspondientes personas físicas o jurídicas. La certificación contendrá la información sobre las propiedades pertenecieron al sujeto o entidad, desde mil novecientos noventa y cuatro a la fecha, usuario debe aportar el nombre completo y número de cedula o identificación de la persona.
+g) Certificación de representación de la propiedad en condominio, aportar número de finca matriz.
+h) Copias de documentos digitalizados, se debe aportar el tomo y asiento del documento y especificar al certificador si desea el documento inscrito o el presentado.
+i) Y cualquier otro que la institución pueda brindar a futuro.

@@ -1,0 +1,1 @@
+Artículo 83—Documento de identificación adicional. A efectos de brindar mayor seguridad, los vehículos contarán con un documento adhesivo de seguridad que tendrá impreso el número de matrícula y la fecha de emisión de éste.

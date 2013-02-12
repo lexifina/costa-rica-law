@@ -1,0 +1,2 @@
+Artículo 84—Forma de usar la placa metálica y el documento de identificación adicional. Este documento deberá ser colocado en el sitio reglamentario y de manera totalmente visible en el vehículo, en cuanto al documento de identificación adicional deberá ser adherido en el parabrisas delantero en el caso de los vehículos automotores, y en un lugar visible en el caso de las motocicletas.
+Queda totalmente prohibido el uso de la placa metálica y el documento de identificación adicional en otro vehículo distinto al asignado.

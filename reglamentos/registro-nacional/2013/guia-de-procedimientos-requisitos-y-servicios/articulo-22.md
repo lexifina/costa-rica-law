@@ -1,0 +1,1 @@
+Artículo 22—Orden de Presentación. Una vez que el usuario cumpla con los requisitos verificables en la recepción, se procederá a asignar en el documento las citas de presentación, tomo y asiento, hora y fecha que se imprimirán en el documento o plano y en la respectiva boleta. Podrá el Registro, contemplar cualquier medio electrónico posible.

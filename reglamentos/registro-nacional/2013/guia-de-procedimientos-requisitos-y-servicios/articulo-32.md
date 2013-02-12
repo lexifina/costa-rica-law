@@ -1,0 +1,3 @@
+Artículo 32—Sobre los Requisitos de Reingreso de Planos por apelación. Es potestad del profesional en agrimensura acudir ante los jefes de registradores cuando no esté de acuerdo con la calificación hecha por el registrador y considere que se le está causando un perjuicio, para lo cual requiere:
+a) Ingresar el mismo plano de la última presentación con el sello de recibido del Diario de Planos que lo demuestre.
+b) Aportar autorización mediante boleta de revocatoria emitida por los coordinadores del área catastral registral para ejecutar el reingreso y que se aplique el principio de prioridad en el proceso de inscripción

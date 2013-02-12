@@ -1,0 +1,4 @@
+Artículo 88—Solicitud y retiro de placa y Documento de Identificación Adicional por primera vez. Requisitos. Podrá realizarlo propietario registral, autorizado, apoderado o el notario efectuante de la escritura pública para inscripción.
+a) En caso de no venir el propietario registral, el interesado deberá presentar una autorización del propietario registral, digitada (a máquina o computadora) y autenticada por notario público, según los lineamientos de la Dirección Nacional de Notariado, con su respectivo sello blanco y de tinta.
+b) Las placas temporales que fueron emitidas antes del 17-10-2001, deben cancelar los timbres correspondientes a la tarifa vigente en el Registro Nacional, para vehículos, motos y bici motos. Las placas temporales que se otorgaron después de esa fecha no cancelarátimbre alguno.
+c) Cumplir con los requerimientos del artículo 87.

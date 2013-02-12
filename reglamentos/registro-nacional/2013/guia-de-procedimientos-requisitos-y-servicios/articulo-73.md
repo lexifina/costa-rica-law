@@ -1,0 +1,3 @@
+Artículo 73—Sobre los medios de atención al usuario. Este departamento proporcionara los medios indispensables para la atención de los administrados, mediante la posibilidad de gestionar los siguientes espacios:
+a) Ventanilla de recepción de documentos. Este servicio será únicamente para la recepción de aquellos trámites a solicitud de parte, con respecto a la inscripción en los Registros de Muebles, Inmobiliario y Personas Jurídicas, marcas de ganado y todos aquellos servicios que a futuro se pueden proveer.
+b) Ventanilla para la entrega de documentos: Se realizara en este cubículo la entrega de los documentos solicitados por el usuario siempre que este solicitara expresamente la entrega del mismo en dicha Sede.

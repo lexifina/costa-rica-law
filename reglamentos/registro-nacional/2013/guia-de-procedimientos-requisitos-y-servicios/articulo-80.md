@@ -1,0 +1,1 @@
+Artículo 80—Horario de atención y recepción de documentos. El horario de recepción de documentos es de las 8:00 horas a las 15:30 horas, podrá ser variado por la Dirección de Servicios, previa autorización de la Junta Administrativa del Registro Nacional, a efecto de mejorar el servicio público que se brinda.

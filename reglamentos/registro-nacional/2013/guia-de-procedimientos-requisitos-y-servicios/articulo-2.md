@@ -1,0 +1,1 @@
+Artículo 2—Sobre la presentación de documentos intra protocolares. Los documentos de naturaleza protocolar deberán ser presentados con todas las medidas de seguridad que disponga la Administración para verificar su autenticidad y pertenencia notarial, será indispensable aportar las boletas de seguridad anexas al testimonio y todos los folios pegados con goma.

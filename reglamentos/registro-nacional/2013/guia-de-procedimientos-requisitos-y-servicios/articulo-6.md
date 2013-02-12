@@ -1,0 +1,1 @@
+Artículo 6—Realización de cinco trámites o gestiones por turno de atención. Se atenderá un maximo cinco trámites por turno de atención a aquellos usuarios que reciban el servicio en las ventanillas comunes y preferenciales que la Dirección de Servicios disponga, cada aposento deberá estar debidamente rotuladas con este máximo de gestiones por estadía de atención.

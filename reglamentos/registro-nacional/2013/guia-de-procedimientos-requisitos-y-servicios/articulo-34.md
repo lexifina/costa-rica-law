@@ -1,0 +1,2 @@
+Artículo 34— Sobre la digitalización de los documentos recibidos. Se tendrá la obligatoriedad en la Recepción de Documentos de digitalizar tanto el frente como el dorso del documento cuando este contenga información, pertinente para el trámite registral.
+Deberán escanearse los documentos que adjunten los topógrafos, con el fin realizar la corrección de defectos y facilitar la inscripción del documento.

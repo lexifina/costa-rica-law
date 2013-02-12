@@ -1,0 +1,1 @@
+Artículo 79— Autorización a Instituciones. Cada año este Departamento recibirá por parte de las Instituciones interesadas la solicitud de autorización para la realización de todos los servicios que presta esta dependencia institucional, pero para el trámite será indispensable la presentación del carné que se les entrega posterior de la presentación de los documentos anuales.
