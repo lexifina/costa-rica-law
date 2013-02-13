@@ -1,3 +1,3 @@
-Artículo 13.-
-El salario total será el salario base más los sobresueldos, incentivos, aumentos, anualidades o pasos y las demás sumas que legalmente se tienen como salarios.
+Artículo 13.-El salario total será el salario base más los sobresueldos, incentivos, aumentos, anualidades o pasos y las demás sumas que legalmente se tienen como salarios.
 Los incentivos a que se refiere esta ley, se reconocerán al profesional mientras se mantenga en las condiciones requeridas para el otorgamiento del beneficio respectivo.
+(Nota de Sinalevi: Mediante el artículo único de la ley N° 9121 del 11 de febrero de 2013, se interpretó de forma auténtica este numeral en el sentido de que: "...los artículos 5 y 13 se refieren al salario total ordinario del profesional en ciencias médicas y este estará constituido solamente por los componentes fijos que taxativamente se expresan en esta ley y los componentes fijos que se hayan incorporado al salario ordinario en virtud de otras leyes. En ese sentido, los rubros variables que se pagan por jornadas extraordinarias no forman parte del salario total ordinario")
