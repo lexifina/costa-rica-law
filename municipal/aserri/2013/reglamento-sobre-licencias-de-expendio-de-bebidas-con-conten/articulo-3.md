@@ -1,0 +1,1 @@
+Artículo 3°—Condiciones en que se otorgan las licencias. Las licencias constituyen una autorización para comercializar al detalle bebidas con contenido alcohólico en el cantón, y se otorgarán únicamente para el ejercicio de la actividad que ellas mismas determinan y en las condiciones que establece la resolución administrativa que se dicte con ese fin.
