@@ -1,0 +1,1 @@
+Artículo 5°—La lista de remisión debe llenarse correctamente se requiere entregar una copia al Archivo Central, la cual será firmada y sellada como recibida y se devolverá a la oficina de origen una vez que se haya comprobado que lo descrito en ella es lo que ingresó al Archivo Central, en caso contrario la documentación será devuelta para que se corrija dicha lista.

@@ -1,0 +1,1 @@
+Artículo 21.—El Archivo Central de la Municipalidad de Aserrí, recibirá debidamente organizados los documentos que le remitan los diferentes departamentos de la institución, tomando en cuenta la vigencia administrativa establecida en la Tabla de Plazos de Conservación y Eliminación de Documentos.

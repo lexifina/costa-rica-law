@@ -1,0 +1,1 @@
+Artículo 41.—Para las personas particulares que por culpa, dolo, negligencia o impericia en el mal manejo de los documentos se les aplicará la normativa establecida en el Código Civil o Penal vigente.

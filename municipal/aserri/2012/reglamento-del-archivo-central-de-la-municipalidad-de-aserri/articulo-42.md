@@ -1,0 +1,1 @@
+Artículo 42.—A las personas que incumplan este Reglamento y/o que hagan uso indebido de los Archivos Institucionales, se les aplicarán las restricciones y sanciones que se establecen en los Artículos 8° y 9° de la Ley Nº 7202, del Sistema Nacional de Archivos.
