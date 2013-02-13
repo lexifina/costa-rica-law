@@ -1,0 +1,3 @@
+Artículo.3- Integración de la Comisión Ejecutiva de Precalificación y Selección.
+La Comisión Ejecutiva de Precalificación y Selección del banco o bancos colocadores estará integrada por el Presidente del Banco Central, el Ministro de Hacienda y el Ministro de Planificación Nacional y Política Económica. Esta Comisión será presidida por el Ministro de Hacienda. Asimismo, corresponderá a esta Comisión cumplir con lo establecido en el inciso 1 del artículo 7 de la Ley N°9070, a estos efectos, en caso de ausencia, los integrantes podrán designar un representante de la institución que representan.
+El Director o en su ausencia, el Subdirector de Crédito Público será el Secretario de esta Comisión.

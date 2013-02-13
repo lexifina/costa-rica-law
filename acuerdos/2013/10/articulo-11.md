@@ -1,0 +1,2 @@
+Artículo.11- Publicación.
+En todos los casos el procedimiento de selección iniciará con una invitación publicada en un diario de circulación internacional, y mediante la página web del Ministerio de Hacienda y del Banco Central de Costa Rica solicitando los servicios requeridos y la presentación de los atestados al Ministerio de Hacienda. En dicha publicación se indicará la página de internet donde se puedan obtener las bases para la selección, el lugar y plazo máximo para la recepción de atestados.
