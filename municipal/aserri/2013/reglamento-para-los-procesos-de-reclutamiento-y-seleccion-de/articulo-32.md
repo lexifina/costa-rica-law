@@ -1,0 +1,3 @@
+Artículo 32.—Nombramiento y conclusión de la relación de servicio. El Concejo Municipal nombrará por tiempo indefinido al Auditor Municipal, Secretario Municipal y Contador Municipal, para lo cual el Departamento de Recursos Humanos abrirá los concursos respectivos. En todo caso, ambos nombramientos y procedimientos de concurso se regirán por lo dispuesto en el artículo 31 de la Ley General de Control Interno Nº 8292 y el Código Municipal, según corresponda.
+Aprobado por el Concejo Municipal en su sesión ordinaria Nº 142, celebrada el 14 de enero del 2013, bajo el Acuerdo 03-142, artículo tercero.
+Aserrí, 24 de enero de 2013.

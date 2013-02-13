@@ -1,0 +1,2 @@
+Artículo 22.—Selección de la terna: Corresponderá al Jefe de la Oficina de Recursos Humanos, la selección de la terna del concurso, la cual deberá estar conformada por un mínimo de tres oferentes elegibles, según artículo 130 del Código Municipal).
+Dicha selección deberá realizarse tomando en cuenta no solo la elegibilidad de los oferentes, sino también los resultados de la valoración psicológica y la experiencia profesional y laboral de los mismos.

@@ -1,0 +1,1 @@
+Artículo 23.—Cierre del concurso: Una vez elegida la terna, la Oficina de Recursos Humanos procederá a declarar el cierre del concurso mediante un acta y elevará los expedientes del concurso y los personales de los oferentes al Alcalde Municipal o al Concejo Municipal, según inciso d), artículo 2 de este reglamento, para que se proceda con el nombramiento correspondiente.

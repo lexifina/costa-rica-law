@@ -1,0 +1,1 @@
+Artículo 17.—Valoraciones de idoneidad: A fin de determinar la idoneidad de los oferentes concursantes, la Oficina de Recursos Humanos procederá a realizar una valoración teórica, la cual tendrá valor de cincuenta por ciento en escala de uno a cien.
