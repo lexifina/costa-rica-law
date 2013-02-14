@@ -1,0 +1,1 @@
+Artículo 5°—Los procedimientos de contratación iniciados antes de la vigencia del presente reglamento, se concluirán conforme a las disposiciones vigentes al momento en que se hubiese adoptado la decisión de iniciar el concurso.
