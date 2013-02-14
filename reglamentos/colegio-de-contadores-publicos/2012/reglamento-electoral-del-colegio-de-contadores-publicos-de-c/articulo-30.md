@@ -1,0 +1,1 @@
+Artículo 30.—Del voto en blanco. El voto en blanco no contará para ser acreditado a ninguno de los candidatos. Al momento del conteo el Presidente de la junta receptora de votos o quien lo supla, deberá consignar en la papeleta, con letras grandes, una razón que diga “voto en blanco”, con lo cual la papeleta queda inhabilitada para cualquier efecto.

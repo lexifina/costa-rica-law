@@ -1,0 +1,1 @@
+Artículo 32.—De transcripción en libro de actas. Las actas referidas en el artículo 26 deberán transcribirse en el Libro de Actas de la Asamblea General, labor que estará a cargo de la Secretaría de la Junta Directiva.
