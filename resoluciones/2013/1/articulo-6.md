@@ -1,0 +1,1 @@
+Artículo 6º—Registros especiales. Al igual que los libros contables, todos aquellos registros establecidos por leyes especiales, no deberán ser legalizados ante la Dirección General de Tributación. Lo establecido anteriormente, no suspende la llevanza de dichos registros, los que se mantienen según las leyes que les dieron origen.

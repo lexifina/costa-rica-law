@@ -1,0 +1,1 @@
+Artículo 7°—Consulta pública de libros legalizados. A partir de la entrada en vigencia de esta resolución, el sitio de CrearEmpresa mantendrá disponible la consulta pública para todos los usuarios que lo requieran.

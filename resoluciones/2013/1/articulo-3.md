@@ -1,0 +1,2 @@
+Artículo 3º—Uso de libros actualmente legalizados. Aquellos contribuyentes que así lo deseen podrán continuar con sus libros legalizados, hasta el momento en que estos lleguen a su fin, caso en el cual los contribuyentes deberán proceder a sustituirlos conforme con lo establecido en el artículo 251 del Código de Comercio.
+En caso contrario, a partir del período fiscal 2013, deberán iniciar con los nuevos registros contables y financieros en medios que permitan conocer, de forma fácil, clara y precisa, sus operaciones comerciales y su situación económica.

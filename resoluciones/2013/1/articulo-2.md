@@ -1,0 +1,3 @@
+Artículo 2º—Vigencia de la no legalización. Requisitos formales para libros y registros contables con operaciones del período fiscal 2012.
+Lo establecido en el artículo anterior aplica a partir del período fiscal 2013, para lo cual se debe tener presente lo siguiente:
+Los libros y registros contables que respaldan las operaciones del período fiscal 2012, deben contar con la debida legalización, entiéndase número de autorización otorgado por la Dirección General de Tributación, contemplándose para tal efecto tanto las operaciones que se declaren mediante período fiscal ordinario, como aquellas que corresponden a períodos especiales
