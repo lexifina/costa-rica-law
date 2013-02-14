@@ -14,3 +14,4 @@ Reglamento del ejercicio del notariado público a funcionarios de JAPDEVA.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-02 | la propia norma |
+| 2 | 2013-02-14 | Reglamento 4 (2013-02-14) |
