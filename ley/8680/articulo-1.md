@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8680
+(Esta ley fue derogada por el artículo único de la ley N° 9120 del 14 de febrero del 2013)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 LEY ESPECIAL PARA TITULACIÓN DE VIVIENDA EN PRECARIOS
