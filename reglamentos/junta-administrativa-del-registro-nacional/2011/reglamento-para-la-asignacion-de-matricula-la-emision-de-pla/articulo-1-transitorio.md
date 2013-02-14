@@ -1,2 +1,0 @@
-Transitorios:
-Transitorio I.—La emisión de placas alfanuméricas comenzará a regir en cuanto el sistema computarizado adjudique la matrícula necesaria para la emisión de las mismas. Lo anterior, sin perjuicio de que el Registro pueda iniciar el proceso de matrículas nuevas de forma previa a dicha adjudicación. Así mismo el Registro Nacional podrá implementar a futuro cualquier medio digital o electrónico y su debido uso, que se pueda utilizar para tramitar placas metálicas.

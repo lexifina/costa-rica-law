@@ -1,1 +1,0 @@
-Artículo 4º—Ámbito de aplicación: Esta normativa rige en todo el territorio de la República de Costa Rica y alcanza a aquellos vehículos automotores inscritos, que circulen por las vías públicas terrestres.

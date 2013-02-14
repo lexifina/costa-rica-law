@@ -1,2 +1,0 @@
-Artículo 6º—Documento de identificación adicional: A efectos de brindar mayor seguridad, los vehículos contarán con un documento adhesivo de seguridad que tendrá impreso el número de matrícula y la fecha de emisión de éste, el cual deberá ser adherido en el parabrisas delantero en el caso de los vehículos automotores, y en un lugar visible en el caso de las motocicletas.
-Corresponderá al Registro la emisión y entrega de este documento de seguridad

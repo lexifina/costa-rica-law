@@ -1,1 +1,0 @@
-Artículo 10.—Requerimientos técnicos de las placas metálicas: La Junta Administrativa del Registro Nacional, determinará los sistemas de seguridad necesarios para la emisión de las placas metálicas y cualquier otro dispositivo de identificación, con el fin de brindar seguridad vial y Registral.
