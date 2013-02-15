@@ -1,0 +1,1 @@
+Artículo 35.—La Auditoría Interna durante el desarrollo de su trabajo considerará los siguientes aspectos para el procesamiento de la información: las cualidades de la información, análisis y evaluación, registros, acceso, custodia y supervisión del trabajo.
