@@ -1,0 +1,2 @@
+Artículo 4º—De la producción audiovisual y radiofónica. Corresponderá al TSE, por los medios que estime pertinentes, producir el material que será difundido en los espacios cedidos por las radioemisoras y televisoras, de quienes será responsabilidad su difusión de acuerdo con las disposiciones establecidas en la ley y en el presente reglamento.
+El TSE entregará a cada medio el material que desee difundir y por el que no tendrá que realizar pago alguno.

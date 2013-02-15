@@ -1,0 +1,3 @@
+Artículo 2º—Naturaleza de la cesión. Esa cesión gratuita no autorizará a las radioemisoras ni a las televisoras de sistema abierto para alterar o modificar de modo alguno la forma ni el contenido de la pauta previamente elaborada por el propio TSE, que deberá difundirse de modo fiel e integral.
+El tiempo cedido gratuitamente podrá dividirse en tantos segmentos como estime oportuno el TSE, quien determinará discrecionalmente la duración de cada uno. En esos espacios no se podrá difundir material que no sea aquel que previamente fuese definido por este Tribunal.
+En caso de que el TSE contrate pauta publicitaria adicional, la bonificación derivada de esa compra no podrá ser considerada parte de la media hora definida en este reglamento.
