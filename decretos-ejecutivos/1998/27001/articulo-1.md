@@ -1,4 +1,3 @@
-DECRETOS
 N°27001-MINAE
 EL PRESIDENTE DE LA REPÚBLICA EL MINISTRO DEL AMBIENTE Y ENERGÍA,
 Con fundamento en los artículos 50 y 140. inciso 3 y 18. de la Constitución Política y de conformidad con lo dispuesto en los artículos 60 y 69 de la Ley Orgánica del Ambiente No 7554.
@@ -14,4 +13,4 @@ Considerando:
 Decretan:
 REGLAMENTO PARA EL MANEJO DE LOS DESECHOS PELIGROSOS INDUSTRIALES
 Disposiciones Generales
-Artículo 1 °—El presente Reglamento tiene por objeto establecer las normas y procedimientos para un manejo adecuado de los desechos peligrosos, desde una perspectiva sanitaria y ambiental y será aplicable para todo residuo que se considere peligroso según lo establece el REGLAMENTO SOBRE LAS CARACTERÍSTICAS Y EL LISTADO DE LOS DESECHOS PELIGROSOS INDUSTRIALES.
+Artículo 1 °—(Derogado por el artículo 2° aparte 2) del decreto ejecutivo N° 37788 del 15 de febrero de 2013, "Aprueba Reglamento General para la Clasificación y Manejo de Residuos Peligrosos, reforma Reglamento sobre las características y listado de los desechos peligrosos industriales y Reglamento para el Manejo de los Desechos Peligrosos Industriales")

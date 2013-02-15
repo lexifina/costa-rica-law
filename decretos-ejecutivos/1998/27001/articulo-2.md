@@ -1,1 +1,1 @@
-Artículo 2°—El generador de desechos peligrosos será el responsable de garantizar que su tratamiento y disposición final se realice de acuerdo a las condiciones exigidas en el presente Reglamento.
+Artículo 2°—(Derogado por el artículo 2° aparte 2) del decreto ejecutivo N° 37788 del 15 de febrero de 2013, "Aprueba Reglamento General para la Clasificación y Manejo de Residuos Peligrosos, reforma Reglamento sobre las características y listado de los desechos peligrosos industriales y Reglamento para el Manejo de los Desechos Peligrosos Industriales")

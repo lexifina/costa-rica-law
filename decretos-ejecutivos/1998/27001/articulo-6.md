@@ -1,24 +1,23 @@
-Articulo 6°—De la acumulación
-6. 1 La acumulación de los desechos peligrosos, es el proceso de llenado de los recipientes en los cuales se colectan los desechos mientras son generados. Esta acción debe llevarse a cabo lo más cerca posible del sitio de generación. Asimismo, esta acción es previa al almacenamiento.
+Articulo 6°—De la acumulación.
+6.1 La acumulación de los desechos peligrosos, es el proceso de llenado de los recipientes en los cuales se colectan los desechos mientras son generados. Esta acción debe llevarse a cabo lo más cerca posible del sitio de generación. Asimismo, esta acción es previa al almacenamiento.
 6.2 No se permite la acumulación de desechos peligrosos diferentes en forma conjunta, es decir, cada desecho peligroso deberá ser acumulado para su almacenaje en forma individual. Esto no implica que un mismo tipo de desecho no pueda ser mezclado en un solo recipiente para su acumulación.
-6.3 Los puntos de acumulación deben mantenerse y operarse de forma tal que se minimicen las posibilidades de incendio, explosión o liberación de los desechos peligrosos que pueden alterar la salud humana o del ambiente. Para esto se deben seguir las siguientes condiciones de seguridad:
-6.3.1 Recipientes:
-Deben ser cerrados herméticamente, pero con la posibilidad de abrirlos y cerrarlos.
+6.3 Los puntos de acumulación deben mantenerse y operarse de forma tal que se minimicen las posibilidades de incendio, explosión o liberación de los desechos peligrosos que pueden alterar la salud humana o el ambiente. Para esto se deben seguir las siguientes condiciones de seguridad:
+6.3.1 Recipientes: Deben ser cerrados herméticamente, pero con la posibilidad de abrirlos y cerrarlos.
 Deben ser hechos de material que no presente problemas de incompatibilidad con el desecho a almacenar en él.
 Deben estar en buen estado y libres de fugas.
 Los volúmenes acumulados deberán ser tales que aseguren un adecuado almacenamiento ambiental.
-6.3.2 Rotulación: En cada recipiente se debe indicar claramente: el tipo de desecho peligroso que contiene, sus características de peligrosidad. la fecha en que se inició la acumulación en el mismo y un número de codificación del mismo. Este código debe ser el indicado en el ANEXO 2 del Reglamento sobre las características y listado de desechos peligrosos industriales (Código SIMARDE). En caso de que el desecho no este incluido en la lista y corresponda a aquellos considerados peligrosos el código será asignado por dichas autoridades competentes.
-6.3.3 Ubicación de los puntos acumulación: Los puntos de acumulación deben ser áreas cercanas al punto de generación donde se deben llenar los contenedores adecuados con los desechos peligrosos generados. Estas áreas deben estar supervisadas por al menos un operario del proceso generador de desechos quien además realiza el proceso de llenado de los envases y la inspección para detectar fuga o derrames, o situaciones anómalas que podrían poner en peligro la situación laboral y del ambiente.
-6.3.4 Equipos de Seguridad.
-Los puntos de acumulación deberán contar al menos con los siguientes equipos de seguridad:
+6.3.2 En el Anexo 1 “Hoja de identificación de residuos peligrosos” y en cada recipiente el generador debe indicar claramente el tipo de residuo peligroso que contiene, sus características de peligrosidad, la fecha en que se inició la acumulación en el mismo y el número de codificación del mismo”. Debe indicarse adicionalmente la simbología de Naciones Unidas, Sistema Globalmente Armonizado, Unión Europea o NFPA aplicable y rotular ésta sobre cada recipiente.
+6.3.3 Ubicación de los puntos de acumulación: Los puntos de acumulación deben ser áreas cercanas al punto de generación donde se deben llenar los contenedores adecuados con los desechos peligrosos generados. Estas áreas deben estar supervisadas por los operarios necesarios del proceso generador de desechos quien además realizará el proceso de llenado de los envases y la inspección para detectar fuga o derrames, o situaciones anómalas que podrían poner en peligro la situación laboral y del ambiente.
+6.3.4 Equipos de seguridad. Los puntos de acumulación deberán contar con los siguientes equipos de seguridad en las cantidades necesarias:
 Sistema de comunicación interna o de alarma capaz de proveer acción inmediata por parte de personal capacitado ante una emergencia.
 Un aparato (teléfono, o similar) que sea fácil de accesar en la escena de operaciones para llamar al departamento de policía, bomberos, o el responsable de una emergencia local o nacional.
 Agua en un volumen adecuado y presión necesaria para suplirla por mangueras, equipos de formación de espuma, sistemas de spray de agua o sistemas similares.
-Extinguidores portátiles de fuego
-Equipo de control de fugas
-Equipo de descontaminación
-Material absorbente de líquidos
+Extinguidores portátiles de fuego.
+Equipo de control de fugas.
+Equipo de descontaminación.
+Material absorbente de líquidos.
 6.3.5 Identificación de cada sitio de acumulación: Además del equipo mencionado cada estación o sitio de acumulación debe estar identificado como tal con la rotulación adecuada y mantener al alcance un protocolo que indique las acciones de rutina y de emergencia.
-6.3.6 Equipo de seguridad y protección para el empleado: Es obligación de cada generador mantener el equipo de seguridad adecuado para sus trabajadores en ésta y todas las etapas del manejo de desechos peligrosos. Dicho equipo debe adquirirse con base en una evaluación de la peligrosidad del o los desechos generados. Animismo debe asegurarse que el personal que ésta en contacto con los desechos utilice sistemáticamente la protección prescrita en cada caso. Todo esto debe estar contemplado en la Boleta "Información del Generador" mostrada en el ANEXO 1.
+6.3.6 Equipo de seguridad y protección para el empleado: Es obligación de cada generador mantener el equipo de seguridad adecuado para sus trabajadores en ésta y todas las etapas del manejo de desechos peligrosos. Dicho equipo debe adquirirse con base en una evaluación de la peligrosidad del o los desechos generados. Asimismo debe asegurarse que el personal que ésta en contacto con los desechos utilice sistemáticamente la protección prescrita en cada caso. Todo esto debe estar contemplado en la Boleta “Información del Generador” mostrada en el Anexo 1.
 6.4 Siempre deben mantenerse cerrados los recipientes utilizados para la acumulación de los desechos peligrosos durante la etapa de acumulación, con excepción de cuando es necesario abrirlo para adicionar o remover desechos.
-6.5 Se debe llenar la Boleta de Acumulación o Almacenamiento de desechos peligrosos (ANEXO 3) y completarla conforme se realiza la etapa de acumulación, de manera que puede ser solicitada por las autoridades correspondientes en cualquier momento y conocer la cantidad de volumen de desecho acumulado y el estado del almacenaje del mismo.
+6.5 Se debe llenar la Boleta de Acumulación o Almacenamiento de desechos peligrosos (Anexo 3 del presente Decreto) y completarla conforme se realiza la etapa de acumulación, de manera que puede ser solicitada por las autoridades correspondientes en cualquier momento y conocer la cantidad de volumen de desecho acumulado y el estado del almacenaje del mismo.
+(Así reformado por el artículo 3 del decreto ejecutivo N° 37788 del 15 de febrero de 2013, "Aprueba Reglamento General para la Clasificación y Manejo de Residuos Peligrosos, reforma Reglamento sobre las características y listado de los desechos peligrosos industriales y Reglamento para el Manejo de los Desechos Peligrosos Industriales")

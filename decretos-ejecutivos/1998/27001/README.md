@@ -16,3 +16,4 @@ Reglamento para el Manejo de los Desechos Peligrosos Industriales
 | 1 | 1998-04-29 | la propia norma |
 | 2 | 2009-04-24 | Decreto Ejecutivo 35505 (2009-04-24) |
 | 3 | 2010-02-04 | Decreto Ejecutivo 35861 (2010-02-04) |
+| 4 | 2013-02-15 | Decreto Ejecutivo 37788 (2013-02-15) |
