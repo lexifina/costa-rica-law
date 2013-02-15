@@ -14,3 +14,4 @@ Reglamento de Transporte de la Junta Administrativa del Servicio Eléctrico Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-02 | la propia norma |
+| 2 | 2013-02-15 | Reglamento 4754 (2013-02-15) |
