@@ -1,1 +1,0 @@
-Artículo 19.—La Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establecen los lineamientos que al respecto contiene el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público y en cualesquiera otras disposiciones que dicte la Contraloría General de la República.

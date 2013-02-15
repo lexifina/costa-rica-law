@@ -1,1 +1,0 @@
-Artículo 9º—El Auditor Interno participará en las sesiones de la Junta Directiva, cuando lo disponga este Órgano Colegiado. Su actuación será conforme a su responsabilidad de asesor, según la normativa y criterios establecidos por la Contraloría General de la República al respecto.

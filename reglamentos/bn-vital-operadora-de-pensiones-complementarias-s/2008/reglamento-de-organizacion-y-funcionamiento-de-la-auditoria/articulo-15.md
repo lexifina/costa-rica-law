@@ -1,1 +1,0 @@
-Artículo 15.—El Auditor Interno definirá y mantendrá actualizado, en el instrumento que corresponda, los órganos y entes sujetos al ámbito de acción de la auditoría interna, con fundamento en lo estipulado en el artículo 22, inciso a) de la Ley General de Control Interno.
