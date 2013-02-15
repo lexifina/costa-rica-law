@@ -14,3 +14,4 @@ Reglamento sobre las características y listado de los desechos peligrosos indus
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-04-29 | la propia norma |
+| 2 | 2013-02-15 | Decreto Ejecutivo 37788 (2013-02-15) |

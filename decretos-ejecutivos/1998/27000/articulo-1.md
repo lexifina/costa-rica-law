@@ -14,4 +14,4 @@ CONSIDERANDO:
 DECRETAN:
 REGLAMENTO SOBRE LAS CARACTERÍSTICAS Y EL LISTADO DE LOS DESECHOS PELIGROSOS INDUSTRIALES
 Disposiciones generales:
-Articulo 1º- El presente reglamento tiene por objeto establecer las características de los residuos peligrosos, el listado de los mismos y los limites que hacen a un residuo peligroso por su toxicidad al ambiente.
+Articulo 1º- (Derogado por el artículo 2° aparte 1) del decreto ejecutivo N° 37788 del 15 de febrero de 2013, "Aprueba Reglamento General para la Clasificación y Manejo de Residuos Peligrosos, reforma Reglamento sobre las características y listado de los desechos peligrosos industriales y Reglamento para el Manejo de los Desechos Peligrosos Industriales")
