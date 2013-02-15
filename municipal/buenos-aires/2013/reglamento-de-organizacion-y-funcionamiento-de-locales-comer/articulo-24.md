@@ -1,0 +1,5 @@
+Artículo 24.—Cambio de destino de la actividad comercial:
+1. El Concejo Municipal podrá autorizar el cambio de destino comercial del puesto permanente,.
+2. Para esos efectos, la persona interesada deberá dirigir una solicitud escrita a la Actividad de Locales Comerciales y Terminal de Buses, en papel común y tamaño carta. En esta solicitud deberá indicarse con claridad el número de puesto o local, la denominación comercial, los artículos o mercaderías que expende y las que aspira vender. Y deberá explicar detalladamente las razones del cambio y sus justificaciones.
+3. La Actividad de Locales Comerciales y Terminal de Buses tramitará la solicitud verificando el cumplimiento de los requisitos correspondientes y emitirá un dictamen recomendando al Concejo Municipal una solución a la petición.
+4. Listo el informe le dará traslado al Concejo Municipal a través de la Alcaldía Municipal, junto con el expediente administrativo de ese local y del arrendatario y del dictamen técnico administrativo acerca de la viabilidad de ese cambio al Concejo Municipal quien lo tramitará a través de la respectiva Comisión del Concejo para que ésta dictamine lo pertinente.

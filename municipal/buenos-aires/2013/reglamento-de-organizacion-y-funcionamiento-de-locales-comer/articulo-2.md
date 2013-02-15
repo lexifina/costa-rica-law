@@ -1,0 +1,4 @@
+Artículo 2º—Ubicación del inmueble:
+1. Los locales comerciales y la Terminal de Buses del cantón de Buenos Aires están ubicados en un inmueble propiedad de la Municipalidad de Buenos Aires y que está inscrito en el Registro Público Nacional, Sección Propiedad, Partido de Puntarenas, Distrito de Buenos Aires bajo el folio real 6-015379-000, sito en esta ciudad costado oeste de la esquina suroeste del parque central de Buenos Aires.
+2. En este inmueble se hayan ubicadas de manera contigua las dos edificaciones que comprenden al Mercado Municipal, los locales comerciales y la Terminal de Buses del cantón de Buenos Aires.
+3. Ambas edificaciones operan de manera independiente en cuanto al cobro de los precios de los alquileres y en cuanto a las normas que establecerá este Reglamento aunque ambas son administradas por la misma Actividad adscrita al Subproceso de Servicios Municipales que para estos efectos de denomina Actividad de Locales Comerciales y Terminal de Buses.
