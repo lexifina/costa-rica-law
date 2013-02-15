@@ -1,0 +1,1 @@
+Artículo 18.—Calificación de idoneidad. Previo al desembolso de recursos la entidad concedente deberá verificar la idoneidad de las entidades no gubernamentales para administrar fondos públicos, cuando así se establezca en la normativa vigente.

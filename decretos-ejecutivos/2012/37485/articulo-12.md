@@ -1,0 +1,1 @@
+Artículo 12.—Aprobación previa del presupuesto. Las Entidades u Órganos de la Administración Central girarán las transferencias hasta tanto el presupuesto de la entidad beneficiaria que las incorpore haya sido aprobado de conformidad con el ordenamiento jurídico. El cumplimiento de esta disposición será responsabilidad de la entidad concedente.

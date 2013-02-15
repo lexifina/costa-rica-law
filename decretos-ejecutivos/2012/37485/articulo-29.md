@@ -1,0 +1,1 @@
+Artículo 29.—Derogatorias. Deróguese los artículos 31, 32, 35, 36, 37, 38, 39 y 40 del Decreto Ejecutivo N° 27810-H-MP-PLAN, publicado en el Diario Oficial La Gaceta N° 76, Alcance N° 29 del 21 de abril de 1999.

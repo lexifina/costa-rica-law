@@ -1,0 +1,1 @@
+Artículo 11.—Naturaleza de la autorización presupuestaria. La inclusión de una transferencia en el presupuesto debidamente aprobado de una Entidad u Órgano de la Administración Central, representa la autorización, no obligación, de realizar dicho gasto, salvo en los casos de transferencias obligatorias y lo que en dicha materia establezca el Ordenamiento Jurídico.

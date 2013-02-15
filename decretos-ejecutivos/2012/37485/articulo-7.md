@@ -1,0 +1,1 @@
+Artículo 7°—Posibilidad de suscripción de convenios entre Entidades Concedentes y Entidades Privadas Beneficiarias: la Entidad Concedente podrá disponer requisitos adicionales a los efectos de garantizar el cumplimiento del fin que motiva determinada transferencia de recursos.

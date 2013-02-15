@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. De conformidad con lo establecido en la Ley de Administración Financiera y Presupuestos Públicos, Ley N° 8131, el presente reglamento es de aplicación a las transferencias, realizadas por parte de las Entidades Concedentes a las Entidades Beneficiarias, independientemente de la fuente de financiamiento de la misma.

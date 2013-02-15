@@ -1,0 +1,1 @@
+Artículo 6°—Utilización de Cuentas Específicas. En el tanto resulte congruente con el Principio de Caja Única del Estado y sea requerido por la entidad beneficiaria, esta podrá administrar los recursos en un banco estatal, llevando registros de su empleo de forma independiente de los que correspondan a otros fondos de su propiedad o administración.
