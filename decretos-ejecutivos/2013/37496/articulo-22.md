@@ -1,0 +1,2 @@
+Artículo 22.—De la integración de la Junta de Relaciones Laborales: La Junta se renovará cada dos años, en el mes de Noviembre. Con un mes de anticipación al vencimiento del periodo por el que fue nombrada la Junta, el Presidente solicitará a cada una de las organizaciones representadas, enviar el nombre del propietario y suplente que integraran la nueva Junta.
+La Administración Superior podrá remover o reemplazar a sus representantes cuando lo estime conveniente.

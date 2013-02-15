@@ -1,0 +1,1 @@
+Artículo 20.—Acceso a documentos: Los miembros de la Junta tendrán acceso a los documentos de naturaleza laboral relacionados con el trabajador y el caso sometido a su consideración. Asimismo; las partes tendrán acceso al expediente principal que se encuentre en la Junta de Relaciones Laborales.

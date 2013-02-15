@@ -1,0 +1,4 @@
+Artículo 21.—Del apoyo logístico: La Administración Superior designará un funcionario que brinde apoyo logístico a la Junta, quien debe recibir, resguardar y presentar los documentos de cada caso sometido a consideración en el seno dela Junta y constituir bajo su responsabilidad y confidencialidad, un archivo de toda la correspondencia y documentación que se produzca.
+Por tal motivo, deberá asistir a las sesiones cuando la Junta se lo solicite y cumplir con el artículo 20 del presente Reglamento.
+El Ministerio dotará a la Junta de un lugar apropiado y debidamente acondicionado con el mobiliario y equipo de oficina necesario para que pueda celebrar sus sesiones.
+Respecto a las giras dentro del territorio nacional que deban realizar los miembros de la Junta con motivo a las funciones asignadas, la Administración Superior dotará el medio de transporte, los viáticos y permisos correspondientes para ese fin.

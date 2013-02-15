@@ -1,0 +1,1 @@
+Artículo 10.—De las resoluciones: Las resoluciones que se tomen quedarán en firme en la misma sesión en que sean tratados los puntos, siempre y cuando así lo convenga la mayoría de los miembros de la Junta, en la votación correspondiente.

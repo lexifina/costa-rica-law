@@ -1,0 +1,1 @@
+Artículo 9°—De los pronunciamientos: La Junta se pronunciará en un plazo no superior a los cinco días hábiles posteriores a la evacuación de las pruebas presentadas por las partes en su oportunidad, cuando se trate de los casos enumerados en los incisos b) y c) del artículo 4º, para los demás casos; la Junta cuenta con diez días hábiles para emitir su pronunciamiento.
