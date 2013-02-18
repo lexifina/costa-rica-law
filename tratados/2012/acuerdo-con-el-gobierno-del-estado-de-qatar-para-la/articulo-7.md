@@ -1,0 +1,3 @@
+ARTÍCULO 7
+SUBROGACIÓN
+Cuando una Parte Contratante o su agencia designada ha garantizado cualquier indemnización contra riesgos no comerciales con respecto a una inversión de cualquiera de sus inversionistas en el territorio de la otra Parte Contratante, y haya realizado pagos a dichos inversionistas con respecto a sus reclamos bajo este Acuerdo, la otra Parte Contratante acuerda que la primer Parte Contratante o su agencia designada está facultada en virtud de la subrogación para ejercer los derechos y hacer valer los reclamos de tales inversionistas. Los derechos o reclamos subrogados no excederán los derechos o reclamos originales de dichos inversionistas.

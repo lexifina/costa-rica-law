@@ -1,0 +1,3 @@
+ARTÍCULO 10
+ENTRADA Y PERMANENCIA DE PERSONAL
+Cada Parte Contratante deberá, sujeto a sus leyes y regulaciones relativas a la entrada, permanencia y empleo de personas naturales, examinar de buena fe y otorgar debida consideración, sin distinción de nacionalidad, a las solicitudes de personal clave que sean empleados temporalmente para los propósitos de inversiones en su territorio. Este Acuerdo no se aplicará a las medidas que afecten a personas naturales que traten de acceder al mercado de trabajo de una Parte Contratante, ni se aplicará a las medidas en materia de ciudadanía, residencia o empleo sobre una base permanente.

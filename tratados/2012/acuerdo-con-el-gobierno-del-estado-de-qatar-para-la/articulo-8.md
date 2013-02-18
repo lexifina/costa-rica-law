@@ -1,0 +1,12 @@
+ARTÍCULO 8
+SOLUCIÓN DE DISPUTAS ENTRE UNA PARTE CONTRATANTE Y
+UN INVERSIONISTA DE LA OTRA PARTE CONTRATANTE
+(1) Cualquier disputa sobre inversión bajo las disposiciones de este Acuerdo, derivada directamente de una inversión entre cualquier Parte Contratante y un inversionista de la otra Parte Contratante, se resolverá amistosamente entre ellas. La disputa se notificará por escrito por el inversionista de la Parte Contratante.
+(2) Si dichas disputas no pueden ser resueltas conforme a las disposiciones del párrafo (1) de este Artículo dentro de los seis meses desde la fecha de la notificación escrita a la Parte Contratante, el inversionista podría someter la disputa a:
+a) la corte competente de la Parte Contratante anfitriona; o
+b) el Centro Internacional de Arreglo de Diferencias Relativas a Inversiones (CIADI) establecido bajo el Convenio sobre Arreglo de Diferencias Relativas a Inversiones entre Estados y Nacionales de otros Estados del 18 de marzo de 1965 firmado en Washington, D.C., a condición que ambas Partes Contratantes sean partes del Convenio del CIADI; o
+c) el Reglamento del Mecanismo Complementario del CIADI, a condición que una de las Partes Contratantes, pero no ambas, sea parte del Convenio del CIADI; o
+d) un Tribunal Arbitral Ad-Hoc de conformidad con las Reglas de Arbitraje de la Comisión de Naciones Unidas sobre Derecho Internacional Mercantil (CNUDMI).
+En caso de arbitraje bajo los párrafos (2) b) al (2) d), el inversionista requerirá el consentimiento escrito de la Parte Contratante que es una parte de la disputa, como condición para someter la disputa bajo el CIADI o CNUDMI.
+Un inversionista que ha sometido una disputa a la corte competente de la Parte Contratante anfitriona de conformidad con el párrafo (2) a) de este Artículo o a uno de los tribunales arbitrales mencionados en los párrafos (2) b) al (2) d), no tendrá derecho de ejercer su caso en cualquier otra corte o tribunal arbitral. La elección del inversionista de la corte o tribunal arbitral es definitiva y vinculante.
+(3) El laudo arbitral se basará en las disposiciones de este Acuerdo; las leyes y regulaciones de la Parte Contratante que es una parte de la disputa, incluyendo sus reglas sobre conflicto de leyes, y el derecho internacional consuetudinario. El laudo arbitral será definitivo y vinculante y cada Parte Contratante asegurará el reconocimiento y ejecución del laudo arbitral de conformidad con sus leyes y regulaciones.
