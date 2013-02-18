@@ -1,0 +1,12 @@
+CIRCULAR Nº 035-2013
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 233 del 25 de octubre de 2021 y publicada en el Boletín Judicial N° 214 del 5 de noviembre de 2021)
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 133 del 9 de octubre de 2018, y publicada en el Boletín Judicial N° 235 el 18 de diciembre de 2018)
+ASUNTO: Recomendaciones para mejorar la gestión de los despachos judiciales que atienden materia laboral.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+QUE TRAMITAN MATERIA LABORAL
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 02-13, celebrada el 10 de enero de 2013, artículo LVIII, a solicitud de la Comisión de la Jurisdicción Laboral acordó comunicarles las siguientes recomendaciones para mejorar la gestión de los despachos judiciales que atienden materia laboral, que literalmente dicen:
+1) Recordar a todos los coordinadores de despachos laborales del país, que deben seguir las pautas dadas por esta Comisión, en el sentido de dar prioridad al trámite y resolución de los asuntos en razón de la fecha de ingreso, salvo en los casos de adultos (as) mayores, personas enfermas en grado terminal y mujeres embarazadas. Deben tomar medidas para aumentar la tasa resolutiva, remitiendo a esta comisión los reportes mensuales, al correo vmartinez@poder-judicial.go.cr, indicando la cantidad de asuntos que cada juez o jueza tiene para fallo, las fechas de ingreso de éstos y de estar listos para fallo. En caso de acumulados para fallo con más de un mes, hacer un plan de descongestión y darle seguimiento, reportando los mismos y los resultados al vencer el plazo previsto para acabar con el retraso existente.
+2) Deben los coordinadores de todos los despachos laborales mantener bajo control el cumplimiento de lo dispuesto por esta Comisión y por el Consejo Superior, sobre la obligación de todos los despachos que tienen sistema de gestión de mantener actualizada la información de todos los casos, controlar que la información ingresada al sistema sea oportuna y veraz. Deben hacer depuraciones para evitar información errónea sobre la realidad del circulante.
+3) Pedir a los Coordinadores de todos los juzgados y Tribunales laborales del país que no pongan tope de resolución mensual por despacho y por juez (a), sino por el contrario se fijen mínimos razonables y que permitan aumentar la tasa resolutiva y bajar los circulantes, amén de los tiempos de respuesta.
+San José, 18 de febrero del 2013.
