@@ -14,3 +14,4 @@ Reglamento para definir Niveles de Adjudicación y Autorización de Compras y Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-15 | la propia norma |
+| 2 | 2013-02-18 | Reglamento municipal 147 (2013-02-18) |
