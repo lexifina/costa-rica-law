@@ -14,3 +14,4 @@ Banda tarifaria para los generadores privados hidroeléctricos nuevos que utilic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-14 | la propia norma |
+| 2 | 2013-02-18 | Resolución 2 (2013-02-18) |
