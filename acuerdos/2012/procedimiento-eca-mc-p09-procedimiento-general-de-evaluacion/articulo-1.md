@@ -4,37 +4,37 @@ La Gerencia del Ente Costarricense de Acreditación ( ECA ) informa que se ha mo
 El Procedimiento ECA -MC-P09 Procedimiento General de Evaluación y Acreditación Versión 07 se encontrará a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo podrán solicitar gratuitamente una copia no contralada en la Gestoría de Calidad de las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas. Entra en vigencia a partir de esta publicación en el Diario Oficial La Gaceta.
 San José, 5 de junio del 2012.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-(Nota de Sinalevi: El texto del presente procedimiento fue reformado parcialmente y reproducido de forma íntegra mediante publicación en La Gaceta N° 16 del 23 de enero del 2013, donde se actualiza la versión 07 existente y se publica la versión 08, por lo que se reproduce a continuación):
+(Nota de Sinalevi: El texto del presente procedimiento fue reformado parcialmente y reproducido de forma íntegra mediante publicación en La Gaceta N ° 53 del 15 de marzo del 2013, donde se actualiza la versión 07 existente y se publica la versión 09, por lo que se reproduce a continuación):
 [imagen]
 TABLA DE CONTENIDO
-1 OBJETIVO ........................................................................................................................ 1
-2 ALCANCE.......................................................................................................................... 2
-3 DOCUMENTOS DE REFERENCIA .................................................................................. 2
-4 DEFINICIONES ................................................................................................................ 2
-5 RESPONSABILIDADES.................................................................................................... 4
-6 GENERALIDADES ........................................................................................................... 4
-7 REQUISITOS PARA LA ACREDITACIÓN.. ...................................................................... 5
-8 VISITA PRELIMINAR ....................................................................................................... 9
-9 PROCESO GENERAL DE EVALUACIÓN Y ACREDITACIÓN ........................................ 9
-10 OPINION DIVERGENTE ............................................................................................... 20
-11 OEC MULTISITIOS CON SEDES CRÍTICAS Y OEC CON INSTALACIONES TEMPORALES……………………………………………………………………………………..20
-12 SEGUIMIENTO Y REEVALUACIÓN ............................................................................. 22
-13 AMPLIACIÓN Y REDUCCIÓN DEL ALCANCE DE ACREDITACIÓN .......................... 26
-14 RENUNCIA A LA ACREDITACIÓN ............................................................................... 27
-15 SUSPENSIÓN Y CANCELACIÓN DE LA ACREDITACIÓN ......................................... 28
-16 DERECHOS Y OBLIGACIONES DE LOS OEC ACREDITADOS ................................. 28
-17 TARIFAS ........................................................................................................................ 29
-18 CONFIDENCIALIDAD..................................................................................................... 29
-19 DIRECTORIO DE OEC ACREDITADOS........................................................................ 29
-20 TRANSITORIO .............................................................................................................. 29
-21 ANEXOS ........................................................................................................................ 30
-21.1 ANEXO 1: DESIGNACIÓN DEL EQUIPO EVALUADOR ............................................................ 30
-21.2 ANEXO 2: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS DE ENSAYO Y CALIBRACIÓN. .................................. 32
-21.3 ANEXO 3: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS CLÍNICOS………………………......................................................................................................... 35
-21.4 ANEXO 4: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS DE INSPECCIÓN. .......................................................... 38
-21.5 ANEXO 5. TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS VALIDADORES/VERIFICADORES DE GEI .................. 47
-21.6 ANEXO 5. TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS DE CERTIFICACIÓN DE PRODUCTO, CERTIFICACIÓN DE SISTEMAS DE GESTIÓN Y CERTIFICACIÓN DE PERSONAS ……....................................... 47
-22 IDENTIFICACIÓN DE CAMBIOS ................................................................................. 48
+1 OBJETIVO ....................................................................................................................................... 1
+2 ALCANCE ....................................................................................................................................... 2
+3 DOCUMENTOS DE REFERENCIA ............................................................................................ 2
+4 DEFINICIONES ............................................................................................................................. 2
+5 RESPONSABILIDADES ............................................................................................................... 4
+6 GENERALIDADES ........................................................................................................................ 4
+7 REQUISITOS PARA LA ACREDITACIÓN .................................................................................. 5
+8 VISITA PRELIMINAR ..................................................................................................................... 9
+9 PROCESO GENERAL DE EVALUACIÓN Y ACREDITACIÓN ............................................... 9
+10 OPINION DIVERGENTE .......................................................................................................... 20
+11 OEC MULTISITIOS CON SEDES CRÍTICAS Y OEC CON INSTALACIONES TEMPORALES.21
+12 SEGUIMIENTO Y REEVALUACIÓN ....................................................................................... 23
+13 AMPLIACIÓN Y REDUCCIÓN DEL ALCANCE DE ACREDITACIÓN .............................. 27
+14 RENUNCIA A LA ACREDITACIÓN ........................................................................................ 28
+15 SUSPENSIÓN Y CANCELACIÓN DE LA ACREDITACIÓN .............................................. 28
+16 DERECHOS Y OBLIGACIONES DE LOS OEC ACREDITADOS ..................................... 29
+17 TARIFAS ..................................................................................................................................... 29
+18 CONFIDENCIALIDAD ...............................................................................................................29
+19 DIRECTORIO DE OEC ACREDITADOS .............................................................................. 29
+20 TRANSITORIO .......................................................................................................................... 30
+21 ANEXOS .................................................................................................................................... 30
+21.1 ANEXO 1: DESIGNACIÓN DEL EQUIPO EVALUADOR ................................................ 30
+21.2 ANEXO 2: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS DE ENSAYO Y CALIBRACIÓN. ......................... 33
+21.3 ANEXO 3: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS CLÍNICOS.............................................................. 36
+21.4 ANEXO 4: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS DE INSPECCIÓN. ................................................... 39
+21.5 ANEXO 5. TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS VALIDADORES/VERIFICADORES DE GEI ........ 48
+21.6 ANEXO 5. TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS DE CERTIFICACIÓN DE PRODUCTO, CERTIFICACIÓN DE SISTEMAS DE GESTIÓN Y CERTIFICACIÓN DE PERSONAS ...................................... 48
+22 IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 49
 1 OBJETIVO
 Establecer los lineamientos para realizar el proceso de evaluación y acreditación del Ente Costarricense de Acreditación para los OEC.
 2 ALCANCE
@@ -52,7 +52,7 @@ Aplica a todos los Organismos de Evaluación de la Conformidad acreditados o en 
 4 DEFINICIONES
 - Actividades clave para Organismos de Inspección: Formulación de política, desarrollo de procesos y/o procedimientos, procesos de selección inicial de inspectores, revisión de contratos, planificación de la evaluación de la conformidad y la revisión y aprobación de la evaluación de la conformidad.
 - Actividades clave para Organismos de Certificación de personas: Formulación y aprobación de políticas; desarrollo y aprobación de los procesos y procedimientos necesarios para la operación de los sistemas de certificación de personas, incluyendo los requisitos para la selección y nombramiento de los examinadores; revisión de las solicitudes y de los acuerdos contractuales asociados con la evaluación y certificación de las personas; desarrollo, evaluación y mantenimiento del examen (s) y de la re-certificación; decisión sobre la certificación de personas, incluyendo la firma o autorización de certificados; desarrollo y aprobación de las políticas, procesos y procedimientos para la resolución de las apelaciones y quejas recibidas de los solicitantes, candidatos, personas certificadas y sus empleadores y otras partes interesadas acerca del proceso y criterios de certificación; la decisión final sobre las apelaciones y quejas.
-- Actividades clave para Organismos de Certificación de Producto: Formulación y aprobación de políticas, desarrollo y aprobación de los procesos y/o procedimientos, evaluación inicial de la competencia, aprobación del personal técnico y subcontratistas, control del proceso de seguimiento de la competencia del personal y de los subcontratistas y sus resultados, revisión del contrato incluyendo la revisión técnica de las solicitudes y la determinación de los requisitos técnicos para actividades de certificación en áreas técnicas nuevas o áreas de actividad esporádica limitada, decisiones sobre la certificación que incluye la revisión técnica de las tareas de evaluación (ver GD5:2006 G4.2.26.)
+- Actividades clave para Organismos de Certificación de Producto: Formulación y aprobación de políticas, desarrollo y aprobación de los procesos y/o procedimientos, competencia, aprobación del personal técnico y subcontratistas, control del proceso de seguimiento de la competencia del personal y de los subcontratistas y sus resultados, revisión del contrato incluyendo la revisión técnica de las solicitudes y la determinación de los requisitos técnicos para actividades de certificación en áreas técnicas nuevas o áreas de actividad esporádica limitada, decisiones sobre la certificación que incluye la revisión técnica de las tareas de evaluación (ver GD5:2006 G4.2.26.)
 - Actividades clave para Organismos de Certificación de Sistemas de Gestión: Formulación de políticas, desarrollo y aprobación de los procesos y/o procedimientos, aprobación inicial del personal auditor o control de su capacitación, monitoreo del personal auditor durante la ejecución de las tareas, revisión de las solicitudes, asignación del personal auditor, control de las auditorías de seguimiento o recertificación y la revisión o aprobación del informe final para la toma de decisiones sobre la certificación.
 - Admisibilidad de la solicitud: Es el nombramiento en firme del Equipo Evaluador designado para realizar las evaluaciones al OEC solicitante dentro de un alcance de acreditación específico.
 - CEE: Cuerpo de Evaluadores y Expertos Técnicos del ECA.
@@ -91,9 +91,9 @@ g. Organismo de Validación/Verificación de GEI.
 Nota. Cuando el OEC lo requiera, el ECA emitirá constancias del estado de la acreditación; estas pueden requerirse para la participación en licitaciones u otras actividades derivadas de procesos de contratación, siempre y cuando se soliciten con al menos 3 días hábiles de anticipación.
 6.3 En caso de que el OEC tenga algún tipo de deuda de algún trámite anterior, el proceso de acreditación inicial no podrá iniciar hasta tanto no haya sido subsanada la deuda correspondiente en un plazo máximo de 20 días hábiles.
 6.4 Las notificaciones que se realicen a los OEC respecto al proceso de evaluación y acreditación se realizarán en cualquiera de las siguientes formas:
-Por- mensajería normal, para lo cual se le solicita al OEC la firma de la hoja de recibido.
-Por vía- facsímil, con confirmación automática del equipo, en caso contrario se realizarán hasta 5 intentos.
-Por- correo electrónico, con confirmación automática del sistema, o un correo de confirmación.
+ Por mensajería normal, para lo cual se le solicita al OEC la firma de la hoja de recibido.
+ Por vía facsímil, con confirmación automática del equipo, en caso contrario se realizarán hasta 5 intentos.
+ Por correo electrónico, con confirmación automática del sistema, o un correo de confirmación.
 Para dichas notificaciones se tomarán los datos de contacto indicados en la solicitud de acreditación o los que el OEC haya informado formalmente que se modifiquen.
 7 REQUISITOS PARA LA ACREDITACIÓN
 Una de las condiciones para la acreditación es el cumplimiento de este documento y los requisitos de las siguientes normas o guías, en su versión vigente y de acuerdo al área de acreditación:
@@ -106,19 +106,19 @@ Norma INTE/ISO 14065 | Gases de efecto invernadero — Requisitos para los organ
 Norma INTE/ISO 15189 | Laboratorios de análisis clínicos – Requisitos particulares para la calidad y la competencia
 Además el OEC debe tomar en cuenta los siguientes criterios:
 7.1 Cuando aplique, el OEC debe conocer y demostrar el cumplimiento de las políticas del ECA: [OEC]
-ECA-MC-P17 Política y- criterios para la participación en ensayos / pruebas de aptitud y otras comparaciones para los laboratorios.
-ECA-MC-P18 Política- del uso del logotipo y símbolo de acreditación.
-ECA-MC-P20 Política de- trazabilidad.
-ECA-MC-PO01 Política- de validación de métodos.
-ECA-MC-PO02 Política- de incertidumbre de las mediciones.
-Criterios específicos.-
-Los - procedimientos generales del ECA.
+ ECA-MC-P17 Política y criterios para la participación en ensayos / pruebas de aptitud y otras comparaciones para los laboratorios.
+ ECA-MC-P18 Política del uso del logotipo y símbolo de acreditación.
+ ECA-MC-P20 Política de trazabilidad.
+ ECA-MC-PO01 Política de validación de métodos.
+ ECA-MC-PO02 Política de incertidumbre de las mediciones.
+ Criterios específicos.
+Los procedimientos generales del ECA.
 7.2 Haber realizado al menos una auditoría interna a todo su sistema de gestión, antes de entregar la solicitud de acreditación. Se debe realizar como mínimo una auditoría interna del sistema de gestión del OEC en un periodo de 12 meses. [OEC]
 7.3 Haber realizado al menos una revisión por la dirección de todo su sistema, antes de entregar la solicitud de acreditación. Se debe realizar como mínimo una revisión por la dirección en un periodo de 12 meses. [OEC]
 7.4 Las frecuencias establecidas en los requisitos 7.2 y 7.3 de este procedimiento para la auditoría interna y revisión por la dirección deben respetarse, en caso de incumplimiento de los OEC acreditados se inicia un proceso de investigación (ECA-MC-P16). [OEC]
 7.5 Los documentos presentados ante el ECA, ya sea con una solicitud o para las evaluaciones de seguimiento y reevaluación, deben presentarse protegidos contra cambios e impresión y sin clave de acceso, de lo contrario se considera incompleta la información entregada. [OEC]
-7.6 Los cambios (ingreso o salida de personal) que ocurran en el personal del OEC, deben informarse al ECA utilizando la tabla descrita a continuación y se considera un documento controlado; por lo que debe actualizarse cada vez que ocurra un cambio. [OEC]
-Código del funcionario, (cuando aplique) | Nombre | Grado académico | Puesto | Actividades autorizadas a realizar dentro del alcance de acreditación
+7.6 Los cambios (ingreso o salida de personal) que ocurran en el personal del OEC, deben informarse al ECA utilizando el formulario ECA-MC-P09-F29 Cambios de personal que contiene la tabla descrita a continuación y se considera un documento controlado; por lo que debe actualizarse cada vez que ocurra un cambio. [OEC]
+Código del funcionario, (cuando aplique) | Nombre | Grado académico | Puesto | Actividades autorizadas a realizar dentro del alcance de acreditación | Fecha de ingreso a laborar | fecha de salida de laborar
 Nota 1: Para el caso de Organismos de Certificación, los cambios que ocurran en el personal deben presentarse según se indica en las tablas de Lista del personal que cubre las actividades del alcance de acreditación, tal y como se describen en ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para organismos de certificación
 Nota 2: Los cambios que ocurran en el personal pueden presentarse en el formato que el OEC tenga para tal fin, siempre y cuando se cumpla con indicar el nombre del personal, el grado académico, el puesto y las actividades dentro del alcance en las cuales el personal está autorizado.
 7.7 Cualquier cambio en la lista anterior debe ser informado por el OEC durante la realización de la evaluación documental y antes de la definición del plan de evaluación. [OEC]
@@ -154,10 +154,10 @@ Nota 3: Las solicitudes de acreditación, se encuentran disponibles en la págin
 8.4 Las visitas preliminares NO son de carácter obligatorio. [OEC]
 9 PROCESO GENERAL DE EVALUACIÓN Y ACREDITACIÓN
 El proceso general de evaluación y acreditación se realiza en las siguientes etapas:
-- Solicitud de acreditación y análisis de recursos (aplica para evaluaciones iniciales y ampliaciones)
-- Admisibilidad de la solicitud (aplica para evaluaciones iniciales y ampliaciones)
-- Evaluación (aplica para todo tipo de evaluación)
-Toma de- decisión (aplica para todo tipo de evaluación)
+ Solicitud de acreditación y análisis de recursos (aplica para evaluaciones iniciales y ampliaciones)
+ Admisibilidad de la solicitud (aplica para evaluaciones iniciales y ampliaciones)
+ Evaluación (aplica para todo tipo de evaluación)
+ Toma de decisión (aplica para todo tipo de evaluación)
 9.1 Solicitud de acreditación y análisis de recursos
 9.1.1 Cuando un OEC acreditado ante el ECA desee acreditar un tipo de actividad de evaluación de la conformidad diferente a la ya acreditada, o cuando un OEC desea acreditarse por primera vez (de acuerdo a las actividades indicadas en el apartado 6.1), debe presentar una solicitud inicial. [OEC].
 Nota: Las solicitudes de acreditación, se encuentran disponibles en la página web del ECA o pueden ser solicitadas a la respectiva Secretaría de Acreditación.
@@ -195,7 +195,8 @@ Nota 1: El OEC puede objetar el nombramiento del equipo evaluador (excepto el re
 Nota 2: Los motivos de impedimento y recusación referidos como conflicto de interés se mencionan a continuación:
 a. Tener relación directa en la actividad del OEC.
 b. Tener hasta un tercer grado de consanguinidad o afinidad con personas que posean un interés directo con la actividad del OEC o que laboren para ella, o que tengan un interés directo en el asunto que se conozca.
-c. En los casos en que fuere tutor, curador, apoderado, representante o administrador de bienes del OEC. d. Haber tenido relaciones comerciales o préstamos mercantiles con el OEC.
+c. En los casos en que fuere tutor, curador, apoderado, representante o administrador de bienes del OEC.
+d. Haber tenido relaciones comerciales o préstamos mercantiles con el OEC.
 e. Existir o haber existido en los 2 años anteriores a su asignación, proceso judicial de cualquier índole, en el que hayan sido partes contrarias el OEC y el Integrante del CEE, o sus parientes mencionados en el supuesto b. de la presente nota.
 f. Haber brindado consultoría, haber sido empleado o socio del OEC en los últimos 2 años.
 g. Proporcionar asesoramiento o formación específica para el desarrollo e implementación del sistema de gestión o competencia técnica del OEC.
@@ -248,34 +249,39 @@ b. ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testifica
 c. ECA-MC-P25 Procedimiento de testificación para Organismos Validadores / Verificadores de GEI.
 9.3.6 El Evaluador Líder, finalizada la reunión de cierre, debe entregar al OEC el Informe final de acuerdo al tipo de OEC y debe solicitar la firma que haga constar el recibo conforme de dicho documento. [EL]
 Nota: Para verificar el tipo de formulario que debe remitirse al ECA-MC-P13: Ejecución de la evaluación
-9.3.7 Finalizada la evaluación, el Evaluador Líder presenta original firmado y copia digital del Informe final a la Secretaría de Acreditación, en un plazo de 5 días hábiles, junto con los registros ECA-MC-P21-F17 Evaluación del desempeño a integrantes del equipo evaluador y las notas digitales respectivas. [EL]
-9.3.8 La Secretaría de Acreditación, remite el Informe final al OEC junto con el formulario ECA-MC-P09-F12 Entrega del informe final al OEC, para lo cual cuenta con 3 días hábiles. [SA]
-Nota: En caso de NO existir no conformidades, no se entrega al OEC el formulario ECA-MC-P09-F12 Entrega del informe final, solamente se entrega el informe final y se continúa con el punto 9.3.21.
-9.3.9 Para las no conformidades detectadas y aceptadas, el OEC presenta a la Secretaría de Acreditación, en los 10 días hábiles siguientes a la reunión de cierre, en formato digital (en Microsoft Word o un programa equivalente) el plan de acciones correctivas junto con su respectivo análisis de causa, responsable y el plazo para su implementación; utilizando el formulario ECA-MC-P09-F17 Presentación del plan de acciones correctivas. [OEC]
+9.3.7 Finalizada la evaluación, el Evaluador Líder presenta el Informe final en un plazo de 5 días hábiles, junto con los registros ECA-MC-P21-F17 Evaluación del desempeño a integrantes del equipo evaluador y las notas digitales de la siguiente manera:
+- Informe final firmado digitalmente por el Evaluador Líder y el representante del OEC, para este caso lo envía electrónicamente a SA.
+- Informe final firmado de forma física, para lo cual debe enviar una copia digital y entregar el original a la SA.
+Nota: Todos los registros resultantes de la evaluación que puedan ser manejados de manera digital, deben ser enviados de esta misma forma a la SA. Para aquellos registros que no se puedan manejarse de manera digital deben entregarse a la SA.
+9.3.8 Para las no conformidades detectadas y aceptadas, el OEC presenta a la Secretaría de Acreditación, en los 10 días hábiles siguientes a la reunión de cierre, en formato digital (en Microsoft Word o un programa equivalente) el formulario ECA-MC-P09-F17 Presentación del plan de acciones correctivas. [OEC]
 Nota 1: El OEC debe entregar a la Secretaría de Acreditación el plan de acciones correctivas, que incluya las no conformidades que no presentaron opinión divergente. Una vez resueltas las no conformidades que presentaron opinión divergente; el OEC debe entregar en los siguientes 10 días hábiles a la Secretaría de Acreditación, otro plan de acciones correctivas para las no conformidades de la opinión divergente cuando la misma no se acepta.
 Nota 2: Para el caso de evaluaciones iniciales y ampliaciones, si transcurrido el plazo establecido el OEC NO ha presentado el plan de acciones correctivas a la Secretaría de Acreditación, esta procede al archivo definitivo del expediente; en el caso de evaluaciones de seguimiento y reevaluaciones se inicia un proceso de investigación según se establece en el ECA-MC-P16.
 Nota 3: El OEC debe enviar la Gestoría de Calidad, en formato digital, el formulario ECA-MC-P21-F18 Evaluación del desempeño a integrantes del equipo evaluador por parte del OEC.
-9.3.10 La Secretaría de Acreditación, en un plazo de 3 días hábiles, envía el plan de acciones correctivas presentado por el OEC al Equipo Evaluador, para su respectivo estudio. El Evaluador Líder es el responsable de enviar el estudio, en un plazo de 5 días hábiles. [SA] [EL].
-9.3.11 Si se requieren ajustes al plan de acciones correctivas, la Secretaría de Acreditación envía al OEC, en los siguientes 3 días hábiles el ECA-MC-P09-F14 Solicitud de ajustes al plan de acciones correctivas y se procede de acuerdo al punto 9.3.10. El OEC tiene un plazo de 10 días hábiles para subsanarlo. El plan de acciones correctivas puede ser presentado por el OEC como máximo en 3 ocasiones; agotadas estas, se procede al archivo definitivo del expediente en evaluaciones iniciales y de ampliación; en el caso de evaluaciones de seguimiento, y reevaluaciones se inicia un proceso de investigación según se establece en el ECA-MC-P16. [SA] [OEC]
+9.3.9 La Secretaría de Acreditación, en un plazo de 3 días hábiles, envía el plan de acciones correctivas presentado por el OEC al Equipo Evaluador, para su respectivo estudio. El Evaluador Líder es el responsable de enviar el estudio, en un plazo de 5 días hábiles. [SA] [EL].
+9.3.10 Si se requieren ajustes al plan de acciones correctivas, la Secretaría de Acreditación envía al OEC, en los siguientes 3 días hábiles el ECA-MC-P09-F14 Solicitud de ajustes al plan de acciones correctivas y se procede de acuerdo al punto 9.3.10. El OEC tiene un plazo de 10 días hábiles para subsanarlo. El plan de acciones correctivas puede ser presentado por el OEC como máximo en 3 ocasiones; agotadas estas, se procede al archivo definitivo del expediente en evaluaciones iniciales y de ampliación; en el caso de evaluaciones de seguimiento, y reevaluaciones se inicia un proceso de investigación según se establece en el ECA-MC-P16. [SA] [OEC]
 Nota: Se cuenta con un máximo de 3 oportunidades para realizar el estudio del plan de acciones correctivas. En caso que sea requerido, después del segundo estudio del PAC, es posible realizar una reunión entre el Equipo Evaluador y el OEC, para efectos de comunicar mejor las razones de rechazo del plan. Dicha reunión debe realizarse en ECA y con la presencia de la Secretaría respectiva o mediante videoconferencia
-9.3.12 En caso de aceptación del plan de acciones correctivas propuesto, la Secretaría de Acreditación, en los siguientes 3 días hábiles, informa al OEC mediante formulario ECA-MC-P09-F15 Aceptación del plan de acciones correctivas e informa la fecha máxima para la verificación de implementación de acciones correctivas. [SA]
+9.3.11 En caso de aceptación del plan de acciones correctivas propuesto, la Secretaría de Acreditación, en los siguientes 3 días hábiles, informa al OEC mediante formulario ECA-MC-P09-F15 Aceptación del plan de acciones correctivas e informa la fecha máxima para la verificación de implementación de acciones correctivas. [SA]
 Nota: Para una evaluación inicial, el plazo máximo de implementación de acciones correctivas es de 120 días hábiles a partir de la fecha en que se aprueba la totalidad del plan propuesto por el OEC. Para el resto de evaluaciones (seguimientos, ampliaciones y reevaluaciones), el plazo máximo es de 66 días hábiles.
-9.3.13 El OEC debe implementar las acciones correctivas dentro del plazo establecido e informar a la Secretaría de Acreditación. Vencido el plazo de la implementación de acciones correctivas y en ausencia de una notificación por parte del OEC, la Secretaría de Acreditación informa al OEC el vencimiento del plazo e inicia la coordinación de la verificación de acciones correctivas. [OEC] [SA]
+9.3.12 El OEC debe implementar las acciones correctivas dentro del plazo establecido e informar a la Secretaría de Acreditación. Vencido el plazo de la implementación de acciones correctivas y en ausencia de una notificación por parte del OEC, la Secretaría de Acreditación informa al OEC el vencimiento del plazo e inicia la coordinación de la verificación de acciones correctivas. [OEC] [SA]
 Nota: Para realizar la verificación de acciones correctivas, la Secretaría de Acreditación debe confirmar con el Área Financiera-Contable, que el OEC se encuentra al día con el pago de los servicios de evaluación para continuar con el proceso, caso contrario el proceso de evaluación es retrasado hasta tanto se realicen los pagos respectivos El pago de los servicios de evaluación debe realizarse de acuerdo al procedimiento ECA-MC-MA-P03 Procedimiento de cobro. De no efectuarse los pagos en un plazo de 10 días hábiles se procede al archivo definitivo del expediente en procesos iniciales y de ampliación; en el caso de procesos de seguimiento y reevaluaciones se procede conforme a lo establecido en el ECA-MC-P16 procedimiento de investigación.
-9.3.14 La Verificación de Acciones Correctivas (VAC) debe realizarse de manera presencial. Es obligatoria la participación del Evaluador Líder y del experto técnico, este último solo si existen no conformidades técnicas. Puede ser que producto de las no conformidades detectadas durante la evaluación in situ, se deba volver a testificar las actividades incluidas dentro del alcance de la evaluación. [EE]
-9.3.15 Si el OEC comunica la implementación antes de la fecha límite informada en el ECA-MC-P09-F15 y al realizar la verificación de acciones correctivas se determina que no hubo una adecuada implementación, el OEC puede utilizar el plazo restante para la implementación informado en el formulario mencionado. Finalizado dicho plazo, la Secretaría de Acreditación debe programar una nueva VAC. [OEC] [SA]
+9.3.13 La Verificación de Acciones Correctivas (VAC) debe realizarse de manera presencial. Es obligatoria la participación del Evaluador Líder y del experto técnico, este último solo si existen no conformidades técnicas. Puede ser que producto de las no conformidades detectadas durante la evaluación in situ, se deba volver a testificar las actividades incluidas dentro del alcance de la evaluación. [EE]
+9.3.14 Si el OEC comunica la implementación antes de la fecha límite informada en el ECA-MC-P09-F15 y al realizar la verificación de acciones correctivas se determina que no hubo una adecuada implementación, el OEC puede utilizar el plazo restante para la implementación informado en el formulario mencionado. Finalizado dicho plazo, la Secretaría de Acreditación debe programar una nueva VAC. [OEC] [SA]
 Nota: Si se requiere más de un día para la ejecución de la VAC , la coordinación de la misma queda sujeta a la disponibilidad del equipo evaluador que debe asistir.
-9.3.16 El plazo máximo para la ejecución de la visita de verificación de acciones correctivas, es de 20 días hábiles, después de finalizada la fecha de implementación de acciones correctivas. [SA]
+9.3.15 El plazo máximo para la ejecución de la visita de verificación de acciones correctivas, es de 20 días hábiles, después de finalizada la fecha de implementación de acciones correctivas. [SA]
 Nota: La fecha de implementación de acciones correctivas se entiende como el vencimiento del tiempo de implementación de acciones correctivas o notificación por parte del OEC de la finalización de implementación.
-9.3.17 En casos excepcionales en que no se pueda contar con la presencia del Evaluador Líder o del experto técnico, en la VAC , se debe proceder de la siguiente manera: [EE]
+9.3.16 En casos excepcionales en que no se pueda contar con la presencia del Evaluador Líder o del experto técnico, en la VAC , se debe proceder de la siguiente manera: [EE]
 a. Si el evaluador no está calificado como Evaluador Líder, este ejecuta la VAC con las instrucciones y la información preparada por el Evaluador Líder, para ello el OEC deberá remitir al ECA la evidencia objetiva de implementación de las acciones correctivas. Esta información será remitida al Evaluador Líder para su análisis.
 b. Si el evaluador está calificado como Evaluador Líder, este asume de manera total la responsabilidad del proceso de verificación.
 c. En caso de que el experto técnico no pueda participar de manera presencial en la VAC ; en primera instancia el OEC debe remitir a la Secretaría respectiva las evidencias de la implementación de las acciones correctivas. El experto técnico debe analizar la documentación, de manera electrónica y remitir al evaluador líder el resultado de su análisis. Si fuera necesario puede participar por medio de video conferencias o chats, para aclarar o confirmar información adicional.
-9.3.17.1 Para los casos de los incisos a) y c), el OEC cuenta con 10 días hábiles para entregar al ECA la información de manera electrónica, después de que se notifica que el Evaluador Líder o el experto técnico no pueden estar presentes en la VAC. Para el caso del inciso b) se siguen los plazos establecidos en 9.3.16. [OEC]
-9.3.18 En los casos donde por por causas imputables al OEC no es posible realizar la VAC en el plazo establecido en 9.3.16 se procede de una de las siguientes maneras: [OEC]
+9.3.16.1 Para los casos de los incisos a) y c), el OEC cuenta con 10 días hábiles para entregar al ECA la información de manera electrónica, después de que se notifica que el Evaluador Líder o el experto técnico no pueden estar presentes en la VAC. Para el caso del inciso b) se siguen los plazos establecidos en 9.3.15. [OEC]
+9.3.17 En los casos donde por por causas imputables al OEC no es posible realizar la VAC en el plazo establecido en 9.3.15 se procede de una de las siguientes maneras: [OEC]
 a. Archivar definitivamente el expediente, para los OEC en proceso de acreditación inicial o ampliación.
 b. Iniciar un proceso de investigación (ECA-MC-P16), para los OEC acreditados.
-9.3.19 Finalizada la VAC , el Evaluador líder cuenta con 5 días hábiles para entregar el informe de verificación a la Secretaría de Acreditación. [EL]
+9.3.18 Finalizada la VAC , el Evaluador Líder presenta el Informe de verificación de acciones correctivas, en un plazo de 5 días hábiles, de la siguiente manera:
+- Informe de verificación de acciones correctivas firmado digitalmente por el Evaluador Líder y el representante del OEC, para este caso lo envía electrónicamente a SA.
+- Informe de verificación de acciones correctivas firmado de forma física, para lo cual debe enviar una copia digital y entregar el original a la SA.
+Nota: Todos los registros resultantes de la verificación de acciones correctivas que puedan ser manejados de manera digital, deben ser enviados de esta misma forma a la SA. Para aquellos registros que no se puedan manejarse de manera digital deben entregarse a la SA.
+9.3.19 el Evaluador líder cuenta con 5 días hábiles para entregar el informe de verificación a la Secretaría de Acreditación. [EL]
 9.3.20 La Secretaría de Acreditación envía al OEC, en los siguientes 2 días hábiles, el ECA-MC-P13-F07 Informe de verificación de acciones correctivas. [SA]
 9.3.21 Finalizada la etapa de evaluación documental, evaluación in situ y si aplica, la verificación de acciones correctivas, se procede con la etapa de toma de decisión, según el procedimiento ECA-MC-P14 Toma de decisión. [SA]
 10 OPINION DIVERGENTE
@@ -289,34 +295,34 @@ Nota: El Comité Asesor puede solicitar información adicional al OEC o al Equip
 10.6 En caso de opiniones divergentes no aceptadas por el Comité Asesor, el tiempo de implementación del plan de acciones correctivas, queda sujeto al tiempo de la aceptación del plan de acciones correctivas para las no conformidades con opinión divergente. [SA]
 11 OEC MULTISITIOS CON SEDES CRÍTICAS Y OEC CON INSTALACIONES TEMPORALES.
 11.1 El OEC con sedes críticas o con instalaciones temporales debe demostrar documentalmente que posee para todas las sedes críticas lo siguiente: [OEC]
-- Un mismo representante legal.
-- Un mismo responsable de la calidad o cualquiera que sea su denominación, para las diferentes instalaciones.
-- Un mismo responsable para la dirección técnica, para las diferentes instalaciones.
+ Un mismo representante legal.
+ Un mismo responsable de la calidad o cualquiera que sea su denominación, para las diferentes instalaciones.
+ Un mismo responsable para la dirección técnica, para las diferentes instalaciones.
 11.2 El OEC con sedes críticas o con instalaciones temporales debe demostrar que: [OEC]
-La- actividad de evaluación de la conformidad es realizada en todas las sedes críticas o temporales con los mismos métodos y procedimientos.
-El- Sistema de Gestión debe ser sujeto a revisión por la dirección y administrado de manera centralizada, lo que significa que las sedes deben trabajar de manera homologada.
-Todas- las sedes críticas o con instalaciones temporales están sujetas al programa de auditorías internas y fueron auditadas antes de que ECA realice la evaluación inicial.
-Las- declaraciones de validación/verificación y los certificados de inspección, certificación, calibración o informes de ensayo son emitidos bajo la responsabilidad y en nombre del OEC, pero haciendo mención a la instalación donde se realizó la actividad de evaluación de la conformidad.
-Las- actividades técnicas deberán realizarse en todas las sedes críticas de acuerdo con los mismos métodos y procedimientos excepto aquellos aspectos que deban ser diferentes.
+ La actividad de evaluación de la conformidad es realizada en todas las sedes críticas o temporales con los mismos métodos y procedimientos.
+ El Sistema de Gestión debe ser sujeto a revisión por la dirección y administrado de manera centralizada, lo que significa que las sedes deben trabajar de manera homologada.
+ Todas las sedes críticas o con instalaciones temporales están sujetas al programa de auditorías internas y fueron auditadas antes de que ECA realice la evaluación inicial.
+ Las declaraciones de validación/verificación y los certificados de inspección, certificación, calibración o informes de ensayo son emitidos bajo la responsabilidad y en nombre del OEC, pero haciendo mención a la instalación donde se realizó la actividad de evaluación de la conformidad.
+ Las actividades técnicas deberán realizarse en todas las sedes críticas de acuerdo con los mismos métodos y procedimientos excepto aquellos aspectos que deban ser diferentes.
 11.3 El OEC con sedes críticas o con instalaciones temporales debe disponer del adecuado control del sistema y debe realizar de forma centralizada como mínimo las siguientes actividades: [OEC]
-- Documentación del sistema y cambios del sistema.
-- Revisiones por la Dirección.
-Gestión- de quejas.
-- Auditorías internas, planificación y seguimiento.
-- Supervisión del personal y evaluación del mismo.
-Control- de registros.
-- Definición de requisitos de competencia técnica del personal.
+ Documentación del sistema y cambios del sistema.
+ Revisiones por la Dirección.
+ Gestión de quejas.
+ Auditorías internas, planificación y seguimiento.
+ Supervisión del personal y evaluación del mismo.
+ Control de registros.
+Definición de requisitos de competencia técnica del personal.
 11.4 El OEC con sedes críticas o con instalaciones temporales debe definir la organización general, tanto desde el punto de vista técnico, de gestión y administrativo así como los requisitos organizativos mínimos de las instalaciones. Asimismo, debe identificar a las personas que, dentro de cada instalación, tienen la responsabilidad de la supervisión de los trabajos realizados. Deben quedar claramente establecidas las líneas jerárquicas: [OEC]
-Desde el- Director técnico hasta los responsables técnicos de cada una de las diferentes instalaciones.
-Desde el- responsable de Calidad hasta encargados de la gestión en cada una de las diferentes instalaciones.
+ Desde el Director técnico hasta los responsables técnicos de cada una de las diferentes instalaciones.
+ Desde el responsable de Calidad hasta encargados de la gestión en cada una de las diferentes instalaciones.
 11.5 Además, en la evaluación in situ se verificará en los OEC con sedes críticas o con instalaciones temporales los siguientes aspectos: [OEC]
 11.5.1 Competencia del personal que realiza la actividad, evaluación y aprobación del mismo.
 11.5.2 Cadena de supervisión durante las jornadas de trabajo, delegación de la autoridad y la competencia de quien toma las decisiones sobre los posibles trabajos no conformes.
 11.5.3 En los casos que aplique:
-- Verificación o control de condiciones ambientales y su registro.
-- Procedimientos de transporte de equipo.
-- Verificación del equipo.
-- Declaración del equipo, trazabilidad y calibración.
+ Verificación o control de condiciones ambientales y su registro.
+ Procedimientos de transporte de equipo.
+ Verificación del equipo.
+ Declaración del equipo, trazabilidad y calibración.
 11.6 Si durante el proceso de evaluación de un OEC con sedes críticas o con instalaciones temporales, se identifica alguna no conformidad en cualquier instalación, el OEC debe evidenciar si las otras instalaciones incluidas en el alcance de la acreditación no han sido afectadas por la desviación y establecer una acción correctiva de carácter general y aportar evidencias de que el problema ha sido tratado en todas las instalaciones afectadas. Si la no conformidad pone en duda el control del OEC, la acreditación podrá ser cuestionada a toda la organización hasta que no se cierre dicha no conformidad. El ECA exigirá evidencias de que las acciones correctivas se han implementado y que han sido eficaces, además podrá incrementar el nivel de muestreo hasta que se demuestre que el control se ha restablecido. [OEC]
 11.7 Durante las evaluaciones, además de la visita a la oficina principal, se deben visitar las sedes críticas o temporales del OEC, de acuerdo a ECA-MC-P13-I01 Instructivo de muestreo. [OEC]
 11.8 Los OEC con instalaciones temporales deben contar con un procedimiento para la instalación de nuevas sedes. Además para el caso de la apertura de nuevas instalaciones deben informar al ECA: [OEC]
@@ -392,8 +398,8 @@ Nota 3: Las evaluaciones extraordinarias deben seguir la formalidad de una evalu
 13.2 Las evaluaciones de ampliación se pueden llevar a cabo junto con las evaluaciones de seguimiento o reevaluación si se solicitan con 3 meses de anticipación a la fecha de evaluación de seguimiento o reevaluación.
 Nota: Las solicitudes de ampliación que se reciban en un plazo menor a los 3 meses de la fecha del seguimiento, serán coordinadas en la medida de lo posible, de manera conjunta con la evaluación de seguimiento, sin embargo, ECA no se responsabiliza si no es posible que se lleven a cabo de esta manera, si no se cumple el punto anterior
 13.3 Conforme a la normativa nacional e internacional, así como a los procedimientos establecidos, corresponde solicitud de ampliación sólo cuando el OEC desee ampliar: [OEC]
-El mismo- tipo de actividad de evaluación de la conformidad o
-Para OEC- con instalaciones multisitios que desee incluir una nueva sede al alcance de acreditación y se cumpla con lo establecido en el punto 11 de este procedimiento.
+ El mismo tipo de actividad de evaluación de la conformidad o
+ Para OEC con instalaciones multisitios que desee incluir una nueva sede al alcance de acreditación y se cumpla con lo establecido en el punto 11 de este procedimiento.
 13.4 El OEC debe definir claramente el alcance de acreditación para el cual solicita la ampliación en el formulario de solicitud y de manera independiente al alcance ya acreditado. Es decir, indicar únicamente las actividades de evaluación de la conformidad que se desea ampliar. [OEC]
 13.5 El proceso de evaluación y acreditación se lleva a cabo de igual forma como una evaluación inicial conforme al apartado 9 de este procedimiento (debe presentar solicitud de ampliación y contar con la admisibilidad de la misma)
 Nota 1: El ECA firma un addendum del certificado y alcance de acreditación (anexo técnico).
@@ -412,7 +418,8 @@ Nota: En caso de que el OEC presente atraso en los pagos el Área Financiera-Con
 14.7 La Gestoría de Calidad entrega a la Secretaría de Acreditación para su archivo copia del texto publicado. [GC]
 Nota: Cuando un Organismo de Certificación renuncie a su acreditación, el ECA debe notificar a la Secretaría de IAF. La Secretaría de IAF notificará lo anterior todos los miembros de IAF.
 15 SUSPENSIÓN Y CANCELACIÓN DE LA ACREDITACIÓN
-15.1 El ECA suspende o cancela la acreditación de un OEC cuando incurra en el incumplimiento de alguna de sus obligaciones o de los procedimientos del ECA, o en los casos que el OEC decida voluntariamente suspender de manera parcial o total su alcance de acreditación, se sigue el procedimiento ECA-MC-P16 Procedimiento de Investigación.
+15.1 El ECA suspende o cancela la acreditación de un OEC cuando incurra en el incumplimiento de alguna de sus obligaciones o de los procedimientos del ECA, o en los casos que el OEC
+decida voluntariamente suspender de manera parcial o total su alcance de acreditación, se sigue el procedimiento ECA-MC-P16 Procedimiento de Investigación.
 16 DERECHOS Y OBLIGACIONES DE LOS OEC ACREDITADOS
 16.1 El OEC que solicite acreditación ante el ECA debe conocer la Ley No. 8279 Ley del Sistema Nacional para la Calidad , el Decreto Ejecutivo No. 35522 Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación; y los procedimientos, criterios y políticas emitidos por el ECA, los cuales se incluyen dentro del paquete informativo que se brinda a los OEC solicitantes y que se encuentra disponible en www.eca.or.cr. [OEC]
 16.2 Los derechos y obligaciones del OEC acreditado están definidos, según corresponda, en ECA-MC-P14-F03 Compromiso de Acreditación, documento que el OEC firma en el momento en que recibe el certificado de acreditación. [OEC]
@@ -433,7 +440,7 @@ Se brinda un transitorio de un mes para la aplicación de este procedimiento a p
 21.1.1 El equipo evaluador se conforma en función del grado de la complejidad de la evaluación a realizar. [SA]
 21.1.2 El equipo evaluador está conformado por personas con experiencia en la norma a acreditar y con experiencia técnica relacionada en el alcance de acreditación. [SA]
 21.1.3 Los evaluadores y expertos técnicos se seleccionan de los siguiente listados: ECA-MC-P21-F12 Directorio oficial y listados de respaldo del CEE, ECA-MC-P21-F14 Listado de Evaluadores de Organismos Homólogos, tomando en consideración lo indicado en este anexo. [SA]
-21.1.4 Si se cuenta con evaluadores y expertos técnicos dentro de los listados, el plazo para continuar con el requisito 9.2 de admisibilidad de la solicitud es de 15 días hábiles. Si no se cuentan con expertos en los listados mencionados, el plazo dependerá del evaluador o experto técnico a contactar y la Secretaría debe informar al OEC sobre esta situación. [SA] |1|
+21.1.4 Si se cuenta con evaluadores y expertos técnicos dentro de los listados, el plazo para continuar con el requisito 9.2 de admisibilidad de la solicitud es de 15 días hábiles. Si no se cuentan con expertos en los listados mencionados, el plazo dependerá del evaluador o experto técnico a contactar y la Secretaría debe informar al OEC sobre esta situación. [SA]
 21.1.5 En los casos que:
 a. Se requiera utilizar evaluadores y/o expertos técnicos que no se encuentren en ECA-MC-P21-F12 Directorio del CEE, ECA-MC-P21-F14 Listado de Evaluadores de Organismos Homólogos, se pueden contactar a organismos homólogos u otras instituciones que puedan proveer el personal requerido, para ello se debe seguir el ECA-MC-P21 Reclutamiento, selección, incorporación evaluación del desempeño y cambios de categoría al cuerpo de evaluadores y expertos técnicos. [SA]
 b. Se contraten evaluadores y/o expertos técnicos de organismos internacionales homólogos o de otras instituciones internacionales, el OEC es el responsable de cubrir los viáticos y honorarios correspondientes. [OEC]
@@ -456,7 +463,7 @@ g. La necesidad de enviar evaluadores en formación como parte del equipo evalua
 h. Aspectos de logística relacionados con traslados, viáticos, uso de equipos y hospedaje del equipo evaluador.
 21.2 Anexo 2: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS DE ENSAYO Y CALIBRACIÓN.
 Aspectos a evaluar | Tipo de evaluación
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación | I Seguimiento
+I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación
 ASPECTOS GENERALES
 Informes de la evaluación del ECA anterior | X | X | X | X
 Cambios notificados por el laboratorio | X | X | X | X
@@ -480,16 +487,16 @@ REQUISITOS DE GESTIÓN
 4.15 Revisión por la dirección, registros de revisión por la dirección del sistema de calidad | X | X | X | X
 REQUISITOS TÉCNICOS
 Con respecto a los requisitos técnicos, serán evaluados todos los indicados en la norma INTE-ISO/IEC 17025:2005 en la sección 5 para el alcance seleccionado a testificar | X | X | X | X
-Políticas del ECA: · ECA-MC-P20 Trazabilidad de las mediciones · ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones · ECA-MC-PO1:Política de Validación de Métodos · ECA-MC-PO01-G01: Guía para la validación de Métodos. · ECA-MC-PO02: Política de incertidumbre de las mediciones. · ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X
+Políticas del ECA:  ECA-MC-P20 Trazabilidad de las mediciones  ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones  ECA-MC-PO1:Política de Validación de Métodos  ECA-MC-PO01-G01: Guía para la validación de Métodos.  ECA-MC-PO02: Política de incertidumbre de las mediciones.  ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X
 TOTAL DE ASPECTOS A EVALUAR | 16 | 14 | 16 | 21
 Indicaciones adicionales:
-Es posible, que de los cambios significativos informados por el Laboratorio, en su Sistema de Gestión, que se determine la necesidad de evaluar algún requisito afectado, aunque no haya sido indicado en el cuadro anterior, para la evaluación de seguimiento respectiva.
-Es permisible que durante el desarrollo de la evaluación, la línea de investigación lleve al equipo evaluador a revisar otros requisitos no indicados y pueden determinarse no conformidades contra estos.
-Los evaluadores deben indicar sí para el seguimiento siguiente se debe volver a evaluar alguno de los requisitos ya evaluados.
-Tanto el Comité Asesor como la Comisión de Acreditación pueden solicitar la revisión de algún punto especifico en cualquier seguimiento o reevaluación.
+ Es posible, que de los cambios significativos informados por el Laboratorio, en su Sistema de Gestión, que se determine la necesidad de evaluar algún requisito afectado, aunque no haya sido indicado en el cuadro anterior, para la evaluación de seguimiento respectiva.
+ Es permisible que durante el desarrollo de la evaluación, la línea de investigación lleve al equipo evaluador a revisar otros requisitos no indicados y pueden determinarse no conformidades contra estos.
+ Los evaluadores deben indicar sí para el seguimiento siguiente se debe volver a evaluar alguno de los requisitos ya evaluados.
+ Tanto el Comité Asesor como la Comisión de Acreditación pueden solicitar la revisión de algún punto especifico en cualquier seguimiento o reevaluación.
 21.3 Anexo 3: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS CLÍNICOS.
-Aspectos a evaluar | Tipo de evaluación
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación | I Seguimiento
+| Tipo de evaluación
+Aspectos a evaluar | I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación
 ASPECTOS GENERALES
 informes de la evaluación del ECA anterior | X | X | X | X
 Cambios notificados por el laboratorio | X | X | X | X
@@ -513,16 +520,16 @@ REQUISITOS DE GESTIÓN
 4.15 Revisión por la dirección, registros de revisión por la dirección del sistema de calidad | X | X | X | X
 REQUISITOS TÉCNICOS
 Con respecto a los requisitos técnicos, serán evaluados todos los indicados en la norma INTE-ISO 15189:2008 en la sección 5 para el alcance seleccionado a testificar | X | X | X | X
-Políticas del ECA: · ECA-MC-P20 Trazabilidad de las mediciones · ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones · ECA-MC-PO1:Política de Validación de Métodos · ECA-MC-PO01-G01: Guía para la validación de Métodos. · ECA-MC-PO02: Política de incertidumbre de las mediciones. · ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X
+Políticas del ECA:  ECA-MC-P20 Trazabilidad de las mediciones  ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones  ECA-MC-PO1:Política de Validación de Métodos  ECA-MC-PO01-G01: Guía para la validación de Métodos.  ECA-MC-PO02: Política de incertidumbre de las mediciones.  ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X
 TOTAL DE ASPECTOS A EVALUAR | 16 | 14 | 16 | 21
 Indicaciones adicionales:
-Es posible, que de los cambios significativos informados por el Laboratorio, en su Sistema de Gestión, que se determine la necesidad de evaluar algún requisito afectado, aunque no haya sido indicado en el cuadro anterior, para la evaluación de seguimiento respectiva.
-Es permisible que durante el desarrollo de la evaluación, la línea de investigación lleve al equipo evaluador a revisar otros requisitos no indicados y pueden determinarse no conformidades contra estos.
-Los evaluadores deben indicar sí para el seguimiento siguiente se debe volver a evaluar alguno de los requisitos ya evaluados.
-Tanto el Comité Asesor como la Comisión de Acreditación pueden solicitar la revisión de algún punto especifico en cualquier seguimiento o reevaluación.
+ Es posible, que de los cambios significativos informados por el Laboratorio, en su Sistema de Gestión, que se determine la necesidad de evaluar algún requisito afectado, aunque no haya sido indicado en el cuadro anterior, para la evaluación de seguimiento respectiva.
+ Es permisible que durante el desarrollo de la evaluación, la línea de investigación lleve al equipo evaluador a revisar otros requisitos no indicados y pueden determinarse no conformidades contra estos.
+ Los evaluadores deben indicar sí para el seguimiento siguiente se debe volver a evaluar alguno de los requisitos ya evaluados.
+ Tanto el Comité Asesor como la Comisión de Acreditación pueden solicitar la revisión de algún punto especifico en cualquier seguimiento o reevaluación.
 21.4 Anexo 4: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS DE INSPECCIÓN, SEGÚN LA NORMA INTE-ISO /IEC 17020:2000.
-Aspectos a evaluar | Tipo de evaluación
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación | I Seguimiento
+| Tipo de evaluación
+Aspectos a evaluar | I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación
 ASPECTOS GENERALES
 Informes de la evaluación del ECA anterior | X | X | X | X
 Cambios notificados por el Organismo | X | X | X | X
@@ -564,11 +571,11 @@ PERSONAL
 8.5 | | X | | X
 8.6 | | X | | X
 INSTALACIONES Y EQUIPO
-9.1 | X | | X | X
+9.1 | X | X | X | X
 9.2 | X | X | X | X
 9.3 | | X | | X
 9.4 | | X | | X
-9.5 | | | |
+9.5 | X | X | X | X
 9.6 | X | X | X | X
 9.7 | X | X | X | X
 9.8 | X | X | X | X
@@ -576,7 +583,7 @@ INSTALACIONES Y EQUIPO
 9.10 | X | X | X | X
 9.11 | | X | | X
 9.12 | | X | | X
-9.13 | X | | X |
+9.13 | X | | X | X
 9.14 | X | X | X | X
 9.15 | | X | | X
 REQUISITOS TÉCNICOS
@@ -587,16 +594,15 @@ SUBCONTRATACIÓN
 14 | | X | | X
 15 | X | X | X | X
 16 | | X | | X
-Políticas del ECA: · ECA-MC-P20 Trazabilidad de las mediciones · ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones · ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X
-TOTAL DE | 39 | 42 | 37 | 50
-ASPECTOS A EVALUAR | | | |
+Políticas del ECA:  ECA-MC-P20 Trazabilidad de las mediciones  ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones  ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X
+TOTAL DE ASPECTOS A EVALUAR | 39 | 42 | 37 | 50
 Indicaciones adicionales:
-Es posible que durante el desarrollo de la evaluación, la línea de investigación lleve al equipo evaluador a revisar otros requisitos no indicados y pueden determinarse no conformidades contra estos.
-Los evaluadores deben indicar si para el seguimiento siguiente se debe volver a evaluar alguno de los requisitos ya evaluados.
-Tanto el Comité Asesor como la Comisión de Acreditación pueden solicitar la revisión de algún punto especifico en cualquier seguimiento o reevaluación.
+ Es posible que durante el desarrollo de la evaluación, la línea de investigación lleve al equipo evaluador a revisar otros requisitos no indicados y pueden determinarse no conformidades contra estos.
+ Los evaluadores deben indicar si para el seguimiento siguiente se debe volver a evaluar alguno de los requisitos ya evaluados.
+ Tanto el Comité Asesor como la Comisión de Acreditación pueden solicitar la revisión de algún punto especifico en cualquier seguimiento o reevaluación.
 21.5 Anexo 5: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS DE INSPECCIÓN, SEGÚN LA NORMA INTE-ISO /IEC 17020:2012
-Aspectos a evaluar | Tipo de evaluación
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación | I Seguimiento
+| Tipo de evaluación
+Aspectos a evaluar | I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación
 ASPECTOS GENERALES
 Informes de la evaluación del ECA anterior | X | X | X | X
 Cambios notificados por el Organismo | X | X | X | X
@@ -634,10 +640,10 @@ Con respecto a los requisitos técnicos, serán evaluados todos los indicados en
 8.7 Acciones Correctivas (Opción A) | X | X | X | X
 8.8 Acciones preventivas (Opción A) | X | X | X | X
 Indicaciones adicionales:
-Es posible que durante el desarrollo de la evaluación, la línea de investigación lleve al equipo evaluador a revisar otros requisitos no indicados y pueden determinarse no conformidades contra estos.
-Los evaluadores deben indicar si para el seguimiento siguiente se debe volver a evaluar alguno de los requisitos ya evaluados.
-Tanto el Comité Asesor como la Comisión de Acreditación pueden solicitar la revisión de algún punto especifico en cualquier seguimiento o reevaluación.
-Cuando un Organismo de Inspección se evalúa por primera vez con la norma INTE-ISO/IEC 17020:2012, debe evaluarse todos los requisitos de norma, aunque esté en una evaluación de seguimiento y el anexo 5 indique que se evalúan algunos de los requisitos.
+ Es posible que durante el desarrollo de la evaluación, la línea de investigación lleve al equipo evaluador a revisar otros requisitos no indicados y pueden determinarse no conformidades contra estos.
+ Los evaluadores deben indicar si para el seguimiento siguiente se debe volver a evaluar alguno de los requisitos ya evaluados.
+ Tanto el Comité Asesor como la Comisión de Acreditación pueden solicitar la revisión de algún punto especifico en cualquier seguimiento o reevaluación.
+ Cuando un Organismo de Inspección se evalúa por primera vez con la norma INTE-ISO/IEC 17020:2012, debe evaluarse todos los requisitos de norma, aunque esté en una evaluación de seguimiento y el anexo 5 indique que se evalúan algunos de los requisitos.
 21.6 Anexo 6. TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS VALIDADORES/VERIFICADORES DE GEI
 En el caso de los OV/Vs, se debe cubrir en todas las evaluaciones:
 - Informes de evaluaciones anteriores
@@ -656,5 +662,6 @@ En el caso de los OCSG, OCP y OCH se debe cubrir en todas las evaluaciones:
 - El proceso de selección de las actividades que se van a ser testificadas se sigue de acuerdo el procedimiento ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para organismos de certificación.
 22 IDENTIFICACIÓN DE CAMBIOS
 Motivo: | Modificación del procedimiento ECA-MC-P09
-Refiérase a la solicitud de elaboración o modificación del documento 2012 - 166
-Observaciones: Se incorpora la referencia al documento ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para organismos de certificación. Se modifica la definición sobre actividades claves para Organismos de Certificación de personas Se modifica el requisito 7.4 " ... Las frecuencias establecidas en los requisitos 7.2 y 7.3 de este procedimiento para la auditoría interna y revisión por la dirección deben respetarse, en caso de incumplimiento de los OEC acreditados se inicia un proceso de investigación (ECA-MC-P16). [OEC]..." Se modifica el inciso 7.6 incorporando en el cuadro "grado académico" adicionalmente se agregan las notas: Nota 1: Para el caso de Organismos de Certificación, los cambios que ocurran en el personal deben presentarse según se indica en las tablas de Lista del personal que cubre las actividades del alcance de acreditación, tal y como se describen en ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para organismos de certificación Nota 2: Los cambios que ocurran en el personal pueden presentarse en el formato que el OEC tenga para tal fin, siempre y cuando se cumpla con indicar el nombre del personal, el grado académico, el puesto y las actividades dentro del alcance en las cuales el personal está autorizado. Modificación del inciso 7.19 de la siguiente manera: En todos los procesos de evaluación, tanto las testificaciones como la reunión de cierre deben realizarse como máximo dentro de los 40 días hábiles siguientes a la reunión de apertura en oficina. Nota: Es válido que un OEC solicite que se realicen las testificaciones antes de la evaluación en oficina, con el fin de poder realizar todas las testificaciones en el tiempo establecido. Apartado 9.3 se agrega la frase " La descripción de la ejecución de la Evaluación se describe en el ECA-MC-P13 con más detalle sobre el proceso, los tiempos se encuentran en este procedimiento. " Se modifican las referencias a los formularios del ECA-MC-P13 que aplican en los procesos de evaluación. Se modifica inciso 9.3.6 El Evaluador Líder, finalizada la reunión de cierre, debe entregar al OEC el Informe final de acuerdo al tipo de OEC y debe solicitar la firma que haga constar el recibo conforme de dicho documento. [EL] Nota: Para verificar el tipo de formulario que debe remitirse al ECA-MC-P13: Ejecución de la evaluación. 9.3.7 Finalizada la evaluación, el Evaluador Líder presenta original firmado y copia digital del Informe final a la Secretaría de Acreditación, en un plazo de 5 días hábiles, junto con los registros ECA-MC-P21-F17 Evaluación del desempeño a integrantes del equipo evaluador y las notas digitales respectivas. [EL] Se modifica nota del inciso 9.3.11 Nota: Se cuenta con un máximo de 3 oportunidades para realizar el estudio del plan de acciones correctivas. En caso que sea requerido, después del segundo estudio del PAC, es posible realizar una reunión entre el Equipo Evaluador y el OEC, para efectos de comunicar mejor las razones de rechazo del plan. Dicha reunión debe realizarse en ECA y con la presencia de la Secretaría respectiva o mediante videoconferencia Modificación del inciso 9.3.14 La Verificación de Acciones Correctivas (VAC) debe realizarse de manera presencial. Es obligatoria la participación del Evaluador Líder y del experto técnico, este último solo si existen no conformidades técnicas. Puede ser que producto de las no conformidades detectadas durante la evaluación in situ, se deba volver a testificar las actividades incluidas dentro del alcance de la evaluación. [EE] Modificación inciso 9.3.17 viñeta c. En caso de que el experto técnico no pueda participar de manera presencial en la VAC ; en primera instancia el OEC debe remitir a la Secretaría respectiva las evidencias de la implementación de las acciones correctivas. El experto técnico debe analizar la documentación, de manera electrónica y remitir al evaluador líder el resultado de su análisis. Si fuera necesario puede participar por medio de video conferencias o chats, para aclarar o confirmar información adicional. Se modifica el inciso 9.3.18 de la siguiente manera: En los casos donde por por causas imputables al OEC no es posible realizar la VAC en el plazo establecido en 9.3.16 se procede de una de las siguientes maneras: [OEC] a. Archivar definitivamente el expediente, para los OEC en proceso de acreditación inicial o ampliación. b. Iniciar un proceso de investigación (ECA-MC-P16), para los OEC acreditados. Apartado 10 Opinión Divergente se modifica el apartado indicando 10.1 Si durante la reunión de cierre alguna o algunas de las no conformidades presentadas por el Evaluador Líder (ya sea de la evaluación documental como de la evaluación in situ) es rechazada por el OEC, este puede presentar una opinión divergente, que debe quedar documentada en el informe final respectivo e indicando las razones por las que no acepta la no conformidad, así como la documentación que lo respalde. [OEC] Nota: Durante la reunión de cierre se pueden dar opiniones divergentes para cualquier tipo de no conformidad (mayores y menores). Además se describe que el Órgano Colegiado que resuelve las opiniones divergentes es el Comité Asesor de la Secretaría de Acreditación respectiva. Se modifica el inciso 12.3.11 Cuando se cuente con la aceptación de todo el Equipo Evaluador propuesto, la Secretaría de acreditación, informa al Equipo Evaluador que se puede proceder con la evaluación de seguimiento o reevaluación, según lo descrito en el punto 9.3 de este procedimiento. [LOG] En el inciso 12.4.4 se indica que la unidad de logística entrega al equipo evaluador informe final e informe de verificación de acciones correctivas de la última evaluación, cambios notificados por el OEC y alcance de la acreditación otorgada. Se modifica el apartado 13.5 El proceso de evaluación y acreditación se lleva a cabo de igual forma como una evaluación inicial conforme al apartado 9 de este procedimiento (debe presentar solicitud de ampliación y contar con la admisibilidad de la misma) Nota 3: Cuando la ampliación no se realiza de manera conjunta con la evaluación de seguimiento o reevaluación; el alcance de la evaluación de ampliación solamente cubre los requisitos técnicos de la norma respectiva con la testificación de las actividades a ampliar. En el inciso 14.7 se anota Nota: Cuando un Organismo de Certificación renuncie a su acreditación, el ECA debe notificar a la Secretaría de IAF. La Secretaría de IAF notificará lo anterior todos los miembros de IAF. Anexo 1 inciso 21.1.3 se modifica las referencias de los listados del CEE según el procedimiento ECA-MC-P21.
+Refiérase a la solicitud de elaboración o modificación del documento 2013 - 003
+Observaciones: Apartado 7.6 Los cambios (ingreso o salida de personal) que ocurran en el personal del OEC, deben informarse al ECA utilizando el formulario ECA-MC-P09-F29 Cambios de personal, que contiene la tabla descrita a continuación descrita a continuación y se considera un documento controlado; por lo que debe actualizarse cada vez que ocurra un cambio. [OEC]
+Código del funcionario, (cuando aplique) | Nombre | Grado académico | Puesto | Actividades autorizadas a realizar dentro del alcance de acreditación | Fecha de ingreso a laborar | fecha de salida de laborar | Inciso 9.3.7 Finalizada la evaluación, el Evaluador Líder presenta el Informe final en un plazo de 5 días hábiles, junto con los registros ECA-MC-P21-F17 Evaluación del desempeño a integrantes del equipo evaluador y las notas digitales de la siguiente manera: - Informe final firmado digitalmente por el Evaluador Líder y el representante del OEC, para este caso lo envía electrónicamente a SA. - Informe final firmado de forma física, para lo cual debe enviar una copia digital y entregar el original a la SA. Nota: Todos los registros resultantes de la evaluación que puedan ser manejados de manera digital, deben ser enviados de esta misma forma a la SA. Para aquellos registros que no se puedan manejarse de manera digital deben entregarse a la SA. 9.3.8 Se elimina la referencia sobre la entrega del informe final, debido a que el informe final es entregado por equipo evaluador finalizada la evaluación. La Secretaría de Acreditación, remite el Informe final al OEC junto con el formulario ECA-MC-P09-F12 Entrega del informe final al OEC, para lo cual cuenta con 3 días hábiles. [SA] Nota: En caso de NO existir no conformidades, el equipo evaluador no se entrega al OEC el formulario ECA-MC-P09-F12 Entrega del informe final, solamente entrega al OEC el informe final y se continúa con el punto 9.3.21. 9.3.9 Para las no conformidades detectadas y aceptadas, el OEC presenta a la Secretaría de Acreditación, en los 10 días hábiles siguientes a la reunión de cierre, en formato digital (en Microsoft Word o un programa equivalente) el plan de acciones correctivas junto con su respectivo análisis de causa, responsable y el plazo para su implementación; utilizando el formulario ECA-MC-P09-F17 Presentación del plan de acciones correctivas. [OEC]. Inciso 9.3.18 Finalizada la VAC , el Evaluador Líder presenta el Informe de verificación de acciones correctivas, en un plazo de 5 días hábiles, de la siguiente manera: - Informe de verificación de acciones correctivas firmado digitalmente por el Evaluador Líder y el representante del OEC, para este caso lo envía electrónicamente a SA. - Informe de verificación de acciones correctivas firmado de forma física, para lo cual debe enviar una copia digital y entregar el original a la SA. Nota: Todos los registros resultantes de la verificación de acciones correctivas que puedan ser manejados de manera digital, deben ser enviados de esta misma forma a la SA. Para aquellos registros que no se puedan manejarse de manera digital deben entregarse a la SA.
