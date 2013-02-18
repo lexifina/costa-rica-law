@@ -1,0 +1,1 @@
+Artículo 5º—Contra las decisiones de la Dirección General de Estrategia Tecnológica podrán interponerse recursos de revocatoria y apelación en subsidio para ante el Tribunal Supremo de Elecciones dentro de los tres días posteriores a su comunicación o publicación.

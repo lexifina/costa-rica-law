@@ -1,0 +1,1 @@
+Artículo 4º—Con independencia de lo que estipula este reglamento, es potestad del Tribunal Supremo de Elecciones avocar la decisión de cualquier asunto que se encuentre en trámite en la Dirección General de Estrategia Tecnológica o en cualquiera de sus dependencias, de conformidad con su competencia legal y constitucional.
