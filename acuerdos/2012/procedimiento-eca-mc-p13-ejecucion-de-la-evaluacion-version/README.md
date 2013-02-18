@@ -14,3 +14,4 @@ Procedimiento ECA-MC-P13 Ejecución de la evaluación Versión 05
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-02 | la propia norma |
+| 2 | 2013-02-18 | Acuerdo 0 (2013-02-18) |

@@ -7,9 +7,11 @@
 - Las evidencias: Redactadas de manera detallada, que no se presten para interpretaciones o generen duda del nivel de incumplimiento del OEC.
 - La redacción de la no conformidad: Evitar redactar la prosa de la norma o del documento que se incumple. Definir de manera clara el incumplimiento del OEC.
 - Requisito de la norma o documento que se incumple.
-7.6 La información sobre el nombre completo del OEC, número de expediente y tipo de evaluación, se obtiene del formulario ECA-MC-P09-F18 Aceptación o rechazo de participación en evaluaciones por parte del equipo evaluador
-7.7 En los anexos de este procedimiento, se presentan los siguientes ejemplos:
+7.6 La clasificación de los hallazgos se realizan conforme a lo establecido en el apartado 13 de este procedimiento.
+7.7 La información sobre el nombre completo del OEC, número de expediente y tipo de evaluación, se obtiene del formulario ECA-MC-P09-F18 Aceptación o rechazo de participación en evaluaciones por parte del equipo evaluador. Además de la información de contacto y el código de los evaluadores.
+7.8 En los anexos de este procedimiento, se presentan los siguientes ejemplos:
+- Anexo 1: Ejemplos de redacción de no conformidades.
 - Anexo 2: Ejemplos de redacción de objetivos de evaluación.
 - Anexo 3: Ejemplos de redacción de alcance de la evaluación.
-7.8 Para tener información más específica de cada formulario consultar los siguientes documentos:
-- ECA-MC-P13-I03 instructivo para documentar la agenda para la evaluación.
+7.9 Para tener información más específica de cada formulario consultar los siguientes documentos:
+- ECA-MC-P13-I02 instructivo para documentar la agenda para la evaluación.
