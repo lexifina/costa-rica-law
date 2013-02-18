@@ -14,3 +14,4 @@ Reglamento para el reconocimiento de pago de gastos de transporte público bajo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-28 | la propia norma |
+| 2 | 2013-02-18 | Reglamento municipal 237 (2013-02-18) |
