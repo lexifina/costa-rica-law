@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P09 Procedimiento general de evaluación y acredita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-23 | la propia norma |
+| 2 | 2013-02-18 | Acuerdo 0 (2013-02-18) |
