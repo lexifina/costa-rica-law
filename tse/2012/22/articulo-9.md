@@ -1,0 +1,1 @@
+Artículo 9º—De la ejecución. La ejecución del contrato deberá ajustarse a los planes de trabajo y demás controles previamente establecidos y aprobados por la DGRE, el Departamento de Programas Electorales y Encargados de Programas Electorales o por la persona a quien corresponda la ejecución de las actividades que fundamentan la figura contractual.

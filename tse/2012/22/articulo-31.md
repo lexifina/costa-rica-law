@@ -1,0 +1,1 @@
+Artículo 31.—Será aplicable a esta figura en forma supletoria la Ley de Tránsito por vías públicas terrestres y seguridad vial 9078 del 26 de octubre de 2012 y sus reformas, el Reglamento para el uso de vehículos propiedad del Tribunal Supremo de Elecciones y Registro Civil, Reglamento Autónomo de Servicios del Tribunal Supremo de Elecciones, así como cualquier otra normativa.
