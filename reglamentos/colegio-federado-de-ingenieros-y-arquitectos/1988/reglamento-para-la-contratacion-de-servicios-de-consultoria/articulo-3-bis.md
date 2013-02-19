@@ -1,5 +1,5 @@
-Artículo 3 bis.—Obra de Mantenimiento: Se entenderá por obra de mantenimiento aquella que implique la reparación de un inmueble, sea por deterioro, mantenimiento o por seguridad, siempre y cuando no se altere el área, la forma, ni se intervenga o modifique estructuralmente el inmueble. Las obras de mantenimiento comprenden tanto las que se realicen en exteriores como interiores de los inmuebles, y no requieren la participación obligatoria de un profesional responsable miembro del CFIA.
-Se consideran obras de mantenimiento, las siguientes:
+Artículo 3 BIS. Trabajos de mantenimiento menor: Se entenderá por trabajo de mantenimiento menor aquel trabajo que implique la reparación de un inmueble, sea por deterioro, mantenimiento o por seguridad, siempre y cuando no se le altere el área, la forma, ni se intervenga o modifique estructuralmente el inmueble. Los trabajos de mantenimiento menor comprenden tanto los que se realicen en exteriores como interiores de los inmuebles, y no requieren la participación obligatoria de un profesional responsable miembro del CFIA.
+Se consideran trabajos de mantenimiento menor, los siguientes:
 a. Reposición o instalación de canoas y bajantes.
 b. Reparación de aceras.
 c. Instalación de verjas, rejas, cortinas de acero o mallas perimentrales no estructurales.
@@ -12,13 +12,13 @@ h. Acabados de pisos, puesrtas, ventanería y de cielo raso.
 (Así reformado el inciso anterior mediante sesión N° 03-11/12-G.E. de 22 de noviembre de 2011)
 i. Reparación de repellos y de revestimientos.
 j. Reparaciones de fontanería.
-k. Reparaciones eléctricas (sustitución de luninacrias, de tomacorrientes y de apagadores).
+k. Reparaciones eléctricas (sustitución de luminarias, de tomacorrientes y de apagadores); que no aumenten la carta eléctrica instalada.
 (Así adicionado el inciso anterior mediante sesión N° 03-11/12-G.E.de 22 de noviembre del 2011)
-(Así adicionado mediante acuerdo 21 de la sesión N° 02 del 24 de noviembre del 2009)
+(Así reformado el inciso k) anterior mediante sesión N° 13-12/13-GE del 19 de febrero del 2013)
 l.Remodelación de módulos o cubículos.
 (Así adicionado el inciso anterior mediante sesión N° 15-11/12-G.E.de 21 de febrero del 2012)
 m. Cambio de enchape y losa sanitaria en los baños o servicios sanitarios.
 (Así adicionado el inciso anterior mediante sesión N° 15-11/12-G.E.de 21 de febrero del 2012)
 n. Levantamiento de paredes livianas tipo muro seco, para conformar divisiones en oficinas.
 (Así adicionado el inciso anterior mediante sesión N° 15-11/12-G.E.de 21 de febrero del 2012)
-(Así adicionado mediante acuerdo 21 de la sesión N° 02 del 24 de noviembre del 2009).
+(Así adicionado mediante acuerdo 21 de la sesión N° 02 del 24 de noviembre del 2009)
