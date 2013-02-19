@@ -14,3 +14,4 @@ Implementa Procedimiento de Homologación de Terminales de Telecomunicaciones M�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-18 | la propia norma |
+| 2 | 2013-02-19 | SINALEVI (sin norma nombrada) |
