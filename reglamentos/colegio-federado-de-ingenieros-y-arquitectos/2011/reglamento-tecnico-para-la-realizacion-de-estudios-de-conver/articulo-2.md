@@ -1,0 +1,2 @@
+2º—Ámbito de acción. Este Reglamento se aplica a todos aquellos trabajos de consultoría en los cuales se modifica substancialmente, según lo establecido por la autoridad competente, un vehículo de transporte de carga por vías terrestres, excepto por tren. Todo según lo establecido en el Decreto Ejecutivo N° 31363-MOPT.
+El alcance de los estudios deberá ser acorde al tipo de modificación o conversión a realizar.
