@@ -1,1 +1,0 @@
-Artículo 9º—Criterio de representatividad. La Presidencia Ejecutiva determinará cuáles son las organizaciones laborales más representativas de los movimientos sindical, cooperativista y solidarista, aplicando por analogía el procedimiento establecido en el artículo 13 del Reglamento a la Ley Orgánica del INA.
