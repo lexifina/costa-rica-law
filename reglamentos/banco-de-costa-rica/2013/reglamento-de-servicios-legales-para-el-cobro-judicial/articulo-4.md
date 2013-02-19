@@ -1,0 +1,2 @@
+Artículo 4º—Rotación. Cada CSO establecerá un rol que se aplicará de manera rigurosa, garantizando la distribución ordenada y equitativa de los cobros judiciales de las operaciones de su zona y que se asignen a los abogados externos contratados por el Banco; salvo las excepciones establecidas en la Disposición Administrativa para la Ejecución de Garantías.
+El sistema de asignación de cobros judiciales deberá constar en registros físicos o electrónicos, seguros y verificables. El control y seguimiento de los casos será responsabilidad de cada CSO.
