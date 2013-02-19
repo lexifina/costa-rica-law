@@ -14,3 +14,4 @@ Reglamento del Comité Cantonal de la Persona Joven Orotina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-04 | la propia norma |
+| 2 | 2013-02-19 | Reglamento municipal 235 (2013-02-19) |
