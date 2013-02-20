@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. La finalidad de la misma es dar una orientación sobre el método a utilizar para las previsiones por incobrables sobre documentos y cuentas por cobrar en las instituciones que conforman el Sector público Costarricense.
