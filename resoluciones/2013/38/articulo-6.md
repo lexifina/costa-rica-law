@@ -1,0 +1,1 @@
+VI. Apercibir a los operadores y proveedores miembros del CTPN que se encuentran en la obligación de acatar los mandatos en materia de telecomunicaciones emitidos por parte de esta Superintendencia en el ejercicio de sus competencias, so pena de la imposición de las sanciones previstas en la Ley General de Telecomunicaciones.

@@ -1,0 +1,1 @@
+II. Acoger parcialmente el recurso interpuesto por el ICE, únicamente en el sentido de que el plazo de dos (2) meses para firmar los contratos empieza a regir a partir de la firmeza del acto de selección de la ERPN, la cual se adquiere con la presente resolución.
