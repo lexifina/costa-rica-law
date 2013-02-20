@@ -1,0 +1,17 @@
+SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
+R-SINAC-CONAC-19-2012.—El Consejo Nacional de Áreas de Conservación, de conformidad al Acuerdo Nº 18 de la Sesión Ordinaria Nº 05-2012 celebrada el día 28 de mayo de 2012, y en cumplimiento del artículo 12 del Reglamento a la Ley de Biodiversidad Nº 7788, Decreto Ejecutivo Nº 34433-MINAE, aprueba y emite la presente:
+OFICIALIZACIÓN DEL CORREDOR
+BIOLÓGICO RÍO NARANJO
+Resultando:
+1°—Que mediante Decreto Ejecutivo Nº 33106-MINAE, publicado en La Gaceta Nº 103 del día 30 de mayo de 2006 se crea el Programa Nacional de Corredores Biológicos: una Estrategia de Conservación de la Biodiversidad; el cual contará con un Plan Estratégico de largo plazo. Se implementará a través del Sistema Nacional de Áreas de Conservación (SINAC), el cual deberá otorgar sostenibilidad al Programa, incluyendo las actuaciones de éste en sus planes de acción y en su estructura funcional, administrativa y financiera.
+2°—Que mediante Decreto Ejecutivo Nº 34433-MINAE, publicado en La Gaceta Nº 68 del día 8 de abril del 2008, se establece en el artículo 3 inciso b), la definición de corredor biológico de manera oficial por primera vez para Costa Rica.
+3°—Que el artículo 22 de la Ley de Biodiversidad Nº 7788, publicada en La Gaceta Nº 101 del 27 de mayo de 1998 establece al Sistema Nacional de Áreas de Conservación, como una institución desconcentrada y participativa, con personería jurídica instrumental, que integra las competencias en materia forestal, vida silvestre y áreas silvestres protegidas, protección y conservación del uso de cuencas hidrográficas y sistemas hídricos, del Ministerio de Ambiente, Energía y Telecomunicaciones (MINAET), con el fin de dictar políticas, planificar y ejecutar procesos dirigidos a lograr la sostenibilidad en el manejo de los recursos naturales de Costa Rica.
+4°—Que mediante Resolución administrativa Nº R-SINAC-CONAC-013-2009 publicada en el Diario Oficial La Gaceta Nº 72 del 15 de abril del 2009, se establecen por primera vez, los Lineamientos para la Oficialización de Corredores Biológicos en Costa Rica.
+5°—Que la Resolución administrativa Nº R-SINAC-CONAC-028-2011 publicada en el Diario Oficial La Gaceta Nº 181 del 21 de setiembre del 2011, con base en el Acuerdo Nº 12 de la sesión ordinaria Nº 05-2011 del 30 de mayo del 2011 del CONAC acordó aprobar modificaciones a la resolución Nº R-SINAC-CONAC-013-2009.
+Considerando:
+Único.—Que de conformidad al artículo 12 inciso del Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433-MINAE publicado en La Gaceta Nº 68 del 08 de abril de 2008, el Consejo Nacional de Áreas de Conservación (CONAC), mediante Acuerdo Nº 18 de la sesión ordinaria Nº 05-2012 celebrada el día 28 de mayo de 2012 conoció el expediente administrativo del Corredor Biológico Río Naranjo, demostrándose el cumplimiento de los diferentes requisitos solicitados, así como del proceso requerido, para la oficialización la emisión de la presente resolución. Por tanto:
+EL SECRETARIO EJECUTIVO DEL CONSEJO
+NACIONAL DE ÁREAS DE CONSERVACIÓN, RESUELVE:
+Artículo 1°—Oficialización del Corredor Biológico Río Naranjo:
+1. Se oficializa el Corredor Biológico Río Naranjo, aprobado mediante Acuerdo Nº 18 de la Sesión Ordinaria Nº 05-2012 del CONAC celebrada el día 28 de mayo de 2012.
+2. El expediente específico para el Corredor Biológico Río Naranjo puede ser consultado en la oficina del Enlace Regional de Corredor Biológico del Área de Conservación Pacífico Central, así como en la Coordinación del PNCB.
