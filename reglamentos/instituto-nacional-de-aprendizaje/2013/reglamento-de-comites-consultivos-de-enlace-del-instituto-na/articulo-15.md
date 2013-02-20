@@ -1,0 +1,1 @@
+Artículo 15.—Actas. En cada sesión se levantará un acta, la cual contendrá las personas asistentes, las circunstancias de lugar y tiempo en que se realizó, los puntos principales de la deliberación, forma y resultado de la votación y el contenido de los acuerdos. Las actas serán firmadas por el presidente y por aquellos miembros que hubieren hecho constar su voto disidente.

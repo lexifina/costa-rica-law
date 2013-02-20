@@ -1,0 +1,5 @@
+CAPÍTULO III
+De los Comités Consultivos de Enlace Regionales
+Artículo 10.—Comités Regionales. Los CCE Regionales son órganos consultivos de las unidades regionales. Habrá al menos un Comité Regional en cada una de las regiones administrativas, integrado por representantes de las organizaciones empresariales, laborales y comunales de la respectiva Región, así como por representantes de las instituciones públicas atinentes y por la persona que ocupa la jefatura de la Unidad Regional y la persona Encargada del Proceso de Servicio al Usuario Regional.
+Cuando las circunstancias lo demanden y con el objeto de tener la más amplia cobertura, podrán establecerse Comités a Nivel Subregional, en las mismas condiciones que los denominados Regionales. En este caso será obligatoria la celebración de una reunión anual conjunta de todos los Comités de la Región, para su integración.
+Cuando la importancia de un tema lo requiera, el CCE Regional podrá solicitar formalmente la presencia del Gestor Regional.

@@ -1,0 +1,2 @@
+Artículo 24.—Normativa derogada. Se deroga el Reglamento Comités Consultivos de Enlace aprobado por la Junta Directiva del INA en sesión Nº 3834 del 22 de enero del 2001.
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 50 del 12 de marzo del 2013, página 63, anteriormente indicaba: "Artículo 24.—Normativa derogada. Se deroga el Reglamento Comités Consultivos de Enlace aprobado por la Junta Directiva del INA en sesión Nº 4330 de 3 de marzo 2008")
