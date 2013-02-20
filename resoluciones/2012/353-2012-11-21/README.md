@@ -14,3 +14,4 @@ Lineamientos para la definición de mercados relevantes, operadores importantes 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-11 | la propia norma |
+| 2 | 2013-02-20 | Resolución 83 (2013-02-20) |
