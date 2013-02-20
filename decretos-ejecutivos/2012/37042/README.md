@@ -32,3 +32,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 17 | 2013-01-28 | Decreto Ejecutivo 37547 (2013-01-28) |
 | 18 | 2013-02-05 | Decreto Ejecutivo 37555 (2013-02-05) |
 | 19 | 2013-02-20 | Decreto Ejecutivo 37558 (2013-02-20) |
+| 20 | 2013-02-20 | Decreto Ejecutivo 37578 (2013-02-20) |
