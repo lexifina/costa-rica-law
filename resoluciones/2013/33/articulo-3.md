@@ -1,0 +1,1 @@
+III. En aquellos casos que se indique en la factura el año modelo y el número VIN (Vehicle Identification Number o Número de Identificación del Vehículo) y su decodificación sea factible, debe coincidir en ambos casos el año modelo determinado.
