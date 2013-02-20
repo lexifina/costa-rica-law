@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. La finalidad de la misma es dar una orientación sobre el registro contable de los distintos activos contenidos en las contrataciones que se realizan bajo la modalidad de "llave en mano". En los caso en que se realice una contratación de un alquiler de edificio mediante el cual se adquieren activos considerar los establecido en la Directriz No CN-003-2010.
