@@ -1,0 +1,1 @@
+Artículo 18.—La publicidad que dará el archivo central será tanto a los funcionarios, como al público en general. Se realizara en la tercera semana del mes de julio de cada año, en la semana del Archivista Municipal denominada Calista Álvarez, para lo cual la Municipalidad deberá incluir en su presupuesto ordinario los recursos necesarios.
