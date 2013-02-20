@@ -1,0 +1,1 @@
+Artículo 4º—Los miembros asociados deberán ejercer la profesión únicamente en aquellos campos de las Ciencias Agropecuarias y Forestales que le acredite su orientación académica de acuerdo al plan de estudios de posgrado.

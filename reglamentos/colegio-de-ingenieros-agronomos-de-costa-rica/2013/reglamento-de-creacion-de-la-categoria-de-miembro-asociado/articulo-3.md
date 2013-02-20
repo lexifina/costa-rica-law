@@ -1,0 +1,1 @@
+Artículo 3º—Los miembros asociados tendrán iguales derechos y deberes que los otros miembros del Colegio, excepto en lo que se refiere al ejercicio profesional, para lo cual estarán sujetos a las regulaciones establecidas en este Reglamento.

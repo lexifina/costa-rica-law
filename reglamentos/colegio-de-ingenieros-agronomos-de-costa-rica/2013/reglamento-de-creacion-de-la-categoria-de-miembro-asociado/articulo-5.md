@@ -1,0 +1,7 @@
+Artículo 5º—Conforme a lo expresado en el artículo anterior, los miembros asociados no podrán realizar las siguientes funciones, salvo que alguna de ellas corresponda al campo específico de su posgrado:
+a. La planificación, dirección o supervisión de la investigación técnica en los campos agrícolas, pecuario, forestal y acuacultura.
+b. El ejercicio de puestos de dirección técnica en las instituciones de la administración pública en los campos relacionados con actividades agrícolas, pecuarias, forestales y acuacultura;
+c. El ejercicio de puestos de dirección técnica en las empresas del sector privado, que brinden servicios de generación y transferencia de tecnología e investigación agropecuaria, forestal, así como en acuacultura;
+d. El planeamiento, dirección, supervisión y evaluación de proyectos y programas técnicos regionales o nacionales en el campo agrícola, pecuario, forestal y acuacultura;
+e. La evaluación y determinación de usos de la tierra para fines agropecuarios, forestales y de acuacultura.
+f. El ejercicio de actividades profesionales que requieran aprobación previa de la Junta Directiva, tales como regencias agropecuarias o forestales; avalúos y peritajes; recetas para actividades de aviación agrícola; investigación con plaguicidas. No obstante la Junta Directiva podrá autorizarlos a ejercer dichas actividades profesionales, si demuestran a través de la presentación de atestados académicos y profesionales, conocimientos y experiencia suficientes en la actividad para la cual solicitan la autorización.

@@ -1,0 +1,1 @@
+Transitorio II.—Los profesionales indicados en el Transitorio I que se encuentren en los supuestos a. al d. del artículo 5 de este Reglamento, podrán continuar ejerciendo esas actividades, siempre y cuando sigan laborando para la misma institución, entidad o empresa para la cual prestan el servicio al momento de entrar en vigencia este Reglamento.

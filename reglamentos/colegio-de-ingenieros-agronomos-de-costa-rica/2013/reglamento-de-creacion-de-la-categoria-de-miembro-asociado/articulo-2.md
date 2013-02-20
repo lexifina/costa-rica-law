@@ -1,0 +1,1 @@
+Artículo 2º—Para incorporase al Colegio en la categoría de miembro asociado, el solicitante deberá cumplir los requisitos establecidos en el artículo 6 del Reglamento General de la Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica, Decreto Nº 22688-MAG-MIRENEM.
