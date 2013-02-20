@@ -4,6 +4,7 @@ Administración de Servicios de Salud.
 Audiología.
 Homeopatía.
 Imagenología Diagnóstica y Terapéutica.
+Estimulación Temprana (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-02-20 del 20 de febrero del 2013)
 Fonoaudilogía.
 Kinesiología.
 Recreación Física y Mental.

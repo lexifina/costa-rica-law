@@ -14,3 +14,4 @@ Normativa para la autorización en maestrías para el capítulo de profesionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-24 | la propia norma |
+| 2 | 2013-02-20 | Acuerdo 0 (2013-02-20) |
