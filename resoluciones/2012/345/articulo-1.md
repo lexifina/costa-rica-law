@@ -1,0 +1,75 @@
+DIRECCION GENERAL DE ADUANAS
+Res-DGA-345-2012.—San José, a las once horas del dieciocho de octubre de dos mil doce.
+Considerando:
+1º—Que el artículo 11 de la Ley General de Aduanas, sus reformas y modificaciones vigentes, dispone que “La Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera. En el uso de esta competencia, le corresponde la dirección técnica y administrativa de las funciones aduaneras que esta ley y las demás disposiciones del ramo le conceden al Servicio Nacional de Aduanas; la emisión de políticas y directrices para las actividades de las aduanas y dependencias a su cargo; el ejercicio de las atribuciones aduaneras y la decisión de las impugnaciones interpuestas ante ella por los administrados”.
+2º—Que el artículo 6 de la Ley General de Aduanas, punto b) establece entre los fines del régimen jurídico aduanero “Facilitar y agilizar las operaciones de comercio exterior”, por ende la Dirección General de Aduanas, tiene entre sus prioridades la facilitación de los trámites de los servicios aduaneros, a través de la dotación al Sistema Aduanero Nacional de procedimientos ágiles y oportunos maximizando el uso de la tecnología.
+3º—Que el artículo 4 de la Ley General de la Administración Pública Nº 6227 de 02 de mayo de 1978, establece “La actividad de los entes públicos deberá estar sujeta en su conjunto a los principios fundamentales del servicio público, para asegurar su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios”.
+4º—Que el artículo 6 del Reglamento a la Ley General de Aduanas, Decreto Nº 25270-H de 14 de junio de 1996, sus reformas y modificaciones vigentes, establece que “Es competencia de la Dirección General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas”.
+5º—Que el artículo 7 del Reglamento a la Ley General de Aduanas, en su numeral b) dispone que entre las funciones de la Dirección General de Aduanas está la de “Organizar y dirigir la función de las diferentes dependencias del Servicio, comunicando las políticas, directrices y demás disposiciones que se deben seguir y vigilar para su cumplimiento”.
+6º—Que el artículo 18 bis del Reglamento a la Ley General de Aduanas, entre las funciones de la Dirección de Gestión Técnica establece, entre otras las siguientes:
+“c. Proponer al Director General los lineamientos técnicos concernientes a la clasificación arancelaria, origen y procedencia de las mercancías”.
+“f. Brindar apoyo técnico a las dependencias del Servicio Nacional de Aduanas, entidades públicas o privadas y coordinar las acciones correspondientes en materia de su competencia”.
+7º—Que según el artículo 21 del Reglamento a la Ley General de Aduanas “Al Departamento de Técnica Aduanera le compete la definición de los asuntos relacionados con la emisión de los lineamientos en materia de clasificación arancelaria y origen de las mercancías. Le compete la implementación y cumplimiento de convenios internacionales, así como mantener actualizado el arancel, facilitando la transmisión de conocimiento en dichas áreas…”.
+8º—Que el artículo 21 bis, literal b., del Reglamento a la Ley General de Aduanas, encarga al Departamento de Técnica Aduanera de la Dirección de Gestión Técnica entre otras funciones, las siguientes:
+“a. Preparar directrices para la correcta aplicación e interpretación de las normas vigentes en materia de clasificación arancelaria y origen de las mercancías, incluyendo el correcto cálculo de la obligación tributaria, con el objetivo de establecer criterios uniformes.
+b. Emitir criterios técnicos en materia de clasificación arancelaria, origen de las mercancías e información arancelaria, en atención de consultas que efectúen las dependencias del Servicio Nacional de Aduanas, auxiliares o terceros.
+c. Realizar estudios merceológicos a fin de uniformar el criterio sobre clasificación arancelaria y emitir las directrices respectivas”.
+9º—Que con la Ley 7346 de 07 de junio de 1993, se adopta el “Sistema Arancelario Centroamericano” (SAC), basado en la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías (Sistema Armonizado S. A.), auspiciado por el Consejo de Cooperación Aduanera, el cual constituye la clasificación arancelaria de las mercancías de importación y exportación a nivel centroamericano y nacional.
+10.—Que el Departamento Técnica Aduanera de la Dirección de Gestión Técnica ha detectado la existencia de discrepancias en los criterios de clasificación arancelaria de las mercancías denominadas “Neumáticos (Llantas neumáticas), de caucho”, lo anterior en razón del uso de las mismas, debiendo entonces proceder a la revisión de los criterios emitidos y a dictar pronunciamiento al respecto.
+11.—Que del estudio realizado se determinó que los fabricantes de las llantas neumáticas definen o identifican el uso al que están destinadas, ya sea en vehículos automóviles, camionetas, camiones y autobuses, con la información gravada en las paredes laterales del neumático o llanta, que corresponde en la mayoría de los casos a las características técnicas reconocidas internacionalmente. Por medio de esa información anotada en relieve en las paredes laterales externas de la llanta, se identifican las características generales tales como marca, modelo, país de fabricación, el código o número de identificación del neumático o llanta, también llamado sistema métrico, el tamaño, perfil, tipo de neumático o llanta, el índice o código de carga y el índice de velocidad. Siendo que además para el caso de las llantas fabricadas para el mercado norteamericano es exigido que tengan la identificación DOT, que corresponde a la fecha de construcción.
+12.—Que la clasificación arancelaria de los neumáticos o llantas, en apego a las normas que rigen la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías, clasifican en la partida 40.11 de acuerdo a la estructura que se describe a continuación:
+4011 NEUMÁTICOS (LLANTAS NEUMÁTICAS) NUEVOS DE CAUCHO
+4011.10- De los tipos utilizados en automóviles de turismo (incluidos los del tipo familiar (“break” o “station wagon”) y los de carreras).
+4011.20- De los tipos utilizados en autobuses o camiones.
+4011.30- De los tipos utilizados en aeronaves
+4011.40- De los tipos utilizados en motocicletas
+4011.50- De los tipos utilizados en bicicletas
+4011.6- Los demás, con altos relieves en forma de taco, ángulo o similares:
+4011.9- Los demás:
+13.—Que según las normas internacionales, los neumáticos o llantas, en la mayoría de los casos vienen dotados de una serie de inscripciones grabadas en el propio material constructivo, que definen gran parte de sus características. Además de la marca del fabricante, el modelo y el país de fabricación, en general vienen provistos de varias inscripciones en su pared lateral como se ilustra a continuación:
+[imagen]
+FUENTE: página web: http://www.neumaticosmedica.com.ar/imagenes/catalogo _productos
+Dentro de las citadas características, se encuentra el código o número de identificación del neumático o llanta, también llamado sistema métrico o numérico, que en la imagen insertada, de acuerdo con el diagrama impreso, sería P215 / 65 R15 89H:
+Donde:
+1. La letra P significa pasajero, es un neumático o llanta de automóvil de turismo. Además, tenemos las letras LT que significa Ligth Truck y las podemos encontrar en neumáticos o llantas para vehículos de carga ligero; asimismo si observamos la tabla A) se encuentran otras letras de significado de diseño que identifican otros tipos de neumáticos o llantas, establecidos en vehículos para transporte de mercancías y autobuses.
+2. 215 es el ancho del neumático expresado en milímetros, se mide con la presión máxima de inflado y sin carga alguna.
+3. 65 indica que la altura del neumático es el 65% de la anchura.
+4. R significa neumático radial. Si en lugar de la R, la marca fuese una B (no es radial) significa que el neumático está construido con capas circulares, y si fuese una D (no es radial) significa que el neumático es de construcción diagonal.
+5. 15 es el diámetro de la llanta expresado en pulgadas.
+6. 89H está compuesto por el número o índice de carga (89) y la letra H es el índice de velocidad, en conjunto indica: una carga máxima de 580 (89) kg y velocidad máxima de 210 km/h (H). Este índice se puede consultar en las tablas B y C).
+- El índice de carga es un número que se asocia a la capacidad de carga máxima en Kg, que el neumático o llanta puede soportar a su presión máxima de inflado en frío.
+- El índice de velocidad se representa mediante una letra mayúscula e indica la velocidad máxima que un neumático o llanta, inflado a la presión máxima recomendada, puede transportar la carga correspondiente a su índice de carga bajo condiciones de servicio específicas, sin sufrir daño en su estructura.
+Además de lo anterior se aclara que algunos neumáticos diseñados para barro y nieve (mud and snow) llevan la marca M+S o M&S (indica que el neumático o llanta cumple con las exigencias requeridas por la National Highway Association para superficies de lodo y nieve); igualmente, los neumáticos o llantas sin cámara de aire normalmente tienen grabado Tubeless (sin cámara) y los que tienen cámara de aire normalmente tiene grabado Tubetype (con cámara).
+A efectos de contar con mayores elementos para determinar las características físicas de los neumáticos o llantas, se incluyen las tablas siguientes, en donde se visualizan las variables por medio de las cuales se puede definir el significado de: diseño, índice de carga y velocidad, representados en el código o número de identificación del neumático o llanta, también llamado sistema métrico o numérico:
+A) Significado del diseño del neumático o llanta
+[imagen]
+FUENTE: página web: http://www.dip-badajoz.es/ciudadanos/prl/documentos/ cod_vel_neumaticos.pdf
+- Significado de diseño para llantas o neumáticos utilizadas en otras áreas o regiones, para usos especiales y/o en actividades como la agricultura, construcción, obras públicas y similares.
+[imagen]
+FUENTE: página web: http://www.dip-badajoz.es/ciudadanos/prl/documentos /cod_vel_neumaticos.pdf
+- Llantas para aplicaciones especiales (Nomenclatura AG).
+[imagen]
+FUENTE: página web: http://www.dip-badajoz.es/ciudadanos/prl/documentos /cod_vel_neumaticos.pdf
+B) Tabla de índice o número de carga en kilos
+[imagen]
+FUENTE: página web: http://www.dip-badajoz.es/ciudadanos/prl/documentos /cod_vel_neumaticos.pdf
+C) Índices de velocidad en Km/hora y cantidad de capas, grabados en los neumáticos o llantas.
+[imagen]
+FUENTE: página web: http://www.dip-badajoz.es/ciudadanos/prl/ documentos/cod_vel_ neumaticos.pdf
+Por tanto:
+Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones otorgadas en el Código Aduanero Uniforme Centroamericano, en la Ley General de Aduanas número 7557 de fecha 20 de octubre de 1995, sus reformas y modificaciones vigentes y en el Reglamento a la Ley General de Aduanas Decreto Ejecutivo número 25270-H de fecha 14 de junio de 1996, sus reformas y modificaciones vigentes.
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+1º—Que a efectos aclaratorios se emite Criterio Vinculante de Clasificación Arancelaria para la mercancía denominada comercialmente neumáticos o llantas:
+Los neumáticos o llantas se clasificaran con base en el código o número de identificación, también llamado sistema métrico o numérico, indicado según la imagen presente en el considerando XIII, de acuerdo con el diagrama grabado en la pared del neumático o llanta y haciendo uso de las definiciones y tablas enunciadas en ese considerando, según se indica a continuación:
+a) Los neumáticos o llantas, que en el código o número de identificación, tengan como significado de diseño la letra P (pasajero), independientemente del índice o número de carga, por sus características son llantas de los tipos utilizados en vehículos automóviles de turismo (incluidos los del tipo familiar (“break” o “station wagon”) y los de carreras) y deben clasificarse arancelariamente en la subpartida:
+4011.10-“De los tipos utilizados en automóviles de turismo (incluidos los del tipo familiar (“break” o “station wagon”) y los de carreras)”.
+En caso de neumáticos o llantas, que en el código o número de identificación no tengan significado de diseño y presenten un índice o número de carga 96 (710 Kg) o menor, por lo general hasta número de carga 70 (335 Kg), por sus características de uso son neumáticos o llantas de los tipos utilizados en vehículos automóviles de turismo (incluidos los del tipo familiar (“break” o “station wagon”) y los de carreras) de los citados en el párrafo anterior, por lo que clasifican arancelariamente en la subpartida citada.
+b) Los neumáticos o llantas, que en el código o número de identificación, también llamado sistema métrico o numérico, tengan como significado de diseño, alguna de las siguientes letras o grupos de letras descrito en la primera columna de la siguiente tabla:
+[imagen]
+FUENTE: Datos según traducción
+Clasifican arancelariamente como neumáticos o llantas de los tipos utilizados en autobuses o camiones y deben clasificarse en la subpartida:
+4011.20-De los tipos utilizados en autobuses o camiones.
+En caso de que los neumáticos o llantas no presenten significado de diseño como los descritos en la primera columna de la tabla citada y que presenten gravado en la pared un índice o número de carga comprendido entre 97 (730 Kg) y 160 (1120 kg) (véase índice o número de carga en tabla B), por sus características especiales son llantas de los tipos utilizados en autobuses o camiones. Si además dentro del código de identificación tiene la letra R significa neumático radial o si se indica textualmente que el neumático o llanta es radial (RADIAL), deben clasificarse en el inciso arancelario 4011.20.10 -- Radiales. Si la llanta o neumático en lugar de la letra R, tuviere una B significa que el neumático no es radial y está construido con capas circulares, y si fuese una D el neumático no es radial y sería de construcción diagonal, siendo que en estos casos se deben clasificar en el inciso arancelario 4011.20.90-Otros.
+c) Las llantas o neumáticos con altos relieves en forma de taco, ángulo o similares, usadas en máquinas agrícolas, para la construcción o en mantenimiento industrial, clasifican arancelariamente en la subpartida:
+4011.6 - Los demás, con altos relieves en forma de taco, ángulo o similares.
+d) Las demás llantas o neumáticos, no descritos en los literales anteriores, tales como las utilizadas en maquinaria agrícola o forestal, en construcción u otros usos (que no sean de alto relieve) sino rellenas, lisas, de flotación u otras figuras, clasifican arancelariamente en la subpartida: 4011.9 - Los demás.
