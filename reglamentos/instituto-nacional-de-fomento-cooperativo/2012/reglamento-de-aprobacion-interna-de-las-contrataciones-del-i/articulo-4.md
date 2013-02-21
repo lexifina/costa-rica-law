@@ -1,0 +1,1 @@
+Artículo 4º—Eficacia contractual. La aprobación interna por parte de la Asesoría Jurídica otorga al documento contractual que se trate, la eficacia necesaria para surtir efectos jurídicos. De manera tal, que toda contratación o modificación a ésta, no podrá ser ejecutada hasta tanto no cuente con la aprobación interna.
