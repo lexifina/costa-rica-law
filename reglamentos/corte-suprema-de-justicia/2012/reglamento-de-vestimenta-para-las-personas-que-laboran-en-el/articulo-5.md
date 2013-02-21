@@ -1,0 +1,1 @@
+Artículo 5º—Vestimenta requerida para actos solemnes. Para los actos solemnes (juramentaciones, inauguraciones y otros actos oficiales) la vestimenta debe ser formal y sujeta a las indicaciones de la Oficina de Protocolo y Relaciones Públicas.
