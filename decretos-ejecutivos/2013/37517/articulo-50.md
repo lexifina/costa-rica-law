@@ -1,0 +1,1 @@
+Artículo 50.—En caso de un eventual empate, se llevará a cabo una segunda votación únicamente entre aquellas candidaturas que resultaron empatadas, excluyendo de la segunda ronda de votación a todas aquellas candidaturas que obtuvieron menor cantidad de votos en relación con las que resultaron empatadas.

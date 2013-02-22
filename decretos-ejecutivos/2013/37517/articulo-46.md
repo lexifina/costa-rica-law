@@ -1,0 +1,1 @@
+Artículo 46.—Como mínimo se deberá presentar un candidato de cada disciplina a cada una de las plazas del Tribunal de Ética, sin límite máximo. La votación se llevará a cabo con los candidatos propuestos en cada disciplina que cumplan con los requisitos establecidos.

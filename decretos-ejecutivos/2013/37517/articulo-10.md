@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros de la Junta Directiva, del Tribunal de Ética y el Fiscal fueron elegidos por medio de acuerdo tomado en la primera Asamblea General convocada al efecto, e iniciaron funciones a partir del 08 de enero de 2012, de conformidad con el Transitorio I de la Ley.

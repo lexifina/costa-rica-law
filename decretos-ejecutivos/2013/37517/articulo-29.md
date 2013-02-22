@@ -1,0 +1,1 @@
+Artículo 29.—El Presidente del Tribunal de Elecciones abrirá un espacio para la inscripción de papeletas. Las candidaturas serán por papeleta completa, es decir, cada candidatura o papeleta se entenderá integrada por todos los puestos a elegir.

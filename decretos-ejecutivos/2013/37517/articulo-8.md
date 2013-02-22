@@ -1,0 +1,1 @@
+Artículo 8º—La primera Asamblea General se llevó a cabo el día 9 de noviembre de 2011, en la que se eligió los miembros que integran la Junta Directiva del Colegio, el Tribunal de Ética, Tribunal de elecciones y el Fiscal, de conformidad con lo que al efecto disponen los Artículos 16°, 17° y 18° y los Transitorios I y II de la Ley.

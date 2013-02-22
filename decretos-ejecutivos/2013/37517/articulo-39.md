@@ -1,0 +1,1 @@
+Artículo 39.—Ningún miembro proponente podrá presentarse asimismo como candidato a ocupar el puesto de Fiscal. De igual forma, todo proponente sólo podrá proponer un candidato a ocupar el cargo de Fiscal.

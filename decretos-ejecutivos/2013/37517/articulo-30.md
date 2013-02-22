@@ -1,0 +1,1 @@
+Artículo 30.—Cada papeleta deberá indicar el nombre del candidato individual a ocupar cada cargo del Directorio de la Junta Directiva, siendo requisito indispensable que cada uno de los candidatos individuales que conforman la papeleta constituyan miembros del Colegio acreditados como tales.

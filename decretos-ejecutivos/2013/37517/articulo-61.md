@@ -1,0 +1,1 @@
+Artículo 61.—El Terapeuta que desee ejercer la profesión en Costa Rica, en virtud de tratados internacionales, para obtener la correspondiente autorización, deberá cumplir las disposiciones de la Ley y cumplir los requisitos que establecen en el presente Reglamento.

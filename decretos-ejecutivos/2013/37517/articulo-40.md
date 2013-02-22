@@ -1,0 +1,1 @@
+Artículo 40.—Una vez propuestos los candidatos a ocupar el cargo de Fiscal, se procederá a efectuar una votación en Asamblea General. Únicamente podrán ejercer su voto todos aquellos miembros que se hallen presentes en la Asamblea General del Colegio de Terapeutas y que hayan sido debidamente acreditados según el padrón electoral del Colegio de Terapeutas.

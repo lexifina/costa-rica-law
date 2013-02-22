@@ -1,0 +1,1 @@
+Artículo 55.—Son miembros inscritos del Colegio, todos los miembros fundadores que se inscriban según lo que establece la Ley y los miembros que en el futuro se inscriban como tales conforme a las disposiciones que para tales efectos establezca la Junta Directiva del Colegio.

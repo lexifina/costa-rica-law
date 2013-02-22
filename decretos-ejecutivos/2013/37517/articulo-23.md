@@ -1,0 +1,1 @@
+Artículo 23.—Cada persona ejercerá su voto una sola vez, anotando en una papeleta que le otorgará el Tribunal de Elecciones, los nombres de los tres candidatos de su elección a integrar el Tribunal de Elecciones y depositarlo en las urnas dispuestas con ese fin.

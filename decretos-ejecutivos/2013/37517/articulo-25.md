@@ -1,0 +1,1 @@
+Artículo 25.—Concluido el proceso, se anunciará los nombres de los miembros que integrarán el Tribunal de Elecciones, de las elecciones del Colegio y se consignará en el acta de la Asamblea General, posteriormente se declarará un breve receso para que los integrantes del Tribunal definan, de común acuerdo, quien de los tres fungirá como Presidente del Tribunal de Elecciones.

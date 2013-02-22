@@ -1,0 +1,1 @@
+Artículo 11.—Los períodos en el ejercicio de sus cargos de los miembros de la primera Junta Directiva, del Tribunal de Ética y el Fiscal del Colegio se adecuarán proporcionalmente a lo establecido en el Artículo 19° de la Ley, relativo a la forma y los períodos de elección de cada uno de los miembros de la Junta Directiva del Colegio.

@@ -1,0 +1,1 @@
+Artículo 20.—La Asamblea General podrá aprobar y promulgar su propio Código de Ética del Colegio de Terapeutas, previo acuerdo de sus miembros con una votación de la mayoría simple debidamente inscritos.

@@ -1,0 +1,1 @@
+Artículo 65.—Únicamente los Terapeutas inscritos y con la cuota de colegiatura al día tienen derecho a asistir a la Asamblea General y a elegir y ser electos en cargos de la Junta Directiva, a formar parte de los Tribunales, Comisiones, Delegaciones, o cualquiera otra actividad del Colegio.

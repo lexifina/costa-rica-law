@@ -1,0 +1,1 @@
+Artículo 66.—Todo miembro inscrito en el Colegio para asumir funciones como miembro de la Junta Directiva, Tribunales, Comisiones, Delegaciones o cualquier otra actividad, deberá prestar juramento ante la Junta Directiva.

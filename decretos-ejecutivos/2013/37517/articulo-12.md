@@ -1,0 +1,1 @@
+Artículo 12.—El Presidente, el Tesorero, el Prosecretario y el Vocal I fueron elegidos en la Primera Asamblea General. Las elecciones siguientes para estos cargos se llevarán a cabo en los años pares, correspondiendo la siguiente elección en el año 2014, por lo que su primer período se extenderá hasta el 08 de enero de 2015.

@@ -1,0 +1,1 @@
+Artículo 48.—Una vez expuesto y anunciado el procedimiento a seguir, el Presidente del Tribunal de Elecciones abrirá el espacio para votación en Asamblea General. Únicamente podrán ejercer su voto todas aquellas personas que se hallen presentes en la Asamblea General del Colegio de Terapeutas y que hayan sido acreditadas formalmente como miembros.

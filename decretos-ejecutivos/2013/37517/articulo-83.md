@@ -1,0 +1,1 @@
+Artículo 83.—Los recursos de revocatoria y de apelación deberán ser interpuestos dentro de los plazos que al efecto establece la Ley General de la Administración Pública. En caso de que no se presente personalmente deberán ser autenticados por abogado.

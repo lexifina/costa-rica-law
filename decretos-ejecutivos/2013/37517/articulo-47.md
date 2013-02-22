@@ -1,0 +1,1 @@
+Artículo 47.—Una vez cerrado el espacio para la proposición de candidatos, el Presidente del Tribunal procederá a identificar los candidatos a ocupar cada una de las plazas del Tribunal de Ética, y a cerciorarse de que todos los miembros, y únicamente éstos, cuenten con el material electoral que se distribuirá al efecto.

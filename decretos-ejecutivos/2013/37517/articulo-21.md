@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del proceso de elección del Tribunal de Elecciones
+Artículo 21.—El Tribunal de Elecciones estará constituido por tres miembros, los cuales deben ser elegidos por la Asamblea General. Para la elección de los integrantes del Tribunal de Elecciones, se abrirá un espacio para que cualquier miembro proponga un candidato para integrar dicho Tribunal, el cual deberá ser secundado por un segundo miembro para ser aceptado como candidato. Deberán proponerse como mínimo tres candidatos diferentes, con la única limitación de que ningún proponente podrá presentarse asimismo como candidato a integrar el Tribunal de Elecciones. De igual forma, todo proponente sólo podrá proponer un candidato a integrar el Tribunal de Elecciones, como máximo.

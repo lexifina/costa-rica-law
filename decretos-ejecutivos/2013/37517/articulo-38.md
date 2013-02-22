@@ -1,0 +1,1 @@
+Artículo 38.—El Presidente del Tribunal de Elecciones abrirá un espacio para que cualquier miembro proponga un candidato al puesto de Fiscal. Deberá proponerse como mínimo un candidato a Fiscal, el cual deberá ser secundado por un segundo miembro para ser aceptado como candidato por parte del Tribunal de Elecciones.

@@ -1,0 +1,1 @@
+Artículo 63.—Los miembros del Colegio podrán realizar cualquier trabajo que la Asamblea o la Junta les encomiende, siempre que estos estén de acuerdo a realizarlo para lo cual se nombraran comisiones en Asamblea General o mediante la Junta Directiva pero quienes se incorporen a estas comisiones deberán dejar consignado su aceptación.

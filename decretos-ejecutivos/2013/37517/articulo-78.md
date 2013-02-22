@@ -1,0 +1,1 @@
+Artículo 78.—De la remoción por inasistencia. La persona integrante de la Junta Directiva que sin justificación deje de asistir a seis sesiones ordinarias consecutivas o diez alternas, perderá su cargo. La respectiva vacancia será suplida por el resto del período por la Asamblea General convocada al efecto.

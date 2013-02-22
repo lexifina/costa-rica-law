@@ -1,0 +1,1 @@
+Artículo 22.—Una vez propuestos los candidatos a integrar el Tribunal de Elecciones, se procederá a efectuar una votación en Asamblea General. Únicamente podrán ejercer su voto todas aquellas personas que se hallen presentes en la Asamblea General del Colegio de Terapeutas y que hayan sido acreditadas formalmente como miembros en el padrón del Colegio.

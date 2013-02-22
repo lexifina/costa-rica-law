@@ -1,0 +1,1 @@
+Artículo 53.—El Tribunal de Elecciones publicará en un Diario de Circulación Nacional los miembros electos en Junta Directiva, Tribunal de Ética, y Fiscal del Colegio de Terapeutas. Dicha publicación deberá hacerse antes de entrar en funciones los miembros electos.

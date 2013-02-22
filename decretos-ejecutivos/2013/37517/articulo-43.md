@@ -1,0 +1,1 @@
+Artículo 43.—Para la elección de los miembros del Tribunal de Ética del Colegio, el Presidente del Tribunal de Elecciones procederá a dar lectura del procedimiento a seguir, según se establece en los siguientes artículos del presente reglamento.
