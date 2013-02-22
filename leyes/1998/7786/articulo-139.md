@@ -1,4 +1,5 @@
 SECCIÓN XI
 Unidad de Administración de Bienes Decomisados y Comisados
-Artículo 139.—La Unidad de Administración de Bienes Decomisados y Comisados dará seguimiento a los bienes de interés económico comisados, provenientes de los delitos descritos en esta Ley; además, velará por la correcta administración y utilización de los bienes decomisados y será responsable de subastar o donar los bienes comisados.
-La estructura técnica y administrativa de la Unidad de Administración de Bienes Decomisados y Comisados se dispondrá reglamentariamente.
+Artículo 139.—La Unidad de Recuperación de Activos (URA) del Instituto Costarricense Sobre Drogas(*) dará seguimiento a los bienes de interés económico comisados, provenientes de los delitos descritos en esta Ley; además, velará por la correcta administración y utilización de los bienes decomisados y será responsable de subastar o donar los bienes comisados.
+La estructura técnica y administrativa de la Unidad de Recuperación de Activos (URA) del Instituto Costarricense Sobre Drogas(*) se dispondrá reglamentariamente.
+(*) (Nota de Sinalevi: De conformidad con el artículo 1° de la ley N° 9074 del 20 de setiembre de 2012, se ordena adicionar a la presente norma un transitorio I, por lo que se establece que a partir de la vigencia de esta ley, cualquier normativa que se refiera a la Unidad de Administración de Bienes Decomisados y Comisados (UAB) debe entenderse sustituida por Unidad de Recuperación de Activos (URA) del Instituto Costarricense Sobre Drogas.")

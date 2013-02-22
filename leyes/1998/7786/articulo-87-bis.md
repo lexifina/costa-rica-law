@@ -1,0 +1,3 @@
+Artículo 87 bis.- Decretado el comiso de vehículos o de aeronaves, se extinguirán todas las obligaciones económicas derivadas de la imposición de multas, anotaciones que consten en el Registro Público que se encuentren prescritas y sanciones por infracciones a las normas de tránsito. Asimismo, quedarán exentos del pago del derecho de circulación hasta que se defina su destino.
+Ordenado el comiso de bienes inmuebles, estos quedarán exentos del pago de todo tipo de impuestos, cánones, tasas, cargas, tanto municipales como territoriales, y de cualquier otra forma de contribución, hasta que se defina su destino.
+(Así adicionado por el artículo único de la ley N° 9074 del 20 de setiembre de 2012)
