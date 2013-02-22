@@ -1,3 +1,5 @@
 CAPÍTULO II
 Disposiciones Transitorias
 Transitorio I.—Los funcionarios del Centro Nacional de Prevención contra Drogas, los del Centro de Inteligencia Conjunto Antidrogas y los del Área de Precursores del Ministerio de Salud, pasarán a formar parte del Instituto Costarricense sobre Drogas y conservarán los derechos laborales adquiridos. Una vez que el Instituto entre en funciones, el Consejo Directivo deberá iniciar un proceso de reestructuración de las clases ocupacionales, con el fin de equiparar los derechos de todos los funcionarios.
+(Nota de Sinalevi: De conformidad con el artículo 1° de la ley N° 9074 del 20 de setiembre de 2012, se ordena adicionar a la presente norma un transitorio I, por lo que el mismo se transcribe a continuación:
+TRANSITORIO I.- A partir de la vigencia de esta ley, cualquier normativa que se refiera a la Unidad de Administración de Bienes Decomisados y Comisados (UAB) debe entenderse sustituida por Unidad de Recuperación de Activos (URA) del Instituto Costarricense Sobre Drogas.")
