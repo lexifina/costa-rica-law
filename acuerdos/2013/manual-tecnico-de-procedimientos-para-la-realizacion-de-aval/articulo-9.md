@@ -1,0 +1,9 @@
+9. CAPITULO VI: NORMAS A UTILIZAR
+Toda valoración debe enmarcarse dentro de las Normas Internacionales de Valuación publicada por el Comité Internacional de Valoración y del artículo 22 de la Ley de Expropiaciones.
+La preparación del informe escrito es un aspecto esencial de la tasación, por cuanto de nada sirve hacer una buena inspección de campo y una buena investigación de valores si lo que se plasma en el documento carece de elementos técnicos y justificantes de la apreciación: es decir, este Informe debe incluir todos los aspectos valorizantes y desvalorizantes, tanto de la zona como del inmueble en sí.
+Debe ser redactado en una forma muy descriptiva, por cuanto va dirigido a funcionarios o personas que no conocen de tasación, de tal manera que su simple lectura presente una idea cabal de lo que se está valorando. Por minuciosa que haya sido la labor de campo, perderá importancia si el perito no alcanza a transmitir sus impresiones y juicios en un informe pericial exacto, lógico y convincente.
+La extensión y las características del informe dependerán, naturalmente, de la clase e importancia de la propiedad a justipreciar.
+Los propietarios afectados tienen el derecho a recibir una explicación razonable acerca de los datos considerados y de la manera en que han sido estudiados por el tasador.
+Al formular el informe, el perito debe ser conciso y lógico, evitando aspectos sin importancia y situaciones contradictorias, pero sin convertirse en fuente de retórica.
+Para no salirse del tema con largas digresiones, se establecerá una subdivisión lógica del asunto, presentando únicamente los datos de importancia en forma lacónica; su sintaxis debe ser correcta y conviene evitar palabras que él quizás entienda pero su lector tal vez no.
+Al utilizar cifras, debe acatarse lo mencionado en la Ley No 5292 "Uso Exigido Sistema Internacional Unidades Medida "SI" Métrico Decimal".
