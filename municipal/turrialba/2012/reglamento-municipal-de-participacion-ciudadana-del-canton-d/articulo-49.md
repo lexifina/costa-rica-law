@@ -1,0 +1,2 @@
+Artículo 49.—En los nueve meses posteriores a la aprobación del presente reglamento, las organizaciones cantonales y distritales de deportes, cultura y recreativas, deberán comunicar a la Comisión Municipal de Participación Ciudadana las reformas tomadas en su reglamentación, o lo que corresponda, en lo referente a garantizar el derecho a la participación de los ciudadanos y las ciudadanas en sus actividades.
+Lo anterior debe ser comunicado para lo que corresponda al Concejo Municipal.
