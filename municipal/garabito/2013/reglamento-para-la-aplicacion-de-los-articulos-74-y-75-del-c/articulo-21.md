@@ -1,0 +1,1 @@
+Artículo 21.—Cualquier disposición omisa se interpretará aplicando los Principios Generales del Derecho Administrativo, expresados en la normativa municipal y en la Ley General de la Administración Pública.
