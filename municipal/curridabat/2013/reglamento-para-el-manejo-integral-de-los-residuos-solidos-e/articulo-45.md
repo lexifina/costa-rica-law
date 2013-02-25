@@ -1,0 +1,1 @@
+Artículo 45.—El cobro se realizará por medio de categorías que incluye a todas las unidades habitacionales, patentados y entes de carácter público o privado. Estas categorías se establecerán en proporción a la cantidad de residuos sólidos generados.

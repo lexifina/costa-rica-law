@@ -1,0 +1,1 @@
+Artículo 26.—En la solicitud de permisos de construcción y/o remodelación que se realiza ante la Dirección de Control Urbano, a fin de ser revisados y aprobados, se deben indicar claramente las especificaciones de tamaño y ubicación de los contenedores de residuos sólidos.

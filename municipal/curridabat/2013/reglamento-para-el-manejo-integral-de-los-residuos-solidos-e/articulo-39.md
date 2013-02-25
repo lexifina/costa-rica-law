@@ -1,0 +1,1 @@
+Artículo 39.—La Municipalidad facilitará procesos de capacitación para el personal de las empresas mencionadas en el artículo anterior de otros interesados en el Manejo discriminado de los residuos sólidos.
