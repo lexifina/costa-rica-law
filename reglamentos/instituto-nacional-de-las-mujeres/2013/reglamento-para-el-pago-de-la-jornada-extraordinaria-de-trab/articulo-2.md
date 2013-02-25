@@ -1,0 +1,1 @@
+Artículo 2º—Marco legal. El presente reglamento se fundamenta en los artículos 58 y 188 de la Constitución Política, los preceptos legales contemplados en el Código de Trabajo, la Convención Colectiva, el Reglamento Autónomo de Servicios del INAMU y los Lineamientos y Directrices de Política Salarial y Empleo que emite la Autoridad Presupuestaria.

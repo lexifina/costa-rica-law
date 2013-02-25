@@ -1,0 +1,1 @@
+Artículo 16.—De la conversión del pago. El valor efectivo de una hora ordinaria de trabajo es el que resulta de la división del salario mensual ordinario, entre el número de horas que establezca por mes el respectivo contrato de trabajo.

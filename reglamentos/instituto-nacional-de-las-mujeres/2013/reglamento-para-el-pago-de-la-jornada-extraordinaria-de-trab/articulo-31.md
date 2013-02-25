@@ -1,0 +1,5 @@
+Artículo 31.—Del Área Financiero Contable. En el ámbito de aplicación de este Reglamento, son responsabilidades del Área Financiero Contable:
+a. Incluir en el Proyecto Presupuestario o Presupuesto Ordinario y Modificaciones al Presupuesto de la Institución, los recursos estimados para el pago de tiempo extraordinario solicitados por el Área de Recursos Humanos para los Programas Administrativo y Técnico.
+b. Realizar en el plazo establecido y conforme lo soliciten las personas funcionarias de la Institución, la reserva de los recursos presupuestarios en el sistema que la Institución disponga para tal fin.
+c. Ejecutar en el Presupuesto de cada uno de los Programas, el gasto real pagado por este concepto conforme con las planillas que elabora el Área de Recursos Humanos.
+d. Emitir reportes periódicamente o cuando sean requeridos sobre los recursos disponibles, ejecutados y reservados para el pago de jornada extraordinaria para cada uno de los Programas, de acuerdo con las posibilidades que permita el sistema que utiliza la Institución para tal efecto.

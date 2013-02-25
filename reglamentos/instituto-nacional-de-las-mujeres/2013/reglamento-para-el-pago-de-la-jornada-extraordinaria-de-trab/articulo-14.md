@@ -1,0 +1,1 @@
+Artículo 14.—Registros. Toda persona funcionaria a quien se le autorice laborar tiempo extraordinario, deberá efectuar los registros respectivos de entrada y salida de la jornada laborada, en los instrumentos que al efecto establezca el Área de Recursos Humanos.

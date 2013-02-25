@@ -1,0 +1,1 @@
+Artículo 35.—Del régimen disciplinario. Las faltas en que incurran las personas funcionarias en la aplicación de este reglamento, serán sancionadas según lo establecido en el Reglamento Autónomo de Servicios del INAMU y demás normativa aplicable y concordante.

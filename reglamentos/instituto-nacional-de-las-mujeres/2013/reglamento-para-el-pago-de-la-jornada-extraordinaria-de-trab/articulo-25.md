@@ -1,0 +1,3 @@
+Artículo 25.—De la revisión. El Área de Recursos Humanos será responsable de revisar los formularios de autorización y liquidación de tiempo extraordinario, velando que cumplan con la normativa, disponibilidad y procedimientos establecidos.
+En caso de que el Área de Recursos Humanos determine improcedente la autorización, lo comunicará a la jefatura correspondiente, quien podrá replantear la solicitud ante la Dirección Administrativa Financiera, para que valore los criterios emitidos y decida al respecto.
+Las liquidaciones que no se ajusten a estas indicaciones, serán devueltas a la persona funcionaria, sin responsabilidad para Recursos Humanos por las consecuencias que el atraso ocasione.

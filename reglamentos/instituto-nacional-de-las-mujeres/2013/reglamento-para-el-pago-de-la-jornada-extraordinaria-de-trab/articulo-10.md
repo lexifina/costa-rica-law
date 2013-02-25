@@ -1,0 +1,4 @@
+Artículo 10—Procedencia. La determinación sobre la procedencia del tiempo extraordinario, se regirá por las siguientes disposiciones:
+a. El tiempo extraordinario, por su propia naturaleza, procederá antes de iniciar o una vez concluida la jornada ordinaria.
+b. De existir la necesidad de que una persona funcionaria labore en tiempo extraordinario en una dependencia administrativa diferente de aquella donde se desempeña, dicha situación deberá quedar debidamente justificada y autorizada por el superior jerárquico de la instancia donde se realizará el trabajo, quien deberá comunicar dicha situación a la jefatura inmediata de la persona funcionaria que trabajará horas extras.
+Las labores desarrolladas deben ser de la misma naturaleza del puesto en que la persona funcionaria labora habitualmente, con el propósito de que el pago por concepto de horas extras se encuentre acorde con el puesto en el que se desempeña regularmente.

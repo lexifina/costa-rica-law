@@ -1,0 +1,1 @@
+Artículo 8°—De la subsanación de errores. No se considerará jornada extraordinaria, ni se pagará, el tiempo que la persona funcionaria emplee en subsanar los errores cometidos durante la jornada ordinaria, por negligencia o falta en el cumplimiento de su trabajo.

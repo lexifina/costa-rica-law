@@ -1,0 +1,2 @@
+Artículo 11.—Reconocimiento a los superiores jerárquicos. En el caso de las personas funcionarias que ocupan cargos de jefatura, sin fiscalización inmediata, la jornada ordinaria podrá ser hasta de doce horas, sin reconocimiento salarial, por lo que no se les podrá exigir que laboren más de ese período y en caso de hacerlo, deberá reconocérseles el tiempo extra que laboren en exceso de esas doce horas, conforme con lo establecido en el artículo 4° de este Reglamento.
+También podrá reconocerse como tiempo extraordinario, cuando laboren en días libres, feriados o de asueto.

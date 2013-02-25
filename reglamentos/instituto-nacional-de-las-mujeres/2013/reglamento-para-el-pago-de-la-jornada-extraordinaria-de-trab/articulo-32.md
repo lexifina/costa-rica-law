@@ -1,0 +1,13 @@
+Artículo 32.—Del Área Recursos Humanos. En el ámbito de aplicación de este Reglamento, son responsabilidades del Área de Recursos Humanos:
+a. Velar por la correcta aplicación de la normativa y los procedimientos establecidos en el presente reglamento, así como proponer y ejecutar instrucciones de la Dirección Administrativa Financiera y la Presidencia Ejecutiva sobre el tema.
+b. Recibir, revisar, tramitar y aprobar los documentos de liquidación del tiempo laborado en forma extraordinaria por el personal autorizado para ello, a fin de verificar que cumplan con todos los requisitos establecidos, o los que apruebe la Dirección Administrativa Financiera en situaciones especiales, siempre cumpliendo con las disposiciones vigentes sobre la materia.
+c. Devolver los documentos que no cumplan con los requisitos establecidos o que presenten errores o correcciones, instruyendo a la persona funcionaria para que elabore una nuevo documento.
+d. Verificar que en el formulario de liquidación conste el sello de contenido presupuestario y que el tiempo laborado en forma extraordinaria sea coincidente, en cuanto a las horas extras laboradas, según el registro de asistencia.
+e. Clasificar el tiempo extraordinario reportado por la persona funcionaria y autorizadas por la jefatura correspondiente en tipo de horas: sencillas, tiempo y medio o doble, según corresponda, así como realizar los cálculos de los montos a cancelar a la persona funcionaria para su pago efectivo.
+f. Aprobar el trámite de pago de trabajo en tiempo extraordinario en forma adecuada y oportuna, según las fechas de cierre de planilla de cada quincena.
+g. Realizar las investigaciones preliminares que considere pertinentes, relacionadas con el pago y el trámite de tiempo extraordinario y en caso de encontrar alguna anomalía, trasladarlas a la Unidad de Asesoría Legal para que recomiende a la Presidencia Ejecutiva lo que en Derecho corresponda.
+h. Llevar el control y registro de las horas extraordinarias laboradas por las personas funcionarias, según la unidad operativa a la que pertenecen.
+i. Archivar adecuadamente, en la planilla quincenal, según se generen o reciban, los documentos que sustentan el reconocimiento de pago de jornada extraordinaria.
+j. Llevar un estricto control mensual de la ejecución presupuestaria de tiempo extraordinario de los distintos programas y gestionar las modificaciones pertinentes, cuando corresponda.
+k. Informar a la jefatura correspondiente, en forma oportuna, cualquier anomalía que se detecte en el procedimiento y tramitación del tiempo extraordinario.
+l. Remitir al Área Financiero Contable, en la planilla quincenal, el monto aprobado para el pago por concepto de tiempo extraordinario.

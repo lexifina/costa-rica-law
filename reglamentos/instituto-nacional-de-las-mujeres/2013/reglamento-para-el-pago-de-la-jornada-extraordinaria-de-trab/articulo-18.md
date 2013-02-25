@@ -1,0 +1,3 @@
+Artículo18.—Disponibilidad presupuestaria. La disponibilidad presupuestaria para el pago de horas extraordinarias, se regirá por las siguientes disposiciones:
+a. Según las posibilidades presupuestarias de la Institución a cada programa se le asignará un monto anual para cancelación de tiempo extraordinario, que el superior jerárquico está en la obligación de administrar según los principios, normativa y procedimientos dispuestos en este Reglamento u otra normativa atinente.
+b. Para tal efecto, las jefaturas de las unidades operativas, realizarán el cálculo anual del monto requerido de previsión presupuestaria y realizará los trámites pertinentes, para su incorporación al presupuesto institucional del período correspondiente ante el Área de Recursos Humanos.

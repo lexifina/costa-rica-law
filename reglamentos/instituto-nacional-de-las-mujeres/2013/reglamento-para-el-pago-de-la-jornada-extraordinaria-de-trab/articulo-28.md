@@ -1,0 +1,1 @@
+Artículo 28.—Archivo de documentación. Toda documentación que se genere producto del trámite y pago de tiempo extraordinario, deberá ser incluida como soporte en la planilla quincenal correspondiente que elabora el Área de Recursos Humanos.

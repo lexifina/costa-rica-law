@@ -1,0 +1,1 @@
+Artículo 9°—Del reconocimiento mínimo. Solamente se autoriza el pago de tiempo extraordinario a aquellas personas funcionarias que laboren más de media hora extra antes o después de su jornada ordinaria, siempre y cuando se cuente con el contenido presupuestario correspondiente.

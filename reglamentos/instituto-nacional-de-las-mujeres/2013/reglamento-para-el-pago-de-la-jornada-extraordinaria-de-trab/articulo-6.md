@@ -1,0 +1,2 @@
+Artículo 6º—Del reconocimiento máximo por día. La jornada extraordinaria no podrá exceder de doce horas diarias sumadas tanto la jornada ordinaria como la extraordinaria, salvo casos excepcionales de siniestro ocurrido o peligro para las personas o instalaciones y que, sin evidente perjuicio, las personas funcionarias no puedan sustituirse o suspenderse las labores de aquellas que están laborando.
+En razón de lo anterior, el máximo de tiempo a laborar en jornada extraordinaria será de cuatro horas diarias, salvo lo indicado en el artículo 11 de este Reglamento.

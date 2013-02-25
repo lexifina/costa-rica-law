@@ -1,0 +1,1 @@
+Artículo 15.—Limitaciones. En el ámbito de aplicación de este Reglamento, el Área de Recursos Humanos no podrá tramitar el pago de jornadas extraordinarias que no cumplan con lo establecido en este Reglamento.
