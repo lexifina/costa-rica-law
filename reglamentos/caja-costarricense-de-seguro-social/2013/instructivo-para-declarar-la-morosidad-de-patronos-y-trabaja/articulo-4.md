@@ -1,0 +1,2 @@
+Artículo 4: De la morosidad de patronos y/o trabajadores independientes calificada como de difícil recuperación
+La declaración de la deuda de un patrono y/o trabajador independiente como de difícil recuperación, no extingue la obligación y no concede derecho alguno para él ni los fiadores cuando éstos existan. Esta clasificación le otorga al patrono y/o al trabajador independiente el estado de Difícil Recuperación, el cual debe registrarse en el SICERE, lo cual no implica la anulación o descarga de los adeudos en los registros de la Caja.
