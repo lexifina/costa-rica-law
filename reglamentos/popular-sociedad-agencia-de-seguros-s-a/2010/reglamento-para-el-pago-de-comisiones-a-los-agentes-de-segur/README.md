@@ -14,3 +14,4 @@ Reglamento para el Pago de Comisiones a los Agentes de Seguros, Promotores, y Pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-10 | la propia norma |
+| 2 | 2013-02-26 | Reglamento 98 (2013-02-26) |
