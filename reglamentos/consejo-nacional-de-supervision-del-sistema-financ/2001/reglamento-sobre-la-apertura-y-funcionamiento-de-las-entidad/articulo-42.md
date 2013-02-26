@@ -1,4 +1,7 @@
-Artículo 42.—De la divulgación y vigencia. El porcentaje de comisión ordinaria y extraordinaria que cobre las entidades autorizadas, deberá ser divulgada a los afiliados, a los cotizantes y al público en general, por los medios y en la oportunidad que establezca el Superintendente.
-Cada vez que una comisión se modifique al alza deberá comunicarse a los afiliados. La comunicación deberá realizarse, al menos, treinta días hábiles antes de su entrada en vigor, a través de los medios que el Superintendente establezca. Se considerará que existe un alza en la comisión cuando se incremente el porcentaje de alguno de los parámetros considerados en su cálculo. Aún cuando no haya transcurrido el plazo establecido en el artículo 102 de este Reglamento para Ejercer el Derecho a la Libre Transferencia, el afiliado podrá ejercer este derecho a partir de la comunicación del incremento mencionado.
+Artículo 42.—De la divulgación y vigencia
+El porcentaje de comisión ordinaria y extraordinaria que cobre las entidades autorizadas, deberá ser divulgado a los afiliados, a los cotizantes y al público en general, por los medios y en la oportunidad que establezca el Superintendente. Cada vez que una comisión se modifique al alza deberá comunicarse a los afiliados.
+La comunicación deberá realizarse, al menos, treinta días hábiles antes de su entrada en vigor, mediante una publicación en un diario de circulación nacional.
+Se considerará que existe un alza en la comisión cuando se incremente el porcentaje de alguno de los parámetros considerados en su cálculo.
+El afiliado puede ejercer el derecho a la libre transferencia a partir de la comunicación del incremento mencionado.
 Las modificaciones a la baja entrarán en vigencia en la fecha que señale la entidad autorizada y se comunicarán a los afiliados, cotizantes y público en general, en las condiciones que establezca el Superintendente.
-(Así reformado en sesión N° 567 del 23 de marzo del 2006)
+(Así reformado mediante sesión N° 1029-2013 del 26 de febrero del 2013)
