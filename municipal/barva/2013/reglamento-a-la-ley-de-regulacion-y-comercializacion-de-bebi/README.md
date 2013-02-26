@@ -1,0 +1,16 @@
+# Reglamento municipal (2013-02-11)
+
+Reglamento a la Ley de Regulación y Comercialización de bebidas con contenido alcohólico de la municipalidad de Barva
+
+- Tipo: Reglamento municipal
+- Número: 9
+- Fecha: 2013-02-11
+- Ente emisor: Municipalidad de Barva
+- Publicación: La Gaceta N° 40 del 2013-02-26
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=74279&param2=91660&param3=1 (ficha 74279)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2013-02-26 | la propia norma |
