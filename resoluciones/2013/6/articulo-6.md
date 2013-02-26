@@ -1,0 +1,1 @@
+Artículo 6º—Retiros en un solo tracto de las pensiones obligatorias. Para los retiros en un solo tracto de las pensiones obligatorias complementarias, se mantiene lo dispuesto en la Resolución Nº DGT-R-039-2011 de las catorce horas treinta y tres minutos del 30 de noviembre de 2011, la cual se encuentra vigente en todos sus extremos.
