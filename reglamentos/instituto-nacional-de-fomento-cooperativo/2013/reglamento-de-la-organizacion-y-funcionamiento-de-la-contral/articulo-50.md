@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Del Procedimiento sobre las Investigaciones de Oficio
+Artículo 50.—De las investigaciones de oficio. Corresponde a la Contraloría de Servicios tramitar las investigaciones que le asignen en forma especial el Director Ejecutivo o que a consideración propia estime oportunas para el mejoramiento de la calidad del servicio en la institución. Con fundamento en las investigaciones de oficio que realice la Contraloría de Servicios elaborará informes con recomendaciones para la adopción de políticas, normas y procedimientos en procura de una prestación de servicios oportuna y eficaz en favor de los y las habitantes.

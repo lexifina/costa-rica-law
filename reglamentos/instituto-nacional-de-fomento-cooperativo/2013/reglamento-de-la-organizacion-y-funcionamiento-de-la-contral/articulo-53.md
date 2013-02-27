@@ -1,0 +1,1 @@
+Artículo 53.—Relación interinstitucional. En coordinación con la Gerencia de Desarrollo Humano y la Dirección Ejecutiva, el Contralor(a) de Servicios podrá participar en reuniones, talleres, seminarios, foros, redes de protección, y proyectos conjuntos con otras instituciones públicas o privadas.

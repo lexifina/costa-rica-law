@@ -1,0 +1,1 @@
+Artículo 33.—Control de gestiones realizadas. Cada expediente debe contener hojas de seguimiento que visualicen las gestiones realizadas por el Contralor(a) de Servicios, como por ejemplo llamadas telefónicas, recibo de notas, coordinaciones, etc.

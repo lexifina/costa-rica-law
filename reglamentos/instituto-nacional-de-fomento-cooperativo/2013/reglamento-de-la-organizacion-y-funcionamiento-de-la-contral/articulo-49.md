@@ -1,0 +1,1 @@
+Artículo 49.—Suspensión de la tramitación de una queja, denuncia o reclamo. La Contraloría de Servicios suspenderá la instrucción o trámite de una investigación cuando el mismo hecho sea conocido por otra instancia administrativa o judicial competente para resolver o a solicitud del denunciante.

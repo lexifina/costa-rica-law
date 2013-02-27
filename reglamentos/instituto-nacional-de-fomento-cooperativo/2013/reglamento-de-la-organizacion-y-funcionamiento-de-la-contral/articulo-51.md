@@ -1,0 +1,3 @@
+CAPÍTULO X
+Del Seguimiento de las Recomendaciones
+Artículo 51.—Del seguimiento. El Contralor(a) de Servicios podrá realizar todos aquellos trámites y procedimientos necesarios para vigilar y garantizar el cumplimiento de las recomendaciones contenidas en los informes que requieran seguimiento, para lo cual el Contralor(a) de Servicios promoverá y participara en el desarrollo del mecanismo de control permanente de gestión sobre procedimiento y tramitación de expedientes y consultas, a través de la verificación de la información y el análisis de los indicadores de gestión, así como en la revisión de los reglamentos y demás normas internas de la institución tendientes a la modernización de los procesos relacionados con el accionar del INFOCOOP.

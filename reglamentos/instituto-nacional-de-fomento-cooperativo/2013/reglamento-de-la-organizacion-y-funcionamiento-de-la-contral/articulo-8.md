@@ -1,0 +1,1 @@
+Artículo 8º—Ámbito de acción. La Contraloría de Servicios es una dependencia asesora, canalizadora y mediadora, por lo tanto no es por sí sola resolutora de las acciones que como consecuencia de sus propias indagaciones, conclusiones y recomendaciones deban llevarse a cabo.

@@ -1,0 +1,1 @@
+Artículo 46.—Del cierre de la investigación. Solucionado el problema planteado por quien corresponda, la Contraloría de Servicios podrá proceder al cierre de su intervención, sin embargo, de persistir la violación al derecho del o la usuaria, se procederá a recomendar la apertura de una investigación al Director Ejecutivo.

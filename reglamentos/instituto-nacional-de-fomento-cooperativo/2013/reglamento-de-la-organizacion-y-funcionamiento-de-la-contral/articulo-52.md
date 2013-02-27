@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De las Actividades de Promoción y Divulgación
+Artículo 52.—De la Capacitación, Promoción y Divulgación. La Contraloría de Servicios en coordinación permanente con las Gerencias de Desarrollo Estratégico y de Desarrollo Humano, promoverá la participación y apoyo de los y las funcionarias en espacios de capacitación convocada por la institución, así como por organizaciones e instituciones homólogas y de aquellas actividades que tengan como objetivo la elaboración, diseño, asesoría y ejecución de proyectos específicos y coordinación de proyectos a desarrollar en materia de calidad y excelencia del servicio.

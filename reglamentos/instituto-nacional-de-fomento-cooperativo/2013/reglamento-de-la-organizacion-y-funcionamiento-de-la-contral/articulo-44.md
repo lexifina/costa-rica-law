@@ -1,0 +1,1 @@
+Artículo 44.—De las consultas por el fondo: En aquellos casos en los cuales la Contraloría de Servicios, detecte que la prestación de servicios afecta el fondo de la denuncia, solicitará el criterio a la Gerencia de Asesoría Jurídica del INFOCOOP; sin que se interrumpa la prestación del servicio mismo, mientras se recibe el criterio referido.

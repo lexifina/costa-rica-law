@@ -1,0 +1,1 @@
+Artículo 36.—De los principios a seguir. Todos los procedimientos que se regulan en el presente reglamento, deben observar los principios de sumariedad, informalidad, celeridad, legalidad, razonabilidad, proporcionalidad, oficiosidad y gratuidad.

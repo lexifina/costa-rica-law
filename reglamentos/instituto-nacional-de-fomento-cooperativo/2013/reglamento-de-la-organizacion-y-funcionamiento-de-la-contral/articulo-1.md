@@ -1,0 +1,16 @@
+INSTITUTO NACIONAL DE FOMENTO COOPERATIVO
+REGLAMENTO DE LA ORGANIZACIÓN
+Y FUNCIONAMIENTO DE LA CONTRALORÍA
+DE SERVICIOS DEL INFOCOOP
+1. EL INFOCOOP-Marco conceptual:
+El Instituto Nacional de Fomento Cooperativo es la institución pública y descentralizada encargada de impulsar el desarrollo armónico del cooperativismo en nuestro país, a través de la Ley 4179 del 22 de agosto de 1968, reformada mediante Ley 5185 del 20 de febrero de 1973 en donde se establece su funcionalidad e independencia administrativa. Dentro de su estructura orgánica, el INFOCOOP cuenta con una Junta Directiva encargada de trazar la política del Instituto y velar por el cumplimiento de su fin público. Es el órgano de máxima jerarquía, está conformada por cuatro representantes del movimiento cooperativo y tres del estado, éstos últimos proceden del Banco Nacional de Costa Rica, del Ministerio de Agricultura y Ganadería y del Ministerio de Trabajo y Seguridad Social.
+El INFOCOOP es parte del estado costarricense y sus actividades sustanciales se encuentran enfocadas a contribuir en el desarrollo económico, social, cultural y democrático del país a través del cooperativismo. Todos sus servicios tienen como finalidad fomentar, promover, financiar, apoyar y divulgar el cooperativismo en todos los niveles, propiciando las condiciones requeridas y los elementos indispensables, para una mayor y efectiva participación de la población del país en el desenvolvimiento de la actividad económica-social para contribuir a crear mejores condiciones de vida para los y las habitantes.
+En el INFOCOOP se cree firmemente en el valor de la equidad, la ayuda mutua y los beneficios de trabajar con responsabilidad, ofreciendo un servicio de calidad, para incidir en el mejoramiento de la calidad de vida de los y las cooperativistas y de todos los usuarios habitantes del país, por lo que se plantea el siguiente reglamento:
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Finalidad del Reglamento. Este Reglamento tiene como fin normar los aspectos relativos a la organización y al procedimiento general, especial y de coordinación que se deben observar en la gestión de la Contraloría de Servicios del INFOCOOP. Rigen para ello todos los principios contenidos en la administración pública, enunciados y establecidos en el artículo 140, inciso 8) de la Constitución Política de la República de Costa Rica; Convenios y Pactos Internacionales sobre la protección y promoción de los Derechos Humanos suscritos por Costa Rica; en la Ley N° 6727 Ley General de la Administración Pública; en la Ley de Control Interno N° 8292; en la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos N° 8220; en la Ley de Asociaciones Cooperativas N° 4179 del 22 de agosto de 1968 y sus Reformas; así como el Decreto Ejecutivo N° 34587-PLAN del 2 de julio del 2008 y demás normativa atinente a la materia.
+Definiciones:
+Jerarca: Máxima autoridad del INFOCOOP (Junta Directiva)
+Administración activa: La organización administrativa y operativa que tiene el INFOCOOP, para cumplir con las normas, procedimientos y políticas institucionales.
+Usuarios internos: Son los funcionarios del INFOCOOP que utilizan los servicios institucionales.
+Usuarios externos: Es el público en general que hace uso de los servicios que ofrece el INFOCOOP.

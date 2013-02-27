@@ -1,0 +1,3 @@
+CAPÍTULO III
+Funciones de la Contraloría de Servicios
+Artículo 15.—Función General de la Contraloría de Servicios. La Contraloría de Servicios ejercerá su gestión con independencia funcional y de criterio respecto al Director Ejecutivo y demás dependencias de la institución; por ello no deberá realizar funciones ni actuaciones de administración activa, excepto las necesarios para cumplir con sus propias funciones. Sus recomendaciones se sustentarán en la normativa interna de la institución, manuales, reglamentos, criterios legales, técnicos y buenas prácticas administrativas y de control interno que fundamenten su gestión.
