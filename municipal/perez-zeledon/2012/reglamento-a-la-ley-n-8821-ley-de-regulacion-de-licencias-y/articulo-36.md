@@ -1,0 +1,1 @@
+Artículo 36.—Multas e intereses. En atención a las multas a imponer a los administrados que incumplan sus obligaciones tributarias, se procederá de conformidad con lo dispuesto en el artículo 73 de la Ley 8821.

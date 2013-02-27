@@ -1,0 +1,1 @@
+Artículo 34.—Procedimiento para el decomiso: Para los efectos de realizar el respectivo decomiso de la mercadería en los casos que se determine una explotación ilegal de determinada actividad lucrativa o productiva, se procederá de conformidad con lo establecido en el artículo 71 de la ley de Regulación de Licencias y Patentes de Pérez Zeledón (N° 8821).

@@ -1,0 +1,1 @@
+Artículo 35.—Autorización para el comiso de mercadería. En los casos que se decomise mercadería por parte de la Municipalidad de este cantón y en el ejercicio propio de sus funciones y facultades, se podrá optar por el comiso de la mercadería, lo anterior según lo establecido en el artículo 72 de la ley de Regulación de Licencias y Patentes de Pérez Zeledón (N° 8821).

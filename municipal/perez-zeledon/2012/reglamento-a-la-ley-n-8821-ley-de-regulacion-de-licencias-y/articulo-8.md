@@ -1,0 +1,1 @@
+Artículo 8°—Prohibiciones del administrado: Las prohibiciones que tiene el administrado son las contempladas en el artículo 33 de la Ley de Regulación de Licencias y Patentes del cantón de Pérez Zeledón (número 8821).

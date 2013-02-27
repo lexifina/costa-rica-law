@@ -1,0 +1,1 @@
+Artículo 3°—Principios rectores del procedimiento: En relación a los principios rectores del procedimiento para conferir licencias, operan los indicados en el artículo 3 de la Ley de Regulación de Licencias y Patentes de Pérez Zeledón número 8821.

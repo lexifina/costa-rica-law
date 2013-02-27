@@ -1,0 +1,1 @@
+Artículo 16.—Plazo para resolver la solicitud. El plazo establecido para que la Municipalidad realice el respectivo trámite para resolver en definitiva si rechaza o concede la licencia solicitada, será de treinta días naturales.

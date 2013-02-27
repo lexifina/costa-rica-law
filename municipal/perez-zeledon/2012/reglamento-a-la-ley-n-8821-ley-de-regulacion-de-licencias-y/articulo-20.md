@@ -1,0 +1,1 @@
+Artículo 20.—Resolución administrativa. La resolución que concede o deniega la licencia municipal deberá contener, al menos, requisitos mínimos exigidos en el artículo 23 de la Ley de Regulación de Licencias y Patentes del cantón de Pérez Zeledón.

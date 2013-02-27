@@ -1,0 +1,4 @@
+Artículo 40.—Suspensión de la licencia. La Municipalidad quedará autorizada para suspender la licencia municipal y sancionar con multa equivalente a tres salarios base al propietario, administrador o responsable de un establecimiento que con la licencia municipal suspendida siga operando con la actividad; a los negocios que:
+a) Estén morosos en el pago del impuesto de patentes por dos o más trimestres.
+b) Incumplan los requisitos que las leyes de la República establezcan para el ejercicio de la actividad por explotar.
+Adicionalmente, la Municipalidad está facultada en determinar la suspensión temporal o definitiva de una licencia municipal autorizada, en los caso en que este firme la resolución administrativa que se dicte dentro de un proceso sancionatorio por incumplimiento del ordenamiento jurídico por una inadecuada explotación del derecho.

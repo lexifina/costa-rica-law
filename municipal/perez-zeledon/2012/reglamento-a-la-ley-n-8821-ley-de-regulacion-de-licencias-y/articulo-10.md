@@ -1,0 +1,1 @@
+Artículo 10.—Categorías y subcategorías de administrados concesionarios de una licencia municipal: Para la determinación de las categorías y subcategorías se aplicará lo dispuesto en los artículos 16, 17 y 18 de la Ley 8821 de Regulación de Licencias y Patentes del cantón de Pérez Zeledón.

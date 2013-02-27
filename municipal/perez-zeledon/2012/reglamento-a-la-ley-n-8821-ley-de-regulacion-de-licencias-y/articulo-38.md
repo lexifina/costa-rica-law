@@ -1,0 +1,6 @@
+Artículo 38.—Trámite de devolución de mercaderías. La mercaderías decomisadas por la Municipalidad de Pérez Zeledón, las cuales se encuentran enlistadas en los artículos 71 y 72 de la Ley 8821, podrán ser devueltas a los interesados, cumpliendo con la presentación de los siguientes aspectos:
+a) Se debe presentar la solicitud por escrito de la devolución de las mercaderías, dentro del plazo de veinticuatro horas después de realizado decomiso.
+b) Se debe aportar los documentos de identidad de la persona a quien se le practicó el acto de decomiso.
+c) Se debe presentar los documentos pertinentes que acrediten la titularidad de las mercaderías decomisadas. El documento idóneo y válido en este caso serán las facturas Timbradas en donde se especifica la adquisición y características de la mercadería. La administración municipal analizará y validara la solicitud y documentos presentados y determinará la viabilidad de devolución de la mercadería decomisada.
+d) En caso de ser aprobada la respectiva devolución, se procederá al cálculo y cobro de la Multa por Decomiso plasmada en la Ley.
+e) Posterior al pago de la Multa por parte del infractor, se procederá a la devolución de la mercadería decomisada, la cual debe ser retirada por la persona facultada para tal gestión, dentro de un plazo no mayor a tres días hábiles.
