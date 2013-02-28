@@ -1,0 +1,5 @@
+CAPÍTULO II
+De la organización
+SECCIÓN PRIMERA
+Concepto de Contraloría Interna
+ARTÍCULO 4: Concepto. La Contraloría Interna, es un órgano superior y componente orgánico vital del sistema de control interno de la Empresa de Servicios Públicos de Heredia, S.A. por su naturaleza, es un órgano de fiscalización jurídico-financiero, y de gestión operativa de la Empresa y sus subsidiarias; ejerce una actividad independiente, objetiva y asesora, que proporcionará seguridad a la Empresa, puesto que se crea para validar y mejorar sus operaciones. Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección. Dentro de la organización, la Contraloría Interna proporcionará a la ciudadanía una garantía razonable de que la actuación del jerarca y del resto de la administración se ejecuta conforme al marco legal y técnico y a las sanas prácticas.

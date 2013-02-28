@@ -1,0 +1,1 @@
+ARTÍCULO 31: Planificación Estratégica. El Contralor Interno debe establecer una planificación estratégica congruente con su universo auditable actualizado, la valoración del riesgo y los objetivos de la Institución.

@@ -1,0 +1,1 @@
+ARTÍCULO 46: Acceso a informes. Los informes de la Contraloría Interna en materia de control interno, -únicamente-, una vez presentados ante la Junta Directiva o la Administración; son de libre acceso para cualquier persona.

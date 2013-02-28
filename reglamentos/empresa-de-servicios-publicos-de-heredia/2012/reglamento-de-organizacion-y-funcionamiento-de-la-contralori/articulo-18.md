@@ -1,0 +1,1 @@
+ARTÍCULO 18: Apoyo técnico. La Contraloría Interna podrá solicitar, cuando lo estime necesario, la asesoría o la incorporación de profesionales y técnicos en las diferentes disciplinas, sean funcionarios o no de la ESPH, S.A, para que lleven a cabo labores de su especialidad en apoyo a su actividad.
