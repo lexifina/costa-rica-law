@@ -14,3 +14,4 @@ Reglamento para la Operación del Fondo de Caja Chica y de Cajas Auxiliares del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-18 | la propia norma |
+| 2 | 2013-02-28 | Decreto Ejecutivo 37670 (2013-02-28) |
