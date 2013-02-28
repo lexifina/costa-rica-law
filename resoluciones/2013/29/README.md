@@ -14,3 +14,4 @@ Actualiza límites económicos que establece el artículo 27 de la Ley de Contra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-28 | la propia norma |
+| 2 | 2013-02-28 | Resolución 37 (2013-02-28) |

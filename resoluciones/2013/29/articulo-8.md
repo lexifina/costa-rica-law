@@ -206,7 +206,7 @@ Municipalidad de Pérez Zeledón | 2.347,4 | E |
 Municipalidad de Poás | 617,1 | H |
 Municipalidad de Pococí | 1.969,9 | F |
 Municipalidad de Puntarenas | 2.063,9 | F |
-Municipalidad de Puriscal | 282,1 | H |
+Municipalidad de Puriscal Municipalidad de San Carlos (Así adicionado el punto anterior mediante resolución R-DC-037-2013 del 28 de febrero del 2013) | 282,1 3.890,6 (Así adicionado el punto anterior mediante resolución R-DC-037-2013 del 28 de febrero del 2013) | H E (Así adicionado el punto anterior mediante resolución R-DC-037-2013 del 28 de febrero del 2013) |
 Municipalidad de San Isidro | 455,7 | H |
 Municipalidad de San José | 16.281,5 | D |
 Municipalidad de San Mateo | 371,9 | H |
