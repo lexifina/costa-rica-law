@@ -1,0 +1,1 @@
+Artículo 27: Límite del Financiamiento. El límite de financiamiento será el que fije la UEN respectiva anualmente, hasta que se agote la reserva presupuestaria correspondiente. Cada UEN deberá darle prioridad a los proyectos de menor costo per cápita, registrará las solicitudes de financiamiento cronológicamente y en ese orden serán atendidas.

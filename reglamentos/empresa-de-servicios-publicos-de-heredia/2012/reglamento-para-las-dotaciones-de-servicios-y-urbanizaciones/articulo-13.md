@@ -1,0 +1,1 @@
+Artículo 13: Restricción para la dotación de servicios nuevos y/o ampliaciones de servicios en áreas de recarga acuífera. En las zonas definidas en el acuerdo de Junta Directiva Nº JD-076-2008 publicado en la Gaceta Nº 70 de fecha 10 de abril de 2008, se aplicarán las restricciones en la dotación de servicios nuevos y/o ampliaciones de servicios, según lo establecido.

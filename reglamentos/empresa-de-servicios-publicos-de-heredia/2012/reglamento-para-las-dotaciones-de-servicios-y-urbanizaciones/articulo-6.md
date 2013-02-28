@@ -1,0 +1,1 @@
+Artículo 6: Oferta y Demanda de agua. La UEN de Agua Potable comunicará a la Junta Directiva y a la Gerencia la actualización de los planes maestros para cada sistema o en su defecto, el plan maestro integral. La UEN de Agua Potable, se basará en dichos planes para realizar los estudios de factibilidad de otorgamiento de agua a los proyectos.

@@ -1,0 +1,1 @@
+Artículo 39: Reserva Presupuestaria. Cada UEN deberá verificar y certificar la existencia de contenido presupuestario antes de enviar un estudio o proyecto de extensión de infraestructura a Junta Directiva.

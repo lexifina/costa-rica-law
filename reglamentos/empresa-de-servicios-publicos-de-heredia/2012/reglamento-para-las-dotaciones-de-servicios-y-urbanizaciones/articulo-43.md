@@ -1,0 +1,2 @@
+Artículo 43: Programación de Trabajos.
+Cada UEN encargada, programará los trabajos financiados de acuerdo con la disponibilidad de personal, material y presupuestaria; para lo cual deberá coordinar con los demás unidades de la EMPRESA. Se verificará la disponibilidad de los recursos que la UEN respectiva incorporará al presupuesto de la obra. Solamente una vez recibida la garantía y firmado el respectivo contrato, la UEN encargada emitirá la orden de trabajo correspondiente.

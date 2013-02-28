@@ -1,0 +1,4 @@
+ARTÍCULO 41: Regulaciones para extensiones con financiamiento. Las extensiones con financiamiento solidario serán reguladas conforme al siguiente procedimiento:
+a) Presentación de la solicitud con expresión de nombres y calidades de él o las solicitantes, e indicación de sus cédulas de identidad. Tratándose de personas jurídicas deberá acompañarse además certificación de la personería de su representante con indicación de su cédula de persona jurídica de la sociedad interesada. Dichas certificaciones deberán ser expedidas por el Registro Nacional o por los registros públicos respectivos y; en defecto de éstos por un notario público.
+b) Plano catastrado y certificación de propiedad, indiferentemente de que extensión sea sobre calle pública.
+c) La solicitud formal deberá ser clara en cuanto a los requerimientos técnicos del servicio a solicitar, a efectos de ubicarla en la categoría respectiva.

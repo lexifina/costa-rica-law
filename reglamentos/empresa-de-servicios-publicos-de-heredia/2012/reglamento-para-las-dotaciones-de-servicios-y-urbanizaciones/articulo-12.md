@@ -1,0 +1,1 @@
+Artículo 12: Aprobación de planos, diseños y bitácora. Los sistemas de redes de los servicios que presta la ESPH SA, estarán regulados por los diseños, planos, especificaciones técnicas y procedimientos aprobados previamente por la UEN respectiva.

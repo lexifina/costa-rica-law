@@ -1,0 +1,3 @@
+CAPÍTULO II
+GENERALIDADES
+Artículo 3: Responsabilidades y limitaciones: Las dotaciones de nuevos servicios, sus extensiones y readecuaciones que otorgue la EMPRESA, con apego a las disposiciones de este Reglamento, se harán siempre a reserva de que la EMPRESA no asumirá responsabilidad alguna en el evento de que, por motivo de caso fortuito, fuerza mayor, razones de interés público debidamente demostradas o por incumplimiento del propietario, ya sea durante el trámite de la solicitud o en cualquier momento de la ejecución del proyecto habitacional autorizado se haga imposible la prestación de los servicios concedidos.

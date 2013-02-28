@@ -1,0 +1,1 @@
+Artículo 11: Obras de infraestructura: Las obras de infraestructura internas para cualquier proyecto, y necesarias para la dotación de los servicios correrán en su totalidad por cuenta del propietario.
