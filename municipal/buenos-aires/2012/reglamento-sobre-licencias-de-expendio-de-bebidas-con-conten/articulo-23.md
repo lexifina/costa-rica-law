@@ -1,0 +1,1 @@
+Artículo 23.—Destino de los ingresos y las multas. Lo recaudado por licencias y las multas señaladas en el artículo 15 de este reglamento ingresará a las arcas de la Municipalidad de Buenos Aires y se considera recursos libres.
