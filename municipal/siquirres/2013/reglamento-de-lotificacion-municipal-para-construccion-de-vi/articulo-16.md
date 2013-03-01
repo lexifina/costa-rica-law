@@ -1,0 +1,1 @@
+Artículo XVI.—Los gastos y honorarios del Notario serán cubiertos por el adjudicatario, el importe de dichos gastos y honorarios será pagado inicialmente por la Municipalidad y dicho monto será incorporado al crédito que el adjudicatario mantiene con la Municipalidad por la venta del lote.

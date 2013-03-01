@@ -1,0 +1,1 @@
+Artículo VIII.—Corresponde al Alcalde o Alcaldesa Municipal, ejecutar los acuerdos del Concejo de conformidad con lo establecido al artículo 17 incisos a) y ñ), del Código Municipal en relación con el Plan de Lotificación y créditos, además deberá notificar a los interesados sobre el resultado de su gestión.

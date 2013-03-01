@@ -1,0 +1,1 @@
+Artículo XV.—El lote quedará grabado a favor de la Municipalidad con garantía de segundo grado, para proporcionar al adjudicatario la oportunidad de realizar gestiones de primer grado en cualquiera de las Instituciones encargadas de la vivienda.
