@@ -1,0 +1,1 @@
+Artículo 17.—Diseño de rutas. A fin de garantizar la salud y la seguridad de los operarios, el diseño de rutas de recolección deberá considerar aspectos de salud ocupacional.

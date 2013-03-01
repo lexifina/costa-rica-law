@@ -1,0 +1,1 @@
+Artículo 25.—Capacitación y equipo. Los operarios encargados de la manipulación de residuos de manejo especial y peligroso, deberán ser capacitados, contar con el equipo de protección personal, identificación, ropa de trabajo con aditamentos reflectivos y demás implementos y condiciones laborales conforme a la normativa vigente en materia laboral y de salud ocupacional.
