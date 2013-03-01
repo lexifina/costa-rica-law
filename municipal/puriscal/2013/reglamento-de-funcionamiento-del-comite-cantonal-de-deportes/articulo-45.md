@@ -1,0 +1,1 @@
+Artículo 45.—Los Comités Distritales tendrán un presidente, un secretario, un tesorero y dos vocales nombrados en la asamblea general inicial. Sus funciones se incluyen en los artículos 9, 10 y 11 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 51.—Los miembros de la Junta Administrativa serán nombrados por cuatro años, no devengarán dieta ni remuneración alguna y pueden ser reelectos; podrán ser removidos por las organizaciones que los hayan nombrado siempre que haya justa causa y se siga el debido proceso.

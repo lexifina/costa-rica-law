@@ -1,0 +1,2 @@
+Artículo 6º—Los miembros del Comité Cantonal de Deportes y Recreación durarán en sus cargos dos años, pudiendo ser reelectos y no devengarán dietas ni remuneración alguna. En el caso de reelección es necesario que sean ratificados por las respectivas asociaciones u organizaciones deportivas.
+En lo que respecta a viáticos, estarán sujetos a lo establecido por el Reglamento emitido al respecto por la Contraloría General de la República en lo que les resulte aplicable.

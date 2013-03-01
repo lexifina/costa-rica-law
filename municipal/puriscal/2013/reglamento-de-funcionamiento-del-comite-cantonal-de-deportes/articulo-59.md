@@ -1,0 +1,1 @@
+Artículo 59.—Todas las disposiciones no incluidas en este Reglamento se sujetarán a lo establecido por el Código Municipal, Ley Nº 7794, así como por la circular de la Contraloría General de la República 8626-DFOE-114-200, la Ley de Contratación Administrativa, Ley Nº 7494 y su Reglamento Nº 33411-H y el Reglamento y la Ley del Instituto Costarricense del Deporte, Ley Nº 7800.

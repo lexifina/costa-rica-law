@@ -1,0 +1,1 @@
+Artículo 50.—La Junta Administrativa estará integrada por tres miembros, un miembro designado por el Concejo Municipal, un miembro nombrado por el Instituto del Deporte y la Recreación y un miembro designado por el Comité Cantonal de Deportes y Recreación del cantón de Puriscal.

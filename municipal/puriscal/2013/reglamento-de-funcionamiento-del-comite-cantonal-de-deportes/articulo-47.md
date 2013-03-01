@@ -1,0 +1,1 @@
+Artículo 47.—Los recursos que provengan del usufructo de las instalaciones deportivas y recreativas bajo la administración del Comité Distrital, se aplicarán al mantenimiento, mejoras y construcción de las mismas instalaciones.

@@ -1,0 +1,1 @@
+Artículo 43.—Los campos deportivos administrados por los Comités Distritales no podrán cerrarse para turnos, ni ferias sin permiso o autorización del Comité Cantonal, solicitados con 30 días de anticipación.
