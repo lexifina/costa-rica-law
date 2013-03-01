@@ -1,0 +1,1 @@
+Artículo 3º—Una vez publicado este Decreto los interesados deberán protocolizar y presentar el respectivo testimonio ante el Registro de Asociaciones del Registro Público, para su respectiva inscripción.
