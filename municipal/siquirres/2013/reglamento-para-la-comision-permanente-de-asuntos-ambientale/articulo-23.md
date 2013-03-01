@@ -1,0 +1,1 @@
+Artículo 23.—El informe de la Comisión deberán presentarse en un plazo máximo de quince días (15) después de recibido el asunto, la Comisión podrá solicitar al Concejo Municipal las prórrogas que considere necesarios cuando sea bien justificada.

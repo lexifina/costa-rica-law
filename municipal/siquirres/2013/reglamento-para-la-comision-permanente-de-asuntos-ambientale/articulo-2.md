@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con el Artículo N° 49, del Código Municipal vigente, se establece el nombramiento de la Comisión Permanente de Asuntos Ambientales del Concejo Municipal de Siquirres, la cual se regirá por el presente reglamento.

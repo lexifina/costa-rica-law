@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión podrá solicitar asesoría técnica a los funcionarios de la Oficina de Gestión Ambiental Municipal, estos deben comparecer cuando así les sea requerido. Podrá además la Comisión solicitar la asesoría que requiera a funcionarios de otras instituciones estatales o privadas.
