@@ -1,0 +1,1 @@
+Artículo 16.—Cuando sea menester ocupar equipo de cualquier índole que tenga que salir de los lugares o planteles de custodia, para cumplir con la labor asignada en tiempo extraordinario, debe el alcalde y jefes departamentales girar orden escrita del equipo del equipo que se empleara y la hora que este debe regresar a los planteles.

@@ -1,0 +1,1 @@
+Artículo 15.—Para autorizar tiempo extraordinario en labores municipales, cuyo recurso provenga de aportes de asociaciones, comités y grupos de vecinos organizados, deben estos haber ingresado a las arcas municipales y presentados previamente y no podrán emplearse hasta no haber obtenido la aprobación de la Contraloría para el fin propuesto

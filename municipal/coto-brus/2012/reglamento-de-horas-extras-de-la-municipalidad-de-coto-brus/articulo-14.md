@@ -1,0 +1,1 @@
+Artículo 14.—Tanto el Alcalde Municipal como los jefes departamentales que autoricen tiempo extraordinario sin que exista contenido presupuestario serán responsables de eventuales efectos pecuniarios legales y de cualquier otra índole ante los tribunales de trabajo.

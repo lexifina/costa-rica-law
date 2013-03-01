@@ -1,0 +1,1 @@
+Artículo 2º—Tiempo extraordinario es aquella jornada que realice una vez cumplió el horario establecido en el contrato de trabajo que para el cual fue nombrado el servidor, de acuerdo con lo que al respecto establece en esta materia el Código de Trabajo vigente.

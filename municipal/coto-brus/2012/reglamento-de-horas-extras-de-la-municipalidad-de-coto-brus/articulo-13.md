@@ -1,0 +1,1 @@
+Artículo 13.—El tiempo extraordinario oficial es aquel cuyo gasto esté debidamente presupuestado y aprobado por el órgano contralor. El incumplimiento de este requisito salva a la institución de reclamos pecuarios, legales y de seguridad laboral, responsabilidad que recaerá en el funcionario lo autorizó.

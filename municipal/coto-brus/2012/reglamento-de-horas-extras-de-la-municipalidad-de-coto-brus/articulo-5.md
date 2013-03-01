@@ -1,0 +1,1 @@
+Artículo 5º—No se consideran horas extraordinarias, las que el trabajador sea producto de una ausencia injustificada del servidor responsable y de que por ello se pretenda efectuar un tiempo extraordinario.
