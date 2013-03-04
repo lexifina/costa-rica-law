@@ -14,3 +14,4 @@ Reglamento de operación de caja chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-23 | la propia norma |
+| 2 | 2013-03-04 | Reglamento 0 (2013-03-04) |
