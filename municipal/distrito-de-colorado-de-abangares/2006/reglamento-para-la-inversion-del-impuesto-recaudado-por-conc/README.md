@@ -14,3 +14,4 @@ Reglamento para la Inversión del Impuesto Recaudado por concepto del 1 por cien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-25 | la propia norma |
+| 2 | 2013-03-04 | Reglamento municipal 0 (2013-03-04) |
