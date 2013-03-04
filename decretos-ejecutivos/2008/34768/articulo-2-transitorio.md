@@ -1,1 +1,0 @@
-Transitorio II.—Administración temporal financiera y del Fondo. La Administración Financiera y del Fondo estará temporalmente a cargo del Director General de Bomberos, hasta tanto se conforme el Consejo Directivo y éste emita los respectivos reglamentos para todo el manejo administrativo del Cuerpo de Bomberos.

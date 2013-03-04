@@ -1,4 +1,0 @@
-Artículo 43.—Selección de los candidatos a la Asamblea de Representantes. Los candidatos a la Asamblea de Representantes, se inscribirán por propia iniciativa, o por postulación, para representar sólo a la provincia a la que pertenece la estación en que está inscrito.
-Los postulantes no podrán inscribirse para representar más de una provincia o sección.
-El Tribunal Electoral publicará la lista oficial de los candidatos inscritos según corresponda, y convocará al proceso de elección de Representantes de la Asamblea.
-En caso de falta de candidatos para una provincia o sección específica de oficio se conformará una terna compuesta por los funcionarios con mayor antigüedad, según corresponda Jefes de Estación para la sección de Bomberos Permanentes, y Jefes de Compañía de Voluntarios para la sección de Voluntarios que presten servicio en las estaciones que forman parte de la provincia o para las secciones administrativas y técnicas.

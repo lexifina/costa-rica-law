@@ -1,1 +1,0 @@
-Artículo 49.—Convocatoria a la Asamblea de Representantes. Una vez en firme el acuerdo con el resultado final de las elecciones, el Tribunal Electoral convocará en un plazo de cinco (5) días hábiles, a los escogidos para la realización de la Asamblea de Representantes, en la que se efectuará la elección de los miembros del Consejo Directivo.

@@ -1,1 +1,0 @@
-Artículo 53.—Resultado de las elecciones de los miembros del Consejo Directivo. Concluida la sesión de la Asamblea de Representantes, el Tribunal Electoral, deberá publicar al día siguiente el resultado de las elecciones, con el nombre de las personas que ocuparán el puesto de miembros del Consejo Directivo y aplicar los mecanismos idóneos para el conocimiento público.

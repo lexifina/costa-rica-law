@@ -1,1 +1,0 @@
-Transitorio I.—Procedimiento recaudación del 4%. Se autoriza al Cuerpo de Bomberos un plazo de 90 días a partir de la constitución del Consejo Directivo, para establecer el procedimiento de recaudación a que hace referencia el inciso a) del artículo 40 de la Ley Nº 8228 del Benemérito Cuerpo de Bomberos de Costa Rica.

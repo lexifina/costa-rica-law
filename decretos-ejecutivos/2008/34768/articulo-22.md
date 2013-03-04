@@ -1,1 +1,0 @@
-Artículo 22.—De las donaciones. El Cuerpo de Bomberos está autorizado para recibir donaciones tanto de entes nacionales como internacionales, sean de derecho público o privado para lo cual se establecerá un reglamento aprobado por el Consejo Directivo, en donde se regulará ese proceso.

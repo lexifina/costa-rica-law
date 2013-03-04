@@ -1,2 +1,0 @@
-Artículo 62.—De la autorización de uso logos, lema y distintivos. El Cuerpo de Bomberos, será la única organización que podrá autorizar el uso de logos, emblemas, lemas y distintivos relacionados con los servicios que presta en materia de divulgación, artículos promocionales, vestuario, material impreso o audiovisual.
-En caso de que se compruebe el uso indebido de tales logos, emblemas y distintivos, el Cuerpo de Bomberos hará la denuncia del caso ante el Ministerio Público, de conformidad con lo dispuesto en el Código Penal, Ley Nº 4573 de 4 de mayo de 1970.

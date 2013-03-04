@@ -1,1 +1,0 @@
-Transitorio IV.—Reservas de funcionarios. El INS, deberá trasladar las reservas actuales de las prestaciones de los funcionarios del Cuerpo de Bomberos, a una cuenta a nombre del Cuerpo de Bomberos, el cual creará un fideicomiso para el manejo de estas reservas, según lo establece el artículo 13.

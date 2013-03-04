@@ -1,7 +1,0 @@
-CAPÍTULO II
-Constitución del Tribunal Electoral del Cuerpo de Bomberos
-Artículo 32.—De la integración del Tribunal Electoral del Cuerpo de Bomberos. Se integrará un Tribunal Electoral que supervisará el proceso de elección de los dos miembros del Consejo Directivo que deben ser elegidos por el voto de los miembros activos del Cuerpo de Bomberos de Costa Rica.
-El Tribunal Electoral estará integrado por cinco miembros con la siguiente estructura: presidente, vicepresidente, secretario, tesorero y vocal; éstos serán designados por el Director General de Bomberos. Serán nombrados 18 meses antes de cada convocatoria a elección y podrán ser reelectos sin límite de veces.
-Este Tribunal Electoral será regulado mediante un Reglamento Interno aprobado por el Consejo Directivo que contendrá su organización, proceso electoral, desarrollo de sesiones, funciones, potestades y obligaciones.
-En su primera sesión de trabajo, el Tribunal Electoral procederá a la designación de las personas que ejercerán los puestos, conforme con el procedimiento que se establecerá en su reglamento interno, en el que se indicarán las obligaciones y funciones de cada una de ellas.
-Desde seis meses antes y después de la fecha establecida para la celebración de elecciones del Consejo Directivo, deberá reunirse el Tribunal Electoral del Cuerpo de Bomberos en forma continua, sesionando ordinariamente como mínimo dos veces por mes y en forma extraordinaria cada vez que sea convocado por el Presidente para asuntos urgentes.

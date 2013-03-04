@@ -1,1 +1,0 @@
-Transitorio III.—Conformación 1º fideicomiso. A efecto de iniciar el proceso de recepción de dineros dentro del Fondo del Cuerpo de Bomberos y de conformidad con el artículo 10 el Director de Bomberos, tramitara la conformación del Fideicomiso inicial para la administración del Fondo.
