@@ -1,0 +1,1 @@
+Artículo 20.—Pago de derechos: En caso de autorizarse la licencia temporal, cuando proceda, se prevendrá por una única vez al solicitante de realizar el pago de los derechos de dicha licencia, por anticipado, como condición para la emisión de la resolución final correspondiente.

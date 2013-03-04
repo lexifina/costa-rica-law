@@ -1,0 +1,3 @@
+Artículo 22.—Recursos: La resolución que deniegue una licencia o que imponga una sanción tendrá los recursos de revocatoria y/o apelación, de conformidad con el régimen impugnatorio contemplado en el Título Octavo de la Ley General de Administración Pública y en caso de omisión o inactividad de parte de la administración Municipal, aplicará según lo dispuesto en el Título VI, Capítulo II del Código Municipal.
+Cuando se deniegue una licencia se interpondrá el recurso de revocatoria ante la instancia que la denegó y el de apelación ante el superior jerárquico.
+En caso de la aplicación de una sanción el recurso de revocatoria deberá interponerse ante el jerarca del departamento que impone la sanción y el de apelación ante el superior jerárquico.
