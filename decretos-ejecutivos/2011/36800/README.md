@@ -15,3 +15,4 @@ Publica Resolución N° 263-2011 (COMIECO-LX) del 27 de julio de 2011 y su Anexo
 | --- | --- | --- |
 | 1 | 2012-01-01 | la propia norma |
 | 2 | 2012-01-09 | Decreto Ejecutivo 36991 (2012-01-09) |
+| 3 | 2013-03-04 | Resolución 55 (2013-03-04) |
