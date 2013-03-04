@@ -14,3 +14,4 @@ Reforma "acuerdo Municipal Nº 1279-07 aprobado en Sesión 52-2006 del 31 de jul
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-17 | la propia norma |
+| 2 | 2013-03-04 | Acuerdo municipal 325 (2013-03-04) |
