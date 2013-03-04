@@ -1,18 +1,18 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN Modificación de documentos 001-2012
 El Ente Costarricense de Acreditación (ECA), da a conocer la modificación de los documento códigos ECA-MC-P09 Procedimiento general de evaluación y acreditación, ECA-MC-P11 Procedimiento general de evaluación, acreditación y de testificación para Organismos de Certificación, ECA-MC-P14 Otorgamiento de la acreditación, ECA-MC-P16 Procedimiento de Investigación, ECA-MC-P17 Política y criterios para la participación en ensayos/pruebas de aptitud y otras comparaciones para los laboratorios, ECA-MC-P21 Reclutamiento, selección, incorporación, evaluación del desempeño y cambios de categoría al cuerpo de evaluadores y expertos técnicos, ECA-MC-P23 Conformación y sesión de los órganos colegiados, ECA-MC-PO01 Política de validación de métodos, ECA-MC-PO02 Política de incertidumbre de las mediciones, ECA-MC-MA-P01 Pago a evaluadores y expertos técnicos, ECA-MC-MA-P03 Procedimiento de cobro emitidos el 13 de diciembre del 2012, de la siguiente manera:
-(Nota de Sinalevi: La presente norma se extrajo del sitio web de Ente Costarricense de Acreditación, y se transcribe a continuación:)
+(Nota de Sinalevi: El texto del presente procedimiento fue reformado parcialmente y reproducido de forma íntegra mediante publicación en La Gaceta N ° 53 del 15 de marzo del 2013, donde se actualiza la versión 03 existente y se publica la versión 04, por lo que se reproduce a continuación):
 [imagen]
 TABLA DE CONTENIDO
 1 OBJETIVO ........................................................................................................................................1
 2 ALCANCE.........................................................................................................................................1
 3 DOCUMENTOS DE REFERENCIA .............................................................................................1
 4 DEFINICIONES ..............................................................................................................................2
-5 RESPONSABILIDADES ...............................................................................................................2
-6 TARIFAS ..........................................................................................................................................3
-7 FORMAS DE PAGO ........................................................................................................................5
-8 FACTURACIÓN POR SERVICIOS DE ACREDITACIÓN Y CAPACITACIÓN ........................7
-9 GESTIÓN DE COBRO ................................................................................................................. 11
-10 IDENTIFICACIÓN DE CAMBIOS ............................................................................................. 12
+5 RESPONSABILIDADES ................................................................................................................2
+6 TARIFAS ...........................................................................................................................................3
+7 FORMAS DE PAGO ........................................................................................................................3
+8 FACTURACIÓN POR SERVICIOS DE ACREDITACIÓN Y CAPACITACIÓN ........................5
+9 GESTIÓN DE COBRO ...................................................................................................................9
+10 IDENTIFICACIÓN DE CAMBIOS ............................................................................................... 11
 1 OBJETIVO
 Establecer el proceso de facturación y cobro por los servicios de evaluación y acreditación, capacitación y reconocimientos que brinda el ECA a los organismos de evaluación de la conformidad y usuarios de los mismos.
 2 ALCANCE
@@ -20,7 +20,7 @@ Aplica a todos los organismos de evaluación de la conformidad acreditados y en 
 3 DOCUMENTOS DE REFERENCIA
 - ECA-MC-P09 Procedimiento general de evaluación y acreditación
 - ECA-MC-P13-F10 Informe administrativo de evaluación in situ.
-- ECA-MC-P09-F11Entrega del plan de evaluación.
+- ECA-MC-P09-F11 Entrega del plan de evaluación.
 - ECA-MC-P16 Procedimiento de investigación
 - ECA-MC-MA-P01-F01 Control de horas de evaluación
 - ECA-MC-MA-P02-F11 Formulario de inscripción
@@ -45,7 +45,7 @@ Las responsabilidades se detallan en cada actividad incluida dentro del procedim
 - Responsable Gestoría de Calidad: [GC]
 - Responsable Secretaría de Acreditación: [SA]
 - Responsable Comité Técnico Asesor: [CAS]
-- Responsable Organismo de Evaluación de la Conformidad: [OEC]
+- Responsable Organismo de Evaluación de la Conformidad : [OEC]
 - Responsable Equipo Evaluador y Evaluador Líder: [EE]
 - Responsable Área Financiera Contable: [AFC]
 - Responsable de Facturación [RF]
@@ -66,48 +66,8 @@ MO = Porcentaje de mano de obra del precio de la cotización
 I = Porcentaje de Insumos del precio de la cotización
 GA = Porcentaje de gastos administrativos
 U = Porcentaje de utilidad del precio de la cotización
-COSTO DE ETAPAS PROCESO DE ACREDITACIÓN
-Rubro | Monto ($ USD)
-Solicitud de visita preliminar (sólo en caso de que se solicite) | 460.00
-Solicitud de acreditación (inicial, ampliación, alcance flexible) | 460.00
-Otorgamiento de la acreditación (inicial, ampliación, alcance flexible) | 920.00
-Mantenimiento de la acreditación | 690.00
-Evaluación documental | Depende del alcance solicitado y número de personas que conforman el equipo evaluador
-Evaluación in situ | Depende del alcance solicitado y número de personas que conforman el equipo evaluador
-Visita de implementación de acciones correctivas | Depende del número de no conformidades y el número de personas que conforman el equipo evaluador
-Visitas extraordinarias | Depende del alcance solicitado por el OEC
-Viáticos (Alimentación, Hospedaje, transporte, Impuestos de salida) | Depende de los gastos que se incurran para llevar a cabo la evaluación.
-Horas de Traslado | Se cobra al OEC las horas profesionales de traslado del evaluador cuando el recorrido supere las 3 horas.
-Nota: El transporte de evaluadores puede incluir: tiquete aéreo, transporte terrestre o pago de combustible y horas de traslado.
-6.3 Cobro de servicios de transporte
-El OEC debe cubrir los costos por el transporte de los evaluadores de la siguiente manera:
-el punto de partida siempre será a partir de la Instalaciones del ECA y se cobrará por cada kilómetro recorrido el monto de 0.5 centavos de dólar. [OEC]
-6.4 El costo por cada profesional que participe en una evaluación es de:
-El cobro a los OEC por los servicios profesionales de evaluadores y expertos técnicos nacionales se detalla a continuación:
-COSTO DE HONORARIOS-PROFESIONALES NACIONALES DE EQUIPO EVALUADOR
-PROFESIONAL | MONTO POR DIA ($USD)1 1 El monto por día se refiere a 8 horas de servicios de evaluación, incluyendo el tiempo de alimentación del equipo evaluador.
-Encargado de realizar visita preliminar | 345.00
-Evaluador Líder | 345.00
-Evaluador | 322.00
-Evaluador en Formación Observador o bajo Supervisión | No se cobra
-Experto Técnico | 276.00
-Testificador | 322.00
-Testificador ECA | No se cobra
-Evaluadores y expertos técnicos Internacionales | Según la tarifa acordada con el profesional
-Para el caso de evaluadores y expertos técnicos internacionales, la metología utilizada para el cobro al OEC es la siguiente:
-Rubros:
-(A) Total de honorarios a pagar a proveedor (persona física o jurídica del extranjero).
-(B) Retención de remesas por pagos al exterior: 15%.
-(C) Comisión bancaria por pagos al exterior: $ 25.
-(D) Gastos operativos del ECA (fijos):
-Descripción | Costo por día2 de gastos operativos del ECA 2 El costo por día se refiere a 8 horas de servicios de evluación.
-Experto Técnico | $ 140
-Evaluador Líder | $ 175
-Evaluador | $ 165
-Fórmula de facturación:
-Total a facturar=(A)+(A*B)+(C)+(D)
-Lo que se facture por servicios de evaluadores y expertos técnicos internacionales se hará en dólares americanos (USD)3.
-3 Cuando la facturación se requiera en colones, se hará la conversión de acuerdo al tipo de cambio fijado por el Banco Central de Costa Rica (BCCR) el día de la misma.
+En el anexo 1 se detallan las tarifas de las etapas del proceso de acreditación, incluidos los cobros por servicios de transporte y el costo por cada profesional que participe en una evaluación.
+Nota: la modificación y/o actualización de la información de tarifas detallada en el anexo 1 no implican cambios de versión de este procedimiento, solo la actualización del anexo mismo.
 7 FORMAS DE PAGO
 7.1 Pagos regulares
 7.1.1 El ECA brinda las siguientes formas de pago:
@@ -123,6 +83,7 @@ Banco | Cuenta | Moneda | Cuenta Cliente | Swift
 Banco de Costa Rica | 001-0248525-7 | Colones | 15201001024852578 | BCRICRSJ
 Banco de Costa Rica | 001-0241547-0 | Dólares | 15201001024154704
 BAC San José | 914442215 | Dólares | 10200009144422156 | BSNJCRSJ
+| | | | | | |
 Las transferencias deben emitirse a nombre del Ente Costarricense de Acreditación, cuya cédula jurídica es: 3-007-348163. [OEC] [AFC] [RC] [EE].
 7.2 Incumplimiento
 7.2.1 De haber incumplimiento en alguno de los pagos por servicios de evaluación y acreditación del OEC se procede conforme a lo establecido en el procedimiento ECA-MC-P16.
@@ -146,9 +107,9 @@ Nota: El pago de facturas a terceros se realiza siempre y cuando éstas tengan r
 8.1.2 Proceso de evaluación
 8.1.2.1 El OEC presenta la Solicitud respectiva (inicial, ampliación, alcance flexible) ante la Unidad de Logística acompañada del depósito o transferencia por el monto correspondiente. [OEC]
 8.1.2.2 La Unidad de Logística traslada este depósito o transferencia a AFC para que corrobore el pago mediante alguno de los medios establecidos por el ECA y emita el recibo de dinero. [LOG] [AFC] [RC]
-8.1.2.3 Una vez corroborado el pago, AFC informa a la Secretaría de Acreditación para que esta continúe con las etapas de Admisibilidad de la solicitud y evaluación documental según se establece en ECA-MC-P09 Procedimiento General de Evaluación y Acreditación. [SA] [AFC]
-8.1.2.4 Una vez realizada la evaluación documental y entregado el Plan de Evaluación a la Secretaría de Acreditación respectiva, se solicita al AFC que elabore Factura proforma
-para entregar al OEC, basándose en la información de ECA-MC-P13-F01 Plan de evaluación. [SF] [OEC] [SA]
+8.1.2.3 Una vez corroborado el pago, AFC informa a la Secretaría de Acreditación para que esta continúe con las etapas de Admisibilidad de la solicitud y evaluación documental según se
+establece en ECA-MC-P09 Procedimiento General de Evaluación y Acreditación. [SA] [AFC]
+8.1.2.4 Una vez realizada la evaluación documental y entregado el Plan de Evaluación a la Secretaría de Acreditación respectiva, se solicita al AFC que elabore Factura proforma para entregar al OEC, basándose en la información de ECA-MC-P13-F01 Plan de evaluación. [SF] [OEC] [SA]
 8.1.2.5 El AFC emite factura proforma y la traslada a la Secretaría de Acreditación para que ésta la adjunte al formulario ECA-MC-P09-F11 Entrega del plan de evaluación. [SA] [AFC]
 8.1.2.6 Finalizada la evaluación in situ, el AFC, tomando la información contenida en ECA-MC-P13-F10 Informe administrativo de evaluación in situ genera y envía al OEC una Factura por servicios que incluye el costo total de la evaluación documental e in situ y posteriormente registra en ECA-MC-MA-P01-F01, las horas y monto generado por cada miembro del equipo evaluador. [AFC] [RF]
 8.1.2.7 El responsable de facturación pasa la documentación correspondiente al responsable de cobros para que proceda a enviar la factura donde corresponda. El original se entrega al OEC mediante una copia de la factura recibida conforme para su trámite de pago. Una copia de la factura se conservará en archivo como consecutivo. [RF] [RC]
@@ -181,7 +142,7 @@ c. Quejas fundamentadas de cualquier interesado en contra de un OEC acreditado.
 8.1.8.1 El OEC presenta la Solicitud respectiva ante la Unidad de Logística del ECA acompañada del depósito o transferencia por el monto correspondiente. [OEC] [LOG].
 8.1.8.2 La Unidad de Logística traslada este depósito o transferencia a AFC para que corrobore el pago mediante alguno de los medios establecidos por el ECA y emita el recibo de dinero. Y se archive en el expediente respectivo [AFC] [RC]
 8.1.8.3 Una vez corroborado el pago, AFC informa a la Secretaría de Acreditación para que esta continúe con las etapas correspondientes al alcance flexible [SA] [AFC]
-8.1.8.4 Finalizada la evaluación documental, la AFC, tomando la información contenida en ECA-MC-P13-F10 Informe administrativo de evaluación Documental, genera y envía al OEC una Factura por servicios que incluye el costo total de la evaluación documental y posteriormente registra en el Control de horas de evaluación, las horas y monto generado por cada miembro del equipo evaluador. [AFC] [RF]
+8.1.8.4 Finalizada la evaluación documental, la AFC , tomando la información contenida en ECA-MC-P13-F10 Informe administrativo de evaluación Documental, genera y envía al OEC una Factura por servicios que incluye el costo total de la evaluación documental y posteriormente registra en el Control de horas de evaluación, las horas y monto generado por cada miembro del equipo evaluador. [AFC] [RF]
 8.1.8.5 Una vez cumplidas las etapas del alcance flexible se procede con la gestión de cobro y pago de los servicios descritos en este procedimiento. [SA] [AFC] [GC].
 8.2 CAPACITACION Y OTROS SERVICIOS
 8.2.1 El área de capacitación traslada a la AFC la “orden de compra” ECA- MC-MA-P02-F11 completa por el participante del curso, antes de iniciar el mismo para generar la factura de cobro. [AFC] [CAPAC]
@@ -195,7 +156,53 @@ c. Quejas fundamentadas de cualquier interesado en contra de un OEC acreditado.
 9.3 Después de recibida la factura por el cliente se realiza la primera llamada telefónica, correo electrónico (y/o recordarle) al usuario del servicios para la confirmación del pago conforme a las condiciones establecidas y se anota en Control de entrega y pago de facturas, para darle el respectivo seguimiento. [RC]
 9.4 15 días, después de recibida la factura por el cliente se realiza la segunda llamada telefónica o correo electrónico al usuario del servicios para la confirmación del pago. Y se anota en el control de entrega y pago de facturas. [RC]
 9.5 30 días, después de recibida la factura por el cliente, se procede de acuerdo a lo establecido en el apartado 10 del procedimiento ECA-MA-P16 “Procedimiento de Investigación”.[RC]
-10 IDENTIFICACIÓN DE CAMBIOS
+10 Anexo 1
+Tarifas para los servicios de evaluación y acreditación del Ente Costarricense de Acreditación, incluidos los cobros por servicios de transporte y el costo por cada profesional que participe en una evaluación.
+Fecha de Actualización: xx de xx del 20xx.
+10.1 Costo de etapas proceso de acreditación.
+Rubro | Monto ($ USD)
+Solicitud de visita preliminar (sólo en caso de que se solicite) | 460.00
+Solicitud de acreditación (inicial, ampliación, alcance flexible) | 460.00
+Otorgamiento de la acreditación (inicial, ampliación, alcance flexible) | 920.00
+Mantenimiento de la acreditación | 690.00
+Evaluación documental | Depende del alcance solicitado y número de personas que conforman el equipo evaluador
+Evaluación in situ | Depende del alcance solicitado y número de personas que conforman el equipo evaluador
+Visita de implementación de acciones correctivas | Depende del número de no conformidades y el número de personas que conforman el equipo evaluador
+Visitas extraordinarias | Depende del alcance solicitado por el OEC
+Viáticos (Alimentación, Hospedaje, transporte, Impuestos de salida) | Depende de los gastos que se incurran para llevar a cabo la evaluación.
+Horas de Traslado | Se cobra al OEC las horas profesionales de traslado del evaluador cuando el recorrido supere las 3 horas.
+Nota: El transporte de evaluadores puede incluir: tiquete aéreo, transporte terrestre o pago de combustible y horas de traslado.
+10.2 Cobro de servicios de transporte
+El OEC debe cubrir los costos por el transporte de los evaluadores de la siguiente manera:
+el punto de partida siempre será a partir de la Instalaciones del ECA y se cobrará por cada kilómetro recorrido el monto de 0.5 centavos de dólar. [OEC]
+10.3 El cobro a los OEC por los servicios profesionales de evaluadores y expertos técnicos nacionales se detalla a continuación:
+COSTO DE HONORARIOS-PROFESIONALES NACIONALES DE EQUIPO EVALUADOR
+PROFESIONAL | MONTO POR DIA ($USD)1
+Encargado de realizar visita preliminar | 345.00
+Evaluador Líder | 345.00
+Evaluador | 322.00
+Evaluador en Formación Observador o bajo Supervisión | No se cobra
+Experto Técnico | 276.00
+Testificador | 322.00
+Testificador ECA | No se cobra
+Evaluadores y expertos técnicos Internacionales | Según la tarifa acordada con el profesional
+1 El monto por día se refiere a 8 horas de servicios de evaluación, incluyendo el tiempo de alimentación del equipo evaluador.
+2 El costo por día se refiere a 8 horas de servicios de evluación.
+3 Cuando la facturación se requiera en colones, se hará la conversión de acuerdo al tipo de cambio fijado por el Banco Central de Costa Rica (BCCR) el día de la misma.
+Para el caso de evaluadores y expertos técnicos internacionales, la metología utilizada para el cobro al OEC es la siguiente:
+Rubros:
+(A) Total de honorarios a pagar a proveedor (persona física o jurídica del extranjero).
+(B) Retención de remesas por pagos al exterior: 15%.
+(C) Comisión bancaria por pagos al exterior: $ 25.
+(D) Gastos operativos del ECA (fijos):
+Descripción | Costo por día2 de gastos operativos del ECA
+Experto Técnico | $ 140
+Evaluador Líder | $ 175
+Evaluador | $ 165
+Fórmula de facturación:
+Total a facturar=(A)+(A*B)+(C)+(D)
+Lo que se facture por servicios de evaluadores y expertos técnicos internacionales se hará en dólares americanos (USD)3.
+11 IDENTIFICACIÓN DE CAMBIOS
 Motivo: | Modificación del procedimiento
-Refiérase a la solicitud de elaboración o modificación del documento número 2012-141
-Observaciones: Se aclara en el inciso 6.4 el detalle del costo por cada profesional que participe en evaluaciones nacionales. Además se describe la metodología de cobro y pago para los evaluadores y expertos técnicos internacionales El apartado 7 formas de pago se modifica y actualiza de manera completa.
+Refiérase a la solicitud de elaboración o modificación del documento número 2013-020
+Observaciones: Se traslada los incisos del apartado 6 relacionados con Tarifas para los servicios de evaluación y acreditación del Ente Costarricense de Acreditación, incluidos los cobros por servicios de transporte y el costo por cada profesional que participe en una evaluación. Apartado 6 / Inciso 6.2 se modifica agregando la siguiente información: En el anexo 1 se detallan las tarifas de las etapas del proceso de acreditación, incluidos los cobros por servicios de transporte y el costo por cada profesional que participe en una evaluación. Nota: la modificación y/o actualización de la información de tarifas detallada en el anexo 1 no implican cambios de versión de este procedimiento, solo la actualización del anexo mismo. Se incluye en el apartado 10 Anexo 1 la fecha de actualización de este anexo.
