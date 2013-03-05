@@ -18,3 +18,4 @@ Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acre
 | 3 | 2009-04-16 | Decreto Ejecutivo 35281 (2009-04-16) |
 | 4 | 2009-08-31 | Decreto Ejecutivo 35522 (2009-08-31) |
 | 5 | 2012-06-25 | Ley 9046 |
+| 6 | 2013-03-05 | Decreto Ejecutivo 37740 (2013-03-05) |

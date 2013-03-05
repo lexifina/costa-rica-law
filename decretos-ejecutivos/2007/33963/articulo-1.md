@@ -1,4 +1,3 @@
-(Derogado)
 Nº 33963
 (Nota de Sinalevi: el Ente Costarricense de Acreditación aprobó un nuevo Reglamento de estructura interna y funcionamiento del Ente Costarricense de Acreditación, mediante publicación en La Gaceta N°94 del 19 de mayo del 2014)
 EL PRESIDENTE DE LA REPÚBLICA
