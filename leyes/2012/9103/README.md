@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2013
 
-Ley N° 9103 del 2012-12-04. SINALEVI, ficha 73872: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73872&param2=91413&param3=1>.
+Ley N° 9103 del 2012-12-04. SINALEVI, ficha 73872: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73872&param2=91818&param3=1>.
 
 Publicada en La Gaceta N° 242 del 2012-12-14.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 33 | 2013-01-24 | Decreto Ejecutivo 37511 (2013-01-21) | 2013-01-21 |
 | 4 de 33 | 2013-02-14 | Decreto Ejecutivo 37507 (2013-01-24) | 2013-01-24 |
 | 5 de 33 | 2013-02-14 | Decreto Ejecutivo 37520 (2013-02-04) | 2013-02-04 |
+| 6 de 33 | 2013-03-05 | Decreto Ejecutivo 37542 (2013-02-11) | 2013-02-11 |
