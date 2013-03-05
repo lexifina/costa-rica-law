@@ -1,0 +1,2 @@
+ARTICULO 71
+Todo Estado Miembro podrá retirarse de la Organización mediante notificación escrita al Secretario General con seis meses de antelación, el cual comunicará dicha decisión a los demás Estados Miembros. Tal notificación surtirá efecto el treinta y uno de diciembre del año siguiente a aquel en el que se haya efectuado. El retiro no modificará las obligaciones financieras que en la fecha en que se produzca tuviera para con la OEI el Estado de que se trate, incluyendo el bienio presupuestario vigente.

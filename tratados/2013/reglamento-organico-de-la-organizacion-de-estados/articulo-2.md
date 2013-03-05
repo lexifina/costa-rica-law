@@ -1,0 +1,2 @@
+ARTICULO 2
+La OEI tiene como propósito fundamental el desarrollo y el intercambio educativo, científico, tecnológico y cultural de los Estados Miembros, con el objeto de contribuir a elevar el nivel cultural de sus habitantes como personas, formarlos integralmente para la vida productiva y para las tareas que requiere el desarrollo integral y fortalecer los sentimientos de paz, democracia y justicia social.

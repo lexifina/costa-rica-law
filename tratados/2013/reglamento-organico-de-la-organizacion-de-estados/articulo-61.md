@@ -1,0 +1,2 @@
+ARTICULO 61
+Todos los egresos deberán estar autorizados por el Secretario General o por el funcionario que haga sus veces, estando facultado para hacer transferencias de partidas dentro de un mismo título del Programa-presupuesto. En caso de que la OEI disponga de otros ingresos distintos a los establecidos en el Programa-presupuesto, la Secretaría General comunicará la ampliación presupuestaria a los Estados Miembros, así como los programas y proyectos a que serán aplicados.

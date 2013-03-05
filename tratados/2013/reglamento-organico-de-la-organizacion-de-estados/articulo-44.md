@@ -1,0 +1,2 @@
+ARTICULO 44
+La Secretaria General podrá tener un Secretario General Adjunto que será designado por el Consejo Directivo, de terna propuesta por el Secretario General, para un período máximo de cuatro años. Este podrá ser reelegido por una sola vez y no podrá ser sucedido por una persona de la misma nacionalidad. El Secretario General y el Secretario General Adjunto deberán ser de distinta nacionalidad y naturales de Estados Miembros.

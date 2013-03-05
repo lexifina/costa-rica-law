@@ -1,0 +1,2 @@
+ARTICULO 15
+Son deberes de los Estados Miembros en la Organización, cumplir con los Estatutos y Reglamentos, cancelar las cuotas anuales ordinarias y demás compromisos financieros, participar y asistir en la medida de lo posible a las actividades de la Organización, así como a las reuniones de la Asamblea General, a las del Consejo Directivo, y a las Conferencias o Comisiones Técnicas para los cuales hubieran sido elegidos, nombrados o invitados.

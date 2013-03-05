@@ -1,0 +1,2 @@
+ARTICULO 21
+La Asamblea General se reunirá ordinariamente cada cuatro años, en el último cuatrimestre del año en el país que la Asamblea anterior haya establecido para su sede. También podrá reunirse con carácter extraordinario, convocada por el Presidente del Consejo Directivo, a solicitud de un Estado Miembro y de acuerdo con la Secretaría General, previa consulta a los Estados Miembros y aceptación por la mayoría de ellos.

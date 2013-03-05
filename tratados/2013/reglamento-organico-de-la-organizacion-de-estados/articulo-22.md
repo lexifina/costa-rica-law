@@ -1,0 +1,2 @@
+ARTICULO 22
+Si por cualquier motivo la Asamblea General ordinaria no pudiera celebrarse en el país elegido, se reunirá en la Sede Central de la Secretaría General de la Organización, sin perjuicio de que si alguno de los Estados Miembros ofreciera oportunamente la sede en su territorio, la Secretaría General pueda acordar que la Asamblea General se reúna en dicha sede, previa consulta a los Estados Miembros y aceptación por la mayoría de estos.

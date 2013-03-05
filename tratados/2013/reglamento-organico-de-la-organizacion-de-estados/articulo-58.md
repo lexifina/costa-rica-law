@@ -1,0 +1,2 @@
+ARTICULO 58
+Los Estados Miembros contribuirán anualmente con sus cuotas obligatorias para el sostenimiento de la Organización. Estas cuotas serán fijadas según la escala o baremo de contribuciones que haya establecido la Asamblea General de la OEI. Asimismo, los Estados podrán realizar aportaciones voluntarias para el sostenimiento de la Organización o para la financiación de actividades o programas específicos.

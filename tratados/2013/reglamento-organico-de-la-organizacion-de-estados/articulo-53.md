@@ -1,0 +1,2 @@
+ARTICULO 53
+Los demás órganos de la OEI podrán ser instalados en cualquiera de los países iberoamericanos que garanticen su libertad de acción para el cumplimiento de sus fines, la salvaguardia de su status internacional y el apoyo necesario para su sostenimiento. La Secretaría General establecerá conjuntamente con el Gobierno del país correspondiente, las condiciones en que un Organo deberá instalarse y funcionar.

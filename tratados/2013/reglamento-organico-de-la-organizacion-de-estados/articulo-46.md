@@ -1,0 +1,2 @@
+ARTICULO 46
+Los integrantes del Comité Técnico de Programación serán designados por el Consejo Directivo, a propuesta del Secretario General. El Comité estará constituido por un número de seis personas de reconocido prestigio profesional y solvencia procedentes de los sectores de educación, ciencia y cultura del ámbito iberoamericano, extendiéndose su participación por un periodo de cuatro años. El Comité Técnico de Programación se reunirá al menos una vez cada dos años en la sede de la Secretaria General.
