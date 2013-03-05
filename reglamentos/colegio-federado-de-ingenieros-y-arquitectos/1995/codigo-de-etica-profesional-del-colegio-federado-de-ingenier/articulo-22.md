@@ -1,1 +1,2 @@
-Artículo 22.—Para la adecuación de las sanciones indicadas en este Código de Ética Profesional se tomará en cuenta la gravedad de la falta, así como el monto de los daños causados si los hubiere, el número de personas y estado socioeconómico afectado.
+Artículo 22º—Para la adecuación de las sanciones indicadas en este Código de Ética Profesional, se tomará en cuenta la gravedad de la falta; así como la magnitud de los daños causados si los hubiere; el número de personas afectadas; el estado socioeconómico del afectado; y si se causó algún daño a la salud pública o al ambiente.
+(Así reformado mediante sesión extraordinaria N° 02-12/13-A.E.R del 5 de marzo del 2013)
