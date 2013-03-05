@@ -15,3 +15,4 @@ Declara de interés público, en todos sus alcances, las labores para el desarro
 | --- | --- | --- |
 | 1 | 2010-10-04 | la propia norma |
 | 2 | 2011-03-11 | Decreto Ejecutivo 36536 (2011-03-11) |
+| 3 | 2013-03-05 | Decreto Ejecutivo 37684 (2013-03-05) |
