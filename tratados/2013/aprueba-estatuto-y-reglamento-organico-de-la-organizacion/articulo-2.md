@@ -1,0 +1,3 @@
+ARTÍCULO 2.- El artículo 69 del Reglamento Orgánico de la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura (OEI) debe interpretarse en el sentido de que el Gobierno de la República de Costa Rica se compromete a otorgar a la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura (OEI) y a sus funcionarios que no sean costarricenses o residentes permanentes en el país, los derechos, privilegios e inmunidades previstos en la Convención de Viena sobre relaciones diplomáticas, de 18 de abril de 1961, aprobada por ley N.º 3394, de 24 de setiembre de 1964.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los siete días del mes de febrero del año dos mil trece.
