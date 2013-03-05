@@ -1,0 +1,1 @@
+Artículo 42. Carga de la prueba. Para efectos de demostrar que la transferencia de datos personales se realizó conforme a la Ley y el presente Reglamento, la carga de la prueba recaerá en el responsable.

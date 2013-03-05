@@ -1,0 +1,1 @@
+Artículo 30. Tratamiento de datos por parte del encargado. El encargado solo podrá intervenir en el tratamiento de las bases de datos personales, según lo establecido en el contrato celebrado con el responsable y sus indicaciones.

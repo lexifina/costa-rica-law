@@ -1,0 +1,1 @@
+Artículo 22. Negativa por parte del responsable. El responsable que niegue el ejercicio de cualquier gestión del titular, deberá justificar por escrito su respuesta. Si el titular lo considera pertinente, podrá acudir ante la Agencia conforme el Capítulo VII “De la Protección de Derechos ante la Agencia” de este Reglamento.

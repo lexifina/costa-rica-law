@@ -1,0 +1,2 @@
+Artículo 18. De las solicitudes del titular hacia el responsable. El responsable, deberá dar trámite a toda solicitud para el ejercicio de los derechos personales del titular. El plazo para que se atienda la solicitud será de cinco días hábiles, contados a partir del día siguiente en que la misma haya sido recibida por el responsable, en cuyo caso éste anotará en el acuse de recibo que entregue al titular, la correspondiente fecha de recepción.
+El plazo señalado se interrumpirá en caso de que el responsable requiera información adicional al titular.

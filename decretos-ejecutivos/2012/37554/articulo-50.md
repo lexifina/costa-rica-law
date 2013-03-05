@@ -1,0 +1,1 @@
+Artículo 50. Del pago. Cumplidos todos los requisitos de forma y fondo o subsanada la prevención, se otorgará al solicitante un plazo de diez días hábiles para que cancele el canon anual. De no realizarse el pago del canon en este plazo, se archivará la gestión sin perjuicio de que pueda presentarse una nueva solicitud.

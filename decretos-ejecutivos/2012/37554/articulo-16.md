@@ -1,0 +1,1 @@
+Artículo 16. Medios y formas para el ejercicio de los derechos. El responsable, deberá poner a disposición del titular, los medios y formas simplificados de comunicación electrónica u otros que considere pertinentes para facilitar a los titulares el ejercicio de sus derechos.

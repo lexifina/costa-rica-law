@@ -1,0 +1,1 @@
+Artículo 62. Subsanación, admisibilidad y archivo. La Agencia podrá prevenir al titular para que en el plazo de diez días hábiles a partir del día siguiente a la recepción de la notificación, aclare y precise la información o documentación presentada, bajo la pena de inadmisibilidad de la denuncia y su consecuente archivo.

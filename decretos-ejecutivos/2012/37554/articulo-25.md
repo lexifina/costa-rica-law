@@ -1,0 +1,1 @@
+Artículo 25. Derecho de supresión o eliminación. El titular podrá solicitar en cualquier momento al responsable, la supresión o eliminación total o parcial de los datos personales del titular, de manera definitiva.

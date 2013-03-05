@@ -1,0 +1,3 @@
+Capítulo IX
+Del Pago de los Cánones
+Artículo 78. Canon anual de regulación y administración de bases de datos. De conformidad con la Ley, todas las bases de datos, públicas o privadas, con fines de distribución, difusión o comercialización, deben inscribirse ante la Agencia, y por ende cancelar ante ésta, la suma de doscientos dólares moneda de curso legal de los Estados Unidos de América (USD $200,00), al tipo de cambio mayor de referencia de venta del Banco Central de Costa Rica del día en que se realice el pago. Dicho monto corresponde al canon anual de regulación y administración de las bases de datos.

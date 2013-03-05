@@ -1,0 +1,1 @@
+Artículo 10. Negativa a la revocación. En caso de negativa, expresa o tácita, por parte del responsable, a tramitar la revocación del consentimiento, el titular podrá presentar ante la Agencia la denuncia correspondiente a que refiere la Ley y este Reglamento.

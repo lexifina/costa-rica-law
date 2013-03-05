@@ -1,0 +1,1 @@
+Artículo 79. Plazo para el pago. El plazo para el pago del canon anual será del 1º al 31º enero de cada año. Los responsables de las bases de datos inscribibles, deberán depositar en la cuenta bancaria que la Agencia determine el monto correspondiente al canon anual.

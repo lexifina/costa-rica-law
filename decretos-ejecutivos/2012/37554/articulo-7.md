@@ -1,0 +1,1 @@
+Artículo 7. De la revocación. En cualquier momento, el titular podrá revocar su consentimiento para el tratamiento de sus datos personales, para lo cual el responsable deberá establecer mecanismos expeditos, sencillos y gratuitos, que permitan al titular revocar su consentimiento.

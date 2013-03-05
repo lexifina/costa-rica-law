@@ -1,0 +1,1 @@
+Artículo 28. Condiciones del tratamiento. Corresponde al responsable o al encargado, la difusión, comercialización y distribución de dichos datos, según lo que determine el consentimiento informado otorgado por el titular, aún y cuando estos datos sean almacenados o alojados por un intermediario tecnológico.

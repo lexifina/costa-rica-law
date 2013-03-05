@@ -1,0 +1,2 @@
+Artículo 67. Traslado de cargos. Admitida la denuncia la Agencia hará el traslado de cargos a quien corresponda, para que dentro del plazo de tres días hábiles, brinde informe sobre la veracidad de los cargos y aporte la prueba que estime pertinente. Las manifestaciones realizadas se considerarán dadas bajo fe de juramento.
+La omisión de rendir informe en el plazo estipulado hará que se tengan por ciertos los hechos acusados.

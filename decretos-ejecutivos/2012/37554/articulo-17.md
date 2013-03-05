@@ -1,0 +1,2 @@
+Artículo 17. Medio para recibir notificaciones del titular. En la solicitud de acceso, rectificación, modificación, revocación o eliminación, para los efectos de la Ley y el presente Reglamento, se deberá indicar medio para recibir notificaciones.
+En caso de no cumplir con este requisito, opera la notificación automática señalada en la Ley de Notificaciones Judiciales, Ley No. 8687, del 4 del diciembre del 2008, publicado en La Gaceta No. 20 del 29 de enero de 2009, y sus reformas.

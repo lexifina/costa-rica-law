@@ -1,0 +1,1 @@
+Artículo 69. Acto final. La Agencia resolverá el procedimiento de protección de derechos en el plazo de un mes, a partir la firmeza de la resolución que resuelva sobre la admisibilidad de la denuncia.

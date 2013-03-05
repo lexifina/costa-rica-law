@@ -1,0 +1,5 @@
+Artículo 88. Reclutamiento y selección. El proceso de reclutamiento y selección deberá de contar con las siguientes fases:
+a) Reclutamiento: Con base en los requerimientos de los manuales de cargos y puestos y las necesidades de la Agencia en cuanto a personal, se definirán y publicarán los requisitos de cada puesto requerido. El reclutamiento puede hacerse tanto a lo interno como externo de la Agencia. Asimismo, se conformará un registro de elegibles por cada puesto, mismo que se integrará de notas de mayor a menor.
+b) Selección: La Agencia definirá las metodologías, pruebas, herramientas y criterios de selección que considere oportunas a aplicar para la selección del personal.
+c) Conformación de ternas o nóminas: Estarán conformadas de acuerdo con la posición de los participantes dentro del registro de elegibles, pudiendo la Agencia escoger a cualquiera de las personas que las integren.
+Todos los procesos de gestión y administración de recurso humano que aplique la Agencia deberán cumplir las normas técnicas generalmente aceptadas en la materia.

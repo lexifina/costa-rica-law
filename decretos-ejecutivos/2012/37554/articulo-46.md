@@ -1,0 +1,1 @@
+Artículo 46. Constatación de posibles infracciones. La Agencia podrá realizar inspecciones administrativas de oficio, con el fin de constatar si existen posibles infracciones a la Ley o a este Reglamento. En dicho caso el funcionario asignado deberá dejar constancia de la inspección mediante el levantamiento de un acta.

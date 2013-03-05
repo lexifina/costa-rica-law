@@ -1,0 +1,1 @@
+Artículo 15. Personas facultadas para el ejercicio de los derechos. Los derechos de acceso, rectificación, modificación, revocación o eliminación, se ejercerán por el titular o su representante, previa acreditación de la titularidad o de la representación.

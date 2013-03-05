@@ -1,0 +1,1 @@
+Artículo 71. Medios de impugnación. Contra el acto final del procedimiento procede dentro del tercer día hábil a partir de la respectiva notificación, la interposición ante la Agencia de los Recursos ordinarios de Reconsideración y Apelación, siendo potestativo usar ambos recursos o uno solo de ellos, pero será inadmisible el que se interponga pasado dicho plazo.

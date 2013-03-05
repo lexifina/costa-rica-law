@@ -1,0 +1,1 @@
+Artículo 41. Cumplimiento de los protocolos mínimos de actuación. Las transferencias de datos personales por parte de los responsables, estarán supeditadas al fiel cumplimiento de los protocolos mínimos de actuación, debidamente inscritos ante la Agencia.

@@ -1,0 +1,1 @@
+Artículo 13. Ejercicio de los derechos. El ejercicio de cualquiera de los derechos de acceso, rectificación, modificación, revocación o eliminación de los datos personales por parte del titular, no excluye la posibilidad de ejercer unos u otros, ni puede constituir requisito previo para el ejercicio de cualquiera de estos derechos.

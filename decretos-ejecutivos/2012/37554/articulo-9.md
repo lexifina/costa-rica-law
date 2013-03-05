@@ -1,0 +1,1 @@
+Artículo 9. Plazo para la confirmación de la revocación. Cuando el titular solicite la confirmación del cese del tratamiento de sus datos, el responsable deberá responder en forma gratuita, expresamente en el plazo de tres días hábiles, a partir de la presentación de dicha solicitud.

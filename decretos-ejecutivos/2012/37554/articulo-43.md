@@ -1,0 +1,1 @@
+Artículo 43. Contrato para la transferencia de datos. El responsable de la transferencia de datos personales deberá establecer un contrato con el responsable receptor, en el que se prevean, al menos las mismas obligaciones a las que se encuentra sujeto el responsable de la transferencia de dichos datos.

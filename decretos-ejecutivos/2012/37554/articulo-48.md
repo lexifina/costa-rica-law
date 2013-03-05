@@ -1,0 +1,2 @@
+Artículo 48. Procedimiento de inscripción. Inicia con la presentación de la solicitud de inscripción del registro de la base de datos personales ante la Agencia. Dicha solicitud, deberá contener los requisitos exigidos en el presente Reglamento.
+La Agencia contará con un plazo de veinte días hábiles, contados a partir de la presentación de la solicitud, para verificar los requisitos de forma y fondo presentados.

@@ -1,0 +1,1 @@
+Artículo 61. Acreditación de la documentación. Si el titular no pudiera acreditar documentalmente que gestionó ante la base de datos, podrá acreditar ante la Agencia la gestión, mediante declaración jurada o acta notarial que haga constar el hecho.

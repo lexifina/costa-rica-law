@@ -1,0 +1,1 @@
+Artículo 53. Resolución de improcedencia. El Director de la Agencia, dentro de los veinte días hábiles contados a partir de la presentación de la solicitud de inscripción, cuando del análisis de los requisitos se determine la improcedencia de la inscripción de la base de datos, según lo dispuesto en la Ley y el presente Reglamento, dictará resolución denegándola.

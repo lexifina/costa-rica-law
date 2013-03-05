@@ -1,0 +1,2 @@
+Artículo 51. Resolución de inscripción. El Director de la Agencia, dictará dentro del plazo de diez días hábiles siguientes a la recepción del pago del canon, la resolución de inscripción del registro de la base de datos.
+La inscripción del registro de una base de datos ante la Agencia, no exime al responsable al cumplimiento y seguimiento del resto de las obligaciones previstas en la Ley y demás disposiciones reglamentarias.
