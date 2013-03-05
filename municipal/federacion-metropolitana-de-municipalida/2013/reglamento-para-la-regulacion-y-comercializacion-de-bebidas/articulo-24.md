@@ -1,0 +1,1 @@
+Artículo 24.—Recursos. La resolución que deniegue una licencia o que imponga una sanción tendrá los medios de impugnación que se establecen en el régimen recursivo del Código Municipal. En los casos en que la resolución sea emitida por el Concejo Municipal, cabrá solamente el recurso de reconsideración.
