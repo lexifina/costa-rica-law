@@ -1,1 +1,0 @@
-18.—De conformidad con lo dispuesto en el artículo 6-06 (c) del Tratado, quienes importen bienes bajo trato arancelario preferencial deberán conservar, durante un mínimo de cinco años, el certificado de origen y demás documentos relativos a la importación.

@@ -1,1 +1,0 @@
-29.—De conformidad con lo dispuesto en el artículo 6-07 (11) del Tratado, la autoridad competente deberá proporcionar una resolución escrita al exportador o productor cuyo bien o bienes hayan sido objeto de una verificación, dentro de los 120 días siguientes a¬ la conclusión de la verificación.

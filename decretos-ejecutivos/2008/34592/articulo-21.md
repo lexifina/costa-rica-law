@@ -1,1 +1,0 @@
-21.—La notificación de la visita de verificación de origen, a que hace referencia el numeral 20 de la presente Reglamentación, deberá contener, al menos, los requisitos establecidos en el artículo 6-07 (7) del Tratado.

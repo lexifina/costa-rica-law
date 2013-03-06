@@ -1,3 +1,0 @@
-15.—Para los efectos del numeral 14 de la presente Reglamentación, se considerará que:
-I. Una importación se realiza con fines comerciales, cuando se efectúa con propósitos de venta, o utilización para la realización de actividades comerciales, industriales o de servicios.
-II. Una importación forma parte de una serie de importaciones efectuadas o que se pretendan realizar con el propósito de evadir el cumplimiento de los artículos 6-02 y 6-03 del Tratado, cuando se presenten dos o más declaraciones aduaneras de importación que amparen bienes ingresados en el mismo envío y despachados al amparo de una o más facturas comerciales del mismo exportador.

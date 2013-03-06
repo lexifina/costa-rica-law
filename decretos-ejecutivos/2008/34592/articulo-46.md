@@ -1,1 +1,0 @@
-46.—De conformidad con el artículo 6-10 (11) del Tratado, cuando la autoridad competente determine que algún criterio anticipado está fundado en información incorrecta, no sancionará al promovente, siempre que éste demuestre que actuó con cuidado razonable y de buena fe al manifestar los hechos y circunstancias en que se basó el criterio anticipado.
