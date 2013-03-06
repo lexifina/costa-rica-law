@@ -1,0 +1,1 @@
+IV. Devolver el expediente administrativo a la Intendencia de Energía (IE) para que proceda a fijar una tarifa, tomando en consideración los criterios establecidos en el presente dictamen en cuanto a la actualización del monto de inversión unitaria y corregir el cálculo de la desviación estándar de los datos de costos de inversión.

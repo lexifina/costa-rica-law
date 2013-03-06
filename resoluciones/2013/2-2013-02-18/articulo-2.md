@@ -1,0 +1,1 @@
+II. Declarar parcialmente con lugar los recursos de apelación interpuestos por la Asociación Costarricense de Productores de Energía (ACOPE), El Embalse S.A. e Hidroeléctrica Caño Grande S.A. contra la resolución 796-RCR-2012, únicamente en cuanto al argumento 1, referente a la utilización del índice PCU221110221110 para la actualización del costo de inversión.

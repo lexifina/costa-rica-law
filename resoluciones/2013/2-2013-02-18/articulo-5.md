@@ -1,0 +1,1 @@
+V. Solicitar a la Dirección General Centro de Desarrollo de la Regulación, para que a la brevedad posible, someta a su conocimiento la propuesta de metodología para incorporar el factor ambiental a las tarifas en cuestión.
