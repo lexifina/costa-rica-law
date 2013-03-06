@@ -1,0 +1,1 @@
+ARTÍCULO 10: Para efecto de su implementación, el equipo gerencial del CUC se conforma por el Consejo de Decanatura, el cual procederá a diseñar y establecer las orientaciones operativas que permitan llevarlo a la práctica en forma óptima.

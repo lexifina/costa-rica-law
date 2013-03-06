@@ -1,0 +1,1 @@
+ARTÍCULO 85: Incurrirá en falta grave el funcionario que efectúe un registro de asistencia que no sea el suyo, así como el que solicite a otra persona que registre su marca de asistencia o consienta tal acto, así como el que maliciosamente altere, mutile, haga desaparecer o dañe un registro o un medio de control.

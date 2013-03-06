@@ -1,0 +1,1 @@
+ARTÍCULO 41: El Sistema de Evaluación deberá asegurar el derecho a impugnar del funcionario, en caso de disconformidad con el resultado de la evaluación o apreciación del desempeño asignada. Lo anterior de acuerdo con los lineamientos establecidos por el Departamento de Recursos Humanos.

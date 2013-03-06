@@ -1,0 +1,1 @@
+ARTÍCULO 53: El tiempo necesario para adquirir el derecho a vacaciones no se interrumpirá por incapacidad comprobada, permisos otorgados con goce de salario o las licencias concedidas al funcionario, conforme al artículo 63 del presente Reglamento.

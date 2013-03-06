@@ -1,0 +1,1 @@
+ARTÍCULO 54: El disfrute del derecho a vacaciones se interrumpirá por incapacidad comprobada, por cualquiera de los casos previstos en los artículos 52 y 65 del presente Reglamento o por el regreso voluntario del funcionario, si este cuenta con la aprobación de su jefatura inmediata.

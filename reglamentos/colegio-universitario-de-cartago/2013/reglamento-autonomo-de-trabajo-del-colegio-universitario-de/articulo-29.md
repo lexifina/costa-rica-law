@@ -1,0 +1,1 @@
+ARTÍCULO 29: El CUC establecerá, por medio del Departamento de Recursos Humanos, un sistema de reconocimientos y méritos, con el objetivo de distinguir la labor de sus funcionarios, según el Manual de Reconocimientos elaborado por el mismo Departamento.

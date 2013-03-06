@@ -1,0 +1,1 @@
+ARTÍCULO 40: El Departamento de Recursos Humanos, en coordinación con la DAF o la Dirección Académica, según corresponda, establecerá y administrará un sistema de evaluación del desempeño de los funcionarios administrativos y académicos, objetivo, moderno, práctico y que sirva de soporte útil al modelo gerencial institucional, en particular a la filosofía de calidad.

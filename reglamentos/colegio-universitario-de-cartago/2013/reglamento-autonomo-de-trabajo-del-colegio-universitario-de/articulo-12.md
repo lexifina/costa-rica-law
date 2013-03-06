@@ -1,0 +1,1 @@
+ARTÍCULO 12: En todas las fases de este proceso, se dará participación a los diversos sectores del CUC y se tomará en cuenta su punto de vista. Con antelación, deberán ser informados, de manera amplia y sistemática, de los alcances, contenidos, metodologías y beneficios del modelo que se adopte y de su aplicación.

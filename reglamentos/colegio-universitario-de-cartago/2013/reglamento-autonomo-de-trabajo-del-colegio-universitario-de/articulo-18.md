@@ -1,0 +1,1 @@
+ARTÍCULO 18: La relación de servicio se inicia, modifica o extingue mediante un acto válido y eficaz realizado por los órganos competentes del CUC y formalizado en la respectiva acción de personal o contrato, el cual será emitido por el Departamento de Recursos Humanos y autorizado por el Decano, previa propuesta de la DAF.

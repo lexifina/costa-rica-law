@@ -1,0 +1,1 @@
+ARTÍCULO 77: En caso de que el funcionario asuma un recargo de funciones en un puesto de mayor categoría salarial, adicionalmente a sus labores y por un período temporal que exceda un mes calendario ininterrumpidamente, se le remunerará con el salario base de ese puesto mientras dure el recargo.

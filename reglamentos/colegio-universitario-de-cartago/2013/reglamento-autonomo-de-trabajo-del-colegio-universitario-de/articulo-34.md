@@ -1,0 +1,1 @@
+ARTÍCULO 34: Los dos artículos anteriores se aplicarán, sin perjuicio de lo que al respecto señalen otras normas jurídicas que regulen la contratación y remuneración de personal en la Administración Pública.

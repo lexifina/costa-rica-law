@@ -1,0 +1,1 @@
+ARTÍCULO 19: Para efectos de suplencias, se procederá en concordancia con lo dispuesto en los artículos 95 y siguientes de la Ley General de la Administración Pública, así como de las directrices de política salarial y empleo que la Autoridad Presupuestaria expida al respecto y en este Reglamento.

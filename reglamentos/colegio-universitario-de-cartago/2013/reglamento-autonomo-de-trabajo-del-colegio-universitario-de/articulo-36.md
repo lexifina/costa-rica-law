@@ -1,0 +1,1 @@
+ARTÍCULO 36: La asignación de fracciones de jornada para los funcionarios académicos responderá a la necesidad institucional y se hará de acuerdo con el índice que, para tal efecto, elabore el Departamento de Recursos Humanos.

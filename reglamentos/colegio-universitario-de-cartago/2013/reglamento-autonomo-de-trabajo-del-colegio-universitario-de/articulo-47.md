@@ -1,0 +1,1 @@
+ARTÍCULO 47: Para efectos del derecho a vacaciones, se reconocerá la antigüedad servida en otra institución pública no menor a un año, para lo cual deberá acreditarse la misma con las certificaciones correspondientes.

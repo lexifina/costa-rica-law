@@ -1,0 +1,1 @@
+ARTÍCULO 114: Se amonestará por escrito al funcionario que por primera vez no atienda un citatorio como testigo o no remita la información que le sea solicitada para la adecuada resolución de un asunto disciplinario laboral o administrativo donde no se encuentre involucrado personalmente y se le impondrá suspensión sin goce de salario por cinco días en caso de reincidencia.

@@ -1,0 +1,1 @@
+ARTÍCULO 90: Las salidas del centro de trabajo que ejecuten los funcionarios durante su jornada laboral diaria deben ser autorizadas por el jefe inmediato. Se exceptúa a los trabajadores que, por el carácter de sus funciones, tienen facultad para salir de la institución.

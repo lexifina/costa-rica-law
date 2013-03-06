@@ -1,0 +1,1 @@
+ARTÍCULO 42: Las calificaciones de las evaluaciones serán consideradas con los términos de excelente, muy bueno, bueno, regulares, deficiente, y servirán para resolver materia de ascensos, traslados e incentivos a funcionarios, siendo aquella una de las herramientas para decidir sobre cambios en los términos de la relación de servicio.

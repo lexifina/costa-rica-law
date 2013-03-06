@@ -1,0 +1,1 @@
+ARTÍCULO 5: En virtud del principio de legalidad, el funcionario podrá disfrutar de los beneficios a los cuales tiene derecho y la Administración ejercerá solamente las potestades expresamente autorizadas por este Reglamento y por las demás normas del ordenamiento jurídico.

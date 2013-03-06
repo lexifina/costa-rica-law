@@ -1,0 +1,1 @@
+ARTÍCULO 70: Tratándose de una incapacidad por riesgo laboral, se regirá según lo dispuesto en la Ley Sobre Riesgos del Trabajo y sus reformas, garantizándose al funcionario, en todo caso, el pago su salario completo.

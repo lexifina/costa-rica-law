@@ -1,0 +1,1 @@
+ARTÍCULO 24: Es deber de los superiores jerárquicos enviar, al expediente personal de cada funcionario, una copia de los documentos que puedan contener o generar efectos jurídicos o actos administrativos que afecten positiva o negativamente la relación de servicio, así como informar al interesado.

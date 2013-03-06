@@ -1,0 +1,1 @@
+ARTÍCULO 101: La valoración de toda falta cometida y el establecimiento de la sanción correspondiente, se efectuarán en todos los casos, de conformidad con los principios generales del Derecho Administrativo y este reglamento.

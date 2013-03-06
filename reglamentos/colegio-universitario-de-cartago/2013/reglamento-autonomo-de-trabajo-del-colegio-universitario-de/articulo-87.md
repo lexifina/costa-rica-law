@@ -1,0 +1,1 @@
+ARTÍCULO 87: Se considera llegada tardía el ingreso al trabajo después de diez minutos de la hora señalada para el inicio de las labores en la jornada diaria. La llegada tardía injustificada mayor de quince minutos de dicha hora se considerará como media ausencia para efectos de sanción.

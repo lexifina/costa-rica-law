@@ -1,0 +1,2 @@
+ARTÍCULO 125: Se deroga el anterior Reglamento Autónomo de Trabajo (RAT) y cualquier otra disposición interna que se oponga al presente Reglamento Autónomo de Trabajo del Colegio Universitario de Cartago (RAT), el cual rige a partir de su aprobación por parte del Consejo Directivo 3044 del seis de marzo de dos mil trece y el STAP -0350-2013, de la Secretaría Técnica de la Autoridad Presupuestaria, del veintisiete de febrero de dos mil trece, para su publicación en el Diario Oficial La Gaceta.
+Cartago, 7 de marzo del 2013.—

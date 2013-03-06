@@ -1,0 +1,1 @@
+ARTÍCULO 91: Se considerará abandono de trabajo cuando el funcionario se desvincule o cese de hacer el mismo, sin causa justificada dentro de la jornada laboral. Para tal calificación no es necesario que el funcionario deje su puesto de servicio, sino bastará que, en forma evidente, abandone las labores que tiene encomendadas.

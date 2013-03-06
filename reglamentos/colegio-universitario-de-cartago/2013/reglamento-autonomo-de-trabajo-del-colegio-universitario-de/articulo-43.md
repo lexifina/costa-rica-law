@@ -1,0 +1,1 @@
+ARTÍCULO 43: En caso que el funcionario obtenga dos calificaciones sucesivas de regular o una deficiente, se realizará una advertencia y se ofrecerá una oportunidad para su mejoría. De repetir estas calificaciones, se considerará falta grave para todo efecto legal, dando al CUC la posibilidad de despedir al funcionario, previa aplicación del debido proceso administrativo.

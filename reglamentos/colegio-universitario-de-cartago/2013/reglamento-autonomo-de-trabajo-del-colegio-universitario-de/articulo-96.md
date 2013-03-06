@@ -1,0 +1,1 @@
+ARTÍCULO 96: El cometido de la CISO será desempeñado dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos de los funcionarios que la conforman y de las labores a ellos asignadas.

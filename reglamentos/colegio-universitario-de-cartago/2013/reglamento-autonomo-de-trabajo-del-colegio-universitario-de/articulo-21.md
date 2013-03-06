@@ -1,0 +1,1 @@
+ARTÍCULO 21: Corresponde al Departamento de Recursos Humanos, con el visto bueno de la Decanatura, elaborar, mantener actualizadas y someter a aprobación del Consejo Directivo las normas que regulen los procesos a que se refiere el artículo anterior. Tales normas deberán apegarse a los principios normativos vigentes.

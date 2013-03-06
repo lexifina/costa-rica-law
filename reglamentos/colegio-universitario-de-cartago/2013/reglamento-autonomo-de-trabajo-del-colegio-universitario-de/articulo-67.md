@@ -1,0 +1,1 @@
+ARTÍCULO 67: Si se comprobare simulación o engaño por parte del funcionario en la solicitud o documentación referida en el artículo anterior, este se hará acreedor a sanciones administrativas o de cualquier otra índole que le puedan corresponder.

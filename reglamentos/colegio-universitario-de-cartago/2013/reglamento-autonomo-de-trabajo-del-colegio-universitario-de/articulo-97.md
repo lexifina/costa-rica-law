@@ -1,0 +1,1 @@
+ARTÍCULO 97: La CISO será la responsable de promover, coordinar, ejecutar y fiscalizar las políticas y medidas que se adopten en materia de Salud Ocupacional, así como de la integración de brigadas de salud ocupacional, las cuales recibirán el aprendizaje organizacional necesario que las faculte para cumplir su cometido.

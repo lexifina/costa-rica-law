@@ -1,0 +1,1 @@
+ARTÍCULO 92: El funcionario que se ausente de su trabajo durante dos días consecutivos sin permiso previo y sin justificación alguna, o durante más de dos días alternos dentro del mismo mes calendario, incurrirá en falta muy grave y se le podrá despedir sin responsabilidad patronal.

@@ -1,0 +1,1 @@
+ARTÍCULO 64: Los permisos sin goce de salario que no excedan de tres días serán concedidos por el jefe inmediato, previa solicitud escrita del interesado; dicho jefe resolverá por escrito y remitirá copia de la solicitud y de la resolución al Departamento de Recursos Humanos.

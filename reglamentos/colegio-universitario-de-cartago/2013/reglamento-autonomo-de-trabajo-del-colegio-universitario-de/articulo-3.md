@@ -1,0 +1,1 @@
+ARTÍCULO 3: Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento, así como las políticas y acciones que se originen de los mismos, son de aplicación obligatoria para todas las actividades administrativas o académicas que se relacionen con los derechos, beneficios y obligaciones de los funcionarios.

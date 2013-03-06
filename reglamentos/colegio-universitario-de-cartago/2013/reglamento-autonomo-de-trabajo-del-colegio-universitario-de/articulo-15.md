@@ -1,0 +1,9 @@
+CAPÍTULO V
+Estructura organizativa de la Institución
+ARTÍCULO 15: La estructura organizativa del CUC está integrada por:
+1. El Consejo Directivo, órgano superior de la Institución que cumple las atribuciones y funciones que le señala el Decreto Ejecutivo Nº 36289-MEP. Reglamento a la Ley que Regula las instituciones de enseñanza superior parauniversitaria.
+2. El Decano, funcionario que tiene las atribuciones y potestades que le otorga la Ley Nº 6541, la Ley General de la Administración Pública y el Decreto Ejecutivo Nº 36289-MEP, así como este Reglamento Autónomo de Trabajo del CUC.
+3. La Dirección Académica es el ente que tiene a su cargo la dirección, organización y orientación de las carreras a nivel de diplomado parauniversitario, además coordina los procesos de diseño y rediseño curricular, para lo cual dispone de las Unidades de Tecnología Educativa y Diseño Curricular.
+4. La DAF es la dependencia institucional encargada de realizar los procesos propios de los servicios de registro, administración de recursos humanos, financiero, ejecución presupuestaria, bienestar estudiantil, proveeduría, servicios operativos, publicaciones, biblioteca y otros que lo requieran para la adecuada gestión administrativa.
+5. La Dirección de Planificación y Desarrollo realiza los estudios necesarios para justificar la apertura, desarrollo, congelación y supresión de carreras, y la formulación presupuestaria, así como de elaborar aquellos proyectos tendientes al desarrollo integral de la Institución.
+6. La Dirección de Educación Comunitaria y Asistencia Técnica, o DECAT, tiene a su cargo la organización, dirección e implementación de los cursos libres dirigidos a la comunidad, los programas técnicos tendientes a formar el recurso humano en procesos de desarrollo integral, asesorías, capacitaciones y actualizaciones.

@@ -1,0 +1,1 @@
+ARTÍCULO 16: El funcionario que ocupa el cargo titular en la Decanatura será el de mayor jerarquía administrativa dentro de la Institución y se encargará de ejecutar los acuerdos del Consejo Directivo, salvo que sea asignada para su ejecución a otra dependencia o funcionario expresamente.

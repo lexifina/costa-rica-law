@@ -1,0 +1,1 @@
+ARTÍCULO 86: Todo funcionario deberá comunicar a su jefe inmediato, con la prontitud que el caso amerite, y por un medio idóneo, su llegada tardía o si durante la misma jornada estará ausente de sus labores, sin que tal aviso signifique la justificación de la ausencia.

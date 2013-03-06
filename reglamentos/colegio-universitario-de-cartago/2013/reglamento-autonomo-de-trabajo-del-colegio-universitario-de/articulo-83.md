@@ -1,0 +1,1 @@
+ARTÍCULO 83: La asistencia al trabajo será registrada personalmente por cada funcionario al inicio y finalización de su horario laboral, mediante el sistema de control implementado por la Institución.

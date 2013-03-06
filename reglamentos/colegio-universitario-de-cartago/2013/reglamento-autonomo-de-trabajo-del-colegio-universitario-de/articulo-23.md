@@ -1,0 +1,1 @@
+ARTÍCULO 23: El Departamento de Recursos Humanos será el encargado de crear, foliar, mantener actualizado y en custodia el expediente personal de cada funcionario, el cual comprenderá toda la documentación e información que integra el historial de la relación de servicio del mismo.

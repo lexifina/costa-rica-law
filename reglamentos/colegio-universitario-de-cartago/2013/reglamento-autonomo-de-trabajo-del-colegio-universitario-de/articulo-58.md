@@ -1,0 +1,3 @@
+ARTÍCULO 58: La jornada ordinaria de trabajo de los funcionarios del CUC, será de treinta y cinco (35) horas semanales y se desarrollará en dos turnos de siete horas diarias: De las 9:00 horas a las 16:00 horas ó de las 12:00 horas a las 19:00 horas.
+No obstante, el CUC, podrá establecer jornadas ordinarias diferentes a ésta por razones de salud ocupacional, así como horarios de trabajo diverso a los que se señalan en el artículo siguiente.
+La jornada y el horario de trabajo de los funcionarios del Departamento de Servicios Operativos, serán regulados por su Jefatura, en las situaciones donde justificadamente la Institución lo requiera.

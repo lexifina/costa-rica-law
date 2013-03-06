@@ -1,0 +1,1 @@
+ARTÍCULO 89: El control del lapso concedido para recesos de alimentos y descanso es responsabilidad del jefe inmediato, quien aplicará las medidas disciplinarias para que no se produzcan excesos ni se afecte la continuidad del servicio.

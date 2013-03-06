@@ -1,0 +1,1 @@
+ARTÍCULO 99: El CUC deberá acatar las disposiciones que en materia de salud ocupacional establezca la CISO, especialmente en cuanto al suministro de implementos, herramientas y equipo de protección a los trabajadores.

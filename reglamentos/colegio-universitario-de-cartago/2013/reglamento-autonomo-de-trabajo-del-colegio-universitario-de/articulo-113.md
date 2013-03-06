@@ -1,0 +1,7 @@
+ARTÍCULO 113: Respecto al funcionario que incurra en las causales tipificadas por el artículo 81 del Código de Trabajo, sin perjuicio de cualquier otra prevista en este Reglamento, en otras leyes y demás reglamentos de orden estatutario y laboral, podrá acordarse el despido sin responsabilidad patronal cuando:
+1. Con dolo se apodere, altere, destruya, inutilice, facilite, transfiera o retenga cualquier tipo de documentación, grabación, programa de cómputo, bases de datos u otros de igual naturaleza, utilizados por el CUC en asuntos propios del servicio.
+2. Dañe los componentes materiales, aparatos, máquinas o accesorios que apoyen el funcionamiento de las gestiones del CUC o los sistemas informáticos diseñados para la operación de cualquiera de las dependencias de la Institución, con cualquier propósito.
+3. Facilite el uso del código o las claves de acceso asignados para ingresar en los sistemas informáticos del CUC, para que otra persona los utilice a cualquier título.
+4. Colabore o facilite de manera directa o indirecta, por acción u omisión de cualquier forma, el incumplimiento de las obligaciones económicas o de otro tipo contraídas con la Institución o de cualquier otra retribución o beneficios.
+5. Oculte, copie o destruya información o datos de la Institución, sin autorización previa de la autoridad competente.
+6. Vulnere la confidencialidad en el procedimiento por casos de hostigamiento sexual y acoso laboral.

@@ -1,0 +1,1 @@
+ARTÍCULO 55: En el caso de los trabajadores nombrados a plazo fijo e interinos, el disfrute de su derecho a vacaciones o su eventual liquidación se regulará de forma proporcional a su período laborado.

@@ -1,0 +1,1 @@
+ARTÍCULO 49: Todos los días del año son hábiles para el trabajo, salvo los feriados señalados en el artículo 148 del Código de Trabajo y aquellos que el Poder Ejecutivo o el Consejo Directivo declaren de asueto mediante el acuerdo correspondiente. Sin embargo, podrá trabajarse en esos días cuando las excepciones contenidas en el artículo 151 del Código de Trabajo lo posibiliten.

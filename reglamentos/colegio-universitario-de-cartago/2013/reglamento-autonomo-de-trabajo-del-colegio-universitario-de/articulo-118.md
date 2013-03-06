@@ -1,0 +1,1 @@
+ARTÍCULO 118: En casos muy calificados y cuando por la naturaleza de la presunta falta se considere perjudicial la permanencia del funcionario en el puesto de trabajo, procederá la suspensión con goce de salario en el cargo o su traslado temporal a otro puesto, durante la tramitación del procedimiento administrativo.

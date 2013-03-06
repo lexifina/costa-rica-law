@@ -1,0 +1,1 @@
+ARTÍCULO 57: El cambio de sitio donde se prestan los servicios deberá ser comunicado al funcionario afectado con al menos ocho días naturales de anticipación, salvo casos de fuerza mayor. La Administración deberá valorar las razones que el personal exponga como objeción al cambio dispuesto.

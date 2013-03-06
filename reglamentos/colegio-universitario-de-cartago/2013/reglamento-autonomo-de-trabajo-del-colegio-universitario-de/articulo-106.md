@@ -1,0 +1,3 @@
+ARTÍCULO 106: El despido sin responsabilidad patronal para el CUC se efectuará, previo cumplimiento del debido proceso establecido en este Capítulo, en los siguientes casos:
+1. Cuando al trabajador en dos ocasiones se le haya impuesto sanción de suspensión del trabajo e incurra nuevamente en una causal que motive una nueva suspensión, en un período de tres meses.
+2. En las demás causales prevista en este Reglamento, en los artículos 81 y 369 del Código de Trabajo, en la Ley General de la Administración Pública y en todas aquellas que se establecen mediante leyes y otras disposiciones normativas aplicables, conexas y supletorias que rigen el servicio y empleo público.

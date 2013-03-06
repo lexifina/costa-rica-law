@@ -1,0 +1,1 @@
+ARTÍCULO 78: El CUC pagará el décimo tercer mes o aguinaldo en los primeros diez días naturales del mes de diciembre de cada año. Asimismo, pagará el salario escolar a más tardar en la tercera semana del mes de enero de cada año.

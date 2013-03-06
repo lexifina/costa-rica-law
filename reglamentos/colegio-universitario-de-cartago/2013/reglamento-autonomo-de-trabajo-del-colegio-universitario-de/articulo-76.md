@@ -1,0 +1,1 @@
+ARTÍCULO 76: El pago de los salarios se regirá conforme al cronograma institucional. Si por razones de fuerza mayor no fuere posible efectuar el pago en la fecha correspondiente, la Administración podrá realizarlo antes o al día siguiente de la misma, sin que de ello se derive responsabilidad alguna para el CUC.

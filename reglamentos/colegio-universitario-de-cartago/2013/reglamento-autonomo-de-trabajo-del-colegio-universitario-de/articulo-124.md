@@ -1,0 +1,1 @@
+ARTÍCULO 124: En defecto de disposiciones propias en este Reglamento, deberán tenerse también como supletorias las contenidas en el Manual Institucional de Clases y Cargos de la Institución, el Estatuto de Servicio Civil y demás leyes, decretos y reglamentos vigentes en la materia de empleo público y laboral.
