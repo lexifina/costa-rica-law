@@ -1,1 +1,0 @@
-Artículo 36.—Los demás regidores, síndicos, miembros de la administración municipal y público en general estarán atentos y en silencio, escuchando las exposiciones de sus compañeros y de las personas que hagan uso de la palabra en las sesiones.

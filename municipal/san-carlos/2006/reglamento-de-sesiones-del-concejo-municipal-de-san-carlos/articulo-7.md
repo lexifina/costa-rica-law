@@ -1,1 +1,0 @@
-Artículo 7º—El quórum de las sesiones será la mitad más uno de los miembros del Concejo Municipal. Deberán encontrarse en el Salón de sesiones, ocupando sus respectivas curules al inicio de la sesión, durante las deliberaciones y al efectuarse las motivaciones.

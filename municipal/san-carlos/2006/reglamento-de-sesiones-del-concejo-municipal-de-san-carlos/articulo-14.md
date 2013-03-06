@@ -1,1 +1,0 @@
-Artículo 14.—Una vez leída el acta y antes de ser aprobada, cualquier Regidor podrá plantear revisión de acuerdos, salvo los que hayan sido aprobados definitivamente y su derogación cause perjuicios a derechos de terceros.

@@ -1,1 +1,0 @@
-Artículo 12.—Las sesiones del Concejo se desarrollarán conforme con el orden previamente elaborado, el cual podrá ser modificado o alterado mediante aprobación del Concejo Municipal de las dos terceras partes de los miembros presentes.

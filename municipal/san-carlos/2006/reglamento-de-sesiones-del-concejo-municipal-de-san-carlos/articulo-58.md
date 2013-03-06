@@ -1,1 +1,0 @@
-Artículo 58.—La Secretaría Municipal hará llegar al Presidente del Concejo Municipal la lista de las personas que se recibirán durante la sesión, con la debida anticipación para que tenga tiempo de ajustar la agenda con los temas que se pretenden analizar en ella.

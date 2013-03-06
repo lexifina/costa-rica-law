@@ -1,1 +1,0 @@
-Artículo 34.—Para solicitar el uso de la palabra al Presidente, los regidores lo harán levantando la mano y el Presidente anotará los nombres de los solicitantes según el orden de petición para otorgar la palabra.

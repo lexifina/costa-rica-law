@@ -1,1 +1,0 @@
-Artículo 98.—Se pagará desayuno cuando por representar a la Municipalidad haya que salir antes de las seis de la mañana, el almuerzo cuando tenga que salir antes de las doce del día, cena cuando tenga que regresar después de las dieciocho horas.

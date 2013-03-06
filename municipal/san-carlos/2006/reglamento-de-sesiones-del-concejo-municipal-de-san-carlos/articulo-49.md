@@ -1,1 +1,0 @@
-Artículo 49.—Cuando el objeto de la audiencia fuere de competencia de la Administración Municipal, el Presidente ordenará a la Secretaría remitir el memorial presentado a la Alcaldía Municipal, para que éste le de el trámite ante el funcionario competente. La Secretaría lo hará del conocimiento de los interesados.

@@ -1,1 +1,0 @@
-Artículo 57.—En el momento de solicitar la audiencia, el munícipe deberá indicar cual será el asunto a tratar, con el objeto de que los Regidores se preparen debidamente para la misma o citen al funcionario Municipal que conozca de la materia para que los asesore debidamente.

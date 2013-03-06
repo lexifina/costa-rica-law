@@ -1,1 +1,0 @@
-Artículo 16.—Los dictámenes de las Comisiones deben ser incluidos en el orden del día siguiendo el orden en que fueron presentados a la Secretaría, para ese efecto, la Secretaría al recibir los dictámenes consignará al pie de ellos la hora y la fecha de la presentación.

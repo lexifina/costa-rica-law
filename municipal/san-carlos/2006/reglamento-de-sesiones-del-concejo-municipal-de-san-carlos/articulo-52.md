@@ -1,1 +1,0 @@
-Artículo 52.—Si se presentaren memoriales que dirijan los particulares al Concejo Municipal, la Comisión de Correspondencia los examinará, y si resulta que lo solicitado es de competencia de la Administración Municipal, lo enviará al Alcalde Municipal para que le dé el trámite que le corresponda y se informará a los firmantes.

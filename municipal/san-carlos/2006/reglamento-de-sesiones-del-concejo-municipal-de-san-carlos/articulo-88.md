@@ -1,1 +1,0 @@
-Artículo 88.—En caso que los Regidores Suplentes, no hayan sustituido a los Propietarios en una sesión remunerable, pero estén presentes durante toda la sesión, serán acreedores de un cincuenta por ciento de la dieta correspondiente del Regidor Propietario.

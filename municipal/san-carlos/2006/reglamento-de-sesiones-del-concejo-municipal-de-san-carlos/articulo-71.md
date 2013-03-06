@@ -1,1 +1,0 @@
-Artículo 71.—Los horarios que deberá cumplir el personal dependiente del Concejo Municipal, serán los mismos designados por la Administración Municipal y para los permisos y vacaciones, se designa para otorgarlos, únicamente al Alcalde Municipal en cuanto a la Secretaria o Secretario del Concejo Municipal y para el señor Auditor Interno al Concejo Municipal.
