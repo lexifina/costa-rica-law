@@ -15,3 +15,4 @@ Reglamento de Cobro Administrativo y Judicial del Instituto Costarricense de Acu
 | --- | --- | --- |
 | 1 | 2005-05-12 | la propia norma |
 | 2 | 2006-05-23 | Reglamento 28 (2006-05-23) |
+| 3 | 2013-03-06 | Reglamento 0 (2013-03-06) |
