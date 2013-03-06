@@ -1,0 +1,1 @@
+Artículo 22.- Del Quórum de las Subcomisiones de Trabajo.- Las Subcomisiones de Trabajo sesionarán válidamente con la tercera parte de sus integrantes. En casos de urgencia podrá sesionar válidamente con la asistencia de tres de sus integrantes.

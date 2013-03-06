@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+De los Recursos Económicos
+Artículo 25.- Del Presupuesto. Cada una de las instituciones ejecutoras deberá incluir en las metas y presupuesto de su Plan Anual Operativo los recursos requeridos para cumplir con las responsabilidades que imponen las políticas, los planes y programas vigentes para el combate contra la explotación sexual comercial, en el marco de la planificación nacional y el plan nacional de desarrollo en vigencia. El o la Jerarca de cada institución debe enviar copia de las metas de los planes anuales operativos en explotación sexual comercial a la Secretaría Técnica de la CONACOES en el primer trimestre de cada año.

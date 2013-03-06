@@ -1,0 +1,1 @@
+Artículo 21.- De las Sesiones Ordinarias y Extraordinarias de las Subcomisiones de Trabajo: Internamente bajo la coordinación de las personas coordinadoras de las subcomisiones se planificará y organizará el trabajo de acuerdo a los objetivos que deban cumplirse derivados de los planes, programas y proyectos.

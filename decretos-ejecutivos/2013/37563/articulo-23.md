@@ -1,0 +1,2 @@
+Artículo 23.- De las Minutas y de los Acuerdos. De cada reunión plenaria y de cada reunión de subcomisión, se levantará una minuta que contendrá indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se han celebrado, los puntos principales discutidos y los acuerdos tomados. La minuta deberá permanecer bajo custodia del coordinador de la Comisión o Subcomisión y aportar copia a la Secretaría Técnica de la CONACOES.
+Los acuerdos se tomarán por mayoría simple de los presentes (la mitad mas uno).

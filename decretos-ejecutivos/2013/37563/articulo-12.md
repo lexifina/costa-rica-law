@@ -1,0 +1,1 @@
+Artículo 12.- De la Secretaría Técnica. La Secretaría Técnica de la CONACOES estará adscrita a la Presidencia del Patronato Nacional de la Infancia, dependencia que velará porque esta secretaría cuente con los recursos técnicos, materiales, financieros, humanos que necesite para el adecuado funcionamiento.

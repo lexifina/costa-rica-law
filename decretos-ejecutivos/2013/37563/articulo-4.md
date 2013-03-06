@@ -1,0 +1,1 @@
+Artículo 4.- De nuevos y nuevas representantes: Cualquier otra institución o entidad pública o privada, nacional o internacional, podrá tener representación en CONACOES por invitación del Consejo Nacional de Niñez y Adolescencia o bien, a petición de los mismos ante la Secretaría Técnica de la CONACOES quien elevará la solicitud a la Secretaría del Consejo para la aprobación.

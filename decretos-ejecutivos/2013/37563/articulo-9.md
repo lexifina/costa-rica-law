@@ -1,0 +1,1 @@
+Artículo 9.- De la Asamblea Plenaria. La Asamblea Plenaria estará conformada por las personas designadas como representantes, de conformidad con lo establecido en el Artículo 3 de este Decreto de Reglamento. En caso de que un representante no pueda acudir a alguna asamblea plenaria deberá asistir el suplente quien participará con voz y voto.

@@ -1,0 +1,1 @@
+Artículo 5.- De las personas representantes y suplentes. Deberán contar con la designación de su respectiva Jerarquía, y tener funciones vinculadas con la planificación interna institucional, o con proyectos de prevención, atención, investigación de la explotación sexual comercial de niños, niñas y adolescentes, o en la protección de las personas afectadas por esta problemática.

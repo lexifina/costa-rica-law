@@ -1,0 +1,1 @@
+Artículo 20.- Del Quórum de la Comisión.- La Comisión sesionará válidamente con la tercera parte de sus integrantes. En casos de urgencia podrá sesionar válidamente con la asistencia de diez de sus integrantes.

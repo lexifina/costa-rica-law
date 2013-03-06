@@ -1,0 +1,1 @@
+Artículo 6.- De la designación de representantes. Corresponderá a la Secretaría Técnica de la CONACOES solicitar a los y las jerarcas de las instituciones indicadas en el artículo 3 de este Decreto, la designación o ratificación de representantes y suplentes ante la CONACOES quienes deben cumplir con los requisitos establecidos en el artículo 5 de este mismo Decreto.
