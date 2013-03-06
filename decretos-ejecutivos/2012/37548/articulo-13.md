@@ -1,0 +1,1 @@
+Artículo 13º.- Los productos higiénicos utilizados por los establecimientos para labores de limpieza, desinfección, entre otros, deberán estar registrados ante el Ministerio de Salud, de conformidad con lo establecido en el Decreto N° 34887 del 25 de julio del 2008.

@@ -1,0 +1,1 @@
+Artículo 142º.- Las sanciones establecidas en este capítulo podrán aplicarse independientemente de las acciones civiles o penales que puedan establecerse contra quién o quienes hayan incurrido en la falta.

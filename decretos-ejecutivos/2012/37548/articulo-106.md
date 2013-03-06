@@ -1,0 +1,1 @@
+Artículo 106º.- La remoción de cloacas y vísceras podrá realizarse manual o mecánicamente, durante estos procesos, se evitará al máximo el cortar los intestinos esto con el fin de impedir contaminación fecal en la canal del ave.

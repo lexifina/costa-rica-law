@@ -1,0 +1,5 @@
+Artículo 46º.- El área de servicios sanitarios y lavamanos debe estar separada del área destinada a los vestidores, guardarropas y duchas. Se dispondrá de servicios sanitarios para cada sexo y deberán contar con puertas de acceso independientes y que tengan mecanismos de cierre automático.
+Cada planta deberá contar con la cantidad de servicios sanitarios necesarios, accesibles y adecuados, limpios y en buen estado, separados por sexo, con ventilación hacia el exterior, provistas de papel higiénico, jabón, dispositivos para secado de manos, basureros, separadas de la sección de proceso y poseerán como mínimo los siguientes equipos, según el número de trabajadores por turno:
+1. Inodoros: uno por cada veinte hombres, o fracción de veinte, uno por cada quince mujeres o fracción de quince.
+2. Duchas: una por cada veinticinco trabajadores, en los establecimientos que se requiera, según criterio de la autoridad sanitaria.
+Los basureros que se usen en esta área deben tener tapa, esta debe abrirse mediante mecanismos no manuales.

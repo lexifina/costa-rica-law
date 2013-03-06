@@ -1,0 +1,1 @@
+Artículo 128º.- El transporte de las aves desde las granjas hasta la planta de sacrificio se debe realizar en transportes acondicionados, de tal modo que se permita la ventilación y se evite muerte por asfixia, además estos transportes deben ser construidos de tal modo que no causen lesiones, traumas o heridas en las aves.

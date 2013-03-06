@@ -1,0 +1,1 @@
+Artículo 95º.- El inspector o inspectores responsables de la inspección post-mortem, estarán respaldados en sus labores por un operario del establecimiento, cuya función será la de cortar las partes que presenten alteraciones patológicas o traumas, para su posterior revisión o decomiso por parte del veterinario o sus auxiliares.

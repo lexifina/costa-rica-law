@@ -1,0 +1,1 @@
+Artículo 57º.- Las cámaras deberán contar con termómetros calibrados de carátula o bien otro sistema de registro automático de temperaturas que sea adecuado a los fines, cuyos sensores estén ubicados en la parte más caliente de la cámara.

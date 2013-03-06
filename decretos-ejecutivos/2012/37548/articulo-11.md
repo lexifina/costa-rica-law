@@ -1,0 +1,1 @@
+Artículo 11º.- Toda planta de procesamiento de aves deberá contar con un sistema de tratamiento de aguas residuales, aprobado por el MS. En caso contrario no se aprobará la operación del establecimiento.

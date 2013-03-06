@@ -1,0 +1,1 @@
+Artículo 60º.- Las cámaras y sus unidades de refrigeración deberán mantenerse en buen estado de conservación y operación. El agua resultante del funcionamiento de las unidades evaporadoras deberá entubarse hasta los drenajes.

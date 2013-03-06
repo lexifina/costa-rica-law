@@ -1,0 +1,1 @@
+Artículo 76º.- Cuando se cuente con fuentes de suministro de agua propias, como pozos, éstos deben estar protegidos de la contaminación. Los tanques de captación de agua deben contar con brocal, tapa y sistema de seguridad, para evitar que el agua se contamine. Los agujeros por donde pasan las tuberías que conducen el agua hacia la planta, deben estar perfectamente cerrados.

@@ -1,0 +1,1 @@
+Artículo 79º.- El sistema de cañerías debe estar diseñado, instalado y mantenido de tal forma que el abasto de agua esté protegido contra la contaminación por conexiones cruzadas, presiones negativas, condensación y otros, en casos que proceda el sistema deberá contar con válvulas anti-retorno.

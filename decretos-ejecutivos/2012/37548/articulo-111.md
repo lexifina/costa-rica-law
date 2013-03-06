@@ -1,0 +1,1 @@
+Artículo 111º.- Con la finalidad de lograr mantener las condiciones higiénicas y disminuir los riesgos de contaminación durante su manipulación y transporte, así como para efectos de rastreabilidad, todos los productos deberán ser despachados para la comercialización dentro de su empaque y mantenerse debidamente identificado.

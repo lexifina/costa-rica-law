@@ -1,0 +1,1 @@
+Artículo 62º.- Las vísceras comestibles también serán enfriadas inmediatamente después de su lavado final, debiendo alcanzar una temperatura interna de 4.4º C, en un tiempo no mayor a dos horas a partir del momento del eviscerado.

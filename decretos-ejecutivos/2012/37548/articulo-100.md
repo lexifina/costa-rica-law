@@ -1,0 +1,1 @@
+Artículo 100º.- Las aves no se mantendrán en espera dentro de las jabas por períodos mayores a 12 horas, a no ser por sospecha de enfermedad, que se detecte exceso de alimento en tracto digestivo o cuando el médico veterinario inspector tenga elementos de juicio suficientes para así disponerlo.

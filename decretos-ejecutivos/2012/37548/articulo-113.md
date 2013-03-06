@@ -1,0 +1,1 @@
+Artículo 113º.- El Médico Veterinario inspector y el propietario o administrador del establecimiento, serán solidariamente responsables de su operación sanitaria y del control de la salud del personal, en concordancia con el artículo 50 de la Ley General de Salud y sus reformas.

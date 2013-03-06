@@ -1,0 +1,1 @@
+Artículo 104º.- El desplumado deberá realizarse de tal modo que se garantice la ausencia de plumas, de sus restos o bien, una presencia mínima aceptable de ellas (máximo 2 plumas o cañones con longitud no mayor a 2,5 cm. por ave).

@@ -1,0 +1,2 @@
+Artículo 101º.- La insensibilización deberá efectuarse de tal forma, que se eviten sufrimientos innecesarios al animal y que garanticen un buen sangrado.
+Los aturdidores eléctricos deberán calibrarse de acuerdo con las recomendaciones del fabricante del equipo, para verificar su adecuado funcionamiento se realizará la prueba de reanimación del ave que ya fue aturdido, la cual establece que el ave debe recuperarse dentro los 60 a 120 segundos posteriores al aturdimiento.

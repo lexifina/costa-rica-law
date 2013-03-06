@@ -1,0 +1,1 @@
+Artículo 144º.- Cuando una entidad considere que se requiere un estudio adicional, retiro del certificado veterinario de operación u otra acción, deberá dirigirse al SENASA con las motivaciones del caso, quien actuará en consecuencia.

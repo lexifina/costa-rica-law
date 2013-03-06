@@ -1,0 +1,1 @@
+Artículo 55º.-Los operarios destacados en las áreas limpias no podrán ingresar a las áreas sucias, ni viceversa, a menos que se cambien de ropa antes de cambiar de área. Para facilitar el control del cumplimiento de esta disposición, los operarios de las diferentes áreas deberán usar un distintivo que lo identifique de acuerdo al área.

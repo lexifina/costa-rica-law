@@ -1,0 +1,2 @@
+Artículo 28º.- Deberá proveerse ventilación suficiente, de tal modo que las labores se desarrollen en un ambiente de confort y que además ayude a controlar la condensación cumpliendo con lo dispuesto en la legislación pertinente. La fuente de ventilación deberá contar con dispositivos que minimicen el ingreso de agentes contaminantes. La dirección de la corriente de aire no deberá ir nunca de un área sucia a un área limpia.
+La ventilación deberá estar diseñada y construida de modo tal que se restrinja el acceso o anidamiento de plagas.

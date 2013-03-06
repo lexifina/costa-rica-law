@@ -1,0 +1,1 @@
+Artículo 16º.- Cuando en un establecimiento se utilice los desechos propios de la actividad para la elaboración de alimento para consumo animal, éstos deberán contar con instalaciones separadas del resto para el proceso de fabricación y almacenamiento del producto final.

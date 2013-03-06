@@ -1,0 +1,1 @@
+Artículo 124º.- Aquellas aves que durante el proceso hayan sufrido traumatismos severos y que estén en condición de sufrimiento evidente, deberán ser sacrificadas de inmediato por métodos humanitarios como: dislocación de cuello, o insensibilización eléctrica y posterior degollado.

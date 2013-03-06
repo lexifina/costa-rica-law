@@ -1,0 +1,1 @@
+Artículo 119º.- En los casos en que los resultados laboratoriales indiquen incumplimiento de los parámetros establecidos en la legislación nacional o bien en la legislación internacional de la cual Costa Rica sea signataria, el establecimiento deberá implementar las medidas correctivas pertinentes y comunicarlas a través de los mecanismos existentes de manera oportuna al SENASA.

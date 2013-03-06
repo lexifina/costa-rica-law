@@ -1,0 +1,1 @@
+Artículo 105º.- Una vez sacrificada el ave (degollada) se deberá proceder con el proceso de evisceración lo más pronto posible, en ningún caso se permitirá un período mayor a 30 minutos entre el momento del sacrificio y el momento de la extracción de vísceras de las canales. Una vez evisceradas las canales se deberá proceder con el enfriamiento de manera inmediata.

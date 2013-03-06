@@ -1,0 +1,1 @@
+Artículo 97º.- Las aves condenadas durante la inspección post-mortem serán desnaturalizadas bajo la supervisión del Médico Veterinario inspector o sus auxiliares. Para la desnaturalización se utilizará sustancias o métodos autorizados por el SENASA.

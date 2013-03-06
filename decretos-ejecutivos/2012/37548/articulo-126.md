@@ -1,0 +1,1 @@
+Artículo 126º.- La máxima densidad permitida en las jaulas de transporte de aves será de 50 kilogramos por metro cuadrado, las jaulas tendrán la capacidad y espacio para permitir que todas las aves puedan descansar en el piso de dichas jaulas.

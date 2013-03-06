@@ -1,0 +1,6 @@
+Artículo 139º.- Estos establecimientos deberán cumplir con lo estipulado en el presente Reglamento excepto por lo establecido en los siguientes incisos:
+a) No están obligados a cumplir con lo establecido en los artículos 21 del presente reglamento, sin embargo deberán contar con al menos 3 zonas o áreas a saber 1- sucia 2- semi sucia 3- limpia para las plantas de sacrificio y 2 áreas para otros establecimientos 1-sucia 2- limpia y deberán garantizar ausencia de contaminación cruzada generada en la operación.
+b) Estos establecimientos están obligados a contar con la asesoría profesional de un médico veterinario inspector.
+c) En lo referente al artículo 56 inciso a, podrán aplicar lo siguiente: En las áreas destinadas a los procesos generales como: deshuese, cortes y empaque, despacho, sala de marinado, sala de CDM, la temperatura ambiental no excederá los 10ºC o en su defecto los productos que se encuentren en estas áreas deberán permanecer cubiertos con hielo siempre y cuando se garantice que la temperatura de este no exceda los 4.4 ºC.
+d) En el caso específico del control y vigilancia de Salmonella el establecimiento deberá realizar los muestreos que les solicite expresamente el SENASA.
+e) No están obligados a implementar planes APPCC, sin embargo si deben contar con un programa de pre requisitos, escrito e implementado.

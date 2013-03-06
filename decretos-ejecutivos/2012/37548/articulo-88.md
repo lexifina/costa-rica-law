@@ -1,0 +1,1 @@
+Artículo 88º.- El sacrificio de aves sospechosas o con signos de enfermedad deberá realizarse en una sala aparte o cuando haya concluido el sacrificio de aves clínicamente sanas, en el mismo lugar, pero extremando la inspección y las precauciones correspondientes.

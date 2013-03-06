@@ -1,0 +1,1 @@
+Artículo 20º.- Características del área de recepción: Debe ser techada, poseer un andén con espacio suficiente y a una altura adecuada que facilite la descarga de las jabas o cestas y el piso debe ser impermeable y resistente. Contar con previstas para tomas de agua que facilite el lavado de la zona.

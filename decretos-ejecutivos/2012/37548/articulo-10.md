@@ -1,0 +1,1 @@
+Artículo 10º.- Ningún establecimiento podrá exceder la capacidad de producción declarada y autorizada por el SENASA. Cualquier modificación o ampliación de sus instalaciones deberá ser sometida a consideración del SENASA para su conformidad.

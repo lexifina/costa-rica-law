@@ -1,0 +1,1 @@
+Artículo 123º.- Durante los procesos de captura, transporte y manejo de las jaulas, las aves vivas se deberán manipular de tal modo que se evite al máximo el maltrato físico y se evitará aquellas situaciones que puedan generar estrés en las mismas.

@@ -1,0 +1,2 @@
+Artículo 43º.- Los establecimientos que en sus procesos productivos utilicen condimentos, aditivos de uso restringido u otros ingredientes, contarán con una sección separada para su almacenamiento.
+Los aditivos de uso restringido se almacenarán en un gabinete con un sistema de seguridad, para evitar que sean manipulados por personal no autorizado. Se deberá llevar un inventario de estos aditivos, que incluirá las entradas, salidas y el saldo, se actualizará diariamente o cada vez que haya un movimiento en el inventario.

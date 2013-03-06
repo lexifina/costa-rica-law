@@ -1,0 +1,1 @@
+Artículo 59º.- Las puertas de acceso directo o indirecto a las cámaras deberán ser de materiales impermeables, lisos, no absorbentes y fácilmente lavables. Las puertas deberán cerrar herméticamente, manteniendo los empaques en buen estado, para evitar fugas de frío y la formación de condensación.

@@ -1,0 +1,1 @@
+Artículo 42º.- Se debe disponer de una sección separada, para almacenar materiales de uso general como papel higiénico, toallas de papel, esponjas abrasivas, cepillos, ropa, botas, cascos nuevos, repuestos y otros suministros.

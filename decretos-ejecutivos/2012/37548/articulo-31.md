@@ -1,0 +1,1 @@
+Artículo 31º.- El establecimiento dispondrá de tarimas o carretillas para colocar las cestas con producto, construidas de materiales que cumplan con los requisitos establecidos en el artículo 24 del presente reglamento, las tarimas de almacén en cámaras y en las bodegas para material de empaques y condimentos tendrán una altura no menor de 15 cm.

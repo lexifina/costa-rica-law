@@ -1,0 +1,1 @@
+Artículo 5º.- Los establecimientos aquí regulados, deberán contar con los servicios profesionales de un médico veterinario Inspector, incorporado al colegio respectivo, quien será responsable de velar por el cumplimiento de lo establecido en el presente reglamento.

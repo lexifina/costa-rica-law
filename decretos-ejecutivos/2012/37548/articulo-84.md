@@ -1,0 +1,1 @@
+Artículo 84º.- El Médico Veterinario inspector destacado en el establecimiento, encargado de la inspección ante-mortem, deberá evaluar la información suministrada en el informe sanitario que acompaña las aves, además realizará la inspección veterinaria del lote y si el resultado es favorable, autorizará el sacrificio de las aves.

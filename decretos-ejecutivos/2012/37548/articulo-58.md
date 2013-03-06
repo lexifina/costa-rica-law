@@ -1,0 +1,1 @@
+Artículo 58º.- En las cámaras de refrigeración y congelación, los productos deben almacenarse de tal manera que, se deje espacio para la circulación de aire frío entre ellos, entre las paredes y los productos, y entre el piso y los productos. Además las filas de producto deberán almacenarse a una altura tal que no bloqueen la circulación del aire.

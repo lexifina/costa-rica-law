@@ -1,0 +1,1 @@
+Artículo 23º.- En las salas de proceso deberá existir espacio para efectuar todas las operaciones, incluyendo las de inspección en forma cómoda, facilitando la instalación de equipo fijo y móvil, de tal manera que su limpieza y desinfección se pueda efectuar fácil y eficientemente evitando accidentes al personal.

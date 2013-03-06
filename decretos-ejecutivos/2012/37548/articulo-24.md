@@ -1,0 +1,1 @@
+Artículo 24º.- Las estructuras aéreas para soporte, carretillas, tarimas y cualquier otro componente o artefacto utilizado en las áreas productivas, serán construidas de materiales impermeables, no tóxicos, de superficies lisas, fácilmente lavables y resistentes a la corrosión.

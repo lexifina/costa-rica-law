@@ -1,0 +1,1 @@
+Artículo 25º.- Las aguas residuales generadas por la actividad deben conducirse mediante canales protegidos con sistema de rejillas y dimensiones suficientes, capaces de disminuir la descarga de sólidos a los conductos de agua, para que éstos a su vez no sean llevados al sistema de tratamiento de aguas residuales.

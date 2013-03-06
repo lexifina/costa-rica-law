@@ -1,0 +1,1 @@
+Artículo 114º.- El Médico Veterinario velará para que se tomen las medidas necesarias o la reubicación de cualquier trabajador que presente heridas o lesiones en la piel, hongos en las uñas, resfríos, secreciones o cualquier otra condición que comprometa la inocuidad de los productos que se procesan.

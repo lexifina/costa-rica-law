@@ -1,0 +1,1 @@
+Artículo 36º.- Las puertas y ventanas deberán ajustar adecuadamente y no presentar espacios con respecto a los marcos y el piso. Si es necesario, se deberán usar bandas de hule para evitar el ingreso de plagas y contaminantes.

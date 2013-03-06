@@ -1,0 +1,1 @@
+Artículo 6º.- Los propietarios o administradores obligatoriamente deberán notificar al Médico Veterinario Inspector y a los auxiliares de inspección, al menos con veinticuatro horas de anticipación cualquier cambio en el horario de trabajo, con el fin de que el MVI programe adecuadamente sus actividades.

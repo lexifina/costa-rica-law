@@ -1,0 +1,1 @@
+Artículo 54º.- Es responsabilidad del establecimiento dotar a los operarios de los equipos y utensilios necesarios para el desarrollo de sus funciones. A su vez, el operario debe velar y garantizar el mantenimiento higiénico de los mismos en todo momento.

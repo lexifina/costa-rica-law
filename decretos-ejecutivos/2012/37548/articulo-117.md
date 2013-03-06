@@ -1,0 +1,2 @@
+Artículo 117º.- El Médico Veterinario Inspector tendrá la autoridad para ordenar la reducción en el ritmo del proceso o la suspensión de dichas operaciones, cuando las labores de sacrificio, procesamiento, manipulación y preparación de las carnes afecten negativamente la calidad sanitaria o inocuidad del producto o las labores de control e inspección.
+El Médico Veterinario Inspector deberá hacer constar y describir estas situaciones, adoptadas en la documentación correspondiente.

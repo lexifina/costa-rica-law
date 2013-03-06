@@ -1,0 +1,1 @@
+Artículo 132º.- Todas las aves serán sometidas a un proceso de insensibilización previo al degollado, dicho proceso de insensibilización podrá ser por aturdimiento eléctrico, por medio de gas u otro método aprobado por el SENASA.

@@ -1,0 +1,1 @@
+Artículo 85º.- El propietario o administrador del establecimiento, está obligado a brindar toda la ayuda y facilidades necesarias al Médico Veterinario Inspector para que pueda llevar a cabo la inspección antemortem satisfactoriamente.

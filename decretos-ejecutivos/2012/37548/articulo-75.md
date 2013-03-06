@@ -1,0 +1,2 @@
+Artículo 75º.- El suministro de agua puede ser público o privado, siempre que se garantice la potabilidad de la misma, mediante análisis físico químicos y microbiológicos que demuestren su pureza.
+Los análisis de estas aguas, deberán ser realizados en laboratorios oficiales o en laboratorios oficializados por el SENASA y se realizarán como mínimo análisis de acuerdo al cronograma anual para determinación fisicoquímica y microbiológica.

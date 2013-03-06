@@ -1,0 +1,1 @@
+Artículo 102º.- El degollado podrá realizarse manual o mecánicamente, los utensilios o equipos deberán mantenerse limpios, para los cuchillos se deberá contar con un sistema para la esterilización frecuente. El sangrado deberá ser lo más completo posible y el tiempo de sangrado no será menor a 90 segundos.

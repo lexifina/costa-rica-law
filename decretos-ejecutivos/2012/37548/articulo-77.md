@@ -1,0 +1,1 @@
+Artículo 77º.- El vapor utilizado para calentar el agua o el utilizado durante las operaciones de limpieza no deberá contener ninguna sustancia que pueda poner en peligro la salud de las personas o contaminar los productos cárnicos de aves.
