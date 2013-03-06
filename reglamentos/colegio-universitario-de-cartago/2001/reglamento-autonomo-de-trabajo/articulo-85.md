@@ -1,1 +1,0 @@
-Artículo 85.—El Servicio de Personal, a través de la Comisión de Salud Ocupacional, será el responsable de promover, coordinar, ejecutar y fiscalizar los políticas y medidas que se adopten en materia de salud ocupacional y de la integración de las brigadas de salud ocupacional, las cuales recibirán la capacitación necesaria que las faculte para cumplir su cometido.

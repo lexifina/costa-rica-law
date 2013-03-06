@@ -1,1 +1,0 @@
-Artículo 57.—El desempeño de los servidores docentes, en propiedad o interinos será evaluado y calificado como mínimo una vez cada período lectivo y la calificación se expresará en términos de excelente, muy bueno, bueno, insuficiente e inaceptable.

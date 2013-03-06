@@ -1,1 +1,0 @@
-Artículo 144.—Las sanciones establecidas en el presente capítulo serán aplicadas por los representantes patronales, en el transcurso de hasta un mes después de que se haya terminado el procedimiento respectivo y en el que se determine la responsabilidad disciplinaria.

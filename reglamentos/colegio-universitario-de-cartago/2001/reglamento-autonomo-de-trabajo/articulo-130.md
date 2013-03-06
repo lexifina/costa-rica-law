@@ -1,1 +1,0 @@
-Artículo 130.—Solo se consideran como válidas y justificadas las omisiones de marca que se originen en inasistencia justificada del trabajador a sus labores o por la atención en asuntos propios del cargo fuera del centro de trabajo.

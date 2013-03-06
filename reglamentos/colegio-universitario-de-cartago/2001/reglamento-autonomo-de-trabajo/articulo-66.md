@@ -1,1 +1,0 @@
-Artículo 66.—Si persistiese la inconformidad del servidor, éste podrá apelar ante el Decano dentro de los tres días hábiles siguientes a la notificación, fundamentando las razones de su inconformidad; quien deberá resolver en el plazo de tres días hábiles a partir de que se recibe la apelación.

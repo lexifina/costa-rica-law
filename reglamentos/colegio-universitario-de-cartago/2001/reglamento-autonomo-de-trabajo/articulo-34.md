@@ -1,1 +1,0 @@
-Artículo 34.—El Servicio de Personal podrá declarar “desierto” el concurso, previa autorización del Decano. En tal caso procederá a publicar nuevamente el Concurso, con las recomendaciones que para tal efecto se determine. De persistir la situación el CUC podrá contratar en forma interina, el recurso humano más idóneo.

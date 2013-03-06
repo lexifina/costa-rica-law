@@ -1,1 +1,0 @@
-Artículo 76.—El Decano, o quien lo sustituya o la Jefatura inmediata del trabajador no podrán suspender el disfrute de las vacaciones, salvo cuando se presente un caso de emergencia o de urgencia en el trabajo y se considere que la solución del problema podría estar en el regreso inmediato del servidor.

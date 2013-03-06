@@ -1,1 +1,0 @@
-Artículo 159.—Toda queja o denuncia deberá ser presentada por escrito ante la jefatura inmediata del servidor denunciado, quien según la gravedad de la misma, la reservará para su conocimiento o la elevará a el Servicio de Personal, si este funcionario hallare mérito ordenará la inmediata investigación de los cargos, conforme lo previsto en este capítulo.

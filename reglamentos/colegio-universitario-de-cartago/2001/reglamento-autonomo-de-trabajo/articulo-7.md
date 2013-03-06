@@ -1,2 +1,0 @@
-Artículo 7º—La aplicación de este Reglamento corresponde a la Decanatura como Administrador General del CUC y al Servicio de Personal, quienes tendrán a su cargo en forma coordinada todo lo concerniente a nombramientos, despidos cambios de puestos, ascensos, vacaciones, permisos o licencias, mediante las respectivas acciones de personal y rige para todos los funcionarios del CUC.
-Corresponde y es facultad del Decano interpretar y resolver las dudas que pudiesen surgir en relación con el mismo.

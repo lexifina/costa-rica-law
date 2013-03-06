@@ -1,1 +1,0 @@
-Artículo 58.—Para los efectos de los artículos anteriores, el Servicio de Personal en coordinación con la Dirección Administrativa o Académica, según corresponda, establecerá los instrumentos técnicos necesarios por los cuales se logre la evaluación y calificación de los servidores, tanto administrativos como docentes.

@@ -1,1 +1,0 @@
-Artículo 154.—La amonestación verbal por primera vez –de la cual se dejará constancia por escrito–, será efectuada por el superior jerárquico del infractor, quien lo hará del conocimiento de el Servicio de Personal para lo que corresponde en caso de reincidencia.

@@ -1,2 +1,0 @@
-Artículo 164.—Recibido el descargo, el instructor procederá a evacuar la prueba, con las formalidades que prescribe el artículo.
-Evacuadas las pruebas se tendrá por concluida la investigación, debiendo el Asesor Legal presentar en el plazo improrrogable de 8 días hábiles, el informe con su recomendación al órgano competente, según la gravedad de la falta, para que este dicte le resolución correspondiente, dentro de los plazos establecidos en este Reglamento.

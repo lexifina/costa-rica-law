@@ -1,1 +1,0 @@
-Artículo 3º—Los representantes patronales obligan al patrono en las relaciones, actos y disposiciones de índole laboral que tengan con los servidores del CUC, como si éste personalmente hubiera realizado el acto o actos de que se trate.

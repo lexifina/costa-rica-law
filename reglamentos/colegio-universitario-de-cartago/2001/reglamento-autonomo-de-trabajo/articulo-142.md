@@ -1,3 +1,0 @@
-Artículo 142.—La suspensión del trabajo se aplicará hasta por quince días sin goce de salario. Para aplicar dicha sanción se debe seguir en lo conducente el procedimiento que establece este Reglamento y dicha sanción se aplicará en los siguientes casos:
-1. Cuando el trabajador después de haber sido amonestado por escrito, incurra de nuevo en la falta que motivó la amonestación.
-2. Cuando el trabajador viole alguna de las prohibiciones señaladas en este Reglamento, después de haber sido amonestado por escrito. Salvo que la causa diera mérito para una sanción mayor o estuviera sancionada por otra disposición de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 90.—La incapacidad para trabajar por motivos de maternidad, se pagará durante los cuatro meses que señala el Artículo 95 del Código de Trabajo, y sus reformas, garantizándose en todo caso el pago del ciento por ciento de su salario.

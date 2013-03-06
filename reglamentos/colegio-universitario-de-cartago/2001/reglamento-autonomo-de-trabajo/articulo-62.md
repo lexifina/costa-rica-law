@@ -1,1 +1,0 @@
-Artículo 62.—Las calificaciones de excelente, insuficiente e inaceptable deben llevar adjunta, una explicación de las causas que la motivaron y las advertencias y observaciones formuladas al servidor tendientes a la superación del mismo.

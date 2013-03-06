@@ -1,1 +1,0 @@
-Artículo 15.—La relación de servicio se inicia mediante un nombramiento válido y eficaz realizado por los órganos competentes, con el objeto de pasar a formar parte de la organización del CUC, con entera independencia del carácter imperativo, representativo, remunerado, permanente.

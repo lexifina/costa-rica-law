@@ -1,1 +1,0 @@
-Artículo 63.—Si la calificación de un servidor fuere insuficiente dos veces consecutivas, previas las advertencias y sanciones del caso, por haber ejercido sus funciones sin la capacidad, dedicación y diligencias mínimas requeridas o inaceptable una vez, se considerará falta grave y como tal podrá ser sancionada con el despido sin responsabilidad patronal.

@@ -1,1 +1,0 @@
-Artículo 86.—Todo trabajador está en la ineludible obligación de dar aviso del Servicio de Personal o al Jefe inmediato o Decano, de algún accidente que haya sufrido, dentro del día posterior al accidente.

@@ -1,2 +1,0 @@
-Artículo 32.—Las nóminas de elegibles se conformarán en estricto orden de calificación. Tanto la calificación dada por el Servicio de Personal, como la resolución de nombramiento será notificada a cada uno de los concursantes, quienes tendrán un plazo de 3 días hábiles para plantear un recurso de revocatoria, en el primer supuesto ante el Servicio de Personal, o de apelación ante el Decano en el segundo supuesto.
-Los recursos de revocatoria y de apelación deberán ser resueltos en un plazo máximo de 5 días hábiles.

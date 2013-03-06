@@ -1,1 +1,0 @@
-Artículo 95.—En ningún caso de incapacidad para trabajar por enfermedad, maternidad o riesgo de trabajo, el monto del subsidio que pagara la respectiva institución aseguradora sumado al que pague el CUC podrá exceder el monto del salario del servidor.

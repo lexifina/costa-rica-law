@@ -1,1 +1,0 @@
-Artículo 5º—En virtud del principio de legalidad, el servidor no podrá disfrutar de más beneficios, ni la administración ejercer mayores potestades que las expresamente autorizadas por este reglamento o, en su defecto, por las demás normas del ordenamiento jurídico.

@@ -1,1 +1,0 @@
-Artículo 71.—Se reconocerá un componente salarial del 15% sobre el sueldo base, para atender funciones administrativas en la coordinación o dirección de cada una de las carreras que se imparten en el CUC, con base en la resolución C-45-84 de la Dirección General del Servicio Civil.

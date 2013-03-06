@@ -1,4 +1,0 @@
-Artículo 21.—Para integrar la nómina de elegibles se requiere:
-1. Cumplir los requisitos que establezca el manual descriptivo de puestos y normas de reclutamiento y selección de personal.
-2. Someterse a pruebas que disponga la Jefatura del Servicio de Personal mediante asesoría técnica del Servicio Civil, en los casos contemplados en este Reglamento, así como presentar atestados y documentos que acrediten el cumplimiento de los requisitos del aspirante para el puesto sometido a concurso.
-3. No tener parentesco, hasta el segundo grado de consanguinidad y afinidad con la jefatura de la dependencia donde esté la vacante de que se trate o con el superior jerárquico de éste, en la respectiva dependencia, ni con el Decano, ni con los miembros del Consejo Directivo, ni con la jefatura del Servicio de Personal.

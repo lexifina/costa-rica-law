@@ -1,1 +1,0 @@
-Artículo 88.—El CUC deberá acatar las disposiciones que en materia de salud ocupacional que establezca la Comisión, especialmente en cuanto al suministro de implementos, herramientas y equipo de protección a los trabajadores.

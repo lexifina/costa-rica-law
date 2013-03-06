@@ -1,2 +1,0 @@
-Artículo 43.—Las jefaturas también podrán en las condiciones anteriores, solicitar en beneficio de sus subalternos, la reasignación de cualquier puesto.
-Recibida la solicitud, el Servicio de Personal, procederá al estudio respectivo en un plazo no mayor a 30 días naturales, sometiendo su resultado a conocimiento y resolución del Decano. Lo resuelto por el Decano y Servicio de Personal le será comunicado al petente dentro de los cinco días naturales posteriores a aquel en que se adopte la decisión.
