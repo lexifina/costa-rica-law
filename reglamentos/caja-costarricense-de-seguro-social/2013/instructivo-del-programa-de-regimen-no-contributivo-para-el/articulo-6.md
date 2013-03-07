@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Del ingreso por persona del grupo familiar (IPP)
+El ingreso por persona es un indicador económico que se obtiene de la división de los ingresos totales brutos del grupo familiar del solicitante de pensión o pensionado del Régimen No Contributivo, entre el número total de personas que lo integran. Se utiliza para compararlo con el indicador “Línea de Pobreza” que estima el INEC, vigente al momento del análisis; en caso de que el IPP deba ser recalculado, se comparará con el indicador vigente al momento de su aprobación.

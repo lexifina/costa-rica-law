@@ -1,0 +1,10 @@
+ARTÍCULO 7.- Del procedimiento de cálculo de ingresos del grupo familiar
+Para el cálculo del Ingreso per cápita del grupo familiar se utilizará el siguiente procedimiento:
+a. El funcionario responsable procederá a incluir en el (SIP) la información personal de los miembros del Grupo familiar, con el propósito de que dicho sistema automatizado calcule el ingreso por persona (IPP) preliminar.
+b. Se incluirán aquellos ingresos producto de bienes de significado económico del solicitante o de alguno de los miembros del grupo familiar, como por ejemplo los intereses generados por cuentas bancarias, alquileres, y otros de similar naturaleza.
+c. En los casos de trabajadores independientes o asegurados voluntarios o por convenios, se tomará en cuenta el ingreso de referencia reportado en el SIP al momento del estudio o el monto anotado en la Declaración Jurada, si este último
+es mayor. En los casos de asegurados voluntarios o por convenios, si el analista tiene indicios de que el pago del seguro se realiza únicamente con el propósito de tener acceso a la prestación de servicios de salud, solicitará la intervención de Trabajo Social, para corroborar esta situación.
+d. En el caso de los ingresos temporales: se tomará el total bruto de lo percibido en el período de la actividad y se dividirá entre 12. Cuando el solicitante sea el que está dedicado al cultivo, se deberá deducir los gastos de producción, comprobados mediante certificación emitida por un contador público o privado, u otra prueba documental idónea por ejemplo facturas, o documentos presentados a tributación directa para deducciones de impuestos de renta.
+e. Para los efectos de la estimación del IPP se deberá aplicar el indicador de acuerdo con la línea de pobreza que se encuentre vigente al momento del análisis.
+f. De los miembros del grupo familiar, se tomará en cuenta el ingreso temporal u ocasional según corresponda reportado en la declaración jurada elaborada para tal efecto.
+g. Que algún (os) miembro (s) del grupo familiar posea (n) bienes muebles o inmuebles que generen ingresos, los cuales deberán de incorporarse al cálculo de IPC.

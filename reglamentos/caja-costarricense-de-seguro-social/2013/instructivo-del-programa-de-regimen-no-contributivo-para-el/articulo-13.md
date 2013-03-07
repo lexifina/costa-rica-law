@@ -1,0 +1,3 @@
+ARTÍCULO 13.- Condición de no asalariado
+El artículo 3, inciso e) del Reglamento, establece la posibilidad de que un trabajador independiente activo, pueda solicitar el trámite de pensión en el RNC; siempre y cuando producto del estudio de las cotizaciones aportadas al Seguro de Invalidez, Vejez y Muerte se determine que no cumple con los requisitos establecidos al momento del análisis. En todo caso es deber del analista determinar que el solicitante cumpla con lo indicado en el inciso a) de este artículo; de lo contrario se deberá denegar el trámite o cancelar la pensión si estuviese en curso de pago.
+En caso de que se apruebe el beneficio de pensión, el pensionado deberá dejar de cotizar como trabajador independiente.

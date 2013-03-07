@@ -1,0 +1,5 @@
+CAPÍTULO II
+TRÁMITE ADMINISTRATIVO
+ARTÍCULO 14.- De las Unidades que realizan el trámite de pensión
+El trámite de las solicitudes de pensión del Régimen No contributivo, será realizado en las Unidades Tramitadoras de estos beneficios a nivel nacional, según el domicilio del solicitante. El funcionario encargado de la plataforma deberá realizar la entrevista, brindar información y entregar la documentación requerida a cualquier persona interesada, independientemente de su lugar de residencia, indicándole que la presentación debe realizarse en la Unidad administrativa que le corresponda. Cuando por alguna circunstancia, un solicitante desee entregar la documentación en una Unidad que no corresponda a su lugar de residencia, el funcionario encargado debe recibir la documentación y explicarle al solicitante que ésta será trasladada y tramitada en la Unidad que le corresponde.
+El funcionario encargado deberá brindar la información al solicitante sin emitir criterio en cuanto a la procedencia o no del beneficio, sino que deberá limitarse a explicar las condiciones y normativa vigentes.
