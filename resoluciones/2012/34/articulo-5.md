@@ -1,0 +1,1 @@
+5. Ordenar al Sistema de Emergencias 9-1-1 que para efectos de una próxima fijación tarifaria debe llegar a un acuerdo con el ICE sobre la totalidad de cuenta pendiente por pagar y establecer un cronograma de pagos en el cual se indique el monto que mensualmente cancelará por este concepto y suministrar a la SUTEL copia de este acuerdo.

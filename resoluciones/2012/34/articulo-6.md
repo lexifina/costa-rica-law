@@ -1,0 +1,1 @@
+6. Ordenar al Sistema de Emergencias 9-1-1 que realice un estudio para la separación de los procesos de administración de presupuesto, finanzas y planillas y establecer un cronograma para este proceso y comunicarlo a la Superintendencia y suministrar a la SUTEL copia de este acuerdo.

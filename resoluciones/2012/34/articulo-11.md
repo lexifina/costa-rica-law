@@ -1,0 +1,2 @@
+11. Remitir una copia del presente acuerdo al expediente administrativo SUTEL-GCO-TMI- 002-2012.
+En cumplimiento de lo que ordena el artículo 345 de la Ley General de la Administración Pública, se indica que contra esta resolución cabe el recurso ordinario de revocatoria o reposición ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo y deberá interponerse en el plazo de tres días hábiles, contados a partir del día siguiente de la notificación de la presente resolución.
