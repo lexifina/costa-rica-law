@@ -1,0 +1,11 @@
+Nº 37466-JP
+LA PRESIDENTA DE LA REPUBLICA
+Y EL MINISTRO A.I. DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículo 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+CONSIDERANDO
+I. Que el artículo 32 de la Ley de Asociaciones N° 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II. Que la ASOCIACIÓN CONSUMIDORES DE COSTA RICA, cédula de persona jurídica 3-002-405107 se inscribió en el Registro de Asociaciones del Registro Público desde el día ocho de junio del dos mil cinco, bajo el tomo 544 asiento 18155. Asimismo, dicha entidad fue declarada de Utilidad Pública mediante el Decreto Ejecutivo N° 35407-J del siete de agosto del dos mil nueve.
+III. Que la ASOCIACIÓN CONSUMIDORES DE COSTA RICA, solicitó dejar sin efecto el beneficio de Utilidad Pública, decisión que fue tomada en la Asamblea General celebrada el veintiocho de octubre del dos mil nueve. Siendo que dicha entidad mantiene tanto dentro de sus estatutos como en su operatividad, los fines y objetivos en pro de la defensa del consumidor costarricense que sirvieron de base para ser declarada de Utilidad Pública, al solventar los mismos una necesidad social.
+IV. Que pese a la continuidad del funcionamiento de dicha Asociación, mediante Asamblea general se acordó expresamente la renuncia a la declaratoria de utilidad pública otorgada por el Ministerio de Justicia y Paz, por lo que es procedente dejar sin efecto el acto administrativo en el cual se otorgó la declaratoria Utilidad Pública a la Asociación solicitante, así como los efectos derivados de dicho acto, de conformidad con el artículo 154 de la Ley General de la Administración Pública.
+DECRETAN
+Artículo 1.- Dejar sin efecto el Decreto Ejecutivo N° 35407-J del siete de agosto del dos mil nueve, mediante el cual se declaró de Utilidad Pública para los intereses del Estado a la ASOCIACIÓN CONSUMIDORES DE COSTA RICA, cédula de persona jurídica 3-002-405107.
