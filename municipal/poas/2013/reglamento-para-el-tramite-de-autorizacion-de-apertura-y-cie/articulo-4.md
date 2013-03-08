@@ -1,0 +1,3 @@
+Artículo 4º—Contenido y ámbito de aplicación. Este reglamento establece los criterios mínimos que deben observar los departamentos de la Municipalidad de Poás, para la autorización de libros de actas, libros de contabilidad y otros libros a legalizar, por parte de la Auditoría Interna.
+Así también el manejo y cierre de tales libros.
+Todo lo anterior de conformidad con el bloque de legalidad, la necesidad de la unidad que solicita la legalización y, según el criterio de la Auditoría Interna; con el propósito de garantizar la supervisión y la fiscalización en el área de control.

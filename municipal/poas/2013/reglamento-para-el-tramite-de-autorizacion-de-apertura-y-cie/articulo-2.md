@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este documento forma parte de la documentación del Proceso de Autorización de Libros Legales de la Auditoría Interna de la Municipalidad de Poás; así como las normas y criterios dictados por la Contraloría General de la República.

@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+De la custodia de los folios y libros autorizados
+Artículo 27.—Custodia. El responsable de la custodia de los folios y libros autorizados, será el representante de la dependencia, u órgano que forma parte de la Municipalidad de Poás. En caso de comisionar o delegar el manejo o manipulación de los libros a otra persona, ambos son solidariamente responsables de su custodia y por tal razón, de que a los mismos se les dé el uso debido, bajo apercibimiento de las eventuales sanciones por responsabilidad administrativa, penal y civil, según el caso, por su mal uso.

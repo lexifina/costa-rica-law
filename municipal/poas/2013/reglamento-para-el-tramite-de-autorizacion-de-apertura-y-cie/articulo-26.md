@@ -1,0 +1,1 @@
+Artículo 26.—Firmas de actas. En el caso de los libros de actas de las sesiones de Órganos Colegiados las mismas deben ser firmadas oportunamente por el presidente y secretario respectivos o quienes los representen en la sesión, todo conforme a lo establecido en el sistema legal costarricense. Dicha firma de preferencia debe hacerse con tinta azul.

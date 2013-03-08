@@ -1,0 +1,2 @@
+Artículo 20.—Reposición de libros. En el caso de reposición de libros se realizará de la siguiente manera.
+a) En lo que aplique se seguirá lo indicado en el artículo 19 de este Reglamento, de lo contrario se harán Notas Explicativas en el Folio correspondiente, para anular lo escrito o lo indicado en líneas, folios u hojas, explicando la situación y firmando el responsable de llevar dicho documento.

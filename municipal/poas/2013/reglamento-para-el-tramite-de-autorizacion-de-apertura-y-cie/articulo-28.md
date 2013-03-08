@@ -1,0 +1,1 @@
+Artículo 28.—Pérdida y deterioro. En caso de pérdida, deterioro o maltrato de los folios o libros autorizados, deberá el representante o persona autorizada reportarlo de inmediato por escrito al Concejo Municipal, lo anterior según lo estipulado en el Capítulo Cuarto sobre reposición de folios y libros, en lo que aplique.

@@ -1,0 +1,1 @@
+Artículo 9º—Cantidad de folios. La cantidad de folios (hojas) será la que se estime que permita por un tiempo razonable el uso del libro a autorizar, debiendo ser el último folio un múltiplo de cincuenta, excepto en casos muy calificados y según criterio de la Auditoría Interna.
