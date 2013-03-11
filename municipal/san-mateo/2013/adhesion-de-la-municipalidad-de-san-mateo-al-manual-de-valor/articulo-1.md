@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE SAN MATEO
+La Municipalidad de San Mateo, comunica que con base en el acuerdo Nº 6 artículo III dictado por el Concejo Municipal en la sesión extraordinaria N° 144A (Ext.55) del 8 de febrero del 2013, acuerda adherirse al Manual de Valores de Base Unitarios por Tipología Constructiva, publicado por el Órgano de Normalización Técnica del Ministerio de Hacienda en el Alcance Digital N° 22 del Diario Oficial La Gaceta N° 23 del 1° de febrero del 2012. Publíquese en el Diario Oficial La Gaceta.
