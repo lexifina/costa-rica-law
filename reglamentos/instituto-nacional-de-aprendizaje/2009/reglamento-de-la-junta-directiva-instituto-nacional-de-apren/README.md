@@ -14,3 +14,4 @@ Reglamento de la Junta Directiva Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-16 | la propia norma |
+| 2 | 2013-03-11 | Reglamento 4568 (2013-03-11) |
