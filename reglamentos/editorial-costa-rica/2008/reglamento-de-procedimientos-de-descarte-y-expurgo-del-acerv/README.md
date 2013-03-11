@@ -14,3 +14,4 @@ Reglamento de Procedimientos de Descarte y Expurgo del Acervo Bibliográfico de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-17 | la propia norma |
+| 2 | 2013-03-11 | Reglamento 2504 (2013-03-11) |
