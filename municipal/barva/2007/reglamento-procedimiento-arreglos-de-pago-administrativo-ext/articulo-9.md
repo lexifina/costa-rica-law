@@ -1,1 +1,0 @@
-Artículo 9º—Compromiso de pago mediante abono parcial. La Municipalidad permitirá abonos o pagos parciales por sumas inferiores a las pactadas, con el compromiso escrito del cliente de cancelar el arreglo en su totalidad dentro plazo establecido.

@@ -1,3 +1,0 @@
-CAPÍTULO II
-Condiciones para los arreglos de pago
-Artículo 5º—Requisitos para aprobación de arreglos de pago. Para iniciar el trámite ante la Municipalidad el contribuyente hará la solicitud de arreglo de pago en el formulario que para tales efectos le suministrará la oficina de contabilidad, al cual deberá adjuntarse toda la información y la documentación solicitada en este, si el solicitante no es el deudor deberá presentar una autorización de este debidamente autenticada por Abogado y copia de cédula del deudor y del autorizado. En el caso de personas jurídicas, la solicitud deberá ser firmada por el representante legal o apoderado generalísimo y aportar el número de cédula jurídica y documento legal idóneo que certifique su representación.

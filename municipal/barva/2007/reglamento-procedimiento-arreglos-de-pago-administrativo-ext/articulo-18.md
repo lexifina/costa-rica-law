@@ -1,2 +1,0 @@
-Artículo 18.—Vigencia del Reglamento. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, una vez cumplido el trámite de audiencia pública y será aplicable a las deudas que a la fecha se encuentren morosas ya fuese en cobro administrativo, en trámite de cobro judicial o en arreglo de pago. Asimismo será aplicable en lo que resulte de beneficio para la Municipalidad y para el contribuyente.
-Barva de Heredia, 19 de diciembre del 2007.—
