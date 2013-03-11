@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P21 Reclutamiento, selección, incorporación, eval
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-23 | la propia norma |
+| 2 | 2013-03-11 | Acuerdo 0 (2013-03-11) |
