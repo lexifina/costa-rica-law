@@ -1,0 +1,1 @@
+Artículo 27.—Implementación y periodicidad de las autoevaluaciones. La autoevaluación del SCII se realizará una vez al año, en cumplimiento de lo dispuesto en el artículo 17 inciso c) de la LGCI. Se realizará por componente funcional de control interno.

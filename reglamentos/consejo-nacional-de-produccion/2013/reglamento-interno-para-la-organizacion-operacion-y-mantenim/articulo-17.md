@@ -1,0 +1,1 @@
+Artículo 17.—Toda la correspondencia que se genere para atender los acuerdos que sean tomados en cada sesión de la CANCI, deberá ser firmada por el (la) Gerente General (o Subgerente General) como Máximo Jerarca Administrativo.

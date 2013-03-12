@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones de este Reglamento son de aplicación y acatamiento obligatorio para todos los funcionarios del Consejo Nacional de Producción, que por jerarquía o delegación, ejecuten funciones decisorias, resolutorias y directivas en los procesos que ejecuta la administración activa y, por lo tanto, se consideran Titulares Subordinados.

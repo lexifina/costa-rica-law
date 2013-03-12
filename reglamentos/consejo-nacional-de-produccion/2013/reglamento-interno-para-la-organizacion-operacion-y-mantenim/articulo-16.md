@@ -1,0 +1,1 @@
+Artículo 16.—Del quórum para sesionar. Para que exista quórum, es necesaria la presencia de la mayoría simple de sus miembros permanentes o de los suplentes oficializados, incluido necesariamente el Gerente General o Subgerente General en su ausencia.
