@@ -14,3 +14,4 @@ Competencia de la Proveeduría Institucional del Ministerio de Seguridad Públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-17 | la propia norma |
+| 2 | 2013-03-12 | Decreto Ejecutivo 37627 (2013-03-12) |
