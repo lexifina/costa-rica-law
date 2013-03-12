@@ -1,1 +1,0 @@
-Artículo 8º—Deber de colaboración. Toda dependencia, funcionarios (as) están en la obligación de brindar su colaboración cuando así se solicite por el Órgano del Debido Proceso, para facilitar su labor y el desempeño cabal del procedimiento.
