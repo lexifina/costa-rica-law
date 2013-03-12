@@ -1,0 +1,1 @@
+Artículo 3°—Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el o la caucionante responsable en el ejercicio de sus funciones, pueda producir al patrimonio de BN Fondos.

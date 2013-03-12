@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 14.—Cálculo y actualización de los montos de la caución. El monto mínimo de la garantía a favor de BN Fondos será de quinientos mil colones. Anualmente, el Área Administrativa, actualizará para cada nivel el monto por caucionar tomando como parámetro el salario base establecido en la Ley 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año. Dicha actualización será comunicada por escrito tanto a los funcionarios caucionantes como al Proceso de Recursos Humanos. Los funcionarios que deban ajustarse al nuevo monto de cobertura de la garantía, contarán para ello con un plazo máximo de veinte días hábiles contados a partir de la notificación de dicha comunicación

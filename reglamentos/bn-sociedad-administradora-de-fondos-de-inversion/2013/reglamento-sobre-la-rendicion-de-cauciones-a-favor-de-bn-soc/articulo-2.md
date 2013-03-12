@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. Las disposiciones contenidas en este Reglamento son aplicables a todos los funcionarios y las funcionarias de BN Fondos que administren, recauden y custodien fondos o valores públicos o que por la naturaleza de sus funciones y responsabilidades deban caucionar.

@@ -1,0 +1,1 @@
+Artículo 19.—Ejecución de la garantía. La ejecución de la garantía será precedida de un procedimiento administrativo, en donde se demuestre la falta del funcionario o funcionaria caucionante y se ordene el resarcimiento de los daños y perjuicios ocasionados a BN Fondos, sin detrimento de otras responsabilidades administrativas, civiles y penales que correspondan.

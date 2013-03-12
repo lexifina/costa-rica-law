@@ -1,0 +1,1 @@
+Artículo 5°—Deber de solventar la garantía. Es deber del caucionante, asumir el costo íntegro de la garantía a favor BN Fondos, el cual deberá provenir de su propio capital, conforme lo establecido en el artículo 4º de este Reglamento.

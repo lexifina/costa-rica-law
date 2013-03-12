@@ -1,0 +1,1 @@
+Artículo 11.—Revisión del listado de funcionarios obligados a caucionar. Una vez al año, el proceso de Recursos Humanos revisará el listado de funcionarios o funcionarias obligados a caucionar con el propósito de determinar si se encuentran vigentes, de lo contrario realizará el trámite para su respectiva actualización.

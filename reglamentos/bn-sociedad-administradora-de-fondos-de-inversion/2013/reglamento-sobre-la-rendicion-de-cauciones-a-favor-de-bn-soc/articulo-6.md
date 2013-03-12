@@ -1,0 +1,1 @@
+Artículo 6°—Del plazo de las garantías. Las garantías ofrecidas por los funcionarios o las funcionarias que estén obligados a rendir caución, se mantendrán vigentes durante todo el tiempo que ocupen sus cargos, hasta un mes después de haber dejado de laborar en BN Fondos.
