@@ -14,3 +14,4 @@ Metodología para calcular el Arancel del Colegio de Ingenieros Agrónomos para 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-18 | la propia norma |
+| 2 | 2013-03-13 | Decreto Ejecutivo 37817 (2013-03-13) |

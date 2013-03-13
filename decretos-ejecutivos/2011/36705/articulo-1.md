@@ -21,5 +21,6 @@ b) De ¢4.000.001 en adelante, los honorarios se calcularán con base en la apli
 Monto del honorario = (ipc) (M. Crédito/ipc) 0.597
 Donde:
 M. Crédito: Monto del crédito aprobado al cliente por la persona física o jurídica que otorga el préstamo a quien se le hace el avalúo.
-ipc: índice de precios al consumidor acumulado a diciembre del año anterior según el Banco Central de Costa Rica.
+ipc: índice de precios al consumidor registrado para el mes anterior a la fecha del avalúo según el Banco Central de Costa Rica.
+(Así reformado el concepto anterior por el artículo 1° del decreto ejecutivo N° 37817 del 13 de marzo de 2013)
 Exponencial 0.597: Factor seleccionado para dar el mejor ajuste en una curva de regresión con respecto a otros valores tomados como referencia.
