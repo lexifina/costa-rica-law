@@ -14,3 +14,4 @@ Reglamento del Fondo de Garantías y Jubilaciones de los Empleados del Banco Nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-12 | la propia norma |
+| 2 | 2013-03-13 | SINALEVI (sin norma nombrada) |
