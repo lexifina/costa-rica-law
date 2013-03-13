@@ -1,4 +1,0 @@
-CAPÍTULO CUARTO
-Del auditor y subauditor internos
-Artículo 14.—Jornada laboral y plazo de nombramiento. La jornada laboral del auditor y subauditor internos serán de tiempo completo como lo establece el artículo 30 de la Ley General de Control Interno. Cualquier modificación al tiempo de jornada, sólo podrá ser tramitada por la Junta Directiva del BANHVI ante la Contraloría General de la República, la cual no puede ser inferior a medio tiempo.
-El nombramiento será por tiempo indefinido; sin embargo, en caso de requerirse otro tipo de nombramientos (por recargo o interinos), deberán regirse por lo que al respecto indican los “Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos”, publicados en La Gaceta Nº 236 del 8 de diciembre de 2006 y cualquier otra regulación que al respecto emita la Contraloría General en el futuro.

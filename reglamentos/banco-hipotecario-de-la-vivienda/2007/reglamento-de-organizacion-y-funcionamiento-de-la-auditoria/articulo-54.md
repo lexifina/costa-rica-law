@@ -1,1 +1,0 @@
-Artículo 54.—Incumplimiento injustificado de recomendaciones aceptadas por la administración activa. De comprobar la Auditoría Interna un incumplimiento injustificado respecto de la implantación de las recomendaciones aceptadas por parte de ese funcionario, lo pondrá para lo que proceda en conocimiento del jerarca.

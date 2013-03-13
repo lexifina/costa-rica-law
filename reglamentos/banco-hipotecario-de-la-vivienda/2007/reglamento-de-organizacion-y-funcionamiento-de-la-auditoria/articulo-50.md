@@ -1,1 +1,0 @@
-Artículo 50.—Procedimientos internos. Es responsabilidad del auditor interno incluir en el Manual de Auditoría Interna del BANHVI los procedimientos internos que serán aplicables en la atención de denuncias, conforme a las regulaciones emitidas por la Contraloría General de la República.

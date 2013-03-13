@@ -1,1 +1,0 @@
-Artículo 58.—Evaluaciones al programa de calidad. Las evaluaciones al programa de calidad deberá contener supervisión y evaluación interna, que permita ofrecer credibilidad de la auditoría interna y un mejoramiento continuo de la labor de fiscalización.

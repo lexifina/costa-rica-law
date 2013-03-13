@@ -1,1 +1,0 @@
-Transitorio 2º—La administración activa deberá definir, establecer y mantener las políticas y procedimientos para el cumplimiento de este reglamento, en un plazo máximo de 3 meses a partir de la entrada en vigencia, en aquellos procesos que le corresponda a la administración activa ejecutar.

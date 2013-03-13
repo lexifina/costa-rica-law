@@ -1,4 +1,0 @@
-Artículo 19.—Del personal de la auditoría interna. Con respecto del personal a su cargo, el auditor interno tendrá al menos las siguientes potestades:
-a) Autorizar los movimientos del personal, incluyendo nombramientos, ascensos, traslados, recalificaciones, vacaciones, suspensiones y ceses, de conformidad con lo que establecen los artículos 24 y 28 de la Ley Nº 8292.
-b) Gestionar de forma oportuna lo relativo a las plazas vacantes de la dependencia a su cargo, de conformidad con el artículo 28 de la Ley General de Control Interno.
-c) Vigilar y tomar las decisiones que correspondan para que los funcionarios de la auditoría interna cumplan en el ejercicio de sus competencias con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (de la institución y propias de la auditoría interna) que les sean aplicables.
