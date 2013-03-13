@@ -17,3 +17,4 @@ Reglamento Fondo de Garantías y Jubilaciones del Banco Nacional de Costa Rica
 | 2 | 2005-03-31 | Reglamento 0 (2005-03-31) |
 | 3 | 2005-11-02 | Reglamento 962 (2005-11-02) |
 | 4 | 2006-12-19 | Reglamento 11414 (2006-12-19) |
+| 5 | 2013-03-13 | SINALEVI (sin norma nombrada) |
