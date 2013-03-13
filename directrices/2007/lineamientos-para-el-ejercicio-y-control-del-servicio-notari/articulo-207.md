@@ -1,1 +1,0 @@
-Artículo 207.—Anotaciones en el registro de sanciones. Las sanciones decretadas por la DNN pueden sufrir anotaciones al margen. Las que decreten las autoridades judiciales y notariales, por tener carácter de cosa juzgada material, no podrán ser objeto de anotación alguna, excepto en aquéllos casos en que la misma autoridad que la emitió así lo indique.

@@ -1,1 +1,0 @@
-Artículo 74.—Vigencia. Notarialmente no existe norma que indique la vigencia de las certificaciones, entendiéndose que su vigencia se mantendrá hasta tanto los datos que sustentan la certificación no varíen.

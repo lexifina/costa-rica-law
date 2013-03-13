@@ -1,1 +1,0 @@
-Artículo 93.—Materialidad del expediente. El expediente se compondrá de una carátula con las partes intervinientes, un primer folio con un índice de actuaciones del notario, los folios con las actuaciones, cualquier otro documento agregado a los autos y una contratapa. La carátula y la contratapa, deberán ser de cartulina gruesa y seguir las disposiciones del Archivo Judicial.

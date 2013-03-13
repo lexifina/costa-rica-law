@@ -1,1 +1,0 @@
-Artículo 186.—Identificación de documentos. Los documentos que emanen de las Autoridades Judiciales deberán contener la información necesaria que identifique el proceso: número de expediente, nombre y apellidos completos del notario, número de cédula, sanción aplicada y fecha a partir de la cual rige. Estos documentos no serán objeto de calificación.

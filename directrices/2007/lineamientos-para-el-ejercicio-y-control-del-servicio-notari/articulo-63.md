@@ -1,1 +1,0 @@
-Artículo 63.—Errores substanciales. Cuando se trate de errores que modifiquen elementos esenciales de los actos o contratos autorizados, la corrección deberá realizarse mediante adicional de escritura.

@@ -1,1 +1,0 @@
-Artículo 38.—Legalización de documentos. Los documentos destinados a presentarse ante funcionarios públicos de nuestro país, administrativos o judiciales, deberán ser legalizados por el funcionario consular costarricense de la jurisdicción en que fue expedido el documento.

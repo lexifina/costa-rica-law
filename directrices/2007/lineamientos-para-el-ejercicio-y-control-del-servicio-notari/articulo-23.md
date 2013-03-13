@@ -1,1 +1,0 @@
-Artículo 23.—Notario con cargo público y servicio privado. Servicio del notario que teniendo un cargo público puede brindar concomitantemente el servicio en forma privada con la prohibición de atender esos asuntos en las oficinas públicas. También puede brindar ese servicio para la propia entidad pública sin cobro.

@@ -1,1 +1,0 @@
-Artículo 56.—Identidad de categoría. Las diferencias que existen entre el servicio que brindan unos y otros notarios, por ejemplo, entre consulares y de notaría del estado según se indica en estos lineamientos, hacen que sólo sea admisible el conotariado entre notarios en condiciones similares, siempre y cuando lo hagan dentro de los límites de los alcances de la función.

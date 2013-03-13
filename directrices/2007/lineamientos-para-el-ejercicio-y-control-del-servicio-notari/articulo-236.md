@@ -1,1 +1,0 @@
-Artículo 236.—Determinación del salario base. La suma adoptada por la DNN para el período de cotización en que se haya presentado el hecho generador, será la aplicable para el cálculo del monto máximo de indemnización.

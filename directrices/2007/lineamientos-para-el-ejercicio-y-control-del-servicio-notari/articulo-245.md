@@ -1,1 +1,0 @@
-Artículo 245.—Finalización normal del procedimiento. Habiéndose cumplido lo dispuesto en el artículo anterior, la DNN ordenará a la Operadora que efectúe la devolución de los aportes y rendimientos según la resolución emitida al efecto y se archivará el expediente.

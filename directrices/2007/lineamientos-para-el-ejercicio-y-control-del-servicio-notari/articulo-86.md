@@ -1,1 +1,0 @@
-Artículo 86.—Requerimiento de servicios. La solicitud de intervención notarial será formula por la parte con interés legítimo, ya sea en forma personal o mediante mandatario con facultades suficientes para ello. Del requerimiento de los servicios se levantará un acta que será el escrito inicial del expediente.

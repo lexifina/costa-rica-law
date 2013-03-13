@@ -1,1 +1,0 @@
-Artículo 175.—Asiento matriz de notario consular. Considerando que los notarios consulares ejercen sus cargos por Ministerio de Ley, y dado que en algunos casos, el nombrado en ese cargo no es profesional en derecho, la inscripción se llevará a cabo en un apéndice del RNN.

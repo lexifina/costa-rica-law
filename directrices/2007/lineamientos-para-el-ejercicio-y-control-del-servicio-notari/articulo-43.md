@@ -1,1 +1,0 @@
-Artículo 43.—Medidas de seguridad. Teniendo presente que las actuaciones de los notarios consulares constituyen actuaciones notariales, tal circunstancia los obliga a utilizar papel de seguridad, sello blanco y a cumplir además con los requerimientos de seguridad que al efecto hayan establecido la DNN y las instituciones públicas que tramitan documentos notariales.

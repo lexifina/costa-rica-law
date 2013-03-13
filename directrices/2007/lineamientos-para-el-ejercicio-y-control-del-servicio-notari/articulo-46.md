@@ -1,1 +1,0 @@
-Artículo 46.—Conservación y uso del tomo de protocolo. En razón de que el notario es el responsable de custodiar su tomo de protocolo, el funcionario consular tomará todas las medidas que sean necesarias para que se mantenga en perfecto estado de conservación y limpieza.

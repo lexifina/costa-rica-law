@@ -1,1 +1,0 @@
-Artículo 208.—Vigencia. Tienen vigencia durante el lapso de suspensión y en los casos en que sean mayores de tres meses, concomitantemente a la registración de la sanción, el RNN inscribe el asiento registral notarial respecto de la orden del depósito de protocolo que deban realizar los notarios suspendidos.

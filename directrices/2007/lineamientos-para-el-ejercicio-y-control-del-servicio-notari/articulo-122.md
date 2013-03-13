@@ -1,1 +1,0 @@
-Artículo 122.—Inventario de papel de seguridad. El notario que cese en el ejercicio del notariado, sea voluntaria o forzosamente, deberá indicar por escrito a la DNN la cantidad y el número de serie de los pliegos de papel de seguridad que han quedado en su poder y tomar las medidas de seguridad necesarias que garanticen su custodia.

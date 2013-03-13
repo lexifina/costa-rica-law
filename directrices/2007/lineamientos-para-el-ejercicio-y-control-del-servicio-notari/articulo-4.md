@@ -1,1 +1,0 @@
-Artículo 4º—Imparcialidad. Actuar de manera objetiva e imparcial en relación con las partes que intervengan en los actos otorgados, apegado a los valores de integridad, coherencia, honestidad y transparencia.

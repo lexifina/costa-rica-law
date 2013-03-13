@@ -1,1 +1,0 @@
-Artículo 68.—Ámbito. La autorización del notario para extender certificaciones se constriñe al ámbito documental o asientos informáticos, por lo que no es posible la certificación de manifestaciones verbales o acontecimientos observados, pues para ello la legislación ha reservado otros mecanismos.

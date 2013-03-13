@@ -1,1 +1,0 @@
-Artículo 146.—Cesación voluntaria. La cesación es voluntaria cuando el notario expresamente la solicita, de lo cual se consignará nota en el RNN. A partir de la resolución de cese por parte de la DNN, previa demostración de estar al día en la presentación de índices, el notario no podrá ejercer, por lo que cualquier otorgamiento ante él es absolutamente nulo.

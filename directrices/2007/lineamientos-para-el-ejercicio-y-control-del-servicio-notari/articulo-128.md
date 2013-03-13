@@ -1,1 +1,0 @@
-Artículo 128.—Presentación de índices. Vencido el plazo de los cinco días para la presentación de índices en el Archivo Notarial, el notario deberá comprobar su entrega ante la DNN mediante copia debidamente sellada por el Archivo Notarial dentro del plazo establecido por el CN o por cualquier otro medio que disponga la Junta de este Archivo.

@@ -1,1 +1,0 @@
-Artículo 7º—Normas respecto del matrimonio. Velar por la correcta aplicación de las normas que rigen la constitución de un acto solemne como el matrimonio, máxime en casos particulares o excepcionales como el del matrimonio de extranjeros.

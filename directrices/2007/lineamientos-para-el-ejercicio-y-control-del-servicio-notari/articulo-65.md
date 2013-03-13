@@ -1,1 +1,0 @@
-Artículo 65.—Reseñas de documentos. Respecto del contenido de las protocolizaciones, éstas pueden ser literales - es decir, una transcripción del contenido - o bien una reseña si se trata de documentos muy extensos - circunstancia que se deberá indicar expresamente. Lo anterior aplica también en casos de certificaciones.

@@ -1,1 +1,0 @@
-Artículo 113.—Ámbito. Se aplica tanto a los requisitos personales como a los actos resultantes del servicio derivado de la autorización para ejercer, controla la aptitud necesaria para actuar así como sus impedimentos.

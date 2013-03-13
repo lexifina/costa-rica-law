@@ -1,1 +1,0 @@
-Artículo 134.—Folios con texto de “no corre”. Cuando se trate de folios con texto de no corre, no se repone el contenido de dichos folios en razón de que no son instrumentos autorizados. Para los efectos respectivos el notario deberá cumplir con lo indicado en los incisos a y b del artículo anterior.

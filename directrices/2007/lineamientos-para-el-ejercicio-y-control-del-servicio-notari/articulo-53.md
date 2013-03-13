@@ -1,1 +1,0 @@
-Artículo 53.—Índices. Las escrituras autorizadas en conotariado, deben ser reportadas en los índices respectivos, de conformidad con el reglamento del Archivo Notarial para la presentación de índices. Lo anterior, tenga o no el notario tomo de protocolo, siempre y cuando se encuentre debidamente activo según el RNN.

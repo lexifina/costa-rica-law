@@ -1,1 +1,0 @@
-Artículo 145.—Registro de sanciones e inhabilitación. La DNN está obligada a ejecutar por vía de registro, las sanciones impuestas a los notarios por los Tribunales Jurisdiccionales, y aquellas establecidas por la DNN de conformidad con su competencia. Además, registrará las inhabilitaciones por cese voluntario o forzoso.

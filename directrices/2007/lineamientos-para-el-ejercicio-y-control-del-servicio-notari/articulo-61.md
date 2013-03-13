@@ -1,2 +1,0 @@
-Artículo 61.—Forma de documentos. En la elaboración de todos los documentos notariales, tanto protocolares como extra protocolares, deberá observarse rigurosamente la forma. Con el fin de garantizar que el contenido sea legible, se sugiere que cuando se utilicen medios mecánicos los caracteres con los que se imprima el texto sean tipo de letra Arial, Times New Roman o Calibri y como mínimo del tamaño diez
-(Así reformado por acuerdo N° 2012-015-007 tomado en sesión N° 15 del 11 de julio del 2012)

@@ -1,1 +1,0 @@
-Artículo 212.—Decretos de inhabilitación. Serán objeto de inscripción los decretos de inhabilitación emitidos por la DNN por resolución en procesos establecidos para ese fin y de conformidad con las causas establecidas en los arts. 4 y 13 del CN.

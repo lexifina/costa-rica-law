@@ -1,1 +1,0 @@
-Artículo 183.—Eficacia de los asientos. Los asientos registrales notariales tienen eficacia plena en tanto no se indique lo contrario mediante anotación marginal, de conformidad con las disposiciones de este título.

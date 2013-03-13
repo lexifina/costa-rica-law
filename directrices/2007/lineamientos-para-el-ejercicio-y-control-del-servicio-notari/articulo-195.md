@@ -1,1 +1,0 @@
-Artículo 195.—Inclusión en el RNN. La inscripción y autorización se incluyen en el RNN una vez que el notario se juramente de conformidad con la resolución firme de la DNN. Los casos respecto del cese voluntario o forzoso también tienen como respaldo el expediente donde se llevó a cabo el respectivo trámite.

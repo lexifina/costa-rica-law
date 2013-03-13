@@ -1,1 +1,0 @@
-Artículo 217.—Cuenta personal. Es la cuenta donde la operadora registra el ingreso e intereses de las cuotas que el notario deposita al FG, en forma individualizada, a fin de asegurar la garantía para el usuario perjudicado y la devolución de los aportes de cada notario, una vez que se cumplan los requisitos.

@@ -1,1 +1,0 @@
-Artículo 103.—Excusa del notario. Cuando surja en el notario una causa justa, moral o legal, que le impida continuar tramitación del expediente, éste lo hará constar así mediante resolución fundada y ordenará remitir los autos a la autoridad judicial competente.

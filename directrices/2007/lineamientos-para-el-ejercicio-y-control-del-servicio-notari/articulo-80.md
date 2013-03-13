@@ -1,1 +1,0 @@
-Artículo 80.—Traducción notarial dirigida al exterior. Cuando la traducción notarial requiera la autenticación de la firma del notario por parte de la DNN, el notario deberá indicar mediante razón que conoce el idioma, señalando el lugar de destino y una breve referencia del contenido documental.

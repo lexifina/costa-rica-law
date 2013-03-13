@@ -1,1 +1,0 @@
-Artículo 111.—Reapertura en sede judicial. Cuando un expediente de actividad judicial no contenciosa se encontrare en custodia del Archivo Judicial y fuere requerido por una autoridad jurisdiccional para su reapertura, el Archivo informará a la DNN para lo que corresponda.

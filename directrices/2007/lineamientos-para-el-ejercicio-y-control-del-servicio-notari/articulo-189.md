@@ -1,1 +1,0 @@
-Artículo 189.—Solicitud de certificación. Toda certificación deberá solicitarse por escrito y sólo podrá ser expedida por la DNN. No se aceptará fax ni correo electrónico salvo que sean requeridos por autoridades jurisdiccionales.

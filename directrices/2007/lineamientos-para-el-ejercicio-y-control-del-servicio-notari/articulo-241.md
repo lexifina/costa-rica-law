@@ -1,1 +1,0 @@
-Artículo 241.—Conformación del expediente. Recibida la solicitud, se confeccionará un expediente judicial, con la numeración respectiva e incluido en el libro de entradas del despacho, para lo cual se seguirán las disposiciones emanadas por la Corte en esta materia.

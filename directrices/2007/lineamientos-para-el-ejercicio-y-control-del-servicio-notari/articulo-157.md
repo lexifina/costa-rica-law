@@ -1,1 +1,0 @@
-Artículo 157.—Sobreimpresión en la razón. La sobreimpresión de instrumentos en la razón de apertura es causa de invalidez del documento, de ahí que para que el notario continúe asentando instrumentos en ese tomo, deberá comparecer ante la DNN, a fin de reproducir la razón respectiva en ese tomo de protocolo.

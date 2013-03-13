@@ -1,1 +1,0 @@
-Artículo 141.—Control notarial en las oficinas públicas. El control en oficinas públicas, estará dirigido al cumplimiento del ejercicio exclusivo para la institución para la cual laboran y sujeto a los presupuestos mediante los cuales se autorizó ese ejercicio.

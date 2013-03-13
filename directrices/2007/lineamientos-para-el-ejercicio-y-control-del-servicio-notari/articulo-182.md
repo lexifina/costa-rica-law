@@ -1,1 +1,0 @@
-Artículo 182.—Variación del asiento matriz registral. El asiento matriz registral podrá ser objeto de modificación siempre y cuando medie una resolución judicial que así lo indique; sin embargo, por ser la inscripción a perpetuidad con efectos erga omnes, se mantendrá como parte del histórico.

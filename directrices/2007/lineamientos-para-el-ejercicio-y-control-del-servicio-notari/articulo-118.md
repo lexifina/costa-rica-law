@@ -1,1 +1,0 @@
-Artículo 118.—Denuncia. La DNN denunciará al notario ante la autoridad respectiva, cuando, al aplicar el control o por solicitud de parte legitimada, detecte irregularidades perjudiciales para las partes, terceros, o la misma fe pública.

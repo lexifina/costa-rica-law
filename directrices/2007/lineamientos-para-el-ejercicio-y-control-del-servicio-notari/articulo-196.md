@@ -1,1 +1,0 @@
-Artículo 196.—Entrega de credencial. La credencial es el documento que identifica al notario autorizado para el ejercicio del notariado. Su entrega se efectuará una vez que éste rinda el juramento de ley. Tendrá vigencia en tanto el notario se encuentre debidamente autorizado.

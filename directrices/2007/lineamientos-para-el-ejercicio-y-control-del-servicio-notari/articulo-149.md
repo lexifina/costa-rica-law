@@ -1,1 +1,0 @@
-Artículo 149.—Rehabilitación. Se considera rehabilitado aquel notario que, estando cesado por resolución firme, cumpla con los requisitos y condiciones que la ley le exige y las disposiciones emanadas por la DNN.

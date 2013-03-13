@@ -1,1 +1,0 @@
-Artículo 83.—Rechazo de trámite. Cualquier incumplimiento en las disposiciones administrativas citadas, genera el rechazo de trámite y si hubiera algún incumplimiento de estos lineamientos y de normas legales, podría ser susceptible de denuncia ante los órganos competentes.

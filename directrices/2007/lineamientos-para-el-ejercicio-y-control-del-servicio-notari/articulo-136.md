@@ -1,2 +1,0 @@
-Artículo 136.— Plazo de reposición. Transcurrido el mes a que se refiere el CN5, se dará por concluida la reposición con el material aportado a la fecha mediante razón al efecto. Lo anterior sin perjuicio de que ese plazo se extienda seis meses según lo dispuesto por el art. 66 del código citado.
-NOTA DE SINALEVI: La reforma realizada a este artículo por resolución N° 740 del 9 de mayo de 2008, quedó sin efecto, al dejarse sin efecto esta última por resolución N° 1196 del 25 de julio de 2008, por lo cual el artículo recobra el texto que tenía antes de dicha reforma.

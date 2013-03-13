@@ -1,1 +1,0 @@
-Artículo 148.—Efectos de la cesación. El cese, sea voluntario o forzoso, tendrá efectos registrales y publicitarios y los mismos efectos respecto de la nulidad absoluta del acto o contrato: el instrumento no valdrá como tal.
