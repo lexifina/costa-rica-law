@@ -1,2 +1,0 @@
-Artículo 11.—Beneficio para Progenitores. La misma medida aplicará cuando al fallecer el Miembro, sin cónyuge o conviviente y le sobrevivan el padre o la madre en condiciones de dependencia del mismo. En este caso el Órgano de Dirección, del Fondo, de previo a otorgar la pensión a cualquiera de los padres, realizará los estudios que ha su criterio considere necesarios.
-(Así reformado mediante publicación efectuada en La Gaceta Nº 62 del 31 de marzo del 2005).

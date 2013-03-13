@@ -1,1 +1,0 @@
-Artículo 4º—Representación. La representación legal del Fondo la tendrá el Banco Nacional de Costa Rica. El Fondo operará con la autonomía en la gestión y administración que este reglamento establece.

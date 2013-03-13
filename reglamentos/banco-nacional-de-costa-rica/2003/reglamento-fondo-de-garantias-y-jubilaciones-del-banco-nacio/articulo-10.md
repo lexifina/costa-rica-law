@@ -1,2 +1,0 @@
-Artículo 10.—Beneficio para Hijos. Al fallecimiento del cónyuge o del conviviente supérstite, tendrán derecho a un 25% de la pensión actual asignada al miembro, los hijos menores de los padres fallecidos, hasta tanto no adquieran la mayoría de edad, o en caso de ser estudiantes, hasta los 25 años, siempre que no sean asalariados. Para los hijos incapacitados física o mentalmente, el derecho será vitalicio.
-(Así reformado mediante publicación efectuada en La Gaceta Nº 62 del 31 de marzo del 2005).

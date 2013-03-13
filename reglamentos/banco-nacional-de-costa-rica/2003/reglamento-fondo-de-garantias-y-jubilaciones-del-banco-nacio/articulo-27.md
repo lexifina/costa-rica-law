@@ -1,3 +1,0 @@
-Artículo 27.—Requisitos de los Integrantes de el Órgano de Dirección. Para ser miembro de el Órgano de Dirección, será necesario ser integrante del Fondo, con más de cinco años de antigüedad, salvo el caso del Gerente o su representante. No podrán ser designados Miembros de el Órgano de Dirección, los integrantes que sean deudores morosos del Fondo o del Banco.
-Los Miembros del Órgano de Dirección, estarán en sus cargos por espacios de dos años, a partir del primero de enero siguiente a su designación y podrán ser reelectos.
-(Así reformado mediante publicación efectuada en La Gaceta Nº 62 del 31 de marzo del 2005).

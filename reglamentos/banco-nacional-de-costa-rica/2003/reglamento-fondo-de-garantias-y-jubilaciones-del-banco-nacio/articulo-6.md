@@ -1,5 +1,0 @@
-Artículo 6º—Aplicación de los Aportes al Fondo. El aporte del Banco al Fondo sobre el total de los sueldos de los empleados, de conformidad con lo que dispone el inciso 5) del artículo 55 de la Ley Orgánica del Sistema Bancario Nacional, se acreditará en las cuentas individuales de sus integrantes.
-Mediante subcuenta se acreditará en dichas cuentas individuales el aporte del 5% del empleado al Fondo establecido en el inciso c) del artículo 5 anterior, más los rendimientos netos de las inversiones de dicho aporte, de acuerdo con lo que establece el artículo 8 de este reglamento.
-Cuando un integrante del Fondo se acoja a pensión o fallezca generando derecho a pensión, el monto de la cuenta individual a su haber, se traspasará de inmediato a la cuenta de reserva para obligaciones por pensiones concedidas establecida en el artículo 8 del presente reglamento.
-En caso de ser necesario, dicho monto se complementará hasta el valor presente actuarial de la pensión, utilizando los rendimientos generados por la inversión de los recursos de la reserva general para beneficios futuros.
-(Así reformado mediante sesión N° 962, celebrada el 02 de noviembre de 2005).
