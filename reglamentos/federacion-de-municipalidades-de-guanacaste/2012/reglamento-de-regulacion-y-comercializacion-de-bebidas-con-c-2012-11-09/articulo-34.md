@@ -1,0 +1,6 @@
+Artículo 34.—Todas las personas físicas o jurídicas deberán cumplir lo siguiente, según las condiciones:
+a.) En caso que se solicite una licencia clase E, copia certificada de la declaratoria turística vigente.
+b.) Cuando la actividad solicitada sea la correspondiente al giro de restaurante, el establecimiento deberá cumplir con el equipo, condiciones y requerimientos establecidos en el artículo N° 3 de este reglamento.
+c.) Para los efectos del cumplimiento de los tres artículos anteriores, la Municipalidad podrá disponer el uso de un formulario diseñado para tal fin, en el cual se consignará la información pertinente que satisfaga los requerimientos indicados.
+d.) Es obligación del solicitante informar a la municipalidad cualquier modificación de las condiciones acreditadas mediante el formulario y la documentación antes indicada, y que se verifique antes del otorgamiento de la licencia.
+e.) En el caso de las licencias autorizadas Clase E, en que exista cancelación de la declaratoria turística por parte del ICT, el patentado deberá hacerlo de conocimiento por escrito a esta Municipalidad en el término de los 5 días hábiles siguientes a su conocimiento para lo que corresponda. De no hacerlo y detectarlo la municipalidad se procederá a revocar de inmediato la licencia.
