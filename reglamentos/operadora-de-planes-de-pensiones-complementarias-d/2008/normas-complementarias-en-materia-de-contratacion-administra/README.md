@@ -14,3 +14,4 @@ Normas Complementarias en Materia de Contratación Administrativa para la Operad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-24 | la propia norma |
+| 2 | 2013-03-14 | Reglamento 402 (2013-03-14) |

@@ -1,2 +1,2 @@
 Artículo 9º—Gerencia. La Gerencia de la Operadora, en su condición de representante legal de esta, tendrá la obligación de rubricar los contratos que se requieran y deriven de las contrataciones administrativas tramitadas por ésta.
-Una vez recibido el contrato respectivo contará con un plazo de tres días hábiles para rubricarlo, plazo dentro del cual deberá gestionar las correcciones que estime necesarias, si las hubiera.
+(Así reformado mediante sesión ordinaria N° 402 del 14 de marzo del 2013)

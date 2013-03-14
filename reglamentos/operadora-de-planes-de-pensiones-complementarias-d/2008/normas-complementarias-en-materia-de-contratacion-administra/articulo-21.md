@@ -1,1 +1,2 @@
-Artículo 21.—Variación en la información. Todo proveedor inscrito está obligado a verificar y actualizar la información aportada al Registro de Proveedores en el momento de darse un cambio en su situación jurídica o al menos el primer mes de cada año, para lo cual debe presentar los documentos legales que demuestren esa situación.
+Artículo 21.—Variación en la información. Cuando una persona física o jurídica se encuentra inscrita en el Registro de Proveedores de la Administración licitante y ya haya cumplido con los requisitos de inscripción, no será necesario acreditarlos de nuevo, mientras no varíe la situación declarada lo cual se indicará en la oferta.
+(Así reformado mediante sesión ordinaria N° 402 del 14 de marzo del 2013)
