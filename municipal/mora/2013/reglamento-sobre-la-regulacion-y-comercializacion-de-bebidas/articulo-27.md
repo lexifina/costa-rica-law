@@ -1,0 +1,1 @@
+Articulo 27. De la exoneración del pago por licencias temporales solicitadas por organizaciones sin fines de lucro. Quedaran exoneradas del pago del impuesto por licencias temporales cuando las mismas sean solicitadas por organizaciones sin fines de lucro y que el destino de los fondos a recaudar, sea para el desarrollo propio de las comunidades que representan.

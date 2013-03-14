@@ -1,0 +1,2 @@
+Artículo 62. Sanción relativa a personas jurídicas. Quien omita presentar a la municipalidad la actualización de su capital accionario, cuando se trate de personas jurídicas adjudicatarias de licencias, será sancionado con una multa de entre uno y diez salarios base.
+La aplicación de dichas sanciones se dará por medio de la simple constatación de la Administración Tributaria, la primera falta será por la cantidad de 5 salarios base y si existe reincidencia será por la totalidad de los 10 salarios base.

@@ -1,0 +1,1 @@
+Articulo 29. De la aprobación. De aprobarse la licencia temporal por parte del Concejo Municipal, deberá enviarse copia del acuerdo correspondiente a la Unidad de Licencias Comerciales de la Municipalidad.

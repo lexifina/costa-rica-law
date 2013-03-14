@@ -1,0 +1,1 @@
+Artículo 56. Denegatoria de renovación. Para denegar una renovación de quinquenio, el Departamento de Licencias Comerciales la municipalidad deberá haber comprobado las denuncias presentadas en el plazo del quinquenio anterior, cumpliendo con el proceso debido correspondiente.

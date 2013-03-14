@@ -1,0 +1,2 @@
+Artículo 8. Causas de denegatoria. La solicitud de una licencia municipal para ejercer la actividad, sólo podrá ser denegada cuando esta sea contraria a la ley, al orden, la moral o las buenas costumbres y/o cuando el solicitante no haya cumplido los requisitos legales y reglamentarios.
+Asimismo, en caso de las licencias que se encuentren en funcionamiento, la renovación por parte del titular de la licencia, será rechazada cuando se haya incurrido en violaciones reiteradas a la ley, la moral o las buenas costumbres en el ejercicio de la actividad realizada.

@@ -1,0 +1,1 @@
+Artículo 41. Actualización de datos de las personas jurídicas. Es obligación de las personas jurídicas mantener actualizado ante la Administración Tributaria, todo tipo de modificación o cambio que se dé en las mismas.
