@@ -1,0 +1,1 @@
+Artículo 84.—Los designados como miembros del Comité Comunal de Deporte y Recreación se reunirán posteriormente y de su seno se integrará el Directorio con su respectivo cargo. Serán juramentados por el delegado del Comité Cantonal de Deportes y Recreación presente.

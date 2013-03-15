@@ -1,0 +1,1 @@
+Artículo 74.—Todos los organismos operativos del Comité Cantonal de Deportes y Recreación deberán llevar un Libro de Tesorería, el cual será suministrado por el Comité Cantonal. Los talonarios de recibo por dinero, deberán usarse en todas las gestiones de cobro, estos talonarios serán suministrados por el Comité Cantonal de Deportes y Recreación.

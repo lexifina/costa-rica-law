@@ -1,0 +1,1 @@
+Artículo 63.—Las cuotas por alquiler de instalaciones serán reguladas y aprobadas por el Comité Cantonal de Deportes y Recreación previa autorización del Concejo Municipal de Parrita. Todos los ingresos que deparen las instalaciones deben destinarse para la administración y mantenimiento de las mismas.

@@ -1,0 +1,4 @@
+CAPÍTULO DÉCIMO
+Oficina Sede del Comité Cantonal de Deportes y Recreación
+Artículo 95.—Podrá el Comité Cantonal de Deportes y Recreación de Parrita contratar los servicios profesionales de un director administrativo, un asistente administrativo, un contador, secretaria ejecutiva, promotor deportivo cantonal y el personal indispensable según sus posibilidades económicas.
+Todos los nombramientos para ocupar un cargo en la estructura administrativa del Comité Cantonal de Deportes y Recreación de Parrita deben cumplir el perfil del Manual Descriptivo de Clasificación y Valoración de Puestos de la Municipalidad de Parrita y escogidos de entre los candidatos que hayan respondido a un concurso público que promoverá el Comité Cantonal de Deportes y Recreación mediante una publicación en un diario de circulación nacional, elaborada por la Dirección de Recursos Humanos de la Municipalidad de Parrita.

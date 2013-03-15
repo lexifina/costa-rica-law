@@ -1,0 +1,1 @@
+Artículo 20.—Promulgar, aprobar, modificar e interpretar los reglamentos internos del Comité Cantonal para el funcionamiento de sus órganos subalternos. Dichos reglamentos deben de previo ser aprobados y registrados por el Concejo Municipal.

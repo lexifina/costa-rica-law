@@ -1,0 +1,1 @@
+Artículo 104.—Los casos y necesidades no contemplados en este reglamento serán resueltos conforme al sano criterio de los miembros del Comité Cantonal de Deporte y Recreación, su resolución deberá ser aprobada por el Concejo Municipal de Parrita y comunicarse para su debida incorporación al reglamento.

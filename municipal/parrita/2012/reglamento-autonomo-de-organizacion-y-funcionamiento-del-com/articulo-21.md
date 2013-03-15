@@ -1,0 +1,1 @@
+Artículo 21.—Aprobar o improbar de acuerdo con los lineamientos y directrices establecidos, por el Concejo Municipal, los planes, programas y presupuestos presentados por los organismos y entidades afiliadas al Comité Cantonal de Deportes y Recreación de Parrita.
