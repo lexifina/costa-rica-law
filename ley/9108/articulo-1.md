@@ -1,0 +1,11 @@
+N° 9108
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL INCISO 5) DEL ARTÍCULO 61 DE LA LEY ORGÁNICA
+DEL SISTEMA BANCARIO NACIONAL, LEY N.º 1644, Y DEL
+ARTÍCULO 106 DE LA LEY ORGÁNICA DEL BANCO
+CENTRAL DE COSTA RICA, LEY N.º 7558
+ARTÍCULO 1.- Se reforma el inciso 5) del artículo 61 de la Ley N.º 1644, Ley Orgánica del Sistema Bancario Nacional, y sus reformas, para que se lea de la siguiente manera:
+“Artículo 61.- Los bancos comerciales podrán efectuar operaciones de crédito y hacer inversiones para los siguientes fines:
+[…]
+5) Para la ejecución de las operaciones normales basadas en las necesidades financieras del Estado y de las demás instituciones de Derecho público, hasta por un monto que no podrá exceder en su conjunto, para cada banco comercial del Estado, el Banco Popular y de Desarrollo Comunal y cada banco privado domiciliado en el país, del veinte por ciento (20%) de su capital y sus reservas. Se exceptúan del límite de crédito anterior, los préstamos que se hagan a las siguientes instituciones autónomas: el Instituto Costarricense de Electricidad (ICE) y las garantías sobre créditos que se otorguen en el exterior a dicha institución; el Instituto Costarricense de Acueductos y Alcantarillados (ICAA), en cuanto a los requerimientos de créditos destinados al desarrollo y la construcción de alcantarillado y tratamiento de aguas, y de servicio de agua potable que atiende; la Caja Costarricense de Seguro Social (CCSS), cuando los recursos se destinen a la construcción de infraestructura hospitalaria, clínicas, Equipos básicos de atención integral en salud (Ebais) y su equipamiento; las municipalidades existentes en el país, siempre que los recursos se utilicen para el desarrollo y la ampliación de servicios municipales que se contrapresten por una tasa o precio según el artículo 74 del Código Municipal, Ley N.º 7794, y sus reformas, o en infraestructura municipal, siempre y cuando se demuestre de dónde se obtendrán los ingresos que puedan cubrir las amortizaciones y los gastos por intereses correspondientes. En los casos anteriormente exceptuados, se aplicarán las disposiciones del artículo 135 de la Ley Orgánica del Banco Central de Costa Rica.”
