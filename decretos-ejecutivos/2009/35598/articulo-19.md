@@ -1,1 +1,3 @@
-Artículo 19.—Deber de los superiores. Los superiores inmediatos serán los responsables de advertir a los funcionarios sobre la prohibición del fumado.
+Artículo 19.—El incumplimiento de las disposiciones contenidas en el presente capítulo será considerado, para efectos de sanción, como falta de alguna gravedad, conforme a la Clasificación de las faltas establecidas en el artículo 66 del presente reglamento, lo anterior sin menoscabo de las sanciones pecuniarias señaladas en el artículo 36 de la Ley N° 9028.
+En lo no contemplado en este capítulo, procede aplicar lo establecido en la Ley N° 9028, Ley General de Control del Tabaco y sus Efectos Nocivos en la Salud, y su Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37668 del 15 de marzo del 2013)

@@ -1,2 +1,2 @@
-Artículo 17.—Áreas de fumado. La Imprenta Nacional designará áreas para fumado, de conformidad con lo establecido en el Reglamento a la Ley Reguladora de Fumado en su artículo 8 inciso b) y el criterio técnico de la Oficina de Salud Ocupacional.
-Los funcionarios de la Imprenta Nacional, únicamente, podrán hacer uso de la áreas de fumado dentro del horario de almuerzo y recesos, según lo preceptuado en el artículo 34 párrafo tercero del presente Reglamento.
+Artículo 17.—La Dirección General otorgará el permiso correspondiente para que los funcionarios(as) con diagnóstico de adicción al tabaco o sus derivados asistan a programas oficiales del Instituto sobre Alcoholismo y Farmacodependencia (IAFA), la Caja Costarricense de Seguro Social (CCSS), o cualquier programa debidamente acreditado, presentando los comprobantes respectivos de asistencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37668 del 15 de marzo del 2013)

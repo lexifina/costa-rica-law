@@ -1,1 +1,2 @@
-Artículo 18.—Sanciones. El incumplimiento de las disposiciones contenidas en el presente capítulo será considerado, para efectos de sanción, como falta de alguna gravedad, lo anterior sin menoscabo de las sanciones pecuniarias señaladas en la Ley Nº 7501.
+Artículo 18.—La Dirección General y las Jefaturas, serán los responsables de advertir a los funcionarios(as) sobre los lugares y espacios públicos catalogados como “sitios prohibidos para fumar”. La Imprenta Nacional deberá por medio de avisos en lugares visibles, informar la prohibición de fumar, indicando la leyenda “Prohibido fumar, ambiente libre de humo de tabaco” y el símbolo internacional de prohibido fumar.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37668 del 15 de marzo del 2013)

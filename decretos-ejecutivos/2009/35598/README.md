@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Imprenta Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-17 | la propia norma |
+| 2 | 2013-03-15 | Decreto Ejecutivo 37668 (2013-03-15) |
