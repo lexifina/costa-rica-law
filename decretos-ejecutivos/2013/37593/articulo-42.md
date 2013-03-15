@@ -1,0 +1,1 @@
+Artículo 42. Póliza de riesgos del trabajo. Una vez que la municipalidad respectiva apruebe la patente comercial y previa a su emisión, el usuario registrado debe ingresar en el Sistema los datos de una póliza de riesgos del trabajo asociada con la actividad económica cuyo ejercicio se va a autorizar.

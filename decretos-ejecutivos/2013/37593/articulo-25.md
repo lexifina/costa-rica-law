@@ -1,0 +1,1 @@
+Artículo 25. Emisión automática del PSFE. En el caso de las solicitudes para la emisión del P.S.F.E. relacionadas con las actividades categorizadas en los grupos B y C, el permiso se emitirá mediante CrearEmpresa, con solo la presentación, de los documentos indicados en el artículo 9 del Decreto Ejecutivo N° 34728, sin necesidad de inspección previa.

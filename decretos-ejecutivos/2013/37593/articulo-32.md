@@ -1,0 +1,1 @@
+Artículo 32. Establecimientos autorizados por el SENASA. Corresponderá únicamente al SENASA autorizar en CrearEmpresa el funcionamiento de los establecimientos enunciados en los inciso a) y c) del artículo anterior del presente reglamento. Dicha autorización se hará por medio del CVOE, el cual será reconocido como equivalente al PSFE del Ministerio de Salud.

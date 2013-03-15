@@ -1,0 +1,2 @@
+Artículo 37. Actividades excluidas del trámite de Viabilidad Ambiental Electrónica. Las actividades excluidas en CrearEmpresa del trámite de VAE, corresponden a las excluidas del trámite de Viabilidad Ambiental que se encuentran detalladas en el listado contenido en las resoluciones número 583-2008-SETENA y 2653-2008-SETENA de la SETENA.
+Las actividades excluidas del trámite de VAE corresponderán a lo establecido por la SETENA en la normativa respectiva.

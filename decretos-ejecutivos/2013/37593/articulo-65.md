@@ -1,0 +1,1 @@
+Artículo 65. Derogatoria. Se deroga el Reglamento para la utilización y funcionamiento del portal “CrearEmpresa”, promulgado mediante el Decreto Ejecutivo No. 37020-JP-MEIC de 24 de febrero de 2012, publicado en el Diario Oficial La Gaceta N° 43 del 29 de febrero de 2012.

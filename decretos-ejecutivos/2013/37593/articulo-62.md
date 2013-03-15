@@ -1,0 +1,1 @@
+Artículo 62. Fallas técnicas. El administrador de CrearEmpresa queda exento de toda responsabilidad por las fallas técnicas y de conectividad del hardware y el software empleados por los usuarios para acceder a CrearEmpresa. Es responsabilidad exclusiva del usuario mantener en perfecto funcionamiento la conectividad del hardware y el software que utilice.

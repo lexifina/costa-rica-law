@@ -1,0 +1,1 @@
+Artículo 21. Legalización electrónica de libros sociales. La autorización de legalización de libros sociales a través de la constitución de sociedades, se generará automáticamente con su inscripción, a través de la asignación por parte del Registro de Personas Jurídicas del respectivo número de autorización.

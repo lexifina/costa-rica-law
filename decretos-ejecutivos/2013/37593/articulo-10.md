@@ -1,0 +1,1 @@
+Artículo 10. Deber de iniciar y concluir en CrearEmpresa los trámites. Las instituciones públicas que facultativamente decidan utilizar CrearEmpresa para gestionar los trámites de inscripción y puesta en operación de una empresa completamente en línea, deben diligenciar los trámites y emitir la resolución y/o certificación final de la gestión mediante el Sistema.

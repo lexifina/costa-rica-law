@@ -1,0 +1,2 @@
+Artículo 55. Mejoras en las medidas de seguridad. El administrador de CrearEmpresa está facultado para introducir todas las medidas de seguridad que considere necesarias para el uso del Sistema.
+Si alguna de estas medidas implica cambio o modificación de las condiciones normales de funcionamiento de CrearEmpresa, el Administrador debe comunicar los cambios a los usuarios registrados con al menos tres días hábiles de antelación a la implementación de las mejoras.

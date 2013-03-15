@@ -1,0 +1,1 @@
+Artículo 8. Pagos realizados mediante CrearEmpresa. Los usuarios registrados deben realizar los pagos que generen los trámites efectuados en CrearEmpresa, mediante formulario de entero de gobierno y/o por los medios de pago electrónico habilitados en el sistema.
