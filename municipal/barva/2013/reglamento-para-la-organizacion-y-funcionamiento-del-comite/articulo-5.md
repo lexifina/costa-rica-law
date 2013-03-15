@@ -1,0 +1,1 @@
+ARTÍCULO 5. El Comité y los órganos que él designe son los encargados del deporte y la recreación en el cantón de Barva, según los planes municipales y nacionales que en esta materia dicten la Municipalidad y el ICODER de acuerdo a las leyes vigentes.

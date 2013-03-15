@@ -1,0 +1,1 @@
+ARTÍCULO 75. Sin perjuicio de poder celebrar convenios conforme este Reglamento, las Asociaciones Deportivas podrán administrar y mantener instalaciones deportivas que se encuentren bajo su propiedad así como las que le pueda dar en administración el Comité Cantonal.

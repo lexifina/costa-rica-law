@@ -1,0 +1,1 @@
+ARTÍCULO 16. Los miembros de la Junta Directiva durarán en sus cargos dos años y podrán ser reelectos por segunda en caso de que el Concejo les renueve el nombramiento y no devengarán dieta ni remuneración alguna, ya que el cargo es ad honorem.

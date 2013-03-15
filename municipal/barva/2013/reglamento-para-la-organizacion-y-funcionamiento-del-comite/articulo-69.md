@@ -1,0 +1,1 @@
+ARTÍCULO 69. Cuando se realicen torneos internos del Distrito o Comunidad el Comité Comunal debe confeccionar el respectivo proyecto o plan del evento, mismo que debe ser ratificado por el Comité Cantonal para su aplicación.

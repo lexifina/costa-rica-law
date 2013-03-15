@@ -1,0 +1,1 @@
+ARTÍCULO 44. Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y del Secretario del Comité. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad y las hojas serán selladas y foliadas por ésta. Una vez finalizado cada libro de Actas deberá entregarse al Concejo Municipal una copia certificada y otra copia por medios digitales.

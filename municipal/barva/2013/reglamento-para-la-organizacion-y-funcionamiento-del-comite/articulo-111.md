@@ -1,0 +1,1 @@
+ARTÍCULO 111. Los directivos del Comité Cantonal no podrán formar parte o integrar los Comités Comunales, de los Subcomités de Deporte, de Recreación, ni de ninguna organización existente mientras ostente la condición de miembros del Comité y aún hasta seis meses después de dejar su condición, según la estructura organizativa contenida en este Reglamento.

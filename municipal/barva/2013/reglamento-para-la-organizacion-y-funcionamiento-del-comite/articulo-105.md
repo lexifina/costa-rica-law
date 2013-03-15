@@ -1,0 +1,1 @@
+ARTÍCULO 105. Corresponde al Administrador contratar la vigilancia necesaria para solventar las diversas necesidades de su propio funcionamiento de los campos e instalaciones así como de las diversas actividades que así lo demanden.

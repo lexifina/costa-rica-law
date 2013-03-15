@@ -1,0 +1,1 @@
+ARTÍCULO 88. El Comité Cantonal y sus órganos solo podrán invertir sus fondos en terrenos y/o propiedades que pertenezcan a la Municipalidad de Barva, a las Asociaciones de Desarrollo Integral y afines previa firma de convenios.

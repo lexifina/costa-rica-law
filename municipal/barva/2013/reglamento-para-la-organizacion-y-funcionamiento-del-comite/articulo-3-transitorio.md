@@ -1,0 +1,2 @@
+III.—La estructura administrativa se constituirá conforme las necesidades actuales del Comité y siempre supeditada a la existencia de fondos y teniendo en consideración que no se vean afectados programas deportivos, objetivo primordial del Comité.
+Una vez cumplido el período establecido para consulta pública no vinculante, recibidas las objeciones y observaciones, e incluidas las modificaciones aceptadas publíquese definitivamente el presente Reglamento. Regirá a partir del día hábil siguiente a dicha publicación.
