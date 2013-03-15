@@ -1,0 +1,1 @@
+Artículo 18.—Creación de informes técnicos. El encargado de estudios técnicos del Departamento de TI será el responsable de presentar los Estudios y Recomendaciones Técnicas por escrito, con sus alternativas, que le sean solicitados al departamento. El documento deberá hacer referencia con lo establecido en el Plan Estratégico de TI.

@@ -1,0 +1,1 @@
+Artículo 9º—Plan táctico de TI. Será desarrollado por el encargado de la administración de la gestión del departamento de TI, donde formulara el plan de corto plazo (de 6 a 12 meses) para la implementación de PETI, la prioridad de los proyectos de TI y los planes de mejora continua del departamento.

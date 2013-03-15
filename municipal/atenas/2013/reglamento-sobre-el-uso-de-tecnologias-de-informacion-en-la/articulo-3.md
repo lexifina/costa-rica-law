@@ -1,0 +1,1 @@
+Artículo 3º—Alcance del reglamento. Las disposiciones de este reglamento aplicaran a toda persona, sea trabajador municipal o externo, que posea un acceso valido a la red de internet institucional o utilice cualquier equipo tecnológico propiedad de la Municipalidad y que sea soportado por el Departamento de TI.

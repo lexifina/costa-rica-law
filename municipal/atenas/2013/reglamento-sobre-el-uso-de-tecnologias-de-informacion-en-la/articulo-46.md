@@ -1,0 +1,1 @@
+Artículo 46.—Mantenimiento preventivo de sistemas de cómputo. El mantenimiento preventivo de los sistemas de información deberá ser documentado y realizado por el Departamento de TI, siguiendo un protocolo previamente establecido, sin alterar las funciones de los usuarios de los medios intervenidos.

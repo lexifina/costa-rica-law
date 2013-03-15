@@ -1,0 +1,1 @@
+Artículo 17.—Autorización para implementaciones. Será el Departamento de TI el único autorizado para implementar, desarrollar e incorporar cualquier tipo de sistema o aplicación de Información Digital para la Municipalidad.

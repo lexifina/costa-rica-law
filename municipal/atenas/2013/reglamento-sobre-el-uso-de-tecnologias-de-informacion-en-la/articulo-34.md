@@ -1,0 +1,1 @@
+Artículo 34.—Uso del correo interno de la municipalidad. Sera obligación del usuario el uso del correo interno de la municipalidad, como canal oficial de comunicación y envío de archivos de índole laboral. Asimismo, se regulara el uso del correo para fines laborales únicamente, evitando el abuso del activo y el exceso de carga (envío de archivos de gran tamaño) del mismo.

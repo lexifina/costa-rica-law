@@ -1,0 +1,1 @@
+Artículo 38.—Uso sin autorización de la contraseña. Será prohibido utilizar contraseñas de otros usuarios sin su consentimiento, esto se cataloga como suplantación de identidad. Y bajo esta premisa, se establecerán las penas según lo establece la ley.

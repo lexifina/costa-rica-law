@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+De la conformación del Departamento de TI
+Artículo 5º—Organigrama del departamento. Se implementara a lo interno del departamento, un organigrama que permita la asignación de funciones administrativas, donde las atribuciones, competencias y responsabilidades de sus miembros estén claramente definidas. La correcta aplicación de este Reglamento dependerá de la organización interna de TI, donde se debe tener claro los encargados de las siguientes áreas: administración de la gestión de TI (proyectos de mejora, manejo de riesgos y mejoramiento continuo), administrador de bases de datos, soporte técnico, encargado de proyectos, estudios técnicos, y recomendación para compras.

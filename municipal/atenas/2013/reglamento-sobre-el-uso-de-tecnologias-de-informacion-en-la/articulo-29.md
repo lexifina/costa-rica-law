@@ -1,0 +1,1 @@
+Artículo 29.—Seguridad del equipo de cómputo en la oficina. El usuario es el responsable del equipo de cómputo instalado en su lugar de trabajo. Para prevenir acceso no autorizado al mismo, o hurto del equipo, deberá permanecer el equipo con protección de seguridad, facilitada por la Administración, o en su ausencia deberá cerrar con llave la puerta de su oficina.

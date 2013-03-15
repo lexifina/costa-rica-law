@@ -1,0 +1,1 @@
+Artículo 31.—Compartir información sensible sin autorización. El usuario no podrá facilitar información a funcionarios o personas externas a la Municipalidad, excepto cuando exista orden del superior inmediato, contrario se aplicara el proceso que la Administración tenga definido al infractor.

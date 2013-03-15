@@ -1,0 +1,1 @@
+Artículo 13.—Director de proyectos. Salvo situaciones que por su naturaleza así lo ameriten, el encargado de la administración de la gestión de TI será quien dirija los proyectos en materia de Tecnologías de Información, con las responsabilidades y autoridad que esto conlleva.

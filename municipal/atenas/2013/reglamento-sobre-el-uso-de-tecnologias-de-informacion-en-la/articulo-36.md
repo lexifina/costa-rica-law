@@ -1,0 +1,1 @@
+Artículo 36.—Uso correcto de la contraseña. Los funcionarios que tengan acceso al sistema de red, utilizarán la contraseña que se le asignen para tal fin y será responsable del uso que se le dé a la misma.
