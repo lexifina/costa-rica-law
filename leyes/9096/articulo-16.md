@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Cancelación de las licencias de pesca
+Cuando se haya demostrado la responsabilidad de un infractor por la comisión de las conductas prohibidas en esta ley y exista una sentencia condenatoria, el juzgador pondrá en comiso las embarcaciones, los buques o los navíos capturados, si los hubiera y ordenará, cuando sea procedente, la cancelación de las licencias de pesca que existan a nombre de los condenados, así como la inhabilitación para ser concesionario de este tipo de licencias por un período de cinco años.

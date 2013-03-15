@@ -1,0 +1,3 @@
+ARTÍCULO 8.- Determinación del rango máximo autorizado
+Para determinar la violación del rango máximo de autonomía, autorizado para cada embarcación, el juzgado penal respectivo que tramite la causa ordenará a la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes la designación de un perito que determine esa variable técnica.
+Las embarcaciones, los buques o los navíos sin bandera, registro de buque, matrícula, permisos, licencia o autorización, que incurran en las conductas tipificadas en la presente ley, serán decomisados y puestos en depósito judicial del Servicio Nacional de Guardacostas, de conformidad con lo dispuesto en el artículo 10 de esta ley.

@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Transporte prohibido de combustible
+Se prohíbe transportar combustible, de cualquier tipo que sea, por vía acuática, fluvial o marina, utilizando cualquier tipo de embarcación, en cantidades superiores a las autorizadas por el Instituto Costarricense de Pesca y Acuicultura, salvo que los responsables de la embarcación hayan obtenido previamente y demuestren que poseen la autorización especial para transportar mayores cantidades de combustible con fines, específicamente, de reserva o cualquier otro uso que esté legalmente permitido.
