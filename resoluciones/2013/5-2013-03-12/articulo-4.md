@@ -1,0 +1,1 @@
+4º—Notifíquese el por tanto de la presente resolución en el Diario Oficial La Gaceta, y publíquese integra en el portal Web del Ministerio de Seguridad Pública. Esta disposición regirá a partir del 15 de marzo de 2013.

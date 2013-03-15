@@ -1,0 +1,1 @@
+3º—La Dirección podrá notificar, salvo los supuestos que la ley ordena notificar personalmente o en el domicilio de la empresa o del agente todo acto que se emita dentro de las funciones de control, fiscalización y regulación en la prestación de los servicios de la seguridad privada en el territorio nacional.
