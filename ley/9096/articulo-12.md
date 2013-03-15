@@ -1,0 +1,4 @@
+ARTÍCULO 12.- Sanción por transporte irregular de combustible
+Será sancionado con una pena de multa de cinco salarios base, así como con el comiso a favor del Servicio Nacional de Guardacostas del combustible trasegado, quien, sin contar con la autorización respectiva, incurra en alguna de las siguientes conductas:
+a) Transporte, por cualquier zona marina sometida a la jurisdicción del Estado costarricense, combustible distinto del que utiliza la embarcación, el buque o el navío para su propulsión normal.
+b) Transporte, por cualquier zona marina sometida a la jurisdicción del Estado costarricense, combustible del mismo tipo que utiliza la embarcación, el buque o el navío detenido para su propulsión y navegación óptimas, cuando acarree una cantidad mayor al rango máximo de autonomía autorizado por el Ministerio de Obras Públicas y Transportes, confrontado con el certificado de navegabilidad respectivo.
