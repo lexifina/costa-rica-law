@@ -8,3 +8,4 @@ Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el
 (Modificado por el artículo 1° del decreto ejecutivo N° 37520 del 4 de febrero de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37542 del 11 de febrero de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37591 del 5 de marzo de 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37618 del 15 de marzo de 2013)
