@@ -1,0 +1,3 @@
+Artículo 2°—Cada zona de estacionómetro autorizado (Ley 3580), estará demarcada y corresponderá al área dentro de la cual deberán estacionarse los vehículos.
+Las áreas para el estacionamiento de vehículos automotores no podrán ser menores de cinco metros, ni mayores de siete metros de largo por dos metros de ancho.
+Para las zonas de motocicletas los espacios serán de un metro por dos. En caso de que se disponga el uso de parquímetros, máquinas expendedoras de boletas o cualquier otro equipo que sea necesario instalar, los mismos serán ubicados sobre las aceras en total apego a las disposiciones de la Ley 7600.

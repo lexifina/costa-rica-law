@@ -1,0 +1,3 @@
+Artículo 4°—En las zonas céntricas y no céntricas se cobrará el impuesto de estacionamiento en todas aquellas vías que por sus medidas y condiciones sean aptas para el estacionamiento de vehículos.
+Las tarifas que se cobrarán, tanto en las zonas céntricas como en las no céntricas, serán fijadas por el Concejo y refrendadas por la Contraloría General de la República, en un plazo no mayor de treinta días hábiles posteriores a su recibo. De considerarse necesario se podrá fijar una tarifa única tanto para las zonas céntricas como para las no céntricas.
+Estas tarifas no podrán ser menores a un setenta y cinco por ciento del valor que cobren los estacionamientos privados por servicios similares.

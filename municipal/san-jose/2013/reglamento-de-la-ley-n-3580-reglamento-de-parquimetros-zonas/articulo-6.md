@@ -1,0 +1,2 @@
+Artículo 6°—Para la aplicación de este reglamento queda autorizado un horario de las cero siete a las diecinueve horas de lunes a sábado. Se exceptúan los días domingos y feriados de ley.
+Los cambios de horario para el funcionamiento y uso de los estacionómetros y zonas de estacionamiento, corresponderá realizarlas al Alcalde Municipal y entrarán en funcionamiento previa publicación en un diario de circulación nacional.

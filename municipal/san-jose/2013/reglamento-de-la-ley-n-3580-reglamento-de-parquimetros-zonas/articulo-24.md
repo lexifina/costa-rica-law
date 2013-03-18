@@ -1,0 +1,2 @@
+Artículo 24.—Las multas realizadas por concepto de estacionómetros, que no hayan sido canceladas antes del mes de setiembre de cada año, su cobro se hará mediante el pago del marchamo y será requisito indispensable para retirar el respectivo derecho de circulación.
+Estas multas tendrán un recargo del dos por ciento mensual, que no podrá exceder, en ningún caso, del veinticuatro por ciento del monto adeudado.

@@ -1,0 +1,1 @@
+Artículo 26.—Para el mejor cumplimiento de esta ley, la Municipalidad y la dirección General de Tránsito tomarán las medidas pertenecientes en estrecha y efectiva colaboración, y sus delegados estarán investidos de autoridad para lo que atañe a sus actuaciones oficiales a su respecto.

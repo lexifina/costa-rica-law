@@ -1,0 +1,1 @@
+Artículo 5°—Tanto en las zonas céntricas como en las no céntricas, se cobrará mediante el sistema de estacionamiento celular de la ciudad (SECC) o cualquier medio electrónico, digitalizado o físico digitalizado que se pueda implementar, para el uso indiscriminado de tiempo de estacionómetros.

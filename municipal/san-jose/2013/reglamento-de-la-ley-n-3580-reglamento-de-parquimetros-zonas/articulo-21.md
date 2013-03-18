@@ -1,0 +1,3 @@
+Habilitación de espacios para estacionamiento
+de vehículos en actividades o eventos especiales
+Artículo 21.—Durante la realización de actividades o eventos especiales, o cuando la municipalidad lo considere pertinente, se habilitarán espacios públicos del Cantón como zonas extraordinarias de parqueo, que se utilizarán como zonas temporales para estacionamiento, durante el tiempo que la administración lo considere razonable. En estas zonas también se aplicarán los mismos sistemas automatizados mencionados en este reglamento, y se aplicará un precio especial que también fijará la administración.

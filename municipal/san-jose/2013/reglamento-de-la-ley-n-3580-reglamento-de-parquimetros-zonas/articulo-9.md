@@ -1,0 +1,1 @@
+Artículo 9°—Todo conductor que se aparque con su vehículo dentro de una zona demarcada en la vía pública por esta municipalidad para estacionamiento, deberá hacer uso correcto de las indicaciones establecidas por el municipio de acuerdo al sistema de cobro que se aplique. Cualquier desacato a tales disposiciones incurrirá en la sanción que establece el artículo 3 de la Ley 3580.

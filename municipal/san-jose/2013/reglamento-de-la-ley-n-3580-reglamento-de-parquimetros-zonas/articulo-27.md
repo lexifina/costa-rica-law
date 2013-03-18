@@ -1,0 +1,2 @@
+Artículo 27.—La Municipalidad determinará, de común acuerdo con el Ministerio de Transportes, los espacios necesarios de parada de vehículos dedicados al transporte remunerado de personas.
+Por el uso de los espacios frente a las paradas terminales o fijas del servicio público, sean de autobuses, station wagons o automóviles de alquiler, no se cobrará suma alguna. Tampoco por los espacios libres que requiera de entrada de los garajes, por lo tanto debe permanecer libre.

@@ -1,0 +1,1 @@
+Artículo 11.—Se exceptúa de la anterior autorización aquellas zonas en que la municipalidad estime conveniente limitar el tiempo de estacionamiento, lo cual hará del conocimiento de los usuarios por medio de avisos colocados al efecto en las zonas respectivas.

@@ -1,0 +1,1 @@
+Artículo 19.—En los casos de pago por adelantado mediante el uso de parquímetros digitales si el conductor retire su vehículo antes de vencerse el tiempo registrado por el cual pagó, renuncia de hecho al tiempo restante y no tendrá derecho a reclamación alguna.

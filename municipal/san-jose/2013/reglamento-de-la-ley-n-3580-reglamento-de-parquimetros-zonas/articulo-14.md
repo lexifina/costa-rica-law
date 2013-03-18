@@ -1,0 +1,3 @@
+Sistema de Estacionamiento Celular de la Ciudad (SECC)
+Artículo 14.—El funcionamiento del sistema de estacionamiento celular de la ciudad (SECC) es el siguiente: el usuario se registra vía internet o llamando al centro de llamadas del sistema, una vez registrado, obtendrá el código de usuario con el que podrá comprar su tiempo por cualquiera de las vías a su disposición.
+En el caso de la tarjeta prepago se envía el PIN y la placa del vehículo vía mensaje de texto al número que el municipio indique. Este proceso se hará solo una vez, ya que el SECC automáticamente asigna un código de usuario, y crea un nuevo cliente, con su número de celular, la placa del vehículo y su saldo.

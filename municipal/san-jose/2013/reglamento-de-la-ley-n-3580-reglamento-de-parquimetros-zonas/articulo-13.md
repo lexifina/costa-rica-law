@@ -1,0 +1,1 @@
+Artículo 13.—El sistema de cobro mediante uso celular, tendrá una tarifa fija los primeros treinta minutos, a partir del minuto treinta y uno, incluyéndolo, se procederá a cobrar por minuto adicional.

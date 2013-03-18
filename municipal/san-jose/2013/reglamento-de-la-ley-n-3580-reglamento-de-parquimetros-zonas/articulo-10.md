@@ -1,0 +1,1 @@
+Artículo 10.—Los usuarios de este servicio podrán ocupar los lugares de estacionamiento, por el tiempo que hayan pagado; de igual forma los usuarios podrán prolongarlo mediante la compra o recarga de más tiempo ya sea mediante el método de mensajería celular, pago en los dispositivos que se coloquen para tal efecto o vía internet.

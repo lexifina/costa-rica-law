@@ -1,0 +1,1 @@
+Artículo 29.—Las personas que no sean conductores y que hagan uso indebido de los estacionómetros, o conductores que causen daños a los equipos que sean utilizados para el control y regulación de estacionómetros serán consignadas a las autoridades competentes para las responsabilidades del caso.
