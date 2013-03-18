@@ -1,0 +1,1 @@
+Artículo 22.—Sólo se reconocerán como actividades de EFC, aquellas ejecutadas por entes proveedores acreditados como tales ante la CRPF previo a la realización de las mismas o las que sean homologadas por la CRPF.

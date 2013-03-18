@@ -1,0 +1,2 @@
+Artículo 31.—Para obtener el reconocimiento de las actividades recertificables de EFC, el farmacéutico deberá presentar anualmente la solicitud, utilizando el formulario y presentando el original o copia de los certificados y/o documentos que respalden su participación en dichas actividades.
+La CRPF definirá la fecha límite de recepción de documentos para reconocimiento de las actividades recertificables de EFC.

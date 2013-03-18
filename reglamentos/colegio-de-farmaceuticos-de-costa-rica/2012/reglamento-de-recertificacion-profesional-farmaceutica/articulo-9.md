@@ -1,0 +1,1 @@
+Artículo 9º—La CRPF es el órgano con autoridad delegada por la Junta Directiva del Colegio de Farmacéuticos para acreditar o denegar entes proveedores y actividades de EFC, así como para evaluar las actividades de capacitación presentadas por los agremiados, con el fin de acreditar el año y periodo correspondientes para su recertificación.

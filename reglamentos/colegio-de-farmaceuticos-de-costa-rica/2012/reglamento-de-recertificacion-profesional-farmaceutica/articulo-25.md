@@ -1,0 +1,1 @@
+Artículo 25.—La CRPF tiene potestad para suspender la acreditación de un ente proveedor y/o de una actividad de EFC, en caso de incumplimiento de requisitos o falsedad de datos a juicio de la Comisión.

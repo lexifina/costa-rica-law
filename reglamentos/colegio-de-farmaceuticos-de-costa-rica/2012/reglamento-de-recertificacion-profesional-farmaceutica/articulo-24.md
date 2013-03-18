@@ -1,0 +1,1 @@
+Artículo 24.—Una actividad de EFC acreditada para una fecha y sede determinadas, puede repetirse en otras fechas y en otras sedes previa notificación a la CRPF, por lo menos con 5 días hábiles de anticipación, siempre que se cumpla con la descripción curricular aprobada.
