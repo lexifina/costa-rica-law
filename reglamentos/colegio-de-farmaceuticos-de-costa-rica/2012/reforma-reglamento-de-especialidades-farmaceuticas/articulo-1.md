@@ -1,0 +1,81 @@
+COLEGIO DE FARMACÉUTICOS DE COSTA RICA
+REFORMA AL REGLAMENTO DE ESPECIALIDADES
+FARMACÉUTICAS
+El Colegio de Farmacéuticos de Costa Rica comunica que en la asamblea general ordinaria y extraordinaria celebrada el domingo 9 de diciembre del 2012, se acordó:
+Adiciónense in fine al artículo 1° del Reglamento de Especialidades Farmacéuticas aprobado en asamblea general extraordinaria del 22 de setiembre del 2010 y publicado en el Diario Oficial La Gaceta del día 22 de noviembre del 2010, en cuanto a una nueva definición que dice:
+“Sustancias o elementos afines a medicamentos: Se refiere a productos biológicos, biotecnológicos, productos naturales, suplementos nutricionales, alimentos, cosméticos, dispositivos médicos, entre otros, que se utilicen en seres humanos o animales con fines diagnósticos, o bien de prevención y/o tratamiento de enfermedades”.
+Asimismo, se acordó reformar el artículo 9° del Reglamento de previa cita para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 9º—Se reconoce como Especialidades Farmacéuticas las siguientes:
+a) Ciencias Biomédicas
+1) Biología celular y molecular
+2) Bioquímica
+3) Biotecnología
+4) Farmacología
+5) Fisiología
+6) Genética humana
+7) Inmunología
+8) Nutrición humana
+9) Toxicología
+b) Ciencias Farmacéuticas
+1) Biofarmacia
+2) Farmacocinética
+3) Farmacognosia
+4) Físico química farmacéutica
+5) Química farmacéutica o medicinal
+6) Radioquímica y aplicaciones nucleares
+c) Ciencias Sociales y Administrativas
+1) Bioética
+2) Ética farmacéutica
+3) Farmacoeconomía
+4) Gestión de servicios y establecimientos de salud
+5) Salud pública
+d) Farmacia Industrial
+1) Análisis y control de calidad de materias primas para elaboración de medicamentos y afines
+2) Análisis y control de calidad de medicamentos y afines
+3) Aseguramiento de la calidad de medicamentos y afines
+4) Biotecnología farmacéutica
+5) Cosmetología y dermofarmacia
+6) Farmacia galénica
+7) Farmacia industrial
+8) Ingeniería farmacéutica
+9) Visita Médica
+10) Mercadeo farmacéutico
+11) Tecnología farmacéutica
+12) Investigación desarrollo e innovación de medicamentos y afines
+e) Farmacia Clínica y Atención Farmacéutica
+1) Atención farmacéutica
+2) Cuidados paliativos y control del dolor
+3) Farmacia clínica
+4) Farmacia de comunidad
+5) Farmacia geriátrica
+6) Farmacia homeopática
+7) Farmacia de hospital
+8) Farmacia oncológica
+9) Farmacia pediátrica
+10) Farmacia psiquiátrica
+11) Farmacocinética clínica
+12) Farmacología clínica
+13) Farmacoterapia o farmacoterapéutica
+14) Fitofarmacia o fitoterapia
+15) Información de medicamentos y afines
+16) Monitoreo en estudios clínicos
+17) Radiofarmacia
+18) Soporte nutricional clínico
+19) Farmacodependencia
+20) Farmacoepidemiología
+21) Farmacovigilancia
+f) Educación farmacéutica
+1) Docencia universitaria
+2) Evaluación educativa
+g) Regulación y política farmacéutica
+1) Auditoría farmacéutica
+2) Propiedad intelectual de medicamentos y afines
+3) Evaluación de patentes farmacéuticas
+4) Merciología farmacéutica
+5) Registros sanitarios de medicamentos y afines
+h) Otros
+1) Farmacia forense
+2) Farmacia veterinaria
+3) Auditoría farmacéutica”
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+San José, febrero del 2013.
