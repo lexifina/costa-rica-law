@@ -1,1 +1,0 @@
-Artículo 4º—Aquellos procesos de contratación que se hayan iniciado antes de la entrada en vigencia de esta reforma, continuarán hasta su final con las disposiciones contenidas en el Reglamento publicado en La Gaceta 101 del 26 de mayo de 2006, así como la reforma parcial publicada en La Gaceta 152 del 9 de agosto de 2006.
