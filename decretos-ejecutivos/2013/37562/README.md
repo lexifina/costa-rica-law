@@ -14,3 +14,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-18 | la propia norma |
+| 2 | 2013-03-18 | Acuerdo 2 (2013-02-13) |

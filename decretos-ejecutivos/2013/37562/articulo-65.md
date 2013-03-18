@@ -53,7 +53,7 @@ Neumología Pediátrica. | Artículo No. 113
 Neurología Pediátrica. | Artículo No. 114
 Oncología Médica Pediátrica. | Artículo No. 115
 Pediatría del Desarrollo. | Artículo No. 116
-Radioterapia Pediátrica. | Artículo No. 117
+Radioterapia Pediátrica. Dermatología Pediátrica (Así adicionada la Subespecialidad anterior en sesión ordinaria 2013-02-13 del 13 de febrero del 2013) | Artículo No. 117 Requisitos específicos Dermatología Pediátrica: a. Estar debidamente inscrito y acreditado como Especialista en Dermatología o Pediatría General, ante el Colegio de Médicos y Cirujanos de Costa Rica. b. Aprobación y acreditación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Dermatología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio. (Así adicionados los requisitos anteriores en sesión ordinaria 2013-02-13 del 13 de febrero del 2013)
 Subespecialidades de la Psiquiatría. | Artículo 118
 Psiquiatría Comunitaria y Rehabilitación. | Artículo No. 119
 Psiquiatría de Adicciones. | Artículo No. 120
