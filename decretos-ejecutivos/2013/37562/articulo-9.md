@@ -1,0 +1,1 @@
+Artículo 9°.- Se faculta a la Junta de Gobierno, incluir en la lista oficial reconocida por el Colegio de Médicos y Cirujanos, especialidades o subespecialidades distintas a las que se establecen por este Reglamento, así como a determinar los requisitos específicos de inscripción en las mismas.
