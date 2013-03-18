@@ -1,0 +1,4 @@
+6°—Rechazo. El ICE rechazará las solicitudes de elegibilidad cuando se presente alguna de las siguientes situaciones:
+i. Trascurrido el plazo perentorio otorgado para la presentación de justificaciones e información adicional, la documentación e información requerida esté incompleta.
+ii. Del análisis de la información aportada se demuestra el incumplimiento de alguno de los requisitos establecidos o en la razonabilidad del proyecto propuesto.
+iii. El proyecto propuesto interfiera con algún proyecto anterior, cuya declaratoria de elegibilidad se encuentre en trámite o haya sido otorgada, en cuanto al origen de los desechos sólidos municipales. Se entiende que la empresa tiene algún derecho sobre los desechos sólidos de alguna(s) municipalidad (es) solo en el caso de que demuestre tener un acuerdo firmado con ella(s).
