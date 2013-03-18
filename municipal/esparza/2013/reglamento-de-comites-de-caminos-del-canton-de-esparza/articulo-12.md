@@ -1,0 +1,1 @@
+Artículo 12.—Competencia territorial. La competencia territorial del Comité de Caminos estará delimitada por el (los) camino (s) de su circunscripción que será o serán definidos previamente por la Asamblea General, con el visto bueno de la Unidad Técnica de Gestión Vial.
