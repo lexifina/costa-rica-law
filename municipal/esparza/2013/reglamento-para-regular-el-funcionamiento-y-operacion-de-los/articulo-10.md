@@ -1,0 +1,1 @@
+Artículo 10.—Propiedad de los Inmuebles en los que se Establecerán los CECUDI: La titularidad de los terrenos corresponderá a la Municipalidad de Esparza, institución que deberá asegurar que los terrenos sean aptos para construir; que cuenten con agua potable, electricidad, y caminos.
