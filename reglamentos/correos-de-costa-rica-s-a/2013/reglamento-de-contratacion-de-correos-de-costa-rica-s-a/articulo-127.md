@@ -1,0 +1,1 @@
+Artículo 127.—Libertad de tecnologías y seguridad de la información. El sistema que utilice Correos no deberá contener exigencias propias de tecnologías propiedad de determinados fabricantes. De igual forma no podrá permitir la alteración de los documentos contenidos en dicho sistema.

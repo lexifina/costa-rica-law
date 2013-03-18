@@ -1,0 +1,8 @@
+Artículo 77.—Acto final. Una vez hechos los estudios y valoraciones señalados en los artículos anteriores, Correos, deberá dictar el acto de selección del adjudicatario. Cuando se soliciten precios unitarios y Correos se haya reservado la posibilidad de adjudicar parcialmente una misma línea o mismo objeto, así lo indicará.
+Si la oferta ganadora del concurso presenta un precio menor al monto presupuestado, Correos podrá adjudicar una mayor cantidad de bienes o servicios si la necesidad así lo justifica.
+Si al concurso no se presentaron ofertas o las que lo hicieron no se ajustaron a los elementos esenciales del concurso, se dictará un acto declarando infructuoso el procedimiento, justificando los incumplimientos sustanciales que presenten las ofertas.
+Si fueron presentadas ofertas elegibles, pero por razones de protección al interés empresarial así lo recomiendan, Correos, mediante un acto motivado, podrá declarar desierto el concurso.
+Cuando Correos, decida declarar desierto un procedimiento de contratación, deberá dejar constancia de los motivos específicos de interés empresarial considerados para adoptar esa decisión, mediante resolución que deberá incorporarse en el respectivo expediente de la contratación.
+Cuando se haya invocado motivos de interés empresarial para declarar desierto el concurso, para iniciar un nuevo procedimiento, Correos deberá acreditar el cambio en las circunstancias que justifican tal medida.
+La declaratoria de infructuoso, de desierto o readjudicación deberá ser dictada por la unidad que tiene la competencia para adjudicar.
+En el caso de que no se presenten ofertas el Departamento de Compras y Contrataciones declarará infructuoso el proceso e iniciará un nuevo trámite en caso de ser necesario.

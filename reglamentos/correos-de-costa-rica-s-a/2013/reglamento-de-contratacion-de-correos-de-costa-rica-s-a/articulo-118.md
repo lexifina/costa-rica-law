@@ -1,0 +1,3 @@
+Artículo 118.—Información del Registro de Proveedores. Los proveedores interesados deberán acreditar, entre otros, los siguientes aspectos: nombre; razón o denominación social; cédula física o jurídica según corresponda; número de teléfono; número de fax; dirección física y dirección electrónica; apartado postal; representantes; propiedad de acciones; medio para recibir notificaciones; fecha de inscripción; país de origen, entre otros.
+Además, contendrá una descripción detallada de los bienes o servicios que ofrece cada proveedor. El interesado deberá demostrar la afinidad de su giro comercial con el bien o servicio que pretende ofrecer.
+El registro de proveedores deberá estar relacionado con el catálogo de mercancías de Correos.

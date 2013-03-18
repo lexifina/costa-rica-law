@@ -1,0 +1,1 @@
+Artículo 79.—Revocación del acto no firme. Realizado el acto de adjudicación éste puede ser revocado por Correos por razones de oportunidad o legalidad, mediante justificación; dicha revocación solo procederá, en tanto esta decisión se tome antes de que el acto adquiera firmeza.

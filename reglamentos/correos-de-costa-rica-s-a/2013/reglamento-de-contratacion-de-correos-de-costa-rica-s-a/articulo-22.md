@@ -1,0 +1,4 @@
+Artículo 22.—Desglose del precio. El oferente deberá presentar el desglose de la estructura del precio junto con un presupuesto detallado y completo con todos los elementos que lo componen. Esta disposición será obligatoria para los contratos de servicios y de obra; además, para cualquier otro objeto contractual que lo amerite cuando así lo exija el cartel.
+La anterior obligación no excluye la posibilidad para Correos de solicitar información adicional atinente al cálculo de los precios contemplados en la oferta, cuando ello resulte necesario.
+En los contratos en que intervengan factores que necesariamente deban cotizarse en moneda extranjera, la oferta contendrá un desglose de los componentes nacionales y extranjeros.
+Podrá subsanarse la omisión del desglose de la estructura de precios, únicamente si ello no genera una ventaja indebida para el oferente incumpliente.

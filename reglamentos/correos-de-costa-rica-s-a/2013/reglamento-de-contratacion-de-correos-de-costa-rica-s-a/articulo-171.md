@@ -1,0 +1,1 @@
+Artículo 171.—De la recomendación. La resolución donde se ordena la sanción será elaborada por parte del Departamento Legal de Correos, y para su eficacia deberá ser firmada por la Gerencia General o la Junta Directiva, según corresponda.

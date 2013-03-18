@@ -1,0 +1,4 @@
+Artículo 24.—Descuentos. El oferente podrá ofrecer descuentos globales a sus precios. Además, podrán ofrecerse descuentos a los precios unitarios, en razón de un mayor número de líneas que se llegaran a adjudicar, o por pronto pago, pudiendo Correos promover estos últimos también en su política de pago.
+El descuento que dependa de la adjudicación de un mayor número de líneas, será considerado en el tanto las ofertas elegibles cubran todas las líneas necesarias para su comparación y se convenga una adjudicación total a una misma oferta.
+El oferente podrá incorporar en su propuesta descuentos en razón de la eventual adjudicación de una cantidad de unidades que supere el tope establecido en una misma línea.
+Una vez abierta la oferta, los descuentos que se ofrezcan no serán tomados en cuenta al momento de comparar los precios, pero sí para efectos de pago, en la fase de ejecución contractual.

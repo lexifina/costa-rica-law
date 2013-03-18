@@ -1,0 +1,9 @@
+Artículo 37.—Procedimiento para ejecución de garantía de cumplimiento. La garantía de cumplimiento se ejecutará, parcial o totalmente, hasta por el monto necesario para resarcir a Correos, por los daños y perjuicios ocasionados por el incumplimiento del contratista.
+La garantía podrá ejecutarse por demora en la ejecución del objeto contractual, en el evento de que no se haya pactado una cláusula penal por ese motivo; en caso contrario se procederá a la ejecución de ésta última.
+La ejecución de la garantía de cumplimiento o la aplicación de la cláusula penal por demora o ejecución prematura, no exime al contratista de indemnizar a Correos, por los mayores daños y perjuicios que no cubran esas garantías.
+Si ejecutada la garantía, el contrato continúa en ejecución, Correos, deberá solicitar al contratista su inmediata restitución en las condiciones pactadas.
+De previo a ejecutar la garantía de cumplimiento, Correos, deberá dar audiencia al contratista por cinco días hábiles, a efecto de que éste pueda ejercer su derecho de defensa.
+En el traslado deberá indicarse el presunto incumplimiento, las pruebas en las que se fundamenta el reclamo, la estimación del daño y el monto por el cual se estaría ejecutando la garantía.
+Vencido el plazo para contestar la audiencia, Correos contará con un plazo de hasta veinte días hábiles para emitir una resolución razonada que deberá hacer expresa consideración de los argumentos formulados por la parte interesada en su descargo.
+Si ejecutada una garantía el monto resulta insuficiente para indemnizar los daños y perjuicios ocasionados, Correos, podrá aplicar el monto de las retenciones del precio que se hubieren dado
+y los saldos de pago pendientes. En todo caso, la ejecución de las garantías, no excluye el cobro en vía judicial de los daños y perjuicios ocasionados a Correos, con el incumplimiento, del oferente o del contratista, si éstos fueran mayores a los montos cobrados en vía administrativa.

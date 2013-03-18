@@ -1,0 +1,8 @@
+SECCIÓN CUARTA
+Contratación con Financiamiento
+Artículo 92.—Contratación con financiamiento. Cuando Correos requiera obtener financiamiento para la ejecución de proyectos, provisión de bienes o servicios, podrá recibirlo por cuenta del oferente o de un tercero, por gestión de aquél, y así lo advertirá en el cartel, siempre que de previo, se cumpla con las siguientes condiciones:
+a) Que se cuente con la autorización de la Junta Directiva de Correos de Costa Rica y de las entidades que por ley correspondan, para endeudarse de previo al inicio del trámite y que no requieran del conocimiento de los términos ofertados. Las restantes autorizaciones que dependan de la propuesta, deberán completarse antes de dictar el acto de adjudicación, toda vez que constituyen requisitos de validez.
+b) Que se cuente con las condiciones y previsiones presupuestarias necesarias para hacer frente a las obligaciones.
+Si el oferente se encuentra en condición de ofrecer más de una vía de financiamiento y el cartel lo permite, deberá elegir una como cotización principal y las restantes como opcionales con el propósito de que Correos pueda elegir y garantizar, si ello es pertinente, la de mayor monto. Las partes están facultadas para presentar ofertas conjuntas que deslinden el componente financiero del componente técnico, sin necesidad de que ello esté previsto en el cartel.
+En todo caso, Correos conserva la facultad de asumir las obligaciones con recursos propios.
+Cuando el financiamiento suponga un empréstito que constituya carga para el Estado o que requiera su aval, antes de iniciar la ejecución del objeto contractual será necesario contar con la firma o respaldo de las autoridades correspondientes.

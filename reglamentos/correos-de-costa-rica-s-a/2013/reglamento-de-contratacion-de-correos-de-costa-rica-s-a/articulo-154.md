@@ -1,0 +1,1 @@
+Artículo 154.—Entregas Parciales o por Adelantado. Correos de Costa Rica de oficio o a petición del Contratista, podrá autorizar entregas parciales o entregas por adelantado de los bienes o servicios.

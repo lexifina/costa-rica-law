@@ -1,0 +1,1 @@
+Artículo 119.—Actualización de Información. Cuando una persona física o jurídica se encuentra inscrita en el Registro de Proveedores de Correos y ya ha cumplido con los requisitos de inscripción, no será necesario acreditarlos de nuevo, mientras no varíe la situación declarada lo cual se indicará en la oferta.
