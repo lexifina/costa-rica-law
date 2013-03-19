@@ -1,1 +1,0 @@
-Artículo 4° — Es obligatorio del usuario, sea este practicante o espectador, guardar las mínimas normas de conducta y de respeto (uso de gestos, vocabulario, comportamientos) hacia los demás y los reglamentos respectivos, en caso contrario, podrá ser retirado del gimnasio por el responsable administrativo o personal de seguridad.
