@@ -1,0 +1,5 @@
+Artículo 2°—De los principios rectores. Las disposiciones del presente reglamento se estructuran considerando los siguientes principios rectores:
+Legalidad: Sistema de normas jurídicas que regulan el funcionamiento de la Administración Pública local.
+Interés Público Local: Para efecto de este reglamento se comprenderá por interés público local la acción municipal encaminada a tutelar de forma efectiva el bienestar físico, material y mental de la mayoría de los Moravianos y en general todo lo que pueda considerarse intereses locales.
+Protección Especial de Población Sensible: El articulado del presente reglamento pretende la protección especial de aquellas personas que por su edad, condición social o de salud, ejercicio de actividades religiosas, educativas y/o deportivas requieran mantenerse distantes de comercios donde se expendan bebidas con contenido alcohólico.
+Desarrollo Local Equilibrado: Se comprende por desarrollo local equilibrado el crecimiento gradual de la actividad económica relacionada a la venta de bebidas con contenido alcohólico y su necesaria co-relación con el interés público local, incluido el componente de desarrollo y ordenamiento urbano.
