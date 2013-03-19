@@ -1,0 +1,1 @@
+Artículo 19°- Nombramiento de comisiones: La Unidad Técnica podrá nombrar comisiones de trabajo para el apoyo a su gestión; las cuales estarán conformadas por los (las) integrantes relacionados (as) con el tema, así como de asesores internos y asesores externos que se consideren pertinentes.

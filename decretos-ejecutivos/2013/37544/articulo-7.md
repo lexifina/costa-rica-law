@@ -1,0 +1,1 @@
+Artículo 7º- Objetivo general: El Consejo constituye el máximo órgano político del Portal, en consecuencia será responsable de dar los lineamientos generales y de política para la administración y funcionamiento del Portal de Formación y Empleo.

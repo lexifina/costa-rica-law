@@ -1,0 +1,1 @@
+Artículo 18 º.-Convocatoria a sesiones extraordinarias: Las convocatorias a las sesiones extraordinarias las comunicará el presidente por escrito o por cualquier medio electrónico; por lo menos veinticuatro horas antes de la realización de la sesión. La convocatoria a sesión extraordinaria contendrá el orden del día.

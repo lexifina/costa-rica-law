@@ -1,0 +1,1 @@
+Artículo 10º- Sesiones: El Consejo celebrará una sesión ordinaria por mes y sesionará extraordinariamente cuando así lo acuerden sus miembros o lo convoque el Ministro de Trabajo y Seguridad Social o quien lo represente. El quórum para sesionar será de al menos de la mitad más uno de los integrantes del Consejo.
