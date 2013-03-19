@@ -1,0 +1,1 @@
+Artículo 7º—Los egresos que se realicen por caja chica, se tramitan a través de un formulario denominado “Comprobante de Pago por Caja Chica”, y se prepara en el Departamento de Tesorería Municipal en original.
