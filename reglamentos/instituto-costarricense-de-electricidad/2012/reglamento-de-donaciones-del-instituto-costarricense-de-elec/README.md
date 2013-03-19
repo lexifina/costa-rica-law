@@ -14,3 +14,4 @@ Reglamento de Donaciones del Instituto Costarricense de Electricidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-20 | la propia norma |
+| 2 | 2013-03-19 | Reglamento 6028 (2013-03-19) |
