@@ -14,3 +14,4 @@ Extiende a las garantía de cumplimiento y los avales para que las instituciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-18 | la propia norma |
+| 2 | 2013-03-20 | Acuerdo 0 (2013-03-20) |
