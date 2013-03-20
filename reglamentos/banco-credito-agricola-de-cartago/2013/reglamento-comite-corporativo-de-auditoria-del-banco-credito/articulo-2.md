@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones establecidas en este reglamento, son aplicables para el funcionamiento del Comité Corporativo de Auditoría correspondiente al Banco y las sociedades anónimas, en donde sea dueño o tenga control.
+El Comité tendrá facultades, de acuerdo a sus funciones, en todas las unidades administrativas y de negocios, así como en las subsidiarias donde el Banco ejerza el poder de control.

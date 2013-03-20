@@ -1,0 +1,2 @@
+Artículo 12.—Participación de otros funcionarios en las reuniones. El Comité Corporativo de Auditoría podrá solicitar la participación en sus sesiones, con voz pero sin derecho a voto, del personal que considere necesario.
+Para que las sesiones del Comité sean válidas, cuando se conozcan temas específicos de una de las entidades integrantes del conglomerado, deberán encontrarse presentes su Gerente General o el ejecutivo de alto nivel que lo sustituye en su ausencia y el Auditor Interno o quien lo sustituya en su cargo.
