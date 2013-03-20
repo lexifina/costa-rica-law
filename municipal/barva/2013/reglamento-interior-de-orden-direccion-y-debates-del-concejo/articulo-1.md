@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE BARVA
+El Concejo Municipal mediante Acuerdo N° 731-2012, tomado en la sesión ordinaria N° 37-2012, celebrada en el salón de sesiones el día 18 de junio de 2012, aprobó el Proyecto de Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Cantón de Barva; publicado en el Diario Oficial La Gaceta Nº 18 del viernes 25 de enero del 2013. Después de transcurrido el plazo establecido en el artículo 43 del Código Municipal y sometido el Proyecto a consulta pública no vinculante no habiendo observaciones y modificaciones a dicho proyecto; se aprueba en forma definitiva el Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Cantón de Barva mediante Acuerdo Municipal Nº 305-2013 de la Sesión Ordinaria Nº 14-2013 del día 4 de marzo de 2013.
+(Nota de Sinalevi: Tal como se indica en el párrafo anterior el presente corresponde al publicado como proyecto en La Gaceta N° 18 del 25 de enero del 2013)
+Reglamento Interior de Orden, Dirección y Debates del
+Concejo Municipal del Cantón de BARVA
+El Concejo Municipal del cantón de Barva, en uso de las atribuciones establecidas en los artículos 169 y 170 de la Constitución Política, en relación con los numerales 4, inciso a), 12, 13, incisos c) y d), 43 y 50 del Código Municipal, aprueba el siguiente Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Cantón de Barva, para regular el funcionamiento de este órgano, el cual se regirá por las siguientes disposiciones:
+CAPITULO I
+DE LAS SESIONES. GENERALIDADES.
+Artículo 1º—El orden, Dirección, Debates y la disciplina de las sesiones del Concejo Municipal del cantón de Barva y de las Comisiones Permanentes y especiales, se regirán por lo establecido en el Código Municipal, la Ley General de Administración Pública y por las disposiciones de este Reglamento.

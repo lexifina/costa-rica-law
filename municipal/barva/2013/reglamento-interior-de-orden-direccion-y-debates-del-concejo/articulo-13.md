@@ -1,0 +1,3 @@
+Artículo 13.—Todas las sesiones serán grabadas por medio de audio en la cual se garantice claridad Las grabaciones estarán bajo responsabilidad y custodia de las Secretaria del Concejo. Estas no pueden ser alteradas, dañadas o eliminadas y quien lo ordene o realice estará sujeto a la aplicación del Código Penal y su articulado correspondiente.
+Las grabaciones del Concejo son documento público salvo aquellas sesiones o porciones de las sesiones que se declaren privadas previo acuerdo calificado debidamente justificado del Concejo.
+Cualquier miembro del Concejo tiene derecho de oír, revisar o solicitar una copia grabaciones previo solicitud a la Secretaria del Concejo y una vez que se encuentre firme el acta que contenga. Igual derecho tiene todo vecino del Cantón.

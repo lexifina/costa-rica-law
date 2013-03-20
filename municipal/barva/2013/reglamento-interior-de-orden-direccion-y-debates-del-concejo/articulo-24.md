@@ -1,0 +1,1 @@
+Artículo 24.—Con la intervención de los munícipes o visitantes, estos deberán entregar documento en que conste su exposición y la documentación anexa, en ausencia de esta, la Secretaria del Concejo tomará nota de en forma sucinta lo expuesto, quedando facultado la Presidencia para trasladar el asunto en exposición a la comisión competente o a la Alcaldía Municipal.

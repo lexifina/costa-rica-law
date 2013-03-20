@@ -1,0 +1,1 @@
+Artículo 4º—Los regidores deben encontrarse ocupando sus respectivas curules, para cuando dé inicio la sesión y para cuando se les reciba el voto, cuando se someta a votación una moción. Si no es así el voto lo hará el suplente.- Cada Regidor o Regidora tendrá la obligación de justificar su voto cuando el mismo sea negativo.

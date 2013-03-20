@@ -1,0 +1,3 @@
+CAPITULO II
+DE LAS AUDIENCIAS.
+Artículo 16.—Todo planteamiento o solicitud de audiencia que se dirija al Concejo Municipal deberá ser formulada por escrito, estar debidamente firmado, con indicación del número de cédula, número de teléfono y del lugar para atender notificaciones, el cual preferiblemente, será un medio electrónico. En caso de personas jurídicas, deben acompañar el respectivo documento que demuestre la inscripción y representación de las mismas. Todo planteamiento debe contener una petición específica. La Secretaría del Concejo remitirá al presidente en orden de presentación las solicitudes de audiencia para su respectiva respuesta, notificará oportunamente a los interesados las invitaciones a las audiencias que acuerde el Presidente o el Concejo.

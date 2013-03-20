@@ -1,0 +1,1 @@
+Artículo 78.—El Coordinador de una comisión o en su ausencia el Secretario, podrán convocar a sesiones extraordinarias, por lo menos con veinticuatro horas de anticipación. En ausencia del Coordinador y el Secretario, convocará y presidirá la sesión, el miembro de la comisión de mayor edad.

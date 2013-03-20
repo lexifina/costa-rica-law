@@ -1,0 +1,1 @@
+Artículo 68.—Un mismo regidor o síndico no podrá formar parte de más de tres comisiones permanentes, ni ser Coordinador, ni Secretario en más de dos a la vez. Pueden ser reelectos en esos cargos. A los miembros del Gobierno Local les será obligatoria su participación en las Comisiones que sean designadas.

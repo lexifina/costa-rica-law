@@ -1,0 +1,1 @@
+Artículo 40.—Las mociones de orden deben ser debatidas una vez aceptadas por la Presidencia, tan pronto como cese el uso de la palabra el regidor o el alcalde que la tuviese y suspenderá el debate hasta tanto no sea discutida y votada por el Concejo.

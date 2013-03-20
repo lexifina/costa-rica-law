@@ -1,0 +1,1 @@
+Artículo 71.—Cada comisión deberá contar con un libro de actas de hoja removible, debidamente legalizado por la Auditoría Interna Institucional, de conformidad con las competencias que al efecto le señala la Ley de Control Interno. Corresponderá a la Secretaria Municipal, la custodia y dichos libros.

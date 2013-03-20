@@ -1,0 +1,1 @@
+Artículo 77.—Las Comisiones no podrán celebrar sus sesiones, en el mismo horario de las sesiones del Concejo Municipal. Si por razones de extrema necesidad, deben hacerlo, requieren contar con la autorización del Presidente Municipal. En caso de que se conceda el permiso, los miembros del Concejo o los síndicos asistentes a la sesión de comisión, no perderán su dieta.

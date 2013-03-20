@@ -1,0 +1,1 @@
+Artículo 88.—Las comisiones deberán sesionar en forma ordinaria al menos dos veces por mes y extraordinariamente cuando sea necesario. Se procurará que las sesiones de una no choquen con las de otras en las que también participen algunos de sus integrantes. Las sesiones se realizarán en el Edificio Municipal en el horario que fije cada Comisión.

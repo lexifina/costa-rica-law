@@ -1,0 +1,2 @@
+Artículo 14.—El Concejo Municipal podrá acordar que una sesión ordinaria o extraordinaria sea calificada como sesión solemne, con el fin, exclusivo, de recibir u homenajear a personas o grupos organizados, celebrar un acontecimiento o fecha importante o dedicarla a cualquier otro asunto que considere que lo amerita.
+En las sesiones solemnes se atenderá estrictamente el orden protocolario y el Presidente del Concejo dirigirá el orden y tiempo en el uso de la palabra.
