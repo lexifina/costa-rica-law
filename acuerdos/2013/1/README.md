@@ -13,3 +13,4 @@
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-09 | la propia norma |
+| 2 | 2013-03-20 | Acuerdo 3 (2013-03-20) |
