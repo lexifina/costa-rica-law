@@ -1,0 +1,2 @@
+Artículo 16.—Liquidación de vales. Los vales se liquidaran; adjuntando los comprobantes del gasto y el efectivo sobrante, ante la Tesorería Municipal, el día hábil siguiente del día del retiro del efectivo. Los vales que sean hechos efectivos los días viernes serán liquidados ese mismo día.
+En caso de imposibilidad sobrevenida; se liquidará el primer día en que el funcionario solicitante del vale se presente a la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 5º—Actualización de dichos montos. Los montos anteriores serán modificados anualmente en el mes de enero, en relación con el índice de precios al consumidor vigente para diciembre del año anterior. Los nuevos montos serán redondeados al millar superior inmediato.

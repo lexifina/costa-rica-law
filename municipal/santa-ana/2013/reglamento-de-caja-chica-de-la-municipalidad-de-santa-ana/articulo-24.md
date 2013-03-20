@@ -1,0 +1,1 @@
+Artículo 24.—Arqueo extraordinario. Cuando el Asistente de Egresos deba ser sustituido temporalmente, el Tesorero Municipal realizará un arqueo antes de entregar el manejo del fondo a otra persona. Igual procedimiento se realizará cuando el Asistente de Egresos ingrese a laborar.
