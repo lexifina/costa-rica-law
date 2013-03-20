@@ -14,3 +14,4 @@ Autoriza al Instituto Costarricense de Electricidad para utilizar líneas de cr�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-31 | la propia norma |
+| 2 | 2013-03-20 | Acuerdo 0 (2013-03-20) |
