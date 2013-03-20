@@ -4,7 +4,8 @@ a) La totalidad de puntos, por la sentencia condenatoria firme por la comisión 
 * (Anulado el inciso destacado entre paréntesis en el párrafo anterior, mediante resolución de la Sala Constitucional N° 12657 del 21 de setiembre de 2011.)
 b) Veinticinco (25) puntos, por la comisión de alguna de las conductas señaladas en los incisos b), (c))*, ch) y f) del artículo 130 y en los incisos ch) y d) del artículo 131 de la presente Ley.
 * (Anulado el inciso destacado entre paréntesis en el párrafo anterior, mediante resolución de la Sala Constitucional N° 9205 del 04 de julio de 2012.)
-c) Veinte (20) puntos, por la comisión de alguna de las conductas detalladas en los incisos a), e), f), g), i),j), k) y l) del artículo 131 y en el inciso o) del artículo 132 de la presente Ley.
+c) Veinte (20) puntos, por la comisión de alguna de las conductas detalladas en los incisos a), e), f), *g), i),* j), k) y l) del artículo 131 y en el inciso o) del artículo 132 de la presente Ley.
+*(La Sala Constitucional mediante resolución N° 03741 del 20 de marzo de 2013, corregida a su vez por resolución N° 04048 del 27 de marzo de 2013, declaró sin lugar la acción de inconstitucionalidad en relación con los incisos g) y j) del artículo 131 (de cita en el inciso anterior) “siempre y cuando el conductor sancionado sea a su vez el propietario registral del vehículo.”)
 d) Quince (15) puntos, por la comisión de alguna de las conductas detalladas en los incisos a), b), c), ch), d), e), f), g), h,), i), j), k), l), m), n) y ñ) del artículo 132 de la presente Ley.
 e) Diez (10) puntos, por la comisión de alguna de las conductas detalladas en los incisos b) y c) del artículo 131, en los incisos a), b), c), ch), d), e), f), g), h), i) y j) del artículo 133 y en los incisos a), b) y ch) del artículo 136 de la presente Ley.
 f) Cinco (5) puntos por la comisión de las conductas detalladas en los incisos a), b), c), ch), d), e) y g) del artículo 134 de la presente Ley.
