@@ -1,0 +1,1 @@
+Artículo 47.—Migración y respaldos: La transición o migración a soporte electrónico, cuando se trate de documentos o respaldos de documentos que deban ser conservados, deberán contar, previamente, con la autorización de la oficina productora del documento.

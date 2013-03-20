@@ -1,0 +1,1 @@
+Artículo 19.—Conservación documental: Cada Dirección del Incopesca, velará por la aplicación de la Directriz Nº 65 del 01 de abril de 2004 sobre uso de tinta y papel emitida por el Archivo Nacional, cuyo objetivo es procurar la conservación de los documentos generados o recibidos por las oficinas de su gestión, a fin de que mantengan la integridad, confiabilidad y autenticidad.

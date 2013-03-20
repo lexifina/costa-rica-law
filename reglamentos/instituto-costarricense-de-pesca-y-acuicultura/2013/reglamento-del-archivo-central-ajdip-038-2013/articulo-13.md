@@ -1,0 +1,6 @@
+Artículo 13.—Requerimientos de la transferencia documental: La transferencia de los documentos de los Archivos de Gestión al Archivo Central deberá ajustarse a los siguientes lineamientos:
+• El Archivo Central elaborará un calendario anual de remisión de documentos de acuerdo al espacio con que cuenta cada oficina, al volumen documental que producen y lo comunicará por escrito a cada oficina.
+• Los archivos de gestión deberán enviar sus documentos en las fechas previamente establecidas por el Archivo Central, de lo contrario no podrán remitir sus documentos hasta que se reprograme nuevamente su remisión.
+• Los archivos de gestión enviarán únicamente la documentación que se indique en la solicitud, acompañados del formulario lista de remisión en triplicado ( Original y dos Copias- una de recibido y otra queda con la original).
+• Todo documento debe ser enviado al Archivo Central debidamente organizados de acuerdo con el Cuadro de Clasificación de Documentos. Las carpetas de los documentos se colocarán en cajas rotuladas y deberán estar cada una debidamente con su signatura o el código de la oficina.
+• El Archivo Central no recibirá los documentos que no cumplan con los requerimientos expresados.

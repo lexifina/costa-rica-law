@@ -1,0 +1,1 @@
+Artículo 31.—Vigencias de documentos: Todas las Jefaturas de las oficinas productoras de documentos del Incopesca son las responsables de fijar la vigencia administrativa y legal de cada tipo documental y presentar el formulario Tabla de Plazos de Conservación ante el Comité Institucional de Selección de Documentos para su respectiva aprobación.

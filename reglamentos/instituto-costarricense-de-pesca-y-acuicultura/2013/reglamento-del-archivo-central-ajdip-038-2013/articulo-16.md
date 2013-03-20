@@ -1,0 +1,1 @@
+Artículo 16.—Custodia en los archivos de gestión: Los archivos de gestión de las oficinas del Incopesca deberán custodiar sus documentos en las oficinas administrativas productoras durante cinco años, en promedio, de acuerdo con lo establecido en las Tablas de Plazos de Conservación de Documentos.

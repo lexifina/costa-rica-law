@@ -1,0 +1,1 @@
+Artículo 36.—Acceso a documentos: El acceso para la consulta de los documentos impresos y digitales de la institución estará bajo la responsabilidad y custodia del Archivo Central, independientemente del soporte en que se encuentren elaborados (papel, microfilm, electrónico, digitalizado, fílmico, fotográfico, disco compacto, disco óptico u otro).

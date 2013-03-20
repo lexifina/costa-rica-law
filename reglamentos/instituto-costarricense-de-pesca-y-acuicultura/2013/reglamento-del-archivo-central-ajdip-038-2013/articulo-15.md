@@ -1,0 +1,1 @@
+Artículo 15.—Calendario de transferencia: Los archivos de gestión de acuerdo con el calendario anual realizaran las remisiones según lo estimado en cada Tablas de Plazos de Conservación de Documentos, únicamente de los documentos que cuenten con vigencia legal y administrativa superior a cinco años.

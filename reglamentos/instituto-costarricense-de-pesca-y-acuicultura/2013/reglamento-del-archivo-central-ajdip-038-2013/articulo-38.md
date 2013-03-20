@@ -1,0 +1,2 @@
+Artículo 38.—Requisitos a los usuarios: Los usuarios internos y externos que requieran consultar los documentos que se mantienen en custodia en el Depósito del Archivo Central del Incopesca, deberán presentar identificación personal con fotografía para iniciar el debido trámite de préstamo de documentos.
+Los usuarios externos no podrán sacar los documentos del edificio del Archivo Central del Incopesca, el estudio y revisión de los documentos solicitados lo efectuarán en la sala de consulta destinada para los usuarios.

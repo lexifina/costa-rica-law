@@ -1,0 +1,1 @@
+Artículo 29.—Acuerdos del Comité Institucional de Selección y Eliminación: Los acuerdos del comité se tomarán por mayoría, debiendo levantarse un acta de la reunión efectuada y se comunicarán los acuerdos como corresponda.

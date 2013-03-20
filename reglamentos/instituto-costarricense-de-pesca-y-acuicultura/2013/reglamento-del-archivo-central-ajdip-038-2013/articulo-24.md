@@ -1,0 +1,1 @@
+Artículo 24.—Ordenación documental: el sistema de ordenación que se utilizará en los archivos de gestión del Incopesca será el cronológico y numérico. En los casos necesarios se utilizará la combinación de cronológico y numérico.

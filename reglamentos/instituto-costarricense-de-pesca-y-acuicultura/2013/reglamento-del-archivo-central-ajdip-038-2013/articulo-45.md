@@ -1,0 +1,1 @@
+Artículo 45.—Compatibilidad y normalización de documentos: El Archivo Central coordinará con informática el procedimiento para uniformar los medios informáticos para la gestión documental con la finalidad de garantizar la compatibilidad de la información en las diferentes unidades administrativas de la institución.

@@ -1,0 +1,1 @@
+Artículo 32.—Eliminación parcial: Cuando no existan Tablas de Plazos de Conservación de Documentos para una determinada oficina del Incopesca, cada jefatura en coordinación con el Comité Institucional de Selección y Eliminación solicitará y promoverán las consultas parciales si se desea eliminar uno o varios tipos documentales que han perdido su valor administrativo y legal.

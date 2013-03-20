@@ -1,0 +1,1 @@
+Artículo 12.—Reunión documental: Para la reunión documental en el Archivo Central, las diferentes oficinas de Direcciones, Departamentos del Incopesca deberán transferir la documentación en forma organizada y con la lista de remisión de acuerdo a los requerimientos de transferencia documental que emita el Archivo Central, cuya confección y difusión estará bajo su responsabilidad.

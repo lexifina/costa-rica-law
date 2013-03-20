@@ -1,0 +1,1 @@
+Artículo 25.—Descripción documental: en los archivos de gestión la descripción consistirá en la rotulación concreta y precisa de cada unidad documental, en la elaboración de registros de entrada y salida de documentos manuales o digitalizados y en la utilización de la lista de remisión anual, que se elaborará para transferir documentos al Archivo Central.

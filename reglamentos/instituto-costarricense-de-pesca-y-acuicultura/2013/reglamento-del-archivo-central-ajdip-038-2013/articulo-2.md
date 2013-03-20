@@ -1,0 +1,1 @@
+Artículo 2º—Deberes y funciones: El Archivo Central es la oficina responsable y encargada de velar por el cumplimiento de las normas archivísticas para toda la documentación producida y recibida en función de las actividades del Incopesca.

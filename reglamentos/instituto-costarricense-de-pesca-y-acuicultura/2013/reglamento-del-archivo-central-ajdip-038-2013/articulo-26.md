@@ -1,0 +1,1 @@
+Artículo 26.—Instrumentos descriptivos: El Archivo Central contará con los siguientes auxiliares descriptivos: Inventarios, Listas de Remisión, Solicitudes de Valoración Parcial, Tablas de Plazos de Conservación de Documentos, Bases de Datos.

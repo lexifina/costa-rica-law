@@ -1,0 +1,1 @@
+Artículo 6º—Sobre los recursos: El Archivo Central contará con los recursos humanos, materiales, económicos, tecnológicos y de infraestructura, necesarios para desarrollar adecuadamente los objetivos y metas propuestas.

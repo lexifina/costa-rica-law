@@ -1,0 +1,1 @@
+Artículo 35.—Sala de consulta: El Archivo Central, contará con una sala de consulta y atención para los funcionarios del Incopesca y para el público en general; con el horario que establezca previamente la administración.
