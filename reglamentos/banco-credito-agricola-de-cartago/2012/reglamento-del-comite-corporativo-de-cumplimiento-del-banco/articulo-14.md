@@ -1,0 +1,4 @@
+Artículo 14.—Actas. El Comité Corporativo de Cumplimiento cuenta en forma permanente con una persona encargada de levantar y formalizar las actas de cada sesión; junto con el Oficial de Cumplimiento, prepara de forma previa la agenda de la sesión.
+De cada sesión del Comité Corporativo de Cumplimiento, se levanta un acta en la cual se consignan los asuntos tratados y acuerdos adoptados. Las actas son suscritas por los miembros asistentes a la reunión. El Oficial de Cumplimiento se encargará de llevar el control de los acuerdos adoptados.
+Se remite a Junta Directiva General un resumen ejecutivo de los temas tratados en la sesión del Comité Corporativo de Cumplimiento, 10 días hábiles después de celebrada la sesión.
+Se envía a Junta Directiva General el acta relativa a la sesión realizada, 10 días hábiles posteriores a la aprobación en firme de la misma.

@@ -1,0 +1,1 @@
+Artículo 7º—Orientación de la Gestión. Corresponde al Comité Corporativo de Cumplimiento, apoyar la gestión de la Oficialía de Cumplimiento y las del Banco en general, en la correcta aplicación de la normativa que regula la prevención de la legitimación de capitales.

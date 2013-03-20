@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones establecidas en este reglamento, son aplicables para el funcionamiento del Comité Corporativo de Cumplimiento.
+Se constituye como un órgano de apoyo y vigilancia al Oficial de Cumplimiento, el cual se establece en forma permanente por acuerdo de la Junta Directiva, y reporta directamente a dicho órgano colegiado. Además, se conforma a nivel de conglomerado financiero, para que fiscalice a todas las entidades que lo integran.

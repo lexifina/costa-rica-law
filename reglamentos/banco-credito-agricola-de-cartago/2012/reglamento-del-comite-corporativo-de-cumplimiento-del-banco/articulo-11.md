@@ -1,0 +1,1 @@
+Artículo 11.—Reuniones. El Comité Corporativo de Cumplimiento se reunirá con la periodicidad que establece el Manual de Cumplimiento (al menos una vez cada tres meses). Las sesiones serán convocadas por medio del Oficial de Cumplimiento.
