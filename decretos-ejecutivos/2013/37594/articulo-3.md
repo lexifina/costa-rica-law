@@ -1,0 +1,4 @@
+CAPÍTULO II
+De los salarios
+Artículo 3º.—La AP cuando corresponda, autorizará y hará extensivos los incrementos salariales que disponga el Poder Ejecutivo. La AP podrá también hacer extensivos los aumentos por concepto de revaloraciones, modificaciones de escala, otros conceptos salariales y otros aspectos técnicos, que sean iguales en montos o vigencias a los concedidos para los servidores cubiertos por el Régimen de Servicio Civil y acorde con las limitaciones fiscales imperantes.
+Los ajustes técnicos derivados de las resoluciones emitidas por la DGSC y que haga extensivos la AP, podrán ser aplicados a los puestos de las entidades públicas homologadas al Sistema de Clasificación y Valoración de Puestos que se aplica en el Régimen de Servicio Civil y a los de las entidades no homologadas que demuestren técnicamente que sus puestos presentan condiciones similares en cuanto a factores de clasificación con las clases de la DGSC.

@@ -1,0 +1,4 @@
+Artículo 18.—La elaboración de manuales institucionales de clases o cambios en los vigentes, de entidades públicas, órganos desconcentrados no homologados o ministerios –con puestos excluidos del Régimen de Servicio Civil-, proceden en las siguientes situaciones:
+a) Variación en la ley orgánica de la institución, que modifique, la naturaleza, los bienes y servicios que generan o sus funciones.
+b) Se pretenda una mejoría en la prestación del servicio público, en términos de eficacia, eficiencia y calidad en los bienes o servicios que se brindan a los usuarios.
+c) Cambios en la estructura orgánica o reestructuración administrativa aprobada por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), excepto cuando se refiera a modificaciones en la especificación de una clase o que obedezca a cambios en los procesos, actividades o productos, sin que eso signifique una variación en la estructura organizacional.

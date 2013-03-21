@@ -1,0 +1,2 @@
+Artículo 25.—Con la anuencia del jerarca ejecutivo y de acuerdo con las necesidades de las entidades públicas, se podrán realizar cambios de nomenclatura en puestos de confianza subalternos, así como en puestos de servicios especiales ubicados dentro de un mismo proyecto de inversión, que cuentan con la aprobación de la Autoridad Presupuestaria.
+Es responsabilidad de la administración activa la verificación de la procedencia técnico jurídica de tales cambios.
