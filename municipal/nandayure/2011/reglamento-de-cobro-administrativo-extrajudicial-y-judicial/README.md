@@ -14,3 +14,4 @@ Reglamento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-01 | la propia norma |
+| 2 | 2013-03-21 | Reglamento municipal 79 (2013-03-21) |

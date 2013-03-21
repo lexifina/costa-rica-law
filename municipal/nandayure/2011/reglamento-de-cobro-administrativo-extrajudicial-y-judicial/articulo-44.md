@@ -1,3 +1,4 @@
 CAPÍTULO VII
 Contratación de los abogados
-Artículo 44.—De la Licitación: Los términos de referencia para la elaboración del Cartel de contratación, serán establecidos por el Encargado de Cobro en coordinación con el Coordinador Tributario, tomando como referencia las obligaciones solicitadas en éste Reglamento a los abogados externos.
+Artículo 44.—Contratación de abogado externo: La Municipalidad podrá contratar de forma directa, de conformidad con las disposiciones contenidas en la Ley de Contratación Administrativa y su Reglamento, a los abogados externos que llevarán a cabo del cobro extrajudicial y judicial. Para ello, el proveedor municipal realizará un pliego de condiciones, en donde indicará todos los requisitos que deben poseer dichos profesionales, así como las obligaciones y responsabilidades que asumirán, de conformidad con el presente Reglamento.
+(Así reformado mediante sesión extraordinaria N° 79 del 21 de marzo del 2013)
