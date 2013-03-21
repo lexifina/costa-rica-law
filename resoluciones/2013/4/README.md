@@ -14,3 +14,4 @@ Aclaración en cuanto al esquema de tasación de transferencia de llamadas aplic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-06 | la propia norma |
+| 2 | 2013-03-21 | Resolución 110 (2013-03-21) |
