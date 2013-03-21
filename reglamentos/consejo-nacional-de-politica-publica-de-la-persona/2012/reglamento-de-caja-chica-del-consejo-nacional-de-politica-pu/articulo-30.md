@@ -1,0 +1,1 @@
+Artículo 30.—Informes. En forma trimestral el responsable, remitirá a la Dirección Ejecutiva un informe detallado del funcionamiento de la Caja Chica, de la organización, funcionamiento y control, así mismo, en caso de solicitarse información por parte de la Tesorería Nacional, el responsable del fondo remitirá lo solicitado.

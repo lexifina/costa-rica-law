@@ -1,0 +1,1 @@
+Artículo 33.—La Unidad de Administración y Finanzas gestionará ante la Auditoría Interna, la legalización de los libros que se utilizarán para el control y registro de los gastos efectuados con recursos de caja chica, el cual será entregado al encargado del fondo fijo.

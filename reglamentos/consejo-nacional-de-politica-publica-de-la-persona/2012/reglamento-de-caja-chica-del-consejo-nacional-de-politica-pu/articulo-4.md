@@ -1,0 +1,1 @@
+Artículo 4º—Objetivo. El presente reglamento tiene por objeto regular los aspectos de creación, planificación, organización, ejecución, operación, funcionamiento y control del fondo fijo de dinero denominado caja chica del Consejo de la Persona Joven.

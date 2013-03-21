@@ -1,0 +1,1 @@
+Artículo 14.—Responsable del establecimiento de controles: La Dirección Ejecutiva y la Junta Directiva del Consejo, deberán establecer los controles necesarios para asegurar la operación, funcionamiento y el cumplimiento de lo establecido en el Reglamento a la Ley de Contratación Administrativa, en torno a la prohibición de fraccionar compras.

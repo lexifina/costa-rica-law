@@ -1,0 +1,1 @@
+Artículo 26.—Medio para trámite del reintegro. Todo gasto efectuado con recursos del Fondo de Caja Chica, deberá ser reintegrado a la respectiva caja, mediante el documento de respaldo correspondiente (facturas originales), en un plazo máximo de cinco días hábiles, el gasto debe coincidir con las subpartidas presupuestarias indicadas en la Solicitud de Gasto o Servicio.

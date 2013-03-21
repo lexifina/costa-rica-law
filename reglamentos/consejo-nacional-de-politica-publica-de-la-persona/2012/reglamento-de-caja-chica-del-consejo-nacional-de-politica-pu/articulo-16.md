@@ -1,0 +1,1 @@
+Artículo 16.—En ausencia del responsable de la caja chica o del funcionario encargado de la operacionalidad de la misma, la Dirección Ejecutiva y de acuerdo a las necesidades institucionales designará un nuevo responsable.
