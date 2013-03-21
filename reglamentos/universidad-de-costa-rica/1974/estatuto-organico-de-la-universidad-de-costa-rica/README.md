@@ -26,3 +26,4 @@ Estatuto Orgánico de la Universidad de Costa Rica
 | 11 | 2009-11-25 | Reglamento 132 (2009-11-25) |
 | 12 | 2011-03-09 | SINALEVI (sin norma nombrada) |
 | 13 | 2011-09-28 | Reglamento 134 (2011-09-28) |
+| 14 | 2013-03-21 | Reglamento 136 (2013-03-21) |

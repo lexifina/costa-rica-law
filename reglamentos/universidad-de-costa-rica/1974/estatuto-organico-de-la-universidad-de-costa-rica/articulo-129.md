@@ -1,2 +1,3 @@
-ARTÍCULO 129.- La creación, fusión o eliminación de un centro o un Instituto de Investigación le corresponde al Consejo Universitario a propuesta del Consejo de la Vicerrectoría de Investigación.
-Modificación aprobada en la Asamblea Colegida Representativa No. 114 del 31 de octubre de 2001 y 12 de noviembre de 2001 y publicada en la Gaceta Oficial No. 17 del 24 de enero de 2002.
+Artículo 129.—La creación, fusión o eliminación de un instituto, un centro de investigación, una estación experimental o una unidad especial de investigación le corresponde al Consejo Universitario a propuesta del Consejo de la Vicerrectoría de Investigación.
+La creación, fusión o eliminación de una unidad de apoyo a la investigación, le corresponde al Consejo de la Vicerrectoría de Investigación y deberá ser ratificada mediante resolución por la Rectoría.
+(Así reformado mediante sesión N° 136 del 21 de marzo del 2013)
