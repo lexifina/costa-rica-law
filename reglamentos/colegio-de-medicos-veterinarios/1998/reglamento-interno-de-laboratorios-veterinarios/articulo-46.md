@@ -1,0 +1,1 @@
+Artículo 46.—El informe de análisis no deberá contener criterio, diagnóstico, consejo o recomendación proveniente de los resultados del análisis a menos que haya solicitud expresa del Médico Veterinario remitente.

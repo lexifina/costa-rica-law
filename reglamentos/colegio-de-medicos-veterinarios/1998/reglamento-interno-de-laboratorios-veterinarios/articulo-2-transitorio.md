@@ -1,0 +1,1 @@
+Transitorio II.—Los Laboratorios Veterinarios y los establecimientos que cuenten con servicios de apoyo laboratorial, se ajustarán en lo posible a los parámetros establecidos en los Anexos de este Reglamento Interno. La Junta Directiva evaluará las condiciones y determinará el momento en que los parámetros contenidos en esos Anexos serán de carácter obligatorio.

@@ -1,0 +1,1 @@
+Transitorio I.—Una vez que sea sancionado el Proyecto a la Ley Orgánica del Colegio de Médicos Veterinarios, Expediente Legislativo N° 12.300; las funciones del Fiscal y la Fiscalía las asumirá el Contralor y la Contraloría respectivamente, y deberán leerse esas denominaciones en sustitución de las presentes.

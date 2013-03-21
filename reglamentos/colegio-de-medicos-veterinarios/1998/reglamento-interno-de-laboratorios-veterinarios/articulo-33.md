@@ -1,0 +1,1 @@
+Artículo 33.—La idoneidad de las instalaciones físicas, su entorno y los equipos de cada Laboratorio Veterinario que solicite Licencia Veterinaria de Operación, podrán ser revisados por la Fiscalía del COLEGIO, quién emitirá criterio sobre los resultados, la cual se adjuntará a la solicitud.

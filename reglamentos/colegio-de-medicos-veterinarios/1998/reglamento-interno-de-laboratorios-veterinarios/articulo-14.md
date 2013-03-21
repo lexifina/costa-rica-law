@@ -1,0 +1,1 @@
+Artículo 14.—Para solicitar y obtener la Autorización de Regencia, el solicitante deberá ajustarse a los requisitos señalados por el Reglamento Interno de Regencias del Colegio. La Autorización de Regencia deberá renovarse anualmente, tramitándose antes del 1 de abril.

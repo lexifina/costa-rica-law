@@ -1,0 +1,1 @@
+Artículo 21.—El incumplimiento de funciones comprobado por la Fiscalía será causal de denuncia ante la Junta Directiva; el incumplimiento reiterado a sus funciones o las faltas reiteradas señaladas anteriormente por la Fiscalía darán pié a la suspensión de la Autorización de Regencia y otras sanciones si fuera del caso, conforme a las regulaciones del COLEGIO para esta materia.

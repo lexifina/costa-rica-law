@@ -1,0 +1,1 @@
+Artículo 43.—El Laboratorio Veterinario deberá tener procedimientos documentados para la retención de muestras y eliminación segura de los desechos biológicos y químicos, incluidas todas las disposiciones necesarias para proteger la integridad del Laboratorio Veterinario.

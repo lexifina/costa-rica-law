@@ -1,0 +1,1 @@
+Artículo 4º—Un Laboratorio Veterinario podrá efectuar publicidad y promoción de sus servicios, ajustándose a emblemas y leyendas que señalen en forma concisa la naturaleza de los servicios que ofrece; en concordancia con el Código de Ética.

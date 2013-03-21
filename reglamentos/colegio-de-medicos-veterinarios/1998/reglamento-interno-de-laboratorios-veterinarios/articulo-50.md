@@ -1,0 +1,1 @@
+Artículo 50.—El Laboratorio Veterinario deberá notificar al COLEGIO y a los clientes de inmediato y por escrito sobre cualquier suceso, tal como la identificación de equipos de medición o análisis defectuosos, que induzca a dudar sobre la validez de resultados dados en cualquier informe o certificado de análisis, o enmienda a informe o certificado de análisis.

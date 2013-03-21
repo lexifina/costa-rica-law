@@ -1,0 +1,1 @@
+Artículo 36.—Cuando por las particularidades del Laboratorio Veterinario, se requiera de un bioterio, éste deberá estar situado en un área separada, con las condiciones de higiene, iluminación, ventilación y otras, adecuadas.

@@ -1,0 +1,1 @@
+Artículo 55.—El Regente deberá velar por el correcto almacenamiento, uso y disposición de aquellos productos que impliquen riesgo epidemiológico; deberá mantener bajo su responsabilidad las sustancias venenosas e identificarlas claramente con la letra y la simbología que indica la normativa vigente.

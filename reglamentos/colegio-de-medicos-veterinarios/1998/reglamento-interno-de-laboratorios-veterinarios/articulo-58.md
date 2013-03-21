@@ -1,0 +1,1 @@
+Artículo 58.—Se deberá mantener un registro de los materiales biológicos preparados, que indique el origen y destino de los mismos. El Regente está obligado a declarar a las autoridades competentes del origen y destino de cualquier material, cuando así le sea requerido.

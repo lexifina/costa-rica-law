@@ -1,0 +1,1 @@
+Artículo 11.—El Laboratorio Veterinario deberá tener una política y procedimientos documentados para la resolución de quejas recibidas de clientes u otras partes sobre las actividades del Laboratorio Veterinario. Deberá mantener un registro de todas las quejas y de las acciones correctivas llevadas a cabo por el Laboratorio Veterinario.

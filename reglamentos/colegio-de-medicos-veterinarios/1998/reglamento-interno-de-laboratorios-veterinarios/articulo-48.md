@@ -1,0 +1,1 @@
+Artículo 48.—Se deberá poner particular atención a la composición del informe o certificado de análisis, especialmente con respecto a la presentación de los datos del análisis y a la facilidad de asimilación por el lector. El formato se deberá diseñar cuidadosa y ser adecuado para los análisis que realiza el Laboratorio Veterinario.

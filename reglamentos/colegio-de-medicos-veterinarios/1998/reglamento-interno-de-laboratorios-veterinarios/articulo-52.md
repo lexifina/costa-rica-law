@@ -1,0 +1,1 @@
+Artículo 52.—El Laboratorio Veterinario deberá asegurar que, cuando el cliente requiera la transmisión de resultados de análisis por fax, teléfono o cualquier otro medio electrónico o electromagnético, el personal seguirá procedimientos documentados para asegurar que los requisitos de este Reglamento Interno se satisfacen y que la confidencialidad es respetada.

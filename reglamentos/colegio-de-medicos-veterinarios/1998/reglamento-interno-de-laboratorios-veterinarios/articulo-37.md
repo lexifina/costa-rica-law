@@ -1,0 +1,1 @@
+Artículo 37.—Los equipos mínimos serán aquellos que permitan llevar a cabo los procedimientos para los cuales le ha sido aprobada la Licencia Veterinaria de Operación. La Fiscalía del COLEGIO determinará para cada caso si cumple con el mínimo requerido; en caso de dudas la Fiscalía podrá consultar con el Laboratorio Nacional de Servicios Veterinarios.

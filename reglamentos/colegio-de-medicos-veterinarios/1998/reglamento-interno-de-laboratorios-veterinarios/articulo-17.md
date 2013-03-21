@@ -1,0 +1,1 @@
+Artículo 17.—Son incompatibles con el horario de presencia física, otros empleos o actividades simultáneos, a menos que se ejecuten en el mismo edificio que alberga al Laboratorio Veterinario, en cuyo caso deberá aclararse en la solicitud.

@@ -1,0 +1,1 @@
+Artículo 6º—La Junta Directiva podrá fijar y los Laboratorios Veterinarios y otros establecimientos que tengan los servicios de apoyo, observarán, las tarifas mínimas para los distintos servicios laboratoriales que ofrecen, atendiendo los costos mínimos requeridos para brindar cada servicio y garantizar la calidad de sus resultados.

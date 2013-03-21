@@ -1,0 +1,1 @@
+Artículo 56.—Es responsabilidad del Regente el velar porque no se importen, comercialicen, suministren o utilicen equipos, instrumentos y materiales en el Laboratorio Veterinario, que por razones de calidad, mal estado de conservación, defectos de funcionamiento, constituir un riesgo para la salud Animal y otras causas, no cumplan con las especificaciones oficiales.

@@ -1,0 +1,1 @@
+Artículo 23.—El Regente está en la obligación de denunciar ante el COLEGIO la inobservancia a sus recomendaciones; de la misma forma denunciará ante el COLEGIO o las autoridades competentes las faltas y contravenciones a la legislación que ocurrieren en el Laboratorio Veterinario.

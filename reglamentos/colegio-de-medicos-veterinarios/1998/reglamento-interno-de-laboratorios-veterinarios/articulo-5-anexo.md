@@ -1,0 +1,13 @@
+ANEXO N° 5
+Métodos de Análisis
+Artículo 1º—El Laboratorio Veterinario deberá tener instrucciones documentados sobre el uso y operación de todo el equipo pertinente, sobre la manipulación y preparación de las muestras objeto de análisis y para la calibración del equipo y análisis. Todas las instrucciones, normas, manuales y datos de referencia para el trabajo del Laboratorio Veterinario, deberá mantenerse actualizados y al alcance del personal.
+Artículo 2º—El Laboratorio Veterinario deberá usar métodos y procedimientos adecuados para todas las calibraciones y ensayos y actividades relacionadas bajo su responsabilidad (incluidas las de muestreo, manipulación, transporte y almacenamiento, preparación de objetos de ensayo, estimación de la incertidumbre de las mediciones y análisis de los datos de calibración y/o ensayo). Deberán ser consistentes con la exactitud requerida y con cualquier especificación estándar pertinentes a las calibraciones o ensayos implicados.
+Artículo 3º—Cuando los métodos no estén especificados, el Laboratorio Veterinario deberá, siempre que sea posible, seleccionar aquellos métodos que hayan sido publicados en normas internacionales o nacionales, los publicados por organizaciones técnicas de prestigio o en textos o revistas científico-técnicas relevantes.
+Artículo 4º—Los cálculos y transferencia de datos deberán estar sujetos a las comprobaciones adecuadas.
+Artículo 5º—Cuando se utilizan computadoras o equipo automatizado para la captura, procesamiento, manipulación, registro, informe, almacenamiento o recuperación de los datos de calibración o análisis, el Laboratorio Veterinario deberá asegurar que:
+a) Se cumple con los requisitos de este Reglamento Interno.
+b) El “software” de computador esté documentado y sea adecuado para su uso.
+c) Sean establecidos y llevados a la práctica procedimientos para proteger la integridad de los datos. Tales procedimientos deberán incluir, al menos, la integridad de la entrada o captura, el almacenamiento, la transmisión y el procesamiento de los datos.
+d) El equipo informático y automatizado sea mantenido para asegurar un funcionamiento adecuado y cuente con las condiciones de operación y de entorno necesarias para mantener la integridad de los datos de análisis.
+e) Se establezcan y pongan en práctica procedimientos apropiados para el mantenimiento de la seguridad de los datos, incluida la prevención del acceso no autorizado y la enmienda no autorizada de los registros de computador.
+Artículo 6º—Deberán existir procedimientos documentados para la compra, recepción y almacenamiento de materiales y reactivos usados para las operaciones técnicas del Laboratorio Veterinario.

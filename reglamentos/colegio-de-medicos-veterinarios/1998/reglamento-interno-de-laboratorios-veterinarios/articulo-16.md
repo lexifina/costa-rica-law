@@ -1,0 +1,1 @@
+Artículo 16.—El horario de presencia física del Regente será determinado por la Junta Directiva, guardando relación con el tipo de servicio ofrecidos, magnitud del Laboratorio Veterinario y horario de funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 51.—En caso de enfermedades declaradas de Combate Estatal o Particular Obligatorio o de Denuncia Obligatoria, el Laboratorio Veterinario deberá informar a las autoridades competentes, según sea el caso. El Regente velará porque dicho informe se realice.

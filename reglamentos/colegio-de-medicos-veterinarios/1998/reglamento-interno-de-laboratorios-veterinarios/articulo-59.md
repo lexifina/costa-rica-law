@@ -1,0 +1,1 @@
+Artículo 59.—Queda prohibido suministrar o vender a personas no autorizadas, aparatos, equipos, instrumental, sustancias o materiales de uso exclusivo de los profesionales en ciencias de la salud, conforme al artículo 49 de la Ley General de Salud, Nº 5395.

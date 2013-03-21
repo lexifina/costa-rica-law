@@ -1,0 +1,1 @@
+Artículo 28.—El entorno del Laboratorio Veterinario no deberá invalidar los resultados o afectar adversamente la exactitud requerida de las mediciones. Se deberá poner particular cuidado cuando tales actividades se realizan en otros lugares diferentes de la instalación permanente del Laboratorio Veterinario.

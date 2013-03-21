@@ -1,0 +1,1 @@
+Artículo 57.—La rotulación de todo empaque o envase de productos químicos y reactivos, será en idioma español, deberá indicar el contenido oficial y cumplir con las normas de etiquetado para esos productos.
