@@ -1,0 +1,1 @@
+Artículo 17.—El incumplimiento de lo dispuesto en estas directrices podrá acarrear la aplicación del régimen de responsabilidad de la Ley No. 8131 ya citada, establecido en el título X, artículos 107 y siguientes.
