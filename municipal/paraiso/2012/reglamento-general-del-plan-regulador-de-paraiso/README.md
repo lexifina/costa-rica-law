@@ -14,3 +14,4 @@ Reglamento General del Plan Regulador de Paraíso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-31 | la propia norma |
+| 2 | 2013-03-21 | Reglamento municipal 227 (2013-03-21) |
