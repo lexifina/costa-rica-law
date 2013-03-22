@@ -1,1 +1,0 @@
-Artículo 34.—Derogatoria. El presente reglamento deroga el aprobado por la Junta Directiva de la Promotora de Comercio Exterior (PROCOMER) en la sesión ordinaria Nº 064-99 del viernes 03 de setiembre de 1999.

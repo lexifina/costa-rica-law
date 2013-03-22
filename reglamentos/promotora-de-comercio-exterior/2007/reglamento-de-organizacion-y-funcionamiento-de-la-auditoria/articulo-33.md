@@ -1,1 +1,0 @@
-Artículo 33.—Modificaciones al reglamento. El Auditor Interno podrá proponer las modificaciones que considere oportunas al presente reglamento, según lo dispuesto en el artículo 22 inciso h), de la LGCI.

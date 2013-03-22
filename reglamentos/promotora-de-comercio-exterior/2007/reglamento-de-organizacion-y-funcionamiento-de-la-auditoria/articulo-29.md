@@ -1,1 +1,0 @@
-Artículo 29.—Apoyo de especialistas en la labor de la Auditoría Interna. En aquellos casos en que se requiera, el auditor interno podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad como apoyo a las Auditorías que realice la Auditoría Interna.

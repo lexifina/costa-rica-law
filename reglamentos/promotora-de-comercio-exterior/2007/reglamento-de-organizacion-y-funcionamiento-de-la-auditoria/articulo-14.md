@@ -1,3 +1,0 @@
-CAPÍTULO III
-Del objeto, competencias, deberes, potestades y prohibiciones
-Artículo 14.—Objeto. El objeto fundamental de la Auditoría Interna, es prestar un servicio de asesoría constructiva y de protección a la Administración para que alcance sus metas y objetivos institucionales con mayor, eficiencia, eficacia y economía, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección, proporcionándole en forma oportuna información, análisis, comentarios y recomendaciones sobre las operaciones que examina.
