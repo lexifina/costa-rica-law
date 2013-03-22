@@ -1,0 +1,5 @@
+Artículo 9
+Auditorías Fiscales en el Extranjero
+1. Previa solicitud de la autoridad competente del Estado requirente, la autoridad competente del Estado requerido podrá permitir a los representantes de la autoridad competente del Estado requirente, estar presente en la parte de la auditoría fiscal que se considere apropiada en el Estado requerido.
+2. Si se accede a dicha solicitud, la autoridad competente del Estado requerido notificará lo más pronto posible a la autoridad competente del Estado requirente el lugar y la hora de la auditoría, la autoridad o los funcionarios designados para llevar a cabo la auditoría y los procedimientos y condiciones necesarias por el Estado requerido para llevar a cabo la misma. Todas las decisiones respecto a la ejecución de la auditoría fiscal serán tomadas por el Estado requerido.
+3. Las Partes podrán informar a uno de los Depositarios de su intención de no aceptar, como regla general, dichas solicitudes en la forma en que se describen en el numeral 1. Dicha declaración puede hacerse o retirarse en cualquier momento.

@@ -1,0 +1,11 @@
+CAPÍTULO V
+DISPOSICIONES ESPECIALES
+Artículo 24
+Implementación de la Convención
+1. Las Partes se comunicarán mutuamente, a través de sus autoridades competentes, para implementar la presente Convención. Las autoridades competentes se comunicarán directamente para estos efectos y podrán autorizar a autoridades subordinadas para que actúen en su representación. Las autoridades competentes de dos o más Partes acordarán mutuamente la forma en que aplicarán la Convención entre ellas.
+2. Cuando el Estado requerido considere que la aplicación de la presente Convención en un
+caso en particular tendría consecuencias serias e indeseadas, las autoridades competentes de los Estados requerido y requirente se consultarán entre sí y harán lo posible por resolver dicha situación por mutuo acuerdo.
+3. Un órgano de coordinación compuesto por representantes de las autoridades competentes de las Partes deberá monitorear la implementación y el desarrollo de la presente Convención, con el apoyo de la OCDE. Con ese fin, el órgano de coordinación recomendará cualquier acción para avanzar hacia los objetivos generales de la Convención. En particular, actuará como un foro para el estudio de nuevos métodos y procedimientos para incrementar la cooperación internacional en asuntos fiscales y, cuando se considere apropiado, recomendará revisiones o modificaciones a la Convención. Los Estados que hayan firmado pero aún no hayan ratificado, aceptado o aprobado la Convención, tendrán derecho a ser representados en las reuniones del órgano de coordinación como observadores.
+4. Una Parte podrá solicitar al órgano de coordinación su opinión sobre la interpretación de las disposiciones de la Convención.
+5. Cuando surjan dificultades o dudas entre dos o más Partes respecto de la implementación o interpretación de la Convención, las autoridades competentes de esas Partes harán lo posible por resolverlas de común acuerdo. El acuerdo deberá comunicarse al órgano de coordinación.
+6. El Secretario General de la OCDE informará a las Partes, y a los Estados Signatarios que aún no hayan ratificado, aceptado o aprobado la Convención, las opiniones emitidas por el órgano de coordinación de conformidad con lo dispuesto por el numeral 4 anterior y de los acuerdos mutuos que se hayan alcanzado de conformidad con el numeral 5 anterior.

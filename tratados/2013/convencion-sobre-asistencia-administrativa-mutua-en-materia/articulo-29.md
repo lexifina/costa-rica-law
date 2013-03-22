@@ -1,0 +1,5 @@
+Artículo 29
+Aplicación territorial de la Convención
+1. Cada Estado podrá, al momento de firmar o cuando se deposite el instrumento de ratificación, aceptación o aprobación, especificar el territorio o territorios a los que se les aplicará la Convención.
+2. Cada Estado podrá, en una fecha posterior, mediante declaración dirigida a uno de los depositarios, extender la aplicación de la presente Convención a cualquier otro territorio especificado en la declaración. Con respecto a dicho territorio, la Convención entrará en vigencia el primer día del mes siguiente a la expiración de un período de tres meses posteriores a la fecha de recepción de dicha declaración por el Depositario.
+3. Cualquier declaración que se haga de conformidad con cualquiera de los dos numerales anteriores, con respecto a cualquier territorio especificado en dicha declaración, podrá retirarse mediante notificación dirigida a uno de los Depositarios. El retiro de dicha declaración surtirá efectos el primer día del mes siguiente a la expiración de un período de tres meses posteriores a la fecha de recepción de dicha notificación por el Depositario.
