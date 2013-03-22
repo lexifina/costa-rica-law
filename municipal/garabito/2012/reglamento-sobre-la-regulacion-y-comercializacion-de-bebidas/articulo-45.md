@@ -1,0 +1,1 @@
+Artículo 45: El Departamento de Patentes Municipales procederá a renovar los quinquenios mediante la emisión del certificado correspondiente, mismo que deberá ser firmado por la Jefatura del Departamento de Patentes Municipales y el Alcalde Municipal.

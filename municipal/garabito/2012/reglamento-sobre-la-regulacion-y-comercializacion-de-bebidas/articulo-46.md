@@ -1,0 +1,1 @@
+Artículo 46: Para denegar una renovación de quinquenio, el Departamento de Patentes Municipales deberá haber comprobado las denuncias presentadas en el plazo del quinquenio anterior, cumpliendo con el proceso debido correspondiente.

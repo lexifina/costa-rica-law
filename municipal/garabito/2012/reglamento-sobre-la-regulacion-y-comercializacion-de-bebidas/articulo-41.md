@@ -1,0 +1,1 @@
+Artículo 41: Verificados los requisitos administrativos, las distancias correspondientes, y la inspección del sitio, de conformidad con lo anteriormente prescrito, la Jefatura del Departamento de Patentes Municipales realizará la recomendación (no vinculante) del Concejo Municipal, quienes deberán pronunciarse en los quince días naturales después de recibida la misma.

@@ -1,0 +1,1 @@
+Artículo 42: El Concejo Municipal podrá otorgar la autorización para la explotación de licencias de Licores por un período indeterminado, en cuyo caso el patentado deberá renovar cada cinco años su autorización.

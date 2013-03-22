@@ -1,0 +1,1 @@
+Artículo 30: Para los efectos de la aplicación del impuesto y en caso de que este reglamento entre en vigencia durante el transcurso de un trimestre, así como cuando se obtenga la licencia o se renuncie y ya el trimestre se encuentre avanzado, los patentados deberán cancelar solo la fracción correspondiente a los días faltantes, o transcurridos, en el caso de las renuncias.
