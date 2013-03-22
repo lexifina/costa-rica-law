@@ -4,4 +4,4 @@ El solo hecho de presentar la oferta al concurso se entenderá como una manifest
 Es elegible la oferta que cumpla con los requisitos, condiciones y especificaciones esenciales del Cartel o Pliego de Condiciones. Serán excluidas del concurso las ofertas que no cumplan con lo indicado en el Cartel o Pliego de Condiciones o con lo establecido en el presente Reglamento.
 Salvo cuando el Cartel o Pliego de Condiciones lo disponga de otra manera, el oferente se entiende obligado a cotizar por la totalidad del objeto de la contratación.
 En el caso de que el Cartel o Pliego de Condiciones se refiera a una pluralidad de renglones diversos, se permitirá presentar oferta respecto a uno o varios de estos, salvo que en el Cartel se haya indicado lo contrario.
-Una vez recibida por el Departamento de Servicios Generales y Compras, la oferta no podrá ser retirada y se tendrá como propiedad de PROCOMER.
+Una vez recibida por el Departamento de Proveeduría, la oferta no podrá ser retirada y se tendrá como propiedad de PROCOMER.

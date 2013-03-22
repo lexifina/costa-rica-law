@@ -3,7 +3,7 @@ El Cartel o pliego de condiciones deberá contener al menos lo siguiente:
 a) Un encabezado que contenga la leyenda “Promotora del Comercio Exterior de Costa Rica”, con indicación del tipo y número de la contratación y una breve descripción del objeto a contratar.
 b) El costo y forma de pago para adquirir el Cartel.
 c) Indicación de la moneda en que podrán efectuarse las cotizaciones, de conformidad con las regulaciones monetarias vigentes.
-d) Indicación de la Gerencia o Departamento que tramita el procedimiento y que proporcionará la información adicional respecto de las especificaciones y documentación relacionada.
+d) Indicación de la Unidad solicitante del procedimiento, la cual además deberá proporcionar la información adicional respecto de las especificaciones y documentación relacionada.
 e) El día, hora límite y lugar para la presentación de ofertas.
 f) El porcentaje o monto de las garantías que se deben rendir.
 g) El número de copias que deberán adjuntarse.
@@ -17,4 +17,5 @@ n) Los factores de valoración que se aplicarán para comparar las ofertas.
 o) Cualquier otro, a juicio de PROCOMER.
 El Cartel no podrá imponer restricciones ni exigir el cumplimiento de requisitos que no sean técnicamente indispensables, si con ello limita las posibilidades de concurrencia a eventuales participantes.
 La Gerencia o Dirección responsable de la contratación será la responsable de garantizar que en el cartel únicamente se exijan requisitos que sean técnicamente indispensables.
-El cartel de la contratación pública debe contar con el visto bueno de la Gerencia Administrativa –Financiera y la Dirección de Asesoría Legal.
+El cartel de la Contratación Pública debe contar con el visto bueno de la Gerencia Administrativa –Financiera y la Dirección de Asesoría Legal.
+Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.

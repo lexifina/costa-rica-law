@@ -7,5 +7,5 @@ c) Los principios y prohibiciones establecidos en la Ley de Contratación Admini
 d) Otras leyes que regulen materia de contratación administrativa que sean de aplicación a PROCOMER.
 e) Ley General de la Administración Pública.
 f) Reglamento de Contratación de PROCOMER
-g)El cartel o pliego de condiciones.
+g) El cartel o pliego de condiciones.
 h) El respectivo contrato administrativo.

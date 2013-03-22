@@ -6,4 +6,4 @@ c) Publicidad. Los procedimientos de contratación se darán a conocer por los m
 d) Libre competencia. Se debe garantizar la posibilidad de competencia entre los oferentes. No deben introducirse en el cartel restricciones técnicas, legales o económicas que injustificadamente limiten la participación de potenciales oferentes.
 e) Igualdad. En un mismo concurso los participantes deben ser tratados y examinados bajo reglas similares.
 f) Buena fe. Las actuaciones desplegadas por la entidad contratante y por los participantes se entenderán en todo momento de buena fe, admitiendo prueba en contrario.
-g. Intangibilidad patrimonial. Las partes están obligadas a mantener el equilibrio financiero del contrato.
+g) Intangibilidad patrimonial. Las partes están obligadas a mantener el equilibrio financiero del contrato.

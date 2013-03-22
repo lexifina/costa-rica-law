@@ -1,8 +1,8 @@
 CAPÍTULO VI
 Tipos de procesos de contratación
 SECCIÓN PRIMERA
-Contratación pública
-Artículo 88.- Contratación pública
+Contratación Pública
+Artículo 88.- Contratación Pública
 Este procedimiento es aplicable para:
 a) Las contrataciones iguales o superiores al monto de trescientos mil dólares, moneda del curso legal de los Estados Unidos de América.
 b) Toda venta, enajenación o arrendamiento de bienes muebles o inmuebles, salvo cuando se utiliza el procedimiento de remate.

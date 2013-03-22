@@ -15,4 +15,4 @@ También se sancionara al trabajador que:
 5. Retrasar de modo injustificado la recepción de bienes u obras.
 6. Inducir a la compra de bienes o servicios en forma fraccionada.
 7. Dar por recibidos bienes, obras o servicios que no se ajusten a lo adjudicado.
-8. Alegar que se trata de un proveedor único o exclusivo para evadir el procedimiento de contratación que corresponda
+8. Alegar que se trata de un proveedor único o exclusivo para evadir el procedimiento de contratación que corresponda.
