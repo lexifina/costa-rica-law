@@ -1,1 +1,0 @@
-Artículo 15.—Confidencialidad. Las y los miembros de los EQUIPOS EVALUADORES y del JURADO EVALUADOR deberán firmar un “Contrato de Ética y Confidencialidad” como condición indispensable para el ejercicio de las funciones asignadas.

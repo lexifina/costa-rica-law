@@ -1,3 +1,0 @@
-Artículo 3º—Conceptualización. El PREMIO es un galardón a las instituciones públicas que demuestren desempeños sobresalientes en la implementación integral de los modelos de excelencia en su gestión.
-El RECONOCIMIENTO es un galardón a las instituciones públicas que desarrollan iniciativas innovadoras mediante procesos y procedimientos de generación de productos y servicios que ocasionan un incremento en la calidad del servicio ofrecido a las y los ciudadanos.
-El PREMIO y el RECONOCIMIENTO podrán ser otorgados tanto a las instituciones públicas en general, como a alguna dependencia de las instituciones públicas en particular.
