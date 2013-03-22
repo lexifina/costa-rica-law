@@ -14,3 +14,4 @@ Reglamento de Creación, Organización y Funcionamiento de la Dirección del Cen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-24 | la propia norma |
+| 2 | 2013-03-22 | Decreto Ejecutivo 37692 (2013-03-22) |
