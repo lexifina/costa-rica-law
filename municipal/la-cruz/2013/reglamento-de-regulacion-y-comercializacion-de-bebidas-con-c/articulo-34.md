@@ -1,0 +1,1 @@
+Artículo 34.—Cumplidos a satisfacción todos los requisitos administrativos y legales, el Departamento de Patentes procederá a enviar recomendación al Alcalde o Alcaldesa Municipal para que resuelva la solicitud tramitada. Corresponderá al Departamento de Patentes emitir el certificado correspondiente en caso de resultar aprobada la gestión.

@@ -1,0 +1,1 @@
+Artículo 41.—Es obligación del solicitante informar a la municipalidad cualquier modificación de las condiciones acreditadas mediante el formulario y la documentación antes indicada, y que se verifique antes del otorgamiento de la licencia.

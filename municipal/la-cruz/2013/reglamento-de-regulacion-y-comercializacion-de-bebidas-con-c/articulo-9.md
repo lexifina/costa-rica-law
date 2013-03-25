@@ -1,0 +1,1 @@
+Artículo 9º—Nadie puede comercializar bebidas con contenido alcohólico sin haber obtenido una licencia municipal y cancelado, previamente, la patente correspondiente, la cual deberá ser cancelada en un plazo máximo de diez días hábiles a partir del día siguiente a su notificación. En caso de no cumplirse con ese plazo, se procederá a archivar la solicitud sin más trámite.

@@ -1,0 +1,1 @@
+Artículo 11.—En caso de que el licenciatario solicite un cambio en el giro comercial, deberá tramitarse la solicitud como una nueva licencia, quedando, de aprobarse el cambio, la licencia anterior cancelada.

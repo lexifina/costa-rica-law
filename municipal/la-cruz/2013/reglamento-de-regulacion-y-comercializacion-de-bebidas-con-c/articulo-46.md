@@ -1,0 +1,2 @@
+Artículo 46.—Cumplidos a satisfacción todos los requisitos administrativos y legales, el Departamento de Patentes procederá a enviar recomendación al Alcalde o Alcaldesa Municipal para que resuelva la solicitud de prórroga tramitada. Corresponderá al Departamento de Patentes emitir el certificado correspondiente en caso de resultar aprobada la gestión.
+En caso de proceder la denegatoria a la prórroga solicitada, se deberá emitir una resolución debidamente motivada que contenga indicación expresa de los recursos que proceden contra dicho acto.

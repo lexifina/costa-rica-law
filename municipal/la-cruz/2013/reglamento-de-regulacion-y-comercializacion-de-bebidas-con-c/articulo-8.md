@@ -1,0 +1,1 @@
+Artículo 8º—Las licencias permanentes concedidas bajo la Ley N° 9047 tendrán una vigencia de cinco años, prorrogable en forma automática por periodos iguales, siempre y cuando al momento de la prórroga el patentado cumpla con todos los requisitos legales establecidos.

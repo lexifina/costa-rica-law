@@ -1,0 +1,2 @@
+Transitorio II.—A las patentes de licores adquiridas bajo la ley N° 10 que se encuentren inactivas y no sean homologadas en los términos del Transitorio I de este Reglamento, la Municipalidad, de oficio, las asignará en la categoría B, debiendo el patentado cancelar el impuesto correspondiente y sujetarse en todo a lo establecido en la ley 9047 y este Reglamento.
+Rige diez días después de su publicación.

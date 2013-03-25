@@ -1,0 +1,1 @@
+Artículo 43.—Para efectos de la aplicación del literal e del artículo anterior, la cantidad de habitantes en cada distrito será establecida cada año, en el mes de diciembre, por la Municipalidad tomando como base los registros de población que mantenga el Área de Salud del Cantón o bien los datos del último censo efectuado por el Instituto Nacional de Estadísticas y Censos.

@@ -1,0 +1,1 @@
+Artículo 10.—Todo trámite para obtener, prorrogar o renunciar a licencias para la comercialización de bebidas con contenido alcohólico, deberá realizarse ante la dependencia encargada de tramitar las mismas, dependencia que le compete analizar los requisitos presentados y determinar la legalidad del trámite.

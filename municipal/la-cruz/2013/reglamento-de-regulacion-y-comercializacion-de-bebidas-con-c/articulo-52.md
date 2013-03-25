@@ -1,0 +1,1 @@
+Artículo 52.—Para los efectos de la aplicación del impuesto en aprobaciones y retiros de las licencias permanentes, los patentados deberán cancelar solo la fracción correspondiente a los días faltantes para finalizar el trimestre en que se apruebe, o los días transcurridos, en el caso de las renuncias.
