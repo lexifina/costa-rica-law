@@ -1,0 +1,12 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+AJDIP/067-2013.—Puntarenas, a los quince días del mes de febrero de dos mil trece.
+Considerando:
+I.—Que manifiesta el licenciado Luis Gerardo Dobles Ramírez, Presidente Ejecutivo, que se han venido presentando inconvenientes y problemas para permisionarios de la tercera edad (Ciudadanos de Oro), así como aquellos que en razón de problemas de salud, se ven imposibilitados de realizar faenas de pesca, de conformidad con la autorización que en ese sentido le otorga dicha licencia de pesca comercial en pequeña escala.
+II.—Que las disposiciones reglamentarias vigentes, son omisas en cuanto a garantizar a aquellos permisionarios que se encuentren en los supuestos señalados en el considerando primero, la posibilidad de delegar o autorizar en un tercero el ejercicio de la actividad de pesca comercial; toda vez que la misma constituye el modo de llevar sustento a su familia y el no poder hacerlo por las condiciones dichas, acarrea indudablemente una seria violación al derecho de acceso al trabajo consagrado en nuestra Carta Magna.
+III.—Que en ese sentido, señalan los Sres. Directores la necesidad de normar positivamente éste aspecto, razón por la cual consideran viable y procedente establecer la posibilidad para que cuando un permisionario se vea imposibilitado, sea por razones de edad o enfermedad de realizar faenas de pesca, pueda autorizar a un tercero para que en su nombre y representación lleve a cabo la pesca comercial, razón por lo que la Junta Directiva. Por tanto:
+ACUERDA:
+1º—Cuando un permisionario se vea imposibilitado para realizar las faenas de pesca comercial artesanal en pequeña escala, por motivos de su edad adultos mayores (Ciudadanos de Oro), enfermedad, embarazo o aquellas personas con problemas de discapacidad, se permitirá excepcionalmente autoricen a familiares hasta segundo grado de consanguinidad para que realicen en su nombre y representación las actividades de pesca artesanal en pequeña escala.
+2º—Para el perfeccionamiento de la autorización a un tercero, deberá el permisionario de la licencia demostrar la condición que motiva su solicitud, acreditándose con el respectivo dictamen médico, condición de discapacidad o carné de oro.
+3º—Igualmente deberá acreditar por los medios legales correspondientes el vínculo de grado de consanguinidad con el tercero que se pretende autorizar, así como el cumplimiento por parte de éste, de la aprobación del curso de zafarrancho impartido por el INA, para lo cual se le otorga un plazo taxativo de seis meses.
+4º—Acuerdo firme.
