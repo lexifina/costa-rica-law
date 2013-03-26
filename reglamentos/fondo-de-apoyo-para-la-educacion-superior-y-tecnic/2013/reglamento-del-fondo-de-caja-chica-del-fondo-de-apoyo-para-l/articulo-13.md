@@ -1,0 +1,1 @@
+Artículo 13.—Trámite de adelanto para gastos de viaje. Para tramitar adelantos de dinero para cubrir gastos de viaje en el interior del país, los funcionarios de FAESUTP deberán utilizar el comprobante denominado “Autorización de adelanto para giras”.

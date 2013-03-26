@@ -1,0 +1,1 @@
+Artículo 15.—Responsable de efectuar los reintegros. El encargado del Fondo Fijo de Caja Chica deberá estar atento de presentar la respectiva solicitud de reintegro al Fondo, en el momento que consideren más oportuno, con el fin de evitar atrasos en las compras requeridas por la institución.
