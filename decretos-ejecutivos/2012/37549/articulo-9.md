@@ -1,0 +1,1 @@
+Artículo 9º—En la etapa de evaluación para la contratación, todas las solicitudes de compra para programas de cómputo, que realicen los diferentes Ministerios e Instituciones adscritas al Gobierno Central, deberán ser consultadas con el experto en informática que se tenga designado en cada institución.

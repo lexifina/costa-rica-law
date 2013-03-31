@@ -1,0 +1,1 @@
+Artículo 16.—Que mediante el presente Decreto, se deroga el Decreto Ejecutivo Nº 30.151-J y publicado en el Diario Oficial La Gaceta Nº 37 de 21 de febrero del 2002, y sus reformas (Decreto Nº 30236-J).
