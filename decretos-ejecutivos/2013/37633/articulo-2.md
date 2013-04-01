@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 37481-H de fecha 5 de diciembre del 2012, publicado en el Alcance Digital N° 15 a La Gaceta N° 16 del 23 de enero del 2013, a partir de la vigencia del presente decreto.
