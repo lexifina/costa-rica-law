@@ -20,7 +20,7 @@ Producto | Factor
 5. Hierro para techo | 0.112445
 6. Varilla de hierro | 0.112759
 7. Plywood | 0.110555
-8. Durpanel | 0.11183
+8. Durpanel (Mediante el artículo 1° de la resolución N° DGT-R-013-2013 del 1° de abril del 2013 se establece lo siguiente : "... Se deja sin efecto la resolución N° 30-95 de las ocho horas treinta minutos del día nueve de noviembre de mil novecientos noventa y cinco, únicamente en lo relacionado con el factor de crédito establecido de 0.11183 para los productos clasificados en la partida arancelaria 4410, en su oportunidad identificados como Durpanel) | 0.11183 (Mediante el artículo 1° de la resolución N° DGT-R-013-2013 del 1° de abril del 2013 se establece lo siguiente : "... Se deja sin efecto la resolución N° 30-95 de las ocho horas treinta minutos del día nueve de noviembre de mil novecientos noventa y cinco, únicamente en lo relacionado con el factor de crédito establecido de 0.11183 para los productos clasificados en la partida arancelaria 4410, en su oportunidad identificados como Durpanel)
 9. Pinturas y especialidades varias (locales, de Centroamérica y Panamá) | 0.111676
 10. Pinturas y especialidades carias (resto del mundo) | 0.102638
 (Nota de Sinalevi: Mediante el artículo 2° de la resolución N° 03/96 del 15 de marzo de 1996, se establece lo siguiente: "... Asimismo quedan sin efecto los factores para cuantificar el crédito fiscal de las mercancías antes dichas que se incorporan en la fabricación de mercancías gravadas o exentas, estipulados en las Resoluciones No 29-95 y 30-95 de fecha 9 de noviembre de 1995, publicadas en "La Gaceta" No 226 del 28 de noviembre de 1995 y No 227 del 29 de noviembre de 1995, respectivamente...")

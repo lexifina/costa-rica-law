@@ -15,3 +15,4 @@ Crédito Fiscal por Adquisición de Bombillos y Otros
 | --- | --- | --- |
 | 1 | 1995-09-19 | la propia norma |
 | 2 | 1996-03-15 | Resolución 3 (1996-03-15) |
+| 3 | 2013-04-01 | Resolución 13 (2013-04-01) |
