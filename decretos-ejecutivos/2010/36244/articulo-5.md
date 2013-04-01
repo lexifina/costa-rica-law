@@ -1,1 +1,2 @@
-Artículo 5º—Las sesiones se realizarán con la participación de al menos tres de los integrantes de la Comisión, quienes deben representar a cada uno de los sectores. Los acuerdos se aprobarán por mayoría simple y cada sector representado contará con un solo voto.
+Artículo 5º—Las sesiones se realizarán con la participación de al menos tres de los integrantes de la Comisión , quienes deben representar a cada uno de los sectores. Los acuerdos se adoptarán por consenso y en caso de no lograrse se decidirá por mayoría simple de los miembros presentes, contando cada sector representado con un solo voto.
+(Así reformado por el artículo 2 del decreto ejecutivo N°37630 del 1° de abril del 2013)

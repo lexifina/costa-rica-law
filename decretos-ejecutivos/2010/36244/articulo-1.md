@@ -11,4 +11,5 @@ Decretan:
 “CREACIÓN DE LA COMISIÓN TÉCNICA TRIPARTITA
 PARA LA IGUALDAD Y EQUIDAD DE GÉNERO
 EN EL TRABAJO”
-Artículo 1º—Créase la Comisión Técnica Tripartita para la Igualdad y la Equidad de Género en el trabajo, cómo órgano asesor del Despacho del Ministro o Ministra del Ministerio de Trabajo y Seguridad Social, en materia de igualdad y equidad de género.
+Artículo 1º—Créase la Comisión Técnica Tripartita para la Igualdad y la Equidad de Género en el trabajo, cómo una instancia especializada en materia de igualdad y equidad de género, adscrita al Ministerio de Trabajo y Seguridad Social.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37630 del 1° de abril del 2013)

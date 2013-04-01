@@ -14,3 +14,4 @@ Creación de la Comisión Técnica Tripartita para la Igualdad y Equidad de Gén
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-08 | la propia norma |
+| 2 | 2013-04-01 | Decreto Ejecutivo 37630 (2013-04-01) |
