@@ -1,3 +1,1 @@
-Artículo 17º- Finalizado el trámite anterior, se enviará el
-expediente a la Junta Directiva para que se proceda según el artículo 43
-de la Ley Orgánica.
+Artículo 17º- (Derogado por el artículo 1° del decreto ejecutivo N° 37677 del 1° de abril del 2013)

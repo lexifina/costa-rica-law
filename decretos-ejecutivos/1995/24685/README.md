@@ -13,3 +13,4 @@ De Fiscalía del Colegio de Profesionales en Ciencias Económicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-24 | la propia norma |
+| 2 | 2013-04-01 | Decreto Ejecutivo 37677 (2013-04-01) |
