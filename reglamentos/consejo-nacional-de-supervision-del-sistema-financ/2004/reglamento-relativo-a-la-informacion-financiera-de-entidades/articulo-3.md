@@ -1,3 +1,5 @@
 Artículo 3º—Notas explicativas a los Estados Financieros
-Las notas a los estados financieros deben presentarse de forma sistemática y de conformidad con las Normas Internacionales de Contabilidad adoptadas por el Colegio de Contadores Públicos de Costa Rica.
-Sin detrimento de lo anterior, las notas y aclaraciones aplicables, contenidas en los Anexos 3, 4 y 5 de este reglamento formarán parte integral de las indicadas en el párrafo anterior. Cuando alguna de éstas no sea de aplicación, ello deberá de evidenciarse como una nota final, indicando las razones por las que no se presenta.
+Las notas a los estados financieros deben presentarse de conformidad con las revelaciones que disponen las Normas Internacionales de Información Financiera adoptadas por el Consejo Nacional de Supervisión del Sistema Financiero.
+Cada Superintendente podrá exigir, mediante resolución razonada, notas prudenciales adicionales para sus supervisados.
+Cuando alguna nota no sea de aplicación, ello deberá evidenciarse como una nota final, indicando las razones por las cuales no se presenta. La entidad supervisada podrá adicionar cualquier otra nota que estime pertinente.”
+(Así reformado mediante la sesión N° 1034-2013 del 2 de abril del 2013)
