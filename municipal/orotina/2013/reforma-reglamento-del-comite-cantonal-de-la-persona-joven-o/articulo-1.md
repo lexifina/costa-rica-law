@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE OROTINA
+El Concejo Municipal en el acta de la sesión ordinaria número 235, artículo 5, tema, 4 celebrada el día 19 de febrero del 2013 acuerda publicar transitorio al Reglamento del Comité Cantonal de la Persona Joven de Orotina.
+Transitorio I.—E1 cumplimiento de los artículos establecidos en el Reglamento del Comité Cantonal de la Persona Joven de Orotina, respecto a nombramientos, convocatoria y registros, serán de carácter obligatorio en el tanto, el Comité Cantonal de la Persona Joven saliente, haya cumplido con la confección de los procedimientos necesarios establecidos en el reglamento. De no ser así el Concejo Municipal estará facultado para establecer un mecanismo alterno a través de un acuerdo.
