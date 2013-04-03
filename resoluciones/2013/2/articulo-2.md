@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-R-024-2012 del 4 de octubre del 2012, publicada en La Gaceta Nº 212 de 2 de noviembre del 2012.
