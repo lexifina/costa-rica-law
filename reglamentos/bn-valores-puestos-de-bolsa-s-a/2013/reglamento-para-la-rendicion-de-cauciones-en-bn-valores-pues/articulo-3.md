@@ -1,0 +1,1 @@
+Artículo 3º—Forma de rendir la caución. La caución en favor de BN Valores, podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad o mediante el mecanismo que la Administración apruebe para ello y que cumpla con los requisitos de seguridad necesarios para el cumplimiento del fin propuesto.

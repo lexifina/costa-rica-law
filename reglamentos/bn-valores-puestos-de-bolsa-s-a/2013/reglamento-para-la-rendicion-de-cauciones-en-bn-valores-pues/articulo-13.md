@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 13.—Caución mínima. El monto mínimo de la garantía será de un salario base establecido en la Ley 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año. Anualmente, se actualizará para cada nivel el monto por caucionar tomando como parámetro el salario base, dicha actualización será comunicada por escrito por la Unidad de Recursos Humanos a los funcionarios caucionantes como. Los funcionarios que deban ajustarse al nuevo monto de cobertura de la garantía, contarán para ello con un plazo máximo de veinte días hábiles contados a partir de la notificación de dicha comunicación.
