@@ -1,0 +1,9 @@
+Anexo Nº 2
+ROCESO ADMINISTRATIVO DE EXPROPIACIÓN
+C/ xxx
+ACTA DE NOTIFICACIÓN
+Por este medio, procedo a notificar a la señora XXX, pasaporte número XXX en la oficina de su representante legal el Lic. XXX ubicada en XXX, la resolución XXX del XXX publicado en La Gaceta Nº XXX del XXX del XXX, cuyo original consta en el expediente administrativo correspondiente al presente proceso expropiatorio.
+Hago constar que la notificación se realizó en fecha........................................................y fue recibida por el señor(a).....................................................................................................en su calidad de...............................................................................................................................
+Nombre y firma del notificador………………………………………………………...............Hora………………………
+Observaciones: ……………………………………………………………………………………………………………………………...………………………………………………………………………………………………………………………………………………………………………………………………………
+Comprobante de fax:
