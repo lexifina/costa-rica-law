@@ -41,3 +41,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 26 | 2013-04-02 | Decreto Ejecutivo 37644 (2013-04-02) |
 | 27 | 2013-04-02 | Decreto Ejecutivo 37642 (2013-04-02) |
 | 28 | 2013-04-03 | Decreto Ejecutivo 37647 (2013-04-03) |
+| 29 | 2013-04-03 | Decreto Ejecutivo 37645 (2013-04-03) |
