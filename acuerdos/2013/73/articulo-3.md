@@ -1,0 +1,1 @@
+Artículo 3º—La comisión sesionará cuando sea convocada por quien tenga la coordinación de dicha comisión, con el fin de atender las funciones que se establecen en el artículo 8 del Decreto Ejecutivo N° 36499-S-MINAET y las actividades afines.
