@@ -1,0 +1,1 @@
+Artículo 2º—Esta Proveeduría Institucional tendrá a su cargo la tramitación de los procedimientos de contratación administrativa de la Actividad Central del Ministerio de Gobernación y Policía, Oficina de Control de Propaganda, Dirección Nacional de Desarrollo de la Comunidad y del Tribunal Administrativo Migratorio, a partir de la entrada en vigencia del presente decreto.

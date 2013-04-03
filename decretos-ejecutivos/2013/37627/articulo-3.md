@@ -1,0 +1,1 @@
+Artículo 3º—Se revoca lo dispuesto en Decreto Ejecutivo N° 30486-H del 10 de mayo del 2002, mediante el cual se le otorgó competencia a la Proveeduría Institucional del Ministerio de Seguridad Pública para asumir los procesos de contratación administrativa de los programas presupuestarios del Ministerio de Gobernación y Policía.
