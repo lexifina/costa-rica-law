@@ -1,0 +1,9 @@
+5. Ambiente de Apoyo
+Para lograr un ambiente de apoyo efectivo respecto a la valoración del riesgo en la organización, se establece que:
+a) La CCII conocerá, aprobará y dará seguimiento a las acciones propuestas por la Unidad de Control Interno para el cumplimiento de los objetivos establecidos en la LGCI.
+…/…
+b) La Unidad de Control Interno participará en la coordinación para la implementación,seguimiento, evaluación y perfeccionamiento del SEVRI.
+c) La CCII velará para que la información sobre riesgos generada por el SEVRI esté disponible de manera oportuna y sistemática a nivel institucional.
+d) Los titulares subordinados serán responsables de mantener un enfoque integrado de la valoración de riesgos en sus dependencias, en función de los objetivos incluidos en el Plan Operativo Institucional y registrados en el Sistema Delphos, para facilitar respuestas eficaces e integradas a los riesgos.
+e) Los titulares subordinados serán responsables de la valoración de los riesgos relacionados con los objetivos a su cargo, de guiar su realización asegurando que sea coherente con los niveles de riesgo aceptables establecidos según los parámetros de aceptabilidad. Asimismo, serán responsables ante el nivel superior inmediato de la valoración de riesgos inherente a su ámbito de competencia. Les corresponderá la divulgación entre sus colaboradores de la normativa, las directrices, las instrucciones y el marco orientador.
+f) Los funcionarios de los demás niveles de la organización participarán proactivamente en la aplicación de la normativa, directrices, instrucciones y del marco orientador. Atenderán a cabalidad los requerimientos de participación en la valoración del riesgo e incorporarán en su trabajo la información disponible sobre los riesgos atinentes a los procesos y proyectos en los que participan.
