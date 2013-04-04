@@ -1,1 +1,0 @@
-Artículo 4°.-Los miembros del jurado dispondrán de una semana para entregar el fallo al Ministerio de Cultura, Juventud y Deportes. Los premios serán anunciados en conferencia de prensa y serán entregados a sus ganadores tan pronto como el Ministerio de Hacienda gire las partidas correspondientes.

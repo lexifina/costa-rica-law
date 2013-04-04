@@ -1,2 +1,0 @@
-Artículo 2°.-EI premio a la mejor coreografía tendrá una dotación económica de treinta y cinco mil colones; los premios al mejor bailarín y a la mejor bailarina de veinticinco mil colones cada uno; el premio al mejor grupo de cincuenta mil colones. Estas sumas se tomarán de la partida 606 (Premios) del presupuesto ordinario del Ministerio de Cultura, Juventud y Deportes.
-Además, cada uno de los ganadores recibirá un diploma.
