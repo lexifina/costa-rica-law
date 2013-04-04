@@ -1,0 +1,1 @@
+Artículo 16.—La Oficina de la Persona Joven de Santa Bárbara, coadyuvará con el Concejo Municipal, en todos los procesos que impliquen la participación, generación y ejecución de políticas jóvenes del cantón.

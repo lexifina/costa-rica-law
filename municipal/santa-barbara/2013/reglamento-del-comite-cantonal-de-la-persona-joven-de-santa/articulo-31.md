@@ -1,0 +1,1 @@
+Artículo 31.—A lo interno del comité se nombrará una junta directiva en la primera sesión ordinaria luego de la juramentación por parte del Concejo Municipal y será conformada por: a) Presidente, el cual será el representante Municipal de conformidad con el artículo 24 inciso a), de la Ley. Secretario y tesorero. También se deberá nombrar un fiscal.

@@ -1,0 +1,1 @@
+Artículo 30.—Una vez completada la lista de postulantes, la oficina de la persona joven deberá presentar la lista ante Concejo Municipal, el cual realizará el proceso de nombramiento y juramentación respectivo.

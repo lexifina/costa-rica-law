@@ -1,0 +1,1 @@
+Artículo 27.—El nombramiento de los dos representantes de los colegios, deberá ser gestionado por Oficina de la Persona Joven ante las autoridades de los centros educativos públicos y privados del cantón, y los designados deben residir en el cantón de Santa Bárbara.

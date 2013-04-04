@@ -1,0 +1,1 @@
+Artículo 26.—Los representantes nombrados, de cada sector u organización juvenil, deberán presentar ante la Oficina de la Persona Joven, una carta donde se les acredite como la persona elegida por su organización para participar en la elección del Comité. En caso contrario, la persona respectiva no podrá postularse para el cargo.

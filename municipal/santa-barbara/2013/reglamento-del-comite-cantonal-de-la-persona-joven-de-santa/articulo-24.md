@@ -1,0 +1,1 @@
+Artículo 24.—En la primera semana de marzo, el CCPJSB realizará la convocatoria con el fin de que se nombre a los postulantes de los diferentes sectores y movimientos que integran el CCPJSB. Se invitarán a todos los sectores juveniles, conformados por personas de 12 a 35 años, domiciliados en el cantón de Santa Bárbara, y representantes de las organizaciones señaladas por la Ley.

@@ -1,0 +1,1 @@
+Artículo 59.—La Municipalidad conforme al principio de coordinación interinstitucional, estará facultada para colaborar con el CCPJSB, para el establecimiento de programas que involucren las diferentes actividades que realiza la casa de la juventud, y así coadyuvar en el cumplimiento de los objetivos e interés locales.

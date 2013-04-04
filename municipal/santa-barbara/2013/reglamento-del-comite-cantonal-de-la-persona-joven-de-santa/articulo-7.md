@@ -1,0 +1,1 @@
+Artículo 7°—A efectos de la aplicación de la presente normativa, la Municipalidad de Santa Bárbara creará dentro de la estructura de la Dirección de Cultura y Deporte, la Oficina Municipal de la Persona Joven.
