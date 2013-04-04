@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE GARABITO
+Actualización del manual de valores base unitarios
+por tipología constructiva
+Considerando:
+La administración Tributaria de conformidad con lo que disponen los artículos 3 y 12 inciso c) de la Ley del Impuesto Sobre Bienes Inmuebles N° 75, y artículos 19, 24 del Reglamento; la sentencia N° 1073-2010 del Tribunal Contencioso Administrativo Sección II y la resolución N° 2011-003075 del 9 de marzo de 2011, en aras de dar cumplimiento a su competencia, procede a publicar su adhesión al Manual de Valores Base Unitarios por Tipología Constructiva, publicado el Alcance Digital N° 22 del Diario Oficial La Gaceta N° 23 del viernes 1° de febrero del 2013, documento procedente de la Dirección del Órgano de Normalización Técnica, Dirección General de Tributación Directa, Ministerio de Hacienda. Se ordena la publicación de esta resolución en el Diario Oficial La Gaceta y en un periódico de circulación nacional, para su ejecución y proceder con la aplicación a los nuevos valores de las construcciones en los procesos de recepción de declaraciones y valoración. Marvin Elizondo Cordero, Alcalde Municipal.—Jacó, Puntarenas, marzo 2013.
