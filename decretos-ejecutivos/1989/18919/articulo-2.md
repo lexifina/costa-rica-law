@@ -1,1 +1,0 @@
-Artículo 2°.-EI Festival Nacional de Danza será regido por un comité organizador compuesto por siete miembros: un representante del Ministerio de Cultura, Juventud y Deportes, un representante del Teatro Popular Mélico Salazar y cinco representantes de la comunidad dancística del país, designados por el Ministerio de Cultura, Juventud y Deportes, mediante acuerdo ejecutivo.

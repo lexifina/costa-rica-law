@@ -1,1 +1,0 @@
-Artículo 7°.-En caso de que un miembro del comité falte sin motivo a tres sesiones consecutivas o cuatro alternas, el comité deberá comunicarlo así a la entidad que representa para su inmediata sustitución. Igual procedimiento se seguirá cuando la vacante se produzca por muerte, incapacidad o renuncia. En todos estos casos, el sustituto será nombrado por el resto del período.

@@ -1,1 +1,0 @@
-Artículo 3°.-En su primera sesión el comité elegirá de su seno un presidente, un vicepresidente, un secretario y un suplente, Ios demás miembros serán vocales. Serán nombrados por mayoría absoluta de sus miembros, desempeñarán sus cargos en forma ad honórem por un período de dos años y podrán ser reelectos.
