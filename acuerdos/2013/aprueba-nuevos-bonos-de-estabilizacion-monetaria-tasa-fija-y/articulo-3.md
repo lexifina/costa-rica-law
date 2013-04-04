@@ -1,0 +1,1 @@
+3. Establecer que la Administración del Banco contará de un margen de desviación entre -300 y +100 puntos, alrededor de las tasas vigentes para Central Directo, para el establecimiento de las tasas de las operaciones especiales de colocación que se efectúen con los bancos.
