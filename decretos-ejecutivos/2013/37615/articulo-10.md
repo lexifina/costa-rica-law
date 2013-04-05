@@ -1,0 +1,1 @@
+Artículo 10.—Constitución de fideicomisos. El Cuerpo de Bomberos previo acuerdo en firme del Consejo Directivo, podrá constituir fideicomisos para la administración de los recursos del Fondo. En este caso, los recursos del Fondo se invertirán en las mejores condiciones de bajo riesgo y alta liquidez.

@@ -1,0 +1,2 @@
+Artículo 69.—Definición y deber de elaboración del Plan Básico. El plan básico es un documento con carácter fundamentalmente preventivo, que contiene las acciones planificadas para prevenir y atender una situación específica de emergencia.
+Todo grupo poblacional, centro de trabajo, asociación comunal, empresa, municipalidad o institución estatal y otras de similar naturaleza, deberá elaborar su plan básico con base en la normalización técnica y las disposiciones que para este efecto, emita el Cuerpo de Bomberos previa aprobación del Consejo Directivo.

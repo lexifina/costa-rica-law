@@ -1,0 +1,1 @@
+Artículo 33.—Nombramiento de los integrantes del Tribunal Electoral. Como se indicó en el artículo anterior, el Director General del Cuerpo de Bomberos designará y consecuentemente juramentará a los cinco integrantes del Tribunal Electoral del Cuerpo de Bomberos.

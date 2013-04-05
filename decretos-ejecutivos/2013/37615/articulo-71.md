@@ -1,0 +1,9 @@
+Artículo 71.—Inspección. El Cuerpo de Bomberos, está facultado para realizar las inspecciones que considere pertinentes y así verificar el cumplimiento de la normativa aplicable en materia de seguridad humana, prevención y protección contra incendios.
+Los inspectores a cuyo cargo se encuentre esa función tienen el carácter de autoridad pública y el propietario, encargado o inquilino deben facilitar la realización de la inspección.
+El procedimiento que debe seguir el inspector es el siguiente:
+a) Al presentarse en el sitio a inspeccionar, previamente identificado mediante documento idóneo expedido por el Cuerpo de Bomberos, expondrá al propietario o encargado su intención de proceder a realizar la inspección.
+b) En caso de que al presentarse el inspector al sitio no fuera posible realizar la inspección, por motivos atribuibles al propietario o encargado del sitio, se le notificará una prevención señalándole la fecha y hora en que nuevamente se presentará el inspector a cumplir esa función.
+c) Si el resultado de la inspección evidencia la necesidad de realizar ajustes, cambios, modificaciones o de completar requisitos, se le notificado al interesado mediante un acta en el lugar, y se le dará un plazo perentorio acorde con el tipo y magnitud de las correcciones que deba realizar.
+c) Una vez vencido el plazo que se estipuló según el inciso anterior, el inspector realizará una revisión para comprobar el cumplimiento.
+d) Si se corrigió lo prevenido, se confirmará mediante un acta final tal condición.
+f) De comprobarse en la inspección de revisión que aún no ha sido cumplida la prevención, el Cuerpo de Bomberos remitirá la denuncia a la vía penal, para que se le siga al responsable el procedimiento correspondiente por incumplimiento a la Ley del Benemérito Cuerpo de Bomberos de Costa Rica.

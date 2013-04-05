@@ -1,0 +1,1 @@
+Artículo 83.—Otras responsabilidades. Además de la responsabilidad económica por los gastos incurridos en la atención de las situaciones a la que se refieren los artículos precedentes, el Cuerpo de Bomberos puede presentar las acciones penales ante los Tribunales de Justicia por contravenciones y delitos por incumplimiento a los preceptos de la Ley Nº 8228.

@@ -1,0 +1,3 @@
+Artículo 21.—Del cobro de servicios especiales y resarcimientos. El Cuerpo de Bomberos se encuentra autorizado para cobrar por los servicios especiales que brinde y a resarcirse de los gastos en que incurra en labores de control en situaciones específicas de emergencia de conformidad con lo establecido en los Capítulos IV y V del Título III de este Reglamento.
+Además, el Cuerpo de Bomberos, por medio de su Consejo Directivo, reglamentará los diferentes aspectos técnicos, administrativos o de índole similar que se requieran para la implantación y desarrollo sostenido de esta fuente de recursos para el Fondo.
+Los dineros que se recauden por este medio serán parte del Fondo del Cuerpo de Bomberos.

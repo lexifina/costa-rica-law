@@ -1,0 +1,1 @@
+Artículo 86.—Cobro de servicios especiales. Las tarifas para cobrar los servicios especiales brindados por el Cuerpo de Bomberos, se fijarán conforme con los criterios de oportunidad, complejidad del servicio y con base en parámetros de mercado; tanto nacionales como internacionales.

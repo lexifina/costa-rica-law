@@ -1,0 +1,1 @@
+Artículo 47.—De la publicación de los resultados de la elección de representes a la Asamblea. El Tribunal Electoral publicará el resultado de las elecciones dentro de los tres (3) días naturales siguientes al cierre de la votación.
