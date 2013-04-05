@@ -1,1 +1,0 @@
-Artículo 21.—De la participación accionaria de las Agencias Operadoras: Las Agencias Operadoras podrán tener una participación accionaria en los proyectos de emprendedores o empresas a acelerar siempre que esta participación no exceda el 10% del capital social.

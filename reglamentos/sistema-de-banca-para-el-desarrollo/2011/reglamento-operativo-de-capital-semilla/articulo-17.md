@@ -1,6 +1,0 @@
-CAPÍTULO IV
-Del fideicomiso nacional para el desarrollo
-Artículo 17.—De los desembolsos por fase. Los desembolsos los realizará el Fiduciario del FINADE según el plan aprobado por el Consejo Rector y con la firma de aprobación del Gestor de Capital Semilla. Los gastos relativos a los procesos de identificación y selección de emprendedores constituyen el aporte de las agencias operadoras y por lo tanto estos procesos no se financiarán con los recursos de Capital Semilla.
-Solo el primer desembolso de la fase uno, definida en el presente reglamento, de cada proyecto individual, podrá hacerse por anticipado a la Agencia Operadora. Los siguientes desembolsos de la fase uno deberán contar con el visto bueno del emprendedor o empresa a acelerar, haciendo constar que recibió a conformidad los servicios por parte de la Agencia Operadora.
-Todos los desembolsos correspondientes, serán depositados por el Fiduciario del FINADE en una cuenta corriente a nombre de la agencia operadora. La solicitud del desembolso debe llevar el visto bueno del emprendedor o de la empresa a acelerar y del Gestor de Capital Semilla.
-En ambas fases, la Agencia Operadora deberá brindar al fiduciario de FINADE una liquidación de gastos previo a la aprobación del desembolso siguiente.

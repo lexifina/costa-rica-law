@@ -1,1 +1,0 @@
-Artículo 12.—De los Proyectos Especiales realizados mediante concursos: El Consejo Rector podrá promover proyectos específicos en incubación y aceleración de empresas que por su naturaleza estratégica apoyen el desarrollo del país, en concordancia con las políticas públicas definidas.

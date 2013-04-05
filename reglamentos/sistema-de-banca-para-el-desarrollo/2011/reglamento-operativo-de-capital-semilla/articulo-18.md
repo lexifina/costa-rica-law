@@ -1,2 +1,0 @@
-Artículo 18.—De la contabilidad e informes financieros del Capital Semilla. El fiduciario del FINADE deberá llevar contabilidad separada del fondo de Capital Semilla, con los auxiliares y anexos necesarios que revelen adecuadamente los resultados mensuales, acompañado de la información sobre los desembolsos efectuados a las agencias.
-Asimismo en el momento en que se presente algún hecho relevante debe ser elevado de manera inmediata al Consejo Rector.

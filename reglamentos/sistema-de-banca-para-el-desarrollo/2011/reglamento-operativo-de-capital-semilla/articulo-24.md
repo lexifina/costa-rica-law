@@ -1,2 +1,0 @@
-Artículo 24.—De la Difusión: Las Agencias Operadoras acreditadas como parte del SBD deben apoyar y participar activamente en los eventos que este realice para promocionar los resultados parciales y finales del los proyectos patrocinados.
-En todas las actividades de difusión de las agencia operadoras se deberá incorporar mención y logo del Sistema de Banca para el Desarrollo como proveedor del recurso de Capital Semilla.

@@ -1,1 +1,0 @@
-Artículo 8º—De la aprobación de informes: Corresponderá al Consejo Rector revisar y resolver los informes que le sean presentados trimestralmente por la Secretaría Técnica y por el fiduciario de FINADE, sin perjuicio de conocer sobre casos especiales cuando sea oportuno. En el Manual Operativo deben indicarse los contenidos del informe.
