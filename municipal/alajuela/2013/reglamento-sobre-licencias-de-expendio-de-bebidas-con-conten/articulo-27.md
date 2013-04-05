@@ -1,0 +1,1 @@
+Artículo 27. Recursos. La resolución que denieguen una licencia o que imponga una sanción tendrá los recursos de revocatoria y apelación, de conformidad con lo establecido en el artículo 161, 162 y conexos del Código Municipal. En los casos en que la resolución sea emitida por el Concejo Municipal, cabrá solamente el recurso de reconsideración.

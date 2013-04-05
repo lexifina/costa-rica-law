@@ -1,0 +1,1 @@
+Artículo 3. Las licencias de las categorías B y C no incluyen por sí mismas la realización de Espectáculos Públicos, ni actividades como karaoke o música en vivo, para ello se requiere efectuar los trámites correspondientes y obtener el respectivo permiso.
