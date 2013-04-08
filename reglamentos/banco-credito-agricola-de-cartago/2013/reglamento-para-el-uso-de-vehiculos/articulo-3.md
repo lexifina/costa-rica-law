@@ -1,0 +1,1 @@
+Artículo 3º—Responsables: Son responsables de acatar este Reglamento, todos los funcionarios que conduzcan o utilicen los vehículos propiedad del Banco. Además, la Oficina de Transportes será la encargada de controlar estos activos.

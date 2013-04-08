@@ -1,0 +1,1 @@
+Artículo 15.—Circulación de vehículos de uso administrativo fuera del horario normal. Los vehículos de uso administrativo sólo podrán circular en horas y días diferentes al horario normal del Banco, en circunstancias especiales y con autorización escrita del jefe de la Oficina de Transportes y del superior jerárquico de la oficina solicitante.
