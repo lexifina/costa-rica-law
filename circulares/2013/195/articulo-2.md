@@ -1,0 +1,1 @@
+Artículo 2.- El Ministerio reconocerá el pago de viáticos a los funcionarios que deban laborar fuera de la sede del Ministerio en actividades realizadas dentro del Área Metropolitana. El reconocimiento de viáticos será por un monto igual o menor al monto que indica la tabla de viáticos vigente a la fecha de presentación de la solicitud y liquidación correspondientes.
