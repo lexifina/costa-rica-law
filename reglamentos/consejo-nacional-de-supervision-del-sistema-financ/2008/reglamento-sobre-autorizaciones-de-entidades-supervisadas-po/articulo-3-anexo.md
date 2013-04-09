@@ -14,7 +14,9 @@ artículo 142.
 3. En materia de Juntas Directivas: artículo 143.
 II. DOCUMENTACIÓN QUE DEBE ACOMPAÑAR LA SOLICITUD DE FUSIÓN DE UN INTERMEDIARIO FINANCIERO
 A. INFORMACIÓN GENERAL
-1. Carta de solicitud de autorización para fusionar uno o más intermediarios financieros con otras personas jurídicas, firmada por los representantes legales de las empresas de que se trate. La carta debe indicar el nombre propuesto para la entidad resultante, el tipo de fusión y la entidad prevaleciente en dicho proceso de fusión, y una dirección y número de fax para notificaciones.
+1. Carta de solicitud de autorización para fusionar uno o más intermediarios financieros con otras personas jurídicas, firmada por los representantes legales de las empresas de que se trate. La carta debe indicar el nombre propuesto para la entidad resultante, el tipo de fusión, la entidad prevaleciente en dicho proceso de fusión, una dirección electrónica de correo, número de fax y domicilio legal para notificaciones.
+En esta carta se debe solicitar la cancelación de la autorización para operar como intermediario financiero, indicar expresamente el nombre de la(s) entidad (es) que cesa(n) sus actividades financieras y sociales, así como la exclusión de los libros de registro de SUGEF para aquella(s) entidad(es) supervisada(s) que corresponda.
+(Así reformado el inciso 1) anterior mediante sesión N° 1036-2013 del 9 de abril del 2013)
 2. Certificación del poder otorgado ante notario público o certificación registral de personería jurídica, con una antigüedad no mayor a tres meses, en la que se acredite la capacidad de actuar del representante legal de los solicitantes.
 3. Copia de la carta de intenciones del proceso de fusión, debidamente aprobada por la asamblea de socios o asociados, o del órgano equivalente en sus funciones de las entidades involucradas en el trámite.
 4. Certificación emitida por notario público del acuerdo de asamblea de socios o asociados, o del órgano equivalente en sus funciones, en las que conste la aprobación de la fusión, por parte de cada una de las empresas involucradas.
