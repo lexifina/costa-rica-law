@@ -15,3 +15,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal
 | --- | --- | --- |
 | 1 | 2012-06-05 | la propia norma |
 | 2 | 2012-08-23 | Reglamento 4994 (2012-08-23) |
+| 3 | 2013-04-09 | Reglamento 5056 (2013-04-09) |
