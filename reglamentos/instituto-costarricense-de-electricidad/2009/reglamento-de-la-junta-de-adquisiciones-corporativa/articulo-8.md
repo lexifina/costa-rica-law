@@ -1,5 +1,5 @@
 SECCIÓN IV
-Del Secretario Ejecutivo de la Junta
+Del secretario y secretario (a) adjunto (a) de la junta
 Artículo 8º—Son deberes del Secretario:
 1. Dirigir y coordinar los asuntos de la Secretaría, informando periódicamente al Presidente o a la Junta, la marcha de los asuntos a él encomendados.
 2. Ejecutar las tareas y funciones que específicamente se le encarguen.
@@ -15,8 +15,8 @@ Artículo 8º—Son deberes del Secretario:
 12. Mantener el control de los acuerdos pendientes de ejecución dictados por la Junta y comunicar mensualmente su cumplimiento.
 13. Extender las certificaciones referentes a actos administrativos o actuaciones materiales de la Junta, que de oficio, o a solicitud de parte, deban extenderse.
 14. Mantener una oportuna comunicación con las distintas dependencias de la Institución y de las empresas, así como con otras instituciones públicas o privadas.
-15. Atender y resolver, siempre y cuando procedan legalmente, las consultas verbales y escritas que presenten las otras dependencias de la Institución y de las empresas, clientes, proveedores, instituciones públicas y público en general, relativas al trámite de los asuntos sometidos al conocimiento de la Junta.
+15. Atender y resolver, siempre y cuando procedan legalmente, las consultas verbales y escritas que presenten las otras dependencias de la Institución, clientes, proveedores, instituciones públicas y público en general, relativas al trámite de los asuntos sometidos al conocimiento de la Junta.
 16. Velar porque se cuente con los recursos y logística necesarios para el funcionamiento de la Junta.
 17. Archivar electrónicamente los documentos conocidos, tramitados o producidos en cada sesión de la Junta, los cuales deben ser respaldados periódicamente.
-18. Preparar un informe mensual y otro trimestral sobre la gestión de la Junta para ser presentado al Consejo Directivo del ICE y en lo que respecta a cada empresa, remitirlo a la Junta Directiva respectiva.
+18. Preparar un informe trimestral sobre las contrataciones adjudicadas por la Junta, para ser presentado al Consejo Directivo del ICE.
 19. Cualquier otra que le indique la Junta o su Presidente.

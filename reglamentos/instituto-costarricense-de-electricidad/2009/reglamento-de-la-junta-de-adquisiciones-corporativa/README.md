@@ -15,3 +15,4 @@ Reglamento de la Junta de Adquisiciones Corporativa
 | --- | --- | --- |
 | 1 | 2009-08-24 | la propia norma |
 | 2 | 2011-06-07 | Reglamento 5951 (2011-06-07) |
+| 3 | 2013-04-10 | Reglamento 6032 (2013-04-10) |

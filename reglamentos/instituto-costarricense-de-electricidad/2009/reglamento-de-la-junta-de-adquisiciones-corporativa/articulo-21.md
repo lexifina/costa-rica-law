@@ -1,1 +1,1 @@
-Artículo 21.—Contra los actos y resoluciones de la Junta de Adquisiciones, en el caso del ICE, procederán los recursos que se establecen en la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones.
+Artículo 21.—Contra los actos y resoluciones de la Junta de Adquisiciones Corporativa, en el caso del ICE, procederán los recursos que se establecen en la Ley 8660 de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones.

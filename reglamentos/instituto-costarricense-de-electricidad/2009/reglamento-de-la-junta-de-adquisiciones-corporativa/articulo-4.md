@@ -2,5 +2,5 @@ Artículo 4º—Son deberes de los miembros de la Junta de Adquisiciones Corpora
 1. Asistir a las sesiones ordinarias y extraordinarias que ésta celebre.
 2. Justificar la inasistencia a las sesiones.
 3. Votar los asuntos sometidos a su consideración y razonar su voto cuando lo considere necesario.
-4. Ejecutar y rendir informes sobre asuntos especialmente solicitados por la Junta de Adquisiciones.
-5. Abstenerse de votar en asuntos en donde tenga interés directo él o algún familiar, conforme lo determina la ley.
+4. Ejecutar y rendir informes sobre asuntos especialmente solicitados por la Junta de Adquisiciones Corporativa.
+5. Abstenerse de votar en asuntos en donde tenga interés directo o algún familiar, conforme lo determina la ley.

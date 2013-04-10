@@ -1,1 +1,1 @@
-Artículo 23.—Los miembros de la Junta, en su calidad de funcionarios públicos, son responsables de sus actos y responderán por sus actuaciones. En caso de incumplimiento de sus deberes, serán sancionados, de conformidad con el ordenamiento jurídico vigente.
+Artículo 23.—Los miembros de la Junta , en su calidad de funcionarios públicos, son responsables de sus actos y responderán por sus actuaciones. En caso de incumplimiento de sus deberes, serán sancionados, de conformidad con el ordenamiento jurídico vigente.
