@@ -1,0 +1,1 @@
+Artículo 8º—A partir de la promulgación de este Reglamento queda prohibida la importación de todo HCFC ya sea que estos se encuentren de manera pura o en mezcla, que nunca hubiera ingresado al país, contemplado en el Grupo I del Anexo C del Protocolo de Montreal o sus enmiendas.

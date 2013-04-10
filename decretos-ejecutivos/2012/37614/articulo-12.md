@@ -1,0 +1,1 @@
+Artículo 12.—El importador que no haga uso de la totalidad de la cuota autorizada por la OTO durante el año calendario, no podrá acumular el saldo para el año siguiente, ni traspasarlo a otro importador.

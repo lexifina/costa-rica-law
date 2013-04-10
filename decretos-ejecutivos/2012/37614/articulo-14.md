@@ -1,0 +1,1 @@
+Artículo 14.—La OTO podrá autorizar a un importador de HCFC debidamente registrado ante ella, la importación de HCFC en una cantidad superior a la cuota asignada. Lo anterior únicamente en casos de fuerza mayor o caso fortuito, debidamente demostrados, comprobados y justificados en los que no medie imprudencia, negligencia e impericia de parte del importador.

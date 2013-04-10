@@ -1,0 +1,1 @@
+Artículo 9º—Para los HCFC la OTO fijará cuotas de importación para el país, en cumplimiento de los compromisos adquiridos con la suscripción del Protocolo de Montreal, sus enmiendas, y el Plan de Manejo de HCFC, de forma tal que no se sobrepasen la cuota anual establecida, ni se supere la cuota del año inmediato anterior.

@@ -1,0 +1,1 @@
+Artículo 3º—Las disposiciones establecidas en el presente reglamento son aplicables para las sustancias controladas por el Protocolo de Montreal, listadas en el Grupo I de su Anexo C, sea que se encuentren de forma pura o en mezclas, descritas en el Anexo A de este reglamento.

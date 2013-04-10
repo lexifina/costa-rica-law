@@ -1,0 +1,1 @@
+Artículo 16.—En lo no previsto expresamente en este reglamento se aplicará supletoriamente las disposiciones contenidas en el Decreto Ejecutivo Nº 35676-S-H-MAG-MINAET “Reglamento de control de las sustancias agotadoras de la capa de ozono de acuerdo a la ley 7223 y sus enmiendas”.

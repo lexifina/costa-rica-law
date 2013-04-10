@@ -1,0 +1,1 @@
+Artículo 13.—A partir del año 2030 queda prohibida en el país la importación y uso de HCFC, sea de manera pura o contenido en mezclas, con excepción de los usos críticos que hayan sido debidamente autorizados. Así mismo, para el año 2020 queda prohibida la importación de equipos que contengan HCFC de forma pura o en mezclas.

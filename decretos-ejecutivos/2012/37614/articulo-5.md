@@ -1,0 +1,1 @@
+Artículo 5º—La DIGECA del MINAET, a través de la OTO es la instancia encargada de ejecutar y coordinar todas las acciones necesarias para implementar lo establecido en este reglamento y en el Plan de Manejo de HCFC en Costa Rica.
