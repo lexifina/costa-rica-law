@@ -1,0 +1,5 @@
+Artículo 52.—Denegatoria de las solicitudes de compensación o devolución. Las solicitudes de devolución se rechazarán mediante resolución debidamente motivada, en los siguientes casos:
+a) Cuando la petición se presente fuera del plazo de prescripción establecido en el artículo 73 de la Ley Nº 7794 Código Municipal y el artículo 03 de la Ley Nº 7509 Ley del Impuesto sobre bienes inmuebles y de manera supletoria lo estipulado en el artículo 43 del Código de Normas y Procedimientos Tributarios.
+b) Cuando el saldo acreedor ya hubiere sido objeto de devolución, compensación, o imputación anterior.
+c) Cuando lo resuelto en el proceso que determinó la suspensión del procedimiento de devolución, sea incompatible con lo solicitado.
+En aquellos casos en que se demuestre la inexistencia de los saldos acreedores, deberá hacerse un informe o propuesta motivada, según lo requiere el artículo 150 del Código de Normas y Procedimientos Tributarios. Podrá la Municipalidad considerar que se inicie el proceso sancionador por inexactitud, de conformidad con el artículo 81 y 92 del citado Código.

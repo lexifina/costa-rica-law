@@ -1,0 +1,4 @@
+Artículo 75.—De resolución automática del contrato de servicios profesionales. No obstante lo estipulado en el artículo anterior, se resolverá automáticamente el contrato por servicios profesionales cuando se den las siguientes causales:
+a. Que el abogado externo incurra en patrocinio infiel en contra de la Municipalidad.
+b. Cuando se pierda un incidente o el proceso, debido al vencimiento del plazo para aportar algún documento o recurso.
+c. En el caso de determinarse negligencia o impericia por parte del abogado externo contratado en la tramitación judicial de las obligaciones vencidas, la Municipalidad podrá realizar los trámites administrativos de resolución contractual, indemnizatoria, mediante la aplicación de las cláusulas penales que se establezcan en el cartel de la licitación pública correspondiente y judiciales que correspondan.

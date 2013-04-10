@@ -1,0 +1,4 @@
+CAPÍTULO VII
+De las disposiciones finales
+Artículo 77.—De la terminación o suspensión del proceso judicial. Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado el proceso por el pago total de la suma adeudada a la Municipalidad, incluyendo las costas procesales y personales y cualquier otro gasto generado durante su tramitación o con ocasión del mismo. También podrá darse por terminado en el caso en que se determine fehacientemente o así se declare, la imposibilidad de cobro de la cuenta.
+No se podrá dar por terminado el proceso judicial respectivo, hasta tanto la Administración Tributaria-Financiera no le indique por escrito a la persona profesional en Derecho externa, que funja como director del proceso, que se ha recibido de conformidad la totalidad de la obligación vencida adeudada por la persona sujeta pasiva, sus intereses y multas.

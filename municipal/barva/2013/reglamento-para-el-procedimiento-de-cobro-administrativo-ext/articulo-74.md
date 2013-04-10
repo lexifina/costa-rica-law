@@ -1,0 +1,6 @@
+SECCIÓN V
+De las causales de rescisión o resolución
+contractual y sus consecuencias
+Artículo 74.—De la rescisión o resolución contractual y sus consecuencias. La Municipalidad queda facultada para dar por terminado el contrato que se suscriba con el abogado externo, por motivo de incumplimiento, causas de fuerza mayor, caso fortuito, o bien, por criterios de oportunidad basados en el interés público, además de las causales al efecto establecidas en la Ley de Contratación Administrativa y su Reglamento, sin menoscabo de proceder, el pago de daños y perjuicios y del estado en que se encuentre el contrato. Cuando ello sucediere, se deberá seguir para el caso de la Resolución contractual el procedimiento establecido en el artículo 204 del Reglamento a la Ley de Contratación Administrativa, mientras que para la eventual Rescisión Contractual, lo estipulado en el numeral 206 y 208 del mismo Reglamento.
+Cuando un abogado externo contratado deje de prestar los servicios a la Municipalidad, por cualquier motivo, excepto por incumplimiento de sus obligaciones, tendrá derecho a que se le paguen los honorarios de acuerdo con el grado de avance en que se encuentren los juicios, una vez finalizada la acción judicial y estos correrán por cuenta del deudor.
+En ningún caso la Municipalidad pagará honorarios a los abogados externos contratados.

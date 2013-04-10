@@ -1,0 +1,5 @@
+Artículo 46.—Compensación a solicitud de parte. Cuando la Municipalidad no haya realizado la compensación de oficio, el contribuyente deberá solicitarla.
+El munícipe o su representante que solicite compensación de una deuda con saldos acreedores, deberá presentar a la Municipalidad, una solicitud en el formulario que ésta determine.
+La Municipalidad solamente podrá rechazar, mediante resolución motivada, aquellas solicitudes de compensación que resulten improcedentes conforme a la ley.
+La Municipalidad podrá denegar la solicitud, en cuyo caso la deuda tributaria deberá cancelarse con los recargos, multas e intereses que establece la ley desde el momento de su vencimiento.
+En caso de que la solicitud se presente con omisión de alguno de los datos, la Municipalidad efectuará al munícipe o su representante, una prevención de tal situación, confiriéndole un plazo de 10 días hábiles para que subsane la falta. Vencido dicho término sin que se subsane la falta de información, se declarará inadmisible la gestión interpuesta y se archivará su solicitud.

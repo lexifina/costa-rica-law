@@ -1,0 +1,2 @@
+Artículo 45.—Compensación de oficio. La compensación, de practicarse de oficio, se hará respecto de los tributos que la Municipalidad tenga que cobrar como Administración Tributaria y Financiera y de acuerdo al desarrollo que los sistemas informáticos le permitan.
+Se aplicarán para la compensación de oficio las reglas de los artículos 42 y 43 de este Reglamento en lo concerniente a la antigüedad de las deudas a cancelar.

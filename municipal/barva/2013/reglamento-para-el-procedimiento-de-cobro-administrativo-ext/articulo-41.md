@@ -1,0 +1,1 @@
+Artículo 41.—Pagos en exceso y prescripción de la acción de repetición. Para todos los efectos y salvo que exista norma expresa de igual o superior rango que determinen parámetros distintos, se aplicará a los pagos en exceso y prescripción de la acción de repetición, lo establecido en el artículo 43 del Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,3 @@
+SECCIÓN II
+De la etapa del cobro administrativo
+Artículo 19.—De la etapa previa del cobro administrativo. Corresponde a todas las actividades de la Administración Tributaria y Financiera y Gestión de Cobro y de las instancias administrativas y operativas municipales que proporcionan la información y la generación de todas las obligaciones tributarias municipales y obligaciones de administración municipal de los munícipes. Dentro de las cuales se pueden señalar: la identificación del contribuyente en estado de deuda, la localización geográfica de la propiedad a la que corresponde la mora, la elaboración de la notificación, la programación de la ruta y proceso de entrega de las notificaciones, entre otros.

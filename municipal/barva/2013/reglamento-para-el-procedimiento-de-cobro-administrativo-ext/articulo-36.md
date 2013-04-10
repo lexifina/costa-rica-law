@@ -1,0 +1,1 @@
+Artículo 36.—Sobre el incumplimiento del arreglo de pago. El atraso en quince días naturales faculta a la Municipalidad a trasladar el arreglo de pago incumplido a cobro judicial y a futuro no se le efectuará otro arreglo de pago hasta tanto no se cumplan cinco años de su incumplimiento.

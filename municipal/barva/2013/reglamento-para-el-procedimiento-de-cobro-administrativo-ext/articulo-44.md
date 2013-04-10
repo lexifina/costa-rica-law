@@ -1,0 +1,1 @@
+Artículo 44.—Procedimientos para la compensación. Para efectos de aplicar la compensación, se deberá atender lo dispuesto en los artículos 45 y 46 de este Reglamento, garantizando en todos sus extremos el derecho de la Municipalidad.

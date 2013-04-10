@@ -1,0 +1,1 @@
+Artículo 56.—Confusión. Procederá la extinción de la obligación por confusión, siempre que el sujeto activo de la obligación, como consecuencia de la transmisión de los bienes o derechos afectos al tributo, quede colocado en la situación del deudor.
