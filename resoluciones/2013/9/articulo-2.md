@@ -1,0 +1,1 @@
+Artículo 2º—Igualmente se deja sin efecto lo dispuesto en la resolución Nº 29-95 en lo relacionado con el crédito fiscal que se calcula multiplicando el importe de las compras de los productos clasificados en la partida arancelaria 4410, en esa oportunidad identificados como Durpanel, por el factor de 0.088794.
