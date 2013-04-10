@@ -1,0 +1,8 @@
+ARTÍCULO 3.- Objetivos
+El presente Reglamento tiene por objeto:
+1. Crear un mecanismo eficaz de prevención y prohibición del hostigamiento sexual en el ámbito laboral así como un procedimiento interno que lo sancione
+2. Promover las condiciones necesarias que garanticen el respeto entre las personas funcionarias de la institución, independientemente de su posición jerárquica; y las personas funcionarias en relación con las personas educandos, pasantes, meritorias, practicantes, clientes, proveedores y usuarios de los servicios que presta la entidad. Lo anterior con el fin particular de asegurar un ambiente de trabajo y/o capacitación libre de hostigamiento sexual
+3. Generar ambientes de trabajo y/o capacitación libres de hostigamiento sexual que potencien la expresión de las capacidades individuales de las personas en su ámbito profesional, laboral y de capacitación, de manera tal que se creen los espacios para su plena realización personal y laboral
+4. Evitar cualquier forma de manifestación de hostigamiento sexual, que perjudique las condiciones, el desempeño y el cumplimiento del trabajo, el estudio y el estado de bienestar general de las personas.
+5. Dar a conocer dentro del ámbito institucional que el hostigamiento sexual constituye una conducta indeseable por quien la recibe, constituyéndose en una forma de violencia y en una práctica discriminatoria por razón de sexo o por otra condición social, que coloque a las personas en una situación de vulnerabilidad en las relaciones laborales y/o capacitación.
+6. Dar a conocer que existe una política a nivel institucional dirigida a prevenir, investigar y sancionar y su efectivo cumplimiento.

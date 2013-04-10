@@ -1,0 +1,1 @@
+ARTÍCULO 24.- Toda persona denunciada o las persona que rindan prueba testimonial de un acoso sexual u hostigamiento tienen la garantía de que no sufrirán perjuicio alguno por sus declaraciones, siempre que éstas no sean difamantes, injuriosas o calumniosas.

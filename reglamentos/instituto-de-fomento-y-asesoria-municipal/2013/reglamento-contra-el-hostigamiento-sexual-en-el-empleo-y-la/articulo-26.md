@@ -1,0 +1,3 @@
+ARTÍCULO 26.- Sobre el expediente administrativo.
+El expediente administrativo contendrá como mínimo toda la documentación relativa a la denuncia, la prueba recabada durante la investigación, las actas, las resoluciones pertinentes y sus constancias de notificación. Además deberá encontrarse foliado con numeración consecutiva y en la carátula el señalamiento de confidencialidad.
+El expediente podrá ser consultado exclusivamente por las partes y sus abogados debidamente identificados y autorizados por la parte interesada, por las personas funcionarias que tengan a cargo la custodia del mismo y por los órganos de seguimiento, en garantía al principio de confidencialidad.

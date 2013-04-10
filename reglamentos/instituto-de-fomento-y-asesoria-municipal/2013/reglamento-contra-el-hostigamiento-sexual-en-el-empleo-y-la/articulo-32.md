@@ -1,0 +1,4 @@
+ARTÍCULO 32.- Normas supletorias
+Para todo lo que no se regula en el presente Reglamento, la Ley N° 7476 y la Ley N° 8805, si no existe incompatibilidad con estos textos, se aplicarán, supletoriamente, la Ley General de Administración Pública, el Código de Trabajo y las leyes laborales conexas, los Convenios Internacionales suscritos y ratificados en materia laboral, demás leyes y reglamentos afines, que se hayan emitido o se emitan en el futuro con el objeto de regular económicamente y socialmente las relaciones obrero patronales, así como las circunstancias que emitan los representantes patronales para normar la prestación de servicios, siempre y cuando no contravengan las disposiciones de este Reglamento. Se aplicará el Código Civil cuando no existan normas reguladoras.”
+Rige a partir de su publicación.”
+Moravia, 11 de marzo de 2013,

@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Obligatoriedad de informar a la Defensoría de los Habitantes de la República.
+La Dirección Ejecutiva del IFAM, informará a la Defensoría de los Habitantes de la presentación de la denuncia, con el objeto de que tenga conocimiento formal de esta, acceso al expediente e intervención facultativa en el procedimiento, para efectos de que pueda ejercer la función asesora y contralora de legalidad. Asimismo, la Dirección Ejecutiva deberá remitirle a la Defensoría la resolución final del caso.

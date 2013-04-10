@@ -1,0 +1,1 @@
+ARTÍCULO 25.- La violación de la confidencialidad de todo lo relacionado con los hechos que motivaron la denuncia y de lo acontecido en el procedimiento, por parte de las personas funcionarias vinculadas directa o indirectamente con éste, se sancionará de conformidad con el artículo 156 del Reglamento Autónomo de Organización y Servicio del IFAM.
