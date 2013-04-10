@@ -1,0 +1,1 @@
+Artículo 2º—El Presidente del Concejo Municipal nombrará una Comisión Especial encargada del Procedimiento de selección y nombramiento del Auditor Interno de la Municipalidad de Turrialba, donde se designará un representante del Departamento de Recurso Humanos el cual tendrá derecho a voz pero sin voto.

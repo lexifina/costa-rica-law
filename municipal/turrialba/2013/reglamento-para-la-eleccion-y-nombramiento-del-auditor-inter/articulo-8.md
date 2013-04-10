@@ -1,0 +1,1 @@
+Artículo 8º—Plazo y lugar para la recepción de ofertas. El plazo para la presentación y recepción de ofertas ante el Departamento de Recursos Humanos será de 10 días hábiles como máximo a partir de la publicación del presente Reglamento y Cartel, en las instalaciones (Insertar Dirección de la Municipalidad), Departamento de Recursos Humanos, segundo piso.
