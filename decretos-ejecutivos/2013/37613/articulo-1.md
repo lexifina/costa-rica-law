@@ -1,0 +1,31 @@
+N° 37613-MAG-H
+LA PRESIDENTA DE LA REPÚBLICA,
+LA MINISTRA DE AGRICULTURA Y GANADERÍA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades establecidas en los artículos 140, incisos 3) y 18), 146, de la Constitución Política, artículo 27 la Ley N° 6227 del 2 de mayo de 1978 y con fundamento en la Ley N° 5515 de 19 de abril de 1974 y en la Ley de la Corporación Bananera Nacional Nº 4895 de 16 de noviembre de 1971 y sus reformas;
+Considerando:
+I.—Que la existencia de la actividad bananera y de las empresas productoras nacionales es materia de sumo interés público, porque son de las más importantes dentro de la estructura productiva costarricense, al generar en los últimos años alrededor de US $650.000.000,oo en divisas, y ser una de las ramas de la agricultura que más mano de obra utiliza por hectárea, generando en la actualidad 40.000 empleos directos, a los que se paga el más alto nivel de salarios agrícolas, y 100.000 empleos indirectos, especialmente en zonas del país que no han contado por muchos años con otro tipo de actividades productivas que, como la actividad bananera, coadyuven tan determinantemente en su desarrollo.
+II.—Que en la actividad bananera Costa Rica ha realizado grandes logros, como haber obtenido por muchos años la mayor eficiencia en productividad por hectárea y ostentar las mejores condiciones socio-laborales y ambientales de producción, por lo cual, frente a los diversos fenómenos naturales adversos, el Gobierno desea que se mantengan operando en el país la mayor cantidad de unidades productivas de banano posibles.
+III.—Que la Ley N° 5515 de 19 de abril de 1974, autoriza al Poder Ejecutivo a destinar una parte del impuesto de exportación de banano al productor.
+IV.—Que mediante el Decreto Ejecutivo N° 37313-MAG del 31 de agosto de 2012, se estableció el “Fondo Especial de Prevención e Infraestructura” a favor de los productores bananeros, que tiene por objeto la protección de las fincas bananeras, su producción y explotación, la integridad de quienes laboran en tales fincas y de las poblaciones aledañas. Por tanto,
+Decretan:
+Reglamento del Fondo Especial de Prevención
+e Infraestructura a favor de los Productores
+Bananeros
+Artículo 1º—Definiciones. Para los efectos del presente reglamento, se entenderá por:
+a. CORBANA: Corporación Bananera Nacional.
+b.- CNE: Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
+c.- MOPT: Ministerio de Obras Públicas y Transportes.
+d.- SENARA: Servicio Nacional de Aguas, Riego y Avenamiento
+e.- JAPDEVA: Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica.
+f.- Fondo o El Fondo: Fondo Especial de Prevención e Infraestructura DE Productores Bananeros, establecido por el Decreto Ejecutivo N° 37313-MAG del 31 de agosto de 2012, que se reglamenta en este decreto.
+g.- Junta Directiva: Junta Directiva de CORBANA.
+h.- Fincas: Unidades de producción bananera que contienen las plantaciones, infraestructura, plantas empacadoras, e instalaciones anexas y necesarias para ese fin.
+i.- Zonas bananeras: Son aquellas en las cuales se ubiquen plantaciones bananeras para la exportación, y se entenderán dentro de este concepto las plantaciones bananeras que se encuentren aisladas de otras. Se entenderán incluidos dentro de dicho concepto aquellos ríos que con su curso o corriente puedan afectar las fincas o las poblaciones aledañas y los recursos podrán aplicarse a estos cuando las obras deban realizarse fuera de las zonas bananeras, siempre y cuando las obras que se hagan en relación con dichos ríos contribuyan a evitar o mitigar daños en las fincas, poblaciones aledañas o infraestructura que sirva a estas.
+j.- Infraestructura: Obras e instalaciones de carácter público consistentes en diques de contención, dragados y otras obras de protección y defensa ante daños que puedan ocasionar los ríos de la vertiente Atlántica y otras regiones del país en las fincas y zonas bananeras.
+k.- Poblaciones aledañas: Núcleos de población adyacentes a las fincas bananeras que contribuyen con mano de obra, aunque una parte de estas no lo haga.
+l.- Infraestructura crítica: Infraestructuras de protección y defensa ante los estragos que puedan causar los ríos, estratégicas y esenciales para el normal funcionamiento de la actividad bananera, cuya construcción y funcionamiento es indispensable, porque no hayan soluciones alternativas ante su eventual ausencia o existiendo tengan un costo muy elevado, por lo que su desmejoramiento o destrucción tendría un gran impacto sobre la actividad.
+ll.- Zona crítica: Aquella zona bananera geográfica continua donde estén establecidas varias infraestructuras críticas así declaradas en coordinación con la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias de conformidad con el inciso b) del artículo 2° del Decreto Ejecutivo N° 37313-MAG del 31 de agosto de 2012.
+m.- Análisis de riesgos: El estudio de las hipótesis de amenazas posibles. Esto será necesario para determinar y evaluar las vulnerabilidades existentes en las diferentes zonas bananeras, fincas, poblaciones aledañas y vías de transporte y las posibles repercusiones del desmejoramiento o destrucción de las infraestructuras.
+n.- Protección: Todas las actividades destinadas a garantizar la funcionalidad, continuidad e integridad de las infraestructuras, con el fin de prevenir, paliar y neutralizar una amenaza, riesgo o vulnerabilidad.
+ñ.- Catálogo de infraestructuras estratégicas: Información completa sistematizada de todas las infraestructuras estratégicas concebidas bajo los términos de los incisos h), i) y j) del presente artículo.

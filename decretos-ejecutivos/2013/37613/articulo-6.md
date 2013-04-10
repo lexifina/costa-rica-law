@@ -1,0 +1,5 @@
+Artículo 6º—Establecimiento de la infraestructura crítica y de las zonas críticas. Los parámetros en función de los cuales se establecerán los niveles de criticidad, la gravedad y las consecuencias de la destrucción o desmejoramiento de una infraestructura o varias para conformar una zona crítica, serán los siguientes:
+a) El grado de vulnerabilidad resultante del análisis de riesgos.
+b) El número de personas que se podrían ver afectadas, valorado en función del número de personas que habiten las poblaciones aledañas y los cuadrantes de las fincas.
+c) El impacto económico en función de las áreas de producción de banano que podrían ser afectadas o el número de fincas afectadas y la magnitud de las pérdidas que se proyecten a partir de lo anterior.
+Al establecer el nivel de criticidad se deberá contemplar la criticidad real y actual y la potencial y para ello se deberán tomar en cuenta también los principios establecidos en el artículo 3° de la Ley Nacional de Emergencias y Prevención del Riesgo, N° 8488 de 22 de noviembre del 2005.
