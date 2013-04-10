@@ -30,6 +30,7 @@ p) Conocer y resolver las apelaciones que sean de su competencia.
 q) Conferir el título de Doctor Honoris Causa, conforme al trámite que señale este Estatuto.
 r) Declarar agotada la vía administrativa en los reclamos contra la Universidad.
 s) Ejercer otras funciones que sean necesarias para la buena marcha de la Institución, siempre y cuando no estén, por este Estatuto, asignadas a otras instancias universitarias.
-t) Velar por la recopilación, la conservación, la actualización y la divulgación de la normativa, los acuerdos y
-los documentos, todo producto de su gestión.
-(Así adicionado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007).
+t) Velar por la recopilación, la conservación, la actualización y la divulgación de la normativa, los acuerdos y los documentos, todo producto de su gestión.
+(Así adicionado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007)
+u) Emitir el criterio institucional sobre los proyectos de ley que se tramitan en la Asamblea Legislativa, de conformidad con lo estipulado en el artículo 88 de la Constitución Política.
+(Así adicionado el inciso anterior mediante sesión N° 137 del 10 de abril del 2013)

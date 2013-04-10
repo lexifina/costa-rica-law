@@ -1,4 +1,5 @@
-ARTÍCULO 53.- Corresponderá específicamente al Vicerrector de Administración:
+ARTÍCULO 53.- Corresponderá específicamente al vicerrector o la vicerrectora de Administración.
+(Así reformado el párrafo anterior mediante sesión N° 137 del 10 de abril del 2013)
 a) Dirigir, supervisar y evaluar el sistema administrativo de la Universidad de Costa Rica, señalando las pautas para que la administración cumpla sus funciones en forma eficiente y ágil.
 b) Ejecutar los acuerdos del Consejo Universitario que tengan relación directa con las funciones de esta Vicerrectoría.
 c) Velar por el cumplimiento de las leyes que garantizan los ingresos de la Universidad, proponer las modificaciones que estime necesarias para actualizar y sugerir nuevos ingresos.
@@ -11,4 +12,5 @@ g) Tramitar por medio de la oficina correspondiente, lo relacionado con los nomb
 h) Velar por el cumplimiento de la normativa de trabajo dentro de su ámbito de competencia.
 (Así reformado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007).
 (Los incisos i) y j) se eliminaron por acuerdo de la Asamblea Colegiada Representativa en la sesión No. 24).
-k) Conceder a los funcionarios administrativos las licencias, con o sin goce de salario, por períodos que excedan de ocho días a solicitud de los superiores inmediatos, de acuerdo con el reglamento correspondiente.
+k) conceder a los funcionarios administrativos las licencias, con o sin goce de salario, por periodos que excedan de diez días hábiles por solicitud de la respectiva autoridad superior inmediata, de acuerdo con el reglamento correspondiente.
+(Así reformado el inciso anterior mediante sesión N° 137 del 10 de abril del 2013)
