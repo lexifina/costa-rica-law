@@ -1,2 +1,0 @@
-Artículo 2º—Vigencia: Rige dos meses después de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República.—San José, a los diecisiete días del mes de agosto del año dos mil diez.
