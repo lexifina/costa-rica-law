@@ -1,0 +1,16 @@
+Nº 37638 - MEIC
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE ECONOMIA, INDUSTRIA Y COMERCIO
+En uso de las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 27 inciso 1) y 28 inciso 2, acápite b) de la Ley General de Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; la Ley Uso Exigido Sistema Internacional Unidades Medida "SI" Métrico Decimal, Ley Nº 5292 del 9 de agosto de 1973; la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994; la Ley de Aprobación del Acta Final en que se incorporan los resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales, Ley Nº 7475 del 20 de diciembre de 1994; la Ley del Sistema Nacional para la Calidad, Ley Nº 8279 del 2 de mayo de 2002 y la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977.
+Considerando:
+1º—Que la emisión del “RTCR 452: 2011 Barras y Alambres de Acero de Refuerzo para Concreto. Especificaciones”, publicado en el Alcance Digital 152 de La Gaceta N° 197 del 11 de octubre de 2012, cumplió a cabalidad con todos las etapas del procedimiento para la elaboración de reglamentos técnicos, a través de mecanismos completamente transparentes y participativos, en acatamiento del ordenamiento jurídico vigente, en particular apegados a los lineamientos de la Ley Nº 6227 General de la Administración Pública, la Ley Nº 8279 del Sistema Nacional para la Calidad, el Reglamento del ORT (Decreto Ejecutivo Nº 32068-MEIC-S-MAG-MICIT-MOPTMINAE- COMEX), así como el Acuerdo OTC contenido en la Ley Nº 7475 de Aprobación del Acta Final en que se incorporan los Resultados Finales de la Ronda Uruguay de Negociaciones Comerciales Multilaterales y obedece además a una protección de objetivos legítimos con el debido respaldo técnico y científico.
+2º—Que resulta necesario que todos los participantes en la implementación del reglamento técnico en cuestión, cumplan con los alcances y objetivos del mismo, a fin de mejorar el principio de aplicabilidad, en ese sentido, es imperioso que se incorporen plazos razonables de vigencia y ajuste para que tanto administrados como administradores, se sujeten a un proceso de verificación que permita la aplicación de un reglamento técnico eficaz y eficiente.
+3º—Que al MEIC le corresponde mantener un ambiente sano que promueva la competencia entre las partes, protegiendo los derechos e intereses legítimos de los consumidores y fomentando el desarrollo empresarial. Por tanto,
+DECRETAN:
+REFORMA Y ADICIÓN AL DECRETO EJECUTIVO N° 37341-MEIC DEL 31
+DE AGOSTO DEL 2012, RTCR 452: 2011 BARRAS Y ALAMBRES DE ACERO
+DE REFUERZO PARA CONCRETO. ESPECIFICACIONES, PUBLICADO
+EN EL ALCANCE DIGITAL 152 DE LA GACETA N° 197
+DEL 11 DE OCTUBRE DE 2012
+Artículo 1º—Reforma. Refórmese el artículo 5 del Decreto Ejecutivo N° 37341-MEIC del 31 de agosto del 2012, “RTCR 452: 2011 Barras y Alambres de Acero de Refuerzo para Concreto. Especificaciones”, publicado en el Alcance Digital 152 de La Gaceta N° 197 del 11 de octubre de 2012, para que se lea:
+“Artículo 5°—El presente Reglamento Técnico entrará en vigencia a partir del 24 de mayo de 2013.”
