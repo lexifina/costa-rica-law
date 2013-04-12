@@ -1,0 +1,1 @@
+Artículo 7º—De la Presidencia. El comité sesionará bajo la dirección del presidente (ya sea el Director o Sub Director Ejecutivo). En ausencia de este, presidirá la reunión en forma ad hoc quien designen los integrantes del comité para tal efecto.

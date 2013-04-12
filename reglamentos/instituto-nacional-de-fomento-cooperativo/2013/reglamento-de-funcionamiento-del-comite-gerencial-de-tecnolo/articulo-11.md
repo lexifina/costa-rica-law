@@ -1,0 +1,2 @@
+Artículo 11.—Del marco institucional. El CGTI, deberá considerar en todo momento las funciones legales y el marco estratégico del Infocoop como entidad de desarrollo y fomento cooperativo a la hora de emitir sus criterios a la Administración Superior, así como lo que al efecto haya dispuesto y disponga la Contraloría General de la República.
+Deberá además, considerar los Acuerdos de la Junta Directiva en TI y aquellas observaciones efectuadas por la Auditoría Interna y la Asesoría Legal en la toma de decisiones.

@@ -1,0 +1,1 @@
+Artículo 15.—Del Ordenamiento Jurídico. Corresponde a cada uno de los integrantes del CGTI y de los comités y demás grupos que apoyen a la CGTI, a velar por el cumplimiento del ordenamiento jurídico aplicable.

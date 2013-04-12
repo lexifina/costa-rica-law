@@ -1,0 +1,1 @@
+Artículo 14.—Otros participantes a las sesiones. El Comité podrá recibir a funcionarios de la institución o personas externas que se requieran para tratar asuntos relacionados con aspectos específicos de naturaleza informática u otra. Los personeros antes mencionados participaran con voz pero sin voto previa invitación del CGTI.
