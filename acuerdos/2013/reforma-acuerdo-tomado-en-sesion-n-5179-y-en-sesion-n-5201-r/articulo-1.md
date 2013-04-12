@@ -1,0 +1,17 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 6 del acta de la sesión 5588-2013, celebrada el 20 de marzo del 2013,
+considerando que:
+a. Es conveniente evitar que el endeudamiento público alcance niveles que comprometan la posición financiera de las instituciones públicas y, en consecuencia, la estabilidad macroeconómica del país.
+b.- Las instituciones públicas requieren utilizar figuras financieras de corto plazo para atender sus necesidades de caja y que estas obligaciones pueden presentar un comportamiento creciente que les obligue a refinanciarlas e incluso a contratar deudas de largo plazo para atender estos compromisos.
+c.- En razón de ello, la Junta Directiva del Banco Central de Costa Rica, en el artículo 8, del acta de la sesión 5179-2003 y en el artículo 11, del acta de la sesión 5201-2004, celebradas el 12 de diciembre del 2003 y el 9 de junio del 2004, respectivamente, estableció como requisito para las entidades públicas el solicitar autorización previa por parte de esta Entidad, para hacer uso de figuras de endeudamiento de corto plazo.
+d.- En esa ocasión contempló a la carta de crédito como una figura de endeudamiento de corto plazo. Esta figura, de acuerdo con las prácticas de comercio internacional y de entidades financieras locales, corresponde a un instrumento de pago para facilitar el comercio exterior, pero no de financiamiento, por cuanto se vincula a líneas de crédito, constitución de depósitos previos o avales y
+garantías de cumplimiento.
+dispuso, en firme:
+1. Modificar lo acordado en el artículo 8 del acta de la sesión 5179-2003 y en el artículo 11 del acta de la sesión 5201-2004, celebradas el 12 de diciembre del 2003 y el 9 de junio del 2004, respectivamente, referentes al requerimiento de solicitud de autorización previa del Banco Central de Costa Rica para el uso de figuras de endeudamiento de corto plazo por parte de instituciones públicas, con el fin de excluir a las cartas de crédito, para que la disposición quede en los siguientes términos:
+1.1Las instituciones públicas deberán solicitar formalmente la autorización al Banco Central de Costa Rica para contratar líneas de crédito y garantías de cumplimiento y avales, para el ejercicio anual de programación siguiente.
+En el caso de las líneas de crédito:
+i.- Éstas serán utilizadas únicamente para atender los requerimientos de capital de trabajo, refinanciar cartas de crédito y cubrir temporalmente los faltantes por atrasos en los desembolsos provenientes de endeudamiento o de emisión de bonos previamente aprobados y destinados a inversiones programadas, durante el periodo en cuestión.
+ii.- El saldo de las líneas de crédito al término del año deberá ser igual al saldo adeudado al inicio de ese año.
+1.2Esta solicitud deberá presentarse en la primera quincena de noviembre del año previo y detallar la utilización de estas figuras de financiamiento, especificando, entre otras condiciones, monto por contratar, figura financiera y entidad acreedora elegible.
+1.3La entidad debe informar trimestralmente al Banco Central de Costa Rica sobre los montos utilizados y los saldos adeudados y disponibles para estas figuras financieras. Asimismo, deberá incluir la estimación del saldo de estos instrumentos, para los restantes trimestres del año.
+2. Dejar claro que este procedimiento no aplica para las instituciones que, por leyes particulares, estén exentas de solicitar autorización previa del Banco Central para contratar endeudamiento.
