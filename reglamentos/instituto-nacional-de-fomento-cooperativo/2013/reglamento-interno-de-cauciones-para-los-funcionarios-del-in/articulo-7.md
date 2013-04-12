@@ -1,0 +1,1 @@
+Artículo 7º—Momento para rendir la caución. Los funcionarios del Infocoop, serán los responsables directos de rendir la caución y deberán presentar los documentos que la acreditan, ante el Departamento de Desarrollo Humano antes de asumir el cargo.

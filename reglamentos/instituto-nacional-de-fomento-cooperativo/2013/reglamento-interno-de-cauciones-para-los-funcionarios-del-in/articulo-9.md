@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 9º—Montos de la caución. El Departamento de Desarrollo Humano con el apoyo de Administrativo Financiero, determinará el monto a caucionar utilizando como parámetro la fijación y actualización de los montos de las cauciones en el Sector Público, el salario base definido en el artículo 2° de la Ley N° 7337 de 5 de mayo de 1993, y el grado de responsabilidad. Asimismo el Departamento de Desarrollo Humano comunicará por escrito a los funcionarios del Infocoop caucionantes, el momento en que se deba proceder a la renovación de la caución correspondiente. Los caucionantes que deban ajustarse al nuevo monto, contarán con un plazo máximo de diez días hábiles contados a partir de la notificación de dicho comunicado.

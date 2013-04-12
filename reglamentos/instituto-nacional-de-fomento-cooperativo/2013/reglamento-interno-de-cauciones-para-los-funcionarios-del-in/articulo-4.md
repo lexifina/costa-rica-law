@@ -1,0 +1,1 @@
+Artículo 4º—Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que los funcionarios de Infocoop responsables, en el ejercicio de sus funciones puedan producir al patrimonio del Infocoop, sin que ello limite la responsabilidad civil, penal y administrativa, que de ello devenga.
