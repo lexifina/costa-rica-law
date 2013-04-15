@@ -1,1 +1,0 @@
-Artículo 7º—El Departamento es la Unidad del Ministerio responsable de la administración de los concursos para el otorgamiento de becas y facilidades, previa autorización del Despacho Ministerial, y conforme se regula en el presente Reglamento.

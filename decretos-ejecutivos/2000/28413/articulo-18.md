@@ -1,1 +1,0 @@
-Artículo 18.—El Departamento remitirá copia de todas las ofertas de becas o facilidades y demás documentos que correspondan, a los Jefes de Departamento y Directores de Programa, quienes deben hacerlo del conocimiento de los servidores.

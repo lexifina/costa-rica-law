@@ -1,1 +1,0 @@
-Artículo 6º—El Departamento podrá coordinar con los distintos Programas Presupuestarios del Ministerio, la utilización de los recursos presupuestarios con que cuenten, destinados a realizar actividades de capacitación.
