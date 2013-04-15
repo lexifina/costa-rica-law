@@ -14,3 +14,4 @@ Procedimiento de nombramientos interinos de la Autoridad Reguladora de los Servi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-22 | la propia norma |
+| 2 | 2013-04-15 | Resolución 0 (2013-04-15) |

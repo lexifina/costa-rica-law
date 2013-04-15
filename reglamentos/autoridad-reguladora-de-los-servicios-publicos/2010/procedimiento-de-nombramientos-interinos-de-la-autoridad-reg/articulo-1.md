@@ -15,7 +15,8 @@ PÚBLICOS Y SUS ÓRGANOS DESCONCENTRADOS
 El Procedimiento de nombramientos interinos de funcionarios de la Autoridad Reguladora y sus órganos desconcentrados es aplicable a dos tipos de nombramientos:
 a) Nombramientos interinos por sustituciones temporales.
 b) Nombramientos interinos en plazas vacantes.
-El nombramiento interino en plazas vacantes se justifica en el tanto la Administración lleva a cabo el procedimiento ordinario para llenar plazas vacantes mediante concurso.
+El nombramiento interino en plazas vacantes se justifica en el tanto la Administración lleva a cabo el Procedimiento para llenar plazas vacantes por concurso abierto de la Autoridad Reguladora de los Servicios Públicos y sus Órganos Desconcentrados
+(Así reformado el párrafo anterior mediante sesión extraordinaria N° 30-2013 del 15 de abril del 2013 publicada en el alcance digital N° 75 a La Gaceta N° 78 del 24 de abril del 2013)
 A continuación se describe cada una de las actividades que componen el procedimiento mencionado.
 I. Solicitud de nombramiento interino
 Descripción: cuando una jefatura superior considere necesario un nombramiento interino solicitará al jerarca superior administrativo dicho nombramiento.
