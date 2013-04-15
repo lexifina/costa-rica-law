@@ -1,0 +1,6 @@
+ARTÍCULO 5.- Condiciones financieras
+Según sea la fuente de financiamiento, las condiciones financieras aplicables al contrato de préstamo derivado de esta autorización, en ningún caso presentarán las siguientes situaciones:
+a) La comisión de crédito anual sobre saldos no desembolsado del financiamiento excede el uno coma cinco por ciento (1,5%).
+b) La comisión por inspección y vigilancia por pagar, semestralmente, es superior a lo que resulte de aplicar el dos por ciento (2%) del monto del financiamiento, dividido por el número de semestres comprendido en el plazo original de desembolsos.
+c) Los intereses pactados sobre los saldos deudores diarios de préstamo son a una tasa de interés en dólares superior a la tasa Libor a seis meses más un margen del cuatro coma cero por ciento (4,0%), o su equivalente en otras monedas diferentes del dólar. En caso de que el empréstito no se base en la tasa Libor, para efectos de calcular la tasa máxima permitida, se utilizará la referencia de mercado más precisa que refleje el costo de convertir la tasa Libor a una tasa fija más el margen del cuatro coma cero por ciento (4,0%).
+d) Los plazos para realizar los desembolsos son inferiores a tres años y los plazos para amortización son inferiores a diez años, contados a partir de la suscripción del contrato de préstamo.
