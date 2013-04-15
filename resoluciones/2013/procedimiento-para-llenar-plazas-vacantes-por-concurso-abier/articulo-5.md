@@ -1,0 +1,2 @@
+V. Solicitar al Departamento de Recursos Humanos que elabore el cronograma para realizar el procedimiento de contratación de las plazas que se encuentren vacantes, tomando en cuenta el nuevo procedimiento y las prioridades para realizar las contrataciones, establecidas por este órgano colegiado en la presente sesión e informe de los avances a esta Junta Directiva.
+Rige a partir de la firmeza de este acuerdo.
