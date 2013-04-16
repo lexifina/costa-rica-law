@@ -1,0 +1,3 @@
+Artículo 2º—Refórmese el artículo 19 del Decreto Ejecutivo N° 36946-MTSS publicado en La Gaceta Nº 18 del 25 de enero del 2012, REGLAMENTO PARA EL TRÁMITE DE REVISIÓN Y APROBACIÓN DE LOS REGLAMENTOS INTERNOS DE TRABAJO”, para que se lea de la siguiente manera:
+“Artículo 19.—Aprobación definitiva del Reglamento Interno
+Una vez remitido por la persona empleadora dos ejemplares del proyecto de reglamento, al Departamento con todos los ajustes debidamente incorporados, ambos debidamente firmados por el representante de la empresa, el asesor deberá proceder a realizar la verificación del caso y otorgarle la aprobación definitiva mediante oficio, dentro del plazo de tres días hábiles posteriores a su recibo”.
