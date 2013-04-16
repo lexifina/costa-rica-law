@@ -250,3 +250,4 @@ Nota aclaratoria en donde aparece la sigla PRUGAM se debe tomar como el Proyecto
 [imagen]
 [imagen]
 [imagen]
+(Así reformado el mapa anterior mediante sesión N° 231 del 16 de abril del 2013)
