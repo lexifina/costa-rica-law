@@ -14,3 +14,4 @@ Reglamento interno de contratación administrativa del Banco Crédito Agrícola 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-20 | la propia norma |
+| 2 | 2013-04-16 | Reglamento 8641 (2013-04-16) |
