@@ -269,15 +269,15 @@ Cargo por energía | | | |
 Periodo punta | Por cada KW | 78 | 81 | 3.85%
 Periodo valle | Por cada KW | 29 | 30 | 3.45%
 Periodo nocturno | Por cada KW | 18 | 19 | 5.56%
-T-Mtb MEDIA TENSION | | |
+T-MTb MEDIA TENSION | | |
 Cargo por potencia | | | |
 Periodo punta | Por cada KW | $20.93 | $21.61 | 3.25%
 Periodo valle | Por cada KW | $14.60 | $15.07 | 3.22%
 Periodo nocturno | Por cada KW | $9.36 | $9.66 | 3.21%
 Cargo por energía | | | |
-Periodo punta | Por cada KW | $0.130 | $0.13 | 3.08%
-Periodo valle | Por cada KW | $0.050 | $0.05 | 4.00%
-Periodo nocturno | Por cada KW | $0.020 | $0.02 | 5.00%
+Periodo punta | Por cada KW | $0.130 | $0.134 (Así reformado el rubro anterior mediante resolución RIE-045-2013 del 16 de abril del 2013) | 3.08%
+Periodo valle | Por cada KW | $0.050 | $0.052 (Así reformado el rubro anterior mediante resolución RIE-045-2013 del 16 de abril del 2013) | 4.00%
+Periodo nocturno | Por cada KW | $0.020 | $0.021 (Así reformado el rubro anterior mediante resolución RIE-045-2013 del 16 de abril del 2013) | 5.00%
 [imagen]
 [imagen]
 [imagen]

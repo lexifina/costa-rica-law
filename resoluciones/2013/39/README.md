@@ -14,3 +14,4 @@ Aplicación trimestral de la Metodología para el ajuste extraordinario de las t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-03 | la propia norma |
+| 2 | 2013-04-16 | Resolución 45 (2013-04-16) |
