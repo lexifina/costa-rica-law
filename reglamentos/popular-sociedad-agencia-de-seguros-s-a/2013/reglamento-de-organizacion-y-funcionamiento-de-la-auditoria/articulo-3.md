@@ -1,0 +1,25 @@
+Artículo 3º—Definiciones: Para los efectos del presente Reglamento se entenderá por:
+Actividades de control. Políticas y procedimientos que permiten obtener la seguridad de que se llevan a cabo las disposiciones emitidas por la Contraloría General de la República, Superintendencia General de Seguros y los entes aseguradores, los jerarcas y los titulares subordinados, para la consecución de los objetivos del sistema de control interno.
+Administración activa. Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico, es el conjunto de órganos de la función administrativa que deciden y ejecutan, a saber: Junta Directiva de Popular Sociedad Agencia de Seguros S. A., Gerencia General de Popular Sociedad Agencia de Seguros S. A. y todas las demás unidades con excepción de la Auditoría Interna.
+Ambiente de Control. Conjunto de factores del ambiente organizacional que deben establecer y mantener el jerarca, los titulares subordinados y demás empleados, para permitir el desarrollo de una actitud positiva y de apoyo para el control interno y para una administración escrupulosa.
+Auditor: Empleado (a) de la Auditoría Interna que realiza funciones auditoras, en el ejercicio de las atribuciones, deberes, derechos y limitaciones impuestos por las leyes, reglamentos, manuales y normas vigentes en materia de fiscalización de la Hacienda Pública y privado en general.
+Auditor Interno. Máximo(a) responsable de la dirección y administración de la Auditoría Interna de Popular Sociedad Agencia de Seguros S. A.
+Bloque de legalidad. Conjunto de normas jurídicas, escritas y no escritas, a cuya observancia se encuentra obligada la Administración Pública, el cual comprende tanto la ley como las normas de rango superior, igual o inferior a ésta, incluidos los principios generales y las reglas de la ciencia o de la técnica.
+Competencia de la auditoría interna. Ámbito de aplicación de las competencias y potestades de la auditoría interna, que abarca:
+i. Toda la organización de Popular Sociedad Agencia de Seguros S. A.
+ii. Los entes públicos o privados a los que Popular Sociedad Agencia de Seguros S. A., gire o transfiera fondos, independientemente de si la ley obliga a la Sociedad a trasladar esos fondos o la autoriza en forma genérica, ejerciendo las coordinaciones que jurídicamente correspondan.
+Debido cuidado profesional. Desempeño de los trabajos de manera prudente y competente, sin que ello implique infalibilidad.
+Empleado. Toda persona que presta sus servicios a la Sociedad en virtud de un contrato laboral de carácter temporal o permanente.
+Independencia de criterio. Condición según la cual la auditoría interna debe estar libre de injerencias del jerarca y de los demás sujetos de su competencia institucional, en la ejecución de sus labores.
+Independencia funcional. Atributo dado por la posición de la auditoría interna en la estructura organizacional, como un órgano asesor de alto nivel dependiente del jerarca.
+Jerarca: Junta Directiva de Popular Sociedad Agencia de Seguros S. A., superior jerárquico que ejerce la máxima autoridad en la Sociedad.
+LGCI: Ley General de Control Interno Nº 8292.
+LOCGR: Ley Orgánica de la Contraloría General de La República Nº 7428.
+LRMS: Ley Reguladora del Mercado de Seguros Nº 8653.
+LRCS: Ley Reguladora del Contrato de Seguros N° 8956.
+Pericia. Conocimientos, aptitudes y otras competencias que deben reunir los empleados de la auditoría interna, individual y colectivamente, para cumplir con sus responsabilidades individuales.
+Sistema de Control Interno. Comprende la serie de acciones diseñadas y ejecutadas por la administración activa para proporcionar una seguridad razonable en torno a la consecución de los objetivos de la organización, fundamentalmente en las siguientes categorías: a) Proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal; b) Confiabilidad y oportunidad de la información; c) Eficiencia y eficacia de las operaciones; y d) Cumplir con el ordenamiento jurídico y técnico.
+Sociedad. Popular Sociedad Agencia de Seguros S. A.
+Titular subordinado. Empleado de la administración activa responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+Universo de auditoría. Conjunto de elementos susceptibles de la prestación de los servicios de la auditoría interna dentro de su ámbito de competencia en la Sociedad. Generalmente, el universo de auditoría contempla un detalle de unidades auditables que pueden agruparse de diferentes formas (por función, actividad, unidad organizacional, tipo de póliza -línea de pólizas-, proyecto, proceso, etc.), pero puede ampliarse para considerar un inventario de los trabajos que la auditoría interna puede efectuar en relación con esas unidades auditables.
+Valoración del riesgo. Identificación y análisis de los riesgos que enfrenta la Sociedad y la auditoría, tanto de fuentes internas como externas relevantes para la consecución de los objetivos; con el fin de determinar cómo se deben administrar dichos riesgos.

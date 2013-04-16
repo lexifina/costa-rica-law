@@ -1,0 +1,12 @@
+Artículo 4º—Responsabilidades. Las siguientes son las obligaciones del jerarca, auditor y su equipo de trabajo y demás empleados de la Sociedad:
+Del Jerarca
+a) Divulgar, cumplir y hacer cumplir el presente Reglamento.
+Del Auditor Interno y personal de Auditoría Interna
+b) Del Auditor Interno, concluir en un plazo máximo de treinta días hábiles el proceso de acuerdo para introducir modificaciones al Reglamento y su aprobación en firme por el jerarca, a partir de la fecha en se presente por parte del Auditor el documento de solicitud de modificación.
+c) Una vez aprobado el reglamento por el jerarca, el Auditor Interno deberá someterlo a la aprobación de la Contraloría General de la República, dentro del plazo de quince días hábiles.
+d) De existir discrepancias y divergencias de criterio entre el auditor interno y el jerarca, relativas al Reglamento de Organización y Funcionamiento de Auditoría Interna; sobre aspectos de organización, se resolverán considerando en su aplicación las normas internas que regulan esa materia para cada ente u órgano, procurando llegar a un acuerdo satisfactorio. Si la discrepancia se refiere a aspectos funcionales, de previo a la aprobación se planteará una consulta a la Contraloría General de la República, la que dispondrá lo que proceda.
+e) Documentar, divulgar y mantener actualizados los procesos de los servicios de fiscalización de la actividad de Auditoría Interna, así como los manuales de procedimientos que permitan su debida ejecución.
+f) Establecer las pautas principales sobre las relaciones y coordinaciones de los funcionarios de la auditoría con los auditados, así como cualquier otro ente ajeno a Popular Sociedad Agencia de Seguros S. A.
+g) Definir un programa de capacitación y autoaprendizaje para el desarrollo del personal.
+h) Supervisar y disponer las medidas necesarias para procurar que los auditores guarden la confidencialidad de la información sobre la que tengan acceso en el ejercicio de sus funciones.
+i) Actuar conforme las directrices de orden ético emitidas por la Auditoría Interna, las Directrices Generales sobre los Principios y Enunciados Éticos a observar por parte de los Jerarcas, Titulares Subordinados, Funcionarios de la Contraloría General de la República, Auditorías Internas y Servidores Públicos en General Nº D-2-2004-CO, publicadas en La Gaceta Nº 228 del 22 de noviembre de 2004; el Conglomerado Financiero del Banco Popular y Desarrollo Comunal y del Colegio de Contadores Públicos y demás Colegios Profesionales en lo aplicable.

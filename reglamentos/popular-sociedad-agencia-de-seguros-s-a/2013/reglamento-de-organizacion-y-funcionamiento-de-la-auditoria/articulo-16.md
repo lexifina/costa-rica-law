@@ -1,0 +1,9 @@
+Artículo 16.—Asistencia a las sesiones de Junta Directiva de Popular Sociedad Agencia de Seguros S. A. El Auditor Interno, asistirá a las sesiones de la Junta Directiva cuando ese órgano colegiado así lo solicite para brindar asesoría en temas de su competencia y cuando dicho empleado así lo estime necesario y conveniente para el desempeño de sus funciones, ejerciendo la asesoría adecuada y con independencia. Dicha asistencia se norma con los siguientes lineamientos:
+a) Brindará asesoría sobre asuntos concretos y a solicitud explícita por parte del jerarca.
+b) Asistirá a las sesiones con voz pero sin voto.
+c) Brindará asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+d) Pedir y vigilar que su opinión conste en las actas respectivas.
+e) Podrá posponer su opinión cuando a su criterio y por la complejidad del asunto en discusión requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente y conveniente.
+f) La presencia y el silencio del Auditor Interno en las sesiones, no releva al jerarca de la responsabilidad de respetar el ordenamiento jurídico y técnico en lo que acuerde. El silencio no limita a que el Auditor Interno emita su opinión posteriormente, en forma verbal o por escrito en otra sesión.
+g) Abstenerse de participar en comisiones de trabajo o similares, de naturaleza eminentemente administrativa, excepto que se trate de comisiones conformadas por miembros de Junta Directiva de Popular Sociedad Agencia de Seguros S. A., en donde se requiera su participación con carácter de asesor en su campo de competencia.
+h) Cualquier otra potestad que sea concordante con las funciones que desempeña.
