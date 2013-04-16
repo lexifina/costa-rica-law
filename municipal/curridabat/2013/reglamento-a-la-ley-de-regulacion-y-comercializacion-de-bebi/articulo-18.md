@@ -1,0 +1,1 @@
+Artículo 18.—Publicidad Comercial. Quedando a salvo la competencia del Ministerio de Salud en materia de publicidad comercial, de acuerdo al artículo 12 de la Ley, todos los patentados deben sujetarse al Reglamento de Publicidad Comercial del Cantón de Curridabat y sus reformas.
