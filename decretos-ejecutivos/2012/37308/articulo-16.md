@@ -1,0 +1,1 @@
+Artículo 16.- Piso. Los pisos deben ser de materiales impermeables, antideslizantes, resistentes, sin grietas, fáciles de limpiar y desinfectar. El piso debe mantenerse limpio, en buen estado de conservación, libre de grasa y sin acumulaciones de agua u otros líquidos. Según el caso, éste deberá tener una pendiente suficiente para que los líquidos escurran hacia el desagüe.

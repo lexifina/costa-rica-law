@@ -1,0 +1,1 @@
+Articulo 20.-Las puertas En el caso que el establecimiento cuente con el área de cocina separada físicamente, las puertas de acceso del personal deben tener cierre automático o el sistema de vaivén, ser de superficie lisa e impermeables y estar ajustadas a sus marcos.

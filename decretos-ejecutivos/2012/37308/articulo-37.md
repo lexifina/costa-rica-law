@@ -1,0 +1,1 @@
+Artículo 37.- Las paredes deben ser lisas, de materiales impermeables, resistentes a la corrosión, fáciles de limpiar y desinfectar. Se mantendrán en buen estado de conservación e higiene, los ángulos entre pisos y paredes deben ser cóncavos para facilitar la limpieza y desinfección.

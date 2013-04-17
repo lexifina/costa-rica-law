@@ -1,0 +1,1 @@
+Artículo 41.- Iluminación. La iluminación podrá ser natural o artificial, teniendo en cuenta que ésta debe ser suficiente para observar claramente las condiciones sanitarias del área y los productos almacenados. Las fuentes lumínicas ubicadas en esta área deben resguardarse con protectores que eviten la contaminación del producto en caso de rotura.

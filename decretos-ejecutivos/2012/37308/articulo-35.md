@@ -1,0 +1,5 @@
+Artículo 35.- Contaminación cruzada. Con el fin de prevenir la contaminación cruzada en el área de preparación de alimentos, obligatoriamente se aplicarán las siguientes medidas:
+a) Los alimentos crudos que se almacenan en los equipos de frío estarán colocados en recipientes de material higiénico, resistente, y tapados o en bolsas plásticas para alimentos, limpias y de primer uso y cerradas. Se colocarán por separado de los alimentos cocinados, precocidos y de consumo directo. Los alimentos crudos pueden colocarse en estantes separados o colocarlos debajo de los alimentos preparados o listos para comer, evitando la posibilidad de contaminación cruzada.
+b) El personal encargado de la manipulación de los alimentos se lavará y desinfectará las manos antes de entrar en contacto con alimentos preparados o listos para el consumo.
+c) Las mesas de trabajo deben lavarse y desinfectarse después de la manipulación de alimentos crudos.
+d) Los utensilios como cuchillos y cucharones, entre otros, deben estar identificados según el uso, ya sea para cortar o picar alimentos crudos o cocidos.

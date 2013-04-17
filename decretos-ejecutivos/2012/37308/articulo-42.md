@@ -1,0 +1,2 @@
+Condiciones de almacenamiento de alimentos
+Artículo 42.- Almacenamiento de productos no perecederos. Los productos no perecederos deben mantenerse en un lugar limpio, seco y protegido de las plagas, conservarse en envases tapados e identificados. Estarán colocados en estantes, armarios, alacenas o sobre tarimas separadas del piso a una altura de 0.15 metros del piso. Debe llevarse un registro de la fecha de ingreso y salida de los mismos con el fin de controlar la rotación de los productos conforme a la vida útil preestablecida.

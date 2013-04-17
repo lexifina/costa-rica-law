@@ -1,0 +1,1 @@
+Artículo 21.- Iluminación. La iluminación podrá ser natural o artificial, debiendo tener una intensidad no menor de 220 lux en esta área. Esta iluminación no dará lugar a la alteración de la percepción de los colores en los alimentos. Las fuentes lumínicas deben resguardarse con protectores que eviten la contaminación del producto en caso de rotura.

@@ -1,0 +1,1 @@
+Artículo 65.- El incumplimiento a las disposiciones establecidas en el presente Reglamento, dará lugar a la aplicación de las sanciones y medidas especiales que señala la Ley General de Salud, en respeto al debido proceso y derecho a la defensa del administrado.

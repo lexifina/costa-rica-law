@@ -1,0 +1,1 @@
+Artículo 43.- Almacenamiento de productos perecederos. Los alimentos perecederos de origen animal que requieran refrigeración o congelación se almacenarán por separado de los de origen vegetal para evitar la contaminación cruzada y la transferencia de olores indeseables, tal y como se detalla en el inciso a) del artículo 35.

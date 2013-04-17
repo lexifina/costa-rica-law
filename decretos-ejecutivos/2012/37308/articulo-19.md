@@ -1,0 +1,1 @@
+Artículo 19.- Las ventanas. Éstas estarán provistas de protección contra insectos u otros animales, el sistema de protección seleccionado debe desmontarse fácilmente para su limpieza y buena conservación.

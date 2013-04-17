@@ -1,0 +1,1 @@
+Artículo 9.- Dimensiones.- Las diferentes áreas de los servicios de alimentación al público deben disponer del espacio suficiente para cumplir satisfactoriamente con todas las operaciones de producción, almacenamiento de productos, facilidad y comodidad para servir los alimentos y la circulación de los usuarios en el área de consumo.

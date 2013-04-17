@@ -1,0 +1,1 @@
+Artículo 25.-. Campanas Extractoras. Las campanas extractoras con sus respectivos ductos y filtros, deben estar ubicadas de manera que permitan una adecuada extracción de humos, olores. Además deben cubrir la zona destinada a cocción o fritura. Su limpieza y mantenimiento se hará en forma permanente incluyendo los filtros.

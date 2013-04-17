@@ -1,0 +1,1 @@
+Artículo 48.- Mantenimiento de Alimentos Fríos. Los alimentos de consumo frío como ensaladas, frutas y postres, entre otros, se mantendrán en cámaras exhibidoras o vitrinas refrigeradas, las cuales se conservarán en buen estado de funcionamiento e higiene.

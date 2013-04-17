@@ -1,0 +1,1 @@
+Artículo 38.- El cielo raso debe ser de construcción sólida, tener un diseño y acabado que impida la acumulación de suciedad, los materiales utilizados deben ser lisos y resistentes a las operaciones de limpieza.

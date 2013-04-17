@@ -1,0 +1,2 @@
+Artículo 47.- Mantenimiento de alimentos calientes. En caso de contar con servicio de buffet, los alimentos deben conservarse en equipos o sistemas que permitan mantenerlos a temperatura mayor o igual a 60°C. Cada recipiente con comida debe tener su propio utensilio para servir, a fin de evitar posible contaminación cruzada.
+La conservación de alimentos como pollo rostizado, frito, carnes preparadas entre otros alimentos pueden mantenerse en urnas o exhibidores con bombillos o reflectores con protección y deben alcanzar una temperatura igual o mayor a 60 °C.

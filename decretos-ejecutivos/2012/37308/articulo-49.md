@@ -1,0 +1,1 @@
+Artículo 49.- Mantenimiento de Otros Alimentos. Los alimentos que no requieran condiciones de refrigeración o calor, se mantendrán expuestos en vitrinas o estantes que no permitan su contaminación. Este equipo se conservará en buen estado de funcionamiento e higiene.

@@ -1,0 +1,1 @@
+Artículo 26.- Fregaderos o Pilas. Los fregaderos o pilas de lavado deben ser de acero inoxidable ú otro material resistente y liso, estar en buen estado de conservación e higiene, con una capacidad acorde con el volumen del servicio.

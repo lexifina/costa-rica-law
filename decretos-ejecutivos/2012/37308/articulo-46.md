@@ -1,0 +1,1 @@
+Artículo 46.- Distribución. La distribución de mesas, sillas y otro mobiliario debe permitir una adecuada circulación de los usuarios. El mobiliario debe ser de material resistente y mantenerse en buen estado de conservación e higiene.

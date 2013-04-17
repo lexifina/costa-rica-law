@@ -1,0 +1,1 @@
+Artículo 14.- Cielo Raso. El cielo raso debe ser de construcción sólida, tener un diseño y acabado que impida la acumulación de suciedad, los materiales utilizados deben ser lisos y resistentes a las operaciones de limpieza. La altura del entre cielo raso y el piso de los establecimientos aquí regulados debe ser mayor o igual a 2,50 metros.

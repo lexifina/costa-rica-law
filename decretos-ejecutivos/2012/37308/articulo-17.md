@@ -1,0 +1,1 @@
+Artículo 17.- Equipos de cocción. Los equipos de cocción, deben contar con campana y extractor con capacidad suficiente para eliminar eficazmente los vapores generados por la cocción de los alimentos.

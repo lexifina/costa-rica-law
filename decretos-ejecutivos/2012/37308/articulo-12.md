@@ -1,0 +1,1 @@
+Artículo 12.- Instalaciones eléctricas: Éstas deben contar con interruptores automáticos (caja de breaker con tapa) en buen estado de funcionamiento. El cableado eléctrico debe estar entubado, los tomacorrientes e interruptores correctamente anclados y en buenas condiciones de funcionamiento al igual que los enchufes.

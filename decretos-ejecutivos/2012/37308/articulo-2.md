@@ -1,0 +1,37 @@
+Artículo 2.- Definiciones y abreviaturas.
+Para efectos de interpretación del presente reglamento, se establecen las siguientes definiciones y abreviaturas:
+1.- Agua potable: Agua tratada que cumple con las disposiciones de valores recomendables o máximos admisibles estéticos, organolépticos, físicos, químicos, biológicos y microbiológicos establecidos en el Reglamento Calidad del Agua Potable, Decreto 32327-S y sus reformas (Publicado en La Gaceta Nº 84 del 3 de mayo del 2005) y que al ser consumida por la población no causa daño a la salud.
+2.- Alimento: Es toda sustancia procesada, semiprocesada o no procesada, que se destina para la ingesta humana, incluidas las bebidas, goma de mascar y cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento del mismo, pero no incluye los cosméticos, el tabaco ni los productos que se utilizan como medicamentos.
+3.- Alimento no perecedero: Alimento que, en razón de su composición y características físico químicas. logra mantener durante periodos amplios las características propias del producto. Ejemplos, azúcar, enlatados, pastas, entre otros.
+4.- Alimento perecedero: Alimento que, en razón de su composición y características físico químicas, puede experimentar alteración de diversa naturaleza en un tiempo determinado y que por lo tanto exige condiciones especiales de proceso, conservación, almacenamiento, transporte y expendio. Ejemplos: las carnes, frutas, verduras, leche, pescado entre otros.
+5.- Alimento preelaborado: Se refiere a la elaboración preliminar que ha sufrido un alimento antes de su preparación final para su consumo.
+6.- Área de almacenamiento y conservación: Con relación a los establecimientos aquí regulados, se entiende como tal, el local o compartimiento, alacena, estantes, tarimas o muebles destinados a almacenar los alimentos, con el fin de protegerlos y salvaguardarlos de posibles contaminantes. Se incluyen las cámaras de refrigeración y congeladores.
+7.- Área de preparación (cocina): Espacio físico independiente de las demás áreas, donde se realizan las actividades de elaboración de los alimentos para su consumo.
+8.- Área de consumo: Espacio físico destinado al consumo de alimentos servidos en el propio local.
+9.- Área de servicios: Se refiere a los servicios sanitarios separados para hombres y mujeres, y al espacio físico asignado para casilleros y vestidores.
+10.- Buenas Prácticas de Fritura (BPF): Se refiere a la aplicación de una serie de prácticas durante el proceso de elaboración de alimentos fritos con el fin de obtener alimentos con calidad sanitaria y sensorial requerida, así como garantizar el buen manejo del aceite usado durante la elaboración.
+11.- Carné de manipulador de alimentos: Documento de uso personal mediante el cual el Ministerio de Salud autoriza a la persona portadora para el desempeño en labores de manipulación de alimentos.
+12.- Comida preparada: Elaboración culinaria que resulta de la preparación en crudo o precocido o cocinado, de uno o varios alimentos de origen animal y/o vegetal, con o sin la adición de otras sustancias autorizadas listas para su consumo.
+13.- Comida para llevar: Es aquella comida preparada en locales tipo “ventana” que se vende al consumidor final para su consumo fuera del establecimiento en donde se preparan.
+14.- Compuestos polares: Son los compuestos generados como producto de las reacciones secundarias de oxidación de las grasas y aceites y que en forma general son compuestos que tienen un comportamiento polar y tienden a ser más afines con la fase acuosa del alimento.
+15.- Contaminación: Presencia en los alimentos de microorganismos, sustancias extrañas o dañinas de origen mineral, orgánico o biológico, sustancias radiactivas o sustancias tóxicas en cantidades superiores a las permitidas por las normas sanitarias vigentes.
+16.- Contaminación cruzada: La contaminación cruzada se produce cuando microorganismos patógenos, generalmente bacterias, son transferidos desde los alimentos crudos, las manos, el equipo y/o los utensilios contaminados a los alimentos inocuos. De acuerdo a como esto sucede la contaminación cruzada se puede producir de dos formas:
+a) Directa: Cuando un alimento contaminado entra en contacto directo con uno que no
+- Se mezclan alimentos cocidos con crudos en platos que no requieren posterior cocción como podrían ser ensaladas, platos fríos, tortas con crema, postres, entre otros.
+- Hay una mala ubicación de los alimentos en la heladera, los alimentos listos para comer toman contacto con los alimentos crudos y se contaminan
+- Los alimentos listos para comer toman contacto con el agua de deshielo de pollo, carne o pescado crudos
+b) Indirecta: Es la producida por la transferencia de agentes contaminantes de un alimento a otro a través de las manos, utensilios, equipos, mesas, tablas de cortar, entre otros.
+17.- Desinfección: La reducción del número de microorganismos a un nivel que no produzca la contaminación nociva de los alimentos, mediante la aplicación de agentes químicos y/o métodos físicos satisfactorios desde el punto de vista higiénico, sin afectar de modo adverso a los alimentos.
+18.- Área Rectora de Salud (ARS): Constituye el nivel político-operativo del Ministerio de Salud para la ejecución de las funciones rectoras y de provisión de servicios de salud.
+19.- División en el Tiempo: Separación de las operaciones en la preparación de los alimentos en tiempos diferentes y secuencias con el propósito de evitar la contaminación cruzada.
+20.- Equipo y utensilios: Es el conjunto de maquinaria y artículos empleados en la preparación, conservación, suministro, expendio y consumo de alimentos.
+21.- Fritura: Proceso mediante el cual los alimentos se someten a altas temperaturas utilizando las grasas o aceites como medio de transmisión de calor.
+22.- Limpieza: La eliminación o remoción física de materia orgánica (tierra, residuos de alimentos, suciedad, grasa u otras materias objetables) de una superficie, equipo u otros.
+23.- Manipulador de Alimentos: Toda persona que aplique su trabajo manual directamente o por medio de instrumentos o artefactos a la preparación, conservación, envase, distribución, expendio o suministro de alimentos.
+24.- Ministerio: Ministerio de Salud.
+25.- Permiso Sanitario de Funcionamiento o Permiso de Funcionamiento (P.S.F.): certificado que emite el Ministerio de Salud autorizando el funcionamiento de un establecimiento que se dedica a brindar los servicios de alimentación al público.
+Permiso Sanitario de Funcionamiento (PSF): requisito previo para que cualquier establecimiento pueda operar, su objetivo es regular el impacto que los establecimientos puedan generar sobre el ambiente y la salud pública durante su funcionamiento.
+26.- Servicio de Alimentación al Público: Establecimiento o local público o privado, con instalaciones permanentes donde se elaboran, manipulan, envasan, almacenan, suministran, sirven, venden o proveen comidas preparadas, para el consumo humano en el mismo local, para llevar o servicio a domicilio (catering o servicio express).
+27.- Servicio de catering: Servicio que brindan empresas especializadas en elaborar, trasladar y servir alimentos al sitio que disponga el cliente, para grupos de personas que participan de un evento.
+28.- Servicio express: Servicio de comidas que brindan algunos servicios de alimentación al público a sus clientes trasladando los alimentos hasta sus domicilios.
+29.- Ventana: Establecimiento que prepara alimentos exclusivamente para llevar y no cuenta con área de consumo.

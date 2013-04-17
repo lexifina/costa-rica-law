@@ -1,0 +1,4 @@
+Capítulo VIII
+De la salud e higiene del personal
+Artículo 57.- Salud del Personal. El propietario o administrador del servicio de alimentación al público tomará las medidas necesarias para evitar que el personal que muestre signos de enfermedad o tenga heridas, infecciones cutáneas, llagas o diarrea, trabaje en las zonas de manipulación de alimentos en las que exista probabilidad de que pueda contaminar directa o indirectamente a los mismos. Toda persona que se encuentre en esas condiciones debe comunicar inmediatamente al supervisor o encargado su estado de salud. Pudiendo reintegrarse a sus labores normales una vez que se le haya dado de alta por el médico tratante.
+La autoridad de salud puede exigir, cuando las circunstancias lo ameriten y justifiquen, exámenes para verificar el estado de salud al personal que labora en un servicio de alimentación al público.
