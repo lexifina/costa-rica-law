@@ -1,0 +1,1 @@
+Artículo 3.- Las dependencias del Sector Público y del Sector Privado, dentro del marco legal respectivo, podrán contribuir con recursos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización del “Proyecto de Respuesta Pediátrica para desastres”.
