@@ -1,0 +1,1 @@
+Artículo 47.—Si el monto del impuesto no se cancela de manera oportuna se cobrará, conjuntamente con él, una multa del uno por ciento (1%) por mes o fracción de mes sobre el monto del impuesto no pagado, sin que esa multa pueda superar el veinte por ciento (20%) del impuesto trimestral adeudado.
