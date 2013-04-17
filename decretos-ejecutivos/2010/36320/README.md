@@ -14,3 +14,4 @@ Reforma Reglamento del Estatuto de Servicio Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-22 | la propia norma |
+| 2 | 2013-04-17 | SINALEVI (sin norma nombrada) |
