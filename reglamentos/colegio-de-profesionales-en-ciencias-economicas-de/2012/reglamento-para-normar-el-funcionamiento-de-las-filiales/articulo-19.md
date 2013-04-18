@@ -1,0 +1,1 @@
+Artículo 19.—El quórum para la celebración de sesiones de Asamblea General de la Filial, será de la mitad más uno de sus miembros inscritos en primera convocatoria. No obstante, la Asamblea podrá sesionar normalmente una hora después, en segunda convocatoria, de no estar presente el quórum previsto para la primera convocatoria, con la presencia de al menos diez miembros.

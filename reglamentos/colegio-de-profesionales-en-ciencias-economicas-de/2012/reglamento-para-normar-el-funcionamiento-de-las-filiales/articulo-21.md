@@ -1,0 +1,1 @@
+Artículo 21.—El Consejo Directivo de la Filial sesionará al menos una vez al mes. El quórum para que se reúna válidamente será de al menos tres miembros y sus decisiones se tomarán con el voto de la mayoría simple de los presentes.

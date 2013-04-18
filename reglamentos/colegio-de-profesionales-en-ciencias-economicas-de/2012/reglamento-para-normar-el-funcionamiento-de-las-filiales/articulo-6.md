@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Conformación de las Filiales
+Artículo 6º—La Junta Directiva del Colegio convocará por medio de su página de Internet y a través de cualquier otro medio disponible a todos los miembros de la circunscripción territorial y realizará un acto de instalación de la misma, donde se elegirá el primer Consejo Directivo. Los miembros que asistan a esa sesión de instalación se considerarán miembros de pleno derecho de la Filial, sin perjuicio del derecho de cualquier otro miembro del Colegio de la circunscripción, que no hubiera asistido, de integrarse a dicha Filial con solo presentar la solicitud respectiva en forma escrita.

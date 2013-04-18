@@ -1,0 +1,1 @@
+Artículo 11.—La Asamblea General de la Filial estará conformada por todos los miembros inscritos en la Filial. Se reunirá ordinariamente una vez al año y extraordinariamente cuando la convoque la Junta Directiva del Colegio o el Consejo Directivo de la Filial.
