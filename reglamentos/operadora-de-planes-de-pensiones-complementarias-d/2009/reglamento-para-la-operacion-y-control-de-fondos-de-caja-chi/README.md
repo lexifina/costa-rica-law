@@ -14,3 +14,4 @@ Reglamento para la Operación y Control de Fondos de Caja Chica de la Operadora 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-04 | la propia norma |
+| 2 | 2013-04-18 | Reglamento 404 (2013-04-18) |
