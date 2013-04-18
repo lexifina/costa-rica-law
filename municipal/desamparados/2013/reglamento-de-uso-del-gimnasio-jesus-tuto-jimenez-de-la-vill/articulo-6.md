@@ -1,0 +1,3 @@
+Artículo 6. De los ingresos de las instalaciones.
+Todos los ingresos que genere el Gimnasio por alquiler o cuota de ingreso u otros servicios que se presten, deben ingresar a la cuenta corriente Nº 001-0232928-0 a nombre de la Municipalidad de Desamparados, con el Banco de Costa Rica.
+Los ingresos que perciba la institución por la explotación de las instalaciones deben invertirse en las mismas, ya sea en el mantenimiento, obra pública, adquisición de maquinaria o equipos, mejoras o implementación de nuevos espacios deportivos o recreativos, tanto en el Gimnasio, como dentro de la Villa Olímpica. Esto conforme con lo establecido en la legislación vigente.

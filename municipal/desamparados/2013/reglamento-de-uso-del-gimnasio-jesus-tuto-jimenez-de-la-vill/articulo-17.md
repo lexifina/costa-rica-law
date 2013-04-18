@@ -1,0 +1,1 @@
+Artículo 17. Todo funcionario del Gimnasio, deberá de tener un trato respetuoso para con sus compañeros y los usuarios de las instalación, utilizando un vocabulario adecuado y un tono amable, así mismo deberá de utilizar vestimenta formal que refleje el decoro su puesto.
