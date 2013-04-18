@@ -1,0 +1,1 @@
+Artículo 5º—Plazo de nombramiento. Los miembros de la Comisión de Aranceles, serán nombrados por la Junta Directiva, conforme al artículo 48 del Reglamento a la Ley Orgánica del Colegio y durarán en sus cargos por un período de dos años, pudiendo ser removidos libremente por la Junta Directiva, cuando así se estime conveniente u oportuno.

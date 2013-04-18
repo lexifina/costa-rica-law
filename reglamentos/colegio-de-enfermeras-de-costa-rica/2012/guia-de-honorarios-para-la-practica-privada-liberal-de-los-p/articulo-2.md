@@ -1,0 +1,1 @@
+Artículo 2º—Competencia: Corresponde a la Junta Directiva del Colegio de Enfermeras de Costa Rica, la elaboración y aprobación de las guías de honorarios para la práctica liberal de la profesión de Enfermería, para lo cual existirá una “Comisión de Aranceles”, con las funciones y competencias que se dirán.
