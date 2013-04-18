@@ -1,0 +1,1 @@
+Artículo 12. Para el cumplimiento de los artículos 10 y 11, la Administración se encargará de colocar rótulos, vallas, avisos y/o advertencias en relación con las reglas mínimas de uso que deben guardar los usuarios del complejo, con el fin de que los usuarios estén debidamente informados y sepan a qué atenerse.

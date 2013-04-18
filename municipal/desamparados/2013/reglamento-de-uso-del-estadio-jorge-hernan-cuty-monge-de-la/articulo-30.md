@@ -1,0 +1,2 @@
+Artículo 30. Devoluciones.
+Para proceder a la devolución del monto de alquiler o garantía por el uso de las instalaciones, habrá de solicitar y llenar la fórmula que para este procedimiento disponga la Oficina de Administración Tributaria. Solo procederá la devolución del precio cuando no se preste aquel servicio por causas no imputables al obligado al pago: en el caso de las garantías, cuando el informe por escrito de la actividad no reporte daños en la instalación según contrato.

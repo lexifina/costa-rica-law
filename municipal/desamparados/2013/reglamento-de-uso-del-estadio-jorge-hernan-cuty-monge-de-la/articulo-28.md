@@ -1,0 +1,1 @@
+Artículo 28. Las solicitudes se resolverán de acuerdo con el procedimiento establecido en el CAPÍTULO IX sobre arrendamiento de las instalaciones, indicando las condiciones que deben exigirse para el desarrollo de la misma y el precio de arrendamiento propuesto, según las tasas y precios debidamente definidos y autorizados por la oficina de Control de Fiscalización Tributaria.
