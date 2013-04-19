@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Modelo de otorgamiento y retornabilidad de recursos
+Artículo 12.—Del otorgamiento de los recursos de Capital Semilla. El Consejo Rector otorgará lo recursos de Capital Semilla provenientes de FINADE bajo un esquema de evaluación de propuestas. Un Comité Evaluador o Comité de Expertos, escogidos por el Consejo Rector, evaluará y seleccionará los Proyectos de Emprendimiento a financiar con los recursos de Capital Semilla.
+La inversión del Programa respectivo participará en el riesgo del negocio o emprendimiento en que se invierta, las condiciones de participación serán definidas por el Consejo Rector en función de los criterios técnicos que presente FINADE.
+Los Emprendedores deberán celebrar con el FINADE un convenio en el cual se establezcan claramente los términos y condiciones a los cuales queda sujeto el financiamiento con Servicios de Desarrollo Empresarial y Capital Semilla, estableciéndose la obligación de destinar los recursos a alguno de los conceptos antes referidos y la forma en que se deberá reembolsar el monto.

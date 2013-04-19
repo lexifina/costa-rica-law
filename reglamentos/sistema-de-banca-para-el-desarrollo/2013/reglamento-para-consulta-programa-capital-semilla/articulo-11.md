@@ -1,0 +1,1 @@
+Artículo 11.—De los montos de los aportes. Corresponderá al Consejo Rector aprobar políticas en cuanto a los montos de asignación de los recursos para Capital de Semilla, con base en los modelos de impacto presentados por el ente administrador del FINADE. De conformidad con lo anterior se establecerá la periodicidad de los concursos.

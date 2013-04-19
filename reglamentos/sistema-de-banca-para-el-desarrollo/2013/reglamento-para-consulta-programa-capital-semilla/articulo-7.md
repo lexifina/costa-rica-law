@@ -1,0 +1,1 @@
+Artículo 7º—De la sostenibilidad del FINADE. El Fiduciario del FINADE deberá presentar anualmente al Consejo Rector la cantidad máxima de recursos que puedan asignarse al fondo de Capital Semilla sin afectar la sostenibilidad de FINADE.

@@ -1,0 +1,1 @@
+Artículo 14.—De la coordinación con otras instituciones. El Consejo Rector coordinará con el Instituto Nacional de Aprendizaje y las entidades integrantes y participantes del Sistema de Banca para el Desarrollo la promoción del desarrollo de iniciativas emprendedoras.
