@@ -1,0 +1,1 @@
+Artículo 4º—La Bodega Municipal forma parte de la organización de Proveeduría Municipal, al igual que los planteles donde se almacenen materiales. El Proveedor Institucional será el superior jerárquico inmediato de todo el personal que labore en la Bodega Municipal.

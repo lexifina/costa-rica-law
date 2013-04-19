@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la Comisión Asesora de Contratación Administrativa
+Artículo 53.—Fines. La Comisión Asesora de Contratación Administrativa, es el órgano institucional encargado de analizar y recomendar al Alcalde y/o Concejo Municipal, según sea el caso, los actos de adjudicación, infructuosidad o declaratoria desierta de un proceso de contratación administrativa. Conocerá los expedientes remitidos por la Proveeduría Municipal y velará por el fiel cumplimiento de las disposiciones aquí contempladas y de la normativa vigente vinculante. Esta Comisión es un órgano permanente adscrito a la Alcaldía Municipal.
