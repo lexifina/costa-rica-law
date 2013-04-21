@@ -1,1 +1,0 @@
-Artículo 32.—Deliberación y resolución: Finalizada la audiencia o su continuación, en los casos en que se haya ordenado así, el órgano director procederá a resolver el fondo del asunto. En ambos casos, se contará con el plazo de veinte días hábiles a partir de la finalización de la audiencia para tales efectos.

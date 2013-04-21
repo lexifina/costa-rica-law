@@ -1,1 +1,0 @@
-Artículo 40.—Derogatoria: El presente Reglamento deroga el Reglamento de Procedimientos Administrativos Disciplinarios aprobado en Asamblea General Ordinaria, celebrada el 17 de octubre de 1998 y publicado en La Gaceta Nº 233 del 1° de diciembre, 1998.

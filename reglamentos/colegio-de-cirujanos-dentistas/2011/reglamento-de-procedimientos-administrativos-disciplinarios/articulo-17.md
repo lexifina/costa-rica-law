@@ -1,1 +1,0 @@
-Artículo 17.—Inicio de la instrucción: Presentada la queja y/o denuncia y cumplidas las formalidades que se requieren, la Fiscalía trasladará el expediente dentro de los tres días hábiles siguientes a la Comisión de Fiscalía o al Tribunal de Honor, según corresponda, para que se proceda a la instrucción del caso.

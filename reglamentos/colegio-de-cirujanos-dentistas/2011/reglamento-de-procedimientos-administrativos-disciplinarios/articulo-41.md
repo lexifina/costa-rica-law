@@ -1,1 +1,0 @@
-Artículo 41.—Aplicación supletoria de leyes: En lo no dispuesto en este Reglamento, se aplicarán supletoriamente las disposiciones de la Ley General de la Administración Pública y Código Procesal Civil.

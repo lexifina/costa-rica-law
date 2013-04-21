@@ -1,1 +1,0 @@
-Artículo 20.—Audiencia oral y privada: El órgano director del procedimiento convocará a una audiencia oral y privada donde se escucharán los alegatos de cada una de las partes, se evacuará la prueba y se dictará la recomendación correspondiente. Las partes deberán ser convocadas a la audiencia con un plazo mínimo de quince días hábiles de antelación.

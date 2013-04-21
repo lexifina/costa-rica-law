@@ -1,1 +1,0 @@
-Artículo 42.—Transitorio: Los procedimientos administrativos iniciados con anterioridad a la fecha de entrada en vigencia del presente reglamento, serán tramitados con el anterior Reglamento y de acuerdo con sus disposiciones.

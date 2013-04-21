@@ -1,1 +1,0 @@
-Artículo 37.—Notificación personal: Deberá notificarse personalmente o en casa de habitación el traslado de la queja al colegiado(a) denunciado(a), de lo cual se dejará constancia mediante la respectiva acta de notificación.

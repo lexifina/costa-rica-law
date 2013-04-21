@@ -1,4 +1,0 @@
-Artículo 3º—Competencia de la Fiscalía: Le corresponde a la Fiscalía del Colegio de Cirujanos Dentistas de Costa Rica:
-Decretar la admisibilidad o inadmisibilidad de una queja planteada contra un agremiado por parte de un paciente o de otro colegiado. Dar inicio a la Instrucción del Procedimiento. Será la encargada por medio de la Conciliación, lograr agilizar los casos en conflicto, empleando para ello los mejores medios de diálogo, interlocución y convencimiento que se disponga. Una vez lograda la conciliación, darle el seguimiento hasta el efectivo cumplimiento del acuerdo conciliatorio.
-En aquellos casos en que no se logre la Conciliación o se incumpla esta, de acuerdo a los incisos anteriores, el expediente será trasladado por la Junta Directiva al Tribunal de Honor o a la Comisión de Fiscalía, para que este Instruya el Caso.
-Plantear las denuncias que de oficio le correspondan.

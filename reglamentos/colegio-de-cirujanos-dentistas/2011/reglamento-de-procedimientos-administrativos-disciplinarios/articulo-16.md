@@ -1,1 +1,0 @@
-Artículo 16.—Conocimiento de la queja y/o denuncia por parte de la Junta Directiva: La Fiscalía del Colegio de Cirujanos Dentistas procederá a informar cada mes a la Junta Directiva sobre el trámite y desarrollo de las quejas que se presenten.

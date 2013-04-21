@@ -1,1 +1,0 @@
-Artículo 24.—Dirección de la audiencia: La audiencia será dirigida por quienes ejerzan los cargos de Coordinador de la Comisión de Fiscalía o Presidente del Tribunal de Honor, según corresponda. En ausencia de éstos, dirigirá la audiencia la persona que los propios órganos colegiados designen.

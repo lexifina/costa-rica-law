@@ -1,1 +1,0 @@
-Artículo 35.—Recurso contra el acto final: Contra el acto final dictado por el Órgano Director, aparte del recurso de revocatoria regulado en el artículo anterior, podrá interponerse para ante la Junta Directiva, el recurso ordinario de apelación dentro de los tres días hábiles siguientes a la notificación del acto final.

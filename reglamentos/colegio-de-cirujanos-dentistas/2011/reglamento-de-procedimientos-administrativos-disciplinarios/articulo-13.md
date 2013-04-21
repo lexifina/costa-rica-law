@@ -1,1 +1,0 @@
-Artículo 13.—Motivos de impedimento y recusación: Serán motivos de impedimento y recusación los mismos previstos por el Código Procesal Civil. Los motivos de abstención serán aplicables a los miembros de la Junta Directiva, Tribunal de Honor, Fiscalía y Comisión de Fiscalía.
