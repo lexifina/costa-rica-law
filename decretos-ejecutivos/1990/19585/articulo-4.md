@@ -1,4 +1,0 @@
-Artículo 4º.- Las compañías de transporte internacional (aéreo, marítimo y terrestre) y las agencias de viajes establecidas en el país, o sus representantes, están obligadas a percibir el impuesto y depositarlo en los términos y condiciones siguientes:
-a) El impuesto determinará y registrará en el mismo pasaje en moneda nacional.
-b) Deberán presentar ante el Instituto una liquidación quincenal con carácter de declaración jurada, del detalle de los pasajes vendidos en el formulario oficial o autorizado por el Instituto.
-El producto de esta liquidación deberá depositarse en la tesorería que indique el Instituto como máximo los días 2 y 17 de cada mes, sea hasta el día 2, se reintegra el impuesto correspondiente a las ventas de la primera quincena del mes anterior y la segunda quincena hasta el día 17.

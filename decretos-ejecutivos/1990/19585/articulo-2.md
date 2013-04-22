@@ -1,1 +1,0 @@
-Artículo 2º.- A efecto de asegurar un eficiente sistema en el control y recaudación del impuesto, las dependencias oficiales que adelante se mencionan, deben constituirse en obligadas colaboradoras del Instituto, además de los casos concretamente indicados en cualquier labor que por su naturaleza se establezca por resolución debidamente razonada.

@@ -1,1 +1,0 @@
-Artículo 12.- Contra las resoluciones que dicte la Gerencia del Instituto en aplicación del presente Reglamento, cabe el recurso de apelación para ante el Tribunal Fiscal administrativo, dentro de los quince días posteriores a la notificación, según lo establecido en el artículo 147 del citado Código.

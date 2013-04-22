@@ -1,1 +1,0 @@
-Artículo 10.- Las diferencias que se determinen en aplicación de los artículos 118, 119 y 120 del Código Tributario, serán notificadas mediante un traslado de cargos al agente de percepción, por cualquiera de las formas enumeradas en el artículo 132 del mismo Código, a efecto de que las impugnen o en su defecto las cancelen dentro de los treinta días siguientes a la notificación.

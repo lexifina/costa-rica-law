@@ -1,1 +1,0 @@
-Artículo 17.- El incumplimiento de las disposiciones del presente Reglamento, facultará igualmente al Instituto para aplicar lo dispuesto en el artículo 23, inciso a) de la ley número 5339 de 23 de agosto de 1973 "Reguladora de Agencias de Viajes" y el artículo 11, inciso a) de su Reglamento, según decreto ejecutivo número 9536-MEIC de 24 de enero de 1979.

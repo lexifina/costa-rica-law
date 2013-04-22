@@ -1,2 +1,0 @@
-Artículo 9º.- El Instituto ejercerá la fiscalización necesaria, mediante inspecciones periódicas en las empresas de transporte internacional, sus representantes y agencias de viajes, a fin de cotejar las informaciones que aquellas hubieran suministrado.
-Los funcionarios encargados de la fiscalización podrán examinar, guardando la debida confidencialidad, todos los registros, pasajes y documentos que constituyen fuente de información fehaciente, de acuerdo con las facultades que determinan los artículos 109, 110 y 115 del Código Tributario.
