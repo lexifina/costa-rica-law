@@ -14,3 +14,4 @@ Crea el distrito Bahía Drake, sexto del cantón de Osa, provincia de Puntarenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-01 | la propia norma |
+| 2 | 2013-04-22 | Acuerdo 22 (2013-04-22) |

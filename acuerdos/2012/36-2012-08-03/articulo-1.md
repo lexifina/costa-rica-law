@@ -8,4 +8,5 @@ CONDIDERANDO:
 3°. Que la Comisión Nacional de División Territorial Administrativa, por recomendación del Comité Técnico; en sesión del día 31 de julio del 2012, aprobó la creación del distrito Bahía Drake, sexto del cantón Osa, provincia Puntarenas.
 Por tanto:
 ACUERDAN:
-Artículo 1°- Créase el distrito Bahía Drake, sexto del cantón Osa, provincia Puntarenas. El cual tendrá a la Villa Agujitas (Drake) como cabecera del distrito, contando con los poblados de: Ángeles, Banegas, Boca Ganado, Campanario, Caletas, Guerra, Planes, Progreso, Quebrada Ganado, Rancho Quemado, Riyito, San Josecito (Rincón), y San Pedrillo, todos segregados del distrito tercero, Sierpe.
+Artículo 1°- Créase el distrito Bahía Drake, sexto del cantón Osa, provincia Puntarenas, el cual tendrá a la Villa Agujitas (Drake) como cabecera del distrito, contando con los poblados de: Ángeles, Banegas (parte), Boca Ganado, Campanario, Caletas, Guerra, Planes, Progreso, Quebrada Ganado, Rancho Quemado, Riyito, San Josecito (Rincón), y San Pedrillo, todos segregados del distrito tercero, Sierpe.
+(Así reformado mediante acuerdo N° 22-2013-MGP del 22 de abril del 2013)
