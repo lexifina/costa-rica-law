@@ -1,1 +1,1 @@
-Artículo 5º.- Se derogan el Título IX y los artículos 52 y 53 del Título XII de la ley Nº 661 de 10 de agosto de 1949, (Estructura Orgánica del Ministerio de Educación Pública.)
+Artículo 5.- Los representantes a que se refieren los incisos d), e) y f) del artículo 4, se nombrarán con respeto de la autonomía de los grupos concernidos, dentro de los procedimientos establecidos en el reglamento de esta ley. Los anteriores, tendrán cada uno su respectivo suplente, nombrado de la misma forma que el propietario correspondiente.

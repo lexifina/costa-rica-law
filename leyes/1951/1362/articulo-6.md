@@ -1,2 +1,1 @@
-Artículo 6º.- Esta ley rige desde su publicación.
-Casa Presidencial.-San José, a los ocho días del mes de octubre de mil novecientos cincuenta y uno.
+Artículo 6.- Las personas que integren el Consejo, con independencia de las entidades que las nombren, representarán los intereses de la educación nacional vista como un todo y, en sus decisiones y en el desempeño de las funciones que les son propias, actuarán con plena independencia de criterio y no por delegación.
