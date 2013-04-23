@@ -1,0 +1,4 @@
+ARTÍCULO 9
+Derechos Impuestos a los Usuarios
+1. Ninguna de las Partes impondrá o permitirá que se imponga a las líneas aéreas designadas de la otra Parte tasas y demás cargos superiores a los que se impongan a sus propias líneas aéreas que exploten servicios internacionales similares.
+2. Cada Parte alentará las consultas relativas a derechos impuestos a los usuarios entre sus autoridades competentes y las líneas aéreas que utilicen las instalaciones y los servicios proporcionados, cuando sea posible por medio de las organizaciones representativas de dichas líneas aéreas. Debe darse a los usuarios un aviso previo razonable sobre toda propuesta de modificación de los derechos impuestos a fin de permitirles expresar sus puntos de vista antes de que se efectúen dichos cambios. Además, cada Parte alentará a sus autoridades competentes y a dichos usuarios a que intercambien información apropiada relativa a los derechos impuestos a los usuarios.

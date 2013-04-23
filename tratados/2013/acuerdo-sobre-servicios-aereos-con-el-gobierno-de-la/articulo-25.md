@@ -1,0 +1,3 @@
+ARTÍCULO 25
+Terminación
+Cualquiera de las Partes puede, en todo momento, notificar a la otra Parte, por vía diplomática, su intención de poner fin al presente Acuerdo. Dicha notificación se comunicará simultáneamente a la OACI. El presente Acuerdo expirará a la medianoche, horario local de la Parte que recibe la notificación, inmediatamente antes del primer aniversario de la fecha de recepción de la notificación por la otra Parte, a menos que se retire dicha notificación mediante acuerdo, antes de concluir dicho plazo. Si la otra Parte no acusa recibo, se considerará que la notificación ha sido recibida 14 (catorce) días después de su recepción por la OACI.

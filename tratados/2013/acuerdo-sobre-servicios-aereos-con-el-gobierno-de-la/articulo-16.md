@@ -1,0 +1,7 @@
+ARTÍCULO 16
+Actividades Comerciales
+1. Cada Parte otorgará a las líneas aéreas designadas de la otra Parte el derecho de vender y comercializar en su territorio servicios de transporte aéreo internacional, directamente o por medio de agentes u otros intermediarios, a discreción de la línea aérea, incluyendo el derecho de establecer sus propias oficinas, tanto como empresa operadora como no operadora.
+2. Cada línea aérea tendrá el derecho de vender servicios de transporte en la moneda de ese territorio o, sujeto a las leyes y regulaciones nacionales, en monedas de libre convertibilidad de otros países, y cualquier persona podrá adquirir dichos servicios de transporte en monedas aceptadas por esa línea aérea.
+3. Las líneas aéreas designadas de una Parte podrán, sobre una base de reciprocidad, traer y mantener en el territorio de la otra Parte sus representantes y funcionarios comerciales, operacionales y técnicos necesarios en la operación de los servicios convenidos.
+4. Esas necesidades de personal pueden, según criterio de las líneas aéreas designadas de una Parte, ser satisfechas con personal propio o utilizando los servicios de cualquier otra organización, compañía o línea aérea que opere en el territorio de la otra Parte, autorizada a prestar esos servicios para otras líneas aéreas.
+5. Los representantes y los funcionarios estarán sujetos a las leyes y reglamentos en vigor de la otra Parte.

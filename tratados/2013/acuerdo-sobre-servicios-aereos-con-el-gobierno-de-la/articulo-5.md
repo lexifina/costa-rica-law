@@ -1,0 +1,6 @@
+ARTÍCULO 5
+Aplicación de las Leyes
+1. Las leyes y los reglamentos de una Parte que rigen la entrada y salida de su territorio de aeronaves utilizadas en servicios aéreos internacionales, o la explotación y navegación de dichas aeronaves, se aplicarán a las aeronaves de las líneas aéreas de la otra Parte mientras estén dentro de dicho territorio.
+2. Las leyes y los reglamentos de una Parte relativos a la entrada, estadía y salida de su territorio de pasajeros, miembros de tripulación y carga, incluyendo correo, tales como los relativos a inmigración, aduana, moneda, salubridad y cuarentena, se aplicarán a los pasajeros, miembros de tripulación, carga y correo transportados por aeronaves de las líneas aéreas de la otra Parte mientras estén dentro de dicho territorio.
+3. En la aplicación de sus reglamentos de inmigración, aduana, cuarentena y reglamentos afines, ninguna Parte concederá preferencia a sus propias líneas aéreas ni a ninguna otra respecto a las líneas aéreas de la otra Parte que se utilicen para un transporte aéreo internacional similar.
+3. Los pasajeros, el equipaje, la carga y el correo en tránsito directo no estarán sujetos más que a una inspección simplificada. El equipaje y la carga en tránsito directo estarán exentos de derechos de aduana y otros impuestos similares.

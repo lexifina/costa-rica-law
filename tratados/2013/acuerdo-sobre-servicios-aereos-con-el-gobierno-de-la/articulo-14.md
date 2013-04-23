@@ -1,0 +1,5 @@
+ARTÍCULO 14
+Competencia
+1. Las Partes se informarán mutuamente acerca de sus leyes, políticas y prácticas en materia de competencia o modificaciones de las mismas, y de cualesquier objetivos concretos que en ellas se persigan, que puedan afectar a la explotación de los servicios de transporte aéreo con arreglo al presente Acuerdo e identificarán las autoridades encargadas de su aplicación.
+2. Las Partes se notificarán mutuamente si consideran que puede haber incompatibilidad entre la aplicación de sus leyes, políticas y prácticas sobre la competencia y las cuestiones relativas a la aplicación del presente Acuerdo.
+3. Sin perjuicio de cualesquier otras disposiciones en contrario, nada de lo dispuesto en este Acuerdo deberá (i) requerir o favorecer la adopción de arreglos entre líneas aéreas, decisiones de gremios de líneas aéreas o prácticas concertadas que impidan o distorsionen la competencia; (ii) reforzar los efectos de tales arreglos, decisiones o prácticas concertadas; o (iii) delegar a operadores económicos privados la responsabilidad de la tomada de decisiones que impidan, distorsionen o restrinjan la competencia.
