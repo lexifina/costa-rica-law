@@ -1,0 +1,1 @@
+Artículo 3°—Se insta respetuosamente a los jerarcas de los Poderes Legislativo y Judicial, así como del Tribunal Supremo de Elecciones, Bancos Estatales, Universidades Estatales, Instituciones Autónomas y Municipalidades, para que lleven a cabo las acciones definidas en la presente directriz e informen en la forma expuesta a la comisión mencionada.
