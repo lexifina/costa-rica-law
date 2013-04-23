@@ -1,0 +1,35 @@
+Artículo 11°—Las áreas prioritarias para el trámite de las solicitudes del año 2013, para el Programa de Pago de Servicios Ambientales, en las diferentes modalidades serán las siguientes:
+1. Proyectos de Reforestación: Se establecen como zonas prioritarias para la ejecución de proyectos de reforestación, las áreas sin bosque en los sitios que presenten un alto potencial productivo para el desarrollo de plantaciones forestales.
+a) Para los proyectos de reforestación con especies contenidas en los decretos de vedas y especies amenazadas o en peligro de extinción (Decreto N° 25663-MINAE del 8 de octubre de 1996 y Decreto N° 25700-MINAE, del 15 de noviembre de 1996), se establece como prioritario todo el país.
+b) Para proyectos de reforestación establecidos en las áreas de protección según el artículo 33 de la Ley Forestal N° 7575, se considerará como prioritario todo el país.
+c) Sitios donde existe un alto potencial de bloques de plantación dando especial prioridad a los proyectos que utilicen material genético mejorado y a los proyectos que utilicen semilla certificada por la Oficina Nacional de Semillas (ONS).
+d) Se podrán incluir áreas en donde se ejecutaron proyectos de reforestación financiados por medio de incentivos o servicios ambientales que hayan cumplido tanto con los planes de manejo aprobados como con su período de vigencia.
+e) Proyectos de reforestación con integración bosque industria.
+2. Proyectos de Protección de Bosque: Se establecen como prioridad para la contratación de proyectos de protección de bosque las áreas que cumplan con los criterios que se establecen a continuación, cuya calificación se realizará aplicando la siguiente Matriz de Valoración.
+N° de criterio | Criterios de priorización* | Puntos para calificar
+1 | Bosques en fincas ubicadas en áreas definidas dentro de Vacíos de Conservación. Bosques dentro de los Territorios Indígenas del país. | 85
+2 | Bosques en fincas ubicados dentro de los Corredores Biológicos** oficialmente establecidos. Bosques que protegen el recurso hídrico (con nota de ASADA, A y A, municipios, MINAET, donde se ponga de manifiesto la importancia de proteger el bosque. | 80
+3 | Bosques en fincas ubicadas dentro de las Áreas Silvestres Protegidas y que aún no han sido comprados o expropiados por el Estado. | 75
+4 | Bosques fuera de cualquiera de las prioridades anteriores. | 55
+| |
+I | Bosques para protección que cumplan con lo establecido en los puntos anteriores, donde se hayan suscrito contratos de pago de servicios ambientales en años anteriores, siempre que cumplan con los demás requisitos establecidos en el Manual de Procedimientos para el Pago por Servicios Ambientales y concluyan su período de vigencia en el mismo año en que se presente la nueva solicitud. La vigencia de los nuevos contratos iniciará al día siguiente de la fecha del vencimiento del contrato anterior. | 10 puntos Adicionales
+II | Bosques en fincas ubicadas en los distritos con índice Desarrollo Social (IDS) menor a 40% según la determinación realizada por MIDEPLAN (2007). | 10 puntos Adicionales
+III | Bosques en cualquiera de las prioridades anteriores, con solicitud de ingreso al PPSA en áreas menores a 50 hectáreas. Estos puntos sólo aplican si el área de la finca es igual o menor de 50 hectáreas. | 25 puntos adicionales
+* Criterios basados en el artículo 38 del Reglamento a la Ley Forestal Decreto Nº 25721-MINAE
+y sus reformas, publicado en el diario oficial La Gaceta N° 16, del día 23 de enero de 1997, considerando las políticas de conservación que ejecuta el SINAC.
+** Basado en el concepto de Corredor Biológico establecido en el Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433 del 11 de mayo del 2008, artículo 3 inciso b).
+La puntuación de cada criterio será excluyente en estas prioridades. Para las solicitudes de protección en recurso hídrico, los documentos requeridos que demuestren la importancia hídrica, deben ser aportados con la solicitud inicial.
+El FONAFIFO contratará las fincas con la calificación más alta, que cumplan con los requisitos establecidos en el Manual de Procedimientos para el Pago de Servicios Ambientales, publicado en el Diario Oficial La Gaceta No 46, del día 6 de marzo del 2009 y/o hasta ejecutar el presupuesto aprobado.
+En caso de calificaciones iguales se tramitará según el orden de presentación de las solicitudes.
+3. Proyectos de establecimiento de árboles forestales en Sistemas Agroforestales (SAF): Se establecen como prioritarias para la contratación de proyectos de establecimiento de árboles en SAF las áreas sin bosque con los siguientes criterios:
+a) Tierras con capacidad de uso I, II, III, IV, V, VI, según dispone la Metodología para la Determinación de la Capacidad de Uso de las Tierras en Costa Rica, (Decreto Ejecutivo N° 23214-MAG-MIRENEM. publicado en La Gaceta N° 107, del dia 6 de junio de 1994).
+b) Áreas para el establecimiento de árboles en convenios específicos con FONAFIFO.
+c) Se dará prioridad a proyectos tramitados por organizaciones que tengan convenio vigente con el FONAFIFO.
+4. Proyectos de Regeneración Natural: Se establecen como prioritarias para la contratación de proyectos de regeneración natural las áreas sin bosque con los siguientes criterios:
+a) Proyectos de regeneración natural en pastos y potreros, con al menos un año de abandono y libres de pastoreo.
+b) Proyectos de regeneración natural con potencial productivo en sitios con al menos un año de abandono y libres de pastoreo.
+c) Para la regeneración natural en las áreas de protección según el artículo 33 de la Ley Forestal N° 7575, se considerará como prioritario todo el país.
+5. Proyectos de Manejo de Bosque: Se establecen como prioridades para la contratación de proyectos de manejo de bosque las áreas con el siguiente criterio:
+a) Inmuebles que tienen planes de manejo aprobados por la Administración Forestal del Estado y en los cuales se realizó la cosecha de acuerdo a los Estándares de Sostenibilidad para Manejo de Bosques Naturales: Principios, Criterios e Indicadores, Código de Prácticas y Manual de Procedimientos, Decretos Ejecutivos N° 27388-MINAE, publicado en La Gaceta el 2 de noviembre de 1998, Decreto N° 30763-MINAE, publicado el 9 octubre del 2002 vigente hasta el 16 de junio del 2008 y Decreto Ejecutivo N° 34559-MINAE publicado en La Gaceta N° 115, del día 16 de junio del 2008. El SINAC o el regente forestal certificarán el cumplimiento de lo establecido en el Plan de Manejo.
+Los criterios de priorización establecidos en el presente artículo, no serán aplicados a proyectos tramitados al amparo de cuotas con organizaciones que hayan suscrito convenios con FONAFIFO.
+En cada una de las Oficinas Subregionales del SINAC y en las Oficinas Regionales del FONAFIFO, se mantendrá en formato digital “shape files”, las áreas prioritarias para ubicar las fincas que apliquen al Programa de Pago por Servicios Ambientales en la modalidad de Protección de Bosque.

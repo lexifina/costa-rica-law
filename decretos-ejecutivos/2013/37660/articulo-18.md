@@ -1,0 +1,1 @@
+Artículo18°—En caso de que en las solicitudes presentadas se determinará la existencia de traslapes o desplazamiento entre ellas y con fincas que se encuentren sometidas al PSA, FONAFIFO valorará de acuerdo a criterios técnicos la aprobación o no de las solicitudes con estas inconsistencias.
