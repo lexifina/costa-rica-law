@@ -1,1 +1,0 @@
-Artículo 16.—De la conducción de las Asambleas. Las Asambleas Generales Ordinarias y Extraordinarias serán presididas por el Presidente de la Junta y, en ausencia suya, por el Vicepresidente. En ausencia de ambos, presidirá el miembro director de más edad entre los presentes.
