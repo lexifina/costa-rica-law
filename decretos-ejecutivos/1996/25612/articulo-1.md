@@ -9,5 +9,6 @@ Decretan:
 Artículo 1°—Fíjase la contribución obligatoria establecida en el numeral i) del inciso b) del artículo 9 de la Ley N ° 7638 del 30 de octubre de 1996, en la forma siguiente:”
 1. El equivalente a tres dólares, moneda de los Estados Unidos de América (US$3,00), por cada declaración aduanera de importación.
 2. El equivalente a tres dólares, moneda de los Estados Unidos de América (US$3,00), por cada declaración aduanera de exportación.
-3. El equivalente a tres dólares, moneda de los Estados Unidos de América (US$3,00), por cada declaración aduanera terrestre.
+3. El equivalente a tres dólares, moneda de los Estados Unidos de América (US$3,00), por cada declaración aduanera de exportación terrestre que se tramite por el puesto fronterizo de Peñas Blancas.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 37281 del 9 de agosto del 2012)
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37671 del 23 de abril del 2013)
