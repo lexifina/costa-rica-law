@@ -15,3 +15,4 @@ Modificación y aclaración de los requisitos y procedimiento de los trámites T
 | --- | --- | --- |
 | 1 | 2005-07-14 | la propia norma |
 | 2 | 2010-11-09 | Acuerdo 634 (2010-11-09) |
+| 3 | 2013-04-23 | Acuerdo 0 (2013-04-23) |
