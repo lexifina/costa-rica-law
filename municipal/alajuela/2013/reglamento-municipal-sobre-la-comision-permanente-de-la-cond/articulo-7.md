@@ -1,0 +1,1 @@
+Artículo 7°—Vigilar y garantizar el cumplimiento de la Política y Plan de Acción de Igualdad y Equidad de Género de la Municipalidad de Alajuela, así como cualquier otra normativa interna sobre igualdad y equidad de género.
