@@ -1,2 +1,3 @@
-ARTICULO 120.- El Director Ejecutivo deberá hacer del conocimiento de todos los miembros, en un plazo no mayor de 15 días, cualquier reforma parcial al Reglamento y deberá además ordenar su publicación en el Diario Oficial. La reforma entrará en vigencia en la fecha de su publicación en dicho Diario.
-(Así corrida su numeración en sesión N° 2 del 19 de enero del 2005, que lo traspasó del antiguo 112 al 120 actual del artículo)
+ARTICULO 120.- Rige a partir de su publicación.
+(Así corrida su numeración en sesión N° 2 del 19 de enero del 2005, que lo traspasó del antiguo 113 al 121 actual del artículo)
+(Así corrida su numeración en sesión extraordinaria N° 03-12/13-A.E.R del 23 de abril del 2013, que lo traspaso del antiguo artículo 121 al 120 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 113 original y modificar su numeración)
