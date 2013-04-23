@@ -1,0 +1,18 @@
+SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
+SECRETARÍA EJECUTIVA
+DIRECCIÓN EJECUTIVA
+R-SINAC-CONAC-003-2013.—El Consejo Nacional de Áreas de Conservación, de conformidad al Acuerdo Nº 3 de la sesión extraordinaria Nº 03-2011 celebrada el día 13 de junio del 2011, y en cumplimiento del artículo 12 incisos c) y i) del Reglamento a la Ley de Biodiversidad Nº 7788, Decreto Ejecutivo Nº 34433-MINAE, aprueba y emite la presente:
+“OFICIALIZACIÓN DE LAS POLÍTICAS PARA LAS ÁREAS
+SILVESTRES PROTEGIDAS DEL SISTEMA NACIONAL
+DE ÁREAS DE CONSERVACIÓN”
+Resultando:
+1º—Que el artículo 22 de la Ley de Biodiversidad Nº 7788, publicada en La Gaceta Nº 101 del 27 de mayo de 1998 establece al Sistema Nacional de Áreas de Conservación, como una institución desconcentrada y participativa, con personería jurídica instrumental, que integra las competencias en materia forestal, vida silvestre y áreas silvestres protegidas, protección y conservación del uso de cuencas hidrográficas y sistemas hídricos, del Ministerio de Ambiente, Energía y Telecomunicaciones (MINAET), con el fin de dictar políticas, planificar y ejecutar procesos dirigidos a lograr la sostenibilidad en el manejo de los recursos naturales de Costa Rica.
+2º—El proceso de actualización de las políticas de ASP obedece a situaciones de importancia: la primera tiene que ver con que hace más de siete años el SINAC contó con un conjunto de políticas en el documento denominado “Hacia la administración eficiente de las Áreas Silvestres Protegidas: Políticas e indicadores para su monitoreo” elaborado por funcionarios del SINAC en el año 2003 mismo que está desactualizado y segundo, que existe una indicación clara por parte de la Contraloría General de la República en Informe Nº DFOE-PGAA-59-2008, de que el SINAC debe aprobar cuanto antes la política de ASP terrestres y marinas.
+3º—El proceso de emisión, se respalda en consultas a diferentes actores tanto a nivel interno de la institución como a nivel externo, esto con el fin de asegurar el consenso y un compromiso amplio entre los interesados para su implementación, que constan el expediente administrativo respectivo. Las Políticas para las Áreas Silvestres Protegidas del Sistema Nacional de Áreas de Conservación, se basa en metas de conservación de biodiversidad, tanto para ecosistemas terrestres como marinos, incluidas en el marco del Programa de Trabajo de Áreas Protegidas del Convenio sobre la Diversidad Biológica 2010-2012 del Sistema Nacional de Áreas Protegidas.
+4º—Es conocido que éstos ecosistemas no solo están bajo amenazas críticas y profundas, sino también, están sub-representados en el sistema de ASP existente.
+5º—Las Políticas para las Áreas Silvestres Protegidas del Sistema Nacional de Áreas de Conservación proveen un marco orientador para el cumplimiento de los compromisos adquiridos por Costa Rica ante la CDB en su última Conferencia de las Partes (COP10) en Nagoya, Japón.
+Considerando:
+Único.—Que de conformidad al artículo 12 incisos c) y i) del Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433-MINAE publicado en La Gaceta Nº 68 del 8 de abril del 2008, el Consejo Nacional de Áreas de Conservación (CONAC), mediante Acuerdo Nº 3 de la sesión extraordinaria Nº 03-2011 celebrada el día 13 de junio del 2011, ratificado en la sesión ordinaria Nº 06-2011 celebrada el 27 de junio del 2011, aprobó las Políticas para las Áreas Silvestres Protegidas del Sistema Nacional de Áreas de Conservación. Por tanto,
+EL SECRETARIO EJECUTIVO DEL CONSEJO NACIONAL
+DE ÁREAS DE CONSERVACIÓN, RESUELVE:
+Artículo 1º—Oficialícese las Políticas para las Áreas Silvestres Protegidas del Sistema Nacional de Áreas de Conservación, del Ministerio de Ambiente, Energía y Telecomunicaciones.
