@@ -1,3 +1,0 @@
-ANEXO XII
-Fluxogramas
-[imagen]
