@@ -1,0 +1,1 @@
+Artículo 11.—Denuncias falsas. En el supuesto que una denuncia resultare falsa, se considerará como una falta laboral grave sancionable con despido sin responsabilidad patronal, sin perjuicio de las demás responsabilidades civiles y penales que deba asumir el falso denunciante.

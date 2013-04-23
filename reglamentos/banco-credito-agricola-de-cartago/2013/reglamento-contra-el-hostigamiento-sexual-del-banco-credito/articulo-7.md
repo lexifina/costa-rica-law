@@ -1,0 +1,1 @@
+Artículo 7º—Deber de colaboración. Toda dependencia y funcionarios (as), están en la obligación de brindar su colaboración cuando así se solicite por el Órgano del Debido Proceso y/o la Comisión contra el Hostigamiento Sexual, para facilitar su labor y el desempeño cabal del procedimiento.

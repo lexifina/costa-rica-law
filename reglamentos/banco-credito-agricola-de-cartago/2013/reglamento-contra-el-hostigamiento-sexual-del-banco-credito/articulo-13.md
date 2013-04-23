@@ -1,0 +1,1 @@
+Artículo 13.—Órgano Facultado para tramitar las denuncias. La instancia que tramitará las denuncias de hostigamiento sexual, es la Comisión contra el Hostigamiento Sexual, en acatamiento a la Ley 8805, artículo 19.
