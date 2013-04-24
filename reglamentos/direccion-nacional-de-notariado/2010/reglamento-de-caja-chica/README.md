@@ -14,3 +14,4 @@ Reglamento de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-06 | la propia norma |
+| 2 | 2013-04-24 | Reglamento 8 (2013-04-24) |
