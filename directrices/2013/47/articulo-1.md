@@ -1,0 +1,11 @@
+N° 047-MTSS
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades conferidas por el artículo 140, incisos 3), 18) y 20 de la Constitución Política, en concordancia con los artículos 25.1, 27,1, 98 y 99 de la Ley General de la Administración Pública; 2, 5 y 6 de la Ley Orgánica, y 3 y 4 del Reglamento de Reorganización y Racionalización, ambos del Ministerio de Trabajo y Seguridad Social.
+Considerando:
+I.—Que la declaratoria de interés público realizada mediante el Decreto Ejecutivo N° 37640-RE, faculta a la Administración Pública Central, a las instituciones y a las empresas del Estado para que dentro del marco de sus competencias y en estricto apego al ordenamiento jurídico, brinden las facilidades y la cooperación requeridas en la realización de las actividades que se llevarán a cabo en Costa Rica con motivo de la visita del señor Barack Obama, Presidente de los Estados Unidos de América y su participación en la reunión Extraordinaria de Jefes de Estado y de Gobierno del Sistema de integración Centroamericana (SICA).
+II.—Que Costa Rica asumió la Presidencia Pro Tempore del SICA, al ser el país la sede de la Reunión Extraordinaria de Jefes de Estado y de Gobierno del SICA se invitó a realizar una visita oficial al señor Barack Obama, Presidente de los Estados Unidos de América, en aras de la consecución de los altos intereses de la Nación.
+III.—Que es una prioridad nacional y pública el desarrollo de las relaciones internacionales como medio fundamental para promover el mejoramiento socioeconómico de la población y su calidad de vida, siendo que la Reunión extraordinaria de Jefes de Estado y de Gobierno del SICA, busca fortalecer los lazos de amistad y cooperación entre ambos países. Por tanto,
+Se emite la siguiente directriz, dirigida a todos los Jerarcas de los Ministerios e Instituciones
+Autónomas y Semiautónomas:
+1. Conceder asueto a los empleados públicos que laboran en el Cantón Central de San José, Cantón Central de Alajuela, Monte de Oca, Escazú, Curridabat, Goicoechea y Belén el día 03 de mayo del 2013, en virtud de la declaratoria de interés público, emitida mediante el Decreto Ejecutivo N° 37640-RE, en razón de la visita oficial del señor Barack Obama, Presidente de los Estados Unidos de América y los Jefes de Estado y de Gobierno del SICA.
