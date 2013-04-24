@@ -1,3 +1,4 @@
 Artículo 16.—El servidor (a) que tuviere una llegada tardía superior a quince minutos, no deberá permanecer trabajando en la respectiva mitad de la jornada, salvo que haya habido justo motivo o impedimento insalvable o que tenga la autorización del Director (a) Ejecutivo (a) o del director (a) de departamento correspondiente.
 Para los efectos del párrafo anterior, y salvo los casos exceptuados, el reporte en el registro de asistencia después de quince minutos, indicará que el servidor (a) no ha prestado sus servicios en la fracción de la jornada que corresponda a esa marca, equiparándose la falta, para efectos de la sanción, a la mitad de una ausencia.
-Las llegadas tardías se sancionarán en la forma establecida por el artículo 53 del presente Reglamento.
+Las llegadas tardías se sancionarán en la forma establecida por el artículo 56 del presente Reglamento.
+(Así reformado el párrafo anterior mediante acuerdo N° 05-13-14 tomado en sesión ordinaria N° 169-2013 del 24 de abril del 2013)
