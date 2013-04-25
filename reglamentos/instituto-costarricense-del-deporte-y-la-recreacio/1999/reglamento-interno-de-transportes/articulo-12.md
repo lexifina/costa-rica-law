@@ -1,1 +1,0 @@
-Artículo 12.—Para todo servicio de transporte, deberá existir una "solicitud de transportes", debidamente firmada por el interesado y el correspondiente jefe de Area, indicando claramente la ruta que va a recorrer, por, lo que queda terminantemente prohibido alterar la misma, salvo caso de calificada emergencia, con la autorización de la Unidad de Transportes.

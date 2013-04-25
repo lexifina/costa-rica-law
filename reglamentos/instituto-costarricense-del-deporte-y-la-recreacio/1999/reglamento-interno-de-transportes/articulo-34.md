@@ -1,2 +1,0 @@
-Artículo 34.—Para que a un vehículo particular se le reconozca el pago de kilometraje deberá estar en perfectas condiciones mecánicas incluyendo el tacómetro y el velocímetro y estará sujeto al control de salida y entrada de la Unidad de Transportes y la Sección de Vigilancia en las mismas condiciones que operan los vehículos oficiales en lo que concierne al kilometraje.
-16 de agosto de 1999.—Alba Quesada Rodríguez, Coordinadora Proceso Servicios Generales.

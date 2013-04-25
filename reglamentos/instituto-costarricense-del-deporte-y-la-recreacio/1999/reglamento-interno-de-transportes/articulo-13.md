@@ -1,1 +1,0 @@
-Artículo 13.—Los vehículos se usarán con su capacidad de tonelaje establecido, su capacidad de pasajeros y no se permitirá el recargo de los mismos. Correrá por cuenta del chofer, la responsabilidad de que se cumpla esta disposición, y será el responsable directo de que el vehículo quede bien resguardado durante las giras hasta que este retorne a la sede principal.
