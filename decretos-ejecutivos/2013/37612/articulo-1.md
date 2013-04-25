@@ -1,0 +1,15 @@
+Nº 37612-C
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140 incisos 3) y 20), artículo 146 de la Constitución Política, 25.1 de la Ley N° 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley N° 7555, Ley de Patrimonio Histórico Arquitectónico de Costa Rica del 4 de octubre de 1995, publicada en el Diario Oficial La Gaceta N° 199 del 20 de octubre de 1995 y el Decreto Ejecutivo Nº 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica (ley 7555) del 14 de marzo del 2005, publicado en La Gaceta Nº 219 del 14 de noviembre del 2005.
+Considerando:
+I.—Que la Palestra de Ciudad Colón, cantón de Mora, se construyó en 1946 en ladrillo según diseño del arquitecto José María Barrantes Monge, con elementos del neocolonial y para servir como teatro en la comunidad.
+II.—Que La Palestra representa las ideas de renovación religiosa del Arzobispo Víctor Manuel Sanabria a través de los proyectos de la Juventud Obrero Católica y el impulso del cura Ramón Secundino Varela Ortiz, así como los esfuerzos de la Parroquia de Ciudad Colón por aumentar la formación cultural y religiosa de sus vecinos.
+III.—Que La Palestra ocupa un lugar de primer orden en el imaginario colectivo de varias generaciones de Ciudad Colón, por los eventos comunales (religiosos y sociales), que se han dado ahí.
+IV.—Que La Palestra suma a su escala y proporciones una carga emotiva y simbólica que lo convierten en un hito visual y referencial de la ciudad.
+V.—Que forma parte del conjunto histórico del centro de Ciudad Colón.
+VI.—Que por las condiciones histórico-arquitectónicas citadas, y con fundamento en la Ley N° 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica y el Decreto Ejecutivo N° 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica; el Ministerio de Cultura y Juventud realizó la instrucción del procedimiento administrativo para declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble en cuestión.
+VII.—Que por Acuerdo Firme N° 6 la Comisión Nacional de Patrimonio Histórico-Arquitectónico de Costa Rica, en Sesión No. 05 celebrada el 25 de abril del 2012, emitió la opinión favorable, requerida por el artículo N° 7 de la Ley N° 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica y el artículo N° 9 inciso b) del Decreto Ejecutivo N° 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica.
+VIII.—Que es deber del Estado conservar, proteger y preservar el patrimonio histórico-arquitectónico y cultural de Costa Rica. Por tanto:
+Decretan:
+Artículo 1°—Declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble conocido como “TEATRO LA PALESTRA”, con un área de 25 metros de ancho por 40 metros de largo, que se encuentra sin inscribir en el Registro Nacional, ubicado en la provincia de San José, Cantón Mora, Distrito Ciudad Colón, exactamente en la esquina noreste de la manzana que ocupa el Templo Católico de ciudad Colón, en posesión de Las Temporalidades de la Arquidiócesis de San José.
