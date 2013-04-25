@@ -1,0 +1,1 @@
+Artículo 19.—En caso que un vehículo fuere estacionado indebidamente obstaculizando la vía de acceso, será retirado, por los medios que se consideren necesarios, y cuyos costos correrán a cuenta del infractor.

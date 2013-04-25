@@ -1,0 +1,1 @@
+Artículo 8º—Para usar las instalaciones del Parqueo, todas las personas deberán cumplir con los sistemas de ingreso que determine la Administración, sea mediante el uso de tiquete o tarjetas de acceso, o cualquier otro que en el futuro se ponga en funcionamiento.

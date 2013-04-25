@@ -1,0 +1,1 @@
+Artículo 39.—Se deberá conducir a una velocidad máxima 25 km/h dentro del estacionamiento y las vías de acceso; respetar la señalización y las instrucciones que impartan los funcionarios de seguridad y tener trato cortés y respetuoso con estos colaboradores.

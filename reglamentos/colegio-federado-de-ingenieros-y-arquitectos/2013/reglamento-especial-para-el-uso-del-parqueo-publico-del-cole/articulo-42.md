@@ -1,0 +1,2 @@
+Artículo 42.—Todo visitante tiene el derecho y el deber de denunciar ante el personal del CFIA a cargo del cuido del Parqueo, aquellos actos que en su concepto hayan ofendido las reglas convencionales de la moral o que hayan dañado las instalaciones físicas.
+En caso de actos contrarios a la moral pública, en que incurra cualquier usuario del Parqueo, será conocida por la Administración para que tome las medidas correspondientes.

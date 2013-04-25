@@ -1,0 +1,1 @@
+Artículo 46.—Es aceptado por el Funcionario o Usuario, que las sanciones impuestas no eximen del pago de los daños o perjuicios ocasionados. En ese sentido, todo daño causado a las instalaciones del parqueo deberá ser cubierto por la persona responsable.

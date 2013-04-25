@@ -1,0 +1,1 @@
+Artículo 14.—Los funcionarios, colegiados o usuarios deben estacionar correctamente sus vehículos en los espacios correspondientes y serán exclusivamente responsables de cualquier daño que causen por dolo o culpa a cualquier otro vehículo que se encuentre en el parqueo, o a cualquier bien mueble del Colegio que ahí se encuentre o al inmueble propiamente.

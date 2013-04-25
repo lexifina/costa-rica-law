@@ -1,0 +1,1 @@
+Artículo 33.—El Colegio Federado no será responsable en ningún grado en relación a los accidentes que ocurran dentro de las instalaciones por descuido, falta o negligencia de parte de colegiados, funcionarios o personas que se encuentren en las mismas.

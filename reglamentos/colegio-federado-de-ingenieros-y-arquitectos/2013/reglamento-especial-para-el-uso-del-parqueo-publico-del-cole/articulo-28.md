@@ -1,0 +1,1 @@
+Artículo 28.—Los peatones en ningún momento podrán alegar derecho alguno sobre facilidad de paso que se les brinda, pues constituye una mera gracia o tolerancia del Colegio el uso de esa zona de paso.

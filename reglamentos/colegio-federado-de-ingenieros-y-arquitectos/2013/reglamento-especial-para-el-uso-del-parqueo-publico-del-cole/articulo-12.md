@@ -1,0 +1,1 @@
+Artículo 12.—Cuando sea necesario, debido a la realización de eventos o actividades especiales, la institución se reserva el derecho de disponer temporalmente, total o parcialmente, de las zonas de parqueo.

@@ -1,0 +1,1 @@
+Artículo 40.—Cumplir dentro del estacionamiento, con todas las normas de seguridad y cortesía y los requisitos de la Ley de Tránsito, especialmente los que se refieren a emisión de gases, humo, ruido y derrame de lubricantes, grasas o combustibles.

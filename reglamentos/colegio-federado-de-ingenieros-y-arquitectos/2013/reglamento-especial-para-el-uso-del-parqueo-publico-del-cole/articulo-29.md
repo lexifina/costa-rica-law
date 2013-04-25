@@ -1,0 +1,1 @@
+Artículo 29.—El Colegio se reserva el derecho de excluir o solicitar el abandono del inmueble al peatón, cuando los peatones se comporten o asuman actitudes contrarias a la moral y a las buenas costumbres o ante el incumplimiento a las condiciones de uso y disposiciones que establezca el Colegio, referente al uso del parqueo.

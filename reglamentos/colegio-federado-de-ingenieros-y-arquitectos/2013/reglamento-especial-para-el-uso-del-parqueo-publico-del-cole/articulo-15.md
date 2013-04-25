@@ -1,0 +1,1 @@
+Artículo 15.—Queda prohibido a los funcionarios, colegiados o usuarios aparcar sus vehículos en los espacios destinados para visitantes o en cualquier otro que determine la Administración del Colegio Federado de Ingenieros y de Arquitectos.
