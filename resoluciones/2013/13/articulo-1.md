@@ -1,0 +1,9 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+Nº DGT-R–013-2013.—San José, a las diez horas con cuarenta y cinco minutos del 1° de abril de dos mil trece.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales para la correcta aplicación de las leyes tributarias dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+II.—Que mediante resolución DGT-R-009-2013 se dejó sin efecto la resolución N° 15-95V de las ocho horas, veinticinco minutos del diecisiete de febrero de mil novecientos noventa y cinco, publicada en el Diario Oficial La Gaceta N° 54, en la que se fijó la base imponible del impuesto general sobre las ventas en las etapas de fabricación e importación de Durpanel, agregando un 26% (veintiséis por ciento) a la base establecida en esos niveles.
+III.—Que la resolución N° 29-95 disponía que el crédito fiscal se calculaba multiplicando el importe de las compras de los productos clasificados en la partida arancelaria 4410, en esa oportunidad identificados como Durpanel, por el factor de 0.088794.
+IV.—Que la resolución N° 29-95 fue derogada en su oportunidad por la resolución N° 30-95 de las ocho horas treinta minutos del día nueve de noviembre de mil novecientos noventa y cinco; razón por la cual es pertinente derogar también esta última resolución en lo correspondiente al factor de crédito establecido en 0.11183 para los productos clasificados en la partida arancelaria 4410, en esa oportunidad identificados como Durpanel. Por tanto,
+RESUELVE:
+Artículo 1º—Se deja sin efecto la resolución N° 30-95 de las ocho horas treinta minutos del día nueve de noviembre de mil novecientos noventa y cinco, únicamente en lo relacionado con el factor de crédito establecido de 0.11183 para los productos clasificados en la partida arancelaria 4410, en su oportunidad identificados como Durpanel.
