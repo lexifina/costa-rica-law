@@ -1,0 +1,2 @@
+Artículo 2°—Refórmese el artículo 5° del Decreto Ejecutivo N° 36244-MTSS, “Creación de la Comisión Técnica Tripartita para la igualdad y equidad de género en el trabajo”, para que se lea de la siguiente manera:
+“Artículo 5º—Las sesiones se realizarán con la participación de al menos tres de los integrantes de la Comisión, quienes deben representar a cada uno de los sectores. Los acuerdos se adoptarán por consenso y en caso de no lograrse se decidirá por mayoría simple de los miembros presentes, contando cada sector representado con un solo voto.”
