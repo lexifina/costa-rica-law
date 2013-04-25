@@ -1,0 +1,1 @@
+Artículo 12.—Causas de denegatoria. La solicitud de una licencia municipal para ejercer la actividad, será denegada cuando pretenda ejercerse en casa de habitación, o sea contraria a la ley, al orden, la moral o las buenas costumbres y/o cuando el solicitante no haya cumplido los requisitos legales y reglamentarios.

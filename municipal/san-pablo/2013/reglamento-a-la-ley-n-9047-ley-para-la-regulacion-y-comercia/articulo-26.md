@@ -1,0 +1,2 @@
+Artículo 26.—Obligación de colocar en un lugar visible el certificado de la licencia.
+Todos los establecimientos deben tener en un lugar visible, para las autoridades municipales y de policía, el certificado de la licencia extendida por la municipalidad. En caso de extravío de este documento, deberán informar a la dependencia encargada de tramitar y aprobar las licencias en la municipalidad, justificando la pérdida en documento notarial.

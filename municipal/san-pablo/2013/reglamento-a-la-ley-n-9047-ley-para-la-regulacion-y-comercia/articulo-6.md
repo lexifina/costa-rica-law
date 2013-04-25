@@ -1,0 +1,4 @@
+Artículo 6º—Otros requisitos: Para el traspaso, traslado y explotación de la patente de Licores que se haya otorgado bajo la Ley N° 10, Ley sobre Venta de Licores, del 7 de octubre de 1936, además de los requisitos señalados en el artículo anterior, el adquiriente deberá presentar lo siguiente:
+a. Fotocopia de la cédula de identidad del cedente y del adquiriente o la persona que solicita la explotación de la licencia, en caso de ser nacional y fotocopia de la cédula de residencia, en caso de que se trate de un extranjero.
+b. En caso de traspaso, copia del documento en que conste la cesión de la patente de licores respectiva debidamente autenticada.
+c. En caso de que la patente de licores sea alquilada o prestada, deberá aportar autorización del propietario de la misma, para ser explotada en el local comercial respectivo y copia del documento privado que lo legitima para solicitar la explotación en cuestión.

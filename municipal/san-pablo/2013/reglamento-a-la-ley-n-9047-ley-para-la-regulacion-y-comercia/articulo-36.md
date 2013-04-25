@@ -1,0 +1,1 @@
+Artículo 36.—Obligación de presentar capital accionario. Es obligación de la persona jurídica que ha obtenido la licencia, de presentar cada dos años en el mes de octubre, contados a partir de su expedición, certificación notarial de la propiedad y distribución de su capital accionario, así como certificación de personería jurídica.

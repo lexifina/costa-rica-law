@@ -1,0 +1,13 @@
+CAPÍTULO III
+Procedimiento para la concesión, traspaso, traslado y explotación
+Artículo 5º—Requisitos generales. En toda solicitud de traspaso, traslado y explotación de patentes obtenidas bajo las Ley Nº 10 Ley Sobre Venta de Licores del 7 de octubre de 1936 y en las solicitudes de concesión de licencias al amparo de la Ley Nº 9047 del 8 de agosto de 2012, “Regulación y Comercialización de Bebidas con Contenido Alcohólico”, se deberá cumplir con los siguientes requisitos generales:
+a. Formulario de solicitud de patente municipal debidamente lleno, con todos los datos requeridos para su trámite, firmado por la persona interesada, en el caso de que la persona solicitante no efectúe el trámite de manera personal, la firma deberá estar autenticada por un profesional en notariado.
+b. Si se trata de una persona jurídica deberá aportar el acta constitutiva de la sociedad, así como la personería jurídica acreditando su existencia, vigencia y representación legal y la composición de su capital accionario, con no más de un mes de haber sido extendida.
+c. Deberá encontrarse al día en todas las obligaciones municipales, tanto materiales como formales, así como en la póliza de riesgos laborales, Caja Costarricense de Seguro Social y Asignaciones Familiares. En los casos que éstas instituciones no tengan la información a través de los medios tecnológicos y la municipalidad no pueda obtenerla, deberá el solicitante aportar la certificación respectiva.
+d. En caso de que el inmueble en el que se ubica el negocio comercial no sea propiedad del solicitante, deberá aportar documento idóneo que le autorice para la explotación que se pretende y se especifique la actividad comercial permitida. En todos los casos se solicitará la Certificación Literal de la propiedad.
+e. El Permiso Sanitario de funcionamiento deberá estar vigente y acorde a la actividad solicitada.
+f. Aportar copia de la última declaración por concepto de Impuesto de Renta, así como cualquier modificación que a esta se haya verificado.
+g. Haber obtenido previamente la licencia municipal comercial para desarrollar la actividad en donde se pretende comercializar bebidas con contenido alcohólico.
+h. Si se trata de una persona jurídica, deberá aportar certificación de personería jurídica con no más de un mes de haber sido extendida, copia del acta constitutiva de la empresa, acreditando su existencia, vigencia y representación legal, así como la composición de su capital accionario.
+i. Si se trata de persona física, deberá aportarse copia de la cédula de identidad.
+j. Cuando se aporten fotocopias de los documentos supra citados, deberán venir certificados por Notario Público.

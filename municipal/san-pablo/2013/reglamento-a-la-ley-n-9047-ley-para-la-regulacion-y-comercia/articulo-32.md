@@ -1,0 +1,1 @@
+Artículo 32.—Cargo de multa. Si el monto por concepto de derechos no se cancela de manera oportuna se cobrará, conjuntamente con él, una multa del uno por ciento (1%) por mes o fracción de mes sobre el monto del derecho no pagado, sin que esa multa pueda superar el veinte por ciento (20%) del derecho trimestral adeudado.

@@ -1,0 +1,2 @@
+Artículo 47.—Los materiales, mercancías y productos decomisados por las autoridades municipales en ejercicio de las potestades de policía para la fiscalización y control de los establecimientos comerciales que expendan bebidas con contenido alcohólico, así como su consumo en vías públicas, serán destruidos y desechados, levantándose al efecto un acta que acredite lo actuado en dicha diligencia, para lo cual de previo se darán las audiencias que resulten necesarias para garantizar el derecho de defensa de los posibles interesados.
+San Pablo de Heredia, 19 de abril del 2013.—

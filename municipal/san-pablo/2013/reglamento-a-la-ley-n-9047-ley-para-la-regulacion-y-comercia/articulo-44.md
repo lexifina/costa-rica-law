@@ -1,0 +1,2 @@
+Artículo 44.—Competencia de autoridades. Cuando se de cualquier condición asociada a la venta y comercialización de bebidas con contenido alcohólico sin contar de previo con la respectiva licencia de funcionamiento o el consumo de bebidas en vías públicas, las autoridades de policía mediante el levantamiento de un parte policial, podrán realizar su decomiso.
+La municipalidad deberá tramitar simultáneamente la imposición de las sanciones administrativas que correspondan, conforme al artículo 14, 15, 16, 17, 18, 19, 20, 21, 22, 23 y sus incisos de esta Ley.

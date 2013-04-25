@@ -1,0 +1,1 @@
+Artículo 41.—Medidas preventivas. Podrá el departamento de patentes en los casos que se considere necesario tomar las medidas de carácter preventivo, inclusive ordenar el cierre temporal del establecimiento para resguardar el interés público.
