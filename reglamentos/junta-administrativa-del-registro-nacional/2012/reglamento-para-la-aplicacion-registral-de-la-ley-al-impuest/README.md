@@ -14,3 +14,4 @@ Reglamento para la aplicación registral de la ley al impuesto de las personas j
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-07 | la propia norma |
+| 2 | 2013-04-25 | Reglamento 15 (2013-04-25) |
