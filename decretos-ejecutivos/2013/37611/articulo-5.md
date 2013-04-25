@@ -1,0 +1,1 @@
+Artículo 5º—Ámbito de aplicación. El PREMIO y el RECONOCIMIENTO se dirigen a instituciones del sector público costarricense, conformado por órganos y entes de la administración central y descentralizada, incluyendo entes públicos no estatales y empresas públicas.

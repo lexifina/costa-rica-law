@@ -1,0 +1,2 @@
+Artículo 16.—Cooperación. Las autoridades del sector público y privado, dentro de las atribuciones que les confiere la legislación vigente y sus posibilidades, podrán contribuir con el PROGRAMA, con recursos técnicos y económicos para la exitosa realización de la actividad indicada.
+Esta cooperación no limita la posibilidad de participar como postulante en el PREMIO y el RECONOCIMIENTO, ni tiene implicaciones en los resultados alcanzados en las etapas de evaluación.
