@@ -14,3 +14,4 @@ Reglamento Contraloría de Servicios de la Operadora de Planes de Pensiones Comp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-06 | la propia norma |
+| 2 | 2013-04-25 | Reglamento 405 (2013-04-25) |
