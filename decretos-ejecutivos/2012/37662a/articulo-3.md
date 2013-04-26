@@ -1,0 +1,23 @@
+3. DEFINICIONES Y ABREVIATURAS.
+3.1 Acreditación: Atestación o declaración de tercera parte relativa a un organismo de evaluación de la conformidad que manifiesta la demostración formal de su competencia para llevar a cabo tareas específicas de evaluación de la conformidad.
+3.2 Auxiliar de la función pública aduanera: Toda persona física o jurídica, pública o privada, que participa habitualmente ante el Servicio Nacional de Aduanas, en nombre propio o de terceros, en la gestión aduanera.
+3.3 Comerciante / Comercializador: Toda persona física, entidad de hecho o de derecho, privada o pública que, en nombre propio o por cuenta ajena, se dedica en forma habitual a ofrecer, distribuir, vender, arrendar, conceder el uso o el disfrute de bienes o a prestar servicios, sin que necesariamente esta sea su actividad principal.
+3.4 Demostración de la conformidad por primera parte: Modalidad de demostración basada en una evaluación realizada por el fabricante o proveedor y materializada en un documento formalmente emitido.
+3.5 Demostración de la conformidad por segunda parte: Modalidad de demostración basada en una evaluación realizada por un cliente y materializada en un documento formalmente emitido.
+3.6 Demostración de la conformidad por tercera parte: Modalidad de demostración basada en una evaluación realizada por un organismo de evaluación de la conformidad independiente del proveedor y del cliente, que por lo general se encuentra acreditado específicamente para ello, y materializada en un documento formalmente emitido.
+3.7 Declaración de cumplimiento: Documento emitido por el fabricante o importador en el que declara que el producto cumple con el o los reglamentos técnicos costarricenses vigentes y aplicables a dicho producto y respaldada por el procedimiento de evaluación de la conformidad que definan dichos reglamentos.
+3.8 Evaluación de la conformidad: Demostración de que se cumple los requisitos especificados en los reglamentos técnicos o normas relativos a un producto, proceso, sistema, persona u organismo.
+Nota: Los procedimientos para la evaluación de la conformidad comprenden, entre otros, los de muestreo, prueba (o ensayo) e inspección, evaluación, verificación y garantía de la conformidad; registro, acreditación y aprobación, separadamente o en distintas combinaciones.
+3.9 Organismo de acreditación: Organismo con autoridad que lleva a cabo la acreditación. La autoridad de un organismo de acreditación deriva en general del Gobierno.
+3.10 Organismo de evaluación de la conformidad (OEC): Organismo que realiza servicios de evaluación de la conformidad, pueden ser de naturaleza pública o privada, nacionales o extranjeros.
+3.11 Sistema de evaluación de la conformidad: Conjunto de disposiciones, reglas, procedimientos y normas que son aplicados para la evaluación de la conformidad de productos con características afines.
+3.12 Sello de conformidad: Marca protegida aplicada o emitida por un OEC bajo las reglas de un sistema de evaluación de la conformidad, indicando que se ha suministrado confianza adecuada de que un producto es conforme con una norma u otro documento normativo, incluido un reglamento técnico.
+3.13 Investidura oficial: Delegación de una función que le corresponde a la autoridad competente, para actuar en nombre de ella y con el fin de cumplir los objetivos estatales, bajo propia decisión y en ejercicio del poder.
+3.14 Productor/Fabricante: Cualquier persona física o jurídica responsable del diseño y fabricación de un producto con vistas a su comercialización en el mercado costarricense. Para los efectos de este procedimiento, el productor, como proveedor de bienes, también está obligado con el consumidor, a respetarle sus derechos e intereses legítimos.
+3.15 Reglamento técnico (RT): Documento en el que se establecen las características de un producto o los procesos y métodos de producción con ellas relacionados, con inclusión de las disposiciones administrativas aplicables, y cuya observancia es obligatoria. También puede incluir prescripciones en materia de terminología, símbolos, embalaje, marcado o etiquetado aplicables a un producto, proceso o método de producción, o tratar exclusivamente de ellas.
+3.16 Ensayo de tipo o muestra: Ensayo efectuado sobre uno o varios dispositivos realizados según un diseño dado, con el fin de verificar si estos dispositivos cumplen las prescripciones de la norma correspondiente.
+3.17 ECA: Ente Costarricense de Acreditación.
+3.18 ISO: Organización Internacional de Estandarización.
+3.19 Nota Técnica: Requisito no arancelario para regular el ingreso de productos al país.
+3.20 TICA: Tecnología de Información para el Control Aduanero.
+3.21 DGA: Dirección General de Aduanas

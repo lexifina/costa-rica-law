@@ -1,0 +1,3 @@
+2. CAMPO DE APLICACIÓN.
+Aplica a todos los productos cuyos reglamentos técnicos establezcan procedimientos de evaluación de la conformidad.
+Para los efectos de este reglamento se considera todo producto que se encuentre en el mercado nacional a disposición del consumidor, sea el producto de origen nacional o importado directamente para su comercialización en el mercado local, ingresado bajo los regímenes de: importación definitiva, importación temporal, reimportación y para las ventas locales de mercancías internadas en los regímenes de zonas francas y perfeccionamiento activo. Los productos que ingresen bajo estos últimos regímenes, antes de su importación para venta local deben cumplir con el procedimiento que se establece para los productos importados.
