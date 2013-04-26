@@ -1,0 +1,1 @@
+Artículo 2°—Sanciones. Si durante el proceso de vigilancia de mercado se determinan incumplimientos de las disposiciones contenidas en el presente Decreto serán sancionadas de conformidad con lo establecido en los artículos 45, 57, 60 y 61 y 62 de la Ley Nº 7472 de Promoción de la Competencia y Defensa Efectiva del Consumidor, sin responsabilidad alguna por parte del Estado.

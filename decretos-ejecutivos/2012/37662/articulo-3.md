@@ -1,0 +1,1 @@
+Artículo 3°—El gasto de los servicios que genere la aplicación del presente Procedimiento, los deberá cubrir el infractor, de conformidad con lo dispuesto en el artículo 62 de la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor.
