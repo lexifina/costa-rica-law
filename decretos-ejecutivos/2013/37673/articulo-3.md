@@ -1,0 +1,1 @@
+Artículo 3. - Derogatoria: Se deroga el Transitorio IV del Decreto Ejecutivo N° 37112-GOB deí 21 de marzo del año 2012, publicado en eí Alcance N° 64 de la Gaceta N° 95 del 17 de mayo del año 2012, reformado por el artículo 1 del Decreto Ejecutivo N° 37399 del 5 de noviembre del año 2012, publicado en el Alcance 181 de la Gaceta N° 221 del 15 de noviembre deí año 2012.
