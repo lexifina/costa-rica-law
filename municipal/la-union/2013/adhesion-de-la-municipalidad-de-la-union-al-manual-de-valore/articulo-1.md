@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LA UNIÓN
+La Municipalidad de la Unión, según acuerdo de Concejo Municipal N° 101, en la sesión ordinaria N° 222, celebrada el 7 de marzo del 2013, acuerda con dispensa de trámite de comisión y en firme aprobar la Adhesión al Manual de Valores Base Unitarios por Tipología Constructiva, publicada por el Ministerio de Hacienda, Dirección General de Tributación, Órgano de Normalización Técnica, en el Diario Oficial La Gaceta N° 23 del 01/02/2013, Alcance Digital N° 22.
