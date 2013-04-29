@@ -1,0 +1,1 @@
+Artículo 24.—La Auditoría Interna tendrá las potestades definidas en el artículo 33 de la Ley General del Control Interno así como aquéllas que determine la normativa emitida por la Contraloría General de la República.
