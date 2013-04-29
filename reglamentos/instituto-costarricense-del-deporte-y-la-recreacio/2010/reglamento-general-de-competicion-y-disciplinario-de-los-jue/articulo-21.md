@@ -1,5 +1,0 @@
-ARTICULO 21. SUSTITUCIÓN DE ATLETAS POR LESIÓN O MUERTE PARA LA ETAPA FINAL
-21.1 En deportes de conjunto o eventos por equipos en deportes individuales luego de finalizada la inscripción definitiva de los atletas que asistirán a la etapa final, podrá ser sustituido un atleta en caso de lesión o muerte hasta cinco días antes del inicio de la etapa final.
-21.2 En deportes de conjunto el sustituto debe ser un atleta que estuvo inscrito para participar con esa Agrupación en las etapas clasificatorias.
-21.3 En los deportes individuales el atleta debe ser de los suplentes inscritos si se dieran dichas inscripciones. o bien puede ser un atleta que no haya estado inscrito con ninguna otra Agrupación Deportiva en la edición correspondiente y que cumpla con todos los requisitos de participación general y especifico.
-21.4 El trámite de sustitución se llevará a cabo ante el Dpto. de Juegos Deportivos Nacionales y se debe presentar dictamen médico que certifique la lesión del atleta o un documento oficial que certifique el deceso del atleta.

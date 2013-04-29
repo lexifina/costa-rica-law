@@ -1,3 +1,0 @@
-ARTICULO 28 PUBLICIDAD DE PATROCINADORES EN UNIFORMES DE LAS AGRUPACIONES DEPORTIVAS
-28.1 Serán prohibidas para las agrupaciones deportivas la publicidad y el uso del logotipo y símbolos específicos de todos aquellos productos perjudiciales a la salud, como lo son el alcohol, el tabaco, drogas, sustancias dopantes, enervantes y similares; así como también de tipo político y religioso en los uniformes, equipos, materiales y accesorios durante la competencia
-28.2 Los uniformes de los atletas pondrán utilizar el espacio frontal o dorsal libre para publicidad siempre que no obstruyan o dificulten la visibilidad de las especificaciones técnicas del uniforme según el deporte como es la numeración u otro detalle técnico.

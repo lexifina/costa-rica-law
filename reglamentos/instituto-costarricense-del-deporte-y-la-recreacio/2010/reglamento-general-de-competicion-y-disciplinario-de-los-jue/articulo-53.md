@@ -1,2 +1,0 @@
-ARTÍCULO 53 APROBACIÓN DE REFORMAS AL REGLAMENTO
-Las propuestas para la revisión y propuestas de reformas de las normas contenidas en este Reglamento podrán hacerlas cualquiera de las agrupaciones deportivas que estén o hayan participado en los Juegos Deportivos Nacionales, así como las Federaciones Nacionales, Comités Cantonales de Deporte y Recreación y cualquier otro persona o institución con interés en él, debiendo ser dirigidas a la Oficina de Juegos Deportivos Nacionales, que elevará al Consejo Nacional de Deporte y Recreación su dictamen.
