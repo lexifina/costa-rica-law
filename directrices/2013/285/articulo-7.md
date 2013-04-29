@@ -1,0 +1,1 @@
+Artículo 7º—Se desarrollarán acciones de concientización y capacitación en materia de discapacidad dirigidas a los funcionarios del Ministerio de Educación Pública, promoviendo con esto acciones de divulgación y promoción del quehacer institucional en la materia.

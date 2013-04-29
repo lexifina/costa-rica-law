@@ -1,0 +1,1 @@
+Artículo 6º—Se deberá garantizar que la información dirigida a los funcionarios ministeriales y al público en general, sea accesible según sus necesidades particulares, empleando con esto formatos idóneos y sistemas de comunicación apropiados.

@@ -1,0 +1,1 @@
+Artículo 2º—Garantizar que el entorno, los bienes, los servicios y las instalaciones de atención al público, sean accesibles para que las personas los usen y disfruten, asimismo eliminar las acciones y disposiciones que, directa o indirectamente, promueven la discriminación o impiden a las personas con discapacidad tener acceso a los programas y servicios.

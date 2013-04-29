@@ -1,0 +1,1 @@
+Artículo 3º—Garantizar el acceso oportuno de la educación a las personas, independientemente de su discapacidad, desde la estimulación temprana hasta la educación diversificada, incluyendo la educación pública como la privada.
