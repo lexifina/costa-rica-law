@@ -1,0 +1,1 @@
+Artículo 14.—Cálculo de la caución en el nivel A. El Puesto de Gerente General deberá rendir una caución de cinco salarios base, el puesto de auditor interno una caución de tres salarios base, y el puesto de Directores de área una caución de tres y medio salarios base.

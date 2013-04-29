@@ -1,0 +1,1 @@
+Artículo 8º—Caucionantes del nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, quienes ocupen los puestos de Jefe de departamentos cuando por la atención de sus funciones recauden, custodien o administren fondos y valores.
