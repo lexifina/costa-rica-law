@@ -1,0 +1,1 @@
+Artículo 3º.— Acorde con lo estipulado en el inciso i) del artículo 4° de la Ley No. 7755, cada municipalidad deberá distribuir el monto asignado al cantón en partidas específicas, entre los distritos, en estricta conformidad con los parámetros de población, extensión geográfica y pobreza, de acuerdo con los porcentajes asignados en cada caso.
