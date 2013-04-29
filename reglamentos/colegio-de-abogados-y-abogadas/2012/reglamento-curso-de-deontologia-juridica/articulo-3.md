@@ -1,2 +1,3 @@
-Artículo 3º—Modalidades y duración. El Curso se ofrecerá mediante dos modalidades: a) Presencial que será matutina, vespertina y nocturna; b) Virtual. Cualquier modalidad comprende un total de treinta horas.
+Artículo 3º—Modalidades y duración. El Curso se ofrecerá mediante tres modalidades, según criterio de conveniencia y oportunidad de la Dirección Académica: a) Presencial que será matutina, vespertina y nocturna; b) Bimodal y c) Virtual. Cualquier modalidad comprende un total de treinta horas.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 14-13 del 29 de abril del 2013)
 Cualquier modalidad comprende un total de treinta horas. De conformidad con lo establecido en el artículo 7 de este mismo Reglamento, la Dirección Académica y de Incorporaciones del Colegio de Abogados y Abogadas, (en adelante “Dirección Académica), será el órgano encargado de establecer los horarios y fechas en las cuales se impartirá el Curso.

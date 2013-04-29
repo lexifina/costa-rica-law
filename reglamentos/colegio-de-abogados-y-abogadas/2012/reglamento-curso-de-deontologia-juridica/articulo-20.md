@@ -1,1 +1,2 @@
-Artículo 20.—Efectos. Los efectos de la prueba recurrida no se suspenderán mientras se resuelve la revisión planteada. Si la revisión se declarare con lugar, el candidato aprobará el curso. Si la revisión se declarare sin lugar, el candidato deberá repetir el Curso.
+Artículo 20.—Efectos. Los efectos de la prueba recurrida no se suspenderán mientras se resuelve la revisión planteada. Si la revisión se declarare con lugar, el candidato aprobará el curso. Si la revisión se declarare sin lugar, el candidato deberá repetir el Curso siempre que no sea la segunda vez que lo lleva (*)
+(*)(Adicionada la frase anterior mediante sesión ordinaria N° 14-13 del 29 de abril del 2013)

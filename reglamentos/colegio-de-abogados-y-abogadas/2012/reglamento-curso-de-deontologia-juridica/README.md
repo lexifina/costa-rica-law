@@ -15,3 +15,4 @@ Reglamento Curso de Deontología Jurídica
 | --- | --- | --- |
 | 1 | 2012-08-29 | la propia norma |
 | 2 | 2013-04-08 | Reglamento 12 (2013-04-08) |
+| 3 | 2013-04-29 | Reglamento 14 (2013-04-29) |
