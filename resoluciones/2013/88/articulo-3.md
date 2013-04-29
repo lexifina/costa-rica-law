@@ -1,0 +1,1 @@
+3º—La Comisión será convocada por el Director General, cuando lo considere necesario. Las sesiones se realizarán durante la jornada ordinaria laboral y sus miembros no devengarán dietas. La Dirección General de Migración y Extranjería deberá disponer de un lugar para la celebración de las sesiones.
