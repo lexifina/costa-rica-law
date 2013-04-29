@@ -1,1 +1,0 @@
-Artículo 40.—Del control del tiempo en el uso de la palabra: Corresponderá a la Secretaria Ejecutiva del Consejo Directivo, llevar el control del tiempo autorizado en el uso de la palabra para cada Miembro del Consejo y cuando se haya vencido se lo hará saber al Presidente quien sonando el timbre o campanilla le indicará al exponente que el tiempo ha llegado a su fin.

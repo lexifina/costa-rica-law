@@ -1,1 +1,0 @@
-Artículo 14.—De la asistencia de otros funcionarios de nivel gerencial: Mediante autorización de los miembros presentes, el Consejo Directivo podrá ordenar la presencia de uno de los funcionarios del nivel gerencial de la Institución para tratar puntos de agenda inherentes a su cargo.

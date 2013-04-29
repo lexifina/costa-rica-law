@@ -1,2 +1,0 @@
-Artículo 10.—De la secretaría del Consejo Directivo: La Secretaría estará integrada por una Secretaria/o Propietaria/o y un Suplente, designadas/os por el Consejo Directivo por mayoría de sus votos por el periodo de un año a partir de enero a diciembre del mismo año, pudiendo ser reelectos por períodos iguales.
-La Secretaria/o Suplente sustituirá a la Propietaria en caso de ausencia o enfermedad temporal, asumiendo los deberes y responsabilidades inherentes al cargo.

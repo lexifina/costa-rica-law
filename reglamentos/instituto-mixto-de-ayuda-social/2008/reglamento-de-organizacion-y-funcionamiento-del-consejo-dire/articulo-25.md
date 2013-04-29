@@ -1,2 +1,0 @@
-Artículo 25.—De la segunda convocatoria por inexistencia de quórum: Si no se conforma el quórum el Consejo Directivo podrá sesionar validamente en segunda convocatoria, veinticuatro horas después de la señalada para la primera sesión, salvo en casos de urgencia por motivos de interés público, debidamente declarada y demostrada, en que podrá sesionar en un término menor.
-Para la realización de estas dos últimas formas de celebración de sesiones extraordinarias bastará con la presencia de al menos la tercera parte de los miembros, sea 3 directivos.

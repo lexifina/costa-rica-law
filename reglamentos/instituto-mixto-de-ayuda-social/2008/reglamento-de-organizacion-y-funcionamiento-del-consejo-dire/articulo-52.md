@@ -1,2 +1,0 @@
-Artículo 52.—De la modificación o revocación de los acuerdos: En cualquier momento de previo a su comunicación a cualquier persona que ostente un interés legítimo o derecho subjetivo, el Consejo Directivo podrá acordar modificar o revocar uno de sus acuerdos, por motivos de oportunidad o conveniencia.
-Con posterioridad a dicha comunicación, para la revocación o nulidad de uno de sus acuerdos generadores de derechos subjetivos, se requerirá seguir el procedimiento establecido al efecto en la Ley General de la Administración Pública.

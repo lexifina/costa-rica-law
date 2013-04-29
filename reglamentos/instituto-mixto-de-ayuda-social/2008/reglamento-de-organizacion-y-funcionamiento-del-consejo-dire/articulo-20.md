@@ -1,6 +1,0 @@
-Artículo 20.—De la convocatoria a sesión extraordinaria: La convocatoria a Sesión Extraordinaria se realizará a solicitud del Presidente del Consejo Directivo o a solicitud de cuatro (4) de sus integrantes, de conformidad con las siguientes condiciones:
-a) La convocatoria será por escrito, comunicada en el lugar que al efecto señalen los directivos o su domicilio, con una antelación mínima de doce horas naturales, salvo casos de urgencia por motivos de interés público debidamente demostrados en que podrá realizarse en un término menor.
-b) Será necesario que se adjunte a la convocatoria copia del orden del día, salvo en los casos de urgencia. No obstante quedará validamente constituida la Sesión Extraordinaria sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan la totalidad de los miembros del Consejo Directivo y así lo acuerden por unanimidad.
-c) Se conocerán únicamente los asuntos indicados en la convocatoria, salvo que por unanimidad los miembros del Consejo Directivo presentes decidan conocer otros asuntos.
-En caso de ausencia temporal del Presidente Ejecutivo, la convocatoria la hará la Gerencia General.
-(Así reformado mediante acuerdos CD-179-08, y 199-08 correspondientes a las actas 037-08 del 19 de mayo de 2008, y 041-08 del 2 de junio de 2008)

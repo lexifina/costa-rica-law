@@ -1,1 +1,0 @@
-Artículo 58.—De la aprobación: El presente reglamento fue debidamente aprobado mediante acuerdo CD: 179-08 de acta 037-08, del artículo 3º de fecha 19-05-2008, y acuerdo CD: 199-08 de acta 041-08, del artículo 4º de fecha 02-06-2008 del Consejo Directivo del IMAS.

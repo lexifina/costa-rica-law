@@ -1,1 +1,0 @@
-Artículo 32.—De la responsabilidad en la formulación de los documentos: Será responsabilidad de las unidades técnicas responsables de su presentación y del funcionario del nivel gerencial correspondiente, la revisión de la información consignada en los correspondientes documentos, a efecto de que no se presenten errores en el momento de su presentación ante el Consejo Directivo.
