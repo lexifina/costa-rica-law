@@ -17,3 +17,4 @@ Reglamento de Organización y Funciones de la Dirección General de Tributación
 | 2 | 2011-03-14 | Decreto Ejecutivo 36505 (2011-03-14) |
 | 3 | 2012-04-10 | Decreto Ejecutivo 37065 (2012-04-10) |
 | 4 | 2012-12-06 | Decreto Ejecutivo 37477 (2012-12-06) |
+| 5 | 2013-04-30 | Decreto Ejecutivo 37743 (2013-04-30) |
