@@ -18,3 +18,4 @@ Reglamento de Gobierno Corporativo
 | 3 | 2010-03-26 | Reglamento 842 (2010-03-26) |
 | 4 | 2010-05-28 | Reglamento 854 (2010-05-28) |
 | 5 | 2012-10-09 | Reglamento 1005 (2012-10-09) |
+| 6 | 2013-04-30 | Reglamento 1040 (2013-04-30) |
