@@ -1,0 +1,1 @@
+Artículo 6º—De las tareas de Unidad de Comunicación Institucional del Ministerio de Hacienda. El Director tendrá la facultad de asignar las tareas a los funcionarios a su cargo o complementar las existentes así como, efectuar aquellos cambios que se requieran, para una mayor eficiencia de la comunicación del Ministerio de Hacienda.

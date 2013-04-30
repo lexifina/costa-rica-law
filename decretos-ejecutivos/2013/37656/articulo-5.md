@@ -1,0 +1,14 @@
+Artículo 5º—De las funciones de Unidad de Comunicación Institucional del Ministerio de Hacienda. La Unidad de Comunicación Institucional tendrá las siguientes funciones:
+1. Actuar como facilitador de información sobre el Ministerio de Hacienda, ante los medios de comunicación que así lo soliciten, mediante la coordinación con los Despachos del Ministro y de los Viceministros y con las direcciones de Programa.
+2. Revisar diariamente la exposición institucional ante la opinión pública, medir el efecto sobre la imagen institucional y propiciar la reacción de la institución cada vez que se estime pertinente.
+3. Propiciar espacios informativos en los medios de comunicación para dar a conocer las diferentes acciones de la institución (ej: entrevistas sobre temas específicos, artículos de opinión de funcionarios).
+4. Informar a los funcionarios sobre las acciones relevantes de la Dependencia (actividades internas y externas), previa coordinación con el Despacho del Ministro, los Despachos de los Viceministros y las Direcciones de Programa.
+5. Seleccionar los medios de comunicación apropiados para la divulgación de mensajes institucionales de interés (comunicados emitidos por la institución, avisos sobre obligaciones tributarias, campañas informativas, entre otros) y coordinar la divulgación de esos mensajes con las dependencias internas que asistan a los contribuyentes y usuarios internos y externos para un mejor cumplimiento de sus deberes con el Fisco.
+6. Apoyar las actividades de información y servicio al público que desarrolla la institución, mediante la participación en la organización de eventos, elaboración de conceptos para el diseño de material impreso, audiovisual, otros.
+7. Definir espacios informativos estratégicos para la divulgación de mensajes de interés institucional y los medios de comunicación visual a utilizar.
+8. Asesorar y coordinar con las instancias institucionales existentes, para la organización de actividades de proyección internas (actividades cívicas, seminarios, presentación de proyectos) y externas (seminarios nacionales e internacionales, convenios) y colaborar durante su realización (fotografías, memoria gráfica, actos protocolarios).
+9. Elaborar estrategias de comunicación interna (informativos, trabajos especiales, mensajes institucionales).
+10. Colaborar en la elaboración de documentos de proyección institucional (informes, memorias, presentaciones, otros).
+11. Verificar la aplicación de las políticas institucionales en los medios de comunicación interna y externa, a partir de la aprobación del libro de marca del Ministerio de Hacienda.
+12. Coordinar con las dependencias que corresponda la actualización permanente de la información divulgada mediante página web y redes sociales.
+13. Cualquier otra que le asigne el Despacho del Ministro.
