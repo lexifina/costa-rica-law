@@ -294,11 +294,11 @@ Cursos de capacitación en el campo de la actividad, las relaciones interpersona
 Manejo de armas de fuego.
 Aspectos técnicos en materia de seguridad y vigilancia.
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA(*)
-Noveno año de secundario aprobado
-Experiencia mínima de dos años en labores relacionadas con el área de actividad.
-Permiso de portación de armas.
-Capacitación en materia en seguridad y vigilancia.
-(*) (Así reformado el acápite anterior por acuerdo Legislativo Nº 38 de la sesión N° 143 del 30 de octubre de 2012)
+· Noveno año de secundaria aprobado.
+· Experiencia mínima de dos años en labores relacionadas con el área de actividad.
+· Poseer el curso teórico-práctico de armas y explosivo.
+· Capacitación en materia en seguridad y vigilancia.
+(*) (Así reformado el acápite anterior por acuerdo Legislativo Nº 04-13-14 de la sesión N° 170 del 30 de abril del 2013)
 OPERADOR DE EQUIPO MÓVIL
 Objetivo del trabajo: Comprometerse responsable y eficientemente con las labores de conducción y manejo de equipo móvil (vehículo liviano) perteneciente a la Institución y utilizado para el traslado de funcionarios, diputados, invitados especiales, equipo y materiales. Igualmente, le corresponde velar por el adecuado mantenimiento del vehículo.
 Ubicación:
