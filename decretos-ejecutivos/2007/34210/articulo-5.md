@@ -1,11 +1,11 @@
 Artículo 5º—Lineamientos generales del Programa para las entidades ejecutoras.
-1. La población beneficiaria deberá estar calificada en condición de pobreza, vulnerabilidad, riesgo o exclusión social, de conformidad con los criterios e instrumentos de selección de las entidades ejecutoras.
-2. La incorporación de los/as beneficiarios al Programa exige la matrícula en el sistema educativo formal en secundaria, en cualquiera de sus modalidades. Para estimular el rendimiento educativo de los/as estudiantes incorporados al Programa Avancemos, estos sólo podrán repetir, por una única vez, un nivel educativo.
-3. Los casos de adolescentes y jóvenes mayores de 12 años que no han concluido la educación primaria podrán ser incluidos en el Programa Avancemos como un proyecto específico, previa valoración técnica de cada caso y de acuerdo al lineamiento que al respecto emita la Secretaría Técnica.
-4. Las familias, en tanto corresponsables del Programa, deberán suscribir un documento mediante el cual adquieren como mínimo los siguientes compromisos, como requisito para tener acceso a los beneficios del Programa:
+1. La población beneficiaria deberá estar calificada en condición de pobreza, vulnerabilidad, riesgo o exclusión social, de conformidad con los criterios e instrumentos de selección del IMAS.
+2. La incorporación de los/as beneficiarios al Programa exige la matrícula en el sistema educativo formal en secundaria, en cualquiera de sus modalidades. Para estimular el rendimiento educativo de las y los estudiantes incorporados al Programa Avancemos, estos sólo podrán repetir, por dos veces consecutivas, un mismo nivel educativo; salvo casos debidamente justificados por la dirección del centro educativo o el profesional ejecutor del IMAS, en los cuales el estudiante podrá repetir un mayor número de veces el mismo nivel.
+3. Los casos de adolescentes y jóvenes mayores de 11 años que no han concluido la educación primaria podrán ser incluidos en el Programa Avancemos como un proyecto específico, aprobado por el Consejo Directivo del IMAS, previa valoración técnica.
+4. Las familias, en tanto corresponsables del programa, deberán suscribir un documento mediante el cual adquieren como mínimo los siguientes compromisos, como requisito para tener acceso a los beneficios del programa:
 a) Apoyar y asegurar la asistencia puntual y permanente de quienes estudian en el centro educativo.
 b) Apoyar a quienes estudian para que aprueben el curso lectivo.
-c) Recibir el incentivo del Programa por medio de una sola entidad ejecutora.
-d) Verificar que el o la estudiante reciba valoración integral por parte de la CCSS durante el año.
-5. Las familias no podrán recibir la transferencia correspondiente a un mismo estudiante incorporado al Programa Avancemos por parte de ambas entidades responsables de su pago (IMAS y FONABE), para lo cual se establecerán adecuados mecanismos de coordinación para evitar esta duplicación.
-6. No hay límite para la cantidad de estudiantes que una familia postule para el Programa Avancemos, en tanto se cumpla con los requisitos necesarios establecidos. Sin embargo, se establece un tope máximo de ochenta mil colones por familia beneficiaria. En casos justificados se podrá otorgar montos superiores a los establecidos, previa valoración técnica.
+c) Garantizar que el estudiante o la estudiante no reciban otra transferencia, subsidio o beca, para el mismo fin.
+d) Velar porque el estudiante o la estudiante reciba los cuidados de salud, cuando así lo requiera.
+5. Las familias no podrán recibir transferencias o becas destinadas a un mismo fin, para un estudiante incorporado al Programa Avancemos, por parte del IMAS y FONABE; para lo cual se establecerán adecuados mecanismos de coordinación para evitar esta duplicación.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 37765 del 30 de abril de 2013)

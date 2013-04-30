@@ -17,6 +17,7 @@ Considerando:
 Decretan:
 El siguiente,
 Reglamento de Operación del Programa
-Avancemos para el Año 2008
+Avancemos(*)
+(*) (Modificada su denominación por el artículo 1° del decreto ejecutivo N° 37765 del 30 de abril de 2013. Anteriormente se llamaba: "Reglamento de Operación del Programa Avancemos para el año 2008")
 Artículo 1º—De la coordinación. El Programa Avancemos se mantendrá bajo la rectoría del Ministro Rector del Sector Social y Lucha contra la Pobreza, tal como lo define el artículo 5º del Decreto Nº 33154-MP-MIDEPLAN-MEP-MTSS-MIVAH. La coordinación general, seguimiento, monitoreo y evaluación del Programa corresponderá al Viceministerio de Vivienda y Desarrollo Social, con funciones de Secretaría Técnica.
 La Secretaría Técnica, coordinará con las instituciones involucradas la definición de los lineamientos necesarios con el fin de mejorar la ejecución del Programa Avancemos.

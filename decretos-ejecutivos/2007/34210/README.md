@@ -14,3 +14,4 @@ Reglamento de Operación del Programa Avancemos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-08 | la propia norma |
+| 2 | 2013-04-30 | Decreto Ejecutivo 37765 (2013-04-30) |
