@@ -1,0 +1,18 @@
+Artículo 22
+De la vigencia de este Instructivo
+El presente instructivo rige a partir de la publicación en el Diario Oficial La Gaceta, y deja sin efecto al “Instructivo que regula el trámite de las solicitudes de arreglos y convenios de pago a patronos morosos”, publicado en el Diario Oficial la Gaceta número 77 del 22 de abril del 2010.
+Glosario
+Patrono: Es toda persona física o jurídica, particular o de derecho público que emplea los servicios de otra u otras en virtud de un contrato de trabajo, expreso o implícito, verbal o escrito, individual o colectivo (artículo 2, Código de Trabajo y Leyes conexas).
+Trabajador independiente: Es toda persona física, con actividades manuales o intelectuales, que desarrolle por cuenta propia algún tipo de trabajo o actividad generadora de ingresos.
+Moroso: Se considera moroso o deudor con la seguridad social, a toda persona física o jurídica (patrono o trabajador independiente), que no haya pagado las cuotas de los seguros de salud, pensiones y los aportes establecidos en la Ley de Protección al Trabajador, una vez transcurrida la fecha que se establece para su pago oportuno. Se excluye como moroso aquel deudor que haya formalizado con la Caja un arreglo o convenio de pago, y que se encuentra al día en el pago de sus cuotas.
+Cobro Administrativo: Son las planillas ordinarias, adicionales, o infracciones al artículo 36 y 44 de la Ley Constitutiva de la Caja Costarricense de Seguro Social que se encuentran vencidas y no presentan ningún proceso de cobro por la vía judicial.
+Cobro Judicial: Se refiere a las certificaciones de cobro que han sido presentadas a las instancias judiciales.
+Retención indebida: Se trata de una acusación penal ante el Ministerio Público, que se lleva a cabo contra el representante legal del ente deudor, por el concepto de cuotas obreras y sus intereses. Este proceso es diferente al cobro judicial.
+SICERE: Sistema Centralizado de Recaudación que utiliza la Caja para facturar, recaudar y cobrar las cuotas y aportes, de conformidad con su Ley Constitutiva.
+Adecuaciones de pago: Son acuerdos de pago administrativos entre la Caja y los patronos o trabajadores independientes, que permiten normalizar su situación de morosidad con la Institución. Existen los siguientes tipos de adecuaciones: Arreglos de pago, convenios administrativos, daciones en pago, cesión de facturas y readecuaciones de pago.
+Arreglos de pago: Es una adecuación en la cual media una garantía, a saber: hipoteca en 1er y 2do grado, cédulas hipotecarias en 1er grado, fiduciaria, títulos valores, aval bancario o garantía de cumplimiento, cesión de contratos o combinación de las garantías anteriores.
+Convenios de Pago: Es un acuerdo de pago entre las partes y no requiere de una garantía.
+Daciones en Pago: Consiste en otorgar a la Caja Costarricense de Seguro Social, un bien de interés institucional por las cuotas pendientes.
+Cesión de Facturas: Consiste en ceder facturas a favor de la Caja Costarricense de Seguro Social, originadas por la venta de bienes y/o servicios a la Institución.
+Readecuaciones de pago: Consiste en realizar un convenio o arreglo de pago cuando un patrono o trabajador independiente se encuentre moroso en el pago de las cuotas establecidas en el acuerdo, en planillas o cuotas de trabajador independiente. En la readecuación se debe incluir el total de los montos adeudados según las condiciones que se establecen en el artículo 7, incisos 7.11, 7.11.3 y 7.11.7 del presente instructivo.
+Cesión de Contratos: Consiste en ceder como garantía de pago a la Caja Costarricense de Seguro Social, un contrato o contratos, el cual se aceptará bajo criterios previos de razonabilidad, oportunidad y conveniencia institucional.
