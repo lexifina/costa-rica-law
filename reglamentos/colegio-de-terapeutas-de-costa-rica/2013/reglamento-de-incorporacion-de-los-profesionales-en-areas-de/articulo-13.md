@@ -1,0 +1,1 @@
+Artículo 13.—De la remisión del expediente al CONESUP. Cuando en las solicitudes de incorporación una vez prevenidas y contestadas, persista la inconsistencia detectada, la Junta Directiva podrá remitir el caso al CONESUP y al CONARE para que se inicie el procedimiento contemplado en el artículo 173 de la Ley General de la Administración Pública.

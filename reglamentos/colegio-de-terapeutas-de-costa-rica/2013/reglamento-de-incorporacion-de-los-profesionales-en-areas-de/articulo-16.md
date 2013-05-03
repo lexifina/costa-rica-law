@@ -1,0 +1,1 @@
+Artículo 16.—El costo de la mensualidad o cuota de colegiatura será de “Cinco Mil quinientos colones mensuales para todo el año 2013” el cual se aumentara cada año según lo que establezca acuerdo firme de Junta Directiva dentro de los parámetros de razonabilidad y legalidad.

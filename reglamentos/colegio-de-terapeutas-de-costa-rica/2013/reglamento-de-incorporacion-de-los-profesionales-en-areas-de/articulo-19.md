@@ -1,0 +1,1 @@
+Artículo 19.—La personería del Colegio. Para toda Institución Pública o Privada, agremiado o particular que solicite la Personería del Colegio esta será emitida por el Departamento Legal del Colegio llevara 125 colones en timbre fiscales, 5 colones de timbre de Archivo y deberá ser hecha en papel de seguridad con fe pública Notarial y sello Blanco

@@ -1,0 +1,1 @@
+Artículo 20.—De los funcionarios públicos del Colegio que ayudan en el proceso de incorporación por mandato de la Junta Directiva estos deberán estar identificados con el respectivo carné de funcionarios del Colegio y sus actos serán validos para todo trámite dentro del marco de sus competencias o designación de ellas por Junta Directiva.
