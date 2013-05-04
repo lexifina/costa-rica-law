@@ -1,3 +1,3 @@
-ARTICULO 20.-
-Los zoocriaderos o viveros que se dediquen a la reproducción de especies silvestres con fines comerciales, deberán estar inscritos ante la Dirección General de Vida Silvestre del (*)Ministerio de AAmbiente, Energía y Telecomunicaciones con los requisitos que estipula esta Ley y su Reglamento. Estos establecimientos deberán ser regentados por un profesional competente en el campo de los recursos naturales, quien fiscalizará, cuantitativa y cualitativamente, la recolección, reproducción y manejo de las especies animales o vegetales.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
+Artículo 20.- Los sitios de manejo de vida silvestre privados que se dediquen a la conservación, educación, investigación, exhibición, reproducción, restauración y reintroducción de vida silvestre con o sin fines comerciales, deberán estar inscritos ante el Sinac y contar con un plan de manejo aprobado.
+El precio para inscripción y servicios que deberán cancelar se definirá vía decreto ejecutivo y se depositará en la cuenta del Fondo de Vida Silvestre.
+(Así reformado por el artículo 1° de la ley N° 9106 del 20 de diciembre de 2012)

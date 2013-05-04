@@ -1,3 +1,3 @@
-ARTICULO 43.-
-La recolecta científica o cultural de la flora y fauna silvestres podrá realizarse en áreas oficiales de protección, con el permiso escrito de la institución que las administre y en terrenos de propiedad privada, con el permiso de quien estuviera legalmente autorizado para otorgarlo.
-La recolecta científica o cultural sólo podrá realizarse de acuerdo con los métodos y condiciones que estipule el Reglamento de esta Ley.
+Artículo 43.- La investigación de vida silvestre podrá realizarse en áreas silvestres protegidas con la autorización escrita de la administración del área silvestre protegida, y en terrenos de propiedad privada, con la autorización escrita de quien estuviera legalmente autorizado para otorgarla.
+La colecta científica o cultural solo podrá realizarse de acuerdo con los métodos y las condiciones que estipule el reglamento de esta ley.
+(Así reformado por el artículo 1 de la ley N° 9106 del 20 de diciembre de 2012)

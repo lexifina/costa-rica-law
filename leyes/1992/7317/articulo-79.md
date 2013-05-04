@@ -1,2 +1,2 @@
-ARTICULO 79.-
-Se prohíbe la exportación, importación o trasiego de la fauna y la flora, sus productos o subproductos incluidos en los apéndices de la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres (CITES), con países no miembros de la Convención.
+Artículo 79. Se prohíbe la exportación, importación o tráfico de la fauna y la flora, sus productos, partes o derivados, incluidos en los apéndices de la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres (Cites) con países que apliquen medidas iguales o equivalentes a las establecidas por la Convención.
+(Así reformado por el artículo 1° de la ley N° 9106 del 20 de diciembre de 2012)

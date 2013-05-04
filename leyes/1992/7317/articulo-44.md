@@ -1,4 +1,2 @@
-ARTICULO 44.-
-Para la exportación de especímenes obtenidos por una recolecta científica o cultural, se debe contar con el permiso por escrito de la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**), de acuerdo con el procedimiento establecido en esta Ley.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Artículo 44.- El permiso de exportación de ejemplares únicos o raros, obtenidos mediante colecta científica o académica, podrá otorgarse previa consulta con especialistas en el campo, los cuales, una vez catalogados, determinarán si el ejemplar o los ejemplares salen libremente o en calidad de préstamo, de acuerdo con el interés público.
+(Así reformado por el artículo 1° de la ley N° 9106 del 20 de diciembre de 2012)

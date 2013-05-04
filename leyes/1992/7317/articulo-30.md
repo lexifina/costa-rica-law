@@ -1,4 +1,3 @@
-ARTICULO 30.-
-Las licencias de caza serán expedidas por la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**), por medio de la dependencia encargada de la vida silvestre en los lugares que ésta establezca, previo pago del canon correspondiente y del cumplimiento de los demás requisitos que se establezcan por vía reglamentaria.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Artículo 30.- Las licencias de caza serán expedidas por el Sinac, previo cumplimiento de los requisitos establecidos en esta ley y su reglamento.
+El precio por el otorgamiento de licencias, así como la validez de las licencias de caza de control para nacionales y extranjeros residentes se establecerán vía decreto y el monto resultante se depositará en la cuenta del Fondo de Vida Silvestre.
+(Así reformado por el artículo 1° de la ley N° 9106 del 20 de diciembre de 2012)

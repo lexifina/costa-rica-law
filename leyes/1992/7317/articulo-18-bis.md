@@ -1,0 +1,2 @@
+Artículo 18 bis.- Los decomisos provenientes de la extracción y el comercio de vida silvestre nativa y exótica por infracciones a la presente ley o su reglamento podrán ser reubicados prontamente en su hábitat natural o de no ser posible lo anterior, en sitios de manejo, de acuerdo con el criterio técnico de las autoridades correspondientes.
+(Así adicionado por el artículo 2° aparte b) de la ley N° 9106 del 20 de diciembre del 2012)

@@ -1,6 +1,6 @@
-ARTICULO 19.-
-Créase el Registro Nacional de Flora y Fauna Silvestres, como una dependencia de la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**).
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
-La función primordial de este Registro será la inscripción y el control de los animales y plantas silvestres que permanezcan en zoológicos, acuarios, públicos o comerciales, viveros, zoocriaderos y los que estén en manos de los particulares, los cuales estarán obligados por ley a reportarlos a dicho Registro.
-La inscripción de los animales y plantas silvestres, sus productos o subproductos, que se encuentren en estos lugares, será realizada según los procedimientos establecidos en el Reglamento de esta Ley.
+Artículo 19.- Se crea el Registro Nacional de Vida Silvestre (RNVS) en el Sinac.
+Este Registro será público y de fácil acceso y deberá compartirse con las instituciones públicas y con cualquier persona que así lo solicite.
+La función primordial de este Registro será la inscripción y el control de la vida silvestre que permanezca en sitios de manejo de vida silvestre, además de la que se encuentra en manos de particulares, inclusive los organismos disecados y colecciones particulares o privadas. En todos los casos estarán obligados por ley a reportarlos a dicho Registro. Los tipos de registros serán definidos vía reglamento.
+Las instituciones científicas, públicas o privadas, así como los particulares y toda persona física o jurídica que se dediquen a la taxidermia y otros procesamientos de vida silvestre, de sus partes, productos o derivados, también deberán estar inscritos y cumplir con los requisitos establecidos en el reglamento de esta ley.
+La inscripción, el marcaje y la identificación de la vida silvestre, partes, productos y derivados, que se encuentren en estos lugares, será realizada según los procedimientos establecidos en el reglamento de esta ley.
+(Así reformado por el artículo 1° de la ley N° 9106 del 20 de diciembre de 2012)

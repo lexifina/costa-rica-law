@@ -1,2 +1,3 @@
-ARTICULO 63.- La licencia de pesca continental e insular será expedida por la Dirección General de Vida Silvestre del Ministerio de Ambiente, Energía(*), previa solicitud y pago del canon correspondiente establecido en esta Ley.
+Artículo 63.- La licencia de pesca continental e insular será expedida por Sistema Nacional de Áreas de Conservación(*) del Ministerio de Ambiente, Energía(*), previa solicitud y pago del canon correspondiente establecido en esta Ley.
 (*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+(**)Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre del 2012 anteriormente se indicaba: "Dirección General de Vida Silvestre")

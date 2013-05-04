@@ -1,3 +1,2 @@
-ARTICULO 39.-
-La licencia de recolecta científica o cultural se expedirá por un período máximo de un año a los nacionales o residentes y hasta por seis meses a los demás extranjeros. En ambos casos, la licencia podrá ser suspendida por la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente, Energía y Telecomunicaciones, cuando quien la posea contravenga la presente Ley o su Reglamento o cuando se considere su uso inconveniente para los intereses nacionales.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
+Artículo 39.- La colecta de vida silvestre solamente podrá realizarse mediante los métodos adecuados que determinará el Sinac y que se establecerán vía decreto ejecutivo, previa consulta a las autoridades respectivas.
+(Así reformado por el artículo 1° de la ley N° 9106 del 20 de diciembre de 2012)

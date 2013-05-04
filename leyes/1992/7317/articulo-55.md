@@ -1,4 +1,3 @@
-ARTICULO 55.-
-Toda exportación de la flora nativa, de sus productos o subproductos, debe llevar, además de los certificados fitosanitarios y de los otros requisitos que especifiquen las leyes conexas, el permiso extendido por la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**). Cuando corresponda, también debe cumplir con lo establecido en las convenciones internacionales ratificadas por el Estado.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Artículo 55.- Se faculta al Sinac para otorgar permisos de exportación para especies reproducidas en sitios de manejo de vida silvestre, inscritos según la presente ley; los permisionarios deberán gestionar además los certificados sanitarios y de los otros requisitos que especifiquen las leyes conexas y convenciones internacionales.
+El precio para el otorgamiento del permiso de exportación se establecerá vía decreto ejecutivo y se depositará en la cuenta del Fondo de Vida Silvestre. Los permisos de exportación otorgados no serán transferidos a terceras personas, sin la previa autorización del Sinac.
+(Así reformado por el artículo 1 de la ley N° 9106 del 20 de diciembre de 2012)
