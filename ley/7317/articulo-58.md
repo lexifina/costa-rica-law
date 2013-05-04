@@ -1,2 +1,4 @@
-ARTICULO 58.-La extracción o recolecta de la flora silvestre solamente podrá realizarse mediante los métodos adecuados, que determine la Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía(*), previa consulta a las autoridades respectivas.
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Artículo 58.-La extracción o colecta (**) de la flora silvestre solamente podrá realizarse mediante los métodos adecuados, que determine la Sistema Nacional de Áreas de Conservación (**) del Ministerio de Ambiente y Energía(*), previa consulta a las autoridades respectivas.
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+(**)(Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre de 2012, anteriormente se indicaba: "Dirección General de Vida Silvestre")
+(**)(Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre de 2012, anteriormente se indicaba: "recolecta")

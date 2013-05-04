@@ -1,2 +1,3 @@
-ARTICULO 71.-
-El Poder Ejecutivo nombrará una o varias autoridades administrativas, de conformidad con lo dispuesto en la Convención sobre el Comercio Internacional de Especies Amenazadas de Flora y Fauna Silvestres (CITES), cuya función principal será la de otorgar, cuando corresponda, los permisos de exportación e importación y los certificados de origen.
+Artículo 71.- El Sistema Nacional de Áreas de Conservación será la autoridad administrativa, de conformidad con lo dispuesto en la Convención sobre el Comercio Internacional de Especies Amenazadas de vida Silvestre(*), cuya función principal será cumplir los objetivos de la Convención y otorgar o denegar, cuando corresponda, los permisos de exportación e importación y los certificados de origen.
+(Así reformado por el artículo 1 de la ley N° 9106 del 20 de diciembre de 2012)
+(*) (Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre de 2012, anteriormente se indicaba: "flora y fauna silvestre")

@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Los montos que se recaudan por concepto de todos los cánones establecidos en la Ley N.º 7317, Ley de Conservación de Vida Silvestre, se depositarán en la cuenta del Fondo de Vida Silvestre.

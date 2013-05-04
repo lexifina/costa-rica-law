@@ -1,8 +1,9 @@
 CAPITULO II
 De la organización administrativa
-Artículo 6.-El Sistema Nacional de Áreas de Conservación(**) del Ministerio de Ambiente y Energía(*) es el órgano competente en materia de planificación, desarrollo y control de la flora y de la fauna silvestres.
+Artículo 6.-El Sistema Nacional de Áreas de Conservación(**) del Ministerio de Ambiente y Energía(*) es el órgano competente en materia de planificación, desarrollo y control de la vida silvestre. (**)
 (*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
-(**)(Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre de 2012, anteriormente se indicaba:"Dirección General de Vida Silvestre")
+(**)(Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre del 2012, anteriormente se indicaba: “Dirección General de Vida Silvestres”)
+(**)(Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre del 2012, anteriormente se indicaba: “flora y de la fauna silvestres”)
 El Ministro, en su condición de rector del sector de recursos naturales, energía y minas, tiene las siguientes competencias en esta materia:
 a) Definir, conjuntamente con el Presidente de la República, las directrices de Gobierno para el sector.
 b) Velar porque la organización y el funcionamiento de las instituciones del sector de recursos naturales respondan adecuadamente a los requerimientos de los objetivos de esta Ley, así como a las directrices y disposiciones en materia de planificación.

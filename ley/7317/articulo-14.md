@@ -1,7 +1,16 @@
-CAPITULO IV
-De la protección de la Vida Silvestre
-ARTICULO 14.-
-Queda prohibida la caza, la pesca y la extracción de fauna y flora continentales o insulares de especies en vías de extinción, con excepción de la reproducción efectuada, "sosteniblemente", en criaderos o viveros que estén registrados en la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**), previo el estudio científico correspondiente.
-Se exceptúan de la prohibición establecida en este artículo, los aprovechamientos realizados de flora y los productos o los subproductos derivados de estos, no declarados en peligro de extinción, en los bosques sometidos a planes de manejo forestal "sostenible", con el fin de lograr el máximo aprovechamiento y evitar el desperdicio de productos y subproductos del bosque. Para efectuar la recolecta, el trasiego y la comercialización de las plantas, deberá cumplirse con los requisitos establecidos por la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**), el que otorgará el permiso establecido en el artículo 54.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+CAPÍTULO IV
+Conservación y manejo de la vida silvestre
+(Así reformado el capítulo anterior por el artículo 1° de la ley N° 9106 del 20 de diciembre de 2012)
+Artículo 14.- El Estado, por medio del Sinac y demás autoridades competentes, regulará las siguientes actividades:
+a) Caza
+Se prohíbe la caza de vida silvestre excepto en los casos en que, con base en los estudios técnico-científicos, esa práctica se requiera para el control de especies con altas densidades de población que atenten contra su propia especie, otras especies silvestres o la estabilidad misma del ecosistema que las soporta. La caza deportiva queda totalmente prohibida, únicamente será permitida la caza de control y la caza de subsistencia.
+b) Colecta
+Se prohíbe la colecta de vida silvestre salvo cuando su destino sea un sitio de manejo legalmente establecido para la reproducción con fines de conservación, investigación, educación, reintroducción o comerciales. El Sinac determinará cuáles especies serán objeto de estudios poblacionales para establecer el plantel parental para centros de reproducción autorizados.
+c) Extracción
+Se prohíbe la extracción de vida silvestre salvo cuando su destino sea un sitio de manejo legalmente establecido para la reproducción con fines de conservación, reintroducción o comerciales. El Sinac determinará cuáles especies serán objeto de estudios poblacionales para establecer el plantel parental para centros de reproducción autorizados.
+d) Tenencia
+Se prohíbe la tenencia en cautiverio de vida silvestre salvo cuando provenga de un sitio de manejo legalmente establecido para la reproducción con fines de conservación, reintroducción o comerciales. El Sinac determinará cuáles especies serán objeto de estudios poblacionales para establecer el plantel parental para centros de reproducción autorizados.
+Para efectuar la colecta, el transporte y la comercialización de la vida silvestre se deberá cumplir con los requisitos establecidos en esta ley y su reglamento.
+El Sinac, establecerá, con base en criterio técnico-científico y con el apoyo técnico de instituciones científicas, las listas oficiales de especies en peligro de extinción, poblaciones reducidas, amenazadas y especies autorizadas para la cacería de control, así como otras listas para la protección y el manejo de la vida silvestre que se estimen convenientes.
+Estas listas deberán actualizarse al menos cada dos años.
+(Así reformado por el artículo 1 de la ley N° 9106 del 20 de diciembre de 2012)

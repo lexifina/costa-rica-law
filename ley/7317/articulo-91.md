@@ -1,6 +1,6 @@
-Artículo 91.-
-Quien importe o exporte, sin autorización del Sistema Nacional de Áreas de Conservación, la flora silvestre, sus productos o subproductos, será sancionado en la siguiente forma:
-a) Con pena de multa de uno (1) a diez (10) salarios base o pena de prisión de dos (2) a cuatro (4) meses, y el comiso de las piezas que constituyen el producto de la infracción, cuando se trate de especies declaradas en peligro de extinción o con poblaciones reducidas, o incluidas en los apéndices de la Convención sobre el comercio internacional de especies amenazadas de flora y fauna silvestres (Cites).
+Artículo 91.-Quien importe o exporte, sin autorización del Sistema Nacional de Áreas de Conservación, la flora silvestre, sus productos o subproductos, será sancionado en la siguiente forma:
+a) Con pena de multa de uno (1) a diez (10) salarios base o pena de prisión de dos (2) a cuatro (4) meses, y el comiso de las piezas que constituyen el producto de la infracción, cuando se trate de especies declaradas en peligro de extinción o con poblaciones reducidas, o incluidas en los apéndices de la Convención sobre el comercio internacional de especies amenazadas de vida silvestre(*).
+(*)(Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre de 2012, anteriormente se indicaba: "flora y fauna silvestre")
 b) Con pena de multa de cinco (5) a quince (15) salarios base o pena de prisión de tres (3) a seis (6) meses, si se trata de productos o subproductos de árboles maderables declarados en peligro de extinción o con poblaciones reducidas e incluidos en los apéndices de la Cites.
 c) Con pena de multa del cincuenta por ciento (50%) de uno (1) a tres (3) salarios base o pena de prisión de uno (1) a tres (3) meses, y el comiso de las piezas que constituyan el producto de la infracción, cuando se trate de plantas que no se encuentren en peligro de extinción.
-(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008).
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008)

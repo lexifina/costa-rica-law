@@ -1,4 +1,4 @@
-ARTICULO 46.-
-Cuando los especímenes obtenidos, mediante recolecta científica o cultural se destinen a instituciones extranjeras, la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**), exigirá, antes de otorgar el permiso de exportación con fines científicos o culturales, la entrega de ejemplares idénticos para el Museo Nacional y a la Universidad de Costa Rica (Ley No. 4594 del 22 de julio de 1970) y para los jardines botánicos y los zoológicos estatales, única y exclusivamente.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Artículo 46.- Cuando los especímenes obtenidos mediante colecta científica o académica se destinen a entidades extranjeras, el Sinac exigirá antes de otorgar el permiso de exportación con fines científicos o académicos, la entrega de ejemplares idénticos para el Museo Nacional y la Universidad de Costa Rica (Ley N.º 4594, de 1 de julio de 1970).
+Cuando los especímenes hayan sido accesados por medio de un permiso de acceso otorgado por Conagebio y no se traten de especies incluidas en las listas de Cites, no se exigirá permiso de exportación por parte de Sinac.
+Los exportadores e importadores de especímenes de vida silvestre con fines comerciales deberán estar inscritos ante el Sinac.
+(Así reformado por el artículo 1 de la ley N° 9106 del 20 de diciembre de 2012)

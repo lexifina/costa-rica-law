@@ -1,4 +1,3 @@
-ARTICULO 23.-
-La tenencia de la fauna y flora silvestres en peligro de extinción, en cautiverio o en viveros, inclusive los animales disecados, adquirida conforme a las regulaciones de la presente Ley y de su Reglamento, debe ser inscrita y marcada ante la Dirección General de Vida Silvestre del (*)Ministerio de Ambiente y Energía(**). El registro se efectuará de acuerdo con lo fijado en el Reglamento de la presente Ley.
-(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
-(**)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Artículo 23.- Se aplicará la eutanasia en vida silvestre cuando se demuestre la necesidad, mediante criterio técnico-científico del veterinario que aplicará el procedimiento.
+Esta será efectuada por medio de un veterinario o bajo su supervisión directa. Tanto los métodos para efectuar la eutanasia como las disposiciones sobre el uso final de los animales sacrificados serán determinados vía reglamento.
+(Así reformado por el artículo 1° de la ley N° 9106 del 20 de diciembre de 2012)

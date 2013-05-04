@@ -1,3 +1,4 @@
-ARTICULO 83.-
-Se prohíbe la extracción de la flora y la fauna silvestres, continentales e insulares, en los refugios nacionales de vida silvestre, con excepción del manejo y la extracción para viveros o zoocriaderos, previa realización de los correspondientes estudios científico técnicos.
-La Dirección General de Vida Silvestre tendrá las facultades y deberes que establece la Ley No. 6043, respecto de los Refugios Nacionales de Vida Silvestre que incluyen áreas de la zona marítimo terrestre.
+Artículo 83.-Se prohíbe la extracción de vida silvestre(*), continentales e insulares, en los refugios nacionales de vida silvestre, con excepción del manejo y la extracción para viveros o zoocriaderos, previa realización de los correspondientes estudios científico técnicos.
+El Sistema Nacional de Áreas de Conservación(*) tendrá las facultades y deberes que establece la Ley No. 6043, respecto de los Refugios Nacionales de Vida Silvestre que incluyen áreas de la zona marítimo terrestre.
+(*)Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre del 2012 anteriormente se indicaba: "Dirección General de Vida Silvestre")
+(*)Modificada su denominación por el artículo 3° de la ley N° 9106 del 20 de diciembre del 2012 anteriormente se indicaba: " flora y la fauna silvestres")
