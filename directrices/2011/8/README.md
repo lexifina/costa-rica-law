@@ -14,3 +14,4 @@ Establece Procedimiento Administrativo para la Recuperación de Sumas Giradas de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-08 | la propia norma |
+| 2 | 2013-05-06 | Directriz 15 (2013-05-06) |
