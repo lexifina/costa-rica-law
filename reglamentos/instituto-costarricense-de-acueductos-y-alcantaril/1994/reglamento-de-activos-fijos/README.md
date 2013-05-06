@@ -15,3 +15,4 @@ Reglamento de Activos Fijos
 | --- | --- | --- |
 | 1 | 1994-02-09 | la propia norma |
 | 2 | 1999-02-10 | Reglamento 0 (1999-02-10) |
+| 3 | 2013-05-06 | Reglamento 0 (2013-05-06) |
