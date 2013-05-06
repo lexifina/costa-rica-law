@@ -14,3 +14,4 @@ Reforma Integral Reglamento de Activos Fijos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-26 | la propia norma |
+| 2 | 2013-05-06 | Reglamento 0 (2013-05-06) |
