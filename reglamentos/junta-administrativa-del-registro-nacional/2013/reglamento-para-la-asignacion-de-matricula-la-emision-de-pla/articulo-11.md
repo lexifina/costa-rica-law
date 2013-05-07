@@ -1,0 +1,2 @@
+Artículo 11.—Cambio de matrícula para los vehículos inscritos: Los vehículos automotores inscritos, podrán optar por el cambio de matrícula de numérica a alfanumérica, sin perjuicio de las restricciones respecto a códigos especiales que impone la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.
+La asignación de matrículas alfanuméricas se realizará por una sola vez, de manera tal que no procederán cambios posteriores, salvo que se trate de una modificación en el uso del vehículo.

@@ -1,0 +1,2 @@
+Transitorio II.—El proceso de cambio de matrículas a alfanuméricas se iniciará con los vehículos de uso particular, de forma tal que el Registro podrá incluir otras categorías conforme a los estudios técnico-jurídicos y las políticas administrativas que determine la Dirección.
+Aprobado mediante acuerdo firme J057 adoptado por la Junta Administrativa del Registro Nacional en la sesión ordinaria Nº 05-2013, celebrada en San José, el día catorce de febrero del dos mil trece. Rige a partir de su publicación en el Diario Oficial La Gaceta.

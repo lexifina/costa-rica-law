@@ -1,0 +1,1 @@
+Artículo 15.—Custodia de placas metálicas y documento de identificación: Las placas metálicas y el Documento de Identificación Adicional confeccionadas de acuerdo al presente Reglamento, una vez solicitados por el usuario, permanecerán en custodia del Registro por un plazo máximo de tres meses, luego de lo cual se procederá a su destrucción.

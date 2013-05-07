@@ -1,0 +1,2 @@
+Artículo 16.—Determinación del costo de las placas metálicas: La tasa a pagar por el usuario ante la gestión de cualquier movimiento registral, en torno a la emisión de placas metálicas, será cancelado en timbres del Registro Nacional.
+Corresponderá a la Junta Administrativa del Registro Nacional, fijar con base en los estudios correspondientes el valor económico de las placas, de tal manera que se garantice la eficiencia y continuidad del servicio público.

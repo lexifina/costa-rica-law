@@ -1,0 +1,1 @@
+Artículo 14.—Vigencia: Las nuevas placas metálicas y el documento de identificación adicional, se encontrarán vigentes por el plazo que fije la Junta Administrativa del Registro Nacional en concordancia con el período de garantía de los mecanismos de seguridad establecidos.

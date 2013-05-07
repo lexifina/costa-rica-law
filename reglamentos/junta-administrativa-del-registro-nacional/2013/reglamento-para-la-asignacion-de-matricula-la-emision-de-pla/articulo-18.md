@@ -1,0 +1,1 @@
+Artículo 18—Ámbito de aplicación: Esta normativa rige en todo el territorio nacional y alcanza a aquellos vehículos automotores inscritos en la República de Costa Rica, que circulen por las vías públicas terrestres.
