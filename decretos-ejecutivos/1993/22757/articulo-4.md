@@ -1,1 +1,0 @@
-Artículo 4.—La Comisión ad-hoc dispondrá de un plazo máximo de quince días hábiles para analizar las ofertas y emitir la recomendación final ante el Ministro. La Comisión podrá solicitar ante el Ministerio por una única vez una prórroga de quince días hábiles siempre y cuando medie justa causa para ello.
