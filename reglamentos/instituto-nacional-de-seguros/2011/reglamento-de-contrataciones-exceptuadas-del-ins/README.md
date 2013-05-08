@@ -14,3 +14,4 @@ Reglamento de Contrataciones Exceptuadas del INS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-04 | la propia norma |
+| 2 | 2013-05-08 | Reglamento 9157 (2013-05-08) |
