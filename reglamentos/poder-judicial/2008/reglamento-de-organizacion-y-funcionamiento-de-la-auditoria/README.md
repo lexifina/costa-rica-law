@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna del Poder 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-11 | la propia norma |
+| 2 | 2013-05-08 | Circular 4 (2013-05-08) |
