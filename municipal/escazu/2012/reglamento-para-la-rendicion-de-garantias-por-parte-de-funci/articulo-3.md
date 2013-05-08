@@ -1,0 +1,1 @@
+Artículo 3º—Vigencia de la garantía. La póliza de fidelidad debe tener una vigencia no inferior a un año y la misma deberá ser prorrogada hasta por períodos iguales durante todo el tiempo en que el funcionario se desempeñe en el puesto que lo obliga a rendir la señalada garantía.

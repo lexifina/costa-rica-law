@@ -1,0 +1,1 @@
+Artículo 8º—Del plazo de las garantías. Las garantías ofrecidas por los funcionarios de la Municipalidad de Escazú, deberán mantenerse vigentes mientras ocupen sus cargos, así como por el lapso de prescripción de la responsabilidad civil y/o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios.

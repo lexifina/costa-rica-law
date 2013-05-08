@@ -1,0 +1,1 @@
+Artículo 14.—De la exclusión de obligación de suscribir la póliza. Si alguna de las personas obligadas a rendir Póliza de Fidelidad renuncia a su cargo, se acoge a un permiso temporal o es despedida por una causal que no implique responsabilidad en el manejo o de fondos públicos, deberá solicitar al Proceso de Recursos Humanos que se le excluya de esa obligación.

@@ -1,0 +1,1 @@
+Artículo 7º—Finalidad de la caución: La rendición de la caución tiene como objetivo garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir al patrimonio de la Municipalidad de Escazú, sin que ello limite la eventual responsabilidad civil.

@@ -1,0 +1,1 @@
+Artículo 10.—Custodia. El Proceso de Recursos Financieros a través de la Tesorería Municipal, será el órgano administrativo encargado de ejecutar las labores de custodia de las garantías que rindan los funcionarios o funcionarias de la Municipalidad de Escazú, obligados para los fines de este Reglamento.
