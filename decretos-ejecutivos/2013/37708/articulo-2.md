@@ -1,0 +1,1 @@
+Artículo 2 º—Se designa a la señora Cynthia Morales Herra, portadora de la cédula de identidad Nº 1-995-646, de conformidad con lo regulado en el c) del artículo 8 de la Ley Nº 7969, Ley Reguladora del Transporte Público Remunerado de Personas en Vehículos en la Modalidad de Taxi, como suplente del Ministro de Ambiente y Energía, para casos de ausencia del titular.
