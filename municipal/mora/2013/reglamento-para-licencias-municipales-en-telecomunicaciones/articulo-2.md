@@ -1,0 +1,6 @@
+Artículo 2º—Se establecen como sus objetivos específicos:
+1. Consolidar un respeto absoluto a los bienes que conforman el patrimonio histórico, cultural, arquitectónico y ambiental del cantón, manteniendo la Municipalidad su responsabilidad de resguardo de estos valores, sin ningún límite y condicionamiento.
+2. Propiciar la mimetización de las infraestructuras de telecomunicaciones dentro del cantón.
+3. Asegurar el cumplimiento de los alineamientos fundamentales que aplican en materia constructiva y ambiental, y que por ende, aplican a toda estructura e instalación de Redes y Sistemas para Telecomunicaciones.
+4. Propiciar adecuadamente la minimización del impacto visual y ambiental, para lo cual se autorizará la construcción únicamente de la infraestructura necesaria para lograr la cobertura y calidad del servicio que requiere la población en el ámbito de las telecomunicaciones, rechazando toda gestión que no forme parte de este principio.
+5. Asegurarse de que las actividades desplegadas se enmarquen dentro de las regulaciones existentes en materia de licencias comerciales y patentes, de acuerdo al artículo 79 del Código Municipal y la Ley de Patentes de la Municipalidad del Cantón de Mora y sus reformas.

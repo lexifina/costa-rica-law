@@ -1,0 +1,6 @@
+Artículo 22.— La Municipalidad no otorgará una Licencia de Construcción en los siguientes casos:
+1. Que la altura de la torre sea menor a 30 metros, medida desde la base hasta el final de la torre sin incluir el pararrayo, o que sobrepase la altura máxima establecida por la Dirección General de Aviación Civil.
+2. Que exista una Licencia de Construcción previamente otorgada para una torre ubicada a una distancia que permita el uso compartido o coubicación, conforme el plan de cobertura y calidad que requieren los operadores, y se encuentre dentro del plazo a que se refiere el artículo 23 de este Reglamento.
+3. Que no permita el uso compartido o coubicación.
+4. Cuando exista una licencia previamente otorgada, a una distancia menor a 250 m, medida desde el centro de la torre propuesta hasta el centro de la previamente aprobada, prevaliendo siempre la de mayor antigüedad.
+Tanto con respecto a lo dispuesto en el artículo 11 de este Reglamento, como en otros supuestos en los que el solicitante alegue razones técnicas para la instalación de torres con requisitos técnicos distintos a los indicados, la corporación municipal o el interesado podrán solicitar el criterio técnico debidamente motivado por parte de la SUTEL.

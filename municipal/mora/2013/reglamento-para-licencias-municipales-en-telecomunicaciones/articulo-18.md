@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Obligaciones de los interesados
+Artículo 18.—Es obligación de las personas físicas o jurídicas, públicas o privadas, que soliciten Licencias Municipales, estar al día con el pago de tributos municipales. No se tramitarán licencias de ningún tipo si el interesado tiene gestiones o asuntos pendientes con la Municipalidad, sea cual sea su naturaleza, tales como: traspaso de bienes pendientes a esta, desarrollo de obras de urbanizaciones, tributos municipales, patentes, otras licencias constructivas, asuntos ambientales, compromisos adquiridos en sede judicial, clausuras por obras irregulares, entre otros.

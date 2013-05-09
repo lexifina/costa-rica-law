@@ -1,0 +1,1 @@
+Artículo 28.—La patente comercial, tanto para los dotadores de infraestructura como para los operadores, proveedores o en cualquier condición similar, se fijará de acuerdo al procedimiento establecido en la Ley de Impuestos Municipales del Cantón de Mora y sus reformas, Nº 7387.

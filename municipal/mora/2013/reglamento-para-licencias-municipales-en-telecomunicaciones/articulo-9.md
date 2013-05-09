@@ -1,0 +1,10 @@
+CAPÍTULO III
+Del Certificado de uso del suelo
+Artículo 9º—Se otorgará el certificado de uso de suelo como uso conforme de acuerdo con las siguientes regulaciones:
+1) Se otorgará el certificado de uso de suelo aplicando los siguientes requisitos:
+a) El espacio físico en el que se pretenda ubicar e instalar las obras constructivas será de ciento veinte metros cuadrados (120 m²) con un frente mínimo de seis metros. Esto, siempre y cuando la finca restante quede cumpliendo con los requisitos mínimos establecidos para su zona en el Plan Regulador vigente. Si la obra se ubica en zona rural, esta medida se aumentará en cincuenta metros cuadrados y la altura se regirá por lo dispuesto por Aviación Civil.
+b) Ese espacio será exclusivo y privativo para esas obras, por lo que queda prohibida cualquier otra construcción, debiéndose cerrar el espacio en el que se construirá la obra, de forma apropiada, y deberá indicarse el cerramiento en planos constructivos.
+c) A los efectos de la solicitud de construcción o instalación que se presenta, deberá adjuntarse planos constructivos debidamente acotados a escala del espacio al que se refiere este artículo, que indique a su vez todas las construcciones eventualmente existentes en el fundo del que forme parte.
+d) Las obras a las que se refiere este reglamento se deberán ubicar de preferencia en la Zona Industrial de Mora, sin perjuicio de su ubicación en otros lugares del cantón en los términos de este reglamento.
+e) Se deberá mantener una franja de amortiguamiento mínima del diez por ciento (10%) de su altura, medidos desde el borde más sobresaliente de la obra constructiva incluyendo las antenas que se le vayan a adherir y la estructura de anclaje. Por lo que se debe tener en cuenta la relación entre la altura de la antena y el frente mínimo que tendrá el lote.
+f) Se prohíbe que la torre de telecomunicaciones se coloque adyacente a la colindancia del predio en cuestión, esto como una medida de seguridad para las construcciones aledañas, y debiendo facilitar el tránsito del personal necesario para la conservación y mantenimiento de la obra constructiva.
