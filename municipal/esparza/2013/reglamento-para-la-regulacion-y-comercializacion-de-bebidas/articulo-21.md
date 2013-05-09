@@ -1,0 +1,1 @@
+Artículo 21.—Multa. El pago extemporáneo de este derecho, será sujeto a una multa del uno por ciento (1%) por mes sobre el monto no pagado hasta un máximo de un veinte por ciento (20%), y al pago de intereses moratorios que se calcularán con base en el artículo 57 del Código de Normas y Procedimientos Tributarios.

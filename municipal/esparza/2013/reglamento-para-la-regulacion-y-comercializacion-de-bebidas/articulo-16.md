@@ -1,0 +1,21 @@
+CAPÍTULO III
+De las licencias permanentes
+Artículo 16.—Solicitud y trámite. Quien desee obtener una licencia deberá presentar formulario diseñado al efecto por la Municipalidad, ante la Plataforma de Servicios. Estas solicitudes serán evaluadas por la Oficina de Patentes quien levantará un expediente único y emitirá una recomendación. Las solicitudes de Licencias, deberán ser remitidas junto con el expediente al Alcalde Municipal, para que este proceda a aprobar o improbar la licencia mediante resolución fundamentada.
+La solicitud de licencia deberá contener al menos los siguientes requisitos:
+a)- La firma directa del solicitante o por representante con poder suficiente, para lo cual la firma deberá estar formalmente autenticada.
+b)- Indicación expresa de la actividad que desea desarrollar, con indicación expresa de la clase de licencia que solicita.
+c)- El nombre comercial con el que operará la actividad a desarrollar con la licencia.
+d)- Dirección de la ubicación exacta del lugar en que se desarrollará la actividad. Deberá aportarse copia del plano catastrado respectivo, salvo que el mismo ya exista en los registros municipales.
+e)- En el caso de personas jurídicas, una certificación que acredite la existencia y vigencia de la sociedad, los poderes de representación del firmante, y la composición de su capital social. Se prescindirá de este requisito cuando ya conste una certificación en los registros municipales emitida en los últimos tres meses a la fecha de la presentación de la solicitud de licencia.
+f)- Copia certificada del permiso sanitario de funcionamiento, e indicación del número de patente comercial correspondiente al establecimiento.
+g)- En caso que el permiso o patente comercial esté en trámite, deberá indicar el expediente en el cual se tramita. En este caso, el otorgamiento de la licencia estará sujeto al efectivo otorgamiento del permiso de funcionamiento y la patente comercial respectivos.
+h)- Certificación que acredite la titularidad del inmueble en el cual se desarrollará la actividad, y en caso de pertenecer a un tercero, copia certificada del contrato o título que permite al solicitante operar el establecimiento en dicho inmueble, salvo que tales documentos consten en el expediente de la patente comercial del establecimiento, según lo indicado en los incisos f) y g) anteriores.
+i)- En casos que se solicite una licencia clase C, el permiso sanitario de funcionamiento que autorice expresamente como restaurante, así como la declaración jurada debidamente protocolizada de que se cumple con el artículo 8 inciso d) de la ley.
+j)- En caso que se solicite una licencia clase E, copia certificada de la declaratoria turística vigente o su original para cotejo con su respectiva fotocopia.
+k) Declaración rendida bajo la fe y gravedad del juramento, en la que manifieste conocer las prohibiciones establecidas en el artículo 9 de la Ley, y que se compromete a respetar esta y cualquier otra de las disposiciones de la Ley.
+l)- Constancia de que se encuentra al día en sus obligaciones con la Caja Costarricense del Seguro Social, que cuenta con póliza de riesgos laborales al día, y de estar al día en sus obligaciones con Asignaciones Familiares. El solicitante estará exento de aportar los documentos aquí mencionados cuando la información esté disponible de forma remota por parte de la Municipalidad.
+m)- Tanto el solicitante de la Licencia, como el propietario del inmueble donde se desarrollará la actividad permanente, deberán encontrarse al día con sus obligaciones ante la Municipalidad.
+n)- En los términos del artículo 243 de la Ley General de la Administración Pública, señalar fax, correo electrónico o cualquier otra forma tecnológica que permita la seguridad del acto de comunicación.
+Medición de distancias.
+Para los efectos del cumplimiento de este artículo, la Municipalidad pondrá a disposición del solicitante un formulario diseñado al efecto, en el cual se consignará la información pertinente que satisfaga los requerimientos indicados.
+Es obligación del solicitante informar a la municipalidad cualquier modificación de las condiciones acreditadas mediante el formulario y la documentación antes indicada, y que se verifique antes del otorgamiento de la licencia.

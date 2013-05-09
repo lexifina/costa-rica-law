@@ -1,0 +1,1 @@
+Artículo 31.—Destino de las multas. Las multas deberán ser canceladas en un plazo de treinta días hábiles, posterior a su comunicación; caso contrario, se procederá a suspender la licencia en los términos del artículo 30 de este reglamento.

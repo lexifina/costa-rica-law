@@ -1,0 +1,3 @@
+Artículo 27.—Pago de derechos. En caso de autorizarse la licencia temporal, cuando proceda, previo informe técnico, se prevendrá por una única vez al solicitante de realizar el pago de los derechos de dicha licencia, como condición para la emisión de la resolución final correspondiente.
+A quien se autorice temporalmente para realizar la actividad de comercialización de bebidas con contenido alcohólico, deberá cancelar el equivalente a un diez por ciento (10%) del salario base, por cada uno de los días y para cada uno de los puestos, en que se le autorice la Licencia Temporal.
+Cada Licencia Temporal, faculta únicamente a un puesto o establecimiento para la comercialización de bebidas con contenido alcohólico por ocasión específica.

@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. El presente reglamento aplica para todas las personas físicas, jurídicas, privadas, públicas, nacionales o extranjeras que comercialicen, expendan o consuman bebidas con contenido alcohólico, dentro de la jurisdicción del cantón de Esparza.
