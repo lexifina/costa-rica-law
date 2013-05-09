@@ -1,0 +1,1 @@
+Artículo 12.—Sesiones: Las sesiones del Comité de Crédito serán ordinarias o extraordinarias; las primeras se realizarán al menos con periodicidad trimestral, mientras que las segundas serán convocadas en casos especiales a solicitud expresa del Presidente del Comité.
