@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento del Certificado de Sostenibilidad Turística
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-09 | la propia norma |
+| 2 | 2013-05-09 | Decreto Ejecutivo 37749 (2013-05-09) |
