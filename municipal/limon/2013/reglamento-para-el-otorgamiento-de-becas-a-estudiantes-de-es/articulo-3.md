@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión de Asuntos Sociales del Concejo Municipal establecerá al inicio de cada ciclo lectivo el número de becas a distribuir y el monto de cada una de ellas de acuerdo al artículo nueve (9) de este Reglamento.

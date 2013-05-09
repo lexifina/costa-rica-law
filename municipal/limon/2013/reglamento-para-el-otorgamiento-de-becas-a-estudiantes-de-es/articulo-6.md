@@ -1,0 +1,1 @@
+Artículo 6º—Corresponde a la Comisión de Asuntos Sociales una vez elaborada la lista de los futuros becados en conjunto con los Concejos de Distritos recoger las solicitudes y recomendar al Concejo Municipal la adjudicación o rechazo de las becas; analizando las propuestas de cada caso.

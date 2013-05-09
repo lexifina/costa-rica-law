@@ -1,0 +1,1 @@
+Artículo 4º—El derecho de una beca se otorgara a los estudiantes de acuerdo con los requisitos exigidos por el artículo quince (15) de este Reglamento y el presupuesto municipal existente para cubrir esa erogación.

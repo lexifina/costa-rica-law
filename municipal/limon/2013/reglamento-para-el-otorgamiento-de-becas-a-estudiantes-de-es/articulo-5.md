@@ -1,0 +1,1 @@
+Artículo 5º—Serán excluidos de este beneficio los estudiantes que por parte del Ministerio de Educación Pública o cualquier otra institución pública o privada tengan el disfrute de cualquier otro tipo de beca o ayuda social, exceptuando las mencionadas en la Ley N° 7600. Previo a un estudio socioeconómico.
