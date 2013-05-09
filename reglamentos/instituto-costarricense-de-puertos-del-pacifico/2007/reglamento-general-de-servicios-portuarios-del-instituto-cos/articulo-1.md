@@ -1,4 +1,3 @@
-(Derogado)
 INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
 Que la Junta Directiva de esta Institución mediante Acuerdo Nº 7 tomado en la Sesión Nº 3414, celebrada el día 17 de abril del año en curso acordó aprobar el Reglamento General de Servicios Portuarios, el cual se leerá como sigue:
 REGLAMENTO GENERAL DE SERVICIOS PORTUARIOS DEL INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO (INCOP)
