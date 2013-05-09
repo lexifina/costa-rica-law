@@ -1,6 +1,6 @@
-REGLAMENTOS
-MUNICIPALIDADES
+(Derogado)
 MUNICIPALIDAD DE LIMON
+(Esta norma fue derogada por el artículo 18 del Reglamento para el otorgamiento de becas a estudiantes de de escasos recursos del cantón Central de Limón, publicado en La Gaceta N° 88 del 9 de mayo del 2013)
 REGLAMENTO PARA OTORGAR BECAS A ESTUDIANTES
 DE LA MUNICIPALIDAD DE LIMÓN
 CAPÍTULO PRIMERO
