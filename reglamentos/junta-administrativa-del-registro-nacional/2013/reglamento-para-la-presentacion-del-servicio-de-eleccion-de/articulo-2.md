@@ -1,0 +1,1 @@
+Artículo 2º—Objeto: El presente Reglamento tiene por objeto la creación del servicio de elección de matrícula, a fin de que con antelación a la inscripción del automotor o previo al cambio de matrícula el usuario tenga la posibilidad de personalizar voluntariamente por motivos de conveniencia, la numeración de la matrícula de su interés. Previo pago de la tasa correspondiente.

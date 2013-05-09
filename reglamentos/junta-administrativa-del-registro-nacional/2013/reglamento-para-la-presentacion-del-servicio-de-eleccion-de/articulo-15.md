@@ -1,0 +1,2 @@
+Artículo 15.—Plazo de vigencia para la utilización de la matrícula elegida: Se establece un plazo de treinta días naturales, contados a partir del pago de la tasa por el servicio, a efectos de que el usuario presente el documento de inscripción o cambio de matrícula, para el cual se realizó la respectiva solicitud de elección.
+Si el vencimiento acontece en un día inhábil, para tales efectos se tomará el día hábil siguiente.

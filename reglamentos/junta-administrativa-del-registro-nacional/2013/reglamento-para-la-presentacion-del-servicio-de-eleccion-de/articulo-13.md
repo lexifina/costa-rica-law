@@ -1,0 +1,1 @@
+Artículo 13.—Imposibilidad de traspasar la elección: La solicitud de elección es personal e intransferible, de manera que no procederá su traslado a otro automotor. El usuario no podrá disponerla, cederla o enajenarla, al estar la misma asociada directamente a un bien en específico.

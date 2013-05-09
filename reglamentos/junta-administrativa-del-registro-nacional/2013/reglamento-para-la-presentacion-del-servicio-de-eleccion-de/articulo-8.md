@@ -1,0 +1,1 @@
+Artículo 8°—Legitimación para solicitar la elección de matrícula: Todo usuario podrá solicitar la elección de matrícula, en tanto el servicio sea asociado directamente al bien y pagando la tasa respectiva.

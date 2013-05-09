@@ -1,0 +1,1 @@
+Artículo 5º—Sistema de balance automático: En aras de no afectar la política de restricción vehicular nacional, se establece un sistema informático de balance numérico con el fin de que se pueda restringir temporalmente la elección del último dígito de la matrícula.

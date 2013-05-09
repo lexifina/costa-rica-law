@@ -1,0 +1,2 @@
+Artículo 17.—Suspensión del plazo de caducidad: El plazo de caducidad de la elección se suspende con la presentación y asignación de citas del documento al Diario del Registro de Bienes Muebles.
+En documentos que contengan defectos y no fueran inscritos en la primera presentación al Registro, o que por motivos legales su presentación sea cancelada, se otorgará el plazo de un año para la vigencia de la elección, el cual comenzará a regir a partir del momento de la presentación.
