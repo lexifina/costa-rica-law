@@ -41,31 +41,40 @@ De la descripción de los servicios
 Artículo 23.—Todo servicio que se brinde en las instalaciones del Muelle de Puerto Quepos estará sujeto a las regulaciones y las disposiciones tarifarias.
 Artículo 24.—La estructura tarifaria comprenderá los siguientes servicios:
 a) Estadía: Corresponde a la ocupación que hace la nave del muelle mientras se encuentra atracada.
-Unidad de tarificación: Metro eslora-día o fracción.
+Unidad de tarificación: Metro eslora-hora o fracción.
 Descripción de servicios:
-a.1) Embarcaciones de pesca deportiva o recreativa.
-a.2) Embarcaciones de pesca artesanal.
-a.3) Yates y embarcaciones de placer.
-a.4) Embarcaciones comerciales.
-b) Muellaje: Consiste en la utilización que hace la carga de las instalaciones del muelle en tránsito de o hacia la nave. Unidad de tarificación: Tonelada métrica o fracción.
+1) Embarcaciones de pesca deportiva o recreativa.
+2) Embarcaciones de pesca artesanal.
+3) Yates y embarcaciones de placer.
+4) Embarcaciones comerciales.
+5) Cruceros.
+b) Muellaje: Consiste en la utilización que hace la carga de las instalaciones del muelle en tránsito de o hacia la nave.
+Unidad de tarificación: Tonelada métrica o fracción.
 c) Suministro de insumos: Este servicio consiste en el aprovisionamiento de insumos a los usuarios del muelle.
-c.1) Combustible.
-Unidad de Tarificación: Litros.
-d) Ingreso de vehículos a las instalaciones del muelle:
-Todo vehículo que ingrese a las instalaciones del muelle deberá pagar su peaje, además cumplir con la normativa vigente y lo indicado en el artículo 27, 28 y 29 de este reglamento.
+1) Combustible.
+Unidad de tarificación: Tonelada métrica (TM).
+2) Carga General (cualquier carga incluyendo agua).
+Unidad de tarificación: Tonelada métrica (TM).
+d) Ingreso de vehículos a las instalaciones del muelle: Todo vehículo que ingrese a las instalaciones del muelle deberá pagar su peaje, además cumplir con la normativa vigente y lo indicado en el artículo 27, 28 y 29 de este reglamento.
 Unidad de tarificación: Vehículo.
-e) Embarque y desembarque de pasajeros: Los pasajeros que desembarquen o aborden embarcaciones de placer y turísticas deberán pagar por el uso de las instalaciones.
+e) Embarque y desembarque de pasajeros: Los pasajeros que desembarquen o aborden cruceros deberán pagar por el uso de las instalaciones.
 Unidad de tarificación: Por persona
-f) Fondeo de embarcaciones en zona protegida:
-Unidad de tarificación: T.R.B.
-g) Cualquier otro servicio ofrecido principalmente a embarcaciones mayores, se regirá por el Reglamento General de Servicios Portuarios de INCOP y sus disposiciones tarifarias
+f) Pasajeros en tránsito: Los pasajeros que aborden o desembarquen embarcaciones de placer, turísticas y cruceros deberán pagar por el uso de las instalaciones.
+Unidad de tarificación: Por persona.
+g) Fondeo de embarcaciones en la rada: Posicionamiento de un buque en aguas establecidas para el anclaje.
+Unidad de tarificación: El T.R.B. según la estructura tarifaria.
+h) Limpieza de muelle: Consiste en la limpieza del muelle ocupado por las naves y las instalaciones afectadas por la operación de dicha nave. Este servicio será prestado por el prestatario del servicio de carga en todos los puestos de atraque con el personal contratado para el aseo. Su tarifa es por tonelada métrica embarcada y/o desembarcada.
+i) Cualquier otro servicio ofrecido principalmente a embarcaciones mayores, se regirá por el Reglamento General de Servicios Portuarios de INCOP y sus disposiciones tarifarias.
+(Así reformado el artículo 24) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
 CAPÍTULO III
 Del ingreso y permanencia de personas y vehículosa las instalaciones del muelle de puerto Quepos
 Artículo 25.—El control de ingresos, salida y permanencia de personas y vehículos dentro de las instalaciones del muelle se regirá por lo que indique este articulado y en caso de circunstancias no cubiertas regirán además las disposiciones legales y reglamentarias que el INCOP tiene establecidas.
 Artículo 26.—Únicamente se permitirá el ingreso y permanencia dentro de las instalaciones del muelle a las siguientes personas:
 a) Funcionarios o empleados del INCOP debidamente identificados.
 b) Empleados de las naves o personas que por razón de trabajo deban permanecer dentro de las instalaciones siempre y cuando estén debidamente identificados con su pase.
-c) Las que autorice el Administrador del Muelle o Oficial de Protección de las Instalaciones Portuarias (OPIP).
+c) Los turistas que deban abordar una nave de algún tour operador que brinde los servicios desde el muelle.
+d) Las que autorice el Administrador del Muelle.
+(Así reformado el artículo 26) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
 Artículo 27.—Los conductores de vehículos dentro de las instalaciones del muelle deben:
 a) Transitar por las vías señaladas para tal fin.
 b) Respetar el límite de velocidad que se indique.
@@ -79,17 +88,23 @@ Artículo 30.—Es prohibido el ingreso de vehículos salvo los siguientes casos
 a) Todos los vehículos propiedad del INCOP o bajo su administración.
 b) Vehículos particulares autorizados por la Presidencia Ejecutiva, Gerencia General del INCOP o la Administración del Muelle y el Oficial de Protección de las instalaciones Portuarias.
 c) Todo vehículo que haya pagado su peaje y que su quehacer sea en el muelle. (En el caso de los operadores del transporte acuático, agencias navieras, pagarán por una sola vez el tiquete de peaje siempre y cuando ingresen en labores de apoyo administrativo al servicio que se les brinda y no así cuando transporten turistas. La aplicación será solo para un vehículo por operador).
-Artículo 31.—Queda terminantemente prohibido ingerir bebidas alcohólicas dentro de las instalaciones portuarias.
+Artículo 31.—Queda terminantemente prohibido ingerir bebidas alcohólicas dentro de las instalaciones portuarias. Así mismo, no podrá ingresar persona alguna que se encuentre en aparente estado de ebriedad.
+(Así reformado el artículo 31) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
 Artículo 32.—El ingreso de las personas al recinto portuario se efectuará por la entrada principal donde está la casetilla y se realizara la inspección visual y física cuando lo amerite de todos los bultos de mano o espalda (salveques, bolsos, neveras maletas, entre otros); en este lugar se identificarán con la unidad de vigilancia.
-Artículo 33.—Todas las personas que ingresen, con excepción de los funcionarios o empleados de la Institución destacados en el Muelle de Quepos, deberán anotar los motivos de sus visitas al muelle y firmar el libro de registro indicando la hora de entrada y posteriormente la salida.
+Artículo 33.—Todas las personas que ingresen, con excepción de los funcionarios o empleados de la Institución destacados en el Muelle de Quepos, deberán indicar al oficial los motivos de sus visitas al muelle.
+(Así reformado el artículo 33) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
 Artículo 34.—Toda persona vinculada al quehacer dentro del muelle deberá preverse de un pase para poder ingresar a las instalaciones del mismo.
 Existen tres pases:
-a) Temporales.
-b) Para Turistas
-c) Para visitantes.
-Artículo 35.—Los pases temporales serán otorgados a trabajadores ocasionales y a los empleados de los usuarios que deban realizar constantemente labores dentro de las instalaciones del muelle. Además los pases indicarán su vigencia.
-Artículo 36.—Las personas que ingresen en calidad de visitantes recibirán un pase de visitante en la caseta del Oficial de Guardia, además de cumplir con lo estipulado en el Artículo 33.
-Artículo 37.—Todos los pases, con excepción de los visitantes, deberán llevar una fotografía reciente del propietario. Los pases de visitantes llevarán un número de registro.
+a) Tripulantes.
+b) Dueños o administradores de naves.
+c) Temporales.
+(Así reformado el artículo 34) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
+Artículo 35.—Los pases temporales serán otorgados a trabajadores ocasionales de los usuarios que deban realizar constantemente labores dentro de las instalaciones del muelle, mismos que se entregarán con base en nota firmada por el o los dueños de las embarcaciones a quien le trabaja.
+(Así reformado el artículo 35) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
+Artículo 36.—Los pases a tripulantes serán otorgados de acuerdo a lo estipulado en el certificado de navegabilidad de la nave y deberán contener el nombre de la embarcación.
+(Así reformado el artículo 36) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
+Artículo 37.—Todos los pases deberán llevar una fotografía reciente del propietario, un número de registro, además deberán indicar la fecha de vencimiento.
+(Así reformado el artículo 37) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
 Artículo 38.—Toda persona al ingresar a las instalaciones del muelle deberá entregar el pase en el puesto de entrada (tarjeta o carné) al oficial de seguridad, la cual le será devuelta a la salida, además deberán acatar las disposiciones dadas en este capítulo.
 Artículo 39.—Cuando una persona haya perdido su tarjeta, deberá informarlo a la Administración del muelle, la cual le dará trámite para que se le extienda una nueva tarjeta previo a la presentación de la fotocopia de la cédula de identidad, y la respectiva foto tamaño pasaporte.
 Artículo 40.—La Administración del Muelle de Puerto Quepos llevará el control y registro de los pases otorgados, en conjunto con el encargado de seguridad portuaria (OPIP).
@@ -100,7 +115,8 @@ Del suministro de insumos
 Artículo 43.—Todos aquellos servicios de suministros de insumos que se brinden a las embarcaciones que utilicen las instalaciones del Muelle de Quepos, deberán ser amparadas al reglamento para las personas físicas y jurídicas que brindan servicios o suministros a buques que arriban a los puertos administrados por el INCOP y consecuentemente objeto de la aplicación del Canon que requiere el artículo 5 del citado Reglamento.
 Artículo 44.—El expendio tanto de combustible, agua potable, energía eléctrica y otros insumos en dicho muelle, será ejecutado sólo por el personal designado por la empresa proveedora para tal fin.
 Artículo 45.—La Administración del Muelle de Puerto Quepos definirá los horarios y modo de operar en la venta de insumos, siempre y cuando no interfiera con las normas de este Reglamento o las de la Institución.
-Artículo 46.—Los vehículos que deberán brindar el suministro de combustible, provisiones (hielo, alimentos), deberán cancelar el respectivo tiquete de peaje y su permanencia dentro del muelle, se encontrará ajustado al tiempo necesario para el desarrollo de la actividad que generó su ingreso por lo que inmediatamente finalizada su gestión, deberá abandonar el área restringida (muelle).
+Artículo 46.—Los vehículos que deberán brindar el suministro de combustible, provisiones (hielo, alimentos u otros), deberán cancelar el respectivo tiquete de peaje y su permanencia dentro del muelle se encontrará ajustado al tiempo necesario para el desarrollo de la actividad que generó su ingreso por lo que inmediatamente finalizada su gestión, deberá abandonar el área restringida (muelle).
+(Así reformado el artículo 46) anterior mediante sesión N° 3835 del 9 de mayo del 2013)
 Artículo 47.—No se permitirá el ingreso al muelle (área restringida), de aquellos vehículos cuyos propietarios resulten empleados de la Terminal Muelle de Quepos o aquellos que pertenezcan a los miembros de las tripulaciones de las embarcaciones que lleven a cabo actividades en el muelle, los cuales deberán permanecer fuera del área restringida, la violación de esta condición, se hará una notificación formal sobre las medidas correctivas que se aplicarían y en caso de ser reincidente, se denegará el ingreso al recinto portuario del vehículo infractor.
 Artículo 48.—Bajo ninguna circunstancia se permitirá el ingreso al recinto portuario de más de tres vehículos (automóviles, busetas, microbuses o taxis), acorde al arribo de la embarcación que efectuará el servicio, para tal efecto, los representantes de las embarcaciones deberán coordinar lo pertinente con el funcionario de INCOP que se ubica en el portón de acceso del muelle, procurando un ordenamiento adecuado y seguro para las personas, vehículos e infraestructura del muelle.
 CAPÍTULO V
@@ -135,4 +151,9 @@ b) Con la suspensión de la prestación del servicio o del pase de ingreso a las
 c) Con la anulación total de la prestación de los servicios o del pase o permiso de entrada a las instalaciones del muelle
 Artículo 64.—Cualquier servicio o normativa que escape a este Articulado será cubierto por el Reglamento General de Servicios Portuarios de INCOP.
 Artículo 65.—Toda la Reglamentación aprobada por la Junta Directiva del INCOP será aplicable al Muelle de Puerto Quepos.
+Artículo 66.—Este Reglamento deroga al anterior(*).
+(*) (Nota de Sinalevi: Mediante sesión N° 3835 del 9 de mayo de 2013, se indicó derogar este artículo. No obstante; mediante Fe de Erratas, publicada en La Gaceta N° 144 del 29 de julio de 2013, página 80, el Departamento de Proveeduría de INCOP aclara que en la publicación realizada en La Gaceta N° 125 del día lunes 01 de julio del 2013 sobre el Reglamento de Servicios Portuarios de la Institución-Reglamento de Operación para el Muelle de Puerto Quepos, se indicó por error lo siguiente:
+1) dejar sin efecto el artículo 66 de este Reglamento.
+Cuando lo correcto es:
 Artículo 66.—Este Reglamento deroga al anterior.
+En todo lo demás, el Reglamento se mantiene invariable”)

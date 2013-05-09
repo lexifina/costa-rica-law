@@ -14,3 +14,4 @@ Reglamento de Operación para el Muelle de Puerto Quepos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-23 | la propia norma |
+| 2 | 2013-05-09 | Reglamento 3835 (2013-05-09) |
