@@ -1,0 +1,1 @@
+Artículo 2º—La inspección de las obras civiles que se realicen en la jurisdicción de Mora, corresponde al Departamento de Ingeniería Municipal o mediante los inspectores designados y calificados para el efecto, también quedará facultado cualquier otro funcionario que se designe por parte del Departamento de Ingeniería Municipal.
