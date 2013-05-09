@@ -14,3 +14,4 @@ Reglamento para la presentación del servicio de elección de matrícula Registr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-09 | la propia norma |
+| 2 | 2013-05-09 | Reglamento 16 (2013-05-09) |
