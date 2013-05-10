@@ -1,0 +1,2 @@
+Artículo 16.—El Registro Electoral, por intermedio del programa electoral Voto Costarricense en el Extranjero, será el encargado de analizar y resolver las sustituciones de las personas integrantes de las juntas receptoras de votos que, por causas debidamente justificadas, se requieran. En este trámite deberán observarse las formalidades y los plazos del artículo 42 del Código Electoral.
+El programa electoral Voto Costarricense en el Extranjero velará por la debida y oportuna instalación de esas juntas.

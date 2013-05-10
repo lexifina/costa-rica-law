@@ -1,0 +1,1 @@
+Artículo 33.—Las situaciones no contempladas en este Reglamento, en lo que resulte compatible con la naturaleza electiva o consultiva de los procesos, según corresponda, se regirán por las disposiciones del Código Electoral o de la LRR y sus respectivos reglamentos.

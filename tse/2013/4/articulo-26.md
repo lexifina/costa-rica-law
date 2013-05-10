@@ -1,0 +1,1 @@
+Artículo 26.—El TSE dispondrá el horario de votación de cada consulado, de acuerdo con los husos horarios de las respectivas zonas geográficas en las que se instalen juntas receptoras de votos. Con independencia del horario que se disponga, la votación no podrá iniciarse una vez transcurrida media jornada, de conformidad con el artículo 166 del Código Electoral.

@@ -1,0 +1,2 @@
+Artículo 23.—Los partidos políticos y las coaliciones serán responsables de gestionar, ante el Registro Electoral, la acreditación de fiscales de las juntas receptoras de votos que se instalen el extranjero y de hacerles llegar los carnés, debidamente autenticados con el distintivo dispuesto por la Dirección General de ese Registro.
+El trámite de acreditación se regirá por lo dispuesto en el Reglamento de Fiscalización de Procesos Electivos y Consultivos.

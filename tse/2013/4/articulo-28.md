@@ -1,0 +1,1 @@
+Artículo 28.—El funcionario representante del TSE o la persona encargada transmitirá el resultado de la votación, por los medios y con las seguridades previamente establecidos. Esa transmisión no podrá hacerse antes del cierre de la votación en Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 13.—El programa electoral Voto Costarricense en el Extranjero comunicará a los consulados el acuerdo del TSE que declare integradas las Tribunal Supremo de Elecciones juntas receptoras de votos, a fin de que procedan con la juramentación de los miembros designados.

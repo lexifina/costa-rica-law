@@ -1,0 +1,2 @@
+Artículo 5º—Los cónsules visarán, con su firma y sello oficial, el formulario indicado en el inciso a) del artículo anterior. Esos formularios y las demás solicitudes de empadronamiento serán remitidos al TSE en el envío inmediato posterior de la documentación oficial de la sede consular.
+Las gestiones de empadronamiento que se presenten los días previos al vencimiento de los plazos señalados en el artículo 3 de este reglamento deberán ser enviadas el día hábil siguiente a ese vencimiento, a efectos de su análisis y oportuna resolución.

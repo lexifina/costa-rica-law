@@ -1,0 +1,2 @@
+Artículo 22.—La acreditación de observadores se tramitará de conformidad con las disposiciones y procedimientos contemplados en el artículo 218 del Código Electoral y el Reglamento para la Observación de Procesos Electivos y Consultivos.
+Esta gestión deberá presentarse, según corresponda, ante los programas electorales de Acreditación de Fiscales y Observadores Nacionales y de Atención a Observadores Internacionales. La confección y entrega del respectivo carné de identificación será responsabilidad del consulado indicado como lugar para su retiro.

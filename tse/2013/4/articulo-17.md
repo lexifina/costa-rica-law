@@ -1,0 +1,1 @@
+Artículo 17.—En caso de que el TSE ordene una segunda votación para elegir Presidente y Vicepresidentes de la República, las juntas receptoras de votos mantendrán su integración, no siendo necesario efectuar una nueva juramentación o acreditación de sus miembros.

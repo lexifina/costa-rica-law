@@ -1,0 +1,1 @@
+Artículo 6º—Las listas de personas inscritas para votar en el extranjero serán publicadas en el sitio web del TSE, el que además las enviará por correo electrónico a los respectivos consulados para su publicación en la sede consular; todo lo anterior, dentro de los plazos estipulados en los artículos 152 y 154 del Código Electoral o, en su caso, en el artículo 6 del RPR.
