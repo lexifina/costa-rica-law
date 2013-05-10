@@ -15,3 +15,4 @@ Establece tarifas por la venta de bienes y servicios que brinda y genera el INCO
 | --- | --- | --- |
 | 1 | 2013-01-01 | la propia norma |
 | 2 | 2013-02-08 | Acuerdo 57 (2013-02-08) |
+| 3 | 2013-05-10 | Acuerdo 169 (2013-05-10) |
