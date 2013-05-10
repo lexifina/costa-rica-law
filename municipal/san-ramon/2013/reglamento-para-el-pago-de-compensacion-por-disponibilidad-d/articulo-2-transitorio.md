@@ -1,0 +1,2 @@
+Transitorio 2º—Estas disposiciones se aplicarán para todas las nuevas contrataciones a partir de la entrada en vigencia de este reglamento. Este transitorio no aplica para aquellos funcionarios (as) que con anterioridad al presente reglamento se encontraban recibiendo algún pago por compensación (exceptúese la prohibición); sin embargo estos funcionarios (as) deberán firmar nuevo contrato con la Municipalidad en caso de continuar recibiendo el estipendio correspondiente.
+San Ramón, 26 de abril de 2013.—
