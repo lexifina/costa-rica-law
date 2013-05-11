@@ -1,6 +1,6 @@
 # Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor
 
-Ley N° 7472 del 1994-12-20. SINALEVI, ficha 26481: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26481&param2=90017&param3=1>.
+Ley N° 7472 del 1994-12-20. SINALEVI, ficha 26481: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26481&param2=92463&param3=1>.
 
 Publicada en La Gaceta N° 14 del 1995-01-19.
 
@@ -21,3 +21,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 11 de 24 | 2008-06-30 | Ley 8642 | 2008-06-04 |
 | 12 de 24 | 2008-08-07 | Ley 8653 | 2008-07-22 |
 | 13 de 24 | 2012-10-05 | Ley 9072 | 2012-09-20 |
+| 14 de 24 | 2013-05-11 | Ley 9098 | 2012-10-30 |
