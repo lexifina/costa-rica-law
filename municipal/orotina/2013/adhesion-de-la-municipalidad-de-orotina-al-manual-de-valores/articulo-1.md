@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE OROTINA
+La suscrita MBA. Margot Montero Jiménez, Alcaldesa de la Municipalidad de Orotina, cumpliendo con lo estipulado en los artículos 3° y 12 de la Ley del Impuesto sobre Bienes Inmuebles y de conformidad con la sentencia N° 1073-2010 del 18 de marzo del 2010 del Contencioso, Sección III, así como a la resolución N° 2011-003075 de la Sala Constitucional, procedo con la adhesión de este Municipio, a la publicación del Manual de Valores Base Unitarios por Tipología constructiva, publicado en el Alcance N° 22 del Diario Oficial La Gaceta N° 23, del viernes 1° de febrero del 2013, documento emitido por el Órgano de Normalización Técnica del Ministerio de Hacienda.
+Orotina, 25 de abril del 2013.—
