@@ -1,0 +1,8 @@
+Artículo 32.—Servicios de auditoría. Los servicios de auditoría, de acuerdo a lo establecido en el Manual de Normas Generales de Auditoría para el Sector Público, se clasifican en: financiera, operativa y de carácter especial.
+a) La Auditoría Financiera comprende la auditoría de estados financieros que tiene por objetivo emitir un dictamen independiente sobre la razonabilidad de los mismos, de conformidad con el marco normativo aplicable.
+Otros objetivos de las auditorías financieras, con distintos niveles de seguridad y distintos alcances de trabajo, pueden incluir:
+• La presentación de informes especiales para elementos, cuentas o partidas específicas de un estado financiero.
+• La revisión de información financiera.
+• El análisis de otros aspectos específicos relacionados con la información financiera.
+b) La Auditoría Operativa es el examen objetivo, sistemático y profesional de evidencias, realizado con el fin de evaluar en forma independiente el desempeño de una entidad, programa o actividad, a efecto de mejorar la eficacia, eficiencia y economía en el manejo de los recursos públicos, para coadyuvar en la toma de decisiones por parte de los responsables de adoptar acciones correctivas.
+c) La Auditoría de Carácter Especial comprende aquellos estudios independientes encaminados al examen de aspectos específicos, de orden contable, financiero, presupuestario, administrativo, económico, jurídico, y operaciones de otra naturaleza ligadas al manejo de fondos públicos y que son originados, por denuncias; por el estudio de irregularidades determinadas al ejecutar auditorías operativas o financieras; y por aquellos asuntos planificados que no se enmarcan en los propósitos de esas auditorías.

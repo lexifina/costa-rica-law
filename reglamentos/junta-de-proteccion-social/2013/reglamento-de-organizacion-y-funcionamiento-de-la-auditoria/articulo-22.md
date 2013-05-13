@@ -1,0 +1,1 @@
+Artículo 22.—Actualización del universo auditable. El Auditor Interno deberá definir y mantener actualizado en medio idóneo, las unidades y entes sujetos al ámbito de competencia de la Auditoría Interna en concordancia con lo que establece el artículo Nº 22 de la Ley General de Control Interno Nº 8292, sus modificaciones y reformas y normativa legal y técnica.

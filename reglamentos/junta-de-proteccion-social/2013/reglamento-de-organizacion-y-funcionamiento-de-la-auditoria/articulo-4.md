@@ -1,0 +1,1 @@
+Artículo 4°—Principios y normas. Los colaboradores de la Auditoría deben observar los principios y reglas de conducta establecidos en el Código de Ética del Instituto de Auditores Internos, sin perjuicio de otros valores que la Contraloría General de la República y la institución promuevan para guiar su actuación; así como las normas que rigen el ejercicio de la profesión.

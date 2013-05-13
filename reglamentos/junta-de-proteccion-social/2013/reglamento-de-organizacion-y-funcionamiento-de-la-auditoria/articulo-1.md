@@ -1,0 +1,17 @@
+JUNTA DE PROTECCIÓN SOCIAL
+La Auditora Interna de la Junta de Protección Social, de conformidad con las competencias que le otorga el inciso h) del artículo Nº 22 de la Ley Nº 8292, que establece que la Auditoría Interna debe mantener debidamente actualizado el reglamento de organización y funcionamiento de la auditoría interna y
+Considerando:
+I.—Que el artículo Nº 23 de la Ley Nº 8292, establece que la Auditoría Interna se organizará y funcionará conforme lo disponga el auditor interno de conformidad con las disposiciones, normas, políticas y directrices que emita el Órgano Contralor y que cada Auditoría dispondrá de un reglamento de organización y funcionamiento, acorde con la normativa que rige su actividad.
+II.—Que mediante Resolución R-DC-119-2009 del 16 de diciembre de 2009, se derogaron las “Directrices generales relativas al reglamento de organización y funcionamiento de las auditorías internas del Sector Público” (D-2-2006-CO-DFOE-DAGJ, emitidas con resolución R-CO-93-2006 del 17 de noviembre de 2006, publicada en La Gaceta Nº 236 del 8 de diciembre de 2006).
+III.—Que el apartado Nº 7 “Sobre el procedimiento de aprobación del reglamento de organización y funcionamiento de la auditoría interna, y sus modificaciones” de los “Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, las condiciones para las gestiones de nombramiento, suspensión y destitución de dichos cargos, y la aprobación del reglamento de organización y funcionamiento de las auditorías internas del Sector Público”[1]” , se estipuló lo siguiente:
+[1]Adicionado mediante Resolución R-DC-2009 del 16 de diciembre de 2009
+“7.3 Modificaciones al reglamento. Para la debida actualización del reglamento de organización y funcionamiento de la auditoría interna, el auditor interno debe proponer al máximo jerarca institucional las modificaciones que estime necesarias. Habiendo sido aprobadas éstas por el jerarca, el auditor interno debe presentar a la Contraloría General una certificación de que lo aprobado cumple con la normativa aplicable, para que la Contraloría General otorgue su aprobación con base en esa certificación.
+Para el trámite de modificaciones debe observarse lo dispuesto en las normas precedentes en cuanto a la resolución de discrepancias y los plazos aplicables.”
+IV.—Que de conformidad con la norma 1.1.2. “Reglamento de Organización y Funcionamiento” de las Normas para el ejercicio de la auditoría interna en el Sector Público, la organización y el funcionamiento de la auditoría interna deben formalizarse en un reglamento aprobado por las autoridades competentes, que se mantenga actualizado y que contenga las definiciones atinentes al marco de acción del ejercicio de esa actividad, referidas al menos a lo siguiente: naturaleza, ubicación y estructura organizativa, ámbito de acción, competencias y relaciones y coordinaciones.
+Por tanto, emite el siguiente:
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA
+JUNTA DE PROTECCIÓN SOCIAL
+CAPÍTULO I
+Disposiciones generales
+Artículo 1.—Objeto. El presente Reglamento regula las actividades, organización, objetivos, funciones y atribuciones de la Auditoría Interna de la Junta de Protección Social, de conformidad con lo que establece el artículo Nº 23 de la Ley General de Control Interno; así como lo contemplado en las Normas para el ejercicio de la auditoría interna en el Sector Público, emitidas por la Contraloría General de la República mediante Resolución R-DC-119-2009 del 16 de diciembre de 2009.

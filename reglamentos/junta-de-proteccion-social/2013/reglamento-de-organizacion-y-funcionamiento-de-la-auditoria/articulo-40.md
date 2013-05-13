@@ -1,0 +1,4 @@
+Artículo 40.—Seguimiento a servicios preventivos. La Auditoría dará seguimiento a los servicios preventivos de la siguiente manera:
+a) Servicios de asesoría: Verificar si lo actuado por la Junta Directiva está acorde con el ordenamiento jurídico y técnico, sin perjuicio, según corresponda, a emitir como resultado del seguimiento informes de control interno o de relaciones de hechos. Debe tenerse en cuenta que la asesoría brindada no es vinculante para la Junta Directiva, pero sus actuaciones deben estar ajustadas al ordenamiento jurídico.
+b) Servicios de advertencia: Verificar lo actuado por la Administración Activa respecto a las advertencias que se hayan formulado, sin perjuicio de que como resultado del seguimiento se emitan informes de control interno o relaciones de hechos.
+c) Servicios de autorización de libros: Se dará un seguimiento regular respecto a la administración y el control de los libros legales que haya autorizado.

@@ -1,0 +1,1 @@
+Artículo 6°—Objetividad. Los colaboradores de la Auditoría Interna deben tener una actitud imparcial y neutral y evitar cualquier conflicto de intereses, que pueda hacerle difícil el cumplimiento imparcial de sus tareas.

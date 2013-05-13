@@ -1,0 +1,1 @@
+Artículo 19.—Funciones del Subauditor Interno. Al Subauditor Interno le corresponderá dentro de sus funciones apoyar al Auditor Interno en las labores que éste le encomiende y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.

@@ -1,0 +1,1 @@
+Artículo 12.—Estructura organizativa. Corresponderá al Auditor Interno definir la estructura organizativa y funcional que permita garantizar la efectividad en el cumplimiento de sus competencias y una administración eficaz, eficiente y económica de sus recursos, considerando los objetivos y riesgos institucionales, los recursos disponibles, la normativa legal y técnica aplicable.
