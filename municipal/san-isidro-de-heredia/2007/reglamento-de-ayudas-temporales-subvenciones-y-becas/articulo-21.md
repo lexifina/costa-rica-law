@@ -1,1 +1,0 @@
-Artículo 21.—Toda persona física o jurídica que reciba una ayuda temporal, subvención, o beca, deberá de firmar un formulario de recibido donde se desglose la ayuda o colaboración recibida de parte de la Municipalidad de San Isidro. La elaboración de dicho formulario estará a cargo del Concejo de Distrito Municipal y se adjuntará al expediente correspondiente.

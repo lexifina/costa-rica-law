@@ -1,1 +1,0 @@
-Artículo 17.—El Concejo de Distrito conocerá la solicitud y abrirá un expediente para su estudio, análisis y dictamen, determinando en forma fehaciente el objeto y fin que conlleva la subvención solicitada.

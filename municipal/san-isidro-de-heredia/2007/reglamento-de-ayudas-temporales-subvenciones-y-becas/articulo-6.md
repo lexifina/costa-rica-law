@@ -1,1 +1,0 @@
-Artículo 6º—Para efectos de otorgar esas ayudas la Municipalidad se reserva también, el derecho de determinar, si la ayuda se da en artículos de primera necesidad, o bien en materiales y suministros o préstamo de maquinaria, de acuerdo con las prioridades que se determinen en cada caso, por los medios técnicos indicados.
