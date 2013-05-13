@@ -1,0 +1,1 @@
+2º—Dejar sin efecto el procedimiento temporal para el cobro del “Impuesto a los Productos de Tabaco” y sus derivados, de las partidas arancelarias 24.01 y 24.03, establecido en la circular DGT-011-2012 de 01-08-2012.
