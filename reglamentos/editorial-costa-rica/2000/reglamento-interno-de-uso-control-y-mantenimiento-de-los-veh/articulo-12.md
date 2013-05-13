@@ -25,5 +25,5 @@ T.2) Consumo de combustible y lubricantes
 T.3) Reparación v mantenimiento de los vehículos
 T.4) Accidentes y trámites ante el INS
 U) Tornar las medidas administrativas o disciplinarias en el caso de anomalías.
-El vehículo de uso discrecional está excluido de cumplir estas disposiciones con excepción de las establecidas en los incisos A, C, F, H, L, O, T incisos 2, 3 y 4 y i.1. sin embargo, la administración aplicará los controles mínimos necesarios como los establecidos para otros activos.
+(Derogado el penúltimo párrafo original mediante sesión ordinaria N° 2511 del 13 de mayo del 2013)
 El jefe del Departamento Administrativo, si recibe noticias de anomalías o las constatare personalmente, deberá tomar las medidas administrativas o disciplinarias del caso, como parle de sus responsabilidades.

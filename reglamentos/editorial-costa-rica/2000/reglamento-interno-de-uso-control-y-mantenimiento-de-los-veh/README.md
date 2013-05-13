@@ -14,3 +14,4 @@ Reglamento Interno de Uso, Control y Mantenimiento de los Vehículos Propiedad d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-06 | la propia norma |
+| 2 | 2013-05-13 | Reglamento 2511 (2013-05-13) |
