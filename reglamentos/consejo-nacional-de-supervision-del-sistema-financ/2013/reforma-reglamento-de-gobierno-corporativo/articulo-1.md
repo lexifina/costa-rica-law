@@ -1,0 +1,24 @@
+BANCO CENTRAL DE COSTA RICA
+El Consejo Nacional de Supervisión del Sistema Financiero en el numeral I, artículo 7 del acta de la sesión 1040-2013, celebrada el 30 de abril del 2013,
+considerando que:
+A. El artículo 3 de la Ley Reguladora del Mercado Valores (LRMV), Ley 7732, establece la obligación para la Superintendencia General de Valores (SUGEVAL) de velar por la transparencia de los mercados de valores, la correcta formación de precios y la protección de los inversionistas.
+B. El artículo 8, incisos b), l) y ñ), de la LRMV señala que le corresponde a la SUGEVAL someter a la consideración del Consejo Nacional de Supervisión del Sistema Financiero los proyectos de reglamento que le corresponda dictar a la Superintendencia; exigir a los sujetos fiscalizados toda la información razonablemente necesaria, en las condiciones y periodicidad que determine, por reglamento el Consejo Nacional, así como exigir, a los sujetos fiscalizados el suministro de la información necesaria al público inversionista para cumplir con los fines de esta ley.
+C. El artículo 105 de la LRMV dispone que los emisores de valores deberán informar al público, en el menor plazo posible según lo establezca, vía reglamento, la Superintendencia, de la existencia de factores, hechos o decisiones que puedan influir, de modo sensible, en el precio de sus valores.
+D. El artículo 114 de la Ley citada establece la obligación para la Superintendencia de normar la gestión de conflictos de interés que se presenten entre los participantes de los mercados de valores.
+E. El buen gobierno corporativo proporciona elementos que procuran la existencia y puesta en práctica de mecanismos que permiten el balance entre la gestión de cada órgano y el control de dicha gestión, mediante sistemas de pesos y contrapesos, con el fin de que las decisiones adoptadas en cada instancia se realicen de acuerdo con el mejor interés de la entidad, sus accionistas o asociados, y acreedores, respetando los derechos de los consumidores financieros y de los demás grupos de interés.
+F. El Índice Doing Business es una herramienta elaborada por el Banco Mundial, con la que se evalúa y compara la facilidad o dificultad de hacer negocios en 185 países.
+G. Dicho Índice considera como una práctica internacional de buen gobierno corporativo la protección de los accionistas minoritarios, a través de la transparencia en la información a la que éstos tienen acceso, así como, a través del establecimiento de políticas que aseguren que, en transacciones que representen un 10% o más del patrimonio del emisor accionario y que se realicen con partes relacionadas con miembros de junta directiva o con el gerente general, se requiera la aprobación previa por parte de la junta directiva con exclusión de los directivos que tengan relación con la operación.
+H. La adopción de una práctica internacional como la indicada anteriormente permitiría que el país mejore en su evaluación y ubicación en dicho índice.
+I. La presente modificación al Reglamento fue sometida a consulta de conformidad con el Artículo 361 de la Ley General de Administración Pública.
+resolvió en firme:
+1.—Modificar el artículo 2 del Reglamento de Gobierno Corporativo, que se leerá de la
+siguiente forma:
+“Artículo 2. Ámbito de aplicación Las disposiciones establecidas en el presente Reglamento son de aplicación para las entidades supervisadas por los órganos supervisores del sistema financiero costarricense, incluyendo la sociedad controladora de los grupos y conglomerados financieros; se deben aplicar en el tanto no contravengan lo establecido en leyes especiales vigentes.
+Los emisores no financieros de valores deben aplicar lo dispuesto en los artículos 8 y 20 del presente Reglamento, respecto a las declaraciones juradas que deben rendir el gerente general y el presidente de la Junta Directiva u órgano equivalente, así como aplicar lo dispuesto en las Secciones II y IV del Capítulo III respecto al Comité de Auditoría. Tratándose de emisores de valores accionarios además de lo anterior, les aplica también el artículo 10 bis del presente Reglamento.
+Asimismo, el resto de disposiciones de este Reglamento, les será aplicable también a aquellos emisores que no adopten el Reglamento sobre gobierno corporativo y sus reformas emitidas por la bolsa de valores respectiva. El Reglamento de Gobierno Corporativo que emitan las bolsas de valores deben considerar como mínimo lineamientos sobre:
+a) Integración y operación de la Junta Directiva y responsabilidades de los miembros.
+b) Integración y funciones del comité de auditoría.
+c) Transacciones de los valores accionarios de la empresa que lleven a cabo los miembros de Junta Directiva, ejecutivos clave y asesores.
+d) Relaciones con inversionistas.
+e) Elaboración y divulgación de un informe anual sobre el cumplimiento del reglamento o código de gobierno corporativo.
+f) Divulgación de la adopción del reglamento o código de gobierno corporativo.”
