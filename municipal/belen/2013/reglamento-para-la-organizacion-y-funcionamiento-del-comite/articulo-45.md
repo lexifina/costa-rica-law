@@ -1,0 +1,1 @@
+ARTÍCULO 45. La elección de las y los miembros de la JD del Comité Comunal se realizará a través de una Asamblea convocada por la JD del CCDRB, los asambleistas procederán a la elección de los puestos de la JD del Comité Comunal de entre las personas propuestas en dicha asamblea, ya sean de los presentes o externos a la misma.

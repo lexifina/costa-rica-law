@@ -1,0 +1,3 @@
+ARTÍCULO 12. Las Asociaciones Recreativas y Deportivas Adscritas deberán entregar, sobre el trabajo, programación, proyecto o actividad que realizan para el CCDRB; informes a la Junta Directiva del CCDRB y cumplir con todo lo establecido en la Ley de Contratación Administrativa, su respectivo Reglamento y el Reglamento del CCDRB.
+Que se presenten informes anuales de labores y estados financieros debidamente auditados por una auditoria externa en la primera semana de abril, con una copia al Concejo Municipal.
+La Junta Directiva del CCDRB deberá presentar sus informes anuales de labores y estados financieros debidamente auditados por una auditoria externa, en el mes de enero de cada año, al Concejo Municipal.
