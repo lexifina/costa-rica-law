@@ -1,0 +1,2 @@
+V.—De la administración del proceso de depuración
+Artículo 3°—La unidad administrativa - financiera solicitara a cada encargado de proceso en el mes de octubre, el plan anual de depuración de la base de datos especifica que administra, el cual debe seguir las indicaciones generales del presente reglamento y las especificaciones que se establezcan por medio de la directriz de la unidad administrativa - financiera.

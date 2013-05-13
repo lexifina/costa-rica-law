@@ -1,0 +1,1 @@
+Artículo 10.—Los Departamentos involucradas en el proceso, analizaran el informe de la unidad administrativa-financiera, así como aquellos atenuantes que no se identificaron en el informe y en caso de ser necesario solicitaran al Alcalde la aplicación del Reglamento Autónomo de Organización y Servicios de la Municipalidad de Paraíso.

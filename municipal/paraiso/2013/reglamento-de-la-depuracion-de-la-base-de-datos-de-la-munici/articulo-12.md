@@ -1,0 +1,2 @@
+VII.—Sobre el procedimiento cuando involucra aumento, disminución o eliminación de la base imponible del impuesto o servicio
+Artículo 12.—Se entenderá el procedimiento de modificación o eliminación de la base imponible, a la acción efectuada por el encargado del proceso (oficina/departamento) de alterar o eliminar la información que da origen a un cobro de un servicio o impuesto administrado por la municipalidad, mediante los procedimientos descritos por este reglamento y las directrices de la unidad administrativa financiera.

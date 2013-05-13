@@ -1,0 +1,1 @@
+Artículo 9°—La unidad administrativa - financiera a partir de la información suministrada por el Departamento de Tecnologías de Información elaborará y remitirá un informe general del proceso de depuración de la base de datos en forma semestral al Alcalde, y a los departamentos respectivos con copia a la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 6°—Las dependencias municipales deberán acatar en todos sus extremos las recomendaciones que emanan de la unidad administrativa - financiera el proceso de depuración de la base de datos y establecerán dentro de plan de trabajo anual, los indicadores de gestión.
