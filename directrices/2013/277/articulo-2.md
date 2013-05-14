@@ -1,0 +1,1 @@
+Artículo 2º—En la oferta de empleo público del Ministerio de Educación Pública se reservará cuando menos un cinco por ciento anual (5%) de las vacantes, para que sean cubiertas por personas con discapacidad siempre que existan registros de elegibles para cada una de las clases de puestos y especialidades objeto de análisis y se superen las pruebas selectivas y de idoneidad.

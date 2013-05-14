@@ -1,0 +1,1 @@
+Artículo 3º—Para efectos de reservar este cinco por ciento (5%) de las vacantes, se aplicará el Instructivo denominado “Procedimiento para identificar la reserva del 5% de las vacantes para ser cubiertas por personas con discapacidad regulado en la Ley de Inclusión y Protección Laboral de las Personas con Discapacidad en el Sector Público N° 8862.
