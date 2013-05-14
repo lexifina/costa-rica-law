@@ -1,0 +1,4 @@
+Artículo 9º—Términos del arreglo de pago.
+Se concederán arreglos de pago en los casos en que la deuda sea superior a ¢200.000,00 y que el interesado deposite un 50% del monto que consigne la certificación de adeudos si no se hubiere iniciado el proceso judicial o, en su defecto, el 50% de la cuantía de la ejecución. El plazo de los arreglos de pago no podrá ser superior al año.
+El arreglo de pago deberá incluir la cancelación de gastos por concepto de honorarios profesionales de abogado, costas judiciales si las hubiere, intereses moratorios cuya tasa será igual a la tasa básica pasiva establecida por el Banco Nacional de Costa Rica en los certificados de depósito a plazo en dólares, más el saldo de capital. Los intereses moratorios comenzarán a correr a partir de la fecha en que se determinó el saldo al descubierto hasta la fecha del efectivo pago de lo adeudado.
+La imputación del pago se hará en el mismo orden de los rubros anteriormente indicados.
