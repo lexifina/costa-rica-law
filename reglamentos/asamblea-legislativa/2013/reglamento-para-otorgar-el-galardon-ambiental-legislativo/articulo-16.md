@@ -1,0 +1,2 @@
+Artículo 16.—Otorgamiento del Galardón Ambiental Legislativo
+El galardón será entregado por el Directorio Legislativo, en una ceremonia que también contará con la presencia del jurado, el 24 de agosto de cada año, fecha en que se celebra el Día de los Parques Nacionales, a la hora y en el lugar que acuerde este órgano legislativo. Los años en que la fecha indicada sea un día inhábil, la entrega del galardón se realizará el día hábil siguiente.

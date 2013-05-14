@@ -1,0 +1,2 @@
+Artículo 13.—Entrega del premio al ganador del concurso o en su defecto declaratoria desierta
+El jurado deberá entregar a más tardar el 16 de julio de cada año, al Directorio Legislativo, un sobre cerrado que contendrá el nombre del centro educativo ganador del concurso Galardón Ambiental Legislativo, o en su defecto, indicará si el concurso debe ser declarado desierto. En ambos casos deberá mediar razonamiento fundado.

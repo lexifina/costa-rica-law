@@ -1,0 +1,3 @@
+Artículo 17.—Presupuesto
+La Oficina de Iniciativa Popular presupuestará cada año una partida, destinada a financiar el premio que se entregará al centro educativo que resulte ganador del Galardón Ambiental Legislativo.
+Para definir la cantidad que se va a presupuestar, se deberá considerar al menos cinco veces el salario base de un oficinista 1, definido en el artículo 2 de la Ley Nº 7337. Asimismo, esta misma Oficina debe incluir las partidas necesarias para las publicaciones y la ejecución de las actividades que genere el procedimiento a seguir para la premiación del Galardón Ambiental Legislativo.
