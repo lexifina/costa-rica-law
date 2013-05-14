@@ -1,0 +1,1 @@
+Artículo 7º—Durante el periodo de suspensión únicamente se atenderá la recepción de solicitudes, cuyo análisis y resolución final quedará pendiente de conocerse durante el plazo previsto en el artículo anterior.

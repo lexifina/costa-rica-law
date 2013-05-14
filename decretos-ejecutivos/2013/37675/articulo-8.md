@@ -1,0 +1,1 @@
+Artículo 8º—Será un deber de todos los funcionarios de la SETENA colaborar con los miembros de la Comisión Especial. Deberán todos los funcionarios de la SETENA, facilitar toda la información, documentación o cualquier otro requerimiento que la Comisión Especial solicite en el plazo que está Comisión establezca.
