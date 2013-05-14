@@ -1,0 +1,1 @@
+Artículo 5º—Plazo para presentar trámite: El cliente deberá presentar su reclamo dentro del plazo de diez días hábiles con posterioridad al daño para efectos de admisibilidad del reclamo, sin prejuicio de lo dispuesto en el artículo 198 de la Ley General de la Administración Pública respecto a la prescripción de la responsabilidad sustantiva.

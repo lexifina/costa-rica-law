@@ -1,0 +1,1 @@
+Artículo 26.—Trámite ante el Asegurador: Cuando el monto a indemnizar requiera la aplicación de la Póliza de Responsabilidad Civil, JASEC tramitará ante el Asegurador la información y la documentación necesaria para que el cliente haga efectivo el pago.

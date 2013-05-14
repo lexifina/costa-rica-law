@@ -1,0 +1,2 @@
+Artículo 20.—Daños a indemnizar: En caso de comprobarse responsabilidad de la Institución ante un daño, JASEC estará en la obligación de resarcir el daño directo ocasionado al bien del cliente; sin embargo, en relación a las sumas dejadas de percibir fruto del daño generado, estas solo podrán gestionarse mediante vía judicial.
+Únicamente se realizará la indemnización por los equipos previamente reportados por el cliente, en caso de existir algún equipo que no se encuentre descrito en la solicitud, el afectado deberá gestionar un nuevo trámite.

@@ -1,0 +1,1 @@
+Artículo 19.—Asesoría Legal: las dependencias responsables del proceso de tramitación de una solicitud de indemnización ante Reclamos por Daños, podrán requerir el criterio legal correspondiente a la Asesoría Jurídica Institucional, que deberá emitir respuesta sobre el criterio solicitado en el plazo de los 3 días hábiles siguientes.

@@ -1,0 +1,1 @@
+Artículo 21.—Talleres autorizados: Cuando el Estudio Técnico evidencia responsabilidad de JASEC, la UEN Servicio al Cliente notificará los talleres autorizados por JASEC para efectuar la reparación de los equipos. Los talleres realizarán la valoración técnica e informarán a JASEC el daño identificado y la posible causa.

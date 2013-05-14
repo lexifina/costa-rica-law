@@ -1,0 +1,1 @@
+Artículo 4º—Requerimientos de información de ARESEP: Ante la ARESEP, la UEN Servicio al Cliente será la responsable de atender los requerimientos periódicos de información, tales como registros y estadísticas de trámites de indemnización, según los lineamientos y resoluciones vigentes del ente regulador.

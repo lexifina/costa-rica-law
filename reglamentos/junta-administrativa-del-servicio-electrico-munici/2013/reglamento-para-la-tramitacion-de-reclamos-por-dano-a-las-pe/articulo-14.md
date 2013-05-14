@@ -1,0 +1,1 @@
+Artículo 14.—Daños causados a vehículos: Ante daños en vehículos producto de una causa interna y atribuible a la responsabilidad de JASEC, el afectado no podrá gestionar por su cuenta la reparación del mismo sin una autorización previa y deberá coordinar directamente con la UEN Servicio al Cliente para que el perito del Asegurador realice la inspección.

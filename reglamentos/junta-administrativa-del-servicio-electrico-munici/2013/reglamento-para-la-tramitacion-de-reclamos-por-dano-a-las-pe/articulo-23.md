@@ -1,0 +1,1 @@
+Artículo 23.—Pérdida Total: En caso de declararse pérdida total del equipo, JASEC podrá gestionar una segunda opción en otro taller, de lo contrario se procederá con la indemnización sea aplicando el método de depreciación en línea recta, para determinar el valor a cancelar al afectado.

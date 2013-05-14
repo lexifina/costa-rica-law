@@ -1,0 +1,4 @@
+Artículo 22.—Otros talleres: Cuando JASEC no cuente con un taller especializado que valore el equipo dañado, el Proceso Atención al Cliente autorizará a llevar el equipo a otro taller para su valoración y reparación, la cual deberá ser aprobada previamente por JASEC. Para ser efectivo el pago de la indemnización, el cliente deberá presentar:
+a) Factura original de reparación debidamente autorizada por Tributación Directa y a nombre del Cliente.
+b) Informe técnico del taller donde se detalle los daños del equipo y la posible causa. Si el informe del taller no muestra un membrete de identificación, se requerirá copia de la cédula del representante del taller, sea física o jurídica que evidencia que el estudio técnico es del taller.
+c) En caso de sustitución de piezas y elementos de los artefactos dañados, estos deberán entregarse a JASEC.

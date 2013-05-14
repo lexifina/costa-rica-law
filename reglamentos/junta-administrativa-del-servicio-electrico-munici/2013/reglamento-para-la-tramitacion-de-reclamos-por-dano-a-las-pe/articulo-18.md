@@ -1,0 +1,1 @@
+Artículo 18.—Fase recursiva: Contra la resolución emitida por la UEN de Servicio al Cliente, cabrán los recursos señalados por el numeral 343 de la ley general de la Administración Pública. El interesado deberá interponer el recurso dentro del plazo de 3 días hábiles contados de la fecha de notificación y la resolución del recurso se rendirá 8 días hábiles después.
