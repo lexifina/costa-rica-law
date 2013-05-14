@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente reglamento tiene por objeto establecer las disposiciones relacionadas con el uso de la Marca País Costa Rica, así como la creación del Comité de Marca País, determinar sus funciones y forma de organización.

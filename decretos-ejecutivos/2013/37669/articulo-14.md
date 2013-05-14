@@ -1,0 +1,1 @@
+Artículo 14.—Organización. La Unidad Técnica de Apoyo elegirá por mayoría simple un coordinador, entre sus integrantes, quién ocupará tal cargo por un período de un año y podrá ser reelecto por períodos sucesivos.

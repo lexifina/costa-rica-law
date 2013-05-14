@@ -1,0 +1,1 @@
+Artículo 9º—Organización. El Comité de Marca País elegirá por mayoría simple un presidente, vicepresidente y un secretario, entre sus integrantes, quienes ocuparán tales cargos por un período de un año y podrán ser reelectos por períodos sucesivos.

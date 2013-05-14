@@ -1,0 +1,5 @@
+Artículo 15.—Sesiones. La Unidad Técnica de Apoyo se reunirá ordinariamente como mínimo una vez al mes y extraordinariamente cuando sea necesario, previa convocatoria de su Coordinador.
+El quórum para sesionar válidamente será el de mayoría absoluta de los miembros que integran la Unidad Técnica de Apoyo. Los acuerdos se tomarán por mayoría simple de los representantes presentes.
+Mediante acuerdo de la Unidad Técnica de Apoyo, se podrá invitar y convocar a sus sesiones de trabajo a representantes de otras entidades, instituciones u organizaciones públicas o privadas, cuya actividad tenga relación con las materias de su competencia y cuando su participación sea oportuna para analizar aspectos específicos.
+Para el cumplimiento de sus objetivos, la Unidad Técnica de Apoyo podrá conformar comisiones o grupos de trabajo ad hoc que analicen y desarrollen temas específicos, pudiendo integrar en éstas a especialistas del sector público o privado, de acuerdo con el tema o materia a tratar.
+Los miembros de la Unidad Técnica de Apoyo no gozarán de dietas ni remuneraciones por concepto de su participación en la misma.
