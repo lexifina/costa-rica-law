@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE BARVA
+La Municipalidad de Barva informa que el Concejo Municipal mediante los Acuerdos N° 303-2013 y N° 461-2013, aprobó derogar el artículo 41 y el párrafo tercero del transitorio uno del Reglamento a la Ley para Regulación y Comercialización de Bebidas con Contenido Alcohólico de la Municipalidad de Barva, vigente desde su publicación definitiva en el Diario Oficial La Gaceta Nº 40 del 26 de febrero del 2013.
