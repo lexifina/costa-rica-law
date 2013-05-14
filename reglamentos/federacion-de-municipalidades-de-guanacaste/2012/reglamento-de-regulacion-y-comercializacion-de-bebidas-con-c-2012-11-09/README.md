@@ -14,3 +14,4 @@ Reglamento de Regulación y Comercialización de bebidas con contenido alcohóli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-13 | la propia norma |
+| 2 | 2013-05-14 | Acuerdo municipal 0 (2013-05-14) |
