@@ -13,3 +13,4 @@ Envío de documentos y resoluciones para notificar, en forma completa, ordenada 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-04 | la propia norma |
+| 2 | 2013-05-14 | Circular 91 (2013-05-14) |
