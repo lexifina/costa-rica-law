@@ -1,0 +1,6 @@
+Artículo 12.—De los retiros. Los retiros de fondos de las cuentas de ahorro se realizarán siguiendo y respetando las siguientes normas, sin perjuicio de las que pueda determinar la administración del Grupo Mutual en casos especiales:
+a) Solamente el ahorrante y las personas debidamente autorizadas por éste, podrán realizar retiros sobre el saldo disponible de su cuenta de ahorros.
+b) Para los efectos del inciso anterior, el ahorrante o la persona autorizada deberá presentar su respectivo documento de identidad vigente, los documentos que la administración del Grupo Mutual considere pertinentes y firmar el documento de retiro correspondiente.
+c) Dependiendo de la modalidad de ahorro, el Grupo Mutual podrá poner a disposición del ahorrante mecanismos electrónicos que le permitan disponer de sus recursos, que se regirán de conformidad con lo que disponga la administración del Grupo Mutual.
+d) En los cajeros automáticos se podrán efectuar retiros hasta por el límite máximo autorizado por estos dispositivos.
+e) Por razones de seguridad y a conveniencia del ahorrante, cuando se trate de sumas considerables, el Grupo Mutual queda facultada para hacer el pago del retiro mediante cheque. Por medio de comunicados o circular que pondrá a disposición de los ahorrantes, el Grupo Mutual indicará las sumas que estarán en el rango de considerables.
