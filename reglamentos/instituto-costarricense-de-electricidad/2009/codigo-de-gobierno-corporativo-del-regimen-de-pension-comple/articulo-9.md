@@ -1,4 +1,4 @@
-9º—Integración del Comité de Auditoría y principales funciones. El Comité de Auditoría debe integrarse de la forma en que se establece en el Reglamento de Gobierno Corporativo, según el artículo Nº 21 y las funciones mínimas serán las establecidas en el artículo Nº 22 de ese mismo reglamento.
+9º—Integración del comité de auditoría y principales funciones. El Comité de Auditoría debe integrarse de la forma en que se establece en el Reglamento de Gobierno Corporativo, según el artículo Nº 21 y las funciones mínimas serán las establecidas en el artículo Nº 22 de ese mismo reglamento.
 No obstante lo anterior, sus principales funciones deben ser las de asistir a la Junta Administrativa y a la Dirección del Régimen en el aseguramiento razonable de la integridad, exactitud y transparencia de los estados financieros, análisis de riesgos y en un adecuado ambiente de control interno del Régimen y en este sentido, sus funciones generales deben enfocarse a lo siguiente:
 a. Revisar los estados financieros anuales y trimestrales, asegurando su integridad y oportunidad de emisión.
 b. Velar por el cumplimiento de los requerimientos legales y regulatorios.

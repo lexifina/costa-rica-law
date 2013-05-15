@@ -6,13 +6,13 @@ Dichas propuestas se deben adecuar a las disposiciones establecidas en el marco 
 En el caso del Comité de Auditoría las reuniones deben ser al menos cada tres meses, en las cuales pueden participar sin derecho a voto, el director Ejecutivo, el auditor interno, y los funcionarios que el Comité de Auditoría considere necesarios, así como el auditor externo cuando así lo requiera dicho comité.
 Los acuerdos adoptados en las reuniones del Comité de Auditoría y demás comités de apoyo deben constar en un Libro de Actas, el cual debe estar a disposición de la SUPEN.
 Este libro debe ser llevado en forma electrónica de acuerdo con las disposiciones que emita el Órgano Supervisor.
-3. Mecanismos de control. La Junta Administrativa cuenta para el seguimiento y control de la gestión del Régimen con lo siguiente:
+3. Mecanismos de Control. La Junta Administrativa cuenta para el seguimiento y control de la gestión del Régimen con lo siguiente:
 - Un sistema de control interno de toda la organización, evaluado anualmente por la Auditoria Interna.
 - Dictamen anual del Auditoria Interna.
 - Dictamen anual de Auditoria de Riesgos.
-- Informe semestral del Comité de Auditoria.
+- Informe semestral del Comité de Auditoría.
 - Informe Financiero Mensual presentado en las sesiones Junta Administrativa.
 - Informe de evaluación de riesgos del portafolio mensual.
-- Informes periódicos de Comités de Riesgos e Inversiones.
+- Informes periódicos de Comités de Riesgos e Inversiones
 - Plan anual operativo.
 - Informes de gestión de la Administración.

@@ -1,4 +1,4 @@
-13.—Política sobre Relación con Clientes Afiliados y Beneficiarios. En esta política sobre relación con clientes, sean estos miembros del Régimen como afiliados, beneficiarios o pensionados, debe tenerse como principal objetivo asegurar un trato equitativo y un acceso transparente a la información sobre la entidad para clientes vinculados a la entidad, su grupo o conglomerado financiero.
+13.—Política sobre relación con clientes afiliados y beneficiarios. En esta política sobre relación con clientes, sean estos miembros del Régimen como afiliados, beneficiarios o pensionados, debe tenerse como principal objetivo asegurar un trato equitativo y un acceso transparente a la información sobre la entidad para clientes vinculados a la entidad, su grupo o conglomerado financiero.
 Las políticas deben observar al menos, lo siguiente:
 1. En el caso de los miembros activos funcionarios del ICE, se garantiza su derecho al voto en la elección de sus representantes ante la Junta Administrativa.
 2. Se garantiza su disponibilidad de la información relevante de los temas tratados en la Junta Administrativa.

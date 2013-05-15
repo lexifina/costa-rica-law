@@ -16,3 +16,4 @@ Código de Gobierno Corporativo del Régimen de Pensión Complementaria de los T
 | 1 | 2009-11-25 | la propia norma |
 | 2 | 2010-12-09 | Reglamento 225 (2010-12-09) |
 | 3 | 2012-09-13 | Reglamento 250 (2012-09-13) |
+| 4 | 2013-05-15 | Reglamento 0 (2013-05-15) |
