@@ -1,0 +1,1 @@
+Artículo 15.—Se crea el Comité Técnico Nacional de Incendios Forestales (COTENA) como la instancia interna de coordinación y asesoramiento técnico a la Dirección Ejecutiva del SINAC, en acciones de manejo integral del fuego que se realicen a nivel nacional por parte del Programa Nacional de Manejo del Fuego del SINAC.

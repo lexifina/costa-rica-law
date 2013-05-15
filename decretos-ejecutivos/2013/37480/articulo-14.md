@@ -1,0 +1,1 @@
+Artículo 14.—Se crea el Programa Nacional de Manejo Integral del Fuego como la instancia interna de coordinación y asesoramiento técnico de la Dirección Ejecutiva del SINAC, en acciones de manejo integral del fuego que se realicen a nivel nacional por parte del SINAC.

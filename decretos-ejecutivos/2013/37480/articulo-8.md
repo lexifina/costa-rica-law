@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión Nacional sobre Incendios Forestales (CONIFOR) estará bajo la dirección y supervisión de la Dirección Ejecutiva del Sistema Nacional de Áreas de Conservación (SINAC) quien aprobará, apoyará y supervisará las acciones en materia de manejo del fuego, que sean necesarias a nivel nacional.

@@ -1,0 +1,1 @@
+Artículo 18.—Deróguese el Decreto Ejecutivo Nº 31397-MINAE, publicado en La Gaceta Nº 198 del 15 de octubre del 2003 y el Decreto Ejecutivo Nº 33108-MINAE, publicado en La Gaceta Nº 124 del 28 de junio del 2006.

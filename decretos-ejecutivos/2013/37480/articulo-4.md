@@ -1,0 +1,2 @@
+Artículo 4º—Los integrantes que se designen para representar a las instituciones señaladas en el artículo anterior, en la CONIFOR, deberán ser ratificados cada dos años por medio de la autoridad respectiva y desempeñarán sus cargos como parte de sus responsabilidades ordinarias; los mismos tendrán disponibilidad y apoyo institucional para asistir a las diversas actividades convocada.
+Los designados deberán tener experiencia de campo y haber recibido capacitación en manejo del fuego.

@@ -1,0 +1,1 @@
+Artículo 17.—Créase el Centro Nacional de Manejo Integral del Fuego (CENMIF), el cual se ubicará en las oficinas de la Secretaría Ejecutiva del SINAC. El CENMIF, tendrá un espacio físico, con personal, equipo y tecnología, aportado por el SINAC; el cual integrará, manejará y brindará la información de lo que se desarrolle a nivel de país en materia de Manejo Integral del Fuego.

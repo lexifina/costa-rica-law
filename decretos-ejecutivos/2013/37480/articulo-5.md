@@ -1,0 +1,1 @@
+Artículo 5º—Le corresponde a las instituciones que conforman la CONIFOR, promover el desarrollo de los programas institucionales y actividades relacionadas al manejo integral del fuego, dentro de las competencias de protección, manejo y administración de los recursos naturales, atinentes a cada una de ellas.
