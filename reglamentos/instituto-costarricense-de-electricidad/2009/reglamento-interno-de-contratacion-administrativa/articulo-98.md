@@ -1,8 +1,4 @@
-TÍTULO V
-Terminación de los contratos administrativos
-CAPÍTULO I
-Resolución y rescisión del contrato
-SECCIÓN I
-Resolución del contrato
-Artículo 98.—En caso de incumplimientos graves del contratista, el AC documentará el incumplimiento, indicará la prueba en que se sustenta y la estimación de los daños y perjuicios, solicitando a la Proveeduría la resolución del contrato, así como el monto a ejecutar de la garantía de cumplimiento y cobro de multas o cláusula penal, según corresponda. Asimismo, el AC solicitará en el mismo acto la aplicación de las sanciones correspondientes (apercibimiento o inhabilitación). Todo lo anterior en coordinación con el CCA en lo que corresponda.
-Una vez documentado el incumplimiento el AC podrá emitir la orden de suspensión del contrato.
+SECCIÓN IV
+Recursos ordinarios aplicables en otros procedimientos
+Artículo 98.—En contra de las resoluciones de apercibimiento y/o inhabilitación, resolución contractual, rescisión, ejecución de garantías, reclamos, contratación irregular y cobros administrativos, se deberán interponer los recursos ordinarios que establece la Ley General de la Administración Pública.
+Los actos finales o los que dicten recursos podrán ser motivados de manera referencial, según lo establecido en el artículo 136 de la Ley General de la Administración Pública para lo cual, se deberán adjuntar los informes, dictámenes o resoluciones previas que se hayan emitido en el caso particular, no debiendo transcribir su contenido.

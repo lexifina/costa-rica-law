@@ -1,1 +1,5 @@
-Artículo 81.—Corresponde a la Proveeduría integrar y enviar la respuesta a la Contraloría General de la República dentro del plazo de la audiencia.
+CAPÍTULO V
+Fase Recursiva
+SECCIÓN I
+Objeción al cartel
+Artículo 81.—El recurso de objeción contra el cartel de las licitaciones públicas se interpondrá ante la Contraloría General de la República. Contra el cartel de las licitaciones abreviadas procederá la interposición del recurso de objeción al cartel ante la Administración.

@@ -1,1 +1,5 @@
-Artículo 99— La Proveeduría por medio del Órgano Director Administrativo dará inicio al procedimiento de resolución de contrato, con fundamento en los motivos de incumplimiento acreditados por el AC, dándole audiencia al contratista por un plazo de diez días hábiles, indicando los alcances del presunto incumplimiento, la prueba en que se sustenta, así como la estimación de los daños y perjuicios, a fin de que éste atienda la audiencia y aporte la prueba respectiva.
+Artículo 99.—Los recursos se plantearán ante la Proveeduría , los cuales serán resueltos por la Proveeduría. Una vez obtenidos los criterios del área técnica y de la Dirección de Contratación Administrativa del ICE.
+Los recursos de apelación serán resueltos por el Superior Jerárquico de la Proveeduría.
+Estos recursos seguirán los principios de la Ley General de la Administración Pública.
+Dada la resolución por el órgano competente, se enviará a la Proveeduría para que comunique la respuesta al o los recurrentes.
+En los casos cuando el recurso no es presentado ante la Proveeduría , se deberá trasladar en forma inmediata a esta última para que proceda según corresponda.

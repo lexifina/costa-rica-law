@@ -1,1 +1,1 @@
-Artículo 83.—Si el recurso es declarado con lugar, la Proveeduría , en coordinación con el CCA, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.
+Artículo 83.—Corresponde a la Proveeduría integrar y enviar la respuesta a la Contraloría General de la República dentro del plazo de la audiencia.

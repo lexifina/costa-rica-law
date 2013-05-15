@@ -1,8 +1,1 @@
-CAPÍTULO II
-Finiquito de las contrataciones
-SECCIÓN I
-Formalización de finiquito
-Artículo 106.—Una vez finalizada una contratación de bienes, servicios u obras, y concluido el trámite correspondiente de cobro de multas o cláusula penal, en caso de que proceda, el CCA en lo que corresponda, en coordinación con el AC, deberá enviar los informes finales, debidamente firmados, incluyendo las liquidaciones y el finiquito correspondiente en los casos que correspondan, a la Proveeduría para que pase a formar parte del expediente administrativo.
-El contrato de finiquito se firmará por parte del ICE, por el Director o jefe de la dependencia que promueve la contratación. El AC y el CCA de la dependencia respectiva serán los responsables de verificar de previo a la firma del finiquito que no quedan multas pendientes de cobro, reajustes, reclamos, etc.
-Dicho contrato no requiere aprobación o visto bueno por parte de la Dirección de Contratación Administrativa.
-En el caso de contrataciones directas de escasa cuantía, no se deberá suscribir el finiquito, sino que bastará un informe final suscrito por parte del AC, que deberá incorporarse en el expediente administrativo.
+Artículo 106.—Obtenida la respuesta del contratista y sus pruebas, la Proveeduría cuenta con un plazo de un mes calendario para notificarle la resolución final al contratista. Procede dentro de ese plazo a solicitar el dictamen legal a la Dirección de Contratación Administrativa para lo cual adjunta los expedientes de rescisión y el principal, otorgándole un plazo de cinco días hábiles para resolver. Posteriormente, le enviará una recomendación al Director o Subdirector de Proveeduría a fin de que emita el acto de rescisión correspondiente, en esta recomendación se indicará la fecha máxima para dictar la resolución.

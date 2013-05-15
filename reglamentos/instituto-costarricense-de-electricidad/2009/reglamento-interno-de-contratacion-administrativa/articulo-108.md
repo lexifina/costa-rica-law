@@ -1,2 +1,8 @@
-Artículo 108.—El cobro de las multas y cláusulas penales, se hará con cargo a las retenciones del precio, que se hubieran practicado y los saldos pendientes de pago. En caso de que ninguna de esas dos alternativas resulte viable, se ejecutará la garantía de cumplimiento hasta por el monto respectivo.
-El AC en coordinación con el CCA en lo que corresponda, al momento de solicitar ante la Proveeduría el trámite de cobro de la multa o cláusula penal deberá como medida cautelar hacer la retención provisional del monto de la multa en las facturas pendientes de pago. Esta deducción de pago se realizará previa comunicación al Área de Administración de Garantías, Registros y Sanciones de la Proveeduría para que así se haga saber al contratista.
+CAPÍTULO II
+Finiquito de las contrataciones
+SECCIÓN I
+Formalización de finiquito
+Artículo 108.—Una vez finalizada una contratación de bienes, servicios u obras, y concluido el trámite correspondiente de cobro de multas o cláusula penal, en caso de que proceda, el CCA en lo que corresponda, en coordinación con el AC, deberá enviar los informes finales, debidamente firmados, incluyendo las liquidaciones y el finiquito correspondiente en los casos que correspondan, a la Proveeduría para que pase a formar parte del expediente administrativo.
+El contrato de finiquito se firmará por parte del ICE, por el Director o jefe de la dependencia que promueve la contratación. El AC y el CCA de la dependencia respectiva serán los responsables de verificar de previo a la firma del finiquito que no quedan multas pendientes de cobro, reajustes, reclamos, etc.
+Dicho contrato no requiere aprobación o visto bueno por parte de la Dirección de Contratación Administrativa.
+En el caso de contrataciones directas de escasa cuantía, no se deberá suscribir el finiquito, sino que bastará un informe final suscrito por parte del AC, que deberá incorporarse en el expediente administrativo.

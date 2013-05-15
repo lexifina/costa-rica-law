@@ -1,3 +1,5 @@
-Artículo 109.—La Proveeduría será la encargada de comunicar y gestionar el cobro ante el contratista. No será necesario demostrar el daño y/o perjuicio pero ello no excluye que el ICE deba dictar un acto debidamente motivado en su decisión de cobro. Dicha resolución será oportunamente comunicada al contratista.
-Para el caso de las multas, cláusulas penales o cobros contemplados en los carteles y originados en contrataciones realizadas mediante los Registros de Elegibles, será la Dependencia que promueve la contratación la encargada de comunicar y realizar el rebajo del pago, para lo cual se utilizará el procedimiento establecido en el cartel respectivo.
-(Así reformado en sesión N° 5951 del 7 de junio del 2011)
+TÍTULO VI
+Régimen sancionatorio
+CAPÍTULO I
+Multas y sanciones
+Artículo 109.—Las multas y cláusulas penales se ejecutarán en apego estricto a lo señalado en el Artículo 41 del Reglamento a la Ley 8660 o en el cartel o pliego de especificaciones una vez detectado el incumplimiento. Será responsabilidad del AC en coordinación con el CCA en lo que le corresponda, solicitar a la Proveeduría , mediante acto debidamente motivado el cobro de las mismas en aquellos contratos que estén bajo su tutela. Para el cobro de las multas no existen recursos.

@@ -1,1 +1,3 @@
-Artículo 113.—Recibido el dictamen del AC, el área respectiva de la Proveeduría remitirá en el plazo máximo de 5 días hábiles, su recomendación al Director o Subdirector de la Proveeduría , para que emita la resolución final en un plazo de cinco días hábiles. Dicha resolución tendrá los recursos ordinarios (revocatoria y/o apelación) y deberán presentarse dentro de los tres días hábiles siguientes a la notificación.
+SECCIÓN I
+Sanciones a los contratistas
+Artículo 113.—Una vez que el AC determine que el contratista pudo haber incurrido en una conducta donde en apariencia sea aplicable una sanción, sea el apercibimiento o inhabilitación, deberá en coordinación con el CCA en lo que le corresponda, iniciar el procedimiento correspondiente ante la Proveeduría , proponiendo las sanciones respectivas según la gravedad del caso. Para esos efectos se deberá aplicar el Procedimiento de Sanciones publicado en la página Web de la Proveeduría.

@@ -1,4 +1,1 @@
-SECCIÓN II
-Revocatoria
-Artículo 84.—En los concursos cuyos procedimientos no corresponda el recurso de apelación procederá la interposición del recurso de revocatoria. Dicho recurso se presentará ante la Proveeduría dentro del plazo de cinco días siguientes a la fecha en que se comunicó el acto de adjudicación.
-En caso que el recurso sea presentado ante el mismo órgano que dictó la adjudicación, éste deberá remitirlo a la Proveeduría en el plazo de un día hábil para el trámite respectivo y tendrá una única instancia. El recurrente aún así podrá solicitar expresamente que su recurso lo resuelva el jerarca del ICE.
+Artículo 84.—Si el recurso es interpuesto en una licitación abreviada ante la Proveeduría , ésta en coordinación con el Área Técnica, y la Dirección de Contratación Administrativa, prepararán la recomendación de resolución, quienes en un plazo de tres días hábiles, la remitirán al Director o Subdirector de Proveeduría para la resolución final. En caso de improcedencia manifiesta o de inadmisibilidad del recurso, la Proveeduría podrá rechazarlo de plano.

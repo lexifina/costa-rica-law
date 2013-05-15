@@ -1,6 +1,1 @@
-TÍTULO VI
-Régimen sancionatorio
-CAPÍTULO I
-Multas y sanciones
-Artículo 107.—Las multas y cláusulas penales se ejecutarán automáticamente(*), en apego estricto a lo señalado en el Artículo 41 del Reglamento a la Ley Nº 8660 o en el cartel o pliego de especificaciones una vez detectado el incumplimiento. Será responsabilidad del AC en coordinación con el CCA en lo que le corresponda, solicitar a la Proveeduría, mediante acto debidamente motivado el cobro de las mismas en aquellos contratos que estén bajo su tutela. Para el cobro de las multas no existen recursos.
-(*) (Mediante resolución de la Sala Constitucional N° 06639 del 15 de mayo de 2013, declaró inconstitucional la palabra: "automáticamente”, contenida en el presente artículo)
+Artículo 107.—Una vez firme la rescisión, y de existir una liquidación económica a reconocer al contratista, conforme a lo dispuesto en el Reglamento a la Ley 8660, la dependencia técnica (AC) en conjunto con el CCA en lo que corresponda, previa consulta a la División de Planificación Financiera, procederán a emitir la orden de pago respectiva, consignando el detalle de la liquidación en el expediente administrativo de la contratación.

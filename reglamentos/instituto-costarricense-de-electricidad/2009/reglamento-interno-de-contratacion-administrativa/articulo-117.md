@@ -1,3 +1,3 @@
-TÍTULO VII
-Disposiciones finales
-Artículo 117.—En caso de que se presenten diferencias de criterios en algún tópico, propio de la Contratación Administrativa , entre las diferentes dependencias involucradas en un procedimiento de contratación, prevalecerá el criterio de la dependencia especialista según la temática del diferendo. En caso de permanecer la diferencia, el asunto será resuelto en forma definitiva por la Gerencia General.
+SECCIÓN II
+Sanciones a los funcionarios
+Artículo 117.—Los funcionarios del ICE, que tengan los insumos y la capacitación necesaria para desempeñar una labor de supervisión de los contratos en forma eficiente, serán responsables en la medida que pueda individualizarse su culpabilidad por las consecuencias provocadas a la Institución en razón de los incumplimientos de los contratistas, si pudiendo prever o denunciar a tiempo las transgresiones contractuales, no lo hicieron o no solicitaron las sanciones, ejecuciones, multas o rescisión o resolución respectiva, o no se atienda dentro de los plazos de ley las gestiones formuladas por los contratistas o por la Proveeduría. Además de la responsabilidad administrativa podrán ser responsables laboral, penal y civilmente, según corresponda y se logre demostrar.

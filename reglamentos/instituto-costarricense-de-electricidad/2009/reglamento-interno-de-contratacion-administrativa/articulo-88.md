@@ -1,1 +1,1 @@
-Artículo 88.—Una vez vencido el plazo conferido al adjudicatario para su contestación, la Administración deberá resolver el recurso dentro de los quince días hábiles siguientes.
+Artículo 88.—Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Proveeduría los enviará al Área Técnica y a la Dirección de Contratación Administrativa del ICE, para que ambos se pronuncien en un plazo de cuatro días hábiles.
