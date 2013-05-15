@@ -1,0 +1,1 @@
+Artículo 6º—Registro y/o archivo de la documentación. El colegio llevará un registro y un archivo de aquellas personas a las que se les otorgue el carné de Asistentes Técnicos de Atención Primaria en Salud.

@@ -1,0 +1,1 @@
+Transitorio I.—A la persona interesada en ser autorizada por parte del Colegio de Enfermeras de Costa Rica para trabajar como Asistente Técnico de Atención Primaria en Salud, se le concederá un plazo improrrogable de seis meses a partir de la publicación del presente reglamento para que obtenga la aprobación por parte de este colegio profesional.

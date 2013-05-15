@@ -1,0 +1,1 @@
+Artículo 13.—Características del campo docente. El campo docente para el programa de capacitación de ATAPS, corresponden a aquellas unidades docentes que provean las experiencias clínicas, para cumplir con los objetivos de aprendizaje del programa.

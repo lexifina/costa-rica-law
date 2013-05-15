@@ -1,0 +1,1 @@
+Artículo 15.—Docentes. Los docentes del programa de capacitación de ATAPS, deberán cumplir con los requisitos establecidos en el artículo tres de este reglamento y además contar con excelente desempeño laboral, ético y humanista.

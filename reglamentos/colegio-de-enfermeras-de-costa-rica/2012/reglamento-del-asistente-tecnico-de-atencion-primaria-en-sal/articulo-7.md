@@ -1,0 +1,1 @@
+Artículo 7º—Promoción del desarrollo. El Colegio promoverá el desarrollo del Asistente Técnico de Atención Primaria en Salud, mediante actividades educativas, para la actualización en temas de promoción de la salud, prevención de la enfermedad y formación ética.

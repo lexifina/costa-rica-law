@@ -1,0 +1,20 @@
+Artículo 12.—Material didáctico y equipos. Dichos establecimientos educativos, también deberán contar con el siguiente material didáctico y equipos:
+- Una Computadora con acceso a Internet, por docente
+- Archivadores
+- Fichas familiares
+- Teléfono
+- Impresora
+- Fotocopiadora
+- Proyector o video in
+- Pantalla
+- Materiales de oficina
+- Papelería
+- Modelo anatómico del cuerpo humano, óseo y órganos.
+- Esfigmomanómetros
+- Estetoscopios
+- Termómetros y porta termómetros
+- Material estéril.
+- Jeringas, agujas
+- Balanza, romana de calzón y tallímetro.
+- Termo y maletín
+- Cartillas

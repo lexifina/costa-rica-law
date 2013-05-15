@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la comisión supervisora y examinadora
+Artículo 8º—Comisión supervisora y examinadora. Créase una “Comisión Supervisora y Examinadora”, adscrita a la Junta Directiva del Colegio, conformada por cinco miembros ad honoren, nombrados por dicha Junta Directiva, por un plazo de cuatro años y cuyos integrantes deberán ser: dos Profesionales en Enfermería en el Área de Docencia, un Profesional en Enfermería de la Sección de Enfermería de la Caja Costarricense del seguro Social (CCSS), dos Profesionales en Enfermería de las Áreas Rectoras de Salud, con experiencia no menor a cinco años, en su campo.

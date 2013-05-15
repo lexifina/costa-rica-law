@@ -1,0 +1,8 @@
+COLEGIO DE ENFERMERAS DE COSTA RICA
+REGLAMENTO DEL ASISTENTE TÉCNICO DE ATENCIÓN
+PRIMARIA EN SALUD (ATAPS)
+Que la Asamblea General Extraordinaria de agremiados y agremiadas del Colegio de Enfermeras de Costa Rica, celebrada el día 23 de febrero del dos mil doce, en su salón de Sesiones, ubicado en la ciudad de San José, en uso de sus potestades contenidas en los artículos 3 y 7 de la “Ley Orgánica del Colegio de Enfermeras de Costa Rica”, número 2343 y artículos 2 y 5 del Reglamento a la Ley Orgánica del Colegio de Enfermeras de Costa Rica y con base en el acuerdo tomado en la asamblea general extraordinaria, celebrada el día 23 de febrero del dos mil doce; mediante el cual se dispuso integrar formalmente como parte del equipo de enfermería y registrar en los archivos del Colegio de Enfermeras de Costa Rica, a todos (as) los Asistentes Técnicos de Atención Primaria en Salud (ATAPS), se dispone conforme a esas atribuciones, Aprobar el siguiente Reglamento interno, denominado: “Reglamento del Asistente Técnico de Atención Primaria en Salud (ATAPS)”, a fin de contar con un instrumento que regule el quehacer de estas personas que desarrollan sus actividades en el primer nivel de atención.
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Fines y Objetivos. El presente reglamento tiene como propósito regular de manera formal, el quehacer de la persona Asistente Técnico de Atención Primaria en Salud (ATAPS), estableciendo los perfiles; tanto el de capacitación, como el laboral.
+Además, se instauran las normas que regirán la supervisión técnica, de estos asistentes técnicos por parte del Colegio de Enfermeras de Costa Rica, por tratarse de un miembro más del equipo de Enfermería.
