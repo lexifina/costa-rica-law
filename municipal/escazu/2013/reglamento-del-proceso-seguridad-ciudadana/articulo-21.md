@@ -1,0 +1,1 @@
+Artículo 21.—Fuera de la jornada laboral queda terminadamente prohibido el uso del uniforme, entiéndase éste como el pantalón azul, camisa azul con blanco o letras blancas, en el brazo izquierdo el escudo de la Policía Municipal de Escazú y al lado derecho la bandera del cantón junto con el chaleco de seguridad sumistrado por la Institución.

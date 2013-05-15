@@ -1,0 +1,1 @@
+Artículo 25.—El presente reglamento entrará en vigencia en la fecha que se publique en el Diario Oficial La Gaceta. Se procederá a reproducirle y entregar ejemplares al funcionariado de la Policía Municipal.

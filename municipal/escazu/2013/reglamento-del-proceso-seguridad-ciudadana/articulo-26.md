@@ -1,0 +1,1 @@
+Artículo 26.—La Municipalidad de Escazú se reserva el derecho de adicionar o modificar en cualquier momento las disposiciones de este reglamento, cumpliendo con lo dispuesto por el artículo 13 del Código Municipal.

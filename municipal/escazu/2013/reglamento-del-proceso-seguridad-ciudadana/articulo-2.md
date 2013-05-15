@@ -1,0 +1,2 @@
+Artículo 2º—De la Función. La Policía Municipal de Escazú estará al servicio de la comunidad. Tiene como función controlar el orden público, brindar seguridad en todos aquellos espacios públicos de interés local así como hacer efectivas las Ordenanzas Municipales y velar por el cumplimiento de la legislación de interés municipal.
+En el ejercicio de sus funciones este cuerpo policial tiene que sujetarse a lo establecido en la Constitución Política, a las leyes, los reglamentos y a los demás elementos que conformen el ordenamiento jurídico.
