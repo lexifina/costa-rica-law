@@ -14,3 +14,4 @@ Reforma Integral Reglamento Interno de Contratación Administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-10 | la propia norma |
+| 2 | 2013-05-15 | SINALEVI (sin norma nombrada) |
