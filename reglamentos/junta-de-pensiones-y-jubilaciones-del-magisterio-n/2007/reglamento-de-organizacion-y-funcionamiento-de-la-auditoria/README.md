@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Junt
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-15 | la propia norma |
+| 2 | 2013-05-16 | Reglamento 52 (2013-05-16) |
