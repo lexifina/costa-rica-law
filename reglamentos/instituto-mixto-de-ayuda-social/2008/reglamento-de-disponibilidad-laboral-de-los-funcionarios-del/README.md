@@ -14,3 +14,4 @@ Reglamento de disponibilidad laboral de los funcionarios del Instituto Mixto de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-22 | la propia norma |
+| 2 | 2013-05-16 | Reglamento 0 (2013-05-16) |
