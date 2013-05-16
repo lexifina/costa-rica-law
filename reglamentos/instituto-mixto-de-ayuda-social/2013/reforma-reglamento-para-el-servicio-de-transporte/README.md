@@ -1,0 +1,16 @@
+# Reglamento (2013-05-16)
+
+Reforma Reglamento para el Servicio de Transporte
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 2013-05-16
+- Ente emisor: Instituto Mixto de Ayuda Social
+- Publicación: La Gaceta N° 93 del 2013-05-16
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=74852&param2=92565&param3=1 (ficha 74852)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2013-05-16 | la propia norma |
