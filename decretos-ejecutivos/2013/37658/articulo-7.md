@@ -1,0 +1,1 @@
+Artículo 7º—Constitución de la Unidad para la Coordinación para el desarrollo y funcionamiento del SINIA (UC-SINIA). Se crea la Unidad para la Coordinación para el desarrollo y funcionamiento del SINIA (UC-SINIA), la cual será ejercida por el CENIGA.

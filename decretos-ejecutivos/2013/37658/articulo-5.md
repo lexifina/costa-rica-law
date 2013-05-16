@@ -1,0 +1,1 @@
+Artículo 5º—Constitución del CD-SINIA. El Consejo Directivo (CD-SINIA) estará constituido por los representante de los jerarcas del Sector Ambiente y Energía, con poder de decisión, y un representante del Consejo Nacional Ambiental. El Consejo podrá recomendar la inclusión de miembros de otras instancias gubernamentales o no gubernamentales.
