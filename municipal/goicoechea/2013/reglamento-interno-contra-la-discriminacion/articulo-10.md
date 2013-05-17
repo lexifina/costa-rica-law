@@ -1,0 +1,1 @@
+Artículo 10.—Medidas disciplinarias. El incumplimiento de cualquiera de las disposiciones de este Reglamento se sancionará de acuerdo con lo establecido en el Reglamento Interno de Organización y Servicio de la Municipalidad de Goicoechea y sus respectivas reformas, y demás normativa que rija la materia sancionatoria que sea vinculante para la Municipalidad.

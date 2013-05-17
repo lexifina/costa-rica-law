@@ -1,0 +1,1 @@
+Artículo 13.—Vigencia. Este Reglamento deberá ponerse en conocimiento de todas y todos los funcionarios municipales luego de quedar en firme mediante aprobación del Consejo Municipal del Cantón de Goicoechea, por lo cual entrará en vigencia 1 mes después de publicado en el Diario Oficial La Gaceta.

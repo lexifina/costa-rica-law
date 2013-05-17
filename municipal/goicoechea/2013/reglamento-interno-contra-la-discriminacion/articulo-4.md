@@ -1,0 +1,1 @@
+Artículo 4º—Fuentes del derecho. Se consideran fuentes del derecho para la interpretación y aplicación de este Reglamento, los Instrumentos Internacionales de Derechos Humanos, la Constitución Política, el Código Municipal, el Código de Trabajo, la Convención Colectiva, las demás leyes conexas.

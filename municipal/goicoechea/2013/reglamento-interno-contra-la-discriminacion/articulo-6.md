@@ -1,0 +1,1 @@
+Artículo 6º—Capacitación. La Oficina de la Diversidad capacitará y sensibilizará a las personas funcionarias de la municipalidad sobre los temas de discriminación y derechos humanos, para lo cual elaborará un cronograma de actividades a ejecutar de forma anual en colaboración con la Dirección de Desarrollo Humano.

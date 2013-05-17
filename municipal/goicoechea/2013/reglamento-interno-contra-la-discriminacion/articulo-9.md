@@ -1,0 +1,1 @@
+Artículo 9º—Confidencialidad. Todos los asuntos en los que la Junta de Relaciones Laborales y/o el Órgano Director del Procedimiento soliciten la asesoría de la Dirección de Desarrollo Humano, serán absolutamente confidenciales, por lo que hacerlos de conocimiento de terceras personas ajenas a dichos procesos, será considerado falta grave.
