@@ -1,1 +1,0 @@
-Artículo 23.—Los sistemas del Poder Judicial. Los sistemas que desarrollen los órganos del Poder Judicial deberán usar, preferiblemente programas con código abierto, accesibles ininterrumpidamente por medio de la red, procurando su uniformidad. Se deberán emitir directrices técnicas sobre el formato de las gestiones de partes que posibiliten la lectura interna de las gestiones.

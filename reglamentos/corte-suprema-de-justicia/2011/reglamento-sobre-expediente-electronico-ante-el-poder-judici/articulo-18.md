@@ -1,1 +1,0 @@
-Artículo 18.—Otros medios telemáticos. La utilización de dispositivos inalámbricos de transmisión de datos y otros medios similares, debe ser igualmente acreditada, conforme se hace para los correos electrónicos.

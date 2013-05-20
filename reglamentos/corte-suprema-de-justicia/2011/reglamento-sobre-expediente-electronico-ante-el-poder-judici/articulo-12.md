@@ -1,1 +1,0 @@
-Artículo 12.—Los libros de entrada y otros registros de los órganos del Poder Judicial deberán ser generados y almacenados en medio totalmente electrónico y su acceso deberá ser público, para facilitar la localización por cualquier habitante.

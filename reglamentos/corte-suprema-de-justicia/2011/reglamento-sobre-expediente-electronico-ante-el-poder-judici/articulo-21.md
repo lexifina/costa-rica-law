@@ -1,1 +1,0 @@
-Artículo 21.—Falla de medios tecnológicos. En caso de problemas técnicos graves que no dependen de la voluntad de la parte o su abogado, como son la falta de energía eléctrica u otra circunstancia similar, previa acreditación de la circunstancia, la parte o su abogado podrá realizar la gestión, sin que corran los plazos, hasta tanto se restablezca la normalidad.

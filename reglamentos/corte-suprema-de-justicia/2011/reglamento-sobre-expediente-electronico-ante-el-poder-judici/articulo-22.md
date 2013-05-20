@@ -1,1 +1,0 @@
-Artículo 22.—Documentos de gran volumen. Si existen documentos cuya digitalización sea técnicamente inviable debido a su gran volumen, ilegibilidad o cualquier otro motivo, el Despacho hará la prevención respectiva para que dentro del plazo de cinco días hábiles se presenten físicamente o en forma electrónica, según sea el caso.

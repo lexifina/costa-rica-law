@@ -1,4 +1,0 @@
-Artículo 9º—La conservación de los procesos podrá ser efectuada, total o parcialmente, por medios electrónicos.
-Los procesos electrónicos deberán ser protegidos por medio de sistemas de seguridad de acceso y almacenados en un medio que garantice la preservación e integridad de los datos, evitando la formación de legajos paralelos.
-Los documentos de procesos electrónicos que deban ser remitidos a otro juzgado o instancia superior, que no disponga de un sistema compatible, deberán ser enviados utilizando cualquiera de los medios seguros y confiables a que se refiere el artículo 6 bis de la Ley Orgánica del Poder Judicial y de ser necesario en papel.
-Los documentos originalmente presentados en medio no digital, en trámite o archivados, serán escaneados. Previa publicación, por edictos, a las partes o sus representantes, se les concederá 30 días, para que los retiren, pasado ese plazo, se destruirán.

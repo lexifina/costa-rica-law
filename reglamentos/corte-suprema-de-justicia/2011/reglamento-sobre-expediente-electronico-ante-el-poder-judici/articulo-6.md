@@ -1,3 +1,0 @@
-Artículo 6º—En el proceso electrónico, todas las citaciones, intimaciones y notificaciones, serán efectuadas por medio electrónico.
-Las citaciones, intimaciones, notificaciones y remesas que posibiliten el acceso integral a las piezas del proceso correspondiente serán asimiladas a la consulta personal del interesado para todos los efectos legales.
-Cuando, por motivo técnico, resulte inviable el uso del medio electrónico para la realización de citación, intimación o notificación, esos actos procesales podrán ser practicados según las reglas ordinarias, digitalizándose el documento físico, que deberá ser posteriormente destruido.

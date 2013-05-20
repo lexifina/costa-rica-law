@@ -1,1 +1,0 @@
-Artículo 17.—Firma Digital. La parte de un asunto, que se conoce en despacho que esté totalmente digitalizado, deberá acreditarse por medio de firma digital, emitida en redes internas del Poder Judicial o por medio de autoridades de certificación. La autenticación de gestiones digitalizadas debe realizarse mediante firma digital, en la misma forma.
