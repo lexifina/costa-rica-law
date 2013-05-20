@@ -14,3 +14,4 @@ Reglamento de ejecución del Programa Avancemos en el Instituto Mixto de Ayuda S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-06 | la propia norma |
+| 2 | 2013-05-20 | Reglamento 0 (2013-05-20) |
