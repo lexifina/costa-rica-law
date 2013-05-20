@@ -1,1 +1,1 @@
-Articulo 5°—Estará constituida por los educadores activos y retirados que se hallen inscritos en el registro de asociados de la A.N.D.E.
+Artículo 5.- Estará constituida por las personas educadoras en servicio, jubiladas, pensionadas o retiradas y las demás personas que se hallen inscritas en el registro de asociados y asociadas de la ANDE, conforme a su Estatuto.

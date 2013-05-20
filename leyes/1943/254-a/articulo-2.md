@@ -1,1 +1,1 @@
-Artículo 2°—Tendrá la Asociación plena capacidad jurídica para adquirir derechos y contraer obligaciones. Su representación judicial y extrajudicial, la tendrá el Presidente de la entidad.
+Artículo 2.- Tendrá la Organización plena capacidad jurídica para adquirir derechos y contraer obligaciones. Su representación judicial y extrajudicial corresponderá a las personas que el Estatuto establezca.

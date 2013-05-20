@@ -1,1 +1,1 @@
-Artículo 9°—-El Ministerio de Educación Pública reincorporará, sin perjuicio de sus derechos, a su función docente, a aquellos asociados que tengan que separarse de ésta para ocupar cargos en la Directiva Central, o funciones técnicas patrocinadas por la Asociación.
+Artículo 9.- El Ministerio de Educación Pública reincorporará, sin perjuicio de sus derechos a su función docente, a aquellos asociados y asociadas que tengan que separarse de esta para ocupar cargos en la Junta Directiva o por funciones técnicas patrocinadas por la ANDE.

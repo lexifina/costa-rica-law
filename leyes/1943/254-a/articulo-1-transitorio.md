@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO: En caso de que la ANDE decida aprobar e implementar las reformas que resulten necesarias para constituirse formalmente en un sindicato y mientras se realizan todos los trámites administrativos de inscripción y registrales pertinentes, la ANDE conservará, para todos los efectos legales y administrativos, su personería jurídica.

@@ -1,1 +1,1 @@
-Articulo 8°—El Ministerio de Educación Pública concederá licencia con goce de sueldo, a los asociados que desempeñen cargos bajo su jurisdicción con el objeto de concurrir a las sesiones de los Congresos Nacionales de Educadores.
+Artículo 8.- El Ministerio de Educación Pública concederá licencia, con goce de salario, a las personas asociadas que desempeñen cargos bajo su jurisdicción, con el objeto de asistir a las sesiones de los congresos nacionales.
