@@ -1,0 +1,3 @@
+Artículo 8º—Comunicaciones judiciales. En el proceso electrónico, todas las comunicaciones judiciales serán efectuadas por medio electrónico.
+Las comunicaciones judiciales electrónicas, que posibiliten el acceso integral a las piezas del proceso correspondiente, serán equivalentes a las presenciales para todos los efectos legales.
+Cuando, por motivo técnico, resulte inviable el uso del medio electrónico para la realización de la comunicación judicial, ese acto procesal podrá ser practicado según las reglas ordinarias, digitalizándose el documento físico, que deberá ser devuelto a la parte o en su defecto destruido por la oficina judicial.

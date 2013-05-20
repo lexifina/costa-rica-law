@@ -1,0 +1,4 @@
+CAPÍTULO II
+Del proceso electrónico
+Artículo 6º—Acceso a la información de la persona usuaria. Cada oficina y despacho judicial, deberá garantizar el derecho de acceso a la información y acceso a la Justicia de las personas usuarias que se encuentran en condición de desventaja en cuanto al uso de la tecnología disponible (brecha digital) y las poblaciones en condición de vulnerabilidad, identificadas según las Cien Reglas de Brasilia; por lo que, por ningún motivo el uso de la tecnología se convertirá en una barrera u obstáculo para el ejercicio de esos derechos.
+En caso de que la persona usuaria no tenga acceso a los medios tecnológicos, o bien, se encuentre en condición de vulnerabilidad, y así lo haga saber, se procederá a facilitar la información de la forma que lo requiera según las necesidades particulares (audio, braille, CD, llave de almacenamiento, fotocopia, impresa, otros).

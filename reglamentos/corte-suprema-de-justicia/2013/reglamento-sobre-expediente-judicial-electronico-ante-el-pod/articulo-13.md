@@ -1,0 +1,1 @@
+Artículo 13.—Registros electrónicos. Los libros de entrada, reportes, formularios y otros registros de los órganos del Poder Judicial deberán ser generados y almacenados en medio totalmente electrónico.

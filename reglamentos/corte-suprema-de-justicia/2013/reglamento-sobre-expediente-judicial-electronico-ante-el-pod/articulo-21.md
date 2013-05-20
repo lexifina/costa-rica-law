@@ -1,0 +1,1 @@
+Artículo 21.—Quedan convalidados los actos procesales practicados por medio electrónico hasta la fecha de publicación de este Reglamento, siempre que hayan alcanzado su finalidad sin perjuicio para las partes.

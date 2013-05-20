@@ -1,0 +1,2 @@
+Artículo 3º—Acreditación de la firma. La acreditación ante el Poder Judicial será realizada mediante procedimiento en el cual se asegurará la adecuada identificación de la persona interesada.
+A la persona acreditada le será atribuido un registro y un medio de acceso al sistema, de modo que se preserven la privacidad, el secreto, la identificación y la autenticidad de sus comunicaciones. Los órganos del Poder Judicial deberán crear un registro único para la acreditación prevista en este artículo.

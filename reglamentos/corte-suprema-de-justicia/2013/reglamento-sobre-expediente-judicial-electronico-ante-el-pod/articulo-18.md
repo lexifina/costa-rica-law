@@ -1,0 +1,1 @@
+Artículo 18.—Validez de documentos electrónicos. Todos los documentos presentados de forma electrónica y autenticados con firma digital, electrónica y holográfica o registro como persona usuaria del Poder Judicial (correo electrónico, Sistema de Gestión en Línea u otro autorizado), tendrán validez de acuerdo con las reglas establecidas en los artículos 2 y 3 de este Reglamento.

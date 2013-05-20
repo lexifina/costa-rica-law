@@ -1,0 +1,1 @@
+Artículo 17.—Fax. Los documentos remitidos por fax se consideran válidos sin la necesidad de presentar el original. El abogado, abogada o la parte deberá custodiar el original. Si el Ministerio Público, las partes, o el órgano jurisdiccional, dudan de la autenticidad o contenido, podrán ordenar la presentación del escrito original.

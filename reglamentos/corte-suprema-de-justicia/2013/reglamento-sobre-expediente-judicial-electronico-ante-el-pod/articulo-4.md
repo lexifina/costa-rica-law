@@ -1,0 +1,1 @@
+Artículo 4º—Neutralidad tecnológica. Los sistemas informáticos del Poder Judicial deberán ser compatibles con diversas tecnologías, en procura de la neutralidad tecnológica y su accesibilidad. Además, se deberá garantizar la continuidad del servicio.

@@ -1,0 +1,2 @@
+Artículo 7º—Proceso electrónico. El Poder Judicial desarrollará sistemas de procesamiento de las acciones judiciales cero papel, por medio de actos, resoluciones y comunicaciones digitales, utilizando, preferentemente, la red mundial Internet y acceso por medio de redes internas o aquellas que surjan conforme los avances tecnológicos.
+El Poder Judicial deberá mantener equipos de digitalización y de acceso a la red mundial Internet a disposición de las personas en condición de vulnerabilidad.

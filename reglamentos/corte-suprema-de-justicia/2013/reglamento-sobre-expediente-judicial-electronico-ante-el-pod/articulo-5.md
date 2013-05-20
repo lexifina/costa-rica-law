@@ -1,0 +1,2 @@
+Artículo 5º—Días y horas hábiles. Todos los días y horas serán hábiles para presentar gestiones por vía electrónica. Las presentadas en días y horas en que los tribunales estén cerrados, se tendrán por recibidas el día hábil siguiente.
+Cuando la actuación o gestión tenga como finalidad cumplir un plazo, se consideraran presentados en tiempo los recibidos hasta las 24 horas del último día del plazo. Si el sistema del Poder Judicial estuviera inaccesible por motivos técnicos, el plazo se prorrogará hasta el primer día hábil siguiente a la solución del problema.

@@ -1,0 +1,1 @@
+Artículo 19.—Otros medios telemáticos. La utilización de dispositivos inalámbricos de transmisión de datos y otros medios similares, conforme avance la tecnología, serán válidos siempre y cuando sean autorizados por la Institución.
