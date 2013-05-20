@@ -1,1 +1,2 @@
-Artículo 13.—Corresponde al Congreso Nacional de Educadores, dictar, modificar y dar la interpretación auténtica a los Estatutos de la Asociación, así como proponer reformas a esta ley, todo por votación no menor de dos tercios de los votos presentes.
+Artículo 13.- En caso de extinción o disolución, la totalidad del capital de la ANDE será traspasado a la Caja de Ahorro y Préstamos de la Asociación Nacional de Educadores, para colocarse e invertirse en beneficio de todas las personas asociadas de la ANDE.
+Lo dispuesto en este artículo podrá ser dimensionado en cuanto a sus alcances, mediante acuerdos del Congreso de la ANDE, ante una posible extinción o disolución de la organización.

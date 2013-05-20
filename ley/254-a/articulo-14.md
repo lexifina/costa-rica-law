@@ -1,1 +1,1 @@
-Artículo 14.—Se derogan todos los demás artículos de la referida ley.
+Artículo 14.- La organización conservará todas las representaciones, beneficios y los demás derechos que se le hayan conferido mediante leyes especiales, decretos ejecutivos, acuerdos, resoluciones, contratos o por cualquier otra causa legítima durante sus años de existencia como Asociación regida por la Ley N.º254, Ley de la Asociación Nacional de Educadores, y sus reformas, y a Ley N.º 218, Ley de Asociaciones. Se aplicará en lo que resulte pertinente al artículo 36 de la Ley de Asociaciones.
