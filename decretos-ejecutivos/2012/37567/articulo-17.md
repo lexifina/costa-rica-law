@@ -1,0 +1,2 @@
+Artículo 17° – Seguimiento y fiscalización de los instrumentos de planificación
+El seguimiento y la fiscalización de los instrumentos de planificación corresponden al Ministerio de Salud, de conformidad con los criterios de evaluación que éste defina. En el caso de los PGAI su fiscalización corresponde a la Comisión Técnica Evaluadora, de conformidad con el Decreto Ejecutivo No. 36499-MINAET-S ―Reglamento para la Elaboración de Programas de Gestión Ambiental Institucional en el Sector Público de Costa Rica‖ del 17 de marzo del 2011.

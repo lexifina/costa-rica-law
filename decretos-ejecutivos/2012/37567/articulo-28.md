@@ -1,0 +1,2 @@
+Artículo 28°- Requerimiento de los Programas de Gestión Ambiental Institucional (PGAI)
+Para garantizar la implementación y sostenibilidad de los Programas de Gestión Ambiental, las instituciones de la administración pública, empresas públicas y municipalidades deberán contar un gestor ambiental institucional y consolidar en la estructura de la institución las funciones de la Comisión Institucional de los PGAI.

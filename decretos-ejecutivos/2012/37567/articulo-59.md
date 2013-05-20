@@ -1,0 +1,2 @@
+Artículo 59° – Documento de seguimiento
+Una vez realizada la exportación, el exportador debe aportar al expediente respectivo en el Ministerio de Salud, una copia del documento de seguimiento del movimiento firmado por el importador y/o tratante del residuo peligroso, de manera que el ciclo completo de la exportación, importación y destrucción o tratamiento del residuos se complete. Este documento indicará el peso enviado, la fecha de recibido y la fecha de destrucción o tratamiento.

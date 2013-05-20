@@ -1,0 +1,4 @@
+Artículo 35° – El ámbito de la educación no formal e informal
+En el ámbito de educación no formal e informal, se debe buscar, el posicionamiento del tema de la gestión integral de los residuos, en la población del país mediante la comunicación e información social para inducir a la población a una cultura de disminución, separación, valorización y reciclaje de los residuos.
+En el ámbito de la educación no formal el Ministerio de Salud, tendrá a cargo el diseño y seguimiento de un plan de comunicación y/o mercadeo para el posicionamiento de valores en el tema de gestión integral de residuos.
+El Ministerio de Salud coordinará los contenidos de la publicidad en torno al tema de gestión integral de residuos, con los sectores involucrados, a fin de que los mensajes estén orientados hacia el posicionamiento de valores.

@@ -1,0 +1,4 @@
+CAPÍTULO IX
+COMPRAS Y BIENES DEL ESTADO
+Artículo 44°- Sobre las compras del Estado
+Para la debida implementación de los criterios de sustentabilidad aplicables a las compras que realicen las instituciones del Estado, así como de los parámetros de evaluación establecidos por el artículo 29 de la Ley No. 8839, la Dirección General de Administración de Bienes y Contratación Administrativa del Ministerio de Hacienda, en coordinación con los órganos técnicos involucrados, dictará la normativa técnica que deberá considerar la Administración, para la aplicación de los criterios sustentables a seguir, así como los mecanismos para implementar la ponderación adicional a los oferentes que en igualdad de condiciones apliquen dichos criterios, entre ellos el de gestión integral de residuos, dictando para ello las políticas, directrices, guías técnicas y cualquier otro medio que ésta estime pertinente para tal fin.

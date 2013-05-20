@@ -1,0 +1,1 @@
+TRANSITORIO IV. Los municipios contarán con un plazo máximo de 12 meses, a partir de la publicación del presente reglamento, para entregar al Ministerio de Salud su Plan Municipal de Gestión Integral de Residuos aprobado por el Concejo Municipal.

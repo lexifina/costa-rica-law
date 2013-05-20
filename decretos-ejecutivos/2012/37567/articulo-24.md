@@ -1,0 +1,6 @@
+Artículo 24° – Contenidos del programa por parte de los generadores
+Los programas de manejo integral de residuos por parte de los generadores deben cumplir además de los requisitos establecidos del Anexo II de este Reglamento, con lo siguiente:
+a. Indicar el responsable o responsables del tema de residuos por parte del ente generador, así mismo otros actores involucrados tanto internos como externos.
+b. Identificar los residuos peligrosos y de manejo especial que se puedan generar. Los generadores deben manejar estos residuos de conformidad con la normativa establecida al efecto y como parte de este programa.
+c. Indicar los gestores autorizados o el destino de los residuos separados.
+La actividades clasificadas como de riesgo bajo en el artículo 10 del Decreto Ejecutivo No. 34859 del 20 de octubre del 2008 “Reglamento General para el Otorgamiento del Certificado Veterinario de Operación”, y sus reformas y las actividades del tipo c, señaladas en el artículo 5 del Decreto Ejecutivo No. 34728 del 28 de mayo del 2008 “Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud”, y sus reformas, únicamente deben cumplir con los Datos del Generador y el Cuadro 1 del Anexo II del presente reglamento.

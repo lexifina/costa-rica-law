@@ -1,0 +1,1 @@
+TRANSITORIO III. El Ministerio de Salud contará con un plazo de tres meses contado a partir de la publicación del presente reglamento, para dictar los procedimientos y directrices para el manejo del fondo y el plazo para optar por dichos montos.

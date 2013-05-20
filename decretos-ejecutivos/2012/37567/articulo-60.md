@@ -1,0 +1,2 @@
+Artículo 60° – Exportación de residuos valorizables
+Cuando se trate de una exportación de residuos valorizables, el Ministerio de Salud, por medio de la nota técnica respectiva, realizará el monitoreo y control de dichos materiales valorizables por medio del exportador, con el fin garantizar la trazabilidad de los mismos, debiendo el exportador indicar país de exportación, nombre del gestor que le dará tratamiento o valorización, comprobante de destino final del residuo. Esta información deberá alimentar el SNIGIR.

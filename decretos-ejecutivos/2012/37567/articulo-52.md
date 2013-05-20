@@ -1,0 +1,2 @@
+Artículo 52° – Seguimiento y control
+El seguimiento y control de los gestores, lo ejecuta el Ministerio de Salud a través de planes y programas de control y de atención de las denuncias, en los que se definirán el carácter y la frecuencia de dichos controles, que deben realizarse de forma regular de conformidad con el Plan Anual Operativo de dicho Ministerio. Esta se realizará mediante la inspección de las instalaciones y el control de la documentación, los cuales se podrán realizar sin previo aviso.

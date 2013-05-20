@@ -1,0 +1,2 @@
+Artículo 31° - Periodicidad de la entrega de información
+Las instituciones de la Administración Pública, empresas públicas, municipalidades, los generadores, gestores y otros actores definidos como fuentes de información en los indicadores del SNIGIR, deben presentar en el último trimestre de cada año, la información solicitada por el Ministerio de Salud. Para ello, dicho Ministerio emitirá anualmente la directriz respectiva en la que se detallará la información requerida.

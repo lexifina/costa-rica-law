@@ -1,0 +1,2 @@
+Artículo 25° – Otras acciones
+Los generadores podrán incorporar dentro del programa, otras acciones que promuevan medidas para fomentar las compras sustentables, la implementación de los principios de responsabilidad compartida y responsabilidad extendida del productor por medio de acciones de diseño sostenible de producto, producción más limpia, esquemas de recepción de productos o envases post consumo, para aquellos productos que no hayan sido declarados de manejo especial por el Ministerio de Salud, de conformidad con el artículo 41 de la Ley No. 8839.

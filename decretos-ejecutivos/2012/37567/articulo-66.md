@@ -1,0 +1,1 @@
+Artículo 66° - Se deroga el apartado denominado “Plan de Manejo de Desechos” del Anexo 5 del Decreto Ejecutivo No. 34728-S “Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud” del 28 de mayo del 2008.

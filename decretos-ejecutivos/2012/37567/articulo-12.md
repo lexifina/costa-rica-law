@@ -1,0 +1,3 @@
+Artículo 12° - Mesas de trabajo, locales, regionales y sectoriales
+Con el fin de optimizar recursos, aprovechar conocimientos, articular iniciativas y maximizar resultados, se podrán convocar mesas de trabajo locales, regionales y sectoriales, para efectos de elaborar los instrumentos legales, propuestas técnicas, análisis de problemáticas concretas, en la búsqueda de soluciones locales, regionales o sectoriales; las cuales serán convocadas y coordinadas por la institución o municipalidad responsable de elaborarlas, según lo establecido por la Ley No. 8839.
+Se debe convocar a todos los actores con conocimiento técnico en el tema, sin olvidar a los representantes de las comunidades.
