@@ -1936,29 +1936,28 @@ c) monto total y detallado del cálculo de la obligación tributaria aduanera, a
 a) aduana, año y número de aceptación asignado al DUA.
 b) fecha de aceptación del DUA.
 c) monto total y detallado del cálculo de la obligación tributaria aduanera, autodeterminado por el declarante.
-(*)F. Rechazo e impugnación de las notificaciones
-1) Cuando el declarante reciba la notificación, deberá enviar un mensaje indicando si rechaza o acepta la reliquidación del DUA.
-2) Los ajustes a la determinación de la obligación tributaria que NO sean aceptadas por el declarante, serán tomadas como RECHAZADAS en la aplicación informática.
-3) El simple rechazo en el sistema no implica la impugnación de la modificación realizada, en el tanto la impugnación implica la interposición del recurso y la presentación de los alegatos correspondientes; lo cual no puede realizarse a través de este medio. La impugnación deberá presentarse físicamente ante la aduana que corresponde.
-4) El declarante, a partir del día de la notificación del acto final, contará con 3 días hábiles para rechazarla y presentar los recursos que dispone el artículo 198 de la Ley General de Aduanas para impugnar los actos de la Aduana , los que deberán estar rotulado en la primera página, a efectos de agilizar el trámite interno en la Aduana.
-5) Transcurrido este plazo, si NO se ha presentado los recursos de ley o se han presentado fuera del plazo indicado, la determinación quedará en firme y el sistema dará por ACEPTADA automáticamente la notificación.
-6) Cuando los recursos hayan sido presentados extemporáneamente la Gerencia de la Aduana deberá resolver de conformidad.
+(*) F Plazo para impugnar la nueva determinación de la obligación tributaria aduanera:
+1) El plazo para impugnar la nueva determinación de la obligación tributaria es de 15 días hábiles siguientes a la notificación de la nueva determinación.
+2) La notificación enviada por medio de una transmisión electrónica surtirá efecto veinticuatro horas después del envío de la información, momento a partir del cual se empezará a contabilizar el plazo de los 15 días hábiles, para tenerse en firme el acto notificado por el medio señalado.
+3) Concluido el plazo de los 15 días hábiles, al inicio del día siguiente natural, se correrá en el sistema informático un proceso automático a partir de las 7:00 a.m., y la notificación quedará aceptada, en el tanto el declarante no recurra ni acepte la notificación.
 (*)(Así adicionado mediante resolución DGA-342 del 24 de julio de 2008)
-(*)G. Impugnación de las determinaciones de la obligación tributaria
-1) El trámite de impugnación es un proceso manual donde el interesado debe presentar ante la Aduana el o los recursos que corresponden, después de haber rechazado la reliquidación notificada.
-2) Para IMPUGNAR una notificación se requiere que previamente haya sido rechazada en el sistema por el declarante.
-3) El declarante deberá presentar el (los) recurso (s) ante la Aduana correspondiente, el que deberá ser recibido en forma inmediata y sellado en el primer folio, con la fecha del día en que se recibe y el nombre, firma y cédula del funcionario que lo realiza.
-4) La Gerencia de la aduana deberá coordinar las acciones correspondientes para que los recursos que presenten los usuarios (Reconsideración y/o Apelación) sean trasladados en forma inmediata al Departamento Técnico de la Aduana , para que el funcionario autorizado incluya en la aplicación informática la fecha de presentación de los recursos, la que deberá corresponder, sin excepción, al día de recibo por parte de la Aduana , fecha que deberá constar en la primera página del (los) recurso (s).
-5) Los ajustes a la determinación de la obligación tributaria que hayan sido impugnados en el plazo que dispone el artículo 198 de la Ley General de Aduanas aparecerán en la pantalla de notificaciones con el estado IMP (impugnada).
-6) La Gerencia de la Aduana deberá tomar las previsiones necesarias para que no se retarde la inclusión de la fecha de impugnación en la aplicación informática, ya que esto dará como consecuencia que la notificación sea aceptada automáticamente por el sistema (estado ACE).
+(Así reformado el punto f) anterior mediante resolución Res-DGA-143-2013 del 21 de mayo del 2013)
+(*)G Rechazo e impugnación de las notificaciones:
+1) Si producto de la verificación documental o física, el funcionario envía una notificación con la nueva determinación de la obligación tributaria, una vez recibida dicha notificación por el declarante, dispondrá de dos opciones, sea aceptar o rechazar la nueva determinación.
+2) En caso de haber rechazado la notificación, el sistema le presentará tres opciones a efectos de impugnar: Reconsideración, Apelación o ambos recursos. Una vez seleccionada la opción del recurso, el sistema tendrá por recurrida la nueva determinación de la obligación tributaria.
+3) Las alegaciones técnicas de hecho y de derecho y pruebas de descargo que considere pertinentes el declarante, deberán presentarse por escrito ante la aduana competente, en cualquier momento antes de que la aduana resuelva la impugnación y notifique el acto.
+4) La aduana dictará el acto que resuelve el recurso de reconsideración dentro del plazo que dispone la Ley General de Aduanas para tal efecto, el cual se contabilizará a partir de la fecha de interposición de dicho recurso.
+5) La aduana competente no deberá registrar ninguna impugnación en la aplicación informática, ya que el recurso se tendrá por interpuesto cuando por medio del sistema TICA se rechaza la notificación por parte del declarante, y el sistema así lo registrará automáticamente, quedando dicha notificación en estado impugnada con el o los recursos interpuestos por el declarante.
 (*)(Así adicionado mediante resolución DGA-342 del 24 de julio de 2008)
-(*)H. Desistimiento del rechazo o la impugnación de las notificaciones
-1) El desistimiento brinda la posibilidad de cancelar el proceso de rechazo o de impugnación de una reliquidación.
-2) El declarante, después de haber rechazado y/o impugnado la notificación de las actuaciones de la Aduana , puede presentar formal desistimiento ante la Aduana , aceptando los alcances de la notificación e indicando que pagará la diferencia de tributos por la reliquidación de DUA, en caso de que se haya generado alguna diferencia.
-3) Para proceder con la solicitud del declarante, la Aduana , debe emitir un acto resolutivo que acoja el desistimiento, el que se notificará al interesado.
-4) El número de resolución y fecha se registrarán en la aplicación informática, para que continúe con el proceso de finiquito del DUA.
-5) Las notificaciones objeto de desistimiento aparecerán en la pantalla de notificaciones con el estado ACE y con la fecha correspondiente al Desistimiento.
+(Así reformado el punto g) anterior mediante resolución Res-DGA-143-2013 del 21 de mayo del 2013)
+(*)H Desistimiento de la impugnación de las determinaciones de la obligación tributaria aduanera:
+1) Para desistir del recurso de reconsideración, el declarante deberá solicitarlo por escrito ante la aduana competente, aceptando los alcances del ajuste realizado, e indicando que pagará la diferencia de tributos por la reliquidación del DUA más los intereses, mediante el talón de cobro generado por el sistema, en caso de que se haya generado alguna diferencia. La aduana resolverá la gestión, mediante resolución en la que indicará si acepta o no el desistimiento 2) En caso de ser afirmativo, y para los DUAS en estado DEC, el Jefe del Departamento Técnico de la Aduana o quien este designe procederá a registrar en la aplicación informática el Desistimiento de la impugnación.
+3) La aplicación informática, una vez registrado el Desistimiento en el módulo de Ok y Observaciones, en forma automática dará por aceptada la notificación dejándola en estado Aceptada (ACE) y enviará el talón de cobro por la diferencia en los tributos, determinada por la aduana competente, más los intereses que correspondan.
+4) Las notificaciones de los DUAS en estado DEC, objeto de Desistimiento aparecerán en la pantalla de notificaciones con el estado ACE y con la fecha correspondiente al Desistimiento.”
+5) Para los DUAS a los que ya se les ha autorizado el levante (ORI), la aduana remitirá una copia de la resolución a la Dirección de Gestión de Tecnología Aduanera para que se proceda con el registro del desistimiento al recurso de reconsideración.
+6) Para desistir del recurso de apelación, el declarante deberá presentar la solicitud ante el Tribunal Aduanero Nacional. Una vez resuelta la gestión por ese órgano y notificada la resolución a la aduana, ésta remitirá un acto resolutivo a la Dirección de Gestión de Tecnología Aduanera para que igualmente se proceda con el desistimiento de la impugnación, en el caso de los DUAS en estado ORI. Para los DUAS en estado DEC, deberá proceder con lo indicado en el punto 2 anterior de ésta sección.
 (*)(Así adicionado mediante resolución DGA-342 del 24 de julio de 2008)
+(Así reformado el punto h) anterior mediante resolución Res-DGA-143-2013 del 21 de mayo del 2013)
 (*)III. De la Asociación del Inventario Posterior a la Aceptación
 (*)(Eliminada esta sección mediante resolución DGA-132 del 21 de abril de 2009)
 IV. Otras Comunicaciones previas a la Solicitud del Tipo de Revisión

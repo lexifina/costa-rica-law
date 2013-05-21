@@ -66,3 +66,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 51 | 2012-02-28 | Resolución 52 (2012-02-28) |
 | 52 | 2012-10-25 | Resolución 353 (2012-10-25) |
 | 53 | 2013-02-01 | Resolución 26 (2013-02-01) |
+| 54 | 2013-05-21 | Resolución 143 (2013-05-21) |
