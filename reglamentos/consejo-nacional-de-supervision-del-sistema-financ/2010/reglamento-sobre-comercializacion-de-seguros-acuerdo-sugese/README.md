@@ -14,3 +14,4 @@ Reglamento sobre Comercialización de Seguros (Acuerdo SUGESE 03-10)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-09 | la propia norma |
+| 2 | 2013-05-21 | Reglamento 1043 (2013-05-21) |
