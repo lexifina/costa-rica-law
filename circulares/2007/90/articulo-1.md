@@ -10,10 +10,9 @@ S. O.
 Asunto: Notificación de DUAS por
 Reliquidación
 Estimados señores:
-El Manual de Procedimientos Aduaneros, en el Capítulo II. Procedimientos Comunes a la Importación Definitiva, establece la potestad de que el declarante señale si acepta o no automáticamente un ajuste. Al respecto en la Sección VII, numeral 5º) inciso c), se ha dispuesto lo siguiente:
-c) literal iii): el funcionario aduanero a través de la aplicación informática enviará un mensaje de notificación al declarante con las observaciones respectivas. El declarante podrá comunicar que está de acuerdo con la modificación a la declaración. Si el declarante no comunica su consentimiento en el plazo de tres días se entenderá que consciente la modificación y se realizarán los ajustes o modificaciones en la aplicación y se continuará con el proceso de despacho aduanero. En caso de que el declarante impugne el acto que corrige el error material dentro del mismo plazo de tres días, el DUA quedará pendiente de la resolución de los recursos correspondientes.
-De conformidad con lo anterior, y según lo dispone la Ley General de Aduanas, en sus artículos 194, inciso a) y 198, las notificaciones enviadas por medio de la transmisión electrónica surtirán efecto veinticuatro horas después del envío de la información, momento a partir del que corren los tres días hábiles que dispone el artículo 198 de la Ley de rito, para tenerse en firme el acto notificado por el medio señalado.
-Como lo establecen las normas citadas, una vez notificada la modificación, producto de una reliquidación por el cambio en alguno de los elementos determinantes de la obligación tributaria aduanera, a partir del día en que se notifica; el declarante contará con 4 días hábiles, en total, para aceptar o impugnar la notificación. Al quinto día de la notificación, si el declarante no ha impugnado, se correrá en el sistema un proceso a partir de las 7:00 a.m. quedando en firme el acto.
+(Dejado sin efecto el párrafo primero original mediante resolución Res-DGA-143-2013 del 21 de mayo del 2013)
+(Dejada sin efecto el párrafo segundo original mediante resolución Res-DGA-143-2013 del 21 de mayo del 2013)
+(Dejado sin efecto el párrafo tercero original mediante resolución Res-DGA-143-2013 del 21 de mayo del 2013)
 Una vez en firme el DUA, el funcionario deberá ingresar al módulo Ok y Observaciones para finiquitar el trámite, generando el respectivo talón de cobro únicamente contra la cuenta cliente y banco declarado originalmente en el DUA.
 Para efectos de lo anterior, el sistema enviará al declarante la notificación, mediante un archivo que tendrá el formato siguiente:
 AAAA-BBB_CCCC_DDDDDD_EEEEEE_FFFFFF.not, donde:

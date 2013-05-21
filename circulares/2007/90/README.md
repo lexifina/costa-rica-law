@@ -14,3 +14,4 @@ Notificación de DUAS por Reliquidación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-18 | la propia norma |
+| 2 | 2013-05-21 | Resolución 143 (2013-05-21) |
