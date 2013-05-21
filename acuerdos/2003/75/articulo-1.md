@@ -217,6 +217,42 @@ Precio monetario (PRECIO_MONETARIO) | Precio monetario impugnado | Número real 
 Nombre de la curva impugnada (NOMBRE_CURVA_IMPUGNADA) | Nombre de la curva impugnada | Alfanumérico | n.a.
 n.a. no aplica | | |
 (*) Nota: los campos numéricos con formato real deben tener el punto como separador decimal y no contener separadores para miles.”)
+(Nota de Sinalevi: Mediante el artículo 2° del acuerdo SGV-A-187 del 21 de mayo del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el anexo 15 "Estados Financieros Fondos de Inversión", de la siguiente forma: "... Artículo 2°—Reforma al Anexo 15: Estados Financieros Fondos de Inversión.
+Se reforma el Anexo 15 en los siguientes términos:
+a) En la hoja rotulada “Balance General”:
+i. Se adicionan las siguientes cuentas:
+[imagen]
+ii. Se eliminan las siguientes cuentas:
+[imagen]
+iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
+[imagen]
+b) En la hoja rotulada “Estado de Resultados”
+i. Se adicionan las siguientes cuentas:
+[imagen]
+ii. Se eliminan las siguientes cuentas:
+[imagen]
+iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
+[imagen]
+c) En la hoja rotulada “Estado de Resultados Acumulados”
+i. Se adicionan las siguientes cuentas:
+[imagen]
+ii. Se eliminan las siguientes cuentas:
+[imagen]
+iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
+[imagen] )
+(Nota de Sinalevi: Mediante el artículo 3° del acuerdo SGV-A-187 del 21 de mayo del 2013, publicado en La Gaceta N° 241 del 13 de diciembre del 2013, se ordena reformar el anexo 4 "Operaciones Únicas y Múltiples", de la siguiente forma: "... Artículo 3°—Reforma al Anexo 4: Operaciones Únicas y Múltiples.
+Se reforma el Anexo 4 en los siguientes puntos:
+d) En la fila 10, columna “Descripción”, el texto debe leerse de la siguiente manera: “Tipo de operación que se está reportando”.
+e) Se adiciona una nueva fila 15, que debe leerse de la siguiente manera:
+[imagen] )
+(Nota de Sinalevi: Mediante el artículo 4° del acuerdo SGV-A-187 publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar los Anexos 8, 14 y 34 Estados Financieros de Puestos de Bolsa, Sociedades Administradoras y Grupos Financieros", de la siguiente forma: "... Artículo 4°—Reforma a los Anexos 8, 14 y 34 Estados Financieros de Puestos de Bolsa, Sociedades Administradoras y Grupos Financieros respectivamente:
+Se reforman los Anexos 8, 14 y 34 en la hoja rotulada “Balance General”, en los siguientes términos:
+. Se adicionan las siguientes cuentas:
+[imagen]
+ii. Se eliminan las siguientes cuentas:
+[imagen]
+iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
+[imagen] )
 SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante articulo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.

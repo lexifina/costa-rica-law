@@ -90,3 +90,6 @@ Condiciones de las Notas Estructuradas | Cada vez que ocurra | Cinco días hábi
 a) Se modifica el artículo 2, para incorporar los siguientes requerimientos de información al “Cuadro de Información Periódica”:
 i) Se modifica el medio de envío del siguiente reporte:
 [imagen] )
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-A-187 del 21 de mayo del 2013, publicado en La Gaceta N° 241 del 13 de diciembre del 2013, se modifica este artículo de la siguiente manera: "... Se reforma el “Cuadro de Información Periódica” en los siguientes términos:
+En la hoja “Acuerdo SGV-A-75, Cuadro de Información Periódica, Tipo de Entidad: Proveedores de precios”, en la fila 4 “10 días hábiles para el trimestre terminado a diciembre de cada año y 15 días hábiles para los trimestres terminados en marzo, junio y setiembre de cada año”
+En la hoja “Acuerdo SGV-A-75, Cuadro de Información Periódica, Tipo de Entidad: Bolsas de valores, centrales de valores y calificadoras de riesgo”, en la fila 4 “Estados financieros no auditados”, columna “Plazo máximo de entrega”, para que en adelante se lea “10 días hábiles para el trimestre terminado a diciembre de cada año y 15 días hábiles para los trimestres terminados en marzo, junio y setiembre de cada año...")
