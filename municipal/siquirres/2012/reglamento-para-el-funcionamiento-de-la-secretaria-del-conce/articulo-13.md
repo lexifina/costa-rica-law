@@ -1,0 +1,1 @@
+Artículo 13.—De las copias y archivo de la correspondencia tramitada. De la correspondencia recibida en la Secretaría, se podrá entregar copias a los miembros del Concejo Municipal que lo soliciten, así como a los síndicos y demás concejales que tengan interés en el documento, salvo lo contemplado en el artículo siguiente.
