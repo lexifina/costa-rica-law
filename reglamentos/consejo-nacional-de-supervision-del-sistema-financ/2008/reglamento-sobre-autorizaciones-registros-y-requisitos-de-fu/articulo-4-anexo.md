@@ -25,7 +25,8 @@ Socios personas físicas
 3. Currículum vitae y atestados. La firma en el currículum vitae debe estar autenticada por un notario público.
 4. Tres referencias sobre honorabilidad y solvencia financiera.
 5. Declaración jurada en escritura pública según el anexo 12.
-6. Certificación de antecedentes penales emitida por el organismo público competente del país de nacimiento, del país de su nacionalidad y del país de residencia.
+6. Certificación de antecedentes penales emitida por el organismo público competente del país de nacionalidad y del país de residencia durante los últimos cinco años.
+(Así reformado el inciso anterior por el aparte 1) subaparte d) sesión N° 1043-2013 del 21 de mayo del 2013)
 7. Autorización por escrito de la persona física en la que faculta al órgano supervisor responsable para que lo investigue en cualquier instancia u organismo nacional o internacional. La firma debe estar autenticada por un notario público.
 8. Autorización por escrito del Representante Legal de cada una de las empresas en las que la persona física posea el 50% o más del capital social, en la que faculta al órgano supervisor responsable para que la investigue en cualquier instancia u organismo nacional o internacional. La firma del representante legal deberá ser autenticada por un notario público.
 9. Estado patrimonial de la persona física, incluyendo un desglose de su activo y pasivo, emitido dentro de los seis meses anteriores a la fecha de presentación de la solicitud, firmado por el interesado y certificado por un contador público autorizado o profesional equivalente en el país donde éste sea expedido.
@@ -46,7 +47,8 @@ B. IDONEIDAD DE MIEMBROS DE LA JUNTA DIRECTIVA
 3. Currículum vitae y atestados. La firma en el currículum vitae debe estar autenticada por un notario público.
 4. Tres referencias sobre honorabilidad y solvencia financiera.
 5. Declaración Jurada en escritura pública según el anexo 11.
-6. Certificación de antecedentes penales emitida por el organismo público competente del país de nacimiento, del país de su nacionalidad, del país de residencia y de Costa Rica.
+6. Certificación de antecedentes penales emitida por el organismo público competente del país de nacionalidad y del país de residencia durante los últimos cinco años.
+(Así reformado el inciso anterior por el aparte 1) subaparte d) sesión N° 1043-2013 del 21 de mayo del 2013)
 7. Autorización por escrito de la persona física en la que faculta al órgano supervisor responsable para que lo investigue en cualquier instancia u organismo nacional y/o internacional. La firma debe estar autenticada por un notario público.
 IV. ACREDITACIÓN ANTE LA SUPERINTENDENCIA
 1. Carta de solicitud de acreditación de la sociedad agencia firmada por el representante legal de la entidad de seguros solicitante. La firma debe estar autenticada por un notario público.

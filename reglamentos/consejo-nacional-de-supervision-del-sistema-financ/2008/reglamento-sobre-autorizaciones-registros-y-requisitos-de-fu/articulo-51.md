@@ -1,5 +1,3 @@
-Artículo 51.—Servicios Auxiliares vinculados a la póliza. En caso de que la póliza tipo registrada limite los proveedores de servicios auxiliares relacionados con el producto, que brinden un servicio directo al asegurado o beneficiario se considerará obligatorio el registro del (los) proveedor(es) autorizado(s) por la Entidad Aseguradora. El depósito de la póliza tipo establecerá de oficio el registro del (los) proveedor(es) señalado(s) según el formato establecido en el anexo 17.
-En el caso del registro de proveedores de servicios auxiliares de seguro obligatorio no procederá el registro en ausencia de alguno de los siguientes criterios de análisis:
-a) Quejas: Se establece un método de atención de quejas referidas con los proveedores;
-b) Libertad de elección: la definición de la red no limita total o parcialmente la libertad de elección más allá de lo establecido en la ley especial que regula el seguro obligatorio.
-(Así reformado mediante sesión N° 894-2010 del 10 de diciembre de 2010)
+Artículo 51.—Servicios Auxiliares vinculados a la póliza
+En caso de que la póliza registrada limite los proveedores de servicios auxiliares relacionados con el producto, que brinden un servicio directo al asegurado o beneficiario, se considerará obligatorio que la entidad de seguros revele en la documentación contractual del producto, las condiciones para tener acceso a la prestación del servicio ofrecido, así como la forma en que el tomador, asegurado o beneficiario de un seguro puede obtener, en cualquier momento, información actualizada de los proveedores de servicios auxiliares.
+(Así reformado por el aparte 1) subaparte c) de la sesión N° 1043-2013 del 21 de mayo del 2013)

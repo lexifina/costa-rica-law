@@ -1,8 +1,9 @@
 ANEXO 15
-Registro de pólizas comercializadas mediante contratos de adhesión, notas técnicas y servicios auxiliares conexos(*)
-(*)(Modificada su denominación por el aparte g) subaparte i) de la sesión N° 986 del 31 de julio de 2012)
-Documentación requerida para el registro de pólizas, comercializadas mediante contratos de adhesión, notas técnicas y servicios auxiliares conexos.
-(Así reformado el párrafo anterior por el aparte g) subaparte ii) de la sesión N° 986 del 31 de julio de 2012)
+REGISTRO DE PÓLIZAS COMERCIALIZADAS MEDIANTE
+CONTRATOS DE ADHESIÓN Y NOTAS TÉCNICAS(*)
+(*) (Modificada su denominación por el aparte 1) subaparte g) de la sesión N° 1043-2013 del 21 de mayo del 2013)
+Documentación requerida para el registro de pólizas, comercializadas mediante contratos de adhesión y notas técnicas.
+(Así reformado el párrafo anterior por el aparte g) subaparte 1) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 I. BASE LEGAL
 A. LEY REGULADORA DEL MERCADO DE SEGUROS, LEY 8653
 1. En materia de registro de pólizas: Artículos 25, k y 29, d.
@@ -12,11 +13,12 @@ A. INFORMACIÓN GENERAL
 2. Certificación notarial del acta del órgano de dirección que haya acordado la autorización del producto. El órgano de dirección podrá delegar expresamente en el acuerdo a la administración para que defina las características de los productos. En este caso deberá adjuntarse el documento.
 3. La nota técnica que ampara el producto cuyo registro se solicita.
 4. La documentación contractual.
-5. El dictamen jurídico que certifique el apego de la documentación contractual a lo previsto en la Ley 8653 y la normativa vigente.
-Cuando la póliza corresponda a un contrato tipo y el producto se encuentre referenciado a un producto ya registrado, deberá indicarse si el dictamen jurídico del producto registrado aplica para el que se comercializa como contrato tipo. En caso que no sea así, debe presentarse el dictamen jurídico correspondiente.
-(Así adicionado el párrafo anterior por el aparte g) subaparte iii) de la sesión N° 986 del 31 de julio de 2012)
-6. El análisis de congruencia entre la nota técnica y la documentación contractual.
-7. Información mínima para el registro de servicios auxiliares según lo dispuesto en el anexo 17. (Obligatorio en caso de que la póliza limite la libre elección del proveedor de servicios auxiliares para la reparación de daños).
+5. En las pólizas, endosos, cláusulas adicionales y demás documentación contractual en que se establezcan exclusiones, la tipografía a utilizar debe ser clara, destacada y legible.
+(Así reformado el inciso anterior por el aparte 1) subaparte i) de la sesión N° 1043-2013 del 21 de mayo del 2013)
+6. Con el fin de aclarar al solicitante del seguro que el solo hecho de la suscripción de la solicitud y su entrega al agente de seguros, o a la entidad, no son garantía de que esta última acepte celebrar el contrato o los términos propuestos, salvo que garantice la aceptación de la solicitud, las entidades deberán incluir en todos los formularios de solicitudes de seguro o de cobertura, el siguiente texto en tipografía clara, destacada y legible:
+Este documento sólo constituye una solicitud de seguro, por tanto, no representa garantía alguna de que la misma será aceptada por la empresa de seguros, ni de que, en caso de aceptarse, la aceptación concuerde totalmente con los términos de la solicitud.
+(Así reformado el inciso 6) anterior por el aparte 1) subaparte j) de la sesión N° 1043-2013 del 21 de mayo del 2013)
+7. (Derogado por el aparte 1) subaparte h) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 8. Descripción del canal de distribución del producto.9. En el caso de Productos de Seguro Autoexpedible los documentos señalados en los incisos 3), 4), 5) y 6) deberán acreditar el cumplimiento de las características definidas en el artículo 24 de la Ley Reguladora del Mercado de Seguros.
 III. REQUISITOS FORMALES PARA EL REGISTRO DE POLIZA DE SEGUROS
 1. La nota técnica que deberá ser firmada por un actuario. La carátula de dicha nota técnica se consignará la siguiente leyenda:
@@ -132,14 +134,7 @@ c. Insertar tanto en las pólizas y certificados a que se refiere el punto 2 pre
 i. Que el acreditado asegurado o sus causahabientes tendrán derecho a exigir que el asegurador pague al acreditante beneficiario del seguro el importe del saldo insoluto amparado por el seguro más sus accesorios.
 ii. Que el asegurador se obliga a notificar al acreditado asegurado y a sus beneficiarios, según corresponda, cualquier decisión que tenga por objeto rescindir o nulificar el contrato de seguro, a fin de que estén en posibilidad de hacer valer las acciones conducentes a la salvaguarda de sus intereses y, entre otras, puedan ejercer su derecho a que el asegurador pague al acreditante beneficiario del seguro el importe del saldo insoluto.
 iii. Que el acreditado asegurado o sus beneficiarios deben informar su domicilio al asegurador para que éste llegado el caso, les notifique las decisiones señaladas en el inciso precedente.
-(*)d. En los casos de pólizas de seguros contratados en forma colectiva, se aplicarán las siguientes reglas:
-i. En las condiciones particulares de la póliza colectiva deberá hacerse mención del deber del contratante del seguro colectivo, de informar a los asegurados, u otros legítimos interesados, sobre la contratación del seguro y sus condiciones o modificaciones e incluirse la siguiente leyenda obligatoria: “El Contratante asume las responsabilidades que emanen de su actuación como contratante del seguro colectivo”.
-ii. La entidad aseguradora deberá proporcionarle al asegurado un certificado de cobertura que contendrá información mínima acerca del número de póliza colectiva, número de registro del producto en la Superintendencia, vigencia, monto de la prima y la descripción y monto de cada una de las coberturas incluidas. Adicionalmente, el asegurado podrá solicitar que se le entregue copia de las condiciones generales y particulares del seguro contratado. La entidad aseguradora deberá entregar al asegurado el certificado de cobertura en el plazo de tres días hábiles, contados a partir de la solicitud de inclusión en el seguro colectivo cuando sea por inclusión automática y en los casos en que se requiera proceso de selección, dicho plazo comenzará a contar a partir de la aceptación.
-iii. Las obligaciones anteriores rigen también para los sujetos que sin ser asegurados, tengan interés en el seguro en razón de concurrir a financiar el pago de la prima o encontrarse afectos a cumplir obligaciones y cargas de la póliza.
-iv. La contratación colectiva de una póliza no exime a los agentes y corredores de seguros de sus obligaciones como intermediarios, respecto de los asegurados individualmente considerados en la póliza.
-v. Tratándose de seguros asociados a créditos otorgados a consumidores clientes de entidades financieras en general, si la entidad que otorga el crédito actúa como contratante del seguro en la modalidad contributiva, la entidad aseguradora deberá solicitarle a dichas entidades financieras, una declaración expresa firmada por el asegurado deudor del crédito, que autorice a esa entidad a incorporarlo a la póliza colectiva. En ese mandato debe señalarse que el asegurado deudor está en conocimiento que puede contratar los seguros por su cuenta, directamente en cualquier entidad aseguradora o a través de cualquier corredor o agente de seguros del país. Sin ese mandato en los términos señalados, la entidad aseguradora no podrá incorporar a un asegurado deudor, por un crédito determinado, a la póliza colectiva contratada por la entidad financiera que otorga el crédito. Lo anterior no aplica en el caso de modalidad no contributiva, es decir, cuando la entidad financiera paga la prima con sus recursos propios.
-vi. Si la modalidad es contributiva, en forma total o parcial, cualquier participación en los beneficios de las pólizas, sea por baja siniestralidad o por rendimientos financieros, se debe reflejar en la prima que está pagando el asegurado deudor, en la proporción de su contribución. Si la modalidad es no contributiva, la participación en los beneficios dependerá de las condiciones contractuales que se hubieren pactado.
-vii. Los actos propios del contratante del seguro para incorporar al asegurado deudor dentro de una póliza colectiva, no constituyen intermediación de seguros.
+(*)d. (Derogado este inciso por el aparte h) subaparte 1) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 (*)(Así adicionado el inciso d) anterior en sesión N° 849 del 30 de abril de 2010)
 3. En los seguros de gastos médicos mayores, se deberán incluir los criterios que a continuación se indican:
 a. Deberán señalar a los contratantes dentro del texto de las pólizas correspondientes, en todos los contratos individuales, colectivos o de grupo de nueva emisión, la secuencia en la que se aplicarán el deducible y coaseguro, en combinación con la suma asegurada, al momento de pagar un siniestro.
@@ -170,6 +165,8 @@ e. Concuerde plenamente con la nota técnica.
 (*)10. En los contratos de adhesión negociados en la modalidad de contrato tipo, deberá agregarse la siguiente declaración:
 El presente es un contrato tipo donde las coberturas, exclusiones y demás términos contractuales han sido predeterminados por el asegurador con base en su experiencia y profesionalidad, sin detrimento de que las partes de común acuerdo puedan incluir bajo el principio de la libre negociación, aquellas cláusulas que se estimen convenientes según el tipo de riesgo y giro empresarial.
 (*)(Así adicionado el párrafo anterior por el aparte g) subaparte xii) de la sesión N° 986 del 31 de julio de 2012)
+11. En caso de que la póliza limite la libre elección de los proveedores de servicios auxiliares relacionados con el producto, que brinden un servicio directo al asegurado o beneficiario, el contrato deberá revelar claramente las condiciones para tener acceso a la prestación del servicio y la forma en que el tomador, asegurado o beneficiario podrá obtener, en todo momento, información actualizada de los proveedores de servicios auxiliares.
+(*)(Así adicionado el inciso anterior por el aparte 1) subaparte k) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 VII. ANÁLISIS DE CONGRUENCIA. Para efecto de la elaboración del análisis de congruencia el actuario y el abogado de la entidad, que suscriban dicho análisis, deberán verificar que las obligaciones asumidas en las condiciones contractuales del producto se encuentren fielmente respaldadas mediante los métodos actuariales descritos en la nota técnica correspondiente. Adicionalmente, el referido análisis deberá detallar los aspectos contractuales más relevantes, que a juicio del actuario y del abogado, repercutan en el diseño técnico del plan o del contrato.
 Cuando la póliza corresponda a un contrato tipo y el producto se encuentre referenciado a un producto ya registrado, deberá indicarse si el análisis de congruencia del producto registrado aplica para el que se comercializa como contrato tipo. En caso que no sea así, debe presentarse el análisis de congruencia correspondiente.
 (Así adicionado el párrafo anterior por el aparte g) subaparte xiii) de la sesión N° 986 del 31 de julio de 2012)

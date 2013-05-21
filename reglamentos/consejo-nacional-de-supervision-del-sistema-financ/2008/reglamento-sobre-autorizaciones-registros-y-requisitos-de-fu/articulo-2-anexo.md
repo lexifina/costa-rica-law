@@ -37,7 +37,8 @@ Socios personas físicas
 3. Currículum vitae y atestados. La firma en el currículum vitae debe estar autenticada por un notario público.
 4. Tres referencias sobre honorabilidad y solvencia financiera.
 5. Declaración jurada en escritura pública según el anexo 12.
-6. Certificación de antecedentes penales emitida por el organismo público competente del país de nacimiento, del país de su nacionalidad y del país de residencia.
+6. Certificación de antecedentes penales emitida por el organismo público competente del país de nacionalidad y del país de residencia durante los últimos cinco años.
+(Así reformado el inciso anterior por el aparte 1) subaparte d) sesión N° 1043-2013 del 21 de mayo del 2013)
 7. Autorización por escrito de la persona física en la que faculta al órgano supervisor responsable para que lo investigue en cualquier instancia u organismo nacional o internacional. La firma debe estar autenticada por un notario público.
 8. Autorización por escrito del Representante Legal de cada una de las empresas en las que la persona física posea el 50% o más del capital social, en la que faculta al órgano supervisor responsable para que la investigue en cualquier instancia u organismo nacional o internacional. La firma del representante legal deberá ser autenticada por un notario público.
 9. Estado patrimonial de la persona física, incluyendo un desglose de su activo y pasivo, emitido dentro de los seis meses anteriores a la fecha de presentación de la solicitud, firmado por el interesado y certificado por un contador público autorizado o profesional equivalente en el país donde éste sea expedido.
@@ -93,7 +94,8 @@ D. MIEMBROS DE LA JUNTA DIRECTIVA, GERENTE, SUBGERENTES, ACTUARIO, AUDITOR INTER
 3. Currículum vitae y atestados. La firma en el currículum vitae debe estar autenticada por un notario público.
 4. Tres referencias sobre honorabilidad y solvencia financiera.
 5. Declaración Jurada en escritura pública según el anexo 11.
-6. Certificación de antecedentes penales emitida por el organismo público competente del país de nacimiento, del país de su nacionalidad, del país de residencia y de Costa Rica.
+6. Certificación de antecedentes penales emitida por el organismo público competente del país de nacionalidad y del país de residencia durante los últimos cinco años.
+(Así reformado el inciso anterior por el aparte 1) subaparte d) sesión N° 1043-2013 del 21 de mayo del 2013)
 7. Autorización por escrito de la persona física en la que faculta al órgano supervisor responsable para que lo investigue en cualquier instancia u organismo nacional y/o internacional. La firma debe estar autenticada por un notario público.
 8. Establecer de manera explícita los nombres de los miembros de junta directiva que permiten el cumplimiento de que al menos el cuarenta por ciento (40%) de los miembros de la junta directiva no podrán ser accionistas de la entidad, ni parientes de los accionistas de la sociedad, hasta el tercer grado de consanguinidad o afinidad; tampoco podrán ser empleados de empresas del mismo grupo económico o financiero. En el caso de cooperativas aseguradoras el cumplimiento del nombramiento de miembro externo.
 E. PLAN DE INICIO DE ACTIVIDADES
@@ -111,7 +113,8 @@ A. INFORMACIÓN GENERAL
 B. INFORME SOBRE SEGURIDAD FÍSICA Y TECNOLOGÍA DE INFORMACIÓN. Informe sobre seguridad física y tecnología de información. Este informe debe referirse al cumplimiento de, por lo menos, las condiciones de seguridad que se detallan a continuación:
 Seguridad Física
 a) Medidas para regular el acceso de empleados y público en general a las instalaciones.
-b) Servicios de seguridad permanente con oficiales armados.
+b) Sistema de seguridad, debidamente documentado, que responda a los riesgos a los que estará expuesta la entidad en materia de seguridad, de conformidad con sus funciones, competencias, proyecto de negocio, estructura funcional proyectada, características de los locales físicos y demás aspectos relevantes de la compañía.
+(Así reformado el inciso anterior por el aparte 1) subaparte e) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 c) Sistema de cámaras de video ubicadas en lugares estratégicos, tales como, recepción, cajas, accesos a bóvedas y al centro de cómputo.
 d) El sistema de vigilancia electrónico debe mantener respaldo de lo filmado por lo menos durante los últimos 30 días.
 Seguridad Tecnológica

@@ -20,3 +20,4 @@ Reglamento sobre Autorizaciones, Registros y Requisitos de Funcionamiento de Ent
 | 5 | 2010-10-15 | Reglamento 886 (2010-10-15) |
 | 6 | 2010-12-10 | Reglamento 894 (2010-12-10) |
 | 7 | 2012-07-31 | Reglamento 986 (2012-07-31) |
+| 8 | 2013-05-21 | Reglamento 1043 (2013-05-21) |

@@ -1,7 +1,8 @@
 ANEXO 22
-Registro de seguros obligatorios
-y servicios auxiliares conexos
-Documentación requerida para el registro de pólizas, notas técnicas y servicios auxiliares conexos de seguros obligatorios.
+REGISTRO DE SEGUROS OBLIGATORIOS(*)
+(*) (Modificada su denominación por el aparte 1) del subaparte n) de la sesión N° 1043-2013 del 21 de mayo del 2013)
+Documentación requerida para el registro de pólizas y notas técnicas de seguros obligatorios.
+(Así reformado el párrafo anterior por el aparte 1) del subaparte n) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 I. Base legal
 Ley Reguladora del Mercado de Seguros Nº 8653
 En materia de registro de pólizas: artículos 25, k y 29, d.
@@ -12,7 +13,7 @@ II. Documentación que debe acompañar la solicitud de Registro de Seguros Oblig
 4. La documentación contractual, de acuerdo con lo establecido en la sección V de este anexo.
 5. El dictamen jurídico que certifique el apego de la documentación contractual a lo previsto en la Ley 8653 y la normativa aplicable al seguro obligatorio.
 6. El análisis de congruencia entre la nota técnica, la norma técnica de aseguramiento en caso del SRT y la documentación contractual.
-7. Información mínima para el registro de servicios auxiliares según lo dispuesto en el anexo 17 (obligatorio únicamente en caso de que la póliza limite al consumidor respecto a la libre elección del proveedor de servicios auxiliares para la reparación de daños o prestación de servicios).
+7.(Derogado este inciso por el aparte 1) subaparte o) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 8. Descripción del canal de distribución del producto.
 III. Requisitos formales para el Registro de Seguros Obligatorios.
 1. La nota técnica que deberá ser firmada por un actuario. En la carátula de dicha nota técnica se consignará la siguiente leyenda:
@@ -86,13 +87,11 @@ La documentación contractual de modelos de los contratos de adhesión y las cl�
 En el caso de que se desee nombrar beneficiarios a menores de edad, no se debe señalar a un mayor de edad como representante de los menores para efecto de que, en su representación, cobre la indemnización.
 Lo anterior porque las legislaciones civiles previenen la forma en que debe designarse tutores, albaceas, representantes de herederos u otros cargos similares y no consideran al contrato de seguro como el instrumento adecuado para tales designaciones.
 La designación que se hiciera de un mayor de edad como representante de menores beneficiarios, durante la minoría de edad de ellos, legalmente puede implicar que se nombra beneficiario al mayor de edad, quien en todo caso sólo tendría una obligación moral, pues la designación que se hace de beneficiarios en un contrato de seguro le concede el derecho incondicionado de disponer de la suma asegurada.”
-2. En los casos de pólizas de seguros contratados en forma colectiva, se aplicarán las siguientes reglas:
-i. En las condiciones particulares de la póliza colectiva deberá hacerse mención del deber del contratante del seguro colectivo, de informar a los asegurados, u otros legítimos interesados, sobre la contratación del seguro y sus condiciones o modificaciones e incluirse la siguiente leyenda obligatoria: “El Contratante asume las responsabilidades que emanen de su actuación como contratante del seguro colectivo”.
-ii. La entidad aseguradora deberá proporcionarle al asegurado un certificado de cobertura que contendrá información mínima acerca del número de póliza colectiva, número de registro del producto en la Superintendencia, vigencia, monto de la prima y la descripción y monto de cada una de las coberturas incluidas.
-iii. La contratación colectiva de una póliza no exime a los agentes y corredores de seguros de sus obligaciones como intermediarios, respecto de los asegurados individualmente considerados en la póliza.
+2. (Derogado este inciso por el aparte 1) subaparte o) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 3. En el texto de la póliza de que se trate, se deberá incluir la siguiente leyenda obligatoria:
 “…La cobertura básica del presente contrato de seguro obligatorio, cubre todas las prestaciones reguladas conforme_______(Código de Trabajo o Ley de Tránsito) y sus reglamentos. Cualquier cláusula de este contrato que se le oponga, resulta absolutamente nulo…”
-4. En las pólizas, endosos, cláusulas adicionales y demás documentación contractual en que se establezcan exclusiones, la tipografía a utilizar en estas no deberá ser inferior a 12 puntos en negritas.
+4. En las pólizas, endosos, cláusulas adicionales y demás documentación contractual en que se establezcan exclusiones, la tipografía a utilizar en estas deberá ser clara, destacada y legible.
+(Así reformado el inciso anterior por el aparte 1) subaparte p) de la sesión N° 1043-2013 del 21 de mayo del 2013)
 5. La documentación debe reunir los siguientes requisitos:
 a. Esté redactada en idioma español y con caracteres legibles a simple vista.
 b. No contenga estipulaciones que se opongan a lo previsto en las disposiciones legales que le son aplicables y que no establezca obligaciones o condiciones inequitativas o lesivas para los contratantes, asegurados o beneficiarios.
@@ -106,3 +105,5 @@ Debe consignarse en la carátula de la póliza, formato de solicitud, folleto ex
 Se deberá presentar una norma técnica de aseguramiento, la cual dispondrá los aspectos operativos para la aplicación de la tarifa, evaluación del riesgo y aplicación de recargos o descuentos según los parámetros de la prima o tarifa autorizada, el procedimiento operativo de liquidación periódica de la póliza, el reporte de planillas aseguradas y otros detalles necesarios.
 La norma de aseguramiento contemplará también, de conformidad con el artículo 215 del Código de Trabajo, la metodología y criterios de revisión de tarifas por el incumplimiento de las disposiciones en materia de salud ocupacional, el número de trabajadores expuestos a tales riesgos y la experiencia de siniestralidad del patrono renuente.
 (Así adicionado mediante sesión N° 894-2010 del 10 de diciembre de 2010)
+8. En caso de que la póliza limite la libre elección de los proveedores de servicios auxiliares relacionados con el producto que brinden un servicio directo al asegurado, más allá de lo establecido en la ley especial que regula el seguro obligatorio específico, el contrato deberá revelar claramente las condiciones para tener acceso a la prestación del servicio y la forma en que el tomador, asegurado o beneficiario podrá obtener, en todo momento, información actualizada de los proveedores de servicios auxiliares.
+(Así adicionado el inciso anterior por el aprte 1) suaparte q) de la sesión N° 1043-2013 del 21 de mayo del 2013)
