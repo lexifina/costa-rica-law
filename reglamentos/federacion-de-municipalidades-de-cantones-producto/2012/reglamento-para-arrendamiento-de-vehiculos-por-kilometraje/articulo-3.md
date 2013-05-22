@@ -1,0 +1,2 @@
+Artículo 3°—Responsables: Es responsabilidad de la Dirección Ejecutiva velar por el cumplimiento de este Reglamento, así como de llevar el control adecuado para una correcta ejecución del servicio a contratar al amparo de este Reglamento.
+En el caso de que sea el titular de la Dirección Ejecutiva el funcionario que se le arriende el vehículo la responsabilidad será de quien ostente la Presidencia del Consejo Intermunicipal de la Federación CAPROBA o quien el órgano deliberativo designe mediante acuerdo.

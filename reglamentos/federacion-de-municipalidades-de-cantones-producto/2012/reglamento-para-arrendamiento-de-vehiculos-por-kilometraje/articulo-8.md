@@ -1,0 +1,3 @@
+Artículo 8º—Responsabilidad por daños: El propietario del vehículo lo conducirá por su cuenta y riesgo y deberá asumir la responsabilidad civil y penal que se pudiere originar en accidentes, robos u otros, en que intervenga.
+Consecuentemente, La Federación CAPROBA no asumirá ni aceptará responsabilidad alguna por los daños causados al vehículo, a terceras personas o a sus bienes, en caso de accidente, robo u otros.
+La Federación CAPROBA únicamente asumirá la responsabilidad de indemnizar a sus colaboradores por concepto de riesgos profesionales de trabajo, conforme al régimen jurídico aplicable, siempre y cuando utilicen su vehículo en ejecución de sus funciones asignadas.

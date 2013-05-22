@@ -1,0 +1,2 @@
+Artículo 10.—Otros pagos: Se reconocerán los pagos por concepto de peajes, utilización de transbordadores y estacionamientos en que deba incurrir el colaborador mientras utiliza el vehículo en la ejecución de sus funciones, para lo cual debe presentar el original de los comprobantes respectivos que demuestre que efectivamente, el gasto se realizó durante la gira.
+Aprobado por el Consejo Intermunicipal de la Federación en sesión Ordinaria Nº 04/12, artículo 7, celebrada el 20 de octubre del 2012. El reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
