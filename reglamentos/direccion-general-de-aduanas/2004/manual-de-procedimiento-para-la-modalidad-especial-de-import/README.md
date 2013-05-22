@@ -14,3 +14,4 @@ Manual de Procedimiento para la Modalidad Especial de Importación Tiendas Libre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-30 | la propia norma |
+| 2 | 2013-05-22 | Resolución 147 (2013-05-22) |
