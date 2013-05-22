@@ -1,0 +1,1 @@
+Artículo 79.—El mantenimiento de canchas de fútbol, específicamente de su gramilla, deberá producirse al menos una vez al año, utilizando los meses de la temporada lluviosa, debiendo permanecer totalmente cerradas al público mientras duren los trabajos de mantenimiento.

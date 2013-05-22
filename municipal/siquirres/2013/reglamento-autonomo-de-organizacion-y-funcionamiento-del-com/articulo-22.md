@@ -1,0 +1,1 @@
+Artículo 22.—La Junta Directiva, en su primera sesión, escogerá de entre sus integrantes al presidente, el secretario, al tesorero y a los vocales 1(vicepresidente) y 2, quienes desempeñarán dichos cargos por el periodo de vigencia del Comité cantonal.

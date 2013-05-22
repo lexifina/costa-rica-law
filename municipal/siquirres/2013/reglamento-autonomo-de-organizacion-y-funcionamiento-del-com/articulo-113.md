@@ -1,0 +1,18 @@
+Artículo 113.—En los Juegos Deportivos Nacionales podrá participar como atleta toda persona que cumpla con los requisitos generales y específicos de cada deporte establecidos en el Reglamento.
+113.1 Podrá participar como atleta:
+a) Toda persona costarricense por nacimiento o naturalización.
+b) Los extranjeros que tengan cédula de residencia temporal o permanente en Costa Rica, misma que deberá estar vigente.
+c) Tener su residencia en la región geográfica del Cantón de Siquirres. Podrá requerir como refuerzos hasta dos atletas de todas aquellas Agrupaciones Deportivas que no clasificaron en la Etapa Clasificatoria. Para ello el interesado debe solicitar el pase a la Agrupación Deportiva eliminada y proceder a su inscripción, a más tardar diez días hábiles después de terminada la Etapa Clasificatoria.
+d) Se entiende por residencia el domicilio donde el atleta vive habitualmente durante el transcurso del año. Para lo anterior emitirá al momento de su inscripción una declaración jurada de su residencia.
+e) Cuando en el cantón de Siquirres, no se practique una disciplina deportiva, el Comité Cantonal, estará facultado de autorizar a un atleta a participar con otro cantón de su región, si en la región no se practica el deporte, podrá autorizarle la participación con un cantón de cualquier región del país.
+f) Para poder identificarse en el proceso de inscripción el atleta debe presentar algún documento que lo acredite, para ello podrá utilizar según sea su condición, su cédula de identidad, cédula de identidad de menor, cédula vigente de residencia permanente, permiso temporal vigente de residencia o pasaporte vigente, en donde consten el nombre completo, fecha de nacimiento y fotografía del portador. Deberá aportarse al Comité Cantonal, fotocopia del documento de identificación a efectos de incluir en expediente.
+Los menores de doce años podrán presentar constancia o certificación extendida por el Registro Civil y una fotografía reciente.
+f. La edad establecida para cada deporte, categoría y rama deberá tenerla el atleta durante el año de competición de la respectiva edición cumplidos o a cumplir a partir de 1 de enero de correspondiente año, para facilitar la ubicación de categoría en la Convocatoria Nacional Oficial se detallará el cuadro de años que corresponde a cada una.
+113.2 La distribución regional correspondiente al cantón de Siquirres será la siguiente:
+a) Región Limón: Guácimo, Limón, Matina, Pococí, Siquirres y Talamanca.
+113.3 En los deportes de conjunto y por rama podrán inscribirse hasta dos extranjeros.
+114.4 Un atleta podrá inscribirse y participar solo en un deporte en representación de una Agrupación Deportiva. Aunque si podrá inscribirse hasta en dos modalidades de dicho deporte con la misma Agrupación Deportiva.
+113.5 Cuando un atleta es des inscrito no podrá inscribirse con ninguna otra Agrupación Deportiva en la misma edición, salvo el caso de refuerzo.
+113.6 En deportes de conjunto, toda Agrupación Deportiva que clasifique a la Etapa Final podrá requerir como refuerzos hasta dos atletas de todas aquellas Agrupaciones Deportivas que no clasificaron en la Etapa Clasificatoria. Para ello el interesado debe solicitar el pase a la Agrupación Deportiva eliminada y proceder a su inscripción, a más tardar diez días hábiles después de terminada la Etapa Clasificatoria.
+113.7 En deportes individuales, el atleta podrá inscribirse hasta un máximo de pruebas o eventos que las normas de dicho deporte establezcan.
+113.8 Aquel atleta que haya finalizado su participación en los procesos clasificatorios y no haya clasificado a la etapa final podrá inscribirse en otro deporte cumpliendo con la normativa del caso.

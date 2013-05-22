@@ -1,0 +1,1 @@
+Artículo 5º—Los miembros de la Junta Directiva y los integrantes de los demás comités que integran el Comité Cantonal y los empleados y funcionarios del mismo, en el desempeño de sus funciones deberán ajustar sus actuaciones a las normas y procedimientos que señala la Ley y el presente Reglamento.

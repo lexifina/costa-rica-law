@@ -1,0 +1,2 @@
+Artículo 92.—Toda aquella organización que desee ser beneficiaria de Implementos Deportivos inscrita dentro del registro padrón, deberá cumplir con todos los requisitos que se exigen en el presente reglamento, de previo a recibir cualquier tipo de beneficio.
+Podrán ser beneficiarios de implementos deportivos solos aquellas organizaciones y/o personas que residan en el cantón de Siquirres.

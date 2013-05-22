@@ -1,0 +1,1 @@
+Artículo 100.—Es obligación de la Dirección Ejecutiva, mantener un auxiliar de las requisiciones de bodega de las entregas que se le han hecho y presentar un informe semestral, a la Dirección Deportiva para ser conocido por la Junta Directiva del Comité Cantonal.

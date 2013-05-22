@@ -1,0 +1,1 @@
+Artículo 122.—Será responsabilidad del comité cantonal de deportes verificar que toda empresa CONTRATANTE CON EL COMITÉ se encuentre al día con la CCSS, pólizas. De los aportes y financiamiento de otras agrupaciones.

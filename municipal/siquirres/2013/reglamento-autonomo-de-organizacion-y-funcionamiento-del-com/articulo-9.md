@@ -1,0 +1,1 @@
+Artículo 9º—El Comité Cantonal vigilará que su actuar se ajuste al Plan Operativo Anual que haya aprobado el Concejo Municipal, y establecerá los controles que correspondan para que sus Comités Comunales y afiliados cumplan con dicho plan.

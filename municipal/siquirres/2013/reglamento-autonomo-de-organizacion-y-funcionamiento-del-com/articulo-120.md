@@ -1,0 +1,1 @@
+Artículo 120.—El comité cantonal de Deportes podrá invertir recursos en los procesos eliminatorios de juegos estudiantiles para transporte a eliminatorias regionales, interregionales, y finales nacionales, así como para premiación y apoyo logístico en el caso de organizar una eliminatoria o una final nacional.

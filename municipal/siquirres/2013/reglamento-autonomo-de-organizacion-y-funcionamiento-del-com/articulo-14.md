@@ -1,0 +1,1 @@
+Artículo 14.—Los miembros del Comité Cantonal de Deportes y Recreación durarán en sus cargos dos años, pudiendo ser reelectos consecutivamente por un único período igual y deberá esperar un período para poder ser electo nuevamente y no devengarán dietas ni remuneración alguna.

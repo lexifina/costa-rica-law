@@ -1,0 +1,1 @@
+Artículo 116.—Toda agrupación deportiva que desee participar en los procesos eliminatorios de juegos deportivos nacionales y pretenda apoyo de cualquier naturaleza por parte del comité cantonal de deportes, deberá presentar al menos con seis meses de antelación el proyecto ante el comité cantonal. Sin embargo el aporte quedara sujeto al contenido presupuestario,

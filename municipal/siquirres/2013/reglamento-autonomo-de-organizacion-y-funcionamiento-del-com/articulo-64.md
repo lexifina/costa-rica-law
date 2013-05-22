@@ -1,0 +1,1 @@
+Artículo 64.—Las asambleas comunales deberán ser avaladas por el Comité Cantonal mediante fiscalización directa o informe al mismo con sustento documental de la convocatoria y asistencia a dicha asamblea donde se registrará como mínimo, el nombre, número de cédula y firma de cada asistente a la misma.

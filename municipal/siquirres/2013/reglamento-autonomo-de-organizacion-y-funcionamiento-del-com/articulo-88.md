@@ -1,0 +1,1 @@
+Artículo 88.—El Comité Cantonal podrá suspender la práctica de las actividades deportivas o recreativas, que por su propia naturaleza o el tipo de embarcación o artefacto náutico en uso, constituyan un peligro para la seguridad de sus practicantes, de terceras personas o del medio acuático, hasta que se asegure la existencia de condiciones adecuadas para su realización.

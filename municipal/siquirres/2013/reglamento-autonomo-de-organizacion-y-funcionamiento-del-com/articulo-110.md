@@ -1,0 +1,6 @@
+Artículo 110.—
+a) El Comité Cantonal es el Órgano Municipal responsable de promover el deporte y la recreación en su jurisdicción. Se incluyen con igual rango los Comités Cantonales de Deporte y Recreación de los Concejos Municipales Distritales.
+b) Colabora con las Agrupaciones Deportivas de su jurisdicción y órganos del mismo en la preparación y participación en los Juegos Deportivos Nacionales.
+c) Son los responsables de dar el respaldo legal cuando se requiera y el aval a toda Agrupación Deportiva de su jurisdicción para poder inscribirse y participar en la respectiva edición de Juegos Deportivos Nacionales de conformidad con la Convocatoria Nacional Oficial que se promulgue.
+d) Coordinará y facilitará la preparación y participación en la medida de sus posibilidades económicas y administrativas de sus representativos en las diferentes etapas de los Juegos Deportivos Nacionales.
+e) Organizar y desarrollar la etapa cantonal en los deportes de conjunto en la cual se inscriban dos o más equipos de su cantón de conformidad con la normativa aplicable del presente Reglamento de Juegos Deportivos Nacionales y llevarla a cabo dentro del periodo establecido en la convocatoria oficial o el calendario de competencias que la Federación Nacional fije.

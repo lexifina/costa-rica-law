@@ -1,0 +1,1 @@
+Artículo 65.—Los comités comunales se reunirán ordinariamente, en sesión pública, al menos dos veces al mes, en la hora, día y lugar que fijará el Comité Comunal y se reunirán extraordinariamente cuando lo requieran.

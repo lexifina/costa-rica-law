@@ -1,0 +1,1 @@
+Artículo 123.—El comité cantonal deberá contemplar partida presupuestaria para la Ley N° 7600, adulto mayor, centro de atención al adulto mayor, grupos culturales debidamente establecidos e inscritos ante el comité cantonal de deportes.
