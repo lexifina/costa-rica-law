@@ -1,0 +1,1 @@
+Artículo 10.—Horario de operación del sistema de estacionómetros. La Municipalidad, por medio del Alcalde y la Administración, definirán el horario en que funcionará el sistema de estacionómetros, el cual deberá ser publicado en el Diario Oficial La Gaceta para su validez.

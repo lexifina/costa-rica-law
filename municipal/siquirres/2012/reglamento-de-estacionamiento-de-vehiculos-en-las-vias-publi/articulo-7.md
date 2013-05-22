@@ -1,0 +1,1 @@
+Artículo 7º—De la supervisión del sistema de estacionómetro. La Municipalidad tendrá el deber de supervisar la adecuada operación del sistema de estacionómetro, para lo cual podrá tramitar las quejas que se formulen en contra del mismo por medio de la Oficina de Contraloría de Servicios Municipales, quedando facultada para recomendar mejoras o correcciones a la Administración.
