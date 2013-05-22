@@ -1,0 +1,1 @@
+Artículo 7°—Si no se obtiene la consecución del título, diploma o certificación que dio origen a este beneficio deberá pagar la cuota de la Modalidad 1, desde el momento en que se le otorgó la Modalidad Número Dos, hasta la fecha de su regreso definitivo al país.

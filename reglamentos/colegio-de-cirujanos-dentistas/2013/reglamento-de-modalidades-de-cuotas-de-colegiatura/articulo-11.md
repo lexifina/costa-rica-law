@@ -1,0 +1,3 @@
+Artículo 11.—El colegiado que se traslade a estudiar o a residir en el exterior que no se haya acogido a las disposiciones de este Reglamento, cuando regrese al país y desee mantener inscripción en el Colegio de Cirujanos Dentistas de Costa Rica, deberá hacer el pago de la totalidad de cuotas de colegiatura que ha dejado de pagar desde su salida del país hasta su fecha de regreso, más los intereses y gastos que haya ocasionado al Colegio.
+Aprobado en la Asamblea General Extraordinaria celebrada a las dieciocho días del mes de abril del dos mil trece.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
