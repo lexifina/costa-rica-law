@@ -14,3 +14,4 @@ Procedimiento de devolución de placas y desinscripción de vehículos declarado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-27 | la propia norma |
+| 2 | 2013-05-23 | Directriz 1 (2013-05-23) |

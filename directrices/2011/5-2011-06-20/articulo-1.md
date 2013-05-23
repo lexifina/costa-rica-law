@@ -1,5 +1,7 @@
+(Derogado)
 REGISTRO NACIONAL
 JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+(Esta norma fue derogada mediante directriz N° DRBM-DIR-001-2013 del 23 de mayo del 2013, "Procedimiento de devolución de placas y desinscripción de vehículos declarados por las entidades aseguradoras como pérdida total o en estado de robo")
 REGISTRO DE LA PROPIEDAD MUEBLES
 DIRECTRIZ DRBM-DIR-005-2011
 DE: DIRECCIÓN DE BIENES MUEBLES
