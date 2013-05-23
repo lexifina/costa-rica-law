@@ -1,0 +1,1 @@
+Artículo 4º — Se establece que el precio para la calidad 80/20 pasa de ¢691.00 (precio actual) a un precio mínimo de ¢657.00 y máximo de ¢661.00 por kilogramo, de acuerdo a la actualización del modelo de costos del industrial y tomando en consideración la fórmula establecida en el artículo 2 del presente Decreto.

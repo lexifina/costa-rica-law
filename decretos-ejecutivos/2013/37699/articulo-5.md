@@ -1,0 +1,1 @@
+Artículo 5º — Todo esquema de regulación de precios del arroz será eliminado a partir del 1 de marzo de 2014, de conformidad con las potestades que la Ley 7472 le brinda al Ministerio de Economía, Industria y Comercio.
