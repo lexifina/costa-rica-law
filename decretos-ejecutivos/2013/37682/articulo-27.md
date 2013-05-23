@@ -1,0 +1,1 @@
+Artículo 27.—Los Patronatos Escolares constituirán su acervo económico con las donaciones y contribuciones voluntarias que reciban, así como con aquellas actividades que realicen, tales como ferias escolares y otras afines.

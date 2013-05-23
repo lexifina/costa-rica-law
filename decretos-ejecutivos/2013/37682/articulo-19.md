@@ -1,0 +1,1 @@
+Artículo 19.—Las sesiones del órgano serán siempre privadas, pero podrá disponer, acordándolo así por unanimidad de los miembros presentes, la participación de padres de familia o de otras personas, concediéndoles o no el derecho de participar en las deliberaciones con derecho a voz, pero sin derecho a voto.

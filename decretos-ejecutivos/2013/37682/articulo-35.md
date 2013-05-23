@@ -1,0 +1,1 @@
+Artículo 35.—El Patronato Escolar podrá ejecutar directamente, previo acuerdo en firme de su directiva, programas, proyectos y acciones de interés para el mejoramiento del centro educativo y el bienestar de la población estudiantil, de acuerdo con lo establecido en su plan de trabajo.

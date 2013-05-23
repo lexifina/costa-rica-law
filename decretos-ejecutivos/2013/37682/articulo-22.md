@@ -1,0 +1,1 @@
+Artículo 22.—De cada sesión se levantará un acta que contendrá la indicación de las personas asistentes, número de acta, hora de inicio, lugar en donde se realiza la reunión y la agenda tratada, los acuerdos adoptados y el resultado de la correspondiente votación. El Patronato Escolar podrá sesionar en las instalaciones del centro educativo.

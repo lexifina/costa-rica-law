@@ -1,0 +1,1 @@
+Artículo 11.—Los Patronatos Escolares están obligados a cumplir sus funciones en el marco de un proceso de colaboración, respeto y sana convivencia con las autoridades del centro educativo, la Junta de Educación, otros organismos auxiliares y colaboradores del centro educativo, así como con la comunidad educativa.

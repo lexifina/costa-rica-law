@@ -1,0 +1,1 @@
+Artículo 31.—El director o directora del centro educativo no podrá custodiar, ni manejar directamente, los recursos económicos recaudados por medio de actividades realizadas por el Patronato Escolar. Esta prohibición se extiende al personal docente y administrativo destacado en el centro educativo.

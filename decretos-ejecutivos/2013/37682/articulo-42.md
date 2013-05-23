@@ -1,0 +1,1 @@
+Artículo 42.—La asamblea de padres de familia deberá ser convocada por el director o directora del centro educativo para llenar las plazas de la directiva del Patronato Escolar cuando queden vacantes por defunción, renuncia, incumplimiento de funciones o cambio de domicilio de alguno de sus miembros.

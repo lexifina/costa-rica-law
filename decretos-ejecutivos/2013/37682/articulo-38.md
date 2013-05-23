@@ -1,0 +1,1 @@
+Artículo 38.—Los miembros del Patronato Escolar, o alguno de estos, podrán ser removidos por acuerdo de la asamblea de padres de familia que sea convocada para estos efectos. Cuando se remueva la totalidad o a alguno de sus miembros, la asamblea de padres deberá nombrar de inmediato a quien o quienes los sustituyan.

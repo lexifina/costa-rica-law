@@ -1,0 +1,1 @@
+Artículo 39.—La asamblea de padres de familia deberá ser convocada por el director del centro educativo en cualquier tiempo, cuando la tercera parte de los padres de familia así lo solicite para la remoción de miembros del Patronato Escolar.

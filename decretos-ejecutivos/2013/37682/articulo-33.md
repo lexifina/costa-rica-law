@@ -1,0 +1,1 @@
+Artículo 33.—Los bienes adquiridos con fondos del Patronato Escolar son propiedad exclusiva del centro educativo y deberán inventariarse, para efectos de control interno, de manera independiente de aquellos adquiridos por la Junta de Educación.

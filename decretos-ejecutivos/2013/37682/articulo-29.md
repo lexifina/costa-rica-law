@@ -1,0 +1,1 @@
+Artículo 29.—De acuerdo con lo establecido en el plan de trabajo, el Patronato Escolar solicitará al director (a), o a la Junta de Educación, según sea el caso, la autorización para utilizar las instalaciones del centro educativo en los casos en que se requiera.

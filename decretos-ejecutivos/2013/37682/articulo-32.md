@@ -1,0 +1,1 @@
+Artículo 32.—Toda erogación y asignación de recursos económicos, para la atención de necesidades del centro educativo y de la población estudiantil, debe ser autorizada previamente por el Patronato Escolar y constar en el registro de actas correspondiente.

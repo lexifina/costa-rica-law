@@ -1,0 +1,1 @@
+Artículo 6º—Los miembros del Patronato Escolar serán electos por votación mayoritaria de los presentes, quienes de previo deberán decidir si la votación será secreta, alzando la mano o por aclamación.

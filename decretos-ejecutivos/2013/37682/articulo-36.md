@@ -1,0 +1,1 @@
+Artículo 36.—El Patronato Escolar podrá promover proyectos de infraestructura en el centro educativo, los cuales deberán desarrollarse de acuerdo con los procedimientos establecidos por la Dirección de Infraestructura y Equipamiento Educativo (DIEE) del Ministerio de Educación Pública.

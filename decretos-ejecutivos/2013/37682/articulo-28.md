@@ -1,0 +1,1 @@
+Artículo 28.—Los Patronatos Escolares tienen prohibido la venta o distribución de cualquier clase de bebidas alcohólicas o cigarrillos en las actividades que organicen, y la celebración de espectáculos o actos que no sean conformes con los fines de la educación.
