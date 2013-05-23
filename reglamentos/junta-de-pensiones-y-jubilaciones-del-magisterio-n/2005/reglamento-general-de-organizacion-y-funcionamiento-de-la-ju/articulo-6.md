@@ -17,3 +17,5 @@ K) Instar los procedimientos de rigor tendientes a la modificación de las cotiz
 L) Contratar o cesar las asesorías que considere necesarias para la toma de políticas institucionales.
 M) Velar por la correcta recaudación de los recursos del Fondo Especial de Administración y utilizarlo con prudencia y frugalidad.
 N) Formular y aprobar el Plan Estratégico de la Institución, velar por su ejecución y actualizarlo al menos cada dos años.
+Ñ) Nombrar a los miembros de la Comisión de Inversiones y del Comité de Riesgos.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 056-2013 del 23 de mayo del 2013)
