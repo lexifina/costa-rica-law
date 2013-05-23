@@ -1,0 +1,1 @@
+Artículo 18.—Competencias. La tramitación de las solicitudes de licencias permanentes estará a cargo del nivel administrativo que determine el Alcalde y su otorgamiento u aprobación será competencia del Concejo Municipal, para lo cual la documentación será acompañada de un criterio del Departamento de Patentes y la Coordinación de Hacienda Municipal.
