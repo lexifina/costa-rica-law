@@ -1,0 +1,1 @@
+Artículo 14.—Derogación: Deróguese el Decreto Ejecutivo N° 34704-MP-MTSS de Promoción del teletrabajo en las instituciones públicas, publicado en el Diario Oficial La Gaceta N° 162 del 22 de agosto de 2008.

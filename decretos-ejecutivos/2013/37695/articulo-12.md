@@ -1,0 +1,1 @@
+Artículo 12.—Informes: Las instituciones deberán remitir de forma bimensual un informe estadístico y de forma semestral un informe de gestión a la Comisión Nacional de Teletrabajo, según los estándares que al efecto ésta determine.
