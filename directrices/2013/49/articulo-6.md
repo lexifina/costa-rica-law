@@ -1,0 +1,1 @@
+Artículo 6º—Plazo de implementación Institucional de IPv6. La fecha límite establecida para concluir la implementación del Protocolo IPv6, es el 30 de junio del 2015, a fin de que los usuarios puedan acceder a los servicios que por medio de Internet presten las instituciones y que todas las entidades puedan, así mismo, brindar sus servicios por medio del Protocolo IPv6.
