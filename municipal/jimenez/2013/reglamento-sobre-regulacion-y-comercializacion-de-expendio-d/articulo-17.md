@@ -1,0 +1,1 @@
+Artículo 17.—Inspección y Control. Del total recaudado en virtud de la Ley Nº 9047 anualmente se destinará un diez por ciento para las funciones de inspección y control encomendadas a la Municipalidad, conforme las necesidades financieras prefijadas para cada anualidad, mediante el trámite de los presupuestos municipales.
