@@ -1,1 +1,1 @@
-Artículo 3º—El fondo documental que se conserva en los archivos se organizará por medio de los sistemas de clasificación y los métodos de ordenación archivísticos definidos por el Archivo Central, respetando los principios de procedencia y orden original de los documentos.
+Artículo 3.—El fondo documental que se conserva en los archivos se organizará por medio de los sistemas de clasificación y los métodos de ordenación archivísticos definidos por el Archivo Central, respetando los principios de procedencia y orden original de los documentos.

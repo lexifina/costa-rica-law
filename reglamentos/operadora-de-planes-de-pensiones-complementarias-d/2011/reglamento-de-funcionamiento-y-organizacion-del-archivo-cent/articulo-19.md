@@ -1,5 +1,4 @@
-Artículo 19.—La documentación se microfilmará, digitalizará o bien se le aplicará cualquier otro proceso tecnológico presente o futuro, que garantice su generación, almacenamiento o disposición final al menos por alguna de las siguientes razones:
+Artículo 19.—La documentación se microfilmará, digitalizará o bien se le aplicará cualquier otro proceso tecnológico presente o futuro, que garantice su generación, almacenamiento o disposición final con base a lo indicado en el artículo 6 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos; y al menos por alguna de las siguientes razones:
 Seguridad: se aplicará básicamente a aquellos documentos de valor permanente y los sometidos a posibles deterioros por la calidad del papel, de la tinta, del uso continuo, humedad o para prevenir la destrucción del documento por cualquier otra circunstancia.
 Complemento: para complementar los fondos documentales cuando los documentos originales relacionados con esos mismos se encuentren en otros lugares.
 Referencia: para agilizar los trámites administrativos y de investigación de las dependencias y de los archivos.
-Sustitución: se realizará con la finalidad de ahorrar espacio, sustituyendo el documento original por Ja micropelícula, cuando esto sea posible y legal de acuerdo con lo que dispone el artículo 3 de la Ley Np 4273 sobre microfilmación de documentos.

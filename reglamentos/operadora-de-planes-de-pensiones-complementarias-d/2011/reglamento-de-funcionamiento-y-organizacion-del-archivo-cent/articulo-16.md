@@ -1,1 +1,1 @@
-Artículo 16.—En las sesiones del Comité Institucional podrán participar otras personas de conformidad con el numeral 54 de la Ley General de la Administración Pública.
+Artículo 16.—En las sesiones del Comité Institucional podrán participar otras personas de conformidad con el numeral 139 del Reglamento de la Ley del Sistema Nacional de Archivos.

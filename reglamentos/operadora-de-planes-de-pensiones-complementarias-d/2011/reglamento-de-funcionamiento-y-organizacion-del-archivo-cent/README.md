@@ -14,3 +14,4 @@ Reglamento de Funcionamiento y Organización del Archivo Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-03 | la propia norma |
+| 2 | 2013-05-23 | Reglamento 407 (2013-05-23) |
