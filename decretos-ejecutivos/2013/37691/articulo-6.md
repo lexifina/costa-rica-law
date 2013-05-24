@@ -1,0 +1,5 @@
+Artículo 6º—Requisitos que deben cumplir los beneficiarios de este decreto.
+1. Fotocopia de la cédula de identidad, de no estar registrado(a) con FIS vigente, en el Sistema de Población Objetivo (SIPO).
+2. Declaración jurada del beneficiario, que indique que no cuenta con más fuentes de ingresos en su núcleo familiar que la actividad cafetalera, y que indique que su cultivo ha sido afectado de forma importante por la roya del cafeto.
+3. Estar incluido en las listas de productores de café suministradas por el ICAFE. Estas listas deberán contener al menos los siguientes datos del productor de café: a) nombre completo, b) número de cédula u otro documento oficial de identidad, c) lugar de residencia y d) número de fanegas que entrega.
+Se autoriza al IMAS, para que pueda entregar hasta por un año el beneficio económico a que hace referencia este decreto, sin necesidad de aplicar la Ficha de Información Social (FIS). Únicamente, deberá guardar un registro electrónico completo de los beneficiarios, con los datos de identificación básicos y el monto mensual de la ayuda económica otorgada.

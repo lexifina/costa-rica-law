@@ -1,0 +1,1 @@
+Artículo 3º—Corresponderá al Instituto Mixto de Ayuda Social (IMAS), en coordinación con el Ministerio de Agricultura y Ganadería (MAG), y el Instituto del Café de Costa Rica (ICAFE), establecer las prioridades de ayuda temporal para los pequeños productores de café, entendidos estos como aquellos que entregan cincuenta fanegas o menos por cosecha.
