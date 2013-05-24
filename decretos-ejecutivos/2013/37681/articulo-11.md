@@ -1,0 +1,1 @@
+Artículo 11.—El Área Ambiental del proyecto, deberá también entregar copia de los planes de corta y de gestión ambiental, mediante el informe de cierre ambiental, al Área de Mantenimiento de Líneas de la región correspondiente, con el fin de dar seguimiento a dichas medidas en la fase de operación.
