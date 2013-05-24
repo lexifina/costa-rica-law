@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 452:2011 Barras y Alambres de acero de refuerzo para co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-24 | la propia norma |
+| 2 | 2013-05-24 | Decreto Ejecutivo 37638 (2013-04-08) |
