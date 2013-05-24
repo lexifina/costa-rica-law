@@ -1,0 +1,40 @@
+INSTITUTO MIXTO DE AYUDA SOCIAL
+REGLAMENTO PARA EL PAGO DEL SOBRESUELDO
+POR COORDINACIONES TEMPORALES
+Artículo 1º—Del Objeto: El objeto del presente reglamento es regular el pago de un sobresueldo por “Coordinaciones Temporales” en el Instituto Mixto de Ayuda Social (IMAS), de conformidad con la directriz de Política Institucional para el pago de complementos salariales.
+Artículo 2º—De las Definiciones: Para efectos del presente reglamento se entenderá por:
+Coordinador de Unidad Local de Desarrollo Social: Profesional designado en forma temporal para que coordine técnica y administrativamente un equipo de profesionales de una Unidad Local de Desarrollo Social del IMAS.
+Coordinador del Área de Formulación de Programas: Persona designada en forma temporal para que coordine técnicamente el equipo de coordinadores de oferta programática y ejerza adicionalmente la responsabilidad administrativa del personal asignado al Área de Formulación de Programas.
+Coordinador del Área de Evaluación y Seguimiento de Programas: Persona designada en forma temporal para que coordine técnica y administrativamente el equipo de profesionales del Área de Evaluación y Seguimiento de Programas.
+Sobresueldo: Es una retribución económica o complemento salarial sobre el salario base, que se reconocerá a los Coordinadores de Unidades Locales de Desarrollo Social, Coordinador del Área de Formulación de Programas y Coordinador del Área de Evaluación y Seguimiento de Programas, en razón del ejercicio de dichos cargos.
+Artículo 3º—Disposiciones supletorias: En defecto de disposición expresa del presente reglamento, el reconocimiento del sobresueldo se regirá por los lineamientos de política salarial y empleo que anualmente emita el Poder Ejecutivo y las disposiciones que al respecto dicte la Autoridad Presupuestaria.
+Artículo 4º—Del monto a reconocer y de la vigencia: La retribución económica a reconocer será de un porcentaje de un 12.5% sobre el salario base.
+Los contratos correspondientes para el pago del porcentaje de sobresueldo tendrán una vigencia de hasta dos años a partir de la fecha en que sea suscrito por las partes.
+Artículo 5º—De las condiciones para el reconocimiento: El sobresueldo será concedido solamente cuando el funcionario deba:
+a) Ejecutar labores profesionales en forma temporal del cargo de Coordinador de la Unidad Local de Desarrollo Social según el perfil del Manual de Cargos del IMAS, de acuerdo a la división territorial definida por el Consejo Directivo del IMAS. La persona propuesta para ocupar el cargo de Coordinador de Unidad Local de Desarrollo Social será recomendada conjuntamente por el equipo de la Unidad Local y el Jefe del área Regional al Subgerente de Desarrollo Social y finalmente éste último lo remitirá a la Presidencia Ejecutiva para su aprobación.
+b) Ejecutar en forma temporal labores del cargo Coordinador del Área de Formulación de Programas Sociales o Coordinador del Área de Evaluación y Seguimiento, según perfil del Manual de Cargos del IMAS, así como supervisar técnicamente la ejecución de uno o varios subprogramas, componentes, ejes, líneas de acción u otras denominaciones que se establezcan en el Plan Operativo Institucional del IMAS. La persona propuesta para los cargos indicados será recomendada por el Subgerente de Desarrollo Social a la Presidencia Ejecutiva.
+Artículo 6º—De los requisitos para el funcionamiento: El funcionario designado para ser Coordinador de Unidad Local de Desarrollo Social, Coordinador del Área de Formulación de Programas, Coordinador del Área de Evaluación y Seguimiento de Programas, deberá cumplir con los requisitos establecidos para los cargos en el Manual de Cargos Institucional y solo en caso de inopia comprobada se podrá designar a una persona con requisitos menores, la cual debe ser aprobada mediante resolución razonada de la Gerencia General.
+El reconocimiento salarial que se dispone en este Reglamento, no será aplicable a los funcionarios que sean designados para ocuparlos por la vía de la inopia.
+Artículo 7º—De los responsables del control: Los titulares subordinados serán los responsables de velar por la aplicación correcta de las disposiciones que se establecen en el presente reglamento, así como de proponer los cambios que sean necesarios para garantizar el uso adecuado de la compensación aquí estipulada, en términos de eficacia y eficiencia para la gestión del Instituto Mixto de Ayuda Social, sin perjuicio del control que pueda ejercer la Auditoría Interna del IMAS.
+Dicha labor será asesorada, y apoyada por Desarrollo Humano del IMAS, la cual deberá controlar el debido cumplimiento de las funciones asignadas a los titulares subordinados.
+Artículo 8º—Del contrato: Las personas que perciban el reconocimiento del sobresueldo objeto del presente reglamento, deberán firmar un contrato con el IMAS, en donde se comprometa a lo siguiente:
+1) Reconocer que el pago del sobresueldo no genera derechos subjetivos.
+2) El pago cesará al momento en que el servidor deje de ejercer las funciones del cargo que dan origen al presente contrato, sea esto por las siguientes condiciones:
+a) Renuncia.
+b) Cese de funciones.
+c) Expiración del plazo del presente contrato.
+d) Cualquier otra variación de carácter legal que modifique las condiciones iniciales en que éste se haya suscrito.
+e) Incumplimiento de lo que expresamente se ha pactado entre las partes contratantes.
+f) Así como el incumplimiento de lo establecido en el “Reglamento para el Pago del Sobresueldo por Coordinaciones Temporales en el Instituto Mixto de Ayuda Social (IMAS)”.
+Dicho contrato será firmado por el Gerente General en representación del IMAS. Una vez vencido el contrato debe suscribirse uno nuevo o prorrogarse hasta por un año en el tanto el trámite se realice previo a su vencimiento, aunque las condiciones del funcionario sean las mismas.
+El contrato de coordinación temporal tiene vigencia a partir del día en que es aceptado y firmado por las partes.
+Artículo 9º—Del ejercicio simultáneo de dos cargos: Para los cargos señalados en este reglamento, solo aplicará el pago de un sobresueldo por servidor, aunque desempeñe dos o más cargos de estos simultáneamente.
+Artículo 10.—De la suspensión del pago: A las personas que posean el reconocimiento del sobresueldo objeto del presente reglamento, se les suspenderá el pago respectivo, cuando se de alguna de las siguientes situaciones:
+a) Cuando el servidor sea destituido del cargo por el Gerente General, debido al incumplimiento de las funciones establecidas en el Manual Cargos Institucional del IMAS o las indicadas en el Plan Operativo Institucional aprobado por el Consejo Directivo.
+b) Cuando la evaluación anual del funcionario, dé como resultado una calificación igual o inferior al 70%.
+c) Cuando por alguna falta se le suspenda sin goce de salario o despida previo debido proceso.
+Artículo 11.—De los alcances del sobresueldo: La concesión del pago aquí establecido no crea derechos adquiridos ni situaciones jurídicas consolidadas.
+En virtud de lo anterior, el sobresueldo quedará sin efecto cuando el funcionario acreedor del pago deje de cumplir con las funciones de coordinación que dieron origen al mismo, ya sea por renuncia, cese de funciones, expiración del plazo del contrato, conclusión del proyecto, por no haber operado la prórroga de éste o por modificaciones introducidas a la clase en que se clasifica su puesto y que afecten la naturaleza del contrato.
+Artículo 12.—Del trámite administrativo correspondiente: Desarrollo Humano confeccionará la respectiva acción de personal, debiendo entregar copia de ésta al servidor afectado para que se dé por enterado de este acto administrativo.
+Artículo 13.—De la vigencia: El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 14.—De la aprobación: El presente Reglamento fue aprobado por acuerdo firme de Consejo Directivo, Nº 391-07, artículo cuarto del acta Nº 082-07 de fecha 16 de octubre de 2007 y modificado por acuerdos del Consejo Directivo Nº 498-2010 de fecha 15 de noviembre del 2010 y 030-01-2013 del 28 de enero del 2013.
