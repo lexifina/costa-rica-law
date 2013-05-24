@@ -1,0 +1,1 @@
+Artículo 23.—En el caso de que el contribuyente no impugnare dentro de los plazos contemplados en el artículo anterior, quedará expedita la vía ejecutiva para que la Municipalidad de Buenos Aires, proceda de acuerdo al artículo 70 del Código Municipal.
