@@ -1,0 +1,5 @@
+Artículo 12: Densidad de población.
+a) Áreas de protección: deberá proyectarse la mayor densidad arbórea posible. El distanciamiento preferible deberá ser de 4x4m en sistema de tresbolillo o “pata de gallo”.
+b) Áreas de parques comunales: el distanciamiento inicial será de 4x4 m. Dependiendo del estado de desarrollo de los árboles y su necesidad de luz, se aplicará un raleo progresivo en el tiempo con distanciamientos en el orden de 6x6m, 8x8m, 10x10m, 12x12m y 14x14m.
+c) Líneas de acera: En las franjas verdes intermedias entre la calzada y la acera, deberán plantarse preferiblemente arbustos con distanciamiento mínimo de cuatro metros (4 m) entre arbustos.
+d) Sitos degradados: el distanciamiento inicial será de 4x4 m. Dependiendo del estado de desarrollo de los árboles y su necesidad de luz, se aplicará en la medida de la posibilidad técnica y operativa, el trasplante de los árboles a otros sitios necesitados de recuperación ambiental. Dependiendo del estado de desarrollo del cultivo en mezcla, la extracción se realizará en forma progresiva en el tiempo, dejando distanciamientos en el orden de 6x6m, 8x8m y 10x10m.

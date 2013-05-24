@@ -1,0 +1,11 @@
+Artículo 23: Eliminación de árboles en zonas públicas. Se prohíbe la corta o eliminación de los árboles que crezca en las zonas verdes, parques y áreas de protección de cuerpos de agua en los espacios públicos.
+Cualquier ciudadano que se considere afectado por la existencia de un árbol que crezca en una zona pública y desee que éste sea eliminado, deberá presentar la solicitud por escrito ante el ARA de la Municipalidad de Santa Ana, siendo ésta la encargada de iniciar el trámite establecido en el Reglamento N° R-SINAC-028-2010, denominado “Manual de Procedimientos para el Aprovechamiento Maderable en Terrenos de Uso Agropecuario y Sin Bosque y Situaciones Especiales en Costa Rica” (La Gaceta N° 163 del 23 de agosto del 2010).
+Sin embargo, la pronta respuesta a cualquier solicitud en que se vean involucrados los Recursos Naturales (o bien el patrimonio forestal del Estado) bajo cuido del Estado, dependerá del visto bueno o la negativa que el Ente Rector SINAC-MINAET, a través del ACOPAC emita con respecto al asunto. En este sentido, no son aplicables los plazos definidos en la administración pública, a razón de la inaplicabilidad del silencio positivo (Ley Forestal N° 7575, Art.4).
+Si el interesado ejecuta la tala, corta o aprovechamiento en forma ilegal (sin permiso expreso y período autorizado por el ACOPAC), se le abrirá un expediente administrativo por parte de la Unidad de Contraloría Ambiental (UCA-ARA) Municipal con la correspondiente denuncia formal ante cualquiera de las siguientes instancias del Estado costarricense según corresponda:
+• Área de Conservación Pacífico Central (ACOPAC-SINAC-MINAET)
+• Tribunal Ambiental Administrativo (TAA-MINAET)
+• Secretaría Técnica Nacional Ambiental (SETENA-MINAET)
+• Fiscalía de Pavas, Ministerio Público de Costa Rica
+Para determinar si es necesario eliminar un árbol, el ARA tomará en cuenta:
+• Factores técnicos que puedan ocasionar la caída accidental del mismo, como puede ser el estado fitosanitario deficiente (pudriciones severas), una inclinación pronunciada del fuste, la exposición de sus raíces, copa desbalanceada, entre otros.
+• La posible afectación que éste ocasione sobre el acueducto, alcantarillado, aceras, tendido eléctrico, alumbrado público, cable telefónico, visibilidad de las señales de tránsito u otras obras de infraestructura o mobiliario urbano.

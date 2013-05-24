@@ -1,0 +1,1 @@
+Artículo 5. Medidas de seguridad en la ejecución de proyectos. Los proyectos de recuperación ambiental, así como cualquier otra práctica silvicultural pública o privada, deben ser diseñadas y ejecutadas minimizando el riesgo de poner en peligro la salud o seguridad de los administrados y la infraestructura en general.

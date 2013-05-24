@@ -1,0 +1,1 @@
+Artículo 7. Del Programa de Control y Seguimiento. El Programa de Control y Seguimiento para la Recuperación Ambiental del Cantón, estará dirigido por el Área de Riesgo Ambiental (ARA) de la Municipalidad de Santa Ana, en procura de la permanecía de los árboles y arbustos en los espacios públicos y sitios degradados en el cantón.
