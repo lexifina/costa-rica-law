@@ -1,4 +1,6 @@
+(Derogado)
 MINISTERIO DE GOBERNACIÓN Y POLICÍA
+(Esta norma fue derogada por el artículo 6° del acuerdo N° 026-2013-DMG del 24 de mayo del 2013, "Nombra Comisión de baja de bienes por donación de la Administración Central y el Tribunal Administrativo Migratorio del Ministerio de Gobernación y Policía")
 N° 008-2012-MGP
 EL MINISTRO DE GOBERNACIÓN Y POLICÍA
 En uso de las facultades que le confiriere el artículo 28 inciso 2) aparte a) y 89 inciso 2) de la Ley General de la Administración Pública, los artículos 22, 23, 25, 41 y 42 del Decreto Ejecutivo 30720-H, “Reglamento para el Registro Control de Bienes de la Administración Central”, publicado en La Gaceta Nº 188 del 01 de octubre del 2002.

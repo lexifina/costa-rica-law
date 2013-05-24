@@ -14,3 +14,4 @@ Conforma Comisión de Donaciones del Ministerio de Gobernación y Policía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-14 | la propia norma |
+| 2 | 2013-05-24 | Acuerdo 26 (2013-05-24) |
