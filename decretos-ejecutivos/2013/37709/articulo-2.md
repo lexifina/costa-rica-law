@@ -1,0 +1,1 @@
+Artículo 2º—La protección la brindarán los oficiales de la Unidad que designe el Director de Unidades Especializadas de la Dirección General de la Fuerza Pública, y consistirá en la asignación de personal policial calificado con el equipo necesario para prevenir o evitar la comisión de hechos que pongan en riesgo la vida e integridad física de las personas protegidas.
