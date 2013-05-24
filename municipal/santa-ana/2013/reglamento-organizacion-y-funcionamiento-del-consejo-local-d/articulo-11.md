@@ -1,0 +1,1 @@
+Artículo 11.—Lineamientos. Las políticas y acciones del COLOSEVI-Santa Ana se regirán en todo momento por lo dispuesto en el Decreto Ejecutivo Nº 29390 MOPT-S, los lineamientos provenientes del Consejo de Seguridad Vial, la Dirección General de Ingeniería de Tránsito, la Ley de Administración Vial, la Ley de Tránsito y el Concejo Municipal del Cantón de Santa Ana.

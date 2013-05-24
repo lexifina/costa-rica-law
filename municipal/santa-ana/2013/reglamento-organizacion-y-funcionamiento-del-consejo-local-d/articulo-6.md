@@ -1,0 +1,1 @@
+Artículo 6º—Juramentación. Será requisito para la existencia legal del COLOSEVI-Santa Ana, así como para el inicio del ejercicio colegiado de sus competencias, que todos los miembros hayan sido nombrados e investidos previamente, mediante el solemne juramento realizado en una sesión del Concejo Municipal.
