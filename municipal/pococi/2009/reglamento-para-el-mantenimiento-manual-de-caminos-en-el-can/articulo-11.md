@@ -1,0 +1,3 @@
+CAPÍTULO CUARTO
+De la fijación de costos y tarifas
+Artículo 11.—Fijación de costos. Anualmente y mediante un criterio técnico, la Oficina de Unidad Técnica de Gestión Vial de Pococí, fijará los costos para cada una de las actividades de mantenimiento manual, de conformidad con lo que establece el artículo 74 del código Municipal y en lo que establece la Ley General de Caminos, Este Informe Técnico será elevado a conocimiento del Concejo Municipal a más tardar en la primera quincena del mes de Enero del cada año. El Consejo resolverá acerca de estos costos aprobándolos o improbándolos. Una vez aprobados regirán para ser aplicados partir de su firmeza.

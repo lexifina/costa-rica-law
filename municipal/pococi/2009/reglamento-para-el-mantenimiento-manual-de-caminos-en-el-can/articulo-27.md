@@ -1,0 +1,1 @@
+Artículo 27.—Funciones del coordinador de la Unidad Técnica de Gestión Vial. La persona coordinadora de la Unidad Técnica de la Municipalidad, en conjunto con la o el promotor (a) social será responsable de dar seguimiento a las denuncias planteadas por los vecinos en actividades de mantenimiento manual, para la realización adecuada de estas tareas

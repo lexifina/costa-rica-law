@@ -1,0 +1,1 @@
+Artículo 28.—Pasos de alcantarilla. En los pasos de fincas y casas, ya sean entradas o salidas, los dueños de propiedades deberán instalar un paso de alcantarilla no inferior a los (45cm) de diámetro, siempre considerando los criterios técnicos que en primera instancia deberán ser emitidos por la Unidad Técnica de Gestión Vial Municipal.

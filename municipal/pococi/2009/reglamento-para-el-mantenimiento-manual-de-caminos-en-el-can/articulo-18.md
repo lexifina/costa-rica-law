@@ -1,0 +1,1 @@
+Artículo 18.—Notificación de cobro. Habiendo ejecutado los trabajos, por parte del comité de caminos, la municipalidad en coordinación con la fuerza pública procederá con la notificación de cobro al respectivo propietario.
