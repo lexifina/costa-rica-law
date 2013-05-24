@@ -1,0 +1,1 @@
+Artículo 17.—Se entiende por tasa para los efectos de ese Reglamento, aquel tributo cuya obligación tiene como derecho generador, la prestación efectiva o potencial de un servicio público que brinda la Municipalidad, individualizando en el contribuyente, Cuyo producto no debe tener un destino ajeno al servicio, razón de ser de la obligación.

@@ -1,0 +1,1 @@
+Artículo 6°—Para los efectos de este Reglamento se entenderá por servicio de mantenimiento de parques, jardines o zonas verdes públicos, el establecimiento, conservación, ampliación, mantenimiento y mejoramiento de las áreas verdes, espacios abiertos y equipados, destinados al esparcimiento, recreación y convivio familiar, con el fin de mejorar el ambiente y la ecología.
