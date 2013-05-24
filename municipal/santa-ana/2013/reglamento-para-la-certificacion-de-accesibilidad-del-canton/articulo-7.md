@@ -1,0 +1,1 @@
+Artículo 7. Recursos contra lo resuelto por la comisión de accesibilidad. Contra lo resuelto por la Comisión Municipal de Accesibilidad cabrán los recursos que establece el Código Municipal para los acuerdos del Concejo Municipal.
