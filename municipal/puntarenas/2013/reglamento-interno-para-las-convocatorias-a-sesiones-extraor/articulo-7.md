@@ -1,0 +1,2 @@
+DE LOS MIEMBROS DEL CONCEJO MUNICIPAL
+Artículo 7º—Los funcionarios que por disposiciones del Código Municipal, les corresponda comunicar la convocatoria a sesión extraordinaria, están obligados a actuar en forma diligente y oportuna, so pena de hacerse acreedores de las responsabilidades disciplinarias o civiles que establece el Código Municipal o en su defecto, La Ley General de la Administración Pública.

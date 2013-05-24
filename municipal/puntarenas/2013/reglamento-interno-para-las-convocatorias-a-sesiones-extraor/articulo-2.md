@@ -1,0 +1,1 @@
+Artículo 2º—Se exceptúan de la anterior disposición, aquellas sesiones que se consideren con carácter de urgencia para el cumplimiento de los fines que señala el Código Municipal al Concejo , las cuales se realizarán en la forma prevista en dicho cuerpo normativo.

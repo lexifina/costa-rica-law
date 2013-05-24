@@ -1,0 +1,2 @@
+Artículo 4º—Todos los miembros del Concejo Municipal, presentes en una sesión, se tendrán por convocados a sesión extraordinaria, de oficio cuando así se establecido por las dos terceras partes de sus miembros o cuando asó lo disponga el señor Alcalde, dejando constancia de dicha convocatoria, en el acta correspondiente.
+Los miembros que en esa oportunidad no se encuentren presentes, serán convocados por el órgano que corresponda, dependiendo del origen de la convocatoria, utilizando los medios establecidos.

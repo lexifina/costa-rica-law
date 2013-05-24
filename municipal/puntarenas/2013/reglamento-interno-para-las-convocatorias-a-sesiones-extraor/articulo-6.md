@@ -1,0 +1,1 @@
+Artículo 6º—El Presidente o Vicepresidente municipal que preside la sesión, o quien ocupe su cargo conforme lo preceptuado por el código municipal, en el desarrollo de una sesión municipal, quedará obligado a convocar a sesión extraordinaria a los miembros presentes, siempre que se lo soliciten por escrito, tres regidores propietarios o por parte del señor Alcalde Municipal.
