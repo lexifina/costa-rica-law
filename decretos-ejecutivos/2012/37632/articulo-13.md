@@ -1,0 +1,4 @@
+Artículo 13.—Para la importación de los productos alérgenos y materias primas se deberá presentar ante el Ministerio de Salud (en la Ventanilla Única de la Promotora de Comercio Exterior (PROCOMER), adicionalmente al formulario de desalmacenaje debidamente completado, lo siguiente:
+1. Certificado emitido por la autoridad sanitaria del país fabricante del producto que indique el cumplimiento de las Buenas Prácticas de Manufactura.
+2. Certificado original firmado por el responsable del laboratorio fabricante de que el producto está libre de virus VIH-SIDA, hepatitis B y C. Este requisito aplica únicamente para los productos alérgenos derivados de sangre humana o que contengan derivados de la misma.
+3. Evaluación del riesgo de transmisión de virus y encefalopatías espongiforme transmisibles. Este requisito aplica únicamente para los productos alérgenos que contengan tejidos derivados de bovinos, ya sea en la producción, como materia prima o como excipiente.

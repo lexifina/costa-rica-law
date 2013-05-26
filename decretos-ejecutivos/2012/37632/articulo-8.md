@@ -1,0 +1,1 @@
+Artículo 8°—Será responsabilidad del regente farmacéutico de la droguería que importe y maneje productos alérgenos a nivel nacional, verificar que la solicitud sea suscrita por un médico que se encuentre en el listado de médicos alergólogos autorizados y asegurar que el medicamento importado de esta manera, sea despachado única y exclusivamente a dicho profesional.

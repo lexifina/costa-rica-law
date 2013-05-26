@@ -1,0 +1,1 @@
+Artículo 3°—Para efectos del presente decreto se considera producto alérgeno: Todo producto destinado a detectar o provocar una modificación específica y adquirida de la respuesta inmunológica a un agente alergizante. Contiene sustancias alergénicas o sus derivados empleadas para el diagnóstico in vivo o el tratamiento de enfermedades alérgicas.

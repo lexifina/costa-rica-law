@@ -1,0 +1,1 @@
+Artículo 10.—Las materias primas que contienen las sustancias activas presentes en los productos alérgenos que podrán importarse, son las incluidas en el Listado de Materias Primas Alérgenas publicado para tal efecto en la página Web del Ministerio de Salud. Este listado podrá ser actualizado a solicitud de la Asociación Costarricense de Alergología e Inmunología.

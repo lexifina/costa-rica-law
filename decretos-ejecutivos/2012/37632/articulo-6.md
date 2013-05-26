@@ -1,0 +1,1 @@
+Artículo 6°—El listado de médicos alergólogos al que se refiere el artículo anterior, estará disponible en la página Web del Ministerio de Salud y será actualizado cada seis meses en coordinación con la Asociación Costarricense de Alergología e Inmunología.

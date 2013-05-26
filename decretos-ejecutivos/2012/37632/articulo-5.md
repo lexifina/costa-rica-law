@@ -1,0 +1,1 @@
+Artículo 5.—Se faculta a los médicos incorporados al Colegio de Médicos y Cirujanos de Costa Rica y a la Asociación Costarricense de Alergología e Inmunología, que se encuentren en el listado de médicos alergólogos autorizados por el Ministerio de Salud, para que gestionen la importación de los productos alérgenos requeridos para la atención de los pacientes a su cargo.
