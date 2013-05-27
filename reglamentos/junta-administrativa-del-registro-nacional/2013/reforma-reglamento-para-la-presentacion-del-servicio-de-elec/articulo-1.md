@@ -1,0 +1,12 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+REFORMA AL REGLAMENTO PARA LA PRESTACIÓN DEL SERVICIO
+DE ELECCIÓN DE MATRÍCULA REGISTRO NACIONAL.
+Considerando:
+I.—Que conforme el artículo tercero de la Ley de Creación del Registro Nacional № 5695, el Registro Nacional está dirigido por una Junta Administrativa que tendrá dentro de susfunciones generales, el preparar los proyectos de ley y dictar los Reglamentos internos necesarios para establecer las medidas de organización y marcha de sus dependencias en procura de su mejor desempeño.
+II.—Que de conformidad con lo dispuesto en el artículo 2º del Reglamento para la prestación del servicio de elección de matrícula Registro Nacional, se tiene por objeto la creación del servicio de elección de matrícula, a fin de que con antelación a la inscripción del automotor o previo al cambio de matrícula el usuario tenga la posibilidad de personalizar voluntariamente por motivos de conveniencia, la numeración de la matrícula de su interés.
+III.—Que el artículo 7º del Reglamento supra indicado, establece que puede tramitarse por una única vez el cambio de matrícula de los vehículos que poseen identificación numérica.
+IV.—Que en sesión ordinaria Nº 05-2013 celebrada el día 14 de febrero del 2013, la Junta Administrativa del Registro Nacional, en el ejercicio de sus funciones otorgadas por el artículo3º inciso e) de la Ley de Creación del Registro Nacional, Nº 5695 de 28 de mayo de 1975 aprueba por unanimidad la “Reforma al Reglamento para la prestación del servicio de elección de matrícula Registro Nacional”.
+V.—Que mediante sesión ordinaria Nº 16-2013 celebrada el día 09 de mayo del 2013, la Junta Administrativa del Registro Nacional, tomó el acuerdo firme Nº J183 mediante el cual se aprueba por unanimidad adicionar el Reglamento para la prestación del servicio de elección de matrícula Registro Nacional. Por tanto,
+Emite:
+Artículo 1.- Adicionar el Reglamento para la Prestación del Servicio de Elección de Matrícula Registro Nacional, para que se incluya el Transitorio I aprobado mediante Acuerdo firme J183- 2013 adoptado por la Junta Administrativa del Registro Nacional de la sesión Ordinaria № 16- 2013, celebrada el día 09 de mayo del 2013, el cual se leerá de la siguiente manera:
+“Transitorio I.- El Proceso de elección de matrícula alfa numérica para aquellos vehículos cuyo número de matrícula sea numérica, se iniciará en el momento que el Registro Nacional cuente con los estudios técnico-jurídicos y las políticas administrativas que determine la Dirección General del Registro Nacional.”
