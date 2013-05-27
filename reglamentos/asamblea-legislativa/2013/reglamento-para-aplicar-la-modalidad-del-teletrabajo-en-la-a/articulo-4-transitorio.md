@@ -1,0 +1,1 @@
+TRANSITORIO IV.- Dentro del mes después de la entrada en vigencia de este reglamento, el Departamento de Recursos Humanos debe actualizar el instructivo, el procedimiento y el formulario de evaluación del desempeño para aplicarlo a los funcionarios que se encuentran laborando en esta modalidad.

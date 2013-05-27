@@ -1,0 +1,1 @@
+ARTÍCULO 18.- Visto bueno de la jefatura. La funcionaria o el funcionario que desee laborar en esta modalidad de trabajo debe tener la aprobación del director o la directora del departamento, quien coordinará lo correspondiente con las jefaturas internas, y las instancias relacionadas.

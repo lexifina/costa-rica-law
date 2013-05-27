@@ -1,0 +1,3 @@
+ARTÍCULO 12.- Funciones del Departamento de Recursos Humanos.
+Corresponde al Departamento de Recursos Humanos elaborar los perfiles de las funciones o las actividades que pueden realizarse en la modalidad de teletrabajo. También, le corresponde definir el perfil general relacionado con las competencias y las habilidades que deben ser valoradas, por parte del director o la directora del departamento, en el funcionario y la funcionaria que desee optar por esta modalidad de prestación de servicios.
+Asimismo, deberá tener en sus archivos la información sobre los funcionarios y las funcionarias que se acojan, parcial o totalmente, a la modalidad del teletrabajo.

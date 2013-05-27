@@ -1,0 +1,1 @@
+ARTÍCULO 10.- Funciones de los directores de División Legislativa y Administrativa. Corresponde a las y los directores de división velar por el buen resultado del programa de teletrabajo en los departamentos que estén incluidos en el ámbito de la división a su cargo.
