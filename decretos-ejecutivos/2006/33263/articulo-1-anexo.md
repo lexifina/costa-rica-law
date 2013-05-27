@@ -835,7 +835,8 @@ TELEVISIÓN, Y LAS PARTES Y ACCESIORIOS DE ESTOS APARATOS
 8507.90 - Un cambio a la subpartida 8507.90 desde cualquier otra partida.
 8508.11- 8508.60 - Un cambio a la subpartida 8508.11 a 8508.60 desde cualquier otra subpartida.
 8508.70 - Un cambio a la subpartida 8508.70 desde cualquier otra partida.
-8509.10 - 8509.80 - Un cambio a la subpartida 8509.10 a 8509.80 desde cualquier otra subpartida.
+8509.40 - 8509.80 - Un cambio a la subpartida 8509.40 a 8509.80 desde cualquier otra subpartida.
+(Así reformada la subpartida anterior mediante Resolución N° 302-2013 (COMIECO-EX) de fecha 15 de mayo de 2013: Modificaciones a los rangos de las Reglas de Origen Específicas, contenidas en el Anexo del Reglamento Centroamericano sobre el Origen de las Mercancías, aprobada mediante decreto ejecutivo N° 37762 del 27 de mayo del 2013)
 8509.90 - Un cambio a la subpartida 8509.90 desde cualquier otra partida.
 8510.10 - 8510.30 - Un cambio a la subpartida 8510.10 a 8510.30 desde cualquier otra subpartida.
 8510.90 - Un cambio a la subpartida 8510.90 desde cualquier otra partida.
@@ -998,7 +999,8 @@ PREFABRICADAS
 9401.10 - 9401.80 - Un cambio a la subpartida 9401.10 a 9401.80 desde cualquier otra subpartida.
 9401.90 - Un cambio a la subpartida 9401.90 desde cualquier otra partida.
 9402.10 - 9402.90 - Un cambio a la subpartida 9402.10 a 9402.90 desde cualquier otra subpartida.
-9403.10 - 9403.80 - Un cambio a la subpartida 9403.10 a 9403.80 desde cualquier otra subpartida.
+9403.10 - 9403.89 - Un cambio a la subpartida 9403.10 a 9403.89 desde cualquier otra subpartida.
+(Así reformada la subpartida anterior mediante Resolución N° 302-2013 (COMIECO-EX) de fecha 15 de mayo de 2013: Modificaciones a los rangos de las Reglas de Origen Específicas, contenidas en el Anexo del Reglamento Centroamericano sobre el Origen de las Mercancías, aprobada mediante decreto ejecutivo N° 37762 del 27 de mayo del 2013)
 9403.90 - Un cambio a la subpartida 9403.90 desde cualquier otra partida.
 9404.10 - 9404.90 - Un cambio a la subpartida 9404.10 a 9404.90 desde cualquier otra subpartida.
 9405.10 - 9405.60 - Un cambio a la subpartida 9405.10 a 9405.60 desde cualquier otra subpartida.
