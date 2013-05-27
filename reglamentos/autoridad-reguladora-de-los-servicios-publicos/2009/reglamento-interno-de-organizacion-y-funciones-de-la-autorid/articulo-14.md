@@ -1,2 +1,0 @@
-De la auditoría interna
-Artículo 14.—Naturaleza de la Auditoría Interna. Conforme lo establece la Ley 8292, Ley de Control Interno, la Auditoría Interna es la actividad independiente, objetiva y asesora de la Junta Directiva, creada para validar y mejorar las operaciones de la Autoridad Reguladora, contribuyendo a que se alcancen los objetivos institucionales, mediante la evaluación de la actividad administrativa y regulatoria.

@@ -1,5 +1,0 @@
-De la Gerencia General
-Artículo 48.—Naturaleza y estructura. La Gerencia General dependerá directamente del Regulador General y proporcionará apoyo en gestiones administrativas y regulatorias a todos los órganos de la Autoridad Reguladora.La Gerencia General es el superior jerárquico de las Direcciones Generales de Participación del Usuario, de Asesoría Jurídica y Regulatoria y del Centro de Desarrollo de la Regulación así como de las unidades responsables de la administración de la Autoridad Reguladora definidas en este reglamento.
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 26 al 34 actual)
-(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 34 al 39 actual)
-(Así corrida su numeración en sesión ordinaria N° 054-2011 del 31 de agosto del 2011, que lo traspasó del antiguo artículo 39 al 48 actual)

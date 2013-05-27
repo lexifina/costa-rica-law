@@ -1,3 +1,0 @@
-Artículo 32.—De la Dirección General del Fondo Nacional de Telecomunicaciones. Es responsable de administrar y gestionar proyectos específicos en telecomunicaciones para procurar el acceso universal. Le corresponde evaluar el impacto de esos proyectos y coordinar con las organizaciones que desarrollan proyectos en áreas determinadas como prioritarias. Depende directamente del Consejo. Está conformada además por una unidad administrativa en materia de Administración y Control del Fondo.
-(Así adicionado en sesión ordinaria N° 042-2010 del 13 de octubre de 2010)
-(Así reformado mediante sesión ordianria N° 054-2011 del 31 de agosto del 2011)

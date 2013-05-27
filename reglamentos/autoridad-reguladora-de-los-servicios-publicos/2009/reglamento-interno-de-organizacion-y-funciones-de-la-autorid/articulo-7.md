@@ -1,2 +1,0 @@
-Del despacho del regulador
-Artículo 7º—Naturaleza del Despacho del Regulador. El Despacho del Regulador estará compuesto por el Regulador General y el Regulador Adjunto. El Regulador General es el órgano superior administrativo de la Autoridad Reguladora, con la excepción de la Superintendencia de Telecomunicaciones, conforme al artículo 57 incisos a.3), a.4) y a.5) de la Ley 7593, así como el Presidente de la Junta Directiva, definido así en el artículo 57 incisos a.1) y a.5) de la Ley 7593.

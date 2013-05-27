@@ -1,2 +1,0 @@
-Artículo 19.—Del Consejo de la SUTEL. La SUTEL está a cargo de un Consejo integrado por tres miembros propietarios. De entre sus miembros le corresponde al presidente la representación judicial y extrajudicial de la superintendencia; para lo cual tendrá facultades de apoderado generalísimo sin límite de suma; así como ejercer las facultades de organización y coordinación del funcionamiento del órgano que le asigne el Consejo.
-(Así reformado mediante sesión ordinaria N° 054-2011 del 31 de agosto del 2011)
