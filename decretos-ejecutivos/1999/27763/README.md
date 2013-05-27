@@ -42,3 +42,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 27 | 2013-02-20 | Decreto Ejecutivo 37661 (2013-02-20) |
 | 28 | 2013-05-27 | Resolución 21 (2013-05-27) |
 | 29 | 2013-05-27 | Resolución 22 (2013-05-27) |
+| 30 | 2013-05-27 | Resolución 23 (2013-05-27) |
