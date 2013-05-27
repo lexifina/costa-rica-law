@@ -14,3 +14,4 @@ Publica Resolución N° 280-2012 (COMIECO-LXII) de fecha 14 de mayo de 2012 y su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-14 | la propia norma |
+| 2 | 2013-05-27 | Decreto Ejecutivo 37850 (2013-05-27) |
