@@ -1,0 +1,16 @@
+SERVICIO NACIONAL DE SALUD ANIMAL
+Resolución N° SENASA-DG-R0023-2013.—Dirección General del Servicio Nacional de Salud Animal.—Barreal de Ulloa, Heredia, a las catorce horas del veintisiete de mayo del dos mil trece.
+Resultando:
+1º—Que mediante Ley N° 8495 del 6 de abril del 2006, se creó el Servicio Nacional de Salud Animal, (SENASA), como un órgano de desconcentración y personería jurídica instrumental del Ministerio de Agricultura y Ganadería y le corresponde, entre otras competencias “…Administrar, planificar, dirigir y tomar las medidas veterinarias o sanitarias pertinentes sobre el control de la seguridad e inocuidad de los productos y subproductos de origen animal, en las etapas de captura, producción, industrialización y comercialización, considerando aditivos alimentarios, residuos de medicamentos veterinarios, plaguicidas y otros contaminantes químicos, biológicos o de origen biotecnológico...”
+2º—Que a través del Servicio Nacional de Salud Animal (SENASA) se brindan una serie de servicios a los productores y establecimientos agropecuarios y con cuya venta se generan los recursos necesarios para la sostenibilidad del Servicio, permitiéndose con ello cubrir gastos relativos a salarios y cargas sociales, la reposición y compra de equipos, materiales, reactivos y otros insumos necesarios para la buena marcha y la atención oportuna de los requerimientos que se le formulan al Servicio.
+3º—Que mediante Decreto Ejecutivo No. 37661-MAG del 20 de febrero del 2013 se modificó el artículo 3 del Decreto Nº 27763- MAG del 10 de marzo de 1999, publicado en el Alcance Nº 26 de La Gaceta Nº 68 del 9 de abril de 1999 y sus reformas, y que establece las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por medio del Servicio Nacional de Salud Animal (SENASA).
+4º—Que el Código G.19 del referido artículo 3 establece la suma de ¢45.000,00 como tarifa para la venta de redes para captura (por unidad), las cuales son insumo necesario para el desarrollo de la acción sanitaria de captura de murciélagos.
+5º—Que el referido código tarifario no establece que una unidad de redes está compuesta por cuatro redes.
+Considerando:
+I.—Sobre hechos ciertos. Que al efecto de dictar la presente resolución esta Autoridad Sanitaria tiene por ciertos los hechos a que se refieren los resultandos primero, segundo, tercero, cuarto y quinto, por constar así en el expediente administrativo levantado al efecto.
+II.—Sobre el fondo legal. A) Que al no aclarar el referido Código G.19 que una unidad de redes está compuesta por cuatro redes, podría llevar al operador jurídico a considerar que debe cobrarse la suma de ¢45.000,00 por cada una de ellas, lo cual resultaría equivocado y por lo que es necesario ordenar las correcciones administrativas que correspondan. Por tanto,
+EL DIRECTOR GENERAL A.Í.
+DEL SERVICIO NACIONAL DE SALUD ANIMAL
+DEL MINISTERIO DE AGRICULTURA Y GANADERIA
+RESUELVE:
+I.—Ordenar que a los efectos de aplicar en el Sistema Automatizado de Control de Ingresos (SACI) la tarifa G.19 establecida en el artículo 3 del Decreto Nº 27763-MAG del 10 de marzo de 1999 y su reforma mediante Decreto Ejecutivo N° 37661- MAG del 20 de febrero del 2013, se debe tener para todo efecto que la referida unidad está compuesta por cuatro redes.
