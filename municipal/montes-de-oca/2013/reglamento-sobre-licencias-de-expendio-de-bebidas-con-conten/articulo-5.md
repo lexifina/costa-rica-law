@@ -1,0 +1,2 @@
+Artículo 5º—Firmas y certificaciones digitales. Documentos Electrónicos. Cuando los medios tecnológicos a disposición de la Municipalidad lo permitan, la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, número 8454 de 30 de agosto de 2005, se aplicará para tramitación de Licencias, pago de tributos y otros procedimientos relacionados con la aplicación de la Ley 9047.
+Para la aplicación de este artículo la Municipalidad comunicará a los interesados previamente en su página oficial de internet o por otros medios sobre el uso de este tipo de tecnología.

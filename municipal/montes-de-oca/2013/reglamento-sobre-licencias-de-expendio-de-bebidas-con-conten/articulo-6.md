@@ -1,0 +1,4 @@
+CAPÍTULO II
+Tipos y ubicación de las licencias
+Artículo 6º—Establecimientos aptos para cada tipo de Licencia: Las Licencias se otorgarán únicamente para los establecimientos autorizados para realizar las actividades comerciales acordes para cada tipo de Licencia, según la clasificación del artículo 4 de la Ley. En consecuencia, la Licencia se otorgará para establecimientos que cuenten con un permiso de funcionamiento y Licencia Comercial Municipal, aptos para realizar la actividad principal relacionada con cada una de las clasificaciones mencionadas, otorgados conforme al Plan Regulador, Uso de Suelo y demás regulaciones de ordenamiento territorial que por su naturaleza sean aplicables.
+Adicionalmente, el solicitante deberá contar con los permisos, declaratorias y autorizaciones especiales que se requieran en razón del tipo de Licencia que solicite.

@@ -1,0 +1,8 @@
+Artículo 21.—Requisitos. Para el otorgamiento de una Licencia temporal para la venta de bebidas con contenido alcohólico, deberán los interesados cumplir con los siguientes requisitos:
+a) Solicitud formal dirigida al Concejo Municipal, donde se haga constar las calidades del interesado, el tipo de actividad, la ubicación geográfica del lugar donde se explotará la Licencia temporal, el número de días que se explotará y un medio para atender notificaciones.
+b) Las personas físicas deberán ser mayores de edad, con plena capacidad cognoscitiva y volitiva. Las personas jurídicas mediante certificación registral o notarial deberán acreditar su existencia, vigencia y representación legal, emitida en los últimos dos meses.
+Deberá el interesado presentar una declaración jurada o certificación médica que goza de plena capacidad cognoscitiva y volitiva. En caso de las personas jurídicas deberá certificarse la capacidad cognoscitiva y volitiva del representante legal.
+c) Demostrar ser el propietario, poseedor, usufructuario o titular de un contrato de arrendamiento, o de un permiso otorgado para la actividad que va a explotar.
+d) Acreditar, mediante Permiso Sanitario de Funcionamiento vigente, que el local o puesto donde se expenderán las bebidas con contenido alcohólico cumple las condiciones requeridas por el Ministerio de Salud.
+e) Estar al día el solicitante y el dueño del local comercial en todas las obligaciones municipales, tanto en las materiales como formales.
+f) El solicitante deberá estar al día en la Póliza de Riesgos Laborales, Póliza de Responsabilidad Civil y las obligaciones con la Caja Costarricense de Seguro Social (CCSS) y Asignaciones Familiares.

@@ -1,0 +1,2 @@
+Artículo 28.—Sanciones relativas al consumo en vía pública y sitios públicos. Será sancionada con una multa de medio salario base, la persona que sea sorprendida consumiendo bebidas con contenido alcohólico en vía pública y en los sitios públicos determinados por la Municipalidad.
+En estos casos, la Fuerza Pública, la Policía Municipal cuando se cuente con ella y los Inspectores Municipales deberán decomisar el producto y levantar el parte correspondiente.

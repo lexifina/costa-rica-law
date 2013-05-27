@@ -1,0 +1,2 @@
+Artículo 12.—Otorgamiento de Licencias. Las licencias serán aprobadas por el Alcalde Municipal de turno previa Resolución Administrativa y cumplimiento de los requisitos establecidos señalados en la Ley y este Reglamento.
+En lo referente a las distancias establecidas se consideraran como parámetro de medición de puerta a puerta entre el establecimiento que expenda licor y aquel punto de referencia. Se entenderá de puerta a puerta, la entrada o sitio principal de ingreso al público del predio donde se solicita la Licencia.

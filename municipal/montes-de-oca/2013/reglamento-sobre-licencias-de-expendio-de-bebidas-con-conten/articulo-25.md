@@ -1,0 +1,1 @@
+Artículo 25.—Sanción relativa a personas jurídicas. Quien omita presentar a la Municipalidad la actualización de su capital accionario, cuando se trate de personas jurídicas adjudicatarias de Licencias, será sancionado con una multa diez salarios base.

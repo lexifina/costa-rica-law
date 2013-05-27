@@ -1,0 +1,2 @@
+Artículo 16.—Vigencia. La Licencia tendrá una vigencia de cinco años renovables por períodos iguales de forma automática siempre y cuando la solicitud de prórroga se presente antes de cada vencimiento. Al momento de la prórroga el patentado deberá cumplir con todos los requisitos legales establecidos y encontrarse al día en el pago de todas sus obligaciones con la Municipalidad.
+A los patentados cuyas Licencias fueron adquiridas mediante la Ley N° 10, comenzará a correr el plazo de los primeros cinco años a partir de la publicación de la Ley (8 de agosto del 2012).

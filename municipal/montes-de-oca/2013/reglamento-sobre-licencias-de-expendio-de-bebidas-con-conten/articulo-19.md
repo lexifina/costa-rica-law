@@ -1,0 +1,1 @@
+Artículo 19.—Pago de derechos por Licencia temporal: El pago de derechos por Licencias temporales será de un salario base por cada puesto autorizado y se realizará de previo a la realización de la actividad autorizada.

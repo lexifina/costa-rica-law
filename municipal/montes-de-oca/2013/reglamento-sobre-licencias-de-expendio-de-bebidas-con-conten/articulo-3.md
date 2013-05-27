@@ -1,0 +1,14 @@
+Artículo 3.—Condiciones en que se otorgan las Licencias. Las Licencias constituyen una autorización para comercializar al detalle bebidas con contenido alcohólico en el cantón, y se otorgarán únicamente para el ejercicio de la actividad que ellas mismas determinan y en las condiciones que establece la resolución administrativa que se dicte con ese fin. El derecho que se otorga por medio de la Licencia está directamente ligado al establecimiento comercial en el cual se utilizará, y no constituye un activo independiente a dicho establecimiento. En consecuencia, las Licencias no son susceptibles de embargo, de apropiación mediante remate o adjudicación vía sucesión, traspaso, arrendamiento, venta, canje, transferencia o cualquier otra forma de enajenación.
+Previo al otorgamiento de una Licencia para el expendio de Bebidas con Contenido Alcohólico deberá el interesado contar con una Licencia Comercial debidamente autorizada por esta Municipalidad. Caso contrario la solicitud planteada no será tramitada por la Municipalidad.
+La Licencia se otorgará atendiendo los siguientes criterios:
+a) Reglamento de Zonificación del Plan Regulador
+b) Uso de suelo aplicable
+c) Proporcionalidad
+Licencia clase A: Sin restricción. Apegadas a las prohibiciones establecidas en el artículo 9 de la Ley y concordantes
+Licencia clase B: La cantidad total de licencias clase B otorgadas en el cantón no podrá exceder la cantidad de una por cada trescientos habitantes.
+Licencia clase C: Sin restricción. Apegada a las prohibiciones establecidas en el artículo 9 de la Ley y concordantes.
+Licencia clase D: Sin restricción. Apegadas a las prohibiciones establecidas en el artículo 9 de la Ley y concordantes.
+Licencia clase E: Sin restricción. Apegadas a las aprobaciones que establece el artículo 4 de la Ley.
+En la determinación del total de habitantes del cantón, se acudirá al estudio técnico o fuente objetiva verificable que tenga disponible la Municipalidad. La condición de habitante se circunscribirá a las personas físicas del territorio cantonal de Montes de Oca según la definición establecida por el artículo 2 del Reglamento del Defensor de los Habitantes, Decreto Reglamentario 22266 de 15 de junio de 1993. Periódicamente, conforme se constate incrementos o disminuciones en el parámetro de habitantes cantonales, podrá ajustarse la cantidad de licencias según su clase.
+La cantidad de Licencias a otorgar se determinará para cada uno de los distritos del cantón de acuerdo a su población y con base en lo indicado en el estudio técnico o fuente objetiva verificable que tenga disponible la Municipalidad.
+Las Licencias otorgadas mediante la Ley N° 10 solo podrán ser explotadas en el distrito del cantón en que fueron otorgadas. No podrán explotarse Licencias correspondientes a un distrito en otro.

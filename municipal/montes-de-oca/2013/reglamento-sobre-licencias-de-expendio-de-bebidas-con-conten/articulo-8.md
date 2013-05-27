@@ -1,0 +1,1 @@
+Artículo 8º—Prohibición a la Licencias tipo C. Aquellos locales comerciales que cuenten con Licencia para el Expendio de Bebidas con Contenidos Alcohólico correspondientes a la categoría C, no podrán realizar dentro del establecimiento comercial espectáculos públicos.
