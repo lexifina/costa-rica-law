@@ -24,12 +24,11 @@ Con fundamento en lo dispuesto en los artículos 1, 3, 5, 7, 15, 26, 30, 36, 37,
 RESUELVE:
 1. Aprobar el Reglamento Técnico Centroamericano RTCA 67.04.54:10 ALIMENTOS Y BEBIDAS PROCESADAS. ADITIVOS ALIMENTARIOS, en la forma que aparece como Anexo de esta Resolución y forma parte integrante de la misma.
 2. La presente Resolución entrará en vigencia el 14 de noviembre de 2012 y será publicada por los Estados Parte.
-3. No obstante lo anterior, las empresas contarán con un plazo de hasta seis (6) meses, posterior a la entrada en vigencia de este Reglamento para agotar el inventario de las etiquetas con que cuenten.
+3. No obstante lo anterior, las empresas contarán con un plazo de hasta seis (6) meses (*), posterior a la entrada en vigencia de este Reglamento para agotar el inventario de las etiquetas con que cuenten.
+(*)(Mediante artículo 1° de la resolución N° 305-2013 (COMIECO-LXIV) de fecha 15 de mayo 2013, aprobada mediante decreto ejecutivo N° 37850 del 27 de mayo del 2013, se resolvió ampliar el plazo a que se refiere el numeral 3 de la parte resolutiva de la Resolución No. 277-2011 (COMIECO-LXI), hasta el 31 de diciembre del 2013, para que las empresas agoten el inventario de etiquetas)
 4. En un plazo de un (1) año, a partir de la presente Resolución, se deberán actualizar e incorporar las referencias de los aditivos establecidos en el Reglamento.
 Tegucigalpa, Honduras, 14 de mayo de 2012
-[imagen]
 infrascrito Seretario General de la Secretaria de Integración Econòmica Centroamericana (SIECA) CERTIFICA: Que las dos (2) fotocopias que anteceden a la presente hoja de papel bond, impresas únicamente en su anverso asì como las cuatrocientas diez (410) del anexo adjunto, impresas en su anverso y reverso, rubricadas y selladas con el sello de la SIECA, reproducen fielmente la Resoluciòn Nº 283-2012 (COMIECO-LXII) adoptada por el Consejo de Ministros de Integración Económica, el catore de mayo de dos mil doce, de cuyos originales se reprodukeron. Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el dieciocho de mayo de dos mil doce-----------------------------------------------------------------------------------------------
-[imagen]
 ANEXO DE LA RESOLUCIÓN No. 283-2012 (COMIECO-LXII)
 REGLAMENTO TÉCNICO RTCA 67.04.54:10
 CENTROAMERICANO
@@ -11854,13 +11853,13 @@ b) Métodos de análisis.
 c) Estudios que demuestren su función tecnológica o estatus de aprobado por organismos reconocidos internacionalmente (como FDA, CE u otros) donde se detalle la función tecnológica del aditivo solicitado.
 d) Estudios toxicológicos aprobados y/o realizados por organismos reconocidos internacionalmente (como el FDA, CE u otros) y JECFA, efectuados al aditivo que demuestren la inocuidad del mismo.
 6.2.2 El Coordinador de la CCAA distribuirá por vía electrónica la información a los demás representantes de los otros Estados parte.
-6.2.1 La aprobación de las solicitudes de inclusión, exclusión y modificación será por unanimidad de los Estados parte en un plazo no mayor de 30 días hábiles. Esta podrá manifestarse por videoconferencia o por escrito.
-6.2.2 En caso de que alguno de los Estados parte se oponga a la propuesta solicitada, debe presentar el sustento científico que respalde su posición, según lo establecido en numeral 6.2.1 del presente procedimiento.
-6.2.3 El coordinador recibirá los documentos y agrupará las observaciones de los Estados Parte. Deliberará si hay acuerdo o no para la solicitud, en caso de que uno de los miembros se oponga intercederá indicándole la posición del resto.
-6.2.4 En caso de que no se llegue a un acuerdo no se podrá hacer la actualización en el listado. Por tanto el interesado, debe presentar nuevas fuentes técnicas para ser evaluada la solicitud.
-6.2.5 El Coordinador de la CCAA debe utilizar el formulario para la presentación de propuestas de reformas de reglamentación técnica conforme a lo establecido en la Resolución COMIECO No. 162-2006.
-6.2.6 Cada Estado Parte debe por información y transparencia, publicar esta modificación siguiendo el procedimiento nacional establecido.
-6.2.7 En caso de alerta sanitaria derivada del uso de aditivos, el Coordinador de la CCAA o la autoridad sanitaria que reciba la alerta en primera instancia, debe estar en comunicación permanente e informar a las autoridades sanitarias de los Estados Parte del seguimiento de la alerta surgida.
+6.2.3 La aprobación de las solicitudes de inclusión, exclusión y modificación será por unanimidad de los Estados parte en un plazo no mayor de 30 días hábiles. Esta podrá manifestarse por videoconferencia o por escrito.
+6.2.4 En caso de que alguno de los Estados parte se oponga a la propuesta solicitada, debe presentar el sustento científico que respalde su posición, según lo establecido en numeral 6.2.1 del presente procedimiento.
+6.2.5 El coordinador recibirá los documentos y agrupará las observaciones de los Estados Parte. Deliberará si hay acuerdo o no para la solicitud, en caso de que uno de los miembros se oponga intercederá indicándole la posición del resto.
+6.2.6 En caso de que no se llegue a un acuerdo no se podrá hacer la actualización en el listado. Por tanto el interesado, debe presentar nuevas fuentes técnicas para ser evaluada la solicitud.
+6.2.7 El Coordinador de la CCAA debe utilizar el formulario para la presentación de propuestas de reformas de reglamentación técnica conforme a lo establecido en la Resolución COMIECO No. 162-2006.
+6.2.8 Cada Estado Parte debe por información y transparencia, publicar esta modificación siguiendo el procedimiento nacional establecido.
+6.2.9 En caso de alerta sanitaria derivada del uso de aditivos, el Coordinador de la CCAA o la autoridad sanitaria que reciba la alerta en primera instancia, debe estar en comunicación permanente e informar a las autoridades sanitarias de los Estados Parte del seguimiento de la alerta surgida.
 FORMULARIO DE SOLICITUD DE ACTUALIZACIÓN DEL LISTADO DE ADITIVOS ALIMENTARIOS:
 COMISIÓN CENTROAMERICANA DE ADITIVOS ALIMENTARIOS
 Solicitud de Actualización del Listado de Aditivos Alimentarios
