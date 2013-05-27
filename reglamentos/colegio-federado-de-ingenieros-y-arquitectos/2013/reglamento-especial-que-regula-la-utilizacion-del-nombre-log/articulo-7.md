@@ -1,0 +1,3 @@
+Artículo 7º—El incumplimiento de lo expresamente señalado en este procedimiento por parte de los miembros incorporados al Colegio Federado de Ingenieros y Arquitectos, se considerará como una falta al Código de Ética Profesional del C.F.I.A., lo que traerá como consecuencia el inicio de una investigación disciplinaria con el fin de sentar las responsabilidades que correspondan. En el caso de personas particulares que no respeten lo señalado en este procedimiento, se establecerán las respectivas acusaciones ante los Tribunales de Justicia, para determinar las responsabilidades civiles y penales que correspondan.
+Rige a partir de su publicación.
+San José, 15 de mayo del 2013
