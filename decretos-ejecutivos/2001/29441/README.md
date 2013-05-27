@@ -14,3 +14,4 @@ Reglamento sobre el Régimen de Tránsito Aduanero Internacional Terrestre (Form
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-14 | la propia norma |
+| 2 | 2013-05-27 | Decreto Ejecutivo 37858 (2013-05-27) |

@@ -65,7 +65,8 @@ f) CONSIGNATARIO: Es la persona que el documento de transporte establece como de
 g) DECLARANTE: El transportista que efectúa y firma o a nombre de quien se efectúa y firma la Declaración de Mercancías para el Tránsito Aduanero Internacional Terrestre.
 h) DERECHOS E IMPUESTOS: Los derechos establecidos en el Arancel de Importación, y los demás derechos e impuestos nacionales y regionales aplicables a las mercancías que entran o salen del territorio aduanero.
 i) GARANTIA: Caución que asegure, a satisfacción de la Autoridad Aduanera, el pago de los derechos e impuestos, así como las sanciones pecuniarias eventualmente aplicables.
-j) DECLARACION DE MERCANCIAS PARA EL TRANSITO ADUANERO INTERNACIONAL TERRESTRE O "DECLARACION": Documento aduanero único de los países signatarios en el que se amparan las mercancías y que consta de todos los datos e informaciones requeridos por este Reglamento para la operación de tránsito aduanero internacional.
+j) DECLARACIÓN ÚNICA DE MERCANCÍAS PARA EL TRÁNSITO ADUANERO INTERNACIONAL TERRESTRE O “DECLARACIÓN” O “DUT”: Documento aduanero único de los países signatarios en el que se amparan las mercancías en tránsito y que consta de los datos e informaciones requeridos por este Reglamento.
+(Así reformado el inciso anterior por el punto 1) de la Resolución N° 66-2013 (COMRIEDRE) del 15 de mayo del 2013, "Modificaciones al Reglamento sobre el Régimen de Tránsito Aduanero Internacional Terrestre, el formulario de Declaración y su Instructivo", aprobada mediante decreto ejecutivo N° 37858 del 27 de mayo del 2013)
 k) PAIS SIGNATARIO: Cada uno de los países suscriptores del presente Reglamento.
 l) PRECINTO ADUANERO: Dispositivo que permite a la aduana controlar efectivamente la seguridad de las mercancías.
 m) TRANSITO ADUANERO INTERNACIONAL: El régimen aduanero con arreglo al cual las mercancías son transportadas bajo control aduanero desde una aduana de partida hasta una aduana de destino en una misma operación, en el curso de la cual se cruzan una o más fronteras.
@@ -79,7 +80,8 @@ CAPÍTULO IV
 De la "Declaración" y Procedimientos en la Aduana de Partida
 Artículo 5º—Todas las mercancías transportadas en una operación bajo el Régimen de Tránsito Aduanero Internacional, deberán estar amparadas en la "Declaración", la cual será firmada por el transportista o su representante y presentada para su aceptación y registro en la aduana de partida de acuerdo con el formulario y su instructivo que conforman el anexo del presente Reglamento. Sin perjuicio de lo antes establecido, la "Declaración" podrá transmitirse electrónicamente a la aduana de partida en forma anticipada al arribo de la unidad de transporte.
 La "Declaración" efectuada por el transportista o su representante se entenderá realizada bajo la fe de juramento.
-Artículo 6º—El formulario de la "Declaración", será impreso por el servicio aduanero de cada país signatario o por las instituciones o personas autorizadas por la misma, conforme al modelo aprobado por el Consejo Arancelario y Aduanero Centroamericano y que aparece en el anexo del presente Reglamento. Este formulario deberá llevar anotado un número consecutivo preimpreso.
+Artículo 6º—El formulario de la “Declaración”, será impreso por el transportista, el servicio aduanero de cada país signatario o por las personas autorizadas por el Servicio Aduanero, conforme al modelo aprobado por el Consejo de Ministros Responsables de la Integración Económica y Desarrollo Regional y que aparece en el anexo del presente Reglamento. Este formulario deberá contener el número consecutivo asignado por el Sistema Informático.
+(Así reformado el párrafo anterior por el punto 2) de la Resolución N° 66-2013 (COMRIEDRE) del 15 de mayo del 2013, "Modificaciones al Reglamento sobre el Régimen de Tránsito Aduanero Internacional Terrestre, el formulario de Declaración y su Instructivo", aprobada mediante decreto ejecutivo N° 37858 del 27 de mayo del 2013)
 La Declaración podrá ser presentada electrónicamente, en medios magnéticos u otros medios autorizados por el servicio aduanero, cuando los sistemas informáticos de cada país signatario lo permitan. Para tal efecto el formato electrónico de la "Declaración", deberá ser uniforme y compatible en todos los países signatarios.
 Artículo 7º—Cada "Declaración" sólo amparará las mercancías embarcadas en una unidad de transporte desde una aduana de partida hasta una aduana de destino.
 Cuando se trate de mercancías consolidadas, el transportista elaborará y presentará una "Declaración" por cada país de destino , las que entregará en un solo depósito, según la aduana competente, para su desconsolidación y demás trámites correspondientes.
@@ -222,168 +224,75 @@ CAPÍTULO XIV
 Transitorios
 Artículo 45.—Mientras se oficializa un mapa regional de rutas habilitadas, se tendrán como tales las señaladas por la autoridad competente en coordinación con la autoridad aduanera de cada país signatario.
 Artículo 46.—A partir de la entrada en vigor del presente Reglamento, se conceden 180 días para que los transportistas de cada país cumplan con lo dispuesto en los artículos 38 y 39.
+(*)
 [imagen]
-[imagen]
-INSTRUCTIVO PARA EL LLENADO DE LA DECLARACIÓN DE MERCANCÍAS PARA EL TRÁNSITO ADUANERO INTERNACIONAL TERRESTRE
-Anverso de la Declaración:
-1. Exportador, Embarcador, Remitente:
-Nombre, dirección, teléfono y fax de la parte que, por contrato con el transportista, expide o envía mercancías al consignatario.
-2. Aduana de Partida/País:
-Nombre y código de la aduana de un país signatario que autoriza el inicio de una operación de tránsito internacional.
-3. Número de páginas:
-Número total de páginas de la "Declaración".
-4. Número de referencia:
-Número consecutivo asignado por la aduana de partida para identificar una Declaración.
-5. Fecha de aceptación de la Declaración:
-Fecha de aceptación de la "Declaración" por la aduana de partida.
-6. Consignatario:
-Nombre, dirección, teléfono y fax de la persona(s) que el documento de transporte establece como destinatario de la mercancía o aquella que adquiere esta calidad por endoso u otra forma de transferencia legalmente permitida.
-Cuando se trate de mercancía consolidada, podrá utilizarse en esta casilla la palabra "varios" y se indicará el nombre y dirección del depósito donde se desconsolidará la carga.
-7. Transportista:
-Nombre, dirección, teléfono y fax de la persona registrada y autorizada por la autoridad aduanera para realizar las operaciones de Tránsito Aduanero Internacional.
-8. Código:
-Número de registro nacional del transportista.
-9. Nombre del conductor:
-Nombre y apellidos del conductor de la unidad de transporte.
-10. Pasaporte:
-Número de registro del pasaporte del conductor (o en su defecto, cédula de identidad).
-11. País:
-Nombre del país en que se emitió el pasaporte o la cédula de identidad.
-12. Licencia de conducir:
-Número de registro de la licencia de conducir.
-13. País:
-Nombre del país en que se emitió la licencia de conducir.
-14. País de procedencia:
-País del que procede la mercancía.
-15. País de destino:
-Nombre del país de entrega final de las mercancías.
-16. Uso de la Aduana:
-Para uso optativo y exclusivo de la autoridad aduanera.
-17. Matrícula:
-Número de matrícula de la unidad de transporte de tracción motriz.
-18. País de registro:
-Nombre del país en que está matriculada la unidad de transporte de tracción motriz.
-19. Ejes del vehículo:
-Número de ejes de la unidad de transporte de tracción motriz.
-20. Tara de la Unidad de Transporte:
-Peso de la unidad de transporte de tracción motriz.
-21. Marca:
-Consignar la marca de la unidad de transporte de tracción motriz.
-22. Motor:
-Consignar el número de serie del motor de la unidad de transporte de tracción motriz.
-23. Chasis:
-Consignar el número de serie del chasis de la unidad de transporte de tracción motriz.
-24. Matrícula del remolque:
-Número de matrícula del remolque o semirremolque.
-25. País de registro:
-Nombre del país en que está matriculado el remolque o semirremolque.
-26. Ejes del remolque:
-Número de ejes del remolque o semirremolque.
-27. Tara del remolque:
-Peso en kilogramos del remolque o semirremolque.
-28. Marcas de expedición:
-Marcas y números de identificación que figuran en cada bulto cuando la carga no está dentro de un contenedor.
-Nota: Para vagones completos o para determinadas cargas parciales no se necesita consignar las marcas. En el mismo espacio se consignarán los siguientes datos cuando se trate de carga en contenedores.
-Identificación del contenedor: Marcas (letras y/o números) de identificación del contenedor o dispositivo similar de unidad de transporte.
-Dimensiones del contenedor: Indicación de las dimensiones y el tipo del contenedor.
-29. Número de bultos:
-Número de cada uno de los componentes de un envío sin embalaje o embalados de tal modo que no se puedan separar sin deshacer antes el embalaje.
-Tipo de bultos: Descripción de la forma en que se presentan las mercancías.
-Descripción de las mercancías: Descripción en lenguaje claro de la naturaleza de las mercancías de manera que se las pueda identificar, evitando detalles innecesarios.
-30. Inciso Arancelario de las Mercancías:
-Indicar el inciso arancelario de las mercancías conforme al Sistema Arancelario Centroamericano.
-Cuando las mercancías procedan de Panamá, la Declaración se hará sustancialmente en cuanto a la descripción de las mercancías y expresará el numeral bajo el cual estime el transportista o su representante que deben clasificarse.
-31. Peso bruto:
-Peso de las mercancías en kilogramos, incluido el embalaje.
-32. Valor Aduanero:
-Valor declarado para fines aduaneros, de las mercancías de un envío sujetas al mismo procedimiento aduanero y expresadas en $CA o Balboas, o su equivalente en dólares de los Estados Unidos de América.
-33. Nombre y firma:
-Firma del transportista o su representante.
-Reverso de la Declaración de Mercancías para el Tránsito Aduanero Internacional Terrestre:
-1. Aduana de Partida:
-Aduana del país signatario que autoriza el inicio de una operación de tránsito internacional.
-Ejemplo: Central
-2. Código de aduana de tránsito:
-El Código de Aduana Central en Guatemala es:
-1000
-3. País:
-Nombre del país en que se encuentra la Aduana de partida.
-Ejemplo:
-Guatemala
-4. Número de Precintos:
-Número de identificación de los precintos colocados a los contenedores u otras unidades de transporte.
-Ejemplo:
-100054678
-5. Ruta a seguir:
-Denominación de los puestos de aduana de origen y destino al que se debe dirigir una unidad de transporte.
-Ejemplo: Central - Pedro de Alvarado
-6. Fecha y hora de iniciación tránsito:
-Fecha (y hora de 00.00 a 24:00) de salida de la unidad de transporte del puesto de control.
-Ejemplo: 01/08/90 10:00
-7. Plazo en horas (período de tiempo):
-Período de tiempo acordado o especificado, para efectuar el tránsito indicado.
-Ejemplo: 24 Hrs.
-8. Nombre, firma y sello del funcionario de aduana facultado para autorizar el inicio del tránsito:
-Nombre y apellidos del funcionario de aduana.
-Ejemplo: José Manuel Pérez SELLO DE CONTROL
-9. Observaciones de la Aduana de Partida o Salida:
-Casilla que puede ser utilizada tanto por la aduana de partida como de salida.
-10. Aduanas de salida:
-Aduanas por las que las mercancías salen del país de envío/exportación.
-Ejemplo: Pedro de Alvarado
-11. Código de aduanas de salida:
-Ejemplo: 3800
-12. Comprobación de precintos/número de precinto nuevo:
-Información indicada por las aduanas.
-Ejemplo: Precintos intactos / 100055885
-13. Fecha y hora de salida del país en que se autoriza el tránsito:
-Ejemplo: 10/08/90 15:30
-14. Nombre, firma y sello del funcionario:
-Nombre y apellido del funcionario de aduana.
-Ejemplo: Remberto Aguilar SELLO DE CONTROL
-15. Aduanas de entrada:
-Aduanas por las que las mercancías entran en el país de tránsito o de destino.
-Ejemplo: Hachadura
-16. Código de aduanas de entrada:
-Ejemplo: F 2
-17. País:
-Nombre del país donde se encuentra la aduana de entrada.
-18. Comprobación de precintos:
-Información indicada por las aduanas.
-Ejemplo: Precintos intactos / 100055885
-19. Ruta a seguir:
-Denominación de los puestos de aduana de origen y destino al que se debe dirigir una unidad de transporte.
-Ejemplo: Central - Pedro de Alvarado
-20. Fecha y hora iniciación tránsito:
-Fecha (y hora de 00.00 a 24:00) de salida de la unidad de transporte del puesto de control.
-Ejemplo: 01/08/90 10:00
-21. Plazo en horas:
-Período de tiempo acordado o especificado, para efectuar el tránsito indicado.
-Ejemplo: 24 Hrs.
-22. Nombre, firma y sello del funcionarios de aduana:
-Nombre y apellido del funcionario de aduana.
-Ejemplo: Remberto Aguilar SELLO DE CONTROL
-23. Observaciones:
-Casilla que puede ser utilizada tanto por la aduana de entrada como por la de salida.
-NOTA: Del 24 al 79 se repiten los datos anteriormente ilustrados.
-80. Aduanas de destino:
-Aduanas en las que termina una operación de tránsito.
-Ejemplo: Dirección Gral. Aduanas
-81. Código de aduanas de destino:
-Ejemplo: A001
-82. Comprobación de precintos:
-Información indicada por la aduana de destino sobre el estado de los precintos.
-Ejemplo: Buenas Condiciones
-83. Fecha y hora de la finalización del tránsito en la aduana de destino:
-Ejemplo: 04/08/90 Hs. 17:10
-84. Nombre, firma y sello del funcionario de la aduana de destino:
-Nombre y apellidos del funcionario de la aduana.
-Ejemplo: Benito López SELLO DE CONTROL
-85. Observaciones Generales:
-Información indicada por las aduanas.
-Ejemplo: Observaciones generales
-86. Aduana de:
-Nombre de la Aduana que hace las observaciones.
-87. Nombre, apellidos, firma y sello del Administrador de la Aduana:
-Indicar nombre, apellidos, firma y sello del Administrador de la Aduana que hace las observaciones.
-Ejemplo: Luis Zeledón SELLO DE CONTROL
+INSTRUCTIVO DE LLENADO DE LA DUT
+Frente de la Declaración :
+1 N° de DUT:
+Número consecutivo asignado por el sistema informático, para identificar una Declaración.
+2. Es de Interés Cuarentenario:
+Indicar (SI), si la mercancía está sujeta a control de parte de las Autoridades fito-sanitarias o en caso contrario indicar NO.
+3. Pág.:
+Indica el número de página(s) de la Declaración.
+4. EXPORTADOR, EMBARCADOR O REMITENTE:
+4.1 Nombre: Del Exportador, Embarcador o remitente de la mercancía que se transporta
+4.2 Dirección: Dirección física
+4.3 E-mail: Correo electrónico
+4.4 Teléfono: Número telefónico con su código internacional
+4.5 FAX: Número de fax con su código internacional
+En caso de mercancías consolidadas, deberá de consignar los datos del Consolidador de carga.
+5. PARTIDA O INICIO
+5.1 País: País donde se inicia el tránsito
+5.2 Aduana: Nombre de la Aduana donde se inicia el tránsito
+5.3 Fecha: Fecha y hora que asigna el sistema informático al momento del registro de la declaración de tránsito
+6. TRANSPORTISTA:
+6.1 Código: Código del transportista responsable del traslado de las mercancías, este código es asignado por el servicio Aduanero del Estado Parte.
+6.2 Nombre: Nombre o razón social del Transportista responsable del traslado de las mercancías.
+7. CONSIGNATARIO:
+7.1 Nombre: Del consignatario de la mercancía que se transporta
+7.2 Dirección: Dirección física
+7.3 E-mail: Correo electrónico
+7.4 Teléfono: Número telefónico con su código internacional
+7.5 FAX: Número de fax con su código internacional
+Cuando se trate de mercancía consolidada, deberá consignarse el nombre del consolidador de la carga, y se indicará el nombre y dirección del depósito donde se desconsolidará la carga.
+8. CONDUCTOR O MOTORISTA:
+8.1 Nombre: Nombres y apellidos del Conductor del medio de transporte.
+8.2 Tipo de documento de identificación: Tipo de documento de identificación personal del conductor, “Pasaporte” u otro.
+8.3 No. De documento de Identificación: Número del documento de identificación consignado en el apartado anterior. Nacionalidad: País de nacionalidad del conductor.
+8.4 No. De licencia: Número de licencia para conducir.
+9. UNIDAD DE TRANSPORTE:
+9.1 No. De matrícula: Número de matrícula de la unidad de transporte de tracción motriz.
+9.2 País de registro: Nombre del país en que está matriculada la unidad de transporte de tracción motriz.
+9.3 Marca: Consignar la marca de la unidad de transporte de tracción motriz.
+9.4 Chasis: Consignar el número de serie del chasis de la unidad de transporte de tracción motriz.
+10. DESTINO:
+10.1 País: Indicar el País de destino de la mercancía.
+10.2 Aduana: Nombre de la Aduana en el país de destino de la mercancía.
+11. REMOLQUE:
+11.1 No. De matrícula: Número de matrícula del remolque o semi-remolque.
+11.2 País de registro: Nombre del país en que está matriculada el remolque o semi-remolque.
+12. MERCANCÍAS:
+12.1 País de Origen: Indicar el país de origen de las mercancías transportadas.
+12.2 País de Procedencia: Nombre del país de donde proceden las mercancías.
+13. CUARENTENA:
+13.1 No. De Certificado fitozoosanitario: Número del certificado fito-zoosanitario para la mercancía transportada en caso de ser de interés cuarentenario, caso contrario este campo queda en blanco.
+14. DOCUMENTOS ASOCIADOS:
+Indicar los documentos escaneados adjuntos a la Declaración (Factura de las mercancías, Manifiesto de carga y si procede, certificado fito-zoosanitario u otros).
+15. MARCAS DE EXPEDICIÓN
+No. De Contenedor y dimensiones: se consigna el número de contenedor y sus dimensiones.
+16. No. Y CLASE DE BULTOS:
+Descripción de las Mercancías: Se debe Indicar la cantidad y tipo de bultos, y la descripción de las mercancías de manera que se les pueda identificar.
+17. Inciso Arancelario de de la mercancía:
+Indicar el inciso arancelario de las mercancías (8 dígitos), conforme al Sistema Arancelario Centroamericano.
+18. Peso bruto de la mercancía:
+Indica per inciso arancelario el Peso bruto de las mercancías en kilogramos, incluido el embalaje.
+19. Valor US $:
+Indica por línea el Valor de las mercancías declarado para fines aduaneros expresadas en pesos Centroamericanos ($CA), para el caso de Panamá Balboas o su equivalente en dólares de los Estados Unidos de América.
+20. TRANSPORTISTA:
+20.1 Nombre: Indicar el nombre del transportista.
+20.2 Firma: Firma calígrafa del transportista o del Conductor.
+Reverso de la Declaración :
+Espacio reservado para que las Autoridades de Aduana y Cuarentenarias que intervienen en la Autorización de Transito, registren su actuación. En dicho campo se adhieren las viñetas o se imprime la autorización.
+21. Observaciones:
+Se utilizará la presente casilla para incorporar toda aquella información complementaria no comprendida en la Declaración y que sea de utilidad para el servicio aduanero, así como el registro de incidentes que se presenten durante la operación de tránsito.
+(*)(Así reformado el formato de la Declaración Única de Mercancías para el tránsito aduanero internacional terrestre o "Declaración" o "Dut" y su Instructivo de llenado por el punto 3) de la Resolución N° 66-2013 (COMRIEDRE) del 15 de mayo del 2013, "Modificaciones al Reglamento sobre el Régimen de Tránsito Aduanero Internacional Terrestre, el formulario de Declaración y su Instructivo", aprobada mediante decreto ejecutivo N° 37858 del 27 de mayo del 2013)
