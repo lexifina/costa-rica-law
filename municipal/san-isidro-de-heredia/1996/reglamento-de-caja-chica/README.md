@@ -14,3 +14,4 @@ Reglamento de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-24 | la propia norma |
+| 2 | 2013-05-27 | Reglamento municipal 32 (2013-05-27) |
