@@ -1,0 +1,1 @@
+II.—Se ordena a la Dirección de Inocuidad de Productos de Origen Animal (DIPOA), a la Dirección Administrativa Financiera (DAF) y al Departamento de Tecnología de la Información, tomen las previsiones administrativas que correspondan a los efectos de proceder a la inhabilitación ordenada.
