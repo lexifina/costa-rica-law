@@ -15,3 +15,4 @@ Reglamento para la Emisión de Certificados de Origen y la Verificación de Orig
 | --- | --- | --- |
 | 1 | 2011-07-14 | la propia norma |
 | 2 | 2013-01-21 | Decreto Ejecutivo 37550 (2013-01-21) |
+| 3 | 2013-05-27 | Decreto Ejecutivo 37800 (2013-05-27) |
