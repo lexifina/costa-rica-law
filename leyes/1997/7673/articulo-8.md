@@ -1,2 +1,4 @@
-Artículo 8°.- Supervisión
-El Fondo de Beneficio Social y sus operaciones serán supervisados por la Contraloría de la Universidad Nacional, la Superintendencia General de Entidades Financieras u otra instancia que determine la Ley de Modernización del Sistema Financiero de la República, No. 7107, de 4 de noviembre de 1988.
+Artículo 8.- Supervisión y fiscalización
+El Fondo de Beneficio Social y sus operaciones será supervisado por la Superintendencia General de Entidades Financieras u otra instancia que determine la Ley Nº 7107, Ley de Modernización del Sistema Financiero de la República, de 4 de noviembre de 1988.
+Asimismo, tratándose de recursos públicos, el Fondo de Beneficio Social y sus operaciones será fiscalizado por la Contraloría de la Universidad Nacional y la Contraloría General de la República. Sin perjuicio de lo anterior, la Junta Directiva del Fondo de Beneficio Social deberá remitir, a la Contraloría de la Universidad Nacional, informes anuales de los recursos públicos que mantenga bajo su custodia y administración. En caso de que la Contraloría de la Universidad Nacional detecte irregularidades en la administración, de inmediato deberá ponerlas a conocimiento de las autoridades superiores universitarias.
+(Así reformado por el artículo 1° de la ley N° 9138 del 30 de abril del 2013)

@@ -1,0 +1,3 @@
+Artículo 11.- Renuncia al Fondo
+Cuando un trabajador renuncie a la administración de su cesantía en el Fondo de Beneficio Social, tendrá derecho a decidir libremente en cuál organización desea que se le deposite el saldo acumulado y los importes mensuales futuros, debiendo el Fondo de Beneficio Social hacer el depósito de los fondos acumulados y sus réditos financieros en un plazo no mayor a treinta días naturales a la entidad autorizada, en los términos de la Ley N° 7983, Ley de Protección al Trabajador, de 16 de febrero de 2000.
+(Así adicionado por el artículo 2° de la ley N° 9138 del 30 de abril del 2013)
