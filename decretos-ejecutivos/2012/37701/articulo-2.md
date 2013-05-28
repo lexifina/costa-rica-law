@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el artículo 6º del Decreto Ejecutivo N° 29794-MP-TUR del 30 de agosto de 2001 denominado “Reglamento para el otorgamiento de Garantías Reales que gravan las concesiones del Polo Turístico de Papagayo”.
