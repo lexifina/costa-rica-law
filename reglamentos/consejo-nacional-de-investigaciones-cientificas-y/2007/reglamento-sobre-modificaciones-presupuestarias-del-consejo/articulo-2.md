@@ -1,5 +1,0 @@
-Artículo 2º—Para los efectos de este reglamento, se entenderá por:
-Consejo Director: Órgano Superior, responsable de aprobar los planes operativos, presupuestos y definir las políticas institucionales, además ostenta la representación legal de la institución.
-Secretaría Ejecutiva: Unidad organizacional encargada del desempeño adecuado de la Institución. Tiene la máxima responsabilidad por los resultados operativos y estratégicos del CONICIT.
-Coordinaciones: Áreas operativas y funcionales de trabajo sobre las que descansa el quehacer institucional. Para los efectos conducentes, se contará con las siguientes áreas: Área de Desarrollo Científico y Tecnológico, Área Administrativa Financiera, Centro de Registro e Información Científica y Tecnológica, Cooperación Técnica y Financiera, Planificación, Asesoría Legal y Auditoría Interna.
-Modificación presupuestaria: Es toda aquella variación que se realice en los egresos presupuestados y que tenga por objeto disminuir o aumentar los diferentes conceptos de estos o incorporar otros que no habían sido considerados, sin que se altere el monto global del presupuesto aprobado por la Contraloría General de la República.

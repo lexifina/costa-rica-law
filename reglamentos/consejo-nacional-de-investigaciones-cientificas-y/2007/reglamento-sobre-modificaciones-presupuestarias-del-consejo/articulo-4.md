@@ -1,1 +1,0 @@
-Artículo 4º—Las modificaciones presupuestarias sujetas de aprobación por el Consejo Director, son aquellas que consideran aumentos o disminuciones de egresos e inclusión de nuevos egresos, para dar contenido a actividades nuevas que no estén reflejadas en el Plan Anual Operativo de la institución.
