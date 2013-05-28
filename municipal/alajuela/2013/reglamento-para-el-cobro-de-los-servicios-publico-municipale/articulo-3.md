@@ -1,0 +1,1 @@
+Artículo 3º—Que con la debida aprobación de la Contraloría General de la República, la Municipalidad de Alajuela concesionó a favor de la empresa Servicios Los Reyes S. A., la prestación de los servicios públicos municipales, en las etapas uno y dos de dicho desarrollo urbanístico.
