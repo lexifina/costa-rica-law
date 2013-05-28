@@ -1,0 +1,1 @@
+Artículo 6º—Sobre el procedimiento de eliminación de la invasión. Una vez notificada y firme la resolución respectiva al Sistema Nacional de Áreas de Conservación, se iniciará la aplicación del protocolo de actuación respectivo basado en el Sistema de Comando de Incidentes.

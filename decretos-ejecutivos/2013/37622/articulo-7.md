@@ -1,0 +1,1 @@
+Artículo 7º—El Ministro de Ambiente, Energía y Telecomunicaciones, procederá a remitir la documentación necesaria ante el Tribunal Ambiental Administrativo a fin de que procedan a dar trámite a la denuncia respectiva por la invasión ocasionada. Así mismo instruirá la presentación de las respectivas denuncias penales cuando corresponda.

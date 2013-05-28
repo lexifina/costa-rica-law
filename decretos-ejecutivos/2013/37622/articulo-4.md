@@ -1,0 +1,1 @@
+Artículo 4º—El Director Ejecutivo del Sistema Nacional de Áreas de Conservación, una vez recibido el informe procederá a remitirlo en forma inmediata, al Ministro de Ambiente, Energía y Telecomunicaciones, para que proceda como corresponde, de acuerdo a lo preceptuado por el numeral 2 de la Ley N° 9073.
