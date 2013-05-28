@@ -1,0 +1,2 @@
+Artículo 7º—Modifíquese el artículo 18 del Reglamento de las Empresas de Hospedaje Turístico, Decreto N° 11217-MEIC del 25 de febrero de 1980 y sus reformas, para que se lea como sigue:
+Artículo 18. Cuando la empresa, por causa justificada, se vea imposibilitada para cumplir con la reservación en la fecha contratada, el consumidor tendrá derecho a la devolución de lo pagado o, si lo prefiere, a recibir un servicio equivalente o superior a lo pactado.

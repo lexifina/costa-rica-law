@@ -1,0 +1,2 @@
+Artículo 8º—Modifíquese el artículo 21 inciso a) del Reglamento de las Empresas de Hospedaje Turístico, Decreto Ejecutivo N° 11217-MEIC del 25 de febrero de 1980 y sus reformas, para que se lea como sigue:
+a) Cocinar, lavar o planchar en las habitaciones, llevar animales a ellas; con la salvedad de los animales de asistencia, que son utilizados por personas con discapacidad para ejercer sus derechos en igualdad de condiciones con las demás personas; y recibir a personas no registradas como huéspedes, todo sin autorización de la empresa.
