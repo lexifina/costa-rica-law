@@ -1,4 +1,0 @@
-Artículo 21.—Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Aprobado por la honorable Corporación Municipal en su sesión ordinaria Nº 44, celebrada el día 30 de octubre del 2012.
-Presidenta Municipal: Entonces les pregunto, tienen observaciones al citado reglamento si no lo someto a votación, los compañeros que estén a favor de este reglamento que levanten la mano.
-Se acuerda: Sometido a votación el Reglamento Interno para el Pago de Viáticos, Alimentación y Transporte, a los Regidores, Síndicos (Propietarios y Suplentes) y Funcionarios Municipales, se aprueba por unanimidad de votos para que se traslade a los Departamentos de la Administración, Tesorería, Contabilidad y Proveeduría Municipales a fin de que procedan a su publicación en el Diario Oficial La Gaceta para efectos de ley.
-Filadelfia, 9 de noviembre del 2012.—

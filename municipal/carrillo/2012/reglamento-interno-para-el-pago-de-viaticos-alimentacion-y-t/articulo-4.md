@@ -1,1 +1,0 @@
-Artículo 4º—Corresponde al Alcalde autorizar el pago de viáticos por transporte, alimentación y hospedaje, o al funcionario designado por el Alcalde Municipal para este acto, conforme a este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 18.—Los trabajadores municipales, tendrán siete días hábiles para realizar las liquidaciones correspondientes, acompañando la misma mediante los comprobantes correspondientes, según sea el caso.
