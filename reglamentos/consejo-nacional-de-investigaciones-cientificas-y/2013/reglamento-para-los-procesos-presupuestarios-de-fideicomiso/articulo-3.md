@@ -1,0 +1,1 @@
+Artículo 3º—El proceso presupuestario de los fideicomisos forma parte del Sistema de Administración Financiera Institucional del CONICIT. Dicho sistema comprende los principios, las técnicas, los métodos y procedimientos empleados, así como los órganos participantes en el proceso presupuestario institucional.

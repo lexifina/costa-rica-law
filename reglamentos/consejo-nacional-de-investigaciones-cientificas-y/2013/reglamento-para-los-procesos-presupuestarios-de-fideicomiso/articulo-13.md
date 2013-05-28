@@ -1,0 +1,1 @@
+Artículo 13.—Eficacia del presupuesto. El presupuesto de los fideicomisos y sus variaciones tendrán efecto legal, siempre que hubieren cumplido los requisitos y disposiciones previstos en el bloque de legalidad y que cuente con la debida aprobación por parte del Consejo Director.

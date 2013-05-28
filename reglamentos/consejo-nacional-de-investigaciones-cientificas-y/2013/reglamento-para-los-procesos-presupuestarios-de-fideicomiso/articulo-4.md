@@ -1,0 +1,10 @@
+TÍTULO SEGUNDO
+Del Subsistema de Presupuestos de los Fideicomisos
+Artículo 4º—Actores y responsabilidades en el Subsistema de Presupuesto de fideicomisos. Participarán en el Subsistema de Presupuesto de fideicomisos, el jerarca, los titulares subordinados y demás funcionarios institucionales quienes serán responsables, además de cumplir con el bloque de legalidad atinente a su respectivo puesto, de llevar a cabo las siguientes funciones:
+a) Jerarca. Es responsabilidad del Consejo Director procurar que exista un ambiente de control propicio para el desarrollo efectivo del Subsistema de Presupuesto de fideicomisos, por lo que debe emprender las medidas pertinentes para su establecimiento, mantenimiento, funcionamiento, control, perfeccionamiento y evaluación, de manera que se logre cumplir con sus objetivos.
+En el cumplimiento de esa responsabilidad debe aprobar los recursos necesarios que requiera el subsistema y velar por su correcta operación, para lo cual requerirá a los titulares subordinados los estudios y reportes que estime pertinente.
+b) Titular subordinado. Al titular subordinado, según su ámbito de competencia, le corresponderá establecer, mantener, operar, controlar, perfeccionar y evaluar el proceso presupuestario de fideicomisos administrados por el CONICIT de manera que se cumpla con sus objetivos. Para ello como mínimo deberá:
+i. Emitir, divulgar y poner a disposición para consulta y mantener actualizados los manuales de procedimiento de operación del Subsistema que contemple los insumos -recursos humanos, materiales y económicos y los procesos actividades, responsabilidades, mecanismos de coordinación, flujos de información y productos.
+ii. Asignar los recursos humanos, materiales, tecnológicos y de cualquier otra índole que el Subsistema requiere.
+iii. Atender las políticas y lineamientos dictados por el jerarca en relación con el Subsistema.
+iv. Hacer cumplir los deberes de las unidades y las personas bajo su mando, que intervienen en el Subsistema, de acuerdo con la normativa institucional.

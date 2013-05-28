@@ -1,0 +1,2 @@
+Artículo 11.—Presupuesto por programas. El presupuesto del fideicomiso deberá obedecer a la técnica de presupuesto por programas. Las unidades competentes, deben definir y aprobar los programas del presupuesto del fideicomiso acorde con las funciones sustantivas que atiende.
+Como parte de la estructura programática que rige el presupuesto se deberán establecer las subdivisiones en categorías de nivel inferior -subprograma, actividad, proyecto, obra, tarea-, que se requieran de acuerdo con las necesidades de información para la toma de decisiones.

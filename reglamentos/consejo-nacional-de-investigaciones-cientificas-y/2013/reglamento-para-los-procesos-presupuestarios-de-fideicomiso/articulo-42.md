@@ -1,0 +1,1 @@
+Artículo 42.—Las modificaciones presupuestarias sujetas a aprobación por la Secretaría Ejecutiva, son aquellas que consideran aumentos o disminución de egresos para dar contenido a actividades reflejadas en el Plan Anual Operativo.

@@ -1,0 +1,2 @@
+Artículo 36.—Diseño, implementación y mantenimiento de sistemas de información. La Unidad de Finanzas debe procurar por el diseño, la implementación y el mantenimiento sistemas de información integrados que permitan acceder, identificar y registrar información confiable, relevante, pertinente y oportuna sobre el subsistema de presupuesto del fideicomiso.
+Los sistemas de información deben apoyar el control interno en materia presupuestaria de los fideicomisos, fomentar la transparencia de la gestión y facilitar la rendición de cuentas.

@@ -1,0 +1,4 @@
+Artículo 24.—Fecha para someter a aprobación interna los documentos presupuestarios. El presupuesto inicial y los presupuestos extraordinarios de los fideicomisos deberán presentarse para aprobación del Consejo Director en las siguientes fechas:
+a) El presupuesto inicial, durante la segunda quincena del mes de setiembre del año anterior al de su vigencia. Dicho presupuesto deberá registrarse durante ese periodo en el Sistema de información de Planes y Presupuesto (SIPP), de la Contraloría General de la República.
+b) Los presupuestos extraordinarios se presentarán al Consejo Director, en el periodo comprendido entre el 1° de enero y el 15 de noviembre del año que rige el presupuesto. Igualmente deberán registrarse en el Sistema SIPP de la Contraloría General.
+c) Las modificaciones se presentarán a la Secretaría Ejecutiva, en el período comprendido entre el 1° de enero y al 30 de noviembre del año que rige el presupuesto.

@@ -1,0 +1,1 @@
+Artículo 8º—Uniformidad de la base de registro presupuestario. Se debe establecer y utilizar una base uniforme para el registro y la contabilización de todos los ingresos y los gastos, de tal forma que permita la acumulación y el manejo consistente de la información presupuestaria en la toma de decisiones.

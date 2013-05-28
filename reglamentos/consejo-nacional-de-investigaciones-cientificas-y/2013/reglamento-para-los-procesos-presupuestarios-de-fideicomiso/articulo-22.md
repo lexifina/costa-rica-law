@@ -1,0 +1,2 @@
+Artículo 22.—Fase de aprobación presupuestaria. Es la fase del proceso presupuestario que comprende el conjunto de normas y procedimientos técnicos, legales y administrativos mediante el cual el Consejo Director: conoce, estudia y aprueba el presupuesto formulado y sus variaciones, otorgándole la validez y eficacia jurídica.
+La aprobación comprende el análisis y discusión de la viabilidad técnica, legal y administrativa del presupuesto inicial o de sus variaciones y la emisión del acto de aprobación por parte de las instancias internas que corresponda.

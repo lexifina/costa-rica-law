@@ -1,0 +1,1 @@
+Artículo 48.—Los Coordinadores de unidades administrativas son los responsables de suministrar la información a la Dirección de Soporte Administrativo, de acuerdo con el formato preparado para tal efecto.

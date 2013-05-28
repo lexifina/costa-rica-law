@@ -1,0 +1,1 @@
+Artículo 7º—Principios presupuestarios. En concordancia con el marco jurídico y técnico, tanto para el presupuesto de los fideicomisos como para el proceso presupuestario, se deberá cumplir con los principios presupuestarios expuestos en el documento Normas Técnicas de Presupuestos Públicos, N-1-2012-DC-DFOE, de la Contraloría General y sus reformas, aplicables en la materia.

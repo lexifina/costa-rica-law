@@ -1,0 +1,1 @@
+Artículo 41.—Las modificaciones presupuestarias sujetas a aprobación por el Consejo Director, son aquellas que consideran aumentos o disminuciones de egresos e inclusión de nuevos ingresos, para dar contenido a actividades nuevas que no estén reflejadas en el Plan Anual Operativo de la institución.
