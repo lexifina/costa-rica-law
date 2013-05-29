@@ -14,3 +14,4 @@ Definición de procesos, procedimientos y disposiciones regulatorias para la imp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-18 | la propia norma |
+| 2 | 2013-05-29 | Resolución 178 (2013-05-29) |
