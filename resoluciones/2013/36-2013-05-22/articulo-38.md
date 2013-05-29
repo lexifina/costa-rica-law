@@ -1,0 +1,1 @@
+ARTÍCULO 38. Remisión del Predespacho Nacional al EOR. Antes de las 13:00 horas de cada día, el OS/OM deberá remitir al Ente Operador Regional (EOR), el Predespacho Nacional para el día siguiente, en el formato y medios establecidos por el EOR.

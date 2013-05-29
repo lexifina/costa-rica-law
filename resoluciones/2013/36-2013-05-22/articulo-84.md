@@ -1,0 +1,1 @@
+ARTÍCULO 84. Asignación de Cargos o Abonos del DTER en Concepto de Renta de Congestión. Los cargos o abonos del DTER en concepto de Renta de Congestión, serán internalizados por el OS/OM asignándolos a los Agentes del MER y Agentes del MEN con contratos marco correspondientes propietarios de Derechos de Transmisión Regionales, según el detalle indicado por el DTER.

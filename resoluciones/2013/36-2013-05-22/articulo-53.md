@@ -1,0 +1,1 @@
+ARTÍCULO 53. Coordinación de ajustes al Predespacho Regional, por ajustes Regionales. Entre las 14:30 y 16:15 horas de cada día, el OS/OM coordinará con el EOR las solicitudes de ajuste al predespacho regional realizadas por otros OS/OM y desarrollará para cada caso las validaciones indicadas en el artículo anterior.

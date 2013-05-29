@@ -1,0 +1,1 @@
+ARTÍCULO 57. Información a EOR de la disponibilidad para la prestación de servicios auxiliares. Antes de las 10:00 horas de cada día, el OS/OM informará al EOR la disponibilidad para la prestación de servicios auxiliares por cada unidad de generación para el día siguiente, en los medios y formatos establecidos por el EOR.

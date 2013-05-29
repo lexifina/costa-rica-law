@@ -1,0 +1,1 @@
+ARTÍCULO 29. Verificación de asignación de ofertas. El OS/OM deberá de comprobar para cada hora optimizada, que las compras al MEN no excedan la capacidad disponible de generación, y que las ventas al MEN no excedan la capacidad de generación disponible para ser sustituida por condiciones técnicas y económicas.

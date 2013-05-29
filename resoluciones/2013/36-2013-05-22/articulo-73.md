@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+DE LA LIQUIDACIÓN DE TRANSACCIONES Y CARGOS REGIONALES
+ARTÍCULO 73. Seguimiento a la conciliación diaria realizada por EOR. El OS/OM deberá dar seguimiento diario a la conciliación de las transacciones programadas, preliminares y definitivas, publicadas por el EOR y verificará que no existan inconsistencias respecto a las transacciones regionales validas en el predespacho regional.
+De identificarse alguna inconsistencia el OS/OM deberá presentar ante el EOR la respectiva solicitud de revisión, con base al numeral 2.8 del Libro II del RMER, a más tardar 3 días hábiles posteriores a su publicación por parte del EOR, utilizando para el efecto los medios y formatos establecidos por el EOR.
+El OS/OM informará a los Agentes del MER y Agentes del MEN con contratos marco de los resultados de las conciliaciones diarias publicadas por el EOR. Los Agentes que identifiquen discrepancias en las conciliaciones diarias podrán solicitar al OS/OM su gestión para solicitar explicaciones, correspondientes al EOR.

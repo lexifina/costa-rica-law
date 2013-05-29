@@ -1,0 +1,1 @@
+ARTÍCULO 19. Confidencialidad y acceso de la información. El OS/OM y los Agentes del MER y del MEN, deberán mantener todas las prevenciones necesarias para mantener confidencialmente la información con el MER, en apego a lo establecido por el RMER en numeral 2.2.3 y 2.2.4 del Libro I del RMER y la ARESEP.

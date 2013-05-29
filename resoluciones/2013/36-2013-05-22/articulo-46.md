@@ -1,0 +1,6 @@
+CAPÍTULO IV
+DE LAS OFERTAS DE OPORTUNIDAD REGIONALES
+ARTÍCULO 46. Ofertas de oportunidad, remisión y detalle. Antes de las 12:30 horas de cada día, los Agentes del MER y Agentes del MEN con contratos marco deberán remitir al OS/OM las ofertas de oportunidad de inyección regionales para el día siguiente, considerando el cumplimiento de los numerales 1.4 y 5.3 del Libro II del RMER, en los formatos y medios establecidos por el OS/OM, cada oferta deberá indicar:
+a) Si se trata de excedentes de generación, la unidad o unidades de generación no despachada o despachada parcialmente en el Predespacho Nacional de donde proviene la oferta, que no estén comprometida en contratos regionales o en servicios auxiliares, el nodo de la RTR donde se pretende realizar inyección de energía.
+b) Si se trata de demanda nacional interrumpible por precio, la cantidad de energía y los nodos de la RTR donde se pretende realizar la reducción de demanda.
+c) Las ofertas de oportunidad de inyección regionales que se originan en unidades de generación que tienen restricciones de arranque y parada, que no están despachada o despachada parcialmente en el Predespacho Nacional, que no estén comprometida en contratos regionales o en servicios auxiliares, deberán presentar sus ofertas considerando todo el intervalo de tiempo horario entre el arranque y la parada.

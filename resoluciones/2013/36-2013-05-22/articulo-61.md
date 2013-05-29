@@ -1,0 +1,1 @@
+ARTÍCULO 61. Coordinación operativa bajo esquema jerárquico. El OS/OM coordinará con el EOR y los otros OS/OM de la región, la operación del sistema interconectado, mediante la ejecución del esquema jerárquico establecido en el RMER y los protocolos de operación vigentes aprobados por la CRIE.

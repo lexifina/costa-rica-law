@@ -1,0 +1,2 @@
+ARTÍCULO 43. Validación de las declaraciones de Contratos No Firmes Financieros hacia el MER. Antes de las 09:00 horas de cada día, el OS/OM validará las declaraciones de contratos no firmes financieros regionales informados por los Agentes del MER y Agentes del MEN con contratos marco, tomando en cuenta lo establecido en el numeral 1.3.6 del Libro II del RMER.
+De identificarse discrepancias que no sean resueltas por el Agente a tiempo, aplicará las reducciones totales o parciales del contrato que correspondan e informará de las reducciones al Agente correspondiente.

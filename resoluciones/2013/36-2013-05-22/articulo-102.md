@@ -1,0 +1,1 @@
+ARTÍCULO 102. Solicitud de mantenimientos. El OS/OM con base en la información suministrada por los Agentes Transmisores, deberá cumplir en tiempo y forma con la elaboración de las solicitudes de mantenimientos y entrada en servicio de nuevas instalaciones de acuerdo al formato de SOLMANT que establezca el EOR.

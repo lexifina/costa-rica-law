@@ -1,0 +1,1 @@
+Artículo 107. Registro de Agentes del MEN y del MER. La ARESEP emitirá, 30 días posteriores a la publicación de esta Resolución, los lineamientos para que los agentes nacionales y regionales realicen su registro ante esta entidad.

@@ -1,0 +1,1 @@
+ARTÍCULO 5. Agentes del MEN. Son Agentes del Mercado Eléctrico de Costa Rica las personas naturales o jurídicas que se dediquen a las actividades de generación, transmisión, distribución, comercialización de electricidad, indistintamente de su naturaleza pública, privada o mixta, y que cuenten con la concesión o autorización respectiva para la realización de las mismas.

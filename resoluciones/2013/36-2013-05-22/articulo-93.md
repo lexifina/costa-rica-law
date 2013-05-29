@@ -1,0 +1,2 @@
+ARTÍCULO 93. Período de pago de notas o documentos de cobro. Los Agente del MER y Agentes del MEN con contratos marco deberán hacer efectivo su pago ante el OS/OM, a más tardar 4 días hábiles posteriores a la recepción de la Nota de Cobro o documento respectivo, emitida por el OS/OM.
+De no realizarse el pago correspondiente por parte de los Agentes en la fecha establecida, el OS/OM deberá aplicar el interés moratorio correspondiente, e informará a la ARESEP los incumplimientos de pago de los Agentes.

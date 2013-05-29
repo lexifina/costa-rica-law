@@ -1,0 +1,1 @@
+ARTÍCULO 35. Estimación horaria de la demanda. Antes de las 9:00 horas de cada día, el OS/OM deberá estimar el pronóstico de demanda de energía del Sistema Eléctrico Nacional para cada hora del día siguiente y para cada nodo eléctrico, aplicando las mejores prácticas para este fin.

@@ -1,0 +1,4 @@
+Artículo 110. Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial.
+En cumplimiento de lo que ordena el artículo 245 de la Ley General de la Administración Pública, se indica que contra la anterior resolución caben el recurso ordinario de reposición y el recurso extraordinario de revisión; que podrán interponerse ante la Junta Directiva, a la que corresponde resolverlos.
+El recurso de reposición deberá interponerse en el plazo de tres días contados a partir del día siguiente a la notificación; el extraordinario de revisión, dentro de los plazos señalados en el artículo 354 de la citada ley.
+II. Agradecer a todas las personas físicas y jurídicas que participaron en el proceso de audiencia pública e indicarles que se tenga como respuesta a sus planteamientos, lo externado en el Considerando XVII de esta Resolución.

@@ -1,0 +1,1 @@
+ARTÍCULO 55. Información a agentes del MER y Agentes del MEN con contratos marco del Predespacho Regional. Antes de las 18:00 horas de cada día, el OS/OM informará a los Agentes las transacciones regionales de contratos y oportunidad resultantes del predespacho regional correspondientes para el siguiente día.

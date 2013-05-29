@@ -1,0 +1,1 @@
+ARTÍCULO 18. Veracidad y completitud de la información. La información suministrada por el OS/OM y los Agentes del MER y del MEN, en cumplimiento del RMER y los requerimientos establecido por la ARESEP, deberá ser verdadera, correcta y completa en el momento en que se suministra, en el mejor conocimiento de la persona que la suministra.

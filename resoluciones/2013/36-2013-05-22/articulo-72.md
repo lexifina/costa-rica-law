@@ -1,0 +1,1 @@
+ARTÍCULO 72. Remisión a EOR de reporte de contingencias. A más tardar a las 10:00 horas de cada día, el OS/OM deberán remitir al EOR, el reporte de contingencias del día anterior, así como la disposición real de la red de transmisión del día anterior. Dicha información deberá ser remitida por los medios y en los formatos definidos por el EOR.

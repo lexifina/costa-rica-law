@@ -1,0 +1,1 @@
+Artículo 106. Determinación del OS/OM y plazo para su implantación. El ICE comunicará al ARESEP la resolución administrativa tomada acerca de la decisión de la asignación de las funciones del OS/OM, dicha comunicación deberá realizarla dentro de los 30 días posteriores a la publicación de esta Resolución.

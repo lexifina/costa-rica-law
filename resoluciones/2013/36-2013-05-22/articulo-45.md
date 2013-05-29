@@ -1,0 +1,2 @@
+ARTÍCULO 45. Ajustes y aclaraciones a inconsistencias indicadas por EOR. Entre las 10:00 horas y las 11:30 horas de cada día, el OS/OM deberá coordinar con los Agentes del MER y Agentes del MEN con contratos marco y el EOR, los ajustes y aclaraciones necesarias a las inconsistencias señaladas por el EOR, de los contratos regionales que han sido declarados para el día siguiente.
+El OS/OM Informará a sus Agentes los contratos regionales que hayan sido invalidados por el EOR.

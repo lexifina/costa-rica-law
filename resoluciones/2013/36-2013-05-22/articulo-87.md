@@ -1,0 +1,2 @@
+ARTÍCULO 87. Asignación de cargos regionales. Los cargos del DTER en concepto de Cargos por Servicio de Regulación del MER, Cargos de Operación del MER y Cargos por Uso de RTR, serán internalizados por el OS/OM y asignados a los Agentes del MER y Agentes del MEN con contratos marco Distribuidores en proporción a la demanda mensual consumida por cada agente.
+Los Agentes Distribuidores trasladarán los Cargos por Servicio de Regulación del MER, Cargos de Operación del MER y Cargos por Uso de RTR a la tarifa según el procedimiento establecido por la ARESEP.

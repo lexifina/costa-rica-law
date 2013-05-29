@@ -1,0 +1,1 @@
+ARTÍCULO 9. Libre acceso. Las redes de transmisión y distribución, tanto regional como nacional, serán de libre acceso para los Agentes de MER y del MEN, en tanto cumplan con las disposiciones técnicas respectivas.

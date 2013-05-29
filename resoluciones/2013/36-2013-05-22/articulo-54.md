@@ -1,0 +1,1 @@
+ARTÍCULO 54. Predespacho total. Una vez el OS/OM haya validado el predespacho regional y sus ajustes, procederá a sumar las transacciones regionales a las transacciones nacionales para obtener el predespacho total, el cual deberá de ser publicado por el OS/OM antes de las 18 horas de cada día.

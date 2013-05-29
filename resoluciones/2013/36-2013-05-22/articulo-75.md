@@ -1,0 +1,1 @@
+ARTÍCULO 75. Identificación de responsables de cargos y abonos según DTER. Cada mes el OS/OM deberá identificar los Agentes del MER y Agentes del MEN con contratos marco a los que corresponde aplicarles los cargos y abonos derivados del Documento de Transacciones Económicas Regionales -DTER-, según las actividades de cada Agente, según los artículos siguientes

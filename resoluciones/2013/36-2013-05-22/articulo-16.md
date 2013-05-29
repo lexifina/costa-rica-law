@@ -1,0 +1,1 @@
+ARTÍCULO 16. Conservación de registros y documentos. Cualquier registro o documento preparado por el OS/OM y los Agentes del MER y del MEN, se deberá de conservar toda la información registrada o documentada durante un plazo mínimo de cinco (5) años.

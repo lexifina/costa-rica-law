@@ -1,0 +1,1 @@
+ARTÍCULO 86. Los cargos o abonos del DTER en concepto de ajustes. Los cargos o abonos del DTER en concepto de Ajustes, serán internalizados por el OS/OM asignándolos a los Agentes del MER y Agentes del MEN con contratos marco correspondientes que se les acrediten o debiten los ajustes al DTER conforme a las disipaciones establecidas en este apartado.

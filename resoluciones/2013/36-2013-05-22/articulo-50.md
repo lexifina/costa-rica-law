@@ -1,0 +1,2 @@
+ARTÍCULO 50. Remisión de ofertas al EOR. Antes de la 13:00 horas de cada día, el OS/OM remitirá al EOR la información de las ofertas de oportunidad de inyección y retiro para el día siguiente, establecidas en los numerales 1.4, 5.3 y 5.4 del Libro II del RMER, en el formato y medios establecidos por el EOR.
+El OS/OM Informará a sus Agentes las ofertas de oportunidad regionales que hayan sido invalidadas por el EOR.

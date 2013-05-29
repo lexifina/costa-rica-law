@@ -1,0 +1,1 @@
+ARTÍCULO 17. Suministro y manejo de la información. El OS/OM y los Agentes del MER y del MEN deberán suministrar la información requerida por el RMER y resto de la Regulación Nacional y Regional, dentro de los plazos especificados y de la forma, tiempos y manera requeridas en el RMER y la Regulación Nacional y Regional.

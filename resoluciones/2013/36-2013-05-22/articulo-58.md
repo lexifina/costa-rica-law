@@ -1,0 +1,1 @@
+ARTÍCULO 58. Información de EOR de la participación en la prestación de servicios auxiliares. Antes de las 14:30 horas de cada día, el OS/OM informará a sus Agentes del MEN Generadores y Transmisores la participación de los servicios auxiliares a nivel regional informada por el EOR y reportará al EOR toda restricción que afecte su calidad o imposibilite su cumplimiento.

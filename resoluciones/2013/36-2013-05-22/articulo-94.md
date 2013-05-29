@@ -1,0 +1,1 @@
+ARTÍCULO 94. Recolección del resultado de obligaciones de pago del DTER y entrega al EOR. El OS/OM en cumplimiento del calendario mensual de conciliación, facturación y liquidación del MER publicado por el EOR, recolectará las obligaciones de pago derivadas del DTER y de la facturación regional y realizará los pagos correspondientes en la cuenta que el EOR destine para este fin.

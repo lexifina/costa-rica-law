@@ -1,0 +1,1 @@
+ARTÍCULO 89. Asignación de intereses moratorios. Los cargos del DTER en concepto de Interés por Mora, serán internalizados por el OS/OM y asignados a los Agentes del MER y Agentes del MEN con contratos marco correspondientes acreedores de la mora.

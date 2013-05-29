@@ -1,0 +1,1 @@
+ARTÍCULO 3. Propósito de este Reglamento. El propósito de este Reglamento es regular la participación de los actores de la Industria Eléctrica Costarricense para el cumplimiento de los Derechos y Obligaciones adquiridos en el Tratado Marco del Mercado Eléctrico de América Central, sus Protocolos y sus Reglamentos, en concordancia con la regulación nacional.

@@ -1,0 +1,1 @@
+ARTÍCULO 59. Coordinación de Ajustes para la prestación de servicios auxiliares. Entre las 14:30 y 16:15 horas de cada día, el OS/OM coordinará con el EOR los ajustes que sean necesarios para la prestación de los servicios auxiliares.

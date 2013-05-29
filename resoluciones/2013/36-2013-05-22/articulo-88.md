@@ -1,0 +1,1 @@
+ARTÍCULO 88. Asignación de multas. Los cargos del DTER en concepto de Multas de cualquier tipo, serán internalizados por el OS/OM y asignados a los Agentes del MER y Agentes del MEN con contratos marco o Entidades del MER acreedoras de las multas.

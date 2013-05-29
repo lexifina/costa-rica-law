@@ -1,0 +1,3 @@
+ARTÍCULO 7. Agentes del MER. En Costa Rica son Agentes del Mercado Eléctrico Regional, de conformidad con lo establecido en la Ley 9004, artículo 3, el Instituto Costarricense de Electricidad y sus empresas, y se tienen por habilitados para realizar transacciones en éste.
+A los efectos del párrafo anterior, se identificará a ICE y sus empresas, en el ejercicio de cada una de sus funciones como ICE Generador, ICE Transmisor, ICE Distribuidor o ICE Comercializador; CNFL S. A. Generador, CNFL S. A. Distribuidor o CNFL S. A.
+Comercializador, como cualquier otra empresa que el ICE constituya o adquiera en el MEN, con una participación no menor que el cincuenta y uno por ciento del capital accionario.

@@ -1,0 +1,1 @@
+ARTÍCULO 24. Horarios de publicación de la Programación Nacional Indicativa. Las publicaciones se realizarán el lunes, antes de las 9:00 horas, para la Programación Nacional Indicativa de los días miércoles, jueves, viernes y sábado y el viernes, antes de las 9:00 horas, para los días domingo, lunes y martes.

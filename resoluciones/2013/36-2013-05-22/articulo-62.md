@@ -1,0 +1,1 @@
+ARTÍCULO 62. Responsabilidad de remisión de información. El OS/OM será el responsable de remitir toda la información que conforma la Base de Datos Regional Comercial y Operativa que es requerida por el RMER en el numeral 3.3 del Libro II. Esta información deberá ser remitida al EOR en los medios y formatos requeridos por el EOR.

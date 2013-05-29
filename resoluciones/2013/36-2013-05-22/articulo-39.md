@@ -1,0 +1,5 @@
+CAPÍTULO III
+DE LA DECLARACIÓN DE CONTRATOS REGIONALES
+ARTÍCULO 39. Declaración de contratos regionales. Antes de las 08:00 horas de cada día, los Agentes del MER y del MEN con Contrato Marco, que requieran declarar contratos regionales para el día siguiente, deberán remitir al OS/OM la información requerida por el numeral 5.6 del Libro II del RMER, en los formatos y medios establecidos por el OS/OM, incluyendo las ofertas de flexibilidad y/u ofertas de pago máximo de Cargos Variables de Transmisión (CVT).
+Si se trata de una inyección hacia el MER de un contrato, deberá informar la unidad o unidades de generación con que pretende cumplir su compromiso contractual y el nodo de la Red de Transmisión Regional (RTR), donde se pretende realizar la inyección de energía.
+Si se trata de un retiro desde el MER de un contrato, para remplazo de generación, deberá informar el nodo de la RTR, donde se pretende realizar el remplazo de generación. Si se trata de un retiro abastecido desde el MER de un contrato, deberá informar el nodo de la RTR, donde se pretende realizar el retiro de energía.

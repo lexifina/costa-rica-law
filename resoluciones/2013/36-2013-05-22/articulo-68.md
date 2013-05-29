@@ -1,0 +1,1 @@
+ARTÍCULO 68. Registro de equipos de medición. Los Agentes del MEN Transmisores son los responsables de registrar los equipos de medición comercial de su propiedad ubicados en los enlaces que interconectan el área de control de Costa Rica con otras áreas de control, ante el EOR a través del OS/OM, cumpliendo los procesos y formatos establecidos por el EOR.

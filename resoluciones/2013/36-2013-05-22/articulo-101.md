@@ -1,0 +1,1 @@
+ARTÍCULO 101. Programación semanal de mantenimientos. El OS/OM en coordinación con los Agentes Transmisores deberá cumplir con el procedimiento de programación semanal de mantenimientos establecido en el numeral 5.7.4 del Libro III del RMER.

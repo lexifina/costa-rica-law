@@ -1,0 +1,1 @@
+ARTÍCULO 63. Responsabilidad de telecomunicaciones, información y supervisión Operativa. El OS/OM será el responsable de las telecomunicaciones, intercambios de información y supervisión operativa, que se debe mantener con el EOR y los otros OS/OM, para este fin dará cumplimiento al numeral 3.4 del Libro II del RMER.

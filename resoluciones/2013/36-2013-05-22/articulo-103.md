@@ -1,0 +1,1 @@
+ARTÍCULO 103. Conexión de instalaciones a la RTR. Toda entrada de nuevas instalaciones a la RTR, deberá cumplir previamente todos los requisitos y procedimientos definidos en las Regulaciones Nacionales y en el Reglamento del MER.
