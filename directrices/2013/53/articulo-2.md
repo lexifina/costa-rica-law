@@ -1,0 +1,1 @@
+2) Además de lo indicado por el numeral 3 de la Directriz Nro. 051 MTSS de 28 de mayo de 2013, se excluyen de la aplicación de esta Directriz la atención integral y necesaria de los centros hospitalarios del Instituto Nacional de Seguros ubicados en los cantones: Central de San José y Montes de Oca, sin perjuicio de lo indicado por el artículo 2 de la misma directriz.
