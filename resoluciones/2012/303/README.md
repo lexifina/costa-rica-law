@@ -14,3 +14,4 @@ Disposiciones complementarias, técnicas, económicas y administrativas para la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-29 | la propia norma |
+| 2 | 2013-05-29 | Resolución 178 (2013-05-29) |
