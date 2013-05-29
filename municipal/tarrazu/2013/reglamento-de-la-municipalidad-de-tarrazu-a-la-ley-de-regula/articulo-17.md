@@ -2,6 +2,7 @@ Artículo 17.—Pérdida anticipada de vigencia. La licencia perderá vigencia a
 a. Por renuncia expresa del patentado.
 b. Cuando el patentado abandone la actividad y así sea comunicado a la Municipalidad.
 c. Cuando resulte totalmente evidente el abandono de la actividad aún cuando el interesado no lo haya comunicado.
-d. Por la pérdida o cancelación del permiso de funcionamiento del establecimiento, independientemente del motivo que lo origine.
+d. Por la pérdida o cancelación del permiso de funcionamiento otorgado por el Ministerio de Salud del establecimiento, independientemente del motivo que lo origine.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 161-2013 del 29 de mayo del 20139
 e. Por cualquiera de las causales establecidas en el artículo 6 de la Ley 9047.
 f. Por el incumplimiento de los requisitos y prohibiciones establecidos en la Ley, previa suspensión conforme lo establece el artículo 10 de la Ley 9047.

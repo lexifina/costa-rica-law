@@ -1,1 +1,2 @@
-Artículo 18.—Inspección y Control. Del total recaudado en virtud de la Ley 9047 anualmente se destinará recursos para las funciones de inspección y control encomendadas a la Municipalidad, conforme las necesidades financieras prefijadas para cada anualidad, mediante el trámite de los presupuestos municipales.
+Artículo 18.—Inspección y Control. De lo recaudado en virtud de la Ley 9047, anualmente se destinarán recursos para las funciones de inspección y control hasta por un 50%, dependiendo de las necesidades de la Municipalidad. El restante se destinará para mejorar la calidad de vida de los habitantes del cantón según las propuestas presentadas por la Municipalidad.
+(Así reformado mediante sesión ordinaria N° 161-2013 del 29 de mayo del 2013)
