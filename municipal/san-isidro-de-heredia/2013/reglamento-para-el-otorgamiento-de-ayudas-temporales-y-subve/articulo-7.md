@@ -1,0 +1,1 @@
+Artículo 7º—Tipo de ayudas. Las ayudas que concederá la Municipalidad de San Isidro de Heredia, podrán ser en materiales, suministros o en víveres, según la recomendación que, de acuerdo con lo establecido en el Artículo 5 anterior, realizará la Comisión de Asuntos Sociales.

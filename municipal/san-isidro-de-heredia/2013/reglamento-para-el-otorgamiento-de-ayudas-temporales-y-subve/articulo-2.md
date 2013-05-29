@@ -1,0 +1,1 @@
+Artículo 2º—Del ámbito de aplicación. Para el otorgamiento de subvenciones o ayudas temporales por parte de la Municipalidad de San Isidro de Heredia, con fundamento en lo dispuesto en el artículo 62 del Código Municipal, será necesario llevar a cabo los procedimientos establecidos en el presente reglamento.

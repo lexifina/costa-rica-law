@@ -1,0 +1,1 @@
+Artículo 23.—Revocación de la ayuda. En caso de que la Administración Municipal sea informada por los beneficiarios de la asistencia social, que los mismos ya se han provisto de lo que habían requerido, deberá informar en forma inmediata y por escrito al Concejo Municipal, para que se revoque el acuerdo de ayuda tomado por carecer de interés actual.

@@ -1,0 +1,1 @@
+Artículo 20.—Informe de resultados. El beneficiario de una subvención, deberá presentar a la Municipalidad, los informes sobre el cumplimiento de los objetivos y fines para los que se giró la misma, así como la respectiva liquidación de gastos.

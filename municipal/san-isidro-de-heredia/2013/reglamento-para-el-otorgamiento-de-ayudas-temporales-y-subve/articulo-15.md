@@ -1,0 +1,1 @@
+Artículo 15.—Solicitud de subvención. Para efectos de lo dispuesto en el artículo anterior, la solicitud de subvención deberá presentarla la institución o asociación interesada en ella, ante el Concejo Municipal explicando en forma clara y precisa el objeto y fines para los cuales se requiere la misma, junto con los otros requisitos que este Reglamento disponga.
