@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos que laboran en el Cantón Central de Sa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-28 | la propia norma |
+| 2 | 2013-05-29 | Directriz 53 (2013-05-29) |
