@@ -1,0 +1,8 @@
+CIRCULAR N° 040-07
+ASUNTO: Deber de suplir a los interesados la información que requieran por medios informáticos.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 17-07, celebrada el 6 de marzo del año en curso, artículo LXXXIX, dispuso comunicarles que están en la obligación de suplir a los interesados de la información que requieran por medios informáticos, tales como: correo electrónico, disquetes u otros medios de igual naturaleza; a efecto de disminuir la cantidad de fotocopias, evitar la salida de expedientes del despacho y reducir el número de horas que debe dedicar el personal para trasladar y custodiar los expedientes en los lugares en que se saquen fotocopias. Todo lo anterior, en relación con las actividades procesales y documentos en que esté autorizada la fotocopia.
+Además, se comunica a los usuarios del Poder Judicial, que es su derecho el pedir esa información y utilizar los medios señalados.
+(Reiterada en virtud del acuerdo tomado por el Consejo Superior en sesión N° 47-2013, celebrada el 9 de mayo de 2013, artículo XXVII).
+San José, 30 de mayo del 2013.
