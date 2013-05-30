@@ -1,0 +1,1 @@
+Artículo 4º—Para la aplicación de los créditos fiscales ocasionados por el pago del impuesto general sobre las ventas, los contribuyentes deberán utilizar las reglas de deducción vigentes al momento de compra o adquisición de los respectivos bienes.
