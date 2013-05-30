@@ -1,0 +1,1 @@
+Artículo 38.—Funcionamiento de las comisiones. La Junta Directiva promulgará un Reglamento de Funcionamiento de la Comisión. En caso de comisiones creadas en Asamblea General, la misma Asamblea podrá delegar en la Junta Directiva la definición o concreción de las funciones de las comisiones creadas por ellas.

@@ -1,0 +1,1 @@
+Artículo 27.—Acuerdos y resoluciones. Los acuerdos y las resoluciones se tomarán por mayoría absoluta. Contra las resoluciones cabrán recursos de revocatoria ante la Junta Directiva, y de apelación ante la Asamblea General.

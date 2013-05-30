@@ -1,0 +1,1 @@
+Artículo 6º—Personería jurídica. La representación judicial y extrajudicial del Colegio la ejercerá la persona quien presida la Junta Directiva, con carácter de apoderado general, de conformidad con el artículo 1255 del Código Civil.

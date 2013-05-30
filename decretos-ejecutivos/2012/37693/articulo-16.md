@@ -1,0 +1,21 @@
+CAPÍTULO III
+De la suspensión del ejercicio de la profesión
+Artículo 16.—De la suspensión de miembros. El procedimiento y fundamentos para la suspensión del ejercicio profesional de los miembros del colegio, se regulan mediante lo dispuesto en el artículo 37 de la Ley.
+Las personas miembros del Colegio podrán recibir las siguientes sanciones:
+a) Suspensión de su calidad de miembro activo del Colegio, si ha incumplido con el pago de seis cuotas de colegiatura. La persona colegiada recuperará su calidad de miembro activo cuando pague el monto adeudado por concepto de cuotas.
+b) Suspensión de uno a dos meses de la condición de persona colegiada, si publica o autoriza informes, estudios o análisis falsos.
+c) Suspensión de tres a seis meses de su condición de persona colegiada a quien, en el ejercicio de su profesión, revele algún secreto profesional, a pesar de que la divulgación pueda causar daño a terceros.
+d) Suspensión de uno a seis meses de su condición de persona colegiada a quien realice algún acto de competencia desleal en el ejercicio de su profesión.
+e) Suspensión de seis meses a un año de la condición de miembro activo, a la persona colegiada que, públicamente o con un fin ilícito, exhiba o acredite referencias o atestados personales cuya falsedad se compruebe.
+Para fijar las sanciones, con excepción de la establecida en el inciso a) de este artículo, se estará a lo indicado en los artículos 70 y 71 del Código Penal, en lo que sean compatibles con la Ley Orgánica.
+Se perderá la condición de director o miembro del Tribunal Electoral en los siguientes casos:
+a) Se separe o sea separado del Colegio, temporal o definitivamente, o pierda su condición de persona colegiada.
+b) Cuando, sin causa justificada a juicio de la Junta Directiva, deje de concurrir a tres sesiones ordinarias consecutivas, o se ausente del país por más de tres meses sin permiso de la Junta.
+c) Cuando haya infringido alguna de las disposiciones contenidas en la Ley Orgánica y el presente Reglamento.
+En cualquiera de los casos enumerados anteriormente, la Junta Directiva levantará la información correspondiente por medio de la Fiscalía, y hará la convocatoria a Asamblea General extraordinaria, con el fin de que se conozca el caso y se elija, si procede, a quien lo sustituirá por el resto del período legal, a más tardar un mes después de producirse la vacante. En igual forma se procederá en caso de muerte o renuncia de algún miembro de un órgano del Colegio.
+Las sanciones se deben tramitar de la siguiente manera:
+Establecidos los cargos por el Tribunal de Honor, al profesional cuestionado se le dará traslado por el término de diez días, para que conteste la denuncia, oponga las excepciones y ejerza el derecho de defensa. En el escrito deberá ofrecer las pruebas del caso y el medio para recibir notificaciones. Se les permitirá el acceso al expediente administrativo, tanto a las partes como a sus abogados, de conformidad con el artículo 272 de la Ley general de la Administración Pública. En este procedimiento será de aplicación obligatoria el principio de verdad real.
+Vencido el emplazamiento anterior, se dará traslado por cinco días hábiles al denunciante, para que manifieste lo que, en derecho, corresponda sobre lo alegado por el denunciado.
+Vencido el término anterior, se citará a las partes a una audiencia, que deberá celebrarse dentro de los quince días hábiles siguientes, después de vencido el último emplazamiento, con el fin de evacuar las pruebas ofrecidas por ellas. La Secretaría del Tribunal de Honor deberá levantar un acta detallada de lo manifestado en la audiencia.
+Terminada la evacuación de la prueba, se permitirá alegar de bien probado a las partes o sus representantes, y se cerrará la vista. Dentro de los tres días hábiles siguientes, el Tribunal de Honor deberá emitir la correspondiente resolución motivada, so pena de nulidad. Para lo que no se estipule de modo expreso en este procedimiento, se aplicará, supletor iamente, en tanto no sea incompatible con la presente normativa, la Ley general de la Administración Pública.
+Contra los fallos del Tribunal de Honor procede recurso de revocatoria y de apelación ante la Junta Directiva. Cada recurso deberá ser interpuesto por las personas interesadas, dentro de los quince días hábiles siguientes a la fecha de la notificación de la resolución final.

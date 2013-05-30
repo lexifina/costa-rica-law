@@ -1,0 +1,1 @@
+Artículo 37.—Integración. Los miembros de las comisiones serán nombrados por la Junta Directiva, entre los profesionales de nutrición destacados en el área objeto de conocimiento de la respectiva comisión.

@@ -1,0 +1,1 @@
+Artículo 9º—Ejercicio de la profesión en Nutrición. Ninguna persona podrá ejercer en Costa Rica la profesión en Nutrición Humana, Nutrición y Dietética o Dietista, sin que haya cumplido con el requisito de incorporación al Colegio.
