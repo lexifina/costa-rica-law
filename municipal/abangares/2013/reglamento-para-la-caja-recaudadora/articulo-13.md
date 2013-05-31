@@ -1,0 +1,1 @@
+Artículo 13.—Todo los cajeros (as) y sus suplentes deberán contar con una Póliza de Fidelidad otorgada por el Instituto Nacional de Seguros, cuyo monto lo fijara este de acuerdo con sus disposiciones internas.

@@ -1,0 +1,1 @@
+Artículo 26.—Los cajeros (as) deberán endosar los cheques a favor de la Municipalidad con el sello donde se indica la cuenta de la Municipalidad de Abangares a depositar, además del número de teléfono del contribuyente. El pago mediante cheque queda sujeto hasta que se haga efectivo.

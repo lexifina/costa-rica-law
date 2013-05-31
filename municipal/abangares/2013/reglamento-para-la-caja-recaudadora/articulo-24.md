@@ -1,0 +1,1 @@
+Artículo 24.—Las cajas recaudadoras municipales, contarán en lo posible con una caja metálica donde el cajero(a) pueda custodiar el dinero y valores que por sus funciones tenga en su poder en las horas hábiles, fuera de estas solo quedaran en custodia el fondo fijo de caja y los valores mismos que deberán resguardarlos en la caja fuerte de su oficina.

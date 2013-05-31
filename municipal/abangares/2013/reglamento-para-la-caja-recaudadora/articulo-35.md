@@ -1,0 +1,1 @@
+Artículo 35.—La Municipalidad de Abangares pagará póliza gestionada ante el Instituto Nacional de Seguros, dicha póliza cubrirá robo, daños y perjuicios, para quien transporta el dinero de la Municipalidad de Abangares.

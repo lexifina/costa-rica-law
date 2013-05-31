@@ -1,0 +1,1 @@
+Artículo 16.—En el evento de que la recaudación supere el 50% de la Póliza de Fidelidad antes de la hora fijada para el cierre diario, los cajeros (as) deberán hacer el corte y enviar la remesa al Departamento de Tesorería practicando lo indicado en el artículo cuatro (4).

@@ -1,0 +1,1 @@
+Artículo 29.—Los cajeros (as) deben revisar diariamente los depósitos realizados mediante transferencia correspondientes a pagos de impuestos, tasas, alquileres u otros ingresos que los contribuyentes adeudan a las cuentas de la Municipalidad de Abangares, y verificar según el artículo veintisiete (27) y artículo veintiocho (28) para la debida emisión del recibo de pago.

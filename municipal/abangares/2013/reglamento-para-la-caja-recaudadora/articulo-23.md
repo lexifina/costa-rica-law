@@ -1,0 +1,1 @@
+Artículo 23.—Las cajas recaudadoras estarán ubicadas siempre en edificios o instalaciones de la Institución, en lugares de fácil acceso para los usuarios, pero que a la vez proporciones cierto grado de seguridad o según quede previamente establecidos en convenios según el artículo veintidós (22).

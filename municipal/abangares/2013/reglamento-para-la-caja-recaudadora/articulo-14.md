@@ -1,0 +1,1 @@
+Artículo 14.—La ausencia del cajero(a) debe suplirla el primer suplente y en ausencia de este lo hará el segundo suplente, estos funcionarios serán adiestrado para este fin y deberán contar con Póliza de Fidelidad o rendir garantía fiduciaria.

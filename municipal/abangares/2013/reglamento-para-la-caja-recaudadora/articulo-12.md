@@ -1,0 +1,1 @@
+Artículo 12.—El Alcalde (sa) Municipal será responsable de designar los funcionarios que suplirán al cajero en sus ausencia con funcionarios de otros departamentos de la municipalidad debidamente capacitados o con experiencias previas, para que suplan al cajero(a) o siguiendo los procedimientos en materia de contratación de personal.

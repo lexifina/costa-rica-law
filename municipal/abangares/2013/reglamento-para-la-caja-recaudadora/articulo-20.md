@@ -1,0 +1,1 @@
+Artículo 20.—El descubrimiento de faltantes de efectivo de la Caja recaudadora por parte del tesorero(a) tendrá que ser notificado inmediatamente, al Departamento de Recursos Humanos para lo que proceda.

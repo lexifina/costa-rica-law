@@ -1,0 +1,1 @@
+Artículo 19.—Los cajeros (as) que no cubran un faltante del efectivo de su Caja dentro del plazo establecido en el artículo anterior, incurre en responsabilidad patronal y podrá ser cesado de sus funciones.

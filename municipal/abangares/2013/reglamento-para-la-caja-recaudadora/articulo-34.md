@@ -1,0 +1,1 @@
+Artículo 34.—El Alcalde (sa) Municipal deberá de designar la persona que se encargará de realizar los depósitos al buzón nocturno del Banco, así como realizar los cambios de denominaciones tanto en monedas como en billetes.

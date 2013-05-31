@@ -1,0 +1,1 @@
+Artículo 3°—Los Cajeros (as) digitarán e imprimirán el comprobante de ingreso en original y copia, revisan la consecutividad numérica del comprobante, los sellan, firman, recaudan y entregan el original cancelado al contribuyente.

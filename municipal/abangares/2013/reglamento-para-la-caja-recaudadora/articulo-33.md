@@ -1,0 +1,1 @@
+Artículo 33.—El monto del fondo fijo para el cajero y suplente puede ser aumentado por acuerdo del Consejo Municipal, debe ser solicitado por el Alcalde (sa) Municipal previa recomendación de la Tesorería Municipal, para que el cajero, y el suplente puedas desenvolverse en sus labores cotidianas.

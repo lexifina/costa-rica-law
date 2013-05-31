@@ -1,0 +1,1 @@
+Artículo 27.—Cualquier funcionario que dé información a los contribuyentes sobre su estado de cuenta deberá ser impresa y remitida a la Caja Recaudadora la cual debe estar firmada por el funcionario que atendió la consulta. Dicha información el cajero(a) deberá archivarla, y mantenerla disponible para posibles depósitos a las cuentas de la Municipalidad de Abangares.

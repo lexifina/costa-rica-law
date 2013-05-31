@@ -1,0 +1,1 @@
+Artículo 6°—Al final del día los cajeros (as) imprimirá un listado de los comprobantes de ingreso emitidos, entregarán este listado y los comprobantes de ingreso al Tesorero(a) para su revisión, quien además de verificar todo lo indicado en el artículo cuatro (4).

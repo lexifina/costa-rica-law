@@ -1,0 +1,1 @@
+Artículo 28.—Los cajeros (as) cuando no se encuentren atendiendo la Caja Recaudadora deberán ser solidarios en las demás áreas atendiendo al contribuyente brindando estados de cuenta, que deberá llevarse el mismo proceso según el artículo veintisiete (27), y orientado al contribuyente sobre su trámite con los encargados de las diferentes áreas.
