@@ -1,0 +1,1 @@
+Artículo 3º—Obligaciones del jugador. El jugador es responsable de verificar, en el momento de realizar la transacción (ya sea por tarjeta de jugada o al pedir directamente al operador de la terminal en línea para su introducción manual), que los datos de la apuesta sean correctos conforme lo establecido en el presente Reglamento.
