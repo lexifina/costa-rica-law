@@ -18,3 +18,4 @@ Lineamientos Generales para la Aplicación del Reglamento sobre la Suficiencia P
 | 3 | 2008-01-08 | Acuerdo 7 (2008-01-08) |
 | 4 | 2011-01-28 | Acuerdo 3 (2011-01-28) |
 | 5 | 2011-06-06 | Acuerdo 9 (2011-06-06) |
+| 6 | 2013-06-03 | Acuerdo 2 (2013-06-03) |
