@@ -1,0 +1,1 @@
+2) Al momento de proceder a incluir la información de dicho trámite en la base de datos del Registro de la Propiedad Industrial, el digitador a cargo deberá consignar una nota en los movimientos subsiguientes al inicial, donde se indique expresamente que estos se encuentran relacionados al primero.

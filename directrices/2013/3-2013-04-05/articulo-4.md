@@ -1,0 +1,1 @@
+4) Todos los autos o resoluciones a realizarse en el trámite de la gestión, para efectos del Sistema (IPAS) deberán de incluirse únicamente en la cronología del movimiento inicial, con la salvedad de la emisión de edictos o asentamientos, en cuyo caso deberá de aplicarse el evento en la cronología de la anotación correspondiente y dejar la respectiva referencia en el principal.
