@@ -1,4 +1,6 @@
+(Revocada)
 COLEGIO DE ABOGADOS DE COSTA RICA
+(Esta norma fue revocada mediante sesión ordinaria N° 19-13 del 3 de junio del 2013)
 DEPARTAMENTO DE PROVEEDURÍA
 La Junta Directiva del Colegio de Abogados y Abogadas, sesión ordinaria 12-13 del ocho de abril 2013, acuerdo en firme:
 “Se acuerda 2013-12-004 a) Modificar el artículo 2° del Reglamento del Curso de Deontología Jurídica, para que se lea como sigue: Todas aquellas personas graduadas de la carrera de Derecho de Universidades debidamente reconocidas por el Consejo Nacional de Rectores (CONARE) y Consejo Nacional de Enseñanza Superior Privado (CONESUP) deberán cumplir y aprobar el Curso como requisito obligatorio para su incorporación al Colegio.

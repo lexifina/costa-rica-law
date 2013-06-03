@@ -14,3 +14,4 @@ Reforma Reglamento Curso de Deontología Jurídica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-08 | la propia norma |
+| 2 | 2013-06-03 | Reglamento 19 (2013-06-03) |
