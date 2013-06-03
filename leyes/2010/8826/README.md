@@ -1,6 +1,6 @@
 # Reforma Ley Reguladora Transporte Remunerado Personas Vehículos Automotores
 
-Ley N° 8826 del 2010-05-05. SINALEVI, ficha 67948: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=67948&param2=80721&param3=1>.
+Ley N° 8826 del 2010-05-05. SINALEVI, ficha 67948: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=67948&param2=92758&param3=1>.
 
 Publicada en La Gaceta N° 92 del 2010-05-13.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 2010-05-13 | Ley 8826 | 2010-05-05 |
+| 2 de 2 | 2013-06-03 | Acuerdo 0 (2013-05-13) | 2013-05-13 |
