@@ -1,0 +1,2 @@
+Artículo 32. Del Consejo de la Sutel.
+La Sutel está a cargo de un Consejo integrado por tres miembros propietarios. De entre sus miembros le corresponde al presidente la representación judicial y extrajudicial de la superintendencia; para lo cual tendrá facultades de apoderado generalísimo sin límite de suma; así como ejercer las facultades de organización y coordinación del funcionamiento del órgano que le asigne el Consejo.

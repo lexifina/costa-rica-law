@@ -1,0 +1,3 @@
+Artículo 45. De la Dirección General del Fondo Nacional de Telecomunicaciones.
+Es responsable de administrar y gestionar proyectos específicos en telecomunicaciones para procurar el acceso universal. Le corresponde evaluar el impacto de esos proyectos y coordinar con las organizaciones que desarrollan proyectos en áreas determinadas como prioritarias.
+Depende directamente del Consejo. Está conformada además por una unidad administrativa en materia de Administración y Control del Fondo.

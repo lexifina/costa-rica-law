@@ -1,0 +1,2 @@
+Artículo 5. Competencias de organización.
+Es competencia de la Junta Directiva establecer y modificar la organización de la Aresep y sus órganos desconcentrados. El Regulador General, el Consejo de la Sutel y el Auditor Interno podrán proponer a la Junta Directiva cambios organizativos que consideren pertinentes para el mejor cumplimiento de sus funciones. Las propuestas se deben sustentar en estudios técnicos que garanticen la integridad y eficiencia de los procesos y el cumplimiento de los objetivos institucionales.
