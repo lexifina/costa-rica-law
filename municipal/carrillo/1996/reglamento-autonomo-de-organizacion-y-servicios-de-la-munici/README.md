@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Carrill
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-08-09 | la propia norma |
+| 2 | 2013-06-04 | Reglamento municipal 23 (2013-06-04) |
