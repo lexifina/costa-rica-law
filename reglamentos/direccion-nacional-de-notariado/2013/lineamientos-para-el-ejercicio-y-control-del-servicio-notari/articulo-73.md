@@ -1,0 +1,1 @@
+Artículo 73. Excusa del notario. Cuando surja una causa justa, moral o legal, que le impida al notario continuar tramitación del expediente, éste lo hará constar así mediante resolución fundada y ordenará remitir los autos a la autoridad judicial competente.

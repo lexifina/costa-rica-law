@@ -1,0 +1,1 @@
+Transitorio 2. Para efectos del notario institucional, el concepto o definición de “parte” definido mediante reglamentación emitida por la Directriz del Consejo Superior Notarial número D-CSNDNN 01-2012, no será aplicado hasta tanto se resuelva definitivamente el cuestionamiento planteado ante los Tribunales de Justicia.

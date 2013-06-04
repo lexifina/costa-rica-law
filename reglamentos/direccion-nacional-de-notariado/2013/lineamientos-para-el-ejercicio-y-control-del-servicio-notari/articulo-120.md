@@ -1,0 +1,3 @@
+Artículo 120. Del proceso de control.
+1. La Dirección Nacional de Notariado registrará en el Registro de Notarios, los aportes al Fondo que realicen los notarios, conforme la información que remita la entidad encargada de manejar los fondos. Con base en esa información iniciará los procesos de inhabilitación respecto de los notarios morosos.
+2. La Dirección Nacional de Notariado publicará oportunamente las listas de notarios con morosidad en el Fondo de Garantía y dispondrá la prevención de pago, por cualquier medio de comunicación colectiva, masiva o no, incluyendo vía telefónica, correo electrónico o fax, registrados por el notario en el Registro de Notarios.

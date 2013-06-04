@@ -1,0 +1,1 @@
+Artículo 3. Obligación de servicio y rogación. A solicitud del interesado, es obligación del notario brindar el servicio, dentro del marco de la legalidad, razonabilidad y proporcionalidad, salvo excusa justa, moral o legal.

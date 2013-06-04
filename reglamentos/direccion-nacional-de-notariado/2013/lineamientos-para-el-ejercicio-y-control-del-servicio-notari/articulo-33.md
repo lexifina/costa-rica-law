@@ -1,0 +1,1 @@
+Artículo 33. Firma y sello blanco. El sello debe contener el nombre completo y apellidos sin abreviaturas, número de carné de profesional, la frase “Notario Público” y al igual que la firma, estar registrados ante la Dirección Nacional de Notariado y las demás instituciones públicas que así lo requieran.

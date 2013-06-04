@@ -1,0 +1,1 @@
+Artículo 100. Plazo de reposición. Transcurrido el mes a que se refiere el artículo 64 del Código Notarial se dará por concluida la reposición con el material aportado a la fecha mediante razón al efecto. Lo anterior sin perjuicio de que ese plazo se extienda hasta seis meses según lo dispuesto por el artículo 66 del código citado.

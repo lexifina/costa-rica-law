@@ -1,0 +1,1 @@
+Artículo 14. Razón. La razón de certificación contendrá el nombre completo y apellidos del fedatario, lugar de oficina, fecha y hora de expedición, e indicar si se trata de una certificación literal, en lo conducente, en relación o si son fotocopias.

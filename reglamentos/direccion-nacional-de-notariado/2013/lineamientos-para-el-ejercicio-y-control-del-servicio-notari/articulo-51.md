@@ -1,0 +1,1 @@
+Artículo 51. Expedición de testimonios. Cualquiera de los notarios autorizantes puede expedir testimonios o reproducciones del documento matriz. Para ese efecto, el fedatario debe utilizar sus propios mecanismos de seguridad notarial establecidos en estos Lineamientos y cumplir con todo lo definido en ellos.

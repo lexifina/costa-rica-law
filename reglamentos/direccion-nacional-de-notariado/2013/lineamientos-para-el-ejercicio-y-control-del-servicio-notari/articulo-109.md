@@ -1,0 +1,1 @@
+Artículo 109. Suscripción del Contrato. Todo notario que desee ejercer la función notarial debe suscribir el contrato respectivo con la Operadora del Fondo designada, en cuyo caso se le consignará una cuenta individual que se manejará como fondo de capitalización, donde podrá designar sus beneficiarios en caso de fallecimiento.

@@ -1,0 +1,1 @@
+Artículo 27. Autenticación de firmas o huellas. La autenticación de firmas o huellas es una actuación en la que el notario debe utilizar sus mecanismos de seguridad. El notario debe dar fe que la firma o huella fueron estampadas en su presencia. En el caso de la huella digital consignar expresamente a cuál dedo y extremidad corresponde.

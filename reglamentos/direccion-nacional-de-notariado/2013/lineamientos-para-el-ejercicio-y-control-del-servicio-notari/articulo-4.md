@@ -1,0 +1,1 @@
+Artículo 4. Imparcialidad. El notario público debe actuar de manera objetiva e imparcial en relación con las personas que intervengan en los actos o contratos otorgados, apegado a los valores de integridad, coherencia, honestidad y transparencia.

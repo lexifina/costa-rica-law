@@ -1,0 +1,1 @@
+Artículo 6. Competencia del notario institucional. El notario institucional solamente está facultado para autorizar actos o contratos en que sea parte la institución para la que labora. No podrá brindar servicio privado, ni cobrar honorarios.

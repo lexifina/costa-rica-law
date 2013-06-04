@@ -1,0 +1,1 @@
+Artículo 70. Protocolización de piezas. Las protocolizaciones de piezas del expediente tramitado en actividad judicial no contenciosa, podrán ser llevadas a cabo por el notario tramitador del expediente u otro a elección de parte. Los honorarios por dichas actuaciones serán independientes a los generados por el trámite del proceso al que se refieren.

@@ -1,0 +1,1 @@
+Artículo 37. Documentos dirigidos al exterior. El fedatario está obligado a consignar en toda solicitud de autenticación de firma de documentos destinados al exterior la razón notarial correspondiente, su hora y fecha y cumplir con las formalidades requeridas para los documentos notariales, sean o no asentados en el protocolo.

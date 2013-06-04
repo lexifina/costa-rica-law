@@ -1,0 +1,1 @@
+Artículo 99. Razón. En todas las reposiciones, sean totales o parciales, la Dirección Nacional de Notariado deberá consignar la razón respectiva. En el caso de reposiciones totales, esa razón se hará constar al inicio del tomo repuesto. En el caso de reposición parcial, la razón deberá ser consignada al momento de materializarse la misma.

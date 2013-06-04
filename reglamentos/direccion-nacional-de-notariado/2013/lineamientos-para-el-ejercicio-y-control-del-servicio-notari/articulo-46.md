@@ -1,0 +1,1 @@
+Artículo 46. Razón de apertura. La razón de apertura del protocolo consular, consignará el nombre del notario consular, número de tomo consecutivo por consulado, la circunscripción territorial en que ejerce, así como todas aquellas circunstancias que por su naturaleza sean pertinentes.

@@ -1,0 +1,1 @@
+Artículo 7. Honorarios. Es obligación para los notarios cobrar los honorarios de conformidad con lo dispuesto en el Código Notarial y el Arancel respectivo, y les queda prohibido transar en esta materia. Se excluyen de esta disposición los notarios consulares, los de la Notaría del Estado y los Institucionales.

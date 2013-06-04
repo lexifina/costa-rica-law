@@ -1,0 +1,1 @@
+Artículo 90. Sobreimpresión en la razón. La sobreimpresión de instrumentos en la razón de apertura es causa de invalidez del documento y de la razón. El notario deberá solicitar a la Dirección Nacional de Notariado la reproducción de la razón respectiva en ese tomo de protocolo.

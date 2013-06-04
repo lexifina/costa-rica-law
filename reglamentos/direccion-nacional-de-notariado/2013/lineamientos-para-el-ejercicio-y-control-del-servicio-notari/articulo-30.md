@@ -1,0 +1,1 @@
+Artículo 30. Uso de papel de seguridad. Las actuaciones notariales que reproducen el contenido protocolar - testimonios de escritura - y los emitidos en virtud de la potestad certificadora depositada en el notario, deben plasmarse en papel de seguridad salvo norma o disposición en contrario. Su uso es personalísimo y obligatorio.

@@ -1,0 +1,1 @@
+Artículo 92. Gestión de depósito o recuperación. El notario debe depositar su protocolo en los casos en que se encuentre suspendido, inhabilitado o cuando se ausente del país por un lapso superior a tres meses.

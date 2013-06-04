@@ -1,0 +1,1 @@
+Artículo 16. Certificación de copias. En los casos en que se certifiquen copias como fieles y exactas de los originales, cada copia deberá ser numerada y contar con la firma y el sello del notario, haciendo constar en la razón de certificación la cantidad de copias y una descripción sucinta del contenido del documento.

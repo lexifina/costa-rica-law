@@ -1,0 +1,1 @@
+Artículo 45. Responsabilidad del notario consular. Los Cónsules, en su ejercicio notarial, deben vigilar y atender todas las disposiciones, prohibiciones y demás estipulaciones que asuman los notarios en el ejercicio pleno, estando además sujetos a la fiscalización y por ende, expuestos al régimen disciplinario ante un eventual incumplimiento de sus deberes.

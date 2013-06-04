@@ -1,0 +1,4 @@
+Artículo 48. Obligaciones como notario. Compete al Notario Consular:
+a) Conservación y uso del tomo de protocolo. Es el responsable de custodiar su tomo de protocolo y tomará todas las medidas que sean necesarias para que se mantenga en perfecto estado de conservación y limpieza.
+b) Presentación de índices. Deberá ajustarse a las disposiciones contenidas en el Código Notarial, así como a los acuerdos que sobre el particular tome la Junta Administrativa del Archivo Nacional.
+c) Archivo de referencias y de escrituras autorizados. Debe tener un archivo de referencias de los documentos que sirvieron de referencia para las actuaciones, así como un archivo de copias de las escrituras por él autorizadas. Dichos archivos en caso de concluir sus funciones quedarán en custodia del respectivo consulado para los requerimientos que a futuro se presenten.

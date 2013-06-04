@@ -1,0 +1,1 @@
+Artículo 53. Índices. Las escrituras autorizadas en conotariado, deben ser reportadas en el índice del notario en cuyo protocolo se asentó el instrumento, de conformidad con el Reglamento para la presentación de Índices del Archivo Nacional.

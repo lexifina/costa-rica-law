@@ -1,0 +1,1 @@
+Artículo 105. Excepción de pago del fondo. Los notarios que se encuentren inhabilitados o suspendidos por cualquier causa, se exceptúan de la obligación de pagar la cuota del Fondo de Garantía mientras se encuentren en dicha condición.

@@ -1,0 +1,7 @@
+TÍTULO IX
+MEDIDAS CAUTELARES
+Artículo 101. Medidas cautelares.
+1. Resolución y Alcances. Conforme a los artículos 21 y 22 del Código Procesal Administrativo, mediante resolución razonada del Director Ejecutivo de la Dirección Nacional de Notariado, o de quien lo sustituya, se podrán acordar y ejecutar las medidas cautelares adecuadas y necesarias que se estimen oportunas en casos que así lo justifiquen, para proteger y garantizar a las partes de la escritura o a terceros que eventualmente podrían ser perjudicados. Las medidas cautelares podrán contener la conservación del estado de cosas, o bien efectos anticipativos, mediante la regulación o satisfacción temporal de una situación fáctica o jurídica sustancial.
+2. Finalidad: Su finalidad es impedir el otorgamiento de documentos notariales en estado irregular o la autorización de actos o contratos absolutamente nulos y su eventual presentación a los registros públicos.
+3. Tipos: Entre las medidas cautelares que puede aplicar la Dirección Nacional de Notariado están: a) recuperación del tomo de protocolo, b) decomiso de papel notarial y boletas de seguridad, c) inhabilitación cautelar del notario, d) inactivación en el sistema de información. Se aplicarán a aquellos notarios que presuntamente han cometido actos ilícitos, contrarios a la fe pública, o estén en una situación de hecho, que eventualmente los inhabilitaría para el ejercicio del notariado.
+4. Plazo de la medida cautelar: La medida cautelar tendrá una duración de hasta seis meses, pudiendo renovarse por una sola vez por un período igual.

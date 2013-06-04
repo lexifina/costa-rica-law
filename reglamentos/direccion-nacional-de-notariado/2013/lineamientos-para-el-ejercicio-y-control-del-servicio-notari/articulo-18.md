@@ -1,0 +1,1 @@
+Artículo 18. Territorialidad. El Código Notarial establece la facultad certificadora sin ninguna limitación, por lo que el notario costarricense puede trasladarse al extranjero o dentro del país y puede certificar, ya sea con vista en una fuente física o informática, siempre y cuando el acto o contrato tenga efectos en Costa Rica.

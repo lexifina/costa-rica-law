@@ -1,0 +1,4 @@
+TÍTULO III
+DOCUMENTOS NOTARIALES
+CAPÍTULO I
+Artículo 11. Papel a utilizar. Tamaño de letra. En la expedición de cualquier documento notarial, el notario utilizará su papel de seguridad. El Consejo Superior Notarial podrá autorizar el uso de formularios o documentos electrónicos. Para compensar el costo del servicio que brinda la Dirección Nacional de Notariado por el no uso del papel notarial, el Consejo fijará el monto a pagar. El Consejo Superior Notarial determinará las características físicas y de seguridad que deba cumplir. En la elaboración de todos los documentos notariales, tanto protocolares como extra protocolares, con el fin de garantizar que el contenido sea legible, y cuando se utilicen medios mecánicos, los caracteres con los que se imprima el texto, serán como mínimo del tamaño diez y se sugiere utilizar tipo de letra Arial, Times New Roman o Calibri.

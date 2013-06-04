@@ -1,0 +1,1 @@
+Artículo 52. Derechos y responsabilidades. Los conotarios comparten los derechos y beneficios prácticos y las responsabilidades que esa actuación entraña. La actuación conotariada no alcanza a individualizar ni a exonerar de responsabilidades a alguno de los autorizantes, excepto cuando los hechos revelen que las faltas u omisiones sean imputables sólo a uno o más de ellos.

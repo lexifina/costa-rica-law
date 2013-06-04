@@ -1,0 +1,1 @@
+Artículo 13. Ámbito. La autorización del notario para extender certificaciones se constriñe alámbito documental o asientos informáticos, por lo que no es posible la certificación de manifestaciones verbales o acontecimientos observados, pues para ello la legislación ha reservado el acta notarial.

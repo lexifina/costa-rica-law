@@ -1,0 +1,1 @@
+Artículo 63. Normas procesales aplicables. La tramitación del proceso se hará siguiendo los mismos procedimientos establecidos en la ley para los Tribunales de Justicia, en lo que resulte jurídicamente aplicable.

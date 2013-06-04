@@ -1,0 +1,1 @@
+Artículo 58. Requerimiento de servicios. La solicitud de intervención notarial será formulada por la parte con interés legítimo, ya sea en forma personal o mediante mandatario con facultades suficientes para ello. El requerimiento de los servicios será el escrito inicial del expediente.

@@ -1,0 +1,1 @@
+Artículo 82. Programa. La fiscalización de las notarías se realizará de conformidad con el programa establecido por la Dirección Ejecutiva, salvo denuncias concretas o casos en los que de oficio deba intervenirse.

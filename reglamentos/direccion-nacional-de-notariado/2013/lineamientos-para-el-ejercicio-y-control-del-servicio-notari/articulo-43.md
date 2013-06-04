@@ -1,0 +1,1 @@
+Artículo 43. Transitoriedad del notariado consular. El ejercicio del notariado consular está sujeto a la duración del nombramiento, lo que lo hace transitorio, motivo por el cual el notario consular aunque se encuentra inscrito en el Registro de Notarios, no procede en su caso extenderle credencial.

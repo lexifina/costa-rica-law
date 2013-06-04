@@ -1,0 +1,1 @@
+Artículo 54. Presentación de documentos. La presentación de documentos que por ley deben acompañar al índice respectivo, corresponderá al notario en cuyo protocolo se asentó el acto o contrato. Lo anterior no exonera de la responsabilidad a quienes participan en el acto como conotarios, de velar porque éste cumpla con los requerimientos legales que el acto notarial conlleva.

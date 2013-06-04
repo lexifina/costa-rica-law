@@ -1,0 +1,1 @@
+Artículo 20. Plazo de vigencia. La certificación notarial mantendrá su vigencia por el plazo de un mes contado a partir de su expedición, o antes si los datos que la sustentan han variado. Para variar el plazo de un mes antes fijado, la entidad pública ante quien ha de hacerse valer o utilizarse la certificación, debe haberlo previamente publicado, conforme la Ley número 8220.

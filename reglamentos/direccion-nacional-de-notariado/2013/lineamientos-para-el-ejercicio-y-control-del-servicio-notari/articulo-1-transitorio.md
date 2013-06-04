@@ -1,0 +1,2 @@
+Transitorio 1. La disposición contenida en el artículo 11 (*) de estos lineamientos respecto al tamaño de la letra en los protocolos, empezará a exigirse para aquellas escrituras cuya fecha de otorgamiento sea a partir del mes siguiente a la entrada en vigencia de estos Lineamientos.
+(*)(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 109 del 7 de junio del 2013, página 47. Anteriormente se indicaba: artículo 13)

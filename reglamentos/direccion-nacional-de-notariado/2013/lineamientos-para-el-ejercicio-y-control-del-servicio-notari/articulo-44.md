@@ -1,0 +1,1 @@
+Artículo 44. Traslado del notario consular. En caso de que el notario consular sea trasladado a servir en un Consulado diferente, deberá observar el procedimiento ordinario de cierre de su protocolo en uso y solicitará la entrega de un nuevo tomo de protocolo en donde se hará constar su nueva jurisdicción.

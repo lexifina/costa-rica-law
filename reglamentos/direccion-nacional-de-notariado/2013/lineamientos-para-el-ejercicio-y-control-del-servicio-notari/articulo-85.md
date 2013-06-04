@@ -1,0 +1,1 @@
+Artículo 85. Control del notario institucional. El control de los notarios institucionales se efectuará en las oficinas públicas y estará dirigido al cumplimiento del ejercicio exclusivo para la institución para la cual brindan sus servicios y sujeto a los presupuestos mediante los cuales se autorizó ese ejercicio.

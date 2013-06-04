@@ -1,0 +1,1 @@
+Artículo 38. Rechazo de trámite. Se rechazará la solicitud de aquellos notarios que no estén al día en sus deberes funcionales y no paguen el costo del servicio señalado por el Consejo Superior Notarial.

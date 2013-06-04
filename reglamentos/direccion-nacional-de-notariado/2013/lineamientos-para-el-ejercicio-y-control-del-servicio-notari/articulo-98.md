@@ -1,0 +1,1 @@
+Artículo 98. Folios con texto de “no corre” o “anulado”. Cuando se trate de folios con texto de no corre o anulado, no se repone el contenido de dichos folios en razón de que no son instrumentos autorizados. Para los efectos respectivos el notario deberá cumplir con lo indicado en el artículo anterior.

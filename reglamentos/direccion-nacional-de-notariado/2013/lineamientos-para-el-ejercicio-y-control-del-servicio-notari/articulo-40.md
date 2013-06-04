@@ -1,0 +1,1 @@
+Artículo 40. Sujeción a leyes y reglamentos. El notario consular está sujeto a todo lo dispuesto en el Código Notarial, por el Consejo Superior Notarial, así como al ordenamiento jurídico nacional, los convenios internacionales en materia consular y a cualquier otra disposición legal que el acto o contrato exija.

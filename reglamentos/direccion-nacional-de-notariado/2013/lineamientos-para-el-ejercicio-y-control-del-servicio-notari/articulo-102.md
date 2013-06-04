@@ -1,0 +1,1 @@
+Artículo 102. Apelación. La medida cautelar tendrá apelación, dentro de los cinco días hábiles siguientes, ante el Consejo Superior Notarial, que deberá resolver dentro del mes siguiente a la recepción del expediente. La interposición del recurso de apelación no interrumpirá la ejecución de la medida.

@@ -1,0 +1,1 @@
+Artículo 2. Función Notarial. Concepto. La función notarial es una potestad estatal delegada. Representa una asesoría que tiende a la correcta formación y expresión legal de la voluntad del usuario. Tiene como fin la legitimación de actos y contratos que el Estado reconoce como tales cuando interviene un notario habilitado a rogación de parte.

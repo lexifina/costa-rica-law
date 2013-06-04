@@ -1,0 +1,2 @@
+CAPÍTULO III
+Artículo 9. Abstención y entrega del protocolo. La suspensión del ejercicio del notariado por aplicación del régimen disciplinario por parte de la Dirección Nacional de Notariado, de los Tribunales Notariales, o cuando sobrevenga inhabilitación legal, obliga al notario a la abstención de prestación del servicio y a la inmediata entrega del tomo del protocolo en uso a la autoridad correspondiente.
