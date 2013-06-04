@@ -1,1 +1,0 @@
-Artículo 40.—El Centro Infantil Modelo Belemita respetará y aplicará tanto el Código de la Niñez y la Adolescencia, como la Ley Nº 7600 “Ley de Igualdad de Oportunidades para las Personas con Discapacidad”, así como los compromisos municipales en materia de Igualdad y equidad de género.

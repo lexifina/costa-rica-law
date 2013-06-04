@@ -1,1 +1,0 @@
-Artículo 48.—Para poder disfrutar del servicio, la mensualidad deberá ser cancelada por el padre, la madre o representante legal del niño (a) los primeros 8 días del mes. Después de 20 días de atraso se suspenderá el servicio.

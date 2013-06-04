@@ -1,1 +1,0 @@
-Artículo 23.—Derechos del personal administrativo, personal y asistentes docentes y personal de servicios generales de apoyo. En lo aplicable tendrán los derechos y beneficios establecidos en el Código Municipal y Estatuto Autónomo de Organización y Servicios de la Municipalidad de Belén.

@@ -1,1 +1,0 @@
-Artículo 49.—El pago deberá realizarse por los medios que al efecto establezca la Administración del Centro. El representante del alumno(a) deberá presentar el comprobante de pago con el sello respectivo emitido por la entidad financiera autorizada, y una vez avalado el mismo la Administración del Centro procederá a extender el recibo de pago correspondiente.

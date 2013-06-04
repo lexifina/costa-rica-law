@@ -1,1 +1,0 @@
-Artículo 22.—Deberes del personal de servicios generales de apoyo. El personal de servicios generales de apoyo estará a las órdenes y disposición de la Administración del Centro y deberá ejecutar las actividades propias de la naturaleza del cargo.

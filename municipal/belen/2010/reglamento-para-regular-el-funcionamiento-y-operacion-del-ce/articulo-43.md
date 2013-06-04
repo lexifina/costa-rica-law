@@ -1,1 +1,0 @@
-Artículo 43.—La información de ingresos reportados por los padres, madres o representantes legales interesados en que su hijo (a) sea matriculado en el Centro Infantil, será refrendada por una persona profesional en Trabajo Social mediante estudio socioeconómico.

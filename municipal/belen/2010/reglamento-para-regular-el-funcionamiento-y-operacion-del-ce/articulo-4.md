@@ -1,1 +1,0 @@
-Artículo 4º—Durante el proceso de matrícula, el Centro Infantil Modelo Belemita brindará en forma escrita, veraz, suficiente y apropiada, la información sobre las condiciones económicas a las que se ajustará la prestación del servicio que regula este Reglamento.

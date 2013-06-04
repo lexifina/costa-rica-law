@@ -1,1 +1,0 @@
-Artículo 39.—El Centro Infantil Modelo Belemita velará por cumplir con la Ley General de Centros de Atención Integral Nº 8017, y el Reglamento a la Ley General de Centros de Atención Integral 29580-S.

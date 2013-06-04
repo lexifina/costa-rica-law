@@ -1,1 +1,0 @@
-Artículo 14.—El alumnado, será estimulado de diversas formas, de acuerdo al aprovechamiento, comportamiento, desarrollo de aptitudes, actitudes y valores, así como por acciones, que puedan desprenderse con el paso del tiempo.
