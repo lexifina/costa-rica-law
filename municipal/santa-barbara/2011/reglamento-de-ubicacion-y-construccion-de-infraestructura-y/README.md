@@ -14,3 +14,4 @@ Reglamento de Ubicación y Construcción de Infraestructura y Otros Dispositivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-04 | la propia norma |
+| 2 | 2013-06-04 | Reglamento municipal 162 (2013-06-04) |
