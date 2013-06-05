@@ -1,1 +1,0 @@
-Artículo 5º—Creación de la Comisión Técnica de Innovación Nacional. Créase la Comisión Técnica de Innovación Nacional, que en forma abreviada se conocerá como COTIN. El Secretario (a) Técnico de Innovación fungirá como Coordinador(a) General en las áreas sectoriales de cuatro hélices del desarrollo: industria, academia, gobierno y sociedad, que integran esta Comisión.

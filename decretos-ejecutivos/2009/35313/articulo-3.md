@@ -1,1 +1,0 @@
-Artículo 3º—Objetivo del Consejo Nacional de Innovación. El CNI se encargará de recomendar las políticas, acciones y planes políticos necesarios para lograr un mayor desarrollo de la innovación en Costa Rica.
