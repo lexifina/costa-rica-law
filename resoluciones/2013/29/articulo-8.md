@@ -97,7 +97,7 @@ Instituto Nacional de Seguros (INS) | 450.338,2 | A
 INSurance Servicios S.A. | 4.005,1 | E
 INS-Sociedad Administradora de Fondos de Inversión S.A. | 584,8 | H
 INS-Valores Puesto de Bolsa S.A. | 933,5 | G
-Instituto Costarricense de Acueductos y Alcantarillados (ICAA) | 66.151,3 | B
+Instituto Costarricense de Acueductos y Alcantarillados (ICAA) | 83.018,9 (Así reformado el punto anterior mediante resolución N° R-DC-071-2013 del 5 de junio del 2013) | A (Así reformado el punto anterior mediante resolución N° R-DC-071-2013 del 5 de junio del 2013)
 Instituto Costarricense de Electricidad (ICE) | 948.337,9 | A
 Instituto Costarricense de Ferrocarriles (INCOFER) | 6.384,1 | E
 Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA) | 425,5 | H
