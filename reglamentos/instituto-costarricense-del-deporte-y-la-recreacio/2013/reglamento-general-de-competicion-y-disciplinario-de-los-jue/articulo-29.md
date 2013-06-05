@@ -1,0 +1,9 @@
+ARTÍCULO 29 REQUISITOS DE LA DENUNCIA
+Toda denuncia ante el Departamento de Juegos Deportivos Nacionales debe cumplir con los siguientes requisitos:
+29.1 Ser presentada por escrito a máquina (o equipo similar) adjuntado tantas copias por cada Comité Cantonal involucrada y Federación o Asociación Nacional ante el Dpto. de Juegos Deportivos Nacionales que el ICODER señale como sede en las diferentes etapas en horario laboral. Entiéndase como horario laborar en la Etapa Eliminatoria de Lunes a Viernes de 8:00 a 16:00 horas y en la Etapa Final en horario de Oficina de 8:00 a 20:00 horas. Igualmente podrá remitir vía correo electrónico el expediente debidamente escaneado y resguardado en formato pdf a la dirección de correo electrónico del Dept.de Juegos Deportivos Nacionales en plazo, confirmando al menos vía telefónica la remisión del mismo. La denuncia debe ser presentada ante la instancia correspondiente dentro de los siguientes tres días hábiles de haberse cometido la infracción o de haberse recibido la notificación de la Asociación o Federación sobre el hecho a denunciarse. (Reformado CNDR 597-2008).
+29.2 Especificar el nombre de la Comité Cantonal que interpone la denuncia, la calidad del denunciante que interpone y el nombre de la Comité Cantonal contra quién se hace la denuncia.
+29.3 Relación detallada, clara y precisa de los hechos en que se funde, numerados y bien especificados, señalando la normativa infringida (indicar articulado y numerales).
+29.4 Aportar la prueba documental y ofrecer la testimonial en la cual se fundamente o compruebe la falta señalada, así como los hechos sobre los cuales declararán los testigos ofrecidos.
+29.5 Señalar la petitoria final.
+29.6 Indicación de un correo electrónico para escuchar notificaciones en cualquier lugar del territorio nacional.
+29.7 Firmada por el Delegado General o Subdelegado y por el entrenador de la Comité Cantonal denunciante.
