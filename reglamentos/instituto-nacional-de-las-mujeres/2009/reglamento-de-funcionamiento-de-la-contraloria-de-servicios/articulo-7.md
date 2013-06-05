@@ -1,1 +1,0 @@
-Artículo 7º—Procedimiento de recepción y resolución de solicitudes, y sugerencias. De toda solicitud o sugerencia presentada ante la Contraloría de Servicios se dará una respuesta razonada y fundamentada legalmente. Dicha respuesta será firmada por la Presidencia Ejecutiva.
