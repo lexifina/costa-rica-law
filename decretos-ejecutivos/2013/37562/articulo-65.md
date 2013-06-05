@@ -18,6 +18,7 @@ Cirugía Gastroenterológica. | Artículo No. 78
 Coloproctología. | Artículo No. 79
 Subespecialidad de la Cirugía Pediátrica |
 Oncología Quirúrgica Pediátrica. | Artículo No. 81
+Suespecialidad de Cirujía en Mano (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2013-06-05 del 5 de junio del 2013) | Cirugía de Mano: Requisitos específicos a. Estar debidamente inscrito y acreditado como Especialista en Ortopedia y Traumatología; Cirugía Plástica Reconstructiva y Estética o Cirugía General, ante el Colegio de Médicos y Cirujanos de Costa Rica. b. Aprobación y acreditación de 12 meses en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Cirugía de Extremidad Superior y Mano, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio. Reconocer como sinónimos de esta subespecialidad los términos: Cirugía en Extremidad Superior y Mano; Cirugía en Mano, Muñeca, y Nervios Periféricos. (Así adicionados los requisitos y sinónimos anteriores mediante sesión ordinaria N° 2013-06-05 del 5 de junio del 2013)
 Subespecialidades de la Ginecología y Obstetricia |
 Ginecología Endocrinológica. | Artículo No. 83
 Ginecología Oncológica. | Artículo No. 84
