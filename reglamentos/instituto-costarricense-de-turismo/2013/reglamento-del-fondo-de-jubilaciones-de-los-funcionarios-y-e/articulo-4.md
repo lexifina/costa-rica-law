@@ -1,0 +1,1 @@
+Artículo 4º—Afiliados (as). Será miembro del Fondo, todo funcionario (a) y empleado (a) a partir de su nombramiento interino o en propiedad en una plaza de la Institución, así como los (as) contratados (as) por jornales.

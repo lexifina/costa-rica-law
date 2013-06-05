@@ -1,0 +1,1 @@
+Artículo 5º—Representación. El (la) Representante Legal del ICT tendrá la representación legal, judicial y extrajudicial del Fondo, considerándose al Fondo para este efecto como una dependencia del Instituto.

@@ -1,0 +1,1 @@
+Artículo 2º—Objetivos. El Fondo de Jubilaciones, tiene como objetivo otorgar, bajo la modalidad de pensión complementaria, un beneficio único a sus afiliados (as) en caso de retiro del servicio por incapacidad permanente, pensión, fallecimiento o retiro anticipado, según lo establecido en Capítulos II y III de este Reglamento.

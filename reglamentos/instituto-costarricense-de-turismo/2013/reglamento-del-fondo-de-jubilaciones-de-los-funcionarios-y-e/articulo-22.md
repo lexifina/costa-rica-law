@@ -1,0 +1,1 @@
+Artículo 22.—De las sesiones. La Junta deberá reunirse en Sesión Ordinaria una vez al mes, en el lugar, día y hora que sus miembros determinen y, en Sesión Extraordinaria, las veces que sea convocada por escrito por el (la) Presidente, o en ausencia de este, por el (la) Vicepresidente o por el (la) Fiscal con el apoyo de tres de sus miembros.

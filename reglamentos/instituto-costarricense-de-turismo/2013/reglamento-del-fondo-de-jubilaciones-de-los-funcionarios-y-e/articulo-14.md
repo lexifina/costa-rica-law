@@ -1,0 +1,1 @@
+Artículo 14.—De la Convocatoria. La convocatoria a Asamblea General Ordinaria y Extraordinaria se hará al menos con ocho días naturales de anticipación, utilizándose para ello los medios electrónicos disponibles, sean estos el servicio de correos electrónicos del Instituto, el servicio de fax o mediante documentos donde se señalará la agenda, sitio, día y hora de la reunión.

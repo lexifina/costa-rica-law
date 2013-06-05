@@ -1,0 +1,1 @@
+Artículo 23.—De la Asistencia a las Sesiones. Los miembros de la Junta, que por razones injustificadas no asistan a las sesiones del Fondo, por tres veces consecutivas o seis alternas en un período de un año, serán removidos de sus cargos por acuerdo firme de la Asamblea General.
