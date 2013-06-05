@@ -1,0 +1,1 @@
+Artículo 8°—Las infracciones serán sancionadas por lo dispuesto en este Reglamento, en la Ley de Tránsito y su Reglamento, en la Ley General de la Administración Pública, en el Código de Trabajo, en la Convención Colectiva y demás disposiciones vigentes, sin perjuicio de las responsabilidades civiles o penales que deba asumir el infractor.

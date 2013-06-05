@@ -1,0 +1,1 @@
+Artículo 15.—Las discrepancias de criterio que surjan en la aplicación de este Reglamento, serán resueltas en primera instancia por el Gerente de Administración y Finanzas y en segunda instancia por el Gerente General de la Empresa.
