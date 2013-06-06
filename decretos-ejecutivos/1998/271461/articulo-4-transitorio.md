@@ -1,2 +1,0 @@
-Transitorio IV.—En tanto inician sus operaciones las áreas legales de las Administraciones Tributarias de Alajuela, Heredia, Cartago, Puntarenas, Guanacaste, Zona Norte, Zona Sur y Limón, las funciones de cobro judicial, y de preparación de los proyectos de resolución de determinación de las obligaciones tributarias y de imposición de sanciones administrativas serán ejecutadas por la Administración Tributaria de San José.
-(Así Adicionado por el artículo 1° del Decreto Ejecutivo 27278, del 21 de Julio de 1998)
