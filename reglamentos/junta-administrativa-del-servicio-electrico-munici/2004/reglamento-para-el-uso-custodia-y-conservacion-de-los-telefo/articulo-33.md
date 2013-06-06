@@ -1,1 +1,1 @@
-Artículo 33.—Sanciones. El incumplimiento de las disposiciones contenidas en el presente Reglamento hará acreedor al funcionario de las medidas disciplinarias correspondientes, sin perjuicio de cualquier otro tipo de responsabilidades que conforme al ordenamiento jurídico le sean aplicables.
+Artículo 33.—(El texto de este numeral debe de ser consultado en el artículo 26. Esto porque en sesión N° 4789 del 6 de junio de 2013 se ordena derogar los numerales originales que van del artículo 24 al 31 y correr la respectiva numeración)

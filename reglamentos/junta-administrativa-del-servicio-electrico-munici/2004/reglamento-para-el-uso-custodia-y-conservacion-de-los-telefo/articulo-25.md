@@ -1,1 +1,5 @@
-Artículo 25.—Obligación del funcionario a mantener encendido el radiolocalizador. Es obligación del funcionario que tenga asignado un equipo de radiolocalizador, estar a disposición de ser accesado, las veinticuatro horas del día en días naturales. Cualquier funcionario que tenga asignado un radiolocalizador podrá ser llamado fuera de horas laborales a trabajar horas extras, en caso de que JASEC así lo requiera. Los funcionarios con radiolocalizador y en disponibilidad deberán mantener estos equipos en disposición de ser accesados por todo el tiempo que dure la disponibilidad.
+DISPOSICIONES FINALES COMUNES
+Artículo 25.—Incumplimientos.
+a) En caso de incumplimiento a lo establecido en este Reglamento, se aplicará lo prescrito en el Reglamento Autónomo de Trabajo de JASEC.
+b) Las sanciones por incumplimiento del presente Reglamento, se aplicarán observando el debido proceso.
+(Corrida la numeración mediante sesión N° 4789 del 6 de junio de 2013. En dicha sesión se ordena derogar los numerales originales que van del artículo 24 al 31 y correr la respectiva numeración, por lo que el artículo 32 paso a ser el 25)

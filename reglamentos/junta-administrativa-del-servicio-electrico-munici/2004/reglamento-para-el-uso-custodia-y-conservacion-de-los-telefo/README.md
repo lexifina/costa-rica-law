@@ -15,3 +15,4 @@ Reglamento para el uso, custodia y conservación de los telefónos celulares de 
 | --- | --- | --- |
 | 1 | 2004-03-22 | la propia norma |
 | 2 | 2009-12-15 | Reglamento 4429 (2009-12-15) |
+| 3 | 2013-06-06 | Reglamento 4789 (2013-06-06) |

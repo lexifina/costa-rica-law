@@ -1,3 +1,4 @@
-Artículo 7º—Control de teléfonos y/o radiolocalizadores asignados. El Almacén Central deberá llevar un registro actualizado de los teléfonos celulares y/o radiolocalizadores asignados.
-En dicho registro se consignará el número de teléfono y/o radiolocalizador, el número de serie, marca, modelo, color, número de activo y sus accesorios, el nombre, el número de cédula y el cargo del funcionario a quien se le autorizó el uso del teléfono celular y/o radiolocalizador, así como la fecha de su asignación y cualquier otro dato que se considere de importancia.
-La modificación de alguna de las características del equipo telefónico o radiolocalizador, debe ser inmediatamente reportado al Almacén Central, para que este actualice el registro correspondiente.
+Artículo 7º—Control de teléfonos asignados. El Almacén Central deberá llevar un registro actualizado de los teléfonos celulares asignados a los funcionarios.
+El Almacén Central deberá entregar y llenar un formulario de la terminal móvil asignada, en dicho registro se consignará el número de línea celular, el número de activo, el nombre, número de cédula y el cargo del funcionario a quien se le autorizó su uso, así como la fecha de su asignación, y demás características técnicas como serie, modelo, color y accesorios que se hayan entregado. Dicho formulario debe ser remitido al Proceso de Contabilizar.
+Todo cambio en los datos anteriormente señalados, deberá ser reportado por el funcionario responsable del bien asignado, al Proceso de Contabilizar.
+(Así reformado en sesión N° 4789 del 6 de junio de 2013)
