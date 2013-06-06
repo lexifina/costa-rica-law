@@ -1,1 +1,0 @@
-Artículo 12.—Atribuciones y deberes. Los miembros de la Autoridad Certificadora, además de las atribuciones otorgadas en virtud del presente Reglamento, para el correcto ejercicio de sus funciones, mantendrán las mismas atribuciones, deberes y prohibiciones que como funcionarios del Ministerio de Hacienda le han sido legalmente otorgadas.

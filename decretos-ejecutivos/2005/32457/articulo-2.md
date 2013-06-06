@@ -1,1 +1,0 @@
-Artículo 2º—Competencia. La Autoridad Certificadora del Ministerio de Hacienda tendrá como competencia la emisión y distribución de los Certificados Digitales, para la firma electrónica de los documentos transmitidos electrónicamente por los diferentes sistemas informáticos del Ministerio de Hacienda.

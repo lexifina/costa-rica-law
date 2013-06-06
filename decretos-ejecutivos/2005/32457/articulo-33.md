@@ -1,2 +1,0 @@
-Artículos 33.—Entrega de los Certificados Digitales. La entrega de los certificados se hará únicamente de manera personal, una vez firmado el Convenio de Uso de Certificado Digital. No se hará entrega a persona distinta al dueño del certificado digital. La entrega del Certificado se hará en la oficina de la Autoridad de Registro en que se presentó la solicitud.
-Lo anterior previa verificación por parte del suscriptor y el funcionario designado, de que el certificado digital se encuentre activado y funcionando adecuadamente.
