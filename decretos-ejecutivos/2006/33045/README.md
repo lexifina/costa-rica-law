@@ -14,3 +14,4 @@ Reglamento de Organización de la Dirección General de Administración de Biene
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-28 | la propia norma |
+| 2 | 2013-06-06 | Decreto Ejecutivo 37859 (2013-06-06) |

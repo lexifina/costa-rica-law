@@ -2,7 +2,7 @@ Artículo 2º—De la estructura organizativa de la Dirección General. La Direc
 a) Dirección General.
 b) Subdirección General.
 c) Asesoría Jurídica.
-d) Departamento de Operaciones Tecnológicas.
+d) (Derogado por el artículo 54 del decreto ejecutivo N° 37859 del 6 de junio del 2013 "Estructura organizacional de la Dirección de Tecnología de Información y Comunicación")
 e) Dirección de Normas y Procedimientos.
 f) Dirección de Control y Supervisión.
 La Asesoría Jurídica y cada (uno de los Departamentos estarán a cargo de un Coordinador(a), que fungirán como responsables y con dependencia directa del (la) Director(a) General y el Subdirector(a). Las Direcciones de Normas y Procedimiento y de Control y Supervisión estarán cada una a cargo de un Director(a), que fungirán como responsables y con dependencia directa del (la) Director(a) General y el Subdirector(a).
