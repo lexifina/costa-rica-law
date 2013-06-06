@@ -14,3 +14,4 @@ Reforma al Reglamento Organización y Funciones Dirección General de Tributaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-26 | la propia norma |
+| 2 | 2013-06-06 | Decreto Ejecutivo 37859 (2013-06-06) |
