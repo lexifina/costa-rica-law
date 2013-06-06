@@ -14,7 +14,8 @@ g) Contabilidad Nacional
 h) Secretaría Técnica de la Autoridad Presupuestaria
 i) Dirección General de Bienes y Contratación Administrativa
 j) Dirección General de Crédito Público
-k) Dirección General de Informática
+k) Dirección de Tecnologías de Información y Comunicación
+(Así reformado el inciso anterior por el artículo 53 del decreto ejecutivo N° 37859 del 6 de junio del 2013, "Estructura organizacional de la Dirección de Tecnología de Información y Comunicación")
 l) Dirección Jurídica
 m) Dirección Administrativa y Financiera
 n) Dirección de Planificación Institucional

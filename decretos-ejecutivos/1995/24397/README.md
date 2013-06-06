@@ -15,3 +15,4 @@ Reorganiza Dependencias del Ministerio de Hacienda
 | 1 | 1995-07-07 | la propia norma |
 | 2 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
 | 3 | 2009-12-02 | Decreto Ejecutivo 35713 (2009-12-02) |
+| 4 | 2013-06-06 | Decreto Ejecutivo 37859 (2013-06-06) |
