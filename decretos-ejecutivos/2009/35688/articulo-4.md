@@ -32,11 +32,7 @@ b. Subdirección de Programación y Selección.
 c. Subdirección de Control de Procesos Fiscalizadores.
 d. Subdirección Técnico-Jurídica.
 (Así reformado el apartado 7) anterior por el artículo 3° del decreto ejecutivo N° 37065 del 10 de abril del 2012, "Crea Subdirección especializada en la investigación y reposición del fraude tributario)
-8. Dirección de Tecnología de Información Tributaria, conformada por las Subdirecciones de:
-a. Gestión de la Plataforma Tecnológica Tributaria
-b. Aseguramiento del Servicio a Usuarios
-c. Ingeniería de Sistemas
-d. Control de Servicios de Tecnología de Información.
+8.(Derogado este inciso por el artículo 54 del decreto ejecutivo N° 37859 del 6 de junio del 2013 "Estructura organizacional de la Dirección de Tecnología de Información y Comunicación")
 9. Dirección de Inteligencia Tributaria, conformada por las Subdirecciones de:
 a. Inteligencia
 b. Centro de Competencias.
