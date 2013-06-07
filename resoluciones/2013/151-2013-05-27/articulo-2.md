@@ -1,0 +1,1 @@
+2º—Que las desgravaciones arancelarias negociadas ya fueron incorporadas en el Arancel automatizado del Servicio Nacional de Aduanas contenido en la aplicación informática TICA. Se les recuerda a las Agencias y Agentes de Aduanas y demás Auxiliares de la Función Pública que deben realizar la correspondiente actualización en el Arancel que cada uno utilice.
