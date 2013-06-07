@@ -1,0 +1,1 @@
+3º—Se ordena a la Dirección de Operaciones y a la Dirección Administrativa Financiera, tomar las previsiones administrativas que correspondan a los efectos de que la exoneración ordenada se aplique a los usuarios solicitantes en forma inmediata.

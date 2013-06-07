@@ -1,0 +1,1 @@
+2º—Que la presente exoneración no exime de la obligación de realizar y completar los procesos de obtención de CVO o la obligación anual de actualizar el correspondiente registro de CVO del vehículo exonerado.
