@@ -1,6 +1,3 @@
-Artículo 6º—Suspensión de trámites. Dada la complejidad y la importancia de las labores encomendadas por este Decreto Ejecutivo a la Comisión Especial, se autoriza la suspensión de trámites, por un plazo de noventa días naturales a partir de la publicación de este Decreto; el conocimiento de todo trámite de evaluación ambiental que ingrese a la Secretaría Técnica Nacional Ambiental, exceptuándose las siguientes solicitudes:
-a) El trámite de atención de denuncias.
-b) Requerimientos Judiciales, de la Procuraduría General de la República, de la Defensoría de los Habitantes y de la Contraloría General de la República.
-c) Trámites de Instituciones Públicas y proyectos o actividades de interés nacional.
-d) Proyectos relacionados con la instalación del despliegue de la red de telecomunicaciones, la cual ha sido declarada como de interés público por la Ley de Fortalecimiento y Modernización de las Entidades Públicas Ley N° 8660.
-e) Otros trámites de carácter urgente.
+Artículo 6º—Autorización para la suspensión temporal de trámites. Dada la complejidad y la importancia de las labores encomendadas por este Decreto Ejecutivo a la Comisión Especial para la Modernización de la Secretaría Técnica Nacional Ambiental, a fin de cumplir con los objetivos del presente Decreto Ejecutivo, y previa justificación, se autoriza a ésta para que en coordinación con el Secretario General de la SETENA, para interrumpir el conocimiento de ciertos trámites nuevos o en proceso por periodos máximos de 10 días hábiles, prorrogable por una única vez.
+Esta facultad, únicamente podrá ser ejercida dentro del plazo máximo de 90 días naturales a partir de la integración oficial de la Comisión Especial para la Modernización de la Secretaría Técnica Nacional Ambiental, y de forma tal que no se afecte la continuidad del servicio público que brinda dicha dependencia.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 37814 del 7 de junio del 2013)

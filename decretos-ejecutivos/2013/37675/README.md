@@ -14,3 +14,4 @@ Constitución de la Comisión Especial para la Modernización de la Secretaría 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-14 | la propia norma |
+| 2 | 2013-06-07 | Decreto Ejecutivo 37814 (2013-06-07) |
