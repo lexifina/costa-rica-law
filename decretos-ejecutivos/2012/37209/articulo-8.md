@@ -1,2 +1,3 @@
 Artículo 8: Plazo de recepción. El Colegio de Costa Rica recibirá los proyectos de las y los postulantes al beneficio del Programa para las Artes Literarias, debiendo asegurar que éstos cumplan con los requerimientos establecidos en el artículo 10 del presente Reglamento, y categorizando las propuestas antes de hacerlas del conocimiento de la Comisión Seleccionadora.
-El período de recepción será entre los meses de abril y junio de cada año. Durante este mismo período, el equipo del Colegio de Costa Rica, ofrecerá orientación en la formulación de los proyectos.
+El período de recepción será entre el primer día hábil del mes de abril y hasta el 30 de agosto de cada año. Durante este mismo período, el equipo del Colegio de Costa Rica ofrecerá orientación en la formulación de los proyectos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37840 del 7 de junio del 2013)
