@@ -1,0 +1,1 @@
+Artículo 3°—El Departamento de Recursos Humanos del Ministerio de Gobernación y Policía, se encuentra debidamente acreditado ante la Dirección General de Informática del Ministerio de Hacienda y demás dependencias necesarias.
