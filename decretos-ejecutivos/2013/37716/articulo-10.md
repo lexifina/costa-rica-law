@@ -1,0 +1,2 @@
+Artículo 10º—Las sesiones serán convocadas por el Presidente mediante comunicación escrita con la confección del orden del día, con al menos tres días de antelación, salvo cuando se trate de asuntos de urgencia que no será necesaria la observancia de estas reglas.
+Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia se eximirá dichos requerimientos.

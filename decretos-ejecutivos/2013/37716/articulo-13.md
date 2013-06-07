@@ -1,0 +1,1 @@
+Artículo 13º—Las sesiones de la Comisión serán siempre privadas, pero ésta podrá disponer, acordándolo así, que tenga acceso a ella personas que puedan contribuir con su gestión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.

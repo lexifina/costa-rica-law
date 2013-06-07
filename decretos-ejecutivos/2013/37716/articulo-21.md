@@ -1,0 +1,1 @@
+Artículo 21º—Los Acuerdos tomados por la Comisión que lesionan, transgreden o dañen derechos o intereses legítimos tendrán recurso de revocatoria ante el mismo Consejo y el de Apelación ante el Ministro o la Ministra de Salud en el plazo de tres días hábiles.

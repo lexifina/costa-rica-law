@@ -1,0 +1,1 @@
+Artículo 15º—De cada sesión se levantará un acta, que contendrá la indicación de las personas que estuvieron presentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, el contenido de los acuerdos, la forma y resultado de la votación.

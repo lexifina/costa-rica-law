@@ -1,0 +1,1 @@
+Artículo 7º—Serán funciones del Presidente presidir las sesiones del órgano colegiado, velar por el cumplimiento de sus funciones, convocar las sesiones extraordinarias, confeccionar el orden del día y demás que le asignen las leyes y reglamentos.

@@ -1,0 +1,1 @@
+Artículo 22º—En lo no regulado en el presente decreto, rige lo dispuesto en el Título Segundo, Capítulo Tercero de la Ley General de la Administración Pública N° 6227 de 2 de mayo de 1978, en materia de órganos colegiados.

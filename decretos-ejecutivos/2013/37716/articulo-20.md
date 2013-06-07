@@ -1,0 +1,1 @@
+Artículo 20º—Los miembros de la Comisión podrán interponer recurso de revisión contra un acuerdo que consideren transgreden la ley o lesionen derechos legítimos, siendo requisito de admisibilidad el apoyo del Presidente. El recurso de revisión será de trámite preferente y se resolverá en la siguiente sesión.

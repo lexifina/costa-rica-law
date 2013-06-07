@@ -1,0 +1,1 @@
+Artículo 11º—El quórum necesario para sesionar será de la mitad más uno de sus miembros. Si no hubiere quórum, la Comisión podrá sesionar válidamente en segunda convocatoria después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
