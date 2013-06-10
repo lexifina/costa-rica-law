@@ -1,0 +1,1 @@
+Artículo 16. El fallo del Jurado Regional, tanto para el Premio Mauro Fernández Acuña como para los Reconocimientos a la Excelencia Profesional y el Jurado Especial, será inapelable, el cual deberá ser comunicado a la Comisión en el plazo establecido en calendario remitido por el despacho Académico del Ministerio de Educación Pública.

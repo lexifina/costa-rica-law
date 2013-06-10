@@ -1,0 +1,2 @@
+Capítulo II. De la Organización
+Artículo 2. El Ministerio de Educación Pública tendrá el deber de designar anualmente, el Premio al Educador(a) del Año “Mauro Fernández Acuña” y los Reconocimientos a la Excelencia Profesional, para lo cual constituirá una Comisión para la Adjudicación del Premio al Educador(a) del Año y Reconocimientos a la Excelencia Profesional, a continuación denominada La Comisión. Esta Comisión será convocada por el o la Viceministro(a) Académico durante el primer semestre de cada año, las personas que la integran desempeñaran sus funciones por un año.
