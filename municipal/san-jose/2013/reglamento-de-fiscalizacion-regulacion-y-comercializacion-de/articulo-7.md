@@ -1,0 +1,1 @@
+Artículo 7º—En cuanto a las prohibiciones de ubicación y horarios de funcionamiento de la licencia de expendio de bebidas con contenido alcohólico, aplicará respectivamente lo dispuesto en los artículos 9 y 11 de la Ley número 9047.

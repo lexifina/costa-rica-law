@@ -1,0 +1,2 @@
+Artículo 44.—Cuando se dé cualquier condición asociada a la venta y comercialización de bebidas con contenido alcohólico sin contar de previo con la respectiva licencia de funcionamiento, o al consumo de bebidas en vía pública; las autoridades de policía mediante el levantamiento de un parte policial, podrán realizar su decomiso, el cual deberá ser remitido ante el Juzgado Contravencional competente para que determine la procedencia de su destrucción.
+La Municipalidad deberá tramitar simultáneamente la imposición de las sanciones administrativas que correspondan.

@@ -1,0 +1,16 @@
+# Reglamento municipal (2013-05-27)
+
+Reglamento de fiscalización, regulación y comercialización de bebidas con contenido alcohólico en el Cantón de San José
+
+- Tipo: Reglamento municipal
+- Número: 76
+- Fecha: 2013-05-27
+- Ente emisor: Municipalidad de San José
+- Publicación: La Gaceta N° 110 del 2013-06-10, Alcance 105
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=74998&param2=92810&param3=1 (ficha 74998)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2013-06-10 | la propia norma |
