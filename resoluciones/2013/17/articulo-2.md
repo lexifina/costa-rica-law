@@ -1,0 +1,1 @@
+Artículo 2º—No procederá, en consecuencia, la deducción de adquisiciones que, superando el importe equivalente a tres salarios base, fueren pagadas en dinero efectivo, entendiéndose el cumplimiento de este requisito, sin perjuicio del cumplimiento de los demás establecidos, para la deducción de costos y gastos, en el artículo 8 de la Ley del Impuesto sobre la Renta.
