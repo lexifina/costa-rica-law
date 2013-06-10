@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE ATENAS
+AVISO
+Acuerdo tomado por el Concejo Municipal mediante sesión extraordinaria N° 250, artículo IV, informe de la Sra. Alcaldesa, inciso 2), se acuerda: la Municipalidad de Atenas de conformidad con lo que disponen los artículos 3° y 12 de la Ley de Impuesto sobre Bienes Inmuebles N° 7509 y sus reformas, la sentencia N° 1073-2010 del Tribunal Contencioso Administrativo, Sección III y la resolución de la Sala Constitucional N° 2011-003075 del 9 de marzo del 2011, en aras de dar cumplimiento a su competencia, procede a publicar su adhesión al Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance N° 22 al Diario Oficial La Gaceta N° 23 del 1° de febrero del 2013, documento procedente del Órgano de Normalización Técnica, Dirección General de Tributación, Ministerio de Hacienda.
+Atenas, 29 de mayo del 2013.—
