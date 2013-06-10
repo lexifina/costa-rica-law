@@ -18,3 +18,4 @@ Reglamento para la prestación de servicios de notarios externos del Banco Nacio
 | 3 | 2010-04-06 | Reglamento 11606 (2010-04-06) |
 | 4 | 2010-06-24 | Reglamento 11631 (2010-06-24) |
 | 5 | 2011-01-13 | Reglamento 11631 (2011-01-13) |
+| 6 | 2013-06-10 | Reglamento 11836 (2013-06-10) |

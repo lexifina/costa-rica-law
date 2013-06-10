@@ -1,1 +1,2 @@
-Artículo 6º—Asesoría de la Dirección Jurídica del Banco. El Director Regional de Crédito, cuando la naturaleza de la operación crediticia lo requiera, podrá solicitar a la Dirección Jurídica el asesoramiento para el notario externo, aunque la responsabilidad final del trabajo notarial siempre será de éste último profesional.
+Artículo 6º—Asesoría de la Dirección Jurídica del Banco. El Centro de Administración de Crédito, cuando la naturaleza de la operación crediticia lo requiera, podrá solicitar a la Dirección Jurídica el asesoramiento para el notario externo, aunque la responsabilidad final del trabajo notarial siempre será de éste último profesional.
+(Así reformado en sesión N° 11836 y publicado en La Gaceta N° 121 del 25 de junio de 2013)
