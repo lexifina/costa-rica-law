@@ -1,0 +1,1 @@
+Artículo 10.—Se faculta a la Junta de Gobierno, incluir en la lista oficial reconocida por el Colegio de Médicos y Cirujanos, Maestrías o Doctorados Académicos distintos a los que se establecen por este Reglamento.

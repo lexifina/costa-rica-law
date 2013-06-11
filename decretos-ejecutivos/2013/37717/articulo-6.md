@@ -1,0 +1,4 @@
+Artículo 6º—El examen de suficiencia consta de dos partes, una parte teórica y una práctica. Se debe aprobar simultáneamente cada una de las partes del examen de suficiencia, con nota igual o superior a 80 en escala de evaluación de 0 a 100, para considerar que el mismo se aprobó satisfactoriamente.
+a) El solicitante tendrá derecho a presentar recurso de revocatoria con apelación en subsidio, ante la Dirección Académica dentro del plazo de tres días hábiles después de recibida la debida notificación de su calificación.
+b) En caso de no aprobar el examen de suficiencia teórico-práctico deberán transcurrir al menos seis meses entre la fecha de resolución final de la prueba presentada y la nueva solicitud de examen, hasta su aprobación efectiva.
+c) Todas las convocatorias del examen de suficiencia teórico-práctico se realizarán según las condiciones establecidas en el presente reglamento.
