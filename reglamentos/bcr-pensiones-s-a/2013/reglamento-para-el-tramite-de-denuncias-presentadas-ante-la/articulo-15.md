@@ -1,0 +1,1 @@
+Artículo 15.—Recurso de revocatoria y apelación. Contra la resolución que dicta el rechazo, archivo o desestimación de la denuncia, cabrá, por parte del denunciante, los recursos de revocatoria y apelación, dentro del plazo de tres días hábiles siguientes a la comunicación, conforme al régimen de impugnación establecido en la Ley general de la administración pública.

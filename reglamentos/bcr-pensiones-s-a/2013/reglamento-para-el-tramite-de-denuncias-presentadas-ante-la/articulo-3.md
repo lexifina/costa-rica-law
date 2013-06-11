@@ -1,0 +1,1 @@
+Artículo 3°—Ámbito de competencia. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos por parte de los servidores de BCR Pensiones S.A., según lo regulado por la Ley contra la corrupción y el enriquecimiento ilícito en la función pública.

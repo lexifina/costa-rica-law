@@ -1,0 +1,1 @@
+Artículo 5°—Recibo de denuncia. Las denuncias serán presentadas a la Auditoría Interna de BCR Pensiones S.A., ubicada en el Edificio Schyfter cuarto piso; ya sea en forma verbal, escrita, electrónica, o por cualquier otro medio que permita establecer la fecha de recepción.
