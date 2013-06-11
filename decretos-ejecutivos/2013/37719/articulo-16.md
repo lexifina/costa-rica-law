@@ -1,0 +1,1 @@
+Artículo 16.—Exoneración de pago de derechos de autor. La Imprenta Nacional, no podrá proceder al pago de cualquier tipo de regalía o retribución económica por la disposición pública de la obra, en virtud del objetivo de la Editorial Digital de brindar un servicio de divulgación gratuito de aquellas obras que contribuyan al mejoramiento de la educación de la población.

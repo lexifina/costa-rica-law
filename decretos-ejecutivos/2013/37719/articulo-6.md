@@ -1,0 +1,1 @@
+Artículo 6°—Designación del Consejo Editorial. El Consejo Editorial estará conformado por tres personas de reconocida trayectoria en el campo de la educación, el arte, la literatura, la cultura y las ciencias, quienes serán nombrados mediante Acuerdo Firme de Junta Administrativa por períodos de dos años y podrán reelegirse por un único período igual.

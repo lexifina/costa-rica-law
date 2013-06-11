@@ -1,0 +1,2 @@
+Artículo 12.—Producción. Una vez aprobada la obra por parte del Consejo Editorial y la suscripción del contrato con el autor, titular o derecho habiente de la obra, el funcionario responsable de la Editorial Digital, en un plazo de cinco días hábiles tramitará ante la Asesoría Jurídica de la Imprenta Nacional la confección del contrato para su firma.
+No podrá ponerse en línea la obra en el Sitio Web de la Editorial Digital, sin que el autor, titular o derecho habiente de la obra haya firmado el contrato de cesión de derechos de digitalización.

@@ -1,0 +1,1 @@
+Artículo 17.—Alianzas. La Editorial Digital procurará alianzas y convenios sin fines de lucro, con entidades públicas y privadas, nacionales o extranjeras que contribuyan al logro de sus fines o al mejoramiento de la calidad o cantidad de sus producciones.
