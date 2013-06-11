@@ -1,0 +1,1 @@
+Artículo 45.—De la prohibición de incluir cambios de fondo en el acta: Ningún miembro del Consejo Directivo puede incorporar cambios en las actas que alteren el contenido de las deliberaciones y acuerdos adoptados y que constan en las grabaciones que las respaldan.

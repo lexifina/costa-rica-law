@@ -1,0 +1,1 @@
+Artículo 50.—De los acuerdos respecto de temas no incluidos en el orden del día: No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que lo acuerden dos tercios de los miembros del órgano y el tema sea declarado de urgencia por el voto favorable de todos ellos.

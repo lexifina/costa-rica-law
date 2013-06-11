@@ -1,0 +1,2 @@
+Artículo 39.—De otras intervenciones: Los miembros del Consejo Directivo podrán hacer uso de la palabra por vía de interrupción, cuando así lo permita el miembro en uso de la palabra y así lo acepte el Presidente en forma expresa. El tiempo que dure la interrupción será restado del tiempo asignado al Miembro del Consejo que permita la interrupción.
+En caso de que una de las intervenciones realizadas origine una réplica por parte de otro miembro, se le concederá a éste, un término no mayor de tres minutos para que realice su derecho de respuesta por única vez.

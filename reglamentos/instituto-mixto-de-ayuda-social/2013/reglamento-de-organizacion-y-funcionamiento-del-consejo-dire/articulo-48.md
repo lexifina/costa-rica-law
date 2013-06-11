@@ -1,0 +1,1 @@
+Artículo 48.—Del carácter público de las actas: Las Actas y Acuerdos del Consejo Directivo, se consideran documentos públicos, salvo lo establecido por la legislación vigente para aquellos informes emitidos por la Auditoría Interna en donde consten relaciones de hechos los cuales se declararán confidenciales.

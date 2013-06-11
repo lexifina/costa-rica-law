@@ -1,0 +1,2 @@
+Artículo 21.—Del carácter privado de las sesiones: Las sesiones tanto ordinarias como extraordinarias, se realizarán en forma privada, salvo que por unanimidad de los miembros presentes del Consejo Directivo acuerden permitir el acceso del público en general, o algún grupo de personas específicas, a los cuales les podrá conceder el derecho a participar con voz pero sin voto.
+Por vía de excepción y por mayoría calificada, el Consejo podrá declarar confidencial el tratamiento de temas que por su naturaleza así lo requieran.

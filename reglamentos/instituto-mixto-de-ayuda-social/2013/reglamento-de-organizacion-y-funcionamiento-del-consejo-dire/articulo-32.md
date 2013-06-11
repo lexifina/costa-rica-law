@@ -1,0 +1,1 @@
+Artículo 32.—De la responsabilidad en la formulación de los documentos: Será responsabilidad de los titulares de las unidades técnicas, así como del funcionario del nivel gerencial correspondiente, la certeza y pertinencia de la documentación que se presente a consideración del Consejo Directivo.

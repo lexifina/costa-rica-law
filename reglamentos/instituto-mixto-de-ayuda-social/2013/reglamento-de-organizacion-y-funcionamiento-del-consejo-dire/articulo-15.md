@@ -1,0 +1,3 @@
+Artículo 15.—De los asesores: El Consejo Directivo con el fin de desempeñar su función de la manera más eficiente posible podrá designar un o una asesor (a) jurídico (a) de la institución, quien podrá intervenir de oficio o a petición de parte. Asimismo podrá acreditar a un (a) asesor (a) legal externo quien actuará a petición de este Órgano Colegiado.
+En el caso de la Auditoría Interna, su participación estará sujeta a las disposiciones de la Contraloría General de la República y a la normativa vigente.
+También se podrá acordar, mediante voto unánime de los miembros presentes, la participación de cualquier funcionario o titular subordinado de la Institución, para que comparezca a complementar la información suministrada sobre un punto específico del orden del día.

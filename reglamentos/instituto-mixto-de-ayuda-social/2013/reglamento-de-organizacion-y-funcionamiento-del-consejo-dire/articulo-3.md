@@ -1,0 +1,1 @@
+Artículo 3º—De las normas supletorias: En defecto de regulación del presente reglamento, la organización y funcionamiento del Consejo se regirá por lo dispuesto en la Ley General de la Administración Pública, Ley de Creación del Instituto Mixto de Ayuda Social, Ley General de Control Interno, los principios generales del derecho, la costumbre y la jurisprudencia

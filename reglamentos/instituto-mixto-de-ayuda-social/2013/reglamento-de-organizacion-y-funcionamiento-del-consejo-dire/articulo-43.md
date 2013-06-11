@@ -1,0 +1,1 @@
+Artículo 43.—De la aprobación de las actas: El Presidente procederá a someter a votación el borrador del acta en la sesión ordinaria inmediata siguiente para su aprobación por parte de los miembros del Consejo Directivo salvo que circunstancias especiales de fuerza mayor lo impidan, en cuyo caso la aprobación se pospondrá para la sesión ordinaria siguiente.

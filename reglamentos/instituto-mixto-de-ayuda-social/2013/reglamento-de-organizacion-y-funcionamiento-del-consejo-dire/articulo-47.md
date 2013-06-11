@@ -1,0 +1,1 @@
+Artículo 47.—De los votos negativos o por abstención: Los Miembros del Consejo Directivo deberán hacer constar en el acta su voto negativo o de abstención al acuerdo adoptado y los motivos que los justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudiesen derivarse de esos acuerdos, todo conforme lo establecen las normas jurídicas aplicables.
