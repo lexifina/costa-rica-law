@@ -1,1 +1,0 @@
-4º—De conformidad con los artículos 61 y 62 del CAUCA y 59, 62 y 102 de la Ley General de Aduanas, la autoridad aduanera podrá revisar la autodeterminación de la obligación tributaria y prescribe en cuatro años la facultad de la autoridad aduanera para exigir el pago de los tributos que se hubieren dejado de percibir, sus intereses y recargos de cualquier naturaleza.
