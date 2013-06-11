@@ -1,0 +1,1 @@
+Artículo 14.—Uso de las instalaciones durante la jornada. La Junta Administrativa podrá autorizar el uso de las instalaciones del Museo de Arte Costarricense para la realización de actividades durante la jornada ordinaria de trabajo del Museo, siempre y cuando no interfieran con el desarrollo normal de labores y la prestación del servicio.
