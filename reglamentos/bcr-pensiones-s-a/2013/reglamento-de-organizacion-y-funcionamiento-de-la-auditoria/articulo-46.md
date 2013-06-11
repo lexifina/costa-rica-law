@@ -1,0 +1,2 @@
+Artículo 46.—Para los compromisos de alto riesgo, a partir de la tercera solicitud de prórroga, el Auditor Interno hará de conocimiento al Comité de Auditoría del planteamiento realizado por la Administración, a fin de que sea ese Comité quien disponga de si se da curso o no la prórroga solicitada.
+Para la resolución de estos casos, el Comité de Auditoría aplicará lo dispuesto en el artículo 43 de este Reglamento.

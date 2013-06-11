@@ -1,0 +1,1 @@
+Artículo 7°—La Auditoría Interna debe asegurarse de establecer su visión, misión, políticas y procedimientos que regirán su accionar y velar por su actualización. La misión y visión serán incorporadas en el plan estratégico de la Auditoría Interna que estará documentado en el Manual de la Auditoría Interna de BCR Pensiones S. A.
