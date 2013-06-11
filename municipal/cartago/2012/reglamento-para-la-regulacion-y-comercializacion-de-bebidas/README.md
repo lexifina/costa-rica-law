@@ -14,3 +14,4 @@ Reglamento para la Regulación y Comercialización de Bebidas con Contenido Alco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-06 | la propia norma |
+| 2 | 2013-06-11 | Reglamento municipal 0 (2013-06-11) |
