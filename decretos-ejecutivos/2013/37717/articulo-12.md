@@ -12,6 +12,7 @@ Ciencias Neurológicas.
 Ciencias Morfológicas.
 Economía de la Salud y las Políticas Públicas.
 Epidemiología.
+Estimulación Temprana (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-02-20 del 20 de febrero del 2013)
 Farmacología Clínica.
 Fisiología Humana.
 Gerontología.
