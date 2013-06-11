@@ -1,0 +1,1 @@
+Artículo 12.—Mecanismo para realizar ajustes. La Secretaría Ejecutiva del SIREA revisará y actualizará, cada año, el sistema tarifario indicado en los artículos 4, 5, 6 y 7 del presente reglamento con el fin de asegurar la sostenibilidad del sistema.

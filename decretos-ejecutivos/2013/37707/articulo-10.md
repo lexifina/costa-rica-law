@@ -1,0 +1,2 @@
+Artículo 10.—Presupuesto del Organizador y gastos del SIREA. El Organizador presentará anualmente un presupuesto a la Secretaría Ejecutiva del SIREA, quien tendrá la facultad de aprobarlo o improbarlo. Los gastos a realizar por el Organizador deberán estar acordes con el presupuesto aprobado por la Secretaría Ejecutiva del SIREA.
+Los rubros que se podrán considerar en el presupuesto deberán estar acordes con las facultades y responsabilidades indicados en el artículo 7 del Decreto Ejecutivo Nº 37109 del 13 de febrero de 2012.
