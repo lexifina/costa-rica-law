@@ -1,0 +1,1 @@
+Artículo 2º—Plebiscito: Es la consulta popular mediante la cual los habitantes del Cantón de Goicoechea se pronuncian sobre un asunto de transcendencia regional, o se manifiestan sobre la revocatoria del mandato del Alcalde o (sa) Municipal y/o Vicealcaldes (sas).

@@ -1,0 +1,1 @@
+Artículo 28.—Requisito para destitución: Para destituir al Alcalde (sa) Municipal o a los Vicealcaldes (sas) se requiere dos tercios del total de los votos emitidos en el plebiscito, y que esos dos tercios no sean inferiores al diez por ciento del total de los electores inscritos en el cantón de Goicoechea.

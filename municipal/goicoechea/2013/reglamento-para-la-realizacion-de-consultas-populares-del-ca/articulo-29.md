@@ -1,0 +1,1 @@
+Artículo 29.—De la reposición del Alcalde (sa) Propietario: Si el resultado de la consulta fuere la destitución del funcionario, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual repondrá al Alcalde (sa) por el resto del periodo, según artículo 14 del Código Municipal.

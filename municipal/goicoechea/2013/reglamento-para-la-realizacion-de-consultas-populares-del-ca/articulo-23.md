@@ -1,0 +1,1 @@
+Artículo 23.—Horario de votación: Las Juntas Receptoras de Votos se abrirán a las siete horas y se cerrarán a las dieciséis horas. Se tomara como hora oficial la que marque el reloj del Presidente de la Junta Receptora de Votos, por lo que los demás miembros deben sincronizar sus relojes con los de él.
