@@ -15,3 +15,4 @@ Reglamento de maestrías y doctorados académicos en las áreas de ciencias méd
 | --- | --- | --- |
 | 1 | 2013-06-11 | la propia norma |
 | 2 | 2013-06-11 | Acuerdo 0 (2013-02-20) |
+| 3 | 2013-06-11 | Acuerdo 0 (2013-03-06) |

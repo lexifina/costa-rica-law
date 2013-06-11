@@ -23,6 +23,7 @@ Medicina del Deporte.
 Medicina del Trabajo.
 Medicina Paliativa en Adultos.
 Medicina Paliativa Pediátrica.
+Medicina Social (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-03-06 del 6 de marzo del 2013)
 Nutrición Humana.
 Nutrición Clínica.
 Psicoanálisis.
