@@ -1,0 +1,1 @@
+Transitorio.—En el lapso comprendido entre la publicación de este Decreto y su entrada en vigencia, la Imprenta Nacional emitirá las directrices administrativas y tomará las providencias necesarias para la puesta en marcha de todos los procesos productivos tendientes a la digitalización del Diario Oficial La Gaceta.
