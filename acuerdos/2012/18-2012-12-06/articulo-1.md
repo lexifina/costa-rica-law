@@ -147,6 +147,16 @@ Auxiliar de Servicios Generales 2, Sección de Inspecciones Oculares y Recolecci
 Coordinador Judicial2 | Coordinador Judicial
 Fiscales y Fiscalas Penales Juveniles por motivo de incapacidad o vacaciones. | Fiscales y Fiscalas Penales Juveniles.
 (Así reformado el punto 9.3) anterior mediante sesión N° 25-13 del 14 de marzo del 2013 y publicado en el Boletín Judicial N° 121 del 25 de junio del 2013, mediante circular N° 5-2013 del 10 de mayo del 2013)
+(Nota de Sinalevi: Mediante sesión N° 56-13 del 30 de mayo del 2013, publicada en el Boletín Judicial N° 128 del 4 de julio del 2013 se ordena adicionar el punto 9.3) anterior al no coincidir el cuadro el mismo se transcribe a continuación:
+Clase ancha | Clase angosta
+Asistente de sala. | Técnicos de sala
+Auxiliar Administrativo I de la Subdelegación Regional del Organismo de Investigación Judicial de Garabito (siempre que sea una plaza única) | Auxiliar administrativo
+Auxiliar administrativo 1 (puesto 350265) de la Unidad Regional del O.I.J de Buenos Aires | Auxiliar administrativo
+Auxiliar de seguridad (guardas) | Auxiliar de seguridad
+Auxiliares de enfermería (siempre y cuando solo exista una plaza) | Auxiliar de enfermería
+Auxiliares de Servicios Generales 2 en Delegaciones y Subdelegaciones Regionales del Organismo de investigación Judicial que cuentan con sólo una plaza y deben realizar el aseo de las celdas | Auxiliar de servicios generales 2
+Auxiliares de servicios informáticos en las oficinas de todo el país que cuenten con una sola plaza de esta clase | Técnico especializado 5
+Choferes (siempre que solo exista una plaza). | Auxiliar de servicios
 9.4. Podrán ser sustituidas en caso de incapacidad y hasta por un día hábil las mujeres que se encuentren en estado de gravidez, siempre y cuando se desempeñe en una plaza ordinaria, ya que las plazas extraordinarias podrán ser sustituidas solamente por permiso sin goce de salario y ascensos6
 6 (Aprobado en sesión 93-11, del 3 de noviembre de 2011, artículo LIV).
 9.5. Las jefaturas de Despacho y oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando legalmente sea procedente.7
