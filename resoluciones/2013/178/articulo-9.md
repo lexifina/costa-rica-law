@@ -1,0 +1,1 @@
+IX. Se permitirá, de manera excepcional, que los clientes empresariales puedan definir la fecha en que requieren realizar la portación, considerando un plazo no mayor a 5 días hábiles después de realizada la solicitud de portación.

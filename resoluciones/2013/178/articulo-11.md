@@ -1,0 +1,1 @@
+XI. Se define un período de tiempo máximo de 10 minutos para que los operadores o proveedores respondan a la solicitud de cancelación que envía la ERPN al operador o proveedor donante (respuesta de cancelación de portación); lo anterior de conformidad con el siguiente diagrama: [imagen]

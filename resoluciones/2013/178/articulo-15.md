@@ -1,0 +1,2 @@
+XV. De conformidad con el acuerdo 001-022-2013 tomado en la sesión extraordinaria 022-2013 del 25 de abril del 2013 por parte del Consejo de la SUTEL; se establece como fecha máxima para la puesta en operación del derecho de los usuarios a la portabilidad numérica el día 30 de noviembre de 2013, por lo que cualquier acción tendiente a atrasar dicha implementación será considerada como una falta grave por ser contraria a la normativa regulatoria establecida por esta Superintendencia.
+Acuerdo firme. Publíquese y notifíquese.
