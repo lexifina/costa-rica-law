@@ -15,3 +15,4 @@ Fija tarifas para los servicios aeronáuticos que brinda el Aeropuerto Internaci
 | --- | --- | --- |
 | 1 | 2012-06-26 | la propia norma |
 | 2 | 2013-06-13 | Resolución 93 (2013-06-13) |
+| 3 | 2013-06-13 | Resolución 94 (2013-06-13) |
