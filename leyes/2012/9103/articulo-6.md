@@ -5,3 +5,4 @@ Artículo 6°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 37618 del 15 de marzo de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37635 del 22 de marzo de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37698 del 8 de mayo de 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37730 del 27 de mayo del 2013)
