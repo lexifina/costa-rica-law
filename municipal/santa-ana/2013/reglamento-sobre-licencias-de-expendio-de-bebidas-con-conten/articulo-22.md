@@ -1,0 +1,3 @@
+Artículo 22.—Trámite Municipal. La Plataforma de Servicios recibirá la solicitud, constatará que la solicitud esté debidamente cumplimentada y estén adjuntados todos los requisitos indicados en el artículo siguiente; la pasará al Departamento de Patentes y Licencias Municipales, encargado de de completar la solicitud con el permiso de funcionamiento y la declaratoria de interés turístico, según corresponda; y de convocar a la Comisión Administrativa.
+La Comisión rendirá un dictamen sobre cada solicitud, describiendo el tipo de actividad, duración y monto de impuesto, el cual presentará ante el Concejo Municipal.
+El Concejo resolverá las solicitudes mediante acuerdo de mayoría simple, con base el dictamen de la Comisión.

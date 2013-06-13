@@ -1,0 +1,2 @@
+Artículo 26.—Destino final de producto decomisado. Las bebidas con contenido alcohólico decomisadas por consumo en vía pública, serán destruidas mediante resolución administrativa emitida por el departamento municipal que realizó el decomiso.
+Las bebidas con contenido alcohólico decomisadas por venta sin licencia, serán entregadas por la oficina municipal que realizó el decomiso, a los tribunales de justicia.

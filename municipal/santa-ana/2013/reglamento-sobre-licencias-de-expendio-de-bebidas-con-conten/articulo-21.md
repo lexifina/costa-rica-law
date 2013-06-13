@@ -1,0 +1,2 @@
+Artículo 21.—Prohibiciones. No se otorgarán licencias temporales dentro de los centros educativos, instalaciones donde se realicen actividades religiosas que cuenten con el permiso de funcionamiento correspondiente y centros infantiles de nutrición.
+Tampoco se otorgarán licencias temporales en los centros deportivos, estadios, gimnasios y en los lugares donde se desarrollen actividades deportivas, mientras se efectúa el espectáculo deportivo.

@@ -1,0 +1,1 @@
+Artículo 20.—Potestad Municipal. El artículo 7 de la Ley, le confiere al Concejo Municipal la potestad de otorgar licencias temporales, este órgano colegiado podrá; mediante un acuerdo debidamente razonado; denegar la solicitud con base en criterios de legalidad, oportunidad y conveniencia.

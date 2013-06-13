@@ -1,0 +1,3 @@
+Artículo 18.—Trámite Municipal. La Plataforma de Servicios recibirá la solicitud, constatará que la solicitud esté debidamente cumplimentada y estén adjuntados todos los requisitos indicados en el artículo 11; la pasará al Departamento de Patentes y Licencias Municipales, encargado de completar la solicitud con el informe topográfico de distancias, el permiso de funcionamiento y la declaratoria de interés turístico, según corresponda; y de convocar a la Comisión Administrativa.
+La Comisión rendirá un dictamen sobre cada solicitud que presentará ante la Alcaldía.
+La Alcaldía resolverá las solicitudes, con base el dictamen de la Comisión.
