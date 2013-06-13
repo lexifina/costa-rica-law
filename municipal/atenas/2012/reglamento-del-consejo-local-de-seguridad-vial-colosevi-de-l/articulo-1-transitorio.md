@@ -1,0 +1,1 @@
+Transitorio único.—Habiéndose nombrado recientemente las personas que integran el COLOSEVI en la actualidad, estas permanecerán en sus supuestos por un período de 12 meses a partir de su nombramiento, al cabo del cual vencerá el mismo y se procederá a nombrar un Consejo local de acuerdo con las normas del reglamento.

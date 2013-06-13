@@ -1,0 +1,1 @@
+Artículo 10.—Sus políticas y acciones se regirán en todo momento según lo dispuesto por el Decreto Ejecutivo N° 29390 MOPT-S, los lineamientos provenientes del Consejo de Seguridad Vial, la Dirección General de Ingeniería de Tránsito, la Ley N° 6324 Ley de Administración Vial, la Ley N° 7331 Ley de Tránsito y el Concejo Municipal del cantón.

@@ -1,0 +1,1 @@
+Artículo 3º—Este COLOSEVI es un ente adscrito a la Municipalidad del cantón Atenas, reconocido por el Consejo de Seguridad Vial; el cual se encarga de fiscalizar los gastos que se ejecuten con fondos provenientes de la Ley N° 6324 Ley de Administración Vial, la Ley N° 7331 Ley de Tránsito y otros que reciban para los fines específicos.
