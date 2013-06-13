@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE ATENAS
+(Nota de Sinalevi: La municipalidad de Atenas aprobó un nuevo Reglamento para el otorgamiento de incentivos tributarios a los contribuyentes de la Municipalidad de Atenas, mediante publicación en La Gaceta N° 216 del 10 de noviembre del 2014)
+El Concejo Municipal de Atenas en la sesión ordinaria N° 201 del 17 de octubre del 2012, conoce, y en la sesión N° 202 del 22 de octubre del 2012, artículo V, inciso 1), aprueba: El Reglamento para el Otorgamiento de Incentivos Tributarios a los Contribuyentes de la Municipalidad de Atenas.
+Artículo 1º—Del incentivo. Se aplicará un descuento, en forma porcentual, por el pago, adelantado que el contribuyente realice de sus tributos municipales de todo el año, no obstante para hacerse acreedor de este incentivo, deberá, pagar todos los tributos que se encuentren registrados, a su nombre en la base de datos de la Municipalidad de Atenas. Dicha aplicación será automática en el momento de su cancelación.
