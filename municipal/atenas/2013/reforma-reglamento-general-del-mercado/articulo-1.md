@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE ATENAS
+Acuerdo tomado por el Concejo Municipal de Atenas en la sesión ordinaria N° 233 celebrada el 11 de marzo del 2013. Artículo VI, informe del Asesor Legal, inciso I.
+Modifíquese el artículo 7° del Reglamento General del Mercado, capítulo IV, para que en adelante se lea de la siguiente manera:
+De los arrendatarios
+Artículo 7º—Serán arrendatarias del mercado municipal las personas que aparezcan adjudicadas mediante acuerdo municipal y con el respectivo contrato de arrendamiento debidamente suscrito, según los registros que para tal efecto debe llevar la Administración. Para ser adjudicatarios los interesados deben participar en remates públicos y obtener la calidad de arrendatarios. O bien haberlos recibido a través de una cesión de derechos incluso mortis causa, aplicable únicamente para la primera generación del arrendatario original. En dichos casos el Concejo Municipal, valorara el caso para la aprobación, misma que podrá ser conferido únicamente cuando los herederos estén en total acuerdo entre si y así lo manifiesten por escrito, la Municipalidad deberá de justificar la decisión. De aprobarse deberá de remitirse el expediente a la administración, para que se actualicen los datos y se realice el nuevo contrato.
+Los derechos de arrendamiento regulados en este reglamento podrán ser objeto de cesión, requiriendo para su eficacia la aprobación del Concejo Municipal.
+Ninguna persona podrá ser adjudicataria o cesionaria de más de un arrendamiento.
+Se acuerda: Instruir a la Administración para que se publique respetando los procedimientos de consulta popular y principio de publicidad.
