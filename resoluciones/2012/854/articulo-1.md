@@ -172,4 +172,37 @@ Con fundamento en las facultades conferidas en la Ley 7593 y sus reformas, en la
 EL COMITÉ DE REGULACION
 RESUELVE
 I. Fijar para los servicios aeronáuticos que se brindan en el Aeropuerto Internacional Juan Santamaría las tarifas que se detallan a continuación:
-[imagen]
+Resumen de las Tarifas de Servicios
+Aeronáuticos - Correccion según recurso
+Valores en US$
+Categoría Tarifaria | Unidad de Medida | Periodicidad de Cobro | Tarifas 2012-2013 correción recurso
+1.1 Tarifas de Aterrizaje | 1000 Kg | P/ aterrizaje |
+Aeronaves aviación general y agrícola (vuelos locales) | 1000 Kg | P/ aterrizaje | $0.1373
+Aeronaves aviación general (vuelos internacionales) | 1000 Kg | P/ aterrizaje | $0.2747
+Aeronaves comerciales | 1000 Kg | P/ aterrizaje | $0.2747
+Aeronaves de carga | 1000 Kg | P/ aterrizaje | $0.2747
+1.2 Tarifas de Aproximación | | |
+Aviación general menos de 12,500 kg | 1000 Kg | P/ aterrizaje | $0.3169
+Aeronaves comerciales o generales internacionales menos de 12,500 kg | 1000 Kg | P/ aterrizaje | $0.3169
+Aeronaves comerciales de 12,500 kg. a menos de 60,000 kg | 1000 Kg | P/ aterrizaje | $0.6286
+Aeronaves comerciales de 60,000 kg. a menos de 90,000 kg | 1000 Kg | P/ aterrizaje | $1.1885
+Aeronaves comerciales de 90,000 kg en adelante. | 1000 Kg | P/ aterrizaje | $2.3188
+Helicópteros menos de 12,500 kg | 1000 Kg | P/ aterrizaje | $0.3169
+Helicópteros de 12,500 kg en adelante. | 1000 Kg | P/ aterrizaje | $0.6286
+1.3 Derechos de Iluminación, Puentes de Abordaje y Buses | | |
+Iluminación | 1000 Kg | P/ aterrizaje | $0.0264
+Puentes de abordaje | 1000 Kg | P/ aterrizaje | $0.9190
+Autobuses de abordaje | 1000 Kg | P/ aterrizaje | $0.9190
+1.4 Tarifa de Infraestructura del Campo Aéreo | | |
+Construcción y mejoras de pista y rampa | 1000 Kg | P/ aterrizaje | $4.4562
+1.5 Tarifas de Estacionamiento de Aeronaves | | |
+Menos de 90 minutos | 1000 Kg | P/ aterrizaje | Libre
+Entre 91 y 180 minutos | 1000 Kg | P/ aterrizaje | $0.5724
+Entre 181 y 360 minutos | 1000 Kg | P/ aterrizaje | $1.1447
+Entre 361 y 480 minutos | 1000 Kg | P/ aterrizaje | $2.8619
+Días completos (de 481 minutos en adelante) | 1000 Kg | P/ aterrizaje | $7.1546
+1.6 Tarifa de Carga | | |
+Uso de la terminal | 1 Kg | Mensual | $0.0061
+1.7 Concesionarias servicios aeronáuticos | | |
+Tarifa de distribución de combustible | Litro | mensual | $0.0053
+(Así reformado mediante resolución N° 093-RIT-2013 del 13 de junio del 2013)
