@@ -1,0 +1,1 @@
+3. Si el Declarante requiere que se le digite en la Ubicación “I” Instalación Aduanera, de previo a la transmisión del DUA, deberá solicitarlo por escrito ante la aduana correspondiente para el registro del movimiento de inventario del vehículo.

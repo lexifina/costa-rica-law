@@ -1,0 +1,1 @@
+4. En caso de que al DUA le corresponda revisión documental y reconocimiento físico (canal rojo), el Declarante deberá presentar el vehículo en la aduana para el cumplimiento del proceso de verificación.
