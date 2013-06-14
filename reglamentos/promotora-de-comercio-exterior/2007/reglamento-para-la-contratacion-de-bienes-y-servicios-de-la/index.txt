@@ -151,6 +151,8 @@ articulo-148.md
 articulo-149.md
 articulo-150.md
 articulo-151.md
+articulo-151-bis.md
+articulo-151-ter.md
 articulo-152.md
 articulo-153.md
 articulo-154.md

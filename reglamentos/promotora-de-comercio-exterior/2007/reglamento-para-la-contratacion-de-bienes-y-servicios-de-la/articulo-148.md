@@ -3,4 +3,4 @@ Una vez que el contrato adquiera eficacia y durante su ejecución, la Administra
 La suspensión deberá acordarse por escrito, mediante resolución motivada, dictada por el órgano que adjudicó la contratación, con indicación precisa, entre otras cosas, de la parte realizada hasta ese momento, su estado y a cargo de quién corre el deber de conservar lo ejecutado, las medidas que se adoptarán para garantizar el equilibrio financiero y la fecha de eventual reinicio de la ejecución. El reinicio del contrato se comunicará por escrito, antes del vencimiento del plazo de suspensión.
 El contratista podrá reclamar a la Administración la indemnización de los daños que le provoque la suspensión contractual.
 De no reiniciarse el contrato dentro del plazo estipulado, la Unidad solicitante deberá iniciar de forma inmediata el procedimiento tendiente a su rescisión, salvo que razones de interés público, impongan continuar con su inmediata ejecución.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión de Junta Directiva número 304-2013 del 22 de marzo del 2013.

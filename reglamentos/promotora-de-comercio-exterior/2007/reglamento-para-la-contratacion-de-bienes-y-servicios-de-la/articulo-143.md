@@ -1,11 +1,11 @@
 Artículo 143.-Recibo de objetos actualizados
 El contratista está obligado a entregar a la Administración bienes y servicios en las mejores condiciones y actualizados, conforme las siguientes reglas:
 a) Que se trate de objetos de igual naturaleza y funcionalidad, con condiciones similares de instalación y mantenimiento.
-b) Que el cambio constituya una mejora para la Administración , de frente a sus necesidades.
+b) Que el cambio constituya una mejora para la Administración, de frente a sus necesidades.
 c) Que no se trate de actualizaciones que se encuentren en fase de investigación o que no hayan sido lo suficientemente probadas o carezcan de los respaldos pedidos en el cartel.
 d) Que no se incremente el precio adjudicado.
 e) Que las condiciones restantes se mantengan inalteradas.
 En el caso de adquisición de tecnología, el contratista está obligado a entregar objetos actualizados, cuando el cartel así lo haya dispuesto y sin perjuicio del cumplimiento de las anteriores condiciones. La última actualización se entenderá, entre otras cosas, como que el bien esté en línea de producción al momento de la entrega, o como la última versión del fabricante, cuando el objeto admita actualizaciones de esa naturaleza y ésta haya sido conocida en el mercado al menos un mes antes de la entrega de la orden de inicio. Para estos efectos, el Departamento de Proveeduría, o bien la Unidad solicitante podrán pedir al contratista que respalde el ofrecimiento con certificación emitida directamente por el fabricante.
 La mejora deberá primero informarse por escrito, explicando en detalle en qué consiste el cambio, de ser necesario a partir de literatura técnica y cualesquiera otros elementos que resulten pertinentes. La Unidad solicitante contará con diez días hábiles para resolver motivadamente la gestión, aceptando o rechazando el cambio propuesto, lapso que suspenderá el plazo de entrega. En caso de que se acepte la mejora la Administración , a petición del contratista, podrá prorrogar de manera justificada el plazo de entrega, que no podrá exceder el plazo original.
 Bajo ninguna circunstancia, los cambios en los bienes o servicios podrán demeritar las garantías y condiciones de los bienes inicialmente ofrecidas, las cuales se consideran un mínimo que no podrá ser rebajado ante modificaciones de esta naturaleza.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión de Junta Directiva número 304-2013 del 22 de marzo del 2013.

@@ -20,3 +20,4 @@ Reglamento para la Contratación de Bienes y Servicios de la Promotora de Comerc
 | 5 | 2012-04-09 | Reglamento 0 (2012-04-09) |
 | 6 | 2012-06-04 | Reglamento 0 (2012-06-04) |
 | 7 | 2013-03-22 | Reglamento 304 (2013-03-22) |
+| 8 | 2013-06-14 | Reglamento 307 (2013-06-14) |

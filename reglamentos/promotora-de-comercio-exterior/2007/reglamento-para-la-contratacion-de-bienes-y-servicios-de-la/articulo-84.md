@@ -1,2 +1,2 @@
 Artículo 84.-Plazo para dictar el acto final
-El acto final se dictará dentro del plazo máximo fijado en el cartel. Ese plazo podrá prorrogarse por un período igual y por una sola vez, siempre y cuando se acreditenrazones de interés público para tomar esa decisión.
+El acto final se dictará dentro del plazo máximo fijado en el cartel. Ese plazo podrá prorrogarse por un período igual y por una sola vez, siempre y cuando se acrediten razones de interés público para tomar esa decisión.

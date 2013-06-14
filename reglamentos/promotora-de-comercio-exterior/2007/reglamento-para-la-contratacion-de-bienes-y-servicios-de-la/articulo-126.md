@@ -2,4 +2,4 @@ Artículo 126.-Objeción en Contrataciones Públicas
 El recurso de objeción contra el cartel de las Contrataciones Públicas se impondrá ante la Administración.
 El recurso será resuelto en el plazo de diez días hábiles contados a partir de su presentación. Cuando resulte totalmente improcedente por el fondo o la forma, ya sea, entre otras cosas, porque se trate de simples aclaraciones, o porque no se presenta debidamente fundamentado, será rechazado de plano en el momento que se verifique tal circunstancia.
 Cuando la resolución disponga la modificación del cartel, la Administración se encuentra obligada a realizar las enmiendas y publicarlas por los medios correspondientes. Si de las modificaciones efectuadas se derivare una variación sustancial del objeto, la Administración deberá ampliar el plazo de recepción de ofertas, para ajustarlo a los plazos mínimos señalados por este Reglamento.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión de Junta Directiva número 304-2013 del 22 de marzo del 2013.

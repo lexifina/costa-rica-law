@@ -1,6 +1,4 @@
-Reglamento para la Contratación de Bienes y Servicios de la Promotora de Comercio Exterior de Costa Rica
-Reglamento para la Contratación de Bienes y Servicios de la Promotora de Comercio Exterior de Costa Rica
-(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, mediante sesión N° 304 del 22 de marzo del 2013, publicado en La Gaceta N° 83 del 2 de mayo del 2013, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, mediante sesión N° 307 del 14 de junio del 2013, publicado en La Gaceta N° 138 del 18 de julio del 2013, por lo que se reproduce a continuación:)
 ÍNDICE GENERAL
 CAPÍTULO I
 Disposiciones generales
@@ -104,6 +102,10 @@ Artículo 80.- Calificación de ofertas
 Artículo 81.- Empate
 Artículo 82.- Alcances de las mejoras
 Artículo 83.- Acto final
+Artículo 84.- Plazo para dictar el acto final
+Artículo 85.- Plazo para comunicar el acto final
+Artículo 86.- Revocación del acto no firme
+Artículo 87.- Plazo para dictar un nuevo acto
 CAPÍTULO VI
 Tipos de procesos de contratación
 SECCIÓN PRIMERA

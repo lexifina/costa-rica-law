@@ -1,4 +1,4 @@
 Artículo 142.-Rechazo del objeto
 En caso de incumplimientos graves y evidentes, la Unidad solicitante podrá rechazar el objeto en el mismo acto previsto para su recepción provisional y solicitar el procedimiento de resolución contractual. Cuando el objeto esté compuesto por líneas independientes entre sí, la Unidad solicitante podrá recibir provisionalmente unas y rechazar otras.
 Como alternativa, la Administración podrá conceder al contratista un nuevo plazo para que corrija el incumplimiento, el cual no podrá exceder de la mitad del plazo de ejecución original y no impedirá el cobro de multas establecidas en el cartel. Vencido ese plazo sin que el contratista cumpla a satisfacción, Unidad solicitante valorará si solicita la ejecución de la garantía de cumplimiento y/o también solicitar inicio del procedimiento de resolución contractual.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión de Junta Directiva número 304-2013 del 22 de marzo del 2013.

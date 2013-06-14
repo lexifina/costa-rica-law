@@ -35,4 +35,4 @@ La utilización de esta excepción de contratación deberá ser autorizada por l
 y) Servicios de capacitación: Los servicios de capacitación para funcionarios de la institución. Así agregado el inciso y) en la sesión 293-2012 del 16 de mayo del 2012.
 z) Contratación de escasa cuantía: aquellas contrataciones inferiores a cinco mil dólares. Así agregado el inciso z) en la sesión 293-2012 del 16 de mayo del 2012.
 Cuando proceda la Contratación Directa , la Gerencia o Dirección encargada de la contratación deberá justificar en el expediente el inciso de este artículo que se aplica, asimismo, deberá probar a la Administración la razonabilidad del precio, que el contratista es el idóneo y que garantiza el fiel cumplimiento de sus obligaciones.
-Modificado (título) en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Modificado (título) en la sesión de Junta Directiva número 304-2013 del 22 de marzo del 2013.

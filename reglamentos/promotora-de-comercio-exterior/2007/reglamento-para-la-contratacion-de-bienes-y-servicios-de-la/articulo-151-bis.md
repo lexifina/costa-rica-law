@@ -1,0 +1,3 @@
+Artículo 151 bis: Traslado del informe a la Gerencia General :
+Una vez que la jefatura del Departamento de Compras recibe la solicitud de resolución contractual, dentro del plazo de 3 días hábiles posteriores a la recepción del citado informe y una vez realizado el análisis técnico respectivo, deberá trasladar el informe de resolución contractual a la Gerencia General de PROCOMER, quien a su vez, remitirá el expediente administrativo de la contratación con la finalidad de determinar el inicio del procedimiento administrativo de resolución contractual.
+Adicionado mediante acuerdo de Junta Directiva de la sesión 307-2013 del 14 de junio del 2013.
