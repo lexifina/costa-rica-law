@@ -1,0 +1,1 @@
+Artículo 3º—A los efectos de esta declaratoria se exceptúa al Ministerio de Obras Públicas y Transportes, del cumplimiento de los requisitos establecidos en el artículo 89 del Decreto Ejecutivo Nº 25721-MINAE del 17 de octubre de 1996, Reglamento a la Ley Forestal N° 7575, para demostrar la titularidad de la propiedad en los inmuebles en los que se desarrollará el proyecto.

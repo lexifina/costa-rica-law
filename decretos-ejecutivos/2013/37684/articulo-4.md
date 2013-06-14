@@ -1,0 +1,1 @@
+Artículo 4º—En la eventualidad de que la corta del recurso forestal existente sea aprovechable, deberá ser entregado al Ministerio de Educación Pública (5MEP), siguiendo el procedimiento establecido en la Ley Forestal y cualquier otra norma particular referente.

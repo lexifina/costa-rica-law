@@ -1,0 +1,1 @@
+Artículo 2º—Le corresponde al Ministerio de Obras Públicas y Transportes implementar el Plan de Reforestación en la misma zona donde se produzca la corta y su respectivo mantenimiento, conforme lo autorice el Sistema Nacional de Áreas de Conservación (SINAC), del Ministerio de Ambiente y Energía.

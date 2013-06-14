@@ -1,0 +1,1 @@
+Artículo 5º—Para la ejecución de las obras, deberá contarse con la viabilidad ambiental otorgada por la Secretaría Técnica Nacional Ambiental (SETENA) del Ministerio de Ambiente y Energía (MINAE) para el desarrollo y construcción del “Proyecto de Infraestructura Vial Bajos de Chilamate – Vuelta Kooper”
