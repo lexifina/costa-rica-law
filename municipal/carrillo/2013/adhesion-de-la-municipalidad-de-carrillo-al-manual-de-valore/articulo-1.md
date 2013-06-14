@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE CARRILLO
+Manual de Tipología Constructiva 2013
+La Municipalidad de Carrillo comunica que en acatamiento a lo dispuesto en el artículo 12 de la Ley del Impuesto sobre Bienes Inmuebles y el artículo 19 del Reglamento a esa misma ley, se adhiere al Manual de Valores Base Unitarios por Tipología Constructiva publicado por el Órgano de Normalización Técnica del Ministerio de Hacienda en el Alcance Digital Nº 22 del Diario Oficial La Gaceta Nº 23 del 1º de febrero del 2013, así como cualquier Ademdum que el ONT emita con el afán de corregir y/o aclarar sus contenidos. A partir de esta publicación este manual será de aplicación para las gestiones efectuadas por el Departamento de Catastro y Bienes Inmuebles.
