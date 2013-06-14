@@ -43,3 +43,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 28 | 2013-05-27 | Resolución 21 (2013-05-27) |
 | 29 | 2013-05-27 | Resolución 22 (2013-05-27) |
 | 30 | 2013-05-27 | Resolución 23 (2013-05-27) |
+| 31 | 2013-06-14 | Resolución 31 (2013-06-14) |
