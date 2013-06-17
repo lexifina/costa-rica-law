@@ -1,0 +1,1 @@
+Artículo 4º—Contratación en modalidad colectiva. Se podrán contratar en modalidad colectiva “todos los tipos, ramos y líneas de seguros debidamente registrados ante la SUGESE bajo esa modalidad todos los tipos, ramos y líneas de seguros debidamente registrados ante la SUGESE bajo esa modalidad.
