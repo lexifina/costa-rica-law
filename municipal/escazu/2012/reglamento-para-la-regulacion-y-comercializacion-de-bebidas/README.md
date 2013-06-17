@@ -14,3 +14,4 @@ Reglamento para la regulación y comercialización de bebidas con contenido alco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-25 | la propia norma |
+| 2 | 2013-06-17 | Reglamento municipal 164 (2013-06-17) |
