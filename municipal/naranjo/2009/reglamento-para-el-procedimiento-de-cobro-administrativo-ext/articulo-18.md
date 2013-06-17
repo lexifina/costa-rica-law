@@ -1,1 +1,0 @@
-Artículo 18.—El encargado de la Oficina de Gestión de Cobro está obligado a cotejar los edictos antes y después de su publicación en el boletín Judicial, con los documentos que fundamentan la demanda y será responsable, ante la Municipalidad de cualquier perjuicio que por error al respecto pudiera causar su omisión.

@@ -1,1 +1,0 @@
-Artículo 14.—Los arreglos de pago se harán con deudas superiores a los diez mil colones y en cuentas inferiores a ese monto no se autorizan esos arreglos de pago. Solo se dará un plazo máximo de treinta días naturales para su cancelación.
