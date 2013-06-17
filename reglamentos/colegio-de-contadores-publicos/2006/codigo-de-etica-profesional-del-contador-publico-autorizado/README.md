@@ -17,3 +17,4 @@ Código de Ética Profesional del Contador Público Autorizado
 | 2 | 2010-11-30 | Reglamento 7 (2010-11-30) |
 | 3 | 2013-06-17 | Reglamento 15 (2013-06-17) |
 | 4 | 2013-06-17 | Reglamento 15 (2013-06-17) |
+| 5 | 2013-06-17 | Reglamento 15 (2013-06-17) |
