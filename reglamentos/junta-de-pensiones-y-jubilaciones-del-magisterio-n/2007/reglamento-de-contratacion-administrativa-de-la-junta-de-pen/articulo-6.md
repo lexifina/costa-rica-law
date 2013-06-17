@@ -2,19 +2,25 @@ Artículo 6º—De la autorización de las compras: Previo a la formalización d
 Cuando no se cumpla con el número de ofertas que contempla este artículo, se presentarán las ofertas respectivas a la comisión de Asuntos Económicos y Administrativos, específicamente para los procesos referidos en el inciso e) de este artículo, quien posteriormente lo elevará a Junta Directiva, la cual decidirá a quien adjudicar el proceso, o bien lo declare desierto.
 Para las contrataciones establecidas en los incisos a), b), c), también deberá evidenciarse en los legajos respectivos las cotizaciones solicitadas.
 El trámite de contratación a seguir se realizará de la siguiente forma:
-A. Las compras superiores a ¢81.000,00 hasta ¢547.500,00 requerirán de una cotización escrita y será aprobada por el Jefe del Departamento Administrativo.
-B. Las compras superiores a ¢547.500,00 hasta ¢1.095.000,00 requerirán de dos cotizaciones y serán aprobadas por el Jefe del Departamento Administrativo más el Visto Bueno del Director Ejecutivo.
-C. Las compras superiores a ¢1.095.000,00 y hasta ¢2.169.500,00 requerirán de tres cotizaciones y serán aprobadas por el Jefe del Departamento Administrativo más el Visto Bueno del Director Ejecutivo.
-D. Las compras superiores a los ¢2.169.500,00 y hasta ¢4.705.000,00 serán aprobadas por la Dirección Ejecutiva , requerirán de un mínimo de tres cotizaciones y un cuadro comparativo que incluirá:
+A. Las compras superiores a ¢100.000 y hasta ¢750.000, requerirán al menos una invitación a cotizar escrita y será aprobada por el Jefe del Departamento Administrativo.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 066-2013 del 17 de junio del 2013)
+B. Las compras superiores a ¢750.000 y hasta ¢2.500.000 requerirán al menos dos invitaciones a cotizar y serán aprobadas por el Jefe del Departamento Administrativo, más el visto bueno del Director Ejecutivo.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 066-2013 del 17 de junio del 2013)
+C.Las compras superiores a ¢2.500.000 y hasta ¢5.000.000 requerirán al menos tres invitaciones a cotizar y serán aprobadas por el Jefe del Departamento Administrativo, más el visto bueno del Director Ejecutivo.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 066-2013 del 17 de junio del 2013)
+D.Las compras superiores a los ¢5.000.000 y hasta ¢15.000.000 serán aprobadas por la Dirección Ejecutiva y requerirán al menos tres invitaciones a cotizar y un cuadro comparativo
+(Así reformado el inciso anterior mediante sesión ordinaria N° 066-2013 del 17 de junio del 2013)
 1. Precios.
 2. Forma de pago.
 3. Descripción del bien o servicio por contratar.
 4. Garantía
 5. Plazo de entrega
 6. Cualquier otro detalle que se considere relevante para la adquisición del bien o servicio.
-E. Las compras superiores a ¢4.705.000,00, deberán cumplir con los mismos requisitos del inciso D de este artículo, en lo referente a la confección del cuadro comparativo y requerirán cuatro cotizaciones y deberán ser objeto de aprobación por parte de la Junta Directiva.
+E. Las compras superiores a ¢15.000.000, deberán cumplir con los mismos requisitos del inciso D de este artículo, en lo referente a la confección del cuadro comparativo y requerirán al menos cuatro invitaciones a cotizar y deberán ser objeto de aprobación por parte de la Junta Directiva.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 066-2013 del 17 de junio del 2013)
 Los montos establecidos en los incisos anteriores serán ajustados durante el primer trimestre de cada año por la Dirección Ejecutiva , tomando como factor de incremento el índice de precios al consumidor acumulado durante el año anterior, dicha modificación debe hacerse del conocimiento de Junta Directiva.
-F. Las cotizaciones a que se refiere el inciso e) de este artículo deberán ser obtenidas por medio de invitación a cotizar, considerando los proveedores inscritos en el registro de proveedores de la Junta , bajo las siguientes formalidades:
+F. Las cotizaciones a que se refiere el inciso e) de este artículo, deberán ser obtenidas por medio de invitación a cotizar
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 066-2013 del 17 de junio del 2013)
 1. Ser presentadas en sobre cerrado.
 2. Los sobres deberán abrirse en una fecha y hora prevista.
 3. Al acto de apertura se convocará a las siguientes personas:
