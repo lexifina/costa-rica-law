@@ -1,0 +1,1 @@
+3º—Que el código de convenio (4), así como el código de documento (0136) utilizados en el sistema de informático TICA para la aplicación de la preferencia arancelaria del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y la República de Costa Rica, se mantienen iguales y vigentes.

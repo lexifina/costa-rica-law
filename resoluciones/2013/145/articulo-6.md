@@ -1,0 +1,1 @@
+6º—Que el Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, entrará en vigencia el 1° de julio de 2013, y el Texto completo del Tratado y sus Anexos se encuentran disponibles en la página www.comex.go.cr.
