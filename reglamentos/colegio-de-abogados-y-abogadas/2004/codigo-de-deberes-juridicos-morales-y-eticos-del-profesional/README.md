@@ -18,3 +18,4 @@ Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho.
 | 3 | 2009-11-30 | Reglamento 39 (2009-11-30) |
 | 4 | 2012-05-28 | Reglamento 18 (2012-05-28) |
 | 5 | 2013-05-27 | Reglamento 18 (2013-05-27) |
+| 6 | 2013-06-17 | Reglamento 21 (2013-06-17) |
