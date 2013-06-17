@@ -1,4 +1,6 @@
+(Revocada)
 COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+(Esta norma fue revocada mediante acuerdo N° 285-2013 tomado en sesión ordinaria N° 15-2013 del 17 de junio del 2013)
 CIRCULAR Nº 14-2010
 La Junta Directiva del Colegio de Contadores Públicos de Costa Rica, de conformidad con las facultades que le confiere el artículo 14 de la Ley de Regulación de la Profesión de Contadores Públicos y creación del Colegio de Contadores Públicos de Costa Rica número 1038, del 19 de agosto de mil novecientos cuarenta y siete, acordó en sesión ordinaria de Junta Directiva Nº 10 del día 8 de junio del 2010, Acuerdo Nº 246-2010 derogar la circular 13-2007 y en su lugar aprobar y emitir la siguiente “Guía para la Certificación de Cumplimiento de los Elementos del Reglamento de Gobierno Corporativo de la Bolsa Nacional de Valores”.
 Considerando:

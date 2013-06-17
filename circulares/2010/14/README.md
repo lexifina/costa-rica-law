@@ -14,3 +14,4 @@ Guía para la Certificación de Cumplimiento de los Elementos del Reglamento de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-26 | la propia norma |
+| 2 | 2013-06-17 | Acuerdo 285 (2013-06-17) |
