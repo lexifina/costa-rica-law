@@ -15,3 +15,4 @@ Reforma Integral Manual de Procedimientos Legales de la Inspección de Trabajo
 | --- | --- | --- |
 | 1 | 2008-08-28 | la propia norma |
 | 2 | 2011-04-05 | Directriz 14 (2011-04-05) |
+| 3 | 2013-06-17 | Directriz 17 (2013-06-17) |
