@@ -1,5 +1,6 @@
 Artículo 91.- Son aplicables a esas comisiones las disposiciones generales siguientes:
-91.1 Estarán integradas por tres miembros titulares de la Junta. A sus sesiones podrá asistir un suplente con sus atribuciones, de conformidad con el Artículo 88.
+91.1 Estarán integradas por tres miembros de la Junta.
+(Así reformado el inciso anterior en sesión N° 04 del 18 de junio de 2013)
 91.2 Su quórum lo constituyen dos de sus miembros.
 91.3 El miembro de mayor edad, presente, presidirá las sesiones.
 91.4 En caso de empate, el asunto se enviará a la Junta para su resolución.

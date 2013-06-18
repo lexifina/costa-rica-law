@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento del Fondo de Ahorro, Préstamo, Viv
 | --- | --- | --- |
 | 1 | 2012-08-08 | la propia norma |
 | 2 | 2012-10-02 | Reglamento 43 (2012-10-02) |
+| 3 | 2013-06-18 | Reglamento 4 (2013-06-18) |
