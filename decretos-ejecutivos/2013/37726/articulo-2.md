@@ -1,0 +1,1 @@
+Artículo 2º—Se mantiene la veda para las demás especies de moluscos bivalvos marinos en todo el Litoral Pacífico costarricense, de conformidad con lo establecido en el Decreto Ejecutivo Nº 37402-S-MAG del 13 de noviembre del 2012.
