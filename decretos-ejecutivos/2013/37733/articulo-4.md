@@ -1,0 +1,1 @@
+Artículo 4º—La Compañía Nacional de Fuerza y Luz S.A (CNFL), deberá identificar y restablecer las áreas afectadas por la realización de las obras, por medio de reforestaciones de especies nativas y de regeneración natural, conforme lo apruebe el Sistema Nacional de Áreas de Conservación.

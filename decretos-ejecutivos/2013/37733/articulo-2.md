@@ -1,0 +1,1 @@
+Artículo 2º—El Sistema Nacional de Áreas de Conservación y la Secretaría Técnica Nacional Ambiental del Ministerio de Ambiente y Energía brindarán un tratamiento prioritario y expedito en las gestiones de su competencia que ante ellas realice la Compañía Nacional de Fuerza y Luz S.A (CNFL), con ocasión del Proyecto.
