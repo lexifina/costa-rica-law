@@ -22,3 +22,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 7 | 2012-02-28 | Reglamento 962 (2012-02-28) |
 | 8 | 2012-12-11 | Reglamento 1018 (2012-12-11) |
 | 9 | 2013-04-02 | Reglamento 1034 (2013-04-02) |
+| 10 | 2013-06-18 | Reglamento 1047 (2013-06-18) |

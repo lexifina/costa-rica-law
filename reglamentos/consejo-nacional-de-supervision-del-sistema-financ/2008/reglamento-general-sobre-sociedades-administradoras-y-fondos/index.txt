@@ -23,6 +23,7 @@ articulo-22.md
 articulo-23.md
 articulo-24.md
 articulo-25.md
+articulo-25-bis.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
@@ -130,3 +131,5 @@ articulo-5-transitorio.md
 articulo-6-transitorio.md
 articulo-7-transitorio.md
 articulo-8-transitorio.md
+articulo-9-transitorio.md
+articulo-10-transitorio.md

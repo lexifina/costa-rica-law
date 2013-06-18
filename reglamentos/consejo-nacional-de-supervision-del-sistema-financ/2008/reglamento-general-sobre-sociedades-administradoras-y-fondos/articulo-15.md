@@ -1,9 +1,9 @@
 Artículo 15.—Requisitos de autorización. La autorización para realizar oferta pública de un fondo de inversión o megafondo constituidos bajo la legislación costarricense está sujeta a la presentación de la siguiente documentación:
-a) Solicitud suscrita por el representante legal.
-b) Copia certificada o testimonio de la protocolización del acta de la junta directiva que haya acordado la constitución del fondo o megafondo, de conformidad con el contenido que defina el Superintendente. La junta directiva puede delegar expresamente en el acta a la administración para que defina las características del fondo o megafondo.
-c) Prospecto. Este puede ser presentado en borrador junto con la solicitud de inscripción, no obstante una vez emitida la resolución de autorización debe presentarse la versión definitiva, de conformidad con lo establecido en los artículos 19 y 20 de este Reglamento.
-d) Código ISIN emitido por la entidad codificadora autorizada, para el caso de fondos cerrados. El código se presenta conforme lo establecido en el artículo 16 de este Reglamento.
-e) En el caso de fondos de inversión de principal garantizado se debe presentar el borrador del documento de garantía.
-f) Manual de procedimientos para los procesos críticos en la administración del tipo de fondo que se solicita la autorización, de conformidad con los lineamientos establecidos por el Superintendente.
-Para la colocación de participaciones de fondos cerrados, se debe cumplir con lo dispuesto en materia de colocación de valores para mercado primario del Reglamento de Oferta Pública de Valores. La modalidad de suscripción a mejor esfuerzo no es aplicable para participaciones de fondos cerrados.
-El cumplimiento del inciso f., se demuestra mediante una declaración jurada protocolizada, de conformidad con los lineamientos establecidos por el Superintendente.
+a. Solicitud suscrita por el representante legal.
+b. Copia certificada o testimonio de la protocolización del acta de la junta directiva que haya acordado la constitución del fondo o megafondo, de conformidad con el contenido que defina el Superintendente. La junta directiva puede delegar expresamente en el acta a la administración para que defina las características del fondo o megafondo.
+c. Prospecto. Este puede ser presentado en borrador junto con la solicitud de inscripción, no obstante una vez emitida la resolución de autorización debe presentarse la versión definitiva, de conformidad con lo establecido en los artículos 19 y 20 de este Reglamento.
+d. Código ISIN emitido por la entidad codificadora autorizada, para el caso de fondos cerrados. El código se presenta conforme lo establecido en el artículo 16 de este Reglamento.
+e. En el caso de fondos de inversión de principal garantizado se debe presentar el borrador del documento de garantía.
+f. Manual de procedimientos para los procesos críticos en la administración del tipo de fondo que se solicita la autorización, de conformidad con los lineamientos establecidos por el Superintendente.
+Para la colocación de participaciones de fondos cerrados, se debe cumplir con lo dispuesto en materia de colocación de valores para mercado primario del Reglamento sobre Oferta Pública de Valores. El cumplimiento del inciso f., se demuestra mediante una declaración jurada protocolizada, de conformidad con los lineamientos establecidos por el Superintendente.
+(Así reformado en sesión N° 1047 del 18 de junio de 2013)

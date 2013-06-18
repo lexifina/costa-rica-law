@@ -1,9 +1,9 @@
 Artículo 84.—Límites a reparaciones, remodelaciones, mejoras y ampliaciones de inmuebles. Las sociedades administradoras pueden efectuar, con cargo al fondo, reparaciones, remodelaciones y mejoras a los inmuebles que adquieran; asimismo, se pueden realizar ampliaciones a los inmuebles adquiridos. El costo acumulado de las reparaciones, remodelaciones, mejoras y ampliaciones en los últimos doce meses móviles, debe ser igual o menor a un 15% del valor del inmueble.
 Pueden realizarse reparaciones, remodelaciones, mejoras y ampliaciones por porcentajes mayores, siempre y cuando se cumpla con lo siguiente:
-a) El monto no supere el 100% del valor de la última valoración anual del inmueble.
-b) Se cuente con el acuerdo de la asamblea de inversionistas.
-c) No pueden ser financiados con cargo al fondo durante el periodo de construcción.
-d) En el caso de ampliaciones, debe responder a una necesidad de expansión de un arrendatario del inmueble y éste haya confirmado el uso que se dará al área que se desea ampliar.
-e) En el caso de ampliaciones, se cuenten con los estudios de factibilidad y viabilidad financiera.
+a. El monto no supere el 100% del valor de la última valoración anual del inmueble.
+b. Se cuente con el acuerdo de la asamblea de inversionistas.
+c. En el caso de ampliaciones, debe responder a una necesidad de expansión de un arrendatario del inmueble y éste haya confirmado el uso que se dará al área que se desea ampliar.
+d. En el caso de ampliaciones, se cuenten con los estudios de factibilidad y viabilidad financiera.
 Las obras superiores a un 15% deben ser realizadas por un tercero libre de conflicto de interés con la sociedad administradora, sus socios, directivos y empleados, así como a las personas que formen parte de su grupo de interés económico, de conformidad con la definición establecida en este Reglamento. Tampoco pueden ser realizadas por inquilinos del fondo o inquilinos de otros fondos inmobiliarios administrados por la misma sociedad administradora.
 En los prospectos de los fondos de inversión inmobiliarios se pueden establecer lineamientos sobre la creación y uso de reservas. Estos lineamientos deben ser aprobados por la asamblea de inversionistas y deben considerar lo dispuesto en las normas de contabilidad definidas por el Consejo Nacional de Supervisión del Sistema Financiero. El uso de reservas debe estar relacionado con el mantenimiento y reparación de los activos del fondo y no debe incluir mecanismos que pretendan garantizar al inversionista un rendimiento determinado.
+(Así reformado en sesión N° 1047 del 18 de junio de 2013)
