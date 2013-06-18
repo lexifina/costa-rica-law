@@ -1,0 +1,1 @@
+Artículo 22.—Garantía del denunciante y testigos. Ninguna persona que, amparada en el presente Protocolo haya denunciado acoso laboral o haya comparecido como testigo de las partes, podrá ser objeto de represalia por ese motivo.

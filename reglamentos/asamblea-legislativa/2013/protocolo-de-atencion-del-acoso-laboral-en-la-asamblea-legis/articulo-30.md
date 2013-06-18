@@ -1,0 +1,6 @@
+Artículo 30.—Vigencia y publicidad del protocolo. Este protocolo deberá ser aprobado por el Directorio Legislativo y rige a partir de su publicación en el Diario Oficial La Gaceta. Será obligación de la Administración difundir su texto para conocimiento de la población legislativa mediante los instrumentos de comunicación institucional disponibles.
+Asimismo, de conformidad con lo dispuesto en el artículo 10 del presente cuerpo normativo, se designa a las funcionarias Alejandra Cruz Bolaños, cédula Nº 1-778-743; Ana Julia Araya Alfaro, cédula Nº 2-354-373 y Kattia Jiménez Porras, cédula Nº 1-771-031 como miembros de la Comisión Instructora del Procedimiento, por un plazo de tres años renovables a partir de la publicación del documento en el Diario Oficial La Gaceta.
+Se encarga a los directores de los departamentos de Recursos Humanos, Servicios de Salud y Asesoría Legal para que propongan el nombre de los eventuales suplentes de las funcionarias.
+Se instruye a la Administración para que ofrezca la colaboración necesaria a la Comisión Instructora del Procedimiento para su efectiva labor y que difunda esta normativa por los canales correspondientes.
+Lo anterior rige a partir de su publicación en el Diario Oficial La Gaceta. Acuerdo firme.
+San José, a los veintinueve días del mes de mayo del dos mil trece.

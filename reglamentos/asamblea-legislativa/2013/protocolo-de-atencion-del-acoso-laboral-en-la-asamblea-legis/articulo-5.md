@@ -1,0 +1,2 @@
+Artículo 5º—Sujetos. Cualquier persona que labore en la Asamblea Legislativa, con independencia de su tipo de nombramiento y de la posición que ocupe dentro de la Institución, sea esta jerárquica o no, pueden ser sujetos activos o autores del acoso laboral, o bien, sujetos pasivos o víctimas de esta modalidad de violencia laboral.
+Serán sujetos partícipes aquellas personas que induzcan o favorezcan el acoso laboral, así como la persona que como representante patronal, omita cumplir los requerimientos o sanciones que se emitan en los términos del presente Protocolo.

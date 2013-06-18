@@ -1,0 +1,1 @@
+Artículo 9º—Acuerdo de mediación. El proceso de mediación se desarrollará cuando exista consentimiento de las partes y se cumplan los criterios de admisibilidad y conciliabilidad. Los acuerdos que se tomen serán de acatamiento obligatorio para las personas involucradas y carecerán de recurso ulterior, por lo que tendrán valor de cosa juzgada.

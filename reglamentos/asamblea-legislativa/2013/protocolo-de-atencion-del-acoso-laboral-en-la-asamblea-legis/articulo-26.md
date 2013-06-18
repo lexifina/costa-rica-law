@@ -1,0 +1,1 @@
+Artículo 26.—Derecho de la persona denunciante para recibir atención psicológica. Se le garantiza a la persona denunciante el derecho a solicitar y obtener en cualquier momento, atención profesional en el Servicio de Psicología del Departamento de Servicios de Salud de la Asamblea Legislativa, a fin de brindar apoyo para su restablecimiento psicológico.

@@ -1,0 +1,1 @@
+Artículo 21.—Imposibilidad de conciliación durante el proceso de instrucción. Durante el transcurso de la instrucción del procedimiento administrativo disciplinario por acoso laboral no habrá etapa de conciliación.

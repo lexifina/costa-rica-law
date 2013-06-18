@@ -1,0 +1,1 @@
+Artículo 7º—Evaluación de riesgos. El Departamento de Servicios de Salud realizará evaluaciones de riesgos psicosociales, con el fin de determinar su naturaleza y frecuencia en relación con el trabajo, para detectar posibles situaciones de riesgo que pudieran generar conflicto.
