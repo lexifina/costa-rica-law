@@ -1,0 +1,3 @@
+Artículo 2º—Funciones: Que de conformidad con el artículo 21 del citado Reglamento, la Comisión de Recomendación de Adjudicaciones tendrá las siguientes funciones:
+1. Emitir recomendaciones de adjudicación, o de declaratoria de deserción, en los procedimientos ordinarios de contratación administrativa.
+2. En los procedimientos de contratación directa la Comisión deberá emitir recomendación cuando por la complejidad del bien, servicio u obra lo requiera; caso contrario, a juicio del Proveedor Institucional, solicitar o no criterio técnico a la unidad que ha requerido la contratación, con el fin de preparar la resolución de adjudicación.
