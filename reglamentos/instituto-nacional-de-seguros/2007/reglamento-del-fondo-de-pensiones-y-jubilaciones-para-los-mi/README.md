@@ -14,3 +14,4 @@ Reglamento del Fondo de Pensiones y Jubilaciones para los miembros del Beneméri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-29 | la propia norma |
+| 2 | 2013-06-19 | SINALEVI (sin norma nombrada) |
