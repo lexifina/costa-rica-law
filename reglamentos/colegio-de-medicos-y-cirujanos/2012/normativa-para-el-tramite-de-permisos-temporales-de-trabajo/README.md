@@ -14,3 +14,4 @@ Normativa para el trámite de permisos temporales de trabajo de médicos especia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-17 | la propia norma |
+| 2 | 2013-06-19 | Reglamento 0 (2013-06-19) |
