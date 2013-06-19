@@ -1,0 +1,1 @@
+Artículo 5°—La Secretaría Técnica de la Autoridad Presupuestaria elaborará un informe mensual para verificar el cumplimiento de lo dispuesto en esta directriz y lo elevará a conocimiento del Ministro de Hacienda.

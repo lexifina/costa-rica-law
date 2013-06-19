@@ -1,0 +1,1 @@
+Artículo 2°—En los cálculos de los límites anteriores, se consideran emitidos por un solo emisor los valores generados o avalados por una misma entidad o las empresas de su grupo de interés económico.
