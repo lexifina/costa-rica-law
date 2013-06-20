@@ -1,1 +1,0 @@
-Artículo 22.—Para calcular el valor de los bienes, con el único fin de incluirlo en los registros auxiliares, el Área de Contabilidad puede solicitar los servicios de funcionarios de las dependencias que tengan conocimiento del mismo, a fin de que los bienes figuren en los registros auxiliares con el valor más aproximado.

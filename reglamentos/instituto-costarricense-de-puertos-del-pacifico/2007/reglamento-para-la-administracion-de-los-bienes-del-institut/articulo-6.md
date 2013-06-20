@@ -1,1 +1,0 @@
-Artículo 6º—Al recibir el activo, mediante firma, el usuario asume plena responsabilidad sobre él y se obliga a procurar su conservación, utilizarlo en forma adecuada y solamente para labores relacionadas con el INCOP.

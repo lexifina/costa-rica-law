@@ -1,2 +1,0 @@
-Artículo 46.—A partir de la publicación en el Diario Oficial La Gaceta, el Área de Contabilidad tendrá un plazo de dos meses para que todos los activos fijos tengan su respectiva placa. Los puertos administrados por el INCOP, así como las oficinas que se encuentran fuera de la sede central del INCOP, deben reportar en un período no mayor a los 15 días de publicado este reglamento al Área de Contabilidad los activos que no tienen placa.
-Rige a partir de su publicación en el Diario Oficial La Gaceta.

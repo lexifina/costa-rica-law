@@ -1,1 +1,0 @@
-Artículo 5º—En cada dependencia, el encargado de control de activos, debe llevar un detalle de los activos asignados a cada funcionario, controlar los bienes que se envían a reparación, coordinar la entrega al Área de Contabilidad de los activos en desuso, así como informar sobre activos que están subutilizados y atender las demás funciones que se detallan en este Reglamento.

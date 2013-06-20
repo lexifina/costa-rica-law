@@ -1,1 +1,0 @@
-Artículo 16.—Cuando se crea una nueva unidad, o una ya existente adquiere total independencia respecto a otra de la que formaba parte, se debe levantar un inventario de los bienes que le han sido asignados, indicando la unidad de procedencia, para que el Área de Contabilidad realice los movimientos correspondientes en los registros auxiliares.

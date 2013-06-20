@@ -1,1 +1,0 @@
-Artículo 25.—Cuando se realice una construcción nueva o ampliaciones, es responsabilidad y una de su obligación del departamento contable registrar el finiquito de la obra y trasladarlo como activo, eliminando la cuenta obras en proceso, en el mes inmediato posterior al recibo de la documentación enviada de mantenimiento

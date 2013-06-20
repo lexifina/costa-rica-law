@@ -1,1 +1,0 @@
-Artículo 27.—Cuando se detecte un faltante en el registro auxiliar de los bienes muebles y exista responsabilidad del funcionario a cuyo cargo se encontraba, la Dirección de Gestión Administrativa-Financiera procederá a ordenar el cobro, empleando los medios legales más expeditos. El valor a cobrar será el de reposición del activo, según el precio de mercado vigente.

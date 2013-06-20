@@ -1,1 +1,0 @@
-Artículo 10.—Toda Autoridad del INCOP al asumir sus funciones deberá recibir de su antecesor en el cargo, un detalle de los bienes muebles asignados a su dependencia, y asumirá la responsabilidad por ellos. Una copia de ese detalle deberá ser enviado al Área de Contabilidad.

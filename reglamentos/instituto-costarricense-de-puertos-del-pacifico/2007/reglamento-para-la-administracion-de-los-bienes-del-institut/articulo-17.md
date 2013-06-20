@@ -1,1 +1,0 @@
-Artículo 17.—En caso de supresión de alguna unidad, el funcionario responsable de ella debe velar porque los activos se entreguen al Área de Contabilidad para asignarles el mejor uso. Deberá entregarle además un inventario detallado de los bienes en mención.
