@@ -1,0 +1,1 @@
+2) Elevar a la Junta Directiva el recurso de apelación en subsidio y prevenirle a las partes que cuentan con tres días hábiles, a partir del día siguiente de la notificación de esa resolución, para hacer valer sus derechos ante dicho órgano de alzada.
