@@ -1,0 +1,1 @@
+Artículo 6º—Límite de acción en el uso y disposición de los recursos públicos. El presupuesto constituye el límite de la Municipalidad de Paraíso, sujeta a la fiscalización de la Contraloría General de la República, en el uso y disposición de sus recursos públicos y solo podrá ser variado mediante los mecanismos que el ordenamiento jurídico prevé.
