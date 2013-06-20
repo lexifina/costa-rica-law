@@ -1,4 +1,1 @@
-Artículo 16.—Modificaciones: El presente Reglamento deberá ser revisado periódicamente por la Comisión de Asuntos Jurídicos para proponer los cambios y/o modificaciones que considere necesarios para su posterior aprobación por parte de la Junta Directiva de Popular Pensiones S. A.
-El presente Reglamento rige a partir de su publicación. Aprobado en la sesión de Junta Directiva de Popular Pensiones S.A. Nº 365, celebrada el jueves 10 de noviembre del 2011
-(Ref.: Comunicación de acuerdo Nº CAJPP-ACD-41-2011, tomado en la Comisión de Asuntos Jurídicos Nº 10-2011, celebrada el 03 de noviembre del 2011).
-San José, 25 de enero del 2012.—
+Artículo 16.—Modificaciones: El presente Reglamento deberá ser revisado por la Comisión de Asuntos Jurídicos al menos una vez al año, para proponer los cambios y/o modificaciones que considere necesarios para su posterior aprobación por parte de la Junta Directiva de Popular Pensiones S. A.

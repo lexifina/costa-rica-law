@@ -14,3 +14,4 @@ Reglamento de la Comisión de Asuntos Jurídicos de la Operadora de Planes de Pe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-02 | la propia norma |
+| 2 | 2013-06-20 | Reglamento 409 (2013-06-20) |
