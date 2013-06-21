@@ -1,0 +1,1 @@
+Artículo 7º—Las Proveedurías Institucionales deben velar porque en los procedimientos de contratación no resulten adjudicatarias personas físicas o jurídicas sancionadas con inhabilitación para participar en procedimientos de contratación administrativa, conforme las disposiciones contenidas en el numeral 100 de la Ley de Contratación Administrativa y 215 de su Reglamento.

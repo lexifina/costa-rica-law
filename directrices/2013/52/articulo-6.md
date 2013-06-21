@@ -1,0 +1,1 @@
+Artículo 6º—En los Carteles Tipo se definirá con claridad la normativa y especificaciones técnicas que regirán la contratación y los mecanismos de sanción pecuniaria por incumplimientos contractuales, de forma que se dote a los servidores a cargo de la supervisión de las obras, de las herramientas necesarias para exigir al contratista el cabal cumplimiento de lo pactado.

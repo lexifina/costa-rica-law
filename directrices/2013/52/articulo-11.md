@@ -1,0 +1,1 @@
+Artículo 11.—Las instituciones del Sector Transporte que ejecuten obras de infraestructura para el transporte, contarán con un plazo de seis meses contados a partir de la fecha de rige de la presente Directriz, para implementar la utilización de los carteles tipo elaborados.

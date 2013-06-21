@@ -1,0 +1,1 @@
+Artículo 10.—Lo dispuesto en la presente directriz regirá, en lo que sea aplicable, a obras de semejante naturaleza, que se ejecuten en puertos, aeropuertos y aeródromos, tales como pistas de aterrizaje, pistas de rodaje, etc.
