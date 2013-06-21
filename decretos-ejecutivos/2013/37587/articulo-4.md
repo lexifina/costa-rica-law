@@ -1,0 +1,1 @@
+Artículo 4º—Corresponde al Instituto Costarricense de Pesca y Acuicultura en su condición de Autoridad Ejecutora del PNDPA y a la Comisión Nacional del Mar la coordinación con las Autoridades de la Administración Central y Descentralizada para el cumplimiento de las metas y estrategias contenidas en este Plan.

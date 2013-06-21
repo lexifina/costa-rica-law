@@ -1,0 +1,1 @@
+Artículo 2º—La Secretaría Técnica de la Comisión Nacional del Mar y la Presidencia Ejecutiva del Instituto Costarricense de Pesca y Acuicultura serán los responsables del seguimiento a la ejecución del Plan Nacional de Desarrollo de la Pesca y de la Acuicultura de Costa Rica.

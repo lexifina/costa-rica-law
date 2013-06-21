@@ -1,0 +1,17 @@
+N° 37587-MAG
+EL SEGUNDO VICEPRESIDENTE
+EN EL EJERCICIO DE LA PRESIDENCIA DE LA REPUBLICA
+Y LA MINISTRA DE AGRICULTURA Y GANADERÍA
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20), 50 y 146 de la Constitución Política; los artículos 25, 27.1, 28.2b de la Ley N°6227 del 02 de mayo de 1978, Ley General de la Administración Pública; la Ley N°7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, la Ley N°7384 del 16 de marzo de 1994, Ley de Creación del Instituto Costarricense de Pesca y Acuicultura y la Ley N°8436 del 01 de marzo del 2005, Ley de Pesca y Acuicultura.
+Considerando:
+1. Que el artículo 3 de la Ley N°8436 Ley de Pesca y Acuicultura expresamente establece que el Estado costarricense deberá elaborar el Plan Nacional de Desarrollo Pesquero y Acuícola, para lo cual tomará en cuenta las disposiciones desglosadas en dicho artículo como los principios fundamentales que marquen el derrotero del Plan indicado.
+2. Que a luz de la regulación citada, el Instituto Costarricense de Pesca y Acuicultura (Incopesca), en conjunto con el sector pesquero costarricense y otros grupos interesados, se avocó a la elaboración de una propuesta que fuera coincidente y congruente con los lineamientos establecidos por Ley, para la formulación del Plan indicado.
+3. Que la propuesta del Plan Nacional de Desarrollo de la Pesca y de la Acuicultura de Costa Rica, fue presentado en el año 2011 a la Junta Directiva del Instituto Costarricense de Pesca y Acuicultura, la cual lo aprobó, estableciendo la recomendación de que el Poder Ejecutivo procediera a su valoración para su posible oficialización e implementación.
+4. Que en las recomendaciones planteadas por la Comisión de Gobernanza Marina, constituida por la Presidencia de la República para valorar en forma integral la gestión, protección, conservación y aprovechamiento sostenible de los recursos marinos y costeros, se establece la consideración e importancia de aprobar y oficializar el Plan Nacional de Desarrollo de la Pesca y de la Acuicultura de Costa Rica, así como la creación de la Comisión Nacional del Mar.
+5. Que mediante Decreto Ejecutivo Nº 37212 de 17 de julio de 2012, reformado parcialmente mediante Decreto Ejecutivo N° 37384 de 6 de noviembre del 2012 se crea la Comisión Nacional del Mar como autoridad máxima de articulación y gestión integrada entre las diferentes instancias del sector público, que hacen parte de la institucionalidad marina costarricense, la que a su vez crea una Secretaría Técnica, constituida como órgano ejecutor de las políticas y proyectos que defina la Comisión.
+6. Que la Comisión Nacional del Mar acogió la implementación del Plan Nacional de Desarrollo de la Pesca y de la Acuicultura de Costa Rica como parte de su política.
+7. Por las razones anteriores es oportuno, conveniente y procedente la oficialización del Plan indicado. Por tanto,
+DECRETAN:
+APROBACIÓN Y OFICIALIZACIÓN DEL PLAN NACIONAL DE DESARROLLO
+DE LA PESCA Y DE LA ACUICULTURA DE COSTA RICA
+Artículo 1º—Se aprueba para efectos de su implementación y oficialización el Plan Nacional de Desarrollo de la Pesca y la Acuicultura de Costa Rica, en adelante “PNDPA” el cual para los efectos legales correspondientes forma parte integral del presente Decreto Ejecutivo y se encuentra contenido en el anexo del mismo.
