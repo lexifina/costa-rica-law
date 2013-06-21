@@ -14,3 +14,4 @@ Reglamento sobre garantías de las operaciones de crédito para vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-11 | la propia norma |
+| 2 | 2013-06-21 | Decreto Ejecutivo 37925 (2013-06-21) |

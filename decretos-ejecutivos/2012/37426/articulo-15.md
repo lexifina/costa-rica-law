@@ -1,1 +1,2 @@
-Artículo 15: Plazo de la garantía otorgada. La garantía otorgada a cada operación crediticia estará vigente hasta que el principal y los intereses del crédito hayan sido cancelados en su totalidad.
+Artículo 15.—Plazo de la garantía otorgada. La garantía otorgada a cada operación crediticia estará vigente al menos hasta el final del sexto año contado a partir de la fecha de formalización; a partir de entonces la Entidad Autorizada podrá solicitar al BANHVI la exclusión de las operaciones crediticias de la cartera garantizada. El plazo máximo de la garantía alcanza hasta que el principal y los intereses del crédito hayan sido cancelados en su totalidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37925 del 21 de junio del 2013)
