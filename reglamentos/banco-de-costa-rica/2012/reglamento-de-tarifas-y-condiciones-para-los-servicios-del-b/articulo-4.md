@@ -1,8 +1,9 @@
-4. Servicios bancarios electrónicos
-4.1.- Sinpe Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre cuentas de reserva
+4 Servicios bancarios electrónicos
+4.1.- Sinpe Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre cuentas de reserva.
 Transferencia de fondos a terceros:
-1. Por la página web: $1.50 por transferencia.
+1. Por la página web: $2.00 por transferencia.
 2. En forma manual por plataforma $5.00 por transferencia
+(Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
 4.2.- Reemplazo de clave dinámica física por pérdida o robo
 $3.00
 4.3.- Teleban
@@ -19,12 +20,22 @@ Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen su
 $0.75 por transacción.
 4.7.- Banca Móvil por mensaje de respuesta
 $0.010
-4.8.- Certificados Digital
-Emisión $35.00 por certificado
-Incluye costo de lector y tarjeta
-Reimpresión del pin $3.00
-Renovación de certificado $15.00 (en caso de que el cliente no requiera ni tarjeta ni lector nuevos)
-Reposición de certificado $15.00 (en caso de pérdida o robo)
+4.8.- Certificados digital
+A- Clientes BCR
+Emisión $46.00 por certificado
+Solo lector $28.00
+Solo tarjeta $20.00
+Renovación $45.00
+Cambio PIN -Desbloqueo $5.00
+Solo certificado $12.00
+B- Usuarios BCR (denominados como aquellos usuarios que no tienen ninguna relación comercial con el BCR)
+Emisión $56.00 por certificado
+Solo lector $32.00
+Solo tarjeta $24.00
+Renovación $52.00
+Cambio PIN -Desbloqueo $10.00
+Solo certificado $15.00
+(Así reformado el punto 4.80anterior mediante sesión 24-13 del 24 de junio del 2013)
 4.9.- Servicio Quick Pass
 Servicio | Costo
 Adquisición del dispositivo | $35.00
@@ -34,3 +45,8 @@ Remplazo por pérdida o daño | $35.00
 4.10.- Transferencia por medio de web corporativo
 - Para los débitos en tiempo real $2.00
 - Para los débitos directos $0.75
+4.11 Bancatel
+$ 2.00 Comisión fija mensual
+Nota:
+Este costo incluye la consulta de 10 cheques al mes y se cobrará se utilice o no el servicio. Por cada consulta (después del décimo cheque) adicional, se cobrará $0.25
+(Así adicionado el punto 4.11 anterior mediante sesión 24-13 del 24 de junio del 2013)

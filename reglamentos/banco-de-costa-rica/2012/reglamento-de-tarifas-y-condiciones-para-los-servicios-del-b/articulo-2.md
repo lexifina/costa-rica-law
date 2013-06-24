@@ -5,12 +5,13 @@ Saldos promedios mensuales | Cantidad cheques sin costo | S/ exceso de cheques g
 Hasta $500,00 | 5 | $1,00 c/u
 $501,00 a $2.500,00 | 10 | $1,00 c/u
 $2.501,00 | 15 | $1,00 c/u
-Cuentas empresariales, corporativas o de personas físicas con actividad lucrativa
+Cuentas empresariales y corporativas
 Saldos promedios mensuales | Cantidad cheques sin costo | S/ exceso de cheques girados
 Hasta $10.000,00 | 50 | $1,00 c/u
 $10.001,00 a $25.000,00 | 150 | $1,00 c/u
 $25.001,00 a $100.000,00 | 300 | $1,00 c/u
 A partir de $100.001,00 | Sin Límite |
+(Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
 2.2.- Órdenes de no pago de cheques y depósitos a plazo
 Cheques $5.00
 Depósitos a plazo $7.00
@@ -21,7 +22,8 @@ $15.00
 2.5.- Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorias nacionales y extranjeras
 $20.00
 2.6.- Cargos enviados a clientes y devueltos por dirección errónea
-$1.50
+$2.00
+(Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
 2.7.- Nota de débito generada por la devolución de un cheque defectuoso
 (no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 2.22 de este mismo apartado)
 $4.00 más gastos del corresponsal.
@@ -45,12 +47,13 @@ $5.00 cada mes hasta su liquidación
 2.12.- Buzón continúo
 Bolso $20.00
 Llave $10.00
-2.13.- Confección planillas
+2.13.- Confección planillas ventanilla
 2.13.1 Confección y entrega ventanilla
-1.50% sobre el monto. Mínimo $20.00
+2.00% sobre el monto. Mínimo $20.00
 2.13.2 Confección y envío por transportadora de valores
 $18.00 la confección
 El envío de acuerdo a la tarifa con la empresa transportadora.
+(Así reformado el punto 2.13 anterior mediante sesión 24-13 del 24 de junio del 2013)
 2.14.-Por cada cheque que giren los intermediarios financieros
 (bancos privados, empresas financieras no bancarias, cooperativas de ahorro y crédito, mutuales y puestos de bolsa)
 $2.00 suma que se cobrará el primer día hábil del mes siguiente.
@@ -62,8 +65,8 @@ Contra cuentas corrientes que mantengan los intermediarios financieros con la In
 0.07% sobre los fondos utilizados en moneda nacional
 0.03% sobre recursos en moneda extranjera
 2.17.-Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente y cuenta de ahorros por medio de cheques)
-0.10 % sobre los fondos utilizados en moneda nacional
-0.05 % sobre los fondos utilizados en moneda extranjera
+0.10 % sobre los fondos utilizados en moneda nacional y moneda extranjera
+(Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
 2.18.-Retiro de efectivo en ventanilla, pensionados de la C.C.S.S.
 ¢100.00 por cada retiro, para aquellas cuentas cuyo saldo semestral sea inferior a $500.
 2.19.- Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR
@@ -78,15 +81,15 @@ $20 más gastos del corresponsal
 2.23.-Venta de cheques de gerencia
 $25.00
 2.24.- Recolección depósitos especiales en cuenta corriente
-1 - Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
+1- Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
 Hasta ¢ 6.000.000.00 cobrar la suma de:
 a) $ 7.00 remeseras propias/recolección.
 Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
 Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
 Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
 Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
-b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
-2 -Para clientes cuyos depósitos son recolectados, contabilizados, para planillas preparadas y enviadas en las tesorerías regionales ubicadas fuera de la (GAM) a los clientes:
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto).
+2. Para clientes cuyos depósitos son recolectados, contabilizados, para planillas preparadas y enviadas en las tesorerías regionales ubicadas fuera de la (GAM) a los clientes:
 Hasta ¢6.000.000.00 cobrar la suma de:
 a) $ 9.00 remeseras propias/recolección.
 Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
@@ -94,13 +97,16 @@ Monto del excedente, dividido entre el tipo de cambio de venta del dólar del ú
 Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
 Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
 b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
+Vargas Mejía (VMA)
 [imagen]
+[imagen]
+Proval
+[imagen]
+(Así reformado el punto 2.24 anterior mediante sesión 24-13 del 24 de junio del 2013)
 2.25- Comisión para la recepción de efectivo para instituciones del sector financiero
 Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-[imagen]
 2.26.- Comisión para la entrega de efectivo para instituciones del sector financiero
 Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-[imagen]
 2.27.- Comisión por sobregiros accidentales
 Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
 Mínimo $10.00
@@ -153,3 +159,6 @@ Depósito cuenta en colones 1.0%, mínima $10.00
 3% sobre el monto ahorrado
 2.43- Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro
+2.44.- Pago de cheques viajero
+En colones: 1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
+(Así adicionado el punto 2.44 anterior mediante sesión 24-13 del 24 de junio del 2013)

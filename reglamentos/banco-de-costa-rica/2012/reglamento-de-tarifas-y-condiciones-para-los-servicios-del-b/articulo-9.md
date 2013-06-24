@@ -46,4 +46,23 @@ Gerentes de zona área comercial (1) y (2) | 50%
 Notas:
 (1) Directores de división y gerentes de división informando a superior inmediato
 (2) Únicamente en su ámbito de acción.
+9.10.- Trámite de entrega de placas
+$10.50
+Aspectos generales
+1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
+2. Todas las comisiones y tarifas podrán ser pagadas en U.S. dólares o su equivalente en colones, al tipo de cambio BCR de venta vigente a la fecha de cancelación.
+3. Todas las tarifas incluidas en dólares se refieren a moneda de los Estados Unidos de Norteamérica.
+4. Es obligación de todo servidor del Banco, de informar al cliente el costo del producto o servicio solicitado previo a la contratación del producto o servicio.
+5. Para todas las comisiones y tarifas incluidas en el presente Reglamento, se establecen diferentes rangos de atribuciones para la negociación de las mismas cuando así se requiera, siendo los siguientes funcionarios los únicos en negociar tarifas y en los porcentajes señalados según el siguiente cuadro:
+Porcentaje a negociar
+Gerente General 100%
+Subgerentes 100%
+Director de División (1) 100%
+Gerente de División (1) y (2) 100%
+Gerentes de zona área comercial (1) y (2) 50%
+6. Lo anterior aplica para todas las comisiones salvo en aquellas donde se determinen funcionarios u órganos resolutorios específicos con atribuciones para negociar esa comisión en particular.
+Notas:
+(1) Informando a superior inmediato.
+(2) Únicamente en su ámbito de acción.
+(Así adicionado el punto 9.10 anterior mediante sesión 24-13 del 24 de junio del 2013)
 San José, 28 de noviembre del 2012.

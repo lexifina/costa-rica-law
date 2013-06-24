@@ -74,28 +74,32 @@ Bank of América $7.00
 Servicio $10.00
 5.13 -Cartas de crédito locales
 Manejo / Negociación de documentos $100.00
-5.14.- Pago de cheques viajero
-En colones: 1%, mínima $2.00
-5.15.- U.S. Direct Deposit – Acreditación pensiones Gobierno de los E.E.U.U.
+5.14.- U.S. Direct Deposit - Acreditación pensiones Gobierno de los E.E.U.U.
 Acreditación $6.00 por transacción.
-De ésta tarifa que cobra el BCR, se comparte el 50% con el Bank of New York
-5.16.- Envió estado de cuenta corriente por Swift
+De esta tarifa que cobra el BCR, se comparte el 50% con el Bank of New York
+(Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.15 al 5.14. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
+5.15.- Envio estado de cuenta corriente por Swift
 $3.0 por cada estado de cuenta enviado.
-5.17.-Cartas de crédito de exportación avisadas
+(Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.16 al 5.15. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
+5.16.- Cartas de crédito de exportación avisadas
 Aviso $40.00
 Swift $8.00
 Pago 0.25%, mínima $40.00 y máxima $100.00
-5.18.- Negociación de divisas en el exterior diferentes al dólar de los Estados Unidos de América (FOREX)
+(Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.17 al 5.16. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
+5.17.- Negociación de divisas en el exterior diferentes al dólar de los Estados Unidos de América (Forex)
 Hasta el 1 % del tipo de cambio de negociación
 Mínimo $10.00
-5.19.-Tarifas MoneyGram
-5.19.1 Envíos corredor Costa Rica – Nicaragua / Colombia
+(Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.18 al 5.17. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
+5.18.- Tarifas MoneyGram
+5.18.1.- Envíos corredor Costa Rica – Nicaragua / Colombia
 De $0.01 a $100.00: $3.00
 De $100.01 en adelante: 3% del monto de envío
-5.19.2 Envíos de Costa Rica hacia Costa Rica y el resto del mundo
+(Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.19. al 5.18. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
+5.18.2. -Envíos de Costa Rica hacia Costa Rica y el resto del mundo
 De $0.01 a $100.00: $4.00 exactos
 De $100.01 en adelante: 2% del monto de envió más $2.00
 Nota: recibos de dinero no se cobra.
-5.20.-Tarifas remesas a Nicaragua
+5.19. -Tarifas remesas a Nicaragua
 - Envíos de $1 a $500: $3.00
 - Envíos de $500.01 en adelante: $5.00
+(Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.20 al 5.19. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")

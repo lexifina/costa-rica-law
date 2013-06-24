@@ -14,3 +14,4 @@ Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-13 | la propia norma |
+| 2 | 2013-06-24 | Reglamento 24 (2013-06-24) |
