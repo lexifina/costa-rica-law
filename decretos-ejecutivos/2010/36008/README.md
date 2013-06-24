@@ -14,3 +14,4 @@ Crea Comisión de alto nivel para la coordinación y apoyo en la ejecución del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-10 | la propia norma |
+| 2 | 2013-06-24 | Decreto Ejecutivo 37987 (2013-06-24) |

@@ -18,4 +18,14 @@ DECRETAN:
 SE CREA UNA COMISIÓN DE ALTO NIVEL
 PARA LA COORDINACIÓN Y APOYO EN LA EJECUCIÓN
 DEL PROGRAMA AGUA PARA GUANACASTE
-Artículo 1º—Se crea una Comisión Interinstitucional de alto nivel conformada por el Primer Vicepresidente de la República, quien la coordinará, Ministro de la Presidencia, Ministro de Agricultura y Ganadería, Ministro del Ambiente, Energía y Telecomunicaciones, Presidente Ejecutivo del Instituto Nacional de Acueductos y Alcantarillados, Gerente General del Servicio Nacional de Riego y Avenamiento, Presidente Ejecutivo del Instituto Costarricense de Electricidad y Gerente General de la Empresa de Servicios Públicos de Heredia, para coordinar y apoyar la ejecución del Programa Agua para Guanacaste, que contará con el personal necesario para ejecutar todas las acciones necesarias para el cumplimiento de este Programa.
+Artículo 1º—Créase la Comisión Interinstitucional de Alto Nivel para la Coordinación y Apoyo en la Ejecución del “Programa Agua para Guanacaste”, integrada de la siguiente manera:
+a- El Primer Vicepresidente de la República o su representante, quien actuará como coordinador;
+b- El Ministro(a) de Planificación Nacional y Política Económica o su representante, quien actuara como coordinador suplente;
+c- El Ministro(a) de la Presidencia o su representante;
+d- El Ministro(a) de Agricultura y Ganadería o su representante;
+e- El Ministro(a) de Ambiente y Energía o su representante;
+f- El Presidente Ejecutivo del Instituto Nacional de Acueductos y Alcantarillados o su representante;
+g- El Gerente General del Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento o su representante; y
+h- El Presidente Ejecutivo del Instituto Costarricense de Electricidad o su representante;
+La Comisión tendrá como objetivo coordinar y apoyar la ejecución del “Programa Agua para Guanacaste”, el cual contará con el personal necesario para realizar todas las acciones necesarias para el cumplimiento de este Programa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37987 del 24 de junio de 2013)
