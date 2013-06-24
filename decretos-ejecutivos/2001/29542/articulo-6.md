@@ -1,1 +1,0 @@
-Artículo 6º—Las organizaciones de las mujeres interesadas en postular candidatas a la Comisión, deben aportar el currículum vitae de la persona propuesta, en las fechas que se establezcan en la convocatoria.

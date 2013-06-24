@@ -1,1 +1,0 @@
-Artículo 11.—Cuando un integrante de la Comisión incurra en tres ausencias consecutivas no justificadas, la Presidenta de la Comisión solicitará su sustitución a la institución que representa. En el caso de producirse una vacante, por esta causa o por cualesquier otra, el nombramiento del nuevo miembro, se realizará por el resto del período.

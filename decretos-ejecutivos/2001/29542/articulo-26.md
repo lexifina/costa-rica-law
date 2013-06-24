@@ -1,1 +1,0 @@
-Artículo 26.—La biografía, así como los hechos más sobresalientes de la vida de las mujeres que forman parte de la Galería de la Mujer, se publicará en un folleto cuyo formato será de 5 ½ x 8 ½ y se incluirá en la portada su fotografía.

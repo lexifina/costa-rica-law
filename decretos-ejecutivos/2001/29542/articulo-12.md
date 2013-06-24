@@ -1,1 +1,0 @@
-Artículo 12.—El INAMU brindará los servicios logísticos para el funcionamiento de la Comisión por medio del Área Especializada de Información, la que será la encargada de coordinar interna y externamente todos los asuntos relacionados con la Comisión.
