@@ -1,1 +1,0 @@
-Artículo 3º—El Instituto Nacional de las Mujeres como la entidad pública encargada de formular e impulsar las políticas públicas para la igualdad y la equidad de género, es la instancia que promoverá, coordinará y financiará el otorgamiento del Premio Ángela Acuña Braun.

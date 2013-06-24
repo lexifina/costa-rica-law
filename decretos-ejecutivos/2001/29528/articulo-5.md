@@ -1,9 +1,0 @@
-Artículo 5º—Las producciones que sean escogidas por el Jurado calificador como merecedoras del premio deberán contener la visión de género, mediante la creación de mensajes que fomenten la igualdad y equidad entre mujeres y hombres y se enmarquen en el cumplimiento de los siguientes propósitos:
-- visibilizar el trabajo y empleo de las mujeres en sus distintas jornadas y su participación social y política;
-- fomentar un cambio en los roles asignados, mediante el cual haya una distribución equitativa de las tareas entre todas las personas integrantes de las familias;
-- presentar investigaciones con enfoques novedosos y no tradicionales sobre temas que atañen a las mujeres y sobre la promoción de sus derechos como humanas;
-- denunciar situaciones de discriminación por razones de género y violencia en contra de las mujeres, que aporten cambios de actitudes y fomenten relaciones de respeto y compromiso de una vida sin violencia y otros principios y valores reconocidos en instrumentos jurídicos internacionales, en la legislación nacional y por la comunidad nacional e internacional, para la eliminación de todas las formas de discriminación por razones de género y erradicación de la violencia contra las mujeres;
-- fomentar en las mujeres actitudes hacia el desempeño de profesiones u oficios no tradicionales;
-- valorar experiencias sobre organización, liderazgo, empoderamiento, autonomía e independencia, autoestima y solidaridad de las mujeres;
-- evidenciar el aporte de las mujeres a la historia, la política, la educación, los deportes, la ciencia, la cultura y a las luchas por la reivindicación de sus derechos;
-- utilizar un lenguaje no sexista ni discriminatorio, respetando las diferencias sociales, culturales, sexuales, étnicas y etáreas de las mujeres, así como sus discapacidades físicas y mentales o por cualquier otra condición.

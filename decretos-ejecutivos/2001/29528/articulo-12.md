@@ -1,1 +1,0 @@
-Artículo 12.—El INAMU convocará oficialmente a las personas interesadas de participar en el Premio, en la primera quincena del mes de agosto de cada año. No podrán participar en este certamen las personas parientes por consaguinidad o afinidad hasta el tercer grado de las personas representantes del jurado que sean propietarias o suplentes.
