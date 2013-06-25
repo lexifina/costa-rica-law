@@ -20,3 +20,4 @@ Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental 
 | 5 | 2009-02-11 | SINALEVI (sin norma nombrada) |
 | 6 | 2009-02-24 | Decreto Ejecutivo 35148 (2009-02-24) |
 | 7 | 2009-03-12 | Decreto Ejecutivo 35550 (2009-03-12) |
+| 8 | 2013-06-25 | Decreto Ejecutivo 37803 (2013-06-25) |
