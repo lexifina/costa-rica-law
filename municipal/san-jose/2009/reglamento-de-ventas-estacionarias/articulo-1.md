@@ -10,11 +10,13 @@ REGLAMENTO DE VENTAS ESTACIONARIAS
 La Municipalidad del cantón Central de San José, de conformidad con las atribuciones que le confieren los numerales 169 y 170, de la Constitución Política, 1, 2, 3, 4, inciso a) c) f), 13, inciso c) y 43, del Código Municipal y la Ley 6587, de fecha 30 de junio del 1981, dicta el presente Reglamento de Ventas Estacionarias, que se regirá por las siguientes disposiciones:
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Definiciones. Cuando en este Reglamento se empleen los términos y definiciones siguientes debe dárseles las aceptaciones y significados que se señalan a continuación.
-a) Vendedor de Lotería y Periódicos. Se refiere aquella persona física que cuenta con un permiso previo de la Junta de Protección Social, o de un medio de comunicación escrita, para ejercer este comercio, además la respectiva licencia municipal para ejercer dicha actividad, exclusivamente en forma de pregón en aquellos sitios que sean autorizados por el ente municipal, de conformidad con el presente reglamento.
-b) Vendedor Estacionario: Se refiere a aquella persona física que cuenta con la respectiva licencia municipal, para ejercer el comercio en lugares previamente determinados y fijos, de conformidad con el presente Reglamento.
-c) Licencia: Es la autorización que previa solicitud del interesado, concede la Municipalidad de San José, para ejercer la actividad lucrativa, conforme a lo establecido en la Ley 6587 y este Reglamento.
-d) Ley: Para los efectos del presente reglamento, se denominará así a la Ley Nº 6587, de 24 de agosto de 1981: “Ley de Ventas Ambulantes y Estacionarias”.
+Artículo 1º—Definiciones. Cuando en este Reglamento se empleen los términos y definiciones siguientes debe dársele las acepciones y significados que se señalan a continuación:
+a) Vendedores de Lotería y de periódicos: Se refiere a vendedor de lotería a aquella persona física que cuenta con un permiso previo de la Junta de Protección Social para ejercer este comercio, y por vendedor de periódicos a aquella persona física cuya línea comercial lo constituye la venta de periódicos de circulación nacional; sujetos ambos a la respectiva licencia municipal para ejercer dichas actividades exclusivamente en forma de pregón o en aquellos sitios que sean autorizados por el ente municipal, de conformidad con el presente reglamento.
+b) Vendedor Estacionario: Se refiere a aquella persona física que cuenta con la respectiva licencia municipal para ejercer el comercio en lugares previamente determinados y fijos, de conformidad con el presente reglamento.
+c) Licencia: Es la autorización que previa solicitud del interesado, concede la Municipalidad de San José, para ejercer la actividad lucrativa, conforme a lo establecido en la Ley No. 6587 y este reglamento.
+d) Ley: Para los efectos del presente reglamento, se denominará así a la Ley número 6587 de 24 de agosto de 1981: “Ley de Ventas Ambulantes y Estacionarias”:
 e) Línea Comercial: Es el tipo de producto permitido para la venta, en un puesto determinado.
-f) Puesto: Es la instalación física donde el patentado estacionario ejercerá la actividad comercial, conforme al diseño que el ente municipal establezca de conformidad a la ley y al Reglamento.
+f) Puesto: Es la instalación física donde el patentado ejercerá la actividad comercial, conforme al diseño que el ente municipal establezca de conformidad a la ley y al Reglamento.
 g) Vía Pública: Es el espacio público comprendido por las avenidas, calles y sus aceras.
+h) Pregonero: Persona física que realiza la actividad en forma ambulante de venta de periódicos y de lotería sin utilizar ni disponer de ningún puesto para ello.
+(Así reformado en sesión N° 165 del 25 de junio de 2013)
