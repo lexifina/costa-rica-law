@@ -1,0 +1,3 @@
+Artículo 29.—En caso de los negocios que obtengan la licencia Temporal para la comercialización de bebidas con contenido alcohólico, deberán cancelar el impuesto correspondiente de la siguiente manera:
+a) Se clasificarán los puestos de licores según el fin de la actividad, 1- privadas con fines de lucro, y se calculará su pago será calculado con cinco salarios base, y 2- las licencias temporales para fines benéficos o Instituciones Educativas, Religiosas y Comunales, se calculará su pago con dos salarios base.
+b) Se obtiene el impuesto que paga de manera trimestral esa categoría, se divide entre noventa días (un trimestre) y se multiplica por los días que vaya a durar la actividad solicitada.

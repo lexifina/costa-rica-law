@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Disposiciones transitorias
+Transitorio I.—Los titulares de patentes de licores adquiridas mediante la Ley Nº10, Ley sobre Venta de Licores, de 7 de octubre de 1936, mantendrán los derechos derivados de dichas patentes, incluyendo el derecho de traspasarla, trasladarla y demás derechos establecidos en dicha normativa. Para el pago del impuesto a cancelar, en caso de solicitar cambio de categoría deberá de apersonarse antes del 30 de noviembre de cada año, y de no hacerlo, la municipalidad aplicará las categorías ya definidas en las licencias comerciales que se encuentran activas de la ley 9047, y regirá el pago del impuesto que corresponda a cada una a partir del día siguiente a esa fecha.
