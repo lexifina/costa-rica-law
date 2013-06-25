@@ -1,1 +1,0 @@
-Artículo 11.—Esta compensación tiene aplicación para todos los funcionarios municipales, siempre y cuando cumplan con los requisitos indicados en las normas contenidas en el presente Reglamento y las disposiciones del Código Municipal vigente.

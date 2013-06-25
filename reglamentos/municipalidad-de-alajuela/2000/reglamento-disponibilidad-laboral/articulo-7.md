@@ -1,1 +1,0 @@
-Articulo 7º—Para tener derecho a esta compensación, el servidor deberá suscribir un contrato de disponibilidad con el Alcalde Municipal, el cual no podrá autorizar más del cinco por ciento del personal de la Institución.

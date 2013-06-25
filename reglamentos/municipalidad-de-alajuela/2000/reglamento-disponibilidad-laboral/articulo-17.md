@@ -1,1 +1,0 @@
-Artículo 17.—No obstante lo indicado en los artículos 9 y 16 del presente reglamento, cuando por imperativo de las necesidades del servicio así lo demanden, los límites y horarios establecidos podrán ser variados para atender situaciones especiales de excepción.
