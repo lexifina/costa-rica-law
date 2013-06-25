@@ -1,0 +1,1 @@
+II. El Ministerio de Relaciones Exteriores y Culto deberá reglamentar el procedimiento de solicitud, desembolso y liquidación de los beneficios expresados en el artículo 27 del Estatuto de Servicio Exterior, según el artículo 3° del presente reglamento, en un plazo de 6 meses a partir de la vigencia del presente reglamento.

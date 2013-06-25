@@ -1,0 +1,1 @@
+Artículo 6°—Residencias amuebladas y domicilios en el Estado receptor. Para el caso de los funcionarios que desempeñen puestos donde el Estado tenga a su disposición residencias amuebladas, el pago se determinará igualmente con base en el costo del peso del menaje trasladado pero con un máximo de hasta el 50% de los pesos máximos según categoría definidos en el artículo 5°

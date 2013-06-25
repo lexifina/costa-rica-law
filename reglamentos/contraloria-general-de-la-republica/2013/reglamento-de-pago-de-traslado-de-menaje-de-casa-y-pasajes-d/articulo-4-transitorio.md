@@ -1,0 +1,1 @@
+IV. Se mantiene vigente el reglamento derogado para aquellos funcionarios en los que su situación se encontraba definida por éste y hasta que se dé la respectiva repatriación. En caso de ser nuevamente nombrado en el exterior aplicará lo dispuesto en el nuevo reglamento.
