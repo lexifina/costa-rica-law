@@ -1,0 +1,2 @@
+Artículo 21.—Cuando una persona contribuyente se encuentre en estado de morosidad y se haya iniciado el proceso de cobro administrativo, ya sea con mensajería de texto, llamadas telefónicas, envíos de fax, u otros mecanismos de notificación, deberá obligatoriamente cubrir el costo administrativo que dicha gestión ocasionó y que será cancelado conjuntamente con los tributos y demás recargos.
+El costo deberá ser determinado por el Proceso de Fiscalización y Tarifas, actualizado al menos una vez al año y publicado en el Diario Oficial La Gaceta.
