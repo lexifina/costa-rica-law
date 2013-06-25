@@ -1,0 +1,1 @@
+Artículo 27.—Días y horas hábiles para realizar inspecciones. Dada la finalidad de tutela del orden e interés público que persigue este Reglamento, para ejecutar las actuaciones de fiscalización se consideran hábiles las veinticuatro horas de todos los días del año.

@@ -1,0 +1,4 @@
+Artículo 30.—Obligación de presentación de certificación contable y copia de declaraciones. Dentro de los primeros quince días del mes de enero de cada año, todo licenciatario estará obligado a presentar ante la Municipalidad de Sarapiquí, la siguiente documentación:
+a) Certificación emitida por un contador público autorizado en la que se haga constar el monto total de compras de bebidas con contenido alcohólico efectuadas por el licenciatario por cada establecimiento durante todo el periodo fiscal anterior.
+b) En el caso de los contribuyentes inscritos en el régimen de tributación simplificada, éstos deberán aportar copia de los formularios D-105 (declaración jurada del régimen de tributación simplificada) presentados ante la Dirección General de Tributación correspondiente a los cuatro trimestres anteriores.
+c) Copia del formulario D-151 presentado a la Dirección General de Tributación (declaración anual resumen de clientes, proveedores y gastos específicos).

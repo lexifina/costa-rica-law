@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones Transitorias
+Transitorio I.—A partir del 8 de febrero de 2013, los licenciatarios deberán cancelar la tarifa mínima del impuesto conforme a la categoría registrada en la Municipalidad, hasta tanto no exista resolución administrativa en contrario mediante la cual se modifique o confirme la modalidad de explotación ejercida y se defina para cada caso particular, el rango tributario que corresponda aplicar. En el supuesto de que un negocio aparezca registrado con dos o más categorías para operar en un mismo establecimiento, para efectos de pago se presumirá que realiza la que represente el impuesto mayor, el cual podrá ser rectificado una vez que sea determinada la categoría a instancia de la parte interesada o de oficio.

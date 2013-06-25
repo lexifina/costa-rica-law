@@ -1,0 +1,1 @@
+Artículo 9°—Trámite de solicitud. Toda solicitud de licencia se gestionará en el formulario oficial que suministrará la Municipalidad, el cual será accesible también desde su página web y deberá ser presentado a la Sección de Plataforma de Servicios junto con la documentación pertinente. La Municipalidad contará con un plazo de treinta días naturales para resolver la petición.

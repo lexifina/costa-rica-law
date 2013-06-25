@@ -1,0 +1,1 @@
+Artículo 5°—Barra libre. En todas las modalidades en las que se vendan bebidas con contenido alcohólico, queda prohibida la modalidad comercial de barra libre, entendiéndose por barra libre a la modalidad a través de la cual los clientes, por medio de un único pago, tienen derecho al consumo ilimitado de bebidas alcohólicas durante un período determinado.

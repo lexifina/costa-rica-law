@@ -1,0 +1,1 @@
+Artículo 16.—Renuncia. Toda solicitud de renuncia al derecho de explotación de licores se gestionará en el formulario oficial que suministrará la Municipalidad, el cual será accesible también desde su página web y deberá ser presentado a la Sección de Plataforma de Servicios. La Municipalidad contará con un plazo de ocho días naturales para resolver la petición.
