@@ -1,0 +1,1 @@
+2º—Los requisitos para los establecimientos antes señaladas, exigidos conforme a la normativa vigente en función de las actividades que desarrollen, se encuentran en el Procedimiento Operativo emitido al efecto por esta Dirección General.
