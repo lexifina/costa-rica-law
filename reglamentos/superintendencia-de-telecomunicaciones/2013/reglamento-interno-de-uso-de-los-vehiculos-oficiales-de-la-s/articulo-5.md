@@ -1,0 +1,1 @@
+Artículo 5º—Cuando las circunstancias lo ameriten o en situaciones de fuerza mayor, la SUTEL podrá contratar a terceros el servicio de transporte. Este trámite lo deberá coordinar el Encargado de Transportes con el Área de Proveeduría y Servicios Generales, previa solicitud aprobada y justificada de la dependencia que requiere el servicio.

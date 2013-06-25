@@ -1,0 +1,3 @@
+II. Vehículos de Uso Administrativo
+Artículo 3º—Para efectos del presente Reglamento, los vehículos oficiales de la Superintendencia de Telecomunicaciones (SUTEL), se clasifican como vehículos de uso administrativo de conformidad con el artículo 239 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley 9078.
+Los mismos son utilizados para actividades relativas a la administración, así como del cumplimiento de aspectos técnicos encomendados por Ley a la SUTEL, como lo son el monitoreo del espectro radioeléctrico, la verificación de la cobertura de los servicios prestados por los operadores, verificación y visitas de campo para proyectos de FONATEL, entre otras
