@@ -1,0 +1,1 @@
+Artículo 38.—(Nota de Sinalevi: En la publicación de este reglamento no se consigna este artículo. No obstante el sistema exige una numeración conscutiva, por lo que se ha creado el mismo pero sin texto)

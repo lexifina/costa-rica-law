@@ -1,0 +1,1 @@
+Artículo 16.—Todas las erogaciones que requieran emisión de cheque serán autorizadas de previo por la Comisión y constar en actas. Asimismo, dichos egresos requerirán necesariamente de la emisión de una orden de pago, que se adjunta como formulario N° 3.

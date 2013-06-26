@@ -1,0 +1,1 @@
+Artículo 30.—Todas las actuaciones y los documentos (respetando su forma original) relativos a los diferentes procedimientos de contratación empleados por la Comisión, desde los acuerdos iníciales hasta el último acto de liquidación, se conservarán en expedientes individuales, debidamente foliados y ordenados.

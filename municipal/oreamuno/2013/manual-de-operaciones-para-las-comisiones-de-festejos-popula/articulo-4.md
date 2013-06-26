@@ -1,0 +1,2 @@
+Artículo 4°—El Tesorero, previamente a tomar posesión de cargo, deberá rendir la garantía de que habla el artículo 6 de la ley N° 4286, la cual consistirá en una póliza de fidelidad por una suma equivalente al diez por ciento del total de los ingresos obtenidos por la Comisión durante los festejos realizados el año inmediato anterior.
+Dicha póliza podrá ser cubierta con fondos de la Comisión y tendrá una vigencia mínima de seis meses.

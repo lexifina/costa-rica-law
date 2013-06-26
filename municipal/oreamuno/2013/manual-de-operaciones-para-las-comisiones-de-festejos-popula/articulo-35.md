@@ -1,0 +1,2 @@
+Artículo 35.—La liquidación de ingresos y gastos de la Comisión será remitida por el Contado o Auditor Municipal a esta Contraloría, a más tardar sesenta días después de finalizados los festejos, acompañados del informe a que se refiere el artículo 33, y de la documentación citada en el Anexo de este manual.
+La Contraloría General de la República no recibirá para su tramitación, la liquidación de ingresos y egresos que no venga acompañado de toda la documentación que se detalla en el anexo.

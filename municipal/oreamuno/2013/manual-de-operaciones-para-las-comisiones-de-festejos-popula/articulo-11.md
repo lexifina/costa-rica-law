@@ -1,0 +1,1 @@
+Artículo 11.—La Comisión efectuará la adjudicación de puestos mediante remate público, para lo cual deberá publicarse un aviso en uno de los periódicos de mayor circulación, o en su defecto por medio de “cuñas” radiales. Cada puesto deberá adjudicarse al mejor postor.
