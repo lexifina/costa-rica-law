@@ -1,0 +1,1 @@
+Artículo 57.—Todo habitante del cantón queda obligado a utilizar los medios de recolección con que cuente la municipalidad para deshacerse de sus residuos no reciclables o con el servicio privado debidamente autorizado por el municipio. Se prohíbe toda disposición que no esté debidamente autorizada por la Municipalidad.

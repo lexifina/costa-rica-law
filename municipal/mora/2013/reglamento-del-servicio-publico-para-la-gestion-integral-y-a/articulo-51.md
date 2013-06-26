@@ -1,0 +1,1 @@
+Artículo 51.—La Municipalidad no procederá a la recolección de residuos no reciclables que en una u otra forma atente contra la integridad física de los funcionarios en esta actividad, o de aquellos que pudieran causar algún daño en las unidades recolectoras.

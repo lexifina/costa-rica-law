@@ -1,0 +1,1 @@
+Artículo 16.—Las edificaciones a que se refiere el artículo 13 de este reglamento, y cuya ubicación no facilite la prestación del servicio de recolección ordinario, podrán instalar cajas de almacenamiento de residuos sólidos dentro del perímetro de su propiedad, de conformidad con las normas que establezca la Municipalidad, para lo cual se requiere el previo permiso de ésta.

@@ -1,0 +1,1 @@
+Artículo 55.—La Municipalidad no podrá interrumpir el servicio de recolección, transporte, almacenamiento, valorización, reciclaje y disposición final de residuos, salvo por caso fortuito o de fuerza mayor.

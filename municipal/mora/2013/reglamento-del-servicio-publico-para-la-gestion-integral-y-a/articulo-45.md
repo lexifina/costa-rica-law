@@ -1,0 +1,1 @@
+Artículo 45.—Método reciclaje. El método de reciclaje de los residuos ordinarios no debe ser el enterramiento, sin embargo, su tratamiento y método de reciclaje debe ser avalado por el Ministerio de Salud y esta Municipalidad.

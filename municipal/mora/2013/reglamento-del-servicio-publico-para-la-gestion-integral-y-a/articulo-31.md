@@ -1,0 +1,1 @@
+Artículo 31.—Los vehículos y equipo destinados al transporte de residuos sólidos deberán cumplir con las normas de calidad, seguridad, circulación y tránsito vigentes, evitando ser obstáculo para la circulación de vehículos y personas.

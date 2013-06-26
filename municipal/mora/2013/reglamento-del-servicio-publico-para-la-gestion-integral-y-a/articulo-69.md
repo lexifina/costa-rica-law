@@ -1,0 +1,1 @@
+Artículo 69.—Las labores de barrido y limpieza de vías públicas son de responsabilidad de la Municipalidad y deberá realizarse con la frecuencia necesaria para que las vías y las áreas estén siempre limpias.

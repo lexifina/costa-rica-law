@@ -1,0 +1,1 @@
+Artículo 77.—Prohíbase toda acción, práctica y operación con los residuos no reciclables que deteriore el ambiente natural, de manera que haga inservible sus elementos básicos, especialmente el aire, el agua y el suelo, para los usos a que están destinados.

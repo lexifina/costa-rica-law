@@ -1,0 +1,1 @@
+Artículo 6º—Reconocimiento. La Municipalidad podrá dar reconocimiento ambiental a las instituciones públicas que participen en la realización de los proyectos de la Unidad de Gestión Ambiental, así como a aquellas organizaciones o individuos que de manera independiente ejecuten proyectos con un impacto positivo ambiental importante para la comunidad del Cantón de Mora.

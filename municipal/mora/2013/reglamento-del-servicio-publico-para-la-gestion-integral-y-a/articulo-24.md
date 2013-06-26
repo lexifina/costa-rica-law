@@ -1,0 +1,1 @@
+Artículo 24.—La localización de bodega, centro de acopio y planta de recuperación de residuos, deberá ubicarse de acuerdo con las normas de planeamiento urbano vigentes en el cantón y de conformidad con las directrices que señale el Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 76.—Queda prohibido a toda persona física o jurídica arrojar o acumular residuos sólidos en lugares no autorizados para el efecto, utilizar medios inadecuados para su transporte y acumulación y proceder a su utilización, tratamiento o disposición final mediante sistemas no aprobados por el Ministerio de Salud o la Municipalidad de Mora.

@@ -1,0 +1,1 @@
+Artículo 52.—Los sujetos pasivos, usuarios del servicio de recolección de residuos sólidos, deberán comunicar a la Municipalidad, el traspaso o segregación de los inmuebles, a fin de poder actualizar los registros de los usuarios, que lleva al efecto dicha institución.

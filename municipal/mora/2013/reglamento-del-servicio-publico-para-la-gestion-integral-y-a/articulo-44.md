@@ -1,0 +1,1 @@
+Artículo 44.—Certificación del reciclaje. La Municipalidad o la empresa que realiza la recolección de los residuos ordinarios reciclables debe de garantizar mediante un documento o certificación el reciclaje adecuado de los residuos ordinarios recolectados en el cantón.

@@ -1,0 +1,1 @@
+Artículo 61.—Para determinar la categoría del servicio de residuos no reciclables especiales la Municipalidad considerara, la cantidad de unidades construidas en la propiedad, el uso al que se destinan y el volumen de residuos que recolectar.

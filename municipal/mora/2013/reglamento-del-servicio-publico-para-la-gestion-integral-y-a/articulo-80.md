@@ -1,0 +1,1 @@
+Artículo 80.—Los inspectores municipales impondrán las infracciones establecidas en el artículo 50 de la Ley Nº 8839, del 24 de junio del 2010, los recursos que se capten serán para financiar actividades del plan municipal para el plan de Gestión Ambiental Municipal de Mora.

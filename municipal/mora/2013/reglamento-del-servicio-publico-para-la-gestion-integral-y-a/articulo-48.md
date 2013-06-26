@@ -1,0 +1,1 @@
+Artículo 48.—Las empresas agrícolas, industriales y comerciales, deberán disponer de un sistema de separación y recolección, acumulación y disposición final de los residuos sólidos provenientes de sus operaciones, aprobado por el Ministerio de Salud cuando la naturaleza, o cantidad de estos, no fuere sanitariamente aceptable el uso del sistema público.

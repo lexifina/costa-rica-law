@@ -1,0 +1,1 @@
+Artículo 49.—Los propietarios de terrenos desocupados en áreas urbanas están obligados a mantenerlos cerrados, y en buenas condiciones higiénicas de conformidad con los artículos 75 y 76 del Código Municipal.

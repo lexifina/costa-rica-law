@@ -1,0 +1,1 @@
+Artículo 26.—La operación de la bodega, centro de acopio y planta de recuperación de residuos, deberá realizar su actividad bajo las condiciones que establezca el Ministerio de Salud y los respectivos reglamentos.

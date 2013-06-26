@@ -1,0 +1,1 @@
+Artículo 74.—En la realización de eventos especiales y de espectáculos en los que acude el público en forma masiva, la entidad organizadora deberá contar con un plan de manejo de los residuos aprobado de manera previa por el Ministerio de Salud y contratar con una entidad de aseo el servicio de recolección y disposición final para los residuos no valorizables.

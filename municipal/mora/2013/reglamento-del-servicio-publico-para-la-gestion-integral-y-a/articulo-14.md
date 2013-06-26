@@ -1,0 +1,1 @@
+Artículo 14.—Toda edificación para uso multifamiliar de cualquier tipo institucional o comercial y otras que la entidad de recolección determine, tendrán un sistema de almacenamiento colectivo de residuos sólidos, diseñado de acuerdo con las normas del presente reglamento y las que técnicamente determine la Municipalidad.

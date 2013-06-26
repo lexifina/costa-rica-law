@@ -1,0 +1,1 @@
+Artículo 21.—Sólo se permitirá la separación de residuos sólidos en la fuente de origen y en los sitios autorizados expresamente por la Municipalidad de Mora, previa autorización del Ministerio de Salud.
