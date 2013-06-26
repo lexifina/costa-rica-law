@@ -1,0 +1,1 @@
+Artículo 13.—No se otorgará la certificación del uso de suelo conforme en áreas de protección de ríos, monumentos públicos, zonas residenciales, zonas de protección histórico-patrimonial y donde sea expresamente prohibido por la legislación nacional y local, según Ley Forestal 7575 en su artículo 33.

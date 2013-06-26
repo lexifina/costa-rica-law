@@ -1,0 +1,1 @@
+Artículo 7º—La Municipalidad tendrá un registro, actualizado y disponible al público que incluya la siguiente información: (1) nombre del solicitante; (2) georeferenciación en coordenadas de longitud y latitud en formatos Proyección Lamberth, WGS84 y/o CRTM05; (3) certificado de Uso de Suelo (4) Licencia de Construcción (5) Patente Municipal.
