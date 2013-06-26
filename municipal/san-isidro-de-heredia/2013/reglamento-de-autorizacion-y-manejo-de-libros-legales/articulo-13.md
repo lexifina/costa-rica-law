@@ -1,0 +1,1 @@
+Artículo 13.—Retiro de libros. Los libros y folios autorizados por primera vez y los siguientes deben ser retirados por el responsable de la dependencia u órgano municipal o el representante autorizado del fondo o actividad privada.

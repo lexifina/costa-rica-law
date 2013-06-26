@@ -1,0 +1,1 @@
+Artículo 29.—Pérdida y deterioro. En caso de pérdida, deterioro o maltrato de los folios o libros autorizados, deberá el responsable, representante o persona autorizada reportarlo de inmediato a la auditora interna, lo anterior según lo estipulado en el Capítulo Cuarto sobre reposición de folios y libros, en lo que aplique.

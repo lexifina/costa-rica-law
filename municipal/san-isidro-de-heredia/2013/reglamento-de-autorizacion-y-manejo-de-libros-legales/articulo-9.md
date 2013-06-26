@@ -1,0 +1,1 @@
+Artículo 9º—Razón de apertura. El frente del primer folio sea del libro o de los folios (hojas) a autorizar se debe dejar en blanco, para que la Auditoría Interna indique la razón de apertura del libro respectivo.

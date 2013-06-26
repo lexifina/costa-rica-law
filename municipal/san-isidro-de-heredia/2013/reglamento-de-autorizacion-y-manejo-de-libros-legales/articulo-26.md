@@ -1,0 +1,1 @@
+Artículo 26.—Registro oportuno. El encargado o responsable directo del libro, según proceda, velará para que en los folios y libros autorizados se hagan oportunamente los registros correspondientes, todo conforme con las normas establecidas en nuestra legislación vigente, aplicable al efecto.

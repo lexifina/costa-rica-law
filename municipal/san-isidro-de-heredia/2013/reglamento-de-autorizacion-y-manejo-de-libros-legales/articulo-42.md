@@ -1,0 +1,1 @@
+Artículo 42.—Normas técnicas y recomendaciones de auditoría interna. Los libros autorizados por la Auditoría Interna aparte de lo indicado en el presente Reglamento y otra normativa jurídica, deberán cumplir con la normativa técnica que les aplique según el libro y con las recomendaciones que la Auditoría Interna en el ejercicio de sus funciones formule.

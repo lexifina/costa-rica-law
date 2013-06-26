@@ -1,0 +1,1 @@
+Artículo 27.—Firmas de actas. En el caso de asentamiento de actas de sesiones de Órganos Colegiados las mismas deben ser firmadas oportunamente por el presidente (a), secretario (a) respectivos y el(a) Alcalde (sa) cuando corresponda o quienes hagan sus veces, todo conforme a lo establecido en el sistema legal costarricense.

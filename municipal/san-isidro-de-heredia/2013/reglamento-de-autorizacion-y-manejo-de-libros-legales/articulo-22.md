@@ -1,0 +1,1 @@
+Artículo 22.—Manejo. Los folios o libros autorizados serán administrados únicamente encargado o responsable directo del libro, según proceda, de la dependencia u órgano que forman parte de la Municipalidad de San Isidro, o del fondo o actividad privada que administre recursos municipales o transferidos por medio de la Municipalidad según proceda.

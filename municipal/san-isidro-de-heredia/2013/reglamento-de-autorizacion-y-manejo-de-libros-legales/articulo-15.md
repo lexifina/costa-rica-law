@@ -1,0 +1,1 @@
+Artículo 15.—Responsabilidad. El incumplimiento o descuido injustificado de lo preceptuado en el presente capítulo, dará lugar a eventuales responsabilidades administrativas, civiles o penales, según lo amerite la magnitud de la falta.

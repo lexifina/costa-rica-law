@@ -1,0 +1,1 @@
+Artículo 25.—Respaldo. El encargado o responsable directo del libro, según proceda, deberá mantener en custodia un respaldo en un medio magnético de todos los registros efectuados según fuese pertinente.

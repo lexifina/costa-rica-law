@@ -1,0 +1,3 @@
+Artículo 11.—Empaste de folios. En el transcurso del tiempo al terminarse por su uso los folios autorizados, en el caso de los impresos mediante computador u otro medio mecánico-electrónico que haga sus veces, se debe enviar a empastar con material duro con la siguiente leyenda:
+a. Al Tomo: Municipalidad de San Isidro de Heredia, nombre de la unidad o entidad que proceda (Contabilidad, Concejo Municipal, Comisión de..., etc), periodo (de mes a mes) o actas de la número...... a la........, tomo número y el año.
+b. Al frente se índica: Municipalidad de San Isidro de Heredia, nombre de la unidad o entidad que proceda, nombre del libro, periodo (de mes a mes) o actas de la número de la... a la..., tomo número y el año.

@@ -1,0 +1,1 @@
+Artículo 40.—Tipo de libros. El Auditor Interno indicará que clase de libros deberá presentar la dependencia u órganos que forman parte de la Municipalidad, así como el fondo o actividad privada que administre recursos municipales o transferidos por medio de la Municipalidad, para autorización por parte de la Auditoría Interna.

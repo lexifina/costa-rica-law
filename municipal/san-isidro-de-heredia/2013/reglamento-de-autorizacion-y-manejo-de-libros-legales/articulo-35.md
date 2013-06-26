@@ -1,0 +1,1 @@
+Artículo 35.—Traslado de dictámenes e informes. Los dictámenes e informes anteriores cuando se trasladen al Concejo Municipal para su conocimiento y disposición, deben ser remitidos por medio de un oficio del Órgano Colegiado, el cual debe estar firmado por el Secretario de dicho Órgano o quién haga sus veces.

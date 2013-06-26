@@ -1,0 +1,1 @@
+Artículo 14.—Libros no retirados. Los libros y folios que se autoricen por primera vez y los siguientes y que no se retiren, se conservarán en la Unidad de Auditoría Interna por espacio de tres meses naturales, transcurrido este plazo se destruirán.

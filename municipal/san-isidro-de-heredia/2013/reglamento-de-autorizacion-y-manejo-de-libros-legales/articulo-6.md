@@ -1,0 +1,1 @@
+Artículo 6º—Cierre del libro. En el transcurso del tiempo al terminarse el libro por haberse hecho anotaciones a mano para asentar los registros respectivos, se debe inutilizar los folios no usados, debiendo dejar el frente del último folio autorizado en blanco, y se le entrega a la Auditora Municipal para que realice la razón de cierre del libro respectivo.

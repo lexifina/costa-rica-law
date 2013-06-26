@@ -1,0 +1,1 @@
+Artículo 32.—Manejo de libros. Los libros de actas de las Comisiones del Concejo y Concejos de Distrito deben manejarse de la misma manera que el libro de actas de sesiones del Concejo Municipal, en lo que aplique según lo estipulado en el ordenamiento jurídico vigente.

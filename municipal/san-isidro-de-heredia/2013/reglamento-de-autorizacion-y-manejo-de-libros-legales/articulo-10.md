@@ -1,0 +1,1 @@
+Artículo 10.—Razón de cierre. El frente del último folio autorizado sea del libro o de los folios (hojas) autorizados, se debe dejar en blanco, para que la Auditoría Interna realice la razón de cierre del libro respectivo.

@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+De la custodia de los folios y libros autorizados
+Artículo 28.—Custodia. El responsable de la custodia de los folios y libros autorizados, será el representante de la dependencia, órgano que forman parte de la Municipalidad de San Isidro, o del fondo o actividad privada que administre recursos privados. En caso de comisionar o delegar el manejo o manipulación de los libros a otra persona, ambos son solidariamente responsables de su custodia y por tal razón, de que a los mismos se les dé el uso debido, bajo apercibimiento de las eventuales sanciones por responsabilidad administrativa, penal y civil, según el caso, por su mal uso.

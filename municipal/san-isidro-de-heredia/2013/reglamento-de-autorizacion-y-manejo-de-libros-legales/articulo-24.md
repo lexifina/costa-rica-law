@@ -1,0 +1,1 @@
+Artículo 24.—Borradores. Será el encargado o responsable directo del libro, según proceda, el que tendrá la labor de custodiar los borradores y documentación soporte de los eventos, sesiones y otros actos que serán registrados en los folios o libros autorizados.
