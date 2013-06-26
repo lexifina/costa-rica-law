@@ -14,3 +14,4 @@ Establece Tallas de Primera Madurez de especies marinas de interés comercial en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-26 | la propia norma |
+| 2 | 2013-06-26 | Acuerdo 235 (2013-06-21) |
