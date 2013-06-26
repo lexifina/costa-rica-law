@@ -1,0 +1,8 @@
+Artículo 11.—Administración cuenta de la persona usuaria. Las cuentas asignadas a la persona usuaria y el uso que se haga de las mismas, se regirá por las siguientes disposiciones:
+a) A cada persona usuaria se le proporcionará un identificador y contraseña personal para acceder a los recursos tecnológicos. Esta identificación digital se le asignará de acuerdo con el perfil de su puesto.
+b) Cada persona usuaria será responsable de las acciones que se reporten ejecutadas con su identificador digital y contraseña, asumiendo las consecuencias de las actuaciones que resulten de su uso.
+c) La contraseña se conformará por letras y números irreconocibles para terceros, con una longitud mínima de ocho caracteres y es estrictamente de uso personal y por tanto confidencial. Para ello, la persona usuaria deberá:
+1. No comunicar a nadie la contraseña personal para el acceso a Internet y al correo electrónico institucional, en ningún caso es permitido compartirla o cederla a terceros, aún cuando los propósitos sean laborales.
+2. Mantener la confidencialidad de su cuenta y contraseña y de todas las actividades que se efectúen bajo su cuenta, ya que es responsabilidad exclusiva de la persona usuaria.
+3. La contraseña será cambiada de acuerdo con las políticas establecidas por el Departamento de Cómputo y por un periodo de al menos cada dos meses o con más frecuencia en caso de posibles problemas.
+En caso de olvido de la contraseña o por solicitud de la persona usuaria, el Departamento de Cómputo eliminará la contraseña y el usuario deberá crear una nueva. El cambio de contraseña se hará en presencia de la persona usuaria.

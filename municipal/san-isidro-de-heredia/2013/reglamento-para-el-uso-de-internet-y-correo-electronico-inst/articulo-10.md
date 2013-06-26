@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Derechos y responsabilidades de las personas usuarias
+Artículo 10.—Derechos. Todo funcionario y funcionaria de la Municipalidad tendrán los siguientes derechos, en cuanto al uso del Internet y correo electrónico institucional:
+a) Disponibilidad geográfica del servicio de Internet.
+b) La utilización del servicio de correo electrónico e Internet permite ejercer el derecho a la información, comunicación, conocimiento, acceso tecnológico, libertad de opinión y expresión, libertad de búsqueda, recibir y difundir informaciones e ideas diversas, sin que exista previa censura, aunque con responsabilidades ulteriores aseguradas en los marcos normativos que regulan el quehacer de la institución, en función de garantizar el respeto a los derechos o a la integridad de las demás personas, el orden público y los intereses institucionales. Esto abarca la posibilidad de conocer las diversas opiniones y la producción de conocimiento que se dan en el ámbito académico, las instituciones estatales, Municipalidades, organizaciones sindicales, organismos internacionales entre otros.
+c) Realizar cualquier consulta referente a los aspectos técnicos del sistema de correo electrónico e Internet, para ello, se habilitará como servicio de apoyo el correo electrónico admin@sanisidro.go.cr, o bien, comunicarse por cualquier otro medio al Departamento de Cómputo.
