@@ -1,0 +1,1 @@
+Artículo 5º—La Cooperativa de Electrificación Rural de Guanacaste R. L. Coopeguanacaste R. L., deberá identificar y restablecer las áreas afectadas por la realización de las obras, por medio de reforestaciones de especies nativas y de regeneración natural, conforme lo apruebe el Sistema Nacional de Áreas de Conservación.
