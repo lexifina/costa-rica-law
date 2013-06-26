@@ -1,0 +1,1 @@
+Artículo 11.—Los acuerdos del Concejo Municipal aprobando o rechazando las solicitudes, deberán ser comunicados por esa instancia al Departamento de Patentes y al solicitante, siendo que éste último podrá recurrir conforme lo indica el Código Municipal.

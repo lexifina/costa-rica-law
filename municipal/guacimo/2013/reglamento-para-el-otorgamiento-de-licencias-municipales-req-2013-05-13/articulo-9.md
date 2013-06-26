@@ -1,0 +1,1 @@
+Artículo 9º—Todo trámite para obtener la explotación, traslado, traspaso o renovación de las licencias de licores otorgadas bajo la Ley N° 10 del 7 de octubre de 1936, se regulará según las disposiciones señaladas de previo en el Reglamento de Trámites y Requisitos de esta Municipalidad.
