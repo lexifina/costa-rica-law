@@ -1,1 +1,0 @@
-Artículo 9º—Conformación del fondo. El fondo de caja chica mantendrá siempre el total del monto asignado, el cual estará conformado de la siguiente forma: dinero en efectivo, facturas liquidadas, adelantos pendientes de liquidación y reintegros en trámite.

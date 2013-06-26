@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente Reglamento establece las disposiciones generales que regulan la asignación, el funcionamiento y control del Fondo de Caja Chica y de las cajas auxiliares del INAMU.

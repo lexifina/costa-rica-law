@@ -1,1 +1,0 @@
-Artículo 55.—Adelantos pendientes. Se podrá autorizar otro adelanto de la caja auxiliar a la funcionaria que tenga pendiente la liquidación de un adelanto anterior, con el fin de atender las necesidades de otras usuarias.

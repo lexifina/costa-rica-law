@@ -1,1 +1,0 @@
-Artículo 42.—Liquidación del adelanto. La liquidación del adelanto de caja chica se da por aceptada formalmente cuando la persona responsable del fondo de caja chica revisa todos los requisitos y estampa en ellos la firma de recibido conforme.

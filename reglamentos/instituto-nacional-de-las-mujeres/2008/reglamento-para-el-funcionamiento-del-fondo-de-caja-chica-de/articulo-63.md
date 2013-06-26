@@ -1,1 +1,0 @@
-Artículo 63.—Compras de uso común. No se tramitarán por medio del fondo de caja chica las compras que hayan sido definidas por la Coordinación Administrativa como de uso común, las que deberán ser adquiridas por medio de los procedimientos convencionales de contratación, de conformidad con las disposiciones establecidas en la Ley de Contratación Administrativa y su Reglamento.

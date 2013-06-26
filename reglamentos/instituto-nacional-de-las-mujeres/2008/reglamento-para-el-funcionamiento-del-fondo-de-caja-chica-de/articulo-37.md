@@ -1,1 +1,0 @@
-Artículo 37.—Tarifas autorizadas. Las tarifas autorizadas para gastos de alimentación y hospedaje serán las contempladas en el Reglamento de Gastos de Viaje y de Transporte para funcionarios públicos emitido por la Contraloría General de la República, para el pago de transporte regirán las tarifas autorizadas por la Autoridad Reguladora de Servicios Públicos (ARESEP).

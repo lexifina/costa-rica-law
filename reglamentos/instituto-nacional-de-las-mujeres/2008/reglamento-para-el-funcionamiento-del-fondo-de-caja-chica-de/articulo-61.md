@@ -1,3 +1,0 @@
-CAPÍTULO XIII
-De los adelantos fijos de las cajas auxiliares
-Artículo 61.—Monto de adelanto fijo. Se autoriza un adelanto fijo de la caja auxiliar por un monto máximo de un 15% del monto establecido para las cajas auxiliares, a las funcionarias nombradas como Auxiliares en los CEAAM y a la Profesional del Área de Violencia de Género con disponibilidad para atender los gastos que se presenten en el ejercicio de sus funciones y cuya necesidad sea urgente y requiera atención inmediata. En caso de que el adelanto se haya gastado en un cincuenta por ciento ó más, se procederá a liquidar el respectivo adelanto y posteriormente se solicitará otro por el monto máximo autorizado.

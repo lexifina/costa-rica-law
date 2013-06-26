@@ -1,1 +1,0 @@
-Artículo 69.—Ningún funcionario o funcionaria del Instituto, a excepción de las personas responsables del fondo de caja chica y de las cajas auxiliares, podrá mantener en su poder fondos de caja chica por más de tres días.

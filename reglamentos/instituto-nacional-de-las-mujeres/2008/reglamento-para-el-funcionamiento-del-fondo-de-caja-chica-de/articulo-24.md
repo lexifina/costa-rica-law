@@ -1,1 +1,0 @@
-Artículo 24.—Exoneraciones. Para efectos de la exoneración de tributos se utilizará el formulario denominado “Orden de Compra por Caja Chica”, el cual deberá ajustarse a lo dispuesto por la resolución DGH-RES-054-07 del 21 de junio de 2007 publicada en La Gaceta Nº 154 del 26 de junio de 2007.

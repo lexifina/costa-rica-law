@@ -1,1 +1,0 @@
-Artículo 66.—El fondo de caja chica no podrá ser utilizado para el cambio de cheques personales, ni para hacer préstamos a funcionarios o funcionarias, ni podrá utilizarse para otros fines distintos para el que fue creado.

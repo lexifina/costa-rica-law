@@ -1,1 +1,0 @@
-Artículo 67.—La persona responsable del fondo de caja chica no podrá guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para el resguardo del fondo de caja chica.

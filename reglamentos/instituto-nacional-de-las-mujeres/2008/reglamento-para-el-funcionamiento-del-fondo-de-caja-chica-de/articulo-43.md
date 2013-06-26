@@ -1,1 +1,0 @@
-Artículo 43.—Responsabilidades. Será responsabilidad de la Jefatura que autoriza el adelanto de caja chica, velar que los gastos realizados hayan sido utilizados para el fin para el cual se solicitó el adelanto.

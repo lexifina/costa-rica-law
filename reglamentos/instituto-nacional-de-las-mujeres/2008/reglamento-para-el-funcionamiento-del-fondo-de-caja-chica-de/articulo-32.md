@@ -1,3 +1,0 @@
-CAPÍTULO VI
-De los reintegros
-Artículo 32.—Reintegro. El pago de los desembolsos que se realicen por medio del fondo de caja chica o caja auxiliar se tramitará por el correspondiente reintegro, que deberá ser preparado en original y copia, por la persona responsable del fondo de caja chica o caja auxiliar, la cual deberá solicitar con la diligencia, oportunidad y frecuencia necesaria los respectivos reintegros.

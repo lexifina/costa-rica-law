@@ -1,1 +1,0 @@
-Artículo 28.—Diferencias en arqueo. Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada en el formulario diseñado para tal efecto por la persona responsable de la caja chica o de las cajas auxiliares, quien, además, deberá en forma inmediata depositar el sobrante en la cuenta corriente del INAMU o reintegrar el faltante al fondo de caja chica.
