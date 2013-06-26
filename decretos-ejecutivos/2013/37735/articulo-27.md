@@ -1,0 +1,3 @@
+Artículo 27.—Organización de las UPI. Las UPI tendrán su propia jefatura y estarán integradas por funcionarios interdisciplinarios con conocimientos conforme a sus funciones.
+Las UPI, en la realización de sus funciones, establecerán los procesos ordinarios y especiales correspondientes y para ello integrarán equipos de trabajo especializados conforme sea necesario, de acuerdo con la complejidad de la organización institucional y la diversidad de las competencias institucionales.
+Las UPI no podrán subdividirse salvo casos de excepción cuando el volumen, la diversidad y la complejidad de las funciones de la institución así lo ameriten. Las UPI integrarán las acciones de planificación de las oficinas que se subdividan.

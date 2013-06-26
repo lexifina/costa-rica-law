@@ -1,0 +1,1 @@
+Artículo 35.—Elaboración de los PNS y los PEI. Los PNS serán emitidos por los Ministros Rectores y los PEI por las instituciones del Subsistema, según corresponda, de acuerdo con los lineamientos, metodologías y procedimientos establecidos por MIDEPLAN y, posteriormente, serán refrendados por MIDEPLAN.

@@ -1,0 +1,1 @@
+Artículo 12.—Los PNS. Los PNS son instrumentos de dirección y planificación sectorial de mediano plazo, para periodos no menores de 5 años, que precisan responsabilidades institucionales en congruencia con el PEN y el PND. Los PNS contendrán la dimensión regional. Podrán emitirse planes por áreas temáticas, derivados del respectivo PNS.

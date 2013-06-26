@@ -1,0 +1,1 @@
+Artículo 14.—Políticas y disposiciones generales. Las políticas y disposiciones generales del SNP podrán ser emanadas por la o el Presidente de la República, el Poder Ejecutivo, MIDEPLAN y los Subsistemas del SNP, según su competencia.

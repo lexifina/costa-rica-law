@@ -1,0 +1,1 @@
+Artículo 54.—De las fuentes y modalidades de financiamiento de las inversiones. MIDEPLAN velará para que las fuentes de cooperación y las diversas modalidades de ejecución y financiamiento de proyectos se ajusten a los procedimientos y requerimientos de información establecidos por el Subsistema.

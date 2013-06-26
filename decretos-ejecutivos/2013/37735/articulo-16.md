@@ -1,0 +1,1 @@
+Artículo 16.—Participación Ciudadana. Las instituciones del SNP desarrollarán permanentemente acciones de incorporación efectiva de los sectores sociales y productivos y en general de los habitantes en la formulación de los instrumentos de planificación. Se deberán realizar consultas públicas del PEN, PNS, PRD y PND, previamente a su emisión.

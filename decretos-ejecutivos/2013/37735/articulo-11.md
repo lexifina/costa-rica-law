@@ -1,0 +1,1 @@
+Artículo 11.—Los PRD. Los PRD son instrumentos de planificación regional de mediano y largo plazo para períodos no menor de 5 años elaborados bajo la coordinación de MIDEPLAN con el apoyo de las instituciones del SNP y con participación ciudadana, conforme con los instrumentos de planificación nacional.

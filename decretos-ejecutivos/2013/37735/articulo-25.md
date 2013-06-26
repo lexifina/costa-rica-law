@@ -1,0 +1,2 @@
+Artículo 25.—Otros órganos colegiados del SNP. Los órganos colegiados del SNP creados conforme a las disposiciones establecidas en los artículos 3º inciso c), 19 y 21 de la Ley de Planificación Nacional y por leyes especiales tendrán las funciones que se encomienden en sus respectivos marcos normativos.
+Estos órganos colegiados podrán convocar o invitar a expertos o representantes de intereses gremiales o generales.

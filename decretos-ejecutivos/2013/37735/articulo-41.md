@@ -1,0 +1,1 @@
+Artículo 41.—Reorganizaciones administrativas. Las instituciones someterán a aprobación de MIDEPLAN los proyectos de reorganización administrativa, los que deberán estar ajustados a los lineamientos, metodologías y procedimientos emitidos por MIDEPLAN.

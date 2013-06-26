@@ -1,0 +1,1 @@
+Artículo 15.—Sectorialización. La Administración Pública se organizará por sectores para facilitar la coordinación de instituciones con actividades afines. La sectorialización se regulará conforme a las disposiciones contenidas en el Reglamento Orgánico del Poder Ejecutivo, Decreto Ejecutivo Nº 34582-MP-PLAN de 4 de junio de 2008 y sus reformas.
