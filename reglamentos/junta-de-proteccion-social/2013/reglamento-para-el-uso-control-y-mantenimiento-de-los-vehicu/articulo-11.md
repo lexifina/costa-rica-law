@@ -1,0 +1,1 @@
+Artículo 11.—Tarjetas electrónicas para compra de combustible. Cada chofer o conductor autorizado contará con una tarjeta electrónica para compra de combustible para los vehículos de la Institución, la correcta utilización de cada tarjeta recaerá directamente sobre el chofer o conductor a la que se le emitió.

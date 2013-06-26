@@ -1,0 +1,2 @@
+Artículo 21.—Responsabilidad del chofer o conductor. El chofer o conductor que en conocimiento de la existencia de un daño causado a un vehículo propiedad de la Junta lo oculte, asumirá la responsabilidad legal que por su conducta pueda imputársele.
+Si un funcionario que ocupa un puesto de chofer acumula un total de doce puntos por infracciones cometidas a la Ley de Tránsito, lo cual lo inhabilita para conducir, la Unidad de Transportes lo comunicará al Departamento de Recursos Humanos para lo que corresponda.

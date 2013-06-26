@@ -1,0 +1,1 @@
+Artículo 2º—Clasificación. Para efectos de este Reglamento y de conformidad con lo establecido en el artículo 237 inciso b) y el artículo 239 de la Ley de Tránsito por Vías Públicas, Terrestres y Seguridad Vial N° 9078, todos los vehículos del Junta de Protección Social se clasifican como vehículos de uso administrativo.

@@ -1,0 +1,1 @@
+Artículo 4º—Control de los vehículos. Los vehículos de la Junta de Protección Social estarán sometidos a los programas de mantenimiento, controles administrativos, abastecimientos, kilometraje y demás regulaciones necesarias y pertinentes para asegurar su correcto uso y administración.

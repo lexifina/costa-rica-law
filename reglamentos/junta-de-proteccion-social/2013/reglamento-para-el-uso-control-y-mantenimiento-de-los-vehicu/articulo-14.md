@@ -1,0 +1,5 @@
+CAPÍTULO III
+De los usuarios
+Artículo 14.—Solicitud de transporte. Los jefes de las unidades administrativas, por medio de los funcionarios autorizados previamente, deberán de solicitar mediante el formulario establecido, vía correo electrónico y con un día de anticipación, al Encargado de la Unidad de Transportes, la solicitud de vehículo para su respectiva programación de acuerdo a la disponibilidad de recursos y la prioridad de la gestión oficial para la cual se requieren los servicios.
+Las solicitudes para utilizar vehículos destinados a giras deberán presentarse con al menos con una semana de anticipación a la realización de éstas, acompañando un itinerario y la autorización extendida por el jefe inmediato, salvo casos de excepción, debidamente justificados por el superior del área correspondiente.
+Cualquier alteración a la ruta programada en la solicitud de servicio que se dé en el transcurso de la gira, es responsabilidad absoluta y personal del funcionario que utiliza el servicio, por lo que el chofer o conductor de vehículo debe anotarlo y comunicarlo a la Unidad de Transportes inmediatamente al regreso a la Institución.
