@@ -1,0 +1,1 @@
+Artículo 46.—Procesamiento de información. Los funcionarios de la Auditoría Interna deberán identificar, analizar, evaluar y registrar suficiente información de acuerdo con lo establecido en el Manual de Auditoría Interna.

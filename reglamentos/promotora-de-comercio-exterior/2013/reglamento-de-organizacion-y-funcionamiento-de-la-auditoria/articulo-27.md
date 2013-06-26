@@ -1,0 +1,1 @@
+Artículo 27.—Presupuesto para capacitaciones. El Auditor Interno coordinará con el área encargada de la administración del recurso humano para que se incluya dentro del presupuesto anual, los recursos necesarios para capacitar adecuadamente al personal de la Auditoría Interna.

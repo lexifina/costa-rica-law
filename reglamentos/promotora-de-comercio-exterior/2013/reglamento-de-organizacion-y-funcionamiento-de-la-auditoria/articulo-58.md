@@ -1,0 +1,1 @@
+Artículo 58.—Autoevaluación de la calidad. Dentro del programa de aseguramiento de la calidad se deberá contar con la realización de autoevaluaciones de calidad de la actividad de la Auditoría Interna que se efectúen por lo menos de manera anual. Los resultados de estas autoevaluaciones deberán remitirse a la Junta Directiva.

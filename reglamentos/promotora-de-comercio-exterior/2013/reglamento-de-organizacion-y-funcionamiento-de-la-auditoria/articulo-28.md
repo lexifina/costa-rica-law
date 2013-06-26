@@ -1,0 +1,1 @@
+Artículo 28.—Registro separado del presupuesto. Será obligación de la administración de Procomer, llevar un registro separado del monto asignado y aprobado para la Auditoría Interna, detallado por objeto del gasto de manera que se controle con toda exactitud la ejecución y modificaciones del gasto asignado y aprobado.

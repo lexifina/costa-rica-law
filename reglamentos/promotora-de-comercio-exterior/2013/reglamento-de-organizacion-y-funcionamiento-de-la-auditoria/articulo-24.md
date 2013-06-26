@@ -1,0 +1,1 @@
+Artículo 24.—Intercambio de información. El Auditor Interno tendrá la potestad de proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que conforme a la ley correspondan, sin perjuicio de la coordinación que al respecto deba darse y sin que ello implique una limitación al respecto.

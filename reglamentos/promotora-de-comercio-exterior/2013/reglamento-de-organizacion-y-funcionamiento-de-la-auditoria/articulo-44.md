@@ -1,0 +1,1 @@
+Artículo 44.—Comunicación previa al inicio del estudio. El auditor encargado del estudio debe establecer por escrito con el gerente o director del área a auditar, una comunicación sobre la realización de un estudio, de manera previa al inicio de este. Se deberá dejar constancia de esta comunicación en los papeles de trabajo del estudio.

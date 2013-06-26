@@ -1,0 +1,1 @@
+Artículo 63.—Plazo de resolución de la denuncia. En caso de que se admita la denuncia, deberá tramitarse con la mayor celeridad y no podrá alegarse inercia del denunciante para justificar cualquier retraso en su trámite, por lo que será la Administración la que procurará su instrucción, así como su pronta conclusión.

@@ -1,0 +1,1 @@
+Artículo 53.—Trámite de las relaciones de hechos. Las relaciones de hechos, se ajustarán en su contenido a las directrices o lineamientos que al respecto promulgue la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 13.—Horario del personal de la Auditoría Interna. Los funcionarios de la Auditoría Interna tendrán un horario congruente con el que el establecido a nivel Institucional, sin embargo, si las labores lo exigen, se laborará el tiempo extra necesario.

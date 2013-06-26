@@ -1,0 +1,2 @@
+Artículo 49.—Políticas de administración y supervisión. Es responsabilidad del Auditor Interno, evaluar y supervisar el trabajo de sus subalternos.
+Además deberán considerarse en todo momento los lineamientos, directrices, normas y demás normativa relacionada con la práctica profesional de la auditoría emitida por la Contraloría General de la República y Colegio de Contadores Públicos de Costa Rica.

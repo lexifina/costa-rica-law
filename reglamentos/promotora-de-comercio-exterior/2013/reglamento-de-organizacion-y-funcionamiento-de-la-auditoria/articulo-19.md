@@ -1,0 +1,1 @@
+Artículo 19.—Creación de plazas. El Auditor Interno deberá proponer en forma debidamente justificada a la Junta Directiva, la creación de plazas y servicios cuando se requiera para el correcto desempeño de las labores de la Auditoría Interna.

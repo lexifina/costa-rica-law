@@ -1,0 +1,1 @@
+Artículo 32.—Facilidades al personal de la Auditoría Interna. Será obligación de todo funcionario o dependencia de Procomer brindar las facilidades necesarias para que el personal de la Auditoría Interna realice satisfactoriamente su labor; lo anterior de conformidad con lo dispuesto por el artículo 33 de la Ley General de Control Interno.

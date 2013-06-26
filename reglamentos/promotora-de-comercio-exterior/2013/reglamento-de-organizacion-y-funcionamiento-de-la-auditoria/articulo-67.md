@@ -1,0 +1,1 @@
+Artículo 67.—Derogatoria. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Promotora de Comercio Exterior de Costa Rica, aprobado en el artículo Nº 5º del acta de la sesión ordinaria de la Junta Directiva Nº- 195-2007, celebrada el 2 de julio de 2007.

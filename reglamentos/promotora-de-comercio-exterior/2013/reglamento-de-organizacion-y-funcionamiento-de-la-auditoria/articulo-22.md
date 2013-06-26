@@ -1,0 +1,5 @@
+SECCIÓN SEXTA
+Del ámbito de acción
+Artículo 22.—Ámbito de acción. Los servicios de auditoría y servicios preventivos, se realizarán en forma oportuna, independiente y abarcarán todas las actividades de Procomer; incluyendo las funciones administrativas, financieras, operativas, contables, presupuestarias, movimiento e inversión de recursos, deuda, obligaciones, desembolsos, sistemas, gastos en general, entre otros, así como a los entes u órganos públicos y privados sujetos a la competencia institucional de la Auditoría, de acuerdo con el artículo 22 inciso a) de la Ley General de Control Interno, en tanto éstos se origen en transferencias efectuadas por componentes dentro de la competencia de Procomer.
+Esa función podrá ejercerla directamente, como parte de las actividades de fiscalización de la Auditoría Interna o por medio de la contratación de firmas externas.
+Es obligación del Auditor Interno mantener actualizado, el listado que para tal efecto elaborará, de los órganos y dependencias sujetas al ámbito de acción de la Auditoría, lo anterior de conformidad con lo dispuesto en el inciso a) del artículo 22 de la Ley General de Control Interno.

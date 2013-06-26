@@ -1,0 +1,1 @@
+Artículo 41.—Programas específicos de auditoría. El programa específico de auditoría para cada estudio, será diseñado de manera que se le dé cobertura a los riesgos más significativos de cada área auditada. Este programa deberá ser aprobado por el Auditor Interno.

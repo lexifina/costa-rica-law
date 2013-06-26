@@ -1,0 +1,1 @@
+Artículo 61.—Admisibilidad de las denuncias. La Auditoría Interna recibirá cualquier tipo de denuncia, la cual examinará, dentro de un plazo razonable y congruente con el tipo de denuncia que corresponda. En el proceso de admisibilidad de la misma, se le comunicará al denunciante sobre si se admitió o rechazó la misma.
