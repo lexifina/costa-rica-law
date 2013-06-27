@@ -1,0 +1,4 @@
+Artículo 8º—Ejecución del gasto. El Consejo Superior autorizará la ejecución del gasto a realizar con los dineros del Fondo de Contingencia, en respuesta a la emergencia que se presentó.
+Las operaciones monetarias (pagos, transferencias, inversiones) que ordene realizar el Consejo Superior relacionadas con el Fondo de Contingencia, serán tramitadas, controladas y registradas por el Departamento Financiero Contable y aprobadas por la Dirección Ejecutiva.
+En materia de emergencias deberá actuarse con rapidez, agilidad y salvaguardando la seguridad de las operaciones monetarias que se realicen, por cualquier medio válido que permita dejar constancia de las operaciones, según lo permitan las circunstancias especiales que presente la emergencia.
+Corresponderá al Departamento de Proveeduría la adquisición de bienes y servicios necesarios para la atención de emergencias.

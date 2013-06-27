@@ -1,0 +1,1 @@
+Artículo 6º—Fondo de uso inmediato. En el contrato de fideicomiso deberá especificarse que el Poder Judicial contará con los recursos de las inversiones de manera inmediata, en caso de una emergencia. Para cumplir con este objetivo se mantendrá en inversiones a la vista hasta un 2% del capital fideicometido.

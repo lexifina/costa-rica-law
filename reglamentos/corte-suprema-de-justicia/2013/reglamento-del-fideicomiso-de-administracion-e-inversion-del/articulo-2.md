@@ -1,0 +1,1 @@
+Artículo 2º—Fundamento legal. De conformidad con lo establecido en el artículo 59 inciso 7 de la Ley Orgánica del Poder Judicial y en lo pertinente con las disposiciones de la Ley Nº 8488, Ley Nacional de Emergencias y Prevención de Riesgo, se dicta el presente reglamento.

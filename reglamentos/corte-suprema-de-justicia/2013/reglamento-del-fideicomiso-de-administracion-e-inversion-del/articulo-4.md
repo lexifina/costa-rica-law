@@ -1,0 +1,1 @@
+Artículo 4º—Fondo de Contingencia. El Fondo de Contingencia será administrado por el Consejo Superior del Poder Judicial, con el apoyo de la Dirección Ejecutiva conforme a las competencias que establece a esta la Ley Orgánica del Poder Judicial.

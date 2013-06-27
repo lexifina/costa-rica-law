@@ -1,0 +1,1 @@
+Artículo 7º—Liquidez. Para hacer líquidos los dineros del Fondo de Contingencia que se encuentren invertidos, la Dirección Ejecutiva a través del Departamento Financiero Contable, procederá de inmediato a solicitar al Banco fiduciario la negociación de los títulos valores para contar con los recursos en forma oportuna.

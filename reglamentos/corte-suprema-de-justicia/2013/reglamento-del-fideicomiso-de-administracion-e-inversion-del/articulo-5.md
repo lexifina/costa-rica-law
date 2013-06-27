@@ -1,0 +1,2 @@
+Artículo 5º—Inversiones. Los dineros del Fondo de Contingencia serán colocados en un fideicomiso en uno de los Bancos comerciales del Estado. La inversión de los recursos deberá realizarse buscando el equilibrio necesario entre seguridad, rentabilidad, riesgo y liquidez, considerando inversiones a 180 días máximo, en los mismos emisores autorizados para el Fondo de Jubilaciones y Pensiones del Poder Judicial.
+Las instrucciones de inversión serán dadas en cada caso por la Dirección Ejecutiva mediante resolución.

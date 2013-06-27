@@ -1,0 +1,1 @@
+Artículo 12.—Normativa aplicable.- La materia de emergencias se regulará por lo dispuesto en la Ley Orgánica del Poder Judicial, la Ley Nº 8488, Ley Nacional de Emergencias y Prevención de Riesgo, en lo que fuere aplicable al Poder Judicial, este Reglamento y lo que al efecto disponga la Corte Plena.
