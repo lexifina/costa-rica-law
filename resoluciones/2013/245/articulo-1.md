@@ -1,0 +1,13 @@
+MINISTERIO DE AMBIENTE Y ENERGÍA
+R-245-2013-MINAE.—Ministerio de Ambiente y Energía.—San José, a las nueve y treinta horas del once de junio del dos mil trece.
+Considerando:
+1º—Que el día 23 de mayo de 2012 salió publicado en La Gaceta N° 99 el “Reglamento del Sistema de Reconocimientos Ambientales (SIREA) y derogatoria del Decreto Ejecutivo N° 33525-MINAE, Reglamento para otorgar el certificado Bandera Ecológica del 27 de noviembre de 2006, Decreto Ejecutivo N° 37109” del 12 de febrero de 2012 cuyo objetivo es crear el Sistema de Reconocimientos Ambientales (en adelante SIREA), que tiene como objetivo reconocer públicamente a aquellas organizaciones que se han destacado por provocar un cambio significativo en el campo ambiental del país; contribuyendo al logro de los objetivos del Plan Nacional de Desarrollo y a una estrategia nacional de desarrollo sostenible a largo plazo.
+2º—Que en el artículo 5 inciso a) del reglamento citado supra se creó la Secretaría Ejecutiva (SE) como un órgano permanente que tendrá como función asesorar y apoyar al Ministro de Ambiente y Energía (MINAE) para el seguimiento del SIREA.
+3º—Que en la Reunión Ordinaria número 01- Acta 1 N° 01-2012 de la SE, se validó la conformación de ésta.
+4º—Que dentro de las responsabilidades y facultades de la SE se encuentra someter a conocimiento del Ministro de Ambiente y Energía los instrumentos normativos que se requieran para la efectiva implementación de los reconocimientos del SIREA.
+5º—Que el artículo 23 párrafo segundo del Decreto Ejecutivo N° 37109 establece que una organización que desea reconocerse deberá someterse a una evaluación documental y presencial, y que dicha evaluación deberá tomar como base la metodología de evaluación definida por el MINAE vía resolución administrativa.
+6º—Que el artículo 32 del Decreto Ejecutivo N° 37109 señala que la aprobación de la solicitud de renovación de un reconocimiento quedará sujeta al cumplimiento de la metodología de evaluación definida por el Ministro del MINAE vía resolución administrativa.
+7º—Que el transitorio I del Decreto Ejecutivo N° 37109, indica que el MINAE contará con un plazo máximo de seis meses a partir de la publicación de dicho reglamento en el Diario Oficial La Gaceta para emitir la resolución administrativa referente a la metodología de evaluación, por lo que, en la Reunión Extraordinaria número 08- Acta 03-2013 de la SE acordó proceder con la aprobación y oficialización de dicha metodología. Por tanto,
+LA MINISTRA DE AMBIENTE Y ENERGÍA,
+RESUELVE:
+1º—Aprobar el Procedimiento de convocatoria, admisibilidad, metodología de evaluación, y entrega de los reconocimientos creados en el artículo 10 del Decreto Ejecutivo N° 37109.
