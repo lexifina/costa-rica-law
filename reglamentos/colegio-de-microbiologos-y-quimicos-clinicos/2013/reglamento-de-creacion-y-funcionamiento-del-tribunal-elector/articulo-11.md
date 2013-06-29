@@ -1,0 +1,1 @@
+Artículo 11.—Cuando se haya presentado únicamente una papeleta el Tribunal la enviará para que sea ratificada en la asamblea General Ordinaria. Si la papeleta no es ratificada, se llevará a cabo la elección de forma nominal en esta misma Asamblea. Si no se presenta ninguna papeleta se sigue el procedimiento anterior (elección nominal entre la Asamblea).

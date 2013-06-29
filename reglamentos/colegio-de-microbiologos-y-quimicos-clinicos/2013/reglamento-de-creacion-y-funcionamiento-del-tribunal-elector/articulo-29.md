@@ -1,0 +1,1 @@
+Artículo 29.—Al cierre de la urna de votación los miembros del Tribunal procederán a redactar el acta de cierre en la que se anotarán si existieran, eventos que ocurrieron durante el proceso de votación.

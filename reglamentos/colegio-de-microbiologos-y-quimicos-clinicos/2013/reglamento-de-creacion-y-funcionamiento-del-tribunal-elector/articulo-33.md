@@ -1,0 +1,1 @@
+Artículo 33.—Se considerarán votos en blanco aquellos en los que no se marque a ninguno de los candidatos para el puesto, estos votos serán contados en una categoría aparte y no se aplicarán a ninguno de los candidatos.

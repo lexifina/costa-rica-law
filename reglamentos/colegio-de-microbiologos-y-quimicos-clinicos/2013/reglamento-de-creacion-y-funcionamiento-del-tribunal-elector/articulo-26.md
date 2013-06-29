@@ -1,0 +1,1 @@
+Artículo 26.—El votante depositará el voto emitido en una caja sellada, colocada al frente de la mesa del Tribunal, de manera que las firmas de los miembros presentes en la mesa sean visibles al depositar el voto.

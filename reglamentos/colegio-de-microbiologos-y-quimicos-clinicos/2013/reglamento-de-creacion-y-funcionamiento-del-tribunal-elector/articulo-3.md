@@ -1,0 +1,1 @@
+Artículo 3º—Los miembros del Tribunal serán nombrados por la Junta Directiva del Colegio por un período de dos años, pudiendo ser reelectos. No podrán ser miembros directivos ni podrán participar en ninguna función de las tendencias que participen en las justas electorales.

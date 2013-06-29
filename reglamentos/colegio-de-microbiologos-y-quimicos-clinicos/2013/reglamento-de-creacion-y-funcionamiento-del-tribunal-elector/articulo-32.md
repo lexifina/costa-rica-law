@@ -1,0 +1,1 @@
+Artículo 32.—Se considerará un voto como nulo cuando se realice en la papeleta alguna escritura, se marquen uno o más candidatos por puesto o cuando se realicen alteraciones en la papeleta. Estos votos serán contados en una categoría aparte y no se aplicarán a ninguno de los candidatos.

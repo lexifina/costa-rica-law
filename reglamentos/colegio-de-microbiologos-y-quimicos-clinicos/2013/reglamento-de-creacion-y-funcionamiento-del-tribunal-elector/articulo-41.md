@@ -1,0 +1,1 @@
+Artículo 41.—Este Reglamento se aplicará para las elecciones en Asamblea General, en caso de que se produzcan vacantes en la Junta Directiva por renuncia de alguno de sus miembros se deberá buscar un sustituto y presentarlo a los agremiados en Asamblea Extraordinaria.

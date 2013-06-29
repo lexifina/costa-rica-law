@@ -1,0 +1,1 @@
+Artículo 4º—El Tribunal nombrará dentro de su seno a un Presidente y a un Secretario y tendrá acceso a los archivos del Colegio para verificar la condición de los electores con respecto a sus obligaciones con el colegio

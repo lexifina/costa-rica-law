@@ -1,0 +1,1 @@
+Artículo 10.—El Tribunal Electoral revisará las propuestas y eliminará de oficio a los candidatos o propuestas que no se ajusten a las disposiciones legales o reglamentarias. Las propuestas podrán contener no más de tres miembros que busquen la reelección en la Junta Directiva y esta reelección no podrá realizarse por más de cuatro periodos para el mismo cargo.

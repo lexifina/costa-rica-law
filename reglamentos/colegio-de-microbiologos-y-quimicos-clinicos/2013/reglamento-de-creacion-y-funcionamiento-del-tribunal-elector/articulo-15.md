@@ -1,0 +1,1 @@
+Artículo 15.—Es obligación del Tribunal Electoral velar por que la propaganda emitida no vaya en contra de lo establecido en este Reglamento; si las partes desean realizar debates o foros de opinión deberán buscar a un moderador que se verifique sea imparcial o en su defecto alguno de los miembros del Tribunal deberá tomar esta posición.

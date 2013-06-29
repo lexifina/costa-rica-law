@@ -1,0 +1,1 @@
+Artículo 6º—De tres a cuatro semanas antes de la primera convocatoria a Asamblea, el Tribunal convocará a los colegiados al proceso electoral y señalará la fecha y hora máxima para recibir propuestas de candidatos. Dicha fecha deberá ser anterior a los quince días previos a la primera convocatoria.

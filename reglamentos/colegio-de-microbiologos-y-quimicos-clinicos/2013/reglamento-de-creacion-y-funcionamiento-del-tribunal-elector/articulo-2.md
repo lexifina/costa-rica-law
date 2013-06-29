@@ -1,0 +1,1 @@
+Artículo 2º—El Tribunal estará integrado por un número de tres a cinco miembros propietarios y sus funciones se llevarán a cabo sin perjuicio de las funciones que la Ley señala a los miembros directivos y en especial a la Fiscalía.

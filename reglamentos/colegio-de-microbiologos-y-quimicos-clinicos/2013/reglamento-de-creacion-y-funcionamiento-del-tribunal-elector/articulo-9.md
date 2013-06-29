@@ -1,0 +1,1 @@
+Artículo 9º—Los candidatos para postularse a un puesto deberán encontrarse al día con sus obligaciones con el colegio y no presentar ningún impedimento para ocupar puestos en la Junta Directiva, para lo cual a la propuesta deberá adjuntarse la documentación que pruebe esto emitida por la Tesorería y la Fiscalía del Colegio.

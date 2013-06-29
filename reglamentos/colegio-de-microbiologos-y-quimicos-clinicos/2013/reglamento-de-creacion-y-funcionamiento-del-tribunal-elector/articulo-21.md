@@ -1,0 +1,1 @@
+Artículo 21.—El Tribunal levantará un acta del proceso electoral donde hará constar cualquier incidencia especial que se presente y el resultado de la elección. Esta acta será firmada por el Presidente y Secretario y una copia de ella se entregará al Secretario del Colegio para que sea transcrita en el Acta de la Asamblea.

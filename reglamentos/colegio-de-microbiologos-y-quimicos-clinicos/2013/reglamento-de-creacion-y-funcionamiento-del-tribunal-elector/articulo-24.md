@@ -1,0 +1,1 @@
+Artículo 24.—Para ejercer el derecho al voto el profesional debe identificarse con la cédula de identidad o el carné del Colegio y debe de estar registrado en el padrón de miembros activos, salvo casos contemplados en el artículo quince del presente Reglamento.
