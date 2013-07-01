@@ -12,5 +12,5 @@ Artículo 1°—Nombrar como parte de los miembros que integran la Comisión Nac
 1. Miembro propietario:
 a. Esteban Cerdas Quirós, representante de la Ministra de Salud.
 2. Miembros suplentes:
-a. Alejandra Chaverri Soto, representante de la Ministra de Salud.
+a. (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 37962 del 1° de julio del 2013)
 b. Grace García Muñoz, representante de la Federación Costarricense para la Conservación del Ambiente.
