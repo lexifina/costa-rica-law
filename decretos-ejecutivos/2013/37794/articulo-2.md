@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 37633-H de fecha 6 de marzo del 2013, publicado en el Alcance Digital N° 71 a La Gaceta N° 75 del 19 de abril del 2013, a partir de la vigencia del presente decreto.
