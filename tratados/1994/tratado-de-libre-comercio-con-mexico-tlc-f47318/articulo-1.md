@@ -1,5 +1,6 @@
 (Derogado)
 7474
+(Este instrumento se quedo sin efecto por el artículo 2° de la norma de aprobación del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, N° 9122 del 6 de marzo de 2013, el cual entró en vigencia el 1° de julio de 2013)
 TRATADO DE LIBRE COMERCIO ENTRE EL
 GOBIERNO DE COSTA RICA Y EL GOBIERNO DE LOS
 ESTADOS UNIDOS MEXICANOS Y SUS ANEXOS,

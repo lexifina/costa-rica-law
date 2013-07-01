@@ -1,4 +1,5 @@
 7474
+(Este instrumento se quedo sin efecto por el artículo 2° de la norma de aprobación del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, N° 9122 del 6 de marzo de 2013, el cual entró en vigencia el 1° de julio de 2013)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 APROBACION DEL TRATADO DE LIBRE COMERCIO ENTRE EL
@@ -10977,7 +10978,7 @@ Lista de Costa Rica
 14.- Ministerio de Justicia y Gracia
 15.- Ministerio de Vivienda y Asentamientos Humanos
 16.- Ministerio de Planificación Nacional y Política Económica
-17.- Ministerio de Ciencia, Tecnología y Telecomunicaciones(*)
+17.- Ministerio de Ciencia y Tecnología
 18.- Ministerio de Recursos Naturales, Energía y Minas
 19.- Ministerio de Comercio Exterior
 20.- Poder Judicial
@@ -10985,7 +10986,6 @@ Lista de Costa Rica
 22.- Asamblea Legislativa de la República de Costa Rica
 23.- Contraloría General de la República
 24. Defensor de los Habitantes de la República
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 Lista de México
 1.- Secretaría de Gobernación
 - Centro Nacional de Estudios Municipales
