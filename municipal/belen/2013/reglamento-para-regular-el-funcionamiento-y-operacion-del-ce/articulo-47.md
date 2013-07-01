@@ -1,0 +1,1 @@
+Artículo 47.—El presente reglamento deroga el anterior Reglamento para Regular el Funcionamiento y Operación del Centro Infantil Modelo del Cantón de Belén aprobado por la Municipalidad de Belén, mediante Sesión Ordinaria número 49-2010, del 17 de agosto de 2010, publicado en el Diario Oficial La Gaceta número 174 del 07 de setiembre de 2010.

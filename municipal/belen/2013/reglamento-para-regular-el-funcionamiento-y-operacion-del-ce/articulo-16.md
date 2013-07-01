@@ -1,0 +1,1 @@
+Artículo 16.—El alumnado que no se ajuste a las normas y medidas disciplinarias del Centro Infantil Modelo, se le suspenderá el servicio como medida correctiva. Recibirán inicialmente una nota escrita con la advertencia y de no mejorar su conducta, la administración determinará una suspensión de la institución hasta por un periodo de 15 días naturales.

@@ -1,0 +1,1 @@
+Artículo 45.—Para poder disfrutar del servicio, la mensualidad deberá ser cancelada por el padre, la madre o representante legal del niño (a) los primeros 8 días del mes. Plazo en que se deberá acreditar el pago a través del comprobante respectivo, el cual deberá adjuntarse en el cuaderno de comunicaciones. Después del día 15 del mes se suspenderá el servicio definitivamente.

@@ -1,0 +1,1 @@
+Artículo 44.—El precio determinado por el Concejo Municipal de Cantón de Belén entrará en vigencia un mes después de su publicación en el diario oficial La Gaceta de acuerdo a lo dispuesto por el numeral 74 del Código Municipal.

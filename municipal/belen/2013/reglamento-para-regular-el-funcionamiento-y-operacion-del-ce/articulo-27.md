@@ -1,0 +1,1 @@
+Artículo 27.—Quienes no presenten la justificación correspondiente serán remitidos a la administración del Centro Infantil, quien podrá valorar ante las circunstancias del caso el justificar o no la ausencia.
