@@ -1,4 +1,6 @@
+(Derogado)
 N° 8891
+(Esta ley se quedo sin efecto por el artículo 2° de la norma de aprobación del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, N° 9122 del 6 de marzo de 2013, el cual entró en vigencia el 1° de julio de 2013)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
