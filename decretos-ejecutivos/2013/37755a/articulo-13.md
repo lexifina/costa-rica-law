@@ -1,0 +1,2 @@
+Artículo 13. Una vez que el certificado de origen - cupo sea aceptado por la autoridad competente de México, ésta otorgará al importador un documento de asignación de cupo, el cual deberá ser utilizado en un plazo no mayor de 30 días desde su emisión.
+En caso que el importador no utilice el documento de asignación de cupo en el plazo establecido en el párrafo anterior, la cantidad asignada se reintegrará al cupo global disponible.

@@ -1,0 +1,1 @@
+Artículo 8. Cuando las Partes acuerden un mecanismo de distribución del cupo global por país de conformidad con el Artículo 4, el incremento a que se refiere el párrafo 5 del Anexo 3.16 se hará proporcionalmente por país de acuerdo con dicha distribución.

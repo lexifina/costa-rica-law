@@ -1,0 +1,1 @@
+Artículo 4. Seis meses antes del vencimiento del plazo previsto en el Artículo 3, las Partes se reunirán a fin de evaluar el funcionamiento del mecanismo de distribución y modificarlo por una distribución por país o cualquier otro mecanismo que se acuerde. En tanto no se llegue a un acuerdo, se mantendrá el mecanismo de "primero en tiempo, primero en derecho".

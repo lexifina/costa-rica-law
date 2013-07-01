@@ -1,0 +1,1 @@
+Artículo 7. Para efectos de lo dispuesto en el párrafo 5 del Anexo 3.16, México aplicará el incremento del cupo global en el mismo año en que los Estados Unidos de América lo apliquen de conformidad con el Apéndice 4.1-B del Tratado de Libre Comercio República Dominicana - Centroamérica - Estados Unidos.

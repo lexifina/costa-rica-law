@@ -1,0 +1,1 @@
+Artículo 12. El certificado de origen - cupo tendrá una validez de 90 días contados a partir de la fecha de su firma, y amparará una sola importación de una o más mercancías. La autoridad competente de México aceptará dicho certificado siempre que cumpla con lo establecido en el Anexo 3.16 y en el presente Reglamento.

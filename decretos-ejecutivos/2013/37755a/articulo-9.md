@@ -1,0 +1,1 @@
+Artículo 9. Cuando las Partes acuerden un mecanismo de distribución del cupo global por país de conformidad con el Artículo 4, éstas establecerán un mecanismo de reasignación de montos no utilizados para el mismo período.

@@ -1,0 +1,1 @@
+Artículo 16. Las Partes, a través de sus autoridades competentes, intercambiarán reportes mensuales sobre la utilización del cupo global y sus sub-límites. y cuando corresponda la distribución por país, se hará de igual forma sobre los montos asignados y utilizados por país.
