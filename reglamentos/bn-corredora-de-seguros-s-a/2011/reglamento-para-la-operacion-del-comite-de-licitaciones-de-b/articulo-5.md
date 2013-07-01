@@ -4,3 +4,4 @@ b. Velar porque el Órgano cumpla con las leyes, decretos, reglamentos, acuerdos
 c. Aprobar el orden del día preparado por el Secretario.
 d. Velar por la ejecución de los acuerdos tomados por el Órgano.
 e. Las demás que la ley y los reglamentos de la materia o la Junta Directiva le atribuyan.
+f. El presidente deberá preparar y presentar cuatrimestralmente a la Gerencia General y Junta Directiva de BN Sociedad Corredora un informe de lo actuado y resuelto por el comité.
