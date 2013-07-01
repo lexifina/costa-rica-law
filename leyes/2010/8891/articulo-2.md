@@ -1,1 +1,0 @@
-Artículo 2.- A la entrada en vigor de este Protocolo, las reglas específicas de origen establecidas en el anexo al presente Protocolo constituirán parte integral del Tratado de Libre Comercio, de conformidad con lo dispuesto en el artículo 19-02 del mismo.
