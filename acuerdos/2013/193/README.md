@@ -14,3 +14,4 @@ Establece periodo de veda para el Golfo de Nicoya
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-01 | la propia norma |
+| 2 | 2013-07-01 | Acuerdo 208 (2013-06-07) |
