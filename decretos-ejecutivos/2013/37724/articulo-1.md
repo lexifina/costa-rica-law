@@ -1,0 +1,11 @@
+N° 37724-JP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículo 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones N° 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y que por ello contribuyan a solventar una necesidad social.
+II.—Que la ASOCIACIÓN CONSERVACIONISTA ISAÍAS RETANA ARIAS, cédula de persona jurídica 3-002-200287, se inscribió en el Registro de Asociaciones del Registro Público desde el día trece de octubre del dos mil cuatro, bajo el expediente 8408, tomo 429, asiento 3415. Asimismo, dicha entidad fue declarada de Utilidad Pública mediante el Decreto Ejecutivo número 36146-J del siete de julio del dos mil diez.
+III.—Que la ASOCIACIÓN CONSERVACIONISTA ISAÍAS RETANA ARIAS, solicitó dejar sin efecto el beneficio de Utilidad Pública, decisión que fue tomada en Acta de reunión de Junta Directiva celebrada el veinte de febrero de dos mil doce. Siendo que dicha entidad mantiene tanto dentro de sus estatutos como en su operatividad, los fines y objetivos en favor del ambiente y la sociedad que sirvieron de base para ser declarada de Utilidad Pública, al solventar los mismos una necesidad social.
+IV.—Que pese a la continuidad del funcionamiento de dicha Asociación, mediante Acuerdo de Junta Directiva se acordó expresamente la renuncia a la declaratoria de utilidad pública otorgada por el Ministerio de Justicia y Paz, por lo que se procedente dejar sin efecto el acto administrativo en el cual se otorgó la declaratoria Utilidad Pública a la Asociación solicitante, así como los efectos derivados de dicho acto, de conformidad con el artículo 154 de la Ley General de la Administración Pública
+Decretan:
+Artículo 1º—Dejar sin efecto el Decreto Ejecutivo N° 36146-J del siete de julio del dos mil diez, mediante el cual se declaró de Utilidad Pública para los intereses del Estado a la ASOCIACIÓN CONSERVACIONISTA ISAÍAS RETANA ARIAS, cédula de persona jurídica 3-002-200287.
