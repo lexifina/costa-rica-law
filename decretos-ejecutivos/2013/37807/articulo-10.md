@@ -1,0 +1,2 @@
+Artículo 10.—Este incremento general de salarios de 3.24%,(tres punto veinticuatro por ciento), rige a partir del 1º de julio del 2013 y corresponde al segundo semestre del mismo año, el cual se pagará en la segunda quincena del mes de agosto del año en curso, excepto para el sector educación que será pagado en la segunda quincena del mes de setiembre de 2013.
+Dado en San José, a los dieciséis días del mes de julio del dos mil trece.
