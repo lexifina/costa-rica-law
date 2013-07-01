@@ -1,0 +1,36 @@
+Capítulo 18
+Excepciones
+Artículo 18.1: Definiciones
+Para los efectos de este Capítulo:
+convenio tributario significa un convenio para evitar la doble tributación u otro convenio o arreglo internacional tributario; e
+impuestos y medidas tributarias no incluyen:
+(a) aranceles aduaneros según se definen en el Artículo 1.4 (Definiciones de Aplicación General);
+o
+(b) las medidas listadas en las excepciones (b) y (c) a la definición de aranceles aduaneros en el Artículo 1.4 (Definiciones de Aplicación General).
+Artículo 18.2: Excepciones Generales
+1. Para los efectos del Capítulo 2 (Comercio de Mercancías), Capítulo 3 (Reglas de Origen), Capítulo 4 (Aduanas), Capítulo 5 (Medidas Sanitarias y Fitosanitarias), y el Capítulo 6 (Obstáculos Técnicos al Comercio), el Artículo XX del GATT de 1994 y sus notas interpretativas se incorporan a este Tratado y forman parte integrante del mismo, mutatis mutandis. Las Partes entienden que las medidas a que hace referencia el Artículo XX (b) del GATT de 1994 incluyen las medidas en materia ambiental necesarias para proteger la vida o la salud humana, animal o vegetal, y que el Artículo XX (g) del GATT de 1994 se aplica a las medidas relativas a la conservación de los recursos naturales vivos o no vivos agotables.
+2. Para los efectos del Capítulo 10 (Comercio de Servicios), Capítulo 11 (Inversión) y Capítulo 12 (Comercio Electrónico), el Artículo XIV del AGCS (incluyendo sus notas al pie de página) se incorpora a este Tratado y forma parte integrante del mismo, mutatis mutandis. Las Partes entienden que las medidas a que se refiere el Artículo XIV (b) del AGCS incluyen medidas en materia ambiental necesarias para proteger la vida o la salud humana, animal o vegetal.
+Artículo 18.3: Seguridad Esencial
+Ninguna disposición de este Tratado se interpretará:
+(a) para obligar a una Parte a proporcionar o a dar acceso a cualquier información cuya divulgación determine es contraria a sus intereses esenciales en materia de seguridad; o
+(b) para impedir que una Parte aplique medidas que considere necesarias para cumplir con sus obligaciones respecto al mantenimiento o la restauración de la paz y la seguridad internacional, o para proteger sus intereses esenciales en materia de seguridad34
+34 Para mayor certeza, nada en este Tratado prevendrá que una Parte tome cualquier acción que considere necesaria para la protección de infraestructura pública crítica, incluyendo pero no limitado a infraestructura de comunicaciones, energía y agua, de intentos deliberados dirigidos a inutilizar o degradar dicha infraestructura.
+Artículo 18.4: Tributación
+1. Salvo lo establecido en este Artículo, ninguna disposición de este Tratado se aplicará a medidas tributarias.
+2. Nada en este Tratado afectará los derechos y las obligaciones de cualquiera de las Partes bajo cualquier convenio tributario. En caso de cualquier inconsistencia entre este Tratado y cualesquiera de dichos convenios, tal convenio prevalecerá en la medida de la inconsistencia. En el caso de un convenio tributario entre las Partes, las autoridades competentes bajo ese convenio tendrán la responsabilidad exclusiva para determinar si existe alguna inconsistencia entre este Tratado y ese convenio.
+3.No obstante lo dispuesto en el párrafo 2:
+(a) el Artículo 2.3 (Trato Nacional) y aquellas otras disposiciones en este Tratado necesarias para hacer efectivo dicho Artículo, se aplicarán a las medidas tributarias en el mismo grado que el Artículo III del GATT de 1994; y
+(b) el Artículo 2.6 (Impuestos a la Exportación) se aplicará a las medidas tributarias.
+4.Los Artículos 11.10 (Expropiación y Nacionalización) y 11.16 (Solución de Controversias Inversionista-Estado) se aplicarán a medidas tributarias en la medida que tal medida tributaria constituya expropiación según ahí se establezca35. Un inversionista que busque invocar el Artículo 11.10 (Expropiación y Nacionalización) con respecto a una medida tributaria deberá primero referirse a las autoridades competentes descritas en el párrafo 5, al momento en que notifique por escrito bajo el Artículo 11.16 (Solución de Controversias Inversionista-Estado), si la medida tributaria involucra una expropiación. Si las autoridades competentes no acuerdan considerar el asunto o, habiendo acordado considerarlo, no acuerdan que la medida no es una expropiación dentro de un período de 6 meses de tal remisión, el inversionista podrá someter su controversia a arbitraje bajo el Artículo 11.16 (Solución de Controversias Inversionista-Estado). No obstante, ningún inversionista podrá invocar el Artículo 11.10 (Expropiación y Nacionalización) como la base de una controversia cuando ha sido determinado, de conformidad con este párrafo, que la medida no es una expropiación.
+35 Con referencia al Artículo 11.10 (Expropiación y Nacionalización), al evaluar si una medida tributaria constituye expropiación, las siguientes consideraciones son relevantes: (a) la imposición de impuestos no constituye generalmente expropiación. La mera introducción de nuevas medidas tributarias o la imposición de impuestos en más de una jurisdicción con respecto a una inversión, no se constituye en, ni es en sí misma, expropiación; (b) medidas tributarias consistentes con políticas, principios y prácticas tributarias internacionalmente reconocidas no constituyen expropiación, y en particular, medidas tributarias dirigidas a prevenir que se eviten o evadan impuestos no deberían, generalmente, ser consideradas como expropiatorias; y (c) medidas tributarias aplicadas sobre una base no discriminatoria, en contraposición a ser dirigidas a inversionistas de una nacionalidad en particular o a contribuyentes individuales específicos, son menos probables de constituir expropiación. Una medida tributaria no debería constituir expropiación si, cuando la inversión es realizada, ya se encontraba vigente, y la información sobre la medida fue hecha pública o de otra manera se puso a disposición pública.
+5. Para los efectos de este Artículo:
+autoridades competentes significa:
+(a) con respecto a Costa Rica, el Ministerio de Hacienda;
+(b) con respecto a Singapur, el Ministry of Finance;
+o sus sucesores.
+Artículo 18.5: Restricciones para Salvaguardar la Balanza de Pagos
+1. Con respecto a asuntos cubiertos por este Tratado, las Partes podrán adoptar o mantener restricciones para proteger la balanza de pagos de manera consistente con las condiciones establecidas por el Acuerdo sobre la OMC y con el Convenio Constitutivo del Fondo Monetario Internacional.
+2. Para los efectos de este Artículo, cualquier notificación o consulta con respecto a cualquier restricción para salvaguardar la balanza de pagos, deberá ser realizada entre las Partes de conformidad con los acuerdos aplicables a los que hace referencia el párrafo 1.
+3. Para mayor certeza, se aclara que dichas restricciones deberán ser aplicadas sobre una base no discriminatoria.
+Artículo 18.6: Divulgación de Información
+Nada en este Tratado será interpretado para obligar a una Parte a proporcionar o a permitir acceso a información confidencial, cuya divulgación pudiera impedir el cumplimiento de las leyes, o de otra manera sea contraria al interés público, o que pudiera perjudicar los intereses comerciales legítimos de empresas particulares, sean públicas o privadas.

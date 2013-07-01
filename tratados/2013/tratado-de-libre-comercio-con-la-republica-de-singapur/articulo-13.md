@@ -1,0 +1,30 @@
+Capítulo 13
+Propiedad Intelectual e Innovación
+Artículo 13.1: Principios
+1.Las Partes reconocen la importancia de los derechos de propiedad intelectual en la promoción del desarrollo económico y social, particularmente en la globalización de la innovación tecnológica y el comercio, la ciencia, así como la transferencia y difusión del conocimiento y la tecnología en beneficio recíproco de los productores y de los usuarios de la tecnología, y acuerdan impulsar el desarrollo del bienestar social económico y del comercio a través de estos medios.
+2.Las Partes reconocen la necesidad de lograr un equilibrio entre los derechos de los titulares y los intereses legítimos de los usuarios y la comunidad con respecto a la materia protegida.
+Artículo 13.2: Disposiciones Generales
+1.Cada Parte reafirma sus compromisos establecidos en los tratados internacionales existentes en el campo de los derechos de propiedad intelectual, de los que ambos son partes, particularmente el Acuerdo ADPIC.
+2.Cada Parte establecerá y mantendrá regímenes y sistemas de derechos de propiedad intelectual transparentes que busquen:
+(a) dar certeza sobre la protección y la observancia de los derechos de propiedad intelectual; y
+(b) facilitar el comercio internacional a través de la diseminación de ideas, tecnología, ciencia y obras creativas.
+3. Ninguna disposición de este Capítulo impedirá que una Parte adopte medidas apropiadas para prevenir el abuso de los derechos de propiedad intelectual por sus titulares o prácticas que limiten de manera injustificable el comercio o la transferencia internacional de tecnología, o prácticas que tengan en determinados casos un efecto negativo sobre la competencia en el mercado correspondiente, siempre que esas medidas sean acordes a las obligaciones internacionales y la legislación nacional de cada una de las Partes.
+Artículo 13.3: Recursos Genéticos, Conocimiento Tradicional y Folclore
+1. Las Partes reconocen la contribución hecha por los recursos genéticos, conocimientos tradicionales y folclore para el desarrollo científico, cultural y económico.
+2. Las Partes reconocen y reafirman los principios y disposiciones establecidas en el Convenio de Diversidad Biológica adoptado el 5 de junio de 1992 e impulsan una relación de apoyo mutuo entre el Acuerdo ADPIC y el Convenio de Diversidad Biológica.
+3.Sujeto a las obligaciones internacionales y su legislación nacional, cada Parte podrá adoptar o mantener medidas para promover la conservación de la diversidad biológica, la utilización sostenible de sus componentes, y la participación justa y equitativa de los beneficios que se deriven de la utilización de los recursos genéticos, conocimiento tradicional y folclore de conformidad con lo establecido en dicho Convenio.
+Artículo 13.4: Patentes y Salud Pública
+1.Las Partes reconocen los principios establecidos en la Declaración de Doha relativa al Acuerdo sobre los ADPIC y la Salud Pública, adoptada el 14 de noviembre de 2001 por la Conferencia Ministerial de la OMC (como se encuentra en el documento WT/MIN(01)/DEC/2 fechado 20 de Noviembre de 2001). En la interpretación e implementación de las disposiciones de este Capítulo, las Partes garantizarán la consistencia con esta Declaración.
+2. Las Partes respetarán la Decisión del Consejo General de la OMC de 30 de agosto de 2003, sobre la Implementación del Párrafo 6 de la Declaración de Doha sobre el Acuerdo ADPIC y la Salud Pública, así como el Protocolo por el que se enmienda el Acuerdo sobre los ADPIC, realizado en Ginebra el 6 de Diciembre de 2005
+Artículo 13.5: Indicaciones Geográficas
+1. Las Partes reconocen la importancia de las indicaciones geográficas y reafirman las obligaciones en el Acuerdo ADPIC en relación con los Artículos 22, 23 y 24 sobre indicaciones geográficas, y proveerán protección a las indicaciones geográficas en sus legislaciones nacionales consistentes con el Acuerdo ADPIC.
+2.Las Partes acuerdan lanzar futuras negociaciones a través de la Comisión para la inclusión de una lista de términos que sean reconocidos como indicaciones geográficas para productos agrícolas en la Parte respectiva, en el sentido del Artículo 22.1 del Acuerdo ADPIC. Los términos particulares que serán incluidos y el número de dichos términos serán discutidos y acordados por la Comisión. Sujeto a lo dispuesto en la legislación nacional de la respectiva Parte, de manera que sea consistente con el Acuerdo ADPIC, dichos términos, de ser incluidos, serán protegidos como indicaciones geográficas en el territorio de la otra Parte31
+31Para mayor certeza, las Partes reconocen que las indicaciones geográficas contenidas en cualquiera de estas listas serán reconocidas y protegidas en cada Parte solamente hasta el grado permitido y de acuerdo a los términos y condiciones establecidas en su legislación nacional.
+Artículo 13.6: Cooperación
+1. En relación con propiedad intelectual, las Partes acuerdan que pueden cooperar en las siguientes áreas:
+(a) administración, licenciamiento, registro, y explotación de la propiedad intelectual, a través del intercambio de información y compartiendo experiencias;
+(b) tecnología e inteligencia de mercados a través del intercambio de experiencia e información, de acuerdo a lo mutuamente acordado por las Partes;
+(c) intercambio de información sobre la implementación de sistemas de propiedad intelectual, con el objetivo de promover el registro eficiente de los derechos de propiedad intelectual;
+(d) diálogo sobre políticas de iniciativas de propiedad intelectual en foros multilaterales y regionales; e
+(e) intercambio de información y cooperación en iniciativas apropiadas para promover conciencia sobre los beneficios de los derechos de propiedad intelectual y sus sistemas.
+2.Toda la cooperación bajo este Artículo deberá ser llevada a cabo bajo los términos mutuamente aceptables por las oficinas de propiedad intelectual y las autoridades relevantes de cada Parte. Asimismo, la cooperación estará sujeta a la disponibilidad de recursos de cada una de las Partes.
