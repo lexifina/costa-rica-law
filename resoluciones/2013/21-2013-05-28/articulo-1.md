@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+Nº DGT-R-21-2013.—San José, a las nueve horas con treinta minutos del veintiocho de mayo de dos mil trece.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales para la correcta aplicación de las leyes tributarias dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+II.—Que mediante Ley Nº 9028 -Ley General de Control del Tabaco y sus Efectos Nocivos en la Salud-, publicada en el Alcance Digital Nº 37, de fecha 26 de marzo de 2012, se estableció en su artículo 31, la definición de un nivel de tributación mínimo.
+III.—Que el nivel de tributación mínimo garantiza que en ningún caso, la suma a pagar por concepto de impuesto selectivo de consumo, más el impuesto del Instituto de Desarrollo Rural (Inder), más el impuesto general sobre las ventas, podrá ser inferior al ochenta y cinco por ciento (85%) del total de estos mismos tributos pagados por la categoría más vendida de cigarrillos (CMV), entendida esta como aquel precio de venta de los cigarrillos al consumidor final en que se encuentren mayores niveles de venta.
+IV.—Que el mismo artículo 31 de la citada Ley N° 9028 define que el nivel de tributación mínimo será para cajetillas de veinte cigarrillos o en proporción a la cantidad de cigarrillos que contenga cada cajetilla y deberá ser establecido e informado anualmente por la Dirección General de Tributación.
+V.—Que mediante resolución DGT-R-009-2012 de las diez horas cincuenta minutos del 22 de mayo de 2012, vigente desde el 1 de julio del mismo año se estableció por primera vez el nivel mínimo de tributación, razón por la cual ese valor debe ser objeto de una actualización que entre en vigencia a partir del 1º de julio de 2013.
+VII.—Que la resolución DGT-R-009-2012 fue derogada por la resolución DGT-019-2012 de las once horas del 13 de setiembre de dos mil doce, en virtud de que mediante esta última se ajustó la alícuota asignada al Instituto de Desarrollo Agrario y se dispuso la trasformación de este en el Instituto de Desarrollo Rural según lo definido en la Ley 9036 vigente a partir del 30 de noviembre de 2012, con lo cual el nivel de tributación mínimo se modificó de 311.48 colones a 311.8153 colones.
+VIII.—Que la Administración Tributaria debe facilitar a los contribuyentes el cumplimiento material y formal de todos los tributos. Por tanto,
+RESUELVE:
+Artículo 1º—Se deroga la resolución DGT-R-19-2012 del 13 setiembre de dos mil doce.
