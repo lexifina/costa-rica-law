@@ -1,0 +1,10 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+R-DC-071-2013.—Contraloría General de La República.— Despacho Contralor General.—San José a las quince horas del cinco de junio de dos mil trece.
+Considerando:
+1º—Que mediante resolución R-DC-029-2013 de las diez horas del veintiséis de febrero de dos mil trece, publicada en el Diario Oficial La Gaceta Nº 42, Alcance Digital Nº 40 del veintiocho de febrero de dos mil trece, se establecieron los montos presupuestarios promedios en millones de colones del período 2011-2013, para la adquisición de bienes y servicios no personales de las entidades y órganos de la Administración Pública, para efectos de la aplicación de los límites económicos actualizados que se establecen en los artículos 27 y 84 de la Ley de Contratación Administrativa y sus reformas.
+2º—Que mediante oficio Nº 05057 (DCA-1171) del 27 de mayo de 2013, se atendió consulta realizada por el Instituto Costarricense de Acueductos y Alcantarillados, en relación con el cálculo del presupuesto promedio 2011-2013 asignado a ese Instituto, oficio en el cual a su vez se modificó dicho presupuesto promedio para la adquisición de bienes y servicios no personales.
+3º—Que en el último párrafo del citado oficio Nº 05057-2013, se indicó que la modificación del monto presupuestario promedio del Instituto Costarricense de Acueductos y Alcantarillados, regirá a partir del momento en que esta Contraloría General publique en el Diario Oficial La Gaceta la referida modificación a la resolución R-DC-029-2013. Por tanto;
+SE RESUELVE:
+I.—Modificar el monto presupuestario promedio, en millones de colones, del periodo 2011-2013, para la adquisición de bienes y servicios no personales, del Instituto Costarricense de Acueductos y Alcantarillados que aparece en el “Por tanto” VIII de la resolución R-DC-029-2013, de las diez horas del veintiséis de febrero de dos mil trece, para que se lea de la siguiente manera:
+Órgano o entidad | Promedio 2011-2013 -en millones- | Estrato
+Instituto Costarricense de Acueductos y Alcantarillados | 83.018,9 | A
