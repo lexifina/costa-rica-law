@@ -1,2 +1,4 @@
-Artículo 3°—Vehículos de uso discrecional. Los vehículos de uso discrecional son aquellos asignados al Ministro y Viceministros. Estos, no cuentan con restricción alguna en cuanto a combustible, horario de circulación, ni recorrido, características que asumirá bajo su estricto criterio atendiendo el fin público, el funcionario responsable del vehículo.
-Estos vehículos pueden portar placas particulares y no tendrán marcas visibles que los distingan como oficiales.
+Artículo 3°—Vehículos de uso discrecional y semidiscrecional. El vehículo de uso discrecional es aquel asignado al Ministro. Este, no cuenta con restricciones en cuanto a combustible, horario de operación ni recorrido, características que asumirá, bajo su estricto criterio, el funcionario responsable de la unidad.
+Este vehículo puede portar placas particulares y no tendrá marcas visibles que lo distingan como vehículo oficial.
+El vehículo de uso semidiscrecional será asignado a los Viceministros. Este estará sujeto a horario, uso de combustible y recorrido, en virtud de las funciones que el cargo de Viceministro exige, así como su obligación de estar disponible al llamado del Jerarca. Podrá portar placas particulares y no tendrá marcas visibles que lo distinga como vehículo oficial.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37805 del 1 de julio de 2013)
