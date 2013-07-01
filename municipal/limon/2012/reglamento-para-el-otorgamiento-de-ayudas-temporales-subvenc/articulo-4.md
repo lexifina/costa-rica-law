@@ -1,2 +1,3 @@
-Artículo 4º—Monto de la Ayuda
-El monto de la ayuda individual no será mayor de ¢200.000,00 (doscientos mil) o su equivalente en artículos o materiales para cada solicitud.
+Artículo 4: Monto de la Ayuda:
+El monto de la ayuda por solicitante o núcleo familiar no será mayor a seiscientos mil colones exactos (¢600.000,00) o su equivalente en artículos o materiales para cada solicitante.
+(Así reformado mediante sesión N° 163 del 1 de julio de 2013)
