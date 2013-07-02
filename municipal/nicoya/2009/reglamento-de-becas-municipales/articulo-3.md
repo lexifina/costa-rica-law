@@ -1,1 +1,0 @@
-Artículo 3º—Los estudiantes que soliciten Becas Municipales deben ser vecinos del cantón. Lo que se comprobará mediante una constancia expendida por la Comandancia, o por la Delegación de la Guardia Civil o Rural de cada uno de los distritos que conforman el cantón u otro requisito que solicite previamente la Comisión de Educación.
