@@ -1,0 +1,1 @@
+Artículo 17.—Son incompatibles con el horario de presencia física, otros empleos o actividades simultáneos, a menos que se ejecuten en otra área del edificio que alberga el establecimiento clínico, en cuyo caso debe aclararse en la solicitud.

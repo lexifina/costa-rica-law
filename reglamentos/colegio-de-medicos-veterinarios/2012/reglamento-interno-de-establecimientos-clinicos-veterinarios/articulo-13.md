@@ -1,0 +1,1 @@
+Artículo 13.—La separación del Regente deberá notificarse a la Fiscalía del COLEGIO con al menos 30 días naturales previos al hecho. El establecimiento clínico deberá nombrar al profesional reemplazante y presentar la solicitud de autorización e inscripción del nuevo regente de conformidad con lo que establece el Reglamento Interno de Regencias.

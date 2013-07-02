@@ -1,0 +1,1 @@
+Artículo 15.—El Regente deberá ajustar sus actuaciones al Reglamento Interno de Regencias del COLEGIO. Deberá llevar la Bitácora, custodiarla y mantenerla al alcance de la Fiscalía del COLEGIO y autoridades competentes durante sus auditorías.

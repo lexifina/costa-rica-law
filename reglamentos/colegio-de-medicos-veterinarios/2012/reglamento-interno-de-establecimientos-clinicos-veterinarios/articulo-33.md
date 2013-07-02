@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 33.—La realización de actos médico veterinarios en lugares que no son los establecimientos clínicos descritos en el artículo 102 del Decreto 19184-MAG, Reglamento de la Ley Orgánica del Colegio de Médicos Veterinarios; se llevará a cabo bajo la responsabilidad del profesional tratante, quien deberá procurar que tales sitios se acojan a los postulados del presente reglamento, de manera tal que el acto médico a ejecutar se realice en lugares que tengan las características contempladas en este reglamento para el establecimiento correspondiente al tipo de intervención a realizar.

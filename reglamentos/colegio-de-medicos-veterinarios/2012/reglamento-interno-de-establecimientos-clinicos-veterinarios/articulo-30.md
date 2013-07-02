@@ -1,0 +1,1 @@
+Artículo 30.—La eliminación de materiales, subproductos y desechos deberá ser de manera tal, que no represente ningún peligro de contaminación para las personal y el medio ambiente, en cumplimiento con la legislación aplicable.

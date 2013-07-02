@@ -1,0 +1,1 @@
+Artículo 7º—De conformidad con el Reglamento Interno de Regencias, el registro y autorización del establecimiento y de la regencia deberán mantenerse vigentes y renovarse anualmente en el Colegio a partir del 1 de abril, sin perjuicio de mantener y renovar los demás permisos que la legislación indique para este tipo de establecimientos.

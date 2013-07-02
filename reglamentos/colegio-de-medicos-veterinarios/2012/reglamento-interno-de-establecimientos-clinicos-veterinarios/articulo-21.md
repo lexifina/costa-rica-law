@@ -1,0 +1,1 @@
+Artículo 21.—La separación voluntaria o involuntaria del cargo de Regente, debe ser comunicada por el colegiado con al menos treinta días naturales de anticipación, a la Fiscalía del COLEGIO. La Bitácora deberá ser presentada a la Fiscalía para su cierre.

@@ -1,0 +1,1 @@
+Artículo 4º—Los Establecimientos clínicos podrán efectuar publicidad y promoción de sus servicios, ajustándolos a emblemas y leyendas que señalen en forma concisa la naturaleza de los servicios que ofrecen; en concordancia con el Título IV del Código de Ética.

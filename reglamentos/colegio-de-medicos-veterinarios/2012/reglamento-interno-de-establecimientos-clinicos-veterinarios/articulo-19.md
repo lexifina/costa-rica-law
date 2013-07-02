@@ -1,0 +1,1 @@
+Artículo 19.—Las ausencias del regente, determinadas por la fiscalía, durante el horario de presencia física de éste consignado en la autorización de regencia, deben estar justificadas en la Bitácora. En caso de ausencias prolongadas, la presencia de un sustituto del regente debe ajustarse a las regulaciones existentes para estos casos en el Reglamento Interno de Regencias.
