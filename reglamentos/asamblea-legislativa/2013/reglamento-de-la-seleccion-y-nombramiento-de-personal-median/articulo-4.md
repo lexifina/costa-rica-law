@@ -1,0 +1,1 @@
+Artículo 4º—De los nombramientos en propiedad. Cuando haya que ocupar un puesto vacante en propiedad, el Directorio Legislativo ordenará al Departamento de Recursos Humanos, el inicio de un concurso interno para ese fin.
