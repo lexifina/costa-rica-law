@@ -14,3 +14,4 @@ Formularios y Requisitos para los siguientes trámites: Permisos Urbanos MSJ-F-S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-09 | la propia norma |
+| 2 | 2013-07-02 | Acuerdo municipal 0 (2013-07-02) |
