@@ -1,1 +1,0 @@
-Artículo 5°-Excepciones: Se exceptúan del control mencionado en el artículo anterior, los vehículos destinados al uso discrecional, siendo responsable de su debido uso, la persona que lo utilice quien responderá ante el Consejo Directivo.

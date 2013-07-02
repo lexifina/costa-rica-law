@@ -1,1 +1,0 @@
-Artículo 10.-Utilización de vehículos de uso administrativo en días no hábiles: Para hacer uso de los vehículos propiedad de CONAPE, en días no hábiles tales como sábados, domingos, feriados y de asueto, será necesario contar con la autorización previa de la Secretaría Ejecutiva, de acuerdo con lo que dispone el artículo 232 de la Ley de Tránsito por Vías Públicas Terrestres.

@@ -1,1 +1,0 @@
-Artículo 17.-Cesión del manejo del vehículo: Es absolutamente prohibido a todos los conductores, permitir la conducción del vehículo a otras personas, salvo por las razones muy calificadas, en cuyo caso, al finalizar la gira, deberá informar los motivos que originaron tal acto.

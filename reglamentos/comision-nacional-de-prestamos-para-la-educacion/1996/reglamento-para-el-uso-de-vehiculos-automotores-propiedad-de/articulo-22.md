@@ -1,1 +1,0 @@
-Artículo 22.-Prohibición de estacionamiento: Los vehículos de la Institución no deberán ser estacionados por sus conductores frente a cantinas, tabernas y similares, ni frente a locales cuya actividad no esté acorde con la moral y las buenas costumbres.

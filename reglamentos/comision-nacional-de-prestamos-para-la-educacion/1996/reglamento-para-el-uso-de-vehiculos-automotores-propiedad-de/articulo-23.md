@@ -1,1 +1,0 @@
-Artículo 23.-Bajo ninguna circunstancia se podrá conducir vehículos de CONAPE, bajo los efectos del licor, drogas o sustancias enervantes. El desacato a esta disposición, se considera falta grave y será causal de despido sin responsabilidad patronal, sin perjuicio de la responsabilidad en que incurra el funcionario en caso de accidente, por todos los daños causados.

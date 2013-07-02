@@ -1,1 +1,0 @@
-Artículo 19.-Responsabilidad por accidente: En caso de accidente de un vehículo de la Institución, el conductor no podrá transar arreglos extrajudiciales, sino que deberá seguir los procedimientos ordinarios de la Institución aseguradora, los cuales se anexan y los administrativos que se establecen en el presente reglamento.

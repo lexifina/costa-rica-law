@@ -1,1 +1,0 @@
-Artículo 28.-Las disposiciones del presente Reglamento son aplicables a todos los funcionarios de CONAPE y para todo lo no dispuesto en este Reglamento, se aplicará lo contenido en el Título VII de la Ley de Tránsito. Tratándose de los vehículos de uso discrecional, este Reglamento se aplicará en todo aquello que no sea contrario al principio que rige, en cuanto a dicho uso.
