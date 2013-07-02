@@ -1,3 +1,0 @@
-Artículo 11.—Financiamiento de los CECUDI: Los CECUDI podrán ser construidos con recursos del Instituto Mixto de Ayuda Social, previo convenio interinstitucional. Ese convenio podrá ser marco o específico para cada CECUDI que se establezca en el cantón.
-Sin perjuicio de ello, tanto para la construcción como para la operación de los CECUDI, la Municipalidad promoverá la participación efectiva entre las diferentes instituciones para maximizar los recursos estatales y garantizar el uso eficiente y eficaz de los mismos, como estrategia de combate a la pobreza.
-Asimismo, y como estrategia de sostenibilidad del proyecto, el IMAS brindará apoyo financiero a las familias para que la población beneficiada pueda asistir al Centro.

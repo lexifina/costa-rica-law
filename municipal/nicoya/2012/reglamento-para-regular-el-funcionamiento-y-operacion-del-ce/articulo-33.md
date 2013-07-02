@@ -1,1 +1,0 @@
-Artículo 33.—El precio determinado por el Concejo Municipal entrará en vigencia un mes después de su publicación en el Diario Oficial La Gaceta de acuerdo a lo dispuesto por el numeral 74 del Código Municipal.
