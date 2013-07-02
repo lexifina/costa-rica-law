@@ -1,2 +1,0 @@
-Artículo 5º— Serán sancionados, según sea el caso, de acuerdo con los artículos Nos. 57, 59, 60, 61 y el 63 de la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor y sus reformas; los artículos 375 y 378 de Ley General de Salud; el Código Penal vigente.
-Se faculta al Ministerio de Salud y al Ministerio de Economía, Industria y Comercio, así como a las otras instituciones del Estado, a través de sus instancias técnicas competentes, para que ejecuten las acciones necesarias que garanticen el cumplimiento de lo dispuesto en este Reglamento.
