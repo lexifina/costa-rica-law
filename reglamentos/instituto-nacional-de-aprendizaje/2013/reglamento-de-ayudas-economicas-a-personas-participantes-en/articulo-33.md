@@ -1,0 +1,5 @@
+Artículo 33.—Plazos para el trámite de solicitud de ayuda económica. La persona participante que reciba el formulario de solicitud de ayuda económica dispone de un plazo de 10 días hábiles para hacer entrega del mismo con la respectiva documentación. El plazo rige a partir del día hábil siguiente de su entrega.
+En casos debidamente justificados y donde se compruebe la dificultad de la obtención de un documento, la persona profesional en Trabajo Social podrá extender el plazo de recepción a un máximo de 15 días hábiles.
+El plazo máximo de resolución de una solicitud de la ayuda económica es de 30 días hábiles a partir de la fecha de recepción de la misma.
+En el caso que la persona solicitante no presente o complete los requisitos en el plazo establecido podrá realizar nuevo trámite de solicitud a los seis meses siguientes.
+Las solicitudes que no cumplan los requisitos establecidos en el artículo 32 del presente Reglamento no se tramitarán, salvo la excepción mencionada en este artículo.

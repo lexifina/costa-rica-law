@@ -1,0 +1,1 @@
+Artículo 56.—Vigencia. Este Reglamento rige a partir del día hábil siguiente a su publicación en el Diario Oficial La Gaceta, aprobado en sesión Nº 4582 de Junta Directiva del 10 de junio del 2013, acuerdo AC-109-2013-JD.
