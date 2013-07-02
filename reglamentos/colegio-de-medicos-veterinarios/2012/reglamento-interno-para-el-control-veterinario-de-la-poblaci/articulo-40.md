@@ -1,0 +1,1 @@
+Artículo 40.—En caso de una defunción ocurrida durante una jornada no realizada en un establecimiento clínico veterinario, el Médico Veterinario responsable deberá asegurarse de que se disponga del cuerpo adecuadamente, por parte del propietario, ONG u organizador de la jornada dando las indicaciones pertinentes a fin de proteger la salud pública.

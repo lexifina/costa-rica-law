@@ -1,0 +1,1 @@
+Artículo 38.—El Médico Veterinario responsable de la jornada de castración deberá asegurarse de que se cuente con materiales (cobijas, paños, espumas, colchones, jaulas, etc.) para que la recuperación del paciente sea la adecuada y segura.

@@ -1,0 +1,1 @@
+Artículo 23.—Es deber y responsabilidad exclusiva del Médico Veterinario responsable, hacer un correcto examen clínico de los animales previo a la intervención quirúrgica para determinar el estado de salud del mismo y su idoneidad para el procedimiento quirúrgico.

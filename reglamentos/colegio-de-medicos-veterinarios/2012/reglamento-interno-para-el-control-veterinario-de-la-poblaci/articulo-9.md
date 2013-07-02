@@ -1,0 +1,1 @@
+Artículo 9º—El Colegio, en concordancia con el artículo 58 del Código de Ética, podrá permitir que los Médicos Veterinarios que brinden sus servicios profesionales durante jornadas de castración, cobren un rubro menor a las tarifas mínimas establecidas para castraciones de perros y gatos.

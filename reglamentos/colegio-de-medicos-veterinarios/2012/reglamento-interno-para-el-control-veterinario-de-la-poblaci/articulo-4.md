@@ -1,0 +1,1 @@
+Artículo 4º—El Médico Veterinario responsable, deberá asegurarse de que el lugar destinado para su ejercicio profesional cumpla con los mínimos requerimientos técnicos necesarios para el correcto ejercicio profesional de la medicina veterinaria de conformidad con lo establecido en el Reglamento de Establecimientos Clínicos Veterinarios.

@@ -1,0 +1,1 @@
+Artículo 21.—El Médico Veterinario responsable de la jornada de castración será el encargado de documentar y comunicar a la Fiscalía del Colegio, SENASA u otra autoridad competente cualquier anormalidad o incumplimiento de las regulaciones vigentes en que pueda incurrir la entidad organizadora de la jornada.

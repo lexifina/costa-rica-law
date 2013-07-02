@@ -1,0 +1,1 @@
+Artículo 28.—Dicho recinto debe contar con un área para preparar y desinfectar la zona de intervención quirúrgica de los pacientes que deberá ser distinta al área donde se realice la intervención quirúrgica.

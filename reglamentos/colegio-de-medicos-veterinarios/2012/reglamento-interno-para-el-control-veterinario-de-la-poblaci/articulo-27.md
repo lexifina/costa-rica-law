@@ -1,0 +1,1 @@
+Artículo 27.—Cuando la jornada de castración se lleve a cabo en lugares que no corresponden a los indicados en el artículo anterior, los recintos provisionales serán preparados bajo la responsabilidad y supervisión del Médico Veterinario responsable.

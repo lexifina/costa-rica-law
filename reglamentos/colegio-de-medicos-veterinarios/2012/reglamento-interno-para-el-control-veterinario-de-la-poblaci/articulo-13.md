@@ -1,0 +1,1 @@
+Artículo 13.—Cuando los pacientes de jornadas de castración tengan complicaciones que ameriten la atención médica posterior a la cirugía y éstos sean referidos a otros Médicos Veterinarios no participantes de dicha jornada, los honorarios corresponderán a la práctica usual y no serán de carácter gratuito.

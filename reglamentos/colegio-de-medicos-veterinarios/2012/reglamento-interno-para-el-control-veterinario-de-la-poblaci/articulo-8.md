@@ -1,0 +1,1 @@
+Artículo 8º—El Médico Veterinario que preste sus servicios a las ONG respetará en todo momento las tarifas mínimas establecidas por el Colegio de Médicos Veterinarios de conformidad con el artículo 56 del Código de Ética del Colegio.

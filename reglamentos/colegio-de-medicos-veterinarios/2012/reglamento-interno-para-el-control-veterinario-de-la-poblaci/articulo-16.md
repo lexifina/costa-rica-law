@@ -1,0 +1,1 @@
+Artículo 16.—Es obligación del médico responsable de la jornada verificar que el equipo y materiales quirúrgicos a utilizar en las campañas sean los adecuados, tanto en cantidad como en calidad y vencimiento cuando corresponda, para asegurar así un procedimiento adecuado y ético. Al igual que su esterilización en tiempo, tipo y cantidad.

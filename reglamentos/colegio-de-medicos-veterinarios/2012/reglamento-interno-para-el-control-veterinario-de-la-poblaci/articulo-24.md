@@ -1,0 +1,1 @@
+Artículo 24.—Si el animal no cumple con los requisitos para ser intervenido quirúrgicamente, el Médico Veterinario de la agrupación deberá informar a su propietario las razones por las cuales no será intervenido y referir a dicho animal para que reciba la atención médica correspondiente.

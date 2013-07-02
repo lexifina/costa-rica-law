@@ -1,0 +1,1 @@
+Artículo 15.—El Médico Veterinario responsable de la jornada de castración de las agrupaciones de bien social será el encargado del buen manejo y adecuada disposición de los desechos anatomo-patológicos, material potencialmente infectante y punzo cortante que se generen.

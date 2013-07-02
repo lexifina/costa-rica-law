@@ -1,0 +1,1 @@
+Artículo 33.—Es deber del Médico Veterinario responsable de la jornada de castración, asegurarse que ninguna persona, que no sea miembro del Colegio intervenga quirúrgicamente a ningún paciente. El personal voluntario tendrá funciones de apoyo que se realizan bajo la supervisión, orientación y responsabilidad directa y personal del Médico Veterinario.

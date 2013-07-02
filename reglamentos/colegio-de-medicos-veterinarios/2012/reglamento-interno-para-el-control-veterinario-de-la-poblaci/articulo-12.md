@@ -1,0 +1,1 @@
+Artículo 12.—Le está prohibido al Médico Veterinario que preste sus servicios a ONG para jornadas de castración, promover para sí la publicación de atestados o cartas de agradecimiento tal como lo establece el código de ética del Colegio; de igual forma no hará para sí, propaganda alguna que lo beneficie lucrativamente.

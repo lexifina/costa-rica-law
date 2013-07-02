@@ -1,0 +1,1 @@
+Artículo 18.—El Médico Veterinario responsable de las jornadas de castración deberá llevar un registro detallado del origen de los medicamentos a ser utilizados en el evento, ya sea en la bitácora de un establecimiento que regente o en la bitácora de la farmacia expendedora o bien mediante las órdenes de compra de medicamentos restringidos.

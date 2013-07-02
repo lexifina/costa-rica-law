@@ -1,0 +1,1 @@
+Artículo 7º—El Médico Veterinario que preste sus servicios a las ONG no permitirá la competencia desleal, ni el ejercicio ilegal de la Profesión y promoverá en todo momento el decoro profesional de conformidad con lo que establece el Código de Ética del Colegio.
