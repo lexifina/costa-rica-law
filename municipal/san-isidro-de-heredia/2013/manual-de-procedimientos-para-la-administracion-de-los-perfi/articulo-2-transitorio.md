@@ -1,0 +1,1 @@
+II.—Las cuentas institucionales que funcionan con anterioridad a la publicación de los presentes criterios, podrán conservar este carácter si las áreas y los funcionarios responsables de las mismas se sujetan a ellos; en caso contrario, serán consideradas a título personal de los funcionarios que las administren.
