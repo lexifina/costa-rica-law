@@ -1,5 +1,3 @@
-TÍTULO VII
-De la información a proporcionar a la Superintendencia de Pensiones
-Artículo 67.—Información que debe remitirse a la Superintendencia de Pensiones. Las entidades reguladas* deberán proporcionar la información de sus inversiones con las características y los plazos que fije el Superintendente.
-*(Así reformado mediante sesión N°562 del 02 de marzo del 2006).
-(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°64 al N°67 actual).
+Artículo 67.—(Este artículo fue Derogado mediante sesión N° 743 del 12 de setiembre de 2008)
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°49 al N°51 actual).
+(Así corrida su numeración mediante sesión N° 1049 del 02 de julio de 2013, que lo traspasó del antiguo artículo 51 al 67)

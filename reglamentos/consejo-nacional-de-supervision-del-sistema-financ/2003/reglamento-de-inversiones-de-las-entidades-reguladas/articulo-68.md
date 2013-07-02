@@ -1,2 +1,15 @@
-Artículo 68.—Derogatoria. Se deroga el Capítulo VII. y el párrafo final del Artículo 17 del Reglamento sobre la apertura y funcionamiento de las entidades autorizadas y el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador y sus reformas, Publicado en el Diario Oficial "La Gaceta" N° 78, Alcance 30 del 24 de abril del 2001.
-(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°65 al N°68 actual).
+TÍTULO VII
+Disposiciones comunes de inversión nacional y extranjera
+(Así corrida la numeración del título anterior mediante sesión N° 1049 del 02 de julio de 2013, que lo traspasó del antiguo título VI al VII)
+CAPÍTULO I
+De los procedimientos de inversión
+Artículo 68.—Procedimientos de inversión. Las entidades reguladas deberán contar con una certificación de norma de producto del proceso de inversión, expedida por un organismo nacional o internacional de certificación de producto acreditado en la norma INTE-ISO 65 por el Ente Costarricense de Acreditación, según lo establecido en la Ley 8279. Dicha certificación incluirá las tareas a cargo del Comité de Inversión, del Comité de Riesgos, del área de inversiones, de la Unidad de Administración Integral de Riesgos, del área de registro y de la logística de inversiones. Las inversiones realizadas con recursos de los fondos administrados se efectuarán de conformidad con los siguientes lineamientos:
+a. Deberán registrarse a nombre de cada fondo. Se prohíbe la adquisición de valores físicos, en el caso de valores extranjeros.
+b. Las operaciones de pago o cobro de las transacciones de los instrumentos negociados por las entidades, con los recursos de los fondos administrados, se realizarán mediante la modalidad de entrega contra pago (“delivery versus payment”). Todo aquello susceptible de ser custodiado deberá mantenerse en una entidad de custodia según lo dispuesto en este reglamento.
+c. Las órdenes de negociación que se realicen con los recursos de los fondos administrados por las entidades reguladas deberán respaldarse por medio de grabación, en el caso de que sean realizadas por vía telefónica, o resguardadas por medios electrónicos o físicos cuando así corresponda. En el caso de que dichas compras se realicen a través de mercados OTC (Over the Counter), las órdenes de negociación deberán estar precedidas de, al menos, dos ofertas o posturas distintas.
+Al momento del cierre de la operación el intermediario deberá enviar una confirmación escrita a la entidad regulada de la transacción realizada. En caso de que se utilice un sistema donde las confirmaciones se remitan vía “tickets” se deberán imprimir a fin de ser archivados.
+d. Las entidades deberán documentar que las condiciones de comisión y precios hayan sido acordados con estricto apego a los intereses de los afiliados.
+e. Toda la documentación que respalde las negociaciones deberá ser conservada por un período de cinco años.
+(Así reformado mediante sesión N°642 del 25 de abril del 2007).
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°50 al N°52 actual).
+(Así corrida su numeración mediante sesión N° 1049 del 02 de julio de 2013, que lo traspasó del antiguo artículo 52 al 68)

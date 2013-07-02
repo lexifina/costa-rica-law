@@ -1,13 +1,18 @@
-TÍTULO VI
-Disposiciones comunes de inversión nacional y extranjera
-CAPÍTULO I
-De los procedimientos de inversión
-Artículo 52.—Procedimientos de inversión. Las entidades reguladas deberán contar con una certificación de norma de producto del proceso de inversión, expedida por un organismo nacional o internacional de certificación de producto acreditado en la norma INTE-ISO 65 por el Ente Costarricense de Acreditación, según lo establecido en la Ley 8279. Dicha certificación incluirá las tareas a cargo del Comité de Inversión, del Comité de Riesgos, del área de inversiones, de la Unidad de Administración Integral de Riesgos, del área de registro y de la logística de inversiones. Las inversiones realizadas con recursos de los fondos administrados se efectuarán de conformidad con los siguientes lineamientos:
-a. Deberán registrarse a nombre de cada fondo. Se prohíbe la adquisición de valores físicos, en el caso de valores extranjeros.
-b. Las operaciones de pago o cobro de las transacciones de los instrumentos negociados por las entidades, con los recursos de los fondos administrados, se realizarán mediante la modalidad de entrega contra pago (“delivery versus payment”). Todo aquello susceptible de ser custodiado deberá mantenerse en una entidad de custodia según lo dispuesto en este reglamento.
-c. Las órdenes de negociación que se realicen con los recursos de los fondos administrados por las entidades reguladas deberán respaldarse por medio de grabación, en el caso de que sean realizadas por vía telefónica, o resguardadas por medios electrónicos o físicos cuando así corresponda. En el caso de que dichas compras se realicen a través de mercados OTC (Over the Counter), las órdenes de negociación deberán estar precedidas de, al menos, dos ofertas o posturas distintas.
-Al momento del cierre de la operación el intermediario deberá enviar una confirmación escrita a la entidad regulada de la transacción realizada. En caso de que se utilice un sistema donde las confirmaciones se remitan vía “tickets” se deberán imprimir a fin de ser archivados.
-d. Las entidades deberán documentar que las condiciones de comisión y precios hayan sido acordados con estricto apego a los intereses de los afiliados.
-e. Toda la documentación que respalde las negociaciones deberá ser conservada por un período de cinco años.
-(Así reformado mediante sesión N°642 del 25 de abril del 2007).
-(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°50 al N°52 actual).
+CAPÍTULO III
+REQUERIMIENTOS PARA LA REALIZACIÓN DE
+OPERACIONES CON DERIVADOS DE COBERTURA
+Artículo 52.—Requisitos
+Las entidades reguladas podrán realizar operaciones con instrumentos financieros derivados con el único y exclusivo fin de alcanzar coberturas de riesgo de tasa de interés y de tipo de cambio, previo cumplimiento de los siguientes requisitos:
+a. Contar con la aprobación formal y en firme, por parte del Órgano de Dirección o Junta Directiva, de:
+i. Las políticas y procedimientos para las operaciones y el control de las operaciones con derivados.
+ii. Las políticas de cobertura para los fondos en que se adquieran los instrumentos derivados, así como los límites establecidos para dichas operaciones.
+iii. Los procedimientos y sistemas que permitan una evaluación precisa de los riesgos que se están cubriendo con los instrumentos financieros derivados de cobertura.
+iv. Los procedimientos bajo los cuales se dará seguimiento a la valoración de los instrumentos en los que invierte y los medios de información hacia los Comités de Inversión y de Riesgos.
+v. Las políticas sobre los tipos de contratos y cláusulas básicas.
+b. La entidad deberá contar con un programa de capacitación regular del personal y los miembros de los Comités de Riesgos e Inversiones y la Unidad de Administración Integral de Riesgos que estarán involucrados en el manejo de los productos derivados y la gestión de sus riesgos, al menos para las funciones de operación, seguimiento y control. La entidad deberá mantener la documentación que acredite la participación del personal en los cursos y los programas de capacitación recibidos.
+c. Contar con sistemas electrónicos de información que permitan, medir y evaluar, en forma diaria, los riesgos provenientes de las operaciones con derivados, sus cuentas de margen y garantías, así como el registro contable de estas operaciones.
+d. La Unidad de Administración Integral de Riesgos deberá presentar, para aprobación del Comité de Riesgos, el estudio técnico en relación con el uso de derivados cuya adquisición
+se analiza. Además, esta unidad debe realizar el estudio, y su actualización periódica, sobre la elegibilidad de los intermediarios y contrapartes de los contratos OTC, que contemple.
+e. El Comité de Riesgos deberá velar por el cumplimiento de los requisitos que dispone este reglamento y todos aquellos aspectos que haya establecido la entidad en sus políticas y procedimientos para evaluar el riesgo de incumplimiento.
+f. Los resultados de la evaluación de la eficacia de la cobertura deberán ser analizados por el área de riesgos en el contexto de los objetivos de la cobertura planteados.
+(Así adicionado mediante sesión N° 1049 del 02 de julio de 2013)

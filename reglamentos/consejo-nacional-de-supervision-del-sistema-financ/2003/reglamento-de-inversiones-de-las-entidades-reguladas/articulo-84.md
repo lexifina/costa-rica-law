@@ -1,0 +1,3 @@
+Artículo 84.—Derogatoria. Se deroga el Capítulo VII. y el párrafo final del Artículo 17 del Reglamento sobre la apertura y funcionamiento de las entidades autorizadas y el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador y sus reformas, Publicado en el Diario Oficial "La Gaceta" N° 78, Alcance 30 del 24 de abril del 2001.
+(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°65 al N°68 actual).
+(Así corrida su numeración mediante sesión N° 1049 del 02 de julio de 2013, que lo traspasó del antiguo artículo 68 al 84)
