@@ -1,5 +1,3 @@
-Artículo 14. Niveles de cumplimiento
-Se definen los siguientes niveles de cumplimiento del índice de suficiencia de capital:
-[imagen]
-En los niveles 1, 2 y 3 el capital social más la reserva legal debe ser mayor o igual al CM, en caso de ser menor, se considerará Nivel 4.
-(Así reformado mediante el aparte a) de la sesión Nº 865-2010 del 16 de julio de 2010)
+Artículo 14 Periodicidad del cálculo y comunicación
+Las entidades deben informar a la Superintendencia , con la periodicidad y en la forma que esta establezca, sobre el resultado del cálculo del ISC y, en su caso, sobre el cumplimiento de las medidas de actuación señaladas en el artículo 16 según la categoría asociada al ISC establecidas en el artículo 15. En todo caso, la Superintendencia puede requerir a una entidad, en cualquier momento, la verificación del cumplimiento del índice de suficiencia de capital.
+Adicionalmente, en el caso de entidades de seguros autorizadas bajo la modalidad de sucursal, en el plazo de dos meses a partir del cierre de cada semestre, la entidad debe remitir a la Superintendencia , certificación del cumplimiento de las normas de adecuación de capital de la empresa a la que pertenece la sucursal, emitida por el órgano de supervisión de la jurisdicción en la que se encuentra domiciliada, con corte al cierre del semestre calendario inmediato anterior.

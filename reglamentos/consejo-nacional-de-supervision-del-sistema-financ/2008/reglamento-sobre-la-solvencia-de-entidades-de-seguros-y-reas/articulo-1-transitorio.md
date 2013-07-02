@@ -1,3 +1,3 @@
-TÍTULO VI
-Disposiciones transitorias
-Transitorio I.—Recargo de la supervisión. De conformidad con lo acordado por el Consejo Nacional de Supervisión del Sistema Financiero, artículo 6 del acta de la sesión 732-2008 del 31 de julio del 2008, y durante el plazo del recargo de funciones de la Superintendencia General de Seguros en la Superintendencia de Pensiones, para efectos de este reglamento deberá entenderse que toda referencia a la competencia de la Superintendencia o al Superintendente lo es a la Superintendencia o al Superintendente de Pensiones.
+DISPOSICIONES TRANSITORIAS
+Transitorio I
+El requerimiento de gestión de la información relacionada con la actividad aseguradora a que se refiere el artículo 40, debe cumplirse a partir de 6 meses desde la entrada en vigencia de este reglamento.

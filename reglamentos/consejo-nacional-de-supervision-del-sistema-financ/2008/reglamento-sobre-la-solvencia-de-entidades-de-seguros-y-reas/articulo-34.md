@@ -1,5 +1,2 @@
-Artículo 34.—Procedimientos de inversión. Las inversiones se efectuarán de conformidad con los siguientes lineamientos:
-1) Las órdenes de negociación deberán respaldarse por medio de grabación, en el caso de que sean realizadas por vía telefónica, o resguardadas por medios electrónicos o físicos cuando así corresponda.
-2) Toda la documentación que respalde la negociación deberá ser conservada por un período de cinco años.
-3) El órgano de dirección de la entidad supervisada deberá emitir lineamientos de política auditables que permitan controlar la eventual existencia de conflictos de interés de los funcionarios, miembros de los Comités de Inversiones y Riesgos, así como los que puedan derivarse de la contratación de servicios con empresas del grupo o conglomerado a que pertenezca la entidad o con entidades relacionadas por propiedad o control. El cumplimiento de dichos lineamientos deberá ser valorado periódicamente por el Órgano de Dirección.
-4) En caso de conflicto de intereses, las entidades velarán por que la inversión se realice en el mayor beneficio de los tomadores y beneficiarios.
+Artículo 34 Registro contable
+Las entidades supervisadas deben atender la normativa contenida en las Normas Internacionales de Información Financiera (NIIF).

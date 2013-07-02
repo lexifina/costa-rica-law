@@ -1,10 +1,3 @@
-Artículo 12. Índice de suficiencia de capital
-El índice de suficiencia de Capital (ISC) de la entidad se calcula según la siguiente fórmula:
-ISC= CB
-RCS
-Donde:
-ISC= Índice de Suficiencia de Capital.
-CB= Capital Base.
-RCS= Requerimiento de Capital de Solvencia.
-Se entenderá que una entidad cumple el régimen de solvencia cuando el ISC es mayor o igual a uno y, simultáneamente, el capital social más la reserva legal es mayor o igual al Capital Mínimo requerido según el artículo 11 de la Ley Reguladora del Mercado de Seguros.
-(Así reformado mediante el aparte a) de la sesión Nº 865-2010 del 16 de julio de 2010)
+Artículo 12 Política de cobertura del requerimiento de capital
+El Órgano de Dirección debe aprobar y velar por el cumplimiento de una política que atienda, como mínimo, los riesgos sujetos a requerimiento de capital.
+(Nota de Sinalevi: Mediante el punto I) de la sesión N° 1050 del 02 de julio de 2013, se modificó este numeral por medio de una reforma integral a este reglamento. Posteriormente mediante el punto II) de la sesión antes mencionada se indica reformar el párrafo final, al no existir dicho párrafo el mismo se transcribe: “…Se entenderá que una entidad cumple el régimen de solvencia cuando el ISC es mayor o igual a uno y, simultáneamente, el capital social de la entidad, ajustado por los resultados del periodo y de periodos anteriores, más la reserva legal., es igual al Capital Mínimo requerido según el artículo 11 de la Ley Reguladora del Mercado de Seguros"). Del análisis se deduce que este párrafo corresponde en realidad al artículo 13, reformado mediante la reforma integral del punto I) de la sesión antes mencionada)

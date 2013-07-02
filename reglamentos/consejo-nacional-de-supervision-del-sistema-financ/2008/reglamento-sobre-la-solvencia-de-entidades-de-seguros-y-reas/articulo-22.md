@@ -1,1 +1,4 @@
-Artículo 22.—Importes recuperables de contratos de reaseguro. Al calcular los importes recuperables procedentes de los contratos de reaseguro las entidades de seguros y de reaseguros deberán considerar la diferencia temporal en el flujo de recuperación. El resultado de dicho cálculo se ajustará atendiendo a las pérdidas esperadas por incumplimiento de la contraparte. El ajuste se basará en una evaluación de la probabilidad de incumplimiento de la contraparte y de la pérdida media resultante (pérdida en caso de impago).
+CAPÍTULO III
+ACTIVOS PARA LA COBERTURA DE PROVISIONES TÉCNICAS
+Artículo 22 Cobertura de provisiones técnicas
+La entidad tiene la obligación de cubrir, en todo momento, las provisiones técnicas que sean consecuencia de operaciones de seguro directo y reaseguro aceptado.

@@ -1,15 +1,14 @@
-Artículo 35. Custodia de valores
-Los valores susceptibles de ser custodiados deberán mantenerse en una institución de custodia autorizada y fiscalizada. La entidad deberá autorizar el acceso directo de la Superintendencia, con propósitos de supervisión, a sus valores y cuentas en el custodio.
-Los custodios deberán cumplir con los siguientes requisitos:
-a) Custodios bancarios tipo “C” autorizados por la Superintendencia General de Valores para brindar el servicio de custodia.
-b) Custodios internacionales deberán cumplir con los siguientes requisitos:
-i. Estar adscrito a uno de los custodios globales acreditados por la Superintendencia General de Valores.
-ii. Contar con quince años de experiencia en la prestación de servicios de custodia.
-iii. Debe contar con la posibilidad de abrir y administrar cuentas que a su vez permitan la identificación de las líneas de seguros vinculados cuyos registros estén actualizados diariamente.
-iv. Prestar el servicio de custodia con fundamento en un contrato.
-Los servicios de custodio mínimos deben considerar:
-a) La obligación del custodio de enviar a la entidad las confirmaciones de cualquier movimiento en la cuenta de la entidad.
-b) La obligación del custodio de enviar un reporte periódico a la entidad con el detalle de títulos bajo su custodia.
-c) Acceso electrónico a las cuentas de custodia.
-d) El envío de información a la Superintendencia, en el plazo y forma que ésta defina.
-(Así reformado mediante el aparte a) de la sesión Nº 865-2010 del 16 de julio de 2010)
+CAPÍTULO III
+NEGOCIACIÓN
+Artículo 35 Mercados autorizados (plazas de negociación)
+La negociación de los instrumentos de cobertura de riesgo puede efectuarse en los mecanismos centralizados de negociación autorizados en el país y en el extranjero. Sin embargo, en los casos de las coberturas de tipo de cambio, cuando una de las monedas involucradas en el contrato sea el colón costarricense y las coberturas contratadas en el exterior, se puede realizar en mercados OTC.
+Las operaciones con derivados en mercados organizados, sólo se pueden realizar en las siguientes bolsas de derivados:
+a) Chicago Mercantile Exchange (CME).
+b) Chicago Board Options Exchange (CBOE).
+c) New York Board of Trade (NYBOT).
+d) Euronext London International Financial Futures Exchange (LIFFE).
+e) Eurex (Deutsche Börse).
+f) Euronext (Paris).
+g) Mercado Español de Futuros Financieros (MEFF).
+h) Aquellas que autorice la Superintendencia General de Valores (SUGEVAL).
+La negociación de instrumentos derivados en los mercados OTC del extranjero está restringida a los agentes bursátiles, intermediarios e instituciones financieras, de países miembros de la Unión Europea y del Comité Técnico de la Organización Internacional de Comisiones de Valores (International Organization of Securities Commissions) o IOSCO por sus siglas en idioma inglés, que se encuentren autorizados, regulados y supervisados por las autoridades competentes de los mercados correspondientes.

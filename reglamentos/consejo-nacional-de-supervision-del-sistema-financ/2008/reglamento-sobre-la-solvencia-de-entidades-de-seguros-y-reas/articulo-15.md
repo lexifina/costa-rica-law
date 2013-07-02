@@ -1,17 +1,8 @@
-Artículo 15. Medidas de saneamiento especial
-El nivel de cumplimiento del régimen de solvencia definirá las siguientes acciones:
-Nivel 1
-La entidad no requiere medidas especiales.
-Nivel 2
-La Administración deberá presentar a la Superintendencia, dentro del plazo improrrogable de cinco días hábiles a partir de su constatación, una explicación pormenorizada de las razones de su ocurrencia y un plan de acciones correctivas, con el detalle de las medidas para su resolución. Copia de dicho plan deberá ser remitida a la junta directiva u órgano equivalente. El plazo máximo para la ejecución del plan presentado no podrá ser mayor a cuarenta días hábiles.
-Nivel 3
-El Superintendente convocará, de inmediato, a la Junta Directiva o Consejo de Administración según corresponda, al Gerente y al Auditor Interno de la entidad y establecerá un plazo prudencial por escrito para que la entidad corrija la situación. Este plazo no podrá exceder de tres meses salvo que la entidad justifique debidamente un mayor plazo. El Superintendente podrá recomendar la remoción de cualquier funcionario, empleado o director de la entidad, dando las razones para tal recomendación.
-La entidad deberá presentar un acuerdo del Órgano de Dirección, dentro del plazo improrrogable de cinco días hábiles a partir de la comunicación, donde conste una explicación pormenorizada de las razones de su ocurrencia y un plan de acciones de saneamiento. La entidad deberá suspender la emisión, la renovación de pólizas y la aceptación de riesgos.
-El plan presentado por la entidad deberá ser sometido a la aprobación del Superintendente y, una vez aprobado por éste será de acatamiento obligatorio para la entidad.
-Si a criterio del Superintendente el plan de saneamiento no es adecuado para subsanar las debilidades de la entidad, ordenará que en un plazo prudencial e improrrogable que la entidad realice los ajustes pertinentes a efecto de que nuevamente sea presentado ante la Superintendencia.
-Una vez presentado el nuevo plan de saneamiento el Superintendente deberá pronunciarse. En caso de que lo impruebe, se considerará para efectos del numeral viii) del inciso d) del artículo 136 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, del 3 de noviembre de 1995, un incumplimiento del régimen de solvencia. En dicho evento el Consejo Nacional de Supervisión del Sistema Financiero podrá ordenar la intervención respectiva.
-Nivel 4
-Si la disminución del patrimonio bajo el mínimo legal no es superada antes de quince días hábiles se convocará, en única citación, a una Junta Extraordinaria de accionistas, destinada a aprobar el aumento de capital necesario, para cumplir con el monto mínimo exigido por ley. El plazo indicado en este párrafo para alcanzar el capital mínimo podrá ser ampliado por el Superintendente, a solicitud de la entidad, hasta por quince días hábiles adicionales. La solicitud deberá presentarse antes del vencimiento del plazo original y deberá indicar las razones por las cuales no se puede cumplir el plazo indicado.
-En el caso en que la Junta Extraordinaria de accionistas acordase el aumento de capital, éste deberá ser aportado en un plazo no superior a cuarenta días hábiles, contados desde la fecha del acuerdo y su pago se hará en dinero efectivo. Si transcurrido este plazo el patrimonio de la compañía no superase el mínimo legal se podrá revocar su autorización. En el caso de entidades de seguros organizadas como asociaciones cooperativas se convocará la asamblea de asociados.
-De acuerdo con lo dispuesto en el numeral viii) del inciso d) del artículo 136 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, del 3 de noviembre de 1995, en caso de que el índice de solvencia de la entidad se ubique en nivel 4, el Consejo Nacional de Supervisión del Sistema Financiero podrá ordenar su intervención.
-(Así reformado mediante el aparte a) de la sesión Nº 865-2010 del 16 de julio de 2010)
+Artículo 15 Categorías del Índice de Suficiencia de Capital
+El índice de suficiencia de capital calculado según el artículo 13 de este reglamento se clasifica en las siguientes categorías:
+Categoría | Índice de suficiencia de capital
+Fuerte | ISC≥1,5
+Moderada | 1,3≤ISC<1,5
+Baja | 1≤ISC<1,3
+Débil | ISC<1
+La Superintendencia debe publicar, en su sitio de Internet, la categoría del índice de suficiencia de capital de cada una de las entidades aseguradoras y reaseguradoras con corte a los meses de marzo, junio, setiembre y diciembre de cada año. Dicha publicación deberá hacerse dentro de los quince días hábiles siguientes al cierre de esos meses.

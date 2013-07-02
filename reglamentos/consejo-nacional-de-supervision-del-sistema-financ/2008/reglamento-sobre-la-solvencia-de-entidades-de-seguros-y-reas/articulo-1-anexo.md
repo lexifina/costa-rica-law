@@ -1,124 +1,246 @@
 ANEXO PT-1
-Cálculo de provisiones técnicas
-Provisión para primas no devengadas (PPND)
-El cálculo de la provisión de primas no devengadas (PPND) se realizará conforme a los siguientes parámetros:
-(Así reformado el párrafo anterior mediante el aparte d) de la sesión Nº 865-2010 del 16 de julio de 2010)
-a) Método. La provisión de primas no devengadas deberá estar constituida por la fracción de las primas directas en el ejercicio que deba imputarse al período comprendido entre la fecha del cierre y el término del período de cobertura.
-La provisión de primas no devengadas se calculará póliza a póliza.
-b) Base de cálculo. La base de cálculo de esta provisión estará constituida por las primas comerciales del ejercicio, deducido el recargo de seguridad.
-c) Imputación. La imputación temporal de la prima se realizará considerando la distribución temporal de la siniestralidad a lo largo del período de cobertura del contrato. Si la distribución de la siniestralidad es uniforme la fracción de prima imputable se calculará a prorrata, de los días por transcurrir, desde la fecha de cierre del ejercicio actual hasta el vencimiento del contrato.
+PROVISIÓN PARA PRIMA NO DEVENGADA (PPND)
+La provisión de prima no devengada se calculará póliza a póliza de la siguiente forma:
+A) Base de cálculo
+La base de cálculo de esta provisión será la prima comercial deducida, en su caso, el recargo de seguridad. Esta prima debe corresponder al periodo de aseguramiento, desde la entrada en vigor de la póliza hasta su vencimiento, independientemente de su forma de pago. A la prima resultante de aplicar las deducciones indicadas, se le denominará “prima base” (Pb).
+[imagen]
+Donde:
+PC= Prima comercial.
+Rs= Recargo de seguridad.
+B) Metodología
+La provisión para prima no devengada debe reconocerse al momento de inicio de la cobertura del riesgo. La provisión de prima no devengada se constituirá con la proporción de la prima base que corresponde al período comprendido entre la fecha del cierre y la fecha del vencimiento del período de aseguramiento.
+Si la distribución de la siniestralidad es uniforme a lo largo del periodo, la proporción de prima imputable se calculará a prorrata, de los días que faltan por transcurrir, desde la fecha de cierre del ejercicio actual hasta el vencimiento del contrato. La fórmula que se utilizará para el cálculo de esta provisión es la siguiente:
+[imagen]
+Donde:
+PPND = Provisión de prima no devengada.
+Pb = Prima base definida en el inciso A de este anexo.
+T = Número de días de vigencia total de la póliza.
+dt = Número de días transcurridos desde la fecha de inicio de la vigencia de la póliza hasta la fecha del cierre.
+En caso de que la entidad considere que la distribución del riesgo no se comporta de manera uniforme durante el periodo de vigencia o que esta metodología pudiere no ser apropiada para un producto específico, la entidad puede proponer y justificar una metodología alternativa, la cual debe registrar ante la Superintendencia , ya sea durante el proceso de registro del producto o posterior al registro.
+C) Otros aspectos a considerar
+Primas cedidas
+En lo que se refiere a las primas cedidas en reaseguro, la entidad debe revelar el monto correspondiente a la participación del reasegurador en esta provisión, en la cuenta de activo que corresponda, según el manual de cuentas. La metodología de constitución y reconocimiento de este activo debe ser consistente con la de la provisión de primas no devengadas (PPND).
+Primas fraccionadas
+En caso de que la forma de pago de la prima de la póliza se realice de forma fraccionada, la entidad debe revelar las primas por cobrar en la cuenta de activo que corresponda.
 ANEXO PT-2
-Cálculo de provisiones técnicas
-Provisión para riesgos en curso (PRC)
-El cálculo de la provisión de riesgos en curso (PRC) se realizará conforme a los siguientes parámetros:
-1) Método. El importe de la provisión de riesgos en curso se calculará por cada línea o producto comercial, entendiendo por tal la garantía concreta o el conjunto agrupado de garantías conectadas entre sí, que puedan referirse a los riesgos derivados de una misma clase de objeto asegurado. La metodología específica debe ser registrada ante la Superintendencia.
-2) Base de cálculo. En su cálculo se seguirán los siguientes lineamientos:
-a) El periodo de referencia será de dos años: el ejercicio al que se refiere el cálculo y el inmediato anterior.
-(*)b) Se calculará la diferencia entre las siguientes magnitudes correspondientes al seguro directo, netas de reaseguro cedido:
-i. Con signo positivo, los siguientes rubros:
-a. Las primas suscritas, en el periodo de referencia, netas de recargos de seguridad y corregidas por la variación de la provisión de primas no devengadas. Debe ajustarse también por la provisión para primas pendientes de cobro constituida al cierre del último ejercicio por razón de las primas suscritas en dicho periodo de referencia,
-b. Los ingresos de las inversiones generados por los activos afectos a las provisiones técnicas del ramo o producto de que se trate y
-c. Otros ingresos técnicos de acuerdo con la imputación realizada en la contabilidad.
-ii. Con signo negativo, los siguientes rubros:
-a. El importe pagado de los siniestros ocurridos al término en el periodo de referencia,
-b. Los gastos imputables a las prestaciones y la provisión de prestaciones al término del periodo de referencia y
-c. Los gastos de gestión y otros gastos técnicos, así como los gastos de inversiones generados por las inversiones afectas a las provisiones técnicas, del ramo o producto de que se trate de acuerdo con la imputación realizada en la contabilidad.
-iii. Las anteriores magnitudes recogerán acumuladamente las de todos los años que formen parte del periodo de referencia con la información al momento en que se realice el cálculo.
-(*)(Así reformado el punto b) anterior mediante el aparte e) de la sesión Nº 865-2010 del 16 de julio de 2010)
-c) Si la suma obtenida conforme a la letra b) anterior fuese negativa, se calculará el porcentaje que represente dicha diferencia respecto del volumen, en el periodo de referencia, de las primas suscritas por el seguro directo netas de reaseguro cedido, corregidas por la variación de la provisión de primas no devengadas y por la provisión para primas pendientes de cobro constituida al cierre del último ejercicio por razón de las primas devengadas en dicho periodo de referencia.
-(Así reformado el punto c) anterior mediante el aparte e) de la sesión Nº 865-2010 del 16 de julio de 2010)
-d) En el caso de que se calcule el porcentaje del inciso c) la cuantía por la que se dotará esta provisión será igual al valor absoluto resultante del producto de los factores siguientes:
-i. El porcentaje obtenido de acuerdo con el apartado c).
-ii. La provisión para primas no devengadas del seguro directo (PPND), menos la porción de la provisión para primas no devengadas correspondiente al reaseguro cedido del ejercicio de cálculo.
-Si el porcentaje resultante de los cálculos anteriores no resultara adecuado, teniendo en cuenta evoluciones recientes y significativas de la siniestralidad o de la tarificación u otras circunstancias especiales que concurran en el producto de que se trate, la Superintendencia podrá modificar el citado porcentaje a petición de la entidad o de oficio mediante resolución motivada.
-(Así reformado el punto d) anterior mediante el aparte e) de la sesión Nº 865-2010 del 16 de julio de 2010)
-e) La provisión de riesgos en curso por operaciones de reaseguro aceptado deberá dotarse conforme a lo dispuesto en los apartados precedentes. No obstante, cuando las entidades no dispongan de la información sobre el año de ocurrencia del siniestro, podrá realizarse el cálculo atendiendo a la fecha comunicada por la entidad cedente.
-3) Informe actuarial. La entidad deberá presentar a la Superintendencia un informe actuarial, sobre la revisión necesaria de las bases técnicas para alcanzar la suficiencia de la prima, cuando durante dos ejercicios consecutivos sea necesario dotar la provisión regulada en este anexo. Dicho informe debe al menos identificar las causas que han provocado la insuficiencia, las medidas adoptadas por la entidad y el plazo estimado en el que surtirán efecto.
+PROVISIÓN POR INSUFICIENCIA DE PRIMA (PIP)
+La provisión por insuficiencia de prima (PIP) complementará a la provisión para prima no devengada (PPND) en la medida en que el importe de esta última no sea suficiente para reflejar la valoración de todos los riesgos y gastos a cubrir por la entidad aseguradora, correspondientes al periodo de cobertura no transcurrido a la fecha de cálculo.
+El importe de la provisión por insuficiencia de prima se calcula separadamente para el seguro directo y para el reaseguro aceptado, por cada línea o producto comercial, según la política aprobada por la entidad.
+A) Base de cálculo
+Para el cálculo de la provisión por insuficiencia de prima (PIP) los siniestros deben clasificarse por año de ocurrencia. El periodo de referencia será de tres años hasta la fecha de cálculo, es decir, los últimos 36 meses.
+Las entidades nuevas que no cuenten con experiencia en Costa Rica, estarán exceptuadas de calcular esta provisión hasta que cuenten con 12 meses de operación en la línea o producto para el cual se calcula esta provisión. A partir de ese momento, las entidades deberán calcular esta provisión tomando como periodo de referencia, el tiempo acumulado hasta la fecha de cierre de cálculo, hasta completar los 36 meses establecidos.
+B) Metodología
+Se calcula la diferencia entre ingresos y gastos correspondientes al seguro directo, de la siguiente manera:
+I – G
+Donde:
+I = Ingresos netos de reaseguro cedido = α + β + γ.
+α= Primas imputables al periodo de referencia, es decir, el monto de las primas correspondientes a contratos perfeccionados o prorrogados en el periodo de referencia netos de sus anulaciones y extornos, corregidas por la variación en la estimación por deterioro de primas por cobrar y la variación de la provisión para prima no devengada, ambas calculadas al término del periodo de referencia por razón de las primas imputables a dicho periodo de referencia.
+Este resultado se obtiene de la siguiente forma:
+Primas imputables en el periodo de referencia
+(+) [Estimación por deterioro de primas por cobrar al final del periodo de referencia – Estimación por deterioro de primas por cobrar al inicio de dicho periodo]
+(-) [Provisión para prima no devengada al final del periodo de referencia – provisión para prima no devengada al inicio de dicho periodo]
+β= Ingresos de las inversiones generados por los activos correspondientes a la línea o producto de que se trate, según los criterios de imputación de la entidad.
+γ = Otros ingresos técnicos, justificados por la entidad.
+G = Gastos por siniestros ocurridos en el periodo de referencia, netos de reaseguro cedido = λ + µ + PPS + ε + ρ + Ω.
+λ= Importe pagado por los siniestros ocurridos en el periodo de referencia.
+µ = Gastos imputables a las prestaciones.
+PPS= Provisión para siniestros al término del periodo de referencia correspondiente a los siniestros ocurridos durante dicho periodo.
+ρ= Gastos de gestión devengados (gastos administrativos, gastos de adquisición, etc.)
+ε= Gastos de inversiones generados por los activos correspondientes a la línea o producto de que se trate, según los criterios de imputación de la entidad.
+Ω = Otros gastos técnicos justificados por la entidad.
+Las anteriores conceptos recogerán acumuladamente el importe de todos los meses que formen parte del periodo de referencia con la información al momento en que se realice el cálculo.
+2. Si, I – G > 0 entonces PIP = 0
+3. Si, I – G < 0 entonces se calculará el siguiente porcentaje:
+[imagen]
+Si el porcentaje resultante de los cálculos anteriores no resultara adecuado, teniendo en cuenta evoluciones recientes y significativas de la siniestralidad o de la tarificación u otras circunstancias especiales que concurran en el producto o línea de que se trate, la Superintendencia puede modificar el citado porcentaje a petición de la entidad o de oficio mediante resolución motivada.
+4. El importe por el que se dota esta provisión se calcula de la siguiente manera:
+[imagen]
+Donde:
+PPND= Provisión para prima no devengada del seguro directo a la fecha de cálculo.
+PPNDRC= Participación del reaseguro en la correspondiente provisión para prima no devengada a la fecha de cálculo.
+La PIP por operaciones de reaseguro aceptado debe dotarse conforme a lo dispuesto en los apartados precedentes.
+C) Informe actuarial
+Si durante dos ejercicios anuales consecutivos ha sido necesario dotar la provisión regulada en este anexo, la entidad debe presentar a la Superintendencia , junto con los estados financieros correspondientes al cierre del segundo ejercicio, un informe actuarial sobre la revisión necesaria de las bases técnicas para alcanzar la suficiencia de la prima. Dicho informe debe al menos identificar las causas que han provocado la insuficiencia, las medidas adoptadas por la entidad y el plazo estimado en el que surtirán efecto.
 ANEXO PT-3
-Cálculo de provisiones técnicas
-Provisión de seguros de vida (PSV)
-La provisión de seguros de vida comprenderá:
-a) En los seguros cuyo período de cobertura sea igual o inferior al año la provisión de primas no devengadas y, en su caso, la provisión de riesgos en curso.
-b) En los demás seguros, la provisión matemática.
-Provisión matemática
-La provisión matemática en ningún momento podrá ser negativa. Se calculará como la diferencia entre el valor actual actuarial de las obligaciones futuras del asegurador y las del tomador o asegurado.
-La base de cálculo de esta provisión será la prima de inventario devengada en el ejercicio.
-El cálculo se realizará póliza a póliza utilizando un método prospectivo, salvo que no fuera posible por las características del contrato considerado o se demuestre que las provisiones obtenidas sobre la base de un método retrospectivo no son inferiores a las que resultarían de la utilización de un método prospectivo. En las pólizas colectivas este cálculo se efectuará separadamente por cada asegurado.
-El importe de la provisión matemática que ha de figurar en el balance podrá determinarse mediante interpolación lineal de las provisiones correspondientes a los vencimientos anterior y posterior a la fecha de cierre de aquél, e incluirá la periodificación de la prima devengada, teniendo en cuenta el carácter liberatorio o no de dicha prima.
-Tipo de interés aplicable
-El tipo de interés aplicable para el cálculo de la provisión de seguros de vida no podrá ser superior al 60% de los tipos de interés medios del trimestre previo correspondiente a los bonos y obligaciones del Estado. La Superintendencia establecerá, mediante lineamiento general, la metodología de cálculo y publicará el tipo de interés resultante de la aplicación del criterio anterior.
-Tablas de mortalidad, de invalidez y de morbilidad.
-Las tablas de mortalidad, de invalidez y de morbilidad deberán cumplir los siguientes requisitos:
-a) Estar basadas en experiencia nacional o extranjera ajustada a tratamientos estadístico-actuariales generalmente aceptados tales como asociaciones internacionales de actuarios de amplio reconocimiento internacional.
-b) En caso de que contengan probabilidades diferentes para cada sexo, deberán justificarse estadísticamente. En ningún caso podrá incorporar el efecto del riesgo por embarazo y parto.
-c) El final del período de observación considerado para la elaboración de las tablas no podrá ser anterior en más de cinco años a la fecha de cálculo de la provisión.
+PROVISIÓN DE SEGUROS PERSONALES
+Para los seguros la categoría de personales que ofrezcan coberturas de vida, rentas, riesgos del trabajo, accidentes y salud se deben constituir las siguientes provisiones:
+a) En los seguros cuyo período de cobertura sea igual o inferior al año, la provisión para prima no devengada (PPND) y, en su caso, la provisión por insuficiencia de prima (PIP).
+b) En los demás seguros, la provisión matemática (PM).
+La metodología de este anexo debe utilizarse para el cálculo de la provisión para siniestros cuando la indemnización de seguros no vida (es decir, seguros generales, riesgos del trabajo, accidentes y salud) haya de pagarse en forma de renta.
+Provisión matemática (PM)
+La provisión matemática en ningún momento puede ser negativa. El cálculo se debe realizar póliza a póliza, utilizando la información específica de cada asegurado, como es la edad, prima, suma asegurada y cualquier otra variable que intervenga en el cálculo. En las pólizas colectivas este cálculo se efectúa por separado para cada asegurado.
+A) Base de cálculo
+La base de cálculo de esta provisión es la prima de inventario utilizada para el cálculo de la prima comercial pactada con el asegurado. Se entiende como prima de inventario la prima pura o de riesgo incrementada con los gastos de administración previstos en la nota técnica.
+B) Metodología
+La provisión matemática se calcula como la diferencia entre el valor actual actuarial de las obligaciones futuras de la entidad y el valor actual actuarial de las obligaciones futuras del asegurado (primas).
+Para el cálculo de esta provisión se utilizará el método prospectivo. En caso de que las entidades consideren que dadas las características del contrato, no es posible utilizar esta metodología o se demuestre que las provisiones obtenidas sobre la base de otro método no son inferiores a las que resultarían de la utilización del método prospectivo, las entidades pueden solicitar a la Superintendencia el uso de otra metodología para el cálculo de esta provisión, la cual deberán justificar y registrar ante la Superintendencia durante el proceso de registro de cada producto o posterior al registro. A partir del momento en que la Superintendencia registre la metodología propuesta por la entidad, ésta tendrá carácter de obligatoria.
+Para el cálculo de la provisión matemática en un momento intermedio del año póliza, se debe realizar una interpolación lineal entre los valores de la provisión al inicio y al final del año póliza, considerando que la provisión al inicio del año es la provisión al final del año inmediato anterior más la prima de inventario que acaba de pagar el asegurado. Para el cálculo de esta provisión se utiliza la siguiente fórmula:
+[imagen]
+Donde:
+[imagen] = Provisión matemática en el año póliza t
+P = prima de inventario
+T = 365
+h = número de días transcurridos desde el último aniversario de la póliza hasta el momento de la valuación.
+C) Tipo de interés aplicable
+El tipo de interés aplicable para el cálculo de la provisión matemática será establecido por la Superintendencia mediante lineamientos generales y se publicará con corte al 30 de marzo y al 30 de setiembre de cada año dentro de los 10 días siguientes a la fecha de corte. La tasa publicada deber ser utilizada para los siguientes 6 meses.
+Si la rentabilidad realmente obtenida en un periodo de las inversiones asociadas a la provisión matemática fuere inferior al tipo de interés regulatorio, esta provisión se calculará aplicando un tipo de interés igual a la rentabilidad realmente obtenida.
+La documentación que justifique el cálculo de la rentabilidad realmente obtenida debe estar a disposición de la Superintendencia.
+D) Tablas de mortalidad, de invalidez y de morbilidad.
+Las entidades deben emplear las tablas de mortalidad aprobadas por el Consejo Nacional de Supervisión del Sistema Financiero para el cálculo de sus provisiones técnicas, con las adecuaciones que el Superintendente disponga mediante lineamientos generales.
+Las tablas de invalidez y morbilidad que se utilicen para el cálculo de provisiones, requiere la autorización previa de la Superintendencia. Dichas tablas deben satisfacer los siguientes requisitos:
+a) Estar basadas en experiencia nacional o extranjera ajustada a tratamientos estadístico-actuariales generalmente aceptados.
+b) En caso de que contengan probabilidades diferentes para cada sexo, deberán justificarse estadísticamente. En ningún caso se podrá incorporar el efecto del riesgo por embarazo y parto.
+c) El final del período de observación considerado para la elaboración de las tablas no podrá ser anterior en más de diez años a la fecha de cálculo de la provisión.
 d) Cuando se utilicen tablas basadas en la experiencia propia del colectivo asegurado, la información estadística en la que se basen deberá cumplir los requisitos de homogeneidad y representatividad del riesgo, incluyendo sobre el mismo información suficiente que permita una inferencia estadística e indicando el tamaño de la muestra, su método de obtención y el período a que se refiere, el cual deberá adecuarse a lo previsto en el párrafo c) anterior.
-e) En los seguros de supervivencia, deberán incorporar el efecto del tanto de disminución de la mortalidad considerando una evolución desfavorable de la misma, salvo que ya haya sido tenido en cuenta en el cómputo del período de observación a que se refiere el párrafo c) anterior.
-f) No obstante lo anterior, en el cálculo de la provisión podrán utilizarse tablas más prudentes que, sin cumplir alguno de los requisitos anteriores, tengan un margen de seguridad superior al que resulta de éstos.
-g) Si en la fecha de cálculo de la provisión se constatara que las tablas inicialmente utilizadas no reflejan el comportamiento real del colectivo asegurado, siempre que sobre la evolución real del riesgo exista información suficiente como para permitir una inferencia estadística, se efectuará si procediera a realizar el ajuste de la provisión de seguros de vida para reflejar las nuevas probabilidades.
-h) Las provisiones de los seguros de renta vitalicia derivadas de la Ley de Protección al Trabajador utilizarán las tablas definidas en el reglamento de Tablas de Mortalidad aprobado por el CONASSIF.
-Gastos de administración
-La provisión de seguros de vida se calculará teniendo en cuenta los recargos de gestión previstos en las bases técnicas.
-El desvío de las previsiones de la base técnica, durante dos ejercicios consecutivos, exigirá recargos para gastos de administración para atender los gastos reales. La provisión de seguros de vida se calculará teniendo en cuenta la nueva circunstancia.
-No será de aplicación lo previsto en el párrafo anterior cuando el exceso de gastos sea debido a circunstancias excepcionales y que previsiblemente no vayan a seguir produciéndose en el futuro y así se acredite ante la Superintendencia.
-Rescates
-El importe de las provisiones de seguros de vida para cada contrato deberá ser en todo momento, y como mínimo, igual al valor de rescate garantizado. En todo caso, al valor de rescate de estas operaciones será, como importe máximo, el resultante de aplicar las bases técnicas utilizadas para el cálculo de la prima.
+E) Gastos de administración
+La provisión matemática se calcula teniendo en cuenta los recargos de administración previstos en las notas técnicas. Si durante dos ejercicios consecutivos, considerando las previsiones de la nota técnica, los recargos para gastos de administración son insuficientes para atender los gastos reales de administración, la provisión se calculará teniendo en cuenta los gastos reales.
+No será de aplicación lo previsto en el párrafo anterior cuando el exceso de gastos sea debido a circunstancias excepcionales, y que previsiblemente no vayan a seguir produciéndose en el futuro, y así se acredite ante la Superintendencia.
+F) Rescates
+El importe de las provisiones matemáticas para cada contrato debe ser en todo momento, y como mínimo, igual al valor de rescate garantizado. En todo caso, el valor de rescate de estas operaciones es, como importe máximo, el resultante de aplicar las bases técnicas del contrato.
+G) Otros aspectos a considerar
+Reaseguro cedido
+En la estimación de los flujos para el cálculo de valor actual actuarial de las obligaciones futuras del asegurador y de las primas futuras, no debe considerarse el reaseguro cedido. En caso de contar con reaseguro, la entidad debe revelar el monto correspondiente a la participación del reasegurador en esta provisión, en la cuenta de activo que corresponda, según el manual de cuentas.
 ANEXO PT-4
-Cálculo de provisiones técnicas
-Provisión para siniestros (PPS)
-La provisión para siniestros deberá representar el importe total de las obligaciones pendientes del asegurador derivadas de los siniestros ocurridos con anterioridad a la fecha de cierre del ejercicio. Será igual a la diferencia entre su coste total estimado o cierto y el conjunto de los importes ya pagados por razón de tales siniestros.
-Dicho coste incluirá los gastos tanto externos como internos de gestión y tramitación de los expedientes, cualquiera que sea su origen, producidos y por producir hasta la total liquidación y pago del siniestro.
-Las cantidades a recuperar por el ejercicio de las acciones que correspondan al asegurador frente a las personas responsables del siniestro no podrán deducirse del importe de la provisión. No obstante lo anterior, cuando la provisión para prestaciones se calcule utilizando métodos estadísticos los pagos podrán computarse netos de los montos recuperados.
-La provisión deberá tener en cuenta todos los factores y circunstancias que influyan en su coste final y será suficiente en todo momento para hacer frente a las obligaciones pendientes a las fechas en que hayan de realizarse los pagos.
-Importe de la provisión
-Para determinar el importe de la provisión, los siniestros se clasificaran por años de ocurrencia, y su cálculo se realizará, al menos, por líneas de seguro.
-Cada siniestro será objeto de una valoración individual con independencia de que, adicionalmente, la entidad pueda utilizar métodos estadísticos para el cálculo de la provisión de siniestros. Cuando la entidad opte por utilizar métodos estadísticos de cálculo global de la provisión para prestaciones no será necesaria la mencionada valoración individual de cada siniestro.
-No será necesaria la valoración individual de cada siniestro en el supuesto de que la entidad aseguradora garantice la prestación de una asistencia mediante la celebración de un contrato de reaseguro de prestación de servicios por el que se cede tanto el riesgo como el coste de la siniestralidad al reasegurador. En dicho evento podrá calcularse una única provisión de prestaciones de carácter global, tanto para el seguro directo como para el reaseguro aceptado o cedido, por la parte cuyo riesgo y siniestralidad se ceda.
-Para estas mismas líneas, el cálculo de la provisión para prestaciones global de seguro directo, y en su caso reaseguro aceptado, en los supuestos en que no se tenga información suficiente, podrá basarse bien en la información suministrada por el reasegurador, bien en costes medios sectoriales o bien en métodos propios de la entidad aseguradora.
-Con excepción de lo dispuesto en el párrafo anterior, cuando la información sobre los siniestros no permita una estimación adecuada del importe de la provisión, ésta deberá dotarse, como mínimo, y sin perjuicio de posteriores correcciones, por la diferencia entre las primas de riesgo devengadas en el ejercicio, en la parte imputable al mismo, y los pagos por siniestros ocurridos en el ejercicio.
-Componentes de la provisión
-La provisión de prestaciones estará integrada por: i) provisión de prestaciones pendientes de liquidación o pago, ii) provisión de siniestros pendientes de declaración, y iii) la provisión de gastos internos de liquidación de siniestros.
-Para las operaciones de reaseguro aceptado, podrá calcularse una única provisión de prestaciones de carácter global:
-i) Provisión de prestaciones pendientes de liquidación o pago: Incluirá el importe de todos aquellos siniestros ocurridos y declarados antes del cierre del ejercicio. Formarán parte de ella los gastos de carácter externo inherentes a la liquidación de siniestros y, en su caso, los intereses de mora y las penalizaciones legalmente establecidas en las que haya incurrido la entidad.
-Cuando la indemnización haya de pagarse en forma de renta, la provisión a constituir se calculará conforme a las normas establecidas en este reglamento para la provisión de seguros de vida.
-La provisión incluirá las participaciones en beneficios que se hayan asignado a tomadores, asegurados o beneficiarios y que se encuentren pendientes de pago.
-ii) Provisión de siniestros pendientes de declaración: La provisión de siniestros pendientes de declaración deberá recoger el importe estimado de los siniestros ocurridos antes del cierre del ejercicio y no declarados en esa fecha.
-Únicamente en el caso de que la entidad no disponga de métodos estadísticos para el cálculo de la provisión, conforme a lo dispuesto en este anexo, o los disponibles no sean adecuados, deberá determinarla multiplicando el número de siniestros pendientes de declaración por el coste medio de los mismos, estimados ambos de la manera siguiente:
-a) El número de siniestros pendientes de declaración N se calculará mediante la fórmula:
-Nt = [(Nt-1 + Nt-2 + Nt-3) / (Pt-1 + Pt-2 + Pt-3)] × Pt
-siendo t el ejercicio que se cierra, t-1, t-2 y t-3 los tres ejercicios inmediatamente anteriores y P las primas devengadas.
-b) El coste medio C de los siniestros pendientes de declaración se determinará mediante la fórmula:
-Ct = [(Ct-1 + Ct-2 + Ct-3) / (Qt-1 + Qt-2 + Qt-3)] × Qt
-donde t, t-1, t-2 y t-3 tienen el mismo sentido que en el párrafo a) anterior, y donde Q es el coste medio de los siniestros ya declarados.
-c) Los datos relativos al número y coste medio de los siniestros pendientes de declaración de ejercicios anteriores serán los conocidos por la entidad a la fecha de cálculo de la provisión.
-d) Se considerará que la provisión es insuficiente si en el ejercicio siguiente la provisión constituida al inicio es inferior a los pagos de los siniestros declarados, correspondientes a ejercicios anteriores, más el importe de la provisión de prestaciones pendientes de liquidación o pago al cierre del ejercicio correspondiente a esos siniestros. Se calculará el porcentaje que dicha insuficiencia represente respecto de la provisión constituida al inicio y se incrementará, en el citado porcentaje, la provisión a constituir según el procedimiento antes indicado.
-e) Cuando la entidad carezca de la necesaria experiencia, dotará esta provisión aplicando un porcentaje del 5% a la provisión de prestaciones pendientes de liquidación o pago del seguro directo. El porcentaje se elevará al 10% para el coaseguro y el reaseguro aceptado.
-iii) Provisión de gastos internos de liquidación de siniestros: Esta provisión deberá dotarse por importe suficiente para afrontar los gastos internos de la entidad, necesarios para la total finalización de los siniestros que han de incluirse en la provisión de prestaciones tanto del seguro directo como del reaseguro aceptado.
-Si la entidad no dispone de un método propio para el cálculo de esta provisión se actuará de la siguiente forma:
-a) Se determinará en función de la relación existente entre los gastos internos imputables a las prestaciones y el importe de las prestaciones pagadas en el ejercicio que se cierra. Dicha relación debe corregirse por la variación de la provisión para prestaciones pendientes de liquidación o pago y de siniestros pendientes de declaración.
-b) El porcentaje resultante deberá multiplicarse, al menos, por el 50% del importe de la provisión para prestaciones pendientes de liquidación o pago más el 100% del importe de la provisión de siniestros pendientes de declaración.
-Métodos estadísticos de cálculo de la provisión de siniestros
-La entidad podrá utilizar métodos estadísticos para el cálculo de la provisión de siniestros. Dicho cálculo debe incluir tanto los siniestros pendientes de liquidación o pago como los siniestros pendientes de declaración. Deberá efectuar el desglose de la provisión entre ambos componentes.
-Los métodos estadísticos a utilizar y las hipótesis contempladas, así como las modificaciones de los métodos o hipótesis utilizados, acompañados de una justificación detallada de los contrastes de su bondad y del periodo de obtención de información, deberán ser autorizados por la Superintendencia. Cuando la entidad deje de utilizar dichos métodos estadísticos deberá comunicarlo a la Superintendencia.
-La estimación del importe final de la provisión se hará tomando en consideración los resultados, como mínimo, de dos métodos pertenecientes a grupos de métodos estadísticos diferentes. Se consideran pertenecientes al mismo grupo aquellos métodos que se basen en las mismas hipótesis o que obtengan sus resultados a partir de las mismas magnitudes o variables.
-La determinación de la provisión de prestaciones utilizando métodos estadísticos requerirá:
-a) Que la entidad tenga un volumen de siniestros suficiente para permitir la inferencia estadística.
-b) Que disponga de información histórica de un número de ejercicios suficiente para valorar la provisión, según la vida media de los siniestros y las características concretas de cada línea, y que comprenda las magnitudes relevantes para el cálculo.
-c) Que los datos a utilizar sean homogéneos y procedan de estadísticas fiables. Se excluirán de la base de datos utilizada para el cálculo estadístico los siniestros o grupos de siniestros que presenten características, o en los que concurran circunstancias, que justifiquen estadísticamente su exclusión. Estos siniestros serán valorados y provisionados de forma individual.
-d) La entidad deberá realizar un contraste de la bondad de los cálculos realizados con periodicidad máxima de un año.
-La Superintendencia podrá obligar, mediante resolución motivada, a que el importe de la provisión se determine por otros métodos estadísticos si considera que el importe estimado por la entidad, utilizando un método de valoración individual o un método estadístico, resulta insuficiente y puede comprometer su solvencia.
-Provisión de siniestros no declarados en riesgos de manifestación diferida
-La provisión de siniestros pendientes de declaración se constituirá por un importe igual a la fracción de la prima de riesgo que corresponda con el porcentaje de la siniestralidad que se estime pendiente de manifestación o de declaración. Si la aplicación de modelos estadísticos resulta en un importe mayor se tomará este último.
-Entre otros, se considera riesgos de manifestación diferida los riesgos de responsabilidad civil derivada del ejercicio de una actividad profesional o empresarial; de la producción, comercialización y venta de productos o servicios; de la actuación de las Administraciones Públicas; de daños producidos al medio ambiente; de la actuación de administradores, directores y altos cargos.
+PROVISIÓN PARA SINIESTROS (PPS)
+La provisión para siniestros debe representar el importe total de las obligaciones pendientes de la entidad derivadas de los siniestros ocurridos con anterioridad a la fecha de cálculo.
+La provisión es igual a la diferencia entre su costo total estimado o cierto y el conjunto de los importes ya pagados por razón de tales siniestros. Dicho costo incluye los gastos imputables a las prestaciones cualquiera que sea el origen, que se puedan producir hasta la total liquidación y pago del siniestro.
+Las cantidades a recuperar por el ejercicio de las acciones que correspondan al asegurador frente a las personas responsables del siniestro no pueden deducirse del importe de la provisión. Dichas recuperaciones pueden reconocerse como un activo, al momento del traspaso efectivo de la propiedad de éstos a la compañía.
+La provisión debe tener en cuenta todos los factores y circunstancias que influyan en su costo final, debiendo actualizarse permanentemente con la información que la compañía obtenga con relación al siniestro.
+Las entidades deben mantener a disposición de la Superintendencia toda la documentación de respaldo para la constitución de esta provisión, tales como informes de preliquidación y liquidación, copias de demandas interpuestas en contra de la aseguradora, pronunciamientos arbitrales, informes de peritos y otros.
+Cuando la indemnización haya de pagarse en forma de renta, la provisión a constituir se calculará conforme a las normas establecidas en este reglamento para la provisión matemática.
+A) Componentes de la provisión para siniestros
+La provisión para siniestros está integrada por:
+i. Provisión para siniestros reportados.
+ii. Provisión para siniestros ocurridos y no reportados.
+Provisión para siniestros reportados:
+Esta provisión incluye el importe de todos aquellos siniestros ocurridos y declarados antes de la fecha de cálculo. Forman parte de ella los gastos imputables a prestaciones y, en su caso, los intereses de mora y las penalizaciones legalmente establecidas en las que haya incurrido la entidad.
+El cálculo de la provisión se realiza de forma individual para cada siniestro. Periódicamente debe realizarse una comprobación de la suficiencia de la provisión por grupos de riesgo homogéneos y como mínimo por líneas de seguros, utilizando el método estadístico que la entidad considere adecuado, el cual debe mantenerse en el tiempo y debe estar recogido en la nota técnica del producto. Esta provisión debe dotarse por el monto que resulte mayor entre ambos cálculos.
+Los siniestros reportados se clasifican de la siguiente forma:
+a) Siniestros en proceso de liquidación: siniestros cuyas circunstancias de ocurrencia, sujeción a la cobertura amparada y monto de la eventual indemnización, se encuentra en proceso de determinación.
+b) Siniestros liquidados y controvertidos por el asegurado: comprende los siniestros que estando liquidados han sido cuestionados por el asegurado. En este caso la estimación debe considerar los eventuales costos adicionales del proceso de solución de la controversia, tales como honorarios de abogados y peritos, costos judiciales, entre otros.
+c) Siniestros liquidados y no pagados: comprende todos los siniestros cuya liquidación ha sido aceptada por las partes en cuanto al monto y forma de pago y que, a la fecha de cierre de los estados financieros, aún no han sido pagados al asegurado.
+La provisión incluye las participaciones en beneficios que se hayan asignado individualmente a tomadores, asegurados o beneficiarios y que se encuentren pendientes de pago.
+Provisión para siniestros ocurridos y no reportados (OYNR):
+La provisión para siniestros ocurridos y no reportados se calcula por grupos de riesgos homogéneos y como mínimo por líneas de seguros Debe recoger el importe estimado de los siniestros ocurridos antes de la fecha de cálculo y no declarados en esa fecha.
+Para la estimación de esta provisión se utiliza el “método de los triángulos de siniestros ocurridos”, la cual se detalla a continuación:
+Método de los triángulos de siniestros ocurridos
+Para la aplicación de este método deberá contarse con las siguientes bases de datos que contengan la siguiente información correspondiente como mínimo a los últimos 5 años hasta la fecha de cálculo:
+Base de siniestros pagados:
+Grupo de riesgo homogéneo, como mínimo línea de seguro
+Número de siniestro
+Fecha de ocurrencia
+Fecha de declaración
+Fecha de liquidación
+Monto liquidado: debe incluir los importes pagados por la entidad relacionados con el siniestro, incluyendo los gastos imputables a las prestaciones.
+Base de siniestros provisionados:
+Grupo de riesgo homogéneo, como mínimo línea de seguro
+Número de siniestro
+Fecha de ocurrencia
+Fecha de declaración
+Monto provisionado: debe incluir el importe total de las obligaciones pendientes de la entidad derivadas de los siniestros, incluyendo los gastos imputables a las prestaciones cualquiera que sea el origen, que se puedan producir hasta la total liquidación y pago del siniestro.
+A cada fecha de cálculo se deben construir las siguientes matrices, las cuales deben presentar información agrupada por períodos de doce meses:
+Matriz de pagos por periodo
+Pagos de siniestros | Periodo de desarrollo
+Período de ocurrencia del Siniestro | 1 | 2 | … | j | … | N
+Período 1 | P11 | P12 | … | P1j | … | P1N
+Período 2 | P21 | P22 | … | P2j | … |
+… | … | … | … | … | |
+Período i | Pi1 | Pi2 | … | | |
+… | … | … | | | |
+Período k | Pk1 | | | | |
+Donde:
+Pij = corresponde a los pagos realizados en el periodo j por siniestros ocurridos en el período i.
+A partir de la matriz de pagos por periodo, deberá confeccionarse la matriz de pagos acumulados.
+Matriz de pagos acumulados
+Pagos acumulados de siniestros | Periodo de desarrollo
+Período de ocurrencia del Siniestro | 1 | 2 | … | j | … | N
+Período 1 | S11 | S12 | … | S1j | … | S1N
+Período 2 | S21 | S22 | … | S2j | … |
+… | … | … | … | … | |
+Período i | Si1 | Si2 | … | | |
+… | … | … | | | |
+Período k | Sk1 | | | | |
+Donde:
+Sij = corresponde al total de pagos realizados hasta el periodo j por siniestros ocurridos en el periodo i:
+[imagen]
+Matriz de provisiones para siniestros reportados
+Provisión de siniestros | Periodo de desarrollo
+Período de ocurrencia del Siniestro | 1 | 2 | … | j | … | N
+Período 1 | R11 | R12 | … | R1j | … | R1N
+Período 2 | R21 | R22 | … | R2j | … |
+… | … | … | … | … | |
+Período i | Ri1 | Ri2 | … | | |
+… | … | … | | | |
+Período k | Rk1 | | | | |
+Donde:
+Rij = corresponde a las provisiones para siniestros reportados constituidas en el periodo j por siniestros ocurridos en el periodo i.
+A partir de las matrices de pagos acumulados de siniestros y de provisiones para siniestros reportados, se deberá confeccionar la matriz de costos totales:
+Matriz de costos totales
+Costos totales | Periodo de desarrollo
+Período de ocurrencia del Siniestro | 1 | 2 | … | j | … | N
+Período 1 | C11 | C12 | … | C1 j | … | C1 N
+Período 2 | C21 | C22 | … | C2 j | … |
+… | … | … | … | … | |
+Período i | Ci1 | Ci2 | … | | |
+… | … | … | | | |
+Período k | Ck1 | | | | |
+Donde:
+[imagen]
+Además, se deben calcular los factores de paso (Ft)para cada período de desarrollo y sus correspondientes factores acumulados (FAt)
+[imagen]
+[imagen]
+Con el objeto de estimar la provisión de OYNR se confecciona la siguiente tabla:
+Período de ocurrencia del Siniestro | Costos totales | Factores de desarrollo acumulados | Última pérdida esperada | OYNR |
+(A) | (B) | (UP)=(A) x (B) | (D)=(UP)-(A) |
+Período 1 | C1N | FAN =1(*) | UP1 | OYNR1 |
+Período 2 | C2(N-1) | FAN-1 | UP2 | OYNR2 |
+Período 3 | C3(N-2) | FAN-2 | UP3 | OYNR3 |
+… | … | … | … | … |
+Período i | Ci(N-(i-1)) | FA(N-(i-1)) | UPi | OYNRi |
+… | … | … | … | … |
+Período k | Ck10 | FA1 | UPk | OYNRk |
+Total | | | | Provisión de OYNR= [imagen] |
+(*) Cuando el triángulo está incompleto en el sentido de que el año más antiguo no está totalmente pagado, es necesario estimar FAN. En estos casos la entidad debe informar a la Superintendencia como se estima ese factor.
+El valor a contabilizar de la provisión de OYNR, computado por grupo de riesgo homogéneo y como mínimo por línea de seguro, no puede ser negativo. El resultado debe ser expresado en colones a cada fecha de reporte de estados financieros.
+Siniestros excepcionales: pueden existir siniestros de baja frecuencia y alta intensidad o severidad, que poseen un comportamiento en su perfil de ocurrencia o denuncia que es diferenciado del resto de los reclamos. Su inclusión en el cálculo de factores de paso o desarrollo genera una distorsión en la estimación del desarrollo de siniestros, razón por la cual debe eliminarse del cálculo de los factores de desarrollo aquellos siniestros cuya consideración individual modifique significativamente el valor final de la provisión de OYNR. Así, los siniestros excluidos deben ser eliminados del cálculo de OYNR y debe justificarse actuarial y técnicamente los criterios de selección y clasificación utilizados, lo cual debe estar recogido en un informe y a disposición de la Superintendencia.
+Método simplificado
+Cuando la entidad carezca de la necesaria experiencia, por ser de reciente constitución, o por haber iniciado actividad en una nueva línea de seguro, podrá utilizar el siguiente método para el cálculo de la provisión para siniestros ocurridos y no reportados:
+OYNR = SD * PPD * CSP
+Donde:
+OYNR= Monto de siniestros ocurridos y no reportados.
+SD= Número de siniestros diarios.
+PPD= Plazo promedio demora en la denuncia del siniestro diario.
+CSP= Costos de siniestros promedio.
+Insuficiencia de la OYNR
+IOYNR: La estimación de la IOYNR surgirá de la insuficiencia que la provisión para siniestros reportados al inicio del período que haya generado durante los últimos doce meses. Se calcula de la siguiente manera:
+Factor IOYNR = (Pf + Pe) / Pi
+Donde,
+Pf: Provisión para siniestros reportados a la fecha de cálculo (provisión final) por siniestros ocurridos hasta 12 meses antes de la fecha de cálculo.
+Pe: Pagos realizados durante los últimos doce meses por siniestros ocurridos hasta doce meses antes de la fecha de cálculo.
+Pi: Provisión para siniestros reportados (provisión inicial) por siniestros ocurridos hasta doce meses antes de la fecha de cálculo.
+Luego,
+IOYNR = Max (Factor IOYNR-1; 0) * provisión para siniestros reportados en la fecha de cálculo.
+De esta forma, la provisión total será la suma del OYNR y IOYNR.
+B) Otros aspectos a considerar
+Metodologías alternativas
+En caso de que la entidad considere que estas metodologías no se ajustan a la experiencia de una cartera o grupo de riesgo homogéneo, la entidad puede proponer y justificar una metodología alternativa, la cual debe registrar ante la Superintendencia , ya sea durante el proceso de registro del producto o posterior al registro. A partir del momento en que la Superintendencia apruebe la metodología propuesta por la entidad, ésta tiene carácter de obligatoria.
+Primas cedidas
+Las obligaciones para la provisión para siniestros se contabilizarán sin considerar descuento alguno por la participación de los reaseguradores. La obligación de los reaseguradores debe reconocerse en la cuenta de activo que corresponda, según el manual de cuentas.
 ANEXO PT-5
-Cálculo de provisiones técnicas
-Provisión de participación en los beneficios (PPB)
-Esta provisión es parte de la Nota Técnica del seguro. Permite estimar el importe de los beneficios devengados en favor de los tomadores, asegurados o beneficiarios y el de las primas que proceda restituir a los tomadores o asegurados, en su caso, en virtud del comportamiento experimentado por el riesgo asegurado, en tanto no hayan sido asignados individualmente a cada uno de aquellos.
-Los seguros distintos del seguro de vida que garanticen el reembolso de primas bajo determinadas condiciones o prestaciones asimilables incluirán en esta provisión las obligaciones correspondientes a dicha garantía, calculadas conforme a las siguientes normas:
-a) Se incluirán en la provisión todas las obligaciones por los contratos que sobre la base de la información existente al cierre del ejercicio sean susceptibles de dar lugar a las prestaciones citadas.
-b) La provisión a dotar comprenderá el importe de las primas a reembolsar o prestaciones a satisfacer imputables al período o períodos del contrato ya transcurridos en el momento de cierre del ejercicio
+PROVISIÓN DE PARTICIPACIÓN EN LOS BENEFICIOS Y EXTORNOS
+Esta provisión reflejará el importe de los beneficios que correspondan y el monto de las primas que proceda restituir a los tomadores, asegurados o beneficiarios en su caso, en virtud del comportamiento experimentado por el riesgo asegurado o rendimiento financiero, en tanto no hayan sido asignados individualmente a cada uno de aquéllos.
+Los seguros que garanticen el reembolso de primas bajo determinadas condiciones o prestaciones asimilables incluyen en esta provisión las obligaciones correspondientes a dicha garantía, calculadas conforme a las siguientes normas:
+Se incluyen en la provisión todas las obligaciones por los contratos que sobre la base de la información existente a la fecha de cálculo sean susceptibles de dar lugar a las prestaciones citadas.
+La provisión comprende el importe de las primas a reembolsar o prestaciones a satisfacer imputables al período o períodos del contrato ya transcurridos a la fecha de cálculo.
+Las entidades deben justificar y registrar ante la Superintendencia la metodología específica para el cálculo de esta provisión, cuando aplique, durante el proceso de registro de cada producto.
+Cuando el importe de esta provisión sea asignado individualmente a tomadores, asegurados o beneficiarios, y se encuentre pendiente de pago, formará parte de la Provisión para Siniestros Reportados, específicamente en la Provisión de Siniestros Liquidados y no Pagados.
 ANEXO PT-6
-Cálculo de provisiones técnicas
-Provisión de vida en la que el riesgo de inversión lo asume el tomador (PRI)
-Esta provisión es parte de la Nota Técnica del seguro. Se determinará en función de los activos o índices que se hayan fijado como referencia para determinar el valor económico de los derechos del tomador.
-Se efectuarán las dotaciones a la provisión de seguros de vida que procedan para reflejar los riesgos derivados de estas operaciones que no sean efectivamente asumidos por el tomador.
+PROVISIÓN DE SEGUROS EN LOS QUE EL RIESGO DE INVERSIÓN LO ASUME EL TOMADOR
+La provisión de los seguros, asociados a los seguros de vida o renta, en los que contractualmente se estipule que el riesgo de inversión es soportado íntegramente por el tomador se determina en función de los activos o índices que se hayan fijado como referencia para determinar el valor económico de los derechos del tomador.
+Se efectuarán las dotaciones a la provisión de seguros de personas que procedan para reflejar los riesgos derivados de estas operaciones que no sean efectivamente asumidos por el tomador.
+Las entidades deberán justificar y registrar ante la Superintendencia la metodología específica para el cálculo de esta provisión durante el proceso de registro de cada producto.
+ANEXO PT-7
+PROVISIÓN DE SEGUROS EN LOS QUE EL RIESGO DE INVERSIÓN LO ASUME EL TOMADOR
+La provisión de los seguros, asociados a los seguros de vida o renta, en los que contractualmente se estipule que el riesgo de inversión es soportado íntegramente por el tomador se determina en función de los activos o índices que se hayan fijado como referencia para determinar el valor económico de los derechos del tomador.
+Se efectuarán las dotaciones a la provisión de seguros de personas que procedan para reflejar los riesgos derivados de estas operaciones que no sean efectivamente asumidos por el tomador.
+Las entidades deberán justificar y registrar ante la Superintendencia la metodología específica para el cálculo de esta provisión durante el proceso de registro de cada producto.

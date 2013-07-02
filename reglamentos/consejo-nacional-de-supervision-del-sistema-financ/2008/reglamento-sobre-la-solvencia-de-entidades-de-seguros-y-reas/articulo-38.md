@@ -1,2 +1,3 @@
-Artículo 38.—Valoración y actualización periódica de los requisitos. La auditoría interna o externa de la entidad supervisada debe evaluar, al menos semestralmente, el cumplimiento de los requisitos establecidos en artículo anterior. La documentación que demuestre dicha evaluación debe custodiarse y estar disponible para la Superintendencia.
-La evaluación de riesgos incorporará una opinión sobre el cumplimiento de requisitos y la gestión de la operación con derivados.
+Artículo 38 Contrapartes
+En los contratos a plazo (forwards), opciones no negociados en mercados organizados y permutas financieras (swaps) sólo pueden ser contrapartes las instituciones financieras que sean supervisadas por las autoridades competentes. Asimismo, las instituciones financieras deben poseer, para sus títulos de deuda de largo plazo, una clasificación de riesgo no menor a “AA” o su equivalente, y para sus instrumentos de corto plazo una clasificación de riesgo no menor a “A- 1” o su equivalente.
+Las entidades deben solicitar a las instituciones que funcionen como contrapartes aquella documentación que le permita demostrar el cumplimiento de los requerimientos establecidos.

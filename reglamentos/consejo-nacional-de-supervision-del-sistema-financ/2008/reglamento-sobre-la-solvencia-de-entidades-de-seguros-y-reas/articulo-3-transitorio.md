@@ -1,4 +1,3 @@
 Transitorio III
-Sin perjuicio de la obligación de las entidades aseguradoras y reaseguradoras de mantener en todo momento el capital mínimo dispuesto en la Ley Reguladora del Mercado de Seguros, las disposiciones del Capítulo II - Cálculo del requerimiento de capital de solvencia- rigen a partir del 31 de diciembre del 2010
-(Así adicionado mediante el aparte c) de la sesión Nº 865-2010 del 16 de julio de 2010)
-(Así reformado mediante sesión N° 888-2010 del 29 de octubre de 2010)
+Cuando las entidades carezcan de información para el cálculo de la provisión para siniestros ocurridos y no reportados en alguno de los grupos de riesgo homogéneo o líneas de negocio, y no puedan acogerse al método simplificado dispuesto en el Anexo PT-4, deben presentar a aprobación de la Superintendencia , en el plazo de 3 meses desde la entrada en vigor de este reglamento, un plan de acción para la implementación del “Método de los triángulos de siniestros ocurridos”. El plazo total de ejecución de dicho plan no puede superar los dos años desde la entrada en vigor del reglamento.
+Una vez aprobado por la Superintendencia , el plan será de acatamiento obligatorio para la entidad. Durante este plazo la entidad debe constituir la provisión de siniestros ocurridos y no reportados por el importe resultante de multiplicar el 20% por el monto de la provisión para siniestros reportados.

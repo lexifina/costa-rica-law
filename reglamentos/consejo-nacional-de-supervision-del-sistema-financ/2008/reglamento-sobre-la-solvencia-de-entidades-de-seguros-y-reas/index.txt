@@ -40,15 +40,9 @@ articulo-39.md
 articulo-40.md
 articulo-41.md
 articulo-42.md
-articulo-43.md
-articulo-44.md
-articulo-45.md
-articulo-46.md
-articulo-47.md
-articulo-48.md
-articulo-49.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
+articulo-4-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md

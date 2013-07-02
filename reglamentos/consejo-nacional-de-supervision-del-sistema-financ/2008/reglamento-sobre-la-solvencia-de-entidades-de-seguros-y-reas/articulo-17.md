@@ -1,2 +1,6 @@
-Artículo 17.—Uso de calificaciones para valorar activos. Se aceptan para efectos de la aplicación de ponderadores, en el cálculo de la suficiencia patrimonial, las calificaciones públicas de riesgo emitidas bajo criterio internacional por agencias calificadoras internacionales o las agencias calificadoras autorizadas por la SUGEVAL. Las calificaciones de las agencias calificadoras autorizadas por la SUGEVAL deben ser homologadas a las calificaciones de las agencias internacionales según la metodología que se define en los Lineamientos Generales.
-La calificación de largo plazo del emisor o deudor se utiliza para los activos más pasivos contingentes de largo plazo y la calificación de corto plazo se utiliza para los activos más pasivos contingentes cuya fecha de vencimiento esté dentro del plazo que abarca la calificación de corto plazo. Cuando el emisor o deudor solo cuente con una calificación de largo plazo, ésta puede utilizarse para ponderar los activos más pasivos contingentes de largo y corto plazo. Cuando el emisor o deudor solo cuente con una calificación de corto plazo, ésta solo puede utilizarse para ponderar los activos más pasivos contingentes cuya fecha de vencimiento esté dentro del plazo que abarca la calificación de corto plazo.
+TÍTULO III
+NORMAS DE VALORACIÓN DE ACTIVOS Y PASIVOS
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 17 Principio general
+Las entidades aseguradoras y reaseguradoras deben valorar los activos y pasivos de conformidad con las normas establecidas en la “Normativa contable aplicable a los entes supervisados”, en el “Plan de cuentas para entidades de seguros” y en este reglamento y sus lineamientos.

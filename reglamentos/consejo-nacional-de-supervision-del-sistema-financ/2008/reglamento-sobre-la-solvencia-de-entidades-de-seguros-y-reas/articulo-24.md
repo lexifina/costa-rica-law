@@ -1,1 +1,2 @@
-Artículo 24.—Análisis de experiencia. Las entidades establecerán procesos y procedimientos para garantizar que las mejores estimaciones, y las hipótesis en las que se base el cálculo de la mejor estimación, se comparen periódicamente con los datos observados. En el evento de verificarse una desviación sistemática entre la experiencia y los cálculos de la mejor estimación la entidad debe realizar los ajustes en los métodos actuariales o las hipótesis utilizadas en forma oportuna.
+Artículo 24 Criterios de cumplimiento
+El régimen de inversión de los activos que respaldan las provisiones técnicas se sujetará a lo dispuesto en los artículos 14 y 15 de la Ley Reguladora del Mercado de Seguros y a las presentes disposiciones.

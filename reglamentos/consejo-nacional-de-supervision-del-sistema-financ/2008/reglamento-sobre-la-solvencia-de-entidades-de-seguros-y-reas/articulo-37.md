@@ -1,10 +1,10 @@
-Artículo 37.—Requisitos. Los requisitos previos para realizar operaciones con instrumentos financieros derivados son los siguientes:
-a) Aprobación formal, por parte del Órgano de Dirección, de:
-i. Políticas y procedimientos para la operación y el control de las operaciones con derivados.
-ii. Políticas de cobertura así como los límites establecidos para dichas operaciones.
-iii. Procedimientos para valorar las operaciones con derivados para las cuales no exista un mercado líquido. Esto incluye la determinación del método de valoración y la referencia a los factores o variables exógenas a utilizar en la valoración.
-iv. Procedimientos bajo los cuales se dará seguimiento a la valoración de los instrumentos en los que invierte y los medios de información hacia los Comités de Inversión y de Riesgos.
-v. Políticas sobre los tipos de contratos y cláusulas básicas.
-b) El Comité de Riesgos debe aprobar el estudio técnico en relación con el uso de derivados cuya adquisición se analiza.
-c) La entidad debe contar con un programa de capacitación permanente del personal que estará involucrado en el manejo de los productos derivados, al menos para las funciones de operación, seguimiento y control. La entidad debe mantener la documentación que acredite la participación del personal, así como los atestados y reconocida experiencia de quienes imparten la capacitación, en los cursos y los programas de capacitación recibidos.
-d) Contar con sistemas electrónicos de información que permitan medir y evaluar diariamente los riesgos provenientes de las operaciones con derivados, sus cuentas de margen y garantías, así como el registro contable de estas operaciones.
+CAPÍTULO IV
+AGENTES BURSÁTILES, INTERMEDIARIOS Y CONTRAPARTES
+Artículo 37 Requisitos de los agentes bursátiles e intermediarios
+Los agentes bursátiles e intermediaros en las operaciones con derivados deben cumplir los siguientes requisitos:
+a) Estar inscritos y autorizados por el órgano de supervisión del Estado que corresponda, para transar con derivados en los mercados definidos en este reglamento.
+b) Revelar claramente a las entidades las funciones que desempeñan en el mercado.
+c) Revelar a las entidades sus potestades para captar márgenes o cualquier otro depósito o garantía, por encima de los establecidos por la bolsa o la cámara de compensación, y las condiciones bajo las cuales lo pueden hacer.
+d) Manejar las transacciones en cuentas separadas de las propias y de los demás clientes. Deben establecerse mecanismos legales para asegurar su protección en caso de insolvencia por parte del intermediario.
+e) Los agentes bursátiles, intermediarios e instituciones financieras que celebren operaciones fuera de una bolsa de derivados, deben ostentar una calificación internacional de riesgo mínima de “AA” o su equivalente.
+f) En contratos OTC, el intermediario debe asegurar a la entidad supervisada el acceso a la información sobre precios y aspectos relevantes del instrumento.

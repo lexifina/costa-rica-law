@@ -1,1 +1,2 @@
-Artículo 4º—Lineamientos generales. Mediante acuerdo y de conformidad con lo dispuesto en este Reglamento, el Superintendente debe emitir los Lineamientos Generales necesarios para la aplicación de esta normativa. Estos lineamientos generales pueden ser modificados por el Superintendente para mantener actualizados los códigos de las cuentas contables para los diferentes cálculos, la metodología de homologación de calificaciones, la tasa de interés técnico y la metodología de cálculo del VeR.
+Artículo 4 Lineamientos generales
+Mediante acuerdo y de conformidad con lo dispuesto en este Reglamento, el Superintendente debe emitir los lineamientos generales necesarios para la aplicación de esta normativa.

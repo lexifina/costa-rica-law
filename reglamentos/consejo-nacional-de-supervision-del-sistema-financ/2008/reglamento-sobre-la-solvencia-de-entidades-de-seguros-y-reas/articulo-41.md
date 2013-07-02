@@ -1,1 +1,2 @@
-Artículo 41.—Valoración de posiciones. Las operaciones con derivados deben ser valoradas diariamente a precios de mercado. En aquellos instrumentos para los que no exista un mercado líquido el método de valoración a utilizar debe ser consistente con el mercado.
+Artículo 41 Referencias
+Toda alusión a la “provisión de riesgos en curso” en otras normas y reglamentos debe entenderse referida a la “provisión por insuficiencia de primas” desarrollada en este reglamento.
