@@ -1,0 +1,1 @@
+Artículo 63.—Para obtener la aprobación de los planos de un condominio que se vaya a desarrollar en etapas en el cantón de Esparza, es necesario realizar el trámite del aprobación del Anteproyecto ante el INVU y el Ministerio de Salud previo a la solicitud ante la Municipalidad.

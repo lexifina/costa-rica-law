@@ -1,0 +1,1 @@
+Artículo 23.—Contra la resolución que aprueba o deniega el Permiso de Construcción, son procedentes los recursos de revocatoria y/o apelación de conformidad con lo previsto en el artículo 153 y siguientes del Código Municipal.

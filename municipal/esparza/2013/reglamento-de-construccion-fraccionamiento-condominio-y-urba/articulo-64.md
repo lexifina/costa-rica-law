@@ -1,0 +1,1 @@
+Artículo 64.—Habiéndose oficializado plan regulador costero, el titular de un derecho de concesión podrá someterlo a un régimen condominal, previo cumplimiento de las disposiciones que al respecto contempla la Ley Reguladora de la Propiedad en Condominio, el Capítulo IV de Reglamento a esa ley, y del respectivo plan regulador.

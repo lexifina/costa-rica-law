@@ -1,0 +1,1 @@
+Artículo 4º—Para tramitar cualquier licencia urbanística deberá presentarse el plano catastrado del inmueble y la autorización del propietario actual de la misma (formalizado con la firma del propietario en el formulario o carta de solicitud según sea el caso).

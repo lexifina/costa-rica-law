@@ -1,0 +1,1 @@
+Artículo 16.—En resguardo de la seguridad de los peatones, las construcciones, remodelaciones o reparaciones de edificios de más de una planta que estén colocados a la orilla de la acera o calle se deberá levantar además, una valla de 80 centímetros de alto sobre la línea del cordón de la acera o área que corresponda.

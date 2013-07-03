@@ -1,0 +1,2 @@
+Artículo 25.—La Municipalidad por medio del DOO, deberá llevar un libro de registro en el cual se asentará el acta para cada solicitud. En la misma se deberá indicar el nombre, lugar y ubicación de la construcción o edificación que se va a construir, ampliar, remodelar o demoler.
+También se hará constar el día y hora en que se señaló el alineamiento y nivel, así como los datos y medidas de los mismos

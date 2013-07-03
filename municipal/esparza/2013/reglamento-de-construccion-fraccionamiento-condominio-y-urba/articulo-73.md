@@ -1,0 +1,1 @@
+Artículo 73.—Todo lo no contemplado en este Capítulo, se regirá por la Ley Reguladora de la Propiedad en Condominio, el Reglamento a la Ley Reguladora de la Propiedad en Condominio, Ley de Construcciones, Reglamento de Construcciones y Leyes conexas relacionadas con la materia.

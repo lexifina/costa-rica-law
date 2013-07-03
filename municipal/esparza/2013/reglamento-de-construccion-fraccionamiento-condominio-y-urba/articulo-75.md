@@ -1,0 +1,1 @@
+Artículo 75.—Toda persona física o jurídica, privada o pública para realizar el trámite de solicitud de permiso de construcción de urbanizaciones, deberá cumplir con los siguientes requisitos mínimos en cada una de las etapas previstas:

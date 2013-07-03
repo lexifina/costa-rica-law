@@ -1,0 +1,1 @@
+Artículo 3º—Es obligatoria la obtención de licencia municipal de previo a segregar o reunir fincas, construir o urbanizar en éstas, en los términos del presente Reglamento y demás legislación urbanística conexa, sin perjuicio de las demás autorizaciones que sean procedentes con arreglo a la legislación sectorial aplicable.

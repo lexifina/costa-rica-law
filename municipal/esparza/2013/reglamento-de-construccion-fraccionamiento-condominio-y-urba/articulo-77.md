@@ -1,0 +1,1 @@
+Artículo 77.—Aprobación del Anteproyecto. Para todo proyecto de urbanización o fraccionamiento, sea residencial, comercial o industrial, es requisito obligatorio la presentación de un anteproyecto, con el propósito de establecer la factibilidad de su desarrollo. La aprobación del anteproyecto no implica la autorización para iniciar la ejecución de la obra o proceder a la venta.
