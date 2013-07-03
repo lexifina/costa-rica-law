@@ -1,0 +1,3 @@
+2º—Mantener con el carácter de información pública la documentación no consignada en el punto 1. anterior y aportada durante el proceso de formalización de un contrato para generar electricidad al amparo del capítulo I de la Ley N° 7200, sus reformas y reglamento.
+En cumplimiento de lo que ordena el artículo 345 de la Ley General de la Administración Pública, se indica que contra esta resolución cabe el recurso ordinario de revocatoria o reposición ante la Gerencia de Electricidad del ICE, a quien corresponde resolverlo y deberá interponerse en el plazo de tres días hábiles, contados a partir del día siguiente a la publicación de la presente resolución.
+Publíquese.
