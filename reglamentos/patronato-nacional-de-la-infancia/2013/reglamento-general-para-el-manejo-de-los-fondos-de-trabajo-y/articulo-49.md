@@ -1,0 +1,1 @@
+Artículo 49.—Arqueos. Las Cajas Chicas estarán sujetas a arqueos periódicos sin previo aviso por parte de la Auditoría Interna, el Departamento Financiero Contable, Administradores Regionales y/o coordinadores, según la conveniencia institucional.

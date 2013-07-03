@@ -1,0 +1,3 @@
+Artículo 25.—Requisitos para el trámite de compras. En atención a las erogaciones autorizadas por el Fondo para la compra de bienes y servicios, los solicitantes y el responsable deberán observar los siguientes requisitos:
+a) El Director Regional o el Responsable de la administración del fondo, será el encargado de verificar y evaluar la procedencia de la justificación.
+b) El administrador (a) del Fondo de Trabajo verificará que el bien o servicio solicitado corresponda a las subpartidas presupuestadas autorizadas para realizar erogaciones por este medio y que su trámite se hace por excepción según se indica en el artículo 5°.

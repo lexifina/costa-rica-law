@@ -1,0 +1,1 @@
+Artículo 15.—Sobrantes de dinero. Los sobrantes de dinero resultado de los arqueos, se depositarán en la Caja Central de la Oficina de Tesorería o en la cuenta corriente que le indique esa instancia a más tardar el día hábil siguiente de conocido el hecho.

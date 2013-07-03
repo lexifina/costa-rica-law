@@ -1,0 +1,1 @@
+Artículo 13.—Monto del pago máximo. Corresponderá a la Gerencia de Administración autorizar el monto máximo a pagar a proveedores por la compra de bienes o servicios por el Fondo. Para modificaciones a los topes indicados le corresponderá al Departamento Financiero Contable realizar las estimaciones económicas pertinentes y recomendar a la Gerencia lo que corresponda.

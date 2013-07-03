@@ -1,0 +1,1 @@
+Artículo 48.—Prohibición de realizar transacciones distintas a las indicadas. Los recursos de las Cajas Chicas no deberán ser utilizados para realizar cambios de cheques, préstamos temporales u operaciones distintas a las indicadas en este Reglamento.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los requerimientos del fondo
+Artículo 17.—Límite del desembolso. Los desembolsos se deberán ajustar al monto de pago máximo establecido de conformidad con el artículo 13º, excepto los correspondientes a gastos por viáticos y transportes al interior del país, que se emitan al amparo de lo establecido en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República. Para las compras de bienes o servicios por montos superiores al monto de pago máximo, deberán ser aprobadas por la Gerencia de Administración o el funcionario en que ésta delegue, previa solicitud del Responsable del Fondo.

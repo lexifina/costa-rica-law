@@ -1,0 +1,5 @@
+Artículo 9º—Solicitud de incremento temporal o permanente del Fondo. En ocasiones especiales y con el propósito de atender situaciones derivadas de la atención de la niñez y la adolescencia así como atender lo normado en el Sistema Alternativo para la Compra de Juguetes y Ropa se puede solicitar un aumento temporal del Fondo de Trabajo. Así también, cuando las circunstancias lo ameriten, se puede solicitar un aumento permanente del Fondo. En estos casos dicho incremento será aprobado por la Gerencia de Administración previa solicitud del Director Regional, indicando las razones y los motivos suficientemente fundamentados que justifiquen dicho incremento, temporal o permanente y deberá cumplir con lo siguiente:
+a) Objetivo que cumple o cumplirá el Fondo.
+b) La suma temporal o permanente requerida de conformidad con el volumen estimado de transacciones que se realizarán.
+Lo anterior sujeto al presupuesto institucional y regional.
+c) En el caso de las solicitudes de incrementos temporales, se establece un plazo de liquidación ante el Departamento Administración de Presupuesto de 30 días naturales después del recibido el depósito correspondiente.

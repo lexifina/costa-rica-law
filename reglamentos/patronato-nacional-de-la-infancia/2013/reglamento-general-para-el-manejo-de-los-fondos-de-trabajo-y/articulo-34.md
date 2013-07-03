@@ -1,0 +1,1 @@
+Artículo 34.—Requisitos para el pago. Todo pago realizado por medio de los Fondos de Caja General debe tener como respaldo una factura comercial la cual debe cumplir con los requisitos establecidos en el Artículo 19 de este Reglamento.
