@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-R-002-2013 del 8 de enero del 2013, publicada en el Alcance Digital N° 23 a La Gaceta Nº 24 del 4 de febrero del 2013.
