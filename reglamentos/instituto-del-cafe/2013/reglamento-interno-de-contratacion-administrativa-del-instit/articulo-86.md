@@ -1,0 +1,2 @@
+CAPÍTULO VII: CONTRATACIÓN DIRECTA POR ESCASA CUANTÍA.
+Artículo 86. Escasa Cuantía. El ICAFE procederá a la adquisición de bienes y servicios bajo el procedimiento de escasa cuantía de conformidad con lo establecido en la Ley de Contratación Administrativa y su Reglamento, cuando su valor no sobrepase el establecido por la Contraloría General de la República para dicho fin, el cual variará automáticamente conforme este ente lo determine.

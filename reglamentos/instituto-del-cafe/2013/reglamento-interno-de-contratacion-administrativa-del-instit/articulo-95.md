@@ -1,0 +1,1 @@
+Artículo 95. Apego al reglamento. Aquellas contrataciones establecidas por la Ley de Contratación Administrativa y su Reglamento que no hayan sido mencionadas en el presente reglamento se regirán por lo dispuesto en dichos cuerpos normativos. Mismos por ser normativa de rango superior a este reglamento.

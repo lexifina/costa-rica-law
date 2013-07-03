@@ -1,0 +1,1 @@
+Artículo 105. Refrendo de contratos. Las contrataciones administrativas que requieran del refrendo se regirán conforme lo regulado por la Ley de Contratación Administrativa y su Reglamento y el Reglamento.

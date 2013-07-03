@@ -1,0 +1,1 @@
+Artículo 77. Estudio de ofertas y solicitud de aclaraciones. Toda aclaración, aporte de documentación adicional o subsanaciones, requerida por la(s) unidad(es) o dependencia(s) que tengan a cargo el estudio y valoración de ofertas, serán tramitadas a través de la Unidad de Contratación Administrativa.

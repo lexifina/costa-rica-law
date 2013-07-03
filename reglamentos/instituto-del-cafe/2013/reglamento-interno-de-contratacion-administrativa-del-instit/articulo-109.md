@@ -1,0 +1,1 @@
+Artículo 109. Plazo para la ejecución contractual. Para la entrega y recepción de las obras, bienes o servicios contratados, se tendrá presente que el plazo señalado para la respectiva ejecución será el que establezca en el cartel que así se indicará en la Orden de compra o el contrato.

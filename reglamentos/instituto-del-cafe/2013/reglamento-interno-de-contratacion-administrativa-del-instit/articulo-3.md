@@ -1,0 +1,1 @@
+Artículo 3. Principios generales: Para la interpretación de este Reglamento serán aplicables los siguientes principios generales, establecidos en el artículo No.2 del Reglamento a la Ley de Contratación Administrativa.

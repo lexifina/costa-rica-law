@@ -1,0 +1,4 @@
+Artículo 54. Visto bueno al cartel Para Licitaciones Públicas y Abreviadas el cartel se remitirá para revisión a la Asesoría Jurídica y a la instancia técnica o administrativa que tengan conocimiento especializado o participación en la ejecución, supervisión o verificación de la contratación, los cuales deben otorgar un visto bueno.
+En caso de contrataciones de escasa cuantía el visto bueno al cartel será otorgado por la unidad solicitante.
+Para contrataciones que, por su naturaleza, la Institución no cuente con personas calificadas con conocimientos sobre la materia, la UCA podrá solicitar asesorías externas.
+Para ello, podrá requerir colaboración a otras entidades públicas o bien, se contratarán por los medios que la legislación determine, los estudios técnicos necesarios y la asesoría profesional para la determinación de los materiales, mano de obra y precios.

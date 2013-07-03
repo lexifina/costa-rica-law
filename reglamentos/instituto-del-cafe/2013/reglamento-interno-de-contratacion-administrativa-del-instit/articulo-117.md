@@ -1,0 +1,4 @@
+CAPITULO XIII
+COMPRAS ELECTRONICAS
+El ICAFE basado en el Capítulo X “Medios Electrónicos, regulación sobre medios electrónicos en procedimientos de Contratación Administrativa ”, conforme el artículo No. 40 de la Ley de Contratación Administrativa y los artículos No. 140, 141, 142, 144 del Reglamento de Contratación Administrativa , establece como parte de sus procesos de Contratación Administrativa, la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea “Mer-Link”.
+Artículo 117—Objeto. El ICAFE se somete al Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea “Mer-Link” aprobado mediante Decreto Ejecutivo No. 36242 del 21/10/2010 así como lo relacionado con el uso del Registro único de proveedores y del Catálogo de bienes y servicios, publicado en Diario Oficial La Gaceta No. 221 del 15 de Octubre del 2010.

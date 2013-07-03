@@ -1,0 +1,4 @@
+CAPÍTULO IX: SOLICITUDES A CONTRALORÍA GENERAL DE LA
+REPÚBLICA.
+Artículo 94. Autorización CGR. En aquellas contrataciones que por su especialidad o complejidad, sea necesaria la autorización de la Contraloría General de la República, la UCA confeccionará la solicitud con un plazo no mayor a 15 días hábiles una vez recibida la solicitud. Los aspectos de fondo de la solicitud, tales como razones técnicas, costobeneficio, interés institucional serán responsabilidad de la dependencia solicitante.
+Para la presentación de dicha solicitud a la Contraloría General de la República será necesario contar con el visto bueno de la Unidad de Asuntos Jurídicos quien contará con un plazo de 15 días hábiles para comunicar sus conclusiones a la UCA. Asimismo, dicha solicitud deberá ser firmada por la Dirección Ejecutiva.

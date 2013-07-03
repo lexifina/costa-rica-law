@@ -1,0 +1,3 @@
+Artículo 26. Comunicación del Programa de Adquisiciones de Bienes y Servicios: La Gerencia de Administración y Finanzas en el mes de octubre de cada año deberá comunicar el Programa de Adquisición de Bienes y Servicios no Personales a la Unidad de Contratación Administrativa, el cual, debe contener como mínimo:
+- Programa de Adquisición de Bienes y Servicios no Personales por periodo trimestral y anual, formato que será utilizado para su publicación en el Diario Oficial La Gaceta.
+- Detalle de los compromisos en adquisiciones de bienes o servicios del período presupuestario anterior, haciendo mención de la dependencia administrativa (Dirección Ejecutiva, Auditoría Interna, Gerencia, Unidad) y proyecto que corresponde.

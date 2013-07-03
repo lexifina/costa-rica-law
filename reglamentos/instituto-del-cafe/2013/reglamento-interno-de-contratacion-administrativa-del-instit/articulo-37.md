@@ -1,0 +1,1 @@
+Artículo 37- De la relación con los proveedores. Una vez iniciado el proceso de Contratación Administrativa, la relación con los potenciales oferentes de bienes, servicios u obras, corresponde exclusivamente al área de Contratación Administrativa.

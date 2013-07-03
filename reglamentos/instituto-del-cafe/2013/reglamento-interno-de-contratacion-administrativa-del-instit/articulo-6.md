@@ -1,0 +1,4 @@
+SECCION II:
+REGISTRO DE PROVEEDORES
+Artículo 6. Registro de proveedores: El Registro de Proveedores constituye un elemento esencial de consulta para la Unidad de Contratación Administrativa, que permitirá mantener actualizados los requisitos y las características de los proveedores potenciales en cuanto a bienes y servicios que éstos ofrecen. Tiene por objeto facilitar la consecución de los bienes y servicios necesarios. El registro de proveedores debe ser implementado, resguardado y actualizado por la Unidad de Contratación Administrativa para aquellos procesos ordinarios del ICAFE.
+En los casos que la Ley de Contratación Administrativa y demás instituciones reguladoras lo permitan, el ICAFE podrá hacer uso de registros de proveedores utilizados en plataformas electrónicas para compras del estado.

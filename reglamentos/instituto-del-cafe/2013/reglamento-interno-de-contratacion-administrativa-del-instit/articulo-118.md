@@ -1,0 +1,2 @@
+Artículo 118—Alcance. Este Reglamento será de acatamiento obligatorio para los proveedores registrados que facultativamente decidan utilizar Mer-link para contratar con el ICAFE, los cuales previamente hayan suscrito el respectivo contrato de prestación de servicios y aceptado las Políticas de uso del Sistema, según corresponda, así como para cualquier otro usuario del Sistema.
+La aplicación de este Reglamento no exime al ICAFE de cumplir también las responsabilidades y los procedimientos dispuestos en la Ley de Contratación Administrativa y su Reglamento.

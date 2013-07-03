@@ -1,0 +1,1 @@
+Artículo 39- De la comunicación con los proveedores. Se considera oficial la información generada en el proceso de Contratación Administrativa disponible en la página web, así como cualquier mensaje que se transmita en forma electrónica o telemática, por un funcionario debidamente acreditado para emitir la información.

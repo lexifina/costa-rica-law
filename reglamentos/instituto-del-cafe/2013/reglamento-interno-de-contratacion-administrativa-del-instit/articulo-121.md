@@ -1,0 +1,1 @@
+Artículo 121—Plazo para el uso de Mer-link. La incorporación de los procesos de Contratación dentro del sistema MERLINK deberán realizarse a partir de la presente publicación del Reglamento Interno y deberá estar implementado en su totalidad en el ICAFE antes del 30 de Setiembre del 2014.

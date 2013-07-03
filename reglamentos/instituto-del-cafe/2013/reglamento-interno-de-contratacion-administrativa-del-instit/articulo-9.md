@@ -1,0 +1,1 @@
+Artículo 9. Revisión de información. La Unidad de Contratación Administrativa deberá verificar si el interesado aporta toda la información solicitada. En caso contrario deberá conceder un plazo no mayor de diez días hábiles para que se subsanen los defectos. Si la prevención no es atendida en tiempo, la solicitud de inscripción se tendrá por rechazada.

@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación: Las disposiciones del presente Reglamento serán aplicables a todos los procedimientos de Contratación Administrativa que promueva el ICAFE, a través de la Unidad de Contratación Administrativa.
