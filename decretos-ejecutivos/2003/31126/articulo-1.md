@@ -39,6 +39,7 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 (Nota de Sinalevi: Mediante el numeral 1° del decreto ejecutivo N° 37344 del 28 de agosto del 2012, se nombra como miembro propietario de esta Comisión a la señora Eugenia Solano Villalobos, representante de la Unión Costarricense de Cámaras de la Empresa Privada)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37468 del 14 de noviembre de 2012, se nombra como miembro propietario de esta Comisión al señor Oldemar Përez Hernández, representante de la Asociación Mesa Nacional Indígena)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37674 del 11 de marzo del 2013, se nombra como miembro propietario de esta Comisión al señor Esteban Cerdas Quirós, representante de la Ministra de Salud)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37929 del 3 de julio del 2013, se nombra como miembro propietario de esta Comisión a la señora Ana Lorena Guevara Fernández , representante del Ministerio de Ambiente y Energía)
 2. Miembros suplentes:
 a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010)
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
@@ -73,3 +74,4 @@ k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37468 del 14 de noviembre de 2012, se nombra como miembro suplente de esta Comisión al señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37674 del 11 de marzo del 2013, se nombran como miembros suplentes de esta Comisión a la señora Alejandra Chaverri Soto, como representante de la Ministra de Salud y a la señora Grace García Muñoz, representante de la Federación Costarricense para la Conservación del Ambiente)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37962 del 01 de julio del 2013, se nombra como miembro suplente de esta Comisión a la señora Ana Victoria Giusti Méndez, como representante de la Ministra de Salud)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37929 del 3 de julio del 2013, se nombra como miembro suplente de esta Comisión al señor Gustavo Induni Alfaro, representante del Ministerio de Ambiente y Energía)
