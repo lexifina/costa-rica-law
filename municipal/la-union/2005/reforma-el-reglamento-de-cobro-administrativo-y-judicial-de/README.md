@@ -14,3 +14,4 @@ Reforma el reglamento de cobro administrativo y judicial de la Municipalidad de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-16 | la propia norma |
+| 2 | 2013-07-04 | Reglamento municipal 246 (2013-07-04) |

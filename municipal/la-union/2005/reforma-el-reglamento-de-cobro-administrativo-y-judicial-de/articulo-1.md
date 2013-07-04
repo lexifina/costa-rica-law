@@ -1,5 +1,7 @@
+(Derogado)
 REFORMA AL REGLAMENTO DE COBRO ADMINISTRATIVO
 Y JUDICIAL DE LA MUNICIPALIDAD DE LA UNIÓN
+(Esta norma fue derogada por el artículo 47 del Reglamento para el procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de la Unión, aprobado mediante sesión ordinaria N° 246 del 4 de julio del 2013)
 El Consejo Municipal de La Unión, en su sesión ordinaria N° 264, celebrada el jueves 14 de julio del año en curso, artículo 11, aprueba la propuesta de Reforma al Reglamento de Cobro Administrativo y Judicial de la Municipalidad de La Unión.
 CAPÍTULO I
 Disposiciones generales
