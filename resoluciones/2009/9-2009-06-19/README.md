@@ -14,3 +14,4 @@ Formularios de declaración jurada para Tributación Digital
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-29 | la propia norma |
+| 2 | 2013-07-04 | Resolución 25 (2013-07-04) |
