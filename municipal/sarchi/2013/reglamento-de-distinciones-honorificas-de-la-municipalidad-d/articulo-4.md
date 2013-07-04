@@ -1,0 +1,1 @@
+Artículo 4º—Recibida la propuesta de mención honorífica por parte del Concejo Municipal, se analizara por una comisión especial nombrada para el caso o la comisión de asuntos sociales, quien se encargará de estudiar y valorar cada uno de los legajos de las personas propuestas y emitirá la moción respectiva en un plazo máximo de quince días hábiles.

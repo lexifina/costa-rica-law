@@ -1,0 +1,1 @@
+Artículo 2º—Para otorgar este reconocimiento, las personas físicas o jurídicas deberán tener o haber tenido su domicilio dentro del cantón de Valverde Vega por al menos 10 años, salvo aquellas distinciones que por su naturaleza son otorgadas a ciudadanos que no cuentan con esta condición.
