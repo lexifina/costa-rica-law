@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE GOLFITO
+La Administración Tributaria de conformidad con lo que disponen los artículos 3 y 12 de la Ley de Impuesto sobre Bienes Inmuebles Nº 7509 y su reformas, la Sentencia 1073-2010 del Tribunal Contencioso Administrativo, Sección III y la Resolución de la Sala Constitucional Nº 2011-003075 del 9 de marzo del 2011, en aras de dar cumplimiento a su competencia comunica en este mismo acto, su adhesión al Manual de Valores Base Unitarios por Tipología Constructiva, publicado en Alcance Digital Nº 22 del Diario Oficial La Gaceta Nº 23 del viernes 01 de febrero del 2013, ambos documentos procedentes del Órgano de Normalización Técnica, Dirección General de Tributación, Ministerio de Hacienda.
+Golfito, 12 de junio del 2013.—
