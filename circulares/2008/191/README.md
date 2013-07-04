@@ -13,3 +13,4 @@ Deber del Juez penal en la disponibilidad de atender asuntos de pensiones alimen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-05 | la propia norma |
+| 2 | 2013-07-04 | Circular 121 (2013-07-04) |
