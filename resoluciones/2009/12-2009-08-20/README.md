@@ -14,3 +14,4 @@ Uso Obligatorio de los servicios electrónicos de Tributación Digital
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-08 | la propia norma |
+| 2 | 2013-07-04 | Resolución 25 (2013-07-04) |
