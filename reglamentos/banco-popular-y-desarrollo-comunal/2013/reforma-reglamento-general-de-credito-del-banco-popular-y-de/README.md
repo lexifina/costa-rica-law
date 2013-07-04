@@ -14,3 +14,4 @@ Reforma Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-08 | la propia norma |
+| 2 | 2013-07-04 | Reglamento 5083 (2013-07-04) |
