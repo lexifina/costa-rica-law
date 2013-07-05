@@ -1,0 +1,2 @@
+Artículo 102.—Optimizar el tamaño de las imágenes a incluir en las páginas, ya que se recomienda que cada página con su contenido de imágenes tenga un tamaño apropiado para poder garantizar un tiempo de carga acorde al máximo tiempo de espera soportado por los usuarios (aproximadamente 8 segundos). Si se necesita publicar gráficos o archivos de tamaños considerables, se deberá informar de su tamaño en bytes para que el usuario pueda valorar los tiempos de espera.
+(Así adicionado mediante acuerdo N° AJDIP/254-2013 del 5 de julio del 2013)

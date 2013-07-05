@@ -1,0 +1,2 @@
+Artículo 95.—Los autores o creativos, con relación laboral o contractual, que incorporen contenido (textos, fotos, videos, tablas, gráficos y/o sonidos) a la página, deben estar identificados con su nombre y apellido, correo electrónico (optativo) y la fecha de creación de su aporte, y este será subido por los administradores de la información luego de ser aprobada.
+(Así adicionado mediante acuerdo N° AJDIP/254-2013 del 5 de julio del 2013)

@@ -1,0 +1,2 @@
+Artículo 104.—Los documentos a publicar deben estar en formato PDF (portable document format) Si el tamaño de estos documentos es considerable, se recomienda utilizar algún sistema de compresión de datos. Si los autores desean proteger su contenido deberán configurar la seguridad de sus archivos al momento de la generación.
+(Así adicionado mediante acuerdo N° AJDIP/254-2013 del 5 de julio del 2013)

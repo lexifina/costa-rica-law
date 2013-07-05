@@ -1,0 +1,2 @@
+Artículo 101.—Moderar el uso de objetos multimedia que necesiten conectores para poder ser activados, ya que en algunos casos pueden impedir la correcta visualización de la página. En caso de ser necesarios, se deberá indicar al usuario de la Página Web la información correspondiente para el buen uso del elemento multimedia.
+(Así adicionado mediante acuerdo N° AJDIP/254-2013 del 5 de julio del 2013)

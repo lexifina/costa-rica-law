@@ -14,3 +14,4 @@ Reglamento del Área de Informática del Instituto Costarricense de Pesca y Acui
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-20 | la propia norma |
+| 2 | 2013-07-05 | Acuerdo 254 (2013-07-05) |
