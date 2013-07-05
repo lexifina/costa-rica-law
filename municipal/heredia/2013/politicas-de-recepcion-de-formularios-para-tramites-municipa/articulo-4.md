@@ -1,0 +1,1 @@
+4º—No podrá solicitarse a los contribuyentes datos que otros departamentos de la Municipalidad emitan o posean; además, si el departamento donde el contribuyente está gestionando un trámite posea la información, no podrá remitirlo a que la solicite a otra dependencia.

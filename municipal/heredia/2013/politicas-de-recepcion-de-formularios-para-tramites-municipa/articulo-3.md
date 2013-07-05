@@ -1,0 +1,1 @@
+3º—En cumplimiento del artículo 2° de la Ley N° 8220, la información o documentación que entregan los administrados no podrá ser requerida nuevamente para ese mismo trámite u otra gestión que deban realizar ante cualquier otra dependencia de la Municipalidad de Heredia, excepto las personerías jurídicas y aquellos documentos que hayan vencido.

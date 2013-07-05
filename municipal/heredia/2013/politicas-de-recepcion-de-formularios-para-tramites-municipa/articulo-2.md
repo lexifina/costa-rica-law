@@ -1,0 +1,1 @@
+2º—Los funcionarios municipales deben verificar que los formularios recibidos cumplan con las políticas antes mencionadas, de lo contrario y de conformidad con la Ley de Protección al Ciudadano del exceso de requisitos y trámites administrativos, N° 8220 del once de marzo de dos mil dos, deberá apercibir al administrado por una única vez para que complete los requisitos.
