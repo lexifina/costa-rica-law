@@ -1,1 +1,0 @@
-Artículo 180.—Recursos. Contra la resolución final emitida caben los recursos de revocatoria y apelación. El recurso de revocatoria será resuelto por el órgano que emitió el acto, y la apelación por el superior jerárquico. El plazo para interponerlos será de tres días hábiles siguientes a la notificación.

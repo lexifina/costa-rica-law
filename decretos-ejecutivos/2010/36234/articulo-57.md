@@ -1,1 +1,0 @@
-Artículo 57.—Sobre el plazo mínimo de garantía. El plazo mínimo de garantía será de treinta días hábiles, contados a partir de la fecha de entrega del bien o de la prestación del servicio, sin perjuicio de que el comerciante o proveedor otorgue plazos mayores, en cuyo caso estos prevalecen.

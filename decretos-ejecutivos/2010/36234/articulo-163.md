@@ -1,1 +1,0 @@
-Artículo 163.—Sobre el dictamen técnico. Todo dictamen técnico emitido sobre muestras tomadas conforme a esta sección deberá describir en forma detallada la muestra analizada y dejar constancia acerca de la integridad de los sellos con que se recibieron. Caso contrario, su valor probatorio quedará reducido al nivel indiciario.

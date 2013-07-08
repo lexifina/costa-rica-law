@@ -1,1 +1,0 @@
-Artículo 29.—Inicio del procedimiento. Con base en el informe preliminar presentado por la Unidad Técnica, la COPROCOM, si estimare que hay mérito suficiente y cuando la resolución final pueda resultar en la imposición de alguna de las sanciones previstas en el artículo 28 de la Ley, acordará el inicio formal del procedimiento administrativo.

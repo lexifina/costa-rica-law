@@ -1,4 +1,0 @@
-Artículo 173.—Requisitos para la inscripción de las ventas a plazo o prestación futura de servicios. La inscripción de una empresa, dependerá de la autorización del contrato. El MEIC debe verificar que la empresa solicitante cumpla con las siguientes condiciones:
-a) Que la venta a plazo se ofrezca públicamente o de manera generalizada a los consumidores.
-b) Que la entrega del bien o la prestación del servicio constituya una obligación cuyo cumplimiento, en los términos ofrecidos o pactados, esté condicionado a un hecho futuro.
-c) Que la realización de ese hecho futuro, en los términos ofrecidos y pactados, dependa de la persona física o de la entidad de hecho o de derecho, según el caso, que debe entregar el bien, prestar el servicio o colocar a los consumidores en ejercicio del derecho en el proyecto futuro.

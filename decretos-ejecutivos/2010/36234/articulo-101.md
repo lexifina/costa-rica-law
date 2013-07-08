@@ -1,3 +1,0 @@
-Artículo 101.—Conciliación. Cuando se trate de intereses puramente patrimoniales, antes del inicio formal del procedimiento, el órgano técnico convocará a una audiencia de conciliación a los interesados.
-El resultado de la audiencia se hará constar en un acta que deberá cumplir con los requisitos establecidos en el artículo 12 de la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social. En caso de acuerdo conciliatorio, éste producirá los efectos previstos en el artículo 9 de la ley mencionada.
-Una vez iniciada la audiencia y a instancia de los interesados, a juicio del conciliador podrá suspenderla por una única vez.

@@ -1,2 +1,0 @@
-Artículo 92.—Sobre la devolución del dinero. En caso de variación de las condiciones contractuales no aceptadas por el consumidor o de cancelación del concierto o espectáculo, el comerciante deberá procurar la devolución de todo el dinero cancelado por los consumidores por el medio utilizado para su adquisición.
-En caso de sobrevenir alguna imposibilidad para utilizar este medio, el consumidor deberá informarlo y señalar alguna alternativa para que le devuelvan el monto cancelado.

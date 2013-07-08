@@ -1,2 +1,0 @@
-Artículo 157.—Muestreo Estadístico. El muestreo estadístico se realizará cuando sea necesario para una medición representativa de los parámetros que se quieran verificar y se necesite de la participación de un laboratorio o institución que realice esa evaluación.
-El tamaño de muestra se tomará según lo indicado en el reglamento específico del producto, si existiera; o en su defecto según lo establecido en el Reglamento técnico de cantidad de producto en preempacado vigente.

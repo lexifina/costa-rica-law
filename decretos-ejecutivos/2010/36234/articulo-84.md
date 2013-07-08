@@ -1,1 +1,0 @@
-Artículo 84.—Obligaciones del comprador. Si el comprador ya ha recibido los bienes adquiridos, deberá devolverlos sin uso y en las mismas condiciones en que le fueron entregados, incluyendo sus empaques, accesorios y literatura adjunta. En todos los casos, se deberá además devolver la factura o comprobante de pago original.

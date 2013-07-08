@@ -1,1 +1,0 @@
-Artículo 94.—Remisión al Ministerio Público. En el supuesto de que el comerciante o proveedor no cumpla con lo dispuesto en esta sección, la DAC procederá a remitir al Ministerio Público para su conocimiento y trámite la documentación, por considerarse infringido el artículo 63 de la Ley.

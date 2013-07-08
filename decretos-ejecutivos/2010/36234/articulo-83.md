@@ -1,1 +1,0 @@
-Artículo 83.—Venta de servicios. En la venta de servicios, el retracto sólo procederá en el tanto éstos no se hubieren prestado efectivamente. Si fueron pactados a tractos, el retracto sólo alcanzará la parte no realizada antes del recibo del aviso de rescisión, debiendo el comprador pagar proporcionalmente por la parte recibida.

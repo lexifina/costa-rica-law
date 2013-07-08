@@ -1,1 +1,0 @@
-Artículo 19.—Niveles de la regulación de precios. La regulación de precios podrá realizarse tanto en la etapa de producción, así como en la de comercialización, dependiendo del nivel en el cual se determine la existencia de las situaciones de excepción indicadas en el artículo 13.

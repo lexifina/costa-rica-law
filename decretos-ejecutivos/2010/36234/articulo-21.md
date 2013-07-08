@@ -1,3 +1,0 @@
-Artículo 21.—Vigencia de las regulaciones. Las regulaciones se mantendrán mientras subsistan las condiciones de excepción, determinadas mediante el estudio a que se refieren los artículos anteriores.
-En todo caso, las regulaciones deben revisarse dentro de períodos no superiores a seis meses, o en cualquier momento a solicitud de los interesados.
-En este último caso y tratándose del supuesto previsto en el inciso b) del artículo 13 anterior, la solicitud deberá presentarse ante la COPROCOM, la cual dará audiencia a la Administración Pública y a los interesados. La Comisión emitirá una opinión y la hará llegar al jerarca de la Administración.

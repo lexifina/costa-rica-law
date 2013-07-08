@@ -1,1 +1,0 @@
-Artículo 14.—Precio mínimo de salida del banano para la exportación. Para la fijación del precio mínimo de salida del banano para la exportación, no es aplicable el procedimiento previsto en el párrafo tercero del artículo 5 de la Ley, sino que se fijará conforme a la normativa legal y reglamentaria específica de esa materia.

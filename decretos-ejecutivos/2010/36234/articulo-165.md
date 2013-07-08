@@ -1,1 +1,0 @@
-Artículo 165.—Incumplimiento de los deberes anteriores. La negativa de entrega, la falsedad o la inclusión de datos inexactos o incompletos, en muestras o documentos requeridos, de conformidad con esta Sección, debe ser sancionada como falta grave por la CNC.
