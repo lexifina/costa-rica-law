@@ -13,4 +13,5 @@ b) Coordinar el conjunto de las políticas nacionales de desarrollo que impulsan
 c) Propiciar la participación política, social, cultural y económica de las personas jóvenes, en condiciones de solidaridad, equidad y bienestar.
 d) Promover y ejecutar investigaciones que permitan conocer la condición de las personas jóvenes y de sus familias, para plantear propuestas que mejoren su calidad de vida.
 e) Proteger los derechos, las obligaciones y garantías fundamentales de la persona joven.
-Los objetivos señalados en los incisos anteriores se entenderán como complementarios de la política integral que se define para los adolescentes, en el Código de la Niñez y Adolescencia, en lo que resulte compatible y con prevalencia de esta última etapa de la vida.
+Los objetivos señalados en los incisos anteriores se entenderán como complementarios de la política integral que se define para las personas adolescentes en el Código de la Niñez y la Adolescencia, en lo que resulte compatible y con prevalencia de esta etapa de la vida.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9155 del 3 de julio del 2013)
