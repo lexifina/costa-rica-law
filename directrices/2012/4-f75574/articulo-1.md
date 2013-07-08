@@ -1,0 +1,3 @@
+ECONOMÍA, INDUSTRIA Y COMERCIO
+AVISO
+El Ministerio de Economía, Industria y Comercio, informa que mediante Directriz Interna N° 04-2012-MEIC del 19 de diciembre del 2012, se reguló la asignación, uso, custodia, conservación y control de teléfono celular, tarjeta Sim u otros dispositivos tecnológicos similares. Dicha disposición es de carácter obligatorio para los funcionarios del Ministerio que se les hayan asignado teléfonos celulares, tarjetas Sim u otros dispositivos tecnológicos similares. La Directriz referida se encuentra disponible tanto en el sitio web de este Ministerio (www.meic.go.cr) como en la Intranet.—Dirección Administrativa Financiera y Oficialía Mayor.
