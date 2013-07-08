@@ -1,0 +1,1 @@
+Artículo 4º—Si se detectan omisiones o defectos en la solicitud presentada o en la documentación anexa, el Departamento de Financiamiento de Partidos Políticos prevendrá al organismo interesado para que subsane los defectos dentro de los 10 días hábiles siguientes a la notificación de esa prevención.
