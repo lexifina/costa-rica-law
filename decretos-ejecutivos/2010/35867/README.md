@@ -14,3 +14,4 @@ Reglamento de Tarjetas de Crédito y Débito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-30 | la propia norma |
+| 2 | 2013-07-08 | Decreto Ejecutivo 37899 (2013-07-08) |
