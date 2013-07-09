@@ -14,3 +14,4 @@ Declara de Aptitud Turística Sectores Costeros Sector Costero de Punta Quepos, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-12 | la propia norma |
+| 2 | 2013-07-09 | Acuerdo 306 (2013-07-09) |
