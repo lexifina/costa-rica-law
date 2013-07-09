@@ -1,0 +1,3 @@
+ARTICULO 19. PRESUPUESTO.
+El Presupuesto de funcionamiento del Consejo de Ministras de la Mujer de Centroamérica será financiado por los Estados miembros en partes iguales: le corresponde al Estado que ostenta la Presidencia Pro-Tempore facilitar las instalaciones y el presupuesto para las reuniones del Consejo de Ministras de la Mujer. Físicamente esta Secretaría funcionará en la sede del SICA, actualmente ubicada en El Salvador, o donde ésta se localice en el futuro.
+Asimismo previa autorización del Consejo de Ministras se gestionarán fondos de organismos de cooperación para la ejecución de proyectos regionales y/o el fortalecimiento de la Secretaría Técnica, la Presidencia Pro-Tempore y las reuniones del propio Consejo de Ministras de la Mujer.

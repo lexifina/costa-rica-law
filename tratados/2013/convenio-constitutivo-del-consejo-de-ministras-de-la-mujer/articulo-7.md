@@ -1,0 +1,2 @@
+ARTICULO 7. DE LA REPRESENTACIÓN:
+Cada Estado miembro elegirá a la Ministra de la Mujer o representante ante el Consejo de Ministras de la Mujer, de conformidad con las disposiciones que fueren aplicables de la legislación nacional que regula la elección de Ministras de la Mujer o representantes ante sus países, con observancia ineludible de una amplia responsabilidad política e ideológica, en un sistema democrático pluralista con acciones participativas, en condiciones de igualdad de los respectivos países.

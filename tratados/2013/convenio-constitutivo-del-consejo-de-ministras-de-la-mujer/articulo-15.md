@@ -1,0 +1,2 @@
+ARTICULO 15. PRESIDENCIA PRO-TEMPORE.
+La Presidencia Pro-Témpore se asignara en forma rotativa según lo establece el artículo 7 de este instrumento, por el periodo de seis meses. En caso que esta presidencia recaiga sobre un Estado que expresamente presente indisposición para el ejercicio de este cargo, deberá presentar al Consejo de Ministras su excusa por escrito y el Consejo tomará estrictamente por consenso la decisión de trasladar la presidencia a otro país miembro.

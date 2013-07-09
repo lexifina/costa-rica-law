@@ -1,0 +1,2 @@
+ARTICULO 14. REGLAMENTO INTERNO DEL CONSEJO DE MINISTRAS DE LA MUJER DE CENTROAMERICA.
+El reglamento interno del Consejo de Ministras de la Mujer de Centroamérica, regulará lo relativo a las sesiones, procedimientos, comisiones de trabajo, convocatorias, grupos sectoriales o intersectoriales y todo lo concerniente a la administración, presupuesto y funcionamiento de éste Consejo. La aprobación y reforma del REGLAMENTO INTERNO será por consenso de sus integrantes.
