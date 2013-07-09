@@ -1,14 +1,16 @@
 INSTITUTO COSTARRICENSE DE TURISMO
 El Instituto Costarricense de Turismo avisa que en sesión ordinaria de Junta Directiva N° 4690 artículo 5° inciso XI, celebrada el día 9 de diciembre de 1996,
 SE ACUERDA: a) Atender las recomendaciones de la Comisión Interna de la Zona Marítimo Terrestre, según oficio CZM-423-96 y aprobar las siguientes declaratorias de aptitud turística:
-1.- Declarar de Aptitud Turística el sector costero que comprende Punta San Josecito, sita en el distrito Sierpe, cantón Osa, provincia de Puntarenas, ubicado entre las coordenadas Lambert, Costa Rica Sur.
+(*)1.- Declarar de Aptitud Turística el sector costero que comprende Punta San Josecito, sita en el distrito Sierpe, cantón Osa, provincia de Puntarenas, ubicado entre las coordenadas Lambert, Costa Rica Sur.
 289.200 N - 494.300 E
 287.150 N - 492.850 L
 según hoja cartográfica Llorona 3441 I a escala 1:50.000 e Instituto Geográfico Nacional.
-2.- Declarar de Aptitud Turística el sector costero que comprende de Punta Bejuco sita en el Distrito de Sierpe, cantón Osa, provincia de Puntarenas, ubicado entre las coordenadas Lambert Costa Rica Sur:
+(*) (Mediante artículo 7 del acuerdo N° 306 del 9 de julio de 2013, "Declaratoria de Aptitud Turística y no Turística varios sectores costeros de la Zona Marítimo Terrestre localizadas en el frente costero del cantón de Osa", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el cantón de Osa)
+(*)2.- Declarar de Aptitud Turística el sector costero que comprende de Punta Bejuco sita en el Distrito de Sierpe, cantón Osa, provincia de Puntarenas, ubicado entre las coordenadas Lambert Costa Rica Sur:
 297.045 N - 526.025 E
 298.050 N - 527.095 E
 según la hoja cartográfica Rincón 3542 III a escala 1:50.000 del Instituto Geográfico Nacional.
+(*) (Mediante artículo 7 del acuerdo N° 306 del 9 de julio de 2013, "Declaratoria de Aptitud Turística y no Turística varios sectores costeros de la Zona Marítimo Terrestre localizadas en el frente costero del cantón de Osa", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el cantón de Osa)
 3.- Declarar de Aptitud Turística el sector de Playa Blanca, desde Quebrada La Palma hasta Quebrada Chanchera, sita en el distrito Jiménez, cantón Golfito, provincia de Puntarenas, ubicado entre las coordenadas Lambert Costa Rica Sur:
 289.500 N - 525.325 E
 287.650 N - 525.090 E

@@ -15,3 +15,4 @@ Declara de aptitud turística sector costero compende Punta San Josesito, Punta 
 | --- | --- | --- |
 | 1 | 1997-01-27 | la propia norma |
 | 2 | 2012-10-16 | Acuerdo 485 (2012-10-16) |
+| 3 | 2013-07-09 | Acuerdo 306 (2013-07-09) |
