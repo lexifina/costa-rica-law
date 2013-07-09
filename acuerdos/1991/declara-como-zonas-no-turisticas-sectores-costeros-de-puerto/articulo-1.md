@@ -6,19 +6,21 @@ a) Sector costero de Puerto Humo, perteneciente a la provincia de Guanacaste, Ca
 255.400 N - 387.450 E
 256.000 N - 389.800 E
 de la proyección Lambert de Costa Rica, según hoja cartográfica "Talolinga" a escala 1:50.000, editada por el Instituto Geográfico Nacional.
-El sector costero de Playa Garza, perteneciente a la Provincia de Puntarenas, Cantón V, Osa, Distrito I, Cortés, como Zona No Turística, entre las coordenadas:
+(*)El sector costero de Playa Garza, perteneciente a la Provincia de Puntarenas, Cantón V, Osa, Distrito I, Cortés, como Zona No Turística, entre las coordenadas:
 333.300 N - 503.000 E
 326.650 N - 503.550 E
 de la Proyección Lambert de Costa Rica, según hoja cartográfica "Coronado" a escala 1:50.000, editada por el Instituto Geográfico Nacional.
-El sector costero de Boca Ganado perteneciente a la Provincia de Puntarenas, Cantón V, Osa, Distrito III, Sierpe, como Zona No Turística, entre las coordenadas:
+(*) (Mediante artículo 7 del acuerdo N° 306 del 9 de julio de 2013, "Declaratoria de Aptitud Turística y no Turística varios sectores costeros de la Zona Marítimo Terrestre localizadas en el frente costero del cantón de Osa", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el cantón de Osa)
+(*)El sector costero de Boca Ganado perteneciente a la Provincia de Puntarenas, Cantón V, Osa, Distrito III, Sierpe, como Zona No Turística, entre las coordenadas:
 298.500 N-501.700 E
 299.300 N - 503.060 E
 de la proyección Lambert de Costa Rica, según hoja cartográfica "Sierpe" a escala 1:50.000, editada por el Instituto Geográfico Nacional.
+(*) (Mediante artículo 7 del acuerdo N° 306 del 9 de julio de 2013, "Declaratoria de Aptitud Turística y no Turística varios sectores costeros de la Zona Marítimo Terrestre localizadas en el frente costero del cantón de Osa", se dispuso derogar toda aquella declaratoria que se haya practicado en años anteriores para el cantón de Osa)
 El sector costero de Punta Barrigona, perteneciente a la Provincia de Puntarenas, Distrito de Cóbano, como Zona Turística, entre las coordenadas:
 178.600 N-410.200 E
 176.400 N-410.850 E
 de la proyección Lambert de Costa Rica, según hoja cartográfica "Cabuya" a escala 1:50.000, editada por el Instituto Geográfico Nacional.
-(*) El sector costero de Playa Pilón, perteneciente a la Provincia de Puntarenas, Cantón VII, Golfito, como Zona Turística entre coordenadas:
+(*)El sector costero de Playa Pilón, perteneciente a la Provincia de Puntarenas, Cantón VII, Golfito, como Zona Turística entre coordenadas:
 266.00 N-561.93 E
 267.10 N-563.05 E
 de la proyección Lambert de Costa Rica, según hoja cartográfica "Pavón" a escala 1:50.000, editada por el Instituto Geográfico Nacional.
