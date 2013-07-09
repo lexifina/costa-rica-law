@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Santa A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-19 | la propia norma |
+| 2 | 2013-07-09 | Reglamento municipal 166 (2013-07-09) |

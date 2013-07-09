@@ -1,0 +1,2 @@
+Artículo 56BIS.—Sera potestad del alcalde o alcaldesa, ordenar que el 31 de agosto; sea día de asueto parcial o total; porque en esta fecha se celebra el día del Régimen Municipal la alcaldía podría también; ordenar que la municipalidad cierre sus puertas al público para que todas las personas trabajadoras asistan a la actividad de celebración que se organice.
+(Así adicionado en sesión N° 166 del 9 de julio de 2013)
