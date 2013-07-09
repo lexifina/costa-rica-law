@@ -4,41 +4,41 @@ Bancrédito informa a sus estimados clientes y al público en general las modifi
 TARJETAS DE CRÉDITO Y DÉBITO
 Comisiones por reemplazo de tarjeta:
 Comisión por reemplazo Tarjeta de débito | $5.00
-Comisión por reemplazo Tarjeta de crédito | $5.00
+Comisión por reemplazo Tarjeta de crédito (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $10.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Solicitud de Copias de Voucher | $5.00
 Comisiones por reemplazo de tarjeta (URGENTE) en caso de emergencia, robo o pérdida:
-Reemplazo urgente tarjetas de débito | $5.00
+Reemplazo urgente tarjetas de débito (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $20.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Reemplazo urgente tarjetas de crédito Local | $20.00
 Reemplazo urgente tarjetas de crédito Internacional | $30.00
 Reemplazo urgente tarjetas de crédito Oro, Empresarial yPlatino | $30.00
-Sustitución del PIN TARJETA DE DÉBITO Y CRÉDITO. | $1.50
-Renovación de tarjetas de Débito. | $5.00
+Sustitución del PIN TARJETA DE DÉBITO Y CRÉDITO. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $2.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Renovación de tarjetas de Débito. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Comisiones por adelanto de efectivo con tarjeta de crédito:
 Avance de efectivo electrónico (Internet y Telefónico) | 2.9%, mínimo $3.00
 Avance de efectivo en cajeros automáticos propios | 2.9%, mínimo $3.00
 Avance de efectivo en cajeros automáticos en convenio con otras instituciones. | 2.9%, mínimo $3.00
-Avance de efectivo en ventanilla. | 3% mínimo $3.00
-Avance de efectivo en cajeros automáticos que no estén en convenio. | 4% mínimo $3.00
+Avance de efectivo en ventanilla. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | 2.9% mínimo $3.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Avance de efectivo en cajeros automáticos que no estén en convenio. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | 2.9% mínimo $3.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Avance de efectivo en ventanilla que no está en convenio. | 4% mínimo $3.00
 Comisiones por adelanto de efectivo con tarjeta de débito:
 Avance de efectivo en cajeros automáticos propios. Hasta 5 movimientos. | No se cobra
-Después del 5° movimiento en el mes y en cuentas con un saldo promedio semestral inferior al $350.00 en cajeros propios. | $0.10
-Después del 5° movimiento en el mes y en cuentas con un saldo promedio semestral inferior al $350.00 en cajeros en convenio. | $0.50
-Consultas en cajeros en convenio | $0.25
+Después del 5° movimiento en el mes y en cuentas con un saldo promedio semestral inferior al $350.00 en cajeros propios. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $0.20 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Después del 5° movimiento en el mes y en cuentas con un saldo promedio semestral inferior al $350.00 en cajeros en convenio. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $0.80 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Consultas en cajeros en convenio (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $0.50 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Avance de efectivo en cajeros automáticos que no estén en convenio. | $3.00
 Otras comisiones sobre tarjetas:
 Comisión por levantamiento de bloqueo temporal por mora en tarjetas de crédito. | $5.00
-Licencia por uso de Plataforma Débito Internacional. | $2.00
-Licencia por uso de Plataforma Débito PASS. | $2.00
-Licencia por uso de Plataforma Débito | $1.50
-Licencia por uso de Plataforma Débito Oro. | $5.00
-Licencia por uso de Plataforma Débito Master Card. | $2.50
-Licencia por uso de Plataforma Crédito Local. | $2.00
-Licencia por uso de Plataforma Crédito Internacional. | $3.00
-Licencia por uso de Plataforma Crédito Oro. | $5.00
-Licencia por uso de Plataforma Crédito Platinum. | $8.00
-Licencia por uso de Plataforma Crédito Cerrada. | $2.00
-Licencia por uso de Plataforma Pymes Master Card. | $3.00
+Licencia por uso de Plataforma Débito Internacional. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Débito PASS. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Débito BASIC (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Débito Oro. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $10.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Débito Master Card. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Crédito Local. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Crédito Internacional. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Crédito Oro. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $10.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Crédito Platinum. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $10.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Crédito Cerrada. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Licencia por uso de Plataforma Pymes Master Card. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 *Costo de SMS | ¢5.00
 *Kit de Firma Digital | $35.00
 Soporte Anual de Firma Digital | $12.00
@@ -67,7 +67,7 @@ Reposición de cheques de Gerencia. | 0.25% del valor del cheque
 Cheques de Viajero
 Cambio de Cheques Viajero (Servicio) | $7.5 en dólares (indistintamente del monto), en colones 1%
 Cuentas de Ahorro:
-Avance y retiro de efectivo en ventanilla por transacción (Se exceptúa los pensionados. Además a los clientes cuando el saldo promedio es mayor a $500.00 o cuando la transacción de retiro es mayor a lo permitido para retiro en cajeros). | $1.00
+Avance y retiro de efectivo en ventanilla por transacción (Se exceptúa los pensionados. Además a los clientes cuando el saldo promedio es mayor a $500.00 o cuando la transacción de retiro es mayor a lo permitido para retiro en cajeros). (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $2.00 (Así monto el anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Cuentas ahorro inactivas:
 Cuentas ahorros en colones. Saldo igual o inferior al equivalente a $20.00. | Aplica $5.00 cada mes hasta su liquidación.
 Cuentas ahorros en dólares. Saldo igual o inferior a $20.00. | Aplica $5.00 cada mes hasta su liquidación
@@ -191,10 +191,14 @@ Pago en dólares / colones | 1%
 | *Cuando se paga en efectivo (dólares) aplica un colón por dólar
 Depósito en Cuenta Corriente, Ahorros, Inversiones. | $10, menos de $2.000.00; $20más de $2.000.00
 Transferencias (Transferencias Enviadas al Exterior):
-Apertura ( Emisión) | 0.5%
-- Mínimo | $10.00
-- Máximo | $75.00
-SWIFT | $7.00
+Apertura ( Emisión) (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | 0.35% (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+- Mínimo (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $15.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+- Máximo (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $75.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+SWIFT (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $7.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Transferencias( Transferencias Recibidas del Exterior): (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+De US$1 a $1.999 (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | Comisión US$10.00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+De US$2.000 a $30.000 (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | Comisión US$20.00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Más US$30.000 (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | Comisión US$25.00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Cheques Enviados por Cobranza Simple:
 Pagos en colones | 0.75%
 - Mínimo | $15.00
@@ -228,11 +232,8 @@ Extensión del Plazo | Colones: 1.25% por trimestre o fracción, mínimo $20 por
 Incrementar el Valor | Colones 1,25% y Dólares 1% sobre el monto del incremento por trimestre o fracción existente entre la fecha de modificación y el vencimiento de la garantía, mínimo $20.00 por trimestre.
 Bono de garantía no retirado y enmiendas | $20.00
 Cobro Administrativo de Operaciones en Mora:
-De 1 a 30 días | $20.00
-De 31 a 60 días | $30.00
-De 61 a 90 días | $40.00
-Para créditos menores a $1,000.00 | $10.00.
-*Esta comisión se cobra mensualmente durante el período en que permanezca el crédito en esta condición. |
+TABLA TARIFAS Y COMISIONES ACTUAL
+Cobro administrativo de operaciones en mora: US10.00 mensual, mientras el crédito permanezca en mora. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Traspaso de Operaciones de Cobro Administrativo a Cobro Judicial:
 - Comisión | 0.5% sobre el total adeudado decada operación
 - Mínimo | $60.00
@@ -268,8 +269,6 @@ Débito directo |
 *SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo de débitos en tiempo real, entrantes y salientes del Banco Central de Costa Rica, es de ¢163 desglosado de la siguiente forma: ¢63 c/u para el BCCR y ¢100 c/u entidad de destino. (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) |
 Débito en tiempo real (DTR)
 Comisión (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) | $1.00 (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
-|
-|
 BANCRÉDITO INTERNET
 Reimpresión de Clave | $2.00 por vez
 Sustitución de Multiclave | $5.00
@@ -279,6 +278,17 @@ OTRAS COMISIONES
 Estados de cuenta corriente, tarjeta de crédito y otra correspondencia enviada a clientes y devuelta por dirección errónea. | $1.00
 Copias de microfilm e imágenes BACOSI | $3.00
 Recaudación de Servicios Públicos y otras Instituciones | Según convenios
+Quick Pass (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+a. Tarifa del dispositivo para el cliente: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$35.00 al tipo cambio del día. (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+b. Tarifa de mantenimiento mensual: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$1.00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+c. Tarifa de las transacciones: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | Según el peaje y costos establecidos. Cada transacción de peaje se debitará de la cuenta bancaria autorizada por el cliente. (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Firma Digital: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) |
+Costo del kit de firma digital que incluye tarjeta y lector de tarjeta: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$38,00 al tipo cambio del día. (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Costo solamente de comprar la tarjeta de firma digital: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$16,00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Costo solamente del lector de firma digital: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$31,00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Costo de la renovación del certificado: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$10,00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Costo para la generación de nueva clave: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$5,00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Cobro por concepto de comisión por el pago en ventanilla de servicios públicos que realicen las personas que no son clientes del Banco. (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | ¢300.00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Seguridad:
 Solicitud revisión de video de transacciones realizadas en ventanilla, cajeros automáticos, cajas interna. | $15.00 por video solicitado
 Custodia de Cajitas de Seguridad:
