@@ -1,1 +1,0 @@
-Artículo 13.—La Contraloría de Servicios tendrá su sede en Puerto Caldera. En los demás lugares que administra el INCOP se le solicitará a un funcionario que sea el enlace entre la Contraloría de Servicios y los usuarios.
