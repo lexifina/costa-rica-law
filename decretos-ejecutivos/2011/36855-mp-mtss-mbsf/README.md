@@ -14,3 +14,4 @@ Reglamento Orgánico del Instituto Mixto de Ayuda Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-10 | la propia norma |
+| 2 | 2013-07-09 | Decreto Ejecutivo 37969 (2013-07-09) |
