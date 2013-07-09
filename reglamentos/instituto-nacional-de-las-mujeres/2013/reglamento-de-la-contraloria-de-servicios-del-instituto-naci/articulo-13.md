@@ -1,0 +1,1 @@
+Artículo 13.—Obligación de resolver y dar respuesta a la persona usuaria. La Contraloría de Servicios deberá atender, resolver y dar respuesta a todos los casos sometidos a su conocimiento, con la mayor diligencia. En el momento de recibir la gestión, deberá comunicar a la persona interesada de dicho recibo y del plazo estimado en que recibirá el resultado de su gestión.

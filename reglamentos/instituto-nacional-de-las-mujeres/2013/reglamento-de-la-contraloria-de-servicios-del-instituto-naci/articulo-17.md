@@ -1,0 +1,1 @@
+Artículo 17.—Derogatoria. Este reglamento deroga el Reglamento de Funcionamiento de la Contraloría de Servicios del INAMU, aprobado por la Junta Directiva mediante acuerdo número uno del acto número treinta y dos del veintisiete de agosto de dos mil nueve, publicado en La Gaceta N° 184 del 22 de setiembre de 2009.
