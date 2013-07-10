@@ -14,3 +14,4 @@ Reglamento Galería Costarricense del Deporte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-10 | la propia norma |
+| 2 | 2013-07-10 | Reglamento 858 (2013-07-04) |
