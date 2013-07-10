@@ -1,0 +1,1 @@
+Artículo 16.—El Instituto Costarricense del Deporte y la Recreación, brindará los servicios logísticos para el funcionamiento de la Comisión, a través del Departamento de Prensa y Relaciones Públicas, que será el ente encargado de la coordinación interna y externa, de los asuntos relacionados con la Comisión y con el programa de la Galería del Deporte.

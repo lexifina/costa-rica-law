@@ -1,0 +1,1 @@
+Artículo 25.—La Comisión de la Galería Costarricense del Deporte seleccionará, de entre la terna presentada, el o los candidatos que pasan a formar parte de la Galería Costarricense del Deporte. Podrán ingresar a la Galería Costarricense del Deporte, en cada período, de uno hasta un máximo de 3 personas.

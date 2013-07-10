@@ -1,0 +1,1 @@
+Artículo 15.—En caso de que se presentara un candidato que tenga parentesco de consanguinidad o afinidad hasta el tercer grado con cualquiera de los miembros de la Comisión, se debe informar al Consejo Nacional del Deporte y la Recreación, para que dicho miembro sea sustituido.

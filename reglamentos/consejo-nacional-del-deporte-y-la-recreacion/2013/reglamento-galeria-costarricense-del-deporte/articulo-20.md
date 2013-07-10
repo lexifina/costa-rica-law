@@ -1,0 +1,1 @@
+Artículo 20.—La Comisión recibirá las postulaciones en las oficinas del Departamento de Prensa y Relaciones Públicas, del Instituto Costarricense del Deporte y la Recreación, dentro del horario establecido para tal fin, siempre y cuando las mismas cumplan con todos los requisitos que se establecen en el presente reglamento.
