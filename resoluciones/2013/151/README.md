@@ -14,3 +14,4 @@ Instructivo para la presentación de iniciativas para la formulación de proyect
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-09 | la propia norma |
+| 2 | 2013-07-10 | Resolución 214 (2013-07-10) |

@@ -1,8 +1,25 @@
-4. Formatos de Presentación de Iniciativas para la Formulación de Proyectos de FONATEL.
-4.1. Ficha Resumen para Presentación de Iniciativas por una Personal Física.
-[imagen]
-[imagen]
-4.3. Ficha Resumen para Presentación de Iniciativas por un Operador de Red o Proveedor de Servicios de Telecomunicaciones Disponibles al Público.
-[imagen]
-[imagen]
-[imagen]
+4. Poblaciones Meta y Criterios para la consideración de las iniciativas y la definición de los proyectos y programas con cargo a FONATEL
+4.1. Poblaciones Meta de los Proyectos y Programas con Cargo a FONATEL.
+El artículo 32 de la Ley General de Telecomunicaciones establece los Objetivos Fundamentales del Régimen de Acceso Universal, Servicio Universal y Solidaridad. Este artículo define poblaciones objetivo para los Proyectos y Programas de FONATEL:
+a. “…Los habitantes de las zonas del país donde el costo de las inversiones para la instalación y el mantenimiento de la infraestructura hace que el suministro de estos servicios no sea financieramente rentable...” (Artículo 32, inciso a.)
+b. “…Los habitantes del país que no tengan recursos suficientes para acceder a servicios de telecomunicaciones...” (Artículo 32, inciso b.)
+c. “…Las instituciones y personas con necesidades sociales especiales, tales como albergues de menores, adultos mayores, personas con discapacidad, población indígena, escuelas y colegios públicos, así como centros de salud públicos. (Artículo 32, inciso c.)…”
+Asimismo, el Artículo 19 del Reglamento categoriza los programas de Acceso Universal, Servicio Universal y Solidaridad financiables con recursos de FONATEL:
+1. Clientes o grupos de clientes específicos: Podrán ser calificados como servicios potencialmente financiados con cargo al FONATEL los que deban prestarse a clientes que por no contar con recursos suficientes para disponer de ellos, no tienen acceso a servicios de telecomunicaciones de calidad, de manera oportuna y eficiente. Estos clientes pueden ser personas, hogares, organizaciones. Las personas u hogares serán escogidas mediante sistemas oficiales de selección de población pobre o vulnerable. Las organizaciones serán instituciones tales como albergues de menores, adultos mayores, personas con discapacidad, escuelas y colegios públicos y centros de salud públicos.
+2. Servicios específicos: En esta categoría se clasificarán todos los servicios que siguiendo los criterios establecidos en este reglamento, la SUTEL resuelva promover mediante proyectos a ejecutar con dicho propósito, fijando para ellos un nivel de tarifas, calidad y cantidad tal, que sólo puedan ser prestados bajo condiciones de costos ajenas a los estándares comerciales, a tal grado que su ejecución implique por lo tanto un déficit financiero que deberá ser cubierto con recursos del FONATEL.
+4.2. Criterios para la definición de los Proyectos y Programas con Cargo a FONATEL.
+Para establecer las obligaciones y definir los proyectos por desarrollar con cargo a FONATEL, la SUTEL , en ejercicio de sus atribuciones y obligaciones definidas por ley, utilizará los siguientes criterios para la consideración de las iniciativas y la definición de los proyectos y programas:
+a. Procura el cumplimiento de los Objetivos Fundamentales del Régimen de Acceso Universal, Servicio Universal y Solidaridad, establecidos en el artículo 32 de la Ley General de Telecomunicaciones.
+b. Está cubierto por las metas definidas en el Plan Nacional de Desarrollo de las Telecomunicaciones.
+c. Las poblaciones beneficiarias corresponden con las poblaciones objetivo de los proyectos por desarrollar con cargo a FONATEL.
+d. Las poblaciones beneficiarias están ubicadas en áreas que no cuentan con acceso a servicios de telecomunicaciones en condiciones adecuadas de capacidad y calidad, de acuerdo con lo establecido en el Reglamento de Prestación y Calidad de los Servicios de Telecomunicaciones, a la Ley N ° 8642.
+e. Las poblaciones por beneficiar tienen bajos niveles en indicadores socioeconómicos relevantes, como: Densidad Poblacional, Índice de Desarrollo Humano, Índice de Desarrollo Social, Índice de carencias críticas, Índice de Rezago Social, Índice de Competitividad Cantonal.
+f. Los poblados beneficiarios están ubicados en los distritos de atención prioritaria designados por la SUTEL para cada una de las regiones socioeconómicas del país, definidas por el Ministerio de Planificación Nacional y Política Económica.
+g. Los poblados beneficiarios están ubicados en distritos con baja disponibilidad de acceso a servicios de telecomunicaciones (por ejemplo, con uno o ningún proveedor de servicios de telecomunicaciones; niveles de servicio inferiores a los requeridos en el Reglamento de Prestación y Calidad de los Servicios (RPCS), publicado en La Gaceta N ° 82, del 29 de abril de 2009) o sin obligación de cobertura en los Planes de Desarrollo de las Redes Móviles.
+h. Los beneficiarios incluyen Centros de Prestación de Servicios Públicos, como Centros Educativos Públicos, Centros Comunitarios Inteligentes o Centros de Acceso Público a Internet, Centros de Atención de Salud Públicos.
+i. Contempla elementos de conectividad y equipo terminal para Centros Prestación de Servicios Públicos incluidos en los Perfiles de Proyecto del Acuerdo Social Digital, presentado por la Presidencia de la República.
+j. Considera elementos de Soporte, Mantenimiento y Sostenibilidad de las soluciones propuestas.
+k. Promueve la neutralidad tecnológica en la implementación de la infraestructura y la provisión de los servicios.
+l. Conformado con un enfoque multianual de prestación de servicios.
+m. Incluye una estimación fundamentada del presupuesto y el plazo de implementación.
+n. Considera el aporte de una subvención o subsidio de FONATEL para cubrir el déficit generado por la prestación del servicio universal, de acuerdo con el presupuesto y la contabilidad separada del proyecto durante el plazo del contrato.
