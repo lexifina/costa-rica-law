@@ -14,3 +14,4 @@ Declaratoria de confidencialidad de indicadores de calidad del Reglamento de pre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-29 | la propia norma |
+| 2 | 2013-07-10 | Resolución 217 (2013-07-10) |
