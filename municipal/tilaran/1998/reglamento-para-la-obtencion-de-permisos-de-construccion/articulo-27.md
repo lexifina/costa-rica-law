@@ -1,1 +1,0 @@
-Artículo 27.—En todo permiso de construcción, reparación, ampliación o remodelación se reservará 1.75 metros, hacia dentro del cordón y caño, para que en dicha área sea construida la acera, dicha área será completamente exigido de la obra para lo cual se dio el permiso.

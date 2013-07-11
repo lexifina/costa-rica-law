@@ -1,4 +1,0 @@
-Artículo 13.—No conforme el interesado con la decisión del Consejo Municipal, podrá apelar la misma dentro de los cinco días hábiles siguientes a aquel en que se le notificó la resolución.
-En este caso el Consejo Municipal solicitará la colaboración del Colegio Federado de Ingenieros y Arquitectos de Costa Rica, a efecto que externe su criterio.
-Recibido el informe solicitado, el Consejo Municipal procederá a resolver el asunto objeto de la controversia.
-Conocida una solicitud la Municipalidad deberá resolverla dentro del mes siguiente, vencido este plazo sin comunicación alguna por parte de la Municipalidad, se presume que la solicitud fue aceptada, sin perjuicio de las enmiendas que la misma ordene dentro de los treinta días siguientes al del vencimiento del primer plazo, de lo contrario, se entenderá por definitivamente aprobado el permiso en los términos solicitados.

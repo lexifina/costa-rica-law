@@ -1,1 +1,0 @@
-Artículo 20.—La apertura del pavimento de la vía pública para la ejecución de obras privadas, requerirá de la Municipalidad o del Mopt licencia previa, según corresponda, quienes fijarán en cada caso las condiciones bajo los cuales la concede. El solicitante estaría obligado a la reparación correspondiente o al pago de ésta, si la hiciera la Municipalidad o el MOPT.

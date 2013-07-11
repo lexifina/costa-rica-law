@@ -1,1 +1,0 @@
-Artículo 17.—Toda alteración al trazo de una construcción hacia fuera del alineamiento oficial, será considerada corno una invasión de la vía pública, quedando obligado el dueño de la construcción a demoler la parte de la misma que motive dicha invasión dentro del plazo que al efecto señale el Consejo Municipal.

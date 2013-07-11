@@ -1,2 +1,0 @@
-Artículo 28.—La pendiente de la acera hacia el cordón y caño no podrá exceder del 25% y los pisos deberán tener acabado antideslizante.
-En casos calificados en que la pendiente de la calle sea muy pronunciada, se deberá presentar un estudio del diseño de la acera a la Municipalidad para su aprobación. Los cortes en aceras y en cordones de caño para la entrada de vehículos a los predios, no deberán entorpecer ni hacer molesto él transito de peatones. La Municipalidad podrá prohibirlos y autorizar el uso de rampas movibles.
