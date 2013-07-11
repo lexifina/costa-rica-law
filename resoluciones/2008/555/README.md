@@ -14,3 +14,4 @@ Actualiza la Lista de Principios Activos de Medicamentos Multiorigen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-19 | la propia norma |
+| 2 | 2013-07-11 | Resolución 1726 (2013-07-11) |

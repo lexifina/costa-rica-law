@@ -11,8 +11,9 @@ EL CONSEJO TÉCNICO DE INSCRIPCIÓN DE MEDICAMENTOS,
 RESUELVE:
 1º—Actualizar la lista de principios activos contenidos en medicamentos multiorigen que deben cumplir con las pruebas de bioequivalencia/biodisponibilidad publicada en La Gaceta N° 6 del 09 de enero del 2008, según lo dispuesto en el Decreto Ejecutivo Nº 28466-S del día 8 de febrero del 2000, Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos, publicado en La Gaceta Nº 42 del 29 del febrero del 2000 y el Decreto Ejecutivo Nº 32470-S del 04 de febrero del 2005, Reglamento para el Registro Sanitario de Medicamentos que Requieren Demostrar Equivalencia Terapéutica, publicado en La Gaceta Nº 149 del 4 de agosto del 2005.
 SECCIÓN Nº 1
-Principios Activos Contenidos en Medicamentos Multiorigen que Deben Demostrar su Bioequivalencia por medio de Estudios IN VIVO en Seres Humanos, Complementados con Perfiles de Disolución Comparativos IN VITRO con el Producto de Referencia:
-Nº | Principio activo (Denominación Común Internacional)
+Principios Activos Contenidos en Medicamentos Multiorigen que Deben Demostrar su Equivalencia Terapéutica por medio de Estudios de Bioequivalencia en Seres Humanos, Complementados con Perfiles de Disolución Comparativos con el Producto de Referencia oficial:
+(Así reformado el párrafo anterior mediante resolución DAC-217 del 11 d ejulio de 2013)
+Nº Consecutivo | Principio activo (Denominación Común Internacional)
 1 | Carbamazepina
 2 | Ciclosporina
 3 | Nelfinavir mesilato
@@ -44,6 +45,9 @@ Nº | Principio activo (Denominación Común Internacional)
 29 | Ritonavir
 30 | Saquinavir
 31 | Tacrolimus
+32 (Así adicionado el consecutivo anterior mediante resolución DAC-217 del 11 de julio de 2013) | Emtricitiavina (Así adicionado el principio anterior mediante resolución DAC-217 del 11 de julio de 2013)
+33 (Así adicionado el consecutivo anterior mediante resolución DAC-217 del 11 de julio de 2013) | Tenofovir (Así adicionado el principio anterior mediante resolución DAC-217 del 11 de julio de 2013)
+34 (Así adicionado el consecutivo anterior mediante resolución DAC-217 del 11 de julio de 2013) | Atazanavir (Así adicionado el principio anterior mediante resolución DAC-217 del 11 de julio de 2013)
 SECCIÓN Nº 2
 Principios Activos Contenidos en Medicamentos Multiorigen a los que se les exige la Presentación de Perfiles de Disolución Comparativos IN VITRO con el Producto de Referencia:
 Nº | Principio activo (Denominación Común Internacional)
