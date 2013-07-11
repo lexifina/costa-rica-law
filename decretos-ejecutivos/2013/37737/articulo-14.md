@@ -1,0 +1,14 @@
+Artículo 14.—De la puntuación adicional por “bonificación”. Se otorgará un total de siete puntos adicionales, al oferente que demuestre que - a la fecha de entrega de la oferta dentro del presente procedimiento abreviado - ha invertido en el mejoramiento sustancial del servicio permisionado, en cuatro líneas específicas de acción, a saber:
+14.1) Se otorgará un total de tres puntos adicionales de bonificación, a todos aquellos permisionarios oferentes que demuestren que cuentan con terminales e infraestructura necesarias para asegurar la confortabilidad de sus usuarios en la ruta servida.
+El puntaje adicional se otorgará siempre y cuando el prestatario demuestre fehacientemente y por los mismos medios indicados en el apartado 13.3) del presente reglamento que cuenta con dichas instalaciones. Se requerirá del aporte correspondiente al registro fotográfico actualizado de dichas instalaciones, en formato digital e impreso.
+14.2) Se otorgará un total de un punto adicional de bonificación, a todos aquellos oferentes que a la fecha de presentación de las ofertas, cuenten con al menos un 10% de cumplimiento adelantado, del porcentaje requerido de adaptación de la flota óptima operativa, respecto de la Ley N° 7600 y sus reformas.
+Para la asignación del puntaje adicional, se tomará en cuenta la flota óptima operativa autorizada, o bien, aquella que se encuentre en proceso de inscripción, debidamente presentada con al menos UN MES CALENDARIO de anticipación a la fecha de presentación de la oferta, por parte del permisionario oferente.
+14.3) Se otorgarán dos puntos adicionales de bonificación a todos aquellos oferentes que a la fecha de presentación de las ofertas, tengan vehículos inscritos o en proceso de inscripción, debidamente presentadas con al menos UN MES CALENDARIO de anticipación a la fecha de presentación de la oferta por parte del permisionario oferente, que cuenten con tecnologías limpias o que utilicen combustibles limpios (combustible GLP, biocombustibles, eléctricos, entre otros) según el siguiente desglose:
+Si del 10% al 30% de la flota tiene tecnologías limpias o que utilicen combustibles limpios, se le otorgará un punto adicional.
+Del 31% al 100% se le otorgarán dos puntos adicionales.
+14.4) Se otorgará un punto adicional de bonificación a todos aquellos oferentes que a la fecha de presentación de las ofertas cuenten en sus instalaciones con un sistema de manejo de residuos sólidos y aceites, para lo cual deberá presentar documento idóneo que demuestre tal situación así como el respectivo registro fotográfico de prueba.
+CUADRO RESUMEN DE PUNTUACIÓN
+Puntaje de Bonificación | Puntos en disputa | Puntaje obtenido
+El permisionario tiene inversiones en terminales | 3 |
+El permisionario tiene un 10 % de cumplimiento adelantado del porcentaje de adaptación requerido por ley 7600 . Vehículos con tecnologías limpias y que utilicen combustibles limpios Sistema de manejo de residuos sólidos y aceites | 1 1 o 2 1 |
+| |

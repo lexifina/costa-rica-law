@@ -1,0 +1,2 @@
+Artículo 15.—Puntaje mínimo para optar a la condición de concesionario. Para lograr el estatus de concesionario deberá alcanzar la oferta que presente el permisionario, una puntuación mínima de 80 puntos.
+En caso de que algún oferente NO alcance la puntuación mínima a que se refiere el párrafo primero de este artículo, el servicio de la ruta en cuestión se licitará según los parámetros ordinarios establecidos para tal efecto por el Consejo de Transporte Público, con base en la Ley N° 3503 de 10 de mayo de 1965 y sus reformas.
