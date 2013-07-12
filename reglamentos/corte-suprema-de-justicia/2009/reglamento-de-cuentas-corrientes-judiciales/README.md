@@ -14,3 +14,4 @@ Reglamento de Cuentas Corrientes Judiciales
 | --- | --- | --- |
 | 1 | 2010-02-10 | la propia norma |
 | 2 | 2010-10-25 | Circular 142 (2010-10-25) |
+| 3 | 2013-07-12 | Circular 125 (2013-07-12) |
