@@ -14,3 +14,4 @@ Reglamento para la Protección de los Programas de Cómputo en los Ministerios e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-31 | la propia norma |
+| 2 | 2013-07-12 | Decreto Ejecutivo 37833 (2013-07-12) |
