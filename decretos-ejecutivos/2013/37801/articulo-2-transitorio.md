@@ -1,0 +1,1 @@
+Transitorio II.—El Ministro de Educación Pública realizará una propuesta de contextualización de los planes y programas de estudio que responda con lo establecido en el artículo 5 del presente Decreto, máximo 12 meses después de la entrada en vigencia de este Decreto.

@@ -1,0 +1,1 @@
+Artículo 10.—La Unidad de Coordinación del Subsistema de Educación Indígena. Se crea la Unidad de Coordinación del Subsistema de Educación Indígena, adscrita al Despacho del Ministro de Educación Pública, la cual está conformada por un coordinador con rango de jefe de departamento y el personal que el jerarca ministerial estime conveniente.

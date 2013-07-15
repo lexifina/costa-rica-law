@@ -1,0 +1,1 @@
+Transitorio V.—El Poder Ejecutivo reglamentará en un plazo no mayor de 6 meses a partir de la entrada en vigencia de este Decreto, el Reglamento General de Juntas de Educación y Juntas Administrativas, Decreto Ejecutivo N° 31024-MEP, con el fin de que cumpla con lo establecido en el artículo 23 de este Decreto.

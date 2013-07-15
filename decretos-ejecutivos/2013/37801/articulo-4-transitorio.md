@@ -1,0 +1,1 @@
+Transitorio IV. Los Consejos Locales de Educación previstos en los artículos 15, 16, 17, 18, 19 y 20 deberán estar en funciones a más tardar tres meses después de la entrada en vigencia del presente Decreto y el Consejo Nacional de Educación Indígena previsto en los artículos 21 y 22 a más tardar seis meses después de la entrada en vigencia del presente Decreto.

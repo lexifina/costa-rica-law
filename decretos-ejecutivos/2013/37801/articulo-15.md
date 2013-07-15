@@ -1,0 +1,12 @@
+CAPÍTULO IV
+SECCIÓN I
+Mecanismos permanentes de participación y consulta
+Artículo 15.—Consejos Locales de Educación Indígena. En cada territorio indígena se conformará un Consejo Local de Educación Indígena, el cual tendrá como principal competencia promover el cumplimiento de los objetivos de la educación indígena en el territorio respectivo con la potestad de ser consultado de manera obligatoria por parte de las autoridades educativas nacionales, regionales y circuitales del MEP.
+Los Consejos Locales de Educación Indígena tendrán la atribución de ser consultados de manera obligatoria en los procesos de nombramiento y reclutamiento de personal de los servicios educativos.
+El Ministerio de Educación Pública facilitará el funcionamiento de los Consejos Locales de Educación Indígena, que contarán con un espacio físico de dotación obligatoria para reuniones, archivo y almacenamiento de documentación y celebración de audiencias en las sedes de las supervisiones de los circuitos indígenas. La aprobación de dietas o estipendios para sus integrantes deberá ser aprobado mediante Ley de la República.
+Los Consejos Locales de Educación Indígena ejercerán las siguientes funciones:
+1) Recibir, analizar y canalizar ante el Ministerio de Educación Pública las propuestas de nombramientos interinos de personal que se presenten en su respectivo territorio. Para el caso de los nombramientos en propiedad, el Consejo debe ser consultado por parte de las autoridades competentes.
+2) Colaborar con las labores de los supervisores de los circuitos indígenas, a solicitud de estos, con el buen funcionamiento de los centros educativos y el correcto desempeño del personal de los mismos, de los circuitos y direcciones regionales en territorios indígenas, así como de las organizaciones de la comunidad educativa, tales como patronatos escolares, juntas de educación, juntas administrativas y gobiernos estudiantiles, e informar con oportunidad a las autoridades del MEP.
+3) Colaborar con las autoridades educativas en la organización de los procesos de consulta comunal y técnica para la contextualización y pertinencia de los programas de estudio y los servicios educativos en territorios indígenas.
+4) Designar al representante del Territorio ante el Consejo Consultivo Nacional de Educación Indígena.
+5) Todas aquellas actividades relacionadas con el diálogo comunitario y el mejoramiento de la calidad de la educación en los territorios indígenas, como foros públicos, seminarios, talleres, etc.

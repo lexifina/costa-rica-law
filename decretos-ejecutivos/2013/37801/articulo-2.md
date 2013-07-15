@@ -1,0 +1,16 @@
+CAPÍTULO II
+La Educación Indígena
+Artículo 2º—Objetivos de la Educación Indígena. Los objetivos de la Educación Indígena, sin perjuicio de los fines de la educación costarricense, son los siguientes:
+1) Procurar que se preserven los idiomas indígenas que aún existen, promoviendo el desarrollo y la práctica de los mismos. Cuando se trate de pueblos que utilicen su idioma, siempre que sea posible, enseñar a los niños y niñas a leer y a escribir en su idioma materno y garantizar que lleguen a dominar el español como idioma oficial de la Nación.
+2) Divulgar los derechos y obligaciones de los pueblos indígenas en los centros educativos y comunidades.
+3) Articular los conocimientos universales, nacionales, regionales y locales en los planes y programas de estudio, el desarrollo del currículum contextualizado y la evaluación pertinente y contextualizada de los aprendizajes.
+4) Promover el diálogo intercultural y las aptitudes que les ayuden a los estudiantes a participar plenamente y en pie de igualdad en la vida de su propia comunidad, en la vida social de los territorios indígenas, de las regiones donde se encuentran y de la comunidad nacional e internacional.
+5) Facilitar los recursos curriculares, pedagógicos y financieros para el buen cumplimiento del derecho a la educación de los niños, niñas, adolescentes, jóvenes, adultos y adultos mayores que habitan los territorios indígenas.
+6) Velar por la calidad de los servicios educativos en términos de equidad en el acceso, resultados educativos en términos de rendimiento académico, buen trato entre profesores y estudiantes, respeto y cumplimiento de los derechos humanos.
+7) Promover y facilitar la formación de educadores originarios de las comunidades y pueblos indígenas y su participación en la formulación y ejecución de los programas de estudio.
+8) Promover la creación de instituciones educativas propias de los pueblos indígenas, siempre que satisfagan las normas mínimas establecidas por las autoridades educativas nacionales en consulta con los pueblos indígenas y respetando el ordenamiento jurídico vigente.
+9) Promover con las instancias correspondientes programas educativos para el desarrollo comunitario, con el fin de afianzar la interrelación entre la cultura local, regional, nacional y universal.
+10) Impulsar la realización de traducciones escritas de materiales educativos y en los idiomas de los pueblos indígenas y divulgarlos masivamente.
+11) Promover el acceso universal de la población indígena a la Educación todos los ciclos y niveles en que está organizado el Sistema Educativo Costarricense y a las modalidades educativas disponibles que mejor se adapten a sus necesidades socio-culturales.
+12) Responder a las necesidades socioeconómicas y culturales de los pueblos indígenas, abarcando su historia, conocimientos y técnicas, sus sistemas de valores y todas sus demás aspiraciones de carácter material y espiritual.
+13) Producir materiales educativos para el Sistema Educativo, orientados a sensibilizar y capacitar a todos los sectores de la comunidad nacional y especialmente los que estén en contacto más directo con los pueblos indígenas, con el fin de eliminar los prejuicios que pudieran tener con respecto a estos pueblos.

@@ -1,0 +1,1 @@
+Artículo 16.—Integración de los Consejos Locales de Educación Indígena. El Consejo Local de educación Indígena estará integrado únicamente por personas indígenas habitantes del territorio correspondiente. Además, deberá estar integrado de manera equitativa entre hombres y mujeres indígenas.

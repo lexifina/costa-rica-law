@@ -1,0 +1,1 @@
+Transitorio VII.—El Poder Ejecutivo reglamentará en un plazo no mayor de 12 meses a partir de la entrada en vigencia de este Decreto, los procedimientos necesarios para que las estructuras administrativas y académicas en todo el territorio nacional cumplan con lo establecido en el artículo 32 de este Decreto.

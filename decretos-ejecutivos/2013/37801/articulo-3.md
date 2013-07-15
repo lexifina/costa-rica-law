@@ -1,0 +1,1 @@
+Artículo 3º—Idiomas maternos vigentes. Se reconocen como idiomas maternos vigentes en los territorios indígenas reconocidos sin perjuicio de que otros puedan ser también incorporados en planes y programas del Ministerio de Educación Pública, el Cabécar, el Bribri, el Ngöbe, el Buglé y el Maleku. En proceso de revitalización el Teribe y el Boruca.

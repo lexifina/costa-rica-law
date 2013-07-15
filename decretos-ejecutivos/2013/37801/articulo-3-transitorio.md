@@ -1,0 +1,1 @@
+Transitorio III.—El Ministro de Educación Pública en coordinación con las instancias competentes presentará una estrategia para la promoción de la formación y el desarrollo profesional de jóvenes indígenas, de acuerdo con lo dispuesto en el artículo 6º de este Decreto, a más tardar 6 meses después de la entrada en vigencia del presente Decreto .

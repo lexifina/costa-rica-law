@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Estudiantes fuera de territorios indígenas
+Artículo 30.—Derecho de los niños y adolescentes indígenas fuera de sus territorios a una educación de calidad. El Ministerio de Educación Pública, por medio de sus estructuras y autoridades administrativas y académicas en todo el territorio nacional y en el nivel central, les garantizará a los niños, niñas y adolescentes indígenas que estudien en cualquiera de los niveles, ciclos y modalidades de la educación pública, fuera de los territorios indígenas, el cumplimiento del derecho a una educación de calidad respetando en todos los aspectos sus derechos culturales, económicos y sociales.

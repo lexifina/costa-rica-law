@@ -1,0 +1,1 @@
+Artículo 20.—Problemas funcionales. En caso de que el Consejo Local de Educación Indígena no se conforme, las funciones 1), 2), 3) y 5), establecidas en el artículo 15 de este Decreto serán asumidas por el o los supervisores de los circuitos respectivos.

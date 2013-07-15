@@ -1,0 +1,1 @@
+Transitorio I.—El personal actualmente en propiedad en territorios indígenas que no reúna los requisitos y condiciones establecidos en los artículos 24, 25 y 26 de este Decreto podrá ser trasladado por el Ministerio de Educación Pública de común acuerdo a otros puestos donde no se le cause grave perjuicio.
