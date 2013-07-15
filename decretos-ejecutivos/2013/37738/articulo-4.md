@@ -1,0 +1,1 @@
+Artículo 4º—Que la implementación del Plan Nacional de Transportes se complementará con el resto de los actores, públicos y privados, que tengan competencias y desarrollen funciones o actividades relacionadas con el Sector Transporte, con el objetivo de enfrentar los desafíos y aprovechar las oportunidades que contribuyan sostenidamente con el desarrollo del país.

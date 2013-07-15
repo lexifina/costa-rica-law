@@ -1,0 +1,1 @@
+Artículo 9º—El seguimiento de los proyectos será realizado por la Dirección de Planificación Sectorial del Ministerio de Obras Públicas y Transportes, según sus competencias y su ámbito de acción, instancia que funge como Secretaría Sectorial del Sector y asesora del Rector del Sector Transporte.

@@ -1,0 +1,1 @@
+Artículo 6º—Los órganos e Instituciones del Sector Transporte, deben hacer una previsión presupuestaria anualmente, para la contratación de los estudios de pre inversión de acuerdo con las acciones de corto, mediano y largo plazo programadas en el Plan Nacional de Transportes 2011-2035.

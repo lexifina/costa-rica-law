@@ -1,0 +1,1 @@
+Artículo 8º—Las Instituciones que conforman el Sector Transporte deberán ejecutar los proyectos definidos en el Plan Nacional de Transportes, según la aprobación establecida por el Ministro Rector, el Consejo de Competitividad y la (el) Presidenta (e) de la República.
