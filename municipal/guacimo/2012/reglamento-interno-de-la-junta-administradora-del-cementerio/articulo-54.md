@@ -1,1 +1,0 @@
-Artículo 54.—Para la reparación o pintado de bóvedas con ocasión de las siguientes fechas: día del Padre, Día de la Madre y Día de los Difuntos; deberá realizarse al menos con ocho días de antelación a esas celebraciones o cuando la Junta lo especifique vía anuncio en la entrada a los cementerios o por medio de publicación.

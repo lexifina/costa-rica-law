@@ -1,1 +1,0 @@
-Artículo 70.—Se establece que cualquiera de los coarrendatarios de un derecho, puede dar permiso unilateralmente para exhumar, reparar, construir o inhumar a menos que exista documento recibido por la Junta donde definan todos ellos alguna particularidad al respecto.

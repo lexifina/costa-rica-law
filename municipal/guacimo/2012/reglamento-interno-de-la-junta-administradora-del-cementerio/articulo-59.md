@@ -1,1 +1,0 @@
-Artículo 59.—En caso de bóvedas o nichos en alto grado de deterioro que contenga restos que pongan en peligro la salud pública, el arrendatario deberá llevar a cabo, con la mayor prontitud, su reparación o modificación para lo cual solicitará la autorización por escrito a la Junta y esta mediante visto bueno autorizará la reparación.

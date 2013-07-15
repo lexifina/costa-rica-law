@@ -1,1 +1,0 @@
-Artículo 62.—Los traspasos legalmente permitidos, se harán en la oficina que al efecto tenga la Junta en la Municipalidad o en el cementerio, mediante la presentación de escritura pública o ejecutoria de sentencia judicial y aprobados por la Junta Directiva de la Junta.

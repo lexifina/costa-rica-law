@@ -1,1 +1,0 @@
-Artículo 86.—Los cadáveres que se sepulten en los nichos de bóvedas o alquilados deberán presentarse en cajas cerradas. Queda prohibida la inhumación de más de un cadáver en el mismo nicho, salvo que se trate de madre y recién nacido, muertos en el parto o gemelos igualmente muertos en el parto.

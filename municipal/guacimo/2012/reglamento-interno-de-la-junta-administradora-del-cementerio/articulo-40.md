@@ -1,1 +1,0 @@
-Artículo 40.—En caso de aprobarse la solicitud el arrendatario presentará ante la Junta una autorización por escrito, especificando el trabajo a realizar y el nombre del constructor designado el cual deberá someterse a la normativa y directrices de este Reglamento y lo que dicte la Administración del Cementerio para llevar a cabo la obra.

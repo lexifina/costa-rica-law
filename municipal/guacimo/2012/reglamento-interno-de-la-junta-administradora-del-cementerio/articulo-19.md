@@ -1,1 +1,0 @@
-Artículo 19.—La relación laboral se regirá por las disposiciones comunes que rigen la contratación de personal en la empresa privada, por el código de trabajo y por el Reglamento General de Cementerios Públicos y Privados. Le corresponderá a la Junta realizar un manual descriptivo de puestos.

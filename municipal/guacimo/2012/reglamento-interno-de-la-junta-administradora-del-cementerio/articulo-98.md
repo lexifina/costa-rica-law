@@ -1,1 +1,0 @@
-Artículo 98.—La Junta Administradora del Cementerio Municipal de Guácimo, velará por la implantación de nuevos métodos en el registro de datos, acorde con la actualidad, las necesidades y posibilidades del equipo técnico.

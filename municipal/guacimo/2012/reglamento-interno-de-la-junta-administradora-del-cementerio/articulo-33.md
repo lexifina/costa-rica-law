@@ -1,1 +1,0 @@
-Artículo 33.—En los nichos de alquiler no se permitirá la inhumación de cadáveres en cajas de metal, ni cuerpos embalsamados. Las cajas o ataúdes deben ser livianos y de fácil descomposición. No se arrendarán estos nichos para momias traídas de otro cementerio.
