@@ -1,0 +1,1 @@
+Artículo 5º—Los enlaces técnicos de las Direcciones y Unidades de Planificación de las instituciones involucradas en el cumplimiento de la acción de seguridad vial, coordinarán las gestiones necesarias para dar cumplimiento a los acuerdos tomados por dicha Comisión.
