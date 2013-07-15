@@ -1,1 +1,0 @@
-Artículo 12.—Fuera de la jornada diaria sólo se permitirá la salida de los vehículos de uso administrativo a petición de la dependencia que lo requiera, con al menos un día de anticipación y con autorización escrita del Alcalde Municipal.
