@@ -1,5 +1,7 @@
 CAPÍTULO II
 Sobre el sistema de ayudas económicas
-Artículo 3º—Personas beneficiarias. Podrán ser beneficiarias del sistema de ayudas económicas del INA las personas participantes de escasos recursos económicos (condición de pobreza, pobreza extrema y en vulnerabilidad social) o con situaciones especiales que cumplan con lo establecido en el artículo 30 del presente Reglamento. Para ello debe demostrar que tiene esa condición socioeconómica u otra situación calificada que amerite el otorgamiento de la ayuda económica, previa valoración de la persona profesional en Trabajo Social.
+Artículo 3º—Personas beneficiarias
+Podrán ser beneficiarias del sistema de ayudas económicas del INA las personas participantes de escasos recursos económicos (condición de pobreza, pobreza extrema y en vulnerabilidad social) o con situaciones especiales que cumplan con lo establecido en el artículo 32 del presente Reglamento. Para ello debe demostrar que tiene esa condición socioeconómica u otra situación calificada que amerite el otorgamiento de la ayuda económica, previa valoración de la persona profesional en Trabajo Social.
 La ayuda económica será únicamente para personas costarricenses y extranjeras residentes en condición de permanentes, siempre que su estatus migratorio sea legalmente establecido en el país y conforme a lo dispuesto en este Reglamento.
 Si la persona solicitante, cuenta con ayuda económica brindada por otra institución pública o privada, el INA podrá valorar el otorgamiento o no de una ayuda económica que la complemente y que le permita cubrir necesidades de su condición de participante, siempre que su situación socioeconómica lo amerite.
+(Así reformado y publicado en La Gaceta N° 135 del 15 de julio del 2013)

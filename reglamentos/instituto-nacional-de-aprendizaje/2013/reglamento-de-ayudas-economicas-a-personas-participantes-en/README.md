@@ -14,3 +14,4 @@ Reglamento de ayudas económicas a personas participantes en servicios de capaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-02 | la propia norma |
+| 2 | 2013-07-15 | Reglamento 0 (2013-07-15) |
