@@ -14,3 +14,4 @@ Reforma Código de Deberes Jurídicos, Morales y Éticos del Profesional en Dere
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-16 | la propia norma |
+| 2 | 2013-07-16 | Reglamento 21 (2013-06-17) |
