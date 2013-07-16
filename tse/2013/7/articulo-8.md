@@ -1,0 +1,2 @@
+Artículo 8º—De los desfiles y caravanas. En el caso de los desfiles o caravanas, la ruta debe ser claramente especificada en la solicitud de permiso y llevarse a cabo con estricto apego a las regulaciones de tránsito y a las que ordene el Tribunal Supremo de Elecciones, por medio de sus Delegados.
+Tratándose del simple tránsito de una caravana de vehículos con destino a otro lugar, se deberá circular a velocidad reglamentaria, sin detenerse y acatando la ruta previamente señalada.

@@ -1,0 +1,2 @@
+Artículo 11.—Del trámite general de las solicitudes. Con cada solicitud se formará un expediente separado, en el cual se consignarán las actuaciones llevadas a cabo. El Cuerpo Nacional de Delegados dictará las resoluciones respectivas; resolverá a la mayor brevedad y de acuerdo con el orden de presentación de las solicitudes.
+Las resoluciones serán suscritas por la respectiva Jefatura del Cuerpo Nacional de Delegados o bien por el funcionario en quien se delegue su firma.

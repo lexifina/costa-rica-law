@@ -1,0 +1,5 @@
+Artículo 20.—De las ferias electorales y sus disposiciones específicas. Para la realización de las ferias electorales se deberá tomar en cuenta las siguientes disposiciones:
+a) La participación de los partidos políticos y coaliciones será voluntaria, en el entendido de que la no concurrencia no les resta el derecho de realizar otras actividades para las cuales hayan obtenido el permiso respectivo.
+b) Los lugares específicos en que se ubicarán las agrupaciones políticas que concurran a la actividad, serán objeto de rifa con tal de garantizar la igualdad de trato entre los participantes. De ello se levantará un acta, firmada por los concurrentes.
+c) Se procurará fomentar y garantizar la participación equitativa de todos los partidos políticos y coaliciones, así como el orden y seguridad en la actividad, guardándose las distancias prudenciales entre los grupos, así como el libre tránsito de todas las personas.
+En razón de su análoga naturaleza, le son aplicables a la feria electoral todas las disposiciones normativas propias de los piquetes, señaladas en los numerales 18 y 19 de este reglamento.

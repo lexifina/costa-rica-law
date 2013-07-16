@@ -1,0 +1,1 @@
+Artículo 21.—Del manejo de los desechos que se generen en las actividades autorizadas. Toda agrupación deberá velar por el adecuado manejo de los desechos que se produzcan, de lo que serán responsables directos.

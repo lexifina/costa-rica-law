@@ -1,0 +1,19 @@
+N° 7-2013
+EL TRIBUNAL SUPREMO DE ELECCIONES
+Considerando:
+I.—Que en virtud de lo estipulado por la Constitución Política en sus artículos 9 párrafo 3°, 99 y 102, es competencia del Tribunal Supremo de Elecciones organizar, dirigir y vigilar los actos relativos al sufragio, siendo uno de ellos, de carácter fundamental para los procesos electorales, la regulación de la propaganda político-electoral.
+II.—Que el Tribunal Supremo de Elecciones goza de potestad reglamentaria, de conformidad con el artículo 12 inciso a) del Código Electoral, para dictar la normativa que regula la materia electoral.
+III.—Que el artículo 137 del Código Electoral establece que las manifestaciones, desfiles u otras actividades en vías públicas, plazas, parques u otros sitios públicos que realicen los partidos políticos, a partir de la convocatoria oficial a elecciones, deberán contar con la autorización del Tribunal Supremo de Elecciones. Por tanto,
+Decreta
+El siguiente:
+Reglamento para Autorizar Actividades de los Partidos
+Políticos en Sitios Públicos
+Artículo 1º—Del objeto del reglamento y las definiciones de las diferentes actividades reguladas. El presente reglamento tiene como objeto regular el procedimiento para otorgar la autorización requerida a partidos políticos y coaliciones para realizar actividades en sitios públicos, a partir de la convocatoria a elecciones.
+Para los efectos de interpretación y aplicación de este reglamento, se establecen las siguientes definiciones de las posibles actividades por realizarse:
+Plaza pública: Concentración masiva de personas convocada por un partido político o coalición, que generalmente se realiza al aire libre, utilizando tarimas u otras estructuras afines al objetivo que persigue la reunión y en la cual es permitido el uso de altavoces y otros equipos. Este tipo de actividades podría implicar el cierre de vías.
+Mitín: Reunión en la que el público escucha el discurso de algún personaje de relevancia política, motivo por el cual el respectivo orador tendrá la posibilidad de emplear algún mecanismo para proyectar y amplificar su voz, como un micrófono y altoparlantes. No es propiamente una concentración masiva de personas.
+Piquete: Actividad realizada por los simpatizantes de un partido político o coalición en un lugar determinado, con el único fin de distribuir signos distintivos de cualquier naturaleza, alusivos a esa agrupación.
+Feria electoral: Actividad en la que diferentes partidos políticos y coaliciones en contienda se sitúan en un lugar estratégico, con el propósito de distribuir material impreso sobre las candidaturas inscritas, planes de gobierno o propuestas, con fines meramente informativos o propagandísticos.
+Desfile: Grupo o comitiva de personas que realizan un recorrido sin detenerse, caminando o en vehículo, con una ruta y un lugar de finalización definidos, y que podría desembocar o no en otra actividad de carácter político-electoral, la cual deberá contar con los permisos correspondientes. Este tipo de actividad puede involucrar el desarrollo de expresiones culturales y artísticas como música en vivo, bailes y otros; con o sin uso de altoparlantes.
+Caravana: Grupo de personas que, en cabalgaduras o vehículos, viajan o se desplazan unos tras otros, de manera ordenada y continua, y con una ruta definida previamente. Dado que se utilizan vías públicas para transitar, el recorrido deberá ajustarse a la normativa de tránsito, respetando siempre la ruta autorizada para ello.
+Sin perjuicio de las figuras arriba definidas, las reuniones espontáneas de ciudadanos que expresan su simpatía por determinada opción política no requerirán permiso previo del TSE, pero deberán siempre obedecer las regulaciones normativas referentes al libre tránsito de personas y vehículos, así como respetar la realización en el mismo lugar de otras actividades previamente aprobadas por la autoridad competente, todo dentro de los parámetros normativos de orden y seguridad vigentes.

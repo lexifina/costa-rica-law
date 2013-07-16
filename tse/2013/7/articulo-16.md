@@ -1,0 +1,2 @@
+Artículo 16.—De la notificación. Toda resolución será debidamente notificada de acuerdo con las normas establecidas en el Reglamento de Notificaciones a Partidos Políticos por Correo Electrónico (Decreto N° 06-2009 del 05 de junio de 2009, publicado en La Gaceta N° 117 del 18 junio de 2009).
+Adicionalmente, se publicará copia literal o del fragmento pertinente en el sitio web del TSE. Esta publicación no reabre el plazo para recurrir.
