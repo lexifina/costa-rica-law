@@ -1,1 +1,2 @@
-Artículo 22.—Medidas de seguridad. El Concejo Municipal tiene la obligación de tomar las medidas necesarias a fin de garantizar un ambiente de seguridad y tranquilidad el día de la consulta.
+Artículo 22.—Medidas de seguridad: El Concejo Municipal tomará las medidas de seguridad necesarias para garantizar un ambiente de seguridad y tranquilidad el día que se realiza la consulta popular. Para ello podrá solicitar la colaboración de las autoridades de la Fuerza Pública y de los Ministerios de Seguridad Pública y de Gobernación y Policía.
+(Así reformado en sesión N° 159 del 14 de mayo de 2013 y definitivamente aprobado en sesión N° 768 del 16 de julio de 2013)

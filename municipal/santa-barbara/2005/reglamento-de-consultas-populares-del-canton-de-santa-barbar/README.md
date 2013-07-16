@@ -14,3 +14,4 @@ Reglamento de Consultas Populares del Cantón de Santa Bárbara
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-26 | la propia norma |
+| 2 | 2013-07-16 | Reglamento municipal 768 (2013-07-16) |
