@@ -1,1 +1,0 @@
-Artículo 4º- Para los efectos del artículo 2º anterior el Ministerio de Educación requerirá de la Contraloría General de la República la información conducente a determinar los ingresos esperados por cada Municipalidad por concepto del impuesto de bienes inmuebles.

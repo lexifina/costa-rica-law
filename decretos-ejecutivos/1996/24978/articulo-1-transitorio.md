@@ -1,1 +1,0 @@
-Transitorio- Los recursos que corresponden a los períodos comprendidos entre el primero de enero al diecinueve de junio y el veinte de octubre al treinta y uno de diciembre de 1995, deberán ser girados por las Municipalidades con base en la comunicación realizada por el Departamento de Juntas de Educación y Juntas Administrativas en el mes de abril de 1995.
