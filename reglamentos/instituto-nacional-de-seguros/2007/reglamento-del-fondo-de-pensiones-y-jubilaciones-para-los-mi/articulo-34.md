@@ -1,4 +1,4 @@
-CAPÍTULO VII
-Aguinaldo
-Artículo 34.—Se otorgará a los beneficiarios del Fondo un pago adicional, por concepto de aguinaldo, igual a la dozava parte (1/12) del total de las pensiones recibidas durante el período comprendido entre el primero de noviembre del año anterior y el 31 de octubre del año en que se efectúe el pago.
-Este pago se hará efectivo en el mes de diciembre, o cuando termine el derecho al pago de beneficio.
+CAPÍTULO VIII
+Otros beneficios
+Artículo 34.—Al ocurrir la defunción del bombero que se hallase disfrutando de la pensión al amparo del presente Reglamento, el Fondo otorgará contribución hasta por Ciento cincuenta mil (¢150.000.00) para sufragar sus gastos mortuorios. También concederá beneficio hasta igual monto y concepto, al morir la cónyuge o compañera del bombero pensionado.
+Esta ayuda se reconocerá a quien demuestre haber incurrido con dichos gastos, para ello deberá presentar factura timbrada cancelada.

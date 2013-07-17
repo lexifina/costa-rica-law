@@ -1,1 +1,3 @@
-Artículo 28.—El porcentaje de pensión correspondiente para la madre o el padre del bombero fallecido de acuerdo a las condiciones del artículo anterior, será de un 60 % del monto de la pensión que le hubiere correspondido al bombero o del que estuviere disfrutando al momento de su deceso.
+SECCIÓN V
+De los hermanos
+Artículo 28.—Si al fallecer el bombero no existieren cónyuge o excónyuge, compañera o excompañera de hecho, ni huérfanos con derecho a pensión, ni Madre o Padre, tendrán derecho a pensión los siguientes hermanos dependientes económicamente del bombero fallecido, según lo establecido en el artículo 12 del presente Reglamento.

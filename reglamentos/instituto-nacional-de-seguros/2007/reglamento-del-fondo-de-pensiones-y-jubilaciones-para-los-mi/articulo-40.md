@@ -1,5 +1,1 @@
-CAPÍTULO XII
-Bases financieras
-Artículo 40.—Las contribuciones para sufragar los beneficios del Fondo se harán por los miembros y por el Instituto en la forma siguiente:
-a) Todo miembro del fondo contribuirá con el doce punto cinco por ciento (12,5 %) del sueldo que perciba en el Instituto, que le será deducido mensualmente.
-b) Fijar la participación del Instituto en 37,5 % sobre los salarios de los bomberos adscritos al Régimen de Pensiones de Bomberos y aportar el mismo porcentaje sobre los montos de renta que perciben los pensionados actuales y futuros.
+Artículo 40.—Los aportes de los miembros del Fondo deberán registrarse en cuentas individuales para cada uno de ellos y devengarán intereses de acuerdo con el comportamiento del mercado de valores.

@@ -15,3 +15,4 @@ Reglamento del Fondo de Pensiones y Jubilaciones para los miembros del Beneméri
 | --- | --- | --- |
 | 1 | 2007-11-29 | la propia norma |
 | 2 | 2013-06-19 | SINALEVI (sin norma nombrada) |
+| 3 | 2013-07-17 | Reglamento 9166 (2013-07-17) |

@@ -1,2 +1,1 @@
-Artículo 50.—El Instituto mantendrá el Fondo invertido aparte de sus otros activos; por consiguiente, en la cuenta de patrimonio le abonará el interés obtenido en la inversión cuidadosa, rentable y segura que exige su naturaleza.
-La responsabilidad por la gestión y la obligación de suministrar información requerida por la SUPEN siempre recaerá en la Junta Administradora del Fondo.
+Artículo 50.—Anualmente o cuando así lo requiera la Administración Superior o el ente de supervisión externa, la Junta Administradora deberá rendir a la Gerencia del Instituto un informe sobre las operaciones efectuadas en el período, acompañado de los respectivos estados de contabilidad.

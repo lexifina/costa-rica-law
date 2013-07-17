@@ -1,3 +1,4 @@
-Artículo 52.—
-a) A partir de la fecha de vigencia de las modificaciones a este Reglamento, la Junta Administradora del Fondo podrá solicitar y realizar la contratación de valoraciones actuariales periódicas del Fondo, cuando menos una vez cada año, CON CORTE AL 30 DE JUNIO DE CADA AÑO.
-b) Los resultados de estas evaluaciones serán sometidas a conocimiento de la Junta Administradora del Fondo de Pensiones de Bomberos, quienes de inmediato informarán a la Gerencia sobre aquellos aspectos relevantes que inciden directamente sobre la gestión actual y futura del Fondo. Asimismo, el resultado del estudio actuarial será remitido a la Superintendencia de Pensiones, el último día hábil del mes de setiembre de cada año, según disposición del Ente Supervisor.
+CAPÍTULO XIV
+Disposiciones generales
+Artículo 52.—Es obligación de cada uno de los miembros del Fondo y beneficiarios, cuando corresponda, comprobar a satisfacción de la Junta Administradora , su fecha de nacimiento y cualquiera otra condición en que apoye su derecho.
+La falta de cumplimiento de este requisito ocasionará la suspensión de todos los beneficios que puedan corresponder de conformidad con el presente Reglamento.
