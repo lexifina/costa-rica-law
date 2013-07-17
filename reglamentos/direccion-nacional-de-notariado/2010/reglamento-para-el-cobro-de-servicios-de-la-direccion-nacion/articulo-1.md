@@ -11,16 +11,19 @@ VII.—Que es indispensable contratar personal para garantizar el cumplimiento d
 En virtud en uso de sus facultades y de las anteriores consideraciones se emite el siguiente:
 REGLAMENTO PARA EL COBRO DE SERVICIOS
 Artículo 1º—Para financiar el cumplimiento de los servicios de la Dirección Nacional de Notariado, el interesado deberá pagar las sumas que se establecen a continuación:
-Razón apertura de cada protocolo 25.000 colones
-Cada autenticación de firma de notario 10.000 colones
-Cada certificación 10.000 colones
-Tramitación expediente de autorización
-Para inscribirse como notario 50.000 colones
-Habilitación de notarios que hubieren cesado 25.000 colones
-Reposición de folios
-1 a 10 folios 50.000 colones
-De 11 en adelante, por cada folio adicional 5.000 colones
-Folios que no hayan sido utilizados totalmente 1.000 cada folio
-Cotejo (por cada escritura) 25.000 colones
-Custodia de protocolos que se depositen temporalmente
-En la Dirección Nacional de Notariado 10.000 colones por mes o fracción
+Detalle | Monto
+Razón Apertura de cada Protocolo | 25.000 colones
+Autenticación de firma de Notario (por cada firma) | 10.000 colones
+Certificación o constancia de Notario (por cada notario) | 10.000 colones
+Inscripción y habilitación como Notario | 50.000 colones
+Inscripción como Notario (solo inscripción) | 25.000 colones
+Habilitación como Notario (solo habilitación) | 25.000 colones
+Reposición de Credencial de Notario (título, licencia, certificado) | 25.000 colones
+Reposición de Folios de Protocolo
+De 1 a 10 folios (utilizados o no) | 50.000 colones
+De 11 en adelante (por cada folio adicional) | 5.000 colones
+Folios que no hayan sido utilizados totalmente (en blanco) | 1.000 cada folio
+Cotejo (por cada instrumento público a cotejar) | 25.000 colones
+Exhibición de Tomos (por cada tomo) | 25.000 colones
+Custodia de Protocolos que se depositen temporalmente en la Dirección Nacional de Notariado | 10.000 colones por mes o fracción
+(Así reformado mediante sesión N° 15 del 17 de julio del 2013)

@@ -14,3 +14,4 @@ Reglamento para el cobro de servicios de la Dirección Nacional de Notariado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-14 | la propia norma |
+| 2 | 2013-07-17 | Reglamento 15 (2013-07-17) |
