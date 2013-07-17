@@ -1,0 +1,1 @@
+Artículo 4°- Divulgación. El formato será distribuido a través de los mecanismos pertinentes y estará a disposición de las instituciones, así como para el resto de la ciudadanía, en la página electrónica del Ministerio de Hacienda https://www.hacienda.go.cr, y en forma impresa, en los archivos que se custodian en la Dirección General de Contabilidad Nacional.

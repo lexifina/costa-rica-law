@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. La finalidad de la misma es dar una orientación sobre el formato de los procedimientos contables y de esta manera homogenizar a nivel de instituciones del Sector Público costarricense.
