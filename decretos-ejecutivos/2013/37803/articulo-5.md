@@ -1,0 +1,6 @@
+Artículo 5°—Agréguese un inciso 4. y un inciso 23. al artículo 3° del Decreto Ejecutivo Nº 31849-MINAE-S-MOPT-MAG-MEIC del 24 de mayo de 2004 y córrase la numeración, de manera que el actual inciso 4. del artículo 3° del Decreto Ejecutivo Nº 31849-MINAE-S-MOPT-MAG-MEIC se numere inciso 5. y el actual inciso 23. del Decreto Ejecutivo Nº 31849-MINAE-S-MOPT-MAG-MEIC pase a ser el inciso 24. y así sucesivamente, los cuales se leerán de la siguiente manera:
+“Artículo 3°—Definiciones y abreviaciones
+…
+4. Actividades de Muy bajo impacto ambiental potencial, se refiere a las actividades humanas que, por su naturaleza no provocan alteración negativa del ambiente y que no representan una desmejora de la calidad ambiental del entorno en general o de alguno de sus componentes, ni afectación a la salud de la población, debido a que las emisiones atmosféricas, vertidos de aguas residuales, manejo de residuos ordinarios y especiales y ruido se ajustan a las disposiciones establecidas en la regulación vigente. Además, no se utilizan productos peligrosos y no generan residuos de este tipo.
+…
+23. Condiciones exógenas, se dice de las causas, fuerzas, elementos, condiciones, entre otros, originadas en el exterior de una obra, actividad o proyecto y que actúan sobre ellos.
