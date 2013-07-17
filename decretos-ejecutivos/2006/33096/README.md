@@ -14,3 +14,4 @@ Incentiva el uso de vehículos híbrido-eléctricos como parte del uso de tecnol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-19 | la propia norma |
+| 2 | 2013-07-17 | Decreto Ejecutivo 37822 (2013-07-17) |

@@ -1,0 +1,2 @@
+Artículo 10.—Se insta a todos los Centros de Educación Superior, Universidades Públicas y Privadas, Institutos Técnicos, Centros de Capacitación y Formación Parauniversitaria, y otros; para que incluyan dentro de los programas curriculares, la formación técnica especializada de profesionales, a fin de suplir la demanda de investigación y desarrollo tecnológico y mantenimiento/reparación de los vehículos eléctricos, híbridos, gas natural y gas de petróleo licuado.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 37822 del 17 de julio de 2013)

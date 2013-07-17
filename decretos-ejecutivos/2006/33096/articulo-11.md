@@ -1,0 +1,2 @@
+Artículo 11.—Se insta a todas las entidades e instituciones que conforman el Sector Público, a que consideren al momento de sustituir o cambiar la flotilla de vehículos institucionales, la adquisición de vehículos que utilicen energías alternativas, como la constituye la eléctrica, híbrida, gas natural y gas de petróleo licuado.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 37822 del 17 de julio de 2013)
