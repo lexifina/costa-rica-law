@@ -14,3 +14,4 @@ Reglamento de Cobro de la Municipalidad de Garabito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-19 | la propia norma |
+| 2 | 2013-07-17 | Reglamento municipal 168 (2013-07-17) |

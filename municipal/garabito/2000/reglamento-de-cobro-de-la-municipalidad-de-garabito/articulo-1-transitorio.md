@@ -1,0 +1,2 @@
+Transitorio único.—La Municipalidad otorgará una moratoria de tres meses a partir de la publicación de la reforma al artículo 5 del presente reglamento, para que los administrados actualicen sus datos ante esta Municipalidad, y eviten el pago de los costos establecidos. Transcurridos los tres meses se aplicará sin excepción alguna el artículo indicado.
+(Así adicionado mediante sesión ordinaria N° 168 del 17 de julio del 2013)
