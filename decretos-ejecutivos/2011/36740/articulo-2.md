@@ -1,1 +1,0 @@
-Artículo 2º—Solamente tendrán derecho al pago de la dieta, los miembros que asistan puntualmente a las sesiones respectivas y los miembros suplentes, cuando asuman el puesto por ausencia o causa legal que así lo determine, de alguno de los miembros propietarios de la Junta Directiva.
