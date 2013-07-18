@@ -14,3 +14,4 @@ Aprueba Reglamento Técnico: RTCR 412:2008 Crema (Nata) y Crema Ácida y Ferment
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-07 | la propia norma |
+| 2 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
