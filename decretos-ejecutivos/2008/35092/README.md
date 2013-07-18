@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 416:2008 Mezclas de leche condensada edulcorada desnata
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-24 | la propia norma |
+| 2 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
