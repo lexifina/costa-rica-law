@@ -17,3 +17,4 @@ Reglamento General de Compras Registro Nacional
 | 2 | 2002-10-24 | Reglamento 41 (2002-10-24) |
 | 3 | 2003-02-04 | Reglamento 0 (2003-02-04) |
 | 4 | 2005-01-20 | Reglamento 2 (2005-01-20) |
+| 5 | 2013-07-18 | Reglamento 26 (2013-07-18) |
