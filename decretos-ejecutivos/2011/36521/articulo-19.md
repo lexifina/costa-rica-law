@@ -1,1 +1,0 @@
-Artículo 19.—El Estado de emergencia fitosanitaria se prolongará por el tiempo necesario hasta que se logre controlar o llevar a niveles de umbral económico no perjudiciales a la agricultura afectada por la plaga.
