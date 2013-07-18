@@ -1,0 +1,1 @@
+Transitorio tercero: Las infraestructuras de telecomunicaciones existentes en el cantón, legalmente establecidas, sólo requerirán la debida Licencia Comercial. En caso de la modificación o ampliación de esta infraestructura de telecomunicaciones se deberá cumplir con lo establecido en este Reglamento.

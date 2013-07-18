@@ -1,0 +1,1 @@
+Artículo 13.—Resolución alternativa de conflictos: Será responsabilidad del propietario del inmueble, proveedores de infraestructura y operadores utilizar los mecanismos de resolución alternativa de conflictos que legalmente procedan, cuando exista un conflicto de intereses que lo permita, previo a utilizar las vías judiciales.

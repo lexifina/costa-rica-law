@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación: El presente reglamento se aplicará a todas las personas físicas o jurídicas, públicas o privadas, que soliciten permisos de uso del suelo conforme y licencias municipales para la instalación de infraestructura y operación de servicios de telecomunicaciones, en la jurisdicción del cantón Santo Domingo.
