@@ -15,3 +15,4 @@ Reglamento Técnico: RTCR: 401-2006. Leche cruda y Leche Higienizada
 | --- | --- | --- |
 | 1 | 2007-06-12 | la propia norma |
 | 2 | 2008-10-15 | Decreto Ejecutivo 34823 (2008-10-15) |
+| 3 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
