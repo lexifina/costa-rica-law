@@ -1,1 +1,0 @@
-Artículo 3º—La coordinación de las acciones necesarias y seguimiento de las mismas al amparo de lo dispuesto en el presente Decreto, corresponderá en primera instancia al Instituto Costarricense de la Pesca y Acuacultura, el cual contara con la colaboración de las restantes instancias públicas del Sector Agropecuario.
