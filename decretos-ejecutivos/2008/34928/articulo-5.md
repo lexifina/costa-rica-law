@@ -1,1 +1,0 @@
-Artículo 5º—El Instituto Costarricense de Pesca y Acuicultura (INCOPESCA), dispondrá conforme a su capacidad y competencia, la forma de garantizar el cumplimiento de lo normado en la Ley Nº 8436 del 10 de febrero del 2005, Ley de Pesca y Acuicultura y en este Decreto.
