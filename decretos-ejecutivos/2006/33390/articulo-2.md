@@ -1,1 +1,0 @@
-2º—Para la ejecución del Programa indicado, el mismo contará con el contenido económico que le sea incorporado en el Programa Presupuestario, creado para dichos fines en el Ministerio de Agricultura y Ganadería.
