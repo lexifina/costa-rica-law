@@ -1,1 +1,0 @@
-Artículo 3º—Quedan autorizados el Servicio Nacional de Salud Animal y el Servicio Fitosanitario del Estado para utilizar los recursos de los fondos de emergencia que sus leyes constitutivas crearon para la atención de esta emergencia sanitaria y fitosanitaria.
