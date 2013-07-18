@@ -14,3 +14,4 @@ Reglamento Técnico de Leche Evaporada RTCR 435:2009
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-15 | la propia norma |
+| 2 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
