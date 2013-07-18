@@ -1,0 +1,1 @@
+Transitorio: La industria tabacalera tendrá un plazo de doce meses, contado a partir de la notificación y entrega de los respectivos diseños por parte del Ministerio de Salud, para la implementación de los nuevos mensajes sanitarios y advertencias.

@@ -1,0 +1,1 @@
+Artículo 7°—Para los productos de tabaco y sus derivados que estén contenidos en empaques o presentaciones con diseños o formas que dificulten la adopción de las normas aquí establecidas, el Ministerio de Salud definirá los diseños de las advertencias sanitarias a lo señalado en este Reglamento y la Ley. N° 9028.

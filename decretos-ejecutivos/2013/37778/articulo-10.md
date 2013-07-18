@@ -1,0 +1,3 @@
+Artículo 10.—Del etiquetado para los empaques secundarios: En todo empaque secundario donde se empaque los productos de tabaco que se comercialicen en el territorio nacional, deberán cumplir con las siguientes disposiciones:
+a) Los empaques secundarios podrán ser de celofán o material incoloro, que no obstaculicen la visibilidad y legibilidad de los mensajes sanitarios de las unidades que contienen y demás información establecida en los empaques primarios.
+b) En caso de utilizar empaques secundarios que impidan la visibilidad de los empaques primarios o cajetillas de los productos de tabaco deberá contener los mismos requisitos establecidos para el etiquetado primario.

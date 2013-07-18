@@ -1,0 +1,2 @@
+Artículo 5°—Está prohibido incluir en el etiquetado de los productos de tabaco y sus derivados, frases, imágenes y cualquier otra forma de mensaje que los promocionen de manera equívoca, falsa o engañosa.
+Se prohíbe asimismo, el uso de términos tales como: “bajo en alquitrán”, “Light”, “Ultralight”, “Suave”, “extra” y “ultra”, así como cualquier otro que haga suponer al público que un producto de tabaco es menos perjudicial que otro en relación con su contenido, riesgos o emisiones.
