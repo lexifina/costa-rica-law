@@ -14,3 +14,4 @@ RTCR 434:2009 Reglamento Técnico de Mantequilla
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-03 | la propia norma |
+| 2 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
