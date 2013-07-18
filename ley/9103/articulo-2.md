@@ -14,3 +14,4 @@ Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el
 (Modificado por el artículo 1° del decreto ejecutivo N° 37698 del 8 de mayo de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37721 del 21 de mayo del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37730 del 27 de mayo del 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37770 del 11 de junio de 2013)
