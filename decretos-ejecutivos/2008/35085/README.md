@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 418:2008 Mezclas de Leche Evaporada Desnatada (Descrema
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-10 | la propia norma |
+| 2 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
