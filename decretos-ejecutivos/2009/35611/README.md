@@ -14,3 +14,4 @@ Reglamento Técnico RTCR: 423-2008 Leche en Polvo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-25 | la propia norma |
+| 2 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
