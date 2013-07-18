@@ -14,3 +14,4 @@ En caso de colocación con no residentes la Tesorería Nacional deberá publicar
 (Modificado por el artículo 1° del decreto ejecutivo N° 37511 del 21 de enero de 2013)
 (Modificado el inciso c) por el artículo 1° del decreto ejecutivo N° 37635 del 22 de marzo del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37721 del 21 de mayo del 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 37845 del 18 de julio del 2013)
