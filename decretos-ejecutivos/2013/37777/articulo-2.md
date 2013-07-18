@@ -1,0 +1,1 @@
+Artículo 2º—Definición y características. El vehículo de uso semidiscrecional es aquel que estará destinado de forma exclusiva al servicio del Procurador General Adjunto de la República, con la finalidad de facilitar y mejorar el desempeño de sus funciones. Este vehículo podrá portar placas particulares y no tendrá marcas visibles que lo distinga como vehículo oficial.

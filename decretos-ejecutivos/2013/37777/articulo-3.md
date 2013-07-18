@@ -1,0 +1,1 @@
+Artículo 3º—Conducción. El vehículo de uso semidiscrecional sólo podrá ser conducido por el Procurador General Adjunto o el chofer institucional designado regularmente para su servicio o quien lo sustituya.
