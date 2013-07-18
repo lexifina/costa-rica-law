@@ -1,0 +1,1 @@
+Transitorio II.- El INAMU procederá a emitir el Reglamento FOMUJERES en el que detallará trámites, requisitos y plazos para la operación adecuada del Fondo y lo publicará en el Diario Oficial La Gaceta en el plazo de un mes, a partir de la publicación de este decreto. Todo formulario, manual o instructivo que emita deberá ser publicado de igual forma.

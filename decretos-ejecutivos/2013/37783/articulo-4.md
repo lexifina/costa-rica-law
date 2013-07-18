@@ -1,0 +1,1 @@
+Artículo 4°—Asignación de recursos: La Junta Directiva del INAMU será la encargada de asignar los recursos económicos al Fondo, provenientes del presupuesto ordinario y/o extraordinario del INAMU de manera tal que, anualmente, se transfiera un mínimo de un 4% del presupuesto anual de la Institución al Fondo.
