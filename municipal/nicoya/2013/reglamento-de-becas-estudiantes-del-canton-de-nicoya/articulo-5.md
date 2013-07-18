@@ -1,0 +1,1 @@
+Artículo 5°—Sujetos y sujetas de beneficio de beca: Las becas serán otorgadas a los y las estudiantes residentes en el cantón de Nicoya que se encuentren cursando la Enseñanza General Básica y Diversificada (Primaria y Secundaria) y Enseñanza Superior Pública del sistema educativo costarricense.

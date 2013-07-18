@@ -1,0 +1,1 @@
+Artículo 16.—Reemplazo: En caso de cancelarse el beneficio a un becado por las causales anteriores, la Comisión de Becas hará una recomendación para ocupar la beca libre, dicha recomendación se hará seleccionando de las solicitudes que quedaron sin asignación de beca en su oportunidad.

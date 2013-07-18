@@ -1,0 +1,1 @@
+Artículo 13.—Desembolsos: La Tesorería Municipal hará efectivo el beneficio con el acuerdo del Concejo, mediante depósito en la cuenta de ahorro que para tal efecto el beneficiario o beneficiaria deberá aportar, el deposito se hará a partir del mes de febrero, el último día hábil del mes, y así continuamente todos los finales de mes hasta el mes de diciembre de cada año.

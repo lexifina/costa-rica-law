@@ -1,0 +1,5 @@
+Artículo 8°—Integración y funciones de la Comisión de Becas: Se establecerá una Comisión de Becas conformado por los siete síndicos propietarios que integran el Concejo Municipal en conjunto con la Coordinadora de Gestión Social de la Municipalidad, quien funcionara como Secretaría Técnica de dicha comisión,
+Dicha Comisión tendrá bajo su responsabilidad: recibir, analizar, aprobar y denegar las solicitudes de becas.
+La Comisión llevará un expediente debidamente numerado y foliado para cada estudiante beneficiario(a), en el que serán incorporados todos los documentos pertinentes que justifiquen y respalden el beneficio y la permanencia del estudiante en el sistema educativo.
+Dicha comisión se reunirá al menos una vez por mes de forma ordinaria y de forma extraordinaria cuando sea necesario y emitirá informe de gestión al Concejo Municipal, para que sea ratificado por este.
+De las reuniones se redactará un acta con los pormenores de los asuntos tratados, los asistentes y los acuerdos tomados.

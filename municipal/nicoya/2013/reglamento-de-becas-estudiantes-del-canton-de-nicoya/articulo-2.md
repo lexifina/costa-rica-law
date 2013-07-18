@@ -1,0 +1,1 @@
+Artículo 2°—El objeto: La razón de ser del presente reglamento es regular el otorgamiento de becas para estudio a los estudiantes residentes de los siete distritos que cuenten con instituciones educativas públicas del cantón de Nicoya, considerando los criterios de: equidad, oportunidad y género.
