@@ -14,3 +14,4 @@ Establece que para la importación de vehículos usados se deberá adjuntar a la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-26 | la propia norma |
+| 2 | 2013-07-18 | Resolución 188 (2013-07-18) |
