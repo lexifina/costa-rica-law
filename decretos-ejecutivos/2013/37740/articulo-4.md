@@ -1,0 +1,4 @@
+Artículo 4°—Modifíquese el artículo 38 de la siguiente manera:
+“Artículo 38.—Reclutamiento de los evaluadores y expertos técnicos. El ECA recibirá de manera permanente solicitudes de profesionales que deseen integrar el Cuerpo de Evaluadores y Expertos Técnicos y los someterá al correspondiente proceso de selección, evaluación, calificación e integración.
+Cuando el ECA no cuente, dentro de sus registros con evaluadores y/o expertos técnicos que puedan realizar una evaluación solicitada, el ECA podrá contratar profesionales externos recurriendo a los organismos de acreditación u organismos homólogos.
+Cada vez que se considere necesario el ECA realizará un estudio de los Evaluadores y Expertos Técnicos que requiera y los incorporará al cuerpo de evaluadores y expertos técnicos del ECA y procurará su incorporación para dar respuesta a la demanda.”
