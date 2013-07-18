@@ -1,1 +1,0 @@
-Artículo 9º—Copia de toda documentación que ampare tanto la solicitud como el informe técnico de la oficina regional, deberá constar en el expediente administrativo de la parcela que al efecto lleve la oficina subregional.

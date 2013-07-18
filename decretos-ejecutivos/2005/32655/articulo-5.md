@@ -1,1 +1,0 @@
-Artículo 5º—De las personas excluidas de la condonación. Quedan excluidas de los beneficios de la Ley Nº 8434, todas aquellas personas que incumplan una o varias de las condiciones establecidas en el artículo 3.

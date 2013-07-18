@@ -1,1 +1,0 @@
-Artículo 7º—Procedimiento del trámite de condonación. Los interesados en la condonación deberán apersonarse a la oficina subregional correspondiente del Instituto, donde procederán a llenar y firmar la solicitud a que hace referencia el artículo 6, adjuntando los demás requisitos que se indican.
