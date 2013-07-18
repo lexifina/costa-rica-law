@@ -1,1 +1,0 @@
-Artículo 8º—La Cooperativa Agropecuaria de Servicios Múltiples del Sur (SURCOOP R.L.), será la responsable de la implementación en campo del proyecto de establecimiento y desarrollo del cultivo de plátano y palma aceitera.

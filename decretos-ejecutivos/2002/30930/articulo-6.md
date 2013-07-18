@@ -1,1 +1,0 @@
-Artículo 6º—Para efectos de ejecución de las labores encomendadas a la Unidad Ejecutora, las instituciones públicas del Sector Agropecuario, aportarán los recursos necesarios de acuerdo con sus posibilidades, mecanismos y facultades legales y brindarán el apoyo logístico, técnico y de equipo requerido.

@@ -1,5 +1,0 @@
-Artículo 5º—La Comisión Interinstitucional de Consulta tendrá la responsabilidad de velar por la efectiva coordinación, supervisión y seguimiento de las actividades y planes de fomento y desarrollo de los cultivos de plátano y de la palma aceitera, necesarios para una adecuada y eficiente ejecución del Proyecto Agroindustrial de la Zona Sur de la Provincia de Puntarenas, asimismo tendrá las siguientes funciones:
-a) Recomendar las acciones, requerimientos y estrategias de fomento y desarrollo de las actividades en el país, con el fin de que las instituciones públicas competentes ejecuten las acciones correspondientes para lograr tal fin.
-b) Darle seguimiento y coordinar los aspectos necesarios y requeridos, en los contratos, obras y apoyo que recibieran los ejecutantes del Proyecto de Desarrollo Agroindustrial de la Zona Sur.
-c) Gestionar recursos y el apoyo económico del Gobierno a las Instituciones competentes, para la ejecución del Proyecto de Desarrollo Agroindustrial de la Región Sur de la Provincia de Puntarenas.
-d) Cualesquiera otras que sean congruentes y necesarias para el cumplimiento de los fines de la Comisión.
