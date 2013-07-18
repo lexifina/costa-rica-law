@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 414:2008 Yogurt para Consumo Directo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-10 | la propia norma |
+| 2 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
