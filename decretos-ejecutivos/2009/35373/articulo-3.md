@@ -1,1 +1,0 @@
-Artículo 3º—Las instituciones del sector público y privado colaborarán en la realización de esta actividad en la medida de sus posibilidades, dentro de las competencias y el marco legal que rija su accionar.
