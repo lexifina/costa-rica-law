@@ -14,3 +14,4 @@ Reglamento Técnico Queso Emmental RTCR 445:2010
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-19 | la propia norma |
+| 2 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
