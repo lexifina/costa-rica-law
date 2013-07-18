@@ -15,3 +15,4 @@ Reglamento Técnico de Queso Crema (RTCR 441:2010)
 | --- | --- | --- |
 | 1 | 2012-04-21 | la propia norma |
 | 2 | 2012-04-21 | Decreto Ejecutivo 37178 (2012-04-09) |
+| 3 | 2013-07-18 | Decreto Ejecutivo 38070 (2013-07-18) |
