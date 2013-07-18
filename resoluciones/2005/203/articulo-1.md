@@ -1874,8 +1874,8 @@ d) declaración de salida de las mercancías del país exportador, con las excep
 e) certificado de origen, cuando corresponda.
 f) declaración aduanera de ingreso al régimen para las mercancías procedentes de los regímenes de Perfeccionamiento Activo y Zonas Francas, cuando dicha declaración haya sido procesada en el SIA.
 g) certificado de importación temporal de vehículos para turistas cuando dicho certificado haya sido emitido en el SIA, para el caso de la importación definitiva de vehículos.
-h) Título de Propiedad del vehículo que acredite la inscripción o registro de la propiedad, y Declaración Jurada Protocolizada art. 5 Ley de Tránsito; ambos documentos en el caso de vehículos usados.
-(Así reformado el inciso anterior mediante resolución RES-DGA-026-2013 del 1° de febrero del 2013)
+h) Título de propiedad o el documento que de conformidad con la legislación del mercado de procedencia de un vehículo usado, acredite la inscripción o registro de la propiedad.
+(Así reformado el inciso anterior mediante resolución N° RES-188-2013-DGA del 18 de julio del 2013)
 i) cualquier otro documento, resolución, nota técnica o autorización, necesario para realizar la legal importación de la mercancía, siempre que el mismo no haya sido transmitido por la entidad que lo emite.
 Además de los anteriores, se podrá enviar otros que el auxiliar o declarante considere conveniente a efectos de sustentar el DUA.
 7) Todo documento indicado en el mensaje de asociación deberá haberse declarado en el mensaje del DUA.
@@ -4249,8 +4249,8 @@ c) monto total de los cargos exigibles.
 6) Los documentos a ser digitalizados y enviados a la aplicación informática son los obligatorios por cada régimen y modalidad, contemplados entre ellos los siguientes:
 a) título de transporte con el que fueron enviadas las mercancías directamente del exterior al territorio aduanero nacional (conocimiento de embarque, carta de porte o guía aérea), ya sea consignado a la Beneficiaria o endosado a ésta.
 b) factura comercial.
-c) Título de Propiedad del vehículo que acredite la inscripción o registro de la propiedad, y Declaración Jurada Protocolizada art. 5 Ley de Tránsito; ambos documentos en el caso de vehículos usados.
-(Así reformado el inciso anterior mediante resolución N° RES-DGA-026-2013 del 1° de febrero del 2013)
+c) Título de Propiedad o el documento que de conformidad con la legislación del mercado de procedencia de un vehículo usado, acredite la inscripción o registro de la propiedad.
+(Así reformado el inciso anterior mediante resolución N° RES-188-2013-DGA del 18 de julio del 2013 )
 d) cualquier otro documento necesario para realizar el internamiento de la mercancía al Régimen.
 Además de los anteriores, se podrá enviar otros documentos que la Beneficiaria o su representante, considere conveniente a efectos de sustentar el DUA.
 7) Todo documento indicado en el mensaje de asociación deberá haberse declarado en el mensaje del DUA.
