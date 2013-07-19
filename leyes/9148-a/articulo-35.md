@@ -1,0 +1,2 @@
+Artículo 35.- Fusión del Fondo de mutualidad y subsidios
+El Fondo de mutualidad y subsidios, a que se refiere este capítulo, puede ser refundido en uno común a todos los colegios profesionales del país, siempre y cuando las personas miembros del Colegio reciban iguales o superiores beneficios a los aquí establecidos. El acuerdo de fusión deberá ser tomado en Asamblea General extraordinaria convocada al efecto y por una votación, como mínimo, de los dos tercios de las personas colegiadas presentes.

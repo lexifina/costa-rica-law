@@ -1,0 +1,2 @@
+Artículo 30.- Pago de cuotas
+La persona colegiada que durante un semestre no pague a tiempo las cuotas que el Colegio imponga, de conformidad con el reglamento, perderá temporalmente su calidad de miembro activo y, por lo tanto, los derechos establecidos en esta ley. Quien haya sido suspendido en sus derechos los recuperará cuando pague las cuotas atrasadas más un dos por ciento (2%) mensual por concepto de multa.
