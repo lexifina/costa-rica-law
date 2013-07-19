@@ -1,0 +1,12 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+AJDIP/283-2013.—Puntarenas, a los diecinueve días del mes de julio de dos mil trece.
+Considerando:
+1º—Que por parte, tanto de la Auditoría Interna y la Asesoría Legal, se han recibido observaciones sobre lo finalmente estipulado en los incisos 3) y 4) del Artículo 30 del Reglamento de Operatividad de las Sesiones de Junta Directiva del INCOPESCA, adoptado mediante Acuerdo AJDIP/385-2011, publicado en el Diario Oficial La Gaceta N° 52 del 13 de marzo del 2012; ello por cuanto de conformidad con los criterios emanados por la Procuraduría General de la República, resultaban contrarios a derecho, básicamente en cuanto a la interpretación de la calidad de los Directores Suplentes en el ejercicio de la titularidad en las Sesiones de Este Cuerpo Colegiado, ante llegada tardía o ausencia de sus Propietarios.
+2º—Que en ese sentido se encomendó a la Jefatura de la Secretaría Técnica de Junta Directiva, la presentación de una propuesta de modificación que respondiera a la necesidad de asegurar legalmente el reconocimiento de los derechos de los Señores Directores Propietarios y Suplentes ante la eventualidad de llegadas tardía y/o ausencias a las sesiones de esta Junta Directiva.
+3º—Que en concordancia con lo anterior, se conoce propuesta remitida por el Jefe de la Secretaría Técnica, la cual consideran los Sres. Directores resulta congruente con lo requerido legalmente, razón por la cual, la Junta Directiva, Por tanto;
+ACUERDA
+1º—Modificar los incisos 3) y 4) del artículo 30 del Reglamento de Operatividad de las Sesiones de Junta Directiva del Instituto Costarricense de Pesca y Acuicultura adoptado mediante Acuerdo AJDIP/385-2011, publicado en el Diario Oficial La Gaceta N° 52 del 13 de marzo del 2012, para que se lean de la siguiente manera:
+“3- La inasistencia o llegada tardía de un Director por más treinta minutos posteriores a la hora de inicio de la sesión, ocasionará la pérdida de la dieta respectiva, siendo sustituido con el correspondiente reconocimiento de la dieta por el primer suplente, o en su defecto por el segundo suplente, en el caso que el primer suplente ya se encuentre sustituyendo a otro Director ausente.
+4- El Director que asista a la sesión después de transcurridos los treinta minutos señalados en el párrafo anterior, podrá integrarse y participar en la misma únicamente con derecho a voz sin el respectivo reconocimiento de la dieta correspondiente.”
+2º—Acuerdo firme
+3º—Rige a partir de su adopción, publíquese.
