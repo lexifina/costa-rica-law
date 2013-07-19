@@ -1,0 +1,1 @@
+Artículo 7º—Requisitos para el trámite de Fotocopiado de expediente: corresponden a los indicados en el artículo 3 del presente catálogo para la descripción del solicitante, además el interesado deberá cancelar el importe correspondiente por cada fotocopia.

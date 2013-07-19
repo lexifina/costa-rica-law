@@ -1,0 +1,1 @@
+Artículo 5º—Requisitos para el trámite de resolución de ubicación e inspección: corresponden a los indicados en el artículo 3 del presente catálogo además el interesado debe cancelar el monto correspondiente a inspección.

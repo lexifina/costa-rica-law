@@ -1,0 +1,1 @@
+Artículo 6º—Requisitos para el trámite de Alineamiento Vial: corresponden a los indicados en el artículo 3 del presente catálogo además el interesado debe cancelar el monto correspondiente a inspección y presentar 3 copias a escala (sin reducir, ni aumentar) del plano catastro original, o copias certificadas por el Registro Nacional.
