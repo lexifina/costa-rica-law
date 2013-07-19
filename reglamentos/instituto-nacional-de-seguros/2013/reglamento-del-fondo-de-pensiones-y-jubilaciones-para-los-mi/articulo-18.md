@@ -1,0 +1,1 @@
+Artículo 18.—Si la excónyuge o excompañera de hecho, recibiera pensión alimentaria, tendrá derecho a la pensión que por estas disposiciones se reglamenta, siempre que no existiera viuda con mejor derecho por matrimonio vigente a la fecha de fallecimiento del bombero o compañera en relación de hecho vigente a esa fecha.

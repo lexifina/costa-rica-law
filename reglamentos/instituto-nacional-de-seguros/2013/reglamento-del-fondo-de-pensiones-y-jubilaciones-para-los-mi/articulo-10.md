@@ -1,0 +1,2 @@
+Artículo 10.—Todo pensionado por discapacidad, de acuerdo con lo dispuesto en el presente Reglamento, (en su condición de afiliado al Fondo o de derecho-habiente en caso de muerte
+del bombero), deberá someterse a los exámenes, tratamientos, controles, procesos de rehabilitación y readaptación que la Junta Administradora considere pertinentes.

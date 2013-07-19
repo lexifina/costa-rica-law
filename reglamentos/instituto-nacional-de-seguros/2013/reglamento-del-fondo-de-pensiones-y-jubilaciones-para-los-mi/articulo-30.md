@@ -1,0 +1,1 @@
+Artículo 30.—La pensión de cada beneficiario en estos casos será de un treinta por ciento (30%) de la pensión que pudo corresponder al bombero, o la que ya éste disfrutaba, siempre que se compruebe la dependencia económica.

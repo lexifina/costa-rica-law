@@ -1,0 +1,3 @@
+Artículo 43.—Cuando proceda el pago de los beneficios del Fondo, por motivo de las contingencias aquí cubiertas, éste pagará el costo de los beneficios que correspondan a los beneficiarios, salvo cuando proceda devolver lo acumulado en la cuenta individual por motivo de separación del servicio, según lo establecido en el Artículo 39 del presente Reglamento.
+El pago mencionado se hará contra la cuenta individual del miembro del Fondo, hasta donde alcance, y la diferencia, si la hubiere, se tomará de la que corresponde al Instituto.
+Lo expresado en el párrafo primero del presente artículo también será procedente para el pago del costo de los aumentos que eventualmente pudiesen ser acordados en favor de quienes se hallen recibiendo los beneficios otorgados por el Fondo.

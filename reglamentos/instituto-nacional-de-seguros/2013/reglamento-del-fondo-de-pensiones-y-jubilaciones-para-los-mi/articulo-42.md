@@ -1,0 +1,1 @@
+Artículo 42.—Los aportes del Instituto se deben registrar en los auxiliares que administra la Junta Administradora, en una cuenta de fondo común, distinta de los miembros del Fondo. Similar tratamiento se debe dar a los rendimientos netos que generen las inversiones de dicho aporte.
