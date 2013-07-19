@@ -14,3 +14,4 @@ Establece las disposiciones de acatamiento obligatorio para las operadoras y/o p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-03 | la propia norma |
+| 2 | 2013-07-19 | Resolución 224 (2013-07-19) |
