@@ -13,7 +13,8 @@ b. 30% los asambleístas incluidos en el inciso 1-b) anterior.
 c. 15% los asambleístas incluidos en el inciso 1-c) anterior.
 d. 15% los asambleístas incluidos en el inciso 1-d) anterior.
 4. Para que la elección sea válida, deberá cumplirse con el quórum de la Asamblea Plebiscitaria , el cual estará constituido como mínimo por el 51% de los votos electorales, señalados en el párrafo anterior.
-5. Se declarará electo Rector o Miembro del Consejo Universitario el candidato con mayor número de votos electorales que obtenga al menos el 40% de los votos electorales válidamente emitidos.
+5. Se declarará electo Rector o Miembro del Consejo Universitario el candidato con mayor número de votos electorales que obtenga al menos el 40% de los votos electorales válidamente emitidos. En caso de que ningún candidato reciba dicho porcentaje, la votación se repetirá dentro de los 10 días hábiles siguientes con los dos candidatos que lograron el mayor porcentaje de los votos electorales emitidos. En caso de segunda elección, se declarará electo el candidato que obtenga mayor número de votos electorales. En caso de persistir el empate en forma reiterada por tres veces, se convocará a un nuevo proceso electoral.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 086-2013 del 19 de julio del 2013)
 6. Los votos válidamente emitidos, no incluyen los votos en blanco ni los nulos.
 7. Cada elector sólo podrá estar incluido en un padrón.
 8. Cuando se trate de una elección de varios miembros del Consejo Universitario o de representantes a la Asamblea Universitaria Representativa, se podrá utilizar un proceso electoral mediante voto múltiple. El Reglamento correspondiente fijará los mecanismos para contabilizar los votos de estas papeletas.
