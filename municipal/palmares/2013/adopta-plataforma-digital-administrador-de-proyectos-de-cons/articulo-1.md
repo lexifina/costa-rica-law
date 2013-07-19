@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PALMARES
+El Concejo Municipal de Palmares mediante acuerdo ACM-06-165-13 aprobado en sesión ordinaria N° 165 Cap. VI, Art. 12 de fecha 2 de julio del 2013 acordó por unanimidad Adoptar la plataforma digital Administrador de Proyectos de Construcción (APC) del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, como única forma de tramitar solicitudes de licencias de construcción en la Municipalidad de Palmares. Por lo que a partir del 1° de agosto del 2013, no se recibirán más solicitudes de licencia de construcción ni planos en físico, solamente en digital.
+Palmares, 3 de julio del 2013.
