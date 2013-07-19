@@ -14,3 +14,4 @@ Reglamento de Operatividad de las Sesiones de la Junta Directiva del INCOPESCA (
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-13 | la propia norma |
+| 2 | 2013-07-19 | Acuerdo 283 (2013-07-19) |
