@@ -5,5 +5,5 @@ c) Director de un establecimiento de enseñanza media. Cuando se trate de una in
 d) Jefes de Departamentos Administrativos del Ministerio de Educación Pública, en enseñanza media y superior, cualquiera que sea su nombre;
 e) Asesor del Ministerio de Educación Pública, en enseñanza media, en relación a la materia específica;
 f) Director General de Artes y Letras; y
-g) Directores de Bibliotecas Públicas, excepto las de la Universidad de Costa Rica.
+g) (Derogado por el artículo 2° de la ey "Aprueba Ley Orgánica del Colegio de Bibliotecologos de Costa Rica", N° 9148 del 09 de julio de 2013)
 En todos los casos y en igualdad de condiciones se preferirá al profesional con título más elevado.

@@ -1,6 +1,6 @@
 # Ley Orgánica del Colegio de Bibliotecarios de Costa Rica
 
-Ley N° 5402 del 1974-04-30. SINALEVI, ficha 9911: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9911&param2=10607&param3=1>.
+Ley N° 5402 del 1974-04-30. SINALEVI, ficha 9911: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9911&param2=93300&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1974-04-30 | Ley 5402 | 1974-04-30 |
 | 2 de 3 | 1974-04-30 | SINALEVI | 1974-04-30 |
+| 3 de 3 | 2013-07-19 | Ley 9148 | 2013-07-09 |
