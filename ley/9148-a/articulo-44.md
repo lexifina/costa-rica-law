@@ -1,0 +1,3 @@
+Artículo 44.- Investigación de conflictos graves
+En el caso del inciso b) del artículo 42, quien presida el Tribunal ofrecerá inmediatamente su mediación y, dentro de la mayor discreción, hará todos los esfuerzos necesarios para resolver el conflicto. Si la mediación fracasa, y solo a gestión de parte, pondrá el asunto a conocimiento del Tribunal, el cual comisionará a uno de sus integrantes para que levante
+una información secreta, con intervención de las personas colegiadas en pugna. Salvo en el caso que el conflicto se resuelva por otras vías conciliatorias, el Tribunal deberá fallar a la mayor brevedad posible y a conciencia.

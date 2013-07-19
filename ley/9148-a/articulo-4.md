@@ -1,0 +1,2 @@
+Artículo 4.- Colegiatura obligatoria
+Deberán ser personas miembros del Colegio quienes desempeñen cargos de jefatura o dirección en cualquier nivel y cargos calificados como profesionales en la Dirección del Sistema Nacional de Bibliotecas (Sinabi), así como en la Biblioteca Nacional y la red de bibliotecas públicas, oficiales y semioficiales, universitarias, municipales, educativas, especializadas, los centros de documentación e información y los centros de recursos para el aprendizaje.

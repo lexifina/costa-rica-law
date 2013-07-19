@@ -1,0 +1,3 @@
+Artículo 43.- Investigación de transgresiones
+En caso de que se presente la situación señalada en el inciso a) del artículo anterior, cualquiera de los integrantes del Tribunal que por impresión propia o por informes serios tenga noticias de tales transgresiones, convocará a los otros integrantes para que, de oficio, se conozca el problema.
+Se levantará una información confidencial con la intervención de la persona infractora y, en su caso, de la persona denunciante, y se fallará el caso, a conciencia, a la mayor brevedad posible. Si la persona colegiada es absuelta, se le entregará copia del fallo y, si lo desea, se hará una publicación a cargo del Colegio, para su satisfacción.
