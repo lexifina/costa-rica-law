@@ -1,0 +1,4 @@
+ARTÍCULO 3.- Ejecución del proyecto
+El prestatario, por medio del MEP, ejecutará el proyecto bajo la coordinación general del Conare (UCP), que será responsable de la coordinación y el seguimiento general del proyecto, y será el principal interlocutor con el banco durante la implementación del proyecto en todos los aspectos de monitoreo y evaluación.
+La parte I del contrato de préstamo se llevará a cabo con la participación directa de las cuatro universidades estatales, cada una denominada como Unidad Coordinadora de Proyecto Institucional (UCPI), la parte II.1 del proyecto se llevará a cabo con la participación directa del Sinaes, la parte II.2 se llevará a cabo por Conare-OPES y la parte II.3 se llevará a cabo directamente por el Conare.
+Para lo anterior, conforme a lo dispuesto en el contrato de préstamo, el Ministerio de Educación Pública será el responsable de firmar los acuerdos necesarios para la ejecución del proyecto.
