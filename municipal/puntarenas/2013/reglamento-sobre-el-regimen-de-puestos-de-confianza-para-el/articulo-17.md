@@ -1,0 +1,1 @@
+Artículo 17.—El Alcalde (sa) en ejercicio, una vez aprobado este reglamento en el documento presupuestario siguiente, presupuesto ordinario, extraordinario o modificación presupuestaria, dará el contenido presupuestario a la partida de (sueldos por servicios especiales) para el fiel cumplimiento de este reglamento.

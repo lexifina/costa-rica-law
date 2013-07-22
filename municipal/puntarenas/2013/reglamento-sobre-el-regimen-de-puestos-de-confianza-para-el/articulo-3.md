@@ -1,0 +1,1 @@
+Artículo 3º—Libre remoción. El nombramiento del candidato propuesto, lo formalizará para efectos presupuestarios y de pago, el Alcalde Municipal, pero se tendrá por concluida la relación a partir del momento en que así lo solicite por escrito la instancia que propuso su nombramiento.
