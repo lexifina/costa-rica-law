@@ -1,0 +1,3 @@
+Artículo 3°—Funcionarios a quienes se les asigna teléfono celular. Esta Institución autoriza la utilización de teléfonos celulares de su propiedad en atención de los cargos que desempeñan a los siguientes funcionarios: Presidente, Gerente General, Gerentes de Área, Auditor Interno, Subauditor Interno.
+Asimismo, se autoriza la utilización de teléfonos celulares de su propiedad a los demás funcionarios que previo análisis de conveniencia y procedencia la Gerencia General, autorice.
+La asignación y uso de teléfonos celulares se debe sujetar a los principios de razonabilidad, racionalidad y, en general a las prácticas de sana administración de los recursos públicos.

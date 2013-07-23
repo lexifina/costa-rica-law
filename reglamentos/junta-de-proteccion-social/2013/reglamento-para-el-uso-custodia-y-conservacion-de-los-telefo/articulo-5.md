@@ -1,0 +1,5 @@
+Artículo 5º—Responsabilidad de la custodia y la conservación.
+Las personas descritas en el artículo tercero serán responsables por el uso custodia y conservación de los teléfonos celulares de la Junta que les fueren asignados así como por sus respectivos accesorios (baterías, cargadores, estuches, clips, manos libres, etc.)
+En caso de extravío, deterioro por uso inadecuado o robo deberán reintegrar el costo del teléfono o del accesorio, según sea el caso, cuando se compruebe de conformidad, con el procedimiento establecido por la ley, que el mismo se produjo por falta de cuidado, o uso anormal del teléfono o del accesorio.
+En caso de cambio del aparato telefónico, sea por deterioro o por robo, el mismo deberá ser reportado a la Unidad de Control de Activos del Departamento de Contabilidad y Presupuesto para realizar las modificaciones correspondientes en el Control de Activos Institucional.
+Será obligación del funcionario que lleve a cambio el cambio del aparato telefónico que tenga asignado, hacerlo del conocimiento inmediato de la Asesoría Legal para que se lleven a cabo las modificaciones correspondientes vía addendum al convenio original.
