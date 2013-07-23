@@ -1,5 +1,4 @@
-CONSEJO NACIONAL DE SUPERVISIÓN
-EL SISTEMA FINANCIERO
+CONSEJO NACIONAL DE SUPERVISIÓN EL SISTEMA FINANCIERO
 El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 13 del acta de la sesión 811-2009, celebrada el 2 de octubre del 2009,
 resultando:
 A. Que el artículo 29 de la Ley 8653, establece que la Superintendencia General de Seguros autorizará, regulará, supervisará a las personas, físicas o jurídicas, que intervengan en los actos o contratos relacionados con la actividad aseguradora, reaseguradora, la oferta pública y la realización de negocios de seguros.
@@ -37,9 +36,10 @@ dispuso, en firme:
 “DISPOSICIONES GENERALES
 PLAN DE CUENTAS PARA LAS ENTIDADES DE SEGUROS
 CAPÍTULO I
-Artículo 1. Alcance.
+Artículo 1°- Alcance
 La elaboración del “Plan de Cuentas para las entidades de seguros (en adelante Plan)”, se sustenta en el inciso ñ), artículo 171, de la Ley Reguladora del Mercado de Valores, Ley 7732, normativa que le es aplicable según se indica en el párrafo segundo del artículo 28 de la Ley 6853, Ley Reguladora del Mercado de Seguros.
-La aplicación de este Plan resulta obligatoria para las entidades de seguros, reaseguros, sociedades corredoras de seguros, sociedades agencias de seguro y las empresas controladoras de los conglomerados y grupos financieros supervisados por la Superintendencia General de Seguros. Lo establecido en él constituye norma vinculante para todas las entidades supervisadas por SUGESE desde el registro original de las transacciones.
-El tratamiento y marco contable aplicable a este Plan se define en la “Normativa contable aplicable a los entes supervisados por SUGEF, SUGEVAL, SUPEN, SUGESE y a los emisores no financieros”, aprobada por el Consejo Nacional de Supervisión del Sistema Financiero en su última versión.
-(Así reformado el párrafo anterior mediante la sesión N° 1034-2013 del 2 de abril del 2013)
-(El párrafo cuarto original fue derogado mediante sesión N° 1034-2013 del 2 de abril del 2013)
+La aplicación de este Plan resulta obligatoria para las entidades de seguros, reaseguros, sociedades corredoras de seguros, sociedades agencia de seguro y las empresas controladoras de los conglomerados y grupos financieros supervisados por la Superintendencia General de Seguros. Lo establecido en él constituye norma vinculante para todas las entidades supervisadas por SUGESE desde el registro original de las transacciones.
+El tratamiento contable aplicable a este Plan se define en la “Normativa contable aplicable a los entes supervisados por SUGEF, SUGEVAL, SUPEN, SUGESE y a los emisores no financieros”, aprobada por el Consejo Nacional de Supervisión del Sistema Financiero.
+Dicho Plan considera el marco contable definido en las Normas Internacionales de Información Financiera, cuya aplicación rige a partir de la fecha establecida, según acuerdo tomado por el Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF).
+Las entidades de seguros autorizadas bajo la modalidad de sucursal, se exceptúan de la aplicación de este Plan en forma vinculante desde el registro original de las transacciones, pues para ello regirá lo dispuesto por la jurisdicción de origen. Sin embargo, estas entidades deberán remitir la información específica que SUGESE les requiera para la sucursal en Costa Rica ajustándose a este Plan, por medio de un sistema convertidor, desarrollado por las entidades y bajo su responsabilidad. El convertidor deberá ser presentado a conocimiento de la Superintendencia , debidamente acompañado de un informe sobre su operativa, en el cual deberán exponerse explícitamente las diferencias relevantes en cuanto a prácticas contables entre la jurisdicción de origen y la costarricense.
+(Así reformado mediante sesión N° 1053-2013 del 23 de julio del 2013)

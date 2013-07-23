@@ -16,3 +16,4 @@ Plan de Cuentas para las Entidades de Seguros
 | 1 | 2010-01-01 | la propia norma |
 | 2 | 2013-01-29 | Reglamento 1024 (2013-01-29) |
 | 3 | 2013-04-02 | Reglamento 1034 (2013-04-02) |
+| 4 | 2013-07-23 | Reglamento 1053 (2013-07-23) |
