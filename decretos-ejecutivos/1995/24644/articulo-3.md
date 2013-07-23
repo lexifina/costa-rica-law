@@ -1,1 +1,0 @@
-Artículo 3°-El Comité ICT-CANATUR se encargará de definir las propuestas y evaluar las políticas y acciones en materia promocional-turística, las cuales serán sometidas a la Junta Directiva del LC.T., para su aprobación final.
