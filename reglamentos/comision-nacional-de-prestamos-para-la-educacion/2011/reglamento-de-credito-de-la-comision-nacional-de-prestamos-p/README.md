@@ -14,3 +14,4 @@ Reglamento de Crédito de la Comisión Nacional de Préstamos para la Educación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-24 | la propia norma |
+| 2 | 2013-07-23 | Reglamento 30 (2013-07-23) |
