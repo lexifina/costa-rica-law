@@ -25,3 +25,4 @@ Reglamento relativo a la Información Financiera de Entidades, Grupos y Conglome
 | 10 | 2011-01-28 | Reglamento 899 (2011-01-28) |
 | 11 | 2011-11-09 | Acuerdo 14 (2011-11-09) |
 | 12 | 2013-04-02 | Reglamento 1034 (2013-04-02) |
+| 13 | 2013-07-23 | Reglamento 1053 (2013-07-23) |

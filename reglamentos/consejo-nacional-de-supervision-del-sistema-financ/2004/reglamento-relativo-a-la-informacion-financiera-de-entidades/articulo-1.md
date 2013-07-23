@@ -15,7 +15,6 @@ CONGLOMERADOS FINANCIEROS
 (Emitido mediante Sesión N° 411 del 14 de enero de 2004 publicada en La Gaceta N° 19 del miércoles 28 de enero de 2004)
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Objeto y ámbito de Aplicación. Las presentes normas tienen por objeto establecer el contenido, la preparación, remisión y presentación de la información financiera de las entidades individuales supervisadas por la Superintendencia General de Entidades Financieras (SUGEF) y los grupos y conglomerados financieros supervisados por la Superintendencia General de Entidades Financieras (SUGEF), la Superintendencia General de Valores (SUGEVAL), la Superintendencia de Pensiones (SUPEN) y la Superintendencia General de Seguros (SUGESE).
-Los Artículos 16, 17, 18 y 22 del presente reglamento establecen las normas para la publicación de los estados financieros de las entidades individuales, grupos y conglomerados financieros supervisados por las cuatro Superintendencias. En el caso de la SUPEN, debe entenderse que las normas son de aplicación a las Entidades y fondos supervisados, y en lo que respecta a la SUGEVAL se hacen extensivas a los sujetos emisores de valores objeto de oferta pública.
-En el caso de entidades financieras supervisadas, el término entidad se entenderá tanto a la entidad individual como a la entidad económica que consolida.
-(Así reformado en sesión N° 811 del 2 de octubre de 2009)
+Artículo 1°-Objeto y ámbito de Aplicación
+Las presentes normas tienen por objeto establecer el contenido, la preparación, remisión y presentación de la información financiera de las entidades individuales supervisadas por la Superintendencia General de Entidades Financieras (SUGEF) y la Superintendencia General de Seguros (SUGESE), así como para los grupos y conglomerados financieros supervisados por la Superintendencia General de Entidades Financieras (SUGEF), la Superintendencia General de Valores (SUGEVAL), la Superintendencia de Pensiones (SUPEN) y la Superintendencia General de Seguros (SUGESE).
+(Así reformado mediante sesión N° 1053-2013 del 23 de julio del 2013)

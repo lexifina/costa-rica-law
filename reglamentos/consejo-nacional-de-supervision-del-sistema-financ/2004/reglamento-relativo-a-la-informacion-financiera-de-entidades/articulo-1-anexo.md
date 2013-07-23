@@ -127,113 +127,15 @@ Nota: | | | |
 Los rubros están asociados a los códigos de grupo, cuenta y subcuenta que lo conforman según el “Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros” y no es necesario indicarlos para efecto de publicación. |
 (1) Cuando se trata de estado financieros consolidados, debe indicarse “y subsidiarias” | | | |
 | | | |
+[imagen]
+[imagen]
+[imagen]
 (Así adicionado el modelo 1a anterior mediante sesión N° 811 del 2 de octubre de 2009)
+(Así reformado el modelo 1a) anterior mediante sesión N° 1053-2013 del 23 de julio del 2013)
 (Así adicionado el modelo 1b anterior mediante sesión N° 811 del 2 de octubre de 2009)
-(NOMBRE DE LA ENTIDAD)
-ESTADO DE RESULTADOS
-Para el ______ terminado el __ de_________de Período Actual y Períodos Anteriores
-(Cifras en colones exactos)
 [imagen]
 [imagen]
-[imagen]
-[imagen]
-| Nota | Período Actual | Períodos Anteriores
-INGRESOS POR OPERACIONES DE SEGURO | | XXXXXXX | XXXXXXX
-INGRESOS POR PRIMAS | | XXXXX | XXXXX
-Primas netas de extornos y anulaciones, no vida | | xxxxx | xxxxx
-Primas netas de extornos y anulaciones, vida | | xxxxx | xxxxx
-INGRESOS POR COMISIONES Y PARTICIPACIONES | | XXXXX | XXXXX
-Comisiones y participaciones, no vida | | xxxxx | xxxxx
-Comisiones y participaciones, vida | | xxxxx | xxxxx
-Participación en venta neta de salvamentos | | xxxxx | xxxxx
-INGRESOS POR SINIESTROS Y GASTOS RECUPERADOS POR REASEGURO CEDIDO Y RETROCEDIDO | | XXXXX | XXXXX
-Siniestros y gastos recuperados, no vida | | xxxxx | xxxxx
-Siniestros y gastos recuperados, vida | | xxxxx | xxxxx
-GASTOS POR OPERACIONES DE SEGURO | | XXXXX | XXXXX
-GASTOS POR PRESTACIONES | | XXXXX | XXXXX
-Prestaciones pagadas, no vida | | xxxxx | xxxxx
-Prestaciones pagadas, vida | | xxxxx | xxxxx
-Participación en beneficios y extornos, no vida | | xxxxx | xxxxx
-Participación en beneficios y extornos, vida | | xxxxx | xxxxx
-GASTOS POR COMISIONES Y PARTICIPACIONES | | XXXXX | XXXXX
-Comisiones pagadas, no vida | | xxxxx | xxxxx
-Comisiones pagadas, vida | | xxxxx | xxxxx
-Participación en salvamentos | | xxxxx | xxxxx
-GASTOS DE PRIMAS CEDIDAS POR REASEGUROS Y FIANZAS | | XXXXX | XXXXX
-Primas cedidas, no vida | | xxxxx | xxxxx
-Primas cedidas, vida | | xxxxx | xxxxx
-UTILIDAD BRUTA POR OPERACIÓN DE SEGUROS | | XXXXXX | XXXXXX
-INGRESOS FINANCIEROS | | XXXXX | XXXXX
-Ingresos financieros por disponibilidades | | xxxxx | xxxxx
-Ingresos financieros por inversiones en instrumentos financieros | | xxxxx | xxxxx
-Productos por cartera de crédito vigente | | xxxxx | xxxxx
-Productos por cartera de créditos vencida y en cobro judicial | | xxxxx | xxxxx
-Ingresos financieros por cuentas recíprocas internas | | xxxxx | xxxxx
-Ganancias por posición en instrumentos financieros derivados | | xxxxx | xxxxx
-Ganancias por diferencial cambiario y unidades de desarrollo (UD) | | xxxxx | xxxxx
-Otros ingresos financieros | | xxxxx | xxxxx
-GASTOS FINANCIEROS | | XXXXX | XXXXX
-Gastos financieros por obligaciones con el público | | xxxxx | xxxxx
-Gastos financieros por obligaciones con el B.C.C.R | | xxxxx | xxxxx
-Gastos financieros por obligaciones con entidades financieras | | xxxxx | xxxxx
-Gastos financieros por cuentas por pagar diversas | | xxxxx | xxxxx
-Gastos financieros por cuentas recíprocas internas | | xxxxx | xxxxx
-Gastos financieros por obligaciones subordinadas, convertibles y preferentes | | xxxxx | xxxxx
-Pérdidas por posición en instrumentos financieros derivados | | xxxxx | xxxxx
-Pérdidas por diferencial cambiario y unidades de desarrollo (UD) | | xxxxx | xxxxx
-Otros gastos financieros | | xxxxx | xxxxx
-UTILIDAD (PÉRDIDA) POR OPERACIÓN DE SEGUROS | | XXXXXX | XXXXXX
-INGRESOS POR RECUPERACIÓN DE ACTIVOS Y DISMINUCIÓN DE ESTIMACIONES Y PROVISIONES | | xxxxx | xxxxx
-Recuperaciones de activos financieros castigados | | xxxxx | xxxxx
-Disminución de estimación de cartera de créditos | | xxxxx | xxxxx
-Disminución de estimación de inversiones en instrumentos financieros | | xxxxx | xxxxx
-Disminución de provisiones | | xxxxx | xxxxx
-INGRESOS OPERATIVOS DIVERSOS | | XXXXX | XXXXX
-Comisiones por servicios | | xxxxx | xxxxx
-Ingresos por bienes realizables | | xxxxx | xxxxx
-Ingresos por participaciones en el capital de otras empresas | | xxxxx | xxxxx
-Ingresos por cambio y arbitraje de divisas | | xxxxx | xxxxx
-Otros ingresos con partes relacionadas | | xxxxx | xxxxx
-Otros ingresos operativos | | xxxxx | xxxxx
-GASTO POR ESTIMACIÓN DE DETERIORO DE ACTIVOS | | XXXXX | XXXXX
-Gasto por estimación de deterioro de cartera de créditos y cuentas y comisiones por cobrar | | xxxxx | xxxxx
-Gasto por estimación de deterioro de inversiones en instrumentos financieros | | xxxxx | xxxxx
-Gasto por deterioro de inversiones en propiedades | | xxxxx | xxxxx
-GASTOS OPERATIVOS DIVERSOS | | XXXXX | XXXXX
-Comisiones por servicios | | xxxxx | xxxxx
-Gastos por bienes realizables | | xxxxx | xxxxx
-Gastos por participaciones en el capital de otras empresas | | xxxxx | xxxxx
-Cargos por bienes diversos | | xxxxx | xxxxx
-Gastos por provisiones | | xxxxx | xxxxx
-Gastos por bonificaciones sobre comisiones fondos de pensiones voluntario | | xxxxx | xxxxx
-Gastos por cambio y arbitraje de divisas | | xxxxx | xxxxx
-Gastos con partes relacionadas | | xxxxx | xxxxx
-Otros gastos operativos | | xxxxx | xxxxx
-Por amortización costos directos diferidos asociados a créditos | | xxxxx | xxxxx
-GASTOS DE ADMINISTRACIÓN | | XXXXX | XXXXX
-Gastos de personal | | xxxxx | xxxxx
-Gastos por servicios externos | | xxxxx | xxxxx
-Gastos de movilidad y comunicaciones | | xxxxx | xxxxx
-Gastos de infraestructura | | xxxxx | xxxxx
-Gastos generales | | xxxxx | xxxxx
-UTILIDAD (PÉRDIDA) NETA POR OPERACIÓN DE SEGUROS | | XXXXXX | XXXXXX
-INGRESOS POR AJUSTES A LAS PROVISIONES TÉCNICAS | | XXXXX | XXXXX
-Ajustes a las provisiones técnicas | | xxxxx | xxxxx
-GASTOS POR AJUSTES A LAS PROVISIONES TÉCNICAS | | XXXXX | XXXXX
-Ajustes a las provisiones técnicas | | xxxxx | xxxxx
-UTILIDAD (PÉRDIDA) NETA ANTES DE IMPUESTOS Y PARTICIPACIONES | | XXXXXX | XXXXXX
-IMPUESTO Y PARTICIPACIONES SOBRE LA UTILIDAD | | XXXXX | XXXXX
-Impuesto sobre la renta | | xxxxx | xxxxx
-Participaciones legales sobre la utilidad | | xxxxx | xxxxx
-UTILIDAD (PÉRDIDA) NETA DEL PERIODO | | XXXXXX | XXXXXX
-___________________ __________________ __________________
-Nombre y firma Nombre y firma Nombre y firma
-CONTADOR AUDITOR INTERNO GERENTE
-(Así reformado el modelo 2a) anterior mediante la sesión N° 1034-2013 del 2 de abril del 2013)
-(Nota de Sinalevi: Mediante sesión N° 1053-2013 del 23 de julio del 2013, se reformará el modelo 2a) anterior. De conformidad con lo establecido en la indicada norma, dicha reforma entrará a regir 1° de enero del 2014, por lo que a partir de esa fecha el texto de dicho modelo será el siguiente:
-[imagen]
-[imagen]
-[imagen] )
+(Así reformado el modelo 2a) anterior mediante la sesión N° 1053-2013 del 23 de julio del 2013)
 (Nota de Sinalevi: Mediante sesión N° 892 del 26 de noviembre de 2010, se adiciona las siguientes cuentas al modelo 1, “Balance General"
 1. La cuenta 125.33 “Instrumentos financieros restringidos por operaciones diferidas de liquidez” al rubro de Inversiones en Instrumentos Financieros Disponibles para la Venta
 2. La cuenta 257 “Pasivos por pagos basado valor razonable instrumentos financieros”, al rubro de otros pasivos.
