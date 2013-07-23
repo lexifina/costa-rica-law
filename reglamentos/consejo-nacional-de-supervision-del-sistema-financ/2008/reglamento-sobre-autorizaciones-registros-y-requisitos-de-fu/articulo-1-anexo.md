@@ -45,8 +45,12 @@ m) Defensa jurídica.
 2. La categoría de seguros personales estará compuesta por los siguientes ramos y líneas:
 a) Vida: Comprende el seguro en caso de vida, de muerte o mixto.
 b) Rentas: Comprende las operaciones de capitalización basadas en una técnica actuarial que suponga, a cambio de pagos únicos o periódicos fijados por adelantado, compromisos determinados en cuanto a su duración y a su importe. Incluye los seguros de renta vitalicia derivados de la Ley 7983.
-c) Accidentes y salud: Comprende los seguros de accidentes laborales, las enfermedades profesionales, lesiones corporales, incluida la incapacidad laboral, los seguros de muerte por accidente, los seguros de invalidez por accidente y enfermedad, gastos médicos, repatriación de restos mortales, gastos funerales y la cobertura de ocupantes de vehículos.
-d) Los seguros previstos en las letras a) y b) que estén vinculados con fondos de inversión.
+c) Accidentes: Comprende los seguros de accidentes laborales, lesiones corporales, incluida la incapacidad laboral, los seguros de muerte e invalidez por accidente, repatriación de restos mortales, gastos funerales y la cobertura de ocupantes de vehículos.
+(Así reformado el inciso c) anterior mediante sesión N° 1053-2013 del 23 de julio del 2013)
+d) Salud: Comprende los seguros de enfermedades profesionales, los seguros de invalidez por enfermedad y gastos médicos.
+(Así adicionado el inciso d) anterior mediante sesión N° 1053-2013 del 23 de julio del 2013)
+e) Los seguros previstos en las letras a) y b) que estén vinculados con fondos de inversión.
+(Así corrida su numeración mediante sesión N° 1053 -2013 del 23 de julio del 2013, que lo trasapasó del antiguo inciso d) al e))
 C. Riesgos accesorios. La autorización para ofrecer un riesgo principal perteneciente a un ramo podrá asimismo cubrir los riesgos comprendidos en otro ramo sin necesidad de obtener autorización específica, siempre que:
 a) Se encuentren vinculados al riesgo principal.
 b) Se refieran al objeto cubierto contra el riesgo principal.
