@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 464:2012 para la Leche Condensada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-24 | la propia norma |
+| 2 | 2013-07-24 | Decreto Ejecutivo 38070 (2013-07-18) |
