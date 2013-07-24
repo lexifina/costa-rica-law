@@ -16,3 +16,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | 1 | 2013-03-18 | la propia norma |
 | 2 | 2013-03-18 | Acuerdo 2 (2013-02-13) |
 | 3 | 2013-06-05 | Acuerdo 0 (2013-06-05) |
+| 4 | 2013-07-24 | Acuerdo 0 (2013-07-24) |

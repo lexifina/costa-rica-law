@@ -18,7 +18,7 @@ Cirugía Gastroenterológica. | Artículo No. 78
 Coloproctología. | Artículo No. 79
 Subespecialidad de la Cirugía Pediátrica |
 Oncología Quirúrgica Pediátrica. | Artículo No. 81
-Suespecialidad de Cirujía en Mano (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2013-06-05 del 5 de junio del 2013) | Cirugía de Mano: Requisitos específicos a. Estar debidamente inscrito y acreditado como Especialista en Ortopedia y Traumatología; Cirugía Plástica Reconstructiva y Estética o Cirugía General, ante el Colegio de Médicos y Cirujanos de Costa Rica. b. Aprobación y acreditación de 12 meses en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Cirugía de Extremidad Superior y Mano, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio. Reconocer como sinónimos de esta subespecialidad los términos: Cirugía en Extremidad Superior y Mano; Cirugía en Mano, Muñeca, y Nervios Periféricos. (Así adicionados los requisitos y sinónimos anteriores mediante sesión ordinaria N° 2013-06-05 del 5 de junio del 2013)
+Suespecialidad de Cirujía en Mano (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2013-06-05 del 5 de junio del 2013) |
 Subespecialidades de la Ginecología y Obstetricia |
 Ginecología Endocrinológica. | Artículo No. 83
 Ginecología Oncológica. | Artículo No. 84
@@ -65,6 +65,7 @@ Psiquiatría Forense. | Artículo No. 124
 Psiquiatría Geriátrica. | Artículo No. 125
 Imágenes de Mamas. | Artículo No. 127
 Neuroradiología. | Artículo No. 128
+Neuropsiquiatría (Así adicionada la subespecilidad anterior mediante sesión ordinaria N° 2013-07-24 del 24 de julio del 2013) | a) Estar debidamente inscrito como Especialista en neurología o psiquiatría ante el Colegio de Médicos y Cirujanos de Costa Rica. b) Aprobación y acreditación mínima de un (1) año en un programa de estudios de posgrado (residencia médica) en la Subespecialidad en Neuropsiquiatría, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio, según lo establecido en el Reglamento de Especialidades y Subespecialidades Médicas N° 37662-S en su Artículo 1° inciso g. c) Cumplir con todos los demás requisitos establecidos en el Reglamento de Especialidades y Subespecialidades Médicas N° 37662-S vigente. d) Completar todos los requisitos que estable la Ley Orgánica del Colegio de Médicos y Cirujanos de Costa Rica. (Así adicionados los requisitos anteriores mediante sesión ordinaria N° 2013-07-24 del 24 de julio del 2013)
 Oncoradiología. | Artículo No. 129
 Osteomuscular. | Artículo No. 130
 Radiología Intervencionista. | Artículo No. 131
