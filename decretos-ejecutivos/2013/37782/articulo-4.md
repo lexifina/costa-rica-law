@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Obras Públicas y Transportes, el Consejo Nacional de Vialidad y el contratista deberán ejecutar los compromisos ambientales y medidas de compensación en el marco de la evaluación ambiental que aprobó la Secretaría Técnica Nacional Ambiental.

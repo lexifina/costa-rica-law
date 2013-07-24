@@ -1,0 +1,1 @@
+Artículo 3º—El Sistema Nacional de Áreas de Conservación y la Secretaría Técnica Nacional Ambiental del Ministerio de Ambiente y Energía brindarán un tratamiento prioritario y expedito en las gestiones de su competencia que ante ellas realice Consejo Nacional de Vialidad del Ministerio de Obras Públicas y Transportes o el contratista, con ocasión del proyecto.

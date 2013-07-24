@@ -1,0 +1,1 @@
+Artículo 8º—La empresa contratista y el Consejo Nacional de Vialidad deberá identificar y restablecer las áreas afectadas por la realización de las obras, conforme lo apruebe el Sistema Nacional de Áreas de Conservación, para lo cual se deberá observar lo dispuesto en el Considerando XV.
