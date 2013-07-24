@@ -1,0 +1,1 @@
+Artículo 2º—El costo de la verificación del presente reglamento deberá cubrirlo el Estado conforme la Ley General de Salud Nº 5395 del 30 de octubre de 1973, la Ley General del Servicio Nacional de Salud Animal Nº 8495 del 06 de abril del 2006 y la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor Nº 7472 del 20 de diciembre de 1994.
