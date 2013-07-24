@@ -1,0 +1,2 @@
+8. ENVASE Y EMBALAJE
+Deberán ajustarse a las disposiciones sanitarias para el producto, de conformidad con las secciones pertinentes, del Decreto Ejecutivo N° 33724-COMEX-S-MEIC que publica el Anexo 4 de la Resolución N° 176-2010 (COMIECO XXXVIII), Reglamento Técnico Centroamericano RTCA 67.01.33.06. Industrias de Alimentos y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales.

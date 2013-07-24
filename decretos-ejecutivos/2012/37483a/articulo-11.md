@@ -1,0 +1,7 @@
+11 AUTORIDADES COMPETENTES
+11.1 El Ministerio de Economía, Industria y Comercio de acuerdo a sus competencias legales verificará lo referente a etiquetado en el apartado 7 “Marcado y Etiquetado”.
+11.2 El Servicio Nacional de Salud Animal (SENASA) del Ministerio de Agricultura y Ganadería verificará según sus competencias legales, lo señalado en la sección 6.2 “Disposiciones relativas a residuos de plaguicidas, medicamentos veterinarios y contaminantes”, la sección 6.3 “Parámetros Microbiológicos” y la sección 8 relativo a “Envase y Embalaje”. En lo que respecta a “Envase y Embalaje” se verificará de la siguiente manera:
+a. En el producto nacional: se hará exclusivamente en los establecimientos aprobados mediante el personal oficial en aquellos lugares donde SENASA tiene este recurso o por veterinarios regentes que son sujetos de supervisión por funcionarios de la institución. En ambos casos, con el fin inocuidad del producto.
+b. En producto importado: la verificación se realizará por personal de la Dirección de cuarentena Animal del SENASA durante las inspecciones que se realizan al ingreso de los productos al país.
+Sin detrimento de la facultad que tiene el SENASA de inspeccionar los alimentos en otros puntos de venta del país.
+11.3 El Ministerio de Salud según sus competencias legales, verificarán lo contemplado en la sección 6.1 “Designación y Composición”, 6.4 de “Aditivos Alimentarios” y lo correspondiente con al etiquetado nutricional contemplado en el apartado 7 relativo a “Marcado y Etiquetado” del presente reglamento.

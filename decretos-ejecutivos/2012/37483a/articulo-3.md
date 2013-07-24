@@ -1,0 +1,4 @@
+3. DEFINICIONES
+Para la aplicación del presente reglamento técnico se utilizarán las definiciones contenidas en los reglamentos técnicos: RTCR: 395-2006 para el Uso de Términos Lecheros (Decreto Ejecutivo N° 33288- MEIC-MAG-S) y RTCR: 401-2006 Leche cruda y leche higienizada (Decreto Ejecutivo N° 33812-MEIC-MAG-S), además de la siguiente:
+leche Condensada: es el producto obtenido mediante eliminación parcial del agua de la leche y adición de azúcar, o mediante cualquier otro procedimiento que permita obtener un producto de la misma composición y características.
+Nota: El contenido de grasa y proteínas podrá ajustarse, únicamente para cumplir con los requisitos de composición estipulados en la sección 6.1.2 del presente Reglamento, mediante adición o extracción de los constituyentes de la leche, de manera que no se modifique la proporción entre proteína y caseína del suero en la leche sometida a tal procedimiento.
