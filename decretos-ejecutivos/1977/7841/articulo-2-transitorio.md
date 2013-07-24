@@ -1,6 +1,5 @@
-Transitorio II: El Ministerio de Obras Públicas y Transportes deberá
-determinar, en un plazo no mayor de un año, los espacios de libre
-tránsito destinados a vías públicas en los inmuebles de la zona
-marítimo-terrestre o colindantes con ella, que tengan restricciones para
-ese fin.
-.e
+Transitorio I: En el otorgamiento de concesiones se dará preferencia
+a las solicitudes presentadas con anterioridad a la vigencia de este
+reglamento siempre y a cuando se adecúen a los requisitos aquí
+establecidos y sin perjuicio de las prioridades establecidas en el
+artículo 57 del reglamento.

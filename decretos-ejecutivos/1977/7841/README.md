@@ -19,3 +19,4 @@ Reglamento a la Ley sobre la Zona Marítimo Terrestre
 | 4 | 2001-01-26 | Decreto Ejecutivo 29307 (2001-01-26) |
 | 5 | 2001-08-25 | Decreto Ejecutivo 29818 (2001-08-25) |
 | 6 | 2012-08-31 | Decreto Ejecutivo 37278 (2012-08-31) |
+| 7 | 2013-07-24 | Decreto Ejecutivo 37882 (2013-07-24) |
