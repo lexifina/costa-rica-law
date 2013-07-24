@@ -1,6 +1,5 @@
-LIBRO III
-Transferencia de Fondos Interbancaria (TFI)
-CAPÍTULO I
-Del servicio
-Artículo 65.—Definición del servicio. Se define TFI como el servicio de liquidación bruta en tiempo real, por medio del cual una entidad origen emite una instrucción para transferir dinero a la cuenta de fondos de una entidad destino.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 59 al 58 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 58 al 65 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 66 pasa a ser el 65 actual)
+CAPÍTULO IV
+De la liquidación de mercados sobre las cuentas de fondos
+(Así adicionado el capítulo anterior mediante sesión N° 5604-2013 del 24 de julio del 2013)
+Artículo 65.—Autorización de liquidación. Un operador de medios de pago o el organizador de un mercado que requieran liquidar las transacciones derivadas de su operativa sobre las cuentas de fondos mantenidas por las entidades financieras en el Banco Central de Costa Rica, deberá contar con la autorización de operación del BCCR.
+(Así adicionado mediante sesión N° 5604-2013 del 24 de julio del 2013)

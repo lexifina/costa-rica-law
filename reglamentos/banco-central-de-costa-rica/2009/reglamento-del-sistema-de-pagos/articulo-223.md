@@ -1,6 +1,6 @@
-LIBRO XXII
-Custodia de Numerario (CAN)
-CAPÍTULO I
-Del servicio
-Artículo 223.—Definición del servicio. El servicio CAN constituye el conjunto de procesos operativos, la logística y la plataforma electrónica en la que operan las Custodias de Numerario, mediante las cuales el BCCR atiende los requerimientos de numerario de las entidades financieras y mantiene parte de su disponibilidad de numerario en las bóvedas de tales entidades bajo su absoluta responsabilidad, para usarlo según el BCCR lo determine.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 217 al 216 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 216 al 223 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 224 pasa a ser el 223 actual)
+Artículo 223.—Categorías de billete. El billete emitido por el BCCR se clasifica en las siguientes categorías:
+a) Nuevo: billete que no ha sido puesto en circulación. Su empaque y unidad de medida son los originales de fabricación.
+b) Circulable: billete que mantiene su tamaño y seguridades originales, así como un adecuado nivel de limpieza y rigidez. Es apto para realizar transacciones.
+c) Deteriorado: billete que por su uso natural muestra signos de deterioro como suciedad, decoloración y flacidez, entre otros. Asimismo, conserva al menos el 60% de su tamaño original, una serie y una numeración. Puede presentar daños como roturas, rayas, sellos, manchas, perforaciones, mutilaciones, textos u otros elementos diferentes de los propios. Fracciones menores al 60% del tamaño original, perderán su valor de curso legal.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 209 al 208 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 208 al 215 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 216 pasa a ser el 215 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 215 al 223)

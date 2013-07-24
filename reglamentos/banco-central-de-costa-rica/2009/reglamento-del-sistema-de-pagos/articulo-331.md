@@ -1,6 +1,3 @@
-LIBRO XXVII
-FIRMA DIGITAL (FDI)
-CAPÍTULO I
-EL SERVICIO
-Artículo 331.—Definición del servicio. Se define Firma Digital como el servicio por medio del cual se gestiona la solicitud, emisión, entrega, renovación, revocación y verificación de certificados digitales, de conformidad con la Ley 8454 y su reglamento.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 325 al 324 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 324 al 331 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 332 pasa a ser el 331 actual cuyo texto se reformó)
+Artículo 331.—Eliminación de derechos. La eliminación de derechos a un ARS, RST, RSP, DDU, consultante o usuario, podrá ser ejecutada por un solo responsable de seguridad o digitador, cuando tenga los derechos para ello.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 317 al 316 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 316 al 323 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 324 pasa a ser el 323 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 323 al 331)

@@ -21,3 +21,4 @@ Reglamento del Sistema de Pagos
 | 6 | 2011-08-24 | Reglamento 5511 (2011-08-24) |
 | 7 | 2011-10-19 | Reglamento 5518 (2011-10-19) |
 | 8 | 2012-09-12 | Reglamento 5561 (2012-09-12) |
+| 9 | 2013-07-24 | Reglamento 5604 (2013-07-24) |

@@ -1,5 +1,4 @@
-CAPÍTULO V
-DE LAS INSPECCIONES A LAS OR
-Artículo 354.—Inspecciones por parte del BCCR. Los participantes están en la obligación de permitir las inspecciones que programe el BCCR en sus OR, con el propósito de verificar el cumplimiento por parte de estas del marco regulatorio aplicable a su funcionamiento. Con tales propósitos deberán suministrar al BCCR la información que les requiera, con el formato y las condiciones que este último defina.
-Las mismas condiciones deberán ser provistas por los participantes a la Dirección de Certificadores de Firma Digital, del Ministerio de Ciencia y Tecnología.
-(Así adicionado en sesión N° 5462-2010 del 26 de mayo de 2010)
+Artículo 354.—Verificación de la identidad del solicitante. La OR debe validar la identidad del solicitante, conforme con lo que establece la PC para la Jerarquía Nacional de Certificadores Registrados y las normas complementarias del servicio.
+Con el proceso de validación, la OR debe dar fe de la autenticidad de los documentos que se utilicen como prueba de la identidad del solicitante, conservarlos y protegerlos, así como mantener un registro completo de todas las actividades realizadas.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 340 al 339 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 339 al 346 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 347 pasa a ser el 346 cuyo texto se reformó)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 346 al 354)

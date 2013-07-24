@@ -1,8 +1,7 @@
-CAPÍTULO III
-DE LAS OPERACIONES DIFERIDAS DE LIQUIDEZ
-Artículo 190.—Tipo de operaciones. Los participantes podrán registrar operaciones diferidas de liquidez para demandar u ofertar dinero, conforme con sus necesidades propias.
-Las operaciones diferidas de liquidez se componen de dos contratos pactados simultáneamente: el primero con una liquidación inmediata, en la cual una de las contrapartes se compromete a entregar a la otra una suma de dinero, y el segundo, a liquidarse en una fecha futura pactada por las partes, en la cual se activa la operación de contrapartida, se produce la devolución de los fondos y se cancela el rendimiento de la operación.
-A solicitud de las partes que interviene en las negociaciones, las operaciones diferidas de liquidez podrán respaldarse con activos financieros en garantía, los cuales permanecen pignorados bajo administración fiduciaria durante el plazo del contrato y se liberan al término del mismo.
-El BCCR también podrá poner a disposición de los participantes una facilidad de depósito, de conformidad con los términos y las condiciones financieras que su Junta Directiva determine por acuerdo.
-(Así reformado en sesión N° 5429 de 8 de julio de 2009).
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 184 al 183 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 183 al 190 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 191 pasa a ser el 190 actual)
+LIBRO XVIII
+Ventanilla de valores
+CAPÍTULO I
+Del servicio
+Artículo 190.—Definición del servicio. Se define Ventanilla de Valores como el servicio por medio del cual se colocan valores estandarizados a través de ventanilla.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 176 al 175 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 175 al 182 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 183 pasa a ser el 182 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 182 al 190)

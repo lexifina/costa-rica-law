@@ -1,5 +1,5 @@
-CAPÍTULO IV
-De los requerimientos de garantía
-Artículo 261.—Requerimiento mínimo para los asociados. Como requerimiento mínimo de garantía, las entidades financieras deberán mantener un monto en garantías al menos igual al promedio móvil más dos desviaciones estándar, que resulte de la suma de sus débitos netos diarios producidos en los últimos 70 días naturales por los servicios de compensación multilateral neta del SINPE.
-En ningún caso el requerimiento podrá ser menor a ¢.30.000.000,00 o su equivalente en US dólares calculados al tipo de cambio de referencia vigente para la compra de esa divisa.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 255 al 254 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 254 al 261 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 262 pasa a ser el 261 actual)
+CAPÍTULO II
+De los participantes
+Artículo 261.—Participantes del servicio. En el servicio Gestión de Riesgos participan los asociados que requieran o deban utilizar alguno de los mecanismos dispuestos por este mismo servicio.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 247 al 246 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 246 al 253 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 254 pasa a ser el 253 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 253 al 261)

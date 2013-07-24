@@ -1,4 +1,7 @@
-CAPÍTULO V
-De las responsabilidades
-Artículo 249.—Tratamiento de las diferencias. Las diferencias físicas de numerario que resulten de las negociaciones en el servicio, deben ser resueltas bilateralmente entre las entidades financieras involucradas, siguiendo los criterios que al respecto establecen las normas complementarias del servicio.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 243 al 242 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 242 al 249 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 250 pasa a ser el 249 actual)
+Artículo 249.—Procedimiento ante incumplimientos. Ante el incumplimiento de los requisitos enumerados en el artículo anterior, el BCCR procederá de la siguiente forma:
+a) La primera vez: comunicado del incumplimiento al responsable del servicio ante el BCCR y bloqueo de la CAN en el servicio por cinco días hábiles.
+b) La segunda vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por veinte días hábiles.
+c) La tercera vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por sesenta días hábiles. Según sea la valoración que realice el BCCR, el bloqueo aplicará a la CAN que incurra en la falta o a todas las que administra la entidad.
+La acumulación de los incumplimientos se extingue al finalizar cada año calendario.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 235 al 234 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 234 al 241 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 242 pasa a ser el 241 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 241 al 249)

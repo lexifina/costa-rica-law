@@ -1,10 +1,5 @@
-CAPÍTULO IV
-Del ciclo del servicio
-Artículo 168.—Ciclo de operación del servicio. El ciclo del servicio Captación de Fondos se efectuará de conformidad con las siguientes etapas:
-a) Oferta de instrumentos de captación: El BCCR pone a disposición de los inversionistas los instrumentos financieros con los cuales desea realizar la captación de recursos. Dichos instrumentos podrán estar disponibles en forma permanente durante el horario de operación del SINPE o en determinadas sesiones de negociación, conforme con las necesidades del BCCR.
-La información relacionada con los términos y condiciones financieras de los instrumentos ofrecidos y con los procesos de negociación, deberá ser anunciada oportunamente a los inversionistas.
-b) Registro de operaciones: Los inversionistas registran sus operaciones de inversión o depósito, con base en la oferta de instrumentos financieros disponibles, y conforme con el método de negociación que rija para la sesión de captaciones.
-Toda operación activada por el inversionista tendrá un carácter irrevocable.
-c) Liquidación de constituciones: El SIL liquida la constitución de las operaciones bajo los mecanismos de entrega contra pago y de liquidación multilateral neta o liquidación bilateral bruta, según corresponda.
-d) Liquidación de vencimientos: En la fecha de vencimiento de las operaciones, o en las fechas intermedias en las que corresponda el pago de intereses, el SIL efectúa su liquidación acreditando las cuentas de fondos de los inversionistas, mediante el mecanismo de liquidación bilateral bruta.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 162 al 161 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 161 al 168 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 169 pasa a ser el 168 actual)
+Artículo 168.—Tipo de traspasos. Los traspasos de valores que ordenen los participantes podrán ser de dos tipos:
+a) Traspaso sin cambio de titularidad: Cuando el movimiento de los valores se realiza entre cuentas pertenecientes al mismo titular.
+b) Traspaso con cambio de titularidad: Cuando el movimiento de los valores se realiza a la cuenta de otro titular.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 154 al 153 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 153 al 160 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 161 pasa a ser el 160 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 160 al 168)

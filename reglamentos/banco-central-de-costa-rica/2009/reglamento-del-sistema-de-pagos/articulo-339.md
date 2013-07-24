@@ -1,3 +1,7 @@
-Artículo 339.—Prestación de servicios a clientes de otros participantes. En los casos en que el certificador del SINPE lo autorice previamente, los asociados que actúen como OR podrán prestarle los servicios de firma digital a un conjunto determinado de clientes de otro asociado del SINPE.
-Por la prestación de estos servicios, las OR podrán cobrar como máximo las comisiones establecidas en el presente reglamento.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 333 al 332 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 332 al 339 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 340 pasa a ser el 339 actual cuyo texto se reformó)
+LIBRO XXVII
+FIRMA DIGITAL (FDI)
+CAPÍTULO I
+EL SERVICIO
+Artículo 339.—Definición del servicio. Se define Firma Digital como el servicio por medio del cual se gestiona la solicitud, emisión, entrega, renovación, revocación y verificación de certificados digitales, de conformidad con la Ley 8454 y su reglamento.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 325 al 324 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 324 al 331 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 332 pasa a ser el 331 actual cuyo texto se reformó)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 331 al 339)

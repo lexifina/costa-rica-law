@@ -1,2 +1,8 @@
-Artículo 122.—Efectos de la suspensión. La suspensión de una cuenta de valores impide movimientos que implican la salida de valores desde el momento en que la misma es ordenada, pero no impide movimientos de entrada de valores, ni la liquidación de vencimientos de los valores que se encuentren depositados en la cuenta suspendida.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 116 al 115 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 114 al 122 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 123 pasa a ser el 122 actual)
+ANOTACIÓN EN CUENTA
+LIBRO XII
+Cuentas de valores
+CAPÍTULO I
+Del servicio
+Artículo 122.—Definición del servicio. Se define Cuentas de Valores como el servicio por medio del cual se administra el registro de los valores anotados en cuenta, conforme con el Título VII de la Ley 7732.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 108 al 107 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 107 al 114 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 115 pasa a ser el 114 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 114 al 122)

@@ -1,6 +1,12 @@
-LIBRO XXIII
-Mercado de Numerario (MEN)
-CAPÍTULO I
-Del servicio
-Artículo 244.—Definición del servicio. Se denomina servicio MEN al mecanismo mediante el cual las entidades participantes negocian numerario entre sí, en moneda nacional o extranjera.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 238 al 237 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 237 al 244 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 245 pasa a ser el 244 actual)
+CAPÍTULO V
+De las responsabilidades del BCCR
+Artículo 244.—Atención de requerimientos de numerario. La Tesorería del BCCR atenderá los requerimientos de las entidades financieras de acuerdo con los siguientes criterios:
+a) Depósitos: la Custodia Principal recibirá billete de la categoría deteriorado. El circulable lo recibirá únicamente en casos de fuerza mayor, siempre y cuando se mantenga en circulación una estructura denominativa óptima. Previo al depósito, la entidad financiera respectiva deberá procesar el billete a depositar. A solicitud de la entidad depositante, el billete deteriorado podrá ser canjeado por billete nuevo. El BCCR determinará las denominaciones que entregará como canje.
+b) En caso de que el depósito de la categoría deteriorado contenga más de un 5% de billete circulable, la Custodia Principal aplicará la tarifa que para el billete mal clasificado establece el presente reglamento.
+c) La Custodia Principal recibirá moneda siempre y cuando se trate de desmonetizaciones o en casos de fuerza mayor debidamente valorados y calificados por el Departamento de Tesorería del BCCR. Las custodias auxiliares recibirán depósitos de cualquier categoría.
+(Así reformado el inciso anterior mediante sesión N° 5462-2010 del 26 de mayo de 2010)
+d) Retiros: la Custodia Principal entregará únicamente billete o moneda nueva, siempre y cuando no disponga de circulable y cumpla con los términos establecidos en el presente reglamento, en cuanto a la circulación de una estructura denominativa óptima.
+e) Las entidades financieras dispondrán de diez días hábiles contados a partir de la fecha del retiro, para reclamar faltantes en el numerario que se les entregue. El BCCR únicamente recibirá reclamos cuando se trate de numerario nuevo despachado en el empaque original de fabricación. Los reclamos por el circulable que entregue el BCCR deberán tramitarse ante la entidad que realizó el empaquetado.
+f) Sin perjuicio de las reservas establecidas en los incisos anteriores, la Custodia Principal atenderá requerimientos siempre y cuando las entidades no logren satisfacerlos en el resto del Sistema Financiero Nacional.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 230 al 229 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 229 al 236 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 237 pasa a ser el 236 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 236 al 244)

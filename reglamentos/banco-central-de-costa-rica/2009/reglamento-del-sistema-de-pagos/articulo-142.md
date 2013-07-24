@@ -1,5 +1,7 @@
-CAPÍTULO IV
-De la liquidación de vencimientos
-Artículo 142.—Liquidación de vencimientos. En la fecha de vencimiento de las emisiones y en las fechas intermedias en las que corresponda el pago de intereses, el servicio emitirá una instrucción al SIL para que los fondos se acrediten en la cuenta de fondos de las entidades de custodia y de los miembros liquidadores que corresponda, con cargo a la cuenta de fondos del emisor o de su agente de pago.
-La liquidación de los vencimientos la efectúa el SIL utilizando el mecanismo de liquidación bilateral bruta.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 136 al 135 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 135 al 142 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 143 pasa a ser el 142 actual)
+LIBRO XIII
+Registro de emisiones
+CAPÍTULO I
+Del servicio
+Artículo 142.—Definición del servicio. Se define Registro de Emisiones como el servicio por medio del cual se administran las emisiones de valores públicos anotados en cuenta, conforme con el Título VII de la Ley 7732.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 128 al 127 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 127 al 134 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 135 pasa a ser el 134 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 134 al 142)

@@ -1,5 +1,7 @@
-CAPÍTULO V
-De las responsabilidades
-Artículo 210.—Registro contable de las operaciones. Las entidades autorizadas a participar en el mercado cambiario deben mantener registros contables separados que permitan identificar las operaciones que realicen en el Monex, así como bases de datos centralizadas con el detalle de todas las operaciones cambiarias realizadas con el público en todas sus oficinas, agencias y sucursales, incluidas las negociadas por medios electrónicos como Internet banca telefónica o similares.
-Las entidades autorizadas también deberán suministrar diariamente al BCCR la información de su actividad cambiaria, con el detalle y en la forma que le sea requerida por éste, de conformidad con lo establecido en el Reglamento de Operaciones Cambiarias de Contado y las normas complementarias del servicio.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 204 al 203 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 203 al 210 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 211 pasa a ser el 210 actual)
+LIBRO XX
+Mercado de Monedas Extranjeras (MONEX)
+CAPÍTULO I
+Del servicio
+Artículo 210.—Definición del servicio. Se define Monex-SINPE como el servicio por medio del cual los asociados del SINPE acceden al mercado de monedas extranjeras para realizar la negociación de divisas.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 196 al 195 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 195 al 202 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 203 pasa a ser el 202 actual cuyo texto se reformó)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 202 al 210)

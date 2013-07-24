@@ -1,4 +1,7 @@
-CAPÍTULO IV
-De las responsabilidades
-Artículo 73.—Acreditación de las transferencias. La entidad destino debe mantener en sus plataformas tecnológicas una funcionalidad que realicen en forma automática las validaciones necesarias para determinar la aceptación o el rechazo de las transferencias recibidas, de modo que su acreditación sobre las cuentas cliente destino sea en tiempo real y sin intervención humana.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 67 al 66 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 66 al 73 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 74 pasa a ser el 73 actual )
+LIBRO III
+Transferencia de Fondos Interbancaria (TFI)
+CAPÍTULO I
+Del servicio
+Artículo 73.—Definición del servicio. Se define TFI como el servicio de liquidación bruta en tiempo real, por medio del cual una entidad origen emite una instrucción para transferir dinero a la cuenta de fondos de una entidad destino.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 59 al 58 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 58 al 65 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 66 pasa a ser el 65 actual)
+(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013 , que lo traspasó del antiguo artículo 65 al 73)
