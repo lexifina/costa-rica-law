@@ -1,0 +1,3 @@
+Artículo 3º—Adiciónese un párrafo final al artículo 22 del Reglamento para la Emisión de Certificados de Origen y la Verificación de Origen de Mercancías Exportadas, Decreto Ejecutivo N° 36651-COMEX del 01 de junio de 2011, publicado en el Diario Oficial La Gaceta N° 136 del 14 de julio de 2011; cuyo texto será:
+“Artículo 22.—Excepción del certificado de origen.
+En el caso del Tratado de Libre Comercio entre la República de Costa Rica y la República de Perú, PROCOMER no emitirá certificados de origen a envíos cuyo valor en aduanas no sea exceda de mil dólares de Estados Unidos de América (US $1000), o su monto equivalente en la moneda nacional o una cantidad mayor que la Parte establezca.”

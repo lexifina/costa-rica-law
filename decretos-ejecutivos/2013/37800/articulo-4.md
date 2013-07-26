@@ -1,0 +1,1 @@
+Artículo 4º—Deróguese el inciso m) del artículo 11 del Reglamento para la Emisión de Certificados de Origen y la Verificación de Origen de Mercancías Exportadas, Decreto Ejecutivo N° 36651-COMEX del 01 de junio de 2011, publicado en el Diario Oficial La Gaceta N° 136 del 14 de julio de 2011.
