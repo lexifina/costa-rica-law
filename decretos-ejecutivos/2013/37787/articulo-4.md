@@ -1,0 +1,1 @@
+Artículo 4º—Este Decreto deroga las tarifas establecidas mediante el Decreto Ejecutivo Nº 37108-MOPT del 26 de abril del 2012, publicado en el Alcance N° 63 del jueves 17 de mayo del 2012 y, el Decreto Ejecutivo Nº 37365 del 20 de setiembre del 2012, publicado en el Alcance N° 164 del jueves veinticinco de octubre del 2012.
