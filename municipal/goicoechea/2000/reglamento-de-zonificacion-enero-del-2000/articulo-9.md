@@ -11,6 +11,10 @@ El área de los sótanos no se computará como área de piso, entendiéndose por
 El alineamiento de los sótanos lo fijará el derecho de vía propuesto, sin retiros. (El MOPT lo fija en las vías nacionales y la Municipalidad en las vías locales).
 CAPITULO III
 Regulaciones por zonas
+(Nota de Sinalevi: El Concejo Municipal de Goicoechea mediante sesión ordinaria N° 30-13 del 29 de julio del 2013, interpretó el Capítulo III "Regulaciones por Zonas",en relación a la densidad en los términos que estableció el acuerdo de Sesión Ordinaria 25-03, Art. 30, del 23/6/2003, de la siguiente manera: " • hab: Equivale a Unidades Ocupacionales Individuales
+• Hab: Equivale a Habitantes
+• Ha: Equivale a Hectárea Urbanizada 10.000 m2 (la cual debe incluir la infraestructura vial y las áreas destinadas a uso público).
+". Asimismo se indica que esta interpretación no implica nuevos trámites para los administrados ni cambios al Plan Regulador, por lo que no requiere de consulta pzblica, audiencia, ni aprobacisn de otras instituciones.)
 DENSIDADES:
 Para todos los efectos subsiguientes de Regulaciones se estiman las densidades según se indica en la Memoria Descriptiva:
 La Densidad por sectores:

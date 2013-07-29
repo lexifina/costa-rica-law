@@ -14,3 +14,4 @@ Reglamento de Zonificación (Enero del 2000)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-31 | la propia norma |
+| 2 | 2013-07-29 | Acuerdo municipal 0 (2013-07-29) |
