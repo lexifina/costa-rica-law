@@ -11,7 +11,7 @@ IV.—Que el Decreto Ejecutivo N° 29680-MINAE del 23 de julio del 2001, publica
 Decretan:
 Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad, a las siguientes personas:
 1. Miembro propietario:
-a. Eugenia Solano Villalobos, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+a. (Derogado este inciso por el artículo 3° del decreto ejecutivo N° 37935 del 29 de julio del 2013 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 2. Miembros suplentes:
 a. Eugenia Arguedas Montezuma, representante del Sistema Nacional de Áreas de Conservación.
-b. Mariemilia Morales Zárate, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+b. (Derogado este inciso por el artículo 3° del decreto ejecutivo N° 37935 del 29 de julio del 2013 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
