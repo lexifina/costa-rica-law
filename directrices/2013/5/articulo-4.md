@@ -1,0 +1,1 @@
+Artículo 4º- Una vez recibida por parte de la institución interesada la confirmación sobre los “Recursos por Presupuestar”, la Contabilidad Nacional realizará, a gestión de parte, la correspondiente certificación, para que las mismas continúen el procedimiento según corresponde ante la Dirección General de Presupuesto Nacional.

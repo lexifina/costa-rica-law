@@ -1,0 +1,1 @@
+Artículo 2º- Objetivo. Instruir a las instituciones mencionadas en el artículo anterior, sobre su responsabilidad dentro del procedimiento a seguir, para la solicitud de incorporación de los denominados “Recursos por Presupuestar” a su presupuesto.
