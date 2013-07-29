@@ -1,0 +1,1 @@
+ARTICULO 26. Todo funcionario deberá informar oportunamente la pérdida de activos bajo su responsabilidad a su jefatura inmediata o a la autoridad competente para lo cual dispondrá de tres días hábiles después de la desaparición, fin de que se inicie el debido proceso.

@@ -1,0 +1,1 @@
+ARTICULO 24. En el caso de que algún equipo deje de tener utilidad para el usuario, éste lo comunicara al Jefe de su Unidad para que lo reubique internamente, realizando el ajuste correspondiente en sus registros y efectuando el traslado correspondiente a través del portal de trámite del SIAF siguiendo el Procedimiento para el control y levantamiento de inventario de activos.

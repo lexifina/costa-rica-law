@@ -1,0 +1,1 @@
+ARTICULO 14. El Almacén de Materiales y Suministros entregará equipo, debidamente identificado por su placa, únicamente al Jefe de la Unidad solicitante o a quien este autorice por escrito o a otra persona autorizada previamente por el Gerente General, o la Directora Administrativa Financiera.

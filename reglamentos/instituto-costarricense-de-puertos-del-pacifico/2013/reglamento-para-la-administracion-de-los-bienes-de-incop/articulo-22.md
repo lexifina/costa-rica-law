@@ -1,0 +1,1 @@
+ARTICULO 22. Cuando el INCOP adquiera terrenos, instalaciones o edificios, ya sea por medio de compra o donación, la Asesoría Legal deberá remitir a la Dirección Administrativa Financiera y a la Unidad de Contabilidad copia de la escritura y de los planos respectivos una vez que hayan sido inscritos en el Registro de la Propiedad.

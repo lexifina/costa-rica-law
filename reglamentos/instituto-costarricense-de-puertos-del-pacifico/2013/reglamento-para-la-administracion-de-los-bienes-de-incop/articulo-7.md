@@ -1,0 +1,1 @@
+ARTICULO 7. En los casos de renuncia, traslado o despido el funcionario hará entrega al Jefe inmediato, de los activos que tenía en uso. Así mismo previo a ser inhabilitado el funcionario en el portal; deberá hacer el debido traslado de custodio en el portal de trámites del SIAF conforme al Procedimiento para el control y levantamiento de inventario de activos.

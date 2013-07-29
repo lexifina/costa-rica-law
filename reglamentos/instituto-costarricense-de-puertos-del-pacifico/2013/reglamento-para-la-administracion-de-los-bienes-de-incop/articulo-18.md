@@ -1,0 +1,1 @@
+ARTICULO 18. La Unidad de Contabilidad velará porque en los registros contables se incluyan todas las operaciones relacionadas con los activos fijos. Tendrá la responsabilidad de mantener actualizados los registros auxiliares de activos de la Institución y para tal efecto realizará los movimientos contables respectivos.

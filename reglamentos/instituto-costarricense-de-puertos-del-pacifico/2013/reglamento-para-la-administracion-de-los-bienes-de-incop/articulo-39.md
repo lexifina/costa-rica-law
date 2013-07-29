@@ -1,0 +1,1 @@
+ARTICULO 39. Mensualmente, el encargado del Almacén de Materiales hará comprobaciones físicas de los aumentos o disminuciones de los inventarios de suministros de oficina, así como de sus saldos. Posterior a estas intervenciones, el Encargado del Almacén de Materiales hará un reporte a las Unidades de Proveeduría y Contabilidad.

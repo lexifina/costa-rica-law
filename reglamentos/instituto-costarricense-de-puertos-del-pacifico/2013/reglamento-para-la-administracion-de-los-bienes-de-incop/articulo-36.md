@@ -1,0 +1,1 @@
+ARTlCULO 36. Se podrán vender o donar activos fijos cuando la Gerencia General, compruebe que éstos no son de utilidad para la Institución, por cuanto están desechados, obsoletos o totalmente depreciados. El precio le venta base se fijará con base en un avalúo todo de conformidad con lo que establece la normativa vigente.
