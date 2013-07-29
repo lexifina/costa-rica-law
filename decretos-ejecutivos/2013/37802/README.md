@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 37802
+
+Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2013
+
+- Tipo: Decreto Ejecutivo
+- Número: 37802
+- Fecha: 2013-07-02
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 144 del 2013-07-29
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=75336&param2=93367&param3=1 (ficha 75336)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2013-07-29 | la propia norma |
