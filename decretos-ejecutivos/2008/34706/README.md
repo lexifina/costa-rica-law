@@ -18,3 +18,4 @@ Reglamento al artículo cinco de la Ley Nº 7293 denominada “Ley Reguladora de
 | 3 | 2011-05-09 | Resolución 2 (2011-05-09) |
 | 4 | 2011-05-20 | Resolución 1 (2011-05-20) |
 | 5 | 2012-11-07 | Resolución 3 (2012-11-07) |
+| 6 | 2013-07-29 | Resolución 4 (2013-07-29) |

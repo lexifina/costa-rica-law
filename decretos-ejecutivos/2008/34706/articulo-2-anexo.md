@@ -15,7 +15,8 @@ LISTA DE MATERIAS PRIMAS PARA LA ELABORACIÓN DE INSUMOS AGROPECUARIOS
 - Láminas de espuma de poliuretano para banano.
 - Otras materias primas para la elaboración de insumos agropecuarios, siempre y cuando se encuentren registradas como tales en el Ministerio de Agricultura y Ganadería.
 - Papel Kraft para fabricar cajas de cartón para banano.
-- Papel kraft, médium, semiquímico para fabricar cajas de cartón para banano.
+- Papel kraft, moteado, médium, semiquímico para fabricar cajas de cartón para banano.
+(Así reformado el punto anterior mediante resolución N° STE 04-2012 del 29 de julio del 2013)
 - Papel adhesivo para etiquetas.
 - Parafinas para banano.
 - Resinas sintéticas para ser utilizadas en la producción de mecate y plástico para la protección y empaque de banano.
