@@ -1,0 +1,2 @@
+ARTICULO 16.
+La omisión de los datos en las casetillas de kilometraje diario y combustible, por parte del chofer, en la Boleta de Solicitud de Transportes, se considerará como incumplimiento a las obligaciones de trabajo y se comisionará como falta grave, por lo que se otorgará un plazo máximo de 24 horas después de concluida la gira para remediar la omisión de información, caso contrario se aplicarán las sanciones que correspondan según el Reglamento Interno de Trabajo.

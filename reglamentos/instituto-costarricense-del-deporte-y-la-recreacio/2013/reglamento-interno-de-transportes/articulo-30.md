@@ -1,0 +1,2 @@
+ARTICULO 30.
+Para el reconocimiento del pago por concepto kilometraje, el funcionario debe contar antes de su salida con la autorización del Coordinador de Área respectiva, y la autorización de la Unidad de Transportes, a través del formulario de “solicitud de Transportes” y cumplir con los requisitos que ésta le solicite. Para el pago de este concepto serán utilizadas las tarifas establecidas por la Contraloría General de la República.

@@ -1,0 +1,5 @@
+ARTICULO 15.
+Para el control de salida o ingreso respectivo de los vehículos, se establece lo siguiente:
+A - Ningún chofer o conductor podrá salir con vehículo oficial del ÍCOOER, sin portar la respectiva solicitud de transporte, carnet de identificación personal del ICODER y el Permiso de Circulación cuando sea requerido.
+B - Todo chofer, con vehículo oficial, antes de iniciar el servicio, deberá reportarse a la Sección de Seguridad, para que el Guarda encargado le realice el respectivo chequeo, kilometraje de salida, herramientas, condiciones físicas de la carrocería, pasajeros, etc., según el formulario diseñado parra estos efectos.
+C- Todo chofer, al regreso de su gira o servicio, está en la obligación de volver a reportarse al Guarda de Seguridad, para el registro del kilometraje y condiciones en que se entrega el vehículo, así como otras observaciones que se anotarán en la misma boleta que se le abrió a la salida. El chofer y el guarda están obligados a firmar esta boleta de cierre del servicio, que será entregada al chofer para que adjunte la solicitud.

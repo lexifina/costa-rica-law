@@ -1,0 +1,2 @@
+ARTICULO 6.
+El Director (a) Nacional y los Coordinadores de Área, podrán autorizar por escrito, cada uno en su área correspondiente para que vehículos de uso administrativo trasladen a personas que no son funcionarios de la Institución, debidamente identificados y que están cumpliendo labores relacionadas con el quehacer Institucional en actividades del ICODER, para lo cual deberán presentar previo el respectivo plan de gira.

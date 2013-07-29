@@ -1,0 +1,2 @@
+ARTICULO 12.
+Para todo servicio de transporte, deberá existir una "solicitud de transportes"., debidamente firmada por el interesado y el correspondiente Coordinador de Área, indicando claramente la ruta que va a recorrer, horario, personas que viajarán, motivo de la gira, entre otros, por lo que queda terminantemente prohibido alterar la misma, salvo casos de calificada emergencia, con la autorización del Director Administrativo y su Unidad de Transportes.

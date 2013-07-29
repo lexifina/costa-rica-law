@@ -1,0 +1,2 @@
+ARTICULO 4.
+Los vehículos de uso administrativo, serán usados única y exclusivamente por los funcionarios debidamente autorizados para las actividades propias de la Institución, operadores de equipo móvil salvo en los casos especiales debidamente justificados y autorizados por el Director Nacional o los Coordinadores Generales de Área y en ausencia de éstos por el Jefe del Depto. Administrativo y Servicios Generales, previa apertura del Expediente de Conductor Autorizado.
