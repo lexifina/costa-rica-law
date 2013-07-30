@@ -1,0 +1,2 @@
+Artículo 2º—Se adiciona el artículo 6, al Decreto N° 11564 del 2 de junio de 1980. Consecuentemente córrase la numeración del artículo subsiguiente, de manera que el artículo 6, se numere 7. El artículo dirá así:
+Artículo 6º—Se reitera que ninguna persona no indígena podrá adquirir terrenos dentro del territorio delimitado en el artículo 3° de este decreto, conforme a lo dispuesto en la Ley Indígena Nº 6172.
