@@ -1,0 +1,1 @@
+Artículo 3º- Las instituciones deberán llevar los registros contables de las cuentas afectas a moneda distinta a la moneda funcional (colón costarricense), en auxiliares. En cuanto a presentación, la información de los auxiliares deberá contener los siguientes datos: en colones, moneda contratada, tipo de cambio utilizado al último día del mes calendario.

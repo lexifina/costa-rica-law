@@ -1,0 +1,1 @@
+Artículo 5º- A efectos de llevar a cabo la consolidación de cifras del sector público costarricense, las instituciones están obligadas a remitir los auxiliares correspondientes, de acuerdo con lo dispuesto en la presente directriz y acatando lo dispuesto en las directrices CN-001-2004, CN-003-2005 y concernientes.

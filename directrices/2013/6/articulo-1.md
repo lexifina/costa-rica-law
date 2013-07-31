@@ -1,0 +1,15 @@
+CONTABILIDAD NACIONAL
+AVISO
+En cumplimiento de sus deberes y funciones como Órgano Rector del Subsistema de Contabilidad, atribuidos por disposición expresa de la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131, la Contabilidad Nacional informa a todas las entidades y órganos comprendidos en el artículo 1 de la precitada Ley, que se ha emitido la Directriz Nº CN-006-2013, de fecha 27 de junio del 2013, denominada “Registro de Transacciones en Moneda Extranjera”. El documento se encuentra disponible en la siguiente dirección electrónica: https://www.hacienda.go.cr/Msib21/Espanol/Contabilidad+Nacional/AMBITO+JURIDICO+-+C.N.htm.—
+(Nota de Sinalevi: La presente norma se extrajo del sitio Web de Contabilidad Nacional, y se transcribe a continuación:)
+Directriz Nº 006-2013
+La Contadora Nacional
+Con fundamento en las potestades conferidas en los artículos 90, 91, 93 y 94 de la Ley de Administración Financiera de la República y Presupuestos Públicos Nº 8131 y lo establecido en el Decreto Ejecutivo número 32988-H-MP-PLAN, publicado en La Gaceta número 74 del 18 de abril de 2006, denominado “Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos”,
+Considerando
+1º- Que de conformidad con el artículo 93 de la Ley N° 8131, la Contabilidad Nacional es el órgano Rector del Subsistema de Contabilidad, al cual le corresponde establecer los procedimientos contables que respondan a normas y principios de aceptación general en el ámbito gubernamental, definir la metodología contable por aplicar, así como la estructura y periodicidad de los estados financieros que deberán producir las entidades; asesorar técnicamente a todas las entidades del sector público; actualizar la contabilidad de la administración central y mantener los registros destinados a centralizar y consolidar los movimientos contables; para lo que requiere uniformar criterios técnicos para adecuar la información contable que debe recibir de los Órganos Desconcentrados.
+2º- Que la Contabilidad Nacional como Órgano Rector del Subsistema de Contabilidad, tiene dentro de sus objetivos remitir información útil, adecuada, oportuna y confiable para la toma de decisiones de los jerarcas de las distintas instancias del Sector Público Costarricense, responsable de la gestión y evaluación financiera, patrimonial y presupuestaria, así como para terceros interesados.
+3º- Que el artículo 94 de la citada Ley N° 8131 establece de la obligatoriedad de las instituciones públicas de atender los requerimientos de información de la Contabilidad Nacional.
+Por tanto, se emite la siguiente directriz,
+Directriz No. 006-2013
+“Registro de Transacciones en Moneda Extranjera”
+Artículo 1º- Ámbito de aplicación. La presente directriz es de acatamiento obligatorio para todas las instituciones que se encuentran bajo la rectoría del Subsistema de Contabilidad, de conformidad con lo establecido en los incisos a), b), c) y d) del artículo 1 de la Ley de Administración Financiera de la República y Presupuestos Públicos.
