@@ -1,0 +1,6 @@
+Artículo 6º—Promoción y divulgación. La labor de divulgación de este Reglamento, así como de la política institucional de prevención y de cumplimiento de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia será responsabilidad de la Junta Especial contra el Hostigamiento Sexual.
+Los mecanismos de divulgación de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia y de este Reglamento serán:
+1. Ubicar en lugares visibles, tanto en el área central como en las sedes y subsedes regionales, un ejemplar del presente reglamento.
+2. Incorporar, en los Programas de Capacitación impartidos por la Oficina de Recursos Humanos, charlas, seminarios o talleres sobre la política interna de prevención, investigación y sanción del hostigamiento sexual a todo el personal, así como a las personas de nuevo ingreso, en articulación con el Instituto de Estudios de Género.
+3. Elaborar campañas y materiales informativos que fomenten el respeto y el derecho a vivir libres de hostigamiento sexual para toda la comunidad universitaria y los cuales informen claramente del procedimiento establecido para canalizar las respectivas denuncias, en articulación con el Instituto de Estudios de Género.
+4. Cualquier otro que se considere pertinente.

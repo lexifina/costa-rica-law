@@ -1,0 +1,1 @@
+Artículo 32.—De la vigencia de la normativa interna. La normativa interna de hostigamiento sexual entrará a regir a partir de su publicación en el Diario Oficial La Gaceta. Se hará del conocimiento de toda la comunidad universitaria a través de lo señalado en el presente reglamento y se notificará a la Defensoría de los Habitantes.

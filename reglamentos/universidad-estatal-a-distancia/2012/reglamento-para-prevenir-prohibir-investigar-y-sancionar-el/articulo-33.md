@@ -1,0 +1,1 @@
+Artículo 33.—Derogaciones. El presente Reglamento deroga en su totalidad el “Reglamento para las denuncias por acoso u hostigamiento sexual”, aprobado por el Consejo Universitario en sesión N° 1194, artículo IV, inciso 8) del 6 de marzo de 1996.

@@ -1,0 +1,2 @@
+Artículo 30.—Denuncia falsa. Quien denuncie hostigamiento sexual falso podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal, sin perjuicio de las sanciones disciplinarias que, según la normativa de la UNED, le sean aplicables.
+Ante una denuncia falsa, la Comisión Investigadora deberá igualmente trasladar el informe a la autoridad disciplinaria competente, para su trámite según corresponda.

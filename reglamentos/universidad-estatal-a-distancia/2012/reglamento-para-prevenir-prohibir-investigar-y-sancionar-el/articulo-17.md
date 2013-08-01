@@ -1,0 +1,1 @@
+Artículo 17.—Plazo del procedimiento. El plazo para concluir el procedimiento no podrá exceder más de tres meses, contados a partir de la recepción de la denuncia por la Comisión Investigadora, previa remisión de la Junta.

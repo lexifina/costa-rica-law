@@ -1,0 +1,1 @@
+Artículo 27.—Sanciones. Las sanciones que se aplicarán serán las indicadas en la normativa interna de la UNED, según se trate de funcionarios o funcionarias, estudiantes u otras personas miembros de la comunidad universitaria. Supletoriamente, se aplicará lo señalado en la Ley General de la Administración Pública.

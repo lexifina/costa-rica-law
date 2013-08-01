@@ -1,0 +1,2 @@
+Artículo 23.—Traslado de la denuncia. Recibida la denuncia, la Comisión Investigadora contará con ocho días hábiles para trasladar la denuncia a la presunta persona hostigadora. En ese acto, le indicará su obligación de referirse a cada uno de los hechos que se imputan y de ofrecer los medios de prueba en descargo de estos.
+En el caso de que la persona denunciada no ejerza su defensa, el proceso continuará hasta el dictado de la resolución final.

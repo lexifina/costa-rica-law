@@ -1,0 +1,1 @@
+Artículo 24.—Audiencia. Recibido el descargo, la Comisión Investigadora realizará una audiencia oral y privada, dentro de los cinco días hábiles siguientes. En ella, se evacuará toda la prueba testimonial, documental, indiciaria u otra. Además, las partes presentarán sus conclusiones y se dará por finalizada la etapa argumentativa.
