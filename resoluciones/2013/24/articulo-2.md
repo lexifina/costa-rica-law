@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-R-14-2013 del 03 de abril del 2013, publicada en el Alcance Digital N° 81 a La Gaceta Nº 81 del 29 de abril del 2013.
