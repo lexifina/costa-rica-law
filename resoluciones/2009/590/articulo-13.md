@@ -48,15 +48,21 @@ iv. Indicación del Título Habilitante, de los servicios para los cuales se sol
 v. Especificar la dirección exacta y ubicación en coordenadas geográficas (Latitud, Longitud, Altitud), de cada uno de los equipos (conmutadores, concentradores, entre otros) en los que se utilizará el recurso numérico solicitado.
 vi. Especificar si la asignación solicitada es de carácter permanente o temporal (indicar plazo).
 vii. Indicación del nombre del técnico, correo electrónico, números telefónicos, con quién se coordinará la realización de pruebas nacionales e internacionales.
+viii.—Declaración jurada en la que se indique el operador y/o proveedor solicitante se encuentra inscrito como patrono, trabajador independiente o en ambas modalidades, según corresponda, ante la Caja Costarricense de Seguro Social; y que además se encuentra al día en el pago de sus obligaciones obrero patronales.
+(Así adicionado el punto viii) anterior mediante resolución N° RCS-239-2013 del 1° de agosto del 2013)
 b. Especificar el tipo y cantidad de numeración solicitada
 i. Números especiales (4 dígitos), (centros de telegestión)
 ii. Numeración para selección de Operador o Proveedor (Códigos de Preselección)
 iii. Numeración para identificación de clientes.
 iv. Numeración servicio 800
-v. Numeración Servicios 900
-vi. Numeración Servicios de llamadas masivas 905
-vii. Numeración para servicios de mensajería Contenido de texto (SMS)
-viii. Numeración para servicios de mensajería Contenido multimedia (MMS)
+v.—Numeración Servicios 900. Es numeración de uso no exclusivo (podrá ser otorgada también a otros operadores y/o proveedores, siempre y cuando dicho número sea utilizado con el mismo integrador o proveedor de contenido, para el mismo fin y servicio que fue atribuido en la primera asignación). Se deberá indicar claramente el nombre del integrador (o proveedor de contenido) que hará uso del número, así como el contenido que se brindará mediante el número solicitado y la tarifa que aplicará al usuario final que acceda a dicho servicio. Se otorgará por un período máximo de 6 meses renovable.
+(Así reformado el punto anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
+vi.—Numeración Servicios de llamadas masivas 905. Para esta numeración, el operador y/o proveedor solicitante, deberá asegurar el libre acceso desde cualquier otro operador y/o proveedor que cuente con recursos de numeración asignados.
+(Así reformado el punto anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
+vii.—Numeración para servicios de mensajería Contenido de texto (SMS). Es numeración de uso no exclusivo (podrá ser otorgada también a otros operadores y/o proveedores, siempre y cuando dicho número sea utilizado con el mismo integrador, para el mismo fin y servicio que fue atribuido en la primera asignación). Se deberá indicar claramente el nombre del integrador (o proveedor de contenido) que hará uso del número, el contenido que se brindará mediante el número solicitado y la tarifa que aplicará al usuario final que acceda a dicho servicio. Se otorgará por un período máximo de 6 meses renovable.
+(Así reformado el punto anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
+viii.—Numeración para servicios de mensajería Contenido multimedia (MMS). Es numeración de uso no exclusivo (podrá ser otorgada también a otros operadores y/o proveedores, siempre y cuando dicho número sea utilizado con el mismo integrador, para el mismo fin y servicio que fue atribuido en la primera asignación). Se deberá indicar claramente el nombre del integrador (o proveedor de contenido) que hará uso del número, el contenido que se brindará mediante el número solicitado y la tarifa que aplicará al usuario final que acceda a dicho servicio. Se otorgará por un período máximo de 6 meses renovable.
+(Así reformado el punto anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
 ix. Numeración para cualquier otro servicio de telecomunicaciones no contemplados en los apartes anteriores.
 3) Requisitos específicos
 a. Se deberá justificar técnicamente la cantidad de recurso numérico solicitado en función de:
@@ -66,9 +72,11 @@ iii. Dimensionamiento de su red.
 iv. Dimensionamiento de la red de Interconexión con los demás operadores y proveedores.
 v. Dimensionamiento proyectado de tráfico en su red y la red de interconexión una vez que se cuente con el recurso numérico solicitado.
 vi. El dimensionamiento actual y proyectado de las redes, equipos, centros de telegestión y plataformas deberá ajustarse a los estándares de calidad establecidos por la SUTEL en el Reglamento de Prestación y Calidad de Servicio.
-vii. En el caso de numeración para centros de telegestión y plataformas, se deberá presentar el dimensionamiento del centro de telegestión, en cuanto a capacidad simultáneo de llamadas, mensajes SMS o MMS.
+vii.—En caso de numeración para centros de telegestión y plataformas, se deberá presentar el dimensionamiento del centro de telegestión, en cuanto a la capacidad simultánea de llamadas, mensajes SMS o MMS. Será requisito para la asignación de este tipo de numeración, que el operador solicitante asegure el libre acceso a los números solicitados, por parte de todos los operadores y/o proveedores, de manera que quede asegurada la interoperabilidad total dentro del Sistema Nacional de Telecomunicaciones para el número solicitado. Asimismo, para garantizar dicha interoperabilidad, la SUTEL de previo al otorgamiento del recurso, realizará las pruebas necesarias de modo que pueda corroborarse que las comunicaciones se dan sin ningún tipo de impedimento entre todos esos operadores y/o proveedores.
+(Así reformado el punto anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
 viii. Para los códigos de preselección de operador se deberá presentar el acuerdo de acceso e interconexión con el operador a través de la cual se trasegará el tráfico.
-ix. En el caso de los servicios 900, 800 y 905, mensajería de contenido, el operador de la red que le brinda el acceso al proveedor del servicio 900, 800 o 905, deberá solicitar la numeración respectiva con indicación expresa del número o números solicitados (número comercial utilizado) y numeración asociada del Registro de Numeración, adjuntado las condiciones de dimensionamiento de equipos y redes que se ajusten a los puntos anteriores.
+ix.—En el caso de los servicios 900, 800 ó 905, mensajería de contenido, el operador de la red que le brinda el acceso al proveedor del servicio 900, 800 ó 905, deberá solicitar la numeración respectiva con indicación expresa del número o números solicitados (número comercial utilizado) y numeración asociada al Registro de Numeración, adjuntando las condiciones de dimensionamiento de equipos y redes que se ajusten a los puntos anteriores. Será requisito para la asignación de este tipo de numeración, que el operador solicitante asegure el libre acceso a los números solicitados, por parte de todos los operadores y/o proveedores, de manera que quede asegurada la interoperabilidad total dentro del Sistema Nacional de Telecomunicaciones. Asimismo, para garantizar dicha interoperabilidad, la SUTEL de previo al otorgamiento del recurso, realizará las pruebas necesarias de modo que pueda corroborarse que las comunicaciones se dan sin ningún tipo de impedimento entre todos los sistemas involucrados.
+(Así reformado el punto anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
 x. Acreditar y demostrar técnicamente el cumplimiento de lo dispuesto en el artículo 37 del Reglamento de Acceso e Interconexión (Alcance N° 40 a La Gaceta N° 201 del 17 de octubre del 2008).
 b. En caso de ampliación de la numeración asignada; el solicitante deberá demostrar ante la SUTEL mediante prueba idónea, el uso de al menos el 60% de la numeración previamente asignada.
 c. Indicación expresa por parte del solicitante, de que su red y los enlaces de interconexión con otros operadores, cuentan con la señalización que permite la identificación del recurso numérico por parte de otros operadores, proveedores y usuarios al momento de recibir una comunicación.
@@ -83,9 +91,17 @@ iii. Proceso de liquidación de tráfico entre operadores (artículo Nº 37, Reg
 - Acceso y tasación tráfico bidireccional entre redes.
 - Acceso y tasación tráfico bidireccional internacional.
 (Así adicionado el inciso f) anterior por resolución RCS-412-2009 del 2 de setiembre de 2010)
+g) Para la asignación de recursos de numeración, los operadores o proveedores solicitantes deberán ofrecer en forma gratuita a todos sus abonados, acceso al 911, el número de los bomberos, la policía, la Cruz Roja , así como a todos los servicios de reporte de averías, de trámites telefónicos, consulta de facturación, interposición de reclamaciones y centros de telegestión.
+(Así adicionado el punto g) anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
+h) Como condición para la asignación de recursos de numeración, la SUTEL verificará que los operadores o proveedores cumplan con el derecho de los usuarios de libertad de establecimiento de comunicaciones y que se cumple con el deber de hacer interoperable toda la numeración asignada por la SUTEL.
+(Así adicionado el punto h) anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
+i) En caso de ampliación de la numeración asignada, el solicitante deberá presentar declaración jurada sobre el cumplimiento del Plan Nacional de Numeración y de que sus redes permiten la interoperabilidad de toda la numeración asignada por la SUTEL (la cual puede ser consultada en la página WEB http://www.sutel.go.cr/Ver/Contenido/plan-numeracion/101). Adicionalmente, deberá presentar como parte de la solicitud, los CDR’s de las siguientes pruebas, para la numeración que ya tiene asignada:
+[imagen]
+(Así adicionado el punto i) anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
 4) Realización de pruebas
 a. La realización de pruebas considera los siguientes aspectos:
-b. Realización y recepción de comunicaciones telefónicas, envío y recepción de mensajes de texto y multimedia; a los distintos destinos nacionales, números de prueba, números especiales (4 dígitos), número de emergencia 911, números 800, 900, 905 para todos los operadores y proveedores de servicios de telecomunicaciones disponibles al público en el territorio nacional, a la hora de máximo tráfico de las redes de destino de la comunicación.
+b. Realización y recepción de comunicaciones telefónicas, envío y recepción de mensajes de texto y multimedia; a los distintos destinos nacionales, números de prueba, números especiales (4 dígitos), número de emergencia 911, transferencia de llamadas, números 800, 900, 905 para todos los operadores y proveedores de servicios de telecomunicaciones disponibles al público en el territorio nacional, a la hora de máximo tráfico de las redes de destino de la comunicación.
+(Así reformado el punto anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)
 c. Evaluación de una muestra seleccionada por la SUTEL de destinos de tráfico internacional.
 d. Evaluación de las condiciones de tasación de las comunicaciones de acuerdo al origen y destino de la comunicación.
 e. Para la realización de pruebas el operador o proveedor solicitante suministrará a la SUTEL un mínimo de 8 accesos/líneas, un acceso a Internet (con un ancho de banda mínimo de 256 kbps), debidamente identificados y configurados, cumpliendo con las siguientes características:
@@ -105,3 +121,5 @@ i. Solicitud escrita a la SUTEL por parte del propietario de la embarcación, es
 § Para embarcaciones deberá presentarse una certificación emitida por la División Marítimo Portuaria de la Dirección de Navegación y Seguridad del Ministerio de Obras Públicas y Transportes en la que se indique que la embarcación para la cual se solicita el MMSI, se encuentra en condiciones aptas para su navegación (certificado de navegabilidad vigente).
 § Para embarcaciones deberá presentarse las dimensiones y el tonelaje de la misma.
 § Para aeronaves se deberá presentarse una certificación emitida por la Dirección General de Aviación Civil, en la que se indique que la aeronave para la cual se solicita el MMSI, se encuentra en condiciones aptas para realizar operaciones (certificado de aeronavegabilidad vigente).
+g. Para solicitudes de asignación de números cortos SMS/ MMS de contenido, números 900 y números 90X, el solicitante deberá presentar los CDRs conciliados de las pruebas efectuadas con los demás operadores, que demuestren el intercambio de las comunicaciones entre las plataformas de los diferentes operadores con numeración asignada por la Superintendencia de Telecomunicaciones. La SUTEL llevará a cabo pruebas adicionales para comprobar los resultados enviados.
+(Así adicionado el punto g) anterior mediante resolución N° RCS -239-2013 del 1° de agosto del 2013)

@@ -16,3 +16,4 @@ Procedimiento de solicitud de numeración, establecimiento de números especiale
 | 1 | 2010-01-14 | la propia norma |
 | 2 | 2010-02-26 | Resolución 131 (2010-02-26) |
 | 3 | 2010-09-02 | Resolución 412 (2010-09-02) |
+| 4 | 2013-08-01 | Resolución 239 (2013-08-01) |
