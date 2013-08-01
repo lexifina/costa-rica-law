@@ -1,0 +1,1 @@
+Artículo 31.—Los choferes y vehículos de la UNED, que realicen viajes regulares a los centros universitarios o de estos a la sede central, deberán estar al servicio de las necesidades institucionales, previa autorización de la Unidad de Transportes. En todos los casos, se debe respetar la normativa institucional y nacional.

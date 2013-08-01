@@ -1,0 +1,2 @@
+Artículo 30.—La Unidad de Transportes con el apoyo del Centro de Investigación y Evaluación Institucional (CIEI) está en la obligación de evaluar periódicamente los servicios de transportes que ofrece la institución, inclusive el servicio de transporte que ofrece desde los, con el objeto de mejorar y potenciar este servicio.
+Asimismo, la Unidad de Transportes aprobará sólo aquellos servicios que sean estrictamente necesarios, para el logro de los objetivos institucionales y que sean congruentes con las políticas de racionalización del gasto vigente.

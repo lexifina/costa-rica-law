@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del mantenimiento preventivo y correctivo de vehículos
+Artículo 19.—La Unidad de Transportes es la encargada de administrar el servicio de mantenimiento que reciben los vehículos de la institución y velará porque en todo momento exista un sistema de mantenimiento preventivo de la flotilla vehicular institucional, acorde a las necesidades de uso. En el caso de los vehículos asignados en los Centro Universitarios, el sistema de mantenimiento preventivo será autorizado por el Encargado de la Unidad de Transportes de la Universidad Estatal a Distancia, para lo cual se utilizará los distintos medios de comunicación institucional.

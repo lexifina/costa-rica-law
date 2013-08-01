@@ -1,0 +1,1 @@
+Artículo 22.—El Encargado de la Unidad de Transportes debe realizar un calendario o cronograma de trabajo, tanto para el mantenimiento preventivo como el correctivo, de tal forma que cuando corresponda la revisión técnica vehicular, el vehículo se encuentre en óptimo estado mecánico y cumpla con todos los requisitos de circulación.

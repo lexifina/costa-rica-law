@@ -1,0 +1,1 @@
+Artículo 33.—Queda totalmente prohibido que un funcionario no autorizado conduzca los vehículos de la UNED. Solo en casos de excepción, por incapacidad temporal del chofer, un funcionario podrá conducir el vehículo, siempre y cuando tenga al día su licencia de conducir y se consigne la situación en la boleta que autoriza la gira.

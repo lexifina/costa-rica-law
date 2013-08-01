@@ -1,0 +1,1 @@
+Artículo 49.—Ningún chofer o persona autorizada debe manifestar disconformidad con las determinaciones de las autoridades tránsito, únicamente debe informar sobre los pormenores del accidente y comportarse cortésmente.

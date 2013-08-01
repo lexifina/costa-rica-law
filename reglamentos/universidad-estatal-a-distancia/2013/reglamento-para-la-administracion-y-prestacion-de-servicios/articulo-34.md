@@ -1,0 +1,1 @@
+Artículo 34.—La Unidad de Transportes no tramitará la solicitud de autorización para conducir los vehículos oficiales, cuando no exista una necesidad real que la justifique o cuando el funcionario propuesto para conducir no cumpla con los requisitos definidos en el presente reglamento.

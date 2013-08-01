@@ -1,0 +1,1 @@
+Artículo 15.—Una vez concluidas las labores diarias todo vehículo deberá ser guardado en el estacionamiento de uso institucional o en el Centro Universitario correspondiente. En el caso de que el vehículo se encuentre realizando una gira, el chofer deberá guardarlo en un parqueo público u otro sitio que brinde condiciones de seguridad adecuadas.

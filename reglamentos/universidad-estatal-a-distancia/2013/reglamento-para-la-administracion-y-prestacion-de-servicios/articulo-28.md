@@ -1,0 +1,1 @@
+Artículo 28.—Los Administradores de Centros Universitarios son responsables de que el uso de los vehículos asignados al Centro Universitario a su cargo, cumpla con las regulaciones establecidas en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 40.—Los vehículos no deben dejarse estacionados en lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales o equipos que transporta. Tampoco en lugares que comprometan la imagen de la institución.

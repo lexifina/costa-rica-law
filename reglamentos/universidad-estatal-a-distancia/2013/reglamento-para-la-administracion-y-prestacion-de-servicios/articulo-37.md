@@ -1,0 +1,1 @@
+Artículo 37.—En condiciones difíciles de operación por motivo de lluvia, neblina, derrumbes y otras condiciones que dificulten el manejo, todo conductor debe actuar prudente y diligentemente, evitando la temeridad, a fin de no exponerse a pérdidas humanas y materiales.

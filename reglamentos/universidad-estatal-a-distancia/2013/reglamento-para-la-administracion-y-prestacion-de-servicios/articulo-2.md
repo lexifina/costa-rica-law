@@ -1,0 +1,1 @@
+Artículo 2º—La aplicación de este reglamento, en lo que corresponda cubrirá a todos los funcionarios de la UNED, los estudiantes y otras personas que sean autorizadas por la instancia respectiva, a utilizar los vehículos institucionales. El uso de la flota vehicular estará regulado por lo dispuesto en los siguientes artículos de este Reglamento.

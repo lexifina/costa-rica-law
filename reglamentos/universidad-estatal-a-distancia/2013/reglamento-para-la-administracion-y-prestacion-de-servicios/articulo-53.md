@@ -1,0 +1,1 @@
+Artículo 53.—La Unidad de Transportes entregará a la jefatura de la Oficina Jurídica un informe sobre el accidente ocurrido con las recomendaciones al respecto, para que ésta proceda a elaborar los poderes respectivos para los trámites ante el Instituto Nacional de Seguros.

@@ -1,0 +1,1 @@
+Artículo 63.—En el caso de sustracciones o pérdida de objetos de valor, le corresponde al chofer o a la persona autorizada, realizar un informe al Jefe de la Unidad de Transportes, con copia a la Jefatura de Servicios Generales, indicando lo acontecido, para lo que corresponda de acuerdo con la normativa institucional.

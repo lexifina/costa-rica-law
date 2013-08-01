@@ -1,0 +1,1 @@
+Artículo 35.—El Consejo de Rectoría, a solicitud de la Unidad de Transportes y la Jefatura de Servicios Generales, podrá suspender temporal o permanentemente la autorización a un funcionario, para conducir vehículos institucionales, basado en razones demostrables, para lo cual se debe cumplir con el debido proceso.

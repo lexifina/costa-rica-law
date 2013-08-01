@@ -1,0 +1,1 @@
+Artículo 27.—La circulación de los vehículos institucionales en días y horas no hábiles está restringida a la realización de labores no postergables o a la atención de funciones inherentes a la institución. La responsabilidad en el cumplimiento de esta disposición recae sobre la jefatura de la dependencia a cuyo cargo se encuentra el vehículo.

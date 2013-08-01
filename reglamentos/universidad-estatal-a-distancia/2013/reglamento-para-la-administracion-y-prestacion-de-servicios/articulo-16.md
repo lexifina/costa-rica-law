@@ -1,0 +1,1 @@
+Artículo 16.—Únicamente en casos de calificada excepción un vehículo institucional podrá ser guardado en la casa de habitación de funcionarios o particulares. Estos casos, deberán ser autorizados debidamente por la Unidad de Transporte, que comunicará al jefe de la Oficina de Servicios Generales.

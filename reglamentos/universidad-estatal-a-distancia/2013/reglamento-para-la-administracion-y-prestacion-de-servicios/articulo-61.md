@@ -1,0 +1,1 @@
+Artículo 61.—Al regreso de la gira, el chofer o la persona autorizada deberán realizar el inventario de los accesorios del vehículo en formulario de Declaración de Activos de la UNED y reportar cualquier diferencia al Jefe de la Unidad de Transporte.

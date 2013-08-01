@@ -1,0 +1,2 @@
+Artículo 26.—Todos los vehículos institucionales deben portar las placas de matrícula oficial y al menos en ambas puertas delanteras, el distintivo que los identifique como vehículos de la UNED.
+Se exceptúa de esta disposición el vehículo asignado al rector, el cual es de uso discrecional, según la Ley de Tránsito, y por lo tanto, no cuenta con restricciones para su uso, responsabilidad que asume bajo estricto criterio del funcionario titular de la Rectoría.

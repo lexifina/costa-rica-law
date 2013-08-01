@@ -1,0 +1,1 @@
+Artículo 64.—La Oficina de Servicios Generales debe realizar la investigación del caso, para determinar el origen de los hechos, y tomar las medidas correspondientes; tanto en el caso de pérdida de objetos de valor del usuario del servicio como de la Universidad.
