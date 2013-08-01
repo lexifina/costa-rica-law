@@ -1,0 +1,2 @@
+Artículo 2º—Este reglamento es de aplicación obligatoria para el Parque Zoológico y Jardín Botánico Simón Bolívar y el Centro de Conservación Santa Ana, entendidos como establecimientos públicos bajo administración del Ministerio de Ambiente y Energía.
+Estos sitios podrán ser administrados bajo convenio o contrato, conforme lo dispone el mandato de la Ley N° 7369 del 23 de noviembre de 1993, para lo cual se seguirán los procedimientos de concurso público establecidos en la Ley de Contratación Administrativa y su reglamento.

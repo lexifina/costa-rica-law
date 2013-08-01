@@ -1,0 +1,1 @@
+Artículo 11.—Mediante las correspondientes inspecciones, el Ministerio de Ambiente y Energía, comprobará el cumplimiento de las disposiciones que se determinen del Convenio suscrito, así como de la aplicación de las presentes disposiciones, la normativa ambiental y las autorizaciones o permisos específicos que se emitan.

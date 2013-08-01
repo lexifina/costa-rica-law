@@ -1,0 +1,1 @@
+Artículo 9º—El Ministerio de Ambiente y Energía, o el ente que administre alguno de estos sitios, debe procurar que las actividades que se desarrollen en estas instalaciones sean promovidas con participación de los organismos gubernamentales y no gubernamentales que trabajan en la conservación de la fauna silvestre y la flora.

@@ -1,0 +1,1 @@
+Artículo 12.—Los titulares y empleados de cualquiera de los sitios que estén bajo administración están obligados a permitir a los inspectores acreditados el acceso a las dependencias y a proporcionarles la información y ayuda que sean precisas para la inspección; sin perjuicio de que las inspecciones se podrán realizar en cualquier momento, de oficio o por denuncia.

@@ -1,0 +1,1 @@
+Artículo 13.—El ente que se encuentre administrando cualquiera de los sitios, será responsable de las infracciones cometidas por el personal que preste el servicio. La responsabilidad administrativa por las infracciones al Convenio suscrito, no exonerará de cualquier otra responsabilidad civil, penal o de otro orden que en su caso pudiera exigirse.
