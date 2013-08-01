@@ -1,0 +1,1 @@
+3º—Que el hecho generador de la obligación tributaria ocurre cuando se acepta la declaración aduanera de exportación en la aplicación informática TICA, por lo que se debe aplicar el tipo de cambio de venta vigente a esa fecha.
