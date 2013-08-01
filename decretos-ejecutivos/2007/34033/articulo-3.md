@@ -1,1 +1,0 @@
-Artículo 3º—Supervisión y cumplimiento. Los Encargados Auxiliares de Recursos Humanos del Archivo Nacional serán los encargados de ejecutar las labores relacionadas con el trámite, control, supervisión y custodia de las garantías que rindan los funcionarios de la Dirección General del Archivo Nacional obligados para los fines de este Reglamento.

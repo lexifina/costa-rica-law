@@ -1,1 +1,0 @@
-Artículo 7º—Control de garantías. Los Encargados Auxiliares de Recursos Humanos del Archivo Nacional deberán informar a la Junta Administrativa del Archivo Nacional indicando los funcionarios sujetos a presentar garantía que no hayan cumplido con lo dispuesto en el presente Reglamento.
