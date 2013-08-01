@@ -16,3 +16,4 @@ Reglamento de racionalización de la carga tributaria a los vehículos automotor
 | 1 | 1998-11-30 | la propia norma |
 | 2 | 2001-01-23 | Decreto Ejecutivo 29263 (2001-01-23) |
 | 3 | 2001-03-07 | Decreto Ejecutivo 29367 (2001-03-07) |
+| 4 | 2013-08-01 | Decreto Ejecutivo 37855 (2013-08-01) |
