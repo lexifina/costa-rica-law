@@ -32,3 +32,4 @@ Reglamento del Estatuto de Servicio Civil
 | 18 | 2012-01-11 | SINALEVI (sin norma nombrada) |
 | 19 | 2012-10-31 | SINALEVI (sin norma nombrada) |
 | 20 | 2013-04-17 | SINALEVI (sin norma nombrada) |
+| 21 | 2013-08-01 | Decreto Ejecutivo 37971 (2013-08-01) |
