@@ -1,0 +1,1 @@
+Artículo 7º—Sujetos beneficiarios: Personas físicas. Se prohíbe el otorgamiento de estos créditos a cualquier clase de persona jurídica como deudora directa del crédito. Sin embargo, el inmueble que la persona física (deudora) otorgue en garantía hipotecaria para la presente línea de crédito, podrá pertenecer a una persona jurídica.

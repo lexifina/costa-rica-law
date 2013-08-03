@@ -1,0 +1,1 @@
+Artículo 5º—Garantías de los créditos: Se autoriza que hasta un 10% de la cartera total de créditos de cada mutual sea concedido con garantía fiduciaria o prendaria. El resto de operaciones deberá contar con garantía real tales como hipotecas, cédulas hipotecarias o fideicomiso de garantía.

@@ -1,0 +1,1 @@
+Artículo 9º—Restricciones: Los núcleos familiares beneficiados con el Bono Familiar de Vivienda, solo podrán hipotecar su vivienda para estas operaciones de crédito de naturaleza no habitacional, cuando el deudor del mismo sea el propietario del inmueble o un miembro activo del núcleo familiar.

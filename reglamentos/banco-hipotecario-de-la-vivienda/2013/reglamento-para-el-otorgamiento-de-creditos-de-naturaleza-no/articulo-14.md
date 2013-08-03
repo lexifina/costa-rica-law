@@ -1,0 +1,1 @@
+Artículo 14.—Derogatorias: Se deroga el “Reglamento para el otorgamiento de créditos de línea de bienestar familiar, créditos en moneda extranjera y otras unidades de cuenta y de créditos fiduciarios y prendarios en las mutuales de ahorro y préstamo” aprobado por la Junta Directiva mediante acuerdo número 1 de la sesión número 77-2006 del 22 de noviembre del 2006 y sus reformas.
