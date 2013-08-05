@@ -1,1 +1,1 @@
-Transitorio II.—La institución tendrá un plazo de doce meses para implementar las nuevas funciones del Proceso de Bienestar Estudiantil en lo concerniente al Sistema Automatizado ya que implica adoptar mecanismos de contratación.
+Transitorio II.—.(Derogado mediante sesión ordinaria N° 4590 del 5 de agosto del 2013)

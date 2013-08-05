@@ -1,3 +1,4 @@
 CAPÍTULO XI
 Disposiciones transitorias
-Transitorio I.—Los trámites de ayudas económicas iniciados antes de la vigencia de este Reglamento se concluirán conforme a las disposiciones vigentes y de conformidad con la fecha de aprobación regulada en la reglamentación anterior.
+(Derogado el capítulo XI anterior mediante sesión ordinaria N° 4590 del 5 de agosto del 2013)
+Transitorio I.—(Derogado mediante sesión ordinaria N° 4590 del 5 de agosto del 2013)
