@@ -1,0 +1,14 @@
+MUNICIPALIDAD DE ZARCERO
+El Concejo Municipal de Zarcero en sesión ordinaria número veintiséis celebrada el primero de julio del 2013, artículo VIII inciso 3 acuerda aprobar por dictamen de la Comisión de Asuntos Culturales y con el fundamento técnico profesional que emiten los miembros del jurado, se tome el acuerdo de acoger la propuesta de bandera del cantón de Zarcero, quedando la justificación de la bandera de la siguiente manera:
+Bandera del cantón de Zarcero
+Nombre: bandera, identidad zarcereña
+Colores: celeste-verde-rojo vino y blanco.
+Significado:
+Celeste: Representa el cielo que cubre durante el día al cantón de Zarcero, despejado, limpio y los mantos acuíferos que el zarcereño cuida celosamente, porque mantienen el agua pura en abundancia que cuidamos para las futuras generaciones.
+-Verde: Simboliza las montañas, los campos fértiles, la agricultura, esperanza de vida abundante en nuestra naturaleza, crecimiento. La salud, el equilibrio y armonía con el medio ambiente. Color de descanso que al combinarse con el celeste evoca resurgimiento, renovación. Árboles de ciprés refrescan la vista del visitante que también disfruta respirar su agradable olor.
+Rojo vino: Históricamente el origen del nombre Zarcero, se debe a la abundancia de zarzaparrilla o zarzamora que desde antaño, nuestros antepasados encontraron por todo el territorio. Su fruto delicioso presenta una coloración que va desde un rojo vivo cuando empieza a madurar hasta un tono de rojo vino cuando completa su maduración. Por tener un clima frío, con frecuentes corrientes de los vientos alisios, las mejillas de las personas presentan un color rojo, muy característico del zarcereño. El color rojo también representa nuestra fruta predilecta: el durazno criollo, que al madurar, nos deja ver su apetitoso color y que invita a disfrutar su delicioso sabor.
+Blanco: Simboliza la pureza de los ideales del pueblo. La limpieza y la inocencia.
+Significado del elemento: 7 estrellas dentro de un triángulo de color blanco que corresponden a la división territorial del cantón. Siete distritos que comparten unidos la paz, la tranquilidad y la solidaridad junto a ocho caseríos, protegidos por un manto de neblina característico y muy típico que cubre el cielo en la época lluviosa y dos pequeñas líneas blancas que dan una prolongación de unión de forma integral en todo el cantón.
+[imagen]
+Aprobado por unanimidad 5 votos de los Regidores presentes Luis Fernando Alfaro Villalobos, Ronald Araya Solís, Rosaura Rodríguez Rodríguez, Carlos Alberto Araya Rojas, Óscar Moya Rodríguez.
+-Aprobado definitivamente por unanimidad 5 votos de los Regidores presentes Luis Fernando Alfaro Villalobos, Ronald Araya Solís, Rosaura Rodríguez Rodríguez, Carlos Alberto Araya Rojas, Óscar Moya Rodríguez. Zarcero 8 julio 2013, Grettel Alfaro Alvarado, Secretaria del Concejo Municipal de Zarcero
