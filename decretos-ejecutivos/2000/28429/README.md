@@ -14,3 +14,4 @@ RTCR 316: 1999 Fertilizantes, Material Técnico y Sustancias Afines. Registro.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-14 | la propia norma |
+| 2 | 2013-08-05 | Decreto Ejecutivo 37982 (2013-08-05) |
