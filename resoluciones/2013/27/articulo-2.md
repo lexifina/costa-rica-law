@@ -1,0 +1,1 @@
+Artículo 2°—Comprobante de pago: Cuando una persona se disponga a salir del territorio nacional, deberá presentar el comprobante de pago emitido por el Banco, en los puestos oficiales de la Dirección General de Migración y Extranjería ubicados en los puestos fronterizos terrestres, mediante el cual, se corroborará el pago del tributo.
