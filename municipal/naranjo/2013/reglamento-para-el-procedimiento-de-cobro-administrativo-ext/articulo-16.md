@@ -1,0 +1,1 @@
+Artículo 16.—Monto mínimo para realizar de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a un 15% del salario base, establecido en el artículo 2 de la Ley Nº 7337 del 5 de mayo del 1993.

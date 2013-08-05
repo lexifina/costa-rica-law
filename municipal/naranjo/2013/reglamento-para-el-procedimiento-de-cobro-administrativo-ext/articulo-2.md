@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de Aplicación. Este Reglamento será de aplicación obligatoria, tanto para la Administración Tributaria de la Municipalidad de Naranjo como para los abogados externos que sean contratados por la Municipalidad de Naranjo para gestionar el cobro extrajudicial y judicial de las obligaciones dineradas que se le adeuden a la Municipalidad.
