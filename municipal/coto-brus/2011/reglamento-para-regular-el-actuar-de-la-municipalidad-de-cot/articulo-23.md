@@ -1,0 +1,2 @@
+Artículo 23.—Acta de Finalización de las Obras, cuando sean obras. Al concluir las obras, el Director o Directora de la Unidad Técnica de Gestión Vial Municipal deberá hacer un cierre
+y liquidación de las obras ejecutadas. Asimismo deberá en forma conjunta con las partes involucradas en el convenio, suscribir una Acta de finalización de convenio que debe ser archivada en el expediente original del convenio.

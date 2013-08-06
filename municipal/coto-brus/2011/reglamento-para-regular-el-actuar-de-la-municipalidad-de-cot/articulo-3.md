@@ -1,0 +1,1 @@
+Artículo 3º—De la autorización del Concejo Municipal. La Municipalidad a la hora de suscribir un convenio con una Asociación de Desarrollo Integral u otro ente público o privado, se requerirá la autorización por escrito, emanada vía acuerdo firme por parte del Concejo Municipal.

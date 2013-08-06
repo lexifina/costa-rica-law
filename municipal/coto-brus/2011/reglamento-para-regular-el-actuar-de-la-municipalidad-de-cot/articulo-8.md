@@ -1,0 +1,6 @@
+Artículo 8º—De los requisitos documentales. A los efectos de la tramitación de los convenios de cooperación, la Unidad Técnica de Gestión Vial deberá tener en un lugar visible el listado de requisitos de orden general a presentar, así como en material impreso que pueda ser entregado en forma inmediata a los interesados.
+Tales requisitos serán aquellos estrictamente indispensables para demostrar la existencia, capacidad y vigencia de la organización interesada y su inscripción en el Registro que corresponda, en aquellos casos que se trate de entes privados, que demuestren que están a derecho, la legitimación de quién actúa, la existencia de recursos suficientes para respaldar las obligaciones que estaría asumiendo el interesado, así como aquellas otras que la Municipalidad considere necesarias. Tales condiciones se demuestran a través de la siguiente documentación:
+1. Certificación de personería jurídica (registral o notarial).
+2. Acuerdo Municipal por escrito emanado vía acuerdo firme para la firma del presente convenio.
+3. Certificación extendida por autoridad competente dando fe que cuentan con el contenido económico u otros aportes, para cumplir con los compromisos a pactar.
+4. Fotocopia de la cédula de identidad del representante legal, certificada por Autoridad competente.
