@@ -1,0 +1,3 @@
+COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+La Junta Directiva del Colegio de Contadores Públicos de Costa Rica, en su Sesión Ordinaria N° 15-2013, celebrada el 17 de junio del 2013, mediante Acuerdo N° 295-2013 dispuso modificar el artículo 21 del Código de Ética del Colegio de Contadores Públicos de Costa Rica aprobado el 2 de junio del 2006 mediante acuerdo 186-2006 y publicado 17 de agosto del 2006, en ese sentido queda redactado de la siguiente manera:
+“Artículo 21.—El Contador Público Autorizado debe velar por su competencia profesional por lo que es necesario que se actualice constantemente en el desarrollo de la profesión de la contaduría”
