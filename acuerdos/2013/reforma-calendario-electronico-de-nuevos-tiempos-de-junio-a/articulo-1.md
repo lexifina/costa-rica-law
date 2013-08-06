@@ -1,0 +1,5 @@
+JUNTA DE PROTECCIÓN SOCIAL
+COMUNICA AL PÚBLICO EN GENERAL
+De conformidad con el acuerdo de Junta Directiva JD-240, correspondiente al artículo III), inciso 2), de la sesión ordinaria N° 17-2013 celebrada el 21 de mayo del 2013, se acuerda:
+“Se aprueba el “Calendario de Sorteos de la Lotería Electrónica”, para el periodo comprendido entre los meses de junio y diciembre del 2013, adjunto al oficio G-1034 del 13 de mayo del 2013, suscrito por el Lic. Francisco Ibarra Arana, Gerente General y la nota DPV-270 del 8 de mayo del 2013, enviada por el Lic. Milton Vargas Mora, Director de Producción y Ventas, documentos que se adjuntan al acta y forman parte integral de este acuerdo. Acuerdo firme.”
+En consecuencia: “Cuando el sorteo de la Lotería “Nuevos Tiempos”, coincida con algún sorteo de Lotería Popular “Números Bajos”; con numeración comprendida entre el 00 y el 49 o con numeración comprendida entre el 01 y el 50; se realizarán dos sorteos independientes. Primero se efectuará el sorteo de Lotería Popular “Números Bajos”. Posteriormente se realizará el sorteo correspondiente a la Lotería “Nuevos Tiempos”, con numeración comprendida entre el 00 y el 99”.
