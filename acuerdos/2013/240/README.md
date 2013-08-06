@@ -14,3 +14,4 @@ Calendario electrónico de nuevos tiempos de junio a diciembre 2013
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-31 | la propia norma |
+| 2 | 2013-08-06 | Acuerdo 0 (2013-08-06) |

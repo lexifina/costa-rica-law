@@ -1,5 +1,6 @@
 JUNTA DE PROTECCION SOCIAL
 CALENDARIO ELECTRÓNICO NUEVOS TIEMPOS JUNIO A DICIEMBRE 2013
+(Nota de Sinalevi: Mediante acuerdo publicado en La Gaceta N° 149 del 6 de agosto del 2013 se establece que: "... Cuando el sorteo de la Lotería “Nuevos Tiempos”, coincida con algún sorteo de Lotería Popular “Números Bajos”; con numeración comprendida entre el 00 y el 49 o con numeración comprendida entre el 01 y el 50; se realizarán dos sorteos independientes. Primero se efectuará el sorteo de Lotería Popular “Números Bajos”. Posteriormente se realizará el sorteo correspondiente a la Lotería “Nuevos Tiempos”, con numeración comprendida entre el 00 y el 99”....")
 JUNIO 2013
 DIA | FECHA | N° DE SORTEO
 Lunes | 03/06/2013 | 13143
