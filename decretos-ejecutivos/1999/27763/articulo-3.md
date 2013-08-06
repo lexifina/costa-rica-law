@@ -162,7 +162,7 @@ H.08 | Análisis de semen congelado (por pajilla) | ¢ 2.170.00
 H.09 | Examen andrológico a un macho | ¢ 10.860.00
 H.10 | Servicio de extracción, procesamiento y congelamiento de semen en finca (por pajilla) | ¢ 1.085.00
 H.11 | Identificación de pajillas de 0.5 cc para almacenamiento de semen (por pajilla) | ¢ 100.00
-H.12 | Venta de semen importado de ovinos (por pajilla) | ¢ 24.870.00
+H.12 (Mediante resolución N° SENASA-DG-R038-2013 del 6 de agosto del 2013 el Servicio Nacional de Salud Animal, resolvió lo siguiente: "Se establece una exoneración parcial, equivalente a un 50% (cincuenta por ciento), a los usuarios del SENASA que apliquen la tarifa H.12 del artículo 3 del Decreto 27763-MAG del 10 de marzo de 1999, modificado mediante Decreto N° 37661-MAG del 20 de febrero del 2013 y relativa a “Venta de semen importado de ovinos” y por lo que deberán cancelar por dicho servicio la suma de ¢12.435,00 (doce mil cuatrocientos treinta y cinco colones)") | Venta de semen importado de ovinos (por pajilla) | ¢ 24.870.00
 I | ACREDITACION GANADERÍA ORGÁNICA |
 I.01 | Registro anual de plantas procesadoras de productos orgánicos de origen animal | ¢ 428.885.00
 J | CENTRO DE PRODUCCIÓN DE BIOMODELOS DE EXPERIMENTACIÓN ( BIOTERIO) |
