@@ -1,3 +1,5 @@
-Artículo 12.—Desembolso.
-En los préstamos personales los desembolsos se girarán a nombre del solicitante del crédito, pudiendo realizarse el depósito a través de transferencia bancaria o por medio de cheque.
-En el caso de las refundiciones de deudas, los cheques o transferencias con las que se cancelen operaciones, deben girarse a nombre y directamente a las instituciones correspondientes.
+CAPÍTULO V
+Proceso de otorgamiento de créditos
+Artículo 12.—Del análisis de la solicitud de crédito. El proceso de análisis de la solicitud presentada por el interesado se iniciará cuando éste haya presentado, a satisfacción de la Unidad de
+Crédito y Cobro, la totalidad de los requisitos previamente definidos en este Reglamento, así como otros adicionales, solicitados en procura de salvaguardar los intereses de la Institución.
+La responsabilidad de determinar la fecha de formalización de los préstamos otorgados, le corresponde a la Unidad de Crédito y Cobro, la cual coordinará los trámites internos y externos que se requieran para los casos que así lo ameriten, tomando en consideración el flujo de efectivo y el número de solicitudes que se estén administrando simultáneamente.

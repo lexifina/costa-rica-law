@@ -1,2 +1,1 @@
-Artículo 16.—Vencimiento anticipado.
-Las operaciones concedidas, podrán declararse vencidas anticipadamente y exigibles de inmediato por parte de la Junta de Pensiones, si se comprobara en cualquier momento, falsedad en la información proporcionada por el deudor al formalizarse la operación de crédito.
+Artículo 16.—Comisión de formalización. La Junta de Pensiones cobrará para cubrir los gastos administrativos, un 1.5% del monto de la operación.

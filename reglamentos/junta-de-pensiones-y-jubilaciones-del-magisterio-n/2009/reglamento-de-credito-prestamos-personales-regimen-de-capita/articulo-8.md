@@ -1,4 +1,25 @@
-CAPÍTULO IV
-Garantías
-Artículo 8º—De los Pagarés.
-En los préstamos personales, se procederá además como parte del proceso de formalización de la suscripción de la póliza de saldos deudores o pignoración de la póliza según corresponda, a la firma de un pagaré, el cual representa el carácter de título ejecutivo. Este documento deberá contener las principales características de la operación crediticia que se está gestionando.
+Artículo 8º—Línea de crédito personal para Gastos Personales. Podrán acceder a esta línea, los afiliados activos, pensionados (as) y jubilados (as), para atender toda clase de requerimientos personales.
+Para ello, deberán cumplir con lo dispuesto en el Artículo 7 del Reglamento de Crédito para determinar la capacidad de pago.
+Las siguientes son las condiciones de financiamiento para esta línea:
+Monto Máximo: ¢10.000.000.00
+Plazo Máximo: 10 años
+Tasa de Interés: Variable.
+Garantía: Esta línea de crédito podrá aprobarse con o sin fiador, según se detalla:
+Pensionados (as):
+Hasta | ¢3.500.000,00 | Sin fiador
+¢3.500.001,00 | ¢6.500.000,00 | 1 fiador
+¢6.500.001,00 | ¢10.000.000,00 | 2 fiadores
+Activos: MEP Propiedad
+Hasta | ¢2.000.000.00 | Sin fiador
+¢2.000.001.00 | ¢4.000.000.00 | 1 fiador
+¢4.000.001.00 | ¢10.000.000.00 | 2 fiadores
+Activos: MEP Interinos
+Hasta | ¢1.000.000,00 | Sin fiador
+¢1.000.001,00 | ¢2.000.000,00 | 1 fiador
+¢2.000.001,00 | ¢10.000.000,00 | 2 fiadores
+Activos: Centros Educativos Públicos y Privados (Cepps Propiedad e Interino)
+Hasta | ¢3.000.000,00 | 1 fiador
+¢3.000.001,00 | ¢6.000.000,00 | 2 fiadores
+¢6.000.001,00 | ¢10.000.000,00 | 3 fiadores
+Las personas pensionadas y jubiladas, podrán elegir entre una póliza de saldos deudores, la pignoración de la Póliza Mutual de la Sociedad de Seguros de Vida del Magisterio Nacional, o la combinación de ambas.
+Los afiliados activos, deberán suscribir una póliza de saldos deudores con alguna aseguradora, debidamente determinada por la Institución.

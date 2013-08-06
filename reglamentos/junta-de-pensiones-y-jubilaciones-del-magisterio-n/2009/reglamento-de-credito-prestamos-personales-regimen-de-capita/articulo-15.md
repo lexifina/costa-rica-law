@@ -1,3 +1,2 @@
-Artículo 15: Cobro administrativo y judicial
-En caso de morosidad, se iniciará el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en el Procedimiento del Área de Cobro del Departamento Financiero Contable.
-(Así reformado mediante sesión ordinaria N° 072-2012 del 28 de junio del 2012)
+Artículo 15.—Desembolso. En los préstamos personales los desembolsos se girarán a nombre del solicitante del crédito, pudiendo realizarse el depósito a través de transferencia bancaria o por medio de cheque.
+En el caso de las refundiciones de deudas, los cheques o transferencias con las que se cancelen operaciones, deben girarse a nombre y directamente a las instituciones correspondientes.

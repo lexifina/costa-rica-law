@@ -1,0 +1,1 @@
+Artículo 22.—Vigencia. El presente Reglamento fue aprobado por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, en sesión ordinaria 098-2009 celebrada el 01 de setiembre de 2009. Publicado en el Diario Oficial La Gaceta N° 183 del 21 de setiembre de 2009.

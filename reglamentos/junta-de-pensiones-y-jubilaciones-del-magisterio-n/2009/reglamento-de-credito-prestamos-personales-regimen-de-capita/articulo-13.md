@@ -1,2 +1,1 @@
-Artículo 13.—Comisión de formalización.
-La Junta de Pensiones cobrará para cubrir los gastos administrativos, un 1.5% del monto de la operación.
+Artículo 13.—De la formalización del crédito. Una vez revisados y analizados los créditos, podrán ser formalizados en las Oficinas Centrales de la Junta de Pensiones o en sus Oficinas Regionales.
