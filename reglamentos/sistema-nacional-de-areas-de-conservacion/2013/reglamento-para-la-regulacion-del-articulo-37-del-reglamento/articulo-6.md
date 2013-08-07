@@ -1,0 +1,1 @@
+Artículo 6º—Las Direcciones de las Áreas de Conservación deberán establecer las previsiones presupuestarias respectivas, dentro de los recursos que anualmente les sean asignados, para cubrir los gastos mencionados en el artículo 4 de este reglamento.

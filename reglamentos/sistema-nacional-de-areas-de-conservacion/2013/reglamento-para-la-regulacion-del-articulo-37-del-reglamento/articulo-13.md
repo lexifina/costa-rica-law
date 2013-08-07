@@ -1,0 +1,1 @@
+Artículo 13.—Vigilancia. La Auditoría Interna y la Coordinación Administrativa de la Secretaría Ejecutiva y de las Áreas de Conservación, por medio del Departamento Financiero del SINAC y los Departamentos contables de las Áreas de Conservación, vigilará por la rectitud de los procedimientos contemplados en el presente reglamento.

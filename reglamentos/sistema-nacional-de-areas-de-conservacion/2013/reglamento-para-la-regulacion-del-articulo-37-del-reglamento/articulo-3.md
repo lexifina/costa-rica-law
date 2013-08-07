@@ -1,0 +1,1 @@
+Artículo 3º—Aprobación. Que de conformidad con el artículo 12, inciso t) del Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433-MINAE publicado en La Gaceta Nº 68 del 8 de abril de 2008, el Consejo Nacional de Áreas de Conservación (CONAC), mediante acuerdo Nº 18 de la Sesión Ordinaria Nº 04-2013 celebrada el día 29 de abril de 2013, aprobó el presente reglamento.

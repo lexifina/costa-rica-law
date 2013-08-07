@@ -1,0 +1,1 @@
+Artículo 5º—Para el pago de los gastos contenidos en el artículo 4 de este reglamento se aplicará el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República; norma que regirá para todo lo dispuesto en el presente reglamento.

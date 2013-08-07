@@ -1,0 +1,1 @@
+Artículo 16.—Aplicación supletoria. Para la solución de aquellas situaciones no previstas en el presente Reglamento, la Administración se encuentra facultada para aplicar de forma supletoria lo estipulado en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.

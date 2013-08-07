@@ -1,0 +1,1 @@
+Artículo 14.—Faltas graves. Las faltas graves deberán entenderse en concordancia con lo dispuesto en el Reglamento Autónomo de Servicios del Ministerio de Ambiente y Energía, aplicable a los funcionarios del SINAC y para el caso concreto, se califican como faltas graves toda alteración o información que conduzca a error o engaño en la aplicación del presente reglamento.

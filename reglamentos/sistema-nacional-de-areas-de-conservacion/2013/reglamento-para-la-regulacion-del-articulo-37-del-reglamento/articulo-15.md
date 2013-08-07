@@ -1,0 +1,1 @@
+Artículo 15.—Sanciones. Los funcionarios y la Jefatura respectiva que incumplan lo estipulado en el presente reglamento, serán acreedores de las sanciones correspondientes según el Reglamento Autónomo de Servicios del SINAC y demás normativa aplicable al caso.
