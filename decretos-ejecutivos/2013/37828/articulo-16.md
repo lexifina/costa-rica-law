@@ -1,0 +1,9 @@
+CAPÍTULO II
+Procesos de Contratación en situaciones de Emergencia
+Sanitaria con cargo al Fondo Acumulativo
+de Emergencias
+Artículo 16.—Para la contratación de bienes y servicios necesarios para la atención de emergencias declaradas vía Decreto Ejecutivo y con cargo al Fondo Acumulativo para la Atención de Emergencias se deberá seguir para la adquisición de dichos bienes y servicios el siguiente procedimiento.
+a) Una vez decretado el Estado de Emergencia Sanitaria, el órgano encargado de la ejecución, según corresponda, remitirá a la Dirección Administrativa Financiera, la solicitud de compra, la cual contendrá el listado y descripción detallada de los bienes y servicios requeridos.
+b) La Dirección Administrativa Financiera de SENASA pedirá libremente las cotizaciones, vía fax, correo electrónico o cualquier otro medio tecnológico de comunicación, siempre que pueda ser verificado, a las empresas inscritas en el Registro de Proveedores de CompraRed y sus respuestas serán consideradas ofertas formales si llenan los requisitos del caso. Para tener derecho a ser consideradas, tales respuestas deberán se dadas por los oferentes dentro del plazo indicado en la solicitud de cotización, el cual variará dependiendo de bien o servicio y la necesidad de su adquisición.
+c) Las cotizaciones podrán ser enviadas de manera física, vía fax o bien vía correo electrónico, los cuales se señalaran igualmente en la solicitud de cotización.
+d) Una vez vencido el plazo para presentación de las cotizaciones, el SENASA adjudicará sin más, al oferente que oferte el bien o servicio que cumpla con los requerimientos técnicos solicitados y que oferte el menor plazo de entrega.

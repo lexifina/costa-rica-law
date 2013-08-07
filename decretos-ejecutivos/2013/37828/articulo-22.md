@@ -1,0 +1,1 @@
+Artículo 22.—Administración. Dicho fondo acumulativo debe ser administrado mediante una contabilidad particular, que permita ejercer un control contable y presupuestario sobre los recursos destinados a cada emergencia, lo cual permita la confección de los presupuestos y sus liquidaciones que se deben enviar a conocimiento de la Contraloría General de la República.

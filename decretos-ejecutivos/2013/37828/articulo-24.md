@@ -1,0 +1,1 @@
+Artículo 24.—Normativa supletoria. Ante ausencia de norma expresa aplicará supletoriamente y en cuanto fuere aplicable a la materia, lo establecido en la Ley de Contratación Administrativa, Ley N° 7494 del 8 de junio de 1995 y el Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo N° 33411 del 4 de enero del 2007.

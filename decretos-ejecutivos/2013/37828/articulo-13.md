@@ -1,0 +1,1 @@
+Artículo 13.—Finalidad de los procedimientos de Contratación en situaciones de Emergencia Sanitaria. Los procedimientos normados en el presente Título serán utilizados únicamente para la adquisición de aquellos bienes o servicios que deban ser adquiridos de manera inmediata para la atención de una Emergencia Sanitaria.

@@ -1,0 +1,1 @@
+Artículo 20.—Cuando el SENASA requiera de partidas y otros recursos provenientes de otros entes autónomos, una vez identificadas técnicamente las necesidades, se podrá solicitar dichos recursos formalmente de acuerdo al artículo 94 de la Ley N° 8495.

@@ -1,0 +1,1 @@
+Artículo 14.—Obligaciones de los funcionarios encargados de los Procesos de Contratación. Los funcionarios encargados de la realización de las compras, deberán de realizarlas en las mejores condiciones de calidad y precio y responderán por sus actos y por los daños que eventualmente puedan causar a la Administración.
