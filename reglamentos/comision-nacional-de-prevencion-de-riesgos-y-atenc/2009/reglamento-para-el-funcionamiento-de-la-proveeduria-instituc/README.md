@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de la Proveeduría Institucional de la Comisi�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-03 | la propia norma |
+| 2 | 2013-08-07 | Reglamento 8 (2013-08-07) |
