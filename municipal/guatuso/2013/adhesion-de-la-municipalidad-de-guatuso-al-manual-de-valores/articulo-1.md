@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE GUATUSO
+Le transcribo artículo N° 4, inciso c) de sesión ordinaria N° 27-13, de fecha 9 de julio del 2013, y que textualmente dice:
+c) El Concejo acuerda con base a nota enviada por el Sr. Alcalde Municipal, comunicar que la Municipalidad de Guatuso se adhiere a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, el cual fue publicado en Diario Oficial La Gaceta N° 30, Alcance Digital N° 22, del 1° de febrero del 2013, mismo que fue elaborado por el Órgano de Normalización Técnica, del Ministerio de Hacienda (O.N.T.). Lo anterior obedece a que la Municipalidad contará con una herramienta de aplicación que le permita valorar las construcciones, instalaciones y obras complementarias fijas y permanentes sujetas en todos los procesos relacionados con el Impuesto sobre Bienes Inmuebles con base a criterios técnicos de valoración definidos.
+San Rafael de Guatuso, 10 de julio del 2013.—
