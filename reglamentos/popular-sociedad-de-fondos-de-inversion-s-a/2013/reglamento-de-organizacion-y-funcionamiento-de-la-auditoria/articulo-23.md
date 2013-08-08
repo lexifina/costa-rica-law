@@ -1,0 +1,1 @@
+Artículo 23.—Protección al personal de la Auditoría. Cuando el personal de la Auditoría, en cumplimiento de sus funciones, se involucre en un conflicto legal o demanda, Popular S.F.I., dará todo su respaldo, tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final.

@@ -1,0 +1,14 @@
+CAPÍTULO V
+Funcionamiento de la Auditoría Interna
+Artículo 26.—Competencias de la Auditoría Interna. Para el desempeño eficiente y efectivo de las labores serán competencia de la auditoría Interna.
+a) Órganos del sistema de control interno. La Administración Activa junto con la Auditoría Interna de Popular S.F.I. S. A., son los componentes orgánicos del sistema de control interno.
+b) Las indicadas en el artículo 22 de la Ley General de Control Interno:
+I. Realizar auditorías o estudios especiales semestralmente, en relación con los fondos públicos sujetos a su competencia institucional, incluidos fideicomisos, fondos especiales y otros de naturaleza similar. Asimismo, efectuar semestralmente auditorías o estudios especiales sobre fondos y actividades privadas, de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República, en el tanto estos se originen en transferencias efectuadas por componentes de su competencia institucional.
+II. Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia institucional, informar de ello y proponer las medidas correctivas que sean pertinentes.
+III. Verificar que la administración activa tome las medidas de control interno señaladas en esta Ley, en los casos de desconcentración de competencias, o bien la contratación de servicios de apoyo con terceros; asimismo, examinar regularmente la operación efectiva de los controles críticos, en esas unidades desconcentradas o en la prestación de tales servicios.
+IV. Asesorar al jerarca en materia de su competencia, además, advertir a los órganos pasivos que fiscaliza sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+V. Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que deban llevar los órganos sujetos a su competencia institucional y otros libros que, a criterio del auditor interno, sean necesarios para el fortalecimiento del sistema de control interno.
+VI. Preparar los planes de trabajo, por lo menos de conformidad con los lineamientos que establece la Contraloría General de la República.
+VII. Elaborar cada mes de enero un informe de la ejecución del plan de trabajo y del estado de las recomendaciones de la auditoría interna, de la Contraloría General de la República y de los despachos de contadores públicos –se refieran o no a las auditorías externas - en los últimos dos casos, cuando sean de su conocimiento, sin perjuicio de que se elaboren informes y se presenten al jerarca cuando las circunstancias lo ameriten.
+VIII. Procurar que este Reglamento se mantenga debidamente actualizado.
+IX. Las demás competencias que contemplen la normativa legal, reglamentaria y técnica aplicable, con las limitaciones que establece el artículo 34 de esta Ley.

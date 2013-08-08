@@ -1,0 +1,1 @@
+Artículo 13.—Participación en Grupos de Trabajo o Comisiones. La participación del Auditor Interno y asistentes de auditoría en las comisiones o grupos de trabajo de la Junta Directiva, o Entes Reguladores y Supervisores, será exclusivamente en función asesora, en asuntos de su competencia, y no podrá tener carácter permanente.
