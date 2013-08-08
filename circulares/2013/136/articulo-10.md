@@ -1,0 +1,1 @@
+X.—Instancias ejecutoras. Para el logro de los objetivos propuestos en esta Carta de Intenciones, se ha designado a las siguientes instancias: Oficina de Justicia Restaurativa del Ministerio Público, Programa de Atención en Comunidad del Ministerio de Justicia y Paz.

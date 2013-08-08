@@ -1,0 +1,1 @@
+IX.—Alcances de este acuerdo: Este acuerdo rige para los casos penales cuya solución alterna haya sido construida mediante la justicia restaurativa y el expediente se encuentre residenciado en la Oficina de Justicia Restaurativa.
