@@ -1,0 +1,1 @@
+Artículo 24.—Recepción de los bienes o servicios adquiridos. Será responsabilidad de la Jefatura que autoriza el adelanto de caja chica, constatar el ingreso o la recepción de los bienes y que los servicios prestados hayan sido recibidos a satisfacción

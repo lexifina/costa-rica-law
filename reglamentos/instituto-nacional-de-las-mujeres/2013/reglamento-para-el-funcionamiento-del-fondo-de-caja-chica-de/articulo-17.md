@@ -1,0 +1,2 @@
+Artículo 17.—Compras de uso común. No podrán tramitarse, por medio del fondo de caja chica, las compras de uso común, es decir aquellas correspondientes a bienes y servicios utilizados en las operaciones regulares y normales del Instituto, que pueden planificarse, y que deben adquirirse por los procesos ordinarios de contratación.
+La Proveeduría Institucional debe asegurarse de tener siempre en existencias este tipo de artículos y prever con suficiente anticipación las necesidades institucionales.

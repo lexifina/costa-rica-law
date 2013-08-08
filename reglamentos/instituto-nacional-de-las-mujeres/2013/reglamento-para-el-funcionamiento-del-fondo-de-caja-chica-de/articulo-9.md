@@ -1,0 +1,1 @@
+Artículo 9º—Solicitudes de adelanto de caja chica. Para que la unidad usuaria solicite un adelanto del fondo fijo de caja chica deberá cumplir todos los requisitos establecidos en los artículos siguientes de este reglamento, según sea el tipo de gasto.

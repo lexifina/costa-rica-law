@@ -1,0 +1,1 @@
+Artículo 18.—Personas que no pueden hacer uso de estos fondos. No podrán hacer uso del fondo de caja chica las personas que presten sus servicios al INAMU de acuerdo con la modalidad de servicios profesionales y por contrato, ni tampoco lo podrán hacer aquellas personas que no presten servicio regular y, en consecuencia, no sean personas funcionarias del Instituto.

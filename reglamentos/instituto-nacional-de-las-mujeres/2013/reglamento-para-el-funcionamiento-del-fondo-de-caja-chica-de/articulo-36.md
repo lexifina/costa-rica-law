@@ -1,0 +1,1 @@
+Artículo 36.—Elaboración del reintegro. Se confeccionarán reintegros del fondo de caja chica o caja auxiliar cuando se haya gastado el treinta por ciento del fondo, con el fin de prever que se contará siempre con los fondos necesarios para garantizar las gestiones requeridas y dar continuidad al servicio que se brinda.

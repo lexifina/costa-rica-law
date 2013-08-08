@@ -1,0 +1,1 @@
+Artículo 20.—Otros usos. El fondo de caja chica no podrá ser utilizado para el cambio de cheques personales, ni para hacer préstamos a personas funcionarias, ni podrá utilizarse para otros fines distintos para el que fue creado.

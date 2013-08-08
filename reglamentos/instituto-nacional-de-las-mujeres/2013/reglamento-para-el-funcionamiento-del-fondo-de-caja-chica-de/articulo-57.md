@@ -1,0 +1,1 @@
+Artículo 57.—Reintegros a las cajas auxiliares. Los reintegros a las cajas auxiliares los realizará la Tesorería del INAMU mediante transferencia electrónica de fondos a las cuentas autorizadas o por medio de cheque, según corresponda, previa aprobación de los documentos que respaldan el reintegro y aplicarán todas las disposiciones de este reglamento referentes a reintegros.
