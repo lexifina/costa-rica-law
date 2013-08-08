@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El objeto del presente reglamento es regular el pago directo de alimentación, transporte y hospedaje a las personas usuarias del INAMU, en forma excepcional y en los términos y condiciones previstas por este reglamento.

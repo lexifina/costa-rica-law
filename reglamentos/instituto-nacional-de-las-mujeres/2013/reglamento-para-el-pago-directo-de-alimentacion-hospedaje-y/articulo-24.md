@@ -1,0 +1,1 @@
+Artículo 24.—Transferencia de fondos. El Área Financiero Contable procederá a transferir los recursos a las cuentas habilitadas para tal fin. El Área Financiera Contable contará con cinco días hábiles para realizar el trámite de revisión, obligación presupuestaria y transferencia.

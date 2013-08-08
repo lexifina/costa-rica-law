@@ -1,0 +1,4 @@
+Artículo 4º—Aplicación preferente de trámites ordinarios. Para suplir las necesidades de alimentación, hospedaje y transporte para personas usuarias la persona Encargada de la actividad de interés institucional o la persona responsable en el CEAAM u otro servicio de atención directa deberá tener en cuenta los siguientes mecanismos excluyentes:
+a.) Por regla general deberá acudir a los mecanismos regulares de contratación administrativa o bien al uso de los vehículos institucionales, en caso de transporte, siendo responsabilidad de la Administración facilitar mecanismos para que tales necesidades sean satisfechas eficientemente.
+b.) Pago de gastos de alimentación, hospedaje y transporte de forma directa a usuarias, de acuerdo con los criterios de excepcionalidad y demás regulaciones contenidos en esta normativa.
+c.) Caja Chica: para lo cual deberá encontrarse en uno de los supuestos de emergencia e imprevisibilidad que regula el Reglamento de Caja Chica.

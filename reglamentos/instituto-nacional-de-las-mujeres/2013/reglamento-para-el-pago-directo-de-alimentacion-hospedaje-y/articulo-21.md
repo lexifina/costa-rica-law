@@ -1,0 +1,1 @@
+Artículo 21.—Adelanto de gastos. La persona encargada de la actividad de interés institucional, con el Vº Bº de la jefatura inmediata debe completar el formulario respectivo para la solicitud de reconocimiento de gastos de alimentación, hospedaje y transporte para personas usuarias con, al menos, cinco días hábiles de anticipación a la actividad o eventualidad.

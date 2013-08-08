@@ -1,0 +1,1 @@
+Artículo 29.—Veracidad de los formularios: Los formularios de solicitud y de liquidación deben reflejar información certera, bajo pena de que la persona encargada de la actividad y la jefatura, si no ejerció los debidos controles, incurran en responsabilidad disciplinaria e incluso pecuniaria.

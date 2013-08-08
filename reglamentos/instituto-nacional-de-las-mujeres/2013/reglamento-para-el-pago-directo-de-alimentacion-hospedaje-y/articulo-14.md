@@ -1,0 +1,2 @@
+Artículo 14.—La persona encargada de la actividad de interés institucional deberá verificar que no exista duplicidad entre el reconocimiento del pago de alimentación que se le facilita a la persona usuaria por ese concepto y la alimentación que se brinde en la actividad a la cual asiste, al momento de organizar la actividad.
+Además la jefatura de la persona encargada de la actividad deberá consignar la justificación para el reconocimiento del pago, de acuerdo con los criterios ya señalados, en los formularios y demás documentos que establece este reglamento.

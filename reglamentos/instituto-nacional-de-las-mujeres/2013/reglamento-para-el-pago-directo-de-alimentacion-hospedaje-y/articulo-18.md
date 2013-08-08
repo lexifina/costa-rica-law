@@ -1,0 +1,1 @@
+Artículo 18.—Transferencia de fondos. El Área Financiero Contable procederá a transferir los recursos a la(s) cuentas habilitadas para tales efectos, tanto en las sedes regionales como en los CEAAM. El Área Financiera Contable contará con cinco días hábiles para realizar el trámite de revisión, obligación presupuestaria y transferencia.

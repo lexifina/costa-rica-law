@@ -1,0 +1,1 @@
+Artículo 31.—Faltas. El incumplimiento de alguna de las disposiciones del presente reglamento y especialmente de este capítulo acarreará responsabilidad administrativa, disciplinaria, civil y de cualquier otra índole, la cual se determinará mediante el debido proceso y en aplicación del Reglamento Autónomo de Servicios, la Convención Colectiva y la Ley de Control Interno.

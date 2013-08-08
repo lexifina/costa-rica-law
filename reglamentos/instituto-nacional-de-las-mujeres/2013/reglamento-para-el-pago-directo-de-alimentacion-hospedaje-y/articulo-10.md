@@ -1,0 +1,5 @@
+CAPITULO III
+Reconocimiento de gastos en actividades
+de Interés Institucional
+Artículo 10.—Lugar de la actividad y excepcionalidad del pago. Las actividades de interés institucional, a las que se refiere el artículo 1 inciso a) se llevarán a cabo prioritariamente en la respectiva sede regional del INAMU o en un lugar aledaño para racionalizar el pago de alimentación, transporte y hospedaje de acuerdo con el principio de gestión financiera, contenido en el Artículo 5 inciso b) de la Ley de la Administración Financiera de la República y Presupuestos Públicos, a fin de garantizar el buen uso de los recursos públicos, orientados a los intereses generales de la sociedad y atendiendo los principios de economía, eficacia y eficiencia.
+En caso de que no sea posible realizar la actividad en la respectiva sede o que, aun realizándola allí implique el uso de transporte, hospedaje y alimentación para las usuarias, el INAMU procurará el uso de mecanismos ordinarios definidos en el artículo 4 de manera que el reconocimiento de gastos quedará sólo para los casos excepcionales que defina este capítulo.

@@ -1,0 +1,1 @@
+Artículo 11.—Normativa y uso de formularios. La gestión de los gastos que regula el presente reglamento, deberá ajustarse en lo pertinente al ordenamiento jurídico en general y a la normativa interna del INAMU. Será obligatorio el uso de los formularios que se establezcan con base en la presente normativa.
