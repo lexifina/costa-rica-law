@@ -1,0 +1,15 @@
+MUNICIPALIDAD DE NARANJO
+Considerando:
+1º—Que el mercado municipal es un servicio público otorgado por la Municipalidad de Naranjo para ofrecer al ciudadano y visitantes un espacio cultural, económico y de esparcimiento en su estancia dentro y a los alrededores del edificio.
+2º—Que los espacios dados en arrendamiento, constituyen áreas que por sí mismas están destinadas a la venta de un bien o servicio que satisfaga ese interés económico, social o público de los visitantes al mercado municipal.
+3º—Que los costos de mantenimiento del mercado municipal requieren de un pago constante y oportuno de parte de los inquilinos (concesionarios) del espacio del mercado municipal.
+4º—Que las debilidades macroeconómicas sufridas por un desbalance en las finanzas inmobiliarias a nivel internacional, siguen teniendo repercusiones en la Administración de los recursos locales.
+5º—Que el Gobierno Local debe buscar la forma de ser más eficiente y eficaz en la Administración de las cuentas por cobrar, con el fin de que los servicios no sean deficitarios.
+6º—Que en la búsqueda de la eficacia y la eficiencia municipal se debe proceder con aquellos elementos reglamentarios que debilitan la gestión tributaria y cobratoria de la Municipalidad de Naranjo.
+7º—Que uno de estos elementos es el párrafo segundo artículo 11 del Reglamento del Mercado Municipal que dice: “la morosidad por más de dos trimestres (6 meses) será sujeta a recisión directa del contrato de alquiler, por parte del Concejo Municipal desalojo correspondiente, con la aplicación de lo que establece la Ley General de Administración Pública”.
+8º—Que recientemente se detectaron inquilinos que adeudan a la municipal hasta entre 4 y 6 meses de pago de alquiler.
+9º—Que algunos inquilinos incumplen los arreglos de pago y hasta los procesos conciliatorios manteniendo la cuenta por pagar entre los 4 y 6 meses, evitando con ello abusar de la norma reglamentaria. Por lo tanto,
+En atención a las consideraciones presentadas y al artículo 4° de la Ley N° 7794, se recomienda modificar el artículo 11 del Reglamento General del Mercado Municipal de Naranjo eliminando el párrafo segundo y por consiguiente se agregue al artículo 11, lo siguiente:
+“El atraso en la cancelación de los alquileres tendrá un recargo con carácter de interés de un 2% mensual, con base en el artículo N° 57 del Código Tributario. La morosidad por más de un mes, será sujeto de recisión directa del contrato como acto de mera constatación siguiéndose el debido proceso por parte de la Administración Municipal, quien deberá ordenar y ejecutar el desalojo correspondiente, según lo que establece la Ley General de la Administración Pública.”
+Acuerdo SO-20-156-2012. El Concejo Municipal basado en el dictamen 06-2012 de la Comisión de Jurídicos acuerda aprobar la modificación del artículo 11 del Reglamento General del Mercado Municipal de Naranjo. Acuerdo en firme por unanimidad. Acuerdo de la sesión ordinaria N° 20 del 14 de mayo del 2012.
+Naranjo, 16 de julio del 2013.—
