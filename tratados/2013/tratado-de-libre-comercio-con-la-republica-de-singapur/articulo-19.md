@@ -437,7 +437,7 @@ Información sobre Contratación Pública
 Publicaciones o sitios web donde la información y oportunidades de contratación pueden ser encontradas:
 (a) en el caso de Costa Rica:
 Leyes, reglamentos y disposiciones administrativas de aplicación general (www.gaceta.go.cr)
-Decisiones judiciales (www.pgr.go.cr/scij)
+Decisiones judiciales (www.pgrweb.go.cr/scij)
 Publicación de avisos de contratación futura (www.gaceta.go.cr)
 Avisos de contratación futura para el Instituto Costarricense de Electricidad (www.grupoice.com)
 (b) en el caso de Singapur:
