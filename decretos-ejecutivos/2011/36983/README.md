@@ -15,3 +15,4 @@ Manual de procedimientos para las empresas autorizadas por el MINAE que realizar
 | --- | --- | --- |
 | 1 | 2012-03-08 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2013-08-09 | Decreto Ejecutivo 38030 (2013-08-09) |
