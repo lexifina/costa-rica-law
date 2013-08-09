@@ -1,0 +1,1 @@
+7º—Que el idioma inglés es el oficial de la República de Singapur, motivo por el cual los Certificados de Origen podrán estar confeccionados en ese idioma, por lo que en caso de ser necesario la autoridad aduanera podrá solicitar la respectiva traducción al idioma español.
