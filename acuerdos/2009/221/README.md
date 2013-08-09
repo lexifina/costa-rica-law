@@ -15,3 +15,4 @@ Ordenamiento de la Actividad Pesquera en las Aguas Marinas Jurisdiccionales, med
 | --- | --- | --- |
 | 1 | 2009-07-30 | la propia norma |
 | 2 | 2010-01-15 | Acuerdo 16 (2010-01-15) |
+| 3 | 2013-08-09 | Acuerdo 307 (2013-08-09) |
