@@ -1,0 +1,1 @@
+Artículo 18.—Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por el Departamento de Gestión de Cobro Administrativo para la suscripción del arreglo de pago, así como dicho documento, será agregada al expediente y debidamente foliada para su conservación.
