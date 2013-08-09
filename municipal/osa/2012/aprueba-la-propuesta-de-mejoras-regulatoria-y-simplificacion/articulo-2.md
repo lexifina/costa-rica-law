@@ -1,0 +1,1 @@
+2º—Aprobar la Propuesta de mejora regulatoria y simplificación de trámites municipales para la obtención de licencias de construcción CFIA-IFAM-municipalidades, texto que en su totalidad forma parte integral de este acuerdo; con el fin de realizar la mejora regulatoria y simplificación de trámites establecidas mediante ley y reglamentos.
