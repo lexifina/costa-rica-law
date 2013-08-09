@@ -1,0 +1,2 @@
+Artículo 30.—Delegación de donación. Le corresponde al Alcalde, firmar las Actas de Donación de su respectiva institución.
+No obstante, éste podrá delegar formalmente esta función siguiendo al efecto las disposiciones y observando los límites que establecen la Ley General de la Administración Pública y la Ley de la Administración Financiera y Presupuestos Públicos, en materia de delegación de competencias.

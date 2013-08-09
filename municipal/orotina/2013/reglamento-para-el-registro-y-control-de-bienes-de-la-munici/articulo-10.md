@@ -1,0 +1,2 @@
+Artículo 10.—Verificación de inventarios. El Departamento de Proveeduría podrá verificar la existencia de los bienes inventariados a cargo de las distintas dependencias de la Municipalidad y exigir el cumplimiento de las normas establecidas en este manual o instrucciones que en esta materia se hayan emitido.
+La verificación de existencias se hará mediante prueba selectiva periódica, excepto en casos especiales que ameriten una verificación total.

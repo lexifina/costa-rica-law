@@ -1,0 +1,1 @@
+Artículo 16.—Alta por aprovechamiento de inservibles. Cuando se dan de baja elementos inservibles, de los cuales puedan utilizarse parte de ellos, se hará una relación de aquellos elementos aprovechables que servirá para su registro físico y contable.
