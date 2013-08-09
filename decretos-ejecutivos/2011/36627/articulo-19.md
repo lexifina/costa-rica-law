@@ -8,3 +8,7 @@ d) Suministrar oportunamente al MINAET, a través de la DGTCC, la información q
 e) Proteger, conservar, recuperar y utilizar racionalmente los recursos naturales relacionados con la explotación del servicio público.
 f) Permitir al MINAET, por medio de la DGTCC, el acceso a sus instalaciones y equipos, así como la comunicación con el personal, para cumplir con este reglamento.
 g) Brindar el servicio en condiciones adecuadas y con la regularidad y seguridad que su naturaleza, la concesión o el permiso indiquen.
+h) Transportar el combustible mediante unidades de transporte que cumplan con la normativa correspondiente, específicamente con lo dispuesto en la Ley N° 9078 “Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial” del 4 de octubre del 2012 y en el Decreto Ejecutivo Nº 31363- MOPT “Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga” del 2 de junio del 2003.
+(Así adicionado el inciso anterior por el artículo 5° del decreto ejecutivo N° 38030 del 9 de agosoto del 2013)
+i) Cumplir con las normas que dicte RECOPE para regular la entrada y permanencia de personas y equipos en sus planteles de distribución y acatar las medidas técnicas y de seguridad que correspondan.
+(Así adicionado el inciso anterior por el artículo 5° del decreto ejecutivo N° 38030 del 9 de agosoto del 2013)

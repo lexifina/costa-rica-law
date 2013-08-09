@@ -1,0 +1,2 @@
+Artículo 36 (bis): No podrá utilizar tractocamiones o unidades de transporte integradas que no cumplan con la normativa correspondiente, específicamente con lo dispuesto en la Ley N° 9078 “Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial” del 4 de octubre del 2012 y en el Decreto Ejecutivo Nº 31363-MOPT “Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga” del 2 de junio del 2003.
+(Así adicionado por el artículo 7° del decreto ejecutivo N° 38030 del 9 de agosto del 2013)
