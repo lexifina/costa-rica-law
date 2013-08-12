@@ -15,3 +15,4 @@ Reglamento General para Licencias Municipales en Telecomunicaciones para la Muni
 | --- | --- | --- |
 | 1 | 2011-04-05 | la propia norma |
 | 2 | 2012-01-25 | Reglamento municipal 0 (2012-01-25) |
+| 3 | 2013-08-12 | Reglamento municipal 47 (2013-08-12) |
