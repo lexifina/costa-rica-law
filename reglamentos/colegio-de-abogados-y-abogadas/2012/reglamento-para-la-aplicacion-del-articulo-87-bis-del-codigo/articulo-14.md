@@ -1,1 +1,0 @@
-Artículo 14.—Régimen disciplinario en el desarrollo de las labores que implica el beneficio. En las labores que impliquen el ejercicio profesional, el beneficiado (a) quedará sujeto al mismo régimen disciplinario que cualquier otro abogado (a) en ejercicio liberal de la profesión.

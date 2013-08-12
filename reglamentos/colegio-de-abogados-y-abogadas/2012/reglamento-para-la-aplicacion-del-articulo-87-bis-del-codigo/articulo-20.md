@@ -1,1 +1,0 @@
-Artículo 20.—Modificaciones parciales o totales. La modificación parcial o total de la presente reglamentación requiere acuerdo de Junta Directiva del Colegio de Abogados.

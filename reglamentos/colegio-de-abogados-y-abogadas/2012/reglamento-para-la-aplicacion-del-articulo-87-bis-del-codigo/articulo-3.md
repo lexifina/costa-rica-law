@@ -1,1 +1,0 @@
-Artículo 3º—Consideración jurídica y naturaleza del beneficio. El otorgamiento del beneficio de ejecución condicional de la sanción de suspensión en el ejercicio de la profesión, a que se refiere actualmente el ordinal 87 bis del Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho, es una facultad de la junta directiva y no un derecho del sancionado (a).
