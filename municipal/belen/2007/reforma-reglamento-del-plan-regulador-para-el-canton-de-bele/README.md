@@ -15,3 +15,4 @@ Reforma Reglamento del Plan Regulador para el cantón de Belén (Reglamento de Z
 | --- | --- | --- |
 | 1 | 2007-03-23 | la propia norma |
 | 2 | 2011-08-05 | SINALEVI (sin norma nombrada) |
+| 3 | 2013-08-13 | Reglamento municipal 48 (2013-08-13) |
