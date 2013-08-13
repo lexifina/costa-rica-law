@@ -1,4 +1,5 @@
 Nº 8204
+(Nota de Sinalevi: Esta norma corresponde a una de las reformas de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso No Autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, N° 7786 del 30 de abril de 1998. Esta última es la ley vigente.)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 Decreta:
@@ -301,6 +302,14 @@ g) Cuando esos delitos se cometan a nivel internacional.
 h) Cuando la persona se valga del ejercicio de un cargo público.
 Estas penas se aplicarán también a quien financie o dirija la organización dedicada a cometer los delitos.
 Si el responsable del hecho es un trabajador de instituciones educativas, públicas o privadas, la condenatoria conllevará la inhabilitación por seis a doce años para ejercer la docencia, en cualquier nivel del sistema educativo, público o privado. Los rectores o directores de los centros educativos serán los responsables del cumplimiento de esta disposición.
+Artículo 77 bis.-
+La pena prevista en el artículo anterior será de tres a ocho años de prisión, cuando una mujer sea autora o participe en la introducción en establecimientos penitenciarios de sustancias tóxicas, estupefacientes o sustancias psicotrópicas y cumpla una o varias de las siguientes condiciones:
+a) Se encuentre en condición de pobreza.
+b) Sea jefa de hogar en condición de vulnerabilidad.
+c) Tenga bajo su cargo personas menores de edad, adultas mayores o personas con cualquier tipo de discapacidad que amerite la dependencia de la persona que la tiene a su cargo.
+d) Sea una persona adulta mayor en condiciones de vulnerabilidad.
+En caso de que se determine alguna de las condiciones anteriores, el juez competente o el juez de ejecución de la pena podrá disponer el cumplimiento de la pena impuesta, en modalidad de detención domiciliaria, libertad asistida, centros de confianza, libertad restringida con dispositivos electrónicos no estigmatizantes o cualquier tipo de medida alternativa a la prisión.
+(Así adicionado el artículo 77 bis) anterior por el artículo único de la ley N° 9161 del 13 de agosto del 2013, "Reforma Ley N° 8204 "Reforma integral Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación capitales y financiamiento terrorismo", para introducir la proporcionalidad y especificidad de género")
 Artículo 78.—En los casos previstos en el capítulo I del título IV de esta Ley, el juez también podrá imponer como pena accesoria:
 a) La cancelación de la licencia, los permisos, la concesión o la autorización para ejercer la actividad en cuyo desempeño se haya cometido el delito.
 b) La clausura temporal o definitiva de la empresa o actividad en cuyo desempeño se haya cometido el delito.
