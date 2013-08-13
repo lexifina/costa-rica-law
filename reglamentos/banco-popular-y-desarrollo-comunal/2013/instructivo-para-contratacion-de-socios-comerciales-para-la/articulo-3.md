@@ -1,0 +1,1 @@
+3. Vigencia de este instructivo. El plazo de vigencia de este instructivo será por tres años, a partir de su publicación en el Diario Oficial La Gaceta, plazo que podrá ser prorrogado previa autorización de dicho órgano contralor.

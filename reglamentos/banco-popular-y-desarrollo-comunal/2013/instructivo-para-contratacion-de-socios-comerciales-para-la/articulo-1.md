@@ -1,0 +1,14 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+INSTRUCTIVO PARA LA CONTRATACIÓN DE SOCIOS
+COMERCIALES PARA LA PRESTACIÓN DE SERVICIOS
+DE FUERZAS DE VENTA PARA LA COLOCACIÓN
+DE CRÉDITO, CLUBES DE AHORRO, TARJETAS
+DE CRÉDITO Y DÉBITO ASÍ COMO LA
+AFILIACIÓN AL PROGRAMA
+POPULAR PLUS
+1. Propósito. El objeto de este instructivo es el de establecer los requisitos legales, técnicos y de infraestructura que los interesados deben cumplir para ser contratados por el Banco como Socio Comercial para la prestación de servicios de fuerzas de venta para la colocación de Crédito, clubes de ahorro, tarjetas de crédito y débito así como la afiliación al Programa Popular Plus y establecer las condiciones generales del servicio. A continuación se detalla cada uno de los productos:
+Colocación de crédito: Comercialización y venta de las diferentes líneas de Crédito Personal que el Banco ofrece a sus clientes, entiéndase el crédito como una operación financiera en la que se pone a disposición del cliente una cantidad de dinero hasta un límite especificado a pagar en un período de tiempo determinado, cobrándosele una tasa de interés pactada.
+Tarjeta de débito: La tarjeta de Débito está asociada a una cuenta de ahorro voluntario a la vista en colones y permiten al cliente poder utilizar su dinero realizando compras a través de los puntos de venta autorizados o bien realizar retiros de efectivo en los cajeros automáticos.
+Tarjeta de crédito: La tarjeta de Crédito VISA del Banco Popular es un eficiente medio de pago electrónico, por medio del cual se tiene acceso a un sistema de crédito revolutivo a través de una tarjeta plástica con banda magnética, con la cual se puede disponer de forma continua de una línea de crédito para realizar compras de bienes y servicios en los comercios afiliados a la marca VISA Internacional. Asimismo, permite a sus clientes efectuar retiros de efectivo en Cajero Automáticos de la marca VISA y Plus, así como mediante ventanillas de los Bancos asociados a la marca.
+Clubes de ahorro: Son programas de ahorro a corto y mediano plazo, que mediante el depósitos de determinadas sumas mensuales por un período pactado, al final del cual el cliente dispondrá de un ingreso adicional para el pago del marchamo, las vacaciones de fin de año, los útiles escolares de sus hijos, un segundo aguinaldo u otros.
+Afiliación al Programa Popular Plus: Popular Plus es un programa de Beneficios del Banco Popular y de Desarrollo Comunal del cual pueden formar parte, en forma exclusiva, aquellas personas que reciben el salario o la pensión a través del sistema de pagos automáticos. Entre estos beneficios resaltan: mejores tasas de interés en créditos personales, créditos sin fiadores para el sector público, exclusiva Tarjeta de Débito Visa Popular Plus con la que tendrán acceso a descuentos en los comercios afiliados a la Red de Ventajas Popular y muchos otros beneficios.
