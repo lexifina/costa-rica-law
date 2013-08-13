@@ -5,6 +5,8 @@ Artículo 12.—Funciones del Director de PROARTES: Son funciones del Director d
 4. Participar en el proceso de selección del personal de apoyo.
 5. Convocar a las distintas comisiones para que asuman sus funciones y asistir a sus reuniones, con voz pero sin voto.
 6. Firmar los documentos y actas que emita PROARTES.
-7. Mantener informado al Director Ejecutivo del Teatro Popular Melico Salazar y a la Junta Directiva de la institución, sobre los avances, dificultades y demás detalles de cada convocatoria.
-8. Acatar las instrucciones de su superior jerárquico.
-9. Cualquier otra que le asignen las leyes o reglamentos.
+7. Mantener informado a la Dirección Ejecutiva del Teatro Popular Melico Salazar y a la Junta Directiva de la institución, sobre los avances, dificultades y demás detalles de cada convocatoria.
+8. Velar por el respeto a las normas y procedimientos establecidos.
+9. Acatar las instrucciones de su superior jerárquico.
+10. Cualquier otra que le asignen las leyes o reglamentos.
+(Así reformado por el artículo 7° del decreto ejecutivo N° 37914 del 13 de agosto del 2013)

@@ -1,1 +1,3 @@
 Artículo 11.—Estructura organizacional: PROARTES contará, al menos, con un director de programa que se encargará de coordinarlo, bajo la jerarquía del Director Ejecutivo del Teatro Popular Melico Salazar. Además, tendrá a su cargo el personal de apoyo que sea necesario para el cumplimiento de los objetivos del programa.
+Para el cumplimiento de sus fines, con sus recursos y bajo un ámbito de racionalidad, PROARTES podrá incorporar mediante contratación administrativa, y dentro de los tiempos establecidos legalmente en roles y necesidades específicas, servicios profesionales para fortalecer el programa.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 37914 del 13 de agosto del 2013)
