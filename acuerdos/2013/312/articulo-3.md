@@ -1,0 +1,1 @@
+3º—Se permitirá la captura y aprovechamiento del recurso camarón en el área definida, con el uso de trasmallo de luz de malla de 8.89 centímetros (3.5 pulgadas), únicamente durante los meses de diciembre, enero y febrero de cada año.

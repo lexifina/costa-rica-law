@@ -1,0 +1,1 @@
+4º—Se mantienen las restantes regulaciones definidas en el Área Marina de Pesca Responsable de Tárcoles, de conformidad con el Plan de Ordenamiento Pesquero aprobado por la Junta Directiva del INCOPESCA, así como la continuación de las investigaciones en los años subsiguientes.
