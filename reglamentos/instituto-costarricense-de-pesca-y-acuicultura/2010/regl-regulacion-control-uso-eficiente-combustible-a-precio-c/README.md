@@ -18,3 +18,4 @@ Regl. regulación, control uso eficiente combustible a precio competitivo nivel 
 | 3 | 2010-06-25 | Acuerdo 197 (2010-06-25) |
 | 4 | 2010-10-29 | Acuerdo 380 (2010-10-29) |
 | 5 | 2012-06-22 | Acuerdo 307 (2012-06-22) |
+| 6 | 2013-08-14 | Acuerdo 317 (2013-08-14) |
