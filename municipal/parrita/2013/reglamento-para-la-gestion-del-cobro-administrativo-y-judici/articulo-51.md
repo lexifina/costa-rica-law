@@ -1,0 +1,1 @@
+Artículo 51.—Pago de servicios solicitados. Todo sujeto pasivo, responsable o contribuyente, que requiera el servicio de emisión de constancias o certificaciones de impuestos al día, así como de estudios sobre pagos realizados en años anteriores, deberá cancelar el costo administrativo que para cada uno de ellos haya determinado el Proceso de Fiscalización y Tarifas.
