@@ -1,0 +1,3 @@
+Artículo 6º—Agréguese los incisos g) y h) al artículo 14 del Decreto Ejecutivo N° 36910-MEP-S del 22 de noviembre del 2011, publicado en La Gaceta N° 09 del 12 de enero del 2012, Alcance Digital N° 07, los cuales dirán de la siguiente manera:
+“g) Los embutidos utilizados en las preparaciones deben ser “light”. Se consideran “light” aquellos que tienen máximo 25 gramos de grasa por cada 100 gramos de producto.
+h) Los panes a utilizar para la preparación de emparedados o bocadillos deberán cumplir el requisito de no contener más de 10 gramos de grasa total, 5 gramos de grasa saturada, más de 20 gramos de azúcar o su equivalente en edulcorante, más de 500 miligramos de sodio o más de 400 kilocalorías (1675 kilojulios), por cada 100 gramos de pan.”

@@ -1,0 +1,2 @@
+Artículo 8º—Modifíquese el artículo 16 del Decreto Ejecutivo N° 36910-MEP-S del 22 de noviembre del 2011, publicado en La Gaceta N° 09 del 12 de enero del 2012, Alcance Digital N° 07, para que se lea de la siguiente manera:
+“Artículo 16.—De los entes y órganos de control. Todo el servicio de soda implicará el control del Ministerio de Salud así como del Ministerio de Educación Pública a través del Director Institucional, el Supervisor de Centros Educativos, el Comité de Salud y Nutrición y la respectiva Junta de Educación o Administrativa, según corresponda.”

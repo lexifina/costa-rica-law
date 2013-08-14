@@ -1,0 +1,2 @@
+Artículo 3º—Modifíquese el artículo 2° del Decreto Ejecutivo N° 36910-MEP-S del 22 de noviembre del 2011, publicado en La Gaceta N° 09 del 12 de enero del 2012, Alcance Digital N° 07, el cual dirá de la siguiente forma:
+“Artículo 2º—Objetivo. Promover la salud de la comunidad educativa mediante el desarrollo y mantenimiento de hábitos alimentarios saludables, como parte del proceso formativo integral a partir de la experiencia vivencial en el centro educativo público, todo sobre la base del interés público.
