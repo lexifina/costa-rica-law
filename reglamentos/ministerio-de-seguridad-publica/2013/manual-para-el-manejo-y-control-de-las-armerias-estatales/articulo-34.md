@@ -1,0 +1,2 @@
+Artículo 34.—Las prácticas de tiro y los cursos de armas deben ser aprobados y supervisados por la Escuela Nacional de Policía mediante sus instructores o bien por medio de algún otro instructor debidamente acreditado en dicha materia por la Escuela.
+Corresponderá a la Escuela Nacional de Policía, el suministrar toda la logística pertinente para la realización de las prácticas de tiro y los cursos de armas, que han de realizarse en polígonos autorizados.

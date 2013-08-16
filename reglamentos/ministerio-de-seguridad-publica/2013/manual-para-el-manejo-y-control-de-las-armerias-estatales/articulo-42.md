@@ -1,0 +1,1 @@
+Artículo 42.—Es deber de todo funcionario velar por los activos que se le entregan para el ejercicio de sus funciones. La pérdida, extravío, sustracción o decomiso por causas imputables al funcionario(a), implicará el inicio de un proceso disciplinario, a efectos de determinar el grado de responsabilidad y la sanción que pudiera corresponder.

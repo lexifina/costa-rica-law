@@ -1,0 +1,2 @@
+Artículo 23.—Si existiera un gasto por parte del personal en servicio, dicho personal deberá de presentar un informe al encargado de turno de la Armería y este a su vez elaborará un oficio remitiendo dicho informe al superior inmediato en el caso de los Órganos o Entes Públicos y a la Dirección General de Armamento en el caso del Ministerio de Seguridad Pública, con copia al Jefe de Puesto.
+Este oficio se utilizará para realizar el rebajo en los controles pertinentes.

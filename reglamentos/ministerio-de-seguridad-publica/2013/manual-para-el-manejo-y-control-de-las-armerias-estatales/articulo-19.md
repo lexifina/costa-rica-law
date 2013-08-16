@@ -1,0 +1,2 @@
+Artículo 19.—En caso de percatarse de algún daño en el armamento, el o la Jefe de la Armería o cualquier armero, debe reportarlo a la Dependencia Encargada del Armamento del Órgano o Ente Público;
+En el caso del Ministerio de Seguridad Pública, el armamento deberá ser remitido al Arsenal Nacional para su correspondiente reparación. Al documento de remisión del arma, se adjuntará un informe detallando lo sucedido con el arma a reparar.

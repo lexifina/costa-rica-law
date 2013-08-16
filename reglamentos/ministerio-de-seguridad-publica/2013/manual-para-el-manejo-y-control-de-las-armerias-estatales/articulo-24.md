@@ -1,0 +1,2 @@
+Artículo 24.—Todo el personal que genere un gasto de munición, por mínimo que sea, deberá de realizar un informe al Jefe(a) de la Armería, indicando las circunstancias en que se dio el gasto, esto para que el personal de la Armería proceda a realizar el correspondiente registro en el sistema de control.
+El Jefe de la Armería, mediante oficio y adjuntado el informe del funcionario(a), informará a su superior inmediato, para que se proceda a remplazar la munición faltante; así también, si es necesario, iniciar un proceso administrativo.
