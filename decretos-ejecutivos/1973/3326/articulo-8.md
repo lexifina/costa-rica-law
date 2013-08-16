@@ -1,1 +1,0 @@
-Artículo 8°—En la misma publicación a que se hizo referencia en el artículo anterior se indicará el día, hora y lugar para la celebración de la audiencia pública. Esta deberá ser celebrada al vencimiento del plazo otorgado.

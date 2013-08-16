@@ -1,1 +1,0 @@
-Artículo 3°—Toda solicitud para la modificación de las frecuencias, rutas o alteración de las escalas en las rutas aprobadas se sujetará a un trámite similar al establecido para el otorgamiento de los certificados originales, debiéndose conceder audiencia a los interesados por un plazo no mayor de quince días hábiles.

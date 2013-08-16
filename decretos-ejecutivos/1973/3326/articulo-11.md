@@ -1,1 +1,0 @@
-Artículo 11.—La celebración de la audiencia pública se efectuará puntualmente a la hora señalada en el aviso del Diario Oficial. Será presidida por uno de los miembros del Consejo Técnico de Aviación Civil o en su defecto, por el Director General de Aviación Civil. Podrán acudir a ella libremente todos los que se consideren interesados.

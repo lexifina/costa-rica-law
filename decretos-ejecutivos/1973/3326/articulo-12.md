@@ -1,1 +1,0 @@
-Artículo 12.—Los interesados podrán exponer verbalmente en la audiencia pública las objeciones a la solicitud del gestionante, ampliando lo manifestado en los escritos iniciales o sobre hechos nuevos, teniendo en dicha audiencia la máxima libertad para presentar y demostrar su oposición o defensa.

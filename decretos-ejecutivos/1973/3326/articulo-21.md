@@ -1,3 +1,0 @@
-Artículo 21.—El Consejo Técnico de Aviación Civil podrá autorizar prórrogas a los plazos de un certificado de explotación, para lo cual el gestionante deberá comprobar que ha cumplido satisfactoriamente con todas sus obligaciones y que además se justifica la continuidad del servicio.
-Para tal efecto, el Consejo ordenará la publicación de un aviso en el Diario Oficial otorgando quince días de plazo a los interesados para que presenten las objeciones que estimen convenientes, las que deberán cumplir con los requisitos exigidos por el artículo 10 de este Reglamento.
-Transcurrido dicho plazo y oportunidad para que los interesados se opusieran, el Consejo Técnico de Aviación Civil deberá dictar la resolución definitiva.
