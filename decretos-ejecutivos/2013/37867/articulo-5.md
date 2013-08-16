@@ -1,0 +1,1 @@
+Artículo 5º—Desempeño de los integrantes de la Comisión Especial. Los miembros de la Comisión Especial realizarán sus funciones en su jornada normal de trabajo; sin demérito de autorizar el pago de tiempo extraordinario según se requiera a los funcionarios públicos, previa justificación del coordinador de la Comisión Especial.

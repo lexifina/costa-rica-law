@@ -1,0 +1,5 @@
+Artículo 6º—Metodología de trabajo y entrega del producto. En un plazo de dos semanas, contados a partir de la conformación y oficialización de la Comisión Especial, sus miembros someterán a aprobación del Ministro de Obras Públicas y Transportes, una propuesta de protocolo y su metodología de trabajo, garantizando la legalidad, transparencia y el cumplimiento de los objetivos dispuestos en el presente Decreto Ejecutivo.
+La Comisión rendirá informes mensuales sobre el avance de sus actuaciones, los cuales dirigirá al señor Ministro, con copia al Consejo de Administración del CONAVI.
+El producto final se entregará en un plazo máximo de 4 meses, a partir de la aprobación por parte del señor Ministro del protocolo y de la metodología de trabajo, a que refiere el primer párrafo de este artículo. Ese plazo podrá prorrogarse por dos meses más, previa solicitud debidamente razonada por parte de la Comisión.
+Antes de rendir el Informe Final, el Consejo de Administración efectuará sus consideraciones generales, con base en los Informes de Avance.
+El Informe Final se remitirá al señor Ministro, para las acciones pertinentes.

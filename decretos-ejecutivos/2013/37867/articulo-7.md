@@ -1,0 +1,1 @@
+Artículo 7º—Deber de colaboración de los funcionarios del CONAVI y del MOPT. Todos los funcionarios del Consejo Nacional de Vialidad y del MOPT deberán colaborar con los miembros de la Comisión Especial, facilitándoles toda la información, documentación o cualquier otro requerimiento que la Comisión solicite en el plazo que esta establezca.
