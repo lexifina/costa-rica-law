@@ -1117,3 +1117,25 @@ Las frecuencias 462,5625; 462,5875; 462,6125; 462,6625; 462,6875; 467,5625; 467,
 1 1.117.1 Documento gráfico es todo soporte de información en el cual se registra de forma permanente un texto escrito o impreso o una imagen fija, y que es posible clasificar y consultar.
 2 1.125.1, 1.126.1 y 1.127.1 Por lo general, la explotación dúplex y la explotación semidúplex de un canal de radiocomunicación requieren el empleo de dos frecuencias: la explotación símplex puede hacerse con una o dos frecuencias.
 3 1.167.1 y 1.168.1 Los términos «interferencia admisible» e «interferencia aceptada» se utilizan en la coordinación de asignaciones de frecuencia entre administraciones.
+(*)Adendum VIII
+Criterios de diseño para radioenlaces de microondas
+Para el establecimiento de nuevos radioenlaces de microondas o reubicación de enlaces existentes, en segmentos de frecuencias de asignación no exclusiva, se deberá cumplir con las distancias mínimas establecidas a continuación:
+Distancias mínimas para el establecimiento de radioenlaces microondas
+Banda (GHz) | Segmento de Frecuencia (MHz) | Frecuencia Central (MHz) | Distancia recomendada (Km)
+3,6 | -- | 3600 | ≥ 33
+4 (banda baja) | 3800 a 4200 | 4000 | ≥ 28
+4 (banda alta) | 4400 a 5000 | 4700 | ≥ 24
+6 (banda baja) | 5925 a 6425 | 6175 | ≥ 21
+6 (banda alta) | 6425 a 7125 | 6775 | ≥ 13
+7 | 7110 a 7900 | 7505 | ≥ 7
+8 | 7725 a 8500 | 8112,5 | ≥ 3
+10 | 10 000 a 10 680 | 10 340 | ≥ 2,5
+11 | 10 700 a 11 700 | 11 200
+12 | 12 200 a 12 700 | 12 450 | ≥ 2
+13 | 12 700 a 13 250 | 12 975
+14 | 14 250 a 14 500 | 14 375 | ≥ 1
+15 | 14 400 a 15 350 | 14 875
+18 | 17 700 a 19 700 | 18 700 | >0
+23 | 21 200 a 23 600 | 22 400
+27 | 25 250 a 24 250 | 24 750
+(*) (Así adicionado el Adendum VIII) anterior por el artículo 1° del decreto ejecutivo N° 37936 del 16 de agosto del 2013)

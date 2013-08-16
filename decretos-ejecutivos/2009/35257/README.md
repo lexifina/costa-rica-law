@@ -18,3 +18,4 @@ Plan Nacional de Atribución de Frecuencias (PNAF)
 | 3 | 2011-08-01 | Decreto Ejecutivo 36754 (2011-08-01) |
 | 4 | 2012-03-14 | Decreto Ejecutivo 37055 (2012-03-14) |
 | 5 | 2012-06-25 | Ley 9046 |
+| 6 | 2013-08-16 | Decreto Ejecutivo 37936 (2013-08-16) |
