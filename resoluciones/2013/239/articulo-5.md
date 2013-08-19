@@ -1,0 +1,2 @@
+5. Adicionar el punto g a la sección 2) de Requisitos Generales, de la siguiente manera:
+Para la asignación de recursos de numeración, los operadores o proveedores solicitantes deberán ofrecer en forma gratuita a todos sus abonados, acceso al 911, el número de los bomberos, la policía, la Cruz Roja, así como a todos los servicios de reporte de averías, de trámites telefónicos, consulta de facturación, interposición de reclamaciones y centros de telegestión.
