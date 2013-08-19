@@ -23,10 +23,12 @@ a) El acuerdo SUGEF 1-05 Reglamento para la calificación de deudores en lo que 
 b) Lo estipulado en el Plan de Cuentas para Entidades Financieras, excepto para aquellos casos en que la pérdida estimada o estimación mínima provengan de normativa específica para valorar riesgo en activos, en cuyo caso se considerará como pérdida esperada esta última.
 5/ La Pérdida esperada en cartera de créditos es igual a la estimación mínima que las entidades deben mantener registrada al cierre de cada mes, según el Acuerdo SUGEF 1-05.
 ANEXO 2.1
-PROCEDIMIENTO PARA EL CÁLCULO DEL CALCE DE PLAZO A UNO Y TRES
-MESES [21]
-Este procedimiento consiste en ajustar en el calce de plazos las obligaciones a la vista con el público que desde el punto de vista contractual no tienen restricciones para su retiro. La herramienta evalúa la liquidez a través del “Índice de calce de plazos a un mes” y el “Índice de calce de plazos a tres meses”. El procedimiento que se propone para la medición de ambos indicadores se detalla a continuación:
-1. Se utiliza la información del calce de plazos acumulado a uno y tres meses, para lo cual se realizan los siguientes ajustes:
+PROCEDIMIENTO PARA EL CÁLCULO DEL CALCE
+DE PLAZO, POR MONEDA, A UNO Y TRES MESES
+Este procedimiento consiste en ajustar en el calce de plazos, por tipo de moneda, las obligaciones a la vista con el público que desde el punto de vista contractual no tienen restricciones para su retiro. La herramienta evalúa la liquidez a través del “Índice de calce de plazos a un mes” y el “Índice de calce de plazos a tres meses”, por tipo de moneda. El procedimiento que se propone para la medición de ambos indicadores se detalla a continuación:
+(Así reformado el párrafo anterior mediante sesión N° 1058 del 19 de agosto de 2013)
+1. Se utiliza la información del calce de plazos acumulado a uno y tres meses, por tipo de moneda, para lo cual se realizan los siguientes ajustes:
+(Así reformado el párrafo anterior mediante sesión N° 1058 del 19 de agosto de 2013)
 a. En el numerador que contempla la recuperación de activos, se sensibilizan las descoberturas con las inversiones no comprometidas que mantienen los supervisados en títulos valores emitidos por el Gobierno y el Banco Central de Costa Rica, y en títulos valores emitidos por gobiernos y bancos centrales de otros países que cumplan con las siguientes condiciones:
 i. monto de la emisión igual o mayor a 500 millones de dólares o su equivalente en euros,
 ii. denominado en dólares de los Estados Unidos de América o en euros y
@@ -60,7 +62,7 @@ Saldo cuenta 21103 * fluctuación máxima esperada a un mes
 A tres meses:
 Saldo cuenta 21101 * fluctuación máxima esperada a tres meses
 Saldo cuenta 21103 * fluctuación máxima esperada a tres meses
-vii. Una vez obtenido el monto correspondiente a la caída máxima potencial a un mes y a tres meses para cada supervisado, se procede a ajustar los índices de calce a uno y tres meses, de la siguiente forma:
+vii. Una vez obtenido elmonto correspondiente a la caída máxima potencial a un mes y a tres mesespara cada supervisado, se procede a ajustar los índices de calce a uno y tresmeses, de la siguiente forma:
 Calce a un mes:
 Numerador
 Del calce de plazos: (Ver capítulo 7 del manual de información del sistema financiero)
@@ -101,14 +103,14 @@ c. Cuando una entidad inicie operaciones, para efectos del cálculo de volatilid
 ANEXO 2.2
 DETALLE DEL CÁLCULO DEL INDICADOR DE RIESGO CAMBIARIO PARA LO ESTABLECIDO
 EN EL ARTÍCULO 7 DEL PRESENTE REGLAMENTO [22]
-Fórmula: [ (Valor absoluto de: Activos en moneda extranjera - pasivos en moneda extranjera) / Tipo de cambio de compra ] * (Variación máxima esperada en el tipo de cambio para un año) / (Capital base).
+Fórmula: [ (Valor absoluto de: Activos en moneda extranjera - pasivos en moneda extranjera) / Tipo de cambio de compra ](*) * (Variación máxima esperada en el tipo de cambio para un año) / (Capital base).
 Activos en moneda extranjera: De los saldos del plan de cuentas: sumatoria de todas las partidas de activo que tienen como sexto dígito el número 2 (No considerar las cuentas asociadas con el registro de estimaciones, tales como 129.02.2, 129.03.2, 129.04.2, 129.05.2, 129.06.2, 129.07.2, 129.08.2, 139.01.2, 139.10.2, 149.02.2, 149.04.2, 149.05.2, 149.07.2, 149.09.2, 159.01.2, 159.02.2, 159.03.2, 159.04.2, 159.05.2, 159.06.2, 159.07.2, 159.08.2, 159.09.2, 159.10.2, 169.01.2, 169.02.2, 169.03.2, 169.04.2, 169.05.2).
 Pasivos en moneda extranjera: De los saldos del plan de cuentas: sumatoria de todas las partidas de pasivo que tienen como sexto dígito un 2.
 Variación esperada en el tipo de cambio: La variación máxima esperada del tipo de cambio será calculada siguiendo un procedimiento similar al cálculo de la volatilidad utilizado para los índices de calce de plazos.
-a. Se calculan los crecimientos interanuales del tipo de cambio de compra para los últimos doce meses. Se toman los valores del último día del mes. Por crecimiento interanual se entiende el logaritmo natural resultante del tipo de cambio del último día de un determinado mes sobre el tipo de cambio del último día para ese mes del año anterior.
+a. Se calculan los crecimientos interanuales del tipo de cambio de compra para los últimos doce meses. Se toman los valores del último día del mes. Por crecimiento interanual se entiende el logaritmo natural resultante del tipo de cambio del último día de un determinado mes sobre el tipo de cambio (*) del último día para ese mes del año anterior.
 b. Se calcula la variancia de los crecimientos interanuales. Al valor obtenido se le calcula la raíz cuadrada.
 c. Al resultado del punto anterior se le aplica un nivel de confianza de 99% por lo cual es multiplicado por 2.33 veces.
-d. La variación absoluta esperada en el tipo de cambio es el producto del coeficiente obtenido en el punto anterior multiplicado por el tipo de cambio de compra del último día del mes.
+d. La variación absoluta esperada en el tipo de cambio es el producto del coeficiente obtenido en el punto anterior multiplicado por el tipo de cambio de compra (*) del último día del mes.
 (*)ANEXO 2.3
 DETALLE DEL CÁLCULO DEL INDICADOR DE RIESGO POR TASAS DE INTERÉS
 El indicador de riesgo por tasas de interés se calcula con la siguiente fórmula

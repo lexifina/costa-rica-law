@@ -58,17 +58,16 @@ EVALUACIÓN DE RENDIMIENTOS
 | Utilidad o Pérdida Acumulada Trimestral | 100.00% | | | | | Utilidades acumuladas trimestrales iguales o mayores al 0% | | Pérdidas acumuladas trimestrales iguales o menores al 5% del patrimonio promedio trimestral | | Pérdidas acumuladas trimestrales mayores al 5% pero iguales o menores al 15% del patrimonio promedio trimestral | | Pérdidas acumuladas trimestrales mayores al 15% del patrimonio promedio trimestral | 1.00
 (*)(Así reformado en sesión N° 852 del 20 de mayo de 2010)
 LIQUIDEZ
-Calce de plazos a un mes ajustado por la volatilidad
-50.0%
-1.00 V
-0.83 V
-0.65 V
-Calce de plazos a tres meses ajustado por la volatilidad
-50.0%
-0.85 V
-0.70 V
-0.50 V
-1.00
+Código | Nombre del indicador | Ponderación 1/ | Categoría de Riesgo | Nivel Normal | | Nivel 1 | | Nivel 2 | | Nivel 3
+[…] | | | | | | | | | |
+Liquidez
+| Calce de plazos, a un mes en moneda nacional, ajustado por la volatilidad | 100% el peor resultado en cualquiera de los indicadores | | | 1.00 V | | 0.83 V | | 0.65 V |
+| Calce de plazos, a tres meses en moneda nacional, ajustado por la volatilidad | | | 0.85 V | | 0.70 V | | 0.50 V |
+| Calce de plazos, a un mes en moneda extranjera, ajustado por la volatilidad | | | 1.10 V | | 0.91 V | | 0.72 V |
+| Calce de plazos, a tres meses en moneda extranjera, ajustado por la volatilidad | | | 0.94 V | | 0.77 V | | 0.55 V |
+[…] | | | | | | | | | |
+| | | | | | | | | | |
+(Así reformado el apartado de liquidez anterior mediante sesión N° 1058 del 19 de agosto de 2013)
 (**) SENSIBILIDAD A RIESGOS DE MERCADO
 Calificación cuantitativa obtenida por la entidad
 1.00
