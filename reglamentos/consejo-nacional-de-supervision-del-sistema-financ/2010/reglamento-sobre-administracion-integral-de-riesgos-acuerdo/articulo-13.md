@@ -6,4 +6,7 @@ c) Recomendar límites, estrategias y políticas que coadyuven con una efectiva 
 d) Conocer y promover procedimientos y metodologías para la administración de los riesgos.
 e) Proponer planes de contingencia en materia de riesgos para la aprobación de la Junta Directiva o autoridad equivalente.
 f) Proponer a la Junta Directiva u órgano equivalente, la designación de la firma auditora o el profesional independiente para la auditoría del proceso de Administración Integral de Riesgos, una vez verificado el cumplimiento por parte de este, de los requisitos establecidos en el artículo 19 de este Reglamento. En caso que la Junta Directiva u órgano equivalente decida separarse de la propuesta del comité, deberá razonar su decisión y hacerlo constar en el acta respectiva.
-g) Las funciones y requerimientos que le establezca la Junta Directiva o autoridad equivalente.
+g) Proponer para la aprobación de la Junta Directiva o autoridad equivalente, los sistemas y metodologías de medición del nivel de exposición al riesgo de crédito, incluyendo una metodología de análisis de estrés de sus deudores, actuales y potenciales.
+(Así adicionado el inciso anterior mediante sesión N° 1058 del 19 de agosto de 2013)
+h) Las funciones y requerimientos que le establezca la Junta Directiva o autoridad equivalente.
+(Así corrida la numeración del inciso anterior mediante sesión N° 1058 del 19 de agosto de 2013, que lo traspaso del antiguo inciso g) al h))
