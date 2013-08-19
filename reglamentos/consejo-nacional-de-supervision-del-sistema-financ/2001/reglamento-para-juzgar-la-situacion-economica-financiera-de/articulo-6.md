@@ -1,6 +1,12 @@
 Artículo 6.
-El elemento de liquidez, contendrá el calce de plazos a un mes, el calce de plazos a 3 meses, ambos índices ajustados por la volatilidad de las cuentas corrientes y depósitos de ahorro a la vista con el público. Asimismo será evaluado con el flujo de efectivo proyectado a dos meses plazo.
-Nivel normalNivel 1Nivel 2Nivel 3
-Calce de plazos a un mes ajustado por la volatilidadMayor o igual a 1.00 vecesInferior a 1.00 veces pero mayor o igual a 0.83 vecesInferior a 0.83 veces pero mayor o igual a 0.65 vecesInferior a 0.65 veces
-Calce de plazos a tres meses ajustado por la volatilidadMayor o igual a 0.85 vecesInferior a 0.85 veces pero mayor o igual a 0.70 vecesInferior a 0.70 veces pero mayor o igual a 0.50 vecesInferior a 0.50 veces
-Flujo de efectivo proyectado a dos mesesMayor o igual a 1.0 vecesInferior a 1.0 veces pero mayor o igual a 0.85 vecesInferior a 0.85 veces pero mayor o igual a 0.70 vecesInferior a 0.70 veces
+El elemento de liquidez contendrá el calce de plazos a un mes y el calce de plazos a 3 meses, cada uno de ellos separado en moneda nacional y moneda extranjera. Asimismo será evaluado con el flujo de efectivo proyectado a dos meses plazo.
+Para el cálculo de estos indicadores y la calificación del área de liquidez deberá seguirse el “Procedimiento para el Cálculo del Calce de Plazo a Uno y Tres Meses Ajustado por Volatilidad” contenido en el Anexo 2 de este Reglamento.
+La calificación del elemento de liquidez se realizará respecto de los siguientes parámetros:
+| Nivel Normal | Nivel 1 | Nivel 2 | Nivel 3
+Calce de plazos, a un mes en moneda nacional, ajustado por la volatilidad | Mayor o igual a 1.00 veces | Inferior a 1.00 veces pero mayor o igual a 0.83 veces | Inferior a 0.83 veces pero mayor o igual a 0.65 veces | Inferior a 0.65 veces
+Calce de plazos, a un mes en moneda extranjera, ajustado por la volatilidad | Mayor o igual a 1.10 veces | Inferior a 1.10 veces pero mayor o igual a 0.91 veces | Inferior a 0.91 veces pero mayor o igual a 0.72 veces | Inferior a 0.72 veces
+Calce de plazos, a tres meses en moneda nacional, ajustado por la volatilidad | Mayor o igual a 0.85 veces | Inferior a 0.85 veces pero mayor o igual a 0.70 veces | Inferior a 0.70 veces pero mayor o igual a 0.50 veces | Inferior a 0.50 veces
+Calce de plazos, a tres meses en moneda extranjera, ajustado por la volatilidad | Mayor o igual a 0.94 veces | Inferior a 0.94 veces pero mayor o igual a 0.77 veces | Inferior a 0.77 veces pero mayor o igual a 0.55 veces | Inferior a 0.55 veces
+Flujo de efectivo proyectado a dos meses | Mayor o igual a 1.0 veces | Inferior a 1.0 veces pero mayor o igual a 0.85 veces | Inferior a 0.85 veces pero mayor o igual a 0.70 veces | Inferior a 0.70 veces
+Las entidades supervisadas que al cierre del mes muestren una relación igual o menor al 5% para el total de pasivos en moneda extranjera respecto al pasivo total, se eximen del cálculo de los indicadores de calce a un mes y tres meses separados por tipo de moneda. En estos casos, los calces serán calculados sin dicha separación por tipo de moneda y se aplicarán los umbrales dispuestos para moneda nacional.
+(Así reformado mediante sesión N° 1058 del 19 de agosto de 2013)

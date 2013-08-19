@@ -24,11 +24,16 @@ Rentabilidad s/ Activo Productivo Promedio (RAP) 2/50.0% -- % 0.00%
 Rentabilidad nominal s/ Patrimonio Promedio (RSP) 2/50.0% -- % 0.00%
 -- % 1.00
 LIQUIDEZ
-Calce de plazos a un mes ajustado por la volatilidad 33.33333% 1.00 V
-0.83 V 0.65 V
-Calce de plazos a tres meses ajustado por la volatilidad33.33333% 0.85
-V 0.70 V 0.50 V 1.00
-Flujo de efectivo proyectado a 2 meses 33.33333% 1.00 V 0.85 V 0.70 V
+Código | Nombre del indicador | Ponderación 1/ | Categoría de Riesgo | Nivel Normal | | Nivel 1 | | Nivel 2 | | Nivel 3
+[…] | | | | | | | | | |
+Liquidez
+| Calce de plazos, a un mes en moneda nacional, ajustado por la volatilidad | 50% el peor resultado en cualquiera de los indicadores | | | 1.00 V | | 0.83 V | | 0.65 V |
+| Calce de plazos, a tres meses en moneda nacional, ajustado por la volatilidad | | | 0.85 V | | 0.70 V | | 0.50 V |
+| Calce de plazos, a un mes en moneda extranjera, ajustado por la volatilidad | | | 1.10 V | | 0.91 V | | 0.72 V |
+| Calce de plazos, a tres meses en moneda extranjera, ajustado por la volatilidad | | | 0.94 V | | 0.77 V | | 0.55 V |
+| Flujo de efectivo proyectado a dos meses | 50% | | | 1.00 V | | 0.85V | | 0.70V |
+[…] | | | | | | | | | |
+(Así reformado el apartado de liquidez anterior mediante sesión N° 1058 del 19 de agosto de 2013)
 (**)SENSIBILIDAD A RIESGOS DE MERCADO
 Riesgo por tasas de interés 50.0% 5.00% 20.00% 35.00%
 Riesgo cambiario 50.0% 5.00% 20.00% 35.00% 1.00
@@ -48,6 +53,7 @@ SENSIBILIDAD A RIESGOS DE MERCADO | | | | | | | | | |
 Riesgo por tasa de interés en colones | 25.0% | | | 5.00% | | 20.00% | | 35.00% | |
 Riesgo por tasa de interés en moneda extranjera | 25.0% | | | 5.00% | | 20.00% | | 35.00% | |
 Riesgo cambiario | 5 0.0% | | | 5 .00% | | 20.00% | | 35.00%) | |
+| | | | | | | | | |
 (Nota de Sinalevi: Mediante sesión N° 852 del 20 de mayo de 2010, se dispuso: "...XIV-Modificar la sección correspondiente a “Evaluación de Rendimientos” del Anexo 1 del Acuerdo SUGEF 27-00, de conformidad con el siguiente texto:
 Códi-go | Nombre del indicador | Ponderación 1/ | | Catego ría de riesgo | | Nivel Normal | | Nivel 1 | | Nivel 2 | | Nivel 3 | | Califica- ción
 EVALUACIÓN DE RENDIMIENTOS
