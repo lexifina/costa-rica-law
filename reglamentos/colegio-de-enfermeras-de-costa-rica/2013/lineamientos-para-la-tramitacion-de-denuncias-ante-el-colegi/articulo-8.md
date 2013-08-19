@@ -1,0 +1,1 @@
+Artículo 8°—La Fiscalía analizará el contenido y razonabilidad de la denuncia presentada. Si la misma contiene elementos suficientes y prueba idónea que permita valorar los hechos presentados, se aceptará la denuncia. De no cumplir con dicho requisito, la Fiscalía archivará la denuncia, emitiendo una resolución escrita para ello, la cual se archivara junto con la denuncia.

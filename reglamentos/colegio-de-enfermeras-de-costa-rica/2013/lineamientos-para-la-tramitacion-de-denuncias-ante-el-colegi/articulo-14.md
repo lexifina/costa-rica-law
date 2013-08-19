@@ -1,0 +1,1 @@
+Artículo 14.—La Fiscalía del Colegio con el fin de obtener mayor información podrá realizar inspecciones, entrevistas y requerir la información pertinente para el curso de la investigación. En caso de considerarse oportuno entrevistará al denunciado indicándole expresamente que se trata de una investigación preliminar y el procedimiento a seguir.

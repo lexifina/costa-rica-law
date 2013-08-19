@@ -1,0 +1,1 @@
+Artículo 18.—Todos los casos que reciba el Tribunal de Ética y Moral Profesional, deberán venir acompañados por el Informe de Fiscalía, en el que se indique los elementos por los cuales se remite la denuncia a estudio del Tribunal. En caso contrario el Tribunal podrá devolver el expediente para su aclaración o ampliación a la Fiscalía.

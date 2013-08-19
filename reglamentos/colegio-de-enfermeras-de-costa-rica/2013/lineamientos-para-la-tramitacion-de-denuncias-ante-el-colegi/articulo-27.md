@@ -1,0 +1,1 @@
+Artículo 27.—De previo a la realización de la Audiencia el Tribunal someterá a juramento a los testigos que serán interrogados, así como a los peritos quienes deberán rendir el informe en apego a la verdad y a lo solicitado.

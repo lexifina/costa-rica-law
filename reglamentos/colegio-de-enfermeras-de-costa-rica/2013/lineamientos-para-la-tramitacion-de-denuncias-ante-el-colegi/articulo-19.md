@@ -1,0 +1,1 @@
+Artículo 19.—El Tribunal será responsable por el cumplimiento de la normativa legal y reglamentaria correspondiente, asimismo por el cumplimiento de los plazos establecidos en el ordenamiento jurídico aplicable. Deberá resolver con imparcialidad y total apego a los hechos y al Derecho.

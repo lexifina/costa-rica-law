@@ -1,0 +1,1 @@
+Artículo 32.—Las partes no podrán interponer recurso alguno contra el Informe Final emitido por el Tribunal de Ética y Moral Profesional, únicamente la aclaración o adición sobre dicho informe ofreciendo las razones en las que funda su solicitud dentro del plazo de ocho días hábiles después de comunicado.

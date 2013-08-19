@@ -1,0 +1,1 @@
+Artículo 28.—Una vez evacuada toda la prueba ofrecida dentro del procedimiento, el Tribunal de Ética y Moral Profesional, estudiará las actuaciones y determinará mediante resolución fundada si es necesario solicitar una nueva prueba , en cuyo caso comunicará a las partes y convocará a una nueva audiencia.

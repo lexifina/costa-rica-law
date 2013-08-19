@@ -1,0 +1,1 @@
+Artículo 29.—Cumplidas las actuaciones, el Tribunal de Ética y Moral Profesional conferirá a las partes el plazo común de cinco días hábiles para que formulen por escrito sus conclusiones, bajo el apercibimiento de que en caso de no ser presentadas dentro del plazo conferido, serán rechazadas por extemporáneas.

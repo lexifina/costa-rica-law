@@ -1,0 +1,1 @@
+Artículo 25.—La prueba testimonial y pericial será evacuada por el Tribunal. Las partes podrán formular preguntas previa aprobación del Tribunal antes de ser contestadas. Mientras los testigos estén rindiendo declaración ninguna de las partes podrá intervenir o sugerir la respuesta.

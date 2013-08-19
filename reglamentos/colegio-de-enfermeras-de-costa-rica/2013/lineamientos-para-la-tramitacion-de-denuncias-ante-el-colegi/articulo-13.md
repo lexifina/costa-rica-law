@@ -1,0 +1,1 @@
+Artículo 13.—La Fiscalía del Colegio de acuerdo con sus facultades y una vez analizada la denuncia, podrá solicitar aclaración al denunciado, para que en un plazo de diez días hábiles aclare y complete la información.

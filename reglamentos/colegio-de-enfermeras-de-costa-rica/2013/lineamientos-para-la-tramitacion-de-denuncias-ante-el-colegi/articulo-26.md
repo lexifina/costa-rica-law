@@ -1,0 +1,1 @@
+Artículo 26.—El Tribunal de Ética y Moral Profesional, podrá solicitar, si lo considera necesario, al testigo o a las partes que abandonen temporalmente la sala, para debatir algunos aspectos del proceso. Reanudando el procedimiento luego de la discusión.

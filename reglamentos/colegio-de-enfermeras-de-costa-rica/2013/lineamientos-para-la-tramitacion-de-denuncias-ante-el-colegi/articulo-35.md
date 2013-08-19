@@ -1,0 +1,2 @@
+Artículo 35.—Contra el acto final emitido por Junta Directiva, cabra recurso de revocatoria, ante la misma Junta, el cual deberá ser interpuesto dentro del tercer día hábil siguiente a la notificación de lo que se recurra. Si la sanción que impone la Junta Directiva en ejercicio de la potestad disciplinaria corresponde a las que se refieren los incisos 1), 2) y 3) del artículo 109 del Código de Ética Profesional, el sancionado solo tendrá el recurso de revocatoria. La Junta Directiva agota la vía administrativa.
+Rige a partir de su publicación.

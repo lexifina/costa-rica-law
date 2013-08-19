@@ -1,0 +1,1 @@
+Artículo 5°—La Fiscalía del Colegio pondrá a disposición del denunciante un formulario de datos, el cual deberá ser presentado junto con la denuncia. Las denuncias podrán ser presentadas personalmente en el Colegio o bien vía fax o correo electrónico, siendo remitidas a la Fiscalía de inmediato.

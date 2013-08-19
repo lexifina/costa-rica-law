@@ -1,0 +1,1 @@
+Artículo 21.—El acto de intimación deberá contener al menos: mención sobre la competencia del Tribunal para dictar el acto, identificación de la persona disciplinable, una relación circunstanciada de los hechos que se imputan, el Derecho infringido y los derechos que le asisten al disciplinable.

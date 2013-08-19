@@ -1,0 +1,1 @@
+Artículo 33.—Contra las resoluciones del Tribunal de Ética y Moral Profesional, a excepción del Informe Final, cabra recurso de revocatoria, ante el mismo Tribunal, el cual deberá ser interpuesto dentro del tercer día hábil siguiente a la notificación de lo que se recurra.

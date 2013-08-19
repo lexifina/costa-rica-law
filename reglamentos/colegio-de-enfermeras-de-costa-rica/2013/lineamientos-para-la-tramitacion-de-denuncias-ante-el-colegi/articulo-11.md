@@ -1,0 +1,1 @@
+Artículo 11.—Queda terminantemente prohibido tramitar dos o más expedientes paralelos por los mismos hechos, contra la misma persona profesional en enfermería; y reabrir causas a las que mediante resolución se les ha puesto fin.
