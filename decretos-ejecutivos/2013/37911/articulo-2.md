@@ -1,0 +1,1 @@
+Artículo 2º—Para efectos de aplicación e interpretación del presente decreto, actividad agropecuaria de producción primaria agrícola o pecuaria consiste en el desarrollo de una operación económica que permite la obtención de productos vegetales o animales, incluye las áreas dedicadas al barbecho y zonas de protección de ríos y quebradas.

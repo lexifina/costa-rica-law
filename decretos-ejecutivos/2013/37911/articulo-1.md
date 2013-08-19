@@ -1,0 +1,17 @@
+N° 37911-MAG
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE AGRICULTURA Y GANADERÍA
+En ejercicio de las facultades establecidas en los artículos 140, incisos 3), 8) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978; Ley N° 7064 de 29 de abril de 1987 “Ley de Fomento a la Producción Agropecuaria FODEA y Orgánica del Ministerio de Agricultura y Ganadería, Ley N° 9071 del 17 de setiembre del 2012 “Ley de Regulaciones Especiales sobre la Aplicación de la Ley N° 7509, Ley de Impuesto Sobre Bienes Inmuebles de 9 de mayo de 1995, y sus reformas, para Terrenos de Uso Agropecuario, “Decreto Ejecutivo N° 30709-MAG-MOPT, del 17 de setiembre del 2002 y sus reformas, “Procedimiento Transitorio para la Revisión Técnica Vehicular de los Pequeños y Medianos Productores Agropecuarios”.
+Considerando:
+1º—Que el Sector Agropecuario está compuesto por toda actividad económica, proveniente del cultivo de la tierra, favorecida por la acción del hombre, el cual incluye la producción de alimentos vegetales y animales, acuacultura y apicultura; así como otros productos agropecuarios sin transformación posterior provenientes del campo, de ambientes protegidos o de tecnología hidropónica, orientadas al mercado y al consumo de subsistencia.
+2º—Que cada agricultor o propietario de un bien inmueble de uso agropecuario puede registrar voluntariamente ante el Ministerio de Agricultura y Ganadería (MAG) los datos de su inmueble y de toda actividad agropecuaria; con el propósito de confirmar la condición de “Pequeño y Mediano productor agropecuario” (PYMPA), en función a un conjunto de parámetros definidos en este Decreto.
+3º—Que la Ley N° 9071, Ley de Regulaciones Especiales sobre la aplicación de la Ley N° 7509, “Ley de Impuesto sobre Bienes Inmuebles”, del 9 de mayo de 1995, para Terrenos de uso Agropecuario; establece en el Transitorio V un procedimiento especial para que las declaraciones rendidas por los pequeños y medianos productores agropecuarios puedan ser revisadas y corregidas por las Municipalidades.
+4º—Que es necesario tener un instrumento que unifique el criterio para definir la condición de pequeño y mediano productor agropecuario y que el Ministerio de Agricultura y Ganadería puede visar tal condición en el marco de la Ley N° 7064, de la Ley N° 9071 y del Decreto Ejecutivo N° 30709-MAG-MOPT, entre los diversos servicios que debe recibir esa población meta.
+5º—Que el sistema de registro para visar la condición de pequeño y mediano productor agropecuario del Ministerio de Agricultura y Ganadería, podrá realizarse de forma manual o electrónica, según lo permita las condiciones.
+6º—Que cada productor debe rendir una declaración jurada con la información que aquí se indica, utilizando el formulario que para éstos efectos se define en el Anexo 1, y si cumple con el parámetro para ser catalogado como un pequeño o mediano productor agropecuario, el Ministerio de Agricultura y Ganadería, de forma electrónica o a través de un documento en forma gratuita lo acreditará como tal. Por tanto,
+Decretan:
+SISTEMA DE REGISTRO DEL MINISTERIO DE AGRICULTURA
+Y GANADERÍA, PARA CERTIFICAR LA CONDICIÓN
+DE PEQUEÑO Y MEDIANO PRODUCTOR
+AGROPECUARIO (PYMPA)
+Artículo 1º—Se crea el Sistema de Registro del Ministerio de Agricultura y Ganadería, para certificar en forma gratuita la condición de Pequeño y Mediano Productor Agropecuario (PYMPA).
