@@ -5,10 +5,13 @@ articulo-4.md
 articulo-5.md
 articulo-6.md
 articulo-7.md
+articulo-7-bis.md
 articulo-8.md
 articulo-9.md
 articulo-10.md
+articulo-10-bis.md
 articulo-11.md
+articulo-11-bis.md
 articulo-12.md
 articulo-13.md
 articulo-14.md
@@ -38,6 +41,7 @@ articulo-8-transitorio.md
 articulo-9-transitorio.md
 articulo-10-transitorio.md
 articulo-11-transitorio.md
+articulo-12-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
