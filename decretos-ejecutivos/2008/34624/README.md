@@ -15,3 +15,4 @@ Reglamento sobre el manejo, normalización y responsabilidad para la inversión 
 | --- | --- | --- |
 | 1 | 2008-07-17 | la propia norma |
 | 2 | 2009-10-23 | Decreto Ejecutivo 35587 (2009-10-23) |
+| 3 | 2013-08-19 | Decreto Ejecutivo 37908 (2013-08-19) |
