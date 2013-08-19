@@ -14,3 +14,4 @@ Plan Nacional de Seguridad Vial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-23 | la propia norma |
+| 2 | 2013-08-19 | Decreto Ejecutivo 37908 (2013-08-19) |

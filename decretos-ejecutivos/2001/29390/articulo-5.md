@@ -1,1 +1,1 @@
-Artículo 5º—Programas y proyectos para la ejecución del Plan Nacional de Seguridad Vial. Para la consecución de los programas y proyectos derivados de la implementación del Plan Nacional para la Seguridad vial y como parte de las estrategias a seguir para minimizar los accidentes de tránsito, la Comisión coordinará lo que corresponda con los Consejos Locales de Seguridad Vial. (COLOSEVIS).
+Artículo 5º—(Derogado por el artículo 2° del decreto ejecutivo N° 37908 del 19 de agosto del 2013)
