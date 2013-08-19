@@ -110,13 +110,14 @@ Concepto | 5%
 Asistencia | 5%
 (*)(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35480 del 10 de agosto de 2009)
 (*)(Así corrida la numeración del inciso anterior por el artículo 2° del decreto ejecutivo N° 37502 del 22 de enero de 2013, "Reforma parcial al Reglamento de Evaluación de los Aprendizajes atinentes a las Normas Reguladoras de la Promoción y Repitencia dentro del Sistema Educativo Costarricense, el Programa de Educación para la Afectividad y Sexualidad Integral y el Programa de Estudio de Educación para la Vida Cotidiana ", que lo traspaso del antiguo inciso j) al inciso l))
-(*)m) En III Ciclo de la Educación General Básica y la Educación Diversificada en los colegios artísticos, ambientalistas, deportivos y en todos aquellos otros de modalidad especial que apruebe el Consejo Superior de Educación en las asignaturas propias de la especialidad:
+(*)m) En III ciclo de la Educación General Básica y la Educación Diversificada, en la asignatura de Literatura en Lengua Inglesa, específica de los Liceos Bilingües Públicos y Liceos Experimentales Bilingües, así como en los colegios artísticos, ambientalistas, deportivos y en toda aquella otra modalidad especial que apruebe el Consejo Superior de Educación en las asignaturas propias de la especialidad:
 Trabajo Cotidiano | 45%
-Trabajo Extraclase | 20%
+Trabajo extra clase | 20%
 Pruebas (mínimo dos) | 25%
 Concepto | 5%
 Asistencia | 5%
 (*)(Así corrida la numeración del inciso anterior por el artículo 2° del decreto ejecutivo N° 37502 del 22 de enero de 2013, "Reforma parcial al Reglamento de Evaluación de los Aprendizajes atinentes a las Normas Reguladoras de la Promoción y Repitencia dentro del Sistema Educativo Costarricense, el Programa de Educación para la Afectividad y Sexualidad Integral y el Programa de Estudio de Educación para la Vida Cotidiana ", que lo traspaso del antiguo inciso k) al inciso m))
+(Así reformado el inciso m) anterior por el artículo 1° del decreto ejecutivo N° 37973 del 19 de agosto del 2013)
 n) Tanto en III Ciclo de la Educación General Básica, como en los talleres exploratorios y en las asignaturas prácticas de los IPEC y de los CINDEAS se calificará de la siguiente manera:
 Trabajo Cotidiano | 50%
 Trabajo Extraclase | 10%
@@ -190,4 +191,25 @@ Pruebas (mínimo una) | 20%
 Concepto | 5%
 Asistencia | 5%
 (*)(Así corrida la numeración del inciso anterior por el artículo 2° del decreto ejecutivo N° 37502 del 22 de enero de 2013, "Reforma parcial al Reglamento de Evaluación de los Aprendizajes atinentes a las Normas Reguladoras de la Promoción y Repitencia dentro del Sistema Educativo Costarricense, el Programa de Educación para la Afectividad y Sexualidad Integral y el Programa de Estudio de Educación para la Vida Cotidiana", que lo traspaso del antiguo inciso s) al inciso u))
+v) En III Ciclo de la Educación General Básica y la Educación Diversificada en los Liceos Bilingües Públicos y Liceos Experimentales Bilingües, en las asignaturas de Listening and Speaking (Escucha y Habla), asignaturas propias de la especialidad:
+Trabajo Cotidiano | 30%
+Trabajo extra clase | 15%
+Pruebas (mínimo dos) | 45%
+Concepto | 5%
+Asistencia | 5%
+(Así adicionado el inciso v) anterior por el artículo 2° del decreto ejecutivo N° 37973 del 19 de agosto del 2013)
+w) En III Ciclo de la Educación General Básica en los Liceos Bilingües Públicos y Liceos Experimentales Bilingües, en las asignaturas de Reading and Writing (Lectura y Escritura), asignaturas propias de la especialidad:
+Trabajo Cotidiano | 30%
+Trabajo extra clase | 10%
+Pruebas (mínimo dos) | 50%
+Concepto | 5%
+Asistencia | 5%
+(Así adicionado el inciso w) anterior por el artículo 2° del decreto ejecutivo N° 37973 del 19 de agosto del 2013)
+x) En la Educación Diversificada en los Liceos Bilingües Públicos y Liceos Experimentales Bilingües, en las asignaturas de Reading and Writing (Lectura y Escritura), asignaturas propias de la especialidad:
+Trabajo Cotidiano | 25%
+Trabajo extra clase | 10%
+Pruebas (mínimo dos) | 55%
+Concepto | 5%
+Asistencia | 5%
+(Así adicionado el inciso x) anterior por el artículo 2° del decreto ejecutivo N° 37973 del 19 de agosto del 2013)
 Las asignaturas anteriormente citadas de Educación Indígena (Lengua Indígena, Culturas Indígenas, Artesanía Indígena y Música Indígena, entre otros) se impartirán y calificarán únicamente en los centros educativos incluidos dentro del programa de instituciones educativas de zonas indígenas.
