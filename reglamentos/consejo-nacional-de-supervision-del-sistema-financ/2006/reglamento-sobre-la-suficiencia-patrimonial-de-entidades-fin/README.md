@@ -26,3 +26,4 @@ Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras
 | 11 | 2009-03-27 | Reglamento 781 (2009-03-27) |
 | 12 | 2010-05-13 | Reglamento 851 (2010-05-13) |
 | 13 | 2010-05-21 | Reglamento 853 (2010-05-21) |
+| 14 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
