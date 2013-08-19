@@ -15,3 +15,4 @@ Reglamento para la clasificación de deudores con operaciones otorgadas con recu
 | --- | --- | --- |
 | 1 | 2010-08-11 | la propia norma |
 | 2 | 2013-04-09 | Reglamento 1036 (2013-04-09) |
+| 3 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
