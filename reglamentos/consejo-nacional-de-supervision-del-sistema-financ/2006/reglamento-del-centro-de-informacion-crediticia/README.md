@@ -17,3 +17,4 @@ Reglamento del Centro de Información Crediticia
 | 2 | 2007-06-04 | Reglamento 650 (2007-06-04) |
 | 3 | 2007-11-26 | Reglamento 687 (2007-11-26) |
 | 4 | 2009-10-16 | Reglamento 813 (2009-10-16) |
+| 5 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
