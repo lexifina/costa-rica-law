@@ -8,7 +8,7 @@ Concejo Municipal de Barva, a la legislación vigente en materia de zonas especi
 6. (Derogado mediante sesión ordinaria N° 47-2013 del 12 de agosto del 2013)
 7. Dentro de los límites de zonas públicas destinadas como zonas verdes de parque, zonas de juegos infantiles o áreas de facilidades comunales.
 8. (Derogado mediante sesión ordinaria N° 47-2013 del 12 de agosto del 2013)
-9. En áreas residenciales o urbanizaciones que ya cuentan con un proyecto aprobado.
+9. (Derogado en sesión N° 48 del 19 de agosto de 2013)
 10. En cualquier caso donde no se cumpla de manera total con los requisitos y procedimientos establecidos en el presente Reglamento.
 11. En cualquier otra zona o predio donde sea expresamente prohibido por la legislación nacional.
 12. En postes ubicados en los derechos de vía municipales o nacionales.
