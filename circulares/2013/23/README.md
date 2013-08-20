@@ -13,3 +13,4 @@ Horario de atención de la Clínica Médico Forense
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-13 | la propia norma |
+| 2 | 2013-08-20 | Circular 142 (2013-08-20) |
