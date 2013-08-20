@@ -1,1 +1,0 @@
-Articulo 10.—La empresa, de previo a la ejecución de la campaña cooperativa integral, deberá presentar a la Unidad Coordinadora el diseño final de los anuncios para su aprobación, el cual debe incluir el logotipo correspondiente de Costa Rica.

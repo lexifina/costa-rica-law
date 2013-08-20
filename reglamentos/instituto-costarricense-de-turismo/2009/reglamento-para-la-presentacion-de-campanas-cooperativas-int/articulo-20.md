@@ -1,1 +1,0 @@
-Artículo 20.—La empresa deberá presentar un Informe Final de Resultados, a más tardar dos meses después del final del período convenido en el Plan de Medios de la Campaña Cooperativa Integral, así como los documentos correspondientes que demuestren que ha cumplido con lo pactado.

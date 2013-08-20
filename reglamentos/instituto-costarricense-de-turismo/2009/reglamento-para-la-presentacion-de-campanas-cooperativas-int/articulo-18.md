@@ -1,1 +1,0 @@
-Artículo 18.—Es responsabilidad de la Unidad Coordinadora informar a las empresas sobre los procedimientos que se estén realizando y el tiempo programado para la ejecución de los mismos; así como comunicar si el análisis de la propuesta de la campaña cooperativa integral procede o no, de acuerdo con las características del mercado, la empresa y lineamientos internos.

@@ -1,1 +1,0 @@
-Artículo 21.—Corresponderá a la Unidad Coordinadora, una vez realizada la campaña cooperativa integral, evaluar el informe remitido por el Socio Comercial para verificar el cumplimiento de los objetivos de la Campaña Cooperativa Integral, principalmente en cuanto a las características y condiciones convenidas.
