@@ -1,8 +1,7 @@
 Nº 31900
 EL PRESIDENTE DE LA REPÚBLICA
 EL MINISTRO DE EDUCACIÓN PÚBLICA
-Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
+Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
 En uso de las atribuciones que les confieren los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, La Ley General de la Administración Pública Nº 6227, del 2 de mayo de 1978 y la Ley de Promoción del Desarrollo Científico y Tecnológico Ley Nº 7169 del 26 de junio de 1990.
 Considerando:
 1º—Que la renovación de la enseñanza de la ciencia y la tecnología, por vías formales e informales, debe apuntar también a promover la comprensión pública de la ciencia y la tecnología como parte de la cultura.
@@ -17,6 +16,7 @@ En este sentido es necesario fomentar la introducción, el entendimiento y la ap
 9º—Que es necesario favorecer una mayor valoración social de la actividad científico-tecnológica, el fortalecimiento de la formación de nuestros estudiantes de niveles básicos y medio y de incrementar la formación de profesionales en los diversos campos de las ciencias, las ingenierías y demás carreras tecnológicas.
 10.—Que en el artículo 55 de la Ley Nº 7169 se establece la organización de la Feria Nacional de Ciencia y Tecnología, con el fin de estimular la creatividad, el espíritu investigador, el pensamiento científico y las habilidades y destrezas en el área científica y tecnológica de los estudiantes. Por tanto:
 DECRETAN:
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra, mediante decreto ejecutivo N° 37910 del 20 de agosto del 2013, publicado en La Gaceta N° 183 del 24 de setiembre del 2013, por lo que se reproduce a continuación:)
 Creación del Programa Nacional de Ferias de Ciencia
 y Tecnología e Inclusión en el Calendario Escolar
-Artículo 1º—Créase el Programa Nacional de Ferias de Ciencia y Tecnología, cuyo objetivo general es promover un cambio cultural a favor de la ciencia y la tecnología, insertando el conocimiento científico como estímulo en las nuevas generaciones de costarricenses, por medio de la exposición, presentación y discusión de los trabajos, estudios y proyectos elaborados por los estudiantes, quienes guiados por los docentes o tutores, han emprendido una investigación sobre un hecho, fenómeno o tema, aplicando el método científico y otros procesos científicos.
+Artículo 1º—Créase el Programa Nacional de Ferias de Ciencia y Tecnología (PRONAFECYT), cuyo objetivo general es promover un cambio cultural a favor de la ciencia y la tecnología, insertando el conocimiento científico como estímulo en las nuevas generaciones de costarricenses, por medio de la planificación, exposición, presentación y discusión de los trabajos, estudios y proyectos elaborados por los estudiantes, quienes guiados por los docentes o tutores a través de una mediación pedagógica pertinente, han emprendido una investigación sobre un hecho, fenómeno o tema, aplicando el método científico y otros procesos destinados al logro de habilidades de pensamiento científico.

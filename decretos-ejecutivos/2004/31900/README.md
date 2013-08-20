@@ -15,3 +15,4 @@ Creación del Programa Nacional de Ferias de Ciencia y Tecnología e Inclusión 
 | --- | --- | --- |
 | 1 | 2004-08-03 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2013-08-20 | Decreto Ejecutivo 37910 (2013-08-20) |
