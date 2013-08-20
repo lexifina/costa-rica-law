@@ -1,0 +1,1 @@
+Artículo 10.—Esta compensación económica es compatible con cualquier plus que no esté referido a la materia que se regula o al horario de trabajo; a saber Dedicación Exclusiva, Prohibición, Peligrosidad y Carrera Profesional.

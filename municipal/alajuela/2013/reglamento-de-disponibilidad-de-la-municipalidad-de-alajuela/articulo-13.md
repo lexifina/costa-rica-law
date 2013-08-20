@@ -1,0 +1,1 @@
+Artículo 13.—No obstante lo indicado en este reglamento, cuando por imperativo de las necesidades del servicio así lo demanden, los límites y horarios establecidos podrán ser variados para atender situaciones especiales de excepción. Estas disposiciones y variaciones le corresponderán a las partes definir los términos a seguir para el cumplimiento del contrato.

@@ -1,0 +1,7 @@
+Artículo 4º—Se consideran sujetos a este régimen de disponibilidad, aquellos que en razón de la necesidad institucional y por el tipo de actividad se encuentran dentro de los siguientes supuestos:
+a) Personal operativo de Obras y Servicios.
+b) Encargados de Obras y Servicios, así como acceso a la Bodega Municipal.
+c) Profesionales y especialistas indispensables en la atención de emergencias de ocurrencia frecuente, en el área de acueductos, obras u otras específicas.
+d) Jerarcas, y representantes institucionales que deban permanecer laborando en horas y días inhábiles, en razón de sus cargos y necesidad institucional. También el personal profesional y técnico de apoyo que deba permanecer disponible bajo las órdenes de dichos representantes.
+e) Personal encargado de representar a la Municipalidad ante la Comisión Nacional de Emergencias. Para tal efecto, deberá estar debidamente nombrada por la institución y por la Municipalidad.
+Estos sujetos serán aptos cuando deban prestarse en días y horas inhábiles, en donde por escasez de personal, emergencias, tipo de servicio o eventualidades que no se pueda cubrir de manera adecuada y que sea necesario disponer de algún personal, el cual solo se llama si se requiere.

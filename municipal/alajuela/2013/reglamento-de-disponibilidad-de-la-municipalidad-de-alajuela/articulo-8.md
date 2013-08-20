@@ -1,0 +1,1 @@
+Artículo 8º—La Oficina de Recursos Humanos, llevará el control y registro de los contratos por disponibilidad acordados por las partes. Como parte del control, cada unidad llevará una bitácora en donde especifique las horas y días extraordinarios que laboro bajo este régimen, descripción del trabajo, firma de la persona que trabajo y visto bueno de la jefatura.

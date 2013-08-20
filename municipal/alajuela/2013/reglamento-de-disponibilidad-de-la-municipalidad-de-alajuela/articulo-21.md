@@ -1,0 +1,1 @@
+Artículo 21.—Al personal se le suspenderá el plus de disponibilidad, si es trasladado a otra dependencia donde sus funciones no sean equivalentes con el pago, o por lo estipulado en el Art. 4 de este reglamento.

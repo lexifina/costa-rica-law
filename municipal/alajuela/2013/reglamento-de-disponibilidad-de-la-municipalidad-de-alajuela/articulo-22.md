@@ -1,0 +1,1 @@
+Artículo 22.—Al personal se le suspenderá el plus de disponibilidad si se presentara por más de un mes incapacitado o si disfruta de un permiso sin goce salarial mayor a un mes; el incentivo podrá ser aplicado por el resto del tiempo estipulado en el contrato.

@@ -1,0 +1,1 @@
+Artículo 9º—Optarán por la compensación de disponibilidad el personal que cumpla con los requisitos indicados en las normas establecidas en este reglamento, las disposiciones del Código Municipal y la debida justificación entre las coordinaciones solicitantes y Recursos Humanos.

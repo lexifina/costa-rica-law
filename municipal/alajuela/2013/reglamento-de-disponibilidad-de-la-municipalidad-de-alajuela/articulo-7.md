@@ -1,0 +1,1 @@
+Artículo 7º—El período de vigencia del contrato no deberá ser menor a un mes ni mayor a un año. El mismo podrá ser renovado conforme a los requerimientos y presupuestos del municipio. El contrato regirá a partir del día primero del mes siguiente a la firma por parte de la alcaldía Municipal y estando en firme ambas partes y del funcionario.

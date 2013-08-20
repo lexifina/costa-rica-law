@@ -1,0 +1,1 @@
+Artículo 15.—El personal que se acoja a este régimen, podrá renunciar y/o cambiar de horario de disponibilidad comunicándolo con 1 mes de anticipación como mínimo, a la jefatura para su aprobación y la jefatura a su vez deberá informar inmediatamente al Proceso de Recursos Humanos / (pero no podrá firmar otro contrato hasta que haya transcurrido un año.

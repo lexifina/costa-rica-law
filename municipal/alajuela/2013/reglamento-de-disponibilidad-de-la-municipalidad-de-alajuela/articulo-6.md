@@ -1,0 +1,1 @@
+Artículo 6º—Para tener derecho a esta compensación deberá suscribir un contrato de Disponibilidad con la el cual no podrá autorizar a más de un 5% de la población Municipalidad de Alajuela; se otorgará a juicio de la Administración Municipal en los casos que así lo ameriten y se justifique.
