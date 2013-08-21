@@ -1,1 +1,0 @@
-Artículo 2º—Para efectos del presente Reglamento, los vehículos de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE), son de uso administrativo, que son aquellas unidades que están destinadas a prestar servicios regulares de transporte, para el desarrollo normal de funciones y actividades de las diferentes dependencias de la CNE.

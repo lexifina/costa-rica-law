@@ -1,1 +1,0 @@
-Artículo 7º—Control de los vehículos. Todos los vehículos estarán sometidos a los programas de mantenimiento, control y abastecimiento, kilometraje y diligencias en caso de accidente de tránsito y cualquier otro que establezca este Reglamento.
