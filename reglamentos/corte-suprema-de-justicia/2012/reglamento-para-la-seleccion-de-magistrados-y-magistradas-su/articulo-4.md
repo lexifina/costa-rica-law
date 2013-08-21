@@ -1,4 +1,1 @@
-Artículo 4º—Concurso. El Departamento de Personal del Poder Judicial convocará a concurso público de antecedentes a través de los medios oficiales, a saber: correo electrónico interno, Boletín Judicial, aviso en dos periódicos de circulación nacional y publicación en la página Web del Poder Judicial.
-Para iniciar el proceso del concurso, la Secretaría General de la Corte comunicará al Departamento de Personal, como mínimo con cinco meses de antelación, el vencimiento del plazo ordinario de nombramiento de cada suplente.
-Cuando se produzca una vacante antes del vencimiento del plazo ordinario, la Secretaría General de la Corte comunicará lo correspondiente al Departamento de Personal, para que inicie de inmediato el proceso del concurso.
-El cartel de publicación indicará la información básica para participar en el concurso de acuerdo con lo establecido en la Constitución Política y la Ley Orgánica del Poder Judicial, así como la ubicación física o electrónica donde se podrán encontrar los detalles relacionados con el proceso.
+Artículo 4º—(Anulado por Resolución de la Sala Constitucional N° 11083 del 21 de agosto de 2013)

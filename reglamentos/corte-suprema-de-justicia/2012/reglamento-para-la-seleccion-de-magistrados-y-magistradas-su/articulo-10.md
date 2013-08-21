@@ -1,3 +1,1 @@
-Artículo 10.—Verificación de Antecedentes y Estudio Sociolaboral. Previo a la entrevista, el Departamento de Personal, en coordinación con cualquier otra oficina competente, deberá verificar los antecedentes personales, profesionales, éticos, administrativos, penales o de cualquier otra índole de quienes hubieran aprobado la Preselección.
-Esta verificación involucrará un estudio sociolaboral, por parte de un trabajador social, recurso que deberá proveer la institución al Departamento de Personal de forma temporal.
-Las diferentes oficinas judiciales que intervengan en esta verificación deberán suministrar al Departamento de Personal, toda la información que se les solicite, en forma ágil y oportuna.
+Artículo 10.—(Anulado por Resolución de la Sala Constitucional N° 11083 del 21 de agosto de 2013)

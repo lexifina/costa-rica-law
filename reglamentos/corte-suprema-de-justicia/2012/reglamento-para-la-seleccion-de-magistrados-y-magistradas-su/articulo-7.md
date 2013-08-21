@@ -1,1 +1,1 @@
-Artículo 7º—Guía de Calificación. El instrumento “Guía de Calificación” deberá ser aprobado por Corte Plena y en él se describirán las etapas del proceso de selección, los factores de calificación, el procedimiento para calcular los respectivos puntajes y la metodología para asignar la calificación final.
+Artículo 7º—(Anulado por Resolución de la Sala Constitucional N° 11083 del 21 de agosto de 2013)

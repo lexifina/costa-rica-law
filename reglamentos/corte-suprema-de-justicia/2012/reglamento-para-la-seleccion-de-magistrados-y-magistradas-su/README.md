@@ -13,3 +13,4 @@ Reglamento para la Selección de Magistrados y Magistradas Suplentes en las Sala
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-13 | la propia norma |
+| 2 | 2013-08-21 | SINALEVI (sin norma nombrada) |

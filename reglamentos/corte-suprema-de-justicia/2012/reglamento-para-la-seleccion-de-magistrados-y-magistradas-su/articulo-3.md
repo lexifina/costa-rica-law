@@ -1,2 +1,1 @@
-Artículo 3º—Obligatoriedad del procedimiento. Todas las Salas de la Corte deberán aplicar el procedimiento de selección que se establece en esta normativa, con la colaboración del Departamento de Personal del Poder Judicial.
-Para que una persona postulante al cargo de Magistrado o Magistrada Suplente integre la nómina que la Corte Suprema de Justicia remite a la Asamblea Legislativa para su designación, deberá ajustarse a lo dispuesto en el presente reglamento.
+Artículo 3º—(Anulado por Resolución de la Sala Constitucional N° 11083 del 21 de agosto de 2013)

@@ -1,2 +1,1 @@
-Artículo 13.—Nota final. Concluidas todas las entrevistas, quien preside la Sala correspondiente comunicará al Departamento de Personal el resultado de la segunda etapa. Este Departamento, informará a cada uno de los y las concursantes, la nota final obtenida.
-Quien alcance una nota final igual o superior a 70, adquiere la condición de “elegible” para este concurso y se incorporará en las listas que se enviarán a cada Sala.
+Artículo 13.—(Anulado por Resolución de la Sala Constitucional N° 11083 del 21 de agosto de 2013)
