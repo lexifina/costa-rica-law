@@ -1,0 +1,1 @@
+ARTICULO 5°.- De los deberes del Contralor. La Contraloría de Servicios será competente para actuar de oficio o a petición de parte, realizar investigaciones, visitar las dependencias del INCOP y requerir la información para el cumplimiento de sus funciones.
