@@ -1,0 +1,1 @@
+Artículo 2°—Por las compras de bienes y servicios mayores a ¢2.500.000,00 (dos millones quinientos mil colones exactos), se seguirán los procedimientos establecidos por la Ley de Contratación Administrativa y su reglamento de acuerdo a los limites generales de contratación dados por la Contraloría General de la República.
