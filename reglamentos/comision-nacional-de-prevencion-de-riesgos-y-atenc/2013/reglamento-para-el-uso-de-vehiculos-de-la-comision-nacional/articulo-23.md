@@ -1,0 +1,1 @@
+Artículo 23.—Tratándose de accidentes de tránsito, se prohíbe a los conductores y funcionarios autorizados, efectuar cualquier tipo de arreglo extrajudicial que no haya sido previamente consultado con el Proceso de Transportes y que se encuentre apegado a la normativa interna que sobre esta materia se comunique.

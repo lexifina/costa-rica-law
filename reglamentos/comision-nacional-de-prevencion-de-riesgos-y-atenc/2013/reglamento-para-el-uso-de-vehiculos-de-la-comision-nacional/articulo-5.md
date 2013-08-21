@@ -1,0 +1,1 @@
+Artículo 5º—Sobre la autorización de uso de vehículos de la CNE. El funcionario que solicite un vehículo de uso oficial cumplir el procedimiento que se establezca mediante los manuales operativos emitidos por el Proceso de Transportes de la Institución.

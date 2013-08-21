@@ -1,0 +1,4 @@
+CAPÍTULO VI
+De la autorización para conducir vehículos de la Comisión
+Nacional de Prevención de Riesgos y Atención de Emergencias
+Artículo 14.—De la legitimidad para conducir vehículos institucionales. Los vehículos de la CNE solamente serán conducidos por las personas autorizadas y cuya identificación expedida por la Unidad de Desarrollo Humano cuente con la firma de la Dirección Ejecutiva Institucional para tal efecto. Corresponderá al Proceso de Transportes velar por el fiel cumplimiento de esta norma. En casos extraordinarios, y fundamentados principalmente en la atención de una emergencia, podrá autorizarse a funcionarios públicos que formen parte de la Institución a conducir vehículos de la CNE, para lo cual el Proceso de Transportes deberá regular los requisitos y condiciones en un manual de acatamiento obligatorio.

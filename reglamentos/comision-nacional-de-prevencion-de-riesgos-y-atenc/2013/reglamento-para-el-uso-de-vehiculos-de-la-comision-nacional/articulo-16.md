@@ -1,0 +1,1 @@
+Artículo 16.—De la conducción de los vehículos de la CNE. Ningún funcionario conducirá vehículos de la CNE diferentes a los cuales fue autorizado con base en su tipo de licencia y según la indicación que el Proceso de Transportes indique en el formulario respectivo.

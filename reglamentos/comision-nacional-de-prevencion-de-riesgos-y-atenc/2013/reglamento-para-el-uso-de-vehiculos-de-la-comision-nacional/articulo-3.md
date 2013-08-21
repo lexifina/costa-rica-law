@@ -1,0 +1,1 @@
+Artículo 3º—De los distintivos en los vehículos institucionales. Sin excepción, todos los vehículos lucirán el Logotipo de la CNE, y los signos externos que establezca la normativa interna de la Comisión, los manuales específicos que se emitan por las unidades competentes y las leyes de la República que regulen los vehículos de uso oficial.
