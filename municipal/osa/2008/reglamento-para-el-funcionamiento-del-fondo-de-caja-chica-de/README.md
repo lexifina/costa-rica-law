@@ -14,3 +14,4 @@ Reglamento para el funcionamiento del fondo de caja chica de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-09 | la propia norma |
+| 2 | 2013-08-21 | Reglamento municipal 34 (2013-08-21) |
