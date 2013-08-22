@@ -1,1 +1,1 @@
-Artículo 33.—Del Personal. Cuando se requiera la contratación de personal por parte de la Junta Promotora está lo solicitará a la Junta Directiva del INCOP la cual con base en un estudio técnico decidirá en forma razona la solicitud.
+Artículo 33.- Del Personal. Cuando se requiera la contratación de personal por parte de la Junta Promotora ésta lo solicitará a la Junta Directiva del INCOP la cual con base en un estudio técnico decidirá en forma razonada la solicitud

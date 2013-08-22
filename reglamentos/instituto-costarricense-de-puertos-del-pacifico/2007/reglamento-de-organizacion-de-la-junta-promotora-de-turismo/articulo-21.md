@@ -1,1 +1,1 @@
-Artículo 21.—Recursos. Cualquier recurso que se presente contra los acuerdos o actuaciones de la Junta Promotora, se regirá por lo que dispone al respecto la Ley General de la Administración Pública.
+Artículo 21.- Recursos. Cualquier recurso que se presente contra los acuerdos o actuaciones de la Junta Promotora, se regirá por lo que dispone al respecto la Ley General de la Administración Pública.
