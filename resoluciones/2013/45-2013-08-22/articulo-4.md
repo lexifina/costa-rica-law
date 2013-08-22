@@ -1,0 +1,1 @@
+4°—Las aves de explotaciones con resultados positivos aSalmonella Gallinarum y las aves de contacto, solo podrán ser movilizadas bajo autorización de un Médico Veterinario Oficial del Servicio Nacional de Salud Animal.

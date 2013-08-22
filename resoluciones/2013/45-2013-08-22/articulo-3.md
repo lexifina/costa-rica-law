@@ -1,0 +1,1 @@
+3°—Los propietarios y administradores de las granjas avícolas, plantas procesadoras de aves u otras empresas relacionadas con la actividad avícola, deberán verificar el cumplimiento de lo anterior, lo cual podrá ser verificado por este Servicio Nacional, en el momento que considere oportuno.
