@@ -1,0 +1,6 @@
+MINISTERIO DE SALUD
+DAJ-RM-1803-2013.—Dirección de Asuntos Jurídicos. Ministerio de Salud. San José a los veinticuatro días del mes de julio del dos mil trece y a solicitud de la Dirección de Protección al Ambiente Humano, procede a publicar el siguiente aviso:
+“De conformidad con lo establecido en el artículo 4 inciso b) de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y el Decreto Ejecutivo Nº 37308-S del 30 de agosto de 2012, publicado en La Gaceta Nº 199 del 16 de octubre de 2012 “Reglamento para los Servicios de Alimentación al Público”, en el que se establece que para la verificación del cumplimiento de dicho Reglamento, las Direcciones de Áreas Rectoras de Salud del Ministerio de Salud aplicarán la Guía de Evaluación Sanitaria para Servicios de Alimentación al Público, para ello deben alcanzar la puntuación definida en la misma, por lo que se comunica a los interesados que la siguiente es la Guía de Evaluación Sanitaria para Servicios de Alimentación al Público que se aplicará:
+INSTRUCCIONES
+1º—Llene cada una de las tablas de acuerdo a las áreas que le aplique según el tipo de establecimiento, conforme se establece en el siguiente cuadro.
+[imagen]
