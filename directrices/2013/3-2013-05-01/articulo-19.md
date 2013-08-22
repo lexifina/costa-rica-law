@@ -1,0 +1,1 @@
+Artículo 19.—Los establecimientos inscritos en el SIRIGABB y que manejen ganado bovino o bufalino no identificados oficialmente deberán llevar registros de existencia, ingresos y salidas de dichos animales, sin detrimento de las regulaciones de movilización definidas en la Ley N° 8799 del 7 de mayo del 2010.

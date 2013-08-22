@@ -1,0 +1,6 @@
+Artículo 21.—Para mantener la Certificación de Rastreabilidad, los establecimientos deberán de cumplir con las siguientes condiciones, en los plazos y forma que se establezcan en el Procedimiento General para el Sistema Oficial de Identificación y Rastreabilidad Individual del Ganado Bovino y Bufalino:
+a) Mantener identificados y registrados oficialmente todos los bovinos o bufalinos del establecimiento y todos los nacimientos.
+b) Registrar todas las salidas e ingresos de animales oficialmente identificados en el establecimiento.
+c) Mantener el registro de bajas por muerte o robo, notificar la pérdida o deterioro del DIIO y registrar los eventos sanitarios de acuerdo con lo establecido en el Procedimiento General para el Sistema Oficial de Identificación y Rastreabilidad Individual del Ganado Bovino y Bufalino.
+d) Notificar por anticipado, en los plazos y forma que define el Procedimiento General para el Sistema Oficial de Identificación y Rastreabilidad Individual del Ganado Bovino y Bufalino, el ingreso al establecimiento de ganado bovino o bufalino no identificado oficialmente.
+e) Cumplir con las condiciones sanitarias que el SENASA ha establecido según la actividad zootécnica del establecimiento.

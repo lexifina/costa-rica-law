@@ -1,0 +1,1 @@
+Artículo 22.—La reutilización, alteración, falsificación, duplicación o cualquier uso indebido del DIIO, implicará la pérdida de la condición de rastreabilidad del animal sin perjuicio de las sanciones administrativas que correspondan en contra del infractor.

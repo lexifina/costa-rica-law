@@ -1,0 +1,1 @@
+Artículo 26.—Los incumplimientos a la presente Directriz, serán conocidos por el SENASA a los efectos de establecer las correcciones y sanciones administrativas que corresponda según la gravedad de la falta, de conformidad con lo establecido en el Capítulo IX y X de la Ley Nº 8495 del 6 de abril del 2006.

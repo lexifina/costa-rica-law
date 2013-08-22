@@ -1,0 +1,1 @@
+Artículo 13.—Los cambios en cuanto a propiedad o titularidad de los establecimientos proveedores y distribuidores de los DIIO, o bien el cese de su actividad, deben ser reportados por el responsable de los mismos al SENASA, en un plazo no mayor a diez días hábiles posteriores a su acaecimiento.

@@ -1,0 +1,1 @@
+Artículo 17.—La condición de rastreabilidad de cada individuo estará definida por la edad del animal al ser identificado oficialmente y por el registro de todos sus movimientos en el plazo y condiciones que establece el Procedimiento General para el Sistema Oficial de Identificación y Rastreabilidad Individual del Ganado Bovino y Bufalino.

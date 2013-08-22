@@ -1,0 +1,2 @@
+Artículo 5º—Quedan sujetos al cumplimento de esta Directriz todas aquellas personas físicas o jurídicas que de manera voluntaria soliciten al SENASA la incorporación de sus establecimientos al SIRIGABB y para lo cual suscribirá una carta de compromiso con el SENASA.
+El SENASA podrá establecer el cumplimento obligatorio de esta norma en todo su alcance o de forma parcial cuando existan razones sanitarias que lo justifiquen.
