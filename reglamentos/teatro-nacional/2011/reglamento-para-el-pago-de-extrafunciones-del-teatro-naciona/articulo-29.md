@@ -1,1 +1,1 @@
-Artículo 29.—Aplicación de la segunda función continua para el personal técnico. La segunda función continua aplicará para todo el personal técnico, una vez que este haya finalizado el tiempo laborado fijo o la primera función continua según sea el caso. En días libres del personal técnico o días feriados, el reconocimiento de la segunda función continua no estará supeditado al cumplimiento de una jornada laboral completa previo a la atención de un evento.
+Artículo 29.—(Derogado mediante sesión ordinaria N° 013 del 22 de agosto del 2013)

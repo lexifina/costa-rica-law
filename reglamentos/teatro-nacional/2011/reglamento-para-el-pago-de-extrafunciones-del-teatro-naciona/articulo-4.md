@@ -1,1 +1,1 @@
-Artículo 4º—Cargos de trabajo del personal técnico: el personal técnico que atiende los eventos del Teatro Nacional al término de la jornada ordinaria, en días de descanso del personal y feriados, está conformado por los siguientes cargos de trabajo: Director Técnico, Asistente de Director Técnico, Jefe de Iluminación, Personal de Iluminación, Personal de Sonido, Jefe de Tramoya, Personal de Tramoya y Encargado de Fotografía o Video.
+Artículo 4º—(Derogado mediante sesión ordinaria N° 013 del 22 de agosto del 2013)
