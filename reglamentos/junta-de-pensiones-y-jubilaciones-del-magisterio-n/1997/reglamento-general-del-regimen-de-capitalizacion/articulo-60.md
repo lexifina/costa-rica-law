@@ -1,4 +1,3 @@
-CAPÍTULO IV
-De las revisiones de las pensiones de vejez por reingreso
-Artículo 60.—Reingreso de los (as) pensionados (as) por vejez. El (la) pensionado(a) por vejez que reingrese a la vida laboral activa, deberá comunicar su alta laboral a la Junta.
-Esta regla aplica para los servicios remunerados para las entidades educativas que por Ley generen la obligación de cotizar para el RCC.
+Artículo 60.—Disfrute de las prestaciones de la pensión por invalidez, posterior al levantamiento. El (la) trabajador(a) rehabilitado(a) deberá gestionar su reincorporación a la actividad remunerada en el Magisterio Nacional, para lo cual la Junta, comunicará al Ministerio de Educación o Instituciones públicas o privadas donde se registre su último empleo, a efecto de que se le brinde la oportunidad de prestar sus servicios nuevamente.
+Durante el tiempo en que se gestione la colocación del (la) trabajador(a), la Junta pagará puntualmente las prestaciones por la pensión de invalidez que lo llevó a la pasividad laboral. En todo caso dicho plazo no podrá exceder de seis meses en forma improrrogable.
+(Así corrida su numeración mediante sesión ordinaria N° 093-2013 del 22 de agosto del 2013, que lo traspasó del antiguo 59 al 60)

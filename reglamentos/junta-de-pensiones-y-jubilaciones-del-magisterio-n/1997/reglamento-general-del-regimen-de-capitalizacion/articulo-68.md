@@ -1,1 +1,3 @@
-Artículo 68.—(Derogado mediante sesión N° 062 del 2 de junio de 2011)
+Artículo 68.—Pérdida del derecho de pensión por orfandad. Los mayores de dieciocho años y menores de veinticinco que se encuentren estudiando, deberán demostrar ante la Junta el rendimiento académico o técnico obtenido, según lo establecido en el inciso b) del artículo 36 de este Reglamento.
+Una vez acreditada esa información en el expediente, la Junta mediante resolución fundada podrá declarar la caducidad de la pensión por orfandad, la cual se notificará al interesado.
+(Así corrida su numeración mediante sesión ordinaria N° 093-2013 del 22 de agosto del 2013, que lo traspasó del antiguo 67 al 68)
