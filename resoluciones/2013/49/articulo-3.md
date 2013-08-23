@@ -1,0 +1,1 @@
+3°—Se ordena a la Dirección de Alimentos para Animales y a la Dirección Administrativa Financiera, tomen las previsiones administrativas que correspondan a los efectos de proceder conforme a lo señalado y se proceda conforme en relación a las solicitudes de los usuarios respecto de este servicio en forma inmediata.
