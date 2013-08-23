@@ -1,0 +1,1 @@
+Artículo 136: El presente reglamento entrará en vigencia en la fecha de la aprobación del Concejo Municipal o su publicación en diario oficial. Se procederá a reproducirle y entregar ejemplares a los funcionarios municipales en forma que lo designe la administración.

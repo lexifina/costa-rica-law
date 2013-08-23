@@ -1,0 +1,1 @@
+Artículo 49: En los casos que la denuncia esté dirigida a los jerarcas de la institución siendo estos el Alcalde o el Presidente del Concejo Municipal la denuncia será interpuesto en los tribunales Justicia o Ministerio de trabajo.

@@ -1,0 +1,1 @@
+Artículo 113: Una vez aprobada la concesión el interesado debe inscribir la concesión en el Registro General de Concesiones de la ZMT del Registro Público y la Municipalidad debe enviar copia de la concesión a dicho registro, lo anterior para que se ejecute la validez legal del contrato y se genere las consecuencias jurídicas.

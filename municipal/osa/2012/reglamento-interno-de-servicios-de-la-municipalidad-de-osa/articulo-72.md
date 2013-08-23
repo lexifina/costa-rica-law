@@ -1,0 +1,8 @@
+CAPITULO XXIV
+DE LA JORNADA DE TRABAJO
+Artículo 72: La jornada ordinaria de trabajo de los servidores administrativos se desarrollará dentro de los siguientes horarios: de 7:30 a.m. a las 4:30 p.m. de lunes a jueves, siendo el de los viernes de 7:30 a.m. a 3:30 p.m.
+La Jornada ordinaria para los peones municipales de desarrollará dentro de los siguientes horarios: de lunes a viernes 6:00 a.m. a las 3:30: pm, con excepción de los trabajadores cubiertos por el arreglo extrajudicial antes de la publicación de este reglamento.
+La Jornada ordinaria se desarrollara para los operarios se desarrollara dentro de los siguientes horarios: de lunes a viernes de 6:00 a 3:30 pm.
+La jornada de trabajo de guardas y toda actividad de trabajo donde la prestación de servicios debe comprender las veinticuatro horas del día, los servidores estarán en la obligación de rotar en los distintos turnos en que se dividan las veinticuatro horas, de acuerdo con los horarios que se establezcan.
+Dentro del horario establecido, los funcionarios gozarán de un lapso de 15 minutos a media mañana 9 AM y a media tarde 2 PM para el disfrute de un refrigerio, de media hora de almuerzo, atendiendo lista elaborada por el Departamento de Recursos Humanos a fin de mantener la continuidad en la atención del público y en caso de jefaturas por el Gerente Administrativo. Así mismo aquellos funcionarios que no dispongan disfrutar de los 15 minutos de refrigerio tanto en horas de la mañana como de la tarde podrán ampliar sus horarios de almuerzo.
+La Municipalidad podrá modificar los horarios establecidos, siempre que existan circunstancias especiales que así lo exijan y cuando no se cause perjuicio grave al servidor.

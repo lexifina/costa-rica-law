@@ -1,0 +1,1 @@
+Artículo 115: Se presume desistida la solicitud de concesión, si en el plazo de 6 meses o más, por motivos imputables al interesado, no consten solicitudes o actos para gestionar el proceso y obtener su concesión.

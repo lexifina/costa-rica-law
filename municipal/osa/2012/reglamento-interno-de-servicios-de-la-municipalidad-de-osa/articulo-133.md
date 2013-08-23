@@ -1,0 +1,1 @@
+Artículo 133: Que para efectos de declarar la Nulidad de los títulos o contratos que otorgan Derechos en la Zona Marítima Terrestre, se aplicara los procedimientos establecidos que indica la Ley General de la Administración Pública, artículos 173 y concordantes.

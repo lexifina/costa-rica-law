@@ -1,0 +1,1 @@
+Artículo 123: El interesado, el INDER o ICT, deben remitir al Registro General de Concesiones el testimonio de la protocolización de piezas efectuado por un Notario Público. La protocolización debe incluir, como mínimo, indicación del acuerdo municipal que prorroga la concesión y resolución del ICT o el INDER; de lo cual el notario debe de dar fe.

@@ -1,0 +1,6 @@
+Artículo 58: Para obtener el derecho a las vacaciones anuales, es necesario que el funcionario haya prestado sus servicios durante cincuenta y dos semanas continuas. Sin embargo, si por cualquier causa no completara ese plazo por terminación de su relación de servicio, o porque se le autorice a acogerse a las vacaciones antes de cumplir el periodo correspondiente, tendrá derecho a vacaciones proporcionales, conforme a las siguientes disposiciones:
+a. Un día por cada mes de trabajo, en los casos en que no se haya cumplido con las cincuenta y dos semanas.
+b. Un día punto trece (1.13) por cada mes trabajado, en los casos en que correspondiera disfrutar de diecisiete días hábiles de vacaciones.
+c. Uno punto cincuenta tres (1.53) por cada mes trabajado, en los casos en que correspondiera disfrutar de veintitrés días hábiles de vacaciones.
+d. Dos días punto cero seis (2.06) por cada mes trabajado, en los casos en que correspondiera disfrutar de treinta y un días hábiles de vacaciones.
+Para la determinación de los días hábiles, se excluirán los días de descanso semanal y los feriados establecidos por el artículo 147 del Código de Trabajo y los días de asueto que conceda el Poder Ejecutivo o inclusive El Concejo Municipal, siempre que el asueto comprenda a la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 16: La información contenida en el expediente y prontuario personal es de carácter confidencial y sólo tendrán acceso a él los funcionarios que los requieran exclusivamente para labores propias del cargo, además del servidor o su representante legal, debidamente acreditado como apoderado y la instancia judicial y que por mandato de Ley así lo requiera.

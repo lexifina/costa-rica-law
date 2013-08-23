@@ -1,0 +1,4 @@
+Artículo 108: Si existe omisión en el cumplimiento de alguno de estos requisitos, se otorgara al interesado 30 días naturales para subsanarlo, contados a partir del día siguiente de la notificación. Si no aporta lo requerido, la solicitud será archivada y no atenderán más gestiones al respecto, sin perjuicio de que el interesado la presente nuevamente, en caso contrario y siendo subsanado el defecto o prevención o presentado los requisitos en el plazo si defecto se procederá de la siguiente manera:
+a.) Se cobra edicto al interesado con identificación del solicitante.
+b.) Para oír oposiciones: se otorga el plazo de 30 días naturales luego de su publicación en la gaceta. Debe exhibirse una copia en la Municipalidad y remitir otra al ICT y al ITCO, en caso de zonas no turísticas.
+c.) Si procede inspección el interesado debe cancelar los gastos correspondientes: transporte y viáticos de conformidad con el artículo 35 del RLZMT).

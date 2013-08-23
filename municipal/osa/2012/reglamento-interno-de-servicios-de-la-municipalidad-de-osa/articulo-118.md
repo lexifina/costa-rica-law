@@ -1,0 +1,8 @@
+Artículo 118: Según el artículo 52 de la LZMT, indican que las concesiones de extinguirán por las siguientes razones:
+a.) Vencimiento del plazo sin haber tramitado la prórroga en tiempo.
+b.) Renuncia o abandono de los interesados.
+c.) Fallecimiento o ausencia legal (que debe ser declarada judicialmente de acuerdo con las disposiciones del Código Procesal Civil y el Código Civil), sin haberse llevado a cabo la adjudicación a los herederos.
+d.) Al respecto, el artículo 61 del RLZMT especifica que los herederos ocuparán el lugar del concesionario y deberán cumplir con los mismos derechos y obligaciones. Al no haber herederos, se extingue la concesión, de manera que las mejoras y edificaciones pasarán al dominio municipal. No obstante, en caso de que la Municipalidad desee trasladar el terreno objeto de la concesión al uso público por motivos de conveniencia general, debe cancelar el valor de las mejoras a los herederos; debiendo pagar conforme al avaluó que realice la Dirección Nacional de Tributación Directa para estos efectos.
+e.) Desacuerdo de la prórroga. Fundamentada en el artículo 51 de la LZMT, la prórroga de la concesión podrá ser denegada por los siguientes motivos: Que la parcela por utilidad pública o conveniencia general, sea destinada al uso público, que la parcela haya quedado ubicada físicamente en la Zona Pública, que la parcela sea requerida para desarrollar planes o desarrollos urbanísticos o turísticos aprobados por el INVU y el ICT.
+f.) Cancelación de la concesión la cual se da por incumplimiento de las obligaciones del concesionario de ley, reglamento o el contrato. En dicha denegatoria debe cumplirse con el debido proceso y razonarse la resolución.
+Cancelación de la concesión.

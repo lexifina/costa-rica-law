@@ -1,0 +1,1 @@
+Artículo 106: El solicitante deberá llenar la solicitud que para esos efectos brinda el Departamento de Zona Marítima Terrestre la cual deberá ser autenticada por un abogado y llevará el respectivo timbre del Colegio de Abogados. La solicitud deberá contener las especificaciones que indica el artículo 30 del Reglamento de la Ley Zona Marítima Terrestre.

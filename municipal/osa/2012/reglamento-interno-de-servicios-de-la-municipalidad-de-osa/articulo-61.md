@@ -1,0 +1,1 @@
+Artículo 61: El pago de vacaciones se hará con base en lo que establece el Código de Trabajo y lo establecido-por la Contraloría General de la República, a través de las circulares que esta emita al respecto.

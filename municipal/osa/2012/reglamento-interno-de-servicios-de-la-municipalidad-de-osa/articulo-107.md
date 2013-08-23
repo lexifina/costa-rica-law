@@ -1,0 +1,1 @@
+Artículo 107: La Municipalidad debe solicitar a la Dirección de Tributación Directa el evalúo de la parcela objeto d concesión, para determinar el monto el canon que se fijará en caso de otorgarse la concesión (art 49 y 50 del RLZMT)

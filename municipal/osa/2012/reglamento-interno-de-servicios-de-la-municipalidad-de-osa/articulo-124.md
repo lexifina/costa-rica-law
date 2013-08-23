@@ -1,0 +1,1 @@
+Artículo 124: Extinguida una concesión, el uso y disfrute pleno del terreno o parcela se revierten a la Municipalidad competente. Las concesiones podrán ser canceladas por parte de la Municipalidad competente, el ICT o el INDER, previo accionar que garantice el principio del debido proceso y cumplan con estipulado en el artículo 53 de la LZMT y los artículos 80 y 81 del RLZMT.

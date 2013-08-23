@@ -1,0 +1,1 @@
+Artículo 68: En los casos que estén debidamente justificados por presentarse alguna emergencia de tipo familiar, la jefatura del departamento estará facultada para otorgar el permiso correspondiente, siempre que no exceda de un día.

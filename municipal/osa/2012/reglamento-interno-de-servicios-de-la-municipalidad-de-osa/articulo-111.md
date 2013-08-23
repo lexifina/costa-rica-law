@@ -1,0 +1,2 @@
+Artículo 111: Una vez aprobada la concesión el Concejo Municipal deberá comunicar el acto al interesado, el cual tendrá un plazo de treinta días hábiles para firmar el Contrato, el cual deberá incluir todos los datos aportados en la solicitud, constancia del acuerdo municipal autorizando el otorgamiento de la concesión, monto de canon y ubicación de la parcela.
+Así mismo deberá depositar la anualidad del canon a favor de la Municipalidad.

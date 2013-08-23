@@ -1,0 +1,1 @@
+Artículo 85: Se considerará llegada tardía la presentación al trabajo después de quince minutos de la hora señalada para el comienzo de las labores en la jornada diaria, sea en la mañana o a la entrada después del almuerzo.

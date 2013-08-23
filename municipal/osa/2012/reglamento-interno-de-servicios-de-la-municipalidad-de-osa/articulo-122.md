@@ -1,0 +1,6 @@
+Artículo 122: Recibida la solicitud y corroborado el cumplimiento de las obligaciones del interesado, la solicitud será trasladada al ICT o al INDER, según corresponda. Estas instituciones deben emitir un pronunciamiento y notificar al interesado en el lapso de treinta días naturales.
+a.) Contra las resoluciones emitidas por la Municipalidad, por remisión del articulo 53 inc. D) del RLZMT, caben los recursos enunciados en el Código Municipal.
+b.) Recurso de Revocatoria ante el órgano que emitió el acto en el plazo de cinco días hábiles siguientes a la notificación.
+c.) Recurso de Apelación ante el Consejo Municipal en el plazo de cinco días hábiles. La resolución del Consejo Municipal tiene recurso de apelación ante el Tribunal Contencioso Administrativo, en su condición de jerarca impropio de las Municipalidades por ley. Aún en esta etapa, el asunto sigue ventilándose en la vía administrativa.
+d.) Si son resoluciones del ICT o el INDER caben los recursos de la Ley General de la Administración Pública o su legislación especial.
+Recibida la resolución en firme por el INDER o el ICT, la Municipalidad dispone de 30 días naturales para resolver la solicitud de prórroga. Contra dicha resolución, caben los recursos indicados.
