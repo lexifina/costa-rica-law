@@ -1,0 +1,12 @@
+Nº 37817-MAG
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE AGRICULTURA Y GANADERÍA
+En uso de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política y de conformidad con lo dispuesto en el artículo 19 y artículo 33, inciso i) de la Ley N° 7221 del 06 de abril de 1991, Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica.
+Considerando:
+1°—Que el artículo 19 de la Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica, N° 7221, señala que los servicios profesionales de avalúo que realicen los profesionales en Ciencias Agropecuarias y Forestales, serán retribuidos conforme a las tarifas de honorarios que apruebe el Poder Ejecutivo, previa consulta al Colegio de Ingenieros Agrónomos.
+2°—Que el artículo 33, inciso i) de la Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica, N° 7221, señala que es facultad de la Asamblea General “acordar y elevar al Poder Ejecutivo de la República, la promulgación de las tarifas de honorarios que deben regir el cobro de los servicios que prestan los miembros de este Colegio”.
+3º—Que mediante el Decreto Ejecutivo Nº 36705-MAG de 12 de julio del 2011, se estableció la metodología para calcular el arancel del Colegio de Ingenieros Agrónomos para el pago de honorarios por concepto de avalúos con fines hipotecarios y prendarios que requieran las entidades crediticias del sector público y privado, fijándose una fórmula para el cálculo de honorarios mínimos para operaciones de ¢4.000.001 en adelante, fórmula en la que se estableció que el “ipc” corresponde al índice de precios al consumidor acumulado a diciembre del año anterior según el Banco Central de Costa Rica, cuando en realidad ese “ipc” debe corresponder al índice de precios al consumidor registrado para el mes anterior a la fecha del avalúo, siendo necesaria su corrección.
+4°—Que en sesión N° 145 del 26 de enero del 2013, la Asamblea General del Colegio de Ingenieros Agrónomos aprobó la modificación del concepto de “ipc” indicado en el punto inmediato anterior. Por tanto,
+Decretan:
+Artículo 1º—Modifíquese el concepto de “ipc” consignado en la fórmula establecida en el inciso b) del artículo 1 del Decreto Ejecutivo Nº 36705-MAG de 12 de julio del 2011, para el cálculo de honorarios mínimos para operaciones de ¢4.000.001 en adelante, para que en lo sucesivo se lea de la siguiente forma:
+“ipc índice de precios al consumidor registrado para el mes anterior a la fecha del avalúo según el Banco Central de Costa Rica.”
