@@ -1,0 +1,3 @@
+Artículo 13.—Opciones para la prestación del servicio: El servicio de transporte de la institución se prestará mediante la utilización de los vehículos institucionales.
+También se podrá brindar servicio de transporte, utilizando medios de transporte público (taxi, autobús, entre otros), siempre y cuando sea autorizado de previo por el Jefe de Departamento, o el Secretario Ejecutivo.
+En el caso de que se tenga que utilizar un medio de transporte público, se le avisará al usuario o usuaria que debe utilizar esta opción, para lo cual se le brindarán los recursos necesarios para cancelar la prestación del servicio.

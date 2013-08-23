@@ -1,0 +1,2 @@
+Artículo 6º—Conducción de los vehículos: El conductor o la conductora del vehículo será responsable del uso correcto del mismo, por lo que su conducción estará a cargo de los funcionarios y funcionarias autorizados por su jefatura departamental o la Secretaría Ejecutiva.
+En casos especiales, también podrán ser conducidos por representantes del taller donde se les brinde mantenimiento o se solicite una gestión específica, previa autorización de la Sección Administrativa.

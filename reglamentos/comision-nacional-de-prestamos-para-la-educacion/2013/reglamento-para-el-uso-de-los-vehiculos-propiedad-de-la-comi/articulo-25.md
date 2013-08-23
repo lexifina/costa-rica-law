@@ -1,0 +1,1 @@
+Artículo 25.—Apoyo de la Asesoría Legal: Corresponderá a la Asesoría Legal, como unidad jurídica interna, brindar el soporte legal que la atención de los casos de accidente generen, en representación exclusiva de los intereses de CONAPE.

@@ -1,0 +1,1 @@
+Artículo 2º—Vehículos de la Institución: Se consideran vehículos propiedad de CONAPE todas aquellas unidades automotrices que la Institución haya adquirido, o que le hayan donado y se encuentren inscritas o en trámite de inscripción en el Registro de Bienes Muebles del Registro Nacional, a nombre de la Institución.

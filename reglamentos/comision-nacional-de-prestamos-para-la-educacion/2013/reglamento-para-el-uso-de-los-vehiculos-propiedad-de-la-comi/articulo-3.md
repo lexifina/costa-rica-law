@@ -1,0 +1,1 @@
+Artículo 3º—Clasificación de los vehículos. Todos los vehículos propiedad de CONAPE se clasifican en la categoría “De Uso Administrativo”, de conformidad con el artículo 239 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.

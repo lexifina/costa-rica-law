@@ -1,0 +1,1 @@
+Artículo 24.—Remisión de informe a otras unidades: En aquellos casos que lo amerite, la Sección Administrativa procederá a realizar un informe sobre lo acontecido, quien pondrá en conocimiento de la Sección de Recursos Humanos, en un plazo no mayor a cinco días hábiles, para efecto de determinar las eventuales responsabilidades de las funcionarias o los funcionarios implicados.

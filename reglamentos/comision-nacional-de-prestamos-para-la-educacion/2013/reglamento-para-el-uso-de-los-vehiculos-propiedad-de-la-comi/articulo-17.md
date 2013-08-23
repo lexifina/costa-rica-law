@@ -1,0 +1,1 @@
+Artículo 17.—Uso de vehículos fuera del país: Corresponderá al Secretario Ejecutivo de CONAPE autorizar la salida del país de los vehículos de CONAPE cuando las situaciones de trabajo así lo demanden, lo cual deberá constar en forma escrita.

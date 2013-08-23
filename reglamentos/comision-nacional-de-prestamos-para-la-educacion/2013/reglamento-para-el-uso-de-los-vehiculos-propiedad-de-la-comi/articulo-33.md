@@ -1,0 +1,1 @@
+Artículo 33.—Derogatoria: Se deroga el Reglamento para el uso de vehículos automotores propiedad de la Comisión Nacional de Préstamos para Educación, publicado en La Gaceta Nº 23 del lunes 03 de febrero de 1997, así como cualquier acuerdo o disposición administrativa que haya afectado esta materia.

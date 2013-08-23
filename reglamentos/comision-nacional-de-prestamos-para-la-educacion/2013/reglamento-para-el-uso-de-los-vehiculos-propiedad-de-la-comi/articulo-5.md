@@ -1,0 +1,1 @@
+Artículo 5º—Administración del servicio: Corresponderá a la Sección Administrativa de la Comisión Nacional de Préstamos para Educación el control sobre el uso, asignación y mantenimiento de los vehículos propiedad de CONAPE, debiendo velar por el cumplimiento de este Reglamento y demás normativa aplicable.

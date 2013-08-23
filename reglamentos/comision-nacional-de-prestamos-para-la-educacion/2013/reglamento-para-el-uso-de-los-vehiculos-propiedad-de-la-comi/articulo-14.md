@@ -1,0 +1,1 @@
+Artículo 14.—Inicio y finalización del servicio: CONAPE será el punto de partida y conclusión de un servicio de transporte, salvo que haya sido autorizado de cualquier otra manera en el formulario de salida del vehículo.

@@ -1,0 +1,6 @@
+Artículo 23.—Responsabilidades derivadas de la participación en un accidente:
+Será responsabilidad del conductor o conductora:
+a) Asistir y llevar a cabo todos los trámites judiciales que correspondan al accidente u otro evento, y presentarse a declarar ante el juzgado correspondiente dentro del plazo establecido al efecto, con el respectivo parte o infracción de tránsito. Al momento de rendir la declaración, deberá solicitar al juzgado que cualquier comunicación relacionada con el caso se le notifique mediante fax en la Comisión Nacional de Préstamos para Educación.
+b) Comunicar por escrito a la Jefatura de la Sección Administrativa, al menos la siguiente información: Autoridad judicial o Administrativa que conoce la causa, número de expediente y copia de la declaración rendida.
+c) Realizar un informe escrito sobre los hechos acontecidos, que entregará al Jefe de la Sección Administrativa y a su jefatura inmediata, en un plazo máximo de tres días hábiles posteriores al evento, siempre que no se encuentre imposibilitado para ello, en cuyo caso deberá efectuarlo en el momento que se reincorpore a sus labores.
+d) Mantener debidamente informado y actualizado al Jefe de la Sección Administrativa de todos los pormenores relacionados con el caso, para efectos de que esa instancia pueda realizar los trámites que corresponden en forma oportuna.

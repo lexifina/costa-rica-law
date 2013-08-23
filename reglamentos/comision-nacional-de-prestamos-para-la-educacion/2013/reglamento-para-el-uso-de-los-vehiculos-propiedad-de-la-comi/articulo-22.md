@@ -1,0 +1,1 @@
+Artículo 22.—Arreglos extrajudiciales: Bajo ninguna circunstancia se permite a funcionario o funcionaria efectuar ningún tipo de arreglo extrajudicial, sin contar de previo con el aval del Secretario Ejecutivo.

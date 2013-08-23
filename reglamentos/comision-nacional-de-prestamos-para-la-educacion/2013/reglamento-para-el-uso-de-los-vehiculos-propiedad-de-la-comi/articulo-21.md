@@ -1,0 +1,5 @@
+Artículo 21.—Excepciones de trámite: Si por la lejanía o por cualquier otra razón la autoridad policial no acudiere, o la entidad aseguradora no tuviera disponible alguna persona para la atención del accidente, quien ejerce la conducción del vehículo deberá seguir las indicaciones que vía telefónica le brinde la autoridad o la entidad aseguradora, además de comunicar dicha situación a la Jefatura de la Sección Administrativa en el término máximo de 24 horas, salvo caso de fuerza mayor, caso fortuito. En la anterior situación deberá:
+a) Recabar las características del o de los automotores implicados, tales como: número de placa, marca, estilo y color.
+b) Recabar los datos de quienes conducían los automotores implicados, nombre completo, número de cédula, número de teléfono, dirección y lugar de trabajo.
+c) Recabar los datos de testigos del accidente: nombre completo, número de cédula, número de teléfono, dirección y lugar de trabajo.
+d) En el caso de contar con el dispositivo respectivo, tomar fotografías del entorno y él o los vehículos involucrados.
