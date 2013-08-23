@@ -1,0 +1,1 @@
+Artículo 2º—La Ley de Subvención a las Juntas de Educación y Juntas Administrativas por las Municipalidades, Ley Nº 7552, y el presente Reglamento regularán los criterios de distribución y uso de los recursos provenientes de las Municipalidades para la subvención a las Juntas de Educación y las Juntas Administrativas, en lo sucesivo las Juntas.

@@ -1,0 +1,1 @@
+Artículo 13.—La Municipalidad realizará las gestiones necesarias para que diez días hábiles contados a partir de la notificación de la Dirección Regional de Educación sea efectivo el depósito en las cuentas correspondientes a las Juntas beneficiadas.

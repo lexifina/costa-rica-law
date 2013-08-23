@@ -1,0 +1,1 @@
+Artículo 19.—La Dirección Financiera del MEP solicitará a la Contraloría General de la República, en el mes de Enero de cada año, el monto oficial por concepto de ingresos del impuesto de bienes inmuebles que corresponde a cada Municipalidad para el período anterior y enviará dicha información a cada Dirección Regional de Educación.

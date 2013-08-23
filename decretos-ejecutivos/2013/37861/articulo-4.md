@@ -1,0 +1,1 @@
+Artículo 4º—Las Direcciones Regionales de Educación, con fundamento en lo señalado en el artículo anterior, serán las responsables de informar a la Municipalidad respectiva el monto que corresponde girar a cada una de las Juntas ubicadas en los cantones de la jurisdicción del Ente Municipal.

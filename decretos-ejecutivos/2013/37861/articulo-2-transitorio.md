@@ -1,0 +1,1 @@
+Transitorio Dos.—Cada Dirección Regional de Educación una vez recibido el reporte dispuesto en el transitorio uno, deberá asignar los recursos a cada junta, de conformidad con el lineamiento que para ello establezca la Dirección Financiera del MEP, por intermedio de su Departamento de Gestión de Juntas.

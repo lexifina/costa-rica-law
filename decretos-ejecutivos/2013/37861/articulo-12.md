@@ -1,0 +1,1 @@
+Artículo 12.—La Dirección Regional de Educación deberá notificar oficialmente, en Febrero de cada año, a la Municipalidad respectiva el monto que deberá girar a cada una de las Juntas. Esto según el lineamiento que para ello establezca la Dirección Financiera del MEP por intermedio de su Departamento de Gestión de Juntas.

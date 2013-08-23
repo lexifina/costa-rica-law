@@ -1,0 +1,1 @@
+Artículo 6º—La suma que recibirá cada Junta será determinada por el número de estudiantes matriculados en ese centro educativo. No obstante el diez por ciento (10%) de la subvención que se perciba deberá distribuirse en favor de las instituciones cuya matrícula total fuere igual o inferior a cien alumnos.

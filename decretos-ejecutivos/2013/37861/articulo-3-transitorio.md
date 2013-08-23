@@ -1,0 +1,1 @@
+Transitorio Tres.—El Departamento de Análisis Estadístico de la Dirección de Planificación Institucional ofrecerá la información de matrícula que requerirá la Dirección Regional de Educación para la aplicación del transitorio dos.

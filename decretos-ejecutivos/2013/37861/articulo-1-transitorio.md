@@ -1,0 +1,1 @@
+Transitorio Uno.—Cada Municipalidad deberá reportar a la Dirección Regional de Educación, el total de recursos pendientes de giro desde la entrada en vigencia de la Ley 7552 y hasta la fecha de rige del presente Reglamento, en un plazo no mayor a un mes posterior a la publicación del presente reglamento.

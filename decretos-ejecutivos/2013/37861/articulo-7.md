@@ -1,0 +1,1 @@
+Artículo 7º—Para cumplir con lo dispuesto en el artículo anterior el Departamento de Análisis Estadístico de la Dirección de Planificación Institucional del MEP deberá comunicar a cada Dirección Regional de Educación, en Enero de cada año, el último dato oficial de matrícula de que se disponga para esa jurisdicción y con la especificación para cada centro educativo.

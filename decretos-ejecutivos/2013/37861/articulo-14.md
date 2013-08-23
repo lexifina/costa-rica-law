@@ -1,0 +1,1 @@
+Artículo 14.—La Dirección Financiera del MEP por intermedio de su Departamento de Gestión de Juntas brindará asesoría a las Direcciones Regionales de Educación para la aplicación de los criterios dispuestos en el presente Reglamento.

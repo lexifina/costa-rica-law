@@ -1,0 +1,1 @@
+Artículo 18.—El Director (a) Regional será responsable de velar por que se apliquen correctamente los criterios de distribución establecidos en este Reglamento y los lineamientos técnicos, que para tal efecto establezca la Dirección Financiera del MEP por intermedio de su Departamento de Gestión de Juntas.

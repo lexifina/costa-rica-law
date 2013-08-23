@@ -1,0 +1,1 @@
+Artículo 9º—La Dirección Financiera del MEP por intermedio del Departamento de Gestión de Juntas, será el Ente encargado de establecer los lineamientos para que las Direcciones Regionales de Educación realicen la distribución de los fondos de manera estandarizada; en total apego a las criterios establecidos en este Reglamento y las normas de eficacia y eficiencia.

@@ -1,0 +1,1 @@
+Artículo 20.—La Dirección Regional de Educación verificará que lo reportado por el Gobierno Local coincida con el 10% del monto que oficialice el Ente Contralor, en caso de existir diferencias según la confrontación realizada coordinará con la Municipalidad para el ajuste correspondiente, que será efectivo en el mes de Enero del año siguiente.

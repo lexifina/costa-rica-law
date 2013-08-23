@@ -1,0 +1,1 @@
+Artículo 11.—Las Juntas una vez recibida la notificación por parte de la Dirección Regional de Educación deberán presupuestar los recursos de conformidad con la legislación vigente para estos efectos.
