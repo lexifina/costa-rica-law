@@ -1,0 +1,1 @@
+ARTÍCULO 15.- Quien impida, temporal o definitivamente, la realización de un evento deportivo incurrirá en prohibición de concurrir a recintos deportivos hasta por un año. Esta sanción se agravará a un año y medio, cuando la conducta sea realizada por dos o más personas.
