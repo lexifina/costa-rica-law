@@ -1,3 +1,5 @@
-Artículo 1º—Tributo, hecho generador y contribuyente. Créase un tributo único y definitivo por concepto del derecho de salida del territorio costarricense, que será cancelado por todas las personas que salgan del territorio nacional por vía aérea.
-El hecho generador del tributo creado en esta Ley ocurre en el momento en que cualquier persona salga del territorio nacional por vía aérea.
-Para estos efectos, se entenderá por salida del territorio nacional el momento en que las personas pasen los puestos oficiales de la Dirección General de Migración y Extranjería, en cada aeropuerto nacional, con el fin de salir del país por vía aérea.
+Artículo 1º—Tributo, hecho generador y contribuyente
+Se establece un impuesto único por concepto del derecho de salida del territorio nacional, equivalente en colones costarricenses a veintisiete dólares moneda de los Estados Unidos de América (US$27,00), calculados al tipo de cambio de referencia del día establecido por el Banco Central de Costa Rica. El impuesto será pagado por toda persona que salga del país utilizando cualquiera de los aeropuertos internacionales.
+Las autoridades del Servicio de Migración quedan obligadas a exigir el pago efectivo de este impuesto e impedirán la salida del país a aquellos que, estando obligados a pagarlo, no lo hicieran.
+Para los efectos de esta ley, se entenderá por salida del territorio nacional el momento en que las personas pasen los puestos migratorios, habilitados para el tráfico internacional de personas, de la Dirección General de Migración y Extranjería por los aeropuertos internacionales.
+(Así reformado por el artículo 1° de la ley N° 9156 del 25 de julio de 2013)
