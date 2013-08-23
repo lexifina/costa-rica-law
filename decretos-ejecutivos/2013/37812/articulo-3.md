@@ -1,0 +1,1 @@
+Artículo 3º—Que las instituciones que conforman el Sector Transporte, con la participación de la Secretaria Sectorial, deberán coordinar la planificación y ejecución de aquellos planes, programas y proyectos que requieran la intervención conjunta.

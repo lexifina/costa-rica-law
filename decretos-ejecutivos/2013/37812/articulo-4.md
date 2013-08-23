@@ -1,0 +1,1 @@
+Artículo 4º—Con el propósito de llevar a cabo una mejor coordinación interinstitucional, la Dirección de Planificación Sectorial, actuará con mando técnico en materia de planificación y deberá velar por una adecuada intermodalidad del Sector, dado que, esta Dependencia se encuentra liderando la implementación del Plan Nacional de Transportes 2011-2035.

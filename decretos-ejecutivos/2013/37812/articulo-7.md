@@ -1,0 +1,1 @@
+Artículo 7º—La Secretaría Sectorial deberá informar periódicamente al Ministro Rector del Sector Transporte y al Consejo Sectorial, sobre el avance de los planes y proyectos sectoriales. Para lo anterior, se requiere contar con la información oportuna de los órganos y entes del Sector, responsables del plan o proyecto.

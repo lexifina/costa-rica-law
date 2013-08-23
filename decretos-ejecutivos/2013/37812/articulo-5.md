@@ -1,0 +1,1 @@
+Artículo 5º—La Dirección de Planificación Sectorial que funge como Secretaría Sectorial del Sector Transporte, estará realizando reuniones periódicas con los Directores de Planificación de las instituciones del sector, con el propósito de coordinar la elaboración y seguimiento de los diferentes planes, programas y proyectos a desarrollar por el Sector.
