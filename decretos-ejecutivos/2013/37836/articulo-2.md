@@ -1,0 +1,1 @@
+Artículo 2°—Objetivo. El Consejo tendrá como objetivo definir, coordinar y ejecutar los lineamientos prioritarios de acción que permitan desarrollar el potencial económico y productivo de la zona, mediante aumentos continuos en sus niveles de productividad y competitividad.
