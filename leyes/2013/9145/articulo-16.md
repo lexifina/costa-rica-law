@@ -1,0 +1,1 @@
+ARTÍCULO 16.- Quien sin estar autorizado ingrese al campo de juego, vestuarios, baños o camerinos de los equipos u otros lugares restringidos, haciendo caso omiso de la advertencia de la autoridad de no ingresar, será expulsado del recinto deportivo e incurrirá en prohibición de concurrir a eventos deportivos hasta por seis meses.

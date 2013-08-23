@@ -1,0 +1,1 @@
+ARTÍCULO 22.- Las sanciones establecidas en esta ley serán aplicadas por el Ministerio de Seguridad Pública siguiendo el debido proceso establecido en la Ley General de la Administración Pública y sin perjuicio de las acciones penales y civiles que se deriven de las conductas sancionadas.

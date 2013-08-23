@@ -1,0 +1,3 @@
+ARTÍCULO 2.- Esta ley será aplicable a personas mayores de edad, tres horas antes, durante y tres horas después de un evento deportivo organizado por federaciones y asociaciones de representación nacional, avalado por el Instituto Costarricense del Deporte y la Recreación y en un perímetro de al menos cinco kilómetros del recinto deportivo en el que se efectúe.
+Será complementaria a la normativa vigente del Ministerio de Seguridad para regular el comportamiento en los eventos deportivos, así como del Instituto Costarricense del Deporte y la Recreación.
+El carácter de esta ley es administrativo, por lo que no altera los tipos penales o instituciones civiles existentes a su entrada en vigencia.

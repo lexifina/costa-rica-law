@@ -1,0 +1,1 @@
+ARTÍCULO 19.- Quien sea sorprendido en posesión, consumiendo o tratando de ingresar al recinto deportivo bebidas alcohólicas o drogas ilícitas será expulsado del recinto deportivo e incurrirá, además, en prohibición de concurrir a eventos públicos deportivos hasta por un año.
