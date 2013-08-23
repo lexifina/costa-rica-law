@@ -1,2 +1,0 @@
-Artículo 3º—Usuarios del servicio: Este Ministerio autoriza la asignación de teléfonos celulares a los siguientes funcionarios: Ministro, Viceministros, Oficial Mayor y Directores de Programas, en razón del cargo que desempeñan.
-Si por motivo de sus funciones cualquier otro funcionario(a), requiere contar con un teléfono celular del Ministerio, este debe ser autorizado por el Oficial Mayor, indicando las razones de necesidad ministerial que sustentan la asignación del activo.

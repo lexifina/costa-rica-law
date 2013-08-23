@@ -1,1 +1,0 @@
-Artículo 16.—La asignación de teléfonos celulares en los órganos Desconcentrados del Ministerio, debe ser aprobado por la Autoridad Superior del órgano y el Oficial Mayor del Ministerio, para lo cual debe emitirse la reglamentación interna que corresponda.
