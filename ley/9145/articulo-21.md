@@ -1,0 +1,1 @@
+ARTÍCULO 21.- La sanción de prohibición de concurrencia podrá ser reducida, hasta en la mitad, cuando se acceda voluntariamente a realizar cursos-talleres de educación para la paz y la no violencia en recintos deportivos y se obtenga su aprobación.
