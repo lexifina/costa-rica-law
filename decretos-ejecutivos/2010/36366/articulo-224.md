@@ -1,4 +1,3 @@
-Artículo 224.—Deróguese los siguientes Decretos Ejecutivos:
-1) Decreto Ejecutivo N° 32177 del primero de diciembre del 2004 y sus reformas. (Reglamento de Organización del Ministerio de Seguridad Pública, que antecede).
-2) Decreto Ejecutivo N° 28856 del veinticuatro de julio del dos mil. (Reglamento del Departamento Disciplinario Legal del Ministerio de Seguridad Pública).
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 223 al 224)
+Artículo 224.—El Departamento de Inspección llevará a cabo la verificación y el control para que las personas físicas y jurídicas, dedicadas a prestar el servicio privado de seguridad, cumplan los requisitos establecidos en el ordenamiento, incluyendo especialmente la Ley N° 8395, denominada Ley de Servicios de Seguridad Privados y su reglamento.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 207 al 208)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 208 al 224)

@@ -1,9 +1,13 @@
-Artículo 96.—Sin perjuicio de las facultades del (de la) Jefe del Departamento, a los (las) jefes de Sección les corresponderán las siguientes funciones:
-1) Velar por el fiel cumplimiento de las presentes disposiciones y por el buen funcionamiento de la Sección a su cargo.
-2) Coordinar, dirigir, distribuir y supervisar el trabajo entre el personal de la Sección a su cargo.
-3) Velar por que se cumplan en debida forma los procedimientos de instrucción disciplinaria de los asuntos asignados a la Sección bajo su cargo, para lo cual deberá suscribir en calidad de Jefe de Sección, las distintas actuaciones de tramitación necesarias para la buena marcha de los procedimientos, salvo los autos de apertura, resoluciones interlocutorias y resolución de recomendación final, los cuales corresponde suscribir al Jefe del Departamento Disciplinario Legal; no obstante el (la) Jefe de Sección, deberá revisarlos previamente y consignar su “visto bueno” de previo a ser firmados por el (la) Jefe del Departamento Disciplinario.
-4) Velar por el mantenimiento del orden y la disciplina del personal de la Sección a su cargo.
-5) Apoyar y dar seguimiento a los lineamientos y órdenes dictadas por la jefatura del Departamento.
-6) Asumir las funciones de la Jefatura del Departamento, por recargo, cuando así se le asigne en ausencia del titular.
-7) Todas aquellas que le sean asignadas por la Jefatura del Departamento Disciplinario.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 95 al 96)
+Artículo 96.—El Departamento de Mantenimiento Vehicular tendrá las siguientes funciones:
+1. Elaborar y ejecutar, en coordinación con los Programas Presupuestarios, el plan de mantenimiento preventivo y correctivo de los vehículos automotores del Ministerio.
+2. Mantener un registro actualizado con la información relevante de las reparaciones realizadas a los vehículos automotores.
+3. Gestionar y actualizar periódicamente el equipo mecánico-tecnológico necesario para brindar un servicio de calidad.
+4. Revisar los vehículos automotores asignados al Ministerio en calidad de préstamo y comodato, al momento de su recibo de entrega.
+5. Velar por que los vehículos automotores mantengan una condición mecánica que les permita obtener el documento de revisión técnica vehicular favorable.
+6. Coordinar con los talleres mecánicos ubicados en las diferentes regiones, según las necesidades específicas, el suministro y abastecimiento de los insumos y repuestos.
+7. Coordinar con los Programas Presupuestarios la priorización de las necesidades de los vehículos a reparar en talleres externos.
+8. Mantener un control de las tareas mecánicas que realizan los talleres mecánicos ubicados en las regiones.
+9. Mantener mecanismos de control que garanticen una ejecución adecuada de los contratos.
+10. Mantener actualizada la estrategia de mantenimiento, basándose esencialmente en los parámetros vigentes del Manual de Revisión Técnica.
+11. Realizar cualquier otra función propia de su competencia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)

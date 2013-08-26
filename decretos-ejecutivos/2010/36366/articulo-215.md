@@ -1,13 +1,9 @@
-CAPÍTULO X
-Dirección General de Armamento
-SECCIÓN I
-Normas generales
-Artículo 215.—La Dirección General de Armamento dependerá del (de la) Ministro (a) y tendrá las siguientes funciones:
-1) Autorizar, controlar, supervisar y fiscalizar el uso, manejo, custodia, guarda e inventario de las armas de fuego, municiones, explosivos y aditamentos utilizados por las fuerzas de policía del Estado, así como vigilar el cumplimiento de las disposiciones de la Ley de Armas y Explosivos y otras normas conexas y concordantes.
-2) Ejercer control sobre la inscripción, portación y fabricación de armas, municiones y explosivos, así como la actividad pirotécnica.
-3) Coordinar con la Dirección de Unidades Especializadas la ejecución de acciones policiales en cumplimiento de la normativa concerniente a armas y explosivos.
-4) Enviar el informe anual a la Contraloría General de la República, al (a la) Ministro (a) y a la Auditoria General del Ministerio, sobre el inventario de armas del Estado.
-5) Hacerse cargo y administrar el Museo de Armas.
-6) Desarrollar procesos una vez al año de auto evaluación de control interno y valoración de riesgo, según lo establecido en la Ley General de Control Interno.
-7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 214 al 215)
+Artículo 215.—Al Departamento de Investigación y Evaluación le corresponderán las siguientes funciones:
+1) Conducir investigaciones sobre temas de seguridad y policía que sirvan de insumo para la elaboración de políticas en el campo de la Enseñanza.
+2) Realizar diagnósticos, en coordinación con la Dirección General de la Fuerza Pública, sobre las necesidades de formación y capacitación de los servidores policiales, Reserva de la Fuerza Pública, oficiales de seguridad privada y recomendar ajustes a los programas de instrucción.
+3) Confeccionar y mantener actualizados los manuales de procedimientos.
+4) Evaluar los procesos de formación y capacitación en coordinación con el Departamento Académico.
+5) Brindar seguimiento, en coordinación con la Dirección General de las Fuerzas de Policía, a las labores policiales de los (las) egresados (as).
+6) Aquellas otras propias de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 198 al 199)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 199 al 215)

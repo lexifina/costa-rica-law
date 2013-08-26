@@ -1,11 +1,10 @@
-Artículo 171.—El Departamento Operativo Turístico tendrá las siguientes funciones:
-1) Desarrollar planes de acción preventivos, a partir de la información que suministre la Dirección de Operaciones.
-2) Identificar limitaciones y deficiencias que impidan el trabajo policial para realizar acciones que conlleven a la superación de éstas.
-3) Coordinar operativos con la Policía de Proximidad y las demás instituciones de gobierno relacionadas con el área de seguridad.
-4) Realizar evaluaciones de los procedimientos policiales desarrolladas por las Unidades de Seguridad Turística.
-5) Gestionar y elaborar documentos (Órdenes de Operaciones ante la Dirección de Operaciones, Órdenes de Servicio, Plegables, Cuadros Estadísticos, entre otros) que sean utilizados operacionalmente por las unidades policiales turísticas.
-6) Coordinar con el Departamento de Inteligencia Policial de la Dirección de Operaciones, la obtención de información de interés policial que permita el desarrollo de acciones, tanto en el plano estratégico como en el táctico, en materia de seguridad turística.
-7) Coordinar con la Dirección de Operaciones las acciones a desarrollar en zonas turísticas consideradas como sensibles o vulnerables a la comisión de delitos.
-8) Desarrollar estrategias de atención en seguridad turística, basados en diagnósticos realizados en el Departamento de Gestión Turística.
-9) Aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 170 al 171)
+Artículo 171.—La Unidad de Intervención Policial como unidad especializada de la Fuerza Pública, realizará las siguientes funciones:
+1) Controlar, mantener y restablecer el orden público y la seguridad en concentraciones de habitantes, reuniones en lugares de tránsito, manifestaciones y espectáculos públicos, cuando así sea requerido.
+2) Coadyuvar con las demás unidades de la Fuerza Pública en desalojos administrativos o judiciales, mantenimiento de los límites fronterizos o en desastres naturales o de origen antrópico.
+3) Colaborar con los órganos encargados del control, prevención y erradicación de drogas, así como participar en operaciones calificadas, autorizadas por la Dirección.
+4) Brindar colaboración operativa a los diferentes cuerpos de policía que conforman la Fuerza Pública.
+5) Realizar acciones operativas para proteger la integridad física del (de la) Presidente (a) de la República y sus colaboradores (as) o cualquier otro funcionario diplomático que así lo requiera, nacional o internacional.
+6) Colaborar con la Escuela Nacional de Policía en la capacitación de funcionarios policiales en materia de su competencia.
+7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 154 al 155)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 155 al 171)

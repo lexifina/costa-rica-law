@@ -1,8 +1,9 @@
-Artículo 95.—Al (a la) Jefe del Departamento Disciplinario Legal le corresponderán las siguientes funciones:
-1) Velar por el fiel cumplimiento de las presentes disposiciones y por el buen funcionamiento del Departamento, para lo cual debe realizar toda clase de diligencia propia de gestión administrativa como dependencia del Ministerio.
-2) Ordenar, dirigir y distribuir el trabajo entre las diferentes áreas que conforman el Departamento, así como dirigir y supervisar la labor de todos sus funcionarios.
-3) Emitir y suscribir necesariamente los actos resolutivos propiamente dichos: autos de apertura de procedimientos disciplinarios, resoluciones interlocutorias y la resolución final de recomendación que dirigirá al órgano decisorio respectivo.
-4) Velar por el mantenimiento del orden y la disciplina de los (las) funcionarios (as) del Departamento.
-5) Estimular al personal subalterno para el adecuado y eficiente cumplimiento de sus deberes y propiciar su superación personal, laboral y académica.
-6) Todas las demás que le señalen el (la) Ministro (a), el (la) Viceministro (a) y la normativa aplicable.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 94 al 95)
+Artículo 95.— La Sección de Control de Garantías tendrá las siguientes funciones:
+1. Coordinar la realización de las revisiones técnicas de garantías de los vehículos automotores generando las órdenes de trabajo respectivas.
+2. Informar a las distintas dependencias regionales del Ministerio ubicadas en todo el país en donde se asigna vehículos automotores en garantía, el detalle de la que incluye las revisiones técnicas de garantía, así como su periodicidad, según lo estipulado en el cartel de la contratación.
+3. Llevar un control de las citas de revisión de garantía por contratista, de todos los vehículos automotores en garantía y un inventario de las garantías vigentes.
+4. Solicitar a los encargados de transportes de vehículos automotores en garantía, la coordinación, para que se solicite antes de cumplirse el kilometraje o las horas uso, la correspondiente solicitud de revisión.
+5. Realizar solicitudes al área técnica competente, del contenido económico, cuando la garantía no cubre el daño y es fundamental su reparación.
+6. Realizar visitas a las agencias contratistas para dar seguimiento a los vehículos automotores en reparación y gestionar reclamos de inclusión de reparaciones de repuestos, cuando técnicamente se demuestra que los daños detectados son de fábrica o hay un deterioro acelerado irregular de algún componente del vehículo automotor.
+7. Realizar cualquier otra función propia de su competencia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)

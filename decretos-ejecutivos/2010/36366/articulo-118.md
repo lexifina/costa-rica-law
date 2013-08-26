@@ -1,14 +1,3 @@
-Artículo 118.—También estará adscrita a la Dirección General de la Fuerza Pública el Centro de Servicios de Transporte el cual se ocupará de las siguientes funciones:
-1) Diagnosticar el estado mecánico de los vehículos automotores y equipo móvil asignado al Ministerio y realizar las reparaciones pertinentes.
-2) Brindar el servicio de reparación y mantenimiento del equipo móvil que posee y administra el Ministerio.
-3) Mantener un registro actualizado con los datos generales de los vehículos automotores y el equipo móvil reparado, así como elaborar los informes a la Dirección General Administrativa y al Despacho del Ministro de las reparaciones realizadas a dicho equipo.
-4) Registrar y controlar el ingreso y egreso de repuestos y materiales, tanto nuevos como usados, evitando la adquisición innecesaria de estos y la subutilización o desuso de aquellos que ostenten vida útil.
-5) Realizar los estudios y trámites para la adquisición de los repuestos necesarios, evitando la adquisición innecesaria de estos y la subutilización o desuso de aquellos que ostenten vida útil.
-6) Emitir el criterio técnico de evaluación sobre los vehículos asignados a este Ministerio, cuando así sea requerido.
-7) Elaborar el plan de mantenimiento, cuido y uso anual de los vehículos asignados.
-8) Gestionar y actualizar periódicamente el equipo tecnológico necesario para brindar un servicio de calidad.
-9) Revisar y diagnosticar los vehículos asignados a este Ministerio, en calidad de préstamo o comodato, al momento de su recibo y entrega.
-10) Supervisar el funcionamiento de los talleres mecánicos ubicados en las diferentes regiones.
-11) Participar en la Comisión de Adjudicación de los vehículos del Ministerio que serán reparados por los talleres autorizados por el Instituto Nacional de Seguros.
-12) Cualquier otra propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 117 al 118)
+Artículo 118.—La prevención del delito se llevará a cabo, mediante la actuación de la Fuerza Pública y el desarrollo de estrategias para la colaboración, capacitación y concientización de los habitantes.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 101 al 102)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 102 al 118)

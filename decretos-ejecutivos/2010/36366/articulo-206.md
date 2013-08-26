@@ -1,5 +1,3 @@
-Artículo 206.—La Dirección de Servicios de Seguridad Privados estará integrada por tres departamentos:
-1) Departamentos de Registro y Licencias.
-2) Departamento de Inspección.
-3) Departamento Legal.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 205 al 206)
+Artículo 206.—Las delegaciones regionales tienen la responsabilidad de realizar investigaciones y operativos policiales en el área geográfica de su competencia, con la finalidad de detectar, prevenir, erradicar y reprimir actividades de tráfico ilícito de drogas, legitimación de capitales, desvío de precursores y químicos y otras actividades conexas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 189 al 190)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 190 al 206)

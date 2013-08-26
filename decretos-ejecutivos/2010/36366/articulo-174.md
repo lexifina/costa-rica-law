@@ -1,16 +1,14 @@
-SECCIÓN X
-Dirección de Programas Policiales Preventivos
-Artículo 174.—La Dirección de Programas Policiales Preventivos tendrá las siguientes funciones:
-1) Realizar operativos preventivos en coordinación con la Dirección General de la Fuerza Pública para prevenir la comisión de actos delictivos.
-2) Proponer y operacionalizar lineamientos que refuercen la acción preventiva de la Fuerza Pública, fortaleciendo las relaciones entre ésta y las comunidades.
-3) Brindar asesoría y capacitación en materia de prevención comunitaria a la Fuerza Pública para fortalecer la Estrategia de Policía Comunitaria.
-4) Promover el trabajo conjunto entre la Fuerza Pública, las organizaciones comunales, empresariales e instituciones públicas y privadas para la prevención del delito, de la violencia intrafamiliar y el consumo de drogas.
-5) Promover convenios, comisiones interinstitucionales, acuerdos de cooperación suscritos por el Ministerio de Seguridad Pública con organismos y entidades nacionales e internacionales para fortalecer los procesos de prevención comunitaria.
-6) Coordinar, supervisar y asesorar a las Direcciones Regionales de la Fuerza Pública sobre la ejecución de acciones en materia de prevención comunitaria.
-7) Desarrollar estudios en materia de prevención comunitaria para fortalecer los procesos de trabajo de la Dirección y de la Fuerza Pública.
-8) Realizar actividades de información y capacitación sobre temas de prevención comunitaria en coordinación con instituciones públicas o privadas.
-9) Capacitar en materia de prevención comunitaria y modelos de trabajo policial que involucren la participación ciudadana, en los cursos que brinda la Escuela Nacional de Policia.
-10) Documentar las actividades desarrolladas por la Dirección de Programas Policiales Preventivos, la Fuerza Pública y las comunidades en relación con la prevención comunitaria.
-11) Asesorar a las Direcciones Regionales de la Fuerza Pública en el proceso de selección de los (las) policías que implementan los programas preventivos en el país.
-12) Aquellas otras propias de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 173 al 174)
+Artículo 174.—La Unidad Especializada de Seguridad y Protección, como unidad especializada de la Fuerza Pública, realizará las siguientes funciones:
+1) Elaboración de Protocolos de Actuación de las sedes diplomáticas, residencias de embajadores y objetivos especiales de interés del Ministerio.
+2) Fiscalizar la implementación de protocolos de actuación elaborados para cada sede diplomática residencias de embajadores y objetivos especiales de interés del Ministerio.
+3) Proteger el perímetro interno y externo de las oficinas centrales del Ministerio las 24 horas del día, durante todos los días del año.
+4) Controlar la portación o utilización de armas dentro de las instalaciones del Ministerio de Seguridad Pública.
+5) Custodiar los bienes que se encuentren en calidad de decomiso, en las instalaciones centrales que comprende el Complejo Policial Juan Rafael Mora Porras.
+6) Facilitar las visitas al Ministerio de Seguridad Pública, a los miembros de los Supremos Poderes y diplomáticos, por lugares de ingreso restringido o no autorizado para visitantes.
+7) Controlar el ingreso y salida de personas y vehículos de las instalaciones de este Ministerio.
+8) Verificar el ingreso y salida de los bienes registrados como patrimonio de este Ministerio.
+9) Brindar información que oriente a las personas que visiten las instalaciones del Complejo Policial Juan Rafael Mora Porras.
+10) Brindar protección a los (las) jerarcas y personal que se encuentre en las oficinas centrales que comprende el Complejo Policial Juan Rafael Mora Porras.
+11) Aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 157 al 158)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 158 al 174)

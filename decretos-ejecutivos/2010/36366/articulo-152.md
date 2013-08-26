@@ -1,2 +1,6 @@
-Artículo 152.—La actuación de las unidades especializadas estará circunscrita únicamente a las atribuciones, deberes, competencia y potestades que le señale el ordenamiento, en especial, la Ley General de Policía y la Ley de Armas y Explosivos y sus reformas. Tendrán competencia en todo el territorio nacional.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 151 al 152)
+Artículo 152.—El Departamento de Planes y Operaciones tendrá tres Secciones:
+1) Sección de Planeamiento.
+2) Sección de Operaciones.
+3) Sección de Servicios de Transporte Policial.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 135 al 136)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 136 al 152)

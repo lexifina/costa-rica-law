@@ -1,9 +1,10 @@
-Artículo 155.—La Unidad de Intervención Policial como unidad especializada de la Fuerza Pública, realizará las siguientes funciones:
-1) Controlar, mantener y restablecer el orden público y la seguridad en concentraciones de habitantes, reuniones en lugares de tránsito, manifestaciones y espectáculos públicos, cuando así sea requerido.
-2) Coadyuvar con las demás unidades de la Fuerza Pública en desalojos administrativos o judiciales, mantenimiento de los límites fronterizos o en desastres naturales o de origen antrópico.
-3) Colaborar con los órganos encargados del control, prevención y erradicación de drogas, así como participar en operaciones calificadas, autorizadas por la Dirección.
-4) Brindar colaboración operativa a los diferentes cuerpos de policía que conforman la Fuerza Pública.
-5) Realizar acciones operativas para proteger la integridad física del (de la) Presidente (a) de la República y sus colaboradores (as) o cualquier otro funcionario diplomático que así lo requiera, nacional o internacional.
-6) Colaborar con la Escuela Nacional de Policía en la capacitación de funcionarios policiales en materia de su competencia.
-7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 154 al 155)
+Artículo 155.—La Sección de Servicios de Transporte Policial tendrá las siguientes funciones:
+1) Participar en las labores policiales, brindando el transporte a funcionarios (as).
+2) Procurar que el suministro de transporte se brinde de manera eficiente y oportuna.
+3) Facilitar el transporte de materiales, equipo y productos alimenticios a las Unidades Policiales.
+4) Brindar transporte a funcionarios (as), así como el traslado de suministros requeridos en casos de emergencia nacional.
+5) Brindar el servicio de transporte de funcionarios (as), cosas o mercaderías en cumplimiento de funciones policiales.
+6) Asignar los (as) conductores (las) policiales autorizados (as), cuando así se requiera, para las necesidades de las dependencias del Ministerio.
+7) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 138 al 139)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 139 al 155)

@@ -1,2 +1,3 @@
-Artículo 204.—La Escuela Nacional de Policía podrá contar con sedes regionales, con la finalidad de cumplir con sus objetivos y fortalecer el proceso de expansión y regionalización de dichas actividades. Sus instalaciones serán de uso exclusivo para las actividades docentes oficiales.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 203 al 204)
+Artículo 204.—Los documentos, las bases informáticas de datos y demás material informativo, que posee este Ministerio referentes a las investigaciones concluidas y activas, tendrán carácter estrictamente confidencial. El material informativo estará al servicio del personal de la Dirección, las dependencias autorizadas por el (la) Ministro (a) y las autoridades judiciales competentes.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 187 al 188)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 188 al 204)

@@ -1,17 +1,3 @@
-CAPÍTULO II
-Atribuciones y deberes de la Fuerza Pública
-Artículo 113.—La Fuerza Pública tendrá las siguientes atribuciones y deberes en concordancia con lo establecido en los artículos 8 y 10 de la Ley General de Policía:
-1) Ejecutar las políticas y acciones de seguridad ciudadana y nacional para el ejercicio y respeto a la Constitución Política, a la soberanía nacional, a la integridad territorial y el mantenimiento del orden público.
-2) Asegurar el respeto de los bienes, derechos y libertades de los (las) habitantes de la Nación.
-3) Velar por el cumplimiento de los tratados internacionales y la normativa jurídica que garantice el orden en las zonas fronterizas terrestres, incluidas las edificaciones públicas, diplomáticas, sedes aeroportuarias y donde se realizan actividades aduanales y migratorias.
-4) Ejecutar aquellas actuaciones policiales, dentro del ámbito de su competencia, que le sean debidamente requeridas por instituciones estatales, elaborando un informe y remitiendo los elementos probatorios, si así procede.
-5) Coordinar para que de manera pronta y eficaz, se efectúe o realice la captura de personas evadidas de las cárceles o prófugos de la justicia.
-6) Brindar auxilio y cooperación, dentro del marco de sus competencias, a gobiernos locales, instituciones del Estado, entidades de servicio público y en general a las comunidades.
-7) Colaborar en la prevención y represión del delito, con base en el principio de reciprocidad con aquellas organizaciones internacionales de policía y de conformidad con la normativa y los convenios vigentes.
-8) Velar por el cumplimiento de lo estipulado en la Ley de Armas y Explosivos y sus reformas.
-9) Mantener actualizados los registros e inventarios de armas, municiones, explosivos y equipos indispensables para el cumplimiento de sus funciones.
-10) Elaborar los registros necesarios para hacer constar las operaciones policiales, sus responsables, el personal que intervenga en el operativo, patrullaje o acción policial, así como el nombre completo y demás calidades de las personas detenidas, sus horas de ingreso y egreso de la unidad policial.
-11) Cumplir sus funciones sin limitación de horario, con el debido esmero, denuedo y dedicación, para el cumplimiento de lo dispuesto por el ordenamiento jurídico.
-12) Guardar estricta confidencialidad sobre la información obtenida de las investigaciones y operativos policiales llevados a cabo o en proceso.
-13) Los demás deberes y atribuciones señalados en el ordenamiento jurídico.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 112 al 113)
+Artículo 113.—Las faltas disciplinarias o irregularidades de los (las) servidores (as) que se desempeñen en el Departamento Disciplinario Legal, en cuanto a su instrucción y recomendación, serán tramitadas por funcionarios (as) de la Asesoría Jurídica del Ministerio de Seguridad Pública, según sea constituido el Órgano Director de Procedimientos para tales efectos.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 96 al 97)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 97 al 113)

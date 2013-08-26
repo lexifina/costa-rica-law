@@ -1,11 +1,16 @@
-Artículo 156.—La Unidad Canina, como unidad especializada de la Fuerza Pública, cumplirá las siguientes funciones:
-1) Detectar artefactos explosivos, armas, sustancias prohibidas, rastreo de fugitivos, secuestros y rescate de personas extraviadas, mediante la utilización de canes entrenados.
-2) Colaborar en la detección del tráfico nacional e internacional de drogas y explosivos en aeropuertos, puertos, fronteras y en cualquier otro sitio que se requiera.
-3) Realizar las acciones pertinentes para el adiestramiento eficaz de los canes.
-4) Buscar y rescatar, en caso de calamidad y/o conmoción Pública, a personas y bienes, en coordinación con grupos organizados de ayuda humanitaria.
-5) Colaborar, en forma recíproca, con otros países, en la búsqueda y rescate de personas extraviadas.
-6) Realizar acciones, con base en el principio de reciprocidad, con la finalidad de brindar capacitación a funcionarios y adiestramiento de canes, pertenecientes a cuerpos de policía nacional o internacional.
-7) Fiscalizar y verificar la certificación de los canes y guías de las unidades caninas privadas.
-8) Brindar colaboración al Organismo de Investigación Judicial en la búsqueda de evidencia, relacionada con algún acto delictivo.
-9) Aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 155 al 156)
+Artículo 156.—El Departamento de Inteligencia Policial tendrá las siguientes funciones:
+1) Recopilar, evaluar, tratar, analizar y difundir la información de interés policial que permita el desarrollo de acciones policiales con eficiencia y eficacia, tanto en el plano estratégico como en el táctico.
+2) Crear mecanismos que permitan la recopilación de información de interés policial en las diferentes unidades policiales e instancias vinculadas al sector de actividad con el fin de suministrar a la Dirección de Operaciones información de interés policial.
+3) Participar de las diferentes operaciones policiales con la finalidad de recopilar información y plantear recomendaciones para la toma de decisiones.
+4) Mantener un registro de información documental en materia de interés policial, así como de identificación dactilar.
+5) Fortalecer mediante convenios o políticas ya establecidas el intercambio de bases de datos, aplicaciones informáticas u otras que permitan mejorar y ampliar los servicios.
+6) Dirigir la actividad de inteligencia policial, en seguridad ciudadana enfocado a la prevención en el ámbito nacional.
+7) Planear y ejecutar las operaciones abiertas o encubiertas para la obtención de información policial utilizando tecnología de apoyo permitidas según el ordenamiento jurídico.
+8) Realizar diagnósticos con el fin de medir la eficacia y eficiencia de las operaciones policiales a través del análisis de la información.
+9) Asesorar y brindar capacitación en coordinación con la Escuela Nacional de Policía a los servidores policiales en materia de inteligencia policial.
+10) Coadyuvar en el planeamiento y ejecución de operativos policiales mediante el suministro de información constante en tiempo real y efectivo.
+11) Custodiar la información que se procesa y almacena en los diferentes sistemas y el buen uso de la misma.
+12) Recopilar, clasificar, procesar y difundir información cuantitativa y cualitativa, obtenida por el Ministerio en lo concerniente a las estadísticas de interés policial y proveer al Sistema de Estadística Nacional los datos requeridos para elaborar las estadísticas nacionales.
+13) Atender las consultas presentadas por funcionarios de las diferentes unidades administrativas, policiales y público en general, relacionadas con el campo de actividad.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 139 al 140)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 140 al 156)

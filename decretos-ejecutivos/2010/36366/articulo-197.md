@@ -1,12 +1,8 @@
-Artículo 197.—El Departamento Administrativo es el órgano de apoyo de la Escuela, subordinado a la Dirección y tendrá las siguientes funciones:
-1) Velar por la eficiencia administrativa de la Escuela y emitir recomendaciones a la Dirección que optimicen el uso de los recursos y la eficiencia de la Escuela.
-2) Preparar la información técnica administrativa para las instancias que lo requieran.
-3) Elaborar, ejecutar y evaluar, en coordinación con la Dirección y los departamentos, el presupuesto asignado, de acuerdo con las políticas del Ministerio.
-4) Coordinar con la Dirección de Recursos Humanos el óptimo reclutamiento y selección de personal de la Escuela Nacional de Policía, de acuerdo con los requisitos establecidos.
-5) Mantener el registro actualizado de los expedientes del personal y llevar los controles de asistencia, vacaciones, capacitación, permisos, incapacidades, suspensiones y demás aspectos que se refieran a la relación laboral administrativa de cada uno de los (las) integrantes del personal.
-6) Establecer, mantener, perfeccionar y evaluar el sistema de control interno de la Escuela. Asimismo, coordinar las acciones necesarias con el (la) Jerarca y titulares subordinados (as), para garantizar su efectivo funcionamiento, en las diversas áreas administrativas, logísticas y propias de la actividad ordinaria, tales como: alimentación, combustible, control de activos, mantenimiento, vehículos, y otros.
-7) Realizar las funciones de Secretaría Técnica del Consejo Académico.
-8) Tramitar los informes internos, quejas, reportes disciplinarios y otros documentos propios de las competencias del Departamento.
-9) Supervisar el buen estado de conservación y utilidad de las instalaciones físicas.
-10) Aquellas otras propias de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 196 al 197)
+Artículo 197.—El Departamento de Mantenimiento Aeronáutico tendrá las siguientes funciones:
+1) Mantener y reparar las aeronaves del Estado Costarricense para su aeronavegabilidad.
+2) Actualizar el registro de habilitaciones del personal técnico de mantenimiento aeronáutico.
+3) Cumplir, ejecutar y dar seguimiento a los programas de mantenimiento de las aeronaves de conformidad con las directrices del fabricante.
+4) Velar porque el personal de mantenimiento aeronáutico cumpla los procedimientos y disposiciones normativas para que las aeronaves se mantengan aeronavegables.
+5) Aquellas otras propias de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 180 al 181)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 181 al 197)

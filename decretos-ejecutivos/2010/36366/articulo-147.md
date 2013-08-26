@@ -1,12 +1,13 @@
-Artículo 147.—La Sección de Central de Comunicaciones tendrá las siguientes funciones:
-1) Operar la red de comunicaciones del Ministerio de Seguridad Pública y la interconexión con frecuencias externas, públicas o privadas, de interés policial.
-2) Administrar el protocolo operacional de las comunicaciones y coordinar el enlace de los usuarios con las cadenas del sistema de información.
-3) Brindar soporte operacional en la recepción y transmisión de mensajes, a través de sistemas de radiocomunicación y telefonía, mediante el empleo de claves establecidas.
-4) Establecer y asignar códigos y claves, para uso de las diferentes dependencias del Ministerio de Seguridad Pública.
-5) Implantar procedimientos para operar los sistemas de automatización de los equipos de radiocomunicación y sus programas.
-6) Comunicar a la Dirección General de la Fuerza Pública, la incidencia delictiva generada, a través del Sistema de Emergencias 9-1-1, así como por medios radiales y telefónicos.
-7) Mantener comunicación con centros de comunicación de entes públicos y privados (Organismo de Investigación Judicial, Cruz Roja, Bomberos, INAMU).
-8) Tomar decisiones en los operativos policiales que se generan en caso de actos delictivos, como: asaltos, robo de vehículos, manifestaciones y otros.
-9) En caso de desastres naturales, accidentes aéreos, poner en práctica el protocolo del Comité Asesor Técnico correspondiente, paralelamente, transmitir la información constante a los (las) superiores (as): Ministro (a), Viceministro (a), Director (a) General de la Fuerza Pública.
-10) Elaborar reportes e informes sobre incidencias, los cuales son remitidos a los superiores.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 146 al 147)
+Artículo 147.—La Guardia Presidencial, tendrá rango de Departamento y dependerá de la Dirección General de la Fuerza Pública. Cumplirá las siguientes funciones, sin perjuicio de las establecidas para la Fuerza Pública:
+1) Proteger el perímetro interno y externo de la Casa Presidencial, las 24 horas del día, durante todos y cada uno de los días del año, así como la residencia del (de la) Presidente (a) de la República.
+2) Brindar información y orientación al público, protección al personal y visitantes que se encuentren en la Casa Presidencial.
+3) Controlar la portación y/o utilización de armas dentro de las instalaciones de la Casa Presidencial y los sitios adyacentes.
+4) Verificar el ingreso y salida de los bienes y activos asignados, así como los registrados como patrimonio de la Casa Presidencial y de la Fundación para el Rescate y Protección del Patrimonio de la Casa Presidencial.
+5) Controlar el ingreso y salida de personas y vehículos.
+6) Custodiar los bienes asignados a la Casa Presidencial.
+7) Colaborar y apoyar a la Escolta Presidencial en las labores de seguridad del (de la) señor (a) Presidente (a) de la República, su esposa (o) e hijos.
+8) Coordinar acciones con otros cuerpos de seguridad, nacionales o internacionales, en caso de eventos o visitas que se realicen a la Casa Presidencial.
+9) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+Para los efectos del presente reglamento, el término “Casa Presidencial” se usa indistintamente de “Presidencia de la República” y “Ministerio de la Presidencia”.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 130 al 131)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 131 al 147)

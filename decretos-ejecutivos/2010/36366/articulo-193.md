@@ -1,8 +1,9 @@
-Artículo 193.—La Dirección tendrá, además de los deberes y responsabilidades establecidas en otras disposiciones normativas, las siguientes:
-1) Valorar y ejecutar las políticas y lineamientos acordados por el Consejo Académico.
-2) Elaborar y proponer el plan anual de formación y capacitación; así como, el de presupuesto de la Escuela.
-3) Presidir el Consejo de Instructores.
-4) Conocer y resolver los reclamos interpuestos por los estudiantes en asuntos académicos.
-5) Conocer y resolver, las solicitudes de convalidación que le sean presentadas, según lo dispuesto en el Reglamento de Servicio de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública, de conformidad con las disposiciones institucionales que se establezca al efecto. Previo estudio y recomendación que realice el Departamento Académico.
-6) Aquellas otras propias de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 192 al 193)
+Artículo 193.—Al Departamento de Investigación y Desarrollo le corresponderán las siguientes funciones:
+1) Definir metodologías de capacitación policial y comunal, basadas en las demandas de seguridad de las comunidades y remitirlas al Departamento de Prevención Policial Comunitaria para su aplicación.
+2) Diseñar procesos que mejoren la implementación de la Estrategia de Policía Comunitaria y los programas preventivos que desarrollan los policías en las Direcciones Regionales para su aplicación.
+3) Realizar estudios sobre la situación de seguridad integral que tienen las comunidades y sectores poblacionales específicos para adecuar el abordaje preventivo policial.
+4) Llevar el control estadístico de las actividades realizadas por el Departamento de Prevención Policial Comunitaria y las Direcciones Regionales de la Fuerza Pública en relación con los programas preventivos.
+5) Realizar investigaciones sobre las tendencias de los modelos de policía de orientación comunitaria, metodologías de prevención y atención a problemas comunales que inciden en la seguridad.
+6) Elaborar instrumentos de actuación y supervisión dirigidos a los (las) funcionarios (as) policiales relacionados con la Estrategia de Policía Comunitaria y los programas preventivos y remitirlos a la Dirección General de la Fuerza Pública para su aplicación.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 176 al 177)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 177 al 193)

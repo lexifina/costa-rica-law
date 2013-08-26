@@ -1,10 +1,11 @@
-Artículo 148.—La Sección de Servicios Técnicos tendrá las siguientes funciones:
-1) Instalar y dar mantenimiento preventivo y correctivo a las diferentes redes de comunicación del Ministerio de Seguridad Pública.
-2) Programar los equipos de radiocomunicación, en los diferentes segmentos de banda (HF, VHF, UHF, y banda troncalizada), dentro de un estricto marco de confidencialidad.
-3) Efectuar las giras de mantenimiento preventivo y correctivo, a nivel nacional, en apego al Plan de Trabajo.
-4) Instalar y dar mantenimiento preventivo y correctivo, a los repetidores ubicados en los diferentes centros de retransmisión.
-5) Instalar equipos de radiocomunicación, en bases y móviles, de las diferentes delegaciones policiales, adscritas al Ministerio de Seguridad Pública.
-6) Brindar mantenimiento correctivo a los equipos de radiocomunicación y accesorios, que ingresan, procedentes de las diferentes delegaciones adscritas al Ministerio de Seguridad Pública.
-7) Instalar y desinstalar torres de diferentes clases, modelos y dimensiones.
-8) Diseñar, reparar, instalar y desinstalar, antenas de diferentes tipos, modelos y dimensiones.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 147 al 148)
+SECCIÓN IV
+Direcciones
+Artículo 148.—La Dirección General de la Fuerza Pública, estará conformada por las siguientes Direcciones:
+1) Dirección de Operaciones.
+2) Dirección de Unidades Especializadas.
+3) Dirección Policial de Apoyo Legal.
+4) Direcciones Regionales.
+5) Dirección de Seguridad Turística.
+6) Dirección de Programas Policiales Preventivos.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 131 al 132)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 132 al 148)

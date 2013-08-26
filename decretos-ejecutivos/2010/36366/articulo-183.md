@@ -1,12 +1,15 @@
-CAPÍTULO VI
-Policía encargada del control de drogas
-no autorizadas y actividades conexas
-Artículo 183.—La Policía Encargada del Control de Drogas no Autorizadas y Actividades Conexas, en adelante Policía de Control de Drogas dependerá del (de la) Ministro (a) y cumplirá las siguientes funciones:
-1) Realizar las actividades de prevención e investigación de lugares, personas y actividades en diversas zonas y centros de todo el país, con el propósito de detectar e impedir acciones tendientes al consumo, tenencia y tráfico ilícito de estupefacientes y sustancias psicotrópicos, que prevé y sanciona la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas.
-2) Realizar operaciones permanentes de control preventivo en fronteras, costas, puertos y aeropuertos, y otros lugares nacionales estratégicos, para impedir el ingreso o salida de drogas ilegales del país y los bienes y/o derechos originados o utilizados en actividades de tráfico de drogas y/o legitimación de capitales y actividades conexas.
-3) Prestar especial atención a la prevención, detección e investigación de todas aquellas acciones tendientes a la utilización de nuestro país, para el desvío de sustancias químicas esenciales y de precursores para la producción de drogas ilícitas, así como aquellas investigaciones policiales contra la legitimación de capitales, bienes y/o derechos, provenientes o utilizados en el tráfico ilícito de drogas, procurando la efectiva actuación policial sustentada en criterios técnicos jurídicos, con la finalidad de recabar la prueba necesaria e identificar a los (las) presuntos (as) responsables.
-4) Mantener canales de comunicación con otros cuerpos policiales adscritos al Ministerio para que, informen a la Policía de Control de Drogas en forma inmediata para lo de su competencia y posible continuación de las investigaciones, cuando tengan conocimiento de información referente a algún hecho u omisión que pudiera eventualmente tipificarse dentro de los delitos previstos en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, o de alguna situación en relación con dicha normativa y lo hayan atendido en condiciones de urgencia o flagrancia.
-5) Ejecutar aquellos actos y diligencias ordenados por el Ministerio Público, para prevenir, detectar, investigar y evitar toda actividad delictiva relacionada con lo dispuesto en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, los artículos de la Ley General de Policía que regulan su competencia, y demás legislación y convenios internacionales concordantes y/o conexos.
-6) Desarrollar procesos una vez al año, de autoevaluación, de control interno y valoración de riesgos, según lo establecido en la Ley General de Control Interno.
-7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 182 al 183)
+Artículo 183.—Las Delegaciones Distritales tendrán las siguientes funciones:
+1) Velar por el cumplimiento de la Constitución Política, los tratados internacionales y del ordenamiento jurídico en general.
+2) Desarrollar acciones efectivas de prevención y control de la criminalidad a través de servicios policiales de patrullaje y vigilancia.
+3) Administrar adecuadamente los recursos humanos, materiales, avituallamientos, armas de reglamento, equipo de protección policial, equipo de comunicación y otros implementos asignados a la Delegación Distrital para el servicio de seguridad ciudadana.
+4) Actuar según el principio de cooperación y auxilio recíproco, en procura de la debida coordinación con autoridades policiales y judiciales.
+5) Ejecutar y hacer cumplir lo que resuelvan o dispongan, según su competencia, los tribunales de justicia y los organismos electorales, a solicitud de éstos.
+6) Participar en el desarrollo de operaciones o acciones en que intervienen los cuerpos policiales especializados en el área de responsabilidad de la Delegación Distrital.
+7) Auxiliar a las comunidades y organizaciones de servicio público y colaborar con ellas en casos de emergencia nacional o conmoción pública.
+8) Establecer adecuados canales de comunicación y coordinación con las autoridades locales y demás organizaciones de la sociedad civil.
+9) Cumplir con las órdenes de operaciones y de servicio emanadas por la Dirección Regional y Delegación Policial a la cual se encuentra subordinada.
+10) Desarrollar proyectos asignados a la Unidad, en el Plan Operativo Anual de la Delegación Policial.
+11) Establecer un enlace permanente y dinámico con las Comisiones Distritales de Seguridad y los Comités de Prevención Comunitaria.
+12) Representar al (a la) Jefe (a) de la Delegación Policial Cantonal en el área de responsabilidad de la Delegación Distrital.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 166 al 167)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 167 al 183)

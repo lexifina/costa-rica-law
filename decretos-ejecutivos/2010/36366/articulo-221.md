@@ -1,6 +1,5 @@
-Artículo 221.—Al Departamento de Registro de Armas le corresponde:
-1) Organizar y mantener actualizados los registros de armas, municiones, aditamentos, accesorios y explosivos propiedad del Estado.
-2) Elaborar el inventario permanente de armas de fuego, para lo cual los entes estatales y unidades policiales deberán informar cada seis meses sobre la cantidad, tipo, marca, calibre, número de serie, patrimonio y estado de conservación y utilidad de las armas de fuego que tenga a su cargo.
-3) Preparar el informe anual sobre el inventario de armas para la Dirección General de Armamento y mantener confidencialidad sobre este.
-4) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 220 al 221)
+CAPÍTULO VIII
+Dirección de Servicios de Seguridad Privados
+Artículo 221.—La Dirección de Servicios de Seguridad Privados dependerá del (de la) Ministro (a) y deberá garantizar el cumplimiento de la normativa vigente en esta materia. Su competencia será la de verificar, supervisar y controlar que las personas físicas y jurídicas dedicadas a prestar el servicio de seguridad privado, se ajusten a lo dispuesto por el ordenamiento, en especial a la Ley N° 8395, denominada Ley de Servicios de Seguridad Privados y su reglamento
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 204 al 205)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 205 al 221)

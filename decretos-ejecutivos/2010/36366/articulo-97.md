@@ -1,2 +1,5 @@
-Artículo 97.—Las faltas disciplinarias o irregularidades de los (las) servidores (as) que se desempeñen en el Departamento Disciplinario Legal, en cuanto a su instrucción y recomendación, serán tramitadas por funcionarios (as) de la Asesoría Jurídica del Ministerio de Seguridad Pública, según sea constituido el Órgano Director de Procedimientos para tales efectos.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 96 al 97)
+Artículo 97.—El Departamento de Mantenimiento Vehicular estará conformado por las siguientes Secciones:
+1) Sección de Administración de Contratos.
+2) Sección de Taller Mecánico.
+3) Sección de Bodega de Transportes.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)

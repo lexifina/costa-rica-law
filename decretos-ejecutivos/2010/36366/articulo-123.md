@@ -1,4 +1,5 @@
-SECCIÓN III
-Órganos de apoyo de carácter policial
-Artículo 123.—La Dirección General de la Fuerza Pública tendrá en forma permanente, como órganos de apoyo, al Consejo de Directores (as) de la Fuerza Pública, la Inspección General, la Guardia Presidencial y las Direcciones Regionales.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 122 al 123)
+Artículo 123.—Para efectos del ingreso al Estatuto Policial, los (las) funcionarios (as) policiales, que en el desarrollo de sus actividades realicen, simultánea y permanentemente, funciones mixtas (policiales-administrativas), serán considerados funcionarios policiales.
+La calificación de la función mixta deberá hacerse luego de la realización de un estudio efectuado por la Dirección de Recursos Humanos, la que tomará en cuenta: la pertenencia del funcionario a uno de los cuerpos policiales adscritos a este Ministerio y haber sido nombrado de conformidad con lo establecido en la Ley General de Policía y sus reformas.
+La Dirección de Recursos Humanos solicitará los informes y demás documentación pertinente, con la finalidad de elaborar un expediente que sustente la resolución final que decida el cumplimiento de las funciones mixtas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 106 al 107)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 107 al 123)

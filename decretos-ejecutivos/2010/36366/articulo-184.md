@@ -1,5 +1,5 @@
-Artículo 184.—La Policía de Control de Drogas estará compuesta por las siguientes dependencias:
-1) Departamento de Operaciones.
-2) Departamento de Inteligencia.
-3) Delegaciones Regionales.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 183 al 184)
+SECCIÓN IX
+Dirección de Seguridad Turística
+Artículo 184.—La Dirección de Seguridad Turística dependerá de la Dirección General de la Fuerza Pública, y es la responsable de establecer las estrategias operativas y dar seguimiento a las establecidas por la institución, además de velar por el cumplimiento de la normativa institucional, con la finalidad de brindar una respuesta efectiva y oportuna a la demanda de seguridad por parte de la ciudadanía, específicamente a la población turística.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 167 al 168)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 168 al 184)

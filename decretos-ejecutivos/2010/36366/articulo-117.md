@@ -1,7 +1,3 @@
-Artículo 117.—La Dirección General de la Fuerza Pública tendrá a cargo la Vicaría Episcopal, la cual tendrá las siguientes funciones:
-1) Suministrar los sacramentos, previa preparación, a los miembros de la Fuerza Pública que lo soliciten o requieran de acuerdo con las circunstancias.
-2) Impartir cursos de instrucción ética y religiosa en lugares de capacitación, delegaciones y diferentes unidades de la Fuerza Pública.
-3) Suministrar servicios de consulta y orientación espiritual, religiosa y moral.
-4) Bendecir e inaugurar instalaciones y equipos para uso de los miembros de la Fuerza Pública.
-5) Cualquier otra actividad propia de su competencia o fuero.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 116 al 117)
+Artículo 117.—Se entiende por prevención del delito, el conjunto de estrategias, tácticas y acciones que realiza el Ministerio, con la finalidad de conservar el orden público, la tranquilidad de los habitantes, el libre disfrute de las libertades públicas y de disminuir el riesgo de los habitantes a ser víctimas de alguna conducta delictiva.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 100 al 101)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 101 al 117)

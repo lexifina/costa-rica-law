@@ -1,4 +1,8 @@
-SECCIÓN VII
-Dirección Policial de Apoyo Legal
-Artículo 159.—La Dirección Policial de Apoyo Legal, dependerá de la Dirección General de la Fuerza Pública. Se compondrá de la Dirección, la Subdirección y una delegación en cada región programática policial. Esta Dirección cumplirá las funciones de asesoramiento legal y policial que establece la Ley General de Policía y sus reformas, así como cualquier otra que se derive de nuestro ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 158 al 159)
+Artículo 159.—La Sección de Operaciones de Inteligencia tendrá las siguientes funciones:
+1) Recopilar y verificar información estratégica y táctica de interés policial que colabore con el mejoramiento de acciones policiales.
+2) Ejercer labores de vigilancia visual y técnica en zonas de interés policial, utilizando tecnologías de apoyo permitidas por el ordenamiento jurídico.
+3) Realizar operaciones abiertas o encubiertas para la obtención de información de relevancia policial.
+4) Mantener un registro de información documental de medios de comunicación masivos, escritos y electrónicos en materia policial, que puedan generar un accionar de la Fuerza Pública.
+5) Participar en las operaciones policiales que se requiera.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 142 al 143)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 143 al 159)

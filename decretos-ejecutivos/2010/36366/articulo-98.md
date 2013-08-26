@@ -1,7 +1,18 @@
-TÍTULO II
-Organización de los cuerpos policiales y órganos de apoyo
-de carácter policial y administrativo adscritos al Ministerio
-CAPÍTULO I
-Disposiciones generales de este título
-Artículo 98.—La Guardia Civil, la Guardia de Asistencia Rural, la Policía Encargada del Control de Drogas no Autorizadas y Actividades Conexas y la Policía de Fronteras dependerán del Ministerio de Seguridad Pública, en concordancia con lo estipulado en artículo 6 de la Ley General de Policía N° 7410 y sus reformas; asimismo con lo dispuesto en la Ley N° 8000 que crea el Servicio Nacional de Guardacostas y el Decreto Ejecutivo N° 23427-MP. También estará adscrita la Reserva de la Fuerza Pública, cuando sea convocada con carácter temporal.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 97 al 98)
+Artículo 98.— La Sección de Administración de Contratos tendrá las siguientes funciones:
+1. Realizar los estudios y trámites para la adquisición de los vehículos automotores, accesorios, repuestos, equipos e insumos.
+2. Emitir criterio técnico de evaluación sobre los vehículos automotores propiedad del Ministerio y los que se encuentran en formal convenio de préstamo, cuando así sea requerido.
+3. Generar los criterios técnicos mecánicos y especificaciones en las distintas modalidades de contratación y adquisición de repuestos, insumos, equipos accesorios y vehículos automotores.
+4. Crear propuestas de tipos de vehículos automotores a reparar por medio de contratación excepcional.
+5. Analizar ofertas y emitir criterio final de admisibilidad de las mismas.
+6. Valorar la viabilidad técnica de las potenciales donaciones de vehículos automotores, así como la viabilidad económica del mantenimiento.
+7. Realizar la revisión del estado de vehículos adquiridos mediante contratación y donación.
+8. Determinar el detalle de cumplimiento de los pliegoscartelarios y el estado mecánico de los vehículos automotores adquiridos.
+9. Realizar las supervisiones de las modificaciones a los vehículos automotores adquiridos.
+10. Supervisar la ejecución de reparaciones realizadas por los talleres mecánicos externos contratados ó de las empresas de servicio externas adjudicadas por medio de contratación común o excepcional.
+11. Reportar a la Proveeduría Institucional y al Programa Presupuestario respectivo, mediante informe técnico, cualquier disconformidad técnica que se detecte durante la ejecución del contrato.
+12. Fiscalizar que el servicio de mantenimiento correctivoó preventivo realizado al vehículo automotor corresponda con el contratado.
+13. Verificar técnicamente la razonabilidad del precio fijado por el contratista en las reparaciones indeterminadas.
+14. Cotejar que los diagnósticos y los cotizaciones generados por los contratistas se apeguen a la realidad mecánica de los vehículos automotores.
+15. Velar por que las condiciones técnicas específicas y generales del cartel de contratación se cumplan plenamente.
+16. Realizar cualquier otra función propia de su competencia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)

@@ -1,17 +1,16 @@
-Artículo 153.—La Unidad Especial de Apoyo como unidad especializada de la Fuerza Pública, cumplirá las siguientes funciones:
-1) Realizar acciones policiales complejas, incluyendo el apoyo a la Policía Judicial en operativos de esta índole.
-2) Proteger, en casos calificados, a personas que lo requieran, con orden o autorización del (de la) Ministro (a), debidamente justificada y motivada.
-3) Brindar custodia a bienes públicos de interés nacional, que se mantengan, ingresen, salgan o circulen por el país.
-4) Colaborar en la detección de explosivos.
-5) Buscar y rescatar, en caso de calamidad y/o conmoción pública, a personas y bienes, en coordinación con grupos organizados de ayuda humanitaria.
-6) Atender operativos que implican búsqueda y rescate de rehenes, así como persecución de delincuentes.
-7) Asesorar a la Dirección General de la Fuerza Pública en materia de atención policial de incidentes de tipo radiológico, bacteriológico o químico.
-8) Colaborar con el personal técnico del Ministerio de Salud y otras instituciones competentes, según la naturaleza del incidente, en la detección, custodia y traslado de agentes químicos, bacteriológicos o radiológicos.
-9) Proponer medidas de protección, para preservar la seguridad de los habitantes, sus bienes, derechos y libertades fundamentales y cooperar con la evacuación de personas afectadas en incidentes de tipo químico, bacteriológico o radiológico.
-10) Elaborar y socializar por medio de la Escuela Nacional de Policía los protocolos de actuación de la Fuerza Pública para la atención de incidentes radiológicos, bacteriológicos o químicos.
-11) Estructurar la base de datos de incidentes nacionales de tipo radiológico, bacteriológico y químico.
-12) Coordinar con instituciones nacionales e internacionales la actualización de conocimientos sobre la naturaleza, tendencias y procedimientos para la atención de los incidentes de tipo radiológico, bacteriológico y químico.
-13) Colaborar en operativos de detección de sustancias químicas, biológicas o radiológicas, de manera preventiva cuando así lo requiera la Fuerza Pública.
-14) Colaborar con otras instituciones y ciudadanía, cuando se produzcan incidentes en carretera durante el traslado de materiales peligrosos o cuando se produzcan incidentes de empresas o bodegas que almacenan este tipo de material.
-15) Aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 152 al 153)
+Artículo 153.—La Sección de Planeamiento tendrá las siguientes funciones:
+1) Planificar las diversas acciones policiales operativas ordinarias y extraordinarias, para la atención de emergencias naturales o antrópicas, en pro del mantenimiento de la seguridad nacional, de los habitantes, sus bienes, el orden público y la prevención del delito.
+2) Participar en la toma de decisiones tanto operativas como administrativas, para el desarrollo de las operaciones policiales coordinadas por el Departamento de Planes y Operaciones.
+3) Apoyar y asesorar en materia técnico-policial en el área de planeamiento en coordinación con el personal administrativo del Ministerio de Seguridad Pública.
+4) Atender las solicitudes que presentan las comunidades vulnerables y sensibles a nivel nacional y coordinar con los grupos organizados no gubernamentales y entidades estatales competentes, la atención de dichos requerimientos, mejorando el servicio de seguridad ciudadana y prevenir las manifestaciones delictivas.
+5) Elaborar estudios, programas, proyectos, protocolos e informes orientados a mejorar la función operacional de las fuerzas de policía, para la vigilancia y la conservación de la seguridad pública y remitirlos a la jefatura del Departamento para su revisión y aprobación ante las instancias pertinentes.
+6) Confeccionar documentos operativos necesarios para la ejecución de los dispositivos policiales, estratégicos y/o tácticos, tanto de orden preventivo y de carácter represivo.
+7) Brindar asesoría en el campo de su competencia, a sus superiores (as), jefaturas y subjefaturas de las Direcciones Regionales, Delegaciones Policiales, Direcciones y demás unidades policiales que conforman la Fuerza Pública.
+8) Realizar diagnósticos, estudios e investigaciones, para determinar la ubicación del recurso humano policial, que permita fortalecer la presencia en lugares de mayor riesgo, establecimiento de requerimientos logísticos, creación, reubicación o eliminación de delegaciones o casetas policiales.
+9) Elaborar y/o modificar los protocolos de actuación operativa requeridos para el funcionamiento de las diferentes unidades policiales de la Fuerza Pública y remitirlos a la jefatura del Departamento para su revisión y aprobación.
+10) Representar a la Institución en diferentes comisiones interinstitucionales, a solicitud de instancias superiores del Ministerio.
+11) Fungir como intermediarios institucionales ante diferentes grupos sociales, facilitando los procesos de organización, planeamiento y coordinación de actividades con otras organizaciones y entes estatales.
+12) Confeccionar los croquis, mapas o cualquier tipo de audiovisual que se requiera para una operación determinada.
+13) Elaborar material informativo, tipo folleto, con recomendaciones a la ciudadanía sobre prevención en materia de seguridad.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 136 al 137)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 137 al 153)

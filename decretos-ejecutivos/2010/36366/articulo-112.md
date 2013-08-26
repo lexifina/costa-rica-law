@@ -1,7 +1,10 @@
-Artículo 112.—Las direcciones generales y direcciones que estén conformadas a su vez en programas o subprogramas presupuestarios, podrán contar con una Unidad de Proyectos para lograr que las necesidades reales se transformen en proyectos concretos de corto, mediano y largo plazo, de conformidad con las necesidades y la dinámica institucional.
-Las unidades de proyectos que se constituyan tendrán las siguientes funciones generales:
-1) Elaborar estudios e investigaciones para determinar las necesidades de inversión de las direcciones de programas o subprogramas presupuestarios y establecer el orden de prioridades.
-2) Elaborar los perfiles y estudios técnicos de prefactibilidad y factibilidad de los proyectos en coordinación con la Oficina de Planificación Institucional.
-3) Formular, dar seguimiento y evaluar los proyectos de inversión compatible con las prioridades institucionales y el Plan Nacional de Desarrollo, en coordinación con la Oficina de Planificación Institucional y de acuerdo con los lineamientos establecidos en el Sistema Nacional de Inversión Pública.
-4) Colaborar en la formulación presupuestaria en lo atinente a la ejecución de proyectos de inversión.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 111 al 112)
+Artículo 112.—Sin perjuicio de las facultades del (de la) Jefe del Departamento, a los (las) jefes de Sección les corresponderán las siguientes funciones:
+1) Velar por el fiel cumplimiento de las presentes disposiciones y por el buen funcionamiento de la Sección a su cargo.
+2) Coordinar, dirigir, distribuir y supervisar el trabajo entre el personal de la Sección a su cargo.
+3) Velar por que se cumplan en debida forma los procedimientos de instrucción disciplinaria de los asuntos asignados a la Sección bajo su cargo, para lo cual deberá suscribir en calidad de Jefe de Sección, las distintas actuaciones de tramitación necesarias para la buena marcha de los procedimientos, salvo los autos de apertura, resoluciones interlocutorias y resolución de recomendación final, los cuales corresponde suscribir al Jefe del Departamento Disciplinario Legal; no obstante el (la) Jefe de Sección, deberá revisarlos previamente y consignar su “visto bueno” de previo a ser firmados por el (la) Jefe del Departamento Disciplinario.
+4) Velar por el mantenimiento del orden y la disciplina del personal de la Sección a su cargo.
+5) Apoyar y dar seguimiento a los lineamientos y órdenes dictadas por la jefatura del Departamento.
+6) Asumir las funciones de la Jefatura del Departamento, por recargo, cuando así se le asigne en ausencia del titular.
+7) Todas aquellas que le sean asignadas por la Jefatura del Departamento Disciplinario.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 95 al 96)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 96 al 112)

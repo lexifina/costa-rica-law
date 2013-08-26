@@ -1,10 +1,5 @@
-Artículo 92.—Para el levantamiento de la información o instrucción respectiva, se estará a lo dispuesto para el procedimiento ordinario regulado en la Ley General de la Administración Pública.
-En cuanto a llegadas tardías y faltas leves de los servidores administrativos, que puedan derivar en sanción de amonestación por escrito, el trámite será sumario. En cuanto a las faltas leves de los servidores policiales que ameriten amonestación, se estará a lo dispuesto en la normativa legal y reglamentaria que regula la relación de servicio de los miembros de la fuerza pública.
-En todo caso, se actuará ajustándose a las garantías del debido proceso, incluyendo:
-a. Emplazamiento al interesado sobre el carácter y fines del procedimiento.
-b. Derecho de presentar argumentos y aportar las pruebas pertinentes.
-c. Amplio acceso al expediente.
-d. Derecho de hacerse representar por un abogado.
-e. Notificación de la resolución dictada por la Administración y los motivos en que se funda.
-f. Derecho de recurrir la decisión tomada.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 91 al 92)
+Artículo 92.—El Departamento de Control Vehicular estará conformado por las siguientes Secciones:
+1) Sección de Registro y Aseguramiento.
+2) Sección de Control de Insumos.
+3) Sección de Garantías.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
