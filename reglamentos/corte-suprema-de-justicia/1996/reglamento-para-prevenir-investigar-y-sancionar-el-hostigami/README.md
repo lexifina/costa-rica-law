@@ -18,3 +18,4 @@ Reglamento para prevenir, investigar y sancionar el hostigamiento sexual en el P
 | 4 | 2009-03-19 | Circular 33 (2009-03-19) |
 | 5 | 2010-12-15 | Circular 174 (2010-12-15) |
 | 6 | 2013-02-08 | Circular 174 (2013-02-08) |
+| 7 | 2013-08-26 | Circular 145 (2013-08-26) |

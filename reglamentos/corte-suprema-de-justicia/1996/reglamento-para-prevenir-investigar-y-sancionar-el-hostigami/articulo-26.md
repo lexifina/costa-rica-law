@@ -1,1 +1,3 @@
-Artículo 26.—Recursos contra la Resolución de Fondo. La resolución de fondo, dictada por el Órgano Instructor, tendrá los recursos de reconsideración y apelación ante las instancias correspondientes. Podrán interponerse por cualquiera de las partes dentro de los tres días siguientes a la notificación.
+Artículo 26.—Recursos contra la resolución de fondo. La resolución de fondo, dictada por el Órgano Instructor, tendrá los recursos de reconsideración y apelación ante las instancias correspondientes.
+Podrán interponerse por la víctima y por la persona encausada o por sus representantes legales, dentro de los tres días siguientes a la notificación. La Comisión de Relaciones Laborales no tendrá participación en los asuntos regulados en el presente Reglamento.
+(Así reformado mediante sesión N° 31-13 del 15 de julio del 2013 y publicado en el Boletín Judicial N° 209 del 30 de octubre del 2013, mediante circular N° 145-2013 del 26 de agosto del 2013)
