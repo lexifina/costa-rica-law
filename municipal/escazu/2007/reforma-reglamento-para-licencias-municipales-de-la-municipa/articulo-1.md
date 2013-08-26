@@ -1,7 +1,0 @@
-MUNICIPALIDAD DE ESCAZÚ
-DEPARTAMENTO DE ADMINISTRACIÓN TRIBUTARIA
-REFORMA AL TRANSITORIO II DEL REGLAMENTO
-PARA LICENCIAS MUNICIPALES DE LA
-MUNICIPALIDAD DE ESCAZÚ
-El Concejo Municipal del cantón de Escazú, en su sesión ordinaria Nº 84, acta Nº 116 del 3 de diciembre del 2007, con dispensa de trámite acordó lo siguiente: “Acuerdo Nº AC-460-07: Con dispensa de trámite de comisión, se acuerda: “Con fundamento en las disposiciones contempladas en los artículos 11 y 169 de la Constitución Política, 11 de la Ley General de la Administración Pública, 2º, 3º y 43 del Código Municipal y por no haberse planteado observaciones o recomendaciones al proyecto publicado en el Diario Oficial La Gaceta Nº 220 del jueves 15 de noviembre del 2007, aprobar la reforma al transitorio II del Reglamento para Licencias Municipales de la Municipalidad de Escazú, publicado en La Gaceta Nº 130 del 5 de julio del 2004, que dirá: “Todos los titulares de licencias de licores y autorizados para explotar éstas durante el bienio 2006/2007 tendrán por renovado el bienio 2008/2009 con la sola presentación del certificado de la licencia de licores vigente ante la Sección de Licencias Municipales de este Gobierno Local durante los primeros quince días del mes de diciembre del dos mil siete. Publíquese este acuerdo en el Diario Oficial La Gaceta”. Declarado definitivamente aprobado.
-Escazú, 4 de diciembre del 2007.
