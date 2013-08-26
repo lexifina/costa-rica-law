@@ -17,7 +17,8 @@ m) Dar aviso a Recursos Humanos o a su jefatura inmediata, de cualquier accident
 n) Acatar y cumplir las órdenes emanadas de los órganos competentes, en relación con la ejecución de planes de contingencia para asegurar la continuidad del servicio que brinda la Institución.
 ñ) Custodiar diligentemente los bienes que la Institución ponga a su disposición.
 o) Reponer, reparar o pagar, a precio actual de mercado, las herramientas de trabajo, equipos y mobiliario que se le hayan asignado; que por culpa debidamente demostrada haya dañado, deteriorado o perdido.
-p) Guardar discreción respecto de la información a que tenga acceso en razón del cargo que desempeña, no pudiendo revelar a terceros o al administrado, información alguna que pueda afectar las decisiones que toma el Jerarca Superior Administrativo correspondiente o la Junta Directiva, que impliquen una ventaja indebida para los (las) prestadores de los servicios públicos sujetos a las regulaciones de la Ley 7593 o, que pueda servir para que esos(as) prestadores se perjudiquen entre sí.
+p) Guardar discreción respecto de la información a que tenga acceso, no pudiendo revelarla.
+(Así reformado el inciso anterior mediante sesión N° 64 del 26 de agosto de 2013)
 q) Denunciar ante quien corresponda, los hechos incorrectos o delictuosos de que tenga noticia.
 r) Acatar y cumplir las disposiciones del Código de ética y de la Ley general de control interno, Ley 8292.
 s) Pedir permiso al(a la) superior(a) jerárquico inmediato, antes de salir del centro de trabajo por razón de cualquier asunto oficial o personal, indicando con exactitud el lugar en que se le podrá localizar.

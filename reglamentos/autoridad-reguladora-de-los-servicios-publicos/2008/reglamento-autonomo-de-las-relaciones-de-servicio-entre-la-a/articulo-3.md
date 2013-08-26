@@ -8,6 +8,8 @@ Autoridad Reguladora: Autoridad Reguladora de los Servicios Públicos, que exclu
 Ascenso: Paso de una plaza a otra de categoría superior.
 CDR: Dirección General Centro de Desarrollo de la Regulación , dependencia de la institución
 (Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
+Cese: Dejar de desempeñar el cargo por cualquier causa, entre ellas, renuncia, ausencia temporal, incapacidad, negligencia o falta grave debidamente comprobada, contra el ordenamiento jurídico en el cumplimiento de los deberes de su cargo, cualquiera de las incompatibilidades previstas por la ley, condena con sentencia en firme por un delito doloso, durante el ejercicio de su cargo o incurrir en las causales establecidas en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+(Así adicionada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
 Clasificación de puestos: Técnica aplicable al estudio de la naturaleza de los puestos, para agruparlos en clases, grados, series y grupos ocupacionales.
 Concurso: Proceso en el que participan candidatos internos y externos a la institución para llenar una plaza vacante, acorde con los perfiles del puesto y las necesidades específicas señaladas en el Manual de actividades ocupacionales y el Manual descriptivo de puestos.
 Consejo de la Sutel: Consejo de la Superintendencia de Telecomunicaciones. Jerarca Superior Administrativo de la Sutel.
@@ -25,26 +27,28 @@ Institución: Autoridad Reguladora, incluyendo sus órganos desconcentrados.
 Interés público: Expresión de los intereses individuales coincidentes de los administrados y fin esencial de la Institución.
 Jefatura: Funcionario(a) que ejerce autoridad jerárquica formal sobre otros(as) funcionarios(as) de la Institución, para dirigir y controlar las actividades técnicas y administrativas necesarias para alcanzar los objetivos de la unidad bajo su dirección.
 Jefatura inmediata: Jefe directo del(de la) funcionario(a).
-Jefatura superior: El (la) Regulador(a) General, el (la) Regulador(a) General Adjunto(a), los miembros del Consejo de la Sutel, el (la) Auditor(a) Interno(a), el(la) Gerente General, Directores Generales, Directores y Jefaturas de Departamento.
-(Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
-Jerarca Superior Administrativo: Regulador General, Consejo de la SUTEL , Superintendente y Gerente General.
-(Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
+Jefatura superior: El (la) Regulador(a) General, el (la) Regulador(a) General Adjunto(a), los miembros del Consejo de la Sutel, los (las) intendentes, el (la) Auditor(a) Interno(a), Directores Generales, Directores y Jefaturas de Departamento.
+(Así reformada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
+Jerarca Superior Administrativo: Es el Regulador General para todos los funcionarios de la Autoridad Reguladora de los Servicios Públicos, con las siguientes excepciones: a) En el caso del Auditor Interno, del subauditor y de los miembros del Consejo de la SUTEL, el Jerarca Superior Administrativo es la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos y; b) En el caso de los funcionarios de la Sutel, el Jerarca Superior Administrativo es el Consejo de la SUTEL.
+(Así reformada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
 Junta Directiva: Junta Directiva de la Autoridad Reguladora.
 Ley General: Ley General de la Administración Pública.
 Lista de elegibles: Enumeración de los (las) candidatos(as) elegibles para llenar una plaza vacante.
 Llegada tardía: Presentación en el lugar de trabajo, después de la hora señalada para el inicio de labores.
 Manual descriptivo de clases: Instrumento técnico del Sistema de Clasificación y Valoración de Puestos compuesto por la descripción de las clases de puestos, establecidas de conformidad con los grados de complejidad y responsabilidad de las funciones y tareas, y sustentada en los principios de equidad interna y de competitividad salarial con respecto a sectores del mercado salarial afines a la Autoridad Reguladora.
 Nómina: Conjunto de personas propuestas para que se designe de entre ellas la que haya de desempeñar un cargo o empleo, en razón de su idoneidad.
-Oferta de servicios: Formulario autorizado por el Departamento de Recursos Humanos, que se entrega a las personas interesadas en prestar servicios en un puesto o cargo determinado.
+Oferta de servicios: Formulario autorizado por Recursos Humanos, que se entrega a las personas interesadas en prestar servicios en un puesto o cargo determinado.
+(Así reformada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
 Omisión de marca: Ausencia de la marca en el registro respectivo, dentro de la jornada laboral.
 Órganos desconcentrados: órganos adscritos a la Autoridad Reguladora.
-Pasos: Son las categorías dentro de una clase de puesto, que pretenden estimular el desarrollo de los funcionarios.
+Pasos: (Derogada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
 Permuta: Cambio de puestos entre dos o más funcionarios(as), sin menoscabo de sus condiciones laborales.
 Plaza: Ver puesto.
 Puesto: Conjunto de deberes y responsabilidades asignadas por una autoridad competente, para que sean atendidos por un (una) funcionario(a) durante la totalidad o una parte de la jornada de trabajo.
 Pruebas: Exámenes escritos, orales o prácticos y análisis de atestados de estudios, de experiencia y de otros elementos; mediante los cuales se determina la idoneidad de la persona para ocupar una plaza. Esas pruebas pueden ser entrevistas, pruebas psicométricas, pruebas específicas del cargo, diagnósticos psicolaborales y estudios de carácter económico y social.
 Recargo de funciones: Desempeño temporal y parcial de las tareas de una plaza de categoría superior, que realiza un (una) funcionario(a) simultáneamente con las labores propias de su cargo, en razón de la ausencia del titular.
-Recursos Humanos: Departamento de Recursos Humanos de la Institución.
+Recursos Humanos: Dirección de Recursos Humanos de la Institución.
+(Así reformada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
 Reestructuración organizacional: Todo proceso debidamente aprobado por la Junta Directiva de la Autoridad Reguladora, que conlleve un cambio en la estructura organizacional y/o en las plazas, de manera integral o por dependencia y en los(as) funcionarios(as); con el propósito de aprovechar mejor los recursos disponibles y de lograr una mayor eficacia en el logro de los objetivos establecidos.
 Régimen salarial: Estructura de sueldos que de conformidad con la naturaleza del puesto, se visualiza por medio de la escala salarial. Este régimen comprende el de salario global y temporalmente, las escalas salariales compuestas por salario base más pluses, respetando derechos adquiridos y situaciones jurídicas consolidadas de los(as) funcionarios(as) de la institución.
 Registro de asistencia: Marcar, en el registro correspondiente, las horas de llegada y de salida al lugar de trabajo.

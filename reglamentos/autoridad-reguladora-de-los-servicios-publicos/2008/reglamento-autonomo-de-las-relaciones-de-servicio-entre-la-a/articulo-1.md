@@ -1,8 +1,9 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO
 ENTRE LA AUTORIDAD REGULADORA DE LOS SERVICIOS
-PÚBLICOS, SUS ORGANOS DESCONCENTRADOS
-Y SUS FUNCIONARIOS
+PÚBLICOS, SU ORGANO DESCONCENTRADO
+Y SUS FUNCIONARIOS(*)
+(*)(Modificada su denominación mediante sesión N° 64 del 26 de agosto de 2013)
 La Junta Directiva de la Autoridad Reguladora de los Servicios Públicos de conformidad con las atribuciones que le confiere el artículo 53, incisos l) y ñ) de la Ley 7593, Ley de la Autoridad Reguladora de los Servicios Públicos.
 Considerando:
 1º—Que de conformidad con lo establecido en el artículo 53, incisos m) y ñ) de la Ley 7593 y sus reformas, le corresponde a éste órgano colegiado aprobar la organización interna de la Autoridad Reguladora y el estatuto interno de trabajo, así como dictar las normas y políticas que regulan las condiciones laborales, la creación de plazas, los esquemas de remuneración, las obligaciones y los derechos de los funcionarios y trabajadores de la Autoridad Reguladora y la Superintendencia de Telecomunicaciones (Sutel).
@@ -16,7 +17,8 @@ PÚBLICOS, SUS ORGANOS DESCONCENTRADOS
 Y SUS FUNCIONARIOS
 ÍNDICE
 CAPÍTULO I
-De las disposiciones preliminares
+De las disposiciones preliminares y modalidades de prestación de servicios laborales(*)
+(*)(Modificada su denominación mediante sesión N° 64 del 26 de agosto de 2013)
 Artículo 1º—Naturaleza de la relación de servicio.
 Artículo 2º—Legislación aplicable.
 Artículo 3º—Definiciones.
@@ -179,5 +181,9 @@ ENTRE LA AUTORIDAD REGULADORA DE LOS SERVICIOS
 PÚBLICOS, SUS ORGANOS DESCONCENTRADOS
 Y SUS FUNCIONARIOS
 CAPÍTULO I
+De las disposiciones preliminares y modalidades de prestación de servicios laborales(*)
+(*)(Modificada su denominación mediante sesión N° 64 del 26 de agosto de 2013)
+Sección I(*)
 De las disposiciones preliminares
+(*)(Mediante sesión N° 64 del 26 de agosto de 2013, se creó la sección anterior, la cual comprende los artículos del 1 al 3)
 Artículo 1º—Naturaleza de la relación de servicio. La relación de servicio entre la Autoridad Reguladora de los Servicios Públicos, sus órganos desconcentrados y sus funcionarios, es de naturaleza estatutaria y se regirá por el presente reglamento y la demás normativa que resulte aplicable.

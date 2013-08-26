@@ -6,4 +6,5 @@ ch) Si el cargo del(de la) funcionario(a) que sustituye se halla en la escala de
 Cuando se trate de recargo de funciones de jefatura, para efectos de pago, el plazo mínimo de ausencia será de diez días hábiles consecutivos.
 Si la ausencia es prolongada, el recargo podrá asumirlo la jefatura superior. Para efectos de pago por recargo de funciones en otros puestos, el recargo deberá haber sido durante el plazo mínimo de quince días hábiles consecutivos.
 En ambas situaciones, el (la) sustituto(a) deberá cumplir con requisitos académicos y legales del puesto del(de la) funcionario(a) a quien sustituye.
-Corresponde al Gerente General de la Institución autorizar el pago de recargos de funciones, que se cargarán al programa de la dirección donde se haya aplicado.
+Corresponde al Jerarca Superior Administrativo autorizar el pago de recargos de funciones, que se cargarán al programa de la dirección donde se haya aplicado.
+(Así reformado el párrafo anterior mediante sesión N° 64 del 26 de agosto de 2013)
