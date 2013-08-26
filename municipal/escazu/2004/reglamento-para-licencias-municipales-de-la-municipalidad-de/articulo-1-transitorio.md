@@ -1,1 +1,0 @@
-Transitorio I.—Hasta tanto no se adopte el Plan Regulador del Cantón de Escazú, el Departamento de Desarrollo Urbano, emitirá las certificaciones respectivas sobre uso del suelo y zonificación, de conformidad con el uso del suelo predominante de la zona, con planos mosaicos y/o con el GAM.

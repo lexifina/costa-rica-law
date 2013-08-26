@@ -1,3 +1,0 @@
-CAPÍTULO X
-De la Sección de Licencias Municipales
-Artículo 94.—La Sección de Licencias Municipales estará integrada por un jefe, y por los funcionarios que se consideren necesarios para desarrollar la actividad de forma ágil y eficiente. Esta Sección deberá conocer tanto las solicitudes de licencias para establecimientos comerciales, industriales y de servicios, así como licencias de espectáculos públicos, ventas ambulantes y estacionarias, traspasos y traslados de éstas. En cuanto a las solicitudes para explotación, traspasos, traslados y renovación de las licencias de licores, serán competencia del Concejo Municipal.

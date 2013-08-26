@@ -1,1 +1,0 @@
-Artículo 19.—La solicitud de la actividad en general, la realizará la persona o entidad responsable del evento, pero el impuesto se aplicará de manera individual para cada local o sitio asignado de acuerdo a la distribución presentada.

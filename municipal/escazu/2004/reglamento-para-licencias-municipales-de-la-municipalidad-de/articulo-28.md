@@ -1,4 +1,0 @@
-Artículo 28.—Requisitos: Para obtener una Licencia comercial de venta estacionaria, se requiere, además de los requisitos establecidos en el artículo 12 de este Reglamento, en lo que sea procedente, los siguientes requisitos:
-a) Presentará el solicitante un croquis del cubículo comercial en donde se instalará la venta estacionaria, el cual deberá contar con el visto bueno del Departamento de Desarrollo Urbano de esta Institución. El área que sea autorizada no podrá ampliarse de ninguna forma; ni siquiera con toldos o plásticos o cualquier otro objeto que tienda a la protección del mismo contra la lluvia o luz solar.
-b) En los puestos que expendan alimentos de consumo directo, se exigirá la presentación del Certificado de funcionamiento sanitario expedido por el Ministerio de Salud y los vendedores deberán portar un carné de salud.
-No se podrá otorgar más de una licencia comercial para venta estacionaria por cada cuadrante.

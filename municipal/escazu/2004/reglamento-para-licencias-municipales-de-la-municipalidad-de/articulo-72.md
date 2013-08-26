@@ -1,1 +1,0 @@
-Artículo 72.—En los primeros cinco días de cada mes los patentados deberán efectuar la liquidación correspondiente y cancelar el impuesto respectivo en las cajas recaudadoras de la Municipalidad, para ello deberán aportar los talonarios con las entradas vendidas y las sobrantes.

@@ -1,1 +1,0 @@
-Artículo 39.—Todo certificado de licencia municipal deberá encontrarse en un lugar visible y accesible al inspector municipal, dentro de la zona de exposición y venta de los bienes y/o servicios de la actividad permitida.

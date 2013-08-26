@@ -1,1 +1,0 @@
-Artículo 23.—La cancelación del impuesto asignado debe efectuarse antes del inicio de las actividades en las cajas recaudadoras de la Municipalidad de Escazú, u ocho días después de efectuado el evento en casos calificados y a criterio de la municipalidad.

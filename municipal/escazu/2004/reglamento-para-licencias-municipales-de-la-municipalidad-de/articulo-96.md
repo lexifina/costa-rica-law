@@ -1,2 +1,0 @@
-Artículo 96.-Esta Sección tendrá a cargo las inspecciones y verificaciones que se requieran para cumplir con el ordenamiento jurídico vigente. El Proceso de Licencias Municipales, determinará la procedencia o no de otorgar las licencias comerciales solicitadas y emitirá el certificado de licencia comercial, documento que será firmado por la jefatura de ese Proceso y la Directora del Macro Proceso Hacendario.
-(Así reformado por acuerdo tomado en sesión N° 43 del 10 de noviembre del 2011 y definitivamente aprobado en sesión N° 49 del 9 de febrero del 2012)

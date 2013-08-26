@@ -1,1 +1,0 @@
-Artículo 76.—Se prohiben terminantemente las actividades llevadas a cabo con karaoke o equipos de reproducción similares. Cuando se determine que un local comercial lleva a cabo actividades de este tipo, se iniciará el procedimiento para la cancelación de la licencia comercial autorizada.
