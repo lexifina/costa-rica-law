@@ -1,0 +1,1 @@
+Artículo 33.—Orden en que las personas podrán votar. Los electores votarán en el orden en que se vayan presentando; sin embargo, tendrán prioridad quienes presenten alguna discapacidad, las personas adultas mayores o con niños en brazos, así como las mujeres embarazadas.

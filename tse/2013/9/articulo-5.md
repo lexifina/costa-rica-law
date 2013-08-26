@@ -1,0 +1,1 @@
+Artículo 5º—Envío del material y documentación electoral. Los programas de Distribución de Material y Asesores Electorales serán los responsables de coordinar y ejecutar el envío y recepción -por parte de las juntas cantonales- del paquete con material y documentación electorales, por lo menos con quince días de anticipación a la fecha fijada para la elección.
