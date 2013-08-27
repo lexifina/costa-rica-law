@@ -1,0 +1,17 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión 47-2013, artículo 6º, del 8 de julio del año 2013, tomó el acuerdo Nº 5, que indica lo siguiente:
+“ACUERDO Nº 5:
+Considerando:
+1º—Que los artículos 150 de la Ley del Sistema Financiero Nacional para la Vivienda (SFNV) y 123 del Reglamento de Operaciones del SFNV, establecen la potestad de la Junta Directiva de este Banco para ajustar el valor máximo de la vivienda que se acoja a la declaratoria de interés social.
+2º—Que los artículos 145, 146 y 147 de la Ley del Sistema Financiero Nacional para la Vivienda establecen lo siguiente:
+“Artículo 145.—Las inscripciones de las escrituras principales, en las que se formalicen las operaciones de las soluciones individuales de vivienda declaradas de interés social, de acuerdo con los reglamentos del Sistema, estarán exentas del pago del ciento por ciento (100%) de los derechos de registro, de los timbres fiscales, de los timbres, de las cargas de los colegios profesionales y del impuesto de transferencia de bienes inmuebles.
+Tratándose de créditos internos, esta exención es aplicable a los tributos que deban ser pagados por el ejecutor o constructor.
+Artículo 146.—Las anteriores exenciones no se aplicarán a aquellos actos que, aun constando en la misma escritura, no fueran producto directo del financiamiento otorgado por el Sistema, de acuerdo con el Reglamento que redactará el Poder Ejecutivo.
+Artículo 147.—Con la salvedad del pago de impuestos, contribuciones y tasas municipales, la construcción de viviendas declaradas de interés social de acuerdo con los reglamentos del Sistema, estará exenta del pago de derechos de catastro de planos, de los timbres fiscales, de los timbres de construcción, de los cupones de depósito, de otros cargos y timbres de los colegios profesionales y del cincuenta por ciento (50%) del pago de permisos de construcción y urbanización y de todo otro impuesto.”
+3º—Que la última fijación rige desde 20 de julio de 2011, de conformidad con lo resuelto por la Junta Directiva de este Banco en el acuerdo número 2 de la sesión 44-2011 del 16 de junio de 2011, estableciéndose en esa oportunidad un tope de ¢52.547.000,00.
+4º—Que de acuerdo con el estudio técnico efectuado por la Administración de este Banco, y presentado a esta Junta Directiva por la Gerencia General mediante el oficio GG-ME-0601-2013 del 02 de julio de 2013, se hace necesario ajustar dicho tope a las actuales condiciones de mercado, aplicando las variaciones en los índices de construcción y urbanización del Instituto Nacional de Estadística y Censos (INEC), con el monto máximo que permite el Sistema Financiero Nacional para la Vivienda en operaciones con subsidio de vivienda.
+5º—Que esta Junta Directiva estima procedente actuar de la forma que recomienda la Administración y, consecuentemente, lo que procede es fijar el tope de vivienda de interés social en la suma de ¢58.666.000,00, de conformidad con metodología de cálculo vigente. Por tanto,
+Con fundamento en los artículos 150 de la Ley del Sistema Financiero Nacional para la Vivienda (SFNV) y 123 del Reglamento de Operaciones del SFNV, se acuerda:
+Fijar el tope de vivienda de interés social en la suma de cincuenta y ocho millones seiscientos sesenta y seis mil colones exactos (¢58.666.000,00).
+El presente acuerdo rige a partir de la fecha en que sea publicado en el Diario Oficial La Gaceta.
+Acuerdo Unánime
