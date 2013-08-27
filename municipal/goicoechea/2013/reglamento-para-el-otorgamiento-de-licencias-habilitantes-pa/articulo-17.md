@@ -1,0 +1,7 @@
+Artículo 17.—Requisitos. A efecto de obtener una licencia temporal para venta de bebidas con contenido alcohólico, deberá cumplirse con los siguientes requisitos:
+a) Comunicación expresa de la actividad que desea desarrollarse.
+b) Señalar medio para notificaciones (correo electrónico, fax o dirección exacta dentro del cantón).
+c) Original y copia del permiso de funcionamiento otorgado por el Ministerio de Salud.
+d) Estar al día con el pago de impuestos municipales, cuando resulte aplicable.
+e) Certificación de personería jurídica, emitida por el Registro Público o notarialmente, con un máximo de treinta días de expedida.
+f) En caso de que se trate de espectáculos donde se espera concentración masiva de personas, cumplir con las regulaciones que legalmente resulten aplicables.

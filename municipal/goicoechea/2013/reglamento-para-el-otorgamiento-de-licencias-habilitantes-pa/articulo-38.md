@@ -1,0 +1,2 @@
+Artículo 38.—Derecho a recurrir. La resolución que deniegue una licencia o que imponga una sanción tendrá los recursos de revocatoria y apelación, de conformidad con lo establecido en el artículo 162 y siguientes del Código Municipal.
+El alcalde de cada municipalidad designará el órgano respectivo que se encargará de sustanciar el procedimiento administrativo y recomendar lo pertinente al Alcalde, que resolverá en primera instancia.
