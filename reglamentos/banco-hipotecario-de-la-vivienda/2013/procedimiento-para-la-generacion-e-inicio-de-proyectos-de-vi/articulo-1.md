@@ -1,0 +1,18 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión 47-2013, artículo 7º, del 8 de julio del año 2013, tomó el acuerdo Nº 6, que indica lo siguiente:
+“ACUERDO N° 6:
+Resultando:
+A.—Que por medio del acuerdo N° 8 de la sesión 40-2012 del 11 de junio de 2012, esta Junta Directiva aprobó el “Procedimiento para la maduración de proyectos de vivienda en terrenos del BANHVI”, cuyo objetivo es contar con un mecanismo de operación que facilite el desarrollo de inmuebles propiedad del Banco Hipotecario de la Vivienda (BANHVI), mediante la aportación de recursos para lograr la factibilidad.
+B.—Que por medio del oficio GG-ME-0555-2013 del 21 de junio de 2013, la Gerencia General somete a la consideración de este Órgano Colegiado, una propuesta para reformar el citado Procedimiento, particularmente en cuanto a las actividades a realizar por parte del BANHVI y las entidades autorizadas. Lo anterior, una vez valorada su viabilidad técnica y habiéndose puesto en ejecución durante un año.
+C.—Que esta Junta Directiva no encuentra objeción en acoger la recomendación de la Administración en todos sus extremos, en el tanto –según se ha argumentado– este mecanismo permite facilitar el desarrollo de inmuebles propiedad de este Banco.
+Considerando:
+1º—Que el Banco Hipotecario de la Vivienda (BANHVI) se encuentra legalmente autorizado para poseer bienes inmuebles recibidos con motivo de donaciones, daciones en pago o ejecución de garantías crediticias, y que están destinados al desarrollo de proyectos habitacionales (artículos 9 y 48 de la Ley del Sistema Financiero Nacional para la Vivienda).
+2º—Que corresponde exclusivamente al propietario de un inmueble ejercer todos los derechos de transformación y enajenación sobre tal activo por lo que el BANHVI debe tener centralizado el control y manejo de dichos inmuebles cuando deba iniciarse el procedimiento para la construcción de un proyecto habitacional.
+3º—Que por medio de las presentes normas se establecen las disposiciones generales necesarias para dar inicio al desarrollo de un proyecto habitacional en terrenos propiedad del BANHVI, inscritos a nombre de esta entidad, de sus Fiduciarios o bien que estando inscrito –por cualquier razón- a nombre de un tercero, desde el punto de vista real sea propiedad del BANHVI.
+4º—Que la indicada iniciativa para el inicio y desarrollo del proyecto habitacional corresponde en su génesis única y exclusivamente al BANHVI, quien la ejercerá de acuerdo con el presente procedimiento. Por tanto,
+Se acuerda aprobar y publicar el siguiente:
+PROCEDIMIENTO PARA LA GENERACIÓN E INICIO
+DE PROYECTOS DE VIVIENDA EN TERRENOS
+DEL BANCO HIPOTECARIO DE
+LA VIVIENDA
+Artículo 1º—La iniciativa y decisiones iniciales para el desarrollo de proyectos habitacionales en terrenos propiedad del BANHVI que se encuentren inscritos a su nombre, de uno de sus Fiduciarios o que estando inscritos a nombre de terceros, en términos reales sean propiedad del BANHVI o administrados por esta entidad, corresponderá única y exclusivamente a esta institución. El BANHVI, por medio de su Gerencia General y de su Dirección del Fondo de Subsidios para la Vivienda (FOSUVI) determinará los inmuebles de su propiedad destinados a desarrollos habitacionales, seleccionará a una Entidad Autorizada del Sistema Financiero Nacional para la Vivienda (salvo que se encuentre fideicometida) y girará las instrucciones necesarias para que inicien los procedimientos para el desarrollo habitacional con recursos del Fondo de Subsidios para la Vivienda o del Fondo Nacional para la Vivienda.

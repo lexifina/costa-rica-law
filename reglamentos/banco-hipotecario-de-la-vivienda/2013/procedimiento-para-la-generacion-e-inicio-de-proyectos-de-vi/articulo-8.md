@@ -1,0 +1,4 @@
+Artículo 8º—Para las contrataciones que se realicen en la fase de “Estudios preliminares y Anteproyecto”, podrá considerarse la cartera de proveedores que posea la Entidad Autorizada o el Fiduciario. La ejecución de los diseños del proyecto, podrán realizarse según las siguientes alternativas:
+a) Por los profesionales de planta de la Entidad Autorizada o del Fiduciario.
+b) Por profesionales externos inscritos en el registro de proveedores que posea la Entidad Autorizada o el Fiduciario.
+c) Mediante concurso público acorde con los principios establecidos en la Ley de Contratación Administrativa, debiéndose publicar dichos concursos en el Diario Oficial La Gaceta, en al menos dos diarios de circulación nacional con amplia cobertura, y en el Boletín Digital del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica. Deberá cursarse también invitación a las cámaras empresariales afines, para que lo comuniquen a todos sus interesados.
