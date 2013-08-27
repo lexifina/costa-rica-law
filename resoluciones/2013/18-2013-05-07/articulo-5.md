@@ -1,0 +1,1 @@
+Artículo 5º—Quórum y votación. Se considera integrado el quórum con la presencia de cuatro miembros. Los acuerdos se tomarán por mayoría simple y cualquier decisión que se tome requiere del voto favorable del Director General.
