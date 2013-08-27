@@ -1,0 +1,1 @@
+Artículo 9°—Ningún vehículo de uso administrativo podrá circular sin que el conductor porte la boleta de solicitud de servicio debidamente autorizada; dicha boleta, deberá emitirse en forma específica para el caso, no podrá ser de carácter permanente y deberá estar firmada por la jefatura correspondiente.

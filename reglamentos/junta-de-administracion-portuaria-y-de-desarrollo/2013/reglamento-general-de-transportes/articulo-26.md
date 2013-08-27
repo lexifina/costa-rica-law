@@ -1,0 +1,1 @@
+Artículo 26.—Toda jefatura a partir del jefe de sección será responsable de aplicar y dar cumplimiento permanentemente al presente Reglamento. Asimismo, deberán denunciar a los funcionarios por las presuntas violaciones de este Reglamento en las instancias que corresponda.

@@ -1,0 +1,2 @@
+Artículo 4°—Todos los demás vehículos se considerarán vehículo de uso Administrativo, estarán bajo la custodia y administración de la Sección de Transportes (Portuario y Desarrollo), para solventar las necesidades de transporte en las diferentes dependencias de la Institución. Salvo lo indicado en lo que no resulta aplicable, para los vehículos asignados a la Clase Gerencial y Auditoría General.
+Ningún vehículo de uso administrativo podrá ser asignado a un funcionario en particular.

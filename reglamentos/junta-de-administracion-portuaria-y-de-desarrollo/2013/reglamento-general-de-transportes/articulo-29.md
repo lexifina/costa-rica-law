@@ -1,0 +1,1 @@
+Artículo 29.—JAPDEVA podrá, por excepción, prestar vehículos a: Instituciones centralizadas, descentralizadas y gobiernos locales. Salvo norma expresa en contrario, el beneficiario asume la responsabilidad de su operación. En caso de pérdida total, por accidente o robo, los costos corresponden al beneficiario.

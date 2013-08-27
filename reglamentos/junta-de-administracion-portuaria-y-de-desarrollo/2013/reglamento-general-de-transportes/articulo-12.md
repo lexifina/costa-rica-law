@@ -1,0 +1,6 @@
+Artículo 12.—Corresponde al Departamento de Servicios Generales de la Administración Portuaria y de Desarrollo:
+a) Planificar, organizar, controlar y coordinar todas las actividades de orden administrativo relacionadas con el uso de los vehículos, conforme con las políticas y disposiciones del presente Reglamento y de la Junta Directiva de JAPDEVA.
+b) Investigar, atender y tramitar, Mediante la Unidad de Seguros, todos los aspectos administrativos y de análisis técnicos que sean necesarios realizar en caso de accidentes de tránsito en que intervengan los vehículos de JAPDEVA.
+c) Presentar trimestralmente un informe del uso de los vehículos asignados a la Sección Transportes. Dichos informes deberán contener el kilometraje recorrido, el consumo de combustible, los gastos en mantenimiento, los viajes dentro y fuera de Limón y los usuarios por vehículo. Los mismos deberán ser presentados a la Gerencia respectiva, acompañado de un análisis evaluativo de la Sección de Transportes.
+d) Velar porque se cumpla el presente Reglamento y reportar cualquier violación que se detecte. Además, se deberán incluir las recomendaciones de las acciones a seguir a la Jefatura Superior del infractor y a la Gerencia respectiva.
+e) Velar porque los derechos de circulación, la revisión técnica, las placas y los seguros, incluyendo el voluntario, se encuentren al día.

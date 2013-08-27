@@ -1,0 +1,1 @@
+Artículo 24.—Salvo autorización expresa del Presidente Ejecutivo o a quien él defina para estos efectos, no se asignará vehículo para más de una actividad específica. Cuando esta situación se diera, deberá constar el motivo de las gestiones a realizar, hora de salida, chofer asignado y en todo caso, será para servicios fuera de la ciudad.

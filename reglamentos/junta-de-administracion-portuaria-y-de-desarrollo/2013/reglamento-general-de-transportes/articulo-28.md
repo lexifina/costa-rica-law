@@ -1,0 +1,1 @@
+Artículo 28.—Constituye equipo especial: vagonetas, tractores, retroexcavadores, cargadores, camiones, niveladoras y demás equipos similares, así como los vehículos destinados para la atención de urgencias (ambulancias, motocicletas, y cuadraciclos).
