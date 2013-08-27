@@ -13,3 +13,5 @@ i) Fondo de estabilización: El fondo de estabilización del mercado secundario 
 j) Asociados: Las personas, naturales o jurídicas, que sean miembros de una mutual.
 k) FONAVI: El Fondo Nacional de Vivienda
 l) FOSUVI: El Fondo de Subsidios para Vivienda.
+m) Profivijo: Programa de Financiamiento de Vivienda para Jóvenes.
+(Así adicionado el inciso anterior por el artículo 5° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
