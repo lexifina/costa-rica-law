@@ -282,3 +282,15 @@ C. Se aplicarán además, todas las sanciones civiles y penales contempladas en 
 Rige a partir de su publicación en el Diario Oficial y queda derogada toda disposición municipal anterior que se oponga a sus normas.
 [imagen]
 [imagen]
+(Nota de Sinalevi: El Concejo Municipal del distrito de Cóbano mediante sesión ordinaria N° 33-13 del 27 de agosto del 2013, modificó la lámina de uso de suelo anterior de la siguiente manera:
+TABLAS DE ÁREAS MODIFICADAS AUMENTO Y REDUCCIÓN
+Zonas | Áreas según plan vigente | Áreas según propuesta
+Zona residencial recreativa | 39 679.30 | 46 157.19
+Zona hotelera | 4 700.21 | 2 297.00
+Zona de servicios básicos | 944.70 | 653.64
+Zona de protección | 9 100.79 | 6 947.12
+Zona de campamento | 1 294.33 | 807.12
+Sendero | 1 268.44 | 357.66
+Vialidad | 5 689.32 | 5 762.01
+Totales | 62 677.09 | 62 976.74
+[imagen] )
