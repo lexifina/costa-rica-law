@@ -1,0 +1,1 @@
+5º—Quedan excluidas de este acuerdo, todos aquellos sectores costeros que el Área de Conservación de Osa, clasifique y certifique a futuro como terrenos de Patrimonio Natural del Estado mediante la Metodología establecida por el MINAET.
