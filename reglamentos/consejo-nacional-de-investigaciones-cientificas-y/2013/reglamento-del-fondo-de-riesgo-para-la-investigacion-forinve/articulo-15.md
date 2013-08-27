@@ -1,0 +1,1 @@
+Artículo 15.—El desembolso inicial se gestionará a partir del momento en que el Contrato esté debidamente suscrito. Para los desembolsos posteriores, la Entidad beneficiaria deberá haber liquidado al menos el 80% del desembolso anterior.

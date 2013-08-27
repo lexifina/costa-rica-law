@@ -1,0 +1,1 @@
+Artículo 3º—FORINVES está dirigido a entidades jurídicas costarricenses, públicas y privadas sin fines de lucro, que presenten propuestas de financiamiento para el desarrollo de proyectos de investigación. Las propuestas pueden ser presentadas individualmente o en forma conjunta por dos o más entidades.

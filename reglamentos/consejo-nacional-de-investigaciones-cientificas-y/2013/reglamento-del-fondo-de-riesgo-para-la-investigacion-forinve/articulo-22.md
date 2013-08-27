@@ -1,0 +1,1 @@
+Artículo 22.—Si al concluir el proyecto existieran recursos excedentes éstos deberán reintegrarse al fideicomiso. Para ello, la Entidad beneficiaria tendrá un plazo máximo de treinta días naturales contados a partir de la fecha de finalización del proyecto.

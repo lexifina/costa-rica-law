@@ -1,0 +1,1 @@
+Artículo 12.—El contrato que regulará el financiamiento aprobado, establecerá los derechos y obligaciones que regirán el vínculo que se constituye entre la entidad beneficiaria y el CONICIT, para el desarrollo del proyecto financiado.

@@ -1,0 +1,1 @@
+Artículo 13.—Cuando el contrato esté debidamente suscrito por todas las partes, se procederá a elaborar el “Plan de Seguimiento”, el cual establecerá los mecanismos de control y seguimiento pertinentes para el proyecto, tales como informes de avance, visitas de campo, u otros a juicio del CONICIT.

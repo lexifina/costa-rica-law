@@ -1,0 +1,1 @@
+Artículo 18.—La entidad beneficiaria deberá estar al día con sus obligaciones obrero-patronales. Cada vez que se tramita un desembolso se verificará en línea el cumplimiento de esta obligación. Si se comprueba morosidad, el CONICIT suspenderá el desembolso correspondiente y procederá con la normativa de orden público aplicable.

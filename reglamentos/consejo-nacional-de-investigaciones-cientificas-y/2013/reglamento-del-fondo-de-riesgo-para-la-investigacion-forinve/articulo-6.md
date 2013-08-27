@@ -1,0 +1,1 @@
+Artículo 6º—El CONICIT publicará en diferentes medios de comunicación, la convocatoria para la presentación de propuestas de proyectos en áreas de investigación que se consideren prioritarias, según el Plan Nacional de Ciencia, Tecnología e Innovación. Asimismo podrá utilizar los mecanismos que considere convenientes para promocionar la colocación de los recursos.

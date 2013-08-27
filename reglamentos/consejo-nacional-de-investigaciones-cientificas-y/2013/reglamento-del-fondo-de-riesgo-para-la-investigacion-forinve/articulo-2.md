@@ -1,0 +1,1 @@
+Artículo 2º—FORINVES es un fondo constituido con recursos provenientes de la Ley Nº 7099, en concordancia con el convenio suscrito entre Costa Rica y el Banco Interamericano de Desarrollo el 17 de febrero de 1988, ratificado por la Asamblea Legislativa y publicado en La Gaceta Nº 203 del 26 de octubre de 1988.

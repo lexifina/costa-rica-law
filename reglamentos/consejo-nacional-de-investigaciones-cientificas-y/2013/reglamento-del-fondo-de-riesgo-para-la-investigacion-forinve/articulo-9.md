@@ -1,0 +1,1 @@
+Artículo 9º—El CONICIT es responsable de todas las labores relacionadas con las solicitudes de financiamiento: Recepción de propuestas, evaluación, aprobación, comunicación de acuerdo, formalización, seguimiento y cierre del proyecto.

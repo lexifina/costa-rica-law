@@ -1,0 +1,1 @@
+Artículo 19.—Si los informes presentados por la Entidad beneficiaria no son satisfactorios para el CONICIT, éste aplicará las acciones que correspondan hasta tanto se subsanen los requerimientos solicitados.

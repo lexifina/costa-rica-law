@@ -1,0 +1,1 @@
+Artículo 10.—El CONICIT determinará la pertinencia de que las propuestas de proyectos sean evaluadas por pares externos. Para realizar la selección de los expertos se utilizará la información disponible en el Registro Científico y Tecnológico (RCT) o cualquier otro medio de información que se considere conveniente, siempre asegurando la confidencialidad del proyecto.

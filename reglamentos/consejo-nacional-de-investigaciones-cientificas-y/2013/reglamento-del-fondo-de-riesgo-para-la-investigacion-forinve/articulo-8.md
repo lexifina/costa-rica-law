@@ -1,0 +1,8 @@
+Artículo 8º—El financiamiento de FORINVES está sujeto a las siguientes condiciones:
+a. El CONICIT financiará como máximo el cincuenta por ciento (50%) del costo total del proyecto.
+b. El financiamiento otorgado es intransferible.
+c. El período de ejecución del proyecto debe ser como máximo de 36 meses. En casos debidamente justificados y por única vez, el período de ejecución se puede prorrogar hasta por un año adicional, siempre que se presente una solicitud formal de ampliación al período de ejecución, antes de que la fecha de conclusión de la investigación haya expirado.
+d. En caso de que se generen resultados por medio de derechos de autor, patentes, “Know how” o cualquier otro medio de protección de propiedad industrial, las utilidades por su comercialización (explotación, licenciamiento u otro) se distribuirá directamente proporcional al aporte de cada entidad, todo lo anterior, de acuerdo a la legislación vigente en el país, por el plazo que esté en vigencia la patente o el medio de protección.
+e. Los bienes duraderos, adquiridos con recursos del proyecto de investigación, serán propiedad de la entidad beneficiaria.
+f. En caso de que CONICIT declare rescindir el contrato por incumplimiento de alguna obligación contractual con responsabilidad de la entidad beneficiaria, ésta deberá reintegrar al CONICIT la suma que haya sido desembolsada a la fecha, en que se declare el incumplimiento.
+g. El CONICIT promoverá la difusión de los resultados de los proyectos de investigación durante el período de ejecución o una vez finalizado el proyecto. Para tal efecto, el investigador principal deberá proporcionar el material adecuado, de acuerdo con los requerimientos que el CONICIT establezca.

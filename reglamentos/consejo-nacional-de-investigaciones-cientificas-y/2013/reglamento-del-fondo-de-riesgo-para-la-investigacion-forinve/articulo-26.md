@@ -1,0 +1,1 @@
+Artículo 26.—La Entidad beneficiaria deberá informar al CONICIT oportunamente sobre cualquier circunstancia que afecte el desarrollo del proyecto. Dependiendo de la situación y afectación al proyecto el CONICIT determinará las medidas a implementar.

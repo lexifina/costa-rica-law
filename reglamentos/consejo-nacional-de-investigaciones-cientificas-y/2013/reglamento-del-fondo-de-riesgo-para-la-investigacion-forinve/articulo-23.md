@@ -1,0 +1,1 @@
+Artículo 23.—La Entidad beneficiaria podrá ampliar de oficio el plazo de ejecución del proyecto hasta por un 25% del plazo original de éste, siempre que la decisión haya sido informada y justificada al CONICIT, antes de la fecha de finalización establecida contractualmente. El plazo ampliado por este mecanismo se contabiliza dentro del plazo máximo de ampliación de un año.

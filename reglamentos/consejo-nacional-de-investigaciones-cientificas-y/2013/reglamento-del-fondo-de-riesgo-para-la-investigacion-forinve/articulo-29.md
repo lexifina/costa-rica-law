@@ -1,0 +1,1 @@
+Artículo 29.—En caso de que en la labor de seguimiento técnico y financiero, se determine un posible incumplimiento a las obligaciones estipuladas en el contrato se procederá a la apertura del procedimiento administrativo de cobro, con el fin de que se determine las responsabilidades del caso y las acciones a ejecutar.

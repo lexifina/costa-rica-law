@@ -1,0 +1,17 @@
+Artículo 5º—Para los efectos legales que se deriven de la aplicación de este Reglamento, las siglas y definiciones empleadas tienen el sentido y los alcances que se mencionan en este artículo:
+a. BID: Banco Interamericano de Desarrollo.
+b. CONICIT: Consejo Nacional para Investigaciones Científicas y Tecnológicas.
+c. Consejo Director: Máxima Autoridad política y jurídica del CONICIT, encargada de aprobar las condiciones específicas de cada convocatoria, y criterios de evaluación, así como aprobar los proyectos a los cuales se les concederá ayuda financiera.
+d. Comité Especial de Crédito: Comité del Fideicomiso encargado de aprobar o denegar las solicitudes de financiamiento, previa evaluación y dictamen del CONICIT. El Comité Especial de Crédito está integrado por los miembros del Consejo Director del CONICIT.
+e. Fideicomiso: Figura administrativa creada mediante contrato Nº 04-99 CONICIT-Bancrédito, mediante la cual CONICIT traspasa al Fiduciario los recursos correspondientes al Fondo de Investigación y Capacitación del préstamo Nº 544/OC-CR CONICIT BID (Ley Nº 7099), para que se empleen en los fines lícitos y predeterminados en el acto constitutivo.
+f. Entidad Beneficiaria: Es la persona jurídica responsable de la realización del proyecto aprobado por el CONICIT.
+g. Máxima Autoridad: Es la persona física que tiene la representación legal de la Institución que representa.
+h. Investigador Principal: Persona física responsable de la dirección técnica, científica y ética del proyecto.
+i. Investigación Básica: Trabajos experimentales o teóricos que se emprenden principalmente para obtener nuevos conocimientos acerca de los fundamentos de los fenómenos y hechos observables, sin pensar en darles ninguna aplicación o utilización determinada.
+j. Investigación Aplicada: Trabajos originales realizados para adquirir nuevos conocimientos; está dirigida fundamentalmente hacia un objetivo práctico específico.
+k. Desarrollo Experimental: Trabajos sistemáticos que aprovechan los conocimientos existentes obtenidos de la investigación y/o la experiencia práctica, y está dirigido a la producción de nuevos materiales, productos o dispositivos; a la puesta en marcha de nuevos procesos, sistemas y servicios, o a la mejora sustancial de los ya existentes.
+l. Proyecto de Investigación: Toda actividad sistemática y creativa encaminada a aumentar el caudal de los conocimientos científicos y tecnológicos.
+m. Proyecto: El conjunto de actividades programadas que se realizan para conseguir ciertos objetivos específicos con un presupuesto dado, en un periodo de tiempo determinado y dentro de un marco organizacional.
+n. Período de ejecución del proyecto: Es el período en el cual se ejecutan todas las actividades y el presupuesto aprobado, con el fin de alcanzar el cumplimiento de los objetivos establecidos.
+o. Contrato: Instrumento jurídico que suscribe la máxima autoridad de la entidad beneficiaria y del CONICIT, que contiene el conjunto de derechos, obligaciones y potestades que rigen las relaciones entre las partes.
+p. Registro Científico y Tecnológico: Unidad creada mediante el artículo 25 de la Ley Nº 7169, dependiente del CONICIT, responsable de registrar los recursos que se destinan al quehacer de la ciencia y la tecnología, sean estos nacionales o extranjeros, públicos o privados, presupuestarios o extrapresupuestarios y de ser fuente de información para los interesados en la actividad científica y tecnológica del país, para ejecutar las acciones que correspondan.

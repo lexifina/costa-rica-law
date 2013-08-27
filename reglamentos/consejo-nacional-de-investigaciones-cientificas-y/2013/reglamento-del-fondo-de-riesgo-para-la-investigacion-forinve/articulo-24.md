@@ -1,0 +1,1 @@
+Artículo 24.—Si por alguna circunstancia la entidad beneficiaria necesita sustituir al investigador principal del proyecto, la entidad deberá solicitarlo por escrito presentando las justificaciones correspondientes. El CONICIT valorará los atestados del investigador sustituto y resolverá conforme a los mecanismos establecidos.

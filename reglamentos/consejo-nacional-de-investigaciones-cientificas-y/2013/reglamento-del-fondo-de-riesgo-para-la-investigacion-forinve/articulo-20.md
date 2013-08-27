@@ -1,0 +1,1 @@
+Artículo 20.—Para garantizar el avance del proyecto y fiscalizar el uso eficiente de los recursos, el CONICIT establecerá los mecanismos pertinentes de acuerdo a la legislación vigente y los hará del conocimiento a la entidad beneficiaria.
