@@ -15,3 +15,4 @@ Normas para la Aplicación de la Carrera Profesional en la Municipalidad de Mont
 | --- | --- | --- |
 | 1 | 1997-07-17 | la propia norma |
 | 2 | 2012-07-07 | Reglamento municipal 49 (2012-07-07) |
+| 3 | 2013-08-28 | SINALEVI (sin norma nombrada) |
