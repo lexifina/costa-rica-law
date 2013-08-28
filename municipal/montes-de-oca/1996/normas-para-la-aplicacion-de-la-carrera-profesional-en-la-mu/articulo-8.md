@@ -1,1 +1,0 @@
-Artículo 8°-La sede de la comisión será el Departamento de Departamento de Personal sesionará una vez cada seis meses y extraordinariamente cuando ingrese un nuevo trabajador. Los asuntos tratados serán resueltos por mayoría.

@@ -1,1 +1,0 @@
-Artículo 34.-Una vez definido el monto del incentivo de acuerdo con los factores evaluados, el Ejecutivo Municipal trasladara al Departamento de Personal el formulario en que consta la decisión tomada y IDS documentos probatorios.

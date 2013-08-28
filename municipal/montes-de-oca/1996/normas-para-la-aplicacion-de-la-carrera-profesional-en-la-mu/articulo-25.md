@@ -1,1 +1,0 @@
-Artículo 25.-Cuando se trate de escritos publicados por dos o más autores, el reconocimiento se hará distribuyendo los puntos en forma proporcional al al número de aquellos. En estas circunstancias las fracciones de puntos de podrán acumular para efectos de completar unidades.

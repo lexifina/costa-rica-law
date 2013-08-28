@@ -1,1 +1,0 @@
-Artículo 28.-La obtención de una calificación inferior a "muy bueno” será motivo para no otorgar y suspender el ajuste solicitado u otorgado. El año de experiencia respectivo, no será tornado en cuenta por estudios anteriores.

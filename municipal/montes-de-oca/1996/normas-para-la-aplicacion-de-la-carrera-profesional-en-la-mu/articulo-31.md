@@ -1,2 +1,0 @@
-Del procedimiento para otorgar los beneficios de la carrera profesional
-Artículo 3I.-Los funcionarios de nivel profesional que reúnan las condiciones indicadas en el articulo 3° para obtener los beneficios de la carrera profesional deberán hacer la respectiva solicitud por escrito a la Comisión Municipal y aportar junto a esta, los documentos (original y copia) necesarios para probar y fundamentar sus atestados.

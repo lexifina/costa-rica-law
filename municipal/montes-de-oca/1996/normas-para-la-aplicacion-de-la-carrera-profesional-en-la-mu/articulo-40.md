@@ -1,1 +1,0 @@
-Artículo 40.-EI Jefe del Departamento de Personal tendrá la obligación de controlar y aplicar luego de efectuada la calificación de servicios, lo dispuesto por el articulo 26 de este Reglamento, presentando una lista de los profesionales afectados al Ejecutivo, con copia a la Auditoría y a la Dirección Administrativa Financiera
