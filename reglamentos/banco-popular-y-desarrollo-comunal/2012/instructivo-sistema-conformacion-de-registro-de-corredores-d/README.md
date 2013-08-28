@@ -14,3 +14,4 @@ Instructivo Sistema conformación de registro de corredores de bienes raíces pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-06 | la propia norma |
+| 2 | 2013-08-28 | Reglamento 0 (2013-08-28) |

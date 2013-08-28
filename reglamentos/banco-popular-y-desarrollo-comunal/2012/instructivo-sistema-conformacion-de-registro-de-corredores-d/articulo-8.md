@@ -1,5 +1,6 @@
 Artículo 8º—Requisitos para integrar el registro de corredores de bienes raíces. Quienes soliciten su inscripción, y con el propósito de ser incorporados dentro del registro de corredores de bienes raíces del Banco Popular, deben cumplir al menos con los siguientes requisitos:
-1) Pueden ser personas físicas o jurídicas que tengan dentro de sus actividades la correduría de bienes raíces, para lo cual deberán aportar certificación de encontrarse incorporados a la Cámara de Corredores de Bienes Raíces, con indicación de la fecha desde la cual se encuentra agremiado en dicha cámara.
+1) Pueden ser personas físicas o jurídicas que tengan dentro de sus actividades la correduría de bienes raíces. Los demás puntos del artículo se mantienen invariables.
+(Así reformado el punto anterior mediante publicación en La Gaceta N° 179 del 18 de setiembre del 2013)
 2) Las personas físicas deberán aportar copia de su cédula de identidad, la cual debe estar vigente.
 3) Las personas jurídicas deberán aportar copia de la cédula jurídica de la sociedad, la cual debe estar vigente; certificación de la personería jurídica en la cual se detalle la distribución del capital accionario.
 4) Se deben presentar las siguientes declaraciones juradas:

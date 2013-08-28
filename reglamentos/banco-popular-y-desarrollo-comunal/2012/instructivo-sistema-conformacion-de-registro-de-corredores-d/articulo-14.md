@@ -1,1 +1,2 @@
-Artículo 14.—Conformación del registro de corredores de bienes raíces. Una vez en firme la aprobación de la solicitud de inscripción, el Subproceso Administración de Bienes Adjudicados procederá a conformar el registro de corredores, el cual será administrado por ese mismo Subproceso.
+Artículo 14.—Conformación del registro de corredores de bienes raíces. Una vez en firme la aprobación de la solicitud de inscripción, el Áreas(*) Administración de Bienes Adjudicados procederá a conformar el registro de corredores, el cual será administrado por ese mismo Áreas(*).
+(*) (Modificada su denominación mediante publicación en La Gaceta N° 179 del 18 de setiembre del 2013, anteriormente indicaba "Subproceso")

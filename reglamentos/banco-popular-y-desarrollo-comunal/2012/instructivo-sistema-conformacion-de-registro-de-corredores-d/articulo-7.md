@@ -1,2 +1,3 @@
 Artículo 7º—Plazo de inscripción y actualización de datos. Una vez publicada la invitación en La Gaceta y en un diario de circulación nacional, para registrarse como corredor de bienes raíces ó para actualización de datos aquellos quienes ya se encuentren inscritos, contarán con un plazo máximo de 15 días hábiles para presentar los documentos pertinentes, plazo contado a partir de la fecha de la última publicación, sea la realizada en el periódico de circulación nacional, según se establece en el artículo 6 de este instructivo.
-La solicitud de inscripción deberá realizarse ante el Subproceso Administración de Bienes Adjudicados.
+La solicitud de inscripción deberá realizarse ante el Áreas (*) Administración de Bienes Adjudicados.
+(*)(Modificada su denominación mediante publicación en La Gaceta N° 179 del 18 de setiembre del 2013, anteriormente indicaba "Subproceso")
