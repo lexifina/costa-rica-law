@@ -2,18 +2,21 @@ ARTÍCULO 10.- Pago de derechos trimestrales
 Los sujetos pasivos que tengan licencia para el expendio de bebidas con contenido alcohólico deberán realizar, trimestralmente a la municipalidad respectiva, el pago por anticipado de este derecho que se establecerá según el tipo de licencia que le fue otorgado a cada establecimiento comercial conforme a su actividad principal, establecido en la clasificación que señala el artículo 4 de la siguiente forma:
 1.- Licencia clase A: de un salario base y hasta dos salarios base.
 2.- Licencia clase B: de medio salario base y hasta un salario base.
-3.- Licencia clase C: un salario base.
-- Licencia clase C1: medio salario base.
-- Licencia clase C2: un salario base.
+(*)3.- Licencia clase C: un salario base.
+- Licencia clase C1: (Anulado de este inciso la frase: "medio salario base", mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013.)
+- Licencia clase C2: (Anulado de este inciso la frase: "un salario base", mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013.)
+(*) (Mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013, se interpretó conforme al Derecho a la Constitución que los montos únicos por concepto de pago de derechos trimestrales establecidos en el inciso 3), significan el límite máximo por aplicar, lo que implica que cada municipio puede fijar provisionalmente un límite mínimo de acuerdo con el potencial de explotación de cada negocio dentro de su respectiva clase de licencia, según sea su ubicación, tamaño, tipo de infraestructura, entre otros parámetros objetivos, todo ello hasta tanto el legislador no regule al respecto.)
 4.- Licencia clase D:
 - Licencia clase D1: de un salario base y hasta dos salarios base.
 - Licencia clase D2: de dos salarios base y hasta tres salarios base.
-5.- Licencia clase E:
+(*)5.- Licencia clase E:
 - Licencia clase E1a: un salario base.
 - Licencia clase E1b: dos salarios base.
 - Licencia clase E2: tres salarios base.
 - Licencia clase E3: dos salarios base.
 - Licencia clase E4: tres salarios base.
 - Licencia clase E5: un salario base.
+(*) (Mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013, se interpretó conforme al Derecho a la Constitución que los montos únicos por concepto de pago de derechos trimestrales establecidos en el inciso 5), para las Licencias Clase E1a, E1b, E2, E3, E4 y E5, significan el límite máximo por aplicar, lo que implica que cada municipio puede fijar provisionalmente un límite mínimo de acuerdo con el potencial de explotación de cada negocio dentro de su respectiva clase de licencia, según sea su ubicación, tamaño, tipo de infraestructura, entre otros parámetros objetivos, todo ello hasta tanto el legislador no regule al respecto)
 La licencia referida en el artículo 3 podrá suspenderse por falta de pago, o bien, por incumplimiento de los requisitos y las prohibiciones establecidos por esta ley y su reglamento, que regulan el desarrollo de la actividad.
 El pago extemporáneo de los derechos trimestrales está sujeto a una multa del uno por ciento (1%) por mes sobre el monto no pagado o fracción de mes hasta un máximo de un veinte por ciento (20%), y al pago de intereses.
+(Mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013, se estableció que: “…deviene inconstitucional que en todas las clases de licencia contempladas en esa norma (incluso las que tienen un mínimo y un máximo como rango), no esté regulado que la graduación del mencionado monto se debe aplicar conforme al potencial de explotación de cada negocio dentro de su respectiva clase de licencia, según sea su ubicación, tamaño, tipo de infraestructura, entre otros parámetros objetivos. Tal determinación corresponde al legislador ordinario; no obstante, a efectos de evitar el surgimiento de un vacío legal que cause graves dislocaciones a la seguridad, la justicia o la paz sociales, la Sala toma como referencia el criterio anterior del legislador incorporado en el artículo 12 de la Ley N° 10 (Ley sobre venta de licores) únicamente en cuanto al uso del parámetro de ubicación para determinar el monto del cobro de patentes, y, por ende, establece como medida excepcional y transitoria que hasta tanto el legislador ordinario no disponga otra cosa, los rangos estatuidos en el mencionado ordinal 10 únicamente serán aplicables a los negocios localizados en las cabeceras de provincia, debiendo reducirse a la mitad en el caso de las cabeceras de cantón y en una cuarta parte cuando se trata de las demás poblaciones..”)
