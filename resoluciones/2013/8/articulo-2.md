@@ -1,1 +1,0 @@
-Artículo 2º—Se deja sin efecto la resolución Nº DGH-011-2012 de las quince horas del día seis de mayo del dos mil once, de la Dirección General de Hacienda, publicada en La Gaceta Nº 123 del 26 de junio del 2012.
