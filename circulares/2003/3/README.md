@@ -13,3 +13,4 @@ Reglas prácticas en relación con indagación situación económica del imputad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-14 | la propia norma |
+| 2 | 2013-08-29 | Circular 148 (2013-08-29) |
