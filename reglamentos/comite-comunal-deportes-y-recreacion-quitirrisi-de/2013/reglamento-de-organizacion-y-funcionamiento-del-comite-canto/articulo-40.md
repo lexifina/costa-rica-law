@@ -1,0 +1,1 @@
+Artículo 40.—El CCDR Mora podrá administrar instalaciones deportivas por delegación del municipio o mediante convenio ratificado por el Concejo Municipal con otra organización o institución. Dicha administración podrá ser delegada en los Comités Comunales de Deportes y Recreación de distrito, bajo una estricta supervisión del CCDR Mora.

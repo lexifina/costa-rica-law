@@ -1,0 +1,1 @@
+Artículo 56.—Para regular el funcionamiento operativo y funcional de las diversas áreas del CCDR Mora, la junta directiva emitirá las recomendaciones de reglamentos internos para ser aprobados por el Concejo Municipal, así como las directrices y resoluciones que procuren el adecuado uso de los fondos públicos que han sido encomendados por el Código Municipal.

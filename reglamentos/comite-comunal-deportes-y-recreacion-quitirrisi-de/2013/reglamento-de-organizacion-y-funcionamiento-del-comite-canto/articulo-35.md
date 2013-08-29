@@ -1,0 +1,1 @@
+Artículo 35.—Cuando un integrante de la junta directiva no asista a una sesión, debe comunicar a la presidencia o vicepresidencia de la junta la justificación de su inasistencia. Para hacerlo por escrito contará con un plazo máximo de veinticuatro horas.

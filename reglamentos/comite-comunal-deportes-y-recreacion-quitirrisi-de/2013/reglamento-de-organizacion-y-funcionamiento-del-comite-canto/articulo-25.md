@@ -1,0 +1,1 @@
+Artículo 25.—Los miembros de la junta directiva de los Comités Comunales de Deporte y Recreación tanto distritales como locales durarán en sus puestos dos años y su nombramiento se llevará a cabo con al menos un mes de anticipación al vencimiento de su respectivo periodo.

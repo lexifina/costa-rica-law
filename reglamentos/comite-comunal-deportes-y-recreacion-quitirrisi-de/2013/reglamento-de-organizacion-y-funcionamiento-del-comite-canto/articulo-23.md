@@ -1,0 +1,1 @@
+Artículo 23.—Los Comités Comunales de Deportes y Recreación Distritales podrán administrar instalaciones deportivas mediante delegación del CCDR Mora, según lo establecido en el artículo 40 de este Reglamento y cumplirán con los mismos fines declarados para el CCDR Mora dentro de su jurisdicción.

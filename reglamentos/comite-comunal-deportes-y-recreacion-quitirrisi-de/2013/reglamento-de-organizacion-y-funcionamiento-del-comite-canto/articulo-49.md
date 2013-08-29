@@ -1,0 +1,1 @@
+Artículo 49.—La junta directiva del CCDR Mora podrá apoyar el funcionamiento de los Comités Comunales de Deportes y Recreación con asignación de recursos, siempre y cuando dicho apoyo sea motivado y esté debidamente presupuestado.

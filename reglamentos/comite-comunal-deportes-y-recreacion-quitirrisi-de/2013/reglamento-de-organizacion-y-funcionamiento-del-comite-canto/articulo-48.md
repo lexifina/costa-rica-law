@@ -1,0 +1,3 @@
+Artículo 48.—En el presupuesto ordinario del CCDR Mora y de los Comités Comunales de Deportes y Recreación, deben reflejarse el plan operativo anual, así como los programas que se ejecutarán en el período anual al que corresponde el presupuesto. Los gastos presupuestarios no pueden exceder los ingresos probables.
+El CCDR Mora, a través de su tesorero y/o contador, y mediante convenio con alguna entidad bancaria, procederá a abrir una cuenta a favor de cada Comité Comunal, en donde se depositarán todos los fondos del respectivo Comité.
+Esa cuenta se encontrará bajo estricta supervisión del CCDR Mora y los gastos en que incurran los Comités Comunales deben estar incorporados en su respectivo presupuesto y les serán debitados por el CCDR Mora de sus cuentas.

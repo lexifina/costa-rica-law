@@ -1,0 +1,1 @@
+Artículo 12.—Los miembros de la junta directiva durarán en sus cargos dos años, podrán ser reelectos y no devengarán dietas ni remuneración alguna por su servicio voluntario a favor del desarrollo del deporte y la recreación.

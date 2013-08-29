@@ -1,0 +1,4 @@
+Artículo 31.—Sustituciones por ausencias permanentes. En el caso de ausencias definitivas de algún miembro de una Junta Directiva del CCDR Mora se recurrirá al siguiente proceso conforme corresponda:
+a) Cuando se trate de un miembro que ha sido nombrado de manera directa por parte del Concejo Municipal en la junta directiva del CCDR Mora, el Concejo nombrará su reemplazo de manera directa en la próxima sesión del Concejo donde se conozca la ausencia.
+b) Cuando se trate del representante de las organizaciones de desarrollo comunal o de las organizaciones deportivas del cantón, lo nombrará el Concejo de la terna que envíen las asociaciones de desarrollo reconocidas por DINADECO para el primer caso o las asociaciones deportivas o recreativas para el segundo caso.
+c) Cuando se trate de un miembro de un Comité Comunal de Deportes y Recreación de Distrito o Local lo realizará la Junta Directiva del CCDR Mora de manera directa.

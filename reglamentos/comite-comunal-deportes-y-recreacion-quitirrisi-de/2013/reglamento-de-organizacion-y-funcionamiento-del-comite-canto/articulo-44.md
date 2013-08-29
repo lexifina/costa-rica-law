@@ -1,0 +1,1 @@
+Artículo 44.—El CCDR Mora y los Comités Comunales de Deportes y Recreación, en lo que se refiere al mantenimiento de las canchas de fútbol, específicamente de su gramilla, deberán contemplar periodos de recuperación según el clima y la temporada proyectada.

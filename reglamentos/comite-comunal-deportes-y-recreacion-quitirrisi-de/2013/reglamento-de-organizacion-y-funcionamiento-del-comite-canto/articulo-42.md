@@ -1,0 +1,1 @@
+Artículo 42.—Las instalaciones deportivas serán clasificadas por el CCDR Mora, en categorías, de acuerdo con las condiciones de éstas; también ordenará el uso de éstas por los usuarios, de acuerdo con el tipo de actividad que realicen.

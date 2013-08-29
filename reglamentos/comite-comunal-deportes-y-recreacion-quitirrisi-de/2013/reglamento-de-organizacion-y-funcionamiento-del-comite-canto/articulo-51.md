@@ -1,0 +1,5 @@
+Artículo 51.—Los cánones por el uso de las instalaciones deportivas o recreativas son de cobro obligatorio y no pueden ser modificados sin previa autorización de la Junta Directiva y del Concejo Municipal.
+Se exceptuarán de dichos pagos todos aquellos grupos que están integrados dentro del desarrollo de los programas deportivos o recreativos del CCDR Mora. Dichos grupos deben inscribirse en un padrón registro que llevará la secretaría del CCDR Mora.
+La junta directiva del CCDR Mora establecerá los requisitos para poder ser parte de dicho padrón registro, así como los requisitos para recibir aportes por parte de este.
+Para recibir aportes por parte de algún órgano del CCDR Mora, el grupo interesado deberá estar inscrito en dicho padrón registro y cumplir con los requisitos y obligaciones establecidos para tal efecto.
+Están exentos de la inscripción del Padrón Registro aquellos centros educativos, organizaciones deportivas, recreativas, de desarrollo comunal o instituciones de orden público sin fines de lucro del cantón que hayan suscrito un convenio de cooperación o de asistencia con el CCDR Mora y que se encuentre vigente.

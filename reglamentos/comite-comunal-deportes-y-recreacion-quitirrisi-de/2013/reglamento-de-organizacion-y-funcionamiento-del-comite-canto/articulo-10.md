@@ -1,0 +1,1 @@
+Artículo 10.—La junta directiva deberá comunicar por escrito al Concejo Municipal, a más tardar ocho días posteriores a la celebración de su primera sesión, el acuerdo de la conformación de la Junta, lugar, hora y fecha para la celebración de las sesiones ordinarias, así como las modificaciones que pudiesen darse a ese acuerdo, en forma posterior.

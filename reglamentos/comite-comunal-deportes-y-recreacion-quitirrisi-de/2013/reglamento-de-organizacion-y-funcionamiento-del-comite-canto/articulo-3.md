@@ -1,0 +1,1 @@
+Artículo 3º—El CCDR Mora podrá realizar todo tipo de convenios con ministerios, instituciones educativas, organizaciones sociales, deportivas o recreativas, que se sustenten en la promoción deportiva y recreativa, en cumplimiento de los objetivos para los que ha sido creado.

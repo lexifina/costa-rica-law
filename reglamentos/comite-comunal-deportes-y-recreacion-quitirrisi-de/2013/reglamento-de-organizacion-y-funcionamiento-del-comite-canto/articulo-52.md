@@ -1,0 +1,1 @@
+Artículo 52.—La junta directiva del CCDR Mora podrá evaluar y autorizar iniciativas de generación de recursos para aumentar los ingresos del CCDR Mora o de los Comités Comunales de Deportes y Recreación.

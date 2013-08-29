@@ -1,0 +1,1 @@
+Artículo 21.—De los Comités Comunales de Deportes y Recreación Distritales. En cada uno de los distritos del cantón existirá un Comité Comunal de Distrito de Deportes y Recreación. Dichos comités estarán adscritos al CCDR Mora y su objetivo será colaborar en el cumplimiento de las metas previstas por este.

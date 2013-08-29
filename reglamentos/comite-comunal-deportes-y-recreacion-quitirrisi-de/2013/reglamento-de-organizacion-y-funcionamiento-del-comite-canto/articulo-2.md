@@ -1,0 +1,1 @@
+Artículo 2º—Dicho Comité Cantonal funcionará acorde con la legislación vigente y acatará las directrices emanadas por el Concejo Municipal de Mora. Asimismo, podrá trabajar en coordinación con las autoridades locales, regionales y nacionales con el objetivo de cumplir los fines para los que ha sido creado.

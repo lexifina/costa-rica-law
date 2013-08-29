@@ -1,0 +1,1 @@
+Artículo 34.—El quórum para sesionar es de tres miembros. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si el reglamento u otra norma conexa señala un número mayor de votos. En caso de empate en una votación, se repetirá inmediatamente la votación y si el empate persiste, el asunto se tendrá por desechado automáticamente.

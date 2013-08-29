@@ -1,0 +1,2 @@
+Artículo 47.—La junta directiva del CCDR Mora elaborará, aprobará y enviará al Concejo Municipal para su respectiva aprobación, un plan anual operativo y un presupuesto anual la primera semana del mes de julio de cada año.
+En dicho presupuesto se incluirán, además de los fondos otorgados por la Municipalidad, los fondos generados mediante las diversas actividades que atiente el CCDR Mora o sus órganos.
