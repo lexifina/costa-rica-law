@@ -75,6 +75,7 @@ articulo-72.md
 articulo-73.md
 articulo-74.md
 articulo-75.md
+articulo-75-bis.md
 articulo-76.md
 articulo-77.md
 articulo-78.md

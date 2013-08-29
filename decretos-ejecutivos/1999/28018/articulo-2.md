@@ -14,6 +14,8 @@ Café pergamino: El endospermo del fruto del cafeto, cubierto por el endocarpio 
 Café soluble: Las partículas sólidas, secas solubles en agua, obtenidas del café tostado.
 Café tostado: Café tostado en cualquier grado incluye café molido.
 Café verde: El fruto completo del cafeto que no ha alcanzado la madurez fisiológica.
+Coberturas: Conjunto de operaciones dirigidas a anular o reducir el riesgo utilizando la plataforma de Bolsa “Intercontinental Coffee Exchange” ICE.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 37984 del 29 de agosto del 2013)
 Comprador-comerciante: Persona física o jurídica que ejerce el comercio de café, como intermediario, entre firmas beneficiadoras, lorrefactores u otros comerciantes.
 Contrato de compra-venta: Es el documento formal mediante el cual una de las partes otorga el derecho de propiedad sobre el café descrito en el mismo una vez inscrito en el Instituto del Café.
 Cuota de consumo nacional: Cantidad mínima de café que el beneficiador está obligado a destinar para vender al consumo nacional de acuerdo con las disposiciones de la Junta Directiva.
@@ -22,6 +24,8 @@ Declaración aduanera: Formulario único de exportación e importación de merca
 Dirección Ejecutiva: La dependencia directamente a cargo del Director Ejecutivo del ICAFÉ.
 Director Ejecutivo: El Director Ejecutivo del Instituto del Café de Costa Rica y en su ausencia o por delegación, el Subdirector Ejecutivo.
 Exportación de café: Todo envío comercial de café que salga del país.
+Gastos complementarios: Aquellos gastos imputables a la actividad de exportación que estén debidamente registrados en la contabilidad del Exportador, aceptados y justificados ante la Dirección General de Tributación Directa.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 37984 del 29 de agosto del 2013)
 ICAFE: El Instituto del Café de Costa Rica.
 Instituto: El Instituto del Café de Costa Rica,
 Junta de Liquidaciones: Órgano colegiado creado por ley, de nombramiento de la Junta Directiva para regir el proceso de liquidación al productor.
@@ -47,4 +51,6 @@ Planta de torrefacción de café: Establecimiento dedicado al tostado y molido d
 Precio rieles: El precio interno pactado entre beneficio y exportador. Equivale al precio F.O.B. menos gastos autorizados de exportación e impuestos directamente vinculados a la exportación.
 Rendimiento: Es la relación o resultado de la conversión del volumen de café fruta al volumen de café oro obtenida del procesamiento.
 Recibidor: Activo utilizado por un beneficio para recibir café en fruta de los productores, para acopiarlo previo a su traslado a la planta y que forma pane de la unidad económica que es el beneficio.
+Reconocimiento económico por Certificaciones: Corresponde a los montos que el cliente final paga por “café certificado”, y que no se incluye en el precio FOB ICAFE, el cual debe ser distribuido por los Beneficios entre los Productores que forman parte de la respectiva certificación.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutvo N° 37984 del 29 de agsto del 2013)
 Torrefactor de café: La persona física o jurídica propietaria o arrendataria de un establecimiento dedicado al tostado y molido de café.
