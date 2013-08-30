@@ -1,0 +1,1 @@
+Artículo 27.—El plazo del cierre del negocio será por un período máximo de cinco días, prorrogable en forma automática por otro período igual, cuando se mantengan los motivos por los que se dictó la resolución final de cierre, previa verificación por parte de los funcionarios ejecutores; situación que se deberá hacer constar en el acta de prórroga de cierre.

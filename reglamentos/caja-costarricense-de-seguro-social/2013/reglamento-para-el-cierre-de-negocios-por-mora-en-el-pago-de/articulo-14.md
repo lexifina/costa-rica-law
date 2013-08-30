@@ -1,0 +1,1 @@
+Artículo 14.—En caso de notificación personal, servirá como prueba el acta firmada por la persona que la recibe y el funcionario que la notifica, o sólo por este último, si quien recibe la notificación se negare a firmar, en cuyo caso el notificador debe dejar constancia de ello.

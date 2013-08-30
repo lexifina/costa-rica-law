@@ -1,0 +1,2 @@
+Artículo 17.—El recurso se presentará por escrito ante el órgano que dictó la resolución. Bajo pena de inadmisibilidad deberá ser fundamentado expresando las razones y aportando u ofreciendo las pruebas pertinentes. El escrito deberá señalar lugar y medio para recibir notificaciones en alzada, dentro del perímetro establecido en los artículos 1 y 9, según corresponda.
+De no indicar lugar o medio para notificaciones, las resoluciones posteriores, se tendrán por notificadas con solo el transcurso de 24 (veinticuatro) horas contadas a partir de la fecha de la resolución.

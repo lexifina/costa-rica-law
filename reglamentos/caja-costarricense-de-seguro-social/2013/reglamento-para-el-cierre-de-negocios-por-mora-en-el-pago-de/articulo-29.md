@@ -1,0 +1,2 @@
+Artículo 29.—En caso de destrucción o alteración de sellos, él o los funcionarios ejecutores levantarán un acta que deberá contener un detalle de todo lo ocurrido y constatado, así como la información recabada respecto de posibles testigos de lo sucedido.
+Si existiere en él (o los) negocio (s) infractor (es), el representante o cualquier empleado del mismo, se le entregará copia del acta. Si no existiere, se procederá a notificar dicha copia en el lugar o medio señalado para recibir notificaciones.

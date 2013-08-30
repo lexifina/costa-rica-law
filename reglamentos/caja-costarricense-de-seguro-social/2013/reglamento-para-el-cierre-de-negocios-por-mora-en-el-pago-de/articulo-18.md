@@ -1,0 +1,2 @@
+Artículo 18.—El recurso de revocatoria lo resolverá el órgano que dictó el acto dentro del plazo de 20 (veinte) días contados a partir de su presentación.
+Resuelto el recurso de revocatoria se procederá a su notificación al recurrente. En caso de declararse sin lugar y de existir recurso de apelación, el órgano que dictó la notificación trasladará el recurso de apelación junto con el expediente administrativo debidamente foliado y mediante oficio a la Junta Directiva.

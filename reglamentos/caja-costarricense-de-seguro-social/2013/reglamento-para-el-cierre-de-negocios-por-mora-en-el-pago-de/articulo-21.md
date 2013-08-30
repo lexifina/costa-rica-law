@@ -1,0 +1,3 @@
+Artículo 21.—Una vez firme el acto administrativo, el funcionario ejecutor designado por la administración, procederá al cierre del (os) establecimiento (s), local (es) o centro (s) donde el patrono o trabajador independiente realiza la actividad y a prohibir el ejercicio de la actividad.
+El cierre se ejecutará donde se realiza la actividad del patrono o trabajador independiente que se hizo acreedor a la medida administrativa regulada en el artículo 2 de este Reglamento.
+La Institución podrá habilitar horas y días inhábiles para la ejecución del cierre material, de conformidad con la Ley General de la Administración Pública, de aplicación supletoria.

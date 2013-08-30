@@ -1,0 +1,1 @@
+Artículo 7º—Se entiende como proceso de arreglo de pago, aquel que haya sido debidamente formalizado entre la Caja y el administrado deudor, de acuerdo con lo dispuesto en la normativa creada al efecto por la Caja.
