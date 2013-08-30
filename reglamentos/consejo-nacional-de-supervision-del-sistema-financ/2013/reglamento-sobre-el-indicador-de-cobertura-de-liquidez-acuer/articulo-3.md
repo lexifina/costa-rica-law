@@ -1,0 +1,3 @@
+Artículo 3º—Definiciones. Para la aplicación del presente reglamento deberán considerarse las siguientes definiciones:
+a. Riesgo de liquidez: Es la posibilidad de una pérdida económica debido a la escasez de fondos que impediría cumplir las obligaciones en los términos pactados. El riesgo de liquidez también puede asociarse a un instrumento financiero particular, y está asociado a la profundidad financiera del mercado en el que se negocia para demandar u ofrecer el instrumento sin afectación significativa de su valor.
+b. Administración del riesgo de liquidez: Proceso por medio del cual una entidad supervisada identifica, mide, evalúa, monitorea, controla, mitiga y comunica el riesgo de liquidez.

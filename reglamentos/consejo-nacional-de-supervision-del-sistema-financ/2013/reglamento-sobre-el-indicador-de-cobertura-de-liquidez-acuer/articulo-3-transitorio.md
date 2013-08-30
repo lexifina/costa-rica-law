@@ -1,0 +1,2 @@
+Transitorio III.—A más tardar el 30 de junio del 2014, la Superintendencia coordinará un estudio de impacto cuantitativo del ICL, por lo que se insta a las entidades a identificar y cuantificar internamente los elementos necesarios para el cálculo de este indicador. A partir de la valoración de los resultados obtenidos, la superintendencia podrá considerar la re calibración de la gradualidad establecida en el considerando anterior, sea de manera global o para entidades en situación especial.
+Vigencia.—Rige a partir de su publicación en el Diario Oficial La Gaceta.

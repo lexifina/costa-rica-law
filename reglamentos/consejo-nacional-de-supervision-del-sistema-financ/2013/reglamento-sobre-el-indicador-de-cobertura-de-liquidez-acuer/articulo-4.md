@@ -1,0 +1,1 @@
+Artículo 4º—Lineamientos generales. El Superintendente podrá emitir y modificar, mediante resolución razonada, los lineamientos generales que considere necesarios para la aplicación de este reglamento.

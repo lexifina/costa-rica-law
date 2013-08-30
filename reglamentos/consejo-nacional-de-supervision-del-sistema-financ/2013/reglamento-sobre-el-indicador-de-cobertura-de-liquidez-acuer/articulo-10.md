@@ -1,0 +1,1 @@
+Artículo 10.—Mecanismos internos de control y cumplimiento. En el marco de sus funciones de control y cumplimiento, la auditoría interna o el órgano de control equivalente de la entidad supervisada, debe verificar el cumplimiento de las disposiciones del presente reglamento.
