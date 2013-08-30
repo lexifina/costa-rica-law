@@ -1,0 +1,1 @@
+Artículo 9º—La distribución de ingresos generados en el Distrito de Colorado, producto de las actividades que realice la empresa Cemex Costa Rica, establecidas en el presente convenio artículo 3 inciso a) se respetarán, aún si el Distrito de Colorado llegare a ser declarado Cantón.

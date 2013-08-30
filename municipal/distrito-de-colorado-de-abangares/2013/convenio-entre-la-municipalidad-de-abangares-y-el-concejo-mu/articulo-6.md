@@ -1,0 +1,1 @@
+Artículo 6º—El Concejo Municipal de Abangares autoriza al Concejo Municipal de Distrito de Colorado, para que éste recaude, cobre, administre y presupueste el total de los ingresos del Impuesto de Bienes Inmuebles de su jurisdicción, de acuerdo a la Ley Nº 7509 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 13.—El presente convenio deroga el publicado en La Gaceta Nº 27 del 07 de febrero de 2007 y cualquier otra normativa que se le oponga y entrará a regir a partir de que ambos concejos lo aprueben y publiquen en el Diario Oficial por un período hasta el día treinta y uno de diciembre del año dos mil dieciséis.

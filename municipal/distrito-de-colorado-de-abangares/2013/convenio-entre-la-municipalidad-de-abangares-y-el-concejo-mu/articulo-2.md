@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al Concejo Municipal de Distrito de Colorado, para que recaude, administre y presupueste los ingresos que se originen por tributos según la distribución establecida en este convenio…. En el Distrito de Colorado.

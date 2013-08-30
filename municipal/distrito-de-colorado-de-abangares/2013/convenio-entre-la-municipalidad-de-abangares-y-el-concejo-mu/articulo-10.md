@@ -1,0 +1,1 @@
+Artículo 10.—Las administraciones de ambos Concejos Municipales, coordinarán internamente con los funcionarios de los diferentes Departamentos, para que se dé una adecuada comunicación y colaboración en la gestión municipal.
