@@ -1,0 +1,11 @@
+ARTÍCULO 22
+Disposiciones Finales
+1. Cada una de las Partes notificará a la Otra, por la vía diplomática, el cumplimiento de los procedimientos requeridos por su derecho interno para la entrada en vigor del presente Tratado. El presente Tratado entrará en vigor el primer día del segundo mes siguiente a la fecha de recepción de la última notificación, recibida por la vía diplomática.
+2. Cualquiera de las Partes podrá dar por terminado el presente Tratado en todo momento, mediante notificación por escrito dirigida a la otra Parte, por la vía diplomática. En este caso, la terminación surtirá efectos el primer día del tercer mes siguiente a la fecha de la recepción de dicha notificación. No obstante, las solicitudes de extradición que se hayan recibido antes de la fecha en la que surta efecto la terminación del Tratado se seguirán tramitando con arreglo a este Tratado.
+3. El presente Tratado podrá ser modificado por mutuo consentimiento de las Partes, formalizado a través de comunicaciones escritas. Las modificaciones entrarán en vigor de conformidad con el procedimiento establecido en el párrafo 1 del presente Artículo.
+4. A la entrada en vigor del presente Tratado, quedarán sin efectos las disposiciones relativas a la figura de extradición contenidas en el Tratado de Extradición y Asistencia Jurídica Mutua en materia Penal entre los Estados Unidos Mexicanos y la República de Costa Rica, suscrito en San José, Costa Rica, el 13 de octubre de 1989. Sin embargo, las solicitudes de extradición que estuvieren en curso en la fecha de entrada en vigor del presente Tratado, se regirán y decidirán de conformidad con las disposiciones del Tratado firmado el 13 de octubre de 1989 hasta su conclusión.
+En fe de lo cual, los infrascritos, debidamente autorizados por sus respectivos Gobiernos, han firmado el presente Tratado.
+Hecho en la Ciudad de México, a los veintidós días del mes de agosto del año dos mil once, en dos ejemplares, en idioma español, siendo ambos textos igualmente auténticos.
+POR LA REPÚBLICA DE COSTA RICA Carlos Alberto Roverssi Rojas Ministro a.i. de Relaciones Exteriores y Culto | POR LOS ESTADOS UNIDOS MEXICANOS Marisela Morales Ibáñez Procuradora General de la República”
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los treinta días del mes de abril del año dos mil trece.
