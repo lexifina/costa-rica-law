@@ -1,0 +1,3 @@
+3. Modificar el artículo 43 del Reglamento de Inversiones de las Entidades Reguladas, para que se lea como sigue:
+“Artículo 43.—Comisiones
+El costo de intermediación incurrido por cada transacción deberá ser imputado al valor del instrumento negociado. Todos aquellos costos correspondientes a custodia, asesoramiento, investigación, suscripción de contratos marco para realizar operaciones con derivados financieros y otros, deberán ser cubiertos, en su totalidad, por la entidad regulada. Se exceptúa de lo anterior a los gestores que, por su naturaleza, no cobren ordinariamente comisiones de administración al afiliado.”
