@@ -1,2 +1,0 @@
-Artículo 10.—Liberación de garantías. Las garantías serán liberadas una vez comprobado el pago total de la deuda tributaria garantizada.
-La Dirección General de Tributación en coordinación con la Tesorería Nacional, establecerán los lineamientos y directrices para el traslado, cuido y entrega de los documentos en que constan las garantías otorgadas, de conformidad con el inciso e), artículo 61 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Nº 8131.

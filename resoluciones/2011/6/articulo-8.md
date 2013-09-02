@@ -1,8 +1,0 @@
-Artículo 8º—Oficio de Aprobación o Denegatoria. Efectuado el estudio de la solicitud de aplazamiento o fraccionamiento de pago y de su garantía, se notificará al sujeto pasivo la decisión administrativa, dentro del plazo máximo de diez días hábiles contados a partir de la presentación de la solicitud. El plazo podrá ampliarse cuando se requiera un peritaje sobre la garantía ofrecida.
-Las condiciones del aplazamiento o fraccionamiento de pago que se deben incluir en el oficio serán:
-a) Plazos y montos de cuotas.
-b) La garantía de pago, cuando corresponda.
-c) El vencimiento de los plazos deberá coincidir con el último día hábil del mes.
-d) Si la solicitud se refiere a un aplazamiento de pago y el oficio fuere denegatorio, se advertirá al solicitante en el mismo oficio, que la deuda tributaria debe pagarse antes de la finalización del período legal de ingreso, si éste no hubiera todavía transcurrido.
-En el caso de que el oficio fuese denegatorio y haya transcurrido el plazo legal para el pago de la deuda, en el mismo se le prevendrá al sujeto pasivo para que cancele la deuda en un plazo no mayor a quince días, junto con los intereses devengados hasta la fecha de pago, de conformidad con el artículo 169 del Código de Normas y Procedimientos Tributarios.
-Tratándose de un acto facultativo de la Administración Tributaria, y habiéndose establecido en esta resolución los aspectos económicos y financieros que pueden motivar la solicitud, así como los requisitos específicos que ésta debe reunir para su presentación, contra el oficio que deniegue total o parcialmente la solicitud de aplazamiento o fraccionamiento de pago no cabrá recurso alguno.

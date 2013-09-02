@@ -1,1 +1,0 @@
-Artículo 3º—Legitimación. Todo sujeto pasivo de las deudas tributarias conforme a los requisitos y parámetros indicados en el artículo anterior, está legitimado para solicitar aplazamientos o fraccionamientos de pago. Podrá actuar directamente o mediante apoderado y deberá cumplir con los deberes formales y materiales que le sean requeridos en ocasión a su solicitud.

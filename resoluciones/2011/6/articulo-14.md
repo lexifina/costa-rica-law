@@ -1,1 +1,0 @@
-Artículo 14.—Competencia del Departamento de Cobro Judicial. Respecto a las deudas tributarias que administra la Dirección General de Tributación, el Departamento de Cobro Judicial de la Dirección General de Hacienda, únicamente podrá otorgar fraccionamientos de pago sobre las deudas bajo su competencia, y en las mismas condiciones establecidas por esta resolución general.
