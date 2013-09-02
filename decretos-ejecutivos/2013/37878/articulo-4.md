@@ -1,0 +1,1 @@
+Artículo 4º—La normativa de aplicación de exactitudes absolutas y relativas para los levantamientos de agrimensura, anteriormente citada, deberá ser utilizada también, en todas las zonas del país donde el Registro Inmobiliario del Registro Nacional cuente con ortofoto a escala 1: 1000 o 1:5000, aún y cuando se encuentren fuera de la zona declarada catastrada.
