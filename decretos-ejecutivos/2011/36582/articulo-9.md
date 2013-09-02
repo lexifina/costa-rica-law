@@ -1,1 +1,0 @@
-Artículo 9º—Divulgación de los Valores de Referencia. Toda resolución de determinación o variación de valores de referencia debe ser publicada en el Diario Oficial La Gaceta y ponerse a disposición en el sitio Web del Ministerio de Hacienda.

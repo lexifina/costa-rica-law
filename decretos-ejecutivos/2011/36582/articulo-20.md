@@ -1,1 +1,0 @@
-Artículo 20.—Definición de los procedimientos. La Dirección General definirá, mediante resolución de alcance general, las normas de procedimiento que deben ser observadas para la aplicación del presente capítulo.

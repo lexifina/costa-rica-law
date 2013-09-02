@@ -1,1 +1,0 @@
-Artículo 11.—Actualización y administración de la Base de Datos de Valoración. Corresponde a la Dirección de Gestión de Riesgo efectuar y actualizar los estudios, de valores de referencia que formarán parte de la Base de Datos de Valoración, para su aprobación y oficialización por parte de la Dirección General.

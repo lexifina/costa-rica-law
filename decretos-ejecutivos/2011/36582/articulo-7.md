@@ -1,4 +1,0 @@
-Artículo 7º—Elementos que deben ser observados por la Dirección General para la inclusión de mercancías en la Base de Datos de Valoración. Para incluir una mercancía en la Base de Datos de Valoración, la Dirección General deberá observar que cada mercancía sea definida tomando en cuenta la clasificación arancelaria, a diez (10) dígitos, así como las demás variables que permitan su identificación precisa.
-Además, deberá considerar alguno de los siguientes aspectos:
-a) Que se hayan analizado las importaciones correspondientes a dicha mercancía en un período de tres meses, el cual puede ser mayor.
-b) Que se hayan consultado fuentes y/u obtenido información especializada de los productores y/o comerciantes nacionales para establecer un valor razonable y normal indiciario a nivel de mercado mayorista internacional para ese producto.
