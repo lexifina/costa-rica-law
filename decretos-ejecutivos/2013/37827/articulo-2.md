@@ -1,0 +1,1 @@
+Artículo 2º—El 4 de julio de cada año, se realizarán actos conmemorativos alusivos al felino silvestre, en coordinación con la Dirección de Vida Silvestre del Sistema Nacional de Áreas de Conservación.
