@@ -1,0 +1,1 @@
+Artículo 5º—El Registro Inmobiliario del Registro Nacional determinará de acuerdo a los medios tecnológicos a su disposición, cual es la forma en que se brindarán los datos requeridos para realizar los enlaces de los levantamientos de aplicación catastral a la Red Nacional de Coordenadas.
