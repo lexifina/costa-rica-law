@@ -1,0 +1,1 @@
+Artículo 2º—La descripción oficial de un asiento inmobiliario, está dada por los datos gráficos y alfanuméricos del predio correspondiente en el Mapa Catastral oficializado, los cuales constan en las bases de datos del Registro Inmobiliario. En una zona no catastrada, se utilizará el plano catastrado respectivo.
