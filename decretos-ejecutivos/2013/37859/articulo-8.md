@@ -1,0 +1,1 @@
+Artículo 8º—Objetivo: Brindar una plataforma tecnológica actualizada y robusta, que permita garantizar la eficiencia, disponibilidad y continuidad de los servicios de Tecnologías de Información y Comunicación.
