@@ -1,0 +1,1 @@
+Artículo 9°—Cuando una persona integrante de la Comisión de la Galería no asista injustificadamente a tres sesiones consecutivas, ya sean ordinarias o extraordinarias, la Presidencia de la Comisión solicitará su sustitución a la institución que representa.

@@ -1,0 +1,1 @@
+Artículo 29.—El presente reglamento deroga el anterior, promulgado mediante Decreto Ejecutivo N° 29542-C-MCM, de fecha 16 de Mayo de 2001, publicado en el Diario OficialLa Gaceta N° 107 del 05 de junio de 2001.
