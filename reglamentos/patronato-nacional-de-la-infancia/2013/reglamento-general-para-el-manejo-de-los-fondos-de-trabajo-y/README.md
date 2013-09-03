@@ -14,3 +14,4 @@ Reglamento general para el manejo de los fondos de trabajo y cajas chicas auxili
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-03 | la propia norma |
+| 2 | 2013-09-03 | Reglamento 34 (2013-09-03) |
