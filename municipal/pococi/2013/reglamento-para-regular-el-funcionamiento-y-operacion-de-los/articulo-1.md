@@ -1,0 +1,36 @@
+MUNICIPALIDAD DE POCOCÍ
+Se transcribe acuerdo tomado por el Concejo Municipal de Pococí en sesión N° 40 extraordinaria del 7-6-2013, acta Nº 40, artículo II, Acuerdo N° 1105.
+Se conoce recurso para este Concejo, suscrita por la Lic. Mayra Montes Arce, Servicios Jurídicos Internos, dice: Oficio Nº SJI 39-2013.
+Asunto: entrega de Reglamento para Regular el Funcionamiento y Operación de los Centros de Cuido y Desarrollo Infantil del Cantón de Pococí, para su respectiva publicación en La Gaceta.
+En virtud del acuerdo tomado en el que se acordó y sometió a consulta pública no vinculante el Proyecto del Reglamento para Regular el Funcionamiento y Operación de los Centro de Cuido y Desarrollo Infantil del Cantón de Pococí; y de conformidad con lo aprobado en sesión ordinaria Nº 95, celebrada el día 10 de diciembre del 2012, Acta Nº 95, Artículo III, Acuerdo Nº 2615, con la instrucción del Coordinador del Departamento de Servicios Jurídicos Internos, se procedió a revisar el documento publicado y a hacerle las ampliaciones y correcciones necesarias de conformidad con las observaciones dadas por este Honorable Concejo, entre ella, la existencia o nombramiento de una Comisión Municipal, la cual trabajará ad honorem y en calidad de asesores del Centro de Cuido.
+El proyecto de reglamento fue publicado en La Gaceta Nº 61, del 8 de mayo del 2013; y, habiéndose cumplido con lo dispuesto en el citado acuerdo, y con fundamento en el artículo 13 del Código Municipal, lo que procede en este momento es publicar como reglamento definitivo, dado la urgente necesidad de impulsar la ayuda social para este cantón.
+REGLAMENTO PARA REGULAR EL FUNCIONAMIENTO
+Y OPERACIÓN DE LOS CENTROS DE CUIDO Y
+DESARROLLO INFANTIL DEL
+CANTÓN DE POCOCÍ
+En virtud del acuerdo contenido en sesión N° 95 ordinaria, celebrada por el Concejo Municipal de Pococí el día 10 de diciembre del 2012, Acta N° 95, Artículo III, Acuerdo N° 2615. En el que se acordó y sometió a consulta pública no vinculante el Proyecto del Reglamento para Regular el Funcionamiento y Operación de los Centro de Cuido y Desarrollo Infantil del Cantón de Pococí. Mismo que fue publicado en La Gaceta N° 61, del 8 de mayo del 2013; y, habiéndose cumplido con lo dispuesto en el citado acuerdo, y con fundamento en el artículo 13 del Código Municipal, se procede a publicar como reglamento definitivo, rigiéndose por las siguientes normas:
+Considerando:
+1) Que la Municipalidad de Pococí como Gobierno Local, debe impulsar un desarrollo local de manera integral, que asegure el acceso a los beneficios del mismo en igualdad de condiciones a toda la población. Dado que es creciente la incorporación de la mujer en el ámbito laboral, educativo, profesional, político y en la sociedad en general, mismas que desean mejorar tanto su calidad de vida como la de su familia.
+2) Que somos un Gobierno Local consciente de nuestro deber de cumplir con el Decreto Nacional Nº 36020-MP que impulsa la creación de la Red Nacional de Cuido y Desarrollo Infantil. Y reconocemos que las políticas, planes y programas dirigidos a la población infantil, deben estar fundamentados en estrategias integrales, multisectoriales y participativas, basadas en el enfoque de derechos y no solamente en consideraciones de tipo socioeconómico o laboral, de acuerdo con lo establecido en la Convención de los Derechos del Niño y el Código de la Niñez y la Adolescencia.
+3) Que es un deber del Estado velar por el bienestar físico, psicosocial y educativo de los niños y las niñas, y garantizarles la atención de sus necesidades primarias de salud y nutrición, ya que el desarrollo y capital humano del país depende en gran medida de la calidad de la crianza y atención que reciban los niños y las niñas en sus primeros años de vida.
+4) Que las estadísticas nacionales han venido mostrando cómo cada vez son más la cantidad de niños y niñas que son agredidos y que se encuentran en situación de riesgo. Ante lo cual la estrategia a desarrollar debe involucrar a diversos actores sociales, entre ellos los gobiernos locales, e instituciones estatales, para que mediante proyectos acordes a las necesidades específicas en cada cantón respondiendo a problemáticas específicas propias de su realidad.
+5) Que la Municipalidad de Pococí ha incluido en su “Plan de Desarrollo Humano Local del Cantón de Pococí” 2012-2020” líneas de acción orientadas al cuido y atención de la niñez del Cantón, las cuales se enmarcan en la propuesta de Redes de Cuido que la Presidencia de la República, incluyó en su Plan de Gobierno, viéndose materializado el mismo en el Decreto Ejecutivo Nº 36020- MP, por el que se declaró de Interés Público la conformación y desarrollo de la Red Nacional de Cuido y Desarrollo Infantil. Por tanto, se decreta el siguiente
+REGLAMENTO PARA REGULAR EL FUNCIONAMIENTO
+Y OPERACIÓN DE LOS CENTRO DE CUIDO Y
+DESARROLLO INFANTIL DEL
+CANTÓN DE POCOCÍ
+CAPÍTULO I
+NORMAS GENERALES
+Artículo 1º—Objeto. Por medio del presente Reglamento, se regulará la operación y funcionamiento de los Centro de Cuido y Desarrollo Infantil del cantón de Pococí, los cuales son concebidos con la finalidad de establecer centros para el cuido y desarrollo de niños y niñas, para que potencie el desarrollo de la población beneficiada, en forma integral como Derecho Humano, dirigido a impulsar su crecimiento biopsicosocial, cuyas madres, padres y/o encargados, se encuentren desarrollando una actividad productiva o estén incorporadas en el sistema de educación formal o informal. Esto con el objetivo de establecer un sistema público universal de cuido y desarrollo infantil, con énfasis en primera infancia.
+Los CECUDI de Pococí, se constituyen en un proyecto interinstitucional que pretende hacer realidad en el plano local, el proyecto nacional de Red de Cuido y Desarrollo Infantil, pero que a su vez, se constituye per sé en un proyecto gubernamental de primera importancia. Por tal motivo, es concebido como un proyecto de interés social, dirigido a la población cantonal a través de la participación activa de la Municipalidad de Pococí, a fin de asegurar su éxito y mejorar las condiciones, principalmente, de las personas en riesgo y de vulnerabilidad social de la zona.
+Definiciones. Para la aplicación del presente Reglamento y la interpretación del mismo, se entiende por:
+¤ CEDUDI o Centro: Centro de Cuido y Desarrollo Infantil del cantón de Pococí.
+¤ Infancia: Período de vida de la persona menor de edad, desde el momento de su nacimiento hasta los doce años de edad de conformidad, con el artículo 2 del Código de La Niñez y la Adolescencia.
+¤ Beneficiarios: Para efectos operativos se considerarán beneficiarios de servicio, niños y niñas con edades comprendidas entre los 0 y 7 años de edad.
+¤ Municipalidad: Llámese así a la Municipalidad de Pococí.
+¤ Reglamento: Normativa aprobada por el Concejo Municipal de Pococí, que regula lo concerniente al reglamento de los CECUDI del cantón de Pococí.
+¤ Población beneficiada: Aquellas personas menores de siete años, así como sus padres, madres o encargados del menor.
+¤ Concejo Municipal: Órgano superior jerárquico deliberativo de decisión política.
+¤ Alcaldía: Entiéndase como el Despacho del Alcalde o Alcaldesa.
+¤ Comisión: Miembros ad honorem que brinda asesoría al Centro.
+¤ ONG: Organismos no gubernamentales.

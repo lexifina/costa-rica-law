@@ -1,0 +1,1 @@
+Artículo 35.—Del debido proceso. Previamente a la aplicación de la medida, la Administración, como parte del debido proceso, le conferirá audiencia por tres días hábiles para que aporte las pruebas de descargo. Evacuada la misma, la autoridad competente procederá a resolver lo que corresponda.

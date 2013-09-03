@@ -1,0 +1,1 @@
+Artículo 33.—De la puntualidad. En casos de ausencia, por cualquier motivo, es obligación del representante del beneficiario, presentar en el plazo de tres días, la justificación en la Administración del Centro.
