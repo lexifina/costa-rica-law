@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Deducción del impuesto sobre la renta
+Se considerarán como gastos deducibles del impuesto sobre la renta los montos por concepto de patrocinios que otorguen empresas y entidades nacionales a la FIFA, para la celebración de la Copa Mundial Femenina Sub 17 de la FIFA, Costa Rica 2014, en concordancia con la Ley N.º 7092, Ley del Impuesto sobre la Renta, de 21 de abril de 1988.

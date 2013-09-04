@@ -1,0 +1,3 @@
+ARTÍCULO 10.-Visas y permisos de ingreso al país
+En aquellos casos en que los miembros de las delegaciones participantes de la Copa Mundial Femenina Sub 17 de la FIFA, Costa Rica 2014, organizadores o voluntarios provengan de países con los cuales no se cuente con relaciones diplomáticas, se autoriza a la Dirección General de Migración y Extranjería para que extienda permisos de ingreso temporales, sujetos a los plazos requeridos para dicha participación u organización.
+Para estos efectos, la Federación Costarricense de Fútbol deberá proporcionar con suficiente antelación, a la Dirección General de Migración y Extranjería, la lista de personas que ingresarán y recomendar un plazo de permanencia en el país, según su participación en el evento.

@@ -1,0 +1,2 @@
+ARTÍCULO 14.-Impuestos internos
+Se autoriza a las municipalidades del cantón Central de San José, el cantón Central de Alajuela, Liberia y Tibás para que exoneren de tributos, patentes comerciales y tasas a la FIFA y a la Federación Costarricense de Fútbol y sus afiliados comerciales, previa recomendación del Ministerio del Deporte, la realización de las actividades organizadas directamente por la organización de la Copa Mundial Femenina Sub 17 de la FIFA, Costa Rica 2014.
