@@ -1,0 +1,1 @@
+Artículo 23.—Los permisos de construcción siempre mantendrán a salvo los derechos de terceros. El propietario y el profesional encargado serán responsables de los datos estimados en el proyecto, así como de las características estructurales y arquitectónicas del interior de la obra.

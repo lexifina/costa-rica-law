@@ -1,0 +1,1 @@
+Artículo 20.—Por el permiso de construcción se cobrará un impuesto correspondiente al 1% sobre el valor de las construcciones y urbanizaciones. En los casos de viviendas y urbanizaciones de interés social o interés municipal avalado por la Alcaldía se cobrará el 0,5% sobre su valor.

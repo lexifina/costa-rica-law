@@ -1,0 +1,1 @@
+Artículo 10.—No se autorizará ningún permiso de construcción en línea de propiedad si esta no cumple con el derecho de vía propuesto por este Reglamento, a menos de que se trate de obras como: cocheras y terrazas; además obras de delimitación como cercas, verjas, mallas, tapias, entre otros, u obra existente declarada de interés patrimonial.

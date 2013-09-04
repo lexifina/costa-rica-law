@@ -1,0 +1,1 @@
+Artículo 38.—En caso de que se realicen construcciones temporales tales como, redondeles, sodas, cocinas, salones de baile, etc., se debe presentar un croquis debidamente detallado y firmado por elresponsable de la obra; en obras permanentes se debe presentar los requisitos para la construcción de obras establecidas en este Reglamento.

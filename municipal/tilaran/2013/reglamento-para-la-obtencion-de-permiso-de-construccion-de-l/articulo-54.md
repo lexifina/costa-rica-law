@@ -1,0 +1,1 @@
+Artículo 54.—Se prohíben los movimientos de tierra y rellenos en zonas de deslizamientos activos, según el Mapa de Fragilidad Ambiental del Cantón de Tilarány el mapa de la Comisión Nacional de Prevención de Desastres y Atención de Emergencias (CNE).

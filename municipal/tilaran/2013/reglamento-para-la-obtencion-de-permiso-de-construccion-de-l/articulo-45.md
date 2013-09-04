@@ -1,0 +1,1 @@
+Artículo 45.—En caso que una corriente de agua permanente tenga su naciente en un área a urbanizar, el ojo de agua deberá protegerse, por lo que no se podrá autorizar construcción alguna en un radio de 100 metros como mínimo, de conformidad con la Ley Forestal.

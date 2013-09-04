@@ -1,0 +1,1 @@
+Artículo 37.—En caso de que se realice una remodelación o construcción nueva de un local comercial que no cuente con el permiso constructivo, se procederá con la clausura hasta tanto se ponga a derecho.

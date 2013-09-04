@@ -1,0 +1,1 @@
+Artículo 49.—Cuando la propiedad se encuentre ya afectada por alguna servidumbre de uso público, las redes de alcantarillado y obras de manejo de aguas pluviales deberán quedar igualmente en área pública pudiendo incorporarse en calles, zonas verdes, parques o zona de juegos infantiles.

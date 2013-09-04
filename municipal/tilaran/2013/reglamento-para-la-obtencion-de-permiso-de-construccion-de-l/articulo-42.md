@@ -1,0 +1,1 @@
+Artículo 42.—Se toma como límite para la franja de protección de ríos, quebradas, sean estas intermitentes o no, y acequias, 10 metros medidos desde el borde del río en zona urbana y10 metros en zona rural. Salvo en aquellos cuerpos de agua en los cuales la pendiente promedio es mayor al 40%.

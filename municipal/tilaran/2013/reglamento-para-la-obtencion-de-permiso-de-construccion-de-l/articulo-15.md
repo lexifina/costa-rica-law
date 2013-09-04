@@ -1,0 +1,1 @@
+Artículo 15.—Plazo de resolución. Para la revisión y aprobación o denegatoria de los permisos de construcción, regirá lo estipulado en la Ley 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, excepto el artículo 21 del Reglamento a dicha Ley, así el Código Municipal, para lo cual regirá el plazo de respuesta máximo de 15 días hábiles.

@@ -1,0 +1,1 @@
+Artículo 8º—Fachadas de los edificios. Las fachadas de los edificios deberán guardar relación estética con la zona en que se ubiquen; para ello, se debe presentar a la Unidad de Planificación Urbana y Control Constructivo un anteproyecto con el propósito de verificar su factibilidad urbanística.

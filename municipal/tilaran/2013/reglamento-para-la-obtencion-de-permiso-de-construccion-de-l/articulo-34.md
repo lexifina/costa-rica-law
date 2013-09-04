@@ -1,0 +1,1 @@
+Artículo 34.—En el caso de urbanizaciones, condominios y otros proyectos deben presentar un anteproyecto a la Unidad de Planificación Urbana y Control Constructivo, para evaluar la factibilidad urbanística del mismo, previo a la aprobación por parte del Concejo Municipal.

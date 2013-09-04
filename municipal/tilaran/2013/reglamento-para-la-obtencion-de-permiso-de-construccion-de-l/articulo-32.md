@@ -1,0 +1,1 @@
+Artículo 32.—Cuando se trate de casas de habitación con un área no mayor a los 300 m², el visado del Ministerio de Salud se sustituye por la declaración jurada y firmada por el profesional responsable.

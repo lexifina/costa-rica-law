@@ -1,0 +1,1 @@
+Artículo 53.—Las zonas de relleno solo podrán ser utilizadas para realizar construcciones si los estudios de suelo y estabilidad geotécnica garantizan su seguridad ante posibles deslizamientos. Caso contrario, la Municipalidad deberá prohibir la construcción hasta tanto no se garantice la estabilidad del terreno.

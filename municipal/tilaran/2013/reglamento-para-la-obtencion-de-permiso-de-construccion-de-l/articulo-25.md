@@ -1,0 +1,1 @@
+Artículo 25.—Tramitado el permiso de construcción y entregada la documentación, así como otros trámites tales como visados, usos de suelo, licencias para rótulos; aprobada o rechazada la solicitud, el interesado contará con noventa días naturales para retirar los documentos; pasado este período, la solicitud e inclusive los planos constructivos entregados se archivarán.

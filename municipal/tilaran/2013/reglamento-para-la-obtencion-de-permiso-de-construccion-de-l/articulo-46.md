@@ -1,0 +1,1 @@
+Artículo 46.—Para todos los tipos de terrenos indicados en los artículos anteriores, se deberá presentar un plan de restauración por parte de la Unidad de Gestión Ambiental de la Municipalidad, estableciendo para ello preferiblemente especies nativas de la zona.
