@@ -1,0 +1,1 @@
+Artículo 33.—Todas las personas solicitantes de licencias y traslados de ellas deben ajustarse al cumplimiento de las distancias establecidas en el artículo 9 de la Ley N° 9047 y el artículo 48 de este reglamento.
