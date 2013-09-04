@@ -14,3 +14,4 @@ Procedimiento para la desinscripción y reinscripción de vehículos declarados 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-30 | la propia norma |
+| 2 | 2013-09-04 | Directriz 4 (2013-09-04) |
