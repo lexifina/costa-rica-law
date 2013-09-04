@@ -1,0 +1,5 @@
+ARTÍCULO 9.- Destino de los bienes
+Los bienes que hayan sido adquiridos y que no se hayan consumido por el uso al amparo de esta ley, deberán ser reexportados a más tardar el 30 de junio de 2014.
+Respecto de los bienes que sean destinados a su permanencia en el país deberán ser sometidos a la importación definitiva y cancelarse los tributos exonerados, según los procedimientos establecidos al efecto.
+Los bienes adquiridos al amparo de esta ley podrán ser donados libres de tributos, siempre y cuando la que recibe la donación sea una entidad debidamente constituida y declarada sin fines de lucro. La donación deberá hacerse en escritura pública cuando corresponda, que estará libre del pago de especies fiscales.
+En cualquiera de estos supuestos, el cumplimento de los requisitos establecidos para la reexportación o donación deberán ser finalizados a más tardar el 30 de junio de 2014; caso contrario, procederá el pago de los tributos exonerados, conforme al procedimiento previsto en los artículos 37 y siguientes de la Ley N.° 7293, Ley Reguladora de todas las Exoneraciones Vigentes, su Derogatoria y sus Excepciones, de 31 de marzo de 1992.
