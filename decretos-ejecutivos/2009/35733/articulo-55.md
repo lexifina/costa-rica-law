@@ -1,1 +1,0 @@
-Artículo 55.—De la nulidad de los nombramientos. Será considerado nulo, todo nombramiento que no se lleve a cabo bajo los preceptos del Capítulo VI de este Reglamento y no cumpla los requisitos que los artículos precedentes establezcan.

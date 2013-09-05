@@ -1,1 +1,0 @@
-Artículo 28.—Gestiones previas a la realización de los concursos. De previo a la realización de los concursos, la Oficina de Recursos Humanos informará a la Comisión los requisitos académicos, legales y el perfil profesiográfico del puesto vacante.

@@ -1,1 +1,0 @@
-Artículo 68.—Derogatoria. Deróguese el Capítulo II del Decreto Ejecutivo Nº 32597, “Reglamento Autónomo de Organización y Servicio del Instituto Costarricense sobre Drogas”; así como cualquier otra disposición que contraríe este Reglamento.

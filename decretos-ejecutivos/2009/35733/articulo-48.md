@@ -1,3 +1,0 @@
-Artículo 48.—De la asignación de la plaza. El concursante elegido está obligado a confirmar su aceptación por escrito, ante la Oficina de Recursos Humanos, dentro de los 15 días hábiles siguientes a la notificación de su escogencia; caso contrario perderá el derecho de ser nombrado en la plaza objeto del concurso.
-Cuando no se comunique dentro de dicho término la aceptación, la plaza se le asignará a quien hubiere sido definido por la Comisión de Reclutamiento y Selección, como el “segundo mejor candidato”.
-Una vez aceptada la plaza por el candidato seleccionado, la Oficina de Recursos Humanos, tendrá 30 días hábiles para hacer los ajustes requeridos a efectos de la incorporación del nuevo funcionario al puesto.

@@ -1,1 +1,0 @@
-Artículo 60.—De los traslados. Para los efectos de este Reglamento, se considera traslado el movimiento de un servidor regular de un puesto a otro del mismo nivel salarial institucional. Los traslados y reubicaciones podrán ser efectuados, siempre y cuando no se le cause perjuicio grave al servidor.
