@@ -1,0 +1,1 @@
+Artículo 7º—Multas. En los casos previstos en el artículo anterior se impondrá una multa de hasta el 100% del valor del impuesto que debe pagar el administrado por el costo total de la obra. Esta sanción se aplicará al propietario, responsable o contratista, según se determine su responsabilidad en la violación de normativa de construcciones.

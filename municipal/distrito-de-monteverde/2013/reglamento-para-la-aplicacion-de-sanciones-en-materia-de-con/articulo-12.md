@@ -1,0 +1,1 @@
+Artículo 12.—Procedimientos para aplicar sanciones administrativas. Salvo aquellos casos de clausura en que procede la aplicación inmediata de la sanción, el Concejo Municipal de Distrito de Monteverde aplicará las sanciones que describe este capítulo con respeto del debido proceso, conforme señala este reglamento y, supletoriamente, la Ley General de la Administración Pública.
