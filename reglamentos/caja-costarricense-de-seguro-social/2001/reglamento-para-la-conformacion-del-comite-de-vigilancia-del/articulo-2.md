@@ -1,0 +1,10 @@
+Artículo 2º—El procedimiento para la conformación del Comité de Vigilancia. El Comité de Vigilancia estará conformado por seis miembros titulares de reconocida solvencia moral, experiencia y conocimientos en el campo económico financiero, según se detalla a continuación:
+i. Un representante de los Sindicatos.
+ii. Un representante del Solidarismo.
+iii. Tres representantes del Sector Patronal.
+iv. Un representante del Movimiento Cooperativista.
+Cada uno de los sectores representados en el seno del Comité de Vigilancia, deberá nombrar un miembro suplente, el cual debe cumplir con los mismos requisitos indicados para los miembros titulares; la participación del miembro suplente en el Comité se dará en caso de que el representante titular no pueda asistir a las sesiones de trabajo.
+Los representantes titulares y suplementes de los distintos sectores indicados en este Reglamento serán electos de forma democrática, garantizando la participación de todas las agrupaciones del sector. Una vez electo el representante de cada sector, la Junta Directiva de la CCSS procederá a ratificar al Comité para que inicie sus funciones y se hará la convocatoria a su primera sesión de trabajo.
+En la primera sesión de trabajo el Comité nombrará a su Presidente. Este permanecerá en el cargo por un año, con posibilidad de ser reelecto en forma democrática. Tendrá por funciones la coordinación de las actividades del grupo, con el propósito de que se cumpla lo dispuesto por la Ley de Protección al Trabajador.
+El Comité contará con un Secretario Ejecutivo que será nombrado por la Caja, quien facilitará el trabajo del grupo y será el contacto directo con la Institución. Dentro de sus funciones está la de convocar al Comité, mantener registros de actas y proveer la información necesaria para que el Comité cumpla con sus funciones. Participará en las sesiones del Comité con voz pero sin voto.
+El nombramiento de los miembros del Comité de Vigilancia será por un período de dos años. La reelección será posible siempre que ésta se efectúe de forma democrática.

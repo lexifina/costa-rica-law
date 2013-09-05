@@ -15,3 +15,4 @@ Reglamento para la Conformación del Comité de Vigilancia del Régimen de Pensi
 | --- | --- | --- |
 | 1 | 2001-12-11 | la propia norma |
 | 2 | 2003-08-28 | Reglamento 7785 (2003-08-28) |
+| 3 | 2013-09-05 | Reglamento 8659 (2013-09-05) |

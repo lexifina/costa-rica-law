@@ -1,0 +1,1 @@
+Artículo 3º—El quórum en las sesiones de trabajo del Comité de Vigilancia. Para que exista quorum en las sesiones de trabajo del Comité de Vigilancia se requerirá de la presencia de al menos cuatro de los representantes que lo conforman, independientemente del sector que representen.
