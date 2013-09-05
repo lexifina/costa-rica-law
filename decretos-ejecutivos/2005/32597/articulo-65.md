@@ -1,1 +1,0 @@
-Artículo 65.—Ampliación de licencias. La Dirección General podrá conceder ampliación de licencia de estudio solamente hasta por tres años más después de concluido el término natural de la carrera por la que haya optado el servidor.

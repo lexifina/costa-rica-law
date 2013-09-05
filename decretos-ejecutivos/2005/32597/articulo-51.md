@@ -1,1 +1,0 @@
-Artículo 51.—Denuncias falsas. Quien denuncie falsamente haber sido víctima de acoso u hostigamiento sexual podrá incurrir en falta grave y cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según lo establecido en el Código Penal.

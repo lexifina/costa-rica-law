@@ -1,1 +1,0 @@
-Artículo 15.—Recargo de funciones. En caso de recargo de funciones que excedan de un mes, el servidor sustituto tendrá derecho a recibir su salario de acuerdo con el salario base del servidor sustituido.

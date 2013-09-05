@@ -1,1 +1,0 @@
-Artículo 69.—Aspectos no previstos. Los aspectos no previstos en el presente reglamento o en la Ley N° 8204 se resolverán de conformidad con lo que establezca el Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo, las leyes y principios generales del derecho.

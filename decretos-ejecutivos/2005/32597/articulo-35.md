@@ -1,1 +1,0 @@
-Artículo 35.—Casos calificados. En casos excepcionales y calificados no contemplados en este Reglamento ni en el Estatuto de Servicio Civil y su Reglamento, queda a juicio del jefe inmediato, con la aprobación de la Dirección General, justificar ausencias que no sean por enfermedad comprobada.

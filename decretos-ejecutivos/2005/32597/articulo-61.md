@@ -1,1 +1,0 @@
-Artículo 61.—Licencias sin goce salarial. Las licencias sin goce de salario a que hace alusión el Reglamento del Estatuto de Servicio Civil, podrán concederse mediante resolución dictada por la Dirección General.

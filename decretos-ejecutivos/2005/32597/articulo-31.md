@@ -1,1 +1,0 @@
-Artículo 31.—Imposibilidad de ingreso como funcionario al ICD. No podrán ingresar a laborar al ICD quienes estén ligados, por consanguinidad o afinidad, en línea directa o colateral hasta tercer grado con cualquier funcionario, según lo establece el inciso b) del artículo 9 del Reglamento al Estatuto de Servicio Civil.

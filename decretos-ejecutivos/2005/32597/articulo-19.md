@@ -1,1 +1,0 @@
-Artículo 19.—Plan anual de vacaciones. El jefe respectivo, en coordinación con la Oficina de Recursos Humanos y dentro del plan anual de vacaciones, señalará la época cuando los funcionarios disfrutarán de sus vacaciones, la cual podrá variar cuando las necesidades así lo ameriten.

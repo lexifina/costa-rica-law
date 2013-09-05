@@ -1,3 +1,0 @@
-CAPÍTULO XI
-Llegadas tardías, abandono del servicio y ausencias
-Artículo 32.—Llegada tardía. Se considerará llegada tardía el ingreso al trabajo, sin autorización del superior jerárquico inmediato, después de los diez minutos de la hora señalada para el comienzo de las labores. En caso que el superior jerárquico no justifique la llegada tardía, deberá reportar ante la Oficina de Recursos Humanos para que se proceda con la sanción correspondiente. El retiro anticipado o la llegada tardía que exceda de treinta minutos contados a partir de la hora de ingreso o de salida y que carezca de justificación se computarán como media jornada de ausencia, lo cual se sancionará sin goce de salario.

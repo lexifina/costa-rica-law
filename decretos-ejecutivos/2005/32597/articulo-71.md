@@ -1,1 +1,0 @@
-Artículo 71.—Salarios. Los salarios serán depositados en un banco del Sistema Bancario Nacional, en las fechas estipuladas en las guías de pagos para empleados públicos emitidas por el Ministerio de Hacienda.

@@ -1,1 +1,0 @@
-Artículo 45.—Dependencias competentes para sancionar. Las amonestaciones verbales serán aplicadas por el respectivo superior jerárquico inmediato, en los demás casos deberán seguirse los procedimientos, establecidos en el Estatuto del Servicio Civil y su Reglamento.

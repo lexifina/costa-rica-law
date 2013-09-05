@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Descanso semanal y días feriados
-Artículo 20.—Días de descanso. Los funcionarios del ICD, disfrutarán de dos días fijos de descanso absoluto, después de cada cinco días de trabajo continuo, con excepción de aquellos que, por la naturaleza del puesto y conveniencia de la institución deban trabajar en estos días. No obstante lo anterior y con el propósito de preservar los principios fundamentales del servicio público, el ICD podrá reconocer en forma acumulativa mensual dichos días de descanso. Con respecto a los días feriados, estos se regirán conforme lo dispone el Código de Trabajo y las disposiciones al efecto del Poder Ejecutivo.

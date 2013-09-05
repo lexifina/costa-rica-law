@@ -1,1 +1,0 @@
-Artículo 3º—De los encargados de aplicar el Reglamento. El Presidente, los miembros del Consejo Directivo, el Director y el Director General Adjunto, los coordinadores de las distintas Unidades y en general todos aquellos funcionarios que forman parte del ICD, tendrán la obligación de acatar y hacer cumplir las disposiciones contempladas en el presente reglamento.
