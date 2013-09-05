@@ -16,3 +16,4 @@ Reglamento autónomo de organización y servicio del Instituto Costarricense sob
 | 1 | 2005-09-16 | la propia norma |
 | 2 | 2009-12-21 | Decreto Ejecutivo 35733 (2009-12-21) |
 | 3 | 2012-02-10 | Decreto Ejecutivo 37162 (2012-02-10) |
+| 4 | 2013-09-05 | Decreto Ejecutivo 37945 (2013-09-05) |
