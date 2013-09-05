@@ -60,3 +60,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 45 | 2013-07-10 | Decreto Ejecutivo 37846 (2013-07-10) |
 | 46 | 2013-08-06 | Decreto Ejecutivo 37897 (2013-08-06) |
 | 47 | 2013-08-20 | Decreto Ejecutivo 37917 (2013-08-20) |
+| 48 | 2013-09-05 | Decreto Ejecutivo 37953 (2013-09-05) |
