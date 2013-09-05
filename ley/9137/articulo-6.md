@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Instituciones involucradas
+Serán parte de este Sistema todas las instituciones del Estado que se dediquen a la ejecución de programas sociales. Asimismo, el Sistema podrá establecer relaciones de coordinación interinstitucional con las dependencias del Estado que generen información relativa a las políticas públicas destinadas a la erradicación de la pobreza y al mejoramiento de la calidad de vida de los costarricenses.
