@@ -1,0 +1,1 @@
+5º—Corresponde al agente aduanero conservar bajo su responsabilidad, los documentos originales descritos en el punto número uno anterior, los cuales deben presentarse a la Autoridad Aduanera en caso de así requerirse.

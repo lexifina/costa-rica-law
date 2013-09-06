@@ -1,0 +1,1 @@
+6º—Concierne al funcionario aduanero designado, en caso de corresponder revisión documental, o documental y física de la mercancía, verificar el cabal cumplimiento de lo establecido en la presente resolución, sin detrimento de otros controles que establezca la Dirección de Gestión de Riesgo.
