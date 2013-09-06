@@ -1,0 +1,1 @@
+Artículo 2º—Los Jerarcas deberán garantizar que no se vean afectados los servicios públicos considerados esenciales dentro de la Institución respectiva y que por su naturaleza, exigen continuidad en la prestación del servicio, dentro de lo cual debe asegurarse la disponibilidad inmediata del personal necesario para la atención oportuna de cualquier situación de emergencia.
