@@ -1,0 +1,2 @@
+Transitorio III: Para efecto de lo que indica el inciso 8.3 del presente Decreto Ejecutivo, son aceptados los certificados emitidos por un organismo acreditado bajo la Guía ISO/IEC 17020 en su versión más actualizada; no obstante, se otorga un plazo de 6 meses a partir de la publicación de este Decreto, para que los entes de inspección amplíen el alcance de su acreditación en los términos requeridos en este numeral.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 37932 del 6 de setiembre del 2013)

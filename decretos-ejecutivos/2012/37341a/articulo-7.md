@@ -9,6 +9,6 @@
 7.2.4. Designación de esfuerzo de fluencia mínima— Para expresar la designación del grado, esta se realizará de la siguiente forma:
 7.2.4.1 Para barras de Grado 40 no se requiere ninguna designación de marca.
 7.2.4.2 Para barras de Grado 60, la designación puede ser un “60” o una línea longitudinal continua individual a través de al menos de cinco espacios desplazados desde el centro del lado de la barra.
-7.2.4.3 Para barras de Grado 75, la designación puede ser un “75” o dos líneas longitudinales continúas a través de al menos cinco espacios desplazados en cada dirección desde el centro de la barra.
+7.2.4.3 (Derogado por el artículo 3° del decreto ejecutivo N° 37932 del 6 de setiembre del 2013)
 7.3. Todas las barras lisas y los alambres de acero al carbono grafilados, definidos en este reglamento, deben ser identificadas por medio de una etiqueta en el embalaje o paquete, con los puntos descritos en los apartados 7.2.1, 7.2.2, 7.2.3 y 7.2.4.
 7.4. Los productos que estén certificados con marcas de conformidad de producto, podrán mostrar dicha marca ya sea en el producto como tal, en etiquetas o empaques antes de ser incorporados en el mercado nacional.
