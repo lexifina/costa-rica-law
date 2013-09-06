@@ -1,0 +1,1 @@
+III.—El monto de cánones aprobado debe ser considerado como un límite máximo de los ingresos que por concepto del canon de regulación debe ser incorporado en el presupuesto institucional que ha de presentar el CTP ante la Contraloría General de la Republica para su respectiva aprobación.

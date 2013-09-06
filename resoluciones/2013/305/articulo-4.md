@@ -1,0 +1,1 @@
+IV.—Esta aprobación se otorga sin perjuicio del control posterior que pueda realizar la Contraloría General de la República en relación con el cobro y la utilización de los recursos provenientes de dichos cánones (aprobación de recursos) y del superávit acumulado.
