@@ -1,0 +1,1 @@
+Artículo 24.—Prohibición expresa de manejo de armas en línea de tiro. Es estrictamente prohibido todo tipo de manejo de arma cuando haya personas delante de la línea de tiro. Queda facultado el comisario de Tiro para expulsar a cualquier usuario que incumpla esta disposición.

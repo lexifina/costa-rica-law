@@ -1,0 +1,1 @@
+Artículo 26.—La orden de descarga del arma y reinicio del tiro. Cuando se imparta una orden de “Descargar El Arma”, todos los tiradores deben descargar sus armas, vaciar los cargadores y ubicarlas sobre la mesa de tiro. La práctica solo puede reiniciarse cuando la orden sea dada nuevamente por el comisario.

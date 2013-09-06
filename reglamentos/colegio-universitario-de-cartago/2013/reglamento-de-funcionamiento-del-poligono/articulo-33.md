@@ -1,0 +1,1 @@
+Artículo 33.—Las reformas al presente Reglamento serán propuestas por el Consejo del Polígono y aprobadas por el Consejo Directivo; este último tendrá la facultad de otorgar interpretación auténtica al mismo, ante posibles circunstancias no previstas u omisiones legales.

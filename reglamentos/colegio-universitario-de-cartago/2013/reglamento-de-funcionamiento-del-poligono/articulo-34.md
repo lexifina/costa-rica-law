@@ -1,0 +1,1 @@
+Artículo 34.—El presente reglamento deberá exhibirse en un lugar visible dentro de las instalaciones del Polígono y todos los usuarios concurrentes quedan debidamente advertidos sobre el manejo y uso de armas de fuego y del Polígono de Tiro.

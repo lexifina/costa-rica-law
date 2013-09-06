@@ -1,0 +1,1 @@
+Artículo 3°—Sesiones del Consejo. El “Consejo del Polígono” se reunirá al menos una vez al mes y de cada una de las sesiones, elaborará un acta en donde se consignen los puntos tratados, las deliberaciones resultantes y los acuerdos tomados.

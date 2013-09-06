@@ -1,0 +1,1 @@
+Artículo 19.—La entrega del arma al usuario para su práctica de tiro. El arma de fuego le será entregada al tirador por parte del comisario solamente cuando haya espacios disponibles en alguna de las filas de tiro. Una vez concluida su práctica, son aplicables las disposiciones contenidas en el Artículo 29 de este reglamento.

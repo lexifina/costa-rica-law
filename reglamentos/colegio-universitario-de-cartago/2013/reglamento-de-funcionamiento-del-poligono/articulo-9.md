@@ -1,0 +1,1 @@
+Artículo 9º—El tirador. También conocido como el “usuario”, son las personas físicas que hacen uso del Polígono para fines prácticos o de adiestramiento en el uso de técnicas de disparo con armas de fuego. Para tales efectos, su actuación estará siempre supeditada a las instrucciones que emanen del comisario de Tiro y al cumplimiento de este Reglamento.

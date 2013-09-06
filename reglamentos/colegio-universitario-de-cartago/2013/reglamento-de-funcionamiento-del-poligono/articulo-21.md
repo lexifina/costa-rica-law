@@ -1,0 +1,1 @@
+Artículo 21.—Protección de los oídos: Todos los funcionarios del Polígono y los tiradores que se encuentren en la línea de tiro tienen la obligación de utilizar protección auditiva certificada para los oídos.

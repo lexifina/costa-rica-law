@@ -1,0 +1,1 @@
+Artículo 12.—Reseña fotográfica y dactilar de usuarios del polígono. Todo usuario del Polígono deberá aceptar, a su ingreso, que se le reseñe fotográfica y dactilarmente por parte del recepcionista del Polígono, debiendo utilizar, para tales efectos una cámara fotográfica digital y tarjetas de identificación decadactilar.

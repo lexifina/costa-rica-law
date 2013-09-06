@@ -1,0 +1,1 @@
+Artículo 20.—Disposiciones sobre el fumado. Acatando disposiciones en esta materia, tanto para funcionarios como para usuarios y acompañantes, en las instalaciones del CUC y en el Polígono está prohibido el fumado.
