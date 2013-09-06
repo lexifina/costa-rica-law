@@ -1,0 +1,2 @@
+Artículo 27.—Divulgación de los proyectos seleccionados: Los proyectos seleccionados para optar por los recursos de FOMUJERES se divulgarán a través de medios de comunicación y de la página web. Tanto seleccionados como no seleccionados serán notificados de los resultados del concurso por correo electrónico o medios de comunicación masiva.
+La Junta Directiva seleccionará el modo y tipo de actividad que se organizará para anunciar a los seleccionados.

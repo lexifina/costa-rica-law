@@ -1,0 +1,1 @@
+Artículo 9º—Contenido del proyecto: El proyecto que presente la persona u organización postulante deberán contener, al menos lo siguiente: título, objetivos, lugar de realización del proyecto, descripción, justificación, en relación con la finalidad del Fondo, duración, presupuesto detallado y programación de desembolsos propuesta, impacto y sostenibilidad del proyecto.

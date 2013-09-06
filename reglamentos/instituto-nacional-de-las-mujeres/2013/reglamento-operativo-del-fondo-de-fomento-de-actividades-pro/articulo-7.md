@@ -1,0 +1,1 @@
+Artículo 7º—Contrapartidas en los proyectos: Todos los proyectos que participen en el Fondo deberán tener otras fuentes de ingresos en efectivo o especie, es decir que además del aporte del INAMU el proyecto debe tener otras contrapartidas distintas.

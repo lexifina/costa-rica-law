@@ -1,0 +1,1 @@
+Artículo 25.—Revisión de resultados: Una vez que los órganos seleccionadores tengan sus veredictos, la Dirección General de Áreas Estratégicas revisará el proceso seguido por ellos y dará su visto bueno a los resultados. Dentro de los diez días siguientes remitirá los resultados a la Presidencia Ejecutiva para que la eleve a la Junta Directiva.
