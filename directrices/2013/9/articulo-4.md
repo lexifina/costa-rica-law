@@ -1,0 +1,1 @@
+Artículo 4°.- Para la coordinación correspondiente, deberán acudir a sus respectivas Auditorías Internas, las cuales establecerán el procedimiento adecuado, así como las medidas necesarias de protección y respaldo.

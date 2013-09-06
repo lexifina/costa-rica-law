@@ -1,0 +1,4 @@
+Artículo 3°.- Sobre el registro de la información en los Libros Contables Digitales. La información en estos libros, deberá ajustarse a los siguiente requerimientos:
+a.Para las Entidades Públicas del Sector Público no Financiero y Financiero no Bancario, la información contenida en dichos libros con base a las Normas Internacionales de Contabilidad para el Sector Público (NICSP), al Plan General de la Contabilidad Nacional (PGCN) y todas las demás disposiciones emitidas por este Órgano Rector.
+b.Para las Empresas Públicas no Financieras: la información contenida en dichos libros será con base a las Normas Internacionales de Información Financiera (NIIF) y todas las demás disposiciones emitidas por este Órgano Rector.
+En el tanto no se esté implementando las NICSP y las NIIF, la información contenida en los libros Contables Digitales será con base a los Principios de Contabilidad Aplicables al Sector Público Costarricense.
