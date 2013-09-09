@@ -1,0 +1,16 @@
+# Reglamento (2013-08-07)
+
+Aprueba Política de Alto Nivel Gestión Integral de Riesgo y el Reglamento del Comité de Riesgos
+
+- Tipo: Reglamento
+- Número: 5608
+- Fecha: 2013-08-07
+- Ente emisor: Banco Central de Costa Rica
+- Publicación: La Gaceta N° 172 del 2013-09-09
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=75600&param2=93854&param3=1 (ficha 75600)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2013-09-09 | la propia norma |
