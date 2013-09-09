@@ -1,0 +1,2 @@
+ Artículo 3. Normativa supletoria
+En ausencia de norma expresa en este reglamento, es de aplicación supletoria la Ley General de la Administración Pública, específicamente el Capítulo 3 del Libro Primero, relativo al régimen jurídico de los órganos colegiados de la Administración Pública y la Ley General de Control Interno.
