@@ -1,1 +1,0 @@
-12.—Mantenimiento de lotes: Mientras no exista construcción, los propietarios de los lotes deberán mantener los inmuebles en condiciones de limpieza adecuadas y efectuar cortes periódicos de la vegetación a fin de mantener los terrenos en condiciones normales de higiene y estética". Art.1, Cap. IX, 22-03, martes 3 junio 2003. Publíquese.

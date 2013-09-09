@@ -14,3 +14,4 @@ Reglamento de Construcción de Ciudad - Hacienda Los Reyes La Guácima de Alajue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-09 | la propia norma |
+| 2 | 2013-09-09 | Reglamento municipal 37 (2013-09-09) |

@@ -1,1 +1,1 @@
-2º—Planos de construcción: Toda residencia que se pretenda construir deberá ser planeada a través de un profesional o firma de arquitectura o ingeniería, registrada en el Colegio Federado de Ingenieros y Arquitectos.
+Artículo 2°—Planos y permisos de construcción. Toda residencia que se pretenda construir deberá ser planeada a través de un profesional o firma de arquitectura o ingeniería, registrada ante el Colegio Federado de Ingenieros y Arquitectos y además de forma previa al inicio de obras deberá obtener el respectivo permiso de construcción municipal.
