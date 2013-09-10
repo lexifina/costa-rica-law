@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 396:2006. Tapa de Dulce y Dulce Granulado. Especificaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-22 | la propia norma |
+| 2 | 2013-09-10 | Decreto Ejecutivo 38006 (2013-09-10) |

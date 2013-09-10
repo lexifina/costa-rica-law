@@ -17,7 +17,8 @@ Costa Rica. 1997. Decreto Ejecutivo Nº 26012-MEIC, RTCR 100:1997. Etiquetado de
 Costa Rica. 1993. Decreto Ejecutivo Nº 22268-MEIC. NCR 143:1993. Metrología. Contenido Neto de Preempacados y sus reformas, publicado en La Gaceta Nº 132 del 13 de julio de 1993. San José, Costa Rica, Imprenta Nacional.
 Costa Rica. 1996. Decreto Ejecutivo Nº 25234-MEIC. Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y sus reformas, publicado en La Gaceta Nº 124 del 1º de julio de 1996. San José, Costa Rica, Imprenta Nacional. Costa Rica. 1973. Ley General de Salud, Nº 5395. Colección de leyes y decretos del año 1973, semestre 2, tomo 3, página 1122. San José, Costa Rica, Imprenta Nacional.
 3. Definiciones.
-3.1 Dulce granulado: Producto que por proceso de deshidratación del jugo de caña de azúcar (Saccharum officinarum) con alta concentración de sacarosa (superior al 90%), se obtiene en forma granulada o en polvo. Es de color amarillo, pardo o pardo oscuro. Sabor dulce y característico y olor característico del producto.
+3.1 Dulce granulado: Producto que por proceso de deshidratación del jugo de caña de azúcar (Saccharum officinarum), se obtiene en forma granulada o en polvo. Es de color amarillo, pardo o pardo oscuro.”
+(Así reformado el numeral anterior por el artículo 1° del decreto ejecutivo N° 38006 del 10 de setiembre del 2013)
 3.2 Impureza de origen orgánico: todo aquel material orgánico, tal como hojas, tallos, cáscaras, fragmentos orgánicos, incluyendo insectos muertos.
 3.3 Impureza de origen mineral: todo aquel material como piedras, tierra, arena.
 3.4 Materia extraña: Son las impurezas de origen orgánico y mineral presentes en la tapa de dulce y en el dulce granulado.
