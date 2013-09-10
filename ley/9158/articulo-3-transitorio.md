@@ -1,0 +1,1 @@
+TRANSITORIO III.- El reglamento interno de funcionamiento de las contralorías de servicios del Poder Ejecutivo, deberá estar aprobado tres meses después de la entrada en vigencia del reglamento de esta ley.

@@ -1,0 +1,2 @@
+TRANSITORIO I.- Las personas que actualmente desempeñen el cargo de contralor o contralora de servicios dentro de las dependencias del Poder Ejecutivo y cumplan los requisitos establecidos en la presente ley, continuarán ejerciendo sus cargos con los derechos que hayan adquirido.
+Sin embargo, las personas contraloras de servicios que actualmente laboran como tales en las dependencias del Poder Ejecutivo y que no cumplen los requisitos allí establecidos contarán con un plazo de dos años a partir de la entrada en vigencia de la presente ley para su cumplimiento.

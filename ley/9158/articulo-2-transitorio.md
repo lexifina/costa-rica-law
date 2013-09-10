@@ -1,0 +1,1 @@
+TRANSITORIO II.- Los órganos y las dependencias del Poder Ejecutivo que brinden servicios donde no exista una contraloría de servicios deberán crearla a más tardar en el próximo ejercicio presupuestario, después de la entrada en vigencia de esta ley.
