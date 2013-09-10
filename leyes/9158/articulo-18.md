@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Ubicación física de las contralorías de servicios
+Las contralorías de servicios deben ubicarse en un área cercana a las oficinas que prestan atención directa al público y deben ser de fácil y adecuado acceso para la atención de las personas usuarias. Asimismo, el espacio físico asignado debe contar con condiciones adecuadas de ventilación, limpieza, comodidad, privacidad, accesibilidad e iluminación.

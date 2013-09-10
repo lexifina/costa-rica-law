@@ -1,0 +1,2 @@
+ARTÍCULO 38.- Asignación de recursos
+Para el cumplimiento de sus funciones, el jerarca de cada organización inscrita deberá dotar a las contralorías de servicios de los recursos necesarios que garanticen su óptimo funcionamiento. Asimismo, con el fin de garantizar la continuidad y calidad en el servicio que brindan, el jerarca dotará con carácter exclusivo, a las contralorías de servicios, de un mínimo de dos funcionarios, incluida la persona encargada de la contraloría de servicios.
