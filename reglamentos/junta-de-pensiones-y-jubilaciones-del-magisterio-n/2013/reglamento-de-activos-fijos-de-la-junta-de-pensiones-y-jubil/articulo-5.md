@@ -1,0 +1,11 @@
+Artículo 5º—Naturaleza de los Activos Fijos:
+Se consideran activos fijos aquellos bienes adquiridos, ya sea mediante procesos de compra, construcción, intercambio por otro(s) activos o a través de donaciones realizadas a la Institución, con el fin de ser utilizados por más de un período anual en la prestación de servicios a la membresía del Magisterio Nacional y que su valor individual supere el veinticinco por ciento (25%) del salario mínimo de un misceláneo de la Administración Pública en el Régimen del Servicio Civil; motivo por el cual se les asignará una placa de inventario y serán depreciados o amortizados, según corresponda, por el método de línea recta.
+El salario mínimo de un misceláneo de la Administración Pública en el Régimen del Servicio Civil, será conocido y ajustado en la identificación de activos, cuando se publique en el Diario Oficial La Gaceta.
+Se aclara que los artículos pertenecientes a materiales y suministros de oficina, repuestos y aquellos bienes, que son utilizados para la operación de un determinado bien, como por ejemplo; tóner, baterías para UPS, entre otros, serán registrados como gasto, independientemente de su costo unitario.
+Los activos fijos deberán registrarse considerando:
+° Su precio de adquisición.
+° Impuestos de importación.
+° Costos relacionados con la ubicación del activo en el lugar y condiciones necesarias para que pueda operar (instalaciones, honorarios por servicios técnicos, montaje, etc.), siempre y cuando estos elementos sean cuantificables e identificables.
+Los activos fijos deberán registrarse en grupos homogéneos, en atención a su naturaleza y serán depreciados o amortizados, según corresponda, bajo el método de línea recta, según la tabla denominada “Métodos y porcentajes de depreciación”, establecido en el anexo 2 del Reglamento de la Ley del Impuesto sobre la Renta.
+Es responsabilidad de cada departamento, considerar dentro de su presupuesto anual, los montos respectivos para la compra de activos fijos, así como los importes que por concepto de adiciones, reparaciones y mejoras de activos fijos se requieran.
+Los activos, deberán ser sujetos a depreciación o amortización, según corresponda, desde que estén disponibles para su uso.

@@ -1,0 +1,2 @@
+Artículo 19.—Formalización de la venta:
+En los casos de venta de activos, que requieren de inscripción en el Registro Público, la venta se formalizará a través de los mecanismos legales aplicables. En los demás casos, se utilizará un formulario de venta de bienes, donde se consignará el recibido conforme de la persona u organización que adquiere el bien.

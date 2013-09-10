@@ -1,0 +1,4 @@
+Artículo 8º—Renuncia o retiro de la Institución del custodio de los activos fijos:
+Cuando un funcionario cese en las funciones a su cargo, la jefatura respectiva, deberá previamente solicitar al Área de Control de Activos Fijos la realización de un inventario detallado de los activos que hasta ese momento se encuentran bajo la responsabilidad de éste, esta solicitud debe realizarse al menos un día antes del cese de funciones del funcionario.
+El Departamento Administrativo informará los resultados de este inventario mediante un oficio dirigido al Departamento de donde se realizó el conteo, para las correcciones pertinentes. Posteriormente lo trasladará para conocimiento de la Dirección Ejecutiva e incluirá las medidas que permitan subsanar las inconsistencias presentadas.
+Para los efectos correspondientes, deberá considerarse lo estipulado en el artículo N° 9 de esta Normativa.

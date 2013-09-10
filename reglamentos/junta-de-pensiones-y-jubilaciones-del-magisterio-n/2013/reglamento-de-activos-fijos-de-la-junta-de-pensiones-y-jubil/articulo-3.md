@@ -1,0 +1,2 @@
+Artículo 3º—Control de Activos Fijos:
+Corresponde al Departamento Administrativo a través del Área de Control de Activos Fijos, el control de todos los bienes muebles e inmuebles que posea la Junta de Pensiones y Jubilaciones del Magisterio Nacional. No obstante, toda persona a quien se le asignen activos de esta naturaleza, según lo estipulado en el artículo N° 7 de este Reglamento, deberán asumir las responsabilidades que señala esta normativa.

@@ -1,0 +1,2 @@
+Artículo 15.—Prohibición de participación:
+Están inhibidas de participar como oferentes, en los procesos de venta de bienes, en forma directa o indirecta, las personas físicas o jurídicas que se señalan en el Capítulo VII del Reglamento de Contratación Administrativa de la Junta, vigente.
