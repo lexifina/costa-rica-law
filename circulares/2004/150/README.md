@@ -13,3 +13,4 @@ Debida comunicación al Organismo de Investigación Judicial, de visitas, contin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-09 | la propia norma |
+| 2 | 2013-09-11 | Circular 156 (2013-09-11) |
