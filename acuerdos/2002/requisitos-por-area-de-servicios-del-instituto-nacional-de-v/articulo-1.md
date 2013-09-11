@@ -373,25 +373,28 @@ Dado lo anterior, la Tesorería, lo hace del conocimiento público para que cual
 Publíquese, _________________Tesorera.
 Texto a publicar tres días consecutivos.
 2.15 RETIRO DE CHEQUES
-Personas físicas
+Personas Físicas:
 1. Original de cédula de identidad vigente.
 2. Pasaporte o cédula de residencia, vigente. Únicamente en el caso de extranjeros.
-Retiro por terceras personas
+3. Emitir recibo formal por cada cheque retirado (únicamente para proveedores).
+Retiro por terceras personas:
 1. Copia de la cédula de identidad vigente del autorizante.
-2. Original de la cédula de identidad vigente del autorizado.
+2. Original de la cédula de identidad vigente del autorizado
 3. Pasaporte o cédula de residencia, vigente. Únicamente en el caso de extranjeros.
-Personas jurídicas
-Representante legal
+4. Carta de autorización autenticada por un notario, la cual debe incluir los timbres y el sello del notario (tinta o agua) e indicar la fecha de vigencia.
+5. Emitir recibo formal por cada cheque retirado (únicamente para proveedores).
+Personas jurídicas: Representante legal:
 1. Cédula de identidad vigente.
-2. Certificación de personería jurídica con un máximo de tres meses de haber sido emitida: original ]a primera vez y copia las siguientes veces.
-Retiro por terceras personas
-1. Certificación de la Personería Jurídica con un máximo de tres meses de haber sido emitida, en original la primera vez y copia las siguientes.
-2. Fotocopia de la cédula jurídica.
-3. Fotocopia de la cédula de identidad del apoderado general.
-4. Original y copia de la cédula de identidad del autorizado para retirar cheques.
-5. Carta de autorización firmada por el representante legal. Se debe indicar la fecha de vigencia y debe de estar autenticada por un abogado.
-6. Emitir un recibo formal por cada cheque retirado.
-El horario para el retiro de cheques de lunes a viernes de 8,00 a.m. a 12,00 m. y de 1,00 p.m. a 3,30 p.m.
+2. Personería Jurídica con un máximo de tres meses de haber sido emitida, original la primera vez y copia las siguientes veces. Si lo que presentan es una Certificación Notarial de la Personería Jurídica tiene una vigencia de un mes.
+3. Emitir recibo formal por cada cheque retirado (únicamente para proveedores).
+Retiro por terceras personas:
+1 Personería Jurídica con un máximo de tres meses de haber sido emitida, original la primera vez y copia las siguientes veces. Si lo que presentan es una Certificación Notarial de la Personería Jurídica tiene una vigencia de un mes.
+2 Fotocopia de la cédula de identidad del apoderado general.
+3 Original y copia de la cédula de identidad de (los) autorizado (s) para retirar cheques.
+4 Carta de autorización firmada por el representante legal, autenticado por un notario, la cual debe incluir los timbres y el sello del notario (tinta o agua) e indicar la fecha de vigencia.
+5 Emitir recibo formal por cada cheque retirado (únicamente para proveedores).
+El horario para el retiro de cheques es de lunes a viernes, de 7:30 am a 12:00 m.d y de 1:00 p.m. a 3:00 p. m.
+(Así reformado el punto 2.15) anterior mediante publicación en La Gaceta N° 182 del 23 de setiembre del 2013)
 III. ÁREA DE VIVIENDA DE INTERÉS SOCIAL.
 Ubicación: oficinas centrales, Barrio Amón, avenida 9, entre calles 5 y 3 bis. Edificio Jutsini, 4° piso.
 Teléfono: 256-5265, extensiones 210, 262, 274.
