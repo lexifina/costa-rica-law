@@ -1,0 +1,7 @@
+CIRCULAR Nº 156-2013
+Asunto: Modificación de la circular N° 150-2004 sobre “Debida comunicación al Organismo de Investigación Judicial, de visitas, continuaciones, reconocimientos, juicios, cambio de medidas cautelares entre otros”.
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+QUE TRAMITAN MATERIA PENAL
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 37-13, celebrada el 2 de setiembre de 2013, artículo XXI, acordó modificar la circular Nº 150-2004, publicada en el Boletín Judicial Nº 227 del 19 de noviembre de 2004, y comunicarles que en adelante toda diligencia programada con debida antelación (visitas, continuaciones, reconocimientos, juicios, cambio de medidas cautelares, entre otros) y donde se requiriera trasladar a una persona privada de libertad desde un Centro de Atención Institucional, deberá ser comunicada como mínimo con ocho días de anticipación a la dependencia competente del Organismo de Investigación Judicial, indicando claramente quiénes son las personas privadas de libertad y las horas a las que se requieren para llevar a cabo las diferentes diligencias judiciales. Lo anterior, con el fin de que ese Organismo programe la ruta y presente oportunamente al imputado, pues el espíritu de esta directriz es la optimización de los recursos públicos y que exista una mejor coordinación, debido a que se trata de un servicio difícil de organizar, de manera que no se den circunstancias que conlleven la suspensión de los actos jurisdiccionales por falta de presentación de una persona privada de libertad.
+San José, 11 de setiembre de 2013.
