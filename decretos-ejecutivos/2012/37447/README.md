@@ -14,3 +14,4 @@ Amplia para la Refinadora Costarricense de Petróleo, S. A. (RECOPE), el gasto p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-01 | la propia norma |
+| 2 | 2013-09-11 | Decreto Ejecutivo 37931 (2013-09-11) |

@@ -13,3 +13,4 @@ relacionan con la conservación de energía, reposición de equipo de proceso, a
 Por tanto;
 Decretan:
 Artículo 1°.—Amplíese para la Refinadora Costarricense de Petróleo, S. A. (RECOPE), el gasto presupuestario máximo para el 2013, establecido de conformidad con el Decreto Ejecutivo No. 37042-H, publicado en el Alcance Digital No. 35 a La Gaceta No. 59 de 22 de marzo de 2012, en la suma de ¢62.938.090.240,00 (sesenta y dos mil novecientos treinta ocho millones noventa mil doscientos cuarenta colones exactos), para ese período.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 37931 del 11 de setiembre del 2013, se autoriza a la Refinadora Costarricense de Petróleo S. A. (RECOPE), la redistribución de la suma de ¢5.295.750.000,00 (cinco mil doscientos noventa y cinco millones setecientos cincuenta mil colones exactos), del gasto presupuestario máximo ya autorizado para el año 2013 para reforzar subpartidas presupuestarias)
