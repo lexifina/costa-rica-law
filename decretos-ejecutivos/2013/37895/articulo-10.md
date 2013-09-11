@@ -1,0 +1,1 @@
+Artículo 10.—El (la) Ministro(a) delegará a los (las) Viceministros(as) la coordinación de los asuntos relacionados con las instancias adscritas de conformidad con criterios de organización eficiente de la gestión pública.

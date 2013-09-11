@@ -1,0 +1,1 @@
+Artículo 5º—Las instancias asesoras tendrán el personal de apoyo necesario para el desarrollo de sus labores y cumplirán con aquellas funciones dirigidas a la sana administración y supervisión de los recursos con que cuentan para operar y fortalecer el apoyo que brinda tanto a los Jerarcas como a las diferentes dependencias adscritas del Ministerio.
