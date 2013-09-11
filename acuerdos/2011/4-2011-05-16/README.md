@@ -14,3 +14,4 @@ Integra Comisiones Permanentes Especiales de la Asamblea Legislativa para el per
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-14 | la propia norma |
+| 2 | 2013-09-11 | SINALEVI (sin norma nombrada) |
