@@ -1,0 +1,1 @@
+Artículo 6°—Sujetos de crédito. Serán sujetos de crédito, todos aquellos afiliados o afiliadas del Régimen, que cuenten con doce meses o más de incorporados como profesionales al Colegio y que se encuentren al día en el pago de sus obligaciones.

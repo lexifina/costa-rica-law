@@ -1,0 +1,1 @@
+Artículo 16.—Sostenibilidad del sistema. La rentabilidad o excedentes que se logren a propósito de los créditos otorgados, deberán destinarse a la capitalización y fortalecimiento financiero del Sistema, así como para enfrentar los gastos administrativos y lograr la operación eficiente.

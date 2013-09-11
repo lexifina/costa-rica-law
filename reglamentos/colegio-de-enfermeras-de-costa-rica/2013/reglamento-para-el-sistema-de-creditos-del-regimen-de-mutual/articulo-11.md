@@ -1,0 +1,2 @@
+Artículo 11.—Garantías de los créditos. Los créditos aprobados serán garantizados mediante cauciones fiduciarias, extendidas a favor del Colegio de Enfermeras de Costa Rica, para lo cual se tomará en cuenta el monto del crédito y la capacidad de pago del deudor o deudores y fiadores.
+La Junta Directiva del Colegio, previa recomendación de la JAFOM y por mayoría calificada, podrá aceptar garantías fiduciarias, prendarias o hipotecarias de personas no afiliadas al Fondo, siempre y cuando quede debidamente acreditada su solvencia económica y su capacidad de pago.
