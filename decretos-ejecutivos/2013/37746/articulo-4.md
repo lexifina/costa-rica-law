@@ -1,0 +1,1 @@
+Artículo 4º—El Instituto Costarricense de Electricidad, se compromete a realizar la menor corta de árboles posible, resguardando siempre la seguridad operativa de la línea de transmisión, en la fase de construcción, operación y mantenimiento, previa autorización del Sistema Nacional de Áreas de Conservación (SINAC).

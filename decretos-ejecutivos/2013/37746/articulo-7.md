@@ -1,0 +1,1 @@
+Artículo 7º—El Instituto Costarricense de Electricidad, deberá ejecutar el Plan de Gestión Ambiental avalado por la Secretaría Técnica Nacional Ambiental, llevando a cabo las medidas de mitigación y compensación ambiental emanadas del Estudio de Impacto Ambiental, aplicable a este proyecto.
