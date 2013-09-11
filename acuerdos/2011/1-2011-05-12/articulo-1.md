@@ -14,7 +14,7 @@ Góngora Fuentes Carlos Humberto
 Granados Calvo Víctor
 Sotomayor Aguilar Rodolfo
 Villalta Florez-Estrada José María
-Comisión Permanente de Asuntos Hacendarios
+Comisión Permanente de Asuntos Hacendarios(*)
 Brenes Jiménez Ileana
 Chacón González Francisco
 Villalobos Argüello Sianny
@@ -26,6 +26,7 @@ Hernández Rivera Manuel
 Rojas Valerio Luis Alberto
 Fishman Zonzinski Luis
 Monestel Contreras Martin
+(*) (Mediante resolución de la Sala Constitucional N° 012017 del 11 de setiembre de 2013, se anuló la Comisión anterior)
 Comisión Permanente de Gobierno y Administración
 Ocampo Baltodano María Cristina
 Gómez Franceschi Agnes
@@ -57,7 +58,7 @@ Monge Pereira Claudio Enrique
 Chavarría Ruiz Ernesto
 Céspedes Salazar Walter
 Porras Contreras José Joaquín
-Comisión Permanente de Asuntos Sociales
+Comisión Permanente de Asuntos Sociales(*)
 Espinoza Espinoza Xinia María
 Aiza Campos Luis Antonio
 Venegas Renauld María Eugenia
@@ -67,5 +68,6 @@ Quintana Porras Damaris
 Alfaro Murillo Marielos
 Bejarano Almada Gloria
 Chaves Casanova Rita
+(*) (Mediante resolución de la Sala Constitucional N° 012017 del 11 de setiembre de 2013, se anuló la Comisión anterior)
 Publíquese
 Asamblea Legislativa.—San José, a los doce días del mes de mayo de dos mil once.

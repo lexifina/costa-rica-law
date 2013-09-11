@@ -14,3 +14,4 @@ Integra Comisiones Permanentes de la Asamblea Legislativa, para el período 2011
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-26 | la propia norma |
+| 2 | 2013-09-11 | SINALEVI (sin norma nombrada) |
