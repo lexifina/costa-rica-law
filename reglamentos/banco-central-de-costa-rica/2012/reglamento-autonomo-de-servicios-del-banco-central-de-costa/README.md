@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios del Banco Central de Costa Rica y sus Órganos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-01 | la propia norma |
+| 2 | 2013-09-11 | Reglamento 5613 (2013-09-11) |
