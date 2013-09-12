@@ -18,3 +18,4 @@ Reglamento de Servicios de Apartados
 | 3 | 2010-09-09 | Reglamento 37 (2010-09-09) |
 | 4 | 2011-09-22 | Acuerdo 416 (2011-09-22) |
 | 5 | 2012-09-20 | Reglamento 38 (2012-09-20) |
+| 6 | 2013-09-12 | Reglamento 35 (2013-09-12) |
