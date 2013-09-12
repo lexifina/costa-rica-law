@@ -1,1 +1,0 @@
-Artículo 40.—Además de la sanción económica que proceda, el FODEAP se reserva el derecho de hacer exigible el cumplimiento de la obligación cuando se den las circunstancias establecidas en el artículo anterior; también cuando se produzca un traspaso del inmueble dado en garantía a la Institución.

@@ -1,1 +1,0 @@
-Artículo 25.—Cumplido con lo establecido en el artículo anterior y realizada la verificación de la totalidad de los requisitos, la Comisión Administradora dictaminará la solicitud de crédito para luego, someterlo a consideración de la Junta Directiva del IFAM.

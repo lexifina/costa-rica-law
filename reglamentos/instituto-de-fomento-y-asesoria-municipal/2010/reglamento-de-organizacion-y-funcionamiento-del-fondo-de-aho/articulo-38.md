@@ -1,1 +1,0 @@
-Artículo 38.—En los créditos personales, cuando un afiliado se retire del FODEAP por cualquier razón, de previo a la devolución de sus ahorros e intereses, debe deducirse de estos los saldos pendientes y, si dichas sumas son insuficientes para la cancelación del crédito, no podrá desafiliarse, salvo que cancele en su totalidad el préstamo pendiente.

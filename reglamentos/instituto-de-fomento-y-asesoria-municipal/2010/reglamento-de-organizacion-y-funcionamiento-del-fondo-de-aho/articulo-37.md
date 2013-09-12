@@ -1,5 +1,0 @@
-Artículo 37.—El afiliado que haya sido beneficiado con un crédito personal, podrá solicitar un nuevo crédito de esta naturaleza, cuando cumpla con las siguientes condiciones:
-a) Que haya transcurrido como mínimo veinticuatro (24) meses de otorgado el último crédito de esta naturaleza, excepto que halla cancelado el crédito anterior o que el crédito se gestione para cubrir gastos en caso de fallecimiento del cónyuge, hijos o padres. Siempre manteniendo como limitante que el monto total a conceder no supere la suma autorizada para la línea de crédito personal.
-b) Que el solicitante se encuentre al día con las obligaciones contraídas con el fondo, (pago de los préstamos, pólizas de vida vigentes, entre otros).
-c) Que el saldo del crédito vigente se cancele con el nuevo crédito, cuyo monto no debe superar la suma autorizada para la línea de crédito personal.
-d) La Comisión de Administradora del FODEAP, pondrá en conocimiento de la Junta Directiva las solicitudes de crédito en un plazo no mayor a un mes calendario contado a partir de la recepción de la solicitud y de la totalidad de los requisitos correspondientes.

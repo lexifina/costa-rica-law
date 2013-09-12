@@ -1,1 +1,0 @@
-Artículo 4º—El FODEAP estará administrado por una Comisión Administradora, conformada tal como se señala en el artículo 6º del presente Reglamento. Con recursos del Fondo se contratarán los servicios mensuales de contabilidad y un informe de auditoría anual del fondo.

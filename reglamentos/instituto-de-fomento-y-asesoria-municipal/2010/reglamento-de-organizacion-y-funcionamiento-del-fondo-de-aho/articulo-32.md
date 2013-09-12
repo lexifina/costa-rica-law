@@ -1,8 +1,0 @@
-Artículo 32.—Además de los requisitos que se establecen en el Capitulo Cuarto, de este Reglamento, el afiliado que solicite un crédito personal debe cumplir con lo siguiente:
-a) Que el solicitante no sobrepase los seis millones de colones (¢6.000.000,00) sumando lo adeudado más la nueva solicitud crediticia con el fondo, salvo aquella que sea de un crédito hipotecario. Que su salario se encuentre libre de embargos, a excepto de aquellos embargos decretados por concepto de pensión alimentaria y el saldo, cubra el porcentaje necesario.
-b) Que el solicitante tenga capacidad de pago de acuerdo a la línea de crédito y monto requerido.
-c) Que el salario del fiador o fiadores según sea el caso, no se encuentre embargado, salvo en aquellos casos en que el embargo provenga de pensión alimentaria.
-d) Presentar constancias de salario del solicitante y del o los fiadores con no más de un mes de emitidas, fotocopia de la orden patronal vigente y de las cédulas de identidad por ambos lados vigentes. El solicitante deberá además, brindar toda aquella información requerida sobre sus fiadores.
-e) Si el solicitante o los fiadores tienen otros ingresos, deben demostrar dicho ingreso mediante certificación extendida por un Contador Privado, cuando sean inferiores a ¢50.000.00 y de Contador Público, cuando se supere dicha suma.
-f) Autorizar por escrito a la Dirección de Administración Interna, con copia a la Sección de Recursos Humanos, una vez que el crédito sea aprobado, para que se le rebaje del salario la cuota del préstamo.
-g) Cualquier otra condición que imponga la Junta Directiva previa recomendación de la Comisión Administradora.

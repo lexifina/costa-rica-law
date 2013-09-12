@@ -1,2 +1,0 @@
-Artículo 33.—No pueden ser fiadores, los Miembros de la Junta Directiva del IFAM, ni de la Comisión Administradora, salvo que la operación se hubiere formalizado con anterioridad a su designación.
-En caso de producirse el deceso de alguno de los fiadores, el deudor deberá proceder a la inmediata sustitución del fiador o fiadora fallecido o fallecida, caso contrario, se liquidará el crédito otorgado y se exigirá el cumplimiento del pago del saldo de la operación respectiva.

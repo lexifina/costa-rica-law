@@ -1,1 +1,0 @@
-Artículo 11.—La Dirección de Administración Interna del IFAM, hará las deducciones pertinentes en el salario del afiliado; asimismo, controlará la vigencia de las pólizas del INS que garanticen la operación según la línea de crédito de que se trate.
