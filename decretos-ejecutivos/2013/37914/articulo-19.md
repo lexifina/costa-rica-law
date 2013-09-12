@@ -1,0 +1,1 @@
+Artículo 19.—En todo lo demás, el Decreto Ejecutivo Nº 33925-C del 9 de agosto de 2007, publicado en el Diario Oficial La Gaceta Nº 160 del 22 de agosto de 2007, denominado Reglamento del Programa Nacional para el Desarrollo de las Artes Escénicas-PROARTES, permanece incólume.
