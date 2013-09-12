@@ -1,3 +1,0 @@
-Artículo 73.- OBLIGATORIEDAD DE DENUNCIAR EL INGRESO DE LAS ARMAS ANTE LAS AUTORIDADES ADUANALES.
-Toda arma que ingrese por cualquiera de los puestos aduanales del país deberá ser denunciada ante las autoridades aduanales competentes. El interesado deberá comunicarlo al Departamento para que éste asigne a un representante que intervenga ante el Despacho Aduanal correspondiente sin ese requisito no podrá permitirse el retiro del dominio fiscal ni la salida del país.
-(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 65 al 73).

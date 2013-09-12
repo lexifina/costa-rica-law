@@ -1,3 +1,0 @@
-Artículo 69.—Permiso de importación ocasional de armas permitidas. Toda persona física o jurídica que desee ocasionalmente importar directamente un arma de fuego permitida al país, deberá obtener el permiso respectivo del Departamento, presentando la solicitud por escrito, personalmente o debidamente autenticada, indicando y aportando los requisitos que exige en el artículo 57 del presente Reglamento. Deberá señalar, además las características, cantidad, y procedencia de las armas, las razones y el uso que se les dará.
-(Así reformado por el artículo 6° del decreto ejecutivo N° 31383 del 9 de julio de 2003)
-(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 61 al 69).

@@ -1,3 +1,0 @@
-Artículo 30.—Registro de firmas. El Departamento levantará un registro de firmas de los psicólogos y psiquiatras habilitados para realizar las pruebas de idoneidad mental, con base en la información remitida por el colegio profesional al que pertenece.
-Para que el Departamento admita el dictamen de idoneidad mental emitido por alguno de los profesionales que indica el párrafo anterior, la firma de estos debe constar en el registro respectivo. La firma registrada y la rubricada en el dictamen de idoneidad mental deben ser iguales.
-(Así adicionado por el artículo 3° del decreto ejecutivo N° 31383 del 9 de julio de 2003)

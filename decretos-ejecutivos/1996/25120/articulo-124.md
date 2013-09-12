@@ -1,3 +1,0 @@
-Artículo 124.- PERMISO DE COMPRA O IMPORTACION DE EXPLOSIVOS Y SUS ADITAMENTOS POR PARTE DE LOS ENTES ESTATALES.
-En el caso de los entes estatales, las solicitudes de permiso de compra e importación de explosivos y sus aditamentos, deberá remitirlas el jerarca de la institución al Ministro, con copia al Departamento indicando las características de los explosivos y sus aditamentos, la utilización que se les dará, de quien los van a adquirir, formas de traslado, lugar del almacenamiento y las medidas de seguridad de estos procesos.
-(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 116 al 124).

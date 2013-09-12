@@ -1,2 +1,0 @@
-Artículo 11.- RESOLUCIONES DEL DEPARTAMENTO.
-Toda resolución del Departamento deberá fundamentarse y notificarse de conformidad con la Ley General de la Administración Pública. Los recursos ordinarios interpuestos ante el Departamento contra las resoluciones que éste dicte deberán interponerse dentro de los tres días a partir de su notificación tratándose del acto final y veinticuatro horas en los demás casos. Los recursos extraordinarios que impugnen el acto final se interpondrán de acuerdo con los artículos 353, 354, 355 de la Ley General de la Administración Pública.

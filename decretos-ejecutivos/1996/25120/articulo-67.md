@@ -1,3 +1,0 @@
-Artículo 67.- PERMISO DE IMPORTACION DE ARMAS Y MUNICIONES POR PARTE DE LOS CUERPOS POLICIALES.
-La solicitud de importación de armas por parte de los cuerpos policiales y demás entes estatales autorizados por ley para poseer, portar y usar armas para el ejercicio de sus funciones, deberá formularla el jerarca de la institución al Ministro con copia al Departamento, indicando: cantidad, tipo, características de las armas y municiones, finalidad que se les darás a las armas, lugar de procedencia y desalmacenaje.
-(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 59 al 67).

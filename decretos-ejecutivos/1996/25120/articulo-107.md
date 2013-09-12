@@ -1,8 +1,0 @@
-Artículo 107.- REQUISITOS DEL PERMISO REGULAR DE VENTA DE EXPLOSIVOS INDUSTRIALES Y PIROTECNICOS PERMITIDOS Y SUS ADITAMENTOS.
-La solicitud de permiso para establecimientos comerciales para la venta de explosivos industriales y pirotécnicos permitidos, y sus aditamentos deberá formularse ante el Departamento personalmente por el interesado o por escrito debidamente, indicando nombre y apellidos, número de cédula de identidad y domicilio exacto del solicitante o el del representante de la persona jurídica. Nombre del establecimiento comercial, domicilio exacto, número telefónico, las medidas de seguridad del establecimiento, descripción y los metros cuadrados del lugar del almacenaje de los explosivos y sus aditamentos, distancia a que se encuentra del techo, materiales con que se construyó el piso, paredes y el techo del lugar, distancia del lugar del almacenaje con los centros poblados más cercanos. Indicar la cantidad promedio y el tipo de explosivos o aditamentos que se tendrán en el establecimiento o almacenados por día.
-A la solicitud de venta, el solicitante deberá aportar según corresponda:
-1) Fotocopia de la cédula de identidad del solicitante o representante de la persona jurídica.
-2) Certificación de la personería jurídica de la sociedad.
-3) Fotocopia de la cédula jurídica vigente de la sociedad.
-4) Fotocopia certificada del permiso de funcionamiento extendido por el Ministerio de Salud, el cual debe indicar que es para la venta de artículos explosivos, de pirotecnia o sus aditamentos.
-(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 99 al 107).

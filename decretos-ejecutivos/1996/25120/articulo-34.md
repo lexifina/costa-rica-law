@@ -1,2 +1,0 @@
-Artículo 34.—Plazo para una nueva prueba de idoneidad mental. En caso que la prueba de idoneidad mental declare que el solicitante no es apto para poseer o portar armas de fuego, ésta podrá ser realizada nuevamente dentro del término de dos años contados a partir de la fecha en que fue expedido el dictamen que contiene el resultado negativo".
-(Así adicionado por el artículo 3° del decreto ejecutivo N° 31383 del 9 de julio de 2003)

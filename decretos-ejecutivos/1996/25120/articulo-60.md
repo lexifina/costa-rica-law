@@ -1,3 +1,0 @@
-Artículo 60.- PERMISO DE COMPRA POR TURISTAS.
-El permiso para compra de armas permitidas por turistas faculta al interesado para adquirirlas en el país previa autorización del Departamento. Para tal efecto el permiso de compra será expedido dentro de las cuarenta v ocho horas anteriores a la salida del turista del territorio nacional. Tales armas serán exclusivamente para uso fuera del país. La entrega del arma la realizará el vendedor por medio del depósito a la Dirección General de Aduanas del Ministerio de Hacienda, quien dictará el mecanismo de entrega conjuntamente con el Departamento.
-(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 52 al 60).
