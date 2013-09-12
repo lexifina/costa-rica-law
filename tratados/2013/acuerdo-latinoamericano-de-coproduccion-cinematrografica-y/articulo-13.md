@@ -1,0 +1,2 @@
+ARTÍCULO XIII
+Las partes concederán facilidades para la circulación y permanencia del personal artístico y técnico que participe en las obras cinematográficas realizadas en coproducción, de conformidad con el presente Acuerdo. Igualmente, se concederán facilidades para la importación y exportación temporal en los países coproductores del material necesario para la realización de las coproducciones, según la normativa vigente en cada país.

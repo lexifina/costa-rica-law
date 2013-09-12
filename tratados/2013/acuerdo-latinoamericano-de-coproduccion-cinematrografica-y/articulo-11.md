@@ -1,0 +1,5 @@
+ARTÍCULO XI
+1. Los créditos o títulos de obras cinematográficas realizadas bajo el presente Acuerdo deberán indicar, en cuadro separado, el carácter de coproducción de la misma y el nombre de los países participantes.
+2. A menos que los coproductores decidan otra cosa, las obras cinematográficas realizadas en coproducción serán presentadas en los Festivales Internacionales por el país del coproductor mayoritario o, en el caso de participaciones financieras igualitarias, por el país del coproductor del cual el director sea residente.
+3. Los premios, subvenciones, incentivos y demás beneficios económicos que fuesen concedidos a las obras cinematográficas, podrán ser compartidos entre los coproductores, de acuerdo a lo establecido en el contrato de coproducción y a la legislación vigente en cada país.
+4. Todo premio que no sea en efectivo, es decir, distinción honorífica o trofeo concedido por terceros países a obras cinematográficas realizadas según las normas establecidas por este Acuerdo, será conservado en depósito por el coproductor mayoritario, o según lo establezca el contrato de coproducción.
