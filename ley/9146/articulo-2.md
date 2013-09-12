@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+El inmueble donado será destinado a albergar las oficinas y demás construcciones necesarias para brindar el servicio de agua potable a la población de San Pedro. En caso de que la Asociación donataria llegara a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Municipalidad de Barva de Heredia.
