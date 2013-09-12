@@ -1,0 +1,3 @@
+Artículo 2º—La Comisión tendrá las siguientes funciones:
+a. Gestionar y recomendar los proyectos ante las instituciones del Sector Agroalimentario que tengan incidencia en el desarrollo del Sector Agrícola Cebollero y presentar al Despacho de la Viceministra las observaciones y comentarios que procuren mejorar la condición de este Sector.
+b. Proponer la emisión, modificación o derogatoria de normas, políticas y procedimientos relacionados con la actividad agrícola cebollera nacional, atendiendo las circunstancias nacionales o internacionales, acordes con la meta de competitividad y el desarrollo sostenible del sector cebollero.
