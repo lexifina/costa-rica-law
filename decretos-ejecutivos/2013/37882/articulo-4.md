@@ -1,0 +1,2 @@
+Artículo 4º—Adiciónese un Transitorio Único al Reglamento a la Ley sobre la Zona Marítimo Terrestre, Decreto Ejecutivo N° 7841 del 16 de diciembre de 1977 y sus reformas, para que se lea como sigue:
+Transitorio único.—Hasta tanto las municipalidades no emitan la reglamentación a que hace referencia el artículo 49 de este reglamento, aplicarán para efectos del cobro de canon anual, los porcentajes establecidos en dicha norma antes de la presente modificación.

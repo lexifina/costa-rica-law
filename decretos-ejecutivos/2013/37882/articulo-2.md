@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el artículo 52 del Reglamento a la Ley sobre la Zona Marítimo Terrestre, Decreto Ejecutivo N° 7841 del 16 de diciembre de 1977 y sus reformas, para que se lea como sigue:
+Artículo 52.- En el caso de personas de escasos recursos que residan permanentemente en la zona y sólo cuando se trate de concesiones destinadas exclusivamente a vivienda para residentes locales, la municipalidad podrá rebajar el canon hasta el 0.25%.
