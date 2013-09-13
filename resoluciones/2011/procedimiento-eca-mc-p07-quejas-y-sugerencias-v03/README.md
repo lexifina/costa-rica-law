@@ -14,3 +14,4 @@ Procedimiento ECA-MC-P07 Quejas y Sugerencias V03
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-18 | la propia norma |
+| 2 | 2013-09-13 | Acuerdo 0 (2013-09-13) |
