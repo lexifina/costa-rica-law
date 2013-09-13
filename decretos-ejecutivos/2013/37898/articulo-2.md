@@ -1,0 +1,2 @@
+Artículo 2º—Facultades de la Administración. La Administración Tributaria podrá comprobar que las operaciones realizadas entre las partes relacionadas se han valorado de acuerdo con lo dispuesto en el artículo anterior y efectuará los ajustes correspondientes cuando el precio o monto estipulado, no corresponda a lo que se hubiera acordado entre partes independientes en operaciones comparables.
+En estos casos, la Administración está vinculada por el valor ajustado en relación con el resto de partes vinculadas residentes en el país.
