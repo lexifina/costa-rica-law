@@ -1,0 +1,1 @@
+Artículo 38.—De las garantías de los créditos a los beneficiarios En las operaciones crediticias se podrán recibir como garantías letras de cambio, pagares, prendas, hipotecas o una combinación de estas, conforme a lo que sea establecido por el Comité Director del Fideicomiso.

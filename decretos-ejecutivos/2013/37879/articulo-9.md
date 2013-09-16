@@ -1,0 +1,2 @@
+Artículo 9º—De las sesiones del Comité.
+El quórum para sesionar será al menos dos integrantes, debiendo representante del MAG y el del ICAFÉ, sea el titular o el suplente y menos una vez al mes, sin limitar las reuniones extraordinarios que sean necesarias para la correcta operatividad del fideicomiso; siguiendo las formalidades establecidas en la Ley General de la Administración Pública para cada caso.

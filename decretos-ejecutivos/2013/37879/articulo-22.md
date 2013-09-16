@@ -1,0 +1,1 @@
+Artículo 22.—Del trámite de la solicitud: Los Intermediarios operativos y el Fiduciario recibirán la documentación solicitada en los artículos anteriores para su respectiva valoración y procederán a la confección de cada uno de los expedientes según sea el caso, el cual se trasladará posteriormente a la oficina del fideicomiso.

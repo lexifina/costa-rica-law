@@ -1,0 +1,1 @@
+Artículo 41.—De las modificaciones al Reglamento: Sera objeto de modificaciones el presente Reglamento cuando así lo disponga los entes administradores de este fideicomiso en el cumplimiento de los fines que persigue la ley.

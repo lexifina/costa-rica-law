@@ -1,0 +1,4 @@
+Artículo 27.—De los requisitos que deben cumplir los beneficiarios de las ayudas económicas del IMAS: El productor solicitante de la familia productora de café, debe aportar los siguientes requisitos:
+1. Fotocopia de la cédula de identidad del productor solicitante.
+2. Declaración jurada del productor solicitante, que indique que su cultivo ha sido afectado de forma importante por la roya del café o que se encuentra afectado por contingencias agro-productivas relacionadas con el cultivo.
+3. Estar incluido en la nómina de Productores de las cosechas 2012-2013 o 2013-2014 suministrada por ICAFE. Estas nóminas deberán tener al menos los siguientes datos del productor de café: a)Nombre completo, b)número de cédula u otro documento oficial de identidad, c)lugar de afluencia del café y d)cantidad de dobles hectolitros.

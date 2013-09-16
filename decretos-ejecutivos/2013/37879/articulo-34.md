@@ -1,0 +1,1 @@
+Artículo 34.—De uso de los recursos: Las donaciones, transferencias y aportes económicos especiales serán destinados exclusivamente para financiar los programas definidos en este fideicomiso a productores cafetaleros, conforme lo dispuesto en la ley N° 9153.

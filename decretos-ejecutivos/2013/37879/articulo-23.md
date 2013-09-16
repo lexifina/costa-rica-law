@@ -1,0 +1,1 @@
+Artículo 23.—Valoración de las solicitudes: Las solicitudes que se tramiten serán valoradas a fin de confeccionar el expediente del solicitante e informa según sea el tipo de crédito, la garantía que respaldará el mismo. El expediente deberá ser remitido a la oficina del fideicomiso para verificar los requisitos solicitados a fin de continuar con su trámite.
