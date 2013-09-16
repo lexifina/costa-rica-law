@@ -1,0 +1,1 @@
+Artículo 10.—El incumplimiento de estas obligaciones por los miembros de la Junta Directiva y los funcionarios, los hará acreedores de las sanciones disciplinarias que el reglamento emitido por la Contraloría General de la República sobre esta materia disponga para los funcionarios que conforman la administración activa.

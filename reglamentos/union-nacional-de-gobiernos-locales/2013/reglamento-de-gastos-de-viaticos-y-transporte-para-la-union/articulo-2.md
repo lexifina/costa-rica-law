@@ -1,0 +1,1 @@
+Artículo 2º—Sujetos beneficiarios. Los gastos a que se refiere este reglamento serán reconocidos a los miembros del Concejo Directivo en razón de su asistencia a las sesiones ordinarias y extraordinarias, así como a los funcionarios de la institución.

@@ -1,0 +1,1 @@
+Artículo 12.—Para los efectos contemplados en el artículo anterior, el miembro de la Junta Directiva o funcionario no tendrá que presentar la factura por concepto de alimentación (desayuno, cena o almuerzo) para que la Administración le reconozca la tarifa estipulada.
