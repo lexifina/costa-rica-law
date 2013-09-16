@@ -1,2 +1,0 @@
-Artículo 42.—Atención de denuncias. El Auditor Interno tendrá la responsabilidad de establecer los lineamientos que correspondan en relación a materia de admisibilidad de denuncias para su atención por parte de la Auditoría Interna. Para tal efecto, será aplicable lo establecido en el artículo 6 de la Ley General de Control Interno y el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
-Estos lineamientos estarán integrados como parte del Manual de la Auditoría Interna de BCR Valores S. A.

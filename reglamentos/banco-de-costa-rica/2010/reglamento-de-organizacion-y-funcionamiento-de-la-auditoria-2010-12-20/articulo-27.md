@@ -1,1 +1,0 @@
-Artículo 27.—Coordinación de asesoría jurídica. En virtud de lo establecido en el artículo 33 de la Ley General de Control Interno, la Auditoría Interna estará en la potestad de solicitar el servicio de asesoría legal por medio de la División Jurídica del Banco de Costa Rica.

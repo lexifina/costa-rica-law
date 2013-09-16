@@ -1,1 +1,0 @@
-Artículo 26.—Coordinación con responsable del control presupuestario. El Auditor Interno establecerá la coordinación necesaria para que el responsable del control del presupuesto de la sociedad, mantenga controles asociados a la ejecución y modificaciones de los recursos presupuestarios de la auditoría interna.
