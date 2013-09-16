@@ -1,0 +1,1 @@
+Artículo 6º—Sesiones de la CITG. La CITG se reunirá ordinariamente una vez al mes, y extraordinariamente según lo dispuesto en los incisos 3) y 4) del artículo 52 de la Ley General de la Administración Pública. La asistencia a las sesiones será obligatoria, salvo excusa debidamente justificada de la ausencia presentada ante quien preside la Comisión.

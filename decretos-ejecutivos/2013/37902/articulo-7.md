@@ -1,0 +1,5 @@
+Artículo 7º—Funciones de la CITG. La CITG tendrá entre sus funciones las siguientes:
+a. Presentar al Jerarca institucional una propuesta de Política Institucional para la Igualdad y Equidad de Género del MIVAH de acuerdo con los lineamientos que emite el Instituto Nacional de las Mujeres.
+b. Promocionar la igualdad y equidad de género, tanto en las relaciones de servicio público de los funcionarios y las funcionarias, así como en los productos que genera el MIVAH.
+c. Vigilar porque las acciones definidas en la Política Institucional para la Igualdad y Equidad de Género del MIVAH sean incluidas en los Planes Operativos Institucionales (P0I) y Estratégicos del MIVAH de manera que las diferentes Direcciones y Unidades del MIVAH dispongan del recurso humano y del contenido presupuestario requerido para su ejecución y que queden sujetas a los procesos de evaluación institucional.
+d. Procurar que la política institucional para la promoción de la igualdad y equidad de género, contenga los parámetros que permitan reducir o eliminar las posibles brechas de género en el entorno de trabajo del MIVAH.
