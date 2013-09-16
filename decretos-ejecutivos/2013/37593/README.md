@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento y la Utilización del Portal "CrearEmpresa"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-15 | la propia norma |
+| 2 | 2013-09-16 | Decreto Ejecutivo 37944 (2013-09-16) |
