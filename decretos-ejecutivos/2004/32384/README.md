@@ -15,3 +15,4 @@ Reglamento Interno sobre los Procedimientos de Contratación Administrativa del 
 | --- | --- | --- |
 | 1 | 2005-06-02 | la propia norma |
 | 2 | 2007-05-07 | Decreto Ejecutivo 33832 (2007-05-07) |
+| 3 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
