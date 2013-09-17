@@ -15,3 +15,4 @@ Reglamento de la Proveeduría Institucional de la Comisión Nacional de Prevenci
 | --- | --- | --- |
 | 1 | 2005-10-10 | la propia norma |
 | 2 | 2009-06-30 | Reglamento 11 (2009-06-30) |
+| 3 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
