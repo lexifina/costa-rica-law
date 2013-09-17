@@ -14,3 +14,4 @@ Reglamento Interno para la Tramitación de Modificaciones Presupuestarias de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-07 | la propia norma |
+| 2 | 2013-09-17 | Reglamento municipal 176 (2013-09-17) |

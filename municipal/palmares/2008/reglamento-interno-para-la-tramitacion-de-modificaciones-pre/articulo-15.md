@@ -1,2 +1,2 @@
-Artículo 15.—Este Reglamento rige a partir de su publicación en el diario oficial La Gaceta.
-Palmares, 18 de noviembre del 2008.
+Artículo 15.—El incumplimiento de lo establecido en éste Reglamento, dará lugar a la aplicación de las responsabilidades que establece la Ley de la Administración Financiera de la República y Presupuestos Públicos, la Ley General de Control Interno, La Ley Contra la Corrupción y el Enriquecimiento Ilícito y las demás disposiciones concordantes.
+(Así corrida su numeración mediante sesión N° 176 del 17 de setiembre del 2013, que lo trasapsó del antiguo artículo 14 al 15)
