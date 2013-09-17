@@ -14,3 +14,4 @@ Conjunto de documentos estándar que se pone a disposición de todas las Institu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-04 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
