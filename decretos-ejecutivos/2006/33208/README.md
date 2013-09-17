@@ -16,3 +16,4 @@ Reglamento de Organización de la Dirección Administrativa y Financiera del Min
 | 1 | 2006-07-18 | la propia norma |
 | 2 | 2009-05-29 | Decreto Ejecutivo 35305 (2009-05-29) |
 | 3 | 2009-09-01 | Decreto Ejecutivo 35564 (2009-09-01) |
+| 4 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
