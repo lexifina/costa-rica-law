@@ -1,0 +1,1 @@
+Artículo 24.—Toda solicitud de adquisición de repuestos y/o accesorios para el equipo de cómputo, deberá tener la respectiva justificación por parte del responsable solicitante así como la respectiva justificación técnica del Proceso de Soporte Técnico.

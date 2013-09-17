@@ -1,0 +1,1 @@
+Artículo 9º—Además de estar acompañados por un empleado del Proceso de Soporte Técnico, el personal externo a la JASEC que esté dentro de las instalaciones del Centro de Datos debe portar una identificación en un lugar visible que los distinga como tales. Queda prohibido el ingreso de particulares que no tengan actividades autorizadas que realizar dentro de estas premisas.

@@ -1,0 +1,1 @@
+Artículo 40.—El préstamo de la computadora portátil o netbook a otro funcionario o dependencia de la Institución debe hacerse con toda la documentación correspondiente para trasladar la responsabilidad del equipo al nuevo receptor.

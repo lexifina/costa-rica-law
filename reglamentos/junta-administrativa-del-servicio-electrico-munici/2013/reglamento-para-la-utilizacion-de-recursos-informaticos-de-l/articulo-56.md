@@ -1,0 +1,1 @@
+Artículo 56.—El usuario publicador será designado por el Líder UEN respectivo, será responsable de validar la información que se va a publicar y mantener actualizada la información que le atañe a su área.

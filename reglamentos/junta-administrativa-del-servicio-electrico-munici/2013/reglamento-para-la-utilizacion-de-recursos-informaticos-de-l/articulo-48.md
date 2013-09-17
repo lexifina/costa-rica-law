@@ -1,0 +1,1 @@
+Artículo 48.—Cualquier material y/o datos obtenidos mediante el uso del servicio de Internet sin contar con las protecciones recomendadas, constituye un riesgo para el funcionario y para la Institución, por 1o que el funcionario será exclusivamente responsable de cualquier daño al sistema o pérdida de datos que pueda resultar de su proceder.

@@ -1,0 +1,2 @@
+Artículo 55.—El usuario administrador será el Coordinador del Proceso de Soporte Técnico o el Encargado de la Seguridad Informática y deberá velar por establecer los esquemas de seguridad necesarios para mantener el sitio seguro, creará los perfiles de los distintos usuarios, y coordinará con los usuarios tipo publicadores, el agregar o eliminar del sitio Intranet.
+El Administrar del sitio Intranet deberá informar a los funcionarios de JASEC a través del correo electrónico, la nueva información que ha sido incorporada.

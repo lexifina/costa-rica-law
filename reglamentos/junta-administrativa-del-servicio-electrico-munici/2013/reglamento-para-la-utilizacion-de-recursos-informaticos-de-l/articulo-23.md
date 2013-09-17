@@ -1,0 +1,1 @@
+Artículo 23.—Cuando el equipo no pueda ser reparado por el Proceso de Soporte Técnico, este coordinará con el Proceso de Contratar Bienes y Servicios la reparación del mismo por parte de empresas contratadas para tal efecto, mediante los procesos de contratación establecidos en la institución según procedimiento 7P04 Compras y Contratación.

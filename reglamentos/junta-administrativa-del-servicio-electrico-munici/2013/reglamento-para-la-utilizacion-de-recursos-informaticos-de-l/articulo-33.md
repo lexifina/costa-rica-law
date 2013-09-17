@@ -1,0 +1,1 @@
+Artículo 33.—En caso de una infección por virus a una microcomputadora, el Proceso de Soporte Técnico, una vez corregido el problema, informará a los administradores de sistemas y jefaturas respectivas, para que éstas determinen las responsabilidades del caso según los procedimientos correspondientes.

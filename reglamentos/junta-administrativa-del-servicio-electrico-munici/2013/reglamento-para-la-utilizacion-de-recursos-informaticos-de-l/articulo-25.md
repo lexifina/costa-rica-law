@@ -1,0 +1,1 @@
+Artículo 25.—Queda terminantemente prohibido trasladar el equipo de cómputo de una dependencia a otra sin la debida autorización del Proceso de Soporte Técnico. Este traslado deberá ser reportado al Proceso de Administrar Materiales y Equipos, al Responsable de Activos y a los Guardas de Seguridad del Plantel respectivo.

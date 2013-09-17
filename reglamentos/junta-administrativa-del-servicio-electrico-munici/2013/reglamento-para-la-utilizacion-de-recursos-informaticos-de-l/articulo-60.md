@@ -1,0 +1,1 @@
+Artículo 60.—En todos los casos la aplicación de una sanción a un trabajador de la institución deberá someterse a los procedimientos establecidos en el Libro Segundo de la Ley General de la Administración Pública.

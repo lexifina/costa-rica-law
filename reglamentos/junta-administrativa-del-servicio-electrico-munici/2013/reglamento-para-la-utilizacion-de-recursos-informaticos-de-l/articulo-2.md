@@ -1,0 +1,1 @@
+Artículo 2º—Cada equipo de tecnológico estará asignado a un usuario responsable, quien deberá velar por su buen funcionamiento. Para tal efecto deberá reportar a través del sistema Help Desk, cualquier falla o anomalía, al Proceso de Soporte Técnico de la UTI, para que se le brinde la atención respectiva.

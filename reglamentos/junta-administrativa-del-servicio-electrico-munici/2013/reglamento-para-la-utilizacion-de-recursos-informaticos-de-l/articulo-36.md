@@ -1,0 +1,1 @@
+Artículo 36.—Cada persona a la que se le asigne una computadora, computadora portátil, netbook y/o cualquier equipo de cómputo en general es responsable por su uso, custodia y salvaguarda. En caso de pérdida por robo, olvido, daño, descuido entre otras cosas, será remitido por su superior jerárquico a quien corresponda, para los trámites correspondientes.

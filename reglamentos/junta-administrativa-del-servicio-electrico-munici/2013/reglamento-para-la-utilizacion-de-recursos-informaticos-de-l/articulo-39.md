@@ -1,0 +1,1 @@
+Artículo 39.—En caso de una infección por virus a una computadora portátil o netbook el responsable del equipo deberá reportarla mediante el sistema Help Desk al Proceso de Soporte Técnico para que se corrija el problema.

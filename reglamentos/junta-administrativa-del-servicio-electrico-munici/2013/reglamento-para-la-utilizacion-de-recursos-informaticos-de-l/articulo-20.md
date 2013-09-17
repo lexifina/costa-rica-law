@@ -1,0 +1,1 @@
+Artículo 20.—El área de Seguridad de Información garantizará la actualización periódica de las licencias de software de soporte a la seguridad de información en las computadoras y computadoras portátiles, de conformidad con la disponibilidad presupuestaria de JASEC.

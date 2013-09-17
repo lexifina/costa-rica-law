@@ -1,0 +1,1 @@
+Artículo 49.—Los usuarios que accedan a servicios de otras redes a través de una conexión habilitada por la institución, estarán sujetos a las normas que la institución receptora tenga estipuladas y las violaciones a las mismas serán sancionadas de acuerdo al reglamento de cada sitio, sin que ello implique responsabilidad para JASEC.

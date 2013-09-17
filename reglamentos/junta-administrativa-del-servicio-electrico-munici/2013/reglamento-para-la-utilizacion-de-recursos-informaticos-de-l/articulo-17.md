@@ -1,0 +1,1 @@
+Artículo 17.—Toda adquisición de software original y/o infraestructura informática para ser instalado en las computadoras y las computadoras portátiles, debe contar con la aprobación de la UEN de TI, del Proceso de Soporte Técnico y el área de Seguridad de Información conforme la estrategia informática de la Institución.

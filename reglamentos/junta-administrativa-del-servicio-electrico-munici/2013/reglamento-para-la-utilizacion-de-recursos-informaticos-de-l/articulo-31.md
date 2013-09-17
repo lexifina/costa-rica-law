@@ -1,0 +1,1 @@
+Artículo 31.—Las jefaturas de Procesos evitarán que se utilicen unidades de almacenamiento particulares en sus computadoras, si no han sido revisados previamente por el antivirus corporativo instalado y sus funciones así lo requieran. El uso de dispositivos removibles debe ser autorizado por el área de Seguridad de Información.

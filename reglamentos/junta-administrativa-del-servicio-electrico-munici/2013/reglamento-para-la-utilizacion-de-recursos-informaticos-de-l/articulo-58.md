@@ -1,0 +1,1 @@
+Artículo 58.—El funcionario de JASEC deberá mantener la confidencialidad de la información disponible en el sitio Intranet, asimismo, al igual que con el uso del correo electrónico y la red Internet, ningún acceso al sitio Intranet podrá ser utilizado contrario al ordenamiento jurídico o contra las normas comunes de la ética o para los fines distintos para los que fue creado.

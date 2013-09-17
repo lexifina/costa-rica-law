@@ -1,0 +1,1 @@
+Artículo 32.—Los particulares a quienes por alguna razón excepcional y específica que necesite usar el equipo de cómputo, deberán obtener el visto bueno por escrito de la jefatura inmediata respectiva o en su defecto el de la Gerencia y del área de Seguridad de Información.

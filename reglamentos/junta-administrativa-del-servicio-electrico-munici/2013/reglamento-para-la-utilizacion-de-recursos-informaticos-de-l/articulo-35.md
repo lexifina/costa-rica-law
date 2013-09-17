@@ -1,0 +1,1 @@
+Artículo 35.—Es obligación del Proceso de Soporte Técnico llevar un registro de control de los suministros, accesorios, partes o repuestos de cada equipo, la cual deberá ser actualizada cada vez que el usuario requiera nuevos suministros. Se debe realizar una revisión del inventario de equipo cada seis meses para verificar consistencia con los controles pertinentes.

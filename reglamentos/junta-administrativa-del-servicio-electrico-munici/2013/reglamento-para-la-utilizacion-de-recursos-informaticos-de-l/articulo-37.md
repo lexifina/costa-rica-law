@@ -1,0 +1,1 @@
+Artículo 37.—Cada persona a la que se le asigne una computadora, computadora portátil o netbook es responsable por la custodia y salvaguarda de su información, la cual deberá ser solo para las actividades de la Institución.

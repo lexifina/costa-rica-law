@@ -1,0 +1,5 @@
+Artículo 42.—Cada usuario tiene una dirección electrónica personal la cual estará habilitada mientras labore para la institución.
+Para poder acceder al correo electrónico es necesario digitar la clave de acceso, los usuarios serán los responsables por el uso de la clave y bajo ninguna circunstancia debe revelarse. Esta se deberá de cambiar periódicamente y cuando expire debe cambiarse de inmediato de conformidad con lo establecido en la Norma 6N04.
+Solo se instalará una cuenta por equipo.
+El jefe de la dependencia respectiva o el Proceso de Desarrollar Recursos Humanos informarán al Proceso de Soporte Técnico y al área de Seguridad de Información la persona que ha dejado o dejará de laborar en JASEC ya sea por traslado, renuncia, pensión, despido o muerte, para eliminarle la cuenta de correo electrónico.
+En caso de que un usuario esté disfrutando de sus vacaciones podrá acceder a su cuenta desde cualquier computadora fuera de la Institución, ingresando vía Internet siempre y cuando cumpla con la política relacionada con Teletrabajo.
