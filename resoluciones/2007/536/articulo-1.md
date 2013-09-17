@@ -314,7 +314,8 @@ Registro de información en el sistema SIBINET.
 Elaboración y seguimiento del Plan de Adquisiciones de los Fideicomisos.
 Adquisición de Bienes, suministros y servicios para brindar apoyo a todas las áreas de la institución
 Control del Registro de Proveedores
-Registro de la información en el sistema de CompraRed del Ministerio de Hacienda.
+Registro de la información en el sistema de Sistema Unificado Electrónico de Compras Públicas (*) del Ministerio de Hacienda.
+(*) (Modificada su denominación por el artículo 5° del decreto ejecutivo N° 37943 del 17 de setiembre del 2013, "Crea Sistema Unificado Electrónico de Compras Públicas como plataforma tecnológica de uso de la Administración Central para la tramitación de los procedimientos de contratación administrativa", anteriormente indicaba "CompraRed")
 Controlar el uso, mantenimiento y reparación de bienes.
 Llevar el control de combustible y kilometraje.
 Control de contratos de servicios generales y publicaciones institucionales.

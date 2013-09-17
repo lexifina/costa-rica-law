@@ -14,3 +14,4 @@ Aprueba Estructura Organizacional del Fondo Nacional de Financiamiento Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-18 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
