@@ -15,3 +15,4 @@ Reglamento para el funcionamiento de la Proveedur√≠a Institucional de la Comisi√
 | --- | --- | --- |
 | 1 | 2009-09-03 | la propia norma |
 | 2 | 2013-08-07 | Reglamento 8 (2013-08-07) |
+| 3 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
