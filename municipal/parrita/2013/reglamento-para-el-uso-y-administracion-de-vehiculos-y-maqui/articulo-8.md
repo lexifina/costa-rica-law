@@ -1,0 +1,1 @@
+Artículo 8º—Será responsabilidad del jerarca de la Municipalidad velar, para que conductores y usuarios observen las normas de control interno. Además, deberá existir un procedimiento para el manejo de comunicaciones sobre infracciones a la Ley de Tránsito.

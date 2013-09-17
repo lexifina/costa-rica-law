@@ -1,0 +1,1 @@
+Artículo 26.—Los recursos de la Ley de Simplificación y Eficiencia Tributaria, Nº 8114, son recursos específicos, que han de ser transferidos a cada municipalidad en un 60% con base en la extensión de la red vial de cada cantón y un 40% conforme al Índice de Desarrollo Social Cantonal (IDS) entendiéndose que los cantones con menor IDS recibirán proporcionalmente mayores recursos.

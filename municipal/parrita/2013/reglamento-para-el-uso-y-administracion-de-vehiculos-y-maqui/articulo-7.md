@@ -1,0 +1,1 @@
+Artículo 7º—La Administración designará a un funcionario para que lleve un control minucioso de las herramientas, repuesto y piezas complementarias con que cuenta cada una de los vehículos y maquinaria propiedad de la Municipalidad.

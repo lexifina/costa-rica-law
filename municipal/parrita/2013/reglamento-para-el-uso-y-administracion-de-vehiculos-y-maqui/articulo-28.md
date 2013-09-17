@@ -1,0 +1,1 @@
+Artículo 28.—Todos los funcionarios autorizados para conducir vehículos y maquinaria, deberán portar la licencia de conducir, debidamente actualizada, y deberá coincidir con el tipo de vehículos o equipo a utilizar.

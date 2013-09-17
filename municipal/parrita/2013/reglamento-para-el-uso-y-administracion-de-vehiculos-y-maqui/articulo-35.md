@@ -1,0 +1,1 @@
+Artículo 35.—El Jefe o Encargado del departamento será el responsable por el cumplimiento de las funciones de vehículos y maquinaria, o de su correspondiente supervisión en caso de asignación de dichas funciones.

@@ -1,0 +1,1 @@
+Artículo 17.—Será labor del Alcalde municipal o los Jefes de departamento, realizar la debida supervisión y evaluación permanente de los procedimientos que se están ejecutando y cerciorarse que estos se cumplan como se ha establecido. Asimismo pasar el informe correspondiente de dichos procesos al Concejo Municipal, en los meses de marzo, junio, setiembre y diciembre.

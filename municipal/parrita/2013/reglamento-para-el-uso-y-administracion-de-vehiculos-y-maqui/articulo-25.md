@@ -1,0 +1,1 @@
+Artículo 25.—La Ley de Simplificación y Eficiencia Tributaria N° 8114, asigna preferencia para la ejecución de obras con esos recursos, a la modalidad participativa, disponiendo que el destino de los recursos lo propondrá, a cada Concejo Municipal la Junta Vial Cantonal.

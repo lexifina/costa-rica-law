@@ -1,0 +1,1 @@
+Artículo 23.—La conducción de maquinaria y vehículos, estará a cargo de los choferes autorizados y acreditados para ello por las jefaturas de los departamentos o en su defecto por la alcaldía municipal.

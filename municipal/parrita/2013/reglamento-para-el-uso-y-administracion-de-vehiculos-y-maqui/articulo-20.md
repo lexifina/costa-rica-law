@@ -1,0 +1,1 @@
+Artículo 20.—Los vehículos de uso administrativo y la maquinaria deberán contar con una autorización escrita para circular fuera del cantón de Parrita, la cual deberá indicar, fecha, chofer autorizado, la ruta, motivación, será obligatorio portarla la autorización en todo momento, y será extendida por el Encargado del departamento que tenga el vehículo a cargo.
