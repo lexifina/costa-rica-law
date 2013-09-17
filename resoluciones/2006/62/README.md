@@ -14,3 +14,4 @@ Reforma Directrices para el registro, la validación y el uso de la información
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-04 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
