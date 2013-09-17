@@ -14,3 +14,4 @@ Reforma Reglamento para el funcionamiento de las proveedurías institucionales d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-28 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
