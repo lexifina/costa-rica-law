@@ -14,3 +14,4 @@ Reglamento al título IV Dispositivos de emergencia, de la Ley General del Servi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-07 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
