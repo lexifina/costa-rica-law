@@ -14,3 +14,4 @@ Comunica el deber de uso por parte de las Instituciones del Sector Público del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-26 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
