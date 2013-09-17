@@ -14,3 +14,4 @@ Guía para la Elaboración de los Programas de Gestión Ambiental en el Sector P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-23 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
