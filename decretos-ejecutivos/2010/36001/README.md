@@ -15,3 +15,4 @@ Reglamento Orgánico del Servicio Nacional de Salud Animal
 | --- | --- | --- |
 | 1 | 2010-05-28 | la propia norma |
 | 2 | 2011-03-14 | Decreto Ejecutivo 36571 (2011-03-14) |
+| 3 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
