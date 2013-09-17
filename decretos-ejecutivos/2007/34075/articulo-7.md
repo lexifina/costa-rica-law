@@ -1,1 +1,0 @@
-Artículo 7º—Al Nivel Ejecutor le corresponde implementar las estrategias, planes, políticas, programas y proyectos establecidos en cada uno de los procesos estratégicos del Nivel Director, tanto en el área académica como en el área administrativa.

@@ -1,3 +1,0 @@
-CAPÍTULO VII
-De las instancias de coordinación
-Artículo 126.—El Despacho del Ministro contará con un Consejo Asesor, de carácter consultivo, presidido por el Ministro de Educación Pública. Estará integrado además por el Viceministro Académico de Educación Pública, el Viceministro Administrativo de Educación Pública, el Director de Planificación Institucional, el Director de Asuntos Jurídicos y los Directores, tanto del área académica como administrativa. A solicitud del Ministro, podrá participar temporalmente cualquier otro funcionario que sea requerido, para la atención y discusión de temas específicos.

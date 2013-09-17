@@ -1,1 +1,0 @@
-Transitorio IV.—A partir de la entrada en vigencia del presente decreto la Oficina de Planificación Institucional coordinará con cada una de las Direcciones, tanto del Nivel Asesor como Director, la formulación de un manual de procedimientos para orientar, en cada caso, la prestación de los servicios bajo la responsabilidad de cada una de las dependencias.

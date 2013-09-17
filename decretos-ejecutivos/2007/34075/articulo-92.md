@@ -1,1 +1,0 @@
-Artículo 92.—La Dirección de Informática de Gestión es la instancia responsable de orientar, promover y generar la transferencia y adaptación de las tecnologías de la informática y de las telecomunicaciones al Ministerio de Educación Pública y al sistema educativo nacional en el ámbito de la informática de gestión.

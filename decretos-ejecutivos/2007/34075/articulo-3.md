@@ -1,1 +1,0 @@
-Artículo 3º—Para el cumplimiento de su cometido el Ministerio de Educación Pública agrupa sus funciones en cuatro niveles de actividad y responsabilidad, según se indica: Nivel Político, Nivel Asesor, Nivel Director y Nivel Ejecutor.
