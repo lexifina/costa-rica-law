@@ -1,1 +1,0 @@
-Artículo 12.—Será responsabilidad de los potenciales proveedores inscritos mantener actualizados sus datos en el Registro de Proveedores. La falta de actualización no acarreará ninguna responsabilidad para el Tribunal Registral Administrativo.

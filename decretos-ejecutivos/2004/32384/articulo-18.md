@@ -1,1 +1,0 @@
-Artículo 18.—La Comisión de Recomendaciones podrá hacerse asesorar por técnicos o especialistas en la materia de que se trate; el criterio de dichos asesores deberá constar por escrito, pudiendo la Comisión de Recomendaciones, en forma fundada, apartarse de dichos criterios en la recomendación que planteen.

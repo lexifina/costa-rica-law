@@ -1,1 +1,0 @@
-Artículo 38.—Tratándose de un objeto contractual especializado o técnico, la Dirección Administrativa o el Tribunal Registral Administrativo, según corresponda, podrá requerir colaboración de otras dependencias o instituciones estatales, o en su defecto contratar los servicios de un profesional externo para que ejecute dicha labor de fiscalización.

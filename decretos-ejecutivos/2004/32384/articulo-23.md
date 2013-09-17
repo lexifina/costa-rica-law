@@ -1,1 +1,0 @@
-Artículo 23.—Una vez terminado el plan anual de adquisiciones de bienes y servicios por parte de la Dirección Administrativa, éste será remitido al Tribunal Registral Administrativo para su aprobación.

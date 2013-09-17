@@ -1,1 +1,0 @@
-Artículo 3º—Las funciones, potestades y responsabilidades de la Dirección Administrativa en funciones de proveeduría institucional, serán las estipuladas en este reglamento, en el Reglamento N° 30640 del 30 de agosto del 2002, denominado “Reglamento para las Proveedurías Institucionales de los Ministerios de Gobierno”, sus reformas, y demás disposiciones administrativas.

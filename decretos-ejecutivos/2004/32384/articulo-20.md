@@ -1,1 +1,0 @@
-Artículo 20.—En lo no regulado respecto a este órgano colegiado, la Comisión se regirá por lo dispuesto en el Capítulo Tercero del Título Segundo del Libro Primero de a Ley General de la Administración Pública.

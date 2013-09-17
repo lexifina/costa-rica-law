@@ -1,1 +1,0 @@
-Artículo 17.—Conformará quórum la presencia de tres de sus miembros. Los acuerdos se tomarán por mayoría simple. En caso de empate en la votación, decidirá el Presidente de la comisión con voto de calidad.

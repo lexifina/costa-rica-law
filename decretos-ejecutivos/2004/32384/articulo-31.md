@@ -1,1 +1,0 @@
-Artículo 31.—La Dirección Administrativa procederá, mediante certificación, a acreditar que dispone o llegará a disponer de los recursos humanos e infraestructura administrativa para verificar el fiel cumplimiento del objeto de la contratación.

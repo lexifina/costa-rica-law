@@ -1,1 +1,0 @@
-Artículo 19.—Las recomendaciones emitidas por la Comisión no serán vinculantes, por su naturaleza asesora, pero para apartarse de éstas el Tribunal Registral Administrativo deberá fundamentar las razones para ello.
