@@ -14,3 +14,4 @@ Obligación de informar sobre adjudicaciones a las PYMES en Sistema Unificado El
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-06 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
