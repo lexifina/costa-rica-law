@@ -14,3 +14,4 @@ Reforma Integral Directrices para el registro, la validación y el uso de la inf
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-01 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
