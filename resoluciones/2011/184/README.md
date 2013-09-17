@@ -14,3 +14,4 @@ Publica “Mensaje de Solicitud de Autorización de Operaciones para Inventario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-06 | la propia norma |
+| 2 | 2013-09-17 | Resolución 293 (2013-09-17) |
