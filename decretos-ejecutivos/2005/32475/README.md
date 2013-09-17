@@ -23,3 +23,4 @@ Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio
 | 8 | 2010-03-26 | Decreto Ejecutivo 35966 (2010-03-26) |
 | 9 | 2010-05-10 | Decreto Ejecutivo 36053 (2010-05-10) |
 | 10 | 2012-11-02 | Decreto Ejecutivo 37457 (2012-11-02) |
+| 11 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
