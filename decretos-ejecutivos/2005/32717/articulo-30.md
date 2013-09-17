@@ -1,1 +1,0 @@
-Artículo 30.—Responsabilidad de la información. Los usuarios del certificado digital no podrán cederlo bajo ninguna circunstancia y se hacen plenamente responsables de los documentos que envíen firmados digitalmente con el dispositivo que para tal efecto se haya emitido, de conformidad con lo establecido en el Reglamento de Creación la Autoridad Certificadora.

@@ -1,2 +1,0 @@
-Artículo 15.—Funcionario responsable. Todo funcionario que realice transacciones en CompraRED, será responsable de velar por la veracidad y confiabilidad de la información que emite, así como también revisar diariamente el sistema, para verificar si se recibieron gestiones electrónicas.
-En ambos casos el sistema registrará todos los movimientos o transacciones de las gestiones electrónicas que se reciban y que se emitan por los usuarios.

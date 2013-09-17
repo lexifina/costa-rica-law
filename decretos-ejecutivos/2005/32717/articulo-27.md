@@ -1,1 +1,0 @@
-Artículo 27.—Contenido de los certificados digitales. Los certificados digitales deberán ser emitidos por el Área de la Autoridad de Registro correspondiente debidamente acreditada, deberá responder a formatos y estándares reconocidos internacionalmente, fijados por la Autoridad Certificadora y deberán contener la información que define su reglamento.

@@ -1,1 +1,0 @@
-Artículo 13.—Comunicación del plan de adquisiciones. Todas las instituciones que utilicen CompraRED, deberán divulgar el respectivo programa de adquisiciones y sus modificaciones en el sistema, todo sin perjuicio de cumplir con las publicaciones en el Diario Oficial o la divulgación que se le deba dar en diarios de circulación nacional que sean exigidas por la normativa vigente.

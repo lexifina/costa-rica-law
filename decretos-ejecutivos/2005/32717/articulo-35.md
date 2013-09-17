@@ -1,3 +1,0 @@
-CAPÍTULO V
-Subasta electrónica
-Artículo 35.—Ámbito de aplicación de la subasta a la baja electrónica en tiempo real. La subasta a la baja electrónica en tiempo real, se utilizará para la adquisición de productos genéricos definidos por la Administración como tales. Para emplear esta modalidad de contratación, la Administración Central deberá utilizar los bienes incluidos en el catálogo de productos genéricos elaborado por la Dirección General de Administración de Bienes y Contratación Administrativa, cuando la Administración considere que, con esta modalidad, puede satisfacer de mejor forma el interés público.
