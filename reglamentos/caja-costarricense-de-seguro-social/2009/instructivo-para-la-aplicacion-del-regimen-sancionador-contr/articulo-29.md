@@ -9,7 +9,8 @@ b. Deben acreditarse copia de las principales actuaciones que supongan el antece
 • orden de inicio de ejecución del contrato
 • informes remitidos por el administrador del contrato o las diferentes instancias que participan en la ejecución y fiscalización de la misma y que acrediten la falta que supone el procedimiento que se instaura
 • orden de suspensión de la ejecución cuando se ha evidenciado la necesidad de iniciar procedimientos por incumplimiento o cualquier otro supuesto normativo que así lo sustente
-• informe reciente de sanciones impuestas a dicho proveedor según los registros institucionales y de CompraRED
+• informe reciente de sanciones impuestas a dicho proveedor según los registros institucionales y de Sistema Unificado Electrónico de Compras Públicas (*)
+(*) (Modificada su denominación por el artículo 5° del decreto ejecutivo N° 37943 del 17 de setiembre del 2013, "Crea Sistema Unificado Electrónico de Compras Públicas como plataforma tecnológica de uso de la Administración Central para la tramitación de los procedimientos de contratación administrativa", anteriormente indicaba "CompraRed")
 • acto administrativo que instruye al órgano director
 • traslado de cargos y la notificación respectiva
 • descargo del contratista
