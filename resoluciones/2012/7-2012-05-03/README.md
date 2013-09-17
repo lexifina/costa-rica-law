@@ -14,3 +14,4 @@ Deja sin efecto resoluciones RES-DGH-018-2011, RES-DGH-016-2011, RES-DGH-014-201
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-05 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
