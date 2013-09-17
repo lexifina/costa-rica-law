@@ -14,3 +14,4 @@ Reglamento del Registro de Proveedores de la Municipalidad de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-06 | la propia norma |
+| 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
