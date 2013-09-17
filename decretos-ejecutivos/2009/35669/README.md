@@ -16,3 +16,4 @@ Reglamento Orgánico del Ministerio de Ambiente y Energía
 | 1 | 2010-01-06 | la propia norma |
 | 2 | 2011-01-24 | Decreto Ejecutivo 36437 (2011-01-24) |
 | 3 | 2012-06-25 | Ley 9046 |
+| 4 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
