@@ -5,6 +5,27 @@ SUPERINTENDENCIA DE TELECOMUNICACIONES
 2. Segunda etapa: comprende del 1º de julio del 2011 al 30 de setiembre del 2011. Durante esta etapa el Instituto Costarricense de Electricidad (ICE) y demás operadores deberán mantener un máximo de ciento trece (113) horas de tarifa plena por semana y un mínimo de cincuenta y cinco (55) horas de tarifa reducida por semana. Estas horas de tarifas plenas y reducidas podrán ser distribuidas a criterio y conveniencia del ICE y demás operadores durante los siete días de la semana, incluyendo días feriados, tomando como parámetro el uso eficiente de su infraestructura de red.
 3. Tercera etapa: comprender del 1º de octubre del 2011 al 31 de diciembre del 2011. Durante esta etapa el Instituto Costarricense de Electricidad (ICE) y demás operadores deberán mantener un máximo de ciento cuarenta y uno (141) horas de tarifa plena por semana y un mínimo de veintisiete (27) horas de tarifa reducida por semana. Estas horas de tarifas plenas y reducidas podrán ser distribuidas a criterio y conveniencia del ICE y demás operadores durante los siete días de la semana, incluyendo días feriados, tomando como parámetro el uso eficiente de su infraestructura de red.
 4. Cuarta etapa: a partir del primero de enero del 2012 se flexibiliza por completo la hora de tarifa reducida de la banda horaria, dejando a discreción del ICE y demás operadores la aplicación de tarifas menores en ciertos periodos, acordes al desempeño del mercado de telecomunicaciones y al comportamiento de la cartera de usuarios finales de cada operador. Asimismo, la SUTEL efectuará revisiones de los resultados de este proceso de flexibilización gradual de la banda horaria con el fin de aplicar los ajustes y medidas necesarias...")
+(Nota de Sinalevi: Mediante el punto XVIII de la resolución N° RCS 268-2013 “Establece ajuste tarifario para el servicio de telefonía fija”, aprobada en sesión ordinaria N° 050-2013 del 18 de setiembre del 2013 se establece que: la variación en la tarifa de acceso afecta a los siguientes servicios establecidos en el Pliego Tarifario
+a. Tarifa básica residencial.
+b. Tarifa básica telefonía IP.
+c. Tarifa básica comercial.
+d. Troncal PBX.
+e. Acceso básico NT residencial (RDSI).)
+(Nota de Sinalevi: Mediante el punto XIX de la resolución N° RCS 268-2013 “Establece ajuste tarifario para el servicio de telefonía fija”, aprobada en sesión ordinaria N° 050-2013 del 18 de setiembre del 2013 se establece que: “…la variación en la tarifa del minuto con origen nacional fijo y destino nacional fijo afecta a los siguientes servicios establecidos en el Pliego Tarifario
+a. Minuto convencional pleno.
+b. Minuto convencional reducido.
+c. Tarifa de convencional a casillero de voz.
+d. Tarifa RDSI, y de RDSI a convencional y viceversa
+e. Tarifa IP, y de IP a convencional y viceversa.
+f. Las siguientes tarifas vinculadas al servicio de telefonía pública, de conformidad con la nomenclatura establecida en el pliego tarifario:
+i. Tarifas que la UEN de telefonía pública paga a la UEN de gestión de red y mantenimiento
+ii. Centros productivos
+iii. Rurales, después de 106 minutos
+iv. Públicos de Tarjeta )
+(Nota de Sinalevi: Mediante el punto XX de la resolución N° RCS 268-2013 “Establece ajuste tarifario para el servicio de telefonía fija”, aprobada en sesión ordinaria N° 050-2013 del 18 de setiembre del 2013 se establece que: “…la variación en la tarifa del minuto con origen nacional fijo y destino nacional móvil afecta a los siguientes servicios establecidos en el Pliego Tarifarioa. Minuto convencional pleno.
+a. Minuto convencional a celular.
+b. Minuto IP a celular.
+c. Minuto de RDSI a celular. )
 RCS-615-2009.—Resolución del Consejo de la Superintendencia de Telecomunicaciones.—San José, a las 10:45 horas del 18 de diciembre del 2009.
 “Revocación total de la Resolución RSC-001-2009 de las 18:00 horas del 28 de enero de 2009 y fijación de tarifas máximas”.
 Resultando:
