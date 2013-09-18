@@ -1,0 +1,2 @@
+ARTICULO 14. De la solicitud de embargo:
+Cuando la sentencia haya cobrado firmeza, el abogado externo procederá de inmediato a solicitar al juzgado el embargo de los bienes susceptibles, de conformidad con los estudios regístrales de bienes que realice. En caso de personas físicas, el abogado externo gestionará ante el Área de Cobro Judicial respectiva o la Sucursal, según corresponda, el estudio de salarios correspondiente.

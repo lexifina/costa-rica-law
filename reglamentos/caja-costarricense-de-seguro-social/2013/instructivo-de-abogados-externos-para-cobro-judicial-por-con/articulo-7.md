@@ -1,0 +1,2 @@
+ARTICULO 7. De la Contratación:
+En caso de ser afirmativa la resolución de la designación, la contratación la comunicará la Gerencia División Financiera por escrito al abogado externo, quien dentro de los siguientes cinco días hábiles, deberá contestarle por escrito su aceptación, conocimiento y conformidad con las normas establecidas en este Instructivo. En caso de no contestar por escrito su aceptación, no será contratado.

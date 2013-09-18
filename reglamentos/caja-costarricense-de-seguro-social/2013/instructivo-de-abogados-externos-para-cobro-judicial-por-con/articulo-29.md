@@ -1,0 +1,2 @@
+ARTICULO 29. Del cobro de los honorarios:
+Los abogados externos no recibirán ni cobrarán honorarios, costas procesales o cualquier otra suma directamente del demandado, ya que ese trámite le corresponderá únicamente a la CCSS. Para ello se confeccionará los respectivos comprobantes de ingreso, de forma quelas sumas de honorarios sean depositadas en la cuenta contable establecida por la Contabilidad General y en la cuenta individual de cada abogado externo (según el número de cédula de cada uno de ellos).

@@ -1,0 +1,5 @@
+ARTICULO 22. De la adjudicación de un tercero:
+En caso de que un tercero resultare adjudicatario del bien rematado, el abogado externo gestionará ante la autoridad judicial en un plazo no mayor de diez días hábiles posteriores a la firmeza del remate, el dinero que le corresponde a la CCSS, lo anterior con el fin de que el Juzgado proceda a girar a la Institución dicha suma.
+El abogado externo deberá informar al Área de Cobro Judicial respectiva o a la Sucursal correspondiente sobre los dineros que el juzgado debe girar a la institución, lo anterior con el fin de que dicha unidad de cobro indique el nombre y calidades del funcionario autorizado para el retiro del cheque.
+Una vez comunicado al abogado el funcionario autorizado para el retiro del cheque, éste elaborará un escrito al Juzgado donde se indique las calidades del funcionario autorizado por la Institución para el retiro del cheque correspondiente.
+El Área de Cobro Judicial respectiva o la Sucursal según sea el caso, será responsable de retirar y gestionar el cheque para que el mismo sea ingresado a las arcas de la Institución y aplicado a la deuda correspondiente.

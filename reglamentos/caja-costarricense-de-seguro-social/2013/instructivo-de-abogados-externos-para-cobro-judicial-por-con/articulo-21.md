@@ -1,0 +1,3 @@
+ARTICULO 21. De la protocolización de piezas:
+A partir de la fecha en que se celebre la subasta donde se adjudiquen bienes a favor de la Caja, el abogado externo comunicará la firmeza del remate al Área de Cobro Judicial respectiva o a la Sucursal correspondiente para que se coordine la asignación del Notario institucional que gestionará la protocolización de piezas, a efecto de proceder con la inscripción respectiva y con el fin de que el Abogado Externo comunique al Juzgado el notario autorizado por la Caja para dicho trámite.
+El Área de Cobro Judicial respectiva o la Sucursal -según corresponda-, brindará seguimiento para asegurar la inscripción de dicho bien a favor de la Caja.
