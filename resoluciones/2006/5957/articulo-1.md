@@ -8,6 +8,21 @@ EL REGULADOR GENERAL, RESUELVE:
 I.—Proceder a la publicación del pliego tarifario aplicable a los servicios que brinda el Sistema Nacional de Telecomunicaciones, cuyo detalle es el siguiente:
 PLIEGO TARIFARIO SERVICIOS DE TELECOMUNICACIONES
 TELEFONÍA FIJA CONVENCIONAL
+(Nota de Sinalevi: Mediante el punto XIX de la resolución N° RCS 268-2013 “Establece ajuste tarifario para el servicio de telefonía fija”, aprobada en sesión ordinaria N° 050-2013 del 18 de setiembre del 2013 se establece que: “…la variación en la tarifa del minuto con origen nacional fijo y destino nacional fijo afecta a los siguientes servicios establecidos en el Pliego Tarifario
+a. Minuto convencional pleno.
+b. Minuto convencional reducido.
+c. Tarifa de convencional a casillero de voz.
+d. Tarifa RDSI, y de RDSI a convencional y viceversa
+e. Tarifa IP, y de IP a convencional y viceversa.
+f. Las siguientes tarifas vinculadas al servicio de telefonía pública, de conformidad con la nomenclatura establecida en el pliego tarifario:
+i. Tarifas que la UEN de telefonía pública paga a la UEN de gestión de red y mantenimiento
+ii. Centros productivos
+iii. Rurales, después de 106 minutos
+iv. Públicos de Tarjeta )
+(Nota de Sinalevi: Mediante el punto XX de la resolución N° RCS 268-2013 “Establece ajuste tarifario para el servicio de telefonía fija”, aprobada en sesión ordinaria N° 050-2013 del 18 de setiembre del 2013 se establece que: “…la variación en la tarifa del minuto con origen nacional fijo y destino nacional móvil afecta a los siguientes servicios establecidos en el Pliego Tarifarioa. Minuto convencional pleno.
+a. Minuto convencional a celular.
+b. Minuto IP a celular.
+c. Minuto de RDSI a celular. )
 TRÁMITES
 Cambios |
 Cambio de acometida exterior a solicitud del abonado | ¢3 000,00
@@ -83,6 +98,12 @@ Servicio Telefónico Temporal | ¢18 500,00 (3) (5) | | |
 | ¢8 235,00 (4) (5) | | | Pleno ¢4,10/minuto Reducido ¢2,00/minuto
 Telefonía Virtual | | ¢600,00 (6) | ¢600,00 (6) |
 EXCEDENTE DE INSTALACIÓN: Se rige por las disposiciones de las tarifas para la construcción e instalación de extensiones de red de telecomunicaciones.
+(Nota de Sinalevi: Mediante el punto XVIII de la resolución N° RCS 268-2013 “Establece ajuste tarifario para el servicio de telefonía fija”, aprobada en sesión ordinaria N° 050-2013 del 18 de setiembre del 2013 se establece que: la variación en la tarifa de acceso afecta a los siguientes servicios establecidos en el Pliego Tarifario
+a. Tarifa básica residencial.
+b. Tarifa básica telefonía IP.
+c. Tarifa básica comercial.
+d. Troncal PBX.
+e. Acceso básico NT residencial (RDSI).)
 (1) La tarifa básica de los servicios indicados en esta tabla dispone de 160 minutos de consumo e incluye sin cargos adicionales para el cliente que así lo solicite, los servicios de transferencia de llamadas, indicación de llamada en espera y casillero de voz básico.
 (2) Dentro de esta categoría no se asignarán servicios a personas jurídicas, tampoco se asignarán a personas físicas para el ejercicio de una actividad comercial.
 (3) Corresponde al cargo para líneas alámbricas. En el caso de que el servicio telefónico se brinde con equipo multilínea inalámbrico fijo, el cargo aplicable será de ¢18 500,00 por línea, siempre que no exista caja interna o acometida permanente en el inmueble a servir, caso contrario se deberá aplicar un cargo de ¢8 235,00. Las condiciones mínimas de prestación de este servicio por medio de líneas inalámbricas serán utilizando los codificadores de voz a una velocidad de 32 Kbps por línea y no más de cuatro servicios por equipo. El ICE deberá instalar este equipo en la vía pública, caso contrario se requerirá de un estudio especial para la definición de la tarifa correspondiente.

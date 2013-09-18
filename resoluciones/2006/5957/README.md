@@ -16,3 +16,4 @@ Pliego tarifario aplicable a los servicios que brinda el Sistema Nacional de Tel
 | 1 | 2006-09-25 | la propia norma |
 | 2 | 2011-03-16 | Resolución 61 (2011-03-16) |
 | 3 | 2012-09-05 | Resolución 105 (2012-09-05) |
+| 4 | 2013-09-18 | Resolución 268 (2013-09-18) |
