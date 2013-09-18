@@ -1,0 +1,4 @@
+Artículo 12.—Los líderes, coordinadores y demás personas que ejercen supervisión sobre los trabajadores, serán responsables de ejecutar de manera inmediata al conocimiento del hecho o infracción, las siguientes labores:
+a) Someter a conocimiento del médico de empresa los casos de los trabajadores que presenten problemas con el consumo de tabaco para la intervención correspondiente.
+b) Registrar las denuncias sobre el irrespeto de este reglamento y remitirlas al Proceso Desarrollar Recursos Humanos.
+c) Conformar el expediente administrativo del trabajador infractor, en caso de reincidencia, en consulta con el Proceso Desarrollar Recursos Humanos, a efecto de aplicar el régimen disciplinario establecido en el Código de Trabajo, Ley General de Administración Pública y el Reglamento Autónomo de Trabajo de JASEC.

@@ -1,0 +1,1 @@
+Artículo 4º—Condiciones Generales. La aplicación del presente reglamento, estará orientada a garantizar que JASEC sea una empresa 100% libre de humo de tabaco, mediante la prevención y el control del consumo del tabaco por parte de sus trabajadores y visitantes en las instalaciones de la Empresa.

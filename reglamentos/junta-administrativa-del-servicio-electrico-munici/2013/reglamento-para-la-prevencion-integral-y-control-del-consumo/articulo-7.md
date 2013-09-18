@@ -1,0 +1,1 @@
+Artículo 7º—De la intervención. La intervención será responsabilidad directa del médico de empresa, y tiene como propósito ofrecer al trabajador alternativas para el tratamiento a su adicción, y de prevenir problemas de salud y seguridad en los trabajadores. Comprende la detección precoz de problemas de consumo de tabaco y tratamiento para los trabajadores que fuman.

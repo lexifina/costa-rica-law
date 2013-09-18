@@ -1,0 +1,1 @@
+Artículo 2º—Alcances del Reglamento. Las normas contenidas en este reglamento serán aplicables a todos los trabajadores de la Empresa, incluyendo a miembros de la Junta Directiva, sin distingo de categoría o de puesto, y para los visitantes: contratistas, proveedores, clientes y demás visitantes en cuanto se encuentren dentro de las instalaciones de la Empresa.
