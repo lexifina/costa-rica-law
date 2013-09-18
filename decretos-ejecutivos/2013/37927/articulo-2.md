@@ -1,0 +1,1 @@
+Artículo 2º—En la medida en que sus posibilidades legales, materiales y presupuestarias se los permitan, las instituciones y entes públicos podrán apoyar las gestiones, programas, proyectos y actividades que la Fundación Liceo de Costa Rica realice en torno a fomentar y promover los proyectos relacionados con la Fundación en el cumplimiento de sus objetivos.
