@@ -30,3 +30,4 @@ Políticas Generales para la Administración de Pasivos
 | 15 | 2013-04-03 | Reglamento 5589 (2013-04-03) |
 | 16 | 2013-04-03 | Reglamento 5589 (2013-04-03) |
 | 17 | 2013-08-14 | Reglamento 5609 (2013-08-14) |
+| 18 | 2013-09-18 | Reglamento 5614 (2013-09-18) |
