@@ -1,0 +1,1 @@
+Artículo 2º—Eliminación de nomenclatura. Elimínese del Reglamento N° 11, publicado en La Gaceta N° 185 de 27 de setiembre de 2011, denominado “Reglamento para el Pago de Extrafunciones en el Teatro Nacional de Costa Rica” el cargo denominado “Director Técnico”.
