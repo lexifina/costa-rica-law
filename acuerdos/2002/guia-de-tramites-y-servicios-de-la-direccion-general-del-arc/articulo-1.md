@@ -126,20 +126,25 @@ Trámite:
 - Recibir a funcionarios del Departamento Servicios Archivísticos Externos, quienes diagnosticarán el estado organizacional y administrativo de los documentos para crear u organizar los archivos administrativos.
 - Determinar la factibilidad, recibir e implementar el informe de Asesoría.
 - Para archivos privados y particulares integrados al Sistema Nacional de Archivos, deben indicar en la Solicitud: fechas extremas, resumen del contenido y cantidad de documentos.
-9. Servicio público: Selección documental.
+9. Servicio público: Valoración Documental.
 Requisitos:
-- Carta con el aval del Comité Institucional de Selección y eliminación de Documentos (en el caso de las instituciones públicas)
+_Oficio de solicitud dirigido a la Comisión Nacional de Selección y Eliminación de Documentos (CNSED), suscrito por el presidente o secretario del Comité Institucional de Selección y Eliminación de Documentos (CISED) respectivo, el cual debe contener la conformación actualizada del CISED que aprobó el trámite, miembros que lo conforman, cargo y representación que ostentan. Además, debe indicarse el número de sesión y fecha en que este órgano colegiado aprobó dichas tablas.
+_Presentar las tablas de plazos de conservación de documentos o las solicitudes de valoración parcial en el formulario oficial aprobado por La Comisión Nacional de Selección y Eliminación de Documentos (Formulario 1), con los requisitos de forma y fondo que se establecen en los instructivos correspondientes, los cuales se publicaran en la página web institucional: www.archivonacional. go.cr. Asimismo, las tablas de plazos y valoraciones parciales se deben remitir dos originales en soporte papel debidamente foliados y firmados en cada uno de sus páginas por el superior de la Unidad Administrativa respectiva y el presidente o secretario del CISED y una copia en soporte electrónico (se debe remitir al correo electrónico de la CNSED ). En el caso de tablas de plazos de conservación de documentos y valoraciones parciales de unidades homólogas, estos instrumentos deben ser firmados por el superior jerárquico de las unidades homólogas productoras de los documentos o en su defecto el superior jerárquico de la entidad.
 Sustento legal:
-- Ley del Sistema Nacional de Archivos: artículo 31, 33 y 35, Reglamento a la Ley del Sistema Nacional de Archivos: artículo 38, 120 y 131-136 y Acuerdo de la Comisión Nacional de Selección y eliminación de Documentos, sesión N° 4-97 del 18 de junio de 1997.
+_Ley del Sistema Nacional de Archivos Nº 7202: Artículos 31-38
+_Reglamento a la Ley del Sistema Nacional de Archivos, Decreto Nº 24023: Artículo 38, 117-140.
+_Resolución CNSED-01-2009 de 18 de marzo de 2009. Publicada en La Gaceta N º 101 de 27 de mayo de 2009.
+_Resolución CNSED-02-2009 de 05 de agosto de 2009. Publicada en La Gaceta N ° 248 de 22 de diciembre 2009
+_Resolución CNSED-03-2009 de 30 de setiembre de 2009. Publicada en La Gaceta N ° 248 de 22 de diciembre 2009
+_Resolución CNSED-01-2011 de 09 de agosto de 2011. Publicada en La Gaceta N ° 184 de 26 de setiembre de 2011.
+_Resolución CNSED-01-2012 de 12 de setiembre de 2012. Publicada en La Gaceta N ° 244, Alcance N° 206 de 18 de diciembre de 2012.
 Trámite:
-- Remitir solicitud escrita a la Comisión Nacional de Selección y Eliminación de Documentos avalada por el Comité Institucional de Selección y Eliminación de Documentos, la solicitud debe contener:
-ü Nombre y funciones de la oficina productora y receptora de documentos y demás datos enumerados en el instructivo N° 2 (Formulario N° 16)
-- Recibir el informe de “Valoración parcial de documentos” o la “Tabla de Plazo de Conservación Documental” (Formulario N° 17) debidamente aprobada por la Comisión Nacional de Selección y Eliminación de documentos e implementarla.
-- Levantar un acta de eliminación de documentos.
-- Transformar los documentos en material en no legible.
-Instructivos:
-N° 2 Instructivo para la solicitud de valoración parcial de documentos.
-N° 3 Instructivo para la elaboración de Tablas de Plazos de Conservación de Documentos.
+_Presentar el oficio de solicitud y los documentos especificados en los requisitos para el trámite de valoración documental
+_Complementar, aclarar, corregir la solicitud de acuerdo con los requerimientos solicitados por la Comisión Nacional de Selección y Eliminación de Documentos en el plazo indicado (en caso de que las solicitudes no sean corregidas a conformidad serán archivadas sin tramitar)
+_El Jefe o Encargado del Archivo Central de la entidad solicitante deberá asistir a las sesiones de la Comisión Nacional de Selección y Eliminación de Documentos, en que se analicen solicitudes planteadas por esa entidad
+_Recibir el acuerdo en firme de la Comisión Nacional de Selección y Eliminación de Documentos
+_Los documentos que no sean declarados con valor científico cultural pueden eliminarse una vez que haya finalizado su vigencia administrativa y legal, de conformidad con lo estipulado por el Comité Institucional de Selección y Eliminación de Documentos. Se levantará un acta de eliminación en la cual quede constancia de los documentos que serán eliminados. Los documentos que se declaren con valor científico cultural deberán conservarse permanentemente.
+(Así reformado el punto 9) anteior mediante publicación en La Gaceta N° 179 del 18 de setiembre del 2013)
 10. Servicio público: Inspección de archivos.
 Trámite:
 - Remitir solicitud escrita a la Dirección General del Archivo Nacional exponiendo el problema de fondo. La Institución procederá también de oficio.
@@ -486,7 +491,7 @@ USO DE DOCUMENTOS NOTARIALES
 5. No ingerir alimentos.
 6. Se prohíben las escenas contra la moral y buenas costumbres.
 7. Se facilitarán documentos hasta las 15,30 horas.
-Instructivo No 2
+(*)Instructivo No 2
 INSTRUCTIVO PARA LA SOLICITUD DE VALORACIÓN PARCIAL DE DOCUMENTOS
 1) La solicitud de valoración debe dirigirse a la Comisión Nacional de Selección y Eliminación de Documentos, cuya sede se encuentra el Archivo Nacional.
 2) La solicitud debe estar avalada por el Comité Institucional Selección y Eliminación de Documentos.
@@ -524,7 +529,8 @@ El Comité Institucional de Selección revisa las listas y asigna definitivament
 El Comité Institucional remite original y copia, con las observaciones pertinentes, a la Comisión Nacional de Selección, la cual mediante un informe de selección señala los documentos de conservación permanente.
 De acuerdo con el artículo 35 "Todas las instituciones a que se refiere el artículo 2° de la presente ley, incluida la Dirección General del Archivo Nacional, estarán obligadas a solicitar el criterio de Comisión Nacional de Selección y Eliminación de Documentos, cada vez que necesiten eliminar algún tipo documental. También deberán considerar las resoluciones que al respecto emita la Comisión, las que serán comunicadas por escrito, por medio del Director General del Archivo Nacional." Por su parte, el artículo 36 dice "Será penado con seis meses a tres años de prisión, el funcionario que autorice o lleve a cabo la eliminación de documentos con trasgresión de lo que dispone el artículo anterior, salvo que el hecho configure un delito sancionado con una pena mayor.
 MODELO: Ver formulario No 16.
-Instructivo N° 3
+(*)(Nota de Sinalevi: Mediante publicación en La Gaceta N° 179 del 18 de setiembre del 2013 se reformó el servicio público N° 9: Valoración Documental)
+(*)Instructivo N° 3
 INSTRUCTIVO PARA LA ELABORACIÓN DE "TABLAS DE PLAZOS DE CONSERVACIÓN DE DOCUMENTOS”
 INTRODUCCIÓN
 La selección documental es una función importante en la administración actual, pues permite tanto la fijación de plazos de vida para los documentos, como la eliminación de estos cuando han cumplido su vigencia legal y administrativa y además carecen de valor científico cultural.
@@ -640,6 +646,7 @@ El nivel de la estructura orgánica en que se produjeron o recibieron.
 El hecho de si los documentos, o la información en ellos contenida está duplicada.
 Si tienen relevancia para la explicación de fenómenos sociales o culturales en general.
 El volumen de producción. En casos de documentación homogénea y voluminosa, se puede recurrir a una muestra.
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 179 del 18 de setiembre del 2013 se reformó el servicio público N° 9: Valoración Documental)
 Instructivo No 4
 TRANSFERENCIA DE DOCUMENTOS
 La transferencia de los documentos producidos y recibidos por los despachos de la Presidencia de la República y de los ministros de Estado al Archivo Nacional, se realiza de acuerdo con las regulaciones contempladas en el artículo 53 de la Ley 7202 del Sistema Nacional de Archivos del 24 de octubre de 1990, el cual establece que:

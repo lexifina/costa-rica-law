@@ -14,3 +14,4 @@ Guía de trámites y servicios de la Dirección General del Archivo Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-10 | la propia norma |
+| 2 | 2013-09-18 | Acuerdo 0 (2013-09-18) |

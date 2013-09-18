@@ -106,8 +106,10 @@ e) Cuando se trate de una solicitud de documento en soporte microfilmado, el usu
 [imagen]
 [imagen]
 [imagen]
+(Así reformado el formulario anterior mediante publicación en La Gaceta N° 179 del 18 de setiembre del 2013)
 [imagen]
 [imagen]
+(Así reformado el formulario anterior mediante publicación en La Gaceta N° 179 del 18 de setiembre del 2013)
 [imagen]
 [imagen]
 [imagen]
