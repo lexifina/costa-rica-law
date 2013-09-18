@@ -1,0 +1,1 @@
+Artículo 9°—El encargado de la caja chica preparará el reembolso correspondiente en los formularios diseñados al efecto, indicando el número de factura, fecha, monto, dirección, departamento o sección que efectuó el gasto, número de la solicitud de caja chica, el detalle del servicio, el bien adquirido y la partida presupuestaria afectada.

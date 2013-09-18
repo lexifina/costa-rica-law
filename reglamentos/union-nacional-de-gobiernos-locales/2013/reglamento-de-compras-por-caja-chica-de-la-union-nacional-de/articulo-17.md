@@ -1,0 +1,1 @@
+Artículo 17.—Para la liquidación del adelanto que sea reintegrado sin ser utilizado por el funcionario que lo solicitó, indicará en el sistema las razones que tuvo para no efectuar la compra y esa justificación deberá contar con el visto bueno de la jefatura de sección, departamento o dirección correspondiente.
