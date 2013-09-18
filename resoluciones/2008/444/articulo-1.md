@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE ADUANAS
+(Esta norma fue dejada sin efecto mediante resolución N° RES-DGA-295-2013 del 18 de setiembre del 2013, "Establece nueva forma de transmisión y recepción electrónica del FAUCA")
 Resolución DGA-444-2008.—Dirección General de Aduanas.—San José, a las diez horas con cincuenta minutos del día diez de octubre del año dos mil ocho.
 Considerando:
 I.—Que con la resolución Nº 18-96 (COMRIEDRE III) del 19 de marzo de 1996 se aprueba el formato del formulario aduanero establecido en el artículo V y cuyo modelo aparece en el anexo “B” del Tratado General de Integración Económica Centroamericana y que tiene como objetivos fundamentales, servir de instrumento para la facilitación del libre comercio establecido por el Tratado General y hacer las veces de solicitud de despacho y de certificado de origen.

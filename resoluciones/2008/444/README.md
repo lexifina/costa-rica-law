@@ -14,3 +14,4 @@ Establece la implementación en las aduanas de los régimenes exportación y ree
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-03 | la propia norma |
+| 2 | 2013-09-18 | Resolución 295 (2013-09-18) |
