@@ -1,0 +1,3 @@
+INSTITUTO NACIONAL DE APRENDIZAJE
+Derogatoria
+Con fundamento en el acuerdo AC-160-2013-JD, tomado por la Junta Directiva del Instituto Nacional de Aprendizaje en la sesión ordinaria N° 4590 del 5 de agosto del 2013, se deroga el “Capítulo XI, Disposiciones transitorias, el cual contiene los Transitorios I y II”, del Reglamento de Ayudas Económicas a Personas Participantes en Servicios de Capacitación y Formación Profesional del Instituto Nacional de Aprendizaje, publicado en La Gaceta N° 125 del lunes 1° de julio del 2013, aprobado por la Junta Directiva del Instituto Nacional de Aprendizaje mediante el acuerdo AC-109-2013-JD, en la sesión ordinaria N° 4582 del 10 de junio del 2013.
