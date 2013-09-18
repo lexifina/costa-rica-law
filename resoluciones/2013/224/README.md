@@ -14,3 +14,4 @@ Aclara resolución RCS-169-2013, "Establece las disposiciones de acatamiento obl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-16 | la propia norma |
+| 2 | 2013-09-18 | Resolución 271 (2013-09-18) |
