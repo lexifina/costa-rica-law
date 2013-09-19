@@ -1,0 +1,4 @@
+Artículo 42.—Con relación a lo dispuesto en el artículo 26 de la Ley de Regulación y Comercialización de Bebidas con contenido Alcohólico, Ley 9047; la Municipalidad de Matina, a través del Concejo Municipal, cuando así lo considere oportuno y conveniente, con al menos quince días de anticipación, adoptará el acuerdo respectivo en aras de regular la comercialización de bebidas alcohólicas, los días que se celebren actos cívicos, desfiles u otras actividades cantonales, dicho acto deberá ser publicado en el Diario Oficial La Gaceta y se divulgará de manera oportuna entre los comerciantes del Cantón, por los medios que designe la Municipalidad; en caso de que no se adopte ningún acuerdo, se entenderá, que no existe restricción alguna.
+Rige a partir de su publicación.
+Aprobado en sesión ordinaria número 259 del 03 de junio del 2013.
+Matina, 2 de setiembre del 2013.
