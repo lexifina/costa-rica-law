@@ -1,0 +1,1 @@
+Artículo 10.—De las influencias. Los miembros del Colegio, en su ejercicio profesional, no ofrecerán ni aceptarán remuneraciones indebidas o ilegales. Asimismo, se abstendrán de cualquier acción que sea considerada tráfico de influencias, tendiente a la obtención de beneficios, ventajas o privilegios.

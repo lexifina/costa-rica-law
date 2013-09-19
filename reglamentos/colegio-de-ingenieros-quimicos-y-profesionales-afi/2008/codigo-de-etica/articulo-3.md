@@ -1,0 +1,1 @@
+Artículo 3º—De la actualización profesional. Los miembros del Colegio se deben comprometer a mantenerse actualizados en las disciplinas que aplican en su profesión y a su perfeccionamiento profesional y procurar la difusión de los conocimientos adquiridos entre sus colegas.

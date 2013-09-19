@@ -1,0 +1,1 @@
+Artículo 18.—De la experimentación y servicios no necesarios. Los miembros del Colegio no someterán a su cliente o empleador a la aplicación de materiales o métodos en experimentación, sin su previo y total conocimiento y aprobación, ni le recomendarán servicios no necesarios.

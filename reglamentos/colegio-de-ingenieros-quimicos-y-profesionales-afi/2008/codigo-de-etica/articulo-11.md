@@ -1,0 +1,1 @@
+Artículo 11.—Del trato justo. Los miembros del Colegio se regirán por los principios de justicia, respeto y lealtad en su relación con sus clientes y patronos; asimismo tratarán con respeto y honestidad a los demás profesionales y trabajadores con quienes tengan relación.

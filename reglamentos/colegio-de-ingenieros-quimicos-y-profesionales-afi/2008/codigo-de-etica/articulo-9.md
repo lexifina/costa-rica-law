@@ -1,0 +1,1 @@
+Artículo 9º—De las obras. Los miembros del Colegio no deben encargarse de obras, sin que se hayan efectuado los estudios técnicos indispensables para su correcta ejecución, o cuando para la realización de las mismas se hayan señalado plazos incompatibles con la buena práctica profesional

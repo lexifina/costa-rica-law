@@ -1,0 +1,1 @@
+Artículo 8º—De la no dispensa. Ningún miembro del Colegio debe dispensar, por amistad, conveniencia o coacción, el cumplimiento de disposiciones obligatorias, cuando la misión de su cargo sea hacerlas respetar y cumplir.

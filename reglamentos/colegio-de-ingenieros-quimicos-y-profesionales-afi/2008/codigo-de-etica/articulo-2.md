@@ -1,0 +1,1 @@
+Artículo 2º—De la legalidad. Los miembros incorporados al Colegio, como ciudadanos, deben cumplir con la Constitución y la legislación nacional, y en el ejercicio profesional, deben cumplir y velar porque se respeten y cumplan la Ley Orgánica del Colegio de Ingenieros Químicos y Profesionales Afines de Costa Rica, su reglamento y normativa afín.

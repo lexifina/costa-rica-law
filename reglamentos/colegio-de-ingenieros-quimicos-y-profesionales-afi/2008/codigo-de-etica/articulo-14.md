@@ -1,0 +1,1 @@
+Artículo 14.—De la no colegiatura. Los miembros del Colegio no deben permitir o facilitar la contratación de profesionales nacionales que no sean miembros activos, eméritos ni extranjeros no incorporados al Colegio, excepto en aquellos casos de inopia demostrada.

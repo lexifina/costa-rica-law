@@ -1,0 +1,1 @@
+Artículo 4º—De la protección del ambiente. Los miembros del Colegio realizarán las acciones correspondientes, en su actividad profesional, para proteger el medio ambiente, utilizar los recursos naturales en forma sostenible y mitigar cualquier impacto que origine deterioro ambiental.
