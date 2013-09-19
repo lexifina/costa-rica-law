@@ -1,0 +1,3 @@
+Artículo 2°—Los jerarcas de los Ministerios de Gobierno e Instituciones Adscritas indicadas en el artículo anterior, podrán modificar la jornada de trabajo de algunos o todos los funcionarios de la institución, de manera que laboren 10 horas al día de manera continua durante 4 días por semana hasta completar las 40 horas semanales.
+Durante los días martes, miércoles y jueves, todos los funcionarios prestarán sus servicios y el cuarto día de la jornada semanal podrá ser lunes o viernes, procurando en todo momento la mejor prestación, la eficiencia y la continuidad del servicio público durante los cinco días de la semana.
+La implementación de la jornada acumulativa deberá iniciarse en un plazo no mayor a dos semanas a partir de la publicación de este Decreto.
