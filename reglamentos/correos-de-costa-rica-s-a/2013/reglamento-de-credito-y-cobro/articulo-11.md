@@ -1,0 +1,1 @@
+Artículo 11.—La Gerencia de Administración y Finanzas remitirá mensualmente la lista de clientes que no cumplen el monto mínimo del crédito formalizado. La Gerencia Comercial analizará e informará el cierre del crédito.

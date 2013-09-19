@@ -1,0 +1,7 @@
+CAPÍTULO IV
+De los intereses moratorios y del arreglo de pago
+Artículo 15.—Para las obligaciones vencidas se establece el pago de intereses moratorios de un 4% (cuatro por ciento) mensual, para las empresas privadas, el cual se tiene por aceptado por el cliente al momento de formalizar el crédito.
+Para las obligaciones vencidas, en el caso de los Tres Poderes de la República, Tribunal Supremo de Elecciones, así como las Instituciones Descentralizadas y Empresas Publicas sujetas a la aplicación de la Ley de Contratación Administrativa N° 7494, se establece un pago de interés moratorio igual a la tasa básica pasiva que establece el Banco Central de Costa Rica para operaciones en moneda nacional y la tasa “prime rate” para operaciones en dólares americanos.
+Si el cliente entrare mora, deberá cancelar el principal más los intereses moratorios o bien llegar a un arreglo de pago para poder continuar con su condición de sujeto de crédito. Si el cliente incumpliere las condiciones antes citadas, perderá su condición de sujeto de crédito como tal.
+Como condición para optar por el arreglo de pago el cliente deberá cancelar los intereses moratorios y cumplir con los abonos pactados sobre el principal. El no pago de una cuota dará por resuelto el contrato y se suspenderá en forma inmediata la prestación del servicio.
+Para conservar su condición como sujeto de crédito, ademas de cumplir con el arreglo de pago deberá mantenerse al día con el pago de sus obligaciones.

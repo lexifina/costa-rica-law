@@ -1,0 +1,1 @@
+Artículo 2°—El presente Reglamento establece los procedimientos requerimientos, garantías, sanciones y en general todos los aspectos relacionados con el otorgamiento del crédito y la gestión de cobro.
