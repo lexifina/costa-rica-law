@@ -1,0 +1,11 @@
+CIRCULAR Nº 165-2013
+ASUNTO: Inclusión del “Protocolo de la Gestión Pericial” en el Banco de Buenas Prácticas.
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión Nº 84-13, celebrada el 28 de agosto de 2013, artículo XL, acordó incluir el “Protocolo de la Gestión Pericial” ´en el Banco de Buenas Prácticas, con la observación de que puede ser ajustado de acuerdo a las características y necesidades propias de los diferentes despachos y oficinas judiciales. Con estas prácticas se insta a utilizar estas experiencias que coadyuvan a mejorar el servicio de la administración de justicia.
+Asimismo se hace de su conocimiento que los despachos judiciales y los peritos de las distintas oficinas del Departamento de Trabajo Social y Psicología, deben sincronizar en forma estricta las agendas de señalamientos de audiencias, lo anterior con el objetivo de que siempre se cuente con la presencia de las personas peritos y autoridades judiciales competentes.
+La Jueza Coordinadora o el Juez Coordinador y la Administración Regional de cada circuito judicial donde se implemente el Protocolo de Gestión Pericial, deben velar para que siempre se cuente con el equipo tecnológico requerido para efectuar las audiencias orales y que éste se encuentre en perfectas condiciones, en virtud de la información que debe resguardarse como prueba documental.
+El personal profesional del Juzgado de Familia del Segundo Circuito Judicial de San José, encargado de la elaboración del Protocolo de Gestión Pericial, en coordinación con la Escuela Judicial, debe desarrollar un Plan de Capacitación dirigido al personal de los Juzgados de Familia y peritos de las diferentes oficinas del Departamento de Trabajo Social y Psicología.
+El personal profesional del Juzgado de Familia del Segundo Circuito Judicial de San José encargado de la elaboración del Protocolo de Gestión Pericial, en coordinación con las profesionales y los profesionales del Departamento de Trabajo Social y Psicología, deberán mantener el protocolo en constante revisión, a la luz de los cambios y variantes que se presenten en el diario accionar del personal involucrado en su aplicación.
+Protocolo de la Gestión Pericial.doc
+San José, 20 de setiembre de 2013.
