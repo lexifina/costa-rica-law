@@ -17,6 +17,6 @@ Por tanto,
 Decretan:
 Creación de la Comisión Mixta para la Implementación de la Televisión Digital
 Terrestre en Costa Rica
-Artículo 1°.- De la creación de la Comisión. Créase una Comisión Mixta para la Implementación de la Televisión Digital Terrestre en Costa Rica con el fin de:
-Proponer al Ministro Rector de Telecomunicaciones los mecanismos, procesos, normas y políticas públicas en los ámbitos técnicos, económicos y sociales durante la transición de los servicios de televisión analógica a digital terrestre.
-Dar seguimiento al cumplimiento de sus recomendaciones, durante el periodo de transición e implementación de la televisión digital en Costa Rica.
+Artículo 1º—De la creación de la comisión. Créase una Comisión Mixta para la Implementación de la Televisión Digital Terrestre en Costa Rica con el fin de:
+Formular recomendaciones al Ministro Rector de Telecomunicaciones en cuanto a mecanismos, procesos, normas y políticas públicas en los ámbitos técnicos, económicos y sociales durante la transición de los servicios de televisión analógica a digital terrestre.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38144 del 20 de setiembre del 2013)

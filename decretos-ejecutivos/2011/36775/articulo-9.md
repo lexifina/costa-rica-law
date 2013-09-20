@@ -1,2 +1,1 @@
-Artículo 9°.- Vigencia. El presente Decreto rige a partir de la fecha de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República. — San José, a los seis días del mes de setiembre del año dos mil once.
+Artículo 9°.- Vigencia. (El texto del presente artículo debe consultarse en el numeral 8°, toda vez que por el artículo 2° del decreto ejecutivo N° 38144 del 20 de setiembre del 2013, se ordenó derogar el artículo 4° original y correr la numeración de los artículos posteriores)

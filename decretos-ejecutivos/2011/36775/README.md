@@ -14,3 +14,4 @@ Creación de la Comisión Mixta para la Implementación de la Televisión Digita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-21 | la propia norma |
+| 2 | 2013-09-20 | Decreto Ejecutivo 38144 (2013-09-20) |
