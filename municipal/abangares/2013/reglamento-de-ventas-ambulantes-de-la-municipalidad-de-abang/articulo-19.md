@@ -1,0 +1,1 @@
+Artículo 19.—Las resoluciones de la Municipalidad de Abangares que ordenen la cancelación de la licencia por falta de pago estarán sujetas al recurso de revocatoria ante el mismo funcionario que dicto el acto y apelación ante el Alcalde Municipal.

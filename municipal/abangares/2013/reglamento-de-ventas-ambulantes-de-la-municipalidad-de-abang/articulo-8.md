@@ -1,0 +1,1 @@
+Artículo 8º—Las ventas ambulantes funcionarán en vías públicas o zonas Públicas. Quedan a salvo las prohibiciones establecidas por otras leyes y aquellos lugares que atenten contra la seguridad del peatón y el tránsito de vehículos.

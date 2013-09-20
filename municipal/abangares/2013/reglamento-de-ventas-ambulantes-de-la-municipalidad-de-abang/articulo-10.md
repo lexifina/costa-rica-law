@@ -1,0 +1,1 @@
+Artículo 10.—No podrán ubicarse ventas ambulantes, obstruyendo puertas o ventanas de instituciones dedicadas a la salud, educación, en cementerios o en esquinas donde converjan zonas de seguridad peatonal, en la línea de ascenso de las paradas de autobuses, en los frentes de las Iglesias, y en las entradas y ventanas del comercio local.

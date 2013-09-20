@@ -1,0 +1,1 @@
+Artículo 13.—Los vendedores ambulantes no podrán permanecer estacionados en el mismo sitio, salvo el tiempo necesario que requiera el cliente para realizar su compra que no podrá exceder de quince minutos.

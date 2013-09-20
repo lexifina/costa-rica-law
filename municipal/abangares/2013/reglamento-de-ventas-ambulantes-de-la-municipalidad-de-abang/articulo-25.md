@@ -1,0 +1,1 @@
+Artículo 25.—En cuanto a los alimentos que se ofrezcan al consumidor serán con la mayor higiene, y solamente se podrán vender alimentos no procesados, y que sean permitidos por la Ley General de Salud.

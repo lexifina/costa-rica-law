@@ -1,0 +1,1 @@
+Artículo 3º—La licencia deberá ser solicitada por escrito adjuntando el respectivo timbre Municipal, cumpliendo con los requisitos que para tal efecto estipula el artículo 4° de este reglamento. En la solicitud deberá indicar que tipo de actividad lucrativa ofrecerá.

@@ -1,0 +1,1 @@
+Artículo 26.—Para efectos de garantizar una buena salud la Municipalidad de Abangares mediante sus inspectores generales velará porque los productos se presenten limpios y en ningún caso podrán estar en contacto directo con el suelo.
