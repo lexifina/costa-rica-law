@@ -183,20 +183,20 @@ K.02 | Biopsia | ¢ 20.935.00
 K.03 | Oficialización de ensayo de laboratorio (por ensayo) | ¢ 31.070.00
 K.04 | Auditoría a laboratorios (por día o fracción) | ¢ 72.0320.00
 KA.01 | Determinación de residuos de organoclorados | ¢ 25.050.00
-KA.02 | Determinación de residuos organofosforados | ¢ 38.530.00
-KA.03 | Prueba de metales pesados (para 1 muestra) | ¢ 15.920.00
-KA.03.01 | Prueba de metales pesados (para 1 muestra) acreditada por ECA | ¢ 18.580.00
-KA.04 | Determinación de residuos de hormonas | ¢ 65.870.00
-KA.05 | Determinación de especie animal | ¢15.320.00
-KA.06 | Determinación de residuos de ivermectina | ¢ 41.530.00
-KA.07 | Determinación de residuos de benzimidazoles | ¢ 54.065.00
-KA.08 | Pruebas de frescura a pescado y mariscos/prueba (total 4:Nessler, Eber, pH, bases volátiles) | ¢ 10.350.00
-KA.09 | Determinación de residuos de cloranfenicol | ¢ 24.085.00
-KA.10 | Prueba de residuos de antibiótico en leche | ¢ 19.975.00
-KA.11 | Determinación de residuos o contaminantes químicos por hplc ms/ms | ¢ 169.450.00
-KA.12 | Prueba de bisulfitos | ¢ 29.845.00
+KA.02 | Determinación de residuos de plaguicidas por cromatografía de gases (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 38.530.00
+KA.03 | Prueba de metales pesados (para un metal) por absorción atómica (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 15.920.00
+KA.03.01 | Prueba de metales pesados (para un metal) por absorción atómica acreditada por ECA (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 18.580.00
+KA.04 | Determinación de residuos de estilbenos por cromatografía de gases (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 65.870.00
+KA.05 | Determinación de especie animal por difusión en agar gel (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢15.320.00
+KA.06 | Determinación de residuos de Avermectinas (Lactonas macrociclicas) por HPLC (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 41.530.00
+KA.07 | Determinación de residuos de benzimidazoles por HPLC (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 54.065.00
+KA.08 | Determinación de bases volátiles nitrogenadas totales, BVNT (frescura) por microtitulación en placas CONWAY (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 10.350.00
+KA.09 | Determinación de residuos de cloranfenicol por ELISA (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 24.085.00
+KA.10 | Prueba de residuos de antibiótico en leche por prueba de tamizaje (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 19.975.00
+KA.11 | Determinación de residuos o contaminantes químicos por Cromatografía líquida (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 169.450.00
+KA.12 | Determinación de Sulfitos por destilación (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 29.845.00
 KA.13 | Determinación de histamina (prueba de tamizaje) | ↕9 29.150.00
-KA.14 | Determinación de biotoxinas marinas mediante bioensayo | ¢ 57.600.00
+KA.14 | Determinación de toxinas paralizantes (PSP) por bioensayos (Marea Roja) (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 57.600.00
 KB.01 | Contenido de formol | ¢ 14.600.00
 KB.02 | Titulación viral en huevos embrionados | ¢ 23.500.00
 KB.03 | Titulación viral en ratones | ¢ 158.664.00
@@ -215,10 +215,10 @@ KB.15 | Biopotencias (antibióticos) | ¢ 47.415.00
 KC.01 | Determinación de Escherichia coli | ¢ 10.185.00
 KC.02 | Determinación de mesófilos aerobios | ¢ 9.250.00
 KC.03 | Determinación de Vibrio cholerae | ¢ 14.170.00
-KC.04 | Determinación Streptococcus faecalis | ¢ 13.130.00
+KC.04 | Determinación de Enterococcus faecalis (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 13.130.00
 KC.05 | Determinación de Bacillus cereus | ¢ 13.175
-KC.06 | Determinación de Clostridium botulinum | ¢ 10.220.00
-KC.07 | Determinación de Listeria spp | ¢ 15.180.00
+KC.06 | Determinación de Clostridium perfringens (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 10.220.00
+KC.07 | Determinación de Listeria monocytogenes (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 15.180.00
 KC.08 | Prueba microbiológica de residuos de antibiótico en carne | ¢ 9.700.00
 KC.09 | Prueba microbiológica de residuos de sulfas en carne | ¢ 11.805.00
 KC.10 | Determinación de coliformes fecales en agua | ¢ 10.125.00
@@ -233,12 +233,12 @@ KC.17 | Determinación de termófilos aerobios en enlatados | ¢ 10.005
 KC.18 | Determinación de mesófilos anaerobios en enlatados | ¢ 11.950.00
 KC.19 | Determinación de termófilos anaerobios en enlatados | ¢ 10.530.00
 KC.20 | Tipificación de Salmonella spp de muestras de alimentos | ¢ 49.820.00
-KC.21 | Determinación de Listeria spp por Bax | ¢ 36.610.00
+KC.21 | Determinación de Listeria monocytogenes por Bax (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 36.610.00
 KC.22 | Determinación de Salmonella spp por Bax | ¢ 31.080.00
 KC.23 | Determinación de Escherichia coli 0157:h7 por Bax | ¢ 54.185.00
-KC.24 | Determinación de grupo B y D para Salmonella spp | ¢ 7.245.00
+KC.24 | Diagnóstico de Salmonella spp grupo B y D (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 7.245.00
 KC.25 | Tipificación parcial de Salmonella spp | ¢ 31.345.00
-KC.26 | Tipificación de Salmonella spp (determinación serovariedad) | ¢ 49.820.00
+KC.26 | Tipificación de cepas de Salmonella spp (determinación serovariedad) (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 49.820.00
 KD.01 | Estudio bacteriológico y antibiograma | ¢ 28.180.10
 KD.02 | Estudio de colmenas (determinación Varroa) | ¢ 2.000.00
 KD.02.01 | Estudio de colmenas (determinación Nosema) | ¢ 2.500.00
@@ -256,11 +256,11 @@ KE.02 | Lectura por cromatografía líquida de alta resolución (HPLC) para medi
 KE.03 | Lectura por cromatografía de gases (gc) para medicamentos | ¢ 53.635.00
 KE.04 | Lectura espectrofotometría uv-vis para medicamentos | ¢ 28.195.00
 KE.05 | Lectura espectrofotometría a-a para medicamentos | ¢ 31.655.00
-KE.06 | Lectura para volumen de medicamentos | ¢ 4.460.00
+KE.06 | Lectura para volumen y peso de medicamentos (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 4.460.00
 KE.07 | Lectura por titulación para medicamentos | ¢ 17.115.00
 KF.01 | Prueba de anillo en leche (Brucella spp) | ¢ 3.040.00
 KF.02 | Prueba diagnóstica de Brucella spp | ¢ 1.500.00
-KF.03 | Prueba Leptospira spp serología en animales (sueros pareados) | ¢ 15.000.00
+KF.03 | Prueba Serológica para el Diagnódtico de Leptospira (Así corregida la designación anterior mediante resolución N° SENASA-DG-R063-2013 del 23 de setiembre del 2013) | ¢ 15.000.00
 KF.04 | Cultivo Leptospira spp | ¢ 49.915.00
 KG.01 | Prueba de Inhibición de Hemaglutinación Aviar (por ave) | ¢ 3.485.00
 KG.02 | Monitoreo serológico de aves (por ave) | ¢ 2.550.00
