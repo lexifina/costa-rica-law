@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Rol de las instituciones públicas
+Las dependencias del sector público, en sus ámbitos de competencia y dentro del marco legal respectivo, deberán contribuir, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, con las actividades requeridas para la implementación y utilización del expediente digital único de salud, brindando un trato prioritario a las acciones relacionadas con dicho proyecto.

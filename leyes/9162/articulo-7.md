@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Financiamiento
+Para la ejecución de la presente ley deberán desarrollarse los mecanismos necesarios para garantizar la sostenibilidad financiera del proyecto de expediente digital en sus fases de preinversión, ejecución, puesta en marcha, operación, mantenimiento y desarrollo evolutivo. Las instituciones públicas y los poderes del Estado deberán apoyar a la Caja Costarricense de Seguro Social en la obtención de mecanismos de financiamiento interno o externos para la consecución de los fines de esta ley.
