@@ -1,0 +1,5 @@
+Artículo 81.—Garantías. Para asegurar el cumplimiento de los compromisos que adquiere el agente económico investigado, la COPROCOM podrá solicitar la rendición de una garantía, incluso de tipo económico a la orden del MEIC.
+En ningún caso el monto de la garantía será superior a la multa máxima prevista en el inciso j) del artículo 28 de la Ley.
+La COPROCOM determinará el lapso durante el cual se deben mantener las garantías ofrecidas, que no podrá ser mayor al establecido para el cumplimiento de las condiciones que se pretendan garantizar.
+En caso de incumplimiento comprobado de los compromisos asumidos, mediante procedimiento administrativo, si la garantía rendida es de tipo económico podrá ser ejecutada total o parcialmente para el pago de la multa que corresponda según el inciso j) antes referido.
+La resolución que tenga por demostrado el incumplimiento de un compromiso deberá dar audiencia por diez días hábiles a quien rindió la garantía indicando el monto por el que se estaría ejecutando, para que pueda ejercer su derecho de defensa.

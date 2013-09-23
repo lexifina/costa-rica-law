@@ -1,0 +1,1 @@
+Artículo 134.—Recibo de los bienes y ratificación de la venta. Salvo caso de error o prueba en contrario, cuando el comprador que haya dado aviso de rescisión reciba personalmente y con posterioridad al aviso los bienes comprados, se presumirá la definitiva ratificación del negocio, teniéndose el retracto por no puesto.

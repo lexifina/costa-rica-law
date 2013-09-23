@@ -1,0 +1,1 @@
+Artículo 244.—Remisión al Ministerio Público. En el caso de que el incumplimiento de alguna de las disposiciones incluidas en este capítulo, se presuma la existencia de un delito en perjuicio del consumidor, de conformidad con lo dispuesto en el artículo 63 de la Ley, la DAC procederá a remitir la documentación respectiva al Ministerio Público para su conocimiento y trámite.

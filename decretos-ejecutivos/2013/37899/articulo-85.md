@@ -1,0 +1,1 @@
+Artículo 85.—Recursos. Contra la resolución que decida si procede o no la terminación anticipada cabrá recurso de reconsideración, el cual deberá interponerse dentro de los tres días hábiles siguientes a su notificación.

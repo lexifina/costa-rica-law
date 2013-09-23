@@ -1,0 +1,2 @@
+Artículo 49.—Dispensa. La COPROCOM podrá dispensar del deber de aportar información, cuando mediante declaración jurada el administrado dé fe de que la información solicitada no está disponible, o aportarla implica un esfuerzo irracional.
+De demostrarse la falsedad de lo declarado, además de las responsabilidades penales que puedan caber, se aplicará la multa establecida en el inciso c) del artículo 28 de la Ley.

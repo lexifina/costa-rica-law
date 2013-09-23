@@ -1,0 +1,2 @@
+Artículo 177.—Suplencias. Sin perjuicio del derecho que tienen los miembros suplentes de asistir a todas las sesiones, cuando un miembro suplente sea llamado a sustituir a un propietario, deberá ser convocado de acuerdo a un rol que la comisión acuerde para ese efecto, al menos el día anterior a la celebración de la sesión.
+A los suplentes les corresponderá estar disponibles para asistir a sesión de conformidad con el rol acordado.

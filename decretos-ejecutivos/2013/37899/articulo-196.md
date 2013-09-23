@@ -1,0 +1,2 @@
+Artículo 196.—Responsabilidad objetiva. Si del bien o servicio se produjere un daño para el consumidor, responderán concurrentemente el productor, el importador, el distribuidor, el comercializador y, en general, todo aquél que haya puesto su marca o distintivo comercial en el bien o servicio.
+La responsabilidad contemplada en este artículo es objetiva, por lo que no se estará al grado de diligencia o negligencia con que hayan actuado los agentes señalados, sin perjuicio de las acciones de repetición que entre ellos correspondan.

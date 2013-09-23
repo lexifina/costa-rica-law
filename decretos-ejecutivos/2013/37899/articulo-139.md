@@ -1,0 +1,1 @@
+Artículo 139.—Sobre la cancelación del concierto o espectáculo. De presentarse una imposibilidad material para realizar el concierto o espectáculo según las condiciones esenciales originalmente informadas, se deberá proceder a la devolución inmediata de la totalidad de lo pagado por el consumidor por el boleto o tiquete de entrada.

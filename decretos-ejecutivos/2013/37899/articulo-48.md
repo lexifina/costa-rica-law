@@ -1,0 +1,1 @@
+Artículo 48.—Solicitud de información a terceros. La COPROCOM o su Unidad Técnica podrán solicitar a cualquier agente económico información técnica o legalmente necesaria para el análisis de las concentraciones sometidas a su conocimiento, para lo cual otorgará un plazo de cinco días hábiles.

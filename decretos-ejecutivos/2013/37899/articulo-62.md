@@ -1,0 +1,1 @@
+Artículo 62.—Desistimiento. Si una vez notificada la concentración y antes de que la COPROCOM emita la resolución final, las partes deciden suspender su ejecución o desisten de realizarla; el solicitante pondrá esta circunstancia inmediatamente en conocimiento de la COPROCOM, la que acordará sin más trámite el archivo definitivo del expediente.

@@ -1,0 +1,16 @@
+Artículo 141.—Deber de informar a la DAC. En caso de variación de condiciones contractuales o cancelación del concierto o espectáculo público, el comerciante que lo promovió, la empresa tiquetera o plataforma de venta de entradas y los puntos de venta, así como las entidades que fungen como adquirentes en la transacciones o compras realizadas mediante tarjetas de crédito o débito, deberán informar a la DAC, bajo declaración jurada autenticada por notario público autorizado, en el plazo de tres días naturales contados a partir de que se materialice alguno de los supuestos indicados anteriormente, sin requerir prevención o apercibimiento por parte de la DAC; al menos lo siguiente:
+Empresa Organizadora:
+a) Persona física o jurídica promotora u organizadora del espectáculo, nombre de su (s) representante (s) legal (es), medios de contacto y lugar para recibir notificaciones.
+b) Nombre de la (s) empresa (s) tiquetera (s), su (s) representante (s) legal (es) y medios de contacto.
+c) Nombre y medios de contacto, de las demás personas físicas y jurídicas involucradas en la producción del evento.
+d) El detalle del total de entradas vendidas y el nombre completo de los compradores, así como el medio de pago utilizado.
+e) Desglose completo de la devolución de los importes de las entradas pagadas en efectivo, indicando en cada caso el nombre de cada comprador, la cantidad de entradas adquiridas, el lugar de compra, el monto de la devolución.
+f) En el supuesto de que al momento de la presentación de la declaración jurada, aún resten montos por devolver, exponer las razones para ello.
+Empresa Tiquetera, plataforma de venta y puntos de venta:
+a) Nombre de la tiquetera, plataforma de venta o punto de venta y de su (s) representante (s) legal(es), medios de contacto y lugar para recibir notificaciones.
+b) Persona física o jurídica con la que se contrató la prestación de servicios para el evento cancelado, nombre de su (s) representante (s) legal (es) y medios de contacto.
+c) El desglose completo de la cantidad de entradas o tiquetes vendidos, el medio utilizado para su venta directa o por medio de tarjeta de crédito o débito, el nombre de todos los compradores afectados, la cantidad de entradas adquirida por cada uno, el medio de compra utilizado, el monto de cada venta y el total de la taquilla colocada o vendida. Para el caso de pagos mediante tarjeta de crédito y débito, el nombre y medios de contacto de la entidad o entidades que fungieron como adquirentes, en el procesamiento de las transacciones.
+Entidad o entidades financieras que fungen como adquirentes:
+a) Nombre de la entidad o entidades financieras que fungen como adquirentes en el procesamiento de las transacciones y de su (s) representante (s) legal (es), medios de contacto y lugar para recibir notificaciones.
+b) Persona física o jurídica con la que se contrató la prestación de servicios para el evento cancelado, nombre de su (s) representante (s) legal (es) y medios de contacto.
+c) El desglose completo de la cantidad de entradas o tiquetes pagados mediante tarjetas de débito o crédito especificando en cada caso el nombre del tarjetahabiente, el nombre de la entidad emisora de la tarjeta de crédito o débito, el monto de la transacción y la fecha en que el contracargo fue efectuado de oficio.

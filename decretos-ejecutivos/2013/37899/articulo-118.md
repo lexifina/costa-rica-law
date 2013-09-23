@@ -1,0 +1,1 @@
+Artículo 118.—Rectificación de la oferta, la promoción y la publicidad. Cuando existan incumplimientos a las exigencias previstas en este reglamento, el proveedor estará obligado a rectificar la publicidad, costearla y divulgar la información correcta u omitida, por el mismo medio y forma antes empleados.

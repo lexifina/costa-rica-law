@@ -1,0 +1,2 @@
+Artículo 142.—Sobre la responsabilidad. La responsabilidad prevista en el artículo 35 de la Ley, aplicará tanto al productor u organizador, la empresa tiquetera o plataforma de venta de entradas, los puntos de venta, y a las entidades adquirentes.
+La responsabilidad contemplada en este artículo es objetiva, por lo que no se estará al grado de diligencia o negligencia con que hayan actuado los agentes señalados, sin perjuicio de las acciones de repetición que entre ellos correspondan.

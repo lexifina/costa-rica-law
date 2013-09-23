@@ -1,0 +1,4 @@
+Artículo 55.—Concentraciones realizadas para evitar la salida del mercado. A modo de excepción, la COPROCOM autorizará sin necesidad de hacer el análisis de sus efectos, aquellas concentraciones que sean necesarias para evitar la salida del mercado de un agente económico o de una parte sustancial de sus activos productivos.
+Se podrá invocar esta excepción en cualquiera de los siguientes casos:
+a) Cuando el agente económico objeto de la adquisición se encuentre en una situación financiera que, en ausencia de la concentración, le hará abandonar el mercado en un corto plazo.
+b) Cuando, de previo a la concentración, se han realizado esfuerzos de buena fe por buscar otros compradores u otras alternativas distintas a la concentración notificada para lo cual podrá aportar los documentos en los que consten esas gestiones o declaración jurada.

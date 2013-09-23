@@ -1,0 +1,2 @@
+Artículo 77.—Segunda propuesta. En el supuesto del inciso c) del artículo 75 del presente reglamento, la COPROCOM concederá al solicitante un plazo de diez días hábiles a partir de la comunicación, para presentar una segunda propuesta que corrija o amplíe los compromisos con el fin de contrarrestar los posibles efectos anticompetitivos atribuibles a la conducta.
+En caso que no se presente la propuesta en el plazo indicado, se tendrá por desistida la solicitud de terminación anticipada.

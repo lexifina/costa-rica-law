@@ -1,0 +1,6 @@
+Artículo 59.—Condiciones. Las condiciones que establezca la COPROCOM dentro de este procedimiento deberán estar comprendidas dentro del inciso 3) del artículo 16 de la Ley. Deberán estar directamente vinculadas a la corrección de los efectos anticompetitivos previstos de la concentración y guardar proporción con lo que se pretenda corregir.
+Las condiciones podrán ser estructurales o de comportamiento. Las condiciones estructurales podrán imponerse en ausencia de otros remedios de comportamiento de eficacia equivalente o cuando, a pesar de su existencia resulten más gravosos para el agente económico que el remedio estructural.
+La resolución que establezca las condiciones determinará además la forma y plazo en que los agentes económicos deberán demostrar a la COPROCOM su cumplimiento, sin perjuicio de sus facultades para verificarlo por otros medios.
+Cada agente económico será responsable del costo de implementación de las condiciones impuestas por la COPROCOM.
+La COPROCOM no podrá por medio de este procedimiento obligar a las partes a mejorar las condiciones de competencia de un mercado previas a la concentración.
+La extensión del plazo máximo establecido en el párrafo último del artículo 21 de la Ley, se realizará previa instrucción de un procedimiento administrativo.

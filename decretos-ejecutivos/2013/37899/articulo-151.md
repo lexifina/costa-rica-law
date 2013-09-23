@@ -1,0 +1,1 @@
+Artículo 151.—Consulta a la CNC. La UTA resolverá aquellas cuestiones previas surgidas durante el curso del procedimiento y que le pongan fin, debiendo elevar la consulta de inmediato a la CNC, de conformidad con lo dispuesto en el artículo 292 de la LGAP para su conocimiento y resolución.

@@ -1,0 +1,1 @@
+Artículo 146.—Presentación de denuncias. Las denuncias por infracción a la Ley podrán ser presentadas ante la UTA de la CNC, o bien ante cualquier oficina del MEIC, quien deberá remitirla de inmediato y sin más trámite a la primera.

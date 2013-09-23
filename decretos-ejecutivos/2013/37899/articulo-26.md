@@ -1,0 +1,3 @@
+Artículo 26.—Vigencia. Las regulaciones estarán vigentes una vez se publique el Decreto Ejecutivo y deberán ser revisadas en períodos no superiores a seis meses, o en cualquier momento a solicitud de los interesados.
+Asimismo, la Administración podrá revisar el mecanismo de regulación y modificarlo cuando así lo considere pertinente.
+Tratándose del supuesto de condiciones monopólicas u oligopólicas, la solicitud de eliminación de la medida regulatoria por el cambio en la estructura del mercado deberá presentarse ante la COPROCOM, la cual dará audiencia por diez días hábiles a la Administración Pública y a los interesados. La Comisión emitirá una opinión y la hará llegar al Ministro para que decida si mantiene o elimina medida regulatoria.

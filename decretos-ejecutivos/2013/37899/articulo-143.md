@@ -1,0 +1,1 @@
+Artículo 143.—Remisión al Ministerio Público. Cuando por incumplimiento de lo dispuesto en esta sección, se entienda infringido el artículo 63 de la Ley, la DAC procederá a trasladar el caso al Ministerio Público para su conocimiento y trámite.

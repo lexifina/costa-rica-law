@@ -1,0 +1,1 @@
+Artículo 83.—Vigilancia del cumplimiento de los compromisos. La COPROCOM vigilará la ejecución y el cumplimiento de los compromisos previstos en este capítulo, pudiendo requerir del agente económico involucrado y de cualquier otro agente los reportes y documentación adicional necesaria para tal efecto.

@@ -1,0 +1,2 @@
+Artículo 72.—Documentación recabada. Los documentos recabados en la diligencia, cualquiera que sea su soporte material, se incorporarán al expediente junto con una constancia emitida por el funcionario encargado, acreditando que se trata de copias fieles y exactas de sus originales.
+Toda documentación e información recabada en la inspección se presumirá confidencial, e inicialmente se incorporará al expediente confidencial de la investigación, para luego ser clasificada como corresponda.

@@ -1,0 +1,2 @@
+Artículo 158.—Recurso contra el acto final. La resolución final de la Comisión tendrá recurso de reposición el cual deberá interponerse dentro del plazo de tres días hábiles contados a partir del día hábil siguiente a la comunicación del acto. De no interponerse recurso, o bien, resuelta la reposición, se tendrá por agotada la vía administrativa.
+Las resoluciones finales emanadas de la CNC podrán impugnarse directamente por ilegalidad, ante la Jurisdicción Contencioso Administrativa.

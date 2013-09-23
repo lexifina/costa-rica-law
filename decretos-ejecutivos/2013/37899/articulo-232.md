@@ -1,0 +1,1 @@
+Artículo 232.—Sobre el tipo de garantía. Se recibirán como garantías las de cumplimiento con plazo de un año emitidas por una entidad financiera y los seguros regulados por la Superintendencia de Seguros, los cuales deben ser renovados anualmente para las empresas que tenga planes pendientes. Estas garantías deberán ser rendidas a nombre del MEIC.

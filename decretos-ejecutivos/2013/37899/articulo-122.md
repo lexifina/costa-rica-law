@@ -1,0 +1,1 @@
+Artículo 122.—Sobre el uso de avales. Los logos avales que se incorporen en el empaque de un producto son una garantía de calidad, forman parte integral de la información que se brinda al consumidor, por lo que les son aplicables todas las disposiciones de la Ley y este reglamento.

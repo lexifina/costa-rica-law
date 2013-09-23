@@ -1,0 +1,2 @@
+Transitorio único
+Los planes de ventas a plazo de bienes o de ejecución futura de servicios, autorizados por el MEIC antes de la entrada en vigencia del presente decreto ejecutivo, deberán ajustarse a la presente regulación, en un plazo de seis meses, contados a partir de la publicación del presente reglamento en el Diario Oficial La Gaceta. De no cumplir con lo aquí dispuesto se procederá de conformidad con lo establecido en los artículos 238, 239 y 240, del presente reglamento.

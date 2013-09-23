@@ -1,0 +1,2 @@
+Artículo 66.—Confidencialidad. La existencia y el contenido de todas las actuaciones, documentación y acuerdos que se tomen con relación a la diligencia de inspección serán confidenciales al menos hasta el momento de su realización. Una vez finalizada la diligencia, la información será clasificada por la Unidad Técnica según corresponda.
+Todos los funcionarios que participen en la diligencia deberán resguardar la confidencialidad sobre toda información que conozcan antes y en el transcurso de la diligencia.

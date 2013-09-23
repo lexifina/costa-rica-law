@@ -1,0 +1,1 @@
+Artículo 121.—Suspensión o aclaración de la publicidad. La CNC es el órgano con competencia para acoger o rechazar una solicitud de medida cautelar de suspensión en materia de publicidad. Esta medida deberá ser dictada mediante resolución debidamente razonada, de conformidad con los artículos 53, 56, 61 y 71 de la Ley.

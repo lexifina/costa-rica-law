@@ -1,0 +1,2 @@
+Artículo 145.—Inicio del procedimiento. El procedimiento se iniciará por la presentación de una denuncia de conformidad con el artículo 56 de la Ley. Cualquier persona física o jurídica tiene derecho a denunciar ante la CNC las violaciones a las disposiciones de la Ley y el presente reglamento.
+Los órganos de la Administración Pública y las organizaciones de consumidores podrán denunciar ante la CNC la afectación de derechos e intereses colectivos de los consumidores en los términos dispuestos en la Ley.

@@ -1,0 +1,1 @@
+Artículo 195.—Responsabilidad Administrativa. Los agentes económicos y los proveedores son responsables por las infracciones a lo dispuesto en esta Ley, sin perjuicio de las responsabilidades civiles y penales que puedan llegar a corresponderles por los mismos hechos.

@@ -1,0 +1,2 @@
+Artículo 101.—Inexistencia de servicios de reparación o repuestos. Es obligatorio informar al consumidor, de previo a la compra, cuando no existan en el país servicios técnicos de reparación o repuestos para un bien determinado. Dicha obligación existirá sólo cuando se trate de servicios especializados de reparación o repuestos que no sean suplidos de manera genérica en el mercado.
+Esta advertencia deberá aparecer también en la factura original o comprobante que se entregará al cliente.

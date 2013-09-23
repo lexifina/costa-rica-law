@@ -1,0 +1,2 @@
+Artículo 111.—Sobre la carga de la prueba. La carga de la prueba referente a la entrega del documento de garantía, la idoneidad, conformidad del bien y servicio, así como de su adecuada ejecución corresponderá al comerciante o proveedor.
+En caso de incumplimiento total o parcial a lo indicado en este artículo se considerará infracción al inciso l) del artículo 34 y se le imputará la sanción prevista en el inciso b) del artículo 57, ambos de la Ley.

@@ -1,0 +1,1 @@
+Artículo 78.—Valoración de la segunda propuesta. La COPROCOM dentro de un plazo no mayor a un mes aceptará o rechazará la segunda propuesta mediante resolución motivada, utilizando los criterios de valoración establecidos en el artículo 76 del presente reglamento.

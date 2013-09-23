@@ -1,0 +1,1 @@
+Artículo 191.—Recursos contra las resoluciones finales. Contra las resoluciones finales o que le pongan término al proceso, dictadas por las Comisiones, sólo cabrá recurso de reposición dentro del plazo de tres días hábiles contados a partir del día hábil siguiente a la última comunicación del acto.

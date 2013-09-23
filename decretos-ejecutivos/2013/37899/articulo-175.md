@@ -1,0 +1,3 @@
+Artículo 175.—Impedimento, excusa y recusación. Son motivos de impedimento, excusa o recusación los establecidos en el Capítulo V del Título I del Código Procesal Civil.
+Igualmente, serán motivos de excusa para los miembros de la COPROCOM cuando algún agente económico del que sea propietario, director, representante, abogado o consultor, sea competidor de algún agente económico involucrado en un procedimiento o investigación; así como en asuntos que interesen de la misma forma a su cónyuge, a sus ascendientes o descendientes, hermanos, cuñados, tíos y sobrinos carnales, suegros, yernos, padrastros, hijastros, padres o hijos adoptivos.
+El procedimiento que se debe seguir en estos casos, es el establecido en el Código referido.

@@ -1,0 +1,3 @@
+Artículo 181.—Recurso de revisión de los acuerdos. En caso de que alguno de los miembros del órgano interponga recurso de revisión contra un acuerdo, éste será resuelto al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que el presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
+El recurso de revisión deberá ser planteado a más tardar al discutirse el acta y se resolverá en la misma oportunidad.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas para efectos del inciso anterior como un recurso de revisión.

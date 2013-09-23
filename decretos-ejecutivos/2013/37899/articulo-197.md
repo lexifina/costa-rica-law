@@ -1,0 +1,1 @@
+Artículo 197.—Extensión de la responsabilidad. La responsabilidad a que se refiere el artículo anterior abarca las consecuencias inmediatas y mediatas previsibles, e incluye el daño patrimonial y extrapatrimonial.

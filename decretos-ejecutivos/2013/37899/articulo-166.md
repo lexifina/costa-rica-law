@@ -1,0 +1,5 @@
+Artículo 166.—Sobre el informe técnico. Al acordar la medida, la CNC podrá requerir la inmediata realización de un estudio técnico que determine la necesidad de mantener la medida cautelar dictada. Dicho estudio técnico no será necesario cuando el hecho denunciado sea evidente y manifiesto.
+El plazo para rendir el informe no podrá exceder de dos meses, salvo casos debidamente calificados que conforme a las reglas de la ciencia, la técnica, la lógica o la conveniencia, requieran un plazo mayor para realizarlo.
+Transcurrido el plazo, debe darse audiencia por tres días hábiles a los particulares afectados por esta medida, para que aporten pruebas y aleguen lo que a bien tengan.
+Cumplido ese trámite, la CNC, mediante resolución fundada, deberá resolver lo que corresponda, incluyendo si procede o no mantener el decomiso de los bienes. En el caso de la suspensión de servicios, en el mismo plazo puede ordenar que ésta se mantenga hasta que el asunto no se resuelva finalmente en su sede.
+Cuando medie resolución que ordene el decomiso, las mercaderías decomisadas deben donarse a alguna institución de beneficencia o destruirse si son peligrosas.

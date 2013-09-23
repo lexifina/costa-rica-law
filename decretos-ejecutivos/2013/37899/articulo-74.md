@@ -1,0 +1,2 @@
+Artículo 74.—Contenido de la solicitud. La solicitud deberá contener el compromiso expreso de suprimir los hechos descritos en el auto de apertura del procedimiento, y de tomar medidas para, en su caso, contrarrestar sus posibles efectos anticompetitivos.
+La propuesta podrá incluir la forma como se pretende garantizar el cumplimiento de lo ofrecido, indicando el tipo de garantía y las demás condiciones que regirán su cumplimiento.

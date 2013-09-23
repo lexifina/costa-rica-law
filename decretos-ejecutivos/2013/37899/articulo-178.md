@@ -1,0 +1,1 @@
+Artículo 178.—Justificación de ausencias. Salvo casos de fuerza mayor debidamente demostrados, únicamente se considerarán justificadas las ausencias de los miembros propietarios o a los que les corresponda fungir en esa condición, por motivos de enfermedad, viaje fuera del país, laborales impostergables o indelegables.

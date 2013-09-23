@@ -1,0 +1,1 @@
+Artículo 211.—Muestreo estadístico de productos perecederos. En el caso del muestreo estadístico de productos perecederos, esto es, aquellos que se descomponen o deterioran en un período de pocos días, el análisis deberá realizarse en el término máximo de cuarenta y ocho horas, y la custodia no sobrepasará tres días en condiciones adecuadas de refrigeración.

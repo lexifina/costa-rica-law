@@ -1,0 +1,1 @@
+Artículo 51.—Criterios de valoración. Al analizar si una concentración producirá los efectos mencionados en el inciso 1) del artículo 16 de la Ley, la COPROCOM utilizará los criterios establecidos en los artículos 14 y 15 de la Ley, relacionados con la determinación del mercado relevante y con la existencia o consolidación del poder sustancial en éste.

@@ -1,0 +1,2 @@
+Artículo 95.—Sobre el precio en la venta a domicilio o fuera del establecimiento comercial, servicios técnicos o profesionales. En cuanto a la venta con entrega a domicilio y a la prestación de servicios técnicos o profesionales, se deberá informar al cliente o consumidor sobre su costo exacto y completo, antes de formalizar la contratación.
+En cuanto a los servicios técnicos, deberá entregarse una cotización o presupuesto por escrito a solicitud del consumidor.

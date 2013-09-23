@@ -1,0 +1,3 @@
+Artículo 29.—Dispensa de profesionales o técnicos. Cualquier persona con interés legítimo y directo podrá solicitar a la CMR que se dispense, total o parcialmente, la participación de profesionales y técnicos en los trámites o los procedimientos para el acceso de bienes al mercado nacional y en otras regulaciones al comercio.
+La CMR podrá acordar la dispensa, previa audiencia por diez días al órgano o ente de la Administración Pública que tenga competencia reguladora en el asunto.
+No procede dispensar la participación de profesionales y técnicos cuando ésta sea exigida por regulaciones que se hayan mantenido después de los análisis costo beneficio correspondiente, por ser requisitos esenciales en los términos de la Ley y este Reglamento.

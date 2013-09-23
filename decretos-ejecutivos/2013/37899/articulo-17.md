@@ -1,0 +1,1 @@
+Artículo 17.—Solicitud de inicio de investigación. A partir de la verificación del cumplimiento de los requisitos, el (la) Ministro (a) tendrá diez días hábiles para solicitar el inicio de una investigación del mercado u ordenar el archivo de la solicitud si resulta improcedente en los términos del artículo 13 de este Reglamento.

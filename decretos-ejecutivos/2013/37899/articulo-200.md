@@ -1,0 +1,8 @@
+Artículo 200.—Propósito de las inspecciones. Las inspecciones tendrán por objeto:
+a) Ejercer un control de precios sobre aquellos bienes y servicios afectos a tales medidas, conforme al artículo 5 de la Ley y este reglamento.
+b) Verificar el correcto estado de las pesas, medidas, registradoras y demás instrumentos de medición empleados por los comerciantes, de acuerdo con los procedimientos establecidos por LACOMET o por la normativa vigente. Al detectar un instrumento defectuoso, alterado o no apto para la actividad comercial correspondiente, el funcionario que realiza la inspección deberá prevenir al comerciante su inmediata reparación o reposición. Si no se atendiera este requerimiento dentro del plazo de tres días contados a partir del día siguiente de la notificación, dicho funcionario deberá notificar a la CNC para que ésta acuerde la medida precautoria correspondiente.
+c) Velar porque todo comerciante exponga los precios debidamente actualizados de los bienes o servicios comerciales ofrecidos, conforme a las reglas previstas en la Ley y este reglamento.
+d) Instruir a quienes comercien con bienes y servicios sobre la correcta aplicación de la Ley, su reglamento y demás disposiciones conexas, a fin de favorecer el cumplimiento de sus objetivos.
+e) Verificar los productos para constatar que cumplan con las normas y reglamentaciones relativas a la salud, el ambiente, la seguridad, la calidad, entre otros.
+f) Verificar la correcta aplicación y cumplimiento de las disposiciones de la Ley y este reglamento.
+g) Ejecutar cualquier otra labor que les asigne la COPROCOM, la CNC o los restantes despachos competentes del MEIC.

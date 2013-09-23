@@ -1,0 +1,1 @@
+Artículo 61.—Reuniones con la Unidad Técnica. A instancia de los solicitantes o de los funcionarios de la Unidad Técnica a cargo del caso, se podrán celebrar reuniones con el fin de aclarar la información aportada al expediente, en cuyo caso se levantará un acta que indique los temas tratados en ella y será firmada por todos los participantes.

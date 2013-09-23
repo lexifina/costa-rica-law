@@ -1,0 +1,1 @@
+Artículo 82.—Publicación. La COPROCOM podrá ordenar la publicación de un resumen del acuerdo que pone fin al procedimiento en un diario de circulación nacional y la comunicación directa a quienes considere conveniente, todo a costa del solicitante.

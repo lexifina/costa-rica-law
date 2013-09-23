@@ -1,0 +1,5 @@
+Artículo 135.—Excepciones al derecho de retracto. No procederá el derecho al retracto en los siguientes casos:
+a) Tratándose de bienes que por su naturaleza son consumibles, perecederos o que no puedan ser luego revendidos, una vez que hayan sido instalados o usados.
+b) Cuando los bienes objeto del contrato deban ser confeccionados o elaborados a la medida, o importados por encargo especial de acuerdo a las necesidades propias del comprador; si el vendedor demuestra que al recibir el aviso de rescisión ya había confeccionado o preparado los bienes, o enviado la orden de compra irrevocable al proveedor extranjero.
+Si los bienes estuviesen en proceso de fabricación o preparación, o sólo se hubieren realizado estas labores en forma parcial, el comprador podrá ejercer el retracto pagando al vendedor el valor de lo hecho. Por su parte, si la orden de importación es revocable, el comprador deberá sufragar los gastos incurridos tanto en colocar como revocar el pedido.
+Los comerciantes que vendan este tipo de bienes deberán advertir al consumidor la limitación para ejercer el derecho de retracto dentro del contrato, en caso de existir, o en otro documento.

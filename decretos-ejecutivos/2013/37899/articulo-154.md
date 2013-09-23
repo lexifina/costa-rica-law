@@ -1,0 +1,1 @@
+Artículo 154.—Prueba para mejor resolver. La CNC podrá ordenar prueba para mejor resolver, de forma excepcional, cuando lo estime pertinente para el esclarecimiento de los hechos denunciados. Una vez presentada la información prevenida, se dará a la contraparte audiencia por el plazo de tres días hábiles para lo que en derecho corresponda.

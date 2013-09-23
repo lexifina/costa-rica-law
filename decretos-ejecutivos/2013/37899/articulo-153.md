@@ -1,0 +1,2 @@
+Artículo 153.—Comparecencia. El procedimiento se tramitará mediante una comparecencia oral y privada en la cual se admitirá y recibirá toda la prueba, alegatos y conclusiones de las partes que fueren pertinentes, y en dicho acto deberá ser indicado y/o ratificado el medio o lugar para recibir notificaciones.
+La citación a la comparecencia se hará con quince días hábiles de anticipación. De lo actuado en la comparecencia se levantará el acta de conformidad con el artículo 188 del presente reglamento.

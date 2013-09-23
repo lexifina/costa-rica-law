@@ -1,0 +1,7 @@
+Artículo 116.—Publicidad comparativa. Sin perjuicio de los demás requisitos y condiciones que pudiesen derivarse de la normativa legal aplicable, la publicidad comparativa deberá cumplir con lo siguiente:
+a) La comparación debe basarse en datos relevantes, objetivos y verídicos, sobre los cuales exista una base razonable.
+b) La comparación deberá hacerse entre productos o servicios, similares en tipo, usos, categoría y modelo. Están exentos de lo anterior, comparaciones que se hagan para mostrar avances en la técnica o desarrollo de producto, en cuyo caso esta intención deberá ser evidente.
+c) Toda información que se brinde deberá ser objetivamente verificable, y deberá basarse en pruebas realizadas por el anunciante de previo a la primera divulgación del mensaje.
+d) La mención de productos o servicios de la competencia deberá hacerse siempre con respeto y probidad.
+e) En caso de que se comparen precios de un producto o servicio con otros similares, deberá indicarse la fecha en la cual fue obtenido el precio competidor, así como la vigencia del precio propio.
+La comparación no es admisible cuando se límite a la proclamación, superlativa o general, indiscriminada, de la superioridad de los productos propios o de la posición de la empresa en el mercado por encima de sus competidores. En la publicidad deberán indicarse los datos o las fuentes que justifiquen las declaraciones comparativas sobre datos esenciales, afines y objetivamente demostrables siempre que se comparen con otros similares, conocidos o de participación significativa en el mercado.

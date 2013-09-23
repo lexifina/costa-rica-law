@@ -1,0 +1,3 @@
+Artículo 172.—Frecuencia de las sesiones. Cada comisión se reunirá ordinariamente al menos una vez por semana, en la hora y fecha que se designe, y para lo cual no hará falta convocatoria especial.
+Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, con una antelación mínima de veinticuatro horas, y acompañando copia del orden del día, salvo los casos de urgencia.
+No obstante, quedará válidamente constituida la comisión, sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.

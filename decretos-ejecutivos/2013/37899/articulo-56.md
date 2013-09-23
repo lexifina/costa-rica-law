@@ -1,0 +1,2 @@
+Artículo 56.—Plazos para resolver. El cómputo del plazo de 30 días naturales, regulados en el inciso d) del artículo 16 ter de la Ley, para emitir resolución, iniciará a partir del día de la presentación de la información completa.
+Antes del vencimiento de ese plazo de treinta días naturales la COPROCOM podrá, en casos de especial complejidad así declarados mediante resolución razonada, ampliarlo por una vez hasta por sesenta días naturales adicionales al vencimiento del plazo inicial.

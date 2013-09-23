@@ -1,0 +1,1 @@
+Artículo 50.—Confidencialidad de la información. Toda documentación e información aportada al expediente se presumirá confidencial, e inicialmente se incorporará al expediente confidencial de la investigación, para luego ser clasificada como corresponda.
