@@ -1,0 +1,4 @@
+ARTÍCULO 11.-Información privada y su protección
+Toda información contenida en el expediente digital único de salud se considera información privada que contiene datos sensibles. Se prohíbe el tratamiento de dichos datos y el responsable de la base de datos deberá adoptar las medidas de índole técnica y de organización necesarias para garantizar la seguridad de los datos de carácter personal y evitar su alteración, destrucción accidental o ilícita, pérdida, tratamiento o acceso no autorizado.
+Dichas medidas deberán incluir, al menos, los mecanismos de seguridad física y lógica más adecuados de acuerdo con el desarrollo tecnológico actual para garantizar la protección de la información almacenada.
+El responsable y las personas que intervengan en cualquier fase del tratamiento de datos personales están obligados al secreto profesional o funcional, aun después de finalizada su relación con la base de datos.
