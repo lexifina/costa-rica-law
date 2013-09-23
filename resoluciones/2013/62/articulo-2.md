@@ -1,0 +1,1 @@
+2º—Se ordena a la Dirección de Cuarentena Animal y a la Dirección Administrativa Financiera, tomen las previsiones administrativas que correspondan a los efectos de dictar las instrucciones necesarias en acatamiento de lo establecido en la presente resolución.
