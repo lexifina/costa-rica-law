@@ -1,4 +1,4 @@
-|Nº 13-09-10
+Nº 13-09-10
 EL DIRECTORIO DE LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 De conformidad con la disposición adoptada en la sesión Nº 150-2009, celebrada por el Directorio Legislativo el 20 de mayo de 2009.
@@ -457,10 +457,7 @@ Realizar reparaciones de muebles, estanterías, armarios, etc.; dar mantenimient
 Remodelar oficinas e interpretar planos, bocetos, croquis o diagramas.
 Elaborar reportes sobre los desperfectos del equipo y la maquinaria.
 Realizar otras funciones relacionadas con el cargo.
-(*) LAVADO DE VEHÍCULOS: Lavado y encerado de los vehículos institucionales cuando se requiera durante la semana y después de las giras que realicen los señores diputados o cuando por una necesidad institucional se vea alterado las condiciones normales de limpieza del vehículo.
-Hacer el uso apropiado del equipo necesario para llevar a cabo el cumplimiento de esta actividad. Utilizar los insumos adecuados para mantener en perfecto estado la carrocería, tapicería y otros accesorios del vehículo.
-Reportar al jefe de la Unidad de Transportes mediante documento idóneo el lavado por cada unidad vehicular.
-Realizar otras funciones relacionadas con el cargo
+(*) LAVADO DE VEHÍCULOS: (Derogado mediante acuerdo N° 36-13-14 aprobado en sesión ordinaria N° 190-2013 del 24 de setiembre de 2013)
 (*)(Así adicionado el punto anterior mediante acuerdo N° 46-12-13 aprobado en sesión ordinaria N° 149 del 27 de noviembre del 2012)
 OPERADOR DE EQUIPO DE IMPRESIÓN: Operar equipo de reproducción: fotocopiadora, máquinas matrizadoras; preparar el equipo con papel o tóner, tinta y matrices; mantener en orden el material por utilizar; realizar corte de guillotina y encuadernación sencilla.
 Llevar controles sobre el material fotocopiado y reproducido; elaborar informes mensuales.
