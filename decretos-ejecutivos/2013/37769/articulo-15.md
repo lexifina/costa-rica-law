@@ -1,0 +1,4 @@
+Artículo 15.—Información adjunta al índice:
+a- En caso de informarse el otorgamiento de testamentos, junto con el índice deberá remitirse además, un archivo de texto en formato de uso corriente, conteniendo el texto completo del testamento.
+b- Para actualizar el registro de testamentos el sistema automáticamente trasmitirá la información.
+c- Si en el índice se informa el otorgamiento de un instrumento público en el cual se adicione, rescinda o modifique, en cualquier forma, el contenido de una escritura pública o se revoque o modifique un testamento o un poder especial y el tomo del protocolo del principal se encuentre depositado en el Departamento Archivo Notarial se informarán todos los datos de ambos instrumentos públicos mediante fórmula electrónica establecida al efecto, con el fin de consignar lo estipulado en el artículo 97 del Código Notarial.

@@ -1,0 +1,1 @@
+Artículo 18.—Derogatoria: Deróguese el Decreto Ejecutivo Nº 33398-C del 26 de junio de 2006, denominado Reglamento para la Presentación de Índices, y el Decreto Ejecutivo N° 36246-C de 17 de agosto de 2010.
