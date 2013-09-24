@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Contratación del personal
+Se autoriza al Instituto Costarricense de Acueductos y Alcantarillados (AyA), para que contrate el personal necesario y adquiera el equipo y los vehículos que requiera para integrar la unidad de implementación del proyecto que se aprueba con esta ley. El período de implementación de esta unidad corresponderá al período de ejecución del proyecto que se aprueba con la presente ley.
