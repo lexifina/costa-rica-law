@@ -52,3 +52,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 37 | 2013-09-23 | Resolución 62 (2013-09-23) |
 | 38 | 2013-09-23 | Resolución 63 (2013-09-23) |
 | 39 | 2013-09-24 | Resolución 65 (2013-09-24) |
+| 40 | 2013-09-24 | Resolución 66 (2013-09-24) |
