@@ -16,3 +16,4 @@ Reglamento del Comité de Riesgo del Banco Popular y de Desarrollo Comunal
 | 1 | 2011-03-28 | la propia norma |
 | 2 | 2011-05-31 | Reglamento 4867 (2011-05-31) |
 | 3 | 2012-11-13 | Reglamento 5017 (2012-11-13) |
+| 4 | 2013-09-24 | Reglamento 5105 (2013-09-24) |

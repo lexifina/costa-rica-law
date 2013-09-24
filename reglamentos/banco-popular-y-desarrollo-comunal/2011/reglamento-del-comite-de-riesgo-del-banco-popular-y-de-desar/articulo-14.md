@@ -1,1 +1,2 @@
-Artículo 14.—De la remisión de Informes. Los informes periódicos, elaborados por el Proceso Administración de Riesgo, así como los documentos que dan respuestas a los acuerdos del Comité, deberán ser remitidos directamente por las áreas responsables a la Presidencia del Comité, con copia al Proceso Administración de Riesgo, en el caso de las áreas distintas a esta, y a la Gerencia General Corporativa.
+Artículo 14.—De la remisión de Informes. Los informes periódicos, elaborados por la Dirección de Gestión de Riesgo Corporativo, deberán ser remitidos directamente a la Presidencia del Comité, con copia a la Gerencia General Corporativa.
+(Así reformado mediante sesión N° 5105 del 24 de setiembre del 2013)
