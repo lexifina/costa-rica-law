@@ -1,0 +1,9 @@
+COMISIÓN NACIONAL DE PREVENCIÓN DE RIESGOS
+Y ATENCIÓN DE EMERGENCIAS
+La Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE), comunica que en sesión ordinaria Nº 10-09-2013, celebrada el día el miércoles 4 de setiembre de 2013; se aprobó el acuerdo Nº 395-09-2013, que en el apartado segundo dice:
+ADICIÓN AL REGLAMENTO ESPECÍFICO PARA LOS PROCESOS DE COMPRA Y CONTRATACIÓN AL AMPARO DE LOS MECANISMOS DE EXCEPCIÓN POR LA DECLARATORIA DE EMERGENCIA, BAJO EL DECRETO EJECUTIVO N° 36440-MP
+2º—Se adiciona al Reglamento específico para los procesos de compra y contratación al amparo de los mecanismos de excepción por la Declaratoria de Emergencia, bajo el Decreto Ejecutivo N° 36440-MP, publicado en La Gaceta N° 87 del 7 de mayo del 2012, el inciso i) al artículo 5, para que se lea:
+“5º—Las Proveedurías Institucionales de las Unidades Ejecutoras tramitarán las contrataciones aplicando de manera estricta el procedimiento descrito a continuación...”
+“i) Asimismo, las Proveedurías Institucionales están facultadas para utilizar otras modalidades o procedimientos de contratación previstos por el Reglamento a la Ley de Contratación Administrativa N° 7494, tales como Convenio Marco y Contratos por Demanda, vigentes al momento de la contratación, siempre que dichos concursos se enmarquen dentro de los principios que rigen las contrataciones de emergencia y que provean una solución ágil a las necesidades de la institución, dentro del marco del decreto N° 36440 y siempre y cuando tanto los convenios vigentes y los disponibles de las eventuales órdenes de compra queden supeditados a la vigencia del decreto de emergencia señalado. Adicionalmente, las proveedurías institucionales deberán documentar debidamente que todas las compras realizadas mediante este instrumento estén debidamente vinculadas con la declaración de emergencia específica.”
+Rige a partir de su publicación.
+San José, 16 de setiembre del 2013.—
