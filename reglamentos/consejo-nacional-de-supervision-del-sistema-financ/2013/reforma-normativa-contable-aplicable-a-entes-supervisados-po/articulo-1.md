@@ -1,4 +1,5 @@
-El Consejo Nacional de Supervisión del Sistema Financiero en los artículos 14 y 5 de las actas de las sesiones 1024-2013 y 1025-2013, celebradas el 29 de enero del 2013,
+(Nota de Sinalevi: Mediante sesión N° 1064-2013 del 24 de setiembre del 2013 se ordena prorrogar hasta el 1° de enero del 2014 la entrada en vigencia de la presente norma)
+Consejo Nacional de Supervisión del Sistema Financiero en los artículos 14 y 5 de las actas de las sesiones 1024-2013 y 1025-2013, celebradas el 29 de enero del 2013,
 considerando que:
 a.- El inciso ñ) del artículo 171 de la Ley Reguladora del Mercado de Valores, Ley 7732, faculta al Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF) a aprobar las normas contables, según los principios de contabilidad generalmente aceptados.
 b.- El concepto de los grupos contables 630 y 640 no establece la limitación que tienen los supervisados de Superintendencia General de Entidades Financieras para realizar operaciones diferentes de cobertura, la cual debe ser explícita.
