@@ -1,4 +1,5 @@
 CAPITULO X
 Accidentes de tránsito
-Artículo 22.—Investigación administrativa. En caso de accidente, y una vez recibido el informe del conductor del vehículo, la Jefatura de la Unidad de Transportes deberá realizar la investigación administrativa correspondiente. Posteriormente, se emitirá un informe con las recomendaciones a la Dirección Ejecutiva de la Asamblea Legislativa.
-(Así reformado por acuerdo N° 33-10-11 de la sesión N° 050 del 7 de abril del 2011)
+ARTÍCULO 22.- Investigación administrativa.
+En caso de accidente, la Jefatura de la Unidad de Transportes deberá realizar la investigación administrativa correspondiente e informar al Director Ejecutivo el resultado. En caso de que se considere oportuno, se ordenará la apertura del procedimiento disciplinario administrativo, de conformidad con la Ley General de la Administración Pública.
+(Así reformado mediante acuerdo N° 35-13-14 aprobado en sesión ordinaria N° 190-2013 del 24 de setiembre del 2013)
