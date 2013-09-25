@@ -1,0 +1,1 @@
+Artículo 63.—Los residuos generados en los establecimientos de atención de la salud pública y privada, deben de acatar y proceder en su gestión de residuos, como lo establecido el Reglamento sobre la Gestión de los Desechos Infectocontagiosos que se generan en establecimientos que prestan atención a la salud N 30965-S.

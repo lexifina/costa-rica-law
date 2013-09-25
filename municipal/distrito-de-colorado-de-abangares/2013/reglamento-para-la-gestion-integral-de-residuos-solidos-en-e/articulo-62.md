@@ -1,0 +1,1 @@
+Artículo 62.—Para la recolección de residuos peligrosos generados en las unidades habitacionales, se deben colocar en bolsas separadas, debidamente cerradas y sin mezclarse con otros desechos generados en las unidades habitacionales.

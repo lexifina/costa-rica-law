@@ -1,0 +1,1 @@
+Artículo 2º—Este reglamento tiene por objeto regular en forma integral la gestión de residuos sólidos que se generan dentro de la jurisdicción administrativa del Concejo Municipal de Distrito de Colorado, funciones encomendadas mediante Ley 8839 denominada Ley para la Gestión Integral de Residuos Sólidos y su Reglamento.

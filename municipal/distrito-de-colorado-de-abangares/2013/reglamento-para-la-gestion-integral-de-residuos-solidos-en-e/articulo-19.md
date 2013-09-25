@@ -1,0 +1,1 @@
+Artículo 19.—El Departamento de Gestión Ambiental del Concejo Municipal de Distrito de Colorado de Abangares, promoverán las acciones de reducción, separación, reutilización, reciclaje, manejo y disposición adecuada de los residuos sólidos entre todos los actores claves y la población, para lo cual utilizará los medios de comunicación y recursos disponibles.

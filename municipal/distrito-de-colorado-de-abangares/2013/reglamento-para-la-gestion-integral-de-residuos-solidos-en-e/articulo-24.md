@@ -1,0 +1,1 @@
+Artículo 24.—Es obligación de los propietarios de lotes baldíos o fincas, mantenerlo debidamente bardeados protegidos, para evitar que se arrojen residuos que lo conviertan en lugares nocivos para la salud o seguridad de las personas.

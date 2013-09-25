@@ -1,0 +1,1 @@
+Artículo 56.—El Concejo Municipal de Distrito de Colorado de Abangares en su jurisdicción administrativa, promoverá la capacitación y campañas educación de sensibilización de la población, para fomentar la cultura de la separación de residuos desde la fuente para su valorización.

@@ -1,0 +1,1 @@
+Artículo 54.—El Concejo Municipal de Distrito de Colorado de Abangares en su jurisdicción administrativa, promoverá el establecimiento de convenios con microempresas, cooperativas, organizaciones de mujeres u otras organizaciones locales para que participen en el proceso de gestión de los residuos.

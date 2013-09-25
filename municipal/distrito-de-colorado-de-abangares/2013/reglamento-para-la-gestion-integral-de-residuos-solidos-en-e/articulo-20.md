@@ -1,0 +1,1 @@
+Artículo 20.—Las autoridades municipales mantendrán informada en forma periódica a la población y actores claves sobre la situación del manejo de los residuos, separación en la fuente, la reutilización y la disposición adecuada de los residuos.

@@ -1,0 +1,2 @@
+Artículo 13.—La Intendencia Municipal de Distrito de Colorado, implementará con su propio personal o mediante contrato con alguna persona física o jurídica, el servicio de limpieza de áreas y vías públicas, alcantarillado pluvial; a su vez coordinará la limpieza de cauces de dominio público.
+Le corresponderá también prevenir y realizar las gestiones necesarias para eliminar los vertederos de residuos en todo el territorio de su jurisdicción administrativa, y el acopio no autorizado de residuos.

@@ -1,0 +1,1 @@
+Artículo 26.—El retiro de escombros y residuos de construcción de la vía pública corre a cargo del propietario de la obra de construcción que los haya originado y/o del responsable de la misma, mediante un gestor autorizado por el Ministerio de Salud.

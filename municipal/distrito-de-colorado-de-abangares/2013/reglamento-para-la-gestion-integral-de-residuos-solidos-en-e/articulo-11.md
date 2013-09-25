@@ -1,0 +1,1 @@
+Artículo 11.—El Concejo Municipal de Distrito de Colorado de Abangares facilitará procesos de capacitación para las personas designadas y otros interesados en el Manejo de los Residuos Sólidos, de conformidad con el artículo anterior.

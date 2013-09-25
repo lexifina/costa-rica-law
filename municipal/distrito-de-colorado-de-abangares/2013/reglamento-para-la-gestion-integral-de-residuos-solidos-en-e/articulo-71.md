@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Disposiciones transitorias
+Artículo 71.—El conocimiento y observancia del presente reglamento son obligatorias para todos los usuarios que requieran del servicio de recolección de cualquier tipo de residuo (ya sea espontáneamente, ocasional o periódicamente), de manera que su desconocimiento nunca podrá ser invocado como excusa para omitir los deberes respectivos o evitar las sanciones correspondientes. Para tal efecto, el Concejo Municipal de Distrito de Colorado de Abangares, se comporte a divulgar y ponerlo a disposición de los usuarios por diferentes medios, asegurando que el reglamento llegue a todos los habitantes o visitantes del distrito.

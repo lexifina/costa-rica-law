@@ -1,0 +1,1 @@
+Artículo 29.—La forma única autorizada para eliminar los residuos domiciliarios, comerciales e industriales es la que se detalla en este reglamento. Por lo tanto, queda terminantemente prohibido deshacerse de los residuos entregándolos a recolectores no autorizados por el Concejo Municipal de Distrito de Colorado de Abangares y /o otra autoridad pública competente.

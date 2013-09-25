@@ -1,0 +1,1 @@
+Artículo 17.—El Concejo Municipal de Distrito de Colorado de Abangares, promoverá y apoyará iniciativas para el compostaje de los desechos biodegradables a nivel domiciliario y comunal u otras instancias.

@@ -1,0 +1,1 @@
+Artículo 12.—Las observaciones que el Concejo Municipal de Distrito de Colorado de Abangares realice en sus inspecciones o por denuncias serán canalizadas a través de la Unidad de Gestión Ambiental, ante los representantes de las entidades involucradas internas y externas.

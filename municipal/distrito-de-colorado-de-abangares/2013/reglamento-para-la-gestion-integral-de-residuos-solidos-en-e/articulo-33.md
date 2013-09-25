@@ -1,0 +1,1 @@
+Artículo 33.—Durante la generación, separación y almacenamiento, el generador deberá evitar que los residuos se mojen o se mezclen con otros residuos que pueden ser valorizables, así mismo separarlos en diversos recipientes.

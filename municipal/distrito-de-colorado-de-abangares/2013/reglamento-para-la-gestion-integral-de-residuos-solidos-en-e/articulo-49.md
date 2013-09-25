@@ -1,0 +1,1 @@
+Artículo 49.—Los propietarios, administradores o encargados de estaciones de servicios, terminales de autobuses, talleres y sitios de reparación de automóviles, se abstendrán de dar mantenimiento o efectuar trabajos de reparación de vehículos en la vía pública, cuidarán de la limpieza de las aceras y quebradas, ubicada en los alrededores de sus instalaciones o establecimientos.

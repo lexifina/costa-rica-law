@@ -1,0 +1,1 @@
+Artículo 28.—Ninguna persona podrá utilizar la vía pública para disponer residuos especiales, voluminosos, no tradicionales o cualquier objeto de desechos depositar cualquier material u objeto de desecho, que ponga en riesgo la salud pública, la calidad del ambiente, o bien que estorbe al tránsito de vehículos o peatones.

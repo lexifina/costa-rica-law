@@ -1,0 +1,1 @@
+Artículo 21.—Los prestadores del servicio de manejo de residuos, ya sean públicos o privados, deberán informar y capacitar periódicamente a su personal, acerca de los métodos de trabajo para una adecuada operación del servicio.

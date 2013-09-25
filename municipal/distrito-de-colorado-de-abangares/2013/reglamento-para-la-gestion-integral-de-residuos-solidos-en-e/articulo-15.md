@@ -1,0 +1,1 @@
+Artículo 15.—En la selección o el traslado interno de personal responsable de trámites o servicios municipales referidos al ámbito de aplicación de este reglamento, se dará énfasis especial a las personas con conocimientos, experiencias y antecedentes en materia ambiental.

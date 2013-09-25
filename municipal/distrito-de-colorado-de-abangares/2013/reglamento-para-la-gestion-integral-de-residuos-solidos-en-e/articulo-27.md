@@ -1,0 +1,1 @@
+Artículo 27.—Por ningún motivo se permitirá que los residuos que se produzcan al limpiar alcantarillas, cordones y caños o colectores permanezcan en la vía pública por más tiempo del estrictamente necesario para ser recogido.
