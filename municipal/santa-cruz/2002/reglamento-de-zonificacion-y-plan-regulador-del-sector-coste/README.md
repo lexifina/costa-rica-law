@@ -14,3 +14,4 @@ Reglamento de Zonificación y Plan Regulador del sector costero de playa Nombre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-19 | la propia norma |
+| 2 | 2013-09-25 | SINALEVI (sin norma nombrada) |
