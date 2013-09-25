@@ -1,5 +1,5 @@
 SECCIÓN III
-Del Presidente de La Junta
+Del presidente de la Junta
 Artículo 7º—Son deberes y atribuciones del Presidente:
 1. Presidir las sesiones ordinarias y extraordinarias que se celebren.
 2. Ejecutar los acuerdos que se dicten.

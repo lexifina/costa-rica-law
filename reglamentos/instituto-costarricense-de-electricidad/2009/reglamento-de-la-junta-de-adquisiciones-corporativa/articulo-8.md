@@ -1,7 +1,7 @@
 SECCIÓN IV
-Del secretario y secretario (a) adjunto (a) de la junta
-Artículo 8º—Son deberes del Secretario:
-1. Dirigir y coordinar los asuntos de la Secretaría, informando periódicamente al Presidente o a la Junta, la marcha de los asuntos a él encomendados.
+Del secretario(a) y secretario(a) adjunto(a) de la Junta
+Artículo 8º—Son deberes del secretario(a):
+1. Dirigir y coordinar los asuntos de la Secretaría, informando periódicamente al Presidente o a la Junta, la marcha de los asuntos que le hayan sido encomendados.
 2. Ejecutar las tareas y funciones que específicamente se le encarguen.
 3. Representar a la Junta en actos o eventos, cuando así se determine.
 4. Preparar conjuntamente con el Presidente, las agendas de los asuntos a tratar en las sesiones de la Junta y con la anuencia de éste, realizar la convocatoria formal a la sesión.
