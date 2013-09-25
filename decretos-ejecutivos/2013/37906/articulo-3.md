@@ -1,0 +1,1 @@
+Artículo 3º—Ubicación estratégica de las unidades para la igualdad de género. Las unidades para la igualdad de género estarán ubicadas de forma estratégica en la estructura institucional, con el fin de influir positivamente en los procesos de toma de decisiones, para asegurar el cumplimiento de los principios de igualdad y equidad en todas las actuaciones de la institución.

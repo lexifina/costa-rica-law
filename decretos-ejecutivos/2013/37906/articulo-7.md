@@ -1,0 +1,2 @@
+Artículo 7º—Nombramiento de representantes de red de unidades y estructura orgánica: Cada unidad para la igualdad de género nombrará una persona representante para integrar la Red, quién será designada por el o la jerarca de la institución.
+De su seno elegirá una coordinación y una sub coordinación suplente, que durará en su cargo por el plazo de dos años en el ejercicio del cargo y podrán ser reelectas por una sola vez en forma consecutiva. La red nombrará una secretaria y establecerá las comisiones necesarias para el funcionamiento de la misma.

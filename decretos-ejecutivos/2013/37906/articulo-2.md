@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo de las unidades para la igualdad de género. Las unidades para la igualdad de género tendrán como objetivo promover la incorporación del enfoque de igualdad y equidad de género en el quehacer de la institución y orientar, fortalecer y monitorear las acciones tendientes a la ejecución de la política de equidad e igualdad de género.

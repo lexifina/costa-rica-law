@@ -1,0 +1,7 @@
+Artículo 4º—Funciones de las unidades para la igualdad de género. Las funciones primordiales de las unidades de género, que se orientarán por el marco jurídico nacional y el derecho internacional de los derechos humanos, serán:
+a) Brindar asistencia técnica a las diferentes dependencias de la institución sobre las estrategias para la implementación de políticas con perspectiva de género.
+b) Impulsar y coordinar el establecimiento de programas y servicios que aseguren un trato equitativo a las necesidades y especificidades de hombres y mujeres.
+c) Asesorar a las instancias competentes de la institución, en la atención de denuncias por cualquier tipo de discriminación de género, tanto en la gestión interna como en los servicios que brinde la institución respectiva.
+d) Participar y aportar en los procesos de formulación de políticas públicas para la igualdad de género, desde su ámbito de competencia institucional.
+e) Apoyar el seguimiento a la ejecución de la Política Nacional de Igualdad y Equidad de Género y los compromisos que la institución asume en el marco de la política, así como contribuir con la articulación de las acciones institucionales de la PIEG.
+f) Apoyar las acciones e iniciativas para la igualdad y equidad de género que desarrolla el Instituto Nacional de las Mujeres, las instituciones públicas, los organismos internacionales y las organizaciones sociales que desarrollan programas para las mujeres.
