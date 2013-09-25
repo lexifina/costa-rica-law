@@ -1,0 +1,7 @@
+Artículo 3º—De la Organización por Macro-Procesos. El Teatro Nacional de Costa Rica, está organizado en un nivel estratégico (Consejo Directivo, Auditoría Interna, Dirección General y las unidades Staff), cuatro departamentos de nivel sustantivo y un departamento de nivel de apoyo, los cuales ejecutan diariamente actividades y la suma de actividades, ordenada cronológicamente conforman procedimientos y la suma de procedimientos secuenciados conforma procesos. De tal forma que es apropiado puntualizar que los cinco departamentos individualmente desarrollan sus propios procesos cotidianos y la secuencia entrelazada cronológicamente de estos, conforman los Macro-Procesos institucionales.
+Las operaciones a través de Macro-Procesos garantizan que los productos y servicios lleguen a los clientes con la prontitud y calidad demandados, hay un compromiso con los resultados.
+Otra de las muchas ventajas de organizar las operaciones de la institución mediante Macro-Procesos, es que la secuencia de las actividades, los procedimientos y los procesos involucra a la organización de forma coordinada y eficiente en función de los productos y servicios que suple a sus clientes.
+Los tres Macro-Procesos del Teatro Nacional de Costa Rica son:
+a) Proyectos de Conservación y Desarrollo de Instalaciones.
+b) Producción y Consumo de Eventos.
+c) Producción y Consumo de Bienes y Servicios Asociados al Patrimonio.
