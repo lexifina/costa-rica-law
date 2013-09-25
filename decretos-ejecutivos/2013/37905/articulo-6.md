@@ -1,0 +1,1 @@
+Artículo 6º—Incentivos: Con el fin de reconocer a las organizaciones que adquieran el “Sello de Equidad de Género” el INAMU deberá elaborar un Plan y una estrategia para construir y otorgar incentivos que motiven la adquisición del Sello de Equidad de Género, dentro de los seis meses siguientes a la entrada en vigencia de este Decreto.
