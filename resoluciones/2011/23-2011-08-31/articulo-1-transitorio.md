@@ -1,1 +1,0 @@
-Transitorio único.—Los estados financieros debidamente dictaminados por un Contador Público Autorizado, correspondientes a los periodos fiscales 2008, 2009 y 2010, deberán ser presentados en las oficinas de la Dirección de Grandes Contribuyentes Nacionales o de las Administraciones tributarias territoriales, según corresponda, a más tardar el 15 de octubre de 2011.

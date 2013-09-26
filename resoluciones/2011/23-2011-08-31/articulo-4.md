@@ -1,1 +1,0 @@
-Artículo 4º—El incumplimiento del deber de suministrar los estados financieros dictaminados por un Contador Público Autorizado, en los términos y plazos establecidos en esta Resolución, podrá ser sancionado de conformidad con lo dispuesto en el Código de Normas y Procedimientos Tributarios.
