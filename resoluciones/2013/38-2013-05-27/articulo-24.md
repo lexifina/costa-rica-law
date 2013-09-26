@@ -7,7 +7,7 @@ Tiene las siguientes funciones:
 3. Diseñar e implementar un programa de valoración del desempeño que permita establecer estrategias de mejoramiento continuo y reconocimiento de aportes.
 4. Diseñar, proponer, mantener y evaluar la estructura ocupacional de la institución. Esto incluye, entre otras cosas, el diseño, análisis y clasificación de puestos.
 5. Diseñar, proponer y mantener actualizados los esquemas de compensación de acuerdo con las políticas institucionales y los métodos de valoración que mejor se ajusten a los requerimientos de Aresep.
-6. Coordinar la comisión encargada del reconocimiento de Carrera profesional.
+6. (Derogado por el artículo 32 del Reglamento de carrera profesional de la Autoridad Reguladora de los Servicios Públicos y su Órgano Desconcentrado, aprobado en sesión N° 70 del 26 de setiembre de 2013)
 7. Diseñar y administrar el programa de condiciones y medio ambiente de trabajo.
 8. Diseñar, administrar y dar seguimiento a programas orientados al mejoramiento y fortalecimiento de las condiciones laborales de la institución (factores psicosociales).
 9. Apoyar y facilitar los procesos de cambio organizacional.
