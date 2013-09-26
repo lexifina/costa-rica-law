@@ -13,3 +13,4 @@ Lista de correos electrónicos para notificar a los Ministerios e Instituciones 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-09 | la propia norma |
+| 2 | 2013-09-26 | Circular 144 (2013-09-26) |
