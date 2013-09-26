@@ -1,2 +1,0 @@
-Artículo 58.—Presupuesto del gasto del combustible. Anualmente en el mes de julio y para ser incorporado en el Plan Operativo Institucional, el Área de Servicios Generales deberá presupuestar el gasto por concepto de combustible y además será responsable de gestionar periódicamente, conforme se establezca en el Manual de Procedimientos, la adquisición de combustible que garantice su disponibilidad y el funcionamiento de la flotilla institucional.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 57 al 58 actual)

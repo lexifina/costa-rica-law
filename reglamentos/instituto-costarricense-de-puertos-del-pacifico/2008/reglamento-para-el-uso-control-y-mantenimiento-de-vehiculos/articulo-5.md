@@ -1,4 +1,0 @@
-Artículo 5º—De la clasificación de los vehículos institucionales. Para los efectos de este reglamento, los vehículos del INCOP se clasifican en:
-a) De uso discrecional: Se ubican en esta categoría los vehículos asignados por ley al Presidente Ejecutivo, Gerente General, Subgerente General y Auditor.
-b) De uso administrativo: Son aquellos, propiedad del INCOP o arrendados, al servicio del Instituto para el necesario traslado de funcionarios cuando se requiera prestar los servicios o efectuar alguna diligencia en el ejercicio de sus funciones. Estos vehículos deben portar el distintivo del INCOP y cumplir con los controles y requerimientos establecidos en el presente reglamento y la Ley de Tránsito.
-Ambas categorías de vehículos deben estar sometidos a las regulaciones establecidas en el ordenamiento jurídico vigente y serán utilizados únicamente en actividades de interés del INCOP.

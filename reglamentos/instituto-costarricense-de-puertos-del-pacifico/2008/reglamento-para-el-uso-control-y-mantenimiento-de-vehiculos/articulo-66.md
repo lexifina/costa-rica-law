@@ -1,2 +1,0 @@
-Artículo 66.—Del informe del accidente. El Área de Servicios Generales analizará todo accidente de tránsito en que participe un vehículo del Instituto a su cargo, del cual rendirá un informe con la recomendación respectiva, a la Unidad de Recursos Humanos. Dentro de los tres días hábiles siguientes a la fecha del percance, el chofer tendrá derecho a ser oído para hacer valer sus derechos y presentar las pruebas que estime convenientes.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 65 al 66 actual)

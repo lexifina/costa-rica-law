@@ -1,2 +1,0 @@
-Artículo 78.—De las sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinariamente, de acuerdo con la gravedad de la falta, conforme a lo establecido por el Reglamento Autónomo de Servicios del INCOP o, en su defecto, de conformidad con las responsabilidades establecidas por el Código de Trabajo, la Ley del Tránsito, la Ley General de Administración Pública u otra normativa afín y concordante.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 77 al 78 actual)

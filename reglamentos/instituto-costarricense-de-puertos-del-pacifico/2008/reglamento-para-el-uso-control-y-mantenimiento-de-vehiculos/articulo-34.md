@@ -1,2 +1,0 @@
-Artículo 34.—Ausencia del funcionario. En el caso de que el funcionario responsable de un vehículo de uso discrecional se encuentre en vacaciones, con permiso, incapacitado u otra situación de similar naturaleza, el vehículo de uso discrecional se mantendrá en el lugar que se designe para tal efecto, por el Área de Servicios Generales.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 33 al 34 actual)

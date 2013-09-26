@@ -1,2 +1,0 @@
-Artículo 62.—Documentos a presentar. El funcionario responsable de liquidar, deberá presentar las facturas de combustible, expedidas por las distribuidoras de combustible, en buenas condiciones y libres de tachones. En caso de que no se encuentren en las condiciones establecidas, el funcionario responsable que así las haya aceptado, asumirá la responsabilidad y pago de dicha erogación.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 61 al 62 actual)

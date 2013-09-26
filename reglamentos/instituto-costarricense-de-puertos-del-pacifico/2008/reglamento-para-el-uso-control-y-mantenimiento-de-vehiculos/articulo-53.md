@@ -1,2 +1,0 @@
-Artículo 53.—Del mantenimiento de vehículos en los Muelles y San José. Los Administradores de Muelle y la persona encargada en San José serán los encargados de cumplir con el mantenimiento preventivo y correctivo de los vehículos, de acuerdo a las normas establecidas por el Área de Servicios Generales y atendiendo los principios de austeridad, oportunidad, eficiencia y racionalidad.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 52 al 53 actual)

@@ -1,2 +1,0 @@
-Artículo 32.—Responsabilidad en la custodia del vehículo de uso discrecional. El funcionario que tenga asignado un vehículo de uso discrecional deberá velar por su custodia, uso y conservación y deberá reportar al Área de Servicios Generales, cualquier daño que afecte al vehículo.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 31 al 32 actual)

@@ -1,2 +1,0 @@
-Artículo 75.—Condenatoria a terceros. En el caso de que se condene a terceros como consecuencia del accidente, el Área de Servicios Generales y la Asesoría Legal, en coordinación con la Gerencia General, instruirá las gestiones necesarias para que se proceda a la ejecución de sentencia en sede judicial.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 74 al 75 actual)

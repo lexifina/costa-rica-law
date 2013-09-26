@@ -1,2 +1,0 @@
-Artículo 64.—De la prohibición de arreglos extrajudiciales. Ningún chofer del INCOP está autorizado para efectuar arreglos extrajudiciales. En caso de accidentes con vehículos del Instituto, debe recurrir a la Autoridad de Tránsito para que confeccione el parte que corresponda.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 63 al 64 actual)

@@ -1,2 +1,0 @@
-Artículo 60.—Informe de Recorrido y Consumo y Rendimiento. Trimestralmente, el Coordinador del Área de Servicios Generales deberá remitir a la Dirección de Gestión Administrativa-Financiera, un informe con evaluación al detalle del recorrido y consumo de todos los vehículos, indicando las observaciones correspondientes para vehículos que no circularon durante el periodo.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 59 al 60 actual)

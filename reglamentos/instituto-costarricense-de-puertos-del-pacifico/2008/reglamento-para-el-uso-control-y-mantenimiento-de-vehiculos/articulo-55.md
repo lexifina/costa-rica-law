@@ -1,2 +1,0 @@
-Artículo 55.—De la selección y contratación de talleres para mantenimiento y reparación de vehículos. Lo relativo a la selección y contratación de talleres para el mantenimiento y reparación de los vehículos del INCOP será regulado por lo establecido en el Reglamento de Contrataciones del INCOP y el Reglamento de Proveedores.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 54 al 55 actual)

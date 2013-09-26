@@ -1,2 +1,0 @@
-Artículo 57.—Asignación de combustible. El Área de Servicios Generales será el responsable de autorizar el combustible de acuerdo a la solicitud que se realicen. En el caso de los muelles y San José los encargados serán los responsables de la autorización de combustible. No obstante, en los primeros ocho días de cada mes deberán remitir un informe de la cantidad de combustible utilizado por vehículos y los kilómetros recorridos.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 56 al 57 actual)

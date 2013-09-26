@@ -1,2 +1,0 @@
-Artículo 33.—Del informe general mensual. Los funcionarios que tengan asignados vehículos de uso discrecional deberán brindar al Área de Servicios Generales, un informe general mensual sobre el gasto de combustible, así como de kilometraje de entrada y salida, reparaciones realizadas, cambios de aceite, estado físico y cualquier mejora o desmejora en el activo asignado. Este informe debe ser presentado en los primeros ocho días de cada mes.
-(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 32 al 33 actual)
