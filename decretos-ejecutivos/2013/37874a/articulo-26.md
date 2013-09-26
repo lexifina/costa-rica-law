@@ -1,0 +1,1 @@
+Artículo 26: Mercancías sujetas al contingente: El contingente de exportación de ron a granel otorgado por la Unión Europea, es aplicable a los siguientes códigos arancelarios del CN07: 2208.40.51 y 2208.40.99.

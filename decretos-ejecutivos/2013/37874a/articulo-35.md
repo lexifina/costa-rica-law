@@ -1,0 +1,1 @@
+Artículo 35: Volúmenes del Contingente: El contingente de exportación de arneses y conductores eléctricos sujeto a la regla de origen establecida en el Apéndice 2 A es de 12000 t al año. La cantidad dentro del contingente estará libre de aranceles en cualquier momento del año calendario.

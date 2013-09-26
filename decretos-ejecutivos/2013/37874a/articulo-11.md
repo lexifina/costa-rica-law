@@ -1,0 +1,7 @@
+Artículo 11: Regionalización de Volúmenes: Para aprovechar plenamente el contingente, las Republicas Centroamericanas acuerdan regionalizar los volúmenes de la manera siguiente:
+a) Las sextas partes correspondientes a los países que no están certificados para exportar a la Unión Europea 1 serán unificadas de forma automática en un volumen regionalizado2 desde el inicio del año calendario, el cual estará a disposición de los países que estén certificados, para hacer usado bajo el principio de primero en tiempo-primero en derecho, de conformidad con lo siguiente:
+(1) Los países centroamericanos que estén debidamente certificados en el cumplimiento de los standards sanitarios europeos deben notificarlo el primer día hábil del mes de diciembre del año previo a aquel para el cual se realizará la distribución.
+(2) Primera regionalización
+i. los países certificados desde el inicio del año podrán aprovechar el volumen regionalizado una vez hayan emitido certificados para la totalidad de la sexta parte que les fue distribuida originalmente;
+ii. los países que obtengan la certificación en el transcurso del año, podrán hacer uso del volumen regionalizado disponible, tan pronto notifiquen a los demás países al respecto.
+b) el 1 de julio de cada año, las Repúblicas Centroamericanas regionalizarán los volúmenes que no hayan sido asignados en Certificados de Exportación al 30 de junio de ese año.

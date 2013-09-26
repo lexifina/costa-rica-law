@@ -1,0 +1,4 @@
+Transitorio II. Principios sobre la distribución para el primer año de vigencia del Acuerdo:
+Durante el primer año de entrada en vigor del Acuerdo, la distribución de los contingentes de exportación se regirá por los siguientes principios:
+1. Distribución: el volumen regional prorrateado que corresponda al primer año de entrada en vigor del Acuerdo, será distribuido entre los países en la misma proporción establecida en este Reglamento para la distribución de cada producto. Previo a la entrada en vigor del Acuerdo, el Foro de Viceministros avalará la distribución.
+2. Regionalización: Si el Acuerdo entra en vigor durante el segundo semestre del año, no se regionalizarán los volúmenes asignados, salvo para el caso de carne de bovino en que se regionalizará el volumen correspondiente a los países no certificados.

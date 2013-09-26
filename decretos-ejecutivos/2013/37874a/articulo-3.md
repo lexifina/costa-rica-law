@@ -1,0 +1,1 @@
+Artículo 3: Administración Interna: Cada República Centroamericana administrará internamente, de manera trasparente y conforme a su legislación interna, los volúmenes de los contingentes de exportación, procurando su plena y óptima utilización y respetando las disposiciones establecidas en el presente Reglamento.

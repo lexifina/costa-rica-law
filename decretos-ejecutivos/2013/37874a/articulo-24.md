@@ -1,0 +1,1 @@
+Artículo 24: Regionalización de Volúmenes: Para aprovechar plenamente el contingente, cada Republica Centroamericana, regionalizará el 1° de julio de cada año los volúmenes que estime no va a exportar por el resto del año.

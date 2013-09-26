@@ -1,0 +1,1 @@
+Artículo 13: Volumen del contingente: El contingente de exportación de arroz es de 20 t al año, con un crecimiento anual de 1000 t. La cantidad dentro del contingente estará libre de aranceles en cualquier momento del año calendario.

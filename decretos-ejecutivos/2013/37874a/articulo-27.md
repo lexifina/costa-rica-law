@@ -1,0 +1,1 @@
+Artículo 27: Volumen del contingente: El contingente de ron es 7000 hl (equivalente en alcohol puro) al año, con un crecimiento anula de 300 hl. La cantidad dentro del contingente estará libre de aranceles en cualquier momento del año calendario.

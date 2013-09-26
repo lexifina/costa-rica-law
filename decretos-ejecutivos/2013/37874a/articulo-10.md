@@ -1,0 +1,1 @@
+Artículo 10: Distribución: Cada año el contingente de exportación de carne de bovino se distribuirá en partes iguales entre las Republicas Centroamericanas, correspondiéndole a cada una la cantidad de 1.583,33 t en el año 1 de entrada en vigor del Acuerdo, con un incremento anual sucesivo de 79.17 t, a partir del segundo año de entrada en vigor del Acuerdo.

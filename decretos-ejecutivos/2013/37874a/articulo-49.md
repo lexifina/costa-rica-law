@@ -1,0 +1,1 @@
+Artículo 49: Contingentes de exportación específicos por país otorgados por la Unión Europea: Los contingentes de exportación asignados en el Acuerdo, de manera individual y directa a una Republica Centroamericana, serán regulados exclusivamente por dicha República, conforme a su legislación interna.

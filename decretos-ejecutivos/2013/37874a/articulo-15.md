@@ -1,0 +1,1 @@
+Artículo 15: Regionalización: Para aprovechar plenamente el contingente, las Republicas Centroamericanas regionalizarán el 1 de setiembre de cada año, los volúmenes que no hayan sido asignados en certificados de exportación al 31 de agosto.

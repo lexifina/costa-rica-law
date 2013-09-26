@@ -1,0 +1,1 @@
+Artículo 7: Informe sobre exportaciones realizadas: Con el objeto de poder realizar la evaluación anual de la utilización de los contingentes regionales de exportación, las Republicas Centroamericanas comunicaran a las demás y a la SIECA, dentro del mes siguiente a la formalización de cada trimestre, la información realizada a las exportaciones realizadas.

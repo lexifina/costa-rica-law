@@ -1,0 +1,1 @@
+Artículo 33: Regionalización: Para aprovechar plenamente el contingente, cada Republica Centroamericana regionalizará el 1 de setiembre los volúmenes que no hayan sido asignados en Certificados de Exportación al 31 de agosto.

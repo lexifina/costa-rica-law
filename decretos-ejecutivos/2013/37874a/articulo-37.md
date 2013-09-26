@@ -1,0 +1,1 @@
+Artículo 37: Regionalización de volúmenes: Para aprovechar plenamente el contingente, el Salvador y Nicaragua regionalizarán el 1° de setiembre los volúmenes que no se hayan asignado en certificados de exportación al 31 de agosto.

@@ -1,0 +1,1 @@
+Artículo 31. Volumen del contingente: El contingente de exportación de plásticos sujeto a la regla de origen establecida en el Apéndice 2ª es de 5000t al año. La cantidad dentro del contingente estará libre de aranceles en cualquier momento del año calendario.

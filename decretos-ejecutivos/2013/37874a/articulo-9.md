@@ -1,0 +1,1 @@
+Artículo 9: Volumen de Contingentes: El contingente de exportación de carne de bovino es de 9 500 t (equivalente del peso en canal) al año, con un crecimiento anual de 475 t. La cantidad dentro del contingente estará libre de aranceles en cualquier momento del año calendario.
