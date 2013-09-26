@@ -1,0 +1,1 @@
+4) En el supuesto de los funcionarios de la OMM, los vehículos podrán ser enajenados, sin que el traspaso respectivo quede sujeto al pago de imposición arancelaria alguna, caso de cese, traslado o fallecimiento del funcionario beneficiario de la exoneración.
