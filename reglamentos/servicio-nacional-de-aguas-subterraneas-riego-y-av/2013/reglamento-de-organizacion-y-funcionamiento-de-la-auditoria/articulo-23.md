@@ -1,0 +1,1 @@
+Artículo 23.—Delegación de funciones. El Auditor Interno podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública. El personal queda obligado a cumplir con el marco legal, reglamentario y técnico que regula su accionar.
