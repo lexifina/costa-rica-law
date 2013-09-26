@@ -1,3 +1,1 @@
-CAPÍTULO OCTAVO
-Disposiciones finales
-Artículo 56.—Situaciones no previstas en este Reglamento. Corresponde a la Junta Directiva la resolución de aquellas situaciones no previstas en el presente Reglamento.
+Artículo 56.—Disposiciones para el Régimen Transitorio de Reparto. Las reglas dispuestas en el presente reglamento, se aplicarán en lo que sea pertinente para el Régimen Transitorio de Reparto.

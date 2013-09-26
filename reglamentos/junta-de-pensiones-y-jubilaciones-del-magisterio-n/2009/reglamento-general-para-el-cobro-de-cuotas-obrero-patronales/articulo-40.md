@@ -1,1 +1,1 @@
-Artículo 40.—Del pago de los honorarios. De conformidad con lo dispuesto en el artículo 38 de este Reglamento, los honorarios y costas procesales que están a cargo del demandado, serán pagados al profesional cuando el patrono haya cancelado el monto total de los adeudos.
+Artículo 40.—De la inexistencia de bienes. En caso de determinar que no existen bienes para embargar, el abogado asignado comunicará esta situación al Departamento Financiero Contable, quien determinará las acciones a seguir o bien la declarará como incobrable, previa aprobación de la Dirección Ejecutiva.

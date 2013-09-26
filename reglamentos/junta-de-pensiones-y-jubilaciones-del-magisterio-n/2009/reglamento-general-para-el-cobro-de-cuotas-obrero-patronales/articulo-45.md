@@ -1,1 +1,3 @@
-Artículo 45.—Del control de casos asignados. El Departamento Financiero Contable deberá llevar un control del rol de los abogados y de los casos asignados, sus estados, informes presentados, fechas de presentación, incumplimiento, si por algún motivo han presentado temporalmente su retiro o bien éste sea en forma permanente.
+CAPÍTULO SEXTO
+Otras Acciones Judiciales
+Artículo 45.—Del embargo. En todos los casos, a excepción de aquellos en se necesite la rendición de una garantía, el abogado externo procederá en el trámite inicial de la demanda a solicitar el respectivo embargo, de conformidad con los estudios registrales de bienes o de salarios, según corresponda a personas físicas o jurídicas, en cuyo caso deberá coordinar con el Departamento Financiero Contable a fin de hacerlos efectivos.

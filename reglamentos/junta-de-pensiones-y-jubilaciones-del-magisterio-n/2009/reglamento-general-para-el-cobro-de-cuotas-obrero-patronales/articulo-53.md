@@ -1,1 +1,1 @@
-Artículo 53.—De la cantidad máxima de arreglos de pago. En un plazo de un año no podrán realizarse más de dos arreglos de pago.
+Artículo 53.—De la presentación de Informes. El Departamento Financiero Contable deberá emitir a la Dirección Ejecutiva en forma trimestral en un plazo máximo de 10 días hábiles, un informe, que muestre el detalle de todos los casos que se encuentran en arreglo de pago. Dicho informe deberá ser remitido a la Junta Directiva , para su respectivo conocimiento.

@@ -1,1 +1,3 @@
-Artículo 48.—De la adjudicación. En el caso que la Junta se adjudique el bien rematado, el abogado gestionará lo pertinente para la puesta en posesión del mismo a favor de la Institución, y se procederá además a realizar de forma inmediata las acciones pertinentes para la inscripción registral. En caso de que sea un tercero el adjudicatario, deberán ejecutarse las acciones legales pertinentes para el depósito a favor de la Junta de Pensiones de lo que corresponda.
+CAPÍTULO SÉTIMO
+De los arreglos de pago
+Artículo 48.—De la formalización de los arreglos de pago.Corresponde al Departamento Financiero Contable realizar las gestiones necesarias para la formalización de los arreglos de pago. Una vez formalizado el arreglo de pago, el documento deberá ser suscrito en un plazo máximo de quince días hábiles, de lo contrario el mismo quedará rechazado y se continuará con el proceso de cobro administrativo o judicial según corresponda.

@@ -1,6 +1,3 @@
-CAPÍTULO QUINTO
-Del proceso de cobro judicial
-Artículo 32.—Del cobro judicial. Los abogados externos asumirán el cobro judicial por los siguientes conceptos:
-a). Cuotas obreras patronales.
-b). Obligaciones derivadas de las infracciones a la Ley de Pensiones y Jubilaciones del Magisterio Nacional. El derecho a reclamar montos por concepto de cuotas obrero patronales, prescribirá en el término de diez años.
-(Así reformado mediante acuerdo N° 1, publicado en La Gaceta N° 95 del 18 de mayo del 2011)
+Artículo 32.—Selección de abogados externos. La Junta de Pensiones procederá con la selección de abogados externos, quienes serán los encargados de llevar a cabo las gestiones de cobro judicial.
+La Junta de Pensiones no tendrá relación laboral ni de servicio con estos profesionales, y en consecuencia no les hará ningún reconocimiento salarial ni de otra naturaleza.
+La operativa aplicable, designación, requisitos, deberes, responsabilidades, control seguimiento para los profesionales en derecho que lleven casos de cobro judicial que estipula el artículo anterior, será normada en el correspondiente manual de procedimientos.

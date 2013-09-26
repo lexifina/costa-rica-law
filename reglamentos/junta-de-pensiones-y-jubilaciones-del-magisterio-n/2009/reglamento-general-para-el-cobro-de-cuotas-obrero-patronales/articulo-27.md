@@ -1,1 +1,1 @@
-Artículo 27.—De los procedimientos. En el procedimiento para determinación de la deuda, notificación y su contenido, recursos, formalidad, resolución final y ejecución, se debe atender en lo compatible lo dispuesto en este capítulo.
+Artículo 27.—De los Procedimientos. En el procedimiento para determinación de la deuda, notificación y su contenido, recursos, formalidad, resolución final y ejecución, se debe atender en lo compatible lo dispuesto en este capítulo.

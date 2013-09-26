@@ -1,3 +1,1 @@
-Artículo 52.—Del incumplimiento del arreglo de pago. Si una institución incumpliera con el arreglo de pago pactado, atrasándose en el primer mes, se procederá con la notificación de cobro administrativo, si en el mes siguiente a esta gestión la institución no cumpliera con lo pactado, se procederá con el cobro judicial y el arreglo de pago se dará por incumplido.
-No se podrá formalizar un nuevo arreglo de pago con base en la suma que se origina por el incumplimiento de otro arreglo de pago.
-Asimismo, aquellas instituciones que tienen un arreglo de pago vigente, no se les aceptará atrasos de sus obligaciones patronales.
+Artículo 52.—De la cantidad máxima de arreglos de pago. Se establece en tres, la cantidad máxima de arreglos de pago por institución.

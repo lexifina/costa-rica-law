@@ -1,4 +1,2 @@
-CAPÍTULO SÉTIMO
-De los arreglos de pago
-Artículo 49.—De la formalización de los arreglos de pago. Corresponde al Departamento Financiero Contable realizar las gestiones necesarias para la formalización de los arreglos de pago. Una vez formalizado el arreglo de pago, el documento deberá ser suscrito en un plazo máximo de quince días hábiles, de lo contrario el mismo quedará rechazado y se continuará con el proceso de cobro administrativo o judicial según corresponda.
-(Así reformado en sesión N° 083 del 30 de julio de 2012)
+Artículo 49.—De la solicitud del arreglo de pago. La institución morosa que se encuentre en cobro administrativo, judicial o de transgresión, según capítulo III de este Reglamento, podrá solicitar vía escrita al Departamento Financiero Contable un arreglo de pago. Éste analizará la viabilidad de la propuesta, para lo cual determinará el monto total de la deuda a la fecha de la solicitud, de acuerdo con las planillas de los periodos adeudados y emitirá un plan de pagos.
+Toda obligación que se genere producto de un arreglo de pago, devengará una tasa de interés equivalente a la tasa de interés que mantiene la institución para los créditos a pensionados del RCC, con una tasa piso del 14%.

@@ -1,2 +1,1 @@
-Artículo 54.—De la presentación de Informes. El Departamento Financiero Contable deberá emitir a la Dirección Ejecutiva en forma trimestral en un plazo máximo de 10 días hábiles, un informe, que muestre el detalle de todos los casos que se encuentran en arreglo de pago. Dicho informe deberá ser remitido a la Junta Directiva, para su respectivo conocimiento.
-(Así reformado mediante sesión ordinaria N° 011-2012 del 31 de enero del 2012)
+Artículo 54.—Categoría de Riesgo. Las instituciones que formalicen un arreglo de pago se ubicarán en categoría C-1 y C2 para instituciones sin arreglo de pago con más de noventa días de atraso, ambas categoría C o Riesgo Alto.

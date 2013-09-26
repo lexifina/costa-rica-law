@@ -1,1 +1,3 @@
-Artículo 55.—Categoría de riesgo. Las instituciones que formalicen un arreglo de pago se ubicarán en categoría C (Riesgo Alto).
+CAPÍTULO OCTAVO
+Disposiciones finales
+Artículo 55.—Situaciones no previstas en este Reglamento.Corresponde a la Junta Directiva la resolución de aquellas situaciones no previstas en el presente Reglamento.
