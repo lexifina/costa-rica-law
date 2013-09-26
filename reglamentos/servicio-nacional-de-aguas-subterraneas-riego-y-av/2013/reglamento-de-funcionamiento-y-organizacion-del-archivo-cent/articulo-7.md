@@ -1,0 +1,1 @@
+Artículo 7°—El Archivo Central estará a cargo de un profesional en Archivística o un trabajador debidamente capacitado y con experiencia en el campo. Contará además con el personal que requiera para el buen desempeño de sus funciones.

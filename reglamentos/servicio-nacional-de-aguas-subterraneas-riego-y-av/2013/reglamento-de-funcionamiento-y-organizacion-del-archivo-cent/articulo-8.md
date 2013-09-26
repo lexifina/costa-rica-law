@@ -1,0 +1,1 @@
+Artículo 8°—Los archivos de gestión son los de las diferentes unidades administrativas del Senara. Cada archivo de gestión debe tener un encargado quien organizará, conservará, facilitará los documentos y pondrá en práctica las políticas y procedimientos emanados por el Archivo Central, para la adecuada administración de los mismos.
