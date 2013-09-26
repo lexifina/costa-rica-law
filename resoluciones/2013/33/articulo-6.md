@@ -1,1 +1,0 @@
-VI. En caso de presentarse una situación no prevista en los extremos anteriores, corresponderá al importador con información proveniente del fabricante, demostrar fehacientemente ante la Administración Aduanera, el año modelo correspondiente.

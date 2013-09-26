@@ -1,1 +1,0 @@
-V. Para aquellos vehículos que ingresen nuevos, fabricados en países donde no rige el año modelo y el código VIN (Vehicle Identification Number o Número de Identificación del Vehículo), requerirán de la presentación de una declaración jurada del fabricante en la que se indique el año modelo.

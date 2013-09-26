@@ -1,1 +1,0 @@
-VII. En los casos que lo estime conveniente, Aduanera quedará facultada para analizar lo actuado, comprobándolo mediante las características físicas y datos técnicos, (Nº VIN, Nº de serie, motor, modelo, o algún otro elemento determinante) que presenten los vehículos nuevos solicitados a despacho, a efecto de confirmar el año modelo a que corresponden.

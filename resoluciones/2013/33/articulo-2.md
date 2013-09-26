@@ -1,1 +1,0 @@
-II. Todos aquellos vehículos que ingresen nuevos a Costa Rica, sin año modelo indicado en factura y sin indicación del VIN (Vehicle Identification Number o Número de Identificación del Vehículo), requerirán de la presentación de una declaración jurada del fabricante en la que se indique el año modelo.

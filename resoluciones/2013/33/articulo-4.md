@@ -1,1 +1,0 @@
-IV. Para los casos que se presente inconsistencia entre el año modelo declarado en factura y el extraído del VIN decodificado (Vehicle Identification Number o Número de Identificación del Vehículo), la autoridad Aduanera podrá solicitar al importador la aclaración pertinente con documentación emitida por el fabricante.
