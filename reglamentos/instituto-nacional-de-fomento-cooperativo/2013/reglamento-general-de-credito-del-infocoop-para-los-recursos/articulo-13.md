@@ -1,0 +1,1 @@
+Artículo 13.—Forma de votación. En los asuntos sometidos a su conocimiento, los miembros de la Comisión votarán de forma afirmativa o negativa. No es permitida la abstención al emitir el voto, con excepción de que exista conflicto de intereses. Dichos criterios deberán quedar plasmados en el acta de la Comisión de Crédito correspondiente.

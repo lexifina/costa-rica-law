@@ -1,0 +1,1 @@
+Artículo 6º—Conflicto de interés. Los integrantes de la Comisión, asesores e invitados, deberán abstenerse de participar en la discusión y resolución de asuntos que representen algún tipo de conflicto de intereses, lo cual deberá quedar constando en actas.

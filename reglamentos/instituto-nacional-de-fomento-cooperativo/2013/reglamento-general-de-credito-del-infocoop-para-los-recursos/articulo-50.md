@@ -1,0 +1,2 @@
+Artículo 50.—Asistencia técnica y otros. Los prestatarios deberán sujetarse a las recomendaciones técnicas o de otra naturaleza que eventualmente brinde el INFOCOOP en el ámbito de su competencia y de conformidad con lo establecido en el contrato de financiamiento.
+Los organismos cooperativos que en virtud de mejor criterio técnico no acepten las recomendaciones propuestas por INFOCOOP, quedarán obligados a presentar una solución alterna razonable a juicio del Instituto.

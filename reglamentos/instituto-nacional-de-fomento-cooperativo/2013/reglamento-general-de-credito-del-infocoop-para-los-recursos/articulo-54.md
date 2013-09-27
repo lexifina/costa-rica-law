@@ -1,0 +1,2 @@
+Artículo 54.—Interés moratorio. Cuando existan atrasos en el servicio de las amortizaciones se cobrarán intereses moratorios, mismos que se aplicaran sobre los montos de las amortizaciones sin pagar, desde el día de vencimiento hasta la fecha de su cancelación.
+La tasa de interés moratoria será igual a la tasa básica pasiva del BCCR más el quince por ciento y se revisará mensualmente. En caso de que el monto sea superior al límite que establece el artículo 498 del Código de Comercio de Costa Rica, prevalece la aplicación de este artículo.
