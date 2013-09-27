@@ -1,4 +1,0 @@
-CAPÍTULO IV
-Resolución del crédito
-Artículo 14.—Aprobación. Las solicitudes de crédito serán resueltas por la Junta Directiva, previo dictamen de la Comisión de Crédito de acuerdo con lo establecido en el Reglamento de ese órgano.
-El proceso de Operaciones mantendrá un registro de las solicitudes de crédito del Fondo, indicando la fecha de recepción, la fecha de asignación al oficial correspondiente y la fecha de remisión de dictamen a la Comisión de Crédito. El periodo de análisis y emisión del dictamen técnico no podrá ser superior, a 30 días naturales, para lo cual el proceso de Operaciones evaluará sólo los aspectos metodológicos de los estudios y tomará los datos que requiera de los estudios técnicos que se hubiesen realizado por parte de los consultores asignados, -cuando tal cosa hubiese sido así-, valorando los aspectos metodológicos empleados, para efectos de realizar el respectivo análisis de crédito.

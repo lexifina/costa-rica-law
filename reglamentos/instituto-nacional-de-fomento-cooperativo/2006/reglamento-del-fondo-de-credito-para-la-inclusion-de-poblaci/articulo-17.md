@@ -1,1 +1,0 @@
-Artículo 17.—Cambios en las condiciones. Cuando en la fase de Formalización se determine la necesidad de variar alguna de las condiciones aprobadas por la Junta Directiva en la resolución del crédito; el Proceso de Operaciones emitirá el informe técnico respectivo para conocimiento de la Comisión de Crédito y posterior resolución por la Junta Directiva.
