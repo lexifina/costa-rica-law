@@ -1,0 +1,1 @@
+Artículo 4º—De la forma de caucionar. Las únicas formas aceptables como garantías serán: depósito en efectivo, certificado de depósito a plazo y las pólizas de Fidelidad que extienda el Instituto Nacional de Seguros, mismas que serán con cargo al propio peculio del funcionario. Dicha póliza será a favor de la Junta Administrativa del Archivo Nacional.

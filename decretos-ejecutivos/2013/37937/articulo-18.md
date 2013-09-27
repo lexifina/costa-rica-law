@@ -1,0 +1,4 @@
+Artículo 18.—Funciones de la Unidad de Gestión Auxiliar de Recursos Humanos. Las funciones de la Unidad de Gestión Auxiliar de Recursos Humanos, que es la responsable de verificar que la persona que asuma un puesto en el que deba rendir la garantía cumpla con ese requisito, son las siguientes:
+a. Definir y mantener un registro actualizado de loscaucionantes que como mínimo contenga un detalle sobre el nombre y puesto del caucionante, fechas a partir de la cual ocupa el puesto, así como de presentación, renovación y vencimiento de la garantía, naturaleza y otras características de la garantía, el monto de la caución y otras medidas tomadas por la administración para garantizarse un monto adecuado de protección.
+b. Velar para que los caucionantes cumplan con su obligación de rendir la garantía a que se refiere el presente Reglamento en forma actualizada y eficaz.
+c. Informar con la debida antelación al caucionante el deber de renovar o actualizar la garantía.

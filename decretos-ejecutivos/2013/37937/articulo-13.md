@@ -1,0 +1,1 @@
+Artículo 13.—Mantenimiento de la caución. Elcaucionante, que sea nombrado o trasladado en su puesto dentro de la Institución, en el que deba custodiar, recaudar o administrar fondos públicos, deberá previo a su nombramiento presentar la garantía anterior y ajustarla de conformidad con el nuevo puesto.

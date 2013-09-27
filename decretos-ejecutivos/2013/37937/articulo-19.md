@@ -1,0 +1,2 @@
+Artículo 19.—Deber de informar sobre movimientos de loscaucionantes. Corresponde a la Unidad de Gestión Auxiliar de Recursos Humanos informar a la Unidad Financiero Contable, respecto del nombramiento, cese o traslado del personal en puestos que por la índole de sus funciones se encuentran obligados a presentar caución.
+Todas las dependencias que cuenten con personal obligado a rendir caución, tendrán un plazo de cinco días para informar a la Unidad de Gestión Auxiliar de Recursos Humanos, cualquier cambio que al respecto se produzca.

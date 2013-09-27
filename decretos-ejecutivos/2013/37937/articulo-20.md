@@ -1,0 +1,1 @@
+Artículo 20.—Custodia de las garantías. La Unidad Financiero Contable deberá designar un responsable diferente de aquel que controla las cauciones, para que se encargue de la custodia de valores que se presenten como garantía; dicho proceso deberá reunir condiciones adecuadas de seguridad.

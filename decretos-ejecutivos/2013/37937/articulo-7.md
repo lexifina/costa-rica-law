@@ -1,0 +1,1 @@
+Artículo 7º—Reconocimiento de intereses. No se reconocerán intereses por las garantías en depósito de dinero, mantenidas en custodia del Archivo Nacional. En cuanto a los intereses que devenguen los títulos hasta el momento en que se ejecuten, corresponderán alcaucionante.
