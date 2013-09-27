@@ -1,1 +1,0 @@
-Artículo 25.—Para realizar un embargo sobre bienes muebles o inmuebles, el abogado director del proceso deberá coordinar con el proceso de operaciones, a fin de solicitar al juzgado la entrega de dicho bien en depósito judicial a favor del INFOCOOP, así como el nombre del funcionario que fungirá como depositario judicial.

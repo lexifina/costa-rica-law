@@ -1,1 +1,0 @@
-Artículo 36.—Si adjudicado el bien el producto de dicha adjudicación no alcanzare para cancelar el total adeudado, el abogado director presentará liquidación al juzgado, a fin de que se fije el saldo al descubierto, para proceder a perseguir otros bienes de los demandados, y así hacer efectivo ese saldo.
