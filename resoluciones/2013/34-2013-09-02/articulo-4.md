@@ -1,0 +1,1 @@
+Artículo 4º—Garante emisor de la garantía. La entidad financiera o aseguradora que emite la garantía en calidad de garante, debe estar debidamente supervisada por la Superintendencia General de Entidades Financieras (SUGEF) o la Superintendencia General de Seguros (SUGESE).

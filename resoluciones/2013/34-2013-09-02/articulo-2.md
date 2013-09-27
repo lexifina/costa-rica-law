@@ -1,0 +1,3 @@
+Artículo 2º—Garantía como requisito. Para efectos de suspender en cobro conforme al artículo 144 del Código de Normas y Procedimientos Tributarios o para efectos de facilidades de pago concedidas al amparo del artículo 38 del mismo Código y de la resolución de esta Dirección N° DGT-R-033-2013, el interesado mediante una carta de ofrecimiento suministrada por la Administración Tributaria, deberá rendir dicha garantía con las características y requisitos regulados en la presente resolución.
+No se exigirá garantía cuando el solicitante sea un ente público o para los casos de aplazamientos de pago.
+El interesado podrá presentar varias garantías en lugar de una sola, siempre y cuando cumplan en conjunto con los requisitos establecidos en la presente resolución.

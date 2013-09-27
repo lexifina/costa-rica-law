@@ -1,0 +1,1 @@
+Artículo 8º—Custodia de garantías. Cada Administración Tributaria donde sea atendido el trámite por el cual se requirió la garantía, será la responsable de custodiar los originales de dichos documentos.

@@ -1,0 +1,6 @@
+Artículo 9º—Ejecución de la garantía. La garantía se ejecutará de conformidad con las normas que rigen la materia, bajo las siguientes condiciones:
+a) En caso de incumplimiento del fraccionamiento respectivo.
+b) En caso de tratarse de una garantía para suspender el trámite de cobro conforme a lo previsto por el artículo 144 del Código de Normas y Procedimientos Tributarios , cuanto no se haya rendido con al menos un mes de anticipación al vencimiento de la garantía, una nueva garantía por el mismo plazo.
+c) En caso de tratarse de una garantía para suspender el trámite de cobro, cuando la determinación de oficio adquiera firmeza, sin necesidad de trámite alguno.
+Sin importar el monto total cubierto por la garantía, la misma se ejecutará solo por el monto necesario para resarcir a la Administración Tributaria por el monto principal e intereses de la deuda tributaria calculados a la fecha de ejecución de la garantía, entendiéndose ésta como el efectivo depósito del dinero en las arcas del Estado.
+Si ejecutada una garantía el monto resulta insuficiente para indemnizar la deuda total, se procederá a imputar el pago primero a los accesorios y luego al principal, continuándose con el cobro correspondiente de la diferencia.
