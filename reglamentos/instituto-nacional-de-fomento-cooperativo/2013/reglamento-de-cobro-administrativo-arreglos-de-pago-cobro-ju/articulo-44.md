@@ -1,0 +1,1 @@
+Artículo 44.—Impedimento para obtener financiamiento.Cuando un organismo cooperativo mantenga una operación declarada como incobrable, no podrá acceder a los servicios de financiamiento del INFOCOOP hasta tanto no haya cancelado la deuda, intereses y costas legales. Lo anterior de conformidad con el historial crediticio a cargo del Área de Financiamiento.

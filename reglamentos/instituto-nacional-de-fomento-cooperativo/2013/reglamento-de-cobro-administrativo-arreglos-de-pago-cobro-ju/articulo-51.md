@@ -1,0 +1,1 @@
+Artículo 51.—Derogatorias. El presente Reglamento deroga el Reglamento de Cobro Administrativo y Cobro Judicial, el Reglamento de Arreglos de Pago, así como las normas de otros reglamentos en lo que se le opongan.

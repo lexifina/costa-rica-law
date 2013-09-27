@@ -1,0 +1,1 @@
+Artículo 45.—Liberación de garantía por tercero. Cuando una operación haya sido declarada como incobrable y exista un tercero interesado en liberar la garantía total o parcial deberá cancelar el monto correspondiente de ésta, conforme a lo estipulado en el Reglamento de Crédito del INFOCOOP.

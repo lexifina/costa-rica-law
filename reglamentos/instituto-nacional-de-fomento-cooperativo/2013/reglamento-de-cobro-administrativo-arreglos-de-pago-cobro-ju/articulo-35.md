@@ -1,0 +1,2 @@
+Artículo 35.—Remate fracasado. En caso de ausencia de postores en un primer remate, deberá procederse conforme lo establecido en la Ley de Cobro Judicial y el Código Procesal Civil de Costa Rica.
+Previamente a la celebración de cada remate el Área de Financiamiento podrá pedir, si fuera necesario, el avalúo del bien, el cual servirá de referencia para el caso que hubiere postores, a fin de defender los intereses del INFOCOOP elevando las ofertas hasta cubrir la deuda, intereses y costas, salvo que el avalúo sea inferior al saldo adeudado.
