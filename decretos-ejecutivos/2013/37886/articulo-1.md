@@ -37,7 +37,8 @@ Que para la implementación de los compromisos derivados del Protocolo de Incorp
 POR TANTO:
 Con fundamento en los artículos 1, 3, 5, 7, 36, 37, 38, 39, 52, 55 y transitorio IV del Protocolo de Guatemala y en los numérales 4 y 5 de la Declaración de la Reunión de Presidentes realizada en Managua, Nicaragua el 13 de diciembre de 2012,
 RESUELVE:
-1. Establecer un período de transición máximo de dos meses a partir de la fecha de presente Resolución para la adecuación de los sistemas, procedimientos, documentación y demás elementos que faciliten la aplicación de las disposiciones relativas al intercambio comercial entre Panamá y los demás Estados Parte del Subsistema de Integración Económica Centroamericana.
+1. Establecer un período de transición(*) máximo de dos meses a partir de la fecha de presente Resolución para la adecuación de los sistemas, procedimientos, documentación y demás elementos que faciliten la aplicación de las disposiciones relativas al intercambio comercial entre Panamá y los demás Estados Parte del Subsistema de Integración Económica Centroamericana.
+(*) (Nota de Sinalevi: Mediante Resolución N° 319-2013 (COMIECO-EX) del 12 de agosto del 2013, aprobada mediante decreto ejecutivo N° 37922 del 23 de agosto de 2013, se resolvió prorrogar, hasta el 15 de octubre de 2013, el período de transición acordado en la Resolución N° 310-2013 (COMIECO-LXV) para la adecuación de los sistemas, procedimientos, documentación y demás elementos que faciliten la aplicación de las disposiciones relativas al intercambio comercial entre Panamá y los demás Estados Parte del Subsistema de Integración Económica Centroamericana)
 2. La presente Resolución entra en vigor inmediatamente y será publicada por los Estados Parte.
 San José, Costa Rica, 21 de junio de 2013
 [imagen]

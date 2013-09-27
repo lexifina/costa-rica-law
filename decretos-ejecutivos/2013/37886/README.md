@@ -14,3 +14,4 @@ Publica Resolución N° 310-2013 (COMIECO-LXV) de 21/06/2013: Establece período
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-27 | la propia norma |
+| 2 | 2013-09-27 | Decreto Ejecutivo 37922 (2013-08-23) |
