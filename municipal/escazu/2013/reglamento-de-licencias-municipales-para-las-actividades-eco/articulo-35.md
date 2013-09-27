@@ -1,0 +1,1 @@
+Artículo 35.—Únicamente el contribuyente, su representante legal o persona debidamente autorizada por el patentado o patentada, pueden examinar los datos y anexos consignados en sus respectivas declaraciones juradas; asimismo, cualquier expediente que contemple ajustes o reclamaciones formuladas sobre dichas declaraciones.

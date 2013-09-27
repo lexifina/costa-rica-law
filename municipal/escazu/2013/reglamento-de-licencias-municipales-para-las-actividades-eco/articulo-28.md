@@ -1,0 +1,1 @@
+Artículo 28.—En los casos en que las empresas tengan autorización de la Dirección General de Tributación para funcionar con período fiscal diferente, los sujetos pasivos deberán comunicarlo al Proceso de Licencias Municipales por escrito, antes del vencimiento del período, para el registro correspondiente y el plazo para la presentación será igualmente de ochenta días naturales.

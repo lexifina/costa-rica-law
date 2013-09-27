@@ -1,0 +1,1 @@
+Artículo 90.—Compete al Proceso de Licencias Municipales la tramitación y resolución de todo lo relacionado con la Ley de licencias para actividades Lucrativas y no lucrativas del Cantón de Escazú, y con el Reglamento, así como velar por el fiel cumplimiento de dichas normas y de cualquier otro cuerpo normativo que regule ésta y otras materias sobre otorgamiento de licencias.

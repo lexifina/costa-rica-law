@@ -1,0 +1,1 @@
+Artículo 72.—La no cancelación del impuesto dentro del plazo señalado hará que la Municipalidad imponga una multa de uno a diez veces el monto dejado de pagar, elcuál deberá ser cancelado en el mismo mes.

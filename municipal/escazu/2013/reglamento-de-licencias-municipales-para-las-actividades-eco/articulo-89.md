@@ -1,0 +1,1 @@
+Artículo 89.—Para cumplir con lo señalado en el artículo anterior, la jefatura del Proceso de Licencias Municipales, deberá velar porque cada una de las actividades lucrativas del Cantón cuente con un expediente, en donde se archivarán en orden cronológico y debidamente foliados, todos los documentos relacionados con dicha actividad.
