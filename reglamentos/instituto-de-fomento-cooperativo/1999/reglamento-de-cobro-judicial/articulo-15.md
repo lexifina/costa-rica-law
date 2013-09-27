@@ -1,1 +1,0 @@
-Artículo 15.—Una vez presentada la demanda ante el Juzgado, el proceso de operaciones, deberá trasladar a cartera de cobro judicial las operaciones respectivas, tanto en el módulo de cartera como en el módulo de contabilidad.

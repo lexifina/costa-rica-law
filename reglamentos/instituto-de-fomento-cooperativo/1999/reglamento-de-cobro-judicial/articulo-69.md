@@ -1,2 +1,0 @@
-Artículo 69.—Los gastos se cancelarán con base a detalle y respaldo de los gastos efectivamente realizados. Se deberá aportar la respectiva factura timbrada, y en caso de haber utilizado Entero del Gobierno para el pago de especies y derechos de Registro, se adjuntará una copia legible de éste.
-(Así corrida su numeración en sesión N° 3594 del 27 de noviembre de 2006, que lo traspasó del antiguo 68 al 69 actual del artículo)

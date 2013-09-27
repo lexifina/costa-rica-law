@@ -1,1 +1,0 @@
-Artículo 28.—En los embargos de salario, corresponde al abogado director velar porque se estén realizando las respectivas retenciones y tramitará su giro. Asimismo para efectos del giro, debe verificar la correcta aprobación de la liquidación presentada.

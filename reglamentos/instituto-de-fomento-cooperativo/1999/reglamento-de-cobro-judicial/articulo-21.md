@@ -1,1 +1,0 @@
-Artículo 21.—La suspensión provisional del juicio de cobro judicial la aprobará la junta directiva o la dirección ejecutiva, según corresponda, sustentado en criterio técnico. Dicha decisión será comunicada al abogado director dentro de los cinco días siguientes, para que realice el trámite respectivo.

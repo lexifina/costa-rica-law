@@ -1,5 +1,0 @@
-Artículo 7º—Las gestiones de cobro administrativo cumplen una secuencia de acciones determinadas que se extienden desde que el Organismo cooperativo incurra en mora en sus operaciones, según el siguiente detalle:
-a) Dentro de los primeros cinco días de morosidad se realizarán llamadas telefónicas y se enviará aviso por escrito sólo al deudor, comunicando el incumplimiento, y previniéndolo para regularizar la operación.
-b) Dentro de los quince días de morosidad se enviará carta certificada, tanto al deudor como a los demás obligados, en los mismos términos del inciso anterior.
-c) Al cumplirse un mes de morosidad, se enviará carta de abogado al deudor con copia a los demás obligados, solicitándoles la regularización del crédito dentro del plazo improrrogable de ocho días, contados a partir del momento en que se envíe esta carta por correo certificada.
-d) Previo al inicio de cobro se realizará un proceso de diagnóstico de la empresa y de negociación a fin de determinar la naturaleza, la causa de la morosidad y establecer mecanismos para la normalización del crédito. En caso de no viabilidad se iniciará la solicitud de cobro judicial.
