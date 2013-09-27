@@ -1,0 +1,1 @@
+Artículo 2º— Las Instancias Multisectoriales señaladas en el considerando número dos, dentro del marco legal respectivo, podrán contribuir con recursos económicos, humanos y materiales, en las actividades que se realicen para el desarrollo de “El Festival de las Ballenas”, durante el referido mes en la Región Brunca.
