@@ -1,2 +1,0 @@
-Artículo 24.—Cambios en las condiciones. Cuando en el proceso de Formalización se determine la necesidad de variar alguna de las condiciones aprobadas por la Junta Directiva en la resolución del crédito; el Proceso de Operaciones emitirá el informe técnico respectivo para conocimiento de la Comisión de Crédito y posterior resolución por la Junta Directiva.
-(Así corrida su numeración en sesión N° 3492 del 12 de setiembre del 2005, que lo traspasó del antiguo 22 al 24 actual del artículo ).
