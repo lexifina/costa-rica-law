@@ -21,3 +21,4 @@ Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el
 (Modificado por el artículo 1° del decreto ejecutivo N° 37845 del 18 de julio del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37868 del 8 de agosto del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37896 del 12 de agosto del 2013)
+(Reformado por los artículos 2° y 3° de la ley N° 9166 del 16 de setiembre de 2013)
