@@ -1,0 +1,2 @@
+Artículo 3.- Modifícase el artículo 2° de la Ley No. 9103, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico de 2013, publicada en el Alcance Digital No. 204 a La Gaceta No. 242 del 14 de diciembre de 2012, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance digital N° 124 a La Gaceta N° 180 del 19 de setiembre de 2013)
