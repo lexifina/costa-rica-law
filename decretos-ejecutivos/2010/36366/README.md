@@ -18,3 +18,4 @@ Reglamento de Organización del Ministerio de Seguridad Pública
 | 3 | 2012-08-06 | Decreto Ejecutivo 37310 (2012-08-06) |
 | 4 | 2013-08-26 | Decreto Ejecutivo 37949 (2013-08-26) |
 | 5 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
+| 6 | 2013-09-30 | Decreto Ejecutivo 37991 (2013-09-30) |
