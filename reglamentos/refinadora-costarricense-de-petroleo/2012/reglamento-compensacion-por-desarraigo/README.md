@@ -14,3 +14,4 @@ Reglamento Compensación por Desarraigo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-10 | la propia norma |
+| 2 | 2013-09-30 | Reglamento 4746 (2013-09-30) |

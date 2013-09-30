@@ -1,5 +1,7 @@
+(Derogado)
 MODIFICACIÓN DEL REGLAMENTO COMPENSACIÓN POR DESARRAIGO
 DE RECOPE:
+(Este reglamento fue derogado mediante sesión ordinaria N° 4746-299 del 30 de setiembre del 2013)
 “ ” “Refinadora Costarricense de Petróleo S.A. (RECOPE)
 Reglamento Compensación por Desarraigo
 Artículo 1. Definición
