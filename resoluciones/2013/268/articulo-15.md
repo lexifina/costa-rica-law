@@ -1,0 +1,1 @@
+XV. Dar por evacuadas y contestadas las oposiciones presentadas contra la “Propuesta de ajuste tarifario para el servicio de Telefonía Fija”, sometida la audiencia pública el día 21 de agosto de 2013.

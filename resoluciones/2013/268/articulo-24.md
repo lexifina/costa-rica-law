@@ -1,0 +1,1 @@
+XXIV. Establecer que la actual fijación tarifaria elimina para el servicio de telefonía fija la diferenciación tarifaria entre períodos pleno y reducido, dejando a discreción del operador la posibilidad de establecer una diferenciación tarifaria en ese sentido.

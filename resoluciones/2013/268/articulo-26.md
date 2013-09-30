@@ -1,0 +1,1 @@
+XXVI. Establecer que el actual procedimiento no afecta ni modifica las condiciones de prestación y calidad del servicio telefónico fijo, de tal manera que los servicios destacados anteriormente seguirán siendo sujetos de las condiciones de calidad establecidas en el Reglamento de Prestación y Calidad de los Servicios.

@@ -1,0 +1,1 @@
+XVII. Aclarar que la tarifa de acceso de telefonía fija no contiene un paquete de minutos, siendo que queda a discreción del operador y de su estrategia comercial la posibilidad de incluir o no minutos en dicha tarifa.

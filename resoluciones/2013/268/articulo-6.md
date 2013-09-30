@@ -1,0 +1,1 @@
+VI. Aclarar que las tarifas propuestas por la SUTEL pueden ser cobradas en moneda extranjera, según las políticas contables y comerciales de cada proveedor, indicando que en ningún momento los cobros realizados a los usuarios finales del servicio de telefonía fija podrán exceder las tarifas tope establecidas.

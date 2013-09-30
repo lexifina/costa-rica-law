@@ -1,0 +1,5 @@
+XXVII. Establecer que las tarifas fijadas mediante esta resolución entrarán en vigencia a partir de su publicación en el diario oficial La Gaceta.
+En cumplimiento de lo que ordenan los artículos 58, 344, 345 y 346 de la Ley General de la Administración Pública y el artículo 53 inciso o) de la Ley de Autoridad Reguladora de los Servicios Públicos, se indica que contra esta resolución caben el recurso ordinario de revocatoria o reposición ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo, y el recurso de apelación, el cual corresponde a la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos resolver, el cual o los cuales deberán interponerse en el plazo de 3 días, contados a partir del día siguiente a la notificación de la presente resolución.
+Notifíquese, publíquese e inscríbase en el Registro Nacional de Telecomunicaciones.
+La anterior transcripción se realiza a efectos de comunicar el acuerdo citado adoptado por el Consejo de la Superintendencia de Telecomunicaciones.
+Consejo de la Superintendencia de Telecomunicaciones

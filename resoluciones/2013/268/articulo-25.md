@@ -1,0 +1,1 @@
+XXV. Aclarar que bajo este procedimiento sólo se están modificando las tarifas a consumidor final de telefonía fija, por lo tanto los cargos de interconexión en las redes fijas y en las redes móviles se mantienen en los montos establecidos.
