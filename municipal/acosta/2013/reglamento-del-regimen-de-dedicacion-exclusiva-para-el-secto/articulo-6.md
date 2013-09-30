@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento para acogerse al Régimen de Dedicación Exclusiva
+Artículo 6º—Para acogerse al régimen de Dedicación Exclusiva de la Municipalidad de Acosta, cada uno de los profesionales Interesados deberá firmar el contrato respectivo con esta Institución el cual se Insertará en su expediente laboral, así como los distintos movimientos qué en virtud del mismo se produzcan: Dicho contrato estará confeccionado en un original que se conservará en el Departamento de Recursos Humanos de la Municipalidad (o bien en la Alcaldía) y dos copias, una al servidor, y otra para el Alcalde Municipal.

@@ -1,0 +1,3 @@
+Artículo 4º—La Municipalidad, a efecto de obtener el mejor rendimiento de los profesionales que tiene y contratará para el desempeño de aquellos puestos donde el requisito legal es poseer un grado profesional, aplicará el incentivo por dedicación exclusiva bajo los siguientes porcentajes:
+a) Un 55% sobre el salario base del puesto para los que posean el grado de Licenciatura.
+b) Un 20% sobre el salario base del puesto, para aquellos que posean el grado de Bachillerato universitario.
