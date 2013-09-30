@@ -14,3 +14,4 @@ Reglamento al artículo 62 del Código Municipal para otorgar donaciones y ayuda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-16 | la propia norma |
+| 2 | 2013-09-30 | Reglamento municipal 40 (2013-09-30) |
