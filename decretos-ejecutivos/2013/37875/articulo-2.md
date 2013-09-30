@@ -1,0 +1,15 @@
+Artículo 2º—Definiciones. Para los efectos del presente Reglamento, se entiende por:
+• AACUE: El Acuerdo por el que se establece una Asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro, Ley de Aprobación N° 9154 del 3 de julio de 2013.
+• Anexo I: El Anexo I “Eliminación de Aranceles Aduaneros” del AACUE.
+• Apéndice 1: El Apéndice 1 “Contingentes Arancelarios de Importación de las Repúblicas de la Parte CA” del Anexo I del AACUE, en el que se establecen los contingentes de importación otorgados por Centroamérica para los productos originarios procedentes de la Unión Europea.
+• Apéndice 2: El Apéndice 2 “Contingentes Arancelarios de Importación de la Parte UE” del Anexo I del AACUE, en el que se establecen los contingentes de importación otorgados por la Unión Europea para los productos originarios procedentes de Centroamérica.
+• Apéndice 2A: El Apéndice 2A “Addendum de la lista de las elaboraciones o transformaciones que deben aplicarse a los materiales no originarios para que el producto transformado pueda obtener el carácter originario” del Anexo II “Relativo a la Definición del Concepto de “Productos Originarios” y Métodos de Cooperación Administrativa” del AACUE.
+• Centroamérica: Las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá.
+• Certificado de Exportación: El documento requerido en el país de importación para utilizar los contingentes establecidos en los Apéndices 1, 2 y 2A.
+• COMEX: El Ministerio de Comercio Exterior, creado mediante Ley N° 7638 del 30 de octubre de 1996; Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica.
+• CN07: La Nomenclatura del Sistema de Clasificación Arancelario de la Unión Europea al 2007 (“Combined Nomenclature 2007”).
+• Contingentes de Exportación Regionales: Los volúmenes otorgados a Centroamérica por la Unión Europea conforme con las disposiciones de los Apéndices 2 y 2A.
+• Contingentes de Importación Específicos: Los volúmenes otorgados a la Unión Europea por Costa Rica conforme con las disposiciones del Apéndice 1.
+• Contingentes de Importación Regionales: Los volúmenes otorgados a la Unión Europea por parte de Centroamérica, conforme con las disposiciones del Apéndice 1 y que no tienen un volumen diferenciado por cada país centroamericano.
+• Regionalización: La acción por medio de la cual, las Repúblicas Centroamericanas, ponen a disposición entre sí los volúmenes que no hayan sido asignados en Certificados de Exportación en los plazos previstos para cada producto por el Reglamento Centroamericano.
+• Reglamento Centroamericano: El Reglamento Centroamericano para la Administración de los Contingentes Regionales del Acuerdo por el que se establece una Asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro; emitido mediante Resolución N° 315-2013 (COMIECO-EX) del 5 de julio de 2013 del Consejo de Ministros de Integración Económica, adoptada por Costa Rica mediante Decreto Ejecutivo N° 37874-COMEX del 30 de julio de 2013.

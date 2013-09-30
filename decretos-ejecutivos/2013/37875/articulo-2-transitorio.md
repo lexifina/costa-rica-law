@@ -1,0 +1,1 @@
+Transitorio II.—A más tardar dentro de los quince días posteriores a la entrada en vigor del AACUE, COMEX publicará un aviso con el detalle de los contingentes disponibles, a fin de que los interesados gestionen autorizaciones de importación o bien certificados de exportación.

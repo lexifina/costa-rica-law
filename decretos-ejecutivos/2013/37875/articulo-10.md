@@ -1,0 +1,1 @@
+Artículo 10.—Plazos. Las importaciones de los contingentes de importación regionales o específicos a que se refiere el presente Reglamento, deberán efectuarse a más tardar el 31 de diciembre del año para el cual corresponde la asignación.

@@ -1,0 +1,1 @@
+Artículo 9º—Control de utilización de volúmenes regionales. Para efectos de control regional, la información relativa a los volúmenes de contingentes de importación regionales autorizados en Costa Rica, se pondrá a disposición de los países de Centroamérica en los medios oficiales designados, al efecto, a nivel regional.
