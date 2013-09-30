@@ -1,0 +1,1 @@
+11. De conformidad con lo establecido en el Por Tanto XVIII de la RCS-274-2011, se establece que los usuarios únicamente podrán portarse un máximo de 5 veces durante un año calendario, siendo que a partir de la sexta solicitud de portación en el mismo año calendario esta será considerada una causal de rechazo a la solicitud.

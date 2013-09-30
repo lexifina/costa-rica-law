@@ -1,0 +1,1 @@
+4. La deuda de un usuario derivada de la existencia de un terminal subsidiado dentro de un contrato de pos pago, no constituye una causal inmediata de rechazo de la solicitud de portabilidad numérica, por lo que se deberá recibir y tramitar la respectiva solicitud de portabilidad.
