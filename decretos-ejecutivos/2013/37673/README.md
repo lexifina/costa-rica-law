@@ -14,3 +14,4 @@ Reforma Regl. de Control Migratorio y Regl. de Extranjería y implementa por un 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-26 | la propia norma |
+| 2 | 2013-09-30 | Decreto Ejecutivo 37990 (2013-09-30) |
