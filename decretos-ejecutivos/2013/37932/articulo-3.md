@@ -1,0 +1,1 @@
+Artículo 3°—Derogación. Deróguese el apartado 7.2.4.3 del Artículo 1º del Decreto Ejecutivo N° 37341-MEIC del 31 de agosto del 2012, “RTCR 452: 2011 Barras y Alambres de Acero de Refuerzo para Concreto. Especificaciones”, publicado en el Alcance Digital 152 de La Gaceta N° 197 del 11 de octubre del 2012, el resto se mantiene incólume.
