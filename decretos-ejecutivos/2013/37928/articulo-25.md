@@ -1,0 +1,1 @@
+Artículo 25.—La Comisión no podrá aprobar dos o más becas y/o facilidades de capacitación simultáneas, para un (a) mismo (a) funcionario(a), salvo casos de necesidad institucional debidamente justificada.

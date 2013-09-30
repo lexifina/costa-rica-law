@@ -1,0 +1,1 @@
+Artículo 7º—La OGIRH es la unidad del MCJ responsable de la administración de los concursos para el otorgamiento de becas y facilidades, previa autorización del Despacho Ministerial, y conforme se regula en el presente Reglamento.

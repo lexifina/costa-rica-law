@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento regula la adjudicación de becas y otras facilidades para la capacitación y formación de los funcionarios del Ministerio de Cultura y Juventud, tendientes a lograr un mejor desarrollo de su recurso humano, en procura de una prestación más eficiente del servicio que presta, y del logro de los objetivos para los que el Ministerio fue creado.

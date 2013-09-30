@@ -1,0 +1,1 @@
+Artículo 12.—Las sesiones de la Comisión serán privadas, no obstante ésta podrá solicitar la comparecencia de algún(a) funcionario(a) cuando lo estime conveniente. Igualmente podrá conceder audiencia al (a la) funcionario(a) que así lo solicite.

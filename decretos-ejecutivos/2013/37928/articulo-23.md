@@ -1,0 +1,3 @@
+Artículo 23.—La Comisión adjudicará la beca o facilidad para asistir a programas de capacitación o realizar estudios dentro o fuera del país, mediante acuerdo que justifique la selección realizada, debiendo indicar expresamente que se han cumplido las formalidades que establece este Reglamento.
+Este acuerdo será comunicado por escrito al (a la) interesado (a), dentro de los cinco primeros días hábiles, contados a partir de la adjudicación.
+Cuando algún miembro de la Comisión tenga interés de participar como candidato a una beca o facilidad, deberá abstenerse de participar en el proceso de adjudicación de la misma.

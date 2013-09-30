@@ -1,0 +1,1 @@
+Artículo 33.—Derogar el Decreto Ejecutivo Nº 28413-C “Reglamento de Becas y Facilidades de Capacitación y Desarrollo del Recurso Humano del Ministerio de Cultura, Juventud y Deportes” del 6 de enero del 2000, publicado en La Gaceta N° 22 del 01 de febrero del 2000, en todos sus extremos.

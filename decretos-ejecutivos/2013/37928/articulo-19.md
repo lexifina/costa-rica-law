@@ -1,0 +1,1 @@
+Artículo 19.—En casos de excepción que sean de importancia para el MCJ, la Comisión podrá aprobar en forma extraordinaria algún concurso, siempre y cuando haya habido una divulgación mínima con 48 horas de anticipación de las bases que rigen el concurso.

@@ -1,0 +1,1 @@
+Artículo 24.—La Comisión no aprobará becas o facilidades de capacitación que no hayan sido tramitadas previamente, de conformidad con lo establecido en el presente Reglamento; por lo que la OGIRH no podrá reconocer el certificado correspondiente para ningún efecto.
