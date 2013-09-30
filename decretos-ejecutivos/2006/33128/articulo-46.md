@@ -1,4 +1,0 @@
-Artículo 46.—Incompatibilidades de funcionarios del Ministerio.
-No podrán ser acreditados como instructores de las empresas privadas autorizadas para impartir los cursos a los que hace alusión la Ley y este Reglamento, aquellos funcionarios del Ministerio que tengan algún tipo de ingerencia directa en la aplicación de los controles o trámites que contempla la Ley y el presente Reglamento, o en razón de alguna otra incompatibilidad.
-De igual forma, no podrán ser acreditados como instructores aquellos funcionarios del Ministerio que por Ley les esté prohibido, sea por la índole de sus funciones o porque expresamente así se indique, laborar como instructor en ese tipo de entidades autorizadas.
-En todo caso, los funcionarios del Ministerio que sean acreditados como instructores, no podrán realizar dicha labor en forma tal que afecte en alguna medida su desempeño u horario como servidor público.

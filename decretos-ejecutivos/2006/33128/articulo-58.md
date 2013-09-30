@@ -1,2 +1,0 @@
-Artículo 58.—Autorización. Para obtener la autorización de la Dirección para el ejercicio de la seguridad privada, la empresa deberá cumplir con los requisitos establecidos en los artículos 13 de la Ley y 23 de este Reglamento.
-Una vez autorizada, la empresa comunicará a la Dirección los agentes que ha incluido y que laborarán para ella, consignando los requisitos establecidos en el artículo 23 antes citado.

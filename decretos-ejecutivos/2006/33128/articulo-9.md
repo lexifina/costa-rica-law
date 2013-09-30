@@ -1,2 +1,0 @@
-Artículo 9º—Informes de la Inspección General de Trabajo.
-La Inspección General de Trabajo del Ministerio de Trabajo y Seguridad Social, enviará a la Dirección copia de los informes que se produzcan en el ejercicio de la función dispuesta en el artículo 20 de la Ley. La Dirección, por intermedio de su Departamento de Inspecciones, dentro de los treinta días naturales siguientes al recibo de los informes, estará obligada a ejercer los mecanismos de control sugeridos y a comunicar sus resultados cada tres meses a la Inspección General de Trabajo.

@@ -1,2 +1,0 @@
-Artículo 17.—Recurso de revisión. En caso de que alguno de los miembros de la Comisión interponga recurso de revisión contra un acuerdo, el mismo deberá plantearse a más tardar al discutirse el acta y resolverse en la misma sesión, a menos que, por tratarse de un asunto que el Ministro o su representante juzgue urgente, prefiera conocerlo en sesión extraordinaria.
-Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas recursos de revisión, para efectos del inciso anterior.

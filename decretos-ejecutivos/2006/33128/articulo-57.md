@@ -1,1 +1,0 @@
-Artículo 57.—Objeto de las empresas de seguridad privada. Las personas físicas o jurídicas podrán constituir empresas de seguridad privada para prestar el servicio de vigilancia, asesoramiento, adiestramiento y protección de bienes muebles e inmuebles a terceros, sean personas físicas o jurídicas, que contraten sus servicios.

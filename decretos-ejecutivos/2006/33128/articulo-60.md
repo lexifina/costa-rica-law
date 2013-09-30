@@ -1,1 +1,0 @@
-Artículo 60.—Uniforme. Los agentes de seguridad privada que brinden seguridad física, deberán vestir el uniforme y el distintivo previamente inscrito por la empresa ante la Dirección, salvo las excepciones de Ley.

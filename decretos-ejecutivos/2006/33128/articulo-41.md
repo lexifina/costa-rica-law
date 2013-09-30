@@ -1,1 +1,0 @@
-Artículo 41.—Investigación privada. Las personas físicas que presten los servicios de investigación privada, además del Curso Básico de Seguridad Privada, deberán aprobar el Curso para Investigadores Privados.

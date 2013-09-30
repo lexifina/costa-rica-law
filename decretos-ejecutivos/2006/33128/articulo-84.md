@@ -1,2 +1,0 @@
-Artículo 84.—Uso de sustancias controladas. Antes de la colocación de los encuentros, un equipo canino revisará cada área de búsqueda, para asegurar que se encuentran libres de contaminación.
-Las sustancias controladas usadas para la certificación serán cantidades variables y se variarán las envolturas. La colocación de los encuentros variará en altura y profundidad, y se realizará al menos con veinte minutos de anticipación antes de las búsquedas.
