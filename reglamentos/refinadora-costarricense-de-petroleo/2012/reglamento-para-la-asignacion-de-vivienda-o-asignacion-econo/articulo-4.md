@@ -1,3 +1,0 @@
-Artículo 4. Alcance
-La asignación de vivienda o asignación económica para arrendamiento de vivienda, no constituyen salario en especie ni derecho adquirido. Dichas asignaciones deben suprimirse en el momento en que se modifiquen las circunstancias que dieron origen a su disfrute, sin que proceda por ello indemnización alguna.
-Los funcionarios que a la fecha de entrada en vigencia del presente reglamento gocen de la asignación de vivienda o de la facilidad económica para el arrendamiento de vivienda, mantendrán los mismos derechos y beneficios que por tal concepto venían disfrutando, mientras se mantengan las circunstancias que llevaron a otorgarle el mismo.
