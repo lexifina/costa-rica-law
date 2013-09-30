@@ -1,0 +1,2 @@
+Artículo 24.—De la evaluación de los niños y niñas: La evaluación es un proceso de observación o por medio de crónicas diarias o semanales, listas de cotejo de las actividades realizadas, que culminará en un reporte semestral, registrándose en términos cualitativos de acuerdo al nivel alcanzado por el niño o niña en las diferentes áreas de desarrollo.
+La Evaluación debe estar basada en el plan de estudio Ciclo Materno Infantil del Ministerio de Educación Pública y el modelo de atención referido a la Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil.

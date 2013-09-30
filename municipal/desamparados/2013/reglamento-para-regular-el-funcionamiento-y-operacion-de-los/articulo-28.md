@@ -1,0 +1,1 @@
+Artículo 28.—El Personal técnico, administrativo y de servicio, deberá llevar a cabo las tareas y funciones concernientes a su cargo con responsabilidad, de acuerdo al principio del interés superior del niño y observando las directrices de la Coordinación Técnica el Centro.

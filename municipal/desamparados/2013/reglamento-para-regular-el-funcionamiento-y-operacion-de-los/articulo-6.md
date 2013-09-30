@@ -1,0 +1,1 @@
+Artículo 6º—Propiedad de los inmuebles en los que se establecerán los CECUDI: La titularidad de los terrenos corresponderá a la Municipalidad de Desamparados, institución que deberá asegurar que los terrenos sean aptos para construir; que cuenten con agua potable, electricidad y caminos.

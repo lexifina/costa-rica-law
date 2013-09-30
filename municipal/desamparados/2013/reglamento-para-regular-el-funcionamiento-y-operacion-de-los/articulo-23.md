@@ -1,0 +1,1 @@
+Artículo 23.—Del programa de atención: El programa de atención que se desarrolla en el Centro desde estar basado en el Plan de estudio del Ciclo Materno Infantil del Ministerio de Educación de Costa Rica y el modelo de atención referido por la Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil.

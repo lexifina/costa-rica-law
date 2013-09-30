@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión de Asuntos Sociales del Concejo Municipal y la Unidad de Desarrollo Social de la Municipalidad serán los encargados de recomendar ante el Concejo Municipal que cada niño elegido cumpla con los requerimientos establecidos por el IMAS. De no ser así deberá cancelarse ese cupo y admitir uno que si califique.
