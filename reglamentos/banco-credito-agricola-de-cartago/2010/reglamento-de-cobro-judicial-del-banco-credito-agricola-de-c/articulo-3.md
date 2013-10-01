@@ -1,1 +1,0 @@
-Artículo 3º—Responsables. Serán responsables de la aplicación de este Reglamento, los colaboradores de la Oficina de Cobro Administrativo y Judicial, los abogados internos y los contratados por el Banco para llevar a cabo los procesos de cobro judicial y los colaboradores de los Puntos Comerciales que llevan a cabo la función de cobro.

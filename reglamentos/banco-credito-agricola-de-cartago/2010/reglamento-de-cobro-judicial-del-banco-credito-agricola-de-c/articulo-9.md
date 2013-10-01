@@ -1,1 +1,0 @@
-Artículo 9º—Supervisión del Cobro Judicial. La supervisión y control del cobro judicial, se llevará centralizada por medio de oficina de Cobro Administrativo y Judicial, sin perjuicio de la labor de fiscalización de la Auditoría Interna del Banco.

@@ -1,1 +1,0 @@
-Artículo 11.—Poder Judicial Especial. Se autoriza extender Poder Judicial Especial a los abogados destacados en diferentes zonas del país, cuando sea necesario, para agilizar los trámites de presentación ante los Tribunales Locales, de acuerdo a las políticas establecidas por el Banco.

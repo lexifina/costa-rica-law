@@ -1,1 +1,0 @@
-Artículo 18.—Renuncia del Abogado Director. El abogado que por alguna razón personal desee dejar de prestar sus servicios al Banco, deberá comunicar esa decisión con treinta días hábiles de antelación a la Gerencia General y ofrecer un informe detallado sobre el estado de cada juicio y la etapa en la que se encuentra.

@@ -1,1 +1,0 @@
-Artículo 30.—De la evaluación de los abogados. La Gerencia deberá presentar a conocimiento de la Junta Directiva, durante los meses de enero y julio de cada año, un informe sobre el resultado de la evaluación de la gestión que realizan los abogados del Banco.

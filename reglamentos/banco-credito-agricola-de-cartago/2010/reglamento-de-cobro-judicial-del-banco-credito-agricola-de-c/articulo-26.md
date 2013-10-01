@@ -1,5 +1,0 @@
-Artículo 26.—Régimen disciplinario de los abogados. Se suspenderá la entrega de nuevos juicios, por un plazo de tres meses a un año, al abogado que:
-a) Sea suspendido por cualquier plazo menor a seis meses, por órganos jurisdiccionales o administrativos en el ejercicio de la profesión, aunque sea por causas ajenas a su relación con el Banco.
-b) Tenga una operación de crédito en cobro judicial, en cualquier entidad Supervisada por la Superintendencia General de Entidades Financieras, sea como deudor o fiador, luego de contratado. La entrega de juicios se le suspenderá, hasta que normalice su situación.
-Al abogado que sea suspendido en sus funciones notariales, se le suspenderá automáticamente la entrega de nuevos cobros judiciales. Los abogados que sean suspendidos por faltas en los trámites de cobro judicial, automáticamente serán suspendidos en sus funciones notariales, durante el tiempo que rija la suspensión.
-El abogado deberá mantener la garantía, hasta que cumpla con todas las obligaciones e inscripción de los documentos.

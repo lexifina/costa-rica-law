@@ -1,5 +1,0 @@
-Artículo 17.—De la ausencia temporal del abogado. Cuando un abogado tenga que ausentarse por un plazo mayor de tres días de su oficina por cualquier motivo, y por un plazo que afecte el cumplimiento del objeto de su contrato, deberá comunicarlo de forma previa y por escrito al Banco, plazo en el que se le suspenderá la entrega de nuevos casos, al ser temporalmente excluido del rol por el lapso de su ausencia.
-· Si la ausencia se prolonga más de dos semanas, el abogado deberá designar a otro Abogado el seguimiento de juicios a su cargo.
-· Si la ausencia del abogado se prolonga por más de un mes, deberá solicitar autorización a la Gerencia General, con una anticipación de al menos cinco días hábiles, indicando las medidas que tomará para que los casos que tiene asignados no tengan ningún inconveniente.
-· Los permisos, en ningún caso podrán ser renovados, ni exceder el plazo de 6 meses.
-· Si la ausencia del abogado se debe a motivos de salud, estudios y/o nombramiento en cargo público legalmente incompatible con su labor o cualquier otra causa justificable, el plazo podrá ser ampliado por un período mayor, a juicio de la Gerencia General.

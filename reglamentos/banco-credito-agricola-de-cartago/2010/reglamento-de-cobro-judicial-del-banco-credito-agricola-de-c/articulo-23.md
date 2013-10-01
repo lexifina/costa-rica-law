@@ -1,1 +1,0 @@
-Artículo 23.—Estudio de retenciones judiciales. El abogado debe realizar los estudios de retenciones o depósitos judiciales en los juzgados respectivos y solicitar oportunamente la respectiva orden de giro. La Oficina de Cobro Administrativo y Judicial, establecerá un control sobre la diligente gestión de los abogados en tal sentido.

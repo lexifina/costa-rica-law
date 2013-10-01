@@ -1,3 +1,0 @@
-Artículo 25.—Del pago de honorarios profesionales. Los abogados que presten servicios a la Institución, se obligan a tener cuenta corriente o de ahorros en colones y dólares en la misma, a efecto de acreditarle los honorarios profesionales que correspondan. El Banco liquidará los honorarios profesionales, de conformidad con el Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado.
-Es absolutamente prohibido a los Abogados, recibir pagos de cualquier naturaleza de los clientes; todo pago será tramitado por medio de las oficinas del Banco.
-(Así reformado mediante sesión N° 8420/11 del 1° de marzo del 2011)

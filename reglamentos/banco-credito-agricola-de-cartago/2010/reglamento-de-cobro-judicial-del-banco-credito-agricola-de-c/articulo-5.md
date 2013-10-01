@@ -1,2 +1,0 @@
-Artículo 5º—Contratación de abogados. El nombramiento de profesionales para el cobro judicial lo hará la Gerencia General, de acuerdo con la Ley de Contratación Administrativa, su Reglamento y el Reglamento Interno para la Contratación Administrativa.
-En el evento de cierre o trasformación del Centro de Negocios al que se encuentra asignado un Abogado externo, su plazo de nombramiento en dicho Centro expirará, pero deberá continuar tramitando los casos que se le hayan asignado, salvo que por disposición Gerencial debidamente fundamentada, se le exonere de esa situación.

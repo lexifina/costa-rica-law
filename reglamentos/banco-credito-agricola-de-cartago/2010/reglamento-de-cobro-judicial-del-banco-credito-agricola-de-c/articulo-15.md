@@ -1,1 +1,0 @@
-Artículo 15.—Aceptación de casos de litigio en contra del Banco. El abogado que se desempeñe como “Abogado Director” de procesos judiciales gestionados por el Banco, no podrá aceptar casos de litigio en contra del Banco. El incumplimiento de esta disposición, hará que su nombramiento quede revocado automáticamente.
