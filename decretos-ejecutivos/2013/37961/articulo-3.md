@@ -1,0 +1,3 @@
+Artículo 3º—Modificase los créditos fiscales establecidos en el artículo 15 de la Ley N° 7092 de 21 de abril de 1988 y sus reformas, actualizados mediante Decreto Ejecutivo Nº37345-H de 11 de setiembre de 2012, publicado en La Gaceta Nº 196 del 10 de octubre de 2012, de la siguiente forma:
+a) Por cada hijo el crédito fiscal será de dieciséis mil novecientos veinte colones (¢16.920,00) anuales, que es el resultado de multiplicar por doce (12) el monto mensual contemplado en el inciso i) del artículo 34 de esta Ley.
+b) Por el cónyuge el crédito fiscal será de veinticinco mil trescientos veinte colones (¢25.320,00) anuales, que es el resultado de multiplicar por doce (12) el monto mensual contemplado en el inciso ii) del artículo 34 de esta Ley.
