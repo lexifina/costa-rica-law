@@ -1,0 +1,3 @@
+Transitorio.- Monto del aporte estatal
+Para las elecciones nacionales del año 2014 y las municipales del 2016, para cubrir los gastos de las campañas para elegir presidente, vicepresidentes, diputados y la totalidad de cargos municipales, así como los gastos destinados a sus actividades permanentes de capacitación y organización política, de conformidad con el artículo 96 de la Constitución Política, los partidos políticos tendrán derecho a recibir una contribución estatal equivalente a un cero coma once por ciento (0,11%) del PIB.
+(Así adicionado por el artículo único de la ley N° 9168 del 30 de setiembre del 2013)
