@@ -13,3 +13,4 @@ Reglamento del Programa de Formación Inicial para Aspirantes a la Judicatura (F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-16 | la propia norma |
+| 2 | 2013-10-01 | Circular 160 (2013-10-01) |
