@@ -1,0 +1,1 @@
+Artículo 2º—Los interesados en obtener una nueva autorización de la Administración, para el período 2014 y siguientes, podrán solicitar ante la Dirección General de Tributación que se les autorice un cálculo especial de su renta líquida, cumpliendo para ello con las disposiciones vigentes para ese fin, de acuerdo a los requisitos reglamentarios existentes.
