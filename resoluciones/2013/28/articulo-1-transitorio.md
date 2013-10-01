@@ -1,0 +1,2 @@
+Transitorio I.—Vigencia de los formularios preimpresos.
+Los formularios preimpresos que con anterioridad a esta resolución se establecieron para la confección y presentación de la declaración jurada de los impuestos mencionados en el artículo 1° de esta Resolución, podrán ser usados y presentados hasta el 15 de abril de 2014, fecha a partir de la cual solo podrán utilizarse los formularios emitidos con el programa de ayuda “Elaboración Digital de Declaraciones de Impuestos” EDDI-7.

@@ -1,0 +1,3 @@
+Transitorio II.—Declaraciones de períodos anteriores al 1º de octubre de 2013.
+Todas aquellas declaraciones de períodos anteriores a la vigencia de esta resolución, correspondientes a los impuestos indicados en el artículo 1°, que se encuentren pendientes de presentar a la fecha de vigencia de la misma, así como toda declaración que rectifique lo declarado mediante formulario suministrados en papel, podrá ser confeccionada conforme a lo indicado en esta resolución o en papel preimpreso hasta la fecha indicada en el Transitorio I, a partir de la cual sólo podrán confeccionarse conforme lo dispone esta resolución.
+Publíquese.
