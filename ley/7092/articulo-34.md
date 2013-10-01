@@ -1,14 +1,14 @@
 ARTICULO 34.- Una vez calculado el impuesto, los contribuyentes tendrán derecho a deducir de él, a título de crédito, los siguientes rubros:
 (Así reformado por el artículo 3º, inciso a), de la ley No. 7531 de 10 de julio de 1995)
-i) Por cada hijo, la suma de mil trescientos cuarenta colones (¢ 1.340,00)(*)
-(*)(Modificado por el artículo 2° inciso "a" del decreto ejecutivo N° 37346 del 11 de setiembre de 2012)
+i) Por cada hijo, la suma de mil cuatrocientos diez colones (¢1.410,00)(*)
+(*)(Modificado por el artículo 2° inciso "a" del decreto ejecutivo N° 37960 del 9 de setiembre de 2013)
 -Sea menor de edad.
 -Esté imposibilitado para proveerse su propio sustento, debido a incapacidad física o mental.
 -Esté realizando estudios superiores, siempre que no sea mayor de veinticinco años.
 En el caso de que ambos cónyuges sean contribuyentes, cada hijo sólo podrá ser deducido por uno de ellos.
 (Así reformado por inciso j) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
-ii) Por el cónyuge, la suma de dos mil colones (¢ 2.000,00)(*), siempre que no exista separación legal. Si los cónyuges estuvieren separados judicialmente, sólo se permitirá esta deducción a aquel a cuyo cargo esté la manutención del otro, según disposición legal.
-(*)(Modificado por el artículo 2 inciso "b" del decreto ejecutivo N° 37346 del 11 de setiembre de 2012)
+ii) Por el cónyuge, la suma de dos mil ciento diez colones (¢2.110,00).(*), siempre que no exista separación legal. Si los cónyuges estuvieren separados judicialmente, sólo se permitirá esta deducción a aquel a cuyo cargo esté la manutención del otro, según disposición legal.
+(*)(Modificado por el artículo 2 inciso "b" del decreto ejecutivo N° 37960 del 9 de setiembre de 2013)
 En el caso de que ambos cónyuges sean contribuyentes, este crédito sólo podrá ser deducido, en su totalidad, por uno de ellos.
 Para tener derecho a los créditos del impuesto establecido en este artículo, los contribuyentes tendrán que demostrar a su patrono o empleador o al Estado, la existencia de cualesquiera de las circunstancias señaladas como requisito para incluir a sus hijos o lo relativo al estado civil, según se disponga en el Reglamento de esta ley.
 (Así reformado por el artículo 3º, inciso a), de la ley No. 7531 de 10 de julio de 1995)
