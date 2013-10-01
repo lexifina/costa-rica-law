@@ -1,0 +1,7 @@
+ARTÍCULO 248
+Relación entre indicaciones geográficas y marcas
+1. La legislación de las Partes garantizará que la solicitud de registro de una marca que corresponda a cualquiera de las situaciones que figuran en el artículo 246 para productos similares36 sea rechazada cuando dicha solicitud de registro se presente después de la fecha de solicitud de registro de la indicación geográfica en el territorio de que se trate37.
+36 A efectos del presente artículo, las Repúblicas de la Parte CA consideran que el término "producto similar" puede ser entendido como "idéntico o confusamente similar".
+37 Para la Parte UE, la fecha de solicitud de la protección será la fecha de entrada en vigor del presente Acuerdo para los nombres que figuren en el anexo XVII.
+2. Del mismo modo, las Partes podrán, de conformidad con su legislación nacional o regional, establecer las circunstancias para rechazar la protección de indicaciones geográficas, incluida la posibilidad de no conceder protección a una indicación geográfica cuando, a la luz de una marca notoriamente conocida o reputada, su protección pueda inducir a error a los consumidores sobre la verdadera identidad del producto.
+3. Las Partes mantendrán los medios jurídicos para que cualquier persona natural o jurídica que ostente un interés legítimo pueda solicitar la cancelación o invalidación de una marca o una indicación geográfica fundamentando su solicitud.

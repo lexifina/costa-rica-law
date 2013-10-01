@@ -1,0 +1,11 @@
+ARTÍCULO 2
+Objetivos
+Las Partes acuerdan que los objetivos del presente Acuerdo son:
+a) fortalecer y consolidar las relaciones entre las Partes a través de una asociación basada en tres partes interdependientes y fundamentales: el diálogo político, la cooperación y el comercio, sobre la base del respeto mutuo, la reciprocidad y el interés común. Para aplicar el presente Acuerdo se aprovecharán plenamente los acuerdos y mecanismos institucionales acordados por las Partes;
+b) desarrollar una asociación política privilegiada basada en valores, principios y objetivos comunes, en particular el respeto y la promoción de la democracia y los derechos humanos, el desarrollo sostenible, la buena gobernanza y el Estado de Derecho, con el compromiso de promover y proteger estos valores y principios a nivel mundial, de forma que contribuya a fortalecer el multilateralismo;
+c) mejorar la cooperación birregional en todos los ámbitos de interés común a fin de lograr un desarrollo social y económico más sostenible y equitativo en ambas regiones;
+d) ampliar y diversificar la relación comercial birregional de las Partes de conformidad con el Acuerdo sobre la OMC y los objetivos específicos y las disposiciones que figuran en la parte IV del presente Acuerdo, lo cual debería contribuir a un mayor crecimiento económico, a la mejora gradual de la calidad de vida en ambas regiones y a una mejor integración de las mismas en la economía mundial;
+e) fortalecer y profundizar el proceso progresivo de la integración regional en ámbitos de interés común, como una forma de facilitar la aplicación del presente Acuerdo;
+f) fortalecer las relaciones de buena vecindad y el principio de resolución pacífica de conflictos;
+g) mantener al menos, y preferentemente mejorar, el nivel de buena gobernanza, así como los niveles alcanzados en materia social, laboral y medio ambiental mediante la aplicación efectiva de los convenios internacionales de los cuales las Partes sean parte en el momento de la entrada en vigor del presente Acuerdo; y
+h) fomentar el incremento del comercio y la inversión entre las Partes, tomando en consideración el trato especial y diferenciado para reducir las asimetrías estructurales existentes entre ambas regiones.

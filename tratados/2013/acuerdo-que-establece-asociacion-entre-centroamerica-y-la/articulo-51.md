@@ -1,0 +1,5 @@
+ARTÍCULO 51
+Gestión de desastres naturales
+1. Las Partes acuerdan que la cooperación en este ámbito tendrá por objetivo reducir la vulnerabilidad de la región centroamericana ante los desastres naturales, mediante el apoyo a los esfuerzos nacionales; el marco regional para reducir la vulnerabilidad y responder a dichos desastres; la investigación regional; la difusión de las mejores prácticas y de las lecciones aprendidas de la reducción del riesgo de desastres; la preparación, la planificación, el seguimiento, la prevención, la mitigación, la respuesta y la rehabilitación. La cooperación también apoyará los esfuerzos por armonizar el marco jurídico de conformidad con las normas internacionales, y la mejora de la coordinación institucional y del apoyo gubernamental.
+2. Las Partes fomentarán estrategias que reduzcan la vulnerabilidad social y medioambiental y refuercen las capacidades de las comunidades e instituciones locales para la reducción del riesgo de desastres.
+3. Las Partes prestarán una atención especial a mejorar la reducción del riesgo de desastres en todas sus políticas, incluidas la gestión territorial, la rehabilitación y la reconstrucción.

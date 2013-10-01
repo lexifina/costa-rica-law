@@ -1,0 +1,5 @@
+ARTÍCULO 109
+Regiones ultraperiféricas
+1. Cuando cualquier producto originario de una o varias de las Repúblicas de la Parte CA esté siendo importado en el territorio de una o varias de las regiones ultraperiféricas de la Parte UE en cantidades tan elevadas y en condiciones tales como para causar o amenazar causar un grave deterioro en la situación económica de la región o regiones ultraperiféricas afectadas de la Parte UE, esta, tras haber examinado las soluciones alternativas, podrá adoptar excepcionalmente medidas de salvaguardia limitadas al territorio de la región o las regiones afectadas.
+2. Sin perjuicio de lo dispuesto en el apartado 1, otras normas establecidas en la presente subsección aplicables a las salvaguardias bilaterales también son aplicables a cualquier salvaguardia adoptada de conformidad con el presente artículo.
+3. El Consejo de Asociación podrá debatir si, en casos de grave deterioro, o de amenaza de grave deterioro, de la situación económica de regiones extremadamente subdesarrolladas de las Repúblicas de la Parte CA, el presente artículo puede aplicarse también a dichas regiones.

@@ -1,0 +1,3 @@
+ARTÍCULO 289
+Comercio de productos forestales
+Con el fin de promover la gestión sostenible de los recursos forestales, las Partes se comprometen a trabajar conjuntamente para mejorar la aplicación de la legislación forestal y la gobernanza, así como para promover el comercio lícito y sostenible de productos forestales, a través de instrumentos que pueden incluir, entre otras cosas: el uso efectivo de la CITES con respecto a especies maderables en peligro; esquemas de certificación de productos forestales extraídos de forma sostenible; y los acuerdos regionales o bilaterales de asociación voluntaria sobre aplicación de las leyes, gobernanza y comercio forestales (en lo sucesivo, "FLEGT").

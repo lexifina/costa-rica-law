@@ -1,0 +1,6 @@
+ARTÍCULO 152
+Notificación y consultas
+1. Cada Parte notificará por escrito a la otra Parte, en un plazo de tres días hábiles, de cualquier riesgo grave o importante para la vida o la salud de las personas, los animales o los vegetales, incluida cualquier emergencia alimentaria.
+2. Las notificaciones se dirigirán a los puntos de contacto fijados en el anexo IX (Puntos de contacto y sitios web). Se entenderá por "notificación escrita", las notificaciones por correo postal, fax o correo electrónico.
+3. En caso que, en relación con productos que se comercializan, una Parte tenga graves preocupaciones acerca de un riesgo para la vida o la salud de las personas, los animales o los vegetales, se celebrarán, por solicitud, consultas al respecto lo antes posible. En tales condiciones, cada Parte procurará proporcionar toda la información necesaria para evitar afectaciones al comercio.
+4. Las consultas mencionadas en el apartado 3 podrían celebrarse por correo electrónico, por vídeo o audioconferencia, o por cualquier otro medio mutuamente acordado por las Partes. La Parte solicitante debe encargarse de redactar las actas de la consulta, que se someterán a la aprobación formal de las Partes.

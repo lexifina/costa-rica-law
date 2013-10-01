@@ -1,0 +1,19 @@
+TÍTULO IV
+MIGRACIÓN
+ARTÍCULO 49
+Migración
+1. La cooperación se basará en la evaluación de necesidades específicas, mediante la consulta mutua entre las Partes y se aplicará de conformidad con la legislación de la Unión Europea y nacional en vigor. Se centrará, en particular, en:
+a) las causas que originan la migración;
+b) el desarrollo y la aplicación de la legislación interna y las prácticas nacionales en materia de protección internacional, con miras a cumplir las disposiciones de la Convención de Ginebra de 1951 relativa al Estatuto de los Refugiados y su protocolo de 1967 y otros instrumentos internacionales pertinentes, y de garantizar el respeto del principio de "no devolución";
+c) las normas de admisión y los derechos y el estatus de las personas admitidas, el trato justo y la integración en la sociedad de las personas que residan legalmente, la educación y la formación de los migrantes legales y las medidas contra el racismo y la xenofobia y todas las disposiciones aplicables relativas a los derechos humanos de los migrantes;
+d) el establecimiento de una política efectiva para facilitar la transferencia de remesas;
+e) la migración temporal y la circular, incluida la prevención de la fuga de cerebros;
+f) el establecimiento de una política integral y efectiva sobre la inmigración, la trata y el tráfico de personas, incluida la cuestión de cómo combatir las redes y las organizaciones criminales de tratantes y traficantes, y cómo proteger y ayudar a las víctimas de dicha trata de personas; así como cualquier otra forma de migración que no sea acorde con el marco jurídico del país de destino;
+g) el retorno, en condiciones humanas, seguras y dignas, de las personas que no posean un permiso de residencia legal, con pleno respeto de sus derechos humanos, y la readmisión de tales personas de conformidad con el apartado 2;
+h) el intercambio de buenas prácticas sobre integración migratoria entre la Unión Europea y las Repúblicas de la Parte CA;
+i) las medidas de apoyo encaminadas a la reinserción sostenible de los repatriados.
+2. En el marco de la cooperación para impedir y controlar la inmigración que contravenga el marco jurídico del país de destino, las Partes también acuerdan readmitir a sus nacionales cuya estancia en los territorios de la otra Parte contravenga sus respectivos marcos jurídicos. A tal fin:
+a) cada República de la Parte CA readmitirá, previa petición y sin ningún otro trámite, a todos sus nacionales cuya estancia en el territorio de un Estado miembro de la Unión Europea contravenga el marco jurídico del Estado miembro; facilitará a sus nacionales documentos de identidad adecuados y pondrá a su disposición los servicios administrativos necesarios a tales efectos; y
+b) cada Estado miembro de la Unión Europea readmitirá, previa petición y sin ningún otro trámite, a todos sus nacionales cuya estancia en el territorio de una República de la Parte CA contravenga el marco jurídico de la República de la Parte CA: facilitará a sus nacionales documentos de identidad adecuados y pondrá a su disposición los servicios administrativos necesarios a tales efectos.
+3. En caso de que la persona que deba ser readmitida no esté en posesión de ningún documento u otras pruebas de su nacionalidad, las representaciones diplomáticas y/o consulares competentes del Estado miembro de la Unión Europea o de la República de la Parte CA concernida, a petición de la República de la Parte CA en cuestión o del Estado miembro de la Unión Europea interesado, tomarán las medidas necesarias para entrevistar a la persona a fin de determinar su nacionalidad.
+4. Las Partes acuerdan celebrar, previa petición y a la mayor brevedad posible, un acuerdo en materia de readmisión por el que se regulen las obligaciones específicas de los Estados miembros de la Unión Europea y de las Repúblicas de la Parte CA. Dicho acuerdo también abordará la readmisión de los nacionales de otros países y de los apátridas.

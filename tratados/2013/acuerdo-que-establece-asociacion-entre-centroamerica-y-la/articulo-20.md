@@ -1,0 +1,4 @@
+ARTÍCULO 20
+Medio ambiente
+1. Las Partes promoverán un diálogo en los ámbitos del medio ambiente y el desarrollo sostenible mediante el intercambio de información y estimulando iniciativas sobre cuestiones medioambientales a nivel local y mundial, reconociendo el principio de las responsabilidades comunes pero diferenciadas, como se establece en la Declaración de Río sobre el Medio Ambiente y el Desarrollo de 1992.
+2. Este diálogo estará destinado, entre otras cosas, a combatir la amenaza del cambio climático, la conservación de la biodiversidad, la protección y la gestión sostenible de los bosques para, entre otras cosas, reducir las emisiones derivadas de la deforestación y la degradación de los bosques, la protección de los recursos hídricos y marinos, las cuencas y los humedales, la investigación y el desarrollo de combustibles alternativos y tecnologías de energías renovables, y la reforma de la gobernanza medioambiental con miras a aumentar su eficiencia.

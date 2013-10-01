@@ -1,0 +1,3 @@
+ARTÍCULO 267
+Daños y perjuicios
+Las autoridades judiciales estarán facultadas para ordenar al infractor que pague al titular del derecho un resarcimiento adecuado para compensar el daño que este haya sufrido debido a una infracción de su derecho de propiedad intelectual, causada por un infractor que, sabiéndolo o teniendo motivos razonables para saberlo, haya desarrollado una actividad infractora. En los casos apropiados, las Partes podrán autorizar a las autoridades judiciales a ordenar la recuperación de los beneficios y/o el pago de daños y perjuicios preestablecidos, aun en caso de que el infractor no supiera o no tuviera motivos razonables para saberlo, haya desarrollado una actividad infractora.

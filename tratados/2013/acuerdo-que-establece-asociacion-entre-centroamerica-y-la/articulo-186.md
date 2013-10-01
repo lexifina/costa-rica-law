@@ -1,0 +1,7 @@
+ARTÍCULO 186
+Autoridad reguladora
+1. Una autoridad reguladora de servicios de telecomunicaciones será jurídicamente distinta y funcionalmente independiente de cualquier proveedor de servicios de telecomunicaciones.
+2. Cada Parte procurará garantizar que su autoridad reguladora tenga los recursos adecuados para llevar a cabo sus funciones. Las tareas de una autoridad reguladora deberán hacerse públicas de una forma clara y fácilmente accesible, en particular cuando esas tareas sean asignadas a más de un órgano.
+3. Las decisiones de la autoridad reguladora y los procedimientos utilizados por dicha autoridad serán imparciales con respecto a todos los participantes en el mercado.
+4. Un proveedor afectado por la decisión de una autoridad reguladora tendrá derecho, de conformidad con la legislación respectiva, a recurrir dicha decisión ante un órgano competente independiente de los proveedores involucrados. Cuando el órgano competente no tenga un carácter judicial, siempre deberá fundamentar por escrito sus decisiones, que estarán además sujetas a revisión por parte de una autoridad judicial imparcial e independiente.
+Las decisiones adoptadas por tales órganos competentes se harán cumplir efectivamente de conformidad con los procedimientos jurídicos aplicables. Mientras esté pendiente el resultado de cualquiera de estos procedimientos jurídicos, se mantendrá la decisión de la autoridad reguladora, salvo que el órgano competente o la legislación aplicable determinen lo contrario.

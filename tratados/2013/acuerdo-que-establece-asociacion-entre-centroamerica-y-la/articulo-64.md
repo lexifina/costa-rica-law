@@ -1,0 +1,4 @@
+ARTÍCULO 64
+Cooperación en materia industrial
+1. Las Partes acuerdan que la cooperación industrial promoverá la modernización y la reestructuración de la industria centroamericana y de sectores específicos, así como la cooperación industrial entre los agentes económicos, con el fin de fortalecer el sector privado en condiciones que promuevan la protección del medio ambiente.
+2. Las iniciativas de cooperación industrial reflejarán las prioridades fijadas por las Partes. Tendrán en cuenta los aspectos regionales del desarrollo industrial, impulsando asociaciones transnacionales cuando proceda. Mediante las iniciativas se pretenderá, en particular, crear un marco adecuado para mejorar los conocimientos técnicos en materia de gestión y promover la transparencia respecto a los mercados y las condiciones en las que las empresas realizan sus actividades.

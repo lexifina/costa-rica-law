@@ -1,0 +1,6 @@
+ARTÍCULO 47
+Perspectiva de género
+1. Las Partes acuerdan que la cooperación ayudará a fortalecer las políticas, los programas y los mecanismos destinados a garantizar, mejorar y ampliar la participación y la igualdad de oportunidades para hombres y mujeres en todos los sectores de la vida política, económica, social y cultural, en particular con vistas a la aplicación efectiva del Convenio para la eliminación de todas las Formas de Discriminación contra la Mujer. Cuando proceda, se preverán medidas de acción afirmativa en favor de las mujeres.
+2. La cooperación promoverá la integración de la perspectiva de género en todos los ámbitos de cooperación pertinentes, incluidos las políticas públicas, las estrategias y acciones de desarrollo y los indicadores para medir su impacto.
+3. La cooperación también ayudará a facilitar la igualdad de acceso de hombres y mujeres a todos los servicios y recursos que les permitan el pleno ejercicio de sus derechos fundamentales, por ejemplo respecto a la educación, la salud, la formación vocacional, las oportunidades de empleo, la toma de decisiones políticas, las estructuras de gobernanza y las empresas privadas.
+4. Se prestará especial atención a los programas que abordan la violencia contra las mujeres, en particular mediante la prevención.

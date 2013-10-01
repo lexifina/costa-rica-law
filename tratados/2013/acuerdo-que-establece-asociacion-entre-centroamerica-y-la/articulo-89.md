@@ -1,0 +1,12 @@
+SECCIÓN D
+AGRICULTURA
+ARTÍCULO 89
+Subvenciones a las exportaciones agrícolas
+1. A efectos del presente artículo, "subvenciones a la exportación" tendrá el mismo significado que en el artículo 1, letra e), del Acuerdo de la OMC sobre la Agricultura (en lo sucesivo, el "Acuerdo sobre la Agricultura"), incluida cualquier modificación a dicho artículo.
+2. Las Partes comparten el objetivo de trabajar conjuntamente en la OMC para garantizar la eliminación paralela de todas las formas de subvención a la exportación y el establecimiento de disciplinas sobre todas las medidas de exportación que tengan un efecto equivalente. A tal fin, las medidas de exportación con efecto equivalente comprenden los créditos a la exportación, las garantías de créditos a la exportación o los programas de seguros, las empresas comerciales del Estado dedicadas a la exportación y la ayuda alimentaria.
+3. Ninguna Parte mantendrá, introducirá o reintroducirá subvenciones a la exportación sobre mercancías agrícolas que estén destinadas al territorio de la otra Parte y que:
+a) sean plena e inmediatamente liberalizadas con arreglo al anexo I (Eliminación de aranceles aduaneros); o
+b) sean plena pero no inmediatamente liberalizadas y se beneficien de un contingente libre de aranceles en el momento de la entrada en vigor del presente Acuerdo con arreglo al anexo I (Eliminación de aranceles aduaneros); o
+c) estén sujetas a un trato arancelario preferencial conforme a lo dispuesto en el presente Acuerdo para los productos incluidos en las partidas 0402 y 0406 y se beneficien de un contingente libre de aranceles.
+4. En los casos descritos en el apartado 3, letras a) a c), si una Parte mantiene, introduce o reintroduce subvenciones a la exportación, la Parte afectada/importadora podrá aplicar un arancel adicional que aumente los aranceles aduaneros sobre las importaciones de tales mercancías hasta el que resulte inferior entre el nivel del arancel aplicado de Nación Más Favorecida (NMF) y la tasa base establecida en el anexo I (Eliminación de aranceles aduaneros) durante el periodo establecido para mantener la subvención a la exportación.
+5. Respecto a los productos plenamente liberalizados al cabo de un periodo transitorio de conformidad con el anexo I (Eliminación de aranceles aduaneros) que no se benefician de un contingente libre de aranceles en el momento de la entrada en vigor, ninguna Parte mantendrá, introducirá o reintroducirá subvenciones a la exportación al final de dicho periodo transitorio.

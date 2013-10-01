@@ -1,0 +1,10 @@
+ARTÍCULO 216
+Especificaciones técnicas
+1. Una entidad contratante no preparará, adoptará o aplicará una especificación técnica ni dispondrá ningún procedimiento de evaluación de la conformidad con el propósito o efecto de crear obstáculos innecesarios al comercio internacional.
+2. Cuando corresponda, al establecer las especificaciones técnicas para las mercancías o los servicios licitados, la entidad contratante:
+a) establecerá las especificaciones técnicas en términos de desempeño y requisitos funcionales, en lugar de características descriptivas o de diseño; y
+b) basará las especificaciones técnicas en normas internacionales, cuando existan; de lo contrario, en reglamentos técnicos nacionales, normas nacionales reconocidas o códigos de construcción.
+3. Cuando se utilicen características descriptivas o de diseño en las especificaciones técnicas, la entidad contratante indicará, cuando sea apropiado, que tomará en consideración las ofertas de mercancías o servicios equivalentes que demuestren cumplir con los requisitos de la contratación mediante la inclusión de términos tales como "o equivalente" en los documentos de la contratación.
+4. Una entidad contratante no establecerá especificaciones técnicas que requieran o se refieran a una marca o nombre comercial, patente, derecho de autor, diseño, tipo, origen específico, productor o proveedor, a menos que no se cuente con otra manera precisa o inteligible de describir los requisitos de la contratación y siempre y cuando en tales casos, la entidad incluya términos como "o equivalente" en los documentos de contratación.
+5. Una entidad contratante no solicitará ni aceptará, de manera que pueda tener el efecto de impedir la competencia, asesoramiento para la preparación o adopción de cualquier especificación técnica para una contratación determinada, de una persona que pueda tener interés comercial en la contratación.
+6. Para mayor certeza, el presente artículo no pretende impedir que la entidad contratante prepare, adopte o aplique especificaciones técnicas para promover la conservación de los recursos naturales o proteger el medio ambiente.

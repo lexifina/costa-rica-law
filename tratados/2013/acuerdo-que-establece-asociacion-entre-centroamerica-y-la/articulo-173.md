@@ -1,0 +1,27 @@
+CAPÍTULO 4
+PRESENCIA TEMPORAL DE PERSONAS NATURALES
+CON FINES COMERCIALES
+ARTÍCULO 173
+Alcance y definiciones
+1. El presente capítulo es aplicable a las medidas de las Partes relativas a la entrada y la presencia temporal en sus territorios de personal clave, los aprendices graduados, los vendedores de servicios comerciales, los proveedores de servicios contractuales y los profesionales independientes, con arreglo al artículo 159, apartado 5, del presente título.
+2. A efectos del presente capítulo, se entenderá por:
+a) "personal clave", las personas naturales empleadas en una persona jurídica de una Parte que no sea una organización sin fines de lucro y que estén encargadas de la constitución o del control, la administración y operación de un establecimiento; el "personal clave" abarca a los "visitantes de negocios" encargados de la constitución de un establecimiento y el "personal intracorporativo":
+i) "visitantes de negocios", las personas naturales que ocupan un cargo superior y están encargadas de constituir un establecimiento. Ellos no se dedican a transacciones directas con el público en general y no reciben remuneración de una fuente situada en la Parte anfitriona;
+ii) "personal intracorporativo", las personas naturales que han sido empleadas por una persona jurídica o han estado asociadas a la misma durante al menos un año y que se trasladan temporalmente a un establecimiento en el territorio de la otra Parte. La persona natural en cuestión deberá pertenecer a una de las categorías siguientes:
+"Gerentes":
+Personas que ocupan un cargo superior en una persona jurídica, quienes se encargan fundamentalmente de la administración del establecimiento y reciben supervisión general o dirección principalmente del consejo de administración o los accionistas de la empresa o sus equivalentes, lo que incluye:
+- la dirección del establecimiento o un departamento o subdivisión del mismo;
+- la supervisión y el control del trabajo de otros empleados que ejerzan funciones de supervisión, profesionales o empleados gerenciales;
+- la autoridad personal para contratar y despedir o recomendar la contratación, el despido u otras medidas relativas al personal.
+"Especialistas":
+Personas que trabajan en una persona jurídica y poseen conocimientos excepcionales esenciales para la producción, el equipo de investigación, las técnicas o la administración del establecimiento. Al evaluar esos conocimientos se tendrán en cuenta no solo los conocimientos específicos para el establecimiento, sino también si la persona tiene una calificación de alto nivel respecto de un tipo de trabajo u oficio que requiera conocimientos técnicos específicos, incluida su pertenencia a una profesión reconocida;
+b) "aprendices graduados" (titulados en prácticas), las personas naturales que han sido empleadas por una persona jurídica de una Parte durante al menos un año, que estén en posesión de un título universitario y sean trasladadas temporalmente a un establecimiento de la persona jurídica en el territorio de la otra Parte a fin de desarrollarse profesionalmente o formarse en las técnicas o los métodos empresariales18;
+18 Se podrá exigir al establecimiento que los acoja que, para la autorización previa, presente un programa de formación en el que figure la duración de la presencia y en el que se demuestre que su finalidad es la formación.
+c) "vendedores de servicios comerciales", las personas naturales que sean representantes de un proveedor de servicios de una Parte que pretendan entrar temporalmente en el territorio de la otra Parte a fin de negociar la venta de servicios o alcanzar acuerdos para vender servicios en nombre de dicho proveedor de servicios. Ellos no se dedican a realizar ventas directas al público en general ni perciben remuneración de una fuente situada en la Parte anfitriona;
+d) "proveedores de servicios contractuales", las personas naturales empleadas por una persona jurídica de una Parte que no tengan ningún establecimiento en el territorio de la otra Parte y que hayan celebrado un contrato de buena fe (que no sea a través de una agencia según la definición del código CCP 872)19 para suministrar servicios cuyo consumidor final se encuentre en esta última Parte y que exijan una presencia temporal de sus empleados en dicha Parte para cumplir el contrato de suministro de servicios;
+19 Por CCP se entiende la Clasificación Central de Productos según la definición de la Oficina de Estadística de las Naciones Unidas, Informes estadísticos, Serie M, Nº 77, CCP prov, 1991.
+e) "profesionales independientes", las personas naturales que se dedican a suministrar un servicio, están establecidas como trabajadores por cuenta propia en el territorio de una Parte, no tienen ningún establecimiento en el territorio de la otra Parte y han celebrado un contrato de buena fe (que no sea a través de una agencia según la definición del código CCP 872) para suministrar servicios a un consumidor final que se encuentre en esta última Parte que exijan su presencia temporal en dicha Parte para cumplir el contrato de suministro de servicios20;
+f) "calificaciones", los diplomas, certificados u otras pruebas (de una calificación formal)
+expedidos por una autoridad designada conforme a disposiciones legales, reglamentarias o
+administrativas y que certifiquen que la formación profesional se ha completado con éxito.
+20 El contrato de servicios mencionado en las letras d) y e) cumplirá las leyes, las regulaciones y los requisitos de la Parte en la que se ejecute el contrato.

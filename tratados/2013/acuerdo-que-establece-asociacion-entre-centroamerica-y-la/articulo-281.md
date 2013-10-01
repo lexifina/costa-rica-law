@@ -1,0 +1,5 @@
+ARTÍCULO 281
+Intercambio de información no confidencial y cooperación en la aplicación
+1. Con el fin de facilitar la aplicación efectiva de sus respectivas leyes de competencia, las autoridades de competencia podrán intercambiar información no confidencial.
+2. La autoridad de competencia de una Parte podrá solicitar cooperación a la autoridad de competencia de la otra Parte con respecto a las actividades de aplicación. Dicha cooperación no impedirá a las Partes tomar decisiones de manera autónoma.
+3. Ninguna Parte está obligada a comunicar información a la otra Parte. En caso que una Parte decida comunicar información, dicha Parte podrá retener la información si la comunicación de tal información está prohibida por las leyes y reglamentos de la Parte que posee la información o si dicha comunicación es incompatible con sus intereses. Una Parte podrá exigir que la información comunicada en virtud del presente artículo sea utilizada de conformidad con los términos y condiciones que esta especifique.

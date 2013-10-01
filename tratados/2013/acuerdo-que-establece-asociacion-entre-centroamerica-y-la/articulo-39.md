@@ -1,0 +1,4 @@
+ARTÍCULO 39
+Tráfico ilícito de armas pequeñas y ligeras
+1. Las Partes cooperarán para prevenir y combatir el tráfico ilícito de armas pequeñas y ligeras, incluyendo sus municiones. Procurarán coordinar acciones para fortalecer la cooperación jurídica e institucional, así como la recolección y destrucción de armas pequeñas y ligeras ilícitas, incluidas sus municiones, que se encuentren en manos de civiles.
+2. Las Partes cooperarán para promover iniciativas conjuntas en la lucha contra el tráfico de armas pequeñas y ligeras, incluidas sus municiones. En particular, las Partes cooperarán en las iniciativas conjuntas que estén encaminadas a aplicar los programas nacionales, regionales e internacionales, así como convenciones en este ámbito, tanto en un marco multilateral como en un marco interregional.

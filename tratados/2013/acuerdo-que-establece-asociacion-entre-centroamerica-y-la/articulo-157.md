@@ -1,0 +1,5 @@
+ARTÍCULO 157
+Solución de controversias
+1. Cuando una Parte considere que una medida de la otra Parte es o podría ser contraria a las obligaciones en virtud del presente capítulo, podrá solicitar consultas técnicas en el marco del Subcomité establecido en el artículo 156. Las autoridades competentes indicadas en el anexo VI
+(Autoridades competentes) facilitarán dichas consultas.
+2. Salvo que las Partes que mantienen la controversia acuerden otra cosa, cuando una controversia sea objeto de consultas en el Subcomité con arreglo a lo dispuesto en el apartado 1, dichas consultas sustituirán a las previstas en el artículo 310 del título X (Solución de controversias) de la parte IV del presente Acuerdo. Las consultas en el Subcomité se considerarán concluidas en un plazo de treinta días a partir de la fecha de presentación de la solicitud, salvo que las Partes consultantes acuerden continuar con las mismas. Estas consultas podrían realizarse a través de conferencia telefónica, videoconferencia o cualquier otro medio que las Partes hayan acordado.

@@ -1,0 +1,5 @@
+ARTÍCULO 336
+Confidencialidad de la información
+1. Cualquier Parte del procedimiento que presente documentación o comunicaciones como parte del procedimiento de mediación podrá designar como confidencial dicha documentación o comunicaciones, o cualquier parte de las mismas.
+2. Cuando la documentación o comunicaciones, o cualquiera de sus partes, hayan sido designadas confidenciales por una Parte, la otra Parte y el mediador deberán devolver o destruir dichos documentos en un plazo no superior a quince días tras concluir el procedimiento de mediación.
+3. De la misma manera, cuando la documentación o comunicaciones, o cualquiera de sus partes, que hayan sido designadas como confidenciales, hayan sido puestas a disposición de expertos pertinentes, agencias gubernamentales u otras personas naturales o jurídicas con conocimientos especializados relacionados con el asunto, dicha documentación o comunicaciones deberán ser devueltas o destruidas en un plazo no superior a quince días tras la conclusión de la asistencia o las consultas de los mediadores.

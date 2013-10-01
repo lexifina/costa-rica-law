@@ -1,0 +1,4 @@
+ARTÍCULO 197
+Nuevos servicios financieros
+1. Una Parte permitirá, a los proveedores de servicios financieros de la otra Parte establecidos en su territorio, ofrecer en dicho territorio, cualquier nuevo servicio financiero dentro del ámbito de los subsectores y servicios financieros comprometidos en sus listas de compromisos y de conformidad con los términos, limitaciones, condiciones y salvedades establecidos en dichas listas de compromisos, siempre que la introducción de dicho nuevo servicio financiero no exija una nueva ley o la modificación de una ley vigente.
+2. De conformidad con el apartado 1, una Parte podrá determinar la forma jurídica a través de la cual se suministra el servicio y podrá exigir una autorización para el suministro del servicio financiero. Cuando se exija dicha autorización, se tomará una decisión dentro de un plazo razonable, y la autorización solamente podrá ser denegada por motivos prudenciales.

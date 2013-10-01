@@ -1,0 +1,5 @@
+ARTÍCULO 199
+Excepciones específicas
+1. Ninguna disposición del presente título impedirá a una Parte, incluidas sus entidades públicas, realizar o suministrar exclusivamente en su territorio actividades o servicios que formen parte de un plan de jubilación público o de un régimen legal de seguridad social, excepto cuando esas actividades sean llevadas a cabo, según lo establecido en la regulación nacional de la Parte, por proveedores de servicios financieros en competencia con entidades públicas o instituciones privadas.
+2. Ninguna disposición del presente Acuerdo es aplicable a las actividades realizadas por un banco central o una autoridad monetaria o por cualquier otra entidad pública en cumplimiento de políticas monetarias o cambiarias.
+3. Ninguna disposición del presente título impedirá a una Parte, incluidas sus entidades públicas, realizar o suministrar exclusivamente en su territorio actividades o servicios por cuenta, o bien con garantía o con utilización de recursos financieros, de la Parte o sus entidades públicas.

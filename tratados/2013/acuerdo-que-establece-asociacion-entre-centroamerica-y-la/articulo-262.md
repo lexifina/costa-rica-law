@@ -1,0 +1,3 @@
+ARTÍCULO 262
+Pruebas
+Cuando un titular de un derecho presente las pruebas razonablemente disponibles para respaldar sus alegaciones de que su derecho de propiedad intelectual ha sido infringido a escala comercial y para sustanciar sus alegaciones especifique pruebas pertinentes que se encuentren bajo el control de la parte contraria, las Partes adoptarán las medidas que sean necesarias para permitir que las autoridades judiciales competentes puedan ordenar, a solicitud de parte, cuando proceda y si estuviera previsto por la legislación aplicable, que la parte contraria aporte dicha prueba, con sujeción a la protección de la información confidencial.

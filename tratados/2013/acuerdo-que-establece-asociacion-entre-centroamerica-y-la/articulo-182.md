@@ -1,0 +1,4 @@
+ARTÍCULO 182
+Prevención de prácticas anticompetitivas en el sector de la mensajería
+1. Las Partes introducirán o mantendrán medidas apropiadas para impedir que los proveedores que, individualmente o en conjunto, tengan la capacidad de influir sustancialmente en las condiciones de participación (con respecto al precio y al suministro) en el mercado pertinente de servicios de mensajería como resultado del uso de su posición en el mercado, empleen o sigan empleando prácticas anticompetitivas.
+2. Cada Parte se asegurará de que, en caso de que el proveedor monopolístico de servicios postales de una Parte compita, directamente o a través de una compañía afiliada, en el suministro de servicios de envío urgente fuera del ámbito de aplicación de sus derechos de monopolio, no infrinja sus obligaciones en virtud del presente título.

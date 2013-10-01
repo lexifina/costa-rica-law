@@ -1,0 +1,6 @@
+ARTÍCULO 222
+Tratamiento de ofertas y adjudicación de contratos
+1. Una entidad contratante recibirá, abrirá y tratará todas las ofertas de conformidad con los procedimientos que garanticen la equidad e imparcialidad del proceso de contratación, así como la confidencialidad de las ofertas.
+2. Para ser considerada para la adjudicación, una oferta se hará por escrito y deberá, en el momento de la apertura, cumplir los requisitos esenciales establecidos en los documentos de contratación y, cuando proceda, en los avisos, así como proceder de un proveedor que cumpla las condiciones de participación.
+3. A menos que la entidad contratante determine que no redunda en el interés público adjudicar un contrato, adjudicará el contrato al proveedor que la entidad haya determinado que es capaz de cumplir las condiciones del contrato y que, únicamente sobre la base de los criterios de evaluación especificados en los avisos y documentos de contratación, haya presentado la oferta más ventajosa o, cuando el precio sea el único criterio, el precio más bajo.
+4. Cuando la entidad contratante reciba una oferta con un precio anormalmente más bajo que los de otras ofertas presentadas, podrá verificar si el proveedor cumple las condiciones de participación y es capaz de cumplir los términos del contrato.

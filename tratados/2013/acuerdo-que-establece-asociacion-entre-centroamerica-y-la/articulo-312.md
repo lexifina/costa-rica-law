@@ -1,0 +1,9 @@
+ARTÍCULO 312
+Establecimiento del Grupo Especial
+1. El Grupo Especial estará compuesto por tres panelistas.
+2. Dentro de los diez días siguientes a la fecha de presentación de la solicitud de establecimiento de un Grupo Especial, las Partes contendientes deberán celebrar consultas a fin de lograr un acuerdo sobre la composición del Grupo Especial49.
+49 Cuando una Parte contendiente esté formada por dos o más Repúblicas de la Parte CA, estas actuarán conjuntamente en el procedimiento establecido en el artículo 312.
+3. En caso de que las Partes contendientes no logren acordar la composición del Grupo Especial dentro del plazo establecido en el apartado 2, cada Parte contendiente tendrá derecho a escoger un panelista, que no ejercerá como Presidente, de entre los individuos de la lista establecida en el artículo 325, dentro de los tres días siguientes al vencimiento del plazo establecido en el apartado 2. El Presidente del Comité de Asociación, o la persona en quien este delegue, escogerá por sorteo al Presidente, así como a cualquier panelista que falte, de entre los individuos pertinentes de la lista establecida de conformidad con el artículo 325.
+4. El Presidente del Comité de Asociación, o la persona en quien este delegue, deberá realizar el sorteo dentro de los cinco días siguientes a la recepción de una solicitud que al efecto haga una o ambas Partes contendientes. El sorteo se llevará a cabo en un momento y lugar que debe ser comunicado sin demora a las Partes contendientes. Estas podrán, si así lo desean, estar presentes durante el sorteo.
+5. Las Partes contendientes podrán escoger, de común acuerdo y dentro del plazo establecido en el apartado 2, personas que no figuren en la lista de panelistas, pero que cumplan los requisitos establecidos en el artículo 325.
+6. La fecha de establecimiento del Grupo Especial será la fecha en que todos los panelistas hayan notificado la aceptación de su selección.

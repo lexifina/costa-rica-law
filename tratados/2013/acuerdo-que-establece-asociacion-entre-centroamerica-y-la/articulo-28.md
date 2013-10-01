@@ -1,0 +1,7 @@
+ARTÍCULO 28
+Cooperación estadística
+1. Las Partes acuerdan cooperar para elaborar mejores métodos y programas estadísticos con arreglo a las normas aceptadas internacionalmente, incluyendo la recopilación, el tratamiento, el control de calidad y la difusión de estadísticas, con el objetivo de generar indicadores comparables entre las Partes, que les permita utilizar las estadísticas de la otra Parte sobre comercio de mercancías y servicios, inversión extranjera directa y, de forma más general, sobre cualquier ámbito cubierto por el presente Acuerdo para el que puedan elaborarse estadísticas. Las Partes reconocen la utilidad de la cooperación bilateral para apoyar estos objetivos.
+2. La cooperación en este ámbito también tendrá por objetivo:
+a) la elaboración de un sistema estadístico regional en apoyo de las prioridades de integración regional acordadas entre las Partes;
+b) la cooperación en el ámbito de las estadísticas en materia de ciencia, tecnología e innovación.
+3. Esta cooperación podría incluir, entre otras cosas: intercambios técnicos entre los institutos de estadística de las Repúblicas de la Parte CA y de los Estados miembros de la Unión Europea y Eurostat, incluidos los intercambios de científicos; el desarrollo de métodos mejorados y, cuando proceda, coherentes para la recopilación, la desagregación, el análisis y la interpretación de los datos; y la organización de seminarios, grupos de trabajo o programas de formación estadística.

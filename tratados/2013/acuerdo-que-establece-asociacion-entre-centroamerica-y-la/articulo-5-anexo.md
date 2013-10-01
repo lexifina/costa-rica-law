@@ -1,0 +1,3 @@
+ANEXO V
+GESTIÓN DE LOS ERRORES ADMINISTRATIVOS
+Cuando una Parte constate, basándose en información objetiva, la existencia de un error por parte de las autoridades públicas competentes de la otra Parte en cuanto a la correcta gestión del sistema de preferencias a la exportación en relación con la aplicación de las disposiciones del anexo II (Relativo a la definición del concepto de "productos originarios" y métodos de cooperación administrativa), cuando este error tenga consecuencias sobre los aranceles de importación, la Parte que deba sufrir esas consecuencias solicitará al Comité de Asociación que examine las posibilidades de adoptar todas las medidas apropiadas con miras a resolver la situación de manera satisfactoria para las Partes.

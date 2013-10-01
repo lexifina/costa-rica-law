@@ -1,0 +1,10 @@
+ARTÍCULO 245
+Indicaciones geográficas establecidas
+1. A la entrada en vigor del presente Acuerdo, de conformidad con el artículo 353, apartado 5, de la parte V, las Partes deberán35:
+35 Se entenderá que se cumplen las obligaciones del apartado 1 cuando, en el curso de los procedimientos aplicables para la protección de un nombre como indicación geográfica:
+a) la decisión administrativa rechace el registro del nombre; o
+b) la decisión administrativa sea recurrida ante las instancias establecidas en virtud de la legislación nacional de cada Parte.
+a) haber finalizado los procedimientos de oposición y examen, al menos respecto a aquellas solicitudes de indicaciones geográficas listadas en el anexo XVII (Lista de nombres para los que se solicita protección como indicaciones geográficas en el territorio de las Partes) para las que no se haya presentado oposición o para las que la oposición haya sido rechazada por razones formales en el curso de los procedimientos de registro nacionales;
+b) haber iniciado los procedimientos para proteger las indicaciones geográficas listadas en el anexo XVII (Lista de nombres para los que se solicita protección como indicaciones geográficas en el territorio de las Partes) y haber expirado los plazos para remitir oposiciones, respecto a aquellas solicitudes de indicaciones geográficas listadas en el anexo XVII para las que se haya presentado oposición y la oposición haya sido considerada, prima facie, meritoria en el curso de los procedimientos nacionales de registro;
+c) proteger las indicaciones geográficas a las que se les ha otorgado protección como tales, de conformidad con el nivel de protección establecido en el presente Acuerdo.
+2. En su primera reunión, el Consejo de Asociación adoptará una decisión para incluir en el anexo XVIII (Indicaciones geográficas protegidas) todos los nombres del anexo XVII (Lista de nombres para los que se solicita protección como indicaciones geográficas en el territorio de las Partes) que han sido protegidos como indicaciones geográficas después de su examen satisfactorio por las autoridades nacionales o regionales competentes de las Partes.

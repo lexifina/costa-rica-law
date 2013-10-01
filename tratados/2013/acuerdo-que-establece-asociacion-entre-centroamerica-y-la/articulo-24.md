@@ -1,0 +1,13 @@
+PARTE III
+COOPERACIÓN
+ARTÍCULO 24
+Objetivos
+1. El objetivo general de la cooperación es apoyar la aplicación del presente Acuerdo con el fin de alcanzar una asociación efectiva entre ambas regiones mediante la aportación de recursos, mecanismos, herramientas y procedimientos.
+2. Se dará prioridad a los objetivos siguientes, que se exponen con más detalle en los títulos I al IX de la presente parte:
+a) fortalecer la paz y la seguridad;
+b) contribuir a fortalecer las instituciones democráticas, la buena gobernanza y la plena aplicación del Estado de Derecho, la igualdad y equidad de género, todas las formas de no discriminación, la diversidad cultural, el pluralismo, la promoción y el respeto de los derechos humanos, las libertades fundamentales, la transparencia y la participación ciudadana;
+c) contribuir a la cohesión social mediante la disminución de la pobreza, la desigualdad, la exclusión social y todas las formas de discriminación para mejorar la calidad de vida de los pueblos de Centroamérica y la Unión Europea;
+d) promover el crecimiento económico para favorecer el desarrollo sostenible, reducir los desequilibrios entre las Partes y dentro de estas, y desarrollar sinergias entre ambas regiones;
+e) profundizar en el proceso de integración regional en Centroamérica mediante el fortalecimiento de la capacidad de aplicar y aprovechar los beneficios del presente Acuerdo, contribuyendo así al desarrollo económico, social y político de la región centroamericana en su conjunto;
+f) fortalecer las capacidades de producción y gestión y mejorar la competitividad, creando oportunidades para el comercio y la inversión para todos los agentes económicos y sociales en ambas regiones.
+3. Las Partes emprenderán políticas y medidas destinadas a cumplir los objetivos mencionados anteriormente. Estas medidas podrán incluir mecanismos financieros innovadores con el objetivo de contribuir al cumplimiento de los Objetivos de Desarrollo del Milenio y otros objetivos de desarrollo acordados internacionalmente, de conformidad con los compromisos del Consenso de Monterrey y de foros subsiguientes.

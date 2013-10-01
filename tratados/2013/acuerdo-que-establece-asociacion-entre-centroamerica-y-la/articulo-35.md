@@ -1,0 +1,18 @@
+ARTÍCULO 35
+Drogas ilícitas
+1. Las Partes cooperarán para garantizar un enfoque global, integral, y equilibrado a través de una acción y coordinación efectivas entre las autoridades competentes, entre otras las de salud, educación, seguridad pública y/o interior, aduanas, los ámbitos sociales y de justicia, con el fin de reducir en la mayor medida posible la oferta y la demanda de drogas ilícitas, así como su impacto sobre las personas drogodependientes y la sociedad en general. Se busca, además, lograr el control y una prevención más efectiva contra el desvío de los precursores químicos utilizados en la fabricación ilícita de estupefacientes y sustancias psicotrópicas, incluido el desvío de estupefacientes y sustancias psicotrópicas de uso médico y científico, para fines ilícitos.
+2. La cooperación se basará en el principio de responsabilidad compartida, en los convenios internacionales pertinentes así como en la Declaración Política, en la Declaración sobre los Principios Rectores de la Reducción de la Demanda de Drogas y otros documentos principales adoptados por la Vigésima sesión especial de la Asamblea General de las Naciones Unidas sobre drogas en junio de 1998.
+3. La cooperación estará destinada a coordinar e incrementar los esfuerzos conjuntos para abordar el problema de las drogas ilícitas. Sin perjuicio de otros mecanismos de cooperación, las Partes acuerdan que, a nivel interregional, el Mecanismo de Coordinación y Cooperación en materia de Drogas entre la Unión Europea y América Latina y el Caribe se utilizará con este fin, y acuerdan cooperar para aumentar su eficacia.
+4. Las Partes también acuerdan cooperar contra los delitos relacionados con el tráfico de drogas mediante una mayor coordinación con organismos e instancias internacionales pertinentes.
+5. Las Partes cooperarán para asegurar un enfoque integral y equilibrado a través de una efectiva acción y coordinación entre las autoridades competentes, teniendo en cuenta los ámbitos social, de justicia y de seguridad pública y/o interior, con el propósito de:
+a) intercambiar puntos de vista sobre regímenes legislativos y mejores prácticas;
+b) luchar contra la oferta, el tráfico y la demanda de estupefacientes y sustancias psicotrópicas;
+c) fortalecer la cooperación judicial y policial para combatir el tráfico ilícito;
+d) fortalecer la cooperación marítima para luchar eficientemente contra el tráfico;
+e) establecer centros de información y monitoreo;
+f) definir y aplicar medidas destinadas a reducir el tráfico ilícito de drogas, de recetas médicas (estupefacientes y sustancias psicotrópicas) y de precursores químicos;
+g) establecer programas y proyectos de investigación conjunta, así como asistencia judicial recíproca;
+h) estimular un desarrollo alternativo, en particular la promoción de cultivos legales para pequeños productores;
+i) facilitar la formación y la educación de recursos humanos para prevenir el consumo y el tráfico de drogas, y fortalecer los sistemas administrativos de control;
+j) apoyar los programas de prevención y educación dedicados a los jóvenes tanto dentro como fuera de los centros de enseñanza;
+k) fortalecer la prevención, el tratamiento, la rehabilitación y la reinserción de las personas drogodependientes mediante diversas modalidades, y reducir los efectos adversos derivados del abuso de drogas.

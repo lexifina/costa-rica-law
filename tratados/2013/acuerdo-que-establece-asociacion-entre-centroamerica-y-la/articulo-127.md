@@ -1,0 +1,4 @@
+ARTÍCULO 127
+Ámbito y cobertura
+1. El presente capítulo se aplica a la elaboración, la adopción y la aplicación de reglamentos técnicos, normas y procedimientos de evaluación de la conformidad, tal como se definen en el Acuerdo OTC, que puedan afectar al comercio de mercancías entre las Partes.
+2. No obstante lo dispuesto en el apartado 1, el presente capítulo no se aplica a las medidas sanitarias y fitosanitarias definidas en el anexo A del Acuerdo de la OMC sobre la Aplicación de Medidas Sanitarias y Fitosanitarias (en lo sucesivo, el "Acuerdo MSF"), ni a las especificaciones de compra establecidas por organismos o instituciones gubernamentales para las necesidades de producción o de consumo de dichos organismos o instituciones gubernamentales, que se regirán por el título V (Contratación pública) de la parte IV del presente Acuerdo.

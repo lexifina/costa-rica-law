@@ -1,0 +1,11 @@
+ARTÍCULO 164
+Acceso a los mercados
+1. Respecto al acceso a los mercados mediante el establecimiento, cada Parte otorgará a los establecimientos y los inversionistas de la otra Parte un trato no menos favorable que el previsto de conformidad con los términos, las limitaciones y las condiciones acordados y especificados en los compromisos específicos que figuran en el anexo X (Listas de compromisos sobre establecimiento).
+2. En los sectores en que se contraigan compromisos de acceso a los mercados, las medidas que ninguna de las Partes mantendrá ni adoptará, ya sea sobre la base de una subdivisión regional o de la totalidad de su territorio, a menos que en el anexo X se especifique lo contrario, se definen del modo siguiente:
+a) limitaciones al número de establecimientos, ya sea en forma de contingentes numéricos, monopolios, derechos exclusivos o mediante la exigencia de una prueba de necesidades económicas;
+b) limitaciones al valor total de las transacciones o los activos en forma de contingentes numéricos o mediante la exigencia de una prueba de necesidades económicas;
+c) limitaciones al número total de operaciones o a la cuantía total de la producción, expresadas en términos de unidades numéricas designadas, en forma de contingentes o mediante la exigencia de una prueba de necesidades económicas14;
+14 Las letras a), b) y c) del apartado 2 no abarcan las medidas tomadas para limitar la producción de un producto agrícola.
+d) limitaciones a la participación de capital extranjero expresadas como límite porcentual máximo a la tenencia de acciones por extranjeros o como valor total de las inversiones extranjeras individuales o agregadas; y
+e) medidas que restrinjan o prescriban los tipos específicos de establecimiento (filial o subsidiaria, sucursal, oficina de representación)15 o empresas conjuntas (joint ventures) a través de los cuales un inversionista de la otra Parte pueda efectuar una actividad económica.
+15 Cada Parte podrá exigir que, en caso de incorporación conforme a su propia legislación, los inversionistas deban adoptar una forma jurídica específica. Siempre y cuando tal exigencia se aplique de manera no discriminatoria, no es necesario que se especifique en el anexo X (Listas de compromisos sobre establecimiento) para que las Partes la mantengan o la adopten.

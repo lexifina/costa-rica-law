@@ -1,0 +1,4 @@
+ARTÍCULO 107
+Compensación y suspensión de concesiones
+1. Una Parte que aplique una medida de salvaguardia bilateral consultará a la Parte cuyos productos están sujetos a la medida para acordar mutuamente una compensación de liberalización comercial apropiada en forma de concesiones que tengan un efecto comercial sustancialmente equivalente. La Parte brindará una oportunidad para tales consultas a más tardar treinta días a partir de la aplicación de la medida de salvaguardia bilateral.
+2. Si las consultas mencionadas en el apartado 1 no dan lugar a un acuerdo sobre la compensación de liberalización comercial en un plazo de treinta días, la Parte cuyos productos están sujetos a la medida de salvaguardia podrá suspender la aplicación de concesiones sustancialmente equivalentes al comercio de la Parte que aplica la medida de salvaguardia.

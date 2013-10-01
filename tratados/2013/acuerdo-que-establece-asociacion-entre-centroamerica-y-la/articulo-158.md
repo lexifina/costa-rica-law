@@ -1,0 +1,7 @@
+CAPÍTULO 6
+EXCEPCIONES RELATIVAS A LAS MERCANCÍAS
+ARTÍCULO 158
+Excepciones generales
+1. El artículo XX del GATT de 1994, incluidas sus notas interpretativas, se incorpora al presente Acuerdo y forma parte integral del mismo.
+2. Las Partes reconocen que el artículo XX, letra b), del GATT de 1994 podrá aplicarse también a las medidas medioambientales necesarias para proteger la vida o la salud de las personas, los animales o los vegetales y que el artículo XX, letra g), del GATT de 1994 se aplica a las medidas relativas a la conservación de los recursos naturales vivos o no vivos agotables.
+3. Las Partes reconocen que, previa solicitud de una de las Partes, y antes de adoptar alguna de las medidas previstas en el artículo XX, letras i) y j), del GATT de 1994, la Parte exportadora que desee tomar las medidas facilitará a la otra Parte toda la información pertinente. Las Partes podrán ponerse de acuerdo sobre los medios necesarios para poner fin a las condiciones por las que se necesitan las medidas. Si no se llega a un acuerdo en un plazo de treinta días, la Parte exportadora podrá aplicar las medidas del presente artículo a la exportación del producto de que se trate. Cuando concurran circunstancias excepcionales y críticas que exijan una acción inmediata que haga imposible la información o el examen previos, la Parte que tenga la intención de adoptar medidas podrá aplicar sin dilación las medidas cautelares estrictamente necesarias para hacer frente a la situación e informará inmediatamente de ello a la otra Parte.

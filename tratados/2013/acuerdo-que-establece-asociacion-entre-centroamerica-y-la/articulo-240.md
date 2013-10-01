@@ -1,0 +1,3 @@
+ARTÍCULO 240
+Marcas notoriamente conocidas
+El artículo 6 bis del Convenio de París se aplicará, mutatis mutandis, a bienes o servicios que no sean idénticos o similares a aquellos identificados por una marca notoriamente conocida, siempre que el uso de esa marca en relación con esos bienes o servicios indique una conexión entre esos bienes o servicios y el titular de la marca, y a condición de que sea probable que ese uso lesione los intereses del titular de la marca. Para mayor certeza, las Partes también podrán aplicar la presente protección a las marcas notoriamente conocidas no registradas.

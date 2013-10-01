@@ -1,0 +1,4 @@
+ARTÍCULO 320
+Información y asistencia técnica
+1. A solicitud de una Parte contendiente, o por su propia iniciativa, el Grupo Especial podrá obtener información de cualquier Parte que considere apropiada para el procedimiento del Grupo Especial.
+2. El Grupo Especial también podrá recabar, cuando sea pertinente, información y opiniones de expertos, organismos u otras fuentes. Antes de recabar este tipo de información y opiniones, el Grupo Especial informará a las Partes contendientes y les brindará la oportunidad de formular observaciones al respecto. Cualquier información obtenida de conformidad con el presente apartado debe ser revelada de manera oportuna a cada una de las Partes contendientes y se les enviará para que formulen sus observaciones. Dichos comentarios se transmitirán al Grupo Especial y a la otra Parte.

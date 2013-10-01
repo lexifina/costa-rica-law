@@ -1,0 +1,8 @@
+ARTÍCULO 58
+Cooperación y asistencia técnica en materia de contratación pública
+Las Partes reconocen la importancia de la cooperación y la asistencia técnica en materia de contratación pública y acuerdan cooperar de la siguiente manera:
+a) previo acuerdo de las Partes interesadas, mejorando la cooperación institucional y facilitando el intercambio de información sobre los marcos jurídicos relativos a la contratación pública, con el posible inicio de un mecanismo de diálogo;
+b) previa petición de una Parte, facilitando la creación de capacidades y formación, incluida la formación para el sector privado sobre medios innovadores para una contratación pública competitiva;
+c) apoyando actividades de divulgación en las Repúblicas de la Parte CA relacionadas con las disposiciones del título V (Contratación pública) de la parte IV del presente Acuerdo, para el sector público, el sector privado y la sociedad civil, en relación con los Sistemas de Contratación de la Unión Europea y las oportunidades que los proveedores centroamericanos podrían tener en la Unión Europea;
+d) apoyando el desarrollo, el establecimiento y el funcionamiento de un punto único de acceso a la información relativa a la contratación pública para toda la región centroamericana. Este punto único de acceso funcionará tal como se indica en el artículo 212, apartado 1, letra d), el artículo 213, el artículo 215, apartado 4, y el artículo 223, apartado 2, del título V (Contratación pública) de la parte IV del presente Acuerdo;
+e) mejorando las capacidades tecnológicas de las entidades públicas, ya sea a nivel central o regional, u otras entidades contratantes.

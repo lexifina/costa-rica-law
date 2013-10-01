@@ -1,0 +1,10 @@
+ARTÍCULO 325
+Lista de panelistas
+1. A más tardar seis meses50 después de la entrada en vigor del Acuerdo, el Consejo de Asociación deberá establecer una lista de treinta y seis individuos que estén dispuestos y puedan ejercer como panelistas. La Parte UE propondrá doce individuos para ejercer como panelistas y cada República de la Parte CA propondrá dos individuos. La Parte UE y las Repúblicas de la Parte CA también deberán escoger doce personas que no sean nacionales de ninguna de las Partes, para ejercer como Presidente del Grupo Especial. El Consejo de Asociación podrá revisar la lista en cualquier momento y deberá asegurarse de que la lista siempre se mantenga en este nivel de conformidad con las disposiciones del presente apartado.
+50 A partir de la entrada en vigor del presente Acuerdo:
+a) las Partes enviarán al Consejo de Asociación sus listas de candidatos dentro de los setenta y cinco días siguientes;
+b) el Consejo de Asociación aprobará o rechazará los candidatos en las listas dentro de los ciento veinte días siguientes;
+c) las Partes enviarán una lista de candidatos adicionales para sustituir a los candidatos rechazados dentro de los ciento cincuenta días siguientes;
+d) la lista de candidatos estará finalizada dentro de los ciento ochenta días siguientes.
+2. Los panelistas deberán tener conocimientos especializados o experiencia en Derecho, comercio internacional u otras materias relacionadas con la parte IV del presente Acuerdo o en la resolución de controversias derivadas de acuerdos comerciales internacionales, ser independientes, actuar a título individual y no estar vinculados ni recibir instrucciones de ninguna Parte u organización, así como cumplir el Código de Conducta adoptado por el Consejo de Asociación.
+3. El Consejo de Asociación podrá establecer listas adicionales de hasta quince individuos con experiencia sectorial en cuestiones específicas cubiertas por la parte IV del presente Acuerdo. Cuando se recurra al procedimiento de selección establecido en el artículo 312, el Presidente del Comité de Asociación podrá utilizar una lista sectorial si existe acuerdo entre las Partes.

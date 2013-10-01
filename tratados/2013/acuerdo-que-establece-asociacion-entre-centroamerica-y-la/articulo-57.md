@@ -1,0 +1,7 @@
+ARTÍCULO 57
+Cooperación y asistencia técnica en materia de obstáculos técnicos al comercio
+Las Partes reconocen la importancia de la cooperación y asistencia técnica en el ámbito de los obstáculos técnicos al comercio y acuerdan cooperar, entre otras, en los ámbitos siguientes:
+a) proporcionar conocimientos especializados, creación de capacidades, incluyendo el desarrollo y el fortalecimiento de la infraestructura pertinente, formación y asistencia técnica en los ámbitos de reglamentación técnica, normalización, evaluación de la conformidad, acreditación y metrología; lo cual puede incluir actividades destinadas a facilitar la comprensión y el cumplimiento de los requisitos de la Unión Europea, en particular por parte de las pequeñas y medianas empresas;
+b) apoyar la armonización de la legislación y los procedimientos en materia de obstáculos técnicos al comercio dentro de Centroamérica y facilitar la circulación de mercancías dentro de la región;
+c) promover la participación activa de representantes de las Repúblicas de la Parte CA en el trabajo de las organizaciones internacionales pertinentes a fin de aumentar el uso de las normas internacionales;
+d) intercambiar información, experiencias y buenas prácticas para facilitar la aplicación del capítulo 4 (Obstáculos técnicos al comercio) del título II de la parte IV del presente Acuerdo; lo que puede incluir programas de facilitación del comercio en los ámbitos de interés común cubiertos por el capítulo 4.

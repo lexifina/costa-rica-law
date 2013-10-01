@@ -1,0 +1,7 @@
+ARTÍCULO 105
+Condiciones y limitaciones
+1. No se podrá aplicar ninguna medida de salvaguardia bilateral:
+a) excepto en la medida y por el tiempo que pueda ser necesaria para prevenir o remediar la situación descrita en los artículos 104 o 109;
+b) por un período superior a dos años; el plazo podrá prorrogarse otros dos años si las autoridades competentes de la Parte importadora determinan, de conformidad con los procedimientos especificados en la presente subsección, que la medida sigue siendo necesaria para prevenir o remediar las situaciones descritas en los artículos 104 o 109, siempre y cuando el periodo de aplicación total de una medida de salvaguardia, incluido el periodo de aplicación inicial y cualquier prórroga del mismo, no sea superior a cuatro años; o
+c) más allá de la expiración del periodo de transición, excepto con el consentimiento de la otra Parte; por "periodo de transición", se entiende diez años a partir de la fecha de entrada en vigor del presente Acuerdo; respecto a cualquier mercancía para la cual la lista que figura en el anexo I (Eliminación de aranceles aduaneros) de la Parte que aplica la medida establezca la eliminación arancelaria de diez o más años, por "periodo de transición" se entiende el periodo de desgravación arancelaria correspondiente a las mercancías que figuran en dicha lista, más tres años.
+2. Cuando una de las Partes deje de aplicar una medida de salvaguardia bilateral, la tasa del arancel aduanero será la que habría estado en vigor para la mercancía según la lista de dicha Parte.

@@ -1,0 +1,4 @@
+ARTÍCULO 46
+Grupos vulnerables
+1. Las Partes acuerdan que la cooperación en favor de los grupos vulnerables dará prioridad a medidas —incluidos los proyectos y las políticas innovadores— que involucren a grupos vulnerables, a fin de promover el desarrollo humano, reducir la pobreza y luchar contra la exclusión social.
+2. La cooperación incluirá la protección de los derechos humanos y la igualdad de oportunidades para los grupos vulnerables, la creación de oportunidades económicas para los más pobres, así como políticas sociales específicas orientadas al desarrollo de las capacidades humanas a través de la educación y la formación, el acceso a los servicios sociales básicos, las redes de protección social y la justicia, prestando especial atención, entre otros, a las personas con discapacidad y sus familias, los niños, las mujeres y los adultos mayores.
