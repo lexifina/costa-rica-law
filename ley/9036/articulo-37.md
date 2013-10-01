@@ -33,18 +33,12 @@ En la producción nacional será contribuyente de estos impuestos el fabricante 
 Para aplicar estos impuestos, se entenderá por venta cualquier acto que involucre o tenga por fin último la transferencia del dominio del producto, independientemente de su naturaleza jurídica, la designación y las condiciones pactadas por las partes.
 Asimismo, se entenderá por importación el ingreso al territorio nacional, una vez cumplidos los trámites legales de los productos sujetos a estos impuestos.
 Se exceptúa del pago de este impuesto el producto destinado a la exportación.
-(*) (Mediante resolución N° 002-2013 del 30 de junio del 2013 se establece lo siguiente: "... Se actualiza el impuesto específico otorgado a favor del IFAM, según se detalla a continuación:
-Cálculo para el tercer trimestre de 2013 (julio a setiembre)
-| |
-| abril-13 | enero-13
-IP | 161,703 | 158,737
-| |
-Variación %= | 1,868% |
-| |
-Valor impuesto inicial | ¢0,23111
-Factor Acumulativo de Variación | | 1,01868
-Valor Actualizado del impuesto específico por mililitro de alcohol absoluto | ¢0,23543
-El monto del impuesto específico ¢0,23543 se aplicará sobre cada mililitro de alcohol absoluto. Dicho monto regirá durante el período comprendido entre el 1° de julio el 30 de setiembre de 2013...")
+(*) (Mediante resolución N° 003-2013 del 3 de setiembre del 2013, se establece lo siguiente: "... Se actualiza el impuesto específico otorgado a favor del IFAM, según se detalla a continuación:
+Cálculo para el cuarto trimestre de 2013 (octubre a diciembre)
+| Julio-2013 | Abril-2013
+IPC | 162,306 | 161,703
+Valor impuesto inicial ¢0,23543 Factor acumulativo de variación ¢1,00373 Valor actualizado del impuesto específico por mililitro de alcohol absoluto ¢0,23630
+El monto del impuesto específico, de ¢0,23630 (cero coma dos tres seis tres cero colones), se aplicará sobre cada mililitro de alcohol absoluto. Dicho monto regirá durante el período comprendido entre el 01 de octubre y el 31 de diciembre de 2013.")
 Artículo 11.- Los impuestos creados en la presente ley se liquidarán y pagarán de la siguiente manera:
 a) En la producción nacional, los sujetos pasivos deberán liquidar y pagar los impuestos a más tardar dentro de los primeros quince días naturales de cada mes. Utilizarán el formulario de declaración jurada que apruebe la Administración Tributaria, por todas las ventas efectuadas en el mes anterior al de la declaración, debidamente respaldadas mediante comprobantes autorizados. La presentación de la declaración jurada y el pago de los impuestos serán actos simultáneos.
 b) En las importaciones o internaciones, en el momento previo al desalmacenaje del producto, efectuado por las aduanas que a la vez acreditará por medio de la Tesorería Nacional. No se autorizará desalmacenarlo si los interesados no comprueban el correspondiente pago del impuesto. El pago deberá consignarse por separado en la declaración aduanera.
