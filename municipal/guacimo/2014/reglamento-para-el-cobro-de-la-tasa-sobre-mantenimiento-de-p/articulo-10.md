@@ -1,0 +1,1 @@
+Artículo X.—Esta tasa deberá pagarla todos los contribuyentes de cada uno de los distritos, según lo indica el código Municipal en el artículo 74: que indica que tal suma se cobrara Proporcional entre los contribuyentes del distrito, según el valor de la propiedad.
