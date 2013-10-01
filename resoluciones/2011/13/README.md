@@ -14,3 +14,4 @@ Publica Mensaje de Solicitud de Creación de Viajes Versión 1.5
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-17 | la propia norma |
+| 2 | 2013-10-01 | Resolución 308 (2013-10-01) |
