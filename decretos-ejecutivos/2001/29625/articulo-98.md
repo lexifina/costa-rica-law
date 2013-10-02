@@ -1,1 +1,0 @@
-Artículo 98.—Cumplimiento de horario. Los alumnos deben de estar a la hora exacta, fijada en el horario, en su respectiva aula. Con respecto a las ausencias o llegadas tardías, se podrá justificar ante el instructor, quedando a criterio de éste si procede o no la justificación.

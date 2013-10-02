@@ -1,1 +1,0 @@
-Artículo 11.—Quórum. El quórum para sesionar válidamente será el de tres de sus miembros y sus acuerdos se tomarán por mayoría absoluta de los presentes. En casos de empate, el presidente en ejercicio tendrá doble voto.

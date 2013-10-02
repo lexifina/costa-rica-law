@@ -1,1 +1,0 @@
-Artículo 85.—Requisitos para llenar plazas y vacantes. Para llenar las plazas vacantes de la Escuela se debe observar en forma estricta el nivel de requisitos y exigencias del puesto según la Ley y el Manual de Puestos de la Policía de Tránsito.

@@ -1,1 +1,0 @@
-Artículo 75.—Efectos de la calificación. La calificación obtenida será necesaria para considerar los méritos y ascensos, así como para la carrera policial y profesional de los servidores. La obtención de una nota inferior a BUENO, tendrá como efecto que no se reconozca el incentivo salarial respectivo.

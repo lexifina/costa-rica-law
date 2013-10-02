@@ -1,1 +1,0 @@
-Artículo 77.—Programa del Curso Básico. El Programa del Curso Básico para Policías de Tránsito está dirigido a dotar de conocimientos básicos dentro del marco teórico-práctico, a los aspirantes a integrar el cuerpo policial de la Dirección General de la Policía de Tránsito.

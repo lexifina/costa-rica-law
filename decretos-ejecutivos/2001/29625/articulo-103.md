@@ -1,1 +1,0 @@
-Artículo 103.—Obligatoriedad de informe cuando las faltas sean graves. La Dirección de la Escuela remitirá el informe correspondiente ante la Inspección Policial en aquellos casos en que las faltas sean graves, a efecto de que se levante el respectivo proceso administrativo disciplinario.

@@ -1,1 +1,0 @@
-Artículo 70.—Formularios para la calificación. La calificación se realizará a través de los formularios confeccionados y aprobados para tal efecto por el Consejo de Personal, los que se distribuirán a las diferentes Unidades Policiales y se procesará mediante tablas de ponderación.

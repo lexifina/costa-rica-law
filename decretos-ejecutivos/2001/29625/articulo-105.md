@@ -1,1 +1,0 @@
-Artículo 105.—Derogatoria. Se derogan los Decretos Ejecutivos Nº 24880-MOPT del 20 de diciembre de 1995, publicado en La Gaceta Nº 19 del 26 de enero de 1996; y 26779-MOPT del 12 de marzo del 1998, publicado en La Gaceta Nº 60 del 26 del mismo mes y año, así como toda disposición legal de igual o inferior rango en lo que se le oponga.

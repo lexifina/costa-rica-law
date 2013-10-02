@@ -1,1 +1,0 @@
-Artículo 102.—Posibilidad de apercibimiento por el Instructor. Los casos en que los actos y conductas no alcanzaren la consideración de falta leve, por corresponder a un nivel inferior a este, serán corregidos por el Instructor Profesor o servidor competente, con el apercibimiento respectivo.

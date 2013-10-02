@@ -1,1 +1,0 @@
-Artículo 79.—Requisitos para ingresar a los cursos de la Escuela Nacional. Para ingresar a los cursos que ofrece la Escuela Nacional, se tomará en cuenta el registro laboral (antigüedad, méritos, calificaciones de servicios), pudiéndose además considerar los resultados de su participación en cursos anteriores.

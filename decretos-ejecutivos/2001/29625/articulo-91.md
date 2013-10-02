@@ -1,1 +1,0 @@
-Artículo 91.—Obligatoriedad de cumplimiento de la normativa interna de la Escuela. Los diferentes órganos administrativos, docentes o técnico policial de la institución, están en él deber de velar por el cumplimiento de las normas de este Capítulo, reportando al Director de la Policía de Tránsito cualquier anomalía o transgresión al mismo.
