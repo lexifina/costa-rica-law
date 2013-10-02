@@ -1,0 +1,1 @@
+II. Corregir la resolución RCS-224-2013 de las 10:30 horas del 19 de julio del 2013, y en consecuencia se enmienda el error material indicado en la citada resolución, en su Por Tanto 3, para que sea lea correctamente “En lo demás la resolución RCS-169-2013 se mantiene inalterada”.
