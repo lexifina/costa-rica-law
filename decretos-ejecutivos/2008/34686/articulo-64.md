@@ -1,1 +1,0 @@
-Artículo 64.—El Director General de la Policía de Tránsito deberá escoger al nuevo empleado dentro de un plazo máximo de diez días hábiles, contados a partir de la fecha en que se realice la entrevista a los candidatos, cuando ésta se realice, en coordinación con la oficina de recursos humanos.

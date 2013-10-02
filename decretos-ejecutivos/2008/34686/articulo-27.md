@@ -1,1 +1,0 @@
-Artículo 27.—Cuando la Oficina de Recursos Humanos no cuente con Registro de Elegibles y sea necesario efectuar un Concurso interno o externo para llenar plazas vacantes, se podrán hacer nombramientos provisionales, previa confección de la solicitud o pedimento de personal, excepto cuando se trate de puestos nuevos.

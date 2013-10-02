@@ -1,1 +1,0 @@
-Artículo 53.—El tiempo de aplicación de las pruebas, no debe exceder de media jornada de trabajo. No obstante, en caso de necesidad se podrán dar excepciones a lo previsto, como por ejemplo cuando las bases de selección contengan entrevista individual, o grupal o alguna prueba práctica.

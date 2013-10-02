@@ -1,1 +1,0 @@
-Artículo 78.—La Dirección General de la Policía de Tránsito contará con las plazas que le asigne, por medio de su presupuesto, tanto el Ministerio de Obras Públicas y Transportes como el Consejo de Seguridad Vial, ambos en su condición de patronos independientes.

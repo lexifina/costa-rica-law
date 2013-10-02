@@ -1,1 +1,0 @@
-Artículo 80.—La vigencia de los cambios surgidos en la clasificación de puestos policiales de la Policía de Tránsito, para efectos de pago, regirá a partir del primer día del mes siguiente a aquel en que se emita la resolución correspondiente. No se podrá estudiar un mismo puesto sino hasta después de doce meses del último estudio.

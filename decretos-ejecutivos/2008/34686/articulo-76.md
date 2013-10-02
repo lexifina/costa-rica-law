@@ -1,1 +1,0 @@
-Artículo 76.—En las entrevistas para la resolución de ternas o nóminas podrá participar un representante del Consejo de Personal, un representante de la Oficina de Recursos Humanos y un funcionario de la Dirección General de la Policía de Tránsito debidamente autorizado por el jerarca.

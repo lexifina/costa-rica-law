@@ -1,1 +1,0 @@
-Artículo 73.—En los casos de plazas vacantes, en que las servidoras que las ocupen en forma interina se encuentren gozando de incapacidad por maternidad, se debe hacer el nombramiento en propiedad del candidato escogido de la terna o nómina al vencimiento de la licencia.

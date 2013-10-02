@@ -1,1 +1,0 @@
-Artículo 52.—Cuando se recomiende la aplicación de la entrevista grupal entre los factores de una base de selección, se debe tomar en cuenta el número de oferentes que se haya presentado para el concurso, como mínimo se debe contar, preferiblemente con cuatro candidatos.

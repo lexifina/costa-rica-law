@@ -1,1 +1,0 @@
-Artículo 44.—La Oficina de Recursos Humanos notificará a los participantes la calificación final obtenida por cada uno de ellos, en un plazo no menor a diez días ni superior a treinta días hábiles siguientes a la declaratoria del concurso por parte del Consejo de Personal.

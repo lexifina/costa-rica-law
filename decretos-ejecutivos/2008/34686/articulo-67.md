@@ -1,1 +1,0 @@
-Artículo 67.—Es responsabilidad del Consejo de Personal, depurar el Registro de Elegibles para lo cual verificará, cada año, el interés de los candidatos elegibles de permanecer en el citado registro.

@@ -1,1 +1,0 @@
-Artículo 55.—En todos los concursos externos e internos los funcionarios involucrados, sean de la oficina de recursos humanos o del Consejo de Personal, deberán guardar la discrecionalidad sobre la documentación y los casos sometidos a su conocimiento.

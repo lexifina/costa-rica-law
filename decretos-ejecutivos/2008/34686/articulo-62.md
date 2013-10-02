@@ -1,1 +1,0 @@
-Artículo 62.—En caso de que el funcionario se encuentre nombrado en forma interina en la plaza en pedimento y alcance uno de los tres primeros lugares de la terna, queda a juicio del Director General de la Policía de Tránsito convocar a entrevista en cuyo caso podrá escoger en propiedad al interino, obviando la entrevista.

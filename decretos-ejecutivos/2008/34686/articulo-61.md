@@ -1,1 +1,0 @@
-Artículo 61.—Los comunicados de convocatorias a entrevista de contratación deberán ser enviados al interesado al menos con cinco días hábiles de anticipación y la copia del comunicado deberá agregarse al expediente de la terna o nómina en resolución.

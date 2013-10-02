@@ -1,1 +1,0 @@
-Artículo 6º—De conformidad con lo dispuesto en el artículo 74 de la Ley No. 8096 Fortalecimiento de la Policía Civilista, relacionado con el artículo 196 de la Ley de Tránsito Nº 7331 y el artículo 6 de la Ley General de Policía Nº 7410, se autoriza la variación del plus salarial por concepto de Riesgo Policial a un dieciocho por ciento (18%) del salario base.

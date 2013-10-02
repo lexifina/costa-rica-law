@@ -1,2 +1,0 @@
-Artículo 14.—Todos los documentos relativos a las pruebas de los oferentes podrán ser destruidos después de transcurridos seis meses de la fecha del establecimiento del Registro de Elegibles. Los oferentes que participan en concursos podrán revisar todos los documentos dentro del mes siguiente a la fecha de declaratoria del concurso.
-Para alcanzar la condición de elegible se requiere obtener como mínimo nota igual a ochenta por ciento en la escala de uno a cien puntos.
