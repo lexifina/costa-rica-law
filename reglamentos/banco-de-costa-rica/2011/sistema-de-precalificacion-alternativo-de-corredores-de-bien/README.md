@@ -14,3 +14,4 @@ Sistema de precalificación alternativo de corredores de bienes para la venta de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-19 | la propia norma |
+| 2 | 2013-10-03 | Acuerdo 0 (2013-10-03) |
