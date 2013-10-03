@@ -1,0 +1,2 @@
+Artículo 7°—Personal: El Centro estará integrado por una persona Administrador (a) que deberá contar como mínimo con el título de Licenciado (a) en cualquier ciencia Social o carrera afín al cargo. (Trabajo Social, psicología, Recursos Humanos, Educación, Administración, entre otros).
+Además, con una persona profesional docente, con el grado mínimo de bachiller Universitaria en docencia o carrera afín y una persona asistente con al menos noveno año de escolaridad, por cada grupo de 25 niños o niñas.

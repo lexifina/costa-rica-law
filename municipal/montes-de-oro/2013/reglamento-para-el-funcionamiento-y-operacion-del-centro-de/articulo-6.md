@@ -1,0 +1,1 @@
+Artículo 6°—Horario del CECUDI: El horario de atención para la población beneficiada será de 48 horas semanales de Lunes a Viernes, se excluyen de servicio los días feriados de ley y aquellos que sean declarados asueto de acuerdo con la normativa correspondiente.

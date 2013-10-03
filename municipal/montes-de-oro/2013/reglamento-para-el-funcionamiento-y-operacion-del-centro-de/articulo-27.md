@@ -1,0 +1,1 @@
+Artículo 27.—En caso de ausencia, es obligación del trabajador, hacer la comunicación vía telefónica de su condición y presentar dentro de los tres días siguientes a su reincorporación laboral, la justificación a la administración del centro.
