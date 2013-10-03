@@ -1,0 +1,1 @@
+Artículo 4º—Autoridad competente. PROCOMER, mediante la Unidad de Origen, verificará el origen del producto a ser exportado hacia la Parte UE al amparo del AACUE y emitirá el Certificado de Exportación correspondiente. Asimismo, PROCOMER únicamente emitirá Certificados de Exportación para banano o productos textiles y de confección de origen costarricense.

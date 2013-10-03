@@ -1,0 +1,2 @@
+Transitorio: Hasta tanto no entre en vigencia la Parte IV: “Comercio” del Acuerdo por el que se establece una Asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro, Ley de Aprobación N° 9154 del 03 de julio de 2013; no se expedirán los Certificados de Exportación de Banano o de Productos Textiles y de Confección amparados al presente Reglamento.
+Dado en la Presidencia de la República, a los cinco días del mes de setiembre del año dos mil trece.

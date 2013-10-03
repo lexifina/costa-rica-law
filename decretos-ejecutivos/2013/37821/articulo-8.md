@@ -1,0 +1,6 @@
+Artículo 8º—Requisitos de la solicitud de certificado. El interesado en obtener un Certificado de Exportación, deberá presentar la solicitud ante la Unidad de Origen de la VUCE en el formulario elaborado al efecto y presentar los documentos que se indican a continuación:
+a) Formato del Certificado de Exportación debidamente completado.
+b) Copia al carbón o fotocopia legible del conocimiento de embarque, de la factura comercial o de otro documento que ampare la exportación en cuestión.
+c) Comprobante de pago o de cancelación del derecho de trámite ante la VUCE.
+El interesado podrá adjuntar a su solicitud copia del Certificado de Circulación de Mercancías utilizado para la exportación o en su defecto copia de la solicitud del Certificado de Circulación de Mercancías.
+El interesado podrá solicitar en cualquier momento un Certificado de Exportación para el año en curso, el cual tendrá validez hasta el 31 de diciembre de ese mismo año. En el caso de Certificados de Exportación a ser utilizados en el año calendario siguiente, se podrá solicitar su emisión a partir del último trimestre del año en curso. Todo Certificado de Exportación deberá estar amparado a un Certificado de Circulación de Mercancías.

@@ -1,0 +1,2 @@
+Artículo 10.—Denegatoria del Certificado de Exportación. En aquellos casos en los que la Unidad de Origen resuelva no otorgar el Certificado de Exportación por considerar que no es posible comprobar el origen costarricense de la mercancía, se procederá a emitir la resolución correspondiente, la cual será notificada al interesado.
+Contra la resolución que deniegue la aprobación del Certificado de Exportación podrán interponerse recurso de revocatoria ante quien emite el acto denegatorio y recurso de apelación ante su superior jerárquico.
