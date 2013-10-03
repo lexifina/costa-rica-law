@@ -1,1 +1,20 @@
-Artículo 28.—Condominios: En este caso se debe utilizar el factor de proporcionalidad que indica el acta constitutiva del condominio, para el cálculo de la parte proporcional de terreno y de obras complementarias que sumadas al valor del Área Privativa dará el valor del inmueble sometido al Régimen de Propiedad en Condominio, como lo indica la normativa aplicable y leyes conexas.
+CAPÍTULO VII
+De las edificaciones
+Artículo 28.—Requisitos. El profesional deberá incluir en el informe lo siguiente:
+a) Seguir los formatos aportados por la Institución.
+b) Indicar la edad del bien.
+c) Indicar la vida útil total estimada.
+d) Aplicar el Método de Depreciación de Ross-Heidecke o cualquier otro que le fuese solicitado por el INVU.
+e) Calcular el Valor Neto de Reposición (VNR) del bien a partir del Valor de reposición Nuevo (VRN). Este valor afectado por la depreciación dará como resultado el Valor Neto de Reposición, que es el valor del bien (Avalúo Físico).
+f) Utilizar el precio unitario actualizado por metro cuadrado (como mínimo el del mes anterior a la fecha del avalúo) como valor de Reposición Nuevo. En este caso deberá indicar cuál fue la fecha utilizada.
+g) Calcular de la siguiente manera la Vida Útil Remanente
+(VUR) del bien: VUT*VENR/VRN=VUR
+En donde:
+VUT= Vida útil total
+VNR= Valor neto de reposición (inciso e)
+VRN= Valor de reposición nuevo
+h) Medir la edificación y calcular su área de construcción, independientemente de que cuente con los planos constructivos.
+i) Manifestar el potencial del bien (terreno y edificación), dada su ubicación, infraestructura y las características del entorno.
+j) Se deberá valorar por separado los diferentes componentes de la edificación cuando se trate de estructuras de distintas características, materiales y edades, y resumidas en un valor final.
+k) En caso de discapacidad del cliente, deberá observarse lo pertinente en el inciso h) del artículo 28 de este Reglamento.
+l) Deberá integrar al Informe de Avalúo las fotografías nítidas y representativas de lo que interesa.

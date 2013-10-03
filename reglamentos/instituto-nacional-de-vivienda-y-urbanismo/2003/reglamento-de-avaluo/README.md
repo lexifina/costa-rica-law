@@ -14,3 +14,4 @@ Reglamento de Avalúo.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-23 | la propia norma |
+| 2 | 2013-10-03 | Reglamento 6006 (2013-10-03) |

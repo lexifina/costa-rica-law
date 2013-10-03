@@ -1,4 +1,3 @@
-CAPÍTULO II
-De las obligaciones del profesional
-Artículo 4º—Notificación y plazo de entrega: La Comisión de Tasación notificará la asignación de casos a cada profesional, por vía de fax, con la prevención de que deberá presentarse para ser notificado personalmente, en el término de las veinticuatro horas siguientes al envío del documento. En caso de días inhábiles, deberá apersonarse el siguiente día hábil.
-La Comisión determinará el plazo de entrega del informe de avalúo, de acuerdo con las condiciones del caso concreto, sin que exceda de cinco días hábiles, contados a partir del día siguiente a la fecha en que le sea notificado personalmente al profesional. Excepcionalmente y en casos muy calificados -a criterio de la Comisión- dicho plazo podrá ser ampliado, pero ello deberá ser justificado por la dependencia que solicita el servicio o por el profesional designado.
+Artículo 4º—Formato. Para confeccionar su informe, el profesional deberá cumplir con los formatos de informes de avalúo aportados por el INVU, que se encuentren vigentes, según corresponda.
+Los informes deberán ser realizados asistidos por computadora y deberá presentarse impresos en original y una copia, o en formato digital, debidamente firmados, indicando el número
+de registro profesional. Deberán contener toda la información solicitada y cumplir con todas las disposiciones vigentes que le hayan sido comunicadas y todas aquellas aplicables según la normativa que rija esa materia. No se recibirán los informes de avalúo realizados en forma manuscrita.

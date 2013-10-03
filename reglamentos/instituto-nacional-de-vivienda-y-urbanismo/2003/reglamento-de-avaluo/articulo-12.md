@@ -1,1 +1,1 @@
-Artículo 12.—Información adicional: El profesional deberá incluir en su informe de avalúo cualquier nota aclaratoria que considere pertinente y todas aquellas informaciones, enmiendas y aclaraciones que le sean requeridas por el INVU.
+Artículo 12.—Información adicional. El profesional deberá incluir en su informe de avalúo cualquier nota aclaratoria que considere pertinente y todas aquellas informaciones, enmiendas y aclaraciones que le sean requeridas por el INVU, con la misma calidad y forma de presentación establecidas para los informes de avalúo.
