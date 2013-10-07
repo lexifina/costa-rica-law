@@ -1,15 +1,15 @@
-Artículo 20.—Categorización y Pago de Derechos Trimestrales. La Oficina de Patentes procederá a la generación del Tributo correspondiente por cada una de las actividades de los titulares de Licencias nuevas o de Patentes de Licores obtenidas con la Ley Nº 10, tomando como base los montos que se establecen en la siguiente tabla, la cual es conforme con los valores establecidos en el artículo 10 de la Ley. El vencimiento para el pago de este tributo será el último día hábil de cada trimestre.
-CLASIFICACIÓN | ACTIVIDAD | SALARIOS A PAGAR POR TRIMESTRE
-Licencia clase A | Licorera: La Actividad Comercial principal es el expendido de bebidas con contenido alcohólico en envase cerrado para llevar. | 1 (uno)
-Licencia clase B1 | Cantinas, Bares y Tabernas sin actividad bailable. | ½ (medio)
-Licencia clase B2 | Salones de baile, discotecas, clubes nocturnos y cabarés con actividad de baile | ½ (medio)
-Licencia clase C | Restaurante con venta de bebidas con contenido alcohólico. | ½ (medio)
-CLASIFICACIÓN | ACTIVIDAD | SALARIOS A PAGAR POR TRIMESTRE
-Licencia clase D1 | Mini súper: Actividad comercial secundaria es la venta de licor, con área útil menor a 150 metros cuadrados. | 1 (uno)
-Licencia clase D2 | Supermercado: Actividad comercial secundaria es la venta de licor, con área útil mayor a 150 metros cuadrados. | 2 (dos)
-Licencia clase E1-a | Empresas de hospedaje con menos de 15 habitaciones. | 1 (uno)
-Licencia clase E1-b | Empresas de hospedaje 15 o más habitaciones. | 2 (dos)
-Licencia clase E2 | Marinas y Atracaderos declarados de interés Turístico. | 3 (tres)
-Licencia clase E3 | Empresas Gastronómicas declaradas de interés Turístico. | 2 (dos)
-Licencia clase E4 | Centros de Diversión Nocturna declarados de interés turístico. | 3 (tres)
-Licencia clase E5 | Actividades Temáticas declaradas de interés turístico. | 1 (uno)
+Artículo 20.—Categorización y Pago de Derechos Trimestrales. La Oficina de Patentes procederá a la generación del Tributo correspondiente por cada una de las actividades de los titulares de Licencias nuevas o de Patentes de Licores obtenidas con la Ley N º 10, tomando como base los montos que se establecen en la siguiente tabla, la cual es conforme con los valores establecidos en el artículo 10 de la Ley y lo establecido por la Sala Constitucional en el Voto Nº 2013-1 1499 de las 16 horas del 28 de agosto de 2013. El vencimiento para el pago de este tributo será el último día hábil de cada trimestre.
+Clasificación | Actividad | Salarios por Trimestre. Cabecera de Cantón. | Salarios por Trimestre. Otros Lugares
+Licenciaclase A | Licorera: La Actividad Comercial principal es el expendido de bebidas con contenido alcohólico en envase cerrado para llevar. | 1 (uno) | ½ (medio)
+Licenciaclase B1 | Cantinas, Bares y Tabernas sin actividad bailable. | ½ (medio) | ¼ (uncuarto)
+Licenciaclase B2 | Salones de baile, discotecas, clubes nocturnos y cabarés con actividad de baile | ½ (medio) | ¼ (uncuarto)
+Licenciaclase C | Restaurante con venta de debebidas con contenido alcohólico. | ½ (medio) | ¼ (uncuarto)
+Licenciaclase D1 | Mini súper:Actividad comercial secundaria es la venta de licor, con área útil menor a 150. | 1 (uno) | ½ (medio)
+Licenciaclase D2 | Supermercado:Actividad comercial secundaria es la venta de licor, con área útil mayor a 150 metros cuadrados . | 2 (dos) | 1 (uno)
+Licenciaclase E1-a | Empresas de hospedaje con menos de 15 habitaciones. | ½ (medio) | ¼ (uncuarto)
+Licenciaclase E1-b | Empresas de hospedaje 15 o más habitaciones. | 1 (uno) | ½ (medio)
+Licenciaclase E2 | Marinas y Atracaderos declarados de interés Turístico. | 1 ½ (uno ymedio) | ¾ (trescuartos)
+Licenciaclase E3 | Empresas Gastronómicas declaradas de interés Turístico. | 1 (uno) | ½ (medio)
+Licenciaclase E4 | Centros de Diversión Nocturna declarados de interés turístico. | 1 ½ (uno ymedio) | ¾ (trescuartos)
+Licenciaclase E5 | Actividades Temáticas declaradas de interés turístico. | ½ (medio) | ¼ (uncuarto)
+(Así reformado mediante sesión N° 75 del 7 de octubre del 2013 y definitivamente aprobado mediante publicación en La Gaceta N° 231 del 29 de noviembre del 2013)
