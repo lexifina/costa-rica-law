@@ -14,3 +14,4 @@ Establece criterios para la clasificación de establecimientos o actividades esp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-25 | la propia norma |
+| 2 | 2013-10-07 | Directriz 6 (2013-10-07) |
