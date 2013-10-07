@@ -14,3 +14,4 @@ Reglamento autónomo para el otorgamiento de arrendamientos en asentamientos cam
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-07 | la propia norma |
+| 2 | 2013-10-07 | Reglamento 33 (2013-10-07) |
