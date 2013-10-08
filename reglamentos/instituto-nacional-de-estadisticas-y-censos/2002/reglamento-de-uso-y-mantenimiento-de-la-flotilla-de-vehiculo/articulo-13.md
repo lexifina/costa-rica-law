@@ -1,1 +1,0 @@
-Artículo 13.—Uso de vehículos en días no hábiles. La circulación de vehículos de uso administrativo que se efectúen en horas y días no hábiles estará restringida a casos especiales que a criterio del Despacho Gerencial amerite su uso, para desarrollar las funciones o actividades inherentes a la satisfacción del interés público institucional.
