@@ -1,2 +1,2 @@
-Artículo 6°—La ausencia a las sesiones, podrá ser reemplazada, salvo medie las justificaciones del caso, evaluado por el presidente.
-En caso contrario se le notificará al Consejo Técnico para su sustitución y reemplazo correspondiente.
+Artículo 6º—La ausencia a las sesiones por alguno de los miembros de la Comisión Médica, salvo que sea justificada, podrá dar lugar a la sustitución y reemplazo correspondiente por parte de la Dirección General de Aviación Civil.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37994 del 08 de octubre de 2013)

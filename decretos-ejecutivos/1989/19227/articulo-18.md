@@ -1,2 +1,2 @@
 Artículo 18.—Todas aquellas funciones o atribuciones que el Consejo Técnico de Aviación Civil asigne a la Comisión se considerarán inherentes a los fines para la cual se crea.
-El carácter ad honórem en el desempeño de las labores propias de los miembros de la Comisión, se compensará con la asistencia a cursos, congresos, seminarios y otras actividades propias de la medicina aeronáutica, tanto en el país como en el extranjero, como parte de la formación profesional en ese campo específico de la medicina, cuyo soporte económico (gastos de viaje y estadía) corre por cuenta del Consejo.
+(El párrafo segundo original fue derogado por el artículo 2° del decreto ejecutivo N° 37994 del 08 de octubre de 2013)

@@ -14,3 +14,4 @@ Crea Comisión Médica Aeronáutica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-10-13 | la propia norma |
+| 2 | 2013-10-08 | Decreto Ejecutivo 37994 (2013-10-08) |

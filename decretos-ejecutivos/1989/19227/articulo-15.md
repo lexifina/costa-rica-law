@@ -1,1 +1,1 @@
-Artículo 15.—Las escuelas de aviación y centros de instrucción análogos deberán incluir dentro de sus programas de estudio las recomendaciones que en la materia y en cuanto a primeros auxilios para accidentes aeronáuticos, dicte la Comisión.
+Artículo 15.— (Derogado por el artículo 2° del decreto ejecutivo N° 37994 del 08 de octubre de 2013)
