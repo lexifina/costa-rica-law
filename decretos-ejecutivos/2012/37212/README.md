@@ -15,3 +15,4 @@ Creación y Funcionamiento del Consejo Nacional de Desarrollo del Mar
 | --- | --- | --- |
 | 1 | 2012-08-03 | la propia norma |
 | 2 | 2012-11-06 | Decreto Ejecutivo 37384 (2012-11-06) |
+| 3 | 2013-10-09 | Decreto Ejecutivo 38014 (2013-10-09) |
