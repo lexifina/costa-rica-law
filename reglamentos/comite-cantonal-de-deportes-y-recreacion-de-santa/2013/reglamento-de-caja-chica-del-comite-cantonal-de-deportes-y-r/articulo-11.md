@@ -1,0 +1,3 @@
+CAPÍTULO III
+Vales, viáticos y su liquidación
+Artículo 11.—Autorización de vales. Con base en el artículo 9 del Reglamento del Comité Cantonal de Deportes y Recreación de Santa Ana, inciso c donde el Presidente autoriza y firma con el Tesorero, las órdenes de pago y los cheques contra los fondos del Comité, de la Caja Chica o de la cuenta corriente de un banco del sistema bancario nacional, La Junta Directiva delegara la función del Manejo para la administración del Manejo del Fondo de Caja Chica en el Coordinador Administrativo si existiere, de lo contrario, dicha responsabilidad recaerá en la Secretaria Administrativa.
