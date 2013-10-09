@@ -14,3 +14,4 @@ Reforma Reglamento Interno del Consejo Directivo del Instituto Costarricense de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-28 | la propia norma |
+| 2 | 2013-10-09 | Reglamento 6062 (2013-10-09) |
