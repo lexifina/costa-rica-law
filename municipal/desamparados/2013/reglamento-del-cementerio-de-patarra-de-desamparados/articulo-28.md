@@ -1,0 +1,1 @@
+Artículo 28.—El arrendatario de un nicho, no podrá bajo ningún título, ceder o traspasar este derecho. Tampoco podrá efectuar modificaciones de ningún tipo al nicho, salvo colocar una placa de identificación del fallecido, la cual deberá ajustarse a las especificaciones que defina la Junta Administrativa.

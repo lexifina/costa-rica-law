@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Nichos de alquiler
+Artículo 27.—La Junta Administrativa dispondrá la construcción de nichos para alquiler en sitios estratégicos del Cementerio, para darlos en arriendo por un periodo de cinco años, el cual puede ser renovado. Tendrá acceso a un nicho de alquiler cualquier interesado que no tenga derechos en el Cementerio y aquel que poseyendo un derecho, no pueda utilizarlo en ese momento por estar ocupado según el capítulo tercero de este Reglamento. Los nichos que se encuentran alquilados al momento de entrar en vigencia el presente reglamento, mantendrán los cuerpos inhumados hasta que completen los cinco años, contados desde el momento en que fueron enterrados.

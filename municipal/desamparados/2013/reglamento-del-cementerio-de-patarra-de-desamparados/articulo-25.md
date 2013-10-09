@@ -1,0 +1,1 @@
+Artículo 25.—La Junta Administrativa se reserva el derecho de suspender la adjudicación de lotes en el Cementerio, cuando lo considere oportuno, tomando en consideración la disponibilidad de área y uso de terreno.

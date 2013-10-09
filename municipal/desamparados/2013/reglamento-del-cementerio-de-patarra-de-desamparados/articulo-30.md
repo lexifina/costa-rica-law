@@ -1,0 +1,1 @@
+Artículo 30.—Transcurrido el plazo señalado en el artículo anterior, la Junta Administrativa ordenará el traslado de los restos del nicho al osario general, donde se colocarán con la debida Identificación como acto de Respeto.

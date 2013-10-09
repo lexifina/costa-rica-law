@@ -1,0 +1,1 @@
+Artículo 23.—El albacea del proceso sucesorio, en el que esté incluido un derecho posesorio de este Cementerio, asumirá las mismas obligaciones y derechos que disfrutaba el poseedor. En caso que deba cederse un derecho, el albacea deberá presentar autorización del juzgado o notario público ante quien se tramite el respectivo proceso sucesorio, para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 58.—Lo no dispuesto en el presente reglamento, se regirá por las disposiciones atinentes de la Ley General de Salud N° 5395 y del Reglamento General de Cementerios. Asimismo, en caso de duda en la aplicación de una norma específica, prevalecerá lo dispuesto en la ley y el reglamento citado.

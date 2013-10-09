@@ -1,0 +1,3 @@
+Artículo 10.—La condición de poseedor de uno o más derechos, se pierde con la muerte, venta o traspaso del derecho y cuando incurra en alguna de las siguientes causales:
+a) Cuando por cinco años el poseedor no ha hecho efectivo el pago de sus obligaciones con el Cementerio, ni se ha interesado en solicitar un arreglo de pago.
+b) El acuerdo que decida la pérdida de la condición de poseedor, a causa de las anteriores, deberá cumplir con el debido proceso y será ratificado por la Junta Administrativa y consistirá en la ejecución de dos notificaciones y una publicación en La Gaceta, con costos a cargo del responsable según declaración en el mismo acuerdo.

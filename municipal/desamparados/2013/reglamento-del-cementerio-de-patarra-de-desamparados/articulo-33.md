@@ -1,0 +1,1 @@
+Artículo 33.—La Junta Administrativa se compromete a proteger y vigilar las instalaciones del Cementerio. No obstante, no será responsable por profanaciones de tumbas, pérdidas, robos o daños causados por terceros en violación de la ley, o cuando medie caso fortuito o fuerza mayor.

@@ -1,0 +1,1 @@
+Artículo 51.—La Junta Administrativa tiene la autoridad para hacer respetar y acatar las disposiciones de este Reglamento. Los poseedores de derechos están obligados a cumplirlo y así lo harán constar en el contrato respectivo.

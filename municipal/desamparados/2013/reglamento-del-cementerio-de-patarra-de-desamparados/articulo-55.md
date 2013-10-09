@@ -1,0 +1,1 @@
+Artículo 55.—Todos los ingresos que generen los servicios del Cementerio, serán recibidos en la oficina asignada para tal efecto y depositados en la cuenta corriente de la Junta Administrativa. Por parte del Cementerio se emitirá un recibo oficial, debidamente sellado y firmado por el encargado correspondiente.

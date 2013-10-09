@@ -1,0 +1,1 @@
+Artículo 22.—Cuando el titular del derecho posesorio sobre un lote en el Cementerio fallezca y no haya designado beneficiarios, la posesión del derecho corresponderá a la persona o personas que mediante sentencia firme en proceso sucesorio judicial o notarial, sean declarados como herederos del mismo.

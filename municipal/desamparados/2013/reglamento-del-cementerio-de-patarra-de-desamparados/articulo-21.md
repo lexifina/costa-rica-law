@@ -1,0 +1,1 @@
+Artículo 21.—Cuando el derecho pertenezca a dos o más personas, cada uno tendrá igual derecho respecto al uso y posesión del lote en el Cementerio. Sin embargo, para el uso del mismo se requiere del consentimiento de todos los coposeedores y en ausencia de éstos, de sus beneficiarios.

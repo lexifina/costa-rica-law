@@ -1,0 +1,1 @@
+Artículo 26.—Solo se podrá adquirir un derecho posesorio por familia, definida esta en sentido estricto (padre, madre e hijos que viven en la misma casa). Quedan exentos de esta prohibición los poseedores que individualmente, a la entrada en vigencia del presente reglamento, posean dos o más derechos en el Cementerio.

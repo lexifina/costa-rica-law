@@ -1,0 +1,1 @@
+Artículo 29.—La Junta comunicará al arrendatario con DOS MESES de anticipación, el vencimiento de su contrato de arrendamiento en el lugar señalado según la Ley de Notificaciones. El arrendatario tendrá además un plazo de ocho días naturales posteriores al vencimiento de los cinco años, para desocuparlo.

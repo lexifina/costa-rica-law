@@ -1,0 +1,1 @@
+Artículo 6º—La representación legal del Cementerio dePatarrá la ostenta el Presidente de la Junta Administrativa, siendo esta última responsable de sus actos frente a terceras personas. Dicha responsabilidad será solidaria entre los miembros, a menos que alguno de ellos salve su voto, haciéndolo constar así en el libro de actas respectivo.
