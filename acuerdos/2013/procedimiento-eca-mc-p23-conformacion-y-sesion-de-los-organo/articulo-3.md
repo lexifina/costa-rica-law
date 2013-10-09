@@ -1,0 +1,13 @@
+3 DOCUMENTOS DE REFERENCIA
+- ECA-MC-MA Manual administrativo
+- ECA-MC-P23-F01 Directorio órgano colegiado
+- ECA-MC-P23-F02 Convocatoria
+- ECA-MC-P23-F03 Agenda
+- ECA-MC-P23-F04 Lista de asistencia
+- ECA-MC-P23-F05 Acta
+- ECA-MC-P23-F06 Evaluación del desempeño Órganos Colegiados
+- ECA-MC-P01 Confidencialidad, imparcialidad y objetividad.
+- Ley General de la Administración Pública número 6227, 02 de mayo de 1978. Capítulo III del Título II del Libro I.
+- Ley del Sistema Nacional para la Calidad número 8279, 06 de Octubre del 2004.
+- Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación, Decreto Ejecutivo número 35522-MICIT, 01 de octubre del 2009.
+- Norma ISO/IEC 17011:2004 Evaluación de la conformidad – Requisitos generales para los organismos de acreditación que realizan la acreditación de organismos de evaluación de la conformidad.
