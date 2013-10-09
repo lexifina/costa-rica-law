@@ -1,0 +1,1 @@
+Transitorio II.—La Alcaldía Municipal y la Unidad de Cultura y Turismo tendrán seis meses a partir de la entrada en vigencia de este Reglamento para consignar en las fotografías o retratos que están instaladas en el Salón de Sesiones del Concejo Municipal, las razones que justificaron tales designaciones.

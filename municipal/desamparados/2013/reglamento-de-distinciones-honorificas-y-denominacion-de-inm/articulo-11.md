@@ -1,0 +1,1 @@
+Artículo 11.—Del Privilegio. El título de “Hijo/a Predilecto/a o de Ciudadano/a distinguido/a del Cantón de Desamparados”, dará derecho, a quien lo ostente, de acompañar a la Corporación Municipal en ciertos actos y solemnidades propias de la misma a que aquélla concurra, ocupando el lugar que al efecto le esté señalado.

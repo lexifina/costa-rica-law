@@ -1,0 +1,3 @@
+CAPÍTULO II
+De los reconocimientos
+Artículo 4º—Del reconocimiento “Hijo/a Predilecto/a”. La distinción como “Hijo/a Predilecto/a del Cantón de Desamparados”, es el más alto honor que se brinda a una persona por parte del Gobierno Local, y conlleva la divulgación pública del mérito a este honor. Como testimonio de este reconocimiento, el retrato de la persona designada será instalado en el Salón de Sesiones del Concejo Municipal o la Sala que para este fin se disponga, en la cual se consignarán las razones que justifiquen tal designación. Además, la Municipalidad de Desamparados publicará en un medio de circulación nacional y local la designación y los motivos de esta.

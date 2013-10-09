@@ -1,0 +1,1 @@
+Artículo 19.—De los Plazo de recomendación. La “Comisión de Distinciones Honoríficas”, encargada del proceso de selección, tendrá un plazo máximo de 30 días naturales para presentar al Concejo Municipal su recomendación.

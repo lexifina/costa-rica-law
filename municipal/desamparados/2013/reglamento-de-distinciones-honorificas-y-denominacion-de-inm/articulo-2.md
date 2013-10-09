@@ -1,0 +1,1 @@
+Artículo 2º—Del carácter de la distinción. Todas las distinciones a que hace referencia este reglamento tienen carácter exclusivamente honorífico, sin que, por tanto, otorguen ningún derecho administrativo ni de carácter económico.

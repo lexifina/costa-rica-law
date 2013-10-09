@@ -1,0 +1,3 @@
+Artículo 30.—De la revocatoria. El Concejo Municipal podrá privar de las distinciones que son objeto de este reglamento, cualquiera que sea la fecha en que hubieran sido conferidas, a quienes incurran en actos que deriven en sentencia judicial en firme que podrían ameritar esa medida extrema.
+El Concejo Municipal remitirá a la “Comisión de Distinciones Honoríficas”, la documentación necesaria paras que analice y recomiende al Concejo Municipal el retiro o no de la distinción.
+Para el retiro de cualquier distinción, deberá existir previamente un dictamen de la “Comisión de Distinciones Honoríficas”, y luego una moción debidamente razonada deberá ser aprobada por mayoría calificada del Concejo Municipal.

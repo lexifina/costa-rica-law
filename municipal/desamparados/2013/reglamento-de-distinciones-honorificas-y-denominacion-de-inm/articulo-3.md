@@ -1,0 +1,1 @@
+Artículo 3º—Del presupuesto. El Concejo Municipal determinará en el presupuesto municipal una partida específica que sufragará todos los gastos que se deriven del acto solemne de reconocimiento de distinciones honoríficas, denominación de bienes inmuebles y reconocimientos especiales.

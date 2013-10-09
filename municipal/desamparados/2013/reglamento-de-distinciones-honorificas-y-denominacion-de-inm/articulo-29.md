@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Del Libro de Registro de las Distinciones
+Honoríficas y revocatoria de la distinción
+Artículo 29.—Del Registro de distinciones. La Secretaría del Concejo Municipal y la Unidad de Cultura y Turismo deberán llevar un registro de todas las distinciones honoríficas y denominaciones de bienes inmuebles que conceda el Concejo Municipal; dicho Registro deberá llevarse, en dos versiones, manuscrita y digitalizada (respaldo digital), en ambos casos deberán consignarse las circunstancias personales de todos y cada uno de los favorecidos/as con alguna de las distinciones honoríficas a que se refiere el presente Reglamento, la relación detallada y completa de los méritos que dieron motivo a su concesión, la fecha de la misma y, en su caso, la del fallecimiento de quien hubiera recibido ese honor, para que en todo instante se pueda conocer, respecto de cada una de las distinciones establecidas, las que se hallen en el disfrute de ellas.
+La Administración Municipal velará porque la información de los reconocimientos municipales se divulgue en la página web de la Municipalidad u otros medios a los que se pueda acceder.
+En la denominación de bienes inmuebles deberá indicarse el número de folio real, y ubicación exacta de la finca, además de la denominación concedida a la misma.

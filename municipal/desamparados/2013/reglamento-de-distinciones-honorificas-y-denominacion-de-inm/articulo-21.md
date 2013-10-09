@@ -1,0 +1,1 @@
+Artículo 21.—De los presentes. Los presentes entregados a las personas acreedoras de reconocimientos serán confeccionados por artesanos/as del cantón, previa propuesta de la “Comisión de Distinciones Honoríficas” sobre el diseño de los mismos.
