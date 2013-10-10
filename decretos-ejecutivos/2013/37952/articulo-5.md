@@ -1,0 +1,1 @@
+Artículo 5°—El Consejo Nacional de la Persona Adulta Mayor (CONAPAM) establecerá los mecanismos de información y divulgación adecuados, para hacer del conocimiento de las personas adultas mayores usuarias de estos servicios, las presentes directrices; igualmente, establecerá los mecanismos de vigilancia adecuados para su debido cumplimiento.
