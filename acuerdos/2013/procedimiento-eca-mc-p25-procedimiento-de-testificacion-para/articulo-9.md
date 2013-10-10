@@ -1,0 +1,25 @@
+9. CRITERIOS PARA LA SELECCIÓN DE SECTORES Y ACTIVIDADES A TESTIFICAR
+9.1 Se debe considerar como procesos distintos la verificación de inventarios y/o CNeutralidad a nivel de organización, las validaciones y las verificaciones de proyectos. Por esta razón, se debe llevar a cabo la testificación por separado de estos cuatro tipos de actividades de evaluación de conformidad. [SAVV]
+9.2 El ECA debe llevar a cabo la testificación de todas las actividades de evaluación de conformidad para cada sector definido en el alcance del OV/V durante el ciclo completo de acreditación (4 años). [SAVV]
+9.3 Al menos una de las evaluaciones de testificación de cada ciclo de acreditación debería incluir una actividad de validación o verificación inicial.
+9.4 El equipo testificador debe evaluar la competencia para todos los sectores bajo los cuales el OV/V solicita acreditación. Esto implica que durante la evaluación en oficinas, el equipo debe incluir, en la revisión de expedientes 2 de los sectores que no se van a testificar. Estos sectores deben estar sujetos a un seguimiento y monitoreo anual de manera que todos los sectores dentro del alcance sean cubiertos durante el ciclo de acreditación. [EqT]
+9.5 Si luego de la evaluación documental surgen o se mantienen dudas sobre la competencia de algún sector distinto a los sectores a testificar, el equipo testificador puede incluirlo en el plan para la testificación. [EqT]
+9.6 En cada etapa del ciclo de acreditación (ciclo de 4 años), incluyendo el primer año, el equipo evaluador debe testificar 1/4 (25%) del alcance solicitado (combinando sectores y actividades de evaluación de la conformidad), a fin de que al cabo del ciclo de reevaluación (seguimientos y reevaluación), se logre verificar el cumplimiento para el 100% del alcance acreditado. [SAVV]
+Nota: Al realizar el cálculo del número de sectores a testificar, el resultado de ¼ del alcance solicitado será redondeado al número entero superior. Por ejemplo: de 6 sectores a acreditar, el resultado es 1.5, por lo que se deben testificar 2 de los sectores.
+9.7 En una evaluación inicial, finalizada la evaluación documental y al entregársele el informe de evaluación documental, el OV/V debe comunicar al ECA sobre las próximas validaciones/verificaciones que tiene programadas, entregando a SAVV el ECA-MC-P25 F01 Formulario de propuesta del OV/V de actividad de Validación o Verificación a testificar. [OV/V]
+Nota: El OV/V debe cumplir con el requisito 8.1 de ECA-MC-P09-F13 Solicitud de acreditación: Organismos Validadores/Verificadores de Gases de Efecto Invernadero 14065:2007, que exige que cuente con clientes actuales o potenciales para los sectores solicitados.
+9.8 En el caso de una evaluación de seguimiento, cuando el departamento de Logística solicita al OV/V la actualización de documentos, este debe enviar un plan de las validaciones/verificaciones a realizar en los próximos 12 meses y la propuesta de las actividades a testificar ECA-MC-P25-F01. [OV/V]
+9.9 Con la información provista por el OV/V en el ECA-MC-P25-F01, el alcance solicitado o acreditado y los resultados de la evaluación documental, las actividades a testificar serán elegidas por SAVV utilizando criterios definidos en el Anexo 1 de este procedimiento. [SAVV]
+9.10 Las evaluaciones de testificación deben evitar la repetición del mismo cliente del OV/V.
+Sin embargo, si el OV/V tiene solamente un cliente, se permite la repetición del mismo para la testificación.
+9.11 Los siguientes sectores se consideran prioritarios para testificar:
+· Energía
+· Industrial
+· Usos de la tierra
+· Producción animal
+· Manejo y disposición de Residuos
+9.12 Los sectores prioritarios deben ser testificados durante la evaluación inicial. Si el porcentaje de alcance a testificar indica que deben evaluarse más sectores de los que son prioritarios, estos se escogen según el Anexo 1 de este procedimiento.
+9.13 Si un OV/V solicita la acreditación para un sector prioritario y este no puede ser testificado durante la evaluación inicial, no debe ser incluido en el alcance acreditado. El OV/V deberá ampliar su alcance acreditado posteriormente, cuando tenga la posibilidad de ejecutar la testificación de las actividades de validación/verificación para el sector solicitado. [SAVV]
+9.14 El Sector General es otorgado automáticamente dentro del alcance de acreditación si el OV/V se testifica bajo cualquier otro sector distinto a este. Sin embargo, la Comisión de Acreditación no debe otorgar la acreditación a otros sectores si solamente se testificó sector General. [CA]
+9.15 De no ser posible, durante el ciclo de reevaluación, la testificación de alguna de las actividades de validación/verificación, esta no debe ser incluida dentro del alcance y debe ser retirada.
+9.16 Si durante el tiempo previsto por el ECA para la evaluación in situ el OV/V no tiene clientes, se permite hacer testificaciones piloto o simuladas. Para estas testificaciones, el OV/V debe procurar que las actividades y el proceso testificado se apeguen y sean iguales a como lo harían en un proceso normal. [OV/V]
