@@ -1,1 +1,1 @@
-Artículo 4º—La posibilidad de arrendar su vehículo a la Operadora y percibir remuneración por pago de kilometraje está vedada a los miembros de la Junta Directiva, Gerente General y al Auditor Interno, quienes por su condición y para estos efectos están excluidos de la aplicación de este Reglamento.
+Artículo 4º—La posibilidad de arrendar su vehículo a la Operadora y percibir remuneración por pago de kilometraje está vedada a los miembros de la Junta Directiva, quienes por su condición y para estos efectos están excluidos de la aplicación de este Reglamento.
