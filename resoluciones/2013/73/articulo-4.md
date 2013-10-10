@@ -1,0 +1,1 @@
+4º—Se ordena a la Dirección del Laboratorio Nacional de Servicios Veterinarios (LANASEVE), a la Dirección de Operaciones y a la Dirección Administrativa Financiera, tomen las previsiones administrativas que correspondan a los efectos de dictar las instrucciones necesarias en acatamiento de lo establecido en la presente resolución.
