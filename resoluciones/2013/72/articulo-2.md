@@ -1,0 +1,1 @@
+2°—Se ordena a la Dirección del Laboratorio Nacional de Servicios Veterinarios (LANASEVE), a la Dirección Administrativa Financiera (DAF) y al Departamento de Tecnología de la Información, tomen las previsiones administrativas que correspondan a los efectos de proceder a la inhabilitación ordenada.
