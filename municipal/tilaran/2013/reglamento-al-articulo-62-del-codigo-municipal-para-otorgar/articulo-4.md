@@ -1,0 +1,1 @@
+Artículo 4º—Del plazo de presentación de la solicitud. Las solicitudes podrán presentarse en un plazo máximo de 120días hábiles a partir de la fecha de publicación oficial de este Reglamento por parte de la Municipalidad de Tilarán.
