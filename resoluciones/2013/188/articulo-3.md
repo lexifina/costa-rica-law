@@ -1,0 +1,1 @@
+3º—Déjense sin efecto en todos sus extremos las disposiciones contenidas en las resoluciones RES-DGA-026-2013 de fecha 01-02-2013 publicada en La Gaceta N° 108 del 06-06-2013 y la RES-DGA-128-2013 de fecha 26-04-2013 publicada en La Gaceta N° 95 del 20-05-2013, así como también, las de la Circular DNP-105-2002 de fecha 16/12/2002.
