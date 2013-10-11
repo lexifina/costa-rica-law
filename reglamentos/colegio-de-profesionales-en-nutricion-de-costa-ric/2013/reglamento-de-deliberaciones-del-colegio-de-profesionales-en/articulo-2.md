@@ -1,0 +1,1 @@
+Artículo 2º—Al inicio de cada Asamblea Ordinaria o Extraordinaria, el Fiscal de Colegio, examinará la lista de los nutricionistas asistentes y presentará su informe a la Mesa Directiva, para comprobar el quórum.

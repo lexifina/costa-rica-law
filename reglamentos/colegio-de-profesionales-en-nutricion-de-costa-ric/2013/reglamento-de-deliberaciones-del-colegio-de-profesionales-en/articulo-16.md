@@ -1,0 +1,1 @@
+Artículo 16.—Todos aquellos asuntos que no estuviesen contemplados en este Reglamentos, los decidirá el Presidente de la Asamblea de conformidad con la Ley Orgánica del Colegio de Profesionales en Nutrición.

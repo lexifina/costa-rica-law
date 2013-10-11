@@ -1,0 +1,1 @@
+Artículo 3º—El Presidente de la Junta Directiva del Colegio presidirá las sesiones de Asamblea General. En su ausencia o por delegación lo hará el Vicepresidente, y en ausencia de éste un Vocal. Actuará como Secretario, el titular del Colegio y en su ausencia un vocal designado por el Presidente.

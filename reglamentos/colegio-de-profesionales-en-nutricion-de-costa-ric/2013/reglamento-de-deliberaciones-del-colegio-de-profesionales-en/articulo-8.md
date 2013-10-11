@@ -1,0 +1,1 @@
+Artículo 8º—Las mociones de orden previas a las de cualquier otro asunto que está en debate, serán puestas a votación sin discusión, aunque exista oposición y deberán ser presentadas por escrito a la Presidencia de la Asamblea.
