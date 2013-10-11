@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de ayudas temporales, subvenciones y aportes de 
 | --- | --- | --- |
 | 1 | 2012-01-23 | la propia norma |
 | 2 | 2013-07-01 | Reglamento municipal 163 (2013-07-01) |
+| 3 | 2013-10-11 | Reglamento municipal 182 (2013-10-11) |
