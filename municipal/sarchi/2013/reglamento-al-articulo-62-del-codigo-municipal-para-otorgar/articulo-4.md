@@ -1,0 +1,1 @@
+Artículo 4: Del plazo de presentación de la solicitud. Las solicitudes podrán presentarse en un plazo máximo de setenta y cinco días hábiles posteriores a la publicación del Decreto de Emergencia Nº 37305-MP.

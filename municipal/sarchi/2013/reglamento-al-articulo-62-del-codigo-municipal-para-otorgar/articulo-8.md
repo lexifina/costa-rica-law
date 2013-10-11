@@ -1,0 +1,7 @@
+Artículo 8°—De la clasificación de los beneficiarios.Adicionalmente, al estar incluidas en el reporte definitivo de familias afectadas publicado por el Ministerio de Vivienda y Asentamientos Humanos, y que se encuentra vinculado al Plan General de la Emergencia Nacional, las familias beneficiadas serán clasificadas según su ingreso económico para recibir la ayuda correspondiente según las siguientes reglas:
+a) Se utilizará como base de cálculo el salario mínimo de un obrero no especializado de construcción según el último decreto de salarios vigente.
+b) Los ingresos económicos familiares para calcular el porcentaje se tomarán de la Ficha de Información Social confeccionada por el Instituto Mixto de Ayuda Social.
+c) Las familias cuyo ingreso económico no supere la suma de tres salarios podrán optar para recibir un 100%del monto presupuestado para las reparaciones.
+d) Las familias cuyo ingreso económico supere la suma de tres salarios pero que no exceda la suma equivalente a cinco salarios, podrán optar para recibir un 90% del monto presupuestado para las reparaciones.
+e) Las familias cuyo ingreso económico supere la suma cinco salarios pero que no exceda la suma equivalente a seis salarios, podrán optar para recibir un 85% del monto presupuestado para las reparaciones.
+f) Las familias cuyo ingreso económico supere la suma de seis salarios podrán optar para recibir un 80% del monto presupuestado para las reparaciones.
