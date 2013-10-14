@@ -1,0 +1,4 @@
+ARTÍCULO 8.- Avales para vivienda de clase media
+Se autoriza al Banco Hipotecario de la Vivienda (Banhvi) para que otorgue avales a las familias con ingresos entre cuatro y diez salarios mínimos, hasta un quince por ciento (15%), como máximo, del financiamiento otorgado por las entidades autorizadas del Sistema Financiero Nacional para la Vivienda.
+Para efectos de la normativa de la Superintendencia General de Entidades Financieras (Sugef) en lo concerniente a la estimación de la suficiencia patrimonial y todos los indicadores vinculados, los avales otorgados a las entidades financieras al amparo de esta ley son mitigadores de riesgo en un cien por ciento (100%) sobre los créditos que se otorguen.
+Los mecanismos y procedimientos para la liquidación de los avales, así como el monto de las comisiones a cobrar por el otorgamiento de estos, serán fijados mediante el reglamento que defina el Banhvi.
