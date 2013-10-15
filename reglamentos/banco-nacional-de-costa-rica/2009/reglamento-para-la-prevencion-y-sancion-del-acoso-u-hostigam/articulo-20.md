@@ -1,3 +1,5 @@
-Artículo 20.—Garantías del proceso: El órgano designado para llevar a cabo el respectivo proceso disciplinario será garante en todos sus actos de los Derechos Constitucionales del Debido Proceso para todas las partes involucradas.
-Acorde al cumplimiento del derecho al debido proceso deberá realizarse una correcta y completa imputación de cargos, en la cual se establezca: la instancia que investiga, los hechos que se investigan, las normas infringidas, las sanciones que le podrían corresponder, los recursos que puede interponer y la instancia ante la que debe dirigirlos.
-En forma supletoria se aplicarán las disposiciones establecidas en la Ley General de la Administración Pública, referentes al Procedimiento Ordinario, Artículos 214 siguientes y concordantes.
+Artículo 20.—Sanciones. Las sanciones a interponer serán aquellas indicadas en la Ley contra el Hostigamiento sexual:
+Amonestación escrita,
+Suspensión sin goce de salario, y
+Despido sin responsabilidad patronal.
+Las sanciones serán emitidas por el Órgano Decisor o Junta de Relaciones de Trabajo, de conformidad con el artículo 68 de la Convención Colectiva vigente; y serán aplicadas, según el principio de proporcionalidad, de forma que correspondan a la gravedad del hecho.

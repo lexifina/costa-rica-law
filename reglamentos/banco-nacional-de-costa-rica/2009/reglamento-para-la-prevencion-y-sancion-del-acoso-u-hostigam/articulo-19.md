@@ -1,2 +1,1 @@
-Artículo 19.—Plazo: Los plazos señalados para tramitar y resolver las denuncias que se presenten, se podrán ampliar siempre y cuando con ello no se supere el término de tres meses, contados desde el momento de interposición de la denuncia, según lo dispuesto por el artículo 5º, último párrafo de la Ley Nº 7476 citada.
-Así también, de conformidad con el artículo 29 de la Ley contra el Hostigamiento, el plazo para presentar una denuncia prescribirá en dos (2) años.
+Artículo 19.—Recursos. Contra las resoluciones procederán los recursos establecidos en la Ley General de la Administración Pública, y la Convención Colectiva vigente del Banco Nacional, los cuales deberán ser planteados dentro de los términos de ley.

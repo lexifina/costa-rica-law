@@ -1,5 +1,9 @@
-Artículo 6º—Acciones de prevención y seguimiento: La Dirección de Recursos Humanos coordinará con las Direcciones Regionales, Corporativas y/o Ejecutivas, Jefaturas y demás instancias que la Dirección designe, con el objetivo que se lleven a cabo las investigaciones que aporten los insumos necesarios para desarrollar las acciones preventivas que se requieran, en materia de acoso u hostigamiento sexual.
-Asimismo, la Dirección de Recursos Humanos en coordinación con las instancias requeridas, comunicará en forma escrita y oral a los supervisores, los representantes, las empleadas, los empleados y los clientes la existencia de una política contra el hostigamiento sexual.
-La Dirección de Recursos Humanos, en conjunto con las unidades correspondientes, coordinará en forma periódica las labores de seguimiento y revisión de las acciones preventivas realizadas.
-Los Directores Regionales, Corporativos y jefaturas estarán en la obligación de contribuir para el debido cumplimiento de las acciones de prevención, denuncia y/o investigación, así como facilitar el seguimiento y control que sobre las mismas se lleven a cabo.
-Con el objetivo de dar cumplimiento a la presente disposición normativa, la Gerencia General garantizará la dotación presupuestaria correspondiente para estos fines.
+CAPÍTULO III
+Procedimiento en el lugar de trabajo
+Artículo 6º—Procedimiento de la Denuncia. La presunta víctima de acoso sexual -o su representante legal debidamente acreditada para tal efecto- podrá plantear la denuncia en forma verbal o por escrito, cuyo documento o manifestación tendrá que contener al menos, la siguiente información:
+a) Nombre, dirección y lugar de trabajo de la persona denunciante y de la persona denunciada.
+b) Descripción clara de todos aquellos hechos o situaciones que pudieran consistir en manifestaciones de acoso sexual, con mención aproximada de la fecha y lugar.
+c) Asimismo, la víctima podrá hacer referencia de pruebas indiciarias o directas que puedan ser evacuadas para dar cuenta del hecho, sin perjuicio de las que presente directamente en la audiencia. Para tal efecto deberá dar los datos referenciales de los que tenga conocimiento para localizar la prueba; cuando se trate de una referencia de prueba testimonial, deberá indicar el nombre y lugar donde se podrá ubicar a las personas señaladas.
+d) Señalamiento de lugar y/o medios legales para atender notificaciones.
+e) Lugar y fecha de la denuncia.
+f) Firma de la persona denunciante. En caso de presentación de la denuncia de manera verbal,junto a la firma de la persona denunciante se registrará la firma de la persona colaboradora que levantó la denuncia.

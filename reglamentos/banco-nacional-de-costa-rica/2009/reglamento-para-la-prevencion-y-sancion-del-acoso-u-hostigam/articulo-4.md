@@ -1,3 +1,4 @@
-SECCIÓN II
-De prevención y divulgación
-Artículo 4º—Divulgación del Reglamento y prevención: Corresponderá a la Dirección de Recursos Humanos, quien coordinará con las Direcciones Regionales y/o Corporativas, así como las Jefaturas y demás instancias que la Dirección designe, la prevención del acoso u hostigamiento sexual y la divulgación para todos los colaboradores (as) de la Ley Nº 7476, así como también del presente Reglamento.
+CAPÍTULO II
+Prevención del Hostigamiento Sexual
+Artículo 4º—Las obligaciones en relación con la tutela de derechos en materia de hostigamiento sexual y personas responsables. EL Banco Nacional asume una política contra el hostigamiento sexual que prevenga, desaliente, evite y sancione este tipo de conductas. Para tal efecto llevara a cabo las acciones necesarias que prevengan y desalienten las acciones de hostigamiento sexual, teniendo como referente las necesidades de las personas.
+La labor de divulgación de este reglamento, así como de la política institucional de prevención y de cumplimiento de la Ley, será responsabilidad de la persona jerarca. Para cumplir con dicha obligación se designa a la Dirección General de Desarrollo Humano, en condición de ente coordinador y esta a su vez, orientará a las Direcciones de las Zonas Comerciales, Corporativas, así como las Jefaturas y demás instancias que se designen.

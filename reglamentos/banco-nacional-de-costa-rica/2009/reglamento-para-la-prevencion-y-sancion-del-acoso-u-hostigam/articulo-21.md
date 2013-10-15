@@ -1,7 +1,3 @@
-Artículo 21.—Otras obligaciones: Fuera de las contenidas en otros artículos del presente reglamento, y las demás disposiciones legales aplicables, así como el contrato de trabajo, son obligaciones de los colaboradores:
-a) Guardar la consideración y respeto debidos a sus jefaturas, subalternos(as), compañeros(as), practicantes y público en general, de acuerdo con los principios éticos, morales y de buenas costumbres, en las relaciones de empleo y servicio.
-b) No emitir comentarios, expresiones o conductas hacia los mismos sujetos señalados en el inciso anterior, que resulten degradantes, abusivos, lesivos, o que afecten la moral y las buenas costumbres.
-c) Denunciar toda conducta, situación o hecho, que de acuerdo con las presentes disposiciones pueda ser considerado acoso u hostigamiento sexual.
-En la aplicación de las medidas cautelares deberán respetarse los derechos laborales de los obligados a la disposición preventiva, pudiendo ser aplicadas a ambas partes de la relación procesal, debiendo procurarse mantener la seguridad de la víctima, fundamentalmente.
-d) Cuando el encargado de llevar a cabo la investigación así lo requiera, el colaborador deberá rendir testimonio sobre los hechos que se investigan.
-e) No incurrir en actuaciones o prácticas, de contenido sexual, que pueda contribuir al deterioro de las condiciones de empleo, servicio, o que afecten el estado general de bienestar personal, y que constituyan incumplimiento de sus obligaciones laborales, derivadas de la Ley Nº 7476 y el presente Reglamento.
+CAPÍTULO IV
+Disposiciones generales
+Artículo 21.—Normativa complementaria. En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley General de la Administración Pública, Convención Colectiva vigente del Banco Nacional, el Código de Trabajo y demás normativa aplicable.

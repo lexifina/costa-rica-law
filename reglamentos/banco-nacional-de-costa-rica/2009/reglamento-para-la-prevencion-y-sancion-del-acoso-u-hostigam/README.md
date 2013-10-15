@@ -15,3 +15,4 @@ Reglamento para la prevención y sanción del Acoso u Hostigamiento Sexual
 | --- | --- | --- |
 | 1 | 2009-12-17 | la propia norma |
 | 2 | 2010-08-03 | Reglamento 11638 (2010-08-03) |
+| 3 | 2013-10-15 | Reglamento 11866 (2013-10-15) |
