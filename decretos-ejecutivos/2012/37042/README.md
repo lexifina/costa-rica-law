@@ -66,3 +66,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 51 | 2013-09-23 | Decreto Ejecutivo 37967 (2013-09-23) |
 | 52 | 2013-09-25 | Decreto Ejecutivo 37968 (2013-09-25) |
 | 53 | 2013-09-25 | Decreto Ejecutivo 38032 (2013-09-25) |
+| 54 | 2013-10-15 | Decreto Ejecutivo 38018 (2013-10-15) |
