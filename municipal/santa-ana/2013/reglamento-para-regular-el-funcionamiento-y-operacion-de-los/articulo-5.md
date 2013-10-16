@@ -1,0 +1,5 @@
+Artículo 5º—Sobre el financiamiento de los CECUDI: Los CECUDI se financiarán de la siguiente forma:
+1) En el caso de los niños y niñas de las familias que se ubican en los niveles uno, dos y tres de pobreza, el IMAS proporcionará un subsidio del 100% que será establecido por la Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil.
+2) En los casos previstos en este reglamento, será procedente brindar los servicios del Centro a personas que por su condición socioeconómica favorable no cumplan con todos los supuestos para ser considerados población beneficiada según los criterios del IMAS y que por lo tanto puedan costear el 100% del servicio.
+En tales supuestos, la Municipalidad cobrará un monto por el servicio prestado, de conformidad con lo dispuesto por el artículo 74 del Código Municipal y el artículo 17 del presente reglamento.
+3) Para el caso de los niños y niñas de las familias que se ubican en el nivel cuatro de pobreza del IMAS, éstos deberán asumir la diferencia entre el porcentaje del subsidio que les otorgue el IMAS y el costo del servicio que determine la Municipalidad.

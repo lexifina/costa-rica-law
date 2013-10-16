@@ -1,0 +1,1 @@
+Artículo 16.—El pago deberá realizarse en las cajas municipales. El representante deberá presentar el comprobante de pago con el sello respectivo a la Administración del CECUDI en cualquier momento en que esta se lo requiera.

@@ -1,0 +1,5 @@
+CAPÍTULO III
+Del cobro de servicios
+Artículo 15.—Del plazo para pagar: En el caso de las familias que puedan pagar un porcentaje o la totalidad del costo del servicio según los parámetros establecidos en los incisos 2 y 3 del artículo 5 del presente reglamento, para poder disfrutar del servicio, deberán cancelar la mensualidad dentro de los primeros 5 días hábiles de cada mes. Después de 10 días hábiles de atraso se suspenderá el servicio.
+Para poder disfrutar nuevamente del mismo, se deberá cancelar la deuda que existiera, la cual estará integrada por el principal y los intereses que se calcularán al momento del pago efectivo. El servicio será suspendido en forma definitiva por el administrador del CECUDI cuando el estado de morosidad se reitere, salvo causa debidamente justificada por el interesado.
+En este caso se le informará a la Gerencia General del IMAS o a la Unidad de Vulnerabilidad y Riesgo Social según corresponda, para que sea sustituido por otro niño. En todo caso, dicha selección obedecerá a los mismos parámetros establecidos en el artículo 3 y 4 del presente reglamento.

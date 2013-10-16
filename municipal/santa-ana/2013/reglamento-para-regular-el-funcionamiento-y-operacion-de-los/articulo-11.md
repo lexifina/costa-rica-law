@@ -1,0 +1,2 @@
+Artículo 11.—Personal: Sin perjuicio de los otros puestos que más adelante se indicarán, el Centro contará con una persona Coordinadora Técnica que deberá contar como mínimo con el título de Licenciatura en Preescolar o carrera afín. Dicha persona, además de las otras obligaciones que le imponga el presente reglamento, tendrá a su cargo un grupo de 25 niños.
+Además, por cada grupo de 25 niños deberá contarse con una persona profesional docente, con el grado mínimo de bachillerato en Preescolar o carrera afín y una persona asistente con al menos noveno año de escolaridad.

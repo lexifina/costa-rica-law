@@ -1,0 +1,5 @@
+Artículo 20.—De las ausencias del niño o niña: Cualquier ausencia deberá ser justificada por el beneficiario durante los tres días hábiles posteriores a la fecha en que esto ocurra.
+Para tales efectos, deberá aportarse constancia médica que acredite la enfermedad del niño o niña si es del caso, o documento idóneo que justifique la ausencia.
+Si las ausencias no son oportunamente justificadas o bien, si se tratare de ausencias prolongadas (sea por más de 05 días hábiles continuos) y sin justificación, esta situación facultará a la Administración del CECUDI a cancelar la matrícula, previa notificación a su familia, emplazándolos por 3 días para que se refieran al respecto.
+Una vez vencido este plazo sin que se acredite alguna situación justificante, el administrador del CECUDI cancelará la matrícula.
+En este caso, deberá informársele dicha situación a la Municipalidad y además, si es del caso, a la Gerencia General del IMAS o la Unidad de Vulnerabilidad, para que sea sustituido por otro niño. En todo caso, dicha selección obedecerá a los mismos parámetros establecidos en el artículo 3 y 4 del presente reglamento.
