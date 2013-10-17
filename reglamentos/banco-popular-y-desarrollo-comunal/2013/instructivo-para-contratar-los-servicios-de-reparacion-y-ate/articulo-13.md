@@ -1,0 +1,2 @@
+13. Mejoras a lo ofrecido
+13.1 El Banco por medio la División de Infraestructura y Proyectos estará facultado para aceptar las mejoras, cambios e innovaciones en los materiales y servicios que le proponga el Contratista y que se planteen con posterioridad al ofrecimiento presentado, siempre que no le represente ningún costo adicional al Banco o un aumento en el plazo de entrega y que se reviertan a favor del mejor beneficio para el Banco medido en función de incrementos en la capacidad, calidad o potencialidad de lo contratado.

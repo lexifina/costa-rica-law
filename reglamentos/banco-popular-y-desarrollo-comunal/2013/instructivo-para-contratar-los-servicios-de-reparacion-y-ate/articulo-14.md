@@ -1,0 +1,2 @@
+14. Disposición final
+14.1 En todo lo que no esté expresamente normado en el presente Instructivo, le aplicarán supletoriamente todas las disposiciones contenidas en la Ley de Contratación Administrativa y en su respectivo Reglamento. Además, aquellos trabajos que superen el monto establecido de $1.800,00 (mil ochocientos dólares sin centavos) serán tramitados por los procedimientos ordinarios de Contratación Administrativa, que para tales efectos tenga el Banco Popular, para la atención de este tipo de servicios.

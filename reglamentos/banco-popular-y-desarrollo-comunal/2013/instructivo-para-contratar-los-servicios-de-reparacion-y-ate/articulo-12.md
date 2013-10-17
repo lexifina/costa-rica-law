@@ -1,0 +1,2 @@
+12. Inspección y fiscalización del contrato
+12.1 El Órgano Fiscalizador tiene como obligación velar porque el Contratista se ajuste al estricto cumplimiento de todos los puntos y solicitudes pactadas en este Instructivo así como en la prestación del servicio. Se entenderá que el Órgano Fiscalizador lo constituye la División de Infraestructura y Proyectos, a quien le corresponden las atribuciones y obligaciones establecidas en el artículo 13 de la Ley de Contratación Administrativa.
