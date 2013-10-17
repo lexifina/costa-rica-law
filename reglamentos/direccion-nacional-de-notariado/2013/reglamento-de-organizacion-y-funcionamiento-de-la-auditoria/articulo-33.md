@@ -1,0 +1,1 @@
+Artículo 33.—Coordinación presupuesto. El Auditor Interno coordinará con el coordinador Administrativo para que cuando lo amerite el volumen de recursos, se lleve un registro separado del monto presupuestario aprobado y asignado a la Auditoría Interna detallado por objeto del gasto, controlando la ejecución y modificaciones a los recursos presupuestarios.

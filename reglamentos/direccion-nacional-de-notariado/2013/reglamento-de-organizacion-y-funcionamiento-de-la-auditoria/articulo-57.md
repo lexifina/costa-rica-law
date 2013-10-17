@@ -1,0 +1,1 @@
+Artículo 57.—Responsabilidad por incumplimiento de recomendaciones. Cabrá responsabilidad administrativa contra los funcionarios que incumplan las recomendaciones de la Auditoría Interna, ordenadas por el Consejo Superior de Notariado o titular subordinado respectivo, sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente.

@@ -1,0 +1,16 @@
+DIRECCIÓN NACIONAL DE NOTARIADO
+PRESENTACIÓN
+Con fundamento en las atribuciones que les confiere el artículo 103, de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; el artículo 22, siguiente y concordante de la Ley General de Control Interno, Ley Nº 8292 del 31 de julio del 2002; la Ley Orgánica de la Contraloría General de la República, Ley Nº 7428 del 7 de septiembre de 1994; el Manual de normas generales de auditoría para el sector público (M-2-2006-CO-DFOE), resolución R-CO-94-2006 del 17/11/2006, el Manual de Normas para el Ejercicio de la Auditoria Interna en el Sector Público (Resolución R-DC-119-2009 del 16/12/2009), “Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, las condiciones para las gestiones de nombramiento, suspensión y destitución de dichos cargos, y la aprobación del reglamento de organización y funcionamiento de las auditorías internas del Sector Público” (L-1-2006-CO-DAGJ).
+Considerando:
+1º—Que el artículo 21 de la Ley Nº 8292 dispone que la auditoría interna es la actividad independiente, objetiva y asesora, que contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección y proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.
+2º—Que la Auditoría Interna es parte fundamental del Sistema de Control Interno Institucional y del Sistema de Control y Fiscalización Superiores de la Hacienda Pública y su acción fiscalizadora requiere ser reforzada conforme con el marco legal y técnico que regula su gestión, en defensa del interés público.
+3º—Que conforme regulaciones del artículo 23 de la Ley General de Control Interno, las unidades de auditoría interna de las diversas instituciones públicas deben disponer de un reglamento de organización y funcionamiento, acorde con la normativa que rige su actividad. Dicho reglamento deberá ser conocido y aprobado por el jerarca de la Institución y por la Contraloría General de la República, publicarse en el Diario Oficial y divulgarse en el ámbito institucional.
+4º—Que el inciso h) del artículo 22 de la Ley General de Control Interno, establece literalmente como parte de las competencias de la Auditoría Interna el “Mantener debidamente actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna.”
+5º—El Reglamento de organización y funcionamiento permitirá orientar las acciones de la Auditoría Interna y percibirla como una actividad dirigida a coadyuvar con el éxito de la gestión institucional, en aras de la legalidad, transparencia y efectividad en el manejo de los fondos públicos involucrados.
+6º—Que la Contraloría General de la República mediante oficio Nº DFOE-PG-314 del 26 de setiembre de 2013 dio su aprobación al presente reglamento. Por tanto,
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA DE LA DIRECCIÓN
+NACIONAL DE NOTARIADO
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Propósito. El presente reglamento regula las actividades, organización, objetivos, funciones y atribuciones de la Auditoría Interna de la Dirección Nacional de Notariado.

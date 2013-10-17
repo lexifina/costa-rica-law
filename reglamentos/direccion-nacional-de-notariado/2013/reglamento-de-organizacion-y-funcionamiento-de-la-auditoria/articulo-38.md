@@ -1,0 +1,1 @@
+Artículo 38.—Mejoramiento de la calidad. El Auditor Interno deberá formular criterios mínimos para implementar, divulgar y mantener un programa de aseguramiento continuo de la calidad y mejora en los principales procesos de la Auditoría Interna, que considere la aplicación de la normativa jurídica y técnica pertinente.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Lo preceptuado en este Reglamento, constituyen disposiciones de carácter obligatorio para el personal de la Auditoría Interna y en lo que corresponda para todas las demás dependencias que conforman la Dirección Nacional de Notariado en la materia que le resulte aplicable.

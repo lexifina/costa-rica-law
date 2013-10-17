@@ -1,0 +1,1 @@
+Artículo 68.—Aprobación. Este reglamento fue aprobado por el Consejo Superior Notarial de la Dirección Nacional de Notariado, según acuerdo 2013-017-005 tomada en la sesión 17-2013 celebrada el 14 de agosto del 2013.

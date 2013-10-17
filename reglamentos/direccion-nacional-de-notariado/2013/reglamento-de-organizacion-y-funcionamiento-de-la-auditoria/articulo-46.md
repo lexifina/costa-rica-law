@@ -1,0 +1,2 @@
+Artículo 46.—Acceso a los registros. El Auditor Interno debe controlar el acceso a los registros y papeles de trabajo de los estudios que se realicen, a personas ajenas a la Auditoría Interna. Deberá tomar las previsiones de modo que se requiera de su autorización o la de quién él designe. Además, debe establecer requisitos de custodia para los registros y documentación del trabajo.
+Estos requisitos de retención deben ser consistentes con las regulaciones pertinentes u otros requerimientos sobre este tema.

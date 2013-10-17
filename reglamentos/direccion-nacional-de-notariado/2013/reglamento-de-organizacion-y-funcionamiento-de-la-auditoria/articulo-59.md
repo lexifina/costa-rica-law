@@ -1,0 +1,3 @@
+SECCIÓN VI
+Del trámite de denuncias
+Artículo 59.—Derecho y deber de denunciar. Los ciudadanos tienen el derecho a denunciar los presuntos actos de corrupción. La denuncia podrá presentarse en forma escrita, verbal o por cualquier otro medio cuando las circunstancias así lo exijan, levantándose un acta con la denuncia. Los funcionarios públicos tienen el deber de denunciar ante las autoridades competentes los actos presuntamente corruptos que se produzcan en la función pública, de los que tenga conocimiento, según lo establecido en la Ley de Control Interno y la Ley contra la Corrupción y Enriquecimiento Ilícito y su reglamento.
