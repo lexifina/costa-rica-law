@@ -1,0 +1,1 @@
+Artículo 15.—De los costos administrativos a los obligados morosos. Durante el proceso de gestión de cobro Administrativo la institución podrá trasladar al Obligado moroso, los gastos administrativos en el que tenga que incurrir para realizar la gestión cobratoria.

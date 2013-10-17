@@ -1,0 +1,1 @@
+Artículo 19.—De los porcentajes de intereses a cobrar en los arreglos de pago. Los porcentajes cobrados por concepto de arreglos de pago se regirán por la tasa de interés vigente aplicable por los Fideicomisarios Garantizados y se aplicará un subsidio de tres puntos, previa recomendación técnica de la Unidad Ejecutora.

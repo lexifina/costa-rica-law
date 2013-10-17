@@ -1,0 +1,2 @@
+Artículo 24.—Del incumplimiento del arreglo de pago. Al Obligado que haya formalizado un arreglo de pago y que presente un atraso de hasta tres meses en el pago pactado, se le dará por revocado el arreglo y se remitirá a los abogados externos para que inicie el proceso de cobro en la vía judicial. El FIDEIMAS se reserva el derecho de aceptar o no un arreglo extrajudicial una vez que se haya interpuesto el proceso judicial.
+No se le podrá formalizar en sede administrativa un nuevo arreglo de pago para deudas originadas por incumplimiento en los arreglos de pago.

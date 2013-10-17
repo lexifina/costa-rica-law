@@ -1,0 +1,1 @@
+Artículo 20.—De la cantidad anual de arreglos de pago permitidos. La cantidad anual de arreglos de pago permitida será únicamente de uno por cada número de identificación del cliente. No se permitirá gestionar otro arreglo de pago sobre un arreglo vigente.

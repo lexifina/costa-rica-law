@@ -1,0 +1,1 @@
+Artículo 36.—Del costo de oportunidad. Los casos que se recomienden para incobrabilidad por costo de oportunidad, solo requerirán del criterio profesional por parte del abogado externo contratado, según el estudio jurídico.

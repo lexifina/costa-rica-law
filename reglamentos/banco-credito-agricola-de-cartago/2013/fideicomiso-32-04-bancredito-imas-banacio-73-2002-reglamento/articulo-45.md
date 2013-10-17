@@ -1,0 +1,1 @@
+Artículo 45.—Rige. El presente Reglamento fue aprobado por acuerdo firme N° 0110-2013 por el Comité Director acta 017-2013, de la sesión de fecha 17 de octubre del 2013 y rige a partir de la aprobación de Comité Director.

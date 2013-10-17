@@ -1,0 +1,1 @@
+Artículo 17.—De los funcionarios (as) responsables para autorizar los arreglos de pago. Los funcionarios (as) responsables para autorizar los arreglos de pago que tramite la Unidad Ejecutora será quien ostente el cargo de Gerente de la Unidad Ejecutora, previa recomendación favorables del Oficial de Fideicomiso que atiende el caso.
