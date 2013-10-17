@@ -1,1 +1,0 @@
-Artículo 13.—De la programación de la gira: Cada Jefatura aprobará la gira de sus colaboradores, asegurándose previamente que cuenta con el contenido presupuestario necesario, quedando a la disposición de cada funcionario y su jefatura si se realiza adelanto para gira o solo se liquida al regreso de la misma.

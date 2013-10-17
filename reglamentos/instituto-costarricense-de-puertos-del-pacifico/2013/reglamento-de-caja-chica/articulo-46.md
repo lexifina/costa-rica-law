@@ -1,1 +1,0 @@
-Artículo 46.—Del cumplimiento: La Jefatura de Tesorería será la responsable de velar por el fiel cumplimiento de este Reglamento y tomar las acciones necesarias para ejercer el debido control e informar a la El Director(a) Administrativo(a)-Financiero(a) cualquier situación irregular que atente contra el control y cumplimiento por parte de las diferentes funcionarios.
