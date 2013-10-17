@@ -1,7 +1,4 @@
-Artículo 14.—Sobre el reembolso al Fideicomiso Número 73- 2002.
-1) En todos aquellos casos en los cuales el BANACIO haya hecho uso de la garantía del FIDEICOMISO y en forma posterior el usuario (a) del crédito se ponga al día con la operación de crédito, el BANACIO le reintegrará al Fideicomiso Número 73-2002 la suma que éste le haya girado, dentro de los ocho días naturales siguientes a la fecha en que el deudor haya realizado el pago correspondiente.
-2) Queda entendido en forma expresa que cualquier suma recuperada por BANACIO será distribuida así:
-a) Al FIDEICOMISO le corresponde una suma equivalente al porcentaje garantizado en el crédito de que se trate; con un tope del monto pagado por el FIDEICOMISO inicialmente.
-b) Al BANACIO corresponde el remanente.
-Estas modificaciones al Reglamento son vigentes, a partir de la aprobación del Comité Director del citado Fideicomiso, en la sesión Nº 12- 04 del día 1º de setiembre del 2004 y sesión Nº 005-05 del día 9 de marzo del 2005.
-(Asi reformado por sesión 005-05 celebrada el 09 de marzo del 2005)
+Artículo 14.— De la subrogación de los derechos del crédito al fideicomiso. La subrogación de los derechos del crédito, se hará mediante nota firmada por el representante legal del Banco Nacional de Costa Rica a favor del Banco Crédito Agrícola de Cartago en calidad de Fiduciario, hasta por un monto igual a la garantía pagada por el Fideicomiso.
+Previo al registro contable de la subrogación de los derechos de los créditos pagados, el Fiduciario en coordinación con la Unidad Ejecutora, realizarán las gestiones de cobro administrativo y judicial ante los deudores, apoyándose con abogados externos y contadores públicos autorizados (CPA), contratados con cargo al Fideicomiso.
+En caso de atenderse algún arreglo de pago por parte del deudor, se contabilizará en el Fideicomiso como una cuenta por cobrar, debiendo el Comité Director aprobar las condiciones conforme al estudio y recomendación de la Unidad Ejecutora.
+(Así reformado mediante aprobación del Comité Director del citado Fideicomiso, en la acta N° 017-2013 del día 17 de octubre del 2013)

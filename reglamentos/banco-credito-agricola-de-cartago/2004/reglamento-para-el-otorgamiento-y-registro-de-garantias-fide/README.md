@@ -22,3 +22,4 @@ Reglamento para el otorgamiento y registro de garantías (Fideicomiso N° 73-200
 | 7 | 2011-07-29 | Reglamento 11 (2011-07-29) |
 | 8 | 2012-01-26 | Reglamento 0 (2012-01-26) |
 | 9 | 2013-08-22 | Reglamento 0 (2013-08-22) |
+| 10 | 2013-10-17 | Reglamento 0 (2013-10-17) |
