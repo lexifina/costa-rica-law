@@ -1,0 +1,1 @@
+Artículo 10.—El Socio, una vez aprobada la campaña cooperativa integral y de previo a su ejecución, deberá presentar a la Unidad Coordinadora el diseño final de las acciones promocionales para su aprobación, las cuales deben incluir el logotipo correspondiente de Costa Rica.

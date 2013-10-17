@@ -1,0 +1,1 @@
+Artículo 14.—La Unidad Coordinadora deberá verificar la razonabilidad del precio de las acciones propuestas por las empresas, con todos los medios a su alcance. En aquellos casos en que se considere necesario, la Unidad Coordinadora podrá remitir la propuesta a las agencias de publicidad o relaciones públicas que presten servicios al ICT, para que emitan su criterio técnico.
