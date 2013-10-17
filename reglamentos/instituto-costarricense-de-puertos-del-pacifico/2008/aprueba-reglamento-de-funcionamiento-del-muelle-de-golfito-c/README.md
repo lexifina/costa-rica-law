@@ -14,3 +14,4 @@ Aprueba Reglamento de Funcionamiento del Muelle de Golfito como el Anexo 3 del R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-27 | la propia norma |
+| 2 | 2013-10-17 | Reglamento 3860 (2013-10-17) |

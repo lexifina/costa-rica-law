@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+(Esta norma fue derogada mediante sesión N° 3860 del 17 de octubre del 2013, "Reglamento de Operación para el Muelle de Golfito")
 Que la Junta Directiva de esta Institución mediante acuerdo Nº 5 tomado en la sesión Nº 3527, celebrada el día 11 de noviembre del 2008, acordó lo siguiente:
 Acuerdo 5:
 Aprobar el Reglamento de Funcionamiento del Muelle de Golfito como el Anexo 3 del Reglamento General de Servicios Portuarios, que se leerá como sigue:
