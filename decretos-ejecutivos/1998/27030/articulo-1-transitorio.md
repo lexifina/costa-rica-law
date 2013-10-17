@@ -1,3 +1,0 @@
-CAPITULO VII
-Disposiciones transitorias
-Transitorio I.—Las solicitudes de Marinas y/o atracaderos que se encuentren en trámite, así como aquellas que hayan sido aprobadas previamente a la fecha de publicación del presente reglamento, deberán ajustarse a los procedimientos aquí estipulados en el estado en que se encuentren donde se procurará aplicar las nuevas reglas en materia de Concesión y Operación de Marinas Turísticas armonizándolas en cuanto fuera posible con los criterios, autorizaciones y actuaciones ya practicadas y emitidas por las entidades públicas competentes, las cuales, para todo efecto se tendrán como plenamente válidas y eficaces.

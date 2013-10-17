@@ -1,1 +1,0 @@
-Artículo 55.—El propietario de una embarcación nacional que no cumple con lo indicado en las disposiciones contenidas en este Reglamento será sancionado con la suspensión del permiso de navegación hasta tanto no regularice su situación.

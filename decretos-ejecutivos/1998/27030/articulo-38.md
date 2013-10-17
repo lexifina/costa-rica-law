@@ -1,2 +1,0 @@
-Artículo 38.—Será obligatorio mantener en el sitio la bitácora de la obra del Colegio Federado de Ingenieros y Arquitectos, lo mismo que el cronograma de trabajo y los planos constructivos aprobados. El concesionario deberá informar a la Municipalidad o a la Oficina Ejecutora de Papagayo según corresponda y a la CIMAT, sobre la fecha de conclusión de las obras para su recepción, aprobación formal y otorgamiento del permiso sanitario de funcionamiento que emitirá el Ministerio de Salud.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32617 del 30 de mayo de 2005)

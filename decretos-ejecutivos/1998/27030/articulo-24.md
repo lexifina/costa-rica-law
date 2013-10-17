@@ -1,1 +1,0 @@
-Artículo 24.—El dictamen de la CIMAT deberá comunicarse oficialmente al interesado a fin de que éste pueda acompañar la solicitud de aprobación definitiva del anteproyecto y el otorgamiento de la concesión ante la Municipalidad respectiva.

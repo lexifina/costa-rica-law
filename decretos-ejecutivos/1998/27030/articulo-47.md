@@ -1,1 +1,0 @@
-Artículo 47.—El Administrador de una marina o atracadero turístico debe estar acreditado ante el departamento respectivo del MOPT, así como recibir junto al personal a su cargo, la capacitación que el MOPT estipule para un mejor desempeño, en salvaguarda de la seguridad de los bienes materiales y la vida humana.

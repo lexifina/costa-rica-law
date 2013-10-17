@@ -1,1 +1,0 @@
-Artículo 57.—El propietario o capitán que zarpe sin el permiso de la Capitanía de Puerto será obligado a regresar a su fondeadero habitual y le serán cobrados los gastos que pudiera ocasionar, sin perjuicio de cualquier otra sanción que le sea aplicable.

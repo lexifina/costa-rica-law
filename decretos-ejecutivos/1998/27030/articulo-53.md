@@ -1,3 +1,0 @@
-CAPITULO VI
-Sanciones
-Artículo 53.—El concesionario que incumpla las disposiciones del Contrato de Concesión de la Ley, y este reglamento, perderá a favor de la Municipalidad la garantía de cumplimiento de construcción a que se refiere el artículo 14 de la Ley, y se le iniciarán los trámite de cancelación de la concesión, sin perjuicio de las? acciones que por daños y perjuicios correspondan. Respecto del inciso C del artículo 20 de la Ley de Marinas y Atracaderos Turísticos se entenderán por obligaciones tributarias aquellas que directamente surjan del contrato de concesión o de la operación de la marina o atracadero turístico.

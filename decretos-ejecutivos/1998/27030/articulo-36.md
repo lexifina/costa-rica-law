@@ -1,2 +1,0 @@
-Artículo 36.—El interesado deberá iniciar las obras en el término indicado en el contrato de concesión, debiendo comunicar la fecha de inicio, con quince días naturales de anticipación a la CIMAT y a la Municipalidad o a la Oficina Ejecutora del Proyecto Papagayo según corresponda, para que estos programen las inspecciones correspondientes, las cuales se procurarán realizar en forma coordinada, cada uno dentro del campo de su competencia.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32617 del 30 de mayo de 2005)

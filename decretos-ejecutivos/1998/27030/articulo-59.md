@@ -1,1 +1,0 @@
-Artículo 59.—El incumplimiento en cuanto a los compromisos ambientales adquiridos durante el proceso de aprobación del EIA estará sujeto a las sanciones estipuladas en la legislación ambiental vigente, pudiendo constituirse en causal de cancelación de la concesión y la aplicación total o parcial de la Garantía Ambiental.

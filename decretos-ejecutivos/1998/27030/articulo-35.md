@@ -1,1 +1,0 @@
-Artículo 35.—Una vez que el interesado cuente con los planos constructivos debidamente aprobados por la Oficina Centralizadora de Permisos de Construcción, deberá presentarlos a la Municipalidad respectiva, para que ésta le otorgue el permiso de inicio de obras, en un plazo máximo de ocho días hábiles.

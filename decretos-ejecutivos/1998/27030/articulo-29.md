@@ -1,2 +1,0 @@
-Artículo 29.—La Municipalidad o el ICT, según corresponda, elaborarán el contrato de concesión de conformidad con lo indicado en el Manual de Marinas y Atracaderos Turísticos y con fundamento en la información obtenida en este proceso y comunicarán a la CIMAT la fecha de inicio de las obras y período de ejecución para los efectos de ejercer la fiscalización a que se refiere la Ley.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32617 del 30 de mayo de 2005)

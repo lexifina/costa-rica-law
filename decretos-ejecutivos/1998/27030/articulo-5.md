@@ -1,2 +1,0 @@
-Artículo 5°—Toda marina o atracadero turístico deberá permitir el libre acceso de las autoridades respectivas para el desempeño de sus funciones cuando así lo consideren necesario.
-En caso de emergencias o peligro de naufragio el acceso a las instalaciones deberá ser expedita debiendo la administración de la Marina brindar toda la colaboración que se requiera. Además el concesionario i deberá proveer las medidas de seguridad necesarias para garantizar el libre tránsito por la zona pública.
