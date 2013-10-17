@@ -1,0 +1,1 @@
+Artículo 67.—Permiso para importar munición. El permiso de importación de munición faculta al propietario de armas inscritas, para importar hasta quinientos tiros al año. La solicitud se formulará únicamente mediante El Sistema mediante el formulario electrónico disponible con ese fin y se deberá cancelar en línea seiscientos colones correspondientes al timbre fiscal.

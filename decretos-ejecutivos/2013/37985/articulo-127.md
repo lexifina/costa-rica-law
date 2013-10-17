@@ -1,0 +1,1 @@
+Artículo 127.—Uso de formularios Electrónicos. A efectos de garantizar la eficiencia y la estandarización, los trámites se deberán realizar haciendo uso de los formularios electrónicos disponibles en El Sistema.

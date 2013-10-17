@@ -1,0 +1,1 @@
+Artículo 77.—Requisitos para poseer nuevas armas de colección. Los particulares que posean colecciones de armas permitidas deberán solicitar al Departamento únicamente mediante el Sistema, la autorización para adquirir y poseer nuevas armas, destinadas al enriquecimiento de la colección.

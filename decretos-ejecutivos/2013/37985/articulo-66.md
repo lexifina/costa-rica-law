@@ -1,0 +1,1 @@
+Artículo 66.—Permiso de importación ocasional de armas permitidas. Toda persona física o jurídica que desee ocasionalmente importar directamente un arma de fuego permitida al país, deberá obtener el permiso respectivo de la Dirección, presentando la solicitud por escrito, únicamente mediante El Sistema utilizando el formulario electrónico disponible al efecto.

@@ -1,0 +1,3 @@
+Artículo 87.—Inscripción de armas para el tiro deportivo o cacería. La inscripción de armas para el tiro deportivo o para cacería faculta al portador para utilizar las armas, exclusivamente para esos fines en los lugares especialmente acondicionados para la práctica de estas actividades.
+Este permiso se debe solicitar únicamente mediante el Sistema utilizando el formulario disponible al efecto, cumpliendo los mismos requisitos establecidos en el presente reglamento para la inscripción de armas de fuego permitidas.
+Para efectos de toda arma a matricular, la persona interesada al momento de solicitar la inscripción ha de establecer la naturaleza del uso en que utilizará el arma, de lo cual el Departamento podrá realizar las verificaciones respectivas.

@@ -1,0 +1,1 @@
+Artículo 144.—Requerimientos técnicos. Los usuarios que deseen hacer uso del Sistema, deben cumplir los requerimientos técnicos que se definan en las Políticas de uso; además, son responsables del mantenimiento de los medios que adquieran e instalen para la utilización del Sistema.

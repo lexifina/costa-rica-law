@@ -1,0 +1,1 @@
+Transitorio V.—El Colegio de Médicos y Cirujanos de Costa Rica deberán establecer la coordinación necesaria con el administrador general y el Ministerio a fin de que sus agremiados cumplan con lo dispuesto en el presente reglamento en cuanto al dictamen de idoneidad mental.

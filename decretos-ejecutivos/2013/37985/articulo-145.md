@@ -1,0 +1,1 @@
+Artículo 145.—Compatibilidad de los equipos. Los usuarios del Sistema deben contar con equipos y programas informáticos adecuados para la conexión y la utilización de este Sistema, los cuales serán detallados en las Políticas de uso. Siendo responsables de la compatibilidad entre sus equipos y la plataforma del Sistema.

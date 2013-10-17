@@ -1,0 +1,1 @@
+Artículo 68.—Prohibición de importar o vender armas de mala calidad. No se permitirá la importación ni la venta de armas de fuego de mala calidad, de conformidad con el artículo 71 de la Ley. El Departamento podrá solicitar cuando así lo considere necesario, las pruebas pertinentes para verificar la calidad y seguridad de las armas que se importarán o venderán.

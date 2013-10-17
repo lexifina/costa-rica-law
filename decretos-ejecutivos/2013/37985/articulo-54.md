@@ -1,0 +1,2 @@
+Artículo 54.—Facultad de la Escuela Nacional de Policía. La Escuela Nacional de Policía podrá eximir del requisito que exige el artículo anterior a los miembros de los cuerpos policiales certificando en sus bases de datos que estos han demostrado idoneidad en el manejo de armas de reglamento.
+Asimismo se podrá convalidar la evaluación teórico-práctica en armas de fuego requerida por la Ley y este Reglamento, a particulares que hayan aprobado la instrucción práctica correspondiente, para el uso de armas de fuego en cuerpos policiales.

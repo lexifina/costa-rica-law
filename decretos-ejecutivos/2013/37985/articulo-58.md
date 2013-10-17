@@ -1,0 +1,3 @@
+SECCIÓN V
+Permiso para compra de armas permitidas por turistas
+Artículo 58.—Permiso de compra por turistas. El permiso para compra de armas permitidas por turistas faculta al interesado para adquirirlas en el país previa autorización del Departamento. Para tal efecto el permiso de compra será expedido dentro de las cuarenta y ocho horas anteriores a la salida del turista del territorio nacional. Tales armas serán exclusivamente para uso fuera del país. La entrega del arma la realizará el vendedor por medio del depósito a la Dirección General de Aduanas del Ministerio de Hacienda, quien dictará el mecanismo de entrega conjuntamente con el Departamento.

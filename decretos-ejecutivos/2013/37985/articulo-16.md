@@ -1,0 +1,1 @@
+Artículo 16.—Facultades del Departamento. El Departamento mediante el Sistema podrá denegar, revocar, o renovar todo tipo de permiso, y en cualquier momento cancelar los permisos otorgados, por violación a la Ley, al presente Reglamento, por informaciones falsas o aquellas que induzcan a error a la Administración, así como por motivos de seguridad nacional.

@@ -1,0 +1,1 @@
+Artículo 102.—Requisitos de almacenamiento de los explosivos industriales. En los lugares donde se utilicen explosivos industriales debe ser seguros, secos, ventilados, y encontrarse a distancia mínima de veinticinco metros de carreteras y áreas pobladas,

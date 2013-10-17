@@ -1,0 +1,3 @@
+SECCIÓN VI
+Permiso de venta de explosivos permitidos y sus aditamentos
+Artículo 59.—Permiso de venta de explosivos permitidos y sus aditamentos. El permiso de venta de explosivos permitidos y sus aditamentos, se solicita ante el Departamento y faculta al negocio comercial para vender explosivos permitidos en el país, con fines industriales, agrícolas, de minería y similares. El permiso se extenderá por el término de un año, podrán ser renovados por períodos iguales observándose el mismo trámite de la primera vez o vez anterior e indicando en la solicitud que se trata de renovación. No es necesario la presentación de aquellos documentos que el solicitante haya aportado y que conserven su vigencia.

@@ -1,0 +1,1 @@
+Artículo 74.—Requisitos para la inscripción. Toda persona física o jurídica que desee coleccionar armas permitidas deberá inscribirlas ante el Departamento cumpliendo con los requisitos establecidos en el artículo 37 del presente Reglamento, para la inscripción de armas permitidas.

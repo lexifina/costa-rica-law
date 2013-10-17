@@ -1,0 +1,2 @@
+Artículo 84.—Inscripción de armas por parte de Entes Estatales. La solicitud de inscripción de armas de colección por parte de los entes estatales, debe formularla ante el Ministro, el Jerarca de la Institución o el funcionario autorizado por éste, únicamente mediante el formulario electrónico disponible en el Sistema.
+Deberán disponerse las armas para la respectiva inspección ocular, a criterio del Departamento.

@@ -1,0 +1,1 @@
+Artículo 83.—Traspaso de armas al Museo de la Dirección. Las armas o los equipos bajo custodia del Arsenal, clasificados como de valor histórico, cultural o criminalístico, pasarán a formar parte del Museo de la Dirección de armamento.

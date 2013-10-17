@@ -1,0 +1,1 @@
+Artículo 35.—Registro de Huellas Dactilares. Todo solicitante debe tener sus huellas dactilares registradas en el Archivo Policial. El Sistema verificará el cumplimiento de este requisito y en caso de que el resultado de la consulta sea negativo no permitirá que se genere la solicitud respectiva.

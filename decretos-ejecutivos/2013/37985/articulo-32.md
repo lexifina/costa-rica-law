@@ -1,0 +1,1 @@
+Artículo 32.—Deber de Denunciar. Es obligación de los funcionarios del Departamento denunciar ante la fiscalía del colegio profesional respectivo cuando considere que el profesional no ha cumplido con alguna de las obligaciones establecidas, sin perjuicio de establecer la debida denuncia ante el Ministerio Público.

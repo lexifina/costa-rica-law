@@ -1,0 +1,1 @@
+Artículo 47.—Denegación del Permiso de Portación de Armas. Mediante el Sistema el Departamento denegará el permiso de portación de armas cuando no se cumplan los requisitos establecidos en la Ley y este Reglamento.

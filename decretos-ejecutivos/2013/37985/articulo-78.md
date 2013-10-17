@@ -1,0 +1,1 @@
+Artículo 78.—Enajenación de colecciones. Las armas permitidas que formen parte de una colección podrán ser vendidas, o donadas en conjunto o en unidades para esos mismos fines, previa autorización del Departamento, únicamente mediante el Sistema por el interesado en adquirirlas utilizando el formulario disponible.

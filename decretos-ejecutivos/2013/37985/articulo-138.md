@@ -1,0 +1,1 @@
+Artículo 138.—Normativa aplicable en materia de notificaciones. En materia de notificaciones, adicional a lo regulado en el presente capítulo, se deberá acatar lo dispuesto en la Ley General de la Administración Pública y supletoriamente en la Ley de Notificaciones Judiciales, Ley Nº 8687, en lo que resulte aplicable.

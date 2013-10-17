@@ -1,0 +1,2 @@
+Artículo 146.—Mejoras en las medidas de seguridad. El Administrador General del Sistema en conjunto con el Ministerio, están facultados para introducir todas las medidas de seguridad que consideren necesarias para el uso del Sistema.
+Si alguna de estas medidas implica cambio o modificación de las condiciones normales de funcionamiento del Sistema, el Administrador General debe comunicar los cambios a los usuarios registrados con al menos tres días hábiles de antelación a la implementación de las mejoras.

@@ -1,0 +1,1 @@
+Artículo 105.—Presentación de registros. El registro de manejo de explosivos le será presentado a funcionarios del Departamento, cuando estos así lo requieran. De presentarse diferencias con los permisos aprobados por el Departamento, éste procederá a la investigación respectiva.

@@ -1,0 +1,1 @@
+Artículo 48.—Cancelación del Permiso de Portación de Armas. El Departamento podrá cancelar los permisos de portación de armas de fuego de conformidad con el artículo 49 de la Ley, previa audiencia garantizando el debido proceso. El Departamento incorporará el resultado en el Sistema.

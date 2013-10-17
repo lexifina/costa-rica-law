@@ -1,0 +1,3 @@
+Artículo 154.—Deber de confidencialidad y probidad. Tanto el administrador general del Sistema como el Ministerio de Seguridad Pública deberán adoptar las medidas de control interno pertinentes para salvaguardar la confidencialidad de la información que así sea calificada e implementar los mecanismos de seguridad establecidos por el Sistema.
+Los funcionarios públicos que tengan acceso al Sistema, quedan obligados a guardar estricta reserva sobre toda información o datos que este contenga.
+Asimismo, se prohíbe la reproducción y la utilización total o parcial de la información disponible en el Sistema, con fines distintos para los que fue suministrada, todo de conformidad con la normativa aplicable.

@@ -1,0 +1,1 @@
+Artículo 6º—Obligatoriedad de Informar. Los autorizados por la Dirección y sus dependencias para la tenencia, uso, portación, importación, exportación, compra y venta de armas permitidas deberán suministrar en tiempo y forma la información que la Dirección y sus dependencias requieran para efecto de control y fiscalización.

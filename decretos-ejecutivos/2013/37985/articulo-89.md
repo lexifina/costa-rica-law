@@ -1,0 +1,1 @@
+Artículo 89.—Permiso a extranjeros para ingresar armas y tiros. Los extranjeros que temporalmente ingresen armas permitidas para uso exclusivo de competencias deportivas, podrán importar como parte de su equipaje hasta quinientos tiros libres del pago de derechos.

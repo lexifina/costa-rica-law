@@ -1,0 +1,1 @@
+Artículo 130.—Obligación de actualización. Los usuarios registrados tienen el deber de mantener actualizada en todo momento la información registrada en la opción “administración de datos personales” ubicada en el menú de administración del Sistema.

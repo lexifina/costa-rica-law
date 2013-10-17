@@ -1,0 +1,1 @@
+Artículo 81.—Préstamo de armas prohibidas. Las instituciones del Estado que coleccionen armas prohibidas sólo podrán prestar armas a otras instituciones para fines culturales, y, deberán dar aviso a la Dirección. No podrán prestarlas para fines cinematográficos.

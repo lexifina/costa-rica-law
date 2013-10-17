@@ -1,0 +1,1 @@
+Artículo 109.—Renovación del permiso. El permiso podrá ser renovado por períodos iguales, observándose el mismo trámite de la primera vez o vez anterior e indicando en la solicitud que se trata de renovación.

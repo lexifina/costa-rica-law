@@ -1,0 +1,1 @@
+Artículo 158.—Decomisos en favor del estado. Aquellas armas permitidas con las que se ejecute algún delito según lo dispuesto en el artículo 110 del Código Penal, produce la pérdida en favor del Estado.

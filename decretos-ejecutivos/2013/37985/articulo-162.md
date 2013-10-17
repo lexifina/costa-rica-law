@@ -1,0 +1,4 @@
+TÍTULO VI
+De las sanciones
+Artículo 162.—Sanciones aplicables. A toda infracción o violación al presente Reglamento le serán aplicables las sanciones señaladas en el Capítulo X de la Ley 7530, artículo 88 y siguientes, según corresponda.
+Cualquier persona que tenga conocimiento de que un funcionario de la Dirección General de Armamento o de cualquiera de sus dependencias omita cumplir con procedimientos establecidos en la Ley de Armas y Explosivos o en este Reglamento, podrá presentar la queja ante el Departamento Disciplinario Legal del Ministerio de Seguridad Pública, con las pruebas respectivas si las tuviere, para que éste proceda a realizar la investigación correspondiente y de ser el caso, la instauración de procedimiento administrativo disciplinario, sin perjuicio de presentar la debida denuncia ante el Ministerio Público cuando así corresponda.

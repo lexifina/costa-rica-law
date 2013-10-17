@@ -1,0 +1,1 @@
+Artículo 155.—Responsabilidad del funcionario público por el uso de la firma digital y las claves de acceso al sistema. Queda prohibido a los funcionarios públicos que utilicen el Sistema revelar sus claves o permitir que terceros utilicen su firma digital certificada.

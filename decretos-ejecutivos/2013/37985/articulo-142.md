@@ -1,0 +1,1 @@
+Artículo 142.—Integridad e inalterabilidad de la información. El Sistema debe conservar sin ningún tipo de alteración los formularios electrónicos enviados y recibidos y dejar constancia en su bitácora de todas las transacciones y los mensajes generados. El acceso a la información sea total o parcial, se definirá según el perfil de cada persona usuaria.

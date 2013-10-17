@@ -1,0 +1,1 @@
+Transitorio VI.—En el plazo de tres meses posteriores a la publicación de este Reglamento, se instalará un equipo de cómputo en el Departamento de Control de Armas y Explosivos, mismo que estará al servicio de los usuarios para que puedan accesar al Sistema y así realizar los trámites correspondientes.

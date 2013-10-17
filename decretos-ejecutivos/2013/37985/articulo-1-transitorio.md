@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.—El Ministerio determinará en conjunto con el administrador general, el momento en que se habilitará en el Sistema el trámite de cada una de las inscripciones y permisos establecidos en la Ley. A partir del momento en que se habilita un trámite en el Sistema, será obligatorio el diligenciamiento en este, desde la solicitud hasta la resolución que concede o deniega la gestión.
