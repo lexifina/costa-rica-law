@@ -14,3 +14,4 @@ Reglamento de Uso del Parque Independencia de Guadalupe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-14 | la propia norma |
+| 2 | 2013-10-17 | Reglamento municipal 23 (2013-10-17) |
