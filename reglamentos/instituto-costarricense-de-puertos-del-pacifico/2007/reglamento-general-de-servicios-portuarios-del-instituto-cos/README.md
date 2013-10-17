@@ -26,3 +26,4 @@ Reglamento General de Servicios Portuarios del Instituto Costarricense de Puerto
 | 11 | 2012-01-19 | Reglamento 3755 (2012-01-19) |
 | 12 | 2012-06-25 | Ley 9046 |
 | 13 | 2013-05-09 | Reglamento 3835 (2013-05-09) |
+| 14 | 2013-10-17 | Reglamento 3860 (2013-10-17) |
