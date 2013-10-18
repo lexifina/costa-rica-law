@@ -1,0 +1,1 @@
+Artículo 4º—No se permitirá la presentación de estados financieros consolidados, auditados por un contador público autorizado que sea independiente a la empresa; para el cumplimiento de esta obligación, la presentación de los estados financieros en referencia deberá realizarse por empresa individualizada.
