@@ -1,0 +1,1 @@
+Artículo 51º— Del arreglo extrajudicial. De conformidad con el artículo 242 de la Ley de Tránsito, se prohíbe al conductor efectuar arreglos extrajudiciales en caso de accidente con un vehículo oficial. En caso de accidentes deberá recurrir a la Autoridad de Tránsito correspondiente.

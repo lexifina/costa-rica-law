@@ -1,0 +1,1 @@
+Artículo 42º— Informe de Recorrido y Consumo. Trimestralmente, el Jefe de la Unidad de Servicios Generales deberá remitir a la Dirección Administrativa financiera, un informe del consumo de todos los vehículos, indicando las observaciones pertinentes.

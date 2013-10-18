@@ -1,0 +1,1 @@
+Articulo 14º— Del estacionamiento de los vehículos fuera de la Institución. Podrán resguardarse en un parqueo público, en Instituciones pertenecientes al Estado Costarricense o en el lugar que brinde adecuadas condiciones de seguridad, todo bajo responsabilidad del conductor.

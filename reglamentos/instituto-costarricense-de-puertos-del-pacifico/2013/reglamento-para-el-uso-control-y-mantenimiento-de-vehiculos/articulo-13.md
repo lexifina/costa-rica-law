@@ -1,0 +1,1 @@
+Artículo 13º— Del lugar de permanencia de vehículos fuera de la jornada diaria. Los vehículos de uso administrativo deberán permanecer en las instalaciones del INCOP, de conformidad al lugar en el que están designados.

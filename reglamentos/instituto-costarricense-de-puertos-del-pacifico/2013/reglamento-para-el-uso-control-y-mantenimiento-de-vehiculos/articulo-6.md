@@ -1,0 +1,1 @@
+Artículo 6º— De la circulación de los vehículos del INCOP. Ningún vehículo de la Institución podrá circular, si no cumple todos los requisitos señalados en las leyes, en este Reglamento y en las disposiciones vigentes. La Unidad de Servicios Generales deberá verificar que los vehículos institucionales se ajusten y cumplan con la normativa vigente.

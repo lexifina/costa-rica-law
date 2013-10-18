@@ -1,0 +1,1 @@
+Artículo 15º— Prioridad de estacionamiento en parqueos de la Institución. Los vehículos del INCOP tendrán prioridad de estacionamiento en los parqueos que disponga la Institución, propios o arrendados. La Unidad de Servicios Generales establecerá los controles que sean necesarios para velar por el cumplimiento de lo aquí dispuesto.

@@ -1,0 +1,1 @@
+Artículo 10º— De la autorización para utilizar los vehículos. Todo vehículo del INCOP deberá ser utilizado por personas autorizadas para ello, exclusivamente en el desempeño de las labores propias de la Institución; las características de dicho vehículo deben ajustarse a las necesidades del servicio para el que se utilice.

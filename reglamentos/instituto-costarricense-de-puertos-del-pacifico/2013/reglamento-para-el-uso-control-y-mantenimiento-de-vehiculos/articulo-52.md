@@ -1,0 +1,1 @@
+Artículo 52º— Condenatoria a terceros. En el caso de que se condene a terceros como consecuencia del accidente, la Unidad de Servicios Generales y la Asesoría Legal, en coordinación con la Gerencia General, instruirá las gestiones necesarias para que se proceda a la ejecución de sentencia en sede judicial.

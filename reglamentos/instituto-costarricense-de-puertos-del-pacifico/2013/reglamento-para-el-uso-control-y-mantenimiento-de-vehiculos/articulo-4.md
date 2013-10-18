@@ -1,0 +1,1 @@
+Artículo 4º— De los vehículos del INCOP. Los vehículos del INCOP son exclusivamente para el cumplimiento de las metas y objetivos institucionales, la prestación eficiente y eficaz de los servicios brindados, por lo que su uso quedará sujeto a este reglamento u otras normas aplicables del ordenamiento jurídico vigente.

@@ -1,0 +1,1 @@
+Artículo 47º— Del informe del accidente. Dentro de las 24 horas siguientes a la fecha del percance, el chofer presentará las pruebas que estime convenientes ante la Unidad de Servicios Generales, la cual rendirá un informe con la recomendación respectiva, a la Unidad de Recursos Humanos.

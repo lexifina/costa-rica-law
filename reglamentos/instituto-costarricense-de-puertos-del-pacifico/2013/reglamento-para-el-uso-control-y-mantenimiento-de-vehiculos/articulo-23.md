@@ -1,0 +1,1 @@
+Artículo 23º— Del control de las personas autorizadas a conducir. La Unidad de Servicios Generales deberá mantener un control de las personas que se encuentran autorizadas para conducir, que deberá contener al menos copia de la cédula de identidad y la licencia de conducir otorgada por la Dirección General de Tránsito del MOPT al día.

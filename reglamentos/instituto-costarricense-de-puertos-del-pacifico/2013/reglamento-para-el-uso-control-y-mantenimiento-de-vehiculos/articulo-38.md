@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Del uso y control del combustible
+Artículo 38º— Responsables en el control y uso de las boletas de combustible. La Unidad de Servicios Generales, será la responsable del control sobre el uso y el rendimiento del combustible de los vehículos administrativos. Así mismo los encargados de Muelles y el encargado del vehículo administrativo designado en la oficina de San José serán responsables del control y uso del combustible, debiendo remitir a su superior inmediato un informe trimestral del consumo de combustible, quien a su vez deberá avalarlo y remitirlo a la Unidad de Servicios Generales.

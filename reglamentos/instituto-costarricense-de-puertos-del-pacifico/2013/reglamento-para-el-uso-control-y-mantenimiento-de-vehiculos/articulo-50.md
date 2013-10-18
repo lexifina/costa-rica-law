@@ -1,0 +1,1 @@
+Artículo 50º— De la responsabilidad disciplinaria. Al margen de las responsabilidades indicadas en los artículos anteriores, la Administración podrá aplicar las sanciones disciplinarias que correspondan, previo procedimiento administrativo, con garantía del debido proceso, de conformidad con la Ley General de la Administración Pública.

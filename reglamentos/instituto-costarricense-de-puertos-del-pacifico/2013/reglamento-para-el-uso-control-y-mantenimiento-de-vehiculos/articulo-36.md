@@ -1,0 +1,1 @@
+Artículo 36º— Programación del mantenimiento. La Unidad de Servicios Generales realizará la programación y definirá las características técnicas del programa para el mantenimiento preventivo de los vehículos del INCOP, señalando su periodicidad y los términos en que se llevará a cabo.

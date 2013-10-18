@@ -1,0 +1,1 @@
+Artículo 40º— Presupuesto del gasto del combustible. Anualmente la Unidad de Servicios Generales deberá presupuestar el gasto por concepto de combustible para la flotilla institucional administrativa y los vehículos destacados en San José. La Dirección Portuaria y la Junta Promotora de Turismo deberán presupuestar el gasto por concepto de combustible.

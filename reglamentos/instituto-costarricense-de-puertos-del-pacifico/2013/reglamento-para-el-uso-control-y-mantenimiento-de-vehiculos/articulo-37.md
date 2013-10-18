@@ -1,0 +1,1 @@
+Artículo 37º— De la selección y contratación de talleres para mantenimiento y reparación de vehículos. Lo relativo a la selección y contratación de talleres para el mantenimiento y reparación de los vehículos del INCOP será regulado por lo establecido en la Ley y el Reglamento de contrataciones y la normativa interna de contratación.
