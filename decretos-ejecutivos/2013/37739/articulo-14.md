@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión deberá dictar el pronunciamiento sobre la aprobación o improbación del material de propaganda o proyectos del mismo que se le presenten, dentro del plazo de un mes calendario, contado a partir del día hábil siguiente de la presentación de la solicitud.

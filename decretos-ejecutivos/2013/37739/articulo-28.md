@@ -1,0 +1,1 @@
+Artículo 28.—De la derogatoria. Deróguese el Decreto Ejecutivo N° 4048-S de 26 de agosto de 1974, publicado en La Gaceta N° 168 del 6 de setiembre de 1974 “Reglamento sobre Regulación y Control de Propaganda de Bebidas Alcohólicas”.

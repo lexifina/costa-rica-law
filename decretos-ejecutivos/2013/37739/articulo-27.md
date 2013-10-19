@@ -1,0 +1,1 @@
+Artículo 27.—La autorización a la publicidad comercial relacionada con la comercialización de bebidas con contenido alcohólico para productos, estará sujeta a que el producto en cuestión esté registrado ante el Ministerio, y que las condiciones del registro asociadas a la publicidad no varíen, a excepción de las campañas de expectativa.

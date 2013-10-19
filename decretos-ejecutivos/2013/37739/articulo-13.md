@@ -1,0 +1,1 @@
+Artículo 13.—La Comisión llevará un libro con las actas de las sesiones, donde se consignarán sus resoluciones. Las actas serán firmadas por el presidente y el secretario. Los miembros de la Comisión cuyo voto sea contrario al acuerdo tomado, deberá constar en el acta las razones que lo justifiquen.

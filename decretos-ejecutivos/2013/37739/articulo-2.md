@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento es de orden público y de interés social, rige para todo tipo de publicidad comercial relacionada con la comercialización de bebidas con contenido alcohólico que se divulgue en el territorio nacional.

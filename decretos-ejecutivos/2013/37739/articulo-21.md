@@ -1,0 +1,1 @@
+Artículo 21.—La publicidad comercial de bebidas con contenido alcohólico producida en el extranjero y destinada a surtir efectos en el territorio nacional, queda sometida a las disposiciones del presente reglamento.

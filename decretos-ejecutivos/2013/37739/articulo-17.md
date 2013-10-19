@@ -1,0 +1,1 @@
+Artículo 17.—La ventanilla de recepción de documentos, una vez que verifica la completitud de la información presentada, la trasladará a la Comisión ubicada en la Dirección de Mercadotecnia de Salud, a más tardar el día hábil siguiente. Este plazo se incluye en el plazo general de resolución establecido en el artículo 14 de este reglamento.
