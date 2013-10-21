@@ -6,19 +6,9 @@ Considerando:
 Que la Subgerencia Administrativa presente ante la Junta Directiva el modelo de caución a implementar en el INA, a efecto que se proceda a su aprobación y así proceder a su aplicación ante los funcionarios que se encuentran obligados al cumplimiento de las disposiciones del Reglamento de Cauciones.
 Por tanto acuerdan:
 1. Aprobar el modelo de caución por medio de letra de cambio, sustentado en el artículo 4º, inciso d) del Reglamento de Cauciones para los Funcionarios del INA.
-LETRA DE CAMBIO
-(POR CAUCIÓN)
-Número de consecutivo: _______________________
-EL DÍA____________________ SE SERVIRÁ ______________________________________
-(FECHA DE PAGO) (NOMBRE DEL FUNCIONARIO LIBRADO)
-PAGAR ESTA LETRA DE CAMBIO, A LA ORDEN DE INSTITUTO NACIONAL DE APRENDIZAJE LA CANTIDAD DE ______________________________________________ (SUMA)
-CON INTERESES AL________________EN _______________________________________
-(SI LOS HAY) (LUGAR EN QUE DEBE EFECTUARSE EL PAGO)
-Tanto el girador como el girado, endosante o avalistas, así como cualquier otra persona que interveniere en esta letra de cambio tiene por renunciados el domicilio, requerimientos de pago, trámites de juicio ejecutivo y diligencias de protesto por falta de aceptación y de pago, quedando además autorizada la concesión de prorroga sin consulta ni notificación.
-SAN JOSÉ, LA URUCA. MAYO 11 DE 2007
-(LUGAR Y FECHA DE EMISIÓN) (NOMBRE DEL LIBRADOR)
-EL SUSCRITO HACE CONSTAR QUE ACEPTA ESTA LETRA DE CAMBIO
-FIRMA DEL LIBRADO
+(*)
+[imagen]
+(*)(Así reformado el modelo de letra de cambio anterior mediante sesión N° 4600 del 21 de octubre del 2013)
 2. Modificar el transitorio I del Reglamento de Cauciones para los Funcionarios del INA, para que se lea de la siguiente forma:
 Transitorio I: Los funcionarios con el deber de caucionar de acuerdo
 con este reglamento tendrán el plazo de dos meses para formalizar

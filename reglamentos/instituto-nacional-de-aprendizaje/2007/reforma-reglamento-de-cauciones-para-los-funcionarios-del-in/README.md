@@ -14,3 +14,4 @@ Reforma Reglamento de Cauciones para los funcionarios del INA según artículo 1
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-11 | la propia norma |
+| 2 | 2013-10-21 | Reglamento 4600 (2013-10-21) |
