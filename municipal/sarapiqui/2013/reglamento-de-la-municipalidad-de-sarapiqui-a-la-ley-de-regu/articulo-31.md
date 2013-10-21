@@ -1,1 +1,1 @@
-Artículo 31.—Omisión de presentación de copia de declaraciones o certificación contable. Si el licenciatario no presenta las copias de declaraciones o certificación indicadas en el artículo precedente, la Municipalidad le aplicará la calificación del año anterior, salvo que la Sección de Gestión Tributaria determine la necesidad de recalificar la respectiva licencia, conforme se establece en el artículo siguiente.
+Artículo 31.—(Derogado en sesión N° 42 del 21 de octubre de 2013)
