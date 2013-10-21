@@ -1,0 +1,2 @@
+Artículo 2º—Competencia. Las solicitudes de aplazamientos y fraccionamientos de pago de las deudas tributarias, deben presentarse y dirigirse a la Administración Tributaria competente, la cual debe conocer y resolver las solicitudes de facilidades de pago.
+Dichas solicitudes serán tramitadas y resueltas con apego a lo dispuesto en las resoluciones y directrices que emita la Administración Tributaria.
