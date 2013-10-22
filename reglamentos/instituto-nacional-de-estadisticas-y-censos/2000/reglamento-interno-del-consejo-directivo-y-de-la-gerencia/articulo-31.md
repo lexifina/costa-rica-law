@@ -16,7 +16,8 @@ n) Velar por la adecuada formación y capacitación del personal, de acuerdo con
 o) Nombrar, ejercer la autoridad disciplinaria y remover al personal del Instituto, excepto aquellos que dependan directamente del Consejo Directivo y el personal de la Auditoría, caso último en el cual deberá contar con la anuencia del Auditor.
 p) Otorgar las licencias de trabajo y de estudio en estricto apego a las estipulaciones del Reglamento Autónomo de Servicios.
 q) Preparar y presentar al Consejo Directivo el Proyecto de presupuesto anual y los proyectos de presupuesto extraordinario.
-r) Presentar al Consejo Directivo un informe mensual de los acuerdos pendientes de ejecución y un informe anual de las actividades y marcha del Instituto.
+r) Presentar al Consejo Directivo un informe trimestral de los acuerdos pendientes y de ejecutados; y un informe anual de las actividades y marcha del Instituto.
+(Así reformado el inciso anterior en sesión N° 703 del 22 de octubre de 2013)
 s) Facilitar las labores del Auditor y comunicar al Consejo Directivo las anomalías que cometa dicho funcionario en el ejercicio de sus funciones.
 t) Poner en conocimiento del Consejo Directivo las propuestas de capacitación y asignación de dichas actividades a los funcionarios del Instituto.
 u) Ejecutar las demás funciones que le asigne el Consejo Directivo, las leyes y los reglamentos.

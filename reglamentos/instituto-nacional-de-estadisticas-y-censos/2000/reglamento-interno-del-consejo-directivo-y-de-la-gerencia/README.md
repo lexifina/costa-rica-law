@@ -16,3 +16,4 @@ Reglamento Interno del Consejo Directivo y de la Gerencia
 | 1 | 2000-06-05 | la propia norma |
 | 2 | 2002-03-12 | Reglamento 185 (2002-03-12) |
 | 3 | 2004-11-09 | Reglamento 306 (2004-11-09) |
+| 4 | 2013-10-22 | Reglamento 703 (2013-10-22) |
