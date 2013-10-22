@@ -1,0 +1,1 @@
+Artículo 32.—Responsabilidad del funcionario público por el uso de la firma digital y las claves de acceso al Sistema.Queda prohibido a los funcionarios públicos que utilicen Regístrelo revelar sus claves o permitir que terceros utilicen su firma digital certificada.

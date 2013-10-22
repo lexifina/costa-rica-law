@@ -1,0 +1,2 @@
+Artículo 8°—Pagos realizados mediante Regístrelo. Los usuarios registrados deben realizar los pagos que correspondan a los trámites efectuados en Regístrelo utilizando los medios de pago electrónico habilitados en el Sistema.
+El usuario es responsable por la selección correcta del trámite que va a efectuar en Regístrelo. Toda gestión de trámite deberá ser cancelada independientemente si la solicitud de registro es aprobada o rechazada.
