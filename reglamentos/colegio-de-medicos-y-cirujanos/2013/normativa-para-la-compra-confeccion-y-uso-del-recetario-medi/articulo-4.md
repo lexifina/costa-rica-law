@@ -1,0 +1,1 @@
+Artículo 4º—La Fiscalía del Colegio de Médicos queda facultado para velar y fiscalizar por el cumplimiento de la presente normativa, siempre en respeto a las garantías constitucionales y el uso adecuado de éste documento.

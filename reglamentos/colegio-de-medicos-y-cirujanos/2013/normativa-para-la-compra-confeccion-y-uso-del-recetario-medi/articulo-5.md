@@ -1,0 +1,1 @@
+Artículo 5º—El Recetario Médico al ser un documento personalizado y de carácter legal, sólo podrá ser utilizado por el médico general o especialista, previo acto médico; el cual, deberá estar consignado en el expediente clínico del paciente.

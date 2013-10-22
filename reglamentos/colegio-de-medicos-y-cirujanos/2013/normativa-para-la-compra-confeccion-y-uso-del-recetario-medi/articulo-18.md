@@ -1,0 +1,2 @@
+Artículo 18.—El médico podrá utilizar el recetario tanto en su anverso como reverso, para prescribir o indicar tanto medicamentos, como exámenes de laboratorio y gabinete, luego de efectuado el acto médico e indicados en el expediente médico.
+(Mediante Fe de Erratas publicada en La Gaceta N° 37 del 21 de febrero del 2014, página 68 se ordena derogar el artículo N° 11 y correr la numeración de los artículos posteriores, por lo que el antiguo artículo 19 pasó a ser el 18)

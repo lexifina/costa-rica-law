@@ -1,0 +1,3 @@
+Prohibición
+Artículo 19.—Queda totalmente prohibido la emisión de recetarios médicos que sean emitidos en papelería que no sea la oficial del Colegio de Médicos y Cirujanos de Costa Rica. De hacerse caso omiso, se estará incurriendo en una transgresión al artículo 144 inciso b) del Código de Ética Médica; además, de las normativas internas de este Colegio Profesional y el ordenamiento jurídico costarricense.
+(Mediante Fe de Erratas publicada en La Gaceta N° 37 del 21 de febrero del 2014, página 68 se ordena derogar el artículo N° 11 y correr la numeración de los artículos posteriores, por lo que el antiguo artículo 20 pasó a ser el 19)
