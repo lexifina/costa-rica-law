@@ -13,3 +13,4 @@ Nombramientos en propiedad en plazas vacantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-17 | la propia norma |
+| 2 | 2013-10-22 | Circular 182 (2013-10-22) |
