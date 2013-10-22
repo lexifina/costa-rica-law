@@ -1,0 +1,3 @@
+Artículo 3º—Cálculo del criterio cuantitativo:
+a) Reasignación del presupuesto base. Se calcula para el periodo t–1 la relación entre el presupuesto no ejecutado y el presupuesto ejecutado. Luego se toma el presupuesto ejecutado por cada programa en el periodo t–1 y se incrementa en esa relación. El resultado es el presupuesto base reasignado de cada programa.
+b) Asignación del crecimiento. Se calcula la tasa de crecimiento del Fondo en t+1 con respecto al Fondo en t (tasa de crecimiento bianual) y se adiciona al presupuesto base reasignado de cada programa. El resultado es el presupuesto del periodo t+1 de cada programa.

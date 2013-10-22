@@ -1,0 +1,1 @@
+Artículo 5º—La presente metodología se deberá aplicar tanto a períodos de expansión como de contracción del Fondo, distribuyendo el monto del aumento o el monto de reducción del FODESAF, dependiendo del caso.
