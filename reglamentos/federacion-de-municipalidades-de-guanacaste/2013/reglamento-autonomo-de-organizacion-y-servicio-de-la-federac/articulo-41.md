@@ -1,0 +1,5 @@
+Artículo 41.—Los servidores (as) de la institución disfrutarán de vacaciones anuales remuneradas de acuerdo con las siguientes normas, tal y como establece el artículo 146 del Código Municipal.
+a) Si hubiesen trabajado de cincuenta semanas a cuatro años y cincuenta semanas, gozarán de quince días hábiles de vacaciones.
+b) Si hubiesen trabajado de cinco años y cincuenta semanas a nueve años y cincuenta semanas, gozarán de veinte días hábiles de vacaciones.
+c) Si hubiesen trabajado durante diez años y cincuenta semanas o más gozarán de treinta días hábiles de vacaciones.
+El derecho a vacaciones se tiene cualquiera que sea la modalidad de la relación laboral del servidor (a) con la institución y aunque no preste servicios todos los días de la semana laboral, ni la totalidad de la jornada ordinaria, así como en los casos de reconocimiento de anualidades laboradas en otras instituciones del sector público, se aplicará el procedimiento de cálculo conforme a lo establecido en el articulado anterior.

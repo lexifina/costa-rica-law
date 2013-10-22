@@ -1,0 +1,3 @@
+Transitorio único.—A la fecha de iniciar la aplicación de este Reglamento y para definir el salario base del Director Ejecutivo de la institución el monto por dietas a los Directores, debe de definirse por el promedio simple de los salarios pagados a los Alcaldes y las Dietas a los Regidores Propietarios de la provincia de Guanacaste, en adelante debe de aplicarse lo establecido en los artículo 20 y 30 respectivamente del Código Municipal.
+Acuerdo del Consejo Directivo de la Federación de Municipalidades de Guanacaste, tomado en la pasada sesión ordinaria N° 05-2013 el 07 de setiembre en el cantón de Tilarán Guanacaste.
+Cañas, 30 de setiembre del 2013.—

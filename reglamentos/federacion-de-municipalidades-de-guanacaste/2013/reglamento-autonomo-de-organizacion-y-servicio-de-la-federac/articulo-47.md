@@ -1,0 +1,9 @@
+CAPÍTULO XXI
+De las incapacidades para trabajar
+Artículo 47.—La institución reconocerá las ausencias al trabajo del servidor (a) motivadas por incapacidad para trabajar, ya sea por enfermedad, maternidad o riesgo profesional y se ajustará a las siguientes disposiciones:
+a) La incapacidad para trabajar por motivos de enfermedad será reconocida durante todo su período y pagará la diferencia que exista entre lo que cancelen las instituciones aseguradoras y el 100% de su salario, conforme a la normativa que rige la materia.
+b) La incapacidad para trabajar por motivos de maternidad se pagará durante los cuatro meses que señala el artículo 95 del Código de Trabajo, reconociendo la diferencia que exista entre el total de su salario y lo que pague la Caja Costarricense de Seguro Social y la misma se entenderá para todos los efectos como permiso con goce de salario.
+c) Tratándose de incapacidad para trabajar por riesgo profesional, se tomará lo dispuesto en el artículo 235 de la Ley sobre Riesgo del Trabajo, número 6727 del 04 de marzo de 1982 y sus reformas, garantizándose en todo caso el pago del 100% del salario.
+d) En todo lo que no se encuentre aquí expresamente regulado respecto a incapacidades, se considerarán disposiciones supletorias del presente Reglamento.
+El Reglamento para la extensión de incapacidades a los Trabajadores (as) beneficiarios (as) del Régimen de Enfermedad y Maternidad y el Reglamento General de Riesgos del Trabajo y las interpretaciones que de los mismos expida la Caja Costarricense de Seguro Social.
+En ningún caso de incapacidad para trabajar por enfermedad, maternidad o riesgo profesional, el monto del subsidio que pague la respectiva institución aseguradora, sumado al que pague la institución, podrá exceder el 100% del monto del salario que percibe el servidor (a).

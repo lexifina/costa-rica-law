@@ -1,0 +1,7 @@
+CAPÍTULO II
+Principios éticos de la función pública
+Artículo 9º—Son principios éticos de la función pública y del servidor y servidora los siguientes:
+a) El ejercicio de la función pública debe orientarse a la satisfacción del bien común de la institución, hacia el buen servicio a sus asociadas y al régimen municipal costarricense y por ende a la población de la Provincia de GUANACASTE, que es su fin último y esencial. Para ello la función pública propondrá hacia la actualización de los valores de seguridad, justicia, paz, libertad y democracia.
+b) La lealtad, la eficacia, la eficiencia, la probidad y la responsabilidad son valores fundamentales que deberán tenerse presentes en el ejercicio de la función pública, también se tendrán presentes los principios del servicio público, los deberes y prohibiciones que deben acatar los funcionarios (as) públicos se fundamentan en esos valores y principios.
+c) El funcionario público es un servidor (a) de los administrados en general y es particular de cada individuo o administrado que con él se relacione en virtud de la prestación de servicio y de la función pública que desempeña.
+d) El servidor (a) público (a), debe actuar en forma tal que su conducta pueda admitir el examen público más minucioso, para ello no es suficiente la simple observación de la Ley, deben aplicarse también los principios de la ética del servicio público; sean estos regulados o no de modo directo por la Ley.

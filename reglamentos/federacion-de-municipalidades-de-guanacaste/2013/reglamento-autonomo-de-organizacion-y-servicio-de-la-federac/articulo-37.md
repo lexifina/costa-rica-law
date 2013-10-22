@@ -1,0 +1,1 @@
+Artículo 37.—Todo trabajador tiene derecho como mínimo a disfrutar de un día de descanso absoluto, después de cada seis días de trabajo continuo, según el artículo 152 del Código de Trabajo, con excepción de los funcionarios con una jornada diferente, definidas por las características de la contratación.

@@ -1,0 +1,8 @@
+Artículo 81.—Además en las causales tipificadas como faltas graves por el artículo 81 del Código de Trabajo, sin perjuicio de cualquier otra prevista en las leyes y reglamentos de orden estatutario, laborales, podrá acordarse el despido sin responsabilidad patronal de un trabajador cuando:
+a) Se apodere, copie, destruya, inutilice, facilite, transfiera o retenga cualquier programa de computación y sus bases de datos, utilizados por la institución en asuntos propios del servicio debidamente comprobado.
+b) Dañe los componentes materiales o aparatos, las máquinas o los accesorios que apoyen el funcionamiento de las gestiones institucionales, y/o sistemas informáticos diseñados para las operaciones de cualquiera de la organización con cualquier propósito.
+c) Facilite el uso de Código y clave de acceso asignados para ingresar en los sistemas informáticos de esta institución, para que otra persona lo use a cualquier título.
+d) Ocultare o destruyere información, libros contables, bienes, documentos, registros, sistemas y programas computarizados, soportes magnéticos y otros medios de trascendencia para la institución, siempre y cuando los mismos no estén deshabilitados para su uso.
+e) Divulgar en cualquier forma o por cualquier medio la cuantía u origen de los atributos o cualquier otro dato que figure en las declaraciones; o permitir que estas o sus copias, libros documentos que contengan extractos o referencia de ellas, sean vistas por personas ajenas a las que la Administración haya encargado del manejo de esa información.
+f) Efectúe conscientemente un registro de asistencia que no sea el suyo, o solicite a otro que le registre su marca de asistencia.
+g) Viole la confidencialidad en el procedimiento por casos de hostigamiento o acoso sexual.

@@ -1,0 +1,5 @@
+Artículo 68.—El procedimiento o instrucción disciplinaria atenderá los siguientes pasos:
+a) Las jefaturas o encargados deberán reportar el caso a la Dirección Ejecutiva, las faltas en que incurran sus subalternos dentro de los tres días hábiles siguientes en que estas sean de su conocimiento.
+b) Toda denuncia deberá ser presentada por escrito y contener una relación circunstanciada de los hechos, indicación del o los servidores participantes, fechas, lugares y otros datos de interés. El denunciante deberá aportar y ofrecer las pruebas en que fundamenta su denuncia.
+c) La Dirección Ejecutiva o a quien esta designe para llevar a cabo el procedimiento de instrucción de la falta, hará una prevaloración de la misma, que fuese reportada para determinar su naturaleza, circunstancias y gravedad y establecer la necesidad o no de iniciar una investigación.
+d) Establecida la falta y definida la sanción correspondiente, de aplicarse a la misma amonestación, suspensión sin goce de salario o despido sin responsabilidad patronal, procederá a comunicarla al trabajador conforme el procedimiento establecido en los artículos 150 y 151 del Código Municipal.

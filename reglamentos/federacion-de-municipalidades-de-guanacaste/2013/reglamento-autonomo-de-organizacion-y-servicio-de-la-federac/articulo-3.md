@@ -1,0 +1,1 @@
+Artículo 3º—Las normas del presente Reglamento deben ser interpretadas y aplicadas recurriendo a los métodos y procedimientos usuales en el Derecho Administrativo, Códigos: Municipal y de Trabajo según corresponda, Leyes Conexas, el uso y la costumbre en forma que mejor garantice la realización del fin a que se dirigen, dentro del respeto debido a los derechos del servidor.
