@@ -1,0 +1,2 @@
+Procedimiento para acogerse al reglamento de dedicación exclusiva
+Artículo 4º—El funcionario que desee acogerse al régimen de dedicación exclusiva, deberá previamente solicitarlo por escrito a la Dirección Ejecutiva. Este, una vez que reciba la petición del servidor verificará y certificará el respectivo contrato por escrito que el funcionario solicitante cumple con los requisitos que señala el artículo 3, confecciona el respectivo contrato de Dedicación Exclusiva y procederá a firmarlo en conjunto con el funcionario solicitante.

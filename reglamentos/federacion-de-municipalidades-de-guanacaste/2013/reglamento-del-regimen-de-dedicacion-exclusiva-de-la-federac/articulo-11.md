@@ -1,0 +1,1 @@
+Artículo 11.—Pueden acogerse excepcionalmente al régimen de dedicación exclusiva o mantener ese beneficio, aquellos servidores a quienes se les permita laborar media jornada, siempre que firman en una declaración jurada en la que conste que el resto del tiempo lo dedicarán a las labores domésticas propias, comunicándolo por escrito a la Dirección Ejecutiva.

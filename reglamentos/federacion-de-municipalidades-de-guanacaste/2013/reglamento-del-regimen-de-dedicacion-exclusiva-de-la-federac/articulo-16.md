@@ -1,0 +1,1 @@
+Artículo 16.—Los funcionarios que ingresen a laborar a la Federación después de la aprobación por parte del Concejo Directivo del presente reglamento y que ostenten el rango cubierto por dicho régimen se acogerán obligatoriamente a este.
