@@ -1,0 +1,3 @@
+Artículo 8°—Los vehículos podrán circular en horas y días inhábiles, siempre y cuando se justifique y sea para la realización de trabajos impostergables o para atención de urgencias relacionadas con las funciones del respectivo miembro del Conglomerado.
+La solicitud de transporte deberá ser autorizada en cada caso por la jefatura del solicitante, o por quien, éste disponga mediante autorización conferida al efecto.
+Será responsabilidad del área solicitante aplicar los instrumentos de control dispuestos por la respectiva Unidad de Transportes con el fin de garantizar el uso racional de los recursos de la entidad respectiva.

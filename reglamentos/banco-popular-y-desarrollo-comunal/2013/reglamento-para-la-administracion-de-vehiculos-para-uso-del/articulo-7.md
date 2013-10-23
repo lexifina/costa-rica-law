@@ -1,0 +1,1 @@
+Artículo 7°—El área usuaria deberá gestionar sus necesidades de transporte mediante el uso de la “Solicitud de Transportes”, documento que debe ser gestionado con la firma de la jefatura del solicitante ante la Unidad de Transportes, la cual, dispondrá de hasta un día hábil para resolver lo correspondiente.
