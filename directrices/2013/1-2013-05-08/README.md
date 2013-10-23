@@ -14,3 +14,4 @@ Procedimiento para modificar status de entidades jurídicas a efecto de calcular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-08 | la propia norma |
+| 2 | 2013-10-23 | Directriz 2 (2013-10-23) |
