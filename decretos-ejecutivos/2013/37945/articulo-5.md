@@ -1,0 +1,1 @@
+Artículo 5º—Del representante de los trabajadores. Solamente podrán ser representantes de los trabajadores, aquellos servidores que no se encuentren nombrados en puestos de jefatura de Unidad y cuenten con un nombramiento en propiedad de al menos un año en el ICD.

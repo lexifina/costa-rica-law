@@ -1,0 +1,1 @@
+Artículo 51.—Del expediente de incidencias. El jefe deberá llevar un expediente de incidencias por cada funcionario en periodo de prueba a efectos de que pueda fundamentar y comunicar a la Dirección General, la solicitud de nombramiento en propiedad o el cese del servidor, una vez concluido el periodo de prueba.

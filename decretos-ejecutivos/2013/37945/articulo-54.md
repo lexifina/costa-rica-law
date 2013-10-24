@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+Promociones, traslados y reubicaciones
+Artículo 54.—Del procedimiento de promoción. El Jefe de la Unidad solicitante mediante un informe detallado y debidamente fundamentado, requerirá a la Comisión la promoción de uno o más funcionarios de la misma Unidad.
+La Comisión solicitará a la Oficina de Recursos Humanos un Informe detallado, el cual contendrá un análisis de las calificaciones periódicas de los oferentes a la promoción; su antigüedad, carrera profesional y sanciones, para determinar si el oferente a la promoción cumple con los requisitos de la clase a la que va a ser promovido, así como cualquier otro requisito incluido en el Manual que al efecto se encuentre vigente.
+La toma de decisión final le corresponderá a la Comisión de Reclutamiento y Selección, con fundamento en el análisis que haga del Informe de la Oficina de Recursos Humanos y del Informe del Jefe de la Unidad requirente. Esta decisión deberá estar contemplada en un Acuerdo, el cual deberá ser comunicado a los servidores que participaron de la promoción.

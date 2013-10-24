@@ -1,0 +1,2 @@
+Artículo 36.—Del Informe Final. Con la información referida, la Oficina de Recursos Humanos preparará un Informe Final que remitirá a la Comisión de Reclutamiento y Selección. El Informe contendrá el análisis y resultado de los predictores aplicados, así como la verificación de todos los requisitos académicos y legales.
+Este Informe Final se considerará privado y de conocimiento exclusivo de la Comisión de Reclutamiento y Selección, hasta que haya sido comunicado a los oferentes la decisión final.

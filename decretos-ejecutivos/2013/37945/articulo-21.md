@@ -1,0 +1,5 @@
+Artículo 21.—De la interposición de recursos para los Acuerdos de la Comisión de Reclutamiento y Selección. Contra los Acuerdos de la Comisión existe el Recurso de Revocatoria y el de Apelación cuando proceda por Ley. Se tendrá un término de tres días hábiles a partir de la notificación del Acuerdo para interponerlos.
+Es facultativo usar ambos recursos o uno solo de ellos, pero será inadmisible el que se interpongan vencidos los términos fijados. Si se interponen ambos recursos a la vez, se tramitará la apelación una vez declarada sin lugar la revocatoria.
+Los recursos no requieren una redacción ni una pretensión especial y bastará para su correcta formulación que de su texto se infiera claramente la petición.
+Cuando se trate del Recurso de Apelación, el Presidente de la Comisión se limitará a emplazar a las partes ante el Consejo Directivo del ICD y remitirá el expediente sin admitir ni rechazar el recurso, acompañando un informe sobre las razones del mismo.
+El Recurso de Apelación ante el Consejo Directivo del ICD agotará la vía administrativa, de conformidad con el artículo 126 inciso c) de la Ley General de la Administración Pública.

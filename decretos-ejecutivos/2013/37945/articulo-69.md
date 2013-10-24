@@ -1,0 +1,1 @@
+Artículo 69.—Derogatoria. Deróguense el Capítulo II del Decreto Ejecutivo Nº 32597, “Reglamento Autónomo de Organización y Servicio del Instituto Costarricense sobre Drogas”; el Decreto Ejecutivo Nº 35733-MP “Reglamento de Reclutamiento y Selección del Instituto Costarricense sobre Drogas”; así como cualquier otra disposición que contraríe este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 37.—Integración de nóminas menores. Si el número de oferentes que integran la nómina es menor de tres, por no haber más oferentes, queda a criterio de la Comisión de Reclutamiento y Selección acordar o no el nombramiento. Si en tal caso no se efectúa la escogencia, se acordará comunicar la apertura del concurso externo.

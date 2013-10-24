@@ -1,0 +1,1 @@
+Artículo 61.—Del periodo de prueba. Tratándose de promociones o traslados se aplicará un período de prueba de tres meses. En caso de no aprobarse el período de prueba al funcionario promocionado o trasladado, en el mismo acto de cese del movimiento realizado, se ordenará el retorno del servidor a su puesto de origen.

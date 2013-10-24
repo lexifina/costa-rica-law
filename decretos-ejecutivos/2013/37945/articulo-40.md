@@ -1,0 +1,1 @@
+Artículo 40.—Del Proceso de Evaluación. Para poder determinar al oferente idóneo para la plaza vacante, en el concurso externo, el Instituto aplicará un proceso de evaluación; el cual estará constituido por cinco etapas: el análisis curricular, la entrevista preliminar, la batería de test psicométricos, el estudio de vida y costumbres y la prueba específica para el puesto.

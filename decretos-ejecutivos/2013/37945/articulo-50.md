@@ -1,0 +1,2 @@
+Artículo 50.—Del período de prueba. Todo nombramiento vía concurso interno y externo está sujeto a un período de prueba de un año, contados a partir de la fecha de rige de la Acción de Personal.
+Si el funcionario regular no pasara el periodo de prueba, volverá a su puesto original; si el funcionario antes de su nombramiento tenía un nombramiento interino, se despedirá sin responsabilidad patronal.

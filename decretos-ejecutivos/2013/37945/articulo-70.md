@@ -1,0 +1,1 @@
+Artículo 70.—Normas supletorias. Las disposiciones no contempladas en el presente Reglamento se regirán por lo establecidos en el Estatuto de Servicio Civil y su Reglamento; la Ley General de la Administración Pública y el Código de Trabajo.

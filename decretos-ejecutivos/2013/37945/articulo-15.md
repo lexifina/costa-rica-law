@@ -1,0 +1,3 @@
+Artículo 15.—De la aprobación de los Acuerdos de la Comisión de Reclutamiento y Selección. La Comisión aprobará sus Acuerdos por mayoría simple de los miembros asistentes. Dichos acuerdos quedarán firmes en el acto.
+El total de votos emitidos afirmativa o negativamente se consignarán siempre en el Acta respectiva y los miembros de la Comisión, podrán hacer constar en el Acta su voto contrario al Acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los Acuerdos.
+La Comisión podrá incorporar asuntos nuevos que no estén incluidos dentro del Orden del Día, si cuenta con la aprobación para ello de todos sus miembros.

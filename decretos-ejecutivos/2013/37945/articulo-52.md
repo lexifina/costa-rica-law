@@ -1,0 +1,1 @@
+Artículo 52.—De la interposición de Recursos. Los recursos legales contra los Acuerdos de la Comisión de Reclutamiento y Selección, se regularán de conformidad con lo establecido en el numeral 21 de este Reglamento.

@@ -1,0 +1,4 @@
+Artículo 49.—De la adjudicación de la plaza. El adjudicatario está obligado a confirmar su aceptación por escrito ante la Oficina de Recursos Humanos, dentro de los 15 días hábiles siguientes a la notificación de su escogencia, bajo pena de perder el derecho de ser nombrado en la plaza objeto del concurso.
+Cuando no se comunique dentro de dicho término la aceptación, la plaza se le adjudicará a quien hubiere sido designado por la Comisión de Reclutamiento y Selección como el “segundo mejor oferente”.
+Una vez aceptada la plaza por el oferente, la Administración tendrá 30 días hábiles para hacer los ajustes requeridos, con el propósito que el funcionario pueda incorporarse a su nuevo puesto.
+El funcionario elegido, será nombrado en su nuevo puesto de manera interina, mientras concluya el período de prueba.

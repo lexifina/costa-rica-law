@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del Manual Descriptivo de Clases
+Artículo 23.—Del Manual Descriptivo de Clases. Será la Dirección General del Servicio Civil, la encargada de elaborar el Manual Descriptivo de Clases, que contendrá una descripción completa y sucinta de las atribuciones, deberes y requisitos mínimos de cada clase de empleos, incluyendo las del Instituto Costarricense sobre Drogas, con la finalidad que sirva en la determinación de los salarios de sus servidores. Por su parte, le corresponderá al ICD la redacción de todos aquellos manuales que sean solicitados por la Dirección General del Servicio Civil para el cumplimiento de sus objetivos institucionales.

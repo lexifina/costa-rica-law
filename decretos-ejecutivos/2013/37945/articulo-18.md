@@ -1,0 +1,6 @@
+Artículo 18.—De la correcta redacción de las Actas. En la transcripción de las Actas deberá respetarse siempre el margen izquierdo de las hojas y hacerse en forma continua y sin dejar renglones vacíos o espacios mayores a los necesarios. Si la transcripción se hiciera a mano, deberá hacerse con letra legible y con tinta.
+Cuando se utilice punto y aparte será necesario que los espacios vacíos sean llenados con líneas hasta el final del renglón. Los números que vengan contenidos en el Acta deberán consignarse con letras.
+En las Actas no deberá introducirse tachaduras, raspaduras, entrerrenglonaduras, borrones, enmiendas ni otras correcciones. Los errores o las omisiones deben salvarse por medio de notas al final del documento, pero antes de la firma.
+Si el Acta ya hubiese sido firmada por el Presidente de la Comisión, la corrección se hará mediante razón marginal la cual deberá ser firmada por el Presidente y el Secretario. Se procederá en igual forma con los demás errores, equivocaciones y omisiones en que incurra o con las aclaraciones y modificaciones que agregue.
+Queda prohibido comenzar un Acta en un tomo y concluirla en otro.
+Las Actas serán firmadas por el Presidente, el Secretario y por aquellos miembros que hubieren hecho constar su voto disidente, cuando ocurra.

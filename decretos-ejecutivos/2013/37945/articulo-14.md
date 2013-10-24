@@ -1,0 +1,1 @@
+Artículo 14.—Del quórum necesario para las sesiones de la Comisión de Reclutamiento y Selección. El quórum para que pueda sesionar válidamente la Comisión será de la totalidad de sus miembros. A falta de quórum, la Comisión podrá sesionar válidamente en segunda convocatoria, siempre y cuando exista el quórum completo. Lo anterior, deberá constar en un Acta levantada al efecto.

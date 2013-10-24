@@ -1,0 +1,1 @@
+Artículo 38.—Finalización por inopia comprobada. En caso de que no se presenten oferentes o que los que ofertaron no satisfagan las características del puesto, la Comisión de Reclutamiento y Selección comunicará dentro de un plazo de cinco días hábiles después de cerrado el concurso interno la apertura de Concurso Externo.

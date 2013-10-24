@@ -1,0 +1,3 @@
+Artículo 43.—De la batería de test psicométricos. Estas pruebas se ejecutan como el tercer paso dentro del proceso de reclutamiento y selección de personal, después del análisis curricular y la entrevista preliminar.
+Estas pruebas constituirán un elemento que complementará la información de cada uno de los oferentes, de acuerdo a los perfiles previamente definidos para cada puesto, con el propósito de reconocer las fortalezas del oferente.
+Las pruebas efectuadas, no podrán ser vistas por ninguna persona y serán catalogadas como material totalmente confidencial, salvo los resultados de dichas pruebas, las cuales podrán ser proporcionadas a la Comisión.

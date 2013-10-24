@@ -1,0 +1,1 @@
+Artículo 26.—Del nombramiento de interinos. Se podrán hacer nombramientos interinos, cuando sea necesario nombrar temporalmente a un funcionario para ocupar una plaza, cuyo titular haya solicitado permiso, licencia o ascenso interino. Asimismo, podrá nombrarse interinamente en casos de pensión, fallecimiento, renuncia o para ocupar una plaza vacante o recientemente creada.

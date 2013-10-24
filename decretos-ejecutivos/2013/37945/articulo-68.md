@@ -1,0 +1,1 @@
+Artículo 68.—De la nulidad de los nombramientos. Será considerado nulo, todo nombramiento que no se lleve a cabo bajo los preceptos del presente Reglamento y no cumpla los requisitos que los artículos precedentes establezcan. Lo anterior se regulará de acuerdo con lo establecido en la Ley General de la Administración Pública.
