@@ -14,3 +14,4 @@ Procedimiento para el cambio único de matrícula numérica a alfanumérica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-15 | la propia norma |
+| 2 | 2013-10-24 | Directriz 5 (2013-10-24) |
