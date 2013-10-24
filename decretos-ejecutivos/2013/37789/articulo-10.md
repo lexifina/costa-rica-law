@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión Asesora nombrará un jurado integrado por tres personas quienes serán los encargados de seleccionar los siguientes reconocimientos: mejor intérprete masculino, mejor intérprete femenino y mejor colectivo. El trabajo del jurado será Ad Honorem y será integrado por profesionales del sector artístico.

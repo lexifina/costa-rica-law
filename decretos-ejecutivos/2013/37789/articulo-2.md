@@ -1,0 +1,1 @@
+Artículo 2º—Podrán participar en el Festival Nacional de Danza Contemporánea, toda agrupación formal o informal del movimiento dancístico nacional con exclusión de los grupos pertenecientes a las Escuelas de Danza de las Universidades Públicas o cualquier institución del Estado, las que únicamente podrán participar en calidad de invitados.

@@ -1,0 +1,1 @@
+Artículo 6º—No podrán participar en el Festival, aquellos grupos formales o informales en los que tenga participación directa o indirecta funcionarios ligados al Teatro PopularMelico Salazar o a la Comisión Asesora que tengan injerencia en la decisión final de los grupos seleccionados; para lo cual deberán aportar declaración jurada.
