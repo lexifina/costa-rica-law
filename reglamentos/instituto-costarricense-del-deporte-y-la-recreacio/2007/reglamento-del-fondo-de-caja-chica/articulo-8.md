@@ -1,0 +1,2 @@
+Artículo 8 - De la subdivisión y fraccionamiento
+No se permite la subdivisión del fondo de Caja Chica en otros fondos menores para propósitos internos; si fuera necesaria la creación de subdivisiones deberá solicitarse de previo y de manera adicional al Consejo Nacional del Deporte y la Recreación, indicando si el fondo será temporal o permanente. Igualmente, se prohíbe el fraccionamiento de compras mediante caja chica.

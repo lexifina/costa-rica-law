@@ -1,0 +1,5 @@
+Artículo 5 – De la utilización
+Este fondo podrá utilizarse únicamente para materiales y suministros y prestación de servicios.
+En caso excepcional, debidamente justificado por la unidad solicitante, y, previa autorización Director de Programa Presupuestario según corresponda, podrá adquirirse activos en el tanto se encuentren dentro del monto autorizado para compras de Caja Chica. (Para lo cual, el vale de Caja Chica debe acompañarse de un estudio de mercado que conste de un mínimo de tres cotizaciones emitidas por diferentes proveedores del artículo a adquirir).
+Una vez realizada la compra de un activo, el responsable de dicho bien deberá presentar ante la Bodega el comprobante para que se haga la entrada y asignación de placa de activo, y presentar la documentación correspondiente en el momento de liquidar el vale, trámite que se hará sin excepción.
+Los activos que se adquieran deben ser casos especiales que no pudieron preverse dentro del Plan de Compras de la Proveeduría Institucional, previa justificación, así como aquellos que por su significativa cuantía amerite la realización de la compra por esta vía.

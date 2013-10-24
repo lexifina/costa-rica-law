@@ -1,0 +1,2 @@
+Artículo 15 - Del pago
+Todo gasto o pago efectuado mediante fondo de la Caja Chica deberá ser al contado y contra presentación de la respectiva factura o tiquetes de caja debidamente autorizados por la Administración Tributaria. Excepcionalmente, las facturas que no cumplan los requisitos establecidos por el ordenamiento jurídico vigente, se podrán cancelar de acuerdo a lo dispuesto por la Tributación Directa para cada caso en especial y aportando el comprobante de dicha excepción.
