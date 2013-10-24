@@ -1,0 +1,1 @@
+Artículo 10.—Los interesados podrán exponer verbalmente en la audiencia pública las objeciones a la solicitud delgestionante, siempre que hubieren hecho sus manifestaciones por escrito dentro del término indicado en el artículo sétimo de éste Reglamento, teniendo en dicha audiencia la máxima libertad para presentar y demostrar su oposición o defensa.

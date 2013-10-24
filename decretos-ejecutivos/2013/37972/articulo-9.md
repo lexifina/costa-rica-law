@@ -1,0 +1,1 @@
+Artículo 9°—En la audiencia pública sólo podrán hacer uso de la palabra los interesados, considerándose como tales a los personeros debidamente acreditados del solicitante, los cuales podrán pronunciarse respecto a la solicitud del Certificado de Explotación y sobre las oposiciones o defensas presentadas.

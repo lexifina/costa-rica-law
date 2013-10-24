@@ -1,0 +1,1 @@
+Artículo 21.—Una vez depositada la garantía de cumplimiento, la Unidad Financiera, comunicará al Registro Aeronáutico de dicho trámite para que este prevenga a los interesados de apersonarse a dicha unidad con el fin de determinar si se debe cancelar algún monto correspondiente a la inscripción de la resolución del Certificado de Explotación.

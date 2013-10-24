@@ -1,0 +1,1 @@
+Artículo 15.—Los certificados de explotación extendidos por el Consejo Técnico de Aviación Civil tienen el carácter de concesiones de servicio público en donde la calidad del concesionario “intuitu personae” es elemento esencial.

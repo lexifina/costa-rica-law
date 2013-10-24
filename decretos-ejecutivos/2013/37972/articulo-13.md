@@ -1,0 +1,1 @@
+Artículo 13.—El Consejo Técnico de Aviación Civil podrá ordenar la aportación de los documentos adicionales y las pruebas , tanto al gestionante como a los interesados que presentaron objeciones, en el momento y forma que considere conveniente para la sustanciación de la resolución respectiva.

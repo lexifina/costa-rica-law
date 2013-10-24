@@ -1,0 +1,1 @@
+Artículo 11.—Se levantará durante la audiencia una acta que contendrá una síntesis del debate ocurrido. Deberá ser firmada por la persona que presidió dicho acto y será añadida a la documentación que debe ser trasladada al Consejo Técnico de Aviación Civil para la resolución definitiva.

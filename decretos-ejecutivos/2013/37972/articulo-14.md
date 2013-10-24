@@ -1,0 +1,1 @@
+Artículo 14.—Los certificados de explotación se extenderán hasta por un período máximo de quince años, contado a partir de la fecha de expedición, renovable por períodos iguales. Para su determinación se tomará en cuenta especialmente la importancia económica del servicio, la cuantía de la inversión inicial y las ulteriores requeridas para desarrollarlo y mejorarlo.

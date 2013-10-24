@@ -1,0 +1,1 @@
+Artículo 6°—Una vez que la Dirección General de Aviación Civil, compruebe que se ha completado toda la documentación requerida, trasladará el informe respectivo el cual contendrá los criterios técnicos y legales, para conocimiento y aprobación, del Consejo Técnico de Aviación Civil.
