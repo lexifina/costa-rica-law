@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese el inciso 2) del artículo 62, el inciso 3) del artículo 63, el artículo 66 y el artículo 118, del “Reglamento de Organización del Ministerio de Seguridad Pública”, Decreto Ejecutivo N° 36366-SP y sus reformas, que según la numeración corrida por lo dispuesto en el primer artículo de la presente reforma, pasaría a ser el artículo 134, quedando derogado.
