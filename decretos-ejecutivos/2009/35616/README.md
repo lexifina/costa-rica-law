@@ -14,3 +14,4 @@ Adopción e Implementación de las Normas Internacionales de Información Financ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-02 | la propia norma |
+| 2 | 2013-10-25 | Decreto Ejecutivo 38069 (2013-10-25) |
