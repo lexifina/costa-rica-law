@@ -1,0 +1,5 @@
+SECCIÓN IV
+De la liquidación y pago del impuesto
+Artículo 11.—Deber de determinación y declaración jurada. Los agentes de percepción del impuesto, se encuentran obligados a efectuar la liquidación de su obligación tributaria mediante el formulario oficial de declaración jurada simple que suministra el I.C.T. en forma impresa o por medio del correo electrónico ICTDECLARA_5A@ict.go.cr Los agentes de percepción podrán efectuar la declaración jurada simple en forma electrónica en el formato establecido por el I.C.T. y presentarla por medio del correo electrónico ICTDECLARA_5A@ict.go.cr, dentro del plazo establecido en el artículo 12 del presente reglamento. Las declaraciones que sean efectuadas en forma impresa, deberán ser presentadas directamente ante el I.C.T.
+La obligación de presentar la declaración subsiste aún cuando no se pague el impuesto. Las declaraciones deberán pagarse y presentarse en los lugares que designe el I.C.T.
+Mientras no se haya efectuado la desinscripción de un agente de percepción como recaudador del impuesto, la obligación de presentar la declaración ante el I.C.T., se mantiene.

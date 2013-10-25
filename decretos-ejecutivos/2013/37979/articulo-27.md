@@ -1,0 +1,1 @@
+Artículo 27.—Derogatoria. El presente Reglamento deroga el “Reglamento para el Control y Recaudación del Impuesto del 5% del Valor de los Pasajes Internacionales”, Decreto Ejecutivo Número 19585 H-MEIC-G-J del 4 de abril de 1990.

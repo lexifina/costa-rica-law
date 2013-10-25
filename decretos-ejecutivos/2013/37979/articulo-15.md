@@ -1,0 +1,2 @@
+Artículo 15.—El pago efectuado fuera del plazo. El impuesto del 5% sobre pasajes internacionales, deberá ser cancelado en su totalidad de conformidad con el monto determinado por el agente de percepción del tributo, en la declaración de impuesto respectiva.
+El pago del impuesto fuera de las fechas establecidas en el artículo 12 del presente reglamento, producirá la obligación por parte del agente de percepción de pagar junto con el tributo adeudado, el interés establecido el artículo 57 del Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,1 @@
+Artículo 25.—Obtención de información de trascendencia tributaria por parte de terceros. El I.C.T. podrá, cuando así lo considere conveniente, requerir información de trascendencia tributaria a terceros que en virtud de sus actividades, y relaciones con el agente de percepción, podrían contribuir en la adecuada recaudación y fiscalización del impuesto.

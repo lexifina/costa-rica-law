@@ -1,0 +1,1 @@
+Artículo 7º—Sujeto Activo del Tributo. El I.C.T., es el sujeto acreedor del impuesto del 5% en la venta de pasajes internacionales y por tanto el ente facultado para llevar a cabo todas las actuaciones necesarias para la adecuada recaudación, control, y fiscalización de este tributo.
