@@ -17,3 +17,4 @@ Estatuto Orgánico de la Universidad Estatal a Distancia
 | 2 | 2008-12-08 | Reglamento 0 (2008-12-08) |
 | 3 | 2013-05-31 | Reglamento 85 (2013-05-31) |
 | 4 | 2013-07-19 | Reglamento 86 (2013-07-19) |
+| 5 | 2013-10-25 | Reglamento 0 (2013-10-25) |
