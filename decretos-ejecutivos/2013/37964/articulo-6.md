@@ -1,0 +1,1 @@
+Artículo 6º—La clasificación incluida en este Decreto Ejecutivo no obsta para que en la formulación de políticas, planes, programas y proyectos así como en la asignación de recursos por parte de instituciones públicas se consideren complementariamente al IDS otros criterios específicos que justifiquen su pertinencia y relevancia.
