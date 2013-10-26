@@ -1,0 +1,1 @@
+3º—Modificar el mensaje “MENSAJE DE SOLICITUD DE CREACIÓN DE VIAJES VERSIÓN 1.5”, lo relacionado al instructivo de llenado del campo “Matrícula del cabezal (TRTMOVMAT)”, en cuanto a que la matrícula no debe contener guiones, espacios en blanco o caracteres especiales.
