@@ -1,1 +1,0 @@
-Artículo ll.-Para los efectos de cobro de esta tasa, se divide el distrito primero de Grecia en Zona Céntrica y Zona no Céntrica, La Zona Céntrica estará comprendida entre las calles 0 y 10 Y las avenidas 0 y 10, tomando en cuenta las calles y avenidas pares e impares.

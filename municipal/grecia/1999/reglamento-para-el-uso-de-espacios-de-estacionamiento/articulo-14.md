@@ -1,1 +1,0 @@
-Artículo XIV.-La Municipalidad de Grecia por medio de los inspectores velará por el cumplimiento en el pago de la tasa establecida en este Reglamento así como por la aplicación de las multas correspondientes a los conductores que lo infringieren.

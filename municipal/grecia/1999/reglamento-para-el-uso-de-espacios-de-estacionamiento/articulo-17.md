@@ -1,1 +1,0 @@
-Artículo XVII.-Estacionamiento de Motocicletas. Las motocicletas no podrán estacionar en el espacio reservado para el estacionamiento de vehículos; deberán estacionar en las zonas demarcadas para ello, pagar las tasas respectivas y quedan sujetas a las sanciones que prevé este Reglamento en el artículo 10.

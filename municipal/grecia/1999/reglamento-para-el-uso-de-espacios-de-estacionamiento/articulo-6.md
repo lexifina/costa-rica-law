@@ -1,2 +1,0 @@
-Artículo VI.- Los vehículos que utilicen las zonas de estacionamieno autorizado deberán pagar una tasa de ¢65.00 (sesenta y cinco colones) por meda hora y ¢ 125.00 (ciento veinticinco colones) por una hora. Esta tasa podrá ser variada por el concejo municipal conforme a la ley 6852 del 16 de febrero de 1983 y mediante el simple relleno de las boletas.
-(Así reformado mediante publicación en La Gaceta N° 55 del 19 de marzo del 2001)

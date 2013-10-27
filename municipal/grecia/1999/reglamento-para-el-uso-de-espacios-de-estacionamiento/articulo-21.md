@@ -1,1 +1,0 @@
-Artículo XXl.-Los estacionamientos autorizados conforme a éste reglamento, no generan contra la Municipalidad ninguna clase de responsabilidad civil producida por robo o cualquier tipo de daño natural o humano en contra del o los vehículos que hagan uso de los mismos.

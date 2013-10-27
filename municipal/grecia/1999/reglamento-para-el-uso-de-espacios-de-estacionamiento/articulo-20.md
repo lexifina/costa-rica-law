@@ -1,1 +1,0 @@
-Artículo XX.-Las zonas oficiales y paradas de autobuses y taxis serán demarcadas bajo el criterio técnico de la Ingeniería de Tránsito de Ministerio de Obras Públicas y Transportes, previo acuerdo con el Departamento de Ingeniería Municipal.

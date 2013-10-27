@@ -1,1 +1,0 @@
-Artículo VIlI.-La tarjeta de estacionamiento deberá colocarse en un lugar visible de la parte interior del parabrisas delantero del vehículo, indicando el año, mes, día, la hora y minutos de llegada al lugar de estacionamiento. Para tal efecto el usuario deberá despegar o arrancar las pestañas de los recuadros correspondientes, o bien marcar con bolígrafos las mismas.
