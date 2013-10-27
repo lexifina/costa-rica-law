@@ -1,0 +1,1 @@
+Artículo 45.—Cuando un interesado antes del vencimiento del plazo señalado de ocho días se presentare a reclamar y demuestre la propiedad de los animales en custodia ante el órgano jurisdiccional, los mismos le serán devueltos previa cancelación de los gastos certificados en los que el SENASA incurrió por la custodia de los mismos.

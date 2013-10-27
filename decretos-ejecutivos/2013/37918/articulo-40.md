@@ -1,0 +1,1 @@
+Artículo 40.—En dicha denuncia de igual manera deberá solicitarse especialmente a la Fiscalía de turno que resuelva en relación a la custodia de los animales en aras de proteger el bienestar de los mismos.

@@ -1,0 +1,1 @@
+Artículo 42.—Todo animal que sea dado en depósito administrativo deberá ser identificado por el SENASA, con el fin de garantizar administrativamente una exacta devolución por parte del depositario de aquellos si así fuere ordenado judicialmente o administrativamente por el SENASA.

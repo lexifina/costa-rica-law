@@ -1,0 +1,1 @@
+Artículo 8º—Es responsabilidad única y exclusiva del propietario, legítimo poseedor, o representante del propietario de los animales incluir los datos requeridos en la guía de movilización, en forma correcta, fidedigna y total, en el establecimiento donde inicie la movilización de los animales o el embarque.

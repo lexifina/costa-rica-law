@@ -1,0 +1,1 @@
+Artículo 9º—La información contenida en la guía de movilización tiene carácter de declaración jurada por parte de los sujetos descritos en el Artículo 8 y es válida para un único destino y por un período no mayor de 24 horas después de su emisión.

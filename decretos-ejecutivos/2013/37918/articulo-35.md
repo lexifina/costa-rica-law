@@ -1,0 +1,1 @@
+Artículo 35.—Si el animal presenta varias marcas se tomará como vigente la marca que se declare en la guía de movilización. En todo caso esta marca deberá guardar las características arriba descritas.

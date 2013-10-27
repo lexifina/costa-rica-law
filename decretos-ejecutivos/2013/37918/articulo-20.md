@@ -1,0 +1,2 @@
+Artículo 20.—Cuando el movimiento se origine en una subasta o plaza de ganado deberá indicarse en la guía de movilización, el nombre y cédula del comprador y vendedor de los animales. En estos casos el comparador o su representante, deberá de firmar la guía en calidad de responsable de los animales.
+El nombre de vendedor deberá corresponder al emisor de la guía de movilización de origen salvo expreso señalamiento de cambio de titularidad o propiedad efectuado por éste en la correspondiente guía de movilización.

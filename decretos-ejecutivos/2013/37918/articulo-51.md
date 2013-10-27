@@ -1,0 +1,1 @@
+Artículo 51.—Será igualmente responsabilidad de dicho personal, notificar al SENASA y a la autoridad policial competente cualquier anomalía detectada en los documentos o en los animales que le hagan dudar la validez o existencia de los mismos.

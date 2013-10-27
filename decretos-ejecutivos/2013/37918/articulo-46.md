@@ -1,0 +1,1 @@
+Artículo 46.—Cuando se esté frente a la existencia de bienes muebles o inmuebles involucrados en una presunta infracción a la Ley o a este Reglamento, el SENASA podrá solicitar a la autoridad judicial se le otorguen dichos bienes en custodia y administración temporal a efectos de preservarlos ante una eventual declaratoria de comiso.

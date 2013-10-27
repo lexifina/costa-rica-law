@@ -1,0 +1,1 @@
+Artículo 33.—Alteración de la marca o ganado remarcado.En los casos de alteración de la marca o fierro de ganado legítima o con marcas sobrepuestas que se presuma delictuoso, se denunciará a la autoridad competente, a cuya disposición se pondrán los animales.

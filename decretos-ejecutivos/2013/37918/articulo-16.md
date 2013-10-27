@@ -1,0 +1,1 @@
+Artículo 16.—Las subastas, plazas de ganado, ferias o exposiciones ganaderas y en general otras organizaciones ligadas al Sector Pecuario podrán solicitar al SENASA autorización para tramitar, recibir y entregar guías de movilización a propietarios, poseedores o representantes debidamente autorizados de un establecimiento de producción primaria.

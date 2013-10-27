@@ -1,0 +1,1 @@
+Artículo 7º—Además de la guía de movilización, el ganado deberá estar debidamente identificado con la marca de fierro que debe encontrarse inscrita en el Registro de Marcas del Registro Público, de conformidad con las disposiciones de este Reglamento y la Ley Nº 2247 de 7 de agosto de 1958.

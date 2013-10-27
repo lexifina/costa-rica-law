@@ -1,0 +1,3 @@
+Artículo 12.—La disposición anterior se aplicará a todo macho bovino castrado dedicado a formar una yunta, siempre y cuando circulen enyugados.
+Cuando sea necesario transportar bueyes enyugados o no, en algún tipo de vehículo se requerirá la portación de una guía de movilización oficial.
+Se permitirá la utilización de guías de movilización del establecimiento de origen cuando se trate de yuntas de bueyes que estén retornando desde un establecimiento en el que han permanecido más de 24 horas con fines de trabajo y éste establecimiento no sea una unidad de producción con actividad ganadera, subasta, plaza de ganado, feria o exposición ganadera.

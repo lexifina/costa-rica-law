@@ -1,0 +1,1 @@
+Artículo 15.—El diseño de la guía de movilización para cada tipo de establecimiento y los datos requeridos por la misma serán definidos mediante directriz que para los fines específicos de este Reglamento establezca la Dirección General del SENASA, la que regirá y será exigida a partir de su publicación en el Diario Oficial La Gaceta.

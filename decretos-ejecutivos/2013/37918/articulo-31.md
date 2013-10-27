@@ -1,0 +1,1 @@
+Artículo 31.—Proceso de marcaje o identificación de ganado. El proceso de marcaje o identificación de ganado consistirá en la impresión que se efectúa sobre el animal, de un dibujo o diseño, por medio de hierro candente, de marcación en frío, con tinta indeleble o de cualquier otro procedimiento que asegure la permanencia en forma clara e indeleble.
