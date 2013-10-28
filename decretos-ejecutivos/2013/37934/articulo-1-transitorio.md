@@ -1,0 +1,1 @@
+Transitorio Único.—El presente reglamento en un plazo de 24 meses contados a partir de su publicación, deberá contar con un manual de especificaciones mínimas de seguridad en carretera cuya versión oficial será la que emita el Ministerio de Obras Públicas y Transportes, mediante el concurso de la Asesoría Técnica de Fiscalización del Consejo de Seguridad Vial.
