@@ -1,0 +1,1 @@
+Artículo 2º—Constitución del Comité. Constitúyase el Comité Mixto de Mercadeo del ICT, como figura de planificación y concertación de las acciones de promoción turística del ICT entre los sectores público y privado, bajo el modelo de gestión sostenible de Costa Rica como destino turístico.

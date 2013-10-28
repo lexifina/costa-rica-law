@@ -1,0 +1,1 @@
+Artículo 5º—Disposición final. En lo no dispuesto en el presente reglamento, se aplicará lo señalado por la Ley General de la Administración Pública en relación con el funcionamiento de los órganos colegiados.
