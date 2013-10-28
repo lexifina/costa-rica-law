@@ -14,3 +14,4 @@ Reglamento para la adquisición y recepción de bienes, servicios y obras de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-02 | la propia norma |
+| 2 | 2013-10-28 | Reglamento municipal 87 (2013-10-28) |
