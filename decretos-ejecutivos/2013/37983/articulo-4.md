@@ -1,0 +1,1 @@
+Artículo 4º—Transparencia y deber de informar. El jerarca del Ministerio de Comercio Exterior deberá reportar periódicamente a la Presidencia de la República el avance del trabajo que se haga con la OCDE y el progreso alcanzado con miras a que Costa Rica sea parte de dicha organización.

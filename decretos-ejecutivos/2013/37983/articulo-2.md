@@ -1,0 +1,1 @@
+Artículo 2º—Colaboración. Se insta a los órganos y entes del sector público para que, dentro del marco jurídico-legal de sus competencias, contribuyan con recursos humanos y económicos o alternativas de colaboración y cooperación requeridas en la consecución del objetivo de ingreso de Costa Rica a la OCDE.
