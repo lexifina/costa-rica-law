@@ -14,3 +14,4 @@ Publica la decisión N° 22 del 27 de setiembre del 2011 y su anexo modificacion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-05 | la propia norma |
+| 2 | 2013-10-28 | Decreto Ejecutivo 38082 (2013-10-28) |

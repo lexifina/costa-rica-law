@@ -15,6 +15,7 @@ y Costa Rica), del Tratado de Libre Comercio entre Centroamérica y Chile y el P
 Bilateral Celebrado entre Chile y Costa Rica, Derivadas de la Cuarta Enmienda
 al Sistema Armonizado de Designación y Codificación de Mercancías (SA).
 Artículo 1º—Publíquese la Decisión N° 22 de fecha 27 de septiembre de 2011 y su Anexo de la Comisión de Libre Comercio del Tratado de Libre Comercio entre Centroamérica y Chile: Adecuaciones al Anexo 4.03, Sección C (Reglas de origen específicas entre Chile y Costa Rica), del Tratado de Libre Comercio entre Centroamérica y Chile y el Protocolo Bilateral celebrado entre Chile y Costa Rica, derivadas de la Cuarta Enmienda al Sistema Armonizado de Designación y Codificación de Mercancías (SA), que a continuación se transcriben:
+Anexo, que a continuación se transcriben:
 [imagen]
 [imagen]
 [imagen]
@@ -29,3 +30,4 @@ Artículo 1º—Publíquese la Decisión N° 22 de fecha 27 de septiembre de 201
 [imagen]
 [imagen]
 [imagen]
+(Así reformado por el artículo 2° del decreto eejcutivo N° 38082 del 28 de octubre del 2013, "Publica Decisión N° 27 de 16/10/2013, Comisión Libre Comercio de TLC entre Centroamérica y Chile: adecuaciones a anexo 4.03, sección C reglas origen entre Chle y Costa Rica del TLC derivadas de Quinta enmienda a Sistema Armonizado de designación")
