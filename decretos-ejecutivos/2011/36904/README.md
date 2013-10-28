@@ -14,3 +14,4 @@ Publica Decisión N° 24 de 27/09/2011 lista árbitros establecida en artículo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-06 | la propia norma |
+| 2 | 2013-10-28 | Decreto Ejecutivo 38136 (2013-10-28) |

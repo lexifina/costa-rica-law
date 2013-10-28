@@ -27,41 +27,72 @@ Capítulo 19 Solución de Controversias, Artículo 19.09 y 19.10
 Lista y Cualidades de los Árnitros
 ÁRBITROS NACIONALES
 ÁRBITROS NACIONALES
-POR PARTE DE EL SALVADOR
-Luis Nelson Segovia
-César Ernesto Salazar
-Rodolfo Esteban Ramírez
-Ernesto Lima MENA
-Haroid c. Lantan
-A. POR PARTE DE CHILE
-Hernán Pitto Dalmazzo
-Jorge Antonio Quiróz Castro
-Eliel Hasson Nissi
-Juan Sebastián Saéz Contreras
-Joaquín Gustavo Morales Godoy
-B. POR PARTE DE COSTA RICA
-Jame granados Brenes
-Carolyn Robert
-Patricio Grané Labat
-Arnoldo André Tinoco
-Juan Ignacio Gallegos Guardián
+Por parte de Chile
+1. Hernán Pitto Dalmzazzo
+2. Jorge Antonio Quirós Castro
+3. Eliel Hasson Nisis
+4. Juan Sebastian Sáez Contreras
+5. Joaquín Gustavo Morales Godoy
+B. Por parte de Costa Rica
+1. Jaime Granados Brenes
+2. Carolyn Robert
+3. Patricio Grané Labat
+4. Armando André Tinoco
+5. Juan Ignacio Gallegos Gurdian
+C. Por parte de el Slavador
+1. Luis Nelson Segovia
+2. César Ernesto Salazar
+3. Rodolfo Esteban Ramírez
+4. Ernesto Lima Mena
+5. Harold C. Lantán
+d. Por parte de Guatemala
+1. Alvaro Rodrigo Castellanos Howell
+2. Ana Elizabeth MancurMilian
+3. Francisoc José Castillo Chacón
+4. Marcos José Ibarguen Segovia
+5. Marcos Palma Villagrán.
+E. Por parte de Honduras
+1. José Arturo Alvarado Sánchez
+2. Ramón Medina Luna
+3. Guillermo enrique Pereira.
+4. Ulises Mejías León Gomez
+5. Aldo Cosenza Bungener
+f. Por parte de Nicaragua
+1. Henry Thompson
+2. Christian Robleto
+3. Pauni Obregón
+4. Oscar Alemaán
+5. José Bernard Pallais
 ARBITROS NO NACIONALES
-A. POR PARTE DE EL SALVADOR
-Miriam Maroun Marun VENEZUELA
-Aníbal Sabater ESPAÑA
-Rafael Bernal Gutiérrez COLOMBIA
-Gary N. Horlick ESTADO UNIDOS
-Hunter James Nottage NUEVA ZELANDA
-B POR PARTE DE CHILE
-1. Felix Peña ARGENTINA
-2. Cristian Espinoza ECUADOR
-3. José Manuel Quijano Capurro URUGUAY
-4. Jean Francois brakeland BELGICA
-5. Elbio Oscar Roselli Frieri URUGUAY
-C. POR PARTE DE COSTA RICA
-1. Yves Renouf FRANCIA
-2. Rosine M. Plank-Brumbacf FRA/EEUU
-3. Carlos García Fernández EXICO
-4. Fernando de Mateo MEXICO
-5. Ricardo Ramíres hernández MEXICO
-[imagen]
+Por parte de Chile
+Feliz Peña | ARGENTINA
+Christian Robleto | ECUADOR
+José Manuel Quijano Capurro | URUGUAY
+Jean Francois Brakeland | Bélgica
+Elbio Oscar Roselli Frieri | URUGUAY
+Por parte de Costa Rica
+Yves Renouf | FRANCIA
+Rosine M. Planck-Brumpack | FRANCIA/EEUU
+Carlos García Fernández | MÉXICO
+Fernando de Mateo | MÉXICO
+Ricardo Ramírez Hernández | MÉXICO
+Por parte de El Slavador
+Miriam Maroun Marn | VENEZUELA
+Aníbal Zabater | ESPAÑA
+Rafael Bernal Gutiérrez | COLOMBIA
+Gary N. Horlick | EE.UU
+Hunter James Nottage | NUEVA ZELANDA
+Por parte de Guatemala
+Celso de Tarso Pereira | BRASIL
+Eduardo Dante Bianchi | ARGENTINA
+Fernando Pierola Castro | PERÚ
+Jorge Miranda | MÉXICO
+Luz Elena Reyes | MÉXICO
+Por parte de Honduras
+Dr. Hugo Perezcano Díaz | MÉXICO
+Dr. Ignacio Suarez Anzorena | ARGENTINA
+Por parte de Nicaragua
+Guillermo Márquez | VENEZUELA
+Luis Pablo Niscovolos | ARGENTINA
+Alejandro Sánchez | MÉXICO
+(Así reformado por el artículo 2° del decreto ejecutivo N° 38138 del 28 de octubre del 2013, "Publica Decisión N° 32 del 18 de octubre del 2013 de la Comisión de Libre Comercio del Tratado de Libre Comercio entre Centroamérica y Chile: Incorporación a la lista de árbitros de los integrantes nacionales y no nacionales de Guatemala y Nicaragua")
