@@ -14,3 +14,4 @@ Reglamento para el uso, control y mantenimiento de vehículos de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-17 | la propia norma |
+| 2 | 2013-10-28 | Reglamento municipal 78 (2013-10-28) |
