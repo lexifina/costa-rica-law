@@ -51,5 +51,4 @@ La presente decisión se firma en San José de Costa Rica, a los 27 días del me
 [imagen]
 [imagen]
 [imagen]
-[imagen]
-[imagen] [imagen]
+(Así reformado el anexo de la presente resolución por el artículo 2° del decreto ejecutivo N° 38085 del 28 de octubre del 2013 "Publica Decisión N° 35 del 18/10/2013, Comisión de Libre Comercio del TLC entre Centroamérica y Chile: adecuaciones Anexo 4.03 Sección B-Reglas de origen específicas entre Chile y CR, el Salvador, Guatemala derivadas de la 5 enmienda al Sistema Armonizado")

@@ -14,3 +14,4 @@ Publica Decisión N° 21 de 27/19/2011 y su Anexo relativo adecuaciones al Anexo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-09 | la propia norma |
+| 2 | 2013-10-28 | Decreto Ejecutivo 38085 (2013-10-28) |
