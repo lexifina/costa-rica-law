@@ -1,1 +1,0 @@
-Artículo 19.—De las normas supletorias: Para todo lo no establecido en esta sección del presente reglamento, aplica lo estipulado en la Ley General de Administración Pública referente a los órganos colegiados.
