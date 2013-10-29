@@ -1,0 +1,3 @@
+ARTÍCULO 8º—La Asamblea Legislativa insta a todos los hombres y mujeres costarricenses, los medios de comunicación social, las organizaciones de la sociedad civil, las empresas privadas, al sistema bancario y financiero, los movimientos cooperativo, solidarista y sindicalista, las universidades públicas y privadas, la Academia de Geografía e Historia, la Iglesia católica y otras iglesias, y a los cuerpos diplomático y consular acreditados ante el Gobierno de la República a unirse activamente a estas celebraciones patrias.
+Rige a partir de su publicación.
+Dado en la provincia de Cartago, a los catorce días del mes de setiembre del año dos mil trece.

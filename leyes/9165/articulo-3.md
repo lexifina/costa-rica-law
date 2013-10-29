@@ -1,0 +1,1 @@
+ARTÍCULO 3º—Los poderes públicos, las instituciones y los programas del Estado se unirán al bicentenario y organizarán actividades moristas para los usuarios de sus servicios. La papelería, las publicaciones y los sitios web estatales llevarán el emblema del bicentenario, impreso o adherido.

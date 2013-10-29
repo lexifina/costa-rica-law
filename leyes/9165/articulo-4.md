@@ -1,0 +1,1 @@
+ARTÍCULO 4º—Se denominará “Avenida del Libertador Juan Rafael Mora” a la avenida segunda de la ciudad de San José, entre las calles 14 y 29. Esta denominación rige a partir de la aprobación de este acuerdo legislativo.
