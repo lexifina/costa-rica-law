@@ -1,0 +1,1 @@
+Artículo 16.—Representación en los procesos de violencia doméstica: De conformidad con la Ley contra la Violencia Doméstica, N° 7586 el INAMU ejercerá la representación legal en el trámite de cualquiera de las medidas de protección que esta ley define en beneficio de las mujeres víctimas de violencia, de acuerdo con el concepto establecido en la ley de cita en su artículo 2.

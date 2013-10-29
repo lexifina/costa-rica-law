@@ -1,0 +1,1 @@
+Artículo 14.—Archivo de la gestión: El expediente de coadyuvancia se archivará cuando exista sentencia firme en el proceso judicial o cuando se dicte el acto final en el procedimiento administrativo, por parte del órgano decisor.

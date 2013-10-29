@@ -1,0 +1,1 @@
+Artículo 5º—Medios para consultar: Las usuarias podrán plantear sus consultas para recibir asesoría jurídica especializada en los derechos de las mujeres de manera presencial, en los lugares que la institución habilite para ese fin, por fax, correo electrónico o cualquier otro medio que la institución coloque a disposición de las usuarias.
