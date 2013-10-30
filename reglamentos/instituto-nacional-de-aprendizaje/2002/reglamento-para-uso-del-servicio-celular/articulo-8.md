@@ -1,2 +1,0 @@
-Artículo 8º—Definición de procedimientos. La USIT será la encargada de establecer los procedimientos a seguir para la contratación y control de las líneas y teléfonos celulares en la Sede Central, las Unidades Regionales y cualquier otra dependencia del INA. Estos procedimientos se establecerán en el correspondiente Manual de Procedimientos.
-(Así reformado mediante acuerdo N°172-2008-JD-V2 tomado en la sesión N° 4360 de 06 de octubre de 2008)
