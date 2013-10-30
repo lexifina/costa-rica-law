@@ -14,3 +14,4 @@ Reglamento para el pago de tiempo extraordinario de la Comisión Nacional de Pre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-09 | la propia norma |
+| 2 | 2013-10-30 | Reglamento 0 (2013-10-30) |
