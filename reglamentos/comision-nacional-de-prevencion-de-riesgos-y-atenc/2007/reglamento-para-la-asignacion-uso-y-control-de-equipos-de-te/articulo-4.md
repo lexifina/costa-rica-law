@@ -1,3 +1,0 @@
-CAPÍTULO III
-Del trámite de solicitud de equipo
-Artículo 4º—De la presentación de la solicitud. El superior jerárquico del funcionario que requiera el servicio de telefonía celular o de radiolocalizador, presentará solicitud escrita ante la Jefatura del Departamento de Comunicaciones, en la cual deberá indicar el puesto y las funciones que desempeña el funcionario sujeto a asignación, las razones de necesidad institucional para asignar el bien y los motivos por los que considera que el equipo constituye un instrumento de trabajo para facilitar el mejor desempeño de las labores del funcionario.

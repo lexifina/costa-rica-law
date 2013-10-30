@@ -1,1 +1,0 @@
-Artículo 17.—El usuario que presente un consumo mensual mayor al asignado de manera reincidente hasta por dos veces y cuyo uso comprobado no se ajuste a los términos de éste Reglamento; independientemente de que acepte el pago mensual del excedente, estará sujeto a que se le apliquen las medidas disciplinarias del caso y el retiro definitivo del equipo.

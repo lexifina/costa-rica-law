@@ -1,1 +1,0 @@
-Artículo 22.—El Departamento de Recursos Humanos y las Jefaturas inmediatas deberán informar oportunamente al Departamento de Comunicaciones sobre los trámites de vacaciones, incapacidades, permisos, viajes o becas de los funcionarios que tengan asignados equipo de comunicación.

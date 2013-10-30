@@ -1,1 +1,0 @@
-Artículo 15.—La C. N. E. asumirá el pago mensual del servicio de Internet celular, de los funcionarios, que en forma restrictiva y por la responsabilidad de las funciones que desempeñan, se autorice habilitarles esa herramienta. Lo anterior, si la tecnología del equipo asignado lo permite.
