@@ -1,0 +1,1 @@
+Artículo 4º—Supervisión de cumplimiento. La USIT se encargará de velar por el cumplimiento del presente reglamento y su manual de procedimientos para el uso de líneas, dispositivos y accesorios de telefonía celular.
