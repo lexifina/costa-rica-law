@@ -14,3 +14,4 @@ Normas sobre valoración documental, cuyo cumplimiento resulta obligatorio para 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-18 | la propia norma |
+| 2 | 2013-10-30 | Resolución 2 (2013-10-30) |

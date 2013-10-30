@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DEL ARCHIVO NACIONAL
+(Esta norma fue dejada sin efecto mediante resolución N° CNSED-02-2013 del 30 de octubre del 2013, "Normas sobre la presentación de trámite y vigencia de las tablas de plazos de conservación de documentos, cuyo cumplimiento resulta obligatorio para todas las instituciones que forman parte del Sistema Nacional de Archivos")
 Resolución CNSED-01-2012.—Comisión Nacional de Selección y Eliminación de Documentos.—San José, a las once horas del doce de setiembre de dos mil doce.
 Considerando:
 I.—Que el artículo 31 de la Ley del Sistema Nacional de Archivos N° 7202 de 24 de octubre de 1990, establece que la Comisión Nacional de Selección y Eliminación de Documentos es el Órgano de la Dirección General del Archivo Nacional, encargado de dictar las normas sobre selección y eliminación de documentos, de acuerdo con su valor científico cultural.
