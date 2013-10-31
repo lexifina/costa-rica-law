@@ -1,1 +1,0 @@
-Artículo 25.-Es terminantemente prohibida la utilización de vehículos de la Municipalidad para aprender a conducir. El funcionario que de su consentimiento o que teniendo conocimiento del hecho no lo reporte a su jefe inmediato, se hará acreedor a las sanciones disciplinarias correspondientes.

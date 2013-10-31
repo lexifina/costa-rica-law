@@ -1,1 +1,0 @@
-Artículo 18.-Será facultad de la Dirección Ejecutiva recomendar al superior inmediato la aplicación de las sanciones que considere pertinentes y por la vía que corresponda, para aquellos funcionarios que incumplen los programas de mantenimiento.

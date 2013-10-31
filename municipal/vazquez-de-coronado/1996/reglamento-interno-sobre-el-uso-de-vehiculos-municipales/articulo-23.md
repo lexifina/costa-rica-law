@@ -1,1 +1,0 @@
-Artículo 23.-Los conductores no deben permitir que personas no autorizadas para la función o el servicio que se propone brindar, viajen en los vehículos, salvo en ocasiones especiales en que medie autorización superior o en caso de emergencia comprobada, bajo las penas que establecen los reglamentos respectivos y el Código de Trabajo.

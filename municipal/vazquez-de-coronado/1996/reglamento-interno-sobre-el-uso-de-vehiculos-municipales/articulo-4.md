@@ -1,1 +1,0 @@
-Artículo 4°-El Ejecutivo Municipal deberá velar por el estricto cumplimiento de las disposiciones, tanto en los aspectos reglamentarios como presupuestarios que regulan la función de transporte, debiendo someter a conocimiento y aprobación del Concejo los cambios que considere procedentes.

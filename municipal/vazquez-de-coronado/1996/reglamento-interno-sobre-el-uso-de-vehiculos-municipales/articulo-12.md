@@ -1,1 +1,0 @@
-Artículo 12.-EI servicio de Transporte utilizando Vehículos Municipales queda restringido al territorio nacional. salvo cuando exista una situación muy calificada y con autorización expresa del Concejo Municipal.
