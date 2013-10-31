@@ -1,0 +1,1 @@
+Artículo 12.—Efectos. Si la sanción no se ha ejecutado, la ejecución se suspenderá hasta tanto no se resuelva la procedencia o no del beneficio por parte de la Junta Directiva, una vez presentada la solicitud.
