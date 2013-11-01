@@ -20,3 +20,4 @@ CAPÍTULO I
 Del gasto presupuestario máximo
 Artículo 1º—Estas directrices serán aplicables a las entidades públicas, ministerios y demás órganos, cubiertos por el ámbito de la AP.
 (Mediante el artículo 1° del decreto ejecutivo N° 38029 del 1 de noviembre de 2013, se amplia para el Centro Nacional de la Música, el gasto presupuestario máximo para el 2014, en la suma de ¢1.000.000.000,00 (mil millones de colones exactos), para ese período)
+(Mediante el artículo 1° del decreto ejecutivo N° 38025 del 1 de noviembre de 2013, se amplia para el Consejo de seguridad Vial (COSEVI), el gasto presupuestario máximo para el 2014, en la suma de ¢2.524.700.534,00 (dos mil quinientos veinticuatro millones setecientos mil quinientos treinta y cuatro colones exactos), para ese período.)
