@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución N° DGT-R-24-2013 del 03 de julio del 2013, publicada en La Gaceta N° 143 del 26 de julio del 2013.
