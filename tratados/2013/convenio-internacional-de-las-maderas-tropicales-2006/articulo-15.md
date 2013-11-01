@@ -1,0 +1,5 @@
+Artículo 15
+Cooperación y coordinación con otras organizaciones
+1. A fin de lograr los objetivos del presente Convenio, el Consejo adoptará las disposiciones que sean procedentes para celebrar consultas o cooperar con las Naciones Unidas y sus órganos y organismos especializados, en particular la Conferencia de las Naciones Unidas sobre Comercio y Desarrollo (UNCTAD) y otras organizaciones e instituciones regionales e internacionales pertinentes, así como el sector privado, las organizaciones no gubernamentales y la sociedad civil.
+2. La Organización utilizará, en la máxima medida posible, las instalaciones, los servicios y los conocimientos técnicos de las organizaciones intergubernamentales, gubernamentales y no gubernamentales, la sociedad civil y el sector privado, a fin de evitar la duplicación de esfuerzos en el logro de los objetivos del presente Convenio y potenciar la complementariedad y la eficiencia de sus actividades.
+3. La Organización aprovechará plenamente los servicios que ofrece el Fondo Común para los Productos Básicos.

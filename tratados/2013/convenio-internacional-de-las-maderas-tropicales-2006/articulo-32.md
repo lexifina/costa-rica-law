@@ -1,0 +1,4 @@
+Artículo 32
+Medidas diferenciales y correctivas y medidas especiales
+1. Los miembros consumidores que sean países en desarrollo cuyos intereses resulten perjudicados por medidas adoptadas de conformidad con el presente Convenio podrán solicitar del Consejo la adopción de medidas diferenciales y correctivas apropiadas. El Consejo examinará la adopción de medidas apropiadas de conformidad con los párrafos 3 y 4 de la sección III de la resolución 93 (IV) de la Conferencia de las Naciones Unidas sobre Comercio y Desarrollo.
+2. Los miembros comprendidos en la categoría de los países menos adelantados definida por las Naciones Unidas podrán solicitar del Consejo la adopción de medidas especiales de conformidad con el párrafo 4 de la sección III de la resolución 93 (IV) y con los párrafos 56 y 57 de la Declaración de París y el Programa de Acción en favor de los Países Menos Adelantados para el Decenio de 1990.
