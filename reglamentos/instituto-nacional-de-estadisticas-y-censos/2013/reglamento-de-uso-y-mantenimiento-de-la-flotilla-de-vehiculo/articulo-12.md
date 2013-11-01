@@ -1,0 +1,1 @@
+Artículo 12.—Utilización de otros medios de transporte. No se hará uso de la flotilla de vehículos del INEC cuando resulte más ventajoso realizar un viaje utilizando los servicios públicos o de transporte colectivo de personas y que su uso no perjudique la efectividad y oportunidad del trabajo a juicio del Encargado de Transporte.
