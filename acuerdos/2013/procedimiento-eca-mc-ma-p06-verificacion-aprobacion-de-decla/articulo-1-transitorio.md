@@ -1,1 +1,1 @@
-Transitorio: Toda la información que se solicite debe ser remitida al ECA, hasta tanto se finalice la implementación del sitio web www.eca.or.cr/ECO donde se realizará el trámite de manera digital.
+- Transitorio II del Decreto Ejecutivo No 37638 MEIC, Reforma y adición al Decreto Ejecutivo N° 37341-MEIC del 31 de agosto del 2012, RTCR 452: 2011 Barras y Alambres de Acero de Refuerzo para concreto. Especificaciones, publicado en el Alcance Digital 152 de La Gaceta Nº 197 del 11 de octubre del 2012.
