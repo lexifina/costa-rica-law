@@ -1,0 +1,2 @@
+Artículo 6º—Vigencia del certificado digital. La vigencia del certificado digital será de conformidad con el plazo establecido por la entidad emisora. Será responsabilidad del funcionario a quien se asignó la firma digital mantener vigente el certificado y tramitar oportunamente su reposición o renovación.
+JASEC pagará el importe de suscripción a la firma digital y el valor de las respectivas renovaciones, salvo en caso de extravío de la tarjeta de certificado digital u olvido del PIN. En tal supuesto, el trámite y costo de la reposición correrá a cargo del funcionario.

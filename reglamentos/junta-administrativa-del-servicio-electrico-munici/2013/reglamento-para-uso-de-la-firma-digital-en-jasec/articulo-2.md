@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento se aplicará a toda clase de transacciones y actos jurídicos en general relacionados con los trámites internos y externos de JASEC, gestionados ante y por los funcionarios de JASEC autorizados.

@@ -1,0 +1,1 @@
+Artículo 9º—Autorización: La Gerencia General será la dependencia encargada de autorizar la asignación de firma digital a los funcionarios que por las funciones de sus cargos ameriten su uso. Le corresponde a la UTI los trámites administrativos e instalación de los dispositivos en los equipos asignados a los funcionarios autorizados.

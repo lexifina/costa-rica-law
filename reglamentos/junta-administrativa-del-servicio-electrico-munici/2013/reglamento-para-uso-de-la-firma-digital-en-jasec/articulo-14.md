@@ -1,0 +1,2 @@
+Artículo 14.—Archivo electrónico. Todas las dependencias de JASEC manejarán un archivo digital de todos los documentos electrónicos que se envíen y se reciban en el cumplimiento de sus funciones, con el fin de garantizar el libre acceso a la información pública, de conformidad con el artículo 30 de la Constitución Política.
+La UTI velará por brindar las facilidades tecnológicas necesarias para que la Auditoría Interna tenga acceso permanente a este archivo, garantizando que puedan contar con la confidencialidad, integridad e independencia para el uso de la información.
