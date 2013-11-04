@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE LA CRUZ
+El Concejo Municipal de La Cruz Guanacaste, por acuerdo definitivamente aprobado, número 3-2 de la sesión ordinaria Nº 20-2013, del 20 de junio del 2013, aprueba que al Reglamento de Organización y Funcionamiento de los Festejos Populares de la Municipalidad del cantón de La Cruz, en el Capítulo II, de la Integración de los miembros de la Comisión de Festejos Populares, en su artículo 8, se le adhiere lo siguiente: “que los miembros que sean electos en una Comisión de Festejos Cívicos Populares del cantón de La Cruz, así como los miembros de las Subcomisiones, no deben tener ningún parentesco hasta tercer grado de consanguinidad y afinidad de los señores regidores propietarios y suplentes, alcalde y vicealcaldes, todo en aras de mejorar y en beneficio de la comunidad”.
+Rige a partir de su publicación.
+La Cruz, Guanacaste, 17 de octubre del 2013.
