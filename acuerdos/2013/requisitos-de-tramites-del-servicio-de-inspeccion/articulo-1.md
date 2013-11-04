@@ -145,7 +145,7 @@ Requisitos para el trámite de solicitud de inscripción o reanudación para pat
 1. Original de Certificación de Personería Jurídica extendida por el Registro Nacional o por un Notario Público o certificación digital, con no más de un mes de emitida.
 2. Fotocopia de la escritura de constitución de la sociedad.
 3. Fotocopia de la cédula de identidad del representante legal. En caso de personas extranjeras, aportar el original y fotocopia del documento de identificación migratorio (ya sea cédula de residencia, carné de refugiado, pasaporte u otro).
-4. Para aquellos extranjeros que no tengan la condición de residente y que funjan como representante legal de la empresa, para efectuar el trámite deben ser representados por un tercero con poder suficiente, debidamente inscrito ante el Registro Nacional. Se debe presentar fotocopia del documento de identidad de ambos, y original y fotocopia del poder pertinente.
+4. (Este requisito fue eliminado mediante publicación en La Gaceta N° 212 del 4 de noviembre de 2013)
 5. Fotocopia de la cédula de identidad de cada trabajador. En caso de contar con trabajadores extranjeros, aportar fotocopia del documento de identificación migratorio (ya sea cédula de residencia, carné de refugiado, pasaporte u otro) de cada trabajador, es deseable presentar fotocopia del carné de asegurado de cada trabajador.
 6. Fotocopia del recibo de electricidad, a efecto de registrar el número de localización como dirección de correspondencia*.
 7. Llenar el formato de solicitud de inscripción o reanudación patronal (patrono Jurídico), éste debe ser firmado por el patrono o representante patronal.

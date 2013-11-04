@@ -14,3 +14,4 @@ Requisitos de Trámites del servicio de inspección
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-13 | la propia norma |
+| 2 | 2013-11-04 | Acuerdo 0 (2013-11-04) |
