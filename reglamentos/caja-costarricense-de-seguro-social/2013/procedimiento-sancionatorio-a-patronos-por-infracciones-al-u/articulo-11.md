@@ -1,0 +1,2 @@
+ARTÍCULO 11: DE LA GESTIÓN DE LOS ADEUDOS EN LA VÍA ADMINISTRATIVA Y JUDICIAL
+La Subárea de Cobro Administrativo a Patronos y la Subárea de Cobro Judicial a Patronos, adscritas al Área Gestión de Cobro a Patronos, y las Sucursales, según corresponda realizarán las gestiones propias de cobro administrativo y judicial de los adeudos por infracción al párrafo final del artículo 44, de aquellos patronos que se encuentren dentro de su ámbito de competencia; lo anterior de conformidad con la normativa vigente para el cobro de cuotas obreras y patronales.

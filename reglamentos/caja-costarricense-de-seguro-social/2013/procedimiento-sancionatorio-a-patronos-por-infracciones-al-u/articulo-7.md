@@ -1,0 +1,2 @@
+ARTÍCULO 7: NOTIFICACIÓN DE LA RESOLUCIÓN
+La Dirección Administración de Pensiones de la Gerencia por medio del Área Gestión de Pensiones Invalidez, Vejez y Muerte o las Sucursales, según corresponda, procederán con la notificación de la resolución del acto administrativo. Para efectos de notificar el acto, se procederá de acuerdo con lo normado en la Ley de Notificaciones Judiciales y en el Libro Segundo de la Ley General de la Administración Pública.

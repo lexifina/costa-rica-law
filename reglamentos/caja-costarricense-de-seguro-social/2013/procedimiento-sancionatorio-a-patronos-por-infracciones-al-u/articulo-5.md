@@ -1,0 +1,3 @@
+ARTÍCULO 5: DE LA APLICACIÓN DE FACTORES ACTUARIALES
+El Área Cuenta Individual y Control de Pagos de la Gerencia de Pensiones o la Sucursal, según corresponda, aplicarán la fórmula de cálculo suministrada por la Dirección de Actuarial y Económica, a fin de obtener el monto a cobrar por la pensión proporcional a los patronos en condición de morosos en el momento de otorgar la pensión.
+En la fórmula de cálculo, se establecen los “Factores de Valor Presente Actuarial para el cobro de beneficios de pensión a patronos morosos o que no afiliaron al trabajador”, indispensable para el cálculo de la deuda patronal referente a la proporción de la pensión.

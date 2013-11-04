@@ -1,0 +1,21 @@
+ARTÍCULO 2: DE LAS RESPOSABILIDADES
+Área Gestión de Pensiones Invalidez, Vejez y Muerte y Sucursales:
+Son las unidades designadas por la Gerencia de Pensiones, para emitir la resolución con el detalle de cotizaciones de la pensión de Invalidez, Vejez y Muerte en curso de pago.
+Área Cuenta Individual y Control de Pagos y Sucursales:
+Son las unidades designadas por la Gerencia de Pensiones, para verificar en el Módulo de Cuentas por Cobrar de cada número patronal, si el patrono (s) considerado (s) para el otorgamiento de la pensión se encuentra moroso a la fecha del estudio respecto a cuotas consideradas para el otorgamiento del derecho de pensión.
+Determinar el monto que se debe cobrar al patrono, producto de la infracción al párrafo final del artículo 44 de la Ley Constitutiva de la Caja Costarricense de Seguro Social.
+La Dirección Administración de Pensiones por medio del Área Gestión de Pensiones Invalidez, Vejez y Muerte y las Sucursales
+Son las responsables de confeccionar la resolución del acto administrativo, donde se le comunica al patrono sobre la infracción cometida, la sanción impuesta y el monto que se pretende cobrar por parte de la Institución, según lo regulado en el párrafo final del artículo 44 de la Ley Constitutiva de la CCSS.
+Efectuar la notificación al patrono (s) de la resolución, a efecto de darle el respectivo derecho de defensa y de considerarlo pertinente, presente recurso de revocatoria, apelación o ambos.
+Cuando el acto se encuentre agotado en vía Administrativa, procederá a registrar el adeudo en el Sistema Centralizado de Recaudación.
+Dirección Administración de Pensiones y Sucursales: DE LA REVOCATORIA
+La Dirección Administración de Pensiones por medio del Área Gestión de Pensiones Invalidez, Vejez y Muerte o la Sucursal respectiva, por intermedio de la instancia administrativa, serán las encargadas de la atención de los Recursos de Revocatoria que interponen los patronos morosos sean físicos o jurídicos; contra la resolución que notifica este acto administrativo de las sumas adeudadas por infracción al párrafo final del artículo 44, de la Ley Constitutiva de la Caja Costarricense de Seguro Social.
+Gerencia de Pensiones: DE LA APELACIÓN
+En caso de los Recursos de Apelación, interpuestos por los patronos morosos en contra del acto administrativo que comunica la suma por cobrar, será el Gerente de Pensiones quien firme la resolución y dé por agotada la vía Administrativa, al amparo de lo indicado en la excepción contenida en el artículo 55 de la Ley Constitutiva de la CCSS.
+Subárea Cobro Administrativo a Patronos, adscrita al Área Gestión de Cobro a Patronos y las Sucursales
+La Subárea de Cobro Administrativo a Patronos, adscrita al Área Gestión de Cobro a Patronos y las Sucursales, según corresponda, serán las unidades encargadas de realizar la gestión cobratoria en la instancia administrativa de los adeudos por infracción al párrafo final del artículo 44, de la Ley Constitutiva de la Caja Costarricense de Seguro Social de aquellos patronos que se encuentren dentro de su ámbito de competencia.
+Subárea de Cobro Judicial a Patronos, adscrita al Área Gestión de Cobro a Patronos y las Sucursales
+La Subárea de Cobro Judicial a Patronos, adscrita al Área Gestión de Cobro a Patronos y las Sucursales según corresponda, serán las unidades encargadas de realizar la gestión cobratoria en la instancia judicial de los adeudos por infracción al párrafo final del artículo 44, de la Ley Constitutiva de la Caja Costarricense de Seguro Social, de aquellos patronos que se encuentren dentro de su ámbito de competencia.
+Áreas de Contabilidad
+El Área de Contabilidad Financiera de la Caja Costarricense de Seguro Social adscrita a la Dirección Financiero Contable de la Gerencia Financiera, y el Área de Contabilidad Invalidez, Vejez y Muerte, adscrita a la Dirección Financiera Administrativa de la Gerencia de Pensiones, definirán de manera conjunta las cuentas contables que afectarán el registro, tanto de las deudas como de las sumas que por concepto de pago de estos adeudos se registren por medio del SICERE.
+El registro de esas sumas deberá permitir la individualización de las sumas adeudadas, a efecto de registrar tanto las deudas como los pagos por los cuales se concretó la infracción al artículo 44.
