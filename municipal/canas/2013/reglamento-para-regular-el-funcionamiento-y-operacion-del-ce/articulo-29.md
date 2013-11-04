@@ -1,0 +1,1 @@
+Artículo 29.—El personal deberá llevar a cabo las tareas y funciones concernientes a su cargo con responsabilidad, de acuerdo al principio del interés superior del niño y observando las directrices de la Coordinación Técnica del Centro y los lineamientos de la Secretaria Técnica de la REDCUDI.

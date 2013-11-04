@@ -1,0 +1,3 @@
+Artículo 9º—Personal. El Centro estará integrado por una persona Coordinadora Técnica que deberá contar como mínimo con el título de Licenciatura en Preescolar o carrera afín. Además, con una persona profesional docente, con el grado mínimo de bachillerato en Preescolar o carrera afín y una persona asistente con al menos noveno año de escolaridad, por cada grupo de 25 niños o niñas, cocinero (a) y misceláneo (a).
+Dicho personal será contratado por el Operador y deberá ser presentado junto con la oferta en el proceso de contratación administrativa, con su respectivo currículum para cada uno de los puestos.
+[imagen]
