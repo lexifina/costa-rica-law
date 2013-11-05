@@ -1,0 +1,1 @@
+Artículo 13.—Cálculo y actualización de los montos de la caución. Para los efectos del presente artículo, se entenderá por salario base el establecido en la Ley Nº 7337 del 5 de mayo de 1993, el cual se actualizará anualmente y cuyo monto será publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año.

@@ -1,0 +1,1 @@
+Artículo 5º—Del plazo de las garantías. Las garantías ofrecidas por los funcionarios que estén obligados a rendir caución se mantendrán vigentes durante todo el tiempo que ocupen sus cargos, así como por el lapso de prescripción de la responsabilidad civil o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios.
