@@ -14,3 +14,4 @@ Reforma integral Reglamento de Operación del Comité y Subcomités de Licitacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-05 | la propia norma |
+| 2 | 2013-11-05 | Reglamento 11869 (2013-11-05) |

@@ -1,19 +1,20 @@
 BANCO NACIONAL DE COSTA RICA
 El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General No. 11.793, artículo 14º, celebrada el 18 de setiembre del 2012, en la cual acuerda aprobar las modificaciones al Reglamento del Comité y Subcomité de Licitaciones, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
 REGLAMENTO DEL COMITÉ Y SUBCOMITÉS DE LICITACIONES
-Artículo 1°: Conformación del Comité y Subcomités de Licitaciones:
-1.1. La integración del Comité de Licitaciones, de conformidad con el acuerdo contenido en el artículo N°9 de la sesión N°10.904 del 27 de enero de 1998 de la Junta Directiva General del Banco Nacional de Costa Rica, será la siguiente:
-1.1 Titulares: Director General de Operaciones, Director Corporativo de Tecnología y Director General de Modernización.
-1.2 Suplentes: Director de Recursos Materiales y Director de Programación de Recursos.
-1.3 Asesoría: Un abogado de la Dirección Jurídica.
-El Director General de Operaciones fungirá como Presidente y el Proveedor General como Secretario, éste último con voz pero sin voto. Es entendido, al tenor de lo dispuesto por la Junta Directiva General en el artículo 9º, sesión 10.904, del 27 de enero, 1998, que el Gerente General o el Sub Gerente Administrativo, por su condición, podrá asistir a las sesiones y presidir con derecho a voz y voto.
+Artículo 1º—Conformación del Comité y Subcomités de Licitaciones:
+1.2 La integración del Comité de Licitaciones de conformidad con el acuerdo contenido en el artículo N° 9 de la sesión N° 10.904 del 27 de enero de 1998 de la Junta Directiva General del Banco Nacional de Costa Rica, será la siguiente:
+1.4 Titulares: Director General de Operaciones. Director Corporativo de Tecnología y Director Corporativo de Gestión y Mejora Continua.
+1.5 Suplentes: Director de Recursos Materiales y Director de Programación de Recursos.
+1.6 Asesoría: Un abogado de la Dirección Jurídica.
+El Director General de Operaciones fungirá como Presidente y el Proveedor General como Secretario, éste último con voz pero sin voto. Es entendido, al tenor de lo dispuesto por la Junta Directiva General en el artículo 9°, sesión 10.904, del 27 de enero, 1998, que el Gerente General, por su condición, podrá asistir a las sesiones y presidir con derecho a voz y voto.
 1.2 Los Subcomités de Licitaciones estarán conformados de la siguiente manera:
 Tres miembros propietarios:
 a. Director Recursos Materiales quien fungirá como Presidente.
 b. Proveedor General quien fungirá como Secretario.
 c. El Jefe Apoyo Técnico.
 Como asesor, en la sesión del Subcomité estará presente el Abogado de la Dirección Jurídica con voz pero sin voto.
-En caso de sustituir al Director de Recursos Materiales, fungirá como Presidente del Órgano, el Director de Programación de Recursos, quien será miembro suplente para suplir las ausencias temporales de cualquiera de los otros dos miembros propietarios.
+En caso de sustituir al Director de Recursos Materiales, fungirá como Presidente del Órgano el Director de Programación de Recursos, quien será miembro suplente para suplir las ausencias temporales de cualquiera de los otros dos miembros propietarios.
+(Así reformado el artículo 1° anterior mediante sesión N° 11869 del 5 de noviembre del 2013)
 Artículo 2°: Funciones del Comité y Subcomités de Licitaciones:
 2.1 Corresponderá al Comité de Licitaciones:
 a. Aprobar o rechazar los carteles de las contrataciones administrativas que se realicen por medio de licitaciones públicas, licitaciones abreviadas y contrataciones directas cuya estimación preliminar sea igual o superior al monto mínimo fijado para el recurso de apelación impuesto para el estrato en que se ubica el Banco Nacional de Costa Rica, según los límites generales de contratación fijados por la Contraloría General de la República; se incluyen las licitaciones públicas de cuantía inestimable.
