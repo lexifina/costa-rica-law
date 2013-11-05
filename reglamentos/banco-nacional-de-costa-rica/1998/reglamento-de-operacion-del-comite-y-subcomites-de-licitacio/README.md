@@ -27,3 +27,4 @@ Reglamento de Operación del Comité y Subcomités de Licitaciones
 | 12 | 2011-10-11 | Reglamento 11725 (2011-10-11) |
 | 13 | 2012-07-03 | Reglamento 11774 (2012-07-03) |
 | 14 | 2012-09-18 | Reglamento 11793 (2012-09-18) |
+| 15 | 2013-11-05 | Reglamento 11869 (2013-11-05) |
