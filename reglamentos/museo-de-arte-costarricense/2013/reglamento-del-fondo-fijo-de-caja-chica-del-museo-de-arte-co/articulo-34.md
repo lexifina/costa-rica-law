@@ -1,0 +1,1 @@
+Artículo 34.—El Departamento Financiero Contable, será el responsable de suministrar los formularios denominados: “Solicitud de Pedido de Compra” y “Liquidación de Adelanto de Caja Chica”, los cuales deberán ser prenumerados consecutivamente por dicha dependencia.

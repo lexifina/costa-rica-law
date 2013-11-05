@@ -1,0 +1,1 @@
+Artículo 47.—Vigencia. Este Reglamento de fondos de Caja Chica rige a partir de su emisión, aprobado por la Junta Administrativa del Museo de Arte Costarricense por Acuerdo N° 7.3-2013 de la Sesión Ordinaria N° 22 del 5 de noviembre del 2013.

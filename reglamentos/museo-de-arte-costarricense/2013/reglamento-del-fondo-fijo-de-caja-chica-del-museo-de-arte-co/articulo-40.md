@@ -1,0 +1,1 @@
+Artículo 40.—La Dirección del Museo deberá solicitar a la Auditoría Interna de la Institución, incluir en su programa de trabajo como mínimo la realización de una auditoria anual al Fondo asignado, con el fin de evaluar la suficiencia y efectividad de su operación y del sistema de control implantado.

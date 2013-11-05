@@ -1,0 +1,1 @@
+Artículo 14º—El Fondo de Caja Chica mantendrá únicamente dinero y los justificantes que respalden los trámites de compra de bienes y servicios a saber: Solicitud de Pedido de Compra, Facturas Originales, Tiquetes o Comprobantes de las Compras, Vales, Liquidaciones de gastos de viaje.

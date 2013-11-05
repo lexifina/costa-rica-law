@@ -1,0 +1,1 @@
+Artículo 9º—El Jefe del Departamento Financiero Contable comunicará mediante nota, el nombre y número de cédula de la persona designada como responsable directa por la custodia y operación del Fondo de Caja Chica.

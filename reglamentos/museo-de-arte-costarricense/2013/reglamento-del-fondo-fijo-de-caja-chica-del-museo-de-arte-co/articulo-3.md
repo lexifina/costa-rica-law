@@ -1,0 +1,1 @@
+Artículo 3º—La ejecución del gasto por medio de caja chica, es un procedimiento de excepción de la Ley de Contratación Administrativa y su Reglamento, y por tanto limitado a casos de verdadera urgencia y necesidad, de acuerdo a lo que se expresará más adelante. Los bienes que se adquieran por este medio no deben existir en el inventario de suministros del Museo.

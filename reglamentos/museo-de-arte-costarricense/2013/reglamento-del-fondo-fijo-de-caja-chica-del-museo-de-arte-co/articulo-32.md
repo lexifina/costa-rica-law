@@ -1,0 +1,1 @@
+Artículo 32.—El Responsable directo por la operación del Fondo de Caja Chica deberá estar cubierto por una póliza de fidelidad, antes de asignarle el fondo. Dicha garantía, de conformidad con el Manual de Normas de Control Interno emitido por la Contraloría General de la República debe ser cubierta con el propio peculio del funcionario.

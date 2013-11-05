@@ -1,0 +1,1 @@
+Artículo 20.—Se podrán autorizar erogaciones a través del Fondo de Caja Chica por un monto que supere el límite establecido por la Junta Administrativa del Museo vía directriz, respetando el límite establecido como monto global para el uso de la Caja Chica. La Dirección del Museo de Arte Costarricense podrá autorizar gastos mayores excepcionalmente, debidamente justificados.

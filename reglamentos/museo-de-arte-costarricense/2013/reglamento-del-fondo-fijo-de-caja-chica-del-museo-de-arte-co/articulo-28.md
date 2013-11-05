@@ -1,0 +1,2 @@
+Artículo 28.—Los reembolsos a la cuenta del Fondo de Caja Chica se realizarán mediante cheque una vez autorizados por la Dirección del Museo o por quien esta autorice. En la Solicitud de Reintegro se deberán acompañar los justificantes respectivos, los cuales deben ser sellados con la leyenda “pagado mediante cheque número, y debe consignarse la fecha”.
+Los documentos de respaldo deberán permanecer en archivo en el Departamentos Financiero Contable según como lo establece la Ley General de Archivo y a disposición de los entes fiscalizadores.
