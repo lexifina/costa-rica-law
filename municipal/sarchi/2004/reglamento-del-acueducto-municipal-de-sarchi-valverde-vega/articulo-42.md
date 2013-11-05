@@ -1,1 +1,0 @@
-Artículo 42.—La tarifa reproductiva se aplicará a los servicios donde el agua potable es utilizada como parte indispensable del proceso reproductivo, cuando la medición sea por hidrómetro se establecerá como tarifa básica hasta los 40 metros cúbicos de consumo mensual.

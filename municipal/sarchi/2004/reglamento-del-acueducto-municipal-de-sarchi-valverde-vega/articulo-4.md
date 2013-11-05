@@ -1,1 +1,0 @@
-Artículo 4º—Los servicios de agua potable, los suministra la Municipalidad hasta el límite de la propiedad. Los sistemas e instalaciones internos necesarios para el disfrute de los mismos, son responsabilidad del propietario y permanecen bajo su propiedad y custodia exclusiva.

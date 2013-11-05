@@ -1,1 +1,0 @@
-Artículo 14.—Las instalaciones interiores de la cañería antes de proceder a la conexión de pajas de agua deberán ser revisadas por personas del Departamento de Fontanería Municipal y no se concederá la instalación de la nueva paja de agua sin que previamente el interesado haya cumplido con los requisitos que exigen las disposiciones de carácter municipal y sanitario.

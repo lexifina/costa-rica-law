@@ -1,1 +1,0 @@
-Artículo 24.—La Municipalidad deberá verificar la exactitud de los hidrómetros en servicio periódicamente o cuando lo considere necesario o conveniente. Sin embargo, en cualquier momento el consumidor podrá solicitar por escrito a la Municipalidad esta comprobación.

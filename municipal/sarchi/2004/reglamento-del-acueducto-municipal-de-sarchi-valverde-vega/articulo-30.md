@@ -1,1 +1,0 @@
-Artículo 30.—Con igual pena serán reprimidos aquellos usuarios que en forma alguna perturben el buen funcionamiento del sistema de abastecimiento de aguas potables perteneciente al Acueducto Municipal en cualquier parte del cantón.

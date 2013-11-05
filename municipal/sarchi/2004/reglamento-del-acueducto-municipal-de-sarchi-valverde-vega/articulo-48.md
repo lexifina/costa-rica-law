@@ -1,1 +1,0 @@
-Artículo 48.—La Municipalidad pondrá al cobro la facturación correspondiente a los servicios prestados al cliente mediante un recibo, marcando los diferentes rubros al cobro, el monto total y la fecha de su vencimiento.

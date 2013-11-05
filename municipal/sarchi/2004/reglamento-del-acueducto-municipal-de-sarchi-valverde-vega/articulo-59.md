@@ -1,1 +1,0 @@
-Artículo 59.—Cada fontanero o ayudante dispondrá del equipo necesario para el buen desempeño de sus funciones del que será absolutamente responsable. Dicho equipo estará compuesto de las herramientas y accesorios que determine el Fontanero Jefe.

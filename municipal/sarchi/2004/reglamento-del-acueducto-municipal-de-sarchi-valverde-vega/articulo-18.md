@@ -1,1 +1,0 @@
-Artículo 18.—Queda facultado el Fontanero Municipal, cuando lo considere conveniente para reducir el diámetro de la paja de agua en relación con la presión existente en el lugar donde se va a hacer la instalación correspondiente.

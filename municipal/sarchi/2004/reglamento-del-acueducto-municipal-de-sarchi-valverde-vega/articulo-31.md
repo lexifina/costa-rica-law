@@ -1,1 +1,0 @@
-Artículo 31.—Si transcurrido un plazo de cinco días hábiles después de suspendido el servicio, no se ha cancelado la deuda o normalizado la situación del mismo, la Municipalidad podrá pasar la cuenta respectiva a cobro judicial, ejerciendo los mecanismos legales correspondientes.
