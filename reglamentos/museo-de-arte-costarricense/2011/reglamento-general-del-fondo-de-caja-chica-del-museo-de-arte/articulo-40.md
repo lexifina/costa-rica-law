@@ -1,1 +1,0 @@
-Artículo 40.—Cheque de reintegro. El cheque que se emita para reintegrar el fondo fijo o las cajas auxiliares, debe girarse a nombre del responsable del mismo. Queda prohibida la emisión del cheque al portador o a caja.

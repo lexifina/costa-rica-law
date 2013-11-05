@@ -1,1 +1,0 @@
-Artículo 8º—Prohibición. Bajo ninguna circunstancia podrá encomendarse la administración temporal o permanente del Fondo Fijo de Caja Chica o de sus cajas auxiliares a una persona que no sea funcionario público del Museo de Arte Costarricense o de su programa.

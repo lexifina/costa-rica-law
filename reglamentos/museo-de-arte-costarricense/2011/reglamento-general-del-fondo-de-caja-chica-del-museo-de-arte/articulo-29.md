@@ -1,1 +1,0 @@
-Artículo 29.—Prohibición de girar un nuevo adelanto. No se podrá autorizar el trámite de un anticipo de dinero por el Fondo Fijo de Caja Chica, al funcionario que tenga pendiente una liquidación de un anticipo anterior, hasta tanto no lo haya liquidado.

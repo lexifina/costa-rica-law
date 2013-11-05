@@ -1,1 +1,0 @@
-Artículo 13.—Condiciones de custodia. La administración del Museo proporcionará a los responsables del Fondo Fijo de Caja Chica y a los de las cajas auxiliares, los recursos materiales y el espacio físico necesario para garantizar la seguridad y custodia apropiada de los valores de los cuales son depositarios, tanto durante la jornada laboral como fuera de ella.

@@ -1,1 +1,0 @@
-Artículo 47.—Derecho de verificación. Todo arqueo del Fondo Fijo de Caja Chica y/o cajas auxiliares a, se realizará en presencia de la persona responsable del fondo. Esta, tendrá el derecho a pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

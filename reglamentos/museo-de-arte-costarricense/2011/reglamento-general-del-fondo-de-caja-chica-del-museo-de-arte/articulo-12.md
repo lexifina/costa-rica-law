@@ -1,1 +1,0 @@
-Artículo 12.—Manual Institucional de Operación. Es responsabilidad de la Proveeduría del Museo, contar con un manual de operación actualizado, en el cual se detallen de forma clara y precisa las rutinas de trabajo relacionadas con la operación y control por parte de los responsables del Fondo Fijo de Caja Chica.
