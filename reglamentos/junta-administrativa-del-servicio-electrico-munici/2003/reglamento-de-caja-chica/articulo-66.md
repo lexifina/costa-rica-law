@@ -1,0 +1,2 @@
+Artículo 66.—Liquidación sin previo adelanto. Solo se liquidaran comprobantes que se hayan cancelado con dinero del adelanto, salvo casos de excepción debidamente justificados y autorizados por la Gerencia, Subgerencia y líderes de UEN. En este caso se pagarán aquellos comprobantes con una antigüedad igual o menor de cuatro días naturales.
+(Así adicionado mediante sesión N° 4836 del 5 de noviembre del 2013)

@@ -1,0 +1,5 @@
+CAPÍTULO XI
+(Así corrida la numeración del capítulo anterior mediante sesión N° 4836 del 5 de noviembre del 2013, que lo traspasó del antiguo Capítulo X al XI)
+Sanciones
+Artículo 78.—Responsabilidad de los funcionarios. Todos los funcionarios que soliciten, tramiten y autoricen documentos, adquirirán responsabilidad solidaria en caso de incumplimiento de las normas contempladas en el presente reglamento. Para tal efecto, deberán reintegrar la suma desembolsada por JASEC a más tardar el día hábil siguiente a la detección del hecho por parte de la UEN de apoyo o la Auditoría Interna, sin perjuicio de ulterior responsabilidad disciplinaria, civil, penal o administrativa, conforme a lo dispuesto en el ordenamiento jurídico vigente. En todo caso, JASEC estará facultada para proceder según se indicó en el artículo 32, estableciendo la cuenta por cobrar y la deducción respectiva en la quincena más cercana.
+(Así corrida su numeración mediante sesión N° 4836 del 5 de noviembre del 2013, que lo traspasó del antiguo artículo 47 al 78)

@@ -1,0 +1,2 @@
+Artículo 58.—Adelantos y liquidaciones de viáticos. Los adelantos y las liquidaciones para cubrir viáticos, se regirán de conformidad con el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
+(Así adicionado mediante sesión N° 4836 del 5 de noviembre del 2013)

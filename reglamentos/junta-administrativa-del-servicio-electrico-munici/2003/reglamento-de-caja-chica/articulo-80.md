@@ -1,0 +1,2 @@
+Artículo 80.—De la responsabilidad penal. De presumirse la mediación de eventos que constituyen delitos penales en perjuicio de alguno de los fondos de caja chica, el líder de UEN respectivo coordinará con el Asesor Legal de la Institución, para que se tomen las medidas pertinentes, de conformidad con el ordenamiento jurídico vigente.
+(Así corrida su numeración mediante sesión N° 4836 del 5 de noviembre del 2013, que lo traspasó del antiguo artículo 49 al 80)
