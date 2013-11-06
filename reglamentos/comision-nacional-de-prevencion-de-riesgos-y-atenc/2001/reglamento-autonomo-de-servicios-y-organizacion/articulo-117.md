@@ -1,1 +1,0 @@
-Artículo 117.—Con el informe presentado por parte del jefe correspondiente, según se señala en el artículo 115 de este Reglamento, el Departamento de Recursos Humanos será el encargado de tramitar todo lo referente a las denuncias por accidentes. De todos estos trámites deberá presentar un informe mensual al Director Ejecutivo.

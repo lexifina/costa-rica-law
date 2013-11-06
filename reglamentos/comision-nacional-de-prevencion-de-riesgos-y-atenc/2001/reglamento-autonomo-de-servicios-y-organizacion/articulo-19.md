@@ -1,1 +1,0 @@
-Artículo 19.—Los funcionarios regulares de la Comisión tendrán derecho de que se les brinde la capacitación y adiestramiento complementario que requieran, mediante cursos, seminarios, becas u otros que promueva la unidad respectiva

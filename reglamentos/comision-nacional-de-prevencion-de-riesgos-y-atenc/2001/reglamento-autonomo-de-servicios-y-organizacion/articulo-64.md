@@ -1,1 +1,0 @@
-Artículo 64.—No interrumpirán la continuidad del servicio las licencias sin goce de salario, la enfermedad justificada del servidor, ni ninguna otra causa de suspensión legal de la relación de trabajo.

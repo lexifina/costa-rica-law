@@ -1,1 +1,0 @@
-Artículo 49.—La llegada tardía injustificada superior a quince minutos, contados a partir de la hora de ingreso fijada, implicará la deducción salarial correspondiente al tiempo no trabajado, sin perjuicio de la sanción disciplinaria que corresponda.
