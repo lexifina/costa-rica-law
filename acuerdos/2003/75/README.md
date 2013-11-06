@@ -37,3 +37,4 @@ Acuerdo sobre el Suministro de Información Periódica.
 | 22 | 2010-11-22 | Acuerdo 175 (2010-11-22) |
 | 23 | 2011-09-26 | Acuerdo 178 (2011-09-26) |
 | 24 | 2013-05-21 | Acuerdo 187 (2013-05-21) |
+| 25 | 2013-11-06 | Acuerdo 189 (2013-11-06) |

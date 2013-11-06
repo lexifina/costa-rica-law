@@ -253,6 +253,46 @@ ii. Se eliminan las siguientes cuentas:
 [imagen]
 iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
 [imagen] )
+(Nota de Sinalevi: Mediante el artículo 2° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 15 "Estados Financieros Fondos de Inversión", de la siguiente forma: "...Artículo 2°—Reformas al Anexo 15 “Estados Financieros Fondos de Inversión”
+a) Se modifica el “Balance General” de los fondos de inversión, catálogo BG_FONDOS, de acuerdo con los siguientes cambios:
+i. Se adicionan las siguientes cuentas:
+[imagen]
+[imagen]
+ii. Se modifica la descripción de las siguientes cuentas para que en adelante se lean de la siguiente forma:
+[imagen]
+iii. Se eliminan las siguientes cuentas:
+[imagen]
+Se modifica el “Estado de Resultados Acumulado” de los fondos de inversión, catálogo RA_FONDOS, de acuerdo con los siguientes cambios:
+1. Se adicionan las siguientes cuentas:
+[imagen]
+2. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
+[imagen]
+iii. Se eliminan las siguientes cuentas:
+[imagen]
+b) Se modifica el “Estado de Resultados” de los fondos de inversión, catálogo ER_FONDOS, de acuerdo con los siguientes cambios:
+i. Se adicionan las siguientes cuentas:
+[imagen]
+3. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma: [imagen]
+4. Se eliminan las siguientes cuentas:
+5. [imagen]
+(Nota de Sinalevi: Mediante el artículo 3° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 3 "Reporte diario fondos de inversión", de la siguiente forma: "...Artículo 3°—Reforma al anexo 13 “Reporte diario fondos de inversión”
+Se adiciona al “Reporte Diario de Fondos”, catálogo RD_FONDOS, la siguiente cuenta:
+[imagen]
+(Nota de Sinalevi: Mediante el artículo 4° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 3 "Reporte diario fondos de inversión", de la siguiente forma: "... Artículo 4°—Reformas al anexo 20 “Estados Financieros Fondos de Titularización”
+a) Se eliminan los catálogos: Balance General de fondos de titularización (BG_FOTI), Estado de Resultados mensual de Fondos de Titularización (ER_FOTI), Estado de Resultados Acumulado de Fondos de Titularización (RA_FOTI), y el Flujo de Caja Proyectado de Fondos de titularización (FCP_FOTI).
+b) Se eliminan las siguientes cuentas del reporte “Información Complementaria de Fondos de titularización”, catálogo IC_FOTI: [imagen]
+c) Se eliminan las siguientes cuentas del reporte “Flujo de Caja Real”, catálogo FCR _FOTI:
+[imagen]
+(Nota de Sinalevi: Mediante el artículo 5° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 36 "Cambios a la información en fondos inmobiliarios", de la siguiente forma: "... Artículo 5°—Reformas al Anexo 36 “Cambios a la información en fondos inmobiliarios”
+a) Se adicionan al anexo 36 las secciones e, f y g, de acuerdo con el siguiente detalle:
+. [imagen]
+“e. Cambios en las características históricas del inmueble
+f. Cambios en las características del inquilino. [imagen]
+g. Unificación de códigos [imagen]
+En adicionan a la sección c. del anexo 36, el código del inmueble que se arrienda y el tipo de identificación, para que se lea de la siguiente manera: [imagen]
+En adiciona a la sección d. del anexo 36, el código del inmueble que se arrienda, para que se lea de la siguiente manera: [imagen]
+Se modifica el campo “Dimensiones del inmueble” de la sección a. del anexo 36, para que se lea de la siguiente manera:
+[imagen]
 SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante articulo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.

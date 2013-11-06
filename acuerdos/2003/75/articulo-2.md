@@ -89,7 +89,10 @@ Condiciones de las Notas Estructuradas | Cada vez que ocurra | Cinco días hábi
 (Nota de Sinalevi: Mediante el artículo 1° aparte a) del acuerdo N° 175 del 22 de noviembre de 2010, se modifica este artículo de la siguiente manera:
 a) Se modifica el artículo 2, para incorporar los siguientes requerimientos de información al “Cuadro de Información Periódica”:
 i) Se modifica el medio de envío del siguiente reporte:
-[imagen] )
+)
 (Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-A-187 del 21 de mayo del 2013, publicado en La Gaceta N° 241 del 13 de diciembre del 2013, se modifica este artículo de la siguiente manera: "... Se reforma el “Cuadro de Información Periódica” en los siguientes términos:
 En la hoja “Acuerdo SGV-A-75, Cuadro de Información Periódica, Tipo de Entidad: Proveedores de precios”, en la fila 4 “10 días hábiles para el trimestre terminado a diciembre de cada año y 15 días hábiles para los trimestres terminados en marzo, junio y setiembre de cada año”
 En la hoja “Acuerdo SGV-A-75, Cuadro de Información Periódica, Tipo de Entidad: Bolsas de valores, centrales de valores y calificadoras de riesgo”, en la fila 4 “Estados financieros no auditados”, columna “Plazo máximo de entrega”, para que en adelante se lea “10 días hábiles para el trimestre terminado a diciembre de cada año y 15 días hábiles para los trimestres terminados en marzo, junio y setiembre de cada año...")
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N° 241 del 13 de diciembre del 2013, se modifica este artículo de la siguiente manera: "... Artículo 1°—Modificación al “Cuadro de Información Periódica” del acuerdo SGV-A-75
+a) Se modifica el campo “Informe o Reporte” de la línea 17 del “Cuadro de Información Periódica” que acompaña al acuerdo SGV-A-75, para que en adelante se lea de la siguiente manera:
+b) Se modifica la periodicidad y plazo máximo de entrega en la remisión del “Reporte mensual de composición de cartera de inversionistas” de la línea 18 del “Cuadro de Información Periódica” que acompaña al acuerdo SGV-A-75, para que en adelante se lea de la siguiente manera:
