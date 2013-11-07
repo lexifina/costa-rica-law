@@ -1,0 +1,1 @@
+Artículo 5º—Se podrá adquirir bienes y servicios por el Fondo Fijo Caja Chica, en tanto se compruebe que estos sean gastos menores, urgentes, indispensables y no previsibles, así como el costo beneficio para la administración en la compra de bienes y servicios.

@@ -1,0 +1,1 @@
+Artículo 35.—El custodio del Fondo Fijo de Caja Chica será el responsable de suministrar y operar el formulario denominado: “Solicitud de Compra de Bienes y Servicios por medio de Caja Chica”, los cuales deberán ser pre numerados consecutivamente por el Programa.

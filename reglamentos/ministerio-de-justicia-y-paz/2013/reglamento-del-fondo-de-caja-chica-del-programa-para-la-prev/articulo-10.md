@@ -1,0 +1,1 @@
+Artículo 10.—El subcoordinador general comunicará mediante nota al Ministerio de Justicia y Paz, el nombre y número de cédula de la persona designada como responsable directo por la custodia y operación del Fondo de Caja Chica.

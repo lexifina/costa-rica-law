@@ -1,0 +1,1 @@
+Artículo 41.—El Programa deberá solicitar a los auditores externos y/o al Ministerio de Justicia y Paz, la realización de arqueos y exámenes al Fondo asignado, con el fin de evaluar la suficiencia, efectividad de su operación y revisiones al sistema de control implantado.

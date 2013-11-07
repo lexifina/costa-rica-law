@@ -1,0 +1,1 @@
+Artículo 4º—La ejecución del gasto por medio de caja chica, es un procedimiento especial de compras, y por tanto limitado a casos de urgencia y necesidad, de acuerdo a lo que se expresará más adelante. Los bienes que se adquieran por este medio no deben existir en el inventario de suministros del Programa.

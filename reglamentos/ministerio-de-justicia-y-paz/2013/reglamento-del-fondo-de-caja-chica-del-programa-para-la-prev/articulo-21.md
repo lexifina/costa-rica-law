@@ -1,0 +1,1 @@
+Artículo 21.—Se podrán autorizar erogaciones a través del Fondo de Caja Chica por un monto que no supere el límite del veinticinco por ciento (25%) del monto total asignado al fondo en efectivo, dichos adelantos se tramitarán ante el Responsable, bajo las condiciones previstas en el presente Reglamento.
