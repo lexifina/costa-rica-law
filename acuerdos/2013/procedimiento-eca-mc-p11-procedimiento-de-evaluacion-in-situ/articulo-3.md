@@ -1,0 +1,19 @@
+3. DOCUMENTOS DE REFERENCIA
+- INTE-ISO 19011, versión vigente. Directrices para la auditoría de los sistemas de gestión.
+- INTE-ISO/IEC 17021, versión vigente. Evaluación de la conformidad — Requisitos para los organismos que realizan la auditoría y la certificación de sistemas de gestión.
+- INTE-ISO 14001, versión vigente. Sistema de Gestión Ambiental – Requisitos con orientación para su uso.
+- INTE-ISO 9001, versión vigente. Sistema de Gestión de Calidad – Requisitos
+- INTE-ISO/IEC 65 Requisitos generales para organismos que operan sistemas de certificación de producto.
+- INTE-ISO/IEC 17065, versión vigente. Evaluación de la conformidad — Requisitos para organismos que certifican productos, procesos y servicios.
+- INTE-ISO/IEC 17024, versión vigente. Evaluación de la conformidad — Requisitos generales para los organismos que realizan la certificación de personas.
+- INTE/ISO 14065, versión vigente. Gases de efecto invernadero — Requisitos para los organismos que realizan la validación y la verificación de los gases de efecto invernadero.
+- INTE/ISO 14064-1, versión vigente. Gases de efecto invernadero — Parte 1: especificación con orientación, a nivel de organizaciones, para la cuantificación y el informe de las emisiones y remociones de gases de efecto invernadero.
+- INTE/ISO 14064-2, versión vigente. Gases de efecto invernadero — Parte 2: especificación con orientación a nivel de proyecto, para la cuantificación, el seguimiento y el informe de la reducción de emisiones o el aumento en las remociones de gases de efecto invernadero.
+- INTE/ISO 14064-3, versión vigente. Gases de efecto invernadero— Parte 3: especificación con orientación para la validación y verificación de declaraciones sobre gases de efecto invernadero.
+- ISO 14066, versión vigente. Gases de efecto invernadero—Requerimientos de competencia para equipos de validación y verificación de gases de efecto invernadero.
+- INTE 12-01-06, versión vigente. Norma Nacional para demostrar la C-neutralidad. Requisitos.
+- Directriz IAF GD5 para la aplicación de las cláusulas de la Guía ISO/IEC 65 para la acreditación de organismos de certificación de producto
+- ECA-MC-P22 Inducción
+- ECA-MC-P01 Confidencialidad, imparcialidad y objetividad
+- ECA-MC-P09 Procedimiento general de evaluación y acreditación.
+- ECA-MC-P13 Ejecución de la Evaluación
