@@ -1,0 +1,7 @@
+Artículo 5º—Requisitos para valorar los grados académicos.
+Los grados y las condiciones académicas que presenten los funcionarios profesionales incorporados al régimen de salario base más pluses, para efectos de carrera profesional deberán reunir los siguientes requisitos:
+a) Deben estar relacionados directamente con la especialidad del puesto o ser afín al mismo, lo que se determinará mediante un estudio realizado por Recursos Humanos.
+b) Haber sido conferidos, reconocidos y equiparados por alguna de las universidades facultadas para ello, de conformidad con las normas que regulan la materia.
+c) Deben corresponder a carreras autorizadas por el CONESUP cuando se trate de títulos extendidos por universidades privadas.
+La especialidad se ponderará como tal, si fue obtenida con base en la Licenciatura. A la especialidad obtenida con base en el Bachillerato se le otorgará el puntaje previsto para la Licenciatura, según el respectivo detalle contenido en el artículo siguiente.
+Entiéndase por grados, posgrados, y especialidades adicionales aquellos que sean obtenidos por el funcionario profesional, después de habérsele reconocido un primer grado, posgrado o especialidad considerado en la ponderación de ingreso al incentivo. Su reconocimiento se efectuará tomando en consideración la afinidad existente entre el título obtenido y el puesto que desempeña el funcionario profesional, de acuerdo al estudio que para tales efectos realice Recursos Humanos.

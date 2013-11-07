@@ -1,0 +1,1 @@
+Artículo 17.—La improbación en la calificación del desempeño, será motivo para no otorgar durante el año siguiente, el ajuste en los diferentes factores de la carrera profesional y, por lo tanto, no podrá ser considerado acumulativamente en estudios posteriores, situación que debe quedar justificada y documentada en el expediente respectivo.

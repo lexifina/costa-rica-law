@@ -1,0 +1,2 @@
+Artículo 27.—Impugnación de las resoluciones de Carrera Profesional.
+Las resoluciones que resuelven solicitudes de reconocimiento del incentivo de carrera profesional deberán ser comunicadas al funcionario profesional, quien podrá recurrir ante aquélla en un plazo de tres días hábiles. Recursos Humanos en el plazo de los ocho días posteriores a su presentación, resolverá el recurso en primera instancia. Cabrá recurso de alzada ante el Superior Jerárquico administrativo que corresponda.
