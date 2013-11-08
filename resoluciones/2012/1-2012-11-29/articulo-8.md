@@ -3,5 +3,5 @@ Monto del Impuesto específico anterior, multiplicado por 1 (uno) más el porcen
 ¢0,2 * 1,01047 = ?0,202
 ¢ 0,1 * 1,01047 = ?0,101
 Tipo de Bebidas | Impuesto por mililitro de Alcohol Absoluto
-a.- Vinos de uvas u otras frutas fermentadas | ¢0.212 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 003 del 8 de agosto del 2013)
-b.- Vinos de otras frutas fermentadas (excepto de Uvas), cuya comercialización anual no exceda los quince millones de mililitros de alcohol absoluto. | ¢0.106 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 003 del 8 de agosto del 2013)
+a.- Vinos de uvas u otras frutas fermentadas | ¢0.210 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 004 del 8 de noviembre del 2013)
+b.- Vinos de otras frutas fermentadas (excepto de Uvas), cuya comercialización anual no exceda los quince millones de mililitros de alcohol absoluto. | ¢0.105 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 004 del 8 de noviembre del 2013)
