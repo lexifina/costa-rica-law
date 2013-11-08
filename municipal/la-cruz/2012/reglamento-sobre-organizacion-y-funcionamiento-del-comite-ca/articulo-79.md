@@ -1,0 +1,1 @@
+Artículo 79.—Del uso de las instalaciones deportivas de los centros educativos públicos. Este comité administrador coordinará con los centros educativos el uso de las instalaciones no pudiendo programar actividades extraescolares en horario de 7:00 a. m. a las 18:00 horas.

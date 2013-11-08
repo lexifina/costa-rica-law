@@ -1,0 +1,1 @@
+Artículo 44.—De la rendición de informes. Cada Comisión debe elaborar y rendir un informe escrito mensual al Comité Cantonal de Deportes y Recreación, sobre las actividades realizadas y resultados obtenidos.

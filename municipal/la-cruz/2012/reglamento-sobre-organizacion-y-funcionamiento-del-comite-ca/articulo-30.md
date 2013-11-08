@@ -1,0 +1,1 @@
+Artículo 30.—De las formas de votación. Existen dos tipos de votación; Nominal y Secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto. Es secreta aquella votación que se haga mediante voto secreto.

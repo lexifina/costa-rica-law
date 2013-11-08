@@ -1,0 +1,5 @@
+CAPÍTULO IX
+Del régimen laboral y disciplinario
+Artículo 57.—Del Régimen Laboral. La Relación Laboral o de Servicio se efectuará de la siguiente manera:
+a) Corresponderá al Comité Cantonal de Deportes y Recreación nombrar al Secretario Administrativo Deportivo de este órgano colegiado y contratar bajo la modalidad de servicios profesionales al contador privado. El pago de estas contrataciones deberán ser sufragadas con el presupuesto de dicho comité.
+b) El Comité Cantonal de Deportes y Recreación podrá elegir de entre las ofertas de servicios que estime pertinentes la contratación de los promotores, entrenadores, instructores o demás profesionales o técnicos que requiera para el desarrollo de las actividades programadas para las diversas disciplinas deportivas o labores administrativas. Para este propósito El Comité Cantonal de Deportes y Recreación solicitará al Departamento de Recursos Humanos de la Municipalidad, que promueva el respectivo concurso. Una vez recibidas las ofertas de servicios, la selección la harán los directivos del Comité Cantonal de Deportes y Recreación.

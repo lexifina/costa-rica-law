@@ -1,0 +1,1 @@
+Artículo 37.—De la entrega de actas. El proyecto de acta de cada sesión se entregará a los directivos del Comité Cantonal de Deportes y Recreación, a más tardar dos horas antes de la sesión ordinaria donde serán aprobadas.

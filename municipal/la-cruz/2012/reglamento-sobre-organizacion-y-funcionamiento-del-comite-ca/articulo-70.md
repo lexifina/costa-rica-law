@@ -1,0 +1,2 @@
+Artículo 70.—De la clasificación de instalaciones deportivas. Las instalaciones deportivas serán clasificadas por el Comité Cantonal de Deportes y Recreación, en categorías de acuerdo con la infraestructura de éstas, también regulará el uso de las mismas por los usuarios, de acuerdo con el tipo de actividad que realicen.
+Con sustento en este ordenamiento se definirán las tarifas por derecho de uso de las instalaciones y el periodo que abarca dicha cuota.

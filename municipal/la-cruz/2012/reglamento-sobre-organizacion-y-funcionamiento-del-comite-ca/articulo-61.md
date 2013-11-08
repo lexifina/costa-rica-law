@@ -1,0 +1,3 @@
+CAPÍTULO X
+De los reconocimientos y beneficios para atletas
+Artículo 61.—De los reconocimientos. Para gozar de cualquier reconocimiento, beneficio, uso de instalaciones e implementos deportivos, así como para participar en juegos oficiales, federados, cantonales, y juegos deportivos nacionales, estudiantiles, toda organización deportiva o recreativa del Cantón deberá afiliarse a los órganos dependientes del Comité Cantonal de Deportes y Recreación. Para los efectos anteriores, el Comité Cantonal de Deportes y Recreación emitirá el reglamento correspondiente donde se establecerán los requisitos para cada caso.

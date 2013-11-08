@@ -1,0 +1,1 @@
+Artículo 6º—De la presentación de informe final y juramentación de miembros. El Concejo Municipal, dentro del plazo de ocho días hábiles, después de realizado el nuevo nombramiento del Comité Cantonal de Deportes y Recreación, hará una sesión extraordinaria donde recibirá los informes del Comité saliente y juramentará a los miembros del Comité entrante.

@@ -1,0 +1,3 @@
+CAPÍTULO XII
+De las instalaciones deportivas
+Artículo 68.—De la delegación de administración de instalaciones deportivas. El Comité Cantonal de Deportes y Recreación será el administrador general de las instalaciones deportivas públicas del Cantón y podrá delegar mediante la firma de un convenio en Juntas Administrativas, Comités Comunales y Asociaciones Deportivas; la administración y mantenimiento de campos o centros deportivos existentes en su jurisdicción.
