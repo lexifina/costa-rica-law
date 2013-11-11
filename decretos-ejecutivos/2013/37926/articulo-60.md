@@ -1,0 +1,1 @@
+Artículo 60.—De la expedición de Unidades Costarricenses de Compensación. La expedición de UCC es el resultado del proceso de registro, monitoreo y verificación de un proyecto o actividad. La UCC otorga un crédito de carbono, y puede llegar a ser objeto de negociación en un mercado de valores.

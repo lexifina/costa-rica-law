@@ -1,0 +1,1 @@
+Artículo 69.—De la transferencia de la Unidades Costarricenses de Compensación. La Junta de Carbono definirá el procedimiento para la transferencia de UCC mediante las normas y procedimientos establecidos en conjunto con la Bolsa Nacional de Valores.

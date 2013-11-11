@@ -1,0 +1,1 @@
+Transitorio III.—Todas aquellas personas que hayan comprado certificados del FONAFIFO tendrán derecho a usarlos para fines de compensación bajo el programa C-Neutral hasta que entre en operación el mercado de carbono. Asimismo, estos certificados mantendrán el valor por el periodo que FONAFIFO les otorgó.

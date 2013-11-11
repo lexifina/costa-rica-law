@@ -1,0 +1,1 @@
+Transitorio I.—El primer año de operación a partir de la entrada en vigencia del presente Decreto Ejecutivo, el Registro de Proyectos y el Registro de Transacciones podrán funcionar de manera unificada a fin de reducir costos y permitir la eficiencia del MDC.

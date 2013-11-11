@@ -1,0 +1,1 @@
+Artículo 57.—De la Emisión de Unidades Costarricenses de Compensación. En el protocolo de proyectos operarán los mismos lineamientos establecidos para la emisión de UCC. En este momento el desarrollador de la AIP deberá asignar un porcentaje pre-determinado a la cuenta de reserva del Protocolo.

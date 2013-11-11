@@ -1,0 +1,1 @@
+Artículo 32.—Del tipo de proyectos. El mercado doméstico de carbono considerará dos tipos de proyecto para el registro de actividades como proyectos participantes en el MDC: proyectos independientes y protocolo de proyectos para actividades de interés nacional.

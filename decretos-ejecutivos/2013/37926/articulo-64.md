@@ -1,0 +1,1 @@
+Artículo 64.—De la metodología para determinar la cantidad de Unidades Costarricenses de Compensación a reclamar. Para determinar la cantidad de UCC por reclamar, se utilizarán las metodologías y protocolos aceptados por la Junta de Carbono por medio del Comité de Metodologías y Protocolos.

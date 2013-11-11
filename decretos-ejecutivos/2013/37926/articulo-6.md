@@ -1,0 +1,1 @@
+Artículo 6º—De la participación. En este mecanismo voluntario podrán participar todas aquellas personas físicas o jurídicas que tengan interés en expedir, comprar o comercializar UCC, y que cumplan con lo establecido en el presente Reglamento y protocolos técnicos definidos por la Junta de Carbono.

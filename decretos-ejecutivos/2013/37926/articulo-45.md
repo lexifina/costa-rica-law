@@ -1,0 +1,1 @@
+Artículo 45.—De la adicionalidad. Si un tipo de actividad es identificada como adicional y se aprueba el protocolo, entonces todas las Actividades Incorporadas al Protocolo, implementadas después de la fecha de registro de dicho Protocolo o antes del mismo pero capaces de ser reconocidas como actividades de “acción temprana”, se consideran automáticamente adicionales.

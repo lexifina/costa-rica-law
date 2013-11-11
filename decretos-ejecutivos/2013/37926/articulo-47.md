@@ -1,0 +1,1 @@
+Artículo 47.—De la Consulta Pública General. El protocolo de proyectos deberá ser sometido a una consulta pública general, que incluya a los principales actores del sector afectado por el mismo, de acuerdo con lo establecido en la consulta pública para proyectos independientes.

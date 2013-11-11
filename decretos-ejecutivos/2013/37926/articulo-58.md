@@ -1,0 +1,1 @@
+Artículo 58.—De la Transferencia. En el protocolo de proyectos, el desarrollador de la actividad y los otros participantes de la misma (titulares de la totalidad o de partes de las UCC generadas por la actividad), tienen la opción de usar las UCC de igual manera que en el caso de los proyectos independientes.

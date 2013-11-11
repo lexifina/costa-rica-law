@@ -1,0 +1,1 @@
+Artículo 67.—De la orden de liberación. El solicitante deberá realizar una orden de liberación de UCC (UCC para retiro al ambiente) dirigida a la Junta de Carbono, y esta girará la orden a la Bolsa, que a su vez se hará constar en el Registro de Transacciones.

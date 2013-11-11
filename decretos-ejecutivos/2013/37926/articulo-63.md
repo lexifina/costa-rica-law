@@ -1,0 +1,1 @@
+Artículo 63.—Del valor de las Unidades Costarricenses de Compensación. El precio de UCC por tonelada de carbono podrá estar definido por un precio mínimo a ser establecido por la Junta de Carbono, y en un máximo basado en la oferta y demanda del mercado.

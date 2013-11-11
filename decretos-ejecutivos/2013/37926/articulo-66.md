@@ -1,0 +1,1 @@
+Artículo 66.—Del uso de las Unidades Costarricenses de Compensación. Cualquier persona física o jurídica, sea nacional o extranjera, podrá adquirir las UCC en la Bolsa Nacional de Valores o por acuerdos bilaterales.

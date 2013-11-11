@@ -1,0 +1,1 @@
+Artículo 25.—Del registro de peritos de carbono. Este registro será una base de datos de los profesionales acreditados por el MDC como Peritos de Carbono. La Junta de Carbono y el Comité de Metodologías y Protocolos establecerán convenios con los colegios profesionales para coordinar el Registro de Peritos de Carbono, y definirán los lineamientos de dicho registro.

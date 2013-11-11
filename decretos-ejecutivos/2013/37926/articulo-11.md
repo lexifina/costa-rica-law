@@ -1,0 +1,1 @@
+Artículo 11.—De la estructura de la Junta de Carbono. Bajo la Junta de Carbono operarán dos comités, uno de Control y Transparencia, y otro de Metodologías y Protocolos; así como tres registros coordinados por la Secretaria Técnica: para los Peritos de Carbono (PC), para Proyectos y para Transacciones.

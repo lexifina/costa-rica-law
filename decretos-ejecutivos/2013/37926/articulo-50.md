@@ -1,0 +1,1 @@
+Artículo 50.—Del Documento de Inclusión de Actividad. En el protocolo de proyectos, el proponente o desarrollador del AIP preparará un Documento de Inclusión basado en un Protocolo registrado en el Registro de Proyectos del MDC, adjuntando la documentación complementaria necesaria, de acuerdo al formato determinado por la Junta de Carbono.

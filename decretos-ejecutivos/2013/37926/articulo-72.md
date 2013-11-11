@@ -1,0 +1,1 @@
+Artículo 72.—Del respaldo. El Ministerio de Ambiente y Energía asumirá el riesgo de pérdida de las Unidades Costarricense de Compensación por motivo fortuito o fuerza mayor, y otorgará el respaldo mediante una reserva designada de UCC. Las condiciones para asumir este riesgo y los casos especiales en que se concederán serán determinadas por la Junta de Carbono.

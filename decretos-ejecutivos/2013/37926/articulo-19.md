@@ -1,0 +1,1 @@
+Artículo 19.—Del Comité de Control y Transparencia. El Comité de Control y Transparencia se establece para dar soporte a la Junta de Carbono con el fin de controlar y garantizar el respeto de las modalidades y procedimientos del Mercado Doméstico de Carbono por los distintos participantes, además de asegurar la transparencia del MDC.

@@ -1,0 +1,1 @@
+Artículo 61.—Del ente expedidor de Unidades Costarricenses de Compensación. La Junta de Carbono será la responsable de aprobar la expedición de Unidades Costarricenses de Compensación (UCC) y dictaminará en cada caso la cantidad de UCC por expedir.

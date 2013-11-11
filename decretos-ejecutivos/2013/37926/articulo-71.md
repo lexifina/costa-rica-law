@@ -1,0 +1,1 @@
+Artículo 71.—De la cancelación de Unidades Costarricenses de Compensación. La Junta de Carbono podrá anular las emisiones de UCC si, a través de un debido proceso, encontrase alguna anomalía o diferencia con lo aprobado por la Junta de Carbono.

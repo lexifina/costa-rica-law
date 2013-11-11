@@ -1,0 +1,1 @@
+Artículo 5º—Del Mercado y las Unidades Costarricenses de Compensación. El Mercado Doméstico de Carbono se crea como un mecanismo voluntario para coadyuvar a alcanzar la carbono neutralidad. Es en ese Mercado donde se expedirán y se comercializarán los créditos de carbono establecidos en la Norma INTE 12-01-06:2011, denominados Unidades Costarricenses de Compensación (UCC).

@@ -1,0 +1,1 @@
+Artículo 9º—De la administración de la Junta de Carbono. Es deber de la Dirección de Cambio Climático (DCC) asumir las funciones de Secretaría Técnica de la Junta de Carbono y administrar el Registro C-Neutral.
