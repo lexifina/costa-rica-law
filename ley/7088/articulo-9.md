@@ -25,15 +25,15 @@ f) Cálculo del impuesto.
 Las tarifas establecidas son progresivas. El impuesto se pagará sobre el valor que tengan, en el mercado interno, en enero de cada año, los vehículos, las aeronaves o las embarcaciones de recreo, según la lista que el Poder Ejecutivo emitirá, por decreto para cada marca, año, carrocería y estilo.
 El impuesto se pagará conforme a la tabla siguiente:
 Valor Tasa
-Hasta ¢ 460.000,00 ¢ 23,500.00
-Sobre el exceso de ¢ 460.000,00 y hasta ¢ 1.860.000,00 1.2 %
-Sobre el exceso de ¢ 1.860.000,00 y hasta ¢ 3.690.000,00 1.5 %
-Sobre el exceso de ¢ 3.690.000,00 y hasta ¢ 5.550.000,00 2.0 %
-Sobre el exceso de ¢ 5.550.000,00 y hasta ¢ 6.930.000,00 2.5 %
-Sobre el exceso de ¢ 6.930.000,00 y hasta ¢8.320.000,00 3.0%
-Sobre el exceso de ¢8.320.000,00 3.5. %
-(Así modificadas las tarifas anteriores por el artículo 1° del decreto ejecutivo N° 37404 del 13 de noviembre de 2012. De igual manera ver también los numerales 2°, 3°, 4°, y 5°, del decrero referido)
-*El Poder Ejecutivo actualizará la lista de valores de los vehículos citados en el párrafo primero de este numeral; asimismo, los montos de la tabla anterior, con un índice de valuación determinado por el comportamiento de la tasa de inflación (índice de precios al consumidor que calcula la Dirección General de Estadística y Censos), una tasa de depreciación anual del diez por ciento (10 %) y la tasa de variación de la carga tributaria que afecta la importación de cada tipo de vehículo. Con base en el crecimiento de la tasa de inflación, la tasa mínima de seis mil colones (¢6.000.oo) se actualizará anualmento mediante decreto ejecutivo.
+Hasta ¢430.000,00 ¢24.700,00
+Sobre el exceso de ¢430.000,00 y hasta ¢1.740.000,00 1.2%
+Sobre el exceso de ¢1.740.000,00 y hasta ¢3.460.000,00 1.5%
+Sobre el exceso de ¢3.460.000,00 y hasta ¢5.200.000,00 2.0%
+Sobre el exceso de ¢5.200.000,00 y hasta ¢6.490.000,00 2.5%
+Sobre el exceso de ¢6.490.000,00 y hasta ¢7.790.000,00 3.0%
+Sobre el exceso de ¢7.790.000,00 3.5%
+(Así modificadas las tarifas anteriores por el artículo 1° del decreto ejecutivo N° 38043 del 11 de noviembre del 2013. De igual manera ver también los numerales 2°, 3°, 4°, y 5°, del decrero referido)
+El Poder Ejecutivo actualizará la lista de valores de los vehículos citados en el párrafo primero de este numeral; asimismo, los montos de la tabla anterior, con un índice de valuación determinado por el comportamiento de la tasa de inflación (índice de precios al consumidor que calcula la Dirección General de Estadística y Censos), una tasa de depreciación anual del diez por ciento (10 %) y la tasa de variación de la carga tributaria que afecta la importación de cada tipo de vehículo. Con base en el crecimiento de la tasa de inflación, la tasa mínima de seis mil colones (¢6.000.oo) se actualizará anualmento mediante decreto ejecutivo.
 (*)(Ver lista de valores de los vehículos, actualizada en el Alcance N° 51 aLa Gaceta N° 234 del 3 de diciembre de 2008).
 Las tarifas porcentuales establecidas para los fines de este impuesto no podrán ser variadas.
 La lista con el valor de los vehículos, mencionada en el primer párrafo de este numeral, podrá ampliarse con el fin de incorporar nuevos tipos, marcas, estilos y otras características de vehículos.
