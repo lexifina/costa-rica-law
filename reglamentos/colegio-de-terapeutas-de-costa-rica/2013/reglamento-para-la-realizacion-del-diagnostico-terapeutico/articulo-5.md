@@ -1,0 +1,1 @@
+Artículo 5º—El certificado del diagnóstico terapéutico deberá realizarse en los formularios autorizados por el Colegio de Terapeutas de Costa Rica para tal efecto. El cual el terapeuta podrá adquirirlo en las oficinas del Colegio.

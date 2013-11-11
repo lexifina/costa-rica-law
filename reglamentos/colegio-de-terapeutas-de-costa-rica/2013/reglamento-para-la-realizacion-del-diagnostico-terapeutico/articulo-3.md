@@ -1,0 +1,1 @@
+Artículo 3º—El terapeuta Licenciado o Licenciada en Terapia Física, Terapia Ocupacional, Terapia Respiratoria, Terapia del Lenguaje podrá certificar su diagnóstico terapéutico como profesional autónomo este documento tiene fe pública. No puede ser alterado por ningún tercero.

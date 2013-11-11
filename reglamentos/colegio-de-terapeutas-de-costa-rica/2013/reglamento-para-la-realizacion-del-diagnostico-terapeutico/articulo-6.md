@@ -1,0 +1,1 @@
+Artículo 6º—El certificado del diagnóstico terapéutico llevará ciento veinticinco colones de timbres fiscales, un timbre de 5 colones de archivo y un timbre de doscientos colones de Cruz Roja. Además llevará el sello blanco del terapeuta y su firma y los timbres se cancelarán con el sello de tinta del terapeuta o con el mismo sello blanco.
