@@ -1,0 +1,1 @@
+Artículo 2º—Declárese de interés público y nacional el proyecto “Ampliación del Acueducto de Atenas Línea de Conducción Tacares-Atenas Fase I”, a cargo del Instituto Costarricense de Acueductos y Alcantarillados, que tiene como objetivo mejorar los estándares con respecto a la calidad, cantidad y continuidad del suministro de agua potable para las comunidades afectadas.
