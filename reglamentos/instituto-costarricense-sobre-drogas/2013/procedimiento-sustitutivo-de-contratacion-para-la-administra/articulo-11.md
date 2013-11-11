@@ -1,0 +1,1 @@
+Artículo 11.—Verificación de requisitos. Verificado el cumplimiento de los requisitos anteriores, el encargado general de la contratación, designado en la resolución del artículo 9 de este Reglamento, y a quien se le trasladó el expediente correspondiente, iniciará las gestiones propias del procedimiento establecido.

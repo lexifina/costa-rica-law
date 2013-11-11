@@ -1,0 +1,2 @@
+Artículo 20.—Bienes inscribibles. En el caso de bienes inscribibles, conforme lo disponen las Leyes Nº 8204 y Nº 8754, el Registro Nacional deberá inscribirlos o traspasarlos con la presentación del acta de adjudicación respectiva, a la cual la URA le adjuntará la respectiva boleta de seguridad.
+Para la inscripción o traspaso de los bienes vendidos, el adjudicatario deberá aportar toda la documentación que sea solicitada por la URA.

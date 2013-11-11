@@ -1,0 +1,1 @@
+Artículo 19.—Entrega del bien adjudicado. Una vez verificado el pago, el encargado de la venta coordinará la entrega del bien al adjudicado, quien presentará los documentos de identificación correspondientes. Para la entrega de los bienes, se confeccionará el acta de entrega respectiva.
