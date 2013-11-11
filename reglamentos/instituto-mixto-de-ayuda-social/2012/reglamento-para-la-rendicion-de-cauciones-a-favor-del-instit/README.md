@@ -14,3 +14,4 @@ Reglamento para la rendición de cauciones a favor del Instituto Mixto de Ayuda 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-29 | la propia norma |
+| 2 | 2013-11-11 | Reglamento 83 (2013-11-11) |
