@@ -1,0 +1,1 @@
+Artículo 9º—Uso exclusivo. El teléfono celular es de uso exclusivo del funcionario público al que se le asignó, para atender y realizar llamadas relativas al cumplimiento de las funciones, tareas y actividades propias de su cargo. En consecuencia, queda terminantemente prohibido el trasiego o préstamo de teléfonos celulares, de una persona a otra.

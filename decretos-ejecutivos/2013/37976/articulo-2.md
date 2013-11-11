@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente Reglamento tiene por objeto regular la utilización racional, custodia y conservación de los teléfonos celulares, pertenecientes a la Procuraduría General de la República, así como el servicio de pago de mensualidades y los procedimientos a seguir para garantizar su utilización racional y acorde con los fines institucionales.
