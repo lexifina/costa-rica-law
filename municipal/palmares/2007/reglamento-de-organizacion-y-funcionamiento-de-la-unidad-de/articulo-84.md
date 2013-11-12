@@ -1,2 +1,3 @@
-Artículo 84.—Vigencia. La presente modificación rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 84.—Del seguimiento de los resultados y atención de las denuncias. La Auditoría Interna , como componente del sistema de control interno, de acuerdo con los procedimientos establecidos, dará seguimiento a los resultados producto de las denuncias presentadas ante esta Unidad, para verificar el cumplimiento de las recomendaciones emitidas al respecto, así como de las denuncias que remita a la Administración activa para verificar que las mismas sean cumplidas.
 (Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
+(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 83 al 84)

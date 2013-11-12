@@ -1,2 +1,3 @@
-Artículo 24.—Presupuesto de la Auditoria Interna. Se dará a la Auditoría Interna una categoría programática de subprograma; para la asignación y disposición de sus recursos, se tomarán en cuenta el criterio del Auditor Interno y las instrucciones que emita al respecto la Contraloría General de la República. La Auditoría Interna ejecutará su presupuesto, conforme lo determinen sus necesidades para cumplir su plan de trabajo.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 21 al 24 actual)
+Artículo 24.—Asignación de Recursos. El Concejo Municipal de conformidad con el artículo 27 de la Ley General de Control Interno, deberá asignar a la Auditoría Interna, los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que ésta pueda cumplir adecuadamente su gestión.
+(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 20 al 23 actual.)
+(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 23 al 24)

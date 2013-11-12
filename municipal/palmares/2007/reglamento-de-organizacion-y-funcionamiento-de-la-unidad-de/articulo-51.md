@@ -1,6 +1,5 @@
-CAPÍTULO VII
-Denuncias
-(Así adicionado este capítulo y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
-Fundamento legal
-Artículo 51.—El presente documento se fundamenta en la Ley General de Control Interno 8292, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública 8422, el Código Municipal y los lineamientos emitidos por la Contraloría General de la República en su resolución R-CO-96-2005.
-(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
+Artículo 51.—Vigencia del Reglamento. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, previa aprobación del Concejo Municipal y deroga el anterior Reglamento publicado en el Alcance 16 de La Gaceta Nº 96, del 20 de mayo de 1998.
+El Concejo Municipal de Palmares, en sesión Nº 64, Cap. IV, Art. 6, inciso 1, celebrada el 23 de julio del 2007, aprobó el Reglamento de Organización y Funcionamiento de la Unidad de Auditoría Interna de la Municipalidad de Palmares.
+Palmares, 7 de enero del 2008
+(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 47 al 50 actual)
+(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 50 al 51)

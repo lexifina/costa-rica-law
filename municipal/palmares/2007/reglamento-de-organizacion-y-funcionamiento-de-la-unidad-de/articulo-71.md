@@ -1,3 +1,15 @@
-Artículo 71.—Desestimación y archivo de la denuncia. Se desestimará y archivará cualquier denuncia cuando se determine que está en los parámetros indicados en los incisos e, f, g, h, i y j del artículo anterior según la estimación que hará la Auditora Interna. Para lo anterior, se dará parte al denunciante por cinco días para que se manifieste y aporte, si a bien lo tiene, elementos que sustenten su denuncia. Será motivo de desestimación de la denuncia la poca importancia relativa de los fondos involucrados, de acuerdo a los parámetros fijados en el artículo anterior.
-La desestimación se hará mediante resolución debidamente motivada, en la que se dispondrá su archivo y se comunicará al denunciante, dejando evidencia en el expediente correspondiente.
+Artículo 71.—Admisibilidad de la denuncia. La Auditoría Interna analizará su contenido y determinará si procede su admisión para investigación, para ese fin deberá determinar:
+a) Si la denuncia corresponde al ámbito de su competencia.
+b) El régimen al que pertenece el servidor (operativo, administrativo o profesional).
+c) La gravedad y relevancia de los hechos denunciados.
+d) El monto de los fondos involucrados.
+e) Si la denuncia se refiere a intereses particulares exclusivos de los denunciantes en relación con conductas ejercidas u omitidas por la Administración , salvo que de la información aportada en la denuncia se logre determinar que existen aspectos de relevancia que ameritan ser investigados por la Auditoría Interna.
+f) Si los hechos denunciados corresponde investigarlos o ser discutidos exclusivamente en otras sedes, ya sean administrativas o judiciales.
+g) Si los hechos denunciados se refieren a problemas de índole laboral que se presentaron entre el denunciante y la Administración Pública denunciada.
+h) Si el asunto planteado ante la Auditoría Interna , se encuentra en conocimiento de otras instancias con competencia para realizar la investigación, ejercer el control y las potestades disciplinarias. En estos casos se realizará la coordinación respectiva a efecto de no duplicar el uso de recursos públicos.
+i) Si la denuncia presentada fuera una reiteración o reproducción de otras denuncias similares sin aportar elementos nuevos y que ya hubieran sido resueltas con anterioridad por la Auditoría Interna o por otras instancias competentes.
+j) Si la denuncia omite alguno de los requisitos esenciales mencionados en el artículo 60 inciso b) de este documento, y
+k) Cualquier otro aspecto de importancia que se desprenda de la denuncia.
+Previo análisis costo beneficio, no se tramitarán denuncias cuya estimación del posible daño sea inferior a un salario base, según lo establecido en la Ley N º 7337. Admitida la denuncia se procederá a darle el curso respectivo, y se informará al denunciante de esa circunstancia en el domicilio o dirección que señale para ese efecto.
 (Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
+(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 70 al 71)

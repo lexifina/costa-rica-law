@@ -1,2 +1,3 @@
-Artículo 64.—Información que debe acompañar adicionalmente el denunciante. Deberá brindar información complementaria respecto al posible monto en perjuicio a los fondos públicos manejados por la Municipalidad de Palmares, en caso de conocerlo; además, aportará sugerencias de otras pruebas que considere conveniente para la investigación.
+Artículo 64.—En el caso de las denuncias recibidas por teléfono, fax y correo electrónico, debe levantarse un documento donde se anoten todos los pormenores de la denuncia, según lo indicado en el artículo 60, inciso b) de este documento. Las denuncias recibidas por estos medios se asimilarán a las anónimas, mientras el denunciante no comparezca a refrendarlas, o en el tanto no esté en funcionamiento la firma electrónica.
 (Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
+(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 63 al 64)
