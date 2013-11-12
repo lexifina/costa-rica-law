@@ -1,0 +1,10 @@
+CAPÍTULO III
+De las obligaciones
+Artículo 13.—Obligaciones de los servidores. Todo funcionario cubierto por el Régimen de Disponibilidad está obligado a:
+a) Encontrarse en óptimas condiciones físicas y mentales durante los períodos de disponibilidad, a efecto de prestar los servicios que se le soliciten.
+b) Mantenerse localizable, ya sea a través de los medios de comunicación facilitados por la institución o por los medios de comunicación privados.
+c) Informar a la Central de Comunicaciones institucional, a las Unidades de Desarrollo Humano y Gestión de Operaciones el número de su servicio telefónico, domicilio habitual o sitio donde se desplace regularmente, para hacer posible su inmediata ubicación en el momento que se requiera de su presencia en la Institución.
+d) Responder de manera inmediata al llamado realizado por la administración, sea a través de la Central de Comunicaciones, Unidad de Gestión de Operaciones, de la jefatura respectiva o de los jerarcas institucionales, con el fin de desplazarse a la sede de la Institución o al lugar del evento en un plazo no mayor a sesenta (60) minutos para la atención de un evento o emergencia que requiera de su participación.
+e) En caso de enfermedad u otra causa de fuerza mayor debidamente comprobada y que le impida prestar el servicio de disponibilidad a que hace referencia este Reglamento, deberá notificar de inmediato y en forma directa tal contingencia a su respectiva jefatura con el objeto de que se puedan hacer los arreglos necesarios para que el servicio de disponibilidad no se vea interrumpido.
+f) Por la índole de los servicios que presta la CNE, los funcionarios sujetos al Régimen de Disponibilidad no podrán desempeñar otras labores fuera de la Institución, remuneradas o no, cuando alguna de esas pueda entrar en conflicto con las responsabilidades, requerimientos y conveniencias de la Administración.
+g) Atender el llamado de la Institución para la atención de los eventos o emergencias que requieran su participación de acuerdo a sus funciones, so pena de ser sancionado disciplinariamente y/o suspender temporal o totalmente su Contrato, según sea el caso.

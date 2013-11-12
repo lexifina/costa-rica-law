@@ -1,0 +1,1 @@
+Transitorio único.—A partir de la entrada en vigencia de este Reglamento, todos los funcionarios de la CNE que se encuentren devengando el beneficio de la Disponibilidad y los Contratos que se mantengan vigentes, se deberán ajustar a las nuevas disposiciones.

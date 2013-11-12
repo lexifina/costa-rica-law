@@ -1,0 +1,1 @@
+Artículo 5º—De la Comisión de Disponibilidad. Se crea la Comisión Institucional de Disponibilidad, integrada por el Director Ejecutivo quien preside, el Director de Gestión del Riesgo, el Director de Gestión Administrativa y el Jefe de la Unidad de Desarrollo Humano.

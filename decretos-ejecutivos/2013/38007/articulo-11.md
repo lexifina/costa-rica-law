@@ -1,0 +1,1 @@
+Artículo 11.—Sujeción reglamentaria. El trabajador al aceptar el desempeño de las tareas de un puesto para el cual se requiere disponibilidad, estará sujeto a todas las disposiciones de este Reglamento y a la suscripción del respectivo Contrato, previa aprobación de las instancias correspondientes.
