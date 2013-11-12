@@ -18,3 +18,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 3 | 2013-11-01 | Decreto Ejecutivo 38025 (2013-11-01) |
 | 4 | 2013-11-12 | Decreto Ejecutivo 38049 (2013-11-12) |
 | 5 | 2013-11-12 | Decreto Ejecutivo 38050 (2013-11-12) |
+| 6 | 2013-11-12 | Decreto Ejecutivo 38051 (2013-11-12) |
