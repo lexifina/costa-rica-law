@@ -36,3 +36,4 @@ Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Segu
 | 21 | 2009-05-15 | Decreto Ejecutivo 35276 (2009-05-15) |
 | 22 | 2011-01-27 | Decreto Ejecutivo 36432 (2011-01-27) |
 | 23 | 2012-11-30 | Decreto Ejecutivo 37458 (2012-11-30) |
+| 24 | 2013-11-12 | Decreto Ejecutivo 38087 (2013-11-12) |
