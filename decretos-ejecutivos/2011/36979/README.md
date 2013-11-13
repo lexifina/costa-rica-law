@@ -14,3 +14,4 @@ Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Segur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-16 | la propia norma |
+| 2 | 2013-11-13 | Decreto Ejecutivo 38440 (2013-11-13) |

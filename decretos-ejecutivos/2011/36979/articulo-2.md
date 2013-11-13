@@ -1,5 +1,5 @@
-Artículo 2°—Apruébense el artículo 90, los numerales (1) y (2) del artículo 200.10(B), el artículo 210.12(B), el artículo 220.14(M), el artículo 240.81 y los numerales (1), (2) y (3) del artículo 250.126, correspondientes al “Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad” (CECR 2010), para que en adelante se lean de la siguiente manera:
-“ARTÍCULO 90
+Artículo 2°—Apruébense el artículo 90, los numerales (1) y (2) del artículo 200.10(B), el artículo 210.12(B), el artículo 220.14(M), el artículo 240.81 y los numerales (1), (2) y (3) del artículo 250.126, el artículo 404.9(B), el artículo 404.9(C), el artículo 406.5(A) y artículo 406.5(B) correspondientes al “Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad” (CECR), para que en adelante se lean de la siguiente manera:
+ARTÍCULO 90
 Introducción
 Para Uso Exclusivo en Costa Rica
 90.1 Propósito.
@@ -31,7 +31,8 @@ NLM para (4) y (5): Ejemplos de compañías eléctricas pueden incluir aquellas 
 El Capítulo 8 trata de los sistemas de comunicaciones y no está sujeto a los requisitos de los Capítulos 1 a 7, excepto donde dichos requisitos están específicamente referenciados en el Capítulo 8.
 El Capítulo 9 consta de tablas que son aplicables según se hace referencia a ellas. La Adenda contiene modificaciones, aclaraciones a los artículos y tablas que son aplicables exclusivamente en Costa Rica.
 Los anexos no son parte de los requisitos de este Código sino que se incluyen con propósitos informativos únicamente.
-90.4 Exigencia de cumplimiento. Este Código es de acatamiento obligatorio para todos los profesionales y técnicos calificados con competencia para diseñar, instalar, renovar, modificar, adicionar, supervisar, aprobar, verificar y revisar los sistemas eléctricos, según corresponda de las infraestructuras señaladas en 90.2(B) de este Código, así como las personas físicas y jurídicas que fabriquen, importen, comercialicen materiales, equipos y demás dispositivos que se utilicen en las instalaciones eléctricas, de conformidad con las exigencias de este Código.
+90.4 Exigencia de cumplimiento. Este Código es de acatamiento obligatorio para todos los profesionales responsables con competencia para diseñar, instalar, renovar, modificar, adicionar, supervisar, aprobar, verificar y revisar los sistemas eléctricos de acuerdo a las infraestructuras señaladas en 90.2(B) de este Código y el Reglamento para el Trámite de Planos y la Conexión de los Servicios Eléctricos, Telecomunicaciones y de otros en Edificios del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, publicado el Diario Oficial La Gaceta N° 217 del 5 de noviembre del 2004.
+De igual manera es de acatamiento obligatorio para los técnicos calificados con competencia para instalar, renovar, modificar, adicionar y revisar los sistemas eléctricos de acuerdo a las infraestructuras señaladas en 90.2 (B) de este Código, así como para las personas físicas y jurídicas que fabriquen, importen, comercialicen materiales, equipos y demás dispositivos que se utilicen en las instalaciones eléctricas, de conformidad con las exigencias de este Código.
 90.5 Reglas obligatorias, reglas permisivas y material explicativo.
 (A) Reglas obligatorias. Las reglas obligatorias de este Código son aquellas que identifican acciones exigidas o prohibidas específicamente y que se caracterizan por el uso de los términos “debe” o “no debe”.
 (B) Reglas permisivas. Las reglas permisivas de este Código son aquellas que identifican acciones que se permiten pero que no se exigen; normalmente se usan para describir opciones o métodos alternativos, y se caracterizan por el uso de los términos “se permitirá” o “no se exigirá”.
@@ -43,18 +44,19 @@ Los corchetes que contienen referencias de secciones a otro documento de la NFPA
 90.7 Unidades de medida. Para el propósito de este Código, las unidades de medida son las del Sistema Internacional de Unidades (SI), de conformidad con lo que establece la Ley Nº 5292, Sistema Internacional de Unidades y su reglamento.
 Los valores derivados de conversiones de unidades utilizadas en el texto original de NFPA 70, se presentan con el número mínimo de decimales y redondeados al valor más cercano.
 Donde aplique, los valores de medida en el texto del Código irán seguidos por un valor equivalente entre paréntesis, aproximado en unidades del sistema inglés.
-A los tamaños de conductos, de los conductores, a la designación de la potencia de los motores y a los tamaños comerciales que no reflejen medidas existentes, por ejemplo: tamaños de cajas, se les asignará el valor SI más cercano. La Adenda contiene modificaciones, aclaraciones a los artículos y tablas que son aplicables exclusivamente en Costa Rica.”
-“200.10 Identificación de terminales:
+A los tamaños de conductos, de los conductores, a la designación de la potencia de los motores y a los tamaños comerciales que no reflejen medidas existentes, por ejemplo: tamaños de cajas, se les asignará el valor SI más cercano. La Adenda contiene modificaciones, aclaraciones a los artículos y tablas que son aplicables exclusivamente en Costa Rica.
+[…]
+200.10 Identificación de terminales:
 […]
 (B) Receptáculos, clavijas y conectores.…
 (1) La identificación se debe hacer por un metal o recubrimiento metálico de color fundamentalmente blanco o con palabra “Blanco”, “White”, “Neutro” o la letra “B”,”W” o “N” situada cerca del terminal identificado.
 (2) Si el terminal no es visible, el orificio de entrada para la conexión del conductor debe ser de color blanco o se debe marcar con la palabra “blanco”, “White”, “Neutro” o la letra “B”,”W” o “N”.
-[…]”
-“210.12 Protección con interruptor de circuito por falla de arco (AFCI)
+[…]
+210.12 Protección con interruptor de circuito por falla de arco (AFCI)
 […]
 (B) Unidades de vivienda. Todos los circuitos ramales que alimentan salidas monofásicas de 120 volts, 15 y 20 amperes instaladas en habitaciones familiares, comedores, salas de estar, salones, bibliotecas, cuartos de estudio, alcobas, solarios, salones de recreación, armarios, pasillos o habitaciones o áreas similares en unidades de vivienda, se deben proteger con un interruptor listado de circuito por fallas de arco, tipo combinación, instalado para brindar protección al circuito ramal. Este requisito será exigible en una aplicación escalonada tal como se indica en el Transitorio Único de este Decreto.
-[…]”
-“220.14 Otras cargas para todo tipo de ocupaciones.
+[…]
+220.14 Otras cargas para todo tipo de ocupaciones.
 […]
 (M) Viviendas de Interés Social. “Para el cálculo de la carga de una vivienda de interés social se deben considerar al menos los siguientes circuitos:
 a. Un circuito de iluminación cuya carga no sea inferior a 10 voltios-amperios por metro cuadrado.
@@ -62,11 +64,33 @@ b. Dos circuitos de tomas para el área de cocina de 1500 voltios-amperios cada 
 c. Un circuito de tomas para uso general de 1500 voltios-amperios.
 d. Si tiene un calentador de agua, un circuito de 4500 voltios-amperios o la capacidad nominal de la placa de características, la que sea mayor.
 e. Si tiene cocina eléctrica ésta no tendrá una carga inferior a 8000 voltios-amperios a 240 voltios.
-[…]”
-“240.81. Indicación. Los interruptores automáticos deben indicar claramente si están en posición abierta (circuito desconectado “OFF”, “0”) o cerrada (circuito conectado “ON”, “I”).
-Cuando las palancas de los interruptores automáticos se accionen verticalmente y no de forma rotacional u horizontalmente, la posición de circuito cerrado (“ON”,”I”) debe ser con la palanca hacia arriba.”
-“250.126. Identificación de los terminales de alambrado de dispositivos. El terminal para la conexión del conductor de puesta a tierra del equipo se debe identificar mediante uno de los siguientes medios:
+[…]
+240.81. Indicación. Los interruptores automáticos deben indicar claramente si están en posición abierta (circuito desconectado “OFF”, “0”) o cerrada (circuito conectado “ON”, “I”).
+Cuando las palancas de los interruptores automáticos se accionen verticalmente y no de forma rotacional u horizontalmente, la posición de circuito cerrado (“ON”,”I”) debe ser con la palanca hacia arriba.
+[…]
+250.126. Identificación de los terminales de alambrado de dispositivos. El terminal para la conexión del conductor de puesta a tierra del equipo se debe identificar mediante uno de los siguientes medios:
 1) Un terminal de tornillo de color verde, no fácilmente removible, con cabeza hexagonal o similar, que asegure una conexión firme para la fijación del conductor de puesta a tierra.
 2) Un terminal de tuerca de color verde, hexagonal o similar que asegure una conexión firme para la fijación del conductor de puesta a tierra y que no sea removible fácilmente.
 3) Un conector de alambre de presión de color verde. Si el terminal para el conductor de puesta a tierra no es visible, el agujero de entrada del conductor se debe marcar con las palabras “verde”, “tierra”, “green” o “ground”, las letras V, T, G, GR, un símbolo de puesta a tierra, o con otra identificación mediante un color verde distintivo. Si el terminal para el conductor de puesta a tierra del equipo es fácilmente removible, el área adyacente al terminar se debe marcar en forma similar.
+[…]
+404.9. Disposiciones para interruptores de resorte de uso general.
+[…]
+(B) Puesta a tierra. Los interruptores de resorte, incluyendo los reguladores de intensidad e interruptores similares de control, se deben conectar a un conductor de puesta a tierra de equipos y deben proporcionar un medio para conectar las placas frontales metálicas al conductor de puesta a tierra del equipo, se instale o no una placa frontal metálica. Los interruptores de resorte se deben considerar como parte de una trayectoria de corriente eficaz de falla a tierra, si se cumple cualquiera de las condiciones siguientes:
+(1) El interruptor está montado con tornillos metálicos a una caja metálica o una cubierta metálica que está conectada a un conductor de puesta a tierra del equipo, o a una caja no metálica con medios integrados para la conexión a un conductor de puesta a tierra del equipo.
+(2) Un conductor de puesta a tierra del equipo o un puente de unión del equipo está conectado a una terminación de puesta a tierra de equipos del interruptor de resorte.
+Excepción 1 para (B): Cuando no existen medios dentro del envolvente del interruptor de resorte para la conexión al conductor de puesta a tierra del equipo o cuando el método de alambrado no incluye un conductor de puesta a tierra de equipos, se permitirá un interruptor de resorte sin conexión a un conductor de puesta a tierra de equipos únicamente con propósitos de reemplazo. Un interruptor de resorte alambrado según las disposiciones de esta excepción y ubicado a menos de 2.50 metros verticalmente, o 1.50 metros horizontalmente, desde la tierra u objetos metálicos expuestos puestos a tierra, se debe proporcionar con una placa frontal de material no conductor; no combustible, con tornillos de unión no metálicos, a menos que la abrazadera o yugo de montaje del interruptor sea no metálico o el circuito esté protegido por un interruptor de circuito contra falla a tierra.
+Excepción 2 para (B): N° se exigirá que los ensambles o equipos aprobados sean conectados a un conductor de puesta a tierra de equipos si se cumplen todas las siguientes condiciones:
+(1) El dispositivo está equipado con una placa frontal no metálica que no se puede instalar en cualquier otro tipo de dispositivo;
+(2) El dispositivo no cuenta con medios de montaje para aceptar otras configuraciones de placas frontales;
+(3)El dispositivo está equipado con un yugo no metálico; y
+(4) Todas las partes del interruptor manipulables para su operación están fabricadas de materiales no metálicos.
+Excepción 3 para (B); Se permitirá un interruptor de resorte con envolvente no metálico integrado que cumple con 300.15 (E) sin una conexión al conductor de puesta a tierra del equipo.
+(C) Construcción. Las placas frontales metálicas deben ser de metal ferroso con espesor no menor a 0.76 mm (0.030 pulgadas) o de metal no ferroso con espesor no menor a 1.02 mm (0.040 pulgadas), cuando la placa tenga una cubierta decorativa el espesor se medirá en conjunto. Las placas frontales de material aislante deben ser no combustibles y tener un espesor no menor a 2.54 mm (0.010 pulgadas), pero se permitirá un espesor menor a 2.54 mm (0.010 pulgadas) si están moldeadas o reforzadas de modo que brinden una resistencia mecánica adecuada.
+[…]
+406.5. Placas frontales (placas para cubierta) de los receptáculos.
+[…]
+(A) Espesor de las placas frontales metálicas. Las placas frontales metálicas deben ser de metal ferroso con espesor no menor a 0.76 mm (0.030 pulgadas) o de metal no ferroso con espesor no menor a 1.02 mm (0.040 pulgadas), cuando la placa tenga una cubierta decorativa el espesor se medirá en conjunto.
+(B) Puesta a tierra. Una placa frontal que pueda llegar a energizarse, debe estar puesta a tierra.
+Excepción: Cuando todas las partes expuestas al usuario no estén en contacto con partes energizadas.
 […]”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38440 del 13 de noviembre del 2013)
