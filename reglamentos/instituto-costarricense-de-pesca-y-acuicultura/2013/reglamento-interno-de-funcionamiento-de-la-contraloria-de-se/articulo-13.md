@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las actividades de promoción y divulgación
+Artículo 13.—De la capacitación, promoción y divulgación. La Contraloría de Servicios en coordinación permanente con las Áreas de Capacitación y la Dirección de Prensa y Relaciones Públicas, promoverá la participación y apoyo en espacios de capacitación convocada por la Institución, así como por organizaciones e instituciones homólogas y de aquellas actividades que tengan como objetivo la elaboración, diseño, asesoría y ejecución de proyectos específicos y coordinación de proyectos a desarrollar en materia de calidad y excelencia del servicio.

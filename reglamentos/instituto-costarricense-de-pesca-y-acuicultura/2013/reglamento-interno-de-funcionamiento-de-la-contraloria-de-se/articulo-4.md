@@ -1,0 +1,1 @@
+Artículo 4º—Adscripción e independencia de criterio. La Contraloría de Servicios estará adscrita a la Presidencia Ejecutiva, garantizando una comunicación fluida y directa en la toma de decisiones. Sin embargo ejecutará sus funciones con independencia de criterio respecto a las demás dependencias de la Institución.

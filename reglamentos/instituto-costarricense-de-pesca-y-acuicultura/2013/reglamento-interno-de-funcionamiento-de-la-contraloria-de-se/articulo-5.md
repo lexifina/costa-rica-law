@@ -1,0 +1,7 @@
+Artículo 5º—Atribuciones. El (la) Contralor(a) de Servicios podrá actuar de oficio o a solicitud de parte y todas las siguientes atribuciones:
+a) Libre acceso a todos los libros, archivos y documentos del Instituto, así como a otras fuentes de información relacionada con la prestación del servicio, excepto informes técnicos que puedan servir para la sustentación de procedimientos administrativos que estén pendientes de ser firmados, o de resolución e información personalísima de funcionarios.
+b) Solicitar a los funcionarios o empleados de la Institución, pertenecientes al nivel administrativo y sustantivo, los informes, datos y documentos necesarios para el cabal cumplimiento de sus funciones. De toda inconformidad tramitada en cualquier oficina o unidad administrativa se dará cuenta del conocimiento a la Contraloría de Servicios Institucional.
+c) Solicitar a los funcionarios o empleados de la Institución, la colaboración, el asesoramiento y las facilidades que demande el ejercicio de las Contralorías de Servicios, para lo cual se trabajará en coordinación con los diferentes órganos y unidades administrativas.
+d) Divulgar el servicio de la Contraloría de Servicios y los procedimientos establecidos.
+e) Coordinar con la unidad de Recursos Humanos para el control y seguimiento de mejoras en función de las denuncias planteadas en las diferentes áreas.
+f) Emitir recomendaciones para elevar la imagen de la prestación del servicio de la Institución.

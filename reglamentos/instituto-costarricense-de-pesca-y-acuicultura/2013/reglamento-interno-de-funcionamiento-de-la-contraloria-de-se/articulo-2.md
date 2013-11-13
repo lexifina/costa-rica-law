@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Contribuir a desarrollar en las distintas áreas de servicio, una labor sistemática y permanente de modernización en la organización administrativa y su gestión, a fin de garantizar la eficiencia y eficacia en los servicios prestados.

@@ -1,0 +1,2 @@
+Artículo 11.—De las investigaciones de oficio. Corresponde a la Contraloría de Servicios tramitar las investigaciones que le asigne en forma especial la Presidencia Ejecutiva que a consideración propia estime oportunas para el mejoramiento de la calidad del servicio.
+Con fundamento en la investigación se elaborará un informe que podrá incluir recomendaciones para la adopción de políticas, manuales, normas y procedimientos en procura de una prestación de servicios oportuna y eficaz a favor de los administrados.
