@@ -1,0 +1,1 @@
+Artículo 6º—Competencia: Es de competencia de la Municipalidad del Cantón Central de Heredia velar por el adecuado cumplimiento de la Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico N° 9047 dentro de su jurisdicción.

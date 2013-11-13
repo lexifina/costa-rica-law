@@ -1,0 +1,1 @@
+Artículo 55.—Fraccionamiento de pago. Para los efectos de la aplicación del impuesto en caso de inactivación de patentes, aprobaciones y renuncias de las licencias, los patentados deberán cancelar solo la fracción correspondiente a los días faltantes para finalizar el trimestre en que se apruebe, o los días transcurridos, en el caso de las renuncias.

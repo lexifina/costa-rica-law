@@ -1,0 +1,5 @@
+Sección IV
+De la renovación del quinquenio
+Artículo 47.—Renovación de la licencia. Las licencias concedidas bajo la Ley N° 9047 deberán renovarse cada cinco años durante el mes de octubre, contados a partir del momento en que se otorgó la licencia.
+Todos los patentados que comercialicen bebidas con contenido alcohólico y que se encuentren activos, deberán solicitar la renovación del quinquenio siguiente, para ello deberán cumplir con los requisitos legales establecidos; de no hacerlo se tendrá por vencida la autorización de la explotación de la licencia la cual se le comunicará por escrito en el lugar o medio señalado para atender notificaciones y deberá la persona interesada presentar nuevamente la solicitud de explotación de licencia de licores, para lo cual estará sujeta a lo dispuesto en la normativa vigente incluyendo lo relativo a las distancias contenidas en la Ley.
+En caso de las autorizaciones aprobadas por el municipio antes de la entrada en vigencia de esta ley, realizaran su primera renovación en el mes de octubre siguiente a la publicación del presente reglamento.

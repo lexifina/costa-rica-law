@@ -1,0 +1,1 @@
+Artículo 61.—Los casos con Licencia E, donde se presenten las situaciones antes mencionadas, se someterán a estudio del Concejo Municipal para que este valore si corresponde o no dejar sin efecto el beneficio de la declaratoria de interés turístico. De ser así por medio de acuerdo en firme le comunicarán a la administración si se debe o no iniciar un procedimiento administrativo.
