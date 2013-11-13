@@ -1,1 +1,0 @@
-Artículo 15.—Distribución de las tarjetas. Las tarjetas se venderán en las cajas recaudadoras de la Municipalidad de Palmares y, por convenio suscrito entre las partes, en los establecimientos mercantiles o sitios de venta autorizados por esta Municipalidad.
