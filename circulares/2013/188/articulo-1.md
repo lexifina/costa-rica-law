@@ -1,0 +1,8 @@
+CIRCULAR Nº 188-2013
+ASUNTO: Tramitación de los procesos disciplinarios por hostigamiento sexual.
+A LOS ÓRGANOS QUE CONOCEN EN PRIMERA
+Y SEGUNDA INSTANCIA LOS CASOS DISCIPLINARIOS
+POR HOSTIGAMIENTO SEXUAL
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 100-13, celebrada el 24 de octubre de 2013, artículo XLIII, acordó comunicarles que los procesos incoados a partir de una denuncia por hostigamiento sexual se deben tramitar con celeridad, y establecer claramente que se trata de un procedimiento diferente al ordinario, por lo que debe calificarse como procedimiento disciplinario por hostigamiento sexual y aplicarse el marco jurídico que integra la legislación especial, la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, el Reglamento para Prevenir Investigar y Sancionar el Hostigamiento Sexual en el Poder Judicial, así como la Ley Orgánica del Poder Judicial, en lo que sea procedente. Asimismo, se deben aplicar los principios especiales de acceso a la justicia de las víctimas, de confidencialidad, de igualdad y no discriminación, y el principio pro víctima, éste último por encima del principio pro operario, en razón de tratarse de una materia especial y específica, tal y como lo señala el ordenamiento jurídico internacional y nacional. En los procedimientos disciplinarios por hostigamiento sexual, se deberá cumplir con las responsabilidades de Estado en aplicación de la Convención sobre la eliminación de todas las formas de discriminación contra la mujer (CEDAW) y Convención Interamericana para prevenir, sancionar y erradicar la violencia contra la mujer (BELEM DO PARA).
+San José, 14 de noviembre de 2013.
