@@ -1,0 +1,1 @@
+Artículo 7º—El personal de planta del Festival de las Artes será asignado al Centro de Producción Artística y Cultural y brindará el apoyo básico que requiera este Centro para su buen funcionamiento. El personal del Programa Festival de las Artes se convertirá en el personal de planta de la CPAC y tendrá como jerarca inmediato al Director de dicho Centro.

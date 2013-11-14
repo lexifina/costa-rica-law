@@ -1,0 +1,5 @@
+Artículo 3º—Misión y Visión. El Centro de Producción Artística y Cultural tendrá la siguiente misión y visión.
+Misión: Es la instancia que ejecuta producciones y actividades artísticas y culturales masivas innovadoras, de alta calidad y bajo los enfoques de diversidad 1y sensibilidad cultural2, en espacios públicos amplios, especialmente en plazas y parques; con la participación de artistas nacionales e internacionales de gran prestigio; que están dirigidas a la población nacional y regional.
+(1) Diversidad Cultural: Se refiere a la multiplicidad de formas en que se expresen las culturas de los grupos y sociedades. Estas expresiones se transmiten dentro y entre los grupos y las sociedades.
+(2) Sensibilidad cultural: Es poner en valor las culturas y las identidades de las poblaciones cuando se elaboran y definen proyectos; tomando en cuenta los contextos culturales, socioeconómicos en que se desarrollan.
+Visión: Ser un Centro de Producción reconocido en el ámbito nacional e internacional por ofrecer eventos culturales y artísticos masivos, innovadores y de excelencia; que visibilice a la cultura como motor de desarrollo económico, cultural y social.

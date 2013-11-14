@@ -1,0 +1,2 @@
+TRANSITORIOS
+I.—Las operaciones del Programa Festival de las Artes se gestionarán desde el Teatro Nacional de Costa Rica hasta la finalización del proceso de post-producción del Festival Internacional de las Artes 2014, con el objetivo de que no se ponga en riesgo la adecuada producción y ejecución de esta edición del Festival, que se realizará en abril del 2014. Se trabajará bajo la modalidad de coproducción entre el Teatro Nacional y el Ministerio de Cultura y Juventud, a través del Centro de Producción Artística y Cultural.
