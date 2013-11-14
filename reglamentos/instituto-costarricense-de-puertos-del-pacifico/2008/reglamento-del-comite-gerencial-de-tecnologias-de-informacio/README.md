@@ -14,3 +14,4 @@ Reglamento del Comité Gerencial de Tecnologías de Información del INCOP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-19 | la propia norma |
+| 2 | 2013-11-14 | Reglamento 3865 (2013-11-14) |
