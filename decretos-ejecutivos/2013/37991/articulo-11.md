@@ -1,0 +1,1 @@
+Artículo 11.—La denuncia anónima. Podrá presentarse denuncia en documento anónimo o a través de cualquier otro medio de comunicación. No obstante, su atención y tramitación estará sujeta a la existencia de elementos que a criterio de la Contraloría de Servicios, permitan la clara identificación de los hechos acontecidos y de los presuntos responsables.

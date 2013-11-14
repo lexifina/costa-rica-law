@@ -1,0 +1,1 @@
+Artículo 2º—Relación con la Defensoría de los Habitantes de la República. La Contraloría de Servicios actuará en lo relativo a la prestación de servicios como unidad coordinadora entre el Ministerio de Seguridad Pública y la Defensoría de los Habitantes de la República, con el propósito de canalizar informes por quejas, aporte de información periódica o cuando sea requerido.

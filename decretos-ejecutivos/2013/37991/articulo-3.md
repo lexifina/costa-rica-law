@@ -1,0 +1,1 @@
+Artículo 3º—Obligación de rendir informes. La Contraloría de Servicios para el cumplimiento de sus funciones podrá solicitar informes, realizar consultas e investigaciones, según estime pertinente, en todas las dependencias del Ministerio. En caso de obstaculizarse su labor, podría acarrear responsabilidad.

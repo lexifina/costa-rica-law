@@ -1,0 +1,1 @@
+Artículo 7º—Impulso de las actuaciones. La Contraloría de Servicios actuará de oficio o a petición de parte en procura del mejoramiento continuo e innovación de los servicios, para realizar investigaciones, visitar las dependencias y requerir la información pertinente para el cumplimiento de sus funciones.

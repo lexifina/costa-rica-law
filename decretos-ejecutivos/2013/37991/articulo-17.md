@@ -1,0 +1,1 @@
+Artículo 17.—Deberes de los usuarios. Los usuarios deberán hacer un uso adecuado del servicio público que brinda el Ministerio de Seguridad Pública, y dirigirse con respeto a los funcionarios que brindan dicho servicio.

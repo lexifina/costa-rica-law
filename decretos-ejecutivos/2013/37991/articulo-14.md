@@ -1,0 +1,1 @@
+Artículo 14.—Resultado de la investigación. Concluido el estudio, la Contraloría de Servicios emitirá las recomendaciones pertinentes a los Jerarcas, comunicará al usuario y dará seguimiento al asunto. En caso de determinarse una posible infracción al régimen disciplinario, se remitirá al Departamento Disciplinario Legal o a la instancia que corresponda.

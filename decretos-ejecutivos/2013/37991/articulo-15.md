@@ -1,0 +1,1 @@
+Artículo 15.—Resguardo de la información. Todas las gestiones que se tramiten en la Contraloría de Servicios, deberán constar en expediente administrativo individualizado y en estricto orden cronológico.
