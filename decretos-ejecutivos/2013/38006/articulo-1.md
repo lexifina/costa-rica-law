@@ -1,0 +1,15 @@
+Nº 38006-MEIC-S
+LA PRESIDENTA DE LA REPÚBLICA,
+Y LAS MINISTRAS DE ECONOMÍA, INDUSTRIA
+Y COMERCIO Y DE SALUD
+En uso de las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 27 inciso 1) y 28 inciso 2, acápite b) de la Ley General de Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; la Ley de Uso Exigido Sistema Internacional Unidades Medida “SI” Métrico Decimal, Ley Nº 5292 del 9 de agosto de 1973; la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994; la Ley de Aprobación del Acta Final en que se incorporan los resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales, Ley Nº 7475 del 20 de diciembre de 1994; la Ley del Sistema Nacional para la Calidad, Ley Nº 8279 del 2 de mayo de 2002; la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977 y la Ley General de Salud, Nº 5395 de 30 de octubre de 1973.
+Considerando:
+1º─Que el artículo 39 de la Ley Nº 8279 del Sistema Nacional para la Calidad, crea el Órgano de Reglamentación Técnica, como Comisión Interministerial con la misión de contribuir a la elaboración de reglamentos técnicos. Asimismo, el artículo 40 de la misma Ley en su inciso a), faculta al Órgano de Reglamentación Técnica a recomendar la adopción, actualización o derogación de los reglamentos técnicos emitidos por el Poder Ejecutivo.
+2º─Que las buenas prácticas reglamentarias obligan a los gobiernos a la revisión de los reglamentos técnicos existentes a fin de que se ajusten a las condiciones y las necesidades imperantes, procurando así un equilibrio necesario, de manera que dicha reglamentación no sea omisa ni excesiva y no propicie un obstáculo al desarrollo económico.
+3º─Que el Estado y el sector considerando la necesidad de una reglamentación técnica específica en el país para este producto, el Poder Ejecutivo emitió el Decreto Ejecutivo N° 33768-MEIC-S del 06 de febrero del 2007, “RTCR 396:2006. Tapa de Dulce y Dulce Granulado. Especificaciones”, que fuere publicado en La Gaceta N° 97 del 22 de mayo del 2007.
+4°—Que el Estado debe garantizar la efectiva aplicación de sus regulaciones, por lo que está obligado a corregir aquellos errores que afecten la claridad de su redacción y consecuentemente su aplicabilidad. Por tanto,
+Decretan:
+MODIFICACIÓN AL RTCR 396:2006. TAPA DE DULCE
+Y DULCE GRANULADO. ESPECIFICACIONES
+Artículo 1°─Se modifica el Artículo 1°, numeral 3.1 “Dulce granulado” del apartado 3 de Definiciones, del Decreto Ejecutivo Nº 33768-MEIC-S del 06 de febrero del 2007, “RTCR 396:2006. Tapa de Dulce y Dulce Granulado. Especificaciones”, publicado en La Gaceta N° 97 del 22 de mayo de 2007, para que en lo sucesivo se lea de la siguiente manera:
+“3.1Dulce granulado: Producto que por proceso de deshidratación del jugo de caña de azúcar (Saccharum officinarum), se obtiene en forma granulada o en polvo. Es de color amarillo, pardo o pardo oscuro.”

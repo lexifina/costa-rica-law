@@ -1,0 +1,1 @@
+Artículo 2°─El resto del contenido del Decreto Ejecutivo Nº 33768-MEIC-S del 06 de febrero del 2007, “RTCR 396:2006. Tapa de Dulce y Dulce Granulado. Especificaciones”, publicado en La Gaceta N° 97 del 22 de mayo de 2007, se mantiene incólume.
