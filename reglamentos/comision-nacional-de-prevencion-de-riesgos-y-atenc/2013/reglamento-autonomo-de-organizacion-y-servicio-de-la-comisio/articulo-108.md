@@ -1,0 +1,1 @@
+Artículo 108.—Otros trámites. El trámite de cualesquiera otros aspectos relacionados con la clasificación de los puestos cubiertos por el Régimen de Servicio Civil se llevará a cabo aplicando las disposiciones del Capítulo XI del Reglamento del Estatuto de Servicio Civil.

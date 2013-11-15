@@ -1,0 +1,3 @@
+Artículo 91.—Licencia para atender labores docentes. No podrán concederse permisos para laborar menos horas de la jornada ordinaria, diaria o semanal, salvo con motivo de estudios en la forma ya regulada. No obstante, cuando se trate de labores docentes en instituciones educativas, será permitido que servidores regulares trabajen menos de la jornada establecida, bajo las siguientes condiciones:
+a. Siempre que la labor asignada al servidor pueda ser desempeñada eficientemente en un lapso menor a la jornada ordinaria, a efecto de que no sea necesario el nombramiento de un sustituto por el tiempo que esté ausente el titular.
+b. Que el servidor devengue solamente el sueldo proporcional correspondiente al tiempo efectivo de trabajo.

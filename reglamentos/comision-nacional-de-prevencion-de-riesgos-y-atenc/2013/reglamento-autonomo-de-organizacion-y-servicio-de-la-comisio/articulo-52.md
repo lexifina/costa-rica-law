@@ -1,0 +1,1 @@
+Artículo 52.—Reubicaciones y traslado de servidores. Los servidores de la CNE podrán ser reubicados o trasladados, en forma unilateral, a realizar otras tareas diferentes a las que normalmente realiza, siempre que no se le cause un grave perjuicio; de conformidad con lo prescrito en los artículos 22 bis inciso a) y 50 inciso a) del Reglamento del Estatuto de Servicio Civil.

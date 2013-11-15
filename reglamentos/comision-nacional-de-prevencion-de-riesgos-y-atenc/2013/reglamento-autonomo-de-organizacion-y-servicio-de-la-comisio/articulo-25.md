@@ -1,0 +1,1 @@
+Artículo 25.—La Unidad de Gestión de Procesos de Reconstrucción. Es la unidad de la organización encargada de fiscalizar el desarrollo de los procesos de reconstrucción que llevan a cabo las unidades ejecutoras correspondientes.

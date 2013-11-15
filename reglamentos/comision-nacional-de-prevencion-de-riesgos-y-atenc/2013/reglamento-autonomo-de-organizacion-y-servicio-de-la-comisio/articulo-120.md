@@ -1,0 +1,1 @@
+Artículo 120.—Evaluación del Desempeño. Todo superior jerárquico está obligado a realizar anualmente la Evaluación del Desempeño de sus respectivos colaboradores, de conformidad con los lineamientos establecidos. Para tales efectos la Unidad de Desarrollo Humano les brindará la asesoría que resulte pertinente.

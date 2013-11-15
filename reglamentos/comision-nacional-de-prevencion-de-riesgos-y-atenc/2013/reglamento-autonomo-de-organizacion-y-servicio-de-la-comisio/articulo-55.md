@@ -1,0 +1,1 @@
+Artículo 55.—Feriados. Son hábiles para el trabajo todos los días del año, menos los de descanso, feriados obligatorios y los que el Poder Ejecutivo declare de asueto. Sin embargo, podrá laborarse en dichos días cuando por razones de trabajo así se justifique, recibiendo por ello el pago extraordinario que corresponda.

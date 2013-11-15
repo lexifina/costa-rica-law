@@ -1,0 +1,1 @@
+Artículo 28.—La Unidad de Planificación y Evaluación. Es la unidad de la organización encargada de asesorar y planificar el desarrollo del Sistema Nacional de Gestión del Riesgo y evaluar los resultados de manera integral.

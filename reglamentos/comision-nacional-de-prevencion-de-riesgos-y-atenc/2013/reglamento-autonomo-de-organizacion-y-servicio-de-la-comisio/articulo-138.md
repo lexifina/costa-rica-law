@@ -1,0 +1,1 @@
+Artículo 138.—Riesgos del trabajo. Todos los servidores de la CNE estarán protegidos contra los riesgos de trabajo, de conformidad con lo establecido en el Código de Trabajo y la Ley de Riesgos del Trabajo.

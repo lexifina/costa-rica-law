@@ -1,0 +1,1 @@
+Artículo 166.—Adaptación de los puestos de Trabajo. La CNE deberá contar con políticas para la adaptación de los puestos de trabajo, incluyendo ayudas técnicas y servicios de apoyo, la eliminación de barreras arquitectónicas y modificación del entorno y otras acciones que faciliten la incorporación de las personas con discapacidad como servidores de la institución.

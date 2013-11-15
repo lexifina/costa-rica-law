@@ -1,0 +1,1 @@
+Artículo 117.—Zonaje. Todo servidor que sea reubicado o desplazado por más de treinta días en forma continua a otro lugar diferente al que fuera nombrado inicialmente y que sea distinto al de su domicilio legal, tendrá derecho al pago de zonaje conforme a la normativa vigente.

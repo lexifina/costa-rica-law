@@ -1,0 +1,1 @@
+Artículo 18.—Asesoría Legal. Es una unidad “Staff”, encargada de brindar soporte técnico y asesoría jurídica a las unidades, internas y externas para la toma de decisiones apegadas al marco normativo, en consonancia con los fines establecidos en las Leyes.

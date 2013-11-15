@@ -1,0 +1,1 @@
+Artículo 14.—Comunicación Institucional. La Unidad de Comunicación Institucional es una unidad “Staff”, encargada de emitir informes de prensa y brindar asesoría a las diferentes instancias de la institución en materia de información, relaciones públicas y prensa.

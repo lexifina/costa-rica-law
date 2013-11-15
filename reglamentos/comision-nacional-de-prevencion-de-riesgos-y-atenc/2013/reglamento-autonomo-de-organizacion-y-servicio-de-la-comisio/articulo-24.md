@@ -1,0 +1,1 @@
+Artículo 24.—La Unidad de Gestión de Operaciones. Es la unidad de la organización encargada de ejecutar de manera oportuna las acciones institucionales para la atención de las emergencias, garantizando accesibilidad a la información y coordinación de la logística para facilitar la toma de decisiones del Centro de Operaciones de Emergencia (COE).

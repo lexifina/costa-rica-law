@@ -1,0 +1,1 @@
+Artículo 143.—Trámite de denuncia de accidente. Con el informe presentado por parte del jefe correspondiente, según se señala en el artículo 141 de este Reglamento, la Unidad de Desarrollo Humano será la encargada de tramitar todo lo referente a las denuncias por accidentes. De todos estos trámites deberá presentar un informe mensual el Director Ejecutivo.

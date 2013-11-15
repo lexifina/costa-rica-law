@@ -1,0 +1,1 @@
+Artículo 65.—Justificación de omisión de marca. Los servidores que se encuentren de gira, o cuando se destaquen temporalmente en un lugar distinto a su lugar habitual de trabajo, deberán justificar las omisiones de marca de asistencia en que incurran en un plazo máximo de diez días hábiles posteriores al vencimiento del mes de que se trate.

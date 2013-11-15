@@ -1,0 +1,1 @@
+Artículo 34.—La Unidad de Servicios Generales. Es la Unidad de apoyo que se encarga de la administración del equipo, materiales y servicios adquiridos o contratados por la CNE, según lo requieran las otras unidades para su adecuado desempeño.

@@ -1,0 +1,1 @@
+Artículo 32.—La Unidad de Proveeduría Institucional. Es la unidad de apoyo que se encarga de la adquisición del equipo, materiales y servicios que requieran las otras Unidades para su adecuado desempeño.

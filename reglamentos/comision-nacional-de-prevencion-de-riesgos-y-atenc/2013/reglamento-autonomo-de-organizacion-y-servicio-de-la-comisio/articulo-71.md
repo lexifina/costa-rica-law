@@ -1,0 +1,1 @@
+Artículo 71.—Deducción salarial por llegada tardía. La llegada tardía injustificada superior a quince minutos, contados a partir de la hora de ingreso fijada, implicará la deducción salarial correspondiente a media jornada, sin perjuicio de la sanción disciplinaria que corresponda.

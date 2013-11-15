@@ -1,0 +1,1 @@
+Artículo 130.—Información sobre denuncias. El superior jerárquico de la CNE o la unidad que este designe estará obligado a informar a la Defensoría de los Habitantes sobre las denuncias de hostigamiento sexual que se reciban, así como el resultado del procedimiento que se realice.

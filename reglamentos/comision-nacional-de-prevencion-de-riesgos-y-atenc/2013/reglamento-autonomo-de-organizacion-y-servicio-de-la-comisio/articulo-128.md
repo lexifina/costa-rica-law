@@ -1,0 +1,1 @@
+Artículo 128.—Procedimiento según la Ley General de la Administración Pública. El Órgano Director deberá tramitar el Procedimiento en los términos establecidos en la Ley General de la Administración Pública, procurando la mayor celeridad en sus actuaciones, pero con total respeto a los derechos de los involucrados.

@@ -1,0 +1,1 @@
+Artículo 90.—Obligaciones de los servidores en licencias. El servidor que sin causa justificada pierda una o varias materias matriculadas quedará obligado a restituir a la CNE los gastos en que ésta incurrió en razón del tiempo concedido y no aprovechado.

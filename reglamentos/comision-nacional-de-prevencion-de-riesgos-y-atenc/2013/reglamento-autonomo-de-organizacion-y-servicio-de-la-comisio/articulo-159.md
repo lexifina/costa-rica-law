@@ -1,0 +1,1 @@
+Artículo 159.—Reclamos en vía jurisdiccional. Si el servidor persistiere en su disconformidad o considera en primer término recurrir ante el órgano administrativo o jurisdiccional correspondiente, podrá hacerlo, sin que para ello se deba acudir al agotamiento de la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 160.—Devolución de reclamos. Las gestiones que no hayan sido formuladas de conformidad con lo dispuesto en este Capítulo, deberán también ser tramitadas si de ellas se puede desprender la intención del reclamante, con fundamento en el Principio de Informalismo. Caso contrario se deberán devolver a efectos de que sean planteadas en la forma debida.

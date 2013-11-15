@@ -1,0 +1,1 @@
+Artículo 131.—De la normativa aplicable. Serán aplicables al procedimiento por acoso sexual las disposiciones de la Ley N° 7476 del 3 de febrero de 1995 y sus reformas, al igual que la normativa conexa definida en esa misma ley.

@@ -1,0 +1,1 @@
+Artículo 77.—Abandono de trabajo. Se considerará abandono del trabajo, el retirarse y dejar sin causa justificada, dentro de su jornada de trabajo, la labor objeto del contrato o relación de servicio. También se considerará abandono de trabajo cuando se compruebe que el funcionario de modo evidente abandone la labor que le ha sido encomendada.

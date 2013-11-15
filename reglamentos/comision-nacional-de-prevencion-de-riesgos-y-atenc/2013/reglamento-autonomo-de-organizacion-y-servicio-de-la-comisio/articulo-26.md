@@ -1,0 +1,1 @@
+Artículo 26.—La Unidad de Investigación y Análisis de Riesgo. Es la unidad de la organización encargada del desarrollo de la investigación y conocimiento en gestión del riesgo del Sistema Nacional, además de implementar acciones para su análisis integral y fortalecer las capacidades para su investigación.

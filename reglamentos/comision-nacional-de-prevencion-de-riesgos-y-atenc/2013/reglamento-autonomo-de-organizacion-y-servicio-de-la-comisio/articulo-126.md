@@ -1,0 +1,1 @@
+Artículo 126.—Reubicación temporal. La persona ofendida podrá solicitar al Órgano Director del Procedimiento su reubicación temporal, en cualquier momento del proceso. El Órgano Director resolverá la procedencia de esta solicitud, en el momento en que sea presentada.

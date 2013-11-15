@@ -1,0 +1,1 @@
+Artículo 172.—Derogatoria. Deróguese el anterior Reglamento Autónomo de Servicios y Organización de la CNE publicado en La Gaceta N° 239 del 12 de diciembre del 2001, así como cualquier otra disposición de igual o inferior rango en tanto se le opongan.

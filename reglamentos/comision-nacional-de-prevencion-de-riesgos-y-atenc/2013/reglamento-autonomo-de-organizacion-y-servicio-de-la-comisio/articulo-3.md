@@ -1,0 +1,1 @@
+Artículo 3°—Acatamiento obligatorio. El cumplimiento de lo dispuesto en este Reglamento es de acatamiento obligatorio para todos los servidores de la CNE, a efecto de llevar a cabo las labores dentro de la armonía requerida de forma eficiente y eficaz.

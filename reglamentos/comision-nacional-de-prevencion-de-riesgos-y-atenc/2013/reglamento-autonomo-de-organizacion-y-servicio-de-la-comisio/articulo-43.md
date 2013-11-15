@@ -1,0 +1,1 @@
+Artículo 43.—Ningún servidor podrá alegar derechos cuando la circunstancia, razón o pretensión se origine en una violación a normas legales o se haya establecido por error administrativo. Sin embargo, los derechos adquiridos por error de la Administración deberán ser desacreditados mediante el debido proceso, otorgando la posibilidad de ejercer la debida defensa al funcionario.

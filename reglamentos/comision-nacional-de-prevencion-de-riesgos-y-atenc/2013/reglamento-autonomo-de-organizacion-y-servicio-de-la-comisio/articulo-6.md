@@ -1,0 +1,3 @@
+Artículo 6°—Marco Estratégico. Conforman el marco estratégico de la CNE, la Visión y Misión de la Institución, cuyo contenido es el siguiente:
+Misión. La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias es la institución rectora de la política de Estado en Gestión de Riesgo, promueve, organiza, dirige y coordina el funcionamiento del Sistema Nacional de Gestión del Riesgo y la ejecución de su Plan Nacional. Contribuye a reducir la vulnerabilidad, salvaguardar la vida humana y el bienestar de los habitantes del país.
+Visión. La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias como rectora del Sistema Nacional de Gestión del Riesgo, consolidado, capaz de prevenir las causas y atender las consecuencias de los desastres.

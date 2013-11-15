@@ -1,0 +1,31 @@
+CAPÍTULO III
+De las prohibiciones
+Artículo 41.—Prohibiciones a servidores. Además de lo dispuesto en los artículos 40 del Estatuto del Servicio Civil, 51 de su Reglamento y otras disposiciones del presente Reglamento, queda absolutamente prohibido a todos los servidores:
+1. Ocupar tiempo de las horas de trabajo para atender asuntos o negocios ajenos a las labores propias del cargo.
+2. Conducir vehículos de la CNE o utilizarlos dentro o fuera de las jornadas de trabajo, sin la debida autorización, sin tener licencia o que la misma se encuentre vencida.
+3. Mantener durante la jornada laboral conversaciones innecesarias con particulares o compañeros, en perjuicio o en demora del trabajo que está ejecutando, así como leer periódicos, revistas u otros impresos ya sean de forma física o electrónica, cuya lectura sea innecesaria o extraña a su labor y vayan en detrimento de las funciones de la CNE.
+4. Impedir o entorpecer el cumplimiento de las medidas de seguridad en el funcionamiento normal de la Institución.
+5. Recibir gratificaciones, recompensas o dádivas de cualquier naturaleza, en función de servicios prestados como servidores públicos o que emanen de su intervención como tales.
+6. Usar los útiles de la oficina, máquinas o mobiliario de la CNE, para fines distintos al que están destinados, así como realizar actividades ajenas a sus tareas. Igualmente atender visitas y hacer uso de los teléfonos de la CNE para sostener conversaciones personales en perjuicio del servicio que debe prestar la Institución.
+7. Distraer con cualquier clase de bromas o juegos que puedan interrumpir el desempeño de sus labores o la de sus compañeros, quebrantando las normas de cordialidad y mutuo respeto que deben imperar en sus relaciones de trabajo.
+8. Ejercer durante el horario de trabajo establecido propaganda política electoral o contraria a las instituciones democráticas del país, ejecutar cualquier acto que implique coacción de las libertades que establece la Constitución Política de la República o, involucrarse en proselitismo político partidista utilizando bienes o uniformes de la CNE.
+9. Salir de la oficina para asuntos personales sin autorización de su jefe inmediato, lo mismo que atenderlos durante el tiempo asignado a sus labores.
+10. Portar armas de cualquier tipo durante las horas de trabajo, salvo aquellos servidores que por su cargo y funciones asignadas estén debidamente autorizados para ello y que cumplan los requisitos establecidos por la Legislación correspondiente.
+11. Presentarse a trabajar o conducir vehículos oficiales en estado de embriaguez, según la definición que de esta condición haga la Ley de Tránsito vigente, o bajo efecto de drogas, o en cualquier otra condición análoga, así como tomar licor o drogas prohibidas durante la jornada laboral, tanto dentro como fuera de la Institución.
+12. Negarse al cumplimiento y acatamiento de las órdenes de sus superiores, salvo las excepciones establecidas por ley.
+13. Dar órdenes a sus subalternos para la ejecución de asuntos ajenos a sus funciones.
+14. Fumar durante el tiempo de servicio según las prohibiciones para el fumado en sitios públicos y vehículos de la Administración que establezca la legislación dictada al efecto. Sin embargo, la Administración podrá establecer zonas específicas en las cuales sea permitido fumar, siempre que esta actividad no afecte la prestación ordinaria de servicios por parte del funcionario.
+15. Hurgar en los escritorios o en los lugares donde se mantenga objetos personales y de trabajo de otros servidores o, hacer uso de los mismos sin la debida autorización de éstos. En casos excepcionales, para fines de trabajo y bajo la responsabilidad del jefe inmediato, podrán utilizarse los útiles de trabajo u obtener documentos que están bajo custodia de un servidor ausente.
+16. Prestar servicios, asociarse, dirigir, administrar, asesorar, patrocinar o representar a personas físicas o jurídicas que celebren contratos con el Estado. También ejercer actividades profesionales, cuando las mismas se contrapongan o perjudiquen el ejercicio de las tareas que el servidor esté desempeñando o, servir de mediadores para facilitarle a terceros sus actividades profesionales, valiéndose para ello del ejercicio de su cargo.
+17. Realizar actos que produzcan deterioro a las instalaciones físicas del centro de trabajo.
+18. Hacer comentarios o publicaciones que puedan desprestigiar o dañar el buen nombre de la CNE o de alguno de sus funcionarios, sin perjuicio de la obligación de denunciar, ante quien corresponda, los hechos incorrectos o delictuosos que sean de su conocimiento.
+19. Valerse de la función que desempeñan en la CNE o invocarla para obtener ventajas personales.
+20. Efectuar colectas, rifas, ventas de objetos o actividades, salvo los casos benéficos y otros previamente autorizados por la Presidencia o Dirección Ejecutiva de la CNE, así como realizar cualquier clase de negocio personal, dentro de las instalaciones en donde presten sus servicios y durante las horas de trabajo.
+21. Divulgar el contenido de expedientes personales, clínicos o documentos confidenciales, o acceder a los mismos cuando no está dentro de sus funciones.
+22. Prolongar innecesariamente las entrevistas o demorar, sin una causa justificada, el trámite de los asuntos a su cargo.
+23. Tratar de resolver por medio de la violencia física, emocional o psicológica, las diferencias con otros funcionarios que surjan durante la realización del trabajo.
+24. Tomarse atribuciones que no le correspondan, así como intervenir cuando un jefe llama la atención a un subalterno.
+25. Sacar de la oficina documentos impresos o electrónicos y equipo, aún para dar cumplimiento a las labores de la oficina, sin permiso de su superior.
+26. Utilizar cualquier tipo de equipo telefónico o computacional propiedad de la CNE para su uso en fines ajenos a la labor asignada, o bien, mantener un comportamiento inadecuado a través de las redes sociales o espacios virtuales; aún fuera de su jornada laboral.
+27. Ejecutar o consentir conductas de acoso laboral o sexual en el ejercicio regular de sus labores, según lo regulado en el Capítulo XIV del presente reglamento.
+28. Ocasionar un accidente de trabajo, a causa de su dolo, negligencia, imprudencia o impericia inexcusable, provocando perjuicios a su persona, a otros servidores o a terceros.

@@ -1,0 +1,1 @@
+Artículo 171.—Modificaciones al Reglamento. Cualquier modificación a este Reglamento deberá ser aprobada de previo por la Junta Directiva de la CNE y la Dirección General de Servicio Civil, además de publicada en el Diario Oficial La Gaceta y dado a conocer a los funcionarios en la misma forma que se tramitó este Reglamento.

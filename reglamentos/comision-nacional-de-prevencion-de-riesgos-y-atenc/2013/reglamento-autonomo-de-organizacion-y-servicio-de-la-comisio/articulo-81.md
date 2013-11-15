@@ -1,0 +1,1 @@
+Artículo 81.—Vacaciones anuales. Para obtener el derecho a las vacaciones anuales correspondientes es necesario que el servidor haya prestado sus servicios durante cincuenta semanas continuas. Este derecho no se afectará con los períodos en que el trabajador se encontrare incapacitado y hubiera disfrutado del pago de algún subsidio por concepto de incapacidad.

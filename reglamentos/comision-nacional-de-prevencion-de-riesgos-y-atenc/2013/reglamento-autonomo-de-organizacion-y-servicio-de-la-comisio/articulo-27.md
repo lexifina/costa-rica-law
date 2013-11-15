@@ -1,0 +1,1 @@
+Artículo 27.—La Unidad de Normalización y Asesoría. Es la unidad de la organización encargada de la estandarización y asesoría en materia de gestión del riesgo, para otros actores del Sistema Nacional.

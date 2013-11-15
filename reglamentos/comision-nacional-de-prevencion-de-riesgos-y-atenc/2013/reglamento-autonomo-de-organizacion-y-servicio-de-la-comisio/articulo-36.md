@@ -1,0 +1,1 @@
+Artículo 36.—Se establece la existencia de la relación de servicio entre la CNE y sus servidores, cuando éstos realizan tareas determinadas de tipo manual, intelectual o de ambos, en beneficio de la CNE, a cambio de una retribución económica, en virtud de un acto válido y eficaz de nombramiento.

@@ -1,0 +1,1 @@
+Artículo 98.—Cálculo del subsidio. El cálculo del porcentaje de los subsidios será efectuado utilizando como referencia el promedio de los salarios devengados en los tres meses inmediatos anteriores a la incapacidad de servidor. El monto de los subsidios reconocidos a los servidores no se encuentra afecto a las cargas sociales de ley ni al pago del Impuesto sobre la Renta.

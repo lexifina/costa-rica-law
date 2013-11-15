@@ -1,0 +1,1 @@
+Artículo 156.—De las prescripciones. En los supuestos previstos en el artículo 43 de la Ley General de Control Interno N° 8292 y en el artículo 71 de la Ley Orgánica de la Contraloría General de la República N° 7428 del 7 de setiembre de 1994, aplicarán los plazos de prescripción que se regulan por norma especial.

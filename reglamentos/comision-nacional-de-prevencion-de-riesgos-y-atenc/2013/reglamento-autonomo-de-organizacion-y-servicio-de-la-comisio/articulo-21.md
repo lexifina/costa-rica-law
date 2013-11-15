@@ -1,0 +1,1 @@
+Artículo 21.—Tecnologías de Información. Es una unidad “Staff”, que se encarga de formular estrategias, investigar y asesorar a la Institución, para la aplicación de nuevas tecnologías de información.

@@ -1,0 +1,1 @@
+Artículo 57.—Obligaciones de asistencia y horario. Los servidores de la CNE están obligados el desempeño de sus cargos durante todos los días hábiles y todas las horas reglamentarias y no podrán concederse privilegios, prerrogativas o concesiones que promuevan una asistencia irregular, salvo los casos expresamente autorizados por la legislación vigente.

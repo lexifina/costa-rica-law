@@ -1,0 +1,1 @@
+Artículo 105.—De las permutas. Los funcionarios de la CNE podrán permutar sus puestos si estos son de igual clase, con la aprobación de sus respectivos superiores y si hubiere anuencia de los interesados. Si ocuparan puestos de clase diferente se requerirá además la aprobación de la Dirección General de Servicio Civil, en cuanto a la idoneidad para el puesto.

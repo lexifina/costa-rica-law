@@ -1,0 +1,1 @@
+Artículo 51.—Atención de los Jerarcas a servidores. Los servidores deberán ser atendidos por los jerarcas de la CNE en sus sugerencias y, en general, en todo aquello que estimule su iniciativa personal, su eficiencia y el mejoramiento de las condiciones laborales, las cuales serán contestadas en forma oportuna y razonada.

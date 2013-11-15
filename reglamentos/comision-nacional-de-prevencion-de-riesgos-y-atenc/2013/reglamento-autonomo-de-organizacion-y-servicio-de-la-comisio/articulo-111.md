@@ -1,0 +1,1 @@
+Artículo 111.—Compensaciones económicas. La compensación económica por concepto de Prohibición del Ejercicio Particular de la Profesión, Dedicación Exclusiva, Disponibilidad y Carrera Profesional, se regirá por las disposiciones vigentes sobre estas materias.

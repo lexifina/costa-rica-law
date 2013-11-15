@@ -1,0 +1,1 @@
+Artículo 140.—Publicidad de derechos, deberes y obligaciones. La Presidencia de la CNE por medio de la Unidad de Desarrollo Humano, el Encargado de Salud Ocupacional y la Comisión de Salud Ocupacional, está en la obligación de dar a conocer los derechos, deberes y obligaciones en esta materia.

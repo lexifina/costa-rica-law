@@ -1,0 +1,1 @@
+Artículo 74.—Ausencias justificadas. Las ausencias justificadas que no impliquen el pago del salario correspondiente, a solicitud del servidor podrán ser descontadas del período de vacaciones o del salario y se tramitarán conforme las normas vigentes.
