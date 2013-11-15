@@ -1,0 +1,1 @@
+Artículo 4º—De la Plataforma tecnológica. Con la finalidad de mantener actualizada La proveeduría de la municipalidad. Se evaluaran constantemente las plataformas tecnológicas del Gobierno Central así como sus instituciones gubernamentales, de tal forma que permita lograr a la municipalidad agilidad, rapidez y mejoras en precios por economías de escala.

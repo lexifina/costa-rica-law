@@ -1,0 +1,1 @@
+Artículo 16.—Almacenamiento y distribución. Funciones Generales: Esta unidad administrativa se encargará de recibir, verificar orden de compras y existencias, registrar, custodiar, conservar y distribuir los bienes adquiridos por la Municipalidad, observando para ello las políticas, directrices, normas técnicas y procedimientos que al efecto le señalen sus superiores.

@@ -1,0 +1,1 @@
+Artículo 3º—De las obligaciones con otros órganos estatales. La municipalidad deberá cumplir con lo dispuesto en los sistemas tecnológicos que llevan a cabo para el registro general de las comparas como lo es el Sistema Integrado de la Actividad Contractual SIAC, establecido por la Contraloría General de la República.
