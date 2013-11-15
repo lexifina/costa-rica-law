@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento del Ministerio de Gobernación y Po
 | --- | --- | --- |
 | 1 | 2013-09-11 | la propia norma |
 | 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
+| 3 | 2013-11-15 | Decreto Ejecutivo 38130 (2013-11-15) |

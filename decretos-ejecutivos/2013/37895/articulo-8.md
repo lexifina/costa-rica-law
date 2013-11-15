@@ -48,7 +48,8 @@ Tendrá las siguientes funciones:
 9. Elaborar y tramitar las nóminas de elegibles a las jefaturas correspondientes para su resolución.
 10. Verificar la autenticidad de los documentos y atestados académicos aportados por los oferentes y funcionarios activos, reportando a la instancia respectiva aquellas situaciones irregulares para el proceso administrativo correspondiente.
 11. Ejecutar y supervisar los movimientos de personal y de puestos que se realizan en el Ministerio.
-12. Administrar concursos internos y externos para la promoción del recurso humano institucional.
+12. Administrar concursos internos para la promoción del recurso humano institucional.
+(Así reformado el aparte anterior por el artículo 1° del decreto ejecutivo N° 38130 del 15 de noviembre del 2013)
 13. Definir los predictores de selección y sus respectivas ponderaciones, de acuerdo con las características de los puestos de trabajo y someterlos para su correspondiente aprobación.
 14. Cualquier otra propia de su competencia.
 3. Subproceso de la Compensación y Servicios del Personal. El cual realizará las siguientes funciones:
