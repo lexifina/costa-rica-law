@@ -1,0 +1,1 @@
+Artículo 19.—El beneficio puede ser solicitado por una sola vez, o bien diez años después de haber concluido con el cumplimiento de las condiciones acordadas para un beneficio, o bien, de una sanción anterior. En uno u otro caso podrá concederse, aún y cuando el médico cuente con amonestaciones o apercibimientos.

@@ -1,0 +1,5 @@
+Artículo 4º—Este reglamento tiene por objeto:
+a) Que los médicos que hayan sido impuestos de una sanción de suspensión para el ejercicio de la profesión y que cumplan con todos los requisitos que establece la presente normativa, puedan solicitar ante el Tribunal de Honor el beneficio de ejecución condicional de la sanción.
+b) Determinar el trámite que se le dará a la solicitud de aplicación del beneficio citado, por parte del Tribunal de Honor. La Fiscalía será la responsable de la fiscalización de la ejecución de las medidas acordadas. El Fiscal dará un informe trimestral a la Junta Directiva de los casos que se encuentran en ejecución.
+c) Que los médicos solicitantes del beneficio referido conozcan de previo y estén informados de su trámite.
+d) Que una vez aprobado el beneficio por El Tribunal de Honor, los médicos beneficiados sepan cuáles son sus obligaciones y condiciones del beneficio, así como las causales que podrían causar la revocación del mismo y las consecuencias de ello. Iniciada la ejecución del mismo, se mantiene la labor autorizada cuando se le otorgó el beneficio, salvo norma posterior más favorable.

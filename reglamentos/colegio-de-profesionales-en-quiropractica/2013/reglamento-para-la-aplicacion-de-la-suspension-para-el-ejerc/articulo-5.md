@@ -1,0 +1,1 @@
+Artículo 5º—En la aplicación del beneficio de ejecución condicional de la sanción de suspensión en el ejercicio de la profesión, corresponde a Tribunal de Honor, conocer, decidir y resolver las dificultades, dudas, controversias y casos no previstos.
