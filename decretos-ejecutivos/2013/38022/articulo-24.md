@@ -1,0 +1,2 @@
+Artículo 24.—Si el Concejo Municipal toma el acuerdo de no revisar las declaraciones al amparo de lo dispuesto en el Transitorio V de la Ley, deberá comunicarlo a los contribuyentes que presenten su solicitud.
+Si el Concejo Municipal toma el acuerdo de revisar las declaraciones, el contribuyente deberá presentar la solicitud para la aplicación del Transitorio V, junto con una certificación emitida por el Ministerio de Agricultura y Ganadería, en la que consigne que el contribuyente ostenta la condición de pequeño o mediano productor.

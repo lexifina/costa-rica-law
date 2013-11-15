@@ -1,0 +1,1 @@
+Artículo 25.—Con los documentos mencionados en el artículo anterior la municipalidad procederá a revisar en sus archivos si el contribuyente ya presentó su Declaración Jurada de conformidad con lo establecido en el artículo 4 de la Ley. Si no la ha presentado deberá llenar el formulario de declaración jurada correspondiente y aportarlo en ese mismo momento.

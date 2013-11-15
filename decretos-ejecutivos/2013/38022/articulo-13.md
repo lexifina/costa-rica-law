@@ -1,0 +1,4 @@
+Artículo 13.—Para la determinación de la finca más cercana se seguirá el siguiente procedimiento:
+El criterio de selección será la menor distancia entre los centros de los frentes principales de la finca a valorar y la finca de referencia.
+Una vez identificadas las características de la finca a valorar, se procederá a calcular su valor unitario utilizando el programa comparativo suministrado por el ONT, tomando como referencia las características y el valor unitario de la finca más cercana. El valor unitario de la finca a valorar en ningún caso será superior al valor unitario de la finca utilizada como referencia.
+El valor unitario resultante de este procedimiento se multiplicará por el área del inmueble a valorar y el resultado constituirá la nueva base imponible para dicho inmueble a partir del año siguiente.

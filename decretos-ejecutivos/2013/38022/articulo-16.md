@@ -1,0 +1,1 @@
+Artículo 16.—El valor que resulte de la aplicación de este capítulo servirá como base imponible del Impuesto sobre Bienes Inmuebles, quedando la Municipalidad autorizada para utilizarlo de forma inmediata y hacer los ajustes correspondientes a las bases de datos.

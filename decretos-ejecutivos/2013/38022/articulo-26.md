@@ -1,0 +1,1 @@
+Artículo 26.—Reunidos todos estos requisitos, la municipalidad procederá a revisar en su base de datos si el último valor registrado para el inmueble corresponde a una declaración de Bienes Inmuebles presentada conforme a lo dispuesto en el artículo 16 de la Ley de Impuesto sobre Bienes Inmuebles.

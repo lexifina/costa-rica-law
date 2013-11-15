@@ -1,0 +1,1 @@
+Artículo 28.—El valor que resulte de la revisión de la declaración del contribuyente servirá como base imponible del Impuesto sobre Bienes Inmuebles para el año siguiente al año en que quede en firme la resolución a la solicitud.

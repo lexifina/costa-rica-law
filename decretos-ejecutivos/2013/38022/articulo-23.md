@@ -1,0 +1,1 @@
+Artículo 23.—Para tales efectos, el Concejo Municipal emitirá un acuerdo debidamente motivado en el que se resuelva si la municipalidad revisará y corregirá las declaraciones indicadas en el artículo anterior, según lo dispuesto en el artículo 3 de la Ley y con base en la condición de pequeño y mediano productor agropecuario.
