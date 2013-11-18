@@ -14,3 +14,4 @@ Establece hora de inicio de jornada laboral diara de Ministerios de Gobierno y s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-19 | la propia norma |
+| 2 | 2013-11-18 | Decreto Ejecutivo 38023 (2013-11-18) |
