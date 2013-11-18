@@ -1,2 +1,8 @@
 Artículo 29.—En caso de los negocios que obtengan la licencia ocasional para la comercialización de bebidas con contenido alcohólico, deberán cancelar el impuesto correspondiente de la siguiente manera:
-a) Se clasificarán los puestos de licores conforme a la categoría solicitada y deberá cancelar el equivalente al monto trimestral correspondiente.
+(*) a): Se calificarán los puestos de licores conforme la categoría solicitada y se deberá cancelar de la siguiente manera:
+1. Para actividades con una duración de 1 a 4 días: la tarifa de la categoría asignada multiplicada por un 25%, su resultado deberá ser multiplicado por el número de días de duración de la actividad (Categoría asignada x 25% x cantidad de días).
+2. Para actividades con una duración mayor a los 4 días: deberá cancelar el equivalente al monto trimestral de la tarifa asignada.
+3. De las Asociaciones de Desarrollo: En el caso de actividades cuya organización y solicitud provenga de una asociación de desarrollo, llámese distrital, cantonal o regional, constituidas al amparo de la “Ley sobre desarrollo de la comunidad No. 3859” del 7 de abril de 1967 y debidamente registradas ante la Dirección Nacional de Desarrollo de la Comunidad (DINADECO), la tarifa que le corresponde cancelar será calculada de la siguiente manera:
+La categoría asignada multiplicada por un 1%, su resultado deberá ser multiplicado por el número de días de duración de la actividad (Categoría asignada x 1% x cantidad de días), siempre y cuando la actividad no sobrepase los 4 días, en cuyo caso pasará a categorizarse conforme lo indica el ítem 2) de este mismo artículo.
+Este tipo de Asociaciones deberá aportar la documentación idónea (constancia, certificación u otro ) que acredite su vigencia ante el registro de asociaciones de desarrollo de DINADECO.
+(*)(Así reformado el inciso a) anterior mediante sesión ordinaria N° 85 del 18 de noviembre del 2013)

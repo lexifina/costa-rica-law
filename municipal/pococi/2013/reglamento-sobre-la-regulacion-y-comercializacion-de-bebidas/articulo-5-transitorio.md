@@ -1,0 +1,6 @@
+Transitorio V: Las tarifas del impuesto se harán efectivas a partir del primer trimestre del 2013, en cuyo caso:
+1. Todos los patentados que se encuentren en las categorías definidas por rangos, que hayan cancelado el impuesto correspondiente a los trimestres anteriores a la resolución 11499-2013 de la Sala Constitucional y hayan presentado antes de ésta, reclamos pendientes de resolución en vía administrativa o judicial, deberán obtener un crédito a su favor por la suma pagada de más, tanto en el monto principal como en sus accesorios.
+2. Los patentados que realizaron su pago con anterioridad a la sentencia dicha y no presentaron reclamo alguno, no tendrán derecho a repetir lo pagado por tratarse de una situación jurídica consolidada.
+3. Todo patentado que no haya pagado ese mismo impuesto, deberá cancelar el principal dictado en dicha resolución y establecido en el artículo 44 de este reglamento más sus respectivos accesorios, entiéndase éstos como multa e intereses moratorios.
+4. La aplicación porcentual de cobro para las categorías C y E entrarán a regir a partir de la entrada en vigencia de este reglamento.
+(Así adicionado mediante sesión ordinaria N° 85 del 18 de noviembre del 2013)

@@ -1,0 +1,2 @@
+Transitorio IV: La presente modificación reformará los artículos: 30 inciso 3) y 8) y 50 inciso e) así como el transitorio I del Reglamento, a partir del día 8 de agosto del 2014, momento en el cual quien sea titular de una patente de licor adquirida mediante la Ley No. 10 no podrá venderla, canjearla, arrendarla, transferirla, traspasarla ni enajenarla en forma alguna, ya que deberá ajustarse a todas y cada una de las disposiciones contenidas en la nueva Ley de Licores Nº 9047.
+(Así adicionado mediante sesión ordinaria N° 85 del 18 de noviembre del 2013)
