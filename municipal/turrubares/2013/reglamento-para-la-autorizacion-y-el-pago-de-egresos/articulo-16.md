@@ -1,0 +1,1 @@
+Artículo 16.—La confección de cheques serán realizados por el Departamento de Contabilidad, para lo cual deberá designar y comunicar a los demás departamentos municipales y público en general, los días designados para tal efecto.

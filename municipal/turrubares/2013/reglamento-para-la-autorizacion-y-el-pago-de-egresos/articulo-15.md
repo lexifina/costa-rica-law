@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento de Proveeduría será el responsable de tramitar las nóminas de pago, para lo cual deberá designar y comunicar a los demás departamentos municipales y público en general los días designados para tal efecto. Dicho trámite, debe contener todos los comprobantes y justificaciones, que amparen el egreso.

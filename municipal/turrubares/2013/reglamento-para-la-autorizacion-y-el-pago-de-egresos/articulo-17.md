@@ -1,0 +1,1 @@
+Artículo 17.—Los cheques a proveedores podrán ser retirados los días designados por el Departamento de Tesorería. Dicho departamento tendrá en custodia los cheques debidamente confeccionados y deberá verificar la entrega satisfactoria a cada proveedor.

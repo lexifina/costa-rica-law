@@ -1,0 +1,1 @@
+Artículo 12.—Todos los bienes y servicios que se incluyan en este reglamento, deberán ser tramitados únicamente por la Proveeduría o Tesorería Municipal, excepto los que se incluyan en el Reglamento de Pagos por Caja Chica.

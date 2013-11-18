@@ -1,0 +1,1 @@
+Artículo 14.—Los Departamentos de Tesorería y Proveeduría Municipal, con el visto bueno de Alcalde Municipal; establecerán los días para el trámite y pago de facturas. Dicho aviso debe ser comunicado al público y estar siempre visible en las ventanillas correspondientes.
