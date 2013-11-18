@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de Licencias Municipales requerido en el transit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-19 | la propia norma |
+| 2 | 2013-11-18 | Reglamento municipal 298 (2013-11-18) |
