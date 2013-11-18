@@ -1,0 +1,2 @@
+Artículo 10.—Momento de Notificación al Regulado de documentos enviados por SUGEVAL.
+Cuando SUGEVAL envía un documento al regulado por medio del MENDOCEL, éste se entenderá notificado al día hábil siguiente a la fecha de su registro en el sistema. Si el documento contiene un plazo que debe observar el regulado, éste empezará a correr a partir del día hábil siguiente al día en que se tiene por efectuada la notificación.

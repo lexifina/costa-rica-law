@@ -1,0 +1,3 @@
+Artículo 2º—Alcance.
+El presente Acuerdo define las reglas y criterios que han de observarse para la presentación y tramitación por medios electrónicos de documentos entre la Superintendencia General de Valores y sus Regulados en el contexto del domicilio electrónico que proporcionará el Sistema de Mensajería de Documentos Electrónicos (MENDOCEL).
+Todos los sujetos regulados por la Superintendencia General de Valores deberán acatar la presente normativa. Los documentos sujetos al alcance de estas disposiciones, que no se ajusten a lo aquí dispuesto, se tendrán por no presentados para todo efecto legal. Las obligaciones y plazos que deben observar los regulados se detallan en el Transitorio de este Acuerdo.

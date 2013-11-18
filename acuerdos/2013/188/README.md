@@ -1,0 +1,16 @@
+# Acuerdo 188
+
+Directriz para la Implementación del Sistema de Mensajería de Documentos Electrónicos (MENDOCEL)
+
+- Tipo: Acuerdo
+- Número: 188
+- Fecha: 2013-10-14
+- Ente emisor: Superintendencia General de Valores
+- Publicación: La Gaceta N° 222 del 2013-11-18
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=76016&param2=94757&param3=1 (ficha 76016)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2013-11-18 | la propia norma |
