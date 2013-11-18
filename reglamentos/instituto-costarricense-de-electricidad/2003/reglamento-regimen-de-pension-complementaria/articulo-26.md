@@ -1,0 +1,2 @@
+Artículo 26.—Cuando por motivo de transformación del perfil de requisitos y beneficios del Régimen, se determine la conveniencia de efectuar la conmutación de las pensiones en curso de pago incluidas en el beneficio modificado o suprimido, se faculta a la Junta Administrativa para realizar la conmutación de las pensiones correspondientes, sustentado en un estudio actuarial que demuestre su sostenibilidad.
+(Así adicionado mediante sesión N° 6067 del 18 de noviembre del 2013)
