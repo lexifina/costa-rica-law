@@ -1,0 +1,2 @@
+Artículo 28.—El Régimen de Pensiones podrá otorgar pensión adelantada cuando el solicitante haya cumplido 60 años en el caso de los hombres o 58 años en el caso de las mujeres. En este caso el porcentaje de reducción del monto de la pensión sería el equivalente de 7.28% para la mujer y de un 9.55% en el caso de los hombres, siempre que se cumplan los demás requisitos contenidos en el presente reglamento.
+(Así adicionado mediante sesión N° 6067 del 18 de noviembre del 2013)
