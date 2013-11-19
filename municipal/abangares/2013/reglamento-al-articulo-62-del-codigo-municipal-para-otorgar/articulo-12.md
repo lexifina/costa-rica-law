@@ -1,0 +1,1 @@
+Artículo 12.—Del plazo de ejecución de los fondos transferidos: Los fondos transferidos a la Municipalidad provenientes del Poder Ejecutivo, fundamentados en la declaración de emergencia nacional, y que serán usados para los fines específicos regulados en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 11.—De las transferencias de fondos del Poder Ejecutivo: Los recursos financieros que gire el Poder Ejecutivo, de conformidad con la declaratoria de emergencia y el artículo 180 constitucional, deberán ser incorporados al presupuesto municipal, para lo cual deberá plantearse la gestión correspondiente ante la Contraloría General de la República.

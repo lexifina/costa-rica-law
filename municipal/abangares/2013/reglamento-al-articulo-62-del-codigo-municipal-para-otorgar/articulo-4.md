@@ -1,0 +1,1 @@
+Artículo 4º—Del plazo de presentación de la solicitud: Las solicitudes podrán presentarse en un plazo máximo de quince días hábiles posteriores a la publicación de este reglamento y cumpliendo el decreto ejecutivo N° 37305-MP.
