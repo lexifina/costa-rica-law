@@ -1,0 +1,6 @@
+SECCIÓN I
+Calificación de la situación de normalidad
+financiera de los fondos administrados
+Artículo 4°—Grado de normalidad financiera. Se entiende que una entidad regulada se encuentra en tipo de operación normal en la gestión o administración financiera de los fondos cuando no se encuentre en alguno de los grados de irregularidad financiera previstos en el artículo 41 y 42 de la Ley 7523, Régimen Privado de Pensiones Complementarias.
+El tipo de normalidad financiera obtenido por las entidades reguladas que gestionan los fondos administrados deberá comunicarse a estas últimas. La comunicación donde conste la calificación deberá encontrarse debidamente motivada y contendrá, al menos, un detalle de las situaciones observadas, los elementos o pruebas que le sirven de sustento.
+El resultado de la evaluación será de carácter reservado por lo que la entidad regulada no podrá dar a conocer dicho resultado al público en general, sus afiliados, ni realizar publicidad de ningún tipo con ella. Por su parte la Superintendencia de Pensiones, no podrá dar a conocer las calificaciones, salvo a la entidad regulada y al Consejo Nacional de Supervisión del Sistema Financiero, cuando así corresponda.

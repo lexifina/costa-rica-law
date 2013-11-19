@@ -1,0 +1,1 @@
+Artículo 17.—Vigencia de las calificaciones. El tipo de normalidad o de irregularidad financiera asignado a cada uno de las entidades reguladas rige a partir de la fecha en que sea comunicado por el Superintendente de Pensiones y hasta la fecha en que el Superintendente de Pensiones comunique alguna modificación en el tipo de normalidad o irregularidad financiera.
