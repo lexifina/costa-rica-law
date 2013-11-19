@@ -1,0 +1,1 @@
+Artículo 3º—Mecánica de participación. Participan los vendedores de lotería activos (adjudicatarios, socios de cooperativa, vendedores por contrato, socios comerciales) que retiren Lotería Nacional, Popular e Instantánea.

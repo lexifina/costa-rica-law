@@ -1,0 +1,4 @@
+Artículo 8º—Vigencia. Se detalla la vigencia de los planes de incentivos para los vendedores:
+ü Lotería Nacional: se inicia con el sorteo del 27 de octubre, 2013 y se finaliza con el sorteo del 24 de noviembre, 2013 para un total de 5 sorteos, posteriormente se premiarían a los vendedores que vendan el sorteo Extraordinario del Gordo Navideño Nº 4266 del 15 de diciembre, 2013.
+ü Lotería Popular: se premiarán a los vendedores que vendan el premio mayor de los sorteos tanto de martes como de viernes, se inicia con el sorteo de números bajos del 29 de octubre, 2013 y se finaliza con el sorteo de los viernes del 06 de diciembre, 2013 para un total de 12 sorteos.
+ü Lotería Instantánea: se premiarán a los vendedores que vendan los premios mayores de los juegos Súper Sueldo III, Sueldazo II y Rueda de la Fortuna, en cuanto a la vigencia se encuentra supeditada a la vigencia de cada juego, la cual es definida por la Administración según el comportamiento de venta.
