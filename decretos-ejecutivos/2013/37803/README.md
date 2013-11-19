@@ -14,3 +14,4 @@ Adición y modificación al Reglamento General sobre los Procedimientos de Evalu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-17 | la propia norma |
+| 2 | 2013-11-19 | Decreto Ejecutivo 38024 (2013-11-19) |
