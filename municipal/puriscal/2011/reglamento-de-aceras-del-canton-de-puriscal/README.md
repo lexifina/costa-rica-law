@@ -14,3 +14,4 @@ Reglamento de aceras del cantón de Puriscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-21 | la propia norma |
+| 2 | 2013-11-19 | Reglamento municipal 310 (2013-11-19) |
