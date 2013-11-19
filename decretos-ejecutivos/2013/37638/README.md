@@ -15,3 +15,4 @@ Reforma decreto ejecutivo N° 37341 "Aprueba Reglamento Técnico RTCR 452:2011 B
 | --- | --- | --- |
 | 1 | 2013-04-12 | la propia norma |
 | 2 | 2013-05-27 | Acuerdo 0 (2013-05-27) |
+| 3 | 2013-11-19 | Acuerdo 0 (2013-11-19) |
