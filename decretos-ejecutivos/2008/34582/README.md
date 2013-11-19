@@ -18,3 +18,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | 3 | 2008-12-16 | Decreto Ejecutivo 34986 (2008-12-16) |
 | 4 | 2011-06-14 | Decreto Ejecutivo 36646 (2011-06-14) |
 | 5 | 2012-07-19 | Decreto Ejecutivo 37241 (2012-07-19) |
+| 6 | 2013-11-19 | Decreto Ejecutivo 38037 (2013-11-19) |

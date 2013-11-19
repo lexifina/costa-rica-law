@@ -1,7 +1,9 @@
 Artículo 5º.- Ministros Rectores. Corresponderá a los Ministros Rectores dirigir y coordinar la realización de las políticas y estrategias públicas sectoriales de la Administración tanto Central como Descentralizada. Para ello se establecen las siguientes rectorías:
-a) El Sector Ambiente, Energía y Telecomunicaciones estará bajo la rectoría de la o el Ministro de Ambiente, Energía y Telecomunicaciones;
+a) El Sector Ambiente y Energía estará bajo la rectoría de la o el Ministro de Ambiente y Energía;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38037 del 19 de noviembre del 2013)
 b) El Sector Bienestar Social y Familia estará bajo la rectoría de la o el Ministro de Bienestar Social y Familia;
-c) El Sector Ciencia, Tecnología e Innovación estará bajo la rectoría de la o el Ministro de Ciencia y Tecnología;
+c) El Sector Ciencia, Tecnología, Innovación y Telecomunicaciones estará bajo la rectoría de la o el Ministro de Ciencia, Tecnología y Telecomunicaciones;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38037 del 19 de noviembre del 2013)
 d) El Sector Comercio Exterior estará bajo la rectoría de la o el Ministro de Comercio Exterior;
 e) El Sector Cultura estará bajo la rectoría de la o el Ministro de Cultura y Juventud;
 f) El Sector Educativo estará bajo la rectoría de la o el Ministro de Educación Pública;
