@@ -16,3 +16,4 @@ Aprueba Reglamento Técnico RTCR 452:2011 Barras y Alambres de Acero de refuerzo
 | 1 | 2013-05-24 | la propia norma |
 | 2 | 2013-05-24 | Decreto Ejecutivo 37638 (2013-04-08) |
 | 3 | 2013-05-27 | Acuerdo 0 (2013-05-27) |
+| 4 | 2013-11-19 | Acuerdo 0 (2013-11-19) |
