@@ -22,3 +22,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 7 | 2013-11-14 | Decreto Ejecutivo 38078 (2013-11-14) |
 | 8 | 2013-11-20 | Decreto Ejecutivo 38054 (2013-11-20) |
 | 9 | 2013-11-20 | Decreto Ejecutivo 38055 (2013-11-20) |
+| 10 | 2013-11-20 | Decreto Ejecutivo 38053 (2013-11-20) |
