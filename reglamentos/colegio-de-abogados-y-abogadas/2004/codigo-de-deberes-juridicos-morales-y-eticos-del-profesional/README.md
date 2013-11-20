@@ -20,3 +20,4 @@ Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho.
 | 5 | 2013-05-27 | Reglamento 18 (2013-05-27) |
 | 6 | 2013-06-17 | Reglamento 21 (2013-06-17) |
 | 7 | 2013-09-17 | Reglamento 0 (2013-09-17) |
+| 8 | 2013-11-20 | Reglamento 0 (2013-11-20) |
