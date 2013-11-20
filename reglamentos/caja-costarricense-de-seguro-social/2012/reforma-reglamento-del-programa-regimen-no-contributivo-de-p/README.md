@@ -14,3 +14,4 @@ Reforma Reglamento del Programa Régimen no Contributivo de Pensiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-06 | la propia norma |
+| 2 | 2013-11-20 | SINALEVI (sin norma nombrada) |
