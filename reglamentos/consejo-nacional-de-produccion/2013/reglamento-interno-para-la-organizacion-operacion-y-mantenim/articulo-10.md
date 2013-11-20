@@ -48,7 +48,8 @@ i) Elaborar los reportes e informes derivados de la administración de los riesg
 j) Generar reuniones con el personal a su cargo para el análisis y seguimiento de las acciones realizadas para la el tratamiento de riesgos y el fortalecimiento del SCII.
 k) Las que le señala el Capítulo III de la LGCI.
 De Planificación
-Como Dirección especialísima asesora de la Junta Directiva le corresponde:
+Como Dependencia especializada asesora de la Presidencia Ejecutiva le corresponde:
+(Así reformado el párrafo anterior mediante sesión N° 2886 del 20 de noviembre del 2013)
 a) Coordinar, con todas las dependencias institucionales, las acciones para efectuar la evaluación del Plan de tratamiento de riesgos y la autoevaluación anual del SCII.
 b) Recopilar y consolidar toda la información que se genere en el proceso de autoevaluación del SCII.
 c) Evaluar los resultados de los planes de mejora del SCII elaborados por los titulares subordinados y comunicar oportunamente a la CANCI cuando esos planes de acción no estén generando los resultados esperados.

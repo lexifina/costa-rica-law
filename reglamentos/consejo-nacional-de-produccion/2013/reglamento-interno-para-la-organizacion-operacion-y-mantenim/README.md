@@ -14,3 +14,4 @@ Reglamento interno para la organización, operación y mantenimiento del sistema
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-12 | la propia norma |
+| 2 | 2013-11-20 | Reglamento 2886 (2013-11-20) |
