@@ -14,3 +14,4 @@ Reglamento para la aprobación de variaciones al Presupuesto del Banco Central d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-01 | la propia norma |
+| 2 | 2013-11-20 | Reglamento 5623 (2013-11-20) |

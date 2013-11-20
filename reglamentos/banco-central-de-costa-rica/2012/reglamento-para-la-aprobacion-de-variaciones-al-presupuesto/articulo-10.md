@@ -1,3 +1,3 @@
-Artículo 10.—La Comisión Permanente de Análisis Presupuestario del Consejo Nacional de Supervisión del Sistema Financiero, tendrá a cargo las siguientes actividades:
+Artículo 10.—El Comité Permanente de Presupuesto, Gestión de Riesgo y Evaluación Institucional del Consejo Nacional de Supervisión del Sistema Financiero, tendrá a cargo las siguientes actividades:
 a. Conocer y rendir criterio sobre toda solicitud de modificación presupuestaria, presupuesto extraordinario o cuando se solicita autorización para la sustitución de bienes, detallando el impacto que tendrá esa solicitud en el POI-Presupuesto, asignado a la Superintendencia de que se trate.
 b. Remitir a los Órganos de Desconcentración Máxima un cronograma anual para la presentación de presupuestos extraordinarios, el cual debe tomar en cuenta el cronograma, con las fechas en que se ejecutarán anualmente las variaciones presupuestarias, emitido por el Banco.
