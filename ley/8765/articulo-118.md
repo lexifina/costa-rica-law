@@ -1,2 +1,3 @@
 ARTÍCULO 118.- Publicidad de cesiones
 Las operaciones en el Sistema Bancario Nacional, respaldadas con los certificados de cesión aquí previstas deberán reportarse al TSE, y todos sus términos y condiciones serán públicos.
+(Mediante resolución de la Sala Constitucional N° 15343 del 20 de noviembre de 2013, se declaró sin lugar la acción interpuesta contra este artículo “siempre y cuando se interpreten las normas que regulan la "cesión de derechos de contribución estatal" en el sentido de que, la cesión de derechos únicamente puede realizarse entre personas físicas nacionales, a favor de los bancos que integran el Sistema Bancario Nacional y de los medios de comunicación colectiva.”)
