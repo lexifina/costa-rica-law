@@ -1,0 +1,1 @@
+Artículo 13.—Sesiones Extraordinarias. La Comisión sesionará extraordinariamente, a solicitud del coordinador o de por lo menos dos miembros que así lo soliciten. La convocatoria a las sesiones extraordinarias la realizará el coordinador de la Comisión, con al menos setenta y dos horas de anticipación.

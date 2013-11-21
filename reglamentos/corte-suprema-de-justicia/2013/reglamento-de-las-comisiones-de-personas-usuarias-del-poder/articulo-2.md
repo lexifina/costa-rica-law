@@ -1,0 +1,1 @@
+Artículo 2º—Concepto de las Comisiones de Personas Usuarias. Las Comisiones de Personas Usuarias son instancias de participación social con carácter consultivo, que analizan la calidad del servicio público que presta el Poder Judicial.

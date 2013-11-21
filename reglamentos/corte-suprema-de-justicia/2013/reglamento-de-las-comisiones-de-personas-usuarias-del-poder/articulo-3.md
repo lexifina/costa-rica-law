@@ -1,0 +1,1 @@
+Artículo 3º—Propósito de las Comisiones de Personas Usuarias. El propósito de las Comisiones de Personas Usuarias es identificar deficiencias que afecten la eficacia y eficiencia de los servicios que brinda el Poder Judicial y sugerir posibilidades de mejora de estos.
