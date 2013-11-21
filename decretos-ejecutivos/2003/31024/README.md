@@ -18,3 +18,4 @@ Reglamento General de Juntas de Educación y Juntas Administrativas
 | 3 | 2008-01-09 | Decreto Ejecutivo 34427 (2008-01-09) |
 | 4 | 2012-03-23 | Decreto Ejecutivo 37154 (2012-03-23) |
 | 5 | 2012-04-16 | Decreto Ejecutivo 37191 (2012-04-16) |
+| 6 | 2013-11-21 | SINALEVI (sin norma nombrada) |
