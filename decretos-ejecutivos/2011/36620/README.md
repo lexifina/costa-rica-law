@@ -14,3 +14,4 @@ Reforma Reglamento General de Juntas de Educación y Juntas Administrativas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-23 | la propia norma |
+| 2 | 2013-11-21 | SINALEVI (sin norma nombrada) |

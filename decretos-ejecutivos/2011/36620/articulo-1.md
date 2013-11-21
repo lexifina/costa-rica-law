@@ -1,4 +1,6 @@
+(Anulada)
 Nº 36620-MEP
+(Mediante resolución del Tribunal Procesal Contencioso Administrativo, Sección Séptima, N° 81-2013-VII del 21 de noviembre de 2013, se anuló la presente norma)
 LA PRESIDENTA DE LA REPÚBLICA
 Y EL MINISTRO DE EDUCACIÓN PÚBLICA
 En ejercicio de las atribuciones conferidas por el artículo 140 incisos 8) y 18) de la Constitución Política y 59 de la Ley General de la Administración Pública,
