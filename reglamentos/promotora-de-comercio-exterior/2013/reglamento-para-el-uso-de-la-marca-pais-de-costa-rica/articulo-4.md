@@ -1,0 +1,3 @@
+Artículo 4.- Mensaje central de la Marca País Costa Rica
+El mensaje central de la marca país, en el mediano y largo plazo, es que Costa Rica concentra, posee, potencia y cuida aquello que es clave para el futuro: biodiversidad, belleza natural única, calidad, talento humano especializado, innovación, una ubicación privilegiada, diversidad de pueblos indígenas, valor agregado en sus productos y profesionales.
+La esencia es el componente transversal que cruza todos los activos que presenta la marca país: para los conocedores que saben lo que buscan y que, a pesar de ello, no dejan de asombrarse con lo que encuentran, siempre más de lo que esperaban. En esa esencia concentrada se encuentra el verdadero valor del país: su gente.

@@ -1,0 +1,6 @@
+CAPITULO IV
+De las licencias de uso
+Artículo 13.- Licencia de uso de la Marca País Costa Rica
+La Marca País Costa Rica no podrá ser utilizada libremente por ninguna persona física o jurídica, requiriéndose una autorización de la institución cotitular de la marca país, según el área de su competencia. Tal autorización se otorgará mediante una licencia de uso.
+Para la utilización de la marca país en los temas relacionados con exportaciones e inversiones se requerirá una licencia de uso otorgada por la Promotora de Comercio Exterior de Costa Rica.
+El otorgamiento de una licencia de uso de conformidad con los términos de este Reglamento, no implicará ni podrá interpretarse en el sentido de que PROCOMER garantiza, avala o respalda la calidad, efectividad, puntualidad ni ninguna otra característica de los licenciatarios, ni de los productos que estos venden o los servicios que estos brindan. Asimismo, el otorgamiento de una licencia de uso no conferirá al licenciatario ningún derecho de propiedad, titularidad, o disposición de la marca, ni por interpretación ni por ampliación, ni tampoco le conferirá ningún derecho de uso o aprovechamiento distinto o en adición a los indicados expresamente en este Reglamento.

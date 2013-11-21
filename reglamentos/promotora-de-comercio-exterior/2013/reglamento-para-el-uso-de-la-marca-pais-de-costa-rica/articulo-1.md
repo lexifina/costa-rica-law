@@ -1,0 +1,30 @@
+PROMOTORA DE COMERCIO EXTERIOR
+DE COSTA RICA
+La Junta Directiva de la Promotora del Comercio Exterior de Costa Rica en la sesión N° 310-2013, se aprobó el Reglamento para el uso de la Marca País Costa Rica. El Reglamento vigente podrá ser consultado en su página web: www.procomer.com.
+San José, 9 de julio del 2013.—
+(Nota de Sinalevi: La presente norma se extrajo del sitio web de la Promotora de Comercio Exterior de Costa Rica, y se transcribe a contiuación:)
+REGLAMENTO PARA EL USO DE LA MARCA PAIS COSTA RICA
+CONSIDERANDO:
+I. Que de acuerdo a la experiencia internacional, la creación y conceptualización de una marca país parte de la definición de una estrategia de posicionamiento que sea construida, articulada e implementada por el conjunto de actores que la representará tanto desde el sector público como del privado y que le permita, entre otras cosas, potenciar y garantizar su permanencia en el largo plazo. De manera que una estrategia de marca país se convierte en una política de Estado tendente a garantizar la coherencia y coordinación de las actividades e instrumentos que potencien la promoción del país en el exterior, buscando generar paralelamente confianza entre los inversionistas y el público extranjero así como alcanzar mejores oportunidades en el campo comercial, cultural, de inversión y turismo.
+II. Que una estrategia de marca país correctamente articulada, apropiada e implementada nos podrá permitir dar un alto valor agregado a los bienes y servicios de Costa Rica, así como estimular mayores inversiones, consumo internacional y un fomento directo de nuestras exportaciones, así como consolidar los sectores de bienes y servicios con potencial comercial y diferenciador. Es por tanto una estrategia capaz de fortalecer la imagen de los países en el exterior, contribuyendo directamente a fortalecer la competitividad.
+III. Que en el contexto descrito, PROCOMER ha participado de forma activa en el proceso de coordinación que se ha gestado entre diferentes instituciones públicas con el fin de articular una estrategia nacional para optimizar la imagen de Costa Rica en el exterior, con el beneficio que de ello deriva, para todos los sectores de la sociedad, incluyendo el sector exportador costarricense.
+IV. Que mediante el Decreto Ejecutivo número 37669 del 22 de marzo del 2013, publicado en el diario oficial La Gaceta N° 91 del 14 de mayo del 2013, se emitió el Reglamento para la implementación y uso de la Marca País Costa Rica, normativa a través de la cual, entre otras cosas, se declara de interés público nacional las actividades que se realicen con motivo del diseño, promoción e implementación de la Marca País Costa Rica, así como se crea el Comité de Marca País.
+V. Que el día 03 de setiembre del presente año, bajo el lema “esencial Costa Rica”, se dio el lanzamiento de la nueva Marca País Costa Rica, acto que se produce luego de un proceso de cuatro años en el cual intervinieron el ICT, el Ministerio de Comercio Exterior, la Promotora de Comercio Exterior (Procomer) y CINDE.
+VI. Que los atributos que destaca la marca es la autenticidad de los costarricenses, la concentración (definido como un país verde), el orgullo donde se destacan eventos como la abolición del ejército y la democracia del país. Además, de ser Costa Rica una nación con alto talento humano.
+VII. Que con el interés de fortalecer el proceso anterior, resulta prioritario definir el marco de condiciones, requerimientos y metodologías que se estarán utilizando para la solicitud, evaluación, otorgamiento y uso de la Marca País Costa Rica.
+VIII. Que según lo establecido en el artículo 19 del Reglamento para la implementación y uso de la Marca País Costa Rica, anteriormente citado, las Unidades Ejecutoras para la implementación, promoción y ejecución de la Marca País, son las siguientes:
+a) El Instituto Costarricense de Turismo (ICT) para temas relacionados con Turismo.
+b) La Promotora del Comercio Exterior de Costa Rica (PROCOMER) para los temas relacionados con exportaciones y atracción de inversiones.
+IX. Que las citadas Unidades Ejecutoras serán las encargadas de realizar el trámite de inscripción de la Marca País en los registros correspondientes bajo la figura de la cotitularidad.
+X. Que a partir del mes de julio del presente año, las marcas essential Costa Rica y esencial Costa Rica están debidamente registradas ante el Registro de la Propiedad Industrial del Registro Nacional, bajo los registros números 228803 y 229122, bajo la cotitularidad de Procomer y el ICT.
+XI. Que de conformidad con lo previsto en el artículo 20 del Reglamento para la implementación y uso de la Marca País Costa Rica, citado, PROCOMER, como unidad ejecutora, tiene dentro de sus funciones las siguientes:
+a) El otorgamiento, renovación y revocación de las licencias de la marca país.
+b) La administración y control de las licencias de uso de la marca país.
+c) Implementación de las estrategias, lineamientos y acciones sustantivas de la marca país de acuerdo a su competencia.
+d) Gestión de los recursos para la promoción, implementación y ejecución de la marca país.
+e) Emisión de los procedimientos de otorgamiento de las licencias de uso de la marca país, aplicables al sector o área de su competencia legal, en coordinación con el Comité de Marca País.
+XII. Que de conformidad con lo dispuesto en el inciso a) del artículo 11 de la Ley N° 7638, Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, corresponde a la Junta Directiva de PROCOMER el dictado las normas y los reglamentos relativos a la organización y el funcionamiento de la Promotora del Comercio Exterior de Costa Rica. Por lo tanto;
+CAPITULO I
+DISPOSICIONES GENERALES
+Artículo 1.- Objeto y ámbito de aplicación
+El presente reglamento tiene por objeto establecer las disposiciones que rigen el uso de la Marca País Costa Rica para los temas relacionados con exportaciones y atracción de inversiones.

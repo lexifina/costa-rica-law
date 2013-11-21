@@ -1,0 +1,2 @@
+Artículo 9.- De titularidad de la Marca País Costa Rica
+Corresponde a la Promotora del Comercio Exterior de Costa Rica y al Instituto Costarricense de Turismo la cotitularidad de la Marca País Costa Rica, la cual se encuentra debidamente inscrita y protegida en el Registro de la Propiedad Industrial del Registro Nacional, según los términos de la Ley de Derechos de Autor y Derechos Conexos y sus reformas, Ley N° 6683 y su reglamento.

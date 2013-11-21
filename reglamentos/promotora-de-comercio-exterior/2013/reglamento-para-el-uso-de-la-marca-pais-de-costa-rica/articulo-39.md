@@ -1,0 +1,3 @@
+Artículo 39.- Domicilio electrónico permanente.
+Los licenciatarios deberán señalar una dirección de correo electrónico como su domicilio legal para la recepción de notificaciones relacionadas con los trámites. Este señalamiento deberá realizarse mediante una manifestación expresa y por escrito. La seguridad y la seriedad de la cuenta seleccionada son responsabilidad del solicitante.
+El señalamiento de domicilio electrónico podrá ser variado o revocado en cualquier tiempo, previa notificación por escrito a PROCOMER, sin perjuicio de las consecuencias jurídicas surgidas hasta ese momento.

@@ -1,0 +1,2 @@
+Artículo 22.- Publicación en la web
+PROCOMER publicará en su página web www.esencialcostarica.com la lista de evaluadores autorizados, el protocolo de evaluación, los parámetros mínimos requeridos por cada uno de los valores de la Marca País Costa Rica, el formulario de solicitud de licencia, formatos de los informes técnicos de cumplimiento del protocolo de evaluación, formatos de las declaraciones juradas, las notas mínimas, la lista de las empresas licenciatarias vigentes de la Marca País Costa Rica.

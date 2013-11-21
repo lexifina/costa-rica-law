@@ -1,0 +1,3 @@
+Artículo 19.- Evaluadores certificados
+El interesado en obtener la licencia de uso de la marca país deberá contratar a un evaluador certificado bajo el esquema de certificación de evaluadores del Protocolo Marca País por un organismo certificador de personas acreditado ante el Ente Costarricense de Acreditación (ECA) bajo la norma ISO-17024. Dicho evaluador verificará si el interesado cumple con los parámetros mínimos establecidos por Procomer para cada uno de los valores de la marca país. Los costos de dicha contratación y el proceso de evaluación deberán ser asumidos exclusivamente y en su totalidad por el interesado.
+PROCOMER mantendrá actualizada en su página web www.esencialcostarica.com la lista de evaluadores autorizados.
