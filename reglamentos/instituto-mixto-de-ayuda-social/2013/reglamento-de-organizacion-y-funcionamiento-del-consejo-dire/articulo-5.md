@@ -12,7 +12,8 @@ j) Nombrar y remover al Gerente General, Subgerentes, Auditor, Subauditor y Cont
 k) Otorgar a los funcionarios que considere pertinente los poderes necesarios para el cumplimiento de sus funciones, fijando los montos de su actuación o límites presupuestarios y de grado en cada caso
 l) Aprobar los reglamentos de la Institución.
 ll) Autorizar, aprobar o declarar desiertas las licitaciones públicas, conforme a la ley y a los reglamentos internos respectivos.
-m) Autorizar mediante resolución motivada la prescindencia de los procesos ordinarios, y los procesos exceptuados que establece la Ley de Contratación Administrativa, su Reglamento y los Reglamentos Internos Respectivos.
+m) Autorizar el inicio de los trámites internos en las contrataciones que tengan prescindencia de los procesos ordinarios, y los procesos exceptuados que establece la Ley de Contratación Administrativa y su Reglamento; de acuerdo con los límites y niveles de competencia establecidos en los reglamentos internos.
+(Así reformado el inciso anterior mediante acuerdo N° 574-11-2013 publicado en La Gaceta N° 225 del 21 de noviembre del 2013)
 n) Aprobar las liquidaciones presupuestarias y conocer los estados económicos y financieros del Instituto.
 ñ) Conocer y emitir criterio sobre los proyectos de Ley o Decretos Ejecutivos que estime necesarios, para el mejor cumplimiento de los objetivos institucionales.
 o) Aprobar los convenios de cooperación, con entidades nacionales e internacionales, que le correspondan.
