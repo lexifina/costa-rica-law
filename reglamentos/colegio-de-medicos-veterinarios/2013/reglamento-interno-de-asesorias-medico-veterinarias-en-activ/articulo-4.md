@@ -1,0 +1,1 @@
+Artículo 4º—Los organizadores del evento están en la obligación de brindar toda la información que el Médico Veterinario solicite, respecto a los animales, manejo y actividades a realizar durante las corridas. Asimismo, deben acatar todas las recomendaciones y cambios que sean indicados por el Médico Veterinario o por el SENASA, para proteger el bienestar animal.
