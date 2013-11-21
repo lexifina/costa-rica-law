@@ -1,0 +1,1 @@
+Artículo 42. Todo proyecto obtendrá el permiso de construcción, en tanto exista la autorización expresa de las entidades competentes, que garanticen el cumplimiento de los servicios básicos a los ciudadanos y ocupantes de los proyectos.

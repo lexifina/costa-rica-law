@@ -1,0 +1,1 @@
+Artículo 111. Elementos de seguridad. La Municipalidad podrá autorizar la instalación de agujas y casetillas para guardas basándose en el Reglamento de autorización para la instalación de casetas y mecanismos de vigilancia de acceso a barrios, caseríos y residenciales del Cantón de Curridabat.

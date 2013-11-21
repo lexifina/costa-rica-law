@@ -1,0 +1,1 @@
+Artículo 44. Cuando una finca este dividida por dos Transectos, el desarrollador mediante solicitud formal y la presentación de un anteproyecto puede solicitar que se aplique el Transecto según la conveniencia del proyecto. Lo cual será analizado y aprobado por la Dirección de Desarrollo y Control Urbano.

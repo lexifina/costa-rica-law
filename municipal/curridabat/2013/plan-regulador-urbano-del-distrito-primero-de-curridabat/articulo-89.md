@@ -1,0 +1,1 @@
+Artículo 89. Condiciones Generales de diseño. Tanto para las calles existentes como para las calles nuevas incluidas en la Propuesta vial, todas deben cumplir con los estándares operativos y de diseño de las vías de acuerdo con su clasificación funcional, según la Tabla 3, condiciones generales de diseño de vialidad.

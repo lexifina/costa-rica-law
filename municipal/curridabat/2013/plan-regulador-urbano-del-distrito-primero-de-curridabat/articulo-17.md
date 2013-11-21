@@ -1,0 +1,10 @@
+Artículo 17. Parámetros Urbanísticos de las Edificaciones en el Núcleo Urbano.
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]

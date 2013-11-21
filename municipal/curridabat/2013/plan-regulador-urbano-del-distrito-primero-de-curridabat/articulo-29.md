@@ -1,0 +1,1 @@
+Artículo 29. Cada nivel, o piso, debe tener una distancia mínima de piso a cielo de 2.50 metros libres y una distancia máxima de 5 metros libres de piso a cielo. No se incluyen los motivos o elementos ornamentales o estructurales que no sean habitables, como torres abiertas, cúpulas, pérgolas, vestíbulos, salas de estar y similares.

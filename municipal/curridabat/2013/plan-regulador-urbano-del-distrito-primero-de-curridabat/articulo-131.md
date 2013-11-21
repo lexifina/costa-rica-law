@@ -1,0 +1,1 @@
+Artículo 131. Para segregaciones promovidas por instituciones estatales, que medie el interés y bienestar público en el desarrollo de proyectos viales y de servicios públicos, se exonera de requisitos de zonificación.

@@ -1,0 +1,1 @@
+Artículo 118. La persona que obstruya o de alguna forma dificulte el tránsito en las vías públicas o en sus aceras con materiales, escombros o cualquier otro objeto, será castigado con la multa establecida en el artículo 76 del Código Municipal.

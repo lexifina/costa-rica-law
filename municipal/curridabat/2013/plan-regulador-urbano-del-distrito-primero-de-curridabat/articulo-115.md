@@ -1,0 +1,1 @@
+Artículo 115. El solicitante de la licencia de rotura en las calles locales está obligado a ejecutar la reparación correspondiente y para garantizarlo deberá depositar, en la Tesorería de la Municipalidad, el valor correspondiente a la reparación (con base en el artículo III.8 y IV.16 del Reglamento de Construcciones, INVU, y artículo 12 de la Ley de Construcciones).

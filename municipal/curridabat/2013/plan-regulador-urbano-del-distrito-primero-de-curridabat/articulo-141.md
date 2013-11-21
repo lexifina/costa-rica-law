@@ -1,0 +1,1 @@
+Artículo 141. En lo previsto en este reglamento, se aplicará suplementariamente la Ley de Planificación Urbana, la Ley de Construcciones y su Reglamento, Reglamento para el Control y Fraccionamiento de Urbanizaciones y cualquier reglamentación afín.

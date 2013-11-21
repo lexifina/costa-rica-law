@@ -1,0 +1,1 @@
+Artículo 46. Aquellos propietarios, inversionistas o desarrolladores que opten por aprovechar el aumento de la altura en su proyecto, según lo permita la zona donde se ubique y que se señala en la Imagen 2, Tabla resumen del Plan Regulador en el Área Central, deben cumplir con los requisitos que se indican en los artículos siguientes de este capítulo.

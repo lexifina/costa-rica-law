@@ -1,0 +1,1 @@
+Artículo 126. Todos los lotes resultantes de las segregaciones frente a servidumbres deberán tener las mismas medidas reglamentarias que conforme con su ubicación establezca el Plan Regulador y la presente Reforma.

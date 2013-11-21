@@ -1,0 +1,1 @@
+Artículo 145. En los condominios verticales, deben indicarse al menos dos referencias que permitan el replanteo de la filial al menos en el piso que corresponde, así como se debe mostrar mediante un corte transversal que pase por la filial a catastrar, las alturas de los niveles respectivos, hasta el nivel donde se ubica la filial respectiva.

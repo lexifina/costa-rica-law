@@ -1,0 +1,1 @@
+Artículo 41. El proyecto que así lo requiera, según las leyes competentes, previamente a la revisión municipal, debe ser analizado y aprobado por el Departamento de Ingeniería de Bomberos, del Benemérito Cuerpo de Bomberos de Costa Rica, así como por las demás instituciones respectivas.

@@ -1,0 +1,1 @@
+Artículo 105. Ocupación de las vías. Los terrenos ocupados por carreteras y caminos son propiedad pública. En caso de existir dudas sobre la naturaleza de un camino público, se aplicará lo estipulado en el Artículo 7 de la Ley de Construcciones Nacional.

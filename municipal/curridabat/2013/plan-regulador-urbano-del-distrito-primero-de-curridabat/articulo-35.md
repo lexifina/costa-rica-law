@@ -1,0 +1,1 @@
+Artículo 35. Para cualquier edificio de uso residencial o mixto, los parqueos deben cumplir con los parámetros urbanísticos de cada zona y estar integrados al proyecto o presentar una solución que debe ser analizada y aprobada por la Municipalidad.

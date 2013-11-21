@@ -1,0 +1,1 @@
+Artículo 48. Únicamente se puede optar por edificios que superen la altura base/típica en las zonas denominadas en el presente Reglamento de Plan Regulador como Núcleo Urbano, Zona Urbana Central, Zona Urbana General.

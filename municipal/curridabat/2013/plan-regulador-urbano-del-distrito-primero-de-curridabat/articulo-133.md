@@ -1,0 +1,1 @@
+Artículo 133. Todo proyecto de urbanización deberá ser presentado a la Municipalidad para que este lo dictamine desde el punto de vista técnico dentro del plazo de quince días hábiles; posteriormente lo conocerá el Concejo Municipal para que apruebe o rechace el proyecto, conforme con la legislación existente, el cual deberá conocerlo en la sesión siguiente a la presentación.

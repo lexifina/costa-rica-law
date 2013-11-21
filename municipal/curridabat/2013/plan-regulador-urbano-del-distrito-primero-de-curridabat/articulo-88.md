@@ -1,0 +1,1 @@
+Artículo 88. Espacio de circulación de los vehículos. Son aquellos caminos públicos de carácter nacional y municipal por los que transitan tanto vehículos particulares, vehículos de pasajeros y de carga de mercancías. En el presente Reglamento se darán las características de diseño y construcción de las calles pertenecientes a la Red Vial Cantonal.

@@ -1,0 +1,5 @@
+CAPÍTULO 7
+DESARROLLO SOSTENIBLE EN EL
+CANTÓN DE CURRIDABAT
+Artículo 61. Con el fin de dotar a la Municipalidad de Curridabat de los instrumentos necesarios para garantizar la sostenibilidad de las actividades productivas del Cantón, actuales y futuras, así como el
+aprovechamiento eficiente y responsable de los recursos naturales, sin comprometer con ello la posibilidad de que las generaciones futuras disfruten del mismo aprovechamiento,se establece a continuación el Capítulo de Desarrollo Sostenible del Cantón de Curridabat, que incorpora el Índice de Fragilidad Ambiental, denominado IFAs,aprobado por la SETENA, según expediente Numero EAE: 23-2009. Y es aplicable a todo el territorio del Cantón de Curridabat, de conformidad con el artículo 50 de la Constitución Política de la República de Costa Rica, la Ley Orgánica del Ambiente 7554 y en uso de las facultades que le confieren el artículo 4º el Código Municipal, a la Municipalidad y sus órganos, a la Comunidad de Curridabat y sus organizaciones.

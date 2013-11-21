@@ -1,0 +1,1 @@
+Artículo 65. En el Área Central del Canton de Curridabat es equivalente las zonas de Alta Densidad, Media Densidad y usos Comerciales del Plan Regulador publicado en la Gaceta 197 del viernes 15 de octubre de 1993, a la Zona Nucleo Urbano, Zona Urbano Central y Urbano General, según la imagen 1, Mapa del Plan Regulador del Area Central del Capítulo 2.

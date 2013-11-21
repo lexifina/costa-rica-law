@@ -1,0 +1,1 @@
+Artículo 30. Quedan excluidos de la altura mínima o máxima de piso, iglesias, teatros, auditorios, cines, restaurantes, bares, salones de reuniones, de baile o de eventos, estaciones de servicio, de tren o de buses y cualquier otra obra que reúna multitud de personas.

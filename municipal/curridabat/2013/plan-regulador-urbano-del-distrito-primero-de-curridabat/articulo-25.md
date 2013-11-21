@@ -1,0 +1,1 @@
+Artículo 25. Aquel uso que no se encuentra en la Tabla 1, Tabla de usos de suelo para el Área Central de Curridabat, será analizado y valorado por la Dirección de Desarrollo y Control Urbano, la Dirección Jurídica y el Departamento de Patentes de la Municipalidad de Curridabat y resolverán en conjunto sí se aprueba o no el uso solicitado.

@@ -1,0 +1,4 @@
+Artículo 125. Todos los lotes resultantes de un fraccionamiento tendrán acceso directo a vía pública, En casos muy calificados, la municipalidad podrá admitir el accionamiento de lotes mediante servidumbre de paso, siempre y cuando se cumpla con los siguientes requisitos:
+a) En segregaciones no mayores de tres lotes, y únicamente para vivienda unifamiliar, se podrá aceptar una servidumbre de tres metros con treinta centímetros de ancho, dentro de los cuales un metro con veinte centímetros corresponderá a acera, y cuya longitud de acceso a los lotes interiores no excederá de sesenta metros, además deberán indicar los inmuebles sirvientes.
+b) Por cada lote adicional, para vivienda unifamiliar se requiere un metro con treinta centímetros adicional de ancho de la servidumbre, hasta completar seis metros con treinta centímetros de ancho.
+c) Frente a servidumbre solamente se podrá segregar un máximo de seis lotes.

@@ -1,0 +1,1 @@
+Artículo 23. Es requisito indispensable para los propietarios o desarrolladores realizar el tramite de Uso de Suelo previo al tramite de patentes o permisos de construcción, ampliación, remodelación o reconstrucción.

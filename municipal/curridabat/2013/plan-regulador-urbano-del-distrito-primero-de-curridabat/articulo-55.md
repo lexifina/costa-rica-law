@@ -1,0 +1,1 @@
+Artículo 55. Todos los proyectos de edificios que superen la altura base/típica deben incluir la instalación de mobiliario urbano, en el espacio público, para beneficio de la comunidad. Para esto, deberán retirarse en el frente de la propiedad lo que se exija en cada transepto, según los artículos 57.1, 58.1, 59.1 del presente Reglamento.

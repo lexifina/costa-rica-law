@@ -1,0 +1,1 @@
+Artículo 54. Todo condominio residencial o mixto, debe destinar el diez por ciento (10%) del lote a desarrollar para áreas verdes, juegos infantiles, parques o áreas recreativas, independiente de la cantidad de filiales del proyecto. Dentro de este porcentaje se cuenta las áreas que el desarrollador traspase al municipio para dominio público, como por ejemplo calles o parques.

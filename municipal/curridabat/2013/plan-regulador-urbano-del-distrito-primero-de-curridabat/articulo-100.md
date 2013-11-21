@@ -1,0 +1,2 @@
+Artículo 100. Señalamiento Vertical. La capacidad retrorreflectiva deberá estar constituida por papel de alta intensidad prismático según lo establecido con la norma ASTM-4956 Tipo III.
+La altura libre entre la acera y la señal de transito será mínimo 2.10 metros, con una distancia de retiro lateral de 0.30 metros a 0.60 metros, medidos desde el borde del cordón de la acera hasta la proyección vertical del borde más cercano de la señal.

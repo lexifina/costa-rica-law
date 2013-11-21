@@ -1,0 +1,1 @@
+Artículo 38. Todo proyecto residencial, a partir de los 3 niveles, debe contar con mínimo un elevador y escaleras de emergencia que cumplan con las condiciones de accesibilidad y seguridad mínimas regidas por las entidades y leyes competentes.

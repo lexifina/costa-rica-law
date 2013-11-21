@@ -1,0 +1,1 @@
+Artículo 136. Los anchos de las vías de urbanizaciones, así como de las aceras, serán conforme a la presente Reforma, el Plan Regulador y el Reglamento para el Control Nacional de fraccionamiento y Urbanización.

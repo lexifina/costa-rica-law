@@ -1,0 +1,1 @@
+Artículo 99. La instalación de cualquier tipo de señalización publicitaria, deberá estar acorde con lo estipulado en el Reglamento para la regulación de la publicidad exterior en el Cantón de Curridabat.

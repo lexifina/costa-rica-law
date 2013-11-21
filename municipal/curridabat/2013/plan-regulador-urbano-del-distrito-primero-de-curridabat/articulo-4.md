@@ -1,0 +1,1 @@
+Artículo 4. El Concejo Municipal, con el fin de garantizar una cuidad acorde a las necesidades de los ciudadanos de Curridabat, deberá emitir reglamentos complementarios al presente Plan Regulador, que incluyan aspectos como recuperación de la cobertura verde, conectividad vial, construcción, publicidad exterior y otros afines.

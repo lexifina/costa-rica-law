@@ -1,0 +1,1 @@
+Artículo 86. Red Vial Cantonal. Son todos los elementos constitutivos de su derecho de vía, tales como calzada; espaldones; zonas verdes; puentes viales y peatonales, fijos o colgantes; aceras; ciclo vías; sistema de drenaje; cordón y caño; obras de estabilización o contención; túneles; entre otros, que técnicamente pueden considerarse.

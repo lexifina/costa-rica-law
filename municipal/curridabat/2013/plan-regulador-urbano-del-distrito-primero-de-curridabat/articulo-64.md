@@ -1,0 +1,1 @@
+Artículo 64. Con respecto al artículo anterior, la Zona Residencial de Muy Baja Densidad es equivalente a Zona Suburbana de Crecimiento Controlado; y Zona Residencial de Muy Alta Densidad es equivalente a Alta Densidad del Plan Regulador publicado en la Gaceta 197 del viernes 15 de octubre de 1993.

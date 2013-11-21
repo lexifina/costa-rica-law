@@ -1,0 +1,4 @@
+Artículo 153. SANCIONES, MODIFICACIONES Y VIGENCIA. La contravención a las normas del presente reglamento se sancionará de la siguiente forma:
+a. - La instalación de actividades en edificios ya existentes que implican un uso que no concuerda con la zonificación indicada, se sancionará con la clausura del local, perjuicio de la responsabilidad penal en que incurra.
+b. - La Municipalidad llevará acabo la suspensión de toda obra que se ejecute en contravención a la zonificación, pudiendo disponer para ello del auxilio la fuerza pública.
+c. - Se aplicarán además todas las sanciones civiles y penales contempladas las leyes correspondientes. Serán acreedores a dichas sanciones tanto los infractores cornos los funcionarios responsables del cumplimiento de este reglamento que conste en la violación del mismo.

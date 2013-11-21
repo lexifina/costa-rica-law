@@ -1,0 +1,1 @@
+Artículo 137. El amansamiento de toda urbanización en cuanto a tamaño, tipo, forma o bloques, será conforme lo establece el Plan Regulador, la presente Reforma y el Reglamento para el Control Nacional de Fraccionamiento y Urbanización.

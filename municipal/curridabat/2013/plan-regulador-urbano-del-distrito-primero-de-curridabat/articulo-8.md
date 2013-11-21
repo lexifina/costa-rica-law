@@ -1,0 +1,1 @@
+Artículo 8. Las distintas zonas que componen el Área Central de Curridabat cuentan con características urbanísticas, espaciales y de uso, señaladas en la Tabla Resumen del Plan Regulador, Imagen 2 y se identifican en el Mapa del Plan Regulador del Área Central, Imagen 1, por medio de su achurado o color individual. Las características generales de cada zona, son las siguientes:

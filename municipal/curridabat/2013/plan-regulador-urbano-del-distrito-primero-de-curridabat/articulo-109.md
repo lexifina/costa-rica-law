@@ -1,0 +1,1 @@
+Artículo 109. En aceras con anchos iguales o mayores a 3.50 metros, los dos metros adyacentes a las propiedades podrán ser dados en concesión por parte de la Municipalidad de Curridabat para efectos comerciales previo estudio del Departamento de Patentes, Dirección de Desarrollo y Control Urbano y autorización del Concejo Municipal.

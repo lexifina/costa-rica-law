@@ -1,0 +1,1 @@
+Artículo 148. Cementerios. Se debe presentar antes, del catastro de cualquier tumba, un mosaico similar al plano general de una urbanización, en el cual se describa los espacios para tumbas, accesos, jardines, capilla, bodega, osario, y cualquier otro elemento.

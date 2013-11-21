@@ -1,0 +1,1 @@
+Artículo 49. Todo proyecto para la construcción de edificaciones que superen la altura base/típica, deben presentar ante la Dirección de Desarrollo y Control Urbano, un anteproyecto, para ser analizado y aprobado, preliminarmente al ingreso del tramite para solicitud de permiso de construcción del proyecto.

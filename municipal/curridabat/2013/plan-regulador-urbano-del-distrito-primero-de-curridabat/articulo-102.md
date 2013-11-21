@@ -1,0 +1,1 @@
+Artículo 102. Espacio de Estacionamientos en vía pública. Son las plazas de estacionamiento que se sitúan sobre vía pública y pueden ser libres o sujetos a condiciones de pago mediante parquímetros y/o boletas de estacionamiento. Los espacios de estacionamiento se ajustarán a los criterios de anchuras de la tabla 6, estacionamiento en vía publica, vialidad.
