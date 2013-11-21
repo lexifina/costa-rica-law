@@ -1,0 +1,1 @@
+Artículo 5°—El Premio Nacional por la Igualdad y Equidad de Género Ángela Acuña Braun se otorgará cada dos años de forma alternativa, iniciando con una convocatoria solo para investigaciones periodísticas y en la convocatoria siguiente, sólo para investigaciones sociales y así se continuará sucesivamente.

@@ -1,0 +1,1 @@
+Artículo 27.—EI INAMU se compromete a devolver el material a las y los concursantes que no ganaron el certamen en los treinta días posteriores al anuncio del ganador o de la ganadora. Si en ese lapso no es retirado el material, el INAMU podrá disponer del mismo.

@@ -1,0 +1,1 @@
+Artículo 3°—El INAMU como la entidad pública encargada de formular e impulsar las políticas públicas para la igualdad y la equidad de género es la instancia que promoverá, coordinará y financiará el otorgamiento del Premio.

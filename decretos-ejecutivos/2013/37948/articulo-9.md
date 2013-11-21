@@ -1,0 +1,8 @@
+Artículo 9°—Las investigaciones periodísticas o sociales que sean escogidas por el Jurado Calificador como posibles ganadoras del Premio, deberán tener enfoque de género, fomentar la igualdad y equidad entre mujeres y hombres y enmarcarse en el cumplimiento de los siguientes propósitos:
+a) Visualizar en forma positiva el aporte de las mujeres al desarrollo económico, social, político y cultural, y su participación a favor de una sociedad democrática y justa.
+b) Fomentar un cambio en los roles estereotipados entre mujeres y hombres.
+c) Desarrollar investigaciones con enfoque de Derechos Humanos y de diversidad étnica y cultural con énfasis en los Derechos Humanos de las mujeres.
+d) Denunciar situaciones de discriminación por razones de género y violencia en contra de las mujeres, que aporten al cambio cultural y fomenten relaciones de respeto y compromiso con una vida sin violencia y otros principios y valores reconocidos en instrumentos jurídicos internacionales, en la legislación nacional y por la comunidad nacional e internacional, para la eliminación de todas las formas de discriminación por razones de género y erradicación de la violencia contra las mujeres.
+e) Valorar experiencias sobre organización, liderazgo, empoderamiento, autonomía e independencia, autoestima y solidaridad de las mujeres.
+f) Acreditar el aporte de las mujeres a la historia, la política, la educación, los deportes, la ciencia, la cultura y a las luchas por la reivindicación de sus derechos.
+g) Utilizar un lenguaje inclusivo de manera que no sea sexista ni discriminatorio, respetando las diferencias sociales, culturales, sexuales, étnicas y etáreas de las mujeres, así como sus discapacidades físicas y mentales o por cualquier otra condición.
