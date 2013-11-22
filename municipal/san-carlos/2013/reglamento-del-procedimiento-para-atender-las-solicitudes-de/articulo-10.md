@@ -1,0 +1,1 @@
+Artículo 10.—La donación del área privada requerida para la vía de la Red Vial Cantonal, debe ser aceptado y acordada por el Concejo Municipal de San Carlos, para utilizarse como Vía de la Red Vial Cantonal.

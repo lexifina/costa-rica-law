@@ -1,0 +1,1 @@
+Artículo 18.—Una vez recopilada la información con base en los elementos de convicción, y una vez seguido el procedimiento descrito, en caso de que la Administración determine que la vía fue cerrada en forma ilegal, sin autorización alguna; deberá resolver la reapertura según corresponda, y publicar en el Diario Oficial esa resolución.

@@ -1,0 +1,1 @@
+Artículo 2º—Los Administrados que soliciten el recibo de un terreno para ser destinado a Vía de la Red Vial Cantonal en el Cantón de San Carlos, deberán realizar dicha gestión por escrito ante La Alcaldía Municipal de San Carlos.

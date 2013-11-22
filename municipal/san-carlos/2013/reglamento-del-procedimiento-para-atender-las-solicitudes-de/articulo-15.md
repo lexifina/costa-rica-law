@@ -1,0 +1,1 @@
+Artículo 15.—Una vez interpuesta la denuncia ante la Alcaldía Municipal, ya sea por un particular o interesado directo o indirecto, ante el supuesto cierre o estrechamiento de una Vía Pública de la Red Vial Cantonal, la administración deberá abrir un expediente administrativo único.

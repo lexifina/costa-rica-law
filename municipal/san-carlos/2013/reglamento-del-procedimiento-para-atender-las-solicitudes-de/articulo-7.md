@@ -1,0 +1,1 @@
+Artículo 7º—La Alcaldía Municipal de San Carlos analizará el cumplimiento de los requisitos establecidos en los artículos anteriores y confeccionará el Expediente Administrativo de la gestión, y lo trasladará a la Unidad Técnica de Gestión Vial Municipal para que elabore los estudios previos de la vía.
