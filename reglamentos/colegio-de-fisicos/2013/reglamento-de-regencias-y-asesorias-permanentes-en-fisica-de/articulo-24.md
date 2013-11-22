@@ -1,0 +1,1 @@
+Artículo 24.—Los fondos generados por el cobro de estos cánones serán destinados a cubrir los gastos que demande la participación del Colegio en el cumplimiento de la fiscalización de las regencias o asesorías permanentes en las actividades físicas u otro gasto que sea aprobado por la Junta Directiva.

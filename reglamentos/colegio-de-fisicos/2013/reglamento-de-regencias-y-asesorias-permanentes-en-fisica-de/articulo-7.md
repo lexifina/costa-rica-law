@@ -1,0 +1,1 @@
+Artículo 7º—Toda solicitud de acreditación como regente o asesor permanente debe acompañarse del certificado del curso de capacitación en materia de regencia o asesoría permanente, impartido por el Colegio, y el formulario correspondiente en que se solicite su inscripción.

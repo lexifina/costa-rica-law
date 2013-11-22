@@ -1,0 +1,1 @@
+Artículo 29.—En caso de que se comprueben anomalías en las funciones del regente o asesor permanente, una vez agotado el debido proceso, el Colegio procederá a aplicar las sanciones disciplinarias conforme lo establecido en la Ley Orgánica del Colegio de Físicos N° 7503 y sus reglamentos.

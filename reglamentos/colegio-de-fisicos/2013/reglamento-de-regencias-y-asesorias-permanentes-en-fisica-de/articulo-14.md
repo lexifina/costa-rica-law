@@ -1,0 +1,1 @@
+Artículo 14.—El formato del informe de regencia deberá ser aprobado por la Junta Directiva. En caso de que la regencia esté inscrita en una institución de la administración pública, se podrá homologar aquel formato.

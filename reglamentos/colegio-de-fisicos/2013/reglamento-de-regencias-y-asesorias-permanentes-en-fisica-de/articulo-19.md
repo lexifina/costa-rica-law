@@ -1,0 +1,4 @@
+Artículo 19.—Todo regente llevará y custodiará un protocolo, que estará conformado por las copias de los certificados, los informes de regencia y las certificaciones que emita, el cual deberá empastar anualmente.
+Artículo 18.—Todo regente llevará y custodiará una bitácora (en formato digital o impreso en papel) por instalación regentada, en la cual se consignarán todas las actividades que lleve a cabo.
+Artículo 19.—En caso de que el regente o asesor permanente renuncie a su cargo, deberá comunicarlo por escrito al Colegio y al regentado con quince días de antelación a la fecha efectiva de la renuncia; salvo indicación en contrario, el aviso se hará efectivo al día siguiente de que se haya recibido en el Colegio.
+(Nota de Sinalevi: En la publicación de este reglamento, se consignó dos veces los numerales 18 y 19, despúes del artículo 19 original)

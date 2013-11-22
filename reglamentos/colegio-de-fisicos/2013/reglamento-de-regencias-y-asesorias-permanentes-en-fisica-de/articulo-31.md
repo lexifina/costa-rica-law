@@ -1,0 +1,1 @@
+Artículo 31.—En caso de que se presenten denuncias en contra de los regentes por cobrar menos de lo establecido, se realizará el estudio respectivo y de comprobarse la anomalía, el Colegio procederá a aplicar las sanciones disciplinarias, conforme con lo establecido en la Ley Orgánica del Colegio de Físicos N° 7503 y sus reglamentos y el Código de Ética Profesional.

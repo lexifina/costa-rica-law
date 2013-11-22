@@ -1,0 +1,1 @@
+Artículo 33.—Cada certificación o certificado debe ser firmado y sellado por el regente o asesor permanente que lo extienda. Con este fin, el Colegio establecerá un registro de firmas y sellos de cada regente o asesor permanente, el cual deberá tener como mínimo el nombre, la cédula y el número de colegiado.

@@ -1,0 +1,1 @@
+Artículo 8º—Para la acreditación se requiere el nombramiento del regente o asesor permanente por parte de la Junta Directiva y la inscripción en el libro de registro que para tal efecto llevará el Colegio, a través del Comité de Vigilancia.

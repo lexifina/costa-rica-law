@@ -1,0 +1,1 @@
+Articulo 12.—En caso de extravío, robo o deterioro del sello, el regente o asesor permanente deberá presentar la denuncia a las autoridades judiciales correspondientes, para tramitar su reposición ante la Junta Directiva.

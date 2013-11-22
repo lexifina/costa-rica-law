@@ -1,0 +1,1 @@
+Artículo 15.—La Fiscalía podrá solicitarle al regente, por escrito, un informe de regencia aclaratorio sobre determinada situación, para lo cual el regente tendrá cinco días hábiles para su presentación.

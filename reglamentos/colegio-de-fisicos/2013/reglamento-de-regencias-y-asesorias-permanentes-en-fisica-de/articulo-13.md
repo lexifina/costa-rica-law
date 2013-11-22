@@ -1,0 +1,1 @@
+Artículo 13.—El regente deberá realizar una visita antes de que se inicie la ejecución de las actividades y rendir el informe correspondiente, donde corrobore la factibilidad y necesidades para fijar los términos del contrato.

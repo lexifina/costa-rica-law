@@ -1,0 +1,1 @@
+Artículo 23.—La Comisión de Especialidades recomendará a la Junta Directiva el porcentaje del monto de los honorarios por regencia o asesoría permanente que el regente deberá cancelar al Colegio por el ejercicio de esta actividad.
