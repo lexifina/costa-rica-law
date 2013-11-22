@@ -1,0 +1,1 @@
+Artículo 10.—De la custodia de vehículos. Todos los vehículos deben ser guardados al final de la jornada en las instalaciones que la Municipalidad ha destinado para tal fin.

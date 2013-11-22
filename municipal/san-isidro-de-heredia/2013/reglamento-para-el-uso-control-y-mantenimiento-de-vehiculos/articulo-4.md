@@ -1,0 +1,5 @@
+CAPÍTULO II
+De la clasificación y asignación de vehículos oficiales
+Artículo 4°—De la clasificación: Los vehículos propiedad de la Municipalidad de San Isidro de Heredia se clasifican de la siguiente manera:
+a) De uso administrativo: Aquellos vehículos destinados al cumplimiento de las funciones propias de la Municipalidad. Deberán encontrarse debidamente rotulados en ambos costados de la cabina con el logotipo: “Municipalidad de San Isidro de Heredia” y “Uso Oficial”. Además, llevarán una placa especial que los identifique, en la cual se consignará que son medios de transporte de servicio municipal. Ningún vehículo de este tipo podrá ser asignado a un funcionario en particular.
+b) De uso operativo-de campo. Son aquellos vehículos propiedad o al servicio de la Municipalidad que son utilizados para el necesario uso en mantenimiento de calles, caminos, puentes, recolección de basura, y otras actividades relacionadas con la labor que presta el Gobierno Local al Cantón de San Isidro, las cuales escapan de ser actividades meramente administrativas.
