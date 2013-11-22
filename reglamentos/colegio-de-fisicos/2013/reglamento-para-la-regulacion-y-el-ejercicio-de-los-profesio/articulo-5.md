@@ -1,0 +1,1 @@
+Artículo 5º—Competencias del físico médico especialista en Radioprotección. El físico médico especialista en Radioprotección tiene las mismas funciones y responsabilidades del físico médico en Radioprotección. El físico médico especialista en Radioprotección se encarga de certificar la preparación de físicos médicos en Radioprotección con menos experiencia en el campo.
