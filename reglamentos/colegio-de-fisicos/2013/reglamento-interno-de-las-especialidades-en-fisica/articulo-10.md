@@ -1,0 +1,1 @@
+Artículo 10.—Asimismo, la Comisión puede informar a la Junta, motu proprio, acerca de nuevas Especialidades que considere deben inscribirse en el Registro de Especialidades. En estos casos, se procederá de acuerdo con el artículo anterior en lo conducente.

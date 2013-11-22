@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión de Especialidades podrá agregar Especialidades al Registro de Especialidades del Colegio de Físicos. En la evaluación de las nuevas posibles Especialidades utilizará los criterios establecidos por la Ley Orgánica, el Reglamento a la Ley Orgánica, este Reglamento y las directrices que establezca la Asamblea General.

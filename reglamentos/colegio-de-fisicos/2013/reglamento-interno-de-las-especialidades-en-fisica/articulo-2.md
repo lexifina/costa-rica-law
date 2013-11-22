@@ -1,0 +1,1 @@
+Artículo 2º—El ejercicio de la profesión de físico está regulado por el Colegio de Físicos y puede llevarse a cabo en ciertas áreas especializadas de la física denominadas Especialidades de la Física.
