@@ -14,3 +14,4 @@ Reglamento para las dotaciones de servicios y urbanizaciones, fraccionamientos y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-28 | la propia norma |
+| 2 | 2013-11-25 | Reglamento 3402 (2013-11-25) |

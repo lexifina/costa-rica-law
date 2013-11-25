@@ -1,8 +1,8 @@
-Artículo 32: Requisitos para el Otorgamiento del Financiamiento.
-Todo otorgamiento de financiación de extensiones de servicios; o de urbanizaciones de interés social quedará sujeto a las siguientes condiciones:
+Artículo 32.—Requisitos para el otorgamiento del financiamiento. Todo otorgamiento de financiación de extensiones de servicios; o de urbanizaciones de interés social quedará sujeto a las siguientes condiciones:
 a. Presentación de solicitud formal, con expresión de nombres y calidades de él o los solicitantes, e indicación de sus cédulas de identidad. Tratándose de personas jurídicas deberá acompañarse además certificación de la personería de su representante, con indicación de la cédula de persona jurídica correspondiente. Dichas certificaciones deberán ser expedidas por el Registro Nacional; o en defecto de este, por un notario público.
 b. Rendición de garantía a satisfacción de la Empresa, en cuanto al reembolso de la suma financiada, cuyo plazo en todos los casos no será inferior de 6 meses ni mayor de 24 meses, a partir de la conclusión de esta.
 c. El tipo de interés que aplica será la tasa de interés del Banco Nacional de Costa Rica, aplicable a certificados de depósito a plazo a seis meses.
 d. Cuando se trate de financiamiento a entidades o personas jurídicas, será requisito indispensable el acuerdo firme de su organismo máximo, autorizando la operación y confiriendo poder suficiente a su representante legal para concurrir al otorgamiento del respectivo contrato. Asimismo, deberá existir autorización expresa a la Empresa para incorporar en las facturas de cobro de servicios, la amortización correspondiente a la financiación otorgada.
 e. El grupo o entidad interesada, deberá comprobar el otorgamiento de las autorizaciones a que se refiere el artículo sesenta y seis, inciso a) del Reglamento.
-f. Acuerdo de Junta Directiva de la Empresa que apruebe el otorgamiento del préstamo.
+f. Aprobación de la Gerencia del otorgamiento del préstamo.
+(Así reformado mediante sesión N° 3402 del 25 de noviembre del 2013)
