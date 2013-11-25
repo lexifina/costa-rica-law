@@ -14,3 +14,4 @@ Aprueba ajuste en el valor de los servicios de control de calidad de semilla a p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-01 | la propia norma |
+| 2 | 2013-11-25 | Acuerdo 4 (2013-11-25) |
