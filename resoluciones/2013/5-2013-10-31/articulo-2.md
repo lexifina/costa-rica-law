@@ -1,0 +1,1 @@
+2. Que el dictamen generado por el “Sistema Automatizado para incluir información de la Reserva de Liquidez”, debe ser entregado físicamente en las oficinas de la SUGEF, sita en el edificio C del complejo de oficinas Forum II ubicado sobre la radial Santa Ana - Belén, en el plazo y de conformidad con lo establecido en el Título VI de las Regulaciones de Política Monetaria.
