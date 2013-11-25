@@ -1,0 +1,6 @@
+CAPITULO X
+De las sanciones disciplinarias administrativas
+ARTÍCULO 44: Del plazo y sanciones en el manejo de los viáticos: Las giras que realicen los funcionarios deben ser liquidadas en un plazo máximo de 7 (siete) días hábiles contados a partir del día siguiente del regreso de la gira.
+Si se hizo adelanto de viáticos y el funcionario no liquida en el tiempo estipulado, el encargado de la custodia de los valores de caja chica reportará al Jefe de Capital Humano de inmediato la violación a este artículo, para que se proceda según el artículo 46 de este Reglamento. Si el funcionario no liquida en el plazo establecido el viático, le será rebajado de su salario en un solo pago la primera vez y en caso de reincidir se tomará como falta grave y se aplicarán las sanciones que correspondan de conformidad con la reglamentación interna y demás legislación vigente.
+Si no se hizo adelanto y el funcionario no liquida dentro del plazo de los 7 días reglamentarios, perderá el derecho al cobro del viaje, salvo que exista una incapacidad o razón de fuerza mayor debidamente justificada para lo cual deberá aportarse la incapacidad o certificación médica.
+El encargado de la custodia de los fondos será solidariamente responsable si no comunica al Jefe de Capital Humano, al finalizar la jornada laboral, el incumplimiento de este artículo.
