@@ -1,0 +1,1 @@
+Artículo 13.—Los afiliados tendrán derecho a devengar intereses proporcionales sobre sus ahorros. Los intereses se acumularán anualmente al capital principal del ahorro de cada afiliado. A solicitud de los interesados, los ahorros e intereses acumulados podrán aplicase para amortizar los créditos en el mes de enero de cada año.

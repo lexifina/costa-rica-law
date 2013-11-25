@@ -1,0 +1,1 @@
+Artículo 37.—Mientras sea funcionario del IFAM, ningún afiliado podrá retirarse del FODEAP sino cancela previamente la totalidad de las deudas pendientes. En todo caso, la devolución de sus ahorros e intereses acumulados, no se efectuará hasta tanto no cancele la totalidad de sus deudas.
