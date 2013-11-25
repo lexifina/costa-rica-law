@@ -1,10 +1,10 @@
 Artículo 10.- Fíjase un impuesto específico de cero coma cuatro colones (¢0,4) por cada mililitro de alcohol absoluto a favor del Inder, sobre la cerveza nacional y extranjera. Igualmente, se fija un impuesto específico de cero coma dos dos tres tres dos colones (¢0,22332) por cada mililitro de alcohol absoluto, a favor del Instituto de Fomento y Asesoría Municipal (IFAM)(*) sobre la cerveza nacional y extranjera.
-(*) (Mediante resolución N° 003-2013 del 3 de setiembre del 2013, se establece lo siguiente: "... Se actualiza el impuesto específico otorgado a favor del IFAM, según se detalla a continuación:
-Cálculo para el cuarto trimestre de 2013 (octubre a diciembre)
-| Julio-2013 | Abril-2013
-IPC | 162,306 | 161,703
-Valor impuesto inicial ¢0,23543 Factor acumulativo de variación ¢1,00373 Valor actualizado del impuesto específico por mililitro de alcohol absoluto ¢0,23630
-El monto del impuesto específico, de ¢0,23630 (cero coma dos tres seis tres cero colones), se aplicará sobre cada mililitro de alcohol absoluto. Dicho monto regirá durante el período comprendido entre el 01 de octubre y el 31 de diciembre de 2013.")
+(*) (Mediante resolución N° 017-2013 del 25 de noviembre del 2013, se establece lo siguiente: "... Se actualiza el impuesto específico otorgado a favor del IFAM, según se detalla a continuación:
+Cálculo para el primer trimestre de 2014 (enero a marzo)
+| octubre-2013 | julio-2013
+IPC | 161,357 | 162,306
+Valor impuesto inicial ¢0,23630 Factor acumulativo de variación ¢0,99416 Valor actualizado del impuesto específico por mililitro de alcohol absoluto ¢0,23492
+El monto del impuesto específico, de ¢0,23492 (cero coma dos tres cuatro nueve dos colones), se aplicará sobre cada mililitro de alcohol absoluto. Dicho monto regirá durante el período comprendido entre el 01 de enero y el 31 de marzo de 2014.")
 Se fija un impuesto específico de cero coma dos colones (¢0,2) por cada mililitro de alcohol absoluto a favor del Inder, sobre el vino nacional y extranjero.
 En el caso de los vinos nacionales o extranjeros, elaborados a partir de frutas fermentadas, que no sean uvas frescas ya gravadas en el párrafo anterior, cuya comercialización anual no exceda los quince millones de mililitros de alcohol absoluto, se establece un impuesto de cero coma un colones (¢0,1) por mililitro de alcohol absoluto. Cuando se exceda el límite indicado, el impuesto será de cero coma dos colones (¢0,2) por cada mililitro de alcohol absoluto.
 El hecho generador de los impuestos establecidos en este artículo ocurre en las ventas a nivel de fábrica en la fecha de emisión de la factura o entrega del producto, el acto que suceda primero; en la importación, en el momento de la aceptación de la declaración aduanera; en todos los casos, independientemente de su presentación.
