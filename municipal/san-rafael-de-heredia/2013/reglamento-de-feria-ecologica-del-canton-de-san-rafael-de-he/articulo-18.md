@@ -1,0 +1,1 @@
+Artículo 18.—Cada puesto de venta deberá estar debidamente identificado, indicando el nombre de la persona productora u organización correspondiente, comunidad origen del producto y precio de cada producto en caso de requerirlo.

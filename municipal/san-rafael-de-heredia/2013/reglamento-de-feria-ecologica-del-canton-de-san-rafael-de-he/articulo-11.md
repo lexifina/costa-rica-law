@@ -1,0 +1,1 @@
+Artículo 11.—Los participantes deberán informar las calidades y cualidades de su producto, que demuestren el cumplimiento del artículo 7 del presente reglamento en el momento de obtener la autorización para la participación en la feria. Asimismo deben ajustarse a las políticas ambientales de la MSRH.

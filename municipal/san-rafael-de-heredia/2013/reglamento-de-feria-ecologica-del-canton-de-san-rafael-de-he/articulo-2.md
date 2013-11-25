@@ -1,0 +1,1 @@
+Artículo 2º—Objetivos: El presente reglamento tiene como objetivo, normar la realización de una feria ecológica, en donde se garantice una educación ambiental adecuada se tengan opciones de servicios y productos sostenibles y amigables con el ambiente.

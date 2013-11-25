@@ -1,0 +1,1 @@
+Artículo 6º—Los productos de los oferentes (vendedores, consultores, expositores), deberán: tener la connotación de amigables con el medio ambiente por poseer una de las siguientes características: ser un producto orgánico, estar fabricados a base de materiales sostenibles, reciclables o de fibras naturales y/o promover el uso de tecnologías limpias y eficientes.

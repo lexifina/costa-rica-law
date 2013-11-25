@@ -1,0 +1,1 @@
+Artículo 4º—La MSRH a través de la Comisión de Feria Ecológica invitará a los interesados en participar de la Feria Ecológica del cantón de San Rafael de Heredia, a realizarse el fin de semana que coincida con la celebración de la semana del Medio Ambiente (viernes, sábado, domingo).

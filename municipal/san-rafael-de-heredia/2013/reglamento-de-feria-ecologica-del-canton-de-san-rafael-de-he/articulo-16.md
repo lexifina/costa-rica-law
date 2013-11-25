@@ -1,0 +1,1 @@
+Artículo 16.—Cada participante podrá comercializar sus productos en un puesto designado por los organizadores. Los mismos deberán velar por el orden y el aseo en cada espacio designado, así como el cuidado del puesto durante el uso los días de la feria y devolverlo conforme a los requerimientos de la Comisión de Feria Ecológica.
