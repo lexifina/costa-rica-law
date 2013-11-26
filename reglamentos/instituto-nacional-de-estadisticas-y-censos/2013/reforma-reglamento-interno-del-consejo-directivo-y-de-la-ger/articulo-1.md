@@ -1,0 +1,11 @@
+INSTITUTO NACIONAL DE ESTADÍSTICA Y CENSOS
+El Consejo Directivo del Instituto Nacional de Estadística y Censos.
+En uso de las facultades que le confiere el artículo 22, literal e) de la Ley Nº 7839 de fecha 15 de octubre de 1998, publicada en el Alcance Nº 77-B a La Gaceta Nº 214 de fecha 04 de noviembre de 1998.
+Considerando:
+I.—Que con el fin de garantizar una mayor eficiencia en las labores y gestiones administrativas que realiza el Instituto Nacional de Estadística y Censos ‘INEC’ en cumplimiento del fin público para el cual fue creado, se consideró necesario promulgar el ‘Reglamento Interno del Consejo Directivo y de la Gerencia’, de fecha 27 de marzo del año 2000, publicado en La Gaceta Nº 107 de fecha 5 de junio del año 2000, como instrumento jurídico mediante el cual se establezca y regule, entre otros, la integración, atribuciones, facultades, derechos, deberes y obligaciones de esas dependencias institucionales;
+II.—Que el Reglamento fue sometido a revisión en torno a aspectos tales como la integración de funcionarios auxiliares del Consejo Directivo, las ausencias de los miembros, el pago de dietas en circunstancias de ausencia, las licencias y permisos otorgados a sus miembros, las convocatorias y la presentación de informes a cargo de la Gerencia del INEC;
+III.—Que se considera necesario ajustar el contenido del Reglamento en cuestión a la reciente jurisprudencia relacionada con los aspectos antes indicados;
+IV.—Que de conformidad con lo señalado en los considerandos anteriores, corresponde modificar los artículos 4, 5 literal ñ), 14, 15, 23, 27, y el literal r) del artículo 31, procediendo además a la eliminación del literal c) del artículo 28, todos del Reglamento Interno del Consejo Directivo y de la Gerencia. Por tanto,
+ACUERDA:
+1º—Modificar el artículo 4 del Reglamento Interno del Consejo Directivo y de la Gerencia, para que en lo futuro se lea de la siguiente manera:
+“Funcionarios Auxiliares. Además de los cinco Directores y el Gerente, deberán asistir a las sesiones del Consejo Directivo, cuando se les convoque expresamente, el Subgerente, el Auditor y el Asesor Jurídico. El Gerente, el Subgerente, el Auditor y el Asesor Jurídico tendrán derecho a voz pero no de voto”.

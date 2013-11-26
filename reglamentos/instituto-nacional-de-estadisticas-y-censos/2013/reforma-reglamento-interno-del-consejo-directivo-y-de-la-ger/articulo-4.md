@@ -1,0 +1,2 @@
+4º—Modificar el artículo 15 del Reglamento Interno del Consejo Directivo y de la Gerencia, para que en lo sucesivo se lea de la siguiente manera:
+“Quórum de las sesiones. El quórum para que pueda sesionar válidamente el Consejo Directivo será el de la mayoría absoluta de sus miembros. Si no hubiere quórum, el órgano podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de quince minutos y para ello será suficiente la asistencia de al menos tres de sus miembros.”

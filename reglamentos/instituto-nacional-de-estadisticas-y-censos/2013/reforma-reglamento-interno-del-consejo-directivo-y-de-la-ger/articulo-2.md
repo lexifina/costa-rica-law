@@ -1,0 +1,2 @@
+2º—Modificar el literal ñ) del artículo 5 del Reglamento Interno del Consejo Directivo y de la Gerencia, para que en lo sucesivo se lea de la siguiente manera:
+“Autorizar al Gerente y al Auditor Interno las licencias con o sin goce de salario, permisos, vacaciones, entre otros, que soliciten, conforme a los mismos alcances que se encuentran dispuestos en el Reglamento Autónomo de Servicio del INEC, para los funcionarios regulares.”
