@@ -1,6 +1,5 @@
 Artículo 40.—Sanciones. Toda violación a los procedimientos y normas contenidas en el presente Código será sancionada de conformidad con lo dispuesto en el Código de Trabajo, y en las correspondientes disposiciones internas, en el caso de que se trate de un empleado.
 En el caso de una falta cometida por alguna persona integrante de la Junta Directiva Nacional, se procederá de conformidad con lo establecido en la Ley Orgánica del Banco Popular en el artículo 22, incisos c), e) y f), según corresponda.
 Si la falta es cometida por una persona integrante de una Junta de Crédito Local del Banco Popular, de la Junta Directiva de alguna Sociedad Anónima o de su Fiscalía, se nombrará una Comisión Preliminar integrada por tres (3) miembros de la Junta Directiva Nacional, que hará las recomendaciones que en su criterio correspondan, a fin de que la Junta Directiva Nacional resuelva lo pertinente.
-Vigencia.—El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga el “Código de Buen Gobierno Corporativo” aprobado por la Junta Directiva Nacional en sesión Nº 4945 del 7 de marzo del 2012, y publicado en La Gaceta Nº 72 del 13 de abril del 2012.”
-Rige a partir de su publicación en el Diario Oficial La Gaceta.
-San José, 10 de diciembre del 2012.—
+Vigencia.—Rige a partir de su publicación en Diario Oficial La Gaceta.
+Área Gestión y Análisis de Compras.—Lic. Ana Victoria Monge Bolaños,

@@ -4,7 +4,7 @@ i. Formarán quórum cinco (5) Directores. Sus decisiones se tomarán por simple
 ii. A las sesiones de la Junta Directiva Nacional deberá asistir quien se desempeñe en el puesto de Gerente General Corporativo.
 iii. Quien se desempeñe en el puesto de Auditor Interno podrá asistir cuando sea invitado por la Junta Directiva.
 iv. Todas las personas presentes responderán por sus acciones u omisiones en los términos que indica la ley.
-Sesiones de las Juntas Directivas de las Sociedades: Sesionarán ordinariamente cada dos semanas y extraordinariamente las veces que sea necesario.
+b. Sesiones de las Juntas Directivas de las Sociedades: Sesionarán ordinariamente cada dos semanas y extraordinariamente las veces que sea necesario.
 i. El quórum lo conformarán cuatro (4) personas miembros en el caso de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., y tres (3) personas miembros en las demás sociedades.
 ii. A las sesiones de las Juntas Directivas deberá asistir la persona que desempeñe el puesto de Gerente de la respectiva Sociedad.
 iii. La persona que desempeñe el puesto de Auditor Interno de la respectiva Sociedad podrá asistir cuando sea invitada por la Junta Directiva.

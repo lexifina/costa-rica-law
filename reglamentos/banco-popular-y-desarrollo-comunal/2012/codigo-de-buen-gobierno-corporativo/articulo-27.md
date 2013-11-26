@@ -5,5 +5,5 @@ De acuerdo con el artículo 17 de la Ley Orgánica del Banco Popular, la Junta D
 Las personas que integran las Juntas Directivas de las Sociedades Anónimas del Conglomerado se eligen por un período de dos años y podrán ser reelectas.
 El período de nombramiento en las Juntas Directivas de las Sociedades podrá ser coincidente con el período para el cual fue nombrada la Junta Directiva Nacional.
 Para el caso de las Sociedades, la persona que desempeña en puesto de Fiscal durará en el cargo dos años y podrá ser reelecta.
-Comités de Apoyo:
+b. Comités de Apoyo:
 Las personas que tienen a su cargo la Presidencia de los Comités de Apoyo, podrán rotar cada dos años.

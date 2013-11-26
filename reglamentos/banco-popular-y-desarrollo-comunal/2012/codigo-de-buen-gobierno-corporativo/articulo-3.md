@@ -7,7 +7,7 @@ e. Conglomerado: Conglomerado Financiero Banco Popular y de Desarrollo Comunal.
 f. Directorio Nacional: Directorio Nacional de la Asamblea de Trabajadores y Trabajadoras del Banco Popular y de Desarrollo Comunal.
 g. Fiscalía: Órgano a cargo de un Fiscal, responsable de vigilar las actividades que realiza una sociedad a la luz de lo dispuesto por el artículo 193 y siguientes del Código de Comercio.
 h. Mejores Prácticas Comerciales: Conjunto de principios y normas que regulan el comportamiento de una empresa en su actividad y como parte de una industria.
-i. Mejores Prácticas de Gobierno Corporativo: Conjunto de principios y normas que regulan el diseño, integración y funcionamiento de los órganos de gobierno del conglomerado: Asamblea, Directorio, Asamblea Accionistas, Juntas Directivas y Administración.
+i. Mejores Prácticas de Gobierno Corporativo: Conjunto de principios y normas que regulan el diseño, integración y funcionamiento de los órganos de gobierno del conglomerado: Asamblea, Directorio, Asamblea de Accionistas, Juntas Directivas y Administración.
 j. Popular Pensiones: Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal Sociedad Anónima.
 k. Popular SAFI: Popular Sociedad Fondos de Inversión Sociedad Anónima.
 l. Popular Seguros: Popular Sociedad Agencia de Seguros Sociedad Anónima.

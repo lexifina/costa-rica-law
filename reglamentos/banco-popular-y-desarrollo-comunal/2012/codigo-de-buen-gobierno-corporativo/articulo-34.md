@@ -1,4 +1,4 @@
-Artículo 34.—Reglamento(s) de los Comités de Apoyo. Además de lo dispuesto en el “Reglamento de Gobierno Corporativo” emitido por el Consejo Nacional de Supervisión del Sistema Financiero, el Reglamento (s) de los Comités de Apoyo deberá contener al menos lo siguiente:
+Artículo 34.—Reglamento(s) de los Comités de Apoyo. Además de lo dispuesto en el “Reglamento de Gobierno Corporativo” emitido por el Consejo Nacional de Supervisión del Sistema Financiero, el Reglamento(s) de los Comités de Apoyo deberá contener al menos lo siguiente:
 a. Nombre del Comité.
 b. Objetivo del Comité.
 c. Normativa de referencia que sirve de sustento a la creación del Comité.

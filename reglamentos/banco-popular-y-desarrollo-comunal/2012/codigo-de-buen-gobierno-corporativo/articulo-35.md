@@ -1,5 +1,1 @@
-Artículo 35.—Integración de los Comités de Apoyo. Cada Comité estará integrado por al menos tres personas, debiendo al menos una de ellas formar parte de la Junta Directiva que lo crea, quien ejercerá la Presidencia del respectivo Comité de Apoyo.
-De así disponerlo la normativa aplicable o la respectiva Junta Directiva, esta nombrará en el Comité de Apoyo que corresponda, una persona externa al Conglomerado, profesional de reconocido prestigio y honorabilidad.
-Cada integrante de un Comité de Apoyo podrá tener como suplente a quien determine la respectiva Junta Directiva. En el caso de integrantes de la Junta Directiva, ésta deberá designar a uno o una de sus integrantes como su suplente.
-Las sesiones de los Comités de Apoyo serán siempre privadas, pero éstos podrán disponer, acordándolo así por unanimidad de sus miembros presentes, que tengan acceso a ella el público general o bien ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
-A las sesiones de los Comités de Apoyo tendrán derecho a asistir con voz pero sin voto, el Gerente General de la respectiva entidad, salvo que el Comité disponga lo contrario.
+Artículo 35.—Integración de los Comités de Apoyo. Derogado. (En la sesión ordinaria 5123 de la Junta Directiva Nacional, realizada el día 26 de noviembre del año 2013, acuerdo N° 605).

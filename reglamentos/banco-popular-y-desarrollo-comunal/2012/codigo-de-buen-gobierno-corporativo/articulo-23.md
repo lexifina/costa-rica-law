@@ -1,4 +1,4 @@
-Artículo 23.—Políticas sobre la relación con proveedores. Los criterios y condiciones generales de contratación deberán respetar los principios de la Contratación Administrativa desarrollados en la Ley de Contratación Administrativa y su Reglamento, así como en el Reglamento Complementario de Contratación Administrativa del Conglomerado y normas afines.
+Artículo 23.—Políticas sobre la relación con proveedores. Los criterios y condiciones generales de contratación deberán respetar los principios de la Contratación Administrativa desarrollados en la Ley de Contratación Administrativa y su Reglamento, así como en el Reglamento Complementario de Contratación Administrativa, el Código de Ética del Conglomerado y normas afines.
 Las políticas generales sobre la relación con proveedores son:
 a. Políticas sobre la confidencialidad de la información del Conglomerado:
 i. La confidencialidad de los datos de los clientes y usuarios del Conglomerado no podrá ser vulnerada con ocasión de un procedimiento de contratación administrativa.

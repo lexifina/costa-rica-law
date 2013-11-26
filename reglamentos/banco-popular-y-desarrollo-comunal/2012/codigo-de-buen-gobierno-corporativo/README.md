@@ -14,3 +14,4 @@ Código de Buen Gobierno Corporativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-16 | la propia norma |
+| 2 | 2013-11-26 | Reglamento 5123 (2013-11-26) |

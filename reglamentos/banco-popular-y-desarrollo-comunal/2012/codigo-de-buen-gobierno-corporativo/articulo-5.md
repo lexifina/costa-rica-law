@@ -19,11 +19,11 @@ c.1. Control Interno:
 i. Sistema Integral de Control Interno.
 ii. Auditoría Interna del Banco y Auditorías Internas de las Sociedades Anónimas.
 iii. Administración Integral de Riesgo.
-iv. Reglamentos, Políticas y Procedimientos.
+iv. Políticas, reglamentos, directrices y manuales de procedimientos.
 v. Autoevaluaciones de riesgo.
 vi. Autoevaluaciones de control interno.
 vii. Informes de rendición de cuentas a la Asamblea de Trabajadores y Trabajadoras, a la Junta Directiva Nacional, Juntas Directivas de las Sociedades y a los Comités de Apoyo competentes.
-viii. Informes de fin de gestión según lo dispuesto las “Directrices que deben observar los funcionarios obligados a presentar el informe final de su gestión, según lo dispuesto en el inciso e) del artículo 12 de la Ley General de Control Interno”, número D-1-2005-CO-DFOE, de la Contraloría General de la República”.
+viii. Informes de fin de gestión según lo dispuesto por las “Directrices que deben observar los funcionarios obligados a presentar el informe final de su gestión, según lo dispuesto en el inciso e) del artículo 12 de la Ley General de Control Interno”, número D-1-2005-CO-DFOE, de la Contraloría General de la República”, sus normas conexas y supletorias.
 c.2. Control Externo:
 i. Entes de control y supervisión superior (Contraloría General de la República, CONASSIF, SUGEF, SUGEVAL, SUPEN, SUGESE).
 ii. Auditorías Externas:
