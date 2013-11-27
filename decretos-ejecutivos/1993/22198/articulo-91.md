@@ -1,2 +1,2 @@
-SECCION II: DE LA APLICACION DEL DESCUENTO A LA PENA DE PRISION
-Artículo 91: (Así derogado por el artículo 22 del decreto ejecutivo N° 32754 del 3 de octubre del 2005 y posteriormente se volvio a derogar mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007).
+Artículo 91: Designación del Trabajo(Así derogado mediante artículo N° 104 del decreto ejecutivo N° 33876 del 11 de julio de 2007)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal", que lo traspasó del antiguo artículo 87 al 91)

@@ -66,11 +66,11 @@ articulo-65.md
 articulo-66.md
 articulo-67.md
 articulo-68.md
-articulo-68-bis.md
 articulo-69.md
 articulo-70.md
 articulo-71.md
 articulo-72.md
+articulo-72-bis.md
 articulo-73.md
 articulo-74.md
 articulo-75.md
@@ -118,3 +118,7 @@ articulo-116.md
 articulo-117.md
 articulo-118.md
 articulo-119.md
+articulo-120.md
+articulo-121.md
+articulo-122.md
+articulo-123.md

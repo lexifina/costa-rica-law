@@ -1,12 +1,3 @@
-Artículo 61: El Consejo de Análisis
-Es un órgano colegiado integrado por el Director, el Subdirector,
-los directores de ámbito donde los hubiere, el administrador y
-representantes de las áreas conformadas en el Centro. El Director podrá
-invitar a aquellas personas que considere pertinentes.
-Se reunirá ordinariamente una vez al mes y será encargado de:
-a) Conocer, analizar, modificar si fuere del caso, y aprobar el
-Plan de Trabajo del Centro y los Proyectos de las diferentes
-Areas.
-b) Mantener un proceso constante de reflexión y acción de la
-dinámica del Centro.
-c) Comunicar e informar las políticas institucionales.
+Artículo 61: De los Directores o Directoras de Ambito
+El director o la directora de ámbito es el responsable del desarrollo y ejecución de las políticas técnico administrativas emanadas por los órganos competentes en el espacio físico en donde le corresponde ejercer su función. Presidirá el Consejo de Valoración de Ambito y deberá mantener una estrecha vinculación con el director o directora del Centro, verificando el efectivo cumplimiento de las directrices que éste emita.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal", que lo traspasó del antiguo artículo 57 al 61)

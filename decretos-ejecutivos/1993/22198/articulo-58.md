@@ -1,10 +1,4 @@
-Artículo 58: De los Organos Colegiados
-En cada Centro Institucional o Semiinstitucional y en el Nivel de
-Niños, Niñas o Adolescentes existirán al menos tres cuerpos colegiados,
-diferenciados por sus integrantes y en general, por su competencia y
-periodicidad. Estos órganos se denominan: Consejo de Valoración, Concejo
-de Análisis y Consejo Técnico.
-En los centros en donde existan ámbitos de convivencia, cada uno de
-ellos tendrá su propio Consejo de Valoración.
-En el Nivel de Atención en Comunidad se conformará únicamente el
-Consejo Técnico.
+Artículo 58: Organización Interna de los Centros
+Los Centros de Atención Institucional o Semiinstitucional deberán contar con un director, un administrador y un responsable por cada una de las áreas que funcionen en el Centro. Para los Centros que presentan mayor complejidad (La Reforma, El Buen Pastor, y San José), se contará, además, con un subdirector.
+Los centros podrán organizarse por ámbitos de convivencia, dependiendo de la capacidad convivencial y el grado de contención que se brinde en el espacio físico de que se trate. A su vez los ámbitos pueden subdividirse en secciones. Cuando sea necesario el ámbito estará bajo la responsabilidad de un director o directora.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal", que lo traspasó del antiguo artículo 54 al 58)

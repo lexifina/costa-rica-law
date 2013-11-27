@@ -1,11 +1,3 @@
-Artículo 54: Organización Interna de los Centros
-Los Centros de Atención Institucional o Semiinstitucional deberán
-contar con un director, un administrador y un responsable por cada una de
-las áreas que funcionen en el Centro. Para los Centros que presentan
-mayor complejidad (La Reforma, El Buen Pastor, y San José), se contará,
-además, con un subdirector.
-Los centros podrán organizarse por ámbitos de convivencia,
-dependiendo de la capacidad convivencial y el grado de contención que se
-brinde en el espacio físico de que se trate. A su vez los ámbitos pueden
-subdividirse en secciones. Cuando sea necesario el ámbito estará bajo la
-responsabilidad de un director o directora.
+Artículo 54.—Estructura Funcional. El Programa Nacional de Atención a Mujeres Sujetas a Sanción Penal comprende una Coordinación encargada de conducir y supervisar todos los procesos de atención de orden técnico, administrativo y de seguridad. Esta Dirección formará parte del Departamento Técnico en las mismas condiciones de las Direcciones de los otros Programas de Atención a Población Penal.
+Este programa comprende los centros penitenciarios, ámbitos de convivencia y oficinas que tengan bajo la responsabilidad población de mujeres sujetas a sanción penal.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal")

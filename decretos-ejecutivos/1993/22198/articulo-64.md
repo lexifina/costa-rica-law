@@ -1,5 +1,7 @@
-Artículo 64: Firmeza del Acta
-El acta del Consejo adquirirá firmeza en la sesión inmediata
-posterior a aquella en que se tomó la misma. No obstante y por unanimidad
-de los miembros presentes podrá determinarse la firmeza de acuerdos el
-mismo día de su emisión.
+Artículo 64: Del Consejo Técnico
+Es un órgano colegiado, integrado por el director, el subdirector, los directores de ámbitos de convivencia en caso de que existan en el Centro, el administrador y los coordinadores o representantes de las diferentes áreas técnicas que funcionan en el Centro. En el caso del Nivel de Atención en Comunidad, se conformará por el coordinador de nivel, quien lo preside, y por los responsables de las Oficinas Técnicas del Nivel.
+Se reunirá ordinariamente una vez cada quince días y será el encargado de:
+a) Analizar la evolución del proceso técnico en el Centro.
+b) Integrar en un solo proceso de intervención técnica las acciones de cada una de las áreas de atención que funcionan en el Centro.
+c) Ajustar las acciones de intervención de las áreas de atención del Centro.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal", que lo traspasó del antiguo artículo 60 al 64)
