@@ -1,0 +1,1 @@
+Artículo 7º—Aval del Consejo. Una vez que el Jurado Seleccionador haya escogido al beneficiario, remitirá sus resultados al Consejo Nacional de Cinematografía, para que, en su calidad de órgano rector del Centro, avale los resultados y autorice la compra y otorgamiento del tiquete aéreo correspondiente.

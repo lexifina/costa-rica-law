@@ -1,0 +1,2 @@
+Artículo 9º—Derechos de Autor. Si por alguna razón, la participación del beneficiario implica la utilización de materiales ajenos a su autoría, corre bajo su exclusiva responsabilidad, cubrir el pago u obtener la cesión de los derechos de autor y cualquier otra carga por concepto de propiedad intelectual, que se requiera.
+La Dirección del Centro y el Consejo Nacional de Cinematografía, verificarán el cumplimiento de este requisito y no admitirán proyectos que irrespeten lo establecido por la Ley Nº 6683, Ley de Derechos de Autor y Derechos Conexos del 14 de octubre de 1982.

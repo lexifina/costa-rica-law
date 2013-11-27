@@ -1,0 +1,1 @@
+Artículo 8º—Recursos y Administración. Los recursos económicos para cubrir las ayudas al Sector Audiovisual costarricense derivadas del presente reglamento, provendrán del presupuesto ordinario del Centro Costarricense de Producción Cinematográfica.
