@@ -1,0 +1,5 @@
+CAPÍTULO III
+De la aplicación del régimen de dedicación exclusiva
+Artículo 4°—En virtud de la profesionalizaron de la institución y a efecto de obtener el mejor rendimiento de los profesionales de la Municipalidad tiene y contratara para el desempeño de puestos, donde el requisito legal es poseer un grado profesional, se acuerda establecer el incentivo denominado: Dedicación Exclusiva bajo los siguientes porcentajes de la ley a saber:
+a-Un 55% sobre el salario base para aquellos servidores que poseen el grado académico de licenciatura y ocupen un puesto para el que se requiere como mínimo el grado académico de bachillerato universitario.
+b-Un 35%, sobre el salario base para aquellos servidores que poseen el grado académico de bachillerato universitario y ocupen un puesto para el que se requiere la condición Para los efectos deberá firmarse un contrato, para los funcionar los que actualmente presten su servicio en la institución, tienen la alternativa de acogerse o no a este beneficio, en caso de aceptar deberá de firmar el contrato.

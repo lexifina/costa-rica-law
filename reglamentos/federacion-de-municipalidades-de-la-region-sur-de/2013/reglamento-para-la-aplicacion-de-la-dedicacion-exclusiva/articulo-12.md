@@ -1,0 +1,2 @@
+Artículo 12.—Los servidores que disfruten de los beneficios del Régimen de Dedicación Exclusiva, pueden renunciar a dicho régimen comunicándolo por escrito a la Dirección Ejecutiva, con un mes de anticipación como mínimo y no podrán suscribir un nuevo contrato en un período de tres años después de haber presentado la renuncia. Si renunciaran por segunda ve7, no podrán volver a acogerse a los beneficios indicados.
+Todos los movimientos contemplados en el presente artículo tendrán que hacerse efectivos mediante acción de personal.
