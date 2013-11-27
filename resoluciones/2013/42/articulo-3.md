@@ -1,0 +1,1 @@
+Artículo 3º—Las declaraciones informativas que hubiere recibido la Administración Tributaria con fundamento en lo dispuesto durante la vigencia de la resolución que por este medio se deroga, se consideran recibidas a satisfacción.

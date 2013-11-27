@@ -1,0 +1,1 @@
+Artículo 2º—Mantener la vigencia de los artículos 4, 6 y 20 de la resolución DGT-R-026-2011 y la resolución DGT-R-028-2011, ambas del 13 de setiembre de 2011, publicadas en La Gaceta Nº 188 del 30 de setiembre del 2011.
