@@ -1,6 +1,0 @@
-Artículo 40.- El procedimiento de estructuración de los predictores
-que se escojan para la realización de los concursos internos, deberá
-caracterizarse por su transparencia y objetividad, para lo cual las
-instancias administrativas y funcionarios en quienes se deposita esta
-responsabilidad, deberán acudir a los medios más apropiados que
-garanticen la seguridad, la agilidad y oportunidad requeridas.
