@@ -1,0 +1,2 @@
+Artículo 3º—Publicidad. El Centro informará oportunamente a los interesados, las fechas y requisitos de las convocatorias internacionales recibidas.
+Para esto, hará uso de boletines electrónicos, página web institucional, comunicados y gacetillas de prensa y redes sociales. En la medida en que los recursos institucionales lo permitan, se publicará esta información, en algún medio de comunicación escrito, de circulación nacional.

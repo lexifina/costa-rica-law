@@ -1,0 +1,2 @@
+Artículo 6º—Del Jurado Seleccionador. Para atender el proceso de selección de las obras cinematográficas, el Centro conformará un jurado especializado, compuesto por un mínimo de tres integrantes. Para esto, se tomarán en cuenta profesionales reconocidos de la producción audiovisual y cinematográfica, tales como directores, fotógrafos, productores y otros especialistas del campo.
+No podrán conformar este jurado, personas vinculadas a alguna de las obras postulantes en la convocatoria del año respectivo.
