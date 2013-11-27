@@ -1,0 +1,1 @@
+Artículo 21.—Protección a conductores. El IFAM otorgará como protección a sus conductores o conductoras, durante el ejercicio de sus labores, las pólizas de riesgo del trabajo y las relativas a vehículos según las disposiciones de la Ley de Tránsito.

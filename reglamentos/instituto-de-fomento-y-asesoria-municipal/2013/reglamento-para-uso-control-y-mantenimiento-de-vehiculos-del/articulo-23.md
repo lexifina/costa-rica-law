@@ -1,0 +1,1 @@
+Artículo 23.—De la conducción del vehículo: Es absolutamente prohibido a todos los conductores o conductoras de vehículos del IFAM, ceder la conducción de los vehículos a otras personas, salvo por razones muy calificadas, en cuyo caso, una vez finalizada la gira, deberá informar el motivo de ello a la Jefatura inmediata y a la Dependencia de Transportes.

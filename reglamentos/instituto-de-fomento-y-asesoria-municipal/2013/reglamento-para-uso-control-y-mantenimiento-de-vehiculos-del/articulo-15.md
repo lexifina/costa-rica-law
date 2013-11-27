@@ -1,0 +1,1 @@
+Artículo 15.—Agrupación de solicitudes. Con el propósito de lograr un mejor aprovechamiento de los vehículos disponibles, la Unidad de Transportes o quien tenga a su cargo los vehículos, coordinará con los diferentes funcionarios el agruparlos en un solo vehículo, con la finalidad de optimizar el recurso.
