@@ -4,3 +4,5 @@
 8.3 La Gestoría de Calidad lo registra en ECA-MC-P18-F01 Control de logotipo ECA y símbolo de acreditación; analiza la solicitud y en caso de rechazo notifica al interesado con las respectivas razones. [GC]
 8.4 En caso de aprobación, la Gestoría de Calidad, prepara el ECA-MC-P18-F04 Aprobación del uso de Logotipo ECA, para ser firmado por el Gerente del ECA y el representante legal o el representante ante el ECA del OEC. La firma de dicho documento por parte del OEC, significa, la aceptación de la responsabilidad personal y solidaria por cualquier daño o perjuicio que provoque al ECA o a cualquier tercero el uso indebido del logotipo. [GC] [G] [OEC]
 8.5 La aprobación para el uso del logotipo ECA se otorga por el tiempo que dure el evento o serie de eventos relacionados, una vez recibido el ECA-MC-P18-F04 debidamente firmado por parte del OEC. [GC] [OEC]
+POLÍTICA PARA USO DE LOGOTIPO ECA Y SÍMBOLO DE ACREDITACIÓN Código N° : ECA-MC-P18 Páginas: 8 de 15 Fecha emisión: 27.11.2013 Versión: 06
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.

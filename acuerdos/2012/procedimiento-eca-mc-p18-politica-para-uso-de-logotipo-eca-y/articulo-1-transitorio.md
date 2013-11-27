@@ -1,0 +1,5 @@
+TRANSITORIO
+La Gestoría de Calidad elabora y envía los nuevos símbolos de acreditación a los OEC acreditados, para lo cual cuenta con 3 meses a partir de que entre en vigencia este documento.
+Los OEC cuentan con 30 días hábiles a partir de la fecha de recepción del nuevo símbolo de acreditación, para enviar los ejemplos de los documentos en los cuales requieren la aprobación para utilizar el símbolo de acreditación.
+La Gestoría de Calidad cuenta con 15 días hábiles para aprobar los ejemplos recibidos y enviar el ECA-MC-P18-F03 Aprobación uso del símbolo de acreditación.
+Los laboratorios de Ensayo y Calibración que no puedan utilizar la marca combinada de manera inmediata a partir de la entrada en vigencia de esta política; por razones de inventario de papelería con el símbolo de acreditación anterior, deben contar con un plan en el cual establezcan los mecanismos y plazos para retirar los documentos obsoletos de circulación. Este plan será revisado durante las evaluaciones del ECA, para confirmar su implementación.

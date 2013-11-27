@@ -1,9 +1,7 @@
-11 SÍMBOLO DE ACREDITACIÓN DEL ECA
-a. Es responsabilidad del OEC, asegurarse de que las reproducciones que realice del símbolo de acreditación del ECA corresponden exactamente con el modelo mostrado en este capítulo. [OEC]
-b. El Símbolo de acreditación del ECA puede aparecer en la primera página del documento aprobado (no se considera primera página cualquier portada que no esté claramente identificada como parte integral del documento en cuestión). [OEC]
-c. El símbolo de acreditación del ECA está compuesto por el logotipo ECA o el logotipo combinado según tipo de OEC, acompañado de el tipo de OEC, el número de alcance de acreditación, la fecha a partir de la cual se otorga la acreditación y la leyenda Alcance disponible en www.eca.or.cr. A continuación se muestra el símbolo de acreditación:
-[imagen]
-1 Símbolo de acreditación utilizado por Organismos de Inspección, Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos y Organismos Validadores Verificadores de Gases de Efecto Invernadero.
-2 Símbolo de acreditación utilizado por Organismos de Certificación de Producto y Organismos de Certificación de Sistemas de Gestión de Calidad.
-Nota 3: En el 1 colocar el tipo de OEC según sea el caso.
-d. Debido a que el logotipo ECA o símbolo de acreditación del ECA se empleará en diversos documentos, se puede ampliar o reducir, siempre que se conserven las proporciones originales.
+11 SANCIONES
+11.1 El ECA verifica en las evaluaciones de seguimiento y reevaluación que el OEC use el símbolo de acreditación del ECA, de acuerdo con lo establecido en esta política y a la aprobación realizada.
+11.2 Los incumplimientos a dicha política se definen según la clasificación de faltas del ECA-MC-P16 Procedimiento de Investigación, para lo cual se sigue lo establecido en el mismo.
+11.3 Cuando el uso del símbolo de acreditación o del logotipo ECA por parte de cualquier persona física o jurídica, OEC con acreditación retirada o cancelada, ocasione daño o perjuicio al ECA o a cualquier tercero, el Gerente con el apoyo del Asesor Legal debe llevar a cabo todas las acciones necesarias para lograr el efectivo resarcimiento de los mismos en un plazo máximo de 15 días hábiles. [G] [AL]
+11.4 En caso de suspensión, reducción o retiro parcial del alcance de acreditación de un OEC, este debe establecer un mecanismo para asegurar que el símbolo de acreditación y cualquier referencia a su estado de acreditación no sea utilizado para las actividades suspendidas, reducidas o retiradas.
+11.5 Cuando se haya retirado o el OEC renuncie a la acreditación para todas las actividades de su alcance, el OEC deja de ser un cliente del ECA y no puede hacer ninguna mención a su estado de acreditación o hacer uso del símbolo de acreditación.
+11.6 En caso de retiro o renuncia de la acreditación, los Organismos de Certificación deben tener medidas efectivas para el retiro de los certificados emitidos dentro del alcance de acreditación y debe informar al ECA el mecanismo de comunicación que proporcionará a sus clientes para darles la información de su estado de retiro o renuncia de la acreditación y de sus consecuencias, según M 8.3.2.1 del IAF /ILAC A5. Para esto el OEC cuenta con un máximo de 15 días hábiles.

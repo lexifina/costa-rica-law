@@ -1,6 +1,5 @@
 3 DOCUMENTOS DE REFERENCIA
 - ECA-MC Manual de Calidad.
-- ECA-MC-C03 Criterios para la evaluación de la norma INTE-ISO/IEC 17020:2000
 - ECA-MC-P09 Procedimiento general de evaluación y acreditación.
 - ECA-MC-P13 Ejecución de la evaluación.
 - ECA-MC-P14-F03 Compromiso de Acreditación.
@@ -10,11 +9,13 @@
 - ECA-MC-P18-F03 Aprobación del uso de símbolo de acreditación.
 - ECA-MC-P18-F04 Aprobación del uso de Logotipo ECA.
 - ECA-MC-P18-F05 Acuerdo para el uso de la marca del MLA de IAF entre un Licenciatario miembro de IAF y un OEC
-- ILAC P8-07:2006 ILAC Mutual Recognition Arrangement (Arrangement): Supplementary Requirements and Guidelines for the Use of Accreditation Symbols and for Claims of Accreditation Status by Accredited Laboratories
-- IAF/ILAC A5:05/2012 IAF/ILAC Multi-Lateral Mutual Recognition Arrangement (Arrangements): Application of ISO/IEC 17011:2004
+- ECA-MC-P18-F06 Acuerdo para el uso de la marca del MRA de ILAC entre un Licenciatario miembro de ILAC y un OEC
+- ILAC R7:09/2009 Rules for the Use of the ILAC MRA Mark
+- ILAC P8:12/2012 ILAC Mutual Recognition Arrangement (Arrangement): Supplementary Requirements and Guidelines for the Use of Accreditation Symbols and for Claims of Accreditation Status by Accredited Laboratories
+- IAF/ILAC A5:05/2013 IAF/ILAC Multi-Lateral Mutual Recognition Arrangement (Arrangements): Application of ISO/IEC 17011:2004
 - IAF ML 2:2011 General Principles on the Use of the IAF MLA Mark
 - Norma INTE-ISO/IEC 17011:2004 Evaluación de la conformidad – Requisitos generales para los organismos de acreditación que realizan la acreditación de organismos de evaluación de la conformidad.
 - Ley de Marcas y Otros Signos Distintivos, número 7978 de 03 de marzo de 2000.
 - Ley del Sistema Nacional para la Calidad número 8279, 21 de mayo de 2002.
-- Reglamento de Estructura Interna y Funcionamiento del ECA, número 35522-MICIT, 01 de octubre de 2009.
+- Reglamento de Estructura Interna y Funcionamiento del ECA, número 37740-MICIT, 18 de Julio del 2013.
 - Marca de Servicios número 155486, propiedad del ECA, clase 35 internacional, inscrita el 16 de diciembre de 2005.
