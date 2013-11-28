@@ -1,0 +1,1 @@
+Artículo 2°—El costo de los servicios que genere la aplicación del presente Reglamento de conformidad con lo dispuesto en Ley General de Salud y en la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor los deberá cubrir el infractor a través de los procedimientos correspondientes.
