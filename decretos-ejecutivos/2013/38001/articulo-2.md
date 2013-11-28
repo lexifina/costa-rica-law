@@ -1,0 +1,1 @@
+Artículo 2°—El Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) incorporará, de oficio, el Plan Nacional sobre drogas, legitimación de capitales y financiamiento al terrorismo, al Plan Nacional de Desarrollo (PND).
