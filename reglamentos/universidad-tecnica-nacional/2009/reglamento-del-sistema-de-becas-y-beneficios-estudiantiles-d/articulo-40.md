@@ -1,1 +1,1 @@
-Artículo 40.—Corresponde a la Vicerrectoría respectiva, previo informe de las áreas correspondientes de la Universidad, declarar oficiales los diversos grupos y actividades de interés institucional.
+Artículo 40—Redondeo de los créditos. En el caso de que el porcentaje de créditos aprobados quede en fracción igual o superior a 0.5, se redondeará al número superior.

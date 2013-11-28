@@ -1,3 +1,7 @@
-Artículo 38.—De los requisitos para becas en grupos de interés institucional. Para obtener la beca por participación en grupos de interés institucional, el estudiante debe cumplir con los requisitos y normativas establecidas para el ingreso y permanencia del grupo al que pertenece. Además debe cumplir los siguientes requisitos:
-a) Cumplir con la asistencia requerida en las actividades programadas para el grupo.
-b) Matricular al menos nueve créditos en el primer cuatrimestre que gozan de la beca y aprobar al menos nueve créditos en los siguientes cuatrimestres de la carrera para continuar gozando de la beca.
+Artículo 38—Modificación a las becas asignadas por rendimiento académico. Las condiciones para mantener, disminuir o recuperar la categoría inicial de la beca socioeconómica son las siguientes:
+a) Los estudiantes regulares que aprueben el 100% de los créditos matriculados, conservarán la categoría de beca asignada.
+b) Los estudiantes regulares que aprueben el 75% o más y menos del 100% de los créditos matriculados en el ciclo lectivo, pierden una categoría de beca.
+c) Los estudiantes que aprueben el 60% o más y menos del 75% de los créditos matriculados en el ciclo lectivo pierden dos categorías de porcentaje de exoneración de beca.
+d) Los estudiantes que aprueben menos del 60% de los créditos matriculados en el ciclo lectivo pierden tres categorías de porcentaje de exoneración de beca.
+e) Si al aplicarse los puntos anteriores el estudiante queda sin posibilidad de contar con ninguna categoría de beca, pero al mismo tiempo cumple con la carga académica mínima según lo establecido en el artículo 27 del presente Reglamento, se le aplicará la beca categoría 1.
+f) Para todos los casos anteriores no aplicará la disminución de la categoría de Beca en las situaciones en que el estudiante pierda un curso por primera vez en la carrera, o en los casos en que el estudiante consiga un promedio simple igual o superior a 7 en el cuatrimestre, siempre y cuando cumpla con la carga académica mínima según lo establecido en el artículo 27 del presente Reglamento

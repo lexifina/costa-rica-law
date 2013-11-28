@@ -1,1 +1,1 @@
-Artículo 45.—Becas socioeoconómicas. Tendrán derecho a beca socioeconómica los estudiantes extranjeros procedentes de Centro América y Panamá con cédula de residencia al día, que cumplan las condiciones establecidas en este Reglamento en las mismas condiciones que los estudiantes nacionales, así como los estudiantes extranjeros que tengan la condición de refugiados, con excepción de las becas de categorías 7 y 8.
+Artículo 45 — Aplicación de la Beca de Honor. La beca de honor será aplicada en la misma carrera en la que el estudiante la ganó.

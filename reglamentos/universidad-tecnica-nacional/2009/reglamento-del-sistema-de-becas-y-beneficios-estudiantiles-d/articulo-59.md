@@ -1,0 +1,1 @@
+Artículo 59—Requisito para el goce de la Ayuda Económica. Además de los requisitos académicos mencionados, el estudiante que goce de ayudas económicas ordinarias, debe participar en los diferentes talleres, proyectos y actividades del Programa de Retención Estudiantil Universitaria según sea establecido por la Vicerrectoría de Vida Estudiantil.

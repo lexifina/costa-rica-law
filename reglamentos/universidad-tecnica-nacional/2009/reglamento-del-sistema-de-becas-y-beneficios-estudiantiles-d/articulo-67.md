@@ -1,0 +1,1 @@
+Artículo 67—Pérdida del beneficio estudiantil complementario a la beca socioeconómica por requisito académico. Si por pérdida de créditos o revaloración de la beca, el estudiante pierde su categoría de beca quedando en una menor, perderá el beneficio complementario de acuerdo a lo señalado en el artículo 33.

@@ -1,1 +1,3 @@
-Artículo 32.—Las becas por excelencia académica consisten en la exoneración total del pago de aranceles según lo descrito en el artículo 2, en el cuatrimestre inmediato posterior al cumplimiento de los requisitos señalados por el presente Reglamento para obtener la beca. Adicionalmente el estudiante recibirá un certificado de Mención de Honor emitido por el Departamento de Registro que especifica el nombre del estudiante beneficiario y el promedio alcanzado en el ciclo lectivo.
+CAPÍTULO II
+BECAS SOCIOECONÓMICAS
+Artículo 32 —Becas socioeconómicas. Son becas destinadas a aquellos estudiantes que demuestren una situación socioeconómica deficitaria para suplir sus gastos de estudio. Según la categoría asignada, algunos estudiantes becados pueden tener derecho a solicitar algunos beneficios estudiantiles complementarios.

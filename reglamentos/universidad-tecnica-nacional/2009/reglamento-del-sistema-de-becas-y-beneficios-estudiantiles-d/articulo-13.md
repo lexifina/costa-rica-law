@@ -1,3 +1,2 @@
-CAPÍTULO II
-Del financiamiento
-Artículo 13.—Del presupuesto. La institución presupuestará anualmente, un monto económico que se aplicará al financiamiento de ayudas económicas y beneficios complementarios, así como para la concesión de ayuda económica según lo dispuesto en el artículo 29 del presente reglamento.
+Artículo 13 —Recursos de revocatoria y apelación. El estudiante al que se le deniegue la beca o el beneficio estudiantil o que no esté de acuerdo con la resolución de beca o beneficio estudiantil asignado, podrá interponer los recursos ordinarios de revocatoria y apelación subsidiaria ante la Dirección de Vida Estudiantil respectiva, dentro del plazo de cinco días hábiles contados a partir del momento en que se notificó la resolución correspondiente. Si el recurso es rechazado por la Dirección de Vida Estudiantil, ésta lo elevará al Decano de Sede para su resolución. Ambos recursos deberán ser resueltos por los órganos competentes en el plazo de 5 días hábiles.
+Lo anterior con excepción del beneficio de préstamo estudiantil, que se regulará según la reglamentación y procedimientos definidos para ello.

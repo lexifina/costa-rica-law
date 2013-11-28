@@ -1,4 +1,3 @@
-TÍTULO IV
-Beca de estímulo por pertenencia a asociación
-y federación de estudiantes
-Artículo 41.—Los estudiantes que se desempeñen como representantes estudiantiles en los órganos en que así se establezca conforme a la normativa institucional, gozarán de la exoneración total del pago de aranceles según lo descrito en el artículo 2, según lo regule el Reglamento correspondiente, en cuanto al número de beneficiados y demás extremos pertinentes.
+CAPÍTULO III
+BECAS DE ESTÍMULO
+Artículo 41—Becas de Estímulo. Las becas de estímulo consisten en la exoneración total o parcial del pago de aranceles en el cuatrimestre inmediato posterior al cumplimiento de los requisitos señalados por el presente Reglamento para obtener la beca.

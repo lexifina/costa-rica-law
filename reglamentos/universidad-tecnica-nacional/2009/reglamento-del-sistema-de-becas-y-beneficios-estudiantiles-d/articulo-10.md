@@ -1,2 +1,4 @@
-Artículo 10.—De la vigencia. El período de vigencia de cualquier tipo de beca, se extiende durante un período máximo de beneficio de doce cuatrimestres consecutivos o la culminación del plan de estudios de Bachillerato, lo que ocurra primero.
-(Así reformado mediante seisón N° 17 del 28 de febrero del 2012)
+CAPÍTULO III
+DISPOSICIONES GENERALES DE LAS BECAS Y LOS BENEFICIOS ESTUDIANTILES
+Artículo 10 — Solicitud de la Beca y Beneficios Estudiantiles.
+Cualquier estudiante admitido en la Universidad Técnica Nacional o estudiante regular de la institución, tendrá derecho a realizar la solicitud de beca y de los beneficios estudiantiles descritos, según las regulaciones establecidas en este Reglamento. Para ese fin, el estudiante debe cumplir con todos los procedimientos y los plazos definidos por las dependencias correspondientes, según lo dispuesto en este Reglamento. Como caso de excepción debidamente justificado por el área de Trabajo Social, las Direcciones de Vida Estudiantil de las Sedes podrán autorizar al estudiante realizar una solicitud de beca o beneficio estudiantil en forma extemporánea.

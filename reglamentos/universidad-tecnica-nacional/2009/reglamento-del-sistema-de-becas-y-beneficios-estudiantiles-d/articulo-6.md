@@ -1,2 +1,3 @@
-Artículo 6º—De las becas y carreras simultáneas.El goce de cualquier tipo debeneficio porparte del estudiante,no excluye la posibilidad de que pueda ser merecedor de otro de losbeneficios aquíestablecidos, de acuerdo a su condición y requisitos. Un estudiante quematricule dos o máscarreras en forma simultánea, puede optar por beca para cada una de lascarreras, siemprey cuando cumpla con los requisitos establecidos en cada caso. Lo anteriorcon excepción delo establecido en el Artículo 39 del presente Reglamento.
-(Así reformado mediante sesión N° 17 del 28 de febrero del 2012)
+CAPÍTULO II
+EL PRESUPUESTO
+Artículo 6 — Presupuesto del programa de becas y beneficios estudiantiles. La institución presupuestará anualmente un monto económico que se aplicará al financiamiento de las exoneraciones, ayudas económicas y beneficios estudiantiles descritos en este Reglamento. Adicionalmente podrán ser sumados fondos provenientes de fuentes externas a la institución.

@@ -1,0 +1,1 @@
+Artículo 49 —Declaración de oficialidad de Grupos y Actividades. Corresponde a la Vicerrectoría de Vida Estudiantil, previo cumplimiento de los procedimientos establecidos, declarar oficiales los diversos grupos y actividades de interés institucional según la normativa establecida para este efecto.

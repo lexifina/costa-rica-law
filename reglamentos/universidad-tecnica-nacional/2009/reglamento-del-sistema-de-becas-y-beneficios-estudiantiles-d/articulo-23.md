@@ -1,10 +1,1 @@
-Artículo 23.—De las categorías de becas socioeconómicas. Las categorías de becas socioeconómicas son:
-Categoría de beca | Porcentaje de exoneración en pago de créditos | Porcentaje de exoneración en pago de Laboratorios | Porcentaje de exoneración en pago de giras | Porcentaje de exoneración en pago de comedor | Porcentaje de exoneración en pago de residencias
-1 | 15% | 15% | 15% | 0 | 0
-2 | 30% | 30% | 30% | 0 | 0
-3 | 45% | 45% | 45% | 0 | 45%
-4 | 60% | 60% | 60% | 0 | 60%
-5 | 75% | 75% | 75% | 0 | 75%
-6 | 90% | 90% | 90% | 0 | 90%
-7 | 100% | 100% | 100% | 100%* | 100%
-8 | 100% y ayuda económica | 100% | 100% | 100%* | 100%
+Artículo 23 — Cambio de carrera y beca socioeconómica. El beneficiario podrá cambiarse de la carrera en que tiene aplicada la beca socioeconómica o los beneficios estudiantiles una sola vez manteniendo el beneficio otorgado y renovando el periodo de la vigencia de su beca. En caso de que el estudiante tenga matriculadas dos carreras simultáneamente con goce de beca, podrá cambiarse de carrera en una sola de ellas, en cuyo caso mantendrá la beca en ambas carreras. De realizar un segundo cambio de carrera el beneficiario perderá la beca socioeconómica aplicada así como los beneficios estudiantiles complementarios asociados a esa beca.

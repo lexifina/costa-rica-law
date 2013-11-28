@@ -1,5 +1,1 @@
-CAPÍTULO IV
-Categoría de becas
-TÍTULO I
-De la beca socioeconómica
-Artículo 17.—Becas socioeconómicas. La beca socioeconómica consiste en la exoneración parcial o total del pago de aranceles según lo descrito en el artículo 2, así como otros beneficios adicionales establecidos en el presente reglamento, a todo candidato a ingresar a la Universidad Técnica Nacional o estudiante regular de la institución que demuestren una situación económica deficitaria para suplir sus estudios.
+Artículo 17 —. Vigencia de la beca socioeconómica y de los beneficios estudiantiles asociados a la beca en el nivel de Diplomado. El periodo de vigencia de la beca socioeconómica y de los beneficios estudiantiles se extiende desde el momento en que le es adjudicado al estudiante, y durante un periodo máximo de ocho cuatrimestres consecutivos, o la culminación del plan de estudios de Diplomado, lo que ocurra primero. Si el estudiante se retira, cambia de carrera o se presenta otra situación que no le permite concluir el plan de estudios de Diplomado en el plazo máximo establecido de ocho cuatrimestres, no podrá solicitar revalidación de beca hasta tanto no haya concluido el Diplomado, con excepción de lo establecido en el artículo 20 del presente reglamento.

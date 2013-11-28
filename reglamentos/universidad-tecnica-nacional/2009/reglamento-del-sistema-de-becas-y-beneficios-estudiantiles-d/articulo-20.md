@@ -1,2 +1,1 @@
-Artículo 20.—De la simultaneidad de la beca. De conformidad con el artículo 6 de esteReglamento, unestudiante puede realizar solicitud de beca socioeconómica hasta para doscarreras y estaestará disponible siempre y cuando cumpla con los requisitos establecidos paracada una de esascarreras.
-(Así reformado mediante sesión N° 17 del 28 de febrero del 2012)
+Artículo 20. — Vigencia de la beca por participación en grupos oficiales de representación institucional. Las becas otorgadas por participación en grupos oficiales de representación institucional de la Universidad y de la Sede, se otorgarán durante una vigencia máxima de 16 cuatrimestres consecutivos, siempre y cuando el estudiante cumpla los requisitos establecidos en este Reglamento para ese tipo de becas.

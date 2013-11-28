@@ -1,4 +1,1 @@
-TÍTULO III
-Becas de estímulo por participación en grupos de representación,
-grupos oficiales y actividades de interés institucional
-Artículo 35.—A los estudiantes que participen en grupos oficiales permanentes de la Universidad Técnica Nacional, se les otorga la exoneración total del pago de aranceles según lo descrito en el artículo 2.
+Artículo 35 — Beneficios complementarios a la beca socioeconómica. Los estudiantes podrán solicitar beneficios estudiantiles complementarios a su beca, según la categoría de beca que le fue asignada, de acuerdo a la tabla expuesta en el artículo 33. La adjudicación o no del beneficio estudiantil quedará sujeta al estudio realizado por el área de Trabajo Social de la Sede y al presupuesto asignado para ello. Los beneficios complementarios se otorgarán proporcionalmente al tipo de exoneración fijada.

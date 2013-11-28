@@ -1,3 +1,2 @@
-TÍTULO II
-Becas de estímulo por excelencia académica
-Artículo 31.—Se establecen dos modalidades de becas de estímulo por excelencia académica: Beca de Ingreso por Excelencia Académica y Beca de Honor.
+Artículo 31 —Carga académica por materias no ponderables.
+Las materias que sean reprobadas por más de un 70% de los estudiantes matriculados en un grupo regular, se considerarán no ponderables y no afectarán la carga académica del estudiante para el cumplimiento de este requisito. En ausencia de sistemas informáticos para verificar este requisito, el Director de carrera remitirá a la Dirección de Vida Estudiantil de la Sede antes del período de matrícula una constancia de la situación presentada en cada caso.

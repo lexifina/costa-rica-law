@@ -1,8 +1,12 @@
-DISPOSICIONES TRANSITORIAS
-Transitorio I.—Las becas y beneficios otorgados a los estudiantes de la Universidad Técnica Nacional en el año 2009, y a los estudiantes de los Colegios Universitarios fusionados que se acojan al Reglamento para la Transferencia de Estudiantes de la Universidad Técnica Nacional, se continuarán rigiendo por lo estipulado en el presente reglamento. Las becas otorgadas en el 2009 continuarán en el 2010 y subsiguientes con la beca y beneficios equivalentes a los adjudicados según el siguiente cuadro:
-Porcentaje de exoneración en reglamento anterior | Porcentaje de exoneración equivalente en reglamento actual
-25% | 30%
-50% | 60%
-75% | 75%
-100% | 100%
-En el caso de los estudiantes de las sedes regionales, los porcentajes de exoneración incluyen el porcentaje de exoneración respectivo para los rubros de alimentación y residencia.
+TRANSITORIOS
+Transitorio I.
+El presente Reglamento regirá a partir de la matrícula posterior a su publicación y se hará un traslado de los estudiantes de la categoría de beca socioeconómica asignada originalmente según el Reglamento de Becas anterior, a las nuevas categorías de beca, conforme a la siguiente tabla
+Categoría de beca en reglamento anterior | Porcentaje de exoneración en pago de crédito según reglamento actual | Categoría de beca en reglamento actual | Porcentaje de exoneración en pago de crédito según reglamento actual
+1 | 15% | 1 | 20%
+2 | 30% | 2 | 40%
+3 | 45% | 3 | 60%
+4 | 60% | 3 | 60%
+5 | 75% | 4 | 80%
+6 | 90% | 5 | 100%, beneficios complementarios correspondientes y un máximo de 15 tiquetes de alimentación
+7 | 100% | 5 | 100% y los beneficios complementarios correspondientes
+8 | 100% + AE | 5 | 100% y los beneficios complementarios correspondientes

@@ -1,3 +1,5 @@
-CAPÍTULO V
-Becas para estudiantes extranjeros
-Artículo 44.—Becas de estímulo. Tendrán derecho a las becas de estímulo al igual que los estudiantes nacionales aquellos extranjeros con cédula de residencia en el país, en las mismas condiciones que establece este Reglamento para los nacionales
+Artículo 44 —Beca de Honor. La beca de honor consiste en la exoneración total del pago de aranceles, a los tres mejores promedios de cada carrera en cada Sede, quienes además deberán cumplir con los siguientes requisitos:
+1. Haber matriculado el bloque de materias correspondiente a su nivel, en cualquiera de las siguientes circunstancias:
+a) Total de créditos de cada ciclo lectivo correspondientes al plan de estudios de la carrera matriculada.
+b) Mínimo de 12 créditos de diferentes ciclos lectivos de la Carrera.
+2. Obtener un promedio ponderado final igual o superior a nueve siempre y cuando todas las materias matriculadas en ese ciclo lectivo tengan una nota igual o superior a nueve. Las materias aprobadas por suficiencia y tutorías serán tomadas en cuenta para los efectos de otorgamiento de Beca de Honor, en la obtención del Promedio Ponderado del ciclo lectivo correspondiente. En el caso de que el promedio ponderado obtenido quede en fracción igual o superior a 0.5, se redondeará al número superior.
