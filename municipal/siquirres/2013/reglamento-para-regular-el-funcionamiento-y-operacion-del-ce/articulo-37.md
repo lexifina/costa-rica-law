@@ -1,0 +1,1 @@
+Artículo 37.—Del interés superior del menor. En el caso, de que el proyecto del Centro de Cuido y Desarrollo Infantil, no sea contemplado dentro de los Planes Operativos de las instituciones involucradas o en los planes del Gobierno Central, se procurará que prevalezca el interés superior de las personas menores de edad, contemplado en el Código de la Niñez y Adolescencia.

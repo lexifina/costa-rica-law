@@ -1,0 +1,1 @@
+Artículo 15.—Nombramiento de Comisión Especial. La integrarán cinco miembros. Se formará una Comisión integrada por un miembro del Concejo Municipal, un representante de la Oficina Local del PANI, uno del IMAS en Siquirres, un representante de DINADECO, un representante de la población civil donde se encuentra ubicado el centro (se especifican funciones en el capítulo VIII).
