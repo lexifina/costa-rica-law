@@ -1,0 +1,6 @@
+25. CONTROL Y VERIFICACIÓN.
+25.1. El control del cumplimiento de lo establecido en este reglamento le corresponde al Ministerio de Salud de Costa Rica.
+25.2. Toda droguería queda sujeta a inspecciones periódicas por parte del Ministerio de Salud.
+25.3. Las inspecciones para la verificación del cumplimiento del presente reglamento se harán utilizando la “Guía de Verificación de Buenas Prácticas de Almacenamiento y Distribución de Medicamentos en Droguerías”, que el Ministerio de Salud publicará en su página Web, previa notificación en el diario oficial La Gaceta y diario de circulación nacional para conocimiento de la población.
+25.4. Para el cumplimiento del presente reglamento es obligatorio obtener el 100 por ciento de los puntos críticos, y los porcentajes de los puntos mayores y menores establecidos en la “Guía de Verificación de Buenas Prácticas de Almacenamiento y Distribución de Medicamentos en Droguerías”.
+25.5. El incumplimiento a las disposiciones establecidas en el presente Reglamento, dará lugar a la aplicación de las sanciones y medidas especiales que señala la Ley General de Salud Nº 5395 del 30 de octubre de 1973, en respeto al debido proceso y derecho a defensa del administrado.

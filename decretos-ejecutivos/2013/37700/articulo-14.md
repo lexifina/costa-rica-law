@@ -1,0 +1,4 @@
+14. MANEJO Y DISPOSICIÓN DE RESIDUOS DE MEDICAMENTOS.
+14.1. Se deben tomar previsiones para el almacenamiento y manejo adecuado de los residuos sólidos ordinarios que se generen, evitando la acumulación en las áreas de almacenamiento y sus alrededores. El manejo deberá realizarse de acuerdo a lo establecido en el Decreto N° 36093-S. Reglamento Sobre el Manejo de Residuos Sólidos Ordinarios.
+14.2. En el caso de la disposición de medicamentos y sus residuos, esta deben ser llevada acabo bajo la responsabilidad del regente farmacéutico de acuerdo con lo establecido en el Decreto Ejecutivo Nº 36039-S Reglamento para la Disposición Final de Medicamentos, Materias Primas y sus Residuos.
+En caso de realizar una destrucción de medicamentos, se debe levantar un acta haciendo constar la misma. En caso de productos controlados, se debe hacer llegar al Ministerio los documentos establecidos en la normativa específica para tal efecto.

@@ -1,0 +1,43 @@
+4. DEFINICIONES.
+Para los efectos de este Reglamento se adoptan las siguientes definiciones:
+4.1. Auditoría o auto inspección: Revisión de actividades específicas efectuada con la finalidad de establecer el cumplimiento de los procedimientos establecidos según las Buenas Prácticas de Almacenamiento y Distribución.
+4.2. Acondicionamiento: Todas las operaciones, incluidos el llenado y el etiquetado, necesarias para convertir un producto a granel en producto terminado.
+4.3. Buenas prácticas de almacenamiento y distribución: Conjunto de normas correctas, mínimas, aceptables y actuales para el almacenamiento y distribución de los medicamentos. Estas incluyen lo correspondiente al manejo y al transporte de los mismos.
+4.4. Calidad de producto: Naturaleza esencial de un producto y la totalidad de sus atributos y propiedades, las cuales determinan su idoneidad para los propósitos a los cuales se destina.
+4.5. Condiciones de almacenamiento: Son las recomendadas por el fabricante y declaradas en el etiquetado, basadas en estudios de estabilidad, que garantizan el mantenimiento de la calidad, la seguridad y eficacia, a través de toda la vida útil del producto, bajo las condiciones de la zona climática adoptada por el Ministerio.
+4.6. Contaminación: Presencia de elementos físicos, químicos o biológicos que atentan contra la pureza, identidad, eficacia y seguridad de un producto.
+4.7. Contaminación cruzada: Contaminación de un producto terminado con otro producto o con otro material ajeno al producto durante el almacenamiento o distribución.
+4.8. Contrato a terceros: Documento legal firmado entre la droguería y un tercero en el que se establecen las condiciones de calidad para la realización de actividades relacionadas con la importación, el almacenamiento o la distribución, incluyendo el transporte de un producto farmacéutico.
+4.9. Cuarentena: El estado de los productos farmacéuticos aislados físicamente o por otros medios efectivos, mientras se espera una decisión sobre su liberación o rechazo.
+4.10. Desviación: Parámetro que se aparta del proceso o procedimiento establecido.
+4.11. Devolución: Retorno de un medicamento que puede presentar o no un defecto de calidad a su fabricante o droguería.
+4.12. Droguería: Establecimiento farmacéutico definido en la Ley Nº 5395 Ley General de Salud como aquel que opera en la importación, depósito, distribución y venta al por mayor de medicamentos, quedando prohibido realizar en éste el suministro directo al público y la preparación de recetas.
+4.13. Empaque primario: Recipiente o envase dentro del cual se coloca directamente el medicamento en su forma farmacéutica terminada.
+4.14. Empaque secundario: Recipiente dentro del cual se coloca el envase primario que contiene la forma farmacéutica terminada para su distribución y comercialización.
+4.15. Estándar de servicio: Definición de un modelo, criterio, regla de medida o de los requisitos mínimos aceptables para la operación de procesos específicos, con el fin asegurar la calidad en la prestación de los servicios.
+4.16. Estudios de mapeo de temperatura y humedad: Es el proceso para determinar la distribución de la temperatura y humedad en un área de almacenamiento, el punto más frío y el más cálido dentro del área. Los resultados del estudio de mapeo ofrecen el sustento científico para la colocación de los sensores de temperatura y humedad destinados al posterior monitoreo continuo.
+4.17. Etiquetado: Es cualquier etiqueta, rótulo, imagen u otra materia descriptiva o gráfica que se haya escrito, impreso, estarcido, marcado en relieve, adherido o insertado al envase de un medicamento.
+4.18. Falsificado: Se refiere al producto manufacturado de manera deliberada y fraudulenta en lo que respecta a su identidad u origen. Pueden incluir productos con los ingredientes correctos o con los ingredientes incorrectos, sin principios activos, con un principio activo insuficiente o cuyo empaque en su rotulación o la información que lo acompaña, contenga falsa información, ambigua o engañosa respecto de su identidad, composición, cualidades, utilidad o seguridad.
+4.19. Fecha de expiración (caducidad o vencimiento): Fecha colocada en el material de empaque primario y secundario de un producto, para indicar la fecha hasta la cual se espera que el producto satisfaga las especificaciones de calidad. Esta fecha se establece para cada lote.
+4.20. Informe o certificado de análisis: Documento en el cual se indican las especificaciones y los resultados de los análisis físicos, químicos, biológicos, microbiológicos y biofarmacéuticos de un medicamento, emitido por un laboratorio nacional o extranjero que a juicio del Ministerio garantice su identidad y calidad.
+4.21. Inspección: Actividad de campo del Ministerio de Salud, cuyo objetivo es verificar que todos los elementos del sistema de almacenamiento y distribución farmacéutica cumplen con las regulaciones establecidas.
+4.22. Instrucciones de trabajo: Documento en el cual se describen los detalles específicos de la operación diaria de los diferentes productos farmacéuticos, equipos y procesos en lo referente al manejo, almacenamiento, distribución y transporte de los productos.
+4.23. Liberación: Autorización documentada y extendida por el regente farmacéutico de la droguería para que el medicamento sea comercializado.
+4.24. Lote: Cantidad de producto que se fabrica en un ciclo de producción. La característica esencial del lote es su homogeneidad.
+4.25. Manual de calidad: Documento que establece las políticas de calidad y describe al sistema de calidad de una organización específica.
+4.26. Medicamento o producto farmacéutico: Producto que se utiliza para el diagnóstico, prevención, tratamiento y alivio de las enfermedades o estados físicos anormales, o de los síntomas de los mismos y para el restablecimiento o modificación de funciones orgánicas en las personas. Se incluyen dentro de esta definición y para efectos del presente Reglamento, los alimentos de uso parenteral y las muestras médicas. Los términos “producto farmacéutico” y “medicamento” son intercambiables para efectos de este Reglamento.
+4.27. Ministerio: Ministerio de Salud de Costa Rica.
+4.28. No conformidad: Incumplimiento de un requisito o condición.
+4.29. Número de lote: Cualquier combinación distintiva de letras, números o símbolos que permiten trazar la historia completa de la producción y distribución de un determinado medicamento.
+4.30. Procedimientos estándar de operación: Documentos escritos que describen las tareas relacionadas con el almacenamiento y distribución de los medicamentos.
+4.31. Rechazado: Condición en que se encuentra un producto o material que no cumple con las especificaciones establecidas por el laboratorio fabricante o titular.
+4.32. Reclamo o queja: Expresión de insatisfacción presentada por un cliente a la droguería con respecto a sus productos o al servicio brindado; donde debe existir por parte de la droguería una respuesta o resolución.
+4.33. Residuo de medicamentos: Material sólido, semisólido, líquido o gaseoso proveniente de un medicamento, incluyendo su empaque primario y secundario, que requiere ser descartado y que para ello debe ser manejado por sistemas de disposición final.
+4.34. Retiro: Procedimiento voluntario o por exigencia del Ministerio mediante el cual un lote de fabricación se retira del mercado.
+4.35. Segregación: Se refiere a la separación inequívoca de dos o más grupos de medicamentos.
+4.36. Segregación física: Se refiere a la separación inequívoca de dos o más grupos de medicamentos en la que debe existir una barrera material que permita el acceso únicamente al personal autorizado.
+4.37. Sistema de gestión de la calidad: Conjunto de elementos relacionados que abarcan la estructura organizativa, los procedimientos, procesos, recursos y las acciones sistemáticas, así como la política y objetivos de calidad, a fin de dirigir y controlar una organización con respecto a la calidad.
+4.38. Titular o titular del medicamento: Persona física o jurídica que es dueña del producto farmacéutico.
+4.39. Transportista: Persona física o jurídica responsable de realizar el transporte de los medicamentos desde la droguería al destinatario, ésta puede formar parte de la droguería o de un servicio de distribución subcontratado.
+4.40. Trazabilidad o rastreabilidad: Capacidad para reproducir el historial de movimientos y localizaciones de un lote de un medicamento mediante un sistema documental de seguimiento.
+4.41. Validación: Acción documentada que demuestra que un procedimiento, proceso, equipo, material, actividad o sistema conducen a los resultados previstos.

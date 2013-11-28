@@ -1,0 +1,8 @@
+20. RETIROS.
+20.1. Las droguerías deben contar con procedimientos escritos para el manejo de los productos farmacéuticos que se retiran del mercado.
+20.2. Todo retiro debe ser notificado previamente al Ministerio y ejecutado por la droguería o el fabricante o el titular.
+20.3. El regente farmacéutico es el responsable de la coordinación y seguimiento del retiro. Para tal efecto, debe contar con los registros de distribución y con el personal suficiente para iniciar las operaciones de retiro inmediato.
+20.4. Los productos farmacéuticos retirados del mercado deben estar bajo la responsabilidad del regente farmacéutico para evaluar las razones del retiro y tomar las decisiones correspondientes, sin perjuicio de las disposiciones que dicte el Ministerio al respecto.
+20.5. El medicamento retirado debe mantener las condiciones de almacenamiento y transporte requeridas hasta que se tomen las medidas definitivas con respecto al mismo. Los productos retirados deben ser rotulados y almacenados de forma que se prevenga su uso no autorizado.
+20.6. Si el retiro se debe a incumplimiento de la normativa vigente de medicamentos, adicionalmente se deben seguir los lineamientos de dichos reglamentos.
+20.7. El retiro de productos farmacéuticos se debe registrar y hacer un informe final, en el que se debe incluir un balance entre las cantidades distribuidas y las retiradas, así como la disposición final del producto. Toda la documentación concerniente a un retiro se conservará por un año después del vencimiento del producto o por un periodo mayor si así lo tiene establecido la droguería y podrá ser requerido por el Ministerio en cualquier momento.

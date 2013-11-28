@@ -1,0 +1,3 @@
+11. TRAZABILIDAD O RASTREABILIDAD.
+11.1. Debe existir trazabilidad del producto a través de la cadena de fabricación, almacenamientoy distribución. Esta es una responsabilidad compartida entre todas las partes involucradas. Deben existir procedimientos para asegurar la trazabilidad documental de los productos recibidos en la droguería y distribuidos por la misma para facilitar el retiro del mercado en caso necesario y facilitar investigaciones en caso de sospecha de falsificación u otra razón que defina el Ministerio.
+11.2. Debe existir registros con toda la información necesaria que permita la trazabilidad del producto para su localización.
