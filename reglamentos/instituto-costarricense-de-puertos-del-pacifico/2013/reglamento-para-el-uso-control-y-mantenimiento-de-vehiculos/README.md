@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento de vehículos del Instituto Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-18 | la propia norma |
+| 2 | 2013-11-28 | Reglamento 3867 (2013-11-28) |

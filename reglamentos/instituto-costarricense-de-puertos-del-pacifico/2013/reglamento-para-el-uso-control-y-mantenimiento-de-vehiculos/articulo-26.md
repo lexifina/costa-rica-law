@@ -13,8 +13,9 @@ j) Anotar en el reporte de recorrido de vehículo claramente los siguientes dato
 2. Hora exacta de salida y regreso
 3. Nº Placa
 4. Lugares Visitados
-5. Solicitar la firma del funcionario autorizado
-6. Observaciones si las hubiere.
-7. Firma del chofer o conductor y entregarla al Jefe de la Unidad de Servicios Generales al concluir la jornada laboral.
+5. Observaciones si las hubiere
+6. Firma del chofer y de la persona que recibe el servicio y entregarla al Jefe de la Unidad de Servicios Generales al concluir la gira
+7. En caso de darse un cambio de ruta: El chofer o conductor responsable de la gira deberá anotar la justificación en cuanto a cambios de rutas, horarios, kilometrajes de recorrido y cualquier otra información diferente a la solicitada que dio origen al servicio.
 k) Los choferes deberán acatar las disposiciones que dicte La Dirección Administrativa Financiera o la Jefatura de la Unidad de Servicios Generales en cuanto a suministro y uso del combustible que requieran los vehículos y otros.
 l) Es obligación de todos los conductores solicitar a los usuarios al abordar los vehículos de la Institución, el carné que lo identifique como funcionario público o en su efecto personas debidamente autorizadas.
+(Así reformado mediante sesión N° 3867 del 28 de noviembre del 2013)
