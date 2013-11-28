@@ -15,3 +15,13 @@ k) Elaborar los reglamentos internos para cumplir adecuadamente los objetivos de
 l) Velar por el cumplimiento de declaraciones, convenios, leyes, reglamentos y demás disposiciones conexas, referentes a la protección de los derechos de las personas adultas mayores.
 m) Las demás funciones que se consideren convenientes para el desarrollo de las actividades en pro del bienestar, el desarrollo y la protección del sector de la sociedad mayor de 65 años.
 n) Coordinar, con las instituciones ejecutoras, los programas dirigidos a las personas adultas mayores.
+ñ) La atención de personas adultas mayores internadas en establecimientos públicos o privados, diurnos y permanentes.
+o) La atención de las personas adultas mayores en su domicilio o comunidad mediante programas de atención y cuido integral de personas adultas mayores en Costa Rica.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley de Fortalecimiento del Consejo Nacional de la Persona Adulta Mayor (CONAPAM), N° 9188 del 28 de noviembre de 2013)
+p) El financiamiento de programas para viviendas comunitarias en modalidad de albergue para personas adultas mayores solas o en pareja.
+(Así adicionado el inciso anterior por el artículo 2(*)° de la Ley de Fortalecimiento del Consejo Nacional de la Persona Adulta Mayor (CONAPAM), N° 9188 del 28 de noviembre de 2013)
+(*) (Nota de Sinalevi: Transitorio I de la Ley de Fortalecimiento del Consejo Nacional de la Persona Adulta Mayor (CONAPAM), N° 9188 del 28 de noviembre de 2013: TRANSITORIO I.- El financiamiento de programas para viviendas comunitarias dispuesto en el inciso p) del artículo 2 de esta ley será reglamentado por la Junta Rectora de Conapam en un plazo máximo de seis meses, contado a partir de la entrada en vigencia de esta ley)
+q) Mantener un registro actualizado de las personas beneficiarias de cada uno de los programas a cargo del Consejo, ya sean ejecutados por entidades públicas o privadas.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley de Fortalecimiento del Consejo Nacional de la Persona Adulta Mayor (CONAPAM), N° 9188 del 28 de noviembre de 2013)
+r) Controlar y fiscalizar la correcta utilización de los recursos materiales y monetarios que asigne a entidades públicas y privadas.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley de Fortalecimiento del Consejo Nacional de la Persona Adulta Mayor (CONAPAM), N° 9188 del 28 de noviembre de 2013)
