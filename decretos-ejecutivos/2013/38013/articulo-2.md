@@ -1,0 +1,1 @@
+Artículo 2°—Identificación del producto no protegido con la indicación geográfica. En el caso del producto no autorizado para emplear la indicación geográfica se podrá utilizar cualquier sello, siempre que se consigne en forma clara que el origen del producto es Costa Rica.
