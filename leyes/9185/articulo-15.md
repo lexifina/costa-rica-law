@@ -1,0 +1,4 @@
+ARTÍCULO 15.- Impuesto para el establecimiento de hospedaje
+Los establecimientos que se dediquen, principalmente, a brindar hospedaje momentáneo se regirán conforme a la siguiente calificación y su correspondiente monto a pagar por la patente comercial:
+a) Hoteles y similares, entendiéndose como establecimiento cuya actividad principal sea permitir el hospedaje momentáneo: se tasarán anualmente en un cero coma veinte por ciento (0,20%) sobre sus ventas o ingresos brutos del año anterior, según la declaración de renta sellada por la Dirección General de Tributación, cuyo monto no podrá ser inferior al establecido en el párrafo segundo del artículo 4 de esta ley. Esta tasación será pagadera en tractos trimestrales.
+b) Hospedajes, casas, pensiones, alojamientos y similares, que además del hospedaje momentáneo ofrezcan otro tipo de servicio: pagarán según el inciso a) de este artículo.
