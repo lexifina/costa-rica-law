@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Copia de la declaración de renta emitida por la Dirección General de Tributación o acuse de recibido por presentación digital
+Los patentados declarantes del impuesto sobre la renta deberán presentar la copia sellada de la declaración de renta emitida por la Dirección General de Tributación o el acuse de recibido por presentación digital o, en su defecto, por una institución bancaria autorizada. Además, tendrán que incluir la declaración jurada de cada patente municipal.
