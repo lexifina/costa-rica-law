@@ -1,0 +1,1 @@
+ARTÍCULO 4.- El Ministerio de Salud deberá coordinar con el Ministerio de Planificación Nacional y Política Económica las acciones encaminadas al establecimiento de vínculos con los gobiernos locales y demás instituciones públicas y privadas.

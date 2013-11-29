@@ -1,0 +1,3 @@
+TRANSITORIO I.- El Ministerio de Salud, en coordinación con el Ministerio de Planificación Nacional y Política Económica, bajo el ámbito de sus competencias y conforme al Plan Nacional de Desarrollo, planificará las acciones encaminadas al establecimiento de vínculos entre las instituciones públicas y privadas en materia de masculinidad y salud masculina. Tendrá un plazo de seis meses, contado a partir de la vigencia de esta ley, para desarrollar, planificar y presupuestar la implementación de la política pública nacional de salud integral masculina, la cual se ejecutará a partir del período presupuestario inmediato siguiente.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los veintinueve días del mes de octubre del dos mil trece.

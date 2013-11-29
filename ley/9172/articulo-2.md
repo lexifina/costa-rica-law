@@ -1,0 +1,2 @@
+ARTÍCULO 2.- El Ministerio de Salud diseñará e impulsará la política nacional de promoción y prevención de la salud integral para la población masculina. Deberá desarrollar programas para la formación y capacitación en las instituciones públicas y privadas dirigidos a la población masculina.
+Cada año, el Ministerio de Salud deberá implementar un plan que incluya aspectos relacionados con los buenos hábitos de salud masculina.
