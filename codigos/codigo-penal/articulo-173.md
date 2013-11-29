@@ -1,5 +1,4 @@
-Fabricación, producción o reproducción de pornografía
-Artículo 173.-
-Será sancionado con pena de prisión de tres a ocho años, quien fabrique, produzca o reproduzca material pornográfico, utilizando a personas menores de edad, su imagen y/o su voz.
-Será sancionado con pena de prisión de uno a cuatro años, quien transporte o ingrese en el país este tipo de material con fines comerciales.
-(Así reformado mediante el artículo 1° de la ley N° 8590 del 18 de julio del 2007).
+Artículo 173.-Fabricación, producción o reproducción de pornografía. Será sancionado con pena de prisión de cuatro a ocho años, quien fabrique, produzca o reproduzca, por cualquier medio, material pornográfico infantil.
+Será sancionado con pena de prisión de tres a seis años, quien transporte o ingrese en el país este tipo de material.
+Para los efectos de este Código, se entenderá por material pornográfico infantil toda representación escrita, visual o auditiva producida por cualquier medio, de una persona menor de edad, su imagen o su voz, alteradas o modificadas, dedicada a actividades sexuales explícitas, reales o simuladas, o toda representación de las partes genitales de una persona menor de edad con fines sexuales.
+(Así reformado por el artículo 1° de la ley N° 9177 del 1 de noviembre de 2013)
