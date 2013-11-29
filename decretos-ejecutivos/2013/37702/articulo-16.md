@@ -1,0 +1,1 @@
+Artículo 16.—Se otorgará un aumento anual de conformidad con lo establecido en la Ley de Salarios de la Administración Pública Nº 2166 y los porcentajes que establezca el Órgano competente del Ministerio de Hacienda, a los (as) oficiales que obtengan una calificación de excelente, muy bueno o bueno, en el proceso de evaluación del desempeño del período correspondiente.

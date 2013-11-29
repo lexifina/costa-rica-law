@@ -1,0 +1,1 @@
+Artículo 38.—Los documentos relativos a las pruebas de los y las oferentes podrán ser destruidos luego de transcurridos seis meses de la fecha del establecimiento del Registro de Elegibles. Los y las oferentes que participan en concursos podrán revisar todos los documentos dentro del mes siguiente a la fecha de declaratoria del concurso.

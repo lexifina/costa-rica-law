@@ -1,0 +1,2 @@
+Artículo 114.—La calificación obtenida será necesaria para considerar los méritos y ascensos, así como para la carrera policial y profesional de los (las) Oficiales. La obtención de una calificación inferior a Bueno, tendrá como efecto que no se reconozca el incentivo salarial respectivo.
+Si durante dos periodos consecutivos el Policía obtiene un resultado de deficiente, el Consejo de Personal recomendará mediante acuerdo firme al señor Ministro (a) el despido sin responsabilidad patronal, de conformidad con lo establecido en la Ley General de Policía.

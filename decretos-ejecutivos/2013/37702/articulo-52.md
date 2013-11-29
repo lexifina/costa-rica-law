@@ -1,0 +1,1 @@
+Artículo 52.—La Oficina de Recursos Humanos notificará a los y las participantes en el concurso la calificación final obtenida por cada uno de ellos (as), en un plazo no superior a treinta días hábiles siguientes a la declaratoria del concurso por parte del Consejo de Personal.

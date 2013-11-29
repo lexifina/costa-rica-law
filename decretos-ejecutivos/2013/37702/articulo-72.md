@@ -1,0 +1,1 @@
+Artículo 72.—La Secretaría Ejecutiva del Consejo, en coordinación con la Oficina de Recursos Humanos respectiva, será la responsable de depurar el Registro de Elegibles. Deberá verificar, cada año, el interés de los y las oferentes de permanecer en el citado registro.

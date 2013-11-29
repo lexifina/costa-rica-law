@@ -1,0 +1,1 @@
+Artículo 26.—Cuando el Consejo no cuente con Registro de Elegibles y sea necesario efectuar nombramientos provisionales para llenar puestos vacantes, se procederá de conformidad con lo establecido en el artículo 68 de la Ley General de Policía.

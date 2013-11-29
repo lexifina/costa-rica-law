@@ -1,0 +1,1 @@
+Artículo 40.—La confección, preparación y calificación de pruebas para seleccionar a los y las funcionarios (as) del Régimen Policial, así como su custodia, son responsabilidad de la Oficina de Recursos Humanos respectiva.

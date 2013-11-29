@@ -1,0 +1,1 @@
+Artículo 150.—Las diferentes instancias: administrativa, docente o técnico policial de la Escuela están en él deber de velar por el cumplimiento de las normas de este Capítulo, reportando al (la) Director (a) cualquier anomalía o transgresión al mismo.

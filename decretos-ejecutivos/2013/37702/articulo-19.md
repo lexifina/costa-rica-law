@@ -1,0 +1,2 @@
+Artículo 19.—De conformidad con lo dispuesto en la Ley Nº 8096 Fortalecimiento de la Policía Civilista y el artículo 91 de la Ley General de Policía Nº 7410, se autoriza la variación del plus salarial por concepto de Riesgo Policial a un dieciocho por ciento (18%) del salario base.
+Además, por concepto de disponibilidad se reconocerá un 25% del salario base por servicios sin sujeción de horario, según las necesidades del servicio público que se debe prestar y libre disposición requeridas por el (la) superior (a) jerárquico (a).

@@ -1,0 +1,1 @@
+Artículo 41.—Todo (a) aspirante a un puesto dentro del Régimen será indagado (a) en el Registro Judicial a efectos de que se corrobore si tiene o no antecedentes penales. Así como en el Consejo de Transporte Público para verificar si existe a su favor alguna concesión en el servicio de Transporte Público.

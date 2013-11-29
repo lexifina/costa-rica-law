@@ -1,0 +1,1 @@
+Artículo 149.—Desde el momento en que se formalice la admisión de una persona como estudiante de la Escuela y mientras permanezca en su régimen quedará sometido en todos sus actos, dentro y fuera de las instalaciones de la Escuela, a las normas de este Reglamento y a las disposiciones reglamentarias que al efecto fije la Escuela.

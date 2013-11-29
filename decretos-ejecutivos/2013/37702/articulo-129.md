@@ -1,0 +1,1 @@
+Artículo 129.—No se pagará el salario que corresponde a la jornada en la que se registro una ausencia injustificada, conforme lo establecido en este Reglamento y la normativa vigente, sin perjuicio de la sanción disciplinaria correspondiente.

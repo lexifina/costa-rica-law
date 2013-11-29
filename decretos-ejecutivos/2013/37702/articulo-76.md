@@ -1,0 +1,1 @@
+Artículo 76.—Una vez resuelta la nómina, luego que el Consejo apruebe la escogencia, la Secretaría Ejecutiva comunicará, en coordinación con la Oficina de Recursos Humanos respectiva, de inmediato a la persona escogida la fecha de rige de su nombramiento.

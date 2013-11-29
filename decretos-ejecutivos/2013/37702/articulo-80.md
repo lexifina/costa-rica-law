@@ -1,0 +1,1 @@
+Artículo 80.—En las entrevistas para resolución de nóminas participará como representante del Consejo su Presidente (a), como representante de Recursos Humanos su Director (a) y el (la) Director (a) General de la Policía de Tránsito o sus representantes, debidamente acreditados (as) ante el Consejo.

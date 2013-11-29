@@ -1,0 +1,1 @@
+Artículo 154.—La asistencia a lecciones es obligatoria. Las ausencias y llegadas tardías a las lecciones serán sancionadas de conformidad con lo establecido en el Título Tercero del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 96.—El (la) servidor (a) que desee regresar a su puesto antes del vencimiento de la licencia, deberá comunicarlo a su jefe (a) inmediato (a) al menos con treinta días de anticipación y éste lo comunicará de inmediato a Recursos Humanos.

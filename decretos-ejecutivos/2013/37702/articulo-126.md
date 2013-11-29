@@ -1,0 +1,1 @@
+Artículo 126.—Se considerará llegada tardía ingresar al trabajo transcurridos cinco minutos después de la hora señalada para el comienzo de las labores en la correspondiente fracción de la jornada. En casos calificados, a juicio del (la) superior (a), se justificarán las llegadas tardías a efecto de no aplicar la sanción correspondiente.

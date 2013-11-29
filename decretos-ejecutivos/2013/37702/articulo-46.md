@@ -1,0 +1,1 @@
+Artículo 46.—En caso de inopia, en los concursos internos se podrá aceptar la participación de oficiales interinos (as) del Régimen Policial, en el entendido de que si son escogidos (as) para ocupar las plazas vacantes su nombramiento será interino, ya que únicamente podrán alcanzar la propiedad mediante Concursos Externos.

@@ -1,0 +1,1 @@
+Artículo 98.—La incapacidad para laborar certificada por médico particular, sólo servirá para justificar las ausencias del (la) servidor (a) hasta por cuatro días y se rebajará el salario correspondiente a la(s) ausencia(s).

@@ -1,0 +1,3 @@
+Artículo 100.—Las Oficiales tendrán los subsidios y licencias por razón de maternidad conforme con las siguientes normas:
+a) Todas las servidoras de la Policía de Tránsito en estado de gravidez tendrán derecho a licencia por cuatro meses, con goce de sueldo completo. El período se distribuirá un mes antes del parto y tres meses después. Si éste se retrasare no se alterará el término de la licencia, pero si el alumbramiento se anticipa, gozará de los tres meses posteriores al mismo;
+b) La servidora deberá tramitar su licencia por intermedio del jefe inmediato, por lo menos con quince días de anticipación a su retiro, de acuerdo con la fecha previamente señalada por el médico;

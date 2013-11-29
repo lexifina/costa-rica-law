@@ -1,0 +1,1 @@
+Artículo 107.—Las promociones verticales (ascensos), consistentes en el paso de una categoría inferior a una superior inmediata, se definirán por concurso de antecedentes, en los términos establecidos en el numeral 71 de la Ley General de Policía.

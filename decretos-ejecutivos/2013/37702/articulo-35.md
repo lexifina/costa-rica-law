@@ -1,0 +1,1 @@
+Artículo 35.—Al aplicar pruebas, las bases de selección no deberán indicar el nombre específico de los predictores a utilizar; en su lugar se anotarán códigos institucionales que permitan identificarlos a los cuales se les dará un manejo exclusivo y confidencial por parte de la Oficina de Recursos Humanos respectiva.

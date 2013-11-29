@@ -1,0 +1,1 @@
+Artículo 47.—Para cada concurso que se tramite, la Oficina de Recursos Humanos confeccionará una guía que incluya la justificación del mismo, la(s) plaza(s) en concurso, tareas y bases de selección a evaluar.

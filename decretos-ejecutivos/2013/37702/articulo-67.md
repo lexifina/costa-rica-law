@@ -1,0 +1,1 @@
+Artículo 67.—El comunicado de convocatoria a entrevista deberá ser enviado al menos con cinco (5) días hábiles de anticipación al (la) interesado (a) y la copia del comunicado deberá agregarse al expediente de la terna o nómina en resolución.

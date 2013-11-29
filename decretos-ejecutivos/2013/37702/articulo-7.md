@@ -1,0 +1,1 @@
+Artículo 7º—De conformidad con la Ley, el Consejo está integrado por el (la) Oficial Mayor, quién lo preside, el (la) Director (a) de Recursos Humanos, el (la) Director(a) de la Dirección Jurídica, el (la) Director (a) de la Escuela Nacional de la Policía de Tránsito y el (la) Director (a) General de la Policía de Tránsito, todos del Ministerio de Obras Públicas y Transportes.

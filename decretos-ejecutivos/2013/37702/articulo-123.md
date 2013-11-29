@@ -1,0 +1,1 @@
+Artículo 123.—Si un (a) servidor (a) es reincidente en la comisión de faltas leves en el término de dos meses, podrá considerarse que incurrió en falta grave y se remitirá el asunto a la Sección de Inspección Policial.

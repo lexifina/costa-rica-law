@@ -1,0 +1,1 @@
+Artículo 124.—Se considerarán faltas graves las contenidas en la Ley General de Policía, así como el quebranto a las disposiciones contenidas en los artículos 12, 13, y 14, excluyendo las conductas indicadas en el inciso 8 del artículo 14 del presente Reglamento.

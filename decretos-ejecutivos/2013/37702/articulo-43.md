@@ -1,0 +1,1 @@
+Artículo 43.—Es responsabilidad de Recursos Humanos corroborar la autenticidad de los atestados (requisitos académicos, legales y experiencia), licencias y demás documentos presentados por los y las oferentes, necesarios para realizar los movimientos de personal, para lo cual debe realizar las consultas que estime pertinentes a otras instituciones.

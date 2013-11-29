@@ -1,0 +1,1 @@
+Artículo 155.—Los permisos requeridos por los (as) estudiantes, serán gestionados ante la Dirección de la Escuela con un mínimo de tres días de anticipación, salvo casos de extrema urgencia en que deberá contar con la aprobación del (la) Director (a) para proceder conforme a esta.

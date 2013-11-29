@@ -1,0 +1,1 @@
+Artículo 137.—El objetivo de los cursos de especialización es aumentar el conocimiento y habilidades adquiridas por el (la) Policía, para el desempeño de su cargo, en función de las necesidades administrativas y operativas específicas para el puesto que desempeñe.

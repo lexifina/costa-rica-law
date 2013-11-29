@@ -1,0 +1,1 @@
+Artículo 94.—El Consejo resolverá la petición y si ésta fuera favorable, la comunicará a Recursos Humanos, para su tramitación y ejecución al menos con ocho días hábiles de anticipación a la fecha del disfrute del permiso.

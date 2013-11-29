@@ -1,0 +1,1 @@
+Artículo 8°—El quórum para sesionar válidamente será de tres de sus miembros y sus acuerdos se tomarán por mayoría absoluta de los presentes. En casos de empate, el (la) Presidente (a) en ejercicio tendrá doble voto.

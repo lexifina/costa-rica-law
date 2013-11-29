@@ -1,0 +1,1 @@
+Artículo 50.—En la propuesta de concurso se deberán definir calificaciones mínimas y máximas para los predictores, proceso con el cual debe garantizarse su transparencia y objetividad, para lo cual los y las funcionarios (as) depositarios de esta responsabilidad deberán utilizar los medios apropiados que garanticen la seguridad, agilidad y oportunidad requerida.

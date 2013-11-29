@@ -1,0 +1,1 @@
+Artículo 28.—Para todos los efectos legales, se entenderá que los contratos que celebre la Administración con los servidores provisionales serán por tiempo determinado y que estos terminarán sin ninguna responsabilidad para la Administración al cesar en sus funciones, cuando se trate de nombramientos inferiores a seis meses.

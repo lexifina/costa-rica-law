@@ -1,0 +1,1 @@
+Artículo 23—Los nombramientos de Policías de Tránsito, de conformidad con la normativa vigente, se realizan en forma interina y sólo se ingresa al Estatuto Policial cuando se haya aprobado el Curso Básico Policial impartido por la Escuela y se haya cumplido satisfactoriamente el período de prueba de conformidad con la Ley.

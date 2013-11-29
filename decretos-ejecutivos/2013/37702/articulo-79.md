@@ -1,0 +1,1 @@
+Artículo 79.—Posterior a la resolución de la terna o nómina ofrecida por el Consejo, el resto de candidatos (as) que la conforman retornarán al Registro de Elegibles y deberán ser considerados (as) para futuras vacantes.

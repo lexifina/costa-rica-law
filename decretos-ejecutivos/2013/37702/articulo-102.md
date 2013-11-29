@@ -1,0 +1,1 @@
+Artículo 102.—Los (las) Oficiales estarán protegidos (as) contra riesgos del trabajo, conforme con lo establecido en el Título IV del Código de Trabajo (Ley Riesgos del Trabajo y su Reglamento Nº 6727 del nueve de marzo de mil novecientos ochenta y dos).

@@ -1,0 +1,1 @@
+Artículo 144.—Para resolver una nómina, el Director de la Policía de Tránsito en coordinación con el Jefe (a) de la Escuela remitirán la recomendación al Consejo, para que éste recomiende el nombramiento al Despacho del Ministro (a).

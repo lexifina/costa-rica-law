@@ -1,0 +1,1 @@
+Artículo 110.—La evaluación, incluyendo la etapa de impugnación de la calificación, se realizará cumpliendo las disposiciones del Manual de Procedimientos para la Evaluación del Desempeño de los Oficiales y Jefes de la Policía de Tránsito, mediante formularios confeccionados y aprobados para tal efecto por el Consejo.

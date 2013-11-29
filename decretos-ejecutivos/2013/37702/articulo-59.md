@@ -1,0 +1,1 @@
+Artículo 59.—El tiempo de aplicación de pruebas, no debe exceder de media jornada de trabajo. No obstante, en caso de necesidad se podrán autorizar excepciones a lo previsto, previa justificación del evaluador.

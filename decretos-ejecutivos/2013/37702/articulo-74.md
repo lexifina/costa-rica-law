@@ -1,0 +1,1 @@
+Artículo 74.—Cuando un candidato (a) no se presenta a la entrevista de contratación o bien, al presentarse no aceptare el puesto, será excluido (a) del Registro de Elegibles, de la clase de que trate la terna o nómina, salvo casos debidamente justificados.

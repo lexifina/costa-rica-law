@@ -1,0 +1,1 @@
+Artículo 42.—Todo movimiento de personal será respaldado con acciones de personal que confeccionará la Oficina de Recursos Humanos respectiva, cuyos originales serán resguardados en los respectivos expedientes personales de cada uno de los funcionarios, que para tal efecto mantenga esa Oficina, remitiendo una copia al interesado (a).

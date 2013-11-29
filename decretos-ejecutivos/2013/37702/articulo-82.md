@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Movimientos de personal
+Artículo 82.—Todo ascenso se definirá por concurso interno de antecedentes, al cual deberá dársele publicidad con la información necesaria, como mínimo durante quince (15) días hábiles anteriores a la fecha de inicio del concurso, mediante circulares que recibirán todas las dependencias de la Policía y que deberán colocar en lugares visibles para todos los y las servidores (as). Incumplir este requisito acarreará la nulidad del concurso de antecedentes. La competencia para declarar esa nulidad, corresponde al Consejo.
+Una vez declarado el concurso, el (los) ascenso(s) será(n) acordado(s) por el Consejo de Personal, previa recomendación del Director General, durante los treinta (30) días posteriores al recibo de la(s) nómina(s) enviadas por Recursos Humanos y entrevistar, si lo considera necesario, a los y las candidatos(as) propuestos.

@@ -1,0 +1,1 @@
+Artículo 132.—En materia de hostigamiento sexual los y las Policías de Tránsito se deberán sujetar a las disposiciones contenidas en el “Reglamento que regula la Prevención y sanción de Conductas de Hostigamiento Sexual en el Ministerio de Obras Públicas y Trasportes, Decreto Ejecutivo Nº 34968-MOPT”.

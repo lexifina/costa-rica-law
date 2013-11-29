@@ -1,0 +1,1 @@
+Artículo 112.—La distribución y recolección de formularios de evaluación del desempeño estará a cargo de la Secretaría Ejecutiva del Consejo, en coordinación con la Oficina de Recursos Humanos respectiva y de la Dirección General de la Policía de Tránsito

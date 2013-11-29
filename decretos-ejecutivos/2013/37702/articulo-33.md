@@ -1,0 +1,1 @@
+Artículo 33.—Concurso Externo es aquel que la Oficina de Recursos Humanos, en coordinación con el Consejo, realiza para proceder con nombramientos en puestos que no han sido ocupados mediante ascenso por concurso interno.

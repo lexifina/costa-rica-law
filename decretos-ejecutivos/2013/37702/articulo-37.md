@@ -1,0 +1,1 @@
+Artículo 37.—La Oficina de Recursos Humanos coordinará la realización de exámenes médicos y sicológicos a los (las) candidatos (as) que aspiren a un puesto del Régimen Policial, con el propósito de verificar si poseen la idoneidad física y mental requerida.

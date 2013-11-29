@@ -1,0 +1,1 @@
+Artículo 68.—En el caso que el (la) interino (a) ocupe uno de los tres primeros lugares de la nómina de la plaza a llenar en propiedad, queda a juicio del Director General si escoge en propiedad al (la) interino (a), obviando entrevistar a los demás candidatos.

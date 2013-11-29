@@ -1,0 +1,1 @@
+Artículo 61.—En todos los concursos externos e internos los y las funcionarios (as) involucrados (as), sean de Recursos Humanos o del Consejo y su Secretaría, deberán guardar discrecionalidad sobre la documentación y los casos sometidos a su conocimiento.

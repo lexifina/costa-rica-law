@@ -1,0 +1,1 @@
+Artículo 78.—En aquellas plazas vacantes en que las servidoras que las ocupen en forma interina se encuentren gozando de licencia por maternidad, el nombramiento en propiedad del (la) candidato (a) escogido (a) de la terna o nómina se debe hacer al vencimiento de la licencia por maternidad.

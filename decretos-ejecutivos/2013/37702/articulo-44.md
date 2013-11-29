@@ -1,0 +1,1 @@
+Artículo 44.—El desarrollo de concursos internos y externos es responsabilidad de la Oficina de Recursos Humanos respectiva, la que deberá asesorar al Consejo en lo que al concurso se refiere, atendiendo toda consulta que se genere en este sentido, sea del Consejo de Personal así como de los (las) posibles oferentes.

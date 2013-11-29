@@ -1,0 +1,1 @@
+Artículo 125.—Las faltas leves deben ser sancionadas dentro del término de un mes calendario y las faltas graves dentro del término de dos años, esto contado a partir del momento en que el órgano competente para decidir tuvo conocimiento de los hechos.
