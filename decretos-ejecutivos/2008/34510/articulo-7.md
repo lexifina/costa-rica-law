@@ -8,4 +8,4 @@ b.1) Direcciones Regionales de Rectoría de la Salud.
 b.2) (Derogado por el artículo 67 del Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición de Centros Infantiles de Atención Integral, aprobado mediante decreto ejecutivo N° 37270 del 27 de junio de 2012)
 c) Nivel local. Constituye el nivel político-operativo de la institución para la ejecución de las funciones rectoras y de provisión de servicios de salud. Participa, conjuntamente con los niveles central y regional, en la determinación, formulación y ejecución de las políticas, reglamentos, normas, lineamientos, directrices, planes, proyectos, procedimientos y sistemas que aseguren la implementación del marco estratégico institucional. El nivel local del Ministerio de Salud cuenta con dos tipos de unidades organizativas:
 c.1) Direcciones de Áreas Rectoras de Salud.
-c.2) Direcciones de Servicios de Nutrición y Desarrollo Infantil.
+c.2) (Derogado este inciso por el artículo 3° del decreto ejecutivo N° 38150 del 2 de diciembre del 2013)

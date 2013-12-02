@@ -1,20 +1,5 @@
 CAPÍTULO V
 De la Organización Interna de la Dirección
 General de Salud
-Artículo 20.—De la Dirección General de Salud.
-La Dirección General de Salud es una unidad organizativa que depende orgánicamente del Ministro. Su objetivo consiste en orientar y conducir la gestión del Ministerio de Salud para garantizar el cumplimiento del marco estratégico institucional a nivel nacional acorde con el Modelo Conceptual y Estratégico de la Rectoría de la Provisión Social de la Salud , asegurando que todos los procesos institucionales se ejecuten de manera articulada, eficaz y con la calidad requerida y emitiendo lineamientos estratégicos para garantizar la implementación de las políticas institucionales dictadas por el jerarca de la institución.
-De la Dirección General de Salud dependen los siguientes Consejos y unidades administrativas:
-a) Consejo de Gestión Institucional.
-b) Consejo de Gestión Regional de Rectoría de la Salud.
-c) Dirección de Desarrollo Estratégico Institucional.
-d) Dirección de Atención al Cliente.
-e) Dirección de Protección al Ambiente Humano.
-f) Dirección de Regulación de Productos de Interés Sanitario.
-g) Dirección de Mercadotecnia de la Salud.
-h) Dirección de Vigilancia de la Salud.
-i) Dirección de Planificación Estratégica y Evaluación de las Acciones en Salud.
-j) Dirección de Garantía de Acceso a Servicios de Salud.
-k) Dirección de Desarrollo Científico y Tecnológico en Salud.
-l) División Administrativa.
-m) Direcciones Regionales de Rectoría de la Salud.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37497 del 30 de noviembre de 2012)
+Artículo 20.—De la Unidad de Gestión Integral de la Información. La Unidad de Gestión Integral de la Información es una unidad organizativa dependiente orgánicamente del Ministro de Salud. Es la unidad responsable de gestionar la información requerida por el Ministerio de Salud para desarrollar sus funciones. Esto incluye: desarrollar las tecnologías de información que garanticen la efectiva captura, procesamiento, análisis y divulgación de la información, la efectividad de las comunicaciones internas y externas de la Institución y el resguardo de la memoria institucional, para impulsar las estrategias del Ministerio de Salud y contribuir al ejercicio efectivo de la rectoría de la producción social de la salud y a la satisfacción de los requerimientos de información y comunicación de los clientes internos y externos.”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38150 del 2 de diciembre del 2013)
