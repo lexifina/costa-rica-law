@@ -1,0 +1,1 @@
+Artículo 6º—Se deroga el artículo 26° del Decreto Ejecutivo Nº 36627-MINAET del 23 de mayo del 2011, Reglamento para la Regulación del Transporte de Combustible, publicado en el Alcance número 31 del Diario Oficial La Gaceta del 14 de junio del 2011.
