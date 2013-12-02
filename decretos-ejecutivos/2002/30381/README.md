@@ -20,3 +20,4 @@ Reglamento sobre Grados Policiales y Sistemas de Ascenso de los Servidores de la
 | 5 | 2008-02-13 | Decreto Ejecutivo 34390 (2008-02-13) |
 | 6 | 2008-11-05 | Decreto Ejecutivo 34899 (2008-11-05) |
 | 7 | 2009-03-04 | Decreto Ejecutivo 35149 (2009-03-04) |
+| 8 | 2013-12-02 | Decreto Ejecutivo 38141 (2013-12-02) |
