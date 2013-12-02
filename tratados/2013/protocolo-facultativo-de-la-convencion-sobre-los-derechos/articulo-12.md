@@ -1,0 +1,9 @@
+ARTÍCULO 12
+COMUNICACIONES ENTRE ESTADOS
+1. Todo Estado parte en el presente Protocolo podrá declarar en cualquier momento que reconoce la competencia del Comité para recibir y examinar comunicaciones en que un Estado parte alegue que otro Estado parte no cumple las obligaciones dimanantes de cualquiera de los siguientes instrumentos en que ese Estado sea parte:
+a) La Convención;
+b) El Protocolo facultativo de la Convención relativo a la venta de niños, la prostitución infantil y la utilización de niños en la pornografía;
+c) El Protocolo facultativo de la Convención relativo a la participación de niños en los conflictos armados.
+2. El Comité no admitirá comunicaciones que se refieran a un Estado parte que no haya hecho esa declaración, ni comunicaciones procedentes de un Estado parte que no haya hecho esa declaración.
+3. El Comité pondrá sus buenos oficios a disposición de los Estados partes de que se trate con miras a llegar a una solución amigable de la cuestión sobre la base del respeto de las obligaciones establecidas en la Convención y en sus Protocolos facultativos.
+4. Los Estados partes depositarán la declaración prevista en el párrafo 1 del presente artículo en poder del Secretario General de las Naciones Unidas, que remitirá copias de ella a los demás Estados partes. La declaración podrá retirarse en cualquier momento mediante notificación al Secretario General. Dicho retiro se hará sin perjuicio del examen de asunto alguno que sea objeto de una comunicación ya transmitida en virtud del presente artículo; después de que el Secretario General haya recibido la notificación correspondiente de retiro de la declaración, no se recibirán nuevas comunicaciones de ningún Estado parte en virtud del presente artículo, a menos que el Estado parte interesado haya hecho una nueva declaración.
