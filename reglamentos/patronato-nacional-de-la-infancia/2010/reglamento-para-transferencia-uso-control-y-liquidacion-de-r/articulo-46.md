@@ -1,1 +1,0 @@
-Artículo 46.—En caso de suspensión definitiva o temporal de la transferencia de recursos a una organización, el Departamento de Acreditación y la Gerencia Técnica deberán valorar las acciones a tomar en relación con la reubicación o no de las personas menores de edad abrigadas.

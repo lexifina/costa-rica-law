@@ -1,3 +1,0 @@
-Artículo 61.—En caso de fallecimiento del representante del Hogar Solidario o de la persona menor de edad protegida en dicha alternativa de protección, el dinero girado en el mes correspondiente a la fecha del fallecimiento no deberá reintegrarse al PANI.
-En caso de fallecimiento del representante del Hogar Solidario, la Oficina Local encargada del seguimiento del caso deberá gestionar en forma inmediata el cambio del subsidio al nuevo depositario y la suscripción de un convenio, si así procediere.
-En caso de fallecimiento del la persona menor de edad, previa solicitud de la oficina local se podrá apoyar a la familia con gastos para el funeral equivalentes a un salario mínimo.

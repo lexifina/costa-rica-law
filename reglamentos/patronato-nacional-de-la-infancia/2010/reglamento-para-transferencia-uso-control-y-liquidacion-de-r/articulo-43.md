@@ -1,1 +1,0 @@
-Artículo 43.—En caso de la transferencia por parte del PANI de fondos de carácter extraordinario, la liquidación se efectuará conforme las fechas estipuladas en el convenio o adenda correspondiente o mediante disposición previamente establecida. Los saldos no ejecutados seguirán el procedimiento de devolución establecido en el artículo 41 del presente reglamento.

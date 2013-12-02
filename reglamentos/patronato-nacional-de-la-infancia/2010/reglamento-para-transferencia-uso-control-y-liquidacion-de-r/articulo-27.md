@@ -1,1 +1,0 @@
-Artículo 27.—En ningún caso podrán destinarse los recursos girados por el PANI a fines comerciales o políticos. En el caso de que se destine a objetos distintos a los estipulados en el presente reglamento, deberá indicarse el uso a dar en el convenio que al efecto se suscriba.

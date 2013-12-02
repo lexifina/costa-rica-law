@@ -1,1 +1,0 @@
-Artículo 4º—Corresponderá a la Gerencia de Administración cuantificar y presupuestar los recursos que se requieren, asegurándose el contenido presupuestario para el año siguiente. Para ello tomará como base la asignación de cupos a cada sujeto privado que determine la Gerencia Técnica.

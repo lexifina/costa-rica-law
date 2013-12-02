@@ -1,1 +1,0 @@
-Artículo 32.—Los sujetos privados deberán establecer los mecanismos de archivo necesarios para la custodia, protección y manejo de la información contable en general, así como de toda la documentación atinente a las liquidaciones presentadas al PANI, de conformidad con los plazos que al efecto establece la Ley General de Archivo.

@@ -1,1 +1,0 @@
-Artículo 57.—Para el reconocimiento de pago del Hogar Solidario, la Oficina Local deberá remitir al Departamento Financiero Contable el formulario “Planilla de Pago e Información Mensual para Hogares Solidarios Subvencionados” (Anexo 7).

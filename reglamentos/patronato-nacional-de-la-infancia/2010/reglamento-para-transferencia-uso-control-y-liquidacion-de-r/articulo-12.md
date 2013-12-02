@@ -1,1 +1,0 @@
-Artículo 12.—Los sujetos privados a la que se le transfiera recursos deberán poseer una cuenta corriente exclusiva para cada programa a su cargo, destinada al manejo de fondos transferidos por el PANI. La apertura de esta cuenta corriente deberá darse en un banco estatal y será exclusivamente para el manejo de los fondos que transfiere el PANI.

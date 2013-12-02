@@ -1,2 +1,0 @@
-Artículo 56.—El monto mensual del subsidio será aquel que la Junta Directiva del Patronato Nacional de la Infancia apruebe anualmente.
-A partir de la entrada en vigencia de pagos por medio de Caja Única del Estado, los depositarios podrán optar por escoger la entidad financiera de su conveniencia aportando la documentación indicada. Asimismo, para este fin se reconocerá la apertura de cuentas de ahorros o cuenta corriente.
