@@ -1,0 +1,2 @@
+Transitorio único.—En virtud de la decisión de acatamiento obligatorio tomada por el Voto 2013-11499 de las 16:00 horas del 28 de agosto de 2013, de la Sala Constitucional, estas tarifas podrán ser aplicadas a todos los patentados o licenciatarios que tengan deudas pendientes con la administración desde el segundo trimestre hasta el cuarto trimestre del año 2013 con sus respectivos intereses.
+Estas tarifas rigen a partir de su publicación en el Diario Oficial La Gaceta. Acuerdo aprobado por unanimidad.
