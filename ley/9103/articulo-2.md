@@ -31,3 +31,4 @@ Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el
 (Modificado por el artículo 1° del decreto ejecutivo N° 38057 del 27 de noviembre de 2013)
 (Reformado por el artículo 2° de la ley N° 9194 del 29 de noviembre del 2013)
 (Reformado por el artículo 3° de la ley N° 9194 del 29 de noviembre del 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38091 del 3 de diciembre de 2013)
