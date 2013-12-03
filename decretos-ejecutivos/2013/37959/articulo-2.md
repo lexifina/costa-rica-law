@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 37794-H de fecha 5 de junio del 2013, publicado en el Diario Oficial La Gaceta Nº 143 de fecha 26 de julio del 2013, a partir de la vigencia del presente decreto.
