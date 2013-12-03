@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones del sector público colaborarán en la realización de esta actividad en la medida de sus posibilidades, dentro de las competencias y el marco legal que rija su accionar y brindarán las facilidades correspondientes para la participación de los funcionarios públicos en el Taller indicado.
