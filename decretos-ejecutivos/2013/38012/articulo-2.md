@@ -1,0 +1,1 @@
+Artículo 2º—La entidad “Automóvil Club de Costa Rica” deberá tomar especial nota a los efectos de que los certificados que emita se hagan con fundamento en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Núm. 9078, artículo 24, párrafo penúltimo.
