@@ -1,0 +1,1 @@
+Artículo 5º—La sociedad Inversiones Eólicas de Orosí Dos S. A., deberá identificar y restablecer las áreas afectadas por la realización de las obras, por medio de reforestaciones de especies nativas y de regeneración natural conforme lo establezca y apruebe el Sistema Nacional de Áreas de Conservación.

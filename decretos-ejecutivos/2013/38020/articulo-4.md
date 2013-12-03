@@ -1,0 +1,1 @@
+Artículo 4º—La sociedad Inversiones Eólicas de Orosí Dos S. A., deberá ejecutar el Plan de Gestión Ambiental avalado por la Secretaría Técnica Nacional Ambiental, llevando a cabo las medidas de mitigación y compensación ambiental establecidas en el Estudio de Impacto Ambiental, aplicable a este proyecto.
