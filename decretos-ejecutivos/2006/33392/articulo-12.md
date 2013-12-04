@@ -1,1 +1,1 @@
-Artículo 12.—El Jefe de la Sección de Química Analítica podrá ser sustituido para todos los efectos que implique el proceso de destrucción, por el funcionario que él o el Jefe del Departamento de Laboratorio de Ciencias Forenses, designen.
+Artículo 12.—(Derogado por el artículo 2° del decreto ejecutivo N° 38185 del 4 de diciembre del 2013)
