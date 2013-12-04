@@ -1,0 +1,1 @@
+Artículo 13.—Conversión del Procedimiento. El Órgano Decisor del procedimiento sumario, podrá convertir en ordinario el procedimiento por razones de complejidad; para lo cual deberá fundamentar la decisión mediante resolución motivada que debe ser avalada por el superior jerárquico inmediato.

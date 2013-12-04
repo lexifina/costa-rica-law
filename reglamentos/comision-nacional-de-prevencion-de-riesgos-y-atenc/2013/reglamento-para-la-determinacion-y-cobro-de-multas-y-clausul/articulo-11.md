@@ -1,0 +1,1 @@
+Artículo 11.—Prueba adicional. El Órgano Decisor podrá solicitar tanto a la Unidad Técnica solicitante como al contratista las pruebas adicionales que considere convenientes para fundamentar el acto final.
