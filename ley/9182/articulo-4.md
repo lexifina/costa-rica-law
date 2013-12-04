@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Se autoriza al Incofer para que facilite el uso del inmueble que desocupará en Limón Centro exclusivamente para la realización de proyectos de revitalización de los patios de Incofer, del Proyecto Limón-Ciudad Puerto, conforme a lo estipulado en la Ley N.° 8725, de 10 de junio de 2009, publicada en el Alcance N.° 21 de La Gaceta N.° 112, de 11 de junio de 2011.
