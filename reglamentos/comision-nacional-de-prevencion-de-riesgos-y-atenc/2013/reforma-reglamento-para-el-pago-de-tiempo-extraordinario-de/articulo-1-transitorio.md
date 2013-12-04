@@ -1,0 +1,2 @@
+Transitorio: Durante un plazo de noventa días a partir de la publicación de la reforma del artículo 6 del presente reglamento, podrá la Administración, con base en el criterio técnico de la Unidad de Desarrollo Humano solicitar la modificación de la fracción de tiempo a reconocer. Vencido este plazo se mantendrá de forma permanente el fraccionamiento de treinta minutos aprobado.
+Rige a partir de su publicación.
