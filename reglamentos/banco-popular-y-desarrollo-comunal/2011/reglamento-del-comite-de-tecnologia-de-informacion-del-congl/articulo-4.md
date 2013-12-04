@@ -13,3 +13,5 @@ k) Analizar y recomendar a la Junta Directiva Nacional la aprobación del Plan C
 l) Conocer los estudios de factibilidad de los proyectos informáticos presentados y velar por que se ajusten a los objetivos estratégicos de la Institución.
 m) Conocer y recomendar a la Junta Directiva Nacional la aprobación de la Cartera de Proyectos de TI.
 n) Revisar al menos anualmente este Reglamento y proponer a la Junta Directiva Nacional las modificaciones correspondientes.
+o) Informar semestralmente en los meses de febrero y agosto de cada año a la Junta Directiva Nacional sobre las gestiones realizadas durante el periodo, de acuerdo con las funciones del gobierno de TI. La Dirección de Gestión es la responsable de elaborar este informe y presentarlo al Comité de Tecnología de Información en las fechas indicadas.
+(Así reformado mediante sesión N° 5126 del 4 de diciembre del 2013)
