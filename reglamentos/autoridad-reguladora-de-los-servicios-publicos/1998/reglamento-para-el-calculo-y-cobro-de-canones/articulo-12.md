@@ -1,1 +1,0 @@
-Artículo 12.-Multa por mora. En caso de falta de pago del canon se impondrá la multa señalada en el artículo 39 de la Ley y las otras sanciones que cita el mismo artículo, que se hará conforme a lo establecido en la Ley General.

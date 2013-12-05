@@ -1,2 +1,0 @@
-Artículo 9°-Trámite de peticiones tarifarias. De previo al trámite de solicitudes de carácter tarifario ante la Autoridad Reguladora, el prestatario deberá estar al día en el pago del canon. El área de regulación que corresponda verificará lo anterior con la Oficina de Tesorería de la Autoridad Reguladora.
-La demostración del pago del canon se hará mediante presentación del recibo o documento de pago correspondiente, salvo cuando se haya pagado en las oficinas de la Autoridad Reguladora.
