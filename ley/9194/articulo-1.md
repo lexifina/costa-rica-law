@@ -1,0 +1,16 @@
+N° 9194
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA
+MODIFICACIÓN DE LA LEY N° 9103, LEY DE PRESUPUESTO ORDINARIO Y EXTRAORDINARIO
+DE LA REPÚBLICA PARA EL EJERCIICO ECONÓMICO DEL 2013 Y SU SEGUNDO PRESUPUESTO EXTRAORDINARIO
+DE LA REPÚBLICA PARA EL EJERCIICO ECONÓMICO DEL 2013
+Artículo 1°: Modifíquese el artículo 1° de la ley N° 9103, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio fiscal del 2013, publicada en el Alcance digital No. 204 a La Gaceta No. 242 de 14 de diciembre de 2012 y sus reformas, en la forma que se indica a continuación:
+INCISO A DETALLE DEL CÁLCULO DE LOS INGRESOS CORRIENTES DEL GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2013 (en colones corrientes)
+(Nota de Sinalevi: Por el tipo de formato y lo extenso de su contenido consultar el Alcance digital N° 131 a La Gaceta N° 235 del 5 de diciembre de 2013)
+INCISO B: DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2013 (en colones)
+REBAJAR
+[imagen]
+INCISO C: DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS EXTERNOS DEL
+GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2013 (en colones corrientes)
+REBAJAR
+[imagen]
