@@ -1,0 +1,1 @@
+Artículo 10.—En todo el proceso para toma de decisiones los miembros del CETI, deberán guardar discreción sobre proyectos, documentación, comentarios y datos sometidos a su conocimiento y están obligados a acatar y hacer respetar el presente reglamento.

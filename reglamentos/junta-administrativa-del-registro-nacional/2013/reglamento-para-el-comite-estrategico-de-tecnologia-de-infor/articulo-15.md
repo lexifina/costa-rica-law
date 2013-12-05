@@ -1,0 +1,1 @@
+Artículo 15.—Rige a partir de su publicación. Acuerdo firme J377, adoptado por la Junta Administrativa del Registro Nacional en la Sesión Ordinaria Nº 32-2013 celebrada el día 29 de agosto del año dos mil trece.
