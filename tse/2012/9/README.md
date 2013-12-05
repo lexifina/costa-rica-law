@@ -14,3 +14,4 @@ Reglamento sobre la competitividad laboral de los letrados y del asesor de la ge
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-01 | la propia norma |
+| 2 | 2013-12-05 | Decreto TSE 15 (2013-12-05) |

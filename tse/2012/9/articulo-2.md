@@ -1,1 +1,2 @@
-Artículo 2º—Ese plus consistirá en un 26% del salario base de los letrados del Tribunal Supremo de Elecciones, cuya percepción no repercutirá en el cálculo de los demás pluses salariales de los que disfrutan.
+Artículo 2º—Ese plus consistirá en un 26% del salario base de los letrados y del Asesor de la Gestión Político Institucional(*) del Tribunal Supremo de Elecciones, cuya percepción no repercutirá en el cálculo de los demás pluses salariales de los que disfrutan.
+(*) (Así adicionada la frase anterior por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 15-2013 del 5 de diciembre del 2013)

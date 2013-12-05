@@ -8,6 +8,7 @@ III.—Que, a diferencia de los demás funcionarios electorales, los letrados so
 IV.—Que actualmente existe una gran brecha entre la remuneración de los letrados de la Corte Suprema de Justicia y la que perciben los del Tribunal Supremo de Elecciones, que resulta necesario mitigar para que el salario de éstos sea competitivo y asegurar así la continuidad de sus servicios, procurando que con ello no se distorsione la estructura salarial institucional.
 Por tanto, decreta el siguiente:
 REGLAMENTO SOBRE LA COMPETITIVIDAD LABORAL
-DE LOS LETRADOS DEL TRIBUNAL SUPREMO
-DE ELECCIONES
+DE LOS LETRADOS Y DEL ASESOR DE LA GESTIÓN POLÍTICO INSTITUCIONAL DEL TRIBUNAL SUPREMO
+DE ELECCIONES(*)
+(*) (Modificada su denominación por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 15-2013 del 5 de diciembre del 2013)
 Artículo 1º—Créase un plus salarial que se denominará “Competitividad laboral de los letrados del Tribunal Supremo de Elecciones”.
