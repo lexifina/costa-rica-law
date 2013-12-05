@@ -1,2 +1,0 @@
-Artículo 15.-El costo del servicio de regulación no previsto en el estudio de cánones aprobado por la Contraloría General de la República, se cobrará con base en los .cosos directos que estimen las áreas de regulación, más los costos identificados mediante factores e índices y los indirectos, que se determinen proporcionalmente con base en el Estudio de Cánones.
-Los cánones de concesión de obra pública deberán ser aprobados por la Contraloría General de la República previamente.

@@ -1,1 +1,0 @@
-Artículo 14.-En todos los aspectos no contemplados en el presente procedimiento, se aplicará supletoriamente lo establecido en el Reglamento de Cálculo y Cobro de Cánones, la Ley 7593 y su Reglamento, así como el ordenamiento jurídico nacional en lo que sea aplicable.

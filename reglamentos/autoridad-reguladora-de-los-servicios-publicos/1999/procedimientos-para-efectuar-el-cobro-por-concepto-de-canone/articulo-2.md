@@ -1,1 +1,0 @@
-Artículo 2°-La dirección y control tanto de las acciones como de las gestiones de cobro, estarán bajo la responsabilidad del área financiera. Lo referente al cobro judicial será responsabilidad de la Dirección de Asuntos Jurídicos en coordinación con el Departamento de Finanzas.

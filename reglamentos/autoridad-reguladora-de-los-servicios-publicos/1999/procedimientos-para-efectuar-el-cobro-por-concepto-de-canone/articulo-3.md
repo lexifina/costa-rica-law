@@ -1,3 +1,0 @@
-Artículo 3°-La Autoridad Reguladora de los Servicios Públicos establecerá, en los casos que sea factible, una base de datos que contenga la siguiente información del prestatario del servicio público, para facilitar el cobro:
-a) En el caso de personas físicas: nombre completo, domicilio oficial, número de cédula de identidad, tipo de servicio que presta, dirección, teléfono y cualquier otra información que se considere importante para el cobro.
-b) En el caso de persona jurídica: Los datos de inscripción en el Registro Público, domicilio oficial, teléfono, número de cédula y personería jurídica con fecha de vigencia, calidades completas de la persona física que ostente su representación legal y cualquier otra información que se considere importante para el cobro.

@@ -1,1 +1,0 @@
-Artículo 6°-Con base en el análisis de las cuentas por cobrar, el área de Tesorería ejercerá la gestión de cobro administrativo mediante notas, estados de cuenta, telefonemas, publicaciones, etc., a los prestatarios para su respectiva cancelación.

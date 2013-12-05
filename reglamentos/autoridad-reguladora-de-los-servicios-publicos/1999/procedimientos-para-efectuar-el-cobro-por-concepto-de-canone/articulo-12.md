@@ -1,1 +1,0 @@
-Artículo 12.-Cuando por falta de información oportuna u otros motivos de fuerza mayor, la Autoridad Reguladora no pueda emitir la facturación o gestionar el cobro del canon en los plazos previstos, la multa indicada en el artículo 39 de la Ley 7593 empezará a regir un mes después de la comunicación del cobro.

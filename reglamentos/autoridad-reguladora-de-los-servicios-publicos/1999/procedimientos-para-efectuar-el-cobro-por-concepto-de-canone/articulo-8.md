@@ -1,1 +1,0 @@
-Artículo 8°-La generación de la multa operará automáticamente sin necesidad de prevención alguna y su pago no impide que la falta llegue a constituirse en la causal de la revocatoria de la concesión o permiso.

@@ -1,1 +1,0 @@
-Artículo 11.-En aquellos casos en que se cancele el canon en forma duplicada o se realice un sobrepago irregular, la institución 9 empresa recaudadora procederá a reintegrar directamente lo correspondiente por ese concepto, deduciéndolo de los giros que realiza a la ARESEP en el curso de la recaudación. Dicha situación deberá ir detallada en la información mensual suministrada.
