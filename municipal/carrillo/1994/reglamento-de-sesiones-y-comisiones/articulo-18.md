@@ -1,1 +1,0 @@
-Artículo 18.—Una vez entregadas y antes de ser aprobadas las actas de las sesiones, cualquier regidor podrá plantear revisión de acuerdos, salvo respecto de los que hayan sido aprobados definitivamente conforme al Código Municipal. La misma mayoría requerida para dictar el acuerdo será necesaria para acordar su revisión.

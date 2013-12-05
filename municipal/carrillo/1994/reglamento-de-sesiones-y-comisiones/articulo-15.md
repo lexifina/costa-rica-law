@@ -1,1 +1,0 @@
-Artículo 15.—Las sesiones del Concejo serán públicas, sin perjuicio de que en casos muy especiales determinada sesión o parte de ella sea declarada secreta como podrían serlo la aprobación del presupuesto anual y el nombramiento del Ejecutivo Municipal.

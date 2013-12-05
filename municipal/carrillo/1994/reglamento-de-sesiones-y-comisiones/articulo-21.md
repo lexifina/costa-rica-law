@@ -1,1 +1,0 @@
-Artículo 21.— En toda sesión ordinaria podrán incluirse dictámenes de comisiones, siguiendo el orden en que fueron presentados a la secretaria(o) quien consignará al pie de ellos la hora y fecha de presentación.

@@ -1,1 +1,0 @@
-Artículo 27.—Todas las actas realizadas por el Concejo deben ser firmadas por el presidente municipal y la secretaria del concejo, inmediatamente después de aprobadas. Podrán levantarse en hojas sueltas solo si fueren previamente foliadas y selladas en la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 63.—Cumplidas las seis (6) sesiones remunerables, la secretaria revisará en el registro pertinente las presencias tanto de sesiones del Concejo como la comisión para pasar el informe a Tesorería.

@@ -1,1 +1,0 @@
-Artículo 48.—Toda inasistencia a sesión municipal y/o de comisión, debe ser justificada en el término de quince días ante el Concejo, sin que ello signifique en el primero de los casos, el reconocimiento de la dieta.

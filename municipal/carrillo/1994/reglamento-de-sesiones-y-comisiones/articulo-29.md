@@ -1,1 +1,0 @@
-Artículo 29.—Todo acuerdo originado por iniciativa de los regidores propietarios o acogida por ellos, se aprobará previo dictamen de una comisión del Concejo. El dictamen de comisión podrá dispensarse en casos urgentes, si el Concejo lo acuerda por simple mayoría de votos o mediante moción de orden.

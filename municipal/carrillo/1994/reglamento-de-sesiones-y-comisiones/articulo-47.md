@@ -1,1 +1,0 @@
-Artículo 47.—Toda comisión deberá designar día y hora de sesiones. Quien no se presente a comisión sin causa justificada pierde el veinticinco por ciento (25%) de dieta, lo anterior siempre que este comprendida entre las seis (6) sesiones ordinarias legalmente autorizadas como máximo, remunerar en el caso de municipalidades de cinco regidores.

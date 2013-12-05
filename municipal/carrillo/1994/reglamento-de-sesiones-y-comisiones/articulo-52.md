@@ -1,4 +1,0 @@
-CAPITULO IV
-Intervención de particulares
-Artículo 52.—Cuando la índole de algún asunto lo amerite, previo acuerdo al respecto, podrá el Concejo invitar a personas particulares para que asistan a sesiones.
-Se establecen como sesiones con audiencias al público las de todos los martes, excepto el primero de cada mes con un máximo de tres audiencias, para lo cual todo grupo comunal o vecino a efecto de poder ser atendido debe hacer la solicitud por escrito a la secretaria con no menos de veinticuatro horas de anticipación, indicando el nombre del solicitante, lugar y motivo de la audiencia. El Concejo escuchará el asunto planteado y luego podrá formular preguntas, pudiendo resolver el asunto en la misma sesión o en las sesiones de la semana inmediata posterior. El presidente podrá trasladar a comisión o Dirección Ejecutiva el caso.
