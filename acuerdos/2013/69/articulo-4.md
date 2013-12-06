@@ -1,0 +1,1 @@
+Artículo 4º—Delegación: Delegar formalmente la firma de las actas finales de traslado, donaciones y bajas de bienes de la Administración Central y Tribunal Administrativo Migratorio, en el Licenciado Freddy Mauricio Montero Mora.
