@@ -1,0 +1,1 @@
+Artículo 20.—Los derechos y obligaciones de las partes serán establecidos en el cartel y el contrato del respectivo procedimiento de contratación, todo en apego a la legislación vigente en la materia.
