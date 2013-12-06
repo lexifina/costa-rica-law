@@ -1,0 +1,1 @@
+Artículo 12.—A cada uno de los cajeros y al tesorero se les asignará una suma mensual de diez mil colones para cubrir diferencias involuntarias, de lo cual si no existieran diferencias entre las sumas recibidas y la suma de la lista de los comprobantes durante un semestre se les entregará dicha suma como un beneficio a su buena labor durante ese periodo.

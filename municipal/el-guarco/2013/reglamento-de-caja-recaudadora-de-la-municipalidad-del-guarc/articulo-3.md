@@ -1,0 +1,1 @@
+Artículo 3º—La unidad emisora mediante el cajero-facturador atiende al cliente, emite el recibo en original y una copia, recauda, sella y entrega el original. La copia quedará en archivo para su verificación posterior.

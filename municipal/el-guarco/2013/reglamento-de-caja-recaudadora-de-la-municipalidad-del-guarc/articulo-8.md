@@ -1,0 +1,1 @@
+Artículo 8º—Todo cajero que funcione como tal en la Caja Recaudadora de la Municipalidad de El Guarco, cerrará la Caja delante del Tesorero Municipal y posteriormente éste revisará el cierre delante del cajero.
