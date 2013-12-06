@@ -1,0 +1,1 @@
+Artículo 4º—Los productores de banano o representantes de casas comerciales de agroquímicos, podrán solicitar ante el SFE la importación de agroquímicos específicos u otros medios para el control de la plaga, que no se encuentren registrados en el país.
