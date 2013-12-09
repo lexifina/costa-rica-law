@@ -1,0 +1,1 @@
+Artículo 18.—Todos los días son hábiles para realizar las inhumaciones. Las inhumaciones serán realizadas por los funcionarios municipales asignados o por funcionarios del Ministerio de Salud, Poder Judicial, según sea el caso.

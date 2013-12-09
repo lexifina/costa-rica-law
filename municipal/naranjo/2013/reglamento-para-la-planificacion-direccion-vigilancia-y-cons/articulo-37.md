@@ -1,0 +1,10 @@
+Artículo 37.—Las sepulturas se construirán de acuerdo a los siguientes requisitos:
+a) Las sepulturas tendrán las siguientes dimensiones mínimas: 0.90 metros de ancho, 2.40 metros de largo, una profundidad máxima de dos metros y una altura máxima de 0.70 metros sobre el nivel del suelo.
+b) Las sepulturas estarán alineadas entre sí, con un mínimo de separación a lo largo y ancho entre fosas y bóvedas de 0,50 metros. Cada 2 filas, estarán separadas por un pasillo de 1,50 metros mínimo. En caso de la utilización de equipo mecánico para excavación, deberá preverse el ancho de los pasillos, dejándolos adecuados para su circulación y operación, de acuerdo al equipo que se emplee.
+c) Cada pasillo no debe exceder los 100 metros de longitud.
+d) La separación mínima entre las tumbas y los linderos de las propiedades colindantes será de tres metros mínimo. Si el lindero contiguo tiene una profundidad de más de un metro respecto al nivel del cementerio, el retiro mínimo será de cinco metros.
+e) No se permite el uso de materiales prefabricados sobre suelo.
+f) Los constructores de las obras señaladas en el artículo 30 de éste reglamento, deberán estar registrados ante la Municipalidad, demostrar conocer el oficio con constancias de trabajos similares a nivel privado o público o por recomendaciones de profesionales en la materia.
+g) Todo constructor deberá dejar el sitio construido limpio de escombros, además de limpiar las obras cercanas a la construcción.
+En caso de incumplimiento del punto anterior se clausurará la obra, si aún está no se ha terminado, por un periodo hasta corregir las anomalías señaladas por el encargado del cementerio
+h) El encargado del cementerio o panteonero queda autorizado para el control de las normas anteriores y de las clausura de las obra en forma preventiva e informar a la administración del cementerio, su actuación justificada, está dependencia podrá suspender la licencia al constructor en forma temporal hasta por un año o en forma permanente, si hay reincidencia por parte del constructor o encargado de la obra.

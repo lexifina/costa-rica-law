@@ -1,0 +1,1 @@
+Artículo 49.—El permisionario de un derecho funerario que decida realizar una inhumación en tierra deberá, una vez realizada la inhumación, colocar una cruz, placa o pequeño monumento que identifique a la persona sepultada en ese lugar.
