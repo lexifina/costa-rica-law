@@ -1,0 +1,3 @@
+Artículo 43.—El uso de las instalaciones deportivas administradas por el Comité Cantonal de Deportes, juntas administrativa de inmuebles deportivas y Comités Comunales deberán darle participación a todos los grupos deportivos y recreativos organizados de la comunidad y actividades culturales, teniendo preferencia en tal uso, los equipos o grupos que representen al distrito o al cantón en eliminatorias de juegos nacionales, escolares y colegiales en campeonatos oficiales.
+Todas las instalaciones de uso públicas dedicadas a las actividades deportivas y recreativas, tendrán uso prioritario para el comité cantonal de deportes.
+La programación que para tal efecto se le dé, será respaldada y se hará en forma periódica conforme con las necesidades.

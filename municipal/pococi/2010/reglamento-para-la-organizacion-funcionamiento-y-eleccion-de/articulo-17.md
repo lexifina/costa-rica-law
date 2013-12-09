@@ -1,0 +1,1 @@
+Artículo 17.—En la primera sesión, que se celebrará no antes de cinco días naturales después de la fecha de su juramentación por el Concejo Municipal, las y los miembros del Comité se reunirán y mediante votación se designaran los cargos a que se refiere el artículo 18 del presente Reglamento.

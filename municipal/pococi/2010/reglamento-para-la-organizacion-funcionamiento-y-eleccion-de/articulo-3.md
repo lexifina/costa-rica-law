@@ -1,0 +1,1 @@
+Artículo 3º—El domicilio legal del Comité Cantonal será el Distrito Central (Guápiles), pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva. Además deberá operar en el local que la Municipalidad le facilite de acuerdo al artículo 170 del Código Municipal.

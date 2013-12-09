@@ -1,0 +1,1 @@
+Artículo 45.—Para la realización de eventos o actividades no deportivas como ferias, bingos, fiestas o similares, dentro de las instalaciones deportivas o en los alrededores de las mismas, debe contarse con la autorización escrita del Comité Cantonal

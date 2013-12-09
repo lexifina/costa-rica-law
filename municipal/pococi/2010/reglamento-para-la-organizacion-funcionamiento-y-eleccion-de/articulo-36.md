@@ -1,0 +1,1 @@
+Artículo 36.—El presupuesto del Comité Cantonal y sus distintos órganos, debe elaborarse reflejando los planes propuestos y programas que se ejecutarán en el período que éste cubre; los gastos presupuestarios deben ser iguales los ingresos estimados y solo podrá destinarse para gastos administrativos un quince por ciento (15%), del total de ingresos presupuestados.

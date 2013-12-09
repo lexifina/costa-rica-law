@@ -1,0 +1,1 @@
+Artículo 41.—El Comité Deportes y Recreación deberá incluir en su presupuesto ordinario o extraordinario un aporte económico al Comité Cantonal de la Persona Joven de Pococí el cual irá en los presupuestos antes mencionados, adulto mayor a fines deportivos y recreativos.

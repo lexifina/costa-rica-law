@@ -1,0 +1,1 @@
+Artículo 31.—Las actas aprobadas, deberán llevar obligatoriamente las firmas de la Presidencia y de la Secretaría del Comité. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 20.—El quórum para sesionar estará regido como establece el artículo 37 del Código Municipal mitad más uno. Los acuerdos se tomarán por mayoría según lo regulan los artículos 42, 45 del Código Municipal.

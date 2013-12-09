@@ -1,0 +1,1 @@
+Artículo 38.—Los recursos del Comité Cantonal solamente se podrán destinar en obras, programas deportivos y recreativos culturales y aquellas que vengan a preparar a dirigentes atletas, etc. en las actividades antes mencionadas según los límites fijados por el artículo 164 del Código Municipal.
