@@ -27,3 +27,4 @@ Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el
 (Modificado por el artículo 1° del decreto ejecutivo N° 38017 del 24 de octubre del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38035 del 11 de noviembre del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38031 del 13 de noviembre del 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38047 del 21 de noviembre de 2013)
