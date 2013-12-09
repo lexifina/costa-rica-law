@@ -1,0 +1,1 @@
+Artículo 8º—Montos para reintegro. Los reintegros deberán gestionarse al consumirse el 80% del monto del fondo, en este caso la suma de ¢240.000 (doscientos cuarenta mil colones), con el objeto de poder cubrir con el 20% del fondo restante, aquellos gastos necesarios en tanto se recibe el monto presentado a reintegro.

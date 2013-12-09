@@ -1,0 +1,1 @@
+Artículo 7º—Asignaciones máximas. Las sumas establecidas para gastos a que se refiere este reglamento son asignaciones máximas; y no se podrán realizar erogaciones por montos superiores a ¢50.000 (cincuenta mil colones exactos) por transacción.
