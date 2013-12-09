@@ -1,0 +1,22 @@
+PROCURADURÍA GENERAL DE LA REPÚBLICA
+POLÍTICA INSTITUCIONAL SOBRE DISCAPACIDAD
+En cumplimiento a lo establecido en la Ley N° 7600, denominada “Ley de Igualdad de Oportunidades para las Personas con Discapacidad” y su Reglamento que establecen la obligatoriedad de brindar Igualdad de Oportunidades a las personas con discapacidad; y con fundamento en los artículos 102, inciso a) y 103, inciso 3), de la Ley General de la Administración Pública (Ley N° 6227 del 2 de mayo de 1978) y el numeral 6 del Reglamento a la Ley de Inclusión y Protección Laboral de las personas con discapacidad en el Sector Público (Decreto Ejecutivo N° 36462 del 2 de febrero del 2011), la suscrita en mi condición de jerarca máxima de la institución, emito la política siguiente:
+Considerando que:
+I.—La discapacidad es una desarmonía entre el entorno y la persona, en la que ambos son responsables de los esfuerzos que se hagan para atenuarla o compensarla, por lo tanto, no es sólo un asunto de la propia persona o su familia, sino también es una situación que involucra el entorno social, político, económico y cultural.
+II.—La Ley número 8661 del 7 de agosto del 2008, aprueba la Convención sobre los Derechos de las Personas con Discapacidad y su Protocolo, en cada una de sus partes.
+III.—La Convención Internacional de Derechos de las Personas con Discapacidad, en su artículo 27 promueve que se prohíba la discriminación por motivos de discapacidad con respecto a todas las cuestiones relativas a cualquier forma de empleo, incluidas las condiciones de selección, contratación y empleo, la continuidad en el empleo, la promoción profesional, condiciones de trabajo seguras y saludables, y en particular la igualdad de oportunidades y de remuneración por igual valor, incluida la protección contra el acoso y la reparación por agravios sufridos.
+IV.—La Ley número 8862 del 16 de setiembre del 2010, Ley de Inclusión y Protección Laboral de las personas con discapacidad en el Sector Público, reservó un porcentaje no menor del 5% de las plazas vacantes en la Administración Pública, para ser cubiertas por las personas con discapacidad, siempre que existan ofertas de empleo y se superen las pruebas selectivas y de idoneidad que corresponda. Por tanto;
+La Procuraduría General de la República establece y se compromete a aplicar la siguiente política:
+Garantizar el acceso equitativo a todos los funcionarios de la Procuraduría General de la República y a los clientes externos de la Institución, en igualdad de oportunidades y sin ninguna discriminación, propiciando el acceso a los espacios físicos, a la información y a los medios de comunicación, a través de sistemas adaptados a las necesidades de la población con discapacidad, promoviendo un mejoramiento continuo y sensibilizando al personal para lograrlo.
+Cumpliendo con los siguientes objetivos:
+A. Contribuir a mejorar la calidad de vida de la población con discapacidad de nuestro país, generando las condiciones para la participación social en igualdad de derechos y oportunidades, en el proceso de desarrollo institucional.
+B. Promover los cambios culturales hacia la generación de sentimientos solidarios, para la superación de la discriminación social, que impide la inclusión de la población con discapacidad en el medio laboral.
+Con las siguientes acciones estratégicas:
+• Promover la equiparación de oportunidades de acceso a espacios físicos, adecuando el entorno, los servicios y las instalaciones de atención al público a todas las personas.
+• Procurar el apoyo a las personas con discapacidad, garantizando la igualdad de oportunidades y su participación en el quehacer institucional.
+• Impulsar el uso y el acceso a los diferentes medios de comunicación a las personas con discapacidad.
+• Desarrollar acciones de sensibilización y capacitación sobre discapacidad dirigida a todo el personal de la Procuraduría General.
+• Capacitar al personal para que pueda atender a usuarios y compañeros con alguna discapacidad en especial.
+• Impulsar el desarrollo o adquisición de sistemas y activos que faciliten el trabajo de las personas y usuarios con alguna discapacidad.
+• Revisar y analizar los reglamentos existentes en la Institución para verificar el cumplimiento de la Ley 7600, además, procurar la modificación de los aspectos que así lo ameriten.
+La Procuraduría General de la República comunicará esta política a todos los funcionarios de la institución, así como a los usuarios externos mediante su publicación en el Diario Oficial La Gaceta.—San José, 20 de noviembre del 2013.
