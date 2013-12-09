@@ -4,3 +4,4 @@ Artículo 3°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 38016 del 24 de octubre del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38031 del 13 de noviembre del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38047 del 21 de noviembre de 2013)
+(Reformado por el artículo 2° de la ley N° 9194 del 29 de noviembre del 2013)

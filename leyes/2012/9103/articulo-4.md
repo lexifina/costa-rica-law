@@ -5,3 +5,4 @@ Artículo 4°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 37730 del 27 de mayo del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37795 del 21 de junio del 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 37989 del 08 de octubre del 2013)
+(Reformado por el artículo 2° de la ley N° 9194 del 29 de noviembre del 2013)
