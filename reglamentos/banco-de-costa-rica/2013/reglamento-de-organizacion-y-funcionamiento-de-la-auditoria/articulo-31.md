@@ -1,0 +1,1 @@
+Artículo 31.—Estudios especiales de auditoría. Los estudios especiales de auditoría estarán encaminados al examen de aspectos específicos sea a solicitud de la Junta Directiva de BCR Valores S. A. o de cualquiera de los entes fiscalizadores de la Sociedad o disposiciones del auditor interno.

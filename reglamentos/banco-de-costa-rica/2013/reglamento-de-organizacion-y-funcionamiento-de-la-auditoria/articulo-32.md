@@ -1,0 +1,1 @@
+Artículo 32.—Control de acceso registros de auditoría. El auditor Interno será responsable de establecer lineamientos relacionados con la identificación, análisis, evaluación y registro de la información, al momento de ejecutar las labores de auditoría por su personal; así como también sobre la custodia y control de acceso a los registros del trabajo.

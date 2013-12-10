@@ -1,0 +1,1 @@
+Artículo 2º—Misión y visión de auditoría. La Auditoría Interna debe asegurarse de establecer su visión, misión, políticas y procedimientos que regirán el accionar de la Auditoría Interna y velar por su actualización. La misión y visión serán incorporadas en el plan estratégico de la Auditoría Interna que está respaldado en el Manual de Auditoría Interna de BCR Valores S. A.
