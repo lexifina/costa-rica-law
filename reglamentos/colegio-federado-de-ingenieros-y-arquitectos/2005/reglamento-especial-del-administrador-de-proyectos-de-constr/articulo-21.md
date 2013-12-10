@@ -1,4 +1,5 @@
-Artículo 21.—En el caso de que sea necesario de un resello de planos, deberá cumplirse con lo siguiente:
+Artículo 21.—En el caso de que sea necesario de un resello de planos para la actualización de la vigencia del sello, las responsabilidades profesionales y el valor del proyecto., deberá cumplirse con lo siguiente:
 a) Archivo digital de los planos sellados por el Colegio Federado.
-b) Contrato de servicios profesionales contenido en el APC, por el reajuste de honorarios. Segunda Fase de Servicios.
-La tasación se realizará con el valor actual de proyecto y se aplicará el cálculo de los derechos sobre la diferencia existente, con respecto a la tasación originalmente realizada. Los planos serán visados con el nuevo valor de la tasación, indicando la fecha del día del “resello” y el número de contrato.
+b) Contrato de servicios profesionales contenido en el APC, por el reajuste de honorarios por la Segunda Fase de Servicios.
+El CFIA procederá a actualizar el valor de la obra y se deberá cancelar la diferencia con respecto al pago de timbres y derechos sufragados anteriormente. Los planos serán sellados con el nuevo valor de la tasación, indicando la fecha del día del “resello” y el número de contrato.
+Adicionalmente, en atención al Decreto 36550 y sus reformas, se deberá adjuntar en el APC todos los requisitos documentales que están definidos para la clasificación de proyectos correspondiente y que son indispensables para que las instituciones que están integradas al sistema para que realicen la respectiva revisión.

@@ -1,1 +1,1 @@
-Artículo 10.—Será considerado como profesional responsable de la obra, el usuario que registre esa responsabilidad, con el PIN registrado, de conformidad con lo indicado en el artículo 7º de este Reglamento.
+Artículo 10.—Será considerado como profesional responsable de la obra, el usuario que registre esa responsabilidad, con el PIN registrado o la firma digital respectiva, de conformidad con lo indicado en el artículo 7º de este Reglamento.

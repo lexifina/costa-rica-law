@@ -15,3 +15,4 @@ Reglamento Especial del Administrador de Proyectos de Construcción (APC) del Co
 | --- | --- | --- |
 | 1 | 2005-10-04 | la propia norma |
 | 2 | 2012-07-17 | Reglamento 35 (2012-07-17) |
+| 3 | 2013-12-10 | Reglamento 6 (2013-12-10) |

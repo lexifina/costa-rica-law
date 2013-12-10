@@ -5,3 +5,4 @@ b) Contrato de consultoría contenido en el APC con monto estimado de modificaci
 2) Cuando no existen modificaciones:
 a) Archivo digital de los planos nuevos indicando la transformación a condominio.
 b) Contrato de consultoría según corresponda.
+Adicionalmente, en atención al Decreto 36550 y sus reformas, se deberá adjuntar en el APC todos los requisitos documentales que están definidos para la clasificación de proyectos correspondiente y que son indispensables para que las instituciones que están integradas al sistema para que realicen la respectiva revisión.

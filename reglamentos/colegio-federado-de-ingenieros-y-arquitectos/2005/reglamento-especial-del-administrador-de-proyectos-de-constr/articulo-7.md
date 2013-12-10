@@ -1,2 +1,1 @@
-Artículo 7º—El uso del PIN es para uso exclusivo del usuario, por lo que éste será el único responsable por el uso indebido que se haga de él.
-Queda terminante prohibido a los usuarios facilitar de cualquier forma el uso del PIN.
+Artículo 7°—El PIN es para uso exclusivo del usuario. De la misma manera, si se opta por utilizar la firma digital en sustitución del PIN, esta es de uso exclusivo del usuario. Por lo tanto, el usuario será el único responsable por el uso indebido que se haga del PIN o de la firma digital. Queda terminante prohibido a los usuarios facilitar de cualquier forma el uso del PIN o de la firma digital a terceros.
