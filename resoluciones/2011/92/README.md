@@ -15,3 +15,4 @@ Implementa Procedimiento de Homologación de Terminales de Telecomunicaciones M�
 | --- | --- | --- |
 | 1 | 2011-05-18 | la propia norma |
 | 2 | 2013-02-19 | SINALEVI (sin norma nombrada) |
+| 3 | 2013-12-11 | Resolución 332 (2013-12-11) |

@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Nota de Sinalevi: Mediante resolución N° 6414 del 11 de diciembre de 2013, "Procedimiento para la homologación de terminales móviles y requisitos para la acreditación de peritos para medir el desempeño y funcionamiento de los equipos terminales de telecomunicaciones", se ordena revocar la presente norma con el fin de ajustar y actualizar el procedimiento para la homologación de los terminales móviles y requisitos para la acreditación de peritos para la medición del desempeño y funcionamiento de los equipos terminales de telecomunicaciones)
 RCS-092-2011.—Resolución del Consejo de la Superintendencia de Telecomunicaciones.—San José, a las 11:00 horas del 4 de mayo del 2011.
 “Revocatoria de las resoluciones RCS-614-2009 y RCS-427-2010 e implementación del procedimiento para la homologación de terminales de telecomunicaciones móviles”
 Resultando:
