@@ -14,3 +14,4 @@ Reforma Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-11 | la propia norma |
+| 2 | 2013-12-11 | Reglamento 8682 (2013-11-28) |
