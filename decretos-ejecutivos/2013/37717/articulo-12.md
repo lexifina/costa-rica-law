@@ -24,6 +24,7 @@ Medicina del Trabajo.
 Medicina Paliativa en Adultos.
 Medicina Paliativa Pediátrica.
 Medicina Social (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-03-06 del 6 de marzo del 2013)
+Microbiología (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-12-11 del 11 de diciembre del 2013)
 Nutrición Humana.
 Nutrición Clínica.
 Psicoanálisis.
