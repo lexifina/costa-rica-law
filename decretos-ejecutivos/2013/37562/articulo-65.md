@@ -27,6 +27,7 @@ Medicina Reproductiva. | Artículo No. 86
 Subespecialidad de la Medicina de Emergencias |
 Medicina de Emergencias Pediátricas. | Artículo No. 88
 |
+Subespecialidad en Medicina del Sueño (Así adicionada la subespecialidad anterior mediante sesión N° 2013-12-11 del 11 de diciembre del 2013) |
 Subespecialidades de la Neurocirugía |
 Neurocirugía Pediátrica | Artículo No. 90
 Neuro-Oncología. | Artículo No. 91
