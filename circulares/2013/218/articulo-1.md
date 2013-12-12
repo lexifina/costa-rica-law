@@ -1,0 +1,9 @@
+CIRCULAR Nº 218-2013
+ASUNTO: Recepción y respuesta a gestiones en materia de violencia doméstica.
+A LOS JUZGADOS DEL PAÍS QUE TRAMITAN LA MATERIA DE VIOLENCIA DOMÉSTICA
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 109-13, celebrada el 26 de noviembre de 2013, artículo LXVIII, a solicitud de la Comisión Permanente para el Seguimiento de la Atención y Prevención de la Violencia Intrafamiliar, acordó comunicarles que por un tema de acceso a la justicia, si las personas usuarias insisten en que su caso ha de ser conocido en esa jurisdicción y la persona juzgadora considera que dicho caso no reúne los requisitos propios de violencia intrafamiliar, o es una gestión que contraviene los fines de la ley, aun así se han de recibir por escrito tales gestiones y proceder, de forma fundamentada, a su rechazo.
+De acuerdo con la jurisprudencia del Tribunal de Familia, el rechazo total a la solicitud de medidas de protección, así como el rechazo no fundamentado de algunas de ellas, hará que proceda el planteamiento del recurso de apelación.
+Así mismo, se les recuerda a los despachos judiciales que conocen esta materia que al tratarse de una jurisdicción donde en muchos casos las personas usuarias no cuentan con asesoría y patrocinio letrado y por ser un proceso esencialmente oral y autopostulativo en el que no se estila la presentación de escritos, no podrán negarse a recibir por escrito las gestiones orales que las personas tengan interés en plantear durante la tramitación del caso, ya sea antes o después de llevarse a cabo la audiencia oral, cuando la misma ha sido solicitada.
+Si la comparecencia que señala el artículo 12 de la Ley Contra la Violencia Doméstica no fue solicitada, quien juzga deberá dar respuesta por escrito a esas gestiones o señalar para ello una audiencia de seguimiento, prevista en el artículo 17 de esa ley.
+San José, 12 de diciembre de 2013.
