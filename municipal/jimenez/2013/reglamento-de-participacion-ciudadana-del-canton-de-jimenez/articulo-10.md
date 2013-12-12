@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad Jiménez velará por la protección de los derechos e intereses de todos y todas las y las que tienen su domicilio en la jurisdicción territorial del cantón, respondiendo y garantizando lo establecido en el Código Municipal.

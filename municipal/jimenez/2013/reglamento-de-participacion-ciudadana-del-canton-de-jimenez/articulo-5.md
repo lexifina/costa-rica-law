@@ -1,0 +1,1 @@
+Artículo 5º—A efectos de la aplicación de la presente normativa la Municipalidad Jiménez crea dentro de la estructura de la Alcaldía Municipal, la Oficina Municipal encargada de Asuntos Ciudadanos; o a quien(es) se le deleguen tales funciones.
