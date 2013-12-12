@@ -1,0 +1,2 @@
+Artículo 7º—Información adicional. La Municipalidad, con el fin de proteger el ambiente humano y natural, podrá solicitar información adicional de la obra, actividad o proyecto a desarrollar (Anexo N° 4).
+Como se señaló en el inciso “b” del artículo 6 del presente Reglamento, la entrega de toda la información solicitada en el “Formulario de información básica ambiental de la actividad, obra o proyecto a desarrollar” no significa que la actividad, obra o proyecto cuenta con la viabilidad ambiental.
