@@ -1,0 +1,1 @@
+3º—Autorizar a los depositarios aduaneros que suscriban un convenio con el Banco Nacional de Costa Rica y la Tesorería Nacional, al uso de los datáfonos para que dentro de las instalaciones y como responsabilidad de éste se realice el cobro de la obligación tributaria de las declaraciones de oficio mediante tarjeta de crédito o débito.

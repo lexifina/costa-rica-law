@@ -1,0 +1,2 @@
+2º—Informar que en adelante a partir de la vigencia de esta resolución, los únicos medios de pago aceptables para cancelar la obligación tributaria aduanera en las declaraciones de oficio, son: mediante tarjetas de crédito o débito, VISA o MasterCard, sin importar la entidad emisora o Depósito en las cuentas del Ministerio de Hacienda - Tesorería Nacional Cédula Jurídica número 2-100- 042005.
+[imagen]
