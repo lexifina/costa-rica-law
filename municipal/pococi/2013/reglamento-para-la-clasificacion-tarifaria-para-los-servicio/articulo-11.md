@@ -1,0 +1,1 @@
+Artículo 11.—Si en determinado momento, o caso, se llegare a dar o crearse una nueva clasificación o nominación de patente o licencia comercial, la Municipalidad podrá, previo estudio, clasificarla y tasarle la generación de desechos sólidos según se considere necesario.

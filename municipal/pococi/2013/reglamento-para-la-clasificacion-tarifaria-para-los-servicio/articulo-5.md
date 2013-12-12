@@ -1,0 +1,1 @@
+Artículo 5.—La Municipalidad podrá clasificar las unidades habitacionales, patentados e instituciones públicas, privadas, comerciales, gubernamentales y no gubernamentales, en categorías según la proporción de desechos generados.

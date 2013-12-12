@@ -1,0 +1,1 @@
+Artículo 10.—Cada beneficiario de los servicios de los servicios municipales señalados en el presente reglamento deberá comunicar a la Municipalidad el traspaso o segregación de los inmuebles, o bien, si se produce nueva construcción dentro del mismo predio, a fin de poder actualizar los registros de beneficiarios que lleve al efecto dicha institución.

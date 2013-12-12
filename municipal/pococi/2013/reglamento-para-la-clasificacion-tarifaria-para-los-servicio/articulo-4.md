@@ -1,0 +1,1 @@
+Artículo 4º—Las tasas comerciales y habitacionales podrán ser establecidas y categorizadas por la Municipalidad de acuerdo con la cantidad de desechos generados por cada establecimiento o casa, establecidos mediante estudios de campo.
