@@ -1,0 +1,1 @@
+Artículo 26.—Gastos por transporte marítimo o por vía férrea. Cuando en este tipo de gastos, el viaje requiera más de un día y la empresa de transporte incluya en el precio los servicios de alimentación y de hospedaje, no se reconocerán viáticos durante ese o esos días.

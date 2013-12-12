@@ -1,0 +1,3 @@
+Artículo 43.—Reconocimiento de viáticos para capacitaciones. Las personas funcionarias que laboran en sedes regionales o CEAAMS ubicados fuera del Área Metropolitana, que deban trasladarse al Área Metropolitana para recibir capacitaciones autorizadas por el INAMU, tendrán derecho al reconocimiento de viáticos, conforme con los horarios establecidos en el artículo 12 de este reglamento.
+El mismo derecho tendrán las personas funcionarias de las sedes ubicadas en el Área Metropolitana, que por motivos de capacitación deban trasladarse fuera del Área Metropolitana.
+No se reconocerán los viáticos por concepto de alimentos incluidos durante la capacitación.

@@ -1,0 +1,2 @@
+Artículo 15.—Carencia de servicios en el lugar de destino. Cuando en el lugar de destino no existan servicios de alimentación hospedaje o los que existen son de baja calidad, la jefatura inmediata podrá autorizar que las personas funcionarias se trasladen al lugar más cercano en que se proporcionen los servicios, sujeto a las tarifas establecidas por la Contraloría para este último lugar.
+Para el reconocimiento de estos gastos, con la liquidación debe presentarse la justificación del caso, debidamente autorizada por la jefatura correspondiente.

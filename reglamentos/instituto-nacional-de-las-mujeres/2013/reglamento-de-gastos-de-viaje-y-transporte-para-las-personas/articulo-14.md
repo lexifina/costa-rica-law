@@ -1,0 +1,2 @@
+Artículo 14.—De los gastos por concepto de lavado y planchado. Cuando una gira se extienda por más de seis días naturales continuos, la persona funcionaria tendrá derecho a que se le reconozcan los gastos por concepto de lavado y planchado de ropa, a partir del sétimo día de la gira.
+Corresponderá a la Dirección Administrativa Financiera realizar los estudios pertinentes y proponer a la Presidenta Ejecutiva el monto de la tarifa a reconocer por este concepto, para la aprobación de la Junta Directiva. Dicha tarifa deberá revisarse periódicamente.

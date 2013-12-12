@@ -1,0 +1,2 @@
+Artículo 41.—Adelantos de viáticos para más de una gira. Las personas funcionarias podrán tramitar adelantos de viáticos para más de una gira.
+Una vez que se cuente con las autorizaciones para las giras, las personas funcionarias deben proceder a elaborar los formularios de adelantos de viáticos de cada una de las giras y presentarlos a la Unidad de Tesorería, para los correspondientes depósitos, los cuales podrán comprender adelantos de hasta dos semanas.

@@ -1,0 +1,1 @@
+Artículo 23.—Deducción de la tarifa diaria. Cuando una gira al exterior se extienda por más de treinta días en una misma ciudad, la tarifa diaria se deducirá un 10%, a partir de la fecha de llegada a la ciudad.

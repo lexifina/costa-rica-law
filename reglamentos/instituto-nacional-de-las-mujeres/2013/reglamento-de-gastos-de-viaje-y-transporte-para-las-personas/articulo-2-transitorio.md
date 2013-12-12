@@ -1,0 +1,1 @@
+Transitorio II.—Dentro del plazo improrrogable de un mes, a partir de la entrada en vigencia del presente reglamento, la Dirección Administrativa Financiera, deberá cumplir con lo establecido en el párrafo segundo del artículo 14 de este reglamento, referente a los gastos por concepto de lavado y planchado.

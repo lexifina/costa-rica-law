@@ -1,0 +1,1 @@
+Artículo 5º—Procedencia de los viáticos. Entre el motivo del viaje y la naturaleza del cargo, actividad o servicio que desempeñan las personas funcionarias y las personas beneficiarias, deberá existir una estrecha relación para que proceda el reconocimiento de viáticos.

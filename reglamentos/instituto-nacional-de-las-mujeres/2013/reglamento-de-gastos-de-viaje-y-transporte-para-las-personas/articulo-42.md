@@ -1,0 +1,1 @@
+Artículo 42.—Adelantos de viáticos por Caja Chica. Las personas funcionarias podrán solicitar adelantos de viáticos por caja chica, de conformidad con lo establecido en el Reglamento del Fondo de Caja Chica del INAMU.

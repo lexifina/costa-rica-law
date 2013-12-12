@@ -1,0 +1,3 @@
+Artículo 9º—Del uso de transporte aéreo. En casos calificados, a juicio de la jefatura inmediata, las personas funcionarias podrán hacer uso de transporte aéreo, en giras dentro del territorio nacional, de acuerdo con los siguientes lineamientos:
+a) Que la aerolínea que se utilice, se dedique al transporte público de personas con un itinerario establecido y con tarifas autorizadas por el Consejo Técnico de Aviación Civil.
+b) Que el uso del transporte aéreo represente una ventaja para la institución, en razón del ahorro de tiempo y así lo haya justificado la jefatura correspondiente en la solicitud de adelanto de viáticos.
