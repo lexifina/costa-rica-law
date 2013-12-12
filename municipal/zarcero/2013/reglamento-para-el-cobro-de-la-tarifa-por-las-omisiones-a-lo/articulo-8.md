@@ -1,0 +1,1 @@
+Artículo 8º—Esta tarifa deberán pagarla todos los contribuyentes omisos de sus deberes que como propietarios de bienes inmuebles deben cumplir según el Código y este Reglamento y que se localicen en cada uno de los distritos del Cantón.
