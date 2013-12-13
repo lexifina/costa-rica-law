@@ -1,0 +1,2 @@
+7. VERIFICACIÓN
+El presente Reglamento será verificado por el Servicio Nacional de Salud Animal del Ministerio de Agricultura y Ganadería, a través de la verificación de los establecimientos procesadores de productos pesqueros en conserva en cumplimiento con las disposiciones de este Reglamento y la legislación que le atribuye y con los procedimientos internos que establezca SENASA.
