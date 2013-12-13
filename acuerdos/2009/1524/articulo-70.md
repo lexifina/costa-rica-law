@@ -1,1 +1,0 @@
-Artículo 70.—Audiencias Públicas en zonas rurales. Cuando las Audiencias Públicas se realicen en zonas donde la Defensoría cuente con Oficinas Regionales o lugares bajo su jurisdicción, éstas en coordinación con la Dirección responsable podrán representar a la Institución en el acto.

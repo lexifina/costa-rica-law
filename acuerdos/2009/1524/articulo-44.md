@@ -1,1 +1,0 @@
-Artículo 44.—Pérdida Interés del habitante. En los casos en que el o la habitante manifieste pérdida de interés en la tramitación de su denuncia o por haberse resuelto su pretensión, se emitirá un informe de cierre sobre lo actuado.

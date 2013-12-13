@@ -1,1 +1,0 @@
-Artículo 45.—Suspensión de la Investigación. Cuando se verifique la existencia de un proceso judicial sobre el mismo objeto de la Solicitud de Intervención, se suspenderá la actuación de la Defensoría, sin perjuicio de que la Institución decida investigar los problemas generales planteados en la Solicitud.

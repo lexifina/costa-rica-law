@@ -1,1 +1,0 @@
-Artículo 49.—Estructura Informe Final de las Investigaciones de Oficio. El informe final debe contener: la identificación del origen del problema, el establecimiento de los parámetros metodológico bajos los cuales se analizó, los elementos que se examinaron y consideraron para resolverlo, un diagnóstico de la situación investigada, las conclusiones y las recomendaciones.
