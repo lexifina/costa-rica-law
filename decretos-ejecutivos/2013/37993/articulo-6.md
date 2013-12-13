@@ -1,0 +1,1 @@
+Artículo 6º—La administración del Refugio le corresponderá a los propietarios de los inmuebles y será supervisada por el SINAC de conformidad al numeral 82 de la Ley de Conservación de Vida Silvestre y 150 del Reglamento a la Ley de Conservación de la Vida Silvestre.

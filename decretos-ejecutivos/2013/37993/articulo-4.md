@@ -1,0 +1,1 @@
+Artículo 4º—Que SF Costa Rica Hotelera de Guanacaste Sociedad Anónima, cédula jurídica 3-101-450625, como propietaria del inmueble se compromete a brindar además, la colaboración necesaria a investigadores y funcionarios del Sistema Nacional de Áreas de Conservación (SINAC) que en funciones oficiales visiten dicha área silvestre protegida.

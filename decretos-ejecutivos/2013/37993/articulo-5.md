@@ -1,0 +1,1 @@
+Artículo 5º—El manejo y protección de los recursos naturales y la vida silvestre del Refugio Riu, estará sujeto tanto a la legislación y políticas existentes en el SINAC, como a las recomendaciones que emita el Área de Conservación Tempisque, todo con el fin de cumplir con los objetivos de conservación.

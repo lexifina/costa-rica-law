@@ -1,0 +1,1 @@
+Artículo 3º—El objetivo principal del Refugio Riu es promover la conservación de los recursos naturales, por medio de la protección de la flora y la fauna silvestre y brindar servicios ecosistémicos a la sociedad.
