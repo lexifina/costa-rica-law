@@ -1,0 +1,3 @@
+Artículo 13
+1. Todo trabajador doméstico tiene derecho a un entorno de trabajo seguro y saludable. Todo Miembro, en conformidad con la legislación y la práctica nacionales, deberá adoptar medidas eficaces, teniendo debidamente en cuenta las características específicas del trabajo doméstico, a fin de asegurar la seguridad y la salud en el trabajo de los trabajadores domésticos.
+2. Las medidas a que se hace referencia en el párrafo anterior podrán aplicarse progresivamente en consulta con las organizaciones más representativas de los empleadores y de los trabajadores, así como con organizaciones representativas de los trabajadores domésticos y con organizaciones representativas de los empleadores de los trabajadores domésticos, cuando tales organizaciones existan.

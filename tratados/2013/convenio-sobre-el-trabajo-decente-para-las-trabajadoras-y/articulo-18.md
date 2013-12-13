@@ -1,0 +1,2 @@
+Artículo 18
+Todo Miembro, en consulta con las organizaciones más representativas de los empleadores y de los trabajadores, deberán poner en práctica las disposiciones del presente Convenio por medio de la legislación y de convenios colectivos o de otras medidas adicionales acordes con la práctica nacional, extendiendo o adaptando medidas existentes a fin de aplicarlas también a los trabajadores domésticos o elaborando medidas específicas para este sector, según proceda.

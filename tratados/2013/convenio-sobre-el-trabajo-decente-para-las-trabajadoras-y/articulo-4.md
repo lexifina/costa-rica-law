@@ -1,0 +1,3 @@
+Artículo 4
+1. Todo Miembro deberá fijar una edad mínima para los trabajadores domésticos compatible con las disposiciones del Convenio sobre la edad mínima, 1973 (núm. 138), y el Convenio sobre las peores formas de trabajo infantil, 1999 (núm. 182), edad que no podrá ser inferior a la edad mínima estipulada en la legislación nacional para los trabajadores en general.
+2. Todo Miembro deberá adoptar medidas para asegurar que el trabajo efectuado por los trabajadores domésticos menores de 18 años pero mayores de la edad mínima para el empleo no los prive de la escolaridad obligatoria, ni comprometa sus oportunidades para acceder a la enseñanza superior o a una formación profesional.

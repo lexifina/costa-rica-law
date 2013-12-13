@@ -1,0 +1,2 @@
+Artículo 16
+Todo Miembro deberá adoptar medidas, de conformidad con la legislación y la práctica nacionales, a fin de asegurar que todos los trabajadores domésticos, ya sea en persona o por medio de un representante, tengan acceso efectivo a los tribunales o a otros mecanismos de resolución de conflictos en condiciones no menos favorables que las condiciones previstas para los trabajadores en general.

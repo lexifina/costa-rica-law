@@ -1,0 +1,4 @@
+Artículo 10
+1. Todo Miembro deberá adoptar medidas con miras a asegurar la igualdad de trato entre los trabajadores domésticos y los trabajadores en general en relación a las horas normales de trabajo, la compensación de las horas extraordinarias, los períodos de descanso diarios y semanales y las vacaciones anuales pagadas, en conformidad con la legislación nacional o con convenios colectivos, teniendo en cuenta las características especiales del trabajo doméstico.
+2. El período de descanso semanal deberá ser al menos de 24 horas consecutivas.
+3. Los períodos durante los cuales los trabajadores domésticos no disponen libremente de su tiempo y permanecen a disposición del hogar para responder a posibles requerimientos de sus servicios deberán considerarse como horas de trabajo, en la medida en que se determine en la legislación nacional o en convenios colectivos o con arreglo a cualquier otro mecanismo acorde con la práctica nacional.

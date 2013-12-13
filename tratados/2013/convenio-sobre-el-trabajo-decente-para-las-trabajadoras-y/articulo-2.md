@@ -1,0 +1,6 @@
+Artículo 2
+1. El presente Convenio se aplica a todos los trabajadores domésticos.
+2. Todo Miembro que ratifique el presente Convenio podrá, previa celebración de consultas con las organizaciones más representativas de los empleadores y de los trabajadores, así como con organizaciones representativas de los trabajadores domésticos y organizaciones representativas de los empleadores de los trabajadores domésticos, cuando tales organizaciones exista, excluir total o parcialmente de su ámbito de aplicación a:
+a) categorías de trabajadores para las cuales esté previsto otro tipo de protección que sea por lo menos equivalente; y
+b) categorías limitadas de trabajadores respecto de las cuales se planteen problemas especiales de carácter sustantivos.
+3. Todo Miembro que se acoja a la posibilidad prevista en el párrafo anterior deberá, en la primera memoria relativa a la aplicación de este Convenio que presente con arreglo al artículo 22 de la Constitución de la Organización Internacional del Trabajo, indicar toda categoría particular de trabajadores que se haya excluido en virtud del citado párrafo anterior, así como las razones de tal exclusión, y en las memorias subsiguientes deberá especificar todas las medidas que hayan podido tomarse con el fin de extender la aplicación del presente Convenio a los trabajadores interesados.
