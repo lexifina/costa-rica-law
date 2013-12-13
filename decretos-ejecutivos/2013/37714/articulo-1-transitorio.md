@@ -1,0 +1,1 @@
+Transitorio único.—El Servicio Nacional de Salud Animal (SENASA) del Ministerio de Agricultura y Ganadería mediante resolución razonada deberá publicar en el Diario Oficial La Gaceta, en un plazo no mayor a 3 meses posteriores a la entrada en vigencia del presente Reglamento, el procedimiento de verificación.

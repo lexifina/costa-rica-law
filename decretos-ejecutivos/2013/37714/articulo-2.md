@@ -1,0 +1,1 @@
+Artículo 2º—Costos de la verificación. El costo de la verificación del presente Reglamento deberá cubrirlo el Estado conforme a la Ley General del Servicio Nacional de Salud Animal, Ley Nº 8495 del 6 de abril del 2006. Los costos en que se incurran por solicitud o debido al incumplimiento del administrado, se le cobrarán directamente a éste.
