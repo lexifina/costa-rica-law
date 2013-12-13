@@ -1,0 +1,28 @@
+AUTORIDAD REGULADORA
+DE LOS SERVICIOS PÚBLICOS
+Resolución Nº RRGA-008-2013 de las 13:30 horas del 04 de diciembre de 2013.
+Lineamientos sobre procesos tarifarios
+Considerando:
+I. Que el artículo 57 a) 4) de la Ley 7593, Ley de la Autoridad Reguladora de los Servicios Públicos y sus reformas, establece que es un deber del Regulador General ejecutar y velar por que se cumplan, como superior jerárquico en materia administrativa, la política y los programas de la Autoridad Reguladora.
+II. Que en ausencia del señor Regulador General Dennis Meléndez Howell, con motivo de sus vacaciones, durante el periodo comprendido del 2 al 9 de diciembre de 2013, comparece en este acto la señora Grettel López Castro, en su condición de Reguladora General Adjunta, según el acuerdo que consta en el artículo segundo del acta de la sesión ordinaria número ciento sesenta y uno, celebrada por el Consejo de Gobierno el 20 de agosto del dos mil trece, publicado en La Gaceta 211 del 1 de noviembre del 2013, nombramiento que quedó ratificado por la Asamblea Legislativa en la sesión ordinaria número 69, celebrada el 19 de setiembre de 2013, de conformidad con lo estipulado en el artículo 47 de la Ley 7593, Ley de la Autoridad Reguladora de los Servicios Públicos, nombramiento que a la fecha se encuentra vigente. De conformidad con el artículo 57 de la misma ley, la Reguladora General Adjunta sustituye al Regulador General durante sus ausencias temporales.
+Por tanto:
+Con fundamento en las facultades otorgadas por la Ley de la Autoridad Reguladora de los Servicios Públicos (Ley 7593), su reglamento y la Ley General de la Administración Pública (LGAP),
+LA REGULADORA GENERAL ADJUNTA, RESUELVE:
+I. Dictar los siguientes lineamientos de acatamiento obligatorio para todas las fijaciones tarifarias que atiende la Autoridad Reguladora de los Servicios Públicos:
+1. Establecer un plazo de hasta 5 días naturales contados a partir del día siguiente de presentada la gestión, para otorgar admisibilidad a las solicitudes tarifarias, que se interrumpe cuando se solicita información al operador. (artículo 42, Reglamento a la Ley 7593).
+2. Establecer un plazo de hasta 10 días hábiles, contados a partir del día siguiente de notificada la prevención, para presentar la información solicitada. (artículo 264 LGAP).
+3. Establecer un plazo de hasta 3 días naturales contados a partir de la admisión de la solicitud, para que las Intendencias soliciten a la Dirección General de Atención al Usuario (DGAU) la convocatoria a audiencia.
+4. Establecer un plazo de hasta 7 días naturales, contados a partir del día siguiente al recibido de la solicitud, para que DGAU solicite al Departamento de Proveeduría el trámite de publicación de la Audiencia.
+5. Establecer un plazo de hasta 5 días naturales, contados a partir del día siguiente al recibido de la solicitud, para que el Departamento de Proveeduría solicite a los medios de prensa y al diario oficial La Gaceta, la publicación del aviso de la Audiencia.
+6. Establecer un plazo de al menos 20 días naturales para convocar a audiencia, contados a partir de su última publicación. (artículo 36 de la Ley 7593).
+7. Establecer un plazo de hasta 7 días naturales contados a partir del día siguiente a la celebración de la audiencia, para que la DGAU remita a las Intendencias el Acta de la Audiencia.
+8. Establecer que los 30 días naturales contados a partir de la última audiencia, son para resolver y por lo tanto no incluyen la notificación de la resolución.
+9. Establecer un plazo de hasta 2 días naturales, contados a partir del día siguiente a la fecha de la resolución, para que las Intendencias soliciten al Departamento de Proveeduría la publicación de la resolución.
+10. Establecer un plazo de 3 días naturales, contados a partir del día siguiente a la solicitud de las Intendencias, para que el Departamento de Proveeduría envíe la publicación de la resolución al diario oficial La Gaceta. (artículo 26, inciso e) del Reglamento a la Ley 7593).
+11. Establecer un plazo de hasta 3 días naturales, contados a partir de la publicación en La Gaceta, para notificar la resolución. (artículo 262 LGAP). O en su defecto un plazo de 3 días naturales contados a partir del día siguiente a la fecha de la resolución, para notificar el rechazo de la gestión.
+12. Establecer un plazo de 3 días hábiles, contados a partir del día siguiente de la notificación, para que los interesados presenten los recursos correspondientes.
+13. Establecer un plazo ordenatorio de un mes, contado a partir del día siguiente a la presentación del (os) recurso (s), para resolver el recurso de revocatoria. (artículo 261, 2 LGAP).
+14. Establecer un plazo de 3 días naturales, contados a partir del día siguiente a la fecha de la resolución de las Intendencias, para notificar la resolución, en caso de que se rechace el recurso de revocatoria. (artículo 262 LGAP).
+15. Establecer un plazo de hasta 2 días naturales, contados a partir del día siguiente a la fecha de la resolución, para que las Intendencias soliciten al Departamento de Proveeduría la publicación de la resolución, si procede.
+16. Establecer un plazo de 3 días naturales, contados a partir del día siguiente al recibido de la solicitud de las Intendencias, para que el Departamento de Proveeduría envíe la publicación de la resolución al diario oficial La Gaceta. (artículo 26, inciso e) del Reglamento a la Ley 7593).
+17. Establecer un plazo de 3 días naturales, contados a partir del día siguiente a la publicación de la resolución, para notificar la resolución de las Intendencias, en caso de que se rechace el recurso. (artículo 262 LGAP).
