@@ -1,0 +1,1 @@
+Artículo 3º—El manejo de los recursos naturales y la biodiversidad estará sujeto a lo establecido en el Plan General de Manejo de esta área silvestre protegida, aprobado por las instancias correspondientes del Sistema Nacional de Áreas de Conservación.
