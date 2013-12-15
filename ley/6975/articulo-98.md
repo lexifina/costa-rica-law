@@ -1,12 +1,3 @@
-Artículo 98.- Autorízase al Estado para traspasar gratuitamente, al
-Ministerio de Educación, para uso de las Juntas Administrativas de los
-Colegios Justo A. Facio y Luis Dobles Segreda, un lote, junto con las
-instalaciones que en el se levantan, segregado del llamo de la Sabana, y
-destinado, por Ley Nº 3656 del 6 de enero de 1966 y sus reformas, para uso
-exclusivo de esos colegios, sus linderos y medidas se desprenden del plano
-catastrado según matrícula número E-San José 79-82. Asimismo, se autoriza
-a la Procuraduría General de la República, en su condición del Estado, para
-que prepare la escritura del traspaso y efectúe los trámites de
-inscripción, ante el Registro Público de la Propiedad la cual se hará libre
-de toda clase de derechos, impuestos y timbres. Este artículo deroga la
-Ley Nº 6502 del 25 de setiembre de 1980 y rige desde su publicación.
+Artículo 98.- Se autoriza al Estado para que traspase gratuitamente, al Ministerio de Educación, para uso de las juntas administrativas de los colegios Justo A. Facio y Luis Dobles Segreda, un lote, junto con las instalaciones que en él se levanta, segregado del Llano de La Sabana y destinado, por la Ley N.º 3656, de 6 de enero de 1966, y sus reformas, para uso exclusivo de esos colegios; sus linderos y medidas se desprenden del plano catastrado según matrícula número E-San José-105-82.
+Asimismo, se autoriza a la Procuraduría General de la República, en su condición de notario del Estado, para que prepare la escritura de traspaso y efectúe los trámites de inscripción ante el Registro Público de la Propiedad, de la cual se hará libre de toda clase de derechos, impuestos y timbres. Este artículo deroga la Ley N.º 6502, de 25 de setiembre de 1980, y rige desde su publicación.
+(Así reformado por el punto 8) del artículo 4° de la Ley N° 9193 del 29 de noviembre del 2013, "Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2014")
