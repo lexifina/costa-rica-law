@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: Este Reglamento será aplicable a la organización y servicio de los Consejos de Jueces y Juezas, y la regulación de servicio establecido con las personas usuarias de la administración de justicia.
