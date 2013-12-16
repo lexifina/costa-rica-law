@@ -1,0 +1,1 @@
+Artículo 5°—La propietaria de las fincas señaladas, gozará de los beneficios e incentivos establecidos en la Ley de Conservación de la Vida Silvestre, para lo cual el Área de Conservación La Amistad Pacífico y las dependencias ministeriales involucradas, emitirán los documentos necesarios.
