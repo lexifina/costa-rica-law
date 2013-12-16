@@ -1,0 +1,1 @@
+Artículo 13.—El médico que tenga conocimiento de que hay actos que son contrarios al ejercicio de la profesión, a las leyes, a los reglamentos, o bien al paciente o al médico deberá presentarse ante las autoridades competentes del Colegio; sin perjuicio de acudir a otras vías que en derecho correspondan.

@@ -1,0 +1,1 @@
+Artículo 2º—Este Código es de acatamiento obligatorio para todos los médicos, quienes deben conocer el presente Código apegándose al mismo, para así garantizar a la sociedad y a sus colegas el mejor desempeño en el ejercicio de la Profesión. De manera que el médico que infrinja el presente Código comete una falta sancionable disciplinariamente.

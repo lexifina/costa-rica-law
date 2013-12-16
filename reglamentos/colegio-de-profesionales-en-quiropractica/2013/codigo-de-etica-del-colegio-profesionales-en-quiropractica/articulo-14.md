@@ -1,0 +1,1 @@
+Artículo 14.—El médico debe decir verdad ante cualquier investigación o requerimiento que le investigue o al que se le llame ante cualquier órgano del Colegio, sin perjuicio de su deber de observar el secreto profesional.

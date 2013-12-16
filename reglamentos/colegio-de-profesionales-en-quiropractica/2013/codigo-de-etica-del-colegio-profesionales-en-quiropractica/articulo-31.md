@@ -1,0 +1,1 @@
+Artículo 31.—El médico no debe revelar los hechos de los cuales tuvo conocimiento, en virtud del ejercicio de su profesión, salvo por imperio legal o autorización expresa del paciente o de su representante legal. Dicha prohibición se mantiene aunque el hecho sea de conocimiento público e incluso con el fallecimiento del paciente.

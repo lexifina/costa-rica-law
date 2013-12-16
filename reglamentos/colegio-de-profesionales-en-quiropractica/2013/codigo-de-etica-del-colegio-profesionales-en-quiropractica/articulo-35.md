@@ -1,0 +1,1 @@
+Artículo 35.—La Fiscalía será el órgano director que instruirá los procedimientos disciplinarios que se establecieran en contra de los médicos quiroprácticos. En caso de inhibición, recusación o impedimento del Fiscal, la Junta Directiva designará un Fiscal Ad Hoc.

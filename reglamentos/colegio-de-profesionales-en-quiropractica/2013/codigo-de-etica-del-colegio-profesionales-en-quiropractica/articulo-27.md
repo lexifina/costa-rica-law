@@ -1,0 +1,1 @@
+Artículo 27.—El médico se obliga a no permitir a quienes no estén autorizadas legalmente para el ejercicio de la quiropráctica a ejercer de cualquier forma y en cuyo caso deberá denunciar el ejercicio ilegal de la profesión a la Fiscalía del Colegio.

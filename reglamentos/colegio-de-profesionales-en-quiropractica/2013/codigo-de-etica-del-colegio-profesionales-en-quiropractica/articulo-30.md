@@ -1,0 +1,1 @@
+Artículo 30.—El secreto médico o profesional son todos aquellos hechos, que por razón del ejercicio de su profesión hayan llegado a conocimiento del médico, sea porque el paciente se lo ha confiado, porque lo observó o lo intuyó.

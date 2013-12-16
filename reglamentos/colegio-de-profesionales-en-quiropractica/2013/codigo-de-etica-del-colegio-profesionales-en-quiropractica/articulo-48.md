@@ -1,0 +1,1 @@
+Artículo 48.—El Tribunal de Honor impondrá la sanción considerando las circunstancias del caso, los antecedentes del médico acusado(a), el daño y los perjuicios causados. El incumplimiento de la conciliación, arreglo o transacción a que se hubiere comprometido el médico con ocasión de los hechos atribuidos, será un agravante a efectos de la sanción a imponer.

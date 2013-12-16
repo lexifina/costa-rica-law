@@ -1,0 +1,1 @@
+Artículo 18.—El médico debe darle al paciente un trato igualitario por tanto no debe ejercer prácticas discriminatorias con motivo de la edad, género, etnia, nacionalidad, orientación sexual, posición económica, religión, posición política, o discapacidad.

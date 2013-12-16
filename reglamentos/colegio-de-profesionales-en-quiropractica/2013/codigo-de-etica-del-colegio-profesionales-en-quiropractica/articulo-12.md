@@ -1,0 +1,1 @@
+Artículo 12.—En la relación médico-paciente cuando esta finalice, el médico debe dar toda información al paciente o su representante legal cuando lo solicite por escrito, para la continuidad del tratamiento, ya sea porque las técnicas empleadas no den el resultado esperado, o el paciente desee ser tratado por otro médico.

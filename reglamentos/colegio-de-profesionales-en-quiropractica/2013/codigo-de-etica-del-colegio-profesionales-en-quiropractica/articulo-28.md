@@ -1,0 +1,1 @@
+Artículo 28.—El médico que haya sido suspendido por el Colegio o por una autoridad judicial en el ejercicio de la profesión deberá respetar esta suspensión y no podrá ejercer la profesión dentro del tiempo en que se mantenga vigente.

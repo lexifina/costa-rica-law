@@ -1,0 +1,1 @@
+Artículo 4º—El médico debe respeto, solidaridad, honestidad, y consideración a sus colegas. Las relaciones que se establezcan entre los médicos, ya sea en relación con su actividad profesional, o de su diario vivir, deberán inspirarse en el respeto y el auxilio mutuo.

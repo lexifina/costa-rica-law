@@ -1,0 +1,1 @@
+Artículo 8º—Quien ejerza como médico quiropráctico, en una institución pública o privada, no podrá ser discriminado en razón de su edad, etnia, género, orientación sexual, creencia religiosa o política, nacionalidad, o por cualquier otra razón que atente contra los derechos constitucionales.

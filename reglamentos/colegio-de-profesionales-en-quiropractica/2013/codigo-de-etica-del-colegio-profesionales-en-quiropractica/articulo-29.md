@@ -1,0 +1,1 @@
+Artículo 29.—El médico podrá realizar propaganda comercial para la prestación de sus servicios, dignificando la profesión y respetando la normativa que regula el Colegio. Se prohíbe la publicidad que induzca al público a error, a la mala interpretación, a la competencia desleal.

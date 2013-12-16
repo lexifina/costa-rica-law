@@ -1,0 +1,1 @@
+Artículo 26.—El médico debe respetar el derecho del paciente a solicitar una segunda opinión, por lo cual, no podrá el médico consultado realizar comentarios u opiniones desfavorables sobre diagnósticos o tratamientos, actuales o previos, tendientes a perjudicar, difamar o disminuir la confianza del médico tratante.

@@ -1,0 +1,1 @@
+Artículo 15.—El médico no debe asociarse con personas que ejercen ilegalmente la quiropráctica, ni debe asociarse con profesionales o instituciones que ejecuten, practiquen o realicen de cualquier forma actos ilícitos que sean de su conocimiento.

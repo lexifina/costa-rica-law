@@ -1,0 +1,1 @@
+Artículo 16.—El médico no podrá ejercer una doble función como médico tratante y médico perito del mismo paciente; ni durante ni después de que se haya realizado la pericia, salvo que haya transcurrido un período de un año, a partir del momento de su último acto como perito privado o requerido por la autoridades administrativas, judiciales, o estatales.

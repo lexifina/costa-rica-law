@@ -1,0 +1,1 @@
+Artículo 38.—Instruida la causa por la Fiscalía, el Tribunal de Honor, podrá intentar aplicar el instituto de la conciliación el día y hora señalados para la celebración de la comparecencia oral y privada.

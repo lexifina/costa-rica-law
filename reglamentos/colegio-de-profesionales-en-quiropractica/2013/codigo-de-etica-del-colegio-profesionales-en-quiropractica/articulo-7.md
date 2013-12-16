@@ -1,0 +1,1 @@
+Artículo 7º—En el eventual caso de que existe una diferencia de opiniones, o un conflicto de cualquier índole entre colegas; en relación al ejercicio propio de la quiropráctica o aspectos normados por el propio Colegio, no deben dar lugar a discusiones públicas.

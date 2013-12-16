@@ -1,0 +1,1 @@
+Artículo 19.—El médico que asuma el compromiso de servir al Colegio, ya sea en un cargo en la Junta Directiva, cualquier otro órgano o comisión del Colegio deberá cumplir fielmente las obligaciones que su cargo le imponga.
