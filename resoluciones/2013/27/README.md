@@ -15,3 +15,4 @@ Establece forma de pago del impuesto de salida por vía terrestre de las persona
 | --- | --- | --- |
 | 1 | 2013-08-05 | la propia norma |
 | 2 | 2013-10-31 | Resolución 41 (2013-10-31) |
+| 3 | 2013-12-16 | Resolución 44 (2013-12-16) |

@@ -1,6 +1,7 @@
 (Derogado)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
-(Esta resolución fue derogada por el artículo 11 de la resolución N° DGT-R-041-2013 del 31 de octubre del 2013 "Establece forma de pago del impuesto de salida por vía terrestre de las personas físicas establecido en la Ley N° 9154")
+(Esta resolución fue derogada por el artículo 11 de la resolución N° DGT-R-041-2013 del 31 de octubre del 2013 "Establece forma de pago del impuesto de salida por vía terrestre de las personas físicas establecido en la Ley N° 9154". Posteriormente se deroga nuevamente la presente
+norma por el artículo 2 de la resolución N° DGT-R-044-2013 del 16 de diciembre del 2013, "Se suspende la verificación del pago previa a la autorización de salida del país por vía terrestre hasta que la Dirección General de Migración y Extranjería cuente con los medios electrónicos idóneos")
 N° DGT-R-027-2013.—San José, a las once horas treinta minutos, del 12 de julio de dos mil trece.
 Considerando:
 I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales para la correcta aplicación de las leyes tributarias dentro de los límites que fijan las disposiciones legales y reglamentarias pertinentes.
