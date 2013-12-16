@@ -1,2 +1,2 @@
-Artículo 3. Presentación de información sobre las utilidades restringidas
-Para efectos de considerar en el cálculo del apalancamiento, las utilidades que han sido restringidas mediante un acuerdo de asamblea de accionistas, es requisito remitir a esta Superintendencia una copia certificada por notario público del respectivo acuerdo de asamblea. Dicha copia deberá ser remitida en el transcurso del mes en que la asamblea toma la decisión.
+Artículo 3º—Presentación de información sobre las utilidades o excedentes restringidos. Para efectos de considerar en el cálculo del apalancamiento, las utilidades o excedentes que han sido restringidos conforme lo señalado en el artículo 2, es requisito remitir a esta Superintendencia la documentación legal correspondiente, ya sea una copia certificada de los estatutos o cuando aplique, remitir una copia del respectivo acuerdo de asamblea, según sea el caso.
+(Así reformado mediante acuerdo N° SGV-A-190 del 16 de diciembre 2013)
