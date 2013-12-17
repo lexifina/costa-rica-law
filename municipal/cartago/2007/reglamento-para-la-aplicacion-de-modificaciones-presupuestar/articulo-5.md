@@ -1,1 +1,0 @@
-Artículo 5º—El Área de Planeamiento en conjunto con el Área Administrativa Financiera, anualmente definirán el monto mínimo por Objeto del Gasto que debe tener toda solicitud de modificación presupuestaria. Este monto será publicado a nivel interno de la Municipalidad.
