@@ -14,3 +14,4 @@ Lineamientos sobre procesos tarifarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-13 | la propia norma |
+| 2 | 2013-12-17 | Resolución 599 (2013-12-17) |

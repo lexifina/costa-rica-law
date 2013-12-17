@@ -1,5 +1,6 @@
 AUTORIDAD REGULADORA
 DE LOS SERVICIOS PÚBLICOS
+(Nota de Sinalevi: Mediante resolución N° RRG-599-2013 del 17 de diciembre del 2013, se acordó adicionar la presente norma para que se entienda que los lineamientos resultan aplicables únicamente a las fijaciones ordinarias de tarifas que atiende la Autoridad Reguladora de los Servicios Públicos)
 Resolución Nº RRGA-008-2013 de las 13:30 horas del 04 de diciembre de 2013.
 Lineamientos sobre procesos tarifarios
 Considerando:
