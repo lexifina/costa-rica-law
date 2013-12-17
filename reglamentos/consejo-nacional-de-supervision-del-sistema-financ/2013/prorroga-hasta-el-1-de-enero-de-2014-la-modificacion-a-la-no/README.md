@@ -14,3 +14,4 @@ Prorroga hasta el 1° de enero de 2014 la modificación a la Normativa contable,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-23 | la propia norma |
+| 2 | 2013-12-17 | Reglamento 1080 (2013-12-17) |
