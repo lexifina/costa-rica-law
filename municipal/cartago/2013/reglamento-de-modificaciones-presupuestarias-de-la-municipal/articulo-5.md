@@ -1,0 +1,1 @@
+Artículo 5º—El Área de Planeamiento en conjunto con el Área Administrativa Financiera, anualmente definirán el monto mínimo por Objeto del Gasto de toda solicitud de modificación presupuestaria. Este monto será comunicado a nivel interno de la Municipalidad por el Encargado de Presupuesto, con el aval del Encargado (a) del Área de Planificación Estratégica.

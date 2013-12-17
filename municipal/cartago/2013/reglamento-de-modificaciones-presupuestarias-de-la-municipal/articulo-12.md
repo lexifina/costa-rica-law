@@ -1,0 +1,7 @@
+Artículo 12.—El Área de Planeamiento Estratégico tendrá las siguientes responsabilidades:
+a. Revisar el comportamiento de las partidas con el fin de asignar los montos efectivamente utilizados, con base en la ejecución.
+b. Evaluar las modificaciones que realizan los departamentos para detectar problemas en la estimación de presupuestos y en las partidas y montos que se acerquen más a la realidad de cada unidad ejecutora.
+c. Supervisar y aplicar hasta un máximo de 12 modificaciones presupuestarias, las cuales estarán supeditadas a las necesidades de la administración y con la norma técnica 4.3.11 que define la cantidad de variaciones presupuestarias y el monto máximo a variar por modificación presupuestaria.
+d. Controlar que el monto máximo de recursos que se redistribuyan sumando todas las modificaciones presupuestarias, no exceda del 25% del monto total del presupuesto inicial más los presupuestos extraordinarios aprobados.
+e. Verificar que las modificaciones presupuestarias se ajustan a las regulaciones establecidas en las normas técnicas sobre presupuestos públicos y al resto del bloque de legalidad aplicable. Asimismo, que los cambios en el contenido presupuestario de los diferentes programas, partidas y subpartidas, se justifiquen suficientemente, indicando entre otras cosas, los efectos que tienen sobre el cumplimiento de los objetivos y las metas definidos en el plan respectivo.
+f. Velar por el cumplimiento de los lineamientos establecidos en la norma técnica 4.3.13.
