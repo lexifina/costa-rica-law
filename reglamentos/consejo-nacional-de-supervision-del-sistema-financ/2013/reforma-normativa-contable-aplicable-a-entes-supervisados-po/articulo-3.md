@@ -1281,3 +1281,4 @@ de cobertura)
 TERCEROS - CONTRACUENTA
 6.060.020 DERIVADOS DIFERENTES DE COBERTURA POR CUENTA DE TERCEROS - CONTRACUENTA
 Las anteriores disposiciones rigen a partir del primer día del segundo mes siguiente a su publicación en el Diario Oficial La Gaceta.
+(Nota de sinalevi: Mediante el punto 1° del la sesión N° 1080-2013 del 17 de diciembre del 2013, se establece los siguiente: "... Modificar la entrada en vigencia de las reformas al Plan de Cuentas para las Entidades de Seguros, aprobadas por este Consejo mediante el literal C de los artículos 14 y 5 de las actas de las sesiones 1024-2013 y 1025-2013, celebradas el 29 de enero del 2013 y el literal C, artículos 14 y 11 de las actas de las sesiones 1064-2013 y 1066-2013, celebradas el 24 de setiembre y 1° de octubre del 2013, respectivamente, relacionadas con el registro de operaciones de derivados, a efecto de que dichas reformas cobren eficacia a partir del 1° de enero del 2015...")

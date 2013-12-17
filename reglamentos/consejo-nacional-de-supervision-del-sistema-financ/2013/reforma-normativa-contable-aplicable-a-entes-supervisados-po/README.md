@@ -15,3 +15,4 @@ Reforma Normativa contable aplicable a entes supervisados por SUGEF, SUGEVAL, SU
 | --- | --- | --- |
 | 1 | 2013-06-01 | la propia norma |
 | 2 | 2013-09-24 | Reglamento 1064 (2013-09-24) |
+| 3 | 2013-12-17 | Reglamento 1080 (2013-12-17) |
