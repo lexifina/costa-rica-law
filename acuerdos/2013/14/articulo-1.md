@@ -1,4 +1,5 @@
 AVISO N° 014-13
+(Nota de Sinalevi: Mediante sesión N° 111-13 del 3 de diciembre del 2013 aprobada mediante aviso N° 016-2013 del 18 de diciembre del 2013, publicada en el Boletín Judicial N° 18 del 27 de enero del 2014 se aclara la presente norma en el sentido de que: "... Fiscalía Adjunta Penal Juvenil del Primer Circuito Judicial de San José laborará mediante la modalidad de disponibilidad durante el período de cierre por vacaciones colectivas")
 ASUNTO: 1) Plan de Vacaciones Colectivas del Poder Judicial 2013-2014. 2) Lineamientos para la atención de asuntos y detalle de las oficinas que permanecerán abiertas durante los períodos de vacaciones colectivas.
 A LAS INSTITUCIONES, ABOGADAS, ABOGADOS,
 SERVIDORAS, SERVIDORES JUDICIALES

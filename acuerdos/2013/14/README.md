@@ -13,3 +13,4 @@ Plan de Vacaciones Colectivas del Poder Judicial 2013-2014 y Lineamientos para l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-06 | la propia norma |
+| 2 | 2013-12-18 | Acuerdo 16 (2013-12-18) |
