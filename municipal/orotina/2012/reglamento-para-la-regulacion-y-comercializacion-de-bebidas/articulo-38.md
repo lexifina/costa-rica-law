@@ -3,7 +3,8 @@ Del procedimiento para obtener la autorización
 para el traspaso, traslado o explotación de
 licencias para la comercialización de
 bebidas con contenido alcohólico
-Artículo 38.—Para realizar el trámite de traspaso, traslado o explotación de una licencia de Licores que se hayan otorgado bajo la Ley Nº 10, el adquiriente deberá presentar lo siguiente:
+Artículo 38.—Para realizar el trámite de traspaso, traslado o explotación de una licencia de licores que se hayan otorgado bajo la Ley Nº 10, el adquiriente deberá observar lo que dimana el artículo 22 de este cuerpo reglamentario (mantendrán el derecho a transmitirla a un tercero hasta que expire su plazo bienal de vigencia,) debiendo cumplir con lo siguiente:
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 309 del 18 de diciembre del 2013)
 1 Presentar solicitud por escrito, con todos los datos requeridos para su trámite, firmado por la persona interesada, en el caso de que la persona solicitante no efectúe el trámite de manera personal, la firma deberá estar autenticada por un profesional en Derecho.
 2 Aportará los siguientes documentos:
 a) Fotocopia de la cédula de identidad del cedente y del adquiriente o la persona que solicita la explotación de la licencia, en caso de ser nacional, y fotocopia de la cédula de residencia o pasaporte, en caso de que se trate de un extranjero. Si es una persona jurídica deberá aportar certificación de personería jurídica con no más de un mes de haber sido extendida.
