@@ -1,2 +1,0 @@
-Artículo 4º—Las rectificativas de declaraciones presentadas así como las declaraciones de períodos anteriores, deberán presentarse conforme se indica en el artículo 1 de la Resolución de esta Dirección Nº DGT-R-040-2011 del 30 de noviembre del 2011.
-(Así reformado por el artículo 2° de la resolución N° DGT-R-041-2012 del 20 de diciembre del 2012, "Uso opcional del portal de Tributación Diret@ por parte de los contribuyentes del impuesto solidario para el fortalecimiento de programas de vivienda")
