@@ -1,0 +1,1 @@
+Artículo 2º—La Política Migratoria Integral para Costa Rica 2013-2023, constituye el marco orientador de objetivos y acciones en materia migratoria, para la programación y definición de programas y proyectos estratégicos de mediano y largo plazo.

@@ -1,0 +1,1 @@
+Artículo 4º—La Política Migratoria Integral para Costa Rica 2013-2023, que se oficializa mediante el presente Decreto Ejecutivo, tiene el propósito de servir como herramienta de consulta permanente, que proporciona información técnica, objetivos y estrategias de utilidad para el sector público, privado, empresarial y para la sociedad civil en el abordaje de la materia migratoria.
