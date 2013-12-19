@@ -1,1 +1,0 @@
-Artículo 10.—Del reglamento de organización y funcionamiento. La Auditoría Interna dispondrá de un reglamento, acorde con la normativa que rige su actividad, el mismo, será aprobado por el Consejo Directivo y la Contraloría General de la República. El reglamento deberá ser publicado en el diario oficial del Estado y será divulgado a nivel institucional.

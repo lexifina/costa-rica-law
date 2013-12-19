@@ -1,1 +1,0 @@
-Artículo 41.—De los informes de calidad y el plan de mejoras. Los informes de calidad deben ser del conocimiento del Consejo Directivo, le corresponde al Auditor Interno dar a conocer los resultados de la evaluación de calidad, proponer el plan de mejoras y realizar un programa de seguimiento respecto al cumplimiento de las mejoras propuestas.

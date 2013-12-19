@@ -1,1 +1,0 @@
-Artículo 26.—De la recopilación de información. Durante el desarrollo de la auditoría o estudio especial de auditoría, la Auditoría Interna preparará y enviará a quien corresponda, a instancias internas o externas de la Escuela, memorandos sobre solicitudes de información, criterios u otros necesarios para el adecuado desarrollo del estudio y de la labor que realiza.
