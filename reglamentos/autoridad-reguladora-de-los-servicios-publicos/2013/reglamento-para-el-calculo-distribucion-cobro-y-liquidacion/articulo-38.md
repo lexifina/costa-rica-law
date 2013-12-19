@@ -1,0 +1,1 @@
+Artículo 38.—Transitorio para la elaboración de resolución sobre superávit o déficit por empresa. La metodología para establecer la distribución del superávit o déficit por empresa, se elaborará en el plazo de dos meses posteriores a la publicación del presente reglamento.

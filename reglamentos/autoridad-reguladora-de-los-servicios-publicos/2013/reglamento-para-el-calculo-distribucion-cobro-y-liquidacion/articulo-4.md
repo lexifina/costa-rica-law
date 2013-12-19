@@ -1,0 +1,1 @@
+Artículo 4º—Estimación de gastos que sustentan el proyecto de cánones. Para calcular los cánones deben considerarse todos los gastos e ingresos a incorporar en el presupuesto de la ARESEP para el siguiente año.

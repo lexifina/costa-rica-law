@@ -1,0 +1,1 @@
+Artículo 30.—Forma del arreglo de pago. El pago de la primera cuota será requisito para formalizar el arreglo de pago. El deudor presentará el recibo de pago de la primera cuota a la Dirección de Finanzas, quien en forma inmediata lo comunicará a la Dirección General de Asesoría Jurídica y Regulatoria, para que proceda con la firma del arreglo de pago.

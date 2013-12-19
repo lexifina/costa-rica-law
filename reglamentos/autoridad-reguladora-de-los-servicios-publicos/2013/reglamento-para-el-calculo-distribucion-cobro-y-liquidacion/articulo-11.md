@@ -1,0 +1,1 @@
+Artículo 11.—Aprobación. Una vez recibido y analizado por la Dirección General de Estrategia y Evaluación el proyecto de cánones por actividad regulada, lo someterá a conocimiento y aprobación de la Junta Directiva. Luego de aprobado, la Dirección General de Estrategia y Evaluación lo remitirá a la CGR a más tardar el quince de abril de cada año.

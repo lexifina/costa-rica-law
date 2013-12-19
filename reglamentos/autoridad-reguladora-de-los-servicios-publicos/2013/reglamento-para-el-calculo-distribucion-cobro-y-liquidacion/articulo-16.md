@@ -1,0 +1,2 @@
+Artículo 16.—Obligación de pago del canon. Dentro de los plazos que este reglamento establece, el prestador deberá pagar el canon sobre los servicios públicos señalados en el artículo 5 de la Ley, independientemente de que se les recuerde esta obligación o reciban la factura correspondiente, debido a que los mismos se detallan oportunamente en la respectiva publicación en La Gaceta.
+En caso de que el monto pagado por el deudor no constituya el pago total, se cancelarán primero las multas e intereses y el remanente se abonará al principal.
