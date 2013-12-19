@@ -1,0 +1,1 @@
+Artículo 26.—Si una vez iniciada una gira, ésta se suspende, el funcionario deberá reintegrar en el plazo de tres días hábiles las sumas no disfrutadas por concepto del adelanto, conforme a la liquidación presentada y depositar el excedente a la cuenta bancaria que para tan fin suministrará la Unidad Financiera.

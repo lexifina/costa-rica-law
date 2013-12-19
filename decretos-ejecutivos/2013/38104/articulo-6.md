@@ -1,0 +1,1 @@
+Artículo 6º—Las sumas establecidas para gastos a que se refiere este Reglamento son asignaciones máximas y deben estar autorizadas por el ente regulador y aprobado mediante resolución del máximo jerarca del Ministerio y serán hechas del conocimiento de todos los funcionarios del Ministerio de Salud a través de circulares u oficios.

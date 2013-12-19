@@ -1,0 +1,1 @@
+Artículo 11.—En caso de emergencia nacional o sanitaria declarada, o bien por causa de fuerza mayor, o caso fortuito, que amerite el desplazamiento de funcionarios, el Ministerio de Salud debe de contemplar el presupuesto necesario para el adelanto de viáticos de forma inmediata, desde la División Administrativa Nivel Central.

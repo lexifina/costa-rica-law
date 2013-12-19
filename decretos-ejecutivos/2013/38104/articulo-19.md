@@ -1,0 +1,4 @@
+Artículo 19.—El funcionario que haya concluido una gira deberá presentar, dentro de siete días hábiles posteriores al regreso a su sede de trabajo o a su incorporación a éste, el formulario de liquidación de gastos de viaje y transporte en el interior del país y hacer el reintegro respectivo en los casos en que proceda, para tal efecto la Unidad Financiera suministrará las cuentas bancarias correspondientes, posteriormente se revisa y aprueba la liquidación con el fin de:
+a) Pagar al funcionario el gasto reconocido no cubierto por la suma adelantada.
+b) Pagar al funcionario la totalidad del gasto reconocido, en los casos en que éste no haya retirado el respectivo adelanto, siempre y cuando no haya transcurrido un mes calendario del regreso de la gira.
+c) Exigir al funcionario el reintegro del monto girado de más, en aquellos casos en que la suma devuelta por éste no haya sido suficiente para cubrir el monto que efectivamente le corresponde reintegrar.

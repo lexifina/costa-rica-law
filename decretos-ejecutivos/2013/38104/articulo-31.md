@@ -1,0 +1,1 @@
+Artículo 31.—De no darse las circunstancias descritas en el artículo anterior, la persona deberá reintegrar en forma inmediata el monto total recibido por concepto de adelanto, y no se le tramitará ningún adelanto o liquidación posterior de otra gira distinta, hasta tanto no se corrija dicha situación.

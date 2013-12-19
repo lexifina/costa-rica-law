@@ -1,0 +1,1 @@
+Artículo 29.—El plazo de siete días hábiles para la presentación de liquidaciones sin adelanto, no extingue la facultad o derecho de presentación. El incumplimiento de presentación de la liquidación dentro del plazo señalado en el artículo 19 inciso b), el interesado deberá solicitar su cancelación mediante la presentación de un reclamo administrativo.

@@ -1,0 +1,2 @@
+CAPÍTULO IV
+Artículo 47.—Becarios o estudiantes. Los gastos que realicen los funcionarios del Ministerio de Salud en calidad de estudiantes o becarios, en cursos con una duración mayor a treinta días, se regulan en el respectivo Contrato de Beca y en las disposiciones legales pertinentes. Estos no podrán recibir monto alguno por concepto de viático, sin embargo el Ministerio de Salud queda facultado para otorgar el subsidio de hasta un 75% del monto de las tarifas que señala el artículo 39 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—El Formulario de la liquidación de gastos de viaje, transporte y de otras erogaciones conexas, deberá hacerse detalladamente en los formularios que para tal efecto establezca la División Administrativa.

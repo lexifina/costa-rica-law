@@ -1,0 +1,4 @@
+Artículo 32.—En aquellos casos en que la persona viaje diariamente a atender un mismo asunto o actividad, o que en razón de ello deba permanecer en forma regular en un sitio diferente al de su sede de trabajo, siendo procedente el pago de viáticos, el Ministerio de Salud a través de la Unidad Organizativa correspondiente, podrá autorizar, por vía de excepción, mediante oficio, la presentación de la respectiva liquidación con la siguiente periodicidad:
+a) Siete días hábiles posteriores al regreso o incorporación al trabajo, salvo la excepción que se menciona en el artículo 29 de este reglamento.
+b) Si la gira es continua y en forma mensual, máximo el día quinto del mes siguiente.
+c) Sí durante la gira mensual, se interrumpe la continuidad por más de tres días debe presentarse conforme lo establece el inciso a) del presente artículo.

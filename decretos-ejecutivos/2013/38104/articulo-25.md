@@ -1,0 +1,1 @@
+Artículo 25.—La cancelación o posposición de una gira, da lugar al reintegro dentro del plazo máximo de tres días hábiles, por parte del funcionario, de la totalidad de la suma recibida en calidad de adelanto y depositarlo a la cuenta bancaria que para tan fin suministrará la Unidad Financiera.

@@ -1,0 +1,1 @@
+Artículo 45.—Reconocimiento de gastos cuando el lugar de destino coincide con el de su residencia o de su trabajo. Cuando deba laborar en cualquier lugar cercano a su domicilio o al lugar en que normalmente trabaja y, en ambos casos, exista facilidad de transporte, se reconocerá únicamente el gasto de traslado, a excepción de lo que establece el artículo 38 de este Reglamento.

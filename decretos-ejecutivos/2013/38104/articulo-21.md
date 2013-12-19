@@ -1,0 +1,1 @@
+Artículo 21.—La Unidad Organizativa correspondiente contará con un plazo máximo de siete días hábiles para tramitar y resolver la liquidación presentada, término que iniciará a partir del momento en que la liquidación cumpla con todos los requisitos establecidos en este reglamento.

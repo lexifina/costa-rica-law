@@ -1,0 +1,1 @@
+Artículo 14.—La información consignada en la liquidación de gastos de viaje y de transporte tiene el carácter de declaración jurada; que evidencia una relación cierta de los gastos incurridos en la atención de asuntos oficiales.

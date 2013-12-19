@@ -1,0 +1,1 @@
+Artículo 20.—Para todas aquellas liquidaciones de los funcionarios del nivel central, nivel local y regional asociadas a un adelanto, deben ser presentadas en la Unidad Financiera y aquellas liquidaciones del nivel local y regional no asociadas a un adelanto deberán ser presentadas en la Unidad Organizativa Correspondiente.

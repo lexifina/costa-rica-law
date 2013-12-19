@@ -1,0 +1,1 @@
+Artículo 18.—Los gastos para combustible y lubricantes, lavado y planchado de ropa y otras erogaciones contempladas en este Reglamento, debidamente justificadas, serán cubiertas por la modalidad de Caja Chica.

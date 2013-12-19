@@ -1,0 +1,1 @@
+Artículo 36.—Arreglos de pago. Son prohibidos los arreglos de pago producto de liquidaciones originadas por adelanto que debieron ser presentados en cualquiera de los pagos citados en los incisos a), b) y c) del artículo 19.

@@ -1,0 +1,1 @@
+Artículo 27.—Cuando un funcionario no presente dentro del plazo establecido la respectiva liquidación, la Unidad Financiera le requerirá su presentación por una única vez, para lo cual dará un plazo improrrogable de tres días hábiles, transcurrido este plazo, la Unidad Financiera queda facultada a exigir el reintegro de la suma adeudada por el funcionario.

@@ -1,0 +1,1 @@
+Artículo 23.—Al regreso de una gira, sólo se aceptarán aquellos gastos de viaje y de transporte, que estén debidamente autorizados por el responsable del programa o en su efecto el funcionario que el designe.

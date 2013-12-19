@@ -1,0 +1,1 @@
+Artículo 9º—Posteriormente a la autorización del viaje, el funcionario que va a realizar la gira, deberá solicitar al responsable del programa o funcionario que se designe, el adelanto correspondiente a dicho viaje, esto con la finalidad de asegurar el debido contenido presupuestario para los gastos respectivos.
