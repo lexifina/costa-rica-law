@@ -1,0 +1,1 @@
+Transitorio I.—Las inscripciones y permisos establecidos en la Ley cuyas solicitudes sean presentadas en la Dirección con anterioridad a la habilitación de su trámite electrónico en el Sistema, continuarán su trámite en documentos físicos y se regirán por el Decreto Ejecutivo N° 33128.

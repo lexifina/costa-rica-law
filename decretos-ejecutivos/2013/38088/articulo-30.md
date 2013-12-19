@@ -1,0 +1,1 @@
+Artículo 30.—Disposiciones aplicables a la Comisión de Servicios de Seguridad Privados. En lo que respecta a las sesiones de esta Comisión, sus actas y recursos de revisión, les serán aplicables las disposiciones contenidas en los artículos 24 y 25 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Obligación de actualización. Los usuarios registrados deben mantener actualizada en todo momento la información, registrada en la opción “administración de datos personales” ubicada en el menú de administración del Sistema.

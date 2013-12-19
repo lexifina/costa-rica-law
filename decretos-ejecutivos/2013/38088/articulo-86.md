@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Seguridad patrimonial
+Artículo 86.—Objeto. Toda persona física o jurídica podrá tener su propio servicio de seguridad para proteger sus bienes muebles e inmuebles, así como para transportar sus valores.
+En el caso de que la empresa posea su propio servicio de seguridad compuesto por seis o más personas, deberá inscribirse ante la Dirección mediante el Sistema con los requisitos establecidos en el artículo 13, incisos a), d) y g) de la Ley. Sin embargo, la empresa que posea cinco o menos agentes, no tendrá la obligación de inscribirse ante la Dirección. En cuanto a los agentes de seguridad, sin importar la cantidad, todos deberán estar inscritos ante la Dirección mediante el Sistema, para lo cual deberán cumplir los requisitos establecidos en el artículo 14, incisos a), c), d) y e) de la Ley.

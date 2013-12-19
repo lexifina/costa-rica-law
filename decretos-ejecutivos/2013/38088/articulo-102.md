@@ -1,0 +1,1 @@
+Artículo 102.—Actualización de información. Es deber de los usuarios registrados mantener actualizada la información registrada en la opción “administración de datos personales” ubicada en el menú de administración del Sistema.

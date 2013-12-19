@@ -1,0 +1,3 @@
+Artículo 112.—Cancelación. La Dirección de Servicios de Seguridad Privados cancelará la autorización de licencia para el ejercicio de la seguridad privada, a la persona física o jurídica, que incumpla con las siguientes prohibiciones:
+1. vender, alquilar, ceder, traspasar o negociar, en cualquier forma, la autorización otorgada,
+2. detener, aprehender, interrogar, requisar o, de cualquier manera, privar de la libertad a una persona. Cuando se esté ante un flagrante delito, podrán realizar la aprehensión momentánea dando aviso inmediato a la autoridad competente, y mientras esta se apersona para hacerse cargo del asunto.

@@ -1,0 +1,16 @@
+Artículo 78.—Requisitos de los vehículos de seguridad de la custodia y transporte de valores. Todo vehículo destinado a la custodia y transporte de valores, cuya seguridad precisamente la constituya el propio vehículo y sus vigilantes, deberá contar con los siguientes requisitos:
+1. Blindaje mínimo para soportar hasta un ataque con un arma de fuego AK-47. Esta protección incluye el exterior y el interior del vehículo, así como todos los vidrios del mismo. El blindaje deberá ser certificado por la casa responsable, haciendo constar el nivel de protección, el tipo de armas que soporta, así como aquellas características que mediante directriz fije la Dirección de conformidad con el artículo 38 de la Ley.
+La Dirección podrá coordinar con diversas instituciones para efectuar pruebas periciales tendientes a comprobar el adecuado blindaje del vehículo,
+2. sistema de aire acondicionado de conformidad con las normas vigentes, de modo que el vehículo ofrezca condiciones adecuadas de habitabilidad, tanto en la cabina como en el cajón o compartimiento en donde se transportan los valores y el vigilante a su cargo,
+3. el cajón debe estar completamente aislado de la cabina y debe contar con una tolva para introducir y extraer las bolsas que contienen los valores,
+4. el asiento del lado derecho debe ser removible, a fin de posibilitar que su respaldo quede hacia atrás o hacia delante, de modo que un tirador pueda operar el arma con la mano derecha o con la izquierda.
+El asiento debe quedar firme en ambas posiciones para no afectar la ejecución de los disparos,
+5. troneras laterales ubicadas debajo de las ventanillas y los asientos inmediatamente al lado,
+6. en caso de que tengan escotillas para entrada de aire, estas deben estar protegidas con rejillas u otro mecanismo que impida la penetración de cualquier tipo de artefacto,
+7. la puerta por donde descienden el portavalores y los custodios deberá tener una escalera, extensible hacia abajo y hacia fuera al abrir dicha puerta, para facilitar y agilizar el ascenso y descenso del personal,
+8. llavines de alta seguridad, de apertura interna, con pasadores internos de seguridad que impidan la apertura de las puertas cuando el vehículo se encuentra en movimiento,
+9. equipo de comunicaciones tanto en la cabina como en el cajón,
+10. el exterior del vehículo deberá contar con rótulos o señales que permitan su reconocimiento desde el aire. El interior deberá contar con letreros visibles e ilustrativos, que contengan las instrucciones y procedimientos que debe cumplir el personal a bordo, así como extintores y mascarillas antigases,
+11. tarjeta de circulación, título de propiedad, pago de seguro obligatorio, revisión técnica, certificado de inscripción ante la Dirección, y los demás requisitos exigidos por la Ley de Tránsito por Vías Públicas y Terrestres y sus Reglamentos. Todos los documentos deberán encontrarse vigentes, y ser presentados ante la Dirección oportunamente mediante el Sistema,
+12. el vehículo deberá mantenerse en óptimas condiciones, tanto físicas como mecánicas,
+13. estar inscrito en el registro de vehículos de seguridad de custodia, y transporte de valores que para ese efecto llevará la Dirección por medio del Sistema.

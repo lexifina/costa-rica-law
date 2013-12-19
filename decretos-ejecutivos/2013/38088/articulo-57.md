@@ -1,0 +1,1 @@
+Artículo 57.—Del registro de vehículos. La Dirección llevará por medio del Sistema un registro de los vehículos utilizados para prestar los servicios de seguridad privada, donde consignará el nombre de la empresa a la que pertenece el automotor, el número asignado por la Dirección, logotipo, marca, año, número de placa y número de vehículo.

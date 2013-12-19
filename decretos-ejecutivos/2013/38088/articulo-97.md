@@ -1,0 +1,1 @@
+Artículo 97.—Compatibilidad de los equipos. A fin de contar con un servicio óptimo, los usuarios del Sistema deben contar con equipos y programas informáticos adecuados para la conexión y la utilización de este Sistema, los cuales serán detallados en las Políticas de uso.

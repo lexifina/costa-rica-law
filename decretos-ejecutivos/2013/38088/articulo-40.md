@@ -1,0 +1,2 @@
+Artículo 40.—Recursos. Si la solicitud de inscripción o renovación de licencia se rechaza o deniega por la Dirección, el solicitante podrá impugnar el acto dentro de los tres días siguientes a su notificación, interponiendo mediante el Sistema los recursos ordinarios establecidos en la Ley General de la Administración Pública.
+Tanto el recurso de revocatoria como el de apelación, deberán ser resueltos en el plazo establecido en el artículo 352.

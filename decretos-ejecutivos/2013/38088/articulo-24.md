@@ -1,0 +1,3 @@
+Artículo 24.—Actas de las sesiones. En cada sesión se levantará un acta, que contendrá indicación de las personas asistentes, circunstancias de lugar y tiempo en que se celebra, puntos principales de deliberación, forma y resultado de la votación, y contenido de los acuerdos.
+Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación, los acuerdos tomados carecerán de firmeza, salvo que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros de la Comisión.
+Las actas deberán ser firmadas por todos los miembros presentes en la sesión.

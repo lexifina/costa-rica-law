@@ -1,0 +1,3 @@
+Artículo 35.—Subsanación de la solicitud. Presentada la solicitud de autorización conforme lo previsto por la Ley y el presente Reglamento, la Dirección procederá a revisar la solicitud y en caso de encontrarse observaciones o requisitos incompletos se realizará una prevención por única vez y mediante el Sistema para que estas se subsanen, para lo cual el solicitante contará con un plazo de 10 días hábiles.
+Cumplido el plazo sin subsanarse el defecto, se archivará la solicitud y así lo comunicará la Dirección al solicitante, en resolución fundada mediante el Sistema.
+El solicitante podrá presentar nuevamente la solicitud de autorización, sin necesidad de aportar documentos o cumplir requisitos que ya constan en el Sistema y que se encuentren vigentes.

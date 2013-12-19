@@ -1,0 +1,1 @@
+Artículo 105.—Fallas técnicas. El administrador general y el Ministerio quedan exentos de toda responsabilidad por las fallas técnicas y de conectividad del hardware y el software empleados por los usuarios para acceder al Sistema. Es responsabilidad exclusiva del usuario mantener en perfecto funcionamiento la conectividad del hardware y el software que utilice.

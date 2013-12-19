@@ -1,0 +1,1 @@
+Artículo 46.—Plazo para una nueva prueba psicológica. En caso de que la prueba psicológica declare que el solicitante no es apto para ejercer como agente de seguridad privada, ésta podrá ser realizada nuevamente dentro del término de dos años contados a partir de la fecha en que fue expedido el dictamen que contiene el resultado negativo.

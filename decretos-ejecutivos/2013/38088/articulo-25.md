@@ -1,0 +1,2 @@
+Artículo 25.—Recurso de revisión. En caso de que alguno de los miembros de la Comisión interponga recurso de revisión contra un acuerdo, deberá plantearse a más tardar al discutirse el acta, y ser resuelto en la misma sesión, salvo que el representante del Ministro juzgue el asunto urgente o prefiera conocerlo en sesión extraordinaria.
+Las observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas recursos de revisión para efectos del párrafo anterior.

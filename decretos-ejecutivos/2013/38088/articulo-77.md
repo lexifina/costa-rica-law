@@ -1,0 +1,1 @@
+Artículo 77.—Objeto. Toda persona física o jurídica que brinde el servicio de custodia y transporte de valores y que utilice a vigilantes para el traslado de aquellos, deberá cumplir los requisitos establecidos en la Ley y el presente Reglamento, así como las directrices que para ese efecto emita la Dirección.

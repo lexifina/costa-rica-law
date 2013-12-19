@@ -1,0 +1,1 @@
+Artículo 7º—Uso de formularios electrónicos. A efectos de garantizar la eficiencia y la estandarización, en el Sistema los trámites se deberán realizar haciendo uso de los formularios electrónicos disponibles.

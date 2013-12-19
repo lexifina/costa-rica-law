@@ -1,0 +1,1 @@
+Artículo 114.—Delito. Será reprimido con prisión de tres meses a dos años, a quien preste alguno de los servicios regulados en la Ley N° 8395, pese a que su autorización o la de la empresa que representa, se encuentre suspendida o haya sido cancelada. De conformidad con el artículo 53 de la Ley.

@@ -1,0 +1,3 @@
+Artículo 67.—Otorgamiento de la credencial. Después de presentada la solicitud para la inscripción como vigilante independiente, según los requisitos establecidos en la Ley y el presente Reglamento, la Dirección tendrá treinta días hábiles para resolver la petición.
+Resuelta la solicitud favorable al solicitante, la Dirección procederá a inscribirlo mediante el Sistema como vigilante independiente, otorgándole una credencial que lo identifica como tal, que será personalísima y no podrá ser transferida. En la credencial o carné debe indicarse en forma expresa las palabras “vigilante independiente”.
+Esta credencial debe ser portada en forma visible en todo momento mientras el vigilante cumpla con sus funciones de seguridad privada y tendrá vigencia por dos años.

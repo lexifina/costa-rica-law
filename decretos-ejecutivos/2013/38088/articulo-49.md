@@ -1,0 +1,7 @@
+Artículo 49.—Acreditación de instructores. La acreditación de instructores para los cursos señalados en este Reglamento, se hará mediante solicitud formal por parte de la empresa o entidad autorizada para impartirlos, de conformidad con los requisitos que se indican en el presente artículo, según el curso para el que se solicita la acreditación.
+1) área jurídica: Licenciados en Derecho debidamente incorporados al colegio profesional respectivo,
+2) área humanística: Bachilleres en alguna carrera dentro del campo de las Ciencias Sociales, Económicas, de Educación o de Humanidades,
+3) área técnico – policial: Diplomados Universitarios en Ciencias Policiales, Criminología, Criminalística, o haber realizado cursos especializados en materia policial o de seguridad, preferiblemente en los campos de Técnicas y Procedimientos Policiales, Armas y Polígono o Seguridad de Instalaciones,
+4) nota de aceptación del postulante a instructor, en la que se establezca con toda claridad que está dispuesto a realizar esa labor para la empresa o entidad solicitante,
+La experiencia en labores relacionadas con la materia policial o de seguridad de bienes o personas, y la formación académica o técnica en instrucción o educación de adultos es requisito adicional deseable pero no indispensable, para la acreditación de los instructores,
+5) contar con el Curso de Formador de Formadores, impartido por el Instituto Nacional de Aprendizaje, la Escuela Nacional de Policía u otro centro docente autorizado, por el sistema educativo nacional.

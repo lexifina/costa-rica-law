@@ -1,0 +1,1 @@
+Artículo 6º—Uso de firma digital. Todos los actos jurídicos que se realicen por medio del Sistema deben estar suscritos mediante firma digital certificada, emitida al amparo de lo dispuesto en la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº 8454 y su Reglamento Decreto Ejecutivo Nº 33018.
