@@ -1,0 +1,3 @@
+Artículo 19.—Del refrendo de la Contraloría General República. Una vez concluido todo el proceso anterior, la Comisión Especial someterá ante la Contraloría General de la República el expediente del concurso, para que esta lo apruebe o impruebe.
+En caso de que la Contraloría apruebe el procedimiento, el expediente se traslada al Concejo Municipal para que proceda con el nombramiento del Auditor Interno, entre los candidatos elegibles de la terna.
+En caso de que la Contraloría impruebe el procedimiento, el mismo debe ser subsanado, rectificado o reiniciado, de conformidad con lo que al respecto señale en su momento, la Contraloría General de la República.

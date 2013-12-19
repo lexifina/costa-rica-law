@@ -1,0 +1,1 @@
+Artículo 16.—Registro de Elegibles. Solo serán elegibles al puesto los oferentes que obtengan una calificación igual o superior a 70, de conformidad con la tabla de evaluación de las ofertas definidas en el Artículo 8. Para ello se conformará el registro de elegibles ordenado en forma descendente de mayor a menor, a partir de la oferta mejor calificada.

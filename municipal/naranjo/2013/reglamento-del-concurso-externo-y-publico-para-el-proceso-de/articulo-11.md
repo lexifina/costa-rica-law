@@ -1,0 +1,1 @@
+Artículo 11.—No se recibirán ofertas que no tengan toda la documentación solicitada o el participante no cumpla con los requisitos expuestos en el punto uno de los requisitos, los cuales se encuentran plasmados en los lineamientos emitidos al efecto por la Contraloría General de la República, y son de cumplimiento obligatorio.

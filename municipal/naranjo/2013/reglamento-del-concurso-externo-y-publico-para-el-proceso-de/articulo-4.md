@@ -1,0 +1,1 @@
+Artículo 4º—Apoyo técnico. La Comisión especial dispondrá del apoyo que requiera particularmente del Departamento de Recursos Humanos de la Municipalidad de Naranjo, de la asesoría legal del Concejo Municipal y cualquier otra que considere necesaria para el cumplimiento de los objetivos de la Comisión, para lo cual la administración prestará toda su colaboración.
