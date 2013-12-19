@@ -1,1 +1,0 @@
-Artículo 45.—Estudio y evaluación del control interno. La Auditoría Interna estudiará y evaluará el sistema de control interno de acuerdo al sistema establecido en la entidad al iniciar una auditoría o estudio especial.

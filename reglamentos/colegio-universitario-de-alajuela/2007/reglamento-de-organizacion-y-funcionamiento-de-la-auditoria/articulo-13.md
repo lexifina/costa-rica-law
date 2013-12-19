@@ -1,1 +1,0 @@
-Artículo 13.—Reglamento de Organización y Funciones. La Auditoría Interna dispondrá de un Reglamento, acorde con la normativa que rige su actividad. Dicho Reglamento será aprobado por el Consejo Directivo y la Contraloría General de la República, será publicado en el Diario Oficial La Gaceta y será divulgado a nivel institucional.

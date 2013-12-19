@@ -1,3 +1,0 @@
-CAPÍTULO V
-Ejecución de la Auditoría
-Artículo 39.—Manual de Normas Administrativas y Técnicas de la Auditoría del C.U.NA. El Auditor Interno deberá formular y mantener actualizado un Manual de Normas Técnicas y Administrativas, con el propósito de brindar un marco de referencia que defina las Normas y Procedimientos de auditoría aplicables al C.U.N.A. Este manual está fundamentado en los lineamientos generales que emite las Contraloría General de la República en el “Manual de procedimientos de Auditoría para la Contraloría General de la República y las Entidades y Órganos Sujetos a su Fiscalización, las emitidas por el Colegio de Contadores Públicos de Costa Rica aplicables al Sector Público, y las establecidas por la Institución..

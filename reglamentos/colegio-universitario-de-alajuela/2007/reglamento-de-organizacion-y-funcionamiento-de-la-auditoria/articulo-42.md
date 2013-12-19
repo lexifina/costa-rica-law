@@ -1,1 +1,0 @@
-Artículo 42.—Informe de labores. El Auditor Interno deberá elaborar un “Informe Anual de Labores”, el mismo debe ser presentado al Consejo Directivo en cumplimiento con la ejecución del Plan de Trabajo Anual, de conformidad con lo establecido en el artículo 22, inciso g) de la Ley General de Control Interno.

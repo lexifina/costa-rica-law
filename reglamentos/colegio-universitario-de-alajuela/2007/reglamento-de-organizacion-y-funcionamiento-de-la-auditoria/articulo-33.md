@@ -1,1 +1,0 @@
-Artículo 33.—Objetividad y ética profesional. El personal de la Auditoría Interna deberá tener una actitud neutral e imparcial, con el propósito de mantener su independencia de criterio y evitar un eventual conflicto de intereses.
