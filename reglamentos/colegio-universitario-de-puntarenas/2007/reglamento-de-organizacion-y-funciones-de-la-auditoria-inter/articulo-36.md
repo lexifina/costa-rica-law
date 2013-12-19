@@ -1,1 +1,0 @@
-Artículo 36.—Confidencialidad de la información. La información que obtenga el Auditor o el personal de la Auditoría Interna será confidencial en el desarrollo de la ejecución del trabajo. Esta confidencialidad no se aplicará a la Contraloría General de la República en el desarrollo de las funciones de fiscalización, o a la Asamblea Legislativa (art. 32 inciso h) LGCI).

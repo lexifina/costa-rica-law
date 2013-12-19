@@ -1,1 +1,0 @@
-Artículo 23.—Relaciones con profesionales o técnicos de diferentes disciplinas. La Auditoría Interna podrá incorporar como apoyo a su gestión, profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la Auditoría Interna.

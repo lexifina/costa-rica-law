@@ -1,1 +1,0 @@
-Artículo 32.—Estudio y evaluación del control interno. La Auditoría Interna al iniciar una auditoría o estudio especial, realizará el estudio y evaluación del sistema de control interno establecido por la administración del C.U.P., esta evaluación servirá para establecer el alcance y profundidad de las pruebas a realizar.

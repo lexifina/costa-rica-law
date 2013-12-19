@@ -1,1 +1,0 @@
-Artículo 47.—Revisión. Siempre que se cuente con el personal suficiente, cada trabajo de auditoría o estudio especial debe contar con una adecuada revisión con el propósito de que se compruebe que el mismo ha sido realizado de acuerdo con las políticas, programas de trabajo y que ha cumplido con la normativa aplicable.

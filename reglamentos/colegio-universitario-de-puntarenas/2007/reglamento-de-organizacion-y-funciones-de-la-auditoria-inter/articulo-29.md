@@ -1,9 +1,0 @@
-Artículo 29.—Metodologías, procedimientos y prácticas. Sin perjuicio de lo regulado en otros artículos de este Reglamento, en la Ley Nº 8292 de Control Interno y lo dispuesto por la Contraloría General de República en cuanto a las regulaciones para la Auditoría Interna. El Auditor Interno normará en el Manual de Procedimientos, lo relativo a los servicios de auditoría y preventivos que considere necesario y prudente según las circunstancias.
-En este sentido le corresponderá al Auditor Interno:
-a) Establecer las regulaciones rectoras de la Unidad de Auditoría Interna del C.U.P.
-b) Actualizar e implementar los mecanismos para el manejo eficaz de las relaciones y coordinaciones que en el ejercicio de las competencias de la Auditoría Interna, sean aplicables con el jerarca, titulares subordinados y otras instancias internas o externas.
-c) Regular la planificación de la Auditoría Interna para el desarrollo de las labores, basados en la valoración de riesgos.
-d) Diseñar e implementar los diferentes procesos inherentes a la Auditoría Interna, así como la elaboración de instrumentos para la ejecución del trabajo (procesos típicos en los diferentes estudios de auditoría, estudios especiales de auditoría, irregularidades, control interno, presupuesto, etc., asesorías, advertencias, autorización de libros).
-e) Establecer los trámites que se le darán a los resultados de los estudios de la Auditoría Interna.
-f) Crear los procedimientos que se le darán (internamente y externamente) a las recomendaciones no aceptadas por la administración.
-g) Establecer los criterios mínimos que se tomarán en cuenta para mantener un programa de aseguramiento continuo de la calidad y mejora de la Auditoría Interna en todos los ámbitos incluyendo la aplicación de la normativa técnica y jurídica aplicable.

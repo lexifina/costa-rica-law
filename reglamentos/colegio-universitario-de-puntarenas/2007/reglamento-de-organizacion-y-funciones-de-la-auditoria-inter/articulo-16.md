@@ -1,1 +1,0 @@
-Artículo 16.—Horario del personal de Auditoría Interna. La jornada laboral del auditor interno y subauditor interno (este último si existiere), será de tiempo completo, gozando de la dispensa de marcación.
