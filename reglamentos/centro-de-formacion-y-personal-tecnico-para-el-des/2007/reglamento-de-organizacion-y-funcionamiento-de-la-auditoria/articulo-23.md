@@ -1,8 +1,0 @@
-Artículo 23.—Planificación. El Auditor Interno definirá, podrá en práctica y liderará el proceso de planificación estratégica de la Auditoría Interna y presentará el Plan Estratégico formalmente al Consejo Directivo, de conformidad con la normativa legal y técnica.
-Asimismo, definirá y documentará la planificación de corto plazo mediante un Plan de Auditoría Anual, congruente con la planificación estratégica y la normativa reglamentaria y técnica pertinente, a fin de asegurar el desarrollo de sus procesos con alta calidad, basados en el conocimiento y la comprensión del entorno interno y externo del CEFOF.
-Con ese propósito al efectuar su planificación el Auditor Interno considerará, entre otros, los siguientes elementos:
-1. Los resultados de la valoración del riesgo institucional.
-2. El planeamiento estratégico y operativo del CEFOF.
-3. La evaluación de resultados de la planificación institucional de períodos anteriores, de conformidad con los indicadores de gestión en vigor.
-4. El monto de los recursos presupuestarios que ejecuta el CEFOF, desglosado por fuente de financiamiento, programas, proyectos específicos, donaciones y cualquier otro recurso relacionado con la gestión del CEFOF.
-5. Cantidad de funcionarios de la institución, por fuente de financiamiento: Presupuesto Nacional (del Ministerio de Educación Pública o de otras dependencias), otras instituciones públicas que no forman parte del Presupuesto Nacional, recursos generados por las actividades de capacitación y consultoría, préstamos, donaciones, aportes de organismos internacionales o cualquier otro mecanismo que se utilice para financiar personal del CEFOF.
