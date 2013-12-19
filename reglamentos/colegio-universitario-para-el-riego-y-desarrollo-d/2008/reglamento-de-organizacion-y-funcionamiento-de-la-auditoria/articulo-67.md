@@ -1,1 +1,0 @@
-Artículo 67.—Responsabilidad de las evaluaciones externas. Las revisiones externas recaen la responsabilidad sobre los entes fiscalizadores o sobre la administración que debe procurar la contratación de un equipo calificado profesionalmente y totalmente independiente.

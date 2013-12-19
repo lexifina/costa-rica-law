@@ -1,2 +1,0 @@
-Artículo 22.—Presupuesto Anual de la Auditoría. La Auditoría Interna elaborará el presupuesto anual de la dependencia en forma independiente de acuerdo con los lineamientos establecidos por la Contraloría General de la República, y en los términos definidos por la administración, cumpliendo con los requisitos establecidos.
-El Auditor Interno presentará el Plan anual operativo que justifique el presupuesto de la Auditoría Interna, el cual deberá contener al menos políticas, objetivos específicos, indicadores y fechas de cumplimiento.

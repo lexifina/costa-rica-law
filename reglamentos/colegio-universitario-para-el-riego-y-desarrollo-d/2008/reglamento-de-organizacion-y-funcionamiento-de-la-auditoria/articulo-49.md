@@ -1,1 +1,0 @@
-Artículo 49.—Supervisión del trabajo. Todo trabajo de auditoría debe contar con una adecuada supervisión en el caso de las Auditorías unipersonales el auditor deberá verificar que todo estudio cumpla con los pasos anteriores.

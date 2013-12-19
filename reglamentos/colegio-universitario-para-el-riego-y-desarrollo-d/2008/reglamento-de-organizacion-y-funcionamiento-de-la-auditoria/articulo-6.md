@@ -1,1 +1,0 @@
-Artículo 6º—Obligación de contar con una Auditoría Interna. El Colegio Universitario para el Riego y el Desarrollo Del Trópico Seco dentro de su estructura orgánica contará con una Auditoría interna, que es parte integral y vital del Sistema de Control en concordancia con el Artículo 20 de la Ley General de Control Interno.

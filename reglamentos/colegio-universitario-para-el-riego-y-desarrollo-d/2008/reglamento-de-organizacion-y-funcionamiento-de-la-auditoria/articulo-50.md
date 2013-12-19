@@ -1,2 +1,0 @@
-Artículo 50.—Confidencialidad de la información: La información que obtenga el Auditor o el personal de la Auditoría Interna será confidencial en el desarrollo de la ejecución del trabajo.
-Esta confidencialidad no se aplicará a la Contraloría General de la República en el desarrollo de las funciones de fiscalización, al Consejo Directivo, Asamblea Legislativa, ni cuando haya solicitud expresa de la autoridad competente.

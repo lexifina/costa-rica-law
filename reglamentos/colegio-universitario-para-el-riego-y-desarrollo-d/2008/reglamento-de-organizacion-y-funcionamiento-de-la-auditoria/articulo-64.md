@@ -1,1 +1,0 @@
-Artículo 64.—Evaluaciones al Programa de Calidad. Las evaluaciones al programa de calidad deberá contener: supervisión, evaluaciones internas y externas, que permitan ofrecer credibilidad de la Auditoría interna y el mejoramiento continuo de la labor de fiscalización.

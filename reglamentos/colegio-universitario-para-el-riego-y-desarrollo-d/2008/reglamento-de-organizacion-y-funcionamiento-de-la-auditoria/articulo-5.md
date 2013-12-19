@@ -1,1 +1,0 @@
-Artículo 5º—La Administración Activa del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco, es la responsable de establecer, mantener y perfeccionar el Sistema de Control Interno. Y la imputación de esa responsabilidad es a personal, corresponde a los respectivos Jerarcas, según cada estructura organizativa.

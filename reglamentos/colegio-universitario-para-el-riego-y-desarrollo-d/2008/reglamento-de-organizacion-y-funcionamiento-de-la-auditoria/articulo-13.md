@@ -1,1 +1,0 @@
-Artículo 13.—Jerarquía. El Auditor Interno es el Superior Jerárquico de la Auditoría Interna, y responsable directo de las actuaciones de la dependencia. De acuerdo con las competencias se constituye en el asesor principal del Consejo Directivo en aspectos relacionados con el control interno y con aspectos de su competencia.

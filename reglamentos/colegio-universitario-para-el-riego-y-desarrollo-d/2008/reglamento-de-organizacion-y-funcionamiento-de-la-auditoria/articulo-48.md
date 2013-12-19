@@ -1,1 +1,0 @@
-Artículo 48.—Papeles de trabajo. Las auditorías o estudios especiales se soportarán con cédulas y documentos de trabajo en donde se registrará la información o datos importantes de acuerdo con el estudio que lleve a cabo la auditoría.

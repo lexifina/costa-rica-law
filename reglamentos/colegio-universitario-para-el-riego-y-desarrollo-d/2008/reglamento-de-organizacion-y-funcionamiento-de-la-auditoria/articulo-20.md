@@ -1,1 +1,0 @@
-Artículo 20.—Recursos y Apoyo a su Gestión. El Auditor Interno para el desarrollo y administración del departamento de Auditoría, deberá presentar al Jerarca los planes y la necesidad de recursos (creación de plazas, capacitación y otros) para desarrollarlos, debidamente fundamentados de acuerdo a cada requerimiento.

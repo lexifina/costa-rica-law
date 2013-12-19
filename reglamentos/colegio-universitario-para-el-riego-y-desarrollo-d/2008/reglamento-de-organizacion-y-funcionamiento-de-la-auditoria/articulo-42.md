@@ -1,1 +1,0 @@
-Artículo 42.—Planificación Anual. La Auditoría Interna debe preparar el Plan Anual de trabajo congruente con el Plan Estratégico de acuerdo con el nivel de riesgo resultante y con los Lineamientos o Directrices que emita el Órgano Contralor. Este Plan será enviado a la Contraloría General de la República, previo conocimiento del Consejo Directivo.

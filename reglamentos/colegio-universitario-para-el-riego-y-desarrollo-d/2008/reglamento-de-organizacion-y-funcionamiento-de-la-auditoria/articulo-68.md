@@ -1,1 +1,0 @@
-Artículo 68.—Informes sobre las evaluaciones realizadas. Estos informes deben constar en un informe dirigido al Consejo Directivo por parte de las instancias correspondientes. En el caso del auditor deberá proponer el plan de mejoras y realizar un plan de seguimiento al cumplimiento del plan de mejoras.

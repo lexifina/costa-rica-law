@@ -1,2 +1,0 @@
-Artículo 23.—Asignación de Recursos. El Jerarca y el funcionario responsable del presupuesto una vez analizadas las necesidades, deberán asignar a la Auditoría Interna los recursos presupuestarios en las diferentes partidas dentro de la cuenta presupuestaria asignada para la Auditoría Interna, donde puedan ser controlados los movimientos de la ejecución y las modificaciones de dichos recursos.
-Toda modificación al presupuesto de la Auditoría Interna debe contar con su aprobación.

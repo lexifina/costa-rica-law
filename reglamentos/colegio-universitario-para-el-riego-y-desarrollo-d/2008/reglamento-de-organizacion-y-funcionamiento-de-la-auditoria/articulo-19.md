@@ -1,2 +1,0 @@
-Artículo 19.—Restricción en el ejercicio de sus labores. El Auditor Interno no podrá ser miembros de Juntas Directivas, Comisiones de trabajo o similares que ejerzan funciones propias de la Administración Activa. Cuando así lo solicite el Jerarca, podrán participar en las mismas, - en condición de “Asesor”- en asuntos de su competencia, y no podrá ser de carácter permanente.
-No participarán en implantación de acciones, diseños de formularios o procedimientos, que serán examinados posteriormente en el desarrollo de sus funciones.

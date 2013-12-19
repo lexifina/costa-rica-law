@@ -1,1 +1,0 @@
-Artículo 14.—Reglamento de Organización y Funciones. La Auditoría Interna dispondrá de un reglamento, acorde con la normativa que rige su actividad. Dicho reglamento será aprobado por el Consejo Directivo y la Contraloría General de la República, será publicado en el Diario Oficial La Gaceta y será divulgado a nivel institucional.

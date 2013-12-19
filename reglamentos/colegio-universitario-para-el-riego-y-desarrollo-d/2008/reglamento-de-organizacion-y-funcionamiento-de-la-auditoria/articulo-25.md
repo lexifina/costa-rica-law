@@ -1,1 +1,0 @@
-Artículo 25.—Certificación de Presupuesto de la Auditoría. El Auditor Interno deberá preparar un anexo que la administración deberá incluir dentro de la Liquidación Presupuestaria de la Institución en donde se indique si los recursos asignados a la Auditoría Interna fueron adecuados en el cumplimiento de sus funciones.

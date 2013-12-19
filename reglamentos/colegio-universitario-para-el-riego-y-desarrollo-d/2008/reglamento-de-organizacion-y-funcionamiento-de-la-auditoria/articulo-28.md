@@ -1,1 +1,0 @@
-Artículo 28.—Relaciones y coordinaciones. En la comunicación e intercambio de información con la Contraloría General de la República, Procuraduría General de la República, Autoridad Presupuestaria, u otros entes fiscalizadores establecidos por ley en el ejercicio de sus competencias, la Auditoría Interna goza de total independencia.
