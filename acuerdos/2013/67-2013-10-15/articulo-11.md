@@ -1,0 +1,2 @@
+Artículo 11.—Informes. Los equipos de trabajo nombrados presentarán sus informes escritos con sus respectivas alternativas al secretario de la Comisión según el plazo previamente acordado.
+El plazo máximo para rendir un informe será de un mes. Si la naturaleza del caso lo amerita, previo al vencimiento del término para la presentación del informe, si el mismo no se encuentra concluido, el Coordinador del equipo de trabajo, deberá manifestar el motivo del atraso y solicitar una ampliación del plazo a la Comisión, que no podrá exceder de un mes.

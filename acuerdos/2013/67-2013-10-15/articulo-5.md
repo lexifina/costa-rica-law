@@ -1,0 +1,4 @@
+Artículo 5º—Quórum. El quórum de formación será la mitad más uno del total de los miembros. Asimismo, el quórum de votación para los acuerdos será por mayoría simple.
+Además, previo al inicio de la sesión se verificará si hay quórum para continuar con las sesión al inicio, no se sesionará en forma ordinaria o extraordinaria si treinta minutos después de la hora fijada no hay quórum.
+En todos aquellos casos en que, exista empate en la votación de algún asunto entre los miembros de la Comisión, el Presidente tendrá, en razón de su condición, doble voto, para dirimir el conflicto existente.
+Cuando por motivos especiales o de fuerza mayor, un integrante no puede presentarse a una sesión ordinaria u extraordinaria, tendrá la obligación de avisar al Secretario por la vía que estime más efectiva, previo a la hora de inicio de la sesión que corresponda, sobre la llegada tardía o la inasistencia a la sesión.

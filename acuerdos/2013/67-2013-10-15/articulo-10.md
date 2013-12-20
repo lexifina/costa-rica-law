@@ -1,0 +1,1 @@
+Artículo 10.—Colaboración de técnicos y especialistas. Para obtener mayores elementos de juicio en sus relaciones y recomendaciones, los equipos de trabajo podrán contar con la participación de técnicos y especialistas en distintas materias, así como pedir el asesoramiento que sea necesario, previa autorización del Director Administrativo y Financiero de éste Ministerio.

@@ -1,0 +1,2 @@
+Artículo 12.—Vigencia de la Comisión. Los miembros de la Comisión Institucional del Programa de Gestión Ambiental Institucional, serán nombrados por un año.
+Un mes antes para que finalice el período de nombramiento, la Comisión del Programa de Gestión Ambiental Institucional, comunicará al Director Administrativo y Financiero que el plazo está por vencer con el objetivo que prorrogue el nombramiento o nombre nuevos integrantes.
