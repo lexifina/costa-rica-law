@@ -14,3 +14,4 @@ Eliminación del esquema de fijación de precios y transición hacia un mecanism
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-23 | la propia norma |
+| 2 | 2013-12-20 | Decreto Ejecutivo 38093 (2013-12-20) |
