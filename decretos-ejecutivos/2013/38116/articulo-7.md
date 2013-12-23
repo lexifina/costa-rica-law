@@ -1,0 +1,1 @@
+Artículo 7º—La participación en los Juegos Deportivos Estudiantiles es obligatoria en los centros educativos, en los niveles, modalidades, Categorías y Disciplinas Deportivas que establezca el Ministerio de Educación Pública.

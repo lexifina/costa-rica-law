@@ -1,0 +1,1 @@
+Artículo 6º—El Ministerio de Educación Pública y el Instituto Costarricense del Deporte y la Recreación asignarán las partidas presupuestarias necesarias para la realización de los Juegos Deportivos Estudiantiles, la cual nunca será inferior al monto establecido en el año anterior para ese efecto.

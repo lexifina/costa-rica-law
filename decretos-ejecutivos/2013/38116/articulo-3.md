@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Educación Pública y el Instituto Costarricense del Deporte y la Recreación ejecutaran los Juegos Deportivos Estudiantiles, como obligados colaboradores en el desarrollo de estas justas deportivas.
