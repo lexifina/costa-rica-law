@@ -1,0 +1,1 @@
+Artículo 6º—Los Planes Anuales Operativos incluirán acciones específicas derivadas de la PIEG-MSP y su Plan de Acción. Para ello contarán con la asesoría técnica de la Oficina de Igualdad y Equidad de Género, en conjunto con las personas representantes de las diferentes instancias vinculadas, contando con el aval y apoyo del Despacho del Ministerio.
