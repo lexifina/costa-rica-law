@@ -1,1 +1,0 @@
-13.—El funcionario aduanero encargado del despacho informa al Jefe de la Sección Técnica Operativa, el número del DUA y el número de los comprobantes de pago (INDER y Ventas), así como los montos y fechas de pago.

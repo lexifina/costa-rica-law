@@ -1,1 +1,0 @@
-10.—En caso de que el monto autodeterminado por concepto del Impuesto General sobre las Ventas sea inferior al monto que correspondía pagar, el funcionario encargado del despacho lo informará al declarante para que realice el pago por la diferencia, en este supuesto, el funcionario encargado del despacho no autorizará el levante.

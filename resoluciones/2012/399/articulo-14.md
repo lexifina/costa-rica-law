@@ -1,1 +1,0 @@
-14.—El Jefe de la Sección Técnica Operativa de la Aduana de Control, completa un cuadro en una tabla Excel que contenga al menos: el número de DUA, número de identificación del declarante, número y fecha de los comprobantes de pago INDER y Ventas, monto de los impuestos INDER, monto de G/E, monto Ventas, y fechas de pago.

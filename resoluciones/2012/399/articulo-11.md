@@ -1,1 +1,0 @@
-11.—El declarante una vez realizado el pago de la diferencia, transmitirá nuevamente la imagen del primer comprobante y también del segundo comprobante en un solo archivo, procederá a desasociar el primer archivo de imagen y asociar el segundo.

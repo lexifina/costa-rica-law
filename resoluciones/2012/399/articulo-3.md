@@ -1,1 +1,0 @@
-3º—Comunicar que a partir del próximo 29 de noviembre del 2012 y durante el plazo requerido para realizar los ajustes en el TICA, la determinación del monto de los impuestos a favor del INDER sobre bebidas carbonatadas, cervezas y vinos, se realizará en forma directa ante el INDER.

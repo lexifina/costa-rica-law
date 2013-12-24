@@ -1,1 +1,0 @@
-6º—Que el declarante en el campo de observaciones del DUA deberá indicar el número del comprobante de pago del INDER y el número del depósito por medio del cual se canceló lo correspondiente a la Ganancia Estimada e Impuesto General sobre las Ventas.

@@ -1,1 +1,0 @@
-4º—El pago del impuesto a favor del INDER deberá realizarse directamente en las cajas de ese Instituto o mediante depósito o transferencia a la cuenta corriente 12617-9, cuenta cliente 15201001001261797 del Banco de Costa Rica, a nombre del Instituto de Desarrollo Rural (INDER), cédula jurídica 4-000-042143.

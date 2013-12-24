@@ -1,1 +1,0 @@
-15.—De la anterior información remite un informe semanal al Departamento de Estadística y Registro de la Dirección General de Aduanas, con copia para la Dirección de Gestión de Riesgo de la Dirección General de Aduanas.

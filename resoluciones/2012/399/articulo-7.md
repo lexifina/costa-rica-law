@@ -1,1 +1,0 @@
-7º—El declarante digitaliza los documentos de comprobante de pago ante el INDER y el depósito por medio del cual se canceló lo correspondiente a la Ganancia Estimada e Impuesto General sobre las Ventas, utilizando los códigos de documentos 0146 y 0350 respectivamente, transmite los documentos al sistema TICA y luego los asocia a la respectiva declaración aduanera de importación.

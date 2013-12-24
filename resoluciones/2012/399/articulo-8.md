@@ -1,1 +1,0 @@
-8º—El funcionario aduanero encargado del ejercicio del control inmediato, previo a autorizar el levante de las mercancías, debe revisar las imágenes transmitidas y verificar que los comprobantes de pago estén numerados, firmados y sellados, tanto el del impuesto al INDER, como el del Impuesto de Ventas utilizando la ganancia estimada cuando proceda.
