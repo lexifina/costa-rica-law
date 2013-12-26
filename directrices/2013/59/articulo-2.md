@@ -1,0 +1,1 @@
+Artículo 2°—Del Diagnóstico Emprendedor y PYME. Con fundamento en la normativa vigente, se establece el Diagnóstico Emprendedor y PYME como instrumento de evaluación y definición de las etapas de desarrollo empresarial para la estructuración de planes de atención y acompañamiento a emprendedores, micro, pequeñas y medianas empresas.
