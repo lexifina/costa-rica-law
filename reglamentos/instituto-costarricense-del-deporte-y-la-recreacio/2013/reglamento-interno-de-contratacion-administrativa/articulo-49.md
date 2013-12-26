@@ -1,0 +1,9 @@
+Artículo 49.—Objetos de naturaleza o circunstancia concurrente incompatibles con el concurso. El ICODER, podrá contratar de forma directa los bienes o servicios que, por su naturaleza o circunstancias, no puede o no conviene adquirirse por medio de un concurso, así como todos los que previa solicitud habilite la Contraloría General de la República, para todos los casos se aplicará lo dispuesto en el presente reglamento y los aspectos no señalados se atenderán de acuerdo a lo que para todos los efectos indica la Ley y reglamento de contratación administrativa.
+Para la contratación de los bienes y servicios prevista en los artículos 2º de la Ley de Contratación Administrativa, y el 131, 132, 134, 135 de su reglamento, deberá seguirse el siguiente procedimiento:
+a. Solicitud de la dependencia que requiere el bien o servicio con la autorización del director del programa presupuestario que asumirá el gasto, donde justifiquen la necesidad de utilizar la excepción y no los procesos ordinarios de contratación.
+b. Cumplimiento de los requisitos establecidos en el RLCA para cada una de las excepciones contempladas.
+c. Pliego de especificaciones o requerimientos técnico-administrativos, con el clausulado mínimo necesario para valorar y asegurar el cumplimiento del objeto a contratar, para los casos de los incisos a., g., h. del artículo 131 del RLCA.
+d. Constancia de que se cuenta con el contenido económico presupuestario para la erogación correspondiente.
+e. La Proveeduría Institucional procederá a realizar la invitación y remitir la oferta a la dependencia solicitante.
+f. La dependencia solicitante deberá remitir la recomendación técnica o adjudicación debidamente suscrita por la persona competente y el director del programa presupuestario según corresponda.
+g. La Proveeduría Institucional continuará con el trámite del refrendo interno o externo, según corresponda.

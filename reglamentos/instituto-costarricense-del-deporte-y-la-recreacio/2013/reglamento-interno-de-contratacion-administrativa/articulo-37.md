@@ -1,0 +1,2 @@
+Artículo 37.—Remate. Es el procedimiento ordinario al que puede recurrir alternativamente el ICODER para vender o arrendar bienes muebles o inmuebles, cuando así resulte más conveniente a sus intereses.
+Este procedimiento podrá realizarse por medios electrónicos, si al momento de realizar el procedimiento el ICODER cuenta con un sistema que garantice los principios para el uso de medios electrónicos, en el cual las pujas se realizarán en tiempo real.

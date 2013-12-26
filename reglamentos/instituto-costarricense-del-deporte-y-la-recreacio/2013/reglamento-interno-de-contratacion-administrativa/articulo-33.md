@@ -1,0 +1,1 @@
+Artículo 33.— Licitación Abreviada. Es el procedimiento ordinario, que procede para las adquisiciones previstas en el artículo 27 de la Ley de Contratación Administrativa, en atención al monto del presupuesto ordinario, para respaldar las necesidades de bienes y servicios no personales del ICODER.

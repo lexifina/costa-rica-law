@@ -1,0 +1,2 @@
+Artículo 90.—Acumulación de recursos. Cuando ante el ICODER se presenten recursos de revocatoria sobre las mismas líneas impugnadas en un recurso de apelación, la Contraloría General de la República procederá a acumular los recursos en el auto inicial, el cual deberá ser notificado a todos los recurrentes.
+Al atender la audiencia inicial, el ICODER remitirá el original de los recursos de revocatoria que deben ser acumulados, los cuales seguirán el trámite del recurso de apelación y serán resueltos por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 72.—Otras modalidades: Cualquier otra modalidad no contemplada en este reglamento que desee utilizar el ICODER se regirá de acuerdo a lo expresado en el particular mediante la Ley y Reglamento de la Contratación Administrativa y su Reglamento.

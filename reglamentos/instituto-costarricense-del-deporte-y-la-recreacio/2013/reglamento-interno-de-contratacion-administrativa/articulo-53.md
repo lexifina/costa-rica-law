@@ -1,0 +1,3 @@
+CAPITULO VII
+Medios electrónicos en procedimientos de contratación administrativa
+Artículo 53.—Uso de medios electrónicos. Para el uso de medios electrónicos en los procedimientos de contratación administrativa del ICODER se regirá por lo dispuesto en la Ley y Reglamento de Contratación Administrativa, así como la normativa interna que regule el manejo de las tecnologías de información, la cual deberá estar debidamente reglamentada para todos los efectos. En caso que el ICODER utilice el el Sistema Unificado Electrónico de Compras Públicas para lograr una mayor eficiencia y eficacia en los procedimientos de contratación administrativa, se regirá por los lineamientos y procedimientos que regulen dicho sistema.

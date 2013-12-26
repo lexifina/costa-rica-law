@@ -1,0 +1,1 @@
+Artículo 42.—Otras Modalidades de contratación. Para cualquier otra modalidad de contratación no contemplada en este reglamento se regirá de acuerdo a lo indicado en la Ley y Reglamento de la Contratación Administrativa.

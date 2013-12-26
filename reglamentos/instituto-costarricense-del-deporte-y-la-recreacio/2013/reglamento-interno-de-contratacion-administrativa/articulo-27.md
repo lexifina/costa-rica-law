@@ -1,0 +1,5 @@
+CAPITULO V
+Tipos de procedimientos ordinarios de contratación
+Artículo 27.—Determinación del procedimiento. Los funcionarios encargados del manejo de la Contratación Administrativa serán los responsables de velar por la debida aplicación de los procedimientos, cuando se determine el procedimiento a seguir se deberá evitar el fraccionamiento ilícito.
+Aquel funcionario que incurra en esta mala práctica se le aplicará el procedimiento de sanción regulado en este reglamento y en la Ley y Reglamento de Contratación Administrativa. No se considerará fraccionamiento o fragmentación ilícita cuando las acciones ejecutadas estén contempladas en los supuestos establecidos en el artículo 13 del Reglamento a la Ley de Contratación Administrativa.
+La determinación del procedimiento de contratación a seguir deberá realizarse verificando el monto del objeto contractual y ubicarlo en el estrato de límites de contratación y refrendo emitido por la Contraloría General de la República, que aplique para el ICODER al momento de realizar la contratación.

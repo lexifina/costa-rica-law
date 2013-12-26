@@ -1,0 +1,1 @@
+Artículo 40.—Licitación con precalificación. El ICODER podrá promover licitaciones con precalificación, según convenga al interés público e institucional, conforme a la normativa aplicable según lo indicado en la Ley y Reglamento de Contratación Administrativa.

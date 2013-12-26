@@ -1,0 +1,3 @@
+Artículo 116.—Rescisión por mutuo acuerdo. La rescisión contractual por mutuo acuerdo únicamente podrá ser convenida cuando existan razones de interés público y no concurra causa de resolución imputable al contratista.
+En este caso el ICODER podrá acordar los extremos a liquidar o indemnizar, que en ningún caso podrá exceder los límites señalados en el artículo anterior, siempre dentro de los límites de razonabilidad y proporcionalidad.
+Acordada la rescisión sin mayor trámite, se enviará la respectiva liquidación a aprobación de la Contraloría General de la República de la República, quien contará con veinticinco días hábiles para emitir su resolución.

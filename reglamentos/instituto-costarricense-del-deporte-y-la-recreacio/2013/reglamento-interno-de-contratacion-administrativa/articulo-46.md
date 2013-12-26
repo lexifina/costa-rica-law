@@ -1,0 +1,5 @@
+Artículo 46.—Actividad ordinaria.
+La actividad ordinaria de cada entidad se desarrollará dentro del marco legal y reglamentario respectivo, sin sujeción a los procedimientos establecidos en la Ley de Contratación Administrativa y el presente Reglamento.
+Para esos efectos, se entiende como actividad ordinaria, sólo la que realiza la Administración Pública dentro del ámbito de su competencia, por medio de una actividad o servicio que constituye la prestación última o final de frente a usuarios y cuya frecuencia, tráfico y dinamismo, justifican o imponen apartarse de los procedimientos usuales de concurso.
+La contratación de los medios necesarios para el ejercicio de la actividad ordinaria ha de realizarse mediante los procedimientos que correspondan, según la Ley de Contratación Administrativa y este Reglamento.
+Cuando el ICODER tenga la capacidad de producir bienes o servicios accesorios con valor comercial, distintos a la actividad ordinaria puede venderlos directamente al público, según las normas internas que al respecto dicte internamente, siempre que de alguna manera se deriven de las competencias asignadas.

@@ -1,0 +1,1 @@
+Artículo 3º—La comisión de adjudicación de licitaciones. Es el órgano colegiado interno que revisará y remitirá a la Dirección Nacional la recomendación final de adjudicación, declaratoria de desierto o infructuoso de los diferentes procesos licitatorios que promueva el ICODER.

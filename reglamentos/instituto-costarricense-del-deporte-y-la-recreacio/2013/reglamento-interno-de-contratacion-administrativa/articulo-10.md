@@ -1,0 +1,6 @@
+TÍTULO II
+CAPITULO II
+Planificación de la gestión de adquisiciones
+Artículo 10. — Programa anual de adquisiciones. En el mes de setiembre de cada año la Proveeduría Institucional en conjunto con los directores de cada programa presupuestario, prepararán el programa anual de adquisiciones para el siguiente período presupuestario y lo someterá para aprobación de la Dirección Nacional, en el formato establecido por la Proveeduría Institucional.
+El programa anual de adquisiciones deberá estar vinculado con el plan de desarrollo y los respectivos planes anuales operativos de cada programa presupuestario, a su vez debe contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación administrativa en cuanto a inicio y adjudicación de procesos de adquisición de bienes y servicios para presupuestos futuros, según lo establecido en el artículo 9 del Reglamento a la Ley de Contratación Administrativa.
+Con la aprobación del programa anual de adquisiciones, quedarán autorizados los inicios de trámite de los procesos incluidos en dicho programa, sin detrimento a los requisitos que se deban cumplir para la debida publicación de los mismos y que serán verificados por la Proveeduría Institucional, previo a la publicación.

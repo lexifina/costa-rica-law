@@ -1,0 +1,1 @@
+Artículo 25.— Actualización de la información. Todo proveedor inscrito está obligado a verificar y actualizar la información aportada al Registro en el momento de darse un cambio en su situación jurídica o al menos una vez cada dos años para lo cual debe presentar los documentos legales que respalden la solicitud.

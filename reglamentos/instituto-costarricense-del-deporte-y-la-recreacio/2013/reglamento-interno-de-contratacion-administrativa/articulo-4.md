@@ -1,0 +1,1 @@
+Artículo 4º— Integración de la comisión de adjudicación de licitaciones. Estará conformada de manera permanente por el Director (a) administrativo (a), Asesor (a) Legal y el Proveedor (a) Institucional, y de manera temporal de acuerdo al proyecto que se está tramitando, por cada director (a) de programa presupuestario según corresponda.

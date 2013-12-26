@@ -1,0 +1,1 @@
+Artículo 12. Modificaciones al programa de adquisiciones. —Cuando surja una necesidad no prevista, el programa anual de adquisiciones, este podrá ser modificado siguiendo el mismo procedimiento que se indica en el artículo anterior, para lo cual deberán adjuntarse las justificaciones pertinentes.

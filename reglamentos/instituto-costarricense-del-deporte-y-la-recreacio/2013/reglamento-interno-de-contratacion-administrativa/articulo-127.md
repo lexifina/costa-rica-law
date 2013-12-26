@@ -1,0 +1,1 @@
+Artículo 127.—Prescripción. La responsabilidad administrativa de los particulares por las infracciones previstas en la Ley de Contratación Administrativa, prescribirá en cinco años, contados a partir del acaecimiento del hecho.

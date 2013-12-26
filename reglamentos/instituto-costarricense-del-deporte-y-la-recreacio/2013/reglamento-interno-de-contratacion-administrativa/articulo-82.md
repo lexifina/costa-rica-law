@@ -1,0 +1,4 @@
+Artículo 82.—Objeción en licitaciones abreviadas. Contra el cartel de las licitaciones abreviadas procederá la interposición del recurso de objeción al cartel, ante el ICODER.
+En los casos en que se curse invitación podrán interponer el recurso los proveedores invitados. Cuando se realice publicación o el cartel haya previsto la participación de oferentes no invitados, el recurso podrá ser interpuesto por cualquier interesado.
+El recurso deberá ser resuelto dentro de los diez días hábiles siguientes a su presentación, mediante acto debidamente motivado.
+Cuando el ICODER disponga la modificación del cartel, deberá realizar las enmiendas y publicarlas o comunicarlas por los medios correspondientes. Si de las modificaciones efectuadas se derivare una variación sustancial del objeto, deberá ampliarse el plazo de recepción de ofertas, para ajustarlo a los plazos mínimos señalados por este Reglamento.

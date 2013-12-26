@@ -1,0 +1,3 @@
+Artículo 44.—Trámite. La actividad contractual excluida legalmente de los procedimientos ordinarios de contratación, deberá adaptarse, en lo pertinente, a los principios generales, requisitos previos y a las normas generales sobre el cartel y la oferta.
+A excepción de los supuestos de proveedor único, actividad ordinaria e interés manifiesto de colaborar con el ICODER, se deberá verificar que el eventual contratista no esté cubierto por el régimen de prohibiciones.
+El mecanismo de selección del contratista, así como su aplicación han de ser expeditos, prácticos y ajenos a plazos cuya extensión desvirtúen su naturaleza.

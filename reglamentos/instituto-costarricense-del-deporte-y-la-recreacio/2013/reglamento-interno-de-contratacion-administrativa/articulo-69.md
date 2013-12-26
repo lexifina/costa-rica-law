@@ -1,0 +1,3 @@
+Artículo 69.—Arrendamiento de inmuebles. El ICODER podrá tomar en arrendamiento bienes inmuebles, con o sin opción de compra, siguiendo el procedimiento correspondiente de acuerdo al estrato en que se ubique según los límites de contratación y refrendos aplicable al ICODER para el período presupuestario en que inicia la contratación y la estimación preliminar del objeto contractual; sin perjuicio de lo establecido en el Reglamento de Contratación Administrativa en relación con el arrendamiento o compra de bienes únicos.
+El propietario del inmueble no rendirá ninguna clase de garantía de cumplimiento a favor del ICODER.
+Para el reajuste de la renta o precio se aplicará lo dispuesto en el artículo 67 de la Ley General de Arrendamientos Urbanos y Suburbanos.

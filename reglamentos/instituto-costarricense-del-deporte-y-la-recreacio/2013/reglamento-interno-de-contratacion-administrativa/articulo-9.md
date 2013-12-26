@@ -1,0 +1,9 @@
+Artículo 9º— Funciones del administrador (a) de contrato (AC). Entre otras deberá realizar las siguientes funciones:
+a. Preparar en conjunto con las dependencias correspondientes, la documentación y las solicitudes pertinentes en los trámites de contratación administrativa que le correspondan.
+b. Atender cualquier consulta técnica que surgiera durante el proceso de una contratación bajo su cargo y remitírsela a la Proveeduría Institucional para su respectivo trámite.
+c. Intervenir en el proceso de análisis, valoración de ofertas y recomendación de adjudicación.
+d. Velar por una correcta ejecución de los contratos que se les asignen en estricto apego al expediente levantado para estos efectos y será responsable de la recepción y aceptación de los bienes y servicios, así como informar a la brevedad posible al adjudicatario, cualquier ajuste en los tiempos del cronograma o incumplimiento trascendente de éste, a fin de que se adopten las medidas pertinentes, de lo cual deberá mantener informado en todo momento a la Proveeduría Institucional, así como de gestionar los trámites de pagos que realice la institución, según lo pactado.
+e. Elaborar y remitir a la Proveeduría Institucional la respuesta de todos aquellos recursos que les competa, y solicitar realizar el trámite para la ejecución de las multas, cláusulas penales, garantías, prórrogas y sanciones a los contratistas hasta la rescisión y resolución contractual, si se diera el caso, para lo cual aplicará el Título Recursos y Título Sanciones del presente reglamento.
+f. Realizar informes de avance de ejecución de los contratos.
+g. Solicitar mediante la respectiva adenda a cada contrato, las modificaciones que de acuerdo al ordenamiento jurídico procedan en cada proceso
+h. Preparar en coordinación con cualquier otra instancia que se requiera, el informe final, y solicitar el finiquito cuando proceda y sus respectivas firmas y remitirlo a la Proveeduría Institucional.

@@ -1,0 +1,4 @@
+Artículo 29.—Publicación. La invitación a participar, las modificaciones al cartel y el acto de adjudicación, se publicarán en el Diario Oficial La Gaceta y facultativamente en la página electrónica del ICODER.
+En los concursos con precalificación, la publicación de la invitación a participar, las modificaciones al cartel y el acto de adjudicación, se publicarán en el Diario Oficial La Gaceta y facultativamente en la página electrónica del ICODER.
+En los demás actos, la publicación podrá ser sustituida por la notificación directa o por medios electrónicos, regulados en el reglamento a la Ley de Contratación administrativa.
+En caso que el ICODER utilice el Sistema Unificado Electrónico de Compras Públicas, se regirá por las normas y lineamientos que dicho sistema establezca en materia de publicidad de los diferentes procedimientos de contratación administrativa.
