@@ -1,0 +1,1 @@
+Artículo 8.—Del contenido económico. El Proceso de Recursos Humanos no tramitará solicitud alguna de horas extraordinarias que no cuente con el respectivo contenido presupuestario y que no hayan sido autorizadas por las Jefaturas.

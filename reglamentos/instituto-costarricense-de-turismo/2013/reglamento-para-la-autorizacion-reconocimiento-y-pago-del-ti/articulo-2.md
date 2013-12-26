@@ -1,0 +1,13 @@
+Artículo 2º—Definiciones. Para los efectos del presente Reglamento, se entenderá por:
+a) ICT: Instituto Costarricense de Turismo,
+b) Patrono: Instituto Costarricense de Turismo.
+c) Gerente: Gerente General del Instituto Costarricense de Turismo.
+d) Recursos Humanos: Proceso de Recursos Humanos del ICT.
+e) Funcionario: Aquella persona que preste sus servicios materiales, intelectuales o ambos a favor del ICT, en forma permanente o transitoria, a cambio de una retribución o salario a nombre y por cuenta de la Institución, en virtud de nombramiento efectuado mediante los trámites exigidos por la legislación vigente. Se incluye dentro de este concepto a los funcionarios que presten sus servicios a favor del ICT, en virtud de un convenio que determine el préstamo de sus plazas, a favor de esta Institución.
+f) Personal de Confianza: El que presta servicios de apoyo y asesoría en forma directa a la Presidencia Ejecutiva y Gerencia, quedando a criterio de estas unidades su escogencia, selección y otros aspectos con ellos relacionados.
+g) Jefaturas: Jefes y funcionarios del ICT con potestad para autorizar la ejecución de partidas presupuestarias ligadas al tiempo extraordinario.
+h) Tiempo de trabajo efectivo: Aquel en que el trabajador permanezca a las órdenes del patrono realizando labores propias de su cargo, conforme al artículo 137 del Código de Trabajo, dentro de una jornada ordinaria o extraordinaria.
+i) Jornada ordinaria: Trabajo efectivo de un funcionario que no podrá ser mayor de ocho horas diurnas, siete horas mixtas o seis horas nocturnas, conforme con lo dispuesto en los artículos 136 y 138 del Código de Trabajo.
+j) Jornada extraordinaria: Es aquella jornada laboral que se realiza antes o después de la jornada ordinaria y que se paga una vez transcurrida la primera hora y hasta un máximo de cuatro horas por día en razón de trabajos o tareas que son excepcionales, imperiosas y ocasionales, salvo jornadas mayores por riesgo inminente. Siendo que no puedan ser ejecutadas durante la jornada ordinaria por el personal que se dispone para ello, sin que pueda convertirse en labores permanentes. En ningún caso se considerará como jornada extraordinaria, el tiempo inferior a una hora por día laborada por los servidores antes o después de su jornada ordinaria.
+k) Horario de Trabajo: Los lapsos dentro de los cuales deben ser prestados los servicios y se cumple la jornada laboral, incluyendo la iniciación y fin de la jornada, así como los intervalos dentro de la misma.
+l) Siniestro o riesgo inminente: Circunstancia excepcional, derivada de una situación imprevisible para el ICT o sus funcionarios, que pueda causar grave perjuicio al cumplimiento de cualquiera de sus funciones.

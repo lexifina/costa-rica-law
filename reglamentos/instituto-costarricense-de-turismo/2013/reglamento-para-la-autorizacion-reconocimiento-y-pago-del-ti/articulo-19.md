@@ -1,0 +1,4 @@
+Artículo 19.—Funcionarios del ICT destacados en otras instituciones. El pago de tiempo extraordinario de los funcionarios que prestan servicio en otras instituciones, deberá:
+a) Estar incluido y autorizado en el convenio respectivo, indicando la cantidad de horas máximas por laborar y especificando la partida presupuestaria de la unidad a la que se cargará. Además, se incluirá la observancia y el cumplimiento del presente Reglamento por parte de la Institución donde labora el funcionario.
+b) Remitir la solicitud y aprobación de la Jefatura encargada de la unidad donde se ubique el funcionario, en la que se especifique lo indicado en el artículo 9 incisos a), b), y c) de este Reglamento.
+c) Registrar la asistencia en el reloj marcador de la Institución en la que labora, donde se demuestre el tiempo efectivamente laborado, salvo que no exista este mecanismo.

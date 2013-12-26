@@ -1,0 +1,1 @@
+Artículo 3º—Subpartida tiempo extraordinario. Esta subpartida presupuestaria se podrá contemplar exclusivamente en aquellos casos de trabajos eminentemente ocasionales y que no pueden ser ejecutados durante la jornada ordinaria por el personal que se dispone para ello.

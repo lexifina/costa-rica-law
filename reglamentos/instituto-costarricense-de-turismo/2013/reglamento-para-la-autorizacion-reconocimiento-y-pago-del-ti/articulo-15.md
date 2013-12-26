@@ -1,0 +1,8 @@
+Artículo 15.—Son responsabilidades de las Jefaturas:
+a) Aplicar los principios de economía, eficiencia, eficacia de la Administración Pública, así como la sana administración de los recursos públicos asignados, para la programación y autorización de la jornada extraordinaria.
+b) Cumplir con el procedimiento de formulación del presupuesto, así como la solicitud para trabajar horas extra (según lo especificado en el artículo 9 de este Reglamento) con el tiempo suficiente previo a la realización del trabajo que vayan a efectuar los subalternos, salvo las excepciones debidamente calificadas.
+c) Verificar que las horas extra solicitadas, estén en concordancia con las autorizadas en el presupuesto y en el cronograma para ejecución de tiempo extraordinario, y que las actividades a realizar no sean funciones ordinarias.
+En aquellos casos en que el Jefe por culpa grave (culpa lata) haya autorizado al funcionario a trabajar horas extra sin contar con la debida autorización y el contenido presupuestario, incurrirá en falta grave; sin perjuicio de posibles responsabilidades civiles y penales.
+d) Establecer objetivos claros y específicos del trabajo a realizar en las horas extra, así como la programación para cumplir con estos.
+e) Verificar que el trabajo destinado a efectuarse en las horas extra, haya sido efectivamente realizado, y que las mismas no se utilicen para realizar otras funciones o para subsanar errores cometidos por el servidor.
+f) Proponer los mecanismos de evaluación del trabajo realizado y supervisar los resultados de tal manera que pueda emitir un informe sobre los logros del mismo, el cual deberá ser remitido a la Jefatura Inmediata con copia al Proceso de Recursos Humanos.

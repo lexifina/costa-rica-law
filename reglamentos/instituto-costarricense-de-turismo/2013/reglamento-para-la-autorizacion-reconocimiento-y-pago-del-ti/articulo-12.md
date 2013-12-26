@@ -1,0 +1,2 @@
+Artículo 12.—Trámite. Toda solicitud para el pago por laborar tiempo extraordinario deberá ser ingresada por el funcionario en el sistema de recursos humanos siguiendo el procedimiento especificado para este fin, las cuales deben ser aprobadas por la Jefatura Inmediata, y posteriormente tramitadas por el Proceso de Recursos Humanos para el pago correspondiente.
+En caso de que el funcionario no tenga acceso al sistema de recursos humanos, el tiempo extraordinario será incluido en este por un funcionario del Proceso de Recursos Humanos.

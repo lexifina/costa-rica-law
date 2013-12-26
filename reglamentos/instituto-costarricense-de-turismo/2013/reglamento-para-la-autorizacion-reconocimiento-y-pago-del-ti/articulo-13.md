@@ -1,0 +1,1 @@
+Artículo 13.—Pago. El pago de las horas extra incluidas en el sistema de recursos humanos se realizará quincenalmente de conformidad con el calendario de pagos de salarios establecidos y con base en la información ingresada por el funcionario y autorizada por la Jefatura.

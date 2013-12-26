@@ -1,0 +1,6 @@
+Artículo 9.—Solicitudes para el trabajo de tiempo extraordinario. Con base en el presupuesto aprobado, cada dependencia deberá remitir al Proceso de Recursos Humanos, de forma previa, salvo situaciones imprevisibles debidamente justificadas, la solicitud de requerimiento de horas extra la cual debe contener al menos lo siguiente:
+a) Descripción de las actividades que se desarrollarán, las cuales deben ser eminentemente ocasionales y que no puedan ser ejecutadas durante la jornada ordinaria por el personal que se dispone para ello.
+b) Cronograma para ejecución de tiempo extraordinario que indique: Nombre del funcionario que participará en el trabajo, actividad o trabajo que ejecutará, cantidad de horas extra y el periodo de duración del mismo.
+c) Forma en que la Jefatura Inmediata supervisará que los funcionarios cumplan con la programación de actividades durante el tiempo extraordinario.
+d) Autorización del Líder del Macroproceso, y en los casos en que no dependan jerárquicamente de un Macroproceso deberán tener la autorización de la Jefatura Inmediata Superior.
+Se exceptúa del cumplimiento de los incisos anteriores a los Operadores de Equipo Móvil debido a la naturaleza de sus funciones.
