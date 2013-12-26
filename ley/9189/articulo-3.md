@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Una vez declarado el barco El Fella como patrimonio histórico, la Municipalidad del cantón Central de Puntarenas y el Ministerio de Ambiente y Energía (Minae) velarán por su conservación y vigilancia, conforme lo establecen los artículos 50 y 89 de la Constitución Política.

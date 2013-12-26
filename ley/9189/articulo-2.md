@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se aplica la normativa existente al sitio donde se encuentra la embarcación hundida en la costa puntarenense y donde está un arrecife artificial con gran riqueza de flora y fauna marina, que se encuentra bajo el dominio del Estado, para así resguardar la belleza escénica y preservar las especies del fondo marino de la zona.
