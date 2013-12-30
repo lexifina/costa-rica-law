@@ -1,0 +1,1 @@
+Artículo 36.—El responsable del fondo de Caja Chica será el encargado de facilitar a los funcionarios del CONARE, que así lo requieran, los formularios denominados: “vale de Caja Chica y comprobante de Caja Chica”.

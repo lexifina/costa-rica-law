@@ -1,0 +1,2 @@
+Artículo 19.—En el mes de diciembre de cada año un día antes del cierre institucional se liquidarán todos los adelantos y documentos soportes pendientes del fondo para ese año de tal manera que para el siguiente año no podrán aceptarse adelantos o erogaciones con fecha del año finalizado; la diferencia será depositada en la Cuenta Corriente a nombre del Consejo Nacional de Rectores (CONARE).
+El fondo de Caja Chica se girará integro al responsable al regreso del cierre institucional.

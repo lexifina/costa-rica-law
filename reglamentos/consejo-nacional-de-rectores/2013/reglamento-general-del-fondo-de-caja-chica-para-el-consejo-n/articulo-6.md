@@ -1,0 +1,1 @@
+Artículo 6º—El Jefe de la Oficina Administrativa comunicará al personal de la institución mediante nota, el nombre y número de cédula de la persona designada en Tesorería como responsable directa por la custodia y operación del fondo de Caja Chica.

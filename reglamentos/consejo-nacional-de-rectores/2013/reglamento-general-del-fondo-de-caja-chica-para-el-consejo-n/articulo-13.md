@@ -1,0 +1,1 @@
+Artículo 13.—La modificación del monto del fondo de Caja Chica se ajustará automáticamente en un 10% anual con respecto al límite de Contratación Directa de acuerdo con la publicación en la Gaceta por parte de la Contraloría General de la República.

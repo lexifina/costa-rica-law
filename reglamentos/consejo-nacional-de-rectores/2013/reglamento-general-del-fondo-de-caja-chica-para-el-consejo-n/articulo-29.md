@@ -1,0 +1,3 @@
+CAPÍTULO V
+Reembolsos al fondo
+Artículo 29.—El responsable de la custodia y operación del fondo de Caja Chica será el encargado de tramitar los reintegros del mismo, con la aprobación de la Jefatura del Departamento de Gestión Financiera; adjunto al oficio de detalle de reintegro de Caja Chica se presentarán los justificantes respectivos. Entre los aspectos a verificar están: veracidad de los datos consignados en los mismos, la relación entre el monto de la factura y el límite del gasto, la liquidación del adelanto en tiempo, la disponibilidad presupuestaria y las autorizaciones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 9º—El responsable del fondo de Caja Chica deberá mantener un registro actualizado de las firmas de los Jefes de división y Directores de Programas autorizados para aprobar el comprobante de Caja Chica, así como de los funcionarios que verifican el contenido presupuestario y registran el gasto en el sistema de control del presupuesto.

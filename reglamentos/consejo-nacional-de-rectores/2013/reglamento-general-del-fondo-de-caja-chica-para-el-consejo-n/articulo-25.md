@@ -1,0 +1,3 @@
+Artículo 25.—Todos los gastos con fondo de Caja Chica deben de estar respaldados por una factura debidamente emitida a nombre del Consejo Nacional de Rectores (CONARE). La misma debe cumplir con las disposiciones establecidas por la Dirección General de la Tributación Directa.
+Se aceptarán tiquetes de caja registradora únicamente acompañados de la respectiva factura comercial.
+Tratándose de adelantos de gastos de viaje al interior pagados con fondo de Caja Chica, debe existir el respectivo formulario de liquidación de gastos de viaje acorde con lo que establece el Reglamento de Gastos de Viaje y de Transportes para Funcionarios Públicos emitido por la Contraloría General de la República con los justificantes del caso.

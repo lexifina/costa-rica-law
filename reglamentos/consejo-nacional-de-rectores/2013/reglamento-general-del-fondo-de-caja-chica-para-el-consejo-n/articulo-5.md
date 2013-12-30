@@ -1,0 +1,1 @@
+Artículo 5º—Cualquier liquidación o creación de un fondo de Caja Chica debe ser autorizado por el CONARE, fundamentado en un estudio debidamente motivado de las necesidades y estimación de los gastos a sufragar, por parte del Departamento de Gestión Financiera. De conformidad con las disposiciones del Decreto Ejecutivo N° 32874.

@@ -1,0 +1,1 @@
+Artículo 15.—El fondo de Caja Chica mantendrá únicamente dinero y los justificantes que respalden los trámites de compra de bienes y servicios a saber: vale de caja Chica, comprobante de Caja Chica, facturas originales, tiquetes o comprobantes de las compras.

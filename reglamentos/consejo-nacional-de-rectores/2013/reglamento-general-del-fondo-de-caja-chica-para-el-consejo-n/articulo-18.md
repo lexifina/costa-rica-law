@@ -1,0 +1,2 @@
+Artículo 18.—En ausencia temporal del responsable del fondo de Caja Chica, el Jefe del Departamento de Gestión Financiera asumirá la responsabilidad correspondiente previo arqueo realizado en su presencia por el Jefe o Subjefe de la Oficina Administrativa.
+En caso de cese de funciones del responsable del fondo de Caja Chica, el Jefe del Departamento de Gestión Financiera realizará el arqueo correspondiente y asumirá la responsabilidad hasta que sea cubierto el puesto.
