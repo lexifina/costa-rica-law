@@ -1,0 +1,2 @@
+Artículo 34.—Organización del Registro de Proveedores. La Proveeduría Institucional es la responsable de la administración del registro de proveedores, el cual estará organizado en expedientes físicos con la información que ésta solicita a través de un listado de requisitos.
+La Proveeduría Institucional mantendrá un respaldo automatizado de los datos de cada proveedor mediante la plataforma informática necesaria para el registro y consulta a nivel institucional.

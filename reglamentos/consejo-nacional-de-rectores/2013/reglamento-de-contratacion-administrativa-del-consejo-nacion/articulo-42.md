@@ -1,0 +1,1 @@
+Artículo 42.—Proveedor inactivo. Se tendrá como proveedor inactivo aquel que aunque haya registrado sus datos se negare a actualizar la información del registro cuando la administración así lo haya pedido.

@@ -1,0 +1,1 @@
+Artículo 16.—Funciones del personal. El personal que integra la Proveeduría Institucional desempeñará las funciones establecidas en el Manual de Puestos de la Oficina Administrativa, aprobado por el Consejo.

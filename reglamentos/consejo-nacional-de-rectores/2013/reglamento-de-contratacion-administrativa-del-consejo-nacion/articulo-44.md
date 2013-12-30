@@ -1,0 +1,1 @@
+Artículo 44.—Uso y rotación del Registro de Proveedores. La proveeduría garantizará una adecuada rotación de los potenciales oferentes al momento de crear las invitaciones para los diferentes procedimientos de contratación. Deberá apoyarse en una debida automatización del registro para crear estas consultas a manera de reportes.

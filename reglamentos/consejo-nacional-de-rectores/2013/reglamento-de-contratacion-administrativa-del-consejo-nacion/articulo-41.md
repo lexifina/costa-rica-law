@@ -1,0 +1,1 @@
+Artículo 41.—Casos especiales. Cuando las circunstancias de mercado como la exclusividad o unicidad generen inopia durante la contratación de un bien y / o servicio, se admitirá la oferta de proveedores invitados que no estén inscritas en el registro, siempre y cuando aporten la información legal correspondiente.

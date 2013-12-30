@@ -1,0 +1,3 @@
+Artículo 21.—Depuración de especificaciones y definición del objeto contractual. Los bienes y servicios que se contratan serán aquellos definidos de la manera más concisa, concreta, específica con la indicación expresa de todas las características técnicas que le atribuyen.
+Es responsabilidad del usuario en coordinación con la proveeduría la preparación suficiente de las condiciones del concurso y la determinación de la finalidad pública que se persigue así como los requerimientos técnicos del bien.
+En aquellos equipos y programas tecnológicos, equipos y materiales de laboratorio, material bibliográfico o cualquier otro bien especializado, las depuraciones de especificaciones las realiza la dependencia competente.

@@ -1,0 +1,1 @@
+Artículo 5º—Sumisión a las leyes y tribunales nacionales. Las personas físicas y jurídicas, nacionales o extranjeras, públicas o privadas, que tengan relación contractual con el CONARE, quedan sometidas al ordenamiento jurídico costarricense en materia de la contratación administrativa y a los tribunales nacionales para la resolución de disputas.

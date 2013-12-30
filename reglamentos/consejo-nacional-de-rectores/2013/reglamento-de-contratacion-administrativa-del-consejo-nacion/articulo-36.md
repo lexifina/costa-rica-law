@@ -1,0 +1,1 @@
+Artículo 36.—Invitación a incorporación y formulario de inscripción. La proveeduría institucional invitará una vez al año, mediante publicación en el Diario Oficial a formar parte del Registro de Proveedores.
