@@ -1,0 +1,1 @@
+Artículo 22.—Las transferencias de documentos de los archivos de gestión al Archivo Central se realizan una vez al año, de acuerdo al orden y la fecha que se establezca en el cronograma de transferencias.

@@ -1,0 +1,1 @@
+Artículo 33.—Los encargado(a)s de los archivos de gestión deben utilizar y llenar todos los campos de los registros de entrada y salida de documentos, ya que este es el instrumento que da fe de los documentos que custodia cada programa o división.

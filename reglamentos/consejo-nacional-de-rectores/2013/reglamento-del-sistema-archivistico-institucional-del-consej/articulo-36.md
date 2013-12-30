@@ -1,0 +1,1 @@
+Artículo 36.—Cualquier funcionarios del Consejo Nacional de Rectores deben evitar colocar los documentos en el suelo, hacerles tachaduras, utilizar indiscriminadamente las grapas y prensas y, en general cualquier manipulación que atente contra la integridad del documento.

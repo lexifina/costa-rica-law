@@ -1,0 +1,1 @@
+Artículo 11.—El encargado del Archivo Central debe participar en seminarios, jornadas y congresos archivísticos o cualquier otro tipo de capacitación, con el fin de estar actualizado con las nuevas técnicas de Archivo.

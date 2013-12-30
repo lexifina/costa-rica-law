@@ -1,0 +1,1 @@
+Artículo 23.—El encargado(a) del archivo de gestión es el responsable de elaborar la lista de remisión para la transferencia de documentos, esta se enviará junto con los documentos. El recibido de los documentos será provisional, hasta tanto se coteje la lista contra los documentos en el procedo de descripción documental que realiza el Archivo Central.

@@ -1,0 +1,1 @@
+Artículo 16.—La descripción documental se realizará en los Archivos de Gestión mediante los registros de entrada y salida de documentos y en el Archivo Central por medio de los inventarios documentales basados en la Norma General Internacional de Descripción Archivística-ISAD-G.

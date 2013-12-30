@@ -1,0 +1,1 @@
+Artículo 26.—Los encargados de los archivos de gestión y el Archivo Central tienen la obligación de brindar en forma eficaz y eficiente la información que soliciten los usuarios internos y externos, utilizando los registros e inventarios de los documentos existentes.

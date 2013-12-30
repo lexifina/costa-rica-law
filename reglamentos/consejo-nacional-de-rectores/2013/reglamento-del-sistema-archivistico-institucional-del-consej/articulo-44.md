@@ -1,0 +1,1 @@
+Artículo 44.—El incumplimiento por parte de cualquier funcionario del Consejo Nacional de Rectores en lo que establece el presente reglamento y las políticas, normas, manuales y procedimientos que en materia archivística se dicten, será sancionado de conformidad con lo que establece la Ley N° 7202 y su Reglamento, así como cualquier otra disposición legal infringida.

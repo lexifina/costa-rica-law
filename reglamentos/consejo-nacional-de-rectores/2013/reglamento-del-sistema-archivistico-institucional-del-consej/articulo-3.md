@@ -1,0 +1,1 @@
+Artículo 3º—El Archivo Central es la dependencia encargada de dictar las normas, políticas y procedimientos para la adecuada administración y gestión de los documentos custodiados en sus archivos, sean estos en soporte textual, electrónico, gráfico o audiovisual. Esta unidad estará a cargo de un profesional en Archivística.

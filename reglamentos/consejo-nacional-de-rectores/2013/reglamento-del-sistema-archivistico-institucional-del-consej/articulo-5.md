@@ -1,0 +1,1 @@
+Artículo 5º—El encargado del Archivo Central velará por el cumplimiento de este reglamento, atenderá las funciones técnico-administrativas y profesionales propias de su cargo. Elaborará anualmente un plan de trabajo, así como informes de labores mensuales y gestionará recursos para cubrir las necesidades del Archivo Central.

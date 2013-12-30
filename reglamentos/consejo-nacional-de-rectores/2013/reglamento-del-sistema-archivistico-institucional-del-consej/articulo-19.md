@@ -1,0 +1,1 @@
+Artículo 19.—El Comité Institucional de Selección y Eliminación de Documentos está formado por el encargado del Archivo Central, el Jefe Administrativo, el Asesor Legal y jefe, director o encargado del área productora de la documentación a valorar.

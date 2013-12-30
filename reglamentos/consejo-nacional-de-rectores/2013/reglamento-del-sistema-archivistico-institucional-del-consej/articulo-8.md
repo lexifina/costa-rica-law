@@ -1,0 +1,1 @@
+Artículo 8º—Cada archivo de gestión debe tener un encargado(a), quien organizará, conservará, facilitará los documentos y pondrá en práctica las políticas y procedimientos emanadas por el Archivo Central, para la adecuada administración de los mismos. Dicho nombramiento le corresponde establecerlo al titular subordinado del Programa, División o Unidad.

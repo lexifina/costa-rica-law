@@ -1,0 +1,1 @@
+Artículo 45.—El presente documento se actualizará conforme cambio o caduque alguna disposición aquí reglamentada. Dichos cambios serán propuestos por el encargado del Archivo Central y autorizados por la Jefatura Administrativa y la Dirección de OPES, para la respectiva aprobación por parte del Consejo Institucional.
