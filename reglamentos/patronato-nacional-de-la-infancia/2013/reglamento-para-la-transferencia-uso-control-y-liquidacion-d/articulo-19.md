@@ -1,0 +1,1 @@
+Artículo 19.—En cualquiera de las modalidades de los diversos programas, cuando la persona menor de edad egrese del programa y su cupo sea ocupado y sustituido inmediatamente por otro niño o niña, se reconocerá el pago como el de un mismo y único cupo.

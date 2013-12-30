@@ -1,0 +1,1 @@
+Artículo 50.—Para los proyectos específicos y programas dirigidos a la promoción, defensa y prevención de los derechos de las personas menores de edad, deberán cumplir con lo indicado en el presente Reglamento según los formatos también reglamentados en la presente normativa, sin detrimento de otras disposiciones que dicten las Gerencias Técnica y de Administración.

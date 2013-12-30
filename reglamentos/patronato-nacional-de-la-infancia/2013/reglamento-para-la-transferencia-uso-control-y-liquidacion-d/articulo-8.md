@@ -1,0 +1,15 @@
+CAPÍTULO III
+Asignación y giro de los recursos a las ONG
+Verificación del cumplimiento de requisitos previos a la suscripción del convenio para el giro de los recursos.
+Artículo 8º—El PANI suscribirá convenios para la transferencia de recursos con los sujetos privados a cargo de programas de atención que cumplan con los siguientes requisitos:
+a) Contar con el permiso de funcionamiento del Ministerio de Salud, según la normativa vigente conforme a la Ley General de Salud y normas concomitantes.
+b) Aportar certificación de que los sujetos privados se encuentran al día en el pago de cuotas obrero patronales con la Caja Costarricense del Seguro Social y FODESAF.
+c) Aportar certificación de personería jurídica vigente, como máximo de un mes de emitida, que incluya expresamente la fecha de vencimiento del nombramiento del representante legal de la organización.
+d) Aportar certificación de reformas o modificaciones a los estatutos de los sujetos privados verificadas en los últimos doce meses, si las hubiere.
+e) Aportar certificación de reformas o modificaciones de los estatutos de la ONG inscritas en el Registro Nacional efectuadas en los últimos doce meses, si las hubiere.
+f) Aportar copia de la cédula de identidad del representante legal, salvo si ésta ya constara dentro del expediente de los sujetos privados y no estuviere vencida.
+g) Haber cumplido con la presentación de la liquidación y estados financieros en relación con los recursos transferidos por el PANI, según lo establecido en el convenio del año anterior y en el presente reglamento.
+h) Contar con la recomendación favorable de los Departamentos de Acreditación y Financiero Contable para la transferencia de recursos para un nuevo periodo, establecidas en los informes de evaluación anual que realicen dichas dependencias.
+i) Cumplir lo establecido sobre regulaciones aplicables a los sujetos privados que reciben partidas específicas y transferencias del Presupuesto Nacional así como transferencias por beneficios patrimoniales, gratuitos o sin contraprestación alguna, de entidades u órganos públicos; o que por disposición de ley, deben presentar su presupuesto para la aprobación de la Contraloría General de la República.
+j) Contar con el permiso de funcionamiento que otorga el PANI según la normativa vigente.
+k) Certificación extendida por el Departamento Financiero de haber cumplido con la presentación de las aprobaciones de presupuestos anteriores por parte de la Contraloría General, la constancia de estar al día en la presentación de la liquidación presupuestaria, los estados financieros y manejo de recursos en cuenta corriente exclusiva y registros independiente, en relación con los recursos transferidos por el PANI. Asimismo, el Departamento Financiero aportará al Departamento de Acreditación la certificación de fondos que garantice la disponibilidad presupuestaria del convenio a suscribir, así como el documento que indique que la ONG se encuentra debidamente inscrita en el Sistema Integral de Planes y Presupuesto (SIPP) de la Contraloría General de la República.

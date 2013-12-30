@@ -1,0 +1,1 @@
+Artículo 39.—Las ONG estarán en la obligación de mantener adecuados controles sobre el inventario del equipo, mobiliario o activos adquiridos con los fondos aportados por el PANI, en cuanto a uso, registro, depreciación, desuso y denuncias judiciales en casos de robo o sustracción entre otros posibles delitos.

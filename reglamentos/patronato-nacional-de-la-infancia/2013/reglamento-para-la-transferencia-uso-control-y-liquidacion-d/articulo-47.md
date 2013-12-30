@@ -1,0 +1,1 @@
+Artículo 47.—El bono educativo se girará en la primera quincena del mes de enero de cada año por el Departamento Financiero Contable según la cantidad de cupos autorizados por convenio y sujeto a liquidación.
