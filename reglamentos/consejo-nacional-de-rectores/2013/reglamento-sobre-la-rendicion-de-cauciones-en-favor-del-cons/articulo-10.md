@@ -1,0 +1,1 @@
+Artículo 10.—De los funcionarios interinos. Los funcionarios obligados a rendir garantía o caución, que hayan sido nombrados en su puesto o cargo a tiempo definido en cualquiera de sus modalidades, deberán rendir garantía para los puestos o cargos descritos en este reglamento, desde el inicio de su nombramiento.

@@ -1,0 +1,1 @@
+Artículo 19.—Denuncia de un ilícito. Cuando un funcionario detecta que el caucionante en el ejercicio de sus funciones incurre en un acto ilícito que genere pérdida, defraudación o perjuicio sobre los fondos en efectivo, valores o equivalentes, bajo su responsabilidad;dará aviso a la instancia competente para realizar la investigación respectiva.

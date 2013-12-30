@@ -1,0 +1,1 @@
+Artículo 25.—Sanción por omisión de denuncia de un hecho ilícito. Cuando un funcionario tiene conocimiento de que un caucionante realiza un mal manejo de los fondos de efectivo, valores o equivalentes y no lo denuncia será solidariamente responsable administrativa, civil y penalmente, según se determine.
