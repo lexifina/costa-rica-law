@@ -1,0 +1,1 @@
+Artículo 5º—Administración del servicio. La administración del servicio en cuanto a su operación, mantenimiento y facturación, es responsabilidad de la Municipalidad, la que deberá coordinar entre sí y con las demás dependencias institucionales involucradas, para garantizar la operación óptima de los sistemas y el cobro oportuno del servicio.

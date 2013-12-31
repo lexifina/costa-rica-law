@@ -1,0 +1,4 @@
+CAPÍTULO II
+Del servicio en general
+Artículo 3º—Compromiso municipal. La Municipalidad satisfacerá oportuna y eficientemente las necesidades básicas de provisión de agua potable mediante la prestación directa del servicio y asegurando siempre por el uso sostenible de los recursos hídricos.
+La Municipalidad prestará el servicio de agua potable, tomando las medidas necesarias para asegurar la operación, mantenimiento, adecuada calidad del agua potable, mejoras, desarrollo, inversiones y servicio de la deuda. Está obligada a prestar dicho servicio a todos los propietarios y poseedores de inmuebles construidos, dedicados al trabajo o residencia de personas, ubicados dentro de la jurisdicción del Cantón Central de Alajuela, cuando las redes del sistema municipal pasen frente a las propiedades, y los inmuebles cumplan con todos los requisitos formales establecidos en las leyes nacionales y las disposiciones municipales.

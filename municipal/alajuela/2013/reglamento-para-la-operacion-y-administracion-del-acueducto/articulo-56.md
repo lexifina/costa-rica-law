@@ -1,0 +1,1 @@
+Artículo 56.—Derogatoria. Este reglamento deja sin efecto el Reglamento de Cañerías de 10 de diciembre de 1951, acuerdo 520 del Poder Ejecutivo. El presente reglamento deroga cualquiera otra disposición interna o de igual rango que se le oponga
