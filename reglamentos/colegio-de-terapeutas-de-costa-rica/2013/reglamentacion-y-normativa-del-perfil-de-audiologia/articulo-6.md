@@ -1,0 +1,3 @@
+Artículo Seis: Sector Ocupacional:
+Privado y Público.
+El Audiólogo labora en consultorios privados, hospitales, centros médicos, escuelas públicas y privadas, universidades, centros de rehabilitación, organizaciones y empresas públicas y privadas. Trabaja en relación cercana con médicos, pedagogos, terapeutas del lenguaje, psicólogos y profesionales de la salud en general. Realiza actividades en investigación, prescripción y adaptación de audífonos y equipos de ayuda auditiva. Participa activamente en la formación de profesionales en universidades y puede liderar procesos relacionados con políticas de salud auditiva.
