@@ -1,0 +1,3 @@
+B. Modificar el artículo 12 del Reglamento Relativo a la Información Financiera de Entidades, Grupos y Conglomerados Financieros SUGEF 31-04 con el siguiente texto:
+“Artículo 12.-Información contable mensual
+Las entidades financieras supervisadas deberán presentar la información contable mensual a la Superintendencia respectiva en el plazo de cinco días hábiles, contados a partir del último día natural de cada mes. Se exceptúan de esta disposición las entidades e intermediarios de seguros, los cuales presentarán la información de conformidad con lo indicado por el Superintendente General de Seguros mediante acuerdo.”
