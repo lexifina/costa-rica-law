@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 37959-H de fecha 4 de setiembre del 2013, publicado en el Diario Oficial La Gaceta Nº 200 de fecha 17 de octubre del 2013, a partir de la vigencia del presente decreto.
