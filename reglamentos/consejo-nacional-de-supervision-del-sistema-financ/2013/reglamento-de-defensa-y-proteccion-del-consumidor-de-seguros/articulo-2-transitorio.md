@@ -1,0 +1,1 @@
+Transitorio II.—Manual de políticas y procedimientos para la atención de avisos de siniestro y atención del consumidor. Las entidades aseguradoras, procederán a emitir el manual de políticas y procedimientos para la atención de avisos de siniestro y atención del consumidor dentro de los seis meses siguientes a la fecha de publicación del presente Reglamento en el Diario Oficial.

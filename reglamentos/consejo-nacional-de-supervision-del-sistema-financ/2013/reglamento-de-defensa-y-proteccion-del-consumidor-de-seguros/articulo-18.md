@@ -1,0 +1,2 @@
+Artículo 18.—Otras instancias. La utilización de los servicios de atención al consumidor, se entiende sin perjuicio de la utilización de otras vías de protección previstas en la legislación vigente.
+La interposición de las quejas o reclamaciones formuladas al amparo de este reglamento no suspenderá o interrumpirá los plazos establecidos para el ejercicio de acciones o derechos que, de conformidad con la normativa, puedan ejercitar quienes figuren en ellos como interesados.

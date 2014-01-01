@@ -1,0 +1,1 @@
+Artículo 19.—Resolución Alterna de Conflictos. En cualquier tiempo, las partes de común acuerdo podrán someter el conocimiento de la controversia que originó la queja o reclamación a las reglas, los procedimientos y las regulaciones establecidos en la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social, Ley 7727.

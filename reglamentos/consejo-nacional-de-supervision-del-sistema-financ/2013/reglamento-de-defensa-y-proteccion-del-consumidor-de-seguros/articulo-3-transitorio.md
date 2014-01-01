@@ -1,0 +1,1 @@
+Transitorio III.—Plazo para emitir la primera publicación sobre el informe trimestral de gestión. La primera publicación del informe trimestral de gestión, se efectuará tres meses después de vencido el plazo establecido en el Transitorio I para la creación de la instancia de atención al consumidor.”

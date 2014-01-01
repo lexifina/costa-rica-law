@@ -1,0 +1,11 @@
+Artículo 6º—Registro de expedientes. El trámite de un aviso de siniestro debe ser documentado en todas sus etapas. Para ello las entidades deben adoptar mecanismos que permitan un adecuado registro y conservación de los expedientes correspondientes de los avisos de siniestros, sea en medios físicos o electrónicos legalmente válidos, los cuales deberán encontrarse a disposición de la Superintendencia.
+Los requisitos mínimos que deben contener estos expedientes son:
+a. Nombre, apellidos y domicilio del tomador, asegurado o beneficiario según corresponda y, en su caso, de la persona que lo represente, debidamente acreditada; número de la cédula de identidad o de residencia.
+b. Cuando el tomador, asegurado o beneficiario sea una persona jurídica, acreditará la capacidad de actuar del representante legal conforme lo establezca el procedimiento de presentación de reclamos de la respectiva póliza. En todo caso, y si procediera, cualquier documento que acredite representación y que acompañe la solicitud, deben tener una antigüedad no mayor a tres meses, al momento de incluirse en el expediente del siniestro.
+c. Fecha del siniestro.
+d. Identificación de la póliza de seguro respecto a la que formula el aviso de siniestro.
+e. Documentos y medios de prueba conforme lo contractualmente definido en la póliza.
+f. Lugar, fecha y oficina donde se presentó el aviso así como una copia de la constancia de recibido de los documentos y aviso aportados por el tomador, asegurado o beneficiario.
+g. Comunicaciones internas de los departamentos operativos en torno al trámite de la solicitud de indemnización.
+h. Resolución fundamentada de la solicitud.
+De conformidad con el inciso ñ) del artículo 25 de la Ley 8653, Ley Reguladora del Mercado de Seguros, es obligación de las entidades aseguradoras suministrar la información que soliciten expresamente el tomador, asegurado, beneficiario o persona debidamente legitimada conforme al derecho común, referida a sus intereses y derechos derivados expresamente de la póliza y demás documentación contractual, o se trate de una consulta sobre sus derechos en materia de protección como consumidor de seguros y los cauces legales existentes para su ejercicio.
