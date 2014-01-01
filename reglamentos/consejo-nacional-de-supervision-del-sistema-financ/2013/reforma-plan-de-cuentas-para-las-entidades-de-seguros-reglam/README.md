@@ -14,3 +14,4 @@ Reforma Plan de Cuentas para las Entidades de Seguros, Reglamento Información F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-01 | la propia norma |
+| 2 | 2014-01-01 | Reglamento 1080 (2013-12-17) |

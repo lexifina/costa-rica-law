@@ -1856,3 +1856,4 @@ CUENTAS ANALITICAS
 8.030.040.010.M.020 Ventas en corto mercado local - dólares
 8.030.040.010.M.030 Ventas en corto mercado extranjero — dólares.”
 82. Adicionar la cuenta analítica 8.070.010.030.M.060 Efectivo pignorado – situaciones legales, que será parte de la subcuenta de orden 8.070.010.030 Efectivo restringido, de la cuenta de orden 8.070.010 Efectivo y cuentas por cobrar, la cual es aplicable solo a los supervisados de la SUGEVAL.
+(Nota de Sinalevi: Mediante el punto 3° de la sesión N° 1080-2013 del 17 de diciembre del 2013, se establece lo siguiente: "... Modificar la entrada en vigencia de la reforma integral del Plan de Cuentas para las Entidades de Seguros, aprobadas por este Consejo mediante los literales A y C, del artículo 10 del acta de la sesión 1053-2013, celebrada el 23 de julio del 2013, a efecto de que dichas disposiciones cobren eficacia a partir del 1° de enero del 2015....")

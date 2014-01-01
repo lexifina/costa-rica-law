@@ -14,6 +14,7 @@ Artículo 4°- Codificación de cuentas
 (…)
 En concordancia con la estructura de codificación señalada, la SUGESE requerirá que la información contenida en el reporte de saldos contables sea hasta el nivel de cuenta analítica (dígito catorce).
 Con posterioridad al dígito catorce, las entidades deberán abrir las subcuentas analíticas que les permitan identificar las operaciones de seguros según los gastos por destino, por ramo y línea de seguro…”
+(Nota de Sinalevi: Mediante el punto 4° de la sesión N° 1080-2013 del 17 de diciembre del 2013, se establece lo siguiente: "... Modificar la entrada en vigencia de la reforma al artículo 4 de las Disposiciones Generales del Plan de Cuentas de Entidades de Seguros, aprobadas por este Consejo mediante el literal E del artículo 10 del acta de la sesión 1053-2013, celebrada el 23 de julio del 2013, a efecto de que dichas disposiciones cobren eficacia a partir del 1° de enero de 2015....")
 Artículo 6°- Cierre del periodo anual
 Para todas las entidades sujetas a la supervisión de la SUGESE el cierre del período contable será al 31 de diciembre de cada año.
 Se exceptúan las entidades de seguros autorizadas bajo la modalidad de sucursal, para las cuales regirá lo dispuesto por la jurisdicción de origen(…)”
