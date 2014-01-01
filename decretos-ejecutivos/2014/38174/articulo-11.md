@@ -1,0 +1,2 @@
+Artículo 11.—Este incremento general de salarios, así como el ajuste adicional para algunas clases de puesto, según lo consignado en los artículos 1º y 2º anteriores, rige a partir del 1º de enero de 2014 y corresponde al primer semestre del mismo año, el cual se pagará en la primera quincena del mes de marzo del año en curso, excepto para el sector educación que será pagado en la segunda quincena del mes de marzo del 2014.
+Dado en San José, a los cuatro días del mes de febrero del dos mil catorce.

@@ -1,0 +1,1 @@
+Artículo 3º—El incremento indicado en los artículos precedentes, se aplicará sobre el salario base de las clases de puestos de los servidores públicos, según la determinación que para cada una de estas categorías realice la Dirección General de Servicio Civil, conforme al proceder técnico y jurídico de aplicación.

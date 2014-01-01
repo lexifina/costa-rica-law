@@ -1,0 +1,1 @@
+Artículo 7º—El incremento autorizado en el artículo 1° se aplicará a los pensionados y pensionadas, con cargo al Presupuesto Nacional, de acuerdo con lo que establezcan las leyes correspondientes para cada régimen.
