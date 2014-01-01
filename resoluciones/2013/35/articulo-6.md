@@ -1,0 +1,14 @@
+Artículo 6º—Medios electrónicos de almacenamiento. Cuando la Administración Tributaria en función de sus facultades de control, solicite la entrega de estos registros a los Grandes Contribuyentes y Grandes Empresas Territoriales, los mismos deberán ser proporcionados a través de algún medio de almacenamiento electrónico, tales como discos compactos, dispositivos USB o cualquier otro medio electrónico de almacenamiento que sea compatible con los sistemas utilizados por la Administración Tributaria. Tales registros han de ser suministrados en formato Texto (.txt) en archivos planos secuenciales y deberán cumplir con la siguiente estructura:
+i. La primera línea, la del encabezado, debe contener únicamente el nombre de las columnas, por ejemplo:
+Número de Factura | Fecha de Emisión | Número de Identificación | Código asignado
+ii. Seguida de la línea de encabezado, se presentarán en forma continua los datos correspondientes. Deben asegurarse que los datos no contengan registros dañados y la tabla se construya correctamente. Además, verificar la exclusividad, las relaciones de los datos y la confiabilidad.
+iii. El ancho de las columnas deberá de ser estándar a lo largo del documento.
+iv. No deben de existir espacios en blanco entre cada fila o cada columna, la información debe de ser continua.
+v. No debe de contener filas y/o columnas en blanco, en los casos en los que no corresponda consignar valor alguno en las filas o en las columnas, se deberá de indicar un 0 (cero) si este dato corresponde a cifras numéricas, si se trata de datos de texto o alfanuméricos, se deberá de indicar N/A (No Aplica), por ejemplo:
+Monto subtotal facturado | Importe descuento aplicado | Importe IVA facturado | Monto total facturado | Número de autorización sin IVA | Fecha de vigencia | Porcentaje de Autorización
+100,00 | 0,00 | 13,00 | 113,00 | N/A | N/A | 0,00
+vi. No debe interponerse subtotales o totales en las columnas con datos numéricos, es decir, la información deberá ser consecutiva a lo largo del archivo.
+vii. Los campos referentes a fechas deben de tener el siguiente formato DD/MM/AAAA (Día/Mes/Año), con un tamaño de 10 caracteres.
+viii. El formato de los campos referidos a los importes monetarios, debe de ser numérico y con dos decimales, utilizando la “coma” (,) para separar miles y el “punto” (.) para separar decimales, con un tamaño de 24 caracteres (que incluye dos decimales).
+ix. El formato de los campos numéricos o alfanuméricos que no hagan referencia a importes monetarios (por ejemplo: número de factura, número de identificación, códigos de producto, número de DUA, partida arancelaria, etc.), deberá de ser “ASCII”, con un tamaño de 20 caracteres.
+x. Los campos que contengan información tipo texto (por ejemplo: nombres jurídicos o físicos de clientes o proveedores, descripción de las mercancías, país de destino o procedencia, etc.), serán en formato “ASCII”, con un tamaño de 80 caracteres.

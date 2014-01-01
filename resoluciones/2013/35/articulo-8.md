@@ -1,0 +1,1 @@
+Artículo 8º—Incumplimiento. El incumplimiento del deber de llevar los registros electrónicos bajo el formato establecido en la presente resolución, así como el incumplimiento en el suministro de los mismos, podría acarrear la imposición de las respectivas sanciones establecidas en el Código de Normas y Procedimientos Tributarios.
