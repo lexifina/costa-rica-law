@@ -1,7 +1,7 @@
 ARTÍCULO 6.- Exenciones
 Estarán exentos del pago de este impuesto:
-a) Los propietarios o titulares de derechos de los bienes inmuebles indicados en el artículo 2 de esta Ley, cuyo valor fiscal de la construcción, incluido el valor de las instalaciones fijas y permanentes, sea igual o inferior a ciento diecisiete millones de colones (¢117.000.000,00).(*). Este valor será actualizado por el Poder Ejecutivo en diciembre de cada año, con fundamento en la variación experimentada por el índice de precios al consumidor que el INEC determine, considerando los doce (12) meses inmediatos anteriores, correspondientes al período comprendido entre el 1º de diciembre del año anterior y el 30 de noviembre del año en curso.
-(*)(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 37444 del 6 de diciembre de 2012)
+a) Los propietarios o titulares de derechos de los bienes inmuebles indicados en el artículo 2 de esta Ley, cuyo valor fiscal de la construcción, incluido el valor de las instalaciones fijas y permanentes, sea igual o inferior a ciento diecisiete millones de colones (¢121.000.000,00)(*). Este valor será actualizado por el Poder Ejecutivo en diciembre de cada año, con fundamento en la variación experimentada por el índice de precios al consumidor que el INEC determine, considerando los doce (12) meses inmediatos anteriores, correspondientes al período comprendido entre el 1º de diciembre del año anterior y el 30 de noviembre del año en curso.
+(*) (Así modificado el valor antes mencionado para el período fiscal 2014 por el artículo 2° del decreto ejecutivo N° 38100 del 5 de diciembre de 2013)
 b) Los bienes inmuebles propiedad del Gobierno central y las municipalidades.
 c) Los bienes inmuebles propiedad de instituciones públicas, juntas administrativas o de educación e instituciones de salud de carácter público.
 d) Los bienes inmuebles declarados patrimonio histórico y arquitectónico, de conformidad con la ley.
