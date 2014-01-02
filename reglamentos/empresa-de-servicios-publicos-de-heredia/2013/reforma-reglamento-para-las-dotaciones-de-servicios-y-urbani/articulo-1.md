@@ -1,0 +1,21 @@
+EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA S. A.
+La Junta Directiva de la Empresa de Servicios Públicos de Heredia S. A., en la sesión número tres mil cuatrocientos dos-C de fecha veinticinco de noviembre del dos mil trece, en su artículo cuarto mediante acuerdo JD trescientos cuarenta y uno guión dos mil trece-R, acordó lo siguiente:
+ACUERDO JD 341-2013-R
+1. Reformar los artículos Nos. 32 y 42 del Reglamento de Dotación de Servicios a Urbanizaciones, Fraccionamientos y Condominios de la ESPH S. A., para que se apliquen de la siguiente manera:
+Artículo 32.—Requisitos para el otorgamiento del financiamiento. Todo otorgamiento de financiación de extensiones de servicios; o de urbanizaciones de interés social quedará sujeto a las siguientes condiciones:
+a. Presentación de solicitud formal, con expresión de nombres y calidades de él o los solicitantes, e indicación de sus cédulas de identidad. Tratándose de personas jurídicas deberá acompañarse además certificación de la personería de su representante, con indicación de la cédula de persona jurídica correspondiente. Dichas certificaciones deberán ser expedidas por el Registro Nacional; o en defecto de este, por un notario público.
+b. Rendición de garantía a satisfacción de la Empresa, en cuanto al reembolso de la suma financiada, cuyo plazo en todos los casos no será inferior de 6 meses ni mayor de 24 meses, a partir de la conclusión de esta.
+c. El tipo de interés que aplica será la tasa de interés del Banco Nacional de Costa Rica, aplicable a certificados de depósito a plazo a seis meses.
+d. Cuando se trate de financiamiento a entidades o personas jurídicas, será requisito indispensable el acuerdo firme de su organismo máximo, autorizando la operación y confiriendo poder suficiente a su representante legal para concurrir al otorgamiento del respectivo contrato. Asimismo, deberá existir autorización expresa a la Empresa para incorporar en las facturas de cobro de servicios, la amortización correspondiente a la financiación otorgada.
+e. El grupo o entidad interesada, deberá comprobar el otorgamiento de las autorizaciones a que se refiere el artículo sesenta y seis, inciso a) del Reglamento.
+f. Aprobación de la Gerencia del otorgamiento del préstamo.
+Artículo 42.—Trámite de financiamiento.
+1) Aprobación del Presupuesto para financiamiento: Una vez realizados los estudios y presupuestos de las obras de infraestructura, la UEN respectiva avisará al interesado por escrito del valor y demás detalles en un plazo no mayor de treinta días, para su aprobación o desaprobación. Si el interesado está conforme con los montos, se pasará de inmediato a conocimiento de la Gerencia, para que se apruebe o impruebe el financiamiento.
+2) El financiamiento solicitado, una vez aprobado por la Gerencia según corresponda, debe seguir el siguiente procedimiento, a efecto de que se formalice el respectivo contrato:
+a) Aporte no menor del 25%, del valor indicado en el presupuesto, antes del inicio de la obra salvo otra indicación expresa de la Gerencia. Tendrá preferencia el aporte en mano de obra del proyecto a realizar, el cual en todo caso deberá de ser ejecutado por una empresa constructora inscrita en el Colegio Federado de Ingenieros y Arquitectos.
+b) El interesado deberá aportar una garantía a satisfacción de la EMPRESA por el saldo en descubierto cuyo plazo, no será menor de 12 meses ni mayor de 24 meses.
+c) Se cobrará intereses por el saldo pendiente, de acuerdo con la tasa de interés establecida por el Banco Nacional de Costa Rica, aplicable a certificados de depósito a seis meses plazo, al momento de otorgarse el financiamiento.
+d) Tratándose de personas jurídicas, se deberá acreditar debidamente, tanto la personería del representante legal como el acuerdo de su organismo máximo que autoriza la operación y confiere poder suficiente a su representante legal para concurrir al otorgamiento del respectivo contrato.
+e) Deberá existir autorización expresa a la Empresa para incorporar en los recibos de facturación de servicios la amortización correspondiente al financiamiento otorgado.
+f) Aprobado el financiamiento por la Gerencia se pasará el expediente completo a la Asesoría Jurídica para la formalización del correspondiente contrato.
+2. Rigen a partir de su publicación en el Diario Oficial La Gaceta.
