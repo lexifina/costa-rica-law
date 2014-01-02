@@ -1,0 +1,3 @@
+Transitorio único.—Las organizaciones y comités vecinales tendrán hasta el 20 de diciembre del 2013, para poner a derecho las casetas y los mecanismos de vigilancia que estén funcionando a la fecha de publicación de este Reglamento, con base en el transitorio II de la Ley Nº 8892.
+Rige a partir de su publicación.
+Publicado como Proyecto en el Diario Oficial La Gaceta N° 190 del 03-10-2013 y cumplido el trámite que establece el Código Municipal, el Concejo Municipal de Montes de Oca, en la Sesión Ordinaria N° 182/2013, artículo N° 6.7., del día 21 de octubre del 2013, se toma como “Acuerdo Definitivamente Aprobado” su segunda publicación como corresponde.-
