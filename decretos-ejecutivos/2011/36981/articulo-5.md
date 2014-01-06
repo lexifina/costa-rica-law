@@ -1,1 +1,0 @@
-Artículo 5º—Deróguese el Decreto Ejecutivo N° 35833-COMEX del 18 de diciembre de 2009; denominado “Ajuste de los umbrales establecidos en el Anexo 9.1.2. (b) (i) del Capítulo 9 del Tratado de Libre Comercio República Dominicana – Centroamérica - Estados Unidos”, publicado en el Diario Oficial La Gaceta N° 58 del 24 de marzo de 2010.
