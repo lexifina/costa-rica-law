@@ -1,2 +1,0 @@
-Artículo 73.—El servidor tendrá acceso a la información contenida en su evaluación de desempeño y deberá firmar si se encuentra conforme.
-En caso de inconformidad podrá apelar por escrito dentro de los cinco días hábiles siguientes, ante el Consejo de Personal. De presentarse la impugnación, éste remitirá el asunto al Ministro, quien resolverá lo que corresponda dentro de los ocho días hábiles siguientes a su recibo. Lo resuelto por el Ministro dará por agotada la vía administrativa.

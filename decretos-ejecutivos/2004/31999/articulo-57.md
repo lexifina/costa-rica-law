@@ -1,1 +1,0 @@
-Artículo 57.—Las llegadas tardías se clasificarán en menores y mayores. Las menores serán aquellas que superen los diez minutos y que no excedan de veinte. Las mayores serán aquellas superiores a los veinte minutos.

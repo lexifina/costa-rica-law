@@ -1,1 +1,0 @@
-Artículo 124.—La persona ofendida, en cualquier etapa del proceso, podrá poner en consideración del órgano instructor o director su traslado temporal en la institución, como medida cautelar, este órgano resolverá la procedencia o no de la imposición, de la medida cautelar. Contra dicha resolución cabrán los recursos ordinarios de revocatoria y de apelación.

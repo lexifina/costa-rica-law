@@ -1,1 +1,0 @@
-Artículo 25.—El aspirante deberá someterse a los exámenes físicos y psicológicos, así como las pruebas toxicológicas con la intención de verificar la ausencia o no en su cuerpo de sustancias psicotrópicas, psicoactivas o estupefacientes que produzcan dependencia química.

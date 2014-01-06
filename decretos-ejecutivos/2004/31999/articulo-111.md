@@ -1,1 +1,0 @@
-Artículo 111.—En forma automática se seguirá aplicando el incentivo por concepto de antigüedad, de conformidad con el artículo 58 de la Ley de Presupuesto Ordinario y Extraordinario de la República Nº 6982 del 19 de diciembre de 1984.

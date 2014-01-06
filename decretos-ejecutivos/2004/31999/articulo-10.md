@@ -1,1 +1,0 @@
-Artículo 10.—Para el buen desempeño de sus funciones, los funcionarios de la Policía están autorizados para portar armas, esposas u otro equipo especial de trabajo. El uso indebido de estos bienes será falta grave a la relación de servicio.

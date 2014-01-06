@@ -1,1 +1,0 @@
-Artículo 118.—Los cursos de especialización tienen como propósito consolidar, profundizar y ampliar los conocimientos y habilidades adquiridos por el servidor policial para el mejor desempeño de su cargo, en función con las necesidades administrativas y operativas específicas de la Unidad a que está adscrito.

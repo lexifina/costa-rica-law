@@ -1,1 +1,0 @@
-Artículo 127.—En un plazo no mayor de treinta días naturales, contados desde la interposición de la denuncia, el órgano director instruirá el procedimiento y trasladará el expediente al órgano competente de decisión, quien resolverá en definitiva.

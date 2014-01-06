@@ -1,1 +1,0 @@
-Artículo 27.—El Consejo de Personal será competente para ejercer las atribuciones que establece la Ley en relación con la Policía, para lo que contará con la competencia y autoridad para requerir de cualquier funcionario o dependencia del Ministerio, lo que estime conveniente, en relación y para el estricto cumplimiento de sus funciones.

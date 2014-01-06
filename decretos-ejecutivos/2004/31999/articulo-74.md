@@ -1,3 +1,0 @@
-CAPÍTULO VIII
-De los traslados y las permutas
-Artículo 74.—Cuando el servicio público lo exija o por razones de conveniencia u oportunidad podrá asignarse a un servidor de la Policía, según su especialidad, la realización de labores correspondientes a otro puesto distinto, inclusive trasladándolo a otra oficina en cualquier parte del territorio nacional, sin que ello signifique ascenso, descenso, ni aumento o disminución de suelo por un plazo no mayor de seis meses. En virtud de traslado, las funciones habituales del empleado, no deben sufrir cambios permanentes. Sin embargo, se podrán realizar traslados mayores a seis meses con la anuencia del servidor.

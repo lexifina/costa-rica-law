@@ -1,1 +1,0 @@
-Artículo 12.—La Policía ejercerá sus funciones en todo el territorio nacional, en cualquier momento y sin límite de horario y sus miembros podrán ser destacados por el Director General en las diferentes oficinas o puestos migratorios del país, según su especialidad, para la efectiva aplicación del control migratorio.

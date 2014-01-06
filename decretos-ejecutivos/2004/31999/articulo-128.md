@@ -1,1 +1,0 @@
-Artículo 128.—La resolución final tendrá los recursos ordinarios de revocatoria y de apelación, de conformidad, con apego y trámites que establece para tales efectos, la Ley General de la Administración Pública.

@@ -1,1 +1,0 @@
-Artículo 83.—En caso de que el servidor se ausentare del trabajo sin la debida aprobación de su licencia o prórroga, sea ésta con o sin goce de salario, se considerará el hecho como abandono de trabajo, incurrirá en falta grave a sus deberes y se sancionará de conformidad con lo establecido en el presente reglamento y en el ordenamiento laboral y administrativo.

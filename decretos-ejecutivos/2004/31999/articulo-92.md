@@ -1,1 +1,0 @@
-Artículo 92.—El servidor que permaneciere enfermo por un tiempo mayor de tres meses y que hubiere disfrutado del total del subsidio de la Caja Costarricense del Seguro Social, a que tuviere derecho, podrá a juicio de Ministro, ser separado de su puesto, mediante el importe del preaviso y del auxilio de cesantía correspondiente.

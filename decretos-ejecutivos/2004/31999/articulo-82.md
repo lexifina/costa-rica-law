@@ -1,1 +1,0 @@
-Artículo 82.—El funcionario que desee reincorporarse a su puesto antes de cumplirse el término de su licencia, deberá comunicarlo al Departamento de Recursos Humanos al menos con un mes de anticipación.

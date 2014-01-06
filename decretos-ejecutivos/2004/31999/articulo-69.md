@@ -1,1 +1,0 @@
-Artículo 69.—Cuando los niveles de desempeño sean regular o deficiente, el evaluador deberá emitir una justificación y una explicación al efecto, con el fin de instar al servidor a mejorar su desempeño, o tomar las medidas necesarias para mejorar los resultados.

@@ -1,1 +1,0 @@
-Artículo 70.—Se establece la obligatoriedad de parte de los evaluadores de justificar la categoría excelente, que se asigne a sus colaboradores con base en la contribución destacada de los mismos en los logros alcanzados por ellos.

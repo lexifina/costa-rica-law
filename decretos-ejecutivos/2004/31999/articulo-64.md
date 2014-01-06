@@ -1,1 +1,0 @@
-Artículo 64.—Los encargados de las oficinas y delegaciones regionales estarán obligados a remitir a dicho departamento los controles de asistencia y registros de marca de los funcionarios a su cargo, dentro de los primeros ocho días hábiles del mes siguiente.

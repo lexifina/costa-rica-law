@@ -1,1 +1,0 @@
-Artículo 19.—El Director General nombrará los Delegados Regionales, quienes servirán de enlace entre las delegaciones Regionales y la Dirección General, tanto operativa como administrativamente. El Delegado Regional actuará en coordinación con el Jefe y Subjefe de la Policía, con el propósito de concretar los aspectos de carácter operativo.
