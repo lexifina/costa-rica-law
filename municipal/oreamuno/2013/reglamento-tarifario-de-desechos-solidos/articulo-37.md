@@ -1,0 +1,1 @@
+Artículo 37.—Dentro de la tarifa comercial e industrial 6 se incluyen todos los agroquímicos, agroindustrias, agro verduras, agro veterinarias, almacenes de insumo, comercializadoras, fábricas grandes, industrias, lavanderías y Plaza Feria, de todo tipo que se ubiquen dentro del área de cobertura del servicio de recolección.

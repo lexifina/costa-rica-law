@@ -1,0 +1,1 @@
+Artículo 23.—Se toma como tarifa comercial e industrial 6, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que sea superior a 121 kilogramos. En la tarifa comercial e industrial 6 el factor de generación es 8.

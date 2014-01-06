@@ -1,0 +1,1 @@
+Artículo 35.—Dentro de la tarifa comercial e industrial 4 se incluyen todos los bares, empacadoras, restaurantes, súper y supermercados, que se ubiquen dentro del área de cobertura del servicio de recolección.

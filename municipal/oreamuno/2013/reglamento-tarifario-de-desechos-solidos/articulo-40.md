@@ -1,0 +1,1 @@
+Artículo 40.—Dentro de la tarifa interinstitucional 3 se incluyen todas las escuelas privadas, universidades privadas, bancos privados, cualquier otra institución de igual naturaleza y condiciones semejantes que se ubiquen dentro del área de cobertura del servicio de recolección.

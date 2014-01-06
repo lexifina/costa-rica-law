@@ -1,0 +1,1 @@
+Artículo 22.—Se toma como tarifa comercial e industrial 5, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 101 kilogramos y 120 kilogramos. En la tarifa comercial e industrial 5 el factor generación es 7.

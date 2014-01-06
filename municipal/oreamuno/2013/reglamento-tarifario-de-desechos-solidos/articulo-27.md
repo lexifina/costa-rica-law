@@ -1,0 +1,1 @@
+Artículo 27.—Todo patentado o ente de carácter estatal o privado que considere que el factor de ponderación que se le está aplicando no está de acuerdo a la cantidad de basura que está generando, podrá solicitar un estudio específico, para que se determine la cantidad de basura producida en el lugar.

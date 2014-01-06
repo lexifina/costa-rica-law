@@ -1,0 +1,1 @@
+Artículo 34.—Dentro de la tarifa comercial e industrial 3 se incluyen todas las fábricas, granjas avícolas, hoteles, materiales de construcción, panaderías, sodas, que se ubiquen dentro del área de cobertura del servicio de recolección.

@@ -1,0 +1,1 @@
+Artículo 18.—Se toma como tarifa comercial e industrial 1, la tasa a aplicar a todo aquel lugar patentado donde el promedio estimado en generación de basura sea inferior a 40 kilogramos por semana. En la tarifa comercial e industrial 1 el factor de generación es 2.5

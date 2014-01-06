@@ -1,0 +1,1 @@
+Artículo 38.—Dentro de la tarifa interinstitucional 1 se incluyen todos los centros educativos públicos, iglesias, hogares de ancianos, cualquier otra institución de igual naturaleza y condiciones semejantes que se ubiquen dentro del área de cobertura del servicio de recolección.
