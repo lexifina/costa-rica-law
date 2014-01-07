@@ -1,0 +1,1 @@
+4º—Para la autorización de las citadas importaciones temporales se requerirá de la previa recomendación de la Federación Costarricense de Fútbol, para lo cual se crea el documento denominado “Recomendación de la Federación Costarricense de Fútbol para la Copa Mundial Femenina de Fútbol Sub-17 de 2014”, que tendrá el código 0366, y será emitido por dicha Federación.

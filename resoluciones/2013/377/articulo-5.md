@@ -1,0 +1,1 @@
+5º—En la modalidad de importación temporal 04-25, se podrá declarar únicamente la mercancía consistente en máquinas, equipos y aparatos especiales que se requieran para la realización del evento de la Copa Mundial Femenina de Fútbol Sub 17-2014.

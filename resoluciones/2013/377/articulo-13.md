@@ -1,0 +1,1 @@
+13.—Para toda importación temporal, de previo a realizar el DUA, deberá solicitarse la autorización por escrito ante la aduana de control que le corresponda, para lo cual deberá indicar en la solicitud, la descripción detallada de la mercancía.

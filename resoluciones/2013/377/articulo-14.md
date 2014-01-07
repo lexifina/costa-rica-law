@@ -1,0 +1,1 @@
+14.—La aduana de control deberá verificar que las mercancías a importar temporalmente se encuentren contempladas en el artículo 8 de la Ley 9163, asimismo deberá verificar que dichas mercancías no sean susceptibles de consumo durante el evento deportivo.

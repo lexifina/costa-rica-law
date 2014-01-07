@@ -1,0 +1,1 @@
+11.—Una vez autorizado el levante, el interesado deberá imprimir el DUA con las variables del vehículo automotor, el que cumplirá con la función del “Certificado de Importación Temporal para fines no lucrativos”.

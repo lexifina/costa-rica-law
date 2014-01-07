@@ -1,0 +1,1 @@
+7º—En la modalidad de importación temporal 04-26 se podrá declarar únicamente vehículos automotores para el transporte de personas y mercancías, terrestre, aéreo y marítimo, motocicletas y velocípedos, para transporte por vía terrestre.
