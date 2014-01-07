@@ -21,3 +21,4 @@ Reglamento General del Régimen de Capitalización
 | 6 | 2011-11-02 | SINALEVI (sin norma nombrada) |
 | 7 | 2012-06-07 | Reglamento 62 (2012-06-07) |
 | 8 | 2013-08-22 | Reglamento 93 (2013-08-22) |
+| 9 | 2014-01-07 | Reglamento 0 (2014-01-07) |
