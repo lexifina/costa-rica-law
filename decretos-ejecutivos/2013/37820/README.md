@@ -14,3 +14,4 @@ Publica Resolución N° 316-2013 (COMIECO-EX) de fecha 5 de julio de 2013 y su a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-25 | la propia norma |
+| 2 | 2014-01-07 | Decreto Ejecutivo 38354 (2014-01-07) |
