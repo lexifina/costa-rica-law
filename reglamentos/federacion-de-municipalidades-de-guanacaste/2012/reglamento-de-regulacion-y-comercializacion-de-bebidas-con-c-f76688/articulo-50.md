@@ -1,12 +1,10 @@
 CAPÍTULO VIII
 SECCIÓN I
 De la revocación
-Artículo 50.—La licencia concedida para el expendio de bebidas con contenido alcohólico será revocada o cancelada administrativamente por las siguientes razones:
-a. Por renuncia expresa del patentado.
-b. Cuando el patentado abandone la actividad y así sea comunicado a la Municipalidad.
-c. Cuando resulte totalmente evidente el abandono de la actividad aunque el interesado no lo comunique a la Municipalidad, siempre y cuando la Sección de Inspección así lo corrobore en el campo. Para la determinación del estado de abandono la Sección de Inspección deberá realizar al menos tres inspecciones al lugar en semanas diferentes; una vez corroborada esta condición, deberá informarlo dentro del plazo de 5 días hábiles siguientes de la última visita a la dependencia encargada de otorgar las licencias y patentes, a efecto de proceder a la renuncia de oficio de cualquier tipo de licencia que haya sido otorgada en el lugar. La dependencia encargada de otorgar las licencias y patentes deberá publicar en el diario oficial La Gaceta la intención de renunciar la licencia, concediendo al interesado diez días hábiles para apersonarse; transcurrido dicho término sin que se haya apersonado se procederá a la renuncia definitiva de la licencia y solicitará a la dependencia encargada de la gestión de cobro, la recuperación del pendiente de pago en caso de existir.
-d. Cuando el establecimiento varíe las condiciones de funcionamiento o incumpla con los requisitos valorados al momento del otorgamiento de la licencia.
-e. Por cualquiera de las causales establecidas en el artículo 6 de la Ley 9047; excepto las licencias concedidas bajo la Ley N° 10 del 7 de octubre de 1936.
-f. La licencia concedida para la comercialización de bebidas con contenido alcohólico podrá suspenderse por falta de pago de dos o más trimestres, para lo cual deberá prevenirse al patentado en su negocio concediendo un plazo de cinco días hábiles para su cancelación. Si vencido el plazo no se hiciere efectiva la cancelación, la dependencia encargada de tramitar y aprobar las licencias en la municipalidad iniciará el procedimiento para la revocación de la licencia respectiva.
-g. Mediante la apertura de un procedimiento administrativo.
-La pérdida de la licencia para el expendio de bebidas con contenido alcohólico por cualquiera de las condiciones aquí detalladas, impide la continuidad del funcionamiento del comercio, ante ello, cualquier actividad asociada a la comercialización, expendio y consumo de bebidas con contenido alcohólico que se pretenda instalar en la mismo propiedad será considerada como una nueva licencia, inclusive para la aplicación de distancias según el artículo 9 de la Ley N° 9047 y 48 de este reglamento.
+Artículo 50.—La Licencia concedida para el expendio de bebidas con contenido alcohólico será revocada o cancelada administrativamente por las siguientes razones:
+a) Muerte o renuncia de su titular, disolución, quiebra o insolvencia judicialmente declaradas.
+b) Falta de explotación comercial por más de seis meses sin causa justificada.
+c) Falta de pago de los derechos trimestrales por la licencia, después de haber sido aplicada la suspensión establecida en el artículo 10 de esta ley. Para estos efectos, se aplicará lo dispuesto en el artículo 81 bis del Código Municipal.
+d) Cuando los responsables o encargados de los negocios toleren conductas ilegales, violencia dentro de sus establecimientos, o bien, se dediquen a título personal o por interpuesta persona a actividades distintas de aquellas para las cuales solicitaron su licencia para la comercialización de bebidas con contenido alcohólico.
+e) Cuando los licenciatarios incurran en las infracciones establecidas, de conformidad con lo dispuesto en el capítulo IV o violen disposiciones, prohibiciones y requisitos establecidos en esta ley y el Código Municipal.
+(Así reformado mediante sesión extraordinaria N° 102 del 8 de enero del 2014)

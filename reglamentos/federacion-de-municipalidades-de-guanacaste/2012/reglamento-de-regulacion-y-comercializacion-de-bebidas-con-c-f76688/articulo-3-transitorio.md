@@ -1,0 +1,2 @@
+Transitorio III.—Hasta tanto se reforme el artículo 10 de la Ley No 9047, de los montos fijados en el artículo 44 del presente Reglamento, la Municipalidad únicamente cobrará la mitad a los negocios ubicados en la cabecera de cantón y una cuarta parte a los negocios ubicados en cualquier otra población, lo anterior de conformidad con lo resuelto por la Sala Constitucional de la Corte Suprema de Justicia mediante sentencia Nº 2013-11499 de las 16 horas 0 minutos del 28 de agosto de 2013.
+(Así adicionado mediante sesión extraordinaria N° 102 del 8 de enero del 2014)

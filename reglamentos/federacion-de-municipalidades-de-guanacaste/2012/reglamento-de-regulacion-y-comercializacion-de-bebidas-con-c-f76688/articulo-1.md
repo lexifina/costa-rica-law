@@ -13,8 +13,9 @@ El Concejo Municipal de Hojancha, acuerda, adherirse al Reglamento de la Ley de 
 Estos Concejos Municipales acuerdan aprobar el reglamento propuesto por la Federación de Municipalidades de Guanacaste y lo someten a consulta pública no vinculante por un plazo de 10 días.
 Se aprueba:
 “REGLAMENTO DE REGULACIÓN Y COMERCIALIZACIÓN
-DE BEBIDAS CON CONTENIDO ALCOHÓLICO PARA LOS
-CANTONES DE CAÑAS, BAGACES, NANDAYURE HOJANCHA Y TILARÁN”
+DE BEBIDAS CON CONTENIDO ALCOHÓLICO DEL CANTON DE NANDAYURE
+(Modificada su denominación mediante sesión extraordinaria N° 102 del 08 de enero del 2014. Anteriormente indicaba "“REGLAMENTO DE REGULACIÓN Y COMERCIALIZACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO PARA LOS CANTONES DE CAÑAS, BAGACES, NANDAYURE HOJANCHA Y TILARÁN”)
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Este reglamento tiene por objeto establecer pautas claras y precisas para la autorización, control y fiscalización de las actividades comerciales asociadas a la comercialización, expendio y consumo de bebidas con contenido alcohólico en el Cantones de Cañas, Bagaces, Tilarán, Nandayure y Hojancha.
+Artículo 1º—Este reglamento tiene por objeto establecer pautas claras y precisas para la autorización, control y fiscalización de las actividades comerciales asociadas a la comercialización, expendio y consumo de bebidas con contenido alcohólico en el cantón de Nandayure.
+(Así reformado mediante sesión extraordinaria N° 102 del 8 de enero del 2014)

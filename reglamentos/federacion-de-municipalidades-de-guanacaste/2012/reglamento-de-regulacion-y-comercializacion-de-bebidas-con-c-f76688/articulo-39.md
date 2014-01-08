@@ -6,7 +6,7 @@ b. En caso de sociedades y con el propósito de cumplir con el artículo N° 3 d
 c. Si se trata de persona física aportar fotocopia de cédula de identidad; si se trata de persona jurídica, aportar personería jurídica con no más de tres meses de emitida.
 d. Contrato de póliza de riesgos del trabajo del INS y recibo al día o exoneración a nombre del patentado.
 e. Permiso Sanitario de Funcionamiento del Ministerio de Salud.
-f. Comprobante de estar al día en el pago de impuestos de Cerveza a favor de la Junta de Educación.
+f. (Derogado mediante sesión extraordinaria N° 102 del 8 de enero del 2014)
 g. Estar al día con el pago de los tributos municipales; así como con la cuota obrero patronal de la Caja Costarricense del Seguro Social, y con el pago de sus obligaciones ante Asignaciones Familiares cuando corresponda. El solicitante estará exento de aportar cualquier tipo de constancia que demuestre lo detallado en este inciso cuando la Municipalidad pueda acceder a dicha información en forma remota.
 h. En caso que se renueve una licencia clase E, copia certificada de la declaratoria turística vigente.
 i. Indicar medio legalmente idóneo para recibir notificaciones y/o lugar dentro de la jurisdicción del cantón.
