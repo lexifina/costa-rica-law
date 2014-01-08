@@ -14,3 +14,4 @@ Delega competencias en materia de Contratación Administrativa al Proveedor Inst
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-24 | la propia norma |
+| 2 | 2014-01-08 | Resolución 1 (2014-01-08) |
