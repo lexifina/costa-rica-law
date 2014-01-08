@@ -1,1 +1,0 @@
-Artículo 3º—Con la información recopilada la Unidad de Registro Contable de la Contabilidad Nacional, procederá a efectuar los registros contables según sea el caso, los cuales deberán ser ajustados cada trimestre del año, con la información actualizada que brinden las entidades.

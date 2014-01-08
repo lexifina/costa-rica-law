@@ -1,1 +1,0 @@
-Artículo 2º—La información será solicitada por la Dirección de Contabilidad Nacional por primera vez y luego deberá ser actualizada en forma trimestral por cada una de las entidades requeridas en el artículo anterior, mediante informes enviados a la Contabilidad Nacional.
