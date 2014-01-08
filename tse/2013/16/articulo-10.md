@@ -1,0 +1,5 @@
+Artículo 10.—Sobre el giro de cheques. En caso de que el pago respectivo se realice mediante cheque, en él constará el nombre de la persona física o jurídica a cuya orden se dispone hacer el pago. Los cheques deberán permanecer en las cajas de seguridad dispuestas para esos efectos.
+Queda prohibida la existencia de cheques firmados en blanco.
+Los cheques girados y/o la orden de transferencia bancaria con cargo a la cuenta corriente del Fondo General de Elecciones deberán ser firmados conjuntamente por el Director General del Registro Electoral y Financiamiento de los Partidos Políticos o el Secretario General de la DGRE así como el Contador o Sub Contador del Tribunal.
+De todo cheque que se gire deberá quedar la documentación en la que se detallará el concepto del pago efectuado.
+Los cambios, ante el banco, de las firmas de la cuenta corriente serán responsabilidad del Contador del Tribunal, quien realizará el trámite inmediatamente, una vez que se origine alguna variante en la conformación de los miembros autorizados a firmar.

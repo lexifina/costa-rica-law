@@ -1,0 +1,1 @@
+Artículo 5º—Informe relativo a trámites realizados sobre el Fondo General de Elecciones. Una vez girada una orden de separación de recursos con cargo al Fondo General de Elecciones, la DGRE informará oportunamente sobre el particular al TSE.
