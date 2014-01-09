@@ -1,0 +1,1 @@
+TERCERO: Se comisiona a la Dirección General de Asuntos Jurídicos para que prepare y formal ice los diversos instrumentos jurídicos y poderes que sea necesario suscribir y otorgar por parte del Rector para hacer efectiva la delegaci6n acordada.
