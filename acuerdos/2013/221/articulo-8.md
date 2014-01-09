@@ -1,0 +1,1 @@
+OCTAVO: Se comisiona a la Dirección General de Asuntos Jurídicos para que prepare y formal ice los diversos instrumentos jurídicos y poderes que eventualmente fuere necesario suscribir y otorgar por parte del Rector para hacer efectiva la delegación de facultades, y competencias acordada anteriormente.

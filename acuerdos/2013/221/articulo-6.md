@@ -1,0 +1,1 @@
+SEXTO: En forma específica, se delega en el Vicerrector de Extensión, el poder y la competencia suficiente para autorizar con su firma los contratos de servicios profesionales para la prestación de servicios docentes en el área de Extensión y Cursos Libres, mientras no se sustituya por completo esa forma de contratación.

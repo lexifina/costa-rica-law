@@ -1,0 +1,1 @@
+CUARTO: En forma específica, se delega en la Vicerrectora de Docencia, la facultad de autorizar los nombramientos interinos 0 en propiedad del personal del Centro de Formación Pedagógica y Tecnología Educativa, conforme a los procedimientos correspondientes.
