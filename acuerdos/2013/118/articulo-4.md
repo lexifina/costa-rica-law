@@ -1,1 +1,2 @@
 CUARTO: La vigencia de la delegación de funciones aquí acordada finalizara el treinta de junio del dos mil dieciséis.
+(Nota de Sinalevi: Mediante acuerdo R-767-2013, se acordó adicionar a esta norma un ordinal cuarto. No obstante, dicho ordinal ya existe, razón por la cual se transcribe el ordinal a adicionar: "CUARTO: La vigencia de la delegación de funciones aquí acordada finalizara el día treinta de junio del dos mil dieciséis")

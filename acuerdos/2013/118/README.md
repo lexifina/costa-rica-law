@@ -14,3 +14,4 @@ Delegación de funciones en los decanos de las Sedes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-09 | la propia norma |
+| 2 | 2014-01-09 | Acuerdo 767 (2013-12-06) |
