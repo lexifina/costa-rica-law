@@ -14,3 +14,4 @@ Delega funciones y atribuciones en las Vicerrectorías
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-09 | la propia norma |
+| 2 | 2014-01-09 | Acuerdo 772 (2013-12-10) |

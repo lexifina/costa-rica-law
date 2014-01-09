@@ -1,1 +1,2 @@
 NOVENO: La vigencia de la delegación de funciones aquí acordada finalizara el día treinta de junio del dos mil dieciséis.
+(Nota de Sinalevi: Mediante acuerdo R-762-2013, del 10 de diciembre de 2013, se acordó adicionar a esta norma un ordinal noveno. No obstante, dicho ordinal ya existe, razón por la cual se transcribe el ordinal a adicionar: "NOVENO: La vigencia de la delegación de funciones aquí acordada finalizara el día treinta de junio del dos mil dieciséis.")
