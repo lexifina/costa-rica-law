@@ -14,3 +14,4 @@ Reglamento General de Patronatos Escolares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-23 | la propia norma |
+| 2 | 2014-01-09 | Decreto Ejecutivo 38165 (2014-01-09) |
