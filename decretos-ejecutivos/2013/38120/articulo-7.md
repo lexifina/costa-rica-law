@@ -1,0 +1,1 @@
+Artículo 7º—El Poder Ejecutivo y sus instituciones incluirán, en sus planes operativos anuales, las acciones contempladas en los planes de acción de la Política Nacional de Derechos Culturales y, en lo inmediato, aquellas establecidas en el Primer Plan de Acción 2014-2023.

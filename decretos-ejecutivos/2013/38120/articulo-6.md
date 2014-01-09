@@ -1,0 +1,1 @@
+Artículo 6º—El Poder Ejecutivo y sus instituciones, según sus competencias, ejecutarán la Política Nacional de Derechos Culturales y sus respectivos planes de acción, otorgándole nivel de prioridad y asignándole los recursos necesarios para garantizar su puesta en marcha y el alcance de los resultados previstos.
