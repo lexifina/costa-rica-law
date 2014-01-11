@@ -14,3 +14,4 @@ Reglamento sobre valores guía en suelos para descontaminación de sitios afecta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-11 | la propia norma |
+| 2 | 2014-01-11 | Decreto Ejecutivo 37847 (2013-07-11) |
