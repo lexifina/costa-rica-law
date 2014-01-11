@@ -14,3 +14,4 @@ Reglamento de Licencias municipales del Cantón de Quepos (Aguirre)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-20 | la propia norma |
+| 2 | 2014-01-11 | Reglamento municipal 356 (2014-01-11) |
