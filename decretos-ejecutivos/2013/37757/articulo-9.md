@@ -1,0 +1,4 @@
+Artículo 9º—Métodos de análisis y métodos de muestreo. Los muestreos y análisis de contaminantes en suelos o sedimentos, deberán ser realizados conforme a los procedimientos de muestreo y métodos analíticos recomendados por el profesional responsable, dando éste certeza de la cadena de custodia. Se guardará por el laboratorio una muestra testigo por un mínimo de treinta días en caso requerido.
+En caso de discrepancias o dudas sobre los resultados de una muestra, el Ministerio de Salud a nombre Estado determinará y contratará el laboratorio con métodos acreditados para resolver la discrepancia.
+En el caso de contaminación de aguas superficiales o subterráneas éstas se muestrearán y analizarán según métodos recomendados por el profesional responsable.
+Se aceptarán también los métodos de muestreo y ensayos acreditados por el ECA.

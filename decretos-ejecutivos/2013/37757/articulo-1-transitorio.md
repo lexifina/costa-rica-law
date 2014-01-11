@@ -1,0 +1,1 @@
+Transitorio único.—Las entidades que conforman el Comité Técnico sobre gestión de sitios contaminados tendrán un plazo de tres meses a partir de la promulgación del presente reglamento, para nombrar sus representantes, titular y suplente, lo que deberán comunicarlo a la autoridad competente del Ministerio de Salud.

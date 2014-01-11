@@ -1,0 +1,3 @@
+Artículo 10.—De los Laboratorios. Los métodos analíticos deben ser realizados por un laboratorio habilitado con permiso sanitario de funcionamiento otorgado por el Ministerio de Salud y deberán cumplir con lo establecido en la Ley N° 8279 sobre el Sistema Nacional para la Calidad, publicada en La Gaceta N° 96 de 21 de mayo de 2002.
+En caso de pruebas provenientes de laboratorios extranjeros, deberán adjuntar la documentación debidamente legalizada.
+En los casos que los muestreos y análisis sean contratados directamente por el Estado, estos deben ser realizados por laboratorios con ensayos acreditados.
