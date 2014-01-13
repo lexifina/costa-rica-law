@@ -1,0 +1,15 @@
+# Circular 7
+
+Aclaración de la circular N° 98-2013, sobre Información contenida en los dictámenes periciales
+
+- Tipo: Circular
+- Número: 7
+- Fecha: 2014-01-13
+- Ente emisor: Corte Suprema de Justicia
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=76815&param2=96034&param3=1 (ficha 76815)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2014-01-13 | la propia norma |
