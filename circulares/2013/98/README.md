@@ -13,3 +13,4 @@ Información contenida en los dictámenes periciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-28 | la propia norma |
+| 2 | 2014-01-13 | Circular 7 (2014-01-13) |
