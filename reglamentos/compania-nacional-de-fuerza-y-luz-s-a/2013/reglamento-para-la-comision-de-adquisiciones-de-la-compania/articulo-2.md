@@ -1,0 +1,4 @@
+Artículo 2º—La Comisión de Adquisiciones estará integrada por 5 miembros, con voz y voto: el Gerente General o su representante, quien actuará como presidente de la Comisión, el jefe de la Dirección Administrativa, el Jefe de la Dirección Producción y Desarrollo, el Jefe de la Sección Proveeduría, y el Director del área según corresponda la contratación.
+La asistencia a las sesiones de la Comisión será obligatoria salvo causa debidamente justificada, previa autorización del Gerente General. El titular será sustituido por quien esté nombrado como suplente por parte del Gerente General.
+La Comisión de Adquisiciones podrá convocar a sus sesiones o pedir informes o peritajes a cualquier funcionario de la CNFL, cuando lo requiera.
+Fungirá como asesor legal el jefe de la Asesoría Jurídica, o quien este(a) designe, el cual tendrá voz pero no voto.

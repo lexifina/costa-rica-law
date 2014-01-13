@@ -1,0 +1,1 @@
+Artículo 15.—Contra las resoluciones de adjudicación de la Comisión de Adquisiciones, cabrán los recursos ordinarios de revocatoria y apelación que deberán presentarse ante la Sección de Proveeduría dentro del tercero día hábil después de comunicada la adjudicación.
