@@ -16,3 +16,4 @@ PÉREZ ZELEDÓN, SEGÚN LEY 7169 DEL 26/06/1990,
 GACETA No. 144 DEL 01/08/1990).
 Céd. Jur 2-100-042002
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance digital N° 131 a La Gaceta N° 235 del 5 de diciembre de 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38142 del 13 de enero del 2014)
