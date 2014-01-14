@@ -1,1 +1,1 @@
-Artículo 11.—Si no se hubiere completado el quorum reglamentario a los treinta minutos después de la hora señalada para iniciar la sesión, los miembros presentes podrán ausentarse y tendrán derecho al pago de la dieta.
+Artículo 11.—Cuando un miembro tenga impedimento para asistir a una sesión lo avisará a la Secretaría del Consejo para los efectos correspondientes y podrá enviar opinión escrita sobre cualquier asunto en trámite.

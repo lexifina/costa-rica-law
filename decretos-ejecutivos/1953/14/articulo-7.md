@@ -1,1 +1,1 @@
-Artículo 7°—Cuando un miembro tenga impedimento para asistir a una sesión lo avisará al Oficial Mayor para los efectos correspondientes y podrá enviar opinión escrita sobre cualquier asunto en trámite.
+Artículo 7°—De acuerdo con el artículo 7° de la ley N° 1362 y sus reformas, los miembros del Consejo durarán cuatro años en sus funciones y no podrán ser reelegidos en forma consecutiva. Las vacantes serán llenadas en la misma forma expuesta en el artículo 5 del presente reglamento y por nuevos períodos completos.

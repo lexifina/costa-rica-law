@@ -1,1 +1,1 @@
-Artículo 9°—Cuando falta a la sesión un miembro propietario, será sustituido por un miembro suplente de los presentes, el que será designado siguiendo un orden convenido.
+Artículo 9°—El Consejo celebrará seis sesiones ordinarias por mes, para lo cual señalará los días y horas; así mismo, las sesiones extraordinarias para las que sea convocado por el Presidente o por al menos tres de sus miembros, quienes lo harán por escrito o por medio idóneo que garantice el fin perseguido, se indicará el motivo de la convocatoria y los asuntos que se han de tratar de manera exclusiva.

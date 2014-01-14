@@ -1,3 +1,1 @@
-Articulo 17.—Los miembros propietarios del Consejo Superior de Educación, que concurran a la sesión y los suplentes que sustituyan al propietario por su ausencia o llegada tardía, devengarán no más de cinco dietas al mes, por el mismo monto de las dietas de los miembros de la Junta Directiva del Banco Central.
-Los miembros suplentes que asistan a una sesión sin sustituir a un propietario, tendrán derecho a media dieta, y tendrán únicamente derecho a voz.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 27899 del 19 de abril de 1999, pero quedando sujeta al correspondiente contenido presupuestario.)
+Artículo 17.—Para alterar el orden del día de una sesión se requiere una mayoría de dos tercios del total de los miembros presentes.

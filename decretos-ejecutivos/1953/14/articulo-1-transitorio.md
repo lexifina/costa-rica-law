@@ -1,0 +1,1 @@
+Transitorio Único: El pago de las dietas a los miembros del Consejo Superior de Educación a la que hace referencia el artículo 20 del presente reglamento, se aplicará en forma retroactiva, hasta la entrada en vigencia de la ley 9126, publicada en el Alcance Nº 73, de La Gaceta Nº 76, del día 22 de abril del dos mil trece.

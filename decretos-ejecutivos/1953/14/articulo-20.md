@@ -1,10 +1,2 @@
-CAPÍTULO V
-Del Secretario
-Artículo 20.—El Consejo nombrará un Secretario General que durará en sus funciones dos años y podrá ser reelecto indefinidamente.
-Para ser Secretario General se requiere:
-a) Ser costarricense.
-b) Poseer plaza en propiedad en el Ministerio de Educación Pública.
-c) Haber desempeñado la docencia por lo menos por cinco años consecutivos.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 29942 del 24 de octubre de 2001)
-ch) Poseer título universitario.
-d) Conocer las funciones del Consejo Superior de Educación.
+Artículo 20.—Los miembros propietarios del Consejo, cuando asistan a las sesiones y los suplentes cuando sustituyan al propietario por su ausencia o llegada tardía, devengarán dietas, hasta por un máximo de seis al mes, por el mismo monto de las dietas de los miembros de la Junta Directiva del Banco Central. Dichas dietas se regirán por las demás disposiciones generales que regulan la materia.
+En el caso de los funcionarios públicos, podrán devengar dieta siempre y cuando no exista superposición horaria entre la jornada laboral y las sesiones.
