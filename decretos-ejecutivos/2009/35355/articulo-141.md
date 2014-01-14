@@ -1,2 +1,2 @@
-Artículo 141.—Rige. A partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República.—San José, a los dos días del mes de junio de 2009.
+Artículo 141.—De la Legislación Derogada por este Reglamento. Deróguese el Decreto Ejecutivo 31635-MEP, del 04 de febrero de 2004, así como los siguientes: Decreto Ejecutivo 32681-MEP del 22 de junio de 2005; Decreto Ejecutivo 32870-MEP del 13 de diciembre de 2005; Decreto Ejecutivo 32923-MEP del 09 de enero de 2006; Decreto Ejecutivo 32970-MEP del 27 de febrero de 2006; Decreto Ejecutivo 33393-MEP del 12 de setiembre de 2006; Decreto Ejecutivo 33546-MEP del 24 de enero de 2007; Decreto Ejecutivo 34449-MEP del 17 de abril de 2008; Decreto Ejecutivo 34886-MEP del 21 de noviembre de 2008 y Decreto Ejecutivo 35055-MEP del 18 de febrero de 2009.
+(Así corrida su numeración por el artículo 12 del decreto ejecutivo N° 38155 del 14 de enero del 2014, que lo traspasó del antiguo artículo 140 al 141)

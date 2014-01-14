@@ -1,4 +1,4 @@
-Artículo 15.—De los Deberes del Docente en Relación con la Evaluación de los Aprendizajes. El docente responsable y vinculado directamente con el estudiante en los procesos de aprendizaje, tiene en materia de evaluación las siguientes obligaciones éticas, profesionales y administrativas:
+Artículo 15.—De los Deberes del Docente en Relación con la Evaluación de los Aprendizajes. El docente responsable y vinculado directamente con el estudiante en sus procesos de aprendizaje, tiene en materia de evaluación las siguientes obligaciones éticas, profesionales y administrativas:
 a) Comunicar por escrito a sus estudiantes, en las primeras sesiones de trabajo del respectivo curso, los procedimientos y criterios, que se seguirán en materia de evaluación de los aprendizajes de los diferentes componentes de la calificación.
 b) Entregar a los estudiantes, por escrito y en forma detallada, los objetivos específicos y contenidos que serán medidos en las pruebas, con al menos ocho días naturales antes de la aplicación de las mismas.
 c) Confeccionar, de acuerdo con lineamientos técnicamente sustentados, las pruebas y otros instrumentos de medición y evaluación que aplicará al grupo o grupos que tiene a cargo.
@@ -14,7 +14,8 @@ l) Informar, mediante el Cuaderno de Comunicaciones u otro medio escrito durante
 m) Informar y explicar oportunamente a los interesados el desglose de los promedios de cada período y el promedio anual.
 n) Registrar la puntualidad y la asistencia diaria y acumulativa de los estudiantes.
 o) Consignar la justificación de las llegadas tardías y de las ausencias de aquellos estudiantes que así lo planteen por escrito.
-p) Elaborar las pruebas de ampliación y entregarlas a la Dirección del Centro Educativo con los respectivos solucionarios, en la semana siguiente a la finalización del curso lectivo.
+p) Informar y explicar oportunamente a los interesados el desglose de las calificaciones de cada período y el promedio anual. En el primer año de la Educación General Básica, elaborar el Informe Cualitativo de Desempeño del estudiante.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38155 del 14 de enero del 2014)
 q) Administrar y calificar las pruebas de ampliación, de los estudiantes a su cargo las que, una vez calificadas y analizadas con los estudiantes, deberá entregar a la Dirección del Centro Educativo para su custodia.
 r) Entregar al Comité de Evaluación, después de aplicada la prueba y cuando éste lo solicite, una copia de la prueba u otros instrumentos de medición aplicados al grupo o grupos a cargo. El plazo máximo de entrega es de tres días hábiles.
 s) Portar y utilizar durante sus lecciones los instrumentos para el registro de información en relación con el proceso evaluativo.

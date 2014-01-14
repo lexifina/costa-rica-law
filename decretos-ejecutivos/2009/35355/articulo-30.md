@@ -1,10 +1,10 @@
-Artículo 30.—Del valor porcentual de cada uno de los componentes de la calificación. La calificación de los aprendizajes del estudiante en cada asignatura, excepto conducta será el resultado de la suma de los siguientes valores porcentuales:
-a) En el primer año del I Ciclo de la Educación General Básica, en las asignaturas de Matemática, Estudios Sociales, Ciencias, Español, Lengua Extranjera y Lengua Indígena el valor porcentual es el siguiente:
-Trabajo Cotidiano | 50%
-Trabajo Extraclase | 10%
-Pruebas (mínimo dos) | 30%
-Concepto | 5%
-Asistencia | 5%
+Artículo 30.—Del valor porcentual de cada uno de los componentes de la calificación. La calificación de los aprendizajes del estudiante en cada asignatura, será el resultado de la suma de los siguientes valores porcentuales:
+a) En el primer año para todas las asignaturas, la evaluación de los componentes tendrá carácter formativo, y se tomará como insumo para la elaboración del Informe Cualitativo de Desempeño del estudiante, los siguientes componentes:
+- Trabajo Cotidiano
+- Trabajo Extraclase
+- Pruebas
+- Asistencia
+(Así reformado el inciso a) anterior por el artículo 6° del decreto ejcutivo N° 38155 del 14 de enero del 2014)
 b) En el segundo y tercer año del I Ciclo de la Educación General Básica, en las asignaturas Matemática, Estudios Sociales, Ciencias, Español, Lengua Extranjera y Lengua Indígena:
 Trabajo Cotidiano | 40%
 Trabajo Extraclase | 10%

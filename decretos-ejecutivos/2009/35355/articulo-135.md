@@ -1,3 +1,2 @@
-SECCIÓN II
-Objeciones y Recursos
-Artículo 135.—De las Divergencias o Conflictos. A las divergencias o conflictos que se suscitaren entre docentes y alumnos o entre los docentes y los padres de familia o encargados, dentro del proceso de evaluación o con motivo de la aplicación del presente Reglamento, se procurará encontrarles solución en consonancia con los principios y fines de la educación, con la materia aquí regulada y con la rectitud y buena fe con que deben actuar las partes involucradas en ese proceso.
+Artículo 135.—De la Entrevista Personal. Por entrevista personal se entenderá el acto en que el educador o los funcionarios competentes de la institución, intercambian verbalmente con los padres de familia o encargados información relativa al estudiante, con el propósito de que la institución y el hogar unan sus esfuerzos, con miras a las modificaciones de conducta que el estudiante requiera. Las comunicaciones telefónicas no tendrán este carácter.
+(Así corrida su numeración por el artículo 12 del decreto ejecutivo N° 38155 del 14 de enero del 2014, que lo traspasó del antiguo artículo 134 al 135)
