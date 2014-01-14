@@ -1,0 +1,1 @@
+Artículo 9º—Cantidad de folios. La cantidad de folios que componen el libro, será la que se estime, para que permita por un tiempo razonable, el uso del libro a autorizar, debiendo ser el último folio un múltiplo de diez, excepto en casos muy calificados y consultando previamente el criterio de la Auditoría Interna.

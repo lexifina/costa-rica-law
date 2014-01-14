@@ -1,0 +1,1 @@
+Artículo 15.—Devolución de libros legalizados. La Auditoría Interna será la encargada de la devolución de los libros, ya legalizados, al departamento correspondiente en un plazo no mayor de 5 días hábiles, después de recibida la solicitud.

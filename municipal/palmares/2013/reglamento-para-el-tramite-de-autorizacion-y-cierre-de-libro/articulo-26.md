@@ -1,0 +1,4 @@
+CAPÍTULO SÉTIMO
+Libros de actas de sesiones del Concejo Municipal,
+Comisiones del Concejo Municipal y otros
+Artículo 26.—Libros de Actas del Concejo Municipal, Comisiones y otros. El proceso de apertura, autorización, reposición y en general el manejo de los libros de las actas de las sesiones del Concejo Municipal, de las Comisiones nombradas en el seno del mismo (Comisiones del Concejo) y otros, se regirán por lo indicado en el presente reglamento.

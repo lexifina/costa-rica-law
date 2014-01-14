@@ -1,0 +1,2 @@
+Artículo 13.—Empaste de folios (hojas sueltas). Para llevar a cabo la razón de cierre de las hojas sueltas o fórmula continua, es necesaria la encuadernación previa.
+Será responsabilidad de la persona encargada de llevar el libro a empastar, verificar que no se hayan desprendido hojas o alterado de cualquier manera la encuadernación o foliación de los libros. Si se comprueba alguna anomalía u observación a la hora de hacer el cierre, la Auditoría Interna, procederá a emitir las observaciones correspondientes, sin detrimento a otras medidas de control y fiscalización.

@@ -1,0 +1,2 @@
+Artículo 4º—Contenido y ámbito de aplicación. Este reglamento establece los criterios mínimos que deben observar los departamentos y órganos adscritos a la Municipalidad de Palmares, para la solicitud de autorización y cierre de libros de actas, de contabilidad, de tesorería y otros libros a legalizar, por parte de la Auditoría Interna.
+Todo lo anterior de conformidad con el bloque de legalidad, la necesidad de la unidad que solicita la legalización y según el criterio de la Auditoría Interna.

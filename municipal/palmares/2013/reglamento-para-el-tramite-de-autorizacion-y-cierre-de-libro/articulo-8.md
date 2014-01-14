@@ -1,0 +1,1 @@
+Artículo 8º—Presentación de folios (hojas sueltas). Se presenta la solicitud y se adjuntan las hojas en blanco tamaño carta o legal, debidamente numeradas (foliadas) en orden ascendente, en cada folio deberá tener impreso el nombre de la Institución y/o el logotipo y nombre de la dependencia u órgano que forma parte de la Municipalidad de Palmares.

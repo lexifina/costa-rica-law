@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este documento forma parte de la documentación del Proceso de Legalización de Libros de la Auditoría Interna de la Municipalidad de Palmares; así como de los lineamientos dictados por la Contraloría General de la República.
