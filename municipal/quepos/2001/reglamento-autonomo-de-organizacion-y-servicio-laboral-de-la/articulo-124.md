@@ -1,1 +1,1 @@
-Artículo 124.—La Municipalidad de Aguirre se compromete a cancelar a más tardar en la segunda semana del mes de enero de cada año, La suma correspondiente a un mes, del salario base de cada trabajador, sin deducciones de cargas sociales, siendo esto no un ahorro, si no un beneficio más, para el empleado, el cual se conocerá como salario escolar y se presupuestará previamente en todos los presupuestos ordinarios anuales.
+Artículo 124.—(Derogado mediante sesión ordinaria N° 340-2014 del 14 de enero del 2014)

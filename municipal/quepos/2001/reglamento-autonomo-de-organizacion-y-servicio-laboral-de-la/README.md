@@ -15,3 +15,4 @@ Reglamento autónomo de organización y servicio laboral de la Municipalidad de 
 | --- | --- | --- |
 | 1 | 2001-05-03 | la propia norma |
 | 2 | 2002-10-22 | Reglamento municipal 0 (2002-10-22) |
+| 3 | 2014-01-14 | Reglamento municipal 340 (2014-01-14) |

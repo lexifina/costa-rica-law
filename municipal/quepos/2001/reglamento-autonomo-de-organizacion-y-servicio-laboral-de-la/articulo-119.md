@@ -1,1 +1,1 @@
-Artículo 119.—Gozaran del beneficio de la disponibilidad, los funcionarios que ejercen cargo de Jefatura.
+Artículo 119.—(Derogado mediante sesión ordinaria N° 340-2014 del 14 de enero del 2014)
