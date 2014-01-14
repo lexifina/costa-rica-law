@@ -1,0 +1,1 @@
+Artículo 2º—Una vez recibidos los requisitos de inscripción a satisfacción del Colegio, el Jurado Calificador deberá fijar fecha efectiva para la aplicación del examen de suficiencia teórico-práctico dentro de un plazo no mayor a seis meses.

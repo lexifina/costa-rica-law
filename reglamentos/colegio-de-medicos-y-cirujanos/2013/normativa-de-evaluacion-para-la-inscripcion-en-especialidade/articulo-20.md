@@ -1,0 +1,3 @@
+Artículo 20.—El examen de suficiencia teórico-práctico se rige por las normas del Código de Ética Médica. El solicitante que sea sorprendido copiando o realizando algún tipo de fraude, se hace acreedor a que se le retire el examen y se le califique con un 0%. Esta medida es independiente de las medidas disciplinarias a que se haga acreedor el médico por el fraude cometido.
+Artículo 20.—El solicitante que no se presente a la aplicación del examen de suficiencia teórico-práctico, en la fecha, lugar y hora, establecida por el Jurado Calificador, se le reportará la evaluación con reprobada.
+(Nota de Sinalevi: En la publicación de esta normativa se consigna dos veces el artículo N° 20)

@@ -1,0 +1,1 @@
+Artículo 27.—Para el cobro efectivo del pago a los miembros del Jurado Calificador, deberán aportar cuenta bancaria y recibo timbrado a la Dirección Académica para que gestione el pago ante el Departamento Financiero-Contable.

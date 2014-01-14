@@ -1,0 +1,1 @@
+Artículo 8º—El Colegio de Médicos y Cirujanos, notificará a los miembros del jurado calificador su designación como tales. Los miembros del jurado calificador tienen un plazo de tres (3) días hábiles posterior a dicha notificación para declinar su nombramiento, presentando la debida justificación.

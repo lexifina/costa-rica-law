@@ -1,0 +1,1 @@
+Artículo 14.—La fecha, lugar y hora del examen de suficiencia teórico-práctico, no puede modificarse a petición del solicitante, sin una causa debidamente justificada y autorizada por la Junta de Gobierno.

@@ -1,0 +1,1 @@
+Artículo 7º—El Colegio de Médicos y Cirujanos, nombrará un miembro suplente del Jurado Calificador, para que sustituya en caso de una eventualidad a alguno de los miembros establecidos en al artículo anterior, el cual debe ser médico especialista o subespecialista según corresponda a la solicitud presentada.

@@ -1,0 +1,1 @@
+Artículo 5º—Solo la Junta de Gobierno, está facultada y tiene potestad legal, para aprobar o denegar las solicitudes de inscripción al Colegio de Médicos y Cirujanos. Pero podrá delegar en la Dirección Académica la gestión de esta normativa de evaluación.

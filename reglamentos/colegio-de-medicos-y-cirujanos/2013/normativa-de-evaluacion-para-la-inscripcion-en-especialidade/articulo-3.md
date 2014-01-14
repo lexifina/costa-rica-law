@@ -1,0 +1,1 @@
+Artículo 3º—El Colegio de Médicos y Cirujanos, tiene un plazo para emitir resolución final sobre la solicitud de inscripción presentada, de dos (2) meses contados a partir de la notificación oficial por parte del Jurado Calificador de las calificaciones obtenidas por el solicitante en el examen de suficiencia teórico-práctico.

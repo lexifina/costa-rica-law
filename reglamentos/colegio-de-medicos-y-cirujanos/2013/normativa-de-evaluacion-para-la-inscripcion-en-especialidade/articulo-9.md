@@ -1,0 +1,1 @@
+Artículo 9º—Posterior al nombramiento y aceptación de los miembros del jurado calificador. El Colegio de Médicos y Cirujanos, notificará al solicitante la conformación del Jurado Calificador ante el cual se someterá a examen de suficiencia teórico-práctico.

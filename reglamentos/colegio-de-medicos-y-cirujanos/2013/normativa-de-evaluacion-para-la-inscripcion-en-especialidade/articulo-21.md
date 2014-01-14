@@ -1,0 +1,1 @@
+Artículo 21.—En caso de no aprobar el examen de suficiencia teórico-práctico deberán transcurrir al menos seis (6) meses entre la fecha de resolución final de la prueba presentada y la nueva solicitud de examen, hasta su aprobación efectiva.

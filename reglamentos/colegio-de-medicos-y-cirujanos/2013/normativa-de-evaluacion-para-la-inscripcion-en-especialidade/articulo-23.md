@@ -1,0 +1,1 @@
+Artículo 23.—El examen de suficiencia teórico-práctico, es material confidencial y propiedad del Colegio de Médicos y Cirujanos. Los solicitantes tienen derecho a revisar el examen de suficiencia teórico-práctico pero no a reproducirlo por ningún medio.

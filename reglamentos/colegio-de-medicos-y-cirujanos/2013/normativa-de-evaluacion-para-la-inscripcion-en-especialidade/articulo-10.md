@@ -1,0 +1,1 @@
+Artículo 10.—El miembro de Jurado Calificador, con mayor cantidad de años de experiencia en la especialidad o subespecialidad médica, será designado como Coordinador del mismo. En el caso de que por motivos justificables dicha designación sea rechazada, se procederá a nombrar de oficio un Coordinador a criterio del Colegio de Médicos y Cirujanos.

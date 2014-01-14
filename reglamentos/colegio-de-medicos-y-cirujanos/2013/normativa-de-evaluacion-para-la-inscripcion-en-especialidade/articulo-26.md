@@ -1,0 +1,1 @@
+Artículo 26.—Si al examen de suficiencia teórico-práctico se presenta más de un solicitante, a los miembros de Jurado Calificador se les remunerará con un 50% adicional del monto establecido en el artículo anterior por cada examinado extra.

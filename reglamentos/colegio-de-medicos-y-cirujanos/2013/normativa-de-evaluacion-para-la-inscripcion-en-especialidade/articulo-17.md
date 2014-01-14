@@ -1,0 +1,2 @@
+Artículo 17.—El examen de suficiencia parte práctica, tiene como objetivo valorar las competencias para el ejercicio profesional del solicitante. Las instrucciones del examen y la metodología de evaluación, deben ser explicadas claramente al solicitante previo a la realización del mismo.
+a) La metodología de evaluación, puede variar según las características de cada especialidad o subespecialidad médica, sin embargo se deben contemplar al menos los parámetros contenidos en el Anexo Nº 2.
