@@ -1,1 +1,0 @@
-Artículo 4º—Delegación: Delegar formalmente la firma de las actas finales de traslado, donaciones y bajas de bienes de la Administración Central y Tribunal Administrativo Migratorio, en la Licenciada Marcela Chacón Castro, Viceministra del Ministerio de Gobernación y Policía.
