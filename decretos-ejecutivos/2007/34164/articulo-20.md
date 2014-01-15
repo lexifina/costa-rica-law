@@ -1,1 +1,0 @@
-Artículo 20.—Quedarán exentas del pago de la tarifa del artículo 17, las investigaciones promovidas por el Sistema Nacional de Áreas de Conservación y definidas como de prioridad para el manejo de la biodiversidad o la administración del área silvestre protegida por el Área de Conservación respectiva.

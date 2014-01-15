@@ -1,1 +1,0 @@
-Artículo 21.—Previo a efectuar cualquier labor de investigación en un área silvestre, el investigador deberá cumplir con todos los requisitos establecidos en la Ley de Conservación de Vida Silvestre, la Ley de Biodiversidad y la reglamentación existente en el Sistema Nacional de Áreas de Conservación, para estos casos.
