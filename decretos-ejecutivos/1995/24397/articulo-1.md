@@ -24,3 +24,5 @@ p) Tribunal Aduanero Nacional
 q) Tribunal Fiscal Administrativo
 r) Dirección General de Auditoría Interna
 (Así reformado por el artículo 1° del decreto ejecutivo N° 35713 del 2 de diciembre de 2009)
+s) Unidad de Asuntos Internacionales del Ministerio de Hacienda.
+(Así adicionado el inciso anterior por el artículo 6° del decreto ejecutivo N° 38148 del 15 de enero del 2014, "Crea la Unidad de Asuntos Internacionales del Ministerio de Hacienda y reforma los decretos N°24397 "Reorganiza Dependencias del Ministerio de Hacienda" y N° 35688 "Reglamento de Organización y Funciones de la Dirección General de Tributación Directa")
