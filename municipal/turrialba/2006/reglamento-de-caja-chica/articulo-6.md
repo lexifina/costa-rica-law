@@ -1,2 +1,2 @@
-Artículo 6º—Ningún pago por Caja Chica podrá exceder dos salarios base de oficinista municipal.
-(Así reformado en sesión N° 126 de 23 de setiembre de 2008).
+Artículo 6º—Se establece un Fondo de Caja Chica para servicio de la Municipalidad de Turrialba, cuyo monto será de veinte salarios bases de oficinista municipal..
+(Así reformado mediante sesión 52 del 24 de abril de 2007)
