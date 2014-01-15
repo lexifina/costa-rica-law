@@ -1,8 +1,0 @@
-Artículo 8º—Tareas. Para el logro de los objetivos esta comisión realizará las siguientes tareas:
-a) Elaborar un plan de acción de Promoción de la Salud, con carácter nacional e intersectorial, con metas definidas para cada una de las instituciones representadas, en forma individual y de la comisión como un todo.
-b) Identificar necesidades de investigación en el campo de la salud y proponer la ejecución de las mismas a universidades, institutos de investigación y otros de forma que permita medir la inversión en salud y el logro de la equidad, el logro al respeto de los derechos individuales y colectivos y la participación social.
-c) Coordinar con las instancias correspondientes para la incorporación de los resultados de las investigaciones a los planes programas o proyectos de promoción de la salud locales, regionales o nacionales.
-d) Proponer al Ministro de Salud la creación de normas, leyes, decretos y reglamentos para el desarrollo de acciones en promoción de la salud.
-e) Proponer y apoyar el desarrollo de programas educativos para la incorporación de estilos de vida saludables en alimentación, actividad física, salud mental, salud sexual y reproductiva, tabaquismo, alcoholismo y otros tipos de adicciones.
-f) Proponer y apoyar el desarrollo de programas de comunicación en salud, para la incorporación de estilos de vida saludables en la población, de acuerdo a prioridades establecidas.
-g) Para el desempeño de sus funciones, la Comisión podrá nombrar subcomisiones en temas específicos: como actividad física, alimentación saludable, escuelas promotoras de salud, Centros de trabajo saludables, Cantones ecológicos y saludables y otros que se consideren necesarios.

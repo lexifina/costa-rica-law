@@ -1,1 +1,0 @@
-Artículo 6º—Asesoría. La Comisión contará con la asesoría en promoción de la salud de parte de la Organización Panamericana de la Salud y de la Organización Mundial de la Salud OPS/OMS por intermedio de su representación en Costa Rica.

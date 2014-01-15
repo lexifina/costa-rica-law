@@ -1,1 +1,0 @@
-Artículo 4º—Adscripción. Esta Comisión estará adscrita a la Dirección Desarrollo de la Salud del Ministerio de Salud y bajo la coordinación de la Unidad de Promoción de la Salud, donde estará ubicada la secretaría ejecutiva.

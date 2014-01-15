@@ -1,1 +1,0 @@
-Artículo 2º—Del objetivo. La Comisión Nacional de Promoción de la Salud es constituida con el fin de integrar esfuerzos, recursos y metas para asegurar el logro de la equidad, los derechos y la participación social, mediante el desarrollo coordinado de acciones de promoción de la salud, encargada de dirigir y coordinar las acciones en este campo.
