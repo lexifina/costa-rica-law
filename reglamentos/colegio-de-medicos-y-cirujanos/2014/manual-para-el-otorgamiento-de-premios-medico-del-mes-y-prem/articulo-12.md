@@ -1,0 +1,1 @@
+Artículo 12.—Del Patrocinio: Queda abierta la posibilidad para que Instituciones Públicas o privas prestadoras de servicios médicos o bien centros universitarios públicos o privados de enseñanza de la medicina puedan optar por presentar candidaturas y patrocinar el premio; en este caso ni la postulación ni el eventual patrocinio deberán influir en la escogencia de los candidatos.

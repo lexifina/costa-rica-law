@@ -1,0 +1,1 @@
+Artículo 3º—Postulantes: Los candidatos deben ser Médicos y Cirujanos incorporados al Colegio de Médicos y Cirujanos de Costa Rica, que se encuentren activos y al día con sus obligaciones económicas con el colegio y no estén suspendidos en el ejercicio de su profesión.

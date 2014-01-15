@@ -1,0 +1,1 @@
+Artículo 5º—De la presentación de candidaturas: Los candidatos deberán ser presentados mediante un escrito dirigido a la Junta de Gobierno en sobre cerrado en cuyo exterior indique la mención honorifica a participar, dentro del sobre deberá consignarse el currículum y los documentos y los datos de localización de las personas que se citan como referencia.
