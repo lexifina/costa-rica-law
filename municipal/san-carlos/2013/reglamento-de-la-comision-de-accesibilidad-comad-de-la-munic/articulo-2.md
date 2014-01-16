@@ -1,0 +1,3 @@
+CAPÍTULO II
+Atribuciones
+Artículo 2º—La Comisión Municipal de Accesibilidad (COMAD) es una instancia generadora de propuestas de políticas, planes, proyectos, acciones y estrategias, relacionadas con el proceso de equiparación de oportunidades para las personas con discapacidad, las cuales deben someterse a la aprobación del Concejo Municipal y ser ejecutadas por parte de la Administración Municipal, por medio de las diferentes dependencias municipales según sus competencias, y en coordinación con otras entidades públicas y privadas presentes en el cantón. La Gaceta N° 219 - Martes 15 de noviembre del 2011. Pág. 17.

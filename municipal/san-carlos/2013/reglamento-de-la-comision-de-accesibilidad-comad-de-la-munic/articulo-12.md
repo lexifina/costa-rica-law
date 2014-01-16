@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la publicidad y divulgación de las gestiones
+de la COMAD y el gobierno local
+Artículo 12.—La Municipalidad dispondrá un blog en su página web para información relacionada con la labor de la COMAD, avances del proceso de equiparación de oportunidades, y recepción de inquietudes de parte de la ciudadanía, relacionadas con las condiciones de accesibilidad de las comunidades y los servicios públicos, el quehacer de la COMAD y las responsabilidades municipales en materia de accesibilidad. Para lo anterior, la secretaria del Concejo Municipal remitirá a la Administración Municipal todos los acuerdos relacionados con este tema, y aquellos originados de los informes de la COMAD, a efectos de que la Administración, proceda a remitirlos al funcionario que ésta haya designado para que actualice la información en el sitio WEB.

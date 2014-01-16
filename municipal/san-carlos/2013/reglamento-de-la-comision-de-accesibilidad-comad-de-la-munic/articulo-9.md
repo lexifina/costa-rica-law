@@ -1,0 +1,1 @@
+Artículo 9º—La COMAD podrá sesionar en el Salón de Sesiones del Concejo Municipal, y en otros espacios dispuestos para tal fin, en el horario y fechas que se disponga en el seno de esta comisión. De igual manera podrán hacer uso de los equipos tecnológicos con que cuenta dicha instalación municipal.

@@ -1,0 +1,1 @@
+Artículo 8º—La COMAD se reunirá ordinariamente una vez al mes y extraordinariamente las veces que sea necesario, en virtud de los asuntos que le sean trasladados desde el Concejo Municipal o la Administración Municipal, o bien de la programación y ejecución de sus actividades propias.
