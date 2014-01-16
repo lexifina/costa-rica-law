@@ -1,0 +1,1 @@
+Artículo 3º—De previo a la conformación de la Comisión de Traspaso de Poderes adscrita al Ministerio de Relaciones Exteriores y Culto, este Ministerio de Relaciones Exteriores y Culto coordinará y será el enlace logístico para atender los actos y ceremonias relativos a la Transmisión de Mando Presidencial, del 08 de mayo del 2014.
