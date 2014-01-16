@@ -34,5 +34,5 @@ XIII— Que el Tribunal Contencioso Administrativo y Civil de Hacienda, Sección
 DECRETAN:
 ELIMINACIÓN DEL ESQUEMA DE FIJACIÓN DE PRECIOS Y
 TRANSICIÓN HACIA UN MECANISMO ALTERNATIVO
-Artículo 1º— Artículo 1º—Se establece de conformidad con los Considerandos VIII y IX del presente Decreto, un precio de ₡22.604,41 por saco de granza seca y limpia de 73.6 kilogramos con 13% de humedad y 1.5% de impurezas, el cual quedará sin efecto a partir del 1 de setiembre de 2014.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 38093 del 20 de diciembre del 2013)
+Artículo 1º— Se establece de conformidad con los Considerandos VIII y IX del presente Decreto, un precio de ¢22.604,41 por saco de granza seca y limpia de 73.6 kilogramos con 13% de humedad y 1.5% de impurezas, el cual quedará sin efecto a partir del 1° de marzo de 2015, fecha en que ha finalizado la totalidad de la cosecha del 2014 e inicio de la primera cosecha del año 2015”.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38143 del 16 de enero del 2014)
