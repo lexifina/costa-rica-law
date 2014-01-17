@@ -1,6 +1,7 @@
 Artículo 32- El AyA declarará incobrables todas aquellas cuentas por cobrar que no hayan sido posible recuperar por medio del cobro administrativo y/ o judicial, que presentan las siguientes condiciones:
 a) Atendiendo a la relación costo/beneficio del proceso cobratorio con respecto a la deuda, se podrán trasladar a incobrables las cuentas por cobrar, que cumplan de manera concurrente, con los siguientes requisitos:
-i. Servicios con deudas que no sobrepasen el monto determinado por el estudio económico costo/beneficio emitido por la Dirección Financiera.
+i. Servicios con deudas que no sobrepasen el monto determinado por el estudio económico costo/beneficio emitido en conjunto por la Gerencia General, la Dirección Jurídica, Dirección Comercial y coordinado por la Dirección Financiera.
+(Así reformado el inciso i) anterior mediante acuerdo N° 2013-457 publicado en La Gaceta N° 12 del 17 de enero del 2014)
 ii. Las deudas deberán tener una antigüedad superior a los 365 días de facturadas.
 iii. El servicio se encuentre suspendido. Si el servicio se encuentra activo, el área correspondiente deberá certificar las razones técnicas y/o legales que impiden la suspensión del mismo.
 iv. Resolución administrativa del Área de Cobros correspondiente, que acredite las diversas gestiones cobratorias, realizadas en forma diligente, sin que se haya recuperado la deuda y que por costo/beneficio, resulta antiproducente para las finanzas, continuar con el trámite judicial respectivo.
