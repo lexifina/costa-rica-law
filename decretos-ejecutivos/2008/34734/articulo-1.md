@@ -1,4 +1,6 @@
+(Derogado)
 N° 34734-MTSS
+(Este decreto ejecutivo fue derogado por el artículo 6° del decreto ejecutivo N° 38255 del 17 de enero del 2014 "Reglamenta los trámites que deben cumplir las asociaciones cooperativas en formación para su inscripción y la autorización de su personería jurídica ante el Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social")
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
 En uso de las facultades conferidas al Poder Ejecutivo en los artículos 140 incisos 3) y 18), y el 146 de la Constitución Política, y de conformidad con lo dispuesto en el numeral 32 inciso a) de la Ley de Asociaciones Cooperativas y creación del INFOCOOP, Nº 4179 de 22 de agosto de 1968.

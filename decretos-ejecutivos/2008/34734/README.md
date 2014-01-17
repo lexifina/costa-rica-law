@@ -14,3 +14,4 @@ Reglamenta los trámites que deben cumplir las asociaciones cooperativas en form
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-18 | la propia norma |
+| 2 | 2014-01-17 | Decreto Ejecutivo 38255 (2014-01-17) |
