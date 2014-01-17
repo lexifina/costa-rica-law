@@ -1,0 +1,3 @@
+ECONOMÍA, INDUSTRIA Y COMERCIO
+INFORMA
+Que mediante Resolución del 7 de noviembre del 2013, del Tribunal Contencioso Administrativo del Segundo Circuito Judicial de San José, expediente judicial número 13-003405-1027-CA-2, se levanta la medida cautelar provisionalísima dictada en mayo del presente año por este Tribunal en relación con el Reglamento Técnico “RTCR 452:2011 Barras y Alambres de Acero de Refuerzo para Concreto. Especificaciones” (Decreto Ejecutivo Nº 37341-MEIC y sus reformas). Lo anterior, en virtud del acuerdo conciliatorio suscrito por la Cámara Costarricense de la Construcción y este Ministerio, lo que hace que a partir de esa fecha, el citado Reglamento Técnico se encuentra vigente.—San José, 19 de noviembre del 2013.—
