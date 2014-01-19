@@ -1,4 +1,7 @@
-Artículo 8º—El Consejo sesionará ordinariamente dos veces al mes y en forma extraordinaria cuando las circunstancias así lo requieran, con un máximo de remuneración por concepto de dietas de hasta cuatro sesiones mensuales.
-Las sesiones serán convocadas par el presidente o quien lo sustituyere en caso de ausencia justificada.
-Los acuerdos se tomarán por mayoría simple de los Directores y, en caso de empate decidirá el presidente, quien para el efecto tendrá doble voto.
-El mínimo para formar quórum será de cuatro Directores. En la primera sesión posterior a la elección de cada período anual se fijarán el día y la hora para las sesiones. El fiscal no hace quórum.
+SECCIÓN II
+Del Consejo de Administración
+Artículo 8º—
+a. El FASMU es un ente adscrito a la Junta Directiva del Colegio y su dirección estará a cargo de un Consejo de Administración, compuesto por seis Directores: Presidente, Secretario, Tesorero, tres Vocales y un Fiscal con voz pero sin voto; quienes deberán ser mutualistas activos.
+b. Los Vocales suplirán temporalmente, a los demás miembros, excepto al Fiscal, cuando éstos por razones de fuerza mayor, deban ausentarse del Consejo, por un plazo que no podrá exceder a los tres meses calendario.
+c. La elección de Directores del Consejo de Administración, se llevará a cabo en Asamblea General de Mutualistas, que se celebrará según lo dispuesto en el artículo 5º de este Reglamento.
+d. En caso de renuncia de dos o más miembros del Consejo de Administración, la Junta Directiva del Colegio convocará a Asamblea Extraordinaria en el momento que considere oportuno para la elección de estos miembros.

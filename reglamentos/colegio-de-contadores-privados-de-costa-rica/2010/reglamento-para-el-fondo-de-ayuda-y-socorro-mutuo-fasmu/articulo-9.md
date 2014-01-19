@@ -1,4 +1,1 @@
-SECCIÓN II
-Del Consejo de Administración
-Artículo 9º—Por cada sesión a la que asistan los Directores del Consejo devengarán el 75% (setenta y cinco por ciento) de la dieta que reciben por el mismo concepto los Directores de la Junta Directiva del Colegio.
-(Corregido mediante Fe de Erratas, y publicada en La Gaceta Nº 109 del 7 de junio del 2010)
+Artículo 9º—Los miembros del Consejo de Administración, ejercerán sus funciones por un período de dos años, contados a partir de su elección y se renuevan parcialmente de la siguiente manera: El Presidente, el Secretario y el Fiscal, en los años pares. El Tesorero, y los vocales uno, dos y tres, en los años impares. Todos los miembros podrán ser reelectos.

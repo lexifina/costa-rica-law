@@ -1,7 +1,3 @@
 SECCIÓN III
-Adelanto en Vida a Mutualistas Mayores
-de Sesenta y Cinco Años y Veinte Años
-de Pertenecer Ininterrumpidamente
-al FASMU
-Artículo 20.—El mutualista mayor de sesenta y cinco años y 20 años de pertenecer al FASMU, tendrá derecho, por una sola vez, a un adelanto en vida equivalente a un monto del 5 % del beneficio por defunción.
-Dicho adelanto será deducido del monto que se gire al fallecer el mutualista.
+Adelanto en Vida por Enfermedad en Fase Terminal
+Artículo 20.—Cuando se presente un caso de una enfermedad en fase terminal, debidamente certificada por una autoridad competente, se otorgará un adelanto equivalente a 25% del auxilio básico que le correspondería al mutualista de conformidad con el artículo tres, el cual se hará efectivo mediante un solo pago. Este adelanto se deducirá del monto que se gire al fallecer el mutualista.

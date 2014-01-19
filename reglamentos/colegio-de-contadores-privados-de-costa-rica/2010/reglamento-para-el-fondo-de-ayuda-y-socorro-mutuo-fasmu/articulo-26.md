@@ -1,2 +1,6 @@
-Artículo 26.—Para cubrir la indemnización por incendio se creará un fondo, mediante un aporte mensual por parte de cada mutualista.
-Si la reserva indica que el monto disponible supera las necesidades para el otorgamiento de este beneficio, con base en una baja siniestralidad, el excedente pasará a formar parte de la reserva general del FASMU.
+Artículo 26.—En caso de incendios múltiples los montos de los beneficios que se giren acumulativamente, no podrán ser mayores al 50% de la reserva para incendio, cuando el número de siniestros provoquen que el monto de los beneficios a otorgar supere el 50% de la reserva citada, estos se obtendrán mediante prorrateo:
+a. De hasta doce cuotas mensuales, recibirá el 20%.
+b. De trece a treinta y seis cuotas mensuales, recibirá el 30%.
+c. De treinta y siete a sesenta cuotas mensuales, recibirá el 50%.
+d. De sesenta y un cuotas mensuales en adelante, recibirá el 100%.
+En ningún caso, se tomarán en cuenta los aportes pagados por adelantado para determinar el derecho a este beneficio económico.

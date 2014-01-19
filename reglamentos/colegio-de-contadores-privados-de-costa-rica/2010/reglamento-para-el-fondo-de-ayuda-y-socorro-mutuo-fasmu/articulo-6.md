@@ -1,4 +1,8 @@
-SECCIÓN II
-Del Consejo de Administración
-Artículo 6º—El FASMU es un ente adscrito a la junta directiva del Colegio, y su dirección estará a cargo de un Consejo, compuesto por seis directores: presidente, secretario, tesorero, tres vocales y un fiscal. Los vocales suplirán en sus ausencias temporales a los demás directores, excepto al fiscal.
-La elección de los Directores del Consejo de Administración se llevará a cabo en asamblea General de mutualistas que se celebrará según lo dispuesto en el artículo 5 de este Reglamento.
+Artículo 6º—Para garantizar el sostenimiento financiero del FASMU la cuota variará según la edad de ingreso al mismo, de la siguiente forma:
+- 45 años o menos: cuota básica vigente.
+- más de 45 años y un día a 50 años cumplidos: cuota básica vigente más el 50% de la misma.
+- más de 50 años y un día a 55 años cumplidos: cuota básica vigente más el 75% de la misma.
+- más de 55 años y un día a 60 años: cuota básica vigente más el 100% de la misma.
+- más de 60 años y un día a 65 años: cuota básica vigente más el 150% de la misma.
+- más de 65 años y un día a 70 años: cuota básica vigente más el 200% de la misma.
+- de 70 años y un día en adelante: cuota básica vigente más el 300% de la misma.

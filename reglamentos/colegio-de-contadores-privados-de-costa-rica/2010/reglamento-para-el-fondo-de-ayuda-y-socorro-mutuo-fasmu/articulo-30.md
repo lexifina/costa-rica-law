@@ -1,1 +1,3 @@
-Artículo 30.—Es procedente la actualización de beneficiarios en la fórmula oficial vigente, debidamente firmada por el mutualista la cual será, verificada por la administración del FASMU. En ausencia de este trámite, se mantendrán como legítimos los establecidos en los comprobantes originales, sin que esta situación implique responsabilidad alguna para la Administración del FASMU.
+CAPÍTULO VI
+Aspectos Generales
+Artículo 30.—El producto neto anual del FASMU pasará a engrosar su patrimonio para su fortalecimiento financiero, con miras a mejorar las condiciones de factibilidad en el otorgamiento posterior de nuevos o mayores beneficios, previo estudio actuarial que deberá realizarse preferiblemente cada dos años.

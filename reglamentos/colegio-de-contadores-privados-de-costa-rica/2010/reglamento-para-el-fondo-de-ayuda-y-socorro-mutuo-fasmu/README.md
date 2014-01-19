@@ -15,3 +15,4 @@ Reglamento para el Fondo de Ayuda y Socorro Mutuo (FASMU)
 | --- | --- | --- |
 | 1 | 2010-04-30 | la propia norma |
 | 2 | 2013-11-13 | SINALEVI (sin norma nombrada) |
+| 3 | 2014-01-19 | Reglamento 10 (2014-01-19) |

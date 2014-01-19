@@ -1,1 +1,1 @@
-Artículo 2º—(Anulado por resolución de la Sala Constitucional, N° 14936 del 13 de noviembre de 2013)
+Artículo 2º—Podrán ser mutualistas todos los colegiados incorporados activos que así lo soliciten y que cumplan con lo que establece el artículo 6° de este reglamento.

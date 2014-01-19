@@ -1,3 +1,1 @@
-CAPÍTULO VI
-Aspectos Generales
-Artículo 28.—El producto neto anual del FASMU pasará a engrosar su patrimonio para su fortalecimiento financiero, con miras a mejorar las condiciones de factibilidad en el otorgamiento posterior de nuevos o mayores beneficios, previo estudio actuarial que deberá realizarse preferiblemente cada dos años.
+Artículo 28.—Para cubrir la indemnización por incendio se creará un fondo, mediante un aporte mensual por parte de cada mutualista. Si la reserva indica que el monto disponible supera las necesidades para el otorgamiento de este beneficio, con base en una baja siniestralidad, el excedente pasará a formar parte de la reserva general del FASMU.

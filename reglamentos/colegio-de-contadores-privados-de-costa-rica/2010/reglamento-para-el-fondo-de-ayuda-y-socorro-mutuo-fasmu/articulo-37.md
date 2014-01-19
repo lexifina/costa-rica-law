@@ -1,1 +1,1 @@
-Artículo 37.—En el caso de que al mutualista se le exima el pago parcialmente de su colegiatura este está en la obligación de continuar pagando los aportes mensuales y consecutivos del Fondo de Ayuda y Socorro Mutuo, no existe exoneración de los aportes mensuales y consecutivos del FASMU.
+Artículo 37.—El atraso en el pago de la cuota del FASMU, por seis meses o más consecutivos, faculta a la administración de este fondo para no otorgar los beneficios estipulados en este Reglamento.

@@ -1,1 +1,4 @@
-Artículo 21.—Para hacer efectivo el cobro del beneficio del adelanto en vida, el mutualista, a partir del momento en que alcance la edad indicada, y el plazo de pertenecer al FASMU deberá presentar la solicitud respectiva en el formulario oficial que le facilitará el FASMU acompañada de la fotocopia de la cedula de identidad, Certificación de Nacimiento emitida por el Registro Civil y encontrarse al día con los aportes al FASMU.
+Artículo 21.—Para el estudio y la aprobación del adelanto el mutualista deberá:
+1. Estar al día con los aportes al FASMU.
+2. Presentar la solicitud respectiva.
+3. Presentar certificación médica donde se indique la naturaleza de la enfermedad, diagnóstico y evolución.

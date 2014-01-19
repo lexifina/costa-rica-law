@@ -1,5 +1,5 @@
 CAPÍTULO II
-De los Fines
+De los fines
 Artículo 3º—El Fondo de Ayuda y Socorro Mutuo, tendrá los siguientes fines:
 a. Otorgar un auxilio económico básico a los beneficiarios que hubiere designado el mutualista que fallezca. A falta de beneficiarios designados se procederá conforme lo indique el código civil en lo conducente, a quienes resulten herederos. Si alguno(s) de los beneficiarios designados falleciera(n) con anterioridad o simultáneamente con el mutualista, el derecho al beneficio finado acrecerá proporcionalmente según designación previa a favor de los sobrevivientes.
 b. Otorgar un adelanto económico a los mutualistas que se encuentren en una enfermedad en fase terminal cuya expectativa de vida sea de seis meses o menos.

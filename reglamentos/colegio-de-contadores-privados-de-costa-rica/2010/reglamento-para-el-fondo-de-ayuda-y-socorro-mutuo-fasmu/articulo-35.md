@@ -1,1 +1,1 @@
-Artículo 35.—El atraso en el pago de la cuota del FASMU, por seis meses o más consecutivos, faculta a la administración de este fondo para no otorgar los beneficios estipulados en este Reglamento.
+Artículo 35.—En caso de atraso reiterado por parte de la Administración en el reintegro del dinero recaudado par concepto de cuotas del FASMU, el Consejo tendrá facultad para exigir su pronto reintegro utilizando los mecanismos que estime conveniente, incluyendo la convocatoria a una asamblea para ese fin expreso.

@@ -1,1 +1,1 @@
-Artículo 25.—Cuando en la residencia siniestrada habiten dos o más colegiados mutualistas, el monto se pagará a cada uno de los afectados, según tabla porcentual.
+Artículo 25.—El beneficio por incendio estará determinado por los períodos de cotización y los porcentajes correspondientes, aplicados al monto base.

@@ -1,1 +1,1 @@
-Artículo 36.—No procede el pago de cuotas con efecto retroactivo para adquirir derechos.
+Artículo 36.—El FASMU deberá cubrir los costos de los gastos reales necesarios para su normal operación.

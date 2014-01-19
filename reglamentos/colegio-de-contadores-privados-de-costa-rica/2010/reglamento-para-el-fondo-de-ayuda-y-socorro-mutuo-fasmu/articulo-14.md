@@ -1,2 +1,5 @@
-Artículo 14.—Todo reclamo por inconformidad de los mutualistas o beneficiarios de estos, sobre una resolución del FASMU deberá presentarse ante la junta directiva del Colegio, en un plazo no mayor de tres días hábiles después de recibida la notificación de la resolución, esta tendrá facultad para resolver en alzada, previa consulta al FASMU y con el sustento jurídico pertinente o técnico respectivo.
-El plazo para reclamar la indemnización por defunción del mutualista es de diez años contados a partir de la fecha real del suceso.
+CAPÍTULO V
+Del Régimen de Auxilios
+SECCIÓN I
+Auxilio Básico por Defunción del Mutualista
+Artículo 14.—El auxilio por defunción que corresponda a los beneficiarios del mutualista será igual a un porcentaje del monto del auxilio básico vigente a la fecha del deceso, menos los beneficios otorgados por adelantos al mutualista, de conformidad con el presente Reglamento y lo que determinen los estudios actuariales.

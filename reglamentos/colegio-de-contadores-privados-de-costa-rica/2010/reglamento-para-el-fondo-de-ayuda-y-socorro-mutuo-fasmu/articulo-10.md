@@ -1,3 +1,5 @@
-Artículo 10.—Los cargos de la junta directiva del Colegio y del Consejo de Administración son incompatibles entre sí.
-Tampoco pueden formar parte del Consejo quienes sean parientes entre sí por consanguinidad o afinidad hasta el tercer grado inclusive.
-En caso de que algún Director del Consejo en ejercicio sea electo para integrar la junta directiva del Colegio, su puesto en el Consejo quedará vacante hasta tanto se lleve a cabo la elección en la asamblea General siguiente.
+Artículo 10.—
+a. El Consejo sesionará ordinariamente dos veces al mes y en forma extraordinaria cuando las circunstancias así lo requieran, previa autorización de la Junta Directiva de Colegio CPCR.
+b. Las sesiones extraordinarias serán convocadas por el Presidente en ejercicio.
+c. Los acuerdos se tomarán por mayoría simple de los directores, en caso de empate el Presidente está facultado para decidir aplicando el criterio de voto doble.
+d. Cuando se presenten la renuncia de dos o más Directores, la Junta Directiva del Colegio está facultada para nombrar los sustitutos que estarán en ejercicio del cargo, hasta tanto se realice la asamblea para la elección de los titulares.

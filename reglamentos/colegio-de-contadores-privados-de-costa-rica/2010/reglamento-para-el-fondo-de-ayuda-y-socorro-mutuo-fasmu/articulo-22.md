@@ -1,4 +1,1 @@
-SECCIÓN IV
-Auxilio por Incendio
-Artículo 22.—Cuando un incendio destruya al menos el 75% (setenta y cinco por ciento) de la residencia habitual del mutualista, el FASMU otorgará una ayuda económica por la suma de ¢750.000,00 (setecientos cincuenta mil colones), por una única vez.
-(Corregido mediante Fe de Erratas, y publicada en La Gaceta Nº 109 del 7 de junio del 2010)
+Artículo 22.—El mutualista mayor de sesenta y cinco años y 20 años de pertenecer al FASMU, tendrá derecho, por una sola vez, a un adelanto en vida equivalente a un monto del 5 % del beneficio por defunción. Dicho adelanto será deducido del monto que se gire al fallecer el mutualista. Si el beneficio por defunción aumenta, posterior a que se haya recibido el adelanto en vida, el mutualista tendrá derecho a solicitar la diferencia correspondiente a dicho incremento.

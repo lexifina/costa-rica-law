@@ -1,5 +1,4 @@
-CAPÍTULO V
-Del Régimen de Auxilios
-SECCIÓN I
-Auxilio Básico por Defunción del Mutualista.
-Artículo 12.—El auxilio por defunción que corresponda a los beneficiarios del mutualista será igual a un porcentaje del monto del auxilio básico vigente a la fecha del deceso, menos los beneficios otorgados por adelantos al mutualista, de conformidad con el presente Reglamento y lo que determinen los estudios actuariales.
+Artículo 12.—No podrán formar parte del Consejo de Administración del FASMU, los siguientes mutualistas:
+1- Los miembros de Junta Directiva del CCPCR.
+2- Quienes sean parientes entre sí, por consanguinidad o afinidad hasta el tercer grado inclusive.
+3- Los mutualistas que estén morosos o atrasados en el pago de sus cuotas

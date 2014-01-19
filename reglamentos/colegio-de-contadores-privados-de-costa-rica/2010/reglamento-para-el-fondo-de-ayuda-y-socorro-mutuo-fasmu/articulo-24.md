@@ -1,6 +1,4 @@
-Artículo 24.—En caso de incendios múltiples los montos de los beneficios que se giren acumulativamente, no podrán ser mayores al 50% de la reserva para incendio, cuando el número de siniestros provoquen que el monto de los beneficios a otorgar supere el 50% de la reserva citada, estos se obtendrán mediante prorrateo
-a. De hasta doce cuotas mensuales, recibirá el 20%
-b. De trece a treinta y seis cuotas mensuales, recibirá el 30%.
-c. De treinta y siete a sesenta cuotas mensuales, recibirá el 50%
-d. De sesenta y un cuotas mensuales en adelante, recibirá el 100 %.
-En ningún caso, se tomarán en cuenta los aportes pagados por adelantado para determinar el derecho a este beneficio económico.
+SECCIÓN IV
+Auxilio por incendio
+Artículo 24.—Cuando un incendio destruya al menos el 75% (setenta y cinco por ciento) de la residencia habitual del mutualista, el FASMU otorgará una ayuda económica igual a la que se paga por el beneficio por fallecimiento del mutualista, que esté vigente en el momento del suceso. Esta suma se pagará por una única vez.
+(Así corregido el artículo anterior mediante Fe de Erratas publicada en La Gaceta N° 109 del 7 de junio del 2010).
