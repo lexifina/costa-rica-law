@@ -14,3 +14,4 @@ Reglamento sobre Regulación y Comercialización de Expendio de Bebidas con Cont
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-23 | la propia norma |
+| 2 | 2014-01-20 | Reglamento municipal 179 (2014-01-20) |
