@@ -1,1 +1,0 @@
-Artículo 16.—El cuenta-habiente será el responsable por el uso y manejo de todos los servicios electrónicos que el banco ponga a su disposición, incluyendo las claves de acceso para los servicios electrónicos o virtuales, así como las transacciones que a través de esos medios se realicen.

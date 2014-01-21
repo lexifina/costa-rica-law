@@ -1,1 +1,0 @@
-Artículo 5º—El depósito mínimo inicial para la apertura de una cuenta tanto en moneda nacional como extranjera, debe ser depositado en efectivo en la misma moneda en que se abre la cuenta. Los montos iniciales para la apertura de cuentas serán definidos por la Administración Superior, tomando en consideración las leyes y reglamentos vigentes del Sistema Bancario Nacional.
