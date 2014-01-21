@@ -13,7 +13,8 @@ h. Aprobar aquellas solicitudes de ayudas económicas que permitan a la persona 
 i. Informar a las personas participantes de servicios de capacitación y formación profesional sobre las becas al exterior que se encuentren en disposición de esa población.
 j. Aprobar las solicitudes de becas al exterior que realizan las personas participantes.
 k. Resolver las anomalías que se presenten en la aprobación y entrega de ayudas económicas aprobadas a personas participantes.
-l. Llevar actas de los acuerdos tomados. Las mismas, se deben transcribir en hojas foliadas. y legalizadas por la Auditoría Interna del Instituto.
+l. Llevar actas de los acuerdos tomados. Las mismas, se deben transcribir en hojas foliadas llevando toda la formalidad con la Ley General de la Administración Pública y el procedimiento interno establecido para el funcionamiento y manejo de libros de actas de los órganos colegiados.
+(Así reformado el inciso anterior mediante publicación en La Gaceta N° 14 del 21 de enero del 2014)
 m. Definir la persona que fungirá como secretaria en el seno del Comité Regional de Ayudas Económicas.
 n. Vigilar por que se cumplan los lineamientos institucionales en relación con el Sistema de Ayudas Económicas a Participantes dictadas por el Consejo Institucional de Ayudas Económicas.
 o. Resolver los recursos de revocatoria interpuestos.
