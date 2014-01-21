@@ -1,2 +1,1 @@
-Artículo 21.—FOMUVEL recibirá por concepto de administración un 10% de los rendimientos que genere el Fondo de Capitalización Individual, luego de deducirse los costos de la entidad que administre este Fondo. Los recursos generados por esta vía deberá FOMUVEL destinarlos a financiar programas de desarrollo social, principalmente en los campos médicos y de salud. Los excedentes se considerarán resultados de operación del período de FOMUVEL.
-(Así reformado, mediante sesión N° 9 de 9 de marzo de 2004).
+Artículo 21.—(Eliminado en sesión N° 02 del 21 de enero de 2014)
