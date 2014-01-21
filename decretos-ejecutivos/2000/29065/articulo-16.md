@@ -1,1 +1,0 @@
-Artículo 16.—El incumplimiento de este Reglamento y los objetivos que para cada institución pública autorizada se establezca, podrá dar lugar a la revocación de esa autorización en forma unilateral por parte de la Dirección General de la Policía de Tránsito.

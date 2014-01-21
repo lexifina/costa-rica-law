@@ -1,1 +1,0 @@
-Artículo 19.—Rol de servicio. Los delegados y encargados de las instituciones públicas autorizadas a cuyo cargo existan policías ad honórem deberán mantener actualizado el rol de servicio de esos policías.
