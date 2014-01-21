@@ -1,2 +1,2 @@
-13. Sello de pagado
-A las facturas u otros documentos relativos a la compra de bienes y servicios se le estampará un sello que tenga la leyenda de “pagado”, indicando además la fecha de pago.
+13. Autorización de los gastos
+Todo gasto pagado por medio del Fondo Fijo de Caja Chica debe contar con la firma de la jefatura de la unidad que compró el bien o utilizó el servicio. Es responsabilidad del encargado del fondo velar que toda erogación cuente con este requisito antes de proceder con su pago.

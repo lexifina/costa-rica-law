@@ -1,2 +1,2 @@
-7. Sobrantes de dinero
-Los sobrantes de dinero resultantes de los arqueos se depositarán en la cuenta bancaria del Hospital del Trauma, S. A.
+7. Faltantes de dinero
+Los faltantes de dinero determinados en los arqueos del Fondo Fijo de Caja Chica, serán cubiertos por el responsable directo de su manejo, sin perjuicio de las medidas disciplinarias que correspondan. Queda a criterio de la Administración la forma en que se reintegrará el faltante.

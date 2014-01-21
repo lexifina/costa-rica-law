@@ -14,3 +14,4 @@ Reglamento para el uso de la caja chica del Hospital del Trauma S.A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-21 | la propia norma |
+| 2 | 2014-01-21 | Reglamento 43 (2013-12-18) |

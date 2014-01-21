@@ -1,2 +1,2 @@
-15. Autorización de los gastos
-Todo gasto pagado por medio del Fondo Fijo de Caja Chica debe contar con la firma de la jefatura de la unidad que compró el bien o utilizó el servicio. Además debe contar con la aprobación del departamento financiero, dando fe de que cuenta con contenido presupuestario suficiente para su cancelación. Es responsabilidad del encargado del fondo velar que toda erogación cuente con estos dos requisitos antes de proceder con su pago.
+15. Medio para trámite del reintegro
+Todo reintegro al Fondo Fijo de Caja Chica deberá tramitarse mediante el documento denominado “Reintegro al Fondo Fijo de Caja Chica”, con el detalle de las subpartidas presupuestarias, centros de costos y los respectivos montos, a la cual se deberá adjuntar los justificantes de los gastos.

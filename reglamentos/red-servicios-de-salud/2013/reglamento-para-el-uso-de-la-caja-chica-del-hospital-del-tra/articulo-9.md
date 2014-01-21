@@ -1,8 +1,2 @@
-9. Funciones básicas
-Para el correcto manejo del Fondo Fijo de Caja Chica, la Unidad de Administración Financiera atenderá a las siguientes funciones:
-a) Verificar que el concepto indicado en los comprobantes y justificantes guarde relación directa con el detalle del Reintegro del Fondo Fijo de Caja Chica.
-b) Mantener un adecuado archivo de los documentos relacionados con la administración del Fondo.
-c) Establecer un expediente en donde se archive el presente reglamento y toda documentación que se refiera al mismo.
-d) Efectuar periódicamente arqueos al Fondo, mínimo una vez al mes, sin perjuicio de los que realice la Auditoría Interna, de los cuales debe quedar evidencia debidamente firmada por la persona o personas que realizaron los arqueos y el visto bueno de la Jefatura de la Unidad de Administración Financiera.
-e) Mantener un sistema adecuado de control interno.
-f) Velar por el fiel cumplimiento de las disposiciones contenidas en el presente reglamento.
+9. Garantía a favor de la Hacienda Pública
+El custodio del Fondo deberá rendir garantía a favor de la Hacienda Pública, por el desempeño de sus funciones, lo que se deberá realizar de conformidad con lo establecido en el Reglamento sobre la rendición de cauciones a favor de la Contraloría General de la República, cuando sus colaboradores recauden, custodien o administren fondos y valores públicos.
