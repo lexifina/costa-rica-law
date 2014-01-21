@@ -1,0 +1,2 @@
+8. Garantía a favor de la Hacienda Pública
+El personal de la Administración Financiera que participe en el manejo y administración del Fondo, deberá rendir garantía a favor de la Hacienda Pública, por el desempeño de sus funciones, lo que se deberá realizar de conformidad con lo establecido en el Reglamento sobre la rendición de cauciones a favor de la Contraloría General de la República, cuando sus funcionarios recauden, custodien o administren fondos y valores públicos.

@@ -1,0 +1,2 @@
+15. Autorización de los gastos
+Todo gasto pagado por medio del Fondo Fijo de Caja Chica debe contar con la firma de la jefatura de la unidad que compró el bien o utilizó el servicio. Además debe contar con la aprobación del departamento financiero, dando fe de que cuenta con contenido presupuestario suficiente para su cancelación. Es responsabilidad del encargado del fondo velar que toda erogación cuente con estos dos requisitos antes de proceder con su pago.
