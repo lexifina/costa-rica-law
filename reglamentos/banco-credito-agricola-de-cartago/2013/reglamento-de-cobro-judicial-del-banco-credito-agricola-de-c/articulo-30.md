@@ -1,0 +1,2 @@
+Artículo 30 Facturas para el pago de honorarios y gastos:
+Para el pago de honorarios y gastos, el abogado presentará a la Oficina de Cobro Administrativo y Judicial las facturas originales correspondientes, la cual las tramitará atendiendo los procedimientos y normativa vigente en esta materia.

@@ -1,0 +1,2 @@
+Artículo 22.—Suspensión del Proceso de Cobro:
+El Banco podrá girar orden por escrito al abogado para que solicite una suspensión acorde con lo establecido en la legislación procesal civil correspondiente. En caso de incumplimiento de los términos en los cuales se determinó la suspensión del proceso, se deberá girar orden al Abogado externo o institucional de continuar con la tramitación normal del proceso judicial.

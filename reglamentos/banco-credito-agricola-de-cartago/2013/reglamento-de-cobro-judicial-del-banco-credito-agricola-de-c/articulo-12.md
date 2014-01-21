@@ -1,0 +1,3 @@
+Artículo 12.—Concurrencia de acreencias
+En el cobro judicial de una obligación de un deudor que tenía otra operación ya asignada a un abogado o con la misma garantía, o con hipotecas abiertas, o con diversos grados o líneas de crédito, se debe asignar el caso al mismo profesional que dirige el primer cobro. Se exceptúan, aquellas operaciones únicamente con garantía fiduciaria.
+El abogado director del proceso del Banco, tiene a su vez la responsabilidad profesional de atender y velar por los intereses de la Institución en relación con las ejecuciones judiciales de otros acreedores sobre las mismas garantías y clientes; como efecto de ello, deberá realizar las gestiones judiciales que se requieran y sean correspondientes.

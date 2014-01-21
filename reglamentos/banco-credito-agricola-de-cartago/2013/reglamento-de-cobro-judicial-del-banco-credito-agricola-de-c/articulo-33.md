@@ -1,0 +1,2 @@
+Artículo 33.—Pago en procesos incobrables.
+En el caso de procesos ejecutivos simples o monitorios que resultan incobrables, se cancelará al Abogado externo hasta la etapa del proceso que se encuentre tramitada al día que se apruebe la incobrabilidad.

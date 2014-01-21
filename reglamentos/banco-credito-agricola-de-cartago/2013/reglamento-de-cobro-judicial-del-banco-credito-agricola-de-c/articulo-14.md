@@ -1,0 +1,5 @@
+Artículo 14.—Ausencia temporal del Abogado
+Cuando un Abogado externo tenga que ausentarse por un plazo mayor de tres días de su oficina por cualquier motivo, y por un plazo que afecte el cumplimiento del objeto de su contrato, deberá comunicarlo de forma previa y por escrito al Banco, plazo en el que se le suspenderá la entrega de nuevos casos y deberá designar a otro profesional en Derecho, el seguimiento de juicios a su cargo.
+Si la ausencia se prolonga por más de un mes, deberá solicitar autorización de la Jefatura de la Oficina de Cobro Administrativo y Judicial, con una anticipación de al menos cinco días hábiles, indicando las medidas que tomará para que los casos que tiene asignados no tengan ningún inconveniente.
+Los permisos, en ningún caso podrán ser renovados, ni exceder el plazo de 6 meses.
+Si la ausencia se debe a motivos de salud, estudios y/o nombramiento en cargo público legalmente incompatible con su labor, por un periodo mayor a los seis meses, los casos serán renunciados y reasignados a los abogados institucionales.
