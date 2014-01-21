@@ -1,1 +1,0 @@
-Artículo 9º—Los depósitos efectuados en dinero efectivo, se considerarán acreditados una vez anotados. Los depósitos de cheques u otros títulos valores, quedan sujetos a la condición de pago por los respectivos girados y a satisfacción del Banco; una vez cobrados, se acreditará su valor en forma definitiva.
