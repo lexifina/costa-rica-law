@@ -1,1 +1,0 @@
-Artículo 10.—La Comisión Nacional de Salvaguarda del Patrimonio Cultural Intangible, podrá invitar a otros órganos, entidades o personas físicas vinculadas con algún aspecto del patrimonio cultural intangible, a sus sesiones de trabajo.

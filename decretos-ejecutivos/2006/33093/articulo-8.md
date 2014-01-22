@@ -1,1 +1,0 @@
-Artículo 8º—La Comisión tiene la potestad de integrar comités o grupo de trabajo sobre temáticas o aspectos particulares relacionados son la salvaguarda del patrimonio cultural intangible de alguna región o etnia del país, integrado por personas o representantes institucionales ajenas a la Comisión. En estos comités debe participar al menos un miembro de la Comisión.
