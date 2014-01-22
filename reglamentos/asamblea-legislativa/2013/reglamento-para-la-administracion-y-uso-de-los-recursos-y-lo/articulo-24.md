@@ -1,0 +1,1 @@
+Artículo 24.—Limitación de software instalado. En los equipos de cómputo institucionales sólo podrá residir el software instalado por el Departamento de Informática, con su debida autorización de uso.

@@ -1,0 +1,1 @@
+Artículo 20.—Información privada. La información contenida en los correos electrónicos es privada y pertenece al usuario titular de la cuenta. También, la información contenida en los documentos electrónicos de carácter privado almacenados en las computadoras, pertenece al usuario responsable del equipo. Por lo tanto, nadie puede accederla, excepto que medie una orden judicial.

@@ -1,0 +1,1 @@
+Artículo 35.—Protección contra software malicioso. El Departamento de Informática debe velar porque todas computadoras conectadas a la red informática cuenten con la debida protección contra software malicioso.

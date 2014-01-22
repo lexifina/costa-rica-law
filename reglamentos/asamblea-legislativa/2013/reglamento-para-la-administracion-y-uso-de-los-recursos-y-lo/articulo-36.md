@@ -1,0 +1,1 @@
+Artículo 36.—Equipos centrales y comunicaciones. El personal del Departamento de Informática es el único autorizado para tener acceso a los equipos centrales, centros de comunicación, gabinetes e instalaciones de la red informática.

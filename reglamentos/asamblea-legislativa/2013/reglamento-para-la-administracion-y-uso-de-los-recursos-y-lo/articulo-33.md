@@ -1,0 +1,8 @@
+Artículo 33.—Navegación en Internet. La navegación en Internet se regirá por las siguientes pautas:
+1. Los servicios permitidos de acceso a Internet serán únicamente los autorizados por el Departamento de Informática.
+2. Cualquier requerimiento especial, deberá justificarse ante el Departamento de Informática.
+3. El servicio de Internet solo podrá ser utilizado por el personal usuario autorizado mediante la contraseña de la red informática.
+4. Está prohibido el uso de Internet para fines comerciales u otros ajenos a la actividad institucional que provoquen la saturación de los canales de comunicación o la proliferación de virus o códigos maliciosos y degradación del rendimiento de la red, tales como, música, video, películas, juegos entre otros. Sin embargo, se permitirá el uso de sitios para asuntos personales en márgenes de tiempo razonables que tenga como finalidad evitar el desplazamiento del personal fuera de la Institución (sitios bancarios, municipales, servicios públicos y otros).
+5. El uso de Internet está controlado por una herramienta informática que limita el ingreso a sitios categorizados por su contenido. No se permite la utilización del Internet para visitar sitios pornográficos, de índole sexual, de insultos, racistas, amorales, religiosos que riñan con las buenas costumbres o valores de nuestra cultura.
+6. La Asamblea Legislativa no se hace responsable por el pago de cargos o indemnizaciones asociadas a servicios disponibles en los sitios en Internet que sean visitados por el personal usuario desde la red informática institucional.
+7. El acceso a redes sociales será utilizado únicamente para asuntos laborales y será regulado por las disposiciones emitidas por el Comité Permanente de TI y la administración superior.

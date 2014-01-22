@@ -1,0 +1,1 @@
+Artículo 19.—Contraseñas. El usuario titular de la cuenta de red informática, es el único responsable de las acciones que se lleven a cabo mediante el uso de su contraseña, por lo que no es seguro y está prohibido compartir las contraseñas.

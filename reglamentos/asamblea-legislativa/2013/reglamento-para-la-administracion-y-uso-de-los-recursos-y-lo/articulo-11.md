@@ -1,0 +1,1 @@
+Artículo 11.—Informes. El Departamento de Informática emitirá informes o reportes sobre la utilización de servicios de TI previa solicitud de las autoridades superiores, jefaturas departamentales o las y los legisladores. Solamente podrán solicitar informes relativos al uso de los servicios de su dependencia.

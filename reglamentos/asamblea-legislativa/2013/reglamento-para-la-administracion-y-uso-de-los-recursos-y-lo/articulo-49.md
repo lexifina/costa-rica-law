@@ -1,0 +1,1 @@
+Artículo 49.—Régimen sancionatorio. El incumplimiento de las disposiciones establecidas en este reglamento y otras emitidas sobre la administración y uso de los recursos y servicios de TI darán origen a una investigación preliminar y la apertura de un procedimiento administrativo cuando corresponda.

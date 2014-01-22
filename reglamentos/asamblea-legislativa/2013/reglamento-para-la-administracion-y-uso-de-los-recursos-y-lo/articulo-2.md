@@ -1,0 +1,1 @@
+Artículo 2º—Usuarios. Toda persona que utilice los recursos y servicios de TI que brinda la Asamblea Legislativa será considerada como usuaria. Será su responsabilidad en general, conocer y cumplir con lo estipulado en este reglamento.

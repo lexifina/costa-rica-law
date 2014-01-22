@@ -1,0 +1,1 @@
+Artículo 45.—Protección. La Asamblea Legislativa es la responsable de tomar las medidas necesarias para proteger la integridad, seguridad y la confidencialidad de sus sistemas, aplicaciones, datos y cuentas del personal usuario.
