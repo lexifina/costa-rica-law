@@ -1,0 +1,1 @@
+Artículo 12.—Todas las solicitudes de servicios de reproducción de documentos deberán ser firmadas únicamente por los funcionarios facultados señalados en el artículo anterior. No se tramitará el trabajo cuya fórmula no cumpla con este requisito.

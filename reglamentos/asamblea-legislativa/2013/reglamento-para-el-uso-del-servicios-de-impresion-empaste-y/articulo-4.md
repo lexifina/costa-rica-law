@@ -1,0 +1,1 @@
+Artículo 4º—El equipo que se utilice para este fin, estará bajo la supervisión administrativa y técnica del Departamento de Servicios Generales. Asimismo, la Dirección de dicho departamento deberá velar por la debida ejecución administrativa de la sección que bajo su cargo preste el servicio objeto del presente reglamento.

@@ -1,0 +1,2 @@
+Artículo 14.—Cada diputado podrá autorizar a dos funcionarios de su despacho para que en su nombre puedan reproducir documentos, hasta un máximo de 200 páginas.
+Para ello el diputado deberá remitir oficio formal a la jefatura de la Unidad de Reproducción de Documentos, manifestando su autorización, dejando identificada la firma, cédula y nombre de los funcionarios que están autorizados para este tipo de reproducciones.
