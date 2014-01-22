@@ -14,3 +14,4 @@ Aprobación de Zonas Homogéneas y Adhesión a la Tipología Constructiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-13 | la propia norma |
+| 2 | 2014-01-22 | SINALEVI (sin norma nombrada) |

@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE TARRAZÚ
+(Esta norma fue derogada mediante publicación en la Gaceta N° 31 del 13 de febrero del 2014 que publica las Nuevas Matrices de los Mapas de valores unitarios de terrenos por zonas homogéneas)
 APROBACIÓN DE ZONAS HOMOGÉNEAS Y ADHESIÓN
 A LA TIPOLOGÍA CONSTRUCTIVA
 Se comunica a los vecinos del cantón, que en sesión Nº 107-2008, del día veintisiete de mayo del dos mil ocho, mediante acuerdo número seis, y por unanimidad, la Municipalidad de Tarrazú acuerda adherirse a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, publicada en La Gaceta Nº 78 del 23 de abril del 2008, los respectivos métodos de depreciación según la tipología constructiva, las tablas de depreciación de construcciones realizadas por Ross y Heidecke vigentes para todo el territorio nacional.
