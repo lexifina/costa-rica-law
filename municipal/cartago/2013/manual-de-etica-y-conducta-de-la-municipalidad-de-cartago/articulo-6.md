@@ -1,0 +1,9 @@
+CAPÍTULO VI
+Para las relaciones con las personas munícipes/clientes
+Brindamos servicios públicos a la ciudadanía, de acuerdo a la gestión de calidad para resultados bajo el proceso de mejora continua, para el logro de la cobertura total en la prestación de los mismos, con altos niveles de calidad, atendiendo las necesidades de los y las clientes que reciben un producto o servicio generado por los procesos institucionales, según lo establecen las políticas institucionales así como las mejores prácticas de una sana administración, que brinde al cliente un clima de apoyo y transparencia en nuestras labores cotidianas. Con el fin de ofrecer servicios efectivos a la ciudadanía del Cantón Central, nos comprometemos con las siguientes conductas:
+1.1. Ofrecemos munícipe/cliente la debida y oportuna atención, de manera amable y diligente identificándonos con sus intereses y los objetivos institucionales, y procurando una buena presentación personal.
+1.2. Brindamos información adecuada a la necesidad del ciudadano, satisfaciendo sus requerimientos
+1.3. Aprovechamos oportunidades para desarrollar nuestras habilidades de aprendizaje para favorecer el buen servicio y trato a los y las clientes.
+1.4. Si una ciudadana o ciudadano necesita información, aunque no sea de nuestra responsabilidad, trataremos de orientarle con la persona o departamento en que le puedan asesorar.
+1.5. Estamos receptivos y atentos a toda la retroalimentación que nuestros clientes nos aporten, con el enfoque de mejora continua, para hacer efectivo el proceso de atención de sus requerimientos en cuanto a calidad y excelencia en el servicio.
+1.6. Programamos espacios para informar a las y los munícipes cartagineses del quehacer institucional, haciendo de su conocimiento los planes, procedimientos, leyes, códigos y reglamentos relacionados a su gestión.

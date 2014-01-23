@@ -1,0 +1,7 @@
+CAPÍTULO VIII
+Para la información y comunicación
+1.1. Coordinación. Mantenemos entre Áreas un proceso de comunicación y coordinación con un enfoque integral para el logro de la estrategia institucional.
+1.2. Sistemas de Información tecnológica y comunicación: Mediante los sistemas de información promocionamos la transparencia institucional, por lo tanto debemos asegurar la generación, captura, procesamiento, transmisión y seguridad de la información relevante tanto de las actividades institucionales como de los eventos internos y externos, que permitan dar respuesta oportuna a las necesidades cambiantes de la institución, de conformidad con el marco estratégico institucional.
+1.3. Gestión de las TIC: Manejamos la información de forma ordenada, oportuna, transparente y con seguridad la información, para mejorar la comunicación interna y externa, conforme a los estándares de la normativa técnica vigente. Al respecto tomamos en cuenta las siguientes conductas:
+1.3.1. Mantenemos la información debidamente registrada, ordenada, actualizada, bajo los estándares de seguridad de acuerdo a las Tecnologías de Información y Comunicación, conforme a lineamientos Institucionales.
+1.3.2. Mantenemos informadas a las autoridades competentes o personas interesadas sobre la información pública que esté en nuestra custodia, con amabilidad y agilidad, procurando que la información dirigida a los y las clientes internos y externos sea clara, precisa y veraz.
