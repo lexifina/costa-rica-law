@@ -1,6 +1,8 @@
 BANCO DE COSTA RICA
 REGLAMENTO DE SERVICIOS LEGALES DE COBRO
 JUDICIAL DEL BANCO DE COSTA RICA
+La Junta Directiva General del Banco de Costa Rica, en sesión 44-13, artículo X, del 11 de noviembre del 2013, aprobó la modificación del Reglamento de servicios legales de cobro judicial del Banco de Costa Rica.
+(Así adicionado el párrafo anterior mediante publicación en La Gaceta N° 16 del 23 de enero del 2014)
 [...]
 CAPÍTULO II
 Asignación de casos

@@ -14,3 +14,4 @@ Reforma Reglamento de servicios legales para el cobro judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-05 | la propia norma |
+| 2 | 2014-01-23 | Reglamento 0 (2014-01-23) |
