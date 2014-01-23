@@ -1,0 +1,1 @@
+Artículo 3º—El reconocimiento de viáticos por concepto de desayuno, almuerzo o cena se realizará con base en las condiciones establecidas en los artículos 18, 19 y 20 del Reglamento de Gastos de Viajes y Transporte para Funcionarios Públicos de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 2º—Dicha excepción será aplicable únicamente en el período comprendido entre el Acto de Convocatoria y hasta quince días naturales posteriores a la celebración de la elección o consulta. En caso de una segunda vuelta electoral se mantendrá esta excepción hasta quince días posteriores a su celebración.
