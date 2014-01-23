@@ -1,0 +1,2 @@
+Artículo 8º—De las Invitaciones:
+La Casa de Justicia se encargará de coordinar las invitaciones correspondientes a las partes, con el fin de poner en conocimiento de las mismas la fecha de audiencia para las mediaciones/ conciliaciones.
