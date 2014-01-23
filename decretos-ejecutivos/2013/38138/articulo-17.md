@@ -1,0 +1,1 @@
+Artículo 17.—Contenido Presupuestario: Toda erogación de caja chica deberá ser respaldada previamente por la respectiva reserva presupuestaria. A su vez, la Unidad de Presupuesto deberá verificar que no haya existencias en inventario de las mercancías solicitadas y que éstas no se encuentren en trámite de compra, antes de otorgar dicho contenido.

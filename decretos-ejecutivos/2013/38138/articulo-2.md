@@ -1,0 +1,1 @@
+Artículo 2º—Creación: El Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, en adelante “INCIENSA”, dispondrá de una caja chica que funcionará en la Unidad Financiero Contable y que se regirá por las disposiciones contenidas en este Reglamento.

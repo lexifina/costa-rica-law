@@ -1,0 +1,1 @@
+Artículo 14.—Asignación de recursos: Los recursos asignados al Fondo de Caja Chica se manejarán por medio de una cuenta corriente, en un banco del Sistema Bancario Nacional. O bien utilizar una caja en efectivo.
