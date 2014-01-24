@@ -9,10 +9,10 @@ Considerando:
 5°—Que las especies que a continuación se establecerán se justifican técnicamente por presentar una alta regeneración natural y por estar bien representadas en las diferentes zonas que comprenden el Área de Conservación Osa. Asimismo, dichas especies son características de sitios tales como: potreros, charrales y tacotales, (Estados de Sucesión Secundaria I y II; e inclusive en bosques secundarios establecidos (III etapa de Sucesión Secundaria). Además, las especies que se están estableciendo para plantaciones forestales son las que tradicionalmente se han implementado en proyectos de reforestación en Costa Rica por haber dado los mejores resultados.
 6°—Que el establecimiento de esta definición de especies tiene como finalidad ofrecer diferentes canales de comercialización de productos de acuerdo a las exigencias del mercado nacional e internacional; además de ofrecer en un tiempo corto una alternativa económica extra al productor. Por tanto,
 EL DIRECTOR DEL ÁREA DE CONSERVACIÓN OSA, RESUELVE:
-1°—Definir las especies catalogadas para Certificados de Origen dentro del Área de Conservación Osa, de la siguiente forma:
-1.1. Cuadro 1. Lista de especies definidas para Sistemas Agroforestales (SAF):
-Nombre científico | Nombre vernáculo
-Cedrela odorata | Cedro Amargo
-Schizolobuim parahyla | Gallinazo
-Ochroma pyramidale | Balsa, Balso
-Cordia alliodora | Laurel
+1º—Definir la lista de especies autorizadas para sistemas agroforestales tipo regeneración naturales y árboles plantados en certificados de origen dentro del Área de Conservación Osa, de la siguiente forma:
+Cuadro 1: Lista de especies definidas para Sistemas
+Agroforestales para la modalidad de árboles plantados
+y árboles de manejo bajo regeneración natural
+[imagen]
+[imagen]
+(La reforma practicada a la lista anterior por resolución N° R-SINAC-ACOSA-03-2014. del 24 de enero del 2014, posteriormente fue dejada sin efecto por el por tanto número sexto de la resolución N° R-SINAC-DE-108-2017 del 3 de noviembre de 2017. Se advierte que dicha derogación no se ha aplicado a esta lista, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).

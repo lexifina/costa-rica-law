@@ -14,3 +14,4 @@ Define las especies catalogadas para Sistemas Agroforestales y Plantaciones Fore
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-14 | la propia norma |
+| 2 | 2014-01-24 | Resolución 3 (2014-01-24) |
