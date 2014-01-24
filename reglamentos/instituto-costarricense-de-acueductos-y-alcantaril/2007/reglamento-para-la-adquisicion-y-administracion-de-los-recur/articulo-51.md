@@ -1,1 +1,0 @@
-Artículo 51.—Sanciones. El Órgano disciplinario recomendará a la Gerencia General, dictará la sanción disciplinaria respectiva en el ámbito de su competencia y de acuerdo con lo establecido en la Ley General de la Administración Pública, Ley de Contratación Administrativa, Ley General de Control Interno y Reglamento Autónomo de Servicios.

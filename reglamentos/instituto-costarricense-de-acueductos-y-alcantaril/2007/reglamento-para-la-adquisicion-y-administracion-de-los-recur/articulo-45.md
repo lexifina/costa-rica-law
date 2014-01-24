@@ -1,4 +1,0 @@
-CAPÍTULO X
-Inventario de recursos tecnológicos
-Artículo 45.—Responsables. Corresponde a la Dirección de Tecnologías de Información, con apoyo de los analistas de soporte técnico, contar con un inventario nacional actualizado de los recursos informáticos propiedad de AyA, alquilados con opción de compra o en alquiler. Dentro de este inventario deben estar incluidos todos los activos, los repuestos tecnológicos y herramientas menores en materia de tecnologías de comunicación y telecomunicaciones. Este inventario estará dividido en subinventarios de recursos informáticos por cada área que le corresponda.
-También corresponde a la Dirección de Tecnologías de Información mantener un inventario nacional de stock de partes/repuestos que estén disponibles para llevar a cabo la labor de soporte técnico. Este inventario estará dividido en sub-inventarios de partes/repuestos por cada área que le corresponda.

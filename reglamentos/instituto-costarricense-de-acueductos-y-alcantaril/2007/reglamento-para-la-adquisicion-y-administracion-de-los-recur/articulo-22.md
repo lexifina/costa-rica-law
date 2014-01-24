@@ -1,1 +1,0 @@
-Artículo 22.—Software de entretenimiento y otros. En ningún caso se debe instalar o utilizar software de entretenimiento, música y similares en las computadoras y servidores propiedad de la Institución.

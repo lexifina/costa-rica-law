@@ -1,4 +1,0 @@
-CAPÍTULO V
-Utilización de recursos informáticos
-Artículo 13.—Intercambio de componentes de los recursos informáticos. Queda estrictamente prohibido a los funcionarios en general o al personal contratado por servicios, intercambiar partes, módulos, software o la totalidad de los recursos que tengan asignados para el cumplimiento de sus labores, sin el previo aval técnico del analista de soporte técnico y de las personas encargadas de dichas aprobaciones.
-En caso de que proceda el intercambio de componentes de recursos informáticos, previo del aval técnico citado, éste podrá ser llevado a cabo única y exclusivamente por el analista de soporte técnico o por el proveedor autorizado (caso de garantía, alquiler con opción de compra, alquiler o contratación del servicio para el intercambio de los componentes).
