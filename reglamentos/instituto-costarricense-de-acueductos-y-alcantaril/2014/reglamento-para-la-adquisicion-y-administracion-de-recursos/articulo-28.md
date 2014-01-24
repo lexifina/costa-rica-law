@@ -1,0 +1,1 @@
+Artículo 28.—Software de entretenimiento y otros. En ningún caso se debe instalar, almacenar archivos o utilizar software de entretenimiento, música, vídeo y similares en las computadoras y servidores alquilados o propiedad de la Institución, ajenos a la actividad laboral.

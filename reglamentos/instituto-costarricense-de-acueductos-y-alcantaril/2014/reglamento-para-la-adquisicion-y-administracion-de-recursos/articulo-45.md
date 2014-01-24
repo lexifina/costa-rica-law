@@ -1,0 +1,1 @@
+Artículo 45.—Página WEB. La página WEB institucional será administrada según el Procedimiento para la creación, administración y publicación de información en la página WEB del AyA, emitido por la Gerencia General.

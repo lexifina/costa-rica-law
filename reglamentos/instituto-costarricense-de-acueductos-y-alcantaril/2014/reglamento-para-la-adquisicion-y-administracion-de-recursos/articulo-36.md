@@ -1,0 +1,1 @@
+Artículo 36.—Usos del correo electrónico. El correo electrónico es una herramienta de trabajo para agilizar y facilitar las gestiones de cada oficina. Su uso se encuentra regulado por Directriz de Junta Directiva.

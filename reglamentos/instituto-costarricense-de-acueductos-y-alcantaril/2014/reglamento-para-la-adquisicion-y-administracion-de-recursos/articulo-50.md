@@ -1,0 +1,1 @@
+Artículo 50.—Esquema organizacional para administrar la seguridad informática. Corresponde a la Dirección de TI, establecer un esquema organizativo para administrar la seguridad informática dentro de la institución, el cual debe incluir las responsabilidades segregadas tanto del personal del AyA como de terceros relacionados.

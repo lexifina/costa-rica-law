@@ -1,0 +1,2 @@
+Artículo 11.—Propiedad de los sistemas de información o aplicaciones informáticas. AyA será propietaria de los archivos fuente, programas, documentación, bases de datos y todos aquellos recursos e instrumentos que se originen de los sistemas desarrollados a la medida, ya sea con recursos propios o por terceros.
+No se incluyen dentro de esta norma, los sistemas o utilitarios de los cuales se adquiere una licencia para su uso, en la cual, se expresan sus alcances, derechos y responsabilidades.

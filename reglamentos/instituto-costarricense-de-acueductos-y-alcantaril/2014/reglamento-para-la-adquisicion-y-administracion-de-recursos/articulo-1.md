@@ -1,0 +1,26 @@
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS
+Y ALCANTARILLADOS
+N° 2013-518
+ASUNTO: Reglamento para la Adquisición y Administración de Recursos Informáticos de AyA.
+Resultando:
+1º—Que con acuerdo Nº 2007-105 del 22 de marzo del 2007, y publicado en La Gaceta N° 65 del 2 de abril del 2007, se aprobó el “Reglamento para la adquisición y administración de los recursos informáticos”, con el objeto de establecer una serie de normas necesarias para que en AyA se lleve a cabo de una forma ordenada y reglamentada, tanto la adquisición de los bienes y servicios informáticos, como su administración mediante la delimitación de las competencias y funciones de todas y cada una de las áreas involucradas en este proceso.
+2º—Que como resultado del desarrollo del Plan Estratégico para TI 2005-2014 surgieron nuevas expectativas en cuanto a la reglamentación en materia de recursos informáticos, por lo que se creó un grupo de trabajo conformado por funcionarios del área de Tecnologías de Información de la Institución, por ser ésta la especializada en la materia objeto de reglamentación, para proponer la actualización del Reglamento.
+3º—Que una vez elaborado el documento para la actualización correspondiente se creó una comisión multidisciplinaria encargada de su revisión y se realizaron los cambios técnicos y legales recomendados por los profesionales involucrados.
+4º—Que el proyecto se presentó como una propuesta que pretende dar los lineamientos mínimos a observar por parte de todos los funcionarios de AyA en cuanto a la adquisición y administración de los recursos informáticos, constituyéndose en una herramienta muy importante en salvaguarda de los recursos que la Institución pone a disposición de los funcionarios para el cumplimiento de sus labores.
+5º—Que la Dirección Jurídica rindió el criterio legal correspondiente a través del oficio PRE-J-CE-2013-3168.
+6º—Procede esta Junta Directiva a conocer el Reglamento y su Manual, por ser un asunto de su competencia.
+Considerando:
+I.—Que la Procuraduría General de la República ha establecido una serie de disposiciones aplicables en esta materia, especialmente a través del Dictamen C-003- 2003 de fecha 14-01-2003, sobre el uso indebido por parte de funcionarios públicos, de bienes y servicios puestos a su disposición como lo son el equipo de cómputo, sistemas, correos electrónicos e Internet.
+II.—Que la Contraloría General de la República ha emitido las Normas técnicas para la gestión y el control de las tecnologías de Información a través del documento N-2- 2007CO-DFOE, normativa que establece los criterios básicos de control que deben observarse en la gestión de esas tecnologías y que tiene como propósito coadyuvar en su gestión, en virtud de que dichas tecnologías se han convertido en un instrumento esencial en la prestación de los servicios públicos, representando inversiones importantes en el presupuesto del Estado.
+III.—Que por su parte la Sala Constitucional de la Corte Suprema de Justicia se ha pronunciado en diferentes casos sobre esta materia, en la que se pretende regular y hasta sancionar acciones comprobadas sobre el mal uso de los recursos del Estado.
+IV.—Que el criterio que se ha mantenido, es que las autoridades administrativas deben tomar las medidas pertinentes para garantizar la organización y buena prestación del servicio público a través de la regulación del uso de los instrumentos que para tal fin se faciliten a sus trabajadores.
+V.—Que de acuerdo con lo anterior, las medidas que se adopten bajo ese precepto, no resultan ser ni arbitrarias ni violatorias de los derechos fundamentales, todo lo contrario, establece claramente que son medidas que se encuentran contempladas dentro de las facultades y competencias que posee la Administración para su organización y buena prestación del servicio público.
+VI.—Que en ejercicio de las facultades y competencias que posee la Administración para su organización y buena prestación del servicio público, debe este órgano colegiado aprobar el reglamento objeto de estudio, toda vez que le permitirá a AyA lograr una mayor eficiencia y optimización de los recursos y procedimientos institucionales. Por tanto,
+De conformidad con las consideraciones que anteceden y con fundamento en los artículos 11, 18, 50 y 129 de la Constitución Política, artículos 4, 6, 13, 16, 113, 114, 124, y 136 de la Ley General de la Administración Pública, así como en los artículos 1, 2, 5 y 11 inciso i) de la Ley Constitutiva del Instituto Costarricense de Acueductos y Alcantarillados, esta Junta Directiva aprueba el siguiente Reglamento para la adquisición y administración de los recursos informáticos del Instituto Costarricense de Acueductos y Alcantarillados y el Manual de Procedimientos para la adquisición de recursos informáticos del Instituto Costarricense de Acueductos y Alcantarillados:
+REGLAMENTO PARA LA ADQUISICIÓN Y ADMINISTRACIÓN
+DE LOS RECURSOS INFORMÁTICOS DEL INSTITUTO
+COSTARRICENSE DE ACUEDUCTOS
+Y ALCANTARILLADOS
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Objeto y ámbito de aplicación. Este Reglamento establece los criterios que deberán observar los funcionarios o terceros contratados del Instituto Costarricense de Acueductos y Alcantarillados, AyA, para la adquisición y administración de los recursos informáticos de la Institución.

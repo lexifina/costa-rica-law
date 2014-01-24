@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Servicios de Mantenimiento Preventivo y Correctivo
+Artículo 46.—Responsables. Es potestad de la Dirección de TI y de los analistas y enlaces de soporte técnico de las diferentes dependencias, apoyar y velar porque se desarrollen los planes de mantenimiento preventivo y correctivo, y se cuente con los mecanismos para contratar dichos servicios y/o los contratos respectivos para todos los recursos informáticos. Los planes deben estar asociados a los requerimientos presupuestarios necesarios para llevarlos a cabo y de preferencia, estar incorporados dentro de las contrataciones de compra de equipos.

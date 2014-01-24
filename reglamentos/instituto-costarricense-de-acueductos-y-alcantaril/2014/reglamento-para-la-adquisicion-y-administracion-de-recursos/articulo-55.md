@@ -1,0 +1,1 @@
+Artículo 55.—Verificación de instalaciones. Corresponde a la Dirección de TI realizar inspecciones periódicas para verificar las instalaciones y medidas de seguridad donde se encuentran ubicados los recursos informáticos.

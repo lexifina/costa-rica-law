@@ -1,0 +1,1 @@
+Artículo 35.—Cuentas especiales. La Administración podrá autorizar la creación de cuentas especiales asignadas a áreas y grupos específicos, los cuales deberán designar un responsable a quien se le darán los derechos para el envío y recepción y quien deberá responder por el uso que se le dé dicha cuenta.

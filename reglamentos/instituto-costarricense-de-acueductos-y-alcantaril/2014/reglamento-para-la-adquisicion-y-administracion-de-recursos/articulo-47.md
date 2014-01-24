@@ -1,0 +1,2 @@
+Artículo 47.—Administración de servicios de reparación. Las dependencias que requieran contratar servicios de reparación, deberán solicitar el visto bueno de la Dirección de TI y posteriormente, serán las responsables de velar por el cumplimiento de los servicios contratados, por medio del analista de soporte técnico.
+Cuando así se requiera, en casos calificados y/o de la dependencia responsable, la Dirección de Tecnologías de Información puede apoyar la supervisión de los trabajos contratados y aprobar los informes finales.

@@ -1,0 +1,1 @@
+Artículo 39.—Capacidad de envío. Existe un tamaño máximo estándar del mensaje que se puede enviar utilizando los servidores de correo del Instituto, el cual se puede variar según las necesidades del usuario previa autorización de jefe inmediato.

@@ -1,0 +1,2 @@
+Artículo 29.—Almacenamiento, intercambio y reproducción de archivos y software. Es totalmente prohibido para uso interno o fines particulares, almacenar, intercambiar, reproducir o transmitir archivos o software de música, vídeo, o cualquier otro que viole o esté regulado por la legislación de propiedad intelectual y derechos de autor.
+De igual forma esta regulación se aplica a los archivos con contenido ofensivo con relación a los ámbitos sexual, de raza, género, nacionalidad, creencias religiosas o políticas.

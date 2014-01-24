@@ -1,0 +1,3 @@
+Artículo 33.—Comunicación unificada. Esta herramienta será de uso oficial institucional para una comunicación eficaz entre los funcionarios utilizando los servicios de la red de datos (mensajería instantánea, vídeo, voz por Internet), bajo las siguientes regulaciones:
+Se asignará a funcionarios cuyas actividades sustantivas justifiquen su uso como herramienta de trabajo, y/o según los diferentes niveles y/o perfiles autorizado por la Gerencia General, y de acuerdo a lo solicitado por los Directores y Superiores de las Dependencias.
+La instalación de soluciones que utilicen herramientas no institucionales de uso público deberá ser avalada a nivel de Subgerencia o superior.

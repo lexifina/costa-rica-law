@@ -1,0 +1,1 @@
+Artículo 8º—Estándares y lineamientos. Corresponde a la Dirección de TI, emitir los estándares y lineamientos para todo el ciclo de vida de los proyectos de desarrollo de sistemas de información e implantación de aplicaciones o aceptar aquellos de firmas externas que posean los propios, de acuerdo a sus metodologías y que resulten ser los adecuados al interés institucional.

@@ -1,0 +1,1 @@
+Artículo 42.—Cuentas inactivas. Las cuentas de correo que no hayan sido accedidas en un periodo de 45 días, y no se tenga notificación alguna del usuario al respecto, serán cerradas. Los correos que no se lean en el plazo de dos meses, a partir de su entrada al Servidor, serán borrados.

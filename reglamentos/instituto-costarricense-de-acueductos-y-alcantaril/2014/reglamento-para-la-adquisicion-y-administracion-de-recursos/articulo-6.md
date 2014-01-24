@@ -1,0 +1,1 @@
+Artículo 6º—Gestión del riesgo. Toda la actividad relacionada con las TIC’s debe hacer una valoración del riesgo, con el fin de responder adecuadamente a las amenazas que puedan afectar la gestión, en acatamiento de toda aquella normativa relacionada con este tema.

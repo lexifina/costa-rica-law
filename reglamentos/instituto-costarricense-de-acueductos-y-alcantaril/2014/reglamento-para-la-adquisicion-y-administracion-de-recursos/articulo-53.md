@@ -1,0 +1,1 @@
+Artículo 53.—Acuerdos de confidencialidad y propiedad intelectual. Todo funcionario de AyA y tercero contratado, deberá firmar un acuerdo de confidencialidad de la información, a que tendrá acceso, protección de la propiedad intelectual de los productos a desarrollar, y respeto a la ley de Protección de la Persona frente al tratamiento de sus datos personales N° 8968.

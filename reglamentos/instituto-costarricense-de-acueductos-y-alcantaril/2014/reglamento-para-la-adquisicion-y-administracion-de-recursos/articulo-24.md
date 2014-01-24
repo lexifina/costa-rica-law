@@ -1,0 +1,1 @@
+Artículo 24.—Administración de la infraestructura tecnológica. La infraestructura de tecnologías de información y comunicaciones será operada y administrada exclusivamente por personal capacitado y autorizado por la Dirección de TI.

@@ -1,0 +1,1 @@
+Artículo 41.—Archivos de gran tamaño. Los usuarios que deben compartir información de interés general, pero que sobrepasa el límite de tamaño de los mensajes, debe comunicarse con la Dirección de TI, para, si es del caso, esta información se incluya en el portal colaborativo y así todos los interesados la puedan acceder sin causar un tráfico excesivo en el correo.

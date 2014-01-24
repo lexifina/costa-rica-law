@@ -1,0 +1,1 @@
+Artículo 38.—Temática de los mensajes masivos. La temática de los mensajes para envío masivo debe ser únicamente de interés institucional general. Los temas políticos, sociales o religiosos no están autorizados.

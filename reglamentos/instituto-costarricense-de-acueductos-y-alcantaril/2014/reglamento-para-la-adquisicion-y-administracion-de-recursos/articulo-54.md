@@ -1,0 +1,1 @@
+Artículo 54.—Acceso al Centro de Cómputo. El acceso a las instalaciones donde se encuentra ubicado el Centro de Cómputo es restringido. Para ello se deben implementar medidas de segundad automatizadas para el personal del área, y manuales para las personas ajenas al área de tecnología, donde deben registrar su ingreso.
