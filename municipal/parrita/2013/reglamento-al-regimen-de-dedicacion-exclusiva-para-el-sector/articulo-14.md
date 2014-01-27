@@ -1,0 +1,1 @@
+Artículo 14.—En caso de que el profesional disfrute de un permiso sin goce de salario (cuando este es por más de una semana) el contrato se suspenderán en forma temporal, no obstante, a su regreso el servidor o servidora seguirá acogido a la Dedicación Exclusiva.
