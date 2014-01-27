@@ -15,3 +15,4 @@ Reglamento para el Pago de Compensación por Disponibilidad
 | --- | --- | --- |
 | 1 | 2008-10-15 | la propia norma |
 | 2 | 2008-11-05 | Reglamento municipal 0 (2008-11-05) |
+| 3 | 2014-01-27 | Reglamento municipal 4 (2014-01-27) |
