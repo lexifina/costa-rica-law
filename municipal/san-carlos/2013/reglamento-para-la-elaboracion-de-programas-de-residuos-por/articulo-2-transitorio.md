@@ -1,0 +1,1 @@
+Transitorio 2º—Los generadores deberán obtener en la Municipalidad el protocolo de implementación, el formato del Programa de Residuos y la guía práctica para su elaboración, o podrán obtenerlo de la Página Web de la Municipalidad www. munisc.go.cr.

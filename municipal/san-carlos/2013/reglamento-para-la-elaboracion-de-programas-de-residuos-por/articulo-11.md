@@ -1,0 +1,1 @@
+Artículo 11.—Suspensión del incentivo otorgado. La Municipalidad puede suspender el incentivo otorgado a algún generador si comprueba la no continuidad de la acción por la cual lo recibió o se presente un incumplimiento a este reglamento.

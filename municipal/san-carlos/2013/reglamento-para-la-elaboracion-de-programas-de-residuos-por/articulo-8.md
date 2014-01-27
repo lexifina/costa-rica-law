@@ -1,0 +1,1 @@
+Artículo 8º—Validez de los incentivos. Los incentivos tendrán una validez de dos años a partir de su otorgamiento. Si durante esos dos años se comprueba alguna falta a este reglamento o su protocolo por parte del generador, la Municipalidad tendrá la potestad de suspender el incentivo de acuerdo a lo estipulado en el artículo 10 de este reglamento.

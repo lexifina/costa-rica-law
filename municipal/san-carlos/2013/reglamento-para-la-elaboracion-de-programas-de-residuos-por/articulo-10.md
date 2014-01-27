@@ -1,0 +1,1 @@
+Artículo 10.—Denuncias. En caso de que existan indicios sobre una infracción o incumplimiento de un generador, los inspectores municipales o una tercera persona podrán presentar la denuncia ante la Municipalidad. En caso de encontrarse indicios de incumplimiento de este reglamento, se le notificará al responsable para el inicio del procedimiento administrativo respectivo.

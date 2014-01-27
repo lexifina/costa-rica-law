@@ -1,0 +1,13 @@
+Artículo 3º—Definiciones. Para efectos de este reglamento se entiende por:
+a) Generador: persona física o jurídica, pública o privada, que genera residuos sólidos, a través del desarrollo de procesos productivos, de servicios, de comercialización o de consumo que son de competencia municipal, a excepción de las viviendas.
+b) Gestión Integral de Residuos Sólidos (GIRS): Conjunto articulado e interrelacionado de acciones regulatorias, operativas, financieras, administrativas, educativas, de planificación, monitoreo y evaluación para el manejo de los residuos sólidos, desde su generación hasta la disposición final.
+c) Incentivos: se refiere a cualquier beneficio otorgado a los generadores que contribuyan con una correcta gestión de sus residuos sólidos, demostrando minimización y separación selectiva de dichos residuos.
+d) Programa de Residuos por parte de los generadores: herramienta de planificación e implementación de las acciones que los generadores emprendan para mejorar la gestión de los residuos sólidos que generan por su actividad diaria, exceptuando las viviendas unifamiliares.
+e) Plan Municipal de Gestión Integral de Residuos Sólidos (PMGIRS): Instrumento que define la política cantonal en la materia y orientará las acciones municipales y/o cantonales en el tema dentro del área de su competencia. Es resultado de un proceso de planificación que se elabora de preferencia de forma participativa por la municipalidad incorporando los diversos actores del cantón.
+f) Reglamento: El presente reglamento.
+g) Residuo sólido: Material sólido o semisólido, post-consumo cuyo generador o poseedor debe o requiere deshacerse de él.
+h) Residuo sólido ordinario: Residuo de origen principalmente domiciliario o que proviene de cualquier otra actividad comercial, de servicios, industrial, limpieza de vías y áreas públicas, que tengan características similares a los domiciliarios.
+i) Residuo sólido valorizable: Residuo que tiene valor de reuso o tiene potencial de ser valorizado a través de procesos de reciclaje o compostaje.
+j) Separación de los residuos: Procedimiento mediante el cual se evita desde la fuente de generación que se mezclen los residuos sólidos, lo que permite que éstos se dispongan de forma clasificada y separada, con fines de recolección.
+k) Valorización: Conjunto de acciones asociadas cuyo objetivo es dar un valor agregado a los residuos para los procesos productivos mediante la recuperación de materiales y/o el aprovechamiento energético y el uso racional de los recursos.
+l) Protocolo: Ordenanza para operar el Reglamento Municipal para la Elaboración de Programas de Manejo de Residuos sólidos y el Otorgamiento de Incentivos para los Generadores de Residuos Sólidos del Cantón de San Carlos.

@@ -1,0 +1,1 @@
+Artículo 6º—Sobre la obligatoriedad de la elaboración del programa de residuos por parte de los generadores. Presentar una copia del programa de residuos es un requisito para la solicitud de la patente comercial en la municipalidad de San Carlos.
