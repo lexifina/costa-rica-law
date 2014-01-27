@@ -1,1 +1,0 @@
-Artículo 67.—Los traspasos de derechos serán estudiados por la Comisión Administradora, la cual deberá pronunciarse en el plazo máximo de un mes calendario a fin de calificar la pertinencia o procedencia de cada caso.

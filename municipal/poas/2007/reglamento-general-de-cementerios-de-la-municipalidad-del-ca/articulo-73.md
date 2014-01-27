@@ -1,1 +1,0 @@
-Artículo 73.—En casos de indigencia, salubridad, o manifiesto interés público, la Alcaldía podrá, condonar el pago de los derechos de tapa. La resolución que así lo acuerde, deberá estar debidamente motivada y conservarse en el Registro de Inhumaciones junto al asiento respectivo.
