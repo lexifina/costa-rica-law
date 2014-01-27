@@ -1,3 +1,0 @@
-Artículo 45.—De las sanciones penales y su procedimiento. Si el infractor violentara los sellos colocados por los inspectores, conforme al procedimiento establecido en el presente reglamento:
-a) El Departamento de Control y Planificación Urbana levantará una copia del expediente administrativo debidamente foliado, el cual será remitido a la Asesoría Legal, para efectos de que elabore la denuncia ante el Juzgado Penal de Faltas y Contravenciones, por el delito de Violación de Sellos Oficiales.
-b) La asesoría legal, una vez completa la documentación, trasladará la denuncia Municipal a dicho Juzgado, notificando al infractor del mismo.

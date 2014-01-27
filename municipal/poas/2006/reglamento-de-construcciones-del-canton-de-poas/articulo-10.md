@@ -1,1 +1,0 @@
-Artículo 10.—Toda obra que no sea declarada como obra menor, por parte del Departamento de Control y Planificación Urbana, deberá presentar la solicitud de licencia Municipal de construcción que estos efectos señala el artículo 74 de la Ley de Construcciones, cumpliendo con todos los visados municipales y demás normativa conforme.
