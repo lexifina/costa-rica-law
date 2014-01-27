@@ -1,0 +1,3 @@
+Artículo 21.—Reuniones del CICI. El CICI se reunirá una vez cada dos meses de forma ordinaria y se deberá reunir de forma extraordinaria cuando sean convocados por el/la Coordinador/a, en función de las necesidades administrativas, para cumplir con el mantenimiento y fortalecimiento del Sistema de Control Interno y del Sistema Específico de Valoración de Riesgos.
+Igualmente, podrán ser solicitadas reuniones extraordinarias por al menos tres de los miembros, o bien por la Coordinadora de la Unidad de Control Interno. La convocatoria respectiva será confirmada por el/la Coordinador/a del Comité.
+La convocatoria deberá realizarse con al menos 24 horas de anticipación.

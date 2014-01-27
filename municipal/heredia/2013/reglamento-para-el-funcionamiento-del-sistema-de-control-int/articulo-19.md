@@ -1,0 +1,1 @@
+Artículo 19.—De la asistencia a las reuniones del CICI. Los/as titulares, personal o miembros de los comités referidos en los artículos anteriores, deberán participar en las reuniones a las que se les convoque de forma obligatoria.
