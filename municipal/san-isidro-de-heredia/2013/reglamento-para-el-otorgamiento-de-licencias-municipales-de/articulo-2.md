@@ -1,0 +1,4 @@
+Artículo 2º—Objetivos específicos:
+1. Asegurarse que las obras, estructuras e instalaciones para Redes y Sistemas de Telecomunicaciones, sean realizadas de conformidad con las especificaciones técnicas bajo las cuáles fueron autorizadas.
+2. Propiciar razonablemente la minimización del impacto visual y ambiental sin perjuicio de la legislación nacional vigente, para lo cual se autorizará la construcción únicamente de la infraestructura necesaria para lograr la cobertura y calidad del servicio que requiere la población en el ámbito de las telecomunicaciones, rechazando toda gestión que no forme parte de este principio.
+3. Asegurar que las actividades comerciales desplegadas cumplan las regulaciones existentes en materia de patentes comerciales, de acuerdo con el Código Municipal, cuerpo normativo de esta Municipalidad y demás legislación aplicable.
