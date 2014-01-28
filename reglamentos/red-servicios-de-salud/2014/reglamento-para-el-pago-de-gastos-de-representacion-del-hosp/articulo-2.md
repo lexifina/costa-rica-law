@@ -1,0 +1,1 @@
+2º—Concepto de Gastos de Representación: Se entiende por gastos de representación, aquellas erogaciones en que incurran ciertos colaboradores para sufragar gastos con motivo de actividades de interés del Hospital del Trauma y en la atención de personas o representantes de entidades ajenas al mismo.

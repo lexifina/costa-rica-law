@@ -1,0 +1,1 @@
+4º—Funcionarios autorizados: En primera instancia solo podrá incurrir en gastos de representación el Gerente General, sin embargo éste podrá autorizar los gastos de representación a aquellos colaboradores en los cuales delegue algún tipo de representación, en cumplimiento de sus funciones y que lo requieran.

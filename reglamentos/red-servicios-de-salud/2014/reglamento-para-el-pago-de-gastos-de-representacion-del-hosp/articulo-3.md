@@ -1,0 +1,1 @@
+3º—Carácter oficial de la atención: La atención que se cubra mediante gastos de representación debe revestir carácter oficial; para ello debe estar autorizada por el superior inmediato como tal; dichas erogaciones deben efectuarse dentro de un evento o actividad en la que el colaborador autorizado participe en representación del Hospital del Trauma.
