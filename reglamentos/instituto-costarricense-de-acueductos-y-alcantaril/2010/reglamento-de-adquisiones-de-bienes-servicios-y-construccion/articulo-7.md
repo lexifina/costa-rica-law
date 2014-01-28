@@ -1,1 +1,2 @@
-Artículo 7º—En aquellos casos en que se haya promovido una contratación por escasa cuantía o alguna licitación para la adquisición de artículos para inventario y algunas líneas hayan sido declaradas infructuosas o desiertas y el monto de las mismas no sobrepasen en conjunto el límite establecido para la modalidad de FT, podrá adquirirse mediante tal procedimiento.
+Artículo Nº 7: Las contrataciones por FT podrán ser sujetas a la aplicación del artículo 200 del Reglamento a la Ley de Contratación Administrativa (modificación unilateral), siempre y cuando se cuente con el aval del Área Legal de Contratación Administrativa.
+(Así reformado mediante sesión ordinaria N° 2014-004 del 28 de enero del 2014)

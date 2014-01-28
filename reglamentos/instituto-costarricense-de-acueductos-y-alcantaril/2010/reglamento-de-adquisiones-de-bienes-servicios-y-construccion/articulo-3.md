@@ -1,1 +1,2 @@
-Artículo 3º—Los procedimientos de contratación administrativa ordinarios y sus excepciones que se requieran tramitar en el AyA, se llevarán a cabo por la Proveeduría Institucional; por los diferentes Fondos de Trabajo Institucionales y por las unidades de compras menores denominadas cajas chicas, según se regulará más adelante.
+Artículo N° 3: Los procedimientos de contratación administrativa ordinarios y sus excepciones que se requieran tramitar en el AyA, se llevarán a cabo por la Dirección de Proveeduría; por los diferentes Fondos de Trabajo Institucionales y por las unidades de compras menores denominadas cajas chicas, según se regulará más adelante.
+(Así reformado mediante sesión ordinaria N° 2014-004 del 28 de enero del 2014)

@@ -14,3 +14,4 @@ Reglamento de Adquisiones de Bienes, Servicios y Construcción de Obras del Inst
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-07 | la propia norma |
+| 2 | 2014-01-28 | Reglamento 4 (2014-01-28) |
