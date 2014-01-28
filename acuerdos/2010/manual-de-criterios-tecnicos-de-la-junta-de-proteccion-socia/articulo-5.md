@@ -27,6 +27,11 @@ Para el financiamiento de un segundo vehículo, deben haber transcurrido mínimo
 5.3. Se pueden financiar proyectos de construcción a organizaciones e instituciones que dispongan del terreno inscrito a su nombre y planos constructivos, cuando la demanda del servicio así lo requiera, y que el existente, cuente con la habilitación del Ministerio de Salud, así como que el programa tenga al menos un año de funcionamiento. Se consideran casos de excepción los proyectos constructivos en terrenos propiedad de:
 5.3.1. Una entidad pública directamente relacionada con el programa que se pretende beneficiar.
 5.3.2. Una organización privada con fines similares a la solicitante.
+5.3.3. Organizaciones cuyas instalaciones representen un riesgo para la integridad física de la población, sus colaboradores y visitantes.
+(Así adicionado el punto anterior mediante sesión ordinaria N° 03-2014 del 28 de enero del 2014)
+(*) 5.3.4. Riesgo de cierre técnico por incumplimiento de órdenes sanitarias emitidas por el Ministerio de Salud.
+Para estos casos la Junta Directiva analizará la situación de conformidad con la documentación presentada. La recepción formal del proyecto y la elaboración de los estudios técnicos iniciarán una vez que se cuente con el aval de la Junta Directiva.
+(*)(Así adicionado el punto anterior mediante sesión ordinaria N° 03-2014 del 28 de enero del 2014)
 En los cuales se deberá suscribir un convenio tripartito: Junta, organización solicitante y entidad propietaria.
 5.4. En casos excepcionales se considerarán proyectos de compra de lote y construcción a juicio de la Junta Directiva.
 5.5. Se pueden financiar proyectos de compra de lote, siempre y cuando la organización demuestre que cuenta con los fondos suficientes para construir.
