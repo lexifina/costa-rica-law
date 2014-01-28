@@ -1,7 +1,9 @@
 CAPÍTULO II
 Condiciones generales
-Artículo 11.—Prohibiciones. Son de acatamiento obligatorio las siguientes disposiciones:
-a) Las instalaciones del PAM sólo podrán ser utilizadas para actividades relacionadas con educación ambiental, protección del recurso hídrico, desarrollo turístico sostenible y gestión municipal; por lo que toda autorización de uso contraria a dichos fines se encuentra prohibida. Igualmente, el Comité Gestor se encuentra facultado para ordenar la suspensión inmediata de cualquier actividad que se desarrolle en oposición a ese destino o incumpla alguno de los requisitos de utilización, pudiéndose hacer uso de Fuerza Pública inclusive.
+Artículo 11.—Prohibiciones
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 259-2013 del 22 de octubre del 2013 y definitivamente aprobado mediante sesión N° 280-14 del 28 de enero del 2014)
+a) Las instalaciones del PAM solo podrán ser utilizadas para actividades relacionadas con educación ambiental, protección del recurso hídrico, desarrollo turístico sostenible y gestión municipal; por lo que toda autorización de uso contraria a dichos fines se encuentra prohibida . Igualmente la administración se encuentra facultada para ordenar la suspensión inmediata de cualquier actividad que se desarrolle en oposición a ese destino o incumpla alguno de los requisitos de utilización, pudiéndose hacer uso de la Policía Municipal y de la Fuerza Pública inclusive.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 259-2013 del 22 de octubre del 2013 y definitivamente aprobado mediante sesión N° 280-14 del 28 de enero del 2014)
 b) Acatar las indicaciones y recomendaciones tanto de los funcionarios municipales debidamente identificados como de los oficiales de seguridad.
 c) No ingresar a las zonas de uso restringido. Por seguridad se deberá transitar por los senderos o dentro de las zonas destinadas para uso público.
 d) No ingresar al área de captación ya que es una zona frágil.
@@ -15,4 +17,5 @@ k) No utilizar radios o algún otro dispositivo que genere sonidos no aptos para
 l) No fumar, ingerir bebidas alcohólicas, utilizar petardos y cohetes de artificio, productos y sustancias inflamables, tóxicas y peligrosas, elementos punzo cortantes, armas de fuego.
 m) No acampar.
 n) No podrán ingresar los niños menores de 12 años sin el acompañamiento de un adulto responsable.
-o) No realizar actividades recreativas dentro del sendero denominado “El Viaje del Agua”.
+o) No realizar actividades recreativas en los senderos del PAM, en la zona de captación u en otra área que la administración considere necesaria.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 259-2013 del 22 de octubre del 2013 y definitivamente aprobado mediante sesión N° 280-14 del 28 de enero del 2014)
