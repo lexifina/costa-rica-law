@@ -1,0 +1,1 @@
+2º—Disponer que para aquellos casos en que actué el subgerente, en los casos antes mencionados se deberá indicar expresamente en los actos administrativos (resolución u oficio), la resolución en que consta la delegación de dichas competencias.

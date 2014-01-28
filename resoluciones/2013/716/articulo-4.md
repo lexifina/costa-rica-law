@@ -1,0 +1,1 @@
+4º—Ordenar para los casos indicados en el apartado anterior, que se indique expresamente en el acto administrativo (resolución, oficio, circular, otras) la circunstancia o motivo por el cual no actúa el Gerente (vacaciones, incapacidad, permiso, otras, haciendo referencia al N° de acuerdo, oficio u otro documento en que conste tal circunstancia.
