@@ -1,0 +1,5 @@
+Artículo 29.—Es responsabilidad de cada unidad usuaria:
+1. Incorporar una cláusula que contemple el requisito para el adjudicatario de suscribir las pólizas (Responsabilidad Civil, Todo Riesgo de Construcción, Fidelidad, etc.) que sean necesarias según el riesgo inherente a la actividad a contratar, en el texto de los proyectos de cartel o especificaciones técnicas que remita a la Proveeduría, o en su defecto indicar expresamente que no se requiere suscribir ningún tipo de seguro.
+2. Durante la ejecución de los contratos, la unidad usuaria velará porque los adjudicatarios mantengan vigentes las pólizas de seguros requeridas y realicen oportunamente el pago de las cuotas patronales ante la CCSS y del seguro de Riesgos del Trabajo ante la Institución, solicitando para ello los comprobantes respectivos.
+3. En caso de incumplimiento del requisito anterior, por parte del adjudicatario, deberá comunicarle –por escrito, con copia a la Proveeduría su obligación de cumplir con los requisitos indicados en el punto 2 anterior.
+4. Si el incumplimiento persiste le corresponderá también solicitar a la Proveeduría que ésta última gestione la rescisión del contrato.

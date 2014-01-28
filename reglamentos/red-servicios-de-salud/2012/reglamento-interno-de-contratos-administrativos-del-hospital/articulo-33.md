@@ -1,0 +1,2 @@
+Artículo 33.—El Hospital podrá realizar sus procesos de contratación administrativa mediante el sistema Mer-Link o CompraRed, dichos procesos se ejecutarán de acuerdo con el Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea Mer-Linky el de CompraRed, Decretos Ejecutivos N° 36242-MP-PLAN y Decreto N° 32717-H.
+Todo conforme al acuerdo II, sesión N° 17 del 25 de junio del 2012.

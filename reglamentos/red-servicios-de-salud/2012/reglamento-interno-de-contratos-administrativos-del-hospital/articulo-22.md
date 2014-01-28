@@ -1,0 +1,2 @@
+Artículo 22.—Cuando hubiere incongruencia entre las especificaciones del respectivo Cartel y las del equipo o activo recibido, así como deficiencias de funcionamiento de éste, la unidad usuaria deberá especificarlos en forma clara y detallada en el informe al Departamento de Proveeduría a efecto de iniciar las acciones que procedan.
+Este departamento tan pronto reciba el informe determinará la mejor estrategia de actuación de modo que los intereses del Hospital sean pronta y eficazmente defendidos.

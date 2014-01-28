@@ -1,0 +1,1 @@
+Artículo 2º—La compra, venta y arrendamiento de bienes, servicios y obras que realice el Hospital estará regulada por la Ley de Contratación Administrativa, su Reglamento, este Reglamento Interno y las demás disposiciones que resulten aplicables.
