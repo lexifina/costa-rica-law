@@ -14,3 +14,4 @@ Reglamento interno para el uso de las tarjetas de compras empresariales del Hosp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-28 | la propia norma |
+| 2 | 2014-01-28 | Reglamento 23 (2012-11-14) |

@@ -1,1 +1,6 @@
-8º—Contenido presupuestario: Los pagos que se realicen por medio de Tarjeta de Compras Empresariales deberán contar con el correspondiente contenido presupuestario y se respaldarán con el justificante o comprobante originales. La existencia del contenido presupuestario debe ser verificada por la jefatura de la unidad a la que pertenece el usuario.
+8º—Funciones de la Administración Financiera: Para el correcto uso y manejo de las Tarjetas de Compras Empresariales, el Departamento Financiero atenderá a las siguientes funciones:
+a) Verificar que el concepto indicado en los comprobantes y justificantes guarde relación directa con el detalle del Reintegro de los gastos pagados por medio de Tarjeta de Compras Empresariales.
+b) Mantener un adecuado archivo de los documentos relacionados con el uso de las Tarjetas de Compras Empresariales.
+c) Establecer un expediente en donde se archive el presente reglamento y toda documentación que se refiera al mismo.
+d) Mantener un sistema adecuado de control interno.
+e) Velar por el fiel cumplimiento de las disposiciones contenidas en el presente reglamento.

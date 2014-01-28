@@ -1,2 +1,1 @@
-5º—Gastos autorizados: Los gastos autorizados para ser pagados por medio de la Tarjeta de Compras Empresariales son los que cuenten con contenido presupuestario para ello.
-Para todos los gastos que aplique, específicamente para los relacionados con los consumidos fuera del lugar habitual de trabajo, aplica lo dispuesto en el “Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos” de la Contraloría General de la República.
+5º—Fondo Fijo autorizado y monto máximo del pago: El monto máximo autorizado para cancelar un gasto por medio de Tarjeta de Compras Empresariales será el mismo que el máximo de gasto autorizado según el Reglamento para el uso de la Caja Chica.
