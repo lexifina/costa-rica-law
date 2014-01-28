@@ -1,0 +1,1 @@
+Artículo 20.—La Alcaldía o la Dirección Administrativa de la Municipalidad, podrán suspender el permiso de conducir vehículos Municipales a cualquier conductor de la institución, que contravenga lo dispuesto en la Ley de Tránsito, así como otras leyes vigentes en la materia, este Reglamento o los procedimientos establecidos.

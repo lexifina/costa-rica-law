@@ -1,0 +1,1 @@
+Artículo 28.—Es responsabilidad exclusiva de cada conductor el cumplimiento de lo establecido en el presente capítulo, de ahí que si acata órdenes de otras direcciones o jefaturas, que contravengan dichas disposiciones, asumirá las consecuencias que esa acción origine.

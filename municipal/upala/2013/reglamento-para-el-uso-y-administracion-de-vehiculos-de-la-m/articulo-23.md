@@ -1,0 +1,1 @@
+Artículo 23.—Los conductores de vehículos institucionales no podrán hacer intercambios de accesorios entre las unidades, si no cuenta con la aprobación previa de la Jefatura y La Dirección Administrativa.

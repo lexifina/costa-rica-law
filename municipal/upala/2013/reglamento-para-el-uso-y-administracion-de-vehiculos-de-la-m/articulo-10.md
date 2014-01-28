@@ -1,0 +1,1 @@
+Artículo 10.—Corresponderá a la alcaldía o la dirección administrativa, autorizar la salida del país, de los vehículos de la Municipalidad, cuando las situaciones de trabajo así lo demanden, o en representación de la Municipalidad, siempre y cuando ambas causas, hayan sido previamente, conocidas y autorizadas por el Concejo Municipal.

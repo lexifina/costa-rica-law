@@ -1,0 +1,1 @@
+Artículo 18.—En situaciones no ordinarias, en caso de horas o días no hábiles, imprevistos, en caso fortuito o fuerza mayor, el alcalde podrá autorizar, mediante una boleta de la salida, el uso de los vehículos, dejando constancia de la justificación, la cual debe ser debidamente razonada.

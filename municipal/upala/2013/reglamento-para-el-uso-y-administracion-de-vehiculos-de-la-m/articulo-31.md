@@ -1,0 +1,1 @@
+Artículo 31.—Ningún conductor de la Municipalidad está autorizado para efectuar arreglos extrajudiciales o conciliaciones en nombre de la Municipalidad en caso de accidentes con vehículos municipales o alquilados o en préstamo.
