@@ -1,0 +1,1 @@
+8º—Contenido presupuestario: Los pagos que se realicen por medio de Tarjeta de Compras Empresariales deberán contar con el correspondiente contenido presupuestario y se respaldarán con el justificante o comprobante originales. La existencia del contenido presupuestario debe ser verificada por la jefatura de la unidad a la que pertenece el usuario.

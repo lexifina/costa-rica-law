@@ -1,0 +1,1 @@
+2º—Objetivo: El presente reglamento contiene las disposiciones que regirán el uso y manejo correcto de las Tarjetas de Compras Empresariales del Hospital del Trauma, S.A., otorgadas a los funcionarios autorizados para esto, a los cuales se les denominará en adelante “Usuarios”. Estos usuarios serán establecidos por la Gerencia General.
