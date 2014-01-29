@@ -1,0 +1,1 @@
+Artículo 2º—Se insta al Ministerio de Trabajo y Seguridad Social, al Ministerio de Economía, Industria y Comercio, al Instituto Mixto de Ayuda Social y a las demás instituciones del Estado, para que, dentro del marco legal respectivo, su ámbito de competencia y de acuerdo con sus posibilidades, colaboren activamente para el desarrollo de las empresas sociales en Costa Rica.
