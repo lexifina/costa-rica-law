@@ -1,1 +1,0 @@
-Artículo 52.—El presente Reglamento rige a partir de su aprobación y solo podrá ser interpretado o modificado por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, con la aprobación de no menos de cinco de sus miembros.

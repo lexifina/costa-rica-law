@@ -1,1 +1,0 @@
-Artículo 19.—Para lograr el mayor aprovechamiento de los Vehículos disponibles se deberán agrupar en un solo viaje, varias solicitudes de transporte que se generen hacia un mismo sitio o ruta, siempre que las circunstancias lo permitan; para ello se brindará aviso oportuno a los (las) interesados (as) para lograr una adecuada coordinación del viaje.

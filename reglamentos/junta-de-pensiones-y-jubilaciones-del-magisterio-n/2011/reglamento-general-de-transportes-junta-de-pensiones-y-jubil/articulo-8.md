@@ -1,1 +1,0 @@
-Artículo 8º—Todos los vehículos deberán cumplir con los programas de mantenimiento preventivo y correctivo; así como el control de abastecimiento de combustibles y lubricantes, de kilometraje y diligencias en caso de accidente de tránsito. El mantenimiento de estos Vehículos será responsabilidad directa del Departamento Administrativo.

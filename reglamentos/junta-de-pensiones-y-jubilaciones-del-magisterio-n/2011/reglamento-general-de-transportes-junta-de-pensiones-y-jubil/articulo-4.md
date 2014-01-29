@@ -1,1 +1,0 @@
-Artículo 4º—Los vehículos de uso administrativo son aquellas unidades destinadas a prestar servicios regulares de transporte, para el desarrollo normal de funciones y actividades de las diferentes dependencias de la JUNTA.

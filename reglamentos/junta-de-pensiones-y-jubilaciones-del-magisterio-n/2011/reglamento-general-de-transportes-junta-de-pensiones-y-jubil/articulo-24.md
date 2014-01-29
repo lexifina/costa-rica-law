@@ -1,1 +1,0 @@
-Artículo 24.—El (la) Director(a) Ejecutivo(a), autorizará como giro normal de la Institución, el uso de vehículos a grupos de funcionarios para actividades culturales, sociales y deportivas, que coadyuven en el fortalecimiento del clima organizacional.

@@ -1,1 +1,0 @@
-Artículo 15.—Cuando por razones especiales no haya sido posible programar el servicio de transporte y/o se requiera en días y horas hábiles o inhábiles, sólo podrá ser autorizado por la Dirección Ejecutiva. En el caso de urgencia comprobada, la autorización corresponderá al Departamento Administrativo.

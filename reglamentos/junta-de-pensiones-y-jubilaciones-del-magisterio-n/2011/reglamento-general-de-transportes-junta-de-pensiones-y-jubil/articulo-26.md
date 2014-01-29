@@ -1,1 +1,0 @@
-Artículo 26.—El (la) Director(a) Ejecutivo(a) aplicará las sanciones pertinentes a los (las) funcionarios (as) que incumplan el programa de mantenimiento, de acuerdo al Manual de Procedimientos Disciplinarios.

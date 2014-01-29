@@ -1,1 +1,0 @@
-Artículo 51.—El (la) Director o Directora o funcionario(a) que incumpla con lo establecido en el presente Reglamento, será sancionado(a) y responsabilizado(a) de conformidad con lo establecido en el Reglamento Interior de Trabajo o la legislación que corresponda, según sea el caso, por la Junta Directiva o la Dirección Ejecutiva.

@@ -1,1 +1,0 @@
-Artículo 28.—El Departamento Administrativo deberá recomendar la venta o canje de unidades, que por alguna circunstancia han dejado de ser útiles o convenientes para la JUNTA. Anualmente se presentará un informe a la Dirección Ejecutiva al respecto, en el momento de la presentación de los proyectos de Plan Anual Operativo y Presupuesto de dicho Departamento.

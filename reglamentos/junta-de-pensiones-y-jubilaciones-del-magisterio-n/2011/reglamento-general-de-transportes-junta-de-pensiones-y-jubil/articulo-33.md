@@ -1,1 +1,0 @@
-Artículo 33.—Los (Las) conductores (as) no deben permitir que personas ajenas para la función o el servicio que se brinda, viajen en los vehículos salvo en ocasiones especiales en que medie autorización del o (de la) superior o en casos de urgencias comprobadas.

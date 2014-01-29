@@ -1,1 +1,0 @@
-Artículo 14.—El formulario “Solicitud de Vehículo” deberá autorizarse por los (las) Jefes de Departamento o cualquier otro jerarca superior según corresponda. En los casos de Jefes de Departamento, la autorización podrá ser delegada en su inferior inmediato.

@@ -1,3 +1,0 @@
-Artículo 42.—Al rendir declaración ante la Autoridad Judicial correspondiente, el (la) conductor(a) deberá señalar, como lugar para recibir notificaciones, el Departamento Legal de la Junta con indicación del fax y dirección exacta de la Junta.
-En aquellos casos en que el accidente ocurra fuera de San José, se señalará, para tales efectos, de común acuerdo con el Departamento Legal un lugar dentro del perímetro judicial del Despacho competente plenamente conocido u otro medio idóneo, como el fax.
-El (la) interesado(a) deberá mantenerse en contacto con dicho lugar para atender notificaciones, a efecto de informarse del avance del trámite judicial y ofrecer la máxima colaboración para contribuir a su defensa en coordinación con el Departamento Legal.

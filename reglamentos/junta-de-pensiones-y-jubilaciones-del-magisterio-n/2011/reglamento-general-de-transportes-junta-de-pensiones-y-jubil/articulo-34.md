@@ -1,1 +1,0 @@
-Artículo 34.—Las personas autorizadas para conducir Vehículos de la JUNTA no podrán en ningún caso, salvo en circunstancias de fuerza mayor, ceder la conducción a otros (as) funcionarios (as) de la Institución no autorizados (as), directivos (as) o personas particulares.

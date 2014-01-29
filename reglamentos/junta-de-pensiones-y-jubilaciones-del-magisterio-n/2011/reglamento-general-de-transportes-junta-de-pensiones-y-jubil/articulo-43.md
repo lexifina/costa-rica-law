@@ -1,1 +1,0 @@
-Artículo 43.—Una vez obtenida por el Departamento Administrativo la información a que se refiere este capítulo, se remitirá al Departamento Legal, el que tendrá a su cargo la defensa del (la) conductor(a) y de los intereses de la JUNTA.
