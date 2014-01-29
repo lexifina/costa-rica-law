@@ -1,0 +1,1 @@
+Artículo 2º—Perfil profesional del terapeuta del lenguaje. La evolución de la profesión de terapia del lenguaje, refleja un aumento progresivo de las áreas de intervención de este profesional. Después de ser una profesión limitada al tratamiento de los trastornos del habla y de la audición, ahora tiene una concepción amplia de áreas de actuación.

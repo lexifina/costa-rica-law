@@ -1,0 +1,5 @@
+Artículo 18..Enfoques ocupacionales terapéuticos (Terapeuta del lenguaje en el sector educativo).
+En este ámbito, el terapeuta del lenguaje no es un docente de educación especial. Cumple el rol de prevención, evaluación y tratamiento de trastornos de la comunicación (lenguaje oral y escrito) y deglución presentes en estudiantes en edad preescolar y escolar.
+El ente regular de los terapeutas del lenguaje en el sector educativo es el Ministerio de Educación Pública, por lo que este profesional debe seguir las siguientes disposiciones:
+Los servicios de apoyo de Terapia del Lenguaje del Ministerio de Educación Pública, se proponen establecer o restablecer la competencia comunicativa no desarrollada, alterada o interrumpida en la población estudiantil desde el nivel de Preescolar hasta el Ciclo Diversificado de la educación regular y desde el nivel de Estimulación Temprana hasta el Ciclo Diversificado de la Educación Especial, (MEP, 2005, p. 11).
+El trabajo lo realiza interdisciplinariamente con docentes de educación general básica, docentes de educación especial, terapeutas físicos, terapeutas ocupacionales, psicólogos y otros que laboren en el sector educativo.
