@@ -1,0 +1,23 @@
+Nº 38119-MP-MBSF
+LA PRESIDENTA DE LA REPÚBLICA,
+EL MINISTRO DE LA PRESIDENCIA
+Y EL MINISTRO DE BIENESTAR SOCIAL Y FAMILIA
+En ejercicio de las facultades y atribuciones que les confieren los artículos 51, 140 incisos 3), 20), y 146 de la Constitución Política; y los artículos 25, inciso 1), 27 inciso 1), 28 inciso 2), acápite b), de la Ley N° 6227 del 2 de mayo de 1978, Ley General de la Administración Pública.
+Considerando:
+I.—Que según el artículo 51 de la Constitución Política de nuestro país, “la familia es el elemento natural y fundamento de la sociedad, y tiene derecho a la protección especial del Estado”.
+II.—Que por acuerdo de la Asamblea Legislativa Nº 2 del 13 de noviembre de 1968, se nombró una comisión compuesta por expertos y por diputados, con el propósito de redactar una ley que recogiera las inquietudes de reforma en materia de los derechos de la familia.
+III.—Que producto del trabajo de la citada comisión, se presentó el proyecto de Código de Familia a la Asamblea Legislativa en mayo de 1970, el cual fue acogido para su trámite por el entonces presidente de dicho órgano legislativo, licenciado Daniel Oduber Quirós.
+IV.—El Plenario Legislativo aprobó el Código de Familia, mediante la Ley N° 5476, del 1° de noviembre de 1973, la cual fue firmada el 21 de diciembre de ese año por el entonces Presidente de la República don José Figueres Ferrer.
+V.—Que el liderazgo del país en la región se hizo notar, en virtud de que los países centroamericanos emularon la iniciativa. Así, en 1984, Honduras aprueba su Código de Familia, y, en 1994, Panamá y El Salvador hacen lo mismo.
+VI.—Que en el año 2014, el Código de Familia de Costa Rica cumplirá 40 años de vigencia, el de Honduras 30 años, y los de Panamá y El Salvador cumplirán 20 años.
+VII.—Que el Código de Familia de Costa Rica ha sido objeto de muchas reformas legislativas, e igualmente ha afrontado nulidades e interpretaciones de la Sala Constitucional, y de líneas jurisprudenciales de los órganos del Poder Judicial.
+VIII.—Que de conformidad con la normativa que se ha ido emitiendo, múltiples instituciones gubernamentales tienen la obligación de coordinar y ejecutar asuntos relacionados con la familia.
+IX.—Que desde la publicación de los códigos de familia de la región, hay muchos temas sobre los cuales reflexionar, pues las sociedades actuales, no son las mismas que aquellas en las que se gestaron estos instrumentos jurídicos, y es deber de los Estados, promover las discusiones y reflexiones en esta materia.
+X.—Que con el propósito de celebrar el 40 aniversario de la promulgación de nuestro Código de Familia en Costa Rica, el Colegio de Abogados y Abogadas de Costa Rica ha conformado la “Comisión de Asuntos de Derecho de Familia”, la cual ha iniciado la organización del I Congreso Centroamericano y del Caribe de Derecho de Familia, a celebrarse del 4 al 9 de agosto de 2014. Evento, de organización compleja por la temática y el carácter internacional que ostenta, y que requiere preparación desde al menos un año antes, con el objetivo de generar estrategias académicas y un abordaje integral y transdisciplinario, que generen y propicien una reflexión profunda alrededor de la legislación necesaria y la aplicación de dichos cuerpos normativos relativos a la familia, para garantizar la calidad de vida de los y las habitantes de cara a la segunda década del siglo XXI.
+XI.—Que dentro de los temas del Congreso, se pretende propiciar una reflexión en torno a los contenidos de los códigos de familia de la región, como lo son la definición del concepto de familia, de matrimonio y relaciones de pareja, de responsabilidad parental; los temas de adopción, de restitución internacional de personas menores de edad, de derechos alimentarios, la efectividad de los derechos de las personas menores de edad, de las adultas mayores y de las que tienen capacidades especiales; así como, acerca de la violencia intrafamiliar, la conciliación del tiempo dedicado al trabajo entre el compartido con la familia; la necesidad de constitucionalizar los tribunales y los procedimientos de defensa de la familia, y de la respuesta gubernamental ante diferentes necesidades de las familias. Por tanto,
+Decretan:
+DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL
+DEL I CONGRESO CENTROAMERICANO Y DEL CARIBE
+DE DERECHO DE FAMILIA, A CELEBRARSE DEL
+4 AL 9 DE AGOSTO DE 2014
+Artículo 1°—Declarar de Interés Público y Nacional el I Congreso Centroamericano y del Caribe de Derecho de Familia, el cual se realizará en la ciudad de San José, Costa Rica, del 4 al 9 de agosto de 2014, para celebrar el 40 aniversario del Código de Familia de Costa Rica.
