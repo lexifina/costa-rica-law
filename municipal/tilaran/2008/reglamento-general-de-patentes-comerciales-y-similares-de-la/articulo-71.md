@@ -1,3 +1,0 @@
-CAPÍTULO IX
-De las disposiciones transitorias
-Artículo 71.—De las derogatorias. El presente Reglamento deroga el Reglamento para el cobro del impuesto de espectáculos públicos, publicado en La Gaceta Nº 69 del 12 de abril de 1999, el Reglamento de Ventas Ambulantes y Estacionarias en Vías Públicas, La Gaceta Nº 210 del 29 de octubre de 1999, el Reglamento de Karaokes, Discomóviles, Peritoneos, Música en Vivo y Similares, La Gaceta Nº 97 del 22 de mayo del 2002, y el Reglamento para el Otorgamiento de Patentes Temporales de Licores y Aprobación de Actividades a Realizar, La Gaceta Nº 223 del 23 de noviembre del 2001.
