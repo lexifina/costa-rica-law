@@ -1,4 +1,5 @@
-Artículo 26.—Departamento de Procesos Legales. Será el encargado de instruir y dar seguimiento a los procesos formales que se presente ante la Comisión para Promover la Competencia, para ello le corresponde ejecutar las siguientes funciones.
+Artículo 26.—Departamento de Procedimientos y Concentraciones. Será el encargado de instruir y dar seguimiento a los procesos formales que se presenten ante la Comisión para Promover la Competencia, para ello le corresponde ejecutar las siguientes funciones:
+(Así reformado el párrafo anterior por el artículo 5° del decreto ejecutivo N° 38214 del 30 de enero del 2014)
 a. Realizar los estudios técnicos-jurídicos mediante la evaluación de las denuncias, investigaciones de oficio, consultas y cualquier otra acción necesaria que sustenten el criterio de la Comisión, para los dictámenes respectivos.
 b. Instruir, analizar y controlar los procedimientos administrativos ordinarios para determinar la posible existencia de prácticas monopolísticas, concentraciones indebidas u otras restricciones de mercado.
 c. Dar seguimiento a proyectos de Ley relacionados con materia de competencia.

@@ -15,3 +15,4 @@ Reglamento a la Ley N° 6054 "Ley Orgánica del Ministerio del Economía, Indust
 | --- | --- | --- |
 | 1 | 2013-01-09 | la propia norma |
 | 2 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
+| 3 | 2014-01-30 | Decreto Ejecutivo 38214 (2014-01-30) |
