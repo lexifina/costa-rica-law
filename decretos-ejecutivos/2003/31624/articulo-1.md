@@ -1,4 +1,6 @@
+(Derogado)
 Nº 31624-H
+(Este decreto ejecutivo fue derogado por el artículo 42° del Reglamento de Organización de la Tesorería Nacional, aprobado mediante decreto ejecutivo N° 38263 del 30 de enero de 2014)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 Con fundamento en lo establecido en los artículos 140 incisos 3), 8), y 18), 146, 185, 186, y 187 de la Constitución Política, en los artículos 58, 60 y 61 inciso i) de la Ley de Administración Financiera y Presupuestos Públicos, Nº 8131, del 18 de setiembre del 2001, publicada en el Diario Oficial La Gaceta Nº 198 del 16 de octubre del mismo año.
