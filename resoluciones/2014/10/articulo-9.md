@@ -1,0 +1,1 @@
+9º—Ordenar que al Sistema de Emergencias 9-1-1 que al finalizar el primer semestre del 2014 presente un informe a la SUTEL sobre el seguimiento a los Planes Operativos de cada una de las áreas, identificando el avance de las tareas planificadas, los productos obtenidos y la ejecución del presupuesto asignado o en su defecto la justificación de los atrasos.

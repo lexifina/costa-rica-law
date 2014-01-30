@@ -1,0 +1,1 @@
+3º—Indicar al Sistema de Emergencias 9-1-1 que para efectos de una próxima fijación tarifaria deberá continuar presentando un detalle de los ingresos recibidos por concepto de las multas a que se refiere el artículo 17 de la Ley N° 7566 y del destino dado a esos recursos.

@@ -1,0 +1,1 @@
+6º—Ordenar al Sistema de Emergencias 9-1-1 llevar un detalle las liquidaciones presupuestarias mensuales a fin de controlar los ingresos reales recibidos y los gastos incurridos, para determinar si existe un déficit o un superávit en cada uno de los meses
