@@ -1,1 +1,0 @@
-Artículo 158.—En lo que respecta al funcionamiento de los centros educativos públicos, los lineamientos y directrices emitidos por las distintas Direcciones de las Oficinas Centrales del Ministerio de Educación Pública, deberán ser consistentes con lo establecido en el Acuerdo del Centro Educativo de Calidad como Eje de la Educación Costarricense.

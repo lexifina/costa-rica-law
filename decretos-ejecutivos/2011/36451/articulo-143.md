@@ -1,3 +1,0 @@
-SECCIÓN V
-De la Dirección de Servicios Generales
-Artículo 143.—La Dirección de Servicios Generales es el órgano técnico responsable de planificar, coordinar, administrar, controlar y evaluar la prestación de los servicios de seguridad y vigilancia, transporte, mensajería, limpieza y centrales telefónicas, de acuerdo con las necesidades de las Oficinas Centrales y las Direcciones Regionales de Educación. Asimismo, los servicios públicos de agua, electricidad y telecomunicaciones, contratos de seguros, contratos de alquiler de edificios y contratos de reparación y mantenimiento de bienes muebles e inmuebles en general.

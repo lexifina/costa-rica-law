@@ -1,1 +1,0 @@
-Artículo 28.—La Auditoría Interna formulará el Plan Operativo Anual (POA) para su funcionamiento, así como el correspondiente anteproyecto de presupuesto, y los remitirá al Ministro de Educación Pública para su aprobación. Para el cumplimiento de sus funciones podrá establecer representaciones en el nivel regional.

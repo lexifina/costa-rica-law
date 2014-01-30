@@ -1,1 +1,0 @@
-Artículo 12.—Cada una de las dependencias que conforman el Nivel Asesor funcionará bajo la responsabilidad de un Director, en el caso particular de la Auditoría Interna esta funcionará bajo la responsabilidad de un Auditor Interno, dichos funcionarios dependerán jerárquicamente del Ministro de Educación Pública, tanto para efectos técnicos como administrativos.

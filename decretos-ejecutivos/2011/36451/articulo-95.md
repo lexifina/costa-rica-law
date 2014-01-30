@@ -1,4 +1,0 @@
-SECCIÓN V
-Dirección de Vida Estudiantil
-Artículo 95.- La Dirección de Vida Estudiantil es el órgano técnico responsable de planificar, diseñar, promover, coordinar, ejecutar, evaluar y supervisar políticas, programas y proyectos relacionados con el desarrollo integral de la población estudiantil. Incluye todas aquellas acciones, estrategias y procesos, desarrollados en los centros educativos públicos, relacionados con la promoción de la persona y con la cultura institucional, en cuanto a vivencias y relaciones entre los actores de la comunidad educativa, encaminados a promover la identidad, el arraigo y permanencia, participación, formación integral e inclusiva, el respeto de los derechos humanos, la convivencia y prácticas de vida saludable.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 37135 del 14 de marzo del 2012)

@@ -1,1 +1,0 @@
-Artículo 7º—Al Nivel Ejecutor le corresponde implementar las políticas, planes, programas y proyectos establecidos para la prestación del servicio de educación pública en todos los ciclos y ofertas educativas, así como la realización de los trámites relacionados, de conformidad con los manuales de procedimientos establecidos por el Nivel Director, según corresponda.

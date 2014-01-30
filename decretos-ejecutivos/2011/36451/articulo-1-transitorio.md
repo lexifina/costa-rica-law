@@ -1,1 +1,0 @@
-Transitorio I.—La organización administrativa del Instituto de Desarrollo Profesional (IDP) Uladislao Gámez Solano se establecerá mediante un decreto ejecutivo por medio del cual se reglamente la ley de su creación.
