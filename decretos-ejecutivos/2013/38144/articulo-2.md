@@ -1,0 +1,1 @@
+Artículo 2º—De la derogatoria. Deróguese el artículo 4 del Decreto Ejecutivo Nº 36775-MINAET, del 06 de setiembre de 2011, publicado en el Diario Oficial La Gaceta N° 181, del 21 de setiembre de 2011 y córrase la numeración a partir de esta reforma, pasando el artículo 5 a ser el 4 y así sucesivamente.
