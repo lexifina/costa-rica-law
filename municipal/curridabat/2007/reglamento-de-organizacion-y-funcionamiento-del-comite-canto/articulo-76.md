@@ -1,1 +1,0 @@
-Artículo 76.—Cada comité comunal podrá formar subcomités de deportes y recreación en los barrios y caseríos que lo ameriten. Para dicho nombramiento, el comité comunal seguirá los mismos procedimientos usados con ellos en los artículos 64, 65 y 66 de este Reglamento.

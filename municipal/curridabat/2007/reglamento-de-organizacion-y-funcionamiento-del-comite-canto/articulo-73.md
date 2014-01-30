@@ -1,1 +1,0 @@
-Artículo 73.—Los miembros de la Junta Directiva de cada Comité Comunal serán juramentados por la Junta Directiva del Comité Cantonal, después de que en aquella se haya establecido el puesto de cada directivo.

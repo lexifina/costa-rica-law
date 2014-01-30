@@ -1,1 +1,0 @@
-Artículo 60.—Las subcomisiones especificas por deporte deberán reunirse al menos dos veces al mes. Llevarán libros de actas y tesorería, los cuales les serán dados por la Junta Directiva del Comité Cantonal. Nombrarán un coordinador, un secretario, un tesorero.

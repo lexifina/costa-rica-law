@@ -1,1 +1,0 @@
-Artículo 88.—Todos los acuerdos tomados por la Junta Directiva de los comités comunales y subcomités deberán constar en el libro de Actas y seguir n las normas establecidas por los artículos 21 y 22 de este Reglamento.

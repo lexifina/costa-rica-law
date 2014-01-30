@@ -1,5 +1,0 @@
-Artículo 19.—Es prohibido a los miembros de la Junta Directiva:
-a) Celebrar contratos y/o convenios por servicios profesionales con asuntos relacionados con el tema aquí reglamentado con el Comité, comités comunales, municipios, y cualquier entidad pública y/o privada.
-b) Intervenir en la discusión y votación de los asuntos en que tengan interés directo, su cónyuge o alguno de sus parientes dentro del tercer grado de consanguinidad o segundo grado de afinidad.
-c) Contratar, invertir en la preparación física y promover atletas que no pertenezcan a la jurisdicción del cantón de Curridabat, en las actividades deportivas nacionales e internacionales.
-Lo anterior será considerado una falta de ética profesional con el deporte y la recreación del cantón de Curridabat y constituirá causal de remoción inmediata del directivo que lo propicie.

@@ -1,2 +1,0 @@
-Artículo 90.—La Junta Directiva del Comité Cantonal delegar a los comités comunales y subcomités la construcción, la administración y el mantenimiento de los campos existentes en su jurisdicción.
-Deberán darles participación en el uso de las instalaciones a todos los grupos organizados de deportistas, previa solicitud por escrito. La programación será respetada y se hará cada semana.
