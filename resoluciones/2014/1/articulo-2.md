@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-R-038-2013 del 3 de octubre del 2013, publicada en La Gaceta Nº 201 del 18 de octubre del 2013.
