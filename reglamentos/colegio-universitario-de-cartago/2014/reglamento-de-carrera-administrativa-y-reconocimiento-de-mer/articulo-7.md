@@ -1,0 +1,1 @@
+Artículo 7°—El puntaje máximo para reconocer carrera administrativa y reconocimiento de méritos será de 5 puntos, los cuales serán aplicados en todos los concursos y movimientos de personal en que participe el personal institucional.

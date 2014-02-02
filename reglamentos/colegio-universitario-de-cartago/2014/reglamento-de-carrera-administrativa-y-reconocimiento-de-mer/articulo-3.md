@@ -1,0 +1,1 @@
+Artículo 3°—La carrera administrativa se define como un incentivo tendiente a garantizar el desarrollo de los funcionarios administrativos y docentes, permitiendo al funcionario desarrollar sus potencialidades en su puesto de trabajo y cumplir con eficiencia sus responsabilidades.

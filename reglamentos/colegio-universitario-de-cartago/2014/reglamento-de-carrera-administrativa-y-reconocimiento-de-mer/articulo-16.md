@@ -1,0 +1,1 @@
+Artículo 16.—Se define “permuta”, el intercambio de plazas de igual clase y de un mismo nivel salarial, entre dos servidores regulares, con la anuencia de estos y de las respectivas jefaturas, siempre que ambos funcionarios reúnan los requisitos para el puesto.

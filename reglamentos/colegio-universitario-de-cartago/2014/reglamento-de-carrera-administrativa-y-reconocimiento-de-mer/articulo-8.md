@@ -1,0 +1,1 @@
+Artículo 8°—En caso de nombramientos interinos que no superen los tres meses y previo cumplimiento de los requisitos del Manual de Cargos, serán aplicados la totalidad de los puntos vigentes en su expediente laboral de carrera administrativa y reconocimiento de méritos.

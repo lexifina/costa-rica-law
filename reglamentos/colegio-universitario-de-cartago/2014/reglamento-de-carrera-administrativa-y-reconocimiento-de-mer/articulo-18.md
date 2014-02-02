@@ -1,0 +1,1 @@
+Artículo 18.—Podrán realizarse “ascensos” de funcionarios para cubrir vacantes temporales o definitivas de los titulares en los cargos de jefatura, ya sea por el puesto regular o como un recargo de sus funciones. Se podrán nombrar en el puesto en forma interina, hasta tanto se realice el concurso respectivo, según la normativa vigente.

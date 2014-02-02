@@ -1,0 +1,1 @@
+Artículo 2°—Se establece un sistema de reconocimiento y méritos al esfuerzo que realizan los funcionarios docentes y administrativos, ya sea en el desempeño de sus labores, por su desarrollo personal o profesional, así como por la participación y aportes de interés institucional.

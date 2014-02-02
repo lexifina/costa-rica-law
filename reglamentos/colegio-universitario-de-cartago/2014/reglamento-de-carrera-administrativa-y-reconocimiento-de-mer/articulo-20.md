@@ -1,0 +1,1 @@
+Artículo 20.—En los casos de nombramiento en ascensos, permutas y traslados deberá cumplirse con un periodo de prueba de tres meses. Antes de su vencimiento, el funcionario tendrá el derecho de retornar a su puesto anterior.
