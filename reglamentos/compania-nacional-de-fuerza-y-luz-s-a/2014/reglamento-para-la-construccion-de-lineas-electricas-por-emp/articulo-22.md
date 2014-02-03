@@ -1,0 +1,1 @@
+Artículo 22.—La aprobación de la conexión de la obra a la red de distribución por parte de la Inspección de CNFL, no exime a la empresa particular autorizada de responsabilidad en el caso de que la obra resultare defectuosa o tenga vicios ocultos.

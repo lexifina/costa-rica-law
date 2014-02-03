@@ -1,0 +1,1 @@
+Artículo 21.—En caso de requerirse la presencia de la inspección en jornada extraordinaria a solicitud de la empresa particular autorizada, todos los costos en que incurra la CNFL deberán ser cubiertos previamente por la empresa particular autorizada; y en caso de no realizarlo, la CNFL no autorizará la ejecución de obras en jornada extraordinaria.

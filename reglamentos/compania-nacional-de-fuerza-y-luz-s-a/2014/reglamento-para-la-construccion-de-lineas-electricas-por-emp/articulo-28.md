@@ -1,0 +1,18 @@
+Artículo 28.—El personal de la CNFL (inspección, gestión y jefaturas) involucrado en la gestión que realizan las empresas particulares tendrá prohibiciones, cuyo incumplimiento será sujeto de sanción.
+Estos funcionarios en cualquier instancia, responderán por sus actuaciones culposas o dolosas que de alguna forma:
+1) Impida la inscripción de una empresa particular autorizada que cumpla debidamente con los requisitos de este reglamento.
+2) Beneficie ilegítimamente a una o un grupo determinado de empresas particulares autorizadas;
+3) Discrimine ilegítimamente a una empresa particular autorizada.
+4) No comunique oportunamente la suspensión o revocatoria de la autorización otorgada.
+5) Valide la suscripción de contratos de construcción de obra que no cumplan los requisitos establecidos en este contrato o de una empresa particular autorizada que se encuentre suspendida o a la que se le haya revocado la autorización.
+6) Autorice el inicio de la construcción de una obra que antes de la inspección conjunta muestre avances de construcción, sin haber comunicado esta condición al Departamento para su sanción correspondiente.
+7) No inicie el procedimiento de cobro o no realice el requerimiento de pago de los incumplimientos contractuales o de los daños y perjuicios extracontractuales que se hayan demostrado.
+8) No gestione a tiempo la renovación de los plazos de vigencia de la garantía o de las pólizas respectivas.
+9) No solicite un reajuste de depósito o garantía que era necesario solicitar.
+10) No advierta al cliente y a su superior por el conocimiento que tuvo, de alguna situación que potencialmente perjudique los intereses del cliente y se materialice el hecho dañoso.
+11) Autorice la energización de una obra concluida, sin haber verificado que existan las garantías comerciales sobre equipos, materiales u obras, salvo que las mismas, pese al requerimiento expreso, la empresa particular autorizada no los suministrara y a efectos de evitar un perjuicio al cliente, se tuvo que energizar la obra, una vez suscrito el contrato de traspaso de obra y verificada la constitución de servidumbre requerida.
+12) No verifique al menos una vez al mes que la empresa particular autorizada se encuentre al día con sus obligaciones obrero patronales ante la CCSS y FODESAF; y que el personal que labora se encuentra debidamente inscrito en planilla como debe corresponder.
+13) Brinde el visto bueno para su recepción de material u obras que notoriamente no cumplían con la normativa técnica.
+14) Obtenga algún tipo de beneficio a nivel personal o beneficio a favor de alguno de sus parientes consanguíneos, por afinidad o por unión de hecho, hasta el tercer grado.
+En caso de incumplimiento de estos deberes de vigilancia o elección, o de alguna situación semejante que se pueda asociar a estos deberes, según sea el grado de capacitación, su nivel de injerencia en el proceso y grado de culpabilidad o dolo en que haya incurrido, serán sancionados, según la normativa y procedimientos vigentes de la CNFL, con una amonestación por escrito, o una suspensión del contrato de trabajo sin goce de salario hasta por seis meses, o el despido sin responsabilidad patronal. La sanción se asignará según el meritorio de los hechos probados y el grado de daño provocado a la empresa solicitante de autorización o a la empresa particular autorizada perjudicada, al cliente o a la CNFL.
+El representante de la empresa particular autorizada, debidamente facultado, podrá presentar formalmente consultas y reclamos sobre el actuar del personal antes indicado, ante La Dirección de Recursos Humanos de la CNFL para su respectivo análisis, instrucción y resolución del caso.

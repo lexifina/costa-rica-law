@@ -1,0 +1,8 @@
+ANEXO 2
+Solicitud de validación de contrato
+La empresa particular autorizada antes de iniciar la construcción y adquirir equipo y materiales, debe presentar al área de Trámite de Ejecución de Obras una solicitud de validación de contrato que al menos debe ser presentada con:
+a. Copia debidamente firmada del contrato entre el cliente y la empresa particular autorizada, acompañada de una copia de la cédula del cliente o el representante o apoderado con facultades suficientes, según corresponda. Este contrato deberá contener las estipulaciones que el artículo 13 del reglamento, a favor de la CNFL.
+b. Permisos de los propietarios, como de la SETENA (viabilidad ambiental), MINAE (permisos de corta de árboles) o de la Municipalidad respectiva, según corresponda, en caso de que las líneas a construir impliquen la tala de árboles, tanto en propiedad pública como privada.
+c. Compromiso del dueño registral del inmueble, de inscribir a favor de la CNFL las servidumbres de paso para las líneas y elementos de distribución eléctrica, en su propiedad que se vayan a ver afectadas por la obra a ser construida; antes de la finalización de la construcción de la obra y su respectiva conexión a la red de distribución de la CNFL.
+d. Compromiso del contratante de donar o no a favor de la CNFL o, en su defecto, un poder especialísimo a favor de la empresa particular autorizada, para donar los bienes a favor de la CNFL que vayan a ser traspasados, cuando el cliente sea de naturaleza privada. En caso de clientes de naturaleza pública, que vayan a traspasar activos, deberá suministrarse el nombre y medios para comunicarse con el contacto de esa entidad para realizar las gestiones correspondientes.
+La CNFL comunicara lo que corresponda en el plazo de 10 días hábiles.

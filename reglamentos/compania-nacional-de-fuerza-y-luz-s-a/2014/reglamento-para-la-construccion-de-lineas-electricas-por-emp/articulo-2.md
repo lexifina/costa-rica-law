@@ -1,0 +1,1 @@
+Artículo 2º—Tanto las empresas particulares autorizadas como el personal de la CNFL están obligados a cumplir con esta normativa, en caso contrario se expondrán a las sanciones establecidas en este reglamento.
