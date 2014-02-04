@@ -5,7 +5,8 @@ c) Consejo de Competitividad: Consejo de Competitividad de la Región Brunca.
 d) Competitividad empresarial: capacidad para incrementar la productividad mediante la generación de productos y servicios con mayor valor agregado, como resultado de una mejora de las sinergias entre las distintas unidades productivas, los procesos internos de las empresas, el clima de negocios y el aprovechamiento de factores como acceso a mercados, acceso al financiamiento, articulación productiva, investigación, innovación y desarrollo tecnológico, entre otros en función del desarrollo sostenible.
 e) Competitividad regional: capacidad para generar riqueza y crecimiento económico en la región mediante el establecimiento de un clima de negocios que redunde en más y mejores empleos para la población local y en la mejora de los indicadores socio económicos cantonales regionales.
 f) COREBRUNCA: el Consejo Regional de Coordinación Interinstitucional de la Región Brunca.
-g) CRI-SUR: la Comisión de Regionalización Interuniversitaria del Pacífico Sur.
+g) CONARE: Consejo Nacional de Rectores.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38436 del 4 de febrero del 2014)
 h) FEDEMSUR: la Federación de Municipalidades de la Región Sur de la Provincia de Puntarenas.
 i) Gobiernos locales: los gobiernos municipales de cada uno de los cantones que conforman la Región Brunca.
 j) ICT: Instituto Costarricense de Turismo.

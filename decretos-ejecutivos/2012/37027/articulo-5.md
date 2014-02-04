@@ -31,12 +31,13 @@ r) Una (1) representante regional de Federación Nacional y Organizaciones de Pe
 s) Una (1) representante de la Federación de Centros Agrícolas Cantonales – FEDECAC de la Región.
 t) Tres (3) representantes de las fundaciones que realizan actividades en la Región.
 u) Una (1) representante de las Asociaciones de Desarrollo Indígena (ADIs) de cada una de las etnias presentes en la Región.
-III. La representación del Sector Académico y de Capacitación Regional, estará integrada por:
-a) Quien que ejerza la representación de la Universidad Nacional ante la CRI-SUR.
-b) Quien ejerza la representación de la Universidad de Costa Rica ante la CRI-SUR.
-c) Quien ejerza la representación de la Universidad Estatal a Distancia ante la CRI-SUR.
-d) Quien ejerza la representación del Instituto Tecnológico de Costa Rica ante la CRI-SUR.
+(*) III. La representación del Sector Académico y de Capacitación Regional, estará integrada por:
+a) Quien que ejerza la representación de la Universidad Nacional ante el CONARE.
+b) Quien ejerza la representación de la Universidad de Costa Rica ante el CONARE.
+c) Quien ejerza la representación de la Universidad Estatal a Distancia ante el CONARE.
+d) Quien ejerza la representación del Instituto Tecnológico de Costa Rica ante el CONARE.
 e) Una (1) representante de la sede del Instituto Nacional de Aprendizaje en la Región.
 f) Una (1) representante de las universidades privadas autorizadas a operar en la Región.
+(*) (Así reformado el acápite III anterior por el artículo 2° del decreto ejecutivo N° 38436 del 4 de febrero del 2014)
 IV. La representación del Sector Financiero Regional, estará integrada por una persona que represente el sector financiero estatal y una persona que represente el sector financiero privado, elegidos mediante mecanismos institucionales propios de entre las organizaciones con presencia en la Región.
 Los representantes del sector privado serán elegidos en el seno de sus Cámaras, debiendo estos comunicarlo a la Secretaría Ejecutiva, durarán en su puesto dos años, pudiendo ser reelectos en forma consecutiva.

@@ -15,3 +15,4 @@ Reglamento de Creación del Consejo de Competitividad de la Región Brunca
 | --- | --- | --- |
 | 1 | 2012-05-07 | la propia norma |
 | 2 | 2013-11-18 | Decreto Ejecutivo 38117 (2013-11-18) |
+| 3 | 2014-02-04 | Decreto Ejecutivo 38436 (2014-02-04) |
