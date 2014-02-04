@@ -1,0 +1,1 @@
+Artículo 23.—Actividades de mantenimiento y recarga de extintores. Las actividades de mantenimiento de extintores deben ser realizadas por trabajadores capacitados como mínimo en los procedimientos determinados para cada tipo de extintor según lo establece la norma NFPA 10.

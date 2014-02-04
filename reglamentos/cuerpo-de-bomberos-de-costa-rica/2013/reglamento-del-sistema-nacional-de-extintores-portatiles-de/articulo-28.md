@@ -1,0 +1,4 @@
+Artículo 28.—Perfil de trabajadores del prestador de servicios.
+a) Todo el personal del prestador de servicios debe contar con una constancia de habilidades laborales, documento expedido por la empresa en donde se reconoce que el trabajador llevó y aprobó los cursos allí registrados.
+b) El Cuerpo de Bomberos de Costa Rica tendrá la potestad de corroborar los datos de capacitación del personal de la empresa de servicios cuando lo considere necesario, haya o no finalizado el proceso de registro.
+c) Como mínimo dentro de la constancia de habilidades laborales del trabajador se debe contar con el curso “Operación y Mantenimiento de Extintores Portátiles” impartido por la Academia Nacional de Bomberos. Los trabajadores deberán reforzar sus conocimientos en materia de extintores mediante una capacitación en un plazo máximo de 3 años y su asistencia deberá ser reconocida en la lista de la constancia de habilidades.

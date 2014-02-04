@@ -1,0 +1,2 @@
+Artículo 2º—Objetivo del SINEPCI. El Sistema Nacional de Extintores Portátiles contra Incendios en adelante denominado “SINEPCI” es un servicio que brinda el Cuerpo de Bomberos de Costa Rica, por medio de la Unidad de Ingeniería.
+El propósito fundamental del SINEPCI es mejorar los aspectos de seguridad y calidad en la selección, manipulación, y mantenimiento de extintores portátiles de protección contra incendio en Costa Rica, mediante el registro voluntario de empresas calificadas para brindar los servicios, según la norma NFPA 10; ante el Cuerpo de Bomberos.

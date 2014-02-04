@@ -1,0 +1,2 @@
+Artículo 8º—Registro de empresas de mantenimiento y recarga de extintores.
+El registro de empresas de mantenimiento y recarga de extintores portátiles es un reconocimiento que El Benemérito Cuerpo de Bomberos de Costa Rica brinda a aquellas compañías que se dedican al desarrollo de los servicios de manera segura y en concordancia con lo que dicta la normativa. Este registro tendrá una vigencia anual, por lo que deberá ser renovado cuando este lapso se cumpla.

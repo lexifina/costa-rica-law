@@ -1,0 +1,1 @@
+Artículo 15.—Listado de empresas registradas ante el Cuerpo de Bomberos. Las empresas de mantenimiento y recarga de extintores registradas ante el Cuerpo de Bomberos serán incluidas en la Lista Oficial de Empresas Registradas disponible en la página www.bomberos.go.cr. Trimestralmente se realizará la actualización de la lista y la inclusión de los nuevos registros.

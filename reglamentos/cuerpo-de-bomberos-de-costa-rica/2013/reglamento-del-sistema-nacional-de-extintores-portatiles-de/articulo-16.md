@@ -1,0 +1,1 @@
+Artículo 16.—Sello de registro. El sello de registro será utilizado por las empresas de mantenimiento y recarga que cumplan con los requisitos planteados en el Capítulo III de este reglamento. El sello debe ser utilizado en los extintores a los que la empresa le brinde servicio y podrán ser adquiridos únicamente en la Unidad de Ingeniería de Bomberos.

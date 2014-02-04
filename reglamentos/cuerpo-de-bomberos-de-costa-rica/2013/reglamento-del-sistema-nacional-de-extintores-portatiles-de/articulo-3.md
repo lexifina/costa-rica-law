@@ -1,0 +1,1 @@
+Artículo 3º—Alcances. El alcance del SINEPCI ejerce control sobre las empresas que brindan los servicios de mantenimiento y recarga de extintores a nivel comercial, que voluntariamente participen del sistema. El someterse al proceso de registro es de orden voluntario por lo que ninguna entidad física o jurídica puede ser obligada a llevarlo a cabo.

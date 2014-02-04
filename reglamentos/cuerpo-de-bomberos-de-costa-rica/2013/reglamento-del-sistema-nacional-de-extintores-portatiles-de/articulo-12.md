@@ -1,0 +1,1 @@
+Artículo 12.—Solicitud del registro de empresas de mantenimiento y recarga. Las empresas interesadas en el registro ante el Cuerpo de Bomberos deberán completar la solicitud disponible en la página web del Cuerpo de Bomberos www.bomberos.go.cr. Una vez completa la información deberá ser enviada al correo sinepci@bomberos.go.cr.

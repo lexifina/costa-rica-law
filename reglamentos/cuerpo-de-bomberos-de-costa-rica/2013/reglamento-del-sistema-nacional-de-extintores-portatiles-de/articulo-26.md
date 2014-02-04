@@ -1,0 +1,1 @@
+Artículo 26.—Consideraciones ambientales. La empresa de mantenimiento y recarga de extintores portátiles deberá contar con un programa de manejo de residuos sólidos, el cual incluya el tratamiento de los desechos de los equipos de extinción, accesorios y agentes extinguidores según las actividades de cada lugar.

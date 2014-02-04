@@ -1,0 +1,1 @@
+Artículo 14.—Reconocimiento de empresas registradas. Las empresas que cumplan con los requisitos de registro serán identificadas como empresas registradas mediante la inclusión al listado de registro de la Página Web Oficial del Benemérito Cuerpo de Bomberos, el uso de un Sello de Registro y la entrega de un Comprobante Oficial de Registro.

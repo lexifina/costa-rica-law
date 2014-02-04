@@ -1,0 +1,1 @@
+Artículo 5º—Fundamento de los requisitos. El contenido de los requisitos de este reglamento, está basado en los requerimientos establecidos en la norma NFPA 10 “Extintores Portátiles contra Incendios”, última edición disponible en idioma español.

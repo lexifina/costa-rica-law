@@ -1,0 +1,1 @@
+Artículo 24.—Otros requisitos del prestador de servicios. La empresa debe contar con una póliza de riesgos del trabajo y el pago de obligaciones financieras con la Caja Costarricense del Seguro Social (CCSS).

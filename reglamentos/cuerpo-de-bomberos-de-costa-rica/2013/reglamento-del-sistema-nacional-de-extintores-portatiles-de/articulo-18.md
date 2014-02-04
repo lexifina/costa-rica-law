@@ -1,0 +1,1 @@
+Artículo 18.—Comprobante del registro. El comprobante de registro de la empresa de mantenimiento y recarga de extintores tendrá una vigencia anual y podrá ser utilizado por la empresa para sus labores comerciales como documento de respaldo.
