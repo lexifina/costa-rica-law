@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese el artículo 7 inciso c. 2) del Decreto Ejecutivo N° 34510-S de 4 de abril de 2008, publicado en La Gaceta N° 105 del 2 de junio de 2008, reformado por Decreto Ejecutivo N° 37497-S de 30 de noviembre de 2012, publicado en el Alcance Digital N° 20 a La Gaceta N° 21 del 30 de enero de 2013 “Reglamento Orgánico del Ministerio de Salud”.
