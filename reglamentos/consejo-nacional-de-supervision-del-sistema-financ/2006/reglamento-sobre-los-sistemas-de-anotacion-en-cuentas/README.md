@@ -14,3 +14,4 @@ Reglamento sobre los Sistemas de Anotación en Cuentas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-17 | la propia norma |
+| 2 | 2014-02-04 | Reglamento 1088 (2014-02-04) |

@@ -1,4 +1,6 @@
-Artículo 24.—Requisitos adicionales de funcionamiento. Las centrales de valores que deseen prestar los servicios de administración del registro contable de valores mediante anotación electrónica en cuenta, ya sea de emisiones públicas o privadas, deben reunir los siguientes requisitos de funcionamiento:
-a) Contar con un capital mínimo, suscrito y pagado inicialmente en efectivo de cuatrocientos cincuenta millones de colones, distribuido de conformidad con lo establecido en el Artículo 119 de la Ley Reguladora del Mercado de Valores. Este capital será actualizado anualmente por el Superintendente General de Valores con base en el índice de precios al consumidor.
+Artículo 24.—Requisitos adicionales de funcionamiento
+Las centrales de valores que deseen prestar los servicios de administración del registro contable de valores mediante anotación electrónica en cuenta, ya sea de emisiones públicas o privadas, deben reunir los siguientes requisitos de funcionamiento:
+a) Contar con un capital mínimo, suscrito y pagado inicialmente en efectivo de ciento cincuenta millones de colones, distribuido de conformidad con lo establecido en el Artículo 119 de la Ley Reguladora del Mercado de Valores. Este capital será actualizado anualmente por el Superintendente General de Valores con base en el índice de precios al consumidor.
+(Así reformado el inciso anterior mediante sesión N° 1088 del 4 de febrero del 2014)
 b) Los directivos, gerentes y representantes legales deben ser personas de reconocida solvencia moral; los gerentes además deben contar con amplia capacidad y experiencia en el sistema financiero.
 c) Cumplir con los requisitos funcionales operativos y tecnológicos establecidos en el presente Reglamento.
