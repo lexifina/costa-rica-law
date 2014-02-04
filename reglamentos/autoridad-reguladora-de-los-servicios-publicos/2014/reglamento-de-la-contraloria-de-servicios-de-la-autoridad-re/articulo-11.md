@@ -1,0 +1,1 @@
+Artículo 11.—Asesoría. La Contraloría de Servicios podrá requerir la asesoría de funcionarios internos o externos que estime necesarios para dar apoyo a sus actividades. En el caso de la asesoría legal interna, ésta le será brindada por la Asesoría Jurídica de la Dirección General de Asesoría Jurídica y Regulatoria.
