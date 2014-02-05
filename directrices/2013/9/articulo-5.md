@@ -1,1 +1,0 @@
-Artículo 5°.- La fiscalización, control y seguimiento de los Libros Legales le corresponderá a las Auditorías Internas de las Entidades Públicas, de acuerdo a lo dispuesto por el Ente Rector en materia de Control Interno (CGR)
