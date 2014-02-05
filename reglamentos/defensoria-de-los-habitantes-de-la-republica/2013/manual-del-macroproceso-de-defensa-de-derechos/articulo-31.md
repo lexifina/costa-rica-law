@@ -1,0 +1,2 @@
+Artículo 31.—Del registro de las Gestiones Sumarias. Si la atención de una Solicitud de Intervención requiere realizar solicitudes de información, llamadas telefónicas; enviar correos electrónicos; realizar inspecciones, visitas o reuniones; u otras gestiones informales, de cada una de ellas se deberán elaborar un reporte, una minuta o un acta, según corresponda, y de los resultados se dejará constancia en el expediente físico y electrónico.
+En el caso de las actas deberán reunir los requisitos establecidos en el artículo 270 de la Ley General de Administración Pública.

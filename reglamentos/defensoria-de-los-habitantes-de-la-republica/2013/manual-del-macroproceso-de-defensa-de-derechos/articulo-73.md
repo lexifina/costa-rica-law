@@ -1,0 +1,1 @@
+Artículo 73.—Asignación y elaboración del Informe Técnico. La asignación del estudio será registrada mediante el procedimiento definido para tal efecto en la Dirección responsable. La Defensoría de los Habitantes podrá elaborar una propuesta de intervención que puede llevar a establecer una oposición, a manifestar una posición o decidir no participar.

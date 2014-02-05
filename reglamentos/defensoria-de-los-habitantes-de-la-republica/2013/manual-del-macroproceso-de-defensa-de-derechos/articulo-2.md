@@ -1,0 +1,1 @@
+Artículo 2º—Unidades responsables. Los procedimientos señalados en el presente Manual serán de acatamiento de la Dirección de Admisibilidad, las Direcciones de Defensa, la Dirección de Asuntos Jurídicos, la Dirección de Promoción y Divulgación, la Dirección de Oficinas Regionales y cualquier otro órgano por disposición del o la Jerarca de la Institución.

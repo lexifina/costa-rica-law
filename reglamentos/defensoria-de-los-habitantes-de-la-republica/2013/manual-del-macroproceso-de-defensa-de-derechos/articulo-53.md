@@ -1,0 +1,1 @@
+Artículo 53.—Deber de dar traslado a las partes. El o la profesional que conozca del recurso deberá dar traslado del mismo a todas las partes involucradas en la reconsideración para que aleguen lo que estimen pertinente dentro del plazo de cinco días hábiles.

@@ -1,0 +1,1 @@
+Artículo 19.—Plazo de asignación de las Solicitudes y Formas de Intervención. Los responsables de las Direcciones de Defensa y de las Oficinas Regionales asignarán al o la profesional designada la Solicitud de Intervención y sugerirán la Forma de Intervención inicial, en un plazo no mayor de dos días hábiles.

@@ -1,0 +1,3 @@
+Artículo 46.—Suspensión de la Investigación. Cuando se verifique la existencia de un proceso judicial sobre el mismo objeto de la Solicitud de Intervención, se suspenderá la actuación de la Defensoría, sin perjuicio de que la Institución decida investigar los problemas generales planteados en la Solicitud.
+En tales casos la SI se sacará del circulante de casos en trámite y se ubicará en el SOL en estado de suspensión por trámite judicial.
+Semestralmente la o el funcionario responsable del caso verificará el estado del proceso judicial, y coordinará con la dirección del trámite que corresponda.

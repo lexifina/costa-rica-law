@@ -1,0 +1,2 @@
+Artículo 48.—Estructura y plazo. La investigación de oficio deberá contener una justificación de su apertura, los objetivos que pretende cubrir, un plan de investigación de trabajo y lo(s) funcionario/a(s) responsable(s) de realizarla. Las investigaciones de mayor nivel de complejidad no podrán exceder el plazo de un año. Se podrá solicitar prórroga del plazo excepcionalmente, mediante solicitud debidamente justificada y aprobada por el o la Jerarca.
+Durante el proceso de investigación se presentarán avances de la investigación ante el Defensor o Defensora.

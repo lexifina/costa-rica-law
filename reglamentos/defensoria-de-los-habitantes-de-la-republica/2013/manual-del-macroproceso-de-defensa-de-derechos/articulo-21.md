@@ -1,0 +1,1 @@
+Artículo 21.—Coordinación entre Direcciones de Defensa. Para la tramitación de asuntos muy complejos que involucren temas que sean competencia de dos o más Direcciones, se deberán abrir espacios de discusión y coordinación técnica entre las y los diferentes profesionales responsables, así como la conformación de equipos multidisciplinarios de trabajo para su atención.

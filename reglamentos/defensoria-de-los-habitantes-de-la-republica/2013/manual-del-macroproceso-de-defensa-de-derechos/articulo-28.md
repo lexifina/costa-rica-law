@@ -1,0 +1,5 @@
+Artículo 28.—De la Atención Inmediata. Cuando de la Solicitud de Intervención se infiera que de no actuarse de inmediato el daño sería irreversible, o dada su inminencia -aunque no sea grave- se requiera de la presencia inmediata de la Defensoría por razones de oportunidad, será calificada como de “atención inmediata”.
+El procedimiento para tramitar los asuntos de “atención inmediata” será el siguiente:
+a) Una vez determinado el caso que requiera atención inmediata en la fase de admisión, la Dirección de Admisibilidad o la Oficina Regional (cuando corresponda) coordinarán con la Dirección de Defensa correspondiente las estrategias de defensa inmediatas para definir la forma de abordaje.
+b) Atendida la inmediatez del asunto y concluida la intervención se elaborará un reporte de lo actuado, indicando los resultados obtenidos, el cual se notificará a la o las personas interesadas.
+c) Si transcurrido un plazo máximo de 72 horas el asunto no ha sido resuelto, se continuará el trámite bajo la Forma de Intervención que corresponda en la Dirección de Defensa competente.

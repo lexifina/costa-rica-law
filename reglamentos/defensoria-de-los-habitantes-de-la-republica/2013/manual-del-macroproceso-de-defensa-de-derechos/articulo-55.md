@@ -1,0 +1,2 @@
+Artículo 55.—Resolución y plazo del recurso. La resolución podrá declarar sin lugar el recurso, manteniendo el criterio inicial emitido o ser parcial, modificando sólo una o más recomendaciones. En tales casos, se reiterará la obligación del Sector Público de informar en el plazo de quince días hábiles sobre las gestiones que llevará a cabo para dar cumplimiento a las recomendaciones. Si la resolución declara con lugar el recurso, igualmente se notificará a las partes.
+El recurso se resolverá dentro del plazo máximo de dos meses.

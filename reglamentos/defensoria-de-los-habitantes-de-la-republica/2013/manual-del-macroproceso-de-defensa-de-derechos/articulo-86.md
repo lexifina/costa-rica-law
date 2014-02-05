@@ -1,0 +1,1 @@
+Artículo 86.—De las coadyuvancias. La coadyuvancia a toda acción judicial será planteada cuando la Defensoría de los Habitantes cuente con una posición técnica construida como resultado de su propia investigación o con elementos de prueba novedosos que abonen a la pretensión del actor principal.

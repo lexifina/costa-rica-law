@@ -1,0 +1,1 @@
+Artículo 65.—Notificación e inicio del trámite. El o la Defensora de los Habitantes, o en su defecto la Defensoría de la Mujer, notificará el inicio del trámite de la Solicitud de Intervención a la entidad denunciada, con el fin de que informe del curso del procedimiento administrativo por hostigamiento sexual.

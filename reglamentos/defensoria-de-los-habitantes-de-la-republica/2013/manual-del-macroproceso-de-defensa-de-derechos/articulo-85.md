@@ -1,0 +1,1 @@
+Artículo 85.—Coordinación y seguimiento del proceso. Una vez que la institución lleva el caso a la jurisdicción contenciosa administrativa, la Dirección de Asuntos Jurídicos estará a cargo del seguimiento del proceso en coordinación con la Dirección temática para asegurar el cumplimiento de los plazos y la atención de las formalidades procesales que se requieran.
