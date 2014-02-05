@@ -1,1 +1,0 @@
-Artículo 30.—Otras sanciones. La trasgresión de las prohibiciones contenidas en los incisos h), j), p), q) y r),m y dar información falsa o fraudulenta para la aplicación del artículo 15 de éste Reglamento, se sancionará con una multa de entre uno y diez salarios base.

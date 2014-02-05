@@ -1,1 +1,0 @@
-Artículo 23.—Sanción relativa a omisión de personas jurídicas.Quien omita presentar a la municipalidad la actualización de su capital accionario, cuando se trate de personas jurídicas adjudicatarias de licencias, será sancionado con una multa de entre uno y diez salarios base.

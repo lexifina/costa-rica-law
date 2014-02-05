@@ -1,1 +1,0 @@
-Artículo 32.—Sanciones disciplinarias administrativas. Los funcionarios que violenten o permitan la trasgresión de las prohibiciones contenidas en los artículos, 9 de la Ley y 15 de éste Reglamento, incurrirán en falta grave, con sanción de entre dos días hábiles sin goce de salario y el despido sin responsabilidad patronal, según la seriedad de la falta.

@@ -1,1 +1,0 @@
-Artículo 24.—Sanciones relativas al control previo de la publicidad comercial. Quien omita, burle o de algún modo infrinja el control previo de la publicidad comercial relacionada con la comercialización de bebidas con contenido alcohólico será sancionado con una multa de entre uno y diez salarios base.

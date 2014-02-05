@@ -1,4 +1,0 @@
-Artículo 22.—Sanción relativa a la venta y permanencia de menores de edad y de personas con limitaciones cognoscitivas y volitivas. Atendiendo al dictado y espíritu de la Ley, y del Principio Superior de Protección al Menor, contenido en el Código de la Niñez y la Adolescencia, se aplicarán las siguientes sanciones:
-a) Quien venda o facilite bebidas con contenido alcohólico a menores de edad y a personas con limitaciones cognoscitivas y volitivas será sancionado con una multa de entre uno y quince salarios base.
-b) Se aplicará la misma sanción al patentado con licencias clase B o E4, que permita en su establecimiento la permanencia de menores de edad.
-c) La contratación de menores como trabajadores, temporales o permanentes, directamente o por intermedio de otras personas, o bien para eventos de cualquier índole, acarreará una sanción de entre cinco y quince salarios mínimos.

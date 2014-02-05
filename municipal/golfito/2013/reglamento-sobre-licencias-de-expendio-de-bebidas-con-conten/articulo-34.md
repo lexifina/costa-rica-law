@@ -1,1 +1,0 @@
-Artículo 34.—Fechas reguladas para consumo de bebidas con contenido alcohólico. El Concejo y el Alcalde tendrán la facultad de regular la comercialización de bebidas alcohólicas y consumo de licor, los días que se celebren actos cívicos, desfiles u otras actividades cantonales, en la ruta asignada, y podrá delimitar el horario y radio de acción.
