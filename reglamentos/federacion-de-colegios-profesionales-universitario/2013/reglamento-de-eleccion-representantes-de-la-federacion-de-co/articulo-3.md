@@ -1,0 +1,1 @@
+Artículo 3º—Obligaciones del Comité Ejecutivo. El Comité Ejecutivo debe proporcionar a la Comisión de forma inmediata todas las comunicaciones recibidas de la Asamblea de Trabajadores y de los Colegios así como las enviadas. Además debe proporcionar las condiciones y logística necesaria para el cumplimiento de sus funciones.

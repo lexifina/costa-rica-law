@@ -1,0 +1,1 @@
+Artículo 21.—De la juramentación. Todos los representantes propietarios y suplentes deberán ser convocados por la Coordinación del Sector conjuntamente con la Secretaría de la Federación, para ser juramentados por la Presidencia o por quien ésta delegue en la fecha y lugar que se indique.

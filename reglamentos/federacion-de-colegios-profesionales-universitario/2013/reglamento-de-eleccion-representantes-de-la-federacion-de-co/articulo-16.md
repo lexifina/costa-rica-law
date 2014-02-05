@@ -1,0 +1,1 @@
+Artículo 16.—Comunicación a los Colegios Profesionales. El Comité Ejecutivo comunicará a cada Colegio Profesional el listado aprobado por el Banco Popular de las nóminas enviadas por el Colegio a la Federación.
