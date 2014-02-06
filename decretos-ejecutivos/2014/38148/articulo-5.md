@@ -1,0 +1,1 @@
+Artículo 5º—De las funciones del Director. El Director, tendrá la facultad de asignar las tareas a los funcionarios a su cargo o complementar las existentes, así como de efectuar aquellos cambios que se requieran, para una mayor eficiencia en el manejo de los asuntos internacionales del Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 2º—Del objetivo general. La Unidad de Asuntos Internacionales del Ministerio de Hacienda tiene por objetivo general centralizar los asuntos internacionales de todo el Ministerio de Hacienda para que se dé un manejo adecuado de toda la información referente a dicha materia y que permita emitir lineamientos generales de política relacionados con el ámbito internacional.

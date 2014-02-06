@@ -1,0 +1,18 @@
+N° 38148-H
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades que les confieren los numerales 11, 140 incisos 3), 10, y 18) y 146 de la Constitución Política, los artículos 11, 25, inciso 1), artículo 27 inciso 1) y artículo 28 inciso 2) acápite b) de la Ley N° 6227, Ley General de Administración Pública del 2 de mayo de 1978, Ley N° 1581, Estatuto de Servicio Civil del 30 de mayo de 1953, Ley N° 5525, Ley de Planificación Nacional del 2 de mayo de 1974, Decreto Ejecutivo N° 21 del 14 de diciembre de 1954, Reglamento al Estatuto del Servicio Civil y sus reformas, y el Decreto Ejecutivo N° 25271-H del 14 de junio de 1996, Reglamento Autónomo de Servicios del Ministerio de Hacienda y sus reformas.
+Considerando:
+1º—Que el Ministerio tiene la obligación de establecer políticas hacendarias que impulsen el desarrollo económico y social sostenido y la competitividad nacional, en un marco de estabilidad macroeconómica, al amparo de un entorno internacional conocido.
+2º—Que el Ministerio de Hacienda debe tomar en consideración el entorno político, económico y social de los diversos países con los cuales existe interacción, por cuanto la globalización económica afecta el desarrollo interno de dichos factores expuestos.
+3º—Que el Ministerio de Hacienda no cuenta con una Unidad que consolide propiamente el manejo de aquellos asuntos internacionales relacionados con la cooperación internacional y con los distintos tipos de convenios o tratados internacionales que suscribe el país.
+4º—Que el Despacho del Ministro de Hacienda, reconoce la necesidad e importancia de que la coordinación de los asuntos internacionales relacionados con la cooperación internacional y con los distintos tipos de convenios o tratados internacionales que suscribe el país se lleve a cabo de manera coordinada entre esta Unidad, la Dirección de Crédito Público, la Dirección General de Tributación, la Dirección General de Aduanas, y cualquier otra dependencia del Ministerio.
+5º—Que mediante oficio N° DIPI-224-2013 del 11 de setiembre del 2013, la Directora de la Unidad de Planificación Institucional presenta al señor Ministro de Hacienda el Informe Técnico de análisis del documento “Propuesta de reorganización parcial del Ministerio de Hacienda, Creación de la Unidad de Asuntos Internacionales”.
+6º—Que mediante oficio N° DM-1374-13 del 11 de setiembre del 2013, el señor Ministro de Hacienda avala la propuesta de reorganización parcial supracitada, para la creación de la Unidad de Asuntos Internacionales del Ministerio de Hacienda.
+7º—Que mediante oficio N° DM-606-13 de fecha 5 de noviembre del 2013, el señor Ministro de Planificación Nacional y Política Económica, aprueba la creación de la Unidad de Asuntos Internacionales, como una unidad asesora dependiendo directamente del Despacho del Ministro de Hacienda.
+8º—Que en razón de lo anterior, resulta necesario emitir el decreto mediante el cual se crea la Unidad de Asuntos Internacionales del Ministerio de Hacienda. Por tanto,
+Decretan:
+CREACIÓN DE LA UNIDAD DE ASUNTOS
+INTERNACIONALES DEL MINISTERIO
+DE HACIENDA
+Artículo 1º—De la creación. Créase la Unidad de Asuntos Internacionales del Ministerio de Hacienda, como soporte a las estrategias y políticas desarrolladas por la institución para el cumplimiento de sus funciones, que tendrá bajo su responsabilidad la coordinación de aquellos asuntos internacionales relacionados con la cooperación internacional y con los distintos tipos de convenios o tratados internacionales. Lo anterior por resultar consecuente con el desarrollo económico y social del país y con el cumplimiento de las funciones que son competencia del Ministerio de Hacienda.

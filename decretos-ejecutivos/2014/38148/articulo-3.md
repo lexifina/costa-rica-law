@@ -1,0 +1,2 @@
+Artículo 3º—Del Director(a). La Unidad de Asuntos Internacionales está a cargo de un Director(a) quien tendrá un puesto de confianza de conformidad con el inciso g) del artículo 4° del Estatuto de Servicio Civil y ejecutará sus funciones acatando la legislación, las directrices y las demás normas aplicables al área de su actividad.
+El superior jerárquico de la Unidad de Asuntos Internacionales del Ministerio de Hacienda será el Ministro.
