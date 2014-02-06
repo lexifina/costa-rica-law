@@ -13,3 +13,4 @@ Procedimiento para solicitud y entrega de equipo y mobiliario especial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-26 | la propia norma |
+| 2 | 2014-02-06 | Circular 25 (2014-02-06) |
