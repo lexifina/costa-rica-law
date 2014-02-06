@@ -1,0 +1,1 @@
+Artículo 2º—Terapeuta Respiratorio: Profesional del área de la salud que participa en el diagnóstico, tratamiento y rehabilitación de personas con enfermedades agudas, crónicas o degenerativas que comprometan la función del sistema respiratorio. Así mismo en la prevención de la enfermedad y su deterioro y en la promoción de la salud respiratoria.
