@@ -1,2 +1,0 @@
-Artículo 7º—Conclusión anticipada de Procesos Judiciales.
-Por conclusión anticipada del Proceso Judicial se entenderá la solicitud escrita que formule la Asesoría Legal del INCOP, ante el órgano judicial correspondiente, cuando el interesado cancele en su totalidad las cuentas morosas junto con los intereses y gastos legales incurridos, previa acreditación de lo anterior por parte de la Unidad de Contabilidad mediante un estado de cuenta actualizado a la fecha de la presunta cancelación de lo adeudado.
