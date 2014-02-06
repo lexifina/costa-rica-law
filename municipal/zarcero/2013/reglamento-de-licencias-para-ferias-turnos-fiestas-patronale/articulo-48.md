@@ -1,0 +1,2 @@
+DISPOSICIONES FINALES
+Artículo 48.—Contra las resoluciones del Departamento de Patentes cabrán los recursos de revocatoria y ante la Alcaldía el de apelación dentro del quinto día hábil posterior a su notificación de conformidad con las disposiciones del artículo 162 del Código Municipal; y contra las resoluciones del Concejo Municipal cabrán igualmente los recursos revocatoria y apelación dentro del quinto día hábil después de notificado de conformidad con las disposiciones del artículo 156 del Código Municipal.

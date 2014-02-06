@@ -1,0 +1,1 @@
+Artículo 50.—La organización y comunidad que realice actividades reguladas en este Reglamento sin la debida autorización se verá sancionada con la clausura de las mismas y si la Municipalidad lo considera pertinente se harán acompañar de efectivos de la Delegación de la Fuerza Pública Cantonal para realizar dicha clausura.

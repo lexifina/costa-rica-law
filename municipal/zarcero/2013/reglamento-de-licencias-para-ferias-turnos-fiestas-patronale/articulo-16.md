@@ -1,0 +1,2 @@
+Artículo 16.—Acta de devolución de las entradas selladas. La oficina del Departamento de Patentes, dejará constancia de la devolución de las entradas selladas para emisión o evento, mediante un acta que levantará al efecto, en la cual se consignará como mínimo el nombre del establecimiento o actividad y del solicitante, número, clasificación y valor de las entradas selladas, fecha y hora de la devolución.
+Dicho documento deberá ser firmado por el funcionario municipal encargado de dicho trámite y por la persona que haga retiro de los boletos.

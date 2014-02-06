@@ -1,0 +1,2 @@
+Artículo 36: Órgano encargado de otorgar el permiso. Corresponderá al Departamento de Patentes, el análisis de las solicitudes y el otorgamiento de la respectiva autorización.
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 94 del 19 de mayo del 2014, página N° 200. Anteriormente decía: "... Artículo 36.—Órgano encargado de otorgar el permiso. Corresponderá al Departamento de Patentes, el análisis de las solicitudes y el otorgamiento de la respectiva autorización será potestad del Concejo Municipal...")

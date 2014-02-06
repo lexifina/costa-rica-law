@@ -1,0 +1,1 @@
+Artículo 11.—Requisitos de la declaración jurada. Las declaraciones juradas a las que se hace referencia en los artículos anteriores deberán efectuarse en las fórmulas que al efecto proporcione la oficina de patentes.

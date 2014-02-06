@@ -1,0 +1,2 @@
+Artículo 19.—Incineración de entradas. Una vez verificados los boletos de entrada, las declaraciones juradas y cancelado el impuesto respectivo, el Departamento de Patentes y la Dirección de la Administración Tributaria, procederán a realizar la destrucción de las entradas, utilizando el mecanismo que más le convenga a la Municipalidad.
+Para ello se levantará un acta en la cual se indicará: fecha, lugar y hora de la destrucción, número de la declaración de impuesto a que esta se refieren.

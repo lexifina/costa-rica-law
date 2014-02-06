@@ -1,0 +1,1 @@
+Artículo 28.—Cálculo. Corresponderá al Departamento de Patentes realizar una estimación del impuesto dejado de percibir, la cual servirá de base para el cobro de la respectiva multa o para el cobro judicial.

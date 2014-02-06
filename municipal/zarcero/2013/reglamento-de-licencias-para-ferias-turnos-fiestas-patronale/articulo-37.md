@@ -1,0 +1,1 @@
+Artículo 37.—Plazo para la presentación de las solicitudes. Las solicitudes de permiso para realizar las actividades de las previstas en este reglamento, deberán de presentarse con al menos un mes de anticipación a la fecha de realización del evento.

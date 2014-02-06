@@ -1,0 +1,1 @@
+Artículo2º—Ámbito de aplicación. El presente reglamento se aplicará a las licencias para Ferias, Turnos, Fiestas Patronales, Festejos Populares y Similares, Fiestas Cívicas, Actividades Ocasionales y de diversión gratuita y no gratuita y en general todos los espectáculos públicos que se realicen en el Cantón de Zarcero.

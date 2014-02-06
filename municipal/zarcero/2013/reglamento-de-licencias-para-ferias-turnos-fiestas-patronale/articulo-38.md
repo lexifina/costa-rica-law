@@ -1,0 +1,1 @@
+Artículo 38.—Revocatoria del permiso. La Municipalidad de Zarcero se reserva la posibilidad de revocar el permiso otorgado, cuando se evidencie que la explotación excede los límites previstos en él o cuando se haya aportado la información falsa o que haya inducido al error en el otorgamiento del permiso.

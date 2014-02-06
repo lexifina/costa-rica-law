@@ -1,0 +1,2 @@
+Artículo 9º—Pago del impuesto. Todo pago deberá efectuarse en las cajas recaudadoras de la Tesorería Municipal o en las cajas recaudadoras definidas por la municipalidad. Los espectáculos públicos permanentes deberán cancelar el impuesto, según lo establece la Ley de Patentes y el Código Municipal, en tanto los espectáculos públicos ocasionales deberán cancelar el impuesto, el día hábil posterior a la realización del evento.
+Para tales efectos, el contribuyente deberá presentar además de la declaración jurada, los talonarios de entradas respectivas.

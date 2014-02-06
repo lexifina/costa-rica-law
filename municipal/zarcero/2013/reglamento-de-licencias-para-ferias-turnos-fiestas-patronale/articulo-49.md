@@ -1,0 +1,1 @@
+Artículo 49.—Las fechas de realización de Fiestas Cívicas Populares y Patronales en cada distrito, serán fijas e invariables, de manera tal, que deberán ajustarse a los días y fechas que anualmente se disponga en acuerdo municipal con mayoría simple durante el primer mes del año, según solicitudes de los interesados.

@@ -1,0 +1,1 @@
+Artículo 7º—Exención. Se exceptúan del pago del impuesto los espectáculos y actividades señaladas en el artículo 4, cuando el producto integro se destine a fines de beneficencia previa aprobación del Concejo Municipal cuando sea solicitada por los interesados de conformidad con lo dispuesto en el artículo 1 de la Ley N°6844.
