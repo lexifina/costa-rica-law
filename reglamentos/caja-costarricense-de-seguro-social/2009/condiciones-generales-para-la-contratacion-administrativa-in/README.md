@@ -17,3 +17,4 @@ Condiciones Generales para la Contratación Administrativa Institucional de Bien
 | 2 | 2009-08-16 | Reglamento 8353 (2009-06-04) |
 | 3 | 2009-08-16 | Reglamento 8369 (2009-08-06) |
 | 4 | 2010-04-22 | Reglamento 8439 (2010-04-22) |
+| 5 | 2014-02-06 | Reglamento 8693 (2014-02-06) |
