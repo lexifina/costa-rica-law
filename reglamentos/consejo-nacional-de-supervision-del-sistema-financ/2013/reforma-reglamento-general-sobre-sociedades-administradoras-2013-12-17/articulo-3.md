@@ -1,0 +1,3 @@
+3. Adicionar el Transitorio XI al Reglamento general sobre sociedades administradoras y fondos de inversión, conforme con el siguiente texto:
+“A partir de la entrada en vigencia de la reforma al artículo 47 del Reglamento General sobre Sociedades Administradoras y Fondos de Inversión, los fondos de inversión que cuenten con una cantidad de inversionistas menor a la requerida por dicho artículo, cuentan con un plazo de nueve (9) meses para alcanzar el nuevo mínimo y en el caso de fondos de desarrollo inmobiliario este plazo será de dieciocho (18) meses. Los plazos anteriores se pueden prorrogar una vez, de conformidad con lo establecido en el artículo 121 de este Reglamento.
+Las anteriores modificaciones rigen a partir de la publicación en el Diario Oficial La Gaceta.
