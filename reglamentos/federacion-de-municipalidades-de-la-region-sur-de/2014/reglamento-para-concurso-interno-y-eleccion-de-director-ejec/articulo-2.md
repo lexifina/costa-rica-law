@@ -1,0 +1,5 @@
+Artículo 2º—El concurso se realizará en las siguientes condiciones:
+a) Estará a cargo del Consejo Directivo intermunicipal, bajo el control una comisión evaluadora que este nombrará, la cual será impar indistintamente del número que la integra. Será integrada por cualquier miembro activo del Consejo Directivo, de asamblea general, y caso de ser necesario se solicitará la participación de asesoría legal o auditor.
+b) Deberá efectuarse una divulgación adecuada en tiempo, de manera que la información llegue a los funcionarios interesados y tengan la opción de participar.
+c) Se admitirán todos los funcionarios interesados que reúnan los requisitos que se solicitan para el puesto según lo establece el artículo 21 de la Estatuto.
+d) Agotado infructuosamente el proceso interno a concurso para el nombramiento y si persiste la vacante, el Consejo Directivo emitirá un acuerdo en el cual se declare el concurso desierto y se procederá con el concurso público que establece el estatuto en el artículo 21.

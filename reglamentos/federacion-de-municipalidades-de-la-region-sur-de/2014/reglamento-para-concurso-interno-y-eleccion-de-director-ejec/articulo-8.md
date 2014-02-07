@@ -1,0 +1,1 @@
+Artículo 8º—El salario del director ejecutivo será designado por el Consejo Directivo Intermunicipal previamente a su nombramiento y ajustándose a los dispuesto por el estatuto y presupuesto de FEDEMSUR.

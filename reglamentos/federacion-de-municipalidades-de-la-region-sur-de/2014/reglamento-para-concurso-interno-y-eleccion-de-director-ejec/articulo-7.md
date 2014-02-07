@@ -1,0 +1,1 @@
+Artículo 7º—La Dirección Ejecutiva de FEDEMSUR será establecido un puesto de confianza, respondiendo a los criterios de idoneidad y cumplimiento de las funciones que establece el estatuto para el cargo.
