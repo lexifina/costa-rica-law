@@ -1,4 +1,5 @@
 INSTITUTO NACIONAL DE APRENDIZAJE
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 150 del 7 de agosto de 2013, el Instituto Nacional de Seguros, había acordado suspender por un plazo de seis meses la aplicación del presente reglamento, es decir hasta el 7 de febrero de 2014, transcurrido dicho plazo esta norma entra en vigor)
 JUNTA DIRECTIVA
 En la Sesión Nº 4463 celebrada el 15 de noviembre de 2010 la Junta Directiva acordó aprobar las modificaciones al Reglamento de Fondos Rotativos de Trabajo del INA, según consta en el acta de esa sesión en el Artículo VIII y el acuerdo N° 179-2010-JD, para que en adelante disponga lo siguiente:
 REGLAMENTO DE FONDOS ROTATIVOS DE TRABAJO DEL
