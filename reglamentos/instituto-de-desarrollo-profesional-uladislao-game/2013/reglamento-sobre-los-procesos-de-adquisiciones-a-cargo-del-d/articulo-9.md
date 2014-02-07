@@ -1,0 +1,1 @@
+Artículo 9º—Requisitos previos. Previo a la decisión inicial de contratación, el Departamento de Gestión Administrativa mediante oficio, o el medio que considere idóneo, dejará constancia de la existencia de la partida presupuestaria con que se atenderán las obligaciones derivadas de la contratación.

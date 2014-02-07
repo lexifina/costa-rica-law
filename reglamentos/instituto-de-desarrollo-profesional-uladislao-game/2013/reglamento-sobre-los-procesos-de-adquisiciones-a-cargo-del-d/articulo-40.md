@@ -1,0 +1,1 @@
+Artículo 40.—Normativa supletoria. En todo aquello no previsto en el presente Reglamento se aplicará la Ley de Contratación Administrativa y el Reglamento a la Ley de Contratación Administrativa y la Ley General de la Administración Pública.

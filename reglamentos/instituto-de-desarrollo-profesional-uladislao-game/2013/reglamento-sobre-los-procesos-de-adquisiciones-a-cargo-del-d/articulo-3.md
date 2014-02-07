@@ -1,0 +1,1 @@
+Artículo 3º—Este reglamento será aplicable -sin excepción-, a todos los procedimientos de contratación que promueva el IDP, así como en los procesos de almacenamiento, distribución e inventario de bienes.

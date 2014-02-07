@@ -1,0 +1,1 @@
+Artículo 10.—Inicio del procedimiento. Una vez que se cuente con la solicitud de pedido debidamente confeccionada, con las especificaciones técnicas o términos de referencia aprobados y el contenido presupuestario correspondiente, La Unidad de Adquisiciones dará inicio al procedimiento de contratación respectivo.

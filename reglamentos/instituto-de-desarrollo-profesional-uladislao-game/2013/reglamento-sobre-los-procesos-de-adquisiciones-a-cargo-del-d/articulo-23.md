@@ -1,0 +1,1 @@
+Artículo 23.—Acto final: El Consejo Directivo delega en el Jefe del Departamento de Gestión Administrativa el acto final de la adjudicación; sin embargo en el caso de la adjudicación de las Licitaciones Públicas que superen el monto de ciento cincuenta millones de colones se deberá contar con la autorización previa y por escrito del Presidente del Consejo Directivo.
