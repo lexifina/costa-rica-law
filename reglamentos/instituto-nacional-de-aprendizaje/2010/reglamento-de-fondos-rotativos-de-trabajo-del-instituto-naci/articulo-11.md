@@ -1,0 +1,1 @@
+Artículo 11.—Plazo para liquidar adelantos. Todo adelanto para gasto deberá ser liquidado en un plazo no mayor de siete días hábiles a partir del día hábil siguiente al recibo del dinero o a la finalización del evento o del período de gira, por parte de la persona funcionaria solicitante.

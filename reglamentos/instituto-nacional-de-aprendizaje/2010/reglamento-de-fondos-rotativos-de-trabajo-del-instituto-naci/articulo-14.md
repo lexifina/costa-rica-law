@@ -1,0 +1,2 @@
+Artículo 14.—Imposibilidad de nuevos adelantos. No se girará adelanto alguno a la persona funcionaria que tuviese pendiente la liquidación de un adelanto anterior. Tampoco se girará adelanto cuando la solicitud de desembolso no reúna los requisitos establecidos en el artículo 9° del presente Reglamento.
+La responsabilidad sobre el incumplimiento de este artículo recaerá en la persona funcionaria solicitante y en la persona funcionaria responsable de la entrega del adelanto.

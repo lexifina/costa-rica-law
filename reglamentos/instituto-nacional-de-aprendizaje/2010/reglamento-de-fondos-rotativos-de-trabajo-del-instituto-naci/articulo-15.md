@@ -1,0 +1,1 @@
+Artículo 15.—Administración de fondos. Los fondos de trabajo deberán ser administrados en cuentas corrientes de la Institución y estarán bajo la responsabilidad de las personas funcionarias autorizadas en dichas cuentas.

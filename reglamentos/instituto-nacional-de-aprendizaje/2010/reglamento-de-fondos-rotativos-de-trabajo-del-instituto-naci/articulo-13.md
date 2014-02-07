@@ -1,0 +1,1 @@
+Artículo 13.—Plazo para liquidar adelantos no utilizados. En caso de que no se utilice el adelanto, la persona funcionaria solicitante, deberá devolver el dinero al Fondo de Trabajo en un plazo de un día hábil siguiente contado a partir del momento de la cancelación de la compra o del periodo de gira, justificando expresamente las razones que impidieron el uso de los fondos.

@@ -1,0 +1,2 @@
+Artículo 10.—Comprador. La persona encargada de cada Unidad Regional designará a la persona funcionaria que fungirá como compradora con Fondos de Trabajo, exclusivamente para productos perecederos y material de alto riesgo, bajo los límites que al efecto establezca la Ley de Contratación Administrativa y su Reglamento y el procedimiento establecido por la Gestión de Normalización y Servicios de Apoyo.
+La persona compradora formará parte del personal del Proceso de Adquisiciones.

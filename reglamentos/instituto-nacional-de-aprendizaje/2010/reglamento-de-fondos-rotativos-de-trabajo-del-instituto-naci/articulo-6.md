@@ -1,0 +1,1 @@
+Artículo 6º—Cierre. El cierre de un Fondo de Trabajo será responsabilidad exclusiva de la SGA, previo informe emitido por la URF debidamente fundamentado con indicación clara de las razones que lo justifican.

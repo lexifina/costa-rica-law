@@ -1,0 +1,1 @@
+Artículo 16.—Registro contable. Es responsabilidad del Proceso Financiero Contable de cada Unidad Regional y del Proceso de Contabilidad de la URF de la Sede Central, llevar y mantener actualizados los registros contables de la operación de los Fondos de Trabajo.
