@@ -1,0 +1,1 @@
+Artículo 9º—Cierre. El cierre de un Fondo Rotativo de Caja Chica será responsabilidad exclusiva de la URF, quien deberá elaborar un informe escrito debidamente fundamentado con indicaciones claras de las razones que justifican el cierre.

@@ -1,0 +1,22 @@
+INSTITUTO NACIONAL DE APRENDIZAJE
+En la sesión Nº 4463 celebrada el 15 de noviembre de 2010 la Junta Directiva acordó aprobar las modificaciones al Reglamento de Fondos Rotativos de Caja Chica del INA, según consta en el acta de esa sesión en el Artículo XI y el acuerdo N° 180-2010-JD, para que en adelante disponga lo siguiente:
+REGLAMENTO DE FONDO ROTATIVO DE CAJA CHICA DEL INSTITUTO NACIONAL DE APRENDIZAJE
+Considerando:
+1º—Que mediante el oficio GG-848-2010, del 29 de octubre de 2010, la Gerencia General, remite para conocimiento y eventual aprobación de Junta Directiva, la propuesta de “Reglamento de Fondos Rotativos de Caja Chica del Instituto Nacional de Aprendizaje”.
+2º—Que en informes de Auditoría Interna N° 45-2009, 56-2009, 35-2010 y 43-2010, se emiten algunas recomendaciones, cuyos objetivos se centran en:
+a) La modificación del Reglamento de Fondos Rotativos de Trabajo, Caja Chica y Viáticos del INA, con el fin de subsanar las deficiencias encontradas.
+b) Regular el pago de transporte de taxi.
+c) Analizar el Reglamento citado, para que no se contra ponga a la Ley de Contratación Administrativa y su Reglamento.
+d) Realizar ajustes necesarios para que le pago con tarjeta sea congruente con la normativa interna.
+3º—Que de acuerdo con la experiencia, las recomendaciones técnicas y los usuarios surge la necesidad de separar la normativa en dos instrumentos independientes: “Reglamento para Fondos Rotativos de trabajo del INA” y “Reglamento de Fondos Rotativos de Caja Chica del INA”.
+4º—Que la Asesoría Legal, mediante oficio AL-1545-2010, extiende la respectiva constancia de legalidad para el citado Reglamento.
+5º—Que el presente Reglamento consta de V Capítulos y 25 Artículos, que fueron analizados y discutidos por los integrantes de la Junta Directiva.
+6º—Que el señor Arturo Gutiérrez Ballard, Asesor, Subgerencia Administrativa, expone ante los miembros de Junta Directiva la propuesta del Reglamento en cita.
+7º—Que en los señores directores y directoras conocen y discuten la propuesta de Reglamento, y luego de realizar las observaciones y consideraciones correspondientes manifiestan su anuencia.
+8º—Que el señor Arturo Gutiérrez, recopiló y consignó en la versión definitiva del Reglamento, las observaciones y sugerencias planteadas en el seno de la discusión, por parte de los señores miembros de Junta Directiva.
+9º—Que de conformidad con el art. 7 inciso d, de la ley N° 6868, y al haberse sometido el presente Reglamento al conocimiento de la Junta Directiva, se acuerda. Por tanto,
+ACUERDAN:
+1º—Aprobar el “Reglamento Fondo Rotativos de Caja Chica del Instituto Nacional de Aprendizaje”; de conformidad con la propuesta realizada mediante el oficio GG-848-2010, del 29 de setiembre de 2010, suscrito por la señora Gerente General, lo expuesto por el Licenciado Arturo Gutiérrez Ballard y las observaciones de los miembros de la Junta Directiva, para que disponga lo siguiente:
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Ámbito de Aplicación. El presente Reglamento regula la creación y funcionamiento de los Fondos Rotativos de Caja Chica existentes y los que en el futuro se establezcan en la Institución.

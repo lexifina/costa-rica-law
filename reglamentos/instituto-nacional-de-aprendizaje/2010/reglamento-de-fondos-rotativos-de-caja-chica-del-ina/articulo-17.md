@@ -1,0 +1,1 @@
+Artículo 17.—Manejo de fondos. El Fondo Rotativo de Caja Chica debe estar bajo la custodia de una sola persona. En caso de ausencia de la misma, las personas Encargadas de las Tesorerías deberán asignar una persona funcionaria para ejercer la suplencia, previo arqueo de este Fondo, de acuerdo con el procedimientos establecido al efecto.

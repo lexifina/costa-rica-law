@@ -1,0 +1,1 @@
+Artículo 11.—Determinación del precio normal de mercado. La determinación del precio normal de mercado es responsabilidad de la persona funcionaria que solicita el adelanto, quien deberá verificar que el precio del bien o servicio es razonable. Para esto utilizará el SIREMA u otros medios, de acuerdo con lo indicado en los procedimientos e instrucciones establecidos.

@@ -1,0 +1,2 @@
+Artículo 13.—Plazo para liquidación de adelantos de caja chica o viáticos a cubrir. Todo adelanto para gasto o cobro de viático a cubrir, deberá ser liquidado en un plazo no mayor de siete días hábiles a partir del día hábil siguiente al recibo del dinero o a la finalización del evento o del período de gira, por parte de la persona funcionaria solicitante.
+En caso de presentarse algún faltante o sobrante, deberán ser tratados de acuerdo con los procedimientos establecidos al efecto.

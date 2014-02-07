@@ -1,0 +1,2 @@
+Artículo 14.—Liquidaciones Extemporáneas. Las Tesorerías comunicarán a la Unidad de Recursos Humanos sobre las liquidaciones que se presenten extemporáneamente.
+La Unidad de Recursos Humanos se encargará de verificar si los atrasos fueron generados por incapacidad médica de la persona funcionaria o licencia por fallecimiento de familiar. En los demás casos iniciará el procedimiento disciplinario correspondiente.

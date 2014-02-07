@@ -1,0 +1,2 @@
+Artículo 21.—Incumplimiento y trámite disciplinario. Se considerará falta grave cualquier incumplimiento de las obligaciones establecidas en el artículo 20 del presente Reglamento.
+Con el fin de garantizar el debido proceso a los funcionarios con presuntos incumplimientos, se deberá tramitar un procedimiento disciplinario de acuerdo con lo establecido en el Reglamento Autónomo de Servicios del INA, Estatuto del Servicio Civil, Código de Trabajo y la Ley General de Administración Pública y demás normativa vigente en la materia.
