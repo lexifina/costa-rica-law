@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los controles
+Artículo 16.—Registros y archivos. Como parte del manejo de licores, es obligatorio llevar un registro manual y otro automatizado para el control de los inventarios. En los registros se deberá llevar para cada operación la siguiente información: fecha, número de requisición, usuario, cantidad, saldos del inventario, así como cualquier otro detalle que permita la fácil identificación de las operaciones efectuadas. Cada documento fuente que se registre en el sistema se debe cancelar con un sello “Registrado” para evitar riesgos de doble contabilización o que se omita su registro. Se registrarán ingresos y salidas del producto inmediatamente después de efectuadas las respectivas liquidaciones.

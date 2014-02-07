@@ -1,0 +1,4 @@
+CAPÍTULO III
+Inventarios físicos
+Artículo 12.—Inventarios. El Director del Departamento de Proveeduría coordinará las acciones que procedan para designar al personal idóneo de ese Departamento, que no sea del Área de Suministros y Bienes Muebles, para que realice mediante un cronograma, inventarios trimestrales y anuales de la existencia de licores, que se ejecutarán con la presencia de la jefatura de Área de Suministros y Bienes Muebles. La persona encargada de los inventarios deberá levantar un acta, con copia para el Área de Suministros y Bienes Muebles, que debe ser firmada por los presentes, cuyo original debe conservarse en los archivos de la Dirección del Departamento, de manera que permita la verificación posterior de las operaciones efectuadas.
+El Área de Suministros y Bienes Muebles programará y llevará a cabo periódicamente inventarios independientes, como medio de autocontrol de su gestión.

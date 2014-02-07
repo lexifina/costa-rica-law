@@ -1,0 +1,1 @@
+Artículo 7º—Almacenamiento. El Departamento de Proveeduría velará porque los licores estén almacenados debidamente en un lugar acondicionado para ese fin, donde las condiciones de conservación del producto sean las adecuadas.

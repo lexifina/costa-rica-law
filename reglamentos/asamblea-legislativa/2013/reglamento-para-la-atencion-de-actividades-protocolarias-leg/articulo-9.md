@@ -1,0 +1,1 @@
+Artículo 9º—Solicitudes. Las solicitudes de licor se harán en los formularios correspondientes para la requisición de materiales debidamente llenos, las que serán autorizadas por el Presidente de la Asamblea Legislativa y por el Director Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 10.—Entrega del artículo. El encargado del Área de Suministros y Bienes Muebles entregará el licor únicamente con la presentación de la solicitud. Además hará el respectivo registro de la entrega en el sistema automatizado y manual contra entrega del producto.

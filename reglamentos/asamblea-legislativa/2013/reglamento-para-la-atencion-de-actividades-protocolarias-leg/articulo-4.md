@@ -1,0 +1,2 @@
+Artículo 4º—Del consumo. El Departamento de Relaciones Públicas, Prensa y Protocolo, como encargado de la planificación y organización de las actividades oficiales de la Asamblea Legislativa, establecerá un programa para cada acto, donde se indique el momento en que se servirá el licor y cuándo se dejará de servir, la cantidad calculada de licor que será servida y la cantidad proyectada de asistentes, tomando como referencia la siguiente tabla de consumo:
+[imagen]

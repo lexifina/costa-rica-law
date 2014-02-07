@@ -1,0 +1,1 @@
+Artículo 17.—Cambio de encargado de la custodia. Toda persona que asuma la responsabilidad de la custodia de licores, lo hará previo cotejo de inventarios y verificación de las existencias. Se levantará un acta firmada en original por quien entrega y recibe el inventario, así como el superior inmediato de ambos.
