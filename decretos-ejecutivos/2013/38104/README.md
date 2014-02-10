@@ -14,3 +14,4 @@ Reglamento de Gastos de Viaje y de Transporte en el Interior del País para Func
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-19 | la propia norma |
+| 2 | 2014-02-10 | Decreto Ejecutivo 38303 (2014-02-10) |
