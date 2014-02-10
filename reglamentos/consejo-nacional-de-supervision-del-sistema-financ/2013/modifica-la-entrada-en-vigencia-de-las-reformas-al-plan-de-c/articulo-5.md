@@ -1,0 +1,2 @@
+5. Las entidades de seguros que inicien operaciones entre el 1° de diciembre del 2013 y el 31 de diciembre del 2014, podrán no aplicar la fecha de entrada en vigencia dispuesta en los apartados uno a cuatro de este acuerdo, de tal forma que las disposiciones indicadas en los apartados mencionados entren en vigencia a partir del 1° de enero del 2014.
+Rige a partir de su comunicación en el Diario Oficial La Gaceta”.

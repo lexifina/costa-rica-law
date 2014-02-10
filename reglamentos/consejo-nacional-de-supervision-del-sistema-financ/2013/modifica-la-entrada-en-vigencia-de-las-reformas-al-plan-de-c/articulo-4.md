@@ -1,0 +1,1 @@
+4. Modificar la entrada en vigencia de la reforma al artículo 4 de las Disposiciones Generales del Plan de Cuentas de Entidades de Seguros, aprobadas por este Consejo mediante el literal E del artículo 10 del acta de la sesión 1053-2013, celebrada el 23 de julio del 2013, a efecto de que dichas disposiciones cobren eficacia a partir del 1° de enero de 2015.
