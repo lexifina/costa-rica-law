@@ -1,0 +1,2 @@
+Artículo 31.—Esquema de comunicación de informes [1]. El esquema de comunicación de informes será de conformidad con los lineamientos establecidos por el Comité de Auditoría.
+[1] Artículos 1, 2, 3, 4, 5, 6, 8, 11, 13, 20, 25, 26, 31, 32, 33, 37 modificados mediante artículos 11 de las actas de las sesiones 1069-2013 y 1070-2013, del Consejo Nacional de Supervisión del Sistema Financiero celebradas el 22 de octubre del 2013.

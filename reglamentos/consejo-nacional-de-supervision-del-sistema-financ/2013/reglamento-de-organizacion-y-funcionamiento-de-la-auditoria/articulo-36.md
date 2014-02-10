@@ -1,0 +1,1 @@
+Artículo 36.—Recursos requeridos para la Auditoría Interna. Corresponde al Consejo Nacional de Supervisión del Sistema Financiero asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su labor.
