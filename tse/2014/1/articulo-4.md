@@ -1,0 +1,1 @@
+Artículo 4º—Centros de votación: Se utilizarán los mismos centros de votación designados para la votación del 2 de febrero de 2014, tanto en territorio nacional como en el extranjero, salvo que por situaciones excepcionales, debidamente justificadas por el Departamento de Programas Electorales, sea necesario realizar cambios respecto de dichos centros de votación.

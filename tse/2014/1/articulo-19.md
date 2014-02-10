@@ -1,0 +1,1 @@
+Artículo 19.—Clubes políticos: Únicamente los partidos políticos que participan en la segunda vuelta electoral podrán solicitar la inscripción de nuevos locales, de conformidad con el artículo 141 del Código Electoral y el “Reglamento Sobre la Autorización y Utilización de los Locales para Uso de los Partidos Políticos”.

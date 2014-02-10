@@ -1,0 +1,1 @@
+Artículo 10.—Ubicación en la papeleta de los partidos participantes: Los partidos políticos que participarán en la segunda vuelta mantendrán el orden de prelación en la papeleta, de acuerdo con el sorteo que se realizó el 30 de octubre de 2013, en el que se estableció la posición que ocuparían los partidos en las papeletas utilizadas en la elección del 2 de febrero del 2014.

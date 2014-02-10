@@ -1,0 +1,6 @@
+N° 1-2014
+TRIBUNAL SUPREMO DE ELECCIONES
+De conformidad con lo dispuesto en los artículos 99, 102 y 138 de la Constitución Política, el numeral 209 del Código Electoral y el “Decreto de Convocatoria a Elecciones Generales del 2 de febrero de 2014”, N° 11-2013, y a la luz de los criterios interpretativos contenidos en la resolución de este Tribunal N° 135-E-2002 de las dieciséis horas del treinta de enero del dos mil dos;
+DECRETA:
+REGLAMENTO PARA LA CELEBRACIÓN DE LA SEGUNDA VOTACIÓN DEL PROCESO ELECTORAL 2014
+Artículo 1º—Fecha de celebración: Si una vez concluido el escrutinio definitivo de los sufragios emitidos el 2 de febrero de 2014 para Presidente y Vicepresidentes de la República se confirma el supuesto previsto en el párrafo tercero del artículo 138 constitucional, el Tribunal Supremo de Elecciones (TSE) ordenará la celebración de una segunda votación para su elección, la cual se celebrará el domingo 6 de abril de 2014. La votación deberá efectuase sin interrupción, durante el período comprendido entre las seis y las dieciocho horas del día señalado en territorio nacional, y entre las nueve y las diecinueve horas de ese mismo día, en las juntas receptoras de votos instaladas en el extranjero.

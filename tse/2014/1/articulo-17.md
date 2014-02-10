@@ -1,0 +1,1 @@
+Artículo 17.—Del proceso de votación: Las reglas contenidas en el decreto N° 09-2013 “Reglamento Para el Ejercicio del Sufragio en la Elección General del 02 de febrero de 2014”, en cuanto al proceso de votación se refieren, tendrán plena vigencia para la celebración de la segunda vuelta electoral.

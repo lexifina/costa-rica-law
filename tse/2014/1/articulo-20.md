@@ -1,0 +1,1 @@
+Artículo 20.—Declaratoria de elección: El escrutinio definitivo de las votaciones del 6 de abril de 2014 y la respectiva declaratoria de elección, deberán producirse dentro de los quince días hábiles siguientes.
