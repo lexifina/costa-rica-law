@@ -1,1 +1,0 @@
-Artículo 12.—Los miembros de las Juntas durarán tres años en el ejercicio de sus funciones y podrán ser reelectos. Cuando por cualquier motivo fuere necesario sustituir un miembro de la Junta que no hubiere cumplido la totalidad de su período, el sustituto se considerará nombrado únicamente por el período restante.

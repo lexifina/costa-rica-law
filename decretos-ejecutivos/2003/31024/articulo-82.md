@@ -1,2 +1,0 @@
-Artículo 82.—La oposición del Contador, o del Tesorero, implicara la necesaria revisión del acuerdo tornado en la sesión ordinaria siguiente a aquella en que se formulo o en sesión extraordinaria convocada al efecto, si, a juicio del Presidente de la Junta de Educación o Junta Administrativa, el asunto fuere de tramitación urgente.
-(Así reformado por el artículo 8° del decreto ejecutivo N° 37154 del 23 de marzo de 2012)

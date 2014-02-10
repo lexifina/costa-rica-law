@@ -1,2 +1,0 @@
-Artículo 77.- El Contador o el Tesorero no podrán involucrarse en asuntos propios de la administración del centro educativo o de la junta y deberán rendir garantía a favor de la Hacienda Pública, para asegurar el correcto cumplimiento de sus deberes u obligaciones en los alcances que establece la Ley N°8131, Ley de la Administración Financiera de la República y Presupuestos Públicos y su Reglamento.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 37154 del 23 de marzo de 2012)

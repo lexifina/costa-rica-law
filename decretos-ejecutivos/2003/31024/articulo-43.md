@@ -1,1 +1,0 @@
-Artículo 43.—Las Juntas que hubieren presentado oportunamente sus proyectos de presupuesto dentro del plazo fijado, podrán girar contra las partidas de servicios personales y no personales contenidas en el proyecto, durante el mes de enero.

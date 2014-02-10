@@ -1,1 +1,0 @@
-Artículo 5º—Cada institución de III Ciclo de la Educación General Básica y Educación Diversificada contará con una Junta Administrativa. Sin embargo, cuando dos de estas instituciones compartieren una misma planta física, habrá una sola Junta Administrativa, salvo casos muy especiales, a juicio del Ministro de Educación Pública.

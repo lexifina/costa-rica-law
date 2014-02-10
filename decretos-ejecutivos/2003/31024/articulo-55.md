@@ -1,1 +1,0 @@
-Artículo 55.—Vencido el plazo a que se refiere el artículo anterior sin que la Dirección Regional de Enseñanza se haya pronunciado, se tendrá por aprobada la modificación presupuestaria o el presupuesto extraordinario, bajo la responsabilidad personal del funcionario encargado. En todo caso, se reputa falta grave de servicio ese incumplimiento.

@@ -1,1 +1,0 @@
-Artículo 66.—Las Juntas deberán coordinar con el director, el Patronato Escolar y el Comité Nutricional si lo hubiere, la fiscalización de la compra, transporte, suministro, uso y control de los alimentos.

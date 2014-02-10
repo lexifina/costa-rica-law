@@ -1,1 +1,0 @@
-Artículo 19.—En caso de que estuvieren ausentes el Presidente y el Vicepresidente en forma temporal o definitiva, presidirá uno de los vocales hasta tanto no sean llenadas las vacantes correspondientes.

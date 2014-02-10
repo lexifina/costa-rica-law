@@ -1,2 +1,0 @@
-Artículo 51.—Los fondos de las juntas que tuvieren un destino específico conforme con el artículo anterior, se incluirán en los rubros correspondientes del presupuesto con una explicación clara de su procedencia y destino. Los montos correspondientes no se utilizarán para el cálculo del porcentaje a que se refieren los artículos 45 y 46 anteriores.
-Sin embargo, si el fin asignado es coincidente con las prioridades nacionales o regionales fijadas, los montos correspondientes se incluirán en los cálculos relativos al cumplimiento de tales disposiciones.

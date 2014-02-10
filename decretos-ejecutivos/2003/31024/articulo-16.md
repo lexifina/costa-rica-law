@@ -1,1 +1,0 @@
-Artículo 16.—Las Juntas nombrarán de su seno, por un período de un año, un presidente, un vicepresidente, un secretario y dos vocales. El director institucional comunicará a la mayor brevedad los nombramientos a la Dirección Regional de Enseñanza correspondiente, así como al Departamento de Juntas del Ministerio de Educación Pública y a DANEA.

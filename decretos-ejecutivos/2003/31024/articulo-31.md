@@ -1,1 +1,0 @@
-Artículo 31.—Es deber del director de todo centro educativo asistir a las reuniones de las Juntas. Para este efecto, la Junta deberá notificarle las fechas de sesiones ordinarias y convocarlo en el caso de las extraordinarias, con la antelación descrita en el artículo 28 del presente reglamento. En dichas sesiones tendrá derecho a voz.

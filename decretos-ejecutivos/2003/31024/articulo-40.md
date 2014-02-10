@@ -1,1 +1,0 @@
-Artículo 40.—El Ministerio de Educación Pública deberá comunicar a las respectivas Juntas a más tardar el treinta y uno de octubre de cada año, los ingresos probables provenientes del Fondo creado por la Ley Nº 6746 del 29 de abril de 1982, así como las transferencias presupuestarias contenidas en el proyecto de Presupuesto de la República.

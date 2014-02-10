@@ -1,1 +1,0 @@
-Artículo 26.—El Director Regional de Enseñanza, verificará el cumplimiento del procedimiento establecido en los artículos precedentes, y pasará el expediente al Concejo Municipal en el plazo máximo de cinco días naturales, para su resolución final.

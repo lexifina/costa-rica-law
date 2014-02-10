@@ -1,1 +1,0 @@
-Artículo 59.—Cuando las Juntas deban adquirir inmuebles que en razón de su ubicación, naturaleza, condiciones y situación se determine como únicos propios para la finalidad propuesta, se requerirá autorización de la Contraloría General de la República.

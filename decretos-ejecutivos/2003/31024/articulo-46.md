@@ -1,1 +1,0 @@
-Artículo 46.—El Director Regional de Enseñanza comunicará a las respectivas Juntas, las prioridades regionales establecidas en consonancia con la Política Nacional de Educación a las que deberán destinar no menos de un veinticinco por ciento del presupuesto.

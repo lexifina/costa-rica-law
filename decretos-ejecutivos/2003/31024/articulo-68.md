@@ -1,1 +1,0 @@
-Artículo 68.—La Junta conjuntamente con el Patronato Escolar y el director institucional, seleccionará el ciclo de menú diario, de conformidad con las disposiciones que al efecto dicte la División de Alimentación y Nutrición del Escolar y del Adolescente.

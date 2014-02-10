@@ -1,2 +1,0 @@
-Artículo 80. Es obligación del Contador y del Tesorero mantenerse enterados de los acuerdos que adopte la Junta y que impliquen erogaciones econ6micas y oponerse a aquellos que no fueren legalmente procedentes. Para este efecto, tendrá libre acceso a las actas y podrá asistir a las sesiones donde su presencia tendrá voz sin voto
-(Así reformado por el artículo 6° del decreto ejecutivo N° 37154 del 23 de marzo de 2012)

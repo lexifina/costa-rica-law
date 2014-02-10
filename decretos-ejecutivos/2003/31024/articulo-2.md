@@ -1,1 +1,0 @@
-Artículo 2º—Como organismos auxiliares de la Administración Pública, las Juntas tienen personalidad jurídica y patrimonio propio. Sin embargo, de conformidad con lo dispuesto por el artículo 45 de la Ley Fundamental de Educación, su actividad está subordinada a la Política Educativa vigente.

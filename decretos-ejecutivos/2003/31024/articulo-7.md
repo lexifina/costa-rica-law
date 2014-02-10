@@ -1,1 +1,0 @@
-Artículo 7º—Cada institución que brinde servicios correspondientes a los tres ciclos de la Educación General Básica, tendrá una Junta Administrativa. Esta disposición se aplicará también a las que, ofrezcan además, la Educación Diversificada.

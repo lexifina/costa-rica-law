@@ -1,1 +1,0 @@
-Artículo 57.—Las Juntas sólo podrán adquirir aquellos bienes muebles e inmuebles que sean necesarios para el cumplimiento de los fines legalmente asignados, y estarán autorizadas para construir en terrenos públicos ajenos, siempre y cuando el usufructo o permiso tenga una duración no inferior a cincuenta años.

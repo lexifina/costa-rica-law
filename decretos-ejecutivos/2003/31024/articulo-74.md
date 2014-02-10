@@ -1,1 +1,0 @@
-Artículo 74.—El Ministerio de Educación Pública podrá transferir recursos económicos a las Juntas con la finalidad exclusiva de remodelar, construir y dar mantenimiento a la infraestructura física de las instituciones educativas oficiales, todo de conformidad con las directrices y lineamientos establecidos por los órganos competentes.

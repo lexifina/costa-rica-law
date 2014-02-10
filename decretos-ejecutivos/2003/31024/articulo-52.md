@@ -1,1 +1,0 @@
-Artículo 52.—Los rubros destinados a la contratación de servicios personales que contuvieren los proyectos de presupuesto, serán improbados por la Dirección Regional de Enseñanza, cuando los fondos fueren insuficientes para cubrir los salarios legalmente fijados y no contenga las previsiones correspondientes para el pago de las obligaciones patronales.

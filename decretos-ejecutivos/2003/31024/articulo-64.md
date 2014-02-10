@@ -1,1 +1,0 @@
-Artículo 64.—Las Juntas deberán abrir una cuenta en un banco estatal por cada institución a su cargo, para la administración de los recursos económicos transferidos para el funcionamiento de los comedores escolares.

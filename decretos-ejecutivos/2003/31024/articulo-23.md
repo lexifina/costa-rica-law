@@ -1,1 +1,0 @@
-Artículo 23.—El Asesor Supervisor de Educación procederá a levantar, en forma inmediata, una investigación sumaria tendente a determinar la existencia real de la causal imputada. Si existiere mérito, le trasladará la acusación al denunciado y se le concederá audiencia por cinco días hábiles para que alegue lo pertinente y ejerza su derecho de defensa.

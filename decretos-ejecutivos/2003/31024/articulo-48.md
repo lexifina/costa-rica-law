@@ -1,1 +1,0 @@
-Artículo 48.—Es entendido que las prioridades a que se refieren los artículos anteriores, constituyen una orientación general sobre los asuntos calificados como tales y no las disposiciones concretas sobre el gasto o inversión que deban hacer las Juntas.

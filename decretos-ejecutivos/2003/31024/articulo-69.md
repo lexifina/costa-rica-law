@@ -1,1 +1,0 @@
-Artículo 69.—La Junta de Educación deberá rendir al Asesor Supervisor correspondiente y al director institucional, informes trimestrales sobre el manejo de los fondos provenientes de FODESAF y, en general sobre el funcionamiento del comedor escolar.

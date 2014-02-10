@@ -1,1 +1,0 @@
-Artículo 36.—Los miembros de la Junta podrán interponer recurso de revisión contra sus acuerdos, el que deberá ser planteado a más tardar en la sesión siguiente sea esta ordinaria o extraordinaria. Este recurso deberá resolverse en la misma sesión.

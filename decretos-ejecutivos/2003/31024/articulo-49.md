@@ -1,1 +1,0 @@
-Artículo 49.—El director de cada institución educativa, con la aprobación previa de los docentes, someterá a la Junta un plan general de gastos o inversiones que se estimen necesarias para la marcha normal de la institución, que incidan en el mejoramiento cualitativo de los procesos de enseñanza y de aprendizaje y armonicen con las prioridades regionales y nacionales definidas.
