@@ -1,2 +1,2 @@
-Artículo 45.—Las sanciones contenidas en los artículos 19 y 21 de la Ley número 9047 deberán ser tramitadas para su aplicación ante el Juzgado Contravencional competente.
-La sanción contenida en el numeral 22 de la Ley número 9047 deberá ser tramitada para su aplicación ante el Juzgado Penal competente.
+Artículo 45.- Cuando concurra la situación jurídica dispuesta en el artículo 16 de la Ley número 9047, respecto a la contenida en el artículo 22 de ese mismo cuerpo normativo; la Municipalidad deberá tramitar en sede administrativa la sanción contenida en el numeral 16, y hará de conocimiento de la autoridad judicial competente la situación detectada para la aplicación y trámite de lo dispuesto en el artículo 22 de dicha Ley.
+(Así reformado mediante sesión ordinaria N° 198 del 11 de febrero del 2014)

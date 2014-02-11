@@ -1,1 +1,2 @@
-Artículo 19.—En caso de detectarse que el establecimiento no cuenta con la respectiva licencia de expendio de bebidas con contenido alcohólico, la Sección de Inspección procederá a notificarle al interesado que debe subsanar el incumplimiento dentro del plazo de 10 días hábiles.
+Artículo 19.- En caso de detectarse que el establecimiento no cuenta con la respectiva licencia de expendio de bebidas con contenido alcohólico, la Sección de Inspección procederá a notificarle al interesado que debe subsanar el incumplimiento dentro del plazo de 10 días hábiles. Sin que ello posibilite durante ese lapso la venta o expendio de bebidas con contenido alcohólico.
+(Así reformado mediante sesión ordinaria N° 198 del 11 de febrero del 2014)

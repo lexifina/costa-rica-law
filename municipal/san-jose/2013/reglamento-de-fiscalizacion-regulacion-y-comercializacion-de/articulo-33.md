@@ -1,5 +1,5 @@
 SECCIÓN IV
 Del traslado y traspaso de las licencias de funcionamiento
-Artículo 33.—Las licencias otorgadas bajo la Ley de Licores número 10 podrán ser susceptibles de traspaso y traslado, sin que la licencia que se haya otorgado para funcionar en un distrito pueda utilizarse en otro; esta posibilidad se respeta como derechos adquiridos a través los numerales 17 y 18 de la citada normativa; no obstante, deberán ajustarse a todas las demás disposiciones de la Ley número 9047 y este reglamento.
-Para su traspaso el interesado deberá aportar un contrato de cesión debidamente autenticado por un abogado o cualquier otro documento idóneo que confiera seguridad y demuestre la transferencia de dominio.
-En caso de traslado, el interesado deberá cumplir con los requisitos dispuestos para la obtención de una licencia permanente en este reglamento.
+Artículo 33.- Las licencias otorgadas bajo la Ley de Licores número 10 no podrán ser susceptibles de traspaso y traslado. Los titulares de estas licencias mantienen el derecho de traspasarla a un tercero en los términos del derogado ordinal 17 de la Ley número 10, hasta que expire su plazo bienal de vigencia y deba ser renovada. A partir de ese momento deberá ajustarse a todas las disposiciones establecidas al efecto en la Ley número 9047.
+Cuando resulte procedente el traspaso de la licencia en los términos expuestos en el párrafo anterior, el interesado deberá aportar un contrato de cesión debidamente autenticado por un abogado o cualquier otro documento idóneo que confiera seguridad y demuestre la transferencia de dominio.
+(Así reformado mediante sesión ordinaria N° 198 del 11 de febrero del 2014)

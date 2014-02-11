@@ -1,2 +1,2 @@
-Artículo 9º—Los establecimientos autorizados para el giro de restaurante, permitirán la permanencia de menores de edad; quienes no podrán adquirir ni consumir dentro del establecimiento bebidas con contenido alcohólico.
-Si la actividad principal del lugar se observare que tiende sobre todo hacia la venta de bebidas con contenido alcohólico, las autoridades municipales podrán impedir que los menores de edad permanezcan en el establecimiento, aunque estuvieren en compañía de sus padres, tutores o personas mayores de edad.
+Artículo 9.- Los establecimientos autorizados para el giro de restaurante, permitirán la permanencia de menores de edad; quienes no podrán adquirir ni consumir dentro del establecimiento bebidas con contenido alcohólico.
+(Así reformado mediante sesión ordinaria N° 198 del 11 de febrero del 2014)
