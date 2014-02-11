@@ -1,0 +1,1 @@
+Artículo 7°-. Nomenclatura Vial. De acuerdo con la nomenclatura vial, además de la anterior clasificación de vías por jerarquía funcional y de administración, las mismas se distinguen como: avenidas, calles, diagonales, transversales y plazas (Decreto N° 32793-MP-MOPT del 05 de diciembre del 2005).

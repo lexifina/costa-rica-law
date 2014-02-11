@@ -1,0 +1,7 @@
+Artículo 3. Objetivos. Este Reglamento busca establecer un adecuado sistema vial para asegurar la funcionalidad de la ciudad, en estrecha coordinación con el MOPT. Se pretende, fundamentalmente, encausar los flujos motorizados, de acuerdo a las necesidades de viajes y así reducir las molestias a los residentes de los barrios. Los objetivos específicos de reglamentar la vialidad y el transporte son:
+a) Lograr una relación directa entre el sistema vial y los diferentes usos del suelo, establecidos en el Reglamento de Zonificación del Uso de Suelo de los RDU para mejorar la movilidad en cada una de las zonas de la ciudad.
+b) Lograr un sistema de desplazamientos integrado, eficiente y acorde con los intereses de todos los usuarios del espacio público: peatones, transporte público, transporte privado, transporte no motorizado (bicicleta) y otros.
+c) Mejorar la interacción entre centros poblados y sistemas urbanos para fortalecer su complementación y sus vínculos de desarrollo.
+d) Propiciar una jerarquía vial, con base en parámetros tanto de ingeniería de tránsito, como urbanísticos; que permita establecer mejoras en el uso del suelo, sobre la base del crecimiento poblacional y las actividades de desarrollo, para lograr una mayor eficiencia del sistema.
+e) Mejorar el acceso de la población a los centros localizadores de actividades de desarrollo y servicios públicos.
+f) Mejorar la conexión entre las diferentes zonas del cantón y el resto de la Gran Área Metropolitana.
