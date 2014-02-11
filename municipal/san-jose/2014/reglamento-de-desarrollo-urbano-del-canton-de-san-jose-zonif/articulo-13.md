@@ -1,0 +1,2 @@
+Artículo 13. Regulación. Todo lo relacionado con la cesión y el uso de estas áreas será regulado de conformidad con la Ley de Planificación Urbana, la Ley de Construcciones y el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones, así como las disposiciones de los Reglamentos de Desarrollo Urbano.
+Cuando los proyectos de parques y áreas comunales conllevan un acto de expropiación y este no se realiza, los usos potenciales de los terrenos en cuestión, estarán definidos por el uso más cercano.

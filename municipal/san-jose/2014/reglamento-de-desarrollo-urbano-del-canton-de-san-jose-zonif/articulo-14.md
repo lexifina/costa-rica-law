@@ -1,0 +1,3 @@
+SECCION VI
+ZONA DE SERVICIOS INSTITUCIONALES, COMUNALES Y GUBERNAMENTALES (ZSICG):
+Artículo 14. Propósitos. Son áreas del cantón donde se desarrollan actividades institucionales actualmente consolidadas en determinados predios, tales como educación (guarderías, kinders, escuelas, colegios o universidades, bibliotecas y museos) actividades sanitarias (clínicas y hospitales) servicios de protección y afines (policía, bomberos, Cruz Roja) servicios y oficinas gubernamentales (tribunales, correos, ministerios, oficinas de instituciones públicas, bancos estatales), salones comunales, cementerios y otros. La ubicación de estas áreas se indica en el Mapa de Zonificación de Uso del Suelo.
