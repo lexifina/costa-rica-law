@@ -3,5 +3,6 @@ a) Trabajo cotidiano,
 b) Trabajo extraclase,
 c) Pruebas,
 d) Proyecto (según corresponda),
-e) Asistencia.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 38155 del 14 de enero del 2014)
+e) Concepto,
+f) Asistencia.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 38273 del 11 de febrero del 2014)

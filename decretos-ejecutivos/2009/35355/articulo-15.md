@@ -11,11 +11,12 @@ i) Informar por escrito a los estudiantes, acerca de los objetivos de los trabaj
 j) Conocer, resolver y comunicar por escrito las resoluciones a las objeciones que le formulen los estudiantes, los padres o sus encargados, con respecto a las calificaciones obtenidas en las pruebas, los trabajos y cada uno de los componentes de la evaluación en un plazo no mayor a tres días hábiles.
 k) Participar en la calificación de la conducta de los estudiantes, de conformidad con lo indicado en este Reglamento.
 l) Informar, mediante el Cuaderno de Comunicaciones u otro medio escrito durante cada período a los padres de familia o encargados, los detalles del progreso del estudiante en relación con los diferentes aspectos que constituyen la calificación.
-m) Informar y explicar oportunamente a los interesados el desglose de los promedios de cada período y el promedio anual.
+m) Informar y explicar oportunamente a los interesados el desglose de las calificaciones de cada período y el promedio anual. En el primer año de la Educación General Básica, elaborar el Informe Cualitativo de Desempeño del estudiante.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38273 del 11 de febrero del 2014)
 n) Registrar la puntualidad y la asistencia diaria y acumulativa de los estudiantes.
 o) Consignar la justificación de las llegadas tardías y de las ausencias de aquellos estudiantes que así lo planteen por escrito.
-p) Informar y explicar oportunamente a los interesados el desglose de las calificaciones de cada período y el promedio anual. En el primer año de la Educación General Básica, elaborar el Informe Cualitativo de Desempeño del estudiante.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38155 del 14 de enero del 2014)
+p) Elaborar las pruebas de ampliación y entregarlas a la Dirección del Centro Educativo con los respectivos solucionarios, en la semana siguiente a la finalización del curso lectivo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38273 del 11 de febrero del 2014)
 q) Administrar y calificar las pruebas de ampliación, de los estudiantes a su cargo las que, una vez calificadas y analizadas con los estudiantes, deberá entregar a la Dirección del Centro Educativo para su custodia.
 r) Entregar al Comité de Evaluación, después de aplicada la prueba y cuando éste lo solicite, una copia de la prueba u otros instrumentos de medición aplicados al grupo o grupos a cargo. El plazo máximo de entrega es de tres días hábiles.
 s) Portar y utilizar durante sus lecciones los instrumentos para el registro de información en relación con el proceso evaluativo.
