@@ -1,0 +1,1 @@
+Artículo 14. Base obligatoria de información para solicitud de Licencias. Todas las licencias urbanísticas usarán como base obligatoria de información la localización exacta de la propiedad mediante el plano catastrado, y la autorización del propietario actual de la misma (formalizado con la firma del propietario en el formulario o carta de solicitud, según sea el caso).

@@ -1,0 +1,1 @@
+Artículo 15. Independencia de trámites y requisitos para diferentes licencias en la misma propiedad. Todo trámite sujeto a la obtención de una licencia municipal es independiente uno del otro, aun cuando el primero sea requisito para otro trámite.

@@ -1,0 +1,1 @@
+Artículo 26. Incentivo por ubicación. Los lotes mayores a 1250 m2, ubicados a lo largo del eje urbano: Radial de Pavas - vías alrededor de La Sabana - Paseo Colón – Avenida Segunda y Radial de San Pedro, donde se proyecta implementar la primera etapa del Sistema de Transporte Masivo, tendrán 10% de CAS adicional al indicado en la tabla anterior.

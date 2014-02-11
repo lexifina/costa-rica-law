@@ -1,0 +1,2 @@
+Artículo 21. Pago de impuesto. De conformidad con el artículo 70 de la Ley de Planificación Urbana, el pago por impuesto de construcción y urbanización será el 1% sobre el valor de las obras. No pagarán este tributo las construcciones del Gobierno Central e instituciones autónomas, siempre que se trate de obras de interés social, ni las instituciones de asistencia médico-social o educativas.
+Para las viviendas de interés social y obras que formen parte del Banco de Proyectos del Programa de Regeneración y Repoblamiento, se cobrará 0.01% del valor de la construcción.

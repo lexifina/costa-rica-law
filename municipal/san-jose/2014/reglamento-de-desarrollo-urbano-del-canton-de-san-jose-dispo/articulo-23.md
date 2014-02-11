@@ -1,0 +1,1 @@
+Artículo 23. Cobertura. Se deja a criterio del desarrollador y de su profesional responsable, el porcentaje de cobertura del lote, siempre y cuando se cumpla con las normas de retiro de estos RDU y la normativa vigente sobre ventilación e iluminación natural y las áreas y dimensiones mínimas. Un tercio del área del antejardín, debe mantener una superficie permeable.
