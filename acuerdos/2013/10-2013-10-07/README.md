@@ -13,3 +13,4 @@ Lista de funcionarias y funcionarios del Instituto Nacional de Seguros autorizad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-07 | la propia norma |
+| 2 | 2014-02-11 | Acuerdo 2 (2014-02-11) |
