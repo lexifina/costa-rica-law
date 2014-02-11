@@ -14,3 +14,4 @@ Reglamento de Bolsas de Valores (Acuerdo SUGEVAL-50-10)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-10 | la propia norma |
+| 2 | 2014-02-11 | Reglamento 1089 (2014-02-11) |
