@@ -14,3 +14,4 @@ Reglamento de Defensa y Protección del Consumidor de Seguros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-01 | la propia norma |
+| 2 | 2014-02-11 | Reglamento 1089 (2014-02-11) |
