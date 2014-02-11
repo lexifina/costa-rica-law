@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el Artículo 5 de la Directriz SENASA-DG-D006-2012 a los efectos de que se lea de la siguiente manera:
+“Artículo 5º—La Dirección General del SENASA, por medio del Programa Nacional Símbolo de Sanidad, mediante resolución administrativa razonada, otorgará el correspondiente Símbolo antes mencionado, para lo cual el PSS custodiará el expediente administrativo y la DIPOA levantará, auditará y será la encargada de administrar y darle el debido seguimiento, informando al PSS en todo momento.”
