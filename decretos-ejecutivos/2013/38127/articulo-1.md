@@ -1,0 +1,14 @@
+Nº 38127-MP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las facultades que le confiere el artículo 140, numerales 3) y 18), y el artículo 191, ambos de la Constitución Política.
+Considerando:
+I.—Que el artículo 191 constitucional señala que: “…Un estatuto de servicio civil regulará las relaciones entre el Estado y los servidores públicos, con el propósito de garantizar la eficiencia de la administración…”.
+II.—Que para el cumplimiento del mandato constitucional antes señalado, se crea el Estatuto de Servicio Civil, mediante Ley N° 1581 del 30 de mayo de 1953, por medio del cual se le otorgan diversas competencias al Director General de Servicio Civil, entre otras, la de promover la implantación de sistemas modernos de administración de personal, y seleccionar los candidatos elegibles para integrar el personal del Poder Ejecutivo.
+III.—Que uno de los mecanismos para seleccionar los candidatos a puestos vacantes dentro del Poder Ejecutivo y fortalecer la carrera administrativa, es, precisamente, la promoción de servidores públicos, cuyo sustento jurídico se encuentra en los numerales 34 del supra citado Estatuto, y 21 de su Reglamento, otorgando la competencia de normar dichos procedimientos, a la Dirección General de Servicio Civil.
+IV.—Que pese a que el numeral 21 del citado Reglamento, es claro en indicar que corresponde a la Dirección General de Servicio Civil, emitir las regulaciones en torno a los concursos internos, el Poder Ejecutivo decidió reglamentar dicho procedimiento mediante el Decreto Ejecutivo N° 24025-MP de fecha 13 de enero de 1995, publicado en el Diario Oficial La Gaceta Nº 43 del 01 de marzo de ese mismo año.
+V.—Que como resultado de la acción de inconstitucionalidad que se tramitara bajo el Expediente Nº 11-0014106-0007-CO, contra varias disposiciones del Estatuto de Servicio Civil y otra normativa conexa, la Sala Constitucional de la Corte Suprema de Justicia, emitió la sentencia Nº 2012-17059, de las dieciséis horas y un minuto del cinco de diciembre del dos mil doce, en la cual se declara parcialmente con lugar la misma.
+VI.—Que como consecuencia de esa declaratoria parcial, se ordenó eliminar la palabra “regulares” del Decreto Ejecutivo Nº 24025-MP antes citado, así como la frase “No existe legalmente ningún mecanismo para nombrar interinos que no sean servidores regulares, por otro medio que no sea el concurso externo”, del Oficio Circular DG-009-2009, emitido por la Dirección General de Servicio Civil, con fecha 3 de julio del 2009.
+VII.—Que en virtud de lo anterior, se considera ineficaz mantener vigente un cuerpo normativo como el referido Decreto Ejecutivo Nº 24025-MP, ante la imperiosa necesidad de devolver las potestades normativas en esta materia a la Dirección General de Servicio Civil. Por tanto,
+Decretan:
+Artículo 1º—Deróguese el Decreto Ejecutivo N° 24025-MP del 13 de enero de 1995.
