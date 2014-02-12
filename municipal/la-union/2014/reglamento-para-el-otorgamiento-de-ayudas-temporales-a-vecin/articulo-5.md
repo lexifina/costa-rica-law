@@ -1,0 +1,1 @@
+Artículo 5º—Del otorgamiento de la ayuda temporal. La ayuda temporal a una persona o familia solicitante, se otorgará por una única vez por año presupuestario y ésta se brindará en materiales, alimentos (enseres o artículos de primera necesidad de la canasta básica y/o servicios.

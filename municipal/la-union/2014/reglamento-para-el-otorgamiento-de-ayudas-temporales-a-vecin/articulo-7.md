@@ -1,0 +1,1 @@
+Artículo 7º—Previsión. La Comisión de Asuntos Sociales deberá velar para que el Concejo Municipal garantice la reserva de un monto determinado en el presupuesto anual disponible, para efectos de atender las necesidades que surjan de conformidad con este reglamento.
