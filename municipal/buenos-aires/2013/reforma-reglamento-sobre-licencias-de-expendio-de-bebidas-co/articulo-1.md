@@ -1,0 +1,32 @@
+MUNICIPALIDAD DE BUENOS AIRES
+REGLAMENTO SOBRE LICENCIAS DE EXPENDIO
+DE BEBIDAS CON CONTENIDO ALCOHÓLICO
+Transcribo acuerdo de la Corporación Municipal de Buenos Aires, de sesión ordinaria 51-2013, celebrada el día 21 de diciembre del año en curso, que en letra dice:
+Se acuerda: Aprobar reformas al Reglamento sobre licencias de expendio de bebidas con contenido alcohólico, conforme se detalla: La Municipalidad de Buenos Aires, según lo establecido en los artículos 169 y 170 de la Constitución Política, 4 inciso a), 13 inciso d) y 43 del Código Municipal, así como lo manifestado y dimensionado por la Sala Constitucional mediante el voto 2013-011499, procede a emitir reformas al Reglamento para el otorgamiento de Licencias Municipales, Ley N° 9047 denominada “Ley para la Regulación y Comercialización de Bebidas con Contenido Alcohólico”.
+Refórmese el apartado primero del párrafo segundo del artículo 7°, en donde dice: “La cantidad total de licencias clase B otorgadas en el cantón no podrá exceder la cantidad de una por cada trescientos habitantes”. Para que en lo sucesivo diga: La cantidad total de licencias clase A y B otorgadas en el cantón no podrá exceder la cantidad de una por cada trescientos habitantes. Refórmese el artículo 11°, en donde se establece el derecho que deben cancelar los licenciatarios, en donde dice:
+a. Licencia clase A: Establecimientos de esta categoría que midan hasta 50 m2 pagarán un salario base, establecimientos con un área mayor a 50 m2 y menor a 100 m2 pagarán uno punto cinco salarios base, y establecimientos con un área mayor a los 100 m2 pagarán dos salarios base.
+b. Licencia clase B: Los establecimientos con licencia tipo B 1 pagarán medio salario base, y las licencias tipo B2 pagarán un salario base.
+c. Licencia clase C: Los establecimientos con capacidad de atender hasta 50 personas simultáneamente se considerarán aptos para obtener licencias clase C1 y pagarán medio salario base. Establecimientos con capacidad de atender una cantidad superior a 50 personas simultáneamente podrán obtener una licencia C2 y pagarán un salario base.
+d. Licencia clase DI: Establecimientos de esta categoría que midan hasta 50 m2 pagarán un salario base, establecimientos con un área mayor a 50 m2 y menor a 100 m2 pagarán uno punto cinco salarios base, y establecimientos con un área mayor a los 100 m2 pagarán dos salarios base.
+Licencia clase D2: Establecimientos de esta categoría que midan hasta 300 m2 pagarán dos salarios base, establecimientos con un área mayor a 300 m2 y menor a 400 m2 pagarán dos punto cinco salarios base, y establecimientos con un área mayor a los 400 m2 pagarán tres salarios base.
+Para que en lo sucesivo diga:
+a. Licencia clase A: Establecimientos de esta categoría en cabecera de cantón medio salario base y en distritos un cuarto de salario base.
+b. Licencia clase B: Los establecimientos de esta categoría en cabecera de cantón un cuarto de salario base y en los demás distritos un octavo de salario base.
+c. Licencia clase C: Los establecimientos de esta categoría en la cabecera de cantón un cuarto de salario y en demás distritos un octavo de salario.
+d. Licencia clase DI: Establecimientos de esta categoría en la cabecera de cantón medio salario y demás distritos un cuarto de salario.
+e. Licencia clase D2: Establecimientos de esta categoría en la cabecera de cantón un salario base y demás distritos medio salario base.
+f. Refórmese el apartado primero del párrafo primero del artículo 12, en donde dice: “La licencia tendrá una vigencia de cinco años renovables por períodos iguales de forma automática siempre y cuando la solicitud de prórroga se presente antes de cada vencimiento”. Para que en lo sucesivo diga: La licencia tendrá una vigencia de dos años renovables por períodos iguales, siempre y cuando la solicitud de prórroga se presente antes de cada vencimiento.
+Refórmese el artículo 19 en donde se establece el derecho que se debe cancelar por actividades temporales, en donde dice:
+a. Actividades que se desarrollen en un periodo de uno a dos días, cancelarán el equivalente a un cuarto (1/4) de salario base.
+b. Actividades que se desarrollen en un período de tres a cuatro días, cancelarán el equivalente a medio (1/2) salario base.
+c. Actividades que se desarrollen en un periodo de cinco a seis días, cancelarán el equivalente a tres cuartos (3/4 de un salario base.
+d. Actividades que se desarrollen durante más de siete días, cancelarán un salario base.
+Para que en lo sucesivo diga:
+a. Actividades que se desarrollen en un periodo de uno a dos días, cancelarán el equivalente a un octavo (1/8) de un salario base. En cabecera de cantón y un 50% del equivalente en los demás distritos.
+b. Actividades que se desarrollen en un período de tres a cuatro días, cancelarán el equivalente a un cuarto (1/4) de un salario base. En cabecera de cantón y un 50% del equivalente en los demás distritos.
+c. Actividades que se desarrollen en un periodo de cinco a seis días, cancelarán el equivalente a un medio (1/2) de un salario base. En cabecera de cantón y un 50% del equivalente en los demás distritos.
+d. Actividades que se desarrollen durante más de siete días, cancelarán tres cuartos (3/4) de un salario base. En cabecera de cantón y un 50% del equivalente en los demás distritos.
+Refórmese el apartado primero del párrafo segundo del transitorio 1, en donde dice: Conforme a lo estipulado en el mencionado Transitorio I de la Ley, los titulares de dichas patentes de licores mantendrán los derechos derivados de dichas patentes, incluyendo el derecho de traspasarla, trasladarla, arrendarla, autorizar su uso a terceros, y demás que regían a dichas patentes de previo a /a vigencia de la Ley, por una única vez, dentro del primer quinquenio, a posteriori se deberán ajustar a los lineamientos generales de la Ley 9047.
+Para que en lo sucesivo diga: Conforme a lo estipulado en el mencionado Transitorio I de la Ley, los titulares de dichas patentes de licores mantendrán los derechos derivados de dichas patentes, incluyendo el derecho de traspasarla, trasladarla, arrendarla, autorizar su uso a terceros, y demás que regían a dichas patentes de previo a la vigencia de la Ley, por una única vez, dentro del primer bienio, a posteriori se deberán ajustar a los lineamientos generales de la Ley 9047.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Buenos Aires, 13 de enero de 2014.
