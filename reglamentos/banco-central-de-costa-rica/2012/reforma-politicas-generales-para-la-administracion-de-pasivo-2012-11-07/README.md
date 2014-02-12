@@ -14,3 +14,4 @@ Reforma Políticas Generales para la Administración de Pasivos, Regulaciones de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-21 | la propia norma |
+| 2 | 2014-02-12 | Reglamento 5635 (2014-02-12) |
