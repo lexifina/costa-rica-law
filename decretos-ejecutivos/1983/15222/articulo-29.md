@@ -1,3 +1,2 @@
-Artículo 29.- Caducidad. El Director del Registro declarará de
-oficio la caducidad de las patentes y publicará el aviso correspondiente
-en el Diario Oficial.
+Artículo 29.-Caducidad. El Director del Registro declarará de oficio la caducidad de las patentes y publicará el aviso correspondiente en el Diario Oficial. La publicación podrá hacerse mediante listados que contengan únicamente el número de registro, el título de la patente y la fecha de la caducidad. La solicitud de la publicación deberá hacerse dentro de los seis meses siguientes a la declaratoria de la caducidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38308 del 12 de febrero del 2014)

@@ -1,12 +1,2 @@
-Artículo 33.--Consulta de expedientes y notificación de resoluciones.
-Será consultable por el público cualquier expediente de
-solicitud de patente, salvo solicitudes no publicadas, incluidas las
-retiradas antes de su publicación. Los autos y sentencias que dicte el
-Registro de la Propiedad Industrial se notificarán a los interesados, ya
-sea en forma personal por medio de copia o por medio de nota que deberá
-enviarse por correo certificado a la dirección que hubiera indicado,
-corriendo los términos desde el día hábil siguiente a la fecha que se
-notifique personalmente al interesado o se deposite la nota en la oficina
-de correos.
-(Así reformado por art. 1º, Decreto Ejecutivo Nº 17602 de 11 de
-mayo de 1987)
+Artículo 33.-Consulta de expedientes y notificación de resoluciones. Será consultable por el público cualquier expediente de solicitud de patente, salvo solicitudes no publicadas, incluidas las retiradas antes de su publicación. Las resoluciones que dicte el Registro se notificarán a los interesados, de conformidad con las disposiciones establecidas en la Ley y el Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38308 del 12 de febrero del 2014)

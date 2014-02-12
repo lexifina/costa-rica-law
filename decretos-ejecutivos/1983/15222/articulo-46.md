@@ -1,24 +1,11 @@
 CAPITULO VI
 De las tasas
-Artículo 46.- Tasas relativas a patentes de Invención. Las tasas
-relativas a las patentes de invención serán las siguientes:
-$ CA
-a) Presentación de la solicitud, que incluye la
-tramitación, el examen de forma, la
-inscripción y la expedición del certificado . 150,00
-b) Cada solicitud fraccionaria .. ... ... ... ... 150,00
-c) Oposición... ... ... ... ... ... ... ... ... 75,00
-ch) Tasas anuales, correspondientes al:
-segundo año ................................. 50,00
-tercer año .................................. 60,00
-cuarto año .. ... ... ... ... ... ... ... .... 70,00
-quinto año ... ... ... ... ... ... ... . .... 90,00
-sexto año ... ... ... ... ... ... ... ... ... 110,00
-séptimo año ................................. 130,00
-octavo año ... ... .... ... ... ... ... ... . 160,00
-noveno año .................................. 190,00
-décimo año ................................... 220,00
-décimo primer año ... ... ... ... ... ... ... 250,00
-décimo segundo año .... ... ... ... ... ... .. 290,00
-d) Sobretasa por pago dentro del período de gracia 30% de la tasa
-anual correspondiente.
+Artículo 46.-Tasas relativas a patentes de invención
+1. El pago de $500 (quinientos dólares norteamericanos) correspondiente a la tasa prevista para la inscripción y expedición del certificado respectivo, deberá ser efectuado únicamente en las solicitudes presentadas a partir de la entrada en vigencia de la Ley N° 8632.
+2. Las tasas anuales para mantener la vigencia de la patente deberán ser pagadas por años adelantados. La tasa que debe abonarse por la inscripción y expedición del certificado, exonera el pago de la primera anualidad. La segunda anualidad y las siguientes que se adeuden desde la presentación de la solicitud y hasta la fecha de la concesión de la patente, deberán ser canceladas en un plazo máximo de dos meses contados desde la fecha de concesión. La fecha de vencimiento de cada anualidad será el último día del mes del aniversario de la fecha de presentación de la solicitud.
+En caso de no realizarse el pago dentro los plazos establecidos en el párrafo anterior, se concederá un plazo de gracia de seis meses para el pago de la tasa anual, el cual se realizará simultáneamente con el pago de la sobretasa establecida en el inciso g) del artículo 33 de la Ley. El comprobante de pago correspondiente a las tasas anuales debe ser presentado al Registro, a fin de que se tome nota del pago y se ponga razón en la inscripción de la patente. Los pagos de las tasas anuales serán anotados al margen de la inscripción de la patente y cada anotación indicará el monto pagado, el período o períodos anuales a los cuales corresponde el pago de la fecha en que se recibió el pago. En caso de renuncia, caducidad o declaración de nulidad, no habrá derecho a reintegro de tasas o anualidades pagadas anticipadamente.
+3. Ante la falta de pago oportuno de la tasa fijada en el inciso f) del artículo 33 de la ley, se procederá de la siguiente manera:
+a.- El Director del Registro certificará lo adeudado y remitirá la documentación correspondiente al Departamento Legal del Registro Nacional, el cual procederá a gestionar el cobro de la suma correspondiente. Posterior a la realización de las intimaciones establecidas en el artículo 33 bis, inciso 3 de la Ley; el Director del Registro certificará lo adeudado y remitirá la documentación correspondiente a la Dirección Jurídica del Registro Nacional, el cual procederá a gestionar el cobro de la suma correspondiente.
+b.- Mediante anotación marginal a la patente se procederá a indicar la falta de pago, lo que conllevará la imposibilidad de tramitar licencias, traspasos y cualquier otro movimiento durante la vigencia de la anotación.
+4. La Declaración Jurada contemplada en el artículo 33 de la Ley, mediante la cual se justifica el pago del 30% de la tasa de presentación, podrá ser efectuada mediante documento privado debidamente autenticado o en escritura pública.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38308 del 12 de febrero del 2014)

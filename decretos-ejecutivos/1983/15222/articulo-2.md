@@ -1,9 +1,4 @@
-Artículo 2º.- Formularios impresos. El Registro podrá establecer
-formularios impresos de utilización obligatoria para la presentación de
-solicitudes y de información relacionada con las solicitudes, par los
-avisos que se publiquen en el Diario Oficial y para los demás tramites y
-actos que el Director del Registro pudiera determinar mediante
-instrucción administrativa.
-2. El Registro aplicará en la medida de lo posible las normas
-técnicas internacionales establecidas para la documentación e información
-relativa a los títulos de propiedad industrial.
+Artículo 2º-Formularios impresos y documentos electrónicos
+1. El Registro podrá establecer formularios impresos de utilización obligatoria para la presentación de solicitudes y de información relacionada con las solicitudes, para los avisos que se publiquen en el Diario Oficial y para los demás trámites y actos que el Director del Registro pudiera determinar mediante instrucción administrativa. Del mismo modo podrá establecer mecanismos y reglas para la presentación electrónica de documentos.
+2. El Registro aplicará en la medida de lo posible las normas técnicas internacionales establecidas para la documentación e información relativa a los títulos de propiedad industrial pueda ser consultada de manera eficaz.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38308 del 12 de febrero del 2014)

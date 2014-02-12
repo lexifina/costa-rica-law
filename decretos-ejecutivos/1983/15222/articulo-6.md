@@ -1,10 +1,6 @@
-Artículo 6º.- Representación. La designación de mandatario podrá
-hacerse en la misma solicitud o mediante poder presentado con la
-solicitud o a más tardar dentro de los plazos respectivos establecidos en
-el Código de Procedimientos Civiles. Si no se presentara el poder dentro
-de dichos plazos, se reputarán nulos los actos realizados por el
-mandatario. Si el solicitante tuviere domicilio o sede fuera del país, el
-poder deberá otorgarse en documento aparte y presentarse debidamente
-legalizado.
-2. Cuando fueren varios los solicitantes, podrá designarse como
-representante común a uno de ellos.
+Artículo 6º-Representación.
+1. La designación de mandatario podrá hacerse en la misma solicitud, mediante poder presentado con la solicitud o a más tardar en el plazo de quince días hábiles contados a partir de la notificación de la prevención que así lo requiera. Si no se presentara el poder dentro de dicho plazo, se reputarán nulos los actos realizados por el mandatario.
+2. Cuando fueren varios los solicitantes, podrá designarse como representante común a uno de ellos.
+3. El poder deberá ser aportado en original o copia certificada. En caso de que el documento original haya sido depositado con anterioridad en el Registro de Propiedad Industrial, el interesado podrá aportar una copia simple del mismo, siempre que se indique en la solicitud la ubicación de su original.
+4. Cuando se admita la actuación de un gestor oficioso de conformidad con lo previsto en los artículos 34 de la Ley y 286 del Código Procesal Civil, el interesado deberá ratificar lo actuado dentro del plazo de un mes si es costarricense, o dentro del plazo de tres meses, si fuere extranjero, en ambos casos a partir de la fecha de la presentación de la solicitud, de lo contrario ésta se tendrá por no presentada. La garantía que el gestor oficioso debe presentar a efecto de responder por las resultas del asunto, si el interesado no aprobare lo hecho en su nombre, deberá constituirse mediante fianza a favor del Estado por el monto de tres mil colones (3.000,00). El gestor deberá rendir la fianza respectiva con la propia solicitud, pues de lo contrario la solicitud se tendrá por no presentada.
+(Así reformado por el artículo 1° del decreto ejcutivo N° 38308 del 12 de febrero del 2014)
