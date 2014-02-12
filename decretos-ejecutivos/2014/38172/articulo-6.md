@@ -1,0 +1,1 @@
+Artículo 6º—En la eventualidad de que la corta del recurso forestal existente sea aprovechable y se incurra en las circunstancias del inciso q) artículo 6° y 65 de la Ley Forestal N° 7575, el mismo deberá ser entregado al Ministerio de Educación Pública (MEP), siguiendo el procedimiento establecido en la citada en la Ley Forestal.
