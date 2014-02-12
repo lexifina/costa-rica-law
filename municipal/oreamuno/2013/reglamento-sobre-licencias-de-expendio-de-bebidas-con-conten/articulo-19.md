@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Licencias temporales
+Artículo 19.—Otorgamiento. Las licencias temporales se concederán únicamente con la aprobación mediante acuerdo del Concejo Municipal, el cual estará sustentado por la revisión por parte de la Unidad Tributaria de los requisitos establecidos por la Municipalidad para estos efectos. Estas licencias serán otorgadas con el fin de habilitar el expendio de bebidas con contenido alcohólico en ocasiones específicas, tales como fiestas cívicas, populares, ferias, turnos y fines.
+Deberán ser solicitadas específicamente por la persona o entidad que va a ejecutar la explotación en forma directa, indistintamente si se trata del ente organizador de la actividad o del adjudicatario del derecho mediante remate de puestos, sin que pueda ser solicitada por una persona o entidad y ser explotada por otra persona a cargo.

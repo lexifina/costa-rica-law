@@ -1,0 +1,1 @@
+Artículo 18.—Competencias. La tramitación de las solicitudes de licencias permanentes estará a cargo del nivel administrativo que determine el Alcalde y su otorgamiento será competencia del Alcalde o del funcionario o instancia que la Alcaldía determine.
