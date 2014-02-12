@@ -17,3 +17,4 @@ Las instituciones del sector público que realicen transacciones diarias de comp
 | 2 | 2006-12-20 | Acuerdo 0 (2006-12-20) |
 | 3 | 2007-11-13 | Acuerdo 0 (2007-11-13) |
 | 4 | 2008-07-16 | Acuerdo 5387 (2008-07-16) |
+| 5 | 2014-02-12 | Reglamento 5635 (2014-02-12) |
