@@ -14,3 +14,4 @@ Declara el Golfo Dulce como área marina para la Pesca Responsable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-08 | la propia norma |
+| 2 | 2014-02-13 | Acuerdo 45 (2014-02-13) |
