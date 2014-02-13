@@ -1,7 +1,8 @@
-TÍTULO IV
-Atraque y desatraque
-CAPÍTULO IX
-Asignación de puestos de atraque y prioridades
-Artículo 58.—El Prestatario del servicio se reserva el derecho de designar el orden de atraque de las naves o limitar su permanencia en los muelles. Las naves que requieran transporte, equipo o personal especializado para la operación que van a realizar en puerto y que no se encuentren disponibles, cederán el derecho de atraque a la nave que le siga en turno, siempre que ésta sí pueda realizar las operaciones.
+TITULO IV
+ATRAQUE Y DESATRAQUE
+CAPITULO IX
+Asignación de Puestos de Atraque y Prioridades
+ARTICULO 58: El Prestatario del servicio se reserva el derecho de designar el orden de atraque de las naves o limitar su permanencia en los muelles. Las naves que requieran transporte, equipo o personal especializado para la operación que van a realizar en puerto y que no se encuentren disponibles, cederán el derecho de atraque a la nave que le siga en turno, siempre que ésta sí pueda realizar las operaciones.
 Cuando priven razones de orden público o de conveniencia nacional, el concesionario atenderá la gestión que al efecto le presente la Autoridad Portuaria.
-La asignación de los puestos de atraque se definirá en la reunión de programación diaria con la presencia de los agentes navieros de las naves confirmadas, fondeadas y en muelle. En esta reunión, se estimará la hora de terminación de operaciones de las naves atracadas y la hora de zarpe, se asignará muelle a las naves en fondeo o arribando al puerto y que cumplan con los requisitos para atracar, se definirán los cambios de muelle y fondeo por baja productividad, se asignará el equipo y el personal que atenderá las operaciones de las naves. A estas reuniones se invitará a un representante de los pilotos y a un representante del servicio de Remolcaje para que los movimientos queden debidamente coordinados con todos los actores.
+La asignación de los puestos de atraque en Puerto Caldera se definirá en la reunión de programación diaria con la presencia de los agentes navieros de las naves confirmadas, fondeadas y en muelle. En esta reunión, se estimará la hora de terminación de operaciones de las naves atracadas y la hora de zarpe, se asignará muelle a las naves en fondeo o arribando al puerto y que cumplan con los requisitos para atracar, se definirán los cambios de muelle y fondeo por baja productividad, se asignará el equipo y el personal que atenderá las operaciones de las naves. A estas reuniones se invitará a un representante de los pilotos y a un representante del servicio de Remolcaje para que los movimientos queden debidamente coordinados con todos los actores.
+(Así reformado mediante sesión N° 3876 del 13 de febrero del 2014)

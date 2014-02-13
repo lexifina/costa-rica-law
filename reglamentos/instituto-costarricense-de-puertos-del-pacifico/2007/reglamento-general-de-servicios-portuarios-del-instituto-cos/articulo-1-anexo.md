@@ -24,36 +24,30 @@ CAPÍTULO III
 Del permiso de operaciones
 Artículo 6º—Del permiso de operaciones. Toda persona física o jurídica que desee ser sujeto beneficiario y prestar servicios y suministros a los buques que usan las instalaciones de los puertos administrados por INCOP deberán tener el permiso de operaciones que expedirá la Dirección de Operaciones Portuarias de la Institución mediante el acto administrativo respectivo.
 (Así reformado mediante sesión N° 3464 del 04 de diciembre del 2007).
-Artículo 7º—De los requisitos. Las personas físicas y jurídicas que opten por un permiso de operaciones deberán cumplir los siguientes requisitos, los cuales deberán de ser aportados conjuntamente con la respectiva solicitud:
-a) Oficio en papel sellado dirigido a la Dirección de Operaciones Portuarias, solicitando el permiso de Operaciones, autenticado por un abogado.
-b) Copia de la respectiva patente al día cuando así se requiera.
-c) Certificado de Tributación Directa que se encuentra al día con los correspondientes
-impuestos.
+ARTICULO 7.- De los requisitos. Las personas físicas y jurídicas que opten por un permiso de operaciones deberán cumplir los siguientes requisitos, los cuales deberán de ser aportados conjuntamente con la respectiva solicitud:
+a) Oficio dirigido a la Dirección de Operaciones Portuarias, solicitando el permiso de Operaciones, autenticado por un abogado.
+b) Copia de la respectiva patente al día.
+c) Copia de la declaración de impuestos anual presentado ante Tributación Directa.
 d) Cancelación anual del Canon correspondiente.
-e) Certificación al día de inscripción de la Empresa en el Registro Público.
-f) Lista del personal debidamente identificado indicando como mínimo Nº de cédula, nombre completo, nacionalidad, póliza de un ente acreditado por la SUGES y Caja Costarricense de Seguro Social; que ingresan a las instalaciones del Puerto.
-(Así reformado el inciso anterior mediante sesión N° 3690 del 10 de febrero del 2011)
-g) Listado de los vehículos señalando marca, modelo, placa, copia de la respectiva póliza de seguro al día de un ente acreditado por la SUGES acompañada del original para su verificación.
-(Así reformado el inciso anterior mediante sesión N° 3690 del 10 de febrero del 2011)
-h) Presentar constancia de que los equipos, herramientas y otras utilizados en la realización de sus actividades están debidamente asegurados por un ente acreditado por la SUGES, contra todo tipo de riesgos, tales como daños a la propiedad, o a las personas, etc.
-(Así reformado el inciso anterior mediante sesión N° 3690 del 10 de febrero del 2011)
-i) Presentar documento, debidamente autenticado donde se describen las actividades que realizará cada sujeto beneficiario. En caso de tratarse de Agencias de Viajes (Personas Jurídicas) con tours, paquetes, etc., pre-vendidos deberán de comunicarlo expresamente a la Dirección de Operaciones Portuarias, a fin que ésta coordine lo pertinente al momento de realizar el rol de operaciones.
-j) El Gerente o representante Legal de la empresa, o bien la persona física, a quien se le conceda el mencionado permiso de operaciones, será el responsable directo por los daños ocasionados a las propiedades del INCOP y a terceros dentro de las instalaciones por lo que adjuntará a la solicitud del permiso una fianza, la cual de previo a la ejecución de la presente normativa deberá ser definida de previo por la Dirección Financiera , en coordinación con el Departamento de Proveeduría y la Dirección Jurídica.
-k) Deberá presentar póliza de responsabilidad civil de un ente acreditado por la SUGES, por la suma correspondiente a causa de daños a la propiedad y a terceros ocasionados dentro de las instalaciones.
-(Así reformado el inciso anterior mediante sesión N° 3690 del 10 de febrero del 2011)
-l) Lugar o medio donde recibir futuras comunicaciones.
+e) Certificación al día de inscripción de la Empresa en el registro Público.
+f) Lista del personal debidamente identificado indicando como mínimo # de cédula, nombre completo, nacionalidad, póliza de un ente acreditado por la SUGES y Caja Costarricense de Seguro Social; .o presentación del contrato de servicios profesionales; que ingresan a las instalaciones del puerto.
+g) Listado de los vehículos señalando marca, modelo, placa copia de la respectiva póliza de seguro al día de un ente acreditado por la SUGES acompañada del original para su verificación.
+h) Presentar documento, debidamente autenticado donde se describen las actividades que realizará cada sujeto beneficiario. En caso de tratarse de Agencias de Viajes (Personas Jurídicas) con tours, paquetes, etc, pre-vendidos deberán de comunicarlo expresamente a la Dirección de Operaciones Portuarias, a fin que ésta coordine lo pertinente al momento de realizar el rol de operaciones.
+i) El Gerente o representante Legal de la empresa, o bien la persona física, a quien se le conceda el mencionado permiso de operaciones, será el responsable directo por los daños ocasionados a las propiedades del INCOP.
+j) Deberá presentar póliza de responsabilidad civil de un ente acreditado por la SUGES, por la suma correspondiente a causa de daños a la propiedad y a terceros ocasionados dentro de las instalaciones.
+k) Firma
+l) Lugar o medio dónde recibir futuras comunicaciones.
 m) Tratándose de microbuseros o taxistas que opten por un permiso para brindar transporte a los turistas en temporada de cruceros, deberán presentar además los siguientes requisitos.
-n) Nombre del propietario y/o chofer, número de cédula, número de placa, copia de la respectiva póliza del INS al día, permiso del ICT y del MOPT, licencia de conducir al día.
-o) Todo microbusero y taxista se comprometerá a respetar el rol de ingreso (Recinto Portuario-Muelle de Puntarenas) u orden al que es designado,
-p) Los microbuseros y taxistas o cooperativas, presentarán un listado de sus dueños con indicación de los datos indicados en el inciso tras anterior.
-q) Todo microbusero y taxista debe presentar el gafete y marchamo a la Dirección de Operaciones Portuarias; al momento de ingresar a las instalaciones, debe presentarlo y cuando el encargado del muelle o guarda de turno lo solicite, el marchamo deberá contar con la siguiente información.
-• Nombre del propietario
-• Número de placa
-• Número de gafete
-• Firma del representante legal.
-• Firma y sello de la Dirección de Operaciones Portuarias.
-(Así reformado mediante sesión N° 3464 del 04 de diciembre del 2007).
-( Corregido mediante Fe de Erratas, publicada en la Gaceta N ° 119 del 21 de junio de 2007).
+n) Nombre del propietario y/o chofer, número de cédula, número de placa, copia de la respectiva póliza de seguro de un ente acreditado por la SUGES al día, permiso del ICT y del MOPT, licencia de conducir al día.
+ñ) Todo microbusero y taxista se comprometerá a respetar el rol de ingreso (Recinto Portuario-Muelle de Puntarenas) u orden al que es designado.
+o) Los microbuseros y taxistas o cooperativas, presentarán un listado de sus dueños con indicación de los datos indicados en el inciso tras anterior.
+p) Todo microbusero y taxista debe presentar el gafete y marchamo a la Dirección de Operaciones Portuarias; al momento de ingresar a las instalaciones, debe presentarlo y cuando el Encargado del Muelle o guarda de turno lo solicite, el marchamo deberá contar con la siguiente información.
+1. Nombre del propietario
+2. Número de placa
+3. Número de gafete
+4. Firma del representante legal.
+5. Firma y sello de la Dirección de Operaciones Portuarias.
+(Así reformado el artículo 7) anterior mediante sesión N° 3876 del 13 de febrero del 2014)
 Artículo 8º—Del trámite administrativo, para la emisión del permiso de Operaciones. Una vez presentada la solicitud por parte del Administrado, en la forma prevista en la presente normativa, la Dirección de Operaciones Portuarias deberá de resolver la petición en un plazo improrrogable de diez días, mediante auto debidamente motivado.
 En caso de negación de la solicitud del Administrado, según lo previsto en el numeral 9 de este cuerpo legal, este dispondrá de los recursos administrativos, ordinarios y extraordinarios, previstos en la Ley General de la Administración Pública, a fin de impugnar el acto administrativo contrario a sus intereses.
 En caso de aprobación del permiso solicitado, la Dirección de Operaciones Portuarias, deberá comunicarlo en un plazo de tres días, tanto al interesado como a la Administración del Puerto de Puntarenas, para su respectiva anotación y archivo. El permiso de operación tendrá vigencia únicamente durante la respectiva temporada de cruceros, por lo que al inicio de la próxima deberá solicitarlo aportando los requisitos señalados en los artículos anteriores.

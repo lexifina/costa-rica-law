@@ -1,1 +1,1 @@
-Artículo 31.—Todos los buques están obligados a encender sus luces de navegación desde la puesta hasta la salida del sol al día siguiente.
+Artículo 31.—(Derogado mediante sesión N° 3876 del 13 de febrero del 2014)
