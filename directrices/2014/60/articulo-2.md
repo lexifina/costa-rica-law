@@ -1,0 +1,1 @@
+Artículo 2º—A partir de la publicación de esta directriz, los Ministerios, dependencias del Gobierno Central e Instituciones Autónomas, en la organización de las actividades para la celebración del año 2014 como Bicentenario del Libertador Juan Rafael Mora Porras, deberán coordinar con la comisión público-privada la realización de las actividades que programen para esos efectos.

@@ -1,0 +1,1 @@
+Artículo 3º—Se insta a los Concejos Municipales y de Distrito a adoptar las directrices en este acto emitidas y a dedicar espacios, plazas o vías públicas y nombrarlos en honor del Libertador Juan Rafael Mora Porras.
