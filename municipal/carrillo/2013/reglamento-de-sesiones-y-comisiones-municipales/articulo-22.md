@@ -1,0 +1,1 @@
+Artículo 22.—En toda sesión ordinaria podrán incluirse Dictámenes de Comisiones, siguiendo el orden en que fueron presentados a la Secretaria quien consignará al pie de ellos la hora y fecha de presentación.

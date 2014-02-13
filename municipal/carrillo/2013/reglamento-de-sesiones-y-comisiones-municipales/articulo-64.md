@@ -1,0 +1,1 @@
+Artículo 64.—Cumplidas las sesiones remunerables, la Secretaria revisará en el registro pertinente la asistencia de los regidores y síndicos propietarios y suplentes a las sesiones del Concejo para pasar el informe a Tesorería.

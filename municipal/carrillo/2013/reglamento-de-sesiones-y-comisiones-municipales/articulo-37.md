@@ -1,0 +1,1 @@
+Artículo 37.—Presentada una moción de orden se concederá el uso de la palabra en primer término al proponente y luego a los regidores que la valoren, sin que pueda exceder de tres minutos cada intervención.

@@ -1,0 +1,1 @@
+Artículo 62.—Para ausentarse de la Sesión Municipal o hacer abandono de su curul, cualquier miembro del Concejo deberá pedir permiso al Presidente, pero debe quedar constancia que pierde la dieta cuando su ausencia se materialice por abandono definitivo de la sala de sesiones o el lugar designado para ello.

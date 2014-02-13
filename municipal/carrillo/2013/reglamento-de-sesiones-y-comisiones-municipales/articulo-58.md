@@ -1,0 +1,1 @@
+Artículo 58.—Los funcionarios municipales deberán asistir a las sesiones del Concejo a que fueren convocados, sin que por ello puedan cobrar remuneración alguna (artículo 40 Código Municipal) y las asesorías que brinden en ese momento posteriormente deberán presentarlas por escrito al Concejo.

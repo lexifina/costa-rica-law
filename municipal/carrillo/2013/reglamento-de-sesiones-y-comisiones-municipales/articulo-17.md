@@ -1,0 +1,1 @@
+Artículo 17.—Las Sesiones de Concejo se desarrollaran conforme al orden del día previamente elaborado por el Presidente del Concejo (según artículo 34, inciso b), el cual podrá ser modificado o alterado mediante moción de orden aprobada por el Concejo o por simple mayoría de votos.

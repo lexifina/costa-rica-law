@@ -1,0 +1,1 @@
+Artículo 40.—Al dar por discutido un asunto, el Presidente del Concejo lo someterá a votación, que será pública y levantando la mano, quien no la levante se entenderá como voto negativo. Lo anterior que no riña con lo establecido en el artículo 34 del Código Municipal. Los regidores deben dar su voto afirmativo o negativo, no caben las abstenciones.

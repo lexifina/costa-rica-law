@@ -1,0 +1,1 @@
+Artículo 29.—Todas las actas realizadas por el Concejo deben ser firmadas por el Presidente Municipal y la Secretaria del Concejo inmediatamente después de aprobadas. Podrán levantarse en hojas sueltas solo si fueren previamente foliadas y selladas por la Auditoría Interna.

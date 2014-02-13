@@ -1,0 +1,1 @@
+Artículo 24.—Las mociones de orden por su naturaleza podrán ser sugeridas por cualquier Regidor propietario y/o suplente, o Síndico propietario y/o suplente, pero siempre propuestas para su votación por uno o varios regidores propietarios, incluso de manera verbal cuando se trate de intervenciones por parte de Concejales, invitados o presentes por audiencia.

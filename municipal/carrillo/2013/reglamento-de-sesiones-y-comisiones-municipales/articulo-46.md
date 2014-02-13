@@ -1,0 +1,1 @@
+Artículo 46.—Las comisiones despacharan los asuntos a su cargo a la mayor brevedad posible. Salvo los casos especiales que el Presidente del Concejo en forma expresa les fije un término mayor o menor, las comisiones deberán rendir dictámenes en un plazo no mayor de 15 días, prorrogables por otros quince días a juicio del Presidente.

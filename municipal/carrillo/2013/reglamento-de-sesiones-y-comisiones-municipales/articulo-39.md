@@ -1,0 +1,1 @@
+Artículo 39.—Para referirse a los asuntos en discusión el Presidente del Concejo iniciará su intervención con las siguientes palabras: “señores y señoras regidores y regidoras. Los y las Regidoras iniciaran sus intervenciones con las palabras “Señor(a) Presidente(a), señores(as) regidores(as)”.

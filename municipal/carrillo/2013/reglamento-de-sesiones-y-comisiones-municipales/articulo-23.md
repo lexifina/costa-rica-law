@@ -1,0 +1,1 @@
+Artículo 23.—Todo regidor propietario y/o suplente en propiedad presentará sus mociones y proposiciones por escrito y firmadas. La Secretaria anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo que se trate de mociones de orden.

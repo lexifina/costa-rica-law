@@ -1,0 +1,1 @@
+Artículo 28.—De toda sesión del Concejo se levantará un acta en la que se harán constar los acuerdos tomados y sucintamente las deliberaciones habidas, salvo en casos de nombramiento o elecciones en los que se hará constar únicamente el acuerdo tomado.

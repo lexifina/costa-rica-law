@@ -1,0 +1,1 @@
+Artículo 55.—Cuando el objeto de la audiencia fuere un asunto de competencia del Alcalde Municipal, el Presidente ordenará a la Secretaria remitir el memorial presentado a dicho funcionario para que éste le dé el trámite correspondiente. La secretaria lo hará de conocimiento del interesado.

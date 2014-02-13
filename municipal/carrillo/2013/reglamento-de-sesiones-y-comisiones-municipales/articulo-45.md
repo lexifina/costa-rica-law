@@ -1,0 +1,1 @@
+Artículo 45.—Una vez designadas las comisiones por el Presidente Municipal en la sesión de instalación que deberá celebrarse dentro de los diez días siguientes, nombrará de su seno un coordinador y un secretario.

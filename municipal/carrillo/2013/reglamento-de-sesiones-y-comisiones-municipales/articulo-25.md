@@ -1,0 +1,1 @@
+Artículo 25.—El Presidente no dará curso o declarará fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes o que simplemente tiendan a dilatar y/o a obstruir el curso normal del debate o la resolución de un asunto.

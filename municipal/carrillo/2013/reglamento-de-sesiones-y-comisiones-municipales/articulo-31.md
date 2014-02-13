@@ -1,0 +1,1 @@
+Artículo 31.—Todo acuerdo originado por iniciativa de los Regidores Propietarios o acogida por ellos, se aprobará previo dictamen de una Comisión del Concejo. El dictamen de comisión podrá dispensarse en casos urgentes, si el Concejo lo acuerda por simple mayoría de votos o mediante moción de orden.

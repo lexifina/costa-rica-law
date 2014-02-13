@@ -1,0 +1,1 @@
+Artículo 66.—El señor Alcalde Municipal tendrá como máximo diez minutos de tiempo para brindar sus informes, y se le aplicarán las mismas condiciones en sus réplicas, y mediante moción de orden se le podrá prorrogar el tiempo.

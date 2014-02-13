@@ -1,0 +1,1 @@
+Artículo 16.—Aún y siendo públicas las sesiones a instancia de la Presidencia, el Concejo podrá ordenar la salida temporal de la audiencia o bien una breve suspensión de la sesión a efectos de deliberar un asunto antes de votarlo. Dicha suspensión no podrá superar los quince minutos, reiniciándose la sesión con la respectiva votación pública del asunto tratado.

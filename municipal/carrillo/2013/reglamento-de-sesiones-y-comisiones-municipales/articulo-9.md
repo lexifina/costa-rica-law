@@ -1,0 +1,1 @@
+Artículo 9º—El quórum para las sesiones será de tres regidores. Ese número de regidores deberá encontrarse presente en la Sala de Sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.
