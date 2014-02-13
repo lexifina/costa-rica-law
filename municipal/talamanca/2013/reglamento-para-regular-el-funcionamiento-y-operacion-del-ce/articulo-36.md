@@ -1,0 +1,1 @@
+Artículo 36.—De la Administración: Para la administración la Municipalidad dispondrá de tres formas de administrar el CECUDI: 1) Por Administración directa de la Municipalidad, 2) Por Convenio con una organización sin fines de lucro, 3) Por medio de concurso licitatorio.
