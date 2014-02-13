@@ -1,0 +1,2 @@
+Artículo 11.—Acciones de capacitación derivadas de la contratación de bienes y servicios: Tratándose de capacitación incluida en una contratación de bienes y servicios cuyo objetivo principal no es la adquisición de servicios de capacitación, la Unidad Gestora deberá indicar como mínimo lo solicitado en el procedimiento AF-11-02-012.
+Las acciones de capacitación deberán estar acordes con lo dispuesto sobre la materia en la Ley y el Reglamento de Contratación Administrativa respectivamente.

@@ -1,0 +1,1 @@
+Artículo 27.—Sanciones: Sin perjuicio de las retribuciones aquí reguladas, el incumplimiento de las disposiciones de este Reglamento, conllevará la aplicación de las sanciones disciplinarias correspondientes.

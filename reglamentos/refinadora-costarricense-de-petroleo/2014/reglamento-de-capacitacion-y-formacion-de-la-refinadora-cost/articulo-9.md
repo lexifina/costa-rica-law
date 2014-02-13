@@ -1,0 +1,3 @@
+Artículo 9º—Otras regulaciones:
+a) Para los programas de formación no se reconocerá suma alguna por concepto de material bibliográfico, fotocopias y cualquier otro tipo de reproducciones similares.
+b) Cuando un trabajador tenga interés en participar en una acción de capacitación o formación relacionadas con su puesto y no haya sido considerado para ello, podrá plantear esta situación por escrito y en forma justificada ante su superior jerárquico, quien deberá responderle de igual forma en un plazo no mayor a cinco días hábiles, con copia al Departamento de Capacitación y Desarrollo de Personal.

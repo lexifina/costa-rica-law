@@ -1,0 +1,2 @@
+Artículo 16.—Cese o traslado en período de retribución. Independientemente de si se trata de una acción de capacitación o formación, el becario que está en el período de retribución de tiempo no podrá ser trasladado a otro ente público.
+Si renunciara o fuese despedido sin responsabilidad patronal, deberá cancelar el monto proporcional al tiempo no retribuido de la beca otorgada, el que como deuda que es con la Empresa, le será deducido de la respectiva liquidación.

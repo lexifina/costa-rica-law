@@ -1,0 +1,1 @@
+Artículo 4º—Asignación de Recursos. A fin de que el Departamento de Capacitación y Desarrollo de Personal pueda cumplir con las funciones que este Reglamento le asigna, la Dirección de Recursos Humanos en coordinación con la Gerencia de Administración y Finanzas dotará de los recursos humanos, financieros y tecnológicos necesarios, para que pueda cumplir con sus funciones.
