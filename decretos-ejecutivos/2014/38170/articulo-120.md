@@ -1,0 +1,10 @@
+Artículo 120.—Al Departamento Análisis Técnico le corresponde analizar técnicamente la documentación requerida a los centros de educación privada para asegurar que las ofertas educativas se ajusten a los requerimientos mínimos de la malla curricular establecida por el Consejo Superior de Educación. Tendrá las siguientes funciones:
+a) Coordinar con la Dirección de Desarrollo Curricular, por ser el órgano rector en la materia, toda consulta o solicitud de centros educativos privados, relacionadas con temas curriculares, aplicación de programas de estudio, evaluación de los aprendizajes y temas conexos, de conformidad con el bloque de legalidad aplicable.
+b) Diseñar y ejecutar investigaciones, proyectos, estudios y análisis, con el fin de implantar mejoras en los procesos de trabajo, atender requerimientos de los usuarios o resolver problemas diversos, en procura del logro de los objetivos y la misión organizacionales.
+c) Capacitar de manera constante al personal interno sobre aspectos propios de la educación privada con el fin de transmitir conocimientos, técnicas y metodologías que permitan mejorar el desempeño laboral.
+d) Coordinar las actividades que se realizan con otras dependencias ministeriales, con el fin de lograr la integración de esfuerzos, consensuar intereses y trabajar en equipo para la consecución de objetivos organizacionales comunes.
+e) Implementar sistemas de control interno, con el fin de disminuir el riesgo de que se cometan errores o deficiencias que atenten contra los objetivos organizacionales y el servicio a los usuarios.
+f) Diseñar, coordinar y evaluar los diferentes instructivos que se aplican en la Dirección.
+g) Realizar los estudios técnicos que se requieran para los diversos procesos llevados a cabo en esta instancia ministerial.
+h) Establecer, actualizar y divulgar el manual de procedimientos para el funcionamiento de la Dirección, precisando los procedimientos, requisitos, plazos y órganos competentes para la prestación de los servicios y la realización de trámites específicos.
+i) Otras funciones que amerite la intervención del departamento y designadas por su superior jerárquico.

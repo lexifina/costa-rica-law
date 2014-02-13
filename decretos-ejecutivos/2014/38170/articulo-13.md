@@ -1,0 +1,3 @@
+SECCIÓN I
+De la Dirección de Asuntos Jurídicos
+Artículo 13.—La Dirección de Asuntos Jurídicos (DAJ) es el órgano superior consultivo, técnico-jurídico del Ministerio de Educación Pública (MEP). Le corresponde asesorar a las autoridades superiores y dependencias institucionales sobre los asuntos de su competencia, así como emitir criterios técnico-jurídicos que serán de acatamiento obligatorio. También podrá asesorar al nivel regional, según los lineamientos técnicos establecidos para tales efectos. En el desempeño de sus funciones la Dirección de Asuntos Jurídicos gozará de independencia de criterio.

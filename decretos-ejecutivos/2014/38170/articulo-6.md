@@ -1,0 +1,1 @@
+Artículo 6º—Al Nivel Director le corresponde planificar, coordinar, dirigir, dar seguimiento y evaluar los procesos estratégicos de mediano y largo plazo, necesarios orientar la ejecución de la política educativa y organizar la prestación del servicio de educación pública.

@@ -1,0 +1,3 @@
+SECCIÓN III
+De la Dirección de Proveeduría Institucional
+Artículo 58.—La Dirección de Proveeduría Institucional es el órgano técnico en materia de Contratación Administrativa. Le corresponde la planificación y programación de las compras, la conducción de los diferentes procedimientos de contratación administrativa, así como el almacenamiento, custodia, distribución e inventarios de los insumos y activos adquiridos por el MEP. Lo anterior de conformidad con lo establecido en la Ley de Contratación Administrativa y su reglamento, Ley de Administración Financiera de la República y Presupuestos Públicos y su reglamento, la Ley General de la Administración Pública y demás cuerpo normativo que regule el funcionamiento de las Proveedurías Institucionales.

@@ -1,0 +1,1 @@
+Artículo 136.—La Dirección de Infraestructura y Equipamiento brindará asesoría técnica al Consejo Superior de Educación (CSE) para el cumplimiento de sus competencias constitucionales y legales relacionadas con la infraestructura educativa.

@@ -1,0 +1,11 @@
+Artículo 113.—Son funciones del Departamento de Salud y Ambiente:
+a) Promover procesos y espacios en los que la población estudiantil desarrolla, conocimientos, habilidades y actitudes que contribuyan al mejoramiento de la salud, la educación integral de la sexualidad y el ambiente en centros educativos.
+b) Proponer a la Dirección las políticas y directrices extracurriculares para la prevención primaria en salud, enfatizando en aquellos factores de riesgo para la salud y el estado nutricional de la población estudiantil, así como la educación ambiental para el desarrollo sostenible.
+c) Formular propuestas innovadoras para la promoción de prácticas de vida saludable, la educación integral de la sexualidad y la educación ambiental para el desarrollo sostenible, en todos los ciclos y ofertas educativas autorizadas.
+d) Elaborar campañas de divulgación para la promoción de prácticas de vida saludable, la educación integral de la sexualidad y la educación ambiental para el desarrollo sostenible, en todos los ciclos y ofertas educativas autorizadas, incorporando las tecnologías de la información y la comunicación (TIC).
+e) Fortalecer procesos de investigación sobre los factores de riesgo para la salud de la población estudiantil.
+f) Evaluar y monitorear las acciones en prevención primaria en salud dirigidas a la población estudiantil, desarrolladas en el escenario escolar y la educación ambiental para el desarrollo sostenible.
+g) Formular lineamientos básicos que potencien la participación social y comunitaria en el escenario escolar, de manera que se fortalezcan los procesos educativos en el marco de la prevención primaria en salud, la educación integral de la sexualidad y la educación ambiental para el desarrollo sostenible.
+h) Diseñar la estrategia para la implementación del Programa Bandera Azul Ecológica en todos los centros educativos del país.
+i) Coordinar y orientar la implementación del Programa Bandera Azul Ecológica en todos los centros educativos del país, de conformidad con los manuales de procedimientos, protocolos y lineamientos dictados para tales efectos, previa aprobación de las autoridades superiores.
+j) Otras funciones inherentes relacionadas con sus competencias y atribuciones, asignadas por el superior jerárquico.

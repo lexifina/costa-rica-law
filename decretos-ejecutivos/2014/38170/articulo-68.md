@@ -1,0 +1,3 @@
+SECCIÓN IV
+De la Dirección de Gestión y Desarrollo Regional
+Artículo 68.—La Dirección de Gestión y Desarrollo Regional (DGDR) es el órgano técnico responsable de velar porque las Direcciones Regionales de Educación (DRE) funcionen de conformidad con los lineamientos técnicos, directrices y manuales de procedimientos establecidas por las autoridades superiores, por medio de las dependencias del nivel central que corresponda. Asimismo, le corresponde promover acciones para mejorar la capacidad de gestión de las Direcciones Regionales de Educación, su desarrollo organizacional y la renovación del proceso de supervisión de centros educativos.

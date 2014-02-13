@@ -1,0 +1,12 @@
+Artículo 82.—Son funciones del Departamento de Evaluación de los Aprendizajes:
+a) Proponer a la Dirección las políticas curriculares para la evaluación de los aprendizajes en todas las ofertas, ciclos, niveles y modalidades del sistema educativo público, con el fin de que sean sometidas a consulta de las autoridades superiores y presentadas al Consejo Superior de Educación (CSE) para su autorización.
+b) Proponer a la Dirección las directrices y lineamientos técnicos nacionales para la evaluación de los aprendizajes en todos los ciclos y ofertas educativas.
+c) Participar en el diseño y la evaluación de los planes y los programas de estudio, en relación con la evaluación de los aprendizajes en todas las ofertas, ciclos, niveles y modalidades del sistema educativo público, de conformidad con lo establecido por el CSE.
+d) Formular propuestas innovadoras para el mejoramiento de la evaluación de los aprendizajes en todas las ofertas, ciclos, niveles y modalidades del sistema educativo público.
+e) Promover el uso de recursos didácticos para la evaluación de los aprendizajes en todas las ofertas, ciclos, niveles y modalidades del sistema educativo público, incorporando las tecnologías de la información y la comunicación (TIC).
+f) Llevar a cabo procesos de investigación, evaluación y sistematización sobre los diferentes aspectos relacionados con la evaluación de los aprendizajes en todas las ofertas, ciclos, niveles y modalidades del sistema educativo público, para orientar la toma de decisiones, de conformidad con lo establecido por el CSE.
+g) Brindar asesoría técnica para el desarrollo de la evaluación de los aprendizajes en todas las ofertas, ciclos, niveles y modalidades del sistema educativo público, en el nivel regional.
+h) Formular, en coordinación con las dependencias que corresponda, directrices curriculares para la evaluación de los procesos de aprendizaje en todas las ofertas, ciclos, niveles y modalidades del sistema educativo público, de conformidad con la normativa vigente.
+i) Proponer a la Dirección las políticas de articulación y correlación entre las distintas asignaturas, ofertas, ciclos, niveles y modalidades del sistema educativo, sobre la base de lo autorizado por el CSE.
+j) Formular propuestas tendientes a la sensibilización e incorporación de la comunidad y la familia en los procesos evaluativos.
+k) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.

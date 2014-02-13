@@ -1,0 +1,1 @@
+Artículo 40.—Las Direcciones que conforman el Viceministerio de Planificación Institucional y Coordinación Regional, el Viceministerio Académico y el Viceministerio Administrativo, contarán con un Subdirector.

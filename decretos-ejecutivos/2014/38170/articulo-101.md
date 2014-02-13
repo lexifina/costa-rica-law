@@ -1,0 +1,12 @@
+Artículo 101.—Son funciones del Departamento de Bibliotecas Escolares y Centros de Recursos para el Aprendizaje:
+a) Proponer a la Dirección la estrategia para el desarrollo, fortalecimiento y extensión de bibliotecas escolares y centros de recursos para el aprendizaje, de manera que sea consistente con las necesidades del proceso de desarrollo-aprendizaje, los nuevos formatos tecnológicos y, en general, de las particularidades de los centros educativos.
+b) Proponer a la Dirección las políticas generales para el acceso y funcionamiento de los servicios de bibliotecas escolares y centros de recursos en las instituciones educativas.
+c) Proponer a la Dirección las orientaciones que, a nivel nacional, permitirán el desarrollo de los servicios de bibliotecas escolares así como de los centros de recursos en función de los nuevos formatos tecnológicos.
+d) Formular propuestas para el mejoramiento de los servicios virtuales de las bibliotecas escolares, así como de la transmisión de recursos en todos los niveles y modalidades del sistema educativo público.
+e) Crear y diseñar herramientas que faciliten el funcionamiento de los servicios de bibliotecas escolares de las instituciones educativas, incorporando las tecnologías de la información y la comunicación (TIC).
+f) Llevar a cabo procesos de investigación, evaluación y sistematización sobre los diferentes aspectos relacionados con los servicios de las bibliotecas escolares de las instituciones educativas en el ámbito digital.
+g) Brindar asesoría técnica para el desarrollo de los servicios técnicos – físicos y digitales- de las bibliotecas escolares en las instituciones educativas, a nivel regional.
+h) Realizar los estudios técnicos requeridos para determinar las necesidades de nuevos servicios, en todos los niveles, ciclos y modalidades.
+i) Proponer a la Dirección los mecanismos de acción para el establecimiento de alianzas estratégicas -nacionales e internacionales- con universidades, bibliotecas, organismos no gubernamentales, institutos de educación, etc., que fortalezcan el acceso y uso de recursos educativos.
+j) Formular propuestas tendientes a la sensibilización e incorporación de la comunidad y la familia en los procesos educativos que involucran los servicios de bibliotecas escolares y centros de recursos.
+k) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.

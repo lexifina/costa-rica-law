@@ -1,0 +1,7 @@
+Artículo 99.—Son funciones del Departamento de Gestión y Producción de Recursos Tecnológicos:
+a) Establecer los lineamientos y procedimientos para orientar la gestión, experimentación y producción de recursos tecnológicos destinados a apoyar permanentemente los procesos de enseñanza y de aprendizaje.
+b) Establecer mecanismos de coordinación para promover la gestión, y el diseño de recursos tecnológicos, equipo y material didáctico de apoyo, contando con la realimentación de las instituciones de Educación Superior y sus institutos de investigación, el Sistema Nacional de Radio y Televisión (SINART), dependencias especializadas del Ministerio, los centros educativos, los directores, los docentes, los estudiantes y, en general, los agentes que intervienen en el sistema educativo público costarricense, tanto en el ámbito central como regional.
+c) Establecer mecanismos de coordinación y alianzas con entidades públicas y privadas, tanto nacionales como internacionales, para promover la gestión de recursos tecnológicos a bajo costo y garantizar el acceso a los docentes.
+d) Proveer a los centros educativos y a los docentes de los recursos tecnológicos de apoyo para el mejoramiento del proceso de enseñanza-aprendizaje.
+e) Apoyar al Departamento de Investigación, Desarrollo e Implementación para la promoción de proyectos innovadores.
+f) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.

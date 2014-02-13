@@ -1,0 +1,10 @@
+Artículo 112.—Son funciones del Departamento de Participación Estudiantil:
+a) Promover procesos y espacios en los que la población estudiantil desarrolle conocimientos, habilidades y actitudes que fortalecen sus competencias ciudadanas y contribuyan al mejoramiento de la calidad de los centros educativos y al respeto de los derechos.
+b) Fortalecer la participación estudiantil como plataforma para el ejercicio pleno de los derechos y responsabilidades de la población estudiantil.
+c) Llevar a cabo procesos de investigación, asesoría, evaluación y sistematización sobre los diferentes aspectos relacionados con las ofertas del Servicio Comunal Estudiantil, para orientar la toma de decisiones desde un enfoque de derechos y participación estudiantil.
+d) Elaborar campañas de divulgación para la promoción de programas, proyectos y estrategias que fortalezcan las competencias ciudadanas, la participación estudiantil y prevengan el consumo y tráfico de drogas, incorporando las tecnologías de la información y la comunicación (TIC).
+e) Formular propuestas innovadoras que contribuyan a fortalecer las competencias ciudadanas, la participación estudiantil y prevengan el consumo y tráfico de drogas en todos los niveles, ciclos y modalidades del sistema educativo.
+f) Diseñar y ejecutar modelos de prácticas, campamentos, encuentros, foros, entre otros tanto a nivel central como regional, que contribuyan a fortalecer las competencias ciudadanas, la participación estudiantil y prevengan el consumo y tráfico de drogas.
+g) Apoyar a las instancias del Ministerio de Educación Pública que atiendan aspectos relacionados con competencias ciudadanas, la participación estudiantil y prevengan el consumo y tráfico de drogas.
+h) Preparar informes periódicos sobre los principales problemas identificados en materia de participación estudiantil, avances en su abordaje y remitirlos a la Dirección para su valoración.
+i) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.

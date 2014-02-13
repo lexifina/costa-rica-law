@@ -1,0 +1,3 @@
+SECCIÓN VI
+De la Contraloría de Derechos Estudiantiles
+Artículo 115.—La Contraloría de Derechos Estudiantiles es el órgano técnico responsable de desarrollar un sistema de protección y respeto de los derechos y deberes estudiantiles, de conformidad con el ordenamiento jurídico. Le corresponde controlar y fiscalizar que la población estudiantil reciba una educación orientada al desarrollo pleno de sus potencialidades, orientada por el interés superior de los niños, las niñas y adolescentes, velando por el respeto de sus derechos y el cumplimiento de sus deberes en un ambiente físico y mental sano.

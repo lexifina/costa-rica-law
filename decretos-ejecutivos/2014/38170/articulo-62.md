@@ -1,0 +1,1 @@
+Artículo 62.—La Dirección de Proveeduría Institucional del MEP podrá tramitar ante las autoridades competentes y con estricto apego al bloque de legalidad aplicable, el establecimiento de Proveedurías Especializadas, que funcionarán como órganos auxiliares, de conformidad con los reglamentos específicos emitidos para tales efectos por las autoridades superiores del MEP.

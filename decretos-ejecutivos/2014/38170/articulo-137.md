@@ -1,0 +1,1 @@
+Artículo 137.—La Dirección de Infraestructura y Equipamiento Educativo presentará al jerarca una propuesta de planificación anual en materia de infraestructura y equipamiento educativo, quien con el auxilio del Viceministro Administrativo, resolverá en definitiva.

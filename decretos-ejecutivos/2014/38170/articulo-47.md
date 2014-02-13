@@ -1,0 +1,9 @@
+Artículo 47.—Son funciones del Departamento de Estudios e Investigación Educativa:
+a) Proponer a las autoridades superiores, para su valoración y aprobación, la programación anual de estudios e investigaciones.
+b) Coordinar con el Departamento de Análisis Estadístico el apoyo técnico requerido para la realización de los estudios e investigaciones, de acuerdo con la programación anual.
+c) Coordinar el desarrollo técnico y la conducción de los estudios e investigaciones que realizará directamente, así como aquellas que se llevarán a cabo con la participación de dependencias especializadas del MEP.
+d) Establecer lineamientos y brindar asesoría técnica a las distintas dependencias del MEP, para la realización de investigaciones específicas conducentes a elevar la calidad del Sistema Educativo Costarricense.
+e) Proponer a las autoridades superiores el establecimiento de alianzas estratégicas con instituciones públicas, centros de investigación, universidades, organizaciones no gubernamentales y organizaciones privadas, tanto nacionales o internacionales, para la realización de estudios e investigaciones de interés para el MEP, de conformidad y en estricto apego al ordenamiento jurídico.
+f) Realizar investigaciones sobre factores socioeconómicos, psicosociales, educativos, políticos y culturales que inciden en la calidad de los resultados del Sistema Educativo Costarricense, así como estudios que, mediante diversos enfoques metodológicos, permitan identificar y explicar los aspectos que inciden sobre la realidad educativa del país.
+g) Efectuar diagnósticos y estudios especiales sobre la realidad educativa con el fin de aportar información para el proceso de planificación institucional.
+h) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.

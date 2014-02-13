@@ -1,0 +1,4 @@
+Artículo 178.—A la entrada en vigencia del presente decreto, aplican las siguientes derogatorias y disposiciones transitorias:
+a) Derogatoria del Decreto Ejecutivo 36451-MEP, Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, publicado en La Gaceta Nº 48 del 9 de marzo de 2011.
+b) Derogatoria del Capítulo II, De la coordinación entre el Nivel Central y el Nivel Regional, artículos 6, 7, 8, 9 y 10, del Decreto Ejecutivo 35513-MEP, Organización Administrativa de las Direcciones Regionales de Educación del Ministerio de Educación Pública, publicado en La Gaceta N° 187 del 25 de setiembre de 2009.
+c) Derogatoria del Decreto Ejecutivo 37135-MEP, Reforma a la Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, publicado en La Gaceta N° 102, Alcance N° 70, del 28 de mayo de 2012.

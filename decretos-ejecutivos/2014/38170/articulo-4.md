@@ -1,0 +1,1 @@
+Artículo 4º—Al Nivel Político le corresponde la dirección superior del MEP, la ejecución de la política educativa y de los planes de estudio aprobados por el Consejo Superior de Educación (CSE), así como el cumplimiento de las competencias, funciones y atribuciones técnico-administrativas que le son propias, de conformidad con el ordenamiento jurídico.
