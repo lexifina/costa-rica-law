@@ -1,0 +1,5 @@
+Artículo 5º—Metodología de trabajo y entrega del producto.
+En un plazo de dos semanas, contados a partir de la conformación y oficialización de la Comisión Especial, esta presentará una propuesta de protocolo y su metodología de trabajo, garantizando la legalidad, transparencia y el cumplimiento de los objetivos dispuestos en el presente Decreto Ejecutivo.
+La Comisión rendirá informes mensuales sobre el avance de sus actuaciones.
+El producto final se entregará en un plazo máximo de 3 meses, a partir de la presentación del protocolo y de la metodología de trabajo a que refiere el primer párrafo de este artículo. Ese plazo podrá prorrogarse, previa solicitud debidamente razonada por parte de la Comisión, con indicación del plazo adicional requerido. Corresponderá al Ministro de Obras Públicas y Transportes resolver lo pertinente.
+El Informe Final se remitirá al señor Ministro, con el fin de que se tome el acuerdo correspondiente en el seno de la Junta del Consejo de Transporte Público, para las acciones que correspondan.
