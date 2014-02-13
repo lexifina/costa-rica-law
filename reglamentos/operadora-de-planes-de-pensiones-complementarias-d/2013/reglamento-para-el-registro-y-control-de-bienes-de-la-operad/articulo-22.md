@@ -1,0 +1,2 @@
+Artículo 22.—Traslado de bienes. El traslado o reasignación de bienes implica cambiar definitivamente de lugar y custodia los bienes dentro de la Operadora, pero no se modifica ni cuantitativa ni cualitativamente el patrimonio de ésta. Los bienes trasladados mantendrán el mismo número de identificación de activo, debiendo consignarse por escrito el nuevo usuario responsable de su custodia y administración.
+El traslado de bienes que estén en desuso o mal estado de una dependencia a otra, deberá hacerse mediante los mecanismos establecidos expresamente por la Operadora.

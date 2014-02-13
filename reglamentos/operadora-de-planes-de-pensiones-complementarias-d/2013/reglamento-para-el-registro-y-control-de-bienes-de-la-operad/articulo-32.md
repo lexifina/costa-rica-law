@@ -1,0 +1,2 @@
+Artículo 32.—Entrega de bienes donados. La entrega de los bienes donados, a la institución beneficiada se hará en las instalaciones de la Operadora o en su defecto, en donde se encuentren localizados. El traslado de los bienes correrá por cuenta del beneficiario.
+El beneficiario, deberá firmar el acta en el acto de entrega de los bienes por parte de la Operadora.

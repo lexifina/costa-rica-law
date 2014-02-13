@@ -1,0 +1,3 @@
+Artículo 31.—Notificación de donación aprobada. La Comisión recomendará la o las entidades que recibirán la donación. El acta deberá ser notificada expresamente al interesado y a la Gerencia General.
+La entidad donante deberá proceder al retiro de los bienes en el estado en que se encuentren, en el término improrrogable de 8 días naturales, contados a partir de la comunicación de donación.
+Caso contrario, la Operadora podrá de oficio dejar sin efecto la misma, procediendo a donarlo a otra institución.

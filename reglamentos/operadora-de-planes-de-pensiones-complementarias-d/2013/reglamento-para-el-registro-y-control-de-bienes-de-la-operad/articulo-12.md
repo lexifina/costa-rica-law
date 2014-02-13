@@ -1,0 +1,2 @@
+Artículo 12.—Informe de inventario. En el mes de enero de cada año, el Departamento de Administración y Finanzas remitirá a las Jefaturas de Departamento un inventario general actualizado de los bienes y activos propiedad de la Operadora que se encuentran bajo su administración.
+El informe de inventario debe coincidir con la información contenida en el Sistema Informático de Activos, caso contrario, el Departamento de Administración y Finanzas deberá actualizar la información del sistema y respaldar documentalmente dicha información.

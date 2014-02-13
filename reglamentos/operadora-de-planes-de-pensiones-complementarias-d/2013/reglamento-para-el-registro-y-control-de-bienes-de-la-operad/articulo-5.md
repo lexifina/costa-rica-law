@@ -1,0 +1,2 @@
+Artículo 5º—Formularios. El Departamento de Administración y Finanzas definirá los formularios correspondientes para tramitar la asignación, reasignación, préstamo, concesión, alta y baja de bienes.
+Las Jefaturas de cada Departamento deberán realizar los trámites de adquisición, asignación, reasignación, préstamo, concesión, alta y baja de bienes en los formularios correspondientes, no pudiendo realizar ninguno de estos trámites sin en el formulario respectivo.

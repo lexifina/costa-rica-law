@@ -1,0 +1,2 @@
+Artículo 33.—Control e informe sobre donaciones. La Jefatura del Departamento de Administración y Finanzas elaborará un informe con el número de acta, nombre del beneficiario, ubicación por provincia y bienes donados.
+Este informe deberá ser enviado a la Gerencia General, con el fin de que ésta verifique que los bienes hayan sido debidamente entregados.
