@@ -1,0 +1,18 @@
+DM-19-2014
+EL MINISTRO DE HACIENDA
+En el uso de las facultades que le confiere la Ley de Emisión de títulos valores en el Mercado Internacional, Ley N° 9070, el artículo 28 de la Ley General de la Administración Pública, Ley N° 6227 y los artículos 81, 84 y 86 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131.
+Considerando:
+1º—Que los artículos 1, 2 y 4 de la Ley N° 9070 autoriza al Poder Ejecutivo para que por medio del Ministerio de Hacienda, emita títulos valores en el mercado internacional hasta por el monto de US $4.000 millones (Cuatro mil millones de dólares estadounidenses) o su equivalente en cualquier otra moneda, dentro de los siguientes diez años, contabilizados a partir del 2012, y con un plazo de vencimiento mínimo de cinco años y con una colocación por año calendario que no podrá exceder los US$1.000 millones (Un mil millones de dólares estadounidenses).
+2º—Que el artículo 5 de dicha Ley autoriza al Ministerio de Hacienda, para que en representación del Poder Ejecutivo, suscriba los documentos y otorgue las garantías necesarias para formalizar las operaciones autorizadas y, en general, realizar todas las acciones requeridas para ejecutarlas.
+3º—Que el artículo 6 de la Ley N° 9070 autoriza al Poder Ejecutivo para que por medio del Ministerio de Hacienda contrate la colocación y el servicio de los títulos que dicha Ley autoriza emitir y establezca los lineamientos que debe seguir dicho proceso.
+4º—Que el artículo 7 de la Ley de cita autoriza al Poder Ejecutivo para que efectúe las contrataciones requeridas según la práctica internacional para colocar los títulos autorizados en los artículos 1 y 2. Estos contratos incluyen al menos los de agente fiscal, agente de registro, agente de pago, agente de transferencia, casa impresora, asesores legales internacionales y asesores legales
+nacionales, así como los servicios de calificación de riesgo del país y calificación de la emisión.
+5º—Que en virtud de los artículos 6 y 7 de la Ley N° 9070, las contrataciones requeridas para la emisión de títulos valores en el mercado internacional y las operaciones de reestructuración de pasivos quedarán excluidos de los procedimientos ordinarios de concurso establecidos en la Ley de Contratación Administrativa; sin embargo, el Ministerio de Hacienda deberá velar por que el procedimiento utilizado siga todos los principios y parámetros que rigen la actividad contractual del Estado.
+6º—Que el Ministerio de Hacienda realizó en los años 2012 y 2013 dentro del marco de la Ley N° 9070 emisiones de títulos valores en el mercado internacional por un monto total de US $2.000 millones (Dos mil millones de dólares estadounidenses).
+7º—Que con base en las anteriores autorizaciones, el Ministerio de Hacienda ha resuelto realizar una tercera emisión de títulos valores en el mercado internacional hasta por un monto máximo de US$1.000 millones (Un mil millones de dólares estadounidenses).
+8º—Que para cumplir con los artículos 6 y 7 de la Ley N° 9070 resulta necesario completar el procedimiento mínimo de concurso para la selección del o los bancos que lideren el proceso referido en este Acuerdo, así como para las demás contrataciones requeridas según la práctica internacional. Por tanto,
+ACUERDA: PROCEDIMIENTO PARA LA SELECCIÓN Y
+CONTRATACIÓN DEL BANCO O BANCOS COLOCADORES
+Y DEMÁS CONTRATACIONES REQUERIDAS PARA LA EMISIÓN DE TÍTULOS VALORES EN EL MERCADO INTERNACIONAL
+I Generalidades
+Artículo 1º—Orden de inicio. Conforme al artículo 1 de la Ley N° 9070 se procede a iniciar el proceso para la tercera emisión de títulos valores en el mercado internacional hasta por un monto máximo de US$1.000 millones (Un mil millones de dólares estadounidenses).

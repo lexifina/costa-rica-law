@@ -1,0 +1,1 @@
+Artículo 21.—Formalización del contrato. Luego de la firmeza del acto de adjudicación, se iniciará el proceso de formalización del contrato de suscripción con el banco o bancos seleccionados, según los principios del derecho internacional.
