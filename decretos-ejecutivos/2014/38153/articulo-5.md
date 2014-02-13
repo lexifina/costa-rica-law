@@ -1,0 +1,1 @@
+Artículo 5º—Deróguese el Decreto Ejecutivo N° 36981-COMEX del 19 de diciembre de 2011; denominado “Ajuste de los umbrales establecidos en el Anexo 9.1.2. (b) (i) del Capítulo 9 del Tratado de Libre Comercio República Dominicana- Centroamérica-Estados Unidos”, publicado en el Diario Oficial La Gaceta N° 30 del 10 de febrero de 2012.
