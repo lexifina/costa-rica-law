@@ -1,0 +1,1 @@
+Artículo 8º—Plazo de garantía de la obra. La Municipalidad realizará una recepción provisional de las obras terminadas y dará su recepción final 18 meses después, cualquier defecto que se detecte en dichas obras durante ese lapso de tiempo, deberá ser reparado a satisfacción de la Municipalidad.

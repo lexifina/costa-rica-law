@@ -1,0 +1,3 @@
+Sección V
+Reposición de pavimentos
+Artículo 22.—Materiales. La reposición de los pavimentos afectados debe efectuarse con materiales de las mismas características que el pavimento original, excepto en el caso de los pavimentos de concreto hidráulico, rehabilitados con una sobre capa asfáltica de superficie, en que a criterio de la U.T.G.V.M. se podrá hacer la reposición con un pavimento de concreto asfaltico, que tenga el mismo número estructural que el pavimento mixto existente. Las mezclas asfálticas para reposiciones deberán ser preferentemente en caliente. Donde el Proyecto considere mezclas en frío, estas deben ser hechas con asfalto emulsificado.

@@ -1,0 +1,1 @@
+Artículo 5º—Control de calidad. Se tomarán las pruebas y se ejecutaran los mismos tipos de ensayos y con las mismas frecuencias indicados en el Plan de Control de Calidad que deberá entregar quien solicitó la licencia para ruptura.

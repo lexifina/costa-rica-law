@@ -1,0 +1,3 @@
+Sección I
+Permiso de ruptura de vías
+Artículo 3º—Autorización para ruptura de vías. Cualquier persona física o jurídica que pretenda realizar trabajos de ruptura en la superficie de ruedo de las vías pública o en cualquier sector del derecho de vía, debe solicitar autorización a la Unidad Técnica de Gestión Vial Municipal (U.T.G.V.M.). Su objetivo es regular los aspectos técnicos relacionados con la ruptura y reposición pavimentos, con la finalidad de conservar la infraestructura urbana, mantener el orden, la circulación y el tránsito, así como uniformar los criterios de diseño y constructivos de los pavimentos afectados.
