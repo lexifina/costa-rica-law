@@ -1,0 +1,1 @@
+Artículo 34.—Estudiantes con discapacidad. Los estudiantes con discapacidad deberán cumplir con los requisitos establecidos en los artículos 31 y 33 del presente reglamento, y no les será aplicado lo dispuesto en el inciso a) del artículo 35, así como el artículo 36 del presente reglamento.

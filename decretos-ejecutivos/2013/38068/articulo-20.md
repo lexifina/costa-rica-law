@@ -1,0 +1,6 @@
+Artículo 20.—Requisitos para mantener el financiamiento. Conservarán su condición de beneficiario, quienes cumplan los siguientes requisitos:
+a. Aprueben las materias cursadas con una calificación igual o superior al mínimo exigido por el centro educativo en que se encuentren matriculados y que demuestren un aprovechamiento académico satisfactorio. Se entiende como rendimiento académico satisfactorio cuando el estudiante apruebe todas las materias matriculadas en cada bloque.
+b. Presenten los informes oficiales de calificaciones de cada período, según la modalidad del plan de estudios determinado por el centro educativo correspondiente, conforme lo determine el Departamento de Becas.
+c. Emplear el recurso destinado exclusivamente para los fines que le fue otorgado, para lo cual deberá presentar ante el Departamento de Becas de JUDESUR las facturas proforma en las solicitudes de giro de recursos, así como los comprobantes originales de pago que así lo demuestren.
+d. Proporcionar al Departamento de Becas de JUDESUR todos los datos relacionados con su situación socioeconómica o académica, que le sea solicitada.
+e. Firmar las adendas necesarias al respectivo Contrato para Estudios Superiores con JUDESUR, en las cuales se establecerán las obligaciones y nuevas condiciones del Financiamiento.
