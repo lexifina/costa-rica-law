@@ -1,1 +1,1 @@
-Artículo 5º—El monto de las compras de bienes y servicios, que el BCR realice para la administración de los bienes embargados o adquiridos en pago de obligaciones, será cargado a la obligación que originó esa administración.
+Artículo 5°—El monto de las compras de bienes y servicios, que el BCR realice para la administración de los bienes embargados o adquiridos en pago de obligaciones, será cargado a la obligación que originó esa administración.

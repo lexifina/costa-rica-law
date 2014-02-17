@@ -1,6 +1,5 @@
 CAPÍTULO VI
 Disposiciones finales
-Artículo 29.—Los funcionarios del Conglomerado Financiero BCR, no podrán participar en los procesos de venta que se tramiten.
-No obstante, si un bien se ha publicado en tres oportunidades o más durante un año y no se ha logrado su venta, la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones podrá autorizar su venta entre los funcionarios del Conglomerado Financiero BCR.
-Tendrán prohibición absoluta de adquisición de estos bienes, miembros de la Junta Directiva General, el gerente general, los subgerentes, los directores, auditor y subauditor, los gerentes de las divisiones comerciales, los abogados de la División Jurídica, así como los abogados externos y peritos que hayan participado en el proceso de adquisición y valoración de los bienes, gerente del CSO Corporativo Empresarial, gerente del CSO Empresarial Centro, gerente de Ingeniería y Valuación, los interventores y cualquier otro funcionario que participe en la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones.
+Artículo 29.—Los funcionarios del Conglomerado Financiero BCR, no pueden participar como oferentes ni resultar adjudicatarios en los procesos de venta que se tramiten.
+También tendrán prohibición absoluta de adquisición de estos bienes, miembros de las juntas directivas del Conglomerado Financiero BCR, los abogados externos y peritos externos que hayan participado en el proceso de adquisición y valoración de los bienes.
 La anterior prohibición incluye además, al cónyuge, compañero o compañera de unión de hecho de los funcionarios mencionados, así como sus parientes por consanguinidad hasta el primer grado.

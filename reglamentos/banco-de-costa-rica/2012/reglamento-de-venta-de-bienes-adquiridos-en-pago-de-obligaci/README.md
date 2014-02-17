@@ -14,3 +14,4 @@ Reglamento de Venta de Bienes Adquiridos en Pago de Obligaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-08 | la propia norma |
+| 2 | 2014-02-17 | Reglamento 7 (2014-02-17) |

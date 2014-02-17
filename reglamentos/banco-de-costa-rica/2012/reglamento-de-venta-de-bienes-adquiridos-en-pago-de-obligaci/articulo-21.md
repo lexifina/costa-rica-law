@@ -1,1 +1,1 @@
-Artículo 21.—Los niveles de atribuciones para la adjudicación de la venta de bienes, se regirán conforme lo establecido en el anexo 2 Atribuciones para la aprobación de ventas de bienes adquiridos en pago de obligaciones de este Reglamento.
+Artículo 21.—Los niveles de atribuciones para la adjudicación de la venta de bienes, se regirán conforme lo establecido en el anexo 2 Atribuciones para la aprobación de ventas de bienes adquiridos en pago de obligaciones de este reglamento.
