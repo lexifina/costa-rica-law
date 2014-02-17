@@ -12,3 +12,4 @@ servicios públicos prioritarios, para una mejor satisfacción del interés cole
 1.Incrementar la transparencia de la información sobre la gestión pública, propiciando el conocimiento ciudadano sobre la administración de la Hacienda Pública para fortalecer el control y la rendición de cuentas.
 2. Fortalecer la prevención de la corrupción mediante acciones novedosas de fiscalización integral para generar mayor confianza en la institucionalidad.
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance digital N° 131 a La gaceta N° 235 del 5 de diciembre de 2013)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38198 del 17 de febrero del 2014)
