@@ -1,13 +1,5 @@
-ARTICULO 5º.- Corresponderá al Instituto Costarricense de Pesca y
-Acuacultura, a que se refiere la Ley No. 7384 de 16 de marzo de 1994, por
-medio de la Oficina correspondiente, otorgar los permisos o licencias de
-pesca. Para tales efectos, los interesados deberán cumplir con los
-requisitos establecidos al efecto por dicha Institución y presentar a la
-misma el certificado de tonelaje neto, a que alude el artículo 2º de este
-decreto.
-El INCOPESCA, no otorgará permisos para realizar la actividad de
-pesca de atún, a aquellos permisionarios, que no cumplan con los
-requisitos establecidos en el Decreto Ejecutivo Nº 19936-MAG de 24 de
-agosto de 1990, publicado en "La Gaceta" Nº 188 del 4 de octubre de 1990.
-(Así reformado por el artículo 1º del decreto ejecutivo No.24120 de
-28 de febrero de 1995)
+Artículo 5º—Corresponderá al Instituto Costarricense de Pesca y Acuacultura, a que se refiere la Ley N° 7384 de 16 de marzo de 1994, por medio de la Oficina correspondiente, otorgar los permisos o licencias de pesca.
+Para tales efectos, los interesados deberán cumplir con los requisitos establecidos al efecto por dicha Institución y presentar a la misma el certificado de tonelaje neto, a que alude el artículo 2° de este decreto.
+El INCOPESCA, no otorgará permisos para realizar la actividad de pesca de atún, a aquellos permisionarios, que no cumplan con los requisitos establecidos en el Decreto Ejecutivo N° 19936-MAG de 24 de agosto de 1990, publicado en La Gaceta N° 188 del 4 de octubre de 1990.
+Igualmente deberán aportar para el trámite de la licencia o permisos de pesca de atún, por parte de los armadores y capitán de la embarcación, una manifestación expresa de conocimiento y aceptación en cuanto a la no utilización del uso de plantados en la realización de las actividades o faenas de pesca en aguas jurisdiccionales costarricenses, durante todo el período de registro de la embarcación, por la prohibición vigente en Costa Rica del uso de tales objetos; así como de no efectuar labores de pesca que impliquen cercar naves de bandera nacional o internacional que impidan su navegación o ejercicio de pesca si éstas se encuentran de previo en el área que se pretende hacer el lance por parte de la embarcación cerquera. Asimismo deberán indicar en forma expresa la aceptación de que la Comisión Interamericana del Atún Tropical (CIAT) libere la información para las autoridades pesqueras de Costa Rica, respecto de la forma o el método que el barco utiliza y ha utilizado en el último año calendario para la pesca de atún. En caso de no cumplir con el compromiso expreso el INCOPESCA procederá a cancelar la licencia o permiso otorgado conforme lo dispone el artículo 164 de la Ley N° 8436 del 1° de marzo del 2005.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38188 del 17 de febrero del 2014)
