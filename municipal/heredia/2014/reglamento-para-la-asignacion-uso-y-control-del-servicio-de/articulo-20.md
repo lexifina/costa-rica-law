@@ -1,0 +1,1 @@
+Artículo 20.—Sanciones. El incumplimiento de las disposiciones de este Reglamento y del contrato de asignación generará la resolución del contrato, sin perjuicio de las sanciones disciplinarias y/o civiles contenidas en la reglamentación interna de la Municipalidad y la legislación vigente aplicable.

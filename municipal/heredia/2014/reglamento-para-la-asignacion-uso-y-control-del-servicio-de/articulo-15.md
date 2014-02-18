@@ -1,0 +1,1 @@
+Artículo 15.—Pago del servicio. La Municipalidad cancelará mensualmente al proveedor de telefonía celular la totalidad de la factura, salvo que se trate de montos excedentes, llamadas internacionales y roaming internacional sin autorización, llamadas a las líneas 900 y mensajería de texto para promociones o concurso.

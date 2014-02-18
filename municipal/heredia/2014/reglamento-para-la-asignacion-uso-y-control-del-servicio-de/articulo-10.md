@@ -1,0 +1,2 @@
+Artículo 10.—Depósito. El usuario que disfrute de licencias, vacaciones o incapacidades por un período superior a cinco días hábiles deberá depositar el servicio celular propiedad de la Municipalidad en la Auditoria Municipal, quien como fiscalizadora lo custodiará durante el tiempo que perdure la causal que originó ese depósito.
+En caso de que esa circunstancia se prolongue por un período excesivo, la Alcaldía Municipal podrá resolver el contrato y comunicará a la Proveeduría Municipal a efectos de que elabore el acta señalada en el artículo anterior.

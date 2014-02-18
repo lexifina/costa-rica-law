@@ -1,0 +1,1 @@
+Artículo 23.—Derogatoria. Se deroga el Reglamento sobre uso de teléfonos celulares adquiridos por la Municipalidad de Heredia, aprobado por el Concejo Municipal en sesión 141-99 del 1° de noviembre de 1999.

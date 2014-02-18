@@ -1,0 +1,2 @@
+Artículo 7º—Criterios de asignación. La asignación y uso del servicio celular propiedad de la Municipalidad estará sujeta a los principios de razonabilidad, racionalidad y a las prácticas generales de sana administración de recursos públicos, según lo establece la Ley General de la Administración Pública y la Ley de Administración Financiera y Presupuesto Público.
+Se restringe su asignación a un servicio celular por usuario, a quien se le otorga en razón del puesto que se ejerce o por la naturaleza de sus funciones.
