@@ -1,0 +1,1 @@
+Artículo 9°—Es atribución de la Alcaldía, aprobar movimientos a nivel de sub partidas y traslados a grupos, mediante un control interno numerado, a efecto de cumplir lo establecido en el artículo anterior.

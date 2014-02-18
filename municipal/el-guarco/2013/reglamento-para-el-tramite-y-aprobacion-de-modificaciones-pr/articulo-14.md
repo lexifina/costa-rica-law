@@ -1,0 +1,1 @@
+Artículo 14.—El Departamento de Presupuesto deberá comunicar al Ente Contralor por medio del SIPP. >(Sistema Integrado de Presupuestos Públicos) cada modificación presupuestaria que se autorice, a más tardar cinco días hábiles posteriores a su aprobación definitiva.

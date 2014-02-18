@@ -1,0 +1,2 @@
+Artículo 4°—Justificación de los ajustes al presupuesto y su relación con el plan anual operativo.
+Las variaciones que se realicen al presupuesto mediante modificación presupuestaría, deberán estar debidamente justificadas e incorporar como parte de la información que las sustenta, la relación de las variaciones presupuestarias con el cumplimiento de los objetivos y metas establecidas en el plan anual operativo.
