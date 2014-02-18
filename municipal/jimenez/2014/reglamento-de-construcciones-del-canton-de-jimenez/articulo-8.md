@@ -1,0 +1,7 @@
+Artículo 8º—Todo estructura que se construya en lo sucesivo frente a la vía pública deberá ajustarse la alineación de la Municipalidad de Jiménez o de Ingeniería de Tránsito del Ministerio de Obras Públicas y Transporte así como al nivel que la Municipalidad determine con el fin de garantizar un ordenamiento adecuado del territorio. Para la solicitud del Visado y Alineamiento Municipal, se han de cumplir con los siguientes requisitos:
+a) Formulario de Solicitud de Visado Municipal; el cual para sus efectos está disponible tanto de manera física en el Departamento de Construcciones, Catastro y Valoración de la Municipalidad de Jiménez como de manera digital, por los medios electrónicos o de divulgación digital que a su bien la Municipalidad de Jiménez disponga, firmado por el propietario registral del inmueble o por autorización por escrita del mismo.
+b) Fotocopia de la cédula del propietario.
+c) Contar con la Declaración de Bienes Inmuebles vigente.
+d) Plano catastrado original de la propiedad a visar o copia certificada por el Registro Nacional de la Propiedad.
+e) Certificación original de Disponibilidad de agua potable, emitida por el ente proveedor de la misma con no menos de tres meses de emitida.
+Todo alineamiento otorgado por esta Municipalidad tendrá una vigencia de un año natural a partir de la fecha en la que fue otorgado. Si no se hiciere uso del mismo al cabo de ese tiempo deberá solicitarse la revalidación.

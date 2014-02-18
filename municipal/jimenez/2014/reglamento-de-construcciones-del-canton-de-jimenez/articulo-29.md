@@ -1,0 +1,3 @@
+Artículo 29.—Cuando por motivos calificados sea indispensable dejar escombros, hacer excavaciones en alguna forma, poner obstáculos al libre tránsito de la vía pública, originados por obras de cualquier tipo, es obligatorio obtener de previo, autorización municipal para tal uso y reparar cualquier daño que se provoque a la infraestructura existente.
+En caso de incumplimiento de lo anterior, la Municipalidad retirará el permiso de uso concedido, ordenará el retiro de materiales y en caso de no cumplirse con la orden dictada, procederá de conformidad con la Ley General de Caminos Públicos y el Código Municipal.
+Los casos de accidentes por el incumplimiento de este punto, serán de exclusiva responsabilidad del encargado de la obra y del propietario del inmueble.

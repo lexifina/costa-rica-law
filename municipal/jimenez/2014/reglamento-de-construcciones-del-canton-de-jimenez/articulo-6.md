@@ -1,0 +1,6 @@
+Artículo 6º—Previo a la actualización, inscripción y traspaso de bienes inmuebles, solicitud de la Licencia de Construcción o solicitud de servicios de agua potable, recolección de basura y aseo de vías dentro de la gestión municipal, se ha de realizar la Declaración de Bienes Inmuebles en las oficinas de la Municipalidad de Jiménez, para lo cual se han de cumplir con los siguientes requisitos:
+a) Formulario de Declaración de Bienes Inmuebles, debidamente lleno y firmado por el puño y letra del propietario registral del Inmueble; el cual para sus efectos está disponible únicamente de manera física en el Departamento de Construcciones, Catastro y Valoración de la Municipalidad de Jiménez.
+b) Fotocopia del Plano Catastrado, sin reducción ni pegas.
+c) Fotocopia de la Escritura de posesión del terreno o certificación de informe registral de la propiedad, con no más de un mes de emitido.
+d) En caso de que el propietario registral sea una sociedad anónima se ha de presentar una certificación de personería jurídica con no más de tres meses de emitida.
+e) Fotocopia por ambos lados de la cédula de identidad del propietario registral de la propiedad. En caso de sociedades anónimas se ha de presentar copia por ambos lados de la cédula de identidad del representante legal de la misma.

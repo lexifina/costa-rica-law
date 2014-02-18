@@ -1,0 +1,1 @@
+Artículo 13.—Demoliciones y Movimientos de Tierra; se entiende por aquellos trabajos que buscan la preparación del terreno para proyectos (terraceos, nivelaciones entre otros) así como aquellos destinados a demoler estructuras que han cumplido su vida útil y/o que representan un peligro potencial para la seguridad de los habitantes del cantón.

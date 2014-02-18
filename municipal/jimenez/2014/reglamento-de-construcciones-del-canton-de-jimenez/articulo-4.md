@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los trámites previos
+Artículo 4º—Con el objetivo de solicitar la licencia de construcción o realizar gestiones varias incluyendo solicitud de patentes, permisos temporales o similares ante la Municipalidad de Jiménez se han de llevar a cabo trámites previos con el fin de garantizar la idoneidad del terreno o propiedad para que se encuentre de acorde con el fin solicitado. Entiéndase por estos trámites: Declaración de Bienes Inmuebles, Solicitud Visado para Efectos Catastrales, Solicitud de Visto Bueno de Ubicación o Uso de Suelo y Solicitud para Visado Municipal y Alineamiento Municipal.

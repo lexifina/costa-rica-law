@@ -1,0 +1,5 @@
+Artículo 9º—Para la solicitud del Visto Bueno de Ubicación y Disponibilidad de Agua Potable, se han de cumplir con los siguientes requisitos:
+a) Formulario de Solicitud de Visto Bueno de Ubicación y Disponibilidad de Agua Potable donde se indique claramente el fin que se le va a destinar al terreno; el cual para sus efectos está disponible tanto de manera física en el Departamento de Construcciones, Catastro y Valoración de la Municipalidad de Jiménez como de manera digital, por los medios electrónicos o de divulgación digital que a su bien la Municipalidad de Jiménez disponga, firmado por el propietario registral del inmueble o por autorización por escrito del mismo.
+b) Fotocopia de la cédula del propietario.
+c) Contar con la Declaración de Bienes Inmuebles vigente.
+Todo Visto Bueno de Ubicación o Uso de Suelo y Disponibilidad de Agua Potable otorgado por esta Municipalidad tendrá una vigencia de un año natural a partir de la fecha en la que fue otorgado. Si no se hiciere uso del mismo al cabo de ese tiempo deberá solicitarse la revalidación.

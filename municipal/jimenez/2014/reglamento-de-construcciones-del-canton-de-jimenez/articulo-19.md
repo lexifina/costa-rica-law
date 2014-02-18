@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Del Trámite de las Licencias de Construcción
+Artículo 19.—Todo trámite de solicitud de Licencia de Construcción se realizará mediante el Administrador de Proyectos de Construcción (APC) del Colegio Federado de Ingenieros y Arquitectos. Para tal efecto la Alcaldía Municipal nombrará a dos funcionarios municipales como mínimo, los cuales han de estar incorporados como miembros del Colegio Federado de Ingenieros y Arquitectos, los cuales fungirán como administradores del sistema, sin excluir que se puedan agregar eventualmente a más funcionarios que cumplan con los requisitos mínimos.
+Dicho nombramiento se ha de realizar por escrito y comunicarse tanto a los funcionarios municipales como al departamento encargado del Colegio Federado de Ingenieros y Arquitectos con el fin de que se pueda gestionar la información necesaria (clave de usuario y contraseña) para ingresar al APC.
