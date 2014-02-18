@@ -15,3 +15,4 @@ Reforma Integral Código de Conducta del Conglomerado Banco Nacional de Costa Ri
 | --- | --- | --- |
 | 1 | 2012-03-29 | la propia norma |
 | 2 | 2014-02-18 | Reglamento 11889 (2014-02-18) |
+| 3 | 2014-02-18 | Reglamento 11889 (2014-02-18) |
