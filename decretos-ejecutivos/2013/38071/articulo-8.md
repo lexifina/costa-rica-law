@@ -1,0 +1,2 @@
+Artículo 8º—En un plazo de 60 días contados a partir del acuerdo de constitución de la Comisión Interinstitucional, se elaborará el Reglamento de Funcionamiento de la Comisión de Gestión Integral de la Cuenca Río Grande de Tárcoles en el cual se establecerá el quórum mínimo para sesionar y la forma de votación de los acuerdos.
+En todo lo no previsto en dicho reglamento, se tendrá por norma supletoria lo dicho en los artículos 49 y siguientes de la Ley General de la Administración Pública Nº 6227, con relación a los Órganos Colegiados y demás normativa nacional.

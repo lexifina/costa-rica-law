@@ -1,0 +1,1 @@
+Artículo 2º—El objetivo fundamental de la Comisión de Gestión Integral de la Cuenca Río Grande de Tárcoles es coordinar las competencias de los entes y actores que la integran para lograr la rehabilitación y el manejo integral de la cuenca.
