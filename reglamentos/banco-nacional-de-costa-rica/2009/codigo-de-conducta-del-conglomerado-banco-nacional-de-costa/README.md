@@ -17,3 +17,4 @@ Código de Conducta del Conglomerado Banco Nacional de Costa Rica
 | 2 | 2012-03-29 | Reglamento 11637 (2010-07-27) |
 | 3 | 2012-03-29 | Reglamento 11751 (2012-02-14) |
 | 4 | 2014-02-18 | Reglamento 11889 (2014-02-18) |
+| 5 | 2014-02-18 | Reglamento 11889 (2014-02-18) |
