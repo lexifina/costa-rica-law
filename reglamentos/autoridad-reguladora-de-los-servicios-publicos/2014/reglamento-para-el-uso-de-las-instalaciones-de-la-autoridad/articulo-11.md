@@ -1,0 +1,1 @@
+Artículo 11.—Elementos inflamables. Queda prohibida la utilización de fuegos artificiales y de cualesquiera otros elementos inflamables que vayan en detrimento de la salud pública y que pongan en riesgo la seguridad de las personas o de las instalaciones de la Autoridad Reguladora.

@@ -1,0 +1,1 @@
+Artículo 9°—Prohibición de actividades político-electorales en las instalaciones. Se prohíbe el uso de las instalaciones para la realización de actividades de tipo político- electorales, de conformidad con el artículo 146 del Código Electoral.

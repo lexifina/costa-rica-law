@@ -1,0 +1,1 @@
+Artículo 10.—Material de propaganda o publicidad de cualquier tipo. Queda prohibido adherir afiches, carteles, fotografías, o cualquier otro tipo de propaganda o publicidad, en las instalaciones de la Autoridad Reguladora, ya sean en paredes, puertas o vidrios, salvo que haya autorización expresa para ello por la Dirección General de Operaciones.

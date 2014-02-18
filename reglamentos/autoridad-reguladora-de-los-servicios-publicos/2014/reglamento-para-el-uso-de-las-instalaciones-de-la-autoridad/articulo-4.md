@@ -1,0 +1,6 @@
+CAPÍTULO SEGUNDO
+Procedimiento
+Artículo 4°—Tipo de actividad. Las actividades que se podrán realizar en las instalaciones de la Autoridad Reguladora serán de tres tipos:
+a) Actividades internas: cuando se trate de actividades internas donde sólo participen funcionarios, o en caso de capacitaciones para funcionarios impartidas por un tercero, éstos comunicarán el lugar y la fecha de la actividad que se encontrarán realizando mediante correo electrónico dirigido a la jefatura respectiva de la Autoridad Reguladora. Para este tipo de actividad, el funcionario que requiera realizarla deberá reservar la sala que se encuentre disponible en el sistema designado al efecto.
+b) Actividades de las asociaciones de funcionarios de la Autoridad Reguladora: cuando se trate de actividades de Asociación Solidarista de empleados de la Autoridad Reguladora de los Servicios Públicos (ASAR), la Asociación de Funcionarios de la Autoridad Reguladora (AFAR), la Asociación de Ingenieros de la Autoridad Reguladora (ASIAR), así como alguna otra asociación de la Autoridad Reguladora, la autorización deberá otorgarla el Director General de Operaciones.
+c) Actividades externas: cuando se trate de actividades donde participen terceros, que requieran el uso de las instalaciones de la Autoridad Reguladora, la autorización deberá otorgarla el Director General de Operaciones.

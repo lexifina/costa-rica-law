@@ -1,0 +1,1 @@
+Artículo 12.—Instalaciones eléctricas. Por razones de seguridad, queda prohibido hacer instalaciones eléctricas adicionales a las ya existentes en las instalaciones de la Autoridad Reguladora, sin la autorización de la Dirección General de Operaciones.
