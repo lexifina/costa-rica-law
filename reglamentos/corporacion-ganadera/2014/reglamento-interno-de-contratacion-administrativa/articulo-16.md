@@ -1,0 +1,1 @@
+Artículo 16.—Formalización contractual. Únicamente requerirán formalización los contratos de servicios derivados de licitaciones públicas y abreviadas. También los derivados de un procedimiento de contratación directa por excepción.
