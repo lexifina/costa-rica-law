@@ -1,0 +1,1 @@
+Artículo 6º—De la celebración de la Asamblea: La Asamblea se realizará en el lugar y hora indicados en la convocatoria y dará inicio con los representantes acreditados que se hallen presentes, los cuales deberán ser al menos cinco miembros de los sectores indicados en el artículo 3 de este Reglamento.

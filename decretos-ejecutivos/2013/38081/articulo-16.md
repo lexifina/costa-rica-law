@@ -1,0 +1,2 @@
+Artículo 16.—Del asistente del Consejo Regional: El Director del ACOPAC, en su calidad de Secretario Ejecutivo del CORAC nombrará un asistente, cuyo nombramiento será ratificado por el CORAC, para que colabore con las funciones que le corresponden, señaladas en el artículo 15 de este Reglamento.
+El asistente será un funcionario del Área de Conservación Pacífico Central, que no podrá ser miembro del CORAC.

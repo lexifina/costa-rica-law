@@ -1,0 +1,2 @@
+Artículo 13.—Para el cumplimiento de las funciones: El CORAC podrá integrar comisiones de trabajo con funcionarios del ACOPAC, en las cuales siempre tendrá que haber un representante del CORAC, las que estudiarán y rendirán informes sobre los asuntos de su competencia en los plazos estipulados por el CORAC.
+Para su funcionamiento la Dirección del ACOPAC asignará los recursos en función del plan anual y del presupuesto elaborados por el tesorero del CORAC con la asesoría del Director y Comité técnico-científico y aprobado por el CORAC.
