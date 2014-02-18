@@ -1,0 +1,1 @@
+Artículo 2º—Los saldos no utilizados ni comprometidos a esta fecha, y que están asignados a estos decretos ejecutivos, serán trasladados al Fondo Nacional de Emergencias para ser utilizados por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias en otras emergencias vigentes.
