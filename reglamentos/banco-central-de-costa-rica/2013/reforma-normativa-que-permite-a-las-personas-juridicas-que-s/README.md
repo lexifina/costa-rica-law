@@ -15,3 +15,4 @@ Reforma normativa que Permite a las personas jurídicas que se dedican a la inte
 | --- | --- | --- |
 | 1 | 2013-01-31 | la propia norma |
 | 2 | 2013-02-06 | Reglamento 5583 (2013-02-06) |
+| 3 | 2014-02-19 | Reglamento 5637 (2014-02-19) |
