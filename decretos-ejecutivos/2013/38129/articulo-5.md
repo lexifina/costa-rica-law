@@ -1,0 +1,3 @@
+Artículo 5º—Recurso contra el rechazo de incorporación. El rechazo de una solicitud de incorporación al Colegio podrá ser objeto del recurso de revocatoria o reconsideración ante la Junta Directiva, después de tres días hábiles contados a partir de la notificación del acto.
+La resolución denegatoria de la revocatoria por parte de la Junta Directiva, tendrá recurso de apelación ante la Asamblea General, después de tres días hábiles contados a partir de la notificación del acto.
+La apelación será presentada ante la Junta Directiva y la Asamblea General la conocerá en su siguiente sesión ordinaria.

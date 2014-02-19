@@ -1,0 +1,1 @@
+Artículo 30.—Sustitución de integrantes de la Junta Directiva. En caso de renuncia, muerte, enfermedad terminal o cualquier otra causa de pérdida de credencial de un miembro de la Junta Directiva, será sustituido por votación de la Asamblea General, la cual se convoque con ese fin, y por el tiempo que le faltaba al anterior miembro para cumplir su periodo.

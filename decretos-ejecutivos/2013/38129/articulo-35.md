@@ -1,0 +1,1 @@
+Artículo 35.—Poderes de la Fiscalía. La persona que ocupe el cargo de fiscal, ostenta, automáticamente, poder general judicial y extrajudicial, sin limitación de suma, para representar al Colegio en todos los trámites y procedimientos atinentes a su cargo. El Fiscal o la Fiscala, en los asuntos de su cargo, podrá actuar, separada o conjuntamente con el presidente.

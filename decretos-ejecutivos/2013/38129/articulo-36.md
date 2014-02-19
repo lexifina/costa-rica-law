@@ -1,0 +1,1 @@
+Artículo 36.—Sustitución del poder del fiscal. La persona que ocupe el cargo de fiscal, podrá sustituir su poder, reservándose, obligatoriamente, su ejercicio, en un profesional en Derecho en calidad de apoderado especial judicial o extrajudicial. Esa sustitución se hará cada vez para cada caso concreto.

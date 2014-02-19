@@ -1,0 +1,3 @@
+CAPÍTULO V
+Asamblea general
+Artículo 14.—atribuciones reglamentarias de la asamblea general. La Asamblea General queda facultada para aprobar, previa pertinencia del caso, los reglamentos para el funcionamiento de la propia Asamblea, la Fiscalía, el Tribunal de Ética Profesional, el Comité Consultivo, las comisiones que cualquiera de los órganos anteriores acuerden integrar y cualesquiera otros reglamentos que considere pertinentes. Esos reglamentos se ajustarán a lo dispuesto por la Ley de Creación del Colegio y este reglamento. La Junta Directiva aprobará su propio reglamento, previa pertinencia del caso.

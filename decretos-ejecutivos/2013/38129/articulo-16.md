@@ -1,0 +1,1 @@
+Artículo 16.—Organización de las elecciones. Las elecciones pueden celebrarse en una asamblea reunida, o por medio de urnas electorales abiertas durante un periodo de varias horas. En este último caso se podrá habilitar urnas en sitios descentralizados que lo ameriten por la cantidad de votantes previstos.

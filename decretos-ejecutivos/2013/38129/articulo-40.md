@@ -1,0 +1,1 @@
+Artículo 40.—Capacitación en el Debido Proceso. Para integrar el Tribunal de Ética Profesional y ejercer la Fiscalía se requiere comprometerse a recibir capacitación respecto del trámite del debido proceso.

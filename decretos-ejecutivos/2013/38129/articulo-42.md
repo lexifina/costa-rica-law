@@ -1,0 +1,1 @@
+Artículo 42.—Patrimonio del colegio. Además de lo establecido en el artículo 40 de la Ley de Creación, el patrimonio del Colegio estará constituido por las utilidades que perciba por organización de cursos, seminarios, encuentros, congresos y otras actividades de todo tipo.

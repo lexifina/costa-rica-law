@@ -1,0 +1,1 @@
+Artículo 37.—Morosidad. La Fiscalía remitirá a la Junta Directiva, mes a mes, una lista de las personas profesionales morosas según el criterio establecido en el artículo 11 de la Ley de Creación, a fin de que la Junta Directiva aplique la sanción establecida en dicho artículo. La Tesorería deberá colaborar con la Fiscalía en esta tarea.

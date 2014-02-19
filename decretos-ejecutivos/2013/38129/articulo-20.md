@@ -1,0 +1,1 @@
+Artículo 20.—Participación presencial en las asambleas. Solo podrán participar en las asambleas generales o en las elecciones las personas presentes. No se admitirá la representación por poder. Las personas ausentes podrán exteriorizar su opinión por escrito firmado, sin que ello implique el derecho de voto.

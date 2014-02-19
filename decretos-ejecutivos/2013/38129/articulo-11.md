@@ -1,0 +1,1 @@
+Artículo 11.—Participación de estudiantes en sociología. La Junta Directiva, puede proponer a la Asamblea General si lo considera conveniente un reglamento que regule la participación de estudiantes en Sociología en las actividades formales del Colegio, al tenor de lo establecido en el artículo 4 de la Ley de Creación.

@@ -1,0 +1,1 @@
+Artículo 9º—Actividades académicas temporales. Quedan exentos de colegiarse las y los sociólogos que se presenten en el país de manera temporal, para participar en charlas, foros, simposios, seminarios de carácter académico y otros. La Junta Directiva establecerá el plazo que se considera temporal.

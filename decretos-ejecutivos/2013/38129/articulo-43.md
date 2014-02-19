@@ -1,0 +1,1 @@
+Artículo 43.—Supervisión de la Contraloría General de la República. En relación con el patrimonio del Colegio, se dispone que cualquier persona interesada pueda solicitar la intervención de la Contraloría General de la República para supervisar su correcta administración.

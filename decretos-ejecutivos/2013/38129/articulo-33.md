@@ -1,0 +1,1 @@
+Artículo 33.—Derecho al debido proceso. Antes de presentar alguna acusación, la Fiscalía abrirá un expediente administrativo y dará audiencia en un periodo de quince días hábiles a las personas profesionales involucradas, para que presenten sus pruebas y argumentos de descargo.

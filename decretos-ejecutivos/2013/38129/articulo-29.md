@@ -1,0 +1,1 @@
+Artículo 29.—Atribuciones de las Vocalías. Además de lo establecido en el artículo 27 de la Ley de Creación corresponderá a quienes ocupen las Vocalías de la Junta Directiva las funciones que les asignen la Asamblea General o la Junta Directiva.

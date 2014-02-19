@@ -1,0 +1,1 @@
+Artículo 21.—Quórum. Una vez iniciada la Asamblea, esta continuará sesionando mientras cuente con el quórum de veinte participantes señalado en el artículo 14 de la Ley de Creación para la segunda convocatoria. La comprobación del quórum será potestad exclusiva del presidente.

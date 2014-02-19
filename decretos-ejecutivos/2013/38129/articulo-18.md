@@ -1,0 +1,1 @@
+Artículo 18.—Convocatoria de las asambleas. Además de lo señalado en el artículo 16 de la Ley de Creación, la convocatoria de las asambleas ordinarias y extraordinarias se comunicará por medio de las direcciones electrónicas de las personas colegiadas, proporcionadas por estas al tenor del artículo 13 de este reglamento.
