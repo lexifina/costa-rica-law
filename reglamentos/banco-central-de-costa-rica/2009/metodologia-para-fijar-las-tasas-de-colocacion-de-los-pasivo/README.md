@@ -19,3 +19,4 @@ Metodología para fijar las tasas de colocación de los pasivos
 | 4 | 2010-10-20 | Reglamento 5475 (2010-10-20) |
 | 5 | 2012-07-11 | Reglamento 5552 (2012-07-11) |
 | 6 | 2013-08-28 | Reglamento 5611 (2013-08-28) |
+| 7 | 2014-02-19 | Reglamento 5637 (2014-02-19) |
