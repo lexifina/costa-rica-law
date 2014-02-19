@@ -1,0 +1,2 @@
+Artículo 9º—Limpieza. La municipalidad, implementará con su propio personal o mediante contrato con alguna persona física o jurídica, el servicio de limpieza de áreas verdes y vías públicas, alcantarillado pluvial; a su vez coordinará la limpieza de cauces de dominio público.
+Le corresponderá también prevenir y realizar las gestiones necesarias para eliminar los vertederos de residuos en todo el territorio del cantón y el acopio no autorizado de residuos.

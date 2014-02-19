@@ -1,0 +1,3 @@
+Artículo 16.—Residuos voluminosos o no tradicionales: Los generadores de residuos tales como refrigeradores, cocinas, etc., deberán esperar la programación de la municipalidad o del ente encargado de la recolección selectiva para sacarlos al lugar señalado para ese objetivo.
+La responsabilidad por el manejo de los residuos provenientes antes y durante el proceso constructivo o de demolición, corresponde al dueño de la propiedad, el cual deberá garantizar su disposición final en un sitio autorizado por las instituciones públicas respectivas.
+La municipalidad podrá establecer un servicio o un sitio de recolección de escombros, previa solicitud y pago de una tarifa especial creada para tal efecto, o autorizar su recolección por medio de gestores autorizados.

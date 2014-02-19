@@ -1,0 +1,1 @@
+Artículo 19.—Residuos punzo cortantes. Los residuos punzo cortantes pueden ser entregados al sistema de recolección municipal debidamente colocados en recipientes resistentes y herméticos, con su respectivo texto en el cuál se indique de su peligrosidad, así se reducirá al máximo el riesgo para el personal recolector.

@@ -1,0 +1,1 @@
+Artículo 34.—Rellenos sanitarios. En los rellenos sanitarios solo se deberán depositar aquellos residuos que no pueden ser tratados o valorizados. La administración del sitio deberá cumplir en cuanto a su gestión con el Reglamento de Rellenos Sanitarios (Decreto Ejecutivo Nº 27378-S de 9 de octubre de 1998 y sus reformas).
