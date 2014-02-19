@@ -1,0 +1,1 @@
+Artículo 117.—Inicio de mantenimientos o entrada de nuevas instalaciones. La ejecución del mantenimiento y la entrada de nuevas instalaciones a la RTR sólo podrá ser iniciada luego de la autorización del OS/OM y del EOR y deberán sujetarse a los procedimientos particulares definidos en la Regulación Nacional.

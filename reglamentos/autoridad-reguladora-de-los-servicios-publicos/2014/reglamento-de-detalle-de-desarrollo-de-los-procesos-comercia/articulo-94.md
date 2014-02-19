@@ -1,0 +1,2 @@
+Artículo 94.—Suministro de información ante eventos. Cada vez que ocurra un evento que afecte significativamente la operación del SER o que provoque cambios topológicos en la RTR o variaciones de frecuencia o voltajes fuera de los rangos admisibles por la Regulación Regional establecidos en el Libro III del RMER, el OS/OM deberá enviar la información solicitada por el EOR.
+El cumplimiento detallado de los informes y reportes anteriores deberá cumplir con lo establecido en el capítulo 5.5 del Libro III del RMER.

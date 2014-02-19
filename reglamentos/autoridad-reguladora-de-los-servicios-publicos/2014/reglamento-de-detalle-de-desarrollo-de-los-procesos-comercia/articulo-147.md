@@ -1,0 +1,1 @@
+Artículo 147.—Ejecución de garantías. En caso de incumplimiento por parte de un Agente del MEN de alguna de sus obligaciones de pago, el OS/OM procederá a hacer efectivas las garantías constituidas por dicho Agente y las aplicará al pago de las obligaciones correspondientes.

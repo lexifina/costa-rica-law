@@ -1,0 +1,1 @@
+Artículo 114.—Mantenimientos a efectuar diariamente. Los mantenimientos a efectuar diariamente serán aquellos contenidos en el plan semanal de mantenimientos y los que el OS/OM en coordinación con los Transmisores del MER declaren de emergencia para cada día, haciendo constar en el formato SOLMANT establecido por el EOR, dicha condición para la aprobación por parte del EOR.

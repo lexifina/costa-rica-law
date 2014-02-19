@@ -1,0 +1,1 @@
+Artículo 72.—Ampliaciones del sistema de transmisión nacional. El OS/OM deberá informar por escrito a la CRIE de las ampliaciones del sistema de transmisión nacional autorizadas, cuando la ampliación sea en una tensión igual o mayor que 115 KV. Junto con el anuncio de la ampliación deberán enviar la información que necesita el EOR para evaluar si la misma será parte de la RTR.

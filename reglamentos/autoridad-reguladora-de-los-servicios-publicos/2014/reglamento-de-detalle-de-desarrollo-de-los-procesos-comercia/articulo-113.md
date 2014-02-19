@@ -1,0 +1,1 @@
+Artículo 113.—Programación anual y semanal de mantenimiento de instalaciones de la RTR. El OS/OM será el responsable de coordinar con el EOR la programación anual y semanal de mantenimiento de instalaciones de la RTR, tomando en cuenta lo establecido en la Regulación Nacional y Regional.

@@ -1,0 +1,1 @@
+Artículo 39.—Ingreso Autorizado Regional. Los Agentes Transmisores del MER que resulten con instalaciones pertenecientes a la RTR, podrán solicitar cada año a la CRIE el Ingreso Autorizado Regional -IAR-, para el siguiente año, siempre y cuando cumplan con lo establecido en la Regulación Regional y en específico lo establecido en el capítulo 9 del Libro III del RMER.

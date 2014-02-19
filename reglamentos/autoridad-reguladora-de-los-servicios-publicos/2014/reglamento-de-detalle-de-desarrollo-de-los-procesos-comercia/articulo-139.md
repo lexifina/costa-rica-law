@@ -1,0 +1,1 @@
+Artículo 139.—Ventas al MEN. Cuando un Agente del MER o del MEN con Contrato Marco realice ventas a un Agente Generador del MEN retirando del MER, el OS/OM deberá de calcularle al primero un abono producto del precio de venta de energía en el MEN y la energía asignada en el predespacho regional para cada hora del mes en liquidación.

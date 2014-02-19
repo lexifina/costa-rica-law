@@ -1,0 +1,1 @@
+Artículo 82.—Transacciones Regionales en estado operativo normal. Cuando el estado operativo del SEN se encuentre bajo condiciones normales, los Agentes del MER en coordinación con el OS/OM tendrán la obligación de cumplir con las transacciones regionales programadas en los nodos de la RTR.

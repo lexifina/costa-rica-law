@@ -1,0 +1,1 @@
+Artículo 53.—Prioridad de los Contratos Firmes Regionales. Toda cantidad de energía que sea comprada o vendida mediante una transacción de Contrato Firme Regional, no podrá ser comprometida en un contrato del mercado eléctrico nacional.

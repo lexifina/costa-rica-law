@@ -1,0 +1,1 @@
+Artículo 48.—Requisitos para ejecutar un Contrato Firme Regional. Todo Agente del MER que requiera comprar o vender energía mediante un Contrato Firme regional, deberá cumplir con lo establecido en el numeral 1.3.4 del Libro II del RMER y lo establecido en la presente normativa.

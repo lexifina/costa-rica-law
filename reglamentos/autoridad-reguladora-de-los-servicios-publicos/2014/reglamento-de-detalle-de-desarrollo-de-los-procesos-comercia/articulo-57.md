@@ -1,0 +1,1 @@
+Artículo 57.—Derechos Financieros de Transmisión. Los DT Financieros Punto a Punto asociados a un Contrato no Firme regional, no constituirá en ningún momento capacidad firme ubicada en el territorio nacional.

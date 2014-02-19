@@ -1,0 +1,1 @@
+Artículo 130.—Cumplimiento de normas de los equipamientos existentes y a instalarse en la RTR. Todos los equipamientos existentes y a instalarse en la RTR, deberán cumplir con las normas establecidas en la Regulación Nacional y las establecidas por la Regulación Regional en el capítulo 16.1 del Libro III del RMER.

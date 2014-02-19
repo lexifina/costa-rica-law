@@ -1,0 +1,1 @@
+Artículo 4º—Requisitos para el desarrollo de Plantas Regionales. Los Agentes del MER deberán cumplir con todos los requisitos establecidos en la Regulación Nacional para desarrollar Plantas de Generación Eléctrica Regional.

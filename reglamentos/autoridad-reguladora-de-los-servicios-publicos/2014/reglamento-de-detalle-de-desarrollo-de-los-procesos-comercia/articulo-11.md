@@ -1,0 +1,1 @@
+Artículo 11.—Actividad de comercialización. La actividad de comercialización de potencia y energía para el MER, la podrán realizar los Agentes del MER y los Agentes del MEN con Contrato Marco, en donde deberán cumplir con los requerimientos de la normativa regional para hacer transacciones en el MER.

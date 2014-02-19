@@ -1,0 +1,1 @@
+Artículo 3º—Desarrollo de Plantas Regionales de Agentes del MER. Los Agentes del MER podrán desarrollar Plantas de Generación Eléctrica Regional, las cuales podrán ser destinadas total o parcialmente a ventas al Mercado Eléctrico Regional.

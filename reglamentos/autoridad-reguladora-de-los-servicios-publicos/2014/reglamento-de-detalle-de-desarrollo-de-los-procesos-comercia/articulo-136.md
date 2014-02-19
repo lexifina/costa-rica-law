@@ -1,0 +1,1 @@
+Artículo 136.—Emisión de los documentos de cobro y pago. La emisión de los documentos de cobro y pago, así como la ejecución de los pagos ante el MER, se realizarán de acuerdo con lo establecido en el Reglamento de Armonización Regulatoria entre el Mercado Eléctrico Nacional y el Mercado Eléctrico de América Central emitido por esta Autoridad.

@@ -1,0 +1,1 @@
+Artículo 35.—Pruebas establecidas en la Regulación Nacional y Regional. El Agente del MER y del MEN propietario de los equipos de medición realizará las pruebas establecidas en la Regulación Regional y Nacional por lo menos una (1) vez en cada período sucesivo de doce (12) meses a partir de la fecha de registro del sistema de medición en el SIMECR ante el EOR.

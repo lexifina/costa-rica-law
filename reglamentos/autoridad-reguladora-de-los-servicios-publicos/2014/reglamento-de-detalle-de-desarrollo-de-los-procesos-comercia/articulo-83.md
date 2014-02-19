@@ -1,0 +1,1 @@
+Artículo 83.—Operación y supervisión de las instalaciones de la RTR. La coordinación de las funciones de operación y supervisión de las instalaciones de la RTR entre los Agentes del MER y el EOR se realizará a través del OS/OM.

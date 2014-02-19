@@ -1,0 +1,1 @@
+Artículo 126.—Ajustes sobre observaciones del EOR. El OS/OM considerará diariamente los ajustes que sean necesarios para corregir las observaciones indicadas por el EOR, como resultado de la evaluación del desempeño de la operación del SER comunicada por el EOR.

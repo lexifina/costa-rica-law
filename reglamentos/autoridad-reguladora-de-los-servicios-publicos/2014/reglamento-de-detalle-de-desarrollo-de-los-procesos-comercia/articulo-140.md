@@ -1,0 +1,1 @@
+Artículo 140.—Compras del MEN. Cuando un Agente Generador del MER o del MEN con Contrato Marco realice compras para que otro Agente retire del MER, el OS/OM deberá de calcularle al primero un cargo producto del precio de compra de la energía en el MEN y la energía asignada en el predespacho regional para cada hora del mes en liquidación.

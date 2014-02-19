@@ -1,0 +1,2 @@
+Artículo 120.—Operación el sistema nacional interconectado. El OS/OM, en coordinación con los Agentes del MER o del MEN, será el responsable de operar el sistema nacional interconectado, garantizando el cumplimiento de los criterios técnicos establecidos en las normativas técnicas nacionales y en concordancia con los CCSD regionales, establecidos en el capítulo 5.3 y 16 del Libro III del RMER.
+Independientemente de la categorización de los CCSD, los mismos deben cumplirse simultáneamente para asegurar que la operación del SER sea la adecuada.

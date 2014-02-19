@@ -1,0 +1,1 @@
+Artículo 34.—Acceso a los equipos de medición. El Agente del MER y del MEN garantizará el acceso al OS/OM a los sistemas de medición de su propiedad, para efectos de pruebas, inspecciones y, calibraciones requeridas por el OS/OM y el EOR.

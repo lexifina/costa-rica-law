@@ -1,0 +1,14 @@
+Artículo 150.—Elaboración de Procedimientos, Normas y Metodologías para la regulación del MEN. El OS/OM deberá elaborar los procedimientos, normas y metodologías para regular el Mercado Eléctrico Nacional que solicite la ARESEP y presentarlos para la aprobación por parte de este Ente Regulador. El OS/OM deberá remitir, en un plazo máximo de 12 meses después de publicado el presente Reglamento, las propuestas a los siguientes temas:
+- Coordinación del racionamiento de la energía.
+- Criterios de seguridad operativa para la planificación, diseño y operación del Sistema Eléctrico Nacional.
+- Autorización de la operación de plantas generadoras que se conecten al Sistema Eléctrico Nacional.
+- Habilitación de los enlaces de telecontrol con el SCADA/EMS.
+- Requisitos para la conexión y operación de plantas eólicas en el Sistema Eléctrico Nacional.
+- Requisitos mínimos de protecciones eléctricas de plantas generadoras que se conectan al SEN.
+- Procedimiento para el trámite de indisponibilidades mayores del SEN.
+- Procedimiento para el reporte de eventos del Sistema Eléctrico Nacional al Ente Operador Regional (EOR).
+- Norma para sistemas de medición comercial.
+- Procedimiento de despacho y operación del SEN.
+- Requisitos de información técnica a entregar por parte de los Agentes del MER y del MEN.
+- Procedimiento para establecer las conexiones al Sistema Eléctrico Nacional.
+- Procedimiento para el cumplimiento de trámites de conexión de obras al Sistema Eléctrico Nacional.

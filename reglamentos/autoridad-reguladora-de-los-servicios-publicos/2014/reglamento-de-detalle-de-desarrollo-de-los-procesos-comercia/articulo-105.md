@@ -1,0 +1,4 @@
+Artículo 105.—Derechos y condiciones de acceso. Cada Agente del MER o Agente del MEN, con Contrato Marco, que retira del MER tendrá los siguientes derechos y condiciones de acceso:
+a) Igual prioridad de acceso a la RTR cuando exista Capacidad Operativa de Transmisión suficiente para que la demanda pueda ser abastecida en condiciones normales.
+b) La conexión de nuevas demandas no deberá ocasionar que no se cumplan los Criterios de Calidad, Seguridad y Desempeño. Por lo tanto, el EOR podrá limitar el abastecimiento a las nuevas demandas que afecten el cumplimiento de estos criterios.
+c) En caso de que una nueva demanda no pueda ser abastecida por el mercado nacional en forma simultánea con la demanda existente, se seguirán los criterios que establezca la Regulación Nacional sobre la nueva demanda a conectarse.

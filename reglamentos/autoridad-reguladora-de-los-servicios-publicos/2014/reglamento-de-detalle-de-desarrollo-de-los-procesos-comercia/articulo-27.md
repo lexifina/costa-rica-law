@@ -1,0 +1,1 @@
+Artículo 27.—Administración de datos. El OS/OM es el responsable de la administración de los datos provenientes de los equipos de medición, así como también es responsable de los parámetros y configuración de medida de los equipos.

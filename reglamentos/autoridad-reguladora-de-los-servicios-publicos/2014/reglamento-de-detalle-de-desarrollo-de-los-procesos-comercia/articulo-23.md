@@ -1,0 +1,1 @@
+Artículo 23.—Registro de los sistemas de medición. Los Agentes del MER y del MEN propietarios de los sistemas de medición del SIMECR deberán registrar esos sistemas ante el EOR, a través del OS/OM, mediante los procedimientos y requisitos técnicos establecidos en la Regulación Regional y Nacional.

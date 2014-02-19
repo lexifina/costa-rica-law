@@ -1,0 +1,1 @@
+Artículo 22.—Medición comercial en nodos con enlaces. En caso de existir un nodo de la RTR con enlaces a nodos que no pertenecen a ésta y con posibilidad de realizar transacciones de inyecciones y retiros, será el Agente Transmisor del MER, el responsable de la medición comercial de dicho punto.

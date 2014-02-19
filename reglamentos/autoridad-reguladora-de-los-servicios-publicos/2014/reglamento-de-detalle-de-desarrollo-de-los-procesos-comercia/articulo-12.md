@@ -1,0 +1,1 @@
+Artículo 12.—Separación Contable. Todos los agentes que realicen más de una actividad tanto en el MEN, como en el MER o en ambos (generación, transmisión, distribución, comercialización, consumo, u otras no relacionadas con estas actividades), deberán separarlas contablemente, tal y como lo establece la Regulación Nacional y Regional.

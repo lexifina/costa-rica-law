@@ -1,0 +1,1 @@
+Artículo 7º—Agente Generador del MEN. Es la persona natural o jurídica, indistintamente de su naturaleza pública, privada o mixta, titular o poseedora de una central de generación de energía eléctrica, que comercializa total o parcialmente su potencia y producción de energía eléctrica, de conformidad con la legislación nacional.

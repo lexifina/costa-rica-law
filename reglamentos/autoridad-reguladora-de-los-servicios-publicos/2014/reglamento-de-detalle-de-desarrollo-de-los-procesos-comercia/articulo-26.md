@@ -1,0 +1,1 @@
+Artículo 26.—Sobre el adecuado funcionamiento de los sistemas y equipos de medición. El funcionamiento adecuado de los sistemas de medición, estará a cargo del Agente del MER o del MEN, propietario del mismo, en coordinación con el OS/OM, de conformidad con lo establecido en la Regulación Regional y Nacional.

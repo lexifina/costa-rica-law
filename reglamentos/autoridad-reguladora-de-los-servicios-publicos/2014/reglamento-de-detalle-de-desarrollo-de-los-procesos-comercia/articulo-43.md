@@ -1,0 +1,1 @@
+Artículo 43.—Comunicación de ingresos percibidos a la ARESEP. El OS/OM informará los ingresos regionales percibidos por los Agentes Transmisores del MER a la ARESEP a más tardar 15 días posteriores a la recepción del DTER con el mismo nivel de detalle informado en el DTER.

@@ -1,0 +1,1 @@
+Artículo 37.—Recolección alterna de datos de medición. De no ser posible por parte del OS/OM la recolección remota de datos del medidor, el EOR coordinará con el OS/OM la utilización de medios alternos para lograr dicha recolección, para posteriormente realizar la transferencia de los datos de medición a la Base de Datos Regional.

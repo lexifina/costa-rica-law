@@ -1,0 +1,1 @@
+Artículo 118.—Requisitos y procedimientos para nuevas instalaciones. La entrada de nuevas instalaciones a la RTR deberá cumplir previamente todos los requisitos y procedimientos definidos en la Regulación Nacional y lo establecido en el Libro III del RMER.

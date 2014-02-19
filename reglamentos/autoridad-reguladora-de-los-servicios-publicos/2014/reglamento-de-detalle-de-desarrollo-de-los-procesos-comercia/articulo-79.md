@@ -1,0 +1,1 @@
+Artículo 79.—Aprobación de las solicitudes de las ampliaciones de la transmisión. La ARESEP aprobará las solicitudes de ampliaciones de los Agentes del MER y MEN, con base en los resultados de los estudios requeridos por la Regulación Nacional y Regionales aprobados por parte del OS/OM y el EOR.

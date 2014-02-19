@@ -1,0 +1,1 @@
+Artículo 8º—Agente Distribuidor del MEN. Es la persona, natural o jurídica, indistintamente de su naturaleza pública, privada o mixta, titular o poseedora de instalaciones destinadas a distribuir energía eléctrica, de conformidad con la legislación nacional.

@@ -1,0 +1,1 @@
+Artículo 42.—Abonos por Régimen Tarifario de la RTR. El OS/OM será el responsable de trasladar los abonos que se deriven del Régimen Tarifario de la RTR, al Agente Transmisor del MER según el detalle que el EOR establezca en el Documento de Transacciones Económicas Regionales -DTER- y la presente normativa.

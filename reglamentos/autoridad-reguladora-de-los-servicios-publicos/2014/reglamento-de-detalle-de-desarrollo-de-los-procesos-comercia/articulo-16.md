@@ -1,0 +1,1 @@
+Artículo 16.—Sobre Recolección de Pagos. EL OS/OM deberá establecer los mecanismos de recolección de las obligaciones de pago ante el MER, con el fin de que éste cumpla con el traslado de los pagos al EOR de conformidad con lo establecido en la Regulación Regional.

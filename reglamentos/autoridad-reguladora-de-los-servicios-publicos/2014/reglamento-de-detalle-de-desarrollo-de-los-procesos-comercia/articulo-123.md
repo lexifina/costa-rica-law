@@ -1,0 +1,3 @@
+Artículo 123.—Consideraciones para armonización. Con el objeto de armonizar lo establecido en la Regulación Nacional con la Regulación Regional, en lo referente a los servicios auxiliares regionales, se deberá considerar lo siguiente:
+a) Reserva para Regulación Primaria de Frecuencia: Valor de reserva rodante de potencia activa de unidades de generación previsto para responder automáticamente a cambios de frecuencia.
+b) Reserva para Regulación Secundaria de Frecuencia: Valor de reserva rodante de potencia activa de unidades de generación requerida para recuperar la reserva para regulación primaria de frecuencia y mantener la frecuencia y los intercambios por los enlaces entre áreas de control.

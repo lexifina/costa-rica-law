@@ -1,0 +1,1 @@
+Artículo 110.—Coordinación entre OS/OM, EOR y Agentes Transmisores. El OS/OM coordinará con el EOR y de ser necesario, con los Agentes Transmisores del MER, para tener en cuenta las restricciones del sistema costarricense. El plan de mantenimiento anual resultante será de cumplimiento obligatorio para el OS/OM y los Agentes Transmisores del MER.

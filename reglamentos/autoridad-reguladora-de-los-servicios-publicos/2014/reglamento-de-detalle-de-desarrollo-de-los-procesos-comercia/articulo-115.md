@@ -1,0 +1,1 @@
+Artículo 115.—Aprobación verbal de un mantenimiento. En caso de un mantenimiento de emergencia, los trámites de solicitud y autorización podrán ser realizados verbalmente entre los operadores de los centros de control del OS/OM y del EOR, quienes dentro de la hora siguiente, oficializarán el mantenimiento a través del formulario SOLMANT.

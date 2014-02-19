@@ -1,0 +1,1 @@
+Artículo 96.—Solicitud de información a los Agentes del MER y del MEN. El OS/OM es el responsable de solicitar a los Agentes del MER y MEN y validar toda la información necesaria para mantener actualizada la Base de Datos Regional.

@@ -1,0 +1,1 @@
+Artículo 146.—Tipos de garantías. Los tipos de garantías podrán ser depósitos de dineros en efectivo en calidad de prepago y cartas de crédito confirmadas e irrevocables y emitidas por bancos o instituciones financieras de primera línea según la clasificación nacional que realice una calificadora reconocida internacionalmente.

@@ -1,0 +1,1 @@
+Artículo 69.—Desviaciones Graves. Si del proceso de tipificación de desviaciones, coordinado entre el OS/OM y el EOR, se identifica que existen nodos de la RTR que resultan con desviaciones en tiempo real del tipo Graves, las mismas serán aplicadas por el OS/OM a los Agentes del MER conforme lo establece la Regulación Nacional.

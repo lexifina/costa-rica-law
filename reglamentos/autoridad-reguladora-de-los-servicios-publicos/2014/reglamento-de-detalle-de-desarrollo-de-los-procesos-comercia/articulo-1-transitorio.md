@@ -1,0 +1,4 @@
+Disposiciones Transitorias:
+Transitorio I.—Los artículos 20, 36, 37, 60, 62, 63, 64, 65, 66, 67, 68 y 69 regirán una vez derogado el Procedimiento de Detalle Complementario definido en la resolución CRIE P-017-2012, debiéndose aplicar hasta entonces, en lo que corresponda, lo establecido en el “Reglamento de Armonización Regulatoria entre el Mercado Eléctrico Nacional y el Mercado Eléctrico de América Central”.
+En cumplimiento de lo que ordena el artículo 245 de la Ley General de la Administración Pública, se indica que contra la anterior resolución caben el recurso ordinario de reposición y el recurso extraordinario de revisión; que podrán interponerse ante la Junta Directiva, a la que corresponde resolverlos.
+El recurso de reposición deberá interponerse en el plazo de tres días contados a partir del día siguiente a la notificación; el extraordinario de revisión, dentro de los plazos señalados en el artículo 354 de la citada ley.

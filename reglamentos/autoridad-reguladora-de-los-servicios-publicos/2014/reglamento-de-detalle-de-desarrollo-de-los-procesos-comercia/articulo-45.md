@@ -1,0 +1,1 @@
+Artículo 45.—Vigilancia de la ARESEP para evitar doble remuneración. La ARESEP será responsable de que los Agentes Transmisores del MER que reciben remuneración a nivel nacional y regional por el servicio de transmisión, no reciban doble remuneración por el mismo concepto.

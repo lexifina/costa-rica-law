@@ -1,0 +1,1 @@
+Artículo 151.—Interpretación de esta normativa. La Autoridad Reguladora de los Servicios Públicos constituirá, en el ámbito administrativo, la instancia de interpretación definitiva de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 18.—Sobre los derechos de Transmisión Regional. Los Agentes del MEN excepto los agentes transmisores, podrán mediante la firma de Contratos Marco ser representados a través de un Agente del MER para el uso de los derechos de Transmisión Regional.

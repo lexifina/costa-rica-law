@@ -1,0 +1,2 @@
+Artículo 78.—Criterios Regionales sobre ampliaciones de transmisión en territorio nacional. Toda ampliación de transmisión que se desarrolle en el territorio costarricense, deberá contar con los estudios técnicos necesarios, establecidos en la Regulación Nacional y Regional, que garanticen que no se afecte negativamente la Capacidad Operativa de Transmisión Regional.
+Las solicitudes de estas ampliaciones deberán ser realizadas siguiendo los procedimientos establecidos por la Regulación Nacional. Los estudios requeridos deberán ser revisados y aprobados por el EOR.

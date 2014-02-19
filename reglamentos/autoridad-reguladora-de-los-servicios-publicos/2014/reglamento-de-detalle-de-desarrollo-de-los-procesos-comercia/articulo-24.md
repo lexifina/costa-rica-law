@@ -1,0 +1,1 @@
+Artículo 24.—Incumplimientos en los sistemas de medición. Cuando el OS/OM identifique incumplimientos en el ámbito regional por parte de los Agentes del MER o del MEN, deberá informarlo a la ARESEP y al EOR para la aplicación de las acciones correspondientes que establezca la Regulación Regional.

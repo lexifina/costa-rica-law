@@ -1,0 +1,1 @@
+Artículo 9º—Agente Transmisor del MEN. Es la persona natural o jurídica, indistintamente de su naturaleza pública, privada o mixta, titular o poseedora de instalaciones destinadas a realizar la actividad de transmisión y transformación de electricidad, de conformidad con la legislación nacional.

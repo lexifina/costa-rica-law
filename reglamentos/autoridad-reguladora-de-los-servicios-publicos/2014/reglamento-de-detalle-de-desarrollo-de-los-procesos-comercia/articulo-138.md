@@ -1,0 +1,1 @@
+Artículo 138.—Ventas del MEN. Cuando un Agente Generador del MER o del MEN con Contrato Marco realice ventas para que otro Agente inyecte al MER, el OS/OM deberá de calcularle al primero un abono producto del precio de compra de su energía en el MEN y la energía asignada en el predespacho regional para cada hora del mes en liquidación.
