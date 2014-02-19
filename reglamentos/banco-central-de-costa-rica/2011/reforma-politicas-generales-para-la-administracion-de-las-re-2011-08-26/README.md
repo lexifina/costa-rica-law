@@ -14,3 +14,4 @@ Reforma Políticas Generales para la Administración de las Reservas Monetarias 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-09 | la propia norma |
+| 2 | 2014-02-19 | Reglamento 5637 (2014-02-19) |
