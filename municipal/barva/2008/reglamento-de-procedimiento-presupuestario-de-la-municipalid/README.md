@@ -16,3 +16,4 @@ Reglamento de Procedimiento Presupuestario de la Municipalidad de Barva
 | 1 | 2008-02-13 | la propia norma |
 | 2 | 2010-01-04 | Reglamento municipal 79 (2010-01-04) |
 | 3 | 2010-08-04 | Reglamento municipal 49 (2010-08-04) |
+| 4 | 2014-02-19 | Reglamento municipal 75 (2014-02-19) |
