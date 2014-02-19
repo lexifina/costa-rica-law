@@ -14,3 +14,4 @@ Reforma Metodología para fijar las tasas de colocación de los pasivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-20 | la propia norma |
+| 2 | 2014-02-19 | Reglamento 5637 (2014-02-19) |
