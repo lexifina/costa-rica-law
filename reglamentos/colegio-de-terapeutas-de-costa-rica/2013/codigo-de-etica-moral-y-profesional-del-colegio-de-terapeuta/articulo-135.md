@@ -1,0 +1,1 @@
+Artículo 135.—Derecho a rehusarse a prestar sus servicios por razones de conciencia las personas profesionales tienen derecho a rehusar llevar a cabo aquellas funciones incompatibles con sus principios o con sus convicciones religiosas o de conciencia, siempre que no perjudiquen al sujeto de atención.

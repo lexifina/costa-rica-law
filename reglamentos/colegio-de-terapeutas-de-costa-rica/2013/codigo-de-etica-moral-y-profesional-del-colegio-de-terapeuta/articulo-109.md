@@ -1,0 +1,1 @@
+Artículo 109.—De las tiempos de café y desayuno de los trabajadores funcionarios públicos, los trabajadores del Colegio funcionarios públicos tendrán derecho a 15 minutos de café en la maña y 15 minutos de café en la tarde y su hora de almuerzo será de 12:30 a. m. a 1:30 p. m.

@@ -1,0 +1,1 @@
+Artículo 206.—Es facultad exclusiva del Tribunal de Ética revocar la autorización de regencia cuando a su juicio exista causal para ello. La resolución que deniegue o cancele la regencia será apelable ante la junta directiva del Colegio, dentro de los cinco días hábiles posteriores a su notificación, corriendo los gastos de la convocatoria a cargo del interesado.

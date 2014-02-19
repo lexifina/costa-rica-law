@@ -1,0 +1,1 @@
+Artículo 255.—Las decisiones acerca de las características de las prótesis auditivas que prescriba el Audiólogo, deben basarse en la evaluación y la interacción permanente con el paciente y sus necesidades, tanto de estética y funcionalidad, como tecnológicas y de aplicaciones.

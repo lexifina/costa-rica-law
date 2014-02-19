@@ -1,0 +1,1 @@
+Artículo 204.—El Colegio de Terapeutas, como órgano fiscalizador del ejercicio legal de la profesión y en pro de la seguridad para el usuario de servicios de salud, se reserva el derecho a la inspección de los establecimientos audiológicos, para verificar la correcta regencia y el cumplimiento de los requisitos legales, de equipamiento e infraestructura de los mismos.

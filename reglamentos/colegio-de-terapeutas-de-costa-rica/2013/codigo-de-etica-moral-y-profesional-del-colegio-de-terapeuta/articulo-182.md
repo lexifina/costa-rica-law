@@ -1,0 +1,1 @@
+Artículo 182.—Cuando el Audiólogo prescribe y al mismo tiempo despacha los audífonos, tanto la prescripción como la adaptación, su verificación y su validación, se registrarán en el expediente del paciente.

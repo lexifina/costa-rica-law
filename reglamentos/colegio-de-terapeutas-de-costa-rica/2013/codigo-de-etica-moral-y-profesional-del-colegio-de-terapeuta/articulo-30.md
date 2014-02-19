@@ -1,0 +1,1 @@
+Artículo 30.—Aceptado un usuario, el Terapeuta no puede renunciar al mismo, salvo, por una causa justificada sobreviniente, o que afecte su honor, dignidad o conciencia, o cuando exista incumplimiento de las obligaciones materiales del usuario como tal, o que exista una casusa de fuerza mayor o caso fortuito.

@@ -1,0 +1,1 @@
+Artículo 275.—El Colegio de Terapeutas llevará un Registro de los Formularios y del profesional que adquiere el Formulario en un libro de registro que deberá ser legalizado por el Departamento Legal del Colegio.

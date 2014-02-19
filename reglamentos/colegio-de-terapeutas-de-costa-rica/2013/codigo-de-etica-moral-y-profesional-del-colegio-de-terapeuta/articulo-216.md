@@ -1,0 +1,1 @@
+Artículo 216.—Una vez que la Fiscalía efectúe la inspección y la misma sea aprobada, se informará al Tribunal de Ética para que otorgue el respectivo Certificado de Registro y Autorización de Regencia.

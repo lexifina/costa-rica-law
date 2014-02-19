@@ -1,0 +1,1 @@
+Artículo 198.—El Tribunal de Ética o a futuro, el comité que la Junta Directiva del Colegio de Terapeutas designe, será el órgano fiscalizador de la regencia terapéutica de los establecimientos audiológicos.

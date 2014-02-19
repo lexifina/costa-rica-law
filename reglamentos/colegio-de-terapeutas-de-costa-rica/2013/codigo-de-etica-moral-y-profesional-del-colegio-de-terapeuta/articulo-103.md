@@ -1,0 +1,1 @@
+Artículo 103.—No será motivo de sanción alguna la incapacidad por enfermera pero el trabajador deberá presentar la incapacidad al patrono. No será motivo de sanción alguna la incapacidad por maternidad.

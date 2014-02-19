@@ -1,0 +1,1 @@
+Artículo 165.—El Colegio de Terapeutas de Costa Rica es una Institución Pública no Estatal de Utilidad Pública y su principal función es la supervisión del ejercicio profesional de los Agremiados. Sobre la Acreditación de los profesionales el Colegio de Terapeutas de Costa Rica es el único ente autorizado para acreditar las competencias de sus agremiados Terapeutas.

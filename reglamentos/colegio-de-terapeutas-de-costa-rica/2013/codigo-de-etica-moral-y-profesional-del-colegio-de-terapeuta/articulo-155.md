@@ -1,0 +1,1 @@
+Artículo 155.—En cuanto a la defensa de funcionarios y miembros de Junta Directiva el Colegio podrá por medio del abogado del Departamento Legal llevar casos administrativos y judiciales de funcionarios y miembros de Junta Directiva hasta tercer grado de consanguineidad.

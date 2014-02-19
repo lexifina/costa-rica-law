@@ -1,0 +1,1 @@
+Artículo 99.—De las Certificaciones del Colegio las Certificaciones del Colegio tendrán una valides de un mes y si el agremiado no la retira durante los treinta días de vigencia se destruirá y se tendrá por entregada. Sí la Certificación se solicita para el mismo día tendrá un valor de 15 mil colones y si es para apostillado tendrá un valor de 20 mil colones.

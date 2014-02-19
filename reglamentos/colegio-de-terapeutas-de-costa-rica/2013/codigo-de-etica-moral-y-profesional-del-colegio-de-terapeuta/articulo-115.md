@@ -1,0 +1,1 @@
+Artículo 115.—Excepciones oponibles en el proceso se podrán plantear las excepciones de: Prescripción, falta de competencia, Cosa Juzgada, falta de legitimación. El Tribunal analizara en sentencia la procedencia o improcedencia de cada una y fundamentara en su resolución la decisión apegado al Derecho.

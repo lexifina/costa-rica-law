@@ -1,0 +1,1 @@
+Artículo 13.—El Terapeuta debe procurar que el pago de sus honorarios no sea la causa fundamental o determinante para asumir la atención del usuario ya que debe prevalecer su vocación en su campo profesional.

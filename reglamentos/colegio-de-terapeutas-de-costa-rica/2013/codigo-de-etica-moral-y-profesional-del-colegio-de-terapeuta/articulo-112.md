@@ -1,0 +1,1 @@
+Artículo 112.—Prohibición de asumir un usuario en la práctica privada sin consentimiento previo del profesional que lo atiende. Las personas profesionales en Terapeutas en la práctica independiente, no aceptarán la atención de un usuario que está a cargo de otro colega, sin el previo consentimiento de este, excepto por una causa muy justificada y en caso de urgencia.

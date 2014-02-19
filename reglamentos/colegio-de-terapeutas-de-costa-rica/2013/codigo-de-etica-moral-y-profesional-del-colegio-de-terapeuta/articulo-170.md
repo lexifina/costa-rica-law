@@ -1,0 +1,1 @@
+Artículo 170.—Para los propósitos de esta Reglamentación, las prótesis auditivas o audífonos se definen como cualquier dispositivo electrónico instalado en el oído y diseñado para amplificar y emitir un sonido hacia el oído.

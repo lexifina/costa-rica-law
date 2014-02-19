@@ -1,0 +1,1 @@
+Artículo 274.—El Formulario para la Prescripción Terapéutica Audiológica de Prótesis Auditivas deberá ser adquirido por el Audiólogo en el Colegio de Terapeutas. Es de uso exclusivo del titular, intransferible y la responsabilidad de su utilización recae completamente en el profesional en Audiología que lo solicita.

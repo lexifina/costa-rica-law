@@ -1,0 +1,1 @@
+Artículo 18.—El Terapeuta debe respetar las disposiciones normativas que establecen incompatibilidades y prohibiciones en el ejercicio profesional. Debe abstenerse de desempeñar por sí o por interpuesta persona, cargos u ocupaciones incompatibles con la normativa citada o con su profesión y no debe invadir la competencia de otro profesional y de otra profesión que no sea la suya.

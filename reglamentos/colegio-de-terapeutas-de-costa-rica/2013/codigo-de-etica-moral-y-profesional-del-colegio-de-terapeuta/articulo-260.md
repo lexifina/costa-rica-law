@@ -1,0 +1,1 @@
+Artículo 260.—La meta de la amplificación es el máximo reconocimiento de la palabra tomando en consideración la pérdida auditiva que se aborde, acercando la amplificación al incremento normal de sonoridad y llevando la información del lenguaje a los niveles de mayor confort auditivo del paciente.

@@ -1,0 +1,1 @@
+Artículo 140.—De las Maestrías en salud de los Terapeutas el Colegio reconocerá las Maestrías que estén debidamente reconocidas por el CONESUP para lo cual solicitará una certificación al agremiado del CONESUP.

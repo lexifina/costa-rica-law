@@ -1,0 +1,1 @@
+Artículo 223.—Si se trata de renovación, por un nuevo período de dos años, deberá hacerse mediante presentación de una solicitud, debidamente firmada por el o los regentes del establecimiento y el propietario o su representante legal, junto con los requisitos que se incluyen en este reglamento.

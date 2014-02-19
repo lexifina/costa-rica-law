@@ -1,0 +1,1 @@
+Artículo 160.—De las reuniones de junta directiva, las reuniones de junta directiva serán ordinarias y extra ordinarias. Las reuniones ordinarias serán en la semana primera y tercera de cada mes y las extraordinarias en la semana segunda y cuarta de cada mes.

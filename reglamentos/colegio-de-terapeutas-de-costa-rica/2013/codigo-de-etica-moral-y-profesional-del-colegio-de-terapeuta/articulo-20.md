@@ -1,0 +1,1 @@
+Artículo 20.—El Terapeuta que actúe en política o desempeñe cargos públicos, debe actuar con especial cautela para evitar que cualquier actividad o expresión suya se interprete como tendiente a utilizar su influencia en provecho propio o de terceros, en el ámbito del ejercicio profesional.

@@ -1,0 +1,3 @@
+CAPÍTULO XXVI
+Del establecimiento audiológico
+Artículo 189.—Establecimiento audiológico, clínica audiológica, centro audiológico, centro auditivo, clínica de audición, centro de audición, centro de especialidades audiológicas, centro de especialidades auditivas, clínica de rehabilitación audiológica, centro de rehabilitación audiológica, consultorio de atención audiológica…: Es un establecimiento en donde se proporciona servicios audiológicos profesionales, dependiendo de su área y nivel de atención, en la promoción, educación y/o prevención en el área de la salud auditiva y se brinda atención audiológica preventiva, clínica, diagnóstica, asistencial y/o de rehabilitación.

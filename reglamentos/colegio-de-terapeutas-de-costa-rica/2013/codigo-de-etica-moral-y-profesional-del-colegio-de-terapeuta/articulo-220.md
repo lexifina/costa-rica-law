@@ -1,0 +1,1 @@
+Artículo 220.—Si al vencimiento del plazo de vigencia el interesado no ha ampliado la autorización de la regencia (visado), la misma quedará suspendida automáticamente y se deberá realizar un nuevo trámite de solicitud de registro y autorización de regencia para el establecimiento audiológico.

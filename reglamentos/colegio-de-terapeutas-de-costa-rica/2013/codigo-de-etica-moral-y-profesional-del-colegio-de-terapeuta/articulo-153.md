@@ -1,0 +1,1 @@
+Artículo 153.—De ejercicio ilegal de la profesión una vez analizado el caso de ejercicio ilegal de la profesión si se dan los presupuestos se trasladara el caso al Ministerio Público para que resuelva lo que a derecho corresponda.

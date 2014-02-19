@@ -1,0 +1,3 @@
+CAPÍTULO XXVII
+De la Regencia Audiológica
+Artículo 197.—Todo establecimiento audiológico, ya sea que despache prótesis auditivas o no, conforme con las disposiciones legales, debe ser regentado, durante las horas de funcionamiento, por un profesional en Audiología, que mantenga, de acuerdo con la Ley N° 8989 y su Reglamento, su condición de incorporación y miembro activo del Colegio de Terapeutas y se encuentre al día con sus obligaciones. Se exceptúa de esta disposición los laboratorios de fabricación y reparación de prótesis auditivas que se dediquen exclusivamente a la fabricación y reparación instrumental de las mismas y que no brinden servicios sanitarios asistenciales o de atención profesional al paciente.

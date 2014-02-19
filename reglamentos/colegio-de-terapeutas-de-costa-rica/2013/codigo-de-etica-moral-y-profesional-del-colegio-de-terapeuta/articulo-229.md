@@ -1,0 +1,1 @@
+Artículo 229.—Todos los establecimientos audiológicos, deben estar provistos del equipo necesario para su correcto funcionamiento técnico y profesional (Conforme a la Reglamentación y Normativa del Perfil de Audiología, publicado en el Diario Oficial La Gaceta del 31 de diciembre del 2013).

@@ -1,0 +1,1 @@
+Artículo 224.—Es obligatorio que los dueños de establecimientos audiológicos privados comuniquen con 15 días de antelación al Colegio el cese de la regencia autorizada por el Colegio, cambio de razón social, vacaciones del regente y suplente, traslado o cierre del establecimiento y/o compra-venta del establecimiento.

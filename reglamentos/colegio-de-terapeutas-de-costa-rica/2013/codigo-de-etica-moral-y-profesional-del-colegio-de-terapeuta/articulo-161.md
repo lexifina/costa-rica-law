@@ -1,0 +1,1 @@
+Artículo 161.—De la juramentación de los futuros Colegiados. Serán ordinarias y extraordinarias las ordinarias serán las de calendario anual del Colegio normal y las extraordinarias las que se harán después de una ordinaria. No podrá hacerse una Juramentación extraordinaria sin haber pasado primero una juramentación ordinaria.

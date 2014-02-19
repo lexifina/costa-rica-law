@@ -1,0 +1,1 @@
+Artículo 196.—También se define establecimiento audiológico, al consultorio de atención audiológica dedicado a la docencia. Es el establecimiento audiológico que dedica sus actividades a la enseñanza de la audiología y a proporcionar servicios audiológicos con fines de docencia.

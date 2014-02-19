@@ -1,0 +1,1 @@
+Artículo 6°—Las normas de este Código sólo podrán ser modificadas por acuerdo de Asamblea General del Colegio de Terapeutas, en votación no menor de las tres cuartas partes de sus miembros. Y las modificaciones no tendrán efectos retroactivos en respeto al artículo 34 de la Constitución.

@@ -1,0 +1,1 @@
+Artículo 92.—Deber de denuncia. En el ejercicio de la profesión, las personas profesionales Terapeutas denunciaran los casos de violencia doméstica, explotación, abuso sexual, tráfico de menores y cualquier otra forma de abuso y violación de sus derechos del que tenga conocimiento.

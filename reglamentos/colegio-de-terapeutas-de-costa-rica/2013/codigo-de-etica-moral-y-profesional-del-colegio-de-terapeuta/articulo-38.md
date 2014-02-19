@@ -1,0 +1,1 @@
+Artículo 38.—El Terapeuta debe cumplir puntual y espontáneamente con el pago de las cuotas y cargas que establezca el Colegio, asistir y votar en las asambleas. Además, debe brindar a los órganos del Colegio un informe oportuno sobre su persona o actividad profesional cuando se le solicite. Y deberá cumplir con el Código de ética y los reglamentos y normativa del Colegio.

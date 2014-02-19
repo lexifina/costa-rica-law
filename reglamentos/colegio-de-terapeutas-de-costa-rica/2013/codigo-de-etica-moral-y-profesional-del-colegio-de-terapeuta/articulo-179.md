@@ -1,0 +1,1 @@
+Artículo 179.—El Audiólogo, desde el momento en que ha realizado una prescripción de prótesis auditivas, está obligado a asegurarse, que la adaptación, la verificación y la validación de la misma, sean realizadas por Audiólogos(as) calificados e incorporados en el Colegio de Terapeutas.

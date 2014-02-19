@@ -1,0 +1,1 @@
+Artículo 180.—El Audiólogo debe responsabilizarse plenamente de la prescripción terapéutica de prótesis auditivas que haga y garantizar la información necesaria para el correcto despacho de los audífonos y de la atención audiológica profesional adecuada y legalmente establecida.
