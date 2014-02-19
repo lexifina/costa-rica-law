@@ -14,3 +14,4 @@ Crea Comisión para la Fijación de las Tasas de Interés del Banco Central de C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-23 | la propia norma |
+| 2 | 2014-02-19 | Reglamento 5637 (2014-02-19) |
