@@ -1,0 +1,2 @@
+Artículo 60.—El concesionario deberá solicitar a la Municipalidad que corresponda, o al ICT para el caso del Polo Turístico Golfo Papagayo, y a la CIMAT, la recepción formal de las obras construidas a fin de iniciar la etapa operativa.
+Tanto la CIMAT como la Municipalidad de la jurisdicción respectiva, o el ICT para el caso del Proyecto Polo Turístico Golfo Papagayo, realizarán una visita conjunta al sitio, donde técnicamente corroborarán que las obras se ajusten en un todo al proyecto aprobado. En tal caso, ambas entidades emitirán un oficio de recepción de obras.

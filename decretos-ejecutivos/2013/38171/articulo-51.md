@@ -1,0 +1,9 @@
+CAPÍTULO V
+SECCIÓN I
+Trámite de visado de planos constructivos
+y permiso de construcción
+Artículo 51.—Una vez otorgada e inscrita la concesión, el concesionario contará con un plazo de ciento veinte días naturales para presentar ante la ventanilla única de CIMAT los documentos necesarios para el trámite de visado de planos. Entendido este visado como un visto bueno en los términos establecidos en el Artículo 9 bis de la Ley, por lo que corresponderá a los profesionales liberales encargados del diseño y ejecución del proyecto de marina o atracadero turístico, asumir las responsabilidades civiles y penales derivadas del mismo.
+Para obtener el visado deberá según sea el caso, ampliarse, verificarse, complementarse y ajustarse los estudios realizados en la etapa de viabilidad técnica y que fueron indicados por la CIMAT tanto para la factibilidad técnica como económica y el diseño final.
+Todos los estudios técnicos y diseños aportados por el interesado o sus representantes y en general todo aspecto en relación con el proyecto, deberá regirse por las normas, procedimientos y regulaciones nacionales. Para el estudio, diseño y construcción de obras marítimo portuarias se podrá utilizar supletoriamente estándares técnicos de carácter internacional, que deberá aportar el interesado.
+En el caso que la propuesta del proyecto sea presentada por etapas o fases, se debe aportar un cronograma de ejecución de obras con todas las etapas. En todo caso la etapa mínima para entrar a operar deberá incluir todos los servicios que establece la Ley en su artículo 3°.
+Entiéndase el visado de planos por parte de la CIMAT como un visto bueno al proyecto o las obras por desarrollar bajo los criterios de razonabilidad y proporcionalidad, apegados al bloque de legalidad y los instrumentos de planificación correspondientes.

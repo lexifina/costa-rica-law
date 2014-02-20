@@ -1,0 +1,1 @@
+Artículo 45.—Toda concesión de marina o atracadero, modificaciones, cesión, gravámenes, cancelación o caducidad deberá inscribirse en el Registro Nacional. El costo del respectivo testimonio de protocolización de piezas efectuado ante Notario Público correrá a cargo del concesionario.

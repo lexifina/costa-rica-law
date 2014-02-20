@@ -1,0 +1,1 @@
+Artículo 70.—El MOPT, a través de las Capitanías del Puerto, con el auxilio del Servicio Nacional de Guardacostas y la Fuerza Pública, controlará el fiel cumplimiento de las disposiciones anteriores, sin perjuicio de las competencias de otros organismos encargados de velar por los controles policiales, antidrogas, migratorios y aduaneros.

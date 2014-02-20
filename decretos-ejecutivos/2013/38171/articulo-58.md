@@ -1,0 +1,2 @@
+Artículo 58.—Será obligatorio mantener en el sitio la bitácora de la obra del Colegio Federado de Ingenieros y Arquitectos, bitácora ambiental, lo mismo que el cronograma de trabajo y los planos constructivos aprobados.
+Para el cumplimiento de las labores de fiscalización, control y vigilancia de la etapa constructiva, el interesado deberá presentar a la CIMAT, informes de avance que demuestren el cumplimiento al cronograma de ejecución de obras de acuerdo con la periodicidad y formato que le establezca la CIMAT.

@@ -1,0 +1,1 @@
+Artículo 56.—Una vez visados los planos por parte de la CIMAT en los términos establecidos en el artículo 50 de este Reglamento, la Municipalidad de la jurisdicción respectiva, los revisará y otorgará, en caso de proceder, el permiso de construcción, en un plazo no mayor a ocho días naturales a partir de la entrega de la totalidad de los documentos requeridos.

@@ -1,0 +1,1 @@
+Artículo 41.—En el caso de solicitudes de concesión para atracaderos turísticos sobre lagos, ríos navegables, embalses y canales navegables, la Institución competente deberá cumplir con el procedimiento establecido en el presente capítulo.

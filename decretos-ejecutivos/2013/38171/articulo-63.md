@@ -1,0 +1,1 @@
+Artículo 63.—Los concesionarios tendrán que presentar semestralmente ante la CIMAT un informe operacional que deberá contener toda la información establecida en la Guía Técnica que será publicada en el Diario Oficial La Gaceta, a efectos de cumplir con el inciso a) del artículo 7° de la Ley.

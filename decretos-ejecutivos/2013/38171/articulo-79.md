@@ -1,0 +1,3 @@
+Artículo 79.—Podrán presentarse modificaciones al proyecto aprobado por CIMAT. En caso de cambios mayores se requerirá una reforma a la viabilidad técnica de CIMAT y tramitar ante la Municipalidad o ICT un adendum al contrato. En caso de cambios menores requerirán únicamente la aprobación de la Unidad Técnica.
+Serán catalogados como modificaciones mayores las que impliquen un cambio en la cantidad de metros cuadrados del área solicitada en concesión para la construcción de la marina o atracadero o aquellos cambios mayores al 15% del área de construcción.
+Todos los demás cambios que no alteren o modifiquen los aspectos antes indicados se considerarán modificaciones menores.

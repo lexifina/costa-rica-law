@@ -1,0 +1,2 @@
+Artículo 40.—En el caso de la Municipalidad, contra las resoluciones que rechacen definitivamente la oposición y el otorgamiento de la concesión, respectivamente, cabrán los recursos establecidos en el Código Municipal.
+En el caso del Polo Turístico Golfo Papagayo, cabrá recurso de apelación ante la Junta Directiva del ICT, a la cual le corresponde en definitiva el agotamiento de la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 11.—Aquellas áreas dadas en concesión donde se ubiquen edificios comerciales a los que se refiere el artículo 3°, inciso 2), acápite ñ) de la Ley, podrán someterse a los regímenes de administración que el ordenamiento jurídico autoriza expresamente y en el tanto sean compatibles con la actividad turística.

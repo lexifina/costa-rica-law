@@ -1,0 +1,1 @@
+Artículo 61.—La Municipalidad del sector, en apego al ordenamiento jurídico vigente, deberá otorgar las licencias que se requieran para el buen funcionamiento de los proyectos de marinas y atracaderos turísticos que se concesionen.

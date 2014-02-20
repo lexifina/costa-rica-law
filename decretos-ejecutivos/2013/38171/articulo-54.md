@@ -1,0 +1,1 @@
+Artículo 54.—La Unidad Técnica de la CIMAT podrá solicitar al interesado cualquier aclaración debidamente justificada que considere técnicamente necesarias para el trámite de recomendación técnica correspondiente al visado de los planos constructivos, dentro del plazo de veinte días hábiles a partir de la recepción de todos los documentos indicados.

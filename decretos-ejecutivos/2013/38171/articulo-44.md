@@ -1,0 +1,6 @@
+Artículo 44.—A efectos de prorrogar el plazo de la concesión, deberá el interesado presentar formal solicitud ante la Municipalidad correspondiente o ante el ICT en el caso del Proyecto Polo Turístico Golfo Papagayo, con una anticipación no menor a los seis meses del vencimiento del plazo de concesión. El plazo de concesión podrá ser prorrogado por períodos de diez años cada uno.
+En aquellos casos en que el plazo de la concesión sea menor a treinta y cinco años, el concesionario podrá solicitar en cualquier momento el ajuste del plazo de su concesión, el cual nunca podrá exceder el plazo máximo estipulado en el artículo anterior.
+La prórroga o el ajuste del plazo podrán otorgarse siempre y cuando se cumplan los siguientes requisitos:
+a) El aval técnico extendido por la CIMAT de que el interesado ha cumplido los requisitos legales y técnicos establecidos en este reglamento y el contrato de concesión, tomando en cuenta los parámetros señalados en el artículo anterior.
+b) La certificación, emitida por la SETENA, sobre el cumplimiento de los compromisos ambientales.
+c) Que el interesado se encuentra al día en el cumplimiento de sus obligaciones con la Caja Costarricense de Seguro Social (CCSS), lo cual será verificado por la entidad competente en otorgar la prórroga.

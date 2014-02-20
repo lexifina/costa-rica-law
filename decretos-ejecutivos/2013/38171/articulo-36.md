@@ -1,0 +1,1 @@
+Artículo 36.—En el caso de las marinas turísticas, el edicto incluirá, además, una convocatoria a una audiencia pública con la indicación del lugar, fecha y hora conforme al artículo 9° de la Ley, a fin de presentar los alcances de la propuesta. La audiencia pública debe llevarse a cabo antes de la fecha límite para recibir oposiciones al edicto.

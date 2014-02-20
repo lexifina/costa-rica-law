@@ -1,0 +1,1 @@
+Artículo 75.—Los propietarios de las embarcaciones que utilicen los servicios de una marina o atracadero turístico, estarán obligados a pagar los daños y perjuicios que ocasionen, autorizándose la salida de los mismos hasta que cumplan con tal obligación.

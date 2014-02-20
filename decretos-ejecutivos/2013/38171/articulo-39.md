@@ -1,0 +1,2 @@
+Artículo 39.—La Municipalidad respectiva o el ICT para el caso del Proyecto Polo Turístico Golfo Papagayo, podrá disponer del plazo de veinte días hábiles para solicitar a la CIMAT las aclaraciones y adiciones que estime pertinentes para tramitar y analizar la solicitud de concesión.
+A partir del recibo de las aclaraciones solicitadas a la CIMAT, tendrán un plazo de quince días hábiles para otorgar o denegar, mediante resolución razonada la solicitud de concesión, la cual será debidamente notificada al interesado.
