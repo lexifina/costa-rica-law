@@ -14,3 +14,4 @@ Reforma Reglamento General de Servicios Portuarios del Instituto Costarricense d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-11 | la propia norma |
+| 2 | 2014-02-20 | Reglamento 3877 (2014-02-20) |
