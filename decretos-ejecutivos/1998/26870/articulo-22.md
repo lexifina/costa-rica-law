@@ -1,1 +1,0 @@
-Artículo 22.-En caso de que el regentado no haya cancelado los honorarios correspondientes por regencia forestal al regente, éste último deberá comunicarlo al Colegio para que no le dé trámite a la inscripción de una nueva regencia en la propiedad afectada por el permiso; mientras no haya cancelado el monto adeudado.

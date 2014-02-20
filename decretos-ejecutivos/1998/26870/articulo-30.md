@@ -1,1 +1,0 @@
-Artículo 30.-En caso de que se comprueben anomalías en las funciones del regente, una vez agotado el debido proceso el Colegio procederá a aplicar las sanciones disciplinarias conforme con lo establecido en La Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica Ley N" 7221 Y sus reglamentos.

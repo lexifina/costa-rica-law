@@ -1,3 +1,0 @@
-CAPITULO VIII
-De las certificaciones y guías de transporte
-Artículo 36.-Para efectos de las certificaciones y las guías de transporte que emitan los regentes el Colegio emitirá papel de seguridad. La emisión de éstos deberá contener como mínimo la siguiente información: número de certificado, nombre del propietario del inmueble, ubicación del inmueble (Provincia, Cantón, Distrito, Caserío y otras señas), citas de inscripción y plano catastrado (sí lo posee), producto (rolliza, escuadrada, aserrada), volumen, especies autorizadas, destino y cantidad (número de trozas, y de piezas), fecha, hora, nombre, firma, número de colegiado.

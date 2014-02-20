@@ -1,1 +1,0 @@
-Artículo 16.-EI formato de informes regenciales deberá ser aprobado de común acuerdo entre el Colegio y la A.P.E. y este formato será el documento oficial para la presentación de informes a las dos instituciones.

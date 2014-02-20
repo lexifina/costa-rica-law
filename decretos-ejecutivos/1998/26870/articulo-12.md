@@ -1,1 +1,0 @@
-Artículo 12.-EI Colegio procurará la actualización adecuada de los profesionales que se desempeñen como regentes; para lo cual gestionará los recursos necesarios para cubrir parcial o totalmente los costos de dicha actualización.

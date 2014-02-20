@@ -1,1 +1,0 @@
-Artículo 26.-La falta de pago del porcentaje del monto de los honorarios por regencia forestal al Colegio, faculta a la Fiscalía a suspender la regencia pendiente de pago y no le inscribirá una nueva regencia hasta que no cancele la anterior.

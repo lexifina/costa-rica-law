@@ -1,1 +1,0 @@
-Artículo 21.-En caso de que el regente renuncie a su cargo, deberá comunicarlo por escrito al Colegio, al regentado y a la A.F.E., con 15 días de antelación de la fecha efectiva de la renuncia; salvo indicación en contrario la misma se hará efectiva al día siguiente de que se haya recibido en el Colegio.

@@ -1,1 +1,0 @@
-Artículo 5°-El Regente es el responsable de supervisar, controlar y velar porque las actividades forestales se ejecuten de acuerdo con la Ley Forestal N° 7575, su reglamento y sus reformas, ley del Colegio de Ingenieros Agrónomos, su reglamento, las leyes conexas y cualquier otra norma jurídica que se dicte al respecto.

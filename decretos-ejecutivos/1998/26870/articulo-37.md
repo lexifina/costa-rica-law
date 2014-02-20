@@ -1,1 +1,0 @@
-Artículo 37.-Cada certificado debe ser firmado y sellado por el regente que lo extienda. Con este fin el Colegio establecerá un registro de firmas y sellos de cada regente, el cual deberá tener como mínimo el nombre y número de colegiado.
