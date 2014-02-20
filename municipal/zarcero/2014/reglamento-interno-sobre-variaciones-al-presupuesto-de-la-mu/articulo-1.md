@@ -1,0 +1,31 @@
+MUNICIPALIDAD DE ZARCERO
+El Concejo Municipal en sesión extraordinaria número uno celebrada el quince de enero del 2014, acuerda aprobar el Reglamento Interno sobre Variaciones al Presupuesto.
+MUNICIPALIDAD DE ZARCERO
+REGLAMENTO INTERNO SOBRE VARIACIONES
+AL PRESUPUESTO DE LA MUNICIPALIDAD
+Considerando:
+I.—Que el artículo 4º inciso a) del Código Municipal Ley Nº 7794 establece que la Municipalidad posee la autonomía política, administrativa y financiera que le confiere la Constitución Política. Dentro de sus atribuciones se incluye: a) Dictar los reglamentos autónomos de organización y de servicio, así como cualquier otra disposición que autorice el ordenamiento jurídico.
+II.—Que las Normas Técnicas sobre Presupuesto Público N-1-2012-DC-DFOE, establece en su artículo 2.1.3 inciso II) que corresponde al Jerarca “emitir los lineamientos y las políticas que orienten el establecimiento, mantenimiento, funcionamiento, control, perfeccionamiento y la evaluación del subsistema”.
+III.—Que mediante directriz N° R-DC-064-2013 del 28 de mayo del 2013, establece en su artículo 4.3.13 “Deber del Jerarca institucional de regular aspectos específicos de las modificaciones presupuestarias”.
+IV.—Con fundamento en lo expuesto es necesario reglamentar las variaciones presupuestarias de la institución a fin de establecer los requisitos, procedimientos y condiciones que regirán para dichos ajustes presupuestarios, de conformidad con el modelo de gestión pública que el actual entorno exige. Por lo tanto,
+RESUELVE:
+Emitir el siguiente reglamento:
+REGLAMENTO INTERNO SOBRE VARIACIONES
+AL PRESUPUESTO DE LA MUNICIPALIDAD DE ZARCERO
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Definiciones. Para los efectos de este Reglamento:
+Jerarca: Concejo Municipal de la Municipalidad de Zarcero.
+Autoridad Superior Administrativa: Alcalde o alcaldesa de la Municipalidad de Zarcero.
+Aprobación presupuestaria interna: Proceso por medio del cual el Concejo Municipal, conoce y estudia el contenido del presupuesto formulado o de las variaciones que se le presenten, en función de los objetivos y metas institucionales, así como verifica el cumplimiento de las disposiciones legales y técnicas que le son aplicables. Como resultado de este proceso, el Concejo Municipal, emite mediante un acuerdo, su aprobación o improbación, parcial o total.
+Esta aprobación otorgará validez y eficacia jurídica, permitiendo su ejecución para el período respectivo, únicamente en aquellos casos en que no se requiera de la aprobación presupuestaria externa.
+Aprobación presupuestaria externa: Proceso a cargo de la Contraloría General de la República, por medio del cual conoce, verifica y se pronuncia mediante acto razonado sobre el cumplimiento de las disposiciones legales y técnicas aplicables al presupuesto inicial y sus variaciones, formuladas y aprobadas por los sujetos pasivos para el cumplimiento de sus objetivos y metas, otorgándole validez y eficacia jurídica y permitiendo su ejecución para el período respectivo.
+Bloque de legalidad: Conjunto de normas jurídicas, escritas y no escritas, a cuya observancia se encuentra obligada la Administración Pública, el cual comprende tanto la ley como las normas de rango superior, igual o inferior a ésta, incluidos los principios generales y las reglas de la ciencia o de la técnica.
+Clasificador de ingresos: Instrumento normativo que ordena y agrupa los recursos con que cuenta la entidad, en categorías homogéneas definidas en función de la naturaleza y características de las transacciones que dan origen a cada una de las fuentes de recursos.
+Clasificador por objeto del gasto: Conjunto de cuentas de gastos, ordenadas y agrupadas de acuerdo con la naturaleza del bien o servicio que se esté adquiriendo o la operación financiera que se esté efectuando.
+Nivel de aprobación presupuestaria externa: Nivel de detalle de los ingresos y de los egresos del presupuesto inicial y sus variaciones, sobre el cual se ejerce la aprobación presupuestaria externa por parte de la Contraloría General, el cual es definido por ésta.
+Nivel de aprobación presupuestaria interna: Nivel de detalle de los ingresos y los egresos del presupuesto inicial y sus variaciones sobre el cual se ejerce la aprobación presupuestaria interna por parte del Concejo Municipal.
+Presupuesto: Instrumento que expresa en términos financieros el plan operativo anual institucional, mediante la estimación de los ingresos y egresos necesarios para cumplir con los objetivos y las metas de los programas establecidos.
+Presupuesto extraordinario: Mecanismo que tiene por objeto incorporar al presupuesto los ingresos extraordinarios y los gastos correspondientes, cuyas fuentes son el crédito público y cualquier otra extraordinaria según el artículo 177 de la Constitución Política, los recursos excedentes entre los ingresos presupuestados y los percibidos así como los recursos del superávit. Además, tiene el propósito de registrar las disminuciones de ingresos y el efecto que dichos ajustes tienen en el presupuesto de egresos.
+Modificación presupuestaria: Es toda aquella variación que se realice en los egresos presupuestados y que tenga por objeto disminuir o aumentar los diferentes conceptos de estos o incorporar otros que no habían sido considerados, sin que se altere el monto global del presupuesto aprobado.
+Plan Anual Operativo: Instrumento en el cual se concretan las políticas de la institución, mediante la definición de objetivos, acciones, indicadores y metas que deberán ejecutarse durante el periodo presupuestario.

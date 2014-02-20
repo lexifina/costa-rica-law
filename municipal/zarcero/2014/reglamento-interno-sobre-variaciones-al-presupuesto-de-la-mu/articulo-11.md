@@ -1,0 +1,1 @@
+Artículo 11.—Custodia de la información. Los expedientes que se generen por cada presupuesto extraordinario y modificación presupuestaria serán custodiados por la Unidad Presupuestaria y estarán accesibles tanto a las instancias de control interno del municipio, como a la Contraloría General de la República para sus funciones de fiscalización posterior.
