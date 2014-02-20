@@ -1,0 +1,1 @@
+Artículo 3º—Disposiciones Transitorias

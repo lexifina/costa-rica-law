@@ -1,0 +1,1 @@
+Transitorio Único.—Verificación Técnica. En un plazo de seis meses contado a partir de la entrada en vigencia del presente Decreto Ejecutivo, el Rector de Telecomunicaciones establecerá el procedimiento de verificación técnica del cumplimiento de este Reglamento Técnico, en su artículo 1, puntos del 5 al 10.
