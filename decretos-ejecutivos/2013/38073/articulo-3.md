@@ -1,0 +1,1 @@
+Artículo 3º—Designación. La designación de los y las representantes para integrar la CIIG deberá garantizar la representación de ambos sexos, debiendo designar una persona representante por las unidades administrativas señaladas en el artículo segundo del presente decreto, cuya designación deberá ser ratificada por la persona que funja como Jerarca del MOPT.
