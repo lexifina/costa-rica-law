@@ -1,0 +1,1 @@
+2º—Ámbito de aplicación. Lo dispuesto por el presente Reglamento aplica a todos los receptores fijos, Full-seg, portátiles, móviles o integrados para el estándar “ISDB-Tb” utilizados en Costa Rica y es de cumplimiento obligatorio para todos los importadores, proveedores y demás personas físicas o jurídicas que comercialicen o fabriquen este tipo de receptores.

@@ -1,0 +1,2 @@
+14.—Vigilancia y verificación
+14.1. Le corresponderá al Viceministerio de Telecomunicaciones, la verificación y vigilancia de las especificaciones técnicas básicas de los receptores contenidos en el presente reglamento en el artículo 1, puntos del 5 al 10, de conformidad con sus potestades legales. 14.2. Los incumplimientos al punto 12 de este Reglamento podrán ser denunciados por los consumidores ante la Comisión Nacional del Consumidor, de conformidad con lo dispuesto en el artículo 56 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor.

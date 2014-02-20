@@ -1,0 +1,4 @@
+7º—Especificaciones de la antena para televisión digital terrestre. La antena para recepción de señales de televisión digital terrestre que se conecte al receptor o esté incorporada al mismo debe obligatoriamente atender las siguientes especificaciones:
+7.1 La antena debe permitir la recepción de señales de televisión digital terrestre que estén comprendidas entre los canales de VHF de 07 a 13 y los canales de UHF de 14 a 69, para los receptores del tipo fijo y móvil (full-seg) y los canales comprendidos en la banda de UHF entre los canales 14 a 69 para los receptores del tipo portátil (one-seg);
+7.2 Opcionalmente, la antena puede permitir la recepción de las señales de televisión analógica que estén comprendidas entre los canales del 02 al 13 en la banda de VHF y entre los canales del 14 a 69 en la banda UHF;
+7.3 La polarización de la antena puede ser tanto vertical como horizontal;
