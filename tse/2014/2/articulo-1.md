@@ -1,0 +1,7 @@
+N° 02-2014
+EL TRIBUNAL SUPREMO DE ELECCIONES
+De conformidad con las atribuciones que le confieren los artículos 99, 102 inciso 10) de la Constitución Política, 12 inciso a), 138 y 140 del Código Electoral,
+DECRETA:
+Artículo 1°—Adiciónese los párrafos segundo y tercero al artículo 7 del Reglamento sobre la inscripción para la realización de encuestas y sondeos de opinión de carácter político-electoral, promulgado mediante decreto N° 18-2009 del 15 de octubre de 2009 y publicado en La Gaceta N° 212 del 2 de noviembre del mismo año, que se leerán de la siguiente manera:
+“El mismo día en que se difunda o publique una encuesta o sondeo de opinión de carácter político-electoral, por cualquier medio, la entidad pública o privada responsable del estudio deberá remitir a la Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos la ficha técnica de dicho estudio, la cual incluirá los datos descritos en el párrafo primero, con el fin de que esa información sea dada a conocer en el sitio web del TSE.
+La omisión o los defectos en la información suministrada serán prevenidos por el Registro Electoral al representante legal de la respectiva entidad para que sea remitida o corregida dentro del plazo de cuarenta y ocho horas. En caso de no cumplirse con lo prevenido en el plazo indicado, se suspenderá cautelarmente el asiento de registro de la entidad pública o privada de que se trate. Igual consecuencia tendrá el incumplimiento del deber establecido en el siguiente artículo”.
