@@ -1,1 +1,0 @@
-Artículo 8°—La Oficialía Mayor delegará la administración, el uso, el control y el mantenimiento de los vehículos propiedad de la Presidencia de la República y Ministerio de la Presidencia en las Unidades encargadas de transportes de los diferentes Programas adscritos.

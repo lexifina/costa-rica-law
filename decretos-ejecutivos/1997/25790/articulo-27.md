@@ -1,1 +1,0 @@
-Artículo 27.—Los vehículos propiedad del Ministerio de la Presidencia y de la Presidencia de la República tendrán prioridad de estacionamiento en los parquees de la institución (propios o arrendados) sobre aquellos vehículos propiedad de sus funcionarios y aquellos de los visitantes.

@@ -1,1 +1,0 @@
-Artículo 15.— Se levantará un expediente para cada conductor, en el que se anotará: el nombre y los apellidos, el número, la fotocopia y la fecha de vencimiento de la licencia, así como toda la información referente a los accidentes que tenga con los vehículos de la Presidencia de la República y del Ministerio de la Presidencia.

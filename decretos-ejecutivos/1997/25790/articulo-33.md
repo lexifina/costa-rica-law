@@ -1,1 +1,0 @@
-Artículo 33.— El servicio de transporte utilizando vehículos de la Presidencia de la República y del Ministerio de la Presidencia queda restringido al territorio nacional, salvo cuando exista una situación calificada y se cuente con la autorización de la Oficialía Mayor y la certificación de salida del país.

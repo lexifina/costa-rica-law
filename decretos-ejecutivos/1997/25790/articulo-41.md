@@ -1,1 +1,0 @@
-Artículo 41.—Las infracciones al presente Reglamento de conformidad con su gravedad serán sancionadas según lo dispuesto en el Código de Trabajo, Ley General de la Administración Pública y demás disposiciones vigentes, sin perjuicio de las responsabilidades civiles o penales que deba asumir el infractor.

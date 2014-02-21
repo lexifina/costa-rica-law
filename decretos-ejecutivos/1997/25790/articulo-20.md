@@ -1,1 +1,0 @@
-Artículo 20.—La Unidad encargada de Transportes determinará, de acuerdo con la solicitud presentada y con la disponibilidad de recursos, el tipo de vehículo que mejor se adapte a las condiciones del servicio solicitado.

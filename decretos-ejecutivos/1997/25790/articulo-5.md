@@ -1,1 +1,0 @@
-Artículo 5°—Todos los vehículos de uso administrativo, con excepción de los vehículos definidos en la ley de tránsito deberán estar rotulados con una leyenda que diga Presidencia de la República o Ministerio de la Presidencia, según corresponda, en ambas puertas delanteras y deberán portar la placa de circulación en el lugar definido por la ley.

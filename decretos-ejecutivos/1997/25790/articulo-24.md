@@ -1,1 +1,0 @@
-Artículo 24.— Si la necesidad interna es permanente y si la institución no cuenta con los medios para cubrirla, se podrá recurrir al préstamo institucional de vehículos, siempre y cuando se sigan los procedimientos establecidos al respecto en la ley de tránsito.

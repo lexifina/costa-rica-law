@@ -1,1 +1,0 @@
-Artículo 22.—El uso del servicio se autorizará estrictamente por el período solicitado, salvo casos imprevistos o eventuales, sujetos a comprobación, en los que se deberá tramitar a la mayor brevedad posible una ampliación, con indicación del período adicional y especificando los motivos por los cuales el vehículo no podrá ser devuelto en la fecha programada.
