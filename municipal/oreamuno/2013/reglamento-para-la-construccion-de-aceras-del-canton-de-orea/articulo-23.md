@@ -1,0 +1,1 @@
+Artículo 23.—La Municipalidad cobrará al propietario del terreno del cual se lancen aguas servidas al caño la multa máxima que indiquen las leyes aplicables al caso, en forma mensual salvo que las leyes lo establezcan de otra forma.

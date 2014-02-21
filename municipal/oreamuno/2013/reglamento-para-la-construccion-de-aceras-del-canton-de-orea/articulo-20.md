@@ -1,0 +1,1 @@
+Artículo 20.—Como requisito previo para otorgar visado de plano de catastro, permiso de segregación, permiso de construcción, ampliación o remodelación, deberán estar construidas debidamente la acera y las rampas. Se le impondrá una sanción al funcionario que desobedezca o pase por alto esta disposición.

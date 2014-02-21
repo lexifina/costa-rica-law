@@ -1,0 +1,1 @@
+Artículo 22.—Cuando exista caño y el munícipe interese cubrir la superficie deberá hacerse con cuneta inversa o puente que deje libre un espacio similar o mayor y sólo si es suficiente para los requerimientos del caudal que se estimen de acuerdo al área tributaria.

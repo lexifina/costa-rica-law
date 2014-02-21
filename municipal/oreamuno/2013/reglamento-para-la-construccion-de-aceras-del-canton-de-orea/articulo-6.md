@@ -1,0 +1,1 @@
+Artículo 6°—La Municipalidad de Oreamuno, realizará las obras y servicios correspondientes cuando los propietarios de bienes inmuebles omitan el cumplimiento de los deberes a que hace referencia el artículo 75 del Código Municipal y por lo cual cobrará la tarifa y multa respectiva según el artículo 76 del Código Municipal mencionado en el artículo 1° de este Reglamento.
