@@ -1,0 +1,2 @@
+Artículo: 10.—La Comisión Nacional de Seguridad en Eventos Deportivos, mediante acto motivado, podrá ordenar la clausura de recintos deportivos mientras no se cumplan las condiciones de seguridad exigidas por las instituciones que conforman el Comité asesor técnico en concentraciones masivas creada mediante Decreto ejecutivo número 28643-S-MOPT-SP.
+Dicha medida procederá en todos los casos en que considere que no están dadas las condiciones de seguridad para la realización del evento deportivo.

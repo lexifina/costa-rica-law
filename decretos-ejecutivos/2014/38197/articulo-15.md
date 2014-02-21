@@ -1,0 +1,1 @@
+Artículo: 15.— El SISED, confeccionará anualmente la estadística general de las sanciones en eventos deportivos. El SISED realizará la presentación de dicho informe, en coordinación con la Comisión Nacional de Seguridad en Eventos Deportivos.

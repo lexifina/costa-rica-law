@@ -1,0 +1,1 @@
+Artículo 18.—El órgano director de procedimiento, deberá iniciar el debido proceso conformando el expediente administrativo respectivo, en el que se harán constar las actuaciones, probanzas y defensas aportadas.

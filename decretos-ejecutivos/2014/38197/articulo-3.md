@@ -1,0 +1,3 @@
+Artículo 3°—El presente reglamento tendrá aplicación a nivel nacional, conforme al sistema de educación, prevención y sanción de los hechos de violencia en eventos deportivos oficiales y de competición, que se establece.
+Será aplicable únicamente a personas mayores de edad, en razón o con ocasión de un evento deportivo organizado por federaciones y asociaciones de representación nacional, avalado por el Instituto Costarricense del Deporte y la Recreación.
+Comprenderá las conductas o hechos establecidas en los artículos del 12 al 20 de la Ley para la Prevención y Sanción de la Violencia en Eventos Deportivos 9145. 2

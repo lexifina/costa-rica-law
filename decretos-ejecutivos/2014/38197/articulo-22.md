@@ -1,0 +1,1 @@
+Artículo 22.—En casos calificados, el órgano director impondrá adicionalmente horas de prestación de servicio de utilidad pública que no podrán ser inferiores a cuarenta horas, para las conductas sancionadas en los artículos 14, 15, 16, 17 y 18 de la Ley para la prevención y sanción de la Violencia en eventos Deportivos: N° 9145.

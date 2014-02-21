@@ -1,0 +1,3 @@
+Artículo 20.—Concluida la instrucción, el órgano director de procedimiento resolverá de conformidad, dictado la resolución administrativa la que contendrá los motivos que la fundamentan, indicando cuando así lo amerite, la procedencia de los recursos ordinarios de revocatoria y de apelación. El recurso de revocatoria será interpuesto ante el órgano director de procedimiento y el recurso de apelación ante el Ministro de Seguridad Pública.
+Los recursos ordinarios podrán presentarse conjunta o separadamente; pero deberá hacerse dentro de los tres días hábiles contados a partir del día siguiente a la fecha en que se notifica la resolución respectiva.
+Lo anterior será sin perjuicio de las acciones penales y civiles que se deriven de las conductas sancionadas.

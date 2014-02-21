@@ -1,0 +1,1 @@
+Artículo: 13.—El SISED será para recabar, coordinar y respaldar al Ministerio de Seguridad Pública en la labor de prevención y sanción de la violencia en eventos deportivos. También será el enlace informativo con el instituto Costarricense del Deporte y la Recreación (ICODER)
