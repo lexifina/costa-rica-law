@@ -1,3 +1,9 @@
-Artículo 203.—El Departamento de Inteligencia contará con el Centro de Información y Análisis, el cual se encargará de archivar, custodiar y resguardar los expedientes clasificados de las investigaciones y contará con el registro informático. También administrará la red informática de la Dirección y procurará crear enlaces con otras fuentes de información.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 186 al 187)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 187 al 203)
+Artículo 203—El Departamento de Inteligencia tendrá las siguientes funciones:
+1) Realizar labores de inteligencia de cierta complejidad y análisis, con respecto a personas físicas y a grupos organizados dedicados al tráfico ilícito de drogas, a la legitimación de capitales y/o actividades conexas.
+2) Crear enlaces con otras fuentes de información vinculadas con la materia, con el propósito de mantener actualizadas las bases documentales e informáticas de la Policía de Control de Drogas.
+3) Apoyar las investigaciones de casos relativos a legitimación de capitales, provenientes del tráfico ilícito de drogas.
+4) Suministrar información a las dependencias y cuerpos policiales nacionales e internacionales debidamente autorizados por el (la) Ministro (a) o a solicitud de una autoridad judicial competente.
+5) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 185 al 186)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 186 al 202)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 202 al 203)

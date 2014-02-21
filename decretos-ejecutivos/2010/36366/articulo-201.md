@@ -1,7 +1,7 @@
-Artículo 201.—El Departamento de Operaciones tendrá las siguientes funciones:
-1) Realizar investigaciones, operativos, decomisos y secuestros, además de detenciones de personas vinculadas con el tráfico ilícito de drogas, legitimación de capitales y actividades conexas.
-2) Apoyar a las Delegaciones Regionales con logística, personal y recursos, en investigaciones y operativos de cierta dificultad y complejidad, con la finalidad de detectar, prevenir y reprimir actividades de tráfico ilícito de drogas, legitimación de capitales y actividades conexas.
-3) Realizar investigaciones que involucran actividades de desviación de precursores y químicos esenciales para la preparación o fabricación de drogas ilícitas; así como, operaciones de erradicación de plantaciones de drogas ilícitas.
-4) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 184 al 185)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 185 al 201)
+Artículo 201.—La Policía de Control de Drogas estará compuesta por las siguientes dependencias:
+1) Departamento de Operaciones.
+2) Departamento de Inteligencia.
+3) Delegaciones Regionales.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 183 al 184)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 184 al 200)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 200 al 201)

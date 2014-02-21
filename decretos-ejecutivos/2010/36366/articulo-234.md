@@ -1,10 +1,9 @@
-Artículo 234.—El Departamento de Arsenal Nacional tendrá los siguientes deberes y responsabilidades:
-1) Custodiar, preservar, fiscalizar, dar mantenimiento preventivo y correctivo y trasladar las armas, municiones, cargadores, explosivos, aditamentos y accesorios, así como, equipo policial propiedad del Estado.
-2) Suministrar, mediante orden emitida por el Director (a) General de Armamento, las armas, municiones, aditamentos y accesorios, así como, cargadores, explosivos y equipo policial para el cumplimiento de las funciones de los distintos cuerpos policiales.
-3) Mediante acto razonado, emitir los procedimientos y directrices que serán de acatamiento obligatorio para las armerías comerciales y privadas y para los (las) funcionarios (as) de las distintas unidades policiales, en materia de custodia, guarda, almacenamiento y mantenimiento de armas y explosivos.
-4) Asignar, mediante orden emitida por el (la) Ministro (a) de esta Cartera, las armas, cargadores, municiones, aditamentos y accesorios que asignen, a cada uno de los (las) Ministros (as) de Gobierno, para su protección personal mientras ejerzan sus respectivos cargos, de conformidad con lo dispuesto en la Ley de Armas y Explosivos y su Reglamento.
-5) Mantener actualizados los registros que muestren adecuada y apropiadamente los movimientos de entrega, inventarios, autorizaciones y otros controles que sean necesarios en relación con las armas, municiones, cargadores, aditamentos y accesorios; así como el equipo policial propiedad del Estado.
-6) Custodiar aquel armamento que por su peligrosidad, cantidad, magnitud o por las eventuales consecuencias cualitativas y/o cuantitativas de su manipulación y/o almacenaje, requiere traslado, previa autorización de la Dirección General de Armamento.
-7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 217 al 218)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 218 al 234)
+Artículo 234.—Al Departamento de Registro y Licencias le corresponderá las siguientes funciones:
+1) Inscribir y mantener el registro actualizado de todas las personas físicas y jurídicas dedicadas a prestar el servicio de seguridad privado.
+2) Incluir en este registro a todos los trabajadores de empresas privadas que realicen la función de vigilantes privados u oficiales de seguridad privados.
+3) Gestionar y otorgar las licencias, permisos y prórrogas para la prestación del servicio de vigilancia privada tanto para personas físicas como personas jurídicas.
+4) Aquellas otras propias de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 206 al 207)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 207 al 223)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 223 al 224)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 224 al 234)

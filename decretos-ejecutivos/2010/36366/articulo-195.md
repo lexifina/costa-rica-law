@@ -1,11 +1,12 @@
-Artículo 195.—La Dirección del Servicio de Vigilancia Aérea, está constituida por las siguientes dependencias:
-1) Departamento de Operaciones Aeronáuticas.
-2) Departamento de Mantenimiento Aeronáutico.
-3) Unidades de Seguridad Aeroportuarias, que serán las siguientes:
-a) Unidad de Seguridad Aeropuerto Juan Santamaría.
-b) Unidad de Seguridad Aeropuerto Daniel OduberQuirós.
-c) Unidad de Seguridad Aeropuerto Tobías Bolaños Palma.
-d) Unidad de Seguridad Aeropuerto de Limón.
-(Así reformado el inciso 3) anterior por el artículo 2° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 178 al 179)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 179 al 195)
+CAPÍTULO V
+Dirección del Servicio de Vigilancia Aérea
+Artículo 195.—La Dirección del Servicio de Vigilancia Aérea dependerá del (de la) Ministro (a) y tendrá las siguientes funciones:
+1) Garantizar el orden público, la salvaguarda e integridad del espacio aéreo, el territorio nacional, mar territorial y jurisdiccional y la seguridad de los aeropuertos internacionales, mediante operativos y patrullajes.
+2) Brindar transporte dentro y fuera del país en casos calificados de excepción, a los (las) servidores (as) públicos en el ejercicio de sus funciones y a los (las) habitantes en caso de emergencia.
+3) Promover convenios entre el Ministerio de Seguridad Pública y aquellas instituciones del Estado que puedan brindar alguna contraprestación por los servicios de transporte aéreo.
+4) Coordinar y cooperar con las instituciones vinculadas en la atención de emergencias nacionales, en operativos de búsqueda, detección y rescate de personas, aeronaves y embarcaciones extraviadas, entre otros.
+5) Brindar mantenimiento y reparación a las aeronaves encargadas de la vigilancia y seguridad del espacio aéreo, el territorio nacional, mar territorial y jurisdiccional.
+6) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 177 al 178)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 178 al 194)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 194 al 195)

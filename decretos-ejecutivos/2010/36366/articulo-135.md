@@ -1,3 +1,4 @@
-Artículo 135.—La Dirección General de la Fuerza Pública contará con una Unidad de Proyectos como órgano asesor que tiene como objetivo fundamental elaborar perfiles, estudios de prefactibilidad y factibilidad de proyectos de inversión que permitan obtener y racionalizar los recursos para el desarrollo de las Direcciones Policiales en función del mejoramiento del servicio al (a la) ciudadano (a), así como de proyectos de investigación que faciliten conocer nuevos recursos tecnológicos, humanos, de equipo y demás, para un mayor desempeño policial.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 118 al 119)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 119 al 135)
+Artículo 135.— (Derogado por el artículo 3° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 117 al 118)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 118 al 134)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 134 al 135)

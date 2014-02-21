@@ -1,19 +1,6 @@
-Artículo 124.—Sin perjuicio de lo establecido en otras disposiciones normativas, las funciones policiales ejercidas por los miembros de las fuerzas de policía, legalmente constituidas son: vigilar, mantener, conservar y restablecer el orden público y la seguridad ciudadana, prevenir, las manifestaciones de delincuencia y cooperar para reprimirlas, defender la soberanía nacional, garantizar la seguridad e integridad de las personas y de los bienes, procurar el respeto de los derechos y libertades de los (las) ciudadanos (as), colaborar con el cumplimiento de las normas sobre protección y conservación de la naturaleza, el ambiente y el patrimonio cultural e histórico y vigilar y controlar el uso y manejo de armas y explosivos y la ejecución de las decisiones de los órganos jurisdiccionales, electorales y administrativos.
-También son funciones policiales aquellas actividades preparatorias o conexas necesarias para el cumplimiento de la labor principal y operativa de la función policial.
-De conformidad con lo anterior, se consideran elementos propios de la función policial:
-1) Ejecutar acciones en coordinación con los diferentes sectores del Estado y de la sociedad civil, para la prevención de las manifestaciones de delincuencia.
-2) Captar, recibir y analizar información de interés policial para el mantenimiento de la seguridad y el orden públicos.
-3) La planificación, coordinación, supervisión, ejecución y evaluación de las operaciones estratégicas y tácticas, dirigidas a cumplir con las funciones policiales.
-4) La atención operacional de las emergencias de origen natural o antrópico.
-5) Auxiliar o colaborar con los servicios de atención de emergencias, comunidades, gobiernos locales y las organizaciones de servicio público, en casos de riesgo, catástrofe y/o conmoción pública.
-6) Colaborar en la protección y seguridad de los miembros de los supremos poderes y dignatarios.
-7) La participación en actividades de formación y capacitación, estrictamente técnico policiales, que se impartan a funcionarios policiales para el desempeño profesional.
-8) La actividad de formación y capacitación a los diferentes sectores de la sociedad civil en materia de seguridad ciudadana, que permitan fortalecer la prevención de las manifestaciones de delincuencia.
-9) La acción operativa tendiente a controlar y vigilar el uso y manejo de armas y explosivos.
-10) La acción operativa de inspección, supervisión y control de los servicios de seguridad privada.
-11) La labor de apoyo operativo que permite el adecuado desarrollo de la función policial, tal como: custodia, distribución, transporte y mantenimiento de armas y explosivos, la movilización de los (las) funcionarios (as) y sus suministros policiales.
-12) Las actividades operativas de investigación, inspección y control para el correcto desempeño de las fuerzas de policía.
-13) Las actividades orientadas a la obtención, procesamiento y difusión de la información operacional que permita la toma y adopción de decisiones oportuna, conveniente y fundamentada.
-14) Vigilar y proteger las instalaciones y vías de comunicación de interés estratégico o táctico.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 107 al 108)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 108 al 124)
+Artículo 124.—Para efectos del ingreso al Estatuto Policial, los (las) funcionarios (as) policiales, que en el desarrollo de sus actividades realicen, simultánea y permanentemente, funciones mixtas (policiales-administrativas), serán considerados funcionarios policiales.
+La calificación de la función mixta deberá hacerse luego de la realización de un estudio efectuado por la Dirección de Recursos Humanos, la que tomará en cuenta: la pertenencia del funcionario a uno de los cuerpos policiales adscritos a este Ministerio y haber sido nombrado de conformidad con lo establecido en la Ley General de Policía y sus reformas.
+La Dirección de Recursos Humanos solicitará los informes y demás documentación pertinente, con la finalidad de elaborar un expediente que sustente la resolución final que decida el cumplimiento de las funciones mixtas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 106 al 107)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 107 al 123)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 123 al 124)

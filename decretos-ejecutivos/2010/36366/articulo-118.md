@@ -1,3 +1,4 @@
-Artículo 118.—La prevención del delito se llevará a cabo, mediante la actuación de la Fuerza Pública y el desarrollo de estrategias para la colaboración, capacitación y concientización de los habitantes.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 101 al 102)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 102 al 118)
+Artículo 118.—Se entiende por prevención del delito, el conjunto de estrategias, tácticas y acciones que realiza el Ministerio, con la finalidad de conservar el orden público, la tranquilidad de los habitantes, el libre disfrute de las libertades públicas y de disminuir el riesgo de los habitantes a ser víctimas de alguna conducta delictiva.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 100 al 101)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 101 al 117)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 117 al 118)

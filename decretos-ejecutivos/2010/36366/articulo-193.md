@@ -1,9 +1,11 @@
-Artículo 193.—Al Departamento de Investigación y Desarrollo le corresponderán las siguientes funciones:
-1) Definir metodologías de capacitación policial y comunal, basadas en las demandas de seguridad de las comunidades y remitirlas al Departamento de Prevención Policial Comunitaria para su aplicación.
-2) Diseñar procesos que mejoren la implementación de la Estrategia de Policía Comunitaria y los programas preventivos que desarrollan los policías en las Direcciones Regionales para su aplicación.
-3) Realizar estudios sobre la situación de seguridad integral que tienen las comunidades y sectores poblacionales específicos para adecuar el abordaje preventivo policial.
-4) Llevar el control estadístico de las actividades realizadas por el Departamento de Prevención Policial Comunitaria y las Direcciones Regionales de la Fuerza Pública en relación con los programas preventivos.
-5) Realizar investigaciones sobre las tendencias de los modelos de policía de orientación comunitaria, metodologías de prevención y atención a problemas comunales que inciden en la seguridad.
-6) Elaborar instrumentos de actuación y supervisión dirigidos a los (las) funcionarios (as) policiales relacionados con la Estrategia de Policía Comunitaria y los programas preventivos y remitirlos a la Dirección General de la Fuerza Pública para su aplicación.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 176 al 177)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 177 al 193)
+Artículo 193.—El Departamento de Prevención Policial Comunitaria desarrollará las siguientes funciones:
+1) Participar en operativos de carácter preventivo que desarrolla la Dirección General de la Fuerza Pública.
+2) Capacitar a los (las) funcionarios (as) de policía especializados en los programas de prevención del delito, de la violencia intrafamiliar y el consumo de drogas a nivel nacional en coordinación con la Escuela Nacional de Policía y las Direcciones Regionales.
+3) Instruir a los (las) policías destacados (as) en las delegaciones policiales sobre la Estrategia de Policía Comunitaria en coordinación con la Escuela Nacional de Policía y las Direcciones Regionales.
+4) Brindar seguimiento a las labores realizadas por los (las) funcionarios (as) policiales que implementan los programas de prevención del delito, de la violencia intrafamiliar y el consumo de drogas para valorar el desarrollo de su trabajo y el cumplimiento de metas.
+5) Colaborar con las Direcciones Regionales de la Fuerza Pública en la planificación, ejecución y supervisión de las actividades relacionadas con la Estrategia de Policía Comunitaria.
+6) Recibir, tramitar y dar seguimiento a casos de violencia intrafamiliar en la cual se involucren funcionarios policiales.
+7) Coordinar y supervisar la capacitación de programas relacionados con la prevención y resistencia al consumo y abuso de drogas, tales como el internacionalmente conocido con las siglas D.A.R.E. y otros.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 175 al 176)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 176 al 192)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 192 al 193)

@@ -1,3 +1,5 @@
-Artículo 126.—Las direcciones podrán proponer al (a la) Ministro (a) el nombramiento permanente o temporal de consultores (as), asesores (as) o de instructores (as), para que de manera voluntaria, colaboren con la Fuerza Pública en aquellos aspectos propios de la función policial.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 109 al 110)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 110 al 126)
+Artículo 126.—Sin perjuicio de lo dispuesto en otras regulaciones, serán puestos de confianza, los siguientes: Inspector (a) General, Director (a) General de la Fuerza Pública y Subdirectores (as) Generales de la Fuerza Pública, Directores (as) y Subdirectores (as) de la Policía de Control de Drogas, de la Escuela Nacional de Policía, del Servicio de Seguridad Privados, del Servicio de Vigilancia Aérea, de la Reserva de las Fuerzas de Policía, de la Dirección General de Armamento, del Servicio Nacional de Guardacostas y Directores (as) Regionales de la Fuerza Pública.
+(Así reformado por el artículo 7° del decreto ejecutivo N° 37310 del 6 de agosto de 2012)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 108 al 109)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 109 al 125)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 125 al 126)

@@ -1,12 +1,11 @@
-Artículo 172.—La Unidad Canina, como unidad especializada de la Fuerza Pública, cumplirá las siguientes funciones:
-1) Detectar artefactos explosivos, armas, sustancias prohibidas, rastreo de fugitivos, secuestros y rescate de personas extraviadas, mediante la utilización de canes entrenados.
-2) Colaborar en la detección del tráfico nacional e internacional de drogas y explosivos en aeropuertos, puertos, fronteras y en cualquier otro sitio que se requiera.
-3) Realizar las acciones pertinentes para el adiestramiento eficaz de los canes.
-4) Buscar y rescatar, en caso de calamidad y/o conmoción Pública, a personas y bienes, en coordinación con grupos organizados de ayuda humanitaria.
-5) Colaborar, en forma recíproca, con otros países, en la búsqueda y rescate de personas extraviadas.
-6) Realizar acciones, con base en el principio de reciprocidad, con la finalidad de brindar capacitación a funcionarios y adiestramiento de canes, pertenecientes a cuerpos de policía nacional o internacional.
-7) Fiscalizar y verificar la certificación de los canes y guías de las unidades caninas privadas.
-8) Brindar colaboración al Organismo de Investigación Judicial en la búsqueda de evidencia, relacionada con algún acto delictivo.
-9) Aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 155 al 156)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 156 al 172)
+Artículo 172.—La Unidad de Intervención Policial como unidad especializada de la Fuerza Pública, realizará las siguientes funciones:
+1) Controlar, mantener y restablecer el orden público y la seguridad en concentraciones de habitantes, reuniones en lugares de tránsito, manifestaciones y espectáculos públicos, cuando así sea requerido.
+2) Coadyuvar con las demás unidades de la Fuerza Pública en desalojos administrativos o judiciales, mantenimiento de los límites fronterizos o en desastres naturales o de origen antrópico.
+3) Colaborar con los órganos encargados del control, prevención y erradicación de drogas, así como participar en operaciones calificadas, autorizadas por la Dirección.
+4) Brindar colaboración operativa a los diferentes cuerpos de policía que conforman la Fuerza Pública.
+5) Realizar acciones operativas para proteger la integridad física del (de la) Presidente (a) de la República y sus colaboradores (as) o cualquier otro funcionario diplomático que así lo requiera, nacional o internacional.
+6) Colaborar con la Escuela Nacional de Policía en la capacitación de funcionarios policiales en materia de su competencia.
+7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 154 al 155)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 155 al 171)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 171 al 172)

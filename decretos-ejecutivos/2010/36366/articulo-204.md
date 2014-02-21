@@ -1,3 +1,4 @@
-Artículo 204.—Los documentos, las bases informáticas de datos y demás material informativo, que posee este Ministerio referentes a las investigaciones concluidas y activas, tendrán carácter estrictamente confidencial. El material informativo estará al servicio del personal de la Dirección, las dependencias autorizadas por el (la) Ministro (a) y las autoridades judiciales competentes.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 187 al 188)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 188 al 204)
+Artículo 204.—El Departamento de Inteligencia contará con el Centro de Información y Análisis, el cual se encargará de archivar, custodiar y resguardar los expedientes clasificados de las investigaciones y contará con el registro informático. También administrará la red informática de la Dirección y procurará crear enlaces con otras fuentes de información.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 186 al 187)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 187 al 203)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 203 al 204)

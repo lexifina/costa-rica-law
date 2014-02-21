@@ -1,3 +1,4 @@
-Artículo 127.—Estos (as) consultores (as) o instructores (as) deberán ser de reconocida solvencia moral, no serán remunerados por el servicio que presten ni ostentarán investidura pública alguna. Su elección y desempeño se regirá por las normas establecidas en el Reglamento de Servicio de los cuerpos policiales adscritos al Ministerio de Seguridad Pública.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 110 al 111)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 111 al 127)
+Artículo 127.—Las direcciones podrán proponer al (a la) Ministro (a) el nombramiento permanente o temporal de consultores (as), asesores (as) o de instructores (as), para que de manera voluntaria, colaboren con la Fuerza Pública en aquellos aspectos propios de la función policial.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 109 al 110)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 110 al 126)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 126 al 127)

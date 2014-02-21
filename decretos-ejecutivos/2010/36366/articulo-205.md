@@ -1,3 +1,4 @@
-Artículo 205.—Los cuerpos policiales nacionales e internacionales acreditados podrán efectuar consultas al Centro, referentes a investigaciones concluidas, las cuales se regirán de acuerdo con lo establecido en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas y la Ley General de Policía y sus Reformas.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 188 al 189)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 189 al 205)
+Artículo 205.—Los documentos, las bases informáticas de datos y demás material informativo, que posee este Ministerio referentes a las investigaciones concluidas y activas, tendrán carácter estrictamente confidencial. El material informativo estará al servicio del personal de la Dirección, las dependencias autorizadas por el (la) Ministro (a) y las autoridades judiciales competentes.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 187 al 188)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 188 al 204)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 204 al 205)

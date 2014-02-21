@@ -1,8 +1,8 @@
-Artículo 202.—El Departamento de Inteligencia tendrá las siguientes funciones:
-1) Realizar labores de inteligencia de cierta complejidad y análisis, con respecto a personas físicas y a grupos organizados dedicados al tráfico ilícito de drogas, a la legitimación de capitales y/o actividades conexas.
-2) Crear enlaces con otras fuentes de información vinculadas con la materia, con el propósito de mantener actualizadas las bases documentales e informáticas de la Policía de Control de Drogas.
-3) Apoyar las investigaciones de casos relativos a legitimación de capitales, provenientes del tráfico ilícito de drogas.
-4) Suministrar información a las dependencias y cuerpos policiales nacionales e internacionales debidamente autorizados por el (la) Ministro (a) o a solicitud de una autoridad judicial competente.
-5) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 185 al 186)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 186 al 202)
+Artículo 202.—El Departamento de Operaciones tendrá las siguientes funciones:
+1) Realizar investigaciones, operativos, decomisos y secuestros, además de detenciones de personas vinculadas con el tráfico ilícito de drogas, legitimación de capitales y actividades conexas.
+2) Apoyar a las Delegaciones Regionales con logística, personal y recursos, en investigaciones y operativos de cierta dificultad y complejidad, con la finalidad de detectar, prevenir y reprimir actividades de tráfico ilícito de drogas, legitimación de capitales y actividades conexas.
+3) Realizar investigaciones que involucran actividades de desviación de precursores y químicos esenciales para la preparación o fabricación de drogas ilícitas; así como, operaciones de erradicación de plantaciones de drogas ilícitas.
+4) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 184 al 185)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 185 al 201)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 201 al 202)

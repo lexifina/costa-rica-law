@@ -1,3 +1,4 @@
-Artículo 206.—Las delegaciones regionales tienen la responsabilidad de realizar investigaciones y operativos policiales en el área geográfica de su competencia, con la finalidad de detectar, prevenir, erradicar y reprimir actividades de tráfico ilícito de drogas, legitimación de capitales, desvío de precursores y químicos y otras actividades conexas.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 189 al 190)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 190 al 206)
+Artículo 206.—Los cuerpos policiales nacionales e internacionales acreditados podrán efectuar consultas al Centro, referentes a investigaciones concluidas, las cuales se regirán de acuerdo con lo establecido en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas y la Ley General de Policía y sus Reformas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 188 al 189)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 189 al 205)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 205 al 206)

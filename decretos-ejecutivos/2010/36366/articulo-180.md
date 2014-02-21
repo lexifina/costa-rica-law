@@ -1,17 +1,18 @@
-Artículo 180.—Cada Delegación Policial Cantonal estará subordinada a su respectiva Dirección Regional de la Fuerza Pública y tendrá las siguientes funciones generales:
-1) Velar por el cumplimiento de la Constitución Política, los tratados internacionales y el resto del ordenamiento jurídico.
-2) Desarrollar acciones efectivas de prevención y control de la criminalidad a través de servicios policiales de patrullaje y vigilancia.
-3) Administrar adecuadamente los recursos humanos, materiales, avituallamientos, armas de reglamento, equipo de protección policial, equipo de comunicación y de otros implementos asignados a la Delegación Policial para el servicio de seguridad ciudadana.
-4) Actuar según el principio de cooperación y auxilio recíproco, en procura de la debida coordinación con autoridades policiales y judiciales.
-5) Ejecutar y hacer cumplir lo que resuelvan o dispongan, según su competencia, los Tribunales de Justicia y los organismos electorales, a solicitud de éstos.
-6) Participar en el desarrollo de operaciones o acciones en que intervienen los cuerpos policiales especializados en su área de responsabilidad.
-7) Auxiliar a las comunidades, las municipalidades y organizaciones de servicio público y colaborar con ellas en casos de emergencia nacional o conmoción pública.
-8) Establecer adecuados canales de comunicación y coordinación con las autoridades locales y demás organizaciones de la sociedad civil.
-9) Apoyar a la Dirección de Servicios de Seguridad Privados en la labor de verificación y control de las personas físicas y jurídicas dedicadas a prestar este servicio al amparo de la Ley Nº 8395, denominada Ley de Servicios de Seguridad Privados.
-10) Participar en la formulación, ejecución y evaluación del Plan Operativo Anual de la Región.
-11) Cumplir con las órdenes de operaciones y de servicio emanadas por la Dirección Regional.
-12) Desarrollar proyectos asignados a la Unidad en el Plan Operativo Anual de la Región.
-13) Establecer un enlace permanente y dinámico entre la Unidad de Policía, las Comisiones Cantonales de Seguridad y los Comités de Seguridad Comunitaria.
-14) Representar a la Fuerza Pública en su área de responsabilidad.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 163 al 164)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 164 al 180)
+Artículo 180.—La Unidad Operativa de cada Dirección Regional tendrá las siguientes funciones generales:
+1) Participar en la formulación, ejecución y evaluación del Plan Anual Operativo Regional.
+2) Establecer procedimientos para el planeamiento, preparación, coordinación, conducción y ejecución de las operaciones policiales.
+3) Formular y someter a criterio del (de la) Director (a) Regional, los cursos de acción más adecuados para el desarrollo de las operaciones policiales ordinarias y extraordinarias.
+4) Evaluar trimestralmente la labor desempeñada según lo programado y ejecutado en el Programa de Operación Anual de la Región.
+5) Rendir ordinariamente al (a la) Director (a) Regional, un informe mensual de labores, además de los informes extraordinarios que solicite.
+6) Programar con el (la) Director (a) Regional, las labores ordinarias del servicio y los operativos que requieran participación de la Fuerza Pública a escala interinstitucional.
+7) Establecer un enlace permanente y dinámico entre la Dirección Regional y cada una de las unidades policiales y destacamentos.
+8) Velar por la correcta implementación de las órdenes de operación emitidas por la Dirección de Operaciones.
+9) Participar en el desarrollo de las operaciones o acciones en que intervienen los cuerpos policiales especializados a escala regional.
+10) Asesorar y supervisar en materia de planeamiento operacional, a los (las) encargados (as) de cada una de las unidades y delegaciones policiales.
+11) Evaluar y aprobar los planes y las órdenes de las unidades subordinadas a objeto de lograr sincronización e integridad en las operaciones policiales.
+12) Disponer de información que requieran los cuerpos especializados para el adecuado desarrollo de los operativos realizados en la región.
+13) Establecer y aplicar controles que garanticen el uso adecuado del equipo utilizado en los operativos realizados en la región.
+14) Dictar instrucciones a los (las) efectivos (as) policiales que participan en los operativos programados, sobre la instrucción, los reglamentos y los procedimientos policiales.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 162 al 163)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 163 al 179)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 179 al 180)

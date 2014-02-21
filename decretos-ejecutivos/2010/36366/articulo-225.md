@@ -1,9 +1,11 @@
-Artículo 225.—Al Departamento Legal le corresponderá las siguientes funciones:
-1) Resolver los asuntos legales de la Dirección.
-2) Iniciar, tramitar y concluir los procedimientos administrativos en contra de las empresas de seguridad, sus oficiales y las escuelas de capacitación, por irregularidades en la prestación del servicio.
-3) Atender y resolver las consultas presentadas ante el Departamento Legal, con respecto a la aplicación de la Ley 8395.
-4) Tramitar y contestar los recursos ordinarios de Revocatoria y Apelación, así como los extraordinarios de Amparo que contra la Dirección sean impuestos.
-5) Brindar asesoría interna a cada uno de los Departamentos que conforman la Dirección.
-6) Colaborar en actividades de capacitación en materia legal, tanto al personal de la Dirección de Servicios de Seguridad Privados como a funcionarios (as) de la Fuerza Pública, en la materia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 208 al 209)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 209 al 225)
+Artículo 225.—La Sección de Análisis y Producción de Información tendrá las siguientes funciones:
+1) Producir y suministrar información estratégica que facilite la toma de decisiones y operaciones policiales,
+2) Procesar, verificar y cuantificar la información delincuencial, y los resultados de las acciones policiales fronterizas,
+3) Elaborar análisis estadísticos y establecer las alertas sobre las modalidades delincuenciales a nivel fronterizo,
+4) Analizar factores sociales, económicos, políticos y culturales que puedan influir en la comisión de delitos como: robo de ganado, contrabando de ganado, tala ilegal, caza y pesca ilegal, migración, contrabando de especies de flora y fauna, tráfico de estupefacientes, tráfico y trata de personas,
+5) Realizar los análisis relacionados con la criminalidad, formulando las recomendaciones y estrategias a seguir para el tratamiento de la delincuencia de acuerdo con la evolución de la criminalidad en las franjas fronterizas,
+6) Desarrollar estudios y análisis criminológicos, para identificar los factores que inciden en el surgimiento, incremento o disminución de un determinado delito en las zonas fronterizas y sobre nuevas modalidades delincuenciales transnacionales,
+7) Elaborar mapas georeferenciados de la actividad criminal y puntos de interés, como insumo para la labor de la Policía de Fronteras,
+8) Desarrollar técnicas y metodologías de inteligencia para determinar riesgos desde el punto de vista estratégico que atenten contra la seguridad fronteriza,
+9) Coordinar el intercambio de información con organismos nacionales y extranjeros, para la pronta detección de delitos cometidos por el crimen organizado y de situaciones internas de otros países, que puedan tener efectos directa o indirectamente, en el territorio costarricense.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014)

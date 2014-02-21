@@ -1,7 +1,5 @@
-Artículo 235.—El Departamento de Control de Armas y Explosivos tendrá los siguientes deberes y responsabilidades:
-1) Levantar y mantener actualizados y en forma adecuada y apropiada, los registros de todas las armas propiedad de particulares y tramitar los permisos establecidos en la Ley de Armas y Explosivos y su Reglamento y demás disposiciones vinculantes.
-2) Tramitar y resolver por escrito, los permisos que se soliciten para la inscripción, portación, adquisición, fabricación, importación, exportación, distribución y comercialización de las armas de fuego permitidas, sus municiones, sus partes, repuestos, aditamentos, accesorios; así como de la pólvora destinada a uso industrial agrícola, de minería, pirotécnico, deportivo y el gas para uso personal.
-3) Comprobar, inspeccionar, supervisar y fiscalizar la fabricación, compra, venta, importación, exportación, desalmacenaje, almacenaje, distribución, traslado y decomiso de armas, municiones, cargadores, aditamentos, accesorios, explosivos y afines.
-4) Aquellas otras que se deriven de nuestro ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 218 al 219)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 219 al 235)
+Artículo 235.—El Departamento de Inspección llevará a cabo la verificación y el control para que las personas físicas y jurídicas, dedicadas a prestar el servicio privado de seguridad, cumplan los requisitos establecidos en el ordenamiento, incluyendo especialmente la Ley N° 8395, denominada Ley de Servicios de Seguridad Privados y su reglamento.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 207 al 208)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 208 al 224)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 224 al 225)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 225 al 235)

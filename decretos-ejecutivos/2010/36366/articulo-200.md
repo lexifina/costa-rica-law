@@ -1,6 +1,14 @@
-Artículo 200.—La Policía de Control de Drogas estará compuesta por las siguientes dependencias:
-1) Departamento de Operaciones.
-2) Departamento de Inteligencia.
-3) Delegaciones Regionales.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 183 al 184)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 184 al 200)
+CAPÍTULO VI
+Policía encargada del control de drogas
+no autorizadas y actividades conexas
+Artículo 200.—La Policía Encargada del Control de Drogas no Autorizadas y Actividades Conexas, en adelante Policía de Control de Drogas dependerá del (de la) Ministro (a) y cumplirá las siguientes funciones:
+1) Realizar las actividades de prevención e investigación de lugares, personas y actividades en diversas zonas y centros de todo el país, con el propósito de detectar e impedir acciones tendientes al consumo, tenencia y tráfico ilícito de estupefacientes y sustancias psicotrópicos, que prevé y sanciona la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas.
+2) Realizar operaciones permanentes de control preventivo en fronteras, costas, puertos y aeropuertos, y otros lugares nacionales estratégicos, para impedir el ingreso o salida de drogas ilegales del país y los bienes y/o derechos originados o utilizados en actividades de tráfico de drogas y/o legitimación de capitales y actividades conexas.
+3) Prestar especial atención a la prevención, detección e investigación de todas aquellas acciones tendientes a la utilización de nuestro país, para el desvío de sustancias químicas esenciales y de precursores para la producción de drogas ilícitas, así como aquellas investigaciones policiales contra la legitimación de capitales, bienes y/o derechos, provenientes o utilizados en el tráfico ilícito de drogas, procurando la efectiva actuación policial sustentada en criterios técnicos jurídicos, con la finalidad de recabar la prueba necesaria e identificar a los (las) presuntos (as) responsables.
+4) Mantener canales de comunicación con otros cuerpos policiales adscritos al Ministerio para que, informen a la Policía de Control de Drogas en forma inmediata para lo de su competencia y posible continuación de las investigaciones, cuando tengan conocimiento de información referente a algún hecho u omisión que pudiera eventualmente tipificarse dentro de los delitos previstos en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, o de alguna situación en relación con dicha normativa y lo hayan atendido en condiciones de urgencia o flagrancia.
+5) Ejecutar aquellos actos y diligencias ordenados por el Ministerio Público, para prevenir, detectar, investigar y evitar toda actividad delictiva relacionada con lo dispuesto en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, los artículos de la Ley General de Policía que regulan su competencia, y demás legislación y convenios internacionales concordantes y/o conexos.
+6) Desarrollar procesos una vez al año, de autoevaluación, de control interno y valoración de riesgos, según lo establecido en la Ley General de Control Interno.
+7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 182 al 183)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 183 al 199)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 199 al 200)

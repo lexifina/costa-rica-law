@@ -1,11 +1,10 @@
-CAPÍTULO V
-Dirección del Servicio de Vigilancia Aérea
-Artículo 194.—La Dirección del Servicio de Vigilancia Aérea dependerá del (de la) Ministro (a) y tendrá las siguientes funciones:
-1) Garantizar el orden público, la salvaguarda e integridad del espacio aéreo, el territorio nacional, mar territorial y jurisdiccional y la seguridad de los aeropuertos internacionales, mediante operativos y patrullajes.
-2) Brindar transporte dentro y fuera del país en casos calificados de excepción, a los (las) servidores (as) públicos en el ejercicio de sus funciones y a los (las) habitantes en caso de emergencia.
-3) Promover convenios entre el Ministerio de Seguridad Pública y aquellas instituciones del Estado que puedan brindar alguna contraprestación por los servicios de transporte aéreo.
-4) Coordinar y cooperar con las instituciones vinculadas en la atención de emergencias nacionales, en operativos de búsqueda, detección y rescate de personas, aeronaves y embarcaciones extraviadas, entre otros.
-5) Brindar mantenimiento y reparación a las aeronaves encargadas de la vigilancia y seguridad del espacio aéreo, el territorio nacional, mar territorial y jurisdiccional.
-6) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 177 al 178)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 178 al 194)
+Artículo 194.—Al Departamento de Investigación y Desarrollo le corresponderán las siguientes funciones:
+1) Definir metodologías de capacitación policial y comunal, basadas en las demandas de seguridad de las comunidades y remitirlas al Departamento de Prevención Policial Comunitaria para su aplicación.
+2) Diseñar procesos que mejoren la implementación de la Estrategia de Policía Comunitaria y los programas preventivos que desarrollan los policías en las Direcciones Regionales para su aplicación.
+3) Realizar estudios sobre la situación de seguridad integral que tienen las comunidades y sectores poblacionales específicos para adecuar el abordaje preventivo policial.
+4) Llevar el control estadístico de las actividades realizadas por el Departamento de Prevención Policial Comunitaria y las Direcciones Regionales de la Fuerza Pública en relación con los programas preventivos.
+5) Realizar investigaciones sobre las tendencias de los modelos de policía de orientación comunitaria, metodologías de prevención y atención a problemas comunales que inciden en la seguridad.
+6) Elaborar instrumentos de actuación y supervisión dirigidos a los (las) funcionarios (as) policiales relacionados con la Estrategia de Policía Comunitaria y los programas preventivos y remitirlos a la Dirección General de la Fuerza Pública para su aplicación.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 176 al 177)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 177 al 193)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 193 al 194)

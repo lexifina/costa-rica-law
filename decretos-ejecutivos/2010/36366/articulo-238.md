@@ -1,11 +1,8 @@
-Artículo 238.—Al Museo de Armas le corresponde:
-1) Seleccionar el armamento, equipo policial y materiales explosivos que tengan interés histórico o tecnológico.
-2) Recopilar, ordenar y catalogar información de interés histórico referente a las armas del Estado.
-3) Custodiar y dar mantenimiento a todas las piezas que conformen el Museo.
-4) Solicitar a las instituciones gubernamentales que realizan decomisos, las piezas que puedan ser integradas al Museo de Armas.
-5) Gestionar frente a particulares, instituciones no gubernamentales, organismos internacionales y gobiernos amigos, piezas para ser integradas a la colección del Museo.
-6) Crear la base de datos que permita mantener actualizada la información e inventario de las piezas que integran el Museo.
-7) Establecer programas de difusión y proyección mediante los cuales se instruya al público sobre la reseña histórica y la problemática de la tenencia de armas y explosivos.
-8) Cualquier otra propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 221 al 222)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 222 al 238)
+CAPÍTULO X
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo Capítulo IX al X)
+Reserva de las Fuerzas de Policía
+Artículo 238.—La Dirección de la Reserva de las Fuerzas de Policía dependerá del (de la) Ministro (a). Tendrá competencia en todo el territorio nacional y sus miembros deberán respetar las órdenes, directrices y lineamientos que establezca la Dirección.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 210 al 211)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 211 al 227)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 227 al 228)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 228 al 238)

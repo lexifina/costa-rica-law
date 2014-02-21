@@ -1,5 +1,5 @@
-Artículo 123.—Para efectos del ingreso al Estatuto Policial, los (las) funcionarios (as) policiales, que en el desarrollo de sus actividades realicen, simultánea y permanentemente, funciones mixtas (policiales-administrativas), serán considerados funcionarios policiales.
-La calificación de la función mixta deberá hacerse luego de la realización de un estudio efectuado por la Dirección de Recursos Humanos, la que tomará en cuenta: la pertenencia del funcionario a uno de los cuerpos policiales adscritos a este Ministerio y haber sido nombrado de conformidad con lo establecido en la Ley General de Policía y sus reformas.
-La Dirección de Recursos Humanos solicitará los informes y demás documentación pertinente, con la finalidad de elaborar un expediente que sustente la resolución final que decida el cumplimiento de las funciones mixtas.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 106 al 107)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 107 al 123)
+Artículo 123.—La Escuela Nacional de Policía es la instancia responsable de aprobar o convalidar los cursos obligatorios antes de incorporarse a la función policial y los cursos de especialidad antes de ocupar un puesto de mando o dirección.
+De igual forma, corresponde a este órgano definir si los (las) funcionarios (as) policiales que están en el proceso de capacitación en la Escuela y las personas que han convalidado cursos, tienen la formación adecuada para incorporarse a la función policial.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 105 al 106)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 103 al 122)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 122 al 123)
