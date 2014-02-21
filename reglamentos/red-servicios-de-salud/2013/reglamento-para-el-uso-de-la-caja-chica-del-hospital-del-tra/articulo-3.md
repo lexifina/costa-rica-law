@@ -1,2 +1,1 @@
-3. Concepto de gastos menores, indispensables y urgentes
-Se considerarán gastos menores, indispensables y urgentes aquellos que no excedan el monto máximo fijado de conformidad con lo indicado en este Reglamento, que se requieren para cubrir una necesidad de manera rápida, cuya solución no puede esperar la dilación en tiempo y trámites que requieren otros procedimientos de compra.
+3. Concepto de gastos menores, indispensables y urgentes. Se considerarán gastos menores, indispensables y urgentes aquellos que no excedan el monto máximo fijado de conformidad con lo indicado en este Reglamento, que se requieren para cubrir una necesidad de manera rápida, cuya solución no puede esperar la dilación en tiempo y trámites que requieren otros procedimientos de compra.

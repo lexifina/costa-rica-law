@@ -1,5 +1,4 @@
-10. Funciones básicas
-Para el correcto manejo del Fondo Fijo de Caja Chica, el Departamento Financiero atenderá a las siguientes funciones:
+10. Funciones básicas. Para el correcto manejo del Fondo Fijo de Caja Chica, el Departamento Financiero atenderá a las siguientes funciones:
 a) Verificar que el concepto indicado en los comprobantes y justificantes guarde relación directa con el detalle del Reintegro del Fondo Fijo de Caja Chica.
 b) Mantener un adecuado archivo de los documentos relacionados con la administración del Fondo.
 c) Establecer un expediente en donde se archive el presente reglamento y toda documentación que se refiera al mismo.

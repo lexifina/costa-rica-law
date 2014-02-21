@@ -1,5 +1,4 @@
-6. Solicitud de Adelanto (Vale) de Caja Chica
-Para entregar un adelanto de Caja Chica, se deberá preparar el comprobante interno debidamente diseñado para tales efectos (Vale de Caja Chica), hasta tanto el colaborador que realiza la gestión no presente el comprobante definitivo.
+6. Solicitud de Adelanto (Vale) de Caja Chica. Para entregar un adelanto de Caja Chica, se deberá preparar el comprobante interno debidamente diseñado para tales efectos (Vale de Caja Chica), hasta tanto el colaborador que realiza la gestión no presente el comprobante definitivo.
 El Vale de Caja Chica debe contar con al mínimo la siguiente información: fecha, monto en letras y en números, concepto y firmas de hecho, aprobado y recibido; asimismo, debe ser liquidado con el comprobante definitivo a más tardar dos días hábiles luego de haberse confeccionado, lo cual de no cumplirse genera las sanciones disciplinarias que correspondan al usuario del gasto.
 Queda absolutamente prohibido al encargado del Fondo entregar un nuevo vale de Caja Chica a un colaborador que tenga otro vale pendiente de liquidación.
 Para tramitar toda solicitud de Adelanto de Caja Chica, el usuario del gasto debe presentar el Vale debidamente aprobado por la jefatura de la unidad usuaria del gasto. Es responsabilidad de dicha jefatura verificar el contenido presupuestario antes de aprobar la solicitud.
