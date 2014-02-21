@@ -1,0 +1,3 @@
+IV.—Solicitar a la Junta Directiva de la ARESEP que instruya al Centro de Desarrollo de la Regulación para que proponga los siguientes ajustes al modelo tarifario:
+a. Un procedimiento que permita clasificar nuevos tipos de autobús o ajustar los tipos vigentes, de acuerdo con los cambios tecnológicos que se introducen en las unidades que prestan el servicio y que son autorizados por el Consejo de Transporte Público (CTP).
+b. Un procedimiento para actualizar el valor del autobús anualmente y para que dicho valor se exprese en colones y abandonar la expresión en dólares, lo anterior en concordancia con la valoración que realiza la Dirección General de Tributación del Ministerio de Hacienda.
