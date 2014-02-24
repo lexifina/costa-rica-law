@@ -1,3 +1,1 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 20.—Pagos extraordinarios y cancelaciones anticipadas. El beneficiario podrá realizar pagos extraordinarios al crédito, o cancelar en forma anticipada el préstamo, sin que por ello deba pagar suma adicional alguna, salvo los intereses generados al momento de la cancelación.
+Artículo 20.—Cobro administrativo y judicial. En caso de morosidad, se iniciará el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en el Procedimiento de la Unidad de Cobro.

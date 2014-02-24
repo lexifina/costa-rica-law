@@ -1,1 +1,3 @@
-Artículo 13.—De la formalización del crédito. Una vez revisados y analizados los créditos, podrán ser formalizados en las Oficinas Centrales de la Junta de Pensiones o en sus Oficinas Regionales.
+CAPÍTULO IV
+Garantías
+Artículo 13.—De los pagarés. En los préstamos personales, se procederá además como parte del proceso de formalización de la suscripción de la póliza de saldos deudores o pignoración de la póliza según corresponda, a la firma de un pagaré, el cual representa el carácter de título ejecutivo. Este documento deberá contener las principales características de la operación crediticia que se está gestionando.

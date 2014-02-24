@@ -1,1 +1,3 @@
-Artículo 22.—Vigencia. El presente Reglamento fue aprobado por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, en sesión ordinaria 098-2009 celebrada el 01 de setiembre de 2009. Publicado en el Diario Oficial La Gaceta N° 183 del 21 de setiembre de 2009.
+CAPÍTULO VI
+Disposiciones finales
+Artículo 22.—Pagos extraordinarios y cancelaciones anticipadas. El beneficiario podrá realizar pagos extraordinarios al crédito, o cancelar en forma anticipada el préstamo, sin que por ello deba pagar suma adicional alguna, salvo los intereses generados al momento de la cancelación.

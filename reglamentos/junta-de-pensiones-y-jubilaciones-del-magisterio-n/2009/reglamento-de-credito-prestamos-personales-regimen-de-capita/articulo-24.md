@@ -1,0 +1,1 @@
+Artículo 24.—Vigencia. El presente Reglamento fue aprobado por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, en sesión ordinaria 098-2009 celebrada el 1° de setiembre de 2009. Publicado en el Diario Oficial La Gaceta Nº 183 del 21 de setiembre de 2009.
