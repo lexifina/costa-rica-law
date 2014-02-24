@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Disposiciones transitorias
-Transitorio I.-La Municipalidad buscará el medio idóneo para informar a los patentados sobre la vigencia de la ley N°9047, por medio del cual comunicará el cobro de la patente con base en la actividad comercial principal que actualmente ejerce y el plazo prudencial de 180 días a partir de su vigencia para reclasificar la actividad principal relacionada con la explotación de la patente de licores, concluido este plazo la Municipalidad podrá reclasificar las actividades de oficio; no obstante lo anterior, el pago de la patente procederá a partir del de la vigencia de la Ley.
