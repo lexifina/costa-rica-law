@@ -14,3 +14,4 @@ Reglamento a la Ley de Control de Ganado Bovino, Prevención y Sanción de su ro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-27 | la propia norma |
+| 2 | 2014-02-24 | Decreto Ejecutivo 38430 (2014-02-24) |
