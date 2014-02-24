@@ -21,3 +21,4 @@ Reglamento General para el cobro de cuotas Obrero-Patronales de las Institucione
 | 6 | 2013-03-15 | Reglamento 0 (2013-03-15) |
 | 7 | 2013-09-26 | Reglamento 108 (2013-09-26) |
 | 8 | 2013-12-03 | Reglamento 134 (2013-12-03) |
+| 9 | 2014-02-24 | Reglamento 0 (2014-02-24) |
