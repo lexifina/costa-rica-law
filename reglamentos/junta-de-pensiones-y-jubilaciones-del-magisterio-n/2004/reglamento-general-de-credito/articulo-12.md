@@ -24,6 +24,3 @@ Hasta | ¢2.000.000.00 | 1 fiador
 ¢2.000.001.00 | ¢4.000.000.00 | 2 fiadores
 Los fiadores y codeudores deben ser cotizantes activos en propiedad, jubilados o pensionados por derecho propio del Magisterio Nacional, con ingresos líquidos, superiores a 2 veces el monto de la cuota.
 La Junta de Pensiones se reserva el derecho de solicitar garantías adicionales, en aquellos casos que así lo considere conveniente.
-(Así corrida su numeración mediante sesión N°60 del 31 de mayo del 2006, que lo traspasó del antiguo 10 al 11 actual).
-(Así corrida su numeración mediante sesión N° 56 del 22 de mayo de 2008, que lo traspaso del antiguo artículo 11 al 12 actual)
-(Así reformado mediante sesión ordinaria N° 110-2013 del 1° de octubre del 2013)
