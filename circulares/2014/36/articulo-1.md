@@ -1,0 +1,11 @@
+CIRCULAR Nº 36-2014
+ASUNTO: Reiteración de la circular N° 92-2006, “Sobre la atención al público en el horario comprendido después de las 12:00 horas y de las 4:30 p.m”.
+A LAS SERVIDORAS Y SERVIDORES
+JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 5-14, celebrada el 10 de febrero de 2014, artículo XXV, acordó reiterarles la circular N° 92-2006, “Sobre la atención al público en el horario comprendido después de las 12:00 horas y de las 4:30 p.m”, publicada en el Boletín Judicial N° 129 del 5 de julio de 2006, que indica:
+“El Consejo Superior, en sesión N° 40-06, celebrada el 06 de junio del año en curso, artículo XLIX, dispuso comunicarles que para asegurar una eficiente prestación del servicio en caso de que la afluencia del público o complejidad de sus trámites lo justifique, se recomienda que cada despacho refuerce el personal dedicado a la atención al público hasta una hora antes del cierre de cada audiencia, con el fin de que todas las personas usuarias que hayan ingresado con anterioridad al cierre y se encuentren a la espera de ser atendidas, efectivamente lo sean.
+En el caso de que, pese a que se haya tomado esta medida, personas que ingresaron con anterioridad, permanezcan sin atender al momento del cierre, si es a la hora del almuerzo, deberá el juez coordinador o tramitador, según corresponda, autorizar a un servidor para que continúe brindando el servicio por el tiempo estrictamente necesario, debiendo quien fue asignado, disfrutar de su hora de almuerzo, en cuanto termine la labor.
+Si se tratara del cierre de la segunda audiencia, los jueces del despacho deben garantizar igualmente que se brinde la atención a las personas que esperan recibir el servicio, solicitando la colaboración a alguno de los servidores del despacho a efecto de concluir con la atención de esos usuarios que ingresaron con anterioridad o bien procediendo el juzgador(a) a brindarla, en el cumplimiento de las responsabilidades inherentes a su puesto (Acuerdo de Corte Plena del 4 de enero de 1999, artículo VIII).
+Los despachos que utilizan el sistema de atención por ficha respetarán para su entrega el horario de oficina, de tal modo que no podrán negar su entrega y atención al usuario conforme a las reglas anteriores”.
+San José, 26 de febrero de 2014.
