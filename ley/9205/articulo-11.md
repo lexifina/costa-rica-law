@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Bienes de las instituciones del Estado
+Las entidades de la Administración Pública que materialmente ocupen terrenos dentro de la circunscripción territorial a que se refiere el artículo 1 de esta ley podrán inscribirlos ante el Registro Público de la Propiedad de Bienes Inmuebles a nombre de sus respectivos ministerios e instituciones por medio de la Notaría del Estado, aportando el plano catastrado con la solicitud respectiva.
