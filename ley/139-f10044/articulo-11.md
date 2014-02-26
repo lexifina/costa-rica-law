@@ -1,7 +1,2 @@
-ARTÍCULO 11.- El Juez podrá cuando lo crea conveniente, ordenar
-todas aquellas diligencias que estime necesarias para comprobar la
-veracidad de los hechos a que se refiere la información. Rechazará la
-misma si llegare a constatar que se pretende titular indebidamente
-baldíos nacionales o terrenos pertenecientes a cualquier institución del
-Estado, lo mismo que reservas forestales, parques nacionales o reservas
-biológicas.
+Artículo 11.-El juez podrá, ordenar, cuando lo crea conveniente, todas aquellas diligencias que estime necesarias para comprobar la veracidad de los hechos a que se refiere la información y la rechazará si llega a constatar que se pretende titular indebidamente baldíos nacionales o terrenos pertenecientes a cualquier institución del Estado, lo mismo que reservas forestales, parques nacionales o reservas biológicas. Por ley especial se podrá autorizar la titulación mediante información posesoria en terrenos pertenecientes a las instituciones del Estado, siempre que se proteja el interés público, el medio ambiente y el debido proceso legal.
+(Así reformado por el artículo 17 de la ley N° 9205 del 23 de diciembre del 2013, "Titulación en inmueble propiedad de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica")
