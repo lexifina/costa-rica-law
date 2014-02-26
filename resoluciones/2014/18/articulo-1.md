@@ -1,0 +1,18 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+RESOLUCIONES
+R-DC-18-2014.—Contraloría General de la República.— Despacho Contralor.—San José, a las once horas del veinte de febrero de dos mil catorce.
+Considerando:
+1º—Que los artículos 27 y 84 de la Ley de Contratación Administrativa, establecen los límites económicos a partir de los cuales aplica cada uno de los diferentes procedimientos de contratación, y la cuantía para poder apelar ante la Contraloría General de la República el acto de adjudicación.
+2º—Que dichos artículos establecen que la Contraloría General de la República debe actualizar los límites antes señalados a más tardar la segunda quincena de febrero de cada año tomando como referencia, entre otros, la variación porcentual de Índice de Precios al Consumidor (IPC).
+3º—Que en el Programa Macroeconómico 2014-15 publicado por el Banco Central de Costa Rica se plantea como objetivo preservar la estabilidad interna del colón, para lo cual establece la meta de inflación interanual en diciembre de 2014 de 4%, con un rango de tolerancia de un punto porcentual hacia arriba y otro hacia abajo.
+4º—Que a partir de las sumas base aprobadas por el legislador en los artículos 27 y 84 de la Ley de Contratación Administrativa, se ha estimado necesario mantener parámetros diferenciados de actualización, con el propósito de reconocer el caso particular de los contratos de obra pública, de manera que los límites resulten ajustados a la realidad y dimensión de ese tipo contractual. Cabe señalar, que la metodología de actualización en el caso de los citados contratos de obra también parte esencialmente de valoraciones relativas al comportamiento del IPC.
+5º—Que el artículo 27 de la Ley de Contratación Administrativa asigna a la Contraloría General el deber de elaborar una lista con el nombre de cada Administración y el monto de su presupuesto autorizado para respaldar la contratación de bienes y servicios no personales, la cual se elabora sobre el promedio de las sumas presupuestadas por cada Administración para respaldar la contratación de bienes y servicios no personales, en el período vigente y en los dos períodos anteriores.
+6º—Que el artículo 22 de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, Ley N° 8660, establece el procedimiento para determinar los límites económicos a partir de los cuales aplica cada uno de los diferentes procedimientos de contratación del Instituto Costarricense de Electricidad. Asimismo, el artículo 26 estatuye que en el caso del ICE solo cabrá recurso de apelación cuando se trate de licitación pública.
+7º—Que el artículo 45 aparte b) de la Ley N° 8660 modificó el artículo 23 de la Ley N° 7799 Reforma de la Ley de Creación del Servicio Eléctrico Municipal de Cartago, disponiendo que a la Junta Administrativa del Servicio Eléctrico Municipal de Cartago le aplicará el mismo régimen de contratación administrativa que el establecido para el Instituto Costarricense de Electricidad.
+8º—Que el artículo 20 de esa misma Ley establece que la adquisición de bienes y servicios, que realicen las empresas del ICE constituidas como una sociedad anónima, quedarán excluidas de la Ley de Contratación Administrativa. Por tanto,
+SE RESUELVE:
+I.—Actualizar los límites económicos que establecen los incisos a) al j) de los artículos 27 y 84 de la Ley de Contratación Administrativa y sus reformas, de conformidad con lo que se indica en las siguientes tablas:
+I.A. Límites generales de contratación administrativa, excluye obra pública:
+[imagen]
+I.B. Límites específicos de contratación administrativa para obra pública:
+[imagen]
