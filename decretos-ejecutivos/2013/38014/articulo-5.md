@@ -1,0 +1,1 @@
+Artículo 5°—Corresponde a la Comisión Nacional del Mar la coordinación con las Autoridades de la Administración Central y Descentralizada para el cumplimiento de las metas y estrategias contenidas en esta Política.
