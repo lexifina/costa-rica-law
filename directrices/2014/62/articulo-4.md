@@ -1,0 +1,1 @@
+Artículo 4º—El Grupo de Trabajo deberá coordinar con otras instituciones involucradas en la implementación del Sistema de Transporte Público, como Autoridad Reguladora de los Servicios Públicos (ARESEP), Municipalidades, Operadores de autobuses, Usuarios, entre otros.
