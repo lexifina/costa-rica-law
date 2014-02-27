@@ -1,0 +1,6 @@
+II.—Introducción.
+La Autoridad Reguladora de los Servicios Públicos es una Institución pública, creada con el fin de beneficiar a la población y fomentar la prestación de servicios públicos de calidad y accesibilidad para todos los habitantes.
+Con estos objetivos de creación enfocados en el bienestar de los habitantes del país, la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, ordena plasmar nuestros valores en un texto ético, mediante el acuerdo 06-49-2012, de la sesión ordinaria 49- 2012, celebrada el 21 de junio de 2012.
+Como producto de ese acuerdo se construye el presente Código de Ética de la Autoridad Reguladora de los Servicios Públicos y su órgano de máxima desconcentración, la Superintendencia de Telecomunicaciones, el cual es fruto de un proceso de participación, análisis, reflexión y acuerdo de los funcionarios, quienes de forma conjunta han definido sus actuaciones éticas, en el ámbito personal, ciudadano y laboral.
+Este es un instrumento, cuya aplicación servirá para guiar el accionar de la Institución, las conductas y el correcto proceder de quienes en ella laboramos.
+Por ello y conocedores de que un código de ética, no es sólo para leerse, sino para vivirse; los funcionarios nos comprometemos a vivir plenamente estos valores y compartirlos.

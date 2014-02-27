@@ -1,0 +1,10 @@
+XIII.—Divulgación y aplicación del Código de Ética. El Código de Ética, debe ser objeto de lectura atenta, consulta asidua, seguimiento, cumplimiento y vigilancia compartida, para su interiorización como parte de la cultura organizacional. Esta vivencia traerá además un importante efecto en el ambiente laboral, al suministrarle a todas las generaciones de funcionarios de la ARESEP y la SUTEL, un ejemplo de que, este Código de Ética más que una intención es una realidad determinante en el funcionamiento cotidiano de la Institución.
+El Código de Ética que rige a la ARESEP y a la SUTEL, se divulgará y aplicará de la siguiente manera:
+1) Un programa de divulgación del Código de Ética mediante circulares y charlas que se brindarán a todo el personal de la ARESEP y la SUTEL.
+2) Entregar a todos a los funcionarios el Código de Ética Institucional en formato impreso y digital.
+3) El Código de Ética Institucional será un instrumento de inducción al nuevo personal, permanente o interino que se incorpore a la institución. El área de Recursos Humanos aclarará dudas respecto al contenido y la conducta esperada de los funcionarios.
+4) Se realizará una reflexión a todo el personal de la ARESEP y la SUTEL sobre los contenidos del Código de Ética al menos una vez al año, en el marco de la Semana Nacional de Valores, la Comisión de Valores ARESEP-SUTEL será la responsable de esta labor.
+5) La ARESEP y la SUTEL, proveerán los recursos necesarios para la labor de la Comisión de Valores ARESEP-SUTEL.
+6) El Despacho del Regulador General y la Comisión de Valores ARESEP-SUTEL serán los responsables de revisar y actualizar una vez al año el Código de Ética.
+7) Cualquier funcionario o funcionaria que requiera información o bien plantear consultas sobre el presente Código y sobre asuntos relacionados con la Ética, debe sentirse con plena libertad de acudir a la Comisión de Valores ARESEP-SUTEL y/o a las instancias correspondientes.
+8) Las jefaturas y la Comisión de Valores ARESEP-SUTEL deberán fomentar que los valores se apliquen en el accionar diario institucional.
