@@ -1,0 +1,1 @@
+Artículo 6.- Tratamiento contable –Cuentas por Cobrar. Un activo contingente deja de serlo y pasa a ser reconocido como Cuenta por Cobrar, cuando exista un fallo definitivo por parte de un Tribunal Administrativo o Judicial.

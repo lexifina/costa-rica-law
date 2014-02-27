@@ -1,0 +1,1 @@
+Artículo 4.- Tratamiento contable – Activo y pasivo contingente. Los pasivos y activos contingentes deben revelarse en las notas a los Estados Financieros y han de ser objeto de evaluación de forma continua, por parte de la Administración Activa de cada entidad pública, para asegurar que su evolución esté reflejada adecuadamente en los Estados Financieros.

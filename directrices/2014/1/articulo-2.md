@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. La finalidad de la misma es dar una orientación sobre el tratamiento contable de provisiones, activos y pasivos contingentes y de esta manera manejar un lenguaje contable único en este tema a nivel de instituciones del Sector Público costarricense.

@@ -1,0 +1,1 @@
+Artículo 9.- Derogatoria: Deróguese la Directriz CN 002-2006 denominada “Activos y pasivos contingentes”, publicada en La Gaceta N° 133 del 11 de julio de 2006 y la Directriz CN 003-2007 denominada “Creación de cuentas Provisiones y Provisiones Contingentes”, publicada en La Gaceta N° 93 del 16 de mayo de 2007.

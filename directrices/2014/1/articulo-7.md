@@ -1,0 +1,1 @@
+Artículo 7.- Deterioro de las Cuentas por Cobrar. Cuando existan cuentas por cobrar, cuyo origen son las sentencias por fallos administrativos o judiciales, las mismas pueden sufrir deterioro en el tiempo por su irrecuperabilidad u otros factores externos, por lo cual la entidad deberá revelar el deterioro de las mismas.
