@@ -1,0 +1,1 @@
+Artículo 4º—Todas las instituciones que conforman el Sector Transporte deberán contemplar los recursos que serán canalizados al Plan de Capacitación Sectorial, en la elaboración de los presupuestos anuales. La implementación del PCS se irá realizando anualmente, acorde con los lineamientos del Plan Nacional de Transportes 2011- 2035.
