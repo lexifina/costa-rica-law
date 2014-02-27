@@ -14,3 +14,4 @@ Reglamento de Tesorería del Instituto Costarricense de Puertos del Pacífico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-20 | la propia norma |
+| 2 | 2014-02-27 | Reglamento 3879 (2014-02-27) |

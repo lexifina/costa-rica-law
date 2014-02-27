@@ -1,1 +1,2 @@
-Artículo 31.- Del Registro de documentos de garantía. La Tesorería llevará un registro para el control de la existencia de los documentos de garantías recibidas. Deberá indicar al menos: nombre del adjudicatario, número de documento, proyecto, institución emisora del título valor, número de licitación, tipo de garantía, fecha de vencimiento y monto de la garantía.
+Artículo 31.- Del control de los documentos de garantía. La Tesorería controlara las garantías incluidas en el auxiliar de garantías en el sistema SIAF. El reporte del SIAF sobre la custodia de las garantías incluirá: el nombre del adjudicatario, número de documento, número de la garantía, fecha de vencimiento y monto de la garantía.
+(Así reformado mediante sesión N° 3879 del 27 de febrero del 2014)
