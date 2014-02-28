@@ -1,0 +1,13 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+JUNTA DIRECTIVA
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión 11-2014, del 3 de febrero del 2014, tomó el acuerdo N° 9, que indica lo siguiente:
+“ACUERDO N° 9:
+Considerando:
+I.—Que por medio del oficio GG-ME-0076-2014 del 27 de enero del 2014, la Gerencia General somete a la consideración de esta Junta Directiva, una propuesta para reformar el artículo 83 del Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda, así como la respectiva directriz para la aplicación de dicha norma, aprobada por medio del acuerdo N° 8 de la sesión 84-2011 del 28 de noviembre del 2011.
+II.—Que según lo indica la Gerencia General en el citado documento, las reformas propuestas consisten en sustituir de ambas regulaciones el término de “garantía de cumplimiento” por el de “retención por concepto de garantía”, de conformidad con lo dispuesto por la Contraloría General de la República, en el informe DFOE-EC-IF-12-2013 denominado “Auditoría de carácter especial sobre la implementación de normativa en materia de fiscalización y control de los proyectos de vivienda en el Banco Hipotecario de la Vivienda (BANHVI)”.
+III.—Que esta Junta Directiva no encuentra objeción en actuar de la forma que recomienda la Administración, dando así cumplimiento a lo ordenado por la Contraloría General de la República. Por tanto,
+Con fundamento en el informe N° DFOE-EC-IF-12-2013, de la Contraloría General de la República, y conforme lo propuesto por la Administración en el oficio GG-ME-0076-2014.
+SE ACUERDA:
+I.—Reformar el artículo 83 del Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda, para que se lea como sigue:
+“Artículo 83.—Garantías y pólizas. Las Entidades Autorizadas otorgarán su financiamiento con garantía hipotecaria de primer grado sobre el terreno donde se desarrollará el proyecto, siempre y cuando la adquisición del inmueble de parte del desarrollador, no la haya generado el respectivo financiamiento. Caso contrario, deberá solicitar garantías reales suficientes para el debido respaldo de la operación. Asimismo, los desarrolladores deberán rendir una retención por concepto de garantía por un monto no menor al 5% del precio de todas las obras constructivas. La garantía será escogida por la Entidad Autorizada, y deberá cubrir un plazo mínimo de tres meses después de entregadas las obras a satisfacción de la Entidad Autorizada y demás autoridades competentes.
+Toda vivienda en proceso constructivo, deberá contar con las pólizas de incendio y terremoto y otras que pudieren ser procedentes en esta etapa constructiva, a juicio de la Entidad Autorizada.”
