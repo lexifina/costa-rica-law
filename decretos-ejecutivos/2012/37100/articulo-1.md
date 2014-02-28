@@ -33,8 +33,9 @@ RESUELVE:
 misma.
 2. La presente Resolución entrará en vigencia el 2 de julio de 2012 y será publicada por
 los Estados Parte.
-3. No obstante lo anterior, las empresas contaran con plazo de hasta seis (6) meses (*), a partir de la vigencia del Reglamento, para agotar el inventario de las etiquetas con que cuenten.
+3. No obstante lo anterior, las empresas contaran con plazo de hasta seis (6) meses (*) (**), a partir de la vigencia del Reglamento, para agotar el inventario de las etiquetas con que cuenten.
 (*)(Mediante artículo 1° de la resolución N° 305-2013 (COMIECO-LXIV) de fecha 15 de mayo 2013, aprobada mediante decreto ejecutivo N° 37850 del 27 de mayo del 2013, se resolvió ampliar el plazo a que se refiere el numeral 3 de la parte resolutiva de la Resolución No. 277-2011 (COMIECO-LXI), hasta el 31 de diciembre del 2013, para que las empresas agoten el inventario de etiquetas)
+(**) (Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 38432 del 28 de febrero del 2014, "Publica Resolución N° 334-2013 (COMIECO-LXVI) del 12 de diciembre de 2013 y Resolución N° 335-2014 (COMIECO-EX) del 17 de enero del 2014: Prórroga de los plazos comprendidos en las resoluciones N° 280-2012 y 277-2011 y 283-2012", que contiene la resolución N° 335-2013 (COMIECO-LXVI), se prorroga por tres meses más el plazo antes establecido, es decir hasta el 30 de junio del 2014)
 San Salvador, El Salvador, 2 de diciembre de 2011
 4. En un plazo no mayor de tres (3) meses, a partir de la firma de la presente Resolución, se deberá incorporar a este Reglamento el Anexo sobre Declaraciones Saludables.
 [imagen] [imagen]
