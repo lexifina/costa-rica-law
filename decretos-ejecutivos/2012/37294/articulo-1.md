@@ -26,6 +26,7 @@ RESUELVE:
 2. La presente Resolución entrará en vigencia el 14 de noviembre de 2012 y será publicada por los Estados Parte.
 3. No obstante lo anterior, las empresas contarán con un plazo de hasta seis (6) meses (*), posterior a la entrada en vigencia de este Reglamento para agotar el inventario de las etiquetas con que cuenten.
 (*)(Mediante artículo 1° de la resolución N° 305-2013 (COMIECO-LXIV) de fecha 15 de mayo 2013, aprobada mediante decreto ejecutivo N° 37850 del 27 de mayo del 2013, se resolvió ampliar el plazo a que se refiere el numeral 3 de la parte resolutiva de la Resolución No. 277-2011 (COMIECO-LXI), hasta el 31 de diciembre del 2013, para que las empresas agoten el inventario de etiquetas)
+(**) (Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 38432 del 28 de febrero del 2014, "Publica Resolución N° 334-2013 (COMIECO-LXVI) del 12 de diciembre de 2013 y Resolución N° 335-2014 (COMIECO-EX) del 17 de enero del 2014: Prórroga de los plazos comprendidos en las resoluciones N° 280-2012 y 277-2011 y 283-2012", que contiene la resolución N° 335-2013 (COMIECO-LXVI), se prorroga por tres meses más el plazo antes establecido, es decir hasta el 30 de junio del 2014)
 4. En un plazo de un (1) año, a partir de la presente Resolución, se deberán actualizar e incorporar las referencias de los aditivos establecidos en el Reglamento.
 Tegucigalpa, Honduras, 14 de mayo de 2012
 infrascrito Seretario General de la Secretaria de Integración Econòmica Centroamericana (SIECA) CERTIFICA: Que las dos (2) fotocopias que anteceden a la presente hoja de papel bond, impresas únicamente en su anverso asì como las cuatrocientas diez (410) del anexo adjunto, impresas en su anverso y reverso, rubricadas y selladas con el sello de la SIECA, reproducen fielmente la Resoluciòn Nº 283-2012 (COMIECO-LXII) adoptada por el Consejo de Ministros de Integración Económica, el catore de mayo de dos mil doce, de cuyos originales se reprodukeron. Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el dieciocho de mayo de dos mil doce-----------------------------------------------------------------------------------------------
@@ -511,7 +512,7 @@ El azúcar blanco es sacarosa purificada y cristalizada con una polarización no
 El azúcar en polvo (azúcar glasé) es azúcar blanco finamente pulverizado con o sin antiaglomerantes añadidos. La dextrosa en polvo (dextrosa glasé) es dextrosa anhidra o dextrosa monohidrato finamente pulverizada, o una mezcla de ambas, con o sin antiaglomerantes añadidos.
 11.1.3 Azúcar blando blanco, azúcar blando moreno, jarabe de glucosa, jarabe de glucosa deshidratado y azúcar de caña sin refinar:
 El azúcar blando blanco es azúcar húmedo purificado, de grano fino, de color blanco. El azúcar blando moreno es azúcar húmedo, de grano fino, de color marrón claro a marrón oscuro. El jarabe de glucosa es una solución acuosa concentrada y purificada de sacáridos nutritivos obtenidos del almidón y/o la inulina. El jarabe de glucosa deshidratado es jarabe de glucosa del que se ha separado parcialmente el agua. El azúcar de caña sin refinar es sacarosa parcialmente purificada, cristalizada a partir de jugo de caña parcialmente purificado sin más purificación.
-1. “Grados Z – grados de polarización en la escala internacional del azúcar”
+“Grados Z – grados de polarización en la escala internacional del azúcar”
 11.1.3.1 Jarabe de glucosa deshidratado utilizado para la elaboración de golosinas:
 Se trata del jarabe de glucosa deshidratado, tal como se describe en 11.1.3, utilizado para elaborar los productos de confitería que se incluyen en la categoría de alimentos 05.2 (p. ej., caramelos blandos o duros).
 11.1.3.2 Jarabe de glucosa utilizado para la elaboración de golosinas:
@@ -5262,12 +5263,12 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 13.6 | Complementos alimenticios | 300 mg/kg |
 14.1.4.1 | Bebidas a base de agua saborizada con gas | 300 mg/kg |
 14.1.4.2 | Bebidas a base de agua saborizada sin gas, incluidos los ponches de fruta y las limonadas y bebidas similares | 300 mg/kg |
-14.1.4.3 | Concentrados (líquidos o sólidos) para bebidas a base de agua saborizadas | [imagen] [imagen] [imagen] [imagen] BPM | FDA 74.340
+14.1.4.3 | Concentrados (líquidos o sólidos) para bebidas a base de agua saborizadas | BPM | FDA 74.340
 14.2.6 | Licores destilados que contengan más de un 15% de alcohol | 300 mg/kg |
 14.2.7 | Bebidas alcohólicas saborizadas (p.ej., cerveza, vino y bebidas espirituosas tipo refresco, refrescos con bajo contenido de alcohol) | 200 mg/kg |
 15.1 | Aperitivos a base de patatas (papas), cereales, harina o almidón (derivados de raíces y tubérculos, legumbres y leguminosas | 200 mg/kg |
 15.2 | Nueces elaboradas, incluidas las nueces (p.ej., con frutas, frutas secas) revestidas y mezclas de nueces | 100 mg/kg |
-16.0 | Alimentos compuestos (que no pueden clasificarse en las categorías 01 - 15) | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 500 mg/kg |
+16.0 | Alimentos compuestos (que no pueden clasificarse en las categorías 01 - 15) | 500 mg/kg |
 ROJO DE AZORRUBINA (CARMOISINA) INS 122 Función: Colorante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 05.2.1 | Caramelos duros | 50 mg/kg | Directiva 94/36/CE
@@ -5293,7 +5294,7 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 11.4 | Otros azúcares y jarabes ( p ej., xilosa, jarabe de arce y revestimientos de azúcar) | BPM |
 14.1.3.1. | Néctares de frutas | BPM |
 14.1.3.2 | Néctares de hortalizas | BPM | FDA 73.40
-14.2.3.3 | Vino de uva enriquecido, vino de uva licoroso y vino de uva dulce | [imagen] BPM |
+14.2.3.3 | Vino de uva enriquecido, vino de uva licoroso y vino de uva dulce | BPM |
 14.2.7 | Bebidas alcohólicas saborizadas (p.ej. cerveza, vino y bebidas espirituosas tipo refresco, refrescos con bajo contenido de alcohol) | BPM |
 SACARINA Sacarina (y sus sales de sodio, potasio y calcio) INS 954 Función: Acentuador del aroma, edulcorante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
@@ -5304,7 +5305,7 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 04.1.2.3 | Frutas en vinagre, aceite o salmuera | 160 mg/kg | Nota 144
 04.1.2.4 | Frutas en conserva enlatadas o en frasco (pasteurizadas) | 200 mg/kg |
 04.1.2.5 | Confituras, jaleas mermeladas | 200 mg/kg |
-04.1.2.6 | Productos para untar a base de fruta (p. ej., el chutney, excluidos los productos de la categoría de alimentos 04.1.2.5 | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 200 mg/kg |
+04.1.2.6 | Productos para untar a base de fruta (p. ej., el chutney, excluidos los productos de la categoría de alimentos 04.1.2.5 | 200 mg/kg |
 04.1.2.7 | Frutas confitadas | 5000 mg/kg |
 04.1.2.8 | Preparados a base de fruta, incluida la pulpa, los purés, los revestimientos de fruta y la leche de coco | 200 mg/kg |
 04.1.2.9 | Postres a base de fruta, incluidos los postres a base de agua con aromas de fruta | 100 mg/kg |
@@ -5334,9 +5335,9 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 07.1.3 | Otros productos de panadería ordinaria (p. ej., “bagels”, “pita”, “muffins” ingleses etc.) | 15 mg/kg |
 07.2 | Productos de panadería fina (dulces, salados, aromatizados) y mezclas | 170 mg/kg | Nota 165
 09.3.1 | Pescado y productos pesqueros marinados y/o en gelatina, incluidos moluscos, crustáceos y equinodermos | 160 mg/kg | Nota 144
-09.3.2 | Pescado y productos pesqueros escabechados y/o en salmuera, incluidos moluscos, crustáceos y equinodermos | [imagen] 160 mg/kg | Nota 144
+09.3.2 | Pescado y productos pesqueros escabechados y/o en salmuera, incluidos moluscos, crustáceos y equinodermos | 160 mg/kg | Nota 144
 09.3.4 | Pescado y productos pesqueros semiconservados, incluye moluscos, crustáceos y equinodermos ( p. ej.,la pasta de pescado) excluidos los productos de las categorías de alimentos 09.3.1 - 09.3.3 | 1200 mg/kg | Nota 144
-09.4 | Pescado y productos pesqueros (incluidos los moluscos, crustáceos y equinodermos) en conserva, con inclusión de los enlatados y fermentados | [imagen] 200 mg/kg | Nota 144
+09.4 | Pescado y productos pesqueros (incluidos los moluscos, crustáceos y equinodermos) en conserva, con inclusión de los enlatados y fermentados | 200 mg/kg | Nota 144
 10.4 | Postres a base de huevo ( p ej., flan) | 100 mg/kg | Nota 144
 11.6 | Edulcorantes de mesa, incluidos los que contienen edulcorantes de gran intensidad | BPM |
 12.2.2 | Aderezos y condimentos | 1500 mg/kg |
@@ -5363,9 +5364,9 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 14.1.4.2 | Bebidas a base de agua saborizada sin gas, incluidos los ponches de fruta y las limonadas y bebidas similares | 300 mg/kg |
 14.1.4.3 | Concentrados (líquidos o sólidos) para bebidas a base de agua saborizadas | 300 mg/kg | Nota 127
 14.1.5 | Café, sucedáneos del café, té, infusiones de hierbas y otras bebidas calientes a base de cereales y granos, excluido el cacao | 200 mg/kg | Nota 160
-14.2.7 | Bebidas alcohólicas saborizadas (p.ej., cerveza, vino y bebidas espirituosas tipo refresco, refrescos con bajo contenido de alcohol) | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 80 mg/kg |
+14.2.7 | Bebidas alcohólicas saborizadas (p.ej., cerveza, vino y bebidas espirituosas tipo refresco, refrescos con bajo contenido de alcohol) | 80 mg/kg |
 15.0 | Aperitivos listos para el consumo | 100 mg/kg |
-16.0 | Alimentos compuestos (que no pueden clasificarse en las categorías 01 - 15) | [imagen] [imagen] [imagen] 200 mg/kg |
+16.0 | Alimentos compuestos (que no pueden clasificarse en las categorías 01 - 15) | 200 mg/kg |
 SALES AMONICAS DEL ÁCIDO FOSFATIDICO INS 442 Función: Emulsificante, estabilizador
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 01.1.2 | Bebidas lácteas, saborizadas y/o fermentadas (p. ej., leche con chocolate, cacao, ponche de huevo, yogur para beber, bebidas a base de suero | 700 mg/kg |
@@ -5378,7 +5379,7 @@ SALES DE ÁCIDO OLEICO (Ca, K, Na) INS 470ii Función: Antiaglutinante, emulsifi
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 11.4 | Otros azúcares y jarabes ( p ej., xilosa, jarabe de arce y revestimientos de azúcar) | BPM |
 12.2.1 | Hierbas aromáticas y especias | BPM | Nota 51
-14.1.5 | Café, sucedáneos del café, té, infusiones de hierbas y otras bebidas calientes a base de cereales y granos, excluido el cacao | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] BPM |
+14.1.5 | Café, sucedáneos del café, té, infusiones de hierbas y otras bebidas calientes a base de cereales y granos, excluido el cacao | PM |
 SALES DE ASPARTAMO Y ACESULFAMO INS 962 Función: Edulcorantes
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 01.1.2 | Bebidas lácteas, aromatizadas y/o fermentadas (p. eje. Leche con chocolate, cacao, ponche de huevo, yogur para beber, bedias a base de suero) | 350 mg/kg | Nota 113
@@ -5569,12 +5570,12 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 09.2.3 | Productos pesqueros picados, amalgamados y congelados, incluidos moluscos, crustáceos y equinodermos | 2000 mg/kg | Nota 42
 SUCRALOSA INS 955 Función: Edulcorante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
-01.1.2 | Bebidas lácteas, saborizadas y/o fermentadas (p. ej., leche con chocolate, cacao, ponche de huevo, yogur para beber, bebidas a base de suero | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 300 mg/kg |
+01.1.2 | Bebidas lácteas, saborizadas y/o fermentadas (p. ej., leche con chocolate, cacao, ponche de huevo, yogur para beber, bebidas a base de suero | 300 mg/kg |
 01.3.2 | Blanqueadores de bebidas | 580 mg/kg |
 01.4.4 | Productos similares a la nata (crema) | 580 mg/kg |
 01.6.5 | Productos similares al queso | 500 mg/kg |
 01.7 | Postres lácteos (p. ej., pudines, yogur aromatizado o con fruta) | 400 mg/kg |
-02.4 | Postres a base de grasas, excluidos los postres lácteos de la categoría de alimentos 01.7 | [imagen] [imagen] [imagen] 400 mg/kg |
+02.4 | Postres a base de grasas, excluidos los postres lácteos de la categoría de alimentos 01.7 | [imagen] [imagen] 400 mg/kg |
 03.0 | Hielos comestibles, incluidos los sorbetes | 320 mg/kg |
 04.1.2.1 | Frutas congeladas | 400 mg/kg |
 04.1.2.2 | Frutas desecadas | 1500 mg/kg |
@@ -5595,13 +5596,13 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 04.2.2.5 | Purés y preparados para untar elaborados con hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera), algas marinas y nueces y semillas (p ej. la mantequilla de maní (cacahuete)) | 400 mg/kg | Nota 169
 04.2.2.6 | Pulpas y preparados de hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) algas marinas y nueces y semillas (como los postres y las salsas a base de hortalizas y hortalizas confitadas) distintos de los indicados en la categoría de alimentos 04.2.2.5 | 400 mg/kg |
 04.2.2.7 | Productos a base de hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) y algas marinas fermentadas, excluidos los producto fermentados de soja de la categoría 12.10 | 580 mg/kg |
-04.2.2.8 | Hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) y algas marinas cocidas o fritas | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 150 mg/kg | Nota 144
+04.2.2.8 | Hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) y algas marinas cocidas o fritas | 150 mg/kg | Nota 144
 05.1.1 | Mezclas de cacao (en polvo) y cacao en pasta/tortas de cacao | 580 mg/kg | Nota 97
 05.1.2 | Mezclas de cacao (jarabes) | 400 mg/kg | Nota 97
 05.1.3 | Productos para untar a base de cacao, incluidos rellenos a base de cacao | 400 mg/kg | Nota 169
 05.1.4 | Productos de cacao y chocolate | 800 mg/kg |
 05.1.5 | Productos de imitación y sucedáneos del chocolate | 800 mg/kg |
-05.2 | Dulces distintos de los indicados en las categorías de alimentos 05.1, 05.3 y 05.4, incluidos los caramelos duros y blandos, los turrones etc. | [imagen] 1800 mg/kg | Nota 164
+05.2 | Dulces distintos de los indicados en las categorías de alimentos 05.1, 05.3 y 05.4, incluidos los caramelos duros y blandos, los turrones etc. | 1800 mg/kg | Nota 164
 05.3 | Goma de mascar | 5000 mg/kg |
 05.4 | Decoraciones (p.ej., para productos de panadería fina), revestimientos (que no sean de fruta) y salsas dulces | 1000 mg/kg |
 06.3 | Cereales para el desayuno, incluidos los copos de avena | 1000 mg/kg |
@@ -5642,7 +5643,7 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 02.3 | Emulsiones grasas, principalmente del tipo agua en aceite, incluidos los productos a base de emulsiones grasas mezcladas y/o saborizadas | 10000 mg/kg |
 02.4 | Postres a base de grasas, excluidos los postres lácteos de la categoría de alimentos 01.7 | 10000 mg/kg |
 04.1.1.2 | Frutas frescas tratadas en la superficie | BPM |
-05.2 | Dulces distintos de los indicados en las categorías de alimentos 05.1, 05.3 y 05.4, incluidos los caramelos duros y blandos, los turrones etc. | [imagen] 5000 mg/kg |
+05.2 | Dulces distintos de los indicados en las categorías de alimentos 05.1, 05.3 y 05.4, incluidos los caramelos duros y blandos, los turrones etc. | 5000 mg/kg |
 05.3 | Goma de mascar | 10000 mg/kg |
 07.2 | Productos de panadería fina (dulces, salados, aromatizados) y mezclas | 10000 mg/kg |
 08.2.2 | Productos cárnicos, de aves de corral y caza elaborados, tratados térmicamente en piezas enteras o en cortes | 5000 mg/kg |
@@ -5655,13 +5656,13 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 14.1.4 | Bebidas a base de agua saborizada, excluidas las bebidas para deportistas, bebidas electrolíticas y bebidas con partículas añadidas | 5000 mg/kg |
 14.1.5 | Café, sucedáneos del café, té, infusiones de hierbas y otras bebidas calientes a base de cereales y granos, excluido el cacao | 1000 mg/kg |
 14.2.6 | Licores destilados que contengan más de un 15 por ciento de alcohol | 5000 mg/kg |
-14.2.7 | Bebidas alcohólicas saborizadas y bebidas espirituosas (con exclusión de vino y cerveza) | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 5000 mg/kg |
+14.2.7 | Bebidas alcohólicas saborizadas y bebidas espirituosas (con exclusión de vino y cerveza) | 5000 mg/kg |
 SULFATO CALCICO INS 516 Función: Regulador de acidez, agente de carga, agente endurecedor, agente de tratamiento de las harinas, secuestrante, estabilizador, espesante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 06.2.1 | Harinas | BPM | Nota 57
 06.4.2 | Pastas y fideos deshidratados y productos similares | 5000 mg/kg |
 14.2.3 | Vinos de uva | 70 mg/kg | FDA 184.1230
-14.2.3.3 | Vino de uva enriquecido, vino de uva licoroso y vino de uva dulce | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 2000 mg/kg |
+14.2.3.3 | Vino de uva enriquecido, vino de uva licoroso y vino de uva dulce | 2000 mg/kg |
 SULFATO DE ALUMINIO Y AMONIO INS 523 Función: Agente endurecedor, gasificante, estabilizador
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 04.1.2.7 | Frutas confitadas | 200 mg/kg | Nota 6
@@ -5729,7 +5730,7 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 12.2.1 | Hierbas aromáticas y especias | 150 mg/kg | Nota 144
 12.2.2 | Aderezos y condimentos | 200 mg/kg | Nota 44
 12.3 | Vinagres | 100 mg/kg | Nota 44 y 106
-12.4 | Mostazas | 250 mg/kg | [imagen] Notas 44 y [imagen] [imagen] 106
+12.4 | Mostazas | 250 mg/kg | Notas 44 y 106
 12.6 | Salsas y productos similares | 300 mg/kg | Nota 44
 14.1.2.1 | Zumos (jugos) de frutas | 50 mg/kg | Notas 44 y 122
 14.1.2.2 | Zumos (jugos) de hortalizas | 50 mg/kg | Nota 44 y 122
@@ -5774,12 +5775,12 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 13.6 | Complementos alimenticios | BPM |
 TARTRACINA INS 102 Función: Colorante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
-01.1.2 | Bebidas lácteas, saborizadas y/o fermentadas (p. ej., leche con chocolate, cacao, ponche de huevo, yogur para beber, bebidas a base de suero | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 300 mg/kg |
+01.1.2 | Bebidas lácteas, saborizadas y/o fermentadas (p. ej., leche con chocolate, cacao, ponche de huevo, yogur para beber, bebidas a base de suero | 300 mg/kg |
 01.3.2 | Blanqueadores de bebidas | 300 mg/kg |
 01.6.2.2 | Corteza de queso madurado | 100 mg/kg |
 01.6.4 | Queso elaborado, fundido | 200 mg/kg |
 01.6.5 | Productos similares al queso | 300 mg/kg | Nota 3
-01.7 | Postres lácteos (p. ej., pudines, yogur aromatizado o con fruta) | [imagen] [imagen] [imagen] 300 mg/kg |
+01.7 | Postres lácteos (p. ej., pudines, yogur aromatizado o con fruta) | [imagen] 300 mg/kg |
 02.1.2 | Grasas y aceites vegetales | 300 mg/kg | RTCA 67.04.40:07 Grasas y aceites
 02.1.3 | Manteca de cerdo, cebo, aceite de pescado y otras grasas de origen animal | 300 mg/kg |
 02.1.4 | Mezcla de aceites y/o grasas de origen animal y vegetal. Mezclas de las categorías 2.1.2 y 2.1.3 | 300 mg/kg |
@@ -5798,13 +5799,13 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 04.2.2.6 | Pulpas y preparados de hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) algas marinas y nueces y semillas (como los postres y las salsas a base de hortalizas y hortalizas confitadas) distintos de los indicados en la categoría de alimentos 04.2.2.5 | 200 mg/kg |
 04.2.2.7 | Productos a base de hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) y algas marinas fermentadas, excluidos los producto fermentados de soja de la categoría 12.10 | 500 mg/kg |
 05.1 | Productos de cacao y chocolate, incluidos los productos de imitación y los sucedáneos del chocolate | 300 mg/kg |
-05.2 | Dulces distintos de los indicados en las categorías de alimentos 05.1, 05.3 y 05.4, incluidos los caramelos duros y blandos, los turrones etc. | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 300 mg/kg |
+05.2 | Dulces distintos de los indicados en las categorías de alimentos 05.1, 05.3 y 05.4, incluidos los caramelos duros y blandos, los turrones etc. | 300 mg/kg |
 05.3 | Goma de mascar | 300 mg/kg |
-05.4 | Decoraciones (p.ej., para productos de panadería fina), revestimientos (que no sean de fruta) y salsas dulces | [imagen] [imagen] [imagen] [imagen] [imagen] 500 mg/kg |
+05.4 | Decoraciones (p.ej., para productos de panadería fina), revestimientos (que no sean de fruta) y salsas dulces | 500 mg/kg |
 06.3 | Cereales para el desayuno, incluidos los copos de avena | 300 mg/kg |
 06.4.2 | Pastas y fideos deshidratados y productos similares | 300 mg/kg |
 06.4.3 | Pastas y fideos precocidos y productos similares | 300 mg/kg |
-06.5 | Postres a base de cereales y almidón (p ej. pudines de arroz, pudines de mandioca) | [imagen] 300 mg/kg |
+06.5 | Postres a base de cereales y almidón (p ej. pudines de arroz, pudines de mandioca) | 300 mg/kg |
 07.0 | Productos de panadería | 300 mg/kg |
 08.3.2 | Productos cárnicos, de aves de corral y caza picados, elaborados y tratados témicamente | BPM | FDA 74.705
 09.2.2 | Pescado, filetes de pescado y productos pesqueros rebozados congelados, incluidos moluscos, crustáceos y equinodermos | 500 mg/kg | Nota 16
@@ -5827,15 +5828,15 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 12.6 | Salsas y productos similares | 500 mg/kg |
 13.3 | Alimentos dietéticos para usos medicinales especiales (excluidos los productos de la categoría de alimentos 13.1) | 50 mg/kg |
 13.4 | Preparados dietéticos para adelgazamiento y control del peso | 50 mg/kg |
-13.5 | Alimentos dietéticos (p.ej., los complementos alimenticios para usos dietéticos), excluidos los indicados en las categorías 13.1 - 13.4 y 13.6 | [imagen] [imagen] [imagen] [imagen] 300 mg/kg |
+13.5 | Alimentos dietéticos (p.ej., los complementos alimenticios para usos dietéticos), excluidos los indicados en las categorías 13.1 - 13.4 y 13.6 | [imagen] [imagen] 300 mg/kg |
 13.6 | Complementos alimenticios | 300 mg/kg |
-14.1.4 | Bebidas a base de agua saborizada, incluidas las bebidas para deportistas, bebidas electrolíticas y bebidas con partículas añadidas | [imagen] [imagen] BPM | FDA 74.705
+14.1.4 | Bebidas a base de agua saborizada, incluidas las bebidas para deportistas, bebidas electrolíticas y bebidas con partículas añadidas | BPM | FDA 74.705
 14.1.4.2 | Bebidas a base de agua saborizadas sin gas, incluidos los ponches de fruta y las limonadas y bebidas similares | BPM | FDA 74.705
 14.2.6 | Licores destilados que contengan más de un 15% de alcohol | 300 mg/kg |
 14.2.7 | Bebidas alcohólicas saborizadas (p.ej., cerveza, vino y bebidas espirituosas tipo refresco, refrescos con bajo contenido de alcohol) | 200 mg/kg |
 15.1 | Aperitivos a base de patatas (papas), cereales, harina o almidón (derivados de raíces y tubérculos, legumbres y leguminosas | 300 mg/kg |
 15.2 | Nueces elaboradas, incluidas las nueces (p. ej., con frutas secas) revestidas y mezclas de nueces | 100 mg/kg |
-16.0 | Alimentos compuestos (que no pueden clasificarse en las categorías 01 - 15) | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 500 mg/kg |
+16.0 | Alimentos compuestos (que no pueden clasificarse en las categorías 01 - 15) | 500 mg/kg |
 TARTRATOS Acido tartárico INS 334 Tartrato monosódico INS 335i Tartrato disódico INS 335ii Tatrato monopotásico INS 336i Tartrato dipotásico INS 336ii Tartrato de potasio y sodio INS 337 Función: Antiaglutinantes, reguladores de la acidez, adyuvantes, antioxidantes, agentes de carga, emulsificantes, agentes de tratamiento de las harinas, humectantes, sustancias conservadoras, gasificantes, secuestrantes, estabilizadores, espesantes
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 02.1 | Grasas y aceites prácticamente exentos de agua | 5000 mg/kg | Nota 45
@@ -5877,8 +5878,8 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 04.2.2.7 | Productos a base de hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) y algas marinas fermentadas, excluidos los producto fermentados de soja de la categoría 12.10 | BPM |
 06.5 | Postres a base de cereales y almidón (p. ej., pudines de arroz, pudines de mandioca) | 5 mg/kg | Nota 143
 10.4 | Postres a base de huevo (p. ej., flan | 5 mg/kg | Nota 143
-11.4 | Otros azúcares y jarabes ( p ej., xilosa, jarabe de arce y revestimientos de azúcar) | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 500 mg/kg |
-14.1.5 | Café, sucedáneos del café, té, infusiones de hierbas y otras bebidas calientes a base de cereales y granos, excluido el cacao | [imagen] [imagen] [imagen] [imagen] [imagen] BPM |
+11.4 | Otros azúcares y jarabes ( p ej., xilosa, jarabe de arce y revestimientos de azúcar) | 500 mg/kg |
+14.1.5 | Café, sucedáneos del café, té, infusiones de hierbas y otras bebidas calientes a base de cereales y granos, excluido el cacao | BPM |
 TBHQ INS 319 Función: Antioxidante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 01.3.2 | Blanqueadores de bebidas | 100 mg/kg | Notas 15 y 130
@@ -5943,7 +5944,7 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 04.1.2.11 | Rellenos de fruta para panadería | 150 mg/kg |
 04.2.2.2 | Hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y áloe vera), algas marinas y nueces y semillas desecadas | 200 mg/kg |
 04.2.2.5 | Purés y preparados para untar elaborados con hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera), algas marinas y nueces y semillas (p ej. la mantequilla de maní (cacahuete)) | 25 mg/kg |
-04.2.2.8 | Hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) y algas marinas cocidas o fritas | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 200 mg/kg |
+04.2.2.8 | Hortalizas (incluidos hongos y setas, raíces y tubérculos, legumbres y leguminosas y aloe vera) y algas marinas cocidas o fritas | 200 mg/kg |
 05.1.1 | Mezclas de cacao (en polvo) y cacao en pasta/tortas de cacao | 500 mg/kg | Nota 15
 05.1.2 | Mezclas de cacao (jarabes) | 500 mg/kg | Nota 15
 05.1.3 | Productos para untar a base de cacao, incluidos rellenos a base de cacao | 500 mg/kg | Nota 15
@@ -5974,10 +5975,10 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 13.2 | Alimentos complementarios para lactantes y niños pequeños | 100 mg/kg | Separados o en combinación
 13.3 | [imagen] Alimentos dietéticos para usos medicinales especiales (excluidos los productos de la categoría de alimentos 13.1) | BPM |
 13.4 | Preparados dietéticos para adelgazamiento y control del peso | BPM |
-13.5 | [imagen] Alimentos dietéticos (p.ej., los complementos alimenticios para usos dietéticos), excluidos los indicados en las categorías 13.1 - 13.4 y 13.6 | [imagen] [imagen] BPM |
+13.5 | [imagen] Alimentos dietéticos (p.ej., los complementos alimenticios para usos dietéticos), excluidos los indicados en las categorías 13.1 - 13.4 y 13.6 | BPM |
 13.6 | Complementos alimenticios | 150 mg/kg |
 15.1 | Aperitivos a base de patatas (papas), cereales, harina o almidón (derivados de raíces y tubérculos, legumbres y leguminosas | 200 mg/kg |
-15.2 | Nueces elaboradas, incluidas las nueces (p. ej., con frutas secas) revestidas y mezclas de nueces | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 1500 mg/kg |
+15.2 | Nueces elaboradas, incluidas las nueces (p. ej., con frutas secas) revestidas y mezclas de nueces | 1500 mg/kg |
 TOSOM (ACEITE DE SOJA OXIDADO CON PROCEDIMIENTO TERMICO CON MONO Y DIGLICERIDOS DE ACIDOS GRASOS) INS: 479 Función: Emulsificante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 02.2.1.2 | Margarina y productos similares | 5000 mg/kg |
@@ -5987,12 +5988,12 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 05.3 | Goma de mascar | 300 mg/kg | Directiva 94/36/CE
 VERDE SÓLIDO FCF INS 143 Función: Colorante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
-01.1.2 | Bebidas lácteas, saborizadas y/o fermentadas (p. ej., leche con chocolate, cacao, ponche de huevo, yogur para beber, bebidas a base de suero | [imagen] 100 mg/kg | Nota 52
+01.1.2 | Bebidas lácteas, saborizadas y/o fermentadas (p. ej., leche con chocolate, cacao, ponche de huevo, yogur para beber, bebidas a base de suero | 100 mg/kg | Nota 52
 01.7 | Postres lácteos (p. ej., pudines, yogur aromatizado o con fruta) | 100 mg/kg | Nota 2
 02.1.2 | Grasas y aceites vegetales | BPM |
 02.1.3 | Manteca de cerdo, cebo, aceite de pescado y otras grasas de origen animal | BPM |
 02.1.4 | Mezcla de aceites y/o grasas de origen animal y vegetal. Mezclas de las categorías 2.1.2 y 2.1.3 | BPM |
-02.4 | Postres a base de grasas, excluidos los postres lácteos de la categoría de alimentos 01.7 | [imagen] 100 mg/kg |
+02.4 | Postres a base de grasas, excluidos los postres lácteos de la categoría de alimentos 01.7 | 100 mg/kg |
 03.0 | Hielos comestibles, incluidos los sorbetes | 100 mg/kg |
 04.1.2.4 | Frutas en conserva enlatadas o en frasco (pasteurizadas) | 200 mg/kg |
 04.1.2.5 | Confituras, jaleas mermeladas | 400 mg/kg |
@@ -6009,7 +6010,7 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 05.4 | Decoraciones (p.ej., para productos de panadería fina), revestimientos (que no sean de fruta) y salsas dulces | 100 mg/kg |
 06.4.2 | Pastas y fideos deshidratados y productos similares | 100 mg/kg |
 06.4.3 | Pastas y fideos precocidos y productos similares | 100 mg/kg |
-06.5 | Postres a base de cereales y almidón (p ej. pudines de arroz, pudines de mandioca) | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 100 mg/kg |
+06.5 | Postres a base de cereales y almidón (p ej. pudines de arroz, pudines de mandioca) | 100 mg/kg |
 07.0 | Productos de panadería | 100 mg/kg |
 07.1.1 | Panes y panecillos | 100 mg/kg |
 07.2 | Productos de panadería fina (dulces, salados, aromatizados) y mezclas | 100 mg/kg |
@@ -6022,8 +6023,8 @@ No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaci
 12.6.1 | Salsas emulsionadas (p ej., mayonesa, aderezos para ensaladas) | 100 mg/kg |
 13.6 | Complementos alimenticios | BPM |
 14.1.4 | Bebidas a base de agua saborizada, incluidas las bebidas para deportistas, bebidas electrolíticas y bebidas con partículas añadidas | 100 mg/kg |
-14.2.6 | Licores destilados que contengan más de un 15% de alcohol | [imagen] [imagen] 100 mg/kg |
-14.2.7 | Bebidas alcohólicas saborizadas (p.ej., cerveza, vino y bebidas espirituosas tipo refresco, refrescos con bajo contenido de alcohol) | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] 100 mg/kg |
+14.2.6 | Licores destilados que contengan más de un 15% de alcohol | 100 mg/kg |
+14.2.7 | Bebidas alcohólicas saborizadas (p.ej., cerveza, vino y bebidas espirituosas tipo refresco, refrescos con bajo contenido de alcohol) | 100 mg/kg |
 XILITOL INS 967 Función: Agente de carga, emulsificante, humectante, estabilizador, edulcorante, espesante
 No categoría de alimentos | Categoría de alimentos | Nivel máximo | Observaciones
 09.2.1 | Pescado, filetes de pescado y productos pesqueros congelados, incluidos moluscos, crustáceos y equinodermos | BPM | Nota 16 y 142
@@ -10853,7 +10854,7 @@ GOMA DE KARAYA | 416 | 20 mg/kg | FDA 184.1349
 GOMA DE SEMILLAS DE ALGARROBO | 410 | BPM |
 GOMA DE TRAGACANTO | 413 | 2000 mg/kg | FDA 184.1351
 GOMA GUAR | 412 | BPM |
-GOMA XANTANA | 415 | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] BPM | FDA 172.695
+GOMA XANTANA | 415 | BPM | FDA 172.695
 HIDROXIPROPILCELULOSA, METILCELULOSA, METIL ETIL CELULOSA (ETIL METIL CELULOSA) | 464, 463, 461, 465 | BPM |
 NEOTAMO | 961 | BPM | FDA 172.829
 PECTINAS (AMIDADA Y NO AMIDADA) | 440 | BPM |
@@ -10891,7 +10892,7 @@ GOMA DE CAROBA | 410 | 5000 mg/kg | FDA 184.1343
 GOMA DE KARAYA | 416 | 20 mg/kg | FDA 184.1349
 GOMA DE TRAGACANTO | 413 | 1000 mg/kg | FDA 184.1351
 GOMA GUAR | 412 | 20000 mg/kg | FDA 184.1339
-GOMA XANTANA | 415 | [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] [imagen] BPM | FDA 172.695
+GOMA XANTANA | 415 | BPM | FDA 172.695
 HIDROXI PROPIL METILCELULOSA (HIDROXIPROPILCELULOSA, METILCELULOSA, METIL ETIL CELULOSA (ETIL METIL CELULOSA)) | 464, 463, 461, 465 | BPM | FDA 182.1480, 172.870, 172.874 y 172.872
 NEOTAMO | 961 | 65 mg/kg |
 PECTINAS (AMIDADA Y NO AMIDADA) | 440 | 3000 mg/kg |

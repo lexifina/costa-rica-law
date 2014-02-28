@@ -15,3 +15,4 @@ Publica Resolución N° 283-2012 (COMIECO-LXII) del Consejo de Ministros de Inte
 | --- | --- | --- |
 | 1 | 2012-11-14 | la propia norma |
 | 2 | 2013-05-27 | Decreto Ejecutivo 37850 (2013-05-27) |
+| 3 | 2014-02-28 | Decreto Ejecutivo 38432 (2014-02-28) |
