@@ -14,3 +14,4 @@ Publica Resolución N° 216-2007 (COMIECO-XLVII): Reforma Reglamento Técnico Ce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-06 | la propia norma |
+| 2 | 2014-02-28 | Decreto Ejecutivo 38411 (2014-02-28) |
