@@ -26,10 +26,10 @@ Con fundamento en lo dispuesto en los artículos 1, 3, 5, 7, 15, 26, 30, 36, 37,
 RESUELVE:
 1. Aprobar el Reglamento Técnico Centroamericano RTCA 67.01.07:10 ETIQUETADO GENERAL DE LOS ALIMENTOS PREVIAMENTE EN\/ASADOS (PREENVASADOS), en la forma que aparece como Anexo de esta Resolución y forma parte integrante de la misma.
 2. La presente Resolución entrará en vigencia e! 14 de noviembre de 2012 y será publicada por los Estados Parte.
-3. No obstante lo anterior, las empresas contarán con un plazo de hasta seis (6)(*) meses posterior a la entrada en vigencia de este Reglamento para agotar el inventario de las etiquetas con que cuenten,
+3. No obstante lo anterior, las empresas contarán con un plazo de hasta seis (6)(*)(**) meses posterior a la entrada en vigencia de este Reglamento para agotar el inventario de las etiquetas con que cuenten,
 (*)(Mediante artículo 1° de la resolución N° 305-2013 (COMIECO-LXIV) de fecha 15 de mayo 2013, aprobada mediante decreto ejecutivo N° 37850 del 27 de mayo del 2013, se resolvió ampliar el plazo a que se refiere el numeral 3 de la parte resolutiva de la Resolución No. 280-2012 (COMIECO-LXII), hasta el 31 de diciembre del 2013, para que las empresas agoten el inventario de etiquetas)
+(**)(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38432 del 28 de febrero del 2014 "Publica la Resolución N° 334-2013 (COMIECO-LXVI) del 12 de diciembre de 2013 y la Resolución N° 335-2014 (COMIECO-EX) del 17 de enero del 2014: Prórroga de los plazos comprendidos en las resoluciones N° 280-2012 y 277-2011 y 283-2012", que contiene la resolución N° 334-2013 (COMIECO-LXVI) se prorroga por tres meses más el plazo antes establecido, es decir hasta el 30 de junio del 2014)
 Tegucigalpa, Honduras, 14 de mayo de 2012
-[imagen]
 infrascrito Secretario General de la Secretaría de integración Económica Centroamericana (SIECA) CERTIFICA: Que las dos (2) fotocopias que anteceden a la presente hoja de papel bond, impresas únicamente en su anverso, así como las dieciséis (16) del anexo adjunto, impresas en su anverso y reverso, rubricadas y selladas con el sello de la SIECA, reproducen fielmente la Resolución No. 280-2012 (COMIECO-I.XII). adoptada por el Consejo de Ministros de Integración Económica, el catorce de mayo de dos mil doce, de cuyos originales se reprodujeron. Y para remitir a los Estado 3 Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el dieciocho de mayo de dos mil doce. ———-
 REGLAMENTO TECNICO RTCA 67.01.07:10
 CENTROAMERICANO
@@ -211,7 +211,6 @@ Para alimón os que han perdido humedad luego de un tratamiento térmico u otro 
 Cuando la cantidad total del ingrediente o la cantidad total de todos los ingredientes expresados en el etiquetado exceden el 100%, el porcentaje puede ser reemplazado por el peso del ingrediente ) ingredientes usados para preparar 100g de producto terminado.
 7.2. Alimentos irradiados
 7.2.1. La etiqueta de cualquier alimento que haya sido tratado con radiación ionizante debe llevar una declaración escrita indicativa del tratamiento cerca del nombre del alimento. El uso del símbolo internacional (Radura, color verde) indicativo de que el alimento ha sido irradiado, según se muestra abajo es opcional, pero cuando se utilice deberá colocarse cerca del nombre del producto.
-[imagen]
 7.2.2. Cuando un producto irradiado se utilice como ingrediente en otro alimento, deberá declararse esta circunstancia en la lista de ingredientes.
 7.2.3. Cuando un producto que consta de un solo ingrediente se prepara con materia prima irradiada, la etiqueta del producto deberá contener una declaración que indique el tratamiento.
 8. EXENCIONES DE LOS REQUISITOS DE ETIQUETADO OBLIGATORIOS
