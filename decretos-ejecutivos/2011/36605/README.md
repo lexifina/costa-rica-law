@@ -14,3 +14,4 @@ Publica resolución 257-2010 (COMIECO-LIX): Reglamento Técnico Centroamericano 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-13 | la propia norma |
+| 2 | 2014-02-28 | Decreto Ejecutivo 38412 (2014-02-28) |
