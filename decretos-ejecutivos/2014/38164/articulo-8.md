@@ -1,0 +1,1 @@
+Artículo 8º—Tipos de faltas y sanciones. Las faltas podrán ser leves y graves. Las primeras se sancionarán con el apercibimiento oral o escrito; y las segundas, con la suspensión, de uno a treinta días o la pérdida de la investidura.

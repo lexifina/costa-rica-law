@@ -1,0 +1,1 @@
+Artículo 53.—Rendición de Informes. El coordinador de los inspectores municipales de tránsito de cada municipalidad, deberá informar mensualmente por escrito al Departamento de Operaciones Policiales de la Dirección General de la Policía de Transito sobre la labor realizada y boletas de citación confeccionadas.

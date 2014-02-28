@@ -1,0 +1,1 @@
+Artículo 31.—Rendición de informes. El coordinador de los inspectores institucionales de tránsito de cada institución deberá informar mensualmente por escrito al Departamento de Operaciones Policiales de la Dirección General de la Policía de Tránsito sobre la labor realizada y las boletas de citación confeccionadas.

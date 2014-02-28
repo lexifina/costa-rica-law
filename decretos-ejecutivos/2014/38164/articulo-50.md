@@ -1,0 +1,5 @@
+Artículo 50.—Uniforme. La respectiva municipalidad proveerá de uniforme al inspector municipal de tránsito, el cual deberá ser diferente al que usan los oficiales de planta de la Dirección General de la Policía de Tránsito, conforme lo establece el artículo 205 de la Ley 9078.
+Este uniforme, deberá contener al menos un distintivo que permita identificarlo como inspector municipal de tránsito.
+La Dirección General de la Policía de Tránsito proveerá de un carné de identificación al inspector municipal de tránsito, cuyo costo será sufragado por la municipalidad correspondiente
+La camisa del inspector municipal de tránsito, deberá contener en ambas mangas un distintivo con la leyenda “Inspector Municipal de Tránsito”.
+Queda prohibido el uso del uniforme y cualquier distintivo que lo acredite como inspector municipal de tránsito, cuando no se está prestando el servicio al que se refiere este capítulo y en aquellos casos de suspensión o retiro definitivo de la investidura, deberá devolver la totalidad de estos implementos recibidos.

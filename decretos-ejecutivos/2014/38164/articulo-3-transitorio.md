@@ -1,0 +1,1 @@
+Transitorio III.—Quienes a la entrada en vigencia de la Ley N° 9078 hayan aprobado el curso básico para los inspectores de tránsito, impartido por la Escuela de Capacitación de la Dirección General de la Policía de Tránsito, deberán gestionar, recibir y aprobar una actualización en razón de la nueva Ley de Tránsito por la Vías Públicas Terrestres y Seguridad Vial, N° 9078.

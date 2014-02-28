@@ -1,0 +1,1 @@
+Artículo 48.—Registro de sanciones. En el caso de existir suspensión o despido del funcionario investido como inspector municipal de tránsito deberá constar en el expediente del mismo, que llevará el Departamento de Operaciones Policiales de la Dirección General de la Policía de Tránsito.

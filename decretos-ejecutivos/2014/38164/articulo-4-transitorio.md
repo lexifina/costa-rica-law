@@ -1,0 +1,1 @@
+Transitorio IV.—Los cuerpos especiales de inspectores de tránsito, que a la entrada en vigencia del presente Reglamento utilicen un uniforme igual o parecido al estipulado en el artículo 59 de este Reglamento, contarán con un plazo improrrogable de treinta días naturales para modificarlo.

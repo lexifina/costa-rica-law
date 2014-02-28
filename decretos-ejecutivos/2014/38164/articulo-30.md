@@ -1,0 +1,5 @@
+Artículo 30.—Uniforme. La respectiva institución proveerá de uniforme al inspector institucional de tránsito, el cual deberá ser diferente al que usan los oficiales de planta de la Dirección General de la Policía de Tránsito, conforme lo establece el artículo 205 de la Ley 9078.
+Este uniforme deberá contener, al menos, un distintivo que permita identificarlo como inspector institucional de tránsito.
+La Dirección General de la Policía de Tránsito proveerá de un carné de identificación al inspector institucional de tránsito, cuyo costo será sufragado por la institución interesada.
+La camisa del inspector institucional de tránsito, deberá contener en ambas mangas un distintivo con la leyenda “Inspector Institucional de Tránsito”.
+Queda prohibido el uso del uniforme y cualquier distintivo que lo acredite como inspector institucional de tránsito, cuando no se está prestando el servicio al que se refiere este capítulo y en aquellos casos de suspensión o retiro definitivo de la investidura, en cuyo caso deberá también devolver la totalidad de los implementos recibidos de la Dirección General de la Policía de Tránsito.

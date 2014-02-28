@@ -1,0 +1,3 @@
+Artículo 22.—Subordinación laboral. Todos los inspectores institucionales de tránsito a los que se refiere este capítulo, estarán subordinados laboralmente a la respectiva institución que solicita el otorgamiento de la investidura.
+En consecuencia, en ningún caso con motivo del otorgamiento de investidura se generará relación laboral alguna entre el Ministerio de Obras Públicas y Transportes, la Dirección General de la Policía de Tránsito y los investidos.
+No obstante lo anterior, en el cumplimiento de sus funciones, los inspectores institucionales de tránsito deberán acatar los lineamientos que establezca la Dirección General de la Policía de Tránsito, en materia de tránsito y seguridad vial.

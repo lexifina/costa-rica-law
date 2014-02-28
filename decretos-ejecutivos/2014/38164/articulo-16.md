@@ -1,0 +1,2 @@
+Artículo 16.—Efectos del retiro de la investidura. Todo retiro definitivo de investidura se entenderá sin responsabilidad alguna para la Administración.
+El inspector ad-honórem al que se le haya retirado definitivamente la investidura queda inhabilitado para reingresar a este cuerpo especial nuevamente, hasta que haya transcurrido un período de cinco años, contados a partir de la sanción en firme.

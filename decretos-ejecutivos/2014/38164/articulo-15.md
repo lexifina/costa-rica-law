@@ -1,0 +1,1 @@
+Artículo 15.—Registro de sanciones. A partir de la amonestación escrita, toda sanción deberá constar en el expediente que, de cada inspector ad-honórem, llevará el Departamento de Operaciones Policiales de la Dirección General de la Policía de Tránsito.

@@ -1,0 +1,1 @@
+Artículo 42.—Supervisión. El Departamento de la Supervisión Nacional de la Dirección General de la Policía de Tránsito, podrá verificar el cumplimiento de lo dispuesto en la Ley Nº 9078 y este Reglamento sobre la labor del inspector universitario de tránsito. Lo anterior de previo a haber realizado la coordinación con las autoridades universitarias correspondientes.

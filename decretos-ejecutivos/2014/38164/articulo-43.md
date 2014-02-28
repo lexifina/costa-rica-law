@@ -1,0 +1,7 @@
+CAPÍTULO IV
+Inspectores municipales de tránsito
+Artículo 43.—Ámbito de aplicación e investidura. Sin perjuicio de las labores ordinarias de la Policía de Tránsito, las municipalidades podrán contar con un cuerpo especial de inspectores municipales de tránsito que tendrá las atribuciones y competencias que la Ley Nº 9078 les otorga en el artículo 214.
+Corresponderá al Director General de la Policía de Tránsito, previa solicitud por escrito que presente el alcalde de la respectiva municipalidad, otorgar la investidura como inspectores municipales de tránsito a aquellos policías municipales, que cumplan con las disposiciones establecidas en el presente Reglamento.
+A los inspectores municipales de tránsito la Dirección General de la Policía de Tránsito les podrá retirar su investidura en cualquier momento, cuando se compruebe una falta grave y así lo determine el alcalde de la municipalidad.
+Los inspectores municipales de tránsito, podrán confeccionar partes o boletas de citación por las infracciones contempladas en los artículos 96, 143, 144, 145, 146 y 147 de la Ley Nº 9078, dentro del ámbito geográfico de competencia territorial de su cantón. No podrán atender accidentes de tránsito, únicamente podrán custodiar la escena y regular el tránsito en espera de un oficial de planta de la Dirección General de la Policía de Tránsito.
+Los inspectores municipales de tránsito estarán obligados a atender las incidencias de tránsito ocurridas en su cantón que debidamente les comunique la Central de Comunicaciones de la Policía de Tránsito.

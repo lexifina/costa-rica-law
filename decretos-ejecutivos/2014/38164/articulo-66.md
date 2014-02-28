@@ -1,0 +1,1 @@
+Artículo 66.—Derogatoria. Deróguese el Decreto Ejecutivo N° 29065-MOPT, denominado “Reglamento para Policías de Tránsito Ad-Honórem” del 7 de octubre del 2000, publicado en La Gaceta número 220 del 16 de noviembre del 2000.

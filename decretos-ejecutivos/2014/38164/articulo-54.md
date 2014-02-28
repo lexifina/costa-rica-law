@@ -1,0 +1,1 @@
+Artículo 54.—Supervisión. La Unidad de la Supervisión Nacional de la Dirección General de la Policía de Tránsito, podrá verificar el cumplimiento de lo dispuesto en la Ley Nº 9078 y en este Reglamento sobre la labor del Inspector Municipal de Tránsito. Lo anterior de previo haber realizado la coordinación con las autoridades municipales correspondientes.

@@ -1,0 +1,2 @@
+Artículo 18.—Subordinación de los inspectores de tránsito ad-honórem. El Departamento de operaciones policiales de la Dirección General de la Policía de Tránsito fungirá para todos los efectos, como el superior inmediato de los inspectores ad-honórem.
+No obstante lo anterior, en el caso que este servicio ad-honórem se brinde en una Unidad Delegación o Corredor, el Jefe de estas será quien en forma inmediata opere como superior inmediato, sin perjuicio de las potestades que conserva el Departamento de Operaciones Policiales de la Dirección General de la Policía de Tránsito.

@@ -1,0 +1,1 @@
+Artículo 61.—Asignación de códigos de inspector de tránsito específicos. El Consejo de Seguridad Vial asignará códigos de inspector de tránsito específicos y distintos entre sí para cada cuerpo especial, de forma tal, que su numeración se diferencie de los códigos propios del cuerpo de los inspectores de tránsito de la Dirección General de la Policía de Tránsito.

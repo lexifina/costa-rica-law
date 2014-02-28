@@ -1,0 +1,4 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 56.—Cursos de capacitación. La Escuela de Capacitación de la Policía de Tránsito, en coordinación con las dependencias correspondientes del Ministerio de Obras Públicas y Transportes o sus Consejos, diseñará los cursos de capacitación que se impartirán a los candidatos a ser investidos como inspector de tránsito a que se refieren los artículos 212, 213 y 214 de la Ley Nº 9078.
+Igualmente, determinará el valor o el costo de estas capacitaciones, las cuales deberán ser sufragadas por la institución o municipalidad solicitante, cuando así lo determine la Dirección General de la Policía de Tránsito, previo estudio técnico que determine el costo del mismo. El costo de la capacitación de los inspectores ad honórem será asumido por el Ministerio de Obras Públicas y Transportes.

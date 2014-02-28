@@ -1,0 +1,1 @@
+Artículo 28.—Registro de sanciones. En el caso de existir suspensión o despido del funcionario investido como inspector institucional de tránsito deberá constar en el expediente de cada funcionario, que llevará el Departamento de Operaciones Policiales de la Dirección General de la Policía de Tránsito.

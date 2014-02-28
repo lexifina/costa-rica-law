@@ -1,0 +1,3 @@
+Artículo 6º—Bitácora de control. En cada Unidad Delegación o Corredor de la Policía de Tránsito, deberá existir un libro o bitácora, destinado exclusivamente para llevar el control de asistencia y colaboración brindada de los inspectores ad-honórem.
+En esta bitácora se deberá consignar la fecha, hora, lugar y el nombre del oficial de planta de la Dirección General de la Policía de Tránsito que acompaña al oficial ad-honórem durante su colaboración.
+El Jefe o encargado de cada Unidad Delegación o Corredor de la Policía de Tránsito, será el responsable de custodiar dicha Bitácora, la cual deberá estar debidamente legalizada por la Auditoría General del Ministerio de Obras Públicas y Transportes.

@@ -1,0 +1,1 @@
+Artículo 51.—Avituallamiento. El avituallamiento del cuerpo de inspectores municipales de tránsito, corresponderá exclusivamente a cada municipalidad. A los efectos del presente Reglamento, se entenderá por avituallamiento, el suministro de equipo necesario para cumplir sus funciones, medios de transporte y uniformes.

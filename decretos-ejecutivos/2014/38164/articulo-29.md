@@ -1,0 +1,2 @@
+Artículo 29.—Efectos del retiro de la investidura. Todo retiro definitivo de investidura se entenderá sin responsabilidad alguna para el Ministerio de Obras Públicas y Transportes y la Dirección General de la Policía de Tránsito.
+El inspector institucional de tránsito al que se le haya retirado definitivamente la investidura queda inhabilitado para ingresar nuevamente a algún cuerpo especial de los regulados en el presente Reglamento, hasta que haya transcurrido el periodo de cinco años, contados a partir de la sanción en firme.

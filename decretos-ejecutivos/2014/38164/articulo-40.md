@@ -1,0 +1,5 @@
+Artículo 40.—Uniforme. La respectiva universidad pública proveerá de uniforme al inspector universitario de tránsito, el cual deberá ser diferente al que usan los oficiales de planta de la Dirección General de la Policía de Tránsito, conforme lo establece el artículo 205 de la Ley 9078.
+Este uniforme, deberá contener al menos un distintivo que permita identificarlo como inspector universitario de tránsito.
+La Dirección General de la Policía de Tránsito proveerá de un carné de identificación al inspector universitario de tránsito.
+La camisa del inspector universitario de tránsito, deberá contener en ambas mangas un distintivo con la leyenda “Inspector Universitario de Tránsito”.
+Queda prohibido el uso del uniforme y cualquier distintivo que lo acredite como inspector universitario de tránsito, cuando no se está prestando el servicio al que se refiere este capítulo y en aquellos casos de suspensión o retiro definitivo de la investidura, deberá devolver la totalidad de estos implementos recibidos.

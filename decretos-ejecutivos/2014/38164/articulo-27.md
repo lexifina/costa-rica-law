@@ -1,0 +1,2 @@
+Artículo 27.—De las faltas y sanciones. Corresponderá a cada institución sancionar las faltas cometidas por sus funcionarios de conformidad con su reglamento interno.
+En caso de existir suspensión o despido del funcionario investido como inspector institucional de tránsito, la institución deberá comunicar de inmediato al Departamento de Operaciones Policiales de la Dirección General de la Policía de Tránsito, para proceder al retiro de la investidura de dicho inspector.
