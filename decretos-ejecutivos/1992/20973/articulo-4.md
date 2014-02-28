@@ -1,1 +1,0 @@
-Artículo 4°–Queda prohibido usar, con fines propagandísticos y en cualquier medio publicitario, términos que no correspondan a las características y cualidades de las bebidas alcohólicas definidas en esta Norma y estipulados en la etiqueta correspondiente.

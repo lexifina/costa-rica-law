@@ -1,1 +1,0 @@
-Artículo 5°–De acuerdo con lo que disponen los Artículos 9° y 12 del decreto ejecutivo N° 3892-MEIC del 18 de junio de 1974, la Norma Oficial a que se refiere este Decreto es de cumplimiento obligatorio.
