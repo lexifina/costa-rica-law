@@ -15,3 +15,4 @@ Pone vigencia Resolución 176-2006 (COMIECOXXXVIII): Alimentos Procesados Proced
 | --- | --- | --- |
 | 1 | 2007-04-05 | la propia norma |
 | 2 | 2008-01-09 | Decreto Ejecutivo 34490 (2008-01-09) |
+| 3 | 2014-02-28 | Decreto Ejecutivo 38411 (2014-02-28) |

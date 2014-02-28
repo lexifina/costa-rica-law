@@ -110,17 +110,17 @@ _______________________________________________________________________________
 ALIMENTOS PROCESADOS.
 PROCEDIMIENTO PARA OTORGAR EL REGISTRO SANITARIO Y
 LA INSCRIPCIÓN SANITARIA.(*)
-(*) (Este Reglamento fue sustituido totalmente, por Resolución N° 216-2007 (COMIECO-XLVII) publicada mediante decreto ejecutivo N° 34490 del 9 de enero de 2008, por lo que su texto corresponde al presentado en dicha resolución)
+(*) (Este Reglamento fue reformado por Resolución N° 325-2013 (COMIECO-LXVI) de 12 de diciembre de 2013 y su Anexo: Sustitución del literal e) del artículo 4.1 del Reglamento Técnico Centroamericano RTCA 67.01.31:07 Alimentos Procesados, Procedimiento para para Otorgar el Registro Sanitario y la Inscripción Sanitaria, aprobado mediante decreto ejecutivo N° 38411 del 28 de febrero de 2014)
 _______________________________________________________________________________
 CORRESPONDENCIA: Este Reglamento Técnico es una adaptación de la Legislación de los Países Centroamericanos en materia de Registro Sanitario.
 ICS 67.020 RTCA 67.01.31:07
 ____________________________________________________________
 Reglamento Técnico Centroamericano, editado por:
-§ Ministerio de Economía MINECO
-§ Consejo Nacional de Ciencia y Tecnología, CONACYT
-§ Ministerio de Fomento, Industria y Comercio, MIFIC
-§ Secretaría de Industria y Comercio, SIC
-§ Ministerio de Economía, Industria y Comercio, MEIC
+· Ministerio de Economía MINECO
+· Consejo Nacional de Ciencia y Tecnología, CONACYT
+· Ministerio de Fomento, Industria y Comercio, MIFIC
+· Secretaría de Industria y Comercio, SIC
+· Ministerio de Economía, Industria y Comercio, MEIC
 INFORME
 Los respectivos Comités Técnicos de Normalización o Reglamentación Técnica a través de los Entes de Normalización o Reglamentación Técnica de los países centroamericanos o sus sucesores, son los organismos encargados de realizar el estudio o la adopción de los Reglamentos Técnicos. Están conformados por representantes de los sectores Académico, Consumidor, Empresa Privada y Gobierno.
 Este documento fue aprobado como Reglamento Técnico Centroamericano, RTCA 67.01.31:07, Alimentos procesados. Procedimiento para otorgar el registro sanitario y la inscripción sanitaria, por el Subgrupo de Alimentos y Bebidas y el Subgrupo de Medidas de Normalización. La oficialización de este reglamento técnico, conlleva la aprobación por el Consejo de Ministros de Integración Económica Centroamericana (COMIECO).
@@ -128,23 +128,26 @@ MIEMBROS PARTICIPANTES
 Por Guatemala
 Ministerio de Salud y Asistencia Social
 Por El Salvador
-Ministerio de Salud Pública y Asistencia Social
+Ministerio de Salud Publica y Asistencia Social
 Por Nicaragua
 Ministerio de Salud
 Por Honduras
 Secretaria de Salud
 Por Costa Rica
 Ministerio de Salud
-1. OBJETO. El presente Reglamento Técnico, establece el procedimiento para otorgar el registro sanitario y la inscripción sanitaria de alimentos, procesados.
-2. ÁMBITO DE APLICACIÓN. Las disposiciones de este procedimiento:
+l. OBJETO
+El presente Reglamento Técnico, establece el procedimiento para otorgar el registro sanitario y la inscripción sanitaria de alimentos, procesados.
+2. ÁMBITO DE APLICACION
+Las disposiciones de este procedimiento:
 2.1 Se aplica a los alimentos procesados comercializados en los Estado Parte.
-2.2 No aplica a los alimentos no procesados, materias primas, y aditivos alimentarios.
-3. DEFINICIONES. En la aplicación de este procedimiento se utilizarán las definiciones siguientes:
-3.1 Alimento: es toda sustancia procesada, semiprocesada y no procesada, que se destina para la ingesta humana, incluidas las bebidas, goma de mascar y cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento del mismo, pero no incluye los cosméticos, el tabaco ni los productos que se utilizan como medicamentos.
+2.2 No aplica a los alimentos no procesados , materias primas , y aditivos alimentarios.
+3. DEFINICIONES
+En la aplicación de este procedimiento se utilizarán las definiciones siguientes:
+3.1 Alimento: es toda sustancia procesada, semiprocesada y no procesada, que se destina para la ingesta humana, incluidas las bebidas, goma de mascar y cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento del mismo, pero no incluye los cosméticos, el tabaco ni los productos que se utilizan como medicamentos
 3.2 Alimento no procesado: es el alimento que no ha sufrido modificaciones de origen físico, químico o biológico, salvo las indicadas por razones de higiene o por la separación de partes no comestibles.
 3.3 Alimento procesados: el alimento que ha sido sometido a un proceso tecnológico adecuado para su conservación.
 3.4 Alimento semiprocesado: es el alimento que ha sido sometido a un proceso tecnológico adecuado para su conservación y que requiere de un tratamiento previo a su consumo ulterior.
-3.5 Certificado de Libre Venta: documento emitido por la entidad responsable que indique que el producto es de libre venta y consumo en el país de procedencia o de origen según la legislación de cada país.
+3.5 Certificado de Libre Venta: documento emitido por la entidad responsable que indique que el producto es de libre venta y consumo en el país de procedencia o de origen según la legislación de cada país
 3.6 Estado Parte o Parte: cada uno de los países centroamericanos
 3.7 Evaluación de la conformidad: todo procedimiento utilizado, directa o indirectamente, para determinar que se cumplen las especificaciones pertinentes de los reglamentos técnicos.
 3.8 Inscripción sanitaria: es la autorización para la comercialización que se le otorga a un importador o distribuidor de un producto que ya ha sido registrado previamente.
@@ -152,11 +155,12 @@ Ministerio de Salud
 3.10 Materia prima: es toda sustancia o mezcla de sustancia que para ser utilizada como alimento procesado, requiere sufrir alguna transformación de naturaleza química, física o biológica.
 3.11 Número de registro: es el Código alfanumérico asignado por la autoridad sanitaria a un producto.
 3.12 Procesamiento de alimentos: son todas o cualquiera de las operaciones que se efectúan sobre la materia prima hasta el alimento terminado.
-3.13 Registro sanitario: procedimiento establecido, por el cual los alimentos procesados son aprobados por la autoridad sanitaria de cada Estado Parte para su comercialización.
+3.13 Registro sanitario: procedimiento establecido, por el cual los alimentos procesados son aprobados por -la autoridad sanitaria de cada Estado Parte para su comercialización.
 3.14 Renovación de registro e inscripción sanitaria: es el acto por medio del cual la autoridad sanitaria extiende la vigencia del registro sanitario o inscripción sanitaria.
 3.15 Titular: Es la persona que responde legalmente por el producto registrado, puede ser una persona natural o jurídica.
 4. REQUISITOS Y MECANISMOS PARA EL OTORGAMIENTO DEL REGISTRO SANITARIO
-4.1 Requisitos para registro. Los trámites de registro sanitario, inscripción sanitaria, renovación o reconocimiento del registro ante la autoridad competente, podrán ser realizados por cualquier persona natural o jurídica. No necesariamente debe ser un profesional de derecho.
+4.1 Requisitos para registro.
+Los trámites de registro sanitario, inscripción sanitaria, renovación o reconocimiento del registro ante la autoridad competente, podrán ser realizados por cualquier persona natural o jurídica. No necesariamente debe ser un profesional de derecho.
 Para la obtención del Registro Sanitario se deberá presentar ante la autoridad sanitaria del Estado Parte lo siguiente:
 a) Solicitud conteniendo la información indicada a continuación:
 Datos del titular
@@ -165,38 +169,38 @@ Datos del titular
 -Nombre del representante legal
 -Número del documento de identificación
 -Dirección exacta del solicitante
--Teléfono(s), fax, correo electrónico
+-Teléfono (s), Fax, correo electrónico
 -Dirección exacta de la bodega o distribuidora, teléfono, fax, correo electrónico
--Firma del titular de la empresa solicitante.
+-Firma del titular de la empresa solicitante
 Datos del fabricante
 -Nombre de la fábrica (tal como aparece en la licencia) indicar si es nacional o extranjera
--Número de licencia o permiso y vigencia de la licencia o permiso de la fábrica o bodega
--Dirección exacta de la fábrica, teléfono, fax, correo electrónico.
+-Número de licencia o permiso y vigencia de la, licencia o permiso de la fábrica o bodega
+-Dirección exacta, de la fábrica, teléfono , fax, correo electrónico
 Datos del producto
 -Nombre del producto a registrar
--Marca del producto
+-Marca del producto:
 -Tipo de producto
 -Contenido neto del producto
--Nº de Registro Sanitario, en caso de renovación.
--País de procedencia.
+-No. de Registro Sanitario, en caso de renovación.
+-País de procedencia .
 b) Todos los productos que soliciten el Registro Sanitario deberán cumplir con lo especificado en la reglamentación técnica o las fichas técnicas aprobadas por El Salvador, Guatemala, Honduras y Nicaragua a excepción de Costa Rica que no aplicará las fichas técnicas.
 c) Copia de la licencia sanitaria o permiso de funcionamiento vigente para la fábrica, para productos de fabricación nacional o de la bodega para productos de fabricación en el extranjero.
 d) Certificado de libre venta de origen o de procedencia, según la legislación de cada país, para productos importados de terceros países.
-e) Etiqueta original para los productos importados y nacionales que ya estén en el mercado, (proyecto o bosquejo de etiqueta para los productos de primer registro) en caso de que la etiqueta se encuentre en un idioma diferente al español está deberá presentar su traducción. Deberá cumplir con la reglamentación centroamericana (Nota 1).
-Nota 1:
-Mientras no entre en vigencia el Reglamento Técnico Centroamericano de Etiquetado de Alimentos Preenvasados, cada país aplicará las normativas vigentes.
+e) Etiqueta original. En el caso de aquellos alimentos que no se hayan comercializado en el territorio del Estado Parte y que soliciten su registro, podrán presentar un proyecto o bosquejo de etiqueta. Cuando la etiqueta se encuentre en un idioma diferente al español se deberá presentar su traducción. La etiqueta deberá cumplir con la legislación centroamericana vigente en materia de etiquetado.
+Nota: Para el caso de las renovaciones se presentará la etiqueta original del producto.
 f) Comprobante de pago.
 g) Muestra del producto, cuando se realicen análisis previos al Registro Sanitario según la establece la legislación de cada país.
 h) Adicionalmente en El Salvador se solicitará información sobre el material (es) del que está fabricado el envase(s).
 4.2 Mecanismo para registro
 a) El interesado presenta ante la autoridad sanitaria los requisitos completos establecidos en el numeral 5, del presente procedimiento.
 b) La autoridad sanitaria verifica el cumplimiento de la documentación presentada.
-c) La autoridad sanitaria ingresa los expedientes con documentación completa.
-d) Cuando corresponda, serán remitidas las muestras al laboratorio para su respectivo análisis, según lo establecido en el cuadro de determinaciones analíticas (resolución COMIECO 121-2004).
+e) La autoridad sanitaria ingresa los expedientes con documentación completa.
+d) Cuando corresponda, serán remitidas las muestras al . laboratorio para su respectivo análisis, según lo establecido en el cuadro de determinaciones analíticas (resolución COMIECO 121- 2004).
 e) Como constancia de que un producto ha sido registrado, la autoridad sanitaria extenderá una certificación o resolución en la que constará el número de registro sanitario.
-f) A los productos de un mismo fabricante, que tienen la misma fórmula y que varían únicamente su forma, presentación, nombre o marca, se le asignará un único número de registro.
-5. REQUISITOS Y MECANISMOS PARA LA INSCRIPCIÓN SANITARIA
-5.1 Requisitos para la inscripción sanitaria. Para la inscripción de un producto alimenticio que ya tiene registro sanitario deberá cumplir con los siguientes aspectos:
+f) A los productos de un mismo fabricante, que tienen la misma fórmula y que varían únicamente su forma, presentación, nombre o marca, se le asignará un único número de registro
+5. REQUISITOS Y MECANISMQS PARA LA INSCRIPCIÓN SANITARIA
+5.1 Requisitos para la inscripción sanitaria
+Para la inscripción de un producto alimenticio que ya tiene registro sanitario deberá cumplir. con los siguientes aspectos:
 a) Solicitud con los datos siguientes:
 -Lugar y fecha de presentación de la solicitud de inscripción sanitaria
 -Número de registro sanitario del producto
@@ -205,33 +209,35 @@ a) Solicitud con los datos siguientes:
 -Nombre del propietario o representante legal de la empresa
 -Dirección exacta de la empresa
 -Teléfonos, fax y correo electrónico de la empresa
--Número de licencia sanitaria y fecha de vencimiento
--Firma del importador.
+-Número de licencia sanitaria y fecha de vencimiento:
+-Firma del importador
 Identificación y caracterización del producto
--Nombre del fabricante o productor
+-Nombre del fabricante o productor:
 -Nombre del país en donde es fabricado el producto
 -Nombre comercial del producto sujeto de inscripción
 -Marca del producto
 b) Licencia sanitaria de la bodega de almacenamiento del producto.
-c) Comprobante de pago.
-5.2 Mecanismo para inscripción sanitaria
-a) El interesado presenta ante la autoridad sanitaria los requisitos establecidos en el numeral 5.1 respectivamente.
+e) Comprobante de pago.
+5.2 Mecanismo para Inscripción sanitaria
+a) El interesado presenta ante la autoridad sanitaria los requisitos establecidos en el numeral 5. 1 respectivamente.
 b) La autoridad sanitaria verificará que el producto se encuentre debidamente registrado y que ha cumplido con los requisitos.
 c) La autoridad sanitaria extenderá una certificación o resolución de inscripción sanitaria del producto donde especifica la fecha de vencimiento de la inscripción.
 d) Se inscribe como responsable del producto al importador o distribuidor del mismo.
-6. RENOVACIÓN DEL REGISTRO SANITARIO Y LA INSCRIPCIÓN SANITARIA. El registro y la inscripción podrán ser renovados, presentando los requisitos establecidos en el numeral 4 y 5 respectivamente. La inscripción solo podrá renovarse si el producto tiene vigente el registro.
-7. MODIFICACIONES DESPUÉS DE OTORGADO EL REGISTRO SANITARIO. Los cambios en la información o condiciones bajo las cuales se otorgó el registro de un alimento, la inscripción sanitaria, deben ser notificados a las autoridades competentes, y presentar según el caso la siguiente documentación:
+6. RENOVACION DEL REGISTRO SANITARIO Y LA INSCRIPCION SANITARIA
+El registro y la inscripción podrán ser renovados, presentando los requisitos establecidos en el numeral 4 y 5 respectivamente. La inscripción solo podrá renovarse si el producto tiene vigente el registro.
+7. MODIFICACIONES DESPUÉS DE OTORGADO EL REGISTRO SANITARIO
+Los cambios en la información o condiciones bajo las cuales se otorgó el registro de un alimento, la inscripción sanitaria, deben ser notificados a las autoridades competentes, y presentar según el caso la siguiente documentación:
 7.1 Cambio de razón social del solicitante:
 a) Solicitud del cambio
 b) Documento Legal que certifica el cambio
 c) Certificado original del registro
-d) Personería jurídica original, o escritura pública de la nueva razón social del solicitante.
+d) Personería jurídica original, o escritura pública de la nueva razón social del solicitante
 7.2 Cambio de casa fabricante:
 a) Solicitud el cambio
 b) Verificación de la vigencia de la licencia sanitaria del nuevo fabricante.
 c) Si el producto es fabricado en el extranjero presentar el Certificado de Libre Venta.
 d) Certificados original del registro
-e) Nuevo proyecto de etiquetado o etiqueta original
+e) Nuevo proyecto de etiquetado o etiqueta original.
 f) Muestras para análisis, cuando aplique.
 7.3 Cambio en la lista de ingredientes:
 a) Solicitud del cambio
@@ -244,11 +250,15 @@ c) Certificado original del registro
 7.5 Cambio o ampliación de marca o de nombre del producto
 a) Solicitud del cambio
 b) Certificado original del registro
-c) Nuevo proyecto de etiquetado o etiqueta original.
-8. VIGENCIA DEL REGISTRO Y LA INSCRIPCIÓN SANITARIA. El registro sanitario tendrá vigencia por un período de cinco años. La inscripción sanitaria tendrá el tiempo de vigencia que le quede al registro, en el momento de inscribirse el producto.
-9. COSTO DEL REGISTRO, RENOVACION E INSCRIPCIÓN SANITARIA. Cada Estado Parte establecerá las tarifas por derecho a registro, inscripción, renovación modificaciones después de otorgado el registro y vigilancia sanitaria.
-10. VIGILANCIA Y VERIFICACIÓN. Corresponde la vigilancia y verificación de este Reglamento Técnico a los Ministerios o Secretarías de Salud de cada Estado Parte.
----FIN DEL REGLAMENTO—
+c) Nuevo proyecto de etiquetado o etiqueta original
+8. VIGENCIA DEL REGISTRO Y LA INSCRIPCION SANITARIA
+El registro sanitario tendrá vigencia por un período de cinco años. La inscripción sanitaria tendrá el tiempo de vigencia que le quede al registro, en el momento de inscribirse el producto.
+9. COSTO DEL REGISTRO, RENOVAClON E INSCRIPCIÓN SANITARIA
+Cada Estado Parte establecerá las tarifas por derecho a registro, inscripción , renovación
+modificaciones después de otorgado el registro y vigilancia sanitaria.
+10. VIGILANCIA Y VERIFICACIÓN
+Corresponde la vigilancia y verificación de este Reglamento Técnico a los Ministerios o Secretarías de Salud de cada Estado Parte.
+-FIN DEL REGLAMENTO-
 Anexo 3 de la Resolución Nº 176-2006 (COMIECO-XXXVIII)
 RTCA 67.01.32:06
 REGLAMENTO TÉCNICO CENTROAMERICANO
@@ -733,7 +743,6 @@ e) Vehículos que transportan alimentos refrigerados o congelados cuentan con me
 SUB TOTAL | | |
 | | |
 | | | | | |
-[imagen]
 Anexo B (Normativo)
 Guía para el Llenado de la Ficha de Inspección de las Buenas Prácticas de Manufactura
 para las Fábricas de Alimentos y Bebidas, Procesados
