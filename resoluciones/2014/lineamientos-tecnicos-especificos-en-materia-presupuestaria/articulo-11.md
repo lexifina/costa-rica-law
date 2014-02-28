@@ -1,0 +1,1 @@
+11 Del Registro de Proveedores. Las instituciones que utilizan el Sistema Unificado Electrónico de Compras Públicas, deberán apoyarse en el Registro de Proveedores que provee esta herramienta, que será la base de datos oficial y única en la cual se inscribirán aquellos proveedores comerciales que deseen contratar con la Administración Central.
