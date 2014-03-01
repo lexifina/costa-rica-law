@@ -1,0 +1,1 @@
+Artículo 3º—A partir de la vigencia de la presente resolución, todos los vehículos fabricados a partir del año 1983, que se importen al país, deberán contar obligatoriamente con el número de identificación vehicular (VIN) el cual deberá ser suministrado a la Administración Tributaria y/o Aduanera para efectos de determinar el año modelo.

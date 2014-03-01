@@ -1,0 +1,1 @@
+Artículo 6º—Cuando exista dificultad para la Administración Tributaria y/o Aduanera en decodificar el VIN, deberá el importador suministrar la información y documentación del fabricante que permita establecer en forma clara y precisa, el año modelo del vehículo y determinar así el valor correspondiente respecto a esa condición o característica del vehículo.

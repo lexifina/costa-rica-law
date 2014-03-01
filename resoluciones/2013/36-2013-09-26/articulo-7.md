@@ -1,0 +1,1 @@
+Artículo 7º—En casos de excepción por no existir obligación establecida por la norma ISO para usar el espacio normado y el fabricante utiliza otro dígito, deberá el importador demostrar a la Administración Tributaria y/o Aduanera en qué digito se define el año modelo correspondiente a ese vehículo.

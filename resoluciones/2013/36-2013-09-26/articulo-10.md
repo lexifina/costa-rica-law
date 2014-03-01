@@ -1,0 +1,1 @@
+Artículo 10.—Esta resolución deja sin efecto la resolución RES-DGA-033-2013 del 8 de febrero del 2013, las circulares DGA- 007-2006 del 21 de julio de 2006, 003-89-DV de 26 de setiembre de 1989, DV-004-89 del 10 de noviembre de 1989, DGA-004-90 del 7 de febrero de 1990, DGA 011-90 del 25 de febrero de 1990 y DGA- 016-90 del 23 de mayo de 1990.

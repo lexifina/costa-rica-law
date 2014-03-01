@@ -1,0 +1,1 @@
+Artículo 8º—Cuando se requiera comprobar el año modelo o el VIN, mediante documentos emitidos en el extranjero, corresponde al importador demostrar su valor legal y autenticidad mediante el cumplimiento del procedimiento que corresponde de conformidad con la normativa aplicable en esa materia.

@@ -1,0 +1,3 @@
+Artículo 2º—Para todos los efectos, cuando la ley o la presente resolución, utilice los siguientes términos o expresiones, debe dárseles las acepciones que a continuación se indican:
+a) Año o año modelo: Es el año calendario en que el vehículo es producido, diseñado o el año modelo del vehículo determinado por el fabricante.
+b) Número de identificación vehicular (VIN): Es un número de identificación denominado internacionalmente Vehicle Identification Number (VIN) y consiste en una secuencia de dígitos cuyo objetivo es que permita identificar e individualizar los vehículos de motor de cualquier tipo, entre los cuales aparece el correspondiente al año modelo o el año de fabricación.

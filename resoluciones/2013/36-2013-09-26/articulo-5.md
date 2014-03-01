@@ -1,0 +1,1 @@
+Artículo 5º—Tratándose de los vehículos cuyo año modelo o fabricación son anteriores a 1983, deberá el importador aportar ante la Administración Tributaria y/o Aduanera, documento idóneo del fabricante, que permita interpretar el significado de cada uno de los caracteres incluidos en el número de identificación vehicular, en especial el relativo al año modelo.
