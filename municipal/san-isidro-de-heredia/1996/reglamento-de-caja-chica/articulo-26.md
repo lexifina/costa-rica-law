@@ -1,1 +1,0 @@
-Artículo 26.-En caso de que se produzca un sobrante deberá ser depositado en la cuenta corriente de la municipalidad a productos diversos y efectuar la revisión pertinente para determinar su origen. En caso de no poder determinar, la suma sobrante será liquidada al finalizar el ejercicio anual.

@@ -1,1 +1,0 @@
-Artículo 24.-Si al revisar el arqueo resultara un faltante, el encargado de la caja chica deberá suplirlo con sus propios recursos en un lapso máximo de dos días hábiles después de la fecha en que haya sido efectuado el arqueo.
