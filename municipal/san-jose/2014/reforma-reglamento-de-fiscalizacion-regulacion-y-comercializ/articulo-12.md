@@ -1,0 +1,2 @@
+Artículo 12.—Modifíquese el artículo 45, para que se lea:
+“Artículo 45.- Cuando concurra la situación jurídica dispuesta en el artículo 16 de la Ley número 9047, respecto a la contenida en el artículo 22 de ese mismo cuerpo normativo; la Municipalidad deberá tramitar en sede administrativa la sanción contenida en el numeral 16, y hará de conocimiento de la autoridad judicial competente la situación detectada para la aplicación y trámite de lo dispuesto en el artículo 22 de dicha Ley.”
