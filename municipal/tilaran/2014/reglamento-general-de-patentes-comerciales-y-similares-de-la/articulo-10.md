@@ -1,0 +1,1 @@
+Artículo 10.—De la caducidad. La licencia caducará contado el plazo de tres meses cuando resulte evidente el abandono de la actividad lucrativa, previo informe del Inspector Municipal designado al efecto.
