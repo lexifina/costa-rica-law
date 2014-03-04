@@ -1,18 +1,7 @@
-Artículo 8º—Información mínima del cliente persona física. El expediente del cliente persona física debe contener, como mínimo, identificación del cliente mediante copia vigente de la cédula de identidad para nacionales, pasaporte completo para extranjeros no residentes y cédula de residencia para extranjeros residentes en el país. La Política debe detallar los requisitos adicionales y métodos de identificación que deben cumplir los extranjeros residentes y los no residentes para abrir una cuenta.
-Asimismo, el expediente debe incluir lo siguiente:
-a) Fecha de apertura de la cuenta, producto o servicio.
-b) Código del cliente (en caso de que exista).
-c) Nombre completo.
-d) Nacionalidad (es), fecha y lugar de nacimiento (indicando el país).
-e) Estado civil.
-f) Sexo (M) o (F).
-g) Dirección exacta de la residencia permanente (indicada con puntos cardinales, incluyendo provincia, cantón, distrito y otras señas específicas como características físicas del domicilio).
-h) Dirección electrónica.
-i) Número de teléfono y de fax.
-j) Profesión y ocupación.
-k) Nombre del patrono, o la naturaleza de sus negocios si desarrolla actividades independientes.
-l) Determinar si el cliente es una persona políticamente expuesta (PEPs).
-m) Propósito y naturaleza de la relación comercial.
-n) Descripción de la fuente u origen de los fondos que justifican las transacciones a realizar, por ejemplo: salario, honorarios, operación del negocio, herencia, rentas, entre otros; la que debe estar respaldada mediante información de bases de datos de entidades públicas o comerciales, órdenes patronales, certificaciones de ingresos, constancias de salario, listado de patronos, entre otros.
-Los sujetos fiscalizados pueden prescindir de solicitar la documentación que respalde el origen de los fondos, cuando los clientes realicen transacciones mensuales por ingresos inferiores a dos salarios base o de un salario base en el caso de las remesadoras (según lo establecido en la Ley Nº 7337), en colones o su equivalente en otra moneda. Si un cliente modifica su patrón transaccional o aumenta el monto mensual por encima del límite establecido en este artículo, el sujeto fiscalizado está en la obligación de requerir al cliente en forma inmediata la documentación que respalde el nuevo patrón transaccional.
-o) Cuantía mensual estimada de las operaciones que efectuará en la entidad.
+Artículo 8°—Información mínima del cliente persona física. El expediente debe contener como mínimo la siguiente información:
+a) Documentos de identificación: copia vigente de la cédula de identidad para nacionales, copia de las hojas del pasaporte que contenga información en el caso de extranjeros no residentes, y copia de los documentos de identificación aceptados por la Dirección General de Migración y Extranjería para extranjeros residentes y documentos de identificación de diplomáticos emitidos por el Ministerio de Relaciones Exteriores y Culto. Dicha información podrá ser obtenida de bases de datos oficiales y ser almacenada de forma electrónica.
+b) Datos personales: nombre completo; nacionalidad (es); fecha y lugar de nacimiento (indicando el país); estado civil; sexo (M) o (F); dirección exacta de la residencia permanente (indicada con puntos cardinales, incluyendo provincia, cantón, distrito y otras señas específicas como características físicas del domicilio); dirección electrónica; número de teléfono y de fax.
+c) Datos de la actividad: profesión y ocupación; nombre del patrono, o la naturaleza de sus negocios si desarrolla actividades independientes; propósito y naturaleza de la relación comercial; determinar si el cliente es una persona políticamente expuesta (PEPs); cuantía mensual estimada de las operaciones que efectuará en la entidad; descripción de la fuente u origen de los fondos que justifican las transacciones a realizar, por ejemplo: salario, honorarios, operación del negocio, herencia, rentas, entre otros, la que debe estar respaldada mediante información de bases de datos de entidades públicas o comerciales, órdenes patronales, certificaciones de ingresos emitidas por contador público, estados patrimoniales certificados o dictaminados por contador público, constancias de salario, listado de patronos, entre otros.
+Los sujetos fiscalizados pueden prescindir de solicitar la documentación que respalde el origen de los fondos, cuando los clientes realicen transacciones mensuales por ingresos inferiores a dos salarios base o de un salario base en el caso de las remesadoras (según lo establecido en la Ley 7337), en colones o su equivalente en otra moneda. Si un cliente modifica su patrón transaccional sustancialmente, de conformidad con las políticas establecidas al efecto por la entidad, o bien aumenta el monto mensual por encima del límite establecido en este artículo, el sujeto fiscalizado está en la obligación de requerir al cliente en forma inmediata la documentación que respalde el nuevo patrón transaccional.
+d) Otros datos generales: fecha de inicio de la relación comercial; código del cliente (en caso de que exista).
+(Así reformado mediante sesiones N° 1094-2014 y 1095-2014 del 4 de marzo del 2014)
