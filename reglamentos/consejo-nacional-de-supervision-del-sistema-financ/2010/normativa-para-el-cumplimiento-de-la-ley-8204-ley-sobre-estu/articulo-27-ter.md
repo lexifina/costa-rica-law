@@ -1,0 +1,13 @@
+Artículo 27 TER.—Autorización y revocatoria de la solicitud. La solicitud para autorizar el Oficial de cumplimiento titular corporativo y/o Oficial adjunto de cumplimiento corporativo debe estar suscrita por el representante legal de la controladora y debe adjuntar la documentación que respalde los siguientes requisitos:
+a) La existencia y puesta en práctica de mecanismos que permitan asegurar la adopción de sanas prácticas de gobierno corporativo.
+b) Propuesta de políticas y procedimientos para una Oficialía de Cumplimiento Corporativa.
+c) Propuesta de modificaciones a la estructura organizacional.
+d) Propuesta de recursos humanos y presupuesto que se asignaría para la Oficialía de Cumplimiento Corporativa.
+e) Sistemas de monitoreo y sistema de información gerencial.
+f) Programas de seguimiento aprobados por la administración que le permitan al grupo o conglomerado financiero asegurarse del cumplimiento del marco normativo vigente.
+g) Copia certificada del acta del acuerdo de la Junta Directiva de cada una de las entidades integrantes del grupo o conglomerado financiero, autorizando el nombramiento del oficial de cumplimiento titular y/o adjunto de manera corporativa.
+h) Copia de los informes de los auditores externos y resumen de los principales hallazgos determinados por la auditoría interna de cada supervisado en materia de legitimación de capitales y financiamiento al terrorismo, emitidos en el último año.
+i) Propuesta del Plan de trabajo anual de la Oficialía de cumplimiento corporativo, detallado por cada una de las empresas integrantes del grupo o conglomerado financiero.
+j) En lo pertinente, para las personas inscritas por artículo 15 de la Ley 8204, la solicitud debe acompañarse de la copia certificada del acuerdo de Junta Directiva y certificación extendida por notario público con vista en el libro de accionistas sobre la estructura de la propiedad, para cada una de las personas jurídicas involucradas, e indicar con cuál de las sociedades los oficiales de cumplimiento establecerían su relación laboral.
+Los grupos o conglomerados financieros estarán obligados a nombrar una oficialía de cumplimiento para cada sujeto supervisado, cuando no se esté cumpliendo con el marco normativo vigente. En cualquier tiempo, cuando la Superintendencia responsable de la supervisión de una entidad determine que no se ejecutan las actividades de control y prevención, las ejecuta de manera inadecuada, o bien, cuando las mismas no resulten eficaces, eficientes u oportunas, pondrá en conocimiento de la Superintendencia competente la situación con el fin de que resuelva la revocatoria de la autorización.
+(Así adicionado mediante sesiones N° 1094-2014 y 1095-2014 del 4 de marzo del 2014)
