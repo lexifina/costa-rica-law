@@ -1,0 +1,2 @@
+Artículo 4º—Se deroga del “REGLAMENTO DE REGULACIÓN Y COMERCIALIZACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO PARA LOS CANTONES DE CAÑAS, BAGACES, NANDAYURE HOJANCHA Y TILARÁN” publicado en el Diario Oficial La Gaceta Nº 225 del 21 de noviembre de 2012, el artículo 19, el inciso 7 del artículo 30, inciso 3) del artículo 31, artículo 37 y el inciso f) del artículo 39.
+Nandayure, 30 de enero del 2014.—
