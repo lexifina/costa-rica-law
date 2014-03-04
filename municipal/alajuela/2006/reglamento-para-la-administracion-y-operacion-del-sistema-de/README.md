@@ -14,3 +14,4 @@ Reglamento para la Administración y Operación del Sistema de Estacionamiento e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-17 | la propia norma |
+| 2 | 2014-03-04 | Reglamento municipal 9 (2014-03-04) |
