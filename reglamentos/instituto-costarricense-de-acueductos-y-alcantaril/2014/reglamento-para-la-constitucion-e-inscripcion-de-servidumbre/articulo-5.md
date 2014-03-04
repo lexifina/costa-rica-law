@@ -1,0 +1,1 @@
+Artículo 5º—El área funcional de Topografía tendrá a disposición de los clientes ejemplos de planos e información sobre los detalles que éstos deben contener, como guía para su correcta elaboración por parte de los profesionales en topografía.

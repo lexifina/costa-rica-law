@@ -1,0 +1,2 @@
+II. Plano de agrimensura de la servidumbre:
+Artículo 2º—Para la constitución mediante escritura pública de servidumbres de acueducto y/o alcantarillado y de paso a favor del AyA para el otorgamiento de servicios, corresponderá al Instituto, a través del área funcional de Topografía de la UEN de Programación y Control, la revisión y aprobación previa de uno o varios planos de una o más servidumbres, según corresponda, que presentará el interesado para dicho fin.

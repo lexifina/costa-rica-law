@@ -1,0 +1,1 @@
+Artículo 8º—Recibida la solicitud, y una vez verificada la admisibilidad de la gestión, se procederá con la revisión del documento, con el fin de notificar por escrito y en un plazo que no excederá los quince días naturales, ya sea la aprobación o bien las observaciones para tomar en consideración.
