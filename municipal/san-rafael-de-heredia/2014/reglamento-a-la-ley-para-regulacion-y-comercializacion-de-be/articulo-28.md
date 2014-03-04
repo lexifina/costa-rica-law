@@ -1,0 +1,2 @@
+Artículo 28.—Pago de derechos. En caso de autorizarse la licencia temporal, cuando proceda, previo informe técnico, se prevendrá por una única vez al solicitante de realizar el pago de los derechos de dicha licencia, como condición para la emisión de la resolución final correspondiente.
+Los fondos recaudados por el cobro de licencia temporal serán destinados al pago de recolección y limpieza de calles públicas

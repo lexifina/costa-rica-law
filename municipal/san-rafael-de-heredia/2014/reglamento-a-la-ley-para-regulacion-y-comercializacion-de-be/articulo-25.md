@@ -1,0 +1,1 @@
+Artículo 25.—No se otorgarán licencias para la comercialización de bebidas con contenido alcohólico en los centros educativos públicos o privados, iglesias o instalaciones donde se celebren actividades religiosas y CEN-CINAE. En centros deportivos, públicos o privados, estadios y gimnasios, y campos donde se desarrollen actividades deportivas.

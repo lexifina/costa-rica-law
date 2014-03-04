@@ -1,0 +1,13 @@
+Artículo 11.—Pago de derechos trimestrales. De conformidad con el artículo 10 de la Ley, se establecen los siguientes derechos que deberán pagar los patentados de forma trimestral por anticipado, según el tipo de licencia:
+a. Licencia clase A: De un cuarto de salario base hasta un salarios base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+b. Licencia clase B: De un octavo de salario base hasta medio salario base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+c. Licencia clase C: De un octavo hasta medio salario base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de de San Rafael de Heredia.
+d. Licencia clase D1: De un cuarto de salario base hasta un salarios base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+e. Licencia clase D2: De medio salarios base y hasta uno y medio salarios base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+e. Licencia clase E1a: De un octavo salarios base y medio salario base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+e. Licencia clase E1b: De un curto salario base y hasta un salario base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+e. Licencia clase E2: De medio salarios base y hasta uno y medio salarios base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+e. Licencia clase E3: De un cuarto salario base y hasta un salarios base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+e. Licencia clase E4: De un medio salario base y hasta uno y medio salarios base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+e. Licencia clase E5: De un cuarto salario base y hasta un salarios base; la determinación tributaria se realizará de conformidad con la ley número 9047, Ley de Patentes del Cantón de San Rafael de Heredia.
+La categorización se hará de acuerdo a los criterios de equidad y justicia, los indicadores de desempeño, potencial de explotación, ubicación e infraestructura del local comercial, según el manual de categorización anexo.

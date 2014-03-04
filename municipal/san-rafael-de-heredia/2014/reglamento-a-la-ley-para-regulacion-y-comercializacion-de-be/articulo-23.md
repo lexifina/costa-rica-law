@@ -1,0 +1,2 @@
+Artículo 23.—Prohibiciones. No se otorgarán licencias temporales en ninguna de las circunstancias detalladas en el párrafo tercero del artículo 7 de la Ley.
+Asimismo, se respetaran las distancias establecidas en el artículo 9 de la ley 9047 para lo cual se tomara como punto de referencia el acceso principal del local comercial a los centros estipulados en los incisos a y b del artículo 9 de la ley 9047.

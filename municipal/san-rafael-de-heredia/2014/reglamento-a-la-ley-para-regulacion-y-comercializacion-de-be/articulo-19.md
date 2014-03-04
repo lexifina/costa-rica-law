@@ -1,0 +1,1 @@
+Artículo 19.—Una vez que se proceda al cierre, no se permitirá en ningún caso la permanencia de clientes dentro del local. Por tal motivo, los propietarios o administradores deberán avisar a sus clientes cuando se acerque la hora de cierre con suficiente antelación, para que se preparen a abandonar el local a la hora correspondiente.
