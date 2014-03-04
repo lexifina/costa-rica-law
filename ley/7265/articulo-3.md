@@ -1,5 +1,2 @@
-ARTICULO 3.- El jurado al que se refiere la presente Ley, estará
-integrado por un representante de cada una de las siguientes
-instituciones: Ministerio de Educación Pública, Ministerio de Ciencia y
-Tecnología, Cruz Roja Costarricense, Cuerpo de Bomberos y Ministerio de
-Cultura, Juventud y Deportes, quien lo presidirá.
+ARTICULO 3.- El jurado al que se refiere la presente Ley, estará integrado por un representante de cada una de las siguientes instituciones: Ministerio de Educación Pública, Ministerio de Ciencia y Tecnología, Cruz Roja Costarricense, Cuerpo de Bomberos y Ministerio de Justicia y Paz(*), quien lo presidirá.
+(*) (Modificada su denominación por el artículo 11 de la ley N° 9211 del 4 de marzo del 2014, "Ley sobre Premios Nacionales de Cultura". Anteriormente decía "Ministerio de Cultura, Juventud y Deportes")
