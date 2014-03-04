@@ -1,0 +1,1 @@
+Artículo 6º—El expediente con la solicitud presentada y los requisitos presentados, será incorporado en el orden del día que defina el Presidente Municipal, donde se trasladará a la Comisión de Hacienda y Presupuesto para análisis y recomendación final, la cual debe dictarse en un plazo máximo de 30 días.

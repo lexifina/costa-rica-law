@@ -1,0 +1,1 @@
+Artículo 9º—El expediente originado con el trámite de la solicitud de calificación, aprobado o denegado, debe permanecer en custodia del Departamento de Secretaria, con todos los documentos que se originen en relación con el tema, debidamente foliado y disponible para revisión de la Auditoría Interna o por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 2º—Área de cobertura. La calificación se realizará para aquellas organizaciones no gubernamentales que posean su sede y acción en el área del Cantón de Goicoechea. Se consideran también para estos efectos, aquellas organizaciones no gubernamentales cuya sede se encuentre fuera del Cantón pero siempre y cuando ejerzan actividades en éste.
