@@ -14,3 +14,4 @@ Reglamento Comité Corporativo de Auditoría del Banco Crédito Agrícola de Car
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-20 | la propia norma |
+| 2 | 2014-03-04 | Reglamento 8730 (2014-03-04) |
