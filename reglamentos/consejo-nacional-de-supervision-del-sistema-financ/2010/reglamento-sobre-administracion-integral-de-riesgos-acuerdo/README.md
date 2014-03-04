@@ -16,3 +16,4 @@ Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10)
 | 1 | 2010-07-15 | la propia norma |
 | 2 | 2012-10-09 | Reglamento 1005 (2012-10-09) |
 | 3 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
+| 4 | 2014-03-04 | Reglamento 1095 (2014-03-04) |
