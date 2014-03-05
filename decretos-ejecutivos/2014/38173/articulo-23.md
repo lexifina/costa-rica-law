@@ -1,0 +1,7 @@
+Artículo 23.—Subproceso de Operaciones. El Subproceso de Operaciones, además de lo establecido en la Ley de Migración vigente, tendrá las siguientes funciones:
+1) Realizar custodias de personas aprehendidas dentro y fuera del país, en lo que respecta a medidas cautelares, transporte, deportaciones, expulsiones, extradiciones, según lo dispuesto en el Reglamento de Control Migratorio.
+2) Coordinar con las diferentes Oficinas Regionales, la ejecución de deportaciones, rechazos, extradiciones, expulsiones, custodias para que éstas las realicen.
+3) Gestionar con los consulados la respectiva documentación de los extranjeros detenidos, en caso que se compruebe que la persona es sujeto de deportación y se inicie el procedimiento correspondiente.
+4) Realizar las coordinaciones necesarias con INTERPOL, cuando así se requiera para el desarrollo de los diferentes procesos policiales.
+5) Mantener coordinación permanente con el Sistema Penitenciario del Área Metropolitana, para la ejecución de trámites de deportación de personas extranjeras que se encuentran privadas de libertad. En el caso de las otras áreas del país, será responsabilidad de cada Gestión Regional realizar dichas acciones.
+6) Coordinar con las Unidades Especializadas para la Protección de los Derechos de las Personas Menores de Edad, y/o el Patronato Nacional de la Infancia cuando deba atenderse cualquier situación en que está involucrada una persona menor de edad.

@@ -1,0 +1,3 @@
+Artículo 131.—Modalidades de acoso sexual. Serán modalidades de acoso sexual las siguientes:
+1) Acoso vertical: De parte de un superior jerárquico hacia un colaborador(a): Es una manifestación de poder que puede darse mediante amenazas si la víctima no accede a favores sexuales o promesa de cualquier tipo de beneficio laboral si accede.
+2) Acoso horizontal: Se da cuando una persona es acosada por un compañero(a) de trabajo de la misma jerarquía o por un tercero. Asimismo, se entenderá en el caso que un colaborador(a) acose a un superior, por cuanto en dicha situación, no existe una manifestación de poder.

@@ -1,0 +1,1 @@
+Artículo 127.—Requisito para graduación. Será requisito para graduación en cualquier tipo de programa, haber aprobado la totalidad de las materias que lo conforman, con una nota no inferior a la establecida por la entidad educativa que imparta la capacitación, así como aprobar el entrenamiento dirigido en los cursos en que esto sea pertinente.

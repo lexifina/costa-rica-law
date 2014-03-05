@@ -1,0 +1,2 @@
+Artículo 75.—Irregularidad en la asistencia. Se entenderá por irregularidad en la asistencia, las omisiones de marca, ausencias, llegadas tardías, marcas anticipadas a la hora de finalización de la jornada laboral injustificadas, con tachaduras, y las marcas ilegibles imputables al funcionario.
+En los casos en que el funcionario incurriere en irregularidades injustificadas en la asistencia, se procederá al rebajo salarial del tiempo o fracción no laborada, sin perjuicio de la aplicación de la medida disciplinaria correspondiente.

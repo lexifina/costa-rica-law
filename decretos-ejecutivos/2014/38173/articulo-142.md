@@ -1,0 +1,1 @@
+Artículo 142.—Reglas de interpretación. Al interpretar las normas procedimentales, deberá tenerse en cuenta que su finalidad es dar aplicación a las normas de fondo, dentro del debido respeto a los derechos de las partes. En caso de duda, deberá aplicarse el principio pro víctima, es decir, optarse por la interpretación que más favorezca a la presunta víctima.

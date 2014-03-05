@@ -1,0 +1,2 @@
+Artículo 91.—Resultados de la evaluación. Los resultados de la evaluación serán necesarios para considerar los méritos y ascensos, así como el reconocimiento de la anualidad de los servidores. La obtención de una nota inferior a bueno, será motivo para el no reconocimiento de los incentivos respectivos.
+Cuando el resultado fuere “regular” (o su equivalente) por dos veces consecutivas, o si previas las advertencias o sanciones del caso, la evaluación fuere por solo una vez de “deficiente” (o su equivalente), se considerará el hecho como falta grave y causal de despido.

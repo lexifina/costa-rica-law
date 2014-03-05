@@ -1,0 +1,1 @@
+Artículo 110.—Bases de selección. La Gestión de Recursos Humanos, definirá las bases de selección, de acuerdo con las características de los puestos y de las necesidades institucionales. Todo de acuerdo con lo establecido en este Reglamento para los concursos internos y ascensos.

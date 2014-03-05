@@ -1,0 +1,2 @@
+Artículo 107.—Promoción y concursos. La promoción policial se realizará únicamente vía concurso interno o ascenso directo, los cuales permitirán el paso a una categoría superior, supeditado a la existencia de una plaza vacante o la creación de un nuevo puesto y a los procedimientos dispuestos en el Manual de clases Policiales de la Policía Profesional de Migración.
+Se considerará promoción solamente el ascenso a un puesto de grado superior, cuando un funcionario ocupe un puesto en propiedad.

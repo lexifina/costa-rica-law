@@ -1,0 +1,1 @@
+Artículo 67.—Reporte. Las faltas graves se reportarán por el jefe inmediato a la Sección de Inspección Policial, a fin de iniciar el correspondiente proceso disciplinario. Estas se sancionarán con suspensión sin goce de salario hasta por treinta días, o el despido por causa justificada, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 70.—Prescripción. La responsabilidad disciplinaria por falta grave del servidor policial prescribirá a los dos años, los cuales empezarán a correr a partir del momento en que el jefe inmediato conoce de los hechos que dieron lugar a la corrección disciplinaria; y se interrumpirá cuando se inicie el procedimiento disciplinario correspondiente.

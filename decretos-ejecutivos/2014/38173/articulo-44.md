@@ -1,0 +1,1 @@
+Artículo 44.—Tiempo mínimo de prestación de servicios. Una vez aprobado el curso básico migratorio, el servidor queda obligado a prestar servicios con la institución, por un período de al menos tres veces la duración del curso, caso contrario se procederá a cobrar el valor total del curso al funcionario.

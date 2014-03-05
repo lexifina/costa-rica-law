@@ -1,0 +1,1 @@
+Artículo 48.—Instrucción disciplinaria. La instrucción disciplinaria le corresponderá al Departamento Legal del Ministerio de Gobernación y Policía, por medio de la Sección de Inspección Policial, quien instruirá los expedientes disciplinarios por faltas graves y pasará el informe, con la recomendación del caso al Consejo de Personal.

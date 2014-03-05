@@ -1,0 +1,1 @@
+Artículo 155.—Comunicación a la Defensoría de los Habitantes de la República. Tanto la interposición de una denuncia, como lo resuelto en definitiva, deberán ser comunicados por la Comisión a la Defensoría de los Habitantes de la República, para lo que corresponda, en un plazo máximo de tres días contados a partir de la interposición o de la firmeza de la resolución final.

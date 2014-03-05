@@ -1,0 +1,2 @@
+Artículo 90.—Acceso a la información y recursos. El servidor tendrá acceso a la información contenida en su evaluación de desempeño y deberá firmar si se encuentra conforme o disconforme.
+Una vez comunicado el resultado de la evaluación del desempeño al colaborador, ésta podrá ser recurrida en el plazo perentorio de tres días hábiles mediante los recursos ordinarios de revocatoria y apelación contemplados en la Ley General de la Administración Pública.
