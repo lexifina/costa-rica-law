@@ -1,0 +1,71 @@
+ANEXOS
+PAPELETA
+ELECCION MIEMBROS JUNTA ADMINISTRATIVA SUPLENTES Y FISCAL 2014 – 2016
+FONDO DE RETIRO, AHORRO Y PRESTAMO
+PROPONGO COMO MIEMBROS REPRESENTANTES DE LOS TRABAJADORES PARA INTEGRAR LA JUNTA ADMINISTRATIVA DEL FONDO DE RETIRO, AHORRO Y PRESTAMO A:
+___________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
+Y COMO MIEMBRO PARA FISCAL:
+_______________________________________________________________
+Notas
+LA ELECCION DEBE SER LLENADA A PUÑO Y LETRA DEL TRABAJADOR(A).
+RECUERDE QUE DEBE INDICAR CUATRO MIEMBROS PARA LA JUNTA Y UN MIEMBRO PARA FISCAL DE LOS DEBIDAMENE INSCRITOS PARA ESTE PROCESO
+ACTA PARA EL ESCRUTINIO
+TITULARES JUNTA ADMINISTRATIVA Y FISCAL
+Centro de trabajo: ______________________________________
+Unidad Programática: ____________________________
+Fecha ___________________
+Los suscritos, miembros de la Comisión: (Interna de Relaciones Laborales o Comisión Constituida), conforme a nuestras facultades según lo establecido en el procedimiento para la elección de los titulares y fiscal ante la Junta Administrativa del Fondo de Retiro, Ahorro y Préstamo, procedemos a la apertura de la urna de votación, y realizar el conteo de votos, previa constatación del cumplimiento de todos los requisitos formales de elección:
+Total de funcionarios que laboran: ________________
+Número de papeletas recibidas: ________________
+Número de votos emitidos: ________________
+Número de papeletas anuladas: ________________
+Número de papeletas en blanco: _______________
+Número de papeletas no utilizadas: ________________
+TOTAL DE PAPELETAS: ________________
+Seguidamente se procede a la sumatoria final en orden descendente de los votos obtenidos por los candidatos propuestos para la Junta Administrativa, obteniéndose el siguiente resultado:
+Nombre y apellidos de cada candidato(a) Cantidad de votos
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+TOTAL DE VOTOS ________________
+Seguidamente se procede a la sumatoria final en orden descendente de los votos obtenidos por los candidatos propuestos para el puesto de Fiscal y su suplente.
+Nombre y apellidos de cada candidato(a) Cantidad de votos
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+__________________________________________________________ _______________
+TOTAL DE VOTOS ________________
+(Si requieren más espacio, utilícese hoja aparte).
+En fe de lo anterior, firmamos conformes al ser las ________ horas del día _______ del mes de _______________ del dos mil ________.
+Nombres y apellidos N° de Cédula Firma
+________________________________ __________________ __________________
+________________________________ __________________ __________________
+________________________________ __________________ __________________
+________________________________ __________________ __________________
+________________________________ __________________ __________________
+________________________________ __________________ __________________
+[imagen] Autoridad Superior Centro de Trabajo
+[imagen] Unidad de Gestión Recursos Humanos, Centro de Trabajo [imagen]
