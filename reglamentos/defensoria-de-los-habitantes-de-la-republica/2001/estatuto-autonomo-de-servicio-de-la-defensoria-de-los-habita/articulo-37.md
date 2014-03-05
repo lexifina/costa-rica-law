@@ -2,7 +2,10 @@ Artículo 37.—De las licencias con goce de sueldo. Los servidores (as) disfrut
 a) Por siete días naturales en caso de su matrimonio.
 b) Por siete días naturales cuando sobrevenga el fallecimiento de cualquiera de sus padres, hermanos, hijos, cónyuge o conviviente.
 c) Hasta por diez días naturales en caso de enfermedad o accidente grave de los parientes citados.
-d) Tratándose de varones cinco días naturales por nacimiento u adopción de hijos.
+d) En el caso de servidores varones, por cinco días naturales a partir del nacimiento o adopción de hijos.
+Durante las cuatro semanas posteriores al término de dicho plazo, el trabajador tendrá derecho a gozar de un día de licencia a la semana, el cual se definirá previa coordinación con el superior inmediato.
+En el caso de funcionarios que demuestren ser los únicos responsables directos del menor, se otorgará una licencia por el plazo de tres meses posteriores al nacimiento o adopción.
+(Así reformado el inciso d) anterior por acuerdo N° 00001828 del 5 de marzo de 2014)
 e) En caso de las personas designadas para el cuido de pacientes en fase terminal se aplicará lo establecido en la Ley Nº 7756 del 20 de marzo de 1998.
 f) Un día natural cuando sobrevenga el fallecimiento de familiares hasta tercer grado de consanguinidad o afinidad
 En la medida en que sea posible, el servidor (a) deberá hacer la comunicación escrita o verbal a su jefe inmediato de previo al disfrute de la licencia.
