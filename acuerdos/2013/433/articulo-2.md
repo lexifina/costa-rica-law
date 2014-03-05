@@ -1,0 +1,1 @@
+2º—Se establece como método prohibido, en la pesca artesanal en pequeña escala, el realizar encierros o cercos con los trasmallos para la realización de las faenas de pesca, así como se reitera la prohibición de rastras y el uso de artes de pesca no autorizadas expresamente en las licencias de pesca.
