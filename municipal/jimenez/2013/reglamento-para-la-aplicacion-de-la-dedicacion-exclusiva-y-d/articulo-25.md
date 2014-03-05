@@ -1,0 +1,1 @@
+Artículo 25º—Sin perjuicio de lo anterior, en tratándose de profesionales en Derecho, además de la anterior disposición, se aplicará lo establecido en el artículo 237 del Código Procesal Civil. (Ley 7130 de fecha 21 de julio de 1989 y respectivos Decretos Ejecutivos referidos al arancel de Profesionales en Derecho 1).

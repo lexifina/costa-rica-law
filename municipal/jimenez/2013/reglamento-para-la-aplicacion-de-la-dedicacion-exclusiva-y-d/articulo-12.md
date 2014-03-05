@@ -1,0 +1,1 @@
+Artículo 12º—Los beneficios de la dedicación exclusiva, se suspenderán en el momento en que se incumpla cualquiera de los requisitos establecidos en el artículo 3 de este Reglamento. En tal caso, la Alcaldía deberá comunicar oficialmente a la Contraloría General de la República.
