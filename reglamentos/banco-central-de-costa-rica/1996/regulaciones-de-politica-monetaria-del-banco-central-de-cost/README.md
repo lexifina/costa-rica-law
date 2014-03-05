@@ -87,3 +87,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 72 | 2011-11-30 | Reglamento 5524 (2011-11-30) |
 | 73 | 2012-11-07 | Reglamento 5569 (2012-11-07) |
 | 74 | 2012-12-12 | Reglamento 5574 (2012-12-12) |
+| 75 | 2014-03-05 | Reglamento 5639 (2014-03-05) |
