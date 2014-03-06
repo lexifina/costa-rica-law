@@ -1,0 +1,1 @@
+Artículo 25.—El pago del arriendo será realizará en un solo pago directamente en la administración municipal con previa autorización de la Junta Administradora del cementerio. Una vez realizado el pago se firmará el respectivo contrato y se entregará al solicitante un certificado que lo acredite como arrendador.

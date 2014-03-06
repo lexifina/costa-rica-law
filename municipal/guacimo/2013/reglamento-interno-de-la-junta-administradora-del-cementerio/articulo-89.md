@@ -1,0 +1,1 @@
+Artículo 89.—Para las realizaciones de las exhumaciones le corresponde a los dolientes dotar al personal autorizado para este servicio de los elementos de protección personal definidos por el Ministerio de Salud, sea esto, guantes, mascarillas, delantal o bata y botas de hule.

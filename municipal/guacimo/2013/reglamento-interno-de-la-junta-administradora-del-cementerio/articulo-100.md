@@ -1,0 +1,1 @@
+Artículo 100.—Para el cumplimiento de toda disposición de carácter general dictado por la Junta, bastará con colocar el aviso respectico en la puerta de los cementerios o cualquier otro medio de comunicación tales como: iglesias y periódicos locales y otros.

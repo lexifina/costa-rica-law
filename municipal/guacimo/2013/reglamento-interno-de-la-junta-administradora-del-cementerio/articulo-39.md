@@ -1,0 +1,1 @@
+Artículo 39.—En caso de aprobarse la solicitud el arrendatario presentará ante la Administración Municipal una autorización de la Junta Administradora, especificando el trabajo a realizar y el nombre del constructor designado el cual deberá someterse a la normativa y directrices de este Reglamento y lo que dice la Administración del Cementerio para llevar a cabo la obra.

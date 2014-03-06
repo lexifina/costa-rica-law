@@ -1,0 +1,1 @@
+Artículo 15.—Le corresponde a la Junta Administradora del Cementerio Municipal de Guácimo, la recaudación, administración y presupuesto de los recursos económicos que ingresen por concepto de servicios de cementerios.

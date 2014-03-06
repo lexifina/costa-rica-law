@@ -1,0 +1,1 @@
+Artículo 43.—BIS. Una vez adquirido el terreno el arrendatario dispondrá de doce meses a partir de la adjudicación para construir la bóveda de lo contrario automáticamente pierde el derecho y la Junta Administradora del cementerio podrá disponer del espacio. Igual plazo se le concede a los propietarios de sepulturas en tierra para la construcción de la lápida correspondiente.

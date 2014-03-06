@@ -1,0 +1,1 @@
+Artículo 95.—El derecho en cualquiera de los cementerios podrá inscribirse a nombre de comunidades religiosas, establecimientos, asociaciones, sociedades anónimas o limitadas. En todos los casos deberán entregar personería jurídica donde especifique quién es el apoderado generalísimo y quién o quiénes quedarán autorizados para realizar todo tipo de trámite ante la Junta.

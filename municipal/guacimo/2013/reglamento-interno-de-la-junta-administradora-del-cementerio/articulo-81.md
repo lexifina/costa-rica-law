@@ -1,0 +1,1 @@
+Artículo 81.—La Junta queda facultada para denegar una inhumación, si por la acción del tiempo, movimientos telúricos o por cualquier otro motivo resulten total o parcialmente deteriorados los nichos requeridos, y solicitar al arrendatario o coarrendatarios que transcurrido el periodo de cinco años de la última inhumación proceda a su demolición.

@@ -1,0 +1,1 @@
+Artículo 88.—Para exhumar y trasladar los restos a otro cementerio del país, se deberá contar con la autorización por escrito de la dirección del área rectora de salud, la autorización del dueño del derecho donde están ubicados los restos y la solicitud de un pariente hasta tercer grado de consanguinidad.

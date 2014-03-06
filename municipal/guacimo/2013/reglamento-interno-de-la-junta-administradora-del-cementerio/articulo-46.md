@@ -1,0 +1,1 @@
+Artículo 46.—La Junta Administradora del Cementerio Municipal de Guácimo no se hace responsable por el incumplimiento de contratos celebrados entre los constructores y arrendatarios de derechos ya que eso es una relación entre las partes contratantes.

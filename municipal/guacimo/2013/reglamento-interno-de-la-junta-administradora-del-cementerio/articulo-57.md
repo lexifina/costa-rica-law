@@ -1,0 +1,1 @@
+Artículo 57.—Al estar la Junta Administradora del Cementerio Municipal de Guácimo, imposibilitada para asegurar bienes propiedad de terceros, no se hace responsable de daños, robos o pérdida de objetos, construcciones y otros que instalen en las bóvedas por cuenta propia.

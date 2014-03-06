@@ -1,0 +1,1 @@
+Artículo 26.—El arrendamiento de derecho se otorgará por un lapso de no mayor de cincuenta años ni menor a cinco; y el valor por el arriendo de derecho o de nicho para la inhumación lo fijará discrecionalmente la Junta Administradora del Cementerio Municipal de Guácimo.

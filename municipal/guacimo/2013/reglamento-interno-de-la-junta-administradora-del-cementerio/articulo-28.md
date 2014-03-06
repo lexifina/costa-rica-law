@@ -1,0 +1,2 @@
+Artículo 28.—Ningún arrendatario o coarrendatario de un derecho de arrendamiento, podrá gestionar: inhumaciones, exhumaciones, reparaciones, construcciones, traspasos o donaciones si: mantiene deudas pendientes con la Junta y con la Municipalidad.
+No podrá gestionar inhumaciones si la bóveda construida en el derecho se encuentra en estado de deterioro, salvo si demuele la estructura antes de la transacción.

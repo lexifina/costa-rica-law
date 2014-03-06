@@ -1,0 +1,1 @@
+Artículo 79.—Si el arrendatario o coarrendatario hubiesen fallecido, no se autorizarán exhumaciones ni permisos de reparación o construcción, hasta tanto se presente mandamiento de un juez o Tribunal de la República, declarando herederos del causante o una autorización del albacea de la sucesión para disponer del nicho, bóveda o mausoleo.

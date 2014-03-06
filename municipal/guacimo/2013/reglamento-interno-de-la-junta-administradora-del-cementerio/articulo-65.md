@@ -1,0 +1,1 @@
+Artículo 65.—Los derechos de arrendamiento y los arrendamientos de nichos no pueden ser objeto de pacto de retroventa; no son susceptibles de ningún tipo de embargo, ni pueden ser dados como garantía o gravados en alguna forma.
