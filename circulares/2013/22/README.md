@@ -13,3 +13,4 @@ Deber de realizar inventario y depuración del circulante de asuntos en trámite
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-04 | la propia norma |
+| 2 | 2014-03-06 | Circular 46 (2014-03-06) |
