@@ -1,2 +1,0 @@
-Artículo 26.—Los adelantos y liquidaciones por concepto de viáticos se regirán de conformidad con el Reglamento de Gastos de Viajes dictado por la Contraloría General de la República y se utilizarán los formularios respectivos. En caso de incumplimiento sobre este particular se procederá en igual forma al artículo anterior.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32484 del 20 de mayo del 2004)

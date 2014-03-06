@@ -1,1 +1,0 @@
-Artículo 6°—En el Departamento de Tesorería deberá existir, un registro actualizado de las firmas de los funcionarios autorizados para aprobar los documentos para el pago de bienes, servicios, adelantos y liquidaciones.

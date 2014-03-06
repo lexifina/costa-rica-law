@@ -1,3 +1,0 @@
-CAPÍTULO I
-Artículo 2º—Se define como Caja Chica al fondo fijo de dinero que concede la Administración, como un servicio facilitador en la ejecución presupuestaria, para la adquisición de bienes y servicios de excepción, en el Consejo de Seguridad Vial, y de las cuales se sirven las Direcciones de Ingeniería de Tránsito, Transporte Público, Educación Vial y de Policía de Tránsito de acuerdo con lo que establece la Ley Administración Financiera de la República y Presupuestos Públicos, la Ley de Contratación Administrativa y su Reglamento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32484 del 20 de mayo del 2004)

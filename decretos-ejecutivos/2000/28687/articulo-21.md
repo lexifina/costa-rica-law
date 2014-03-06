@@ -1,4 +1,0 @@
-CAPÍTULO IV
-Adelantos y liquidación
-Artículo 21.—El formulario “Vale de Caja Chica” deberá ser numerado por el Departamento de Tesorería, contar con la firma de la jefatura autorizada para el trámite y el visto bueno del Departamento de Presupuesto, este último acreditando que cuenta con el debido contenido presupuestario. La jefatura que solicita el adelanto de dinero, será responsable de verificar que el material que se pretende adquirir o arrendar no existe en el almacén del COSEVI. Deberá además incluirse una justificación detallada de la necesidad del bien o servicio que se va a adquirir o arrendar, con sus características, adjuntado la factura proforma. La jefatura solicitante deberá presentar como mínimo tres cotizaciones cuando el monto sea superior a ¢ 10.000.00 (diez mil colones).
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32484 del 20 de mayo del 2004)
