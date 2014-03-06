@@ -1,0 +1,2 @@
+Artículo 18.—Para el trámite de planos de agrimensura ante el Registro Nacional, el APT generara una vía de comunicación con los sistemas informáticos de dicha institución para que se ejecute dicho procedimiento.
+Las especificaciones que deben cumplir los profesionales, así como los estados que puede tener cada tramite de los planos, será definida por la Dirección Ejecutiva en el documento denominado “Guía de uso del Sistema APT”.

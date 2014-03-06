@@ -1,0 +1,1 @@
+Artículo 20.—La definición o la modificación de los medios de pago les serán comunicadas a los usuarios del sistema, a través de las circulares que al efecto se dictarán y que serán colocadas en los lugares destinados para ello. Igualmente, si la Dirección Ejecutiva lo estima conveniente, serán publicadas en los diarios nacionales y en la página electrónica del Colegio Federado.

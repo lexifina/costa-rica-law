@@ -1,0 +1,1 @@
+Artículo 9°.—El sellado de los planos de topografía y agrimensura, a que se refiere el artículo 15 del Reglamento Especial del Protocolo de Agrimensor del Colegio Federado de Ingenieros y de Arquitectos, se realizará a través del APT.

@@ -1,0 +1,1 @@
+Artículo 14.—Se deberá adjuntar, en caso de que aplique, vistos buenos adicionales de otras instituciones que estén involucrados en el trámite de los planos. (Municipalidades, Depto. de Aguas de MINAE, entre otras).

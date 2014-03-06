@@ -1,0 +1,1 @@
+Artículo 5°—Aquellos profesionales y empresas que no cuenten con el equipo requerido, podrán acceder al APT, a través de las unidades de cómputo previamente establecidas para esos efectos en la sede central del Colegio Federado de Ingenieros y de Arquitectos o bien en las oficinas regionales del Colegio, dispuestas en el territorio nacional para ese y otros fines.

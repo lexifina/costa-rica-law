@@ -1,0 +1,1 @@
+Artículo 23.—Sin perjuicio de las sanciones penales que correspondan en esa vía, la inserción de información falsa en el Sistema del APT, hará que los usuarios incurran en las faltas establecidas en los artículos 9 y 31 del Código de Ética Profesional.
