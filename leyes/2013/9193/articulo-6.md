@@ -13,3 +13,4 @@ SERVICIO DE ATENCIÓN Y PROTECCIÓN DE VÍCTIMAS Y TESTIGOS | 7,328,000,000 | 2.
 Totales | 352,236,000,000 | 100.00%
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance digital N° 131 a La Gaceta N° 235 del 5 de diciembre de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38142 del 13 de enero del 2014)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38198 del 17 de febrero del 2014)
