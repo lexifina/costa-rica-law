@@ -1,0 +1,1 @@
+Artículo 70.—Eliminación de bienes muebles del inventario institucional. Una vez realizada la cesión, se procederá a eliminar los bienes del inventario y se enviará una copia de la cesión al Departamento Financiero para lo que proceda. Cuando se trate de bienes muebles por desintegración, se borrarán del sistema de inventario con el acta de desintegración respectiva.

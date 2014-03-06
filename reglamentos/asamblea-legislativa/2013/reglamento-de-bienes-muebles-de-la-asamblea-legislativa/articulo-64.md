@@ -1,0 +1,1 @@
+Artículo 64.— Autorización de cesiones. Le corresponderá a la Comisión de Cesiones designar al beneficiario de la cesión y al Área de Suministros y Bienes Muebles del Departamento de Proveeduría confeccionar el acta de cesión correspondiente, de conformidad con lo dispuesto en el artículo anterior.

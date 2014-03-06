@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Ingreso y Control de Equipo Especializado
+Artículo 50.—Verificación del equipo. Cuando se trate de equipo especializado, corresponderá en primera instancia al Área de Suministros y Bienes Muebles del Departamento de Proveeduría verificar el estado de éste, así como corroborar si las especificaciones técnicas se ajustan a lo solicitado por la dependencia institucional y lo entregado por la casa comercial.
+Esta Área deberá informar de inmediato a la dependencia institucional solicitante que envíe un representante para que también verifique las especificaciones técnicas. Si cumple con lo solicitado, dicha dependencia dará el criterio técnico y el Área de Suministros y Bienes Muebles procederá al recibo de conformidad y firmarán un acta de revisión definitiva o provisional como lo indican los artículos 194 y 195 del Reglamento de contratación administrativa.

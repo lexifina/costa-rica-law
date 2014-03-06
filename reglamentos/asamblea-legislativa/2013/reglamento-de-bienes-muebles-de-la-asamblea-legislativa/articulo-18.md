@@ -1,0 +1,1 @@
+Artículo 18.—Pérdida de bienes muebles por daño anormal o desintegración. Todo funcionario legislativo encargado de la custodia y el uso de bienes muebles esresponsable por la pérdida, el daño o la destrucción que sufran estos, causado con dolo, negligencia, impericia, etc., salvo cuando se deban al deterioro natural por razón de su uso o de otra causa justificada.
