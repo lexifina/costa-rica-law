@@ -1,0 +1,37 @@
+MUNICIPALIDAD DE CARTAGO
+Que el Concejo Municipal de la Municipalidad del Cantón Central de Cartago mediante acuerdo N° 5 de la sesión ordinaria Nº 259-2013, del día 22 de octubre del 2013, aprobó la propuesta de reforma al “Reglamento de uso de las Instalaciones del Parque Ambiental Río Loro”, y de acuerdo con lo establecido en el artículo 43 del Código Municipal, se realizó la consulta pública vinculante en La Gaceta N° 235 de jueves 5 de diciembre de 2013, sin que se presentara ninguna objeción.
+(Nota de Sinalevi: Tal como se indica en el párrafo anterior el texto corresponde al publicado en La Gaceta N° 235 del 5 de diciembre del 2013, y se tanscribe a continuación:)
+MUNICIPALIDAD DE CARTAGO
+El Concejo Municipal de la Municipalidad del Cantón Central de Cartago comunica que mediante el artículo N° 5 de la sesión ordinaria Nº 259-2013, del día 22 de octubre del 2013, y de conformidad con lo establecido en los artículos 4, inciso a), articulo 13, incisos c) y d) y articulo 43 del Código Municipal, acordó las siguientes reformas al “Reglamento de Uso de las Instalaciones del Parque Ambiental Río Loro”:
+REFORMAS AL REGLAMENTO DE USO DE LAS
+INSTALACIONES DEL PARQUE AMBIENTAL RÍO LORO
+“Artículo 1º—Reformarse los artículos 6, 7, 8 inciso g), 10, 11 incisos a) y o), 12 y 13 del Reglamento Municipal de Uso y Control del Parque Ambiental Municipal Río Loro, para que en adelante digan:
+Artículo 6º—Solicitud. Todo interesado en reservar las instalaciones y/o los servicios que brinda el PAM, deberá solicitarlo en forma escrita (mediante el Formulario de Solicitud que suministra la administración del PAM y con antelación de al menos ocho días naturales a la fecha que se desea ingresar al PAM. Dicho formulario será entregado en las oficinas del PAM de forma personal o por medio de correo electrónico con previa solicitud del interesado, e] cual será sometido a estudio por la administración de acuerdo a la disponibilidad que tenga. En toda solicitud deberá señalarse medio o lugar para recibir notificaciones.
+Artículo 7º—Trámite. Recibida la solicitud, la Administración procederá a verificar el cumplimiento de los requisitos señalados en el formulario. En caso de aprobarse la gestión del solicitante, se hará entrega de un documento en el que se establecerán las condiciones de uso de las instalaciones y términos generales relativos al aprovechamiento del PAM.
+Artículo 8º—Obligaciones. “Léase punto g correctamente”
+g) No podrá cederse el permiso a personas u organización diferente a la solicitante y la actividad autorizada no podrá ser variada sin la autorización previa de la Administración.
+Artículo 10.—Comité Gestor y administrador/a del PAM: El PAM será administrado por un Comité Gestor integrada por a) Encargado/a Área Técnica Acueductos, b) Gestor/a Ambiental del Área Técnica Acueductos, c) Administrador /a del PAM. d) Encargado/a Unidad Ambiental e) Encargado/a Oficina de Turismo.
+Corresponderán a dicho comité las siguientes funciones:
+a) Solicitar en los términos del capítulo III de este reglamento, el estudio para el cambio de tarifa de ingreso al PAM, ante la administración Municipal.
+b) Elevar a la Alcaldía los cambios que se realicen a este reglamento, para su aprobación por parte del Concejo Municipal.
+c) Atender aspectos administrativos y/o ambientales en conjunto con el Administrador del PAM, cuando así lo solicite este último de manera justificada.
+Corresponderá al Administrador del PAM:
+a. Velar por el adecuado cumplimiento de las funciones que le otorga este Reglamento.
+b. Confeccionar, solicitar y ejecutar el presupuesto, asignado al PAM.
+c. Ejecutar la planificación del programa de mantenimiento de las instalaciones del PAM.
+d. Desarrollar el programa de educación Ambiental que se genere en el PAM de acuerdo a lo establecido en el artículo 5.
+e. Recibir de la Unidad Ambiental las solicitudes para ingreso, uso de los espacios y servicios brindados por el PAM.
+f. Aprobar o denegar dichas solicitudes conforme los términos del presente reglamento, en forma justificada.
+g. Emitir a los usuarios del PAM, las recomendaciones u órdenes, verbales o escritas, que se estimen pertinentes para el mejor desarrollo de la actividad a realizar en el espacio cedido y suspender o revocar de inmediato el permiso cuando estas no sean cumplidas a satisfacción, o se produzca algún uso indebido de las instalaciones.
+h. Llevar el control de las actividades autorizadas en cuanto a fechas, horarios espacios, con la finalidad de procurar el mayor aprovechamiento y un servicio de calidad a los visitantes así como para cumplir con los requerimientos de control interno.
+i. Mantener un registro de los permisos concedidos ordenados cronológicamente.
+j. Mantener una estadística de los visitantes o personas que ingresan al PAM.
+k. Generar alternativas o iniciativas que propicien la sostenibilidad del PAM.
+l. Ser el enlace con el Área de Acueductos Municipal para que el área total del Parque tenga la operación y mantenimiento debido, protegiendo de esta forma el recurso hídrico disponible en el lugar.
+Artículo 11.—Prohibiciones
+a) Las instalaciones del PAM solo podrán ser utilizadas para actividades relacionadas con educación ambiental, protección del recurso hídrico, desarrollo turístico sostenible y gestión municipal; por lo que toda autorización de uso contraria a dichos fines se encuentra prohibida . Igualmente la administración se encuentra facultada para ordenar la suspensión inmediata de cualquier actividad que se desarrolle en oposición a ese destino o incumpla alguno de los requisitos de utilización, pudiéndose hacer uso de la Policía Municipal y de la Fuerza Pública inclusive.
+o) No realizar actividades recreativas en los senderos del PAM, en la zona de captación u en otra área que la administración considere necesaria.
+Artículo 12.—Horario de uso. El PAM permanecerá abierto al público de miércoles a domingo de 8:00 am a 3:00 pm, inclusive días feriados; esto sin perjuicio de que la Unidad Ambiental y/o el Alcalde Municipal dispongan. En el lapso entre las 3:00 pm y las 4 pm los funcionarios del PAM se encargarán de retirar a los visitantes que aún permanezcan en los senderos así como de inspeccionar las instalaciones de los mismos, haciendo efectivo el cierre de las instalaciones del PAM a las 4:00 pm.
+Artículo 13.—Capacidad de las instalaciones. Según estimación realizada por el Centro de Investigación en Protección Ambiental del Instituto Tecnológico de Costa Rica se determina una capacidad de carga de 80 visitantes diarios para el PAM según sus características de extensión, ubicación y recursos naturales que posee.
+Será responsabilidad de los funcionarios municipales y efectivos de la seguridad municipal destacados en el PAM, velar por que se respete dicha capacidad de carga y no se supere el máximo de personas permitidas.
+Será obligación de cada funcionario efectivo de seguridad municipal el poner en conocimiento a la Administración de Parque y este al Comité Gestor de cualquier anomalía o irregularidad de la que tengan conocimiento durante el desarrollo de las actividades dentro del PAM, sin perjuicio de las facultades que éstos conservan de adoptar las medidas pertinentes e inmediatas, que procuren cesar el acto o conducta irregular. La Municipalidad a través del Departamento de Seguridad Municipal, podrá reservarse el derecho de admisión con el objetivo de salvaguardar los recursos e instalaciones del PAM”.
