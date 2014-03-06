@@ -1,0 +1,1 @@
+7º—Que con el fin de atender la solicitud planteada por el MINAE, se realizarán los cambios en el Arancel automatizado, los cuales empezarán a regir 6 meses después de la publicación de la presente resolución en el Diario Oficial La Gaceta.

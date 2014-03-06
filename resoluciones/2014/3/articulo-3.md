@@ -1,0 +1,1 @@
+3º—Que las mercancías incluidas en las subpartidas mencionadas en la disposición anterior a las cuales no se les solicitará la Nota Técnica 0046, tampoco se les cobrara el recargo de los treinta puntos porcentuales por no estar incluidas en la lista de mercancías sujetas al impuesto Selectivo de Consumo establecida en el anexo a la Ley N° 4961.

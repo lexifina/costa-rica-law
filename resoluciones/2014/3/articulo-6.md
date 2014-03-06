@@ -1,0 +1,1 @@
+6º—Informar a nombre del MINAE, que no deben presentarse a dicha dependencia a realizar estos trámites y que es responsabilidad de los interesados conseguir la información necesaria para llenar los formularios.
