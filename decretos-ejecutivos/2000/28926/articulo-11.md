@@ -1,1 +1,0 @@
-Artículo 11.—Plazo: la resolución a que se refiere el artículo anterior, deberá dictarla el Gerente de la Administración Tributaria correspondiente, dentro del plazo máximo de quince días hábiles, contados a partir del vencimiento del término para presentar la impugnación.
