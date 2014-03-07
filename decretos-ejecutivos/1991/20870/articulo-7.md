@@ -1,1 +1,0 @@
-Artículo 7°-En la resolución administrativa se incluirán los requisitos que debe cumplir el interesado para la positiva formalización de la dación en pago del inmueble ofrecido, ante la Notaría del Estado.
