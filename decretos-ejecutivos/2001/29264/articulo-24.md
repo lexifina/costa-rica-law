@@ -1,1 +1,0 @@
-Artículo 24.—Deber de colaboración de las Autoridades. Los funcionarios de la Administración Tributaria podrán solicitar la colaboración de las autoridades judiciales o administrativas, para ejecutar los actos que requieran de tal asistencia.

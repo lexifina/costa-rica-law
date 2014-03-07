@@ -1,1 +1,0 @@
-Transitorio II.—Función de cobro judicial. En tanto no se regionalize la función de cobro judicial a que alude el artículo 79 inc. A) de este Reglamento, corresponderá la misma a la oficina de cobros de la Administración Tributaria Territorial de San José.

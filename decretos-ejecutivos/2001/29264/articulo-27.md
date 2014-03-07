@@ -1,4 +1,0 @@
-Artículo 27.—Órganos encargados de la Gestión y su competencia. Las funciones y atribuciones propias de la Gestión Tributaria, dentro del ámbito de la competencia de la Dirección General de Tributación, serán ejercidas por las siguientes unidades administrativas:
-a) La División de Gestión que, en el cumplimiento de sus tareas normativa, de planeación y control de gestión, tendrá competencia en todo el territorio nacional.
-b) Las Subgerencias o Áreas de Gestión de las Administraciones Tributarias Territoriales y de Grandes Contribuyentes, que son las unidades encargadas de ejecutar, en el ámbito de su competencia territorial o sectorial, los planes y programas que para el cumplimiento de sus funciones tracen la Dirección General y la División dicha".
-(Así Reformado por artículo artículo 3 del Decreto Ejecutivo 29812 de 05 de setiembre del 2001)

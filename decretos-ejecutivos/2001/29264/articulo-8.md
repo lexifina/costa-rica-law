@@ -1,2 +1,0 @@
-Artículo 8º—Planificación. Las Divisiones de Recaudación, Gestión, Fiscalización, Normativa, Informática y el Organo de Normalización Técnica, al igual que las distintas unidades operativas existentes en las Administraciones Tributarias Territoriales y de Grandes Contribuyentes, llevarán a cabo sus funciones en el marco de los lineamientos generales que defina la Dirección General de Tributación.
-(Así Reformado por artículo 3 del Decreto Ejecutivo 29812 de 05 de setiembre del 2001)
