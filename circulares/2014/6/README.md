@@ -13,3 +13,4 @@ Tabla de honorarios de Peritos, Ejecutores, peritos en Trabajo Social y Psicolog
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-01 | la propia norma |
+| 2 | 2014-03-07 | Circular 40 (2014-03-07) |
