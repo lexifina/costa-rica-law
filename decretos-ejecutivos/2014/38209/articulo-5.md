@@ -1,0 +1,2 @@
+Artículo 5º—Las versiones integrales impresas de la PNVAH 2013 - 2030 y su Plan de Acción, se encuentran en custodia en la Dirección de Vivienda y Asentamientos Humanos del MIVAH y pueden ser consultadas en dicha entidad. Además, su versión digital puede ser consultada directamente en el portal de Internet oficial, del MIVAH, en la dirección: www.mivah.go.cr
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato la versión integral de la Política Nacional de Vivienda y Asentamientos Humanos y sus plan de acción deben ser consultados Aquí)

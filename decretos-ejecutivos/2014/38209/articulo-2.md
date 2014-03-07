@@ -1,0 +1,1 @@
+Artículo 2º—La PNVAH se ejecutará de conformidad con los principios de: universalidad, integralidad, transparencia, solidaridad y participación social, así como con los enfoques de: derechos humanos, desarrollo sostenible, igualdad y equidad de género y gestión del riesgo.

@@ -1,0 +1,1 @@
+Artículo 4º—Instrúyase al MIVAH y demás entidades públicas responsables, para que, según sus competencias y atribuciones legales, ejecuten, evalúen y rindan cuentas sobre el adecuado y oportuno cumplimiento de la presente Política y su Plan de Acción, así como su gestión consistente con los subsiguientes planes nacionales de desarrollo.
