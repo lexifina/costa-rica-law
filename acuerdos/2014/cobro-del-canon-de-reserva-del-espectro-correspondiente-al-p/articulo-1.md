@@ -1,0 +1,4 @@
+SUPERINTENDENCIA DE TELECOMUNICACIONES
+La Superintendencia de Telecomunicaciones informa que se encuentra al cobro el canon de reserva del espectro para el financiamiento del periodo 2014 y pagadero ese mismo año, con fecha límite el 15 de marzo, cuyo monto total es de ¢2.633.533.512,00 (dos mil seiscientos treinta y tres millones quinientos treinta y tres mil quinientos doce colones exactos), ajustado por el Poder Ejecutivo mediante el Decreto N° 38004-MICITT publicado en el diario oficial La Gaceta N° 209 del 30 de octubre de 2013.
+Los sujetos pasivos de dicho canon podrán consultar la información respectiva en el sitio WEB de la SUTEL (www.sutel. go.cr).
+Para efectos del cálculo del monto por pagar, se informa que el valor de la sumatoria de importancia relativa correspondiente a todos los concesionarios y permisionarios vigentes es “0,565405224341437”.
