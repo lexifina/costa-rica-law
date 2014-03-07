@@ -1,0 +1,1 @@
+Artículo 43.—El pago deberá realizarse en las cajas municipales o en cualquiera de los puntos autorizados, para recibir pagos por servicios o precios municipales. El representante deberá presentar el comprobante de pago con el sello respectivo a la Administración del Centro en cualquier momento en que esta se lo requiera.

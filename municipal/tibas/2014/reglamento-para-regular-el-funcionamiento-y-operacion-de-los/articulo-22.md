@@ -1,0 +1,1 @@
+Artículo 22.—En casos de ausencia, por cualquier motivo, es obligación del representante, presentar en un plazo no mayor de 3 días hábiles siguientes al día de la ausencia la justificación en la Administración del Centro.

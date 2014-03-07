@@ -1,0 +1,1 @@
+Artículo 7º—Horario de los CECUDI: El horario de atención para la población beneficiada será de las 6 a. m. a 6 p. m., de lunes a viernes. Se excluyen los días feriados de ley y aquellos que sean declarados asueto de acuerdo con la normativa correspondiente.

@@ -1,0 +1,1 @@
+Artículo 23.—En el evento de que el beneficiario no asista al Centro por tres días o más durante un mismo mes, sin justificación en los términos del artículo anterior, será sancionado en el tanto esta situación facultará a la Municipalidad a cancelar la matrícula, previa notificación a su familia.
