@@ -1,0 +1,1 @@
+Artículo 9°—Para la realización de la prueba, en caso de los funcionarios de la Policía Municipal, se seleccionará de forma aleatoria a quienes serán sometidas a la misma. Dicha selección será efectuada por la Jefatura del Proceso de Seguridad y Vigilancia en la Comunidad.

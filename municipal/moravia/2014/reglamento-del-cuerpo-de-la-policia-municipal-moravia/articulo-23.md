@@ -1,0 +1,1 @@
+Artículo 23.—Si un funcionario de la Policía Municipal, es despedido de su cargo con o sin responsabilidad patronal, renuncia o por cualquier otra razón, ya no utiliza el uniforme, deberá hacer entrega del mismo a su jefatura inmediata, para lo que corresponda.
