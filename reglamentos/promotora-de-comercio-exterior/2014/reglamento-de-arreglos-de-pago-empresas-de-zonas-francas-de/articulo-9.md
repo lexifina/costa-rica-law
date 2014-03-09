@@ -1,0 +1,7 @@
+Artículo 9. Cálculo de los intereses
+La Gerencia Administrativa Financiera será la encargada de realizar el cálculo de los intereses tomando en consideración los siguientes parámetros:
+a) Vigencia de los intereses: Los intereses se cobrarán desde que la empresa dejó de pagar y hasta el momento en que cancele totalmente la deuda.
+b) Tipo de interés: El cálculo de los intereses en colones se hará tomando como base la resolución vigente emitida por la Administración Tributaria conforme a lo dispuesto en el artículo 57 del Código de Normas y Procedimientos Tributarios. En el caso de los arreglos de pago en dólares, se utilizará la tasa prime rate, según lo indicado en el artículo 497 del Código de Comercio.
+c) Interés generados al momento de la suscripción del arreglo de pago: Para efectos de definir el monto del arreglo de pago se tomará en consideración el monto del principal adeudado más los intereses generados desde el momento en que la empresa dejó de pagar y hasta el momento de la suscripción del arreglo del pago.
+d) Intereses generados con posterioridad a la suscripción del arreglo de pago: Una vez que se suscriba el arreglo de pago, los saldos del principal, pendientes de pago, seguirán generando intereses hasta el pago de la totalidad de la deuda.
+e) Cálculo de las cuotas: las cuotas serán establecidas por la Gerencia Administrativa Financiera, tomando en consideración el plazo de pago elegido por la empresa deudora según los términos del artículo 10 del presente reglamento.

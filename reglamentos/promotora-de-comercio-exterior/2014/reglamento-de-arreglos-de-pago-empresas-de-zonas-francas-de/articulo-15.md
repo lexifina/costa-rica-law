@@ -1,0 +1,2 @@
+Artículo 15. Efectos del incumplimiento del arreglo de pago
+Si la empresa no cumple con lo estipulado en el convenio de arreglo de pago, dicho acuerdo quedará resuelto de forma automática, por lo que se remitirá de forma inmediata el caso ante el Ministerio de Comercio Exterior, a efectos de iniciar el procedimiento administrativo correspondiente por el incumplimiento en el pago del derecho de uso del Régimen de Zona Franca. Lo anterior, sin perjuicio de la ejecución de la garantía rendida para efectos de formalizar el convenio de arreglo de pago.
