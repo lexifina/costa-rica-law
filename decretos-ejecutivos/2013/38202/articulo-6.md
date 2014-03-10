@@ -1,0 +1,1 @@
+Artículo 6º—De los recursos. La DESAF destinará al IMAS, conforme al inciso h) del artículo 3 de la Ley Nº 5662 y su reforma, la Ley Nº 8783, un porcentaje de cero coma veinticinco (0,25%), de todos los ingresos efectivos anuales, ordinarios y extraordinarios, percibidos por el FODESAF.

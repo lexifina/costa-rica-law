@@ -1,0 +1,1 @@
+Artículo 15.—De la extinción del derecho. El derecho otorgado por el Programa se extingue cuando la persona beneficiaria cumpla los veinticinco años de edad o cuando se verifique que quien lo recibe deje de necesitarlo. En este último caso, se debe otorgar el debido proceso a la persona y sustentarse la decisión en acto debidamente razonado y fundamentado.

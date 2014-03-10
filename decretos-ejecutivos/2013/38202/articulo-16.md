@@ -1,0 +1,3 @@
+CAPÍTULO CUARTO
+De las responsabilidades de la institución ejecutora
+Artículo 16.—Institución Ejecutora. Corresponde al IMAS, de conformidad con lo dispuesto en el artículo 3 del presente reglamento, la ejecución de los recursos de FODESAF destinados al beneficio de prestación familiar y al derecho originado del Programa de prestación alimentaria. En cuanto a la ejecución de los recursos de FODESAF y a la relaciones de coordinación y control que tenga con DESAF, además de las obligaciones establecidas en otros cuerpos normativos o en futuros convenios que se establezcan entre ambas instituciones, se someterá a las responsabilidades específicas establecidas en este capítulo.

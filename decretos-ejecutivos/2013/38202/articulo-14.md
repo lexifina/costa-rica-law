@@ -1,0 +1,1 @@
+Artículo 14.—De la suspensión del derecho. Este beneficio se suspenderá en caso de que la persona beneficiaria cometa una falta grave que amerite la expulsión o suspensión del centro educativo, o en el momento en que decida no continuar en el sistema.

@@ -1,0 +1,4 @@
+CAPÍTULO SEGUNDO
+Del beneficio de asignación familiar,
+inciso H del artículo 3 de la Ley N° 5662 y su Reforma
+Artículo 5º—De los beneficiarios. La población meta de este beneficio serán las personas trabajadoras de bajos ingresos (entiéndase en condición de pobreza o pobreza extrema) de conformidad con los criterios del IMAS, que tengan hijos o hijas con discapacidad permanente según diagnóstico emitido por la Caja Costarricense de Seguro Social, C.C.S.S., o mayores de 18 años y menores de 25 años con discapacidad, siempre y cuando sean estudiantes de una institución de educación superior, todo de conformidad con el inciso h) del artículo 3 de la Ley Nº 5662 y su reforma integral, la Ley Nº 8783. El beneficio económico se otorgará para atender necesidades tales como: alimentación, alquiler de vivienda, pago de asistente personal y la atención de gastos de capacitación laboral, técnica y / o universitaria.
