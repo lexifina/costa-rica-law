@@ -1,0 +1,4 @@
+CAPÍTULO III
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I.-
+En cumplimiento de lo establecido en el inciso 3 del artículo 18 del Protocolo Facultativo, Ley N.º 8459, el cual señala que: “Los Estados Partes se comprometen a facilitar los recursos necesarios para el funcionamiento de los mecanismos nacionales de prevención”, el Gobierno de Costa Rica, por medio del Ministerio de Hacienda, a partir del año siguiente a la entrada en vigencia de la presente ley, incorporará los recursos financieros para el Mecanismo Nacional de Prevención en los presupuestos ordinarios y extraordinarios de la Defensoría de los Habitantes, con la finalidad de que el Mecanismo Nacional de Prevención contra la Tortura cuente con los recursos humanos, logísticos y económicos necesarios para cumplir el mandato internacional que le ha sido conferido.

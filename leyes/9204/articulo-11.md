@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Transparencia de las funciones del Mecanismo Nacional de Prevención
+El Mecanismo Nacional de Prevención podrá organizar actividades públicas para dar a conocer su informe anual y cualquier otro informe que emita en su condición de Mecanismo, lo anterior en cumplimiento de lo establecido en el artículo 23 del Protocolo Facultativo de la Convención contra la Tortura y otros Tratos o Penas Crueles, Inhumanos o Degradantes.
