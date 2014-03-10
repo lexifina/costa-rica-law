@@ -1,0 +1,1 @@
+Artículo 26.—Remisión del documento por parte del Área Financiera y Subgerencia de Soporte Administrativo a la Gerencia General: El documento debe ser remitido a la Gerencia General mediante oficio suscrito por el-la Jefe del Área de Administración Financiera y el Subgerente(a) de Soporte Administrativo a efectos de dar continuidad al trámite respectivo.

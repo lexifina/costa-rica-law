@@ -1,0 +1,1 @@
+Artículo 24.—De los plazos para la elaboración del documento final: Una vez recibida a satisfacción la totalidad de la información, la Unidad de Presupuesto dispone de ocho (8) días hábiles para elaborar el documento.

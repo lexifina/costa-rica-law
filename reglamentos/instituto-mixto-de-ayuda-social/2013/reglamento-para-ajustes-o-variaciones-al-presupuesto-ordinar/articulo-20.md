@@ -1,0 +1,4 @@
+Artículo 20.—Requerimientos que debe atender la Unidad de Presupuesto, previo a elaborar una modificación presupuestaria general:
+a) Previo a dar inicio a la elaboración de una Modificación Presupuestaria General deberá revisar de forma individualizada cada una de las solicitudes presentadas; verificando que cumplen todas las regulaciones contenidas en el presente Reglamento y demás bloque de legalidad aplicable y que respondan a una necesidad institucional.
+b) Si las solicitudes no atienden todos los requerimientos exigidos o no exista posibilidad de poder solucionar el requerimiento solicitado, debe proceder a devolverla en término de un día hábil posterior a su recibido, indicando el motivo que generó su devolución.
+c) Para los recursos asignados a la Auditoría Interna; además de los anteriores requerimientos, debe verificar que las solicitudes realizadas hayan sido autorizadas por el Auditor (a) y/o Subauditor (a) General.

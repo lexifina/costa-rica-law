@@ -1,0 +1,1 @@
+Artículo 36.—Revisión y aprobaciones previas: una vez consolidada la información, el documento final, previo a ser remitido formalmente a la Gerencia General para que se continúe con el proceso, debe ser revisado, verificado y autorizado por la Jefatura del Área de Administración Financiera y el Subgerente de Soporte Administrativo.

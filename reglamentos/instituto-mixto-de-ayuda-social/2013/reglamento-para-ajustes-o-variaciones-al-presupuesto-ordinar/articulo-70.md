@@ -1,0 +1,1 @@
+Artículo 70.—Aprobación y vigencia: La aprobación del presente Reglamento fue realizada por el Consejo Directivo del IMAS, en la sesión N° 091-12-2013, celebrada el 9 de diciembre del 2013, acuerdo CD.656-12-2013 y rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,3 @@
+Artículo 51.—De la Gerencia General: Son responsabilidades de esta instancia, las siguientes:
+a) Revisar, analizar, valorar y autorizar las Modificaciones Presupuestarias Generales y los Presupuestos Extraordinarios. Así como hacer constar expresamente que se cumple integralmente el bloque de legalidad aplicable, lo cual debe ser expresado en el oficio de remisión del documento al Consejo Directivo para su aprobación final.
+b) En coordinación con la Unidad de Desarrollo Humano, deberá definir y aplicar las sanciones disciplinarias al funcionario que se le logre determinar incumplimiento de los deberes y obligaciones establecidos en el presente Reglamento.

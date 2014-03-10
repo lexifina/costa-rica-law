@@ -1,0 +1,3 @@
+Artículo 13.—De las autorizaciones definitivas: Las autorizaciones definitivas para los Ajustes Presupuestarios serán realizadas de la siguiente forma:
+a) De las autorizaciones para las modificaciones presupuestarias específicas: Cualquier Ajuste Presupuestario que se realice bajo esta modalidad debe ser autorizado-de forma mancomunada-por la Jefatura del Área de Administración Financiera, conjuntamente con el Responsable del Programa respectivo o la Gerencia General.
+b) Para el caso específico del “centro gestor auditoria”: La responsabilidad de autorizar esta modalidad recae en el Auditor General o quien le sustituya.

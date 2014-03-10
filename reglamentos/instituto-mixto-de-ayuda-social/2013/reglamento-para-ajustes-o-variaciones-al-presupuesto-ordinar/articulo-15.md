@@ -1,0 +1,2 @@
+Artículo 15.—Cantidad mensual permitida y periodicidad de aprobación: Por la dinámica que representa este tipo de ajustes al presupuesto, el límite de documentos mensuales que se podrán elaborar será de diez (10) y el tiempo de aprobación no deberá superar los tres días hábiles.
+El monto máximo de recursos que se redistribuya sumando todas las Modificaciones Presupuestarias Generales y Específicas, no podrá exceder el 25% del monto total del Presupuesto Inicial más los Presupuestos Extraordinarios aprobados.

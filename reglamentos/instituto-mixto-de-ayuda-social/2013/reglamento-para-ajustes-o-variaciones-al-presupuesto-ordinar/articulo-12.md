@@ -1,0 +1,2 @@
+Artículo 12.—Cumplimiento bloque de legalidad aplicable: El Jefe de la Unidad de Presupuesto conjuntamente con el Profesional Ejecutor que elabore el documento final, deben dar fe de que éste fue elaborado en estricto apego al bloque de legalidad aplicable.
+Para atender lo anterior, estos funcionarios deben emitir sus firmas en los espacios destinados para tal fin, en el formulario preestablecido.

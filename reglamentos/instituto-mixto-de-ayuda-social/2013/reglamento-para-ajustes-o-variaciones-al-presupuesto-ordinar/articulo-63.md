@@ -1,0 +1,1 @@
+Artículo 63.—Comunicación de los ajustes o variaciones presupuestarias: Para que las Unidades puedan disponer de los recursos en forma oportuna, una vez aprobados y registrados los documentos, la Unidad de Presupuesto conjuntamente con la Jefatura del Área de Administración Financiera deben realizar la comunicación formal a las Unidades Ejecutoras.

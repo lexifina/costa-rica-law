@@ -1,0 +1,1 @@
+Artículo 18.—Requerimiento al que debe responder la elaboración de una Modificación Presupuestaria General: La elaboración de una Modificación Presupuestaria General debe responder a necesidades instituciones impostergables, que para ser atendidas se requiere realizar ajustes al Presupuesto Ordinario del Período.

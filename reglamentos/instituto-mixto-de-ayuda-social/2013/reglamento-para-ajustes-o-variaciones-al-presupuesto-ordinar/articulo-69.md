@@ -1,0 +1,2 @@
+Artículo 69.—De los formatos de los documentos: Corresponde al Área de Administración Financiera definir la estructura y elaborar los instrumentos (formularios) para los diferentes tipos de documentos que se elaborarán al amparo del presente Reglamento.
+Además, es la única dependencia Administrativa autorizada para modificar y/o replantear los formatos de los documentos, en caso de considerarlo pertinente.

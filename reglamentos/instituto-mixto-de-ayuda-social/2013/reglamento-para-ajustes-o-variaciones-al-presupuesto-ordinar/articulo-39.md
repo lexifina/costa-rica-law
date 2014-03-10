@@ -1,0 +1,1 @@
+Artículo 39.—Aprobación final interna: El Consejo Directivo, posterior a la recepción formal del documento, deberá conocerlo, verificarlo y pronunciarse mediante acto razonado sobre su aprobación o improbación, lo cual debe realizarse en el menor plazo posible.

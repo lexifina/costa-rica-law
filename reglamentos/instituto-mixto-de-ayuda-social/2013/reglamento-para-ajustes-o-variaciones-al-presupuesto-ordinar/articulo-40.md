@@ -1,0 +1,1 @@
+Artículo 40.—Plazos para emisión del acuerdo de consejo directivo: La Secretaría del Consejo Directivo dispondrá de dos días hábiles para trasladar a la Jefatura del Área de Administración Financiera, la resolución en firme que adopte el Consejo Directivo en relación con el documento sometido a su consideración.

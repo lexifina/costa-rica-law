@@ -1,0 +1,1 @@
+Artículo 28.—Pronunciamiento de las/os directoras/os del Consejo Directivo: Las/os Directoras/os del Consejo Directivo posterior a la recepción formal del documento, deberán conocerlo, analizarlo, verificarlo y pronunciarse mediante acto razonado de su viabilidad, lo cual deberá realizarse en el menor plazo posible.

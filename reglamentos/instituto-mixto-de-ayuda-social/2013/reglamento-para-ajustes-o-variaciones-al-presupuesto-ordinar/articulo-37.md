@@ -1,0 +1,1 @@
+Artículo 37.—Remisión formal del documento a la gerencia general: Una vez concluidas las acciones correspondientes al artículo anterior, estos mismos funcionarios deberán remitir formalmente el documento a la Gerencia General para que ésta a su vez lo remita formalmente al Consejo Directivo para su aprobación-final-interna.

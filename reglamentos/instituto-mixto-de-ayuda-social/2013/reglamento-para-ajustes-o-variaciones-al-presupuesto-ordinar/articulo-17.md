@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+De las modificaciones presupuestarias generales
+Artículo 17.—Modificaciones presupuestarias generales: Las Modificaciones Presupuestarias Generales son el mecanismo legal y técnico mediante el cual le está permitido a la Administración Activa realizar ajustes cualitativos o cuantitativos entre Programas (exceptuando el Programa de Empresas Comerciales), Partidas, Grupos de Subpartidas, Subpartidas o Categorías Programáticas. También le está permitido incorporar nuevos gastos tomando recursos de otras Partidas, Grupos o Subpartidas, sin alterar el monto total del Presupuesto Inicial.

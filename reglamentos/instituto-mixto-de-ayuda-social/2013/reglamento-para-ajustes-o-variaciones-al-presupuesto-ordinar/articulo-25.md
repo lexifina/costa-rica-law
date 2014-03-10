@@ -1,0 +1,1 @@
+Artículo 25.—Periodicidad de presentación: El periodo para presentación de documentos ante el Consejo Directivo será desde la primera sesión que realicen en el mes de enero del periodo en ejercicio y hasta la última sesión del mes de diciembre inclusive.

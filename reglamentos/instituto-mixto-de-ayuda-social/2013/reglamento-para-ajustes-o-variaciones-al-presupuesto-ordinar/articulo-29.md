@@ -1,0 +1,1 @@
+Artículo 29.—Aprobación definitiva: La aprobación definitiva de las Modificaciones Presupuestarias Generales corresponde exclusivamente al Consejo Directivo, la cual deberá quedar formalmente establecida en un Acuerdo que emitirá dicho Órgano Colegiado.

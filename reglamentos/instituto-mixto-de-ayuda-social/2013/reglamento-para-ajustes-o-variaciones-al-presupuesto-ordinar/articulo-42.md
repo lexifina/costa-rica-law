@@ -1,0 +1,1 @@
+Artículo 42.—Formalidades para la remisión de los documentos a los entes y órganos externos: La remisión de los documentos a los entes y órganos externos se hará con oficio formal debidamente rubricado por quienes ostenten el Cargo de Presidente Ejecutivo, Gerente General o Subgerente de Soporte Administrativo.

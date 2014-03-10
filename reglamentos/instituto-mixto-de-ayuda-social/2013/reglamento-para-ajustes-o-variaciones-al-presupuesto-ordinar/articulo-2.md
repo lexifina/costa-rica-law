@@ -1,0 +1,1 @@
+Artículo 2º—Alcance: Establecer las regulaciones que deben atender las Unidades Administrativas institucionales en el desarrollo de las tareas, actividades y/o acciones que se requieran realizar en el proceso de Ajustes o Variaciones al Presupuesto Ordinario Institucional.

@@ -1,0 +1,1 @@
+Artículo 34.—Elaboración del Documento Presupuestario: Concluidas las acciones previas a la elaboración del documento presupuestario, la Unidad de Presupuesto debe proceder con el procesamiento y consolidación de la información que éste debe contener.

@@ -1,0 +1,2 @@
+Artículo 7º—De las justificaciones requeridas: Las Unidades Ejecutoras que requieran realizar alguna de estas modalidades deben presentar al Área de Administración Financiera-Unidad de Presupuesto una solicitud formal en los formularios preestablecidos para tal efecto, justificando la no adquisición de lo programado y fundamentando las causas que motivan la nueva necesidad.
+Dichas justificaciones deben indicar expresamente, que la solicitud planteada no afecta el cumplimiento de las metas e indicadores establecidos en el Plan Operativo Institucional.

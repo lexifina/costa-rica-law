@@ -1,0 +1,4 @@
+Artículo 52.—De la Subgerencia de Soporte Administrativo: Son responsabilidades de esta instancia, las siguientes:
+a) Cada vez que se requiera elaborar un documento presupuestario mediante el cual se realicen Ajustes o Variaciones al Presupuesto Ordinario del período, deberá emitir instrucción formal a la Jefatura del Área de Administración Financiera para que ésta, instruya al Jefe de la Unidad de Presupuesto para que inicie el proceso de elaboración del documento respectivo.
+b) Debe verificar que las instrucciones emitidas por el Consejo Directivo para cada documento presupuestario que se someta a su aprobación, se cumplan en tiempo y forma.
+c) Debe realizar periódicamente (como mínimo una vez al año) una evaluación de los mecanismos definidos para la formulación y aprobación de los Ajustes o Variaciones al Presupuesto, para conocer si se mantienen acordes con los requerimientos institucionales o si requieren ser modificados.

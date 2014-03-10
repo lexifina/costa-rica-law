@@ -1,0 +1,1 @@
+Artículo 9º—De las autorizaciones previas: Las solicitudes de Modificaciones Presupuestarias Específicas que se presenten al Área de Administración Financiera-Unidad de Presupuesto, deben contener el nombre y firma del Jefe de la Unidad Ejecutora y autorizadas por el Responsable del Programa Presupuestario.

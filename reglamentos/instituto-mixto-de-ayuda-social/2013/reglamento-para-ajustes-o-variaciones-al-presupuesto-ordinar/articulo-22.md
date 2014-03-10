@@ -1,0 +1,4 @@
+Artículo 22.—Documentos adicionales que se deben incorporar, posterior a la aprobación de las modificaciones generales, previo a ser remitidas a la Contraloría General de la República:
+a) Acuerdo del Consejo Directivo que confirme la oficialidad del documento presupuestario, incluyendo el Criterio Técnico emitido por el Área de Planificación Institucional y demuestre que se realizó la aprobación interna final.
+b) Certificación de verificación de requisitos del Bloque de Legalidad que deben cumplir el Presupuesto Inicial y sus Variaciones, la cual debe ajustarse a los requisitos establecidos por la Contraloría General de la República; emitida por el/la Jefatura del Área de Administración Financiera.
+c) Nota emitida por la Presidencia ejecutiva, o en su ausencia por Gerencia General o Subgerencia de Soporte Administrativo para remisión formal, tanto a la Secretaria Técnica de la Autoridad Presupuestario, como a la Contraloría General de la República.

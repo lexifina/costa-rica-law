@@ -1,0 +1,1 @@
+Artículo 48.—Metodología para rendir cuentas: El Área de Administración Financiera deberá incluir en el Informe Trimestral de Labores que remite a la Subgerencia de Soporte Administrativo la cantidad de documentos presupuestarios que fueron elaborados en el período cubierto.

@@ -1,0 +1,1 @@
+Artículo 23.—Revisión y autorizaciones previas: Una vez consolidada la información, el documento final, previo a ser remitido formalmente a la Gerencia General para que se continúe con el proceso, debe ser revisado, verificado y autorizado por el/ la Jefe del Área de Administración Financiera y el Subgerente de Soporte Administrativo.
