@@ -15,3 +15,4 @@ Reglamento sobre la Regulación y comercialización de bebidas con contenido alc
 | --- | --- | --- |
 | 1 | 2012-12-21 | la propia norma |
 | 2 | 2013-12-02 | Reglamento municipal 67 (2013-12-02) |
+| 3 | 2014-03-10 | Reglamento municipal 14 (2014-03-10) |
