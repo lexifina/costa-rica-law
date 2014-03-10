@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Junta de Relaciones Laborales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-06 | la propia norma |
+| 2 | 2014-03-10 | Reglamento 4618 (2014-03-10) |
