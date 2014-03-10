@@ -14,3 +14,4 @@ Medidas de Control veterinario de las zoonosis H5N1 a fin de prevenir el ingreso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-20 | la propia norma |
+| 2 | 2014-03-10 | Resolución 10 (2014-03-10) |

@@ -1,4 +1,6 @@
+(Derogado)
 SERVICIO NACIONAL DE SALUD ANIMAL
+(Esta norma fue derogada mediante resolución N° SENASA-DG-R010-2014 del 10 de marzo del 2014 "Establece una exoneración de un 100%, 50% y un 25% a los usuarios de SENASA que apliquen la tarifa KG.04 relativa a "Aislamiento viral y KG.05 "Prueba de Hemaglutinación Aviar"")
 Considerando:
 I.—Que la avicultura constituye una de las actividades más relevantes para la economía costarricense, lo que se evidencia con el aporte de 0.73% del Producto Interno Bruto (PIB) del país y un 4.21% del producto agropecuario del país. Dicha actividad, consolida la seguridad alimentaria que como país debe garantizarse, aportando productos de calidad con alto contenido proteínico, a bajo costo para las familias costarricenses, haciéndolos accesibles a la dieta alimenticia de la población humana.
 Por lo anteriormente expuesto, el gobierno de Costa Rica a través del Servicio Nacional de Salud Animal del MAG considera que para continuar protegiendo a la avicultura nacional contra la Influenza Aviar, es necesario fortalecer la estrategia para la prevención, y respuesta inmediata que permita que todos los costarricenses contribuyamos a mantener el país libre de la enfermedad y que ante una eventual introducción del virus se brinde una respuesta inmediata, controlando e impidiendo su diseminación.
