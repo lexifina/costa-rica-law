@@ -1,0 +1,1 @@
+Artículo 21.—La Municipalidad bajo ninguna circunstancia suministrará los servicios de forma gratuita, ni exonerará total o parcialmente el pago de cualquier multa, interés o cuenta, a no ser que exista disposición legal que la autorice para ello.

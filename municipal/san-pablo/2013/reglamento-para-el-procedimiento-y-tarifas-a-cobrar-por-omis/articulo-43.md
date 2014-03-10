@@ -1,0 +1,1 @@
+Artículo 43.—Efectos del Incumplimiento: El incumplimiento de lo expresado en los artículos precedentes será causal de suspensión de las obras o la eliminación de los obstáculos por parte de la Dirección de Desarrollo y Control Urbano, seguido del procedimiento establecido en el presente Reglamento.

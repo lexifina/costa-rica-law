@@ -1,0 +1,1 @@
+Artículo 42.—El contribuyente estará obligado a adoptar las medidas ambientales que garanticen una adecuada acumulación, disposición y transporte de los residuos que genere las construcciones en sus predios y vías públicas.

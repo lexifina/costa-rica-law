@@ -1,0 +1,1 @@
+Artículo 14.—Efectos del incumplimiento: Vencido el plazo establecido en el artículo anterior, la Municipalidad procederá a la imposición de multas y facultativamente, a realizar los servicios u obras respectivas.

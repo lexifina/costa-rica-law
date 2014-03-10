@@ -1,0 +1,1 @@
+Artículo 24.—Construcción de aceras: La construcción de aceras se regirá por los apartados 1 y 2 de la guía para el diseño y construcción de aceras en Costa Rica, del Colegio Federado de Ingenieros y Arquitectos (CFIA) y lo establecido en la Ley de Construcciones y su Reglamento.

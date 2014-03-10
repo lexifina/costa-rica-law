@@ -1,0 +1,1 @@
+Artículo 2º—Alcance: Este reglamento rige en todo el Cantón de San Pablo de Heredia, afectando a cualquier persona física, jurídica, propietaria o poseedora por cualquier título, de bienes inmuebles ubicados en el Cantón.

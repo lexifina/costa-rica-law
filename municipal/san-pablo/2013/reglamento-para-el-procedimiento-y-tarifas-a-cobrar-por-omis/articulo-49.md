@@ -1,0 +1,2 @@
+Artículo 49.—Notificación automática: El contribuyente que en su primer escrito no indicare, medio o lugar para atender notificaciones futuras, quedará notificado de las resoluciones posteriores con sólo que transcurran veinticuatro horas después de dictadas.
+Se producirá igual consecuencia si el medio aportado imposibilitare la notificación por causas ajenas a la Municipalidad o bien, si el lugar señalado permaneciere cerrado, fuere impreciso, incierto o inexistente.

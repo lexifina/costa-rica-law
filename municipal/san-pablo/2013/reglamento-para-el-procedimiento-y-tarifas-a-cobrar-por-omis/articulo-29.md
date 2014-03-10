@@ -1,0 +1,1 @@
+Artículo 29.—El valor del metro cuadrado de acera será determinado anualmente por la Municipalidad, mediante los estudios de costos correspondientes que realice la Unidad Técnica de Gestión Vial Cantonal.
