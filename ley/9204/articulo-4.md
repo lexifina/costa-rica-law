@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Nombramiento de los funcionarios
+El nombramiento del personal del Mecanismo Nacional de Prevención contra la Tortura será responsabilidad del defensor o defensora de los habitantes, quien deberá velar por que dicho personal cuente con las capacidades y los conocimientos profesionales requeridos, según lo señala el Protocolo Facultativo de la Convención contra la Tortura. Asimismo, la Defensoría de los Habitantes deberá dotar al Mecanismo Nacional de Prevención de los recursos humanos necesarios para el cumplimiento de su mandato.

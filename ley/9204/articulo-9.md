@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Visitas a los centros de aprehensión, detención y privación de libertad
+El Mecanismo Nacional de Prevención fijará por sí mismo la frecuencia de visita a los centros de aprehensión, detención y privación de libertad tomando en consideración su naturaleza y los diferentes tipos que existen. Las visitas se realizarán de manera regular con el fin de proteger a las personas privadas de libertad.

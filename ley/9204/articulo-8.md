@@ -1,0 +1,3 @@
+ARTÍCULO 8.- Prohibición de sanciones y la confidencialidad de la información
+Ninguna autoridad o persona funcionaria ordenará, aplicará, permitirá o tolerará ninguna sanción contra ninguna persona u organización por haber comunicado al Mecanismo Nacional de Prevención cualquier información, ya sea verdadera o falsa, y ninguna de estas personas u organizaciones sufrirá perjuicios de ningún tipo por este motivo.
+La información confidencial recogida por el Mecanismo Nacional de Prevención tendrá carácter reservado. No podrán publicarse datos personales sin el consentimiento expreso de la persona interesada.

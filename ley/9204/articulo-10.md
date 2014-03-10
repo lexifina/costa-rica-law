@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Inmunidades del personal del Mecanismo Nacional de Prevención
+En el ejercicio de su mandato, al personal del Mecanismo Nacional de Prevención se le otorgarán las prerrogativas e inmunidades establecidas en el artículo 6 de esta ley, según lo señala el artículo 35 del Protocolo Facultativo de la Convención contra la Tortura; también, al personal del Mecanismo Nacional de Prevención se le otorgarán las prerrogativas e inmunidades correspondientes.

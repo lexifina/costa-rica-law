@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Deber de colaborar
+Todo el personal de las instituciones públicas, sin distinción de rango o jerarquía, ni excusa en órdenes de sus superiores, garantizarán el cumplimiento del Protocolo Facultativo a la Convención contra la Tortura y otros Tratos o Penas Crueles, Inhumanos o Degradantes, y prestarán colaboración preferente al Mecanismo Nacional de Prevención, para el ejercicio de las funciones que le han sido encomendadas a este y en cumplimiento de la presente ley.
