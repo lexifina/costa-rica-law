@@ -1,0 +1,1 @@
+Artículo 4º—Para la determinación de planes y proyectos dirigidos a mejorar e implementar las políticas en la materia, deberá existir una coordinación permanente entre la Comisión Municipal de Accesibilidad junto con la Administración y sus dependencias.

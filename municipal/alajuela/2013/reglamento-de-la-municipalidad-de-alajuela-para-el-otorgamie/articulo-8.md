@@ -1,0 +1,1 @@
+Artículo 8º—Elección del ganador del galardón. El galardón anual será entregado a aquella empresa o empresas elegida (s) por la Comisión Municipal de Accesibilidad por mayoría absoluta de votos con base en la valoración fundamentada en las normas técnicas y buenas prácticas de la materia.

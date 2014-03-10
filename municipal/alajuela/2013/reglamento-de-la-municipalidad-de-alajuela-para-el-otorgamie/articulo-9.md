@@ -1,0 +1,1 @@
+Artículo 9º—Declaratoria de galardón desierto. En casos excepcionales en los que no existan postulantes con méritos para recibir el reconocimiento, el galardón podrá ser declarado desierto por el Concejo Municipal.
