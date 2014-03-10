@@ -1,0 +1,1 @@
+Artículo 43.—Corresponde a la Fiscalía además de las específicas funciones establecidas en la Ley Orgánica, cumplir una labor de prevención, previsión e interpelación, sobre el apego de las actuaciones y conductas de los diferentes órganos y personas integrantes del colegio, a la ética y legalidad establecidas para el gremio.

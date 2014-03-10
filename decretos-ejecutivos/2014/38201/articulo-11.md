@@ -1,0 +1,2 @@
+Artículo 11.—Para el ejercicio profesional, tanto el Bachillerato como la Licenciatura deberán ser específicamente en Orientación.
+En el caso de grados académicos universitarios obtenidos sobre la base de títulos diferentes al bachillerato en Orientación o sobre currículos incompletos o deficientes, el Colegio podrá, según las circunstancias de cada caso, requerir el plan remedial respectivo o rechazar la incorporación.

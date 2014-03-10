@@ -1,0 +1,2 @@
+Artículo 4º—La persona que ocupe la Presidencia de la Junta Directiva ejercerá la representación judicial y extrajudicial con facultades de apoderada general en los términos del artículo 1255 del Código Civil.
+Para ejercer las facultades señaladas en los artículos 1º, 24º, 26º y 31º de la Ley Orgánica, cuando estas requieran actuaciones más allá de la amplia y general administración, deberá contar con la autorización expresa mediante acuerdo previo de la Junta Directiva o de la Asamblea General, según corresponda.

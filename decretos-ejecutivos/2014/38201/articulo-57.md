@@ -1,0 +1,1 @@
+Artículo 57.—Si se determina que existió incumplimiento a los principios de la ética contenidos en el Código de Ética del Colegio, el Tribunal en sesión privada, aplicará a la persona colegiada infractora, alguna de las sanciones previstas en el artículo 40 de la Ley Orgánica.

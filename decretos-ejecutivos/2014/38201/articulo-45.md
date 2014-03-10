@@ -1,0 +1,1 @@
+Artículo 45.—La competencia del Tribunal Electoral y los procedimientos electorales serán determinados por el Reglamento Interno de Elecciones del Colegio de Profesionales en Orientación aprobado conforme lo establecido por el artículo 33, inciso b) de la Ley Orgánica.

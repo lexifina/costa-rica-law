@@ -1,0 +1,1 @@
+Artículo 16.—La persona colegiada que se encuentre retirada voluntariamente del Colegio y solicite su reincorporación, deberá pedirla por escrito a la Junta Directiva; previamente a la reactivación deberá proceder a actualizar su expediente personal.

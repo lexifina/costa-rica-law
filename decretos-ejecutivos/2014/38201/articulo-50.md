@@ -1,0 +1,1 @@
+Artículo 50.—El conocimiento del Código de Ética que norma el ejercicio de la profesión de la Orientación es de estricta obligatoriedad para todas las personas colegiadas. Las personas colegiadas deberán regir su conducta profesional y personal de acuerdo con las reglas contenidas en el Código de Ética Profesional.

@@ -1,0 +1,1 @@
+Artículo 21.—La Junta Directiva cuando lo considere necesario, ordenará la publicación de la lista de las personas colegiadas retiradas voluntariamente, por sanción o en general, la lista de personas colegiadas activas, en el Diario Oficial “La Gaceta”, o en un medio de comunicación de alcance nacional y en el sitio oficial de Internet del Colegio.

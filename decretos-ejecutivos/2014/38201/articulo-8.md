@@ -1,0 +1,1 @@
+Artículo 8º—La interposición de recursos ordinarios de revocatoria y apelación contra los acuerdos y las resoluciones de la Junta Directiva, en las materias de su competencia, no suspenderá su ejecución.

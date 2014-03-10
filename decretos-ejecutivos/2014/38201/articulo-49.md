@@ -1,0 +1,1 @@
+Artículo 49.—Para ser miembro del Tribunal de Honor, se debe cumplir con los requisitos establecidos en el artículo 37 de la Ley Orgánica. La Fiscalía será el órgano responsable de verificar que existan los atestados que den fe del cumplimiento de los requisitos expuestos en este artículo.

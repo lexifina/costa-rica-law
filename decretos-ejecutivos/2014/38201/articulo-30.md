@@ -1,0 +1,1 @@
+Artículo 30.—El Colegio resolverá toda solicitud de incorporación dentro del plazo de un mes; este plazo se contará una vez que las personas solicitantes cumplan con los requisitos establecidos y se juramentará en la Sesión de Juramentación más próxima de acuerdo con el cronograma establecido por la Junta Directiva.

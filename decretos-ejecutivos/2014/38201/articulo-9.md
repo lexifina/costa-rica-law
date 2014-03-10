@@ -1,0 +1,1 @@
+Artículo 9º—Las normas de administración financiera del Colegio, incluidas las de contratación, la forma de pago de cuotas y los mecanismos de gestión de cobro serán incorporadas en el Reglamento Administrativo que se dicte de conformidad con el inciso d) del artículo 25 de la Ley Orgánica.

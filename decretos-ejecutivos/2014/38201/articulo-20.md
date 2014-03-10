@@ -1,0 +1,2 @@
+Artículo 20.—La persona integrante suspendida por falta de pago de sus cuotas ordinarias, perderá su condición de persona colegiada y los derechos relacionados. Dicha suspensión no inhibe los deberes de pago de cuotas subsecuentes a las que motivaron su suspensión.
+Para recuperar la condición normal, se deberá cancelar la totalidad de las cuotas pendientes. El levantamiento de la suspensión será aprobado por el Tribunal de Honor.

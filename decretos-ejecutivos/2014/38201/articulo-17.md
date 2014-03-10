@@ -1,0 +1,2 @@
+Artículo 17.—Las personas colegiadas, la Junta Directiva o la Asamblea, podrán proponer la distinción de integrante honorario a personas nacionales o extranjeras que no sean personas colegiadas, y que hayan hecho aportes extraordinarios en el campo de la Orientación.
+Para analizar estas sugerencias, la Junta Directiva conformará una comisión especial de personas colegiadas para que estudie esta solicitud de distinción y presente un informe para cada caso, el cual será remitido a la Asamblea General, la que tomará el acuerdo respectivo.

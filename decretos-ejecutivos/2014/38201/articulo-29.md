@@ -1,0 +1,1 @@
+Artículo 29.—El Colegio proveerá el día de la Juramentación a sus personas colegiadas de un certificado de incorporación, el cual deberá indicar entre otros datos el número de código asignado a la persona colegiada y la fecha en que fue admitida en el Colegio.

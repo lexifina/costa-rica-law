@@ -1,0 +1,1 @@
+Artículo 14.—En la aprobación del retiro voluntario temporal o permanente, la Junta Directiva prevendrá, que conforme al artículo 11 de la Ley Orgánica, el retiro voluntario implica la renuncia al ejercicio de la profesión y a los beneficios otorgados por el Colegio.

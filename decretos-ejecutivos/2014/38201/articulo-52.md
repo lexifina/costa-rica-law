@@ -1,0 +1,1 @@
+Artículo 52.—Cuando llegue a conocimiento de la Junta Directiva una denuncia por cualquier medio en la cual se alegue violación de los principios éticos por parte de una persona colegiada, la Junta Directiva pondrá en conocimiento del Tribunal de Honor para que instruya la causa respectiva.

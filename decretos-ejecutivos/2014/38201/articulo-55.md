@@ -1,0 +1,2 @@
+Artículo 55.—Al pronunciarse sobre el fondo, el Tribunal indicará, debidamente fundamentado, los hechos que tenga por probados, los que considere faltos de prueba y expondrá con claridad sus razonamientos y conclusiones. Lo resuelto se notificará a la persona denunciada y a la denunciante, si la hubiere.
+Contra los fallos del Tribunal procede recurso de revocatoria y de apelación ante la Asamblea General. Cada recurso deberá ser interpuesto por la persona interesada dentro de los quince días hábiles siguientes al día de la notificación respectiva.

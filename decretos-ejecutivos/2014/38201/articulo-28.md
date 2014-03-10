@@ -1,0 +1,1 @@
+Artículo 28.—El Colegio extenderá a sus personas colegiadas un carné de identificación que lo acreditará como tal; en caso de pérdida antes de su expiración la persona colegiada deberá cancelar el monto correspondiente para su reposición.
