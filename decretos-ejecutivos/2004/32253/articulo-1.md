@@ -97,7 +97,7 @@ de carbonato de calcio (CaCO3).
 9.2.4 Dirección del fabricante o importador.
 9.2.5 País de origen. Cuando el producto se someta en un segundo país a una elaboración que cambie su naturaleza, el país en el que se efectúe la elaboración deberá considerarse como país de origen para los fines del etiquetado.
 9.2.6 Fecha de empaque y envasado. (El cemento deberá ser comercializado dentro de los 45 días después de la fecha de empaque.)
-9.2.7 Número de registro que se le asigne en el Registro de Importadores y Productores de Cemento.
+9.2.7 (Derogado este acápite por el artículo 1° del decreto ejecutivo N° 38404 del 10 de marzo del 2014)
 9.3 Etiquetado de la presentación a granel.
 9.3.1 Las indicaciones arriba mencionadas deberán especificarse en un documento de referencia que se le entregue al cliente junto con la factura.
 9.3.2 El granel no tiene empaque, por lo que la fecha de comercialización no debe exceder la fecha de producción, que se deberá hacer constar en una declaración jurada de producción emitida por el productor o importador y deberá contener lo establecido en el numeral 8 de este reglamento. Esta declaración jurada aplica tanto para la producción nacional como para la importación del producto.

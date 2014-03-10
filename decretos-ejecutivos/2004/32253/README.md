@@ -15,3 +15,4 @@ Reglamento Técnico RTCR 383:2004 Cementos Hidráulicos, Especificaciones
 | --- | --- | --- |
 | 1 | 2005-03-10 | la propia norma |
 | 2 | 2006-06-26 | Decreto Ejecutivo 33229 (2006-06-26) |
+| 3 | 2014-03-10 | Decreto Ejecutivo 38404 (2014-03-10) |
