@@ -1,1 +1,0 @@
-Artículo 4º—Completado el formulario y aportados los documentos faltantes, se procederá a asignar el número de registro. Este número de registro, le será comunicado al interesado en un plazo de 5 días hábiles, posteriores al recibido del formulario y la documentación respectiva. El número de registro se deberá indicar en las solicitudes de importación que a futuro se realicen.
