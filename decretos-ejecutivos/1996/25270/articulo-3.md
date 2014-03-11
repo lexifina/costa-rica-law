@@ -1,11 +1,12 @@
 CAPÍTULO II
 Creación y competencia territorial y funcional
-Artículo 3º—Territorialidad. El Servicio contará con las aduanas que se señalan en el presente Capítulo. Los asientos geográficos de las aduanas, su competencia territorial y funcional se establecen de la siguiente manera:
+Artículo 3º—Territorialidad. El Servicio contará con las aduanas que se señalen en el presente Capítulo. Los asientos geográficos de las aduanas, su competencia territorial y funcional se establecen de la siguiente manera:
 Aduana de Caldera: Comprende de la provincia de San José, el cantón de Turrubares; de la provincia de Alajuela, los cantones de San Mateo y Orotina; de la provincia de Puntarenas, los cantones de Puntarenas, Esparza, Montes de Oro, Aguirre, Parrita y Garabito.
 Aduana Central: Comprende de la provincia de San José los siguientes cantones: Central, Escazú, Desamparados, Tarrazú, Aserrí, Goicoechea, Alajuelita, Coronado, Acosta, Tibás, Moravia, Montes de Oca, Dota, Curridabat, Pérez Zeledón y León Cortés; de la provincia de Heredia los siguientes cantones: San Rafael y San Isidro y la provincia de Cartago. Tiene a su cargo el Puesto de Aduana Postal ubicado en las Oficinas de Correos de Costa Rica en Zapote.
 Aduana La Anexión: Comprende de la provincia de Guanacaste, los cantones de Liberia, Nicoya, Santa Cruz, Bagaces, Carrillo, Cañas, Tilarán, Abangares, Nandayure y Hojancha.
 Aduana de Limón: Comprende de la provincia de Limón, los cantones de Limón, Pococí, Siquirres, Matina, Talamanca y Guácimo. Tiene a su cargo el Puesto de Aduana Sixaola.
 Aduana de Paso Canoas: Comprende de la provincia de Puntarenas, los cantones de Coto Brus, Corredores, Buenos Aires, Osa y el Puesto de Aduana de Golfito.
-Aduana de Peñas Blancas: Comprende de la provincia de Guanacaste, el cantón de La Cruz; de la provincia de Alajuela, los cantones Los Chiles, Úpala y Guatuso. Tiene a su cargo el Puesto de Aduana Los Chiles.
+Aduana de Peñas Blancas: Comprende de la provincia de Guanacaste, el cantón de La Cruz; de la provincia de Alajuela, los cantones Los Chiles, Upala y Guatuso. Tiene a su cargo los Puestos de Aduana Los Chiles y Las Tablillas.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 38266 del 11 de marzo del 2014)
 Aduana Santamaría: Comprende de la provincia de San José, los cantones de Puriscal, Mora y Santa Ana; de la provincia de Heredia, los cantones de Heredia, Barva, Santa Bárbara, Belén, Flores, Santo Domingo, San Pablo y Sarapiquí; de la provincia de Alajuela, el cantón de Alajuela, San Ramón, Grecia, Atenas, Naranjo, Palmares, Poás, Alfaro Ruiz y Valverde Vega. Tiene a su cargo el Puesto de Aduana Tobías Bolaños.
 (Así reformado por artículo 1° del decreto ejecutivo N° 35693 de 2 de noviembre de 2009)
