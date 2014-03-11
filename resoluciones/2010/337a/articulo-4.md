@@ -1,5 +1,0 @@
-4. De la estiba de las mercancías.
-4.1 El área reservada por el Depositario Aduanero dentro de los de 3.000 m2 (tres mil metros cuadrados) para la estiba y desestiba de las mercancías, debe estar identificada y diferenciada de las destinadas al tránsito peatonal y del espacio físico asignado para la movilización del equipo (montacargas, carretillas etc.).
-4.2 Las mercancías deben estibarse en los “racks” o estantes (tarimas) diseñados para soportar el peso, volumen y altura de las mismas; salvo aquellas mercancías que por su naturaleza, peso, tamaño, difícil movilización o similar no puedan ubicarse en estantes.
-4.3 Los racks o estantes deben estar identificados con códigos numéricos o de barras que permitan el acceso ágil a datos relacionados con la ubicación de la mercancía en el Depositario Aduanero, tales como: Número de rack, nivel, posición, pasillo, etc.
-4.4 En los registros del Depositario Aduanero debe identificarse el código de la ubicación exacta en que se encuentran ubicados los bultos, asociado a cada movimiento de inventario.
