@@ -15,3 +15,4 @@ Reglamento para funcionamiento del fondo de caja chica de la Municipalidad de Pa
 | --- | --- | --- |
 | 1 | 2004-03-29 | la propia norma |
 | 2 | 2007-02-05 | Reglamento municipal 40 (2006-02-05) |
+| 3 | 2014-03-11 | Reglamento municipal 201 (2014-03-11) |
