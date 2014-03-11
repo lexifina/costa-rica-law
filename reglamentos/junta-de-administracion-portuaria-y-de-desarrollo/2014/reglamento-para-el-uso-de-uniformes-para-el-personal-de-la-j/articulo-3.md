@@ -1,0 +1,1 @@
+Artículo 3º—Control. Es responsabilidad de las jefaturas de las distintas direcciones, departamentos y/o secciones, el uso y el control adecuado del uniforme institucional por parte de los funcionarios bajo su cargo.

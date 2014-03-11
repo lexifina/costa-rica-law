@@ -1,0 +1,1 @@
+Artículo 11.—Prohibiciones. Se prohíbe al personal. Hacer modificaciones a los uniformes distintos a los establecidos en este Reglamento. Donar, vender, alquilar, dar en calidad de prenda o facilitar en préstamo alguna prenda de los uniformes, aun cuando se encuentren en mal estado o en desuso. Portar el uniforme bajo los efectos del licor u otras drogas no autorizadas.

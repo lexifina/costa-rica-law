@@ -1,0 +1,1 @@
+Artículo 10.—El uniforme deberá usarse completo, no se permitirá combinaciones de ninguna índole. En el caso de las trabajadoras, el uso del uniforme estará previsto de acuerdo al calendario establecido por la Sección de Salud Ocupacional para cada día laborable.

@@ -1,0 +1,1 @@
+Artículo 9º—En caso de pérdida o daños de los uniformes, el personal está obligado a adquirir un nuevo uniforme con sus propios recursos de acuerdo al modelo entregado por la Institución, en un plazo no mayor a treinta días, lo cual será notificado a la Sección de Salud Ocupacional.

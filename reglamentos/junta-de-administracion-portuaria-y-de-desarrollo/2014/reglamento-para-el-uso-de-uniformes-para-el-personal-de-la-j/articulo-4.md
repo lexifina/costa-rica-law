@@ -1,0 +1,5 @@
+CAPÍTULO II
+Adquisición, entrega y cuidado de los uniformes
+Artículo 4º—Adquisición.
+A) Estará bajo la responsabilidad de la Sección de Salud Ocupacional, el gestionar la adquisición de los uniformes de conformidad con los procedimientos administrativos existentes, para ello coordinará con la comisión de seguridad la definición del tipo de telas, hechura y modelos de los uniformes, considerando la naturaleza de los puestos de trabajo, en fiel cumplimiento en lo dispuesto por la Convención Colectiva de Trabajo, bajo criterios de política de austeridad y ahorro institucional.
+B) Se define que los colores oficiales para los uniformes son el azul marino y blanco, siendo que el uso del uniforme institucional contribuye a la identificación del empleado (a) dentro y fuera de las instalaciones portuarias, fortaleciendo su identidad institucional. Los funcionarios que se desempeñan en labores de mantenimiento de edificios y vehículos, por la naturaleza de su actividad laboral sus uniformes serán: pantalón: azul marino y camisa: gris.
