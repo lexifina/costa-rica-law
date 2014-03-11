@@ -1,2 +1,1 @@
-Transitorio quinto.—Tanto con lo expuesto en los artículos 2, 6, 11 y 19 de este reglamento y como en otros supuestos de los que el solicitante alegue razones técnicas para la instalación de infraestructura (torres) por requisitos distintos a los indicados en esta norma, la corporación municipal solicitará el criterio técnico del ente competente.
-(Así reformado mediante sesión ordinaria N° 168 del 12 de junio de 2012)
+Transitorio quinto.—(Derogado mediante sesión ordinadia N° 304 del 11 de marzo del 20014)

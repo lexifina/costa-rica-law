@@ -16,3 +16,4 @@ Reglamento General para Licencias Municipales en Telecomunicaciones de la Munici
 | 1 | 2013-06-26 | la propia norma |
 | 2 | 2013-06-26 | Reglamento municipal 140 (2012-01-31) |
 | 3 | 2013-06-26 | Reglamento municipal 168 (2012-06-12) |
+| 4 | 2014-03-11 | Reglamento municipal 304 (2014-03-11) |

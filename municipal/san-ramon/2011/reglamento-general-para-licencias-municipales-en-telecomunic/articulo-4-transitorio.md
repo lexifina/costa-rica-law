@@ -1,2 +1,3 @@
-Transitorio Cuarto:
-En caso de conflicto por ubicación, y distancias mínimas de las torres para antenas de telecomunicaciones, y al no contar la Municipalidad con personal técnico idóneo, se solicitará a la SUTEL, el criterio técnico respectivo.
+Transitorio cuarto:
+Se exceptúa de las disposiciones de este reglamento, las instalaciones que operen frecuencias de uso privado, como radio aficionados, estaciones de taxis unidos o para servicios de comunicación entre las empresas de buses o negocios, y que no edifiquen torres o antenas mayores a 6 metros de altura.
+(Así reformado mediante sesión ordinaria N° 304 del 11 de marzo del 2014)

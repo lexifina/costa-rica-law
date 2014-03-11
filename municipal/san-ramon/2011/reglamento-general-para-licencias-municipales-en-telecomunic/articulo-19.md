@@ -1,7 +1,7 @@
 CAPÍTULO V
 Licencias Municipales
 Artículo 19.—Para la obtención de la Licencia de Construcción, los solicitantes deberán presentar conjuntamente con el formulario correspondiente de este Reglamento los siguientes requisitos:
-1. Declaración jurada protocolizada otorgada ante Notario Público, con las especies fiscales de Ley, donde se haga constar que no existe una torre de telecomunicaciones a una distancia mínima de 1.500 metros desde el centro de la torre propuesta.
+1. (Derogado mediante sesión ordinaria N° 304 del 11 de marzo del 2014)
 2. Declaración jurada y protocolizada otorgada ante Notario Público, con las especies fiscales de Ley, donde se haga constar que la Obras Constructivas se construirán para ser compartidas por un mínimo de tres emplazamientos de antenas y equipos, conforme a lo establecido por el artículo 77 de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, Ley N°. 8660 del 8 de agosto de 2008.
 3. Documentación que acredite el derecho de uso, goce y disfrute del inmueble respectivo, en la cual debe hacerse constar de manera expresa el consentimiento del propietario cuando se pretenda establecer las Obras Constructivas en inmuebles propiedad de un tercero que no sea el solicitante de la Licencia de Construcción.
 4. Certificado de uso del suelo conforme.
