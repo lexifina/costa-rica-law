@@ -1,6 +1,10 @@
-Artículo 112.—Salvo lo dispuesto en el artículo anterior, la aplicación de sanciones disciplinarias corresponderá:
-a) Al Ministro o Viceministro, según se trate de Directores, Jefes o servidores directamente dependientes de cada uno de ellos.
-b) A los Jefes Inmediatos respectivos, cuando se trate de amonestación oral o de apercibimiento escrito.
-c) Al Director respectivo, cuando se trate de suspensiones disciplinarias, previo otorgamiento del debido proceso y concesión de derecho de defensa.
-En casos de despido por justa causa y de suspensión previa mientras se tramita la correspondiente gestión de despido, se seguirán los trámites establecidos por el Estatuto de Servicio Civil y su Reglamento.
-Cuando la sanción fuere escrita, se deberá enviar copia al Departamento de Recursos Humanos, para efectos de su inclusión en el expediente de servicios.
+CAPITULO XXI
+Régimen disciplinario y procedimiento de aplicación de sanciones
+Sanciones por infracciones al registro de puntualidad y asistencia:
+Artículo 112.—El servidor que por dolo, complacencia o negligencia registre la asistencia que corresponde a otro incurrirá en falta grave a sus obligaciones; la cual se sancionará de la siguiente forma:
+a) Por la primera vez: Amonestación escrita.
+b) Por la segunda vez: Suspensión del trabajo sin goce de salario hasta por quince días.
+c) Por la tercera vez: Despido sin responsabilidad para el Ministerio.
+Incurrirá en la misma falta y recibirá igual sanción, el servidor a quien se le compruebe haber consentido para que otra persona le registre su asistencia a labores.
+Para efectos de reincidencia, estas faltas se computarán en un lapso de tres meses.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014, que lo traspasó del antiguo artículo 98 al 112)

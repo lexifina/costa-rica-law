@@ -1,0 +1,4 @@
+Artículo 136.—La relación de servicios de los servidores interinos en plaza vacante y de los servidores interinos sustitutos terminará, en caso de resolución de terna o nómina de elegibles del Departamento de Recursos Humanos o de la Dirección General de Servicio Civil o cuando regrese el titular del puesto, según se trate.
+Igualmente, las personas que hayan sido contratadas por servicios especiales, no incluidas en los incisos anteriores y que se contraten a plazo fijo o por obra determinada, concluirán su relación de servicios, una vez vencido el plazo o concluida la obra.
+Dichos servidores tendrán derecho al pago de las prestaciones legales que procedan, de acuerdo con los requisitos y normativa aplicables.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014, que lo traspasó del antiguo artículo 122 al 136)

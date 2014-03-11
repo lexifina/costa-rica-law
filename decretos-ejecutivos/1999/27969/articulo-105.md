@@ -1,2 +1,2 @@
-Sanciones o correcciones disciplinarias en general:
-Artículo 105.—Salvo lo dispuesto para infracciones a la prohibición del fumado, es prohibido descontar suma alguna del salario de los servidores por concepto de multa.
+Artículo 105.—Los plazos señalados para tramitar y resolver las denuncias serán los establecidos en la Ley General de la Administración Pública para el procedimiento ordinario, y en ningún caso se podrá superar el término de tres meses para la conclusión del proceso, contados desde el momento de interposición de la denuncia, según lo dispuesto por el artículo 5 inciso 2) párrafo segundo de la Ley N° 7476 de repetida cita.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014)

@@ -1,1 +1,6 @@
-Artículo 116.—La remoción por causa justificada de todo servidor protegido por el Régimen de Servicio Civil se hará de conformidad con el Estatuto de Servicio Civil y su Reglamento.
+Artículo 116.—El abandono de labores, sin causa justificada o sin permiso del jefe inmediato, cuando no implique mayor gravedad de conformidad con las circunstancias del caso y no se haga acreedor de una pena mayor, se sancionará de la siguiente forma:
+a) Amonestación escrita por la primera vez y rebajo de salario cuando proceda.
+b) Suspensión sin goce de salario hasta por quince días la segunda vez.
+c) Despido sin responsabilidad patronal la tercera vez.
+Para efectos de reincidencia, estas faltas se computarán en un lapso de tres meses.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014, que lo traspasó del antiguo artículo 102 al 116)

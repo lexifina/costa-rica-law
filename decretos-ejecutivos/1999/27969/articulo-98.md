@@ -1,9 +1,3 @@
-CAPITULO XXI
-Régimen disciplinario y procedimiento de aplicación de sanciones
-Sanciones por infracciones al registro de puntualidad y asistencia:
-Artículo 98.—El servidor que por dolo, complacencia o negligencia registre la asistencia que corresponde a otro incurrirá en falta grave a sus obligaciones; la cual se sancionará de la siguiente forma:
-a) Por la primera vez: Amonestación escrita.
-b) Por la segunda vez: Suspensión del trabajo sin goce de salario hasta por quince días.
-c) Por la tercera vez: Despido sin responsabilidad para el Ministerio.
-Incurrirá en la misma falta y recibirá igual sanción, el servidor a quien se le compruebe haber consentido para que otra persona le registre su asistencia a labores.
-Para efectos de reincidencia, estas faltas se computarán en un lapso de tres meses.
+Artículo 98.—Tomada la declaración de la persona que denuncia en la audiencia oral y privada, la COMISIÓN INVESTIGADORA procederá a la recepción de la prueba testimonial ofrecida, de la cual quedará acta escrita, debidamente firmada por la persona que sirve de testigo. A los testigos se les preguntará solamente sobre aspectos relacionados con la denuncia y nunca sobre antecedentes de la persona denunciante.
+Previo a su declaración, a cada persona testigo se le leerá textualmente la disposición contenida en el artículo 14 de la Ley 7476, citada.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014)

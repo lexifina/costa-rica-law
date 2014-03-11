@@ -1,0 +1,2 @@
+Artículo 137.—En todo caso de terminación de la relación de servicios, el interesado deberá plantear en tiempo el correspondiente reclamo para el pago de los derechos adeudados. Caso contrario, el Ministerio declarará la prescripción legal, cuando proceda.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014, que lo traspasó del antiguo artículo 123 al 137)

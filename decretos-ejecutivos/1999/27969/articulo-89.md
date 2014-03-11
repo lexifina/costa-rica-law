@@ -1,2 +1,8 @@
-Artículo 89.—Ninguna persona que haya denunciado ser víctima de acoso u hostigamiento sexual o haya comparecido como testigo de las partes podrá sufrir, por ello, perjuicio personal alguno en su empleo.
-Quien formule una denuncia por acoso u hostigamiento sexual sólo podrá ser despedido por causa justificada, originada en falta grave a los deberes derivados de la relación de servicios, según lo establecido en el artículo 81 del Código de Trabajo.
+Artículo 89.—El acoso y hostigamiento sexual puede manifestarse por medio de los siguientes comportamientos:
+1. Requerimientos de favores sexuales que impliquen:
+a) Promesa, implícita o expresa, de un trato preferencial, respecto de la situación, actual o futura, de empleo de quien la reciba.
+b) Amenazas, implícitas o expresas, físicas o morales, de daños o castigos referidos a la situación, actual o futura de empleo de quien las reciba.
+c) Exigencia de una conducta cuya sujeción o rechazo sea, en forma implícita o explícita, condición para el empleo.
+2. Uso de palabras de naturaleza sexual, escritas u orales, que resulten hostiles, humillantes u ofensivas para quien las reciba.
+3. Acercamientos corporales u otras conductas físicas de naturaleza sexual, indeseados y ofensivos para quien los reciba.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014)

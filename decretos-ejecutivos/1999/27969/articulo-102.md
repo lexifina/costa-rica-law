@@ -1,5 +1,5 @@
-Artículo 102.—El abandono de labores, sin causa justificada o sin permiso del jefe inmediato, cuando no implique mayor gravedad de conformidad con las circunstancias del caso y no se haga acreedor de una pena mayor, se sancionará de la siguiente forma:
-a) Amonestación escrita por la primera vez y rebajo de salario cuando proceda.
-b) Suspensión sin goce de salario hasta por quince días la segunda vez.
-c) Despido sin responsabilidad patronal la tercera vez.
-Para efectos de reincidencia, estas faltas se computarán en un lapso de tres meses.
+Artículo 102.—Concluida la audiencia de recepción de la prueba testimonial, la COMISIÓN INVESTIGADORA que cumple las funciones de órgano director, rendirá el informe en un plazo máximo de ocho días hábiles, sobre la existencia o no de la falta denunciada. En caso de tener por comprobada ésta, rendirá un informe al Jerarca recomendando que la falta sea sancionada, según corresponda, con amonestación, suspensión del trabajo sin goce de salario hasta por quince días o el despido sin responsabilidad patronal, según la gravedad de la falta. El jerarca pasará este informe inmediatamente a conocimiento de la Junta de Relaciones Laborales para su consulta.
+Cuando se trate de un despido de un servidor en propiedad, se deberá presentar la gestión de despido ante la Dirección General de Servicio Civil con copia a la Defensoría de los Habitantes.
+Si se trata del Jerarca, este será responsable personalmente por sus actuaciones, respecto de las cuales deberán responder en la vía judicial, una vez que la gestión se haya presentado ante esa sede.
+De no probarse la falta, se ordenará el archivo del expediente.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014)

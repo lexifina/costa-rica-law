@@ -1,6 +1,2 @@
-Sanciones por ausencias injustificadas:
-Artículo 103.—Las ausencias injustificadas se computarán al final de cada mes calendario. Además de rebajarse el salario correspondiente al período no laborado, se sancionarán en la siguiente forma:
-a) Por media ausencia: Amonestación escrita.
-b) Por una ausencia: Suspensión sin goce de salario hasta por dos días.
-c) Por una y media consecutivas o dos ausencias alternas: Suspensión sin goce de salario hasta por ocho días.
-d) Por dos ausencias consecutivas o por más de dos ausencias alternas: Despido sin responsabilidad patronal.
+Artículo 103.—El plazo para interponer la denuncia es de DOS AÑOS que se computarán a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014)

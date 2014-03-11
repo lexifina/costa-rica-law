@@ -1,4 +1,6 @@
-Artículo 110.—El despido sin responsabilidad para el Ministerio se efectuará en los siguientes casos:
-a) Cuando al servidor se le imponga suspensión disciplinaria en dos ocasiones e incurra en causal para una tercera suspensión, dentro de un período de tres meses contados a partir del día en que se impuso la primera sanción. Se considerará la repetición de infracciones como conducta irresponsable y contraria a las obligaciones de la relación de servicio.
-b) En los casos expresamente previstos en este reglamento.
-c) Cuando el servidor incurra en alguna de las causales de despido contempladas en el Estatuto de Servicio Civil, en su Reglamento o en el artículo 81 del Código de Trabajo.
+CAPITULO XX
+Condiciones de salud ocupacional en las labores
+Artículo 110.—Todo lo referente a salud ocupacional es de interés público. La salud del servidor debe corresponder a un enfoque integral orientado a garantizar su mayor bienestar posible y engloba los campos de promoción, prevención, mantenimiento, asistencia curativa y de rehabilitación.
+La salud ocupacional está dirigida a todos los servidores, independientemente de su actividad, oficio o profesión, del sitio de trabajo, de su ubicación urbana o rural, de su edad, sexo o forma de vinculación a labores.
+El Ministerio adoptará las medidas necesarias para proteger eficazmente la salud ocupacional de sus servidores, conforme con los términos de la legislación vigente y las recomendaciones que al respecto formulen las autoridades respectivas.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014, que lo traspasó del antiguo artículo 96 al 110)

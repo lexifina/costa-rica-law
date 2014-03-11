@@ -1,4 +1,9 @@
-Términos para la imposición de las sanciones disciplinarias:
-Artículo 114.—Las amonestaciones orales o el apercibimiento escrito deberán imponerse dentro del término de un mes posterior a aquel en que se cometió la falta o en que los superiores la conocieron.
-Si fuese necesaria una investigación, dicho plazo se interrumpirá hasta por tres meses y se aplicará sin perjuicio de lo que establecen el Estatuto y otras leyes conexas.
-Para los efectos de este artículo, la desatención del citado término implicará la prescripción correspondiente.
+Sanciones por llegadas tardías:
+Artículo 114.—Las llegadas tardías injustificadas se computarán al final de cada mes calendario.
+Además de rebajarse el salario correspondiente al período no laborado, serán sancionadas de la siguiente manera:
+a) Por tres: Amonestación escrita y rebajo de salario cuando proceda.
+b) Por cuatro: Suspensión sin goce de salario hasta por dos días.
+c) Por cinco: Suspensión sin goce de salario hasta por seis días.
+d) Por seis: Suspensión sin goce de salario hasta por ocho días.
+e) Por más de seis: Despido sin responsabilidad patronal.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014, que lo traspasó del antiguo artículo 100 al 114)

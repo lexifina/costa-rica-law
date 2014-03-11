@@ -1,1 +1,2 @@
-Artículo 94.—En casos excepcionales, los plazos señalados para tramitar y resolver las denuncias de acoso u hostigamiento sexual se podrán ampliar, siempre y cuando no se exceda el término de tres meses, contado a partir del momento de interposición de la denuncia de que se trate, según lo dispuesto en el último párrafo del artículo 5º de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.
+Artículo 94.—Esta INSTITUCIÓN se compromete a divulgar el contenido de la ley contra el hostigamiento sexual en el empleo y la docencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014)

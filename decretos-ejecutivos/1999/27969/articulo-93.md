@@ -1,1 +1,3 @@
-Artículo 93.—Contra la resolución final que se dicte cabrá el recurso de reposición; el cual deberá interponerse ante el Despacho del Ministro de Trabajo y Seguridad Social, dentro de los dos meses siguientes al de su notificación y deberá ser resuelto dentro de los ocho días siguientes a su recibo.
+Artículo 93.—En cumplimiento del artículo 5 de la Ley 7476 y sus reformas, la INSTITUCIÓN se obliga a mantener condiciones de respeto para quienes laboran aquí, por medio de una política interna que prevenga, desaliente, evite y sancione las conductas de hostigamiento sexual.
+Asimismo deberá mantener personal con experiencia en materia de prevención del hostigamiento sexual y podrán suscribir convenios con otras instituciones u organizaciones públicas o privadas en procura de obtener los conocimientos sobre los alcances de la Ley 7476 y sus reformas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014)

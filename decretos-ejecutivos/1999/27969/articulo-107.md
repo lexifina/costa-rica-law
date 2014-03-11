@@ -1,3 +1,2 @@
-Artículo 107.—La amonestación o apercibimiento oral se aplicará en los siguientes casos:
-a) Cuando el servidor cometa alguna falta leve a las obligaciones expresas o tácitas que le imponen su relación de servicios y este reglamento.
-b) En los casos expresamente contemplados en este reglamento.
+Artículo 107.—En las contrataciones outsourcing que tenga la INSTITUCIÓN, se incluirán reglas dentro de dicha contratación con la Empresa externa que se trate, que garanticen el cumplimiento de la Ley 7476 y sus reformas en caso de denuncias por hostigamiento sexual contra alguno de los empleados de esa empresa externa.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014)

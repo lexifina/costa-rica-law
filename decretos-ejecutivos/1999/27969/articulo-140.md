@@ -1,0 +1,2 @@
+Artículo 140.—Para resolver un caso determinado, a falta de disposiciones de este reglamento deberán tenerse como normas supletorias el Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo y demás leyes y reglamentos supletorios y conexos.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38360 del 11 de marzo del 2014, que lo traspasó del antiguo artículo 126 al 140)
