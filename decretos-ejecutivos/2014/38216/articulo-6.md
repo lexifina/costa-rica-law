@@ -1,0 +1,1 @@
+Artículo 6º—Todo funcionario técnico aeronáutico o aspirante puede ser seleccionado para el examen de control de dopaje o convocado para la aplicación de la prueba; deberá someterse al examen y cooperar con los funcionarios encargados de su realización. La toma de orina es obligatoria en todos los casos.

@@ -1,0 +1,1 @@
+Artículo 22.—El profesional en salud entregará a la Comisión de Salud el sobre que contiene los resultados, el cual será abierto cuando ésta se encuentre en sesión. Una vez revelado el contenido, la Comisión de Salud decidirá lo que corresponda en cada caso, consignándolo en el libro de actas para tal efecto.

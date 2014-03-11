@@ -1,0 +1,1 @@
+Artículo 3º—Serán consideradas como sustancias prohibidas para los efectos del presente reglamento la cocaína y derivados, canabinoides, opiáceos, alcohol y anfetaminas-metanfetaminas, LSD, PCP y cualquier otra droga de uso prohibido que se requiera controlar.

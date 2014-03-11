@@ -1,0 +1,1 @@
+Artículo 26.—Después de publicado el presente Reglamento en el periódico oficial la Gaceta, el Coordinador del Área Técnica y Jefes de las diferentes Unidades Técnicas, informarán a todo el personal bajo su cargo de los alcances de las medidas de este acto.

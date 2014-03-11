@@ -1,0 +1,1 @@
+Artículo 8º—Para la realización de la prueba, en caso de los funcionarios técnicos aeronáuticos, se seleccionarán de forma aleatoria los candidatos que serán sometidos a la misma. Dicha elección será efectuada por el profesional en salud encargado de realizar el examen.
