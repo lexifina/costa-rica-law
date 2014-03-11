@@ -15,3 +15,4 @@ Reglamento de Pago de Transporte a Regidores y Síndicos Municipales.
 | --- | --- | --- |
 | 1 | 2003-09-30 | la propia norma |
 | 2 | 2006-07-31 | Reglamento municipal 12 (2006-07-31) |
+| 3 | 2014-03-11 | Reglamento municipal 202 (2014-03-11) |
