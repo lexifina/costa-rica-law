@@ -1,0 +1,1 @@
+CUARTO: Se comisiona a la Dirección General de Asuntos Jurídicos para que prepare y formalice los diversos instrumentos jurídicos y poderes que sea necesario suscribir y otorgar por parte del Rector para hacer efectiva la delegación aquí acordada.
