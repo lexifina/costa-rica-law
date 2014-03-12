@@ -14,3 +14,4 @@ Reglamento de préstamos para vivienda del Régimen de Capitalización Colectiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-28 | la propia norma |
+| 2 | 2014-03-12 | Reglamento 0 (2014-03-12) |

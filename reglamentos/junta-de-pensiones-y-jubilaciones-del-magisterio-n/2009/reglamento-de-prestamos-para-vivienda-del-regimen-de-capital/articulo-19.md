@@ -1,1 +1,1 @@
-Artículo 19.—Cobro administrativo y judicial. En caso de morosidad, se iniciará el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en el Manual de Procedimientos del Departamento de Crédito y Cobro.
+Artículo 19.—Cobro administrativo y judicial. En caso de morosidad, se iniciará el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en el Manual de Procedimientos dela Unidad de Cobro.
