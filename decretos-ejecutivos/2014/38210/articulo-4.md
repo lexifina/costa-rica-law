@@ -1,0 +1,1 @@
+Artículo 4°—La adhesión a la Red, por parte de cada institución u organización, se hará a través de la Dirección General de Apoyo de la Pequeña y Mediana Empresa (DIGEPYME). Dirección que tendrá a su cargo la coordinación de la Red.
