@@ -1,0 +1,1 @@
+Artículo 9º—El monto de esta tasa se determina tomando en consideración el costo efectivo de lo invertido por la Municipalidad para su mantenimiento, de conformidad con lo indicado en el artículo 3º de este Reglamento.

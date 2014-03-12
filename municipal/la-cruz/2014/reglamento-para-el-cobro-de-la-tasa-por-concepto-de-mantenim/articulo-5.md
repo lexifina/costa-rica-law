@@ -1,0 +1,1 @@
+Artículo 5º—El mobiliario urbano existente o que se instale en los parques y zonas verdes, consistente en bancas, juegos infantiles, papeleras, fuentes, señalización, postes y equipo de iluminación así como elementos decorativos (adornos, estatuas, etc.), deberá mantenerse en el más adecuado y estético estado de conservación.

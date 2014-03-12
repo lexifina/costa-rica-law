@@ -1,0 +1,1 @@
+Artículo 7º—Derecho y deber ciudadano. Todos los ciudadanos tienen derecho al uso y disfrute de los parques y espacios públicos, de acuerdo a su naturaleza y respetando el destino para el que se hayan designado y de acuerdo a lo estableció en el presente reglamento y demás normativa aplicable.

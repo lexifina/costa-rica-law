@@ -1,0 +1,1 @@
+Artículo 3º—El servicio de mantenimiento de parques considera el costo efectivo de lo invertido por la Municipalidad el cuál se distribuye de acuerdo con el valor de las propiedades ubicadas dentro de los distritos en que se preste el servicio. Su cálculo se rige de conformidad con el modelo establecido en el artículo 74 del Código Municipal.

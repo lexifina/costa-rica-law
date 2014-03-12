@@ -1,0 +1,1 @@
+Artículo 11.—El cobro de esta tarifa o tasa será anual y se cobrará por trimestres vencidos y se efectuará en el mismo recibo con el que se cancelan las demás obligaciones tributarias del contribuyente.

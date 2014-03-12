@@ -1,0 +1,1 @@
+Artículo 10.—Esta tasa deberá pagarla el sujeto pasivo a que se refiere este Reglamento, según el % determinado mediante estudio técnico financiero; tal suma se cobrará proporcionalmente entre los contribuyentes del distrito, según el valor de la propiedad.
