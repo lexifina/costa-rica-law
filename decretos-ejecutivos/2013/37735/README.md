@@ -14,3 +14,4 @@ Reglamento general del Sistema Nacional de Planificación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-26 | la propia norma |
+| 2 | 2014-03-12 | Decreto Ejecutivo 38321 (2014-03-12) |

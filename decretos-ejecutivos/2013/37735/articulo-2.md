@@ -1,7 +1,8 @@
 Artículo 2º—Definiciones, siglas y acrónimos. Se establecen las siguientes definiciones, siglas y acrónimos:
 Agenda de Cooperación Internacional: programa nacional que determina las prioridades nacionales, sectoriales, regionales e institucionales para un período determinado, en función del Plan Nacional de Desarrollo vigente y otros instrumentos de planificación. Lo anterior conforme el artículo 2.i) del Decreto Ejecutivo Nº 35056-PLAN-RE de 12 de noviembre de 2008.
 Agendas Sectoriales de Cooperación Internacional: las Agendas Sectoriales de Cooperación Internacional conforme los alcances establecidos en el artículo 3.a) del Decreto Ejecutivo Nº 35056-PLAN-RE de 12 de noviembre de 2008.
-BPIP: el Banco de Proyectos de Inversión Pública es una base de datos de proyectos de inversión pública actualizada, independientemente de que se encuentren en las fases de preinversión, inversión u operación, que tiene como propósito fundamental proveer información para la toma de decisiones sobre el avance de los proyectos de inversión por las instituciones públicas, según regulaciones del Decreto Ejecutivo Nº 34694-PLAN-H.
+BPIP: Es una base de datos de proyectos de inversión pública que las instituciones pretenden desarrollar durante un determinado periodo de tiempo.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 38321 del 12 de marzo del 2014)
 CEA: la Comisión de Eficiencia Administrativa, establecida en el artículo 17 de la Ley de Planificación Nacional.
 CEDOP: el Centro de Documentación de Planificación.
 Ciclo de Planificación: son las etapas que integran el proceso de planificación, las que se desglosan en prognosis, programación, ejecución, seguimiento y evaluación.
@@ -19,7 +20,8 @@ Desarrollo sostenible: proceso de cambio progresivo en la calidad de vida del se
 Disposiciones generales: el conjunto de normas, reglamentos, directrices, manuales, instructivos, circulares, procedimientos y demás preceptos de carácter vinculante dictados por autoridades competentes, según los alcances establecidos en la Ley General de la Administración Pública.
 Enlaces de Cooperación Internacional: los funcionarios públicos descritos en el artículo 15 del Decreto Ejecutivo Nº 35056-PLAN-RE de 12 de noviembre de 2008.
 Evaluación: proceso limitado en tiempo y alcance con el que se valoran de manera sistemática políticas, planes, programas y proyectos de desarrollo en ejecución o concluidos y en aplicación de criterios preestablecidos.
-Inversiones Públicas: conjunto de recursos públicos destinados a mantener o incrementar el capital físico y la capacidad del recurso humano que cada institución ejecuta con sujeción a las metas y a las políticas enunciadas en los instrumentos de planificación vigentes y que proporciona, bajo la modalidad de proyectos, una ampliación de la capacidad de producción de bienes y servicios, con fundamento en una metodología que facilite su identificación, ejecución y evaluación.
+Inversiones Públicas: Conjunto de recursos públicos destinados a mantener o incrementar el capital físico y humano que cada institución pretende ejecutar con sujeción a las metas y a las políticas enunciadas en los instrumentos de planificación vigentes.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 38321 del 12 de marzo del 2014)
 MIDEPLAN: el Ministerio de Planificación Nacional y Política Económica.
 Ministros Rectores Sectoriales: los Ministros Rectores Sectoriales establecidos en el artículo 5º del Reglamento Orgánico del Poder Ejecutivo (Decreto Ejecutivo Nº 34582-MP-PLAN de 4 de junio de 2008).
 Monitoreo: proceso puntual y continuo de captación de información, según indicadores predefinidos, para determinar el estado actual de la situación de políticas, planes, programas y proyectos.
