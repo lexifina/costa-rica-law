@@ -1,0 +1,1 @@
+Artículo 6º—Reuniones. “La Comisión” se reunirá una vez al mes en forma ordinaria y extraordinaria cuando la persona que ejerza la coordinación lo considere necesario y se convocará con una semana de antelación por medio de oficio o correo electrónico.
