@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo general: El presente Decreto Ejecutivo tiene como objetivo, concientizar a la población sobre la importancia de las frutas y vegetales como alimento indispensable en su dieta diaria.

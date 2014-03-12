@@ -1,0 +1,1 @@
+Artículo 4º—El Comité Intersectorial de la Red Nacional 5 al Día Costa Rica, será el encargado de coordinar las acciones para las celebraciones del “Día Nacional de las Frutas y Vegetales” con el apoyo de la Organización de las Naciones Unidas para la Alimentación y la Agricultura (FAO).
