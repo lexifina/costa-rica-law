@@ -1,0 +1,1 @@
+Artículo 8º—Responsabilidades. La Administración debe tomar medidas adicionales para el resarcimiento de daños y perjuicios incurridos por el funcionario contra el patrimonio del Ministerio, cuando la responsabilidad del funcionario haya sido probada, sin perjuicio de la responsabilidad administrativa y penal que corresponde.

@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio I. Los funcionarios obligados a rendir la garantía correspondiente y que estén ocupando los cargos a la fecha que rige este Reglamento, dispondrán de quince días naturales después de la publicación del mismo, para suscribir la póliza de fidelidad a favor del Ministerio, presentar el respectivo documento certificado al Departamento de Proceso Recursos Humanos.

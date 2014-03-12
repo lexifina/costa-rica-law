@@ -1,0 +1,2 @@
+Artículo 5º—De la forma para determinar el monto de la garantía. A efectos de determinar el monto de la caución que deben rendir los funcionarios, se tomará en cuenta el nivel (alto, medio, bajo) de responsabilidad, el monto administrativo, y el salario del funcionario.
+La póliza de fidelidad debe ser suscrita por un monto mínimo, de acuerdo al nivel, es decir: alto ¢1.500.000,00 (un millón quinientos mil colones); medio ¢1.000.000,00 (un millón de colones), bajo ¢500.000,00 (quinientos mil colones).
