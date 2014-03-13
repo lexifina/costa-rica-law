@@ -1,0 +1,9 @@
+ARTÍCULO 19: INFORMACIÓN Y NOTIFICACIONES
+19.1 Información
+Cualquier persona que remita información incluyendo datos o información médica a cualquier organización o persona de acuerdo con estas normas antidopaje, le será considerada como que ha aceptado que tal información puede ser utilizada por tal organización o persona para propósitos de la implementación de estas normas antidopaje.
+19.2 Notificaciones
+19.2.1 Todas las notificaciones referidas a estas normas antidopaje deberán ser reguladas por las disposiciones de éste artículo 19.2 (notificaciones).
+19.2.2 cada atleta parte del Grupo Registrado para Controles de COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD) deberá suministrar a la COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD) una dirección donde puede notificársele y en el caso de un cambio de dirección, es responsabilidad del atleta suministrar a la COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD) los nuevos detalles correspondientes.
+19.2.3 La notificación a un atleta parte del Grupo Registrado para Controles de la COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD) deberá ser enviada vía correo registrado a la dirección suministrada por el atleta a la COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD). Tal notificación será considerada como recibida al transcurrir tres (3) días hábiles después de la fecha del envío.
+19.2.4 La notificación a cualquier otro atleta o persona deberá efectuarse por el medio registrado o la dirección suministrada por dicho atleta o persona a su respectiva federación nacional. La notificación será considerada como recibida al transcurrir tres (3) días hábiles después de la fecha del envío.
+19.2.5 La COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD) puede, con el acuerdo previo del destinatario, como una alternativa o en adición a notificarle por correo registrado, utilizar cualquier otro método de comunicación disponible, incluyendo pero sin limitarse al fax, correo electrónico y teléfono.

@@ -1,0 +1,6 @@
+ARTÍCULO 16: RECONOCIMIENTO MUTUO DE DECISIONES
+16.1 Reconocimiento de decisiones de acuerdo a estas normas
+Sujeto al derecho de apelación, cualquier decisión del Tribunal Disciplinario Antidopaje o del Tribunal de Apelaciones respecto a una violación a las normas antidopaje dentro de la autoridad de la COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD), deberá ser reconocida por todas las organizaciones antidopaje y cada una de sus organizaciones afiliadas, las cuales deberán tomar todas las acciones necesarias para hacer cumplir los resultados de manera efectiva.
+16.2 Reconocimiento de Decisiones de Otras Organizaciones
+16.2.1 Sujeto a cualquier derecho a apelar, los resultados de los controles, AUTs, audiencias y otras decisiones finales de algún Signatarios del Código, que sean consistentes con el Código y estén bajo la autoridad del signatario, deberán ser reconocidas por la COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD), las federaciones y asociaciones deportivas nacionales, el Tribunal Nacional Disciplinario Antidopaje y el Tribunal Nacional de Apelaciones.
+16.2.2 La COMISIÓN NACIONAL ANTIDOPAJE DE COSTA RICA (CONAD) y las Federaciones Deportivas Nacionales pueden reconocer las mismas acciones por parte de otros organizamos que no hayan aceptado el Código, si las normas de dichas organizaciones son consistentes con el Código.
