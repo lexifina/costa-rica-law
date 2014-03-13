@@ -1,10 +1,2 @@
-ARTICULO 4.- El impuesto de patentes que le corresponda pagar a cada
-contribuyente se determinará de acuerdo con el monto de la renta líquida
-gravable y de las ventas o los ingresos brutos anuales. Se aplicará el
-uno por mil sobre las ventas o los ingresos brutos, más un ocho por mil
-sobre la renta líquida gravable. Esta suma, dividida entre cuatro,
-determinará el impuesto trimestral por pagar. En los casos en que los
-declarantes no obtengan renta líquida gravable, aunque sean declarantes
-del impuesto sobre la renta, o cuando por no serlo no puedan calcular esa
-renta, se aplicará el factor correspondiente a las ventas o ingresos
-brutos.
+Artículo 4.- El impuesto de patentes que le corresponda pagar a cada contribuyente se determinará de acuerdo con el monto de renta líquida gravable de las ventas o los ingresos brutos anuales. Se aplicará el cuatro por mil sobre las ventas o los ingresos brutos, más un ocho por mil sobre la renta líquida gravable. Esta suma, dividida entre cuatro, determinará el impuesto trimestral por pagar. En caso de que los declarantes no obtengan renta líquida gravable, aunque sean declarantes del impuesto sobre la renta, o cuando por no serlo no puedan calcular esa renta, se aplicará el factor correspondiente a las ventas o los ingresos brutos.
+(Así reformado por el artículo único de la ley N° 9215 del 13 de marzo del 2014)
