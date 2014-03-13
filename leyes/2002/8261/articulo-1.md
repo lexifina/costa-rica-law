@@ -15,3 +15,5 @@ d) Promover y ejecutar investigaciones que permitan conocer la condición de las
 e) Proteger los derechos, las obligaciones y garantías fundamentales de la persona joven.
 Los objetivos señalados en los incisos anteriores se entenderán como complementarios de la política integral que se define para las personas adolescentes en el Código de la Niñez y la Adolescencia, en lo que resulte compatible y con prevalencia de esta etapa de la vida.
 (Así reformado el párrafo anterior por el artículo 1° de la ley N° 9155 del 3 de julio del 2013)
+f) Coordinar las políticas nacionales orientadas al fortalecimiento y la creación de condiciones que faciliten el acceso de las personas jóvenes al crédito para vivienda.
+(Así adicionado el inciso anterior por el artículo 1° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")

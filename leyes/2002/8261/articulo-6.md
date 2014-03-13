@@ -20,3 +20,7 @@ l) Formular programas educativos especializados en estimular la expansión del d
 m) Establecer campañas nacionales para estimular el conocimiento y la promoción de la cultura propia y de los valores y actitudes positivos para el desarrollo nacional.
 n) Garantizar la educación en iguales condiciones de calidad y del más alto nivel para todas las personas jóvenes.
 ñ) Procurar que en todos los niveles los programas educativos se adecuen a las necesidades de la oferta laboral y las necesidades de desarrollo integral del país.
+o) Garantizar el acceso a condiciones favorables para la obtención de vivienda de las personas jóvenes.
+(Así adicionado el inciso anterior por el artículo 3° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
+p) Informar, asesorar y capacitar a los jóvenes, en materia de obtención de créditos para vivienda.
+(Así adicionado el inciso anterior por el artículo 3° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")

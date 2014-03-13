@@ -10,4 +10,6 @@ g) Estimular y aprobar los convenios de cooperación con organizaciones nacional
 h) Garantizar la buena marcha y el buen uso de los fondos del Consejo y la ejecución correcta de sus programas.
 i) Canalizar la asistencia técnica y económica nacional o extranjera que permita el desarrollo integral de las personas jóvenes.
 j) Representar al país en las actividades nacionales e internacionales relacionadas con personas jóvenes, la capacitación de recursos humanos en temas de las personas jóvenes, el desarrollo de los principios fundamentales establecidos en esta ley y las estrategias globales de desarrollo nacional.
+n) Nombrar, de su seno, a un miembro representante a la Junta Directiva del Banco Hipotecario de la Vivienda (Banhvi).
+(Así adicionado el inciso anterior por el artículo 4° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes". No obstante la numeración no concuerda)
 (Así refomado por el artículo 5° de la ley N° 9155 del 3 de julio del 2013)

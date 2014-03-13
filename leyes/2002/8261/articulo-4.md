@@ -16,4 +16,6 @@ k) El derecho a convivir en un ambiente sano y participar de las acciones que co
 l) El derecho de las personas jóvenes con discapacidad a participar efectivamente.
 m) El derecho al reconocimiento, sin discriminación contraria a la dignidad humana, de los efectos sociales y patrimoniales de las uniones de hecho que constituyan de forma pública, notoria, única y estable, con aptitud legal para contraer matrimonio por más de tres años. Para estos efectos, serán aplicables, en lo compatible, los artículos del 243 al 245 del Código de Familia, Ley N.º 5476, de 21 de diciembre de 1973, y sus reformas.
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 9155 del 3 de julio del 2013)
+n) El derecho de las personas jóvenes a tener acceso a una vivienda digna
+(Así adicionado el inciso anterior por el artículo 2° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
 Las personas adolescentes gozarán de los derechos contemplados en el Código de la Niñez y la Adolescencia, Ley Nº 7739.
