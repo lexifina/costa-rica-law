@@ -1,0 +1,1 @@
+4. En un plazo de diez días hábiles a partir de la publicación de la presente resolución los operadores prestatarios de servicio Roaming deberán remitir a esta Superintendencia un informe en el que detallen los planes de implementación de las medidas acá contenidas señalando el respectivo cumplimiento de los plazos establecidos.
