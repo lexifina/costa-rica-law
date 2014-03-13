@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8744
+(Esta norma fue derogada por el artículo 4° de la ley N° 9216 del 13 de marzo del 2014, "Autoriza a la Municipalidad de San Isidro de Heredia para que done un inmueble de su propiedad a la Asociación de Cuidados Paliativos y Centro Diurno San Isidro de Heredia")
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 AUTORIZACIÓN A LA MUNICIPALIDAD DE SAN ISIDRO
