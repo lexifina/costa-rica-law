@@ -1,0 +1,32 @@
+Artículo 2º—Adiciónese los artículos 17 bis, 17 ter y 17 quater, al Decreto Ejecutivo Nº 37457-MEIC del 2 de noviembre del 2012, para que en lo sucesivo se lean de la siguiente manera:
+“Artículo 17 bis.—Organización: Para que el Departamento de Servicios Generales pueda cumplir con sus funciones el mismo estará conformado por las siguientes unidades:
+a. Unidad de Transportes
+b. Unidad de Notificaciones.”
+“Artículo 17 ter.—Unidad de Transportes. Le corresponde administrar la flota vehicular y el servicio de transporte de la institución, por lo que tiene como funciones:
+a) Brindar un servicio de transportes oportuno y eficaz a los diferentes departamentos y direcciones ministeriales que lo soliciten.
+b) Coordinar, programar, analizar y aprobar las solicitudes de Transportes que son requeridas por las diferentes instancias de la Institución, asignando cada uno de los vehículos de la flotilla institucional.
+c) Coordinar, programar y controlar las actividades relacionadas con el mantenimiento preventivo y correctivo de los vehículos de la flotilla Institucional, con la finalidad de mantener las unidades en perfecto estado.
+d) En caso de accidentes de tránsito, coordinar con los representantes encargados de las distintas dependencias responsables de presentarse al lugar, como el inspector de Tránsito y el representante del Instituto Nacional de Seguros para la confección de los documentos necesarios para la futura resolución del caso. Cuando así se requiera, el Jefe de la sección deberá apersonarse al lugar del accidente.
+e) Dar seguimiento a los casos o denuncias que se ventilan en los diferentes Juzgados de Tránsito del país, donde se vea afectado un vehículo de la flotilla ministerial.
+f) Llevar un expediente de cada accidente donde la flotilla de la institución se vea involucrada con toda la documentación relacionada y elaborar los informes requeridos.
+g) Tramitar los pagos conforme lo estipula la Ley de Tránsito, cuando el funcionario es declarado responsable del accidente.
+h) Coordinar y controlar que los vehículos de uso Administrativo, Discrecionales y Semi-discrecionales se encuentren al día con la respectiva revisión técnica y que porten las respectivas insignias en la ubicación y lugar indicado para el cumplimiento eficaz de lo estipulado por la Ley de Tránsito y sus reglamentos.
+i) Velar porque la restricción vehicular que emita el Ministerio de Obras Públicas y Transportes sea cumplida por los vehículos institucionales y no circulen en las zonas con restricción.
+j) Colaborar en la ejecución de investigaciones administrativas, análisis y recopilación de información, por medio de visitas, entrevistas, aplicación de cuestionarios y otros instrumentos como apoyo al departamento.
+k) Establecer los controles necesarios para evaluar y controlar el consumo de combustible con respecto al kilometraje y rutas asignadas por gira y por chofer.
+l) Revisar que las boletas de Solicitud de Transporte de los vehículos estén debidamente llenas y completas, antes de entregarlas a los conductores, tanto en las oficinas centrales, como a los automotores asignados a las CREAPYME institucionales.
+m) Velar porque todos los vehículos de uso Administrativo, Discrecional y Semi-Discrecional, mantengan el óptimo estado de limpieza y aseo, para que los usuarios disfruten de un ambiente agradable y saludable, así como lograr una mayor conservación del estado físico de cada unidad de transporte.
+n) Coordinar y controlar el pago de horas extraordinarias de los conductores, liquidaciones de pago de pasajes, peajes y viáticos corresponda al tiempo programado y rutas de la giras.
+o) Realizar inventarios trimestrales de herramientas entregadas a cada conductor, según el vehículo asignado, para ser utilizadas en su función diaria y así cumplir con los requerimientos que establece la Ley de Tránsito y Reglamentación.
+p) Cualquier otra función relacionada con su competencia y cuando las necesidades de la institución lo sugieran, labores que tengan el fin de coadyuvar a resolver integralmente los problemas de volumen y nuevas competencias asignadas a ésta.”
+“Artículo 17 quater.—Unidad de Notificaciones. Le corresponde realizar el proceso de notificado como apoyo a las oficinas de la institución que así lo requieran, por lo que tiene las siguientes funciones:
+a) Brindar el servicio de notificado a los diferentes departamentos y direcciones de las instituciones que así lo requieran.
+b) Velar por el cumplimiento de los plazos establecidos legalmente con el proceso de notificado de las diferentes resoluciones que se desprenden de cada expediente de los Procedimientos Administrativos (Ordinarios, Conciliatorios y Sumarios), que tramitan las Direcciones y Departamentos ministeriales, dentro del territorio Nacional.
+c) Notificar resoluciones, demandas, comisiones, citaciones de testigos, citatorios a las audiencias o conciliaciones, según corresponda a las partes interesadas, de manera personal desplazándose a diferentes zonas del país, vía fax, por correo certificado o correo electrónico cuando así se requiera, confirmando el envío o entrega, mediante la confección de actas de inspección o actas de notificación.
+d) Programar las rutas de entrega de documentación a notificar procurando un uso eficiente y eficaz de los recursos existentes.
+e) Coordinar con la sección de transporte las giras correspondientes.
+f) Coordinar con los administradores de correos, autoridades y otros funcionarios públicos dentro del territorio nacional mediante cartas o telegramas, cuando se deba notificar vía correo certificado para que completen las actas y/o formularios prediseñados para tal efecto para tener el respaldo de su entrega efectiva.
+g) Resguardar en óptimas condiciones los documentos que se deben notificar, así como las actas e informes generados en el proceso la cual debe ser archivada en los respectivos expedientes administrativos.
+h) Atender consultas personalmente ó vía telefónica tanto de los denunciantes como los denunciados de las notificaciones de los procedimientos administrativos.
+i) Preparar informes, cuadros, oficios y otros documentos sobre el proceso de notificado, reportando irregularidades observadas en el desarrollo de las labores a las Direcciones y/o Departamentos ministeriales.
+j) Cualquier otra función relacionada con su competencia y cuando las necesidades de la institución lo sugieran, labores que tengan el fin de coadyuvar a resolver integralmente los problemas de volumen y nuevas competencias asignadas a ésta.”
