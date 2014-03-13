@@ -1,0 +1,13 @@
+BANCO CENTRAL DE COSTA RICA
+La junta directiva del Banco Central de Costa Rica en el artículo 7° del acta de la sesión 5637-2014, celebrada el 19 de febrero del 2014,
+considerando que:
+a. En el artículo 5, del acta de la sesión 5586-2013, celebrada el 27 de febrero del 2013, la junta directiva dispuso mantener vigentes, hasta el 28 de febrero del 2014, las potestades asignadas previamente a la Comisión para la Fijación de las Tasas de Interés del Banco Central, a la Comisión de Estabilidad Financiera, a la Comisión de Reservas y a la Comisión de Mercados.
+b. Entre febrero del 2013 y enero del 2014, la Administración del Banco y las comisiones antes mencionadas actuaron dentro de los límites establecidos por la junta directiva.
+c. En el artículo 8, del acta de la sesión 5635-2014, del 12 de febrero del 2014, la junta directiva aprobó el inicio de las tareas, tendientes a cerrar la oferta de Depósitos Electrónicos a Plazo y a constituir nuevas facilidades de depósito a más de un día plazo en el Mercado Integrado de Liquidez.
+d. En el artículo 4, del acta de la sesión 5634-2014, celebrada el 5 de febrero del 2014, la junta directiva dispuso enviar en consulta la propuesta de Reglamento de Operaciones de Crédito de Liquidez del Banco Central de Costa Rica, la cual contempla la modificación de algunas potestades asignadas a la Comisión de Estabilidad Financiera, en materia de instrumentos contingentes de liquidez.
+e. Parte de las colocaciones especiales realizadas con la banca comercial en el 2013 vence en julio del 2014, lo cual abre la posibilidad de que se requiera negociar parte de estos vencimientos, con el fin de evitar que excesos de liquidez comprometan la consecución de la meta inflacionaria.
+f. El Banco Central redujo gradualmente los excesos de liquidez presentes a finales del 2012 e inicios del 2013, por lo que los requerimientos de absorción monetaria este año son significativamente menores que los observados en esos períodos.
+g. La Asesoría Jurídica del Banco Central manifiesta que la creación, integración, mandatos y funciones otorgadas por la Junta Directiva del Banco Central de Costa Rica a las comisiones mencionadas en este acuerdo están conformes con el ordenamiento jurídico.
+dispuso, en firme:
+1. Mantener la potestad otorgada por la Junta Directiva a la Comisión de Mercados, en el artículo 9, del acta de la sesión 5475-2010, del 20 de octubre del 2010, oportunidad en la que se dispuso lo siguiente:
+“La Administración cuenta con un margen de ±250 puntos base, con respecto a las tasas de referencia fijadas, para definir las tasas finales de colocación de los pasivos.”
