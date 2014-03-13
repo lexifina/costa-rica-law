@@ -1,3 +1,1 @@
-Artículo 8°—En caso en que un vehículo del ICT, cause daños a una casa de habitación, una tapia, ganado u otros bienes propiedad de terceros, el conductor debe:
-a) Llamar al Inspector de Tránsito o a la Delegación Cantonal, para que confeccione el parte correspondiente.
-b) Obtener la siguiente información: nombre y apellidos del dueño de la propiedad o bienes afectados, dirección, teléfono y daños causados en el percance.
+Artículo 8º—Ningún conductor de la Institución está autorizado a efectuar arreglos extrajudiciales en caso de accidentes de tránsito, únicamente debe indicarle al conductor del o los vehículos involucrados, que se apersonen o comuniquen con el Proceso Administrativo del Instituto, para efectuar las gestiones correspondientes.

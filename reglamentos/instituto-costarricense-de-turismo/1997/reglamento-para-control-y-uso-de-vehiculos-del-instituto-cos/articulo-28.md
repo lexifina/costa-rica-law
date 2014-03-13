@@ -1,2 +1,1 @@
-Artículo 28.—El Departamento Administrativo cuenta para la asignación del vehículo con la flotilla propia del Instituto, pero si las circunstancias no se lo permitieran, podrá gestionar con las empresas arrendadoras de vehículos con contrato turístico, él o los vehículos necesarios para el diario desempeño del Instituto, debiendo quedar documentada dicha acción.
-(Así modificada tacitamente su numeración por acuerdo tomado en sesión N° 5173 de 2 de mayo del 2002, que lo pasó del 27 al 28)
+Artículo 28.—Cualquier modificación a la solicitud presentada, previa a la realización de la gira, deberá comunicarse por escrito al Proceso Administrativo.

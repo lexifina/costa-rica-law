@@ -1,1 +1,1 @@
-Artículo 24.—En apego a lo establecido en el artículo precedente, las unidades administrativas deben presentar al Departamento Administrativo, la solicitud de Uso de Vehículos con toda la información que la misma exige y debidamente firmada por la jefatura de la unidad solicitante, con un mínimo de cinco días de antelación, salvo casos de emergencia comprobada.
+Artículo 24.—Para la atención de las giras, los vehículos tendrán como punto de partida y su conclusión el estacionamiento del Instituto Costarricense de Turismo y Oficinas Regionales.

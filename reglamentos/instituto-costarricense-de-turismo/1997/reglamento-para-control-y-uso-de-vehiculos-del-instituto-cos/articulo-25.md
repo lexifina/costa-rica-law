@@ -1,1 +1,3 @@
-Artículo 25.—Cualquier modificación a la solicitud presentada, previa a la realización de la gira, deberá comunicarse por escrito al Departamento Administrativo.
+CAPÍTULO SÉTIMO
+De la solicitud de vehículos
+Artículo 25.—Las solicitudes de vehículo que presenten las distintas unidades administrativas, deberán ampararse en un programa de giras preparado como mínimo, en forma mensual, que le permita al Proceso Administrativo realizar su propia programación.

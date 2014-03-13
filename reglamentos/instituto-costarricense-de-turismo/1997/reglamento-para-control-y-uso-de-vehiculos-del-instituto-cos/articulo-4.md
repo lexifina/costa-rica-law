@@ -1,3 +1,5 @@
-CAPITULO CUARTO
-De los accidentes de tránsito en que intervienen vehículos del Instituto
-Artículo 4°—Se considera accidente de tránsito todo daño físico que sufra el conductor o el vehículo, otras propiedades de terceros, así como, cualquier otro daño que fuere causado por un automotor propiedad de la Institución, debiendo ser reportados absolutamente todos, independientemente de si existe parte de tránsito o no, del lugar en que ocurrieron los hechos y la gravedad de los daños.
+Artículo 4º—Está prohibido al usuario:
+a) Inducir al conductor a infringir los límites de velocidad establecidos por Ley de Tránsito por Vías Públicas Terrestres, fijados por la Dirección General de Ingeniería de Tránsito.
+b) Prolongar injustificadamente la permanencia del chofer en el lugar de visita por un tiempo mayor al autorizado. Cualquier variación debidamente justificada deberá consignarse en la boleta correspondiente.
+c) Alargar o modificar el itinerario por asuntos que no correspondan a funciones propias del Instituto Costarricense de Turismo.
+d) Tomar licor o utilizar drogas enervantes durante el servicio.

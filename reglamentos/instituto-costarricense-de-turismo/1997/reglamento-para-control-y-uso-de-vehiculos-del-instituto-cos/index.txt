@@ -18,7 +18,6 @@ articulo-16.md
 articulo-17.md
 articulo-18.md
 articulo-19.md
-articulo-19-bis.md
 articulo-20.md
 articulo-21.md
 articulo-22.md
@@ -31,4 +30,6 @@ articulo-28.md
 articulo-29.md
 articulo-30.md
 articulo-31.md
-articulo-1-anexo.md
+articulo-32.md
+articulo-33.md
+articulo-34.md

@@ -1,4 +1,5 @@
-CAPITULO OCTAVO
-De las sanciones
-Artículo 30.—El funcionario que infrinja cualquiera de las disposiciones del presente reglamento, se hará acreedor a las sanciones establecidas en el Reglamento Autónomo de Trabajo para empleados del ICT.
-(Así modificada tacitamente su numeración por acuerdo tomado en sesión N° 5173 de 2 de mayo del 2002, que lo pasó del 29 al 30)
+Artículo 30.—El Proceso Administrativo cuenta para la asignación del vehículo con la flotilla propia del Instituto, pero si las circunstancias no se lo permitieran, podrá gestionar con las empresas arrendadoras de vehículos con contrato turístico, el o los vehículos necesarios para el diario desempeño del Instituto, debiendo quedar documentada dicha acción.
+El Instituto podrá además facilitar vehículos amparados a los contratos turísticos, según Ley 6990, a personas particulares y funcionarios públicos de otras entidades estatales que realicen funciones exclusivamente relacionadas con la actividad turística amparados a lo que establece el artículo 40 del Reglamento para las empresas arrendantes de vehículos según el Decreto Ejecutivo N° 25148-H-TUR, publicado en el Diario Oficial La Gaceta N° 97 del 22 de mayo de 1996, para lo cual debe de cumplir con lo siguiente:
+1. Comprometerse de previo y por escrito ante el Instituto y la empresa arrendadora a cancelar el monto del deducible que se establezca por cualquier daño que le suceda al vehículo durante el tiempo de utilización.
+2. Eximir de cualquier responsabilidad civil o penal al Instituto en caso de sufrir un accidente con el vehículo cedido y en donde resulten daños materiales o personales al solicitante, sus acompañantes o terceros.
+Reformado así por junta directiva en sesión extraordinaria de junta directiva N° 5173, artículo Único, inciso XXIII, celebrada el día 2 de mayo del 2002. Publicado en el Diario Oficial La Gaceta N° 108 del jueves 6 de junio del 2002.

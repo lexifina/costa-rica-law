@@ -1,1 +1,1 @@
-Artículo 14.—Todos los vehículos de uso administrativo, deben portar la placa oficial y el logotipo del Instituto en forma permanente y en ambos costados.
+Artículo 14.—Los vehículos de uso administrativo son aquellos de propiedad o al servicio del Instituto, destinados para el servicio regular de transporte y solo podrán ser usados en las funciones que específicamente se les asigne en cada oportunidad. En ningún caso podrán utilizarse en actividades no oficiales del I.C.T.

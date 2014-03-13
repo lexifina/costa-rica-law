@@ -1,1 +1,1 @@
-Artículo 18.—La asignación referida en el artículo 16, podrá en cualquier momento, ser revocada por el Gerente por razones de utilidad y necesidad.
+Artículo 18.—Bajo ninguna circunstancia se puede considerar como un derecho o salario en especie, la asignación de vehículo a que hace referencia el artículo anterior.

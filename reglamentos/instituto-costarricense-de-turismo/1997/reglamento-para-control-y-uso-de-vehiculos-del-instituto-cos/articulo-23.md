@@ -1,3 +1,1 @@
-CAPITULO SÉTIMO
-De la solicitud de vehículos
-Artículo 23.—Las solicitudes de vehículo que presenten las distintas unidades administrativas, deberán ampararse en un programa de giras preparado como mínimo, en forma mensual, que le permita al Departamento Administrativo realizar su propia programación.
+Artículo 23.—Los vehículos del I.C.T. tendrán prioridad de aparcamiento en los estacionamientos de la Institución, propios o arrendados, con respecto a los vehículos propiedad de los funcionarios o visitantes.

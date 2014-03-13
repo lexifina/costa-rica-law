@@ -1,1 +1,2 @@
-Artículo 22—Los vehículos del ICT, tendrán prioridad de aparcamiento en los estacionamientos de la Institución, propios o arrendados, con respecto a los vehículos propiedad de los funcionarios o visitantes.
+Artículo 22.—Procederá asignar un solo vehículo de uso discrecional al funcionario que tenga derecho a tal prerrogativa de conformidad con la Ley 9078. Tal asignación no genera derecho laboral alguno, por ende no se le considerará salario en especie.
+Reformado en sesión ordinaria de junta directiva N° 5217, artículo 5, inciso IX, celebrada el 3 de diciembre del 2002. Y publicado en La Gaceta N° 75, del viernes 19 de abril del 2002, página 36.
