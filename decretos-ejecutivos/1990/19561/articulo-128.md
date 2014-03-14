@@ -1,1 +1,4 @@
-ARTICULO 128.- El Ministerio establecerá la necesaria coordinación entre la Comisión Calificadora del Servicio Exterior, el Consejo de Administración y la Dirección General del Servicio Civil con el fin de lograr un método eficaz de selección del personal de planta del Ministerio que al mismo tiempo formará parte de la carrera del Servicio Exterior de la República.
+CAPITULO XXVII
+Disposiciones Generales
+ARTICULO 128.- El Ministerio de Relaciones Exteriores y Culto podrá crear adicionalmente las direcciones, subdirecciones, departamentos, secciones y oficialías necesarias para la buena marcha de la Institución.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 127 al 128)

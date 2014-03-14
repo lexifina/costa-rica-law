@@ -1,1 +1,2 @@
-ARTICULO 131.- El presente Decreto deroga toda otra disposición reglamentaria que se le oponga en lo conducente.
+ARTICULO 131.- En relación con el Artículo precedente, se dará preferencia a la integración y coordinación del sistema de archivos, correspondencia entrante y saliente, Base de Datos y Centro de Cómputo. Asimismo, se instruirá con urgencia al personal en materia de registro, numeración y manejo de la correspondencia, así como su relación con el Centro de Cómputo.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 130 al 131)

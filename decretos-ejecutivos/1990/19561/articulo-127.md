@@ -1,3 +1,2 @@
-CAPITULO XXVII
-Disposiciones Generales
-ARTICULO 127.- El Ministerio de Relaciones Exteriores y Culto podrá crear adicionalmente las direcciones, subdirecciones, departamentos, secciones y oficialías necesarias para la buena marcha de la Institución.
+ARTICULO 127.- También en circunstancias especiales, el Gobierno costarricense podrá, después de notificarlo a los Estados interesados y salvo que uno de estos se oponga expresamente a ello, encargar a una oficina consular establecida en un Estado, que asuma el ejercicio de funciones consulares en otros Estados. Asimismo, una oficina consular costarricense podrá, previa notificación al Estado receptor y siempre que este no se oponga, ejercer funciones consulares por cuenta de un tercer Estado. Asimismo a la inversa, el Estado costarricense podrá pedir el mismo servicio a otro Estado.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 126 al 127)

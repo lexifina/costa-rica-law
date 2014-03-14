@@ -1,13 +1,5 @@
-CAPITULO XXII
-De la precedencia de los funcionarios del Ministerio
-ARTICULO 88.- Los funcionarios del Ministerio de Relaciones Exteriores y Culto tendrán los rangos diplomáticos de acuerdo con su cargo, la modalidad siguiente:
-Cargo Rango
-Director General Subsecretario Adjunto
-Directores con más de diez años de servicio
-Embajadores Directores con menos de diez años de servicio
-Ministros y Subdirectores
-Jefes de Departamento Consejeros
-Encargados de Sección Primeros Secretarios
-Funcionarios auxiliares con más de Segundos Secretarios 4 años de servicio de Embajada
-Funcionarios auxiliares con más de Terceros Secretarios 2 años y menos de 4 de servicio de Embajada
-Funcionarios auxiliares con más de Agregados 2 años de servicio
+ARTICULO 88.- El Departamento de Adiestramiento tendrá por funciones las siguientes:
+a) En colaboración con el Instituto de Servicio Exterior y bajo su coordinación, organizar cursos de tipo modular, conferencias, seminarios, simposios, mesas redondas, proyecciones de filmes, videofielmes y transparencias para el personal técnico y profesional, así como para el personal de apoyo y administrativo en las materias de su competencia con el fin de contribuir a su mejor preparación.
+b) En colaboración con la Dirección General del Servicio Civil y con la oficina de becas del Ministerio, buscar ofertas de becas y pasantías para las diferentes categorías de personal y de acuerdo con la materia de su competencia. Hará la selección según las indicaciones del Instituto de Servicio Exterior y del Consejo de Administración.
+c) Consultar con frecuencia a los jefes y superiores jerárquicos del Ministerio con respecto a las necesidades de adiestramiento de sus dependencias y planificar de acuerdo.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 87 al 88)

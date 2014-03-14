@@ -1,3 +1,7 @@
-CAPITULO XX
-Del Departamento de Pasaportes
-ARTICULO 82.- El Departamento de Pasaportes tiene bajo su cargo todo el trámite, estudio y confección de los pasaportes diplomáticos, oficiales y de servicio que emite el Ministerio de Relaciones Exteriores y Culto de acuerdo con el Reglamento respectivo. Está bajo la guía y coordinación de un Jefe y recibe sus instrucciones directamente del Ministro y del Viceministro y, por delegación de éstos, del Director General.
+ARTICULO 82.- Son sus funciones más importantes:
+a) Convocar y organizar las conferencias de prensa del Ministro y del Viceministro.
+b) Llevar un índice de todos los periodistas, corresponsales y empresas periodísticas nacionales y extranjeras.
+c) Preparar y distribuir comunicados de prensa; editar boletines, instructivos y cartas informativas sobre las gestiones y actuaciones del Ministerio.
+d) Examinar diariamente la prensa nacional y los despachos de prensa extranjera.
+e) Llevar una hemeroteca por asunto.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 81 al 82)

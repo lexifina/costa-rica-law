@@ -1,3 +1,2 @@
-CAPITULO XXIII
-De los Traductores Oficiales
-ARTICULO 93.- Los Traductores Oficiales son funcionarios honorarios. Reciben por sus servicios la suma de dinero, correspondiente a una tarifa variable, según el número de palabras a traducir y, en ciertos casos, según la dificultad del texto traducir.
+ARTICULO 93.- La precedencia de los funcionarios del Ministerio la determina la Dirección de Protocolo, para lo cual tomará en cuenta el rango y la antigüedad }en el Servicio de cada uno. Protocolo mantendrá siempre una lista actualizada de dicha precedencia y la hará respetar en todo acto o ceremonia oficial en que se encuentren presentes los funcionarios en mención.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 92 al 93)

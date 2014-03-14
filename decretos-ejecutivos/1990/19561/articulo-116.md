@@ -1,3 +1,3 @@
-CAPITULO XXVI
-De las Misiones Consulares
-ARTICULO 116.- Las Misiones Consulares de Costa Rica están regidas en lo conducente por las disposiciones de la Convención de Viena sobre Relaciones Consulares, por la legislación costarricense sobre la materia, y por este Reglamento.
+ARTICULO 116.- DEROGADO.
+(Derogado por el artículo 21 del Decreto Ejecutivo No.20209 de 22 de enero de 1991)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 115 al 116)

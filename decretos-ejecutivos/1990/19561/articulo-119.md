@@ -1,1 +1,2 @@
-ARTICULO 119.- El procedimiento consular empleado en las misiones costarricenses será el mismo que las leyes, convenciones y práctica internacional determinen, sin perjuicio de lo que se establezca o sea establecido en manuales nacionales de procedimiento consular.
+ARTICULO 119.- Guardando lo estipulado en convenciones y leyes, los funcionarios de las tres categorías precedentes tienen fe pública y pueden ejercer los actos para lo que están facultados.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 118 al 119)

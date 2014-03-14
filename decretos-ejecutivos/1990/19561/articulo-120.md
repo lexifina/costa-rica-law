@@ -1,6 +1,2 @@
-ARTICULO 120.- Según lo estipulado por el Estatuto vigente del Servicio Exterior, los funcionarios consulares costarricenses pueden ser nombrados en los siguientes rangos:
-a) Cónsul General.
-b) Cónsul.
-c) Vicecónsul.
-d) Agente Consular.
-e) Canciller de Consulado.
+ARTICULO 120.- El procedimiento consular empleado en las misiones costarricenses será el mismo que las leyes, convenciones y práctica internacional determinen, sin perjuicio de lo que se establezca o sea establecido en manuales nacionales de procedimiento consular.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 119 al 120)

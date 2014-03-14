@@ -1,4 +1,4 @@
-ARTICULO 117.- Los funcionarios consulares costarricenses pueden ser nombrados en tres categorías diferentes:
-a) Los funcionarios diplomáticos que reciben recargo consular en sus funciones.
-b) Los funcionarios consulares remunerados.
-c) Los funcionarios consulares honorarios.
+CAPITULO XXVI
+De las Misiones Consulares
+ARTICULO 117.- Las Misiones Consulares de Costa Rica están regidas en lo conducente por las disposiciones de la Convención de Viena sobre Relaciones Consulares, por la legislación costarricense sobre la materia, y por este Reglamento.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 116 al 117)
