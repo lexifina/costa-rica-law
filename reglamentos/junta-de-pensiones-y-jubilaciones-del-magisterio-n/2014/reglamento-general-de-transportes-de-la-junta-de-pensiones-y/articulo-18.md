@@ -1,0 +1,1 @@
+Artículo 18.—El Departamento Administrativo deberá recomendar la venta o canje de unidades, que por alguna circunstancia han dejado de ser útiles o convenientes para la Junta, en cumplimiento con la Política de Renovación de Flotilla Vehicular.

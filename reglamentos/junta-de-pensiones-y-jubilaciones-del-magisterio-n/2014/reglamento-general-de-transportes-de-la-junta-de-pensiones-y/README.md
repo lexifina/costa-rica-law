@@ -1,0 +1,16 @@
+# Reglamento (2014-01-29)
+
+Reglamento General de Transportes de la Junta de Pensiones y Jubilaciones del Magisterio Nacional
+
+- Tipo: Reglamento
+- Número: 10
+- Fecha: 2014-01-29
+- Ente emisor: Junta de Pensiones y Jubilaciones del Magisterio Nacional
+- Publicación: La Gaceta N° 52 del 2014-03-14
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=76777&param2=95970&param3=1 (ficha 76777)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2014-03-14 | la propia norma |

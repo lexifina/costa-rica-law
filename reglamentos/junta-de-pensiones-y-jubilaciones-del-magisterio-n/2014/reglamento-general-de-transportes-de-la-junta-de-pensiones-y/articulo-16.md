@@ -1,0 +1,1 @@
+Artículo 16.—Con el propósito de que los vehículos de la Junta circulen dentro de las normas apropiadas de seguridad y ofrezcan una apariencia uniforme, se prohíbe colocar adornos, tanto en el interior como en el exterior, que no sean indispensables para el funcionamiento y operación del vehículo. De igual forma, los signos distintivos se estamparán de manera uniforme.

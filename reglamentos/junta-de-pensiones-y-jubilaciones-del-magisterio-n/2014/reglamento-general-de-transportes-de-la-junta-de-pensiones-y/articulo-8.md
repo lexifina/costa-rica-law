@@ -1,0 +1,1 @@
+Artículo 8º—Cuando por razones especiales no haya sido posible programar el servicio de transporte y/o se requiera en días y horas hábiles o inhábiles, podrá ser autorizado por la Jefatura del Departamento Administrativo y en su ausencia por el Director Ejecutivo.

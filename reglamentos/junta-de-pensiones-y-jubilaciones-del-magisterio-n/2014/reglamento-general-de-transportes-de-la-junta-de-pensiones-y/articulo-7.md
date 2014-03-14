@@ -1,0 +1,1 @@
+Artículo 7º—La Solicitud de Transporte deberá ser autorizada por la Jefatura del Departamento correspondiente o por el Director Ejecutivo. En los casos de Jefes de Departamento, la autorización podrá ser delegada en su inferior inmediato. En el caso de los miembros del Cuerpo Colegiado, la autorización corresponde a los propios Directivos.

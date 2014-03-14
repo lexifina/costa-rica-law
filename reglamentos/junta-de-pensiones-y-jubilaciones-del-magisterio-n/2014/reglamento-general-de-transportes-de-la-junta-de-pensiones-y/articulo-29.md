@@ -1,0 +1,1 @@
+Artículo 29.—Será responsabilidad del (de la) Jefe del Departamento Administrativo, en casos de accidentes en que participe un vehículo de la Junta, informar o solicitar la asistencia profesional necesaria o ambas cosas, al Departamento Legal.
