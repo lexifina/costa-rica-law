@@ -1,0 +1,3 @@
+Artículo 68 bis.- Patrimonio de las asociaciones mutualistas
+Formarán parte del patrimonio de las asociaciones mutualistas: las donaciones de terceros, las utilidades acumuladas de períodos anteriores, las utilidades del período, las cuotas de participación mutualista y todas aquellas partidas establecidas por las Normas Internacionales de Información Financiera (NIIF) y las buenas prácticas que rigen la materia.
+(Así adicionado por el artículo 1° de la ley N° 9199 del 5 de febrero del 2014, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda) para modernizar las fuentes de capitalización de la mutuales")
