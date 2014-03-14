@@ -1,0 +1,4 @@
+Artículo 4º—Advertencia documental. El documento en que conste la “licencia de expendio de bebidas con contenido alcohólico” deberá exhibirse en lugar visible del establecimiento e indicar en forma expresa:
+a) El derecho que se le otorga por medio de la licencia está directamente ligado al establecimiento comercial para el cual fue expedido, y no constituye un activo independiente a dicho establecimiento.
+b) Que las licencias no son susceptibles de embargo, de apropiación mediante remate o adjudicación vía sucesión, traspaso, arrendamiento, o cualquier otra forma de enajenación.
+c) Que en caso de que el establecimiento comercial que goza de la licencia sea traspasado, el adquiriente deberá tramitar una nueva licencia para expendio de bebidas con contenido alcohólico, cumpliendo en su totalidad con los trámites y requisitos establecidos, sin que esto signifique una obligación para la municipalidad de otorgarla.

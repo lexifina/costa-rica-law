@@ -1,0 +1,2 @@
+Artículo 23.—Prohibiciones. No se otorgarán licencias temporales en ninguna de las circunstancias detalladas en el párrafo tercero del artículo 7 de la Ley, ni para la realización de actividades propiamente deportivas tales como campeonatos, carreras, competencias, partido y similar.
+Será causal de cancelación de la licencia temporal, la determinación del arriendo a terceros o cualquier otro acto de disposición de la misma.

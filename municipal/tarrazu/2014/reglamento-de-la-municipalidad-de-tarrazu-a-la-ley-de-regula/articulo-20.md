@@ -1,0 +1,1 @@
+Artículo 20.—Inspección y Control. De lo recaudado en virtud de la Ley 9047, anualmente se destinarán recursos para las funciones de inspección y control hasta por un 40%, dependiendo de las necesidades de la Municipalidad. El restante se destinará para mejorar la calidad de vida de los habitantes del cantón según las propuestas presentadas por la Municipalidad.

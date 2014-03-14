@@ -1,0 +1,1 @@
+Transitorio II.—En los establecimientos con licencia tipo C que adquirieron la patente mediante la Ley N° 10 sobre la venta de licores, podrán mantener la barra. Dividiendo visualmente la misma del resto del establecimiento. La misma no puede ser utilizada únicamente para consumo de licor.
