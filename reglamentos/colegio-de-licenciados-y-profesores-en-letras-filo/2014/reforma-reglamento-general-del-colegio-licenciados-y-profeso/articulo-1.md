@@ -1,0 +1,6 @@
+COLEGIO DE LICENCIADOS Y PROFESORES EN LETRAS,
+FILOSOFÍA, CIENCIAS Y ARTES
+Se reforman el artículo 3 del Reglamento General del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes, según aprobación de la Asamblea General Extraordinaria CXXIII, celebrada el día 8 de febrero del 2014.
+REFORMA DEL ARTÍCULO 3 DEL REGLAMENTO GENERAL
+Artículo 3º—Símbolos de “El Colegio” La imagen corporativa del Colegio se describirá de forma detallada en un manual denominado Libro de Marca. En él se establecerán las indicaciones gráficas generales y específicas que deben cumplir los signos externos para identificar a esta organización y diferenciarla de otras. Los signos externos no serán usados para fines personales, comerciales o electorales. El himno del Colegio es el aprobado por la asamblea general ordinaria, celebrada en el mes de marzo de 1982 y las modificaciones acordadas por la junta directiva. Todos los documentos oficiales del colegio serán identificados conforme lo establezca el libro de marca aprobado por la junta directiva.
+Rige a partir de su publicación.
