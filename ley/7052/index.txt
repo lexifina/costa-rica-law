@@ -70,6 +70,7 @@ articulo-66.md
 articulo-67.md
 articulo-67-bis.md
 articulo-68.md
+articulo-68-bis.md
 articulo-69.md
 articulo-70.md
 articulo-71.md
@@ -140,6 +141,8 @@ articulo-135.md
 articulo-136.md
 articulo-137.md
 articulo-138.md
+articulo-138-bis.md
+articulo-138-ter.md
 articulo-139.md
 articulo-140.md
 articulo-141.md
