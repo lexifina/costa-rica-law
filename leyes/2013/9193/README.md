@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2014
 
-Ley N° 9193 del 2013-11-29. SINALEVI, ficha 76172: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=76172&param2=95967&param3=1>.
+Ley N° 9193 del 2013-11-29. SINALEVI, ficha 76172: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=76172&param2=96225&param3=1>.
 
 Publicada en La Gaceta N° 235 del 2013-12-05.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 38 | 2014-03-06 | Decreto Ejecutivo 38198 (2014-02-17) | 2014-02-17 |
 | 6 de 38 | 2014-03-06 | Decreto Ejecutivo 38213 (2014-02-20) | 2014-02-20 |
 | 7 de 38 | 2014-03-14 | Decreto Ejecutivo 38245 (2014-03-03) | 2014-03-03 |
+| 8 de 38 | 2014-03-14 | Decreto Ejecutivo 38288 (2014-03-24) | 2014-03-24 |
