@@ -1,0 +1,1 @@
+Artículo 4º—Las Juntas, en coordinación con el Director del Centro Educativo, el personal docente y administrativo, promoverán la integración del centro educativo con la comunidad y servirán como enlace para canalizar apoyo técnico, material y financiero de organizaciones públicas y privadas, nacionales o extranjeras, comprometidas con el desarrollo del centro educativo.

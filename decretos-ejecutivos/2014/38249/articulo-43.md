@@ -1,0 +1,1 @@
+Artículo 43.—Las actas deberán ser firmadas por el presidente y el secretario. Los demás miembros de la Junta que participen de la sesión, firmarán únicamente la hoja de asistencia el día de la sesión.

@@ -1,0 +1,1 @@
+Artículo 117.—La construcción de los comedores estudiantiles, por su naturaleza, se considera parte integral de la infraestructura del centro educativo. En virtud de lo anterior, todo proyecto será tramitado de conformidad con los procedimientos y especificaciones técnicas establecidos por la DIEE.

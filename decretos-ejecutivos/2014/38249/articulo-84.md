@@ -1,0 +1,1 @@
+Artículo 84.—El MEP, por medio del Departamento de Servicios Administrativos y Financieros, podrá llevar la contabilidad de las Escuelas Unidocentes y Liceos Rurales, así como de los centros educativos localizados en los 24 territorios indígenas reconocidos.

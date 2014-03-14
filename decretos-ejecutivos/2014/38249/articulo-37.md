@@ -1,0 +1,1 @@
+Artículo 37.—Para reunirse en sesión ordinaria no hará falta convocatoria especial. Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria escrita o por el medio acordado, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. La convocatoria debe incluir el orden del día.

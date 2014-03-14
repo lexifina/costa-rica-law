@@ -1,0 +1,4 @@
+SECCIÓN III
+Del nombramiento y destitución de los miembros de las Juntas
+Artículo 15.—El Supervisor del Centro Educativo presentará ante el Concejo Municipal las ternas propuestas por el Director del Centro Educativo. Corresponde al Concejo Municipal realizar la selección y nombramiento de los cinco miembros que conformarán la Junta, así como su posterior juramentación.
+Con el propósito de atender a las comunidades educativas más alejadas y evitar la movilización de todos los miembros de la Junta hasta la Municipalidad, la Dirección Regional de Educación podrá solicitar al Concejo Municipal que valore la posibilidad de delegar el acto de juramentación en uno de sus miembros o en el Alcalde Municipal. Lo anterior con el fin de que la persona delegada se desplace a realizar la juramentación en la correspondiente comunidad educativa.

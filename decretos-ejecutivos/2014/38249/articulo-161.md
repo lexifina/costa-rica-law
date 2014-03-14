@@ -1,0 +1,1 @@
+Artículo 161.—Las Juntas Administrativas de los Colegios Técnicos, el Director y el Tesorero-Contador deberán presentar los informes económicos dos veces por año, con corte de inversión al 30 de junio y al 30 de noviembre de cada período, a la Dirección de Educación Técnica y Capacidades Emprendedoras, siguiendo las directrices que emane la Comisión Nacional de la Ley 7372.

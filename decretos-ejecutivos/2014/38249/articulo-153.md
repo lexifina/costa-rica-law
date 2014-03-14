@@ -1,0 +1,1 @@
+Artículo 153.—Una vez que el mobiliario o demás activos del centro educativo cumplan su vida útil, la Junta deberá notificar al Departamento de Administración de Bienes de la Proveeduría Institucional del MEP, la lista correspondiente, con el objetivo de darlo de baja según la normativa establecida para tales fines.

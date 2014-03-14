@@ -1,0 +1,2 @@
+Artículo 144.—Todos los bienes inmuebles que adquieran las Juntas por donación de instituciones públicas o privadas, así como de un particular, deberán inscribirse a nombre del Ministerio de Educación Pública. Igual tratamiento se le dará a los bienes inmuebles adquiridos por disposición judicial según artículo 572 inciso 6) del Código Civil.
+Esta misma disposición es aplicable a las ampliaciones o mejoras que se realicen a los inmuebles con fondos de la misma procedencia, para lo cual contarán con la asesoría de la DIEE.

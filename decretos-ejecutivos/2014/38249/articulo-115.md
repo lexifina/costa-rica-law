@@ -1,0 +1,1 @@
+Artículo 115.—Las Juntas realizarán la ejecución de los recursos siguiendo los procedimientos vigentes de contratación administrativa, así como los lineamientos técnicos establecidos por la Dirección de Programas de Equidad para las distintas modalidades de servicio del comedor estudiantil, así como para los servicios complementarios.

@@ -1,0 +1,1 @@
+Artículo 45.—Los miembros de la Junta podrán interponer recurso de revisión contra los acuerdos que no se encuentren firmes, el que deberá ser planteado a más tardar en la sesión siguiente, sea ésta ordinaria o extraordinaria. Este recurso deberá resolverse en la misma sesión en que fue planteado.

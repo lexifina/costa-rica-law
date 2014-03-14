@@ -1,0 +1,1 @@
+Artículo 61.—En el primer trimestre de cada año las Juntas deben realizar un presupuesto extraordinario donde se incluya el monto del superávit del año anterior, si lo hubiere. Lo anterior con base en la certificación que deberá solicitar al correspondiente Tesorero-Contador para tales efectos.

@@ -1,0 +1,1 @@
+Artículo 175.—Cada organismo podrá proponer proyectos para que sean realizados de manera coordinada con la Junta, en tanto exista disponibilidad presupuestaria y no se comprometa el funcionamiento normal del centro educativo. Los proyectos aprobados deberán ser incluidos en el PAT del centro educativo y realizar la correspondiente modificación presupuestaria, cuando corresponda.

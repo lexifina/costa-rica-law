@@ -1,0 +1,1 @@
+Transitorio I.—Las Direcciones Regionales de Educación cumplirán lo establecido en el artículo 84 de este Reglamento, a partir del momento en que el MEP designe en cada una de ellas, el profesional en contabilidad requerido para tales efectos, el cual se integrará al correspondiente Departamento de Servicios Administrativos y Financieros.

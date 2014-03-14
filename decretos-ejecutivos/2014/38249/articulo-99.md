@@ -1,0 +1,1 @@
+Artículos 99.—El Viceministro de Planificación Institucional y Coordinación Regional dictará lineamientos generales con el fin de garantizar el uso de formatos y procedimientos estandarizados en todas las Direcciones Regionales de Educación.

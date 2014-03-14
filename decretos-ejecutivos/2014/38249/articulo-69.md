@@ -1,0 +1,1 @@
+Artículo 69.—Las Juntas podrán ofrecer bienes y servicios a cualquier ente del Estado, incluido el MEP, amparadas al mecanismo de excepción establecido en el Reglamento a la Ley de Contratación Administrativa (artículos 130 y 131).

@@ -1,0 +1,1 @@
+Artículo 62.—Las Juntas podrán manejar de manera digital toda la documentación, informes y reportes relacionados con el presupuesto ordinario, extraordinario y modificaciones presupuestarias, de acuerdo a los lineamientos técnicos que establezca el Departamento de Gestión de Juntas de la Dirección Financiera.

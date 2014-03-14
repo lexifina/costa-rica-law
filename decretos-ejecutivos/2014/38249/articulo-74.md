@@ -1,0 +1,1 @@
+Artículo 74.—Las Juntas utilizarán como referencia el formato de contrato por servicios profesionales establecido para tales efectos por el Departamento de Gestión de Juntas de la Dirección Financiera, con el propósito de estandarizar las condiciones mínimas de los servicios contables requeridos.

@@ -1,0 +1,1 @@
+Artículo 104.—La Dirección de Gestión y de Desarrollo Regional podrá proponer a las autoridades superiores del MEP soluciones y procedimientos para mejorar la capacidad de gestión de las Juntas. Asimismo, promover y proponer alianzas estratégicas con organizaciones públicas y privadas, nacionales o extranjeras, para mejorar la capacidad de gestión de las Juntas.

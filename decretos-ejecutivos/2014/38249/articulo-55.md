@@ -1,0 +1,1 @@
+Artículo 55.—Los fondos de las Juntas que tienen un destino específico, según su fuente de financiamiento, se incluirán en los rubros correspondientes del presupuesto con una explicación clara de su procedencia y destino.

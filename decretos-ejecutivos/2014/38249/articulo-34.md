@@ -1,0 +1,1 @@
+Artículo 34.—El Vicepresidente de la Junta ejercerá las atribuciones del Presidente en su ausencia, temporal o definitiva. En caso de que estuvieren ausentes el Presidente y el Vicepresidente en forma temporal o definitiva, presidirá el vocal correspondiente hasta tanto no se llenen las vacantes.

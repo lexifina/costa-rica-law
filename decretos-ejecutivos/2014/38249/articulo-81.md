@@ -1,0 +1,1 @@
+Artículo 81.—La oposición del Tesorero-Contador a uno o varios acuerdos, implicará su necesaria revisión en la sesión ordinaria siguiente o en sesión extraordinaria convocada al efecto, si a juicio del Presidente de la Junta, el asunto fuere de tramitación urgente.

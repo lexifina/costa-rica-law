@@ -1,0 +1,1 @@
+Artículo 20.—Durante la primera sesión, la Junta nombrará de su seno, por todo el período, un presidente, un vicepresidente, un secretario y dos vocales. El Director del Centro Educativo comunicará de manera inmediata al Departamento de Servicios Administrativos y Financieros, el nombramiento respectivo con el fin de actualizar los procesos correspondientes.

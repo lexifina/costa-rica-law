@@ -1,0 +1,22 @@
+Artículo 108.—Son funciones y atribuciones del Departamento de Gestión de Juntas:
+a) Establecer los mecanismos de control interno y supervisión requeridos para promover el uso oportuno, transparente y estratégico de los recursos públicos transferidos por las distintas dependencias del nivel central.
+b) Comunicar a las Direcciones Regionales de Educación sobre los recursos que les serán transferidos a las Juntas de su jurisdicción, provenientes del Fondo creado mediante la Ley Nº 6746 del 29 de abril de 1982 y, en general de los fondos previstos en el Presupuesto General de la República y demás Leyes.
+c) Solicitar el visto bueno del Viceministerio de Planificación Institucional y Coordinación Regional, para las directrices, lineamientos técnicos, disposiciones y circulares de su ámbito de competencia que regulan el funcionamiento de las Juntas.
+d) Resolver las consultas, solicitudes o denuncias que se presenten sobre las Juntas, con respecto a temas financieros.
+e) Establecer y mantener actualizados el Registro Nacional de Miembros de las Juntas, el cual será de libre acceso para la Dirección de Gestión y Desarrollo Regional.
+f) Establecer procedimientos uniformes y formatos estandarizados para orientar el funcionamiento de los Departamentos de Servicios Administrativos y Financieros, en lo que respecta al proceso financiero, presupuestario y contable de la gestión de Juntas.
+g) Coordinar con las Unidades Ejecutoras de Transferencias las planillas requeridas para realizar la transferencia de recursos a las Juntas, de acuerdo con la programación presupuestaria y financiera.
+h) Realizar los trámites necesarios para las transferencias de recursos hacia las Juntas, ante las instancias correspondientes.
+i) Comunicar la información de las transferencias realizadas, a las Juntas y a los Departamentos de Servicios Administrativos y Financieros.
+j) Solicitar informes del estado de cuentas bancarias, así como del movimiento económico de determinada Junta, cuando lo considere conveniente para efectos de control y seguimiento.
+k) Solicitar a la entidad bancaria correspondiente, cuando sea posible, la suspensión de todo desembolso con cargo a la cuenta bancaria de determinada Junta, cuando mediaren irregularidades.
+l) Realizar capacitaciones periódicas a los funcionarios que conforman el Departamento de Servicios Administrativos y Financieros, en materia técnica en su área de competencia y según se establezca en el Plan Nacional de Capacitación.
+m) Ejercer el control sobre la labor fiscalizadora que realizan las instancias regionales sobre el uso de los fondos transferidos a las Juntas y ejercer cuando corresponda y en forma coordinada, la fiscalización directa en situaciones especiales.
+n) Solicitar a las instancias regionales los informes trimestrales, por fuente de financiamiento, sobre el uso de los recursos canalizados a las Juntas.
+o) Coordinar con los Departamentos de Servicios Administrativos y Financieros la debida atención de los casos de Juntas que presenten problemas serios de ejecución, una vez analizados los informes trimestrales de saldos por fuente de financiamiento.
+p) Contratar, cuando corresponda, la realización de auditorías externas para valorar las actuaciones de los distintos actores educativos que intervienen en el proceso de Juntas, tanto a nivel central como regional.
+q) Deberá brindar toda aquella información financiera de la gestión de las Juntas que le sea solicitada, por ser ésta de carácter público.
+r) Deberá enviar a la Dirección de Gestión y Desarrollo Regional copia del informe trimestral, de la gestión financiera de cada Junta. Dicho informe deberá ser de carácter público y estar disponible en la página web del MEP.
+s) Coordinar con la Dirección de Gestión y Desarrollo Regional, acciones dirigidas al mejoramiento de la ejecución de los fondos asignados a las Juntas, considerando aquellos casos que evidencien problemas serios de ejecución, una vez analizados los informes trimestrales.
+t) Llevar a cabo el Encuentro Nacional de Juntas de Educación y Juntas Administrativas con la participación de los funcionarios de las Direcciones Regionales de Educación, como un espacio de análisis para el abordaje de temas estratégicos para el mejoramiento continuo de la gestión regional. Dicho encuentro se realizará una vez al año.
+u) Otras funciones y tareas relacionadas con la gestión de juntas, encomendadas por las autoridades superiores del Ministerio de Educación Pública.

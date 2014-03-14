@@ -1,0 +1,1 @@
+Artículo 149.—Las Juntas deberán presentar al Departamento de Servicios Administrativos y Financieros, así como a la DIEE, un informe de conclusión de las obras de infraestructura, ejecutadas en su respectivo centro educativo, haciendo uso de los formularios y formatos digitales establecidos para tales efectos.

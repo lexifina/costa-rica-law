@@ -1,0 +1,2 @@
+Artículo 80.—Es obligación del Tesorero-Contador mantenerse enterado de los acuerdos que adopte la Junta y que impliquen erogaciones económicas. En aquellos casos en que el Tesorero- Contador detecte que la Junta tomó acuerdos que no fueran legalmente procedentes, tendrá el deber de notificar por escrito a la Junta para que ésta rectifique el acuerdo conforme a derecho.
+Para lo cual, tendrá libre acceso a las actas y podrá asistir a las sesiones, donde tendrá derecho a voz pero no a voto.

@@ -1,0 +1,1 @@
+Artículo 100.—Las dependencias del nivel central, así como las Unidades Ejecutoras de Transferencias del MEP, remitirán a la Dirección de Gestión y Desarrollo Regional, así como a los Departamentos de Servicios Administrativos y Financieros, copia de aquellas comunicaciones de aplicación general que modifiquen los lineamientos vigentes en la gestión de Juntas.

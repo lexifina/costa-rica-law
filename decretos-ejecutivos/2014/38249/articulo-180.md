@@ -1,0 +1,1 @@
+Artículo 180.—Los aliados estratégicos son aliados de la institución, por lo que cualquier donación y/o préstamo de recursos, bienes inmuebles, son de calidad y uso exclusivo del centro educativo y la comunidad educativa.

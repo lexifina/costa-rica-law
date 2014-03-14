@@ -1,0 +1,1 @@
+Artículo 146.—Las Juntas de los centros educativos cuyos terrenos no se encuentren debidamente inscritos, a nombre del Ministerio de Educación Pública, deberán coordinar con la DIEE para realizar los trámites que corresponda ante la Notaría del Estado, para la debida inscripción.

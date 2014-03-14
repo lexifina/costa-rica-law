@@ -1,0 +1,1 @@
+Artículo 72.—Las Juntas podrán, una vez cubiertas las necesidades operativas y legales del centro educativo, realizar otras inversiones en beneficio de la comunidad estudiantil, siempre y cuando existan los recursos para tales fines.

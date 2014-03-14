@@ -1,0 +1,1 @@
+Artículo 127.—Las Juntas deberán presentar ante la Dirección de Programas de Equidad informes semestrales sobre la ejecución de los recursos relacionados con el servicio de transporte estudiantil. Incluye la certificación de saldos disponibles emitida por el correspondiente Tesorero-Contador.

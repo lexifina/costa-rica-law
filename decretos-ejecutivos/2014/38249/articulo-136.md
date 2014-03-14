@@ -1,0 +1,1 @@
+Artículos 136.—Las Juntas podrán formular proyectos para el desarrollo de infraestructura educativa haciendo uso de los prototipos o modelos contextualizados establecidos por la DIEE. Estos proyectos deberán ser remitidos directamente a la DIEE para su valoración y aprobación, en cualquier momento del año.

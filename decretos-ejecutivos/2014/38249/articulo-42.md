@@ -1,0 +1,1 @@
+Artículo 42.—De cada sesión se levantará un acta, que podrá ser elaborada digitalmente y que contendrá la indicación de las personas asistentes, número de acta, hora de inicio, lugar en donde se realiza la reunión y la agenda tratada, así como los acuerdos adoptados y el resultado de la correspondiente votación. Las actas se aprobarán en la siguiente sesión ordinaria.

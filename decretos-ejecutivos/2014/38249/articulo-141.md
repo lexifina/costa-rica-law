@@ -1,0 +1,1 @@
+Artículo 141.—La contratación de servicios de estudios técnicos, pruebas de laboratorio, así como de consultorías en disciplinas tales como arquitectura, ingenierías y similares, requeridas para el desarrollo de proyectos de infraestructura física, deben realizarse con base en un dictamen favorable de la DIEE, de acuerdo con los procedimientos establecidos.

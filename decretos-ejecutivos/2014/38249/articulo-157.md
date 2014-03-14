@@ -1,0 +1,1 @@
+Artículo 157.—La DETCE dictará y actualizará los lineamientos técnicos requeridos para orientar la ejecución de los fondos públicos previstos en la Ley 7372. La DETCE deberá tomar las previsiones que corresponda y aplicar los procedimientos administrativos en aquellos casos en que los CTP no ejecuten de manera oportuna los recursos transferidos y los mantengan ociosos.

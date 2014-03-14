@@ -1,0 +1,1 @@
+Artículo 49.—La Junta formulará el presupuesto ordinario del centro educativo para el año siguiente, utilizando como referencia, de manera preliminar, el mismo monto de recursos públicos asignados por el MEP en el año vigente, en lo que corresponda. El presupuesto será actualizado una vez que las Unidades Ejecutoras de Transferencias del MEP comuniquen los datos definitivos.

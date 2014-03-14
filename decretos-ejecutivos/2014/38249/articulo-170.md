@@ -1,0 +1,1 @@
+Artículo 170.—Las Juntas tendrán la responsabilidad de informar cada año a la comunidad educativa sobre la manera en que se invierten y administran los recursos, presupuestos y saldos disponibles, los proyectos realizados, el avance de los proyectos inconclusos y los proyectos que se van a desarrollar.

@@ -1,0 +1,1 @@
+Artículo 82.—Si la Junta persistiere en la adopción del acuerdo objetado por el Tesorero-Contador, éste último salvará su responsabilidad, pero deberá informar inmediatamente y en forma escrita del asunto al Supervisor de Centros Educativos correspondiente.

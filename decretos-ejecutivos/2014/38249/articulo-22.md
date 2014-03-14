@@ -1,0 +1,1 @@
+Artículo 22.—Para el nombramiento de una nueva Junta o su prórroga, el Director del Centro Educativo deberá iniciar el trámite presentando la propuesta al menos dos meses calendario previo al vencimiento de la Junta actual; especificando la fecha a partir de la cual deberá entrar en vigencia la nueva Junta o la prórroga de la misma.

@@ -1,0 +1,1 @@
+Artículo 83.—El incumplimiento de las condiciones contractuales establecidas en el contrato de servicios profesionales suscrito entre la Junta y el Tesorero-Contador, así como de la normativa que regula el ejercicio de su profesión, será causal para que la Junta dé por terminado ese contrato.

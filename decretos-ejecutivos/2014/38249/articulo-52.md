@@ -1,0 +1,1 @@
+Artículo 52.—Con el fin de facilitar el inicio del curso lectivo, el Departamento de Servicios Administrativos y Financieros deberá completar, a más tardar el 31 de diciembre de cada año, el proceso de aprobación del presupuesto de todas las Juntas bajo su jurisdicción.

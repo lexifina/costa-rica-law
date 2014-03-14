@@ -1,0 +1,1 @@
+Artículo 174.—Las necesidades y propuestas serán presentadas y canalizadas por cada organismo representante de los diversos actores de la comunidad educativa (Director del Centro Educativo, Patronato Escolar o Asociación de Padres de Familia, Consejo de Profesores y Gobierno Estudiantil).

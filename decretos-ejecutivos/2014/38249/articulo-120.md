@@ -1,0 +1,1 @@
+Artículo 120.—Las Juntas deberán presentar ante la Dirección de Programas de Equidad informes semestrales sobre la ejecución de todos los recursos relacionados con el PANEA. Incluye la certificación de saldos disponibles emitida por el correspondiente Tesorero-Contador.

@@ -1,0 +1,1 @@
+Artículo 128.—Toda la información correspondiente a transporte estudiantil deberá estar disponible para acceso público; utilizando para este fin los medios electrónicos disponibles y publicando en la página web del MEP un informe anual de la ejecución de los recursos asignados.

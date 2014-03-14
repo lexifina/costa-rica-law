@@ -1,0 +1,1 @@
+Artículo 160.—La Comisión Institucional de la Ley 7372 de cada Colegio Técnico Profesional asignará los montos correspondientes para la elaboración de proyectos a cada departamento especializado de acuerdo con el plan quinquenal, sin dejar de atender otras áreas técnicas.

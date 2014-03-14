@@ -1,0 +1,1 @@
+Artículo 75.—Por tratarse de un contrato por concepto de servicios profesionales, no procede el pago de cargas sociales, vacaciones y aguinaldo. En caso de terminar la relación contractual, no procede el pago de prestaciones laborales.

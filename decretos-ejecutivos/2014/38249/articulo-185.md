@@ -1,0 +1,1 @@
+Articulo 185.—Considerando que las Juntas están llamadas a buscar la vinculación e integración de la comunidad educativa, se considera imperativo que las mismas propicien la participación activa en las actividades y proyectos que se realicen.

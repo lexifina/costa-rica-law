@@ -1,0 +1,1 @@
+Artículo 59.—El Departamento de Servicios Administrativos y Financieros emitirá su resolución, referente a los presupuestos extraordinarios o de modificaciones presupuestarias, dentro del término de 15 días hábiles posteriores a su presentación.

@@ -1,0 +1,1 @@
+Artículo 143.—Todos los bienes inmuebles que adquieran las Juntas con fondos públicos provenientes del presupuesto nacional, sea con recursos del MEP o de otras entidades públicas, deberán inscribirse a nombre del Ministerio de Educación Pública. Estos bienes son inembargables.

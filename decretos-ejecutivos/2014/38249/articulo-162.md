@@ -1,0 +1,1 @@
+Artículo 162.—El Tesorero-Contador deberá presentar a la Junta Administrativa certificación bancaria de la cuenta de la Ley 7372, conciliación bancaria y certificación de los fondos de esa ley en la Caja Única del Estado, para la elaboración de los informes económicos.

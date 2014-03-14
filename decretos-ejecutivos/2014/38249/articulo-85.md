@@ -1,0 +1,1 @@
+Artículo 85.—La Junta no podrá autorizar el pago de los honorarios de los servicios profesionales del Tesorero-Contador contratado, si la contabilidad, libros, informes y registros contables, no se encuentran al día y debidamente presentados ante la Junta.

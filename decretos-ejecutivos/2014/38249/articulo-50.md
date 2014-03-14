@@ -1,0 +1,1 @@
+Artículo 50.—La Junta deberá preparar el presupuesto utilizando los formularios y formatos digitales, de acuerdo con los lineamientos establecidos por el Departamento de Gestión de Juntas de la Dirección Financiera.

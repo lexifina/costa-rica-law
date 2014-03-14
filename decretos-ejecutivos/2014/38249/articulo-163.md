@@ -1,0 +1,1 @@
+Artículo 163.—Las Juntas pueden contratar y ser contratadas con el mecanismo de excepción establecida en el Reglamento a la Ley de Contratación Administrativa (artículos 130 y 131), en la adquisición de bienes y servicios con cualquier ente del Estado, incluyendo al MEP (Oficinas Centrales, Direcciones Regionales de Educación y centros educativos).

@@ -1,0 +1,1 @@
+Artículo 66.—También podrán destinar al financiamiento de los gastos operativos los recursos propios generados directamente por la Junta o los proporcionados para ese fin por organizaciones públicas o privadas, nacionales o extranjeras. Asimismo, los recursos generados por concepto de alquiler de sus instalaciones, incluida la soda estudiantil.

@@ -1,0 +1,1 @@
+Artículo 110.—El PANEA transfiere a las Juntas fondos públicos para el funcionamiento del servicio de comedores estudiantiles que contempla, además de la compra de alimentos, el financiamiento de bienes y servicios complementarios tales como: mobiliario y equipo, utensilios, la contratación de personal para el comedor escolar, así como el desarrollo de huertas estudiantiles.

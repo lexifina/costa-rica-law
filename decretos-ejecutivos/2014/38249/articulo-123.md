@@ -1,0 +1,1 @@
+Artículo 123.—El financiamiento del servicio de transporte estudiantil, en sus distintas modalidades, se realizará mediante los recursos asignados en el presupuesto del Ministerio de Educación Pública para tales efectos.

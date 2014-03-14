@@ -1,0 +1,1 @@
+Artículo 5º—Como organismos auxiliares de la Administración Pública, las Juntas tienen personalidad jurídica y patrimonio propio. Les corresponde la administración de los recursos públicos transferidos para el funcionamiento del centro educativo. Los bienes propiedad de las Juntas son inembargables.

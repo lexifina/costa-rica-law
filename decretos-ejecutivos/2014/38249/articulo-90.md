@@ -1,0 +1,1 @@
+Artículo 90.—Las Juntas como organismos auxiliares de la Administración Pública, de acuerdo con lo establecido en el artículo anterior, tendrán los mismos beneficios que ostenten el Ministerio de Educación Pública y el resto del Poder Ejecutivo.

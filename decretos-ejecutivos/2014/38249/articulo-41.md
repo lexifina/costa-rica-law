@@ -1,0 +1,1 @@
+Artículo 41.—Para promover la coordinación y el trabajo en equipo, así como racionalizar el uso de los recursos disponibles, las sesiones deberán realizarse en las instalaciones del centro educativo, salvo caso fortuito o fuerza mayor. El Director del Centro Educativo deberá facilitar un espacio para este fin, así como para el resguardo de la documentación oficial de la Junta.

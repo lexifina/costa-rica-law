@@ -1,0 +1,1 @@
+Artículo 17.—El nombramiento de las Juntas de centros educativos localizados en los 24 territorios indígenas reconocidos, se realizará de conformidad con lo establecido en el Decreto Ejecutivo N° 37801-MEP, Reforma del Subsistema de Educación Indígena, publicado en La Gaceta N° 135 del 15 de julio de 2013.

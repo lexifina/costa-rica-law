@@ -1,0 +1,1 @@
+Artículo 14.—En el caso de escuelas unidocentes y centros educativos que no puedan cumplir con las condiciones establecidas en los artículos 12 y 13, el Director del Centro Educativo podrá solicitar la excepción correspondiente al Supervisor del Centro Educativo, presentando junto con las ternas propuestas la debida justificación.

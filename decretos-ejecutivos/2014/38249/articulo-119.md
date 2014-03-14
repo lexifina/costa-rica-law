@@ -1,0 +1,1 @@
+Artículo 119.—Las Juntas, en coordinación con el Director del Centro Educativo y con el visto bueno del Departamento de Servicios Administrativos y Financieros, podrán tramitar ante la Dirección de Programas de Equidad la solicitud de recursos para el financiamiento de proyectos de huertas estudiantiles, de conformidad con lo establecido para tales efectos.

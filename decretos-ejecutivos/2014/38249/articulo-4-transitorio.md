@@ -1,0 +1,1 @@
+Transitorio IV.—El Viceministerio de Planificación Institucional y Coordinación Regional, en un plazo máximo de 6 meses, contados a partir de la publicación de este reglamento, deberá emitir los lineamientos requeridos para la implementación de lo señalado en los artículos 182 y 183.

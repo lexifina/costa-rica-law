@@ -1,0 +1,1 @@
+Artículo 24.—Cualquier miembro de la comunidad educativa podrá presentar por escrito ante el Supervisor del Centro Educativo, las denuncias sobre supuestos hechos anómalos de la Junta, con el fin de que se realice la investigación correspondiente.

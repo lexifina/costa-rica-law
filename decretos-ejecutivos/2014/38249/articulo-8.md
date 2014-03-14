@@ -1,0 +1,1 @@
+Artículo 8º—Los centros y ofertas educativas que comparten una misma infraestructura física podrán solicitar al Viceministro de Planificación Institucional y Coordinación Regional la autorización para integrar una única Junta.

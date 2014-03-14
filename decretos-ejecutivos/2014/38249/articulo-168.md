@@ -1,0 +1,1 @@
+Artículo 168.—Toda la información correspondiente a la Educación Especial deberá estar disponible para acceso público. Utilizando para este fin los medios electrónicos disponibles y publicando en la página web del MEP un informe anual de la ejecución de los recursos asignados.

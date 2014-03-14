@@ -1,0 +1,1 @@
+Artículo 27.—Una vez concluida la investigación sumaria, el Supervisor del Centro Educativo pondrá el expediente en conocimiento del Jefe de Servicios Administrativos y Financieros, con sus recomendaciones y observaciones incluidas.

@@ -1,0 +1,1 @@
+Artículo 32.—Para promover la transparencia y rendición de cuentas la Junta preparará un informe anual de labores, el cual deberá estar disponible en el mes de febrero de cada año, para presentarlo a la comunidad educativa. Lo anterior de acuerdo con el formato avalado para tales efectos por la Dirección de Gestión y Desarrollo Regional.

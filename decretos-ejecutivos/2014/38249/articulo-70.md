@@ -1,0 +1,1 @@
+Artículo 70.—Las Juntas podrán contratar directamente con entidades o personas de derecho público sin otros límites que los determinados por su competencia y lo dispuesto en los artículos 2 de la Ley de Contratación Administrativa y los artículos 125 y 138 del Reglamento a la Ley de Contratación Administrativa.
