@@ -1,0 +1,4 @@
+IV.—Rige a partir del día siguiente de su publicación en La Gaceta.
+En cumplimiento de lo que ordena el artículo 245, en concordancia con el artículo 345 de la Ley General de la Administración Pública, se indica que contra esta resolución caben los recursos ordinarios de revocatoria y de apelación y el extraordinario de revisión. El de revocatoria podrá interponerse ante esta Intendencia, a quien corresponde resolverlo; el de apelación y el de revisión, podrán interponerse ante la Junta Directiva, a la que corresponde resolverlos.
+De conformidad con el artículo 346 de la Ley General de la Administración Pública, los recursos de revocatoria y de apelación deberán interponerse en el plazo de tres días hábiles contado a partir del día hábil siguiente al de la notificación y, el extraordinario de revisión, dentro de los plazos señalados en el artículo 354 de dicha ley.
+Publíquese y notifíquese.
