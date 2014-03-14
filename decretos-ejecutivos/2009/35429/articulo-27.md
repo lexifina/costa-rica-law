@@ -1,2 +1,0 @@
-Artículo 27.—Informes semestrales a la Dirección General de Armamento. Con base en los registros actualizados, los Encargados deben informar a más tardar cada 15 de Enero y 15 de Julio a la Dirección General de Armamento las municiones bajo su responsabilidad, así como cantidad, tipo, número de serie y patrimonio de las armas permitidas que posean, nombre y número de cédula de la persona a quién se le ha asignado un arma y fecha de vencimiento del permiso.
-Del mismo modo indicarán los cambios que se hubieren producido en las reservas de municiones.

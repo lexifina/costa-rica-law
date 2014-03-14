@@ -1,1 +1,0 @@
-Artículo 39.—Requisito de toda orden de compra de armas. La Proveeduría correspondiente no tramitará solicitudes de compras de armas si no contienen el “visto bueno” del Jefe de Armería o de Seguridad y Vigilancia, según corresponda, para armas de la Policía de Tránsito o para la vigilancia de las instalaciones del MOPT.

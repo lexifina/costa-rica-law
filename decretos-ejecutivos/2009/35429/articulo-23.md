@@ -1,2 +1,0 @@
-Artículo 23.—Mantenimiento mayor. El Jefe de la Unidad de Armería o el de Seguridad y Vigilancia, según corresponda, tendrán a cargo el mantenimiento mayor y la reparación de las armas, incluyendo el poder desarmarlas completamente, lavar, limpiar y lubricar las piezas para su posterior reensamblaje.
-Ninguna de estas labores la podrá realizar el funcionario directamente autorizado para portar un arma.

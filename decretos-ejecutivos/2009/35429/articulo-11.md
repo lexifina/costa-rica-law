@@ -1,1 +1,0 @@
-Artículo 11.—Vigencia de los permisos. Los permisos para portar armas tendrán una vigencia de dos años y podrá renovarse por períodos iguales y sucesivos previo cumplimiento de los requisitos que establece este Reglamento.

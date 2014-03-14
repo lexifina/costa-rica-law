@@ -1,1 +1,0 @@
-Artículo 41.—Integración y aplicación. La aplicación del presente reglamento será en concordancia con el Reglamento Autónomo de Organización y Servicios del MOPT y las restantes normas integrantes del ordenamiento jurídico.

@@ -1,2 +1,0 @@
-Artículo 4º—De la Unidad de Seguridad y Vigilancia del MOPT. En caso de la unidad de Seguridad y Vigilancia del MOPT, corresponderá al Jefe de dicha unidad, asumir las funciones de control y custodia de las armas, municiones y cargadores, a cuyo efecto establecerá una armería a su cargo dentro del Ministerio.
-Para las Regionales del MOPT, deberá la Unidad de Seguridad y Vigilancia del MOPT coordinar con la Dirección de Recursos Humanos la designación y capacitación del funcionario respectivo que tenga a su cargo el control y la custodia de las armas, municiones y cargadores.
