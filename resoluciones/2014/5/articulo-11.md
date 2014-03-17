@@ -1,0 +1,1 @@
+Artículo 11.—Derogatoria. Se derogan las resoluciones DGT-R-027-2013, del 12 de julio de dos mil trece, publicada en La Gaceta Nº 148 del 5 de agosto del 2013 y DGT-R- 044-2013, del 16 de diciembre del dos mil trece, publicada en La Gaceta Nº 22 del 31 de enero del 2014.

@@ -1,0 +1,1 @@
+Artículo 10.—Trámite de compensación. Se prescinde del trámite de compensación previa, para la emisión de las resoluciones que ordenan la devolución de créditos por concepto de pago indebido del impuesto de salida del territorio nacional por vía terrestre.
