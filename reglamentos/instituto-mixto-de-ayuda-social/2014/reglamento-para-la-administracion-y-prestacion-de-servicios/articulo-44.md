@@ -1,0 +1,1 @@
+Artículo 44.—Resguardo y Uso de la Tarjeta Electrónica de Compra de Combustible. Todo (a) tarjetahabiente deberá resguardarla y darle el uso correcto, para evitar su extravío o robo. De no cumplirse con esta disposición y de producirse una pérdida, el (la) funcionario (a) deberá de asumir el costo respectivo por reposición.

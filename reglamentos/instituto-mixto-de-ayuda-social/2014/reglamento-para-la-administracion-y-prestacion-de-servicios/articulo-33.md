@@ -1,0 +1,1 @@
+Artículo 33.—Aseguramiento de los vehículos. El Área de Proveeduría Institucional será la responsable de tramitar los seguros institucionales, de acuerdo con el procedimiento estipulado para tal efecto, buscando las mejores opciones para la Institución y asesorando e informando sobre los alcances de las coberturas a los (as) funcionarios (as) de la Institución.
