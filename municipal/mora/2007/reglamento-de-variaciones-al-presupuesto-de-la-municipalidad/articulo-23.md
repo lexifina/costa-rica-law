@@ -1,1 +1,0 @@
-Artículo 23.—Responsabilidad en la aplicación del presente reglamento: El Concejo, Alcalde y titulares subordinados que intervienen en el proceso presupuestario serán responsables de velar por el cumplimiento efectivo de lo dispuesto en este documento y la debida fiscalización y recomendaciones que debe ejercer la Unidad de Auditoría Interna.

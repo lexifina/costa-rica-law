@@ -1,1 +1,0 @@
-Artículo 4º—Alcance: Esta reglamentación es de aplicación a todos los funcionarios municipales que participen en el proceso, presentación y aprobación de variaciones presupuestarias. El marco de referencia para la presente reglamentación lo constituye la resolución R-CO-67-2006 de la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 13.—Presentación de los presupuestos extraordinarios: Los proyectos de presupuestos extraordinarios, deberán presentarse con tres días de antelación a la secretaria municipal, según el artículo Nº 95 del Código Municipal.
