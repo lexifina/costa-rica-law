@@ -1,0 +1,1 @@
+2º—Instruir a la Administración para que a la hora de realizar este trámite, prevenga la acreditación, por parte del interesado, de la documentación que respalde su condición de pequeño o medianos agricultor, y que en caso de duda, se haga la inspección en el sitio.
