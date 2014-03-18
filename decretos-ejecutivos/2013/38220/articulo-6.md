@@ -1,0 +1,1 @@
+Artículo 6º—Restricciones: Ningún(a) funcionario(a) podrá tener asignado más de un teléfono celular. No obstante lo anterior, en el caso del (de la) Ministro (a) y de los (las) Viceministros (as) se permitirá la asignación de una segunda línea telefónica, en virtud de la necesidad de obtener servicios adicionales de internet ofrecidos por esta vía.

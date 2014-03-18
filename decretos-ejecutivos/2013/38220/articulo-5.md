@@ -1,0 +1,1 @@
+Artículo 5º—Uso exclusivo: El teléfono celular asignado es un beneficio de uso exclusivo del(a) funcionario(a) al(a) que se le asigna, con el fin único de atender y realizar llamadas relativas al cumplimiento de las funciones, tareas y actividades propias de su cargo.
