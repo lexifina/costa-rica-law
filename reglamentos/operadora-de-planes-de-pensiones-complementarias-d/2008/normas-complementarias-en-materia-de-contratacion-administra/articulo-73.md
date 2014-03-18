@@ -1,3 +1,4 @@
 Artículo 73.—Reclamos de contratistas. Cuando se presenten reclamos de los contratistas por la aplicación de multas en la ejecución contractual, la Sección Administrativa, conjuntamente con la unidad usuaria, valorará la suficiencia e idoneidad de la documentación soporte y de los elementos de descargo que aporte el interesado, pudiendo requerirle la ampliación que considere necesaria.
 Sobre la base de las valoraciones que se realicen, la Sección Administrativa preparará un informe en el que se recomiende aplicar la multa o exonerarla parcial o totalmente.
-Dicho informe deberá ser validado jurídicamente en todos los casos por la Asesoría Legal y su aprobación corresponde a la Jefatura del Departamento de Administración y Finanzas.
+Dicho informe deberá ser validado jurídicamente en todos los casos por la Consultoría Jurídica y su aprobación corresponde a la Jefatura del Departamento de Administración y Finanzas.
+(Así reformado el párrafo anterior mediante sesión extraordinaria N°430 del 18 de marzo del 2014)

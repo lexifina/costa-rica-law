@@ -1,7 +1,8 @@
 Artículo 2º—Definiciones. Para efectos de la aplicación de este Reglamento, se definen los siguientes términos:
 Administración Superior: Estará constituida por la Junta Directiva de la Operadora y su Gerencia.
 Administrador de contrato: Es el encargado de administrar los contratos de suministro de bienes y servicios que suscriba la Operadora con particulares o terceros, con el propósito de asegurar el fiel cumplimiento del objeto de la contratación, tanto cualitativa como cuantitativamente; el cual actuará también como contraparte institucional.
-Asesoría Legal: dependencia que brinda la asesoría jurídica y los servicios legales que en materia de contratación administrativa requiera la Operadora.
+Consultoría Jurídica: dependencia que brinda la asesoría jurídica y los servicios legales que en materia de contratación administrativa requiera la Operadora.
+(Así reformada la definición anterior mediante sesión extraordinaria N° 430 del 18 de marzo del 2014)
 Comité de Licitaciones: Es el Órgano competente para resolver los diferentes procedimientos y trámites de contratación administrativa de toda índole, incluyendo las adjudicaciones, declaratorias desiertas o infructuosas, recursos de revocatoria u otros, propios de su competencia, que requieran ser resueltos por dicho Comité.
 Contratación Directa: Materias excluidas legalmente de los procedimientos ordinarios de contratación que podrán ser objeto de negociación directa entre la Administración y el contratante, en el tanto la Administración actúe en ejercicio de su competencia y el contratante reúna los requisitos de idoneidad legal, técnica y financiera para celebrar el respectivo contrato.
 Contratista: Es la persona física o jurídica que ha sido adjudicado por la Operadora para la ejecución de un contrato.
