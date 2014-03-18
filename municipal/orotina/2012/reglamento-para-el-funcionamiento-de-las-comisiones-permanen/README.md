@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de las comisiones permanentes y especiales de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-11 | la propia norma |
+| 2 | 2014-03-18 | Reglamento municipal 325 (2014-03-18) |
