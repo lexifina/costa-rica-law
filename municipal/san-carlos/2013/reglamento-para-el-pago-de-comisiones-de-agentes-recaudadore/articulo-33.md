@@ -1,0 +1,1 @@
+Artículo 33.—Los porcentajes y el tope de la Comisión, podrán ser ajustados por el Concejo Municipal previo dictamen de la Dirección de Hacienda, a fin de equipararlos a las condiciones económicas prevalecientes y a las políticas institucionales de la Municipalidad de San Carlos y otras instituciones similares.

@@ -1,0 +1,1 @@
+Artículo 8º—La Municipalidad de San Carlos, por medio de la Dirección de Hacienda, estudiará las ofertas de servicios de recaudación para determinar si cumplen con los requisitos estipulados en este Reglamento y se confeccionará el respectivo expediente cumpliendo con el manual de políticas y funciones de la Dirección de Hacienda establecido para estos fines.

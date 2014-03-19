@@ -1,0 +1,3 @@
+Artículo 39.—Cuando el agente recaudador reciba cheques sin consignar al dorso de los mismos la información indicada en el Reglamento se aplicará:
+a) La primera vez, se le prevendrá por escrito y se le cobrará el tres por ciento (3%) de gastos administrativos sobre el importe del cheque.
+b) La segunda vez, el cierre definitivo de la caja, o conectividad sin ninguna responsabilidad para la Municipalidad de San Carlos, Este acto autoriza a la Municipalidad de San Carlos, para llevar a cabo las sanciones administrativas o judiciales pertinentes a efectos de hacer efectivo el monto insoluto. De no ser cancelado por el agente recaudador, se podrá aplicar la garantía existente.

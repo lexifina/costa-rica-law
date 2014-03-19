@@ -1,0 +1,1 @@
+Artículo 13.—La Dirección de Hacienda Municipal, es la encargada de revisar las recomendaciones de los funcionarios de la Tesorería Municipal y trasladará el caso con su recomendación a la Alcaldía Municipal.

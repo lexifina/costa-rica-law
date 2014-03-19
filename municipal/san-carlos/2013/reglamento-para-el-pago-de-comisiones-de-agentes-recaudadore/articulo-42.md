@@ -1,0 +1,1 @@
+Artículo 42.—Cuando se trate de cajas recaudadoras en que opere el sistema de conectividad, si por alguna razón se cae la comunicación directa con la caja externa, el recaudador no está autorizado para actuar en el cobro de lo establecido en este convenio.

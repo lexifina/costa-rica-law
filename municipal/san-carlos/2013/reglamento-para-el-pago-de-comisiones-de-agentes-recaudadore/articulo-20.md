@@ -1,0 +1,1 @@
+Artículo 20.—La Municipalidad de San Carlos, se encuentra facultada a hacer efectiva la garantía rendida por el agente recaudador ante cualquier incumplimiento contractual sin necesidad de requerimiento alguno.

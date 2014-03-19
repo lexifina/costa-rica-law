@@ -1,0 +1,1 @@
+Artículo 21.—El Agente Recaudador, cobrará las facturas por servicios que estén al cobro en el sistema, según los parámetros establecidos por el manual dado por tecnologías de Información denominado “Reglas de Negocio”

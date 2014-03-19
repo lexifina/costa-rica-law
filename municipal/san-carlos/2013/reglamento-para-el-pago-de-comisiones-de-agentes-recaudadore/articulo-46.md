@@ -1,0 +1,1 @@
+Artículo 46.—La Municipalidad de San Carlos, establecerá con el agente recaudador el tipo de conectividad a utilizar. El departamento de Tecnologías de la Municipalidad de San Carlos definirá la tecnología, el medio y las políticas para establecer la conectividad.

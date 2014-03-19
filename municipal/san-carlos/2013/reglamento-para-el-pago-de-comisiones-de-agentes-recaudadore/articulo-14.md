@@ -1,0 +1,1 @@
+Artículo 14.—La Alcaldía de la Municipalidad de San Carlos, solicitará autorización al Concejo Municipal de San Carlos y en el acuerdo de aprobación por parte del Concejo, deberá autorizarse a la Alcaldía a firmar el Contrato previa formalización de la garantía respectiva en la Tesorería Municipal.

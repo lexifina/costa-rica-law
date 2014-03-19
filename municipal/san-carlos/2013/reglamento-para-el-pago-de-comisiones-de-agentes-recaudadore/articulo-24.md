@@ -1,0 +1,1 @@
+Artículo 24.—El agente recaudador velará por la seguridad del dinero que recaude y depositará los montos recaudados al día hábil siguiente de su recepción, en cualesquiera de las cuentas corrientes de la Municipalidad de San Carlos determinada por el Tesorero Municipal de ante mano y reflejada en el respectivo contrato.

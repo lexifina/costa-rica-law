@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad de San Carlos facilitará a sus abonados el pago de los servicios públicos que brinda, así como la recaudación de los impuestos, por medio de la contratación de agentes recaudadores que estén bajo la supervisión de la Superintendencia General de Entidades Financieras.

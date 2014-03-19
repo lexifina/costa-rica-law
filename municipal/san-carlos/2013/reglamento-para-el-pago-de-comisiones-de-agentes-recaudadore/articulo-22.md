@@ -1,0 +1,1 @@
+Artículo 22.—Los agentes recaudadores tendrán en cuenta que la forma de pago es la establecida son las establecidas en el manual de Reglas de Negocio establecidas en coordinación con Tecnologías de Información y la Administración Tributaria de la Municipalidad de San Carlos, según criterios legales, tributarios y tecnológicos que se presenten.

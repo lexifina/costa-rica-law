@@ -1,0 +1,1 @@
+Artículo 32.—El pago de la Comisión al agente recaudador se deberá pactar, según sea más conveniente a los intereses de la Municipalidad; pudiéndose cancelar mediante deducción de la comisión del monto de la recaudación respectiva y acreditando el saldo neto en la cuenta corriente que la Municipalidad de San Carlos indique.

@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento establece los derechos y deberes de las partes y por lo tanto, forma parte integral del Contrato que deben formalizar los agentes recaudadores con la Municipalidad de San Carlos.

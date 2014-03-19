@@ -1,0 +1,4 @@
+Artículo 38.—Si el Agente Recaudador no cumple con lo dispuesto en los artículos de cobranza, remisión de información y reintegro oportuno de cobros realizados, se le amonestará de la siguiente manera:
+a) La Tesorería Municipal apercibirá la primera vez por escrito, y el ente externo de recaudación tendrá que cubrir los gastos administrativos correspondientes a cinco veces el monto mínimo del pago del servicio en cuestión, así como los costos de la reconexión del servicio y mora si éstas se hubiesen producido o la visita fallida realizada por el proveedor encargado, así como los daños y perjuicios ocasionados a terceros si éstos los reclamasen.
+b) La resolución del contrato sin responsabilidad alguna para la Municipalidad de San Carlos.
+Además si no fueran cancelados los montos adeudados, la Municipalidad de San Carlos, podrá aplicar la garantía existente.
