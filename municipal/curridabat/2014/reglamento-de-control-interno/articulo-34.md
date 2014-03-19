@@ -1,0 +1,5 @@
+Artículo 34.—Procedimiento Sancionatorio. En caso de incumplimiento por acción u omisión de las disposiciones de Control Interno, la Comisión de Control Interno presentará el informe correspondiente a la Alcaldía, el cual, una vez analizado lo elevará al Concejo Municipal, el cual dictará la obligación de tomar las medidas correctivas. La potestad sancionatoria será responsabilidad del Alcalde o del Concejo Municipal según corresponda, con base a la constatación de la verdad real de los hechos y se aplicará conforme lo estipula el Código Municipal en el artículo 149 al 151.
+En caso de no aplicación de las medidas correspondientes, o a falta de inicio del procedimiento administrativo, se reputará como falta grave al funcionario que deje prescribir la responsabilidad del infractor.
+El presente Reglamento de Control Interno de la Municipalidad de Curridabat, fue debidamente aprobado por el Concejo Municipal de Curridabat en la Sesión Ordinaria.”
+2°—Que al tratarse de un reglamento interno no se aplica lo preceptuado en el numeral 43 del Código Municipal; siendo que el mismo entra a regir una vez que sea publicado. Publíquese.
+Curridabat, 19 de febrero de 2014.—

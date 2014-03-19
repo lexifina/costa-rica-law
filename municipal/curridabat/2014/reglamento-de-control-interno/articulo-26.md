@@ -1,0 +1,1 @@
+Artículo 26.—Responsabilidad. La Alcaldía, los Directores y Jefes tienen la obligación y responsabilidad de identificar oportunamente y dentro de su área de competencia, los riesgos a los que se exponen los procesos, procedimientos, actividades u operaciones institucionales, para minimizarlos, administrarlos y lograr los objetivos propuestos de manera efectiva.

@@ -1,0 +1,1 @@
+Artículo 17.—Plan de Autoevaluación. La Comisión de Control Interno, preparará un plan de Autoevaluación anual, el cual presentará a la Alcaldía para su validación y ésta a su vez al Concejo Municipal para su debida aprobación.

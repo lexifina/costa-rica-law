@@ -1,0 +1,1 @@
+Artículo 5°—Sistema de control interno: La Comisión Control Interno de la Municipalidad de Curridabat, será la encargada de fortalecer el Sistema de Control Interno Municipal y serán los titulares subordinados, los responsables de coordinar acciones para coadyuvar y apoyar la administración activa respecto a las tareas a favor de la calidad del Sistema de Control Interno.
