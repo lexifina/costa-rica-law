@@ -1,0 +1,1 @@
+Artículo 5º—Se considerarán partícipes del acoso laboral, todas aquellas personas que induzcan o favorezcan el acoso laboral, así como el o la representante patronal que omita cumplir los requerimientos o sanciones que se emitan en los términos del presente Reglamento.

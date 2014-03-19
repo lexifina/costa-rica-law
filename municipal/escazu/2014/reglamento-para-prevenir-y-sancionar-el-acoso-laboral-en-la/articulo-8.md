@@ -1,0 +1,3 @@
+CAPITULO III
+Del procedimiento
+Artículo 8º—Conformación de la Comisión Instructora y plazo del nombramiento: La persona titular de la Alcaldía conformará una Comisión Instructora del procedimiento, que tendrá como responsabilidad realizar la investigación e instrucción de los casos de acoso laboral que sean denunciados. Esta comisión estará integrada por tres miembros y sus respectivos suplentes, funcionarios o funcionarias de la Municipalidad de Escazú. Su nombramiento será por un plazo de tres años renovables y la Administración le brindará la capacitación y el apoyo necesario para la ejecución de las labores encomendadas.

@@ -1,0 +1,1 @@
+Artículo 20.—Sanciones disciplinarias. Las sanciones disciplinarias por acoso laboral comprobado, se aplicarán según la gravedad del hecho y la condición jerárquica de la persona denunciada, en concordancia con lo dispuesto en el Reglamento Autónomo de Servicios de la Municipalidad de Escazú y el artículo 149 del Código Municipal.

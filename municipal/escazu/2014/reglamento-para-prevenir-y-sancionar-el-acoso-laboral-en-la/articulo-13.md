@@ -1,0 +1,1 @@
+Artículo 13.—Confidencialidad. La Comisión Instructora deberá guardar total confidencialidad en el trámite de la instrucción del procedimiento. Cualquier infidencia de quienes integren la comisión, se considerará falta grave de conformidad con lo dispuesto en el Reglamento Autónomo de Servicios de la Municipalidad de Escazú.
