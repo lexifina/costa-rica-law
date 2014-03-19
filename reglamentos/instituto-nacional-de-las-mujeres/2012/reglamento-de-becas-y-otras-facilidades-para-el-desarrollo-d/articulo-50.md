@@ -1,5 +1,6 @@
 Artículo 50.—Obligaciones beca de formación y licencias con goce de salario para estudios formales: Toda persona que obtenga una beca de formación, independientemente de su duración y su costo deberá cumplir con las siguientes obligaciones:
-a) Suscribir el contrato respectivo.
+a) Suscribir el contrato respectivo, salvo lo establecido en el artículo 29 de este Reglamento.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 11-2014 del 19 de marzo del 2014)
 b) Rendir a la CCAD un informe por escrito sobre su participación, acompañado del respectivo certificado de conclusión de estudios, dentro de un mes hábil siguiente a la finalización de la beca o facilidad.
 c) Presentar al Área de Recursos Humanos las calificaciones finales o los certificados que muestren su desempeño durante los estudios de formación, en un plazo máximo de un mes calendario, una vez finalizado el periodo lectivo correspondiente. Cuando la formación incluya como requisito de graduación la elaboración de un trabajo final, la persona beneficiaria de la beca deberá entregar una copia de dicho trabajo a la Unidad de Documentación del INAMU.
 d) En caso de reprobar una materia, deberá presentarla y aprobarla en el período siguiente inmediato y cancelarla de su propio peculio. Se rescindirá el contrato si fuere reprobado en dos o más asignaturas, excepto en casos de fuerza mayor, que serán valorados por Recursos Humanos y elevados a la CCAD.

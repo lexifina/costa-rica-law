@@ -15,4 +15,6 @@ Miles de colones Tiempo contraprestación (Nº de meses)
 b) El tiempo de retribución será consignado en el correspondiente contrato y rige a partir de la presentación del certificado o título ante la Comisión de Capacitación y Desarrollo del Recurso Humanos del INAMU.
 c) La persona beneficiaria de procesos de formación deberá prestar sus servicios al INAMU, una vez completada la formación, de la siguiente manera:
 Por participar en los programas de formación, la persona becaria estará obligada, una vez concluida ésta, a trabajar para el INAMU a tiempo completo o su equivalente en tiempos parciales, el doble del tiempo de duración del programa de estudios, contado a partir del momento en que presente el título académico ante la Comisión de Capacitación y Desarrollo del Recurso Humano del INAMU, pero ese tiempo no excederá de cinco años en ambos casos.
-Si renunciara o fuese despedido o despedida sin responsabilidad patronal, deberá cancelar al INAMU el monto proporcional al tiempo no retribuido de la beca otorgada.
+Si renunciara o fuese despedido o despedida sin responsabilidad patronal, deberá cancelar al INAMU el monto proporcional al tiempo no retribuido de la beca otorgada
+Para los casos de capacitación obligatoria, no se pedirá período de contraprestación..
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 11 del 19 de marzo del 2014)
