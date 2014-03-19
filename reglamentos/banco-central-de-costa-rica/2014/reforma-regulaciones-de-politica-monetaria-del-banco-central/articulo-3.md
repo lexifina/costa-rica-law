@@ -1,0 +1,1 @@
+3. Reconocer intereses en forma retroactiva sobre los depósitos mantenidos en ‘cuentas especiales’ al amparo de lo dispuesto en el artículo 62 bis de la Ley 7558, constituidos previo a la entrada en vigencia de la presente disposición. Para ello se aplicarán los términos indicados en este acuerdo.
