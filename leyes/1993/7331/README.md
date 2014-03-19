@@ -1,6 +1,6 @@
 # Ley de Tránsito por Vías Públicas Terrestres
 
-Ley N° 7331 del 1993-04-13. SINALEVI, ficha 20421: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=20421&param2=93481&param3=1>.
+Ley N° 7331 del 1993-04-13. SINALEVI, ficha 20421: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=20421&param2=99802&param3=1>.
 
 Publicada en La Gaceta N° 76 del 1993-04-22.
 
@@ -45,3 +45,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 38 de 41 | 2013-03-01 | SINALEVI | 2013-03-01 |
 | 39 de 41 | 2013-03-20 | Sala Constitucional, resolución 03741 (2013-03-20) | 2013-03-20 |
 | 40 de 41 | 2013-04-10 | Sala Constitucional, resolución 04612 (2013-04-10) | 2013-04-10 |
+| 41 de 41 | 2014-03-19 | SINALEVI | 2014-03-19 |
