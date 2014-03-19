@@ -1,0 +1,3 @@
+Artículo 11.- Requisitos para el Arreglo de Pago.
+El interesado, sea persona física o jurídica, deberá presentar original de la personería jurídica con no más de un mes de emitida y copia de la cédula respectiva y la propuesta de pago dirigida a la Gerencia General. Para deudas iguales ó superiores a los ¢200.000,00, se deberá firma r la garantía a través de un título ejecutivo que al efecto confeccione Asesoría Legal basada en los cálculos que emita la Unidad de Contabilidad. Dicho documento consignar á, la renuncia de domicilio del deudor, requerimientos de pago y trámite del Proceso Ejecutivo.
+La Unidad de Tesorería custodiará dichos títulos ejecutivos.
