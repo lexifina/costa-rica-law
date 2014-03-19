@@ -20,3 +20,4 @@ Reglamento de Evaluación de los Aprendizajes
 | 5 | 2013-08-19 | Decreto Ejecutivo 37973 (2013-08-19) |
 | 6 | 2014-01-14 | Decreto Ejecutivo 38155 (2014-01-14) |
 | 7 | 2014-02-11 | Decreto Ejecutivo 38273 (2014-02-11) |
+| 8 | 2014-03-19 | Decreto Ejecutivo 38306 (2014-03-19) |
