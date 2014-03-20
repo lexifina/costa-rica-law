@@ -14,3 +14,4 @@ Procedimiento metodológico correspondiente al modelo y estructura de costos de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-05 | la propia norma |
+| 2 | 2014-03-20 | Resolución 27 (2014-03-20) |
