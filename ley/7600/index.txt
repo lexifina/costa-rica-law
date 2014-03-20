@@ -43,6 +43,7 @@ articulo-42.md
 articulo-43.md
 articulo-44.md
 articulo-45.md
+articulo-45-bis.md
 articulo-46.md
 articulo-46-bis.md
 articulo-47.md
