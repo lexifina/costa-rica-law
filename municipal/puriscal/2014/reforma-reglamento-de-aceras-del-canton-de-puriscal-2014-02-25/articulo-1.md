@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE PURISCAL
+El Concejo de la Municipalidad de Puriscal, acordó en sesión ordinaria N° 330, del 25 de febrero del 2014, acuerdo 019-330- 2014, aprobar modificar el artículo 5 y artículo 13 del Reglamento de Aceras para el cantón de Puriscal, para que literalmente diga lo siguiente:
+Artículo 5°—Corresponde a la Unidad Técnica de Gestión Vial, atender, gestionar y dar seguimiento al presente Reglamento, así como a las quejas de los usuarios en relación a lo dispuesto en éste, para lo cual deberá coordinar con las dependencias municipales correspondientes.
+Artículo 13.—Especificaciones para la construcción de aceras. En cualquier caso. Previo a la construcción de la obra, el interesado deberá consultar el diseño a la Municipalidad para su respectiva aprobación.
+a-Materiales. En la reconstrucción o construcción de aceras se usará, material antiderrapante de concreto cepillado o adoquines de concreto. No se permite ningún otro tipo de acabado. Para las aceras ya existentes, que no contravengan las especificaciones del presente Reglamento, se permitirá su permanencia siempre que cumplan con la Ley 7600. Para todos los casos la municipalidad elaborará un croquis o diseño, el cual el munícipe deberá acatar. Cuando una acera vaya a ser reconstruida, reparada o ampliada, deberá hacerse siguiendo las especificaciones técnicas del presente Reglamento y la Ley 7600.
+Los demás incisos b, c, d y siguientes se mantienen incólumes. Rige a partir de su publicación.
+Puriscal, 5 de marzo de 2014.—
