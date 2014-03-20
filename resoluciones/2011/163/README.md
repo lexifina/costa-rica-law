@@ -14,3 +14,4 @@ Establece el Modelo para la Determinación de Tarifas de Referencia para Plantas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-21 | la propia norma |
+| 2 | 2014-03-20 | Resolución 27 (2014-03-20) |
