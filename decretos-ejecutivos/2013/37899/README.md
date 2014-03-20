@@ -14,3 +14,4 @@ Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-23 | la propia norma |
+| 2 | 2014-03-20 | Decreto Ejecutivo 38359 (2014-03-20) |
