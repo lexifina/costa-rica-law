@@ -1,4 +1,4 @@
-Artículo 8º—Funciones del Comité de Marca País. El Comité de Marca País tendrá siguientes las funciones:
+Artículo 8º—Funciones del Comité de Marca País. El Comité de Marca País tendrá las funciones que se indican a continuación:
 a) Aprobar la Marca País, en coordinación con el sector público y privado, así como las políticas y las estrategias de la Marca País a nivel nacional e internacional.
 b) Aprobar el plan de trabajo del Comité de Marca País, roles y responsabilidades concretas de cada entidad participante en la estrategia Imagen Marca País, de acuerdo a las competencias técnico legales y bajo principios de proporcionalidad y razonabilidad.
 c) Emitir los lineamientos de uso de la Marca País.
@@ -10,3 +10,5 @@ h) Autorizar nuevas Unidades Ejecutoras para el otorgamiento de licencias.
 El Comité de Marca País, mediante acuerdo, podrá invitar y convocar a sus sesiones a representantes de otras entidades, instituciones u organizaciones públicas o privadas, cuya actividad tenga relación con las materias de su competencia y cuando su participación sea oportuna para analizar aspectos específicos.
 Para el cumplimiento de sus objetivos, el Comité de Marca País podrá conformar comisiones o grupos de trabajo ad hoc que analicen y desarrollen temas específicos, pudiendo integrar en éstas a especialistas del sector público o privado, de acuerdo con el tema o materia a tratar.
 Los miembros del Comité de Marca País no gozarán de dietas ni remuneraciones por concepto de su participación en el mismo.
+Los miembros del Comité podrán utilizar la Marca País, siempre y cuando designen formalmente a un funcionario responsable de velar porque el uso de la marca se dé en estricto apego a los fines, valores y las especificaciones definidas por el Comité para Marca País Costa Rica. Dicha designación será comunicada por el miembro respectivo al pleno del Comité.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 38356 del 20 de marzo del 2014)

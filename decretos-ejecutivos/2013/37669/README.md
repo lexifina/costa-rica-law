@@ -14,3 +14,4 @@ Reglamento para la implementación y uso de la Marca País Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-14 | la propia norma |
+| 2 | 2014-03-20 | Decreto Ejecutivo 38356 (2014-03-20) |

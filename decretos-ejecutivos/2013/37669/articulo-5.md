@@ -9,3 +9,5 @@ Artículo 5º—Definiciones. Para los efectos del presente Reglamento, se entie
 • Marca País: Es la Marca País Costa Rica que se constituye en un instrumento estratégico y para la competitividad, mediante la cual se identifica al país, se sella la reputación, se sinergiza la promoción y se genera un posicionamiento diferenciador ante las audiencias externas e internas que favorecen el desarrollo de los sectores de exportación, inversiones y turismo.
 • Unidades Ejecutoras: Entidades encargadas de realizar las acciones de inscripción y de licenciamiento de la Marca País.
 • Unidad Técnica de Apoyo: Órgano de índole técnica que apoya las labores del Comité de Marca País e integrado por un funcionario de cada una de las entidades que lo conforman.
+• Uso en eventos: Es el uso de la Marca País Costa Rica en eventos o actividades que son organizados, avalados o promovidos por una entidad del sector público o privado y que se caracterizan por ajustarse a los valores y objetivos de la Marca País.
+(Así adicionado el punto anterior por el artículo 2° del decreto ejecutivo N° 38356 del 20 de marzo del 2014)
