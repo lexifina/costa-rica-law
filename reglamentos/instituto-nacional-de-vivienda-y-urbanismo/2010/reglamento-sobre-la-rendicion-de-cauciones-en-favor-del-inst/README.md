@@ -14,3 +14,4 @@ Reglamento sobre la Rendición de Cauciones en favor del Instituto Nacional de V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-15 | la propia norma |
+| 2 | 2014-03-20 | Reglamento 6036 (2014-03-20) |

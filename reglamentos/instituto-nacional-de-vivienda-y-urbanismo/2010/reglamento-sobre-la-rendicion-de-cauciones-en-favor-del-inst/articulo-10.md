@@ -1,1 +1,1 @@
-Artículo 10.—Cálculo de la caución en el nivel B. Quienes desempeñen puestos contemplados dentro de los incisos b), c), d), e), f) y g) del artículo 13 del presente Reglamento, deberán rendir una caución equivalente a ocho salarios base.
+Artículo 10.—Simultaneidad de funciones sujetas a caución. Al funcionario que estando obligado a caucionar, se le asigne una función que genere ese mismo deber, caucionará una sola vez y por el monto mayor.

@@ -1,3 +1,4 @@
-Artículo 4º—Deber de solventar la caución. A tenor de lo establecido en el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos, es deber del caucionante gestionar y sufragar de su propio peculio el costo de la garantía a favor del INVU.
-Los montos de las cauciones que regula este Reglamento son mínimos, de manera que cada obligado puede voluntariamente incrementarlos a su discreción.
-Cuando las condiciones de los mercados de seguros y otras garantías establezcan solo productos que obligan al caucionante a ajustar el monto de su garantía a sumas superiores, será su obligación adaptarse a esas condiciones.
+Artículo 4º—Forma de rendir la caución. El monto a caucionar en favor del INVU se hará mediante:
+- La suscripción de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros, o ante cualquier otra entidad o empresa aseguradora autorizada para operar en el país,
+- El depósito de dinero en efectivo en la cuenta corriente del Instituto en el Banco Nacional de Costa Rica en la moneda de curso legal en el país o su equivalente en moneda extranjera. No se reconocerán intereses sobre las garantías depositadas en efectivo en las cuentas del Instituto, o
+- El certificado de depósito a plazo, materializado o desmaterializado, sin cupón de intereses, emitido por entidad bancaria fiscalizada por la SUGEF y radicada en el país, endosado a favor del Instituto y dicho certificado debe cubrir el período de vigencia de la caución.

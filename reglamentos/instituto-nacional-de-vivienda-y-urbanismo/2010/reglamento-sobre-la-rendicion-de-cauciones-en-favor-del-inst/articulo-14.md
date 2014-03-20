@@ -1,4 +1,1 @@
-Artículo 14.—Revisión del listado de funcionarios obligados a caucionar. Una vez al año el Proceso de Recursos Humanos revisará el listado de funcionarios obligados a caucionar. Para ello deberá de considerar, entre otros aspectos:
-a) La existencia en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
-b) La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada por la Administración.
-c) El nivel de la responsabilidad, el monto administrado y el salario correspondiente al caucionante.
+Artículo 14.—Cálculo de la caución en el nivel C. Quienes desempeñen puestos contemplados dentro de los incisos h), i), j), y k) del artículo 9 del presente Reglamento, deberán rendir una caución equivalente a seis salarios base.

@@ -1,0 +1,1 @@
+Transitorio III.—Este Reglamento deroga cualquier otra disposición vigente a la fecha de su publicación sobre materia de cauciones en el INVU. Se instruye al Proceso de Proveeduría para que proceda con la publicación respectiva.
