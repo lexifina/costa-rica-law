@@ -1,2 +1,0 @@
-Artículo 19.—Condiciones para efectuar cobro judicial. La Gerencia General Corporativa, de acuerdo con las necesidades institucionales, determinará mediante estudio o criterio técnico, los montos mínimos y los plazos máximos de morosidad en que las operaciones de crédito deberán ser tramitadas por medio del cobro judicial, no pudiendo superar este plazo los 120 días.
-(Así reformado en sesión N° 4765 del 17 de junio de 2010)

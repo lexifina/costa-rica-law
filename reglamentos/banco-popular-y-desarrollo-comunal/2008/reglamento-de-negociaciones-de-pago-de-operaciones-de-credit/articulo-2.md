@@ -1,2 +1,0 @@
-Artículo 2º—Objetivo. Este Reglamento tiene como objetivo establecer alternativas de recuperación total o parcial de aquellas operaciones de crédito que hayan sido otorgadas por el Banco y que presenten o que vayan a presentar algún grado de morosidad. La potestad de establecer Negociaciones de Pago será totalmente del Banco Popular.
-El presente Reglamento rige para todo tipo de crédito otorgado al amparo del Reglamento General de Crédito.

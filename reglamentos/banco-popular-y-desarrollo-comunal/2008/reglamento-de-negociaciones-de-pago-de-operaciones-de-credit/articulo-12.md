@@ -1,3 +1,0 @@
-Artículo 12.—Financiamiento por medio de un nuevo crédito. Se podrá otorgar financiamiento por medio de un nuevo crédito para cancelar una operación morosa o en Cobro Judicial. Las condiciones para el nuevo crédito estarán amparadas al Reglamento General de Crédito y sus políticas.
-En el caso de que la operación objeto del financiamiento se encontrare en cobro judicial con demanda planteada y mientras no se formalice el nuevo crédito, no se dará por terminado o suspendido el trámite de cobro.
-Para el caso de nuevas operaciones crediticias, necesariamente se deberá evaluar el nivel de riesgo del deudor al amparo de lo dispuesto por la SUGEF 1-05.

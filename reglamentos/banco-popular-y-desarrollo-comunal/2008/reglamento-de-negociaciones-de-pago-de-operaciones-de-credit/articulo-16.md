@@ -1,2 +1,0 @@
-Artículo 16.—Operaciones en Cobro Judicial con sentencia. Las operaciones que se encuentren en cobro judicial y que tengan sentencia, a criterio razonado y en los términos de este Reglamento, podrán realizar arreglos de pago. En caso de que no se llegue a ninguna negociación y el obligado pretenda cancelar la operación, el Banco podrá cobrar el saldo de capital, un año de intereses como mínimo, costas personales, costas procesales y otros gastos.
-De cancelarse los extremos indicados se dará por terminado el cobro judicial.
