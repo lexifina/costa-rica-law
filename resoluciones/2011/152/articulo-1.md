@@ -332,10 +332,14 @@ VI. En sesión extraordinaria 050-2011, del 8 de agosto del 2011, cuya acta fue 
 LA JUNTA DIRECTIVA DE LA AUTORIDAD REGULADORA
 DE LOS SERVICIOS PÚBLICOS; RESUELVE:
 I.—Establecer la siguiente: “Metodología tarifaria de referencia para plantas de generación privada hidroeléctricas nuevas”,
-Generalidades
-El modelo que se presenta tiene como objetivo determinar las tarifas de referencia para plantas nuevas de generación privada hidroeléctricas para la venta al ICE.
+Generalidades (Eliminada esta sección mediante reolución N° RJD-027-2014 del 20 de marzo del 2014)
 Objetivo
 El objetivo último del modelo tarifario de referencia definido en este informe consiste en brindar los incentivos tarifarios necesarios, para que, en el plazo más corto posible, el país aproveche los instrumentos definidos en el capítulo primero de la Ley Nº 7200, para sustituir la mayor proporción posible de energía generada con fuentes térmicas por energía generada con fuentes renovables. Al respecto, las estimaciones del ICE indican que puede contratar en la actualidad, a generadores privados de electricidad que produzcan con fuentes renovables, hasta un máximo de 183 MW.
+(*) Alcance
+El modelo que se presenta es aplicable a las fijaciones tarifarias de las ventas de energía al ICE por parte de generadores privados que produzcan con plantas hidroeléctricas nuevas, en el marco de lo que establece el Capítulo 1 de la Ley 7200, para aquellas compraventas de energía eléctrica provenientes de plantas hidroeléctricas privadas nuevas con condiciones similares a las que establece la Ley 7200, que sean jurídicamente factibles y que deban ser reguladas por ARESEP, y para aquellas compraventas de energía proveniente de plantas nuevas que produzcan con fuentes no convencionales para las cuales no exista aún una metodologías tarifaria específica aprobada por la Autoridad Reguladora.
+La banda tarifaria aplicable a la generación privada con fuentes no convencionales de energía para las que no existe una metodología específica, es la banda tarifaria que se estime mediante ésta metodología, sin considerar estructura estacional.
+Se entiende por planta nueva, aquella cuya inversión en capital físico no ha sido utilizada aún en ningún proceso de producción de electricidad. En consecuencia, las plantas nuevas por definición no podrían haber generado energía que fuera vendida en el marco de algún contrato de compraventa de electricidad o para fines de autoconsumo.
+(*)(Así adicionado el punto denominado "alcance" mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 Formulación general del modelo
 Para lograr el objetivo mencionado, se ha definido un modelo tarifario que estimula la inversión privada asociada con plantas de generación hidroeléctrica con potencias iguales o menores que 20 MW, capaces de operar dentro de un rango aceptable de costos y de eficiencia operativa. Para ello, se establece una banda tarifaria que permite al ICE ofrecer precios de compra de electricidad con los cuales el oferente pueda obtener los ingresos suficientes para cubrir sus costos de operación, recuperar la inversión realizada, y obtener una rentabilidad razonable para el nivel de riesgo asociado con la actividad de generación de electricidad.
 Las tarifas por KWh estimadas mediante el modelo propuesto incluyen los costos de operación y mantenimiento, los costos financieros y la rentabilidad neta del inversionista.
@@ -379,7 +383,8 @@ El costo de explotación incluye los costos necesarios para mantener y operar un
 Entre los costos de explotación se contemplan tanto los costos variables de operación (aquellos gastos que se presentan exclusivamente cuando se lleva a cabo el proceso productivo tales como impuestos asociados a la producción, repuestos y otros materiales consumibles durante el proceso productivo), como los costos fijos (aquellos gastos inevitables e independientes de si la planta opera o no, tales como pólizas de seguro, permisos, personal permanente, asesorías técnicas, gastos administrativos, etcétera). Es importante señalar que corresponden a gastos que impliquen erogaciones de efectivo, y por tanto, no debe incluirse la depreciación.
 El método de cálculo fue el siguiente:
 a) Se toman los datos de costos de explotación de una muestra de plantas hidroeléctricas que operan en el país, de diferentes capacidades instaladas.
-b) Se hace un ejercicio de regresión exponencial para estimar la curva que mejor aproxima la función que relaciona capacidad instalada y costo de explotación.
+b) Se hace un ejercicio de regresión para estimar la curva que mejor aproxima la función que relaciona capacidad instalada y costo de explotación.
+(Así reformado el inciso b) anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 c) Se utiliza el valor de la función mencionada, correspondiente a una planta de 10 MW, que es el valor medio del rango permitido por el Capítulo 1 de la Ley Nº 7200.
 d) En cada fijación tarifaria se incorporan los nuevos datos de costo de explotación que se haya podido obtener, que correspondan a plantas hidroeléctricas que operen en el país.
 El cálculo del valor del costo de explotación con los datos disponibles en el momento en que se redactó este informe, se presenta en el Anexo 1. Este valor se actualizará en cada fijación tarifaria.
@@ -425,38 +430,43 @@ El valor de apalancamiento financiero se utiliza para estimar la relación entre
 Para realizar el cálculo se utilizará un promedio de la información de financiamiento de proyectos eléctricos disponible en la Autoridad Reguladora.
 Este valor se actualizará en cada fijación tarifaria.
 Rentabilidad sobre aportes al capital (ρ)
-El cálculo de la rentabilidad sobre los aportes se determina mediante el método denominado Modelo de Valoración de Activos de Capital, conocido comúnmente como CAPM (en inglés, “Capital Asset Pricing Model”).
+El cálculo de la rentabilidad sobre los aportes al capital se determina mediante el método denominado Modelo de Valoración de Activos de Capital, conocido comúnmente como CAPM (en inglés, “Capital Asset Pricing Model”).
 El método CAPM se basa en considerar que los cambios en el retorno de un activo, están relacionados con el riesgo asociado a éste y puede ser separado en dos grandes componentes: el riesgo relacionado con el mercado en su conjunto (riesgo sistémico) y el derivado de las inversiones específicas (riesgo específico).
 El CAPM determina el costo del capital propio promedio para cada industria, según la siguiente fórmula:
-ρ = KL + βa * PR + RP
-Donde:
-ρ: Rentabilidad sobre los aportes de capital
-propio.
-PR: Prima por riesgo. Se define como la diferencia entre la tasa libre de riesgo y la tasa de rendimiento del mercado. La tasa libre de riesgo (Kl) es la que corresponde a una alternativa de inversión que no tiene riesgo para el inversionista. La tasa de rendimiento de mercado es la que corresponde al sector de actividad respectivo.
-RP: Riesgo país. Es el riesgo de una inversión económica debido sólo a factores específicos y comunes de un cierto país.
-βa : Beta apalancada de la inversión. Es la covarianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina “apalancada” cuando parte de la inversión se financia con deuda.
+ρ = KL + βa * PR + RP Donde:
+ρ = Rentabilidad sobre los aportes de capital propio.
+KL= Tasa libre de riesgo, la cual corresponde a una alternativa de inversión que no tiene riesgo para el inversionista.
+PR = Prima por riesgo. Se define como la diferencia entre la tasa libre de riesgo y la tasa de rendimiento del mercado.
+RP = Riesgo país. Es el riesgo de una inversión económica debido sólo a factores específicos y comunes de un cierto país.
+βa = Beta apalancada de la inversión. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina “apalancada” cuando parte de la inversión se financia con deuda.
 El beta apalancado se obtiene de la siguiente fórmula:
-βa = βd * (1 + (1-t)* D/Kp)
-Donde:
-βa = Beta apalancada
-βd = Beta desapalancada
-D/Kp = relación entre deuda y capital propio
-(estimada por medio del apalancamiento
-financiero).
-t = Tasa de impuesto sobre la renta
-Los parámetros que se requiere calcular para aplicar el método CAPM son los siguientes: rentabilidad sobre los aportes de capital propio, beta desapalancada, prima por riesgo, riesgo país, relación entre deuda y capital propio y tasa de impuesto sobre la renta. A continuación se define cada uno de ellos.
-a. Prima por riesgo (PR) La prima por riesgo se obtendrá de la información publicada por el Dr. Aswath Damodaran, profesor de la Universidad de Nueva York (EUA), en la siguiente dirección de Internet: http://www.stern.nyu.edu/~adamodar/pc/implprem/ERPbymonth.xls. Se utilizará el promedio aritmético de los valores disponibles dentro de los últimos doce meses para los que se cuente información, en el momento en que se calcule la fijación tarifaria. Si esta fuente dejara de estar disponible, se recurrirá a otra que sea pública y confiable.
-b. Beta desapalancada. El valor de la beta desapalancada (βd) se obtendrá de la información publicada por el Dr. Aswath Damodaran, profesor de la Universidad de Nueva York (EUA), en la dirección de internet citada en el punto anterior. Se utilizará el promedio aritmético de los valores disponibles dentro de los últimos doce meses para los que se cuente información, en el momento en que se calcule la fijación tarifaria. Si esta fuente dejara de estar disponible, se recurrirá a otra que sea pública y confiable.
-c. Riesgo país. El riesgo país también se obtendrá de la información publicada por el Dr. Aswath Damodaran, en la dirección de internet citada en el punto anterior. Se utilizará el promedio aritmético de los valores disponibles dentro de los últimos doce meses para los que se cuente información, en el momento en que se calcule la fijación tarifaria. Si esta fuente dejara de estar disponible, se recurrirá a otra que sea pública y confiable.
-d. Tasa de interés (i). Se utilizará el promedio mensual de los valores de los últimos sesenta meses de la tasa publicada por el Banco Central de Costa Rica para préstamos al sector industrial en dólares, de los bancos privados.
-e. Vida económica del proyecto (v). Para los efectos de este modelo, la vida económica del proyecto es de 20 años, lapso igual al del contrato considerado en el modelo para definir la tarifa. Se está suponiendo que esa vida económica es la mitad de la vida útil del proyecto, estimada en 40 años.
-f. Plazo de la deuda (d) y plazo del contrato. El plazo de la deuda es de 20 años. Se le ha asignado esa duración, para que sea igual al plazo máximo del contrato de compra-venta de energía.
-La duración del contrato de compra-venta de energía utilizada en el modelo para el cálculo de las tarifas es de 20 años, que es el máximo permitido por la ley. Si el ICE contratara la compra de energía por un lapso menor que 20 años, el inversionista estaría asumiendo el riesgo de no ser contratado posteriormente. Ese riesgo se reduce, en la medida en que se avance en los procesos de apertura del mercado eléctrico nacional y de creación del mercado eléctrico regional.
-g. Tasa de impuesto sobre la renta (t). La tasa de impuesto sobre la renta se define con base en la legislación vigente.
-h. Edad de la planta (e). Dado que se trata de plantas nuevas, a esa variable se le asigna el valor de cero.
-Monto de la inversión unitaria (M). El costo de inversión representa los costos totales necesarios para construir una planta de generación en condiciones normales para nuestro país.
-El cálculo de este valor se efectuará a partir de los datos sobre costos de inversión de plantas hidroeléctricas con capacidades instaladas iguales o menores que 20MW, provenientes de tres fuentes de información:
-a) Del documento titulado “Plan Indicativo Regional de Expansión de la Generación. Período 2011-2025. Diciembre 2010”, publicado por el Consejo de Electrificación de América Central-Grupo de Trabajo de Planificación Indicativa Regional (GTPIR), la tabla “Candidatos hidro en el OPTGEN. Costos de inversión capitalizados y actualizados a enero 2010”.
+βa = βd * (1 + (1-t)* D/Kp) Donde:
+βa = Beta apalancada.
+βd = Beta desapalancada.
+D/Kp= Relación entre deuda y capital propio (estimada por medio del apalancamiento financiero) t = Tasa de impuesto sobre la renta.
+Los parámetros que se requiere calcular para estimar la rentabilidad sobre aportes al capital son los siguientes: tasa libre de riesgo, prima por riesgo, riesgo país, beta desapalancada, relación entre deuda y capital propio, y tasa de impuesto sobre la renta. La fuente de cada uno de ellos es la siguiente:
+Tasa libre de riesgo (KL): Es la tasa nominal (TCMNOM) de los Bonos del Tesoro de los Estados Unidos de América (USA). Se utilizará la tasa con el mismo período de maduración al que se calcula la prima por riesgo, la cual está disponible en la página de internet de la Reserva Federal de los Estados Unidos, en la dirección de internet: http://www.federalreserve.gov/datadownload/Build.aspx?rel=H15.
+Prima por riesgo (PR) se empleará la variable denominada “Implied Premium (FCFE)”. Riesgo país (RP) se considera el valor publicado para Costa Rica, de los datos denominados Risk Premiums for the other markets y donde el riesgo país se denomina Country Risk premium ). Los valores de esta variable y el Beta desapalancado se obtendrán de la información publicada por el Dr. Aswath Damodaran, en la dirección de Internet http://www.stern.nyu.edu/~adamodar o, alternativamente, del “Ibbotson® Cost of Capital Yearbook”. Si alguna de estas fuentes dejara de estar disponible, se recurrirá a otra que sea pública y confiable.
+3. La fuente de información elegida para las variables descritas en los puntos 1 y 2, será utilizada de manera consistente, en cuanto a extensión de la serie histórica (5 años), la frecuencia de las observaciones (una observación por año, correspondiente al promedio publicado) y el cálculo del promedio (promedio aritmético de las 5 observaciones correspondientes a los 5 años más recientes para los que se disponga de información). En el caso de que, para alguna(s) de las variables citadas, no sea posible para ARESEP contar con una serie histórica reciente que complete 5 observaciones anuales, se utilizará la serie histórica menor a 5 años pero que sea igual para todas las variables.
+4. Relación entre deuda y capital propio (D/Kp): Se estima con la fórmula D/Kp = Y/(1-Y), donde Y es el apalancamiento financiero. Para este cálculo se utilizará un promedio ponderado por capacidad instalada de la información más reciente referente al nivel de financiamiento de cada tipo de planta privada de generación eléctrica que esté disponible en la Autoridad Reguladora.
+5. Tasa de impuesto sobre la renta: Es la tasa impositiva para personas jurídicas con fines de lucro, correspondiente al último tracto de impuestos sobre la renta –la tasa marginal mayor-, establecida y actualizada vía decreto por el Ministerio de Hacienda.
+6. Otras variables
+Tasa de interés (i)
+Se utilizará el promedio mensual de los valores de los últimos sesenta meses de la tasa publicada por el Banco Central de Costa Rica para préstamos al sector industrial en dólares, de los bancos privados.
+Vida económica del proyecto (v)
+Para los efectos de este modelo, la vida económica del proyecto es de 20 años, lapso igual al del contrato considerado en el modelo para definir la tarifa. Se está suponiendo que esa vida económica es la mitad de la vida útil del proyecto, estimada en 40 años.
+Plazo de la deuda (d) y plazo del contrato
+El plazo de la deuda es de 20 años. Se le ha asignado esa duración, para que sea igual al plazo máximo del contrato de compra-venta de energía. La duración del contrato de compra-venta de energía utilizada en el modelo para el cálculo de las tarifas es de 20 años, que es el máximo permitido por la ley. Si el ICE contratara la compra de energía por un lapso menor que 20 años, el inversionista estaría asumiendo el riesgo de no ser contratado posteriormente. Ese riesgo se reduce, en la medida en que se avance en los procesos de apertura del mercado eléctrico nacional y de creación del mercado eléctrico regional.
+Edad de la planta (e)
+Dado que se trata de plantas nuevas, a esa variable se le asigna el valor de cero.
+(Así reformado el aparte "Rentabilidad sobre aportes al capital (p)) anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
+Monto de la inversión unitaria (M).
+El costo de inversión representa los costos totales necesarios para construir una planta de generación en condiciones normales para nuestro país.
+(Así reformado el párrafo anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
+El cálculo de este valor se efectuará a partir de los datos sobre costos de inversión de plantas hidroeléctricas con capacidades instaladas iguales o menores que 20MW, de los cuales se excluirán los valores extremos, provenientes de tres fuentes de información:
+(Así reformado el párrafo anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
+a) La versión más reciente del Plan Indicativo Regional de Expansión de la Generación, publicado por el Consejo de Electrificación de América Central-Grupo de Trabajo de Planificación Indicativa Regional (GTPIR) .
+(Así reformado el inciso anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 b) Los informes realizados por la Autoridad Reguladora sobre fijaciones de precios de venta de energía al ICE proveniente de plantas hidroeléctricas privadas, en el marco de la Ley Nº 7200.
 c) Información auditada sobre costos de inversión de nuevas plantas hidroeléctricas que en el futuro vendan energía al ICE, en el marco de la Ley Nº 7200.
 d) En caso de que la fuente de información presente los datos con los intereses del período de construcción capitalizados, dicho costo se considerará ya incluido.
@@ -466,6 +476,9 @@ a) Se conformarán cinco grupos de plantas, cada uno de los cuales corresponde a
 b) Se obtiene el costo de inversión promedio de las plantas incluidas en cada uno de los grupos mencionados anteriormente.
 c) Se obtiene el promedio de los valores promedio de cada uno de los grupos de plantas.
 En el cuadro 2.1 del Anexo 2 de este informe, se presenta el cálculo actual del costo de inversión promedio, con base en los criterios establecidos anteriormente. Este valor se actualizará en cada fijación tarifaria.
+(*) Actualización del monto de inversión en activos fijos
+La actualización del monto de inversión en activos fijos que conforman la base tarifaria, se realizará utilizando un índice de precios representativo, en caso de que los datos utilizados muestren una antigüedad superior al año. La selección del índice considerará los siguientes aspectos: que provenga de una fuente de acceso público, especializada en la generación de información técnica y con la información más reciente. La actualización del monto de inversión en activos fijos se realizará anualmente y se aplicará de manera consistente el mismo índice. En el evento de que se llegue a considerar necesario en el futuro modificar el índice a utilizar, se justificará la razón técnica que fundamente dicha decisión con base en la ciencia, técnica y lógica tal y como lo establece la Ley General de la Administración Pública.
+(*)(Así adicionado el párrafo anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 Definición de la banda tarifaria
 Se regulará el precio de venta de energía por parte de generadores privados al ICE, en el marco del capítulo I de la Ley Nº 7200, mediante una banda tarifaria.
 Las principales consideraciones que se toman en cuenta al establecer un esquema de banda tarifaria son las siguientes:
