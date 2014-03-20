@@ -269,6 +269,10 @@ Si dada la muestra se requiere actualizar el valor de alguna planta para hacerla
 En la base de datos se privilegiará los datos de plantas con capacidad instalada semejante a las plantas sobre la cual se calcula la tarifa, siempre que exista información confiable y verificable sobre ellas. En caso que no sea posible contar con información basada en este tamaño de planta, se podrá utilizar la información disponible, aunque no se refiera a plantas de igual tamaño.
 En esta serie de datos se contemplarán valores de plantas nacionales e internacionales. Se utilizará la información de plantas internacionales, siempre y cuando ésta sea de fuentes confiables, verificables y especialmente comparables con las condiciones existentes en el mercado nacional. En el caso de la información nacional se tomará de la base de datos de la Autoridad Reguladora, o datos avalados por esta.
 En la información disponible se harán los ajustes que técnicamente se determinen para hacer que ésta sea comparable, en aspectos tales como la consideración de impuestos, tamaño de planta, ajustes por tipo de cambio e inflación y los aspectos particulares de la economía costarricense y de su sector eléctrico.
+(*) Actualización del monto de inversión en activos fijos
+La actualización del monto de inversión en activos fijos que conforman la base tarifaria, se realizará utilizando un índice de precios representativo, en caso de que los datos utilizados muestren una antigüedad superior al año. La selección del índice considerará los siguientes aspectos: que provenga de una fuente de acceso público, especializada en la generación de información técnica y con la información más reciente. La actualización del monto de inversión en activos fijos se realizará anualmente y se aplicará de manera consistente el mismo índice. En el evento de que se llegue a considerar necesario en el futuro modificar el índice a utilizar, se justificará la razón técnica que fundamente dicha decisión con base en la ciencia, técnica y lógica tal y como lo establece la Ley General de la Administración Pública.
+La exclusión de valores extremos se realizará por monto de inversión y estará bajo la responsabilidad y dirección de un profesional en estadística, lo cual deberá hacerlo justificado en la ciencia, técnica y lógica tal y como lo establece la Ley General de la Administración Pública
+(*)(Así adicionado el párrafo anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 3.3.3. Método de cálculo
 El costo de inversión es el promedio ponderado de de los valores de plantas nacionales e internacionales según la muestra utilizada. El costo de la inversión promedio ponderado se obtiene de la sumatoria del producto entre el peso relativo de inversión realizada por cada generador con relación a la inversión total de la muestra.
 I = ∑ (%peso relativoi * $Ii)
@@ -337,26 +341,30 @@ En este caso, Vo es la antigüedad promedio de las plantas, “%peso relativo”
 El peso relativo en cada cálculo anterior se obtiene de la relación entre la capacidad productiva o instalada de un generador o planta con relación a la capacidad productiva o instalada del total de la muestra o población.
 %peso relativoi = (capacidad de plantai / capacidad total de la muestra)*100
 Entiéndase por “i” la designación para cada planta dentro de la muestra utilizada.
-3.6. Rentabilidad (Ke)
-3.6.1. Concepto:
-La rentabilidad o costo de capital mide el nivel de utilidad o rentabilidad porcentual que el inversionista obtendría por su inversión remanente; medida a través de un modelo llamada comúnmente como CAPM (modelo de valoración de activos de capital).
-3.6.2. Metodología de cálculo
-El nivel de rentabilidad estará determinado por la aplicación del Modelo de Valoración de Activos de Capital, CAPM, según la siguiente fórmula:
-Ke = KL + βd * (KM - KL) + RP
+(*) 3.6. Rentabilidad (Ke)
+El cálculo de la rentabilidad sobre los aportes al capital se determina mediante el método denominado Modelo de Valoración de Activos de Capital, conocido comúnmente como CAPM (en inglés, “Capital Asset Pricing Model”).
+El método CAPM se basa en considerar que los cambios en el retorno de un activo, están relacionados con el riesgo asociado a éste y puede ser separado en dos grandes componentes: el riesgo relacionado con el mercado en su conjunto (riesgo sistémico) y el derivado de las inversiones específicas (riesgo específico).
+El CAPM determina el costo del capital propio promedio para cada industria, según la siguiente fórmula:
+Ke = KL + βa * PR + RP
 Donde:
-Ke: Costo de capital del inversionista.
-KL: Tasa libre de riesgo.
-βd: Beta desapalancada de la inversión como
-medida del riesgo sistemático.
-(KM - KL): Premio por riesgo.
-RP: Riesgo país.
-3.6.3. Fuentes de la información
-Las fuentes de los datos utilizados son las siguientes:
-La Tasa libre de riesgo (rl): se obtiene como un promedio de largo plazo (últimos 60 meses) de las tasas de los Bonos del Tesoro de los Estados Unidos de América (USA) a 20 años, según la fuente:
-htp://www.ustreas.gov/offices/domestic-finance/debt-management/ interest-rate/yield_historical.shtml.
-La prima de riesgo (rm - rl) se estima de acuerdo con la información suministrada por el consultor Martín Rossi, con base en información del Spread S & P 500. Se trata de un promedio (aritmético) de aproximadamente de 4 décadas para el mercado de los Estados Unidos de América. (“Ibbotson Associates” según Martín Rossi (1966-2006).
-El valor de la beta (β) se obtiene de los informes 499-DEN-2000 y 837-DEN-2000 de la ARESEP, en el cual se calculó este valor con base en un estudio de varias empresas eléctricas con base en información obtenida de Internet. La cual debe ser apalancada.
-El riesgo país está determinado por las calificaciones de bonos y los diferenciales apropiadas por defecto para los diferentes países según la página: http://pages.stern.nyu.edu/~adamodar/New_Home_Page/datafile/ctryprem.html
+Ke = Rentabilidad sobre los aportes de capital propio.
+KL = Tasa libre de riesgo, la cual corresponde a una alternativa de inversión que no tiene riesgo para el inversionista.
+PR = Prima por riesgo. Se define como la diferencia entre la tasa libre de riesgo y la tasa de rendimiento del mercado.
+RP = Riesgo país. Es el riesgo de una inversión económica debido sólo a factores específicos y comunes de un cierto país.
+βa = Beta apalancada de la inversión. Es la co-varianza de la rentabilidad de un activo
+determinado y la rentabilidad del mercado. Se denomina “apalancada” cuando parte de la inversión se financia con deuda.
+El beta apalancado se obtiene de la siguiente fórmula:
+βa = βd * (1 + (1-t)* D/Kp) Donde:
+βa = Beta apalancada.
+βd = Beta desapalancada.
+D/Kp = Relación entre deuda y capital propio (estimada por medio del apalancamiento financiero) t = Tasa de impuesto sobre la renta.
+Los parámetros que se requiere calcular para estimar la rentabilidad sobre aportes al capital son los siguientes: tasa libre de riesgo, prima por riesgo, riesgo país, beta desapalancada, relación entre deuda y capital propio, y tasa de impuesto sobre la renta. La fuente de cada uno de ellos es la siguiente:
+Tasa libre de riesgo (KL): Es la tasa nominal (TCMNOM) de los Bonos del Tesoro de los Estados Unidos de América (USA). Se utilizará la tasa con el mismo período de maduración al que se calcula la prima por riesgo, la cual está disponible en la página de internet de la Reserva Federal de los Estados Unidos, en la dirección de internet: http://www.federalreserve.gov/datadownload/Build.aspx?rel=H15.
+Prima por riesgo (PR) se empleará la variable denominada “Implied Premium (FCFE)”. Riesgo país (RP) se considera el valor publicado para Costa Rica, de los datos denominados Risk Premiums for the other markets y donde el riesgo país se denomina Country Risk premium ). Los valores de esta variable y el Beta desapalancado se obtendrán de la información publicada por el Dr. Aswath Damodaran, en la dirección de Internet http://www.stern.nyu.edu/~adamodar o, alternativamente, del “Ibbotson® Cost of Capital Yearbook”. Si alguna de estas fuentes dejara de estar disponible, se recurrirá a otra que sea pública y confiable.
+La fuente de información elegida para las variables descritas en los puntos 1 y 2, será utilizada de manera consistente, en cuanto a extensión de la serie histórica (5 años), la frecuencia de las observaciones (una observación por año, correspondiente al promedio publicado) y el cálculo del promedio (promedio aritmético de las 5 observaciones correspondientes a los 5 años más recientes para los que se disponga de información). En el caso de que, para alguna(s) de las variables citadas, no sea posible para ARESEP contar con una serie histórica reciente que complete 5 observaciones anuales, se utilizará la serie histórica menor a 5 años pero que sea igual para todas las variables.
+Relación entre deuda y capital propio (D/Kp): Se estima con la fórmula D/Kp = Y/(1-Y), donde Y es el apalancamiento financiero. Para este cálculo se utilizará un promedio ponderado por capacidad instalada de la información más reciente referente al nivel de financiamiento de cada tipo de planta privada de generación eléctrica que esté disponible en la Autoridad Reguladora.
+Tasa de impuesto sobre la renta: Es la tasa impositiva para personas jurídicas con fines de lucro, correspondiente al último tracto de impuestos sobre la renta –la tasa marginal mayor-, establecida y actualizada vía decreto por el Ministerio de Hacienda.”
+(*)(Así reformado el punto 3.6) anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 4. ESTRUCTURA TARIFARIA
 La estructura tarifaria que se aplique al nivel tarifario obtenido a partir del modelo propuesto, será la estructura vigente para la tarifa de compra de energía eléctrica del ICE a las empresas de generación privada amparadas a la Ley Nº 7200 (Capítulo I), según la última fijación realizada por la Autoridad Reguladora. De esa forma se dará una señal de precio de acuerdo con las necesidades del SEN; además de que esta tarifa será consistente con las del resto del sector.
 La estructura aplicable será la que considera sólo energía, de modo que solo el componente de energía de la estructura tarifaria vigente para la tarifa de venta de energía eléctrica sea tomado en cuenta en la estructura tarifaria.
@@ -367,22 +375,26 @@ Los respectivos pagos que genera la compra venta de energía amparada a los cont
 6.1. Periodicidad de los ajustes
 Después de la fijación inicial que se realizará de seguido a la aprobación de esta metodología, la actualización de las tarifas se realizará anualmente, iniciando el procedimiento a partir del primer día hábil del mes de octubre de todos los años, aplicándose las fórmulas y metodologías vigentes y revisando todos los cinco componentes del modelo, utilizando la información disponible y de acuerdo con los criterios señalados en las secciones anteriores.
 6.2. Criterios para los ajustes tarifarios
-Cada revisión tarifaria comprende la actualización de todos los componentes del modelo tarifario (I, Ca, Xu, ke y Fp), según la última información disponible y siguiendo las metodologías y fórmulas establecidas en las secciones 2 y 3.
-Si no es posible obtener información actualizada de las variables Ca o I, estas se podrán actualizar de acuerdo con los índices de precios al productor, local e internacional respectivamente, según la siguiente fórmula de ajuste:
+Actualización del monto del costo anual de explotación
+Si no es posible obtener información actualizada de la variable Ca esta se podrá actualizar de acuerdo con el índice de precios al productor local:
 Ca n = Ca n-1 * (IPPICRn/IPPICRn-1)
-I n = I n-1 * (IPPUSAn/IPPUSAn-1)
-En donde:
+Donde:
 Can = Costo anual de explotación actualizado.
 Can-1 = Costo anual de explotación del periodo anterior.
-In = Inversión actualizada.
-In-1 = Inversión del periodo anterior.
 IPPICRn = Índice de Precios al Productor Industrial de Costa Rica actual
 IPPICRn-1 = Índice de Precios al Productor Industrial de Costa Rica del periodo anterior.
-IPPUSAn = Índice de Precios al Productor de los Estados Unidos de América actual
-IPPUSAn-1 = Índice de Precios al Productor de los Estados Unidos de América del periodo anterior.
-Las fuentes oficiales de estos índices serán respectivamente:
-http://www.bccr.fi.cr
-http://www.bls.gov
+La fuente oficial de este índice es la siguiente: http://www.bccr.fi.cr
+Actualización del monto de inversión en activos fijos
+Si no es posible obtener información actualizada de la
+variable I esta se podrá actualizar de acuerdo con el índice de precios representativo:
+I n = I n-1 * (IPRn/IPRn-1)
+En donde:
+In = Inversión actualizada.
+In-1 = Inversión del periodo anterior.
+IPRn = Índice de Precios representativo actual
+IPRn-1= Índice de Precios representativo del periodo anterior.
+Para seleccionar el índice de precios representativo se utilizará el criterio indicado en la sección 3.3.2”
+(*)(Así reformado el punto 6.2) anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 6.3. Competencias del Regulador General y los Superintendentes
 La aplicación de esta metodología corresponderá al órgano que la Junta Directiva le haya asignado la competencia de fijar tarifas y precios.
 La aplicación anual de esta metodología se realizará mediante el procedimiento de fijación tarifaria ordinaria prevista en la Ley Nº 7593 y en su respectivo Reglamento; debiendo publicarse la respectiva convocatoria a audiencia pública, en la que se incluya al menos el valor de las cinco variables del modelo y su resultado final así como un resumen de las variaciones previstas en estas.
