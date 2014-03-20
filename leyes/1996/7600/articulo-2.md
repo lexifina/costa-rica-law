@@ -1,8 +1,11 @@
 ARTICULO 2.-
 Definiciones Se establecen las siguientes definiciones:
+Accesibilidad: son las medidas adoptadas, por las instituciones públicas y privadas, para asegurar que las personas con discapacidad tengan acceso, en igualdad de condiciones con los demás, al entorno físico, el transporte, la información y las comunicaciones, incluidos los sistemas y las tecnologías de la información y las comunicaciones y a otros servicios e instalaciones abiertos al público o de uso público. Estas medidas incluyen también la identificación y eliminación de dichas barreras.
+(Así adicionada la definición anterior por el artículo 2° de la ley N° 9207 del 25 de febrero del 2014)
 Igualdad de oportunidades: Principio que reconoce la importancia de las diversas necesidades del individuo, las cuales deben constituir la base de la planificación de la sociedad con el fin de asegurar el empleo de los recursos para garantizar que las personas disfruten de iguales oportunidades de acceso y participación en idénticas circunstancias.
 Equiparación de oportunidades: Proceso de ajuste del entorno, los servicios, las actividades, la información, la documentación así como las actitudes a las necesidades de las personas, en particular de las discapacitadas.
-Discapacidad: Cualquier deficiencia física, mental o sensorial que limite, sustancialmente, una o más de las actividades principales de un individuo.
+Discapacidad: condición que resulta de la interacción entre las personas con deficiencias físicas, mentales, intelectuales o sensoriales a largo plazo y las barreras debidas a la actitud y el entorno, que evitan su participación plena y efectiva en la sociedad, en igualdad de condiciones con las demás.
+(Así reformada la definición anterior por el artículo 1° de la ley N° 9207 del 25 de febrero del 2014)
 Organización de personas con discapacidad: Son aquellas organizaciones dirigidas por personas con discapacidad o por sus familiares cuyos fines y objetivos están dirigidos a la promoción y defensa de la igualdad de oportunidades.
 Ayuda técnica: Elemento requerido por una persona con discapacidad para mejorar su funcionalidad y garantizar su autonomía.
 Servicio de apoyo: Ayudas técnicas, equipo, recursos auxiliares, asistencia personal y servicios de educación especial requeridos por las personas con discapacidad para aumentar su grado de autonomía y garantizar oportunidades equiparables de acceso al desarrollo.
