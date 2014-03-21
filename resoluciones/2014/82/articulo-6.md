@@ -1,0 +1,1 @@
+6º—Este procedimiento será transitorio mientras se establece el procedimiento definitivo para el otorgamiento del Distintivo Ambiental Voluntario por el esfuerzo realizado en el sector agrícola, en la reducción del uso de Bromuro de Metilo, a través del Sistema Nacional de la Calidad.

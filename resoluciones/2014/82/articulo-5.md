@@ -1,0 +1,1 @@
+5º—El anterior procedimiento incluye los pasos generales a seguir sin detrimento de que el MINAE pueda actualizar y ajustar dicho procedimiento conforme a los avances que se requieran en el proceso de mejora continua.
