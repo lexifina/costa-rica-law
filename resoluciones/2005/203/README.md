@@ -70,3 +70,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 55 | 2013-06-11 | Resolución 168 (2013-06-11) |
 | 56 | 2013-07-18 | Resolución 188 (2013-07-18) |
 | 57 | 2013-12-12 | Resolución 375 (2013-12-12) |
+| 58 | 2014-03-21 | Resolución 61 (2014-03-21) |
