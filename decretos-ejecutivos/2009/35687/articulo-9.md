@@ -1,1 +1,0 @@
-Artículo 9º—Fiscalización del proceso de acreditación. El Ministerio de Trabajo y Seguridad Social en su condición de rector del Sector trabajo y por su natural relación con las organizaciones sociales, deberá fiscalizar todas las actuaciones de la Comisión de Acreditación.

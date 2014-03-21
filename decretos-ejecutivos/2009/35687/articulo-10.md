@@ -1,1 +1,0 @@
-Artículo 10.—Expediente Administrativo. La Comisión deberá llevar, por sector, un expediente completo, foliado y en estricto orden cronológico, en el que consten todas las actuaciones y documentación que sustenta cada proceso cuatrienal de la acreditación e integración de la Asamblea.

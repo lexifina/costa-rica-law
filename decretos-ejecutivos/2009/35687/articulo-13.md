@@ -1,1 +1,0 @@
-Artículo 13.—Plazo y condiciones para acreditación de afiliados. En el plazo indicado en el artículo anterior la Comisión recibirá la lista de los asociados y asociadas y afiliados o afiliadas a las organizaciones que conforman cada sector.
