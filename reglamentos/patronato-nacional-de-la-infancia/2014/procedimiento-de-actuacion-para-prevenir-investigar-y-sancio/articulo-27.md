@@ -1,0 +1,1 @@
+Artículo 27.—Mecanismos de Prevención: El Departamento de Recursos Humanos deberá establecer y desarrollar mecanismos de prevención de los conflictos laborales en general y de las conductas de acoso laboral y psicológico en particular, de manera permanente.

@@ -1,0 +1,1 @@
+Artículo 7º—Trámite de la denuncia: Recibida la denuncia la Presidencia Ejecutiva la remitirá para la instrucción del proceso al Órgano del Procedimiento Disciplinario en un plazo no mayor a tres días.

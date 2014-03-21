@@ -1,0 +1,1 @@
+Artículo 9º—Del Expediente: Se confeccionará un expediente administrativo al efecto, el cual contendrá toda la documentación relativa a la denuncia, la prueba recabada, las actas, las resoluciones pertinentes y sus constancias de notificación. Además deberá foliarse en numeración consecutiva y permanecerá bajo custodia del Órgano Director del Procedimiento Disciplinario.
