@@ -1,0 +1,1 @@
+IX.—Indicar a las empresas que deben identificar las pérdidas, tanto del sistema de generación como del sistema de distribución, separadas en: técnicas y no técnicas e incluir un plan para la reducción de las mismas en el corto plazo.
