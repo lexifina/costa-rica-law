@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-18 | la propia norma |
+| 2 | 2014-03-24 | Reglamento 384 (2014-03-24) |
