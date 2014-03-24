@@ -1,0 +1,1 @@
+II.—Disponer que los estados financieros trimestrales deben presentarse consolidados y segregados por actividad de suministro de electricidad y otros servicios no regulados, a más tardar el último día hábil del mes siguiente a cada trimestre.

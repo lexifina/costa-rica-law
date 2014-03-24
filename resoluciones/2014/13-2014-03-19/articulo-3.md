@@ -1,0 +1,1 @@
+III.—Disponer que los estados financieros auditados, consolidados y segregados por actividad de suministro de electricidad y otros servicios no regulados, deberán ser presentados en el mes de mayo de cada periodo.
