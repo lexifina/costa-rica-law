@@ -1,47 +1,50 @@
 5. DEFINICIONES
-5.1 Trazabilidad
-La siguiente definición es tomada del Vocabulario Internacional de Metrología, Conceptos fundamentales y generales, y términos asociados (VIM)
-“Trazabilidad de las mediciones: propiedad de un resultado de medida por la cual el resultado puede relacionarse con una referencia mediante una cadena ininterrumpida y documentada de calibraciones, cada una de las cuales contribuye a la incertidumbre de medida”
+5.1 Trazabilidad Metrológica
+La siguiente definición es tomada del Vocabulario Internacional de Metrología, Conceptos fundamentales y generales, y términos asociados (VIM): “Propiedad de un resultado de medida por la cual el resultado puede relacionarse con una referencia mediante una cadena ininterrumpida y documentada de calibraciones, cada una de las cuales contribuye a la incertidumbre de medida”
 NOTAS:
-1. Frecuentemente este concepto se expresa por el adjetivo trazable.
-2. La cadena ininterrumpida de comparaciones es llamada cadena de trazabilidad.
-3. El propósito de que los resultados de medición tengan trazabilidad es asegurar que la confiabilidad de los mismos, expresada cuantitativamente por la incertidumbre asociada ellos se conozca en términos de la confiabilidad que poseen los patrones nacionales internacionales de medición referidos como el origen de la trazabilidad para tales mediciones.
-5.2 La trazabilidad debe estar caracterizada por:
-5.2.1 Una cadena no interrumpida de comparaciones
-La cadena debe tener origen en patrones de medición nacionales o internacionales que realicen las unidades del SI, puede pasar por patrones de laboratorios secundarios de calibración con alcances acreditados y termina con el valor del resultado de una medición o con el valor de un patrón.
-5.2.2 Incertidumbre de la medición
-La incertidumbre de la medición para cada paso en la cadena de trazabilidad debe ser calculada de acuerdo a lo establecido en ECA-MC-PO02 Política de Incertidumbre de las Mediciones. Cuando un sistema particular de medición quede fuera del alcance de esta Política, el laboratorio debe presentar un método validado generalmente aceptado. En ambos casos debe ser declarada en cada paso de la cadena, de tal manera que la incertidumbre para la cadena completa pueda ser calculada. Estas incertidumbres deben estar respaldadas matemáticamente y estar representadas como incertidumbres expandidas usando un nivel de confianza de aproximadamente el 95 % y su factor de cobertura correspondiente.
-5.2.3 Documentación
-Cada paso de la cadena debe ser ejecutado de acuerdo con procedimientos documentados y reconocidos, los resultados deben ser registrados de tal forma que puedan ser verificados. Los laboratorios de ensayo, organismos de inspección y organismos de certificación deben tener registros identificados para evidenciar la trazabilidad de las mediciones que realicen, y para el caso de los laboratorios de calibración, se deben tener dichos registros y además estar incluidos los informes o certificados de calibración.
-5.2.4 Competencia
-Los organismos de evaluación de la conformidad que realizan uno o más pasos en la cadena deben proporcionar evidencia de su competencia técnica, mediante su acreditación vigente u otros mecanismos establecidos en esta política.
-5.2.5 Referencia al Sistema Internacional de Unidades (SI)
-La cadena de comparaciones para establecer trazabilidad debe tener como punto único de origen patrones del máximo nivel metrológico para la diseminación de las unidades del SI.
-Para lo que corresponde al cumplimiento de esta política, el ECA acoge el uso obligatorio del SI en todo lo que concierne a la descripción, aplicación y escritura de unidades de medida. Los lineamientos y directrices que establecen el uso correcto del SI son dictados y publicados por la Conferencia General de Pesas y Medidas (CGPM) (www.bipm.org/en/si/)
-En nuestro país rige para todos sus efectos el decreto Reglamento Técnico RTCR 443:2010 Metrología. Unidades de Medida. Sistema Internacional SI. En Centroamérica, aplica el Reglamento Técnico Centroamericano RTCA 01.01.10:05: Sistema Internacional de Unidades. SI.
-5.2.6 Recalibraciones (Intervalos de Calibración)
-Con el objetivo de mantener la trazabilidad de las mediciones, las calibraciones de los equipos de medición y los patrones de referencia se deben realizar con una frecuencia tal que asegure que la incertidumbre declarada del patrón no se degrada en un tiempo determinado. Esta frecuencia depende de aspectos tales como: incertidumbre requerida, frecuencia de uso, forma de uso, estabilidad del equipo, recomendaciones del fabricante, desempeño mecánico del equipo, entre otros.
-Para una mejor referencia en lo que respecta a la calibración de los equipos de medición, puede consultarse la guía de ILAC sobre la determinación de los intervalos de calibración para equipos de medición ILAC-G24:2007.
-5.3 Confirmación Metrológica Interna
+1. La referencia puede ser la definición de una unidad de medida mediante una realización práctica, un procedimiento de medida que incluya la unidad de medida cuando se trate de una magnitud no ordinaria, o un patrón.
+2. Tanto en INTE-ISO/IEC 17025:2005 y en INTE-ISO 15189:2008 el término trazabilidad es equivalente a la definición de trazabilidad metrológica que se encuentra en el Vocabulario Internacional de Metrología (VIM) y en este documento se utilizará el término de trazabilidad. 5.2 Trazabilidad a una unidad de medida: Trazabilidad metrológica en la que la referencia es la definición de una unidad de medida mediante su realización práctica.
+5.3 La trazabilidad debe estar caracterizada por:
+5.3.1 Una cadena de trazabilidad metrológica. Sucesión de patrones y calibraciones que relaciona un resultado de medida con una referencia.
+5.3.2 Incertidumbre de la medición: Parámetro no negativo que caracteriza la dispersión de los valores atribuidos a un mensurando, a partir de la información que se utiliza.
+5.4 Confirmación Metrológica Interna
 De acuerdo a la norma ISO 10012:2002(E): Sistema de gestión de mediciones – Requisitos para procesos de medición y equipos de medición, se define como:
-“Conjunto de operaciones requeridas para asegurarse de que el equipo de medición es conforme a los requisitos del uso previsto
+―Conjunto de operaciones requeridas para asegurarse de que el equipo de medición es conforme a los requisitos del uso previsto
 Nota 1: La confirmación metrológica generalmente incluye la calibración y verificación, cualquier ajuste o reparación necesario, y la subsiguiente recalibración, la comparación con los requisitos metrológicos del uso previsto del equipo, así como cualquier sellado y etiquetado requerido.
 Nota 2: La confirmación metrológica no se logra hasta que se haya demostrado y documentado la adecuación del equipo de medición para el uso previsto.
 Nota 3: Los requisitos para el uso previsto incluyen consideraciones tales como alcance, resolución, error máximo permitido, etc.
 Nota 4: Los requisitos metrológicos normalmente difieren de los requisitos para el producto y no están especificados en éstos.”
-5.4 Equipo Crítico
-Según lo establecido en la nota 2 del Documento ILAC P10:2002, se define equipo crítico “aquellos equipos necesarios para realizar un ensayo o calibración dentro del alcance de acreditación y que tienen un efecto significativo en la incertidumbre de las mediciones de los resultados de los ensayos, calibraciones y mediciones o en la validez de los resultados”.
-5.5 Material de Referencia Certificado (MRC)
-Material de referencia, acompañado de un certificado en el cual uno o más valores de las propiedades están certificados por un procedimiento que establece trazabilidad a una realización exacta de la unidad en la cual se expresan los valores de la propiedad, y en el que cada valor certificado se acompaña de una incertidumbre con un nivel declarado de confianza.
-5.6 Material de Referencia (MR)
-Material o sustancia en el cual uno o más valores de sus propiedades son suficientemente homogéneas y bien definidas, al cual se le debe estimar su incertidumbre, para ser utilizadas para la calibración de aparatos, la evaluación de un método de medición, o para asignar valores a los materiales.
-5.7 Verificaciones (comprobaciones) intermedias
+5.5 Equipo Crítico
+Aquellos equipos necesarios para realizar un ensayo o calibración, incluidos los equipos para mediciones auxiliares (ejemplo para control de condiciones ambientales), dentro del alcance de acreditación y que tienen un efecto significativo en la exactitud o validez de los resultados de los ensayos, calibraciones y muestreo.
+5.6 Material de Referencia Certificado (MRC)
+Material de referencia, acompañado de un certificado, donde uno o varios valores de sus propiedades especificadas están certificadas por un procedimiento que establece su trazabilidad a una realización precisa de la unidad en la cual los valores de las propiedades específicas se encuentran expresados, y para el cual cada valor certificado se encuentra acompañado de una incertidumbre con la indicación de un nivel de confianza.
+5.7 Material de Referencia (MR)
+Material o sustancia en el cual uno o más valores de sus propiedades son suficientemente homogéneas, estables y bien definidas; para ser utilizado en una calibración de un instrumento, la evaluación de un método de medición o la asignación de valores a un material
+Nota: Las propiedades pueden ser cuantitativas o cualitativas Por ejemplo en algunos materiales de referencia de ensayos clínicos se establecen propiedades cualitativas como por ejemplo, presencia o no de algún tipo específico de bacteria
+5.8 Verificaciones (comprobaciones) intermedias
 Son aquellas verificaciones que sean necesarias para mantener la confianza en el estado de calibración de los patrones de referencia, primarios, de transferencia o de trabajo, equipos y de los materiales de referencia de acuerdo con procedimientos y una programación definidos.
-5.8 Organismos Regionales de Metrología
+5.9 Organismos Regionales de Metrología
 - SIM: Sistema Interamericano de Metrología
-- EUROMET: European Collaboration on Measurement Standards.
+- EURAMET: European Collaboration on Measurement Standards.
 - COOMET: Euro-Asian Cooperation of National Metrological Institutes.
 - APMP: Asia-Pacific Metrology Program.
 - MENAMET: Middle East - North African Cooperation in Metrology
 - SADCMET: South African Development Community Cooperation in Measurement Traceability
-5.9. Laboratorio acreditado: Entiéndase aquel laboratorio que cuenta con un alcance acreditado.
+5.10 OA: Organismo de Acreditación
+5.11 OEC: Organismo de evaluación de la conformidad
+5.12 Organismo de evaluación de la conformidad: Organismo que realiza servicios de evaluación de la conformidad
+5.13 Evaluación de la conformidad: Demostración de que se cumplen los requisitos especificados relativos a un producto, procesos, sistema, persona u organismo
+5.14 Laboratorio acreditado: Entiéndase aquel laboratorio que cuenta con un alcance acreditado.
+5.15 INM: Instituto Nacional de Metrología o Institutos Designados para mantener y resguardar los patrones nacionales en sus respectivos países o regiones alrededor del mundo. El término INM se utiliza tanto para hacer referencia a los Institutos Nacionales como a los Institutos Designados.
+5.16 SI: Sistema Internacional de Unidades de Medida
+5.17 JCTLM: Comité del BIPM para trazabilidad de los Laboratorios Clínicos
+5.18 Calibrador: Material sustituto del patrón de medida empleado en verificaciones de equipos manuales semiautomatizados o automatizados del laboratorio clínico, con valor asignado por el fabricante según su procedimiento de medición. La matriz debe ser conmutable, o sea semejante a las muestras a analizar. Su uso está indicado para la verificación de uno o varios analitos. Puede o no tener trazabilidad metrológica a unidades del Sistema Internacional de Medidas.
+5.19 CIPM MRA: Acuerdo de Reconocimiento Mutuo del Comité Internacional de Pesas y Medidas (CIPM).
+5.20 ILAC: Cooperación Internacional de Acreditación de Laboratorios.
+5.21 Organismos Regionales de Acreditación mencionados en esta política:
+- IAAC: Cooperación Interamericana de Acreditación
+- EA: Cooperación Europea de Acreditación.
+- APLAC Cooperación de Acreditación de laboratorios de Asia Pacífico
+5.22 Mensurando: Magnitud que se desea medir
+5.23 Capacidad de Medición y Calibración (CMC): Es una capacidad de medición y/o calibración disponible a los clientes bajo condiciones normales: a. Como se describe en el alcance de acreditación concedido al laboratorio por un signatario del acuerdo de ILAC, o
+b. Como se publica en el apéndice C de la base de datos del KCDB del BIPM. (consultar en la dirección http://kcdb.bipm.org/appendixc/) (esto corresponde para laboratorios nacionales o designados)

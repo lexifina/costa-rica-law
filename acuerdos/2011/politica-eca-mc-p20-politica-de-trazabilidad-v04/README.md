@@ -14,3 +14,4 @@ Política ECA-MC-P20 Política de Trazabilidad V04
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-02 | la propia norma |
+| 2 | 2014-03-24 | Acuerdo 0 (2014-03-24) |
