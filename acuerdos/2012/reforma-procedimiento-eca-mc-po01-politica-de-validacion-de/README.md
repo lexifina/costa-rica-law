@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-PO01 Política de validación de métodos (Versión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-23 | la propia norma |
+| 2 | 2014-03-24 | Acuerdo 0 (2014-03-24) |
