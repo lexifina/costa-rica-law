@@ -1,0 +1,1 @@
+Artículo 10.—Derecho del ICT de acudir a la vía judicial. El ICT podrá acudir a la vía judicial por motivo de uso indebido o no autorizado de la Marca País, tanto contra licenciatarios como contra personas físicas o jurídicas que hagan uso de la marca sin previa autorización.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. Las disposiciones contenidas en el presente reglamento son de cumplimiento obligatorio para todos los sujetos interesados en solicitar y obtener una licencia de uso de la Marca País Costa Rica para efectos de la promoción turística del país.
