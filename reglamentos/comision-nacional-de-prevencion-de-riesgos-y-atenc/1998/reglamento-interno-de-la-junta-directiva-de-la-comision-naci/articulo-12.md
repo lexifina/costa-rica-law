@@ -1,1 +1,0 @@
-Artículo 12.—Los miembros de la Junta Directiva tienen derecho al pago de los viáticos correspondientes cuando deben viajar dentro o fuera del territorio nacional, para la atención de asuntos propios de la Comisión.

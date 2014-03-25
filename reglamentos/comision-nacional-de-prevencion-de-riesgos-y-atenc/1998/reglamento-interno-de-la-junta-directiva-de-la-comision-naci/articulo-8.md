@@ -1,1 +1,0 @@
-Artículo 8°—Los directores deben rendir una garantía de fidelidad antes de entrar en el ejercicio de su cargo por un monto que definirá la Contraloría General de la República. El costo de la suscripción de esta garantía lo asumirá la institución.

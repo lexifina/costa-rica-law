@@ -1,2 +1,0 @@
-Artículo 15.—El quórum para que pueda sesionar válidamente la Junta Directiva es la mitad más uno de los integrantes, si no hubiera quórum el Órgano podrá sesionar en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia o emergencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
-El Órgano puede sesionar válidamente si concurren todos sus integrantes y así lo acuerdan por unanimidad.

@@ -1,2 +1,0 @@
-Artículo 16.—A la sesión de Junta Directiva pueden asistir con voz pero sin voto los funcionarios o particulares que sean invitados por la misma, ya sea por tener un interés legítimo y directo en un determinado asunto o bien en calidad de técnicos o peritos, la invitación podrá responder a instancia de parte o a gestión de la Junta.
-Se procurará que siempre estén presentes el Auditor Interno, el Asesor Legal y el Director Ejecutivo.

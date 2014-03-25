@@ -1,4 +1,0 @@
-Artículo 13.—La Junta Directiva se reunirá ordinariamente, sin convocatoria especial, cada quince días, los días miércoles a las doce horas. El Órgano podrá modificar la fecha y hora señalada con solo acordarlo así la mitad más uno de sus miembros.
-Extraordinariamente la Junta Directiva se reunirá cada vez que sea convocada por el Presidente, o por petición de tres de sus miembros, con un mínimo de 24 horas de antelación, salvo casos de emergencia en que podrá ser convocada de manera inmediata, con una antelación de dos ñoras. En esta sesión se conocerán únicamente los asuntos que se hayan
-señalado en la convocatoria.
-Tanto las sesiones ordinarias como extraordinarias se celebrarán en la Sala de Sesiones de la Comisión, sin perjuicio de que la Junta decida realizar la sesión en otro lugar.
