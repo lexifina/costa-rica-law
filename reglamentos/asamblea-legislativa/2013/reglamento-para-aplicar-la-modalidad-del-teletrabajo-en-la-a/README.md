@@ -14,3 +14,4 @@ Reglamento para aplicar la modalidad del teletrabajo en la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-27 | la propia norma |
+| 2 | 2014-03-25 | Acuerdo 64 (2014-03-25) |
