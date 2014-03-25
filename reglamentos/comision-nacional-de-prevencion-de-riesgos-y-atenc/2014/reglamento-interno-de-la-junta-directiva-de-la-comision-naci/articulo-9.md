@@ -1,0 +1,2 @@
+Artículo 9º—Quórum de las sesiones. El quórum para que pueda sesionar válidamente la Junta Directiva será el de la mayoría absoluta de la totalidad de los miembros que la componen.
+Quedará válidamente constituida aquella sesión a la que, sin cumplir con los requisitos referentes a la convocatoria o al orden del día, asistan los miembros suficientes para completar el quórum y así lo acuerden por unanimidad.

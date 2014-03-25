@@ -1,0 +1,1 @@
+Artículo 17.—Acuerdos Firmes. Los acuerdos adoptados quedarán firmes si son adoptados de forma unánime y estando presente al menos dos tercios de los integrantes de la Junta. En los restantes casos, los acuerdos serán firmes al momento de aprobarse el acta de la sesión de que se trate.
