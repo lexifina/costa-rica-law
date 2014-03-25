@@ -1,0 +1,5 @@
+Artículo 4º—Definiciones. Para efectos de la aplicación de este Reglamento, se entenderá por:
+• La Corte: Corte Suprema de Justicia de la República de Costa Rica.
+• Conciliación Judicial: Proceso mediante el cual, la jueza o el juez, como tercero imparcial, brinda el espacio adecuado para lograr una comunicación positiva entre las personas, con el fin de que éstas encuentren la solución a sus diferendos. Las personas conciliadoras no tendrán participación en el resultado.
+• Centro de Conciliación: Instancia especializada conformada por juezas y jueces conciliadores, la cual se encuentra adscrita al Consejo Superior del Poder Judicial, creada en la sesión de Corte Plena número 7-2007 del 12 de marzo de 2007, para promover y aplicar medios de resolución pacífica de conflictos, principalmente la conciliación.
+• Jueza o juez conciliador: Tercera persona imparcial, competente para conocer los asuntos en que voluntariamente las partes se sometan a conciliación, dentro de los respectivos procesos y en los casos cuando sea procedente.

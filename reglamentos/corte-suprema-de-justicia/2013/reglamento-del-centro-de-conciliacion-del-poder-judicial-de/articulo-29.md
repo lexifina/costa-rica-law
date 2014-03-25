@@ -1,0 +1,1 @@
+Artículo 29.—Convocatoria de las audiencias especiales. Será responsabilidad de la persona coordinadora de cada despacho judicial o, en su defecto, de la funcionaria o del funcionario que ésta designe, tramitar en tiempo y forma la convocatoria y la notificación a todas las partes.

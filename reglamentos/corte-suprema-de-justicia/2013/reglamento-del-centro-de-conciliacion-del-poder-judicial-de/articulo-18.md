@@ -1,0 +1,1 @@
+Artículo 18.—Reglas dentro del proceso conciliatorio. La jueza o el juez conciliador en la apertura de la audiencia les indicará a las partes las reglas de conducta que deberán seguir durante todo el proceso y explicará además cómo será su dinámica.

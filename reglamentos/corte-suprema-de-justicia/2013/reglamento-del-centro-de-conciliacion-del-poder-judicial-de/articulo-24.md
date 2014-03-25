@@ -1,0 +1,1 @@
+Artículo 24.—Solicitud de audiencias especiales. Todos aquellos funcionarios y funcionarias judiciales que requieran asistencia técnica profesional para la realización de este tipo de audiencias deberán remitir la solicitud a la coordinación general del Centro de Conciliación.

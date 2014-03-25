@@ -1,0 +1,2 @@
+Artículo 28.—Autorización para la realización de audiencias especiales. Recibida la solicitud de los oficinas regionales, o bien cuando actúe de oficio o a instancia del Consejo Superior, la coordinación general del Centro gestionará la realización de audiencias especiales. En todos los casos, se deberán justificar o presentar los atestados correspondientes para que se autorice la realización de las audiencias.
+La coordinación general del Centro de Conciliación deberá programar los señalamientos de acuerdo con los roles y la carga de trabajo del personal.

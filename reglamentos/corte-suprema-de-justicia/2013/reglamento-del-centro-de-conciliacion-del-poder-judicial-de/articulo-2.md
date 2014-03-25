@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento regulará la aplicación de los mecanismos de resolución alterna de conflictos, principalmente la conciliación, en las causas que se encuentren en trámite ante los tribunales de justicia, o como actos prejudiciales.

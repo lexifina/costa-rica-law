@@ -1,0 +1,2 @@
+Artículo 3º—Funcionamiento, competencia y responsabilidades. El funcionamiento, la competencia y las responsabilidades del Centro de Conciliación y sus sedes se regirán por lo previsto en la Ley sobre Resolución Alternativa de Conflictos y Promoción de la Paz Social, Ley N.° 7727 y demás normas que se dicten sobre la materia, así como por el presente Reglamento y por la Ley Orgánica del Poder Judicial.
+Se respetarán también las competencias que las leyes y códigos procesales contemplan específicamente para cada materia, dentro del marco de legalidad.

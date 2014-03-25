@@ -1,0 +1,1 @@
+Artículo 19.—Reuniones separadas. Durante la audiencia de conciliación, la jueza o el juez conciliador podrá sesionar con las partes, en forma conjunta o por separado, cuando lo considere necesario o éstas lo soliciten, cuidando de no favorecer con su conducta a una de ellas y de no violar el deber de confidencialidad.

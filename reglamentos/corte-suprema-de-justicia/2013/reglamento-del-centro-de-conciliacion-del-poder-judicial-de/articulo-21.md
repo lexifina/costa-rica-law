@@ -1,0 +1,1 @@
+Artículo 21.—Del acuerdo conciliatorio. La jueza conciliadora velará para que el acuerdo conciliatorio cumpla con todos los requisitos de formalidad y legalidad que establece el artículo 12 de la Ley de Resolución Alternativa de Conflictos y Promoción de la Paz Social.

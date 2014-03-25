@@ -1,0 +1,2 @@
+Artículo 13.—Coordinación y nombramiento. La coordinación de la sede estará a cargo de una de las personas juzgadoras conciliadoras en propiedad que forme parte del Centro de Conciliación, cuya designación será propuesta por la coordinador/a general a la Comisión RAC.
+El Consejo Superior del Poder Judicial realizará la designación de la persona coordinadora de cada sede, con base en una propuesta de la Comisión RAC. El nombramiento será para un período de cuatro años con posibilidad de prórroga.

@@ -1,0 +1,1 @@
+Artículo 6º—Domicilio. El Centro de Conciliación tiene su sede central en el Primer Circuito Judicial en San José y sus sedes regionales se ubicarán en los circuitos judiciales que determine la Corte, de acuerdo con las necesidades del servicio.

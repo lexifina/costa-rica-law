@@ -1,0 +1,1 @@
+Artículo 30.—De los acuerdos conciliatorios. Cada jueza o juez conciliador velará para que el acuerdo conciliatorio cumpla los requisitos que establece el artículo 12 de la Ley 7727, y deberá realizar la homologación del acuerdo dentro del plazo previsto en el artículo 7, párrafo segundo de la ley de marras.

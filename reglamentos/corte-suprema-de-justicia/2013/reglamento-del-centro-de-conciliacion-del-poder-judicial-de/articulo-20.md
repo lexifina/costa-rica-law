@@ -1,0 +1,1 @@
+Artículo 20.—No concurrencia a la sesión. Si las partes no concurren a la o las sesiones de conciliación, la jueza o el juez conciliador dará por concluida la audiencia y le remitirá el expediente a la persona juzgadora de la causa con la constancia respectiva, excepto que haya motivo justificado para reprogramarla.

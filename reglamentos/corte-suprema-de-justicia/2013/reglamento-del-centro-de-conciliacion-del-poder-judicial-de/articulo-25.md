@@ -1,0 +1,1 @@
+Artículo 25.—En los casos que lo estime conveniente y en aras de coadyuvar con la atención de la mora judicial, la coordinación general del Centro, de oficio, podrá gestionar la realización de estas audiencias.
