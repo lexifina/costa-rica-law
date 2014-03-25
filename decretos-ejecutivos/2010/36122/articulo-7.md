@@ -1,1 +1,0 @@
-Artículo 7°—Todas las instituciones del Estado, dentro de su ámbito de competencia y de acuerdo con sus posibilidades, deberán darle prioridad a la atención de las necesidades de desarrollo social y económico de los cantones y comunidades vulnerables, incluidos en el Programa.
