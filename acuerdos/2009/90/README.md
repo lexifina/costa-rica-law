@@ -14,3 +14,4 @@ Reforma Medidas de ordenamiento para el establecimiento de acuerdos que permiten
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-08 | la propia norma |
+| 2 | 2014-03-26 | Acuerdo 81 (2014-03-26) |
