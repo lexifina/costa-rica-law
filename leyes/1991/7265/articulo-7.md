@@ -1,5 +1,2 @@
-ARTICULO 7.- El Ministerio de Hacienda incluirá, en el proyecto de
-Presupuesto Nacional del período correspondiente, la suma necesaria para
-dar contenido económico a este premio. Los dineros presupuestados lo
-serán bajo el título de Cultura, Juventud y Deportes, transferencias
-corrientes.
+ARTICULO 7.- El Ministerio de Hacienda incluirá, en el proyecto de Presupuesto Nacional del período correspondiente, la suma necesaria para dar contenido económico a este premio. Los dineros presupuestados lo serán bajo el título de Ministerio de Justicia y Paz(*), transferencias corrientes.
+(*) (Modificada su denominación por el artículo 11 de la ley N° 9211 del 4 de marzo del 2014, "Ley sobre Premios Nacionales de Cultura". Anteriormente decía "Ministerio de Cultura, Juventud y Deportes")

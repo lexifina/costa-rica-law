@@ -1,6 +1,6 @@
 # Ley sobre Premios Nacionales de la Cultura
 
-Ley N° 7345 del 1993-05-24. SINALEVI, ficha 11231: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11231&param2=12053&param3=1>.
+Ley N° 7345 del 1993-05-24. SINALEVI, ficha 11231: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11231&param2=96134&param3=1>.
 
 Publicada en La Gaceta N° 112 del 1993-06-14.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1993-06-14 | Ley 7345 | 1993-05-24 |
 | 2 de 3 | 1993-06-14 | SINALEVI | 1993-05-24 |
+| 3 de 3 | 2014-03-26 | Ley 9211 | 2014-03-04 |
