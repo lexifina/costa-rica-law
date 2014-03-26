@@ -13,7 +13,8 @@ CREAR LA COMISIÓN DE COORDINACIÓN PARA LA
 INSTALACIÓN O AMPLIACIÓN DE INFRAESTRUCTURA
 DE TELECOMUNICACIONES
 Artículo 1º—Se crea la Comisión de Coordinación para la Instalación o Ampliación de redes de Telecomunicaciones, que estará integrada por:
-a) El Ministro o Viceministro del Ministerio de Ambiente Energía y Telecomunicaciones, quien la presidirá.
-b) El Presidente Ejecutivo del Instituto de Fomento y Asesoría Municipal (IFAM)
-c) Un representante de la Superintendencia de Telecomunicaciones (SUTEL)
-d) El Ministro o Viceministro de Economía, Industria y Comercio (MEIC)
+a) El Ministro o Viceministro de Telecomunicaciones del Ministerio de Ciencia, Tecnología y Telecomunicaciones, quien la presidirá.
+b) El Presidente Ejecutivo del Instituto de Fomento y Asesoría Municipal (IFAM).
+c) Un representante de la Superintendencia de Telecomunicaciones (SUTEL).
+d) El Ministro o Viceministro de Economía, Industria y Comercio (MEIC).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38366 del 26 de marzo del 2014)
