@@ -37,3 +37,4 @@ Reglamento de la Asamblea Legislativa
 | 22 | 2011-03-15 | Reglamento 158 (2011-03-15) |
 | 23 | 2012-02-21 | Reglamento 145 (2012-02-21) |
 | 24 | 2012-02-27 | Reglamento 147 (2012-02-27) |
+| 25 | 2014-03-26 | SINALEVI (sin norma nombrada) |
