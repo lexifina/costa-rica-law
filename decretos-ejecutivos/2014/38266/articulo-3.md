@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección General de Aduanas conforme con las facultades otorgadas deberá emitir una resolución administrativa, en la que se establezcan las demás condiciones necesarias para la efectiva operación del Puesto Aduanero Las Tablillas.

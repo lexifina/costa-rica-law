@@ -1,0 +1,1 @@
+Transitorio I.—Los despachos, los procedimientos, los plazos y las demás formalidades aduaneras, iniciados antes de la entrada en vigencia de éste Decreto, se concluirán según las disposiciones vigentes en el momento en que fueron iniciados, y serán finalizados por la Aduana ante la cual dieron inicio.

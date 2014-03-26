@@ -1,0 +1,1 @@
+Artículo 4º—Las instituciones estatales que prestan servicios en las fronteras deberán realizar las gestiones necesarias para brindar dichos servicios y realizar las actividades que sean requeridas para su efectivo funcionamiento, en el Puesto Aduanero Las Tablillas.
