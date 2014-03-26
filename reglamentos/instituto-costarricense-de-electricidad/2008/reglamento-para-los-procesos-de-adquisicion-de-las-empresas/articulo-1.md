@@ -1,4 +1,5 @@
 INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+(Nota de Sinalevi: Mediante el artículo 46 del Reglamento para los Procedimientos de Adquisición de la Compañía Nacional de Fuerza y Luz S. A., aprobado en sesión 2352 del 26 de marzo de 2014, se estableció que: …se deja sin efecto el Reglamento para los Procesos de Adquisición de las Empresas del Instituto Costarricense de Electricidad, en lo concerniente a la Compañía Nacional de Fuerza y Luz )
 REGLAMENTO PARA LOS PROCESOS DE
 ADQUISICIÓN DE LAS EMPRESAS DEL
 INSTITUTO COSTARRICENSE

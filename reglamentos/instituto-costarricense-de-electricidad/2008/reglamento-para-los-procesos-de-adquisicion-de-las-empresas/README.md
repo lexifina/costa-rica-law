@@ -14,3 +14,4 @@ Reglamento para los Procesos de Adquisición de las empresas del Instituto Costa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-27 | la propia norma |
+| 2 | 2014-03-26 | Reglamento 2352 (2014-03-26) |
