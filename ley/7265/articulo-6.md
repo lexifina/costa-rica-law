@@ -1,6 +1,2 @@
-ARTICULO 6.- El premio consistirá en un pergamino firmado por el
-Presidente de la República, por el Ministro de Cultura, Juventud y
-Deportes y por el Presidente del jurado que otorgó el reconocimiento y
-tendrá además, una dotación en dinero efectivo, equivalente a la suma de
-nueve veces el salario mínimo de un profesional en Enseñanza General
-Básica, con título de Diplomado (PT3).
+ARTICULO 6.- El premio consistirá en un pergamino firmado por el Presidente de la República, por el Ministerio de Justicia y Paz(*) y por el Presidente del jurado que otorgó el reconocimiento y tendrá además, una dotación en dinero efectivo, equivalente a la suma de nueve veces el salario mínimo de un profesional en Enseñanza General Básica, con título de Diplomado (PT3).
+(*) (Modificada su denominación por el artículo 11 de la ley N° 9211 del 4 de marzo del 2014, "Ley sobre Premios Nacionales de Cultura". Anteriormente decía "Ministerio de Cultura, Juventud y Deportes")
