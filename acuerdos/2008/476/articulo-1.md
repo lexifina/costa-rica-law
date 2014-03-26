@@ -12,5 +12,5 @@ MEDIDAS DE ORDENAMIENTO PARA EL ESTABLECIMIENTO DE
 ACUERDOS QUE PERMITAN REGULAR LAS ACTIVIDADES
 DE LA PESCA COMERCIAL Y LA PESCA
 TURÍSTICA-DEPORTTVA.
-Artículo 1º—Se prohíbe la pesca dirigida al pez vela, utilizando palangre de superficie adaptada para ese fin y con carnada viva como arte de pesca, en todas las aguas marinas jurisdiccionales costarricenses, a la flota comercial no turística-deportiva. Las faenas de pesca de la flota pesquera nacional, utilizando palangre, en lo especial en cuanto a zonas y fechas, quedarán sometidas a las regulaciones del presente acuerdo.
-(Así reformado por el artículo 1° del acuerdo A.J.D.I.P.090-2009 del 12 de marzo de 2009).
+Artículo 1º—Se prohíbe la pesca dirigida al pez vela, utilizando palangre de superficie adaptada para ese fin y con carnada viva como arte de pesca en las zonas expresamente establecidas e indicadas en el presente acuerdo, a la flota comercial no turística-deportiva. Las faenas de pesca de la flota pesquera nacional, utilizando palangre y carnada viva, en especial en cuanto a zonas y fechas, quedan sometidas a las regulaciones del presente Acuerdo.
+(Así reformado por acuerdo A.J.D.I.P.081-2014 del 26 de marzo de 2014)
