@@ -1,0 +1,3 @@
+Artículo 13.—La Autoridad Presupuestaria podrá variar la meta de empleo, con la creación de plazas que realice así como con los traslados horizontales que se fundamentan en el Decreto Ejecutivo N° 22317-MP-H-MIDEPLAN, publicado en La Gaceta N° 137 de 20 de julio de 1993.
+Debe entenderse que tal y como lo establece la normativa vigente, la entidad que recibe al funcionario, deberá asumir el pago de su salario conforme a la legislación de la institución receptora.
+No procede el traslado de plazas del sector descentralizado a entidades u órganos que dependen de manera directa o indirecta del Presupuesto Nacional.

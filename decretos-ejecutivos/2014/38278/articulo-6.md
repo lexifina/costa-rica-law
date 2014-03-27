@@ -1,0 +1,1 @@
+Artículo 6º—Las entidades no homologadas al régimen de Servicio Civil, en sus propuestas salariales no podrán superar los salarios base que establece el Régimen de Servicio Civil para aquellos puestos que tengan similares factores de clasificación (naturaleza, responsabilidad, requisitos, supervisión consecuencia del error, entre otros)

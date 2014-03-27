@@ -1,0 +1,1 @@
+Artículo 18.—El costo de los conceptos señalados en los artículos 16 y 17 anteriores, deberá estar contemplado en el monto de gasto presupuestario máximo, fijado según el artículo 2º de las Directrices Generales de Política Presupuestaria para el 2015.

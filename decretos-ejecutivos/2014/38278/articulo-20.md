@@ -1,0 +1,2 @@
+Artículo 20.—Una vez que la entidad pública, órganos desconcentrados no homologados o ministerios -con puestos excluidos del Régimen de Servicio Civil-inicien el proceso de elaboración del Manual Institucional de Clases producto de un estudio integral u homologación, el jerarca supremo deberá comunicarlo a la STAP.
+No se podrán realizar cambios en los manuales vigentes, a partir del momento en que se comunica a la STAP el inicio del proceso de elaboración de un Manual Institucional.

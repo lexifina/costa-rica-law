@@ -1,0 +1,11 @@
+Artículo 5º—La AP establecerá la valoración en montos y vigencias de los siguientes puestos excluidos del Régimen de Servicio Civil:
+a) Los puestos referidos en el artículo 3º, incisos b) y c) del Estatuto de Servicio Civil, correspondientes a los miembros de la fuerza pública; así como los funcionarios y empleados que desempeñen cargos de confianza personal del Presidente o de los Ministros.
+b) Los puestos que desempeñen cargos de confianza, de conformidad con lo que dispone el artículo 4º del Estatuto de Servicio Civil; a saber: Jefes de Misiones Diplomáticas y los Diplomáticos en misión temporal, Procurador General de la República, el Secretario y demás asistentes personales directamente subordinados al Presidente de la República, los oficiales mayores de los ministerios y los choferes de los ministros, los servidores directamente subordinados a los ministros y viceministros, hasta un número de 10; además, los cargos de directores y directores generales de los ministerios, así como los de las oficinas adscritas a ellos, las desconcentradas y descentralizadas dependientes de los Ministros o Viceministros.
+c) Los puestos incluidos en el artículo 5º del Estatuto de Servicio Civil, a saber: Tesorero Nacional, Subtesorero Nacional, Director General de Presupuesto Nacional.
+d) El Director de Migración y funcionarios de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, sujetos al párrafo 2º del artículo 18 de su ley.
+e) Los ministros y viceministros.
+f) Los puestos de confianza subalternos de las entidades públicas, definidos en el Decreto Ejecutivo No. 36181-H, Reglamento de Puestos de Empleados de Confianza Subalternos del Sector Público, publicado en La Gaceta No. 192 del 04 de octubre de 2010.
+g) Las clases de la Serie Gerencial (Presidente Ejecutivo, Gerente y Subgerente).
+h) Los puestos de la Serie de Fiscalización Superior (Auditor y Subauditor) de las entidades públicas, Ministerios y Órganos Desconcentrados.
+i) Las clases de puestos de las entidades públicas, ministerios (excluidas del Régimen de Servicio Civil o amparadas en normativa específica) u órganos desconcentrados, según corresponda; en el contexto de homologaciones y para la implementación o cambios en los manuales.
+j) Los demás puestos excluidos del Régimen de Servicio Civil, de las entidades cubiertas por el ámbito de la AP.

@@ -1,0 +1,1 @@
+Artículo 25.—Los ministerios podrán contar con puestos de confianza subalternos, de conformidad con lo dispuesto en los incisos e) y f) del artículo 4º del Estatuto de Servicio Civil y el Decreto Ejecutivo No. 36181-H publicado en La Gaceta No. 192 del 04 de octubre de 2010, Reglamento de Puestos de Empleados de Confianza Subalternos del Sector Público.

@@ -1,0 +1,1 @@
+Artículo 10.—Los ministerios y órganos desconcentrados, no podrán utilizar plazas nuevas cuyo contenido presupuestario esté contemplado en la Ley de Presupuesto de la República, si no cuenta con el respectivo acuerdo de la Autoridad Presupuestaria. Asimismo, las instituciones que cuentan con plazas docentes, no podrán utilizarlas para otro fin.
