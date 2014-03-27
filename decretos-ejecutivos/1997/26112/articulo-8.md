@@ -4,3 +4,7 @@ b) Vehículos destinados a labores de investigación.
 c) Vehículos para el transporte de servidores y recursos y de apoyo logístico de la Fuerza Pública.
 d) Vehículos para el transporte y seguridad de los funcionarios policiales que conforman la Escala de Oficiales Superiores de la Fuerza Pública, quienes desempeñan cargos de Director y Subdirector General, Directores y Subdirectores Regionales, Directores y Subdirectores de unidades policiales especializadas.
 (Así adicionado el incisiso anterior por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010)
+e) Vehículos de Apoyo Operacional.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38307 del 27 de marzo de 2014)
+f) Vehículos de Apoyo Administrativo.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38307 del 27 de marzo de 2014)
