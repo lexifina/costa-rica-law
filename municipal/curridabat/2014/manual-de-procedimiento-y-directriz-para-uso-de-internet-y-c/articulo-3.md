@@ -1,0 +1,3 @@
+3. Procedimiento Control de Acceso a los Recursos Institucionales
+Se debe asegurar la integridad, confidencialidad y disponibilidad de los datos, información y los recursos asociados a ésta, razón por la cual el control de acceso a la información y los recursos, ya sea de la infraestructura técnica o de las aplicaciones, debe establecerse con el principio de la “necesidad de conocer lo funcional, el cual pretende que cada funcionario únicamente tenga acceso a la información y recursos estrictamente necesarios para el desarrollo adecuado de su función.
+Se establecen las siguientes Políticas que regulan el acceso a los diferentes recursos institucionales.
