@@ -1,0 +1,1 @@
+7º—Se ordena a la Dirección de Operaciones, al Laboratorio Nacional de Servicios Veterinarios (LANASEVE) del SENASA y a la Dirección Administrativa Financiera, tomen las previsiones administrativas que correspondan a los efectos de que la exoneración ordenada se aplique a los usuarios en forma inmediata.
