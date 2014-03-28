@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE HOJANCHA
+REGLAMENTO DE PAGO DE TRANSPORTE
+A REGIDORES Y SÍNDICOS MUNICIPALES
+El Concejo Municipal de la Municipalidad de Hojancha, provincia Guanacaste, por acuerdo N° 7 de sesión ordinaria N° 202- 2014, celebrada el martes 11 de marzo del 2014, acuerda: aprobar la modificación al artículo 3° del Reglamento de Pago de Transporte a Regidores y Síndicos Municipales, de la siguiente manera:
+Artículo 3°—Las sumas a pagar por conceptos de gastos de transporte a regidores y síndicos a que se refiere este reglamento es una asignación de una suma de dinero tomando en cuenta la distancia en que se debe desplazarse hasta el lugar donde se llevan a cabo las sesiones. Se asignará los siguientes montos: de 5 a 10 kilómetros ¢6.000,00 de 10 a 20 kilómetros ¢8.000,00 y una mayor distancia a la indicada un monto de ¢10.000,00 por sesión asistida, no obstante previo acuerdo del Concejo puede aplicar tarifas mayores o menores en casos regulares o especiales. Aprobado por unanimidad. Acuerdo firme. Publíquese.
+Hojancha, Guanacaste, 17 de marzo del 2014
