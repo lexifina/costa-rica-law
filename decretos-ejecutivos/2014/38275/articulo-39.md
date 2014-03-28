@@ -1,0 +1,1 @@
+Artículo 39.—Convocatoria a la sesión de instalación de la primera asamblea cuatrienal. Una vez designados los delegados propietarios ante la Comisión, el Directorio convocará a la primera asamblea plenaria del cuatrienio en un plazo no mayor a quince días hábiles a partir de que estén todas las personas delegadas propietarias designadas.

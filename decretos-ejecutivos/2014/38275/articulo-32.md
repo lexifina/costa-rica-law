@@ -1,0 +1,1 @@
+Artículo 32.—Proporcionalidad al interior del Sector Comunal. De los cuarenta Representantes del Sector Comunal cada Federación nombrará el número de representantes titulares y suplentes que le corresponda en forma proporcional a la cantidad de Asociaciones de Desarrollo Comunal que la integran, debiendo garantizar la equidad de género.

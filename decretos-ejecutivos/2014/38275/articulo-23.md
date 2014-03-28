@@ -1,0 +1,1 @@
+Artículo 23.—Afiliación simultánea a lo interno del sector para determinación de cuota por organización. Cuando un copropietario figure simultáneamente en más de una organización base a lo interno del sector, y a efecto de establecer la cuota de delegados por organización, se contabilizará en todas las organizaciones a las que pertenezca.

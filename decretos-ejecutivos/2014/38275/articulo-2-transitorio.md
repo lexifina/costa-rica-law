@@ -1,0 +1,1 @@
+Transitorio Dos: Para el cuatrienio 2014-2018 el periodo para la acreditación, incluyendo el envío y recepción de los listados de copropietarios por parte de las Organizaciones base, será a partir del 15 hasta el 30 de abril de 2014.
