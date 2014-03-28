@@ -1,0 +1,1 @@
+Artículo 12.—De la Renovación. La condición PYME deberá ser renovada siguiendo los procedimientos indicados en el artículo 9 del presente Reglamento. De lo contrario el SIEC automáticamente cambia la condición de la PYME a Inactiva; igualmente la del Sello PYME (Básico y /o Valor Agregado) pierde validez.

@@ -1,0 +1,1 @@
+Artículo 10.—Aceptación de Sello PYME. El uso del Sello PYME, así como los requisitos establecidos en el artículo 8 del presente Reglamento, son de acatamiento obligatorio y aplican a toda persona física o jurídica con la condición PYME vigente. Esta aceptación se materializa mediante la Carta de Compromiso que deberá presentar, según formato del Anexo N° II.

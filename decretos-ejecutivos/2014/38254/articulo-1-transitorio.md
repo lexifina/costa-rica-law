@@ -1,0 +1,2 @@
+Transitorios.
+Transitorio I.—En el caso de las PYME, que opten por alguna de las categorías del Sello PYME de Valor Agregado, pero que aporten una (s) certificación (es) de norma (s) o protocolo de verificación proveniente de un organismo de certificación que no esté acreditado, se otorgará el plazo de un año para regular tal acreditación o reconocimiento. Entendiéndose por regular la situación, que aporte la certificación que corresponda -según el Sello de Valor Agregado- emitida por el organismo de certificación acreditado.

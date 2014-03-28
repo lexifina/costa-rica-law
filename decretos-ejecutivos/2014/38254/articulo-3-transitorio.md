@@ -1,0 +1,1 @@
+Transitorio III.—Lo señalado en el transitorio anterior, no aplica para aquellas PYME que a partir de la publicación oficial y vigencia de este Reglamento, realizan por primera vez la inscripción en el Registro PYME o que renuevan su condición PYME; siendo que la obtención, el uso y aplicación del Sello PYME se regirá, por lo que se detalla en el presente Reglamento.
