@@ -13,6 +13,9 @@ RESUELVE:
 SECCIÓN Nº 1
 Principios Activos Contenidos en Medicamentos Multiorigen que Deben Demostrar su Equivalencia Terapéutica por medio de Estudios de Bioequivalencia en Seres Humanos, Complementados con Perfiles de Disolución Comparativos con el Producto de Referencia oficial:
 (Así reformado el párrafo anterior mediante resolución DAC-217 del 11 d ejulio de 2013)
+Principio activo(a)
+(a) Para algunos de los principios activos existen formas químicas específicas tales como sales o ésteres. En la presente resolución se respeta la Denominación Común Internacional de cada principio activo, y debe entenderse que será a cada forma química del principio activo base, a quien se le aplica el requerimiento señalado.
+(Así adicionado el parrafo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
 Nº Consecutivo | Principio activo (Denominación Común Internacional)
 1 | Carbamazepina
 2 | Ciclosporina
@@ -48,6 +51,16 @@ Nº Consecutivo | Principio activo (Denominación Común Internacional)
 32 (Así adicionado el consecutivo anterior mediante resolución DAC-217 del 11 de julio de 2013) | Emtricitiavina (Así adicionado el principio anterior mediante resolución DAC-217 del 11 de julio de 2013)
 33 (Así adicionado el consecutivo anterior mediante resolución DAC-217 del 11 de julio de 2013) | Tenofovir (Así adicionado el principio anterior mediante resolución DAC-217 del 11 de julio de 2013)
 34 (Así adicionado el consecutivo anterior mediante resolución DAC-217 del 11 de julio de 2013) | Atazanavir (Así adicionado el principio anterior mediante resolución DAC-217 del 11 de julio de 2013)
+35 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Amiodarona (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+36 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Atenolol (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+37 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Bicalutamida (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+38 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Bromocriptina (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+39 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Clozapina (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+40 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Fluoxetina (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+41 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Haloperidol (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+42 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Irbesartan (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+43 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Leflunomida (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
+44 (Así adicionado el consecutivo anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014) | Primidona (b) (b) Aplicación de la presente resolución a la formulación de Primidona 250 mg/ tableta) (Así adicionado el principio anterior mediante resolución N° DRPIS-526-IC-2014 del 31 de marzo del 2014)
 SECCIÓN Nº 2
 Principios Activos Contenidos en Medicamentos Multiorigen a los que se les exige la Presentación de Perfiles de Disolución Comparativos IN VITRO con el Producto de Referencia:
 Nº | Principio activo (Denominación Común Internacional)

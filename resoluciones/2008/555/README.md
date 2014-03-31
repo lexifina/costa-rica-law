@@ -15,3 +15,4 @@ Actualiza la Lista de Principios Activos de Medicamentos Multiorigen
 | --- | --- | --- |
 | 1 | 2008-12-19 | la propia norma |
 | 2 | 2013-07-11 | Resolución 1726 (2013-07-11) |
+| 3 | 2014-03-31 | Resolución 526 (2014-03-31) |
