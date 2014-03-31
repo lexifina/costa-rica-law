@@ -16,3 +16,4 @@ Lista de Principios Activos de Medicamentos Multiorigen
 | 1 | 2008-01-09 | la propia norma |
 | 2 | 2008-12-09 | Resolución 555 (2008-12-09) |
 | 3 | 2013-07-11 | Resolución 1726 (2013-07-11) |
+| 4 | 2014-03-31 | Resolución 526 (2014-03-31) |
