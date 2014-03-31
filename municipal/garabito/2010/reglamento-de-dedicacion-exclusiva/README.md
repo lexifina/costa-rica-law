@@ -15,3 +15,4 @@ Reglamento de Dedicación Exclusiva
 | --- | --- | --- |
 | 1 | 2010-05-06 | la propia norma |
 | 2 | 2010-05-06 | Reglamento municipal 1 (2010-05-05) |
+| 3 | 2014-03-31 | Reglamento municipal 91 (2014-03-31) |
