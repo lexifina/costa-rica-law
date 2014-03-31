@@ -1,1 +1,0 @@
-Artículo 8º—Tiempo límite para la recepción de apuestas. La recepción de apuestas para cada jornada se inicia a partir del momento en que la Junta lo defina en el sistema automatizado. La hora de cierre o momento en que se cierra la recepción de apuestas en cada jornada, se establece los sábados a las 11:30 a.m.

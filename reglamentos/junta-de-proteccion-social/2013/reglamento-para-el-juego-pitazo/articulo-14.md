@@ -1,1 +1,0 @@
-Artículo 14.—Premios no cambiados. Los premios disponibles en cada programa que no hayan sido cambiados al finalizar el plazo para hacer efectivos los premios, se consideran parte de las utilidades del juego.
