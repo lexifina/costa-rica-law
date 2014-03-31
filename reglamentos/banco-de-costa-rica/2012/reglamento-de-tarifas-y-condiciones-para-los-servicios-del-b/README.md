@@ -15,3 +15,4 @@ Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica
 | --- | --- | --- |
 | 1 | 2012-12-13 | la propia norma |
 | 2 | 2013-06-24 | Reglamento 24 (2013-06-24) |
+| 3 | 2014-03-31 | Reglamento 13 (2014-03-31) |

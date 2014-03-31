@@ -45,8 +45,8 @@ Remplazo por pérdida o daño | $35.00
 4.10.- Transferencia por medio de web corporativo
 - Para los débitos en tiempo real $2.00
 - Para los débitos directos $0.75
-4.11 Bancatel
+(*) 4.11.- Bancatel Negocios
 $ 2.00 Comisión fija mensual
-Nota:
-Este costo incluye la consulta de 10 cheques al mes y se cobrará se utilice o no el servicio. Por cada consulta (después del décimo cheque) adicional, se cobrará $0.25
+Nota: en este caso la comisión corresponde al derecho de uso del servicio de Bancatel Negocios, de conformidad con el contrato que se suscriba para estos efectos.
 (Así adicionado el punto 4.11 anterior mediante sesión 24-13 del 24 de junio del 2013)
+(*)(Así reformado el punto 4.11) anterior mediante sesión N° 13-14 del 31 de marzo del 2014)

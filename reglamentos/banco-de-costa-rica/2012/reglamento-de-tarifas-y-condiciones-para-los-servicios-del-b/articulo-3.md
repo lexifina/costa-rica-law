@@ -1,8 +1,8 @@
 . Tarjetas de crédito y débito
 3.1.- Comisión por reemplazo normal y reposición
 $10.00
-Nota:
-Para los productos de compras institucionales y BCR Distribución no pagarán comisión por reemplazo. En aquellos casos donde la sustitución de la tarjeta sea por deterioro y el mismo no pueda ser atribuido al tarjetabiente no se pagara la comisión establecida en este ítem.
+Nota: para los productos de compras institucionales y BCR Distribución no pagarán comisión por reemplazo. En aquellos casos donde la sustitución de la tarjeta sea por deterioro y el mismo no pueda ser atribuido al tarjetabiente; así también por motivos de seguridad en que el Banco requiera realizar el cambio de las tarjetas; no se pagará la comisión establecida en este ítem.
+(Así reformado el punto 3.1) anterior mediante sesión N° 13-14 del 31 de marzo del 2014)
 3.2.- Comisión por adelanto de efectivo
 Tarjetas de crédito
 $1.00 + 4 % por avance efectivo utilizando cualquier medio disponible.

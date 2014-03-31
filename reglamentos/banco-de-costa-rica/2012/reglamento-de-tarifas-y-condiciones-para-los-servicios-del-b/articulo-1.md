@@ -14,14 +14,14 @@ Para créditos abiertos se cobrará cada vez que se realice una operación deriv
 4- Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR. A excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales.
 .
 (Así reformado el punto 1.1 anterior mediante sesión 24-13 del 24 de junio del 2013)
-1.2 Comisión de formalización para cambio de rubro mediante Anexo 19 y para dolarización mediante Anexo 22 de las DAC (personas físicas)
+(*) 1.2.- Comisión de formalización para cambio de rubro mediante Anexo 1 y para cambio de moneda mediante Anexo 2 de las DAC (personas físicas)
 - $300 de comisión de formalización en el caso de créditos que tengan menos de un año de constituidos.
 - $200 en los créditos que tienen más de un año y menos de tres años de constituidos.
 - $100 dólares para los créditos que tiene más de tres años de constituidos.
-Nota:
-Esta comisión no se podrá financiar agregando el monto correspondiente al monto de la deuda sujeta a cambio de rubro. El cliente deberá pagarla en efectivo o por cualquier otro medio.
+Nota: Esta comisión no se podrá financiar agregando el monto correspondiente al monto de la deuda sujeta a cambio de rubro. El cliente deberá pagarla en efectivo o por cualquier otro medio.
 Esta comisión aplica sólo para personas físicas y sólo para cambios de igual producto en BCR.
 (Así adicionado el punto 1.2 anterior mediante sesión 24-13 del 24 de junio del 2013)
+(*)(Así reformado el punto 1.2) anterior mediante sesión N° 13-14 del 31 de marzo del 2014)
 1.3.- Comisión de manejo de líneas de crédito revolutivas
 Esta comisión aplica para las líneas de crédito revolutivas y se cobra al formalizar cada giro de forma anualizada.
 Colones: 1.50% anualizado al formalizar
@@ -72,18 +72,17 @@ $20.00
 Nota:
 Incluye la tarifa del Registro Nacional más gastos de papel legal y timbres.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.8 al 1.9. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
-1.10.- Cobro administrativo de operaciones en mora.
-Créditos inferiores o iguales a $1,000.00: $10.00 mensuales
+(*) 1.10.- Cobro administrativo de operaciones en mora
+Créditos inferiores o iguales a $1,000.00 $10.00 mensuales.
 Créditos superiores a $1.000:
 1-10 días $15.00
 11-30 días $20.00
 31-60 días $30.00
 61días de atraso en adelante $50.00
-Nota:
-Rige para todos los créditos nuevos otorgados a partir de la aprobación de esta tarifa, cuyo monto original sea inferior o igual a $1.000.00 o su equivalente en colones y que al momento del pago se encuentre en cartera normal, en cobro administrativo y/o judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha de vencimiento de los intereses, para cada cuota según la antigüedad de mora que tenga.
-Los créditos otorgados antes de esta modificación se regirán por la anterior tarifa, o según lo establezca la cláusula y/o adenda en el contrato de crédito respectivo.
-(Así reformado mediante sesión 24-13 del 24 de junio del 2013)
+Nota: rige para todos los créditos nuevos otorgados a partir de la aprobación de esta tarifa y que al momento del pago se encuentre en cartera normal, en cobro administrativo o judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha de vencimiento de los intereses, para cada cuota según la antigüedad de mora que tenga.
+Los créditos otorgados antes de esta modificación se regirán por la anterior tarifa, o según lo establezca la cláusula o adenda en el contrato de crédito respectivo.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.9 al 1.10. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
+(*)(Así reformado el punto 1.10) anterior mediante sesión N° 13-14 del 31 de marzo del 2014)
 1.11.- Cobro telegramas enviados operaciones vencidas
 $5.00
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.10 al 1.11. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
