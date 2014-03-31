@@ -1,6 +1,0 @@
-Artículo 4º—Del juego denominado Lotto
-Lotto: Este es un juego por medio del cual el jugador elige cinco números diferentes de dos dígitos entre el 01 y el 35. La Junta se reserva el derecho de disminuir o aumentar la cantidad de números disponibles para ser seleccionados así como la cantidad de números a seleccionar.
-La Junta realizará un sorteo en donde se seleccionará al azar la combinación ganadora conformada por cinco números. Se pagará el acierto de 5, 4, 3 y 2 números de esta combinación ganadora.
-La determinación y selección de las apuestas ganadoras será, independientemente del orden obtenido durante la extracción de los números.
-Las apuestas de este juego se pueden efectuar directamente en los puntos de venta autorizados. El jugador, para realizar la apuesta, debe indicar la combinación de cinco números diferentes, de dos dígitos cada uno, que van del 01 al 35 sin importar el orden.
-El punto de venta debe entregar un comprobante que respalde las transacciones de venta del Juego Lotto.
