@@ -1,0 +1,1 @@
+Artículo 13.—Plazo para hacer efectivos los premios. El plazo para hacer efectivos los premios, es de sesenta días naturales, contando a partir del día hábil siguiente a la realización del sorteo. Si el plazo se computa en un día inhábil el premio se hará efectivo el día hábil inmediato siguiente.

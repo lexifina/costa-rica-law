@@ -1,0 +1,3 @@
+Artículo 12.—Pago de premios. Los premios serán pagados al portador del comprobante de la apuesta, en los puntos de venta. Los requisitos para hacer efectivo un premio son presentar el comprobante de apuesta y un documento de identificación vigente (cédula de identidad, cédula de residencia o pasaporte).
+En caso de extravío del comprobante de la apuesta, no existirá manera de hacer efectivo el cambio de premio.
+En caso de que el comprobante de la apuesta presentase un daño físico, el jugador deberá presentar dicho comprobante a la Junta en cuyo caso esta última podrá revisar si con los datos que quedaron sin daño es suficiente para poder realizar el pago. En caso de que el daño no lo permita, el pago del premio no se podrá realizar
