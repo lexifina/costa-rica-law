@@ -1,0 +1,2 @@
+Artículo 10.—Metodología para la realización de los sorteos. Los sorteos se realizarán con la extracción de cinco números del 01 al 35 por medio de las tómbolas de aire o manuales.
+Luego de la realización del sorteo se procede a incluir la información por parte de los funcionarios designados para tal efecto en los sistemas respectivos. Posteriormente se elabora y firma el acta respectiva donde se oficializa el resultado del sorteo y se cargan los datos necesarios para generar los pagos de los premios correspondientes.
