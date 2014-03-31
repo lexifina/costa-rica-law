@@ -14,3 +14,4 @@ Reforma Integral Reglamento General de Crédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-27 | la propia norma |
+| 2 | 2014-03-31 | Reglamento 2 (2014-03-31) |
