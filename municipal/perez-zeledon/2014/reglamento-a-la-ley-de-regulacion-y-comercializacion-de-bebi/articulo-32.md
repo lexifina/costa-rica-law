@@ -1,0 +1,2 @@
+Artículo 32.—Regulación y Control de Propaganda. El Instituto Nacional sobre Alcoholismo será el responsable de regular y controlar todo tipo de propaganda de bebidas con contenido alcohólico, lo anterior, conforme a las regulaciones existentes. Dicho instituto trasladará a la Municipalidad los informes respectivos sobre las infracciones detectadas en un determinado establecimiento comercial.
+Las infracciones confirmaciones en este tema, serán sancionadas conforme a lo detallado al artículo 28 de este reglamento.

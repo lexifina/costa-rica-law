@@ -1,0 +1,1 @@
+Artículo 14.—Plazo para resolver: La Municipalidad deberá emitir la resolución respectiva, debidamente motivada, en la cual se comunique el otorgamiento, renovación o denegatoria de la licencia dentro de los 30 días naturales a partir de la presentación de la solicitud.

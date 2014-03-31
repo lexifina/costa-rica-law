@@ -1,0 +1,2 @@
+Artículo 27.—Sanciones relativas a la venta ilegal: Conforme a lo que establece el artículo 21 de la ley, la sanción a quien comercialice bebidas con contenido alcohólico, sin contar con una licencia vigente y expendida por la municipalidad; se aplicara una sanción al equivalente a sesenta días multa.
+Las bebidas con contenido alcohólico relacionados con la venta ilegal, será decomisados y entregados a los Tribunales de Justicia como evidencia de hecho delictivo.

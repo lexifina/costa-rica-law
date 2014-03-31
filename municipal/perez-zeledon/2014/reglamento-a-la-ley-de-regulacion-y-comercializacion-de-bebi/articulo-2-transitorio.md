@@ -1,0 +1,4 @@
+Transitorio II.
+Situación existente y de hecho: Los establecimientos ya existentes autorizados con la ley anterior y que no cumplan con los requisitos exigidos en el artículo 9 de la Ley 9047 y que además que por su ubicación no esté permitida; para su correspondiente clasificación y/o aprobación de licencia para la comercialización de bebidas con contenido alcohólico, podrán permanecer igual, siempre y cuando la Municipalidad valorando criterios de conveniencia, racionalidad, proporcionalidad, razonabilidad, interés superior sobre el menor, riesgo social y desarrollo equilibrado del cantón, así como al respeto de la libertad de comercio y del derecho a la salud.
+El presente reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.
+San Isidro de El General, 19 de marzo del 2014.—

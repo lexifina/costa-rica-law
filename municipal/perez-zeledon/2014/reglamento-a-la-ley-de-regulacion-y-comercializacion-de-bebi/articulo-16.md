@@ -1,0 +1,1 @@
+Artículo 16.—Revocación de licencia: La licencias autorizadas podrán renovarse cuando se presente alguno de los casos citados en el artículo 6 de la Ley número 9047. Para el proceso de revocación, se deberá cumplir con el debido proceso conforme lo establece la legislación vigente.

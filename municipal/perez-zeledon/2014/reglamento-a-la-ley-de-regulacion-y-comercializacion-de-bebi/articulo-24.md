@@ -1,0 +1,3 @@
+Artículo 24.—Sanción relativa a la venta y permanencia de menores de edad y de personas con limitaciones cognoscitivas y volitivas: Conforme a lo que establece el artículo 16 de la ley, las sanciones se aplicarán de la siguiente forma:
+a) Los que vendan o faciliten bebidas con contenido alcohólico a menores de edad y a personas con limitaciones cognoscitivas y volitivas, serán sancionados con el equivalente a dos salarios base de multa.
+b) Los que permitan personas menores de edad y personas con limitaciones cognoscitivas y volitivas, en lugares no autorizados, serán sancionados con el equivalente a dos salarios base de multa.

@@ -1,0 +1,2 @@
+Artículo 21.—Prohibiciones. Cuando un negocio determinado fuere autorizado para funcionar como “Licorera, Minisúper o supermercado” no podrá vender, en ningún caso, licores para el consumo inmediato dentro del local y las inmediaciones dentro de la propiedad privada donde se ubica el negocio, ni tampoco lo podrá hacer mediante ventanas o construcciones similares que tengan comunicación con el medio ambiente externo.
+El incumplimiento a esta prohibición será sancionado conforme a lo que establece el artículo 6 inciso e) de la Ley.

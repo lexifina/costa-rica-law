@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones Finales
+Artículo 30.—Recursos. La resolución que denieguen una licencia o que imponga una sanción tendrá los recursos de revocatoria y apelación, de conformidad con lo establecido en el artículo 162 del Código Municipal. En los casos en que la resolución sea emitida por el Concejo Municipal, cabrá solamente el recurso de reconsideración.
