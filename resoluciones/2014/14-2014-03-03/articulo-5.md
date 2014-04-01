@@ -1,0 +1,1 @@
+Artículo 5º—Se deja sin vigencia la resolución DGH-034- 2013 Y DGA-272-2013 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las 10 horas del día 29 de agosto del 2013, publicada en el Alcance Digital Nº 58 a La Gaceta Nº 186, del 27 de setiembre del 2013.
