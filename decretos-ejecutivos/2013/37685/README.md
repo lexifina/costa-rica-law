@@ -14,3 +14,4 @@ Integración del Consejo de Transporte Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-22 | la propia norma |
+| 2 | 2014-04-01 | Decreto Ejecutivo 38369 (2014-04-01) |
