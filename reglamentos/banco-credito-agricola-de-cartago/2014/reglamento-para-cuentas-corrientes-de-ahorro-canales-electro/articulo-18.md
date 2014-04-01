@@ -1,0 +1,1 @@
+Artículo 18.—Saldo mínimo promedio mensual. Todo cliente, a partir del momento de la apertura del producto, queda obligado a mantener un saldo mínimo promedio mensual que se fijará y podrá ser ajustado a discreción del Banco, el cual se incluye la Tabla de Tarifas y Comisiones.

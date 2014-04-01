@@ -1,0 +1,1 @@
+Artículo 33.—Solicitud de información a otras entidades. El cliente autoriza al Banco para los efectos de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, para que verifique o solicite información ante cualquier instancia pública y privada que considere conveniente.

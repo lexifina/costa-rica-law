@@ -1,0 +1,1 @@
+Artículo 20.—Débitos automáticos. El cliente podrá autorizar al Banco para efectuar débitos de su cuenta corriente o ahorro, con el fin de que sean aplicados a los diferentes pagos automáticos de servicios directos que el Banco ofrece.

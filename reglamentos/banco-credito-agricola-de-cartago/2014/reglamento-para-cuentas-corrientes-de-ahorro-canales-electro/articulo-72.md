@@ -1,0 +1,1 @@
+Artículo 72.—Tarjeta Multiclave. Para el uso del servicio Bancrédito internet, el Banco entregará al cliente un nombre de usuario y contraseña, así como una tarjeta con una matriz de valores, denominada MULTICLAVE.

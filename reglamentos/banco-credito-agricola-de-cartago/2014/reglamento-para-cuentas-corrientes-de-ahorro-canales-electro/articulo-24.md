@@ -1,0 +1,1 @@
+Artículo 24.—Prohibición de uso de los servicios: ahorros, cuentas corrientes y cajitas de seguridad: La prestación y acceso de estos servicios, queda sujeta a que el cliente cuente con las capacidades cognoscitivas y volitivas para recibirlos.

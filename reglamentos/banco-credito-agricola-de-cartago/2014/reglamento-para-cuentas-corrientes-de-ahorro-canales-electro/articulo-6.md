@@ -1,0 +1,3 @@
+CAPÍTULO II
+Disposiciones Generales para el uso de los productos
+Artículo 6°—Facultad para abrir cuentas corrientes, cuentas de ahorro cajitas de seguridad y canales electrónicos conexos. El Banco está facultado para abrir cuentas corrientes y de ahorro en moneda nacional o extranjera, así como arrendar cajitas de seguridad a personas físicas nacionales o extranjeros y personas jurídicas constituidas en el territorio nacional, quienes podrán ser propietarios y copropietarios según corresponda, conforme a los requisitos establecidos por el Banco. De igual forma, éste podrá denegar al cliente las solicitudes de acuerdo con sus políticas internas.

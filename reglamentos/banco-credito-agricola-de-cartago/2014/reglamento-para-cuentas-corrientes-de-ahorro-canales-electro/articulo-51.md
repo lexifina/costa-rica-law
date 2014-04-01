@@ -1,0 +1,6 @@
+Artículo 51.—Contraorden de pago. El Banco podrá recibir una contraorden o suspensión de pago de un cheque, según lo establecido en los artículos 822 y 824 del Código de Comercio por hurto, robo, pérdida o haberse ejercido violencia para la obtención de un cheque, bajo las siguientes condiciones:
+a) La contraorden de pago podrá realizarla el cliente titular o autorizado de la cuenta corriente, o en su defecto, su representante legal con poder y capacidad suficiente para este acto.
+b) La solicitud formal puede realizarse por Internet Banking o por carta presentada en las plataformas de servicios de los Puntos Comerciales.
+c) Si la solicitud de contraorden es puesta por el tenedor del cheque o un firmante autorizado, se realizará suspensión de pago, la cual, no excederá de cuatro días hábiles, salvo que el girador lo confirme presentando la solicitud formalmente.
+d) El Banco podrá proceder con un bloqueo preventivo de veinticuatro horas si el girador, firmante autorizado o tenedor del cheque, realizan solicitud de contraorden por medio telefónico, fax o correo electrónico, mientras presenta la solicitud formal según lo establecido en el presente documento.
+El Banco no tendrá responsabilidad alguna, si al momento en que se recibe la contraorden de pago, el cheque ya ha sido pagado.

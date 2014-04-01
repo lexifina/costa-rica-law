@@ -1,0 +1,1 @@
+Artículo 39.—Firmas falsificadas. En el caso de pago de cheques, solicitudes o trámites con autorizaciones escritas con firmas falsificadas, si tal falsificación no fuese visiblemente manifiesta, este hecho relevará al Banco de toda responsabilidad, de conformidad con lo que dispone el artículo 820 del Código de Comercio.

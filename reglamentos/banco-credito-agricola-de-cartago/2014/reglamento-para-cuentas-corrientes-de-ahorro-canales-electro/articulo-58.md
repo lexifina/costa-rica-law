@@ -1,0 +1,1 @@
+Artículo 58.—Obligaciones del arrendatario. El arrendatario recibe en buen estado y a su entera satisfacción la cajita de seguridad, con las cerraduras y llave en perfectas condiciones de seguridad y de servicio. Deberá dar cuenta al Banco de cualquier desperfecto; también deberá asegurarse que quede bien cerrada, una vez que se retire después de haberla utilizado.

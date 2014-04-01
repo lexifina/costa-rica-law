@@ -1,0 +1,1 @@
+Artículo 7°—Monto mínimo del depósito inicial. Corresponde al Banco definir y establecer los montos mínimos necesarios de depósito inicial, tanto en colones como en dólares y cualquier otra moneda autorizada, para abrir una cuenta corriente o una cuenta de ahorros.

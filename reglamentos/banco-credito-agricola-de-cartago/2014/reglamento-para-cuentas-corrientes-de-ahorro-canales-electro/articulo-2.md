@@ -1,0 +1,1 @@
+Artículo 2.—Ámbito de aplicación: Las disposiciones contenidas en este reglamento son de aplicación para las partes contratantes, sean estas personas físicas y jurídicas que adquieren un producto de cuenta corriente, cuenta de ahorro, cajitas de seguridad, así como de los canales asociados a éstos.

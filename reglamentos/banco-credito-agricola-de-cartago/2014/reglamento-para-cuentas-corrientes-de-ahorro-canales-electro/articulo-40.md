@@ -1,0 +1,1 @@
+Artículo 40.—Mecanismos para la verificación de firmas. El Banco y el cliente, de mutuo acuerdo, podrán establecer los mecanismos electrónicos que se consideren convenientes y apropiados para la verificación de firmas de las personas autorizadas en las cuentas corrientes, ahorros y cajitas de seguridad.

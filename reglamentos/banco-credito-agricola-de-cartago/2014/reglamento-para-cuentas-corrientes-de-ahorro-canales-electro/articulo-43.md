@@ -1,0 +1,2 @@
+Artículo 43.—Débitos de mérito. El Banco está facultado para realizar débitos de mérito a las cuentas corrientes por devoluciones de cheques y otros valores depositados, por cobro de comisiones, diferencias determinadas en los depósitos recibidos o por aquellos servicios propios de operación de la Cuenta Corriente.
+Las tarifas por servicios serán revisadas y ajustadas periódicamente e incluidas en la Tabla de Tarifas y Comisiones para los Servicios de Bancrédito, que se publica en el Diario Oficial La Gaceta.

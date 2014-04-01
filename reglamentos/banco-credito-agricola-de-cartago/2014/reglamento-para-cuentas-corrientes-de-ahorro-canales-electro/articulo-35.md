@@ -1,0 +1,1 @@
+Artículo 35.—Cumplimiento de recomendaciones de seguridad. El cliente se obliga a acatar las recomendaciones que en materia de seguridad emita el Banco y su incumplimiento será motivo de suspensión del servicio.

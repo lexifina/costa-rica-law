@@ -1,0 +1,1 @@
+Artículo 63.—Imposibilidad de la apertura. No habrá lugar a reclamo de ninguna especie por los perjuicios que sufra el arrendatario, en los casos de demora o imposibilidad de abrir la cajita de seguridad, causados por fuerza mayor o caso fortuito.

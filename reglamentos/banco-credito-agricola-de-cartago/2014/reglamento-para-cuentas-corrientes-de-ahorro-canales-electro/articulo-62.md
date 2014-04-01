@@ -1,0 +1,1 @@
+Artículo 62.—Reposición de la llave. Si el arrendatario pierde o deteriora la llave de la cajita, deberá comunicarlo inmediatamente al Banco y cancelar todos los gastos que ocasione la reposición de ésta.

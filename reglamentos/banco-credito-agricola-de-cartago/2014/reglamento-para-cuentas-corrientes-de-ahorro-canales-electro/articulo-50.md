@@ -1,0 +1,1 @@
+Artículo 50.—Fecha de los cheques. El cliente debe anotar en los cheques la fecha de su emisión y bajo ninguna circunstancia podrá hacer uso de cheques como instrumento garante de crédito, ni con fechas posdatadas, y si lo hiciere, estos cheques serán tramitados, en atención a la naturaleza misma del documento de cheque.

@@ -1,0 +1,1 @@
+Artículo 67.—Cumplimiento de disposiciones nuevas. El arrendatario deberá cumplir cualquier otra disposición que llegue a acordar el Banco, para mejorar el servicio o para su propia seguridad y la del Banco.

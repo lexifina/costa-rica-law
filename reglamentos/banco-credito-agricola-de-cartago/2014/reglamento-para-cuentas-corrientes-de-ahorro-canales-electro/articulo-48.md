@@ -1,0 +1,2 @@
+Artículo 48.—Revisión de los libros de cheques. El cuentacorrentista está obligado a revisar cuidadosamente cada uno y verificar la correcta cantidad de fórmulas por cada libro, así como su numeración consecutiva.
+Si el cuentacorrentista detectara algún error, deberá comunicarlo al Banco en un plazo máximo de 24 horas, contadas desde el momento que hace el retiro de sus libros de cheques; si no lo hiciere, el Banco quedará exento de toda responsabilidad por los errores que el cliente no haya detectado, o por no dar aviso oportunamente.

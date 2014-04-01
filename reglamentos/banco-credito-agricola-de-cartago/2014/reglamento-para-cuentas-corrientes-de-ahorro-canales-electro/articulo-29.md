@@ -1,0 +1,1 @@
+Artículo 29.—Cargos por comisiones. El cliente autoriza al Banco a efectuar todos los cargos en sus cuentas, producto de las comisiones y gastos que los servicios ofrecidos le demanden de acuerdo a la Tabla de Tarifas y Comisiones vigente. El cliente conoce y acepta que cubrirá cualquier rubro adicional derivado de la implementación de esquemas de seguridad que utilice el Banco.

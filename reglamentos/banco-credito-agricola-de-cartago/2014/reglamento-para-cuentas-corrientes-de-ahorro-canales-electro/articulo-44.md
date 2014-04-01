@@ -1,0 +1,1 @@
+Artículo 44.—Endoso de los cheques. Todo cheque que se deposite en la cuenta corriente, debe ser endosado por el beneficiario y acompañarse con la leyenda o sello que indique que su valor es para depositar en la cuenta corriente.

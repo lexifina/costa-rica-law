@@ -1,0 +1,1 @@
+Artículo 73.—Plazo de los bloqueos. A través de los canales electrónicos, el cliente podrá realizar el bloqueo durante 4 días máximos de una cuenta corriente o de ahorro y órdenes de no pago sobre cheques, debiendo presentar en el Banco durante este lapso la confirmación en forma escrita de la orden emitida o su desbloqueo.

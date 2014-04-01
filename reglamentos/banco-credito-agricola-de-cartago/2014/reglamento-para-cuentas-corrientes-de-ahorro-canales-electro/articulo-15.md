@@ -1,0 +1,2 @@
+Artículo 15.—Impedimento para el uso de cuenta corriente, ahorros, cajitas de seguridad y canales electrónicos. El Banco no asume ninguna responsabilidad cuando el cliente no puede realizar sus operaciones por fallas o desperfectos en el sistema, fallas de fluido eléctrico o en cualquier otro evento fortuito o de fuerza mayor que impida la utilización efectiva de los sistemas del Banco.
+La prestación de los servicios que están regidos en el presente reglamento, queda sujeta a que el cliente cuente con las capacidades cognoscitivas y volitivas para recibirlos.

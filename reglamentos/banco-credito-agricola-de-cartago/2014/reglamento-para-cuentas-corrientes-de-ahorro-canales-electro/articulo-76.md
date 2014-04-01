@@ -1,0 +1,1 @@
+Artículo 76.—Cambio de número de teléfono. En caso de que el cliente cambie de número de teléfono, deberá presentarse a cualquiera de las oficinas comerciales del Banco, con su identificación y proceder a realizar la actualización correspondiente para que pueda seguir utilizando el servicio de SMS, mediante el teléfono y tecnología registrada en el Banco.

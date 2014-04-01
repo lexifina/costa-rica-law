@@ -1,0 +1,1 @@
+Artículo 28.—Cargos por impuestos. Los cargos que por concepto de impuestos, tasas, contribuciones, especies fiscales u otros, que por disposición de las Leyes puedan gravar los contratos de las cuentas, deberán ser asumidos exclusivamente por el cliente y el Banco se los deducirá de sus fondos.
