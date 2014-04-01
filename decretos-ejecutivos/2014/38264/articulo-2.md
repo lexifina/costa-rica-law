@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo N° 38097-H de fecha 3 de diciembre del 2013, publicado en el Diario Oficial La Gaceta N° 247 de fecha 23 de diciembre del 2013, a partir de la vigencia del presente decreto.
