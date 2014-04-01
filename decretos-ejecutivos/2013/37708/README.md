@@ -14,3 +14,4 @@ Nombramiento y Designación de miembro suplente ante el Consejo de Transporte P�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-08 | la propia norma |
+| 2 | 2014-04-01 | Decreto Ejecutivo 38369 (2014-04-01) |
