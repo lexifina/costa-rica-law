@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Objetivo del Programa de Innovación y Capital Humano para la Competitividad
+El Programa tiene como objetivo general contribuir con el crecimiento de la productividad mediante el apoyo a las actividades de innovación del sector productivo y la formación de capital humano avanzado en áreas estratégicas definidas en el Plan Nacional de Ciencia, Tecnología e Innovación del Gobierno de Costa Rica.

@@ -1,0 +1,3 @@
+ARTÍCULO 6.- Exención de pago de impuestos
+No estarán sujetos al pago de ninguna clase de impuestos, timbres, tasas, contribuciones o derechos, los documentos que se requieran para formalizar el Contrato de Préstamo N.° 2852/OC-CR, así como su inscripción en los registros correspondientes queda exonerada de todo tipo de pago.
+Asimismo, las adquisiciones de bienes y servicios que se lleven a cabo en la ejecución e implementación del Programa no estarán sujetas al pago de ninguna clase de impuestos, tasas, sobretasas, contribuciones ni derechos de carácter nacional. La presente exoneración no rige para los contratos suscritos con terceros.
