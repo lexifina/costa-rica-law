@@ -1,0 +1,4 @@
+Artículo 12.—La Jefatura podrá excluir al profesional del rol de disponibilidad cuando se dé alguno de los siguientes casos:
+a. Cuando por el escaso volumen de trabajo reportado durante esta modalidad o por falta de contenido presupuestario por acto administrativo debidamente fundamentado, se justifique eliminar la disponibilidad. Para este efecto, la Gerencia Médica del Hospital y las Jefaturas de Departamento respectivas, deberán adoptar las medidas necesarias de conformidad con las evaluaciones periódicas que realice la Gerencia General, o las propias jerarquías hospitalarias.
+b. Cuando el médico haya incumplido con las obligaciones que en virtud de este Reglamento asume durante la jornada de disponibilidad.
+c. Cuando se demuestre negligencia en las actuaciones del médico especialista respecto de sus funciones en el horario de disponibilidad.
