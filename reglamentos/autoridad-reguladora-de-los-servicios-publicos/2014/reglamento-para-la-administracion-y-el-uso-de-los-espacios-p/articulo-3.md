@@ -1,0 +1,1 @@
+Artículo 3º—Naturaleza del espacio de estacionamiento. La facilidad de espacio para estacionamiento concedida a los funcionarios no podrá ser considerada, en ningún caso y para ningún efecto, como salario en especie ni como derecho adquirido.

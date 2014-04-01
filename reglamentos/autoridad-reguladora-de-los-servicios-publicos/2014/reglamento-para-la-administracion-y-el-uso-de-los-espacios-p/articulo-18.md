@@ -1,0 +1,1 @@
+Artículo 18.—Responsabilidad de la Autoridad Reguladora. La Autoridad Reguladora no asumirá ninguna responsabilidad por cualquier tipo de accidente o incidente que ocurra dentro del estacionamiento, salvo que intervenga un vehículo propiedad de la Institución, en cuyo caso se aplicará lo indicado en la normativa vigente.

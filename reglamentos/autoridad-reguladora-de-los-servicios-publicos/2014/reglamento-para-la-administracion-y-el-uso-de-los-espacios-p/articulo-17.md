@@ -1,0 +1,1 @@
+Artículo 17.—Responsabilidad por daños en el estacionamiento. Quienes ocasionen daños en el estacionamiento, serán responsables ante cualquier reclamo civil o penal que se origine, sin detrimento de cualquier sanción administrativa que proceda aplicar por parte de la Administración en apego al debido proceso.

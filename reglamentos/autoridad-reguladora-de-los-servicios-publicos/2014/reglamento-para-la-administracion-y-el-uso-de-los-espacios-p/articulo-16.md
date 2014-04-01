@@ -1,0 +1,4 @@
+Artículo 16.—Inspecciones y denuncias. El Departamento de Servicios Generales podrá constatar el cumplimiento de las obligaciones con respecto al uso del espacio de estacionamiento, a través de la atención de denuncias o de oficio, a través de inspecciones.
+Las denuncias que se recibieren serán incorporadas, tramitadas y decididas en un expediente administrativo.
+Las declaraciones de las partes, testigos y las inspecciones, deberán ser consignadas en un acta, conforme lo establecido en el artículo 270 de la Ley General de la Administración Pública. En lo posible el acta se levantará en presencia de la persona a quien afecta o en su defecto en presencia de dos testigos, quienes pueden ser parte del personal de la Autoridad Reguladora.
+De comprobarse el incumplimiento de este reglamento se le revocará la facilidad conforme lo dispuesto en el artículo 19 de este reglamento.

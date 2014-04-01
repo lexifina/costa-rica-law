@@ -1,0 +1,2 @@
+Transitorio I.—Por una única vez a partir de la entrada en vigencia de este reglamento, el Departamento de Servicios Generales realizará el estudio regulado en el presente reglamento.
+El Departamento de Servicios Generales emitirá la resolución de asignación de espacios de estacionamiento de la Autoridad Reguladora dentro de los 30 días naturales siguientes a la entrada en vigencia de este reglamento. Dicha resolución regirá a partir de su emisión y hasta la tercera semana del mes de enero del año 2016.
