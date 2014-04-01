@@ -14,3 +14,4 @@ Declaratoria de interés público todos los actos y ceremonias relativos a la tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-16 | la propia norma |
+| 2 | 2014-04-01 | Decreto Ejecutivo 38324 (2014-04-01) |
