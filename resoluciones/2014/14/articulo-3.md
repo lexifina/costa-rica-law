@@ -1,0 +1,1 @@
+3. Que con el fin de atender la solicitud planteada por la Oficina Técnica del Ozono de Dirección de Gestión de Calidad Ambiental, del MINAE, se realizarán los cambios en el Arancel automatizado, los cuales empezarán a regir quince días hábiles después de la publicación de la presente resolución en el Diario Oficial La Gaceta.
