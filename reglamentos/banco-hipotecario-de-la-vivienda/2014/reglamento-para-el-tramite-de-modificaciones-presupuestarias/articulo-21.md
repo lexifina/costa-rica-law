@@ -1,0 +1,1 @@
+Artículo 21.—Los presupuestos extraordinarios deben contar con aprobación del Jerarca Superior del Banco y de la Contraloría General de la República de conformidad con lo establecido en la norma 4.3.12 de las NTPP.

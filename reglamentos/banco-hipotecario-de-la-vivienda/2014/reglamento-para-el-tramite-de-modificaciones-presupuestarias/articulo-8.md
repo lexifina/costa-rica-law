@@ -1,0 +1,1 @@
+Artículo 8.—En el caso de solicitudes de plazas nuevas, reasignaciones y reclasificaciones de puestos, debe adjuntarse el estudio o recomendación elaborado por el Área de Recursos Humanos de la Dirección Administrativa.

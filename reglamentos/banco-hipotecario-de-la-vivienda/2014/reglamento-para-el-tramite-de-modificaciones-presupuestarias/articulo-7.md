@@ -1,0 +1,1 @@
+Artículo 7º—El Departamento Financiero-Contable y su Área de Presupuesto, producto de la revisión de las solicitudes de variación presupuestaria podrá solicitar a los encargados de las unidades ejecutoras, aclaración, ampliación o modificación de la información que contiene la solicitud de variación de presupuesto, de conformidad con la normativa que rige esta materia.

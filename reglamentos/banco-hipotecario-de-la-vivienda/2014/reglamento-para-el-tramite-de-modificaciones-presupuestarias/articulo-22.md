@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones generales
+Artículo 22.—Las Variaciones Presupuestarias sometidas a conocimiento y aprobación del Jerarca Superior del Banco, la Autoridad Superior Administrativa y la Subgerencia Financiera, deben incluir dentro de los documentos de respaldo la Certificación emitida por la Caja Costarricense del Seguro Social, donde conste que el BANHVI se encuentra al día, en el pago de las cuotas patronales y obreras, o que existe, en su caso, el correspondiente arreglo de pago debidamente aceptado y la Certificación de verificación de requisitos del bloque de legalidad que debe cumplir el presupuesto inicial y sus variaciones de los Bancos Públicos sujetos a la aprobación presupuestaria de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 4º—La formulación y ejecución de las modificaciones presupuestarias, será responsabilidad de la Subgerencia Financiera, a través del Departamento Financiero-Contable y su Área de Presupuesto.

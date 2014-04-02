@@ -1,0 +1,1 @@
+Artículo 9.—El Departamento Financiero-Contable y su Área de Presupuesto, serán los responsables de velar porque cada modificación cuente con su respectivo expediente y numeración propia, siendo el responsable de su custodia el Oficial de Presupuesto, de conformidad con lo establecido en la norma 4.3.13, inciso g) de las NTPP.

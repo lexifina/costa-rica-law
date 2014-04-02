@@ -1,0 +1,1 @@
+Artículo 6º—Las variaciones presupuestarias que soliciten las Unidades Ejecutoras, deben ser debidamente justificadas, especificando en caso de proceder, los cambios o ajustes que requiere el Plan Operativo Institucional (POI), así como revisar y ajustar en lo que corresponda, la programación física financiera, normas 4.3.6 y 4.3.7 de las NTPP.

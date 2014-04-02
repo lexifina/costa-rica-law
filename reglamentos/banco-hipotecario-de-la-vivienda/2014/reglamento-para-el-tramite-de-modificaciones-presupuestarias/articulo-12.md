@@ -1,0 +1,1 @@
+Artículo 12.—Los presupuestos extraordinarios y las modificaciones presupuestarias deberán ser formulados, aprobados, ejecutados, controlados y evaluados, con estricto apego al bloque de legalidad y con la normativa técnica establecida, norma 4.3.12 de las NTPP.

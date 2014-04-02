@@ -1,0 +1,1 @@
+Artículo 10.—La Subgerencia Financiera, el Departamento Financiero Contable y su Área de Presupuesto, serán los responsables de elaborar las modificaciones presupuestarias, para presentarlas a la Autoridad Superior Administrativa para su conocimiento, aprobación y posterior remisión al Jerarca Superior del Banco para su conocimiento y aprobación definitiva.

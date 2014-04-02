@@ -1,0 +1,1 @@
+Artículo 11.—Corresponde al Departamento Financiero- Contable y su Área de Presupuesto, aplicar en el Sistema de Información sobre Planes y Presupuestos Públicos de la Contraloría General de la República, las modificaciones presupuestarias correspondientes al Banco.
