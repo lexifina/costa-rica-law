@@ -1,0 +1,2 @@
+Artículo 72.- Instructivos, software de ayuda e información en sitios Web.
+La Administración Tributaria debe difundir y mantener actualizada toda la información que se refiera a instructivos, software de ayuda, trámites, solicitudes de información y obligaciones tributarias, entre otros, en sus sitios Web y en el Catálogo Nacional de Trámites, para garantizar un servicio de información y divulgación oportuno.

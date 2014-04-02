@@ -1,0 +1,2 @@
+Artículo 30.- Omisión en la obligación de modificar datos.
+Ante la omisión de los obligados tributarios de comunicar cualquier modificación de datos de trascendencia tributaria, la Administración Tributaria está facultada para modificar de oficio aquellos datos que no se conformen con la realidad del obligado tributario.

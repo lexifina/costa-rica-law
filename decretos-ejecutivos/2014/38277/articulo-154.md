@@ -1,0 +1,3 @@
+Artículo 154.- Valoración de alegatos y pruebas presentadas.
+En los casos en que se hubieren presentado en el plazo establecido en el artículo anterior, alegatos y pruebas contra la propuesta provisional de regularización y contra la propuesta de resolución sancionadora, los funcionarios actuantes los valorarán y elaborarán informes escritos en los que consten las razones por las cuales resultan procedentes o no.
+El informe se emitirá en dos tantos, con las firmas de los funcionarios actuantes y el titular del órgano de fiscalización, incorporándose un tanto al expediente que corresponda y entregándose el otro al sujeto fiscalizado, con ocasión de la celebración de la audiencia final a que se refiere el artículo 155 siguiente.

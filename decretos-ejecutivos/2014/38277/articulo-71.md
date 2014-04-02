@@ -1,0 +1,3 @@
+Artículo 71.- Educación y Cultura Fiscal.
+La Dirección General de Tributación debe promover y desarrollar todo lo referente a la educación y cultura fiscal, así como implementar el Plan Nacional de Educación Fiscal, promoviendo la conciencia ciudadana para el cumplimiento voluntario de las obligaciones tributarias y el ejercicio de una ciudadanía participativa y responsable.
+Para ello, debe establecer los procedimientos de coordinación necesarios con los diferentes entes encargados de la educación a nivel nacional y con otras instancias, donde pueda desarrollarse el tema para la implementación de una estrategia nacional de Educación Fiscal, así como el planteamiento de la revisión de los contenidos curriculares en Educación Fiscal.

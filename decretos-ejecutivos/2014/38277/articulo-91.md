@@ -1,0 +1,9 @@
+Artículo 91.- Lugar de la primera notificación.
+En el inicio de cada procedimiento, se realizará por única vez, una notificación en el domicilio fiscal, si se encuentra registrado en la Administración Tributaria.
+De lo contrario, la primera notificación se debe realizar personalmente en alguno de los siguientes lugares:
+a) Las oficinas de la Administración. Cuando el interesado concurra directamente a las oficinas de la Administración Tributaria.
+b) El Domicilio social. Para personas jurídicas, cuando se notifique en el domicilio social, dejando la notificación con cualquier persona que trabaje directamente para la empresa.
+c) El lugar de trabajo. Cuando se notifique a las personas físicas, en su lugar de trabajo, en forma personal o a cualquier persona que trabaje directamente para la empresa, en el caso de las personas jurídicas.
+d) El Domicilio primario. Cuando se notifique en el domicilio o casa de habitación, para las personas físicas, a cualquier persona mayor de quince años, que se hallare en el domicilio.
+Cuando no se conozca el domicilio del obligado tributario o no se encuentre en éste a la persona, representante u otro, directamente vinculado con el obligado tributario o bien, tratándose de personas no domiciliadas en el país se desconozca la existencia de algún apoderado en el territorio nacional, se notificará mediante un solo edicto en los términos del artículo 92 de este Reglamento.
+Toda resolución o acto administrativo que se notifique al obligado tributario debe advertir el señalamiento de medio o lugar para recibir notificaciones y en caso de que no lo haga, las resoluciones o actos que se dicten con posterioridad, quedarán notificados con el solo transcurso de veinticuatro horas, después de dictados. Si el obligado tributario se presenta durante el transcurso del procedimiento o diligencia, una vez iniciada esta, tomará el procedimiento o diligencia en la etapa procesal en que se encuentre.

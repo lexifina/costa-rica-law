@@ -1,0 +1,3 @@
+Artículo 167.- Efecto de la determinación sobre otros impuestos o períodos.
+Si la actuación realizada comprende varios impuestos o períodos impositivos y los
+aumentos determinados implican disminuciones en otros impuestos o períodos respecto al mismo sujeto inspeccionado, las determinaciones respectivas se efectuarán cuando los aumentos determinados adquirieran firmeza en la vía administrativa. Todo lo anterior, sin perjuicio del derecho que le asiste de rectificar si así lo estimara, las declaraciones tributarias de otros impuestos y períodos que se vieran afectados y no estuvieren comprendidos dentro de los inspeccionados.

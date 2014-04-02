@@ -1,0 +1,3 @@
+Artículo 228.- Retenciones en Títulos de Propiedad de Deuda Interna en Unidades de Desarrollo.
+Sin perjuicio de los requisitos que al efecto establezca el emisor, cuando las sumas retenidas indebidamente sean por intereses generados por Títulos de Propiedad de Deuda Interna en Unidades de Desarrollo, el inversionista debe demostrar ante la Tesorería Nacional su condición de exento del Impuesto sobre la Renta y adjuntar certificación de la Central de Valores correspondiente, referida a los días de tenencia del título.
+Para el cálculo del monto a devolver, la Tesorería Nacional debe convertir las Unidades de Desarrollo, de acuerdo con el valor establecido por el Banco Central de Costa Rica para el día de vencimiento del cupón.

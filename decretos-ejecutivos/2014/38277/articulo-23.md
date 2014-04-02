@@ -1,0 +1,2 @@
+Artículo 23.- Obligación de comunicar la modificación de datos.
+Los obligados tributarios deben comunicar toda modificación de sus datos de trascendencia tributaria, únicamente en la forma y por los medios que determine la Administración Tributaria, vía resolución general, dentro del plazo de diez días hábiles contados a partir de la modificación.

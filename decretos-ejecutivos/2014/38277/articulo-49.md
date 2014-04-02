@@ -1,0 +1,3 @@
+Artículo 49.- Requerimientos de información confidencial por parte de la Administración Tributaria.
+La información confidencial obtenida por otros entes públicos cuya potestad es otorgada por leyes no tributarias, debe ser trasladada a la Administración Tributaria cuando así se le requiera, en forma individual o generalizada, siempre que la información tenga el carácter de información previsiblemente pertinente para efectos tributarios.
+Salvo las excepciones establecidas en el artículo 105 incisos a), b), c) y d) del Código o de norma legal que prohíba expresamente su traslado para fines tributarios, el incumplimiento de esta disposición hace incurrir al infractor en las sanciones administrativas establecidas por tal omisión en el Código.

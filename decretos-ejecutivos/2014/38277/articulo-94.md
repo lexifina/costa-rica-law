@@ -1,0 +1,2 @@
+Artículo 94.- Requisitos y contenido de la notificación.
+Toda notificación debe contener el número único de expediente, el nombre de la oficina donde se realiza el trámite o procedimiento, la naturaleza del proceso, el nombre completo del obligado tributario y el número del documento de identificación. Además, debe contener la copia de la resolución que se comunica, con el texto íntegro del acto, indicación de los recursos procedentes, el órgano ante el cual deben interponerse y el plazo para interponerlos.

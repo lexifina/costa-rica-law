@@ -1,0 +1,3 @@
+Artículo 216.- Resolución y recursos.
+Corresponde al Gerente de la Administración Tributaria Territorial respectiva o a la Dirección de Grandes Contribuyentes Nacionales, emitir la resolución de devolución, en la que se liquida tanto el principal como los intereses si corresponden, cuando se verifique la existencia de saldos acreedores, en virtud de los actos de instrucción desarrollados.
+Contra la resolución que deniegue, total o parcialmente la solicitud de devolución de saldo acreedor, el interesado puede interponer el recurso de apelación ante el Tribunal Fiscal Administrativo, dentro del plazo de los treinta días siguientes a la fecha de su notificación.

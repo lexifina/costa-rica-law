@@ -1,0 +1,2 @@
+Artículo 48.- Confidencialidad de la información al amparo de convenios internacionales.
+La información obtenida al amparo de las disposiciones de un convenio internacional que contemple el intercambio de información en materia tributaria, incluido el requerimiento de información que realiza el otro Estado Contratante, constituye información confidencial y debe ser protegida de la misma manera en que se trata la información tributaria que se recibe al amparo de las leyes nacionales.

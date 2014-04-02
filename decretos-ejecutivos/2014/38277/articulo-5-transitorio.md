@@ -1,0 +1,1 @@
+TRANSITORIO V.- Durante el plazo de un año a partir de la vigencia de este Reglamento, aquellas Administraciones Tributarias que no lo hayan implementado, deberán poner a disposición de los obligados tributarios, los formularios en que se incluya la solicitud de compensación de una deuda contra saldos acreedores, sean estos documentos físicos o virtuales.

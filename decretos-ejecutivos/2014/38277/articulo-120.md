@@ -1,0 +1,7 @@
+Sección II
+Procedimiento de liquidación previa
+Artículo 120.- Liquidación previa por comprobación abreviada o comprobación formal.
+Para practicar las liquidaciones previas, la Administración podrá efectuar las actuaciones de comprobación abreviada que sean necesarias, entendiéndose como tales aquellas que se realizan utilizando los datos y elementos de prueba que obren ya en poder de la Administración o que solicite al obligado tributario, sin que se puedan extender al examen de la documentación contable de actividades empresariales o profesionales. En la preparación de las liquidaciones previas, la Administración podrá requerir información a terceros y realizar comprobaciones contables a los informantes.
+Cuando se efectúen liquidaciones previas, debe hacerse constar de forma precisa los hechos y elementos comprobados, los medios de prueba concretos utilizados y el alcance de las actuaciones.
+Si el sujeto pasivo incumplió el deber de declarar y de autoliquidar el impuesto, se le concederá un plazo de diez días hábiles para que proceda a presentar la declaración, transcurrido este sin que se haya subsanado el incumplimiento o justificado debidamente la inexistencia de la obligación, se podrá proceder a una comprobación abreviada.
+En las liquidaciones previas por comprobación formal se realizará únicamente una comprobación que consiste en la mera constatación de la existencia de los errores aritméticos o de derecho, en la declaración.

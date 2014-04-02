@@ -1,0 +1,4 @@
+Artículo 15.- Pago por terceros. Subrogación y emisión de certificación.
+El pago efectuado voluntariamente por un tercero extingue la obligación tributaria y quien pague se subroga el crédito, conjuntamente con sus garantías y privilegios, mas no en aquellas potestades que se deriven de la naturaleza pública del acreedor inicial. El tercero subrogante debe utilizar el recibo oficial de pago.
+La Administración Tributaria debe establecer por resolución general, los requisitos para la emisión de la certificación que permita al tercero demostrar al sujeto pasivo lo pagado a su nombre y para obtener la certificación debe comunicar previamente a la Administración su
+intención de pagar a favor del sujeto pasivo y aportar, con posterioridad al pago, el recibo oficial de pago como prueba para solicitar la certificación.

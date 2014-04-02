@@ -1,0 +1,4 @@
+Artículo 179.- Emisión del certificado de adeudo.
+1) Una vez vencido el plazo de quince días establecido en el artículo 192 del Código, dentro de los nueve meses siguientes a la expiración del plazo legal de pago, la Administración Tributaria certificará las deudas impagas por concepto de tributos y sanciones administrativas y remitirá el certificado a la Oficina competente, para que se inicie la etapa de cobro ejecutivo.
+2) Se certifican aquellas deudas producto de un procedimiento de determinación de obligaciones tributarias, una vez transcurrido el plazo de treinta días hábiles establecido en el artículo 144 del Código, aun cuando hayan sido objeto de recurso ordinario por parte del interesado.
+3) Para efectos de la responsabilidad solidaria, la Administración Tributaria emitirá un único certificado de adeudo que incluya a todos o algunos de los deudores solidarios, cuando se les haya instado previamente al pago, conforme al artículo 192 del Código.

@@ -1,0 +1,4 @@
+Artículo 224.- Generación de crédito a favor del agente de retención.
+Todo agente retenedor con responsabilidad de declarar, que ingrese al Fisco retenciones indebidas, puede generar el crédito mediante rectificación de su declaración, tanto de la
+rectificación mensual de ingreso como en la declaración de detalle de retenciones, si corresponde y siempre y cuando no haya trascurrido el término de prescripción.
+Salvo en los casos en que la retención se efectúe a un contribuyente total o parcialmente exento en cumplimiento de un procedimiento establecido por una norma o una resolución administrativa, el Fisco no responde ante el agente de retención por los intereses sobre el crédito, por considerarse que no fue inducido por la Administración Tributaria, y por no haberse afectado directamente el patrimonio del agente sino el de un tercero.

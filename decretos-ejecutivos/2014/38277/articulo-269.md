@@ -1,0 +1,2 @@
+Artículo 269.- Derogatorias.
+Deróguense los siguientes Decretos Ejecutivos, Reglamento General de Gestión, Fiscalización y Recaudación Tributaria Nº 29264-H del 24 enero de 2001, Reglamento sobre el Cierre de Negocios Nº 28926-H del 31 de agosto de 2000, Procedimiento Dación en Pago de tributos para contribuyentes morosos N°20870-H del 26 de octubre de 1991; así como las normas de igual o menor rango que se opongan al presente Reglamento.

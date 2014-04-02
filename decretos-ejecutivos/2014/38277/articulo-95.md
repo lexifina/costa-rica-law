@@ -1,0 +1,2 @@
+Artículo 95.- Obligación de identificarse de la persona que recibe la notificación.
+El notificador o la persona autorizada para notificar están investidos de autoridad para exigir la obligada y plena identificación de quien reciba el acta de notificación; así como para solicitar el auxilio de otras autoridades, cuando lo necesite para cumplir sus labores. Si la persona se negare a identificarse, el notificador o el funcionario designado lo consignará así en el acta respectiva.

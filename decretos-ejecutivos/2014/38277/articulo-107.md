@@ -1,0 +1,2 @@
+Artículo 107.- Solicitud de información por requerimiento de jurisdicción extranjera en aplicación de un convenio tributario internacional.
+La autoridad competente para recibir toda solicitud de intercambio de información por parte de una jurisdicción extranjera es el Director de la Dirección General de Tributación, quien la remitirá a la Dirección de Tributación Internacional y Técnica Tributaria, a fin de que esta proceda con los trámites respectivos para la debida respuesta.

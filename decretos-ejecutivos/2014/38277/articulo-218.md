@@ -1,0 +1,2 @@
+Artículo 218.- Ejecución de la devolución de saldos acreedores.
+Emitida y notificada al interesado la resolución que reconoce el crédito, esta es suficiente para reconocer la situación activa del sujeto pasivo frente a la Administración Tributaria y que el órgano competente ordene el giro de los montos reconocidos a favor del interesado, por medio de transferencia electrónica de fondos o cualquier otro procedimiento de pago que garantice la celeridad del envío de los fondos al solicitante.

@@ -1,0 +1,3 @@
+Artículo 9.- Imputación de pagos.
+La deuda correspondiente a cada tributo es independiente de las demás obligaciones a cargo del deudor. Al efectuar el pago, el deudor de varias deudas podrá imputarlo a aquella o aquellas que libremente elija. En los casos en que el deudor no indique la imputación del pago, la Administración Tributaria debe establecer por orden de antigüedad, los débitos determinados según la fecha de vencimiento del plazo para el pago de cada uno.
+En todos los casos, la imputación de pagos se hará primero a la totalidad de los intereses calculados a la fecha del pago y luego a la obligación principal. Esta regla es aplicable a todos los medios de extinción de la obligación tributaria.

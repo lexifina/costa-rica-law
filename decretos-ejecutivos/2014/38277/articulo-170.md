@@ -1,0 +1,2 @@
+Artículo 170.- Actuaciones en materia de infracciones administrativas.
+Si en el ejercicio de las facultades de comprobación e investigación atribuidas a los órganos fiscalizadores, se apreciara la existencia de acciones u omisiones que pudieran ser constitutivas de las infracciones reguladas en el Código, los funcionarios actuantes deberán iniciar el correspondiente procedimiento sancionador, de conformidad con lo dispuesto en el artículo 150 de dicho cuerpo legal.

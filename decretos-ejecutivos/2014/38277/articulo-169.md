@@ -1,0 +1,5 @@
+Sección VI
+Actuaciones ante ilícitos tributarios
+Artículo 169.- Actuaciones en materia de delitos contra la Hacienda Pública. Si en el procedimiento de comprobación e investigación de la obligación tributaria se estima que las irregularidades detectadas pudieran ser constitutivas del delito de Fraude a la Hacienda Pública, se procederá de conformidad con el artículo 90 del Código, presentando la correspondiente denuncia penal. Una vez presentada la denuncia la Administración Tributaria tendrá un mes para comunicarlo al sujeto pasivo, mediante el modelo que se establezca para esos efectos.
+Si la denuncia penal fuere desestimada o sobreseída, la Administración Tributaria continuará con el procedimiento de comprobación e investigación de la obligación tributaria. Asimismo, iniciará o continuará el procedimiento sancionador administrativo, de acuerdo con los hechos que los tribunales hubieren considerado probados.
+Las regulaciones de esta sección, deberán ser aplicadas por todos los órganos de la Administración Tributaria, que en el ejercicio de sus competencias encuentren irregularidades que pudieran constituir el delito establecido en el artículo 90 del Código.

@@ -1,0 +1,2 @@
+Artículo 267.- Comprobación de sellos.
+En caso de que la Administración Tributaria o los cuerpos policiales comprueben que hubo destrucción, alteración u obstrucción de los sellos, se procederá a levantar el acta correspondiente y se repondrán los sellos por el tiempo restante hasta completar los días del cierre. Lo anterior sin perjuicio de las sanciones correspondientes por alteración o destrucción de sellos.

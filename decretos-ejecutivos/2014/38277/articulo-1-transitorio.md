@@ -1,0 +1,1 @@
+TRANSITORIO I.- En el caso de fraccionamientos de pago, mientras no sea posible readecuar automáticamente la deuda en caso de abonos extraordinarios o adelantar el pago de cuotas, el interesado deberá gestionarlo ante la Administración Tributaria. La realización de la readecuación corresponderá a la unidad encargada de dar seguimiento al fraccionamiento de pago.

@@ -1,0 +1,3 @@
+Artículo 11.- Lugares de pago y pago a entes no autorizados.
+El pago de las deudas se debe realizar ante cualquier entidad u ente público o privado al que la Administración Tributaria le atribuya la condición de agente recaudador o bien, por los medios electrónicos que para esos efectos disponga la Administración Tributaria.
+Los pagos realizados a entidades públicas o privadas no autorizados para recibir el pago, no liberan al deudor de su obligación de pago ni del cómputo de los intereses respectivos; sin perjuicio de la responsabilidad en que incurra quien reciba indebidamente esos pagos, quien será el único responsable ante el interesado por la devolución de lo recaudado indebidamente.

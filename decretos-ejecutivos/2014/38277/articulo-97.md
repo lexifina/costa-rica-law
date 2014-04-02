@@ -1,0 +1,9 @@
+Sección II
+Notificaciones por medio señalado
+Artículo 97.- Medio para recibir notificaciones.
+Los medios para recibir notificaciones son el correo electrónico o digital, el fax; así como otros medios electrónicos similares, siempre que permitan confirmar la recepción.
+Los obligados tributarios deben indicar un medio electrónico para recibir notificaciones en el primer escrito que presenten o en respuesta a la primera audiencia concedida por la Administración Tributaria.
+Asimismo, en todo acto o resolución que se le notifique a un obligado tributario, se le debe prevenir por única vez, que señale un medio electrónico para recibir notificaciones.
+El medio fijado por el obligado tributario para recibir notificaciones en un procedimiento o diligencia, será válido y surtirá efectos jurídicos, para toda notificación que se le haga dentro del procedimiento o trámite que se le sigue ante la Administración Tributaria; salvo lo dispuesto en el artículo 98 de este Reglamento.
+No obstante, si el obligado tributario manifiesta que carece de la posibilidad de ser notificado por un medio electrónico, las notificaciones se practicarán de conformidad con el artículo 91 de este Reglamento. Pero si constara a la Administración Tributaria que el obligado tributario utiliza medios electrónicos para sus actividades económicas, la Administración podrá notificar el resto de las actuaciones del procedimiento de que se trate, a través de dichos medios, aplicando supletoriamente la Ley de Notificaciones Judiciales.
+Si el interesado fijare un medio para recibir notificaciones y el medio señalado generare fallas en su transmisión, las resoluciones que se dicten se tendrán por válidamente notificadas con el sólo transcurso de veinticuatro horas. Para futuras notificaciones, el obligado tributario debe señalar otro medio para recibirlas y, en caso de que no lo haga, las resoluciones que recaigan quedan notificadas veinticuatro horas después de dictadas.

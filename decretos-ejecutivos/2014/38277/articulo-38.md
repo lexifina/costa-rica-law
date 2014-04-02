@@ -1,0 +1,5 @@
+Artículo 38.- Obligación de comunicar el cambio de domicilio fiscal.
+Los obligados tributarios deben comunicar a la Administración Tributaria el cambio del domicilio fiscal y surtirá efectos a partir del momento de efectuada la comunicación.
+El cambio de domicilio fiscal no impide que los procedimientos que se hayan iniciado de oficio antes de la notificación de dicho cambio, puedan continuar tramitándose por el órgano competente que lo inició, siempre que las notificaciones derivadas de estos procedimientos se realicen de acuerdo con lo previsto en la ley.
+El cambio de domicilio fiscal que se realice sin observar la forma y los medios que la Administración Tributaria ha dispuesto, no surtirá efectos jurídicos.
+El cambio que implique el traslado a otra Administración Tributaria no surtirá efectos legales para los procedimientos que se encuentren en curso. La Administración que detecte el cambio de domicilio fiscal es quien debe actualizar el Registro Único Tributario con la información del domicilio fiscal y remitir de inmediato la información a la Administración competente.

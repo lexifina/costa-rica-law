@@ -1,0 +1,8 @@
+Sección III
+Del domicilio fiscal
+Artículo 34.- Obligación de comunicar el domicilio fiscal.
+Corresponde al obligado tributario dar las referencias necesarias para fijar e identificar el domicilio fiscal para efectos de sus relaciones con la Administración Tributaria, en los casos en que esté obligado a inscribirse como obligado tributario. Los datos del domicilio fiscal deben ser ciertos, claros y necesariamente indicar en forma detallada, la provincia, el cantón, el distrito, el barrio y las señas adicionales que permitan la fácil ubicación de la oficina, negocio, empresa o lugar donde se lleve a cabo la actividad económica.
+Mediante resolución general la Administración Tributaria indicará aquellos casos en que se considere oportuno exigir el registro de un domicilio fiscal aunque no exista un deber legal de inscripción.
+Para cumplir con el deber de comunicar el domicilio fiscal, el obligado tributario debe utilizar únicamente los medios y la forma que establezca la Administración Tributaria. En los casos en que no se consignen todos los datos y elementos necesarios para ubicar correctamente el domicilio fiscal, no se tendrán por señalados; sin perjuicio de la sanción administrativa que corresponda.
+La Administración Tributaria puede en cualquier momento comprobar o rectificar el domicilio fiscal del obligado tributario, según el procedimiento de modificación de domicilio fiscal establecido en el artículo 39 de este Reglamento.
+En el Impuesto Solidario para el Fortalecimiento de Programas de Vivienda, si el sujeto pasivo no ha indicado un domicilio fiscal, se tendrá para todos los efectos el lugar donde esté ubicado el bien inmueble.

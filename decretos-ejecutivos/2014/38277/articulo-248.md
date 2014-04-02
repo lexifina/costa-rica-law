@@ -1,0 +1,6 @@
+Artículo 248.- Desarrollo del procedimiento de valoración.
+Por ser la investigación inherente a la determinación del valor, el perito debe utilizar insumos, hechos, cifras, datos y circunstancias que le permitan estimar el valor del bien, de conformidad con la ley creadora del impuesto. Para tal efecto, el procedimiento de valoración incluye las siguientes etapas:
+1) Recolección, selección y análisis de datos.
+2) Aplicación de los principios generales de valoración establecidos en las Normas Internacionales de Valoración y en la Guía de Valoraciones.
+3) Valor final estimado y Reporte del Avalúo.
+Para valorar los bienes inmuebles, en la etapa de recolección, selección y análisis de datos, la Administración Tributaria podrá tomar en consideración los siguientes elementos: parámetros de valor, planos de zonas homogéneas, tipologías constructivas, información municipal, información registral y catastral; información tributaria, información bancaria, información de colegios profesionales, declaraciones de los propietarios, avalúos anteriores, avalúos bancarios, precios de mercado por zona, precio de venta de inmuebles similares, del barrio, caserío u otros factores en que se consignen precios de los bienes.

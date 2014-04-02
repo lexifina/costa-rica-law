@@ -1,0 +1,4 @@
+CAPITULO IV
+Del intercambio de información tributaria a nivel internacional previo requerimiento
+Artículo 106.- Solicitud de información por iniciativa costarricense en aplicación de un convenio tributario internacional.
+Toda Dirección adscrita a la Dirección General de Tributación o Administración Tributaria que en razón de sus competencias tramite un proceso tributario y considere que es necesario requerir información tributaria, que conste o pueda constar en otras jurisdicciones con las que el Estado Costarricense tenga en vigor un convenio internacional, que contemple el intercambio de información en materia tributaria, debe enviar la solicitud al Director de la Dirección General de Tributación. Esta solicitud se tramitará a través de la Dirección de Tributación Internacional y Técnica Tributaria.

@@ -1,0 +1,4 @@
+Artículo 93.- Entrega del acta de notificación.
+La notificación debe ser entregada a cualquier persona que sea mayor de quince años.
+Cuando se trate de zonas o edificaciones de acceso restringido, exclusivamente para efectos de practicar la notificación al destinatario, la resolución debe ordenar la autorización para el ingreso del funcionario notificador o funcionario designado; si el ingreso fuera impedido, se tendrá por válida la notificación practicada a la persona encargada de regular la entrada.
+En el acta se debe hacer constar la entrega de la cédula de notificación y el nombre de la persona que la recibe, quien firmará con el notificador o funcionario designado. Si no sabe, no quiere o no puede firmar, se debe consignar esa circunstancia bajo la responsabilidad del notificador o funcionario designado. Al entregar la cédula debe consignar en ella la fecha y la hora.

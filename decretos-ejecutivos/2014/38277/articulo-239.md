@@ -1,0 +1,2 @@
+Artículo 239.- Contenido del avalúo de bienes inmuebles.
+El avalúo debe contener la fundamentación y motivación del acto de valoración, en particular el objetivo del avalúo, la descripción del bien inmueble, las características propias del terreno, de la construcción, de las instalaciones, análisis de ofertas de mercado, si ha mediado o no declaración por parte del contribuyente, ubicación exacta del inmueble que se está valorando, criterio utilizado para la valoración, uso, afectaciones; así como cualquier otro elemento que permita determinar el valor del inmueble.

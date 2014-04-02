@@ -1,0 +1,3 @@
+Artículo 254.- Configuración de la infracción de cierre de negocios por la no presentación de declaraciones.
+Se configura la infracción por la no presentación de declaraciones cuando habiendo sido requerido el obligado tributario para presentar las declaraciones omitidas, éste incumpla con la obligación de presentarlas dentro del plazo de los 10 días hábiles contados a partir del día siguiente de la fecha de la notificación del requerimiento respectivo, conferido para tal efecto.
+En el requerimiento se debe advertir que en caso de incumplimiento se iniciará el procedimiento para imponer la sanción de cierre del negocio, con indicación del fundamento legal correspondiente.

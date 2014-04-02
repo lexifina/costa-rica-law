@@ -1,0 +1,5 @@
+Artículo 166.- Expediente administrativo de la actuación de comprobación e investigación.
+La actuación debe documentarse en actas de fiscalización, requerimientos de información, hojas de trabajo elaboradas por el funcionario a cargo, documentación aportada por el sujeto inspeccionado o por terceros y cualquier otro documento que se requiera para respaldar dichas actuaciones.
+Tales documentos deben consignarse en un expediente administrativo y en expedientes accesorios, cuando proceda, numerados en forma consecutiva y se pondrán a disposición del sujeto fiscalizado una vez concluida la inspección y notificadas las propuestas de regularización y de resolución sancionadora.
+El expediente administrativo y los expedientes accesorios contendrán todos aquellos elementos probatorios que sustentan la fiscalización realizada por la Administración.
+El sujeto pasivo tendrá derecho a acceder al expediente y a obtener copias a su costo, personalmente o a través de un tercero debidamente autorizado.

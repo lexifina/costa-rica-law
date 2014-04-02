@@ -1,0 +1,1 @@
+TRANSITORIO VI.- Para la correcta aplicación de las leyes tributarias, el Director General de Tributación establecerá mediante resolución general, el órgano competente de la Administración Tributaria que debe firmar los actos administrativos a los que hacen referencia los artículos 144 y 150 del Código.

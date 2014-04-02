@@ -1,0 +1,5 @@
+Artículo 47.- Uso de la información confidencial.
+La información confidencial recabada por la Administración Tributaria no puede ser utilizada para fines distintos a los tributarios, salvo norma legal que así lo autorice y siempre dentro de las facultades otorgadas a la Administración Tributaria. El carácter privado de la información capturada para fines tributarios prevalece y debe resguardarse según lo dispone la ley.
+Los servidores de la Administración Tributaria únicamente están autorizados a acceder a la información propia de la gestión administrativa que estén tramitando y conforme a los casos específicos que le han sido asignados por parte de su superior.
+La información tributaria confidencial puede utilizarse para fines no tributarios por parte de otras entidades ajenas a la Administración Tributaria, cuando el acceso a dicha información esté respaldado en una norma legal que así lo permita.
+Todos los requerimientos de información confidencial solicitados a la Administración Tributaria deben justificar el uso que se le dará a esta información, estando totalmente prohibido un uso distinto a aquel que por norma legal se les haya asignado.

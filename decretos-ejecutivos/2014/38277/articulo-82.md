@@ -1,0 +1,3 @@
+Artículo 82.- La contabilidad como medio de prueba.
+Los registros contables del obligado tributario constituyen elemento de prueba, siempre y cuando se lleven en debida forma, reflejando fielmente su situación financiera, de conformidad con las Normas Internacionales de Información Financiera aprobadas por elColegio de Contadores Públicos. No obstante, la Administración Tributaria puede desvirtuar el contenido de la contabilidad mediante otros elementos de prueba externos a esta.
+De constatar la Administración Tributaria que los estados de cuenta o certificaciones de estados financieros de un obligado tributario no reflejan su realidad económica, puede desconocer la contabilidad así registrada y utilizar cualesquiera otros permitidos por el derecho común.

@@ -1,0 +1,2 @@
+Artículo 102.- Defectos en la transmisión.
+Si el proceso de transmisión se interrumpe por cualquier motivo, cuando este se restablezca el funcionario encargado de efectuar la notificación debe proceder de inmediato a realizar la transmisión nuevamente, con todos los folios que contiene la resolución; incluso los que fueron transmitidos anteriormente, a efectos de que en el comprobante que provee el fax detalle la cantidad total de páginas transmitidas.

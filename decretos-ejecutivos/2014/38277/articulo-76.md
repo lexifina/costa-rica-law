@@ -1,0 +1,2 @@
+Artículo 76.- Facultades de la Administración Tributaria.
+En el ejercicio de las facultades conferidas la Administración Tributaria es la encargada de aplicar las leyes tributarias y desarrollar un conjunto de acciones tendientes a lograr una correcta percepción, fiscalización, control y cobro de los tributos; puede utilizar todos los recursos necesarios para el cumplimiento de las potestades otorgadas, incluyendo los medios tecnológicos que se encuentren disponibles y que le permitan hacer más eficiente y eficaz su labor.

@@ -1,0 +1,3 @@
+Artículo 146.- Revisión de la documentación del sujeto pasivo.
+Durante la comprobación, los sujetos pasivos deberán poner a disposición de los funcionarios de fiscalización, su contabilidad, libros, facturas, contratos, correspondencia, documentación y demás justificantes concernientes a su actividad económica incluidos los programas y archivos en soportes magnéticos.
+De estimarse necesario, por las especiales características o complejidad de la documentación que se requiera al sujeto fiscalizado, se le podrá conceder un plazo de tres días hábiles para cumplir con esa obligación, el cual podrá ser prorrogado ante debida justificación, por un plazo igual.

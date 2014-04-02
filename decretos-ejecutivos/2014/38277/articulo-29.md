@@ -1,0 +1,2 @@
+Artículo 29.- Omisión en la obligación de inscripción.
+Cuando el obligado tributario incurra en la omisión de la inscripción, la Administración Tributaria inscribirá de oficio a aquellos que detecte en sus labores de verificación y control.

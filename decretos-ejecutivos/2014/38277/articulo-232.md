@@ -1,0 +1,2 @@
+Artículo 232.- Giro de intereses.
+Al vencimiento del cupón mensual, trimestral, semestral o cualquier otro que las normas regulen, las Centrales de Valores, contando con el detalle acumulado de la tenencia de los valores por parte de los inversionistas por el período de vigencia del cupón, deben proceder a girar, dentro de los plazos establecidos en los procedimientos bursátiles, los montos correspondientes a intereses netos para el caso de inversionistas no exentos e intereses brutos para los inversionistas exentos.

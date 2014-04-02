@@ -1,0 +1,3 @@
+Artículo 118.- Plan Anual de Control Tributario Extensivo.
+La Dirección de Control Tributario Extensivo elaborará el Plan Anual de Control Extensivo, previa consulta con las Direcciones Regionales y la Dirección de Grandes Contribuyentes Nacionales, en concordancia con las estrategias institucionales de la Dirección General de Tributación.
+Corresponderá a la Dirección de Control Tributario Extensivo ejercer el control del cumplimiento del Plan, actuando ante las Direcciones Regionales y la Dirección de Grandes Contribuyentes Nacionales, para garantizar su cumplimiento. Para tal efecto, estas Direcciones deberán suministrar toda la información que resulte pertinente.

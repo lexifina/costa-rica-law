@@ -1,0 +1,2 @@
+Artículo 231.- Reporte del detalle de inversionistas.
+Las Centrales de Valores deben remitir al emisor correspondiente, dentro de los cinco días hábiles siguientes a la finalización de cada mes calendario, por medio de correo electrónico a la dirección que el emisor indique, o mediante los mecanismos electrónicos que éstos convengan, un reporte del detalle de los inversionistas exentos que tuvieron en su poder durante el mes los títulos de las diferentes emisiones. Si no los hubiera, deben informar, dentro del mismo plazo, de ese hecho.

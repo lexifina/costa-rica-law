@@ -1,0 +1,4 @@
+Artículo 217.- Intereses.
+El reconocimiento de los intereses de las situaciones acreedoras del obligado tributario, en los casos de compensaciones y devoluciones, procede de acuerdo a lo establecido en el artículo 43 del Código, según se trate de créditos por pago debido o indebido, bajo las siguientes reglas:
+1) Crédito por pago debido: En todos los casos los intereses correrán a partir de los tres meses siguientes a la presentación de la solicitud de devolución de crédito y hasta que se ponga a disposición del interesado el crédito. No obstante, no se reconocerán intereses por las demoras en el trámite atribuibles al solicitante.
+2) Crédito por pago indebido: En estos casos los intereses se reconocen únicamente cuando el pago que genera el crédito haya sido inducido o forzado por la Administración Tributaria y corren a partir del día siguiente de dicho pago o de la declaración que lo origina.

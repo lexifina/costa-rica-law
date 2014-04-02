@@ -1,0 +1,3 @@
+Artículo 222.- Elementos probatorios para el reconocimiento de créditos por retenciones o percepciones debidas.
+Mediante resolución de carácter general, la Administración Tributaria establecerá los requisitos generales y específicos para el reconocimiento de créditos.
+Corresponde a la Tesorería Nacional certificar las retenciones realizadas a los asalariados del Poder Ejecutivo, Legislativo, Defensoría de los Habitantes, Tribunal Supremo de Elecciones, pensionados de la Junta de Pensiones del Magisterio Nacional y de la Dirección Nacional de Pensiones; así como las retenciones del 2% a proveedores del Estado y las retenciones sobre intereses a inversionistas en títulos de deuda emitidos por el Ministerio de Hacienda.

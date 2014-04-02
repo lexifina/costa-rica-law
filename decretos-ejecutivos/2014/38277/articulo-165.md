@@ -1,0 +1,6 @@
+Artículo 165.- Conclusión de la actuación con aumento de saldo a favor o con reducción de las cuotas tributarias originalmente declaradas.
+Bajo el supuesto de que las actuaciones fiscalizadoras hubieren concluido con un aumento del saldo a favor o con una reducción de las cuotas tributarias originalmente declaradas por el sujeto fiscalizado, se hará constar ese hecho en el acta de la audiencia final y se procederá a emitir la liquidación de oficio del crédito para su registro y puesta a disposición del interesado.
+Si el sujeto pasivo no estuviere de acuerdo con el aumento del saldo a favor o con la reducción de las cuotas tributarias originalmente declaradas, los funcionarios actuantes deben emitir un informe dentro de los diez días hábiles siguientes contados a partir de la notificación del acta emitida con ocasión de la celebración de la audiencia final regulada en el artículo 156 de este Reglamento. En ese informe se detallará:
+1) El impuesto y período fiscal objeto de inspección.
+2) Los hechos, las pruebas y los fundamentos jurídicos que motivan la reducción en la cuantía de la obligación tributaria o el saldo a favor.
+El informe será suscrito por los funcionarios que realizaron las actuaciones de comprobación e investigación y el titular del órgano fiscalizador.

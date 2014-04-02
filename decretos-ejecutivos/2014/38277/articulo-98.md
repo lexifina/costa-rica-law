@@ -1,0 +1,2 @@
+Artículo 98.- Modificación del medio señalado para recibir notificaciones.
+En cualquier etapa del procedimiento el obligado tributario puede señalar un medio distinto para recibir notificaciones, el cual será válido legalmente para el proceso o diligencia que se tramite ante la Administración Tributaria y surtirá efectos legales para todos los actos que se emitan con posterioridad a la fecha de comunicación del cambio.

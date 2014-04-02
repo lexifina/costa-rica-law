@@ -1,0 +1,6 @@
+Artículo 20.- Condonación.
+Las deudas por tributos solo pueden ser condonadas por ley.
+Mediante resolución administrativa, procede la condonación de intereses únicamente cuando se demuestre que tuvieron como causa un error imputable a la Administración Tributaria.
+En los casos en que el sujeto pasivo solicite la condonación de intereses deberá indicar ante la Gerencia de la Administración Tributaria competente o ante la Dirección de Grandes Contribuyentes Nacionales, en qué consiste el error de la Administración, a efectos de que estas realicen los estudios pertinentes.
+La Gerencia de la Administración Tributaria competente o la Dirección de Grandes Contribuyentes Nacionales, remitirá el expediente respectivo a la Dirección General de Hacienda, junto con un informe debidamente motivado en el cual se analice la existencia o no del error, a fin de que la Dirección General de Hacienda determine la procedencia o no de la condonación.
+Cuando se trate de un grupo de obligados tributarios afectados por causas de fuerza mayor o caso fortuito que requieran la condonación, la Dirección General de Tributación podrá hacer la propuesta a la Dirección General de Hacienda para que se emita una resolución que abarque a todos los sujetos afectados.

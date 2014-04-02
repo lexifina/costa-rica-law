@@ -1,0 +1,2 @@
+Artículo 151.- Información en poder de entidades financieras.
+En los casos en que durante la actuación de comprobación e investigación se estime necesario solicitar información previsiblemente pertinente para efectos tributarios, que se encuentre en poder de entidades financieras, los órganos de fiscalización competentes la solicitarán mediante el procedimiento estatuido en los artículos 106 bis y 106 ter del Código.
