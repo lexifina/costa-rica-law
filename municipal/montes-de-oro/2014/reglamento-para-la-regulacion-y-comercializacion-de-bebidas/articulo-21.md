@@ -1,0 +1,3 @@
+Artículo 21.—Pago de derechos trimestrales y categorización. De conformidad con los artículos 4 y 10 de la Ley, se establecen los siguientes tributos que deberán pagar los patentados en forma trimestral y por adelantado durante los meses de diciembre, marzo, junio y setiembre de cada año. El pago extemporáneo de los derechos trimestrales acarreará la cancelación adicional de la multa que establece la Ley y de los intereses según el artículo 57 del Código de Normas y Procedimientos Tributarios. Para los efectos de este reglamento, cuando la licencia se autorice en el transcurso de un trimestre, los patentados deberán cancelar solamente la fracción correspondiente a los días faltantes del trimestre en que se otorgó.
+[imagen]
+[imagen]

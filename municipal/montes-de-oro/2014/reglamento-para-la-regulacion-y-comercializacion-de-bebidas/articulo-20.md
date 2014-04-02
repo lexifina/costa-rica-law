@@ -1,0 +1,1 @@
+Artículo 20.—Denegatoria. La licencia podrá denegarse cuando se incumplan los artículos 8 o 9 de la Ley, y lo dispuesto 10, 11,12, 13 del reglamento o en observancia del artículo 81 del Código Municipal, de lo cual se expedirá copia de la denegatoria al Departamento de Patentes.
