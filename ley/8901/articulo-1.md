@@ -1,4 +1,5 @@
 N° 8901
+(Mediante resolución de la Sala Constitucional N° 4630 del 02 de abril de 2014, se estableció que ésta ley no es inconstitucional siempre que se interprete que, los Órganos Directivos de las Asociaciones Civiles, Asociaciones Solidaristas, Asociaciones Comunales y Sindicatos, deben estar integrados respetando la paridad de género, de forma progresiva y siempre que ello sea posible conforme a la libertad ideológica, el derecho de asociación y según la conformación fáctica y proporcional que cada uno de los géneros lo permita en la asociación en cuestión.)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
