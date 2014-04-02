@@ -1,0 +1,1 @@
+Artículo 29 .—Prohibición de intercambio de accesorios. Las personas designadas como choferes o conductoras, no podrán hacer intercambios de accesorios entre los diferentes vehículos, sin la debida autorización de la persona Encargada de Transportes.

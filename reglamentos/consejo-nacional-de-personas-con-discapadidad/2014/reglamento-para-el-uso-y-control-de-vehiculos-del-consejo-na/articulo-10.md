@@ -1,0 +1,1 @@
+Artículo 10.—Vehículos accesibles. El CNREE deberá contar con vehículos accesibles para personas con discapacidad, los cuales deben cumplir con los requerimientos técnicos establecidos en la Ley de Igualdad de Oportunidades para las Personas con Discapacidad y su Reglamento y con cualquier otra disposición técnica-legal que se establezcan al respecto.

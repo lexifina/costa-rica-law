@@ -1,0 +1,1 @@
+Artículo 43.—Interpretación o aplicación. Las divergencias en la interpretación o aplicación del presente Reglamento, serán resueltas por la Secretaria Ejecutiva, previa consulta a la Unidad de Asesoría Jurídica.

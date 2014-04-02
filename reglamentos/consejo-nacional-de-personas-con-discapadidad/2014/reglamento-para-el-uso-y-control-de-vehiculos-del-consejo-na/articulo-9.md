@@ -1,0 +1,1 @@
+Artículo 9º—Póliza de los vehículos. Todos los vehículos del CNREE deben permanecer cubiertos por una póliza del Instituto Nacional de Seguros, modalidad flotilla, con las coberturas A, C, D y H. Los vehículos que no posean esta póliza vigente, no estarán autorizados para circular.

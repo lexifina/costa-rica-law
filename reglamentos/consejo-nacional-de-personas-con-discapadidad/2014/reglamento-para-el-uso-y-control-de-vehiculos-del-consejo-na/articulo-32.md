@@ -1,0 +1,1 @@
+Artículo 32.—Jornada de las personas designadas como choferes. De acuerdo con lo dispuesto por la legislación laboral costarricense, la jornada ordinaria más la jornada extraordinaria de las personas designadas como choferes no podrá ser superior a las 12 horas, salvo casos demostrables de fuerza mayor o caso fortuito.

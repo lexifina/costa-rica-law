@@ -1,0 +1,1 @@
+Artículo 44.—Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinaria, civil y penalmente, de acuerdo con lo establecido en el Reglamento Interno de Trabajo del CNREE y el ordenamiento jurídico nacional atinente.

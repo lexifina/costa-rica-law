@@ -1,0 +1,1 @@
+Artículo 34.—Prohibición de realizar arreglos extrajudiciales. Las personas designadas como choferes o conductoras no se encuentran facultadas para realizar arreglos extrajudiciales, en caso de accidentes con vehículos de la Institución.

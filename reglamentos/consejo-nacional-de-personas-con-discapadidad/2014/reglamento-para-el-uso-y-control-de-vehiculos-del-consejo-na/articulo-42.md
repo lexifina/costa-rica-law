@@ -1,0 +1,1 @@
+Artículo 42.—Obligación de portar el Reglamento. Todo vehículo del CNREE deberá portar copia del presente Reglamento, a efecto de que la persona designada como chofer o conductora y personas usuarias del servicio de transporte, tengan acceso a este para su consulta o en caso de accidente de tránsito.

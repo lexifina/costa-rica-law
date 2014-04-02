@@ -1,0 +1,1 @@
+Artículo 25.—Paradas innecesarias. No está permitido que, aun a petición del funcionario o funcionaria encargada de la gira, la persona designada como chofer realice paradas innecesarias durante el transcurso de la misma, lo anterior será determinado de acuerdo a las reglas de la sana crítica y de principios de realidad y objetividad.

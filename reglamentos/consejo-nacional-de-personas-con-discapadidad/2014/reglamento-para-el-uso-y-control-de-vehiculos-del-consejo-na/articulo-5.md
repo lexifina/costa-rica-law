@@ -1,0 +1,2 @@
+Artículo 5º—Custodia de los vehículos. Cuando los vehículos del CNREE no estén brindando el servicio de transporte, deberán permanecer resguardados dentro de las instalaciones de las Rectorías del CNREE.
+En el supuesto de que por motivo de una gira, por fuerza mayor o caso fortuito, el vehículo deba permanecer en un lugar distinto a las instalaciones de las Rectorías del CNREE, la persona designada como chofer o conductora, será la responsable de asegurarse que el mismo quede aparcado bajo condiciones que garanticen su seguridad.

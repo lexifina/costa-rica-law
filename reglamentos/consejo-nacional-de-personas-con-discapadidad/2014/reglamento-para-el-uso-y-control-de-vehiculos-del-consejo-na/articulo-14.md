@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Del uso y disposición de los vehículos
+Artículo 14.—Uso de los vehículos. Los vehículos del CNREE no podrán ser utilizados bajo ninguna circunstancia en actividades ajenas al cumplimiento de las funciones propias de la Institución. La inobservancia de la anterior disposición generará responsabilidad administrativa, civil o penal para la persona funcionaria a la que se le compruebe, a través de los medios correspondientes, responsabilidad sobre el particular.
+La persona designada como chofer o conductora, en todo momento deberá portar el documento denominado “Autorización de Uso de Vehículo”, la cual faculta a conducir los vehículos del CNREE, y tendrá que ser firmada por la persona Encargada de Transporte y por ellos mismos, así como por el funcionario o funcionaria responsable de la gira.
