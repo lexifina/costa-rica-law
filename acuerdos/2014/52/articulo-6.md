@@ -1,0 +1,1 @@
+F) Excluir de este acuerdo, todos aquellos sectores costeros que el Área de Conservación de Pacífico Medio y Área de Conservación Tempisque, hayan clasificado y certificado como Patrimonio Natural del Estado, así como aquellos sectores que a futuro se reclasifiquen por dichas entidades con la Metodología establecida para tal propósito.
