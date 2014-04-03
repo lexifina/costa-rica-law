@@ -1,0 +1,17 @@
+Nº 38268-MOPT
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades conferidas en los incisos 3) y 18), del artículo 140 de la Constitución Política; y de conformidad con lo dispuesto por la Ley Orgánica del Ministerio de Obras Públicas y Transportes, N° 3155, reformada mediante la Ley N° 4786 del 05 de julio de 1971; la Ley de Administración Vial N° 6324 del 24 de mayo de 1979 y sus reformas; la Ley General de Policía, N° 7410 del 30 de mayo de 1994 y sus reformas; la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078 y la Ley General de Administración Pública, N° 6227 de 2 de mayo de 1978 y sus reformas.
+Considerando:
+1º—Que corresponde al Ministerio de Obras Públicas y Transportes y a sus órganos adscritos, proteger el bien jurídico de la seguridad vial, ejerciendo las competencias otorgadas mediante la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078 de 4 de octubre del año 2012.
+2º—Que la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078 dispone en los artículos 150 y 151 el retiro temporal del vehículo, la inmovilización del vehículo por retiro de placas y su traslado a depósitos autorizados.
+3º—Que para el resguardo de los vehículos detenidos a que se refiere el artículo 150 párrafo final, según la naturaleza de las faltas, se ha establecido su inmovilización mediante depósito administrativo o judicial.
+4º—Que ha sido una práctica administrativa el resguardo de los vehículos en instalaciones de la administración, no obstante, así mismo debe existir la posibilidad jurídica del depósito administrativo del vehículo detenido.
+5º—Que con motivo de varias reformas legales que ha sufrido la legislación de tránsito, hasta la promulgación de la Ley vigente Nº 9078, los patios de los depósitos oficiales se han saturado, existiendo más de 14.000 vehículos decomisados.
+6º—Que como consecuencia de la situación descrita con anterioridad, los vehículos decomisados, algunos identificables y otros denominados como chatarra, han generado un grave problema de salud pública en los depósitos oficiales, al convertirse estos vehículos en vectores del mosquito Aedes Aegypti y otras enfermedades, razón por la cual, muchas de estas instalaciones se encuentran con órdenes de cierre emitidas por el Ministerio de Salud.
+7º—Que ante la falta de espacio para el depósito de los vehículos y el consecuente peligro y riesgo que están ocasionando a la salud pública debido a su saturación, se hace necesario como medida complementaria a la utilización de las instalaciones administrativas disponer excepcionalmente, la inmovilización de los vehículos mediante su otorgamiento en depósito administrativo a particulares como un instrumento jurídico para el logro y atención de esta necesidad pública. Por tanto,
+Decretan:
+El siguiente:
+Reglamento para la Aplicación del Depósito
+Administrativo de Vehículos
+Artículo 1º—Ámbito de aplicación. Se faculta al MOPT y al Consejo de Seguridad Vial, por medio de los Inspectores de Tránsito de la Dirección General de la Policía de Tránsito y de conformidad con el numeral 150 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078, para que de manera complementaria al retiro temporal de vehículos y su custodia en los depósitos oficiales, pueda otorgarse el resguardo de los vehículos objeto del proceso de inmovilización previsto en esta normativa, mediante la figura del depósito administrativo en particulares.
