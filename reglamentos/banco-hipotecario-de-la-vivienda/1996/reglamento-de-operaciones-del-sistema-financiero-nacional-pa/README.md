@@ -41,3 +41,4 @@ Reglamento de Operaciones del Sistema Financiero Nacional para Vivienda
 | 26 | 2009-02-04 | Reglamento 10 (2009-02-04) |
 | 27 | 2012-01-23 | Reglamento 4 (2012-01-23) |
 | 28 | 2014-02-03 | Reglamento 11 (2014-02-03) |
+| 29 | 2014-04-03 | Reglamento 23 (2014-04-03) |

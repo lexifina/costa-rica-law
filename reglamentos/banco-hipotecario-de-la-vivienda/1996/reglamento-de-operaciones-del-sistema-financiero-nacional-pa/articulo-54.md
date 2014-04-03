@@ -1,3 +1,1 @@
-Artículo 54.—Otras condiciones: Las disposiciones relativas a elegibilidad, condiciones de los créditos y subsidios, gravámenes, patrimonio familiar etc., se regirán por lo establecido en las leyes y reglamentos del Sistema, en todo lo que no esté previsto en el presente Reglamento.
-Deberán aplicarse a este programa las pólizas que procedieren para inmuebles sin construcción, de acuerdo con las políticas que al efecto tenga el Instituto Nacional de Seguros.
-(Así reformado en sesión N° 54 del 16 de setiembre del 2004)
+Artículo 54.—(Derogado mediante sesión N° 23-2014 del 3 de abril del 2014, "Disposiciones para atender las familias que adquirieron un lote con recursos del Bono Familiar de Vivienda, al amparo del programa de compra de lote con Bono")

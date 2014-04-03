@@ -65,6 +65,7 @@ articulo-62.md
 articulo-63.md
 articulo-64.md
 articulo-65.md
+articulo-65-bis.md
 articulo-66.md
 articulo-66-bis.md
 articulo-66-ter.md
