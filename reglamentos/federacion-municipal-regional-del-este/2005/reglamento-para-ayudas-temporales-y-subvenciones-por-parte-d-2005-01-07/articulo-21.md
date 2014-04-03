@@ -1,1 +1,0 @@
-Artículo 21.-El monto de la subvención que la Federación transferirá a cada uno de los centros educativos u organizaciones solicitantes, será aprobado por la Dirección Ejecutiva y posteriormente por el Consejo Directivo, mediante el trámite presupuestario que corresponda.

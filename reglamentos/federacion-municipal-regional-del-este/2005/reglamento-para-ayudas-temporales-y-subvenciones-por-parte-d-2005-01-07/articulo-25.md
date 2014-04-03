@@ -1,1 +1,0 @@
-Artículo 25- (Nota de Sinalevi: En la publicación del presente Reglamento no parece este artículo, o obstante el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)
