@@ -1,0 +1,24 @@
+CAPÍTULO III
+De las obligaciones y responsabilidades
+Artículo 27.—Obligaciones de las Agencias. Son obligaciones de las Agencias:
+a) Mantener una relación de lealtad y buena fe con el Instituto, con los clientes del Sistema de Ahorro y Préstamo y con el resto de Agencias.
+b) Cumplir con las regulaciones contenidas en la Ley N° 1788, el Reglamento para el Sistema de Ahorro y Préstamo, el presente Reglamento y las directrices que emita la Administración del INVU, para la implementación de los planes y contratos de dicho Sistema.
+c) Velar porque sus propietarios, los representantes legales, apoderados y empleados de cumplan con las disposiciones reglamentarias y contractuales, las cuales rigen su funcionamiento.
+d) Entregar personalmente a los suscriptores los contratos que por su medio se suscriban e interesarse especialmente por que tales suscriptores sean puntuales en los depósitos correspondientes.
+e) Interesarse por que los suscriptores de contratos depositen sus cuotas de ahorro o que les sean recolectadas por los recaudadores que el Instituto designe.
+f) Cobrar al cliente, cuando se contrate esta función, las cuotas de ahorro de los contratos, desde el inicio hasta la maduración. Los dineros deberán recibirse a nombre del Instituto Nacional de Vivienda y Urbanismo. Los recibos por dinero utilizados con este propósito deben ser los suplidos por la Jefatura del Departamento de Gestión de Programas de Financiamiento del INVU.
+g) Depositar los dineros, documentos y valores recibidos en nombre del Instituto, en el lugar y plazo a establecer reglamentariamente. La Agencia será responsable ante el INVU por los daños y los perjuicios ocasionados a terceros, al INVU y al propio cliente por la no entrega o entrega oportuna de dineros, documentos o valores.
+h) Brindar información veraz, asistencia y asesoría a los clientes, facilitando en todo lo posible la relación comercial entre el INVU y sus clientes.
+i) Dedicarse exclusivamente a la colocación y venta de los planes de Ahorro y Préstamo del INVU, salvo que el Instituto por medio de la Jefatura del Departamento de Gestión de Programas de Financiamiento del INVU autorice a la Agencia a realizar otras funciones, caso para el cual deberá comprobarse que la asunción de otros negocios por parte de esta última no causa perjuicio a la relación mercantil con el Instituto.
+j) Permitir al Instituto el acceso a información relativa a las operaciones y estados financieros de la Agencia. Para tal efecto los sistemas informáticos de las agencias deberán contratar auditorías de Tecnologías de Información, una vez al año y estar a disposición del Instituto cuando así lo requiera.
+k) Cumplir con las prácticas comerciales y norma éticas, con el fin de establecer relaciones mercantiles de buena fe entre las partes del Sistema.
+l) Operar bajo los lineamientos de los planes y directrices de la Jefatura del Departamento de Gestión de Programas de Financiamiento del INVU enmarcadas en el Reglamento de Ahorro y Préstamo del INVU, de este Reglamento y del contrato con la agencia.
+m) Llevar su contabilidad bajo los sistemas o modelos contables y de control financiero de la práctica contable generalmente aceptada, así como los establecidos para las personas con actividad comercial por la Dirección de Tributación del Ministerio de Hacienda.
+n) Mantener los registros contables, balances y estados financieros relativos a la actividad comercial de la agencia en forma independiente a cualquier otra actividad comercial, siguiendo las disposiciones del Código Tributario y las reglamentaciones de la Dirección de Tributación del Ministerio de Hacienda.
+o) Aceptar los medios o sistemas de control de su actividad, que de acuerdo con la Ley o los Reglamentos del Instituto se establezcan, con el fin de lograr la transparencia y seguridad del mercado de los planes de Ahorro y Préstamo.
+p) Reportar de inmediato al INVU cualquier situación ilegal o anómala que descubra en la conducta de sus propios empleados o representantes y de los clientes del Instituto, que puedan causar perjuicio al Sistema, o a los propios clientes.
+q) Acreditar un representante Legal ante el INVU, quien servirá como enlace entre la Agencia y el Instituto.
+r) Cumplir con un mínimo de ventas anual. Este monto se fijará cada año por la Junta Directiva del Instituto, de acuerdo con los parámetros actuariales que se establezcan para tales fines.
+s) A la terminación de la relación contractual, cualquiera que fuera la causa de esa terminación, devolver la papelería, fórmulas, recibos y documentos, propiedad del INVU, que tuviere en su poder.
+t) Responder ante el INVU por cualquier perjuicio causado, con dolo o con culpa por los representantes, apoderados o empleados de la Agencia.
+u) Cualquier otra que se establezca en este reglamento, en los reglamentos de ética y en los respectivos contratos, así como aquellas que se desprendan de la aplicación del principio de buena fe entre comerciantes.

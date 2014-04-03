@@ -1,0 +1,1 @@
+Artículo 41.—La resolución del contrato sin responsabilidad para el INVU, por alguna de las causales contenidas en este Reglamento, autorizará al Instituto para ejecutar de inmediato la garantía de cumplimiento y/o exigir la indemnización prevista en la póliza de fidelidad.

@@ -1,0 +1,1 @@
+Artículo 35.—Las Agencias no podrán ceder en todo o en parte su cartera, y si así se hiciera, previa autorización de la Jefatura del Departamento de Gestión de Programas de Financiamiento del INVU, las comisiones que correspondan a partir de la fecha en que se avale la cesión, corresponderá a las Agencias que asuman al cliente respectivo.

@@ -1,0 +1,1 @@
+Artículo 13.—Las agencias asumirán los costos de la documentación que requieran para su labor, con excepción de aquellos documentos que por motivos de seguridad deba expedir el INVU, tales como talonarios de venta, recibos de cobro y cualquier otro formulario numerado que requiera el Instituto.

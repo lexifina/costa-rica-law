@@ -1,0 +1,1 @@
+Artículo 26.—En la posesión anticipada mediante sorteo, el Instituto comunicará los suscriptores que salgan favorecidos, de conformidad con las normas del “Reglamento del Sistema de Ahorro y Préstamo”.

@@ -1,0 +1,1 @@
+Artículo 22.—Es facultad de la Jefatura del Departamento de Gestión de Programas de Financiamiento del INVU y del funcionario que ésta asigne, realizar los cambios de plan y traspasos, así como otros que defina dicha Jefatura, en las oficinas de la institución, de conformidad con las normas del “Reglamento del Sistema de Ahorro y Préstamo”.
