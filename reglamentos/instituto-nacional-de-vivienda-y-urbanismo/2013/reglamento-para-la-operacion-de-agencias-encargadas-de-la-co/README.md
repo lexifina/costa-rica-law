@@ -14,3 +14,4 @@ Reglamento para la operación de agencias encargadas de la colocación y venta d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-03 | la propia norma |
+| 2 | 2014-04-03 | Reglamento 6038 (2014-03-27) |
