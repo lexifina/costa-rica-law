@@ -1,0 +1,1 @@
+Artículo 11.—Desobediencia. El desacato, acciones u omisiones sin justificación a los deberes establecidos en el presente reglamento Disponibilidad, conlleva la aplicación del régimen disciplinario establecido en el Estatuto de Servicio Civil, en su Reglamento y en el Reglamento Autónomo de Servicios de la Institución.
