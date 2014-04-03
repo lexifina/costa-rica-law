@@ -1,1 +1,0 @@
-Artículo 6º—Cancelación o suspensión de la autorización. Si la empresa, el profesional, o ambos, incurrieren en incumplimiento a las normas administrativas de la Caja Costarricense de Seguro Social y a sus deberes éticos, se suspenderá o cancelará la autorización hasta tanto no se subsane la falta.
