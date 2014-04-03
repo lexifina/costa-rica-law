@@ -1,0 +1,1 @@
+Artículo 5º—La Dirección General de Migración y Extranjería podrá verificar en cualquier momento el cumplimiento de los requisitos establecidos para el otorgamiento del beneficio y revocar los mismos, sin que esto genere responsabilidad para el Estado.
