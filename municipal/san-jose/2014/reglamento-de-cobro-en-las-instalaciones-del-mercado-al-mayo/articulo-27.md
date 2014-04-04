@@ -1,0 +1,1 @@
+Artículo 27.—El servicio para el ingreso y salida de vehículos a las instalaciones del mercado por medio de tarjetas, está sujeto a la revisión diaria, con el propósito de verificar que se están observando las regulaciones pertinentes.

@@ -1,0 +1,1 @@
+Artículo 26.—Si el usuario, debido al irrespeto de las normas que regulan el ingreso y salida de los vehículos, daña la barrera, deberá cubrir los costos en los que incurra la Municipalidad en la reparación del dispositivo indicado.

@@ -1,0 +1,1 @@
+Artículo 11.—De la entrega de la boleta: El usuario entregará al recaudador – cuando realice el pago en efectivo- la boleta que recibió a la hora de ingresar al mercado. La boleta indicada no debe mostrar alteraciones ni desprendimientos que impidan al funcionario aplicar el cobro.

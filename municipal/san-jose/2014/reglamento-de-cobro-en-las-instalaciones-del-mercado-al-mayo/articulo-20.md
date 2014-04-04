@@ -1,0 +1,1 @@
+Artículo 20.—El usuario, en caso de deterioro o pérdida de la tarjeta, deberá cubrir los gastos de reposición, y solicitará una nueva ante la Sección de Ingresos de la Municipalidad. El usuario pagará un recargo equivalente a 24 horas de permanencia en el mercado -según la tarifa aplicable al tipo de vehículo- y llenará el formulario en la Sección de Ingresos.

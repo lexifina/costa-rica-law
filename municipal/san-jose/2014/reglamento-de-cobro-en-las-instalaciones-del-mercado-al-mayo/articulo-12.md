@@ -1,0 +1,1 @@
+Artículo 12.—Del lector óptico: Cuando el usuario utilice una tarjeta prepago (debito), lo hará pasándola por el lector óptico para que éste haga el reconocimiento respectivo. A la salida el usuario, pasará nuevamente la tarjeta indicada por el lector. El sistema automáticamente hará los rebajos de horas utilizadas con base en la tarifa correspondiente.

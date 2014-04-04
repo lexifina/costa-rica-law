@@ -1,0 +1,1 @@
+Artículo 7º—Diferentes opciones de pago: El usuario podrá hacer el pago utilizando diferentes opciones que la Municipalidad, por medio de la Sección de Ingresos, tiene a la disposición, a saber: tarjeta prepagada (debito) y el pago convencional de cobro. Ambas modalidades se cobrarán mediante el sistema automatizado.

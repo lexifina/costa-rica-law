@@ -1,0 +1,1 @@
+Artículo 13.—De la seguridad: La Municipalidad mantendrá permanentemente, al menos, un oficial de seguridad en las casetillas donde se ubica el equipo y el sistema de agujas, además, se encargará de la vigilancia y regulación del paso de vehículos y personas.

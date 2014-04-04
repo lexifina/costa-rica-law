@@ -1,0 +1,1 @@
+Artículo 3º—De la ubicación del mercado: El Mercado El Mayoreo se ubica en el inmueble ubicado en la ciudad de San José, avenida 10, contiguo al costado este del Edificio José Figures Ferrer, mercado creado según Ley Nº 4138 de 1 de Julio de 1968, para la venta –al por mayor- de productos agropecuarios y de pesca.

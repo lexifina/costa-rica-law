@@ -1,0 +1,1 @@
+Artículo 28.—En caso de extravío de la boleta de ingreso al mercado, el usuario pagará un importe equivalente a 12 horas, pero si se logra demostrar que permaneció más tiempo en el mercado, se cobrará, además de las doce horas indicadas, el tiempo extra de permanencia.

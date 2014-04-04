@@ -1,0 +1,1 @@
+Artículo 5º—Dependencias Municipales que velarán por la aplicación de esta Normativa. La Municipalidad, por medio de la Gerencia Administrativa y Financiera, Dirección Financiera, Sección de Ingresos del Departamento de Tesorería, y la Administración del Mercado Mayoreo, velarán para que se apliquen las disposiciones contenidas en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 9º—Del uso de la tarjeta: Si el usuario tiene una tarjeta especial (prepagada, débito o la de funcionario municipal), la pasará por el lector óptico y esperará hasta que la barrera se levante para que pueda hacer su ingreso al mercado.
