@@ -53,8 +53,8 @@ Item | Concepto | Moneda | Tarifa 2014
 36 | Autorización por exoneración de insumos pesqueros y acuícolas | colones | 3.200.00
 37 | Autorización trasbordo de productos pesqueros, de una a otra embarcación pesquera | colones | 9.100.00
 | AUTORIZACIÓN PARA COMERCIALIZACIÓN, INSDUSTRIALIZACIÓN, PROCESAMIENTO, TRANSPORTE, EXPORTACIÓN E IMPORTACIÓN DE PRODUCTOS PESQUEROS (por año / Por trámite) | colones |
-38 | Autorización comercialización puesto de recibo (capacidad instalada almacenaje hasta 2000 kilos) | colones | 53.000.00
-39 | Autorización comercialización puesto de recibo (capacidad instalada almacenaje de 2011 a 5000 kilos) | colones | 159.000.00
+38 | Autorización comercialización puesto de recibo (Así reformado el concepto anterior mediante acuerdo N° AJDIP/098-2014 del 4 de abril del 2014) | colones | 22.260.00 (Así reformado el monto anterior mediante acuerdo N° AJDIP/098-2014 del 4 de abril del 2014)
+39 | (Derogado mediante acuerdo N° AJDIP/098-2014 del 4 de abril del 2014) | (Derogado mediante acuerdo N° AJDIP/098-2014 del 4 de abril del 2014) | (Derogado mediante acuerdo N° AJDIP/098-2014 del 4 de abril del 2014)
 40 | Autorización centro de acopio huevos tortuga | colones | 53.000.00
 41 | Autorización comercialización huevos de tortuga (persona física) | colones | 22.300.00
 42 | Autorización comercialización Pescaderías/Personal | colones | 66.300.00

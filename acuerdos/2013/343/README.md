@@ -15,3 +15,4 @@ Establece tarifas por la venta de bienes y servicios que brinda y genera el INCO
 | --- | --- | --- |
 | 1 | 2014-01-01 | la propia norma |
 | 2 | 2014-01-17 | Acuerdo 7 (2014-01-17) |
+| 3 | 2014-04-04 | Acuerdo 98 (2014-04-04) |
