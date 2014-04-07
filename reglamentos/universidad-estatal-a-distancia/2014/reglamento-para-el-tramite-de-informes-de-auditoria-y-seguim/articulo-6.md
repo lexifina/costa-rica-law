@@ -1,0 +1,1 @@
+Artículo 6º—De la aceptación de las medidas alternas: Si la Auditoria Interna, está de acuerdo con las modificaciones y soluciones alternas propuestas por el Consejo Universitario, le informará por escrito a dicho Órgano.

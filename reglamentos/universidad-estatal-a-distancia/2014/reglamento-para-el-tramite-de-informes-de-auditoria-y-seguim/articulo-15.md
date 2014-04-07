@@ -1,0 +1,1 @@
+Artículo 15.—Del incumplimiento injustificado: El incumplimiento injustificado de los planes de implementación, será causal de responsabilidad administrativa, de conformidad con lo estipulado en el artículo 17º del presente Reglamento.

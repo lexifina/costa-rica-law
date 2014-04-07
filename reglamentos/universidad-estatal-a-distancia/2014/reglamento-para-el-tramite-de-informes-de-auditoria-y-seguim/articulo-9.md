@@ -1,0 +1,2 @@
+Artículo 9.—De los Informes dirigidos a titulares subordinados: Cuando los Informes de Auditoría Interna, se dirijan a instancias Administrativas, Académicas y otros órganos que no ostenten la condición institucional de Jerarca en su materia, el titular subordinado a quien va dirigido el informe deberá ordenar la implementación de las recomendaciones en un plazo improrrogable de diez días hábiles, contados a partir de la fecha de recibo del informe4.
+4 Art 36, a), ibidem.

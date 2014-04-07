@@ -1,0 +1,9 @@
+Artículo 11.—De la no aceptación de recomendaciones: Si el titular subordinado discrepa de las recomendaciones contenidas en el Informe de la Auditoría Interna, elevará dicho Informe al Consejo Universitario, con copia a la Auditoría Interna, exponiendo por escrito las razones por las cuales objeta las recomendaciones y proponiendo soluciones alternas para los hallazgos detectados. Para tal gestión, cuenta con un plazo improrrogable de diez días hábiles, que rigen a partir de la fecha de recibido el Informe5.
+5 Art. 36 a) ibídem.
+El Consejo Universitario deberá resolver el asunto, en un plazo improrrogable de veinte días hábiles contados a partir de la recepción en la Secretaría del Consejo Universitario, de la documentación remitida por el titular subordinado6, y deberá ordenar la implementación de las recomendaciones de la auditoría, las soluciones alternas propuestas por el titular subordinado o las de su propia iniciativa, en cada caso debidamente fundamentadas, mediante acuerdo firme, con la obligatoriedad de presentar el plan de implementación correspondiente.
+6 Art 36 b) ibídem.
+Dentro de los primeros diez días de ese lapso, el Auditor Interno podrá pronunciarse sobre las objeciones o soluciones alternas propuestas.
+A- Si el Auditor Interno está de acuerdo con las soluciones alternas propuestas por el Jerarca y/o titular subordinado, modificará lo pertinente y lo informará al Consejo Universitario, para que proceda según corresponda.
+B- Si el Auditor Interno no está de acuerdo con las soluciones alternas propuestas, lo comunicará al Consejo Universitario con los antecedentes respectivos, para que ese órgano conozca y tome la decisión respectiva dentro del plazo restante de los veinte días indicados7.
+7 Art 36 a) ibídem.
+De persistir el conflicto, se procederá con base en lo establecido en el artículo 7º del presente Reglamento.
