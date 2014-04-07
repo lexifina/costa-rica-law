@@ -1,0 +1,1 @@
+Artículo 21.—En el seno del Consejo se nombrará una secretaría que será la encargada de elaborar la agenda de las sesiones de conformidad con las instrucciones que le gire la persona coordinadora del Consejo y llevar las actas de las reuniones, para lo cual se le deberá asignar, por parte del Inder, un libro de actas debidamente foliado y con las autorizaciones respectivas.

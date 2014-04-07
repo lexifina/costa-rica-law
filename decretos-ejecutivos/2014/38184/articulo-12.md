@@ -1,0 +1,1 @@
+Artículo 12.—El Comité Directivo deberá reunirse al menos una vez al mes, y el quórum para sesionar será de dos tercios de los representantes que la conforman. Las decisiones del Comité se tomarán por mayoría absoluta de los presentes.

@@ -1,0 +1,1 @@
+Artículo 20.—La coordinación del Consejo recaerá en la persona que representa el Inder, quien tendrá la responsabilidad de convocar a las reuniones ordinarias y extraordinarias y de apoyar la logística de cada reunión. Además le corresponderá implementar o ejecutar los acuerdos del Consejo.

@@ -1,0 +1,1 @@
+Artículo 9°—La Asamblea General deberá reunirse en sesión ordinaria al menos una vez al año y en forma extraordinaria cuando sea requerido. El quórum para sesionar será de dos tercios de sus miembros. Será convocada por el Comité Directivo. Los acuerdos se tomarán por mayoría absoluta.
