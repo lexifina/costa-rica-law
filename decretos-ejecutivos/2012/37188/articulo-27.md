@@ -7,3 +7,5 @@ E. Del calzado para hombres. Zapatillas lisa de cuero o charol sintético, con a
 F. Del calzado para mujeres. Zapatos de tacón cuña no superior a 5 centímetros de alto y 4 centímetros de ancho de cuero o charol sintético, y se usarán con medias lisas de color negro.
 G. Del cinturón. Para ambos sexos, será una faja de lona en color negro con hebilla de color dorado, con acabado troquelado en alto relieve el escudo de la Fuerza Pública.
 H. De la Cubierta. Gorrilla o cachucha de color azul oscuro de tela lino peruano con las siguientes características: forro con terminación en cinta interna color negra, en la parte superior tendrá una cuchilla de la misma tela para ajustar al tamaño de la cabeza, en el mismo se colocará el grado policial, la figura será metálica e irá al lado izquierdo en su parte frontal.
+I. De la camiseta. Para ambos sexos, será de color blanca o negra, cuello redondo, tendrá en la parte delantera la leyenda “POLICÍA” y en la trasera la leyenda “FUERZA PÚBLICA”, en color gris o amarillo.
+(Así adicionado el inciso anterior por el artículo 11 del decreto ejecutivo N° 38337 del 7 de abril del 2014)
