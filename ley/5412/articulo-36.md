@@ -1,2 +1,4 @@
-Artículo 36.—Corresponde a la OCIS proporcionar apoyo administrativo a los programas que se le encomienden, ajustándose a la política general del Ministerio. Para ello, gozará de independencia tanto económica como administrativa, y de personalidad jurídica instrumental; además, estará exenta del pago de toda clase de impuestos y sujeta a la fiscalización de la Contraloría General de la República.
-(Así reformado por el artículo 2 de la Ley N° 8270 de 2 de mayo del 2002)
+SECCION II
+Artículo 36.- La estructura administrativa interna del Ministerio de Salud será establecida por reglamento que emitirá el Poder Ejecutivo. Si en virtud de las reestructuraciones se amerita variar las funciones del personal, el Ministerio garantizará la capacitación y formación adecuadas de los involucrados, a fin de que se brinde un servicio de calidad óptima a los beneficiarios y usuarios de este Ministerio.
+(Así reformado por el artículo 1° de la Ley No. 7927 de 12 de octubre de 1999).
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 28 al 36)

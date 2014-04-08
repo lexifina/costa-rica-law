@@ -1,0 +1,2 @@
+Artículo 64.- Quedan a salvo del procedimiento señalado en este título las resoluciones y medidas que se dicten en materia de Servicio Civil y laboral, en cuyo caso se estará a lo que dispongan las leyes y reglamentos respectivos.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 56 al 64)

@@ -1,8 +1,6 @@
-Artículo 46.- Las Juntas de Protección Social, Patronatos, Comités,
-Consejos Técnicos, así como cualquier otro organismo similar de los
-establecimientos bajo la dirección del Ministerio, deberán comunicar a
-éste en el término de 15 días los acuerdos que tomen, los que podrán ser
-revocados, dentro de los 8 días siguientes a su recibo, cuando
-contravengan disposiciones legales o reglamentarias, o la política
-general definida por el Ministerio, todo de conformidad con el reglamento
-respectivo.
+LIBRO II
+Del Financiamiento
+SECCION I
+Del Régimen Económico Financiero de las Instituciones de Asistencia Médica
+Artículo 46.- Los establecimientos de asistencia médica prepararán sus presupuestos de acuerdo con las normas técnicas que al efecto dicte el Ministerio.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 38 al 46)

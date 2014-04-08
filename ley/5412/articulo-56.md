@@ -1,4 +1,2 @@
-Artículo 56.- Quedan a salvo del procedimiento señalado en este
-título las resoluciones y medidas que se dicten en materia de Servicio
-Civil y laboral, en cuyo caso se estará a lo que dispongan las leyes y
-reglamentos respectivos.
+Artículo 56.- Las Municipalidades no podrán iniciar la ejecución de obras públicas de carácter sanitario, como Mataderos, Mercados, Hospitales, Hospicios, Crematorios, Basureros y otras de naturaleza análoga, sin la previa autorización del Ministerio, al cual remitirán oportunamente los planos y sus especificaciones, presupuestos y demás datos y antecedentes que contribuyan a formar concepto de dichas obras.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 48 al 56)

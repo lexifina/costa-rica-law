@@ -1,3 +1,2 @@
-Artículo 50.- Las disposiciones y resoluciones de carácter general
-serán tomadas por el Titular de la Cartera, mediante decreto que se
-publicará en el Diario Oficial.
+Artículo 50.- Se autoriza a los establecimientos de asistencia médica para la recaudación de fondos por concepto de bienes o servicios, conforme a las normas que dicte el Ministerio, con las limitaciones señaladas en el artículo anterior y la Ley de la Administración Financiera.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 42 al 50)

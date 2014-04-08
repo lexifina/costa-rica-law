@@ -1,6 +1,2 @@
-Artículo 48.- Las Municipalidades no podrán iniciar la ejecución de
-obras públicas de carácter sanitario, como Mataderos, Mercados,
-Hospitales, Hospicios, Crematorios, Basureros y otras de naturaleza
-análoga, sin la previa autorización del Ministerio, al cual remitirán
-oportunamente los planos y sus especificaciones, presupuestos y demás
-datos y antecedentes que contribuyan a formar concepto de dichas obras.
+Artículo 48.- Los procedimientos para elaborar y tramitar los presupuestos de los establecimientos públicos de asistencia médica a que esta ley se refiere, se ajustarán a las normas generales que al efecto indique la Ley de la Administración Financiera, en lo que fueren aplicables, de conformidad con el artículo 66, y a las específicas que dicte el Ministerio.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 40 al 48)
