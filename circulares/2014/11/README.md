@@ -13,3 +13,4 @@ Lista de funcionarias y funcionarios del Departamento de Servicio al Usuario del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-23 | la propia norma |
+| 2 | 2014-04-08 | Circular 68 (2014-04-08) |
