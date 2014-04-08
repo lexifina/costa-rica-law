@@ -1,6 +1,2 @@
-ARTICULO 343.- Toda institución o establecimiento público,
-semipúblico o privado que realice acciones de salud sean éstas de
-promoción, conservación o recuperación de la salud en las personas o de
-rehabilitación del paciente queda sujeto a las normas técnicas que el
-Ministerio dicte dentro de sus atribuciones y al control y
-supervigilancia técnica de las autoridades de salud.
+Artículo 343.- Toda institución o establecimiento público, semipúblico o privado que realice acciones de salud, sean estas de prevención, promoción, conservación o recuperación de la salud física y mental en las personas o de rehabilitación del paciente, queda sujeto a las normas técnicas que el Ministerio dicte dentro de sus atribuciones, y al control y la vigilancia técnica de las autoridades de salud.
+(Así reformado por el artículo 1° de la ley N° 9213 del 4 de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental")
