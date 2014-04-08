@@ -1,11 +1,5 @@
 CAPITULO I
 De los derechos y deberes relativos a la promoción y conservación
 de la salud personal y familiar
-ARTICULO 10.- Toda persona tiene derecho a obtener de los
-funcionarios competentes la debida información y las instrucciones
-adecuadas sobre asuntos, acciones y prácticas conducentes a la promoción
-y conservación de su salud personal y de la de los miembros de su hogar,
-particularmente, sobre higiene, dieta adecuada, orientación psicológica,
-higiene mental, educación sexual, enfermedades transmisibles,
-planificación familiar, diagnóstico precoz de enfermedades y sobre
-prácticas y el uso de elementos técnicos especiales.
+Artículo 10.- Toda persona tiene derecho a obtener de los funcionarios competentes la debida información y las instrucciones adecuadas sobre los asuntos, las acciones y las prácticas conducentes a la promoción y la conservación de la salud física y mental de los miembros de su hogar, particularmente, sobre higiene, dieta adecuada, orientación psicológica, higiene mental, educación sexual, enfermedades transmisibles, planificación familiar, diagnóstico precoz de enfermedades, depresión, suicidio, esquizofrenia, adicciones a las drogas y el alcohol, el matonismo escolar, el acoso laboral y el apoyo necesario al grupo familiar, así como sobre prácticas y el uso de elementos técnicos especiales.
+(Así reformado por el artículo 1° de la ley N° 9213 del 4 de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental")

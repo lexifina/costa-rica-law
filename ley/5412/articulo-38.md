@@ -1,8 +1,2 @@
-LIBRO II
-Del Financiamiento
-SECCION I
-Del Régimen Económico Financiero de las Instituciones de Asistencia
-Médica
-Artículo 38.- Los establecimientos de asistencia médica prepararán
-sus presupuestos de acuerdo con las normas técnicas que al efecto dicte
-el Ministerio.
+Artículo 38.- (Derogado por el artículo 4 de la Ley No. 7927 de 12 de octubre de 1999).
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 30 al 38)

@@ -1,10 +1,2 @@
-ARTICULO 29.- Las personas con trastornos emocionales severos así
-como las personas con dependencia del uso de drogas u otras sustancias,
-incluidos los alcohólicos, podrán someterse voluntariamente a tratamiento
-especializado ambulatorio o de internamiento en los servicios de salud y
-deberán hacerlo cuando lo ordene la autoridad competente, por estimarlo
-necesario, según los requisitos que los reglamentos pertinentes
-determinen.
-( Así reformado por el artículo 74 de la Ley sobre Igualdad de
-Oportunidades para las Personas con Discapacidad Nº 7600 de 2 de mayo de
-1996)
+Artículo 29.- Las personas con desórdenes mentales o del comportamiento severos, tales como la depresión, el suicidio, la esquizofrenia, las adicciones a las drogas y el alcohol, el matonismo escolar, el acoso laboral y el apoyo necesario al grupo familiar podrán someterse voluntariamente a un tratamiento especializado ambulatorio o de internamiento en los servicios de salud, y deberán hacerlo cuando lo ordene la autoridad competente, de conformidad con la legislación vigente.
+(Así reformado por el artículo 1° de la ley N° 9213 del 4 de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental")

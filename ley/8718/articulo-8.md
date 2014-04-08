@@ -3,6 +3,8 @@ La utilidad neta total de la Junta de Protección Social, será distribuida de l
 a) De un trece por ciento (13%) a un catorce por ciento (14%) para la Junta de Protección Social, destinado a financiar los gastos de capital y de desarrollo institucional, así como los gastos que no tengan relación directa con la venta y operación de las loterías, los juegos y otros productos de azar.
 b) La Junta deberá incluir, en las liquidaciones presupuestarias anuales que envía a la Contraloría General de la República, un detalle respecto del uso de esos recursos.
 c) De un tres por ciento (3%) a un tres coma diez por ciento (3,10%) para el Consejo Técnico de Asistencia Médico Social, destinado a financiar, exclusivamente, programas públicos de salud preventiva.
+Asimismo, de los recursos que perciba el Consejo Técnico de Asistencia Médico Social, según el párrafo anterior, se destinará un diez por ciento (10%) al financiamiento de los programas y actividades de promoción y prevención de la salud mental. Del porcentaje anterior queda excluido el pago de salarios.
+(Así adicionado el párrafo anterior por el artículo 5° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental")
 d) De un ocho por ciento (8%) a un nueve por ciento (9%) se distribuirá entre asociaciones, fundaciones u otras organizaciones cuyos fines estén dirigidos al bienestar y el fortalecimiento de instituciones públicas de asistencia médica.
 Su distribución se efectuará de acuerdo con la importancia médico-social y según el Manual de criterios para la distribución de recursos de la Junta de Protección Social. Para estos efectos, serán objeto de financiamiento los siguientes conceptos:
 1) Equipo médico especializado.

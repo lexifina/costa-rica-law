@@ -1,15 +1,2 @@
-SECCION II
-De la Administración Sanitaria Municipal
-Artículo 47.- Todas las municipalidades de la República deberán
-destinar no menos del 20% de sus entradas anuales para los servicios de
-salud que, de acuerdo con las necesidades determinadas conjuntamente con
-el Ministerio, hayan de realizar en sus respectivas localidades.
-El Ministerio queda obligado a proporcionar la asesoría técnica que
-las municipalidades requieran para brindar los servicios antes dichos,
-los cuales serán coordinados por ese Ministerio, a través de la autoridad
-de salud que el mismo designe.
-La Contraloría General de la República velará por el cumplimiento de
-estas disposiciones.
-Las municipalidades atenderán todas las medidas sanitarias que el
-Ministerio indique para la conservación de la higiene y para prevenir y
-combatir epidemias.
+Artículo 47.- Los establecimientos de Asistencia Médica bajo la jurisdicción del Ministerio podrán, con autorización expresa del Poder Ejecutivo, comprar, vender, arrendar, cambiar, hipotecar y en cualquier forma adquirir, enajenar o gravar toda clase de bienes inmuebles, siempre que el valor de la operación no sea mayor de diez mil colones. Cuando la operación exceda de ese valor, será necesaria la autorización de la Asamblea Legislativa. También se requiere esta misma autorización, cualquiera que se el valor de la respectiva operación, cuando se trate de hacer donaciones, préstamos, otorgamientos de garantía en favor de otras corporaciones similares o de la condonación de impuestos.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 39 al 47)

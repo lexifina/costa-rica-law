@@ -1,3 +1,2 @@
-Artículo 58.- Esta ley rige noventa días después de su publicación.
-El Poder Ejecutivo deberá dictar los reglamentos respectivos dentro de un
-plazo no mayor de doce meses a partir de la vigencia de la presente ley.
+Artículo 58.- Las disposiciones y resoluciones de carácter general serán tomadas por el Titular de la Cartera, mediante decreto que se publicará en el Diario Oficial.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 50 al 58)
