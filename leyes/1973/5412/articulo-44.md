@@ -1,5 +1,3 @@
-Artículo 44.- La Administración y los fondos de las entidades de
-Asistencia Médico-Social a que esta ley se refiere, estarán a cargo de la
-Dirección General de Salud, con la asesoría del Consejo Técnico de
-Asistencia Médico Social, por medio de las estructuras administrativas
-existentes.
+Artículo 44.—Corresponde a la OCIS proporcionar apoyo administrativo a los programas que se le encomienden, ajustándose a la política general del Ministerio. Para ello, gozará de independencia tanto económica como administrativa, y de personalidad jurídica instrumental; además, estará exenta del pago de toda clase de impuestos y sujeta a la fiscalización de la Contraloría General de la República.
+(Así reformado por el artículo 2 de la Ley N° 8270 de 2 de mayo del 2002)
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 36 al 44)

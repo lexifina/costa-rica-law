@@ -1,12 +1,11 @@
-SECCION III
-De la Oficina de Cooperación Internacional de la Salud
-O.C.I.S.
-Artículo 35.- O.C.I.S. es un organismo adscrito al Ministerio, que
-tendrá a su cargo la gestión financiera que se le encomiende referente a
-programas nacionales y campañas especiales de salud, financiadas con
-recursos provenientes de convenios con organismos internacionales, de
-contribuciones especiales, de fondos asignados en el Presupuesto General
-de la República o en leyes específicas.
-Dicha Oficina estará a cargo de un Administrador quien será el
-responsable de su gestión y quien dependerá directamente del Director de
-la División Administrativa.
+Artículo 35.- Corresponde al Director General de Salud:
+a) Participar en el proceso de definición y formulación de la política nacional de salud, como asesor técnico del Ministro;
+b) Organizar, coordinar, supervisar y fiscalizar, con la colaboración del personal técnico, y administrativo necesario, todas las acciones de fomento, protección y recuperación de la salud que realice el Ministerio;
+c) Velar por el estricto cumplimiento de las leyes, reglamentos y disposiciones en materia de salud;
+ch) Realizar los demás actos y funciones que el Ministro o el Viceministro le encomienden;
+d) Ejercer la autoridad disciplinaria sobre sus subalternos inmediatos, velando porque los funcionarios cumplan conforme a las leyes y reglamentos pertinentes;
+e) Velar por el correcto cumplimiento de las actuaciones y disposiciones de carácter administrativo;
+f) Velar por la coordinación entre todas las dependencias, organismos u oficinas del Ministerio;
+g) Por delegación expresa del despacho del Ministro, representar al Ministerio ante los organismos internacionales, públicos o privados; y
+h) Todas las demás que le competen conforme a la ley.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 27 al 35)

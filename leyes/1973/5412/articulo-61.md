@@ -1,0 +1,2 @@
+Artículo 61.- El establecimiento de los recursos no suspende la ejecución del acto requerido, a menos que, en casos muy calificados, en forma razonada, el Titular de la Cartera, interlocutoriamente y para evitar un resultado irreparable, ordene la suspensión provisional del acto, lo cual hará, en todo caso, bajo su responsabilidad.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 53 al 61)

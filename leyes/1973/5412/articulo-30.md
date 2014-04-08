@@ -1,1 +1,13 @@
-Artículo 30.- (Derogado por el artículo 4 de la Ley No. 7927 de 12 de octubre de 1999).
+Artículo 30.- Creación del Consejo Nacional de Salud Mental
+Se crea el Consejo Nacional de Salud Mental de la Secretaría Técnica de Salud Mental.
+El Consejo Nacional estará integrado por:
+a) El ministro de Salud o su representante, quien lo preside.
+b) El ministro de Educación Pública o su representante.
+c) Un representante de la Caja Costarricense de Seguro Social.
+d) Un representante del Instituto de Alcoholismo y Farmacodependencia.
+e) Un representante del Patronato Nacional de la Infancia.
+f) Un representante del Instituto Costarricense del Deporte.
+g) Un representante de la Junta de Protección Social de San José.
+h) Un representante del Consejo Nacional de la Persona Adulta Mayor.
+i) Un representante de las organizaciones no gubernamentales que trabajan con personas con problemas mentales o que se han recuperado.
+(Así adicionado por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental")

@@ -1,7 +1,2 @@
-Artículo 54.- Las resoluciones que dicte el Titular de la Cartera,
-tendrán recurso de reposición, el cual se presentará directamente ante
-éste, quien tendrá un plazo de dos meses para resolver, teniéndose por
-denegado el reclamo si no se hubiera resuelto dentro del expresado
-término.
-La tramitación de dicho recurso se llevará a cabo de acuerdo con las
-normas aquí establecidas en lo que fuere aplicable.
+Artículo 54.- Las Juntas de Protección Social, Patronatos, Comités, Consejos Técnicos, así como cualquier otro organismo similar de los establecimientos bajo la dirección del Ministerio, deberán comunicar a éste en el término de 15 días los acuerdos que tomen, los que podrán ser revocados, dentro de los 8 días siguientes a su recibo, cuando contravengan disposiciones legales o reglamentarias, o la política general definida por el Ministerio, todo de conformidad con el reglamento respectivo.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 46 al 54)

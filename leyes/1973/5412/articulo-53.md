@@ -1,5 +1,2 @@
-Artículo 53.- El establecimiento de los recursos no suspende la
-ejecución del acto requerido, a menos que, en casos muy calificados, en
-forma razonada, el Titular de la Cartera, interlocutoriamente y para
-evitar un resultado irreparable, ordene la suspensión provisional del
-acto, lo cual hará, en todo caso, bajo su responsabilidad.
+Artículo 53.- Las compras de artículos de consumo alimenticio, ropas y enseres propios para servicios hospitalarios, materiales y herramientas para construcciones, medicamentos, mobiliario, equipos o utensilios en general, cuando su valor excediere de diez mil colones, deberá ser solicitadas por el establecimiento respectivo a la Dirección General de Salud, la cual procederá a la compra, previa licitación pública o privada, con cargo a los fondos de tal establecimiento. Sin embargo, en casos muy especiales, la Dirección, con la aprobación expresa de la Contraloría General de la República, a solicitud del Ministro, podrá prescindir del trámite de licitación.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 45 al 53)

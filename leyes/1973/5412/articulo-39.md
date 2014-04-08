@@ -1,10 +1,2 @@
-Artículo 39.- Los establecimientos de Asistencia Médica bajo la
-jurisdicción del Ministerio podrán, con autorización expresa del Poder
-Ejecutivo, comprar, vender, arrendar, cambiar, hipotecar y en cualquier
-forma adquirir, enajenar o gravar toda clase de bienes inmuebles, siempre
-que el valor de la operación no sea mayor de diez mil colones. Cuando la
-operación exceda de ese valor, será necesaria la autorización de la
-Asamblea Legislativa. También se requiere esta misma autorización,
-cualquiera que se el valor de la respectiva operación, cuando se trate de
-hacer donaciones, préstamos, otorgamientos de garantía en favor de otras
-corporaciones similares o de la condonación de impuestos.
+Artículo 39.- (Derogado por el artículo 4 de la Ley No. 7927 de 12 de octubre de 1999).
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 31 al 39)

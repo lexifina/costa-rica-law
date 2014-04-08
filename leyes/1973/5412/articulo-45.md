@@ -1,10 +1,2 @@
-Artículo 45.- Las compras de artículos de consumo alimenticio, ropas
-y enseres propios para servicios hospitalarios, materiales y herramientas
-para construcciones, medicamentos, mobiliario, equipos o utensilios en
-general, cuando su valor excediere de diez mil colones, deberá ser
-solicitadas por el establecimiento respectivo a la Dirección General de
-Salud, la cual procederá a la compra, previa licitación pública o
-privada, con cargo a los fondos de tal establecimiento. Sin embargo, en
-casos muy especiales, la Dirección, con la aprobación expresa de la
-Contraloría General de la República, a solicitud del Ministro, podrá
-prescindir del trámite de licitación.
+Artículo 45.- El funcionamiento de O.C.I.S. deberá ajustarse a las normas señaladas en el reglamento respectivo.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 37 al 45)

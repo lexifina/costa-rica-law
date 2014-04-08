@@ -1,5 +1,2 @@
-Artículo 42.- Se autoriza a los establecimientos de asistencia
-médica para la recaudación de fondos por concepto de bienes o servicios,
-conforme a las normas que dicte el Ministerio, con las limitaciones
-señaladas en el artículo anterior y la Ley de la Administración
-Financiera.
+Artículo 42.- Para una mejor prestación de servicios y una más eficiente ejecución de las acciones de salud, el territorio nacional se dividirá en las Regiones Programáticas de Salud que el Ministerio determine.
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 34 al 42)

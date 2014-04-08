@@ -1,4 +1,2 @@
-Artículo 41.- La aprobación definitiva de los presupuestos de los
-establecimientos a que esta ley se refiere, corresponderá al Titular de
-la Cartera, sin perjuicio de las facultades que la ley concede a la
-Contraloría General de la República.
+Artículo 41.- (Derogado por el artículo 4 de la Ley No. 7927 de 12 de octubre de 1999).
+(Así corrida su numeración por el artículo 4° de la ley N° 9213 del 4° de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental", que lo traspaso del antiguo artículo 33 al 41)
