@@ -14,3 +14,4 @@ Crea la Unidad de Asuntos Internacionales del Ministerio de Hacienda y reforma l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-06 | la propia norma |
+| 2 | 2014-04-08 | Decreto Ejecutivo 38424 (2014-04-08) |

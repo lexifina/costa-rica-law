@@ -3,7 +3,8 @@ a) Proponer al Ministro lineamientos generales para administrar los programas de
 b) Inventariar los programas de asistencia técnica existentes en el Ministerio de Hacienda.
 c) Proponer al Ministro lineamientos de política institucional sobre participación y trabajo en foros y organismos internacionales.
 d) Diseñar una estrategia de negociación de convenios internacionales relacionados con asuntos fiscales, acorde con los estándares internacionales existentes.
-e) Participar conjuntamente con la Dirección de Crédito Público, la Dirección General de Tributación, la Dirección General de Aduanas o cualquier otra dependencia del Ministerio, según designación del Ministro, en la negociación de convenios o tratados internacionales competencia del Ministerio de Hacienda.
+e) Participar conjuntamente con la Dirección General de Tributación, la Dirección General de Aduanas o cualquier otra dependencia del Ministerio, según designación del Ministro, en la negociación de convenios o tratados internacionales competencia del Ministerio de Hacienda, a excepción de los convenios que impliquen directa o indirectamente financiamiento público.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38424 del 8 de abril del 2014)
 f) Establecer protocolos internos de cómo deben llevarse a cabo las negociaciones en atención a tratados o convenios internacionales.
 g) Coordinar las ceremonias de firma de convenios y tratados internacionales competencia del Ministerio de Hacienda.
 h) Preparar los proyectos de ley y brindar seguimiento legislativo a los proyectos de ley referentes a tratados o convenios internacionales que impulsa el Ministerio de Hacienda, o cualquier otro afín a las competencias de la Unidad.
