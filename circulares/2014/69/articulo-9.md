@@ -1,0 +1,1 @@
+Artículo 9º—Si la vacante en el cargo de Presidente o Presidenta ocurriere por vencimiento del nombramiento o renuncia a ese cargo, la convocatoria estipulada en el artículo segundo se hará una vez producida cualesquiera de esas situaciones.

@@ -1,0 +1,1 @@
+Artículo 8º—Si al finalizar esta segunda ronda de votaciones no se lograre el consenso necesario para elegir, se convocará a una tercera ronda de votaciones dentro de la siguiente semana, bajo el mismo procedimiento de debate y votación; y así sucesivamente hasta lograr la elección, todo bajo las reglas supra indicadas.

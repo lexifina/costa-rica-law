@@ -1,0 +1,1 @@
+Artículo 5º—Las reglas del debate serán fijadas de común acuerdo entre las candidatas o candidatos inscritos y quien haya sido designado para dirigir el debate. El acuerdo será debidamente comunicado a la Corte. En caso de que no haya acuerdo, las reglas del debate serán definidas por la Corte Plena.
