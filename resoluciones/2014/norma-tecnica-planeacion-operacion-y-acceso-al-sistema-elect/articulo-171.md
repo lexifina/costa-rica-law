@@ -1,0 +1,2 @@
+Artículo 171. Validación de los programas de racionamiento.
+Una vez que las empresas distribuidoras han establecido su propio programa de racionamiento, en concordancia con la estrategia que el Operador del Sistema ha establecido de acuerdo con los diferentes escenarios de racionamiento, deben enviar dichos programas al Operador del Sistema para someterlos a verificación con la estrategia integral de racionamiento, en términos de magnitud y duración. El Operador del Sistema informará sobre el resultado de dicha verificación e indicará los ajustes que deban realizarse.

@@ -1,0 +1,2 @@
+Artículo 22. Expansión de la generación.
+En lo que respecta al planeamiento del Sistema Eléctrico Nacional referente a la generación, se considerará el máximo aprovechamiento de los recursos renovables, mediante una matriz energética diversificada que propicie la satisfacción de la demanda de energía independientemente de la estacionalidad climática, y con el mínimo costo, dentro de un plan con horizontes a corto, mediano y largo plazo.

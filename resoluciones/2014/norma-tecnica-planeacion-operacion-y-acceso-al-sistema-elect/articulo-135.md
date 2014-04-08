@@ -1,0 +1,2 @@
+Artículo 135. Pruebas operativas.
+El procedimiento de puesta en servicio de un micro o mini generador, deberá incluir las pruebas técnicas que la empresa distribuidora considere necesarias para resguardar la confiabilidad y seguridad operativas de su red, así como la continuidad y calidad del suministro eléctrico y la integridad física de usuarios del servicio y de transeúntes que eventualmente se desplacen cerca de donde están ubicados los generadores.

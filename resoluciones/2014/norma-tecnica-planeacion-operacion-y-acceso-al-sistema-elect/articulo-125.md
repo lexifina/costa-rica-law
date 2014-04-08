@@ -1,0 +1,2 @@
+Artículo 125. Capacidad de acceso.
+Las empresas eléctricas efectuarán los estudios técnicos necesarios para cuantificar la capacidad de sus redes de distribución para la operación en paralelo de micro y mini generadores, considerando que la operación de los mismos no interfiera con la seguridad, continuidad y calidad del suministro eléctrico, de conformidad con las normas técnicas emitidas por la Autoridad Reguladora.

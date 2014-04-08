@@ -1,0 +1,9 @@
+Artículo 88. Indisponibilidad indirecta forzada de una planta de generación.
+Expresa la indisponibilidad forzada de una planta de generación debido a eventos indirectos y está definido por:
+[imagen]
+En donde:
+HINDIFUGi= Total de horas semestrales en que la unidad de generación i estuvo
+indisponible por eventos indirectos forzados.
+HS Número de horas del semestre según corresponda.
+=
+N = Número de unidades de generación que conforman la planta de generación.

@@ -1,0 +1,2 @@
+Artículo 149. Póliza de responsabilidad civil.
+El generador deberá, si la empresa distribuidora lo requiere, adquirir y mantener una póliza de responsabilidad civil por los daños que la operación de sus equipos o fallas de sus instalaciones pueda ocasionar a la empresa distribuidora o que ésta produzca a sus abonados o usuarios, a consecuencia de deficiencias o fallas operativas de sus instalaciones y equipos.

@@ -1,0 +1,4 @@
+CAPÍTULO VIII.
+TOPOLOGÍA Y REQUISITOS TÉCNICOS DE LAS CONEXIONES AL SEN.
+Artículo 37. Principio del desarrollo topológico del SEN.
+Con el fin de maximizar la calidad, continuidad, confiabilidad y seguridad del suministro eléctrico, la configuración topológica del Sistema Eléctrico Nacional debe desarrollarse de manera integral, ordenada y acorde con su propio crecimiento, al aumento de la demanda de energía y potencia, a los requisitos tecnológicos de los usuarios y en armonía con el medio ambiente, de tal forma que se asegure su flexibilidad operativa y una estructura simple, pero adaptable a las condiciones actuales y futuras del país. En ese sentido debe potencializarse la configuración anillada de la red de transmisión y la redundancia de alimentación a los principales centros de carga, siempre y cuando, en este último caso, las obras cuenten con las justificaciones técnicas y económicas.

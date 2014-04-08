@@ -1,0 +1,4 @@
+Artículo 168. Frecuencia y duración de los períodos de racionamiento.
+Es responsabilidad y potestativo de las empresas distribuidoras, de acuerdo con lo que a ese efecto le señale el Operador del Sistema programar los racionamientos de acuerdo con la topología de distribución en su área de concesión.
+La facultad potestativa de las empresas distribuidoras, comprende la selección de alimentadores u abonados-usuarios, de conformidad con el impacto que el racionamiento les cause en términos de la duración y frecuencia, salvo requerimiento expreso del Operador del Sistema por condiciones de seguridad y estabilidad del Sistema Eléctrico Nacional.
+La participación de cada empresa distribuidora en los programas de racionamiento, en términos de magnitud y duración, se establecerá conforme a lo estipulado en el artículo 165.

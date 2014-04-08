@@ -1,0 +1,2 @@
+Artículo 23. Generación térmica a base de derivados de petróleo.
+La incorporación y uso de generación térmica a base de derivados de petróleo deberá ser la menor posible, siempre y cuando permita minimizar el costo total del sistema de generación. Estas unidades térmicas, cuyo costo total (operación e inversión) es el óptimo para la matriz energética, se conectaran a un sistema de transmisión, robusto y flexible, que permita el transporte de la generación térmica de menor costo a los centros de carga del Sistema Eléctrico Nacional.

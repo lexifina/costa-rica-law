@@ -1,0 +1,2 @@
+Artículo 130. Contrato de conexión
+Para la interconexión y operación de un micro o mini generador a la red de distribución, el interesado deberá suscribir un “Contrato de Conexión” con la empresa distribuidora, en el cual se especificarán las condiciones técnicas, comerciales y jurídicas, así como las obligaciones, bajo las cuales se regirá la puesta en servicio y operación de la conexión solicitada. La Autoridad Reguladora aprobará los formatos y prototipos de los contratos de conexión y las observaciones que haga serán de acatamiento obligatorio.

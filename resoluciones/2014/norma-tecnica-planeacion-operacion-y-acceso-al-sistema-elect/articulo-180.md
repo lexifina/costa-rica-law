@@ -1,0 +1,8 @@
+Artículo 180. Multas y Sanciones.
+Las sanciones por el incumplimiento de los aspectos contemplados por la presente en la presente norma técnica, se aplicarán de conformidad con lo que dispone la Ley 7593 y leyes conexas.
+Serán sujetos de multas los usuarios del Sistema Eléctrico Nacional que:
+a. Incumplan en la prestación de los servicios auxiliares definidos en el artículo 41 de esta norma y en general que realicen u omitan acciones que atenten en contra de la calidad, confiabilidad, seguridad y desempeño del Sistema Eléctrico Nacional.
+b. Incumplan con la programación e instrucciones operativas dadas por el Operador del Sistema sin causa justificada, incluyendo incumplimiento en la entrada y retiro programado de instalaciones y la no notificación de cambios en el estado de equipos.
+c. Nieguen o presenten resistencia o falta de colaboración a entregar al Operador del Sistema la información técnica necesaria para la operación, segura, confiable y de calidad del Sistema Eléctrico Nacional.
+d. Declaren indisponibilidades inexistentes que pongan en peligro la seguridad operativa del Sistema Eléctrico Nacional o influyan negativamente en la satisfacción óptima económica de la demanda nacional.
+e. Incumplan con los requisitos establecidos por el Operador del Sistema, el ICE, las empresas de transmisión, el ICE y las empresas distribuidoras.

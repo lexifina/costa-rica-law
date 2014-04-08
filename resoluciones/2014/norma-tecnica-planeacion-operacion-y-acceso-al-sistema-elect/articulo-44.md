@@ -1,0 +1,2 @@
+Artículo 44. Disponibilidad, continuidad y seguridad.
+La disponibilidad, continuidad y seguridad del SEN, en aras de mantener su operación óptima, asegurar la selectividad de los sistemas de protección y la seguridad en la ejecución correcta de las maniobras ordenadas por el Operador del Sistema, son responsabilidad de los empresas generadoras, de las transmisoras, de las distribuidoras y de los abonados o de los usuarios en alta tensión.

@@ -1,0 +1,4 @@
+Artículo 164. Disponibilidad de plantas.
+Salvo caso fortuito o fuerza mayor, los generadores privados y las empresas distribuidoras mantendrán en óptimo funcionamiento sus plantas de generación, de acuerdo con los niveles de capacidad de la fuente primaria existente al momento.
+El Operador del Sistema, deberá ejercer una observancia constante, en tiempo real, de los embalses y de los caudales, así como establecer las proyecciones de los niveles de que pueda disponer, según tendencias y aportes de acuerdo con las condiciones hídricas existentes. Igual observancia deberá tener sobre cualquier otro recurso energético primario disponible.
+La Autoridad Reguladora podrá directamente o por medio de terceros, verificar el grado de disponibilidad de las plantas que conforman el Sistema Eléctrico Nacional.

@@ -1,0 +1,3 @@
+Artículo 19. Control de tensión.
+Las tensiones requeridas en los nodos de generación se determinarán de acuerdo con los resultados del planeamiento operativo del SEN, en concordancia con lo que señala el artículo 24.
+Todas las plantas del SEN están en la obligación de participar en el control de tensión, por medio de la generación o absorción de potencia reactiva, de acuerdo con la curva de capacidad de sus unidades. La generación o absorción de potencia reactiva de las centrales se establecerá de acuerdo con los análisis eléctricos de estado estacionario realizados por el Operador del Sistema, para las diferentes condiciones de demanda.
