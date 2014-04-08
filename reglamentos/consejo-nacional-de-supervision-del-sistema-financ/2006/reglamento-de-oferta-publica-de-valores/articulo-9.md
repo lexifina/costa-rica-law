@@ -2,16 +2,19 @@ TÍTULO II
 Valores objeto de oferta pública
 CAPÍTULO I
 Condiciones generales
-Artículo 9°—Emisiones estandarizadas. Únicamente podrán ser objeto de Oferta Pública de Valores emitidos en forma estandarizada. Se consideran emisiones de valores estandarizadas aquellas provenientes de un mismo emisor en las que todos los valores que las componen confieren a su tenedor idénticos derechos y obligaciones.
-En el caso de valores de deuda, ya sea de papel comercial, bonos, bonos convertibles en acciones o productos estructurados, la identidad deberá referirse cuando resulte aplicable a las siguientes características:
+Artículo 9. Forma de representación
+Únicamente podrán ser objeto de oferta pública de valores los valores emitidos en forma estandarizada. Se consideran emisiones de valores estandarizadas aquellas provenientes de un mismo emisor en las que todos los valores que las componen confieren a su tenedor idénticos derechos y obligaciones. La representación por medio de anotación electrónica en cuenta de dichas emisiones, constituye una condición necesaria para la autorización de oferta pública.
+(Así reformado el párrafo anterior mediante sesión N° 1101-2014 del 8 de abril del 2014)
+En el caso de valores de deuda, ya sea de papel comercial, bonos, bonos convertibles en acciones o productos estructurados, la identidad deberá referirse cuando resulte aplicable a las siguientes características: (Nota 1: refiérase al transitorio g)
+(Así reformado el párrafo anterior mediante sesión N° 1101-2014 del 8 de abril del 2014)
 a) Fecha de emisión: a partir de la cual se contabiliza el plazo de la emisión.
 b) Fecha de vencimiento. El plazo de las emisiones de bonos con cupones deberá considerar meses de 30 días y años de 360 días.
 c) Valor facial.
 d) Moneda.
 e) Tasa de interés: en el caso de tasas ajustables, el índice al cual hacen referencia será el vigente al menos 1 día hábil antes del inicio de cada período de pago de intereses.
 f) Periodicidad de pago de intereses y amortizaciones.
-g) Ley de circulación.
-h) Forma de representación.
+g) (Derogado este inciso mediante sesión N° 1101-2014 del 8 de abril del 2014)
+h) (Derogado este inciso mediante sesión N° 1101-2014 del 8 de abril del 2014)
 i) Garantías.
 j) Código de identificación internacional ("ISIN"), el cual deberá presentarse de conformidad con el Artículo 41 de este reglamento.
 En caso de emisiones de valores con cero cupón no aplica lo indicado en los incisos e. y f. El Superintendente podrá exceptuar que las emisiones cumplan con algunas o todas de las características mínimas en atención a la naturaleza de los valores a registrar.
