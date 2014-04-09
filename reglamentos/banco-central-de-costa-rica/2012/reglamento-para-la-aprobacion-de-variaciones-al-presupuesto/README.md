@@ -15,3 +15,4 @@ Reglamento para la aprobación de variaciones al Presupuesto del Banco Central d
 | --- | --- | --- |
 | 1 | 2013-01-01 | la propia norma |
 | 2 | 2013-11-20 | Reglamento 5623 (2013-11-20) |
+| 3 | 2014-04-09 | Reglamento 5644 (2014-04-09) |
