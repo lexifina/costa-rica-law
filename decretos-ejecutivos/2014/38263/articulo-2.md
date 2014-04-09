@@ -1,0 +1,1 @@
+Artículo 2º—Del Tesorero y Subtesorero Nacional: El Tesorero y Subtesorero Nacional, gozan de independencia en el ejercicio de sus atribuciones las cuales serán reguladas por la ley; el nombramiento de ambos corresponde al Consejo de Gobierno, de conformidad con el artículo 186 de la Constitución Política.

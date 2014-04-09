@@ -1,0 +1,1 @@
+Artículo 26.—Del Departamento de Servicios Financieros a Terceros. Se crea el Departamento de Servicios Financieros a Terceros, con el fin de brindar servicios a las entidades cuyos fondos están depositados en la Caja Única del Tesoro. Así mismo, tendrá la obligación de custodiar las garantías a cargo de la Tesorería Nacional.

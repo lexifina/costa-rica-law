@@ -1,0 +1,1 @@
+Artículo 40.—Del Departamento de Atención de la Deuda Interna del Gobierno Central. Se crea un Departamento de Atención de la Deuda Interna del Gobierno Central, con el objetivo de obtener el financiamiento por medio de las captaciones al mercado financiero e instituciones públicas.

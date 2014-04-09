@@ -1,0 +1,1 @@
+Artículo 32.—De la Unidad de Control de Operaciones. Se crea la Unidad de Control de Operaciones con el objetivo de fortalecer el sistema de Control Interno y validar su aplicación en las operaciones financieras ejecutadas en la Tesorería Nacional, emitiendo las recomendaciones de soporte conforme a la normativa de control del sector público.

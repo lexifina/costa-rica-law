@@ -1,0 +1,1 @@
+Artículo 38.—De la Unidad de Control y Seguimiento de Deuda Interna. Se crea una Unidad de Control y Seguimiento de Deuda Interna, con el objetivo de realizar el adecuado análisis, registro, control e informes de las diferentes operaciones de deuda interna del Gobierno Central a cargo de la Tesorería Nacional.

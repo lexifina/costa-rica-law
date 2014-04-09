@@ -1,0 +1,1 @@
+Artículo 30.—De la Unidad de Fiscalización. Se crea la Unidad de Fiscalización con el objetivo de verificar el adecuado cumplimiento de la normativa y procedimientos relativos a los ingresos y egresos de los recursos del Tesoro Público por parte de los entes gestores.

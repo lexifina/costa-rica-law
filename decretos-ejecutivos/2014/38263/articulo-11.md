@@ -1,0 +1,1 @@
+Artículo 11.—De la Unidad de Análisis Económico y Financiero. Se crea la Unidad de Análisis Económico y Financiero dependiente en línea directa de la Dirección Tesorería Nacional, con el objetivo de proveer el soporte analítico e instrumental para la toma de decisiones en materia económica y financiera en la Tesorería Nacional.

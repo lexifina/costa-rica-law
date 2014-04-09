@@ -1,0 +1,1 @@
+Artículo 36.—De la Unidad de Gestión de Activos. Se crea la Unidad de Gestión de Activos, con el objetivo de gestionar los activos financieros administrados por la Tesorería Nacional dentro de niveles de riesgo prudentes, asegurando una correcta toma de decisiones de inversión.

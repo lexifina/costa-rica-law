@@ -1,0 +1,1 @@
+Artículo 42.—Derogatorias. Deróguense las siguientes disposiciones normativas: Decreto Ejecutivo N° 31624-H, del 03 de diciembre del 2003 y sus reformas, Reglamento de la Organización de la Tesorería Nacional.
