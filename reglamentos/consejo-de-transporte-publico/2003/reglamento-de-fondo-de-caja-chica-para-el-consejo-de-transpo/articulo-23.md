@@ -1,1 +1,0 @@
-Artículo 23.—Para las oficinas de regionales con ubicación en el Gran Área Metropolitana, la liquidación de los anticipos para compras deberá realizarse al tercer día hábil siguiente al del día del retiro del dinero, por medio del formulario "Liquidación Caja Chica".

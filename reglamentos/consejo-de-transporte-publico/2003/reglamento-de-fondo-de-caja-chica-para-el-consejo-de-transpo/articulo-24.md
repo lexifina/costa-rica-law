@@ -1,1 +1,0 @@
-Artículo 24.—Para las demás oficinas o regionales del Consejo ubicadas fuera del perímetro del artículo anterior las cuales se asignan recursos, el plazo para liquidar los "Vales de Caja Chica" será de cinco días hábiles.
