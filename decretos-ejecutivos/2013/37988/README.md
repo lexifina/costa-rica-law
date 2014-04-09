@@ -16,3 +16,4 @@ Reglamento para el funcionamiento y la utilización del portal "Regístrelo"
 | 1 | 2013-10-22 | la propia norma |
 | 2 | 2013-11-15 | Acuerdo 224 (2013-11-15) |
 | 3 | 2013-11-15 | Acuerdo 2766 (2013-11-15) |
+| 4 | 2014-04-09 | Decreto Ejecutivo 38409 (2014-04-09) |
