@@ -1,0 +1,17 @@
+Nº 38306-MEP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE EDUCACIÓN PÚBLICA
+En ejercicio de las atribuciones conferidas por los artículos 81, 140 incisos 8) y 18) y 146 de la Constitución Política, el artículo 28 inciso 2) acápite b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978, el artículo 8 inciso c) de la Ley de Creación del Consejo Superior de Educación Pública, Ley Nº 1362 del 8 de octubre de 1951, y el artículo 2 de la Ley Orgánica del Ministerio de Educación Pública, Ley Nº 3481 del 13 de enero de 1965.
+Considerando:
+I.—Que mediante Decreto Ejecutivo Nº 35355-MEP, del 2 de junio de 2009, publicado, en La Gaceta Nº 135, de fecha 14 de julio del 2009, se promulgó el Reglamento de Evaluación de los Aprendizajes, el cual contempla la regulación tanto de los diferentes ciclos de la educación costarricense como de los mecanismos y esquemas de evaluación aplicables a cada asignatura impartida dentro del primer, segundo y tercer ciclo de la Educación General Básica y el Ciclo Diversificado de la Educación.
+II.—Que el Decreto Ejecutivo Nº 38273-MEP, de fecha 11 de febrero de 2014, publicado en La Gaceta Nº 54, del 18 de marzo de 2014, modificó los artículos 15 incisos m) y p), 22, 29, 34, 35, y 37, del Decreto Ejecutivo Nº 35355-MEP y sus reformas.
+III.—Que con el fin de acompañar la reforma antes citada y en procura de adecuar la misma a las necesidades educativas suscitadas en el inicio del ciclo lectivo 2014, se hace necesario la reforma del artículo 35 del Decreto Ejecutivo Nº 35355- MEP, de fecha 2 de junio de 2009, publicado en La Gaceta Nº 135, del 14 de julio de 2009. Por tanto,
+Decretan:
+Refórmese el Artículo 35 del Decreto Ejecutivo
+Nº 35355-MEP y Sus Reformas, Reglamento de
+Evaluación de los Aprendizajes.
+Artículo 1º—Modifíquese el artículo 35 del Decreto Ejecutivo Nº 35355-MEP y sus reformas, del 2 de junio de 2009, publicado en La Gaceta Nº 135, de fecha 14 de julio de 2009, para que se lea de la siguiente manera:
+Artículo 35.—De las Condiciones de Aprobación del Año Escolar. Dado que el primero y segundo año del I Ciclo de la Educación General Básica, constituyen un solo proceso continuo de aprendizaje y de evaluación, no se utilizarán en el primer año, valoraciones sumativas ni criterios cuantitativos de aprobación de las asignaturas ni de la aprobación del año escolar. El estudiante de primer año tendrá por aprobado ese nivel educativo, salvo que no haya asistido al menos al 80% de la totalidad de las lecciones impartidas durante el curso lectivo o que el docente a cargo, junto con el Comité de Evaluación, Comité de Apoyo y otras instancias pertinentes consideren que el estudiante carece de una madurez o desarrollo suficiente para progresar hacia el segundo año.
+A partir del segundo año de la Educación General Básica, el estudiante que apruebe todas las asignaturas o módulos, tendrá derecho a ubicarse en el año escolar inmediato superior respectivo, o bien, tendrá derecho a ostentar la condición de egresado del respectivo nivel, según corresponda.
+Los estudiantes de último año de la Educación Diversificada deberán, además, haber cumplido con el Servicio Comunal Estudiantil que se señala en el artículo 117 de este Reglamento.
+En el III Ciclo de Educación Especial (Etapa Prevocacional), el estudiante que al finalizar el noveno año alcance un promedio igual o superior a sesenta y cinco, tendrá la condición de aprobado, lo que le dará derecho a ingresar formalmente al Ciclo Diversificado Técnico de la Educación Especial.
