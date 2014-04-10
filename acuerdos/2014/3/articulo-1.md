@@ -32,6 +32,7 @@ DE SEMANA SANTA (2014)
 ÁMBITO JURISDICCIONAL
 MATERIA PENAL TRIBUNALES Y SEDES
 [imagen]
+(Nota de Sinalevi: Mediante sesión N° 31-14 del 8 de abril del 2014, publicada en el Boletín Judicial N° 93 del 16 de mayo del 2014 mediante aviso N° 4-14 del 10 de abril del 2014, se aclara el presente aviso en el sentido de que: "... el Tribunal de Apelación de Sentencia Penal, ubicado en el Segundo Circuito Judicial de San José, no realizará apertura efectiva en el período de cierre colectivo de Semana Santa, por lo que se aclara el aviso 3-14, sobre “Lineamientos para la prestación del servicio en la modalidad de apertura efectiva para el período de cierre colectivo por vacaciones de Semana Santa del año 2014”, en el sentido de que es al Tribunal de Apelación de Sentencia Penal Juvenil al que le corresponde realizar la apertura efectiva para ese período...")
 Se exceptúan aquellas secciones Tribunales que atienden Flagrancia, que cuentan solo con una plaza de Jueza o Juez, que en este caso, serían los Tribunales de Flagrancia del Primer y Segundo Circuito Judicial de la Zona Sur (Pérez Zeledón y Corredores), Segundo y Tercero Circuito Judicial de Alajuela (San Carlos y San Ramón), así como el Tribunal de Flagrancia de Santa Cruz.
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
 • Medidas cautelares en los asuntos en etapa de juicio.
