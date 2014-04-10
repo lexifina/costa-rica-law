@@ -1,10 +1,4 @@
-Artículo 5º—Constitución del Comité de Riesgos. El Comité de Riesgos será el encargado de identificar, estimar, administrar y controlar los riesgos inherentes y estará constituido según acuerdo de Junta Directiva, en el artículo 29° de la sesión N° 7835, celebrada el 19 de febrero del 2004, de la siguiente manera:
-a) Un representante de la Gerencia División de Pensiones, el cual presidirá el Comité.
-b) Un representante de la Gerencia División Financiera.
-c) Un miembro independiente. Para tales efectos el Gerente de Pensiones deberá presentar una terna a la Junta Directiva, de la cual se escogerá uno de los candidatos, donde la selección se hará en función de la formación y características adecuadas para el puesto.
-d) El Jefe del Departamento Administración de Riesgo de la Gerencia División Pensiones.
-El Jefe del Departamento Administración de Riesgo de la Gerencia División Pensiones deberá participar en calidad de miembro con voz pero sin voto.
-(Así reformado el inciso anterior mediante sesión N°8058 del 18 de mayo del 2006).
-Los responsables de la realización de las inversiones y la ejecución de la estrategia que dicte el Comité de Inversiones y de las distintas áreas involucradas en la operación que impliquen la toma de riesgos podrán participar en el Comité de Riesgos con voz pero sin voto.
-El Comité Integral de Riesgos se deberá reunir cuando menos una vez al mes. Todas las sesiones y acuerdos del Comité de Riesgos deberán hacerse constar en actas debidamente razonadas en un libro de actas.
-En caso de que alguno de los miembros se ausente de las sesiones por más de tres veces consecutivas e injustificadas, el Comité de Riesgos deberá poner por escrito un aviso de atención a dicho miembro, con copia a la Gerencia División de Pensiones. La respuesta al aviso deberá contener: las causas de las ausencias y si podrá continuar como miembro del Comité de Riesgos. En caso de omisión a lo anterior, el Comité de Riesgos deberá comunicar a Junta Directiva lo acontecido, para que tome las medidas correctivas.
+Artículo 5º—De la Gestión del Riesgo
+En su Administración, la gestión interna del riesgo deberá estar orientada a generar una cultura y prácticas de alto nivel técnico.
+Es obligación fundamental de la Administración el mantener, permanentemente, una adecuada evaluación, administración y valoración de los riesgos financieros y operativos relacionados con las inversiones.
+Por su parte, los órganos de control deberán velar por la existencia y correcto cumplimiento de esas políticas en procura de un adecuado control de la exposición al riesgo.

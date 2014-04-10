@@ -1,4 +1,2 @@
-DISPOSICIÓN TRANSITORIA
-Transitorio I.—(Derogado mediante sesión N°8058 del 18 de mayo del 2006).
-Acuerdo firme.
-San José, 4 de junio del 2004.
+Transitorio I.
+Con el fin de mantener la Independencia Técnica del Área Administración de Riesgos respecto de las áreas de operación, la Gerencia de Pensiones solicitará a la Dirección de Desarrollo Organizacional un estudio técnico, basado en las recomendaciones de la Auditoría Interna (informe ASF-001-2011)

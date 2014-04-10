@@ -1,4 +1,7 @@
-Artículo 17.—Riesgos de mercado. En la administración del riesgo de mercado, se deberá como mínimo:
-a) Evaluar y dar seguimiento a todas las posiciones sujetas a riesgo de mercado, utilizando para tal efecto modelos que permitan medir la pérdida potencial en dichas posiciones asociada a movimientos de precios, tasas de interés o tipos de cambio, con un nivel de probabilidad dado y horizonte definido.
-b) Definir normas cuantitativas y cualitativas para la elaboración y uso de los modelos para evaluar la diversificación del riesgo de mercado de sus posiciones.
-c) Comparar las estimaciones de riesgo de mercado con los resultados efectivamente observados. En caso de que los resultados proyectados y los observados difieran significativamente se deberán analizar los supuestos y modelos utilizados para realizar las proyecciones y, en su caso, modificar dichos supuestos o modelos.
+Artículo 17.—De las mejores prácticas
+El Área Administración del Riesgo deberá promover que la Administración se ajuste a las mejores prácticas en materia de administración del Riesgo; para ello deberá:
+I. Incluir, planes de contingencia y un sistema de alertas tempranas para anticipar desviaciones a los límites de riesgo y de inversiones.
+II. Calcular el Valor en Riesgo del portafolio de títulos valores, en espera de una gestión activa del portafolio de inversiones.
+III. Presentar de una forma periódica y uniforme los indicadores de control que faciliten el monitoreo de los riesgos financieros.
+IV. Estimar las primas por riesgo en los títulos del sector privado.
+V. Aplicar en los casos no previstos las mejores prácticas en la gestión de la administración de riesgos financieros.

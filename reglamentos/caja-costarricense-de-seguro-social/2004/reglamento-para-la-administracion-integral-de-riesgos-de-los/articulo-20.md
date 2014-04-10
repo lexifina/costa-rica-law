@@ -1,3 +1,2 @@
-Artículo 20.—De la verificación de idoneidad. La Junta Directiva verificará la capacitación y actualización que reciban los integrantes del Comité de Inversiones, del Comité Integral de Riesgos, los funcionarios del Departamento Administración de Riesgos, los responsables de la realización de las inversiones y la ejecución de la estrategia y políticas que emitan dichos Comités. Lo anterior en aras de que los recursos de la Caja sean administrados por el personal más calificado y bajo los mejores principios de manejo de portafolio.
-Además, la idoneidad de la aplicación del presente Reglamento.
-(Así reformado mediante sesión N°8058 del 18 de mayo del 2006).
+Artículo 20.—De la actualización y capacitación
+La Gerencia de Pensiones promoverá la actualización y capacitación que reciban los integrantes del Comité de Inversiones, del Comité de Riesgos, del Área de Administración de Riesgos, y de los responsables de la realización de las inversiones. Lo anterior en aras de que los recursos de la Caja sean administrados por el personal más calificado y bajo los mejores principios de manejo de portafolio.

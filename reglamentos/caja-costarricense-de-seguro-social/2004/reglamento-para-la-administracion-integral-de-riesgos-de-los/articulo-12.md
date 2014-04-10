@@ -1,7 +1,5 @@
-Artículo 12.—Medición, monitoreo, control y contenido de los informes internos. Para llevar a cabo la medición, monitoreo y control de los diversos tipos de riesgo cuantificables y la valuación de las posiciones que operen los Fondos Institucionales, el Departamento Administración de Riesgos deberá:
-(Así reformado el párrafo anterior mediante sesión N°8058 del 18 de mayo del 2006).
-a) Contar con modelos y sistemas de medición de riesgos que incorporen información de mercado que comprenda variables tales como rendimientos, volatilidad y potencial de movimientos adversos, en donde se refleje de forma precisa el valor de las posiciones y su sensibilidad a los diversos factores de riesgo.
-b) Asegurarse que la información que sirva de base para calcular las posiciones de los recursos administrados y utilizada en los modelos y sistemas de medición de riesgos, sea precisa, íntegra y oportuna, por lo que toda modificación a la citada información deberá quedar documentada y contar con la explicación sobre su naturaleza y motivo que la originó.
-c) Llevar a cabo estimaciones de la exposición al riesgo de los Fondos Institucionales ligadas a resultados o al valor de la carteras de los mismos.
-d) Efectuar revisiones periódicas a los supuestos contenidos en los modelos y sistemas referidos en el Artículo 7 de este Reglamento.
-e) Comparar periódicamente las estimaciones de la exposición al riesgo contra los resultados efectivamente observados para el mismo período de medición y, en su caso, modificar los supuestos empleados al formular dichas estimaciones.
+Artículo 12.—De los libros de actas
+Las políticas y decisiones de administración riesgos se consignarán en el libro de actas, las cuales serán confeccionadas y custodiadas por el Secretario del Comité de Riesgos. En caso de que la posición de algún miembro sea adversa a los demás, deberá razonar claramente su posición y quedar en actas, las cuales serán firmadas por todos los miembros.
+Los libros de actas deberán ser autorizados por la Auditoría Interna, de conformidad con lo establecido en el inciso e) del artículo 22 de la Ley General de Control Interno N° 8292. Además, deberán estar debidamente foliados.
+Los miembros del Comité serán responsables de que el contenido de las actas corresponda a lo discutido y aprobado en cada sesión.
+El libro de actas, así como la información en la que se respalden las decisiones deberá estar disponible para la Junta Directiva y los Órganos de Control y Supervisión.

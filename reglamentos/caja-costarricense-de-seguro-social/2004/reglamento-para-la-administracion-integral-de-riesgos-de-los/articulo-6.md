@@ -1,2 +1,3 @@
-Artículo 6º—De los libros de actas. Las políticas y decisiones de administración riesgos se consignarán en el libro de actas. En caso de que la posición de algún miembro sea adversa a los demás, deberá razonar claramente su posición y quedar en actas, las cuales serán firmadas por todos los miembros con calidad de voz y voto.
-El libro de actas, así como la información en la que se respalden las decisiones deberá estar disponible para la Junta Directiva.
+Artículo 6º—De las Políticas de Riesgo Financiero de las Inversiones
+La Junta Directiva aprobará las Directrices Generales para la Administración de los Riesgos Financieros y Operativos del Portafolio de Inversiones para los Fondos Institucionales, de tal forma que se definan los criterios bajo los cuales la organización, en general, deberá identificar, analizar, evaluar y controlar estos riesgos. Igualmente, deberá adoptar las políticas y acciones necesarias para asegurar el cumplimiento estricto de las instrucciones mínimas definidas en este Reglamento.
+Las Políticas de riesgo financiero de las inversiones será revisada, anualmente, por la Junta Directiva.
