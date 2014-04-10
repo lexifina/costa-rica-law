@@ -1,2 +1,2 @@
 Artículo 2º—La creación de estos tipos de clase de puestos será temporal y tendrá una vigencia igual a los Convenios de Préstamo de Funcionarios que establece el Decreto Ejecutivo Nº 30544-MP-SP, sea hasta el 8 de mayo del 2010.
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 36063 del 14 de mayo de 2010, se acordó ampliar el plazo de vigencia de las clases de "Oficial Jefe de Protección Presidencial" y "Oficial de Protección Presidencial", hasta el 8 de mayo del 2014)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38392 del 10 de abril de 2014, se acordó ampliar el plazo de vigencia de las clases de "Oficial Jefe de Protección Presidencial" y "Oficial de Protección Presidencial", hasta el veinte de julio del dos mil catorce)
