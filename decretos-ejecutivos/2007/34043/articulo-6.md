@@ -1,1 +1,1 @@
-Artículo 6º—Se establece una suspensión para el aprovechamiento maderable en todo el cantón de Talamanca, hasta tanto no se tenga los estudios técnicos que le permitan al Ministerio del Ambiente y Energía conocer las consecuencias e impacto al ambiente.
+Artículo 6º—(Derogado por el artículo 1° del decreto ejecutivo N° 38443 del 10 de abril del 2014)

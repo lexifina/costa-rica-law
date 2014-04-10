@@ -15,3 +15,4 @@ Ratifica y reforma decreto que Crea Refugio Nacional de Vida Silvestre Gandoca-M
 | --- | --- | --- |
 | 1 | 2007-10-22 | la propia norma |
 | 2 | 2009-01-28 | SINALEVI (sin norma nombrada) |
+| 3 | 2014-04-10 | Decreto Ejecutivo 38443 (2014-04-10) |
