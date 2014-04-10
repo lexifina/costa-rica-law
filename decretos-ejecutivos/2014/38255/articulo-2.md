@@ -1,0 +1,1 @@
+Artículo 2º—Facúltese al Instituto Nacional de Fomento Cooperativo, para elaborar las guías que contendrán las normas mínimas y requisitos para la preparación de los estudios enumerados en el artículo anterior. Dichas guías serán incluidas en un reglamento que dictará para tal efecto el Instituto Nacional de Fomento Cooperativo y se publicará en el Diario Oficial La Gaceta.

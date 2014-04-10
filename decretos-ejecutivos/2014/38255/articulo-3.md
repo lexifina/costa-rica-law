@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Trabajo y Seguridad Social solicitará criterio técnico del Instituto Nacional de Fomento Cooperativo, sobre aquellos estudios que se le presenten, no realizados por este Instituto, antes de autorizar el inicio de actividades de la cooperativa gestionante.

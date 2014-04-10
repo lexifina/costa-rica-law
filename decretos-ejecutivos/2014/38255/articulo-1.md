@@ -1,0 +1,9 @@
+Nº 38255-MTSS
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades conferidas al Poder Ejecutivo por los artículos 140, incisos 3) y 18 y 146 de la Constitución Política y de conformidad con lo dispuesto en el artículo 28, inciso 2), aparte b), de la Ley General de la Administración Pública y en los numerales 32 inciso a) y 139 incisos b) y f) de la Ley de Asociaciones Cooperativas y Creación del INFOCOOP, Ley Nº 4179 de 22 de agosto de 1968.
+Considerando:
+I.—Que en aras de dar fiel cumplimiento a lo dispuesto en el artículo 32 inciso a) de la Ley de Asociaciones Cooperativas y de Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 del 22 de agosto de 1968, resulta necesario agilizar los trámites que deben cumplir las asociaciones cooperativas en formación, para su inscripción y la autorización de su personería jurídica ante el Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social.
+II.—Que es necesario dar fiel cumplimiento a lo dispuesto por el Artículo 139 incisos b) y f) de la Ley de Asociaciones Cooperativas y de Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 del 22 de agosto de 1968 y garantizar el derecho de participación de las asociaciones cooperativas de primero y segundo grado, estas últimas de ámbito nacional, en el proceso de elección de los representantes para constituir el Consejo Nacional de Cooperativas. Por tanto,
+Decretan:
+Artículo 1º—Para inscripción y autorización de la personería jurídica de una asociación cooperativa en el Ministerio de Trabajo y Seguridad Social, se deberá presentar el estudio de posibilidades, viabilidad y utilidad o factibilidad, al que se refiere el artículo 32 inciso a) de la Ley de Asociaciones Cooperativas y de Creación del Instituto Nacional de Fomento Cooperativo.
