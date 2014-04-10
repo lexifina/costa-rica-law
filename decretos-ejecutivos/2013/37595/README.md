@@ -37,3 +37,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 22 | 2014-03-31 | Decreto Ejecutivo 38364 (2014-03-31) |
 | 23 | 2014-04-10 | Decreto Ejecutivo 38347 (2014-04-10) |
 | 24 | 2014-04-10 | Decreto Ejecutivo 38344 (2014-04-10) |
+| 25 | 2014-04-10 | Decreto Ejecutivo 38346 (2014-04-10) |
