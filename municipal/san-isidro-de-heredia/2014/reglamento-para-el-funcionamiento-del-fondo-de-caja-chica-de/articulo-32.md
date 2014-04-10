@@ -1,0 +1,1 @@
+Artículo 32.—Los cheques de reintegro de caja chica deberán aparecer a nombre del Tesorero (a), para efectos de poder ser cambiados, sin embargo deberá estamparse una leyenda en el concepto del cheque por parte del departamento de Contabilidad, que haga referencia a que es un cheque para reposición del fondo de caja chica y desglose las cuentas contables que lo originan.

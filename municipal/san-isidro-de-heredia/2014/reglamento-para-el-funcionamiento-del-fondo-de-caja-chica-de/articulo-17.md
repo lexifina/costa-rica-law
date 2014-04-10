@@ -1,0 +1,1 @@
+Artículo 17.—Cuando por algún motivo no se lleve a cabo la compra o el gasto para el cual se solicitó el adelanto, el funcionario que ha recibido el adelanto de caja chica, deberá hacer el reintegro inmediato del dinero recibido.

@@ -1,0 +1,1 @@
+Artículo 31.—Las solicitudes de reintegro deberán efectuarse mediante un documento formal, que describa detalladamente los rubros por código presupuestario, nombre del proveedor, y monto que se realizaron. Este documento deberá ser numerado de acuerdo a su consecutivo y fecha de origen y archivado por el Tesorero (a) en un ampo, para justificar cualquier duda de la Contabilidad.

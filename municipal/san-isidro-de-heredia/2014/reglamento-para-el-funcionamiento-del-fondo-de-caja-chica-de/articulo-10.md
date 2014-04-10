@@ -1,0 +1,1 @@
+Artículo 10.—El dinero del fondo de caja chica, deberá ser guardado en una caja metálica. En horas hábiles del día, dicha caja se resguardará en una gaveta de escritorio y en horas no laborales se custodiará en la caja fuerte de la Municipalidad.

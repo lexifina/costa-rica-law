@@ -1,0 +1,1 @@
+Artículo 37.—El Tesorero Municipal no podrá guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para la custodia de dinero, y por ningún motivo podrá suplir con su dinero, compras o pagos que correspondan a la Municipalidad,

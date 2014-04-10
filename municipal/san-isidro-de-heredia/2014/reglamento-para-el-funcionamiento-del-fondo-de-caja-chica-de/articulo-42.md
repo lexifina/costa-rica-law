@@ -1,0 +1,1 @@
+Artículo 42.—Las sanciones que correspondan, según lo dispuesto en el artículo anterior, serán aplicadas conforme al procedimiento establecido en el Reglamento Autónomo de Organización y Servicio de la Municipalidad, así como en la normativa conexa y supletoria.

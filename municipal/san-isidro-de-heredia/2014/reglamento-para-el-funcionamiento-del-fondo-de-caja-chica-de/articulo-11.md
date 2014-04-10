@@ -1,0 +1,1 @@
+Artículo 11.—Por ninguna razón deberá revolverse dinero del Fondo de Caja Chica con dinero proveniente del fondo de Vueltos diarios o la Recaudación en Caja General, este incumplimiento por parte del Tesorero o el Suplente, en caso de ser detectado será causal de amonestación escrita y de ser reiterativo de suspensión del cargo.
