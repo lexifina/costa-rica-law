@@ -1,0 +1,1 @@
+Artículo 12.—El fondo fijo que mantiene la caja recaudadora debe entregarse a la Tesorería para ser guardado y el último día hábil de la semana cuando fuese feriado, como el caso de fin de año y de semana santa o cualquier otro caso que se presente.

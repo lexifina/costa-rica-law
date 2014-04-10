@@ -1,0 +1,1 @@
+Artículo 4º—Facturación emite los recibos, que deberá extender en original y una copia, ambos firmados y sellados, entregándole el original al contribuyente y la copia se archiva consecutivamente. Para la veracidad de un recibo éste debe de tener impreso la leyenda final.

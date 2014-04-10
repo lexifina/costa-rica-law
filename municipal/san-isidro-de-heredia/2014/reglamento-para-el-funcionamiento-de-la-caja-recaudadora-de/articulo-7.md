@@ -1,0 +1,1 @@
+Artículo 7º—Al final del día el Cajero entrega el dinero a Tesorería, quien prepara el depósito bancario, con lo que ha quedado después de los depósitos parciales efectuados durante el día para que se realice el cierre y depositar en el buzón nocturno, guardando en su caja fuerte lo correspondiente al fondo fijo.

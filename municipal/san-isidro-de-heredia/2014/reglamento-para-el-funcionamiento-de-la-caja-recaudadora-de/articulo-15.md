@@ -1,0 +1,1 @@
+Artículo 15.—La caja recaudadora estará instalada en el Palacio Municipal contiguo a la Tesorería que es la que le remitirá los mandatos de ingresos que el usuario ha solicitado para cancelar a la Municipalidad.

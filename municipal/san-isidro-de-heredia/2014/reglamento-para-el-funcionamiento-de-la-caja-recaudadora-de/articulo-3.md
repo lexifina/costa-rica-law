@@ -1,0 +1,1 @@
+Artículo 3º—La Unidad de Facturación es la oficina encargada de mantener en la caja de recaudación (madera) el dinero. Cuando la Tesorera considere oportuno se traslada en custodia en la caja fuerte (caja metálica).

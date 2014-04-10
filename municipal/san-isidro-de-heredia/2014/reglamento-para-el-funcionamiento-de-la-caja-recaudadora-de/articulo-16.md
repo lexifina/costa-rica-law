@@ -1,0 +1,1 @@
+Artículo 16.—El monto correspondiente al fondo fijo de la caja recaudadora, lo depositará la Cajera en un caja metálica de seguridad, cuya llave la tendrá solo la Tesorería y la otra la Cajera (o). La Cajera guardará la caja metálica de seguridad, en horas no hábiles de trabajo, en la caja fuerte de Tesorería.
