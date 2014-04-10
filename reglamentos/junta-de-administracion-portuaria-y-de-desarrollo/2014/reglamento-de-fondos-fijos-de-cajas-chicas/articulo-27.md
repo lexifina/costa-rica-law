@@ -1,0 +1,1 @@
+Artículo 27.—Liquidación de los Fondos Fijos de Caja Chica. Los fondos de caja chica deberán liquidarse en la fórmula editada al efecto, cuando hayan sido utilizados como máximo hasta un 20% o cuando la Administración a su juicio lo estime conveniente, con el propósito de garantizar permanentemente la existencia de fondos.

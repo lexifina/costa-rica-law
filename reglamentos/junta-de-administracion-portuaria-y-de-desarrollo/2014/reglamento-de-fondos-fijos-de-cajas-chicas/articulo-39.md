@@ -1,0 +1,1 @@
+Artículo 39.—Vigencia. El presente Reglamento deroga todas las disposiciones aprobadas con anterioridad y rige a partir de su aprobación. Acuerdo N° 155-14 (sesión N° 13-2014, artículo I-a celebrada el 10 de abril del 2014).

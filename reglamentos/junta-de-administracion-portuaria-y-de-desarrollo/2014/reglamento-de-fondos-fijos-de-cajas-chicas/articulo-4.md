@@ -1,0 +1,7 @@
+Artículo 4º—Definiciones:
+a) Límite económico: Monto máximo autorizado para el funcionamiento de la Caja Chica.
+b) Gastos menores indispensables y urgentes: Son aquellos que se requieren para cubrir una necesidad de forma rápida y urgente, cuya solución no puede esperar la dilación en tiempo y trámites que requieren otros procedimientos de compra.
+c) Anticipo o adelanto: Suma de dinero que se solicita de forma anticipada a la erogación efectiva, para cubrir los gastos autorizados por este Reglamento, tanto para la adquisición de bienes y servicios como para el reconocimiento de viáticos y transporte.
+d) Reintegro: Suma de dinero que se deberá reintegrar o reembolsar periódicamente al fondo fijo, con base a las facturas de los gastos incurridos, con el propósito de reponer el dinero desembolsado y mantener un monto de efectivo suficiente para cubrir las necesidades futuras de las diferentes unidades o departamentos de la Administración.
+e) Arqueo: Revisión y verificación periódica que se debe realizar a los recursos de los fondos de caja chica, para garantizar que el efectivo disponible, más los documentos de respaldo de las transacciones efectuadas y los reintegros pendientes, en el momento de su arqueo, sumen el monto total asignado al fondo.
+Tanto la Auditoría General como la Dirección Administrativa Financiera, a través del Departamento Financiero, la Contabilidad General u otra unidad, tendrán amplias facultades, para realizar sin previo aviso arqueos y verificaciones de estos fondos, tantas veces como lo consideren necesario.

@@ -1,0 +1,1 @@
+Artículo 31.—Cumplimiento del Reglamento. Les corresponde en primera instancia a los cajeros así como al Jefe de Tesorería, el cumplir y exigir el acatamiento estricto de este Reglamento de lo cual serán directamente responsables.
