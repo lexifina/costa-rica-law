@@ -1,0 +1,1 @@
+Artículo 4º—Plazo de los nombramientos de las Subcomisiones: El nombramiento de los integrantes de las Subcomisiones de las instituciones adscritas será por un lapso de 2 años pudiendo reelegirse en sus cargos a juicio del jerarca de cada una de las instituciones adscritas.
