@@ -1,0 +1,19 @@
+MUNICIPALIDAD DE VÁZQUEZ DE CORONADO
+El Concejo Municipal de la Municipalidad de Vázquez de Coronado, el 12 de agosto de 2013, en la sesión ordinaria 173, solicita mediante acuerdo 2013-173-21 que se publique en el Diario Oficial La Gaceta el siguiente Reglamento:
+REGLAMENTO PARA REGULAR EL FUNCIONAMIENTO
+Y OPERACIÓN DE LOS CENTROS DE CUIDO Y
+DESARROLLO INFANTIL DEL CANTÓN
+DE VÁZQUEZ DE CORONADO
+Considerando:
+I.—Que la Municipalidad de Vázquez de Coronado es el Gobierno Local y como tal debe impulsar un desarrollo local integral, que asegure el acceso a los beneficios del mismo en igualdad de condiciones a toda la población.
+II.—Que es un deber del Estado velar por el bienestar físico, psicosocial y educativo de los niños y las niñas, y garantizarles la atención de sus necesidades primarias de salud y nutrición, ya que el desarrollo y capital humano del país depende en gran medida de la calidad de la crianza y atención que reciben los niños y las niñas en sus primeros años de vida.
+III.—Que las políticas, planes y programas para la primera infancia debe estar fundamentados en estrategias integrales, multisectoriales y participativas, basadas en el enfoque de derechos y no solamente en consideraciones de tipo socioeconómico o laboral, de acuerdo con lo establecido en la Convención de los Derechos del Niño y el Código de la Niñez y la Adolescencia.
+IV.—Que el Estado ha impulsado en los últimos años el suministro de los servicios sociales de apoyo de necesarios para permitir que los padres y madres combinen las obligaciones para la familia con las responsabilidades del trabajo y la participación de la vida pública, especialmente mediante el fomento de la creación y desarrollo de una red de servicios destinados al cuido de los niños.
+V.—Que toda estrategia que en este sentido se impulse, debe estar orientada a disminuir o evitar posibles riesgos que los niños y las niñas podrían sufrir producto del ajuste en las familias a las nuevas condiciones referidas en los considerandos anteriores, con lo cual la desatención en el cuido podría conllevar a problemas dirigidos a aumentar la violencia, agresión intrafamiliar, desnutrición, drogadicción, prostitución, entre otros fenómenos que incrementan y profundizan las desigualdades sociales.
+VI.—Que de acuerdo con el artículo 2º del Código de la Niñez y la Adolescencia, se considerará niño o niña a toda persona desde su concepción hasta los doce años de edad cumplidos.
+VII.—Que las estadísticas nacionales han venido mostrando cómo cada vez son más la cantidad de niños y niñas que son agredidos y que se encuentran en situación de riesgo, ante lo cual la estrategia a desarrollar, según el artículo 5 del Código Municipal, debe obligatoriamente involucrar a diversos actores sociales en su atención, mediante proyectos acordes a las necesidades específicas en cada Cantón.
+VIII.—Que la Municipalidad de Vázquez de Coronado ha incluido en su “Plan de Desarrollo” líneas de acción orientadas al cuido y atención de la niñez del Cantón, las cuales se enmarcan en la propuesta de Redes de Cuido que la Presidenta de la República, señora Laura Chinchilla Miranda incluyó en su Plan de Gobierno, materializada en el plano normativo en el Decreto Ejecutivo N° 36020-MP, por el que se declaró de Interés Público la conformación y desarrollo de la Red Nacional de Cuido y Desarrollo Infantil.
+IX.—Que de conformidad con lo establecido en los artículos 13 inciso c) y d) y 43 del Código Municipal, y 103 de la ley General de la Administración Pública, corresponde al Concejo Municipal dictar los reglamentos y organizar mediante éstos, la prestación de los servicios públicos.
+CAPÍTULO I
+Objeto
+Artículo 1°—Por medio del presente Reglamento, se regulará la operación y funcionamiento del Centro de Cuido y Desarrollo Infantil (CECUDI) del Cantón de Vázquez de Coronado, el cual es concebido con la finalidad de potenciar el desarrollo integral de las personas menores de edad.

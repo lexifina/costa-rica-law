@@ -1,0 +1,1 @@
+Artículo 10.—Horario de lactancia: Cuando los niños y las niñas se encuentren en período de lactancia, las madres tendrán acceso en el horario que sea preciso, previa comunicación a la Coordinación Técnica del Centro. Para la debida alimentación de las y los lactantes, la Coordinación Técnica del CECUDI habilitará el espacio físico con los requerimientos pertinentes.
