@@ -1,0 +1,1 @@
+Artículo 10.—Registro de los datos en el SIPP de la CGR. Toda variación al presupuesto inicial, debe ser incluida en el Sistema SIPP, según los lineamientos y procedimientos establecidos en la normativa que al efecto haya dictado o llegue a dictar el órgano contralor. Para lo cual, se debe dejar constancia en el respectivo expediente.

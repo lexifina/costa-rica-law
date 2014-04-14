@@ -1,0 +1,8 @@
+Artículo 6º—Aspectos específicos.
+6.1. Relativos a los ingresos.
+a. En el caso de rentas nuevas o recalificación de ingresos, entendida esta última como la incorporación al presupuesto de un incremento en una o varias de las cuentas de ingresos presupuestadas, se debe enviar el fundamento legal cuando así proceda, las estimaciones, la metodología utilizada para determinar los montos propuestos, un análisis general de la situación de todos los ingresos y su comportamiento en relación con las estimaciones y ajustarse al bloque de legalidad aplicable según el ingreso de que se trate.
+b. En la recalificación de ingresos por concepto de impuestos, tasas o tarifas, se debe adjuntar copia de la ley o resolución respectiva debidamente publicada en el Diario Oficial La Gaceta.
+c. La Municipalidad al considerar una recalificación de ingresos, en el caso de haber cerrado su período económico anterior con déficit, debe tener presente que esté cubierto o en su defecto debe remitir a la Contraloría General el plan de amortización del déficit, con la debida aprobación del Concejo Municipal.
+6.2. Relativos a los egresos.
+a. Los egresos deben ser clasificados de acuerdo con el Clasificador por objeto del gasto vigente, estar acorde con el bloque de legalidad y justificarse debidamente.
+b. En caso de transferencias deben estar conforme con lo dispuesto en el Código Municipal, leyes conexas o la ley que autoriza dicho beneficio, según corresponda, además de lo establecido en el Reglamento de Ayudas Temporales y Subvenciones de la Municipalidad de Mora, así como indicar el nombre de la entidad que recibirá el aporte, entre otros aspectos.
