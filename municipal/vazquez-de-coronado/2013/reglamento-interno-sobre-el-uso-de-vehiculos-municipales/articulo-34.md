@@ -1,0 +1,2 @@
+Artículo 34.—Ningún funcionario podrá conducir un tipo de vehículo diferente al autorizado en la licencia y al estipulado en su manual de funciones.
+La dependencia administrativa de la Municipalidad encargada del área de transportes podrá recomendar la suspensión del permiso de conducir vehículos municipales a cualquier conductor de la institución que contravenga lo dispuesto en la Ley de Tránsito, otras leyes vigentes en la materia y este reglamento.

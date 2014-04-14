@@ -1,0 +1,1 @@
+Artículo 3°—El vehículo de uso administrativo para uso del titular de la Alcaldía es aquel asignado al alcalde o alcaldesa municipal o al vicealcalde o vicealcaldesa que ocupe ese cargo en los casos de ausencia del alcalde o alcaldesa.

@@ -1,0 +1,2 @@
+Artículo 22.—Los vehículos municipales o alquilados tendrán prioridad en el estacionamiento del Plantel Municipal o en el lugar asignado para este efecto. Dicha prioridad será definida por la Alcaldía Municipal, mediante la emisión de un procedimiento relacionado con la utilización del citado estacionamiento.
+Será responsabilidad del personal de vigilancia destacado en cada edificio velar por el cumplimiento de lo aquí dispuesto.

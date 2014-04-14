@@ -1,0 +1,1 @@
+Artículo 55.—Las infracciones a este reglamento se sancionarán de acuerdo con la gravedad de las faltas y conforme a lo dispuesto en la normativa técnica y jurídica aplicable, sin perjuicio de las responsabilidades civiles o penales que debe asumir el infractor.

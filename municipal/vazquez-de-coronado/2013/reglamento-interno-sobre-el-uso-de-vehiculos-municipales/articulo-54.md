@@ -1,0 +1,1 @@
+Artículo 54.—Las discrepancias o diferencias de criterio que surjan en la aplicación de este reglamento por parte de la dependencia administrativa de la Municipalidad encargada del área de transportes serán resueltas por el titular de la Alcaldía.

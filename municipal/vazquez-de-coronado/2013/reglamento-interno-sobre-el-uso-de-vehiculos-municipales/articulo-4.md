@@ -1,0 +1,1 @@
+Artículo 4°—Los vehículos de uso administrativo general propios o al servicio de la Municipalidad son todas aquellas unidades no contempladas en el artículo anterior, utilizadas en la institución para el desarrollo normal, como medio de transporte de usuarios, materiales, desechos sólidos y equipos.
