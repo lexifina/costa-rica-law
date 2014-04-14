@@ -1,0 +1,1 @@
+Artículo 60.- En caso de que la solicitud sea remitida vía electrónica, igualmente se procederá a confeccionar un expediente electrónico en el que consten la totalidad de las actuaciones, incorporando, además, los mecanismos de trazabilidad pertinentes en que consten los actos y responsables de los mismos.

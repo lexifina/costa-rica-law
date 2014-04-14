@@ -1,0 +1,1 @@
+Artículo 29.- Las sesiones deberán iniciar a más tardar veinte minutos después de la hora para la cual han sido convocadas. Pasado ese tiempo y si no hay quórum, la Comisión podrá sesionar válidamente en segunda convocatoria una hora después de la señalada, haciéndose constar esto en la agenda correspondiente, y con el quórum válido.

@@ -1,0 +1,1 @@
+Artículo 67.- La Comisión podrá solicitar, en cualquier momento, información adicional que le permita acreditar con certeza el cumplimiento o no de los criterios anteriores. Corresponderá a la Secretaría la solicitud y remisión de la misma.

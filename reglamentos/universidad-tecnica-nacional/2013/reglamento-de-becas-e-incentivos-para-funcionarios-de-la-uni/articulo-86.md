@@ -1,0 +1,1 @@
+Artículo 86.- Podrá rescindirse el contrato de mutuo acuerdo cuando exista causa justificada en alguna de las partes y ambas partes así lo acuerden. La rescisión no será causal de la aplicación de ninguna sanción.

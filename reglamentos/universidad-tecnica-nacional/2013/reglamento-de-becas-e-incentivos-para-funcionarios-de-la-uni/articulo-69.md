@@ -1,0 +1,1 @@
+Artículo 69.- En aquellos casos en que no sea posible cumplir con los tiempos establecidos para la presentación o resolución de la solicitud, podrá la Comisión mediante acto fundado, variar el orden de conocimiento.

@@ -1,0 +1,1 @@
+Artículo 18.- La Comisión podrá contar en todo momento y cuando así lo solicite, con la asesoría de la Dirección de Cooperación Externa. No obstante, esta asesoría no tendrá el carácter de vinculante para la decisión que deba tomar la Comisión.

@@ -1,0 +1,1 @@
+Artículo 97.- Se sancionará con la inhabilitación para nuevas solicitudes de beneficios contemplados en este Reglamento, al becario que ha incumplido su contrato de beca o alguna de las obligaciones aquí establecidas, y aún adeuda montos por estos conceptos.

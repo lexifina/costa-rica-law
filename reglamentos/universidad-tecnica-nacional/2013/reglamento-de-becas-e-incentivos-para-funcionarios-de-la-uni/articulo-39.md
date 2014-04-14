@@ -1,0 +1,1 @@
+Artículo 39.- Solo podrán presentar mociones los miembros de la Comisión. Para que cualquier planteamiento que interponga un integrante de la comunidad universitaria pueda ser aceptado para su discusión, deberá ser acogido para el trámite por uno o más miembros del Comisión.

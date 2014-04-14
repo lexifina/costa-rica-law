@@ -1,0 +1,1 @@
+Artículo 15.- No será necesario incluir en el Plan de Desarrollo Institucional aquellas becas que no requieran financiamiento alguno por parte de la UTN, las cuales podrán ser aprobadas en cualquier momento por la Comisión, de conformidad con lo establecido en este Reglamento.

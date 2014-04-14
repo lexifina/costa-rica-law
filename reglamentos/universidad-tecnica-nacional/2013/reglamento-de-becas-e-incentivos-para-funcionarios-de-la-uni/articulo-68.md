@@ -1,0 +1,1 @@
+Artículo 68.- Las solicitudes serán conocidas en el orden de su presentación y deberán ser resueltas en un plazo máximo de quince días naturales, salvo en los casos debidamente justificados en los que no se puedan respetar estos plazos.

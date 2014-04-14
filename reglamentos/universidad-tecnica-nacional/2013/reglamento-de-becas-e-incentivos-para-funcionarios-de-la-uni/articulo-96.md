@@ -1,0 +1,1 @@
+Artículo 96.- No se cobrarán intereses sobre las sumas entregadas y a repetirse, sin embargo, deberán ser indexadas en relación al momento del otorgamiento del beneficio y hasta el momento en que la sanción quede en firme. Este cálculo lo realizará el Departamento Financiero.

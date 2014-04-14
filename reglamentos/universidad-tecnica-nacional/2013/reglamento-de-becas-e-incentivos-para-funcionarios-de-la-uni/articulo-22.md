@@ -1,0 +1,3 @@
+Sección II
+Secretaría
+Artículo 22.- La Secretaría de la Comisión (en adelante Secretaría) quedará a cargo del Jefe de la Unidad de Capacitación y Desarrollo de la Dirección de Gestión de Desarrollo Humano y en la Comisión contará con el derecho de voz pero no de voto. La Secretaría estará ubicada en el lugar en que físicamente se sitúa la Unidad de Capacitación y Desarrollo de la Dirección de Desarrollo Humano, sin embargo, los funcionarios de las Sedes y Centros podrán gestionar el trámite directamente en los Departamentos de Gestión de Desarrollo Humano de las Sedes, quienes trasladarán los documentos recibidos a la Secretaría.

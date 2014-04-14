@@ -1,0 +1,1 @@
+Artículo 25.- El Comité se reunirá ordinariamente dos veces al mes y extraordinariamente cuando lo convoque el presidente o a solicitud de dos o más de sus miembros. Todas las sesiones deberán convocarse con al menos veinticuatro horas de antelación y por escrito, excepto los casos de urgencia debidamente fundamentados.

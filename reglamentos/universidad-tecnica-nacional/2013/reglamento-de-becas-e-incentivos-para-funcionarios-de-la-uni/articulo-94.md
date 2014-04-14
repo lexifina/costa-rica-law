@@ -1,0 +1,1 @@
+Artículo 94.- En todo momento en que la sanción implique un rebajo al salario del sancionado, la Comisión lo comunicará al Departamento correspondiente para la aplicación de la sanción y negociación con el servidor sobre el plan de pago.

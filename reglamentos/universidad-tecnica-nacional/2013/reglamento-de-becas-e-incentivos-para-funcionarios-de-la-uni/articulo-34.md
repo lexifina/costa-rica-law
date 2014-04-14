@@ -1,0 +1,1 @@
+Artículo 34.- Los dictámenes de Comisión relativos al derecho de petición deberán ser incluidos por la Secretaría en el punto de tramitación urgente. De igual manera se procederá con cualquier dictamen que tenga más de un mes de estar en agenda.

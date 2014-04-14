@@ -1,0 +1,1 @@
+Artículo 37.- Las intervenciones de los miembros de la Comisión en las sesiones deberán ser respetuosas, breves y concisas. La presidencia podrá limitar el uso del tiempo cuando la persona en uso de la palabra se extienda más de cinco minutos o esté fuera del tema en discusión.

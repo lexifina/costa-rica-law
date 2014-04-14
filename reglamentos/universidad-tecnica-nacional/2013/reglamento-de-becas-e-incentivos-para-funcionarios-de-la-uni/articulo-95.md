@@ -1,0 +1,1 @@
+Artículo 95.- El sancionado podrá hacer abono a lo adeudado en cualquier momento y fuera del plan de pago, siempre que el abono corresponda al pago de una de las cuotas quincenales o mensuales acordadas. En estos casos, la Administración emitirá el comprobante de pago respectivo.

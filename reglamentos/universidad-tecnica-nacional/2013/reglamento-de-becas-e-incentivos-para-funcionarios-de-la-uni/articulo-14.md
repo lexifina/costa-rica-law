@@ -1,0 +1,1 @@
+Artículo 14.- La UTN se encuentra facultada para gestionar y aprovechar las becas u otras facilidades que otorguen gobiernos, instituciones u organismos nacionales o extranjeros de reconocida solvencia moral y económica.

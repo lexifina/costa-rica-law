@@ -1,0 +1,1 @@
+Artículo 54.- Los actos generales se comunicarán por publicación en la página web de la Universidad. Los actos concretos y los generales que afecten particularmente a una persona, serán notificados personalmente o al lugar señalado para notificaciones, conforme al trámite establecido en el artículo 243 de la Ley General de la Administración Pública.

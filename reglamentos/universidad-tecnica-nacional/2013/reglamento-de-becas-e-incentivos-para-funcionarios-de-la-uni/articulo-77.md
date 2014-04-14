@@ -1,0 +1,1 @@
+Artículo 77.- En los casos de enfermedad grave o situaciones de fuerza mayor debidamente justificadas y respaldadas ante la Comisión, que no permitan que el beneficiario complete su programa de formación o capacitación en el tiempo establecido, la Comisión podrá congelar el beneficio por un período de hasta doce meses.

@@ -1,0 +1,1 @@
+Artículo 44.- El proponente de una moción podrá retirarla en cualquier momento siempre que no haya sido sometida a votación o que no haya sido objeto de alguna enmienda por votación. Una moción que haya sido retirada podrá ser presentada por cualquier otro miembro de la Comisión.

@@ -1,0 +1,6 @@
+Artículo 10.- La Comisión podrá recomendar el otorgamiento de licencias con goce de salario de:
+a) Hasta un cuarto de tiempo para cursar estudios a nivel secundario, técnico, pregrado, grado y posgrado.
+b) Un cuarto de tiempo, medio tiempo o tiempo completo, para efectos de la elaboración del trabajo final de graduación y para atender pasantías o actividades de capacitación en el ámbito nacional o internacional.
+c) Medio tiempo o tiempo completo para cursar estudios a nivel de posgrado, de conformidad con los criterios de exigencia del plan de estudios correspondiente. La licencia con goce de salario será otorgada hasta por el plazo máximo de duración del plan de estudios respectivo que no podrá exceder de seis años. En casos justificados, de manera razonada y documentada la Comisión, podrá ampliar dicho término hasta por dos años.
+Los beneficios de estudio regulados en los artículos del presente Reglamento pueden ser otorgados por la Comisión de manera combinada o no, según el caso, por lo que no son excluyentes.
+En estos casos, el pago por sustitución del titular del permiso con goce de salario, será asumido por la Sede o Centro, que brindará el contenido presupuestario respectivo.

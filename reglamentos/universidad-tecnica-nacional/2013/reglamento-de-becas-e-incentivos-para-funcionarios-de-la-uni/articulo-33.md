@@ -1,0 +1,1 @@
+Artículo 33.- En el punto correspondiente a lectura de la correspondencia, el plenario se limitará a la lectura del documento o su resumen y a darle el trámite que corresponda. Si se requiere tratar un asunto derivado de la correspondencia y someterlo a votación, deberá incluirse dentro del orden del día.

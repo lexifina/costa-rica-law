@@ -1,0 +1,1 @@
+Artículo 57.- Para el recibo de las solicitudes físicas el interesado podrá concurrir a la Secretaría o a cualquiera de los Departamentos de Gestión de Desarrollo Humano de las Sedes, indistintamente si el solicitante desempeña sus labores en otra Sede.

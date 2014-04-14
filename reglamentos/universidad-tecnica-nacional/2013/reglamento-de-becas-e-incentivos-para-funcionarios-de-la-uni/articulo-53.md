@@ -1,0 +1,1 @@
+Artículo 53.- Cuando por razones de conveniencia para la Universidad, se requiere ejecutar de inmediato el acuerdo tomado en una sesión, por decisión de la mayoría de los miembros presentes podrá declararse firme con el fin de que se ejecute antes de la aprobación del acta respectiva.

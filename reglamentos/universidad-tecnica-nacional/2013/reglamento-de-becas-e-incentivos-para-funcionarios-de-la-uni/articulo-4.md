@@ -1,0 +1,1 @@
+Artículo 4.- Se establece la Comisión de Becas (en adelante, la Comisión) como órgano colegiado y desconcentrado que depende del la Vicerrectoría de Docencia, su naturaleza es técnica y es el órgano encargado de emitir recomendaciones vinculantes en materia de becas para la formación y capacitación de los funcionarios de la Universidad.

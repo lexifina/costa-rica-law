@@ -1,0 +1,1 @@
+Artículo 76.- Toda beca institucional debe hacerse efectiva en un período máximo de tres meses posteriores a su aprobación por parte de la Comisión. En caso contrario, se deberán iniciar los trámites de beca nuevamente.

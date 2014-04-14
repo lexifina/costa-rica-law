@@ -1,0 +1,1 @@
+Artículo 42.- Serán de forma las mociones que pretenden corregir el estilo de un texto. Se presentarán por escrito a la Presidencia con el fin de que esta la incorpore a un texto ya aprobado, si lo considera pertinente.

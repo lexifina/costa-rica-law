@@ -1,0 +1,1 @@
+Artículo 81.- Este contrato no requerirá ser autenticado, salvo aquellos casos en los que sea necesario imponer una fecha cierta en caso que surja contención judicial por su ejecución. En este caso, su autenticación será realizada por la Dirección de Asuntos Jurídicos.

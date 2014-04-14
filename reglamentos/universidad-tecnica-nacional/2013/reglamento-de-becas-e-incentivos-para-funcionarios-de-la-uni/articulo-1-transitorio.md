@@ -1,0 +1,1 @@
+Transitorio I.- Las solicitudes pendientes de resolución con anterioridad deberán regirse por la normativa vigente al momento de la presentación de la solicitud, sin perjuicio de que los solicitantes renuncien a la continuación del trámite y así lo comuniquen a la Comisión, pudiendo iniciar un nuevo trámite sujeto a esta nueva normativa.

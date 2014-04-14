@@ -1,0 +1,1 @@
+Artículo 62.- En caso de detectar alguna carencia o la necesidad de subsanar o corregir alguno de los datos del formulario, el solicitante podrá subsanarla dentro de los siguientes diez días hábiles posteriores a la comunicación de la prevención.

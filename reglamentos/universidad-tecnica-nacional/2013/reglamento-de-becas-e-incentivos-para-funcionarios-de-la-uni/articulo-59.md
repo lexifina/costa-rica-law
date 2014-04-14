@@ -1,0 +1,1 @@
+Artículo 59.- El solicitante deberá en todos los casos señalar un medio para recibir notificaciones, sea por fax o un correo electrónico. En este último caso la Administración tendrá por notificadas las resoluciones o prevenciones que realice con el solo comprobante de su envío exitoso.

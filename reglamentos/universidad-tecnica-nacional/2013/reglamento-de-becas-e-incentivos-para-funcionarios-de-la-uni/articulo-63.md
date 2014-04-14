@@ -1,0 +1,1 @@
+Artículo 63.- Cualquier solicitud deberá presentarse con un plazo de diez días hábiles de antelación a la actividad o permiso, salvo los casos debidamente justificados en los que no sea posible cumplir con este plazo.

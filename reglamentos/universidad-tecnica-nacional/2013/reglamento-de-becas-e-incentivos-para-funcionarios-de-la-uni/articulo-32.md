@@ -1,0 +1,1 @@
+Artículo 32.- No podrá ser discutido ni ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes dos tercios de los miembros de la Comisión y sea declarada la urgencia del asunto por el voto unánime de los presentes.

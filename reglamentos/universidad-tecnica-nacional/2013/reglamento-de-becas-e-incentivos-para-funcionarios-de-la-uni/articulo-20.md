@@ -1,0 +1,1 @@
+Artículo 20.- Los miembros de la Comisión representan a la comunidad universitaria y no a una unidad académica o administrativa en particular. En caso de incumplimiento de estas prohibiciones el funcionario podrá ser sancionado disciplinariamente previo procedimiento administrativo al efecto.
