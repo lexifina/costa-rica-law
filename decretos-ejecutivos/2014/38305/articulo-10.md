@@ -1,0 +1,16 @@
+Artículo 10.—Unidad de Negociación y Contratación del Endeudamiento Público de Mediano y Largo Plazo. El objetivo de esta Unidad es propiciar una adecuada utilización del financiamiento público y las condiciones financieras más favorables para el país, mediante la revisión y análisis de la contratación del financiamiento público del sector público y la negociación de las operaciones crediticias en donde el Gobierno figura como deudor o garante.
+Las funciones de la Unidad de Negociación y Contratación del Endeudamiento Público de Mediano y Largo Plazo son las siguientes:
+a. Elaborar y proponer a la Jefatura del Departamento los planes y programas de trabajo a ejecutar por la Unidad a cargo, a efecto de cumplir con las funciones asignadas y con el Plan Anual Operativo de la Dirección.
+b. Planificar, asignar, coordinar, dirigir y supervisar el trabajo del personal a cargo, para asegurar un desempeño eficiente y eficaz de las funciones bajo su responsabilidad.
+c. Elaborar, coordinar, revisar y proponer a la Jefatura del Departamento los procedimientos aplicables a la negociación, trámite y contratación del crédito público de la Administración Central.
+d. Elaborar, coordinar, revisar y proponer a la Jefatura del Departamento los criterios técnicos y guías metodológicas para el análisis de las solicitudes de endeudamiento público de proyectos de inversión.
+e. Elaborar, coordinar, revisar y proponer a la Jefatura del Departamento criterios de elegibilidad de los préstamos.
+f. Participar junto con la Unidad de Política de Endeudamiento Público de Mediano y Largo Plazo y la Unidad de Relaciones con el Inversionista, en la elaboración de la propuesta de Política de Endeudamiento Público tanto interno como externo para el mediano y largo plazo, considerando la capacidad de endeudamiento del país.
+g. Elaborar la propuesta de Programa de Financiamiento de Proyectos de Inversión, así como encargarse de darle seguimiento y actualizarla.
+h. Investigar y elaborar estudios en materia de endeudamiento público.
+i. Evaluar operaciones de Crédito Público en trámite con organismos financieros nacionales e internacionales y preparar la correspondiente recomendación a la Autoridad Presupuestaria sobre la autorización para la contratación de Crédito Público.
+j. Apoyar y orientar a las Instituciones del Sector Público en las negociaciones tendientes a la contratación de operaciones de crédito externo para la ejecución de proyectos.
+k. Ser interlocutores en las negociaciones de créditos externos de las Instituciones del Gobierno Central ante los organismos financieros internacionales y en aquellos empréstitos externos donde el Gobierno de la República figure como deudor o garante.
+l. Evaluar las solicitudes de cooperación no reembolsables relacionadas con créditos externos para efectos de aprobación por parte del Ministro de Hacienda, así como participar en la formalización de las cooperaciones ante los organismos financieros internacionales.
+m. Participar en el proceso de suscripción de los contratos de préstamos y en la elaboración del Proyecto de Ley de Aprobación de Contratos de Préstamo en aspectos financieros-técnicos, en conjunto con la Asesoría Legal de la Dirección y la institución ejecutora del crédito/proyecto.
+n. Promover la gestión de calidad en los productos, servicios y acciones que realice el Departamento.
