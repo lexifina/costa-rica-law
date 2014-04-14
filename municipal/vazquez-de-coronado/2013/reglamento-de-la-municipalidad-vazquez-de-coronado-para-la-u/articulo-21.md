@@ -1,0 +1,23 @@
+CAPÍTULO VI
+Licencias de construcción
+Artículo 21.—Para la obtención de la Licencia de Construcción, los solicitantes deberán presentar conjuntamente con el formulario conforme al Anexo 3 de este Reglamento los siguientes requisitos:
+1. una declaración jurada, de acuerdo al Anexo 4, otorgada ante Notario Público con las especies fiscales de Ley, donde se haga constar que no existe una torre de telecomunicaciones a una distancia mínima de 250 metros desde el centro de la torre propuesta. Esta distancia mínima y la declaración jurada no aplican en los siguientes casos:
+a) las torres existentes del ICE a la entrada en vigencia de este Reglamento.
+b) cuando las antenas se ubiquen en postes, azoteas o vallas existentes.
+2. declaración jurada, de acuerdo al Anexo 4, otorgada ante Notario Público con las especies fiscales de Ley, donde se haga constar que las Obras Constructivas se edificarán para ser compartida por un mínimo de tres emplazamientos de antenas y equipos, conforme a lo establecido por el artículo 77 de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, Ley Nº 8660 del 8 de agosto de 2008.
+3. documento que acredite el consentimiento del propietario cuando se pretenda establecer las Obras Constructivas a que se refiere este reglamento en inmuebles propiedad de un tercero que no sea el solicitante de la Licencia de Construcción.
+4. certificado de uso de zona conforme.
+5. copia de la cédula de persona física solicitante o del representante legal y personería jurídica cuando se trate de persona jurídica, con no más de un mes de emitida, y en la que se detalle a su vez la existencia, vigencia, domicilio y la representación respectiva que debe tener el que presente la solicitud a nombre de una persona jurídica.
+6. certificación del plano catastrado visado del inmueble donde se ubicará el espacio respectivo.
+7. certificación literal del inmueble con no más de un mes de emitida.
+8. presentación de planos constructivos que cumplan con la normativa constructiva aplicable, firmados por el profesional responsable y visado por el Colegio de Ingenieros y Arquitectos (CFIA).
+9. la viabilidad ambiental otorgada por la Secretaría Nacional Técnica Ambiental (SETENAMINAET).
+10. estar al día con los tributos municipales.
+11. constancia del cumplimiento de las responsabilidades obrero patronales actualizada, con la Caja Costarricense de Seguro Social (CCSS) por parte del propietario del inmueble y de la empresa concesionaria.
+12. autorización de la Dirección General de Aviación Civil.
+13. georeferenciación de la ubicación del centro de la torre con coordenadas de longitud y latitud en formatos Lambert Norte, CRTM05 y WGS84.
+14. Descripción de las medidas correctivas adoptadas para la protección contra las descargas eléctricas de origen atmosférico, así como de la señalización y otras que restrinjan el acceso de personal no profesional al espacio en el que se ubicará la obra.
+15. Publicación por una vez de un aviso a la ciudadanía, de la solicitud respectiva en un diario de circulación nacional no especializado, que incluya como mínimo el lugar en el que se plantea la construcción o instalación o explotación con señas específicas de fácil comprensión para el público (provincia, cantón, distrito, caserío, y la forma de dar direcciones comúnmente utilizada en nuestro país), el tipo de obra y su altura, así como el nombre del solicitante.
+16. Plan de Despliegue de la Red.
+La Municipalidad se reserva la facultad de comprobar por cualquier medio la veracidad de la información contenida en las declaraciones juradas.
+Es entendido que si en cualquier momento se determina técnica o científicamente, que alguno de los servicios de telecomunicaciones o las obras que los posibilitan dañan la salud o el ambiente y por lo tanto los derechos constitucionales relativos a esos bienes jurídicos, son violentados o se hacen nugatorios, la licencia o licencias respectivas perderán sus efectos, y las obras deberán ser demolidas por el interesado, toda vez que las licencias se autorizarán a partir del estado del conocimiento técnico científico sobre esas obras y tecnología y sobre su relación con la salud y el ambiente, conforme al criterio respectivo de la autoridad sanitaria y de la SETENA entre otros órganos competentes, previo debido proceso.

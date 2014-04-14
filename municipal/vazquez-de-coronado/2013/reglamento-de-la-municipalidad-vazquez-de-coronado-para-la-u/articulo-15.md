@@ -1,0 +1,1 @@
+Artículo 15.—Aseguramiento total de la transparencia radio-eléctrica: Los trabajos de mimetización o camuflaje en telecomunicaciones deben garantizar la total transparencia radio-eléctrica, es decir, producir un efecto mínimo en el coeficiente de reflexión y aislamiento de las antenas, lo que permite una correcta emisión y recepción de la señal.
