@@ -1,4 +1,5 @@
-Artículo 18.—De las funciones del consejo universitario. Son funciones del Consejo Universitario.
+Artículo 18.—De las funciones del consejo universitario. El Consejo Universitario es el órgano colegiado inmediato en jerarquía a la Asamblea Universitaria, y le corresponde ejercer la dirección superior de la Universidad, para lo cual cumplirá con las siguientes funciones:
+(Así reformado el párrafo anterior mediante acta N° 98-2014, acuerdo N° 2 del 15 de abril de 2014)
 a) Dictar las políticas generales de la Universidad y ejercer la dirección y el control estratégico de la misma con base en los lineamientos definidos por la Asamblea Universitaria.
 b) Velar porque las finanzas de la Universidad sean sanas.
 c) Aprobar el plan anual operativo y los presupuestos ordinarios y extraordinarios, así como sus modificaciones, conforme al Reglamento correspondiente.

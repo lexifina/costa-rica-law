@@ -1,4 +1,5 @@
-Artículo 27.—De las funciones del director de carrera. Son funciones y atribuciones del Director de la Carrera en el nivel correspondiente:
+Artículo 27.—De las funciones del director de carrera. Son funciones y atribuciones del Director de Carrera:
+(Así reformado el párrafo anterior mediante acta N° 98-2014, acuerdo N° 2 del 15 de abril de 2014)
 a) Dirigir y coordinar todas las actividades académicas de la Carrera, impulsar su desarrollo, y ejercer la representación de la Carrera.
 b) Convocar y presidir el Consejo Asesor de Carrera.
 c) Adoptar las medidas que se requieren para la ejecución de las resoluciones o instrucciones del Consejo Universitario, del Rector o del Decano en el área de su competencia.

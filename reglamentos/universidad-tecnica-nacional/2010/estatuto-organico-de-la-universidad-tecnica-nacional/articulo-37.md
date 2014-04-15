@@ -7,7 +7,8 @@ e) Aprobar directamente, las modificaciones del presupuesto de la Sede, siempre 
 f) Aprobar el proyecto inicial del Plan Anual Operativo.
 g) Adjudicar los procesos de contratación que indique el Reglamento correspondiente.
 h) Proponer al Rector, la aprobación de los proyectos de convenios de cooperación en que la Sede tenga interés.
-i) Pronunciarse sobre el diseño, rediseño, cierre y reapertura de carreras de la Sede procurando la pertinencia de la oferta académica.
+i) Pronunciarse sobre la apertura, el cierre y la reapertura de carreras de la Sede procurando la pertinencia de la oferta académica.
+(Así reformado el inciso anterior mediante acta N° 98-2014, acuerdo N° 2 del 15 de abril de 2014)
 j) Proponer ante las autoridades respectivas proyectos de investigación, extensión y docencia en que tenga interés la Sede.
 k) Conocer y dar seguimiento a los estudios de investigación que promueva y realice la Sede.
 l) Resolver asuntos importantes que proponga el Decano a su consideración.
