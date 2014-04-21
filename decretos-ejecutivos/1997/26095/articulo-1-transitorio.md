@@ -1,3 +1,2 @@
-Transitorio único.-En tanto no entre en vigencia un decreto ejecutivo que norme las relaciones de servicio entre los servidores del Registro Nacional y el Ministerio de Justicia y Gracia, dichas relaciones laborales se regirán por el Reglamento Autónomo de Servicio del Ministerio de Justicia y Paz(*), decreto ejecutivo número 20295-J del 6 de marzo de 1991. cuyas disposiciones mantendrán plena aplicación y vigencia para éstos servidores públicos.
-(*) (Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Ministerio de Justicia y Gracia")
+Transitorio único.—(Derogado por el artículo 113 del Reglamento autónomo de servicio del Registro Nacional, aprobado mediante decreto ejecutivo N° 38400 del 21 de abril de 2014)
 Rige quince días naturales a partir de su publicación.
