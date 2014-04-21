@@ -14,3 +14,4 @@ Reglamento a la Ley Nº 8507, Desarrollo de un Mercado Secundario de Hipotecas c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-25 | la propia norma |
+| 2 | 2014-04-21 | Decreto Ejecutivo 38429 (2014-04-21) |
