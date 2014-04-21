@@ -1,1 +1,0 @@
-Artículo 6º—(Reformado en Sesión Extraordinaria N° 3349, que al disponerse integrar el texto de los artículos 5° y 6° en uno sólo, por lo que el contenido de este artículo pasó a formar parte del artículo 5°).

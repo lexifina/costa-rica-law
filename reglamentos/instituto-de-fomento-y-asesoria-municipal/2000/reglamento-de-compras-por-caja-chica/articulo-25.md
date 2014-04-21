@@ -1,1 +1,0 @@
-Artículo 25°- En caso de que el Encargado de la Caja Chica no aplique las regulaciones del presente Reglamento será acreedor de las sanciones que establece el Reglamento Autónomo de Organización y Servicio del IFAM.
