@@ -1,0 +1,2 @@
+ARTÍCULO 22.-
+El órgano que se extraiga de un donante vivo deberá ser destinado previamente a una persona en particular. En caso de los tejidos, estos podrán destinarse a una persona específica o al banco de tejidos del centro hospitalario, acorde con la decisión del donante. En caso de que el receptor del órgano o tejido hubiera fallecido antes de la implantación, pero luego de la extracción del donante vivo, tanto los órganos como los tejidos podrán implantarse en otro receptor, si así lo indica el respectivo donante en el documento de consentimiento.
