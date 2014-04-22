@@ -1,0 +1,2 @@
+ARTÍCULO 36.-
+El Ministerio de Salud establecerá la normativa reglamentaria para la adecuada ejecución de los procesos de donación y trasplante de órganos y tejidos, y sus subprocesos, en un plazo máximo de dos años a partir de la publicación de esta ley. Con base en esta normativa, las instituciones o los establecimientos de salud con procesos de donación y trasplante de órganos y tejidos deberán emitir los documentos de normalización técnica y administrativa, en el plazo de un año, a partir de la publicación de la normativa reglamentaria.

@@ -1,0 +1,6 @@
+ARTÍCULO 60.-
+Se adiciona un artículo 384 ter a la Ley N.º 4573, Código Penal, de 4 de mayo de 1970, y sus reformas. El texto dirá:
+“Artículo 384 ter.- Extracción ilícita de órganos, tejidos humanos y/o fluidos humanos
+Será sancionado con pena de prisión de cinco a doce años, quien realice la extracción de órganos, tejidos y/o fluidos humanos sin contar con el consentimiento informado previo de la persona donante viva, de conformidad con lo establecido en los artículos 15 y 16 de la Ley de Donación y Trasplante de Órganos y Tejidos Humanos, o induciéndola a error mediante el ocultamiento de información o el uso de información falsa o cualquier otra forma de engaño o manipulación. Igual pena se impondrá a quien realice una extracción sin someter antes el caso al comité de bioética clínica del respectivo hospital, según lo establecido en el artículo 21 de la citada ley.
+La pena será de ocho a dieciséis años de prisión para quien viole las prohibiciones establecidas en los artículos 17 y 26 de la Ley de Donación y Trasplante de Órganos y Tejidos Humanos.
+Será sancionado con pena de tres a diez años de prisión, quien extraiga órganos, tejidos y/o fluidos humanos de una persona fallecida sin que esta haya manifestado su anuencia en vida o sin contar con la autorización de sus parientes o representantes, de conformidad con la ley.”

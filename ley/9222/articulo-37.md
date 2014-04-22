@@ -1,0 +1,2 @@
+ARTÍCULO 37.-
+Los establecimientos de salud que desarrollen procesos de donación y trasplante de órganos y tejidos deben contar con equipos hospitalarios conformados con recurso humano calificado y nombrar un coordinador de donación y trasplante de dichos equipos. Las instituciones que cuenten con más de un establecimiento donde se realice donación y trasplante deberán designar una coordinación institucional.

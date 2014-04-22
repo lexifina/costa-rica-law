@@ -1,6 +1,1 @@
-ARTICULO 35.- Queda prohibido el comercio de los órganos o tejidos
-del cuerpo humano que pueda poner en peligro la salud o la vida de las
-personas.
-Traspasos a cualquier título de órganos y tejidos del cuerpo humano
-sòlo podrán ser efectuados con sujeción estricta a las disposiciones
-reglamentarias pertinentes.
+ARTICULO 35.- (Derogado por el artículo 58 de la Ley de Donación y Trasplante de Órganos y Tejidos Humanos, N° 9222 del 13 de marzo del 2014)

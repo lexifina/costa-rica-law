@@ -1,0 +1,2 @@
+ARTÍCULO 29.-
+El diagnóstico y la certificación de la muerte encefálica serán suscritos por tres médicos del hospital en el que falleció la persona, entre los que debe figurar un neurólogo o neurocirujano y el jefe de la unidad médica donde se encuentre ingresado, o su sustituto. En ningún caso, los médicos que diagnostican y certifican la muerte podrán formar parte del equipo de extracción o trasplante de los órganos que se extraigan.

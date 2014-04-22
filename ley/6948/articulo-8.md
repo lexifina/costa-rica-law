@@ -1,4 +1,1 @@
-Artículo 8º.- En el caso de cadáveres que se encuentren en la morgue
-judicial por motivo de accidentes, sus córneas podrán ser removidas para
-los fines de la presente ley, durante las primeras ocho horas posteriores
-al fallecimiento.
+Artículo 8º.- (Derogado por el artículo 57 de la Ley de Donación y Trasplante de Órganos y Tejidos Humanos, N° 9222 del 13 de marzo del 2014)
