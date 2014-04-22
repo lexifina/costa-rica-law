@@ -1,0 +1,1 @@
+Artículo 25.—La Presidencia Municipal debe procurar que existan a disposición de los miembros del Concejo hojas de reclamaciones por asuntos varios, las cuales deben ser entregadas al Alcalde al término de la Sesión para el trámite correspondiente.

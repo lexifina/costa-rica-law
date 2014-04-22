@@ -1,0 +1,1 @@
+Artículo 36.—Toda Comisión deberá rendir el dictamen respectivo del o los asuntos encomendados en un plazo no mayor a los 22 días hábiles, tomando como fecha cierta del conocimiento del asunto el día siguiente de la Sesión en que se delegó el asunto correspondiente.

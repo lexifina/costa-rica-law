@@ -1,0 +1,1 @@
+Artículo 37.—Es competencia del Concejo por acuerdo y previa justificación, retrotraer asuntos que estén en conocimiento de alguna Comisión y direccional su discusión o rechazo u aprobación mediante otra técnica.

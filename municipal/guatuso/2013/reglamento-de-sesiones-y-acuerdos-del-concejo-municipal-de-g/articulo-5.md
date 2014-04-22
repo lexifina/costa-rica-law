@@ -1,0 +1,1 @@
+Artículo 5°—Las sesiones del Concejo deben iniciarse dentro de los primeros 15 minutos siguientes a la hora señala de conformidad al reloj que se ubique en el recinto o en su defecto en el reloj personal del Presidente (a) Municipal.

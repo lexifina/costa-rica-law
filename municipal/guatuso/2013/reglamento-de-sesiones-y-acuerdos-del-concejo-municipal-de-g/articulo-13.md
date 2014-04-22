@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros del Concejo deben concretarse en el uso de la palabra y procurar no exceder los 10 minutos en el uso de ella. Es competencia de la Presidencia Municipal el ejercer este control con los medios que considere.

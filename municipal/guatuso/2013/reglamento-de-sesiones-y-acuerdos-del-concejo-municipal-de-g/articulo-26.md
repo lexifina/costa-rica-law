@@ -1,0 +1,1 @@
+Artículo 26.—Toda moción o proposición debe ser leída en su totalidad por la secretaria del Concejo Municipal independientemente de que se solicite expresamente el envío del asunto a Comisión.

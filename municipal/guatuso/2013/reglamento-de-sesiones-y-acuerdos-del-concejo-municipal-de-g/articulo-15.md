@@ -1,0 +1,1 @@
+Artículo 15.—Durante las sesiones se debe regular restrictivamente el uso del teléfono celular, colocándolo en vibrador o modo silencioso, para así no interferir e interrumpir a la persona que en el respectivo momento este haciendo uso de la palabra.

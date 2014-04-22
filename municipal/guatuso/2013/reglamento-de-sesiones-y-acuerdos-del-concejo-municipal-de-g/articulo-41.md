@@ -1,0 +1,1 @@
+Artículo 41.—El Presidente de cada Comisión está en la obligación de presentar al Concejo, un informe semestral en los meses de octubre y abril de cada año, sobre el quehacer de la comisión que incluya al menos: Cantidad de sesiones de trabajo realizadas, cantidad de asuntos tratados y resueltos, asistencias y ausencias de los miembros.

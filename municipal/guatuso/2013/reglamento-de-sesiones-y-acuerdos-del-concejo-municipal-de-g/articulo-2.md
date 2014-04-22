@@ -1,0 +1,1 @@
+Artículo 2°—Las sesiones ordinarias del Concejo Municipal se llevarán a cabo los días martes a partir de las 09:00 horas en el salón de sesiones que para esos efectos destine la Administración Municipal.

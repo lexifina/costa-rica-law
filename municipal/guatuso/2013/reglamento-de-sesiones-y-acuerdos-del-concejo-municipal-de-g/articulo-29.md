@@ -1,0 +1,11 @@
+Artículo 29.—Serán Comisiones Permanentes las siguientes:
+a) Comisión de Hacienda y Presupuesto: será la encargada de analizar todo lo relativo al Presupuesto Municipal de acuerdo al Título IV del Código Municipal.
+b) Obras Públicas: será la encargada de analizar todo lo relacionado con proyectos de obras públicas que se desarrollen o se pretendan desarrollar en el Cantón, independientemente de quien sea el responsable de la ejecución.
+c) Comisión de Gobierno y Administración: será la encargada de analizar los asuntos relacionados a la organización municipal en materia general de administración y las relaciones interinstitucionales. El Presidente (a) y Secretario (a) de esta Comisión serán a su vez, los representantes del Concejo ante la Junta de Relaciones Laborales.
+d) Comisión de Planificación Urbana: será la encargada de estudiar, planificar y controlar el desarrollo urbano del cantón tomando en cuenta como herramienta básica el Plan Regulador vigente en el Cantón. Para las modificaciones del Plan, el Concejo puede acordar una Comisión Especial.
+e) Comisión de Asuntos Jurídicos: será la encargada de analizar los asuntos estrictamente legales que conozca el Concejo.
+f) Comisión de Asuntos Ambientales: será la encargada de analizar, estudiar y recomendar todo lo concerniente a la protección del medio ambiente, los desechos sólidos y los mantos acuíferos. Esta Comisión conocerá también los asuntos propios del Departamento de Acueducto Municipal.
+g) Comisión de la Condición de la Mujer y el género: será la encargada de analizar e impulsar las políticas locales de género.
+h) Comisión de Asuntos Sociales: será la encargada de analizar y recomendar las políticas a seguir en el campo social. Esta Comisión puede trabajar en coordinación con las Instituciones del sector público.
+i) Comisión de Asuntos Culturales: será la encargada de analizar y recomendar las políticas de la expansión y divulgación de la cultura del Cantón. Debe promover el rescate de las tradiciones populares propias del Cantón. La Administración es la encargada de ejecutar los proyectos y programas culturales de la Institución.
+j) Comisión de Consejos de Distrito: será la encargada de coordinar el trabajo de los Consejos Distritales y el Concejo Municipal dando seguimiento a las necesidades puntuales que atiendan éstas organizaciones.

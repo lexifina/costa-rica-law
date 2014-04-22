@@ -1,0 +1,1 @@
+Artículo 42.—Las comisiones de trabajo del Concejo Municipal son nombradas por periodos anuales, no obstante, es potestad de la Presidencia reestructurarlas cuando así lo considere o a solicitud de la misma Comisión.
