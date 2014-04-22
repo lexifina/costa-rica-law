@@ -1,4 +1,0 @@
-Artículo 13.—Vehículos de uso de la fuerza policial de tránsito. Cuando se tratare de vehículos oficiales propiedad del MOPT o del COSEVI, y fueren de uso policial, su conducción deberá llevarse a cabo por autoridades u oficiales de tránsito, así como por operadores de equipo móvil autorizados por la jefatura inmediata pertinente.
-Los funcionarios encargados de la conducción de tales vehículos, deberán haber cumplido con los requisitos legalmente establecidos para la conducción de vehículos automotores, así como los que, complementariamente, establezca la Dirección General de la Policía de Tránsito, según corresponda.
-El pernocte de estos vehículos de uso de la fuerza Policial de Tránsito se efectuará de conformidad con las reglas que se establecen en los artículos siguientes”.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35551 del 18 de setiembre de 2009)

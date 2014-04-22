@@ -1,1 +1,0 @@
-Artículo 3º—Propiedad. Son vehículos propiedad del MOPT y COSEVI todos aquellos automotores adquiridos por estas dependencias estatales para el cumplimiento de las labores y obligaciones por parte de la Dirección General de la Policía de Tránsito a que se refiere la Ley de Tránsito por Vías Públicas Terrestres, No 7331 del 13 de abril de 1993 y sus reformas.
