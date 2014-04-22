@@ -1,1 +1,1 @@
-Artículo 18: TRASPASO, TRASLADO O EXPLOTACIÓN DE LICENCIAS PARA LA COMERCIALIZACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO BAJO LA LEY N° 9047: Las personas físicas o jurídicas que soliciten licencias bajo la Ley, deberán cumplir con lo dispuesto en el artículo 8 de la Ley y en el anterior de este reglamento, propiamente respecto de los incisos a), b) d), e), f), h), i) y j) salvo lo relativo al traspaso considerando su naturaleza.
+Artículo 18: (Derogado mediante sesión ordinaria N° 297-14 del 22 de abril del 2014)
