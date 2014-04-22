@@ -1,0 +1,2 @@
+ARTÍCULO 28.-
+El diagnóstico y la certificación de la muerte encefálica deberán ser reconocidos mediante un examen clínico adecuado tras un período apropiado de observación. Los criterios diagnósticos clínicos, los períodos de observación, así como las pruebas confirmatorias que se requieran, según las circunstancias médicas, serán emitidos por el Ministerio de Salud y de acatamiento obligatorio tanto para el sector público como el privado, y se elaborarán con base en la recomendación del Consejo Nacional de Donación y Trasplante de Órganos y Tejidos.

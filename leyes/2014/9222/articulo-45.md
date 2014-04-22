@@ -1,0 +1,2 @@
+ARTÍCULO 45.-
+La Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos tendrá como objetivo general coordinar las acciones con otras instancias del Ministerio de Salud, el coordinador institucional de ámbito nacional de la Caja Costarricense de Seguro Social en donación y trasplante, el sector privado, la sociedad civil y otros sectores relacionados, para garantizar la transparencia, accesibilidad, oportunidad, efectividad, calidad y seguridad de los procesos de donación y trasplante de órganos y tejidos, y sus subprocesos.

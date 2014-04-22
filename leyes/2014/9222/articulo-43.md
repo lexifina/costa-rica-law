@@ -1,0 +1,2 @@
+ARTÍCULO 43.-
+El Consejo sesionará ordinariamente una vez cada trimestre y, extraordinariamente, cada vez que sea convocado por quien lo preside o por tres de sus miembros. El cuórum para sesionar válidamente será la mayoría absoluta de sus integrantes y los acuerdos serán adoptados por mayoría absoluta de los miembros presentes. Será de aplicación supletoria lo establecido en la Ley N.º 6227, Ley General de la Administración Pública, respecto del funcionamiento del órgano colegiado.

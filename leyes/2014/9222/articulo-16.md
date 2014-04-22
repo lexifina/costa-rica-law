@@ -1,0 +1,2 @@
+ARTÍCULO 16.-
+Salvo en casos debidamente justificados, entre la firma del documento de cesión de órganos y tejidos y la extracción de estos deberán transcurrir al menos veinticuatro horas; el donante podrá revocar su consentimiento en cualquier momento antes de la intervención, sin sujeción a formalidad alguna. Incluso, los médicos que deberán realizar la extracción o quien coordine el proceso en el establecimiento de salud deberán oponerse a esta, si albergan dudas sobre la condición libre, consciente y desinteresada del consentimiento del donante.

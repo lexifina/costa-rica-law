@@ -1,6 +1,6 @@
 # Declara de Interés Nacional el Banco de Córneas
 
-Ley N° 6948 del 1984-02-27. SINALEVI, ficha 5327: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5327&param2=5651&param3=1>.
+Ley N° 6948 del 1984-02-27. SINALEVI, ficha 5327: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5327&param2=96387&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 4 | 1984-04-13 | Ley 6948 | 1984-02-27 |
 | 2 de 4 | 1984-04-13 | SINALEVI | 1984-02-27 |
+| 3 de 4 | 2014-04-22 | Ley 9222 | 2014-03-13 |
