@@ -1,0 +1,3 @@
+BANCO NACIONAL DE COSTA RICA
+Apartado 3.3, Los Conflicto de Interés, del Código de Conducta.
+La Junta Directiva General en el punto 3, artículo 12°, sesión N° 11.889, celebrada el 18 de febrero del 2014, resolvió dejar sin efecto el siguiente párrafo incluido en el apartado 3.3. Los Conflictos de Interés del Código de Conducta y Ética del Conglomerado Banco Nacional (aprobado en el artículo 13°, sesión 11.751 del 14 de febrero del 2012): Es prohibido a los funcionarios del Banco Nacional ofertar en nombre propio o utilizando una persona física o jurídica interpuesta para la adquisición de bienes temporales que sean propiedad del Banco Nacional.
