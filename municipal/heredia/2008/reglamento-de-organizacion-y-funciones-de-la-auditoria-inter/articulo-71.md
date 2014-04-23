@@ -1,0 +1,2 @@
+Artículo 71.—Ante cualquier situación no prevista en este reglamento, se le hará por escrito la consulta al Auditor Interno, para que él analice el mismo y lo resuelva de acuerdo con la legislación aplicable y teniendo como finalidad la satisfacción de la necesidad de contar en forma oportuna con la información legal y oficial debidamente registrada.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

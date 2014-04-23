@@ -1,0 +1,2 @@
+Artículo 55.—La solicitud de apertura deberá ser suscrita por el jefe de la dependencia y presentada junto con el libro a autorizar, conteniendo al menos, los siguientes datos: fecha de solicitud, tipo y modalidad del libro, para qué será usado, la cantidad y numeración de folios que contiene el libro, el nombre, cargo, número de cédula, oficina y firma del funcionario responsable de la custodia y uso del libro.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

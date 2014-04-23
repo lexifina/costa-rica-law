@@ -1,0 +1,9 @@
+Artículo 48.—Fase de investigación: Admitida la denuncia, quedará incluida en el Plan de trabajo de la Auditoría Interna. La fase de investigación de las denuncias dará inicio en estricto orden de recibo, con excepción de aquellas que a juicio del auditor mediante resolución razonada, y atendiendo a la complejidad, importancia relativa y demás características del caso deban tener prioridad.
+Para la fase de investigación se debe cumplir con lo siguiente:
+a. Se conformará un expediente que contendrá todas las diligencias previas, informaciones, entrevista, evidencias, elementos probatorios y demás insumos relacionados con el asunto, todo lo cual tendrá carácter confidencial.
+b. La denuncia no formará parte de este expediente, se archivará por aparte, en cumplimiento de la obligación de mantener confidencial la identidad del denunciante.
+c. Concluida la investigación, se elaborará un informe que deberá contener: las actuaciones realizadas, una relación de hechos clara, precisa y circunstanciada, con indicación de tiempo, modo y lugar según se haya podido determinar, así como las consideraciones y recomendaciones que se estimen pertinentes.
+d. Cuando en razón del resultado de la investigación se recomiende la apertura de un proceso administrativo para determinar eventuales responsabilidades, se adjuntará el expediente con toda la documentación habida y que sustenta los hechos que generaron conductas irregulares.
+e. Cuando en razón de la investigación se determinaren responsabilidades de tipo penal, el informe final deberá documentar la realización de los presuntos hechos ilícitos para su posterior traslado al Ministerio Público.
+f. Toda investigación deberá quedar concluida como máximo a los seis meses de haber sido presentada la denuncia, salvo fuerza mayor.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

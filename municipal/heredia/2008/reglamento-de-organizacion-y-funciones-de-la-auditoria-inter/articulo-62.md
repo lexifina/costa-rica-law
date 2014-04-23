@@ -1,0 +1,2 @@
+Artículo 62.—Para llevar a cabo la razón de cierre de un libro bajo la modalidad de “hojas sueltas”, será necesario que la oficina solicitante proceda de previo a llevar a cabo una adecuada encuadernación del libro, entendiéndose por esta la acción y efecto de unir las hojas mediante cosido o pegado y con sus respectivas cubiertas, debidamente rotuladas.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

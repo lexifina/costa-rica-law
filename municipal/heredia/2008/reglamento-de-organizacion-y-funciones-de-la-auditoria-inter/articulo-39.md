@@ -1,1 +1,2 @@
-Artículo 39.—Aplicación del Reglamento a otras unidades de la Municipalidad. En lo que corresponda, las disposiciones de este reglamento serán de aplicación en todas las unidades que conforman la estructura organizacional de la Municipalidad.
+Artículo 39.—Ámbito de Competencia: la Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales cometidos por los funcionarios municipales o personas u organizaciones privadas en relación con fondos públicos transferidos por la Municipalidad. Toda denuncia recibida será numerada consecutivamente.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

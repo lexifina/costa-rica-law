@@ -1,0 +1,2 @@
+Artículo 65.—Se debe entender que el último folio utilizado del libro, es el que tiene estampado el sello de cierre, por tanto, toda anotación que se llegare a realizar posterior a la razón de cierre de libro de la Auditoría Interna, será completamente nula. De igual manera, posterior al cierre del libro por parte de la Auditoría Interna, será totalmente prohibido efectuar cambios en el libro, ya sea en la encuadernación o foliación.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

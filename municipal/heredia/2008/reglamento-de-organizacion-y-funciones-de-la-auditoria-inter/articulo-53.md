@@ -1,0 +1,2 @@
+Artículo 53.—La apertura de los libros no supone una validación previa por parte de la Auditoría Interna de lo que la Administración Activa, proceda a registrar con posterioridad a la apertura. En los casos en que la apertura no sea por primera vez, no implica una revisión o validación respecto al contenido de los libros anteriores, o de las justificaciones dadas por la Administración en caso de robo, hurto, extravío o destrucción de libros.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

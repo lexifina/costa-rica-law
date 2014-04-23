@@ -1,0 +1,2 @@
+Artículo 42.—La denuncia verbal: Este tipo de denuncia será admitida excepcionalmente. El denunciante comparecerá personalmente a las oficinas de la Auditoría Interna, y expresará de modo oral la presunta situación irregular, cumpliendo además con los requisitos e información propias de la denuncia escrita. Si el denunciante no quisiere firmarla, se valorará en los mismos términos que la denuncia anónima.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

@@ -1,1 +1,3 @@
-Artículo 40.—Modificaciones al Reglamento. El Auditor Interno, podrá proponer las modificaciones que considere oportunas al presente reglamento.
+Artículo 40.—Confidencialidad: La identidad del denunciante será confidencial antes y después de emitido cualquier informe.
+La información, la documentación y otras evidencias de las investigaciones cuyos resultados puedan originar la apertura de un procedimiento administrativo, serán confidenciales durante la formulación del informe respectivo. Una vez notificado el informe y hasta la resolución final del procedimiento administrativo, la información contenida en el expediente será calificada como confidencial, excepto para las partes involucradas, las cuales tendrán libre acceso a todos los documentos y las pruebas que existan en el expediente.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

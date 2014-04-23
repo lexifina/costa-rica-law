@@ -1,0 +1,2 @@
+Artículo 61.—La Auditoría Interna usará para el proceso de cierre de libros, un sello, que contendrá al menos la siguiente información: Número de asiento, número de tomo que finaliza, el tipo de libro que se cierra, la dependencia que lo utilizó, la cantidad de folios que lo integran, la modalidad del libro, su estado de conservación y limpieza, la fecha de cierre y la firma responsable de la razón de cierre del libro.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

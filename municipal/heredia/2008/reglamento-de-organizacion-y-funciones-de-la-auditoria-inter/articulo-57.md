@@ -1,0 +1,2 @@
+Artículo 57.—La apertura de un segundo o subsecuente tomo, solo será posible si se ha dado el cierre del anterior. La razón de apertura contendrá en el folio inicial de cada uno de los libros que lo requieran, el número de asiento, número de tomo, el tipo de libro que se autoriza, la dependencia que lo utiliza, la cantidad de folios que lo integran, la modalidad del libro, su estado de conservación y limpieza, la fecha de apertura y la firma responsable de la autorización.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)

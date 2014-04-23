@@ -1,0 +1,2 @@
+Artículo 49.—Remisión y recepción del informe: El informe deberá ser remitido al Alcalde o al Concejo Municipal, según la dependencia del funcionario que se investigue, con las respectivas recomendaciones. De tratarse de funcionarios de elección popular se remitirá el Informe a la Contraloría General de la República o al Tribunal Supremo de Elecciones.
+(Así adicionado mediante publicación en La Gaceta N° 77 del 23 de abril del 2014)
