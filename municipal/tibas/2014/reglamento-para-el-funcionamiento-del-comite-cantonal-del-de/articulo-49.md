@@ -1,0 +1,1 @@
+Artículo 49.—La colocación de rótulos en las instalaciones deportivas debe estar autorizado por el Comité Cantonal, quien brindará su permiso previas gestiones efectuadas ante los Departamentos correspondientes de la Municipalidad.

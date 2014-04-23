@@ -1,0 +1,1 @@
+Artículo 91.—A los miembros del Comité Cantonal del Deporte y la Recreación, se les aplicarán las normas de responsabilidad establecidas en los artículos 190 siguientes y concordantes de la Ley General de la Administración Pública.
