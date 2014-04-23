@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+La propiedad donada será utilizada, exclusivamente, por la Fundación Canis-Costa Rica, cédula jurídica número tres-cero cero seis-cinco nueve seis siete uno dos (Nº 3-006-596712), para la construcción del Centro de Crianza y Adiestramiento de Perros Guía de Asistencia y Ayuda Social, con el objeto de beneficiar a la población con discapacidad de este país, sin fines de lucro. De comprobarse un uso distinto del indicado, el inmueble deberá ser devuelto a la entidad donante, el Instituto Mixto de Ayuda Social (IMAS).
