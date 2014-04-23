@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con lo dispuesto en el artículo 102 del Código de Normas y Procedimientos Tributarios y en la resolución DGT-25-01 de las ocho horas del veinte de agosto de dos mil uno, estas peticiones deben ser resueltas por Director de Grandes Contribuyentes Nacionales.

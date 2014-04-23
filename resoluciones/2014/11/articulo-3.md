@@ -1,0 +1,1 @@
+Artículo 3º—La Administración Tributaria autorizará o denegará mediante acto motivado, el sistema especial de cálculo de la renta líquida solicitado, en total apego a la normativa vigente y atinente a este tipo de trámite.
