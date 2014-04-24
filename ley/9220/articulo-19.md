@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Fideicomiso
+La Secretaría podrá celebrar todos los contratos y realizar todos los actos administrativos, civiles, industriales o comerciales que sean convenientes o necesarios para el mejor cumplimiento de sus fines, incluyendo la constitución de fideicomisos, cuya administración financiera y contable podrá ser contratada con las entidades financieras supervisadas por la Superintendencia General de Entidades Financieras (Sugef), sin perjuicio del control que le corresponda ejercer a la Contraloría General de la República.

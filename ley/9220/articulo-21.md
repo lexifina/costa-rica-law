@@ -1,0 +1,2 @@
+ARTÍCULO 21.- Declaratoria de interés público
+Se declara de interés público la Red Nacional de Cuido y Desarrollo Infantil (Redcudi), como una actividad de bienestar social que articula las competencias públicas y el esfuerzo privado en procura de la atención, la educación y el cuido de la población objetivo, así como la inserción y la estabilidad en el mercado laboral de las madres y los padres beneficiados.
