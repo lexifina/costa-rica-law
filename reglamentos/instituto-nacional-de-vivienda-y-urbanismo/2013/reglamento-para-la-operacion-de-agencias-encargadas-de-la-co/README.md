@@ -15,3 +15,4 @@ Reglamento para la operación de agencias encargadas de la colocación y venta d
 | --- | --- | --- |
 | 1 | 2014-04-03 | la propia norma |
 | 2 | 2014-04-03 | Reglamento 6038 (2014-03-27) |
+| 3 | 2014-04-24 | Reglamento 6042 (2014-04-24) |
