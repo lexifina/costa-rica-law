@@ -14,3 +14,4 @@ Reglamento para la Afiliación de los Asegurados Voluntarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-22 | la propia norma |
+| 2 | 2014-04-24 | Reglamento 8712 (2014-04-24) |
