@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Donaciones
+Se autoriza al Estado, las instituciones públicas, las empresas públicas constituidas como sociedades anónimas y a las personas públicas no estatales para que donen, a favor de la Redcudi o de los entes y órganos públicos integrantes, toda clase de servicios, recursos y bienes, sean estos muebles o inmuebles, así como en general para colaborar y coadyuvar mediante el ejercicio de sus competencias específicas en el cumplimiento de los objetivos de la Redcudi.

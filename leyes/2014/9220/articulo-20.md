@@ -1,0 +1,4 @@
+ARTÍCULO 20.- Acciones operativas
+La principal institución responsable de las acciones operativas de la Secretaría Técnica de la Redcudi será el ministerio que ejerza la rectoría del sector social o, en ausencia de este, el Instituto Mixto de Ayuda Social, el cual le brindará el contenido presupuestario, el espacio físico, el apoyo logístico, el equipo, los materiales y el personal necesarios para su adecuado funcionamiento.
+El Ministerio de Educación Pública podrá apoyar la operación de la red con acceso a infraestructura educativa, en horarios distintos de los utilizados para la prestación de los servicios propiamente educativos.
+Igualmente, se autoriza a las demás instituciones del Estado para que, dentro de su ámbito de competencia y de acuerdo con sus posibilidades, colaboren activamente y aporten recursos humanos, físicos y económicos a la Secretaría Técnica de la Redcudi.
