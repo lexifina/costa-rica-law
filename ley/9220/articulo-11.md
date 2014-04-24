@@ -1,0 +1,3 @@
+ARTÍCULO 11.- Estructura de la Secretaría
+La Secretaría Técnica de la Redcudi contará con una estructura organizacional y recurso humano que garantice el desarrollo efectivo de sus funciones. En la parte técnica, la persona titular del ministerio que ejerza la rectoría del sector social o, en su ausencia, el Instituto Mixto de Ayuda Social, nombrará al titular de la dirección ejecutiva de la Secretaría.
+Para ejercer el cargo de la dirección ejecutiva se requerirá poseer, como mínimo, el grado académico universitario de licenciatura o su equivalente, amplia experiencia en el sector social y los demás requisitos que se estipulen en el reglamento de esta ley.

@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Asignación de recursos
+Los recursos que se destinen a las municipalidades serán determinados según la priorización que realice la Secretaría Técnica de la Redcudi, lo cual comunicará oportunamente a la Dirección de Desarrollo Social y Asignaciones Familiares y esta, a su vez, a los gobiernos locales, para que cada corporación local pueda incluirlos en los respectivos presupuestos ordinarios o extraordinarios. Estos recursos, para los efectos de presupuestación y fiscalización de la Hacienda Pública, se considerarán ingresos propios de cada gobierno local.

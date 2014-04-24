@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Participación privada
+Forman parte de la Redcudi tanto las personas físicas y jurídicas que prestan directamente los servicios de cuido y desarrollo infantil, como las que participan en actividades relacionadas con estos, entre ellas el financiamiento y el apoyo técnico y administrativo a los establecimientos de cuido, la capacitación de personal, la investigación científica y la evaluación especializada.
