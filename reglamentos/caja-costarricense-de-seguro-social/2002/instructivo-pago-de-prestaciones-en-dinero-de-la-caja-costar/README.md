@@ -14,3 +14,4 @@ Instructivo Pago de Prestaciones en Dinero de la Caja Costarricense de Seguro So
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-21 | la propia norma |
+| 2 | 2014-04-24 | Reglamento 8712 (2014-04-24) |
