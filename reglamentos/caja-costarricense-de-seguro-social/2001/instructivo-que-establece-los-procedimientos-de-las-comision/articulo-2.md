@@ -1,1 +1,0 @@
-Artículo 2°—Objetivo. Otorgar un instructivo que facilite la gestión, los procedimientos y el control, a las Comisiones Médicas Evaluadoras de las incapacidades de los beneficiarios del Seguro de Salud.
