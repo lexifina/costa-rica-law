@@ -6,7 +6,8 @@ b) Toda agencia naviera y/o aduanal o su representante deberá acreditarse ante 
 2. Copia certificada de la cédula jurídica de la empresa.
 3. Copia certificada por un notario del acta o escritura pública constitutiva de la empresa, con indicación de quién es el agente residente y dirección.
 4. Certificación notarial del poder o poderes debidamente inscritos en el Registro Público, otorgado por la empresa a su representante para actuar por cuenta de la empresa ante JAPDEVA.
-5. Aportar certificación de estar al día con las obligaciones de la Caja.
+5. Aportar certificación de estar al día con las obligaciones de la Caja Costarricense de Seguro Social y las hojas de delincuencia de sus trabajadores que deben ingresar a las instalaciones de la institución.
+(Así reformado el inciso anterior en sesión N° 14 del 24 de abril de 2014)
 6. Declaración jurada de que no le asiste prohibición de contratar con la Administración.
 7. Póliza de seguros para los vehículos de empresa con autorización de ingreso a la zona portuaria y de sus trabajadores.
 8. Apertura de cuenta con la empresa.
