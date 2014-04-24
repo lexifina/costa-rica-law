@@ -1,0 +1,3 @@
+Artículo 3º—Incorpórese el artículo 23 al Decreto Ejecutivo 15222-MIEM-J, en sustitución del artículo 23 que fue anulado mediante la resolución número 2134-95 de las 15:00 horas del 02 de mayo de 1995 de la Sala Constitucional, para que en adelante se lea de la siguiente manera:
+Artículo 23.- Enlace con el Ministerio de Salud
+A fin de coadyuvar en el cumplimiento del artículo 16 inciso 4 de la Ley, el Registro podrá permitir el acceso por parte del Ministerio de Salud así como de otras autoridades competentes, a la información contenida en la base de datos de Patentes, por los medios manuales y tecnológicos que se consideren pertinentes; siempre y cuando se trate de información de solicitudes ya publicadas.
