@@ -1,7 +1,8 @@
 Artículo 5º—Requisitos para optar por un permiso: Para obtener un permiso conforme a este Reglamento, todo solicitante deberá cumplir los siguientes requisitos:
 1) Presentar una solicitud ante la Unidad de Cruceros por escrito con copia, indicando el tipo de permiso solicitado y describiendo las condiciones en que se ofrecerá el servicio.
 2) Certificación de personería jurídica actualizada de su representante legal cuando corresponda.
-3) Adjuntar copia de la cédula de identidad de la persona física o cédula jurídica, según sea el caso.
+3) Adjuntar copia de la cédula de identidad de la persona física o cédula jurídica, según sea el caso. Así como la hoja de delincuencia de quien o quienes participarán en la actividad para la cual se está solicitando el permiso.
+(Así reformado el inciso anterior en sesión N° 14 del 24 de abril de 2014)
 4) Acreditar que contará, durante su desempeño, con todas las condiciones requeridas para ofrecer un servicio de calidad, como es el caso de la venta de servicios de souvenirs y otros, entre estos: contar con basureros con bolsas plásticas disponibles para el público y los empaques adecuados para la mercadería vendida, si esta lo requiere o a solicitud del turista; y según lo solicitado por la Unidad de Cruceros de JAPDEVA.
 5) Garantizar que contará para la venta de sus servicios con un stand, con las siguientes características: medidas de 1,50 x 1,22 m, debidamente pintados en azul, lona azul, altura de 2,20 metros, en el caso de usar delantal el mismo debe ser azul, en el caso de los artesanos.
 6) Todos los vehículos deben portar en la parte delantera, la placa de permiso temporal de autorización de ingreso al área portuaria entregada por JAPDEVA, a través de la Superintendencia de la Terminal Portuaria de Limón-Moín.

@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Permisos de Uso de las Instalaciones Portuari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-26 | la propia norma |
+| 2 | 2014-04-24 | Reglamento 14 (2014-04-24) |
