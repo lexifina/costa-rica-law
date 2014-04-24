@@ -15,3 +15,4 @@ Reglamanento General para el Otorgamiento de Permisos y Regulación de la Operac
 | --- | --- | --- |
 | 1 | 2009-01-06 | la propia norma |
 | 2 | 2011-02-10 | Reglamento 6 (2011-02-10) |
+| 3 | 2014-04-24 | Reglamento 14 (2014-04-24) |
