@@ -1,1 +1,0 @@
-Artículo 13.—Las comisiones sesionarán ordinariamente al menos una vez por semana, dependiendo de los asuntos por conocer o de su urgencia, en cuyo caso podrán hacerlo de semana por medio, lo cual constará en actas.

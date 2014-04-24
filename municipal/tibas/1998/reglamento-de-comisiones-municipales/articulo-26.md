@@ -1,1 +1,0 @@
-Artículo 26. —Cuando no existiere unanimidad sobre el asunto los miembros de la Comisión que no lo aprueben pudran rendir en el mismo acto dictamen por separado, debiendo siempre expresar por escrito las razones de su inconformidad.

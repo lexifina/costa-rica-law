@@ -1,1 +1,0 @@
-Artículo 24.—Las comisiones deberán rendir sus dictámenes en un plazo no mayor de ocho días a partir de la techa en que se voto el acuerdo respectivo sobre el asunto sometido a su conocimiento. Sólo en casos muy complejos se podrá prorrogar ese plazo por otro similar

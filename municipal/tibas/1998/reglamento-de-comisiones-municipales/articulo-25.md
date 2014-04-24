@@ -1,1 +1,0 @@
-Artículo 25.—Los acuerdos de las Comisiones deberán dictaminarse por escritos firmados por los miembros de la Comisión presentes en el momento en que se tomó el acuerdo, podrán firmarlo los que no estuvieron presentes si comparten el criterio.

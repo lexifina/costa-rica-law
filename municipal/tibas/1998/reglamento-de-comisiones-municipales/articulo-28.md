@@ -1,1 +1,0 @@
-Artículo 28.—-Los funcionarios y empleados municipales deberán asistir obligatoriamente cuando sean llamados por una comisión, y los particulares podrán participar en las sesiones de las Comisiones, cuando éstas así lo estimen conveniente, en cuyo caso su participación se limitará a la de asesores.

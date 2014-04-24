@@ -1,1 +1,0 @@
-Articulo 17.—Los miembros de las comisiones deberán emitir su voto favorable o contrario a cada asunto que se someta a velación. Cuando haya empale en la votación, ésta se repetirá una vez luego de abrirse un nuevo período de deliberación no mayor de media hora. Si persiste el empale quien preside decidirá con voló calificado.
