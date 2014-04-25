@@ -1,0 +1,1 @@
+Artículo 4º—Queda prohibido establecer limitaciones al uso de las instalaciones físicas de los centros educativos, al sistema de educación de personas jóvenes y adultas, que no estén contempladas en la ley, reglamentos, ni demás normativa atinente a la materia.

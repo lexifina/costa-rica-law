@@ -1,0 +1,1 @@
+Artículo 2º—El uso de las instalaciones de una institución que tiene a cargo una oferta educativa de jóvenes y adultos, deberá realizarse con la coordinación del caso, la cual deberá ser clara y expresa, entre las autoridades de las instituciones involucradas.

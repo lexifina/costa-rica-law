@@ -1,0 +1,1 @@
+Artículo 5º—En lo que respecta al uso compartido de laboratorios y computadoras, deberá regirse por lo estipulado en el artículo 3 inciso a) del Reglamento para el uso y administración de los Laboratorios de Informática Educativa y Computadoras en el aula de los Centros Educativos que imparten I y II Ciclos de la Educación General Básica.
