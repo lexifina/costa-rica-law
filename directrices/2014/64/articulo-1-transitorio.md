@@ -1,0 +1,2 @@
+Transitorio Único: En caso de que existan contratos vigentes en las entidades públicas de productos que se encuentren en contrato marco, se dará continuidad a los mismos hasta su vencimiento, momento en el cual deberán proceder a utilizar los Convenios Marco, bajo los términos del artículo 115 del Reglamento a la Ley de Contratación Administrativa.
+Dada en la Presidencia de la República.—San José, a las 11 horas de 18 de febrero del dos mil catorce.

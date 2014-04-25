@@ -1,0 +1,1 @@
+Artículo 2º—Los Entes y Órganos antes indicados deberán coordinar con la Dirección General de Administración de Bienes y Contratación Administrativa la elaboración de un cronograma para el uso de los convenios marco, en un plazo máximo de dos meses posteriores a la emisión de la presente disposición.
