@@ -1,0 +1,27 @@
+N° 38320-MINAE
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+En ejercicio de las facultades que les confieren los artículos 11, 140 incisos 3) y 18) y 146 de la Constitución Política, el numeral 27 de la Ley General de la Administración Pública N° 6227 del 2 mayo de 1978, los artículos 1, 3 inciso f) y m), 5, 6 inciso k), 19 inciso b) y c), 33 inciso c) y 34 de la Ley Forestal Nº 7575 del 13 de febrero de 1996 y 2 inciso m) del Decreto Ejecutivo Nº 25721-MINAE del 17 de octubre de 1996.
+Considerando:
+I.—Que funcionarios del Área de Conservación Cordillera Volcánica Central del Sistema Nacional de Áreas de Conservación del Ministerio de Ambiente y Energía, realizaron el “Estudio Fitosanitario y de Seguridad Forestal del Área de Protección del Lago del Parque Metropolitano La Sabana”, determinándose que existen gran cantidad de árboles enfermos y peligrosos que comprometen la vida de los usuarios y la infraestructura existente en el área de protección del Lago del Parque Metropolitano La Sabana, en el mismo documento se recomienda la corta y eliminación de esos árboles enfermos y peligrosos.
+II.—Que los artículos 19, incisos b) y c) y 34 de la Ley Forestal 7575 prohíben el cambio de uso del suelo y la corta de árboles en terrenos cubiertos de bosque y en áreas de protección, exceptuando aquellos proyectos estatales o privados que el Poder Ejecutivo declare de Conveniencia Nacional.
+III.—Que el artículo 33 de la Ley Forestal 7575, declara como áreas de protección: ¨Una zona de cincuenta metros medida horizontalmente en las riberas de los lagos y embalses naturales y en los lagos o embalses artificiales construidos por el Estado y sus instituciones. Se exceptúan los lagos y embalses artificiales privados.¨
+IV.—Que el artículo 3 inciso m) de la Ley Forestal N° 7575, declara como actividad de conveniencia nacional las realizadas por las dependencias centralizadas del Estado, instituciones autónomas o empresa privada, cuyos beneficios sociales sean mayores a los costos socio-ambientales.
+V.—Que para el cumplimiento de lo establecido en el inciso k) del artículo 6 de la Ley Forestal 7575, se realizó un ESTUDIO FITOSANITARIO Y DE SEGURIDAD FORESTAL DEL ÁREA DE PROTECCIÓN DEL LAGO DEL PARQUE METROPOLITANO LA SABANA, en donde se demuestra que la mayoría de los árboles ubicados en el área de protección pertenecen al género Eucalyptus, mayoritariamente de las especies saligna y camaldulensis, cuyos árboles fueron plantados en el Parque La Sabana, hace ya más de 35 años, sin haber recibido un adecuado manejo silvicultural, siendo una de la razones por la que están muy afectados por enfermedades de tipo biótico; así como por factores abióticos, tales como la condición de drenaje y excesiva humedad en el suelo, entre otros daños, según lo señala el estudio fitosanitario y de seguridad, antes citado.
+VI.—Que de los 923 árboles estudiados en el área de protección, se identifican 672 que requieren sustitución, dadas sus condiciones fitosanitarias o el riesgo que representan para los usuarios del Parque.
+VII.—Que entre otros problemas de carácter biótico citado, fundamentalmente el estudio destaca una enfermedad producida por el hongo Chrysoporthe cubensis, la cual lesiona los tejidos de la corteza, cambium y albura del fuste, formando tumores que debilitan los tejidos del fuste, dejándolos susceptibles o propensos a la fractura por viento, lo que es de mucho peligro para visitantes e infraestructura del Parque, ya que los árboles en su mayoría sobrepasan los 20 metros de altura.
+VIII.—Que existe un proyecto denominado ¨Rearborización del Parque Metropolitano la Sabana¨, que tiene como objetivo principal, recuperar y mantener la seguridad de los usuarios, y la funcionalidad ecológica de los recursos forestales y otras especies menores, del Parque Metropolitano La Sabana, sin que se reduzca la función social, deportiva y recreativa que el Parque aporta a sus visitantes.
+IX.—Que el proyecto mencionado, cuenta con una Comisión Técnica multidisciplinaria e interinstitucional, liderada por el Instituto Costarricense del Deporte y la Recreación (ICODER) y el Instituto Nacional de Biodiversidad (INBio) y cuenta con alianzas estratégicas, para su desarrollo.
+X.—Que el Proyecto de Recuperación del Parque Metropolitano La Sabana, fue creado mediante Decreto Ejecutivo N° 36416-MP-MD, mismo que fue declarado de Interés Público, al ser publicado en La Gaceta N° 76 del martes 19 de abril del 2011.
+XI.—Que los beneficios sociales son mayores que los costos socio-ambientales, representado lo anterior en la eliminación y sustitución de los árboles enfermos y peligrosos que ante su potencial caída pudieran comprometer la integridad y la vida de usuarios del Parque, así como de la infraestructura existente dentro del área de protección del lago de La Sabana. Por tanto:
+Decretan:
+“DECLARATORIA DE CONVENIENCIA NACIONAL DE LAS
+ACTIVIDADES DE SANEAMIENTO, REARBORIZACIÓN,
+MANTENIMIENTO, MONITOREO Y EVALUACIÓN QUE
+SE REALICEN AL AMPARO DEL PROYECTO DE
+INTERÉS PÚBLICO RECUPERACIÓN DEL
+PARQUE METROPOLITANO LA SABANA,
+DECRETO EJECUTIVO Nº 36416-MP-MD
+PUBLICADO EN LA GACETA N° 76
+DEL 19 DE ABRIL DEL 2011”
+Artículo 1°—Se declaran de conveniencia nacional las actividades de saneamiento, rearborización, mantenimiento, monitoreo y evaluación que se realicen al amparo del Proyecto de Interés Público denominado “Recuperación del Parque Metropolitano La Sabana”, Decreto Ejecutivo Nº 36416-MP-MD publicado en La Gaceta N° 76 del 19 de abril del 2011.

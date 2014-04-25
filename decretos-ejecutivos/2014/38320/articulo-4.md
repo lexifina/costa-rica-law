@@ -1,0 +1,1 @@
+Artículo 4°—En las actividades de rearborización que se realicen, deberá darse con especies nativas afines a las condiciones de suelo y clima del área de protección, según lo planteado en el documento técnico que sustenta el proceso de Rearborización del Parque Metropolitano La Sabana 2008-2017, de fecha marzo 2011.

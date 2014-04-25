@@ -1,0 +1,1 @@
+Artículo 3°—El ICODER y la Comisión Interinstitucional de Rearborización de La Sabana, se encargarán de realizar las actividades recomendadas en el Estudio Fitosanitario y de Seguridad Forestal del Área de Protección del Lago del Parque Metropolitano La Sabana.
