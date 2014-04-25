@@ -1,0 +1,3 @@
+Artículo 3°—Todo nuevo desarrollo, funcionalidad o implementación de sistemas de información de las instituciones del sector público costarricense, en los cuales se ofrezcan servicios de cara al ciudadano o de utilización interna, deberá incorporar:
+a. Mecanismos de autenticación mediante firma digital certificada. Cuando un ciudadano se autentique utilizando firma digital certificada, se reconocerá la autenticidad plena y el valor de su relación con la institución por el canal electrónico.
+b. Mecanismos de firma de documentos y transacciones electrónicas mediante firma digital certificada cuando el trámite así lo requiera, tanto para uso de los funcionarios como para los ciudadanos involucrados en el proceso.
