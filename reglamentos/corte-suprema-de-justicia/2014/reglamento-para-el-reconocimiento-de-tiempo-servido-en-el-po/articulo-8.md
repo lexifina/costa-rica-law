@@ -1,0 +1,1 @@
+Artículo 8º—Prohibición de doble cómputo. En caso de que una persona haya trabajado simultáneamente en diferentes entes del Estado y sus instituciones el tiempo servido no se podrá computar doble, es decir, solamente se computará el tiempo servido en uno de ellos.
