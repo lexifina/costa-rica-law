@@ -1,1 +1,1 @@
-Artículo 19.—Revocatoria del permiso de uso temporal de canal. Tal y como lo dispone el artículo 154 de la Ley General de la Administración Pública, el Poder Ejecutivo podrá revocar el permiso de uso temporal de canal por razones de oportunidad o conveniencia sin responsabilidad de la Administración. Dicha revocación no deberá ser, en ningún caso, intempestiva ni arbitraria.
+Artículo 19.— (Derogado por el artículo 4° del decreto ejecutivo N° 38387 del 25 de abril del 2014)

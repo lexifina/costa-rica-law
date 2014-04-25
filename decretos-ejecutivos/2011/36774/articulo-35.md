@@ -1,9 +1,9 @@
 SECCIÓN VII
 Monitoreo del proceso de transición
-Artículo 35.—Remisión de información al Poder Ejecutivo durante la etapa de transición. Los titulares de concesiones vigentes que cuenten con permiso temporal de uso de canal de acuerdo a este Reglamento, según corresponda, a más tardar en el mes de enero de cada año, durante el período de transición hasta el mes de enero del año 2017, deberán presentar ante el Poder Ejecutivo, específicamente, en el Viceministerio de Telecomunicaciones, la siguiente información:
-1) Fecha de inicio de la transición analógico-digital, según las modalidades previstas en el artículo 11 del presente reglamento.
+Artículo 35.—Remisión de información durante la etapa de transición. Los titulares de concesiones vigentes que cuenten con permiso de uso experimental de acuerdo con este Reglamento, deberán presentar ante el MICITT y la SUTEL, con la periodicidad establecida en su título habilitante, la siguiente información durante el período de transición hasta la fecha del apagón analógico establecida en el artículo 8 del presente Reglamento:
+1) Fecha efectiva de inicio de la transmisión digital. Lo anterior asociado con lo dispuesto en el permiso para uso experimental.
 2) Avances en el proceso de implementación de la televisión digital terrestre.
-3) Inversiones ejecutadas al año previo y proyectadas para el año en curso.
-4) Porcentaje de programación transmitida en formato digital en alta definición, respecto del total de la programación durante el año previo; así como proyecciones para el año en curso, cuando corresponda.
-5) Cualquier otra información que permita a la Rectoría monitorear el proceso de implementación de la televisión digital terrestre, la cual será solicitada a los concesionarios con al menos un mes de anticipación por la Rectoría.
-Si de la información remitida al Poder Ejecutivo se determina que existe contraposición de intereses entre el fin del bien demanial en uso y el permiso otorgado, el Viceministerio de Telecomunicaciones podrá recomendarle al primero la revocación del permiso otorgado según lo dispuesto en el artículo 154 de la LGAP.
+3) Reporte de las transmisiones realizadas en formato digital (en alta definición y/o definición estándar), así como la proyección de trasmisiones a realizarse para el siguiente periodo.
+4) Cualquier otra información que sea solicitada por MICITT y SUTEL a los concesionarios con la finalidad de monitorear el proceso de implementación de la televisión digital terrestre.
+Si de la información remitida se determina que existe contraposición de intereses entre el fin del bien demanial en uso y el permiso para uso experimental otorgado, o bien la utilización del recurso asignado en forma distinta a lo indicado en el citado permiso, la SUTEL y el MICITT, podrán recomendar al Poder Ejecutivo la revocación del permiso según lo dispuesto en el artículo 22 de la Ley N° 8642, Ley General de Telecomunicaciones, publicada en el Diario Oficial La Gaceta N° 125 de 30 de junio del 2008.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38387 del 25 de abril del 2014)

@@ -1,1 +1,1 @@
-Artículo 34.—Procedimiento en caso de “no” apersonamiento de concesionarios a solicitar reasignación. Una vez verificada la fecha dispuesta en el artículo 8º de este Reglamento como apagón analógico, y de ser que haya concesionarios que no se apersonaren a realizar el procedimiento de reasignación que le corresponda, el Poder Ejecutivo aplicará el procedimiento dispuesto en el inciso 2), subinciso c) del artículo 22 de la LGT y en su Reglamento.
+Artículo 34.— (Derogado por el artículo 4° del decreto ejecutivo N° 38387 del 25 de abril del 2014)

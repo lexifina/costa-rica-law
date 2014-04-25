@@ -1,15 +1,11 @@
-Artículo 18.—Contenido del acuerdo ejecutivo de otorgamiento del permiso de uso temporal. El acuerdo ejecutivo que disponga el otorgamiento del permiso de uso temporal de canal deberá establecer las condiciones jurídicas y técnicas que regirán a los concesionarios durante el periodo de transición con sustento en lo dispuesto en la legislación vigente y el presente Reglamento.
-En particular, el acuerdo ejecutivo en mención deberá contemplar, como mínimo, las siguientes condiciones para la explotación de la frecuencia:
+Artículo 18.—Contenido del acuerdo ejecutivo de otorgamiento del permiso de uso experimental. El acuerdo ejecutivo que disponga el otorgamiento del permiso de uso experimental deberá establecer, al menos, las condiciones jurídicas y técnicas que regirán a los concesionarios durante el periodo de transición con sustento en lo dispuesto en la legislación vigente y el presente Reglamento.
+En particular, el acuerdo ejecutivo en mención deberá contemplar, como mínimo, las siguientes condiciones para el uso experimental de segmentos de frecuencias:
 a) Número de canal.
-b) Rango de frecuencia.
+b) Segmento de frecuencias.
 c) Ubicación de transmisor principal, con mención expresa de la provincia, cantón, distrito y demás señas, así como de las coordenadas (WGS84 en decimal) de ubicación.
-d) Intensidad de campo mínima utilizable en zonas de media y alta densidad poblacional.
-e) Intensidad de campo mínima utilizable en zonas de baja densidad poblacional.
-f) Área aproximada de cobertura.
-g) Zona de cobertura.
-h) Clase de servicio que prestará (Definición Estándar, Alta Definición).
-i) Clasificación (comercial, cultural).
-j) Potencia máxima de transmisión (Watts).
-El acuerdo ejecutivo habrá de indicar la fecha de inicio de la transmisión, de acuerdo a lo solicitado por el concesionario, fecha que tendrá como límite máximo el año anterior a la verificación del apagón analógico dispuesto en el artículo 8º de este Reglamento. Además, que, en todo caso, el inicio de las transmisiones deberá ser comunicada por el concesionario al Poder Ejecutivo, mediante el Viceministerio de Telecomunicaciones, con un mes de antelación, debiendo especificar en dicho comunicado el cumplimiento de los parámetros técnicos señalados en el respectivo acuerdo ejecutivo que otorgó el permiso de uso temporal.
-El acuerdo ejecutivo indicará también que, de conformidad con el artículo 10 de la LGT y el Transitorio II de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, corresponde a SUTEL la comprobación técnica de las emisiones radioeléctricas, así como la inspección, detección, identificación y eliminación de las interferencias perjudiciales, por lo que dicho órgano velará por la verificación de la configuración de equipos y niveles de cobertura. Asimismo, indicará que se tiene por presentada formalmente, bajo condición suspensiva, ante el Poder Ejecutivo la renuncia a las frecuencias en los términos establecidos en el artículo 15 del presente Reglamento.
-Dicho acuerdo será notificado a SUTEL para que sea incorporado al expediente respectivo del o los concesionarios en el Registro Nacional de Telecomunicaciones.
+d) Condiciones de ocupación de portadora.
+e) Clasificación según su naturaleza y servicio prestado.
+f) Condiciones técnicas dispuestas en el dictamen técnico emitido por la SUTEL respecto al sistema de transmisión.
+El acuerdo ejecutivo indicará la fecha de inicio de la transmisión así como el plazo de vigencia del mismo en los términos del artículo 14 del presente Reglamento. Señalará además, el deber del concesionario de confirmar al MICITT y a la SUTEL, con un mes de antelación la fecha de inicio de la transmisión.
+El acuerdo ejecutivo indicará también que, de conformidad con el artículo 10 de la Ley N° 8642, Ley General de Telecomunicaciones, publicada en La Gaceta N° 125 de 30 de junio del 2008 y el Transitorio II de la Ley N° 8660, Ley Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, publicada en el Alcance N° 31 al Diario Oficial La Gaceta N° 156 de 13 de agosto del 2008, corresponde a SUTEL la comprobación técnica de las emisiones radioeléctricas, así como la inspección, detección, identificación y eliminación de las interferencias perjudiciales, por lo que dicho órgano velará por la verificación de la configuración de equipos y niveles de cobertura. Dicho acuerdo será notificado a SUTEL para que sea incorporado al expediente respectivo del o los concesionarios en el Registro Nacional de Telecomunicaciones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38387 del 25 de abril del 2014)

@@ -1,0 +1,2 @@
+Artículo 43.—Adecuación de concesiones. En un plazo no mayor a un año previo a la fecha definida para el apagón analógico, el Poder Ejecutivo emitirá la normativa correspondiente que permita adecuar las concesiones existentes para el período posterior al referido apagón, considerando para ello las condiciones existentes en los títulos habilitantes ya otorgados.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 38387 del 25 de abril del 2014)

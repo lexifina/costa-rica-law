@@ -1,1 +1,1 @@
-Artículo 33.—Plazo de vigencia del título habilitante reasignado. Los títulos reasignados a los concesionarios de radiodifusión televisiva según los artículos 30 y 31 del presente Reglamento tendrán por vigencia el plazo restante de las concesiones originalmente otorgadas.
+Artículo 33.— (Derogado por el artículo 4° del decreto ejecutivo N° 38387 del 25 de abril del 2014)

@@ -1,0 +1,2 @@
+Artículo 42.—Asignación de canales. Para el otorgamiento de los permisos experimentales descritos en el presente Reglamento, durante el periodo de transición, se podrán asignar los canales disponibles adyacentes a los canales analógicos actualmente concesionados, en el segmento UHF comprendido entre los Canales 14 al 51.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 38387 del 25 de abril del 2014)

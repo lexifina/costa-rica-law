@@ -1,1 +1,1 @@
-Artículo 27.—Plazo de vigencia del título habilitante reasignado. Los títulos reasignados a los concesionarios de radiodifusión televisiva según los artículos 23 y 24 del presente Reglamento tendrán por vigencia el plazo restante de las concesiones originalmente otorgadas y continuarán rigiéndose por la Ley de Radio, Nº 1758, de conformidad con lo dispuesto por el artículo 29 de la LGT.
+Artículo 27.— (Derogado por el artículo 4° del decreto ejecutivo N° 38387 del 25 de abril del 2014)

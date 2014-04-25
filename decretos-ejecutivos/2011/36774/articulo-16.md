@@ -1,1 +1,1 @@
-Artículo 16.—Sede y plazo para la presentación de la solicitud. La solicitud de permiso de uso temporal de canal se deberá presentar ante el Poder Ejecutivo, específicamente en las oficinas del Viceministerio de Telecomunicaciones, dentro del plazo de treinta días hábiles contados a partir de la entrada en vigencia del presente Reglamento, sea, a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 16.— (Derogado por el artículo 4°del decreto ejecutivo N° 38387 del 25 de abril del 2014)

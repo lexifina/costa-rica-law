@@ -1,0 +1,2 @@
+Artículo 41.—Presentación de documentos. La solicitud de permiso de uso experimental deberá ser presentada ante el Poder Ejecutivo, específicamente en las oficinas del Viceministerio de Telecomunicaciones, dentro del plazo ordenatorio de treinta días hábiles contados a partir de la emisión de la resolución fundada con los requisitos técnicos señalados en el artículo 41 del presente Reglamento.
+(Así adicionado por el artículo 2 ° del decreto ejecutivo N° 38387 del 25 de abril del 2014)
