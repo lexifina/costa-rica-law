@@ -1,0 +1,5 @@
+ARTÍCULO 67.- Grupos subordinados
+Las investigaciones en las que participen seres humanos, que se realicen sobre personas o grupos que se encuentren bajo autoridad de los investigadores o la de un tercero, o en determinadas situaciones de dependencia que puedan vulnerar o afectar su autonomía, y que no supongan un beneficio directo para los participantes en la investigación, exigen una especial atención para la aplicación de la presente ley. Deben considerarse grupos subordinados en razón de autoridad, entre otros, estudiantes, residentes y/o concurrentes de medicina u otras ciencias de la salud, personas privadas de su libertad y funcionarios de las policías y de seguridad. Estas investigaciones solo podrán realizarse cuando se cumplan las siguientes condiciones:
+a) La investigación se realiza con el propósito de lograr un beneficio para el grupo subordinado bajo estudio.
+b) La investigación no puede ser realizada en grupos de población no subordinada.
+c) La investigación supone un riesgo o carga mínimos para las personas incluidas en el estudio.

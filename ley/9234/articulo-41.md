@@ -1,0 +1,2 @@
+ARTÍCULO 41.- Acuerdo de confidencialidad y declaración de conflicto de interés
+Los miembros del Conis y todo el personal deberán firmar, antes de iniciar labores, un acuerdo de confidencialidad, efectuar una declaración de actividades y de conflicto de interés, y deberán abstenerse de tomar parte en las deliberaciones y en las votaciones en que tengan un interés directo, indirecto o familiar en el asunto examinado; para ello, deberán revelar cualquier conflicto de interés que pueda afectar su objetividad.

@@ -1,0 +1,6 @@
+ARTÍCULO 66.- Comunidades autóctonas emigrantes y en colectivos particularmente vulnerables
+La investigación clínica en grupos vulnerables solo podrá realizarse en la medida en que se acrediten las siguientes circunstancias:
+a) Que la investigación se realiza con el objetivo de tratar y beneficiar a la comunidad en alguna dolencia propia y característica de esta o en otra de alta prevalencia.
+b) Que el investigador y el patrocinador se comprometen, de forma fehaciente, a respetar el sistema de valores, cosmovisión y cultura de la comunidad que participará en el estudio, y a adaptar el diseño y los procedimientos del estudio a las costumbres de cada comunidad originaria.
+c) Que el consentimiento de cada participante perteneciente a una comunidad originaria sea precedido de información suministrada en la lengua originaria propia de su cultura, en caso de que no comprenda el español y que, en cualquiera de estos casos, el investigador garantice la comprensión de la información y la libertad de la decisión tomada por él o la participante.
+d) Que la investigación cuente con la aprobación de un CEC que sesionó con la presencia de un representante de la comunidad, elegido por la misma comunidad, y con la autorización del Conis.

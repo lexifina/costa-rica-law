@@ -1,0 +1,4 @@
+ARTÍCULO 71.- Medidas cautelares
+Durante la tramitación de procedimientos administrativos o investigaciones en sede judicial que cuestionen la legalidad de la actividad del investigador, del patrocinador o del CEC, de la OIC o de la OAC y para efectos de resguardar la salud y la seguridad de los participantes en una investigación, el órgano competente podrá imponer las medidas cautelares necesarias.
+Se podrán suspender temporal o definitivamente, parcial o totalmente las investigaciones, el investigador o la aprobación de proyectos de investigación en caso de que la autoridad administrativa o en sede judicial se considere necesario.
+El órgano competente, mediante resolución fundada y previa audiencia a los interesados, debe resolver si confirma, modifica o revoca la medida adoptada. Para ello, deberá aplicar el procedimiento que establece el Código Procesal Contencioso-Administrativo.
