@@ -1,0 +1,1 @@
+3. Informar que este ajuste debe ser considerado para que los beneficiarios de los regímenes de zonas francas, perfeccionamiento activo y los desarrolladores informáticos externos, preparen los ajustes correspondientes a los programas que utilizan para la transmisión al TICA del mensaje de Solicitud de Autorización de Operaciones de Inventario.
