@@ -1,0 +1,16 @@
+ARTÍCULO 2.- Se reforman los artículos 3, 4, 5, 7, 8, 9 y 10 de la Ley N.º 8173, Ley General de Concejos Municipales de Distrito, de 7 de diciembre de 2001. Los textos dirán:
+“Artículo 3.- A los concejos municipales de distrito se les aplicará la normativa concerniente a las competencias y potestades municipales, así como el régimen jurídico general de las corporaciones locales y del alcalde y los regidores.
+Los concejos podrán acogerse a los reglamentos de la municipalidad, o bien, dictar sus propios reglamentos, en las mismas materias en que las municipalidades puedan normar. Esta regla rige para manuales y otras disposiciones generales locales. Al efecto, los concejos dictarán y publicarán en La Gaceta los acuerdos correspondientes.
+Artículo 4.- Los concejos municipales de distrito podrán convenir con las municipalidades creadoras toda clase de alianzas de interés común.
+Todos los convenios de cooperación que celebren las municipalidades y sus concejos municipales de distrito serán informados a la Contraloría General de la República, al igual que los previstos en el párrafo tercero del artículo 1 y el párrafo segundo del artículo 9.
+Artículo 5.- En los distritos administrados por concejos municipales de distrito habrá comités distritales de deportes y recreación, salvo que se disponga por el concejo asumir directamente la función.”
+“Artículo 7.- El órgano ejecutivo de los concejos municipales de distrito será la Intendencia, cuyo titular también será elegido popularmente, en la misma fecha, por igual período, bajo las mismas condiciones y con iguales deberes y atribuciones que el alcalde municipal.
+El intendente devengará un salario cuyo monto no podrá ser superior al contemplado para los alcaldes en el Código Municipal.
+Artículo 8.- El concejo municipal de distrito y el intendente distrital deberán rendir a la municipalidad del cantón los informes y las copias de los documentos que les soliciten.
+Los concejos municipales de distrito tendrán su propio auditor interno, a tiempo completo o parcial, según sus posibilidades y necesidades.
+Artículo 9.- Las tasas y los precios de los servicios distritales serán percibidos directamente por los concejos municipales de distrito, así como las contribuciones especiales originadas en actividades u obras del mismo concejo.
+El concejo también percibirá directamente los productos por multas, patentes o cualquier otro impuesto originado en el distrito. Por convenio entre partes podrá disponerse una participación de la municipalidad.
+En las participaciones por ley de las municipalidades en el producto de impuestos nacionales se entenderá que los concejos participan directa y proporcionalmente, según los parámetros de reparto de la misma ley o su reglamento.
+Artículo 10.- Para someterse a la aprobación presupuestaria de la Contraloría General de la República, las municipalidades deberán ajustar la estructura programática de sus presupuestos para que se incluyan las asignaciones correspondientes a los recursos con los que contarán los concejos municipales de distrito.”
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinte días del mes de febrero del año dos mil catorce.
