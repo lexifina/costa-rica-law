@@ -1,0 +1,3 @@
+ARTÍCULO 69.- Investigaciones clínicas con personas privadas de libertad
+A las personas privadas de libertad no se les debe negar injustificadamente la posibilidad de participar en investigaciones clínicas o de tener acceso a medicamentos, vacunas y otros elementos de investigación que puedan representar beneficio terapéutico o preventivo para ellos.
+Se deberá prestar atención especial a garantizar la voluntariedad del consentimiento en esta población, aplicando una metodología científica adecuadamente probada que garantice razonablemente que el consentimiento del privado o la privada de libertad es incuestionablemente voluntario.

@@ -1,0 +1,6 @@
+ARTÍCULO 73.- Infracciones del CEC
+El Conis podrá imponer a los empleados, representantes o personeros de un CEC, una multa hasta de trescientas veces el salario base, de acuerdo con la Ley N.° 7337, de 5 de mayo de 1993, y sus reformas, ley que crea el concepto de salario base para delitos especiales del Código Penal, en caso de que cualquiera de ellos incurra en alguna de las siguientes infracciones:
+a) Incumpla o retrase injustificadamente, el cumplimiento de las obligaciones que esta ley le otorga, así como de cualquier otra obligación prevista en esta ley, en la Ley N.º 5395, Ley General de Salud, de 30 de octubre de 1973, en el código de moral o ética de los colegios profesionales a los que pertenezcan los investigadores, o en las disposiciones reglamentarias de los citados cuerpos legales, o cualquier otra norma legal aplicable.
+b) No resuelva o canalice, oportunamente, las denuncias que presenten las personas que participan en las investigaciones, por daños sufridos.
+c) Cualquier otro incumplimiento de las obligaciones que les correspondan según la ley.
+Para determinar la sanción aplicable, se tomará en cuenta la gravedad de la falta, el grado de culpa o la existencia de dolo por parte de los empleados, representantes o personeros del CEC y su reincidencia.

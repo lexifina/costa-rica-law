@@ -1,0 +1,2 @@
+ARTÍCULO 32.- Información a las personas que participan en investigaciones biomédicas
+En el consentimiento informado que se le brinde al posible participante se le debe entregar comprobante o copia de la póliza, en la que se indique el número, la entidad que la emite, el plazo de protección, las condiciones que tendrá la póliza y el procedimiento para acceder a esta por parte de las personas participantes.

@@ -1,0 +1,4 @@
+ARTÍCULO 37.- Dietas
+Los miembros del Conis serán remunerados mediante dietas por sesión, cuyo monto equivaldrá al ochenta por ciento (80%) de las dietas que se pagan a los miembros de la Junta Directiva de la Caja Costarricense de Seguro Social por cada sesión. El número de sesiones remuneradas mensualmente no podrá exceder de diez sesiones por mes, entre sesiones ordinarias y extraordinarias.
+El Conis sesionará ordinariamente una vez por semana y, extraordinariamente, cuando sea necesario, por convocatoria efectuada por su presidente o por no menos de dos de sus miembros.
+Ningún miembro del Conis podrá percibir directa o indirectamente remuneración o reconocimiento material alguno por parte de los patrocinadores, investigadores, las organizaciones de administración por contrato o de las organizaciones de investigación por contrato. Los miembros del Conis que incurran en esta falta serán cesados de sus cargos.

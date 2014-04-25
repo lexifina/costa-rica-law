@@ -1,0 +1,2 @@
+ARTÍCULO 79.- Experimentación indebida grave
+La pena de prisión será de cinco a diez años, cuando las conductas descritas en el artículo anterior sean realizadas por funcionarios públicos o se trate de investigadores reincidentes en la conducta sancionada o cuando se cometan en perjuicio de menores de edad, mujeres en estado de gestación, ancianos y personas incapaces o que por cualquier circunstancia no puedan manifestar su oposición a la práctica de la investigación.
