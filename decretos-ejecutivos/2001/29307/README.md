@@ -14,3 +14,4 @@ Reglamento para el Trámite de Visado de Planos para la Construcción de Edifica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-20 | la propia norma |
+| 2 | 2014-04-25 | Decreto Ejecutivo 38441 (2014-04-25) |
