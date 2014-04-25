@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Las concesiones otorgadas de conformidad con esta ley están sujetas a la condición de que los concesionarios no varíen el destino del terreno concesionado y las edificaciones o instalaciones que hagan en él, sin el consentimiento del concejo municipal respectivo. Ninguna de estas modificaciones podrá contrariar el plan regulador urbano.

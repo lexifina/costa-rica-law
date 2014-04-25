@@ -1,0 +1,1 @@
+ARTÍCULO 23.- El reglamento de esta ley establecerá la forma de tramitar la solicitud de concesión, las modalidades de la concesión, el canon a pagar, así como cualquier otra disposición que se estime necesaria para regular las relaciones entre las municipalidades y los concesionarios.

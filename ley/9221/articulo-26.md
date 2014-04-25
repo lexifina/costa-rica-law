@@ -1,0 +1,3 @@
+ARTÍCULO 26.- Se reforma el artículo 4 de la Ley N.º 3535, Ley de Creación de la Comisión Nacional de Nomenclatura, de 3 de agosto de 1965, y sus reformas. El texto dirá:
+“Artículo 4.- También será obligatorio el dictamen favorable de la Comisión, en los casos en que se trate de introducir variaciones en la nomenclatura de la División Territorial Administrativa de la República o en los nombres geográficos del país.
+Se exceptúa de esta disposición la declaratoria de zona urbana litoral, salvo en aquellos casos en que se procure modificar el nombre de la circunscripción territorial que se pretende declarar zona urbana litoral.”

@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Se autoriza al Poder Ejecutivo, por medio del Ministerio de Gobernación y Policía, para que mediante decreto ejecutivo realice las declaratorias de zonas urbanas litorales, de conformidad con las disposiciones contenidas en la presente ley.
