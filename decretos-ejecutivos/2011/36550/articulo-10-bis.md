@@ -1,0 +1,4 @@
+Artículo 10 bis.—Modificación del Estado inactivo. El profesional podrá en cualquier momento hasta un plazo de seis meses reactivar la solicitud, una vez que complete la información requerida o realice las modificaciones solicitadas en la prevención por las instituciones correspondientes
+El proyecto se activará en la plataforma en la etapa de verificación de correcciones, sin embargo sólo las instituciones que realizaron prevenciones, serán las únicas que revisarán, visaran y aprobarán dicho trámite.
+Se procederá al archivo de la gestión cuando hayan transcurridos más de seis meses de haber entrado en estado de inactivo sin que el profesional cumpliere lo prevenido. En caso que el profesional desee tramitar de nuevo el proyecto, deberá realizar una nueva solicitud, y cumplir con todos los requisitos que estén vigentes.
+(Así adicionado por el artículo 1° del decreto eejcutivo N° 38441 del 25 de abril del 2014)
