@@ -1,1 +1,1 @@
-ARTICULO 66.- La investigación experimental clínica en pacientes, deberá sujetarse a las normas del Código de Moral Médica.
+ARTICULO 66.- (Derogado por el artículo 87 de la Ley Reguladora de Investigación Biomédica, N° 9234 del 22 de abril del 2014)

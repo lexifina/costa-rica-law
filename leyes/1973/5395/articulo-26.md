@@ -1,1 +1,1 @@
-ARTICULO 26.- En ningún caso se permitirá ninguna investigación clínica terapéutica o científica peligrosa para la salud de los seres humanos.
+ARTICULO 26.-(Derogado por el artículo 87 de la Ley Reguladora de Investigación Biomédica, N° 9234 del 22 de abril del 2014)

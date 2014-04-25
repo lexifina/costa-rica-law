@@ -1,1 +1,1 @@
-ARTICULO 64.- Los profesionales en ciencias de la salud que intervengan en investigaciones experimentales científicas que tengan como sujeto a seres humanos, deberán inscribirse en el Ministerio declarando la naturaleza y fines de la investigación y el establecimiento en que se realizará.
+ARTICULO 64.- (Derogado por el artículo 87 de la Ley Reguladora de Investigación Biomédica, N° 9234 del 22 de abril del 2014)
