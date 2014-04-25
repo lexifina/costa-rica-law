@@ -1,0 +1,3 @@
+ARTÍCULO 4.- Principios de la investigación biomédica
+Toda investigación en materia de salud en la que participen seres humanos deberá regirse por los principios de respeto a la dignidad de las personas, beneficencia, no maleficencia, autonomía y justicia distributiva.
+Además de lo anterior, el comité ético científico respectivo deberá asegurarse de que cumple los requisitos de valor social y científico, validez científica, selección no discriminatoria y equitativa de las poblaciones participantes, razón riesgo-beneficio favorable, evaluación independiente, consentimiento informado y respeto por los participantes. Toda investigación científica debe responder a un enfoque de derechos humanos como marco de referencia.

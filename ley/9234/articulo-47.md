@@ -1,0 +1,3 @@
+ARTÍCULO 47.- Integración
+Los CEC deberán ser multidisciplinarios en su composición y sus integrantes deberán tener reconocida honorabilidad, al menos un experto científico con experiencia en investigación y una persona que represente los intereses de la comunidad, nombrados mediante mecanismos que procuren la más amplia consulta y participación posible, de conformidad con el reglamento respectivo. Deberán contar con un mínimo de cinco miembros y se regirán por las normas establecidas en esta ley y su normativa interna.
+Tanto los miembros como el personal de apoyo del CEC deberán firmar un acuerdo de confidencialidad y declaración de conflicto de interés.

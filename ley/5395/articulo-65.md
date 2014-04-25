@@ -1,1 +1,1 @@
-ARTICULO 65.- La investigación experimental científica que tenga como sujeto a seres humanos, sólo podrá ser realizada por profesionales especialmente calificados, quienes asumirán la absoluta responsabilidad de las experiencias, en establecimientos que el Ministerio haya autorizado para tales efectos.
+ARTICULO 65.- (Derogado por el artículo 87 de la Ley Reguladora de Investigación Biomédica, N° 9234 del 22 de abril del 2014)

@@ -1,0 +1,2 @@
+ARTÍCULO 28.- Derecho a disfrutar de los beneficios que resulten de la investigación
+Los participantes en una investigación clínica tendrán derecho a disfrutar gratuitamente, mientras lo requieran, de los tratamientos preventivos, terapéuticos y diagnósticos generados por el estudio, si se ha demostrado que estos son beneficiosos para la salud, siempre y cuando la prescripción de estos métodos o tratamientos esté avalada por los profesionales responsables del tratamiento y seguimiento del paciente, y en concordancia con lo expresado en esta ley.

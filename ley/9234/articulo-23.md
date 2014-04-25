@@ -1,0 +1,3 @@
+ARTÍCULO 23.- Donación o cesión de muestras biológicas de material humano
+Para donar o ceder a terceros una muestra biológica de material humano se deberá contar con un consentimiento informado específico para cualquiera de esos fines. En este se deberá dejar claro el lugar y las condiciones de conservación, los objetivos de esta conservación, los usos futuros de las muestras y la posibilidad de cesión de las muestras a terceros.
+La donación y utilización de muestras biológicas humanas en una investigación no podrán remunerársele o brindarse algún otro tipo de compensación al participante; asimismo, queda prohibida la venta de muestras biológicas que hayan sido obtenidas para una investigación biomédica.

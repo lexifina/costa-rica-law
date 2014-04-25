@@ -1,0 +1,12 @@
+ARTÍCULO 36.- Conformación del Consejo Nacional de Investigación en Salud
+El Conis estará integrado por siete miembros propietarios, cada uno con su respectivo suplente, quienes deberán atender las sesiones en ausencia del miembro propietario.
+El Conis estará integrado por:
+a) El ministro de Salud o el funcionario en quien este delegue y su suplente, quien presidirá.
+b) El ministro de Ciencia y Tecnología o el funcionario en quien este delegue y su suplente. En caso de que el ministro o la ministra delegue su representación, tanto el titular como el suplente deberán ser especialistas en investigación. En caso contrario, al menos el suplente deberá ser especialista en este campo.
+c) Un abogado especialista en derechos humanos y su suplente, nombrado por el Colegio de Abogados de Costa Rica.
+d) Un representante de la Caja Costarricense de Seguro Social (CCSS), preferiblemente del Centro de Desarrollo Estratégico e Información en Salud y Seguridad Social del Seguro Social (Cendeisss) y su suplente. La Junta Directiva no podrá designar a ninguna de las personas que en ese momento forme parte de sus integrantes.
+e) Un representante del Consejo Nacional de Rectores (Conare) y un suplente, quien deberá ser especialista en bioética.
+f) Un representante en propiedad y un suplente, agremiado de los Colegios Profesionales de Médicos y Cirujanos; Farmacéuticos; Cirujanos Dentistas y de Microbiólogos, nombrados por las juntas directivas de los respectivos colegios profesionales. El reglamento de esta ley establecerá el procedimiento de nombramiento y la forma en que se alternarán cada año, los cargos en propiedad y la suplencia entre los cuatro colegios profesionales, de manera que se roten los puestos.
+g) Un miembro propietario y un suplente en representación de la comunidad, que para tal efecto será nombrado por la Defensoría de los Habitantes. El procedimiento para la elección de la persona representante de la comunidad lo determinará la Defensoría de los Habitantes.
+Los miembros del Conis durarán en sus cargos un período de cinco años y podrán ser reelegidos. El representante de la comunidad será nombrado por un plazo máximo de tres años y no podrá ser reelegido. Los miembros del Conis podrán ser cesados de sus cargos por las causas que se señalan en el reglamento de esta ley.
+Los integrantes del Conis no podrán ser nombrados de forma simultánea en el Conis ni en cualquier otro comité ético científico (CEC).

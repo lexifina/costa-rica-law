@@ -1,0 +1,2 @@
+ARTÍCULO 42.- Cuórum
+El cuórum se integrará con la presencia de la mayoría de los miembros. Los acuerdos se tomarán con el voto concurrente de la mayoría de los presentes. Cuando se produzca un empate, el presidente resolverá con su voto de calidad. La renuncia o el cese de uno de los miembros no implicarán la desintegración del órgano, siempre y cuando el cuórum requerido para sesionar se mantenga.
