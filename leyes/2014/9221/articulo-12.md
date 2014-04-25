@@ -1,0 +1,2 @@
+ARTÍCULO 12.- Es prohibido ceder o comprometer, o en cualquier otra forma traspasar o gravar, total o parcialmente, las concesiones o los derechos derivados de ellas sin la autorización expresa del concejo municipal respectivo. Carecerán de toda validez los actos o contratos que infrinjan esta disposición y generarán responsabilidades de conformidad con el ordenamiento jurídico vigente.
+Se autoriza a la municipalidad para que fije un canon por traspaso o gravamen de la concesión.

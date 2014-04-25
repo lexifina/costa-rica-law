@@ -1,4 +1,3 @@
-Artículo 4º.- También será obligatorio el dictamen favorable de la
-Comisión, en los casos en que se trate de introducir variaciones en la
-nomenclatura de la División Territorial Administrativa de la República,
-o en los nombres geográficos del país.
+Artículo 4.- También será obligatorio el dictamen favorable de la Comisión, en los casos en que se trate de introducir variaciones en la nomenclatura de la División Territorial Administrativa de la República o en los nombres geográficos del país.
+Se exceptúa de esta disposición la declaratoria de zona urbana litoral, salvo en aquellos casos en que se procure modificar el nombre de la circunscripción territorial que se pretende declarar zona urbana litoral.
+(Así reformado por el artículo 26 de la Ley marco para la declaratoria de zona urbana litoral y su régimen de uso y aprovechamiento territorial, N° 9221 del 27 de marzo del 2014)

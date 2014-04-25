@@ -1,6 +1,6 @@
 # Ley de Creación de la Comisión Nacional de Nomenclatura
 
-Ley N° 3535 del 1965-08-03. SINALEVI, ficha 37819: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37819&param2=39878&param3=1>.
+Ley N° 3535 del 1965-08-03. SINALEVI, ficha 37819: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37819&param2=96423&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1971-07-17 | SINALEVI (1 normas) | 1965-08-03 |
 | 2 de 3 | 1974-03-12 | Ley 5488 | 1965-08-03 |
+| 3 de 3 | 2014-04-25 | Ley 9221 | 2014-03-27 |

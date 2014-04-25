@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Será competencia exclusiva de las municipalidades otorgar concesiones en las áreas comprendidas en zonas urbanas litorales de su respectiva jurisdicción, de conformidad con lo dispuesto en esta ley y el plan regulador urbano de la respectiva localidad.
+El contrato de concesión que emita la respectiva municipalidad deberá indicar, al menos, el uso y aprovechamiento autorizado, el canon a pagar y su forma de pago, y el plazo de la concesión y las condiciones ambientales aplicables según la legislación vigente.
