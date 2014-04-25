@@ -1,0 +1,2 @@
+ARTÍCULO 16.- En caso de fallecimiento o ausencia declarada del concesionario, la municipalidad autorizará el traspaso directo del contrato por el resto del plazo de la concesión a quien haya sido designado por el concesionario o, en su defecto, a sus legítimos herederos. El nuevo concesionario deberá cumplir los requisitos y las condiciones que establece esta ley.
+Si no los hubiera, la concesión se tendrá como cancelada y volverá a la municipalidad respectiva, incluidas las construcciones y mejoras existentes.

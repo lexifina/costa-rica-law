@@ -1,0 +1,3 @@
+ARTÍCULO 22.- Las municipalidades no podrán autorizar ni permitir nuevas construcciones que no estén respaldadas en una concesión debidamente aprobada, inscrita y ajustada al plan regulador urbano vigente.
+Cuando se constate la infracción de lo dispuesto en el párrafo anterior, las municipalidades, previa información levantada al efecto, procederán al desalojo de los infractores y a la destrucción o demolición de las construcciones, remodelaciones o instalaciones realizadas por aquellos, sin responsabilidad alguna para la municipalidad.
+El infractor deberá cancelar el costo de demolición o destrucción y el resarcimiento del daño ambiental ocasionado, si lo hubiera; todo lo anterior sin perjuicio de las sanciones penales que procedan.
