@@ -1,1 +1,2 @@
-Artículo 5°—Los cometidos distritales referentes a deportes y recreación serán atendidos por un comité distrital de deportes, que se regirá por la misma normativa de los comités cantonales de deportes.
+Artículo 5.- En los distritos administrados por concejos municipales de distrito habrá comités distritales de deportes y recreación, salvo que se disponga por el concejo asumir directamente la función.
+(Así reformado por el artículo 2° de la ley N° 9208 del 20 de febrero del 2014)
