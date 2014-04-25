@@ -1,1 +1,3 @@
-Artículo 3°—Toda la normativa referente a las municipalidades será aplicable a los concejos municipales de distrito y a sus concejales e intendentes, siempre y cuando no haya incompatibilidad en caso de atribuciones propias y exclusivas de esos entes, a los regidores y al alcalde local.
+Artículo 3.- A los concejos municipales de distrito se les aplicará la normativa concerniente a las competencias y potestades municipales, así como el régimen jurídico general de las corporaciones locales y del alcalde y los regidores.
+Los concejos podrán acogerse a los reglamentos de la municipalidad, o bien, dictar sus propios reglamentos, en las mismas materias en que las municipalidades puedan normar. Esta regla rige para manuales y otras disposiciones generales locales. Al efecto, los concejos dictarán y publicarán en La Gaceta los acuerdos correspondientes.
+(Así reformado por el artículo 2° de la ley N° 9208 del 20 de febrero del 2014)
