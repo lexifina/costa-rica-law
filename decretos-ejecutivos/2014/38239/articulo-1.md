@@ -1,0 +1,15 @@
+N° 38239-MOPT
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; y conforme a las disposiciones de la Ley Orgánica del Ministerio de Obras Públicas y Transportes N° 3155, reformada mediante la Ley N° 4786 del 5 de julio de 1971; la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 del 4 de octubre del 2012; la Ley de Administración Vial N° 6324 del 24 de mayo de 1979 y sus reformas; y demás normas conexas.
+Considerando:
+1º—Que la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 del 4 de octubre del 2012, publicada en La Gaceta N° 207, Alcance Digital N° 165 del 26 de octubre del 2012, en su artículo 94 establece que para el transporte de personas menores de edad en los vehículos que circulen por las vías públicas terrestres de nuestro país, se deberá contar con un sistema de retención infantil.
+2º—Que con el fin de hacer eficaz la aplicación de esas regulaciones, se hace necesario plasmar un detalle pormenorizado de dichos dispositivos de seguridad activa y pasiva planteadas en la ley supracitada, con el fin de que el operador del sistema de tránsito, léase el conductor o el peatón, tenga seguridad jurídica respecto de cuáles dispositivos debe utilizar; y que las autoridades responsables de verificar su cumplimiento, léase el oficial de tránsito, puedan constatar la portación y el uso de dichos dispositivos.
+De igual manera, es un derecho a cargo de los menores de edad, con fundamento en la Convención sobre los Derechos del Niño y el Código de la Niñez y la Adolescencia, el que se normen de manera adecuada los dispositivos dispuestos para su tutela, protección y salvaguarda de su vida.
+3º—Que lo estipulado en este decreto y su manual, puede ser consultado en las páginas web del Ministerio de Obras Públicas y Transportes: www.mopt.go.cr o del Consejo de Seguridad Vial: www.csv.go.cr.
+4º—Que las disposiciones contenidas en el presente decreto, fueron conocidas y aprobadas por la Junta Directiva del Consejo de Seguridad Vial, en el artículo VII de la sesión ordinaria N° 2694-12 del 30 de octubre del 2012. Por tanto,
+Decretan:
+El siguiente,
+Reglamento para la Portación y el Uso
+de los Sistemas de Retención Infantil
+Artículo 1º—Ámbito de aplicación. El presente reglamento regula la portación y el uso de los sistemas de retención infantil que se deben utilizar para el transporte de personas menores de doce años de edad que midan menos de 1.45 metros de estatura en los vehículos automotores que circulen en las vías públicas terrestres, con excepción de los vehículos de transporte público de personas en modalidad de taxi, servicio especial estable de taxi, autobuses o busetas en ruta regular, los vehículos tipo UTV, bicimoto y motocicleta, salvo que, en este último caso, se les adapte un dispositivo tipo sidecar, y en los autobuses o busetas de servicios especiales, salvo en el servicio especial de transporte de estudiantes, cuando se preste a personas menores de doce años que midan menos de 1.45 metros de estatura.
