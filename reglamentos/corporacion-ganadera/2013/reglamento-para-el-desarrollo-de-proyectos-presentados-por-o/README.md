@@ -14,3 +14,4 @@ Reglamento para el desarrollo de proyectos presentados por organizaciones ganade
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-03 | la propia norma |
+| 2 | 2014-04-28 | Reglamento 386 (2014-04-28) |
