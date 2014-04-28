@@ -15,3 +15,4 @@ Regula Programa Bandera Azul Ecológica (PBAE)
 | --- | --- | --- |
 | 1 | 2011-04-12 | la propia norma |
 | 2 | 2012-10-22 | Decreto Ejecutivo 37484 (2012-10-22) |
+| 3 | 2014-04-28 | Decreto Ejecutivo 38438 (2014-04-28) |
