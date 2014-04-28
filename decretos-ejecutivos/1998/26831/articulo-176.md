@@ -1,1 +1,4 @@
-Artículo 176.- Perro guía. La persona ciega o deficiente visual que utilice el perro guía como apoyo a su movilidad, lo podrá ingresar a toda edificación pública, privada de servicio público y medio de transporte público.
+Artículo 176.—Animales de Asistencia
+Toda persona que por algún tipo de discapacidad requiera de un animal de asistencia como apoyo, acompañamiento, conducción y auxilio, lo podrá ingresar, permanecer y deambular a toda ediﬁcación pública, privada de servicio público y medio de transporte público.
+Los Instructores, adiestradores y entrenadores de Animales de Asistencia y de los que estén en proceso de formación, debidamente acreditados, gozarán de los mismos derechos que gozan las personas con su Perro o Animal de Asistencia mientras realicen las labores de entrenamiento y aprendizaje de aquellos animales que vayan a ser destinados como de asistencia, indiferentemente a su especialidad que vengan a favorecer procesos de rehabilitación y de inclusión social, y así como, también en las labores de adaptación a los usuarios.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38446 del 28 de abril del 2014)
