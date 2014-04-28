@@ -1,0 +1,10 @@
+Artículo 2º—Para los efectos del presente Reglamento debe entenderse por:
+a) Área afectada por restricciones: Corresponde a aquellas áreas con restricciones de uso por límites establecidos por la Ley Forestal, Ley de Aguas, Ley Orgánica del Ambiente, Ley de Uso, Manejo y Conservación de Suelos y otras Leyes aplicables.
+b) Consejo Regional de Desarrollo Rural (CRDR): Instancia Regional de Desarrollo Rural de coordinación del desarrollo rural territorial en las Regiones establecidas Inder, cuyo establecimiento y coordinación será facilitada por éste Instituto conforme al Artículo 8 inciso b) de la Ley 9036.
+c) Consejo Territorial de Desarrollo Rural (CTDR): Instancia Territorial de Coordinación del Desarrollo Rural y de formulación de los planes de desarrollo rural territorial en las regiones establecidas por el Inder, cuyo establecimiento y coordinación será facilitada por éste Instituto conforme al Artículo 8 inciso a) de la Ley 9036.
+d) Instituto: El Instituto de Desarrollo Rural.
+e) Dirección Territorial: Órgano administrativo del Inder que tiene la competencia territorial, conforme la distribución interna vigente del instituto, en la zona donde se encuentra ubicado el inmueble
+f) Fondo de Tierras: Dependencia técnica, especializada en la regulación, adquisición, titulación, dotación y control de las tierras adquiridas por el Inder, el uso y la extinción de los derechos sobre la tierra. (Artículo 40 Ley 9036)
+g) Fondo de Desarrollo Rural: Dependencia técnica especializada del Inder. El Inder, por medio de este Fondo, promoverá y ejecutará proyectos de desarrollo en los territorios rurales, con el objetivo de facilitar el acceso a los servicios básicos para el desarrollo socioeconómico de los beneficiarios de la institución, respetando las competencias que le corresponden a cada institución pública.
+h) Ley 2825: Ley de Tierras y Colonización Nº 2825 de 14 de octubre de 1961 y sus reformas.
+i) Ley 9036: Ley de Transformación del IDA al Instituto de Desarrollo Rural Nº 9036 del 29 de mayo de 2012.
