@@ -1,0 +1,1 @@
+Artículo 21.—La Secretaría dará cuenta de la correspondencia recibida. A solicitud de un Director o del Presidente, se podrá acceder a que se lea un documento recibido por la Secretaría, en cuyo caso el Secretario (a) procederá a su lectura.

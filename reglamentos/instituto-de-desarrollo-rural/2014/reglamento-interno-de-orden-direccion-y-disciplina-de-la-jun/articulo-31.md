@@ -1,0 +1,1 @@
+Artículo 31.—Al iniciarse cada sesión se verificará y comprobará que todos los Directores hayan tenido acceso previo a las actas, y se le pedirá a cada Director que indique específicamente las correcciones del caso si las hubiere, de no haberlas se someterá de inmediato a su aprobación.

@@ -1,0 +1,1 @@
+Artículo 49.—Las partes dispositivas de los acuerdos y resoluciones, una vez declarados en firme, cuando fuere del caso, las comunicará el Secretario (a) o funcionario designado a los interesados dentro de los cinco días siguientes.

@@ -1,0 +1,1 @@
+Artículo 59.—Igualmente será causa de pérdida de la dieta respectiva, el hecho que el Director se retire con más de una hora de antelación al momento de la finalización de la misma, sin el respectivo permiso de la Junta Directiva.

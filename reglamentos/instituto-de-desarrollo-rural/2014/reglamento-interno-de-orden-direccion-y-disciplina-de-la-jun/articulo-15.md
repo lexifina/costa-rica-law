@@ -1,0 +1,1 @@
+Artículo 15.—Las sesiones de Junta Directiva serán presididas por el Presidente y en su ausencia por el Vicepresidente, y en defecto de éstos, por un Presidente ad hoc elegido por acuerdo de mayoría los demás miembros directores de la Junta que se encuentren presentes.

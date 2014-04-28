@@ -1,0 +1,1 @@
+Artículo 46.—La Junta Directiva podrá revocar dentro del término señalado por el Artículo 174 de la Ley General de la Administración Pública, aquellos acuerdos, cuando éstos no hayan sido ejecutados o cuando sea conveniente para los intereses del Instituto, en cuyo caso se requerirá de una mayoría calificada de seis votos.

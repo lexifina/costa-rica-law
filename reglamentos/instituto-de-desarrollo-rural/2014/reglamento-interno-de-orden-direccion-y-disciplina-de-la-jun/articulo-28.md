@@ -1,0 +1,1 @@
+Artículo 28.—Los asuntos pendientes al finalizar cada período de nombramiento de la Junta Directiva, deberán de estudiarse por la siguiente. En estos casos, los asuntos seguirán los trámites que aún les falten.

@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De las mociones, acuerdos y resoluciones
+Artículo 39.—Cada Director expresará su voto afirmativo con la palabra “si” y el negativo con la palabra “no”. No obstante lo anterior, cuando la mayoría de los Directores presentes, manifiesten su deseo de estudiar más un asunto, petición o proposición sometida a conocimiento de la Junta, se postergará por una sola vez la votación, hasta la sesión siguiente. El presidente constatará los votos, los cuales se consignarán en el acta con la especificación del nombre de cada votante negativo.
+El Director que lo desee puede razonar su voto por escrito o verbalmente, limitándose al fondo del asunto, sin examinar las exigencias habidas en la discusión ni hacer refutaciones o réplicas. En el razonamiento verbal, el Director contará con cinco minutos.

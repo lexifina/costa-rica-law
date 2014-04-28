@@ -1,0 +1,1 @@
+Artículo 58.—El Director que asista a la sesión después de transcurridos los treinta minutos señalados en el párrafo anterior, podrá integrarse y participar en la misma únicamente con derecho a voz sin el respectivo reconocimiento de la dieta correspondiente.

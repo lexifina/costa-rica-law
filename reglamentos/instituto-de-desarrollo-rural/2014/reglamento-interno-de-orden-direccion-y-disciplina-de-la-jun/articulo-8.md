@@ -1,0 +1,1 @@
+Artículo 8º—La Junta Directiva contará con un Secretario General, el cual, será un funcionario de carrera en plaza permanente dentro de la estructura de la Institución, y que, deberá cumplir con el perfil que se defina en el respectivo Manual de Puestos aprobado por la Junta Directiva.

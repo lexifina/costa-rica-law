@@ -1,0 +1,1 @@
+Artículo 33.—Las actas se aprobarán en la siguiente sesión ordinaria y serán firmadas por el Presidente y el Secretario (a) de la Junta Directiva. Antes de esa aprobación, carecerán de fuerza los acuerdos tomados en la respectiva sesión, salvo que se dispongan como acuerdo firme al ser tomados.

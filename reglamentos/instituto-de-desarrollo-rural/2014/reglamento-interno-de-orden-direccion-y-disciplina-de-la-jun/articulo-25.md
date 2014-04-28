@@ -1,0 +1,1 @@
+Artículo 25.—Los documentos o comunicaciones que deban ser conocidos por la Junta Directiva y cuya presentación y resolución esté sujeta a término, se entregarán directamente al Secretario (a) o al Presidente para que cualquiera de éstos, sin dilación alguna, lo someta al conocimiento de la Junta.

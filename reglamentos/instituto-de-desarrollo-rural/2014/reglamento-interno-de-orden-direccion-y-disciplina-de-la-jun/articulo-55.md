@@ -1,0 +1,1 @@
+Artículo 55.—Cuando hubiere motivo de inhibición podrá también recusarse al Director ante el Presidente, quien decidirá si existe causa o no de inhibición. En caso de que el miembro recusado sea el Presidente corresponderá al Vicepresidente la resolución.

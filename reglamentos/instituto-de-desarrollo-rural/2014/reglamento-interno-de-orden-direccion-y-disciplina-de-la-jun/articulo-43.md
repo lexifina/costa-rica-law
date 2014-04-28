@@ -1,0 +1,1 @@
+Artículo 43.—El Presidente de la Junta Directiva podrá dar por agotado el tema en discusión y someterlo a votación, si así se requiere, cuando considere que ha sido suficientemente discutido y que no se están aportando elementos nuevos al debate.

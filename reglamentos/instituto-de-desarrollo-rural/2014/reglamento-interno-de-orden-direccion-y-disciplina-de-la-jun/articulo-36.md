@@ -1,0 +1,1 @@
+Artículo 36.—Cualquier interesado podrá solicitar por escrito a la Secretaría de la Junta Directiva, que le certifique el contenido de las actas o resoluciones que recaigan en las gestiones que hubieren presentado al Instituto, para lo que deberán indicar específicamente el asunto o los asuntos en que tengan interés y los fines de su solicitud.
