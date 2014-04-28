@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente Reglamento es de acatamiento obligatorio para los funcionarios ubicados en las plataformas de servicios, cajeros, guardas, y cualquier otro funcionario que por sus funciones deba atender público y así lo disponga la Gerencia General.
