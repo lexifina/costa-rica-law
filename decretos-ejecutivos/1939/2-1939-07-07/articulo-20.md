@@ -1,1 +1,0 @@
-Artículo 20.-La Administración General de Rentas depositará a más tardar el último de cada mes, en el Banco Nacional de Costa Rica y a la orden de la Corte Suprema de Justicia, la cantidad señalada en el inciso b) del artículo 242 de la Ley Orgánica del Poder Judicial, y dará informe a la Contaduría de la Corte acerca del monto del depósito.

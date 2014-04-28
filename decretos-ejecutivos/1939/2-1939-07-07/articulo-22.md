@@ -1,1 +1,0 @@
-Artículo 22.-El acuerdo que fije una jubilación o pensión, así como sus modificaciones posteriores, deberá ser comunicado a la Contaduría de la Corte, la cual llevará una nómina de los agraciados por orden alfabético de los apellidos, que indicará la fecha del acuerdo de pago, y en su caso la de su modificación, la procedencia de la jubilación o pensión, su importe y su duración.

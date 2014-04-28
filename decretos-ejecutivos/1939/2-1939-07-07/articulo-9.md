@@ -1,2 +1,0 @@
-Artículo 9°-En todo caso en que deba ser comprobada la edad, se aportará constancia del hecho del nacimiento expedida por el Registro del Estado Civil; pero si el acto no está registrado, podrá admitirse una constancia eclesiástica y en defecto de ésta cualquier otra prueba que se apreciará prudencialmente.
-Toda otra comprobación podrá hacerse mediante constancias o informes que extenderán, a solicitud verbal del interesado, las oficinas públicas, en papel de oficio y libres de todo impuesto, tasa o derecho. .

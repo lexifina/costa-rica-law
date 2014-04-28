@@ -1,4 +1,0 @@
-Artículo 15.-Toda solicitud de pensión, que se agregará al expediente de que se ha hablado, deberá formularse en el papel sellado de ley, sea de cincuenta céntimos, y a ella se acompañará la prueba documental indispensable para justificar el vínculo del parentesco que ligue al reclamante con el empleado o funcionario falIecido; la necesidad actual de la pensión; y los demás requisitos que exige la ley y que no aparezcan comprobados en el expediente sobredicho.
-La Corte, cuando lo creyere conveniente, ordenará además la comprobación de la honradez y buenas costumbres del peticionario.
-Para la tramitación de la solicitud son aplicables, en lo conducente, las disposiciones de los artículos 2° y 4°.
-Las personas que se hallen en el caso previsto en el primer Transitorio del artículo 2° de la ley N° 34 del 9 de junio último deben hacer además, en relación con el funcionario o empleado fallecido; la declaración a que se refiere el artículo 5° de este Reglamento.

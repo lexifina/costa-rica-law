@@ -1,2 +1,0 @@
-Artículo 12.-Acordada legalmente la separación y fijada la jubilación, entrará el funcionario o empleado jubilado automáticamente en el goce del beneficio.
-Los Magistrados disfrutarán de la jubilación a partir de la fecha en que hayan sido separados por el Congreso Constitucional, o de la fecha en que hayan cesado en sus funciones por expiración del período legal en el caso de retiro forzoso por razón de la edad.

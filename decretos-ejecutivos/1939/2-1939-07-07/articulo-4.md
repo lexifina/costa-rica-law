@@ -1,1 +1,0 @@
-Artículo 4°-Una vez verificadas las diligencias y cumplidos los requisitos preindicados, se elevará el caso a conocimiento de la Corte Plena para que decrete o impruebe la separación, conociendo del asunto entre los que sean de preferencia y en la forma prevista en el artículo 10.

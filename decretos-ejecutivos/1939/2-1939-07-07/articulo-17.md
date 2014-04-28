@@ -1,2 +1,0 @@
-Artículo 17.-Cuando se tratar e de suspender o cancelar una jubilación 6 pensión, la Corte Plena, previa audiencia por tres días al interesado, podrá proceder con los datos que arroje el expediente, si fuere claro y simple el caso, o comisionará al Inspector Judicial o a un Juez o Alcalde para que levante una información.
-Se procederá de igual modo cuando se tratare de modificar una jubilación o pensión, salvo que la modificación obedezca a variación de los sueldos de Presupuesto, caso en el cual se acordará de plano.

@@ -1,1 +1,0 @@
-Artículo 26.-La Secretaría de la Corte, en colaboración con la Contaduría, rendirá a la Corte Plena un informe anual sobre la marcha de la institución. A ese informe se acompañará la nómina de los jubilados y pensionados y un estado de la cuenta. La Corte ordenará su publicación en el Boletín Judicial en todo o en parte, según lo estime conveniente.
