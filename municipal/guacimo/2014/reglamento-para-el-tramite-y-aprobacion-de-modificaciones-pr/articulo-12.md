@@ -1,0 +1,1 @@
+Artículo 12°.—El Departamento de Contabilidad deberá digitar al Ente Contralor por medio del SIPP, cada modificación presupuestaria que se autorice, a más tardar cinco días hábiles posteriores a su aprobación definitiva, la tesorería municipal, deberá hacer la validación en el SIPP en un plazo no mayor a tres días hábiles.
