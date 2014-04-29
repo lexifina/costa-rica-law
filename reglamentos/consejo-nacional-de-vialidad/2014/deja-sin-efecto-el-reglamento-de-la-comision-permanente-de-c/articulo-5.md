@@ -1,0 +1,1 @@
+5. Que de conformidad con lo dispuesto en los artículos 4° y 5° de la Ley N° 8220 “Protección al ciudadano del exceso de requisitos y trámites administrativos”, se instruye a la Proveeduría Institucional y a la Dirección de Tecnologías de la Información, a publicar -respectivamente- en La Gaceta, en la Internet e Intranet el presente acuerdo.
