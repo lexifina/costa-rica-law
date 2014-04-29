@@ -14,3 +14,4 @@ Código Sísmico de Costa Rica 2010
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-07-13 | la propia norma |
+| 2 | 2014-04-29 | Reglamento 3 (2014-04-29) |
