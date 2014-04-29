@@ -13,3 +13,4 @@ Actualización de la Tabla de Plazos de Conservación de Documentos de la Secret
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-21 | la propia norma |
+| 2 | 2014-04-29 | Circular 84 (2014-04-29) |
