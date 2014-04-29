@@ -1,5 +1,6 @@
 N° 9154
 (Nota de Sinalevi: Mediante decreto ejecutivo Nº 37785 del 04 de julio del 2013, la República de Costa Rica ratificó el presente Acuerdo)
+(Nota de Sinalevi: De conformidad con la resolución RES-DGA-314-2013 del 8 de octubre del 2013, de la Dirección General de Aduanas, el presente instrumento entró en vigencia el 1° de octubre del 2013)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 APROBACIÓN DEL ACUERDO POR EL QUE SE ESTABLECE UNA
