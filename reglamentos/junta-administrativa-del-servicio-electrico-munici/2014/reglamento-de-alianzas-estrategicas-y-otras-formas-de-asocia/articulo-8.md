@@ -1,0 +1,2 @@
+Artículo 8º—Confidencialidad. Toda iniciativa de alianza estratégica, asociación o colaboración empresarial, deberá estar respaldada por un acuerdo previo entre las partes, de protección de información confidencial desde las etapas iniciales de conversación y negociación, compromisos que deberán mantenerse independientemente de que se concrete la relación formal.
+Asimismo, los equipos negociadores de cada una de las partes, deberán a su vez suscribir un acuerdo de confidencialidad de la información, desde las etapas iniciales de las conversaciones.
