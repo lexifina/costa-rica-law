@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Procedimiento de recalificación de patentes
+Artículo 33.—Situaciones existentes y de hecho. La Administración Tributaria Municipal, mediante acto motivado asignará la categoría y horario que conforme a los artículos 4 y 11 de la Ley N° 9047 les corresponda a las patentes de licores adquiridas mediante la Ley N° 10, Ley sobre Venta de Licores, de 7 de octubre de 1936, indicando el tipo de licencia y su horario conforme a la solicitud que al efecto debieron presentar conforme a lo dispuesto por el Transitorio I de la Ley N° 9047, previa verificación de las condiciones objetivas de funcionamiento de los establecimientos comerciales.

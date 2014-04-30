@@ -1,0 +1,1 @@
+Artículo 17.—Pago de Multas e intereses: Conforme a lo dispuesto por el artículo 10 de la Ley N° 9047, el atraso en el pago de este derecho, será sujeto a una multa del uno por ciento por mes sobre el principal hasta un máximo de un veinte por ciento (20%), y al pago de intereses, sin perjuicio de la suspensión de la licencia como lo establece el artículo 10 de la Ley N° 9047.

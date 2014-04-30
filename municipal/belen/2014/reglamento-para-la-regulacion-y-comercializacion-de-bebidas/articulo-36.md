@@ -1,0 +1,1 @@
+Artículo 36.—De la cancelación de las patentes de licores inactivas: Las patentes adquiridas bajo la vigencia de la Ley Nº 10 que se encuentren inactivas por más de seis meses contados a partir del vencimiento del bienio que corresponda, serán revocadas por la Municipalidad, de conformidad con la potestad que le confiere el artículo 6 de la Ley Nº 9047.

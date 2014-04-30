@@ -1,0 +1,1 @@
+Artículo 34.—Asignación de categoría de oficio. Por encontrarse vencido el plazo dispuesto en el Transitorio I de la Ley N° 9047, la Administración Tributaria Municipal, procederá a asignar de oficio la categorías de las patentes cuyos titulares no se hayan a apersonado a realizar el trámite correspondiente.

@@ -1,0 +1,1 @@
+Artículo 6º—Suspensión de licencias. La suspensión de la licencia comercial conforme a lo dispuesto por el artículo 81 bis del Código Municipal, o la ausencia o vencimiento de la patente comercial municipal, implicará la suspensión de la licencia para la comercialización de bebidas con contenido alcohólico.
