@@ -13,3 +13,4 @@ Lineamiento sobre la realización de pruebas médicas y toxicológicas a servido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-25 | la propia norma |
+| 2 | 2014-04-30 | Circular 91 (2014-04-30) |
