@@ -1,0 +1,1 @@
+Artículo 47.—Proceso de aprobación. Los Planes Especiales de Renovación Urbana serán aprobados conforme a la Ley de Planificación Urbana N° 4240 de 1968 y serán objeto de una participación efectiva de los munícipes de conformidad con los mecanismos de participación ciudadana establecidos por el ordenamiento jurídico.

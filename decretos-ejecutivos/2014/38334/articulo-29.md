@@ -1,0 +1,1 @@
+Artículo 29.—Coordinación intersectorial para la consolidación de Centralidades Densas Integrales en los Planes Reguladores. Se deberá prever la coordinación y planificación de infraestructura nueva, al menos alcantarillado sanitario, de agua potable, y residuos en sitios con potencial de CDI. Estas acciones podrían incluir propuestas de carácter público y privado.

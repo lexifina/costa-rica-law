@@ -1,0 +1,5 @@
+Artículo 27.—Objetivos de las Centralidades Densas Integrales. Los objetivos de las CDI serán:
+a) Establecer espacios territoriales para la coordinación e integración de programas y esfuerzos sectoriales, mediante la asignación prioritaria de recursos presupuestarios, tanto por parte del Poder Ejecutivo, las instituciones descentralizadas y los gobiernos locales, así como la cooperación de entes públicos y privados nacionales y extranjeros.
+b) Fijar la capacidad de carga del territorio según su fragilidad ambiental, su infraestructura sanitaria, vial, entre otros, y su soporte en equipamiento social, para establecer los tipos de densidades pertinentes (moderada, alta y muy alta densidad).
+c) Orientar los usos de suelo básicos requeridos en los CDI para consolidar las diferentes categorías de CDI, con el fin de facilitar su consolidación a través de los Planes Reguladores.
+d) Proteger la frontera agrícola, zonas de recarga acuífera, áreas de alta y muy alta susceptibilidad a las amenazas naturales y áreas de valor ambiental.

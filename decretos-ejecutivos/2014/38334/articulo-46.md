@@ -1,0 +1,1 @@
+Artículo 46.—Cumplimiento urbanístico. El Plan Especial de Renovación Urbana deberá cumplir con todas las especificaciones del Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones, los requisitos requeridos en el Capítulo III y IV del mismo Reglamento, así como con las disposiciones urbanísticas del Plan Regulador vigente.

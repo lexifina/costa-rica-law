@@ -1,0 +1,1 @@
+Artículo 21.—Del apoyo a las municipalidades por el IFAM. El IFAM procurará apoyar a las municipalidades en el equipamiento tecnológico y en la adopción de procedimientos de trámite ágiles y eficientes en lo referente al otorgamiento de uso del suelo y permisos de construcción, de manera que los mismos cumplan con altos índices de calidad y eficiencia técnica y ambiental.

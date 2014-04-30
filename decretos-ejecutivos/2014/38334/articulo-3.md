@@ -1,0 +1,1 @@
+Artículo 3º—Declaratoria de interés público. Se declara de interés público el Plan Regional de la Gran Área Metropolitana, en adelante PLAN GAM, así como las acciones que se deben llevar a cabo para su adecuado cumplimiento.

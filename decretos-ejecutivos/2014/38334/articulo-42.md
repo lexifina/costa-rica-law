@@ -1,0 +1,1 @@
+Artículo 42.—Criterios regionales para los reglamentos de renovación. La regulación de renovación urbana, que se incluya en los Planes Reguladores, deberá basarse en las disposiciones regionales que establece el PLAN GAM (ficha UR-4) y que se disponen en los artículos que siguen.

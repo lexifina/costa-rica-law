@@ -1,0 +1,1 @@
+Artículo 41.—Disposiciones locales. Con el fin de promover y estimular la renovación urbana, cada Municipalidad podrá establecer incentivos urbanísticos en las disposiciones reglamentarias de las Zonas de Renovación Urbana.

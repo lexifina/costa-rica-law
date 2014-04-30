@@ -1,0 +1,1 @@
+Artículo 44.—Planes Especiales de Renovación Urbana. Los Planes Especiales de Renovación Urbana determinarán la intensidad de edificación y los usos del suelo en función de los objetivos del modelo urbano planteado en el Plan GAM.

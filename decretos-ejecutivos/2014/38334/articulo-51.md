@@ -1,0 +1,4 @@
+Artículo 51.—De las etapas de participación. La elaboración de los Planes Reguladores deberá elaborarse con un proceso participativo de sus munícipes que al menos considere:
+(a) Una etapa de información previa a los vecinos o interesados acerca de las disposiciones del instrumento de planificación propuesto y de sus efectos. Dicha etapa consistirá en poner a disposición de los vecinos el proyecto en la totalidad de distritos que integren el cantón correspondiente.
+(b) Audiencia pública de conformidad con el artículo 17 de la Ley de Planificación Urbana Ley N° 4240 del 15 de noviembre de 1968.
+La comunicación de todas las actividades de participación de los vecinos se hará por los medios de comunicación masiva más adecuada y mediante la publicación de carteles o rótulos informativos en las paredes del edificio municipal, de forma tal que estos sean visibles a cualquier habitante.

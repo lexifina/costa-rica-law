@@ -1,0 +1,1 @@
+Artículo 16.—Alcances de la variable ambiental. La variable ambiental servirá como herramienta obligatoria de carácter técnico y deberá ser aplicada en la elaboración, modificación o aplicación de cualquier plan regulador de la GAM.

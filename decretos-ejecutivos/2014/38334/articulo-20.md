@@ -1,0 +1,2 @@
+Artículo 20.—Vulnerabilidad hidrogeológica. En la elaboración y modificación de todo plan regulador deberán incorporarse los mapas y las matrices de vulnerabilidad hidrogeológica que se oficialicen como instrumento genérico de aplicación oficial, con el fin de proteger los acuíferos de la GAM.
+Los detalles de vulnerabilidad hidrogeológica deben ser incorporados en un mapa de escala que permita la consulta y el trabajo para la definición de áreas con restricciones de crecimiento urbano.

@@ -1,0 +1,1 @@
+Artículo 43.—Ubicación preferente de zonas de renovación. La creación de zonas de renovación urbana se dará con prioridad en los núcleos y cuadrantes urbanos que constituyan CDI, según definición propia del Plan Regulador.

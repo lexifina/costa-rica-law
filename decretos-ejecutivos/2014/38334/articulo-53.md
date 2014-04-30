@@ -1,0 +1,1 @@
+Artículo 53.—Aprobación de Planes Reguladores. La aprobación, revisión, actualización y modificación de los planes descritos se regirá por lo establecido para cada caso por la Ley de Planificación Urbana.

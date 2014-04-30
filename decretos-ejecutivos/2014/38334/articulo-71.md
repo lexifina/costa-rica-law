@@ -1,0 +1,1 @@
+Artículo 71.—Gestión del Riesgo. En materia de Gestión del Riesgo las municipalidades deberán cumplir con los lineamientos definidos por SETENA en la reglamentación de los índices de fragilidad ambiental, así́ como lo previsto en la Ley Nacional de Emergencias y Prevención del Riesgo N° 8488 de 22 de noviembre del 2005 y demás regulaciones conexas.

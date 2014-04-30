@@ -1,0 +1,1 @@
+Artículo 17.—Contenido ambiental de las revisiones del Plan. Cualquier elaboración de Planes Reguladores, o la revisión del PLAN GAM, supondrá el cumplimiento de lo que en esta materia determine la SETENA.

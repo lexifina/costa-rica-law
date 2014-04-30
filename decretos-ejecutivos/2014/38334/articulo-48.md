@@ -1,0 +1,1 @@
+Artículo 48.—Centros históricos y ejes comerciales. Los centros históricos y ejes comerciales se delimitarán con el fin primordial de facilitar su uso ciudadano, su peatonización, creación y mejora de accesos y parqueos. Estas zonas se desarrollarán bajo la orientación de la ficha UR-5 del Anexo único del presente Decreto.
