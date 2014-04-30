@@ -1,0 +1,1 @@
+Artículo 4º—Corresponde al Instituto de Fomento y Asesoría Municipal y al Ministerio de Planificación y Política Económica la coordinación con las Autoridades de la Administración Central y Descentralizada para el cumplimiento de las metas y estrategias contenidas en este Plan.

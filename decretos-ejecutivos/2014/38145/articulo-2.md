@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección de Urbanismo del INVU y la Secretaría del Consejo de Planificación Urbana, adscrita al Instituto Nacional de Vivienda y Urbanismo, serán los responsables de dar seguimiento a la ejecución del Plan Regional de Ordenamiento Territorial de la GAM
