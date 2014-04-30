@@ -1,0 +1,1 @@
+Artículo 11.—De las responsabilidades de los integrantes de la CGTI. Los integrantes de la CGTI deberán asumir sus tareas con responsabilidad, participar en sus sesiones, salvo que motivo justificado lo impida y regirán sus actuaciones por este reglamento y demás ordenamiento y lineamientos que sean aplicables.
