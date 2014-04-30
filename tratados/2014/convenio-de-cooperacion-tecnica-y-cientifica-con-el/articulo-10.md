@@ -1,0 +1,3 @@
+Artículo X
+Se aplicarán a los funcionarios y expertos de cada una de las Partes designados para trabajar en el territorio de la otra, las normas tendientes a conceder a los mismos todas las facilidades necesarias para el cumplimiento de su labor.
+En este sentido, cualquier tipo de facilidad inmigratoria, exoneración tributaria o privilegio que pudiera corresponder a dicho personal, o a los miembros inmediatos de su familia, será otorgado de conformidad con las normas atinentes a dichas materias en el ámbito de Naciones Unidas y de acuerdo al Derecho interno de cada una de las Partes, en lo que fuere aplicable.
