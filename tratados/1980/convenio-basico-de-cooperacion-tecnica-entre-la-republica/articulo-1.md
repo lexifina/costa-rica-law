@@ -1,4 +1,6 @@
+(Derogado)
 N° 6480
+(El presente instrumento internacional fue sustituído por el artículo 10 del Tratado Internacional N° 9214 del 4 de marzo de 2014, "Convenio Marco de Cooperación Bilateral con la República del Ecuador")
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 Decreta :
 Artículo 1°—Autorízase la ratificación por parte del Gobierno al "Convenio Cultural" y al "Convenio Básico de Cooperación Técnica", suscritos entre las Repúblicas de Costa Rica y Ecuador el 8 de marzo de 1979. Sus textos son los siguientes :
