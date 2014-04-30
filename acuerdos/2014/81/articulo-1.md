@@ -1,0 +1,14 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+AJDIP/081-2014.—Puntarenas, a los veintiséis días del mes de marzo de dos mil catorce.
+Considerando:
+1º—Que mediante Acuerdo Ejecutivo AJDIP/476-2008 de 18 de diciembre del 2008, publicado en La Gaceta Nº8 del 13 de enero del 2008, modificado mediante Acuerdo AJDIP/090-2009 del 12 de marzo del 2009, publicado en La Gaceta Nº69 del 08 de abril del 2009, se emitieron Medidas de Ordenamiento para el Establecimiento de Acuerdos que Permitan Regular las Actividades de la Pesca Comercial y la Pesca Turística Deportiva.
+2º—Que en la aplicación posterior de los Acuerdos indicados, y producto de la dinámica de las actividades pesqueras, se ha considerado necesario para la correcta interpretación y aplicación de las regulaciones establecidas, modificar los artículos pertinentes que permitan el cumplimiento de los fines y objetivos perseguidos con las disposiciones emitidas. Por tanto,
+La Junta Directiva del Instituto Costarricense de Pesca y Acuicultura,
+ACUERDA:
+1º—Modifíquense los artículos 1, 4, 5 y 8 del Acuerdo Ejecutivo 476/2008 y su reforma mediante Acuerdo AJDIP/090-2009, los cuales se leerán de la siguiente manera:
+“Artículo 1º—Se prohíbe la pesca dirigida al pez vela, utilizando palangre de superficie adaptada para ese fin y con carnada viva como arte de pesca en las zonas expresamente establecidas e indicadas en el presente acuerdo, a la flota comercial no turística-deportiva. Las faenas de pesca de la flota pesquera nacional, utilizando palangre y carnada viva, en especial en cuanto a zonas y fechas, quedan sometidas a las regulaciones del presente Acuerdo.”
+“Artículo 4º—Modifíquese la frase final en los incisos a), b) y c) del artículo 4 para que se lea en todos los incisos de la siguiente manera:
+…,`a embarcaciones que no cuenten con licencia de pesca vigente y específica que autorice la captura para comercialización de carnada en esa zona, así como el tipo de carnada autorizada a ser extraída`.”
+“Artículo 5º—A partir de la Costa Pacífica Costarricense y las líneas imaginarias establecidas en los incisos a), b) y c) del artículo 4, hasta las 30 millas náuticas aguas afuera se establece una línea imaginaria paralela a la costa que delimita una zona de prohibición permanente para la realización de faenas de pesca comercial no turística, utilizando palangre (long line) de superficie con carnada viva como arte de pesca, ya que será considerado como pesca dirigida a la captura de pez vela. Sin embargo, en las 30 millas indicadas las embarcaciones pertenecientes a la flota comercial no turística sí podrán capturar y almacenar en viveros carnada viva para utilización en faenas de pesca propias de la embarcación, pero fuera de las 30 millas.”
+“Artículo 8º—Modifíquese el artículo 8 del Acuerdo indicado y su reforma, para eliminar el párrafo tercero y por ende la Comisión indicada que en el mismo se citaba”.
