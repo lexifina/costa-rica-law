@@ -1,0 +1,1 @@
+Artículo 5°—La autoridad máxima de cada institución deberá acreditar ante el Ministerio de Cultura y Juventud a sus representantes. Dichas personas desempeñarán sus funciones ad honorem y serán nombradas por cuatro años, pudiendo ser reelectas.

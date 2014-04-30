@@ -1,0 +1,1 @@
+Artículo 8°—La Comisión podrá integrar comités o grupos de trabajo sobre temáticas o aspectos particulares relacionados son la salvaguarda del patrimonio cultural inmaterial de alguna región o etnia del país.
