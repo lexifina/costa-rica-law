@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE OROTINA
+El Concejo Municipal en el acta de la sesión ordinaria N° 325 celebrada el día 18 de marzo del 2014, en el artículo 5, inciso 1), punto 9.
+ACUERDA:
+Se proceda modificar el artículo 5° del Reglamento para el Funcionamiento de las Comisiones Permanentes y Especiales de la Municipalidad de Orotina y deberá leerse así:
+“Las comisiones sesionarán en el edificio municipal y deberá el Concejo Municipal convocar en las Sesiones Ordinarias, a las sesiones ordinarias o extraordinarias de las comisiones permanentes o especiales cuando se trasladen documentos que deban ser atendidos por las mismas, quedando convocados en la misma sesión los regidores propietarios y los asesores. La hora de las sesiones debe acordarse de tal forma que permita a la totalidad de sus miembros asistir a las sesiones sin sufrir problemas de tipo laboral y mientras no le provoque choques de horario con otra comisión. La fecha y hora de las sesiones ordinarias podría cambiarse si resultara en un problema para el trabajo de la comisión. Asimismo, podría variarse el lugar de la sesión de la comisión siempre y cuando sea de manera excepcional y por unanimidad de los integrantes de esta.”
+Se proceda con la publicación respectiva en el Diario Oficial La Gaceta.
