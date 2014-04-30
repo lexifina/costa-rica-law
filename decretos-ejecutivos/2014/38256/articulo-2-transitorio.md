@@ -1,0 +1,1 @@
+Transitorio II.—Todos los funcionarios que a la fecha estuvieren autorizados para portar armas propiedad del Estado, contarán con un plazo de tres meses contados a partir de su publicación, para ajustarse íntegramente a los términos del presente Reglamento.

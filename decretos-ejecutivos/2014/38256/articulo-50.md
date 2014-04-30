@@ -1,0 +1,2 @@
+Artículo 50.—Reposición de los permisos. En caso de reposición por pérdida, robo o deterioro del permiso para portar armas, el servidor deberá presentar una solicitud de reposición ante la Unidad de Armería Institucional, debiendo efectuar una explicación sobre lo acaecido y cumplir con los requisitos establecidos al efecto por la Dirección General de Armamento del Ministerio de Seguridad Pública.
+Además, en caso de robo o pérdida deberá presentarse copia del documento de denuncia ante la Autoridad Judicial competente, cuando así correspondiere.

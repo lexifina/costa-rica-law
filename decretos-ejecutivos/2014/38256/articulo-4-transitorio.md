@@ -1,0 +1,1 @@
+Transitorio IV.—Se otorga un plazo de un año para que el Ministerio de Obras Públicas y Transporte ejecute las acciones pertinentes, con la finalidad de que la Unidad de Armería Institucional y demás instalaciones en que se custodian las armas de fuego, cumplan con los condiciones que se establecen en los artículos 19, 20 y 21 del presente Reglamento, según corresponda.

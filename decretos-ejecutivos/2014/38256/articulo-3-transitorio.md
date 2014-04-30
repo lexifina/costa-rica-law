@@ -1,0 +1,1 @@
+Transitorio III.—Se otorga un plazo de seis meses contados a partir de la entrada en vigencia del presente Reglamento, para que el Ministerio de Obras Públicas y Transportes ponga en operación el Sistema Institucional de Administración de Armas y Accesorios.

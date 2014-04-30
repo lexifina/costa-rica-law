@@ -1,0 +1,2 @@
+Artículo 32.—Actualización del registro de municiones. Con base en la información mencionada en el artículo anterior, el Encargado de Custodia deberá actualizar el Registro de Municiones correspondiente. Asimismo la Unidad de Armería Institucional actualizará el registro general y comunicará lo anterior a la Dirección General de Armamento.
+La asignación de nuevas municiones corresponderá a la Unidad de Armería Institucional, a través de los procedimientos oficiales establecidos al efecto y siguiendo los procedimientos y controles correspondientes.

@@ -1,0 +1,7 @@
+Artículo 61.—Procedimiento para la destrucción de las armas. Para dar de baja armas de fuego por inservibilidad, la Administración debe demostrar que éstas ya no son de utilidad y cumplir con los requisitos que establecen los artículos 27, 32, 33 y concordantes del Reglamento para el Registro y Control de Bienes de la Administración Central.
+Para la destrucción de las armas, la Unidad de Armería Institucional deberá gestionar ante el Ministro de Obras Públicas y Transportes, la firma de la solicitud de destrucción de las armas que a tales efectos dirigirá el MOPT a la Dirección General de Armamento. Dicha solicitud debe contemplar:
+a. Las características de las armas: tipo, serie, marca, modelo y calibre; además de la justificación del por qué se requiere su destrucción.
+b. Indicación del nombre de la persona autorizada para firmar el Acta de Destrucción que se confeccionará para tal efecto, así como el o los números de teléfono donde poder ubicar a dicha persona para las coordinaciones pertinentes. Esta persona, al momento de presentarse en las instalaciones del Arsenal Nacional, deberá portar su cédula de identidad al día y en buen estado.
+c. Personería jurídica vigente.
+d. Copia de la matrícula o certificación de inscripción emitida por el Departamento de Control de Armas y Explosivos, del o las armas a destruir.
+e. Copia de la documentación oficial donde se le dio de baja al arma o las armas, por parte de la Unidad a cargo del Registro y Control del MOPT.

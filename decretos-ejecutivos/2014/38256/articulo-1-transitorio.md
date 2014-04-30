@@ -1,0 +1,1 @@
+Transitorio I.—Las dependencias competentes del Ministerio de Obras Públicas y Transportes deberán divulgar las disposiciones del presente Reglamento, en el plazo de un mes contado a partir de su publicación y capacitar adecuadamente a los funcionarios involucrados de alguna forma con el manejo, uso o custodia de armamento y municiones.

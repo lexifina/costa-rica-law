@@ -1,0 +1,17 @@
+Artículo 20.—Condiciones mínimas de la Unidad de Armería Institucional. La Armería Institucional deberá contar con las siguientes condiciones mínimas:
+20.1 Las medidas que debe tener la Armería dependerán del total de armas, municiones, cargadores y otros equipos de uso policial que tenga bajo su custodia. Deberá asimismo contar con un espacio para la ubicación de una mesa de trabajo para el mantenimiento preventivo de las armas, cargadores, municiones y otras funciones propias de la Armería.
+20.2 Debe tener paredes, piso y contrapisos de concreto; en el caso de existir cielos suspendidos y estos tengan comunicación con otras áreas del inmueble, se deberá clausurar dicha comunicación; no podrán estar separadas del edificio principal, salvo justificación técnica avalada por la Dirección General de Armamento, ni colindar con áreas de almacenamiento y utilización de sustancias inflamables, alimentos, comedores, baños, celdas, dormitorios y oficinas de atención al público.
+20.3 Debe contar con elementos de seguridad para su acceso que no permitan la visualización del interior de la Armería; estos elementos han de ser: una puerta metálica con cierres de seguridad y una única ventanilla acondicionada para la entrega y recibo del armamento, la que debe contar con iguales medidas de seguridad que la puerta.
+20.4 La puerta y la ventana de la Armería deberán contar con:
+a. La puerta: Un llavín de seguridad, dos picaportes o aldabas, una arriba y una abajo, con dos candados de seguridad que no permitan el uso de palanca; además, los pines de las bisagras deben ser soldados.
+b. La ventana, según su tamaño, contará con al menos dos cierres internos con candado.
+20.5 Tendrá una mesa de trabajo de al menos 1.50 metros de largo x 70 centímetros de ancho x 75 centímetros de alto, preferiblemente de metal, para el mantenimiento de las armas.
+20.6 Deberá contar con un sistema de ventilación natural o artificial, que no signifique un detrimento a su seguridad.
+20.7 Según el tipo y cantidad de armamento con que cuente, debe tener la estantería necesaria para la ubicación de armas cortas y largas y demás equipos en forma segura.
+20.8 Dependiendo de las condiciones ambientales y del inmueble donde se ubique la Armería, esta deberá contar con algún sistema de extracción de humedad.
+20.9 La instalación eléctrica debe estar debidamente entubada y su alumbrado debe ser fluorescente que imite la luz de día natural.
+20.10 Debe contar con un sistema de extinción de incendios o bien extintores tipo ABC, de mínimo 10 libras con su carga vigente.
+20.11 Dentro de la Armería y junto a la ventanilla de recepción, debe haber un cajón que mida 60x60x60 centímetros, elevado del suelo a 20 centímetros, que contenga arena en un 95% de su capacidad, la cual debe ser cambiada o zarandeada aproximadamente cada 6 meses. Este cajón no podrá ser de metal por ninguna razón. Hacia este cajón se dirigirán los cañones de las armas, cuando sean manipuladas para su entrega y devolución.
+20.12 Debe tener instalado algún sistema o dispositivo electrónico de seguridad y de monitoreo.
+En la Armería sólo se pueden custodiar armas, cargadores, municiones, chalecos antibalas y equipo policial propiedad del Estado, por ninguna razón se deben almacenar explosivos.
+Dentro de la Armería está totalmente prohibido, dormir, fumar, preparar y calentar alimentos, así como el realizar cualquier otra actividad ajena a las funciones de la Armería.

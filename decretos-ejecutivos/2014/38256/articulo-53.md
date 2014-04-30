@@ -1,0 +1,2 @@
+Artículo 53.—Requisitos para la asignación de armas. Todo funcionario que solicite la asignación de un arma deberá presentar original y copia del permiso para portar armas vigente, otorgado por la Dirección General de Armamento del Ministerio de Seguridad Pública.
+Sólo se suministrarán armas a quienes ejerzan funciones policiales o de seguridad y vigilancia, conforme lo establecido por este Reglamento. Tales servidores podrán utilizar esas armas única y exclusivamente en el ejercicio de sus funciones.

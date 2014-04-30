@@ -1,0 +1,1 @@
+Artículo 69.—Derogatoria. Se deroga el Decreto Ejecutivo N° 35429 del 10 de julio del 2009, publicado en La Gaceta N° 157 del 13 de agosto del 2009, “Reglamento para el uso de armas de fuego por los funcionarios del Ministerio de Obras Públicas y Transportes”.

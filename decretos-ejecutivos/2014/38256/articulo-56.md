@@ -1,0 +1,2 @@
+Artículo 56.—Incorporación de la información en el Sistema Institucional de Administración de Armas y Accesorios. El Encargado la Unidad de Armería Institucional deberá completar toda la información que el Sistema Institucional de Administración de Armas y Accesorios le requiera, cuando asigne, desasigne o retenga temporalmente armas de fuego.
+En este se incorporará asimismo la información sobre las municiones, cargadores, chalecos antibalas y accesorios que se le asignen al servidor.

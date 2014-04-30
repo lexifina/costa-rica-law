@@ -1,0 +1,1 @@
+Artículo 45.—Antecedentes Penales. La Administración efectuará las acciones que correspondan para verificar si el funcionario que requiere el permiso de portación de armas tiene antecedentes penales. En todo caso, en lo que a este aspecto respecta, se procederá conforme lo dispuesto en el artículo 34 del Reglamento a la Ley de Armas y Explosivos.

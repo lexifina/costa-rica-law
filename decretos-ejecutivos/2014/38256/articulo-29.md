@@ -1,0 +1,1 @@
+Artículo 29.—Confidencialidad del Registro de Armas. El Registro de Armas será confidencial y sólo tendrán acceso a él las autoridades administrativas y judiciales competentes, por disposición expresa del artículo 11 de la Ley de Armas y Explosivos.

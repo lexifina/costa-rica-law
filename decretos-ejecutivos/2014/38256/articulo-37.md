@@ -1,0 +1,1 @@
+Artículo 37.—Autorización para la importación de armas. Cuando el Ministerio de Obras Públicas y Transportes requiera importar armas de fuego, deberá contar de previo con la autorización del Ministerio de Seguridad Pública, establecida en el artículo 27 de la Ley de Armas y Explosivos N° 7530.
