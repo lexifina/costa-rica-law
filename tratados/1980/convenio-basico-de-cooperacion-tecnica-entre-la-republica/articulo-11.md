@@ -1,2 +1,0 @@
-ARTICULO DECIMO PRIMERO
-Corresponderá a los respectivos organismos nacionales encargados de la cooperación técnica la preparación de los proyectos previstos en el artículo segundo, para someterlos a la Comisión Mixta. En el caso de Costa Rica tales funciones corresponden al Ministerio de Relaciones Exteriores y a la Oficina de Planificación Económica (OFIPLAN). En el caso del Ecuador, al Ministerio de Relaciones Exteriores y al Comité Nacional de Cooperación Técnica y Asistencia Económica.
