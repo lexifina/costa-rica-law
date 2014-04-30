@@ -1,0 +1,1 @@
+Artículo 18.—Procedimientos Sustitutos. Será competencia de la CNFL autorizar la aplicación de los procedimientos sustitutivos como una excepción a los procedimientos de adquisición, de conformidad con los principios constitucionales que rige la materia.

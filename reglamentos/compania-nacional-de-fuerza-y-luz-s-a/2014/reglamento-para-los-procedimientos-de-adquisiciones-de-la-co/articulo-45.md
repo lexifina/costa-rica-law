@@ -1,0 +1,6 @@
+Artículo 45.—De las Sanciones. Una vez determinado el incumplimiento o infracciones del contratista, y con el debido proceso, se procederá a adoptar algunas de las siguientes sanciones:
+a) Apercibimiento por escrito: El cual consiste en una amonestación formal escrita, a efectos de que el mismo corrija su conducta cuando fuere posible y constituye un antecedente para la sanción de inhabilitación.
+b) Inhabilitación de dos a cinco años: Atendiendo a la gravedad de la falta, se le impondrá la sanción de inhabilitación, la cual consiste en el impedimento para participar en las compras con fondos públicos de dos a cinco años.
+La sanción deberá estar debidamente motivada y será aplicada atendiendo al procedimiento adoptado, por la Proveeduría y contra la misma solamente cabrá recurso de revocatoria, el cual deberá interponerse en un plazo no mayor a tres días hábiles después de su notificación. La sanción deberá ser proporcional a la falta cometida.
+La aplicación de las sanciones anteriores se realizará sin perjuicio de la ejecución de garantías, multas y daños y perjuicios, cuando corresponda.
+La Proveeduría será la encargada de llevar el registro de las sanciones aplicadas a los contratistas.

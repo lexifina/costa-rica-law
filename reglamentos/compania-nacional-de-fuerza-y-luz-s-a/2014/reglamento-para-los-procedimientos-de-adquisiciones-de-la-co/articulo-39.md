@@ -1,0 +1,1 @@
+Artículo 39.—Presentación de la Solicitud de Revisión. La solicitud de revisión deberá presentarse ante la Proveeduría, dentro del plazo de tres días hábiles después de comunicada la adjudicación. Para tal fin se podrán utilizar medios electrónicos.

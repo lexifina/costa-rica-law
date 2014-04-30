@@ -1,0 +1,14 @@
+Artículo 8º—Registro de Proveedores. Los proveedores registrados en el Sistema Electrónico de Compras Públicas “Mer-link” automáticamente formarán parte del Registro de Proveedores de la CNFL.
+Durante el primer trimestre de cada año, la Proveeduría invitará a todos los interesados a formar parte del Registro de Proveedores, mediante la publicación en un diario de circulación nacional y/o en su sitio web y/o en cualquier otro medio digital de publicidad.
+Las personas físicas o jurídicas interesadas, que cumplan con los requisitos solicitados, podrán así mismo solicitar su incorporación al Registro de Proveedores de la CNFL en cualquier momento.
+Los interesados en inscribirse en el Registro de Proveedores de la CNFL deberán utilizar el formulario disponible para dicho fin en la página Web de la CNFL, o solicitar se le remita vía correo electrónico. Una vez lleno el formulario, se podrá entregar personalmente, vía Internet o por fax.
+Una vez recibida la solicitud de los interesados para integrar el Registro de Proveedores, la Proveeduría, en un plazo máximo de dos días hábiles verificará el cumplimiento de los requisitos y en el caso de existir un incumplimiento o defecto, concederá un plazo máximo de tres días hábiles adicionales para que se subsane. Si la prevención no es atendida en tiempo y forma, la solicitud será rechazada, sin responsabilidad para la CNFL.
+Cuando un proveedor esté interesado en participar en un determinado procedimiento de adquisición y no esté inscrito en el Registro de Proveedores, podrá presentar la información, siempre que cumpla con todos los requisitos que se le solicitan en el formulario. Podrá quedar inscrito en dicho registro por solicitud expresa del oferente y siempre que se cumpla lo establecido en el párrafo anterior.
+En el momento de darse un cambio en su situación jurídica o de los bienes y servicios que ofrecen los proveedores inscritos, éstos estarán obligados a verificar y actualizar la información aportada al registro, para lo cual deben presentar los documentos que demuestren esa situación o realizar la actualización por el medio digital disponible.
+Se podrá dar la exclusión legal de una persona física o jurídica del registro por los siguientes motivos:
+a) Muerte o extinción.
+b) Manifestación expresa del interesado.
+c) Carencia de interés de la CNFL de continuar contratando determinado bien o servicio.
+d) Inactivo por no actualización de atestados y referencias.
+e) No actualización de la información en los términos que se establece en el presente reglamento.
+Salvo cuando la exclusión se fundamente en la manifestación expresa del interesado, o en las causas señaladas en los incisos a), c), d) y e), anteriores, se dará audiencia al proveedor a fin de que ejercite las Garantías Constitucionales que le asisten entre ellas el debido proceso y el derecho de defensa. En el caso de proveedores extranjeros se les notificará en la dirección registrada.

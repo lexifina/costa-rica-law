@@ -1,0 +1,1 @@
+Artículo 22.—Medio, Moneda y Forma de Pago. En el requerimiento de adquisición se establecerá el medio, la moneda y el plazo de pago. Asimismo, podrá fijarse un único anticipo que será pagado al inicio del contrato, cuyo monto podrá variarse cuando las causas lo ameritan, en cuyo caso el adjudicatario deberá aportar una garantía colateral, por el 100% del anticipo.

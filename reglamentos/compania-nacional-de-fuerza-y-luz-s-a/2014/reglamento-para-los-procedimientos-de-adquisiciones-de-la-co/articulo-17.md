@@ -1,0 +1,5 @@
+Artículo 17.—Concesión de Instalaciones Públicas. La CNFL mediante Concurso, podrá dar en concesión sus instalaciones a personas físicas o jurídicas, con el objeto de que la exploten en la prestación de un servicio complementario, a cambio de un precio que se determinará a través del concurso respectivo.
+Si dentro de los requerimientos de adquisición se establecen aportes de la CNFL, los mismos deben ser considerados en el precio.
+El concesionario tiene prohibido dañar o hacer uso distinto a los bienes concesionados, caso contrario se tendrá como una causal de resolución contractual y eventualmente se cobrarán daños y perjuicios.
+La concesión de instalaciones otorga al concesionario únicamente el beneficio de utilizar el bien por el plazo establecido. La concesión no generará relación de inquilinato, derecho de llave ni otro beneficio diferente del indicado.
+La CNFL podrá poner término a la concesión, cuando lo estime necesario a sus intereses. Lo hará mediante resolución motivada, previo aviso al concesionario, con al menos tres meses de anticipación a su vencimiento.

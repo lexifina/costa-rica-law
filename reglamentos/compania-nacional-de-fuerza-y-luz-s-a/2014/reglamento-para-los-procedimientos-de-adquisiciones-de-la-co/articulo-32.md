@@ -1,0 +1,1 @@
+Artículo 32.—Subsanaciones. Todos los elementos que componen la oferta podrán ser subsanados cuando estén referenciados de forma completa en la oferta, salvo aquellos que por medio de la subsanación confieran una ventaja indebida.

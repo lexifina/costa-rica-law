@@ -1,0 +1,1 @@
+Artículo 25.—Retenciones. En el requerimiento de adquisición se podrán incorporar cláusulas de retención a las sumas devengadas para asegurar una correcta ejecución contractual, cuando ello resulte de interés para la CNFL.

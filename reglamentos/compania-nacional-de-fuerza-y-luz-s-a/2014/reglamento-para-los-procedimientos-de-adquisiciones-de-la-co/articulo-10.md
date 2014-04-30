@@ -1,0 +1,2 @@
+Artículo 10.—Sanciones. Las personas cubiertas por las prohibiciones establecidas en el presente Reglamento que participen, directa o indirectamente en un procedimiento de adquisición o adquisición especial, incurrirán en falta grave, misma que será valorada de acuerdo al grado de mando, sin perjuicio de la responsabilidad laboral, civil o penal respectiva.
+Cualquier otra irregularidad en que incurra el personal de la CNFL en un procedimiento de adquisición o adquisición especial, será sancionada conforme al régimen interno vigente.

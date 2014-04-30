@@ -1,0 +1,1 @@
+Artículo 28.—Estudios Preliminares. Previo a la elaboración de los requerimientos de adquisición definitivos, se podrá recurrir al mercado respectivo para realizar los estudios pertinentes. La invitación para participar en el estudio preliminar, se realizará mediante publicación en la prensa escrita, sitio Web u otros medios.

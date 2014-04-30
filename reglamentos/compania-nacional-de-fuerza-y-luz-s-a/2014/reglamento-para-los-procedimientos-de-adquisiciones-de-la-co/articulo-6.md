@@ -1,0 +1,1 @@
+Artículo 6º—Actualización Económica. Los montos establecidos en el presente reglamento serán actualizados cada año, según el Índice de Precios al Productor Industrial establecido por el Banco Central para el año anterior y será ajustado mediante resolución por la Proveeduría de la CNFL, en el mes de enero de cada año.

@@ -1,0 +1,1 @@
+Artículo 11.—Acceso a la Información. Los documentos calificados como confidenciales en el requerimiento de adquisición, y que formen parte del expediente del procedimiento de adquisición, podrán ser consultados solamente por el oferente respectivo.
