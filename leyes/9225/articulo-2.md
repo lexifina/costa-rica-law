@@ -1,0 +1,3 @@
+ARTÍCULO 2.- El terreno a que se refiere el artículo 1 de esta ley podrá ser utilizado por el CNP para la ejecución de sus fines en la forma que mejor convenga a sus intereses; queda a discreción de la Junta Directiva el mantenerlo como parte de sus activos, segregarlo, venderlo total o parcialmente, hipotecarlo, comprometerlo en garantía o prestarlo bajo convenios de cooperación o contraprestación con otras instituciones del Gobierno de la República o de la Municipalidad de Turrialba, para el desarrollo de sus actividades y la construcción de sus instalaciones en el cantón de Turrialba.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinticuatro días del mes de marzo del año dos mil catorce.
