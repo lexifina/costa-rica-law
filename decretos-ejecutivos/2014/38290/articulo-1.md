@@ -1,0 +1,15 @@
+N° 38290-C
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 89, 140, inciso 3) de la Constitución Política y 25.1 de la Ley General de la Administración Pública, y en la Ley Nº 8560, del 16 de noviembre del 2006, publicada en La Gaceta Nº 237 del 11 de diciembre del 2006 (Convención para la Salvaguardia del Patrimonio Cultural Inmaterial).
+Considerando:
+I.—Que las festividades en honor a “Nuestra Señorita Virgen de Guadalupe”, que se celebran anualmente en la ciudad de Nicoya, según la tradición oral popular se remontan a mediados del siglo XVI, como consecuencia e influjo del culto establecido en México.
+II.—Que las celebraciones comprenden varios momentos fundamentales: inician el 1° de noviembre, con la ceremonia denominada “contadera de los días”; continúan con la “pica de leña”, que se realiza a mediados del mes de noviembre; siguen con varias actividades desde el 8 de diciembre y, concluyen el 12 del mismo mes, con el llamado “celebro”, día principal de los festejos.
+III.—Que una leyenda en la cual intervino la Virgen de Guadalupe en el cerro de Las Cruces en Nicoya, dio origen al “baile o juego de la yegüita”, cuya música, instrumentos musicales y coreografía, constituyen una expresión singular y destacada de esta tradición cultural.
+IV.—Que la organización de esa celebración –caracterizada por su complejidad– desde sus inicios ha sido emprendida por la Cofradía de la Virgen de Guadalupe en Nicoya, la cual es una de las más antiguas en Costa Rica y aún posee vigencia en sus funciones.
+V.—Que se reconoce el papel de las mujeres en la organización de las festividades, pues son ellas, quienes cada año votan para elegir los cargos y funciones claramente definidas para cada uno de los “empleados” de la Cofradía, liderados por un mayordomo y una mayordoma, miembros del pueblo nicoyano.
+VI.—Que la celebración también incluye a los “patrones” de la iglesia católica, quienes forman parte de la organización y de la festividad en general, en la que realizan importantes tareas y funciones.
+VII.—Que las celebraciones son un referente de identidad para diferentes sectores del pueblo nicoyano, pues están profundamente arraigadas tanto en la población de origen indígena como también mestiza, en los ámbitos rural y urbano del cantón de Nicoya.
+VIII.—Que la celebración de esta festividad, con sus distintos rituales lúdicos y religiosos, y variedad de expresiones gastronómicas, es reflejo del sincretismo cultural que se produjo en la península de Nicoya –a partir de la conquista- entre las tradiciones culturales indígenas y las hispanas, lo que constituye un elemento fundamental de la identidad cultural del pueblo nicoyano, que refuerza los vínculos sociales de comunidad. Por tanto:
+Decretan:
+Artículo 1°—Declarar la festividad que se celebra anualmente en la ciudad de Nicoya, denominada “Nuestra Señorita Virgen de Guadalupe”, con sus diversas expresiones culturales, Patrimonio Cultural Inmaterial del cantón de Nicoya, y por extensión de la provincia de Guanacaste.

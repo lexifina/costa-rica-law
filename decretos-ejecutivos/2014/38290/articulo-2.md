@@ -1,0 +1,1 @@
+Artículo 2°—Promover la salvaguardia y divulgación de esta festividad en la comunidad nicoyana, guanacasteca y, en el resto del país, por ser un ejemplo de creatividad, organización y preservación de las tradiciones culturales y respeto de la diversidad cultural.
