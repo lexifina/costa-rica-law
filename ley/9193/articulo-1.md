@@ -17,3 +17,4 @@ Pago de intereses de títulos de la deuda pública. En el marco de la renegociac
 En caso de colocación con no residentes la Tesorería Nacional deberá publicar la información financiera de esas colocaciones.
 (Modificado el inciso c) por el artículo 1° del decreto ejecutivo N° 38288 del 24 de marzo del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38420 del 23 de abril del 2014)
+(Reformado por el artículo 1° de la ley N° 9241 del 2 de mayo del 2014)
