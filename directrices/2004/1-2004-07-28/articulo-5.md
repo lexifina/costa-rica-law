@@ -1,1 +1,0 @@
-Artículo 5º—Los estados financieros deben presentarse debidamente firmados por el Contador a cargo, y los correspondientes al cierre del ejercicio, requieren además de la firma del Contador, la firma y aprobación del Director Ejecutivo de la Institución.
