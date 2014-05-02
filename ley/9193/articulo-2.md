@@ -21,3 +21,4 @@ Céd. Jur 3-008-134912
 (Modificado por el artículo 1° del decreto ejecutivo N° 38420 del 23 de abril del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38389 del 25 de abril del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38425 del 30 de abril del 2014)
+(Reformado por el artículo 2°y 3° de la ley N° 9241 del 2 de mayo del 2014)
