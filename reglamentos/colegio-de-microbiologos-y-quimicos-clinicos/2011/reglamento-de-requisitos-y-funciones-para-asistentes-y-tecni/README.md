@@ -14,3 +14,4 @@ Reglamento de Requisitos y Funciones para Asistentes y Técnicos de Laboratorio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-30 | la propia norma |
+| 2 | 2014-05-03 | Reglamento 10 (2014-05-03) |
