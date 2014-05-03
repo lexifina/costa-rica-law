@@ -1,4 +1,5 @@
 CAPÍTULO X
 De la Dirección Ejecutiva
-Artículo 33.—La Dirección Ejecutiva es el órgano superior en materia ejecutiva, administrativa y funcional de la Federación, es nombrado por el Consejo Directivo y durará en sus funciones cuatro años, pudiendo ser reelecto.
-(Así reformado en sesión N° 03 del 7 de noviembre de 2009)
+Artículo 33.—La Dirección Ejecutiva es el órgano superior en materia ejecutiva, administrativa y funcional de la Federación, es nombrado por el Consejo Directivo mediante concurso de atestados por tiempo indefinido, La potestad de nombrar al o la directora Ejecutiva es exclusiva del Consejo Directivo y se rige por el manual de puestos de la Federación de Municipalidades de Guanacaste, tomando en cuenta que debe ser el jerarca administrativo de la Institución. Tendrá un perfil profesional, su selección se realizará atendiendo los atestados profesionales de acuerdo con el perfil definido en el Manual de Puestos y cualquier otro requisito razonado que considere el Consejo Directivo.
+El proceso de concurso para el nombramiento del o la Directora Ejecutiva atenderá lo establecido por el Código Municipal en esta materia y cualquier otra disposición al respecto que exista en otras normativas internas o aplicables al efecto.
+(Así reformado mediante sesión extraordinaria N° 01 del 3 de mayo del 2014)

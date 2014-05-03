@@ -1,6 +1,7 @@
 CAPITULO XIV
 De las funciones del/la tesorero/a
-Artículo 39.—El tesorero será elegido junto con el resto de los componentes del consejo directivo, por la asamblea general por un período de un año.
+Artículo 39.—El Tesorero será elegido junto con el resto de los componentes del Consejo Directivo, por la Asamblea General por un período de dos años.
+(Así reformado el párrafo anterior mediante sesión extraordinaria N° 01-2014 del 3 de mayo del 2014)
 Son funciones del/la tesorero/ a:
 a. Llevar el control de los egresos según el presupuesto.
 b. Ejercer control del estado mensual de tesorería.

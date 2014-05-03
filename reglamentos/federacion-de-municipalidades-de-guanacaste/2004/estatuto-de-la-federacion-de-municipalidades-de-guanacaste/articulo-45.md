@@ -10,4 +10,6 @@ e) Las subvenciones que acuerde en su favor el Estado, a través de los presupue
 f) Donaciones, herencias, legados y cualquier tipo de ingresos eventuales que se acordasen en su favor.
 g) Los bienes que puedan ser adquiridos por la Federación, que deberán figurar en el inventario.
 h) Los estudios, anteproyectos, proyectos obras e instalaciones que costee o realice la Federación.
+i) Los aporten que se otorguen mediante ley.
+(Así adicionado el inciso i) anterior mediante sesión extraordinaria N° 01-2014 del 3 de mayo del 2014)
 (Así reformado mediante sesión N° 01 celebrada el 18 de junio del 2005, asimismo corrida su numeración al adicionarse los artículos 43 y 44 ordenando correr la numeración siguiente , por lo que este artículo pasó de ser el artículo "43" al actual artículo "45")

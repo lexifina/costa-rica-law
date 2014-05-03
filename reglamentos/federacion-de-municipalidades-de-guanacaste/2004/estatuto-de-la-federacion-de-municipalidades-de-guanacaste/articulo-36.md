@@ -1,7 +1,8 @@
 TÍTULO III
 De las funciones del/la presidente/a vicepresidente/a
 y tesorero/a
-Artículo 36.—El/la presidente/a será elegido junto con el resto de los componentes del consejo directivo, por la asamblea general por un período de un año.
+Artículo 36.—El/La presidente/a será elegido junto con el resto de los componentes del Consejo Directivo, por la Asamblea General por un periodo de dos años.
+(Así reformado el párrafo anterior mediante sesión extraordinaria N° 01-2014 del 3 de mayo del 2014)
 Son funciones del/la Presidente/a:
 a. Presidir, abrir, suspender y cerrar las sesiones.
 b. Preparar el orden del día, conjuntamente con el director ejecutivo.

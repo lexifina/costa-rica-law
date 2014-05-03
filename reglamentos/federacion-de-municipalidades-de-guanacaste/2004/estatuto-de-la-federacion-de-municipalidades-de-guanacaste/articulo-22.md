@@ -6,7 +6,8 @@ b- Aprobar, no más tarde del mes de julio, el Plan Anual de Acción Intermunici
 c- Elegir y juramentar al Presidente, Vicepresidente, y al resto de los miembros del Consejo Directivo, así como al Fiscal.
 d- Remover o ejercer la autoridad disciplinaria en relación con el Director Ejecutivo.
 e- Conocer y decidir sobre reformas parciales o totales al presente Estatuto, por mayoría calificada.
-f- Acordar y aprobar los Reglamentos Internos
+f- Recomendar al Concejo Directivo y Dirección Ejecutiva, la creación de reglamentos y manuales.
+(Así reformado el inciso anterior mediante sesión extraordinaria N° 01-2014 del 3 de mayo del 2014)
 g- Recibir en las asambleas a personas, grupos organizados y representantes de instituciones que así lo soliciten.
 h- Conocer, aprobar o improbar los informes, que rindan los demás órganos de la Federación.
 i- Llenar las vacantes que se presenten en El Consejo Directivo.
