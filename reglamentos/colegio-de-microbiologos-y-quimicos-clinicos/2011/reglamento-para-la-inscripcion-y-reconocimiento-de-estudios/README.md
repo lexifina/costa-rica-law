@@ -15,3 +15,4 @@ Reglamento para la Inscripción y Reconocimiento de Estudios de Posgrado del Col
 | --- | --- | --- |
 | 1 | 2011-11-09 | la propia norma |
 | 2 | 2011-11-09 | Reglamento 26 (2011-10-19) |
+| 3 | 2014-05-03 | Reglamento 10 (2014-05-03) |
