@@ -1,0 +1,1 @@
+Artículo 13.—En lo concerniente a vacaciones y licencias, los miembros de la Delegación Permanente estarán sujetos a las disposiciones del Reglamento Autónomo de Servicio del Ministerio de Comercio Exterior.

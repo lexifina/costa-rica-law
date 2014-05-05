@@ -1,0 +1,1 @@
+Artículo 12.—Al Jefe de la Delegación le corresponderán gastos de representación, los cuales serán determinados por el Ministerio de Comercio Exterior e incorporados al Presupuesto, de conformidad con la normativa vigente que regule dichos gastos.

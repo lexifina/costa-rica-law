@@ -1,0 +1,1 @@
+Artículo 10.—Cuando el Jefe de la Delegación Permanente se ausentare definitivamente o por más de un mes de su puesto, deberá acreditar ante la OCDE a otro miembro de la Delegación en calidad de Jefe.
