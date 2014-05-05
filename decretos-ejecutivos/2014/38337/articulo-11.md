@@ -1,0 +1,2 @@
+Artículo 11.—Adiciónese un inciso i) al artículo 27 del Reglamento de Uniformes y Distintivos de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública, Decreto Ejecutivo N° 37188-SP, del 8 de mayo del 2012, para que en adelante se lea de la siguiente manera:
+“I. De la camiseta. Para ambos sexos, será de color blanca o negra, cuello redondo, tendrá en la parte delantera la leyenda “POLICÍA” y en la trasera la leyenda “FUERZA PÚBLICA”, en color gris o amarillo”.

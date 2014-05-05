@@ -1,0 +1,2 @@
+Artículo 15.—Adiciónese un artículo 40 bis del Reglamento de Uniformes y Distintivos de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública, Decreto Ejecutivo N° 37188-SP, del 8 de mayo del 2012, para que en adelante se lea de la siguiente manera:
+“Artículo 40 bis. Del abrigo policial. Se utilizará un abrigo tejido en lana sintética, color azul oscuro, tendrá hombreras en army negro, sobre el army lleva charreteras, en las mangas tendrá coderas de material army, el cuello será en forma de “V”.
