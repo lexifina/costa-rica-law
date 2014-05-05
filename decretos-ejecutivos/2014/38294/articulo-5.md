@@ -1,0 +1,2 @@
+Artículo 5º—Naturaleza. La ejecución del gasto mediante el Fondo de Caja Chica es un procedimiento de excepción y por consiguiente limitado a la atención de gastos menores indispensables y urgentes, según el criterio justificado del COSEVI.
+Específicamente, con cargo a dicho fondo se podrán realizar gastos correspondientes a las subpartidas presupuestarias consideradas para tal efecto, de acuerdo a lo que establece el Clasificador por Objeto del Gasto del Sector Público para Compras por Caja Chica de la Tesorería Nacional del Ministerio de Hacienda.

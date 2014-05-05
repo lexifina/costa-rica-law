@@ -1,0 +1,1 @@
+Artículo 16.—Margen permitido de redondeo. Para evitar los faltantes o sobrantes en los arqueos que se realicen al Fondo de Caja Chica, se procederá a redondear a la unidad monetaria superior inmediata, los montos que presenten denominaciones inferiores a ¢5,00 (cinco colones).

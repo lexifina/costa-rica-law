@@ -1,0 +1,1 @@
+Artículo 42.—Procedimiento de cierre del Fondo de Caja Chica por parte de la Institución. En caso de que el “Responsable” del Fondo de Caja Chica considere pertinente el cierre, procederá de acuerdo con los lineamientos que establezca la Junta Directiva e informará a la Tesorería Nacional del Ministerio de Hacienda, al respecto.

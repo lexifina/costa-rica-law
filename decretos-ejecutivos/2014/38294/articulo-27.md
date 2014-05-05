@@ -1,0 +1,1 @@
+Artículo 27.—Ubicación física. La ubicación física del Fondo de Caja Chica deberá disponer de la seguridad y medios de protección adecuados para la custodia del dinero, valores y documentos que en el mismo se manejen.

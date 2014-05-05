@@ -1,0 +1,1 @@
+Artículo 39.—Depósito de intereses. Los intereses devengados por los saldos en la cuenta bancaria del Fondo de Caja Chica, deberán ser trasladados mensualmente al Fondo General del Gobierno, según el artículo Nº 58 del “Reglamento para el Funcionamiento de la Caja Única”.

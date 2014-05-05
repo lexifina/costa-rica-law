@@ -1,0 +1,3 @@
+Artículo 18.—Límite de gasto. Para incurrir en gastos por medio del Fondo Caja Chica debidamente autorizados por el Responsable, se deberá acatar los límites económicos establecidos por la Dirección Financiera de conformidad con las directrices que la Tesorería Nacional ha emitido al respecto y aprobados por la Junta Directiva y comunicados al inicio de cada período presupuestario, de acuerdo con la normativa aplicable.
+Para las compras de bienes y servicios por montos superiores al límite de gasto establecido, deberá existir autorización previa por parte de la Junta Directiva, mediante la emisión del acuerdo respectivo
+Se exceptúan las situaciones descritas en el artículo 7° y 8 de este reglamento.

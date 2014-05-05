@@ -1,0 +1,1 @@
+Artículo 15.—Sobrantes de dinero. Los sobrantes de dinero, resultado de los arqueos practicados al Fondo de Caja Chica, se depositarán en el Fondo General del Gobierno por las vías autorizadas por la Tesorería Nacional del Ministerio de Hacienda.

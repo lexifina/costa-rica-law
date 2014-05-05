@@ -1,0 +1,1 @@
+Artículo 10.—Control registro de firmas. El Responsable del Fondo de Caja Chica, deberá mantener en su poder el registro actualizado de las firmas de los funcionarios autorizados para aprobar los documentos para el trámite de los rubros indicados en los artículos 7 y 8 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 22.—Transferencias electrónicas de fondos. La ejecución de las operaciones de caja chica y los trámites de reintegro se podrán realizar por medios electrónicos a través de transferencias electrónicas, así como los aumentos permanentes y/o temporales desde la cuenta domiciliada en caja única a la cuenta exclusiva para el fondo aquí definido.
