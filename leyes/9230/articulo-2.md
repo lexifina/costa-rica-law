@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se cambia el uso del suelo de la finca inscrita bajo el Sistema de Folio Real matrícula número tres uno cuatro dos uno cero - cero cero cero (N.° 314210-000), de terreno actualmente destinado a ampliación de plaza de deportes a zona verde y parque.
