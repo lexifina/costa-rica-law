@@ -1,3 +1,0 @@
-Artículo 19.—Etapa VI. Declaratoria de elegibilidad: Una vez realizadas las valoraciones teórica y de técnicas complementarias, el Departamento de Recursos Humanos realizará el análisis de los resultados de las mismas y procederá a declarar los oferentes elegibles para el puesto en concurso que se trate, consignándolo dentro del expediente del mismo.
-Estos serán incluidos inmediatamente dentro del registro de elegibles, lo cual les facultará para participar en otros concursos o incluso, ser nombrados interinamente.
-Un candidato mantendrá la condición de elegible por un período máximo de dieciocho meses contados a partir de su declaratoria, lo cual le facultara para ser nombrado interinamente en plazas vacantes, permanentes o temporales.

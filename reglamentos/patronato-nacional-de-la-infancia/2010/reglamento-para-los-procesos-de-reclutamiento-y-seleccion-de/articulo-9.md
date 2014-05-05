@@ -1,2 +1,0 @@
-Artículo 9º—De la recepción de los documentos: En el caso de las copias indicadas en los incisos c), e), f) y g) del artículo anterior, éstas serán debidamente cotejadas con sus originales por el Departamento de Recursos Humanos, el cual deberá certificar al dorso de la copia que la misma resulta ser fiel y exacta con su original.
-Asimismo, cada documento recibido deberá tener la fecha de recibido, el nombre y la firma del funcionario que la recibió.

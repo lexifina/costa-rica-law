@@ -1,2 +1,0 @@
-Artículo 11.—Etapa I. Apertura del concurso: Corresponderá al Departamento de Recursos Humanos realizar la comunicación de la apertura de los concursos, por medio de un cartel, que aparecerá ya sea a través de los medios electrónicos institucionales, publicaciones y comunicados externos o internos que estime pertinentes.
-Dicha comunicación será requisito indispensable para la apertura del concurso y deberá hacerse constar dentro del expediente del mismo.

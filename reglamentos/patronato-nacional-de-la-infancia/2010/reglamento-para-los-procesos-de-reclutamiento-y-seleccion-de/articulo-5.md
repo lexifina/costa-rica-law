@@ -1,1 +1,0 @@
-Artículo 5º—Deber de informar: Será obligación de las jefaturas de oficinas o departamentos, comunicar al Departamento de Recursos Humanos de cualquier vacante temporal o permanente que amerite la apertura de un proceso de reclutamiento y selección para ser llenada la plaza vacante, de acuerdo con los procedimientos establecidos por dicho Departamento para solicitar personal.

@@ -1,1 +1,0 @@
-Artículo 15.—Etapa III. Revisión de requisitos: La documentación aportada por cada oferente será analizada y una vez comprobado el cumplimiento de todos los requisitos documentales establecidos en el cartel, la misma deberá incorporarse dentro de un expediente administrativo, el cual será debidamente foliado y rotulado con el nombre del interesado.

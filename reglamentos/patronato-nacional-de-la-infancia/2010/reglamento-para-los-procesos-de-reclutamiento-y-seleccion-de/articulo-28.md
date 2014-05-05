@@ -1,3 +1,0 @@
-Artículo 28.—Nombramiento por inopia.- A falta de oferentes que cumplan con los requisitos exigidos por los Manuales de Clases y Cargos para un determinado puesto, de forma excepcional, se podrán nombrar interinamente oferentes que no reúnan la totalidad de los requisitos.
-El nombramiento de tales servidores será temporal, mientras no haya oferentes que reúnan la totalidad de los requisitos exigidos y sean declarados idóneos.
-En tales casos, el nombramiento deberá ser precedido por un acto administrativo motivado en el que se declare la condición de inopia, por parte de la Presidencia Ejecutiva previa recomendación del Departamento de Recursos Humanos.
