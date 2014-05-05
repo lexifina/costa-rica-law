@@ -14,3 +14,4 @@ Implementación del Sistema Oficial de Identificación y Rastreabilidad Individu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-22 | la propia norma |
+| 2 | 2014-05-05 | Directriz 5 (2014-05-05) |
