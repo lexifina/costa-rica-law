@@ -1,0 +1,1 @@
+Artículo 11.—Capacitar a los trabajadores por lo menos una vez al año en el tema de manejo y uso de plaguicidas, en la lectura y comprensión de las etiquetas y planfletos, uso correcto de los productos, medidas de seguridad e higiene para el desempeño de sus funciones, así como la identificación de los signos y síntomas de intoxicación y primeros auxilios.

@@ -1,0 +1,1 @@
+Artículo 12.—Cumplir las disposiciones técnicas y sanitarias necesarias para realizar las buenas prácticas de manejo, uso, transporte, tratamiento de envases vacíos, empaques de desecho y derrame de productos.

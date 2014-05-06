@@ -1,0 +1,1 @@
+Artículo 19.—La persona física o jurídica de la empresa controladora de plagas, está en la obligación de velar porque las aguas de lavado de equipos y aquellas otras contaminadas con plaguicidas sean tratadas y .vertidas cumpliendo con la normativa vigente, de manera tal que no pongan en peligro la salud humana, animal o vegetal, así como el ambiente.

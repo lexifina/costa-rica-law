@@ -1,0 +1,1 @@
+Artículo 7º—De conformidad con lo establecido en la Ley General de Salud, el permiso sanitario de funcionamiento otorgado a personas físicas o jurídicas que se dediquen al control de plagas, tendrá una vigencia de un año.

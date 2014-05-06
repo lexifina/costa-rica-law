@@ -1,0 +1,6 @@
+Artículo 9º—Las áreas de almacenamiento de plaguicidas y del equipo de aplicación, deberán cumplir con los siguientes requisitos:
+9.1 Estar separada del comedor, servicios sanitarios, duchas, oficinas, área destinadas para el lavado y almacenamiento de uniformes.
+9.2 Contar con sistemas de recolección para derrames que incluya la disponibilidad de recipiente vacío, pala, material absorbente (arena o piedra pómez). Estos implementos estarán rotulados, ubicados en un área de fácil acceso para su rápida utilización, y serán utilizados exclusivamente para este propósito.
+9.3 Los envases y empaques que contienen plaguicidas se deben almacenar en contenedores impermeables e inflamables, fijos o móviles, con capacidad de contener hasta un 10% más del volumen total de los productos a almacenar y los contenedores deben estar rotulados indicando que se almacenan plaguicidas.
+9.4 Existencia de extintores tipo ABC en cantidad y tamaño de acuerdo al área de almacenamiento, estarán rotulados, en buen estado y con carga vigente. Éstos estarán ubicados en un área de fácil acceso.
+9.5 Tener rotulación que advierta el peligro que corren las personas que se acerquen a este sitio, y la prohibición de estar en esa área si no se está autorizado.
