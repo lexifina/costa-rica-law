@@ -1,1 +1,1 @@
-Artículo 16.—Los policías municipales, cumplirán con los deberes descritos por el Reglamento Autónomo de Trabajo en tanto sean compatibles con sus funciones, y los dispuestos por este reglamento.
+Artículo 16.—En la práctica de los servicios se demostrará serenidad, prudencia y firmeza; jamás empleará malos modales, las acciones bruscas, las vejaciones ni otros modos que puedan desdecir a su fuerza moral y prestigio de la función del servicio que desempeñen.

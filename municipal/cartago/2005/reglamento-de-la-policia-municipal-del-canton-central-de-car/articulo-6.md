@@ -1,1 +1,1 @@
-Artículo 6º—El oficial deberá devolver su carné, placa y demás activos al Jefe del Departamento en caso de concluir su relación laboral con esta municipalidad.
+Artículo 6º—Todos los miembros de la Policía Municipal que circulen por las vías públicas vestidos de uniforme, se entenderá que están en funciones de servicio y, por tanto están obligados a intervenir en todos aquellos sucesos que reclamen su presencia, cumpliendo con los derechos que les imponen el presente reglamento. No se deberán realizar actividades personales usando el uniforme.

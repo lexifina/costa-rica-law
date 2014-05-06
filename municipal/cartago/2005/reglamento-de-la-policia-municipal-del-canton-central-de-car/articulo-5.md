@@ -1,2 +1,3 @@
-Artículo 5º—Es obligatorio el uniforme en acto de servicio para todos los miembros del Departamento de Policía Municipal, salvo situaciones especiales que así lo requieran a juicio de la jefatura. La debida presentación personal será indispensable en el Policía Municipal, así como el adecuado vocabulario que deberán emplear durante el ejercicio de sus funciones o mientras porten su uniforme e insignias municipales.
-Sobre el uniforme solo podrán portar la placa de identificación, la placa policial, la insignia de la Policía Municipal, los distintivos específicos, armamento y demás equipo autorizado por las autoridades superiores y propias de esta municipalidad. Dicho uniforme será suministrado por la Administración en forma discrecional, atendiendo las necesidades de cada policía.
+CAPÍTULO III
+Normas generales de actuación
+Artículo 5º—Los miembros de la Policía Municipal deberán portar el carné que lo identifique como funcionario municipal, su placa y el carné de portación de armas, durante toda la jornada laboral.

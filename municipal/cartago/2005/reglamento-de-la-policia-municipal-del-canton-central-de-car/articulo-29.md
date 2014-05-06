@@ -1,1 +1,1 @@
-Artículo 29.—Los policías municipales tendrán derecho a suscribir una póliza de riesgos profesionales que cubra los riesgos de invalidez permanente o muerte. Estos derechos serán transmitidos a los causahabientes en litigio sucesorio.
+Artículo 29.—Llevará con orden y aseo la bitácora de todas las actuaciones del día, consignando a detalle las mismas.

@@ -1,1 +1,1 @@
-Artículo 13.—Los ascensos de los miembros de la Policía Municipal se realizarán según lo establecido en el Código Municipal, el Reglamento Autónomo de Trabajo de la Municipalidad y este reglamento.
+Artículo 13.—En todo momento, el policía se presentará en perfecto estado de revista personal, observando las reglas de urbanidad y disciplina exigidas por la función de su cometido, de conformidad con el Reglamento Interno de Trabajo.

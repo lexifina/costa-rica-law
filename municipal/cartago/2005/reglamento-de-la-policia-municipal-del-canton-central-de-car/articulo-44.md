@@ -1,0 +1,1 @@
+Artículo 44.—El número de horas de servicio, la clase de jornada y los turnos, así como el número de días de descanso semanal y el de permisos y su distribución serán fijados por la Municipalidad, directamente por la Jefatura, teniendo en cuenta la peculiaridad de ser Policía Municipal.

@@ -1,2 +1,3 @@
-Artículo 7º—Se prohibe la utilización del uniforme de modo incompleto, así como la descuidada colocación de prendas que lo componen.
-Sobre el uniforme solo podrán portar insignias del correspondiente grado y los distintivos específicos del departamento, condecoraciones, armamento y demás equipo reglamentario.
+Artículo 7º—Es obligatorio el uso del uniforme completo autorizado por las autoridades superiores, en todos los actos del servicio para todos los miembros de la Policía Municipal, salvo en los casos en que el Jefe de la Policía Municipal crea conveniente se presten de civiles, para lo cual extenderá una autorización especial. No se permitirá el uso de ninguna de las prendas del mismo fuera de las horas de servicio ni para fines personales. No se permitirá alternar prendas propias con las del uniforme.
+En el evento de concluir la relación laboral el policía municipal deberá devolver el (los) uniforme (es), así como los demás implementos o activos asignados para cumplir su labor.
+El uniforme diario será el que la Municipalidad de Cartago designe al efecto.

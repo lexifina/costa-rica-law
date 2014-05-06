@@ -1,8 +1,3 @@
-Artículo 41.—Los requisitos para ser Policía Municipal Voluntario son:
-a. Ser mayor de edad.
-b. Buena salud física y psicológica.
-c. Carecer de antecedentes penales.
-d. Buenas relaciones humanas.
-e. Llenar la respectiva solicitud con los datos personales.
-f. Ser aprobada por un comité de seguridad ciudadana.
-g. Disposición para recibir capacitación.
+CAPÍTULO IX
+Deberes y responsabilidades
+Artículo 41.—Los funcionarios de la Policía Municipal tendrán la condición de miembros de un grupo especializado en seguridad, con disposiciones administrativas específicas que el resto de los funcionarios municipales y las lógicas peculiaridades establecidas en el Reglamento Interno, Código Municipal y demás normativa conexa.

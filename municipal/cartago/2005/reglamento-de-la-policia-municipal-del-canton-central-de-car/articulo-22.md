@@ -1,1 +1,1 @@
-Artículo 22.—Los Policías Municipales guardarán discreción o reserva de los asuntos que conozcan por razón del ejercicio de su competencia.
+Artículo 22.—El policía municipal no podrá ingresar en el domicilio de ningún particular sin permiso de su morador o previsto el correspondiente allanamiento extendido por autoridad judicial, salvo en aquellas excepciones que el ordenamiento jurídico permite, como lo es casos de violencia doméstica. En el caso de recibir permiso formulará la correspondiente acta de ingreso a inmueble privado.

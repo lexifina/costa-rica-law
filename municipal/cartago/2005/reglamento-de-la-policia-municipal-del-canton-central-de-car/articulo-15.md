@@ -1,3 +1,1 @@
-CAPITULO IV
-De los deberes y derechos
-Artículo 15.—Siendo la disciplina la base fundamental de la Policía Municipal, este cuerpo obedecerá y ejecutará las órdenes que reciba de sus superiores jerárquicos siempre que no contradigan el ordenamiento jurídico vigente.
+Artículo 15.—Deberán ser muy atentos con todos los ciudadanos y muy especialmente con los no videntes, ancianos, niños, niñas, enfermos, discapacitados, a los que prestarán especial atención y cuidado, demostrando así su celo, disciplina y afán el servicio que desempeñen.

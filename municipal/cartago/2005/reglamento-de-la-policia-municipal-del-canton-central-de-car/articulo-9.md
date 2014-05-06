@@ -1,3 +1,1 @@
-Artículo 9º—El Departamento de Policía Municipal estará organizado según las necesidades del servicio, en áreas administrativas y operativas, secciones y unidades, patrullas o grupos. En todo caso, la estructura jerárquica será la siguiente:
-a) Coordinador de la Policía Municipal.
-b) Policía Municipal.
+Artículo 9º—El Policía Municipal tendrá siempre presente que de su comportamiento y competencia dependerá el prestigio, respeto y apoyo de los ciudadanos a los que debe servir. Disciplina, educación, y las más absoluta incorruptibilidad son cualidades que han de tener presentes en todo momento los miembros de la Policía Municipal, jamás admitirán dádivas ni retribuciones por los servicios que presten, por particular alguno.

@@ -1,0 +1,1 @@
+Artículo 57.—Mediante resolución fundada, se razonará en cada caso concreto, en qué consisten las circunstancias de peligrosidad que impliquen algún riesgo para la integridad física del servidor, debiéndose constatar además, el cumplimiento de los supuestos que se detallan en el presente reglamento.

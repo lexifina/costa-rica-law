@@ -1,1 +1,1 @@
-Artículo 25.—Los derechos personales y laborales reconocidos para los policías municipales, serán aquellos dispuestos en el Reglamento Autónomo de Trabajo de la Municipalidad.
+Artículo 25.—Al hacerse cargo de un aprehendido, le realizará la revisión minuciosamente, recogiéndole las armas y objetos peligrosos que lleve, así como los objetos de valor, dinero, y demás efectos que presuma procedan de su comportamiento ilícito, y elaborando el acta correspondiente. Estos datos se consignan tanto en el informe policial como en la bitácora de servicio.

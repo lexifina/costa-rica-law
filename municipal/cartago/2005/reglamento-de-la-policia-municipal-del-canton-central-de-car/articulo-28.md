@@ -1,1 +1,1 @@
-Artículo 28.—Los policías municipales tendrán derecho a que su defensa en asuntos judiciales con motivo de su cargo le sea provista por la Municipalidad, ya sea en servicios profesionales internos o externos, previa valoración del Departamento Legal Municipal.
+Artículo 28.—El policía municipal confeccionará actas de observación en la iniciación de los procedimientos administrativos para el efectivo cumplimiento de las ordenanzas municipales.
