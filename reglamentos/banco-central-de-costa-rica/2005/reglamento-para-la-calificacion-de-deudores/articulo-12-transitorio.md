@@ -1,6 +1,7 @@
 Transitorio XII
 Los cambios regulatorios contemplados en esta modificación se aplicarán de acuerdo con las siguientes disposiciones:
-a. Artículo 7bis, Artículo 9 y Artículo 10bis: Rige de acuerdo con la siguiente gradualidad:
+a. Artículo 7bis, Artículo 9 y Artículo 10: Rige de acuerdo con la siguiente gradualidad:
+(Así reformado el inciso anterior mediante sesión N° 1106-2014 del 6 de mayo del 2014)
 1 Deudores nuevos de los Grupos 1 y 2, y deudores de los Grupos 1 y 2 con nuevas operaciones crediticias, refinanciamientos, prórrogas o readecuaciones.
 La disposición se entiende como de aplicación inmediata a partir de la aprobación de la Junta Directiva o autoridad equivalente de la entidad, de la metodología para calificar la capacidad de pago de los deudores, incluyendo la metodología de análisis de estrés, a que se refiere el Transitorio IV del Acuerdo SUGEF 2-10.
 2. Deudores del grupo 1

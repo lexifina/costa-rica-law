@@ -1,6 +1,7 @@
-Artículo 10.- Calificación del deudor del Grupo 1(*)
-(*)(Modificada su denominación mediante sesión N° 1058 del 19 de agosto de 2013)
-(*)El deudor clasificado en el Grupo 1 debe ser calificado por la entidad de acuerdo con los parámetros: morosidad máxima del deudor en la entidad, determinada al cierre del mes en curso; comportamiento de pago histórico y capacidad de pago, todo según el siguiente cuadro:
+Artículo 10. Calificación del deudor
+(Así reformado el epígrafe anterior mediante sesión N° 1106-2014 del 6 de mayo del 2014. Anteriormente se indicaba: "Calificación del deudor del Grupo 1")
+El deudor clasificado en el Grupo 1 o en el Grupo 2 debe ser calificado por la entidad de acuerdo con los parámetros: morosidad máxima del deudor en la entidad, determinada al cierre del mes en curso; comportamiento de pago histórico y capacidad de pago, todo según el siguiente cuadro:
+(Así reformado el párrafo anterior mediante sesión N° 1106-2014 del 6 de mayo del 2014)
 Categoría de riesgo | Morosidad | Comportamiento de pago histórico | Capacidad de pago
 A1 | igual o menor a 30 días | Nivel 1 | Nivel 1
 A2 | igual o menor a 30 días | Nivel 2 | Nivel 1

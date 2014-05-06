@@ -40,3 +40,4 @@ Reglamento para la Calificación de Deudores
 | 25 | 2010-12-03 | Reglamento 893 (2010-12-03) |
 | 26 | 2011-01-28 | Reglamento 899 (2011-01-28) |
 | 27 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
+| 28 | 2014-05-06 | Reglamento 1106 (2014-05-06) |
