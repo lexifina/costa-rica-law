@@ -1,0 +1,1 @@
+Artículo 39.—Derecho a informar a terceros. El INS se reservará el derecho de informar al Estado, municipales e instituciones públicas y privadas sobre la terminación del contrato, a fin que procedan según les corresponda para cumplir con lo dispuesto en los artículos 202 y 203 del Código de Trabajo.

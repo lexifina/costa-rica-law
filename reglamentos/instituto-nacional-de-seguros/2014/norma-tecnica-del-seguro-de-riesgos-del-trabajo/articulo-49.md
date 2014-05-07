@@ -1,0 +1,1 @@
+Artículo 49.—Plazo para presentar la declaración de las planillas. El INS otorgará al tomador del seguro un plazo de diez (10) días hábiles para declarar su planilla, contados a partir de la fecha de corte de la planilla según el calendario anual de planillas reportado.

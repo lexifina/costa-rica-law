@@ -1,0 +1,3 @@
+Artículo 20.—Pólizas por Tomador. Solo se permitirá una póliza por tomador, por actividad económica. Cuando el solicitante posea una o más pólizas para la misma actividad económica para la cual está solicitando un nuevo seguro, se procederá como se indica a continuación:
+a.) Si el solicitante posee una póliza vigente: se incluirán los trabajadores como nuevos asegurados en la póliza existente y se hará el ajuste correspondiente en el monto asegurado y la prima, registrándolo como un aumento de seguro.
+b) Si el solicitante posee una póliza cancelada: se rehabilitará la póliza cancelada, calculando la tarifa y el monto asegurado de la forma que se indica en los artículos 21 y 22 siguientes.

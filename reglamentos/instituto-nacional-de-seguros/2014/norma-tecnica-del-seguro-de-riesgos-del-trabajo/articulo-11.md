@@ -1,0 +1,2 @@
+Artículo 11.—Terminación de participación en programas de incentivos. La terminación del contrato de seguro facultará al INS a dar por finalizada la participación del tomador en los programas de incentivos.
+No obstante, en caso de rehabilitación del seguro, el Tomador podrá solicitar nuevamente su participación, una vez que cumpla con todos los requisitos solicitados para participar en el programa.

@@ -1,0 +1,2 @@
+Artículo 69.—Disposiciones sobre casos no amparados. Cuando el reclamo sea procesado como caso no amparado, el INS referirá al paciente al régimen de seguridad social que le corresponda para su atención.
+El INS conservará el derecho de solicitar, al trabajador o al régimen de salud correspondiente, el pago de los gastos incurridos por las prestaciones otorgadas en razón del principio básico de protección a la vida y la salud, pero que no le corresponde cubrir al INS por no tratarse de un riesgo de trabajo.

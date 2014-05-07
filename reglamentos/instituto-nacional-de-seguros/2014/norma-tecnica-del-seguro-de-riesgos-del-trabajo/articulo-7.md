@@ -1,0 +1,1 @@
+Artículo 7º—Custodia de Información. El tomador es responsable de la custodia de la documentación del seguro y los códigos y claves de acceso al sistema “RT-Virtual”, “INS-En-Línea” y a cualquier otro al que se le otorgue acceso.

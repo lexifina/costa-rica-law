@@ -1,0 +1,3 @@
+Artículo 66.—Reintegro de facturas. El reintegro de facturas se realizará únicamente al asegurado. En caso de muerte del asegurado, el reconocimiento se realizará a quien demuestre haber pagado las facturas conforme al procedimiento establecido para estos fines.
+Para iniciar el trámite de reintegro, el tomador deberá denunciar el siniestro conforme a las disposiciones que establece esta Norma Técnica.
+A su vez, el interesado deberá solicitar al INS el reintegro y entregar las facturas originales en buen estado, legibles, sin alteraciones, tachones o borrones de ningún tipo. En caso contrario, no se podrá realizar el reintegro de las mismas.

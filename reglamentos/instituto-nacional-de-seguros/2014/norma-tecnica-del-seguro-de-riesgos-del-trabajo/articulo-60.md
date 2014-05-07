@@ -1,0 +1,1 @@
+Artículo 60.—Plazo para denunciar el siniestro. En apego a lo establecido en el artículo 221 de Código de Trabajo, el tomador está obligado a denunciar al INS todo riesgo del trabajo que ocurra a sus trabajadores, dentro de los ocho días hábiles siguientes a su acaecimiento.

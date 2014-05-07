@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones que se establecen en esta Norma Técnica son de aplicación exclusiva para el Seguro de Riesgos del Trabajo del INS; en adición a las disposiciones establecidas en el Título IV del Código de Trabajo y su reglamento.

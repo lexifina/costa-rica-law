@@ -1,0 +1,2 @@
+Artículo 43.—Aplicación automática del sobrante. Las primas sobrantes de liquidación serán aplicadas de oficio y prioritariamente a las sumas adeudadas por el tomador al régimen de Riesgos del Trabajo.
+De persistir un sobrante, este será aplicado de oficio al siguiente periodo de vigencia de la póliza, no obstante, el tomador podrá solicitar la devolución, respetando las disposiciones que se indican en el artículo siguiente.

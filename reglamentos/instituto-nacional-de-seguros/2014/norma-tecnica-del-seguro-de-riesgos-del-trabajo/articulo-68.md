@@ -1,0 +1,3 @@
+Artículo 68.—Disposiciones sobre casos no asegurados. Cuando el reclamo sea procesado como caso no asegurado, el INS conservará el derecho de cobrar al intermediario y al patrono del trabajador, todas las prestaciones otorgadas al lesionado y sus causahabientes, más los intereses del caso, de conformidad con lo establecido en los artículos 3, 193, 201, 221, 231 y 307 del Código de Trabajo.
+Una vez emitido el cobro, el intermediario y el patrono dispondrán de un plazo máximo de 10 días hábiles para depositar las sumas adeudadas al INS, contados a partir de la fecha de la respectiva notificación.
+Vencido ese término el INS exigirá por la vía ejecutiva, el depósito de la suma adeudada, más los intereses legales y las costas correspondientes.

@@ -1,0 +1,1 @@
+Artículo 36.—Terminación por Incumplimiento de pago de la prima. La falta de pago de cualquier prima o fracción de la misma, motivara la terminación anticipada y liquidación de la póliza de forma automática.

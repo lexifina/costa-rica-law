@@ -1,0 +1,2 @@
+Artículo 14.—Cobertura de extraterritorialidad. El INS extenderá la cobertura fuera del país, cuando se trate de empresas o actividades que, por su índole, deben realizarse fuera del ámbito geográfico de la República de Costa Rica. Esta protección se otorga sin costo adicional, y no será necesario presentar ningún reporte previo al viaje.
+Esta cobertura opera bajo la modalidad de “Reintegro de facturas”. En caso de presentarse un riesgo de trabajo, el asegurado deberá asistir al centro médico de emergencia más cercano.

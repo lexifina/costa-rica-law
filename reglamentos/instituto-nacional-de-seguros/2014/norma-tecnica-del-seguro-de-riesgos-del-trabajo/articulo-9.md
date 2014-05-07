@@ -1,0 +1,1 @@
+Artículo 9º—Seguros del Sector Público. Los contratos de seguros de Riesgos del Trabajo del Estado, Municipalidades e Instituciones públicas se regirán conforme a lo dispuesto en el artículo 331 del Título IV del Código de Trabajo.
