@@ -1,4 +1,5 @@
-Artículo 9º—De la admisibilidad. Para que las solicitudes de inscripción en el Registro de Elegibles sean admisibles, el interesado deberá cumplir con lo siguiente:
-a) Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 1593-13 del 30 de enero de 2013.)
-b) Obtener en los dos últimos períodos de evaluación (sea de Desempeño Anual o de Período Interino), anteriores a la presentación de la solicitud de inscripción al Registro, un promedio igual o superior a la nota mínima establecida en la regulación institucional aplicable. En el caso que el interesado cuente solamente con una evaluación, se resolverá la admisibilidad en el tanto cumpla con la calificación antes señalada, indistintamente del período evaluado.
-Asimismo, las condiciones señaladas deberán cumplirse al momento de inscripción del concurso, a efectos de considerar al participante con la condición de activo señalada en el artículo 17 del presente Reglamento.
+Artículo 9º—De la admisibilidad. La condición de admisible se podrá solicitar ante la oficina de recursos humanos de su centro de trabajo, a través de los medios que para los efectos se dispongan, conforme los términos que se establecen en los artículos 3 y 4 del presente Reglamento.
+La oficina de recursos humanos otorgará la condición de admisible en el registro de elegibles, a los funcionarios que dispongan de un nombramiento vigente a la fecha de la solicitud.
+Para que un funcionario pueda realizar el proceso de inscripción a un concurso y optar por un nombramiento en propiedad, debe estar activo en su condición de admisible en el registro de elegibles.
+Toda persona que se haya inscrito en el registro de elegibles se mantendrá en dicho registro hasta un máximo de un año posterior del último nombramiento en la Institución.
+(Así reformado mediante sesión N° 8715 del 7 de mayo del 2014)
