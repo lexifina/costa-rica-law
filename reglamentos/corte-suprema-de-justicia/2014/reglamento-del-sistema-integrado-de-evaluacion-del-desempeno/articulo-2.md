@@ -1,0 +1,1 @@
+Artículo 2º—Indicadores de desempeño. Los indicadores del desempeño se basarán en criterios técnicos, objetivos y no discriminatorios. Serán construidos en forma transparente y participativa de acuerdo al ámbito de aplicación y evaluarán al menos, calidad, cantidad y rendimientos medios según condiciones similares.

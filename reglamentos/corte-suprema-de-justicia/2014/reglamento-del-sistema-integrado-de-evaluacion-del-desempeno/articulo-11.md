@@ -1,0 +1,1 @@
+Artículo 11.—Resultados de la evaluación. Una vez finalizado el período de aplicación del S.I.E.D., el sistema generará los resultados correspondientes, los cuales les serán comunicados a las personas evaluadas, quienes podrán manifestar su disconformidad o impugnar el resultado en el plazo de cinco días hábiles, ante el órgano responsable de la evaluación.
