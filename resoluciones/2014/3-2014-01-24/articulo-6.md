@@ -1,0 +1,1 @@
+6º—Cada dos años la Administración Forestal del Estado, a través del Área de Conservación Osa, el Comité Científico Técnico realizará una revisión o modificación de la directriz para incluir o excluir especies forestales dentro del listado autorizado para certificado de origen.

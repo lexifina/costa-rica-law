@@ -1,0 +1,1 @@
+5º—Téngase en cuenta que las especies autorizadas en sistemas agroforestales bajo el concepto de regeneración natural deben ajustarse a lo que señala la Ley Forestal en el artículo 3 inciso h, no se recibirán certificados de origen, sino cumplen con esta normativa.

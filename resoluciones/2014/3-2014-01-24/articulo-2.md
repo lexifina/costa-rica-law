@@ -1,0 +1,1 @@
+2º—Para efectos de control y monitoreo de las especies de Mayo y Cedro Amargo en los certificados de origen en cumplimiento de esta directriz, los funcionarios de la Administración Forestal del Estado, verificaran los tocones de los arboles autorizados cuyo diámetro no supere los 50 centímetros a la altura máxima de 0.30 centímetros sobre el nivel del suelo.
