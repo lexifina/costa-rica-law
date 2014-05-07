@@ -1,0 +1,13 @@
+N° 38380-MAG
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE AGRICULTURA Y GANADERÍA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política los artículos 27 inciso 1) y 28 inciso 2) acápite b) de la Ley N° 6227, Ley General de la Administración Pública del 28 de abril de 1978, la Ley N° 7064, Ley de Fomento a la Producción Agropecuaria FODEA y Orgánica del Ministerio de Agricultura y Ganadería, del 29 de abril de 1987 y;
+Considerando:
+I.—Que el Ministerio de Agricultura y Ganadería, tiene como una de sus competencias fundamentales, contribuir en el desarrollo agropecuario del país, por medio de impulso de políticas, planes y programas de fomento a la producción de alimentos y mejoramiento de los procesos de comercialización y procesamiento de los productos agropecuarios.
+II.—Que se encuentran entre las funciones del Ministerio de Agricultura y Ganadería la promoción de cambios en los productores y productoras agropecuarios, sus familias y sus organizaciones tendientes a fortalecer su gestión productiva, económica, social y ambiental, a través de la participación activa, consciente y organizada de los agricultores, con el fin de mejorar su calidad de vida y garantizar la seguridad alimentaria nacional.
+III.—Que la horticultura en Costa Rica es una de las principales actividades dentro de la estructura económica del país, debido a su aporte en el valor agregado dentro del sector agropecuario, generación de divisas y empleo; uso de factores productivos y producción de una amplia gama de productos alimenticios.
+IV.—Que los horticultores mejoran el rendimiento de las cosechas, su calidad, valor nutricional, busca de nuevas alternativas de cuidados, riegos, abonos, control de plagas, malezas, enfermedades, sin descuidar las premisas de sustentabilidad de las actividades realizadas.
+V.—Que el Día del Horticultor se celebra en todo el mundo como homenaje a las personas que trabajan en la propagación de las plantas, mejora de las cosechas, abonos de las plantas e ingeniería genética, bioquímica de la planta, fisiología de la planta, y el almacenaje, procesado, y transporte de frutas, bayas, frutos secos, verduras, flores, árboles, arbustos y césped. Por tanto,
+Decretan:
+DÍA NACIONAL DEL HORTICULTOR
+Artículo 1º—Declárese el día 17 de mayo de cada año, como el “Día Nacional del Horticultor”, con el fin de apoyar la actividad de la Cámara Nacional Hortícola y fomentar un día específico, para este sector tan dinámico e importante en nuestra economía y además de la contribución a la alimentación de nuestra población.
