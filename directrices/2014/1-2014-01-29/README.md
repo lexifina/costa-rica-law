@@ -14,3 +14,4 @@ Elimina el Certificado de Uso de Suelo como requisito para otorgar Certificado V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-29 | la propia norma |
+| 2 | 2014-05-07 | Directriz 6 (2014-05-07) |
