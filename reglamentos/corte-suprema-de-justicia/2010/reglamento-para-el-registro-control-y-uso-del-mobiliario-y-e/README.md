@@ -14,3 +14,4 @@ Reglamento para el Registro, Control y Uso del Mobiliario y Equipo de Oficina de
 | --- | --- | --- |
 | 1 | 2010-09-07 | la propia norma |
 | 2 | 2014-03-19 | Circular 53 (2014-03-19) |
+| 3 | 2014-05-07 | Circular 45 (2014-05-07) |
