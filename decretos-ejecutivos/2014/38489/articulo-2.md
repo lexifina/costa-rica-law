@@ -1,0 +1,1 @@
+Artículo 2°.-En aquellos casos en donde la solución definitiva de las obras indicadas en el artículo anterior requiera de intervenciones profundas o de alto costo se tomarán de forma inmediata las medidas de mitigación temporales para disminuir la vulnerabilidad en los sitios detectados.

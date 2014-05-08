@@ -1,0 +1,1 @@
+Artículo 3°.-El Poder Ejecutivo, las instituciones públicas, entidades autónomas y semiautónomas, empresas del Estado, municipalidades y cualquier otro ente u órgano público dentro del marco legal respectivo y sin perjuicio del cumplimiento de sus objetivos, podrán dar aportes, donaciones y prestar la ayuda y colaboración necesaria.
