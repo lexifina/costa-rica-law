@@ -1,0 +1,1 @@
+Artículo 19.—Trámite Municipal. La Plataforma de Servicios recibirá la solicitud, constatará que la solicitud esté debidamente cumplimentada y estén adjuntados todos los requisitos indicados en el artículo 12; la pasará al Departamento de Patentes y Licencias Municipales, encargado de convocar a la Comisión Administrativa para lo de su competencia.

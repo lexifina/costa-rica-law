@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones transitorias
+Transitorio I.—Respecto del Transitorio I de la Ley Nº 9047 se declara sin lugar la acción, siempre y cuando se interprete, conforme al Derecho de la Constitución, que los titulares de patentes de licor adquiridas mediante la Ley Nº 10 mantienen el derecho de transmitirla a un tercero en los términos del derogado ordinal 17 de dicha ley hasta que expire su plazo bienal de vigencia y deba ser renovada. A partir de ese momento, quien sea titular de dicha licencia no podrá venderla, canjearla, arrendarla, transferirla, traspasarla ni enajenarla en forma alguna, ya que deberá ajustarse a todas y cada una de las disposiciones contenidas en la nueva Ley de Licores Nº 9047.

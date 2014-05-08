@@ -1,0 +1,3 @@
+Artículo 32.—Sanciones relativas al consumo en vía pública y sitios públicos. Será sancionado con una multa de medio salario base a quien:
+Sea sorprendido consumiendo bebidas con contenido alcohólico en vía pública y en los sitios públicos determinados por la Municipalidad.
+En estos casos, la Fuerza Pública y/o los Inspectores Municipales deberán decomisar el producto y levantar el parte policial o Acta de Decomiso respectiva, la cual se aplicará por medio de la simple constatación de dichos funcionarios, estos deberán remitir al Departamento de Patentes la información de los partes correspondientes con el fin de tramitar el cobro de la multa de rigor.
