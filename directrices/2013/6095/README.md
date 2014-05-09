@@ -14,3 +14,4 @@ Comunica a la industria tabacalera los 6 juegos de pictogramas que deberán ser 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-19 | la propia norma |
+| 2 | 2014-05-09 | Directriz 1087 (2014-05-09) |
