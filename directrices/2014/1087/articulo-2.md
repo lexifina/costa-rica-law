@@ -1,0 +1,1 @@
+Artículo 2°—Comunicar a la industria tabacalera que para los efectos pertinentes, en lo sucesivo, se haga referencia a la Dirección de Promoción de la Salud, en vez de Dirección de Mercadotecnia de la Salud.
