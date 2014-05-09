@@ -14,3 +14,4 @@ Designa a la Dirección de Promoción de la salud del Ministerio de Salud como u
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-19 | la propia norma |
+| 2 | 2014-05-09 | Directriz 1087 (2014-05-09) |
