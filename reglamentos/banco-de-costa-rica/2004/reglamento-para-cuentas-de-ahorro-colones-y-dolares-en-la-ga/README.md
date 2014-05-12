@@ -14,3 +14,4 @@ Reglamento para Cuentas de Ahorro (Colones y Dólares) (En la Gaceta N°118 del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-27 | la propia norma |
+| 2 | 2014-05-12 | Reglamento 18 (2014-05-12) |
