@@ -15,3 +15,4 @@ Reglamento general del Sistema Nacional de Planificación
 | --- | --- | --- |
 | 1 | 2013-06-26 | la propia norma |
 | 2 | 2014-03-12 | Decreto Ejecutivo 38321 (2014-03-12) |
+| 3 | 2014-05-12 | Decreto Ejecutivo 38491 (2014-05-12) |

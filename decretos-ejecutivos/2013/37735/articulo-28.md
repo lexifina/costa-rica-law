@@ -9,7 +9,8 @@ g) Formular el Programa Institucional de Inversiones Públicas, verificando su c
 h) Apoyar a las o los jerarcas institucionales en las actividades de rendición de cuentas de la gestión institucional, con inclusión de la elaboración de memorias e informes que fomenten mayor transparencia ante la ciudadanía.
 i) Rendir informes semestrales y anuales ante la o el jerarca institucional sobre la evolución de la institución en el marco del Plan Nacional de Desarrollo.
 j) Proponer iniciativas de evaluación que sirvan para analizar los efectos de las estrategias y de las políticas que han sido implementadas e impulsar medidas de mejoramiento continuo de la planificación institucional.
-k) Verificar el alineamiento de los proyectos de cooperación internacional que se realicen en la institución con las prioridades nacionales y velar por su inscripción en el SIGECI.
+k) Coordinar con los Enlaces Institucionales de Cooperación Internacional las actividades de cooperación internacional.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38491 del 12 de mayo del 2014)
 l) Proponer los diseños de los procesos de organización institucional y dar seguimiento a las reorganizaciones aprobadas por MIDEPLAN, informando oportunamente a la o el jerarca institucional y a MIDEPLAN.
 m) Realizar análisis y estudios sobre el comportamiento institucional para apoyar propuestas de desarrollo de mediano y largo plazo.
 n) Coordinar con las oficinas de la respectiva institución la transferencia de información al Centro de Información de Planificación para el Desarrollo.
