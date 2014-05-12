@@ -14,3 +14,4 @@ Reglamento Tesorería Organización y Funciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-29 | la propia norma |
+| 2 | 2014-05-12 | Reglamento municipal 211 (2014-05-12) |
