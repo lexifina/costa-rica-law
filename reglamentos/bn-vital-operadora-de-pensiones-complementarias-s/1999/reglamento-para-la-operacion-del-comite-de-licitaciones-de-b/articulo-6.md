@@ -1,1 +1,1 @@
-Artículo 6º—Con el fin de asesorarse, el Órgano podrá solicitar la participación, tanto en los estudios y análisis como en las sesiones, del personal técnico y administrativo que se requiera.
+Artículo 6º—Asesorías. Con el fin de asesorarse, el Órgano podrá solicitar la participación, tanto en los estudios y análisis como en las sesiones, del personal técnico y administrativo que se requiera.
