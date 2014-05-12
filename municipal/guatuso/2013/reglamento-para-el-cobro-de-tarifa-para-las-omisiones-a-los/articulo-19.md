@@ -1,0 +1,1 @@
+Artículo 19.—El valor del metro cuadrado de construcción de aceras, se actualizará en el mes deenero de cada año, previo estudio de la Dirección de Ingeniería, fijándose luego el precio por elConcejo Municipal, el cual será publicado en La Gaceta. Para efectos de este año dos mil catorce se fijara en veintidós mil doscientos colones netos por metro cuadrado de construcción.

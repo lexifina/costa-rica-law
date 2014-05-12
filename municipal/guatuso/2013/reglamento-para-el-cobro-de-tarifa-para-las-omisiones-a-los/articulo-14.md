@@ -1,0 +1,2 @@
+Artículo 14.—Corresponde al Concejo Municipal, de conformidad con lo establecido en los
+artículos 4º, inciso d), 13, inciso b), 68 y 76 del Código Municipal, la aprobación de estas tarifas, las queentrarán en vigencia a partir de su publicación en el Diario Oficial La Gaceta. Es obligación delConcejo Municipal hacer una revisión y actualización anual de estas tarifas, con base en losestudios técnicos y de costos que le presente la administración.
