@@ -14,3 +14,4 @@ Reglamento del Comité Cantonal de la Persona Joven de Santa Bárbara
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-04 | la propia norma |
+| 2 | 2014-05-13 | Reglamento municipal 211 (2014-05-13) |
