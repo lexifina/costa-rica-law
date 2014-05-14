@@ -1,0 +1,3 @@
+CAPÍTULO VII Procedimiento para el arrendamiento de las instalaciones
+Artículo 15.—Podrá solicitar el arrendamiento de una instalación para la realización de actividades que supongan el cobro de un precio a los espectadores de la misma, cualquier persona física o jurídica. Las tasas a abonar por estos eventos serán las fijadas para el uso de la instalación según directriz emitida por la Dirección Nacional del ICODER, ya sea por un monto económico fijo, o en especie según lo defina la administración del ICODER. El mismo quedará reflejado en el contrato de alquiler o el permiso de uso respectivo.
+Cualquier otra solicitud que no esté contemplada en la tabla de tarifas de uso de instalaciones, la misma debe ser resuelta por la Dirección Nacional del ICODER.

@@ -1,0 +1,1 @@
+Artículo 25.—La contratación de espacios de publicidad se llevará a cabo de acuerdo con la normativa de contratación de las Administraciones Públicas y normativa interna a través del Departamento de Administración de Instalaciones Deportivas y Recreativas de la Dirección Gestión de Instalaciones.

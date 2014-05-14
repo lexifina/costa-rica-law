@@ -1,0 +1,6 @@
+Artículo 17.—Para el uso de las distintas instalaciones deportivas o recreativas, podrán eximirse del pago de entrada o tarifa mensual a: Federaciones o asociaciones deportivas, instituciones públicas o entidades de bien social, Organizaciones no-Gubernamentales, Ciudadanos de Oro (mostrando su respectivo carné), personas con prescripción médica para rehabilitación (se de presentar dictamen de la CCSS), programas o actividades organizados por el ICODER, Grupos Organizados que deseen realizar actividad física, ejercicio, deporte o recreación. Asimismo, podrán eximirse de pago los empleados del ICODER y sus familiares.
+Para contar con el permiso de uso exonerado, la persona debe presentar lo siguiente:
+- Llenar la solicitud formal de uso de la instalación (la misma será suministrada por el Depto. de Administración de Instalaciones).
+- Aportar copia de la cédula de identidad.
+- En el caso de Natación Terapéutica, aportar certificado médico, extendido por la CCSS; donde se indique claramente la recomendación para realizar actividades acuáticas.
+En el caso de alquileres o arrendamientos a entidades privadas, asociaciones o federaciones deportivas que soliciten exoneración parcial o total por el rubro de alquiler, deberán solicitar este trámite directamente a la Dirección Nacional.

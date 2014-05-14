@@ -1,0 +1,3 @@
+CAPÍTULO III De los usuarios de las instalaciones
+Artículo 5º—Usuarios. La condición de usuario se adquiere en el momento que se realice el pago del precio señalado por entrada, o bien, se le extienda el permiso de uso, o ingrese a las instalaciones de libre acceso. El mismo se pierde automáticamente cuando termina el período autorizado sin haber hecho efectiva la siguiente reserva, o cancelación respectiva, o abandone la instalación.
+El ICODER se exime de toda responsabilidad que se le pueda exigir, por el uso individual o colectivo de alguna de las instalaciones o participación en sus actividades por los usuarios, tales como: pérdida de objetos personales, robo o lesiones como consecuencia de la práctica recreativa o deportiva.

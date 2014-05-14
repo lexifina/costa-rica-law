@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento tiene por objeto regular el uso de las Instalaciones Deportivas y Recreativas propiedad del Instituto Costarricense del Deporte y la Recreación (ICODER). Lo anterior al amparo de la Ley Nº 7800.
