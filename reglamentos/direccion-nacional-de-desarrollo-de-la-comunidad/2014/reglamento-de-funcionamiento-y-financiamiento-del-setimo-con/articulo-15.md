@@ -1,0 +1,1 @@
+Artículo 15.—La sesión plenaria del Congreso Nacional contará con una mesa principal integrada por la junta directiva de la Confederación Nacional, la persona que ostente la Dirección Nacional de Dinadeco y el presidente del Consejo Nacional de Desarrollo de la Comunidad. El presidente de la Confederación Nacional actuará como presidente del Congreso Nacional.

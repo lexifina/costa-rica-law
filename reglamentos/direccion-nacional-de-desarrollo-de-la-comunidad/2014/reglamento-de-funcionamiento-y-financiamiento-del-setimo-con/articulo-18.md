@@ -1,0 +1,1 @@
+Artículo 18.—Las organizaciones comunales, en sus diferentes niveles, que canalicen recursos económicos para el Congreso Nacional, deberán asumir la responsabilidad de liquidar dichos recursos ante el departamento que corresponda en Dinadeco, conforme a la reglamentación respectiva, treinta días hábiles después de la fecha de finalización del Congreso.

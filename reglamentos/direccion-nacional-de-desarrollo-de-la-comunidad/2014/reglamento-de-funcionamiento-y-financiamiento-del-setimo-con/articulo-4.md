@@ -1,0 +1,1 @@
+Artículo 4°—El Congreso Nacional de Asociaciones de Desarrollo será el órgano que establezca los lineamientos a partir de los cuales se promulgará el Plan Nacional de Desarrollo de la Comunidad, tal como lo señala el artículo 2 del reglamento a la Ley 3859.
