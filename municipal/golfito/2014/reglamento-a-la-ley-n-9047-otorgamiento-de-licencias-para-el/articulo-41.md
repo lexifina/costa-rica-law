@@ -1,0 +1,1 @@
+Artículo 41.—Otras sanciones. Cuando se detecten violaciones a las responsabilidades y obligaciones de conformidad con el presente reglamento, Ley o Código Municipal, se impondrán las sanciones establecidas en el artículo 81 bis del Código Municipal.

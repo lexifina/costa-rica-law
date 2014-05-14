@@ -1,0 +1,2 @@
+Artículo 38.—Sanciones relativas al uso de la licencia, a personas jurídicas, control previo de la publicidad comercial y a la venta y permanencia de menores de edad y de personas con limitaciones cognoscitivas y volitivas. A quien se demuestre ser acreedor de las sanciones conforme lo establecen los artículos 14, 16, 17 y 18 de la Ley, se impondrá una multa de un salario base.
+Este sistema será utilizado sin distinguir la clase de licencia, distrito o reincidente, hasta que la administración municipal elabore un estudio técnico que justifique aplicarlo diferente.

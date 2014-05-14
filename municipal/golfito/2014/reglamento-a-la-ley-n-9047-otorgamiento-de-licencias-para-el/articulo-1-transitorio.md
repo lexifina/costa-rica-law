@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Disposiciones transitorias
+Transitorio I.—Conforme a lo estipulado en el Transitorio I de la Ley, los titulares de las patentes adquiridas mediante la Ley Nº 10 sobre Venta de Licores, del 7 de octubre de 1936, mantendrán los derechos derivados de dichas patentes, incluyendo el derecho de traspasarla, arrendarlas, autorizar su uso a terceros y demás, que regían a dichas patentes de previo a la vigencia de la Ley. No obstante el derecho de traspasarlas o alquilarlas vence al término de los siguientes dos años a partir de la última renovación o de la entrada en vigencia de la ley. Una vez vencido el anterior plazo las patentes deberán ser explotadas por su propietario, caso contrario se deberán anular.
+En caso de adjudicación vía sucesorio, los adjudicatarios cuentan con el mismo plazo para adjudicarse la patente, caso contrario serán anuladas por el alcalde municipal mediante resolución razonada.

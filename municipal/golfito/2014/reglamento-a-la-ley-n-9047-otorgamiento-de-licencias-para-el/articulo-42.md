@@ -1,0 +1,2 @@
+Artículo 42.—Prohibiciones. Cuando en un establecimiento fuere autorizada una licencia clase A, D1 o D2, para el expendio de bebidas con contenido alcohólico, quedará totalmente prohibido el consumo inmediato dentro del establecimiento y sus inmediaciones, tampoco podrá hacer ventanas o construcciones similares que tengan comunicación con el medio ambiente externo al establecimiento comercial.
+El incumplimiento a esta disposición será sancionado conforme lo establecido en el artículo 6 inciso e) de la Ley.

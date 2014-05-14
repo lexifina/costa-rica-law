@@ -1,0 +1,2 @@
+Artículo 31.—Vigencia y otras limitaciones. La Licencia temporal tendrá la vigencia que establezca el acuerdo del Concejo Municipal, y en ningún caso podrá exceder los 15 días naturales.
+El horario para el expendio no podrá exceder en su apertura las 11:00 horas. El horario de cierre será las 12:00 medianoche cuando la actividad primaria sea la comercialización de bebidas con contenido alcohólico y las 2:30 am del día siguiente cuando la comercialización de bebidas con contenido alcohólico sea la actividad secundaria.

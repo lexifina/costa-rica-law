@@ -1,0 +1,5 @@
+LIBRO SEGUNDO
+De las licencias
+Artículo 6º—Otorgamiento. Las licencias para comercialización de bebidas alcohólicas en el Cantón de Golfito, serán autorizadas por el encargado(a) de patentes, en su defecto por el Coordinador(a) de la Plataforma de Servicios o el Alcalde (sa) Municipal, mediante la emisión de una resolución administrativa razonada y dictada bajo los parámetros y límites establecidos en la ley y el presente reglamento.
+Para ello se deberá conformar un expediente administrativo que incluya la solicitud y todos los requisitos establecidos en el presente reglamento. Dicho expediente se deberá mantener en el archivo correspondiente de licencias debidamente foliado y ordenado cronológicamente.
+Del total de documentos que compongan el expediente administrativo de licencia comercial, son privados y de acceso únicamente por los titulares, funcionarios municipales o autoridades competentes los referentes a la constitución de la personería jurídica, la declaración jurada bienal sobre la composición del capital accionario, la información tributaria y cualquier otra que se disponga por ley o vía reglamento.

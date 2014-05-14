@@ -1,0 +1,1 @@
+Artículo 20.—Licencias en establecimientos donde ya se realizan las actividades. No se permitirá la explotación de una licencia nueva de conformidad con la ley y el reglamento, en un local que ya estuviere funcionando, si esta no cumple con lo establecido en el artículo 9 de la Ley N° 9047.
