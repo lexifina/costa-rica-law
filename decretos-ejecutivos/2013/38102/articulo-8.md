@@ -1,0 +1,1 @@
+Artículo 8º—La prueba práctica de manejo a las personas con capacidad disminuida, una vez aprobado el examen médico, deberá efectuarse en vehículos que hayan sido adaptados especialmente para su padecimiento específico, cuando así lo recomiende el médico responsable de su valoración o, en último caso, por el Colegio de Médicos y Cirujanos de Costa Rica.

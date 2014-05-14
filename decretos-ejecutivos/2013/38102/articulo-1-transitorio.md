@@ -1,0 +1,1 @@
+Transitorio Único: Las evaluaciones prácticas realizadas con fundamento en el modelo de evaluación practica de manejo existente hasta antes de la entrada en vigencia de este decreto mantendrán su valor y vigencia, por lo que el modelo descrito en este reglamento será inmediatamente aplicable a partir de la entrada en vigencia del presente reglamento.
