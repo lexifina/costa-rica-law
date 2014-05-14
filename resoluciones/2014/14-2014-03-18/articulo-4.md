@@ -1,0 +1,1 @@
+Artículo 4°—El monto determinado producto de la aplicación del artículo anterior, deberá ser cancelado al Fisco, según lo dispuesto en el artículo 15 de la Ley de Impuesto General sobre las Ventas, Ley N° 6826 del 8 de noviembre de 1982.
