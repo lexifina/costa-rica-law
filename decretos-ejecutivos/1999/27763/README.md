@@ -60,3 +60,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 45 | 2013-10-14 | Resolución 77 (2013-10-14) |
 | 46 | 2014-02-24 | Resolución 8 (2014-02-24) |
 | 47 | 2014-03-10 | Resolución 10 (2014-03-10) |
+| 48 | 2014-05-14 | Resolución 15 (2014-05-14) |
