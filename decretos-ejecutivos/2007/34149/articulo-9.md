@@ -1,1 +1,0 @@
-Artículo 9º—Los Ministerios de Agricultura y Ganadería, de Salud, de Trabajo y Seguridad Social y de Ambiente y Energía, dentro de sus competencias, velarán por el cumplimiento de estas disposiciones.
