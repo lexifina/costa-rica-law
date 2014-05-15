@@ -1,0 +1,8 @@
+CIRCULAR Nº 65-2014
+ASUNTO: Reiteración de la circular N° 58-07, sobre “Los tomos de protocolo secuestrados o prestados, deben ser devueltos al Departamento de Archivo Notarial del Archivo Nacional”.
+A LOS DESPACHOS JUDICIALES DEL PAÍS,
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 21-14, celebrada el 11 de marzo de 2014, artículo XLII, acordó reiterarles la circular N° 58-07, sobre “Los tomos de protocolo secuestrados o prestados, deben ser devueltos al Departamento de Archivo Notarial del Archivo Nacional”, publicada en el Boletín Judicial N° 133 del 11 de julio de 2007, que indica:
+“El Consejo Superior, en sesión N° 34-07, celebrada el 10 de mayo de 2007, artículo XLII, a solicitud de la Licda. Alicia Bogarín Parra, Directora Nacional de Notariado, dispuso comunicarles que los tomos de protocolo secuestrados o prestados deben ser devueltos al Departamento Archivo Notarial del Archivo Nacional, y no remitirse a la Dirección Nacional de Notariado”.
+Lo anterior, debido a que es obligación devolver los protocolos o cualquier otra pieza de éste, para evitar el riesgo que se pierdan o sean eliminados ocasionando un daño invaluable, por tratarse de documentos de conservación permanente por su altísimo valor legal, probatorio y desde luego científico cultural, en cumplimiento a lo establecido en el artículo 60 del Código Notarial y 109 del Reglamento de la Ley del Sistema Nacional de Archivos.
+Asimismo, la autoridad judicial que solicita esa documentación debe verificar su devolución y que no se agregue al expediente de la causa ni sea remitida dentro de las remesas sujetas a destrucción por parte del Archivo Judicial, bajo el apercibimiento que de no cumplir con esta disposición le será aplicado el régimen disciplinario.
