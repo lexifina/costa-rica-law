@@ -1,0 +1,4 @@
+6. Coordinación y seguimiento de la Política Institucional
+El Ministerio de Ciencia, Tecnología y Telecomunicaciones, velará por el cumplimiento y aplicación de lo indicado en la Política Institucional de Inclusión y Protección Laboral de las personas con discapacidad, bajo la tutela del Ministro de Cargo, quien a su vez designará como representantes y responsables para la coordinación y seguimiento de las acciones de la Política a lo interno de la Institución a la Comisión Especializada sobre Discapacidad (CED).
+Los miembros de la Comisión deberán contar con competencias que les permitan un adecuado manejo sobre el tema de discapacidad que impulse la implementación de la política y su plan de acción.
+La CED deberá rendir cuentas ante el Ministro de cargo, a través de la elaboración de un informe anual sobre los avances alcanzados en materia de discapacidad, el cual será socializado en términos generales con los funcionarios del Ministerio.
