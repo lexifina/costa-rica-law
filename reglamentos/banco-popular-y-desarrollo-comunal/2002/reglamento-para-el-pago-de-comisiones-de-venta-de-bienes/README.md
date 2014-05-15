@@ -14,3 +14,4 @@ Reglamento para el Pago de Comisiones de Venta de Bienes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-21 | la propia norma |
+| 2 | 2014-05-15 | Reglamento 5169 (2014-05-15) |
