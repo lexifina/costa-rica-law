@@ -1,3 +1,3 @@
 Artículo 11.—Efectos del rechazo, desistimiento o caducidad de la solicitud de venta directa. El rechazo, desistimiento o caducidad de la solicitud para acogerse a lo dispuesto en los artículos 6º y 9º de este Reglamento impide reiterarla, salvo que tal rechazo, desistimiento o caducidad, a juicio del nivel resolutivo, se justifique en virtud de haya sido por caso fortuito o fuerza mayor.
-Dicha justificación deberá ser presentada en el Subproceso de Administración de Bienes Adjudicados, dentro del plazo otorgado para la cancelación del monto adjudicado, para lo cual el interesado deberá presentar la documentación probatoria del caso fortuito o fuerza mayor en original o certificada por un Notario Público.
-(Así reformado en sesión N° 4921 del 13 de diciembre del 2011)
+Dicha justificación deberá ser presentada en el Área Bienes Adjudicados, dentro del plazo otorgado para la cancelación del monto adjudicado, para lo cual el interesado deberá presentar la documentación probatoria del caso fortuito o fuerza mayor en original o certificada por un notario público.
+(Así reformado en sesión N° 5169 del 15 de mayo del 2014)
