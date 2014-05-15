@@ -1,0 +1,1 @@
+Artículo 23.—Si un funcionario infringe las prohibiciones y limitaciones contenidas en este Reglamento o las acordadas por la Comisión, se impondrán previo cumplimiento del debido proceso, una prevención por escrito. Si es reincidente, su caso será elevado ante el jerarca correspondiente para que tome las medidas que corresponda.
