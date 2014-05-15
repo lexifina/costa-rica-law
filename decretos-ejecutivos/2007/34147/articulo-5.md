@@ -1,1 +1,0 @@
-Artículo 5º—Se autoriza la aplicación de los productos que contengan Aldicarb utilizando equipos de sistema cerrado. Queda prohibida la aplicación de productos que contengan aldicab utilizando cualquier otro método manual.

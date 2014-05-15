@@ -1,2 +1,0 @@
-Transitorio único: Las personas físicas o jurídicas que fabriquen, formulen, comercialicen, y manipulen materia prima o producto formulado que contenga Aldicarb, tendrán un plazo improrrogable de seis meses, contado a partir de la publicación de este decreto, para cumplir con lo dispuesto en los artículos 2, 3, 4 y 5.
-Dado en la Presidencia de la República.—San José, a las nueve horas del día nueve de abril del dos mil siete.
