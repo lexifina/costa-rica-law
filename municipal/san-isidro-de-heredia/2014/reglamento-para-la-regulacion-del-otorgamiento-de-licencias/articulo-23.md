@@ -1,0 +1,1 @@
+Artículo 23.—Fechas Reguladas para Consumo de Bebidas con Contenido Alcohólico. El Concejo tendrá la facultad de regular la Comercialización de Bebidas Alcohólicas y consumo de licor, los días que se celebren Actos Cívicos, Desfiles u otras Actividades Cantonales, en la ruta asignada, y podrá delimitar el horario y radio de acción.

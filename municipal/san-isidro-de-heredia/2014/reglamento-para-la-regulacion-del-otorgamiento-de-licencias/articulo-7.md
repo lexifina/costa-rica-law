@@ -1,0 +1,1 @@
+Artículo 7º—Criterio para la medición de distancias. La medición de las distancias a que se refieren los incisos a) y b) del artículo 9° de la Ley, se hará de puerta a puerta entre el establecimiento que expendería licor y aquél punto de referencia. Para estos efectos se entenderá por puerta, la entrada o sitio principal de ingreso al público.

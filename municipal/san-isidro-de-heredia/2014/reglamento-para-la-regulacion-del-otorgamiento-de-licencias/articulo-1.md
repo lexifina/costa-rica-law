@@ -1,0 +1,9 @@
+MUNICIPALIDAD SAN ISIDRO DE HEREDIA
+El Concejo Municipal de San Isidro de Heredia, en Sesión Ordinaria N° 20-2014, celebrada el día 31 de marzo de 2014, mediante acuerdo N° 255-2014 por unanimidad, con dispensa de trámite de comisión, aprobó en forma definitiva el texto del Reglamento para la Regularización del Otorgamiento de Licencias para la Comercialización de Bebidas Alcohólicas del Cantón de San Isidro de Heredia.
+REGLAMENTO PARA LA REGULACIÓN DEL OTORGAMIENTO
+DE LICENCIAS PARA LA COMERCIALIZACIÓN DE BEBIDAS ALCOHÓLICAS
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objeto y Alcances. El presente Reglamento tiene por objeto fijar las normas para la aplicación de la Ley Nº 9047 del 25 de junio de 2012, publicada en el Diario Oficial La Gaceta en su Alcance Digital Nº 109 del día 08 de agosto de 2012, “Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico”, en la jurisdicción del Cantón de San Isidro de Heredia, en todos los aspectos concordantes y conexos con la Comercialización y el consumo de Bebidas con Contenido Alcohólico y la prevención del consumo abusivo de este tipo de productos. Se emite este Reglamento dentro de las facultades ordenadas por el Transitorio II de dicha Ley, el espíritu contenido en la Ley Nº 8801 “Ley General de Transferencia de Competencias del Poder Ejecutivo a las Municipalidades y su Reglamento” y los numerales 168, párrafo primero, 169, 170, 172, 173 de la Constitución Política.
+La emisión y aplicación de este Reglamento se da dentro de lo establecido por la Sala Constitucional de la Corte Suprema de Justicia, la definición de Municipalidad y su autonomía, por el voto Nº 5445-1999, de las 14:30 horas del 14 de julio de 1999 y demás votos que lo dimensionaron.
+Es la Municipalidad de San Isidro de Heredia, la responsable de la aplicación de la Ley y este Reglamento.

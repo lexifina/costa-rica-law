@@ -1,0 +1,2 @@
+Transitorio IV.—Para efectos del cálculo de los derechos que le corresponde cancelar a los licenciatarios por el disfrute de una licencia de comercialización de bebidas con contenido alcohólico, se establece que hasta tanto no se establezcan vía legal los criterios que se han de tomar en cuenta para determinar el monto dentro de las bandas establecidas en el Artículo 19 del presente Reglamento, la Municipalidad utilizará únicamente los montos establecidos en los pisos de dichas bandas. Rige a partir de su publicación.
+9 de abril del 2014.—

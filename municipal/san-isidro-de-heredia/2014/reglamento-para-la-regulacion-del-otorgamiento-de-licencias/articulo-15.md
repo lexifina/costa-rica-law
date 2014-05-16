@@ -1,0 +1,3 @@
+CAPÍTULO III
+Las licencias permanentes y temporales
+Artículo 15.—Órgano competente de aprobar la licencia permanente. Compete a la Administración Municipal, conocer y aprobar las solicitudes de Licencia para Expendio de Bebidas con Contenido Alcohólico, para ello el Departamento de Rentas y Cobranzas recibirá y verificará de forma previa los requisitos, emitiendo criterio técnico que recomiende su aprobación o rechazo. Esta recomendación deberá será trasladada al Alcalde Municipal para su análisis, quién será el competente para tomar la decisión final. Para apartarse el Alcalde Municipal de la recomendación dada por el Departamento de Rentas y Cobranzas, deberá fundamentarla en criterios técnicos y jurídicos suficientes.

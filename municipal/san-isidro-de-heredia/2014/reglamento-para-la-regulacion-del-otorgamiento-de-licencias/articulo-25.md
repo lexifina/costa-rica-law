@@ -1,0 +1,4 @@
+CAPÍTULO V
+Sanciones y recursos
+Artículo 25.—Imposición de sanciones. La Municipalidad podrá imponer las sanciones establecidas en los Artículos 11 y 12 de la Ley, para lo cual deben respetarse los principios del debido proceso, la verdad real, oficiosidad, la imparcialidad y la publicidad, respetando además los trámites y formalidades que informan el Procedimiento Administrativo Ordinario estipulado en el Libro Segundo de la Ley General de la Administración Pública.
+Los trámites de suspensión o revocación de licencias, deberán ser analizados primeramente por el Departamento de Rentas y Cobranzas quien trasladará una recomendación a la Alcaldía Municipal, para efectos de que esta determine si es necesario o no la apertura de un procedimiento administrativo. Los trámites de renuncia llevarán el mismo trámite pero sin requerir, en principio, de apertura de procedimiento administrativo alguno, siendo la decisión final competencia del Alcalde Municipal.

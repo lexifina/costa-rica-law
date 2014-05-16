@@ -1,0 +1,1 @@
+Artículo 10.—Vigencia de las licencias. Toda licencia de comercialización de bebidas con contenido alcohólico tendrá una vigencia de cinco años, contados a partir de la fecha de su aprobación, este plazo será prorrogable conforme a lo dispuesto en el artículo 10 de este Reglamento.
