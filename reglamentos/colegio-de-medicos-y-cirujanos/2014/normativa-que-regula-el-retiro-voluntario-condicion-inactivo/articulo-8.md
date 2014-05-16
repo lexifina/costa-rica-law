@@ -1,0 +1,1 @@
+Artículo 8º—El agremiado o autorizado que se acojan a la condición de inactivo por la solicitud de retiro voluntario, sea ésta temporal o indefinido, no estarán en la obligación de cancelar la cuota de colegiatura, sin embargo, una vez aprobado el cambio de condición, perderán todos sus derechos, incluidos la póliza de seguro voluntario.
