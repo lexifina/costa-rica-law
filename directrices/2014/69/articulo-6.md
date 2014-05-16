@@ -1,0 +1,1 @@
+Artículo 6º—Validación. Los valores indicados en los artículos segundo y quinto deben ser evaluados y calibrados mediante mediciones por parte de la SUTEL y encontrarse contestes a los resultados del periodo de experimentación, según la realidad de transmisión que se presente durante el período de transición, tomando en cuenta la morfología de Costa Rica y la cobertura permitida.

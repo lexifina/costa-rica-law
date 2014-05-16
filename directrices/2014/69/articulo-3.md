@@ -1,0 +1,1 @@
+Artículo 3º—Canalización. Para la transmisión de señales digitales bajo el estándar ISDB-Tb durante el período de transición, la Superintendencia de Telecomunicaciones conocerá las nuevas solicitudes de otorgamiento de permiso experimental, conforme a lo establecido en el Decreto Nº 36774, “Reglamento para la Transición a la Televisión Digital Terrestre en Costa Rica”.
