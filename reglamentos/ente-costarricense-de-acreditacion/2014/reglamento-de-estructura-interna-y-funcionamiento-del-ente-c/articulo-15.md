@@ -1,0 +1,1 @@
+Artículo 15.—De las obligaciones del ECA. Son obligaciones del ECA como ente acreditador las establecidas en la Ley del Sistema Nacional para la Calidad, número 8279; en el Compromiso de Acreditación y procedimientos internos del ECA que correspondan.

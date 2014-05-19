@@ -1,0 +1,1 @@
+Artículo 3º—De la misión. La misión del ECA es respaldar la competencia técnica y credibilidad de los entes acreditados para garantizar la confianza del sistema nacional para la calidad, asegurar que los servicios ofrecidos por los entes acreditados mantengan la calidad bajo la cual fue reconocida la competencia técnica, promover y estimular la cooperación entre ellos.
