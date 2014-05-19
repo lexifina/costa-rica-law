@@ -1,0 +1,17 @@
+N° 38355-COMEX
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE COMERCIO EXTERIOR
+De conformidad con las facultades y atribuciones que les conceden los artículos 50, 140 incisos 3), 8), 18) y 20) y 146 de la Constitución Política; los artículos 4°, 15, 17, 25, 27 párrafo 1, 28 párrafo 2 inciso b) y 103 párrafo 1 de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978; los incisos g), h) e i) del artículo 2° y los numerales i) e ii) del inciso b) del artículo 9° de la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, Ley N° 7638 del 30 de octubre de 1996; y
+Considerando:
+I.—Que el artículo 9° de la Ley N° 7638 del 30 de octubre de 1996; Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, dispone que la Promotora del Comercio Exterior de Costa Rica (PROCOMER) podrá financiar sus operaciones con recursos provenientes de aportes de los sectores exportadores e importadores, constituidos éstos por contribuciones obligatorias.
+II.—Que las contribuciones obligatorias autorizadas por la Ley en mención, están compuestas de un monto fijado por el Poder Ejecutivo por cada declaración aduanera de exportación e importación y, por otra parte, de las sumas canceladas por las empresas acogidas al Régimen de Zonas Francas por concepto de pago de derecho por el uso del régimen. Asimismo, de conformidad con los numerales i) e ii) del inciso b) del artículo 9° de la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, el Poder Ejecutivo cuenta con la potestad de fijar las sumas de las contribuciones establecidas mediante Decreto Ejecutivo.
+III.—Que el Poder Ejecutivo mediante el Decreto Ejecutivo N° 25612-COMEX del 8 de noviembre de 1996, publicado en el Diario Oficial La Gaceta N° 220 del 15 de noviembre de 1996; fijó las contribuciones obligatorias de financiamiento para PROCOMER en concordancia con lo prescrito en el artículo 9° de la Ley N° 7638 del 30 de octubre de 1996.
+IV.—Que es interés del Estado que el ordenamiento jurídico-positivo provea el mayor grado de certeza y claridad posible para los administrados y para la misma Administración Pública, en aras de una adecuada aplicación de las normas jurídicas, razón por la cual el Estado debe procurar la máxima congruencia y adaptación de las disposiciones reglamentarias con el propósito de que éstas sean más acordes con la legislación vigente. Es por ello que, en la consecución del interés público y el cumplimiento de los objetivos del Estado, al amparo de los Principios de Autoorganización de la Administración y de Buen Gobierno, se estima pertinente modificar las regulaciones atinentes al establecimiento de las contribuciones obligatorias de financiamiento para PROCOMER. Por tanto,
+Decretan:
+DEROGATORIA DEL INCISO 3) DEL ARTÍCULO 1° DEL DECRETO
+EJECUTIVO N° 25612-COMEX DEL 8 DE NOVIEMBRE DE 1996,
+RELATIVO A LA FIJACIÓN DE LA CONTRIBUCIÓN
+OBLIGATORIA DE FINANCIAMIENTO PARA LA
+PROMOTORA DEL COMERCIO EXTERIOR
+DE COSTA RICA
+Artículo 1º—Derogatorias. Deróguese el inciso 3) del artículo 1° del Decreto Ejecutivo N° 25612-COMEX del 8 de noviembre de 1996; publicado en el Diario Oficial La Gaceta N° 220 del 15 de noviembre de 1996, relativo a la fijación de la Contribución Obligatoria de Financiamiento para la Promotora del Comercio Exterior de Costa Rica (PROCOMER).
