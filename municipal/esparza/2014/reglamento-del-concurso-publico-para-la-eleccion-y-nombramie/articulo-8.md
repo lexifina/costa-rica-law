@@ -1,0 +1,27 @@
+Artículo 8º—Funciones del Auditor. Algunas de las funciones generales que debe cumplir el Auditor, y las cuales deben ser consideradas por la Comisión para determinar la idoneidad de los candidatos serán:
+a) Dirigir, supervisar y administrar la auditoría interna de la Institución, para ello dictará los lineamientos, directrices, políticas e instrucciones pertinentes, según la normativa, jurídica y técnica.
+b) Planificar, dirigir, coordinar, evaluar y fiscalizar la gestión de control interno, así como el uso de los recursos y patrimonio de la Institución.
+c) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la auditoría interna para cumplir con sus competencias considerando en cada caso lo relativo a los procesos o productos de la Auditoría Interna.
+d) Fiscalizar el cumplimiento de la Ley de Presupuestos Públicos y Administración Financiera de la República y su Reglamento en cuanto a lo concerniente al Régimen Municipal, El Código Municipal, y la Normativa Interna de la Municipalidad de Esparza.
+e) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la auditoría interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan el artículo 6 de la Ley General de Control Interno y el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento ilícito en la Función Pública.
+f) Preparar conjuntamente con el personal de la auditoria interna los procesos de la Auditoría, los -Planes Anuales de Trabajo y sus informes periódicos de gestión, para conocimiento del Concejo Municipal así como las formuladas por la Contraloría General de la República.
+g) Asistir a las reuniones, citas, congresos, conferencias, seminarios y otras actividades similares de importancia para la Institución y la Auditoría misma, dentro o fuera del país, así como a las convocadas por la Contraloría General de la República de conformidad con sus potestades legales; y emitir criterios sobre los asuntos de su competencia que en ellas se les planteen.
+h) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos bajo su responsabilidad directa, en función de los objetivos institucionales.
+i) Presentar su plan de trabajo de conformidad con los lineamientos de la Contraloría General de la República y de proponer a los Jerarcas Institucionales oportuna y debidamente justificados, los requerimientos de recursos para desarrollar su plan de trabajo, incluidas las necesidades administrativas de la Unidad.
+j) Mantener actualizado el reglamento de organización y funcionamiento de la auditoría interna, cumplir y hacer cumplir el reglamento.
+l) Asesorar al Concejo, la Alcaldía y demás dependencias institucionales, en materia propia de su competencia.
+m) Advertir de forma justificada a los órganos pasivos que fiscaliza sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sea de su conocimiento y competencia.
+n) Presentar un informe final de gestión, de acuerdo con las directrices emitidas por la Contraloría General de la República ante el Concejo Municipal.
+ñ) Organizar y dirigir la Unidad de Auditoría en la forma que considere más apropiada para el desempeño de su cometido, conforme con las disposiciones legales y reglamentarias vigentes.
+o) Formular políticas, objetivos y programas de trabajo, así como determinar las necesidades de equipo, recursos humanos, financieros y tecnológicos de la Auditoría Interna.
+p) Avalar el contenido, la razonabilidad, la oportunidad y la confiabilidad de la información incluida en los informes de auditoría que se elaboran y remiten al Concejo.
+q) Evaluar la eficiencia, economía y eficacia en el cumplimiento de las metas y objetivos, mediante el análisis de los informes, operaciones y programas que elabora la administración.
+r) Controlar que los activos de la Corporación, tangible e intangibles, propios o en custodia, estén debidamente contabilizados e inscritos a nombre de la Municipalidad de Esparza.
+s) Dirigir el diseño de los programas, manuales y procedimientos de trabajó que requiera implantar la Auditoría Interna para el efectivo cumplimiento de sus funciones y velar porque los mismos se encuentren actualizados.
+t) Evaluar por medio de estudios de auditoría, que las actuaciones de los funcionarios de la Municipalidad de Esparza, se encuentren enmarcadas dentro de las sanas prácticas administrativas y de acuerdo con las normas del ordenamiento jurídico vigente.
+u) Evaluar los sistemas institucionales de procesamiento electrónico de información de la Municipalidad de Esparza y la información generada por estos sistemas.
+v) Rendir informes específicos requeridos por la Contraloría General de la República.
+w) Asistir a sesiones del Concejo cuando sea convocado por este, con voz pero sin voto.
+x) Establecer un programa de aseguramiento de la calidad para la Auditoría Interna.
+y) Asignar las funciones al personal de la auditoria interna de conformidad con lo previsto en este Reglamento.
+z) Cualquier otra actividad que le sea asignada por la Contraloría General de la República y demás competencias que contemplen la normativa legal, reglamentaria y técnica aplicable, con las limitaciones que establece en sus artículos 22, 32 y 34 de la Ley General de Control Interno N° 8292. Así como cualquier otro deber atinente a su competencia o inherentes al cargo que le sean asignadas por su superior inmediato.

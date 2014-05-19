@@ -1,0 +1,1 @@
+Artículo 14.—Plazo y lugar para la recepción de ofertas. El plazo para la presentación y recepción de ofertas será de 8 días hábiles a partir de la publicación del concurso, en la secretaría del Concejo Municipal.

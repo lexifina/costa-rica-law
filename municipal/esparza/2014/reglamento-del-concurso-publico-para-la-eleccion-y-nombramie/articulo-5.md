@@ -1,0 +1,6 @@
+Artículo 5º—Plazos del proceso. Los plazos serán de conformidad con los artículos 28 y 31 de la Ley General de Control Interno N° 8292, así como lo dispuesto en los “Lineamientos sobre los requisitos de los cargos de auditor y sub-auditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos”.
+De tal forma que algunos de estos plazos son:
+- Las vacantes que, por cualquier razón, tengan lugar en los puestos de la auditoría interna, deberán llenarse en un plazo máximo de tres meses. El plazo podrá prorrogarse por otros tres meses.
+- Los nombramientos interinos en ningún caso podrán hacerse por más de doce meses.
+- La Administración deberá efectuar los procesos de concurso público y remitir la solicitud de aprobación de esos procesos, dentro del plazo de los seis primeros meses del nombramiento interino, salvo por razones debidamente acreditadas.
+- Cuando el concurso público resulte aprobado, una vez recibido el oficio emitido por parte del órgano contralor, dentro de los diez días hábiles siguientes, el jerarca deberá hacer efectivo el nombramiento del funcionario que ocupará el cargo de auditor o subauditor interno y lo comunicará a la Contraloría General de la República, a más tardar el primer día hábil siguiente del inicio de funciones.

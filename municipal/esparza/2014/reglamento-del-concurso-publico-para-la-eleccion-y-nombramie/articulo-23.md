@@ -1,0 +1,1 @@
+Artículo 23.—Refrendo de la Contraloría General de la República. Una vez concluido todo el proceso anterior, la Comisión Especial someterá ante la Contraloría General de la República el expediente del concurso, para que esta lo apruebe o impruebe.

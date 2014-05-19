@@ -1,0 +1,1 @@
+Artículo 25.—Proceso de apelación. Una vez comunicados los resultados, los participantes que tengan razones fundamentadas para impugnar el procedimiento ejecutado y el nombramiento realizado, podrán presentar el correspondiente recurso de apelación, según lo dispuesto en el Código Municipal y la Ley General de la Administración Pública.

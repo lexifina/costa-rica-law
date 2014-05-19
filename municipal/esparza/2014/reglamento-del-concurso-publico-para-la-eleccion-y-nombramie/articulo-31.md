@@ -1,0 +1,2 @@
+Artículo 31.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta, de conformidad con lo dispuesto en el numeral 43, del Código Municipal vigente.
+Esparza, 27 de marzo del 2014.—
