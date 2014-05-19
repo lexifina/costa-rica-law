@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Del servicio de mantenimiento
+Artículo 39.—Será responsabilidad de el Departamento o Unidad de Transportes, la elaboración y ejecución de los programas de mantenimiento preventivos y correctivos para todos los vehículos de la Presidencia, del Ministerio y sus programas adscritos, ya sea que se realicen en forma interna o externa, para lo cual contará con el personal técnico que requiera, en la medida de las posibilidades de la Institución. Igualmente será su responsabilidad velar porque éstos se efectúen con la mayor eficiencia y eficacia, y de preparar y presentar a la Dirección General los informes que ésta solicite, todos acorde a la legislación vigente.

@@ -1,0 +1,1 @@
+Artículo 34.—Deberá el vehículo oficial contar con todas las especificaciones técnicas, los requisitos generales, requisitos específicos para la circulación, así como los requisitos de seguridad en carretera necesarios para el cumplimiento de su cometido, señalados por la Ley de Tránsito.

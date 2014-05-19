@@ -1,0 +1,6 @@
+CAPÍTULO XI
+De sanciones administrativas y sistema de
+Puntos de la Ley de Tránsito
+Artículo 49.—El operador de equipo móvil o el conductor que fuese declarado culpable por los Tribunales de Justicia por un accidente en que hubiese participado un vehículo oficial, deberá cancelar el monto correspondiente al deducible de la póliza de seguros del Instituto Nacional de Seguros, cuando corresponda según el valor de mercado de vehículo, así como las indemnizaciones que deba hacer la Presidencia y el Ministerio en favor de los terceros afectados, o en su totalidad cuando el costo del daño sea inferior al monto del deducible.
+Asimismo, deberá asumir el pago del parte y multas conexas si los hubiera, y cancelar los timbres que correspondan. Una vez cancelada dicha infracción se debe remitir al Departamento de Transportes o Unidad de Transporte el comprobante de pago respectivo.
+El funcionario podrá autorizar a la Presidencia o al Ministerio para que realicen deducciones correspondientes de su salario, con el fin de cancelar en un plazo prudencial convenido entre el funcionario y la Institución, lo establecido en el párrafo primero del presente artículo. En ningún caso el pago de la obligación patrimonial podrá exceder de un año calendario.

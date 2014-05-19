@@ -1,0 +1,1 @@
+Artículo 27.—Cualquier alteración de la ruta programada que se presente en el transcurso de un viaje, será responsabilidad absoluta del funcionario que utilice el servicio y que cause la misma. El operador de equipo móvil o el funcionario que utilice el servicio debe informar al superior inmediato la situación al finalizar la gira.

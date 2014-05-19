@@ -1,0 +1,1 @@
+Artículo 2º—Las disposiciones contenidas en el presente Reglamento, son aplicables a todos los funcionarios que, por razón de sus cargos, usen o controlen los recursos de transporte de la Presidencia de la República y Ministerio de la Presidencia.

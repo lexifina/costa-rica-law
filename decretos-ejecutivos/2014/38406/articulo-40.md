@@ -1,0 +1,1 @@
+Artículo 40.—Corresponderá a la Dirección General verificar la eficiencia, eficacia y oportunidad de ejecución de los programas de mantenimiento, así como su legalidad de acuerdo al artículo anterior y girar las recomendaciones que considere atinentes a el Departamento o Unidad encargada de Transportes.

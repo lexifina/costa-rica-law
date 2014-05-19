@@ -1,0 +1,1 @@
+Artículo 10.—La Dirección General, o los Directores de Programa podrán delegar la administración, el uso, el control y el mantenimiento de los vehículos propiedad de la Presidencia y del Ministerio, en las Unidades o Direcciones encargadas de transportes de los diferentes Programas adscritos.

@@ -1,0 +1,1 @@
+Artículo 29.—Los vehículos propiedad de la Presidencia y del Ministerio, tendrán prioridad de estacionamiento en los parqueos de la institución propios o arrendados, sobre aquellos vehículos propiedad de sus funcionarios o de los visitantes.

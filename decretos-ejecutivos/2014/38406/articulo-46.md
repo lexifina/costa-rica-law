@@ -1,0 +1,2 @@
+Artículo 46.—Los conductores no deben estacionar los vehículos en lugares donde se ponga en peligro la seguridad de los mismos o en locales o sitios cuya característica comprometa la imagen de la Institución.
+Asimismo, el responsable de la unidad deberá corroborar que en los casos que el vehículo quede aparcado, que tanto él como sus ocupantes, desalojen los útiles de trabajo y cualquier otro tipo de artículo susceptible de sustracción.

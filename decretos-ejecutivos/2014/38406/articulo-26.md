@@ -1,0 +1,1 @@
+Artículo 26.—Para lograr el mejor aprovechamiento de las unidades disponibles, el Departamento de Transportes o Unidad de transportes, deberá agrupar en un solo viaje varias solicitudes de transporte que se dirijan hacia un mismo sitio o ruta, dando una adecuada coordinación del viaje.

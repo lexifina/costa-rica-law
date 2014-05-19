@@ -1,0 +1,1 @@
+Artículo 13.—El Departamento de Transportes o Unidades de transportes, fiscalizará las labores de los conductores, instruyéndolos para el cumplimento de sus deberes, a la vez establecerá registros de firmas de los encargados de autorizar y solicitar servicios y operaciones relativas al uso, control y mantenimiento de vehículos.
