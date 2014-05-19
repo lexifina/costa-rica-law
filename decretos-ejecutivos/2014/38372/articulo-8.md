@@ -1,0 +1,1 @@
+Artículo 8º—Esta Comisión será de carácter interinstitucional y estará constituida por un titular y un suplente de instituciones públicas y privadas, los cuales serán nombrados por los respectivos jerarcas.

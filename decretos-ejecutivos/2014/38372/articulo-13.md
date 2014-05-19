@@ -1,0 +1,1 @@
+Artículo 13.—En lo no regulado en el presente decreto, le será aplicable tanto a la CGINM como a la CNINM, las disposiciones contenidas en el Capítulo Tercero del Título Segundo de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”.

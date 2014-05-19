@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión contará con el asesoramiento técnico de la Asociación Costarricense de Nefrología (ASCONE), cuyos miembros podrán ser llamados, cuando así lo requiera la CGINM, asimismo podrá convocar a otros actores sociales que considere necesarios, para el cumplimiento de sus funciones.

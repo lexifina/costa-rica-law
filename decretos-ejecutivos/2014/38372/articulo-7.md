@@ -1,0 +1,1 @@
+Artículo 7º—Créase la Comisión Nacional Interinstitucional de Nefropatía Mesoamericana, en adelante conocida como CNINM, como órgano técnico y de consulta del Ministro de Salud y de la CGINM en esa materia.
