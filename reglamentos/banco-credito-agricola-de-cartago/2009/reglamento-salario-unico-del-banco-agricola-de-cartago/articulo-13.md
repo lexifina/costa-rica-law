@@ -1,4 +1,0 @@
-CAPITULO IV
-Del estudio de los puestos
-Artículo 13.—Aplicación del instrumento técnico: Una vez que la Dirección de Recursos Humanos ha coordinado los aspectos necesarios para realizar la valoración integral periódica de los puestos, así como la reasignación, revaloración o reclasificación, según corresponda, la Comisión de Valoración de Puestos se encargará de aplicar el instrumento técnico correspondiente, el cual será previamente aprobado por la Junta Directiva General.
-La aplicación del instrumento técnico deberá considerar la información consignada en el Manual Descriptivo de Puestos, así como los diversos factores que influyen en la asignación relativa del puntaje correspondiente a cada puesto; tales como las funciones, responsabilidades, requisitos, contacto con clientes externos e internos, entre otros.

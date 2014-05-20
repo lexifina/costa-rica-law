@@ -1,1 +1,0 @@
-Artículo 8º—Responsabilidad de la jefatura: Si una jefatura asigna permanentemente a un funcionario, sin haber mediado un estudio previo, para ejecutar funciones de mayor complejidad, responsabilidad y categoría, que las correspondientes al puesto en que está nombrado, ésta asumirá las responsabilidades disciplinarias y administrativas del caso.

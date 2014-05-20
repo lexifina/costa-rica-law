@@ -1,7 +1,0 @@
-CAPITULO VIII
-De los aumentos de salario
-Artículo 22.—Tipos de Aumento salarial: En Bancrédito se podrán reconocer aumentos salariales, por los siguientes motivos:
-a. Aumento por costo de vida: Se asigna tomando como referencia el decreto ejecutivo de salarios mínimos para el sector público, publicado en el Diario Oficial La Gaceta semestralmente y el nivel salarial en que se ubica cada funcionario con respecto a su categoría en la escala. Su aprobación le corresponde a la Junta Directiva General, con base en la recomendación técnica elaborada por la Dirección de Recursos Humanos.
-b. Por ajuste de nivel: Se aplica cuando un puesto se encuentre por debajo del salario mínimo correspondiente al nivel establecido en la escala salarial. Su aprobación le corresponde al Director de Recursos Humanos.
-c. Por ajustes de mercado: Se aplica cuando la Gerencia General o Junta Directiva General así lo determine, previo estudio técnico elaborado por la Dirección de Recursos Humanos. Este tipo de aumento salarial deberá respetar, en todos los casos, el monto mínimo y máximo correspondiente al nivel salarial establecido en la escala aprobada por la Junta Directiva General, debiendo informarse a ésta aquellos casos en que el ajuste sobrepase la media de la escala.
-d. Por suplencia temporal (Recargo de funciones): Según lo establecido en el artículo 28, Reemplazo en cargo Superior, de la V Reforma a la Convención Colectiva de Trabajo.

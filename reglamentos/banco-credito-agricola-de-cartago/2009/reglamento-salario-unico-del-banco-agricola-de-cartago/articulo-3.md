@@ -1,1 +1,0 @@
-Artículo 3º—Responsables: El área responsable de velar por la correcta aplicación del presente reglamento, es la Dirección de Recursos Humanos y tendrá la competencia para analizar y recomendar a la Gerencia General la implementación de mejoras técnicas que contribuyan a la eficiencia y eficacia del sistema.

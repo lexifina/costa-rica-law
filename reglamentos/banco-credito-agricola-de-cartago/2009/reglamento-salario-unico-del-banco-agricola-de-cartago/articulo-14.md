@@ -1,2 +1,0 @@
-Artículo 14.—Informe técnico final: Una vez que se ha valorado, revalorado, reasignado o reclasificado un puesto, la Dirección de Recursos Humanos confeccionará un informe final que será presentado para aprobación ante la Gerencia General.
-Este informe deberá contener como mínimo, el resultado del estudio de los puestos, la ubicación correspondiente en el nivel de la escala salarial para cada puesto, así como el impacto financiero que implicaría para Bancrédito implementar los cambios sugeridos.

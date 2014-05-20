@@ -1,1 +1,0 @@
-Artículo 26.—Salario base: En los casos que la ley lo defina, la determinación del salario base para efectos del cálculo de la prohibición a incluir dentro del salario único, será el establecido con base en la escala del esquema salarial “base más pluses” de la Institución.

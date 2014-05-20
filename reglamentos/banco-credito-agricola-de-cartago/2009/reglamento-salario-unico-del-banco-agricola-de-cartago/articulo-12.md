@@ -1,2 +1,0 @@
-Artículo 12.—Del pago de la revisión de valoración: Cuando un puesto sea revalorado o reasignado a una categoría superior, de conformidad con el estudio técnico presentado por la Dirección de Recursos Humanos, el derecho del funcionario a percibir la diferencia salarial, nacerá a partir del día hábil siguiente a la autorización de los recursos presupuestarios por parte de la Junta Directiva General.
-En este caso no habrá un criterio de derecho acumulado, sino que éste se adquiere y paga a partir de la existencia de los recursos presupuestarios.

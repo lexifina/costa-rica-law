@@ -1,1 +1,0 @@
-Artículo 17.—Niveles de la escala salarial: La escala salarial será estructurada por niveles o categorías, las cuales serán determinadas con base en la valoración de cada uno de los puestos del Banco. Asimismo, cada nivel salarial contará con 5 puntos de referencia para efectos de definir el salario para cada puesto.
