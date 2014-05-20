@@ -1,0 +1,1 @@
+Artículo 8.- Manuales de Procedimientos Contables. Las empresas públicas que ya están aplicando las NIIF/NIC, deben presentar los manuales de procedimientos contables a la DGCN, a más tardar el 30 de junio de 2014, y las demás, apenas concluyan sus respectivos procesos de implementación.

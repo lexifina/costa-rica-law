@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. La finalidad de la misma es dar una orientación a las Empresas Públicas sobre los lineamientos a seguir para implementar las Normas Internacionales de Información Financiera (NIIF/NIC).
