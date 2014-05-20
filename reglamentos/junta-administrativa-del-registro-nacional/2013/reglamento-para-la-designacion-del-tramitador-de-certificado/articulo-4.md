@@ -1,0 +1,1 @@
+Artículo 4º—Obligación de designar un Tramitador de Certificados Digitales de Persona Jurídica. Cualquier persona jurídica que desee contar con Certificados Digitales de Sello Electrónico y Agente Electrónico de Persona Jurídica, deberá previamente designar un Tramitador de Certificados Digitales de Persona Jurídica, en el Registro de Personas Jurídicas del Registro Nacional.
