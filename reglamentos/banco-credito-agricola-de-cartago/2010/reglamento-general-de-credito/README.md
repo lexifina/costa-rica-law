@@ -14,3 +14,4 @@ Reglamento General de Crédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-26 | la propia norma |
+| 2 | 2014-05-20 | Reglamento 8751 (2014-05-20) |
