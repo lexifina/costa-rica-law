@@ -1,0 +1,1 @@
+3º—Informar que los cambios en el Arancel Automatizado, empezarán a regir 15 días hábiles después de la publicación de la presente resolución. Por lo que se les recuerda a las Agencias y Agentes de Aduana y demás Auxiliares de la Función Pública que deben realizar la correspondiente actualización en el Arancel que cada uno utilice.
