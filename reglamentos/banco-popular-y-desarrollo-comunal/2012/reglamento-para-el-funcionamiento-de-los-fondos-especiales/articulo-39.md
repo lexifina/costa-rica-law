@@ -1,1 +1,2 @@
-Artículo 39.—De las garantías: Se recibirán en garantía hipoteca en primer grado sobre propiedades que posean una vivienda o que se vaya a construir con el financiamiento otorgado.
+Artículo 39.—De las garantías. Se recibirán en garantía solamente hipoteca en primer grado sobre la vivienda a financiar o que se vaya a construir.
+(Así reformado mediante sesión N° 5170 del 20 de mayo del 2014)
