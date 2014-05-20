@@ -1,2 +1,2 @@
 Artículo 26.—Sobre la comisión de formalización. En los préstamos otorgados se cobrará una única comisión de formalización que podrá ser de hasta dos puntos porcentuales sobre el monto total aprobado y podrá ser financiada. La Gerencia General Corporativa podrá establecer comisiones menores, así como, cualquier otro tipo de comisión relacionada con el financiamiento a las organizaciones.
-Las Organizaciones de la Economía Social que presten recursos financieros al sector informal y no bancable, podrán cobrar una comisión hasta de cinco puntos porcentuales sobre el monto aprobado.
+Las OES que presten recursos financieros al sector informal y no bancable, podrán cobrar una comisión hasta de cinco puntos porcentuales sobre el monto aprobado.

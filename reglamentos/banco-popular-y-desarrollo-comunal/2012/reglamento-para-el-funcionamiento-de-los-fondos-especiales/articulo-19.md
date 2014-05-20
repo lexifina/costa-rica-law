@@ -4,13 +4,13 @@ b) Bancos públicos costarricenses.
 c) Caja Costarricense de Seguro Social.
 d) Caja de Ahorro y Préstamo de la Asociación Nacional de Educadores.
 e) Cooperativas
-f) Instituto de Desarrollo Agrario.
+f) Instituto de Desarrollo Rural (INDER).
 g) Instituto Mixto de Ayuda Social.
 h) Instituto Nacional de Fomento Cooperativo.
 i) Instituto Nacional de Seguros.
 j) Municipalidades.
 k) Mutuales.
-m) Sociedad de Seguros de Vida del Magisterio Nacional.
+m)Sociedad de Seguros de Vida del Magisterio Nacional.
 n) Junta de Pensiones y Jubilaciones del Magisterio Nacional
 ñ) Instituto Nacional de Vivienda y Urbanismo.
 o) Fondos sin fines de lucro de propiedad exclusiva de trabajadores y creados por Ley.
