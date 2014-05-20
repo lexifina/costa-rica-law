@@ -14,3 +14,4 @@ Cobro del timbre fiscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-18 | la propia norma |
+| 2 | 2014-05-20 | Directriz 1 (2014-05-20) |
