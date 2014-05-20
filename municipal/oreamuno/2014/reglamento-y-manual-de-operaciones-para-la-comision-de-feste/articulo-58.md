@@ -1,0 +1,1 @@
+Artículo 58.—Todo aquel Funcionario que participe en la implementación de Actividades Organizadas por la Comisión de Festejos Populares, se encontrará a las órdenes de la misma, durante el periodo en que se encuentre desempeñando dichas funciones.

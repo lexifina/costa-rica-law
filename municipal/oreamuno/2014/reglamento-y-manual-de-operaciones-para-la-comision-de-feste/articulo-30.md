@@ -1,0 +1,1 @@
+Artículo 30.—Forma de pago, registro y clasificación del gasto. Todos los gastos, excepto los pagados por caja chica, deberán pagarse mediante cheque, los cuales se registrarán y clasificarán en el Mayor auxiliar de gastos por orden numérico consecutivo.

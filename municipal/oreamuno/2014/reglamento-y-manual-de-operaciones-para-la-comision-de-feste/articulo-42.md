@@ -1,0 +1,1 @@
+Artículo 42.—Reembolsos de caja chica. Todos los reembolsos de caja chica deberán respaldarse con justificantes que reúnan los requisitos establecidos en el artículo 23 de este reglamento. Los cheques que se emitan para efectuar dichos reembolsos deberán girarse a nombre del Tesorero de la comisión.

@@ -1,0 +1,1 @@
+Artículo 47.—Diseño de formatos para la suscripción de contratos. En los formatos que se diseñen para los contratos respectivos, deben quedar claramente definidos, al menos, los elementos esenciales de la negociación, tales como partes suscribientes, objeto, precio, plazo y responsabilidades de las partes.

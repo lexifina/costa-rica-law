@@ -1,0 +1,5 @@
+Artículo 37.—Otros gastos. El Departamento de Contabilidad deberá identificar todos los gastos, en los que incurra la Administración, para que una vez que este lista la liquidación de la Comisión, se procede a rebajar los mismos de dicho monto.
+El costeo por concepto de Recolección de Desechos Sólidos, Aseo de Vías, y los gastos por concepto de horas extras y las cargas sociales sobre las horas extras; de los miembros de la Comisión de Festejos Populares y del personal de apoyo deberán de ser incorporados como gastos propios de los Festejos Populares.
+No se autoriza el pago de recargos de funciones.
+No se autorizan seguros de ningún tipo sobre vehículos que no sean Propiedad Municipal.
+La alimentación de los funcionarios que participen en dicha actividad, será por su propia cuenta, en virtud de estar devengando horas extras. Para tal caso se autoriza a la Administración Municipal a realizar los Ajustes Tributarios correspondientes, por concepto de tasas de recolección de desechos sólidos y aseo de vías.

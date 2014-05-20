@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Administración del fondo de caja chica
+Artículo 40.—Uso del fondo de caja chica. Las comisiones de festejos populares podrán emplear un fondo de caja chica para la atención de gastos menores, en el tanto se posibilite en el Reglamento Interno de cada Administración en que se regula esta materia. A falta de reglamentación, deberá contar con la autorización expresa del Concejo Municipal en los términos estipulados, en lo que corresponda, en el artículo 109 párrafo final del Código Municipal. Asimismo, en cuanto al monto de ese fondo, la comisión se ajustará a lo que defina al efecto el Concejo Municipal.
