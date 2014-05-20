@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Sobre la coordinación
+Artículo 14.—Toda investigación sobre intoxicaciones por plaguicidas que desarrolle individualmente el Ministerio de Salud, el Ministerio de Trabajo y Seguridad Social, el Consejo de Salud Ocupacional, la Entidad Aseguradora, la Caja Costarricense del Seguro Social o la Empresa, debe ser puesta en conocimiento de las otras entidades que no han participado en dicho proceso investigativo, mediante la entrega de una copia de la investigación correspondiente, con la finalidad de mantener el conocimiento actualizado y establecer una coordinación interinstitucional adecuada para su respectivo seguimiento.

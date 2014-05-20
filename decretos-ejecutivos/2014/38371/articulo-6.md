@@ -1,0 +1,1 @@
+Artículo 6º—El médico que realice los exámenes médicos preexposición o periódicos, cualquiera sea su frecuencia debe ser, especialista en medicina del trabajo o, un médico general con dos años de experiencia laboral en empresas agroindustriales.

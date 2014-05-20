@@ -1,0 +1,1 @@
+Transitorio único: Los patronos que cuenten con personas trabajadoras expuestas a actividades de manejo y aplicación de plaguicidas, tienen un plazo de seis meses a partir de la publicación del presente decreto, para ajustarse a lo establecido en éste.

@@ -1,0 +1,5 @@
+Artículo 13.—Para todas las personas trabajadoras que se encuentran expuestas a inhibidores de colinesterasas, deben observarse los siguientes niveles:
+a) Cuando el nivel de colinesterasa eritrocítica de una persona trabajadora, haya descendido en un 20% y la colinesterasa plasmática en un 30% de su nivel basal, debe realizarse una investigación de las condiciones y medio ambiente de trabajo y hacerse las correcciones que correspondan.
+b) Cuando el nivel de colinesterasa eritrocítica de una persona trabajadora haya descendido en un 25% de su nivel basal, debe ser retirada de la exposición y se debe referir el caso a la entidad aseguradora.
+c) Cuando el nivel de colinesterasa plasmática de una persona trabajadora, haya descendido en un 35% de su nivel basal, debe ser retirada de la exposición y referirse a la entidad aseguradora.
+d) Las personas trabajadoras pueden reincorporarse a las actividades laborales, cuando los niveles personales de colinesterasa eritrocítica y plasmática hayan alcanzado un 90% de su nivel basal.
