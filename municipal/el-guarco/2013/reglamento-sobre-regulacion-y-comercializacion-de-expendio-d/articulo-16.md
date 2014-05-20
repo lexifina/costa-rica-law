@@ -1,1 +1,0 @@
-Artículo 16.—Competencias. La tramitación de las solicitudes de licencias permanentes estará a cargo del Departamento de Patentes y su otorgamiento será competencia del Encargado del Departamento de Patentes, mismo que deberá hacerlo de conocimiento del Alcalde Municipal.

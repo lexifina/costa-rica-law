@@ -1,1 +1,0 @@
-Artículo 22.—Recursos. La decisión municipal que deniegue una licencia o que imponga una sanción tendrá los medios de impugnación que se establecen en el régimen recursivo del Código Municipal. En los casos en que la decisión sea emitida por el Concejo Municipal, cabrá solamente el recurso de reconsideración.

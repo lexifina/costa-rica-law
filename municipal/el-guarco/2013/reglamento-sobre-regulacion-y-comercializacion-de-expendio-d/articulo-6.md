@@ -1,4 +1,0 @@
-Artículo 6º—Poblaciones. La cantidad total de licencias clase B otorgadas en el Cantón no podrá exceder la cantidad de una por cada trescientos habitantes.
-En la determinación del total de habitantes del Cantón, se acudirá al último estudio realizado por el INEC (Instituto Nacional de Estadística y Censo). La condición de habitante se circunscribirá a las personas físicas del territorio cantonal, según la definición establecida por el artículo 2 del Reglamento del Defensor de los Habitantes, Decreto Reglamentario 22266 de 15 de junio de 1993.
-Periódicamente, conforme se constate incrementos o disminuciones en el parámetro de habitantes cantonales, podrá ajustarse la cantidad de licencias clase B.
-Las licencias de expendio de bebidas con contenido alcohólico estarán vinculadas al distrito para el cual fueron concedidas.
