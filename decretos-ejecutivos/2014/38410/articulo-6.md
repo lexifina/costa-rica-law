@@ -1,0 +1,1 @@
+Artículo 6º—Reuniones. La Comisión Mixta contra el Comercio Ilícito se reunirá de manera ordinaria una vez al mes, previa convocatoria del Ministerio de Hacienda, y de manera extraordinaria cuando se considere necesario.

@@ -1,0 +1,1 @@
+Artículo 2º—Creación. Se crea la Comisión Mixta contra el Comercio Ilícito, a cargo del Ministerio de Hacienda, la cual tendrá carácter permanente y funcionará al más alto nivel técnico del Poder Ejecutivo.
