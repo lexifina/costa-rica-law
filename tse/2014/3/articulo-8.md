@@ -1,0 +1,1 @@
+Artículo 8º—Debida colaboración al Consejo. Para la consecución de sus cometidos, el Consejo podrá solicitar la colaboración de cualquier oficina o funcionario, los que deberán prestar su diligente colaboración al respecto. Asimismo podrá integrar comités técnicos que brinden informes en las materias que el Consejo requiera.

@@ -1,0 +1,1 @@
+Artículo 10.—Remuneración. Por los motivos indicados en el sexto considerando de este decreto, la remuneración salarial de los integrantes del Consejo se complementará con el plus establecido en el artículo 2 del decreto Nº 09–2012, publicado en La Gaceta Nº 132 de 9 de julio de 2012.
