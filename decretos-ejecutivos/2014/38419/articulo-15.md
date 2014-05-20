@@ -1,0 +1,1 @@
+Artículo 15.—Normas Supletorias. Que en lo no contemplado en este Decreto Ejecutivo, el Consejo de Competitividad de la Región Huetar Caribe y sus instancias organizativas, se regirán por las disposiciones que regulan a los Órganos Colegiados, contenidas en la Ley General de la Administración Pública, Ley N° 6227, Título Segundo, Capítulo Tercero.
