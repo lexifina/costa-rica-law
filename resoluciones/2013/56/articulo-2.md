@@ -1,0 +1,1 @@
+2º—Las adquisiciones se realizarán mediante órdenes de compra emitidas por el Banco Internacional de Reconstrucción y Fomento (BIRF). Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal del Banco, para efectuar las referidas compras exentas de impuestos en su nombre.
