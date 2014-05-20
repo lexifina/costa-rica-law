@@ -1,0 +1,1 @@
+Artículo 19.—De la verificación de pago: El padre, madre o representante del o la menor, deberá presentar el comprobante de pago a la Administración del Centro en cualquier momento en que esta se lo requiera. El pago se ha de efectuar directamente a la Municipalidad de Barva, mediante cualquier de las modalidades que esta última habilite para tal efecto.

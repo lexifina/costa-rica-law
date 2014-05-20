@@ -1,0 +1,5 @@
+Artículo 38.—De las sanciones: Para garantizar un buen servicio y funcionamiento de cada CECUDI, se aplicarán las siguientes sanciones, a través de acciones preventivas y correctivas, las cuales seguirán el siguiente orden y según la gravedad de la falta:
+a. Llamada de atención verbal a la persona que cometió la falta, catalogada como leve, impuesta por la Coordinación Técnica del CECUDI.
+b. Amonestación escrita, en caso de reincidencia o cuando el funcionario o funcionaria haya merecido dos o más advertencias orales durante un mismo mes calendario o cuando las leyes del trabajo exijan que se le aperciba por escrito antes del despido y en los demás casos que determinen las disposiciones reglamentarias vigentes.
+c. Suspensión temporal del trabajo hasta por un máximo de un mes, cuando la conducta se haya repetido por más de dos veces. Se aplicará una vez escuchados el interesado y los compañeros de trabajo que dicha persona indique, en todos los casos en que, según disposiciones reglamentarias vigentes, se cometa una falta de cierta gravedad contra los deberes impuestos por el contrato de trabajo.
+d. Despido sin responsabilidad patronal.

@@ -1,0 +1,1 @@
+Artículo 36.—De las ausencias injustificadas al trabajo. El trabajador que no asista al CECUDI por dos días o más durante un mismo mes, sea de manera continua o alterna, sin justificación en los términos del artículo anterior, será objeto de la sanción prevista que al respecto señala el Código de Trabajo y el Reglamento vigente.

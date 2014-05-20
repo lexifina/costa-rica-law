@@ -1,0 +1,4 @@
+Artículo 14.—De la determinación del precio: Para efectos de determinar el precio público en los términos del artículo anterior, se establecen tres categorías, las cuales estarán en función de los ingresos mensuales de las personas representantes legales de los y las menores. Dichas categorías son las siguientes:
+a. Rango 1: Personas con un ingreso menor a un sesenta y cinco por ciento (65%) del Salario Base, establecido en el artículo 2 de la Ley que crea Concepto Salario Base para Delitos Especiales del Código Penal, N°7337, de 5 de mayo de 1993, publicada en el diario oficial La Gaceta N° 92 del 14 de mayo del 1993 (en adelante Salario Base).
+b. Rango 2: Personas con un ingreso que oscile entre el sesenta y cinco punto cero uno por ciento (65.01%) y el ciento treinta por ciento (130%) del Salario Base;
+c. Rango 3: Personas con un ingreso que supere el ciento treinta punto cero uno por ciento (130.01%) del Salario Base.

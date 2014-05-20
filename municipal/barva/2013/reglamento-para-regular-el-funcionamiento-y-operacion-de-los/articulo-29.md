@@ -1,0 +1,18 @@
+Artículo 29.—Deberes de la Coordinación Técnica de cada CECUDI: Son deberes de la persona a cargo de la Coordinación Técnica en cada CECUDI, los siguientes:
+a. Administrar el CECUDI garantizando la sostenibilidad y mejora del servicio.
+b. Formular, organizar, dirigir y controlar el plan de desarrollo integral infantil.
+c. Desarrollar los componentes de organización básicos que permitan garantizar un suficiente control interno del CECUDI, con el fin de proporcionar seguridad razonable respecto a la consecución de los objetivos del CECUDI.
+d. Formular los planes anuales operativos del servicio y su respectivo presupuesto.
+e. Realizar durante la primera quincena del mes de enero de cada año, el planeamiento y organización a nivel institucional, de las actividades del año lectivo, misma que deberá comunicar al final de dicha quincena, al personal técnico y administrativo del CECUDI. Será obligatoria la inclusión de la celebración de las fechas relativas al rescate de derechos humanos en general, de los derechos de la niñez y de la adolescencia en particular, así como las relacionadas con Ambiente, rescate de valores cívicos e histórico-culturales, recurso hídrico, efemérides y todas aquellas celebraciones que propician una formación y educación ciudadana integral.
+f. Promover y gestionar alianzas estratégicas con entidades y/o empresas y organizaciones no gubernamentales, nacionales e internacionales, para fines de mejoramiento educativo y sostenibilidad del proyecto, en coordinación con la Municipalidad de Barva.
+g. Cumplir con las disposiciones pedagógicas, administrativas y de funcionamiento que emanen de los Ministerios de Educación Pública y de Salud y la Secretaria Técnica de la Red Nacional de Cuido y Desarrollo Infantil.
+h. Controlar la disciplina de todo el personal del CECUDI y velar porque se mantenga el curso normal de las actividades establecidas en el cronograma semanal de actividades, del personal del CECUDI.
+i. Modelar una forma de comportamiento y administración, basada principalmente en el cumplimiento de los derechos de la niñez; y los valores de honradez, equidad, transparencia, trabajo en equipo y espíritu de servicio.
+j. Conformar y mantener actualizado el archivo de los expedientes de los niños y niñas matriculados en el Centro Infantil.
+k. Atender, con previa cita, a los padres y madres de familia o encargados de los niños y niñas, así como otras personas que visiten el CECUDI.
+l. Planear y llevar a cabo actividades de asesoría y capacitación con las familias y la comunidad.
+m. Evaluar periódicamente, en conjunto con el personal docente y asistentes; entre otros posibles actores, el proceso de aprendizaje y desarrollo de los niños y niñas.
+n. Disponer de un expediente personal de todos y cada uno de los colaboradores del CECUDI, incluyendo a los profesionales que darán asesoría y atención. Dichos expedientes deben contener al menos: estudios aprobados y capacitación a realizar según sus necesidades, jornada laboral contratada, cargo y funciones, experiencia laboral en centros infantiles (recomendable), examen físico completo, evaluación psicológica.
+o. Cuando se presuma de posibles agresiones físicas, psicológicas o sexuales a los niños y niñas, y, se le haya informado de tal situación, debe interponer la denuncia respectiva para que se realice por las autoridades competentes, la investigación necesaria.
+p. Implementar y mantener actualizado, un protocolo de evacuación y atención de emergencias institucional y darlo a conocer al personal, población beneficiada, padres, madres y responsables.
+q. Ejecutar otras actividades propias de la naturaleza del cargo, según los requerimientos del CECUDI.
