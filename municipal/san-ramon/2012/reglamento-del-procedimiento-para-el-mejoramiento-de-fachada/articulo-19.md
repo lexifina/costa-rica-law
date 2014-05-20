@@ -1,0 +1,1 @@
+Artículo 19.—Valor de un metro cuadrado de acera para todo tipo de material será determinado anualmente por la Municipalidad, según los estudios de costos con base en la información pertinente del Ministerio de Economía Industria y Comercio.

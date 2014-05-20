@@ -1,0 +1,1 @@
+Artículo 29.—Notificación. La notificación a los contribuyentes que deban mejorar sus fachadas, se efectuará a través de los inspectores municipales, quienes harán su valoración de acuerdo a lo establecido en este Reglamento.

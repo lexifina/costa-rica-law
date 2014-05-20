@@ -1,0 +1,2 @@
+Articulo 18.—Rampas para personas con discapacidad. En las esquinas de cuadra deberá el propietario construir las rampas para personas con discapacidad, adaptándose a los niveles entre acera-calle, de tal forma que permita la continuidad y fluidez de los recorridos urbanos, exigida por la Ley N° 7600.
+Las rampas de acceso a los edificios, terrenos públicos o privados deben cumplir con el artículo 75 del Código Municipal, por lo tanto deben hacerse dentro de la propiedad.

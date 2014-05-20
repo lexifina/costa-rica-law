@@ -1,0 +1,1 @@
+Artículo 22.—Actualización del valor. El valor del metro cuadrado por limpieza en general de lotes se actualizará en el mes de enero de cada año, previo estudio municipal, el cual será publicado en La Gaceta.
