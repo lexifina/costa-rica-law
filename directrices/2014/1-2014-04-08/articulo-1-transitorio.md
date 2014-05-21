@@ -1,0 +1,2 @@
+Transitorio único.—EL Registro de Bienes Muebles coordinará con las instituciones públicas y los centros de inspección técnica vehicular (CIVE) que verifican y transmiten información al Registro Nacional, las acciones pertinentes para que no se transmitan caracteres tipográficos que no estén conforme a la normativa ISO relacionada.
+Publíquese de conformidad con lo dispuesto en el artículo 4 de la Ley N° 8220 del 04 de marzo de 2002.—
