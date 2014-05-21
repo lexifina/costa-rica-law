@@ -1,0 +1,1 @@
+Artículo 10.—Remitido el informe por parte del Fondo de Tierras, la Junta Directiva aprobara la procedencia o no de la regularización de la posesión sobre el inmueble, para la ulterior segregación y traspaso del mismo para el otorgamiento del título. El Acuerdo que declare o no la procedencia, será emitido mediante resolución fundamentada.
