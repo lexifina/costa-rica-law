@@ -1,1 +1,0 @@
-Artículo 24.—Post-implantación. Después de tres meses de instalado el sistema, la Dirección realizará una evaluación, con el fin de determinar que cumple con los objetivos y requerimientos del usuario, así como en los costos y beneficios originalmente proyectados.

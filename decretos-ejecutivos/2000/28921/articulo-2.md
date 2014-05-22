@@ -1,1 +1,0 @@
-Artículo 2º—Funcionarios del Ministerio de Seguridad Pública. Se considerarán funcionarios del Ministerio de Seguridad Pública, todos aquellos que se encuentren al servicio de la institución, dentro de las fuerzas de policía protegidos o no por el Estatuto Policial, los administrativos protegidos o no por el Estatuto de Servicio Civil y los servidores de confianza.
