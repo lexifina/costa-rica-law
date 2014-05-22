@@ -1,0 +1,1 @@
+Artículo 30.—Solicitud de combustible. Para la solicitud de combustible será necesario presentar la fórmula debidamente llena, por parte del encargado de la oficina requirente a la cual esté asignado el vehículo oficial.

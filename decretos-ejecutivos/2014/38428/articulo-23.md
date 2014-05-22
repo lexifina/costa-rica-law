@@ -1,0 +1,1 @@
+Artículo 23.—De los deberes de los usuarios. Los usuarios de los servicios de transporte del Ministerio de Justicia y Paz, deberán en todo momento, observar un adecuado comportamiento conforme los principios éticos, morales y todos los que regulan la función pública. Además deben acatar todas las medidas de seguridad que sean necesarias.

@@ -1,0 +1,4 @@
+CAPITULO VI
+Del Departamento de Servicios Generales
+Artículo 27.—Del Departamento de Servicios Generales. El Departamento de Servicios Generales del Ministerio de Justicia y Paz, será el único responsable de emitir circulares y disposiciones respecto de las medidas de control en el uso de los vehículos oficiales, de mantenimiento preventivo y correctivo, así como las medidas en caso de accidente o colisión, todo conforme lo dictado en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial y en el presente Reglamento. Esta potestad incluye a los vehículos que se encuentren asignados a cualquier Despacho, Dirección, Departamento, Oficina o Centro Penitenciario del Ministerio de Justicia y Paz.
+Lo anterior, sin perjuicio de las potestades propias del Ministro/a y del Viceministro/a de Gestión Estratégica, conforme el ámbito de su competencia.

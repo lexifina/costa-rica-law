@@ -1,0 +1,14 @@
+N° 38428-JP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+De conformidad con lo que establece el artículo 140 inciso 3), 8) y 18) de la Constitución Política; artículo 236 y siguientes de la Ley N° 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial; Ley N° 6739, Ley Orgánica del Ministerio de Justicia y Paz; Ley N° 4762, Ley que Crea la Dirección General de Adaptación Social; Ley N° 7410, Ley General de Policía, y Decreto N° 26061-J, Reglamento de la Policía Penitenciaria.
+Considerando:
+I.—Que de conformidad con lo que establece la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, en su artículo 236, los vehículos oficiales de los Poderes del Estado son bienes públicos que cumplen un fin de interés público.
+II.—Que de conformidad con los fines que el Ministerio de Justicia y Paz debe cumplir, fundados principalmente en la Ley N° 6739 (la cual fue modificada por la Ley N° 8771), Ley Orgánica del Ministerio de Justicia y Paz; Ley N° 4762 Ley que Crea la Dirección General de Adaptación Social; y, Ley N° 7410, Ley General de Policía y el Reglamento General de la Policía Penitenciaria emitido mediante Decreto Ejecutivo N° 26061 J, en relación con la regulación del uso de los vehículos del Estado, conforme el Título VII de la Ley de Tránsito por Vías Públicas Terrestres, se promulgó el Decreto Ejecutivo N° 26230 J, que es Reglamento de Uso de Vehículos del Ministerio de Justicia y Paz.
+III.—Que resulta imperioso reformar la normativa reglamentaria actual para fortalecer la buena administración y uso de los vehículos oficiales, en atención al fin público que están llamados a cumplir, conforme a la estructura orgánica actual, así como asegurar el máximo aprovechamiento de los recursos, ejerciendo los controles adecuados y garantizando la labor eficiente y eficaz de las competencias, que por imperativo legal corresponde cumplir al Ministerio de Justicia y Paz. Por tanto,
+Decretan:
+Reglamento para el Uso de Vehículos
+del Ministerio de Justicia y Paz
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Ámbito de aplicación. El presente Reglamento regula el uso de los vehículos del Ministerio de Justicia y Paz, entiéndase los comprendidos en el Despacho Ministerial, Despachos Viceministeriales, los programas de la Administración Central, Sistema Nacional de Promoción de la Paz Social, la Dirección General de Adaptación Social y la Dirección de la Policía Penitenciaria, a efecto de garantizar que estos bienes sean destinados a la consecución de los fines para los cuales han sido destinados, velando por que su uso sea de manera racional y adecuada en observancia con el ordenamiento jurídico y prevaleciendo el fin público que persigue la Institución. Así mismo, se establecen los deberes, obligaciones y sanciones correspondientes a los usuarios y conductores de los mismos.

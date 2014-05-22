@@ -1,0 +1,1 @@
+Artículo 24.—Portación del carné Institucional. Es deber del funcionario portar siempre el carné que lo identifique como funcionario del Ministerio de Justicia y Paz, cuando viaje en los vehículos institucionales. El conductor podrá solicitar al servidor previo inicio del viaje el referido carné.

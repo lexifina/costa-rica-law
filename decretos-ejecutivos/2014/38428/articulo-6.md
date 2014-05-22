@@ -1,0 +1,1 @@
+Artículo 6º—Vehículos de uso de la Policía Penitenciaria. Los vehículos de uso de la Policía Penitenciaria son aquellos destinados a cumplir las funciones que a este cuerpo policial le impone la Ley General de Policía, el Reglamento General de la Policía Penitenciaria y nuestro Ordenamiento Jurídico.

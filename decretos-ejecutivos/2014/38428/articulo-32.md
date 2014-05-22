@@ -1,0 +1,1 @@
+Artículo 32.—Uso racional y responsable del combustible. En el desempeño de sus respectivas funciones, corresponde al Departamento Financiero en coordinación con el Departamento de Servicios Generales, verificar que el gasto del combustible sea racional y ajustado al presupuesto establecido.

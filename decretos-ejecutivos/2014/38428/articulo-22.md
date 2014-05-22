@@ -1,0 +1,1 @@
+Artículo 22.—Responsabilidades del conductor. El conductor que con conocimiento de la existencia de un daño causado a un vehículo propiedad del Ministerio de Justicia y Paz lo oculte, asumirá la responsabilidad legal que por su conducta pueda imputársele, previo cumplimiento del debido proceso.
