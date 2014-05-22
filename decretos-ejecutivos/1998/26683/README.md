@@ -16,3 +16,4 @@ Reglamento interno de la Comisión de Tecnología y Seguridad de la Información
 | 1 | 1998-02-26 | la propia norma |
 | 2 | 1998-02-26 | Ley 8 |
 | 3 | 2005-06-15 | Decreto Ejecutivo 32506 (2005-06-15) |
+| 4 | 2014-05-22 | Decreto Ejecutivo 38517 (2014-05-22) |

@@ -6,5 +6,5 @@ D. Redactar correspondencia y firmar aquellas notas que le delegue el Presidente
 E. Organizar y mantener al día el archivo del Consejo.
 F. Llevar la asistencia a las sesiones, dejando constancia de ello en las actas, así como las justificaciones, si las hubieren, de las ausencias y llegadas tardías.
 G. Llevar la minuta de lo tratado en las sesiones y redactar las actas cuidando de dejar constancia clara y precisa de las deliberaciones, acuerdos y resoluciones tomadas.
-I. Cualquier otra función que le asigne el Consejo.
-(NOTA: De acuerdo a la publicación original de este artículo, en La Gaceta Nº 40 del 26 de febrero de 1998, se omite el inciso H., pasando del inciso G. al inciso I.).
+H. Cualquier otra función que le asigne el Consejo.
+(Rectifícada la indexación literal del inciso anterior por el artículo 5° del decreto ejecutivo N° 38517 del 22 de mayo del 2014. Anteriormente se indicaba inciso h)

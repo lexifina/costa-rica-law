@@ -8,8 +8,12 @@ Considerando:
 2°—Que la Contraloría General de la República como rectora del Ordenamiento del Control y Fiscalización de la Hacienda Pública ha dictado el Manual sobre Normas Técnicas de Control Interno relativas a los sistemas de información computarizados, cuya normativa es de acatamiento obligatorio por parte de las entidades que conforman la Hacienda Pública.
 3°—Que el Ministerio de Seguridad Pública en acatamiento de lo dispuesto por la Contraloría General de la República, debe establecer un órgano colegiado permanente que oriente a la administración en el uso, mantenimiento y desarrollo de los sistemas de información computarizados, cuyo funcionamiento estará sometido a los sistemas de control interno y regulado por un conjunto de normas que ordenen su actuación. Por tanto,
 DECRETAN:
-REGLAMENTO INTERNO DE LA COMISION DE INFORMATICA
-DEL MINISTERIO DE SEGURIDAD PUBLICA
+REGLAMENTO INTERNO DE LA COMISIÓN
+DE TECNOLOGÍAS DE INFORMACIÓN
+DEL MINISTERIO DE SEGURIDAD
+PÚBLICA(*)
+(*) (Modificada su denominación por el artículo 1° del decreto ejecutivo N° 38517 del 22 de mayo del 2014. Anteriormente se denominaba "REGLAMENTO INTERNO DE LA COMISION DE INFORMATICA DEL MINISTERIO DE SEGURIDAD PUBLICA")
 CAPITULO I
 Creación
-Artículo 1°—Constitución: Créase la Comisión de informática del Ministerio de Seguridad Pública, denominada en lo sucesivo "La Comisión", como un grupo técnico-asesor en materia de informática.
+Artículo 1º—Constitución. Créase la Comisión de Tecnologías de Información del Ministerio de Seguridad Pública, denominada en lo sucesivo “La Comisión”, como un grupo técnico-asesor en materia de tecnologías de información.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 38517 del 22 de mayo del 2014)

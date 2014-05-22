@@ -1,9 +1,10 @@
-CAPITULO II
+CAPITULO III
+(Así modificada la numeración del capítulo anterior por el artículo 3° del decreto ejecutivo N° 38517 del 22 de mayo del 2014 , anteriormente se denominaba Capítulo II)
 De la organización
-Artículo 4º—Integración: La Comisión estará integrada por las siguientes personas, todas funcionarias del Ministerio:
-El Ministro o su representante quien será el presidente.
-El Director General de Informática.
-El Director General Administrativo Financiero, o su representante.
-Un representante del Área Policial que ocupe un cargo de Dirección.
-El Oficial Presupuestal o su representante
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32506 del 15 de junio del 2005)
+Artículo 4º—Integración. La Comisión estará integrada por los titulares de los siguientes cargos del Ministerio:
+El Ministro o su representante quién será el presidente.
+El Director de Tecnologías de Información.
+El Director General Administrativo y Financiero o su representante.
+Un representante del área policial que ocupe un cargo de Dirección, el cual será designado por el Ministro o su representante.
+El Director Financiero o su representante.”
+(Así reformado por el artículo 2° del decreto ejecutivo N° 38517 del 22 de mayo del 2014)
