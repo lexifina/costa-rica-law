@@ -1,0 +1,1 @@
+3º—Pese a lo anterior, y en aras de dar la oportunidad a los responsables de bases de datos para que efectúen los ajustes pertinentes, se otorga un plazo prudencial de tres meses a partir del 6 de marzo del 2014, concluyendo esta prórroga el día 05 de junio del 2014.

@@ -1,0 +1,1 @@
+4º—La Agencia de Protección de Datos de los Habitantes se encuentra actualmente en el Despacho Ministerial, edificio Administrativo del Registro Nacional. Para cualquier duda, consulta o coordinación respectiva deben contactarse con su Directora, MSc. Nathalie Artavia Chavarría, al teléfono 2202- 0789.
