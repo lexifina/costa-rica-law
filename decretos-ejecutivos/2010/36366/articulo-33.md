@@ -5,7 +5,8 @@ Artículo 33.—La Dirección General Administrativa y Financiera estará confor
 2) Dirección Administrativa.
 3) Dirección Financiera.
 4) Dirección de Proveeduría Institucional.
-5) Dirección de Informática.
+5) Dirección de Tecnologías de Información
+(Así reformado el inciso anterior por el artículo 79 del Reglamento de normas y políticas de las tecnologías de información del Ministerio de Seguridad, aprobado mediante decreto ejecutivo N° 38561 del 22 de mayo del 2014)
 Además, contará con los siguientes departamentos:
 1) Departamento de Salud Ocupacional.
 2) Departamento Disciplinario Legal.
