@@ -1,0 +1,1 @@
+Artículo 44.—Atención a requerimientos externos. La Auditoría Interna atenderá los requerimientos que formulen la Contraloría General de la República y la Superintendencia de Pensiones, informando de lo actuado y resultados a la Junta Directiva de Popular Pensiones.

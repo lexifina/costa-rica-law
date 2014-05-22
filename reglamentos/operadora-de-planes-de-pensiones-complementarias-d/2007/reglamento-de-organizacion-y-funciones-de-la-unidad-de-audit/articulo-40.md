@@ -1,0 +1,1 @@
+Artículo 40.—Resolución de conflictos. Cualquier discrepancia que se presente producto de su ejecución e interpretación será resuelta de común acuerdo entre la Junta Directiva y el Auditor Interno o Auditoría Interna, y en caso de que persista el tema deberá remitirse a la Contraloría General de la Republica para su resolución final.

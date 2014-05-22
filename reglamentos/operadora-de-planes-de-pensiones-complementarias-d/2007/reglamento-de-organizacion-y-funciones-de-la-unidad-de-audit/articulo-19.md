@@ -1,14 +1,18 @@
-Artículo 19.—Otros aspectos relativos al funcionamiento de la Auditoría Interna. El Auditor Interno deberá velar por el cumplimiento de al menos lo siguiente:
-a) Que se realicen los servicios de Auditoría y preventivos que considere necesario y prudente efectuar de acuerdo con las normas técnicas que rigen su actuar.
-b) Emitir a su personal los lineamientos que considere necesarios en cuanto al procesamiento de la información en aspectos como:
-• Cualidades de la información.
-• Análisis y evaluación de la misma.
-• Registros.
-• Acceso y custodia de la información.
-• Supervisión de las labores realizadas.
-c) Que el proceso de comunicación de los resultados se realice por los medios idóneos, a saber:
-• Informes de Control Interno.
-• Relaciones de Hechos.
-• Oficios producto de servicios preventivos.
-• Otros a criterio del Auditor Interno.
-d) Girar instrucciones precisas al personal a su cargo, sobre aspectos en materia de seguimiento de las recomendaciones que emite la Auditoría Interna y las disposiciones giradas por la Contraloría General de la República y otros órganos externos de fiscalización, cuando sean de su conocimiento.
+Artículo 19.—Funciones de la Auditoría Interna. Para el cumplimiento de sus deberes, la Auditoría, conforme a su plan de trabajo anual, tendrá las siguientes funciones:
+a) Desarrollar auditorías o estudios especiales de auditoría en cualquiera de las unidades administrativas y operativas, sistemas, procesos, operaciones, funciones, programas o actividades de la Operadora, en el momento que considere oportuno y las veces que sea necesario.
+b) Evaluar el Sistema de Control Interno, en relación con los aspectos administrativos, presupuestarios, contables, financieros, de riesgo y de cualquier otra naturaleza, con el fin de determinar su cumplimiento, suficiencia, confiabilidad, validez y eficiencia, y recomendar las mejoras que considere necesarias y oportunas.
+c) Evaluar que los bienes patrimoniales se hallen debidamente controlados, contabilizados, protegidos contra pérdida, menoscabo, mal uso o desperdicio, e inscritos a nombre de Popular Pensiones, cuando se trate de bienes inmuebles o de muebles sujetos a ese requisito.
+d) Evaluar que los recursos financieros, materiales, humanos, tecnológicos y en general, los activos de Popular Pensiones, sean administrados por todos los trabajadores o trabajadoras de la Institución, con eficiencia, eficacia y economía de conformidad con las sanas prácticas administrativas, contables y financieras, y de acuerdo con las normas del ordenamiento jurídico vigente.
+e) Revisar cuando lo considere pertinente, las operaciones administrativas, contables, presupuestarias, financieras y de cualquier otra naturaleza, los registros, informes, estados financieros, de ejecución y liquidación presupuestaria de Popular Pensiones, así como cualquier otro tipo de documentación e información.
+f) Verificar que se hayan establecido medidas para proteger los intereses de la Institución en la administración de sus recursos y promover la eficiencia, eficacia y oportunidad de las operaciones, así como el cumplimiento de las disposiciones legales, reglamentarias y de riesgo, los objetivos y metas, las políticas, planes, programas, actividades y procedimientos administrativos, contables, financieros y otros que rigen a Popular Pensiones.
+g) Efectuar evaluaciones de los sistemas de planificación, procesamiento electrónico de datos u otros sistemas de Popular Pensiones, de acuerdo con las normas técnicas y jurídicas aplicables.
+h) Comunicar los resultados de las auditorías o estudios especiales que realice por medio de informes escritos o digitales, cuando así lo estime conveniente, que contengan al menos comentarios, conclusiones y recomendaciones, en busca de brindar la asesoría necesaria para lograr la eficiencia, eficacia y economía en el Sistema de Control Interno, prevención de riesgo y en la gestión administrativa y financiera.
+i) Informar a la máxima autoridad de la cual depende, para su resolución definitiva, sobre aquellos casos en que la Auditoría no haya recibido la debida respuesta de los diferentes componentes de la organización, sobre sus recomendaciones y solicitudes de información, de asesoría o de colaboración, necesarios para el mejor desempeño de su trabajo.
+j) Verificar que los trabajadores o trabajadoras a quienes se hayan remitido los informes tomen las medidas y acciones pertinentes para poner en práctica las recomendaciones aceptadas por la Administración activa, que contienen los informes de la Auditoría Interna, Auditoría Externa y otros entes fiscalizadores.
+k) Asesorar y coordinar en materia de su competencia, al Jerarca del cual depende e igualmente advertir a los órganos pasivos que fiscaliza, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+l) Autorizar, mediante su razón de apertura, los libros de contabilidad y de actas que legal o reglamentariamente deben llevar los órganos sujetos a su jurisdicción institucional.
+m) Establecer los instrumentos administrativos y técnicos procedentes para el funcionamiento apropiado de la Auditoría.
+n) Cumplir las limitaciones y prohibiciones establecidas en el artículo 34 inciso i) de la Ley 8292.
+o) Preparar un plan de trabajo anual mediante un enfoque de riesgos, que contemple las auditorías o estudios especiales de auditoría, que serán ejecutados en un período determinado y remitirlo al jerarca para su debida aprobación.
+p) Medir y valorar la eficacia, eficiencia y economía de todos los controles establecidos por la Administración de Popular Pensiones, así como la calidad de ejecución en el cumplimiento de las labores asignadas.
+q) Preparar una autoevaluación de calidad en forma anual, conforme lo establecen las Normas de Auditoría emitidas por la Contraloría General de la República.

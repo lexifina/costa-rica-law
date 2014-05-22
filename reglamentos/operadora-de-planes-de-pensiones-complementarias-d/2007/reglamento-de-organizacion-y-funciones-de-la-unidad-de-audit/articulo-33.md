@@ -1,2 +1,1 @@
-Artículo 33.—Consultas a órganos externos. Para el mejor cumplimiento de sus funciones, la Auditoría podrá hacer las consultas que considere pertinentes, tanto a la Contraloría General de la República como a la Superintendencia de Pensiones.
-La Auditoría podrá requerir la intervención de éstos u otros organismos externos en casos graves y cuando la Junta Directiva no haya atendido sus recomendaciones.
+Artículo 33.—Estructura de los informes. En cuanto a los requisitos, partes, revisión y remisión de los informes se aplicará principalmente lo dispuesto en la Ley 8292, las Normas de Auditoría, procedimientos internos de la Auditoría Interna y cualquier lineamiento que al efecto emita la Contraloría General de la República.

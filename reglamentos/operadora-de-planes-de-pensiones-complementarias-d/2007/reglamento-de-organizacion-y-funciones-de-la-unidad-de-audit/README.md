@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Unidad de Auditoría Interna de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-11 | la propia norma |
+| 2 | 2014-05-22 | Reglamento 435 (2014-05-22) |
