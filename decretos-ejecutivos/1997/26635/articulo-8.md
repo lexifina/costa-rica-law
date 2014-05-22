@@ -1,1 +1,0 @@
-Artículo 8°—El Órgano Asesor de Aguas se reunirá ordinariamente cada dos meses y extraordinariamente cuando se requiera. La convocatoria la hará el Presidente o la mitad más uno de sus miembros. El quórum para sesionar válidamente será de cinco miembros, de los cuales uno deberá ser el Presidente o su suplente. En caso de empate el Presidente tendrá doble voto.

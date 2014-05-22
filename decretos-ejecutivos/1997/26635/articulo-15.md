@@ -1,1 +1,0 @@
-Artículo 15.—Se deroga el decreto No 13-MAG publicado en La Gaceta del 11 de julio de 1969 y el Convenio Interinstitucional para el Manejo Integral de Cuencas Hidrográficas en Costa Rica (MAG-AyA-ICE-SENARA-SNE-MIRENEM-CATIE) publicado en La Gaceta No 81 del 28 de abril de 1988.

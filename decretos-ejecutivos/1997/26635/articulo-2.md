@@ -1,1 +1,0 @@
-Artículo 2°—La misión del Departamento será la de administrar oportuna y eficientemente los recursos hídricos en todo el territorio nacional, procurando el desarrollo sostenible mediante su ordenamiento y manejo racional; brindando un servicio excelente.

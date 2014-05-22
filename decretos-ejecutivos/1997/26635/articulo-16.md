@@ -1,1 +1,0 @@
-Artículo 16.—Dejar sin efecto los Decretos Ejecutivos Nos. 26237-MINAE, de fecha 20 de agosto de 1997 y 26284-MINAE, del 5 de setiembre de 1997. publicados en las Gacetas 156 del 20 de agosto de 1997 y 171 del 5 de setiembre de 1997, respectivamente.
