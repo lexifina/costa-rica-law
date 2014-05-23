@@ -14,3 +14,4 @@ Reglamento de Transportes del Programa Integral de Mercadeo Agropecuario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-03 | la propia norma |
+| 2 | 2014-05-23 | Reglamento 0 (2014-05-23) |

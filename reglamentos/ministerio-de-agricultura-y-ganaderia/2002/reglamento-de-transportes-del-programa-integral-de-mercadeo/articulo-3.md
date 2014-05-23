@@ -1,3 +1,2 @@
-Artículo 3º—Clasificación de los vehículos. Para efectos de este reglamento los vehículos del Programa Integral de Mercadeo Agropecuario se clasifican de la siguiente forma:
-a) Vehículos de uso discrecional.
-b) De uso administrativo general.
+Artículo 3º—Clasificación de los vehículos. El PIMA solo gozará de vehículos de uso administrativo general.
+(Así reformado mediante publicación en La Gaceta N° 98 del 23 de mayo del 2014)

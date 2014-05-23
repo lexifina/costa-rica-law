@@ -1,1 +1,1 @@
-Artículo 27.—El beneficio de uso discrecional no puede considerarse bajo ninguna circunstancia como salario en especie, ni forma parte del respectivo contrato de trabajo.
+Artículo 27.—(Derogado mediante publicación en La Gaceta N° 98 del 23 de mayo del 2014)

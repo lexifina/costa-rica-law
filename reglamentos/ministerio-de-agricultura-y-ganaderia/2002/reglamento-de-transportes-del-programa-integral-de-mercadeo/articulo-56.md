@@ -1,1 +1,2 @@
-Artículo 56.—Conducir el vehículo con el mayor cuidado y responsabilidad.
+Artículo 56.—Conducir el vehículo con el mayor cuidado y responsabilidad. De acuerdo con las normas de sana administración, se exige que el funcionario aproveche tal recurso de la mejor forma posible en el cometido de sus labores, no pudiéndolos usar para fines contrarios a la ley, a la moral y a las buenas costumbres o para usos en lugares que no contribuyan a los objetivos de la Institución.
+(Así reformado mediante publicación en La Gaceta N° 98 del 23 de mayo del 2014)
