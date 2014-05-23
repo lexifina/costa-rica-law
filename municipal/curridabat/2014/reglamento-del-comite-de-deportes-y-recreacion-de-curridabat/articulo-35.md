@@ -1,0 +1,1 @@
+Artículo 35.—Las Actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y de la Secretaría del Comité. El libro de Actas será autorizado por la Auditoría interna de la Municipalidad y las hojas serán foliadas y selladas por ésta.

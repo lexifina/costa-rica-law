@@ -1,0 +1,2 @@
+CAPÍTULO XI
+Elección del representante de las Organizaciones Comunales Artículo 75.—Se entenderá por organizaciones comunales las Asociaciones de Desarrollo Integral, de Desarrollo Comunal y de Desarrollo Específico (Ley N° 218) y las asociaciones de bien social que tengan su radio de acción en el cantón de Curridabat y posean cédula jurídica, personería jurídica al día y se encuentren debidamente inscritas en el Registro de Organizaciones y/o Asociaciones Comunales en la Municipalidad.

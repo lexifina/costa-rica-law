@@ -1,0 +1,1 @@
+Artículo 2º—Tendrá su domicilio legal, en el distrito Central, Estadio José Ángel “Lito” Monge Cordero, pudiendo variar la sede de manera temporal, para realizar actividades especiales, siempre dentro del cantón de Curridabat.

@@ -1,0 +1,1 @@
+Artículo 11.—No podrán formar parte del Comité Cantonal, el Alcalde, Alcaldes suplentes, auditor, sub-auditor, tesorero, contador, sus cónyuges o parientes en línea directa o colateral hasta tercer grado inclusive.

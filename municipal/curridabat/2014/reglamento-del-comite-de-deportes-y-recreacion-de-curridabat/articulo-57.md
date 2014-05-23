@@ -1,0 +1,1 @@
+Artículo 57.—Cada comité comunal podrá formar sub-comités de deportes y recreación como apoyo, en los barrios y caseríos que lo ameriten. Seguirá los procedimientos establecidos en el nombramiento de los comités comunales descritos de este reglamento. Su funcionamiento se limitará a su jurisdicción territorial.
