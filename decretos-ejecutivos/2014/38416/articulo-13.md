@@ -1,0 +1,1 @@
+Artículo 13.—Normas Supletorias. En lo no contemplado el Consejo de Competitividad y sus instancias organizativas, se regirán por las disposiciones que regulan a los Órganos Colegiados, contenidas en la Ley General de la Administración Pública, Ley Nº 6227, Título Segundo, Capítulo Tercero.
