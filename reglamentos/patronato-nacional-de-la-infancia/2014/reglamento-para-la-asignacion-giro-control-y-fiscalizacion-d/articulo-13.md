@@ -1,0 +1,3 @@
+Artículo 13.—El Comité Evaluador tendrá la responsabilidad de analizar las solicitudes de beca, aprobarlas o denegarlas, según los criterios establecidos para tal fin. En un plazo no mayor a diez días hábiles deberá pronunciarse con respecto a las solicitudes de becas completas que eleven las diferentes oficinas locales.
+Una vez aprobada o denegada la beca, el Comité Evaluador será responsable de enviar al COI, la boleta de Resultado de Comprobación Documental, en un plazo no mayor a dos días hábiles.
+El Comité Evaluador sesionará las veces que sea necesario en la sede de la Oficina Local correspondiente.
