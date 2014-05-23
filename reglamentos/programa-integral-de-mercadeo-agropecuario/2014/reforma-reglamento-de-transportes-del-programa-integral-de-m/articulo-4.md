@@ -1,0 +1,2 @@
+Artículo 4º—Modifíquese el artículo 17 del Reglamento para que en adelante diga:
+Artículo 17.—Todo automotor que salga de la institución fuera de las horas laborales, deberá contar con la autorización escrita por parte del Gerente General o de quien éste designe. Salvo el caso de la Auditoría Interna y la Asesoría Legal, por las razones excepcionales de sus cargos, los que serán aprobados por sus respectivas jefaturas.
