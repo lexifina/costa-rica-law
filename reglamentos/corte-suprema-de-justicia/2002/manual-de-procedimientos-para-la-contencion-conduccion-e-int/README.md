@@ -16,3 +16,4 @@ Manual de Procedimientos para la Contención, Conducción e Intervenciones Corpo
 | 2 | 2004-11-30 | Reglamento 92 (2004-11-30) |
 | 3 | 2004-12-23 | Reglamento 99 (2004-12-23) |
 | 4 | 2005-09-13 | Reglamento 73 (2005-09-13) |
+| 5 | 2014-05-23 | Circular 114 (2014-05-23) |
