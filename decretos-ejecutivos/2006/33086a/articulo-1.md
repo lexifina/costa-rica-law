@@ -3,21 +3,23 @@ EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 25, inciso 1), 27, inciso 1), y 28, inciso 2), acápite b), de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y su Reglamento, el Decreto Ejecutivo Nº 32988-H-MP-PLAN de 31 de enero del 2006 y el Decreto Ejecutivo Nº 31746-H de 12 de marzo del 2004.
 Considerando:
-I.—Que el artículo 32, inciso a), de la Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta Nº 198 de 16 de octubre del 2001, establece dentro de las competencias de la Dirección General de Presupuesto Nacional, órgano rector en materia de presupuesto, elaborar, junto con la Contraloría General de la República, así como dictar los criterios y lineamientos generales que informen las normas técnicas del proceso de programación, presupuestación y evaluación presupuestaria del sector público.
-II.—Que el artículo 37 de la Ley citada, establece que las clasificaciones presupuestarias de ingresos y gastos se determinarán en el Reglamento de dicha Ley y para ello se considerarán las necesidades de cada una de las etapas del proceso presupuestario, previa consulta a la Contraloría General de la República, en lo que corresponda dentro del cumplimiento de sus funciones constitucionales.
-III.—Que el artículo 43 del Decreto Ejecutivo Nº 32988-H-MPPLAN, publicado en La Gaceta Nº 74 de 18 de abril del 2006, establece que el presupuesto de egresos se elaborará considerando la clasificación institucional, la cual consiste en la agrupación de las instituciones que conforman el sector público, con base en criterios de naturaleza económica, política y administrativa de los entes y órganos.
-IV.—Que el artículo 44 del decreto antes citado, dispone que mediante Decreto Ejecutivo, previa coordinación con la Contraloría General de la República, se establecerá el detalle de cada una de las clasificaciones indicadas en los artículos 41 y 43 del referido Reglamento, así como las normas y criterios operativos para su utilización, las cuales se incluirán como parte de la normativa técnica básica de aplicación para todo el sector público
-V.—Que mediante el Decreto Ejecutivo Nº 31746-H, publicado en La Gaceta Nº 79 de 23 de abril del 2004, se emitió el documento denominado “Clasificador Presupuestario Institucional” de uso generalizado para el sector público.
-VI.—Que de acuerdo con el artículo 4º del Decreto Ejecutivo Nº 31746-H, se constituyó una Comisión Interinstitucional, la cual reformuló el Clasificador Institucional del Sector Público, cuyas modificaciones fueron sometidas a consulta ante la Contraloría General de la República, quien presentó sus observaciones mediante el oficio Nº 1991 de 10 de febrero del 2006.
-VII.—Que a la fecha se han publicado el Clasificador Presupuestario de los Ingresos del Sector Público, el Clasificador Presupuestario por Objeto del Gasto, el Clasificador Presupuestario Institucional y el Clasificador Económico del Gasto; los cuales permiten la homogeneidad y a su vez la sistematización de la información estadística, así como el análisis y estudios en materia fiscal para el sector público en su conjunto.
-VIII.—Que se hace necesario emitir el presente decreto, a efectos de modificar el Decreto Ejecutivo Nº 31746-H y el Clasificador Institucional del Sector Público, conforme a las necesidades vigentes. Por tanto,
+I.-Que el artículo 32, inciso a), de la Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta Nº 198 de 16 de octubre del 2001, establece dentro de las competencias de la Dirección General de Presupuesto Nacional, órgano rector en materia de presupuesto, elaborar, junto con la Contraloría General de la República, así como dictar los criterios y lineamientos generales que informen las normas técnicas del proceso de programación, presupuestación y evaluación presupuestaria del sector público.
+II.-Que el artículo 37 de la Ley citada, establece que las clasificaciones presupuestarias de ingresos y gastos se determinarán en el Reglamento de dicha Ley y para ello se considerarán las necesidades de cada una de las etapas del proceso presupuestario, previa consulta a la Contraloría General de la República, en lo que corresponda dentro del cumplimiento de sus funciones constitucionales.
+III.-Que el artículo 43 del Decreto Ejecutivo Nº 32988-H-MPPLAN, publicado en La Gaceta Nº 74 de 18 de abril del 2006, establece que el presupuesto de egresos se elaborará considerando la clasificación institucional, la cual consiste en la agrupación de las instituciones que conforman el sector público, con base en criterios de naturaleza económica, política y administrativa de los entes y órganos.
+IV.-Que el artículo 44 del decreto antes citado, dispone que mediante Decreto Ejecutivo, previa coordinación con la Contraloría General de la República, se establecerá el detalle de cada una de las clasificaciones indicadas en los artículos 41 y 43 del referido Reglamento, así como las normas y criterios operativos para su utilización, las cuales se incluirán como parte de la normativa técnica básica de aplicación para todo el sector público
+V.-Que mediante el Decreto Ejecutivo Nº 31746-H, publicado en La Gaceta Nº 79 de 23 de abril del 2004, se emitió el documento denominado "Clasificador Presupuestario Institucional" de uso generalizado para el sector público.
+VI.-Que de acuerdo con el artículo 4º del Decreto Ejecutivo Nº 31746-H, se constituyó una Comisión Interinstitucional, la cual reformuló el Clasificador Institucional del Sector Público, cuyas modificaciones fueron sometidas a consulta ante la Contraloría General de la República, quien presentó sus observaciones mediante el oficio Nº 1991 de 10 de febrero del 2006.
+VII.-Que a la fecha se han publicado el Clasificador Presupuestario de los Ingresos del Sector Público, el Clasificador Presupuestario por Objeto del Gasto, el Clasificador Presupuestario Institucional y el Clasificador Económico del Gasto; los cuales permiten la homogeneidad y a su vez la sistematización de la información estadística, así como el análisis y estudios en materia fiscal para el sector público en su conjunto.
+VIII.-Que se hace necesario emitir el presente decreto, a efectos de modificar el Decreto Ejecutivo Nº 31746-H y el Clasificador Institucional del Sector Público, conforme a las necesidades vigentes. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase el documento denominado “Clasificador Institucional del Sector Público”, el cual será distribuido a través de los mecanismos pertinentes y estará a disposición de las instituciones, así como para el resto de la ciudadanía, en la página electrónica del Ministerio de Hacienda https://www.hacienda.go.cr y en forma impresa, en los archivos que se custodian en la Dirección General de Presupuesto Nacional.
+Artículo 1º-Modifícase el documento denominado "Clasificador Institucional del Sector Público", el cual será distribuido a través de los mecanismos pertinentes y estará a disposición de las instituciones, así como para el resto de la ciudadanía, en la página electrónica del Ministerio de Hacienda https://www.hacienda.go.cr y en forma impresa, en los archivos que se custodian en la Dirección General de Presupuesto Nacional.
 (Nota de Sinalevi: La presente norma se extrajo del sitio Web de Contabilidad Nacional del Ministerio de Hacienda https://www.hacienda.go.cr/Msib21/Espanol/Dirección+de+Presupuesto, y se transcribe a continuación:)
-(Nota de Sinalevi: Este Clasificador fue reformado parcialmente y reproducido su texto en forma íntegra, mediante decreto ejecutivo N°36585 del 26 de abril del 2011 y publicado en La Gaceta N° 104 del 31 de mayo del 2011, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: Este Clasificador fue reformado parcialmente y reproducido su texto en forma íntegra, mediante decreto ejecutivo N° 38544 del 23 de mayo del 2014 y publicado en La Gaceta N° 161 del del 22 de agosto del 2014, por lo que se reproduce a continuación:)
+CLASIFICADOR INSTITUCIONAL DEL SECTOR PÚBLICO
+Agosto 2014
 CLASIFICACIÓN INSTITUCIONAL DEL SECTOR PÚBLICO
 CONCEPTO
-El clasificador institucional es la agrupación de los entes y órganos que conforman las instituciones del Sector Público, definida con base en criterios de naturaleza económica, competencia en la administración de los recursos públicos y político- administrativo .
+El clasificador institucional es la agrupación de los entes y órganos que conforman las instituciones del Sector Público, definida con base en criterios de naturaleza económica, competencia en la administración de los recursos públicos y político- administrativo.
 COBERTURA
 El artículo 37 de la Ley de Administración Financiera de la República y Presupuestos Públicos N° 8131 del 18 de setiembre del 2001 y el artículo 42 de su reglamento y sus modificaciones, constituyen el marco jurídico para la definición y aplicación del clasificador institucional a todo el Sector Público Costarricense; el cual está integrado por: a) la Administración Central (conformada por el Poder Ejecutivo y sus dependencias); b) los Poderes Legislativo y Judicial, el Tribunal Supremo de Elecciones, sus dependencias y órganos auxiliares; c) la Administración Descentralizada y las Empresas Públicas del Estado, d) las Universidades, las Municipalidades, la Caja Costarricense de Seguro Social, y e) los Entes Públicos no Estatales.
 OBJETIVOS
@@ -30,11 +32,11 @@ UNIDAD DE CLASIFICACIÓN
 Las unidades fundamentales de clasificación, sujetas de enumeración y ubicación en los diversos sectores, subsectores y grupos, son las instituciones del Sector Público que funcionan con presupuestos separados y cuyo proceso presupuestario se lleva a cabo en forma independiente al de otras instituciones.
 CRITERIOS
 La definición sector, subsector, grupos y subgrupos institucionales se basa en los siguientes tres criterios:
-Criterio económico
+a. Criterio económico
 Dentro de un mismo sector, subsector o grupo se incluyen instituciones que producen bienes y servicios de similar naturaleza o que se complementan sustancialmente entre sí, que realizan función de gobierno o de empresa. Los bienes y servicios pueden ser de tipo gubernamental o empresarial de naturaleza financiera y no financiera a cambio de un precio unitario. De acuerdo con los sistemas de contabilidad nacional y estadísticas de las finanzas públicas, se distinguen en primer lugar dos clases de agentes de transacciones: una relacionada con las corrientes de producción de bienes y servicios como son la producción, consumo y formación de capital; y otra con las corrientes financieras.
-Criterio de competencia en la administración de los recursos públicos
+b. Criterio de competencia en la administración de los recursos públicos
 Las instituciones que se incluyen en un mismo grupo institucional tienen un nivel similar de centralización, descentralización o desconcentración, lo que permite distinguir entre aquellas que están sujetas a órdenes e instrucciones de un nivel jerárquico superior de las que están sujetas a la tutela administrativa.
-Criterio político-administrativo
+c. Criterio político-administrativo
 Las instituciones de un mismo grupo institucional son semejantes con respecto al origen de su autoridad, es decir, nacional o local. En el caso costarricense esa autoridad proviene del Gobierno de la República o del Gobierno Municipal.
 DESCRIPCIÓN DE LOS SECTORES
 1.0.0.0.000.000 SECTOR PÚBLICO
@@ -44,7 +46,7 @@ Comprende las instituciones que realizan funciones económicas de gobierno como 
 Se divide en dos subsectores Gobierno General y Empresas Públicas no Financieras.
 1.1.1.0.000.000 GOBIERNO GENERAL
 Agrupa las instituciones que se dedican a cumplir las funciones de Gobierno. El Gobierno General se divide en los siguientes grupos institucionales: Gobierno de la República, las Instituciones Descentralizadas no Empresariales y los Gobiernos Locales.
-1.1.1.1.00.0 GOBIERNO DE LA REPÚBLICA
+1.1.1.1.000.000 GOBIERNO DE LA REPÚBLICA
 Está conformado por las instituciones agrupadas dentro del Gobierno Central y los Órganos Desconcentrados, las cuales cumplen funciones de gobierno.
 1.1.1.1.100.000 GOBIERNO CENTRAL
 Comprende las instituciones que cumplen funciones de gobierno en el ámbito nacional y que no son desconcentradas ni descentralizadas. Está conformado por el Poder Ejecutivo, el Poder Legislativo y sus órganos auxiliares, el Poder Judicial y el Tribunal Supremo de Elecciones. Incluye además algunos títulos presupuestarios que no corresponden a instituciones.
@@ -58,7 +60,7 @@ Son aquellas instituciones que se han creado para ejecutar actividades específi
 1.1.1.2.000.000 INSTITUCIONES DESCENTRALIZADAS NO EMPRESARIALES
 Son instituciones con personalidad jurídica plena y patrimonio propio que realizan función de gobierno en el ámbito nacional, a quienes les ha sido asignada una competencia específica en la satisfacción de un fin público determinado. Además, presentan cierto grado de autonomía administrativa, política y organizativa, pero están sujetas a la tutela administrativa del Estado. Incluye aquellos entes públicos no estatales con características similares al resto de las instituciones que conforman este grupo.
 1.1.1.3.000.000 GOBIERNOS LOCALES
-Son entes autónomos con jurisdicción territorial determinada, encargados de la administración de los intereses y servicios locales de cada cantón o distrito, en este último caso, se consideran aquellos consejos municipales de distrito que tienen presupuesto independiente. Incluye otras instituciones tales como Comités Cantonales de Deportes, federaciones, ligas y uniones relacionados con los Gobiernos locales”.
+Son entes autónomos con jurisdicción territorial determinada, encargados de la administración de los intereses y servicios locales de cada cantón. Incluye otras instituciones tales como Comités Cantonales de Deportes, federaciones, ligas y uniones relacionados con los Gobiernos locales.
 1.1.2.0.000.000 EMPRESAS PÚBLICAS NO FINANCIERAS
 Incluye las empresas del Estado que desarrollan una actividad económica destinada a la producción y el intercambio de bienes y servicios para un mercado, incurriendo en costos de producción y fuentes de financiamiento propios de una empresa, que operan en régimen de competencia o de monopolio, la cual puede asumir distintas modalidades organizativas: órgano, institución autónoma, semiautónoma, ente público estatal o no estatal o ente privado.
 Se divide en Empresas Públicas no Financieras Nacionales y Empresas Públicas no Financieras Municipales.
@@ -75,7 +77,8 @@ Considera aquellas instituciones que llevan a cabo actividades financieras en la
 Comprende las instituciones que tienen como función principal la intermediación financiera por medio de la captación en cuentas corrientes y otros medios, con el fin de destinarlos por cuenta y riesgo propio a cualquier forma de crédito o inversión en valores.
 1.2.1.2.000.000 INSTITUCIONES PÚBLICAS FINANCIERAS NO BANCARIAS
 Incluye las instituciones cuya principal función económica es la de actuar como intermediarios en la movilización y distribución del ahorro de la comunidad, a través del cobro de primas contractuales, fondos de pensiones y ahorro, la creación de activos financieros y la concesión de créditos. Estas instituciones se caracterizan por no tener pasivos en forma de depósitos en cuenta corriente.
-1.2.1.3.000.000 INSTITUCIONES PÚBLICAS FINANCIERAS DE RECTORÍA Y SUPERVISIÓN
+1.2.1.3.000.000 INSTITUCIONES PÚBLICAS FINANCIERAS DE RECTORÍA Y
+SUPERVISIÓN
 Incluye las instituciones que ejecutan funciones de autoridad monetaria como la emisión de dinero, el control del crédito y la supervisión general del sistema monetario y económico del país, así como también el manejo y custodia de las reservas internacionales. Considera las entidades encargadas de supervisar y regular actividades financieras como los fondos de pensiones, actividades de ahorro y crédito, así como la emisión de títulos valores entre otros.
 CODIFICACIÓN
 La codificación se realiza en seis niveles denominados: Sector, Subsector, Grupo, Subgrupo, Instituciones e Identificador de Órganos Desconcentrados en el Gobierno Central (OD/GC).
@@ -91,6 +94,7 @@ ESTRUCTURA
 La estructura base del clasificador parte de un primer nivel denominado Sector Público con dos grandes ramificaciones que dan origen al Sector Público No Financiero y Sector Público Financiero, los cuales se van subdividiendo hasta llegar al nivel de Instituciones en que se identifica cada entidad en forma individual con su respectivo código, por medio de la utilización de los tres dígitos del quinto nivel. A continuación se presenta esquemáticamente la estructura del sector público de acuerdo al clasificador institucional:
 [imagen]
 DETALLE DEL CLASIFICADOR INSTITUCIONAL
+________________________________________
 1.0.0.0.000.000 SECTOR PÚBLICO
 1.1.0.0.000.000 SECTOR PÚBLICO NO FINANCIERO
 1.1.1.0.000.000 GOBIERNO GENERAL
@@ -107,37 +111,41 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.1.206.000 Ministerio de Hacienda (MHD) (Anexo N°4)
 1.1.1.1.207.000 Ministerio de Agricultura y Ganadería (MAG) (Anexo N°4)
 1.1.1.1.208.000 Ministerio de Economía, Industria y Comercio (MEIC)
-1.1.1.1.209.000 Ministerio de Obras Públicas y Transportes (MOPT)
+1.1.1.1.209.000 Ministerio de Obras Públicas y Transportes (MOPT) (Anexo N°4)
 1.1.1.1.210.000 Ministerio de Educación Pública (MEP)
-1.1.1.1.211.000 Ministerio de Salud
-1.1.1.1.212.000 Ministerio de Trabajo y Seguridad Social (MTSS)
+1.1.1.1.211.000 Ministerio de Salud (Anexo N°4)
+1.1.1.1.212.000 Ministerio de Trabajo y Seguridad Social (MTSS) (Anexo N°4)
 1.1.1.1.213.000 Ministerio de Cultura y Juventud (MCJ)
-1.1.1.1.214.000 Ministerio de Justicia y Paz
+1.1.1.1.214.000 Ministerio de Justicia y Paz (Anexo N°4)
 1.1.1.1.215.000 Ministerio de la Vivienda y Asentamientos Humanos (MIVAH)
 1.1.1.1.216.000 Ministerio de Comercio Exterior (COMEX)
 1.1.1.1.217.000 Ministerio de Planificación Nacional y Política Económica (MIDEPLAN)
-1.1.1.1.218.000 Ministerio de Ciencia y Tecnología (MICIT)
-1.1.1.1.219.000 Ministerio de Ambiente, Energía y Telecomunicaciones (MINAET)
+1.1.1.1.218.000 Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT)
+1.1.1.1.219.000 Ministerio de Ambiente y Energía (MINAE) (Anexo N°4)
 1.1.1.1.230.000 Servicio de la Deuda Pública
-1.1.1.1.231.000 Regímenes de Pensiones con Cargo al Presupuesto de la República
+1.1.1.1.231.000 Regímenes de Pensiones con Cargo al Presupuesto de la
+República
 1.1.1.1.232.000 Obras Específicas
-1.1.1.1.301.000 Poder Judicial
+1.1.1.1.301.000 Poder Judicial (Anexo Nº 4)
 1.1.1.1.401.000 Tribunal Supremo de Elecciones (TSE)
 1.1.1.1.500.000 ÓRGANOS DESCONCENTRADOS
 1.1.1.1.510.213 Casa de Cultura de Puntarenas
 1.1.1.1.530.213 Centro Costarricense de Producción Cinematográfica
 1.1.1.1.531.213 Centro Cultural e Histórico José Figueres Ferrer
 1.1.1.1.534.213 Centro Nacional de la Música
-1.1.1.1.550.218 Comisión de Energía Atómica de Costa Rica (CEA)
 1.1.1.1.551.213 Comisión Nacional de Conmemoraciones Históricas (CNCH)
-1.1.1.1.552.213 Comisión Nacional para la Defensa del Idioma
-1.1.1.1.553.219 Comisión Nacional para la Gestión de la Biodiversidad (CONAGEBIO)
-1.1.1.1.554.201 Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE)
+1.1.1.1.553.219 Comisión Nacional para la Gestión de la Biodiversidad
+(CONAGEBIO)
+1.1.1.1.554.201 Comisión Nacional de Prevención de Riesgos y Atención de
+Emergencias (CNE)
 1.1.1.1.555.211 Comisión Nacional de Vacunación y Epidemiología
-1.1.1.1.556.219 Comisión de Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón (CONCURE)
+1.1.1.1.556.219 Comisión de Ordenamiento y Manejo de la Cuenca Alta del
+Río Reventazón (CONCURE)
+1.1.1.1.570.207 Consejo Nacional de Clubes 4-S
 1.1.1.1.580.209 Consejo Nacional de Concesiones (CNC)
 1.1.1.1.582.201 Consejo Nacional de la Persona Adulta Mayor (CONAPAM)
-1.1.1.1.583.213 Consejo Nacional de la Política Pública de la Persona Joven (CPJ)
+1.1.1.1.583.213 Consejo Nacional de la Política Pública de la Persona
+Joven (CPJ)
 1.1.1.1.584.209 Consejo Nacional de Vialidad (CONAVI)
 1.1.1.1.586.212 Consejo de Salud Ocupacional (CSO)
 1.1.1.1.587.209 Consejo de Seguridad Vial (COSEVI)
@@ -145,28 +153,31 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.1.589.211 Consejo Técnico de Asistencia Médico Social (CTAMS)
 1.1.1.1.590.209 Consejo Técnico de Aviación Civil (CTAC)
 1.1.1.1.591.209 Consejo de Transporte Público (CTP)
-1.1.1.1.630.217 Dirección Ejecutora de Proyectos de Mideplan (DEP)
-1.1.1.1.631.219 Dirección de Geología y Minas
-1.1.1.1.634.211 Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral (Dirección de CEN-CINAI)
+1.1.1.1.632.201 Dirección General del Servicio Civil (DGSC)
+1.1.1.1.634.211 Dirección Nacional de Centros de Educación y Nutrición y de Centros
+Infantiles de Atención Integral (Dirección de CEN-CINAI)
 1.1.1.1.637.214 Dirección Nacional de Notariado
-1.1.1.1.651.207 Fideicomiso del Proyecto de Crédito y Desarrollo Agrícola para Pequeños Productores de la Zona Norte (PPZN)
-1.1.1.1.700.212 Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF)
+1.1.1.1.700.212 Fondo de Desarrollo Social y Asignaciones Familiares
+(FODESAF)
 1.1.1.1.701.205 Fondo Especial del Servicio Nacional de Guardacostas
 1.1.1.1.703.210 Fondo Nacional de Becas (FONABE)
-1.1.1.1.704.219 Fondo Nacional de Financiamiento Forestal (FONAFIFO).Anexo Nº 4
+1.1.1.1.704.219 Fondo Nacional de Financiamiento Forestal (FONAFIFO).
 1.1.1.1.706.217 Fondo de Preinversión de Mideplan
 1.1.1.1.712.210 Fondo Nacional de Becas de Solidaridad Social
-1.1.1.1.720.207 Fundación Nacional de Clubes 4-S (FUNAC)
 1.1.1.1.750.211 Instituto sobre Alcoholismo y Farmacodependencia (IAFA)
 1.1.1.1.751.202 Instituto Costarricense sobre Drogas (ICD)
-1.1.1.1.752.211 Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA)
+1.1.1.1.752.211 Instituto Costarricense de Investigación y Enseñanza en
+Nutrición y Salud (INCIENSA)
 1.1.1.1.753.219 Instituto Meteorológico Nacional (IMN)
-1.1.1.1.755.207 Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA)
+1.1.1.1.755.207 Instituto Nacional de Innovación y Transferencia en
+Tecnología Agropecuaria (INTA) (Anexo Nº 4)
+1.1.1.1.756.210 Instituto de Desarrollo Profesional Uladislao Gámez Solano
 1.1.1.1.780.213 Junta Administrativa del Archivo Nacional (JAAN)
-1.1.1.1.781.203 Junta Administrativa de la Dirección General de Migración y Extranjería
+1.1.1.1.781.203 Junta Administrativa de la Dirección General de Migración y
+Extranjería
 1.1.1.1.782.203 Junta Administrativa de la Imprenta Nacional (JAIN)
-1.1.1.1.783.219 Junta Directiva Del Parque Recreativo Nacional Playas de Manuel Antonio. (Anexo N°4)
-1.1.1.1.784.214 Junta Administrativa del Registro Nacional (Anexo N°4)
+1.1.1.1.783.219 Junta Directiva Del Parque Recreativo Nacional Playas de Manuel Antonio.
+1.1.1.1.784.214 Junta Administrativa del Registro Nacional
 1.1.1.1.795.208 Laboratorio Costarricense de Metrología (LACOMET)
 1.1.1.1.800.213 Museo de Arte Costarricense
 1.1.1.1.801.213 Museo de Arte y Diseño Contemporáneo (MADC)
@@ -174,59 +185,53 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.1.804.213 Museo Nacional de Costa Rica (MNCR)
 1.1.1.1.805.213 Museo Dr. Rafael Ángel Calderón Guardia
 1.1.1.1.820.211 Oficina de Cooperación Internacional de la Salud (OCIS)
-1.1.1.1.850.214 Patronato de Construcciones, Instalaciones y Adquisiciones de Bienes
+1.1.1.1.850.214 Patronato de Construcciones, Instalaciones y
+Adquisiciones de Bienes
 1.1.1.1.851.211 Patronato Nacional de Ciegos (PANACI)
-1.1.1.1.852.211 Patronato Nacional de Rehabilitación (PANARE)
 1.1.1.1.853.219 Parque Marino del Pacífico
-1.1.1.1.901.207 Servicio Fitosanitario del Estado (Anexo N°4)
+1.1.1.1.901.207 Servicio Fitosanitario del Estado
 1.1.1.1.902.207 Servicio Nacional de Salud Animal (SENASA)
-1.1.1.1.908.219 Sistema Nacional de Áreas de Conservación (SINAC)
+1.1.1.1.908.219 Sistema Nacional de Áreas de Conservación (SINAC) (Anexo Nº 4)
+1.1.1.1.914.213 Sistema Nacional de Educación Musical (SINEM)
 1.1.1.1.920.213 Teatro Nacional (TNCR)
 1.1.1.1.921.213 Teatro Popular Melico Salazar (TPMS)
 1.1.1.1.940.214 Tribunal Registral Administrativo (TRA)
-1.1.1.1.942.210 Unidad Coordinadora del Programa de Mejoramiento de la Calidad de la Educación General Básica (PROMECE)
 1.1.1.1.946.206 Unidad de Coordinación del Proyecto Limón Ciudad Puerto
-1.1.1.1.961.206 Unidad Ejecutora Programa Regularización del Catastro y Registro
-1.1.1.2.000.000 INSTITUCIONES DESCENTRALIZADAS NO EMPRESARIALES
+1.1.1.1.961.206 Unidad Ejecutora Programa Regularización del Catastro y
+Registro
+1.1.1.1.975.214 Unidad Ejecutora del Proyecto (UEP)
+1.1.1.2.000.000 INSTITUCIONES DESCENTRALIZADAS NO
+EMPRESARIALES
 1.1.1.2.100.000 Academia Nacional de Ciencias (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.110.000 Autoridad Reguladora de Servicios Públicos (ARESEP)
 1.1.1.2.115.000 Benemérito Cuerpo de Bomberos de Costa Rica
 1.1.1.2.120.000 Caja Costarricense de Seguro Social (CCSS)
 1.1.1.2.121.000 Casa Hogar de la Tía Tere (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.130.000 Colegios Profesionales (Anexo Nº1) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.132.000 Colegio Universitario de Cartago (CUC)
 1.1.1.2.133.000 Colegio Universitario de Limón (CUNLIMON)
+1.1.1.2.137.000 Comisión de Energía Atómica de Costa Rica (CEA).
 1.1.1.2.150.000 Comisión Nacional de Asuntos Indígenas (CONAI)
 1.1.1.2.160.000 Consejo Nacional de Cooperativas (CONACOOP) (●)
-(●) Corresponden a Entes Públicos no Estatales
-1.1.1.2.161.000 Consejo Nacional de Investigaciones Científicas y Tecnológicas (CONICIT) (Anexo N°4)
+1.1.1.2.161.000 Consejo Nacional de Investigaciones Científicas y
+Tecnológicas (CONICIT) (Anexo N°4)
 1.1.1.2.162.000 Consejo Nacional de Rectores (CONARE)
 1.1.1.2.163.000 Consejo Nacional de Rehabilitación y Educación Especial (CNREE)
 1.1.1.2.180.000 Corporación Arrocera Nacional (CONARROZ) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.182.000 Corporación Ganadera (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.185.000 Corporación Hortícola Nacional (CHN) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.200.000 Ente Costarricense de Acreditación (ECA) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.210.000 Fondo de Desarrollo de la Provincia de Limón (FODELI)
 1.1.1.2.211.000 Fondo Nacional de Estabilización Cafetalera (FONECAFE) (●)
-(●) Corresponden a Entes Públicos no Estatales
-1.1.1.2.215.000 Fondo de Apoyo para Educación Superior y Técnica del Puntarenense (●)
-(●) Corresponden a Entes Públicos no Estatales
+1.1.1.2.215.000 Fondo de Apoyo para Educación Superior y Técnica del
+Puntarenense (●)
 1.1.1.2.220.000 Instituto del Café de Costa Rica (ICAFE) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.222.000 Instituto Costarricense del Deporte y la Recreación (ICODER)
 1.1.1.2.223.000 Instituto Costarricense de Pesca y Acuicultura (INCOPESCA)
 1.1.1.2.224.000 Instituto Costarricense de Turismo (ICT) (Anexo N°4)
-1.1.1.2.225.000 Instituto de Desarrollo Rural (INDER)(*)
-(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+1.1.1.2.225.000 Instituto de Desarrollo Rural (INDER)
 1.1.1.2.226.000 Instituto de Fomento y Asesoría Municipal (IFAM)
-1.1.1.2.227.000 Instituto Mixto de Ayuda Social (IMAS)
+1.1.1.2.227.000 Instituto Mixto de Ayuda Social (IMAS) (Anexo Nº 4)
 1.1.1.2.228.000 Instituto Nacional de Aprendizaje (INA)
 1.1.1.2.229.000 Instituto Nacional de Estadística y Censos (INEC)
 1.1.1.2.230.000 Instituto Nacional de las Mujeres (INAMU)
@@ -235,23 +240,23 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.2.251.000 Junta Administrativa Colegio San Luis Gonzaga (JACSLG)
 1.1.1.2.252.000 Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas (JUDESUR)
 1.1.1.2.253.000 Juntas de Educación (Anexo Nº3)
-1.1.1.2.254.000 Junta de Pensiones y Jubilaciones del Magisterio Nacional (JUPEMA) (●)
-(●) Corresponden a Entes Públicos no Estatales
+1.1.1.2.254.000 Junta de Pensiones y Jubilaciones del Magisterio Nacional
+(JUPEMA) (●)
 1.1.1.2.260.000 Liga Agrícola Industrial de la Caña (LAICA) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.267.000 Oficina Nacional de Semillas (ONS)
 1.1.1.2.270.000 Oficina Nacional Forestal (ONAFO) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.1.2.290.000 Patronato Nacional de la Infancia (PANI)
+1.1.1.2.296.000 Patronato Nacional de Rehabilitación (PANARE)
 1.1.1.2.300.000 Programa Integral de Mercadeo Agropecuario (PIMA)
 1.1.1.2.301.000 Promotora de Comercio Exterior (PROCOMER) (●)
-(●) Corresponden a Entes Públicos no Estatales
-1.1.1.2.320.000 Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA)
-1.1.1.2.326.000 Superintendencia de Telecomunicaciones (SUTEL)
+1.1.1.2.320.000 Servicio Nacional de Aguas Subterráneas, Riego y
+Avenamiento (SENARA)
+1.1.1.2.323.000 Sistema de Emergencia 9-1-1
+1.1.1.2.326.000 Superintendencia de Telecomunicaciones (SUTEL) (Anexo Nº 4)
 1.1.1.2.340.000 Universidad de Costa Rica (UCR)
 1.1.1.2.341.000 Universidad Estatal a Distancia (UNED)
 1.1.1.2.342.000 Universidad Nacional (UNA)
-1.1.1.2.353.000 Universidad Técnica Nacional
+1.1.1.2.353.000 Universidad Técnica Nacional (UTN) (Anexo Nº 4)
 1.1.1.3.000.000 GOBIERNOS LOCALES
 1.1.1.3.100.000 PROVINCIA DE SAN JOSE
 1.1.1.3.101.000 Municipalidad de San José (Anexo N°4)
@@ -285,12 +290,11 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.3.208.000 Municipalidad de Poás
 1.1.1.3.209.000 Municipalidad de Orotina
 1.1.1.3.210.000 Municipalidad de San Carlos
-1.1.1.3.211.000 Municipalidad de Alfaro Ruíz
+1.1.1.3.211.000 Municipalidad de Zarcero
 1.1.1.3.212.000 Municipalidad de Valverde Vega
 1.1.1.3.213.000 Municipalidad de Upala
 1.1.1.3.214.000 Municipalidad de Los Chiles
 1.1.1.3.215.000 Municipalidad de Guatuso
-1.1.1.3.220.000 Concejo Municipal de Distrito de Peñas Blancas de San Ramón
 1.1.1.3.300.000 PROVINCIA DE CARTAGO
 1.1.1.3.301.000 Municipalidad de Cartago
 1.1.1.3.302.000 Municipalidad de Paraíso
@@ -300,8 +304,6 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.3.306.000 Municipalidad de Alvarado
 1.1.1.3.307.000 Municipalidad de Oreamuno
 1.1.1.3.308.000 Municipalidad de El Guarco
-1.1.1.3.320.000 Concejo Municipal de Distrito de Cervantes de Alvarado
-1.1.1.3.321.000 Concejo Municipal de Distrito de Tucurrique de Jiménez
 1.1.1.3.400.000 PROVINCIA DE HEREDIA
 1.1.1.3.401.000 Municipalidade de Heredia
 1.1.1.3.402.000 Municipalidade de Barva
@@ -325,7 +327,6 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.3.509.000 Municipalidad de Nandayure
 1.1.1.3.510.000 Municipalidad de La Cruz
 1.1.1.3.511.000 Municipalidad de Hojancha
-1.1.1.3.520.000 Concejo Municipal de Distrito de Colorado de Abangares
 1.1.1.3.600.000 PROVINCIA DE PUNTARENAS
 1.1.1.3.601.000 Municipalidad de Puntarenas
 1.1.1.3.602.000 Municipalidad de Esparza
@@ -338,10 +339,6 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.3.609.000 Municipalidad de Parrita
 1.1.1.3.610.000 Municipalidad de Corredores
 1.1.1.3.611.000 Municipalidad de Garabito
-1.1.1.3.620.000 Concejo Municipal de Distrito de Cóbano Puntarenas
-1.1.1.3.621.000 Concejo Municipal de Distrito de Monteverde de Puntarenas
-1.1.1.3.622.000 Concejo Municipal de Distrito de Lepanto de Puntarenas
-1.1.1.3.623.000 Concejo Municipal de Distrito de Paquera de Puntarenas
 1.1.1.3.700.000 PROVINCIA DE LIMÓN
 1.1.1.3.701.000 Municipalidade de Limón
 1.1.1.3.702.000 Municipalidad de Pococí
@@ -351,48 +348,51 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.1.1.3.706.000 Municipalidad de Guácimo
 1.1.1.3.900.000 OTRAS ENTIDADES DE GOBIERNOS LOCALES
 1.1.1.3.910.000 Comités Cantonales de Deportes y Recreación (Anexo Nº 5)
-1.1.1.3.911.000 Convenio Cooperativo Intermunicipal
-1.1.1.3.920.000 Federación de Gobiernos Locales Costarricenses Fronterizos con Nicaragua
-1.1.1.3.921.000 Federación de Municipalidades de Cantones Productores de Banano (CAPROBA)
-1.1.1.3.922.000 Federación de Municipalidades de la Provincia de Cartago (FEMUCARTAGO)
+1.1.1.3.920.000 Federación de Gobiernos Locales Costarricenses
+Fronterizos con Nicaragua
+1.1.1.3.921.000 Federación de Municipalidades de Cantones Productores
+de Banano (CAPROBA)
+1.1.1.3.922.000 Federación de Municipalidades de la Provincia de Cartago
+(FEMUCARTAGO)
 1.1.1.3.924.000 Federación de Municipalidades y Consejos Municipales de Distrito del Pacífico (FEMUPAC)
 1.1.1.3.925.000 Federación Metropolitana de Municipalidades de San José (FEMETRON)
 1.1.1.3.926.000 Federación de Consejos Municipales de Distrito de Costa Rica
 1.1.1.3.927.000 Federación de Municipalidades de Heredia.
 1.1.1.3.928.000 Federación de Municipalidades de Guanacaste
 1.1.1.3.929.000 Federación Occidental de Municipalidades de Alajuela (FEDOMA)
-1.1.1.3.930.000 Federación de Municipalidades de los Santos (FEMUSAN)
 1.1.1.3.933.000 Federación de Municipalidades de la Región Sur de la Provincia de Puntarenas (FEDEMSUR)
 1.1.1.3.940.000 Junta Administrativa Cementerios de Goicoechea
-1.1.1.3.941.000 Junta Administradora del Cementerio General y Las Rosas de Alajuela
+1.1.1.3.941.000 Junta Administradora del Cementerio General y Las Rosas
+de Alajuela
 1.1.1.3.944.000 Junta Administrativa de Cementerios de Limón
 1.1.1.3.946.000 Junta de Protección Social de Cartago
-1.1.1.3.950.000 Liga de Municipalidades de Alajuela Occidental
 1.1.1.3.980.000 Unión Nacional de Gobiernos Locales
 1.1.2.0.000.000 EMPRESAS PÚBLICAS NO FINANCIERAS
 1.1.2.1.000.000 EMPRESAS PÚBLICAS NO FINANCIERAS NACIONALES
-1.1.2.1.100.000 Compañía Nacional de Fuerza y Luz S.A. (CNFL) (Anexo N°4)
-1.1.2.1.101.000 Consejo Nacional de Producción (CNP) (Anexo N°4)
-1.1.2.1.114.000 Corporación Bananera Nacional (CORBANA) (Anexo Nº 4) (●)
-(●) Corresponden a Entes Públicos no Estatales
-1.1.2.1.120.000 Correos de Costa Rica S.A. (CORREOS)
+1.1.2.1.050.000 Cablevisión de Costa Rica S.A
+1.1.2.1.100.000 Compañía Nacional de Fuerza y Luz S.A. (CNFL)
+1.1.2.1.101.000 Consejo Nacional de Producción (CNP)
+1.1.2.1.114.000 Corporación Bananera Nacional (CORBANA) (●)
+1.1.2.1.120.000 Correos de Costa Rica S.A. (CORREOS) (Anexo Nº 4)
 1.1.2.1.130.000 Editorial Costa Rica (ECR) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.1.2.1.145.000 Hospital del Trauma S.A.
-1.1.2.1.150.000 Instituto Costarricense de Acueductos y Alcantarillados (ICAA)
-1.1.2.1.151.000 Instituto Costarricense de Electricidad (ICE)
+1.1.2.1.150.000 Instituto Costarricense de Acueductos y Alcantarillados
+(ICAA)
+1.1.2.1.151.000 Instituto Costarricense de Electricidad (ICE) (Anexo Nº 4)
 1.1.2.1.152.000 Instituto Costarricense de Ferrocarriles (INCOFER)
-1.1.2.1.153.000 Instituto Costarricense de Puertos del Pacífico (INCOP)
-1.1.2.1.170.000 Junta de Administración Portuaria y de Desarrollo de la Vertiente Atlántica (JAPDEVA)
+1.1.2.1.153.000 Instituto Costarricense de Puertos del Pacífico (INCOP) (Anexo Nº 4)
+1.1.2.1.170.000 Junta de Administración Portuaria y de Desarrollo de la
+Vertiente Atlántica (JAPDEVA) (Anexo Nº 4)
 1.1.2.1.171.000 Junta de Protección Social (JPS)
 1.1.2.1.180.000 Radiográfica Costarricense S.A. (RACSA)
 1.1.2.1.181.000 Refinadora Costarricense de Petróleo S.A. (RECOPE S.A)
 1.1.2.1.190.000 Sistema Nacional de Radio y Televisión Cultural S.A
 (SINART S.A)
-1.1.2.2.000.000 EMPRESAS PÚBLICAS NO FINANCIERAS MUNICIPALES
-1.1.2.2.100.000 Empresa de Servicios Públicos de Heredia S.A. (ESPH)
+1.1.2.2.000.000 EMPRESAS PÚBLICAS NO FINANCIERAS
+MUNICIPALES
+1.1.2.2.100.000 Empresa de Servicios Públicos de Heredia S.A. (ESPH) (Anexo Nº 4)
 1.1.2.2.150. 000 Empresa Hidroeléctrica los Negros S.A. (EHLN S.A.)
-1.1.2.2.200.000 Junta Administrativa del Servicio Eléctrico de Cartago (JASEC)
+1.1.2.2.200.000 Junta Administrativa del Servicio Eléctrico de Cartago (JASEC) (●)
 1.2.0.0.000.000 SECTOR PÚBLICO FINANCIERO
 1.2.1.0.000.000 INSTITUCIONES PÚBLICAS FINANCIERAS
 1.2.1.1.000.000 INSTITUCIONES PÚBLICAS FINANCIERAS BANCARIAS
@@ -401,26 +401,27 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.2.1.1.102.000 Banco Internacional de Costa Rica S.A (BICSA)
 1.2.1.1.103.000 Banco Nacional de Costa Rica (BNCR)
 1.2.1.1.104.000 Banco Popular y de Desarrollo Comunal (BPDC) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.2.1.2.000.000 INSTITUCIONES PÚBLICAS FINANCIERAS NO BANCARIAS
 1.2.1.2.120.000 Almacén Fiscal Agrícola de Cartago S.A.
 1.2.1.2.121.000 Bancrédito Agencia de Seguros S.A.
 1.2.1.2.122.000 Banco Crédito Agrícola de Cartago-Puesto de Bolsa S.A.
-1.2.1.2.123.000 Banco Crédito Agrícola de Cartago-Sociedad Administradora de Fondos de Inversión S.A.
+1.2.1.2.123.000 Banco Crédito Agrícola de Cartago-Sociedad Administradora
+de Fondos de Inversión S.A.
 1.2.1.2.124.000 BCR – Pensión Operadora de Planes de Pensiones Complementarias S.A.
 1.2.1.2.125.000 BCR-Sociedad Administradora de Fondos de Inversión S.A.
 1.2.1.2.126.000 BCR Valores S.A.
 1.2.1.2.127.000 Banco Hipotecario de la Vivienda (BANHVI) (●)
-(●) Corresponden a Entes Públicos no Estatales
 1.2.1.2.128.000 BN -Sociedad Administradora de Fondos de Inversión S.A.
 1.2.1.2.129.000 BN -Valores Puesto de Bolsa S.A.
 1.2.1.2.130.000 BN -Vital Operadora de Planes de Pensiones Complementarias S.A.
 1.2.1.2.131.000 BN Procesadora de Medios Electrónicos de Pago S.A
 1.2.1.2.136.000 BCR Corredora de Seguros, S.A
 1.2.1.2.139.000 BN Corredora de Seguros, S.A
-1.2.1.2.150.000 Comisión Nacional de Préstamos para la Educación (CONAPE)
+1.2.1.2.150.000 Comisión Nacional de Préstamos para la Educación
+(CONAPE)
 1.2.1.2.160.000 Depósito Agrícola de Cartago S.A.
-1.2.1.2.190.000 Instituto Nacional de Fomento Cooperativo (INFOCOOP) (Anexo N°4)
+1.2.1.2.190.000 Instituto Nacional de Fomento Cooperativo (INFOCOOP)
+(Anexo N°4)
 1.2.1.2.191.000 Instituto Nacional de Seguros (INS)
 1.2.1.2.192.000 INS-Pensiones Operadora de Pensiones Complementarias S.A 1.2.1.2.193.000 INS Valores Puesto de Bolsa S.A.
 1.2.1.2.194.000 Instituto Nacional de Vivienda y Urbanismo (INVU)
@@ -429,16 +430,21 @@ DETALLE DEL CLASIFICADOR INSTITUCIONAL
 1.2.1.2.205.000 INS Intermediario de Seguros S.A.
 1.2.1.2.208.000 INSurance Servicios S.A.
 1.2.1.2.211.000 INS – VIDA S.A.
-1.2.1.2.230.000 Operadora de Pensiones Complementarias y de Capitalización Laboral de la C.C.S.S. S.A
+1.2.1.2.230.000 Operadora de Pensiones Complementarias y de
+Capitalización Laboral de la C.C.S.S. S.A
 1.2.1.2.231.000 Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A
 1.21. 2 239.000 Popular Sociedad Agencia de Seguros S.A
 1.2.1.2.240.000 Popular Sociedad de Fondos de Inversión S.A
 1.2.1.2.241.000 Popular Valores Puesto de Bolsa S.A
-1.2.1.3.000.000 INSTITUCIONES PÚBLICAS FINANCIERAS DE RECTORÍA Y SUPERVISIÓN
+1.2.1.3.000.000 INSTITUCIONES PÚBLICAS FINANCIERAS DE
+RECTORÍA Y SUPERVISIÓN
 1.2.1.3.100.000 Banco Central de Costa Rica (BCCR)
-1.2.1.3.150.000 Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF)
-1.2.1.3.155.000 Consejo Rector del Sistema de Banca para el Desarrollo
-1.2.1.3.200.000 Superintendencia General de Entidades Financieras (SUGEF)
+1.2.1.3.150.000 Consejo Nacional de Supervisión del Sistema Financiero
+(CONASSIF)
+1.2.1.3.155.000 Consejo Rector del Sistema de Banca para el Desarrollo (Anexo N°4)
+1.2.1.3.200.000 Superintendencia General de Entidades Financieras
+(SUGEF)
 1.2.1.3.201.000 Superintendencia General de Valores (SUGEVAL)
 1.2.1.3.202.000 Superintendencia General de Pensiones (SUPEN)
 1.2.1.3.208.000 Superintendencia General de Seguros (SUGESE)
+(●) Corresponden a Entes Públicos no Estatales
