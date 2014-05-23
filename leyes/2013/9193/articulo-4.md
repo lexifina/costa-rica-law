@@ -13,3 +13,4 @@ servicios públicos prioritarios, para una mejor satisfacción del interés cole
 2. Fortalecer la prevención de la corrupción mediante acciones novedosas de fiscalización integral para generar mayor confianza en la institucionalidad.
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance digital N° 131 a La gaceta N° 235 del 5 de diciembre de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38198 del 17 de febrero del 2014)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38425 del 30 de abril del 2014)
