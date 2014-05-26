@@ -1,0 +1,1 @@
+Artículo 2°—La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir al patrimonio del BANHVI, sin que ello limite la eventual responsabilidad civil.

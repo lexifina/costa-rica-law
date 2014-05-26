@@ -1,0 +1,1 @@
+Artículo 5°—Los servidores que deban caucionar adquirirán y presentarán a la Dirección Administrativa, la póliza de fidelidad en un plazo de treinta días naturales para los de nuevo ingreso y para los servidores antiguos, la renovación de la póliza en un plazo de ocho días hábiles posteriores a la fecha de expiración de la anterior.
