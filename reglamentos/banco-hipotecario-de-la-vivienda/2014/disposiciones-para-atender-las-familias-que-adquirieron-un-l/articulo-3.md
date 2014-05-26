@@ -1,0 +1,1 @@
+III.—Las comisiones por la tramitología del bono familiar de vivienda que establece la Ley Sistema Financiero Nacional para la Vivienda para las entidades autorizadas y para el Banco Hipotecario de la Vivienda (BANHVI) serán calculadas sobre el monto total del subsidio que en efecto llegue a ser girado a la familia beneficiaria.
