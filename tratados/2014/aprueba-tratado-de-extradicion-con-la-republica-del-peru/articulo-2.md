@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Los términos confabulación y agrupación, de los artículos II.2 y III.2.d del presente tratado de extradición, no podrán interpretarse como dispositivos amplificadores de la tentativa o de la participación; para tales efectos rigen las reglas del Código Penal, Ley N.º 4573, de 4 de mayo de 1970.
