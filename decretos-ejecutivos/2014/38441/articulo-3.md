@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese los artículos 9, 10 y 11 del Reglamento para el Trámite de Visado de Planos para la Construcción de Edificaciones en la Zona Marítimo Terrestre, Decreto Ejecutivo Nº 29307-MP-J-MIVAH-S-MEIC-TUR publicado en La Gaceta Nº 36 del 20 de febrero del 2001.

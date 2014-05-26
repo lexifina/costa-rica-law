@@ -1,0 +1,1 @@
+Transitorio 1º—Todos aquellos trámites que hayan ingresado al sistema del APC del CFIA antes de la entrada en vigencia del presente decreto, realizarán el trámite de revisión y sellado de planos conforme al decreto vigente.
