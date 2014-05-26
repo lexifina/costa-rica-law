@@ -1,0 +1,12 @@
+CIRCULAR Nº 115-2014
+ASUNTO: Directrices sobre las diligencias de traslado de personas detenidas.
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión Nº 41-14, celebrada el 6 de mayo de 2014, artículo XLIII, acordó reiterarles las siguientes directrices sobre el traslado de personas detenidas:
+· Revisar los expedientes de personas detenidas, con el fin de que las solicitudes de remisión sean para diligencias efectivas, así como para realizar aquellos trámites que estén relacionadas con todas las gestiones que involucra el llamado jurisdiccional, como por ejemplo, citas para audiencia, actualización de datos, declaración, entre otras, y así disminuir los costos generados en el traslado, custodia y presentación de estos privados de libertad, a la vez que se contribuye con el servicio que prestan las dependencias evaluadas.
+· A las instancias judiciales que disponen del Sistema de Gestión, la utilización de plantillas electrónicas para completar los formularios de seguridad en el trámite de solicitudes ante la Sección de Cárceles, con la finalidad de registrar el historial procesal del expediente en estos documentos.
+· Emitir las solicitudes de Remisiones de Detenidos, con la mayor antelación posible para el traslado y presentación puntual de la persona privada de libertad en las diligencias judiciales programadas, facilitando de esta manera la atención eficiente de las solicitudes por parte de las Unidades de Celdas del OIJ.
+· Los jefes o jefas de despachos judiciales son responsables y deberán establecer controles que permitan determinar si los funcionarios y funcionarias proceden oportunamente, a dejar sin efecto, las solicitudes de traslados y presentaciones en aquellos trámites señalados previamente y a cancelarlas, con la finalidad de evitarle a la Institución incurrir en gastos innecesarios de alimentación y traslado de este tipo de población penal.
+· Solicitar a los Centros de Atención Institucional, la condición jurídica de la persona detenida, especialmente cuando proceden de lugares distantes y cuentan con alta probabilidad de que la autoridad correspondiente pueda ordenar su libertad, mientras se encuentra en custodia en las Unidades de Celdas de San José.
+Lo anterior con la finalidad de promover ahorro de recursos, evitando costos adicionales de viaje hacia los lugares de origen. No sin antes constatar, si al momento de la diligencia, ingresaron nuevas causas que modifiquen la condición jurídica señalada, para actuar conforme corresponda.
+San José, 26 de mayo de 2014.
