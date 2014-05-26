@@ -1,0 +1,17 @@
+ARTÍCULO III
+MOTIVOS PARA DENEGAR LA EXTRADICIÓN
+1. La extradición no será concedida:
+a. si la persona reclamada hubiere sido condenada o absuelta en el Estado requerido por el delito objeto de la solicitud de extradición. Sin embargo, no impedirá la extradición el hecho que las autoridades del Estado requerido hubieran decidido no procesar a la persona reclamada por los mismo hechos por los cuales se solicita la extradición, o no continuar cualquier proceso penal incoado contra la persona reclamada por esos mismos hechos; o
+b. si el delito o la pena hubiera prescrito con arreglo a la legislación del Estado requirente.
+2. La extradición tampoco será concedida si el delito por el cual se solicita constituye un delito político o conexo con delitos de esa naturaleza.
+Para los efectos del presente Tratado, no se considerarán delitos políticos:
+a. el asesinato u otro delito violento contra la persona del Jefe de Estado de uno de los Estados Contratantes, o de miembros de su familia;
+b. el genocidio, según se contempla en la Convención sobre la Prevención y Pena del Delito de Genocidio, hecha en París, el 9 de diciembre de 1948;
+c. los delitos con relación a los cuales ambos Estados Contratantes tienen la obligación, en virtud de algún acuerdo multilateral internacional, de extraditar a la persona reclamada o de remitir el caso a sus autoridades competentes para que decidan sobre su procesamiento, incluidos, entre otros:
+(i.) tráfico ilícito de drogas y delitos relacionados según se contempla en el Convenio de las Naciones Unidas contra el Tráfico Ilícito de Estupefacientes y Substancias Sicotrópicas, hecho en Viena, el 20 de diciembre de 1988; y
+(ii.) los delitos relacionados con el terrorismo, según se contempla en los acuerdos multilaterales internacionales vigentes para ambos Estados Contratantes; y
+d. la tentativa para cometer cualquiera de los antedichos delitos, la confabulación o agrupación destinada a cometerlos, así como la participación o asociación para su perpetración.
+(Nota de Sinalevi: Mediante el artículo 2° de la Ley N° 9236 del 23 de abril del 2014, "Aprueba Tratado de Extradición entre la República de Costa Rica y la República del Perú", se establece lo siguiente: "... Los términos confabulación y agrupación, de los artículos II.2 y III.2.d del presente tratado de extradición, no podrán interpretarse como dispositivos amplificadores de la tentativa o de la participación; para tales efectos rigen las reglas del Código Penal, Ley N.º 4573, de 4 de mayo de 1970...")
+3. La Autoridad competente del Estado requerido denegará la extradición por delitos previstos en la legislación militar que no estén tipificados en la legislación penal ordinaria.
+4. Si el Estado requerido negase la extradición por motivo de nacionalidad, se someterá a solicitud del Estado requirente el caso a las autoridades competentes del Estado requerido para el procesamiento de la persona reclamada. En este caso se aplicará la legislación del Estado requerido. Si dicho Estado necesita documentos adicionales u otras pruebas, estas se entregarán sin recargo alguno a aquel Estado. Se informará al Estado requirente sobre el resultado de la solicitud.
+5. Se denegará la extradición, si la persona cuya extradición se solicita ha sido condenada o podría ser juzgada o condenada en el Estado requirente por un tribunal extraordinario, especial o ad Hoc. A efectos de este numeral, un tribunal creado constitucionalmente no será considerado un tribunal extraordinario o especial.
