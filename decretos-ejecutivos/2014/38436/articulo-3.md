@@ -1,0 +1,3 @@
+Artículo 3º—Reforma. Refórmese el párrafo primero del artículo 13 del Reglamento de Consejo de Competitividad de la Región Brunca, Decreto Ejecutivo N° 37027-MEIC-PLAN del 09 de marzo de 2012, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 13.—Composición. La Comisión Técnica está compuesta por expertos técnicos designados por el MEIC, MIDEPLAN, MAG, ICT, PROCOMER, INA y los programas de cooperación técnica internacional que estén ejecutando proyectos en la Región. Esta comisión nombrará un coordinador, quien fungirá como enlace entre la Secretaría Ejecutiva y la Comisión Técnica. La Comisión Técnica se convoca a solicitud del Consejo.
+(…)”.
