@@ -1,0 +1,1 @@
+Artículo 10.—La institución mantendrá un programa de teletrabajo activo y se reserva la facultad de incorporar a sus trabajadores en esta forma de trabajo, dependiendo de las condiciones, actividades, la conectividad disponible y otros aspectos que estime pertinentes.

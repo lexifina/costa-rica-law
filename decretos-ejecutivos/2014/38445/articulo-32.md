@@ -1,0 +1,1 @@
+Artículo 32.—El teletrabajador indistintamente de la modalidad en que se encuentre, podrá hacer uso de telecentros y salas de videoconferencias disponibles para realizar sus funciones en forma transitoria y debe acatar las normas de uso que se establezcan.

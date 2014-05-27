@@ -1,0 +1,1 @@
+Artículo 18.—Cuando el equipo sea propiedad del teletrabajador este deberá garantizar el óptimo funcionamiento del equipo tecnológico en aras de no afectar la ejecución de sus labores. En este evento la institución se exime de brindar mantenimiento correctivo al equipo.

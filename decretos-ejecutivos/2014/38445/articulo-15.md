@@ -1,0 +1,3 @@
+CAPÍTULO II
+Tecnología de la información
+Artículo 15.—La institución podrá dotar de equipo, materiales y herramientas a aquellos funcionarios que se incorporen en la modalidad total de Teletrabajo y que se incluyan dentro del rango especial cuando requiera algún programo de software o hardware específico para el desempeño de sus funciones. En caso de que el usuario no se encuentre dentro del rango especial deberá aportar el equipo de trabajo y las herramientas de su propiedad para el cumplimiento de las funciones asignadas, situación que deberá quedar debidamente consignada en el acuerdo suscrito por las partes.

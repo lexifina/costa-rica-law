@@ -1,0 +1,1 @@
+Artículo 28.—El teletrabajador deberá contar con un espacio físico con las características recomendadas por la Comisión de Teletrabajo y permitir el acceso para las inspecciones de las condiciones ergonómicas, de seguridad e higiene del puesto de trabajo.

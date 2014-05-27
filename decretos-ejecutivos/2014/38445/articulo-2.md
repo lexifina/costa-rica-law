@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión Institucional de Teletrabajo, es el equipo que coordina y administra la modalidad de teletrabajo en la institución y la responsable de asesorar en la planificación e implementación de acciones que impulsen el teletrabajo en las áreas de la institución de acuerdo con los objetivos y normativa establecida en el programa.

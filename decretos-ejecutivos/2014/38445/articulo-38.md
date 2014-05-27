@@ -1,0 +1,1 @@
+Artículo 38.—Determinar si la información a la cual tiene acceso el Teletrabajador es de carácter confidencial y sensible a los intereses de la institución y proceder de acuerdo con el cumplimiento de las disposiciones establecidas en el Decreto N° 27130-MP referente a la discrecionalidad y confidencialidad.
