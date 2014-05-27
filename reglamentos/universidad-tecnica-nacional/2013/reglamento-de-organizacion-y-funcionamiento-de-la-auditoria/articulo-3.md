@@ -1,0 +1,1 @@
+Artículo 3__Naturaleza y concepto.La Auditoría Universitaria es un órgano fiscalizador y asesor que evalúa en forma independiente y sistemática los procesos universitarios, de acuerdo con sus competencias y normas vigentes, conforme con el artículo 51 del Estatuto Orgánico de la UTN.

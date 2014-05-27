@@ -1,0 +1,1 @@
+Artículo 2__ Ámbito de aplicación. El cumplimiento del presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Universitaria y funcionarios de la Administración Activa en lo que les resulte aplicable.

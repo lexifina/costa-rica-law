@@ -1,0 +1,6 @@
+Artículo 8__ Ámbito de competencia. La auditoría interna ejercerá las competencias que le establece el ordenamiento jurídico y adicionalmente comprenderá:
+a) La gestión de las Sedes Universitarias, facultades y áreas de acción académica.
+b) La gestión de los procesos académicos y administrativos de la UTN.
+c) La gestión sobre las actividades de las unidades, centros, institutos, escuelas y programas especiales articulados a la gestión de la UTN.
+d) La gestión sobre las actividades de la UTN en la venta de bienes y servicios en los campos de actividad relacionados con las carreras, para la generación de recursos propios, realizados en forma directa o mediante figuras jurídicas para la administración de esas actividades y fondos públicos, conforme con la Ley Orgánica de la UTN, N. 8638, así como, en la venta de bienes y servicios ligados a proyectos de investigación, desarrollo tecnológico, consultorías y cursos especiales, establecido en la Ley de Promoción del Desarrollo Científico y Tecnológico, N. 7169.
+e) La gestión del jerarca y los titulares subordinados sobre el seguimiento e implementación de las recomendaciones o disposiciones relativas al SCI, para verificar oportunamente su cumplimiento.

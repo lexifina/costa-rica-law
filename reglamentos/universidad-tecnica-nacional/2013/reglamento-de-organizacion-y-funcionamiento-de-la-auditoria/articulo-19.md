@@ -1,0 +1,3 @@
+CAPÍTULO III
+Funcionamiento y Responsabilidad
+Artículo 19__ Competencias, deberes, potestades y prohibiciones de los funcionarios.Las competencias, deberes, potestades y prohibiciones de los funcionarios de la Auditoría Universitaria, serán las contenidas en la Ley General de Control Interno, las cuales, son complementadas en el Estatuto Orgánico de la UTN. Así como, otras conferidas a las auditorías internas del sector público, mediante leyes de la República, normas reglamentarias u otras regulaciones dictadas por la Contraloría General de la República, que corresponden de acuerdo con la naturaleza de la actividad de auditoría interna que ejerce esta Auditoría Universitaria.

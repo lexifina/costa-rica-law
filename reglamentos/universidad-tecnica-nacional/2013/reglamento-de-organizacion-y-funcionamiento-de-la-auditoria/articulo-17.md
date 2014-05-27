@@ -1,0 +1,3 @@
+Artículo 17__ Presupuesto anual.La Auditoría Universitaria elaborará el presupuesto anual de su dependencia, en forma independiente de la Administración Activa, de acuerdo con los lineamientos y requisitos establecidos por la Contraloría General y por la UTN.
+La Auditoría Universitaria contará con una única unidad o categoría programática presupuestaria, ubicada en la administración superior de la Universidad, la cual estará a cargo del Auditor General.
+Una vez que el Consejo Universitario apruebe el presupuesto de la Auditoría Universitaria, el Auditor General lo ejecutará con total independencia de los demás órganos de la Administración, apegado a las normas legales y reglamentarias. La modificación presupuestaria requerirá de la aprobación del Auditor General.

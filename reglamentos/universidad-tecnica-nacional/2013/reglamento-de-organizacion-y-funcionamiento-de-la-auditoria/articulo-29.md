@@ -1,0 +1,1 @@
+Artículo 29__ Programa de calidad. El Auditor General deberá establecer los criterios mínimos necesarios para disponer de un programa de aseguramiento de calidad para la Auditoría Universitaria, el cual, evalúe todos los procesos de la actividad de auditoría, conforme con las directrices y normativa técnica emitidas por la Contraloría General de la República.

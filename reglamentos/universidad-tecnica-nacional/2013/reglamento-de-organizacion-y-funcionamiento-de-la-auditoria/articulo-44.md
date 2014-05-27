@@ -1,0 +1,1 @@
+Artículo 44__ Aplicación del Reglamento. Las disposiciones de este Reglamento serán de aplicación obligatoria para todo el personal de Auditoría de la UTN, así como para todo el personal que labora en todas las unidades, dependencias, sistemas, procesos, proyectos y actividades que conforman la organización y el quehacer de la Universidad Técnica Nacional.

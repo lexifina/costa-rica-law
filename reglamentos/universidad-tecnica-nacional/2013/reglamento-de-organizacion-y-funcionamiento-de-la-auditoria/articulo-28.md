@@ -1,0 +1,1 @@
+Artículo 28__ Normas éticas. El personal de auditoría debe actuar conforme a las normas éticas dictadas por la Contraloría General de la República, el colegio profesional respectivo al que pertenece el personal de Auditoría y las que disponga el Consejo Universitario y la Auditoría Universitaria, para garantizar la integridad personal y calidad profesional.

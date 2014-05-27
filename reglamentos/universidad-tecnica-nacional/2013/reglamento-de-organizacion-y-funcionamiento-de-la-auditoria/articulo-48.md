@@ -1,0 +1,2 @@
+Artículo 48__ Vigencia del Reglamento de Auditoría Universitaria. El presente Reglamento rige a partir de su publicación en el diario oficial del Estado.
+Este Reglamento fue aprobado por el Consejo Universitario de la Universidad Técnica Nacional según acuerdo 229-2013, el cual, consta en el Acta 32-2013, Sesión Ordinaria N. 59, celebrada el 19 de diciembre de 2013 y acuerdo 36-2014, Acta 06-2014, de la Sesión Ordinaria 04 del 27 de marzo de 2014 y por la Contraloría General de la República mediante el oficio N. 02929 (DFOE-SOC-0258) de fecha 18 de marzo de 2014.

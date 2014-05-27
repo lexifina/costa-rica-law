@@ -1,0 +1,1 @@
+Artículo 27__ Competencia profesional. El personal de Auditoría deberá ser competente para realizar sus funciones, poseer en conjunto, los conocimientos, técnicas y otras competencias para desempeñar adecuadamente el trabajo asignado.

@@ -1,0 +1,1 @@
+Artículo 45__ Conocimiento del Reglamento. La Auditoría Universitaria deberá divulgar institucionalmente por todos los medios a su alcance, el presente Reglamento. Ningún funcionario alegará desconocimiento del presente Reglamento, quedando como obligación y responsabilidad de todas las jefaturas o coordinadores de la Universidad, hacerlo del conocimiento al personal a su cargo.

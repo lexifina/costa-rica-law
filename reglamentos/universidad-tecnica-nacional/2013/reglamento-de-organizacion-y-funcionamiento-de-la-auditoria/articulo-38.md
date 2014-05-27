@@ -1,0 +1,5 @@
+CAPITULO VI
+Disposiciones Finales
+Artículo 38__ Recepción de denuncias. Todo ciudadano tiene el derecho a denunciar actos presuntos de corrupción. Los funcionarios públicos tienen el deber de denunciar ante la autoridad correspondiente todo acto presuntamente corrupto que se presente en la Administración Pública, que sea de su conocimiento, de acuerdo con lo establecido en la Ley General de Control Interno y en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento.
+Los hechos denunciados ante la Auditoría Universitaria deberán ser expuestos por escrito en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación: el momento y lugar en que ocurrieron tales hechos y el sujeto que presuntamente los realizó. Se deberá señalar la posible situación irregular que afecta los intereses de la Universidad Técnica Nacional.
+La Auditoría valorará los elementos probatorios aportados, con el propósito de determinar la pertinencia a efecto de: admitir, desestimar o trasladar a quien corresponda dicha denuncia.

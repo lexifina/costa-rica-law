@@ -1,0 +1,1 @@
+Artículo14__ Dirección General de la AuditoríaUniversitaria. El Auditor General es el superior jerárquico de la Auditoría Universitaria y como tal tendrá a su cargo la dirección superior y administración de su dependencia. La dependencia orgánica y regulaciones administrativas aplicables se realizarán conforme con el artículo 24 de la Ley General de Control Interno, N. 8292.

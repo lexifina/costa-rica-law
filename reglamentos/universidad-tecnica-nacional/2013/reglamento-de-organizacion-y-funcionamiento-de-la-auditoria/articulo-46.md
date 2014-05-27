@@ -1,0 +1,1 @@
+Artículo 46__ Reformas al Reglamento. Las reformas al presente Reglamento, deberán ser tramitadas por el Consejo Universitario en el plazo de treinta días a partir de su presentación formal, siguiendo los procedimientos de ley

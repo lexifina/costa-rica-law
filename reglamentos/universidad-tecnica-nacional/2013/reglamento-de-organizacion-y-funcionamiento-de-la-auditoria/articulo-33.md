@@ -1,0 +1,1 @@
+Artículo 33__ Oficios.Los oficios de auditoría dirigidos al jerarca colegiado o titulares subordinados, contienen recomendaciones o sugerencias de auditoría que contribuyen con el mejoramiento del sistema de control interno institucional, por lo general tienen un carácter preventivo, es deber de los funcionarios dar seguimiento a estas propuestas de mejora.

@@ -1,0 +1,1 @@
+Artículo 11__Jerarquía. El Auditor General es el superior jerárquico de la Auditoría Universitaria, tendrá a su cargo la dirección superior y administración del personal y del presupuesto que le fuera aprobado por el Consejo Universitario y demás recursos y activos asignados.

@@ -1,0 +1,2 @@
+Artículo 24__ Confidencialidad de la información. La información y documentación que obtenga el personal de la Auditoría Universitaria en el desarrollo de su trabajo serán confidenciales, sin límite de tiempo.
+Esta confidencialidad no se aplicará a la Contraloría General de la República en el desarrollo de las funciones de fiscalización y control, Asamblea Legislativa, ni cuando haya solicitud expresa de una autoridad con competencia legal.

@@ -1,0 +1,1 @@
+Artículo 43__ Emisión escrita de criterio. El criterio oficial de la Auditoría Universitaria sobre asuntos de su competencia, lo emite por escrito la persona que ocupa el cargo de Auditor General o por aquel funcionario de esta Auditoría debidamente autorizado por el Auditor General.
