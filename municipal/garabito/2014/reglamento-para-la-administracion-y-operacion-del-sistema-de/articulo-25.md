@@ -1,0 +1,3 @@
+Artículo 25.—Del destino de los ingresos por venta de boletas para estacionamiento y de multas por infracciones. El ingreso por venta de boletas para estacionamiento y cobro de multas constituirá un fondo especial que se designará:
+25.1 A cubrir todos los gastos e inversiones propias de la administración y operación del sistema de estacionamientos en las vías públicas del cantón de Garabito. Se incluye el pago de comisiones a recaudadoras externos designados por la municipalidad, incurridas específicamente para facilitar el cobro de este impuesto.
+25.2 A la formación de un fondo para mejoras a vías y otros beneficios en materia de seguridad vial para el cantón.

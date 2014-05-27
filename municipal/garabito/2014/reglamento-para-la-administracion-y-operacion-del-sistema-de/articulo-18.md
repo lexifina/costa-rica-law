@@ -1,0 +1,1 @@
+Artículo 18.—De los entes colaboradores. Para el cumplimiento de lo señalado por el presente reglamento, se podrá contar con el apoyo de otros cuerpos policiales, todo con el fin de mantener el orden vial correspondiente

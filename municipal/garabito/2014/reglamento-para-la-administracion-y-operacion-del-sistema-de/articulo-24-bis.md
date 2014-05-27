@@ -1,0 +1,1 @@
+Artículo 24 bis.—La multa no cancelada se reportará por medio del Departamento de Cobro ante el Instituto Nacional de Seguros, por medios de los canales que dicho Instituto ha facilitado para tal efecto y se gestionará el cobro de la multa pendiente en el próximo cobro del Derecho de Circulación

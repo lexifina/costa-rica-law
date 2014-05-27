@@ -1,0 +1,1 @@
+Artículo 5º— El producto de las multas a los infractores de esta ley corresponderá a la Municipalidad de Garabito. Lo que se recaude por concepto de los impuestos autorizados por esta ley, será invertido específica mente en el mantenimiento, administración y mejoramiento del sistema de Estacionómetros.

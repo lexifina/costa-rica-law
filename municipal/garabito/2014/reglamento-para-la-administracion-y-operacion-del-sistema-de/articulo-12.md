@@ -1,0 +1,1 @@
+Artículo 12.— El pago obligatorio mediante boleta o sistema electrónico en las zonas de estacionamiento autorizado al que hace referencia este reglamento, se aplicará todos los días sin excepción alguna, entre las diez de la mañana y las diez de la noche.

@@ -1,0 +1,1 @@
+Artículo 28.—De no haberse presentado las oposiciones señaladas en el artículo anterior, entrará a regir el presente reglamento, una vez cumplido el plazo estipulado en el mismo artículo anterior, desde su publicación en el Diario Oficial La Gaceta.

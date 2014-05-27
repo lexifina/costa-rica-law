@@ -1,0 +1,1 @@
+Artículo 27.—De la vigencia. Conforme al artículo 43 del Código Municipal, se somete a consulta pública no vinculante el presente Reglamento, por un plazo de diez días hábiles a partir de la publicación en el Diario Oficial La Gaceta, debiendo hacer cualquier interesado sus oposiciones en memorial razonado, ante el Despacho del Alcalde Municipal.

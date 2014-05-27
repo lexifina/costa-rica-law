@@ -1,0 +1,1 @@
+Artículo 6º—De la supervisión del sistema de estacionómetro. La Municipalidad tendrá el deber de supervisar la adecuada operación del sistema de estacionómetro, para lo cual tramitará las quejas que se formulen en contra del mismo.
