@@ -1,0 +1,1 @@
+Artículo 21.—Recursos. La resolución que deniegue una licencia o que imponga una sanción tendrá los recursos de revocatoria y apelación, de conformidad con lo establecido en el artículo 162 del Código Municipal. En los casos de patentes temporales por ser aprobadas por el Concejo Municipal tendrá los recursos señalados en el artículo 156 del Código Municipal.

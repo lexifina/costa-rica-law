@@ -1,0 +1,3 @@
+Artículo 6º—Limitación cuantitativa. La cantidad total de licencias clase A y B otorgadas en el Cantón de Tibás no podrá exceder la cantidad de una por cada trescientos habitantes.
+En la determinación del total de habitantes del cantón, se acudirá al estudio técnico oficial o fuente objetiva verificable que tenga disponible la Municipalidad. La condición de habitante se circunscribirá a las personas físicas del territorio del Cantón de Tibás según la definición establecida en el artículo 2 del Reglamento del Defensor de los Habitantes, Decreto Reglamentario 22266 del 15 de junio de 1993.
+Periódicamente, conforme se constate incrementos o disminuciones en el parámetro de habitantes cantonales, podrá ajustarse la cantidad de licencias clase A y B.

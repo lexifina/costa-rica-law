@@ -1,0 +1,1 @@
+Artículo 15.—Inspección y Control. Del total recaudado en virtud de la Ley No. 9047, anualmente se destinará un quince por ciento (15%) para las funciones de inspección y control encomendadas a la Municipalidad.
