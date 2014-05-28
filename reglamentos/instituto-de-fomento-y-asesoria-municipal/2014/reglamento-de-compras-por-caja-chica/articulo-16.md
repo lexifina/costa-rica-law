@@ -1,0 +1,2 @@
+De las liquidaciones
+Artículo 16.—Los adelantos de dinero con cargo al fondo de caja chica, deberán ser liquidados durante los dos días hábiles siguientes a la fecha de entrega. De no cumplirse con dicho plazo, el Responsable de dicho atraso, deberá realizar un acto motivado formal ante la Persona Encargada del Fondo con el respectivo aval de su Jefe Inmediato. Asimismo, la Persona encargada del Fondo deberá comunicarlo oportunamente por escrito al Jefe Inmediato de la Persona que recibió el adelanto.

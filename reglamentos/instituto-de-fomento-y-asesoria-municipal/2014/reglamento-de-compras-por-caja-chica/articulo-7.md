@@ -1,0 +1,1 @@
+Artículo 7º—El fondo que se establece al amparo de este Reglamento, operará como “Fondo Fijo”, lo que requiere que en todo momento el Encargado del Fondo tenga la suma total asignada, bien sea el dinero efectivo, adelantos de Caja Chica en tránsito o comprobantes debidamente cancelados, pudiendo darse una combinación de los tres casos mencionados.

@@ -1,0 +1,1 @@
+Artículo 9º—La Caja Chica funcionará con un horario de las 8:00 a las 16:00 horas para los efectos de trámites, excepto para el desembolso del dinero y liquidación, cuyo horario será de 8:00 a las 12:00 horas.
