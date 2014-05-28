@@ -1,0 +1,18 @@
+CAPÍTULO IV
+De la documentación, registro, gestión
+y manejo de la información
+Artículo 8°—Todos los establecimientos farmacéuticos públicos y privados (a excepción de las indicadas en el artículo 1 de este Reglamento), deben contar con un procedimiento para la dispensación de medicamentos para personas con discapacidad visual (parcial o total).
+Procedimiento general de etiquetado de medicamentos en sistema Braille o con ampliación de letra, el sello con la identificación del paciente con discapacidad visual, debe ser aplicado en la parte frontal de la receta, en el consultorio de atención, con la responsabilidad del profesional prescriptor. En la dispensación de productos bajo receta médica en farmacias, para personas con discapacidad visual (total o parcial):
+Toda receta suscrita por el médico, odontólogo u enfermera obstétrica (artículo 54 de la ley General de Salud) tratante, debe ser identificada con un sello que indique la siguiente leyenda:
+1) Persona con discapacidad visual parcial o total.
+2) Presentar la receta en la farmacia.
+3) El método que necesita el paciente en la etiqueta del medicamento dispensado, será definido por el farmacéutico, según las necesidades identificadas en el paciente con discapacidad visual, previa entrevista con este (en el momento de entregar la receta en la farmacia), dentro de los siguientes métodos, a saber:
+3.1. En escritura “Braille”,
+3.2. Con cambio en tamaño, tipo y estilo de la letra (en idioma español).
+3.3. Otro método estandarizado, que haya sido aceptado, revisado y aprobado por el organismo nacional responsable: Patronato Nacional de Ciegos.4) El farmacéutico debe dispensar la receta con la etiqueta especial: para paciente con discapacidad visual (total o parcial), indicada por el profesional correspondiente, y utilizar el método de acuerdo a la necesidad identificada previamente.
+5) En caso que el médico, odontólogo o enfermera obstétrica, le prescriba varios medicamentos en una misma receta, el regente farmacéutico debe realizar la identificación en forma clara y segura tomando en consideración que el paciente pueda identificar cada empaque primario con su respectivo contenedor que lleva la etiqueta especial de indicaciones (como por ejemplo, el paciente debe identificar cada blíster de tabletas “x1” con la caja o bolsa que tiene la etiqueta adhesiva con las instrucciones de uso del medicamento “x1”.
+6) Si la etiqueta especial del medicamento dispensado es grande o el empaque secundario es pequeño, se procederá a adherir la etiqueta especial a una bolsa, dentro de la cuál se colocará el producto correspondiente y se cerrará.
+7) Después del tiempo necesario para la dispensación del o de los medicamentos, el paciente procede a solicitar y retirar en la farmacia, los medicamentos que fueron recetados.
+8) El paquete de medicamentos siempre debe estar identificado con la receta adherida y en la parte frontal de la receta y que se observe el sello en el que se indique: “Paciente con discapacidad visual” y cuando es solicitado para retirarlo, el empleado de farmacia debe avisar al regente farmacéutico, para que tenga la oportunidad de evacuar las dudas que le surjan sobre cómo administrase cada uno de los medicamentos que le recetó el profesional que lo atendió.
+La receta al final del procedimiento debe quedar en la farmacia bajo custodia del regente farmacéutico. En el caso que el paciente no lleve todos los medicamentos, quedará una copia, indicando la parte que fue dispensada.
+9) El regente farmacéutico debe de tener obligatoriamente la capacitación de los métodos nombrados en el presente decreto, para la dispensación de los medicamentos a las personas con discapacidad visual (total y parcial) de los métodos nombrados en el presente decreto.

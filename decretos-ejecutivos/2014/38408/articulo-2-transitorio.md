@@ -1,0 +1,2 @@
+Transitorio II
+Todo regente farmacéutico que trabaje en un establecimiento farmacéutico de la Caja Costarricense de Seguro Social o en un establecimiento farmacéutico privado en el territorio nacional, debe recibir la capacitación para cumplir con el etiquetado especial de medicamentos para personas con discapacidad visual, según lo dispuesto en este Reglamento, para lo cual tendrá un plazo de 12 meses a partir de la publicación del presente decreto.
