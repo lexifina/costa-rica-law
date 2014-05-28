@@ -11,6 +11,7 @@ Medicina Social (Así adicionada la maestría anterior mediante sesión ordinari
 Microbiología (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-12-11 del 11 de diciembre del 2013)
 Recreación Física y Mental.
 Registros Médicos.
+Salud Ocupacional (Así adicionada la maestría anterior mediante sesión ordinaria N° 2014-05-28 del 28 de mayo del 2014)
 Terapia Física.
 Terapia Ocupacional.
 Terapia Respiratoria.

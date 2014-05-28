@@ -18,3 +18,4 @@ Normativa para la autorización en maestrías para el capítulo de profesionales
 | 3 | 2013-03-06 | Acuerdo 0 (2013-03-06) |
 | 4 | 2013-12-11 | Acuerdo 0 (2013-12-11) |
 | 5 | 2014-04-02 | Acuerdo 0 (2014-04-02) |
+| 6 | 2014-05-28 | Acuerdo 0 (2014-05-28) |
