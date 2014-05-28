@@ -30,6 +30,7 @@ Nutrición Clínica.
 Psicoanálisis.
 Psicología Clínica.
 Salud Pública.
+Salud ocupacional (Así adicionada la maestía anterior mediante sesión ordinaria N° 2014-05-28 del 28 de mayo del 2014)
 DOCTORADOS ACADÉMICOS (Ph. D)
 Ciencias Médicas.
 Medicina.
