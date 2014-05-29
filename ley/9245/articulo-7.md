@@ -1,0 +1,1 @@
+ARTÍCULO 7.- Se prohíbe el uso de anabólicos para los caninos, salvo excepciones fundadas en el criterio profesional veterinario. Su venta será bajo receta controlada, de la cual el propietario deberá guardar copia.

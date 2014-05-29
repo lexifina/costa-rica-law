@@ -1,0 +1,1 @@
+ARTÍCULO 20.- La información referida a los nombres, los teléfonos, las direcciones de los testigos, los denunciantes, el personal de rehabilitación de los animales, los lugares de rehabilitación y los futuros adoptantes será de uso exclusivo del equipo de atención de las denuncias y tendrá carácter confidencial.

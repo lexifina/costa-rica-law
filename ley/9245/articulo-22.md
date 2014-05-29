@@ -1,0 +1,1 @@
+ARTÍCULO 22.- Los recursos económicos provenientes de las sanciones o multas derivadas de la presente ley deberán ser depositados por la autoridad competente en las arcas del Senasa. Dichos recursos serán de uso único y exclusivo para el cumplimiento de los objetivos del Programa Nacional de Bienestar Animal de las Pequeñas Especies del Senasa.

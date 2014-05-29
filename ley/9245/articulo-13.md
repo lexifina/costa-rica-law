@@ -1,0 +1,1 @@
+ARTÍCULO 13.- Será obligatorio renovar anualmente la autorización como propietario apto para caninos determinados como peligrosos; para ello, se deberá actualizar los requisitos establecidos para la primera vez, incluyendo el pago de esta. Esta acreditación podrá ser requerida en cualquier momento por las autoridades del Senasa.
