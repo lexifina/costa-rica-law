@@ -1,0 +1,1 @@
+Artículo 10.—De la reparación de los bienes. Cuando un bien requiera ser reparado y no exista contrato de mantenimiento, el funcionario responsable de este, gestionará ante el superior inmediato la reparación, según los procedimientos establecidos en el Sistema de Gestión de Calidad que garanticen el debido control interno.
