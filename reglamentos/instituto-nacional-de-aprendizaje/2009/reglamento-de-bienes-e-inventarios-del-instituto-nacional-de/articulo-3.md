@@ -1,4 +1,0 @@
-Artículo 3º—De la clasificación de los bienes. Los bienes institucionales serán muebles o inmuebles.
-La clasificación de estos bienes se harán de acuerdo al Clasificador por Objeto del Gasto para el Sector Público y será responsabilidad de la URM
-1. Bienes inmuebles: Los bienes inmuebles comprenden los terrenos, edificios y demás construcciones que se hagan sobre la tierra. El control de estos bienes será responsabilidad solamente de la URF, la cual llevará un registro de los mismos. La AL le informará de las inscripciones que sobre este tipo de bienes realice el Registro Nacional de la Propiedad.
-2. Bienes muebles: Para los efectos del presente Reglamento se entenderá por bienes muebles aquellos destinados al uso o consumo para la realización de los objetivos institucionales, clasificándose en Equipo, Materiales y Materiales Devolutivos.

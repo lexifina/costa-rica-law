@@ -1,1 +1,0 @@
-Artículo 8º—De la toma física de inventarios. El PPCO definirá el procedimiento de la toma física selectiva de inventarios de la institución y remitirá en forma anual a las UO de su competencia, un listado del equipo y materiales devolutivos asignados y en coordinación con los ECB estos la efectuarán en las Unidades Regionales.

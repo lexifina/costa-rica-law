@@ -1,3 +1,0 @@
-Artículo 12.—De los bienes muebles inservibles, obsoletos y bienes muebles susceptibles de donación. Los bienes muebles obsoletos deberán ser enviados a los almacenes.
-Cuando haya bienes muebles que por su condición lleguen a estar inservibles, se deban excluir de los inventarios. En esos casos, los encargados de las UO o los encargados de almacén deberán solicitar los criterios técnicos especializados y deberán tramitar directamente ante PPCO o ECB según corresponda las exclusiones.
-En caso de donaciones las UO solicitantes realizarán el trámite según lo establecido en el Reglamento de Donaciones del Instituto Nacional de Aprendizaje.

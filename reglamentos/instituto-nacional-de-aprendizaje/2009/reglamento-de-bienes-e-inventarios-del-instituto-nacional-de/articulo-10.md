@@ -1,1 +1,0 @@
-Artículo 10.—De la reparación de los bienes. Cuando un bien requiera ser reparado y no exista contrato de mantenimiento, el funcionario responsable de este, con el visto bueno de su UO, hará la solicitud de mantenimiento a la URM o a quien corresponda en la Unidad Regional en forma oportuna.

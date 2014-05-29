@@ -1,1 +1,0 @@
-Artículo 9º—Faltantes y sobrantes en la toma física de inventarios. Será obligación de la jefatura de la UO justificar los faltantes, sobrantes u otros que se estimen pertinentes ante PPCO o ECB, en el término de un mes a partir de recibido el listado de bienes asignados.

@@ -1,6 +1,0 @@
-Artículo 6º—De la asignación de los bienes. Los bienes serán asignados al Jefe de la UO, de la siguiente manera:
-a) Asignación fija de bienes: La asignación fija se hará a cada jefatura de la UO quien a su vez mediante el uso del formulario autorizado podrá asignarlos a cada funcionario que los utilice. Aquellos bienes de uso común de una UO, están bajo la responsabilidad de la Jefatura.
-b) Asignación temporal de bienes: Los bienes podrán asignarse en forma temporal cuando se destinen a impartir los SCFP. Los bienes de asignación temporal, se entregarán al responsable del SCFP, mediante la asignación de bienes correspondiente.
-Los materiales que no sean empleados en los SCFP, deberán ser devueltos al almacén correspondiente.
-El equipo y los materiales deberán ser devueltos por medio de la toma física de inventario practicado al responsable de los bienes asignados, esta labor la efectuarán los funcionarios de los almacenes, en el lugar y fecha indicada en la asignación temporal.
-Los responsables del SCFP podrán mantener los paquetes de curso entre un SCFP y otro, siempre y cuando medie un periodo no mayor de treinta días naturales y una autorización de su jefe inmediato, caso contrario, deberá devolver los bienes que correspondan al almacén respectivo, en un plazo de cinco días hábiles a partir de la conclusión del SCFP.
