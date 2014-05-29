@@ -1,1 +1,0 @@
-Artículo 135.—El Prestatario del Servicio de carga entregará al porteador las mercancías debidamente chequeadas y con anotación sobre su condición. Con este acto finaliza la responsabilidad del Prestatario del Servicio de carga en relación con la carga.

@@ -1,1 +1,0 @@
-Artículo 169.—Cuando una persona pierda su pase de acceso, debe informarlo a la unidad responsable de la vigilancia portuaria, para la expedición de una nueva tarjeta previo pago del valor de expedición.

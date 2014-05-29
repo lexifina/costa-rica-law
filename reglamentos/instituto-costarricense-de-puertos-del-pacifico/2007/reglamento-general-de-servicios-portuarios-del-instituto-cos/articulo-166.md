@@ -1,1 +1,0 @@
-Artículo 166.—Las personas que ingresen en calidad de visitantes, recibirán un pase de visitante de la unidad responsable de la vigilancia portuaria y deben cumplir con lo estipulado en el artículo 162 de este Reglamento.

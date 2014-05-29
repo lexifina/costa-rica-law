@@ -1,1 +1,0 @@
-Artículo 129.—La carga se recibirá al momento de su arribo a la terminal, preferiblemente entre las 08:00 y las 18:00 horas todos los días. En caso necesario y previa coordinación con el Prestatario del Servicio, se recibirá en horas de la noche con las tarifas normales.

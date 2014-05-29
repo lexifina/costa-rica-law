@@ -1,1 +1,0 @@
-Artículo 120.—Durante las operaciones de cargue o descargue de explosivos y productos inflamables, se deben colocar en el sitio y en las escalerillas de acceso, letreros indicativos de peligro y las prohibiciones pertinentes.

@@ -1,1 +1,0 @@
-Artículo 137.—Cuando el ingreso o recepción indicados en el artículo anterior se extiende por mas de un día para una sola partida en razón de su cantidad, se computará el plazo libre del cargo de almacenamiento conforme al volumen diario que ingrese al puerto o se reciba en bodegas o patios, con corte a las 24:00 horas del día correspondiente.

@@ -1,1 +1,0 @@
-Artículo 28.—Los capitanes de las naves menores de doscientos cincuenta TRB (250), deben informar con suficiente anticipación a la autoridad marítima, el INCOP y /o al concesionario, sobre las maniobras y movimientos que pretenden hacer dentro del puerto.

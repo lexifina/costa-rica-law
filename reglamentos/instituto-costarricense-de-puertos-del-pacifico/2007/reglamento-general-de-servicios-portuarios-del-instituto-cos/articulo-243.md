@@ -1,2 +1,0 @@
-Artículo 243.—En caso de que se realicen descargas no autorizadas de sustancias perjudiciales en la zona de fondeo por parte de cualquier embarcación, el prestatario de los servicios deberá de notificar a la Autoridad Portuaria (INCOP), quien tomará las acciones que correspondan. Así mismo, el INCOP se reservará el derecho de atraque a cualquier embarcación que incurra en esta falta.
-(Así adicionado en sesión N° 3755 del 19 de enero del 2012)

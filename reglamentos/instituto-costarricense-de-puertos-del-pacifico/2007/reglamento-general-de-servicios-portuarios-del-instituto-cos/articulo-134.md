@@ -1,1 +1,0 @@
-Artículo 134.—Cuando una mercadería sobrepase el plazo de almacenamiento, establecido en el Articulo 137 del CAUCA y no se haya desalmacenado, redestinado a un almacén fiscal o sujeto a cualquier otra destinación aduanera, la misma causará abandono a favor del FISCO, pudiendo la aduana disponer de esa mercadería de conformidad con lo establecido en dicho código.

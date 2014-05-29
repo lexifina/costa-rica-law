@@ -1,1 +1,0 @@
-Artículo 14.—No se podrán bajar botes salvavidas de las naves ni maniobrar ningún tipo de embarcación en la rada ni en la dársena de los puertos, sin la debida autorización de la autoridad competente.

@@ -1,7 +1,0 @@
-TÍTULO IX
-Servicios que brinda el prestatario del servicio de carga
-CAPÍTULO XXVII
-Definición y descripción de los servicios
-Artículo 192.—El Prestatario del Servicio de carga es responsable por la administración de la infraestructura y de las instalaciones y por la prestación de todos los servicios a las naves y a la carga, con excepción del Pilotaje, el Remolcaje, Servicio de lancha y Ayudas a la navegación.
-Sin embargo, todos aquellos servicios marítimos o portuarios, sin excepción, que estén siendo ofrecidos por terceros en los puertos con jurisdicción de INCOP, autorizados por esa Autoridad Portuaria y que carecen de un pago específico al INCOP ya sea de forma directa o indirecta (a través de un canon a las concesionarias) para brindar sus servicios, deberán pagar al INCOP un canon del 15 % de los ingresos facturados. El gerente o administrador de cada puerto coordinará con estos terceros, para que previo a ofrecer esos servicios depositen el valor estimado del canon. Una vez prestado ese servicio, deberá presentar copia de lo facturado, con el visto bueno y sello del respectivo puerto, para que se efectúe la correspondiente liquidación sobre la base del depósito previamente efectuado. En caso que el depósito sea menor al pago correcto, el tercero debe cancelar inmediatamente la diferencia que corresponda; de no hacerlo, no se le permitirá que vuelva a ofrecer sus servicios en los puertos con jurisdicción de INCOP.
-(Así reformado en sesión N° 3644 del 16 de junio de 2010)

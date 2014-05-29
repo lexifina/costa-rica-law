@@ -1,1 +1,0 @@
-Artículo 105.—Una vez atracada la nave, solamente se recibirán del embarcador las mercancías que completen los lotes que ya se encuentran en la terminal. Se entiende que un lote está constituido por aquellas mercancías con iguales marcas, destinos y que figuren en una misma póliza o conocimiento de embarque.

@@ -1,2 +1,0 @@
-Artículo 214.—Servicio por fondeo de embarcaciones de pasajeros: Las embarcaciones de pasajeros que por razones operacionales no atracan en las instalaciones portuarias y son fondeadas en su dársena, obtendrán una tarifa diferenciada definida, también de acuerdo al TRB de las naves. Estableciéndose además, un cobro adicional si se utiliza el servicio de remolcaje. Estas tarifas son por hora de fondeo.
-(Así reformado en sesión N° 3644 del 16 de junio de 2010)

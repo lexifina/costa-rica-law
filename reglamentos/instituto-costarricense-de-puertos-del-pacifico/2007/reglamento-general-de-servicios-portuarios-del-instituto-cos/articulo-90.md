@@ -1,1 +1,0 @@
-Artículo 90.—Todas las mercancías que lleguen a las terminales por vía marítima y terrestre deben estar provistas, conforme su naturaleza, de embalaje o envase fuerte y apropiado a su condición y al manejo que requieren.

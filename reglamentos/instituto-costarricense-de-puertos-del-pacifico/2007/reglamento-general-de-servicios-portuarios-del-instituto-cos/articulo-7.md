@@ -1,1 +1,0 @@
-Artículo 7º—El Prestatario del Servicio se reserva el derecho de no prestar o suspender los servicios a aquellos usuarios que no se encuentren a derecho en sus obligaciones o que incumplan con el presente Reglamento.

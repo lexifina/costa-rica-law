@@ -1,2 +1,0 @@
-Artículo 195.—Servicio de amarre y desamarre: El servicio consiste en la realización de las labores necesarias para amarrar la nave al atraque y desamarrarla al zarpe, incluye el uso de los elementos de amarre que la nave requiera y su ajuste a los cambios de marea. La cuadrilla de amarre (cuadrilla de guardacabos) seguirá las instrucciones del piloto práctico para lo cual contará con equipos de comunicación adecuados en las frecuencias correspondientes. Su tarifa es por TRB.
-(Así reformado en sesión N° 3644 del 16 de junio de 2010)
