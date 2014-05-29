@@ -1,0 +1,1 @@
+ARTÍCULO 21.- Para la aplicación de esta ley, en caso de duda en la apreciación de la prueba se estará a lo más favorable para el fallo a favor del bienestar de los caninos, de acuerdo con los términos que la legislación establece.

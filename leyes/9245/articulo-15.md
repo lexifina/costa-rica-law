@@ -1,0 +1,1 @@
+ARTÍCULO 15.- Se prohíbe, en todo el territorio nacional, la organización, la creación, el fomento y la publicidad de asociaciones orientadas a la cría, el entrenamiento o la comercialización de caninos para su participación en peleas de caninos o en espectáculos para la agresión a otros animales.

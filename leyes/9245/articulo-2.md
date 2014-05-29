@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se prohíben, sin excepción alguna en el territorio nacional, el combate o las peleas, las competencias de arrastre de peso por caninos, los eventos de caninos de pelea o cualquier espectáculo público o privado que implique agresión, maltrato y eventuales lesiones a los caninos.

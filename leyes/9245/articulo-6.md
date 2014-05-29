@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Se prohíbe el registro, la importación, la producción, la venta, la comercialización, la promoción y la tenencia de medicamentos veterinarios cuyo nombre, imagen o diseño publicitario promueva, sugiera o fomente las peleas entre caninos.
