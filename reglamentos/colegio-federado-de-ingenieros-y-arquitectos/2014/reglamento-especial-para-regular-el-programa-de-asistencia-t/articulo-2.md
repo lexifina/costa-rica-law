@@ -1,0 +1,1 @@
+Artículo 2º—De la unidad responsable. La Dirección Ejecutiva, como órgano ejecutor de este Programa, delegará en la Subdirección de Proyectos, por medio de su Departamento de Responsabilidad Solidaria, los aspectos operativos y administrativos que implique la tramitación y seguimiento de esos proyectos.

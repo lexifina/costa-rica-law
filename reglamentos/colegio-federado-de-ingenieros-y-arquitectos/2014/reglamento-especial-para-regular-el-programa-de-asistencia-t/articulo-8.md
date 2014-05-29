@@ -1,0 +1,1 @@
+Artículo 8º—De la trabajadora social. En aquellos casos en donde no se pueda comprobar idóneamente la situación socioeconómica del solicitante, el Departamento de Responsabilidad Solidario podrá contar con el apoyo de una trabajadora social designada por el CFIA para tales efectos.
