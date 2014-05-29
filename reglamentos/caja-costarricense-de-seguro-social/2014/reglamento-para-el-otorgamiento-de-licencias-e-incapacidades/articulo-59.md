@@ -1,0 +1,1 @@
+Artículo 59.—De la licencia por maternidad en casos de muerte del neonato dentro del período de licencia. En aquellos casos que el neonato fallezca dentro del período de la licencia otorgada, ésta se mantendrá por el período completo de cuatro (4) meses.

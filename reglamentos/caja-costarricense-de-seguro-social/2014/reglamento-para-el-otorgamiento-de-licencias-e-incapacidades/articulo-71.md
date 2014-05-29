@@ -1,0 +1,1 @@
+Artículo 71.—Del control de las licencias e incapacidades otorgadas por medicina de empresa. Es responsabilidad de la Dirección Médica de los centros que tramitan licencias e incapacidades otorgadas por medicina de empresa, establecer los controles necesarios sobre su otorgamiento y su registro.

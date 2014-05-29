@@ -1,0 +1,1 @@
+Artículo 84.—Del control de las recomendaciones de incapacidad extendidas por terceros. Las Comisiones Locales Evaluadoras de Incapacidades deben llevar un control de la cantidad de días recomendados, los días otorgados, según patología y profesional que hace la recomendación.

@@ -1,0 +1,1 @@
+Artículo 49.—De la continuación de incapacidades. Cuando un (a) asegurado (a) que se encuentra incapacitado, acude a consulta y de acuerdo con el criterio del médico tratante, amerita ampliar el período de incapacidad, ésta podrá extenderse a partir del día de la atención, con el fin de completar los días de reposo recomendados.

@@ -1,0 +1,1 @@
+Artículo 61.—De la licencia por maternidad en caso de óbito fetal. Si el ser procreado naciere sin vida y el período de gestación es mayor a las treinta y seis (36) semanas la licencia se otorgará por el período completo.

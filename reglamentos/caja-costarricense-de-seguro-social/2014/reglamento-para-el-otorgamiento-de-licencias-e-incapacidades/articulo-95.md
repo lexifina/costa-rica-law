@@ -1,0 +1,9 @@
+Artículo 95.—De las potestades de las Comisiones Evaluadoras de Licencias e Incapacidades. Las Comisiones Evaluadoras de Licencias e Incapacidades tendrán subordinación técnica de acuerdo con la estructura organizacional donde se ubiquen. La Comisión Local estará subordinada a la Comisión Regional y ambas estarán subordinadas a la Comisión Central.
+Los criterios emitidos por la Comisión Central Evaluadora de Licencias e Incapacidades serán vinculantes para las Comisiones Regionales o Locales, los profesionales en Ciencias Médicas autorizados por la CCSS que emiten las incapacidades y para los asegurados activos que las reciben.
+Las Comisiones Evaluadoras de Licencias e Incapacidades quedan facultadas para:
+a) Solicitar el criterio médico-técnico de servicios especializados para determinar, si por sus padecimientos, un paciente amerita continuar incapacitado, siendo obligación del paciente acudir a estas valoraciones.
+b) Ordenar nuevos estudios clínicos, de laboratorio o gabinete, con el fin de aclarar el diagnóstico, pronóstico o tratamiento del paciente. Así, estudiado y analizado el caso puede ratificar, modificar o denegar una incapacidad.
+c) Citar y evaluar a los pacientes, en un nuevo acto médico, para ratificar, modificar o denegar una incapacidad o en caso de investigación, según lo señalado en el artículo 16° de este Reglamento.
+d) Citar, cuando se requiera al profesional que está a cargo del paciente, para analizar en forma conjunta la justificación de una incapacidad.
+e) Tener acceso formal a los expedientes clínicos y hojas de atención de urgencias de los asegurados activos incapacitados, resguardando la confidencialidad respectiva, con el fin de analizar en forma integral la situación de un asegurado activo incapacitado.
+f) Solicitar certificaciones de las atenciones médicas otorgadas a pacientes o funcionarios de su centro que han sido incapacitados en otros centros.

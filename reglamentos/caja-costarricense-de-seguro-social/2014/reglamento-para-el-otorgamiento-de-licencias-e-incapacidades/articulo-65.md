@@ -1,0 +1,1 @@
+Artículo 65.—Del otorgamiento de la licencia para los responsables de pacientes en fase terminal. Con base en la autorización citada en el artículo anterior, la dirección médica correspondiente, conforme el lugar de adscripción del asegurado (a) activo (a), responsable designado, ordena la emisión de la constancia de licencia de paciente en fase terminal.

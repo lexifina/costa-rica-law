@@ -1,0 +1,6 @@
+Artículo 37.—De las incapacidades otorgadas por el sistema de teleconsulta institucional. El Sistema de Teleconsulta Institucional está autorizado para otorgar incapacidades, las cuales se regirán por lo siguiente:
+a. El médico del centro teleconsultado consignará la nota médica en el formulario de contrarreferencia o en una hoja de evolución, en la cual indicará el diagnóstico, las fechas y los días de incapacidad que requiere el paciente.
+b. El médico del centro teleconsultante anotará en el expediente de salud del paciente el diagnóstico, las fechas y los días de incapacidad indicados por el médico del centro teleconsultado.
+c. Finalizada la teleconsulta el centro teleconsultado debe enviar la contrarreferencia al centro teleconsultante, por los medios establecidos, con la firma y el sello del médico teleconsultado, la cual deberá incorporarse al expediente clínico del paciente.
+d. Una vez recibido el documento anterior el médico teleconsultante confeccionará la boleta de incapacidad respectiva, por el total de días indicados, de acuerdo con lo que establece este Reglamento. Además, la boleta de incapacidad llevará un sello indicando que es una teleconsulta.
+e. Toda incapacidad otorgada bajo esta modalidad deberá llevar autorización, en el reverso de la boleta de incapacidad, de la jefatura inmediata.

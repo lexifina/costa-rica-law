@@ -1,0 +1,6 @@
+CAPÍTULO VII
+De las incapacidades en internamientos prolongados
+Artículo 53.—De las incapacidades en internamientos mayores de 15 días. En caso de internamientos menores de quince (15) días naturales la incapacidad se extenderá al momento de egreso del paciente, con vigencia desde de la fecha de ingreso y cubrirá todo el período que el paciente requiera para la recuperación de su salud.
+Tratándose de internamientos prolongados de quince (15) días naturales en adelante, en centros médicos de la Institución, las incapacidades serán otorgadas cada quince días por el profesional en Ciencias Médicas que esté a cargo del paciente, siguiendo lo establecido en el artículo 26° de este Reglamento.
+La oficina de incapacidades tramitará la incapacidad y llevará un registro de los días de cada incapacidad otorgada, de tal forma que al egreso del paciente pueda informar al Servicio donde está internado el asegurado (a) activo (a) de los días de incapacidad que requiere para completar todo el período de internamiento y recuperación posterior.
+En caso de que el paciente lo requiera, la dirección médica del centro debe extender una certificación de la condición de internamiento del asegurado (a) activo (a) a un tercero con una autorización respectiva, para lo que corresponda.

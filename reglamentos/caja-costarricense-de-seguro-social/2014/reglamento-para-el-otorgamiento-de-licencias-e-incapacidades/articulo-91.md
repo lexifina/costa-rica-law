@@ -1,0 +1,10 @@
+CAPÍTULO XIV
+De los días de incapacidad en un solo formulario
+Artículo 91.—De los períodos de incapacidad y licencias otorgados en un solo formulario que no sobrepasen los ciento ochenta (180) días de licencia o incapacidad. El período de incapacidad que se otorgue en un mismo formulario, no podrá superar el plazo de 30 (treinta) días; con excepción de:
+a. Los casos de internamiento hospitalario prolongado en los hospitales de la CAJA COSTARRICENSE DE SEGURO SOCIAL, que no hayan cumplido con lo estipulado en el artículo 53º de este Reglamento.
+b. Los casos de internamiento en los centros médicos privados, luego de ser avalados por las Comisiones Locales Evaluadoras de Incapacidades, incluidos el período de internamiento y los días de reposo recomendados, de acuerdo a lo estipulado en el artículo 87º de este Reglamento.
+c. Los períodos de incapacidad, producto de recomendaciones de médicos en el extranjero y avalados por las Comisiones Locales Evaluadoras de Incapacidades, de acuerdo a lo estipulado en el inciso d) del artículo 90° de este Reglamento.
+d. Las licencias por maternidad hasta por un máximo de cuatro (4) meses.
+e. Los casos de Ortopedia atendidos ambulatoriamente, ya sea en consulta externa o en los servicios de urgencia.
+f. Los casos de pacientes con enfermedades prolongadas, tratados ambulatoriamente, por médicos especialista(s) de la Caja Costarricense de Seguro Social, hasta por un máximo de ciento ochenta (180) días, con la debida justificación en el expediente clínico del paciente y con el aval de la jefatura inmediata. Estos casos deben ser analizados por la Comisión Local Evaluadora de Incapacidades, de acuerdo con lo estipulado en el artículo 50° de este Reglamento.
+g. Los pacientes rechazados por la Comisión Calificadora del Estado de Invalidez, que no alcanzan el porcentaje mínimo para una pensión por invalidez y deban continuar incapacitados por no poder laborar, en cuyo caso las boletas de incapacidad deben ser otorgadas por el centro que refiere a la Comisión Calificadora del Estado de Invalidez, por un máximo de ciento ochenta (180) días, con la autorización de la Comisión Local Evaluadora de Incapacidades.

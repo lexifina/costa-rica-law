@@ -1,0 +1,1 @@
+Artículo 58.—De la licencia por maternidad en partos prematuros nacidos vivos. En caso de partos prematuros nacidos vivos, con períodos de gestación mayores a las veinte (20) semanas y menores o igual a las treinta y seis (36) semanas y seis días, la licencia se extenderá por el período completo de cuatro (4) meses.

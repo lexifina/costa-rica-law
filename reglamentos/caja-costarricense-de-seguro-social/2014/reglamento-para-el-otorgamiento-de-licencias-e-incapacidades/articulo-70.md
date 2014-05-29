@@ -1,0 +1,1 @@
+Artículo 70.—De las licencias por maternidad otorgadas por medicina de empresa. Los médicos de empresa quedan autorizados para emitir licencias por maternidad, de acuerdo con lo que estipula el artículo 55° de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 56.—De la licencia por maternidad después del parto. Cuando la licencia por maternidad se emita después del parto y posterior a la semana 37 (treinta y siete) de embarazo, se hará por tres meses a partir del nacimiento, salvo normas legales que dispongan plazos menores.
+En las complicaciones del embarazo debe protegerse a la madre con incapacidad de acuerdo con el criterio médico y estarse a lo contenido en la tabla de días indicada en el artículo 29° de este Reglamento.

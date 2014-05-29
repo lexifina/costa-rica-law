@@ -1,0 +1,4 @@
+CAPÍTULO XV
+De la conformación de las Comisiones Evaluadoras
+de Licencias e Incapacidades
+Artículo 92.—De la conformación de las Comisiones Locales Evaluadoras de Licencias e Incapacidades. La Dirección de todo centro médico, ya sea institucional o de Proveedores Externos de Servicios Integrales de Salud debe conformar y tener en funcionamiento una Comisión Local Evaluadora de Licencias e Incapacidades, que dependerá técnicamente de la Comisión Regional Evaluadora de Licencias e Incapacidades respectiva, con excepción de las Comisiones Locales Evaluadoras de Incapacidades de Hospitales Nacionales y Especializados que dependerán directamente de la Comisión Central Evaluadora de Incapacidades. En todo caso las Comisiones Locales, Regionales y Central Evaluadoras de Incapacidades se regirán por lo establecido en el Reglamento para el Funcionamiento de las Comisiones Central, Regionales y Locales Evaluadoras de Licencias e Incapacidades.
