@@ -1,1 +1,0 @@
-Artículo 29.—Retiros parciales de la cuenta de ahorros OROPAC colectivo. El gestor podrá solicitar a la MUCAP la cancelación de uno o varios subcontratos de los ahorrantes, sin que ello implique la cancelación del contrato colectivo.
