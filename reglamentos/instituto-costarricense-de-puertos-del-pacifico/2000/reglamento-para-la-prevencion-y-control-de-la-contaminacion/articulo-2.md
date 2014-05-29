@@ -1,1 +1,0 @@
-Articulo 2°—El presente Reglamento regula todo lo concerniente a sus derivados que se vierten y descargan en las aguas oceánicas y litoral Pacífico por cualquier medio empleado para el transporte marino.

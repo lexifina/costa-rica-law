@@ -1,1 +1,0 @@
-Articulo 24.—Los trabajadores de INCOP que no acaten las normas de este articulado, se les sancionará, como lo dispone el Reglamento Autónomo de Servicios de la institución y la respectiva Legislación.

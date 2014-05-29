@@ -1,1 +1,0 @@
-Articulo 20.—Una vez realizado el estudio de las hojas de la bitácora por parte de la Gerencia General , si encontrará algún defecto, deberá inmediatamente comenzar una investigación sobre el caso, recabar todo tipo de pruebas (testigos, documentos) que esclarezcan los hechos y de ser necesario establecer las sanciones correspondientes a los culpables.

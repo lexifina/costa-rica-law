@@ -1,1 +1,0 @@
-Artículo 16.—Todo tipo de transporte marítimo que ponga en peligro el ecosistema marino y la salud humana debido a las sustancias perjudiciales e hidrocarburos descargan en él, podrá hacerse acreedor dependiendo de la gravedad de los actos de perder el derecho de atraque, además de ser denunciado penalmente.
