@@ -1,1 +1,0 @@
-Artículo 20.—Este Reglamento rige a partir de su publicación en el Diario Oficial "La Gaceta" y deroga cualesquiera otros Reglamentos emitidos sobre la materia con anterioridad por la Junta Directiva.
