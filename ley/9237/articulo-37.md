@@ -1,0 +1,2 @@
+ARTÍCULO 37.- Facultad para realizar actas de inspección
+Quedan facultados y autorizados los inspectores municipales y los demás funcionarios del proceso administrativo definido a este efecto por la Municipalidad, para que realicen las actas de inspección y de tasado, necesarias para resolver las quejas, denuncias y solicitudes que provengan de los administrados en relación con las licencias municipales.

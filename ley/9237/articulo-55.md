@@ -1,0 +1,4 @@
+ARTÍCULO 55.- Copia de declaración jurada del impuesto sobre la renta
+En caso de duda sobre la veracidad de la información que aporta el patentado en su declaración jurada, la Municipalidad de El Guarco podrá exigirle al administrado, dentro del término de treinta días hábiles después de recibida su declaración y en orden municipal motivada al efecto, una copia de la declaración del impuesto sobre la renta presentada a la Dirección General de Tributación.
+Si el administrado se niega a suministrar esta información, o si por cualquier motivo no puede presentarla a tiempo, la Municipalidad podrá solicitarla de manera directa a la Dirección General de Tributación.
+Para el cumplimiento de esta disposición, la Municipalidad de El Guarco queda autorizada a firmar un convenio de colaboración y ayuda mutua con la Dirección General de Tributación del Ministerio de Hacienda.
