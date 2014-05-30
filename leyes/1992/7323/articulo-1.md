@@ -1,4 +1,6 @@
+(Derogado)
 N° 7323
+(Esta norma fue derogada por el artículo 74 de la Ley de Impuestos Municipales del Cantón de El Guarco, N° 9237 del 23 de abril del 2014)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COST A RICA
 DECRETA:
 T ARIFA DE IMPUESTOS MUNICIPALES DEL CANTON DE EL GUARCO, PROVINCIA DE CART AGO
