@@ -1,0 +1,2 @@
+ARTÍCULO 69.- Prohibición de otorgar licencias
+Queda absolutamente prohibido a los funcionarios y funcionarias municipales, alcaldes o alcaldesas, vicealcaldes o vicealcaldesas y regidores o regidoras del Concejo Municipal otorgar licencias de ningún tipo en contra de la Constitución, las leyes de la República y los reglamentos municipales y de otras instituciones, en especial de los que contengan normas de planificación estratégica tales como los planes reguladores. Quien incumpla esta prohibición quedará sujeto a la sanción, según los procedimientos vigentes por ley.

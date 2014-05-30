@@ -1,0 +1,2 @@
+ARTÍCULO 70.- Realización de operativos
+La Municipalidad de El Guarco, junto con las autoridades de la Fuerza Pública, la Dirección General de Migración y Extranjería, el Patronato Nacional de la Infancia (PANI), la Dirección General de Policía de Tránsito, del Ministerio de Obras Públicas y Transportes (MOPT), y el Ministerio de Salud o cualquier otra entidad afín, podrán realizar operativos para comprobar el adecuado cumplimiento de las normas de esta ley y del reglamento para el funcionamiento de las ventas estacionarias y ambulantes en vías públicas.

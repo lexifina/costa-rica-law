@@ -1,0 +1,3 @@
+ARTÍCULO 5.- Obligación del administrado de señalar lugar o medio idóneo para atender notificaciones
+Todo administrado tiene la obligación de señalar lugar o medio idóneo para atender notificaciones, de conformidad con la Ley N.° 8687, Notificaciones Judiciales, de 4 de diciembre de 2008, y podrá señalar cualquiera de los medios electrónicos y tecnológicos descritos en la Ley N.º 8687, sin ningún trámite previo de registro y comprobación, para notificaciones de forma personal; el lugar señalado deberá estar dentro del perímetro de 4 km del edificio municipal.
+De no señalar lugar o medio para atender notificaciones, la municipalidad puede tener por notificado lo resuelto en un término de veinticuatro horas, transcurridas después de dictado el acto administrativo.

@@ -1,0 +1,2 @@
+ARTÍCULO 31.- Renuncia tácita al derecho contenido en una licencia municipal
+Si el administrado deja de pagar el impuesto por la licencia municipal otorgada por más de un trimestre y la administración comprueba que dicha actividad ya no existe en el campo, que fue abandonada, la Municipalidad podrá dar por cancelada dicha licencia, sin necesidad de que impere la autorización o solicitud del administrado.

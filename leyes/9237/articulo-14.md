@@ -1,0 +1,3 @@
+ARTÍCULO 14.- Condiciones en que se otorgan las licencias
+Las licencias municipales se otorgan, únicamente, para el ejercicio de la actividad que ellas mismas determinan y en las condiciones que establece el uso que se dicte con ese fin, para lo cual la Municipalidad entregará a cada patentado un certificado que lo acredite como tal y tendrá vigencia hasta tanto exista la licencia municipal; este deberá ser colocado en un lugar visible del establecimiento. Dicho certificado tendrá un costo del 0.5% (punto cinco por ciento) del salario base.
+Ningún administrado podrá ejercer un derecho distinto o adicional del que consagra una licencia municipal, so pena de revocación de esta.
