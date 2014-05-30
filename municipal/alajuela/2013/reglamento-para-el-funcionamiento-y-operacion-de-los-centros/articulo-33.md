@@ -1,0 +1,1 @@
+Artículo 33.—En casos de ausencia de personal del centro, es obligación del responsable prestatario del servicio garantizar la continuidad normal del mismo incluso con el nombramiento de suplentes que reúnan los requisitos indicados en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 21.—De la evaluación de los niños y niñas.-La evaluación es un proceso de observación por medio de crónicas diarias o semanales, listas de cotejo de las actividades realizadas, que culminará en un reporte semestral, registrándose en términos cualitativos de acuerdo al nivel alcanzado por el niño o niña en las diferentes áreas de desarrollo.

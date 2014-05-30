@@ -1,0 +1,1 @@
+Artículo 32.—La asistencia y la puntualidad necesarias para garantizar la continuidad y calidad del servicio son aspectos considerados importantes y deben ser observados en el centro de forma obligatoria.

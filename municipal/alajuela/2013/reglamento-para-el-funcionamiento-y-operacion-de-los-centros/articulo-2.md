@@ -1,0 +1,3 @@
+CAPÍTULO II
+Operación y funcionamiento de los CECUDI
+Artículo 2°—Los CECUDI podrán ser puestos en funcionamiento en el cantón central de Alajuela mediante administración y operación directa por parte de la Municipalidad, o bien mediante adjudicación por contratación administrativa o asignación directa por Convenio con una entidad social sin fines de lucro, todo según los criterios de oportunidad y conveniencia que estimen las autoridades municipales. En caso de que la operación se realice mediante contratación administrativa o por suscripción de convenio con particulares, la Municipalidad ejercerá la supervisión respectiva conforme a lo dispuesto en este reglamento y las normas aplicables del ordenamiento jurídico.

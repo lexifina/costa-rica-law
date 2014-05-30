@@ -1,0 +1,1 @@
+Artículo 35.—Régimen disciplinario. Tanto la Municipalidad respecto a sus funcionarios como el prestatario del servicio designado aplicarán los respectivos regímenes disciplinarios en caso de comisión de las faltas previstas tanto en la legislación aplicable como en este reglamento.
