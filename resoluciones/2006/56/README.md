@@ -14,3 +14,4 @@ Procedimiento de operación de la Comisión Financiera del Instituto Nacional de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-23 | la propia norma |
+| 2 | 2014-05-30 | Resolución 9 (2014-05-30) |

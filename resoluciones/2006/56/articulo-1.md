@@ -15,17 +15,14 @@ FINANCIERA DEL INSTITUTO NACIONAL
 DE FOMENTO COOPERATIVO
 1) La Comisión Financiera tiene como objetivo emitir recomendaciones con argumentaciones, criterios y conclusiones a la Dirección Ejecutiva, producto de la revisión presupuestaria y financiera de las diversas actividades relativas a gastos, adquisiciones, ingresos y posibles desembolsos por participación asociativa, así como cualquier otro empleo de recursos institucionales, que por su magnitud influyen en la gestión económica, financiera y presupuestaria del INFOCOOP tanto para el logro de los objetivos y funciones que la Ley de Asociaciones Cooperativas le asigna a la Institución, así como al logro de su misión, visión e imagen objetivo; de forma tal que el análisis y evaluación de los componentes del gasto e inversión social que realiza el Instituto lo hagan con dicho marco normativo y en consideración al marco de los planes estratégicos y operativos vigentes.
 2) La conformación de la Comisión Financiera estará integrada por las personas que ocupen:
-a) La Dirección Ejecutiva quien presidirá la Comisión y/o la
-Subdirección Ejecutiva
-b) La Coordinación del Proceso de Desarrollo Estratégico.
-c) La Coordinación del Proceso de Administración y Finanzas, quien tendrá a su cargo la secretaria de la Comisión.
-d) La Coordinación del Macroproceso Desarrollo Integral
-Cooperativo
-e) La Coordinación del Proceso de Operaciones.
-f) Contador(a)
-g) La asistente ejecutiva(o) de la Subdirección Ejecutiva, quien tendrá a su cargo levantar las actas.
-h) Un(a) analista estratégico(a).
-Asimismo asistirán a la Comisión Financiera con derecho a voz las personas que tengan relación con la formulación y evaluación del presupuesto institucional. Será responsabilidad de la coordinación de Desarrollo Estratégico y la Administración Superior, que dicha Comisión funcione ajustada a Derecho.
+a) La Dirección Ejecutiva quien presidirá la Comisión y/o la Subdirección Ejecutiva.
+b) El Gerente de Desarrollo Estratégico.
+c) El Gerente Administrativo Financiero, quien tendrá a su cargo la secretaría de la Comisión, así como levantar las respectivas actas de la Comisión y custodiar el Libro de Actas, mismo que deberá estar al día.
+d) El Gerente de Financiamiento.
+e) Contador.
+f) Un Asesor Estratégico.
+Asimismo asistirán a la Comisión Financiera con derecho a voz las personas que tengan relación con la formulación y evaluación del presupuesto institucional. Será responsabilidad del Gerente de Desarrollo Estratégico y la Administración Superior, que dicha Comisión funcione ajustada a Derecho.
+(Así reformado el numeral 2) anterior mediante resolución N° RES-DE-09-2014 del 30 de mayo del 2014)
 3) La Comisión Financiera deberá analizar y evaluar al menos trimestralmente los siguientes aspectos relacionados con la sostenibilidad social, económica, financiera y política de la Institución a través del empleo de los recursos institucionales:
 a. Asignación del gasto propuesto en los presupuestos anuales y sus modificaciones.
 b. Evolución de la situación financiera y económica del INFOCOOP.
@@ -35,7 +32,8 @@ e. Valoración de riesgos relacionados con la sostenibilidad política, social y
 f. Valoración del flujo de caja institucional.
 g. Cuando las circunstancias lo ameriten, deberá emitirse criterios y recomendaciones a la Administración Superior sobre las propuestas de presupuestos e inversiones para el logro de los objetivos institucionales y cumplimiento del mandato de Ley.
 h. Otras que la Dirección Ejecutiva estime pertinentes, que se relacionen con los temas anteriores o su objetivo; lo cual se comunicará a la Junta Directiva.
-4) La Comisión Financiera deberá llevar libros de actas, los cuales deberán ser legalizados en la Auditoría Interna del INFOCOOP. El libro de actas se llevará conforme a las disposiciones vigentes que al efecto ha emitido la Contraloría General de la República y la Auditoría Interna de INFOCOOP. Será custodiado por quien preside y deberán estar al día.
+4) La Comisión Financiera deberá llevar libros de actas, los cuales deberán ser legalizados en la Auditoría Interna del INFOCOOP. El libro de actas se llevará conforme a las disposiciones vigentes que al efecto ha emitido la Contraloría General de la República y la Auditoría Interna de INFOCOOP.
+(Eliminada la última oración del numeral anterior mediante resolución N° RES-DE-09-2014 del 30 de mayo del 2014, la cual indicaba: "Será custodiado por quien preside y deberán estar al día.")
 5) La Comisión Financiera deberá, producto de cada sesión, confeccionar un acta en la que consignará al menos: las personas asistentes, lugar y tiempo de celebración, orden del día, puntos principales de la deliberación, la forma y resultado de la votación y la indicación clara del tratamiento dado a los asuntos de conocimiento. Se deberá consignar en el acta cualquier aspecto que cualquiera de los integrantes de la Comisión estime pertinente y solicite, siempre y cuando sea producto de lo debatido. Será puesta a disposición de las personas integrantes de la Comisión al menos con un día hábil de anticipación a la celebración de la sesión siguiente, en la cual se aprobará el acta una vez iniciada la sesión.
 Todas las actas se transcribirán en el Libro de Actas de la Comisión, a fin de presentarlas para ser firmadas por quien Presida y la correspondiente secretaría o quien en su defecto los sustituya normativamente.
 6) La Comisión Financiera deberá emitir recomendaciones para la Administración. Las recomendaciones deben incluir todos los aspectos necesarios para que constituyan un acto debidamente motivado. Las recomendaciones contienen al menos, las argumentaciones, conclusiones, encargos y criterios que se estiman pertinentes.
@@ -75,5 +73,5 @@ g. Las demás que le otorgue la Presidencia de la Comisión.
 12) La Comisión Financiera Institucional considerará en todo momento los fines, funciones, objetivos y marco estratégico y operativo del INFOCOOP como entidad de desarrollo y fomento cooperativo a favor de las poblaciones de escasos recursos a la hora de emitir sus recomendaciones a la Administración Superior y las mismas deben valorar los riesgos de incumplimiento y de sostenibilidad política, social, económica y financiera del INFOCOOP.
 El presente procedimiento, deja sin efecto cualquier norma u orden de igual o inferior rango que se le oponga o contradiga y adiciona una integrante de la Comisión, conforme a lo dispuesto en Circular C-DE 015-2006.
 En lo no dispuesto, deberá aplicarse supletoriamente la Ley General de Administración Pública en cuanto a los Órganos Colegiados. Rige a partir de su publicación oficial”.
-B) Proceda el Proceso de Administración y Finanzas a efectuar lo señalado en el inciso b) del artículo 4 de la Ley 8220 “Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” Notifíquese a la Subdirección Ejecutiva, Macroproceso de Fomento, Macroproceso Desarrollo Integral Cooperativo, Macroproceso de Gestión y Seguimiento, Proceso Operaciones, Proceso Desarrollo Humano, Proceso Asesoría Jurídica, Proceso Desarrollo Estratégico, Proceso Tecnologías de Información, Proceso de Administración y Finanzas y Auditoría Interna.
+B) (Eliminado el punto b) original mediante resolución N° RES-DE-09-2014 del 30 de mayo del 2014)
 San José, 14 de noviembre del 2006.
