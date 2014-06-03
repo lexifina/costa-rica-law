@@ -1,10 +1,8 @@
 CAPÍTULO II
 Del pago de viáticos a Regidores y Síndicos Municipales
-Artículo 7°—Gastos de transporte. Este artículo se modifica de tal forma que responda a las necesidades de transporte de síndicos (as) regidores y regidoras y a la limitación en servicio de autobús y las grandes distancias entre los diversos distritos y centros poblacionales del cantón de Bagaces, los beneficiarios de ese pago se acogerán a las siguientes modalidades:
-7.1 Uso de taxi: una vez terminadas las Sesiones Municipales, Ordinarias y Extraordinarias, se reconocerá la utilización del servicio de taxi, siempre y cuando:
-A) Los síndico (as) Regidores y Regidoras deban tomar el servicio de autobús con más de un lapso de espera de 45 minutos, o del todo no exista el servicio de buses a esa hora.
-A1) Control: Para realizar el control la administración facilitará un talonario o boleta en donde se acredite el nombré del taxista, placa del vehículo, fecha, hora de abordaje lugar, hora de llegada y destino, monto y cantidad de ocupantes; lo anterior en vista de que el vehículo pueda ser ocupado por un regidor o en calidad de taxi colectivo, pero el dinero se cancelará únicamente a quien presente el comprobante.
-A2) Las boletas o talonarios se entregarán a quienes residan al menos a una distancia de 5 kilómetros del Palacio Municipal o lugar donde realice la sesión, según sea el caso. Para tales efectos la administración podrá realizar adelanto de viáticos y se liquidarán con la presentación de las boletas respectiva, la solicitud de adelanto la puede realizar el interesado por el mes calendario completo si así lo tiene a bien, ante la Dirección Financiera y Administrativa de la Municipalidad.
-A3) El control respectivo se llevará a cabo por medio del acta respectiva que indica la finalización de la sesión.
-7.2 Uso de vehículo propio: La administración reconocerá en estos casos el gasto de kilometraje de acuerdo a la tabla que para tales efectos utiliza la Contraloría General de la República, a aquellos Regidores que utilicen el vehículo propio. Para ello el interesado deberá de presentarse ante la Proveeduría Municipal para inscribir su vehículo y aplicarle el proceso de contratación administrativa pertinente.
-(Así reformado mediante publicación en La Gaceta N° 89 del 10 de mayo del 2013)
+Artículo 7º—La sumas a pagar por conceptos de gastos de transporte a regidores y síndicos a que se refiere este reglamento es una asignación de una suma de dinero tomando en cuenta la distancia en que se debe desplazar hasta el lugar donde se lleven a cabo las sesiones.
+Se asignará los siguientes montos:
+De 5 a 10 kilómetros ¢5.000,00
+De 10 a 20 kilómetros ¢8.000,00
+De 20 a 25 kilómetros ¢12.000,00 y una distancia mayor a los 25 kilómetros un monto de ¢19.000,00 por sesión asistida.
+(Así reformado mediante sesión ordinaria N° 34 del 3 de junio del 2014)
