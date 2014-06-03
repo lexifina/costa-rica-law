@@ -1,0 +1,1 @@
+Artículo 4º—Funcionamiento. La CTI se reunirá como mínimo una vez al mes; será coordinada por la Dirección de Agua responsable de levantar una minuta de cada sesión que deberá ser firmada por todos los miembros. En esta minuta se consignaran los acuerdos y se dará publicidad a través del portal electrónico de la Dirección de Aguas.
