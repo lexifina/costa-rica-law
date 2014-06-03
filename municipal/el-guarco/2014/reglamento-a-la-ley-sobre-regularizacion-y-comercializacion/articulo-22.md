@@ -1,0 +1,1 @@
+Artículo 22.—Sanciones relativas al uso de la licencias. Será sancionado con una multa de cinco salarios base quien realice un uso no permitido de la Licencia otorgada según los incisos a, b y c del artículo 14 de la Ley.

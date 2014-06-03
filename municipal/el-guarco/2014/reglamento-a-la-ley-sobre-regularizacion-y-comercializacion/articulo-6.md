@@ -1,0 +1,1 @@
+Artículo 6º—Poblaciones. La cantidad total de licencias clase A y B otorgadas en cada distrito no podrá exceder la cantidad de una por cada trescientos habitantes. En la determinación del total de habitantes del Cantón, se acudirá al último estudio realizado por el INEC (Instituto Nacional de Estadística y Censo).

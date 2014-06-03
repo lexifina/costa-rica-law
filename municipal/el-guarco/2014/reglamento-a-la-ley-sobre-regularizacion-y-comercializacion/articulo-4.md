@@ -1,0 +1,5 @@
+Artículo 4º—Advertencia legal. Las licencias de expendio de bebidas con contenido alcohólico tienen las siguientes características:
+a) El derecho que se otorga por medio de la licencia está directamente ligado al establecimiento comercial para el cual fue expedido, y no constituye un activo independiente a dicho establecimiento.
+b) Las licencias no son susceptibles de embargo, de apropiación mediante remate o adjudicación vía sucesión, traspaso, arrendamiento, o cualquier otra forma de enajenación;
+c) En caso de que el establecimiento comercial que goza de la licencia sea traspasado, ya sea mediante compraventa de establecimiento mercantil o bien mediante el traspaso de más del cincuenta por ciento del capital social en el caso de personas jurídicas, el adquirente deberá notificar del cambio de titularidad a la Municipalidad dentro de los cinco días hábiles a partir de la compra, y aportar la información correspondiente a efectos del otorgamiento de una nueva licencia a su nombre.
+El documento en el que conste la licencia de expendio de bebidas con contenido alcohólico otorgado por la Municipalidad, deberá exhibirse en un lugar visible del establecimiento.

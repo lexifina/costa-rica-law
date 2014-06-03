@@ -1,0 +1,1 @@
+Artículo 26.—Sanciones relativas a la venta ilegal. Quien comercialice bebidas con contenido alcohólico, sin contar con una licencia vigente y expedida por la municipalidad respectiva, recibirá una sanción de sesenta días multa.

@@ -1,0 +1,5 @@
+Transitorio II.—De conformidad con lo resuelto por la Sala Constitucional de Corte Suprema de Justicia en sentencia 2013-11499 del 28 del 2013, los titulares de patentes adquiridas mediante la ley número 10 del 09 de octubre de 1936, mantendrán su derecho hasta que expire su plazo bienal de vigencia, plazo que empieza a correr al termino de los dos meses estipulados en el transitorio anterior. A partir de ese momento quien sea titular de dicha licencia no podrá venderla, canjearla, arrendarla, transferirla, traspasarla ni enajenarla en forma alguna, ya que debe ajustarse a todas y cada una de las disposiciones contenidas en la ley y su reglamento.
+SECCIÓN SEGUNDA
+Derogaciones
+Derogaciones.—Deróguense en su totalidad el Reglamento Sobre Regulación y Comercialización de Expendio de Bebidas con Contenido Alcohólico emitido por el Concejo Municipal de El Guarco, publicado en el diario oficial La Gaceta N° 244 del 18 de diciembre de 2012, ratificado en La Gaceta N° 39 del 25 de febrero de 2013.
+Aprobado en la sesión N° 298-2014, celebrada el 25 de marzo del 2014, mediante acuerdo N° 728 definitivamente aprobado por el Concejo Municipal del cantón de El Guarco.
