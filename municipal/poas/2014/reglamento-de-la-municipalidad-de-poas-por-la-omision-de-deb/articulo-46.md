@@ -1,0 +1,1 @@
+Artículo 46.—La Municipalidad en tanto no cuente con un Plan Regulador vigente o este no reglamente lo ordenado en los artículos 75 y 76 del Código Municipal, según las áreas urbanas, los cuadrantes urbanos, zonas de protección, zona industrial, zonas mixtas y demás existentes en el cantón, se aplicarán las disposiciones del Reglamento aprobado.

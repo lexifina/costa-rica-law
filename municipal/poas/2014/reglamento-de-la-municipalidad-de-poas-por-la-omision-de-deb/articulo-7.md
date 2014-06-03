@@ -1,0 +1,1 @@
+Artículo 7º—Las multas fijadas se actualizán anualmente, en el mismo porcentaje que aumente el salario base de un oficinista I del Poder Judicial, establecido en el artículo 2º de la Ley Nº 7337 del 5 de mayo de 1993.

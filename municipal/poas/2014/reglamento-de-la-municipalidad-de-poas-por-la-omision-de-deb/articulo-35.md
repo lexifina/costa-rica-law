@@ -1,0 +1,1 @@
+Artículo 35.—La Municipalidad revisará y actualizará el mes de enero de cada año, los precios que determinen el costo total de los trabajos que se deban ejecutar en labores de construcción, reconstrucción y restauración de aceras y de otras labores indicadas en los artículos anteriores y será publicados anualmente conforme al presente reglamento.

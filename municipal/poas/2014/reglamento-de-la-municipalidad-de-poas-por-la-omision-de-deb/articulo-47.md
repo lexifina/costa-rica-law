@@ -1,0 +1,1 @@
+Artículo 47.—En el caso de construcciones realizadas en la vía pública sin permiso y que no se encuentren de conformidad con la Ley 7600, deberá el propietario del inmueble, en un plazo no mayor a 30 días naturales, adecuarse a la misma y proceder de acuerdo a lo establecido en este reglamento. Caso contrario se aplica lo indicado en los capítulos II y IV del presente reglamento.

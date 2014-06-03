@@ -1,0 +1,1 @@
+Artículo 28.—Salvo lo ordenado en la Ley General de Salud, cuando los munícipes incumplan las obligaciones anteriores, la municipalidad está facultada para suplir prioritariamente, la omisión de esos deberes, realizando en forma directa o contratando, las obras constructivas y/o prestando los servicios correspondientes, pero trasladando los cobros respectivos al incumpliente.

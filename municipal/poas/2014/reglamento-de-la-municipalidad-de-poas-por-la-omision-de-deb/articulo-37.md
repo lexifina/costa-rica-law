@@ -1,0 +1,1 @@
+Artículo 37.—En los casos en que por tecnicismos o impasibilidad no se logren determinar tasas fijas para el cobro estandarizado, de conformidad con una unidad de medición (m, m², m³, etc.), se aplicará lo indicado en el artículo 15 y demás consecuentes.
