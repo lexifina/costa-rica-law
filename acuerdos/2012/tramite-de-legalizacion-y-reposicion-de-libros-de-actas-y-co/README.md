@@ -14,3 +14,4 @@ Trámite de legalización y reposición de libros de actas y contables que deben
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-08 | la propia norma |
+| 2 | 2014-06-04 | Acuerdo 0 (2014-06-04) |
