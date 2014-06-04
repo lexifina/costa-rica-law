@@ -1,0 +1,1 @@
+Artículo 61.—El Consejo Regional de Adopciones una vez firme el acuerdo de ubicación de la persona menor de edad con fines de adopción, remitirá en forma inmediata los expedientes de la persona menor de edad y de los solicitantes de adopción elegidos, al Departamento de Adopciones, con el fin de que se proceda a realizar las acciones psicosociolegales que correspondan.

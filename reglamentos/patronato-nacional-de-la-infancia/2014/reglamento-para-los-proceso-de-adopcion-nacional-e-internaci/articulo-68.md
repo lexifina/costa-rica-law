@@ -1,0 +1,1 @@
+Artículo 68.—La solicitud de ubicación de una persona menor de edad con fines de adopción internacional, deberá ser presentada por los solicitantes mediante la Autoridad Central u organismos o entidades colaboradoras de adopción internacional.

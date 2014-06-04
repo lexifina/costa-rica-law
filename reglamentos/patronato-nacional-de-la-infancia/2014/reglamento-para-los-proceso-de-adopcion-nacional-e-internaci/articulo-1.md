@@ -1,0 +1,28 @@
+PATRONATO NACIONAL DE LA INFANCIA
+(Nota de Sinalevi: Sobre este tema el Patronato Nacional de la Infancia , había emitido anteriormente el Reglamento para los procesos de Adopción Nacional e Internacional, publicado en La Gaceta N° 112 del 11 de junio del 2008)
+REGLAMENTO PARA LOS PROCESOS DE
+ADOPCIÓN NACIONAL E INTERNACIONAL
+Preámbulo
+El presente Reglamento para los procesos de Adopción Nacional e Internacional, se rige por el siguiente marco legal:
+1. Convención de los Derechos del Niño. Con la aprobación en 1990 de la Convención sobre los Derechos del Niño, Costa Rica introduce el nuevo paradigma de la doctrina de la protección integral, reconociendo que las personas menores de edad son sujetos de derechos, y tienen los mismos derechos fundamentales de las personas adultas, más un conjunto de derechos específicos por su condición particular de seres en proceso de desarrollo; derechos que deben ser garantizados por el Estado costarricense. La doctrina de protección integral se rige por los siguientes principios:
+a) Principio de universalidad: Este principio establece que todos los niños, las niñas y las (os) adolescentes son sujetos de derechos, sin distinción alguna, y que todos los derechos humanos son igualmente aplicables a todas las personas menores de edad, tomando en cuenta la especial condición de personas en etapa de desarrollo.
+b) Principio de integralidad de los derechos: Este principio refiere que los derechos humanos de las niñas, los niños y las (os) adolescentes son indivisibles, interdependientes, interrelacionados, inalienables, irrenunciables y de la misma jerarquía.
+c) Principio del interés superior: Premisa fundamental de la doctrina de la protección integral, principio rector y guía para la interpretación y aplicación de la normativa de la niñez y la adolescencia, en donde prevalecen los derechos de las personas menores de edad, por lo cual las autoridades se encuentran limitadas por esos derechos.
+d) Principio de autonomía progresiva en el ejercicio de los derechos: Los niños, las niñas y las (os) adolescentes son sujetos de derechos, y deben recibir el apoyo y la protección integral de los adultos, adquiriendo su autonomía en forma progresiva, según su grado de evolución y madurez.
+e) Principio de participación: Este principio garantiza el derecho fundamental de toda persona menor de edad de expresar por sí misma su propia opinión, en concordancia con su edad y madurez emocional, por lo cual las autoridades administrativas y judiciales deberán de tomarla en cuenta para la toma de decisiones.
+f) Principio de igualdad de derechos y de oportunidades: Este principio conlleva el reconocimiento de las diferencias entre las personas menores de edad, así como la igualdad de acceso a oportunidades para su desarrollo integral. Trae consigo la legitimidad de acciones reparadoras, es decir, de las protecciones especiales y los derechos específicos.
+g) Principio de no discriminación: Este principio establece que no debe existir discriminación hacia las personas menores de edad, basada en la edad, sexo, raza, idioma, religión, nacionalidad, etnia, situación económica, discapacidad, orientación sexual, entre otras, para el ejercicio de sus derechos.
+2. Convenio Relativo a la Protección del Niño y a la Cooperación en Materia de Adopción Internacional. En 1995, el Estado de Costa Rica incorpora en la legislación nacional dicho convenio, el cual tiene como fin la protección de las personas menores de edad y la cooperación en materia de adopción internacional, reconociendo que para el desarrollo armónico de su personalidad, deben crecer en un medio familiar, en un clima de felicidad, amor y comprensión.
+Los objetivos del Convenio son:
+a) Establecer garantías para que las adopciones internacionales tengan lugar en consideración al interés superior de las personas menores de edad y al respeto a los derechos fundamentales que le reconoce el Derecho Internacional.
+b) Instaurar un sistema de cooperación entre los Estados contratantes que asegure el respeto a dichas garantías y en consecuencia, prevenga la sustracción, la venta o el tráfico de niños.
+c) Asegurar el reconocimiento en los Estados contratantes de las adopciones realizadas de acuerdo con el Convenio.
+Por lo anterior se debe asegurar que:
+v Las adopciones internacionales se harán en el marco de la convención o convenios multilaterales o bilaterales que suscriban los países.
+v Los Estados establecerán sus relaciones en materia de adopción por medio de Autoridades Centrales autorizadas por cada uno de los Estados partes.
+v En toda adopción internacional se debe respetar el principio de subsidiaridad. Esto implica que se deben agotar todas las posibilidades de adopción nacional, antes de considerar la posibilidad de ubicar una persona menor de edad en adopción internacional.
+3. Código de Familia de Costa Rica. En el artículo 100 de este Código se señala expresamente que la adopción es una institución jurídica, de integración y protección familiar, orden público e interés social, y constituye un proceso jurídico y psicosocial, mediante el cual el adoptado entra a formar parte de la familia de los adoptantes, para todos los efectos, en calidad de hijo o hija.
+4. Enfoque de derechos. En todos los procesos de adopción se deberá garantizar la plena efectividad de los derechos fundamentales de las personas menores de edad.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1°—El presente Reglamento regulará las funciones y procesos, que en materia de adopción nacional e internacional de personas menores de edad, corresponda a los diversos órganos institucionales.

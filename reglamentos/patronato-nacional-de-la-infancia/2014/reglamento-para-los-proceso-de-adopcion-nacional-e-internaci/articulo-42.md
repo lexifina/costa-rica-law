@@ -1,0 +1,1 @@
+Artículo 42.—Las personas interesadas en que les sea ubicado un niño (s), niña (s) o adolescente (s) con fines de adopción, deberán realizar la solicitud formal respectiva ante el Departamento de Adopciones.

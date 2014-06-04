@@ -1,0 +1,1 @@
+Artículo 29.—Las resoluciones administrativas que atañen a la competencia de los Consejos adquirirán validez con las firmas del Presidente(a) y del Secretario (a), o en su defecto por quién los sustituya conforme a lo establecido en este Reglamento.

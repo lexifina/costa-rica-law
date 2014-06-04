@@ -1,0 +1,1 @@
+Artículo 74.—De requerirse una ampliación psicosocial, el aporte o aclaración de un documento, el Consejo Nacional de Adopciones, prevendrá a la Autoridad Central u organismo o entidad colaboradora de adopción internacional, su presentación, otorgando un plazo de sesenta días naturales, so pena de proceder al archivo definitivo del expediente administrativo.

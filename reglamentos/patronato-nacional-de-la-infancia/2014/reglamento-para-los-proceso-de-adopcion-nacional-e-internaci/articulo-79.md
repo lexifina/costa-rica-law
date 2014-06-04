@@ -1,0 +1,1 @@
+Artículo 79.—En caso de que se cumpla con lo dispuesto en el artículo anterior, el Departamento de Adopciones procederá a realizar un análisis de los mismos, así como de los expedientes de las personas que han sido declaradas idóneas, a efecto de elaborar un informe técnico de compatibilidad para el Consejo Nacional de Adopciones, el cual no será vinculante.

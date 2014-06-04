@@ -1,0 +1,1 @@
+Artículo 48.—Los solicitantes de adopción deberán aportar la documentación que les fuera prevenida en un plazo no mayor de diez días hábiles. Si la documentación no es presentada en el plazo señalado, el Departamento de Adopciones, procederá a valorar las razones que medien a efectos de otorgar una prórroga razonable.

@@ -1,0 +1,1 @@
+Artículo 75.—Una vez recibidos los documentos referidos en el artículo anterior, el Departamento de Adopciones dentro de un plazo de quince días naturales, deberá recomendar al Consejo Nacional de Adopciones, la idoneidad o no de los solicitantes de adopción.
