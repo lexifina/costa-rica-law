@@ -1,1 +1,1 @@
-Transitorio Tres: Para efectos del siguiente período 2018- 2022, la Comisión de Acreditación que se encuentre vigente en el año 2017 procederá a convocar antes de finalizar su nombramiento, con cumplimiento en lo establecido en este reglamento y con la suficiente antelación a una asamblea para que la Asamblea en Pleno, proceda a la acreditación y nombramiento de la nueva Comisión de Integración.
+Transitorio Tres: (Derogado por el artículo 7° del decreto ejecutivo N° 38492 del 4 de junio del 2014)

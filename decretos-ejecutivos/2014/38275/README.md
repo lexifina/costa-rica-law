@@ -14,3 +14,4 @@ Reglamento al inciso c) el artículo 14 bis de la Ley Orgánica del Banco Popula
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-28 | la propia norma |
+| 2 | 2014-06-04 | Decreto Ejecutivo 38492 (2014-06-04) |
