@@ -1,0 +1,1 @@
+Artículo 14.—Las quejas por los cobros realizados deberán hacerse ante el Departamento que emitió el cobro, mediante memorial escrito debidamente fundamentado y adjuntando copia de la notificación correspondiente, dentro del plazo máximo de cinco días siguientes a esta.

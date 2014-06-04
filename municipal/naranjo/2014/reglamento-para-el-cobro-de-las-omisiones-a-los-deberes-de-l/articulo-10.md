@@ -1,0 +1,1 @@
+Artículo 10.—Las deudas generadas por los servicios enunciados en este reglamento constituyen hipoteca legal de conformidad con el artículo 70 del Código Municipal y la certificación que el contador municipal emita haciendo constar dicha deuda constituirá título ejecutivo y en el proceso respectivo solo podrán oponerse las excepciones de pago o prescripción.

@@ -1,0 +1,1 @@
+Artículo 9º—Por el atraso en el pago por los servicios enunciados en el presente reglamento se generaran intereses corrientes más moratorios de conformidad con los artículos 57 y 76 del Código de Normas y Procedimientos Tributarios.
