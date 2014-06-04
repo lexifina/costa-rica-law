@@ -1,5 +1,6 @@
 Artículo 13
-1. El Comité Ejecutivo se compondrá de los representantes de nueve Estados Miembros. Este número podrá ser aumentado mediante votación por mayoría de dos tercios del Consejo, no pudiendo exceder de un tercio del número total de Miembros de la Organización.
-2. Estos Estados Miembros serán elegidos por el Consejo por dos años, pudiendo ser reelegidos.
-3. Cada miembro del Comité Ejecutivo designará un representante, así como los suplentes y asesores que juzgue necesario.
-4. Cada miembro del Comité Ejecutivo tendrá derecho a un voto.
+1. El Director General y el Director General Adjunto serán elegidos por el Consejo, mediante votación por mayoría de dos tercios y podrán ser reelegidos para un mandato adicional. La duración ordinaria de su mandato será de cinco años, aunque excepcionalmente podrá ser menor si así lo decidiera el Consejo mediante votación por mayoría de dos tercios. Cumplirán sus funciones de conformidad con el contenido de contratos aprobados por el Consejo y firmados, en nombre de la Organización, por el Presidente del Consejo.
+(Así reformado el inciso anterior por el artículo único de la ley N° 9250 del 4 de junio del 2014)
+2. El Director General será responsable ante el Consejo . El Director General administrará y dirigirá los servicios administrativos y ejecutivos de la Organización de conformidad con la presente Constitución, con la política y decisiones del Consejo y con los reglamentos por ellos adoptados. El Director General formulará proposiciones relativas a las medidas que deban ser adoptadas por el Consejo.
+(Así reformado el inciso anterior por el artículo único de la ley N° 9250 del 4 de junio del 2014)
+(Así corrida su numeración por el artículo único de la ley N° 9250 del 4 de junio del 2014, que lo traspasó del antiguo artículo 18 al 13, toda vez que se derogaron los artículo 12 al 16 originales)

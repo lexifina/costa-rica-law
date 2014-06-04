@@ -1,3 +1,8 @@
-Artículo 18
-1. El Director General y el Director General Adjunto serán elegidos por el Consejo, mediante votación por mayoría de dos tercios, y podrán ser reelegidos. La duración ordinaria de su mandato será de cinco años, aunque excepcionalmente podrá ser menor, si así lo decidiera el Consejo mediante votación por mayoría de dos tercios. Cumplirán sus funciones de conformidad con el contenido de contratos aprobados por el Consejo y firmados, en nombre de la Organización, por el Presidente del Consejo.
-2. El Director General será responsable ante el Consejo y ante el Comité Ejecutivo. El Director General administrará y dirigirá los servicios administrativos y ejecutivos de la Organización de conformidad con la presente Constitución, con la política y decisiones del Consejo y del Comité Ejecutivo y con los reglamentos por ellos adoptados. El Director General formulará proposiciones relativas a las medidas que deban ser adoptadas por el Consejo.
+CAPITULO VI
+(Así corrida su numeración por el artículo único de la ley N° 9250 del 4 de junio del 2014, que lo traspasó del antiguocapítulo VII al VI, toda vez que se derogó el c apítulo V original)
+SEDE CENTRAL
+Artículo 23
+1. La Organización tendrá su Sede central en Ginebra. El Consejo podrá decidir el traslado de la Sede a otro sitio, mediante votación por mayoría de dos tercios.
+2. Las reuniones del Consejo y tendrán lugar en Ginebra, a menos que dos tercios de los miembros del Consejo o, respectivamente, hayan decidido reunirse en otro lugar.
+(Así reformado el párrafo anterior por el artículo único de la ley N° 9250 del 4 de junio del 2014)
+(Así corrida su numeración por el artículo único de la ley N° 9250 del 4 de junio del 2014, que lo traspasó del antiguo artículo 23 al 18, toda vez que se derogaron los artículo 12 al 16 originales)

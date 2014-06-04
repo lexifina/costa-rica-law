@@ -1,2 +1,2 @@
 Artículo 33
-El Consejo podrá, mediante votación, por mayoría de tres cuartos de sus miembros, decidir la disolución de la Organización.
+(Nota de Sinalevi: El texto del presente artículo debe consultarse en el artículo 28 toda vez que se corrieron la numeración de varios artículo al derogarse mediante ley N° 9250 del 4 de junio del 2014, los artículo 12 al 16 originales)

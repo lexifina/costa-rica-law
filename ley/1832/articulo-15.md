@@ -1,2 +1,5 @@
 Artículo 15
-El Comité Ejecutivo podrá crear, sujeto a revisión eventual del Consejo, cuantos subcomités sean necesarios para el cumplimiento de sus funciones.
+1. En el cumplimiento de sus funciones, el Director General, el Director General Adjunto y el personal no deberán solicitar ni aceptar instrucciones de ningún Estado ni de ninguna autoridad ajena a la Organización, y deberán abstenerse de todo acto incompatible con su calidad de funcionarios internacionales.
+2. Cada Estado Miembro se comprometerá a respetar el carácter exclusivamente internacional de las funciones del Director General, del Director General Adjunto y del personal, y a no tratar de influirles en el cumplimiento de sus funciones.
+3. Para la contratación y empleo del personal, deberán ser consideradas como condiciones primordiales su eficiencia, competencia e integridad; excepto en circunstancias excepcionales, el personal deberá ser contratado entre los nacionales de los Estados Miembros de la Organización, teniéndose en cuenta el principio de la distribución geográfica equitativa.
+(Así corrida su numeración por el artículo único de la ley N° 9250 del 4 de junio del 2014, que lo traspasó del antiguo artículo 20 al 15, toda vez que se derogaron los artículo 12 al 16 originales)
