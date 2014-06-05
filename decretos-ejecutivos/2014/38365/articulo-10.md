@@ -1,0 +1,1 @@
+Artículo 10.—Los departamentos ejecutores deberán contemplar dentro del Plan-Presupuesto Institucional, los objetivos, metas, proyectos, actividades estratégicas y presupuesto que contribuyan al mejoramiento del sistema de control interno, como resultado del proceso de autoevaluación anual, según lo dispuesto en el artículo 17 b. de la Ley General de Control Interno.

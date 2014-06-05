@@ -1,0 +1,1 @@
+Artículo 16.—El control del Plan-Presupuesto Institucional debe ser continuo, de tal forma que permita a los responsables de los Departamentos Ejecutores y coadyuvantes, detectar oportunamente desviaciones y adoptar las medidas correctivas pertinentes.

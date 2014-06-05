@@ -1,0 +1,4 @@
+Artículo 37.—Las unidades ejecutoras tendrán las siguientes responsabilidades.
+a. Presentar la solicitud de variaciones presupuestarias en los tiempos establecidos, mediante el formulario que al efecto establezca la Unidad de Presupuesto, justificando el motivo de la variación presupuestaria, ya sea incremento o disminución y detallando el impacto que tendrán las variaciones presupuestarias en el PAO- Presupuesto asignado a dichas unidades.
+b. Brindar a la Unidad de Presupuesto la justificación, aclaración, ampliación o modificación de la información contenida en el Plan - Presupuesto ordinario anual, y sus variaciones presupuestarias.
+c. Revisar al inicio de cada trimestre el contenido presupuestario disponible de la unidad ejecutora correspondiente, con el propósito de determinar necesidades presupuestarias y analizar posibles mejoras al proceso de planificación y asignación de recursos.

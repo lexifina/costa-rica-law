@@ -1,0 +1,13 @@
+Artículo 36.—La Unidad de Presupuesto tendrá las siguientes atribuciones y responsabilidades.
+a. Elaborar un cronograma con visto bueno de la Administración Financiera con las fechas en que se ejecutará la planificación presupuestaria anual.
+b. Informar a las Unidades Ejecutoras sobre el cronograma de planificación presupuestaria anual.
+c. Dar constancia mediante acto razonado, que tanto el Plan - Presupuesto ordinario así como las variaciones presupuestarias, cumplen con el bloque de legalidad y las disposiciones técnicas aplicables como requisito indispensable para su trámite y aprobación. Producto de la revisión de las solicitudes planteadas por las unidades ejecutoras, del Plan - Presupuesto ordinario, así como de las variaciones presupuestarias, se podrá solicitar a éstas, aclaración, ampliación o modificación de la información que contengan aquellas solicitudes que se consideren omisas, incompletas o con alguna otra deficiencia.
+El documento final se hará del conocimiento de las instancias de aprobación definidas en el Capítulo IV de este Reglamento.
+d. Brindar asesoría y apoyo técnico a los responsables de las unidades ejecutoras, en materia presupuestaria.
+e. Elaborar un informe mensual sobre las variaciones presupuestarias tramitadas por las unidades ejecutoras al presupuesto vigente, el cual deberá ser presentado en los primeros diez días hábiles de cada mes a la Administración Financiera.
+f. Aplicar en el Sistema de Información sobre Presupuestos Públicos (SIPP) de la Contraloría General de la República, las variaciones presupuestarias.
+g. Crear, actualizar y custodiar un expediente individual para cada ajuste interno, modificación presupuestaria y presupuesto extraordinario, con sus respectivos justificantes, los documentos de aprobación y cuando corresponda el Acuerdo de Junta Directiva. Igualmente, adjuntará los documentos de modificación presupuestaria, debidamente aprobados, a los informes de ejecución que deben enviarse a la Contraloría General de la República periódicamente y la Secretaría Técnica de la Autoridad Presupuestaria.
+h. Asignar numeración consecutiva a las variaciones presupuestarias de conformidad con lo establecido en las Normas Técnicas de Presupuesto Público de la Contraloría General de la República.
+i. Publicar el presupuesto de la institución por los medios electrónicos y físicos disponibles de conformidad con el inciso g), Artículo 5 de la Ley 8131 Administración Financiera de la República.
+j. Elaborar y mantener actualizado el Manual de Cuentas del Presupuesto y los instructivos necesarios.
+k. Recopilar, analizar y divulgar las fuentes del ordenamiento jurídico-administrativo que tenga relación con la materia Plan- Presupuesto.

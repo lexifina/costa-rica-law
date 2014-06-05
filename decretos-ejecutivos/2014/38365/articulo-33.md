@@ -1,0 +1,1 @@
+Artículo 33.—En la etapa de formulación de presupuesto, la Unidad de Presupuesto analizará la estructura programática del presupuesto institucional para verificar si es necesario para el período que se formule, realizar cambios a dicha estructura, de ser necesario se planteará a los órganos internos y a la Contraloría General de la República lo correspondiente.

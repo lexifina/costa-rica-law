@@ -1,0 +1,1 @@
+Artículo 8º—Son Unidades Ejecutoras del Plan-Presupuesto Institucional, las dependencias a cargo de un programa o subprograma. Son Unidades Coadyuvantes las que dependen de una Unidad Ejecutora y están a cargo de una actividad.

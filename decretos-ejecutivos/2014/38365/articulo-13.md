@@ -1,0 +1,2 @@
+Artículo 13.—Para la realización de sus análisis, la Administración Financiera, por medio de la Unidad de Presupuesto, solicitará a los departamentos ejecutores los estudios que sustenten la procedencia de los fundamentos económicos, legales y técnicos de lo planteado así como, su correspondencia con los planes de corto, mediano y largo plazo de la Institución.
+De sus conclusiones rendirá informe a la Dirección Ejecutiva, para lo de su cargo.

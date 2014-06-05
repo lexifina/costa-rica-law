@@ -1,0 +1,1 @@
+Artículo 5º—La Junta Directiva y el Director Ejecutivo representan y son el enlace institucional en la política del Plan- Presupuesto Institucional con los órganos y entes públicos externos coordinadores y fiscalizadores en esta materia. Para efectos de trámite y procedimientos, la Administración Financiera actuará en calidad de coordinador ante aquellos.

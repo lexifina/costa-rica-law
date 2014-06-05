@@ -1,0 +1,5 @@
+Capítulo V
+Compromisos presupuestarios
+Artículo 29.—En concordancia con lo que establece el Artículo 46 de la Ley 8131 de la Administración Financiera de la República, y Presupuestos Públicos, los saldos disponibles de las asignaciones presupuestarias caducarán al 31 de diciembre de cada año.
+Los gastos comprometidos pero no devengados a esa fecha, se afectarán automáticamente en el ejercicio económico siguiente y se imputarán a los créditos disponibles para ese ejercicio.
+En concordancia con el artículo 58 del Reglamento de la Ley de Administración Financiera de la República y Presupuestos Públicos, los compromisos no devengados a que se refiere el artículo 46 de la Ley de Administración Financiera de la República y Presupuestos Públicos, son aquellas obligaciones que tienen su origen en una relación jurídica con un tercero, o se respaldan en documentos de ejecución debidamente aprobados, autorizados, refrendados y registrados en los sistemas informáticos de apoyo a la gestión financiera, antes del 31 de diciembre de cada año.

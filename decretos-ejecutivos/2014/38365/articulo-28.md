@@ -1,0 +1,2 @@
+Artículo 28.—El programa ejecutor tendrá la obligación mensualmente de verificar y conciliar gastos, entre los registros presupuestarios y los registros contables.
+La Unidad de Presupuesto junto con el Área de Contabilidad, mensualmente realizarán una verificación o conciliación (ingresos y gastos) entre los registros presupuestarios y los registros contables, emitiéndose el informe de pertinencia a la Jefatura de Administración Financiera, a más tardar en la segunda semana de cada mes.

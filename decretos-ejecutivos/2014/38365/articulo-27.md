@@ -1,0 +1,1 @@
+Artículo 27.—Con base en la asignación presupuestaria aprobada, tanto de ingresos como de egresos, en el presupuesto ordinario y sus modificaciones, la Unidad de Presupuesto será la responsable de registrar en el Sistema Financiero Contable las operaciones de la ejecución presupuestaria en cuanto a traslados modificaciones y presupuestos extraordinarios.
