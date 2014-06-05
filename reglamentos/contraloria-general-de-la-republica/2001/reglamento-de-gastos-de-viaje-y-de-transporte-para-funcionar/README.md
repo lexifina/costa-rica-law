@@ -27,3 +27,4 @@ Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos
 | 12 | 2010-07-27 | Resolución 131 (2010-07-27) |
 | 13 | 2011-07-07 | Resolución 111 (2011-07-07) |
 | 14 | 2012-01-31 | Resolución 10 (2012-01-31) |
+| 15 | 2014-06-05 | Reglamento 44 (2014-06-05) |

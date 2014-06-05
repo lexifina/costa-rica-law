@@ -1,308 +1,222 @@
-Artículo 34.—Tarifas en el exterior del país. La suma diaria por concepto de viáticos en el exterior para sufragar gastos de hospedaje, alimentación y otros gastos menores por lavado y planchado de ropa y traslados dentro de la ciudad se regirá por las tarifas de la siguiente tabla:
-Miembros de
-los Supremos Funcionarios
-Poderes de la pertenecientes al
-República y nivel determinativo y
-Vicepresidente de ejecución y Otros
-Destino de la República fiscalización superior funcionarios
-I II III
-EUA$ EUA$ EUA$
-Alemania 475 396 337
-Angola 341 284 241
-Anguila
-Del 15 de abril
-al 14 de diciembre 404 337 286
-del 15 de diciembre 462 385 327
-al 14 de abril
-Antigua y Barbuda 284 237 201
-Arabia Saudita 499 416 354
-Argelia 540 450 383
-Argentina 444 370 315
-Miembros de
-los Supremos Funcionarios
-Poderes de la pertenecientes al
-República y nivel determinativo y
-Vicepresidente de ejecución y Otros
-Destino de la República fiscalización superior funcionarios
-I II III
-EUA$ EUA$ EUA$
-Aruba
-Del 15 de abril
-al 15 de diciembre 410 342 291
-del 16 de diciembre 566 472 401
-al 14 de abril
-Australia 444 370 315
-Austria 387 322 274
-Bahamas
-Del 21 de abril
-al 19 de diciembre 427 356 303
-del 20 de diciembre 488 407 346
-al 20 de abril
-Baréin 384 320 272
-Barbados
-Del 16 de abril
-al 15 de diciembre 384 320 272
-del 16 de diciembre 432 360 306
-al 15 de abril
-Benín 318 265 225
-Bélgica 526 438 372
-Belice 294 245 208
-Bermudas
-Del 15 de marzo
-al 30 de noviembre 612 510 434
-del 01 de diciembre al 551 459 390
-14 de marzo
-Bolivia 196 163 139
-Bonaire
-Del 15 de abril
-al 15 de diciembre 410 342 291
-del 16 de diciembre 566 472 401
-al 14 de abril
-Bosnia y Herzegovina 234 195 166
-Botsuana 346 288 245
-Brasil 383 320 272
-Bulgaria 296 247 210
-Burkina Faso 275 229 195
-Burundi 278 232 197
-Bután 174 145 123
-Cabo Verde 333 277 236
-Camboya 218 182 155
-Camerún 287 239 203
-Canadá 417 348 295
-Chad 425 354 301
-Chile 284 237 201
-Chipre 363 303 257
-Colombia 325 271 230
-Comoras 269 224 190
-Costa de Marfil 329 274 233
-Croacia 268 223 190
-Cuba 227 189 161
-Curazao
-Del 15 de abril
-al 15 de diciembre 416 347 295
-del 16 de diciembre 500 417 354
-al 14 de abril
-Dinamarca 444 370 315
-Yibuti 187 156 133
-Dominica 311 259 220
-Ecuador 238 198 168
-Egipto 352 293 249
-Miembros de
-los Supremos Funcionarios
-Poderes de la pertenecientes al
-República y nivel determinativo y
-Vicepresidente de ejecución y Otros
-Destino de la República fiscalización superior funcionarios
-I II III
-EUA$ EUA$ EUA$
-El Salvador 254 212 180
-Emiratos Árabes Unidos 540 450 383
-Eritrea 176 147 125
-Eslovaquia (Rep. Eslovaca) 365 304 258
-Eslovenia 352 293 249
-España 383 319 271
-Estados Unidos de América 436 363 309
-Estonia 308 257 218
-Etiopía 192 160 136
-Federación Rusa 648 540 459
-Filipinas 281 234 199
-Finlandia 427 356 303
-Fiyi 270 225 191
-Francia 485 404 344
-Gabón 348 290 247
-Gambia 241 201 171
-Ghana 356 297 252
-Granada
-Del 16 de abril
-al 14 de diciembre 293 244 207
-del 15 de diciembre 360 300 255
-al 15 de abril
-Grecia 419 349 297
-Guadalupe 251 209 178
-Guatemala 234 195 166
-Guinea 337 281 239
-Guinea Ecuatorial 413 344 293
-Guinea Bissau 327 272 231
-Guyana 246 205 174
-Haití 293 244 207
-Honduras 226 188 160
-Hong Kong 471 392 333
-Hungría 379 316 269
-India
-De abril a agosto 206 171 146
-de setiembre a marzo 244 203 173
-Indonesia 197 164 139
-Irán 286 238 202
-Irlanda 384 320 272
-Islandia
-De mayo a setiembre 387 323 274
-De octubre a abril 247 206 175
-Islas Caimán
-Del 1º de mayo
-al 30 de noviembre 402 335 285
-del 1º de diciembre 466 388 330
-al 30 de abril
-Islas Vírgenes Británicas
-Del 16 de abril
-al 14 de diciembre 390 325 276
-del 15 de diciembre 438 365 310
-al 15 de abril
-Israel 400 333 283
-Italia 521 435 369
-Jamaica 305 254 216
-Japón 482 402 342
-Jordania 296 247 210
-Kenia 360 300 255
-Laos 172 143 122
-Lesoto 168 140 119
-Letonia 290 242 206
-Líbano 289 241 205
-Liberia 292 243 207
-Libia 252 210 179
-Miembros de
-los Supremos Funcionarios
-Poderes de la pertenecientes al
-República y nivel determinativo y
-Vicepresidente de ejecución y Otros
-Destino de la República fiscalización superior funcionarios
-I II III
-EUA$ EUA$ EUA$
-Lituania 288 240 204
-Luxemburgo 468 390 332
-Madagascar 260 217 184
-Malasia 287 239 203
-Malaui 238 198 168
-Malí 275 229 195
-Malta 383 319 271
-Marruecos 331 276 234
-Martinica 467 389 331
-Mauricio 343 286 243
-Mauritania 253 211 179
-México 371 309 263
-Mónaco 472 394 334
-Montenegro 278 231 197
-Mozambique 294 245 208
-Myanmar 124 103 88
-Namibia 205 171 145
-Nicaragua 220 183 156
-Níger 209 174 148
-Nigeria 346 288 245
-Noruega 465 387 329
-Nueva Zelanda 324 270 230
-Países Bajos 455 379 322
-Pakistán 140 116 99
-Panamá 288 240 204
-Paraguay 241 201 171
-Perú 281 234 199
-Polonia 344 287 244
-Portugal 408 340 289
-Puerto Rico
-Del 1º de mayo
-al 19 de diciembre 438 365 310
-Del 20 de diciembre
-al 30 de abril 514 428 364
-Qatar 478 398 338
-Reino de Tonga400 333 283
-Reino Unido 522 435 370
-República
-Centroafricana 196 163 139
-República
-Checa 276 230 196
-República de
-Corea 470 391 333
-República de
-Georgia 217 181 154
-República de
-Maldivas 311 260 221
-República de
-Ucrania 330 275 234
-República de
-Yemen 180 150 128
-República del
-Congo 377 314 267
-República Democrática
-del Congo 331 276 235
-República
-Dominicana 271 226 192
-República Popular de
-Bangladés 172 143 122
-República
-Popular de China290 242 206
-Ruanda 241 201 171
-Rumania 266 222 189
-Samoa 288 240 204
-San Cristóbal y Nieves
-Del 15 de abril
-al 14 de diciembre 280 233 198
-Del 15 de diciembre
-al 14 de abril 307 256 218
-San Juan (St. John-Islas
-Vírgenes Americanas)
-Del 01 de mayo
-al 14 de diciembre 389 324 275
-Del 15 de diciembre
-al 30 de abril 436 363 309
-Miembros de
-los Supremos Funcionarios
-Poderes de la pertenecientes al
-República y nivel determinativo y
-Vicepresidente de ejecución y Otros
-Destino de la República fiscalización superior funcionarios
-I II III
-EUA$ EUA$ EUA$
-San Martín
-(Saint Martin- St. Maarten)
-Del 15 de abril
-al 15 de diciembre 347 289 246
-Del 16 de diciembre
-al 14 de abril 384 320 272
-San Vicente y Las Granadinas
-Del 15 de abril
-al 14 de diciembre 280 233 198
-Del 15 de diciembre
-al 14 de abril 324 270 230
-Santa Cruz (St. Croix-Islas
-Vírgenes Americanas)
-Del 01 de mayo
-al 14 de diciembre 389 324 275
-Del 15 de diciembre
-al 30 de abril 436 363 309
-Santa Lucía
-Del 15 de abril
-al 14 de diciembre 337 281 239
-Del 15 de diciembre
-al 14 de abril 396 330 281
-Santo Tomás (St. Tomas-Islas
-Vírgenes Americanas)
-Del 01 de mayo
-al 14 de diciembre 389 324 275
-Del 15 de diciembre
-al 30 de abril 436 363 309
-Santo Tomé y Príncipe 162 135 115
-Senegal 356 296 252
-Serbia 318 265 225
-Seychelles 389 324 275
-Sierra Leona 245 204 173
-Singapur 583 486 413
-Somalia 97 81 69
-Sudáfrica 345 287 244
-Sudán 246 205 174
-Suecia 651 543 461
-Suiza 549 457 389
-Surinam 235 196 167
-Suazilandia 284 237 201
-Tailandia 302 252 214
-Taiwán 398 332 282
-Tanzania 232 193 164
-Trinidad y Tobago 391 326 277
-Togo 320 267 227
-Túnez 241 201 171
-Turquía 240 200 170
-Uganda 238 198 168
-Uruguay 294 245 208
-Venezuela 424 353 300
-Vietnam 197 164 139
-Zambia 298 248 211
-Zimbabue 210 175 149
-Las tarifas correspondientes a países no considerados en la tabla anterior deben ser solicitadas, para cada caso, en forma escrita, a la Contraloría General de la República, con un mínimo de cinco días hábiles de antelación a la fecha de inicio del viaje, indicándose al menos, el nombre y cargo de cada uno de los funcionarios que viajen en esa misión oficial, las fechas previstas de salida y de regreso a Costa Rica y las ciudades a visitar. Además se deberá enviar copia de la invitación al evento y documentos anexos a ésta remitidos por los organizadores.
-(Así reformado por resolución R-DC-10-2012 del 31 de enero del 2012)
+Artículo 34º.- Tarifas en el exterior del país. La suma diaria por concepto de viáticos en el exterior para sufragar gastos de hospedaje, alimentación y otros gastos menores por lavado y planchado de ropa y traslados dentro de la ciudad, se regirá por las tarifas de la siguiente tabla:
+Destino | Miembros de los Supremos Poderes de la República y Vicepresidente de la República | Funcionarios pertenecientes al nivel determinativo y de ejecución y fiscalización superior | Otros funcionarios
+| I | II | III
+| EUA $ | EUA $ | EUA $
+Alemania | 430 | 374 | 318
+Angola | 258 | 224 | 190
+Anguila | | |
+Del 15 de Abril al 14 de Diciembre | 388 | 337 | 286
+Del 15 de Diciembre al 14 de Abril | 443 | 385 | 327
+Antigua y Barbuda | 273 | 237 | 201
+Arabia Saudita | 478 | 416 | 354
+Argelia | 428 | 372 | 316
+Argentina | 426 | 370 | 315
+Aruba | | |
+Del 15 de Abril al 15 de Diciembre | 366 | 318 | 270
+Del 16 de diciembre al 14 de Abril | 491 | 427 | 363
+Australia | 426 | 370 | 315
+Austria | 346 | 301 | 256
+Bahamas | | |
+Del 21 de abril al 19 de diciembre | 409 | 356 | 303
+Del 20 de diciembre al 20 de abril | 452 | 393 | 334
+Baréin | 368 | 320 | 272
+Barbados | | |
+Del 16 de abril al 15 de diciembre | 368 | 320 | 272
+Del 16 de diciembre al 15 de abril | 414 | 360 | 306
+Benín | 182 | 158 | 134
+Bélgica | 465 | 405 | 344
+Belice | 282 | 245 | 208
+Bermudas | | |
+Del 15 de marzo al 30 de noviembre | 587 | 510 | 434
+Del 01 de diciembre al 14 de marzo | 528 | 459 | 390
+Bolivia | 187 | 163 | 139
+Bonaire | | |
+Del 15 de abril al 15 de diciembre | 366 | 318 | 270
+Del 16 de diciembre al 14 de abril | 491 | 427 | 363
+Bosnia y Herzegovina | 194 | 169 | 144
+Botsuana | 331 | 288 | 245
+Brasil | 320 | 279 | 237
+Brunei Darussalam | 265 | 230 | 196
+Bulgaria | 284 | 247 | 210
+Burkina Faso | 232 | 202 | 172
+Burundi | 267 | 232 | 197
+Bután | 150 | 130 | 111
+Cabo Verde | 296 | 257 | 218
+Camboya | 133 | 116 | 99
+Camerún | 260 | 226 | 192
+Canadá | 400 | 348 | 296
+Chad | 273 | 237 | 201
+Chile | 273 | 237 | 201
+Chipre | 241 | 209 | 178
+Colombia | 311 | 270 | 230
+Comoras | 258 | 224 | 190
+Costa de Marfil | 269 | 234 | 199
+Croacia | 256 | 223 | 190
+Cuba | 217 | 189 | 161
+Curazao | | |
+Del 15 de abril al 15 de diciembre | 354 | 308 | 262
+Del 16 de diciembre al 14 de abril | 404 | 351 | 298
+Dinamarca | 426 | 370 | 315
+Yibuti | 179 | 156 | 133
+Dominica | 281 | 244 | 207
+Ecuador | 228 | 198 | 168
+Egipto | 337 | 293 | 249
+El Salvador | 244 | 212 | 180
+Emiratos Árabes Unidos | 442 | 384 | 326
+Eritrea | 169 | 147 | 125
+Eslovaquia (República Eslovaca) | 274 | 238 | 203
+Eslovenia | 302 | 262 | 223
+España | 351 | 305 | 259
+Estados Unidos de América | 417 | 363 | 309
+Estonia | 296 | 257 | 218
+Etiopía | 184 | 160 | 136
+Federación Rusa | 546 | 475 | 404
+Filipinas | 269 | 234 | 199
+Finlandia | 403 | 350 | 298
+Fiyi | 259 | 225 | 191
+Francia | 445 | 387 | 329
+Gabón | 334 | 290 | 247
+Gambia | 231 | 201 | 171
+Ghana | 342 | 297 | 252
+Granada | | |
+Del 16 de abril al 14 de diciembre | 281 | 244 | 207
+Del 15 de diciembre al 15 de abril | 345 | 300 | 255
+Grecia | 352 | 306 | 260
+Guadalupe | 232 | 202 | 172
+Guatemala | 223 | 194 | 165
+Guinea | 323 | 281 | 239
+Guinea Ecuatorial | 367 | 319 | 271
+Guinea Bissau | 284 | 247 | 210
+Guyana | 236 | 205 | 174
+Haití | 206 | 179 | 152
+Honduras | 216 | 188 | 160
+Hong Kong | 451 | 392 | 333
+Hungría | 347 | 302 | 257
+India | | |
+De abril a agosto | 197 | 171 | 145
+De setiembre a marzo | 233 | 203 | 173
+Indonesia | 189 | 164 | 139
+Irán | 173 | 150 | 128
+Irlanda | 358 | 311 | 265
+Islandia | | |
+De mayo a setiembre | 371 | 323 | 275
+De octubre a abril | 237 | 206 | 175
+Islas Caimán | | |
+Del 1 de mayo al 30 de noviembre | 353 | 307 | 261
+Del 1 de diciembre al 30 de abril | 446 | 388 | 330
+Islas Vírgenes Británicas | | |
+Del 16 de abril al 14 de diciembre | 374 | 325 | 276
+Del 15 de diciembre al 15 de abril | 420 | 365 | 310
+Israel | 383 | 333 | 283
+Italia | 450 | 391 | 332
+Jamaica | 292 | 254 | 216
+Japón | 417 | 362 | 308
+Jordania | 284 | 247 | 210
+Kenia | 345 | 300 | 255
+Kwuait | 415 | 361 | 307
+Laos | 164 | 143 | 122
+Lesoto | 125 | 109 | 93
+Letonia | 278 | 242 | 206
+Líbano | 277 | 241 | 205
+Liberia | 270 | 235 | 200
+Libia | 242 | 210 | 179
+Lituania | 258 | 224 | 191
+Luxemburgo | 420 | 365 | 310
+Madagascar | 229 | 199 | 169
+Malasia | 275 | 239 | 203
+Malaui | 228 | 198 | 168
+Malí | 221 | 192 | 163
+Malta | 320 | 278 | 236
+Marruecos | 274 | 238 | 202
+Martinica | 447 | 389 | 331
+Mauricio | 306 | 266 | 226
+Mauritania | 192 | 167 | 142
+México | 355 | 309 | 263
+Mónaco | 409 | 356 | 303
+Montenegro | 219 | 191 | 162
+Mozambique | 282 | 245 | 208
+Myanmar | 118 | 103 | 88
+Namibia | 173 | 151 | 128
+Nicaragua | 194 | 169 | 144
+Níger | 191 | 167 | 142
+Nigeria | 331 | 288 | 245
+Noruega | 412 | 359 | 305
+Nueva Zelanda | 311 | 270 | 230
+Sultanía de Omán | 409 | 356 | 303
+Países Bajos | 416 | 362 | 308
+Pakistán | 117 | 102 | 87
+Panamá | 276 | 240 | 204
+Paraguay | 231 | 201 | 171
+Perú | 261 | 227 | 193
+Polonia | 330 | 287 | 244
+Portugal | 387 | 336 | 286
+Puerto Rico | | |
+Del 1 de mayo al 19 de diciembre | 350 | 304 | 258
+Del 20 de diciembre al 30 de abril | 484 | 421 | 358
+Qatar | 458 | 398 | 338
+Reino de Tonga | 383 | 333 | 283
+Reino Unido | 500 | 435 | 370
+República Centroafricana | 187 | 163 | 139
+República Checa | 265 | 230 | 196
+República de Azerbaiyán | 253 | 220 | 187
+República de Corea | 450 | 391 | 332
+República de Georgia | 204 | 177 | 150
+República de Maldivas | 296 | 257 | 218
+República de Ucrania | 316 | 275 | 234
+República de Yemen | 161 | 140 | 119
+República del Congo | 342 | 297 | 253
+República Democrática del Congo | 317 | 276 | 235
+República Dominicana | 260 | 226 | 192
+República Popular de Bangladés | 135 | 117 | 99
+República Popular de China | 278 | 242 | 206
+Ruanda | 231 | 201 | 171
+Rumania | 232 | 202 | 172
+Samoa | | |
+San Cristóbal y Nieves | | |
+Del 15 de abril al 14 de diciembre | 268 | 233 | 198
+Del 15 de diciembre al 14 de abril | 294 | 256 | 218
+San Juan (St. John-Islas Vírgenes Americanas) | | |
+Del 01 de mayo al 14 de diciembre | 73 | 324 | 275
+Del 15 de diciembre al 30 de abril | 417 | 363 | 309
+San Martín (Saint Martin- St. Maarten) | | |
+Del 15 de abril al 15 de diciembre | 332 | 289 | 246
+Del 16 de diciembre al 14 de abril | 368 | 320 | 272
+San Vicente y Las Granadinas | | |
+Del 15 de abril al 14 de diciembre | 268 | 233 | 198
+Del 15 de diciembre al 14 de abril | 311 | 270 | 230
+Santa Cruz (ST. Croix-Islas Vírgenes Americanas) | | |
+Del 01 de mayo al 14 de diciembre | 373 | 324 | 275
+Del 15 de diciembre al 30 de abril | 417 | 363 | 309
+Santa Lucía | | |
+Del 15 de abril al 14 de diciembre | 323 | 281 | 239
+Del 15 de diciembre al 14 de abril | 380 | 330 | 281
+Santo Tomás (St. Tomás-Islas Vírgenes Americanas) | | |
+Del 01 de mayo al 14 de diciembre | 373 | 324 | 275
+Del 15 de diciembre al 30 de abril | 417 | 363 | 309
+Santo Tomé y Príncipe | 155 | 135 | 115
+Senegal | 340 | 296 | 252
+Serbia | 237 | 206 | 175
+Seychelles | 373 | 324 | 275
+Sierra Leona | 235 | 204 | 173
+Singapur | 553 | 481 | 409
+Somalia | 93 | 81 | 69
+Sudáfrica | 288 | 251 | 213
+Sudán | 236 | 205 | 174
+Suecia | 610 | 530 | 451
+Suiza | 466 | 405 | 344
+Surinam | 225 | 196 | 167
+Suazilandia | 250 | 217 | 185
+Tailandia | 268 | 233 | 198
+Taiwán | 334 | 290 | 247
+Tanzania | 222 | 193 | 164
+Trinidad y Tobago | 355 | 309 | 263
+Togo | 229 | 200 | 170
+Túnez | 231 | 201 | 171
+Turquía | 213 | 185 | 157
+Uganda | 228 | 198 | 168
+Uruguay | 282 | 245 | 208
+Venezuela | 406 | 353 | 300
+Vietnam | 189 | 164 | 139
+Zambia | 225 | 196 | 167
+Zimbabue | 201 | 175 | 149
+(Así reformado por resolución N° R-DC-044-2014 del 5 de junio del 2014)
