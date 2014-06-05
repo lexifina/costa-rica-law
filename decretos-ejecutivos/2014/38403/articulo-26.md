@@ -1,0 +1,1 @@
+Artículo 26.—Respeto de rutas: Una vez autorizada la gira el (la) arrendante realizará la misma, de acuerdo con las rutas indicadas en el formulario de Autorización de Pago de kilometraje a personas funcionarias del MTSS.

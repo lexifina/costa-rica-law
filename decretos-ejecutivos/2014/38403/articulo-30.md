@@ -1,0 +1,1 @@
+Artículo 30.—Gira no aprobada: La gira efectuada sin el cumplimiento de los requisitos establecidos, será por cuenta y riesgo del (la) arrendante; y éste (a), en ningún caso podrá reclamar el reconocimiento de pago por kilometraje recorrido.

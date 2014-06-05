@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la persona funcionaria arrendante
+Artículo 6º—Responsabilidades: El (La) arrendante conducirá el vehículo por su cuenta y riesgo y asumirá la responsabilidad civil y penal que se pudiere originar en accidentes en que intervenga; consecuentemente, el MTSS no asumirá ni aceptará responsabilidad alguna por los daños causados al vehículo, a terceras personas o sus bienes en caso de accidente; únicamente asumirá la responsabilidad de indemnizar a sus funcionarios por medio de la póliza de riesgos y accidentes de trabajo del INS, aplicable cuando utilicen su vehículo en ejecución del contrato para cumplir sus funciones. La disposición anterior deberá constar expresamente en los contratos de arrendamiento de vehículo.

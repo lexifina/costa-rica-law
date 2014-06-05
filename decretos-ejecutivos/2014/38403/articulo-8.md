@@ -1,0 +1,1 @@
+Artículo 8°—Prioridad: El arrendante deberá dar preferencia a las necesidades del MTSS y cuando los requerimientos de éste indiquen que en una misma gira debe transportarse otros servidores, el arrendante deberá transportarlos bajo los términos del contrato.

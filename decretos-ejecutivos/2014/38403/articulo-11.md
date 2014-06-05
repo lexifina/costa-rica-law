@@ -1,0 +1,1 @@
+Artículo 11.—Vigencia: La vigencia del contrato es de un año, pudiendo ser renovado por periodos iguales, siempre que se cumplan las disposiciones establecidas en el presente Reglamento, para lo cual, en cada caso, se procederá a actualizar los datos y documentación requerida.

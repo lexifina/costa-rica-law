@@ -1,0 +1,1 @@
+Artículo 28.—Dirección Financiera: Una vez autorizado la Liquidación de Pago de Kilometraje por parte de la Jefatura, Director (a) y Encargado (a) del Programa, el (la) arrendante deberá presentar la documentación anterior a la Dirección Financiera, en un plazo máximo de siete días hábiles contados a partir del día hábil inmediato posterior a la finalización de la gira.

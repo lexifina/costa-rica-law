@@ -1,0 +1,1 @@
+Artículo 16.—Revisión de formularios: Le corresponde a la Dirección Financiera del MTSS, la revisión de los formularios recibidos con las listas de contratos vigentes. Así como mantener el registro del pago, para lo cual se utilizarán los controles de pago pertinentes.

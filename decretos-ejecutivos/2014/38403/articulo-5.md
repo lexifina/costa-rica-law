@@ -1,0 +1,1 @@
+Artículo 5º—No forma parte de la remuneración: Bajo ninguna circunstancia, el pago de kilometraje será considerado como beneficio, mejora salarial, salario en especie o, en alguna forma, parte del contrato de trabajo, ni dará lugar a derechos adquiridos a favor del (la) arrendante, lo cual quedará expresamente establecido en el Contrato de Arrendamiento del Vehículo.

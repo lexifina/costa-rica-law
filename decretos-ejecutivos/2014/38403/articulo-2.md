@@ -1,0 +1,1 @@
+Artículo 2º—Cobertura: La aplicación de este Reglamento cubrirá a todas las personas que laboren para el MTSS, y que en el ejercicio de sus funciones, sean autorizados a utilizar el vehículo de su propiedad para realizarlas, siempre y cuando cumpla con los requisitos y condiciones aquí establecidas.
