@@ -1,2 +1,0 @@
-Artículo 6º—Inclusión del Tramitador de Certificados Digitales de Persona Jurídica por parte de entidades inscritas en el Registro de Personas Jurídicas. La inclusión del Tramitador de Certificados Digitales de Persona Jurídica por entidades jurídicas inscritas en el Registro de Personas Jurídicas, podrá realizarse a través del procedimiento establecido en el artículo anterior para las entidades no inscritas en el Registro.
-Asimismo, podrá realizarse mediante la protocolización de acta de Asamblea General de socios o asociados o de Junta Directiva o Administrativa.

@@ -1,2 +1,0 @@
-Artículo 3º—Condiciones de las Personas Jurídicas. Las personas jurídicas solo podrán designar un único Tramitador de Certificados Digitales de Persona Jurídica.
-De conformidad con lo que establece la Ley, las personas jurídicas solicitantes deberán estar al día con sus obligaciones tributarias y cargas sociales ante las diferentes instituciones del Estado, tener el plazo vigente y no contar con ningún tipo de anotación administrativa ni judicial.

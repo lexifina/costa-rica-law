@@ -1,1 +1,0 @@
-Artículo 10.—Sobre el pago de tributos. La inclusión del Tramitador de Certificados Digitales de Persona Jurídica en el Registro de Personas Jurídicas, generará el pago de tributos por un monto que será establecido por la Junta Administrativa del Registro Nacional.
