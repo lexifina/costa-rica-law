@@ -15,3 +15,4 @@ Reglamento de Junta Directiva del Instituto Nacional de Vivienda y Urbanismo
 | --- | --- | --- |
 | 1 | 2010-12-16 | la propia norma |
 | 2 | 2012-04-12 | Reglamento 5935 (2012-04-12) |
+| 3 | 2014-06-05 | Reglamento 6046 (2014-06-05) |

@@ -1,3 +1,4 @@
 CAPÍTULO VI
 Del orden del día
-Artículo 13.—Corresponde al Presidente de la Junta Directiva, con la colaboración y asistencia del Gerente General, y el Jefe de la Secretaría de Junta Directiva; así como cualquier otro funcionario que a su criterio sea necesario, elaborar el orden del día para las sesiones de la Junta Directiva.
+Artículo 13. Corresponde a la Presidencia de la Junta Directiva, con la colaboración y asistencia de las instancias que considere necesarias, elaborar el orden del día para las sesiones ordinarias y extraordinarias.
+(Así reformado mediante sesión N° 6046 del 5 de junio del 2014)
