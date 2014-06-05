@@ -14,3 +14,4 @@ Reglamento para la Aplicación de la Dedicación Exclusiva en la Unión Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-08 | la propia norma |
+| 2 | 2014-06-05 | Reglamento 18 (2014-06-05) |
