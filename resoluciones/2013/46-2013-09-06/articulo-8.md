@@ -1,0 +1,1 @@
+Artículo 8º—Correspondencia Presupuestaria. Los transferencias deberán ser consideradas en el presupuesto de COMEX, así como en el de la entidad privada, considerando al efecto los clasificadores presupuestarios vigentes, tanto para los ingresos como para los gastos; por lo que deberán establecer los mecanismos de control respectivos sin perjuicio del control externo.

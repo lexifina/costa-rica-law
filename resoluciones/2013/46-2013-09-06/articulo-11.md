@@ -1,0 +1,3 @@
+CAPÍTULO II
+Calificación de Idoneidad de Entidades Privadas
+Artículo 11.—Calificación de Idoneidad. El desembolso de recursos a una persona jurídica privada, está condicionado a que previamente obtenga la calificación de idoneidad para administrar fondos públicos otorgada por COMEX. Para lo anterior, la persona jurídica privada interesada deberá demostrar a la Administración que posee capacidad legal, administrativa y financiera, la aptitud técnica para administrar y ejecutar los recursos; para asegurar el debido cumplimiento del destino legal de los recursos que eventualmente se le transfieran.

@@ -1,0 +1,1 @@
+Artículo 4º—Naturaleza de la Autorización Presupuestaria. La inclusión de una transferencia en el presupuesto debidamente aprobado de COMEX, representa una autorización de gasto y no una obligación, salvo en los casos de transferencias obligatorias.

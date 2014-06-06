@@ -1,0 +1,1 @@
+Artículo 24.—Registro de Transferencias. La Administración deberá mantener, de forma independiente y actualizado, un registro en el cual conste el monto, el concepto, el origen, los movimientos de los fondos objeto de transferencias solicitadas y ejecutadas.

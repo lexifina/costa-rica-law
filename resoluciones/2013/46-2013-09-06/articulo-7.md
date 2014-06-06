@@ -1,0 +1,1 @@
+Artículo 7º—Posibilidad de suscripción de Convenios. COMEX podrá disponer la suscripción de convenios u otros instrumentos jurídicos con las entidades privadas idóneas a efecto de garantizar el cumplimiento del fin que motiva una determinada transferencia de fondos públicos.

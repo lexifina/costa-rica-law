@@ -1,0 +1,1 @@
+Artículo 19.—Régimen Recursivo. Contra la resolución que deniegue la Calificación de Idoneidad, la entidad privada solicitante podrán interponer el recurso de reposición dentro de los tres días hábiles siguientes a su notificación.

@@ -1,0 +1,1 @@
+Artículo 10.—Aplicación del Reglamento para Transferencias. Las disposiciones de los Capítulos I y II del Reglamento para Transferencias serán aplicables a todas las transferencias de recursos públicos que realice COMEX a entidades privadas.

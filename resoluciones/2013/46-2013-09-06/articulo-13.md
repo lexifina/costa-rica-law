@@ -1,0 +1,4 @@
+CAPÍTULO III
+Recomendación de la Calificación de la Idoneidad
+Artículo 13.—Designación de la Contraparte. Recibida una “Solicitud de Calificación de Idoneidad”, el jerarca del Ministerio de Comercio Exterior, en el plazo de tres días hábiles, designará la dependencia interna encargada de verificar si han sido presentados todos los documentos establecidos en el artículo 12 del presente Procedimiento, llevar a cabo el análisis de fondo respectivo y brindar al jerarca la recomendación sobre el otorgamiento o la denegatoria de la Calificación de Idoneidad de la entidad privada.
+Asimismo, dicha dependencia, se constituirá en la contraparte interna encargada de la tramitación de la solicitud, asumirá la custodia del expediente administrativo de la solicitud y será el órgano emisor de la recomendación al jerarca sobre el otorgamiento o la denegatoria de la Calificación de Idoneidad de la persona jurídica privada para administrar fondos públicos.

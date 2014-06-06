@@ -1,0 +1,1 @@
+Artículo 26.—Procedimientos Internos. La Administración establecerá los manuales, procedimientos, lineamientos y guías que resulten necesarias para complementar y regular internamente las disposiciones de este Procedimiento, de conformidad con la normativa vigente que regula las transferencias de recursos públicos a entidades privadas.
