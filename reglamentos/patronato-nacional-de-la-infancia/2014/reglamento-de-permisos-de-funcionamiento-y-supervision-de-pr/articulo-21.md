@@ -1,0 +1,4 @@
+Artículo 21.—De las visitas de campo. El Departamento de Acreditación del PANI realizará las visitas de supervisión y asesoría con o sin previo aviso, cuya frecuencia se definirá tomando en cuenta el nivel de riesgo en el que se ubica el Programa.
+Estas visitas deberán contemplar la realización de observaciones y entrevistas a la población menor de edad, con el objetivo de conocer su opinión sobre la atención recibida. Además, se realizarán entrevistas a los diferentes actores internos y externos que tengan relación con estos programas.
+Posterior a cada visita o actividad de supervisión, el Departamento de Acreditación del PANI deberá brindar a la Organización una devolución y realimentación del proceso y la asesoría necesaria, a efecto de procurar las mejoras requeridas.
+De cada visita o actividad deberá quedar un registro documentado conforme lo establecido en el Sistema de Gestión del Departamento de Acreditación del PANI.

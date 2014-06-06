@@ -1,0 +1,2 @@
+Artículo 25.—Denuncias penales. Si en el proceso de investigación se detectaren situaciones que ameriten la interposición de denuncias penales, el Departamento de Acreditación del PANI procederá a denunciar los hechos ante el Ministerio Público, conforme a lo dispuesto en los Artículos 49 ó 134 del Código de la Niñez y de la Adolescencia.
+Corresponderá a la Oficina Local del PANI de la jurisdicción correspondiente, dar seguimiento a la denuncia penal.

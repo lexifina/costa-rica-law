@@ -1,0 +1,1 @@
+Artículo 9.—Revisión de la documentación. Una vez presentados todos los requisitos y documentos señalados en el Artículo 6 del presente Reglamento, el Departamento de Acreditación del PANI procederá a la apertura del respectivo expediente administrativo y a la revisión de los documentos aportados por la organización.

@@ -1,0 +1,18 @@
+Sección II
+DE LOS REQUISITOS PARA EL OTORGAMIENTO
+DE PERMISOS DE FUNCIONAMIENTO
+Artículo 6.—Requisitos y Documentos. Toda Organización que solicite al Departamento de Acreditación el otorgamiento del permiso de funcionamiento de un programa de atención, deberá cumplir lo siguiente:
+a. Completar el formulario de solicitud de permiso de funcionamiento, con señalamiento de un medio electrónico, fax o lugar para recibir notificaciones.
+b. Aportar copia certificada del permiso de funcionamiento o habilitación de las instalaciones del Centro según lo establecido en el artículo 15 de la Ley No 8017 del Consejo de Atención Integral, cuando se trate de la atención de niños y niñas menores de doce años, o el permiso de sanidad otorgado por el Área Rectora del Ministerio de Salud, correspondiente, cuando se trate de la atención de personas mayores de 12 años.
+c. Aportar copia certificada de los permisos de funcionamiento de otros entes rectores cuando corresponda a atención específica (IAFA, Ministerio de Educación Pública e IMAS).
+d. Aportar original de certificación de la personería jurídica de la organización donde se indique la fecha de vigencia del nombramiento de la persona representante legal.
+e. Aportar de parte de la persona representante legal de la organización, declaración jurada que indique que no tiene conocimiento de que exista otra organización con el mismo nombre y con diferente número de cédula jurídica.
+f. Aportar copia de la cédula de identidad de la persona representante legal de la organización; en caso de ser extranjero (a) presentar documento de identidad vigente.
+g. La persona representante legal deberá aportar certificación de antecedentes penales actualizada; si es extranjera deberá estar certificada o apostillada por el Ministerio de Relaciones Exteriores de Costa Rica.
+h. En caso de que la persona responsable del Programa no domine el idioma español deberá contar cuando se requiera, con su correspondiente traductor.
+i. La persona responsable del programa deberá presentar atestados certificados sobre la experiencia en el manejo del perfil de la población que se desea atender.
+j. Aportar la propuesta teórica y práctica del Modelo de Atención a implementar, que deberá ser acorde con los principios que sustentan la Doctrina de la Protección Integral y con la normativa nacional e internacional en materia de niñez y adolescencia. Dicha propuesta debe incluir los aspectos consignados en la documentación informativa aportada por el Departamento de Acreditación del PANI, según modalidad de atención.
+k. La Organización deberá garantizar que contará con el talento humano necesario, según lo establecen los estándares y lineamientos que le brindará el Departamento de Acreditación del PANI de acuerdo con el perfil de las personas menores de edad y el Modelo de Atención.
+l. Aportar los estados financieros de la organización o en su defecto presentar una Declaración Jurada de la persona representante legal de la organización sobre la procedencia de los recursos a utilizar en la implementación del programa.
+m. Si es un programa de modalidad residencial, demostrar que cuenta con infraestructura de su propiedad para llevar a cabo el Programa o en su defecto que tienen alquilado el inmueble. En todo caso, para que el PANI otorgue el permiso deberá cumplir con la Norma de Habilitación y Funcionamiento del Consejo de Atención Integral-CAI, según Ley 8017, o con el permiso del Área Rectora del Ministerio de Salud, según corresponda.
+n. Aportar copia del estatuto vigente de la organización, para verificar que sus fines están vinculados con la atención de personas menores de edad.

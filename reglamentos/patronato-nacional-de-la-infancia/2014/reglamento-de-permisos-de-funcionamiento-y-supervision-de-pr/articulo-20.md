@@ -1,0 +1,5 @@
+Sección II
+SUPERVISIÓN TÉCNICA
+Artículo 20.—Supervisión y Asesoría. Las organizaciones que cuenten con permiso de funcionamiento serán supervisadas y asesoradas a nivel técnico por el Departamento de Acreditación del PANI. Esta supervisión y asesoría es un proceso del Sistema de Gestión del Departamento de Acreditación y se realizará mediante procedimientos, instructivos y formularios definidos. Como parte de dicho proceso, en el último trimestre de cada año, se elaborará un Informe Ejecutivo de los resultados del proceso de supervisión y asesoría y se definirá la condición de cada programa.
+A partir de tal informe y considerando particularmente, el Manual de Valoración de Riesgos en Organizaciones No Gubernamentales, aprobado por la Junta Directiva del PANI, se considerarán los niveles de riesgo de cada Organización.
+El Departamento de Acreditación y el Departamento Financiero Contable del PANI elaborarán en conjunto el Plan Anual de Supervisión y brindarán asesoría según las particularidades de cada programa o grupo de programas.

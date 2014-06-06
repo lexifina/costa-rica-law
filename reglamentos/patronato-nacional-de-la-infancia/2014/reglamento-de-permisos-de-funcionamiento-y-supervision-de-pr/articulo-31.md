@@ -1,0 +1,1 @@
+Artículo 31.—Disposiciones finales. Derógase el Reglamento de Permisos de Funcionamiento y Supervisión de Programas Públicos y Privados Vinculados a la Atención de Personas Menores de Edad, publicado en La Gaceta Nº 234 del miércoles 3 de diciembre del 2008.

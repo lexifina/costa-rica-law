@@ -1,0 +1,3 @@
+Artículo 11.—Informe de Evaluación. En caso de que la documentación esté completa, se procederá a realizar una entrevista con miembros de la Junta Directiva de la Organización, Dirección Regional y Oficinas Locales del PANI en la jurisdicción y otras instituciones y organizaciones de la comunidad con el propósito de analizar y discutir los alcances del programa y establecer los mecanismos de coordinación interinstitucional respectivos.
+Se podrán realizar una o varias visitas a las instalaciones físicas, a efecto de verificar que las mismas responden a las necesidades del Modelo de Atención propuesto.
+Posteriormente se elaborará un Informe de Evaluación de acuerdo con el formato del Sistema de Gestión del Departamento de Acreditación del PANI.
