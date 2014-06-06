@@ -1,2 +1,0 @@
-Artículo 25.—Denuncias penales. Si en el proceso de investigación se detectaren situaciones que ameriten la interposición de denuncias penales, el Departamento de Acreditación procederá a denunciar los hechos ante el Ministerio Público, conforme a lo dispuesto en los artículos 49 ó 134 del Código de la Niñez y la Adolescencia.
-Corresponderá a la Oficina Local de la jurisdicción correspondiente, dar seguimiento a la denuncia penal.

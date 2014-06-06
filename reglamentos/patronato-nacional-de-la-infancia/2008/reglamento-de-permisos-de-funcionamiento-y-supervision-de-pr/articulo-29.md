@@ -1,1 +1,0 @@
-Artículo 29.—Reanudación de pagos. En caso de que la Presidencia Ejecutiva declare con lugar el Recurso de Revocatoria interpuesto, ordenará la reanudación de los pagos, así como el reintegro de las sumas retenidas, más los intereses correspondientes según la tasa de interés legal vigente fijada por el Banco Central de Costa Rica, derivados de la investigación practicada.

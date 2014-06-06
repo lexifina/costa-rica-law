@@ -1,1 +1,0 @@
-Artículo 19.—Competencias del Departamento Financiero Contable. Corresponderá al Departamento Financiero Contable la supervisión financiera de los programas, a través de visitas de campo y otras técnicas y métodos definidos por dicho Departamento para tales efectos. Dicha supervisión podrá hacerse de oficio o a solicitud del Departamento de Acreditación.

@@ -1,1 +1,0 @@
-Artículo 10.—Subsanaciones. Cuando del examen de la documentación presentada se apreciaren omisiones o defectos, el Departamento de Acreditación prevendrá a la organización solicitante, para que en un plazo de 10 días hábiles lo subsane, con indicación de que, si así no lo hiciere, se considerará desistida de su petición y ésta se archivará sin más trámite.

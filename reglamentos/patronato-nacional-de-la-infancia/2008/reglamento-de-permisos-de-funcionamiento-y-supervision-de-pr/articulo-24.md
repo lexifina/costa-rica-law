@@ -1,1 +1,0 @@
-Artículo 24.—Informe final. Una vez realizada la investigación, se elaborará el informe respectivo el cual contendrá los hechos constados y, en caso necesario, las recomendaciones pertinentes con plazos establecidos para subsanar las situaciones violatorias de derechos detectadas.

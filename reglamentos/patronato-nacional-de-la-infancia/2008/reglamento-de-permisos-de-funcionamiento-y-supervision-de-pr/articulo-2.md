@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de Aplicación. El presente Reglamento regulará los procedimientos técnicos y administrativos para el otorgamiento de permisos de funcionamiento de programas de atención de personas menores de edad y los procesos de supervisión técnica y financiera de los mismos.

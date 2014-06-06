@@ -1,1 +1,0 @@
-Artículo 9º—Revisión de la documentación. Una vez presentados todos los requisitos y documentos señalados en el artículo 5 del presente reglamento, el Departamento de Acreditación procederá a la apertura del expediente administrativo respectivo y la revisión de los documentos aportados por la organización.
