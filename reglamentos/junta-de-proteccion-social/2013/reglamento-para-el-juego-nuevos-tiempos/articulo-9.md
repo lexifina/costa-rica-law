@@ -1,3 +1,0 @@
-Artículo 9º—De la fecha y los horarios de los sorteos. Los sorteos de Nuevos Tiempos se realizaran de lunes a domingo, dos veces al día, el primer sorteo diario será a partir de las 12:55 p.m. y el segundo a partir de las 6:55 p.m., en las instalaciones de la Junta.
-El día, la hora o el lugar de realización de estos sorteos podrá ser modificado por la Junta, previa comunicación al público general por los medios de comunicación correspondientes, al menos con una semana de anticipación a la realización del sorteo correspondiente.
-Los sorteos serán fiscalizados conforme lo dispone el artículo 75 del Reglamento a la Ley de Loterías.
