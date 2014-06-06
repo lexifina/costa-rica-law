@@ -1,0 +1,2 @@
+Artículo 158.—Deber de conocer prohibiciones y regímenes especiales que puedan serle aplicables. Todo servidor (a) debe conocer las disposiciones legales y reglamentarias sobre incompatibilidad, acumulación de cargos, prohibiciones por razón de parentesco, y cualquier otro régimen especial que le sea aplicable y asegurarse de cumplir con las acciones necesarias para determinar si está o no comprendido en algunas de las prohibiciones establecidas en ellos.
+(Así adicionado por el artículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

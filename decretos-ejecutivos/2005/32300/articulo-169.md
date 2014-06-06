@@ -1,0 +1,7 @@
+Artículo 169 (*).—Son órganos desconcentrados de la Presidencia de la República.
+Comisión Nacional de Prevención de Riesgos y Atención de Emergencias regulada por Ley Nacional de Emergencias y Prevención del Riesgo N° 8488 del 22 de noviembre del 2005 y su reforma.
+Consejo Nacional de la Persona Adulta Mayor regulada por la Ley Integral para la Persona Adulta Mayor N° 7935 del 25 de octubre del 1999 y sus reformas.
+Dirección General de Servicio Civil regulada por el Estatuto de Servicio Civil N° 1581 del 30 de mayo de 1953 y sus reformas.
+Tribunal de Servicio Civil regulado por el Estatuto de Servicio Civil N° 1581 del 30 de mayo de 1953 y sus reformas, Ley N° 6155 del 28 de noviembre 1977 que contiene el Título III, denominado “Del Tribunal de Servicio Civil”, como adición al Estatuto de Servicio Civil.
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 163 del 26 de agosto del 2014, página N° 52. Anteriormente decía 181)
+(Así adicionado por el artículo 11 del decreto ejecutivo N° 38525 del 6 de junio del 2014)

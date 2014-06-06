@@ -1,0 +1,2 @@
+Artículo 159.—Deber de objetividad. El servidor (a) debe siempre emitir juicios objetivos, sin influencias de criterios personales o de terceros no autorizados por la autoridad administrativa, y se abstendrá a participar en cualquier decisión cuando exista violencia moral sobre él, que pueda hacerle incumplir su deber de objetividad.
+(Así adicionado por el artículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

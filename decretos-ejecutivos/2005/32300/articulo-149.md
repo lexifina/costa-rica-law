@@ -1,4 +1,2 @@
-Artículo 149.—La relación de servicios de los servidores interinos en plaza vacante y de los servidores interinos sustitutos terminará, en caso de resolución de terna o nómina de elegibles del Dirección de Recursos Humanos o de la Dirección General de Servicio Civil o cuando regrese el titular del puesto, según se trate.
-Igualmente, las personas que hayan sido contratadas por servicios especiales, no incluidas en los incisos anteriores y que se contraten a plazo fijo o por obra determinada, concluirán su relación de servicios, una vez vencido el plazo o concluida la obra.
-Dichos servidores tendrán derecho al pago de las prestaciones legales que procedan, de acuerdo con los requisitos y normativa aplicables.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 140 al 145 y posteriormente del numeral 145 al 149 actual)
+Artículo 149—El servicio público debe inspirar la confianza de los ciudadanos para fortalecer la credibilidad en el gobierno y sus gestores e instituciones. Los principios éticos del servicio público tienen como función fomentar esa confianza, para facilitar a los y las gobernantes el cumplimiento de los diversos fines estatales en beneficio de la comunidad.
+(Así adicionado por el artículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

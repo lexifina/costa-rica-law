@@ -18,3 +18,4 @@ Reglamento Autónomo de Organización y Servicio de la Presidencia de la Repúbl
 | 3 | 2010-04-05 | Decreto Ejecutivo 35979 (2010-04-05) |
 | 4 | 2010-06-14 | Decreto Ejecutivo 36070 (2010-06-14) |
 | 5 | 2013-02-26 | Decreto Ejecutivo 37590 (2013-02-26) |
+| 6 | 2014-06-06 | Decreto Ejecutivo 38525 (2014-06-06) |

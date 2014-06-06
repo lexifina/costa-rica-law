@@ -1,2 +1,4 @@
-Artículo 152.—Se deroga el Decreto Ejecutivo Nº 11716-P de fecha 28 de julio de 1980 y sus reformas.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 143 al 148 y posteriormente del numeral 148 al 152 actual)
+Artículo 152.—Deber de eficiencia. Todo servidor (a) debe cumplir personal y eficientemente la función que le corresponde en la Presidencia y en el Ministerio, en las condiciones de tiempo, forma y lugar que determinen las normas correspondientes, y de acuerdo con las siguientes reglas:
+a) Utilizar el tiempo laboral realizando siempre su mejor esfuerzo, en la forma más creativa y productiva posible, y emplearlo en el desarrollo de las tareas que corresponden al cargo con el esmero, la intensidad y el cuidado apropiados.
+b) Esforzarse por encontrar y utilizar las formas más eficientes de realizar sus funciones, así como para mejorar los sistemas administrativos y de atención de usuarios (as), haciendo llegar sus sugerencias e iniciativas a sus superiores,
+(Así adicionado por el artículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

@@ -1,5 +1,2 @@
-CAPÍTULO XXIV
-(Corrida la numeración de este capitulo por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo capítulo XXIII al XXIV actual)
-Disposiciones Finales
-Artículo 151.—Este Reglamento no perjudica los derechos jurídicamente adquiridos por los servidores de la Presidencia o del Ministerio. Se presumirá de conocimiento de todos los servidores y será de observancia obligatoria para todos desde su entrada en vigencia.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 142 al 147 y posteriormente del numeral 147 al 151 actual)
+Artículo 151.—Deber de lealtad. Todo servidor (a) debe ser fiel y leal a los principios éticos del servicio público, a la Presidencia, Ministerio, y a sus superiores.
+(Así adicionado por ela rtículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

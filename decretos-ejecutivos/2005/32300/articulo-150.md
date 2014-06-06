@@ -1,2 +1,2 @@
-Artículo 150.—En todo caso de terminación de la relación de servicios, el interesado deberá plantear en tiempo el correspondiente reclamo para el pago de los derechos adeudados. Caso contrario, la Presidencia o el Ministerio declararán la prescripción legal, cuando proceda.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 141 al 146 y posteriormente del numeral 146 al 150 actual)
+Artículo 150—Todo servidor (a) debe acatar los deberes que se señalan en los artículos siguientes, sin perjuicio de todos los demás establecidos por la ley y este reglamento.
+(Así adicionado por el artículo 8° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

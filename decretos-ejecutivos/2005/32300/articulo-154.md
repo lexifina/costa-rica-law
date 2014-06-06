@@ -1,3 +1,2 @@
-Artículo 154.—Rige a partir de su publicación.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 32355 del 4 de mayo del 2005)
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 145 al 150 y posteriormente del numeral 150 al 154 actual)
+Artículo 154.—Deber de responsabilidad. Todo servidor (a) debe actuar con claro sentido del deber que le corresponde para el cumplimiento del fin público que compete al Ministerio y Presidencia de la República de las consecuencias que el cumplimiento o incumplimiento de ese deber tiene en relación con ese cometido institucional.
+(Así adicionado por el artículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)
