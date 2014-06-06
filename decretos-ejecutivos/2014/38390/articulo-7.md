@@ -1,0 +1,3 @@
+Artículo 7º—Principios fundamentales aplicables a los vehículos de uso administrativo. Los vehículos de uso administrativo serán asignados a los funcionarios que laboren para las dependencias de la Dirección General de la Policía de Tránsito que requieran la utilización de dichos vehículos para el desarrollo habitual de sus funciones.
+Estos vehículos no podrán destinarse a uso policial, debiendo contar con placa especial y rotulación institucional.
+En ningún caso su asignación o conducción generarán plus salarial, derecho o beneficio a favor de los funcionarios que los tengan a cargo o hicieren uso de los mismos.
