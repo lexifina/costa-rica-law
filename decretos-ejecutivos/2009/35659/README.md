@@ -14,3 +14,4 @@ Reglamento para la elección de tres miembros de la Junta Directiva del Institut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-19 | la propia norma |
+| 2 | 2014-06-06 | Decreto Ejecutivo 38505 (2014-06-06) |

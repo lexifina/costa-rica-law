@@ -1,1 +1,1 @@
-Artículo 23.—Vigencia del nombramiento: La persona designada como representante de las municipalidades ante la Junta Directiva del IFAM, durará en su cargo cuatro años, pudiendo ser reelegido.
+Artículo 23.-Vigencia del nombramiento: La persona designada como representante de las municipalidades ante la Junta Directiva del Instituto de Fomento y Asesoría Municipal -IFAM, durará en su cargo cuatro años, pudiendo ser reelegido.

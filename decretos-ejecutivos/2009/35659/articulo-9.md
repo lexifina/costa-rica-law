@@ -1,1 +1,1 @@
-Artículo 9º—Derechos de los representantes: Cada representante tendrá el derecho a voz y voto dentro de la Asamblea, así como a postular su nombre como candidato a los cargos de Directores.
+Artículo 9º-Derechos de los Representantes Municipales: Cada representante municipal tendrá el derecho a voz y voto dentro de la asamblea nacional de representantes municipales, así como a postular su nombre o el de cualquier otro representante como candidato a los cargos de Directores en la Junta Directiva del IFAM.

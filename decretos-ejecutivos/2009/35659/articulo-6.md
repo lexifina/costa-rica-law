@@ -1,1 +1,1 @@
-Artículo 6º—De la Asamblea de representantes: La Asamblea de representantes constituye la instancia dentro de la cual se elegirán los tres representantes del sector municipal ante la Junta Directiva del Instituto de Fomento y Asesoría Municipal.
+Artículo 6°-Asamblea de Representantes Municipales: La asamblea de representantes municipales, se realizará cada cuatro años y constituye el órgano nacional, dentro del cual se designarán los tres directores, en representación de las municipalidades del país, en la Junta Directiva del Instituto de Fomento y Asesoría Municipal-IFAM.
