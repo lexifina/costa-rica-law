@@ -1,2 +1,0 @@
-Artículo 19°-El (*)Consejo Nacional de Política Pública de la Persona Joven será a través del correspondiente Departamento, el organismo institucional encargado de mantener un sistema adecuado de asesoría para la Casa, así como de supervisar el adecuado cumplimiento de los programas.
-(*)(Modificada su denominación por el artículo 34 de la ley General de la Persona Joven, N° 8261 del 2 de mayo de 2002)

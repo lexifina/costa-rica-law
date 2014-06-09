@@ -1,1 +1,0 @@
-Artículo 14°-Las unidades de trabajo elaborarán oprotunamente y en conjunto con el Coordinador Ejecutivo, el anteproyecto del plan de trabajo para ser conocido y aprobado, en primera instancia por la Junta Directiva.
