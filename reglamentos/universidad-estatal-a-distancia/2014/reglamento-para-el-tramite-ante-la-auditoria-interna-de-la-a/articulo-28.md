@@ -1,0 +1,1 @@
+Artículo 28.—Traslado del caso para investigación: Una vez concluido el proceso de reposición del libro, la Auditoría Interna valorará la pertinencia de trasladar el caso a la Administración, a fin de que se determine si corresponde sentar responsabilidades.
