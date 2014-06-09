@@ -1,0 +1,3 @@
+ARTÍCULO 7.- Se autoriza al Estado, las municipalidades, las instituciones autónomas y semiautónomas para que inviertan en la zona restringida de la zona marítimo terrestre, con el propósito de favorecer el desarrollo social, el crecimiento económico y la protección del ambiente, de conformidad con lo dispuesto en el ordenamiento jurídico en su conjunto, particularmente en la Ley N.º 6043, Ley sobre la Zona Marítimo Terrestre, de 2 de marzo de 1977, y sus reformas, y en el plan regulador de la respectiva localidad.
+Rige a partir de su publicación.
+Dado en la Provincia de Puntarenas, a los seis días del mes de mayo del año dos mil catorce.

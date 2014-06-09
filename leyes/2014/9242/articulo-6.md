@@ -1,0 +1,1 @@
+ARTÍCULO 6.- A partir de la entrada en vigencia de la presente ley, las municipalidades con jurisdicción en la zona restringida de la zona marítimo terrestre no podrán autorizar ni permitir nuevas construcciones que no estén respaldadas en una concesión debidamente aprobada, inscrita y ajustada al plan regulador costero vigente.

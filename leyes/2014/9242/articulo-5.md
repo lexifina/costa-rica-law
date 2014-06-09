@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Las instituciones públicas competentes en la tramitación de planes reguladores costeros, de conformidad con lo dispuesto en el artículo 38 de la Ley N.º 6043, Ley sobre la Zona Marítimo Terrestre, de 2 de marzo de 1977, y sus reformas, deberán programar prioritariamente las acciones necesarias para el cumplimiento oportuno de esta ley.
