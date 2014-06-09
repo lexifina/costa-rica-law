@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Para los efectos de la presente ley, se entenderá por construcción toda estructura que haya sido fijada o incorporada a un terreno, previo a la aprobación de esta ley; incluye cualquier obra de edificación, reconstrucción, alteración o ampliación que implique permanencia.
