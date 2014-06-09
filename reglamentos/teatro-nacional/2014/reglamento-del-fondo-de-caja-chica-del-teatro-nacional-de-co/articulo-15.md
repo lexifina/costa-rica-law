@@ -1,0 +1,1 @@
+Artículo 15.—Responsable de efectuar los reintegros. Los reintegros del Fondo de Caja Chica deberán ser tramitados por el encargado de su custodia cuando el disponible llegue a un mínimo del veinte por ciento (20%), lo anterior, con el propósito de procurar una adecuada rotación del fondo a fin de que éste no se agote.

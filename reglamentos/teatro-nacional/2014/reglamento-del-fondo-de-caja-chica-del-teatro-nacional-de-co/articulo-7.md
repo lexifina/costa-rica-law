@@ -1,0 +1,1 @@
+Artículo 7º—Establecimiento del monto. Previo visto bueno de la Tesorería Nacional, el Consejo Directivo del Teatro Nacional, será el único autorizado para la apertura, cierre, aumento o disminución del fondo de caja chica, así como para el establecimiento de los límites económicos permitidos para compras de caja chica para cada período presupuestario.
