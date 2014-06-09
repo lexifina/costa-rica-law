@@ -1,0 +1,1 @@
+Artículo 7º—Coordinación o facilitación de la Mesa de Diálogo. La coordinación y cualquier otro aspecto operativo de la Mesa de Diálogo, se definirá de manera conjunta, por los miembros parte del Pleno de la Mesa de Diálogo.

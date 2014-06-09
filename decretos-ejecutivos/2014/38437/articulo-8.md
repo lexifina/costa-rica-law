@@ -1,0 +1,1 @@
+Artículo 8º—Financiamiento de la Mesa de Diálogo. Se insta y autoriza a las instituciones del Estado para que, dentro de su ámbito de competencia y de acuerdo con sus posibilidades, colaboren activamente y aporten recursos humanos, físicos y económicos, para la ejecución y el desarrollo de las actividades de la Mesa de Diálogo.

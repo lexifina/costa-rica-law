@@ -1,0 +1,19 @@
+Nº 38437-MP-MBSF
+LA PRESIDENTA DE LA REPÚBLICA,
+EL MINISTRO DE LA PRESIDENCIA
+Y EL MINISTRO DE BIENESTAR SOCIAL Y FAMILIA
+Con fundamento en los artículos 140, inciso 3), 8), 18), 20) y 146 de la Constitución Política; de conformidad con la Ley Nº6172 del 29 de noviembre de 1977, “Ley Indígena”; y la Ley Nº 7316 del 3 de noviembre de 1992, “Ley de aprobación del Convenio N° 169 sobre Pueblos Indígenas y Tribales en Países Independientes”; así como, del Decreto Ejecutivo Nº 34582-MP-PLAN, del 4 de junio de 2008, “Reglamento Orgánico del Poder Ejecutivo y sus reformas”.
+Considerando:
+I.—Que según el Convenio Nº 169 de la Organización Internacional del Trabajo, sobre Pueblos Indígenas y Tribales en Países Independientes, aprobado por la Asamblea Legislativa mediante Ley N° 7316, del 3 de noviembre de 1992, y la Ley Indígena, Ley N° 6172 del 29 de noviembre de 1977, es obligación del Estado brindar tutela jurídica especial a los Pueblos Indígenas.
+II.—Que si bien es cierto, Costa Rica ha alcanzado un alto nivel de desarrollo humano y cuenta con un régimen democrático, estable y consolidado, en el cual se respetan los derechos humanos, también se debe reconocer que los pueblos y las personas indígenas en el país, todavía enfrentan algunas situaciones de exclusión e inequidad social, que deben ser corregidas.
+III.—Que en años recientes se han dado hechos preocupantes de violencia entre personas indígenas y no indígenas, muchos de ellos relacionados con el problema de la tenencia de la tierra, en los territorios indígenas.
+IV.—Que es necesario establecer protocolos u otros instrumentos formales que regulen los procesos de consulta que se realicen en los territorios indígenas, con el objeto de lograr su consentimiento libre, previo e informado, sobre aquellos asuntos o temas de su interés particular.
+V.—Que es necesario continuar creando condiciones políticas, jurídicas y administrativas propicias, para que los territorios y personas indígenas gocen, de manera plena, de sus derechos y libertades.
+VI.—Que el 25 de enero del 2013, se instaló en la Casa de Naciones Unidas en San José, la primera reunión de la Mesa de Diálogo entre el Gobierno de Costa Rica y delegados indígenas de la zona sur, en presencia de dos instituciones observadoras (el Sistema de la Naciones Unidas y la Defensoría de los Habitantes); sesión de trabajo en la que se acordó una agenda de discusión basada en cinco puntos fundamentales: 1) Política pública, Plan Nacional de Desarrollo y Planes de Desarrollo de los territorios, 2) Seguridad territorial, 3) Gobernabilidad en los territorios, 4) Ley de Desarrollo Autónomo de los Pueblos Indígenas, y 5) Análisis del derecho de consulta a los pueblos indígenas en Buenos Aires y Pérez Zeledón.
+VII.—Que, además, en la Mesa de Diálogo se han establecido algunos acuerdos básicos para garantizar la viabilidad y sostenibilidad del diálogo, como son la renuncia a las vías de hecho y a las acciones violentas, el cese de las acciones institucionales inconsultas en los territorios, la sostenibilidad y no retroceso de los acuerdos alcanzados, y la utilización de la Mesa de Diálogo, como vía para la comunicación y atención de conflictos. Por tanto,
+Decretan:
+Formalización de la Mesa de Diálogo entre el Gobierno de Costa Rica
+y los Pueblos Indígenas de los Cantones
+de Buenos Aires y Pérez Zeledón
+Artículo 1º—Objeto. El presente decreto tiene por objeto formalizar la organización y el funcionamiento de la Mesa de Diálogo entre el Gobierno de Costa Rica y los pueblos indígenas de la zona sur, específicamente de los cantones de Buenos Aires y Pérez Zeledón.
+Los temas a tratar y el esquema de participación en la Mesa de Diálogo, serán definidos o modificados de común acuerdo entre las partes que la integran; ya sea por iniciativa propia de una de ellas o a solicitud de los pueblos indígenas representados en la Mesa de Diálogo.

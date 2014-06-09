@@ -1,0 +1,1 @@
+Artículo 6º—Sesiones. El Pleno de la Mesa de Diálogo y las comisiones de trabajo sesionarán, ordinariamente, al menos una vez cada tres meses; y, de forma extraordinaria, cuando así lo convengan de común acuerdo las partes.
