@@ -9,5 +9,5 @@ III.—Que el artículo 15 de la Ley de Biodiversidad, establece la forma en que
 IV.—Que el Decreto Ejecutivo N° 29680-MINAE del 23 de julio del 2001, publicado en La Gaceta N° 150 del 7 de agosto del 2001, regula el funcionamiento de esta Comisión. Por tanto,
 Decretan:
 Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad, a los siguientes representantes del Ministerio de Ambiente y Energía:
-1. Miembro propietario: Ana Lorena Guevara Fernández.
+1. (Derogado por el artículo 3° del decreto ejecutivo N° 38523 del 10 de junio del 2014, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 2. Miembro suplente: Gustavo Induni Alfaro.
