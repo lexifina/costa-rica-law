@@ -14,3 +14,4 @@ Publica Resolución N° 303-2013 (COMIECO-EX) de 15 demayo del 2013 y su anexo "
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-15 | la propia norma |
+| 2 | 2014-06-10 | Decreto Ejecutivo 38498 (2014-06-10) |
