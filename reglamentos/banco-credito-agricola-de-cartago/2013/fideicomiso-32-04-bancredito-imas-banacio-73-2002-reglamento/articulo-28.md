@@ -1,6 +1,7 @@
 CAPÍTULO V
 Del proceso para remitir al obligado a cobro judicial
 Artículo 28.—Del cobro judicial. Concluido el proceso de cobro administrativo, ejecutado por la Unidad Ejecutora, sin que se lograra normalizar el estado de la deuda, se procederá a remitir a los abogados externos la documentación correspondiente para que ésta inicie el proceso de Cobro Judicial. Antes de interponer el proceso judicial se hará lo siguiente:
-a) La Unidad Ejecutora solicitará a la Área Regional del IMAS que corresponda, el estudio socioeconómico del deudor para que éstas manifiesten su recomendación social de acuerdo a las condiciones socioeconómicas de las familias en estado de morosidad, y luego el FIDUCIARIO en coordinación con la Unidad Ejecutora.
+a) La Unidad Ejecutora solicitará a la Área Regional del IMAS que corresponda, el estudio socioeconómico del deudor para que éstas manifiesten su recomendación social de acuerdo a las condiciones socioeconómicas de las familias en estado de morosidad.
+(Así reformado el inciso anterior mediante acta aprobada N°10-14 del 12 de junio de 2014)
 b) Los abogados externos realizarán un estudio de bienes muebles e inmuebles sobre los cuales puedan recaer el embargo y recuperación de la deuda, de no hallarse nada emitirá un criterio profesional que recomienda la declaración de incobrabilidad y no el cobro judicial, a la Unidad Ejecutora y el Comité Director.
 c) Efectuado el estudio, el FIDUCIARIO podrá recurrir a la provisión contable en caso de que certifique el abogado externo que el deudor o la deudora no cuentan con bienes para continuar con el cobro judicial.

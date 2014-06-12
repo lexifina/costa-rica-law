@@ -14,3 +14,4 @@ Fideicomiso 32-04 BANCRÉDITO-IMAS-BANACIO/73-2002 Reglamento de Gestión Admini
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-17 | la propia norma |
+| 2 | 2014-06-12 | Reglamento 0 (2014-06-12) |
