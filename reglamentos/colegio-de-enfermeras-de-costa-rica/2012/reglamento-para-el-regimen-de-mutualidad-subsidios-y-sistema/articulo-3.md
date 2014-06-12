@@ -1,7 +1,8 @@
 Artículo 3º—Definición de conceptos:
 ASAMBLEA: Asamblea General Ordinaria o Extraordinaria de Afiliados y Afiliadas.
 JUNTA DIRECTIVA: Junta Directiva del Colegio de Enfermeras de Costa Rica
-JAFOM: Junta Administradora del Fondo de Mutualidad
+COVFOM: Comité de Vigilancia del Fondo de Mutualidad (*)
+(*)(Modificada su denominación mediante sesión del 12 de junio del 2014, publicada en La Gaceta N° 133 del 11 de julio del 2014. Anteriormente se denominaba "Junta Administradora del Fondo de Mutualidad (JAFOM)")
 REGIMEN: El Fondo de Mutualidad, Subsidios y Sistema de Créditos del Colegio de Enfermeras de Costa Rica.
 COLEGIADOS (AS): Enfermeros y Enfermeras afiliados y activos del Régimen de Mutualidad, Subsidios y Sistema de Créditos del Colegio de Enfermeras de Costa Rica.
 ENFERMEDAD TERMINAL CIERTA: Aquella enfermedad de carácter progresivo e incurable, que determina un pronóstico de vida no mayor a un (1) año a partir de realizado el diagnóstico.

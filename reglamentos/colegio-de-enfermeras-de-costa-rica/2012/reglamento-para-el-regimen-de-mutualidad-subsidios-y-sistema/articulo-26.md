@@ -1,5 +1,8 @@
-Artículo 26.—Funciones de la JAFOM: Son funciones de la Junta Administradora del Fondo de Mutualidad:
-a) Una vez nombrada la JAFOM, deberá presentar tres meses después de instalada, a consideración de la Asamblea General de Colegiados (as) Afiliados (s), los proyectos necesarios para establecer las políticas o estrategias de administración y operación del Fondo.
+Artículo 26.—Funciones de la COVFOM (**): Son funciones de la Comité de Vigilancia del Fondo de Mutualidad (*):
+(*)(Modificada su denominación mediante sesión del 12 de junio del 2014, publicada en La Gaceta N° 133 del 11 de julio del 2014. Anteriormente se denominaba " Junta Administradora del Fondo de Mutualidad JAFOM")
+(**)(Modificada su denominación mediante sesión del 12 de junio del 2014, publicada en La Gaceta N° 133 del 11 de julio del 2014. Anteriormente se denominaba "JAFOM")
+a) Una vez nombrada la COVFOM (*), deberá presentar tres meses después de instalada, a consideración de la Asamblea General de Colegiados (as) Afiliados (s), los proyectos necesarios para establecer las políticas o estrategias de administración y operación del Fondo.
+(*)(Modificada su denominación mediante sesión del 12 de junio del 2014, publicada en La Gaceta N° 133 del 11 de julio del 2014. Anteriormente se denominaba "JAFOM")
 b) Velar por el respeto y fiel cumplimiento de las normas jurídicas que rigen esta materia, en especial de las disposiciones de este Reglamento.
 c) Vigilar el manejo sano, transparente y uso adecuado de las finanzas del Fondo, aportando periódicamente informes sobre los estados financieros y balances, así como las conciliaciones bancarias pertinentes, tanto a la Junta Directiva del Colegio, como a la Asamblea General de Colegiados (as) Afiliados (as) al Fondo.
 d) La JAFOM elaborara su proyecto de presupuesto ordinario para el ejercicio anual el cual será sometido a conocimiento de Junta Directiva,quien lo incorporara al proyecto de presupuesto general del Colegio de Enfermeras de Costa Rica para ser sometido a aprobación en Asamblea General.

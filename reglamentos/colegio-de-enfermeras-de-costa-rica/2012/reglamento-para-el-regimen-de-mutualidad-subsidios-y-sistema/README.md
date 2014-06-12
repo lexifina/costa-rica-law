@@ -14,3 +14,4 @@ Reglamento para el Régimen de Mutualidad, Subsidios y Sistema de Créditos del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-07 | la propia norma |
+| 2 | 2014-06-12 | Reglamento 0 (2014-06-12) |
