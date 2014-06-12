@@ -1,6 +1,5 @@
-Artículo 14.—Proceso de Administración de Bienes, Departamento de Proveeduría. El Proceso de Administración de Bienes del Departamento de Proveeduría, tendrá a cargo la custodia del mobiliario y equipo de oficina del Poder Judicial ubicado en las bodegas de stock y redistribución. Tendrá a su cargo las siguientes funciones:
-a) Recibir el mobiliario y equipo que sean adquiridos a nombre del Poder Judicial.
-b) Verificar que el mobiliario y equipo que ingresa cuente con las características y especificaciones, acorde con los requisitos de la contratación. En caso de que el equipo que ingrese esté dentro de la categoría de “equipo especial”, se solicitará a la unidad especializada responsable que realice la revisión técnica correspondiente.
-c) Rotular los bienes que ingresen al Poder Judicial con su respectiva etiqueta de identificación (metálica o adhesiva según corresponda).
-d) Valorar los bienes trasladados a patrimonio (bodega de redistribución) para determinar su reparación, redistribución, donación (para su uso o reciclaje) o destrucción, de lo que dejará constancia por medio de la confección de un acta que incluya el número de activo del bien y su descripción.
-e) Ejercer un control permanente de los bienes almacenados y aplicar técnicas eficaces para su protección, conservación y adecuado aprovechamiento de acuerdo a los intereses institucionales.
+CAPÍTULO IV
+Aspectos generales sobre el control del
+mobiliario y equipo de oficina
+Artículo 14—Departamento de Proveeduría. El Proceso de Administración de Bienes del Departamento de Proveeduría, las Administraciones Regionales y las Administraciones de los programas auxiliares de justicia, tendrán a cargo el manejo, control y registro del mobiliario y equipo de oficina del Poder Judicial, por medio de la herramienta informática con acceso en la intranet institucional (CAF).
+(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 9 al 14)

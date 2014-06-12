@@ -1,0 +1,2 @@
+Artículo 66.—Control e informe sobre donaciones. En los meses de enero y julio de cada año, el Departamento de Proveeduría elaborará un informe con el número de acta, nombre del beneficiado, ubicación por Circuito Judicial y bienes donados. Este informe deberá ser enviado al Consejo Superior para lo que corresponda.
+(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 61 al 66)

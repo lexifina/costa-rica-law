@@ -1,7 +1,12 @@
-Artículo 6º—Adquisición de bienes por donación. Existe donación cuando por liberalidad de una persona física o jurídica, nacional o internacional, se transmite gratuitamente la propiedad y el dominio de un bien a favor del Poder Judicial. Sólo la Corte Plena o el Consejo Superior tendrán la facultad para aceptar donaciones.
-Para recibir bienes por donación es necesario cumplir con los siguientes requisitos:
+Artículo 6º—Adquisición de bienes por donación:
+Existe donación cuando por liberalidad de una persona física o jurídica, nacional o internacional, se transmite gratuitamente la propiedad y el dominio de un bien a favor del Poder Judicial. Sólo la Corte Plena o el Consejo Superior tendrán la facultad para aceptar donaciones. Para recibir bienes por donación es necesario cumplir con los siguientes requisitos:
 a) Ofrecimiento por escrito del donante, con la descripción del bien; costo del bien o estimación de su valor y para el caso de bienes nuevos, indicar el período de garantía, el nombre del proveedor para eventuales reclamos y vida útil estimada.
-b) Acuerdo de Corte Plena o Consejo Superior donde se acuerda la aceptación de la donación.
-c) Acta de recibo de los bienes firmada por el donante y donatario o por sus delegados autorizados.
-d) En caso de donación internacional, la institución deberá gestionar la exoneración ante los entes respectivos.
-e) El Departamento de Proveeduría expedirá la orden de alta de bienes para su inclusión en el sistema de Control de Activos Fijos.
+b) La oficina interesada deberá llenar el Formulario de Valoración y Recepción de Bienes Donados.
+c) La oficina interesada en recibir la donación previo a la confección del formulario de solicitud de donación1 deberá realizar el análisis de la conveniencia (costo-beneficio) institucional de recibir la donación de acuerdo a los criterios técnicos existentes y los requerimientos mínimos que se deben considerar según el bien o servicio que se trate. En caso de considerarse viable, puede continuar con el proceso, de lo contrario no se acepta la donación con el visto bueno de la oficina interesada y quien brindó el criterio técnico.
+1 En Anexo N° 1 se adjunta formulario definido para el efecto, que incluye la información necesaria para la inclusión de los bienes en el sistema de Control de Activos Fijos.
+d) En caso de proceder la donación la oficina interesada deberá hacer la solicitud al Consejo Superior o Corte Plena adjuntando el formulario de propuesta para autorizar la recepción de donaciones. De igual manera, debería ser de conocimiento del Consejo, cuando la oficina considera que no se acepta la donación, con el fin de emitir el acuerdo respectivo.
+e) Acuerdo de Corte Plena o Consejo Superior donde se acepta la donación.
+f) Acta de recibo de los bienes firmada por el donante y donatario o por sus delegados autorizados.
+g) En caso de ser necesaria la exoneración para la donación internacional, la institución deberá gestionar la exoneración ante los entes respectivos.
+h) El Departamento de Proveeduría o Administraciones Regionales expedirá la orden de alta de bienes para su inclusión en el sistema de Control de Activos Fijos.
+(Así reformado mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127-2014 del 12 de junio del 2014)

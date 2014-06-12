@@ -1,1 +1,6 @@
-Artículo 57.—Reciclaje: Cuando el mobiliario y equipo por su estado de deterioro u obsolescencia tecnológica no sea susceptible de donación, según el criterio del técnico que refiere el artículo 54 de este reglamento, el Departamento de Proveeduría y las Administraciones Regionales podrán donarlo a instituciones públicas para que los reciclen (como fuente de ingreso de recursos) debiendo dichas instituciones entregar certificación que haga constar el adecuado tratamiento de los bienes para su reciclaje. Se exceptúan de este artículo el equipo de cómputo y electrónico, el cual debe ser enviado a la Bodega de la Proveeduría de la Ciudad Judicial de San Joaquín de Flores.
+CAPÍTULO XI
+Donación y destrucción de bienes
+en desuso y equipo desechado
+Artículo 57.—Instituciones susceptibles a recibir donaciones. Las donaciones se podrán otorgar a entidades declaradas de Interés público, de Interés Social o sin fines de lucro debidamente inscritas ante las instancias correspondientes, centros o instituciones de educación del Estado, u otras dependencias públicas.
+La distribución se hará en forma equitativa dándole preferencia a las instituciones o asociaciones de zonas rurales o marginales que más lo necesiten.
+(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 52 al 57)

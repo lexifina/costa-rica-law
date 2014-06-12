@@ -1,1 +1,5 @@
-Artículo 40.—Responsables por el mantenimiento y custodia de activos. La jefatura de cada dependencia judicial deberá instruir adecuadamente a los servidores judiciales que ingresen a su centro de trabajo, sobre los deberes y obligaciones que tienen con respecto al manejo, mantenimiento y custodia de los activos de la Institución.
+CAPÍTULO VIII
+Deberes y responsabilidades de las jefaturas
+de las dependencias judiciales
+Artículo 40.—Jefe Dependencia Judicial. La jefatura de la dependencia judicial, una vez firmado y recibido conforme del equipo y mobiliario que se le entrega, será responsable de los bienes bajo su cargo y no podrá variar su uso ni destino.
+(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 35 al 40)

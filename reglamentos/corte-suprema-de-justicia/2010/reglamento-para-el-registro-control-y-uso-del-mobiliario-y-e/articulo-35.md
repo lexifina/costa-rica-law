@@ -1,4 +1,2 @@
-CAPÍTULO VIII
-Deberes y responsabilidades de las jefaturas
-de las dependencias judiciales
-Artículo 35.—Jefe Dependencia Judicial. La jefatura de la dependencia judicial, una vez firmado y recibido conforme del equipo y mobiliario que se le entrega, será responsable de los bienes bajo su cargo y no podrá variar su uso ni destino.
+Artículo 35.—Asignación del equipo de cómputo. La Dirección Ejecutiva conforme a la política institucional definida por la Corte Plena , será la encargada de tramitar las solicitudes presentadas por los despachos con el fin de determinar si procede la asignación del equipo de cómputo, ya sea en forma temporal o permanente. Establecerá los procedimientos y criterios necesarios para su asignación de acuerdo con las políticas definidas, la programación de compras, la disponibilidad de recursos y las necesidades de la dependencia judicial solicitante. Una vez aprobada la asignación del equipo informático, corresponderá al Departamento de Proveeduría realizar la distribución correspondiente.
+(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 30 al 35)
