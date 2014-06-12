@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Univ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-03 | la propia norma |
+| 2 | 2014-06-12 | Reglamento 2344 (2014-06-12) |
