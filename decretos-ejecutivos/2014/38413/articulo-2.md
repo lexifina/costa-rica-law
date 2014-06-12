@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo N° 20973-MEíC-S del 5 de enero de 1992, publicado en el Diario Oficial La Gaceta N° 24 del 4 de febrero de 1992, denominado “NCR: 108:1991. Norma para el Etiquetado de Bebidas Alcohólicas” a partir de la fecha de entrada en vigencia de la Resolución N° 332-2013 (COMIECO-LXVI) de fecha 12 de diciembre de 2013 y sus Anexos.
