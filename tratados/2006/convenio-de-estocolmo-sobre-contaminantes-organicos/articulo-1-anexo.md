@@ -20,6 +20,8 @@ Nº de CAS: 72-20-8 | Uso | Ninguna
 y éter de heptabromodifenilo (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011) | Uso (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011) | Artículos con arreglo a las disposiciones de la parte IV del presente anexo (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
 Éter de tetrabromodifenilo (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011) | Producción (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011) | Ninguna (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
 y éter de pentabromodifenilo (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011) | Uso (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011) | Artículos de conformidad con las disposiciones de la parte IV del presente anexo (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
+Endosulfán de calidad técnica* (N° de CAS: 115-29-7) y sus isómeros conexos* (N° de CAS: 959-98-8 y N° de CAS: 33213-65-9) (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 38417 del 10 de febrero del 2014) | Producción (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 38417 del 10 de febrero del 2014) | La permitida para las Partes incluidas en el Registro (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 38417 del 10 de febrero del 2014)
+| Uso (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 38417 del 10 de febrero del 2014) | Combinaciones plaga-cultivo, tal como se enumeran de conformidad con las disposiciones de la parte VI del presente anexo (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 38417 del 10 de febrero del 2014)
 Heptacloro* | Producción | Ninguna
 Nº de CAS: 76-44-8 | Uso | Termiticida Termiticida en estructuras de casas Termiticida (subterráneo) Tratamiento de la madera Cajas de cableado subterráneo
 Hexabromobifenilo (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011) | Producción (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011) | Ninguna (Así adicionado el aparte anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
@@ -44,6 +46,8 @@ El proceso de notificación podrá repetirse;
 (iv) Las Partes que hayan registrado exenciones específicas con arreglo al artículo 4 podrán gozar de todas las exenciones que figuran en el presente anexo, a excepción del uso de bifenilos policlorados en artículos en uso de acuerdo con las disposiciones de la parte II, y el uso de éter de hexabromodifenilo y éter de heptabromodifenilo con arreglo a las disposiciones de la parte IV del presente anexo(*) y el uso de éter de tetrabromodifenilo y éter de pentabromodifenilo de acuerdo con las disposiciones de la parte IV del presente anexo(**), de la cual podrán gozar todas las Partes.
 (*)(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
 (**)(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
+v) El endosulfán de calidad técnica (N° de CAS: 115-29-7) y sus isómeros conexos (N° de CAS: 959-98-8 y N° de CAS: 33213-65-9) y el sulfato de endosulfán (N° de CAS: 1031-07-8) se evaluaron y se determinó que eran contaminantes orgánicos persistentes.
+(Así adicionada la nota v) anterior por el artículo 1° del decreto ejecutivo N° 38417 del 10 de febrero del 2014)
 Parte II
 Bifenilos policlorados
 Cada Parte deberá:
@@ -85,3 +89,26 @@ b) La Parte no permita que esta exención conduzca a la exportación de artícul
 c) La Parte haya notificado a la Secretaría su propósito de hacer uso de esta exención.
 2. En su sexta reunión ordinaria y en cada segunda reunión ordinaria en adelante la Conferencia de las Partes evaluará los progresos que hagan las Partes para lograr su objetivo final de eliminación del éter de tetrabromodifenilo y éter de pentabromodifenilo contenidos en artículos y examinará si esta exención específica sigue siendo necesaria. En cualquier caso, esta exención específica expirará en 2030 a más tardar.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
+(*) PARTE VI
+Endosulfán de calidad técnica y sus
+isómeros conexos (endosulfán)
+La producción y el uso de endosulfán se eliminarán salvo para las Partes que hayan notificado a la Secretaría su intención de producirlo y/o utilizarlo de conformidad con el artículo 4 del Convenio. Se podrá hacer uso de exenciones específicas para usar el endosulfán en las combinaciones plaga cultivo siguientes:
+Cultivo | Plaga
+Manzana | Áfidos
+Arjar, gram | Áfidos, orugas, oruga medidora del guisante, taladrador de las vainas
+Frijol, caupí | Áfidos, minador de la hoja, mosquita blanca
+Ají, cebolla, papa | Áfidos, cicadela
+Café | Broca del grano (del café), gusanos del tallo
+Algodón | Áfidos, gusano bellotero, cicadela, cigarreros, gusano rosado, trips, mosquita blanca
+Berenjena, ocra | Áfidos, polilla de la col, cicadela, gusano de las frutas y retoños
+Cacahuete | Áfidos
+Yute | Oruga pilosa de Bihar, ácaro amarillo
+Maíz | Áfidos, barrenador rosado, gusanos del tallo
+Mango | Moscas de la fruta, saltamontes
+Mostaza | Áfidos, moscas de las agallas
+Arroz | Moscas de las agallas, híspido del arroz, gusanos del tallo, cicadela blanca
+Té | Áfidos, orugas, gusano del brote, chinches, cochinillas, chinche verde saltona, oruga geómetra (medidora) del té, mosquito del té, trips
+Tabaco | Áfidos, oruga del brote del tabaco
+Tomate | Áfidos, polilla de la col, cicadela, minador de la hoja, gusano de las frutas y retoños, mosquita blanca
+Trigo | Áfidos, barrenador rosado, termitas
+(*)(Así adicionda la parte VI) anterior por el artículo 1° del decreto ejecutivo N° 38417 del 10 de febrero del 2014)
