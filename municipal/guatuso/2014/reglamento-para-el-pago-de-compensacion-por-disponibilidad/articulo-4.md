@@ -1,0 +1,3 @@
+CAPÍTULO III
+Determinación de puestos y procedimiento
+Artículo 4°—Determinación de los puestos para la disponibilidad: Corresponde al Alcalde Municipal, determinar los puestos que en atención a los requerimientos del buen servicio Municipal, demandan estar afectos al régimen de disponibilidad. La disponibilidad es compatible con la prohibición o con la dedicación exclusiva, siempre que se cumpla con lo dispuesto por el artículo 3. La Alcaldía fijará los roles correspondientes, que se deben de asumir en cada materia, cuando así proceda, armonizando la continuidad del servicio y la calidad de vida de los servidores municipales afectos a este régimen.
