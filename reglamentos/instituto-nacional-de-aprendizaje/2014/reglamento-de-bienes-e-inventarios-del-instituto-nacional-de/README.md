@@ -14,3 +14,4 @@ Reglamento de bienes e inventarios del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-29 | la propia norma |
+| 2 | 2014-06-16 | Reglamento 0 (2014-06-16) |
