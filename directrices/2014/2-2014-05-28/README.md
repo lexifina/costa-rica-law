@@ -14,3 +14,4 @@ Deroga Directriz N° 030-P de 12/04/2012 Lineamientos a seguir por el Ministerio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-09 | la propia norma |
+| 2 | 2014-06-16 | Directriz 4 (2014-06-16) |
