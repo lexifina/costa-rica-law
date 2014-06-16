@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros del Comité Evaluador, deben instalarse como tal en una sesión de trabajo, hecho que deberá constar en un acta, consignando los nombres respectivos (titular y suplente) conforme los documentos de las organizaciones en los que se consigna el nombramiento respectivo.

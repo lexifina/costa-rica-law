@@ -1,0 +1,1 @@
+Artículo 23.—Los participantes deberán remitir la documentación relativa al cumplimiento de los requisitos, informes y demás procesos mencionados en el presente reglamento, a los medios autorizados por el Comité Directivo. El Comité Directivo notificará a las municipalidades participantes por medio de oficio respecto de los medios autorizados.

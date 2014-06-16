@@ -1,0 +1,1 @@
+Artículo 3º—Los cantones que aspiren al reconocimiento de Cantones Amigos de la Infancia, deberán orientar sus acciones al cumplimiento y aplicación de los valores y principios de: respeto, integridad, solidaridad, compromiso, lealtad e inclusión.

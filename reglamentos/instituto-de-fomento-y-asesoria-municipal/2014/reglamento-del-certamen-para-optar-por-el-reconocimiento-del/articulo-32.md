@@ -1,0 +1,1 @@
+Artículo 32.—El desempeño de los cargos de las y los miembros del Comité Directivo, Comité Evaluador y Secretaría Técnica, es honorífico, por lo tanto no recibirán retribución alguna por el desempeño de sus funciones.

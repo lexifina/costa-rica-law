@@ -1,0 +1,1 @@
+Artículo 10.—El Comité Evaluador sesionará al menos una vez al mes. Para sesionar válidamente, el quórum será de cuatro de los miembros. Los acuerdos serán tomados mediante votación de mayoría simple (mitad más uno de los miembros presentes).

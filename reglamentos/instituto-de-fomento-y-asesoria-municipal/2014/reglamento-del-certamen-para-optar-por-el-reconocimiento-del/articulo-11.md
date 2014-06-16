@@ -1,0 +1,1 @@
+Artículo 11.—El Comité Evaluador tendrá un coordinador elegido por mayoría simple por sus miembros, quien será responsable de convocar a las sesiones de trabajo, los acuerdos se tomarán por votación de mayoría simple de los miembros presentes, y deberá ser consignado en las minutas firmadas por los presentes de cada sesión.

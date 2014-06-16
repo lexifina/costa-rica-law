@@ -1,0 +1,3 @@
+Ejecución del plan de acción
+Artículo 21.—Los municipios inscritos en el Certamen Cantones Amigos de la Infancia, deberán presentar dos informes de progreso en las fechas y los medios de notificación establecidos por el Comité Directivo. Los municipios que no entreguen ambos informes en tiempo y forma conforme los principios, pilares y valores del Certamen CAI-CR, y las estipulaciones indicadas en el artículo 21 del presente reglamento, no podrán aspirar al reconocimiento CAI.
+Con la presentación del primer informe se deberá entregar además, un diagnóstico de la situación de la niñez, que consistirá en una actualización del prediagnóstico presentado para la postulación de la candidatura al Certamen CAI-CR.

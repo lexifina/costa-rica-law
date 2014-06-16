@@ -1,0 +1,1 @@
+Artículo 17.—Las municipalidades que deseen postularse dentro del programa Cantones Amigos de la Infancia, deberán presentar ante la Secretaría Técnica los requisitos establecidos por los organizadores, en la fecha establecida por el Comité Directivo, a través de los medios señalados por la Secretaría Técnica.

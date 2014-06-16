@@ -1,0 +1,1 @@
+Artículo 7º—El Comité Directivo sesionará como mínimo, una vez al mes. Para sesionar válidamente, el quórum será de tres miembros. Los acuerdos serán tomados mediante votación de mayoría simple (mitad más uno de los miembros presentes).
