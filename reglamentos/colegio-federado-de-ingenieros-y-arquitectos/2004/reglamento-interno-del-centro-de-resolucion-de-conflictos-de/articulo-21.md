@@ -1,1 +1,0 @@
-Artículo 21.—Asistencia Administrativa. Con el fin de facilitar el desarrollo del procedimiento conciliatorio, las partes o el conciliador de conformidad con éstas, podrán disponer de la asistencia administrativa del Centro de Resolución de Conflictos en la solicitud de peritos u otra asesoría necesaria.
