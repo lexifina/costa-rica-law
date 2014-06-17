@@ -14,3 +14,4 @@ Reglamento autónomo de organización y funcionamiento del Comité Cantonal de D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-02 | la propia norma |
+| 2 | 2014-06-17 | Reglamento municipal 344 (2014-06-17) |
