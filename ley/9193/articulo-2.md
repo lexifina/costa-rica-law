@@ -26,3 +26,4 @@ Céd. Jur 3-008-134912
 (Modificado por el artículo 1° del decreto ejecutivo N° 38493 del 16 de mayo del 2014)
 (Modificado por el artículo 2° del decreto ejecutivo N° 38503 del 4 de junio del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38521 del 16 de junio del 2014)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38574 del 17 de junio del 2014, en cuanto a la programación presupuestaria de los Órganos del Gobierno de la República)
