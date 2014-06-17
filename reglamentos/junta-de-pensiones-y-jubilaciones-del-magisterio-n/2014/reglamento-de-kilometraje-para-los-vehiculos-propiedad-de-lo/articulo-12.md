@@ -1,0 +1,1 @@
+Artículo 12.—Para hacer efectivo el cobro por Kilometraje recorrido, cada interesado (a) deberá confeccionar una liquidación mensual, en la fórmula y/o boleta denominada “Liquidación de Gastos de kilometraje”.

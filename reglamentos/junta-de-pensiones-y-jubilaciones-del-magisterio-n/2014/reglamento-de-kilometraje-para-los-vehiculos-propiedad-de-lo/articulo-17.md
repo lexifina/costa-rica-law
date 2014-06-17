@@ -1,0 +1,1 @@
+Artículo 17.—No existirá obligación para la Junta de garantizar un mínimo de kilómetros por recorrer y remunerar, de manera que solo se reconocerán aquellos que hayan sido efectivamente recorridos, que se encuentren debidamente justificados y documentados y se ajusten a las tarifas vigentes.

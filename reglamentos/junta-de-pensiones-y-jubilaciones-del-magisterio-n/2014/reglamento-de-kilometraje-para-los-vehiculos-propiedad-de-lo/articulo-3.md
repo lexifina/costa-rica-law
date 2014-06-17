@@ -1,0 +1,16 @@
+Artículo 3º—Para los efectos de la aplicación del presente Reglamento, se definen los siguientes términos:
+Reglamento: Conjunto de disposiciones establecidas por la Junta de Pensiones y Jubilaciones del Magisterio Nacional debidamente aprobadas por su Junta Directiva, con el propósito de normar las condiciones bajo las cuales se regirá el pago de kilometraje de los vehículos propiedad de los (de las) funcionarios (as) de la institución.
+Junta: Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+Junta Directiva: Órgano colegiado y máximo jerarca de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, encargado de la dirección de la institución, mediante el dictado de políticas generales con las atribuciones que le otorga la ley.
+Dirección Ejecutiva: Órgano encargado de administrar la institución, en estricto cumplimiento de las Leyes y Reglamentos, así como disposiciones emanadas por la Junta Directiva.
+Auditoría Interna: Unidad subordinada de la Junta Directiva, parte integral y vital del sistema de control interno de la Junta y tendrá como función principal, verificar el cumplimiento, la eficacia, validez y buena práctica de dicho sistema.
+Departamento: Unidad subordinada de la Dirección Ejecutiva, dentro de la estructura del organigrama institucional.
+Departamento Administrativo: Departamento que tiene como función procurar que la institución cuente con los recursos y servicios requeridos para el adecuado funcionamiento, en una forma ágil y en el menor tiempo posible, siempre en apego a las leyes, Reglamentos y demás mecanismos de control interno vigentes.
+Propietario (a): El (La) funcionario (a) de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, dueño (a) del vehículo arrendado sujeto al pago de tarifa por kilometraje.
+Tarifa: Entiéndase por ésta, la tarifa fijada por la Contraloría General de la República por concepto de arrendamiento de vehículos a funcionarios (as) de la administración pública para el pago de kilometraje.
+Kilometraje: Distancia recorrida por el vehículo.
+Sistema: Procedimientos, formularios y/o boletas de control establecidos por la Administración en procura de garantizar la aplicación y el uso de recursos en la gestión de la Junta de Pensiones y Jubilaciones del Magisterio Nacional para el reconocimiento de kilometraje a aquellos (as) trabajadores (as) que suscriban el contrato de arrendamiento.
+Contrato de Arrendamiento: Documento suscrito por el (la) trabajador (a) que da en arrendamiento su vehículo a la Junta de Pensiones y Jubilaciones del Magisterio Nacional mediante el cual se establecen sus derechos y obligaciones.
+Formulario de Solicitud de ingreso al pago de Kilometraje a funcionarios (as) de la Junta: Documento de presentación obligatorio por medio del cual el (la) propietario (a) solicita su ingreso al Sistema de Arrendamiento.
+Formulario y/o boleta de autorización de viaje con vehículo particular: Es aquel documento o boleta por medio del cual se autoriza una gira con vehículo particular el cual debe estar inscrito en el sistema.
+Formulario y /o boleta de liquidación de gastos de kilometraje: Es el formulario o la boleta de autorización para el cobro de la totalidad de las giras realizadas en un mismo mes calendario y consta de la suma de todos los formularios y/o boletas de Autorización de Viaje de Vehículo Particular.

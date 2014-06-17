@@ -1,0 +1,2 @@
+Artículo 23.—La Junta no se hará responsable en caso de robo del vehículo, por lo cual la póliza referida debe de tener cobertura contra robo, o en su defecto el (la) trabajador (a) deberá rendir la declaración señalada en el artículo 9 de este reglamento.
+La Junta tampoco se hará responsable de ningún daño o perjuicio que sobrevenga por robo, hurto, accidentes, o cualquier otra situación que se genere por la utilización del vehículo dentro del sistema de arrendamiento descrito.
