@@ -1,1 +1,0 @@
-Artículo 23.—Queda a discreción de la secretaria grabar total o parcialmente las sesiones, así como de los regidores, solicitar que no se consignen sus manifestaciones dentro de la grabación. Los casetes serán solamente una ayuda para la secretaria municipal, por lo cual serán borrados una vez confeccionada el acta.
