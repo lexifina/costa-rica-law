@@ -1,1 +1,0 @@
-Transitorio II.—Integración de la Comisión de Obras de Arte. Dentro del plazo de 30 días naturales contados a partir de la publicación de este Reglamento, en el diario oficial “La Gaceta”, el Departamento de Relaciones Públicas, Prensa y Protocolo indicará a la División Administrativa la integración de la Comisión de Obras de Arte.

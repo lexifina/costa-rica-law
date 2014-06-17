@@ -1,1 +1,0 @@
-Artículo 36.—Sistema informático. El Departamento de Proveeduría, por medio del Área de Suministros y Bienes Muebles, utilizará un sistema de información para la administración, el control del mobiliario y el equipo de oficina. Todos los bienes muebles deberán estar debidamente registrados y actualizados en este sistema.

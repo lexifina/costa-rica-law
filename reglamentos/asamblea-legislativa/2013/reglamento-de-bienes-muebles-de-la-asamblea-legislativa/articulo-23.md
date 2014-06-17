@@ -1,1 +1,0 @@
-Artículo 23.—Fecha de recibo de oficinas de las fracciones políticas y diputados. Se deberá hacer entrega de las oficinas y los bienes muebles a los funcionarios del Área de Suministros y Bienes Muebles el 30 de abril fecha en que finaliza el período constitucional a las 18:00 horas, como hora máxima.

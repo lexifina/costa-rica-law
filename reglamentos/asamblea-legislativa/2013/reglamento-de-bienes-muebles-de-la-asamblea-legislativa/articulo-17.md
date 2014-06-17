@@ -1,1 +1,0 @@
-Artículo 17.—Responsables por los bienes muebles a cargo. Todo funcionario legislativo será responsable por el uso adecuado, el mantenimiento y la custodia de los bienes muebles que le han sido asignados. Además, tendrá como obligación adoptar las medidas necesarias a fin de resguardar y mantener los bienes muebles en las mejores condiciones de uso.

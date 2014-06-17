@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Responsabilidad y Obligación de los Funcionarios
-Artículo 10.— Jefe dependencia institucional o el funcionario. El jefe de la dependencia institucional o el funcionario designado, una vez que haya firmado y recibido conforme del equipo y el mobiliario que se le entrega, será responsable de los bienes muebles bajo su cargo. Además, será responsabilidad del Jefe de cada dependencia institucional, instruir en lo que corresponda y designar las respectivas responsabilidades de uso y custodia activos del Estado a cada funcionario, así como de comunicarlo al Área de Suministros y Bienes Muebles.
