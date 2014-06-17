@@ -1,0 +1,1 @@
+Artículo 10.—Se prohíbe a las personas, caminar por las zonas verdes del parque, áreas restringidas, subir a los arbustos, cortar éstos, flores y cualquier planta sembradas en el mismo o atentar contra los animales que en él residan.
