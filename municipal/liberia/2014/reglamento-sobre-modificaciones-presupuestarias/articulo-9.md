@@ -1,0 +1,2 @@
+Artículo 9º—La unidad de Presupuesto deberá gestionar la actualización en el Sistema Integrado de Presupuestos Públicos (SIPP) la inclusión y validación de las Modificaciones Presupuestarias debidamente aprobadas, según lo establecido en la directriz D-2-2CI05-CO-DFOE, de la Contraloría General de la República para el adecuado registro o incorporación y validación de la información de presupuestos públicos (SIPP).
+Aprobado en Sesión Ordinaria Nº 13-2014, del Concejo Municipal, celebrada el 31 de marzo del 2014.

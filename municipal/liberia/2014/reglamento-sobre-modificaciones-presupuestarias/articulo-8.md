@@ -1,0 +1,1 @@
+Artículo 8º—Cada tres meses las unidades de Presupuesto y Planificación Institucional presentarán de manera conjunta, un informe Trimestral a la Alcaldía Municipal para su remisión al Concejo Municipal, en que se indique las modificaciones presupuestarias realizadas y por este medio los ajustes al Plan Anual Operativo y al Presupuesto Municipal.

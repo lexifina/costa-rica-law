@@ -1,0 +1,15 @@
+Artículo 4º—El proceso de formulación, aprobación y ejecución de las modificaciones presupuestarias, deberá sujetarse a las siguientes disposiciones:
+a) Se podrá tramitar las modificaciones presupuestarias necesarias durante el respectivo ejercicio presupuestario.
+b) Toda modificación presupuestaria deberá ser numerada en orden cronológico y numérico consecutivo, iniciando con el número uno seguido del mes y el año correspondiente.
+c) Las modificaciones presupuestarias se formularán respetando la estructura presupuestaria establecida por la Contraloría y el clasificador de gastos y se presentarán según el programa, partida, grupo y Subpartida correspondiente.
+d) El documento de las modificaciones presupuestarias que se remite al Conejo Municipal, contará con las siguientes firmas Alcaldía, Coordinación de Hacienda Municipal, Coordinación de Egresos y Coordinación de Presupuesto.
+e) Las modificaciones presupuestarias deberán vincularse con los objetivos y metas establecidas en el Plan Anual Operativo.
+f) Cuando corresponda las modificaciones presupuestarias deberán acompañarse del ajuste respectivo al Plan Anual Operativo de la Municipalidad.
+g) Toda modificación presupuestaria deberá indicar la razón que la justifica, y reflejar claramente las partidas y subpartidas presupuestarias afectadas por el aumento o disminución de recursos.
+h) Las modificaciones presupuestarias propuestas por la Unidad Técnica de Gestión Vial, deben hacer sido debidamente aprobadas por la Junta Vial Cantonal, previo a ser incluidas en los documentos de aprobación por parte del Concejo Municipal tal y como lo exige el bloque de legalidad para los recursos asignados para la Ley Nº 8114, para lo que se requiere adjuntar el acuerdo.
+i) Las modificaciones presupuestarias serán solicitadas a las unidades de Presupuesto y Planificación Institucional, mediante oficio razonado directamente por las Coordinaciones de Procesos y Subprocesos atendiendo a las necesidades de bienes o servicios de las unidades a su cargo y las solicitudes que le han presentado.
+j) Las solicitudes de modificación presupuestaria serán evaluadas por las unidades de Presupuesto y Planificación Institucional para determinar si proceden.
+k) Las unidades de Presupuesto y Planificación Institucional preparan la modificación presupuestaria y remiten a la Alcaldía mediante oficio el cuadro de modificación, con la documentación de respaldo de las solicitudes recibidas.
+l) Las modificaciones presupuestarias serán presentadas por la Alcaldía Municipal ante el Concejo Municipal para su aprobación.
+m) Toda modificación presupuestaria, se transcribirá íntegramente en el acta correspondiente a la sesión del Concejo Municipal en que fue aprobada.
+n) Las modificaciones presupuestarias que sean improbadas por el Concejo Municipal por razones formales, podrán ser presentadas nuevamente a su conocimiento, por medio de un nuevo documento en el que hayan sido corregidas las causas de su rechazo o improbación. En tales casos, ambos documentos se considerarán uno sólo para los efectos del inciso a) de este artículo.
