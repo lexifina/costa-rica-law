@@ -1,0 +1,6 @@
+Artículo 22
+Idiomas oficiales
+1. El presente Protocolo, cuyos textos en árabe, chino, español, francés, inglés y ruso son igualmente auténticos, será depositado en los archivos de las Naciones Unidas.
+2. El Secretario General de las Naciones Unidas enviará copias certificadas del presente Protocolo a todos los Estados a que se refiere el artículo 26 del Pacto.”
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinte días del mes de mayo del año dos mil catorce.

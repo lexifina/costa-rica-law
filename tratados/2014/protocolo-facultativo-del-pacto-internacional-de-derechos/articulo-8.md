@@ -1,0 +1,6 @@
+Artículo 8
+Examen de las comunicaciones
+1. El Comité examinará las comunicaciones que reciba en virtud del artículo 2 del presente Protocolo a la luz de toda la documentación que se haya puesto a su disposición, siempre que esa documentación sea transmitida a las partes interesadas.
+2. El Comité examinará en sesiones privadas las comunicaciones que reciba en virtud del presente Protocolo.
+3. Al examinar las comunicaciones recibidas en virtud del presente Protocolo, el Comité podrá consultar, según convenga, la documentación pertinente procedente de otros órganos, organismos especializados, fondos, programas y mecanismos de las Naciones Unidas y de otras organizaciones internacionales, incluidos los sistemas regionales de derechos humanos, y cualesquiera observaciones y comentarios del Estado Parte interesado.
+4. Al examinar las comunicaciones recibidas en virtud del presente Protocolo, el Comité considerará hasta qué punto son razonables las medidas adoptadas por el Estado Parte de conformidad con la parte II del Pacto. Al hacerlo, el Comité tendrá presente que el Estado Parte puede adoptar toda una serie de posibles medidas de política para hacer efectivos los derechos enunciados en el Pacto.

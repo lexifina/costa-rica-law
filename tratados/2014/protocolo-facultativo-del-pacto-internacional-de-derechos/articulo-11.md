@@ -1,0 +1,10 @@
+Artículo 11
+Procedimiento de investigación
+1. Cualquier Estado Parte en el presente Protocolo podrá en cualquier momento declarar que reconoce la competencia del Comité prevista en el presente artículo.
+2. Si el Comité recibe información fidedigna que da cuenta de violaciones graves o sistemáticas por un Estado Parte de cualesquiera de los derechos económicos, sociales y culturales enunciados en el Pacto, el Comité invitará a ese Estado Parte a colaborar en el examen de la información y, a esos efectos, a presentar sus observaciones sobre dicha información.
+3. El Comité, tomando en consideración las observaciones que haya presentado el Estado Parte interesado, así como cualquier otra información fidedigna puesta a su disposición, podrá encargar a uno o más de sus miembros que realice una investigación y presente con carácter urgente un informe al Comité. Cuando se justifique y con el consentimiento del Estado Parte, la investigación podrá incluir una visita a su territorio.
+4. La investigación será de carácter confidencial y se solicitará la colaboración del Estado Parte en todas las etapas del procedimiento.
+5. Tras examinar las conclusiones de la investigación, el Comité las transmitirá al Estado Parte interesado junto con las observaciones y recomendaciones que estime oportunas.
+6. En un plazo de seis meses después de recibir los resultados de la investigación y las observaciones y recomendaciones que le transmita el Comité, el Estado Parte interesado presentará sus propias observaciones al Comité.
+7. Cuando hayan concluido las actuaciones relacionadas con una investigación hecha conforme al párrafo 2 del presente artículo, el Comité podrá, tras celebrar consultas con el Estado Parte interesado, tomar la decisión de incluir un resumen de los resultados del procedimiento en su informe anual previsto en el artículo 15 del presente Protocolo.
+8. Todo Estado Parte que haya hecho una declaración con arreglo al párrafo 1 del presente artículo podrá retirar dicha declaración en cualquier momento mediante notificación al Secretario General.
