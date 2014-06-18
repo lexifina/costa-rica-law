@@ -1,0 +1,1 @@
+Artículo 15.—De la Denegatoria del Servicio. La Municipalidad a través del Departamento de Acueducto, no podrá rechazar solicitudes de paja de agua a menos que existan razones técnicas o reglamentarias que impidieren otorgarlo. Para efectos de denegar el servicio deberá ser bajo acto motivado del Encargado del Departamento de Acueducto.

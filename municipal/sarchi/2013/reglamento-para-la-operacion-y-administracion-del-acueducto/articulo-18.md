@@ -1,0 +1,1 @@
+Artículo 18.—La Municipalidad a través del Departamento de Acueducto deberá verificar periódicamente la exactitud de los hidrómetros en servicio y cuando lo considere necesario o conveniente. Sin embargo, en cualquier momento el consumidor podrá solicitar por escrito al Departamento de Acueducto una inspección de su hidrómetro para verificar fugas y/o altos consumos.

@@ -1,0 +1,1 @@
+Artículo 40.—La Municipalidad pondrá al cobro la facturación correspondiente de los servicios brindados al abonado, usuario o propietario, mediante recibo impreso, que indicará los rubros pagados, los montos de cada uno, el o los periodos cancelados y el total facturado.

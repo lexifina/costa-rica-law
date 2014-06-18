@@ -1,0 +1,1 @@
+Artículo 26.—Cuando en una misma conexión existen varias unidades de consumo con diferentes usos, se aplicará la tarifa más alta. Sin embargo, el propietario podrá solicitar a la Municipalidad la individualización del servicio por clase, siempre y cuando sea técnicamente posible y el sistema interno permita la separación.

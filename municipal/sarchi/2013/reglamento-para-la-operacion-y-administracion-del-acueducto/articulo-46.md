@@ -1,0 +1,1 @@
+Artículo 46.—Del plazo para la reconexión. El Departamento de Acueducto reinstalará el servicio de agua potable dentro de un plazo de 24 horas después de la cancelación por parte del propietario, del monto correspondiente a la reconexión y lo adeudado o del arreglo de pago correspondiente.

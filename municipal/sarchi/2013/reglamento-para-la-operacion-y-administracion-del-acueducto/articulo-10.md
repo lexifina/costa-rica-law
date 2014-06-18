@@ -1,0 +1,2 @@
+CONEXIONES
+Artículo 10.—Un funcionario del Departamento de Acueducto, determinará el lugar donde debe ser hecha la perforación del tubo madre para la conexión de la o las pajas de agua, previo pago de la suma de ¢75.000.00 (setenta y cinco mil colones) por concepto de conexión por cada paja de agua solicitada, monto que se ajustará cada año mediante acuerdo del Concejo Municipal, previo estudio que lo sustente; y entrará en vigencia a partir de la publicación en el Diario Oficial La Gaceta.

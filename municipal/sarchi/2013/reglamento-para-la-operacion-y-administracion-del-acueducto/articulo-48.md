@@ -1,0 +1,1 @@
+Artículo 48.—De la reunión de fincas. El propietario de una finca que tenga servicio de agua potable y adquiera otra propiedad colindante que carezca del servicio, no podrá extender a la segunda el servicio de agua existente en la primera finca, sin antes cumplir con los requisitos exigidos para una nueva conexión.

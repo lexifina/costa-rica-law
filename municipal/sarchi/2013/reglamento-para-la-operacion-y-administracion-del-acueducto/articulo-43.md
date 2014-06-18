@@ -1,0 +1,1 @@
+Artículo 43.—El Departamento de Acueducto colaborará con el departamento de Gestión de Cobro, aplicando medidas coercitivas para la recuperación del pendiente de cobro por concepto del servicio de agua.

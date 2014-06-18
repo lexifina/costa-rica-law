@@ -1,0 +1,1 @@
+Artículo 12.—El servicio de agua potable que preste la Municipalidad, en su conjunto, deberá ser autofinanciado, incorporando a sus tarifas todos los elementos de costo y de desarrollo necesarios para brindar un buen servicio.

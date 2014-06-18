@@ -1,0 +1,1 @@
+Artículo 25.—De la Determinación Tarifaria. Para el financiamiento del servicio y el manteniendo del Acueducto Municipal, la Municipalidad establecerá una tarifa básica por el servicio, previo estudio de costos de administración, operación, mantenimiento, desarrollo, inversión y servicio de deuda. Para tal fin se aplicará lo establecido en el artículo 74 del Código Municipal.

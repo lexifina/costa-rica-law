@@ -1,0 +1,1 @@
+Transitorio III.—Al entrar en vigencia éste Reglamento y con él la tarifa preferencial, se cobrará el pago mínimo para escuelas y colegios por un plazo de seis meses posteriores a la instalación del hidrómetro, con la posibilidad de prorrogar dicho plazo a otros seis meses cuando la institución educativa lo solicite directamente al Concejo Municipal.

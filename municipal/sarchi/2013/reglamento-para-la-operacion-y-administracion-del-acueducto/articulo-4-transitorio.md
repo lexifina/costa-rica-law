@@ -1,0 +1,3 @@
+Transitorio IV.—Para los hidrómetros que se instalen a partir de la publicación de este Reglamento, los usuarios, abonados o propietarios, tendrán un plazo de 4 meses a partir de la instalación del hidrómetro, en que su pago será el mínimo, esto a efecto tenga la oportunidad de verificar consumos o fugas intradomiciliarias, pasado ese plazo el cobro será lo que indique el hidrómetro.
+Habiéndose publicado el proyecto de Reglamento para la Operación y Administración del Acueducto de la Municipalidad de Valverde Vega, en el Diario Oficial La Gaceta N° 8 del día lunes 13 del mes de enero del año 2014 y no existiendo oposiciones al mismo, lo aprueba en forma definitiva y rige a partir de su publicación por segunda vez.
+Comuníquese y Publíquese en el Diario Oficial La Gaceta.

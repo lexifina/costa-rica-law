@@ -1,0 +1,1 @@
+Artículo 45.—De la reconexión. Para que se reconecte un servicio que haya sido suspendido, el propietario deberá cancelar los recibos que tuviera atrasados, así como los intereses y derechos de reconexión. Salvo en el caso del arreglo de pago. El costo por la reconexión será de un 11% del costo por nueva conexión.
