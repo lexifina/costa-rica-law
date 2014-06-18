@@ -26,4 +26,7 @@ Artículo 3º—De las disciplinas autorizadas. El Colegio de Médicos, reconoce
 20)Tecnología en Terapia Respiratoria (Se reconoce como sinónimo de esta disciplina al Bachillerato Universitario en Terapia Respiratoria).
 21)Tecnología en Terapia de la Voz y el Lenguaje (Se reconoce como sinónimo de esta disciplina al Bachillerato Universitario en Terapia de la Voz y el Lenguaje).
 22)Tecnología en Urología, y
-23)Cualquier otra que a futuro establezca la Junta de Gobierno.
+23) Tecnología en Podología.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 2014-06-18 del 18 de junio del 2014)
+24) Cualquier otra que a futuro establezca la Junta de Gobierno.
+(Así corrida la numeración del inciso anterior mediante sesión ordinaria N° 2014-06-18 del 18 de junio del 2014, que lo trasasó del antiguo inciso 23 al 24)
