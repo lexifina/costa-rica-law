@@ -14,3 +14,4 @@ Reglamento del Comité de Deportes y Recreación de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-23 | la propia norma |
+| 2 | 2014-06-19 | Reglamento municipal 216 (2014-06-19) |
