@@ -1,1 +1,0 @@
-Artículo 10.—La Autoridad Competente recomendará a la Dirección Nacional el giro de los recursos a las entidades que cumplan totalmente con los requisitos indicados en el presente Reglamento y que se encuentren al día en la presentación y aprobación de las liquidaciones presupuestarias y de gasto de subvenciones giradas anteriormente.
