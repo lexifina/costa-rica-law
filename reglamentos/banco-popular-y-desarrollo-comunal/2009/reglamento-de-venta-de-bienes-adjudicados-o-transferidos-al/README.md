@@ -18,3 +18,4 @@ Reglamento de venta de bienes adjudicados o transferidos al Banco Popular y de D
 | 3 | 2011-02-08 | Reglamento 4826 (2011-02-08) |
 | 4 | 2011-12-13 | Reglamento 4921 (2011-12-13) |
 | 5 | 2014-05-15 | Reglamento 5169 (2014-05-15) |
+| 6 | 2014-06-19 | Reglamento 5182 (2014-06-19) |
