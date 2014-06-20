@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ESCAZÚ
+Les comunico el AC-159-14, adoptado por el Concejo Municipal de Escazú en la Sesión Ordinaria 214, Acta 322 del 2 de junio del 2014, que indica lo siguiente: Acuerdo AC-159-14: “Se acuerda: Con fundamento en las disposiciones de los artículos 11 y 169 de la Constitución Política 11 y 13 de la Ley General de Administración Pública y las facultades dadas por el Código Municipal en sus artículos Nº 4 y Nº 74 así como el artículo Nº 42 del Reglamento de Licencias Municipales, el precio de reposición de certificados municipales por la suma de ¢5.000,00 (cinco mil colones con 00/100)”.
+Declarado definitivamente aprobado
