@@ -1,0 +1,1 @@
+Artículo 18.—Las comisiones sólo podrán conocer y dictaminar aquellos asuntos que el Concejo o el Alcalde les someta. Excepcionalmente podrán conocer asuntos de interés municipal por iniciativa propia, y en tal caso deberán informar al Concejo para lo de su cargo.

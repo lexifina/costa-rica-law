@@ -1,0 +1,1 @@
+Artículo 6°—Cuando un Regidor falte a una sesión de comisión y no justifique su ausencia a más tardar en la sesión siguiente, el Presidente de la Comisión lo informará al Secretario Municipal, con copia al Presidente del Concejo.

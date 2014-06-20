@@ -1,0 +1,1 @@
+Artículo 5°—Cada Comisión estará compuesta únicamente por Regidores Propietarios (3, 5 o 7 integrantes), una vez que el Regidor Propietario falte a una sesión éste puede ser sustituido por el Regidor Suplente, en cuyo caso tiene derecho al voto.

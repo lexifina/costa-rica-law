@@ -1,0 +1,1 @@
+Artículo 28.—Los funcionarios y empleados municipales convocados por escrito o verbalmente, que no asistieren a una sesión de comisión o que no informen personalmente o por escrito lo solicitado, sin justa causa, incurrirán en falta grave y quedarán expuestos a las sanciones de ley.

@@ -1,0 +1,1 @@
+Artículo 20.—Los comparecientes de una comisión podrán hacer uso de la apalabra por un término no mayor de diez minutos. Por vía de excepción, cuando el asunto amerite más tiempo, el presidente someterá a la comisión la ampliación del plazo que se acuerde.

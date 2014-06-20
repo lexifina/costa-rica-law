@@ -1,0 +1,1 @@
+Artículo 16.—Los miembros de las comisiones deberán emitir su voto favorable o contrario a cada asunto que se someta a votación. Cuando haya empate en la votación, esta se repetirá una vez luego de abrirse un nuevo periodo de deliberación no mayor de media hora. Si persiste el empate quien preside decidirá con voto calificado.

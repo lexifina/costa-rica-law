@@ -1,0 +1,1 @@
+Artículo 23.—Las comisiones deberá rendir sus dictámenes en un plazo no mayor de quince días hábiles a partir de la fecha en que se votó el acuerdo respectivo sobre el asunto sometido a su conocimiento. Sólo en casos muy complejos se podrá prorrogar ese plazo por otro similar.

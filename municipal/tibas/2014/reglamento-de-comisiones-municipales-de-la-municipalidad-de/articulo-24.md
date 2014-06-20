@@ -1,0 +1,1 @@
+Artículo 24.—Los acuerdos de las comisiones deberán dictaminarse por escrito, firmados por los miembros de la Comisión presentes en el momento en que se tomó el acuerdo, podrán firmarlo los que no estuvieron presentes si comparten el criterio.
