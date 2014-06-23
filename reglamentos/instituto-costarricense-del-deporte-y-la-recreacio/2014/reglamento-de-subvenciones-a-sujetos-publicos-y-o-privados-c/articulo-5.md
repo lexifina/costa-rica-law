@@ -1,0 +1,6 @@
+Artículo 5º—Del superávit y gastos no autorizados. El superávit reflejado en la Liquidación de la subvención girada al sujeto público y/o privado, deberá ser reintegrado junto con los intereses generados al ICODER dentro de un plazo de siete (7) días posteriores al comunicado vía correo electrónico, del resultado de la revisión de la liquidación por la Autoridad Competente. Por la vía excepcional, la Dirección Nacional podrá aprobar de previo la ejecución de un superávit por las siguientes causas:
+1. Traslado de calendario de una competición deportiva, actividad o proyecto contemplado en el Plan de Trabajo Anual o Proyecto Específico.
+2. Cuando por la naturaleza de la actividad o Proyecto a ejecutar emigre de un periodo presupuestario a otro.
+3. Fuerza mayor o caso fortuito debida y satisfactoriamente comprobada por la Autoridad Competente.
+Los gastos no aprobados de previo por la Autoridad Competente deberán ser reintegrados al ICODER dentro de siete (7) días hábiles posterior al comunicado del resultado de la revisión de la liquidación por estas Instancias.
+Mientras no se devuelva el superávit cuyo uso no esté autorizado por el ICODER, esta institución no podrá girar subvención alguna posterior de conformidad con el artículo 77 del Reglamento a la Ley N° 7800.
