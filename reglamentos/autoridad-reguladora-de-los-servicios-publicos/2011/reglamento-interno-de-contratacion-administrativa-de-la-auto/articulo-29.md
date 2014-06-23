@@ -1,0 +1,2 @@
+Artículo 29.—Custodia de la tarjeta. Las tarjetas estarán debidamente custodiadas en la caja fuerte de la institución y solamente se solicitarán por los tarjetahabientes para realizar los pagos cuando la compra haya sido aprobada, una vez realizada la compra el tarjetahabiente deberá entregarla en forma inmediata para su custodia.
+(Así adicionado mediante sesión extraordinaria N° 35-2014 del 23 de junio del 2014)

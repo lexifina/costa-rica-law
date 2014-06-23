@@ -1,0 +1,3 @@
+Del procedimiento para pago con tarjeta de débito
+Artículo 34.—Traslado de fondos a la cuenta. El Departamento de Proveeduría o las personas designadas en el Reglamento de Caja Chica, una vez aprobada la compra por medio del procedimiento de contratación administrativa correspondiente, solicitará por medio del formulario que al efecto confeccione la Dirección de Finanzas, el traslado de fondos para la cuenta bancaria. Adjunto al formulario entregará a la Dirección de Finanzas, el comprobante de la aprobación de la compra: sea la requisición, orden de compra, adjudicación de la licitación, contrato, vale de caja chica, según el procedimiento de contratación que se haya realizado.
+(Así adicionado mediante sesión extraordinaria N° 35-2014 del 23 de junio del 2014)

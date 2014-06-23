@@ -1,1 +1,4 @@
-Artículo 25.- Invitación a potenciales oferentes. A partir de la entrada en vigencia de este Reglamento, se recurrirá de manera obligatoria a invitar a los potenciales oferentes de contrataciones directas, que se encuentren en el registro de proveedores institucionales y en el caso de licitaciones abreviadas, cuando no se cumpla con los preceptos señalados en el artículo 98 de Reglamento a la Ley de Contratación Administrativa. La publicación en el Diario Oficial La Gaceta será obligatoria en las licitaciones públicas, en los casos en los que la Administración considere indispensable, previa justificación y aprobación del Gerente General, se podrán publicar en el Diario Oficial, otro tipo de contrataciones (directas y abreviadas) que así lo ameriten.
+SECCIÓN II
+De la emisión y uso de la tarjeta
+Artículo 25.—Apertura de la cuenta de débito y emisión de tarjetas. La Dirección de Finanzas gestionará la apertura de una cuenta corriente bancaria y solicitará las tarjetas de débito.
+(Así adicionado mediante sesión extraordinaria N° 35-2014 del 23 de junio del 2014)

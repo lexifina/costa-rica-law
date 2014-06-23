@@ -1,0 +1,2 @@
+Artículo 37.—Conciliación de la cuenta. Es responsabilidad de la Dirección de Finanzas revisar mensualmente el estado de cuenta de la tarjeta y conciliar con los comprobante de pago, así como reportar a la Dirección General de Operaciones, cualquier anomalía que se encuentre para que se le informe al Despacho del Regulador General sobre lo acontecido a fin de que se determine la apertura o no del procedimiento administrativo disciplinario.
+(Así adicionado mediante sesión extraordinaria N° 35-2014 del 23 de junio del 2014)

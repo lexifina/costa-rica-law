@@ -15,3 +15,4 @@ Reglamento interno de contratación administrativa de la Autoridad Reguladora de
 | --- | --- | --- |
 | 1 | 2011-11-03 | la propia norma |
 | 2 | 2012-03-21 | Reglamento 22 (2012-03-21) |
+| 3 | 2014-06-23 | Reglamento 35 (2014-06-23) |

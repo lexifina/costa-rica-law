@@ -1,0 +1,2 @@
+Artículo 33.—Desactivar o bloquear la tarjeta. En caso de que por algún motivo el tarjetahabiente deje de laborar ya sea en forma permanente o temporal para la ARESEP, la Dirección de Recursos Humanos deberá proceder a informar inmediatamente a la Dirección de Finanzas para que esta proceda a desactivar o bloquear la tarjeta electrónica según sea el caso.
+(Así adicionado mediante sesión extraordinaria N° 35-2014 del 23 de junio del 2014)
