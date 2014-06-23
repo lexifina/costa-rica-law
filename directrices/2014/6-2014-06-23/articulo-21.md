@@ -1,0 +1,1 @@
+Artículo 21.—Información en sitios electrónicos. Las regulaciones normativas sobre el PND, las metodologías descritas en esta Directriz, el PND y los informes relacionados con el PND, estarán disponibles a la ciudadanía en los sitios electrónicos de la Presidencia de la República, de MIDEPLAN y de las demás instituciones públicas participantes en el PND.

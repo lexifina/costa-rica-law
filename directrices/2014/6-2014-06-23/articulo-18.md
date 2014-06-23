@@ -1,0 +1,1 @@
+Artículo 18.—Compromisos internacionales. En el marco de los compromisos internacionales asumidos por el país, las instituciones públicas que tengan responsabilidades en sus cumplimientos incluirán los respectivos planes, programas o proyectos estratégicos, con sus correspondientes metas, en las propuestas sectoriales, con sus asignaciones presupuestarias.

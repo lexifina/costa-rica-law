@@ -1,0 +1,1 @@
+Artículo 2º—Prioridad. Las y los ministros, con o sin cartera, los presidentes ejecutivos y demás jerarcas de instituciones públicas asumirán como prioritario los procesos de elaboración, programación, ejecución, seguimiento y evaluación de las metas establecidas en el PND, así como la asignación de los recursos correspondientes para su realización.
