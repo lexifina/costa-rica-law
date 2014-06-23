@@ -1,0 +1,8 @@
+Nº 135-2014
+ASUNTO: Reiteración de la circular No. 160-2012, sobre “Improcedencia de conciliar en asuntos donde existe violencia doméstica de fondo”.
+A LAS SERVIDORAS Y SERVIDORES QUE REALIZAN O PARTICIPAN EN CONCILIACIONES JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 52-14, celebrada el 5 de junio del 2014, artículo LXXII, acordó reiterarles la circular N° 160-2012, sobre “Improcedencia de conciliar en asuntos donde existe violencia doméstica de fondo”, publicada en el Boletín Judicial N° 195 del 9 de octubre de 2012, que indica:
+“El Consejo Superior, en sesión Nº 78-12, celebrada el 3 de agosto último, artículo XXXIV, acordó comunicarles el criterio de la comisión de violencia doméstica que considera que es improcedente conciliar casos de la materia de violencia doméstica, ni tampoco proponer la conciliación ni homologar acuerdos en los casos de otras materias, donde está presente dicha violencia, y se dé la situación que se expone en el párrafo siguiente.
+Al pretender conciliar en otras materias (civil, penal, contravencional, pensiones alimentarias y familia) no deben ofrecerse ni homologarse acuerdos que revictimicen ni legitimen situaciones de violencia, como lo serían por ejemplo, que la persona agresora se mantenga dentro de la vivienda, que se permita de nuevo su ingreso o que se archiven las medidas de protección que han sido dictadas por orden judicial. En éste último caso, debe recordarse que la vigencia o no de las medidas de protección es una decisión de la autoridad judicial y no queda a disposición de la persona víctima, máxime si con eso se pone en riesgo su dignidad o su integridad física o emocional”.
+San José, 23 de junio 2014.
