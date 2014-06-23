@@ -1,0 +1,16 @@
+# Resolución 193
+
+Establece el procedimiento para las reservaciones en el Parque Nacional Chirripó
+
+- Tipo: Resolución
+- Número: 193
+- Fecha: 2014-05-21
+- Ente emisor: Sistema Nacional de Áreas de Conservación
+- Publicación: La Gaceta N° 110 del 2014-06-10
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=77489&param2=97147&param3=1 (ficha 77489)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2014-06-23 | la propia norma |
