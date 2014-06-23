@@ -1,1 +1,0 @@
-Artículo 15.—Control Interno. El control de facturas se realizará por medio del Sistema SIPRO o el que designe la Administración en su momento. Y corresponderá al Encargado titular y la jefatura respectiva velar por el cumplimiento de las disposiciones de control establecidas tanto este Reglamento como la normativa conexa.
