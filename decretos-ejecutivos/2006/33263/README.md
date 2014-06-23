@@ -21,3 +21,4 @@ Publica Resolución N° 156-2006 (COMIECO-EX), Reglamento Centroamericano sobre 
 | 6 | 2010-11-04 | Decreto Ejecutivo 36316 (2010-11-04) |
 | 7 | 2011-12-13 | Decreto Ejecutivo 36939 (2011-12-13) |
 | 8 | 2013-05-27 | Decreto Ejecutivo 37762 (2013-05-27) |
+| 9 | 2014-06-23 | Decreto Ejecutivo 38531 (2014-06-23) |

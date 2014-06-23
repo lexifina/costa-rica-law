@@ -23,13 +23,21 @@ CAPÍTULO 1: ANIMALES VIVOS
 01.01- 01.06 - Un cambio a la partida 01.01 a 01.06 desde cualquier otro capítulo.
 CAPÍTULO 2: CARNE Y DESPOJOS COMESTIBLES
 02.01 - 02.02 - Un cambio a la partida 02.01 a 02.02 desde cualquier otro capítulo, excepto de la partida 01.02.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 02.03 - Un cambio a la partida 02.03 desde cualquier otro capítulo, excepto de la partida 01.03.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 02.04 - 02.05 - Un cambio a la partida 02.04 a 02.05 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 0206.10 - 0206.29 - Un cambio a la subpartida 0206.10 a 0206.29 desde cualquier otro capítulo, excepto de la partida 01.02.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 0206.30 - 0206.49 - Un cambio a la subpartida 0206.30 a 0206.49 desde cualquier otro capítulo, excepto de la partida 01.03.
-0206.80 - 0206.90 - Un cambio a la subpartida 0206.80 a 0206.90 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
+0206.80 - 0206.90 - Un cambio a la subpartida 0206.80 a 0206.90 desde cualquier otro capítulo
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 02.07 - Un cambio a la partida 02.07 desde cualquier otro capítulo, excepto de la subpartida 0105.94 a 0105.99.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 02.08 - Un cambio a la partida 02.08 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 02.09 - Un cambio a la partida 02.09 desde cualquier otro capítulo, excepto de la partida 01.03 (sólo tocino).
 02.10 - Un cambio a la partida 02.10 desde cualquier otro capítulo.
 CAPÍTULO 3: PESCADOS Y CRUSTÁCEOS, MOLUSCOS Y DEMÁS
@@ -48,6 +56,7 @@ NO EXPRESADOS NI COMPRENDIDOS EN OTRA PARTE
 0402.10 - 0402.29 - Un cambio a la subpartida 0402.10 a 0402.29 desde cualquier otro capítulo, excepto de la partida 19.01.
 0402.91 - 0402.99 - Un cambio a la subpartida 0402.91 a 0402.99 desde cualquier otro capítulo.
 04.03 - 04.04 - Un cambio a la partida 04.03 a 04.04 desde cualquier otro capítulo, excepto de la partida 19.01.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 04.05 - Un cambio a la partida 04.05 desde cualquier otro capítulo.
 04.06 - Un cambio a la partida 04.06 desde cualquier otro capítulo, excepto de la partida 35.01.
 04.07 - 04.10 - Un cambio a la partida 04.07 a 04.10 desde cualquier otro capítulo.
@@ -70,9 +79,13 @@ CAPÍTULO 8: FRUTAS Y FRUTOS COMESTIBLES; CORTEZAS DE AGRIOS
 08.01- 08.14 - Un cambio a la partida 08.01 a 08.14 desde cualquier otro capítulo.
 CAPÍTULO 9: CAFÉ, TÉ, YERBA MATE Y ESPECIAS
 09.01 - 09.03 - Un cambio a la partida 09.01 a 09.03 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 0904.11 - 0904.12 - Un cambio a la subpartida 0904.11 a 0904.12 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 0904.21 - 0904.22 Un cambio a la subpartida 0904.21 a 0904.22 desde cualquier otro capítulo, excepto de la subpartida 0709.60.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 09.05 - 09.10 - Un cambio a la partida 09.05 a 09.10 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 CAPÍTULO 10: CEREALES
 10.01- 10.08 - Un cambio a la partida 10.01 a 10.08 desde cualquier otro capítulo.
 CAPÍTULO 11: PRODUCTOS DE LA MOLINERÍA ; MALTA; ALMIDÓN Y FÉCULA;
@@ -88,12 +101,15 @@ INULINA; GLUTEN DE TRIGO
 1104.19.90 - Un cambio al inciso 1104.19.90 desde cualquier otro capítulo.
 1104.22 - 1104.30 - Un cambio a la subpartida 1104.22 a 1104.30 desde cualquier otro capítulo.
 11.05 - Un cambio a la partida 11.05 desde cualquier otro capítulo, excepto de la partida 07.01, de la subpartida 0710.10 y la papa seca de la subpartida 0712.90.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 11.06 - 11.07 - Un cambio a la partida 11.06 a 11.07 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 1108.11 - 1108.12 - Un cambio a la subpartida 1108.11 a 1108.12 desde cualquier otro capítulo, excepto de la partida 10.05.
 1108.13 - Un cambio a la subpartida 1108.13 desde cualquier otro capítulo, excepto de la partida 07.01, de la subpartida 0710.10 y la papa seca de la subpartida 0712.90.
 1108.14 - Un cambio a la subpartida 1108.14 desde cualquier otro capítulo, excepto de la subpartida 0714.10.
 1108.19 - 1108.20 - Un cambio a la subpartida 1108.19 a 1108.20 desde cualquier otro capítulo.
 11.09 - Un cambio a la partida 11.09 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 CAPÍTULO 12: SEMILLAS Y FRUTOS OLEAGINOSOS; SEMILLAS Y FRUTOS
 DIVERSOS; PLANTAS INDUSTRIALES O MEDICINALES; PAJA Y FORRAJES
 12.01- 12.14 - Un cambio a la partida 12.01 a 12.14 desde cualquier otro capítulo.
@@ -139,33 +155,46 @@ CAPÍTULO 17: AZUCARES Y ARTÍCULOS DE CONFITERÍA
 CAPÍTULO 18: CACAO Y SUS PREPARACIONES
 18.01 - 18.02 - Un cambio a la partida 18.01 a 18.02 desde cualquier otro capítulo.
 18.03 - Un cambio a la partida 18.03 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 18.04 - 18.05 - Un cambio a la partida 18.04 a 18.05 desde cualquier otra partida, excepto de la partida 18.03.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 18.06 - Un cambio a la partida 18.06 desde cualquier otra partida, siempre que el cacao originario utilizado no sea inferior al 50% en peso del cacao utilizado en la producción de la mecánica
 CAPÍTULO 19: PREPARACIONES A BASE DE CEREALES, HARINA, ALMIDÓN,
 FÉCULA O LECHE; PRODUCTOS DE PASTELERÍA
 1901.10 - Un cambio a la subpartida 1901.10 desde cualquier otro capítulo, excepto de la partida 04.02.
 1901.20 - Un cambio a la subpartida 1901.20 desde cualquier otro capítulo, excepto de la partida 11.01, de la subpartida 1103.11 o del inciso 1103.20.10
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 1901.90 - Un cambio a la subpartida 1901.90 desde cualquier otra partida, excepto de la partida 04.02.
 19.02 - Un cambio a la partida 19.02 desde cualquier otro capítulo, excepto de la partida 11.01, de la subpartida 1103.11 o del inciso 1103.20.10
 19.03 - Un cambio a la partida 19.03 desde cualquier otra partida.
 1904.10 - 1904.20 - Un cambio a la subpartida 1904.10 a 1904.20 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 1904.30 - 1904.90 - Un cambio a la subpartida 1904.30 a 1904.90 desde cualquier otra partida, excepto de la partida 10.06.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 19.05 - Un cambio a la partida 19.05 desde cualquier otro capítulo, excepto de la partida 11.01, de la subpartida 1103.11 o del inciso 1103.20.10.
 CAPÍTULO 20: PREPARACIONES DE HORTALIZAS, FRUTAS U OTROS FRUTOS
 O DEMÁS PARTES DE PLANTAS
 20.01 - Un cambio a la partida 20.01 desde cualquier otro capítulo, excepto del capítulo 7.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 20.02 - Un cambio a la partida 20.02 desde cualquier otro capítulo, excepto de la partida 07.02.
 20.03 - Un cambio a la partida 20.03 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 20.04 - Un cambio a la partida 20.04 desde cualquier otro capítulo, excepto del capítulo 7 o la partida 11.05.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 2005.10 - Un cambio a la subpartida 2005.10 desde cualquier otra subpartida.
 2005.20 - Un cambio a la subpartida 2005.20 desde cualquier otro capítulo, excepto del capítulo 7 o de la partida 11.05.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 2005.40 - 2005.99 - Un cambio a la subpartida 2005.40 a 2005.99 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 20.06 - Un cambio a la partida 20.06 desde cualquier otro capítulo, excepto del capítulo 8.
 2007.10 - Un cambio a la subpartida 2007.10 desde cualquier otra subpartida.
 2007.91 - 2007.99 - Un cambio a la subpartida 2007.91 a 2007.99 desde cualquier otra partida.
 2008.11 - 2008.19 - Un cambio a la subpartida 2008.11 a 2008.19 desde cualquier otro capítulo, excepto de la partida 12.02.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 2008.20 - Un cambio a la subpartida 2008.20 desde cualquier otra partida, excepto de la subpartida 0804.30.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 2008.30 - Un cambio a la subpartida 2008.30 desde cualquier otro capítulo, excepto de la partida 08.05.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 2008.40 - 2008.99 - Un cambio a la subpartida 2008.40 a 2008.99 desde cualquier otra partida.
 2009.11 - 2009.89 - Un cambio a la subpartida 2009.11 a 2009.89 desde cualquier otra subpartida, incluso a partir de sus concentrados.
 2009.90 - Un cambio a la subpartida 2009.90 desde cualquier otra subpartida.
@@ -175,9 +204,12 @@ CAPÍTULO 21: PREPARACIONES ALIMENTICIAS DIVERSAS
 2102.10 - Un cambio a la subpartida 2102.10 desde cualquier otra subpartida, incluso elaboradas a partir de levaduras madre para cultivo.
 2102.20 - 2102.30 - Un cambio a la subpartida 2102.20 a 2102.30 desde cualquier otro capítulo.
 2103.10 - 2103.20 - Un cambio a la subpartida 2103.10 a 2103.20 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 2103.30 - Un cambio a la subpartida 2103.30 desde cualquier otra subpartida, incluido el cambio de la harina de mostaza a mostaza preparada.
 2103.90 - Un cambio a la subpartida 2103.90 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 21.04 - Un cambio a la partida 21.04 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 21.05 - Un cambio a la partida 21.05 desde cualquier otro capítulo, excepto de la partida 04.01 a 04.03 o la subpartida 1901.90.
 21.06 - Un cambio a la partida 21.06 desde cualquier otro capítulo.
 CAPÍTULO 22: BEBIDAS, LÍQUIDOS ALCÓHOLICOS Y VINAGRE
@@ -190,6 +222,7 @@ CAPÍTULO 22: BEBIDAS, LÍQUIDOS ALCÓHOLICOS Y VINAGRE
 2208.40 - Un cambio a la subpartida 2208.40 desde cualquier otro capítulo, excepto de la partida 17.01, 17.03, 22.07 o las preparaciones compuestas para elaboración de bebidas de la subpartida 2106.90.
 2208.50 - 2208.90 - Un cambio a la subpartida 2208.50 a 2208.90 desde cualquier otra partida, excepto de la partida 22.07.
 22.09 - Un cambio a la partida 22.09 desde cualquier otra partida, excepto de la subpartida 2915.21.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 CAPÍTULO 23: RESIDUOS Y DESPERDICIOS DE LAS INDUSTRIAS
 ALIMENTARIAS; ALIMENTOS PREPARADOS PARA ANIMALES
 23.01- 23.09 - Un cambio a la partida 23.01 a 23.09 desde cualquier otro capítulo.
@@ -202,6 +235,7 @@ PRODUCTOS MINERALES
 CAPÍTULO 25: SAL; AZUFRE; TIERRAS Y PIEDRAS; YESOS, CALES Y
 CEMENTOS
 25.01- 25.30 - Un cambio a la partida 25.01 a 25.30 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 CAPÍTULO 26: MINERALES METALÍFEROS, ESCORIAS Y CENIZAS
 26.01 - 26.17 - Un cambio a la partida 26.01 a 26.17 desde cualquier otro capítulo.
 26.18 - 26.21 - Un cambio a la partida 26.18 a 26.21 desde cualquier otra partida.
@@ -210,6 +244,7 @@ PRODUCTOS DE SU DESTILACIÓN; MATERIAS BITUMINOSAS; CERAS
 MINERALES
 27.01 - 27.09 - Un cambio a la partida 27.01 a 27.09 desde cualquier otro capítulo.
 27.10 - 27.13 - Un cambio a la partida 27.10 a 27.13 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 27.14 - Un cambio a la partida 27.14 desde cualquier otro capítulo.
 27.15 - 27.16 - Un cambio a la partida 27.15 a 27.16 desde cualquier otra partida.
 SECCIÓN VI
@@ -352,13 +387,16 @@ BARNICES; MASTIQUES; TINTAS
 32.05 - 32.07 - Un cambio a la partida 32.05 a 32.07 desde cualquier otra partida.
 32.08 - Un cambio a la partida 32.08 desde cualquier otra partida, incluido el cambio interno a partir de las disoluciones de materias plásticas en disolventes orgánicos.
 32.09 - 32.10 - Un cambio a la partida 32.09 a 32.10 desde cualquier otra partida, fuera del grupo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 32.11 - 32.12 - Un cambio a la partida 32.11 a 32.12 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 3213.10 - Un cambio a la subpartida 3213.10 desde cualquier otra subpartida, siempre que cada artículo componente sea originario de la región.
 3213.90 - Un cambio a la subpartida 3213.90 desde cualquier otra partida.
 32.14 – 32.15 – Un cambio a la partida 32.14 a 32.15 desde cualquier otra partida.
 CAPÍTULO 33: ACEITES ESENCIALES Y RESINOIDES; PREPARACIONES DE
 PERFUMERÍA, DE TOCADOR O DE COSMÉTICA
 33.01 - Un cambio a la partida 33.01 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 33.02 - Un cambio a la partida 33.02 desde cualquier otra partida.
 33.03 - 33.07 - Un cambio a la partida 33.03 a 33.07 desde cualquier otra partida, fuera del grupo.
 CAPÍTULO 34: JABÓN, AGENTES DE SUPERFICIE ORGÁNICOS,
@@ -411,6 +449,7 @@ CAPÍTULO 39: PLÁSTICO Y SUS MANUFACTURAS
 39.05 - 39.15 - Un cambio a la partida 39.05 a 39.15 desde cualquier otra partida.
 39.16 - 39.19 - Un cambio a la partida 39.16 a 39.19 desde cualquier otra partida, fuera del grupo.
 39.20 - 39.21 - Un cambio a la partida 39.20 a 39.21 desde cualquier otra partida. La elaboración de láminas, hojas, placas y tiras estratificadas o laminadas con materias plásticas de esta partida, confiere origen.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 39.22 - 39.26 - Un cambio a la partida 39.22 a 39.26 desde cualquier otra partida.
 CAPÍTULO 40: CAUCHO Y SUS MANUFACTURAS
 40.01 - Un cambio a la partida 40.01 desde cualquier otro capítulo.
@@ -437,6 +476,7 @@ CONTINENTES SIMILARES; MANUFACTURAS DE TRIPA
 CAPÍTULO 43: PELETERÍA Y CONFECCIONES DE PELETERÍA; PELETERÍA
 FACTICIA O ARTIFICIAL
 43.01 - Un cambio a la partida 43.01 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 43.02 - 43.04 - Un cambio a la partida 43.02 a 43.04 desde cualquier otra partida.
 SECCIÓN IX
 MADERA, CARBÓN VEGETAL Y MANUFACTURAS DE MADERA; CORCHO Y
@@ -468,7 +508,9 @@ DE PAPEL O CARTÓN
 48.01 - Un cambio a la partida 48.01 desde cualquier otro capítulo.
 48.02 - Un cambio a la partida 48.02 desde cualquier otro capítulo, permitiéndose el cambio interno en esta partida para los papeles y cartones en tiras o bobinas (rollos) de anchura inferior o igual a 150 mm o en hojas cuadradas o rectangulares en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm .
 48.03 - 48.05 - Un cambio a la partida 48.03 a 48.05 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 48.06 - 48.09 - Un cambio a la partida 48.06 a 48.09 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 48.10 - 48.11 - Un cambio a la partida 48.10 a 48.11 desde cualquier otra partida, permitiéndose:
 a) el cambio interno para los papeles y cartones en tiras o bobinas (rollos) de anchura inferior o igual a 150 mm o en hojas cuadradas o rectangulares en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm .
 b) el proceso de laminado o estratificado incluso con otras materias, confiere origen.
@@ -505,7 +547,7 @@ CAPÍTULO 52: ALGODÓN
 52.04 - 52.06 - Un cambio a la partida 52.04 a 52.06 desde cualquier otra partida.
 52.07 - Un cambio a la partida 52.07 desde cualquier otra partida, excepto de la partida 52.05 ó 52.06.
 52.08 - 52.12 - Un cambio a la partida 52.08 a 52.12 desde cualquier otra partida, excepto de la partida 52.05 a 52.07
-.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 CAPÍTULO 53: LAS DEMÁS FIBRAS TEXTILES VEGETALES; HILADOS DE
 PAPEL Y TEJIDOS DE HILADOS DE PAPEL
 53.01 - 53.05 - Un cambio a la partida 53.01 a 53.05 desde cualquier otro capítulo.
@@ -627,8 +669,10 @@ CAPÍTULO 72: FUNDICIÓN, HIERRO Y ACERO
 72.06 - 72.07 - Un cambio a la partida 72.06 a 72.07 desde cualquier otra partida.
 7208.10 - 7209.90 - Un cambio a la subpartida 7208.10 a 7209.90 desde cualquier otra subpartida.
 7210.11 - 7210.30 - Un cambio a la subpartida 7210.11 a 7210.30 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 7210.41 - 7210.49 - Un cambio a la subpartida 7210.41 a 7210.49 desde cualquier otra subpartida.
 7210.50 - 7210.90 - Un cambio a la subpartida 7210.50 a 7210.90 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 72.11 - Un cambio a la partida 72.11 desde cualquier otra partida.
 72.12 - Un cambio a la partida 72.12 desde cualquier otra partida, excepto de la partida 72.10.
 72.13 - 72.15 - Un cambio a la partida 72.13 a 72.15 desde cualquier otra partida, fuera del grupo.
@@ -679,21 +723,34 @@ CAPÍTULO 82: HERRAMIENTAS Y ÚTILES, ARTÍCULOS DE CUCHILLERÍA Y
 CUBIERTOS DE MESA, DE METAL COMÚN; PARTES DE ESTOS ARTÍCULOS, DE
 METAL COMÚN
 82.01 - 82.02 - Un cambio a la partida 82.01 a 82.02 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 82.03 - 83.04 - Un cambio a la partida 82.03 a 82.04 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 8205.10 - 8205.70 - Un cambio a la subpartida 8205.10 a 8205.70 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 8205.90 - Un cambio a yunques; fraguas portátiles, muelas de mano o pedal, con bastidor de la subpartida 8205.90 desde cualquier otra partida, o
 Un cambio a cualquier otro producto de la subpartida 8205.90 desde cualquier otra subpartida, siempre que cada herramienta componente sea originaria de la región.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 82.06 - Un cambio a la partida 82.06 desde cualquier otra partida, siempre que cada herramienta componente sea originaria de la región.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 82.07- 82.08 - Un cambio a la partida 82.07 a 82.08 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 82.09 - Un cambio a la partida 82.09 desde cualquier otro capítulo.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 82.10 - Un cambio a la partida 82.10 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 82.11 - 82.12 - Un cambio a la partida 82.11 a 82.12 desde cualquier otra partida, incluso a partir de sus esbozos.
 82.13 - Un cambio a la partida 82.13 desde cualquier otra partida.
 8214.10 - Un cambio a la subpartida 8214.10 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 8214.20 - Un cambio a la subpartida 8214.20 desde cualquier otra partida, siempre que cada componente sea originario de la región.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 8214.90 - Un cambio a la subpartida 8214.90 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 8215.10 - 8215.20 - Un cambio a la subpartida 8215.10 a 8215.20 desde cualquier otra partida, siempre que cada componente del surtido sea originario de la región.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 8215.91 - 8215.99 - Un cambio a la subpartida 8215.91 a 8215.99 desde cualquier otra partida.
+(Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
 CAPÍTULO 83: MANUFACTURAS DIVERSAS DE METAL COMÚN
 8301.10 - 8301.70 - Un cambio a la subpartida 8301.10 a 8301.70 desde cualquier otra subpartida.
 83.02 - 83.11 - Un cambio a la partida 83.02 a 83.11 desde cualquier otra partida.
