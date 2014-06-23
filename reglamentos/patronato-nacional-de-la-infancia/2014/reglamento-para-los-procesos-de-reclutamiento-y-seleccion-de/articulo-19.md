@@ -1,0 +1,2 @@
+Artículo 19.—Las pruebas de solicitantes a puestos del PANI se calificarán con una escala del uno al cien, estableciendo la nota de setenta como calificación mínima aceptable. Los candidatos que alcancen una calificación mínima de 70% integraran el registro de candidatos elegibles, de donde se escogen a las personas que ofrezcan un mejor pronóstico de éxito.
+Las personas que obtengan una calificación menor de 70% quedan automáticamente excluidos del proceso.

@@ -1,0 +1,2 @@
+Artículo 15.—Del proceso de selección. La selección del personal incluye las siguientes etapas: análisis de atestados, realización de entrevista, pruebas de conocimientos, cualquier otra prueba que se considere pertinente y pruebas psicométricas (aptitudinales, actitudinales y de personalidad), así como investigación laboral y de seguridad.
+La persona que aspire y que cumpla los requisitos solicitados en una de las etapas, según el orden establecido, continúa en el proceso de selección.

@@ -1,0 +1,1 @@
+Artículo 5º—Igualdad de participación. Las instancias referidas en este Reglamento, tienen la obligación de ejercer sus competencias garantizando la no discriminación, la publicidad, objetividad, transparencia, la igualdad de oportunidades de los participantes, en los procesos concursales.

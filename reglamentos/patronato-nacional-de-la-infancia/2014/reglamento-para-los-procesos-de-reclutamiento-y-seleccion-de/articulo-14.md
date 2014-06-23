@@ -1,0 +1,3 @@
+Artículo 14.—Responsabilidades del oferente. Toda persona que aspire a prestar servicios en el PANI deberá someterse al proceso de selección de personal establecido por la institución.
+La información suministrada por el oferente se considera recibida bajo juramento y, por consiguiente, cualquier inexactitud o alteración constituye falta grave y da lugar a que el (la) aspirante no obtenga el empleo o sea destituido en caso de haber sido contratado.
+Realizar todas las pruebas definidas por el Departamento de Recursos Humanos, previamente a la publicación del concurso, que permitan evaluar habilidades, actitudes y conocimientos idóneos para el desempeño del puesto.

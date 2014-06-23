@@ -1,0 +1,1 @@
+Artículo 28.—Las permutas de funcionarios (as) que ocupen cargos de igual clase podrán ser acordadas por los Jefes de las unidades administrativas o técnicas respectivas, y si hubiere anuencia de los interesados, y autorizada por la Presidencia Ejecutiva.

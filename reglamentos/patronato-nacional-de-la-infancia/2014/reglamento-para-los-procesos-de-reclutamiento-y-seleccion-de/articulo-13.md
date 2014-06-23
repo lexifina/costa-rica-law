@@ -1,0 +1,4 @@
+Artículo 13.—Convocatoria para integrar el Registro de Elegibles: El Departamento de Recursos Humanos convocará a integrar el Registro de Elegibles en las siguientes situaciones:
+a. Para puestos administrativos o técnicos para cubrir nombramientos por períodos iguales o menores de dos meses, cuando lo considere necesario.
+b. Ante la expectativa de vacantes Administrativas y Técnicas; a petición de las oficinas solicitantes, o de la Presidencia Ejecutiva según corresponda.
+La regulación y control de los registros de candidatos elegibles es responsabilidad del Departamento de Recursos Humanos. La vigencia de cada registro de elegibles la determinará discrecionalmente el Departamento de Recursos Humanos, considerando para ello las necesidades de la institución y la conveniencia y funcionalidad del servicio.

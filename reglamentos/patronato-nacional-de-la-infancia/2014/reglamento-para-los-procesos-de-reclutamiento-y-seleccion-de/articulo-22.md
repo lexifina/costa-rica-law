@@ -1,0 +1,2 @@
+Artículo 22.—Al recibir el pedimento, el Departamento de Recursos Humanos, deberá presentarle al Jefe de la unidad solicitante, dentro de un término máximo de cinco días hábiles una nómina de los candidatos más idóneos.
+En los casos en que sea necesario hacer concurso para la vacante, a juicio del Departamento de Recursos Humanos, el jefe de la unidad correspondiente podrá nombrar interinamente sustitutos.
