@@ -1,0 +1,1 @@
+Artículo 17.—La Unidad Técnica de Gestión Vial Municipal procede a efectuar los registros y comunicar el caso al Catastro Municipal, así como a la Dirección de Planificación Sectorial del MOPT para efectuar las modificaciones en el catastro y en el Registro Vial Cantonal.

@@ -1,0 +1,1 @@
+Artículo 16.—La Proveeduría tramita la publicación del edicto en el Diario Oficial La Gaceta o en algún otro medio de divulgación pública. Con la comprobación documental de las publicaciones, remite el expediente íntegro a la Unidad Técnica de Gestión Vial Municipal.

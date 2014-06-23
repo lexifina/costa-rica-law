@@ -1,0 +1,1 @@
+Artículo 15.—La Alcaldía Municipal, en caso de improbación, remite los atestados a la Unidad Técnica de Gestión Vial Municipal para el archivo de las diligencias. En caso de haber sido aprobado, la Alcaldía Municipal traslada lo actuado a la Proveeduría Municipal, instruyendo la publicación correspondiente.

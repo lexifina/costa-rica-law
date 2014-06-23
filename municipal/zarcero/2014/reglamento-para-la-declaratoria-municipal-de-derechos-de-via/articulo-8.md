@@ -1,0 +1,1 @@
+Artículo 8º—La Alcaldía Municipal analiza, preferiblemente con el concurso del asesor legal, los atestados y, de resultar procedente, suscribe nota de remisión del expediente ante la Secretaría del Concejo Municipal.

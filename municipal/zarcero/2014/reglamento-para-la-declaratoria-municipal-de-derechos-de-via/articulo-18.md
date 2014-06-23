@@ -1,0 +1,2 @@
+Artículo 18.—La Unidad Técnica de Gestión Vial Municipal, en caso de considerarlo conveniente, oportuno y adecuado a las posibilidades del ayuntamiento, aunque no imperativo dado el principio de inmatriculación de los caminos públicos municipales, solicita a la Alcaldía Municipal gestionar la formalización de la escritura pública de la donación del camino, ya fuere ante la Notaría del Estado o ante la Asesoría Legal Municipal, en caso de ser aprobado el trámite por la Procuraduría General de la República. Rige a partir de su publicación.
+Zarcero, 16 de junio del 2014.—
