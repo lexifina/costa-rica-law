@@ -46,6 +46,8 @@ Nota de Capítulo:
 Los peces o pescados, crustáceos, moluscos y otros invertebrados acuáticos, serán considerados originarios aunque hayan sido cultivados a partir de alevines(1) o larvas no originarios.
 (1) Alevines significa peces en estado de post-larva, incluyendo otros pececillos, esguines y angulas
 03.01 – 03.05 - Un cambio a la partida 03.01 a 03.05 desde cualquier otro capítulo
+03.05 - Un cambio a la partida 03.05 desde cualquier otro capítulo permitiéndose la utilización de salmón no originario de la partida 03.02, 03.03 y 03.04.
+(Así adicionada la regla de origen anterior por el artículo 1° del decreto ejecutivo N° 38528 del 23 de junio del 2014 "Publica la Resolución N° 343-2014 (COMIECO-LXVII) del 25 de abril de 2014: Modificación a la Regla de Origen Específica para salmón")
 03.06 - Un cambio en la partida 03.08 desde cualquier otro capítulo, permitiéndose el cambio Interno dentro de esta misma partida cuando se trate de crustáceos ahumados, incluso pelados o cocidos, antes o durante el ahumado.
 03.07 - Un cambio a la partida 03.01 a 03.07 desde cualquier otro capítulo.
 03.08 - Un cambio en la partida 03.08 desde cualquier otro capítulo, permitiéndose el cambio Interno dentro de esta misma partida cuando se trate de invertebrados acuáticos, excepto los crustáceos y moluscos, ahumados, incluso pelados o cocidos, antes o durante el ahumado.
