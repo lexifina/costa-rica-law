@@ -1,4 +1,4 @@
 Artículo 23.—Cantidad de licencias a autorizar. En cada distrito del cantón, y exclusivamente para las actividades descritas en las categorías A (Licoreras) y B (cantinas, bares, tabernas, salones de baile, discotecas, clubes nocturnos y cabarés) solo podrá autorizarse una licencia de licores por cada trescientos habitantes. Para ello solo será válido, el último estudio de población realizado por el INEC (Instituto Nacional de Estadística y Censo).
 Dentro de la estadística deberá incorporarse la cantidad total de licencias autorizadas, tanto por la Ley N° 10 del 7 de octubre de 1936, como por la Ley N° 9047 del 8 de agosto del 2012.
 Las patentes de licores que hayan sido adquiridas o concedidas para un distrito no podrán utilizarse en otro.
-(Así reformado mediante sesión ordinaria N° 075-2013 del 16 de diciembre del 2013)
+(Así reformado mediante acuerdo N° 726-2014 del 23 de junio del 2014, publicado en La Gaceta N° 138 del 18 de julio del 2014)

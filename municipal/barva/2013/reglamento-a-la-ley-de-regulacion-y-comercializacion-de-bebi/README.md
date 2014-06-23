@@ -16,3 +16,4 @@ Reglamento a la Ley de Regulación y Comercialización de bebidas con contenido 
 | 1 | 2013-02-26 | la propia norma |
 | 2 | 2013-05-14 | Reglamento municipal 0 (2013-05-14) |
 | 3 | 2013-12-16 | Reglamento municipal 75 (2013-12-16) |
+| 4 | 2014-06-23 | Reglamento municipal 0 (2014-06-23) |
