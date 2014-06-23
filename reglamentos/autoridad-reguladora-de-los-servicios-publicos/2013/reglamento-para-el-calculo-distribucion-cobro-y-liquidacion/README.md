@@ -14,3 +14,4 @@ Reglamento para el cálculo, distribución, cobro y liquidación de cánones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-19 | la propia norma |
+| 2 | 2014-06-23 | Reglamento 35 (2014-06-23) |
