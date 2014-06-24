@@ -11,4 +11,5 @@ i) Facilitar y promover la cohesión del sistema de comunicación institucional 
 j) Resolver cualquier asunto en caso de empate, para lo cual tendrá voto de calidad.
 k) De manera ágil e informal –cuando las circunstancias lo permitan o formalmente –cuando la relevancia del asunto lo imponga– someterá a validación de la Presidencia del Tribunal las decisiones adoptadas por el CEC.
 l) Será el enlace entre el CEC y la Presidencia del TSE, a la que transmitirá las recomendaciones y perspectivas del consejo e, igualmente, llevará al consejo o individualmente a las instancias que lo integran- las directrices específicas y líneas generales de acción, que disponga la Presidencia del TSE, por cuya ejecución velará.
-m) Convocar al Equipo de Respuesta Inmediata para la atención de situaciones conforme el Manual de Crisis Institucional.
+m) Convocar al Equipo de Respuesta Inmediata para la atención de situaciones conforme el Protocolo de comunicación para el manejo de crisis y temas sensibles.
+(Así reformado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 4-2014 del 24 de junio del 2014)

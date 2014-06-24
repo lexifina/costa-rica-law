@@ -14,3 +14,4 @@ Reglamento de funcionamiento del Consejo Estratégico de Comunicaciones del TSE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-23 | la propia norma |
+| 2 | 2014-06-24 | Decreto TSE 4 (2014-06-24) |
