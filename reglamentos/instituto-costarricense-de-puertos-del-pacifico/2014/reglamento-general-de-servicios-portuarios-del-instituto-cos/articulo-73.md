@@ -1,0 +1,1 @@
+ARTICULO 73.- Durante la noche y mientras el barco esté trabajando, se debe mantener iluminación adecuada en las bodegas y escalas en uso. El Prestatario del Servicio determinará si la iluminación es apropiada y de no serlo exigirá al capitán mejorar las condiciones.

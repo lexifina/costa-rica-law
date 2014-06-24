@@ -1,0 +1,1 @@
+ARTICULO 6.- Es prohibido para los usuarios y proveedores ofrecer directa o indirectamente a los empleados y funcionarios del INCOP o de los Concesionarios de sus servicios gratificaciones y/o compensaciones por servicios que en el ejercicio de sus cargos deban suministrar. En caso que éstos las acepten acarrearán las sanciones legales y disciplinarias que correspondan.

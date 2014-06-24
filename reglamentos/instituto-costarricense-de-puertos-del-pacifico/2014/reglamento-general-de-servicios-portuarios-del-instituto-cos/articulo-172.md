@@ -1,0 +1,1 @@
+ARTICULO 172.- Por ningún motivo se permitirá la permanencia de vagones o plataformas vacías en las vías del ferrocarril dentro del recinto portuario. Inmediatamente terminada la operación de cargue o descargue, deben ser retirados.

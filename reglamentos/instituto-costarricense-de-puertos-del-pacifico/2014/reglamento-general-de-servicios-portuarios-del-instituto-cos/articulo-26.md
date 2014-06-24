@@ -1,0 +1,1 @@
+ARTÍCULO 26.- Cuando por razones de seguridad o interés del puerto sea necesario cambiar de sitio de fondeo, los capitanes de las naves deberán atender inmediatamente las indicaciones que en este sentido le haga la Autoridad marítima.

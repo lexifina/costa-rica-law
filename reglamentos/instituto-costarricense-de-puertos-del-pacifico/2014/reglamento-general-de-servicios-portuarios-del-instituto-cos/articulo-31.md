@@ -1,0 +1,1 @@
+ARTICULO 31.- Toda embarcación que arribe a los puertos ó sitios de fondeo, deberá encontrarse en perfecto estado de flotabilidad y sus máquinas y aparejos en condiciones óptimas de servicio. A estos efectos portarán los certificados respectivos.

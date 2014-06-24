@@ -1,0 +1,1 @@
+ARTICULO 112.- Los buques en puerto esperando turno para atraque o efectuando operaciones de embarque o desembarque de carga peligrosa o que esté a bordo con destino a otros puertos, deben desplegar las señales establecidas en los reglamentos internacionales, tanto de día como de noche.

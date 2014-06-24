@@ -1,0 +1,1 @@
+ARTICULO 185.- La salida de equipos o herramientas propiedad del Prestatario del Servicio requiere de la autorización escrita del jefe de la dependencia responsable por su custodia. La autorización se debe enviar previamente a la unidad responsable de la seguridad para que instruya a los vigilantes. La autorización debe ser retenida y archivada en esa unidad.

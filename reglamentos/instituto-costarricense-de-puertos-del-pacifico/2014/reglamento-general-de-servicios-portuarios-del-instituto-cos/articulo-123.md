@@ -1,0 +1,1 @@
+ARTÍCULO 123.- Antes de iniciar la operación de descarga o carga por tuberías y mangueras se debe hacer una prueba con un taco de agua para verificar que no existen fugas. Hecho lo anterior, se podrá iniciar la operación. Las mangueras y tuberías tienen que estar en buen estado y debidamente colocadas y con sus uniones y acoples en perfecto estado.

@@ -1,0 +1,1 @@
+ARTICULO 116.- El Capitán, el armador o su representante de la nave descargando o cargando inflamables o explosivos, debe tomar todas las precauciones y medidas necesarias para evitar que sus equipos, máquinas, herramientas, tripulación, etc. generen chispas y o calor que activen las propiedades de las mercancías que se están descargando o cargando.

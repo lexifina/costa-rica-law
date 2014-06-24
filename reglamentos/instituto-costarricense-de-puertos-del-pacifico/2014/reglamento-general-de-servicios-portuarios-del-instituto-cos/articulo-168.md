@@ -1,0 +1,1 @@
+ARTICULO 168.- La unidad responsable de la vigilancia portuaria llevará el control y registro de los pases otorgados. Los pases permanentes y temporales requieren la autorización del Gerente General del Prestatario del Servicio, los demás por la unidad responsable de la vigilancia portuaria.

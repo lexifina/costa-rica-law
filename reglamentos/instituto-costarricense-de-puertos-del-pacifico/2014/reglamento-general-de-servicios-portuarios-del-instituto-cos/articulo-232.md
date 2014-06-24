@@ -1,0 +1,1 @@
+ARTICULO 232.- El INCOP podrá cancelar la autorización, si los intereses de la Institución así lo justifican. Igualmente se cancelará la autorización concedida si se infringen las disposiciones contenidas en este Reglamento.

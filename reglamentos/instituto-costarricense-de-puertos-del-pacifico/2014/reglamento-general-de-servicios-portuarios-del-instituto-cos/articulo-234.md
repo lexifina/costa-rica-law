@@ -1,0 +1,1 @@
+ARTICULO 234.- Hecha la comunicación anterior, la Autoridad Portuaria deberá extender una tarjeta que consigne la hora de salida, actividad, destino, nombre del Capitán y hora de regreso, que deberá refrendar el guarda del INCOP en el puesto de vigilancia.

@@ -1,0 +1,1 @@
+ARTICULO 142.- Para la entrega de cada contenedor de importación, el Prestatario del Servicio de carga lo hará de acuerdo al listado oficial que publica la Dirección General de Aduanas del Ministerio de Hacienda en el sistema TICA.

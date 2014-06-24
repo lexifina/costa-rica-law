@@ -1,0 +1,1 @@
+ARTICULO 100.- Una vez terminadas las operaciones de embarque, el armador o su agente, deben entregar al Prestatario del Servicio de carga, una copia de cada conocimiento de embarque emitido y una copia del manifiesto. En el remisorio se debe indicar si hay modificaciones o correcciones a la información suministrada inicialmente.

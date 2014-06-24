@@ -1,0 +1,1 @@
+ARTICULO 117.- Toda nave que transporte productos inflamables o explosivos, deben contar con equipos fijos y portátiles contra incendio en buenas condiciones de uso y apropiados para el tipo de carga que transporta.

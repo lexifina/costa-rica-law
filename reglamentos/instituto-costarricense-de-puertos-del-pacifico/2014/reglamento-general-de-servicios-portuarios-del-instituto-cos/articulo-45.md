@@ -1,0 +1,3 @@
+CAPITULO VI
+Libre Plática y Visita Oficial
+ARTICULO 45.- Toda nave al arribar a puerto, después de la correspondiente inspección sanitaria, tan pronto como el representante del Ministerio de Salud autoriza la Libre Plática y antes de iniciar operaciones, debe ser visitada oficialmente por los funcionarios públicos que indica la ley, así como el Oficial de Protección de las Instalaciones Portuarias (OPIP) de acuerdo a las exigencias de la OMI. No se tendrá por recibida la nave si no se han entregado a las Autoridades Nacionales y del puerto los documentos requeridos, por lo tanto, tampoco se realizarán las operaciones portuarias.

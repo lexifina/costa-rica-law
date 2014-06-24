@@ -1,0 +1,1 @@
+ARTICULO 75.- El embarque o desembarque de pasajeros, visitantes y tripulación se hará exclusivamente por cuenta y riesgo del armador y su agente, previo el cumplimiento de las disposiciones legales de migración y demás trámites que exijan las autoridades de control, así como las normas de seguridad del puerto.

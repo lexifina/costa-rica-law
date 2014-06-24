@@ -1,0 +1,2 @@
+ARTICULO 98.- Se considera que en la carga de importación constituyen consignación única, todos los bultos que figuran en el mismo conocimiento de embarque, aún cuando sean de diferentes marcas, tipo, contenido peso y tamaño.
+En el caso que un importador requiera la segregación de las mercancías de importación amparadas por un mismo conocimiento de embarque, debe cancelar los costos que implique realizar esta labor conforme a las tarifas existentes.

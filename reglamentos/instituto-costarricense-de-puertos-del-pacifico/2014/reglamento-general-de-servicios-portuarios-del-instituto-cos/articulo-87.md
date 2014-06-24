@@ -1,0 +1,1 @@
+ARTICULO 87.- En el caso de cargas vivas o perecederas, la atención para los animales o a la carga para su supervivencia y conservación en buen estado es responsabilidad del embarcador o consignatario y por lo tanto el Prestatario del Servicio de carga no asume responsabilidad de orden civil o penal por esos conceptos.

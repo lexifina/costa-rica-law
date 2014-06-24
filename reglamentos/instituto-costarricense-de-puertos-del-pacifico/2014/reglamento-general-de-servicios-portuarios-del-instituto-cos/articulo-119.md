@@ -1,0 +1,1 @@
+ARTICULO 119.- Toda carga clasificada como peligrosa debe tener colocado en parte visible el rótulo que especifique la clasificación IMCO para que el Prestatario del Servicio de carga pueda tomar las medidas de almacenaje y segregación que sean necesarias. La responsabilidad por la rotulación de la carga es del armador o su representante.

@@ -1,0 +1,1 @@
+ARTÍCULO 195.- Servicio de limpieza de muelle: Consiste en la limpieza del muelle ocupado por las naves y las instalaciones afectadas por la operación de dicha nave. Este servicio será prestado por el Prestatario del Servicio de carga en todos los puestos de atraque con el personal contratado para el aseo. Su tarifa es por TM embarcada y/o desembarcada.

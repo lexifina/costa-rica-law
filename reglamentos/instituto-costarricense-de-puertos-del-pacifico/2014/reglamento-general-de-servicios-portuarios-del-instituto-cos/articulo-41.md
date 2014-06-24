@@ -1,0 +1,1 @@
+ARTICULO 41.- En los casos de arribo forzoso, y previa autorización de las Autoridades competentes, el Capitán de la nave podrá ordenar el desembarco de las personas y la carga en peligro, bajo su responsabilidad y de cualquier daño ocasionado al Recinto Portuario.

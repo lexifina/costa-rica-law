@@ -1,0 +1,1 @@
+ARTICULO 106.- La mercancía de exportación que no sea embarcada, generará cobro de almacenaje veinticuatro horas después del término de operaciones de la nave. Este cobro se aplicará al armador o a su representante.

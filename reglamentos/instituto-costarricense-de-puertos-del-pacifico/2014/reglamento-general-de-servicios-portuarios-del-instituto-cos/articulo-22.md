@@ -1,0 +1,1 @@
+ARTICULO 22.- La solicitud de atención al buque implica todo tipo de servicio propio de la operación. Los servicios adicionales, tales como teléfono a bordo, telex, energía eléctrica, etc., deben solicitarse según sea necesario conforme se indica en el Artículo 18 de este Reglamento.

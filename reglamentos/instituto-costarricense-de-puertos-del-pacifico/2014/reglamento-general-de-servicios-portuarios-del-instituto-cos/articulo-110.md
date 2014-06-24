@@ -1,0 +1,1 @@
+ARTICULO 110.- Todos los cargos tarifarios que origine el servicio a mercancías en tránsito, se aplicarán al armador o su agente y al corredor aduanero cuando corresponda. Esta situación debe quedar definida al momento de solicitar el servicio.

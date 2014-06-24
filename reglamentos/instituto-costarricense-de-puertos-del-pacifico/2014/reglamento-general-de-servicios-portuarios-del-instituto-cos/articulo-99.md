@@ -1,0 +1,4 @@
+CAPITULO XIV
+Mercancías de Exportación
+ARTÍCULO 99.- El armador o su representante, debe enviar previamente por escrito al Prestatario del Servicio de carga la lista de la carga de exportación indicando: embarcador, consignatario, puerto de destino, Nave y N° de viaje, cantidad, descripción de la carga, peso, marcas, código IMO, N° del conocimiento embarque, nombre de la agencia aduanal y cualquier información adicional que considere pertinente. En el caso de carga en contenedores se debe incluir además, el N° del contenedor, si es condición FCL o LCL, la longitud y su tipo, los números de los precintos de la naviera; si el embarcador ha colocado un precinto propio, este número también debe ser incluido.
+Esta lista es indispensable para la entrega de la carga a la nave por parte del concesionario.

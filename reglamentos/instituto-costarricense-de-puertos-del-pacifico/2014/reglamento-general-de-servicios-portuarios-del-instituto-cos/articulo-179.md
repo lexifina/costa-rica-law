@@ -1,0 +1,1 @@
+ARTICULO 179.- Todo vehículo que ingrese al recinto portuario para retirar mercancías debe estar totalmente vacío. De no ser así, aún cuando porte los permisos del caso, el personal de seguridad impedirá su ingreso.

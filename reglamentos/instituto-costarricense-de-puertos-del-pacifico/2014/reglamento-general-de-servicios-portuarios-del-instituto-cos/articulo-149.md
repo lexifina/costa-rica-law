@@ -1,0 +1,1 @@
+ARTICULO 149.- Los contenedores que contengan carga clasificada como peligrosa por IMCO deben estar rotulados con las etiquetas correspondientes. Esta responsabilidad es del armador o su representante.

@@ -1,0 +1,1 @@
+ARTICULO 204.- Servicio a contenedores refrigerados: Consiste en la conexión, desconexión, vigilancia, monitoreo y suministro de energía eléctrica desde su recibo en la terminal hasta su entrega para exportación o retiro de la terminal. La tarifa es por hora de conexión por contenedor.

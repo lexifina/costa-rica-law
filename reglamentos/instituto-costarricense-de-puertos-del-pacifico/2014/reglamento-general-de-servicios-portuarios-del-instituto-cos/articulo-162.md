@@ -1,0 +1,1 @@
+ARTICULO 162.- Se otorgarán pases permanentes al Presidente Ejecutivo, Gerente General, Auditor, Directivos y aquellos funcionarios de INCOP, cuya autorización fuera solicitada por el Gerente General. Además, a los empleados del Prestatario del Servicio con funciones dentro del recinto portuario y a los ejecutivos de los usuarios autorizados, previa solicitud por escrito.

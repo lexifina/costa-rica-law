@@ -1,0 +1,2 @@
+ARTICULO 115.- Está prohibido fumar o manipular equipos o herramientas que puedan originar chispas o calor, en todos los sitios donde se manipulan y/o almacenan mercancías inflamables o potencialmente explosivas, sean envasadas o a granel. También queda prohibido fumar en las bodegas, talleres y espacios cerrados dentro del terminal en donde no exista autorización expresa para hacerlo.
+El personal de vigilancia está autorizado para retirar del terminal a la persona o personas que se resistan o se nieguen a cumplir esta disposición.

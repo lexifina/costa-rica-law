@@ -1,0 +1,2 @@
+ARTÍCULO 203.- Servicio de alquiler de equipos y maquinaria: Consiste en el suministro de equipos operativos a un usuario, por solicitud del mismo, en caso que el puerto no los pueda proveer o no tenga el tipo de equipo requerido y bajo su autorización se permita el ingreso de equipo de terceros, éstos pagarán por uso de las instalaciones portuarias el 15% de la tarifa estipulada para los equipos del puerto.
+La tarifa es por tipo de equipo por hora y con base en su capacidad.

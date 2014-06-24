@@ -1,0 +1,1 @@
+ARTICULO 70.- El Prestatario del Servicio se reserva el derecho de autorizar el atraque cuando las condiciones de la nave o de la carga sean inseguras y puedan constituir riesgo potencial para las instalaciones, otras naves, los usuarios o el personal.

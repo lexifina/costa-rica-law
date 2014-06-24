@@ -1,0 +1,1 @@
+ARTICULO 166.- Toda persona al ingresar al recinto portuario, deberá exhibir en lugar visible, tanto el pase como el carné de identificación de la empresa en la que labora y atender los avisos de precaución o peligro.

@@ -1,0 +1,3 @@
+ARTICULO 181.- Al salir del recinto portuario, el conductor del vehículo debe entregar al personal de seguridad en la puerta de salida, el original de la autorización de salida de carga firmada por el bodeguero donde conste la clase de carga, marcas, cantidad de bultos, peso, Nº de B L y Nº de la boleta de salida. En el caso de los contenedores, el Nº del contenedor y los Nº de los precintos.
+El personal de seguridad debe confrontar el contenido de la autorización con la carga en el vehículo. Si hay alguna diferencia, detendrá el vehículo e informará de este hecho al superior inmediato y al jefe de bodegas quienes a su vez, deben informar al responsable de operaciones.
+La unidad responsable de seguridad investigará cada caso y hará un reporte para el gerente general.

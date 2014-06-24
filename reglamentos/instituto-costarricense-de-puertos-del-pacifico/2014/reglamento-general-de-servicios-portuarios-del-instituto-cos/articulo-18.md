@@ -1,0 +1,2 @@
+ARTICULO 18.- Todo usuario que necesite el servicio de ayudas a la navegación, deberá requerirlo por escrito ante el INCOP, mediante registro de la Solicitud de Servicios en el Sistema Web de INCOP.
+Dicho registro será firmado por el usuario o su representante previamente acreditado como tal ante la Institución, para lo cual esta llevará un registro de firmas de las personas facultadas por el usuario para contraer las responsabilidades que implica la prestación del servicio

@@ -1,0 +1,1 @@
+ARTICULO 25.- Se conoce como rada la zona comprendida entre el borde del muelle una paralela al mismo a mil metros de distancia y la intersección con esta paralela de la línea centro del rompeolas. En el caso de Puntarenas la rada o zona de maniobras del puerto estará comprendida dentro de un círculo con un radio de 1.000 metros a partir del faro del muelle.

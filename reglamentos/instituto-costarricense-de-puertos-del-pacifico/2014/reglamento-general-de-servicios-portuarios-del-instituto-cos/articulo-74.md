@@ -1,0 +1,1 @@
+ARTICULO 74.- Es prohibido arrojar al mar basuras, cenizas, aceites, material de estiba, desperdicios y cualquier clase de material, desde los buques atracados al muelle o fondeados. En caso de incumplimiento, el Prestatario del Servicio informará este hecho a la autoridad competente para que aplique las sanciones del caso y el pago de los costos de la limpieza.

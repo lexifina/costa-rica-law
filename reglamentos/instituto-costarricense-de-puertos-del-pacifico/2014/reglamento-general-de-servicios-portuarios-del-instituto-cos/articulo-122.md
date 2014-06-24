@@ -1,0 +1,1 @@
+ARTICULO 122.- El personal de guardia de la nave debe revisar por lo menos una vez durante su turno las amarras. Tanto en proa como en popa deberán tenerse cabos listos para pasar a remolcadores para retiro del muelle.

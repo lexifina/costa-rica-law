@@ -1,0 +1,7 @@
+TITULO X
+Otros Servicios
+CAPITULO XXXI
+Servicio para Embarcaciones de Pasajeros
+ARTICULO 212.- Servicio a naves de pasajeros: Las embarcaciones de pasajeros que utilicen las instalaciones portuarias recibirán un servicio especialmente establecido para este tipo de embarcaciones, los cuales contemplan únicamente los servicios relativos a la nave por su ingreso y permanencia en puerto, tales como, amarre y desamarre, estadía, pilotaje, remolcaje, servicio de lancha y ayudas a la navegación. Cualquier otro servicio que se solicite deberá cancelarse de acuerdo a las tarifas vigentes correspondientes. La tarifa estará definida por hora o fracción en función del tonelaje de registro bruto (TRB) y para una estadía mínima de doce horas, pasado ese término se cobrará cada hora adicional.
+Cuando medie criterio del piloto nacional para atracar y desatracar embarcaciones en el Muelle de Puntarenas en horas diferentes a las solicitadas por la Agencia, producto de marcadas marejadas y corrientes marinas, se tomará la estadía a partir de la hora de inicio y hasta la hora de finalización de operación del buque.
+En caso de que por razones de conveniencia o de espacio en el muelle, se incurra en el atraque de una nave mercante y que posteriormente tenga que desatracarla para darle cabida a una embarcación de pasajeros (doble desatraque), los gastos incurridos por tal concepto serán asumidos por el Prestatario del Servicio de carga, excepto que se haya pactado lo contrario, en forma previa con la nave mercante.

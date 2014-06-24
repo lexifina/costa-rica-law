@@ -1,0 +1,1 @@
+ARTICULO 33.- En caso de hundimiento de una embarcación en los muelles o aguas del puerto, los trabajos de remoción deben iniciarse de inmediato a fin de dejar libre el puerto. Los gastos que ocasione, así como los daños y perjuicios correrán por cuenta del armador; respondiendo solidariamente por los mismos, su agente y el Capitán de la nave.

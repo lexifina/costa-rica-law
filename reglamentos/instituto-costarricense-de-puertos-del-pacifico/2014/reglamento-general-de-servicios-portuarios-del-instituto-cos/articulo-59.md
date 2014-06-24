@@ -1,0 +1,1 @@
+ARTICULO 59.- Cuando los representantes de una nave soliciten un cambio de lugar de atraque en el muelle, o salida a bahía, la agencia de la nave respectiva, deberá coordinar este movimiento con el prestatario del servicio. Todos los costos relacionados con este servicio, son por cuenta del armador o su representante.

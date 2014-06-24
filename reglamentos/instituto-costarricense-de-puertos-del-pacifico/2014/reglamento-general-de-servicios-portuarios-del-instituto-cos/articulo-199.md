@@ -1,0 +1,1 @@
+ARTÍCULO 199.- Servicio de muellaje: Consiste en la utilización que hace la mercadería de las instalaciones portuarias en su tránsito de o hacia la nave. La unidad de tarificación es por TM, excepto en el caso de contenedores vacíos que será por unidad.

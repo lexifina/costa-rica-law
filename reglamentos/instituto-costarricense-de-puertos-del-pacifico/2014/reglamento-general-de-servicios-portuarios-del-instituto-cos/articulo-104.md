@@ -1,0 +1,1 @@
+ARTICULO 104.- El transportador con carga de exportación, se debe ajustar estrictamente a las políticas de seguridad del Prestatario del Servicio, en relación con el lugar de acceso, turno de ingreso, circulación dentro del terminal y lugar de entrega y descarga.

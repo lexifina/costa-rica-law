@@ -1,0 +1,1 @@
+ARTICULO 47.- El Agente Naviero debe abordar la nave con los funcionarios antes referidos, debiendo prestar su asistencia para facilitar la recepción y libre plática de la nave. Además, es el responsable de suministrar al prestatario del servicio, la documentación que se indicará en el Artículo 50 de este Reglamento.

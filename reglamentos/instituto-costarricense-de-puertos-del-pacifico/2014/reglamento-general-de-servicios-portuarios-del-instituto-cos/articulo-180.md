@@ -1,0 +1,1 @@
+ARTICULO 180.- Los vehículos que ingresan carga de exportación no podrán ingresar ninguna mercadería diferente a la amparada por los documentos de exportación, De existir alguna discrepancia, el personal de seguridad impedirá su ingreso.

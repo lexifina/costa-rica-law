@@ -1,0 +1,1 @@
+ARTICULO 30.- El Capitán de la nave o su representante debe mostrar a la autoridad competente los Certificados Internacionales de Navegación y los documentos que comprueben la validez y vigencia de sus seguros en el momento que le sean requeridos.
