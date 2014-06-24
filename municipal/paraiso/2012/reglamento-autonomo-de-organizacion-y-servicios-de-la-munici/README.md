@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Paraís
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-07 | la propia norma |
+| 2 | 2014-06-24 | Reglamento municipal 322 (2014-06-24) |
