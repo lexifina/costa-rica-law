@@ -1,0 +1,2 @@
+Artículo 18.—El incumplimiento a las disposiciones establecidas en el presente reglamento, dará lugar a la aplicación de las sanciones y medidas especiales que contempla la Ley General de Salud.
+Además, las autoridades de salud podrán presentar la denuncia ante el Tribunal Ambiental Administrativo, según los procedimientos establecidos para tal fin, así como en la vía penal ante el Ministerio Público, de acuerdo al artículo 281, inciso a) del Código Procesal Penal y artículo 322 del Código Penal.

@@ -1,0 +1,9 @@
+Artículo 3º—Definiciones. Para efectos de este reglamento se entiende por:
+Bifenilos Policlorados: (PCBs) Compuestos aromáticos formados de tal manera que los átomos de hidrógeno en la molécula bifenilo (dos anillos bencénicos unidos entre sí por un enlace único carbono-carbono) pueden ser sustituidos por hasta diez átomos de cloro.
+Carga: alimentación al horno de fundición de vidrio compuesta de la mezcla de combustibles convencionales con porcentajes variables de aceites usados.
+Combustible alterno: combustible no convencional que se mezcla para sustituir un porcentaje del poder calorífico aportado por el combustible convencional.
+Combustible convencional: combustible tradicional utilizado en el horno de fundición (normalmente búnker).
+Condiciones normales de temperatura y presión (TPN): 273,15 K (0 ºC) y 101,3 kPa (760 mm de Hg o una atmósfera).
+Equivalente toxicológico (EQT) total: Método de reporte de emisiones para dioxinas, furanos y bifenilos policlorados, desarrollado por la OMS, ponderado por toxicidad, que se basa en la relación de toxicidad de cada congénere de dioxinas y furanos respecto a la dioxina 2,3,7,8-TCDD. Se establece mediante un cálculo numérico derivado de la suma de los productos individuales de las concentraciones analizadas de cada congénere presente en la muestra, multiplicado por el EQT correspondiente. La suma aritmética de los productos calculados para cada congénere (concentración x EQT) corresponde a la totalidad de toxicidades equivalentes o EQT total de la mezcla. (Ver anexo).
+Representante legal: Persona física que ostenta la representación de otra persona física o de una persona jurídica, que responde judicial y extrajudicialmente ante la autoridad competente.
+Reciclaje térmico: reaprovechamiento del poder calorífico del aceite usado como un combustible alterno.
