@@ -17,3 +17,4 @@ Políticas para la Administración de las Reservas Monetarias Internacionales
 | 2 | 2012-10-31 | Acuerdo 0 (2012-10-31) |
 | 3 | 2012-11-07 | Reglamento 5569 (2012-11-07) |
 | 4 | 2013-07-10 | Reglamento 5602 (2013-07-10) |
+| 5 | 2014-06-25 | Reglamento 5651 (2014-06-25) |
