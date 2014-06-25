@@ -1,1 +1,0 @@
-Artículo 11.—Los miembros de los Consejos Directivos en las instituciones de educación superior parauniversitaria que no cuenten con norma legal especial en otro sentido; sesionarán ordinariamente hasta cuatro (4) veces al mes.

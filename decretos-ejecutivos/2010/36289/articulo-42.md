@@ -1,2 +1,0 @@
-Artículo 42.—Las instituciones parauniversitarias públicas no podrán hacer uso o disponer de su hacienda para fines distintos de los encomendados por la ley, el presente Reglamento y las disposiciones presupuestarias.
-Los presupuestos extraordinarios y las modificaciones externas que hagan las instituciones parauniversitarias públicas, deberán ser presentados para su conocimiento y aprobación ante los entes correspondientes, según la normativa vigente.

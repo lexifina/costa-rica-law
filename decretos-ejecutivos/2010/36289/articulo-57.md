@@ -1,1 +1,0 @@
-Artículo 57.—La solicitud de reconocimiento de una institución como instituto o escuela de Educación Superior Parauniversitaria Privada, debe ser presentada ante el Departamento de Centros Docentes Privados por el representante legal de la entidad interesada, en escrito debidamente autenticado y con estricta sujeción a las disposiciones legales y reglamentarias vigentes.

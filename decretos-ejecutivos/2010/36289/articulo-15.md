@@ -1,1 +1,0 @@
-Artículo 15.—En caso de ausencia temporal del Decano, el Consejo Directivo nombrará, en forma interina, a un funcionario de la institución que deberá llenar los mismos requisitos que se exigen al Decano.

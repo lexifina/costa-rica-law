@@ -1,3 +1,0 @@
-Artículo 38.—Las instituciones parauniversitarias públicas podrán:
-a) Reconocer un máximo de 40% de cursos específicos que puedan ser homologables dentro de un mismo nivel parauniversitario. Para tales efectos, cada institución definirá la reglamentación y procedimientos internos correspondientes que podrán ser solicitados por la representación del Consejo Superior de Educación para la verificación correspondiente.
-b) Suscribir convenios de articulación con las instituciones de Educación Superior Universitarias públicas y privadas que permitan continuar con el proceso formativo integral del diplomado en las ofertas académicas que imparten las universidades para garantizar la continuidad de estudio en grados académicos superiores.

@@ -1,1 +1,0 @@
-Artículo 49.—En caso de ausencia temporal del Director, se debe nombrar en forma interina, a un funcionario de la institución que satisfaga los mismos requisitos de nombramiento que se exigen al Director.

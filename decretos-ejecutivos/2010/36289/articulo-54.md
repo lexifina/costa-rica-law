@@ -1,1 +1,0 @@
-Artículo 54.—La sustitución o el nombramiento de nuevo personal docente deberá ser comunicado al Departamento de Centros Docentes Privados para su revisión. La nómina de docentes deberá ser actualizada, como mínimo una vez al año ante el mismo departamento, durante el mes de enero de cada año.

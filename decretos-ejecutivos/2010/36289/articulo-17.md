@@ -1,1 +1,0 @@
-Artículo 17.—El Decano, cuando faltare a las obligaciones inherentes a sus funciones, podrá ser sancionado o destituido de su cargo por votación no inferior a las dos terceras partes del total de los miembros del Consejo Directivo, previo aplicación del debido proceso tal y como lo establece el artículo 211 inciso 3 de la Ley 6227.

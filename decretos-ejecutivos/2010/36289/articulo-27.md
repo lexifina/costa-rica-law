@@ -1,1 +1,0 @@
-Artículo 27.—Las instituciones parauniversitarias públicas nombrarán el personal necesario para el desempeño de sus funciones de conformidad con las disposiciones legales, presupuestarias y reglamentarias correspondientes.
