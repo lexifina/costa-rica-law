@@ -17,3 +17,4 @@ Reglamento de instrumentos contingentes de provisión de liquidez por parte del 
 | 2 | 2012-11-07 | Reglamento 5569 (2012-11-07) |
 | 3 | 2013-02-06 | Reglamento 5583 (2013-02-06) |
 | 4 | 2014-02-19 | Reglamento 5637 (2014-02-19) |
+| 5 | 2014-06-25 | Reglamento 5651 (2014-06-25) |
