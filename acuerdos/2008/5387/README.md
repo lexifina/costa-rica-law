@@ -15,3 +15,4 @@ Modificación a la determinación de los tipos de cambio de las instituciones de
 | --- | --- | --- |
 | 1 | 2008-07-31 | la propia norma |
 | 2 | 2014-02-12 | Reglamento 5635 (2014-02-12) |
+| 3 | 2014-06-25 | Acuerdo 0 (2014-06-25) |
