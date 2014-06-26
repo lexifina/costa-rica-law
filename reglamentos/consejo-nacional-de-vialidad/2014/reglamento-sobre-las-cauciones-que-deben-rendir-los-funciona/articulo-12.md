@@ -1,0 +1,1 @@
+Artículo 12º—Del plazo de las garantías. Las garantías ofrecidas por los funcionarios públicos deberán mantenerse vigentes mientras ocupen sus cargos, así como por el lapso de prescripción de la responsabilidad civil y/o mientras se encuentre pendiente un procedimiento administrativo o un procedimiento civil por daños y perjuicios.

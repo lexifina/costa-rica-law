@@ -1,0 +1,1 @@
+Artículo 18º—Del Registro. La Dirección de Gestión del Recurso Humano llevará un registro de los funcionarios que se encuentren obligados a suscribir la póliza de fidelidad, así como la fecha de vencimiento de éstas, lo anterior con el fin de tomar las providencias del caso a efecto que en todo momento se mantengan vigentes.

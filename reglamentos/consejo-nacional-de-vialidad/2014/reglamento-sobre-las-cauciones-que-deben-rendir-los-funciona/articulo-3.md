@@ -1,0 +1,1 @@
+Artículo 3º—Forma de rendir la caución. La caución en favor del Consejo Nacional de Vialidad, sólo podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad, suscrita con el Instituto Nacional de Seguros u otro ente asegurador autorizado para operar en el país.

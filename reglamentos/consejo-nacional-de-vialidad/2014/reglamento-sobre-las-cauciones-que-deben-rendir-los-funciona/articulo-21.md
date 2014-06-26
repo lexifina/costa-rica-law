@@ -1,0 +1,1 @@
+Artículo 21º—Responsabilidad por la no presentación de la caución. El no rendir o renovar la garantía dentro del plazo previsto al efecto, originará al servidor responsabilidad administrativa, de conformidad con lo establecido en el “Reglamento Autónomo de Servicios del Consejo Nacional de Vialidad”.

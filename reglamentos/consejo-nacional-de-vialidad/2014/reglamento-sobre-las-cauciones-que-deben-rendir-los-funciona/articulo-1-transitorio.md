@@ -1,0 +1,2 @@
+Transitorio único.—Los funcionarios que al momento de entrada en vigencia de este Reglamento estén obligados a caucionar, contaran con un plazo de un mes calendario contado a partir de la notificación de la Dirección de Gestión del Recurso Humano para gestionar la caución y presentar la documentación a esa.
+Aprobado por el Consejo de Administración del Consejo Nacional de Vialidad mediante el acuerdo en firme consignado en el Artículo VIII, de la Sesión número 1113-14 del día 26 de mayo del año 2014.
