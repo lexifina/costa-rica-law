@@ -1,0 +1,1 @@
+4. La variación de reservas internacionales producto de las operaciones de divisas con el SPNB, indicadas en los numerales 1 y 3 de este acuerdo, no podrá exceder, en forma acumulada para los últimos doce meses, el equivalente al ±3% del saldo de las Reservas Adecuadas, estimado el último viernes de cada mes.
