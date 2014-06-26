@@ -1,0 +1,1 @@
+Artículo 8º—Vigencia de los documentos. Los documentos y certificaciones que deban presentar los sujetos privados no deberán tener más de un mes de emitidos, exceptuando aquellos cuya vigencia por disposición de otra norma jurídica sea mayor a la establecida en estos lineamientos.

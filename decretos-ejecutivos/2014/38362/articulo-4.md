@@ -1,0 +1,5 @@
+Artículo 4º—Definiciones: Para la aplicación del presente Reglamento y la interpretación del mismo, se entiende por:
+a. Administración Concedente: El Instituto sobre Alcoholismo y Farmacodependencia (IAFA).
+b. Comisión sobre Idoneidad: Equipo técnico institucional constituido con la finalidad de ejecutar el estudio minucioso de la documentación aportada por el sujeto privado, según los requisitos que deba cumplir y que dictamina y recomienda a la Junta Directiva del IAFA, sobre las solicitudes para obtener la calificación de idoneidad para administrar fondos públicos.
+c. Calificación de Idoneidad. Dictamen favorable o desfavorable que constituye el pronunciamiento o declaratoria que emite la Junta Directiva del IAFA, con la cual, se establece la cualidad de un sujeto privado de ser apto para administrar fondos públicos.
+d. Sujeto Privado: Organización de carácter privado sin fines de lucro, las cuales pueden ser asociaciones o fundaciones, que desarrolla programas destinados a la prevención y la atención de la problemática del consumo de alcohol, el tabaco y otras drogas, la cual, procura obtener la calificación de idoneidad para administrar fondos públicos.
