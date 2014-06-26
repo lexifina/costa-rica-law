@@ -1,1 +1,2 @@
-Articulo 7º—Corresponde al Contador Municipal, gestionar que la planilla de becas se encuentre lista el primero de cada mes; y corresponde al encargado de la Tesorería realizar las gestiones para que el becado pueda disponer del monto de su beca a más tardar el quinto día hábil de cada mes e informar trimestralmente al Concejo, si existen estudiantes que durante dos meses consecutivos no hayan retirado el monto asignado de la beca.
+Artículo 7º—Corresponde al Contador Municipal, gestionar que la planilla de becas, la cual será trasladada a la tesorería municipal a fin de que se realicen los depósitos correspondientes a más tardar el segundo viernes de cada mes.
+(Así reformado mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)

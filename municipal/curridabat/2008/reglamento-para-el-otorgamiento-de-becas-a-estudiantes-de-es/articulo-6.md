@@ -1,2 +1,2 @@
-Artículo 6º—Corresponde a la Comisión de Asuntos Sociales en conjunto con los Consejos de Distrito, valorar las solicitudes y recomendar al Concejo Municipal, la adjudicación o rechazo de las becas, analizando la propuesta que en cada caso, le brinden las instituciones educativas del Cantón por parte de los Directores u Orientadores, así como el historial del interesado(a). En caso de las personas con discapacidad será la Comad la que lo determine.
-(Así reformado mediante sesión ordinaria 047-2011 del 24 de marzo del 2011)
+Artículo 6º—Corresponde a la Dirección de Responsabilidad Social administrar la información remitida por los centros educativos e instancias mencionadas en el artículo 3° de este reglamento, a fin de que el Concejo Municipal valore las solicitudes y adjudique o rechace las becas. En el caso de las personas con discapacidad será la COMAD la que lo determine.
+(Así reformado mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)

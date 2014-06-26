@@ -16,3 +16,4 @@ Reglamento para el otorgamiento de becas a estudiantes de escasos recursos del c
 | 1 | 2008-08-19 | la propia norma |
 | 2 | 2010-06-24 | Reglamento municipal 8 (2010-06-24) |
 | 3 | 2011-03-24 | Reglamento municipal 47 (2011-03-24) |
+| 4 | 2014-06-26 | Reglamento municipal 217 (2014-06-26) |

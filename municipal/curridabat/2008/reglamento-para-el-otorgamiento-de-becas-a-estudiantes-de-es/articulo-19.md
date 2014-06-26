@@ -1,4 +1,5 @@
 TÍTULO V
 Del pago de la beca
-Artículo 19.—El Concejo deberá remitir a la Alcaldía , el acuerdo mediante el cual se autorice a la Administración Municipal para que a través de la Tesorería realice la entrega del dinero a cada adjudicatario de beca de acuerdo con la lista de becados que para tal efecto remitirá la Secretaría del Concejo a la Tesorería Municipal. La entrega se realizará de forma mensual durante los primeros cinco días de cada mes al interesado, si es mayor de edad, o si es menor o persona con discapacidad, al padre, madre, encargado o representante legal debidamente identificado.
+Artículo 19.—Todo beneficiario de una beca municipal, deberá asistir a las convocatorias que para tratar cualquier asunto relacionado con su beca. Para estos efectos toda notificación deberá realizarse por lo menos con tres días de anticipación, mediante nota, por medio de la persona que ejerce como contraparte del centro educativo.
 (Así corrida su numeración en sesión N° 008-2010 del 24 de junio de 2010, que lo traspaso del antiguo artículo 20 al 19 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 12 original y correr la numeración de los restantes artículos)
+(Así reformado mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)
