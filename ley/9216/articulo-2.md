@@ -1,0 +1,2 @@
+ARTÍCULO 2.- El lote donado será destinado a la construcción del edificio que albergará las instalaciones de la unidad de cuidados paliativos de San Isidro de Heredia, proyecto a cargo de la Asociación Unidad de Cuidados Paliativos y Centro Diurno San Isidro de Heredia, con el fin del adecuado desarrollo de sus funciones y servicios.
+En caso de que se varíe el uso original del inmueble o se disuelva la persona jurídica beneficiaria, la propiedad del terreno donado volverá a ser de la Municipalidad de San Isidro de Heredia.
