@@ -1,0 +1,1 @@
+Artículo 8º—El presente Reglamento es de aplicación para todos y cada uno de los Planes Reguladores Costeros actualmente vigentes, así como para cualquier otro Plan Regulador Costero que se aplicará en la Zona Marítimo Terrestre de la jurisdicción de la Municipalidad de La Cruz.
