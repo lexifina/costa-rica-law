@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8742
+(Esta norma fue derogada por el artículo 4° de la ley N° 9217 del 13 de marzo del 2014 "Desafecta un inmueble propiedad de la Municipalidad de San Isidro de Heredia y autorización para donarlo a la Asociación de Desarrollo Específica para la Seguridad Comunitaria de San Francisco con el fin de ubicar la delegación distrital")
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 DESAFECTACIÓN DEL USO PÚBLICO DE UN INMUEBLE PROPIEDAD
