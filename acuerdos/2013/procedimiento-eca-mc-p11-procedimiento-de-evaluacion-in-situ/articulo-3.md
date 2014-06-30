@@ -12,8 +12,11 @@
 - INTE/ISO 14064-3, versión vigente. Gases de efecto invernadero— Parte 3: especificación con orientación para la validación y verificación de declaraciones sobre gases de efecto invernadero.
 - ISO 14066, versión vigente. Gases de efecto invernadero—Requerimientos de competencia para equipos de validación y verificación de gases de efecto invernadero.
 - INTE 12-01-06, versión vigente. Norma Nacional para demostrar la C-neutralidad. Requisitos.
-- Directriz IAF GD5 para la aplicación de las cláusulas de la Guía ISO/IEC 65 para la acreditación de organismos de certificación de producto
+- IAF MD 12 Documento mandatorio para la evaluación de actividades de certificación para la acreditación transfrontera
+- IAF MD 6
+- IAF ML1:2011 Guidance for the Exchange of Documentation among MLA Signatories for the Purposes of Assessment of Conformity Assessment Bodies, Issue 2
+- ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/IEC 17021
 - ECA-MC-P22 Inducción
 - ECA-MC-P01 Confidencialidad, imparcialidad y objetividad
-- ECA-MC-P09 Procedimiento general de evaluación y acreditación.
+- ECA-MP Manual de procedimientos
 - ECA-MC-P13 Ejecución de la Evaluación
