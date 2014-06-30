@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Ubicación y estructura organizativa
-Artículo 12.—La Auditoría Interna funcionará bajo la responsabilidad y dirección inmediatas del auditor interno, quien será nombrado por la Junta Directiva. Orgánicamente, el auditor interno dependerá directamente de la Junta Directiva de BCR SAFI S. A. El plazo de nombramiento para estos cargos será el establecido en el punto 2.2 de los Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos, emitidos por la Contraloría General de la República.
