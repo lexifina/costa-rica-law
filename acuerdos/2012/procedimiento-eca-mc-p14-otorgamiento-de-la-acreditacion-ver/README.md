@@ -15,3 +15,4 @@ Procedimiento ECA-MC-P14 Otorgamiento de la Acreditación Versión 06
 | --- | --- | --- |
 | 1 | 2012-07-06 | la propia norma |
 | 2 | 2012-12-13 | Acuerdo 0 (2012-12-13) |
+| 3 | 2014-06-30 | SINALEVI (sin norma nombrada) |
