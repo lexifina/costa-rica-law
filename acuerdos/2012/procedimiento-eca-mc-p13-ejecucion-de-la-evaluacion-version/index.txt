@@ -12,6 +12,3 @@ articulo-11.md
 articulo-12.md
 articulo-13.md
 articulo-14.md
-articulo-1-anexo.md
-articulo-2-anexo.md
-articulo-3-anexo.md
