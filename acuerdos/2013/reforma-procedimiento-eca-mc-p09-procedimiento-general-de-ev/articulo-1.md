@@ -1,4 +1,6 @@
+(Derogado)
 MODIFICACIÓN DE DOCUMENTOS 003-2013
+(El presente procedimiento fue sustituído por el Manual de procedimientos de evaluacion y acreditacion aprobado por los procedimiento ECA-MP-P01 (Generalidades), ECA-MP-P02 (Requisitos para la acreditación), ECA-MP-P03 ( Visita preliminar), ECA-MP-P04 (Solicitud de Acreditación y análisis de recurso), ECA-MP-05 (Admisibilidad de la solicitud), ECA-MP-P06 (Evaluación), ECA-MP-P07 (Actividades posteriores a la evaluación), ECA-MP-P08 (Toma de Decisiones), ECA-MP-P09 (Emisión del certificado de acreditación), ECA-MP-P10 (Seguimiento de la Evaluación), ECA-MP-P11 (Creiterios para OEC multisitios), publicados en La Gaceta N° 133 del 11 de julio del 2014)
 El Ente Costarricense de Acreditación (ECA), da a conocer la modificación de los documentos código ECA-MC-P09 Procedimiento general de evaluación y acreditación y el procedimiento ECA-MC-P13 Ejecución de la evaluación, emitido el 18 de febrero del 2013, de la siguiente manera:
 Procedimiento | Versión actual | Versión publicada
 ECA-MC-P09 Procedimiento general de evaluación y acreditación | Versión 08 | Versión 09
