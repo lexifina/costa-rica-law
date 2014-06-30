@@ -1,0 +1,1 @@
+Artículo 8º— Derogatorias. Deróguense las Directrices CN-001-2004 del 28 de julio del 2004, CN-003-2005 del 16 de septiembre del 2005, DCN-001-2011 del 18 de febrero del 2011, DCN-005-2012 del 06 de septiembre del 2012.
