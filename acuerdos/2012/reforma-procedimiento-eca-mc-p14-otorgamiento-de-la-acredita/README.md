@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P14 Otorgamiento de la acreditación (Versión 07)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-23 | la propia norma |
+| 2 | 2014-06-30 | SINALEVI (sin norma nombrada) |
