@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P21 Procedimiento de Gestión del CEE (Versión 06)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-22 | la propia norma |
+| 2 | 2014-06-30 | Acuerdo 0 (2014-06-30) |
