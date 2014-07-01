@@ -1,3 +1,4 @@
 ARTÍCULO 2.- Los diputados a la Asamblea Legislativa, por desempeñar sus funciones, serán remunerados mediante el pago de una asignación mensual de seiscientos quince mil colones (¢615.000,00). Por concepto de gastos de representación, recibirán la suma de ciento cuarenta mil colones mensuales.
-Las sumas indicadas en el párrafo anterior se incrementarán, semestralmente, en un cinco por ciento.
 (Así reformada la primera oración del párrafo primero de este artículo, por el artículo 1º de la ley No.7858 de 22 de diciembre de 1998)
+Las sumas indicadas en el párrafo anterior se ajustarán una vez al año, de acuerdo con el incremento porcentual en el Índice de Precios al Consumidor del año anterior, calculado por el Instituto Nacional de Estadística y Censos (INEC), excepto cuando este supere diez puntos porcentuales (10%), en cuyo caso el ajuste será de un diez por ciento (10%).
+(Así reformado el párrafo anterior por el artículo único de la ley N° 9252 del 1° de julio del 2014)
