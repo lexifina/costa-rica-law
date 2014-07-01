@@ -13,3 +13,4 @@ Reglamento del Cementerio Municipal de Alajuelita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-23 | la propia norma |
+| 2 | 2014-07-01 | Reglamento municipal 26 (2014-07-01) |
