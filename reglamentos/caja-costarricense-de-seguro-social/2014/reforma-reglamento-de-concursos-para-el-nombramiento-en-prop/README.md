@@ -14,3 +14,4 @@ Reforma Reglamento de Concursos para el Nombramiento en Propiedad en la Caja Cos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-03 | la propia norma |
+| 2 | 2014-07-01 | Reglamento 0 (2014-07-01) |
