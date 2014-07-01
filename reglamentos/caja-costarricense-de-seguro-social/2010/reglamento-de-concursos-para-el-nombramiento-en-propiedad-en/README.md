@@ -16,3 +16,4 @@ Reglamento de Concursos para el Nombramiento en Propiedad en la Caja Costarricen
 | 1 | 2010-06-21 | la propia norma |
 | 2 | 2013-01-30 | SINALEVI (sin norma nombrada) |
 | 3 | 2014-05-07 | Reglamento 8715 (2014-05-07) |
+| 4 | 2014-07-01 | Reglamento 0 (2014-07-01) |
