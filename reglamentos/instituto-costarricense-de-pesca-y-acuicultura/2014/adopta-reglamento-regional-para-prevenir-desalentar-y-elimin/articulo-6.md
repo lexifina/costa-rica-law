@@ -1,0 +1,3 @@
+Artículo 6. Monitoreo, control y vigilancia
+Se crea una Red Regional, integrada por las autoridades de pesca y acuicultura de cada país miembro, con el apoyo de la Unidad Regional SICA/OSPESCA, la cual tendrá como objetivo la cooperación, coordinación, obtención e intercambio de información entre instituciones nacionales y organizaciones regionales e internacionales para prevenir, desalentar y eliminar la Pesca INDNR.
+Las autoridades de Pesca y Acuicultura de cada país deberán coordinar con las autoridades competentes de sus respectivos países lo pertinente a la implementación de la Red Regional para realizar las labores de monitoreo, control y vigilancia.

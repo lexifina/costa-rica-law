@@ -1,0 +1,2 @@
+Artículo 11. Investigación pesquera
+Los Estados Miembros del SICA, en coordinación con la Unidad SICA/OSPESCA, fomentarán la investigación científica destinada a disponer de métodos para la identificación de especies pesqueras, a partir del producto elaborado o sin elaborar, con el propósito de identificar la población de origen. La información obtenida se utilizará para crear una red de bases de datos sobre marcadores genéticos, con la finalidad de prevenir, desalentar y eliminar la Pesca INDNR.
