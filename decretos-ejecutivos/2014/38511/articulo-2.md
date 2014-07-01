@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 38264-H de fecha 4 de marzo del 2014, publicado en el Diario Oficial La Gaceta Nº 71 del 10 de abril del 2014, a partir de la vigencia del presente decreto.
