@@ -1,0 +1,1 @@
+Artículo 3º—Aplicación del mismo nivel mínimo de tributación. En consideración a que la categoría más vendida en el año 2013 corresponde a ¢1.400.00 colones por cajetilla se debe modificar el nivel mínimo de tributación vigente, el cual se determina según lo detallado en el punto siguiente.
