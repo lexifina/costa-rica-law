@@ -1,0 +1,1 @@
+Artículo 5º—Se ratifica el acuerdo tomado por las partes el día 9 de agosto del 2007, en cuanto a la metodología de cálculo de los incrementos salariales de los trabajadores y trabajadoras del Gobierno.

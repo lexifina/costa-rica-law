@@ -1,0 +1,1 @@
+Artículo 3º—Se otorga un aumento del 0.14% a los puestos profesionales con rige a partir del 1 de enero del 2015, sin carácter retroactivo, a efecto de complementar el porcentaje correspondiente a la inflación acumulada en el semestre anterior, de conformidad con la metodología para la fijación salarial del sector público contenida en el acuerdo del 09 de agosto del 2007.

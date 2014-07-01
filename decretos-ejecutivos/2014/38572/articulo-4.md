@@ -1,0 +1,1 @@
+Artículo 4º—El pago del incremento salarial antes indicado se hará efectivo en la segunda quincena de agosto, para los funcionarios del Gobierno Central y las Instituciones homologadas al Servicio Civil y para los funcionarios del Ministerio de Educación se aplicará en la segunda quincena de setiembre.
