@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con el Artículo 9 de la Ley Reguladora del Servicio Público de Transporte Remunerado de personas en Vehículos en la modalidad de Taxi, “… Los miembros del Consejo indicados en el artículo anterior serán nombrados por decreto ejecutivo, hasta por el plazo máximo equivalente al del nombramiento del Presidente de la República…”
