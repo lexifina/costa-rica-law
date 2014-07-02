@@ -14,3 +14,4 @@ Reglas prácticas en relación con indagación situación económica del imputad
 | --- | --- | --- |
 | 1 | 2003-01-14 | la propia norma |
 | 2 | 2013-08-29 | Circular 148 (2013-08-29) |
+| 3 | 2014-07-02 | Circular 143 (2014-07-02) |
