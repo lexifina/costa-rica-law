@@ -1,0 +1,7 @@
+2. Modificar el artículo 5 de las Políticas para la Administración de las Reservas Internacionales, para que, en adelante, se lea de la siguiente manera:
+“Artículo 5. Comisión de Reservas
+Con el fin de definir el marco operativo dentro del cual se ejecutará la gestión de las Reservas Internacionales, se conformará una Comisión de Reservas, la cual estará integrada por los siguientes funcionarios: el Presidente del Banco o en su ausencia el Vicepresidente de la Junta Directiva del Banco Central; el Gerente del Banco o en su ausencia el Subgerente; el Director de la División Gestión de Activos y Pasivos, el Director del Departamento de Administración de Reservas y el Director del Departamento Análisis y Riesgo.
+Asimismo, podrá asistir el director de la División Económica en calidad de asesor.
+El Presidente de la Comisión será el Gerente del Banco o en su defecto el Subgerente. El secretario de la Comisión, encargado de redactar minutas y normas, será el director del Departamento Análisis y Riesgo.
+Podrá sesionar con al menos cuatro de sus miembros, siempre que el Gerente o, en su ausencia, el Subgerente, esté presente, y tomará sus decisiones por mayoría simple. En caso de empate, el Presidente de la Comisión tendrá doble voto.
+La Comisión podrá, si lo estima pertinente, incorporar como asesores a otros funcionarios del Banco, se reunirá al menos una vez cada tres meses y levantará una minuta con los detalles de la reunión y los acuerdos tomados, la cual será firmada por los integrantes y conservada en la Intranet.
