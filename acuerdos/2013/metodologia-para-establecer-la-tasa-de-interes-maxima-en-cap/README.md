@@ -14,3 +14,4 @@ Metodología para establecer la tasa de interés máxima en captaciones de alto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-15 | la propia norma |
+| 2 | 2014-07-02 | Acuerdo 0 (2014-07-02) |
