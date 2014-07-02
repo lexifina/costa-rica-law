@@ -1,1 +1,2 @@
-VI.—Que el tiempo máximo en el que se realizará una portabilidad numérica no superará los 3 días hábiles durante el primer año de funcionamiento de la Entidad de Referencia. Cumplido este periodo, la ejecución de la portación no excederá de 1 día hábil.
+VI.—Que el tiempo máximo en el que se realizará una portabilidad numérica no superará los 3 días naturales durante el primer año de funcionamiento de la Entidad de Referencia. Cumplido este periodo, al 30 de noviembre de 2014, la ejecución de la portación no excederá 48 horas y posteriormente se evaluará reducir a 24 horas el tiempo total del proceso de portabilidad en su tercer año de operación.
+(Así reformado mediante resolución N° RCS-149-2014 aprobada en sesión ordinaria N° 036-2014 del 2 de julio del 2014)
