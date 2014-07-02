@@ -44,6 +44,7 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38200 del 21 de enero del 2014, se nombra como miembro propietario de esta Comisión a la señora Yamileth Solís Lezcano, representante de la Asociación Mesa Nacional Campesina)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38510 del 14 de mayo del 2014, se nombra como miembro propietario de esta Comisión a la señora Alejandra Aguilar Schramm como representante del Ministerio de Comercio Exterior)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38523 del 10 de junio del 2014, se nombra como miembro propietario de esta Comisión a la señora Patricia Madrigal Cordero como representante del Ministerio de Ambiente y Energía)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38584 del 2 de julio del 2014, se nombra como miembro propietario de esta Comisión al señor Julio Jurado Fernández como representante del Sistema Nacional de Áreas de Conservación)
 2. Miembros suplentes:
 a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010)
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
