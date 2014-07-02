@@ -54,6 +54,7 @@ Con fundamento en la Ley General de Telecomunicaciones, el Reglamento a la Ley G
 EL CONSEJO DE LA SUPERINTENDENCIA DE TELECOMUNICACIONES,
 RESUELVE:
 EMITIR LAS SIGUIENTES “DISPOSICIONES REGULATORIAS ACERCA DE LOS PROCESOS QUE SISTEMATIZAN LA OPERACIÓN DEL SISTEMA INTEGRAL DE PORTABILIDAD NUMERICA”
-I. En aquellos casos en que fallen los 3 intentos de envío del NIP por medio de la plataforma SMS del operador donante, se deberán mantener en el manual de interfaces y en el sistema, la siguiente secuencia:
-a. Que el NIP se reenvíe a la red del operador receptor para que este lo envíe al destino, y en caso de falla de los tres intentos de esta opción se realizará lo siguiente:
-b. Que el NIP sea enviado a un correo electrónico establecido por cada operador o proveedor.
+I. En aquellos casos en que fallen los 3 intentos de envío del NIP por medio de la plataforma SMS del operador donante, se deberán mantener en el manual de interfaces y en el sistema la siguiente secuencia:
+a) Que el NIP se reenvíe a la red del operador receptor para que este lo envíe al destino, y en caso de falla de los tres intentos de esta opción se realizará lo siguiente:
+b) Que el NIP sea solicitado por los usuarios finales a través de un sistema IVR que la ERPN deberá poner a disposición del público en general
+(Así reformado mediante resolución N° RCS-149-2014 aprobada mediante sesión ordinaria N° 036-2014 del 2 de julio del 2014)

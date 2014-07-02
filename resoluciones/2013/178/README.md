@@ -14,3 +14,4 @@ Disposiciones regulatorias complementarias sobre la implementación técnica del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-12 | la propia norma |
+| 2 | 2014-07-02 | Resolución 149 (2014-07-02) |
