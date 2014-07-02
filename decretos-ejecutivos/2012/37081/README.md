@@ -14,3 +14,4 @@ Publica Resolución N° 275-2011 (COMIECO-LXI): y su anexo: Reglamento Técnico 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-02 | la propia norma |
+| 2 | 2014-07-02 | Decreto Ejecutivo 38636 (2014-07-02) |
