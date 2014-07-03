@@ -1,2 +1,3 @@
 Artículo 17.—De las ausencias del niño o la niña: En caso de ausencias, la familia debe justificarlas durante los tres días hábiles posteriores a la actividad. Si sus ausencias son prolongadas deberán justificadas por la familia apenas sea posible, con constancia médica que indique la enfermedad del niño o la niña y, de igual manera, en caso de alguna situación especial de la familia, que amerite su ausencia.
 Si el niño o niña se ausenta más de un mes y sin justificación, esto facultará a la Municipalidad a cancelar la matrícula, previa notificación a su familia y con el debido proceso.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 2018-2014 del 3 de julio del 2014)

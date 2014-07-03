@@ -1,1 +1,2 @@
-Artículo 14.—El pago deberá realizarse en las cajas municipales. El representante deberá presentar el comprobante de pago con el sello respectivo a la Administración del Centro en cualquier momento en que esta se lo requiera.
+Artículo 14.—Forma de pago del subsidio... El pago total o parcial del subsidio respectivamente; deberá realizarse en las cajas municipales. El representante del menor, deberá presentar el comprobante de pago con el sello municipal respectivo, a la Administración del Centro en cualquier momento en que ésta se lo requiera.
+(Así reformado mediante sesión ordinaria N° 218-2014 del 3 de julio del 2014)

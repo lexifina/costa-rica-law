@@ -6,7 +6,8 @@ a) Velar por la asistencia regular y puntual de los niños y las niñas.
 b) Durante el horario en que permanezca el niño o la niña en el Centro de Cuido, los padres, madres o encargados NO pueden ingresar al Centro, sin autorización.
 c) Si desea conversar con alguien del personal docente o la Coordinación Técnica, deberá programar una cita, de acuerdo a los horarios establecidos para la atención.
 d) Para retirar al niño o niña antes de la hora de la salida, la persona autorizada para estos efectos deberá llenar una boleta en la Dirección y entregar copia al guarda a la hora de salir o haber solicitado la salida previamente en el cuaderno de comunicaciones al hogar.
-e) No se entregará ningún niño o niña a ninguna persona que no esté autorizada en la boleta que para tal fin debe ser llenada, o con autorización vía telefónica en caso urgente y excepcional, previa verificación de la llamada telefónica.
+e) No se entregará ningún niño o niña a ninguna, ni a persona que no esté autorizada en la boleta que, para tal fin debe ser llenada, o con autorización vía telefónica en caso urgente y excepcional, previa verificación de la llamada telefónica.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 218-2014 del 3 de julio del 2014)
 f) No deben estacionarse vehículos en la zona de salida del Centro, salvo estado de necesidad previamente comunicado.
 g) Durante el primer mes, los padres, madres o encargados legales de los niños y las niñas de primer ingreso, deben coordinar una entrevista con la maestra de su hijo o hija, con el fin de completar su expediente y de que la maestra conozca más sobre los niños y las niñas que va a atender.
 h) Los padres, madres o encargados deben participar en las reuniones programadas, para mantenerse informados de las actividades y proyectos que se van realizando en el Centro.

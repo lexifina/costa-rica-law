@@ -1,3 +1,6 @@
 CAPÍTULO III
-Del cobro de servicios
-Artículo 12.—De la procedencia del cobro: En casos calificados, y previo estudio técnico que así lo justifique, será procedente brindar los servicios del Centro a personas que por su condición socioeconómica favorable no cumplan con todos los supuestos para ser considerado población beneficiada según los criterios del IMAS. En tales supuestos, la Municipalidad cobrará un precio público por el servicio prestado, el cual se establecerá de conformidad con lo dispuesto por el artículo 74 del Código Municipal.
+Del total o parcial cobro de servicios
+(Modificada la denominación del capítulo anterior mediante sesión ordinaria N° 218-2014 3 de julio del 2014)
+Artículo 12.—Cuando las familias califiquen en grupo de pobreza 3 y 4, el IMAS subsidiará un porcentaje del pago del costo de atención, reflejado en el informe técnico social respectivo y la Municipalidad según sus posibilidades presupuestarias financiará total o parcialmente el porcentaje restante.
+Si las condiciones económicas de la familia lo permiten, esta última asumirá un porcentaje de este costo adicional como apoyo al pago de la Municipalidad. Este porcentaje de pago será determinado con base en el informe social que emita la trabajadora social de la Municipalidad.
+(Así reformado mediante sesión N° 2018-2014 del 3 de julio del 2014)

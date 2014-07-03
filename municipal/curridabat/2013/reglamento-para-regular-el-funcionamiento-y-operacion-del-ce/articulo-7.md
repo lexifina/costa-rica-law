@@ -1,2 +1,2 @@
-Artículo 7º—Horario del CEDUDI: El horario de atención para la población beneficiada será de al menos 10 horas diarias. De las 6am hasta las 5:00pm, durante los días hábiles de la semana.
-El Centro no brindará el servicio los días feriados por ley y aquellos que sean declarados asueto de acuerdo con la normativa correspondiente.
+Artículo 7º—Horario del CEDUDI: El horario de atención para la población beneficiada será de al menos 10 horas diarias. De las 7 a. m. hasta las 5:00 p. m., durante los días hábiles de la semana. Cada Centro podrá modificar dicho horario, siempre y cuando la efectividad del servicio no se vea afectado, a consideración de la Alcaldía.
+(Así reformado mediante sesión ordinaria N° 218-2014 del 3 de julio del 2014)
