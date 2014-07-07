@@ -1,2 +1,0 @@
-Artículo 39.—Ofertas en consorcio y conjuntas. En los procesos de contratación podrán participar distintos oferentes en consorcio, sin que ello implique crear una persona jurídica diferente y siempre y cuando se cumpla con lo establecido en el artículo 38 de la Ley de Contratación Administrativa.
-Sólo cuando el cartel así lo permita y regule expresamente, y si los componentes del objeto de la contratación pueden ser brindados por diversas personas, físicas o jurídicas, se puede proceder a la presentación de una oferta en conjunto.

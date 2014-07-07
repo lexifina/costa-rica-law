@@ -1,1 +1,0 @@
-Artículo 51.—Disposiciones aplicables. El plazo para recepción de ofertas no será inferior a diez días hábiles. En la licitación por registro, serán aplicables en lo conducente, las disposiciones de la licitación pública, en lo concerniente a la elaboración del cartel, recepción, apertura y revisión de ofertas.

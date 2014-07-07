@@ -1,1 +1,0 @@
-Artículo 71.—Normativa aplicable. Con este Reglamento, se deberá aplicar la Ley y el Reglamento de Contratación Administrativa, así como las directrices y demás disposiciones atinentes emitidas por la Contraloría General de la República. Supletoriamente se aplicará la Ley General de la Administración Pública.

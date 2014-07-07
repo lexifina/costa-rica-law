@@ -1,1 +1,0 @@
-Artículo 54.—Otras normas aplicadas. El plazo para recepción de ofertas no será inferior a tres días hábiles. En todo lo que sea racionalmente procedente se aplicará a la licitación restringida los principios y normas de la licitación pública.

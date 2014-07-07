@@ -1,1 +1,0 @@
-Artículo 63.—Autorización. Toda contratación relativa a servicios profesionales de especialistas y técnicos, deberá ser previamente autorizada por la Alcaldía Municipal, órgano al que le corresponde verificar la necesidad del servicio.

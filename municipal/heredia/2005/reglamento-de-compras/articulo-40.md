@@ -1,1 +1,0 @@
-Artículo 40.—Formas especiales de comunicación. Cuando así se disponga expresamente y sea aceptado por los oferentes se podrán llevar a cabo actos de comunicación por medios electrónicos. En las condiciones de la contratación se establecerán las reglas que al efecto se puedan emplear.

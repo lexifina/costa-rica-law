@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente reglamento se aplicará a la adquisición y disposición de bienes y servicios por parte de la Municipalidad, independientemente del procedimiento de contratación que se utilice.

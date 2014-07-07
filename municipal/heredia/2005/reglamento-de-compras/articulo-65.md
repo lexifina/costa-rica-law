@@ -1,1 +1,0 @@
-Artículo 65.—Garantía de cumplimiento. En todos los procedimientos que promueva la municipalidad para la contratación de servicios profesionales, se exigirá obligatoriamente una garantía de cumplimiento, para lo cual se observarán las reglas previstas en este Reglamento, en la Ley de Contratación Administrativa y en el Reglamento General de Contratación Administrativa.
