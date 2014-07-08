@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento del mercado municipal y otros local
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-12 | la propia norma |
+| 2 | 2014-07-08 | Reglamento municipal 26 (2014-07-08) |
