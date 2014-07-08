@@ -14,3 +14,4 @@ Reglamento a la Ley del Teatro Nacional.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-08 | la propia norma |
+| 2 | 2014-07-08 | Decreto Ejecutivo 38571 (2014-07-08) |
