@@ -1,1 +1,2 @@
 Artículo 2º—Deberán tomarse las medidas correspondientes para garantizar la apertura de todas las oficinas públicas y la continuidad de sus servicios.
+(Nota de Sinalevi: Mediante directriz N° 008-MP del 8 de julio del 2014, se acalara este artículo en el sentido de que: "... cada jerarca otorgará el permiso con base en sus potestades, garantizando eso sí, los servicios esenciales que preste cada Institución...")

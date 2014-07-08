@@ -14,3 +14,4 @@ Concede permiso a los empleados públicos a partir del mediodía del 8 de julio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-08 | la propia norma |
+| 2 | 2014-07-08 | Directriz 8 (2014-07-08) |
