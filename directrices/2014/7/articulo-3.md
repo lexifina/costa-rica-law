@@ -1,0 +1,1 @@
+Artículo 3º—En cuanto a los funcionarios del Ministerio de Educación Pública, será el Jerarca de dicha Institución el que determine con base en el artículo 213 del Código de Educación y mediante circular interna, si se les otorgará este permiso a los funcionarios de esa Cartera.

@@ -1,0 +1,1 @@
+Artículo 5º—En relación con los funcionarios del Instituto Nacional de Seguros, será el Jerarca de esa Institución el que determine con base en el artículo 6°, inciso c) de la Ley N° 12 del 30 de octubre de 1924, reformada por la Ley N° 8653 Ley Reguladora del Mercado de Seguros y mediante circular interna, si se les otorgará este permiso a los funcionarios de esa entidad.
