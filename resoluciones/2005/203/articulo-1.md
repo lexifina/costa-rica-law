@@ -5303,6 +5303,38 @@ c) el detalle de los componentes nacionales incorporados al proceso, tales como 
 14) Los contenedores reparados solo podrán ser retirados de las instalaciones de la Beneficiaria cuando el DUA 40-51 se encuentre en estado ORD, quedando a partir de ese momento bajo responsabilidad del transportista aduanero declarado en dicho DUA la efectiva salida del territorio nacional o su nacionalización. Por su parte la Beneficiaria dispondrá un plazo no mayor de cinco días naturales para confirmar la información el DUA 40-51 y así alcance el estado ORI.
 15) A la salida de cada uno de los contenedores reparados de las instalaciones de la empresa de ZF, cuyo destino inmediato sea el territorio nacional para ser cargados con mercancías de exportación, además del DUA de exportación de la ZF deberá llevar un registro manual que detalle número de identificación del contenedor, nombre y número de identificación del transportista aduanero responsable en el territorio nacional y nombre y número de identificación del conductor responsable de la movilización, así como la firma de éste. Dicho registro deberá tenerlo a disposición de la autoridad aduanera cuando en el ejercicio de sus actuaciones de control así lo requiera.
 16) La autoridad portuaria, o el funcionario aduanero responsable de permitir la salida de los contenedores, deberá verificar, uno a uno, dichas identificaciones, antes de autorizar cualquier movimiento.
+(*)2) De las Mercancías de Envío Reiterado.
+En este procedimiento se aplicará lo establecido en los capítulos I, II anteriores, con las particularidades que se establecen a continuación.
+I.-Políticas de Operación
+1) Las empresas Beneficiarias del Régimen podrán acumular las compras realizadas a otras empresas Beneficiarias del mismo régimen, de producto terminado, materia prima y producto en proceso, cuyas características sean de difícil cuantificación e individualización y que su forma de trasiego sea por tubería. Dicha acumulación será por periodos mensuales.
+2) La empresa de ZF que compre mercancías de difícil cuantificación o individualización y que su trasiego se realice por medio de tubería deberá de previo informarlo al Departamento de Estadística y Registro de la DGA, a efectos de la asignación de la categoría 1065 que les permita la presentación del DUA de internamiento acumulado por tubería.
+3) Las compras realizadas en el mes inmediato anterior, deberán ampararse a un DUA de internamiento modalidad 09-07 denominado “Internamiento por venta, intercambio, transferencia o devolución de producto terminado, materia prima y productos en proceso entre ZF recibidas por tubería”, con forma de despacho normal y lo presenta la empresa que compra. Dicho DUA deberá presentarse en los primeros cinco días hábiles del mes inmediato siguiente.
+4) El declarante deberá transmitir el DUA 09-07 declarando de la siguiente forma:
+a) forma de despacho DEST_URGE, “N”.
+b) clase de medio de transporte UNID_TRANS, 8 “Tubería”.
+c) momento de declaración del inventario (MON_ASOC), 3 “Sin inventario”.
+d) origen del Tipo de inventario (TIPO_CARGA), 9 “Sin Inventario”.
+e) modalidad de Transporte (TIPO_TRANS), 8 “Tubería”.
+f) modalidad de Transporte (VIA_TRANSP), 8 “Tubería”.
+g) código de exoneración (CODI_LIBER), 6002.
+h) código de excepción (CODI_CEREX), 6002.
+5) El declarante debe transmitir en el campo denominado NUME_FACTU asignado a la factura comercial un resumen de la totalidad de la facturas transmitidas en el periodo que comprende la declaración acumulada. Esa sumatoria debe detallar el número de cada una de las facturas individuales y la descripción de los productos comprados por medio del sistema de trasiego por tubería. Asimismo, en el expediente de la declaración deberá conservar el original de cada una de las facturas tramitadas en el período.
+6) El declarante deberá consignar en la casilla de observaciones del DUA acumulado 09-07, el período mensual que declara, la cantidad inicial y final de mercancías trasegadas o bien del peso de las cantidades de materia prima, producto terminado o en proceso que reportan los equipos de medición por cada tipo de mercancía. Con la declaración debe adjuntarse cada uno de las impresiones emitidas por los equipos de medición. La declaración deberá estar amparada a documentos que obren el expediente del DUA.
+7) La empresa vendedora de ZF confecciona el Resumen de Entrega de Pedidos con la siguiente información:
+a) Número consecutivo por año
+b) Número de factura
+c) Fecha de la factura
+d) Período comprendido
+e) Tipo de mercancía vendida
+f) Cantidad de mercancía vendida
+g) Valor total del Pedido
+h) Nombre de la empresa de Zonas Francas que compra
+i) Número del DUA 09-07 “Internamiento por venta, intercambio, transferencia o devolución de producto terminado, materia prima y productos en proceso entre ZF recibidas por tubería”, que presenta la empresa que le compra, una vez que el DUA haya alcanzado el estado ORI.
+8) El declarante deberá presentar mensualmente, un DUA 09-07 por cada empresa de ZF que le vende y consignar en los campos TDOCZFRA y NDOCZFRA, el tipo y número de identificación de la empresa de ZF responsable de la venta o traspaso de las mercancías.
+9) En caso de “revisión documental y reconocimiento físico”, el declarante es decir la empresa que compra, deberá presentar al funcionario aduanero designado el expediente que contiene el “Resumen de Facturas”, el original de las facturas individuales, el Resumen de Entrega de Pedidos que lleva la empresa que le vende y los “Documentos de Entrega Diaria de mercancías trasegadas por tubería”, con el recibido conforme del cliente y cualquier otro documento que se haya utilizado para sustentar la información del DUA 09-07.
+10) El declarante deberá enviar el mensaje de confirmación del DUA dentro del plazo de 5 días naturales una vez que el DUA alcance el estado ORD y en él se podrá corregir la información declarada. Una vez confirmado el DUA adquirirá el estado ORI por lo que para cualquier rectificación al mismo se deberá presentar formal solicitud ante la aduana de control.
+11) Por cada DUA de “Internamiento por venta, intercambio, transferencia o devolución de producto terminado, materia prima y productos en proceso entre ZF recibidas por tubería”, modalidad 09-07 en estado ORI, la empresa de ZF que compra deberá confeccionar un expediente rotulado con el número de DUA en donde conserve la documentación obligatoria que la sustentó.
+(*) (Así adicionado el punto 2) anterior referente a:” 2) De las Mercancías de Envío Reiterado” mediante resolución N° 155-2014DGA del 9 de julio de 2014)
 PROCEDIMIENTO DEL RÉGIMEN DE PERFECCIONAMIENTO ACTIVO(*)
 (*)(Mediante resolución DGA-399 del 17 de diciembre de 2010, se adicionó el anterior procedimiento)
 (Nota de Sinalevi: Mediante resolución RES-DGA-061-2011 del 3 de febrero del 2011, se indica rectificar, en el Procedimiento de Régimen de Perfeccionamiento Activo, el código de la declaración aduanera, modalidad 01-44, denominado “Salida de materia prima e insumos de PA utilizados en producción”, para que se lea de la siguiente manera:Declaración Aduanera, modalidad 11-44, denominado “Salida de materia prima e insumos de PA utilizados en producción”. No obstante; mediante información suministrada por la Dirección General de Adunas dicho código no se encuentra contemplado en este procedimiento)
