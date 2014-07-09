@@ -14,3 +14,4 @@ Manual de Valores Base Unitarios por Tipología Constructiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-01 | la propia norma |
+| 2 | 2014-07-09 | Reglamento 0 (2014-07-09) |
