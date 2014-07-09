@@ -1,1 +1,0 @@
-Artículo 4º—Es entendido que toda solicitud se hace bajo declaración jurada de que son ciertos y ajustados a la verdad los datos y los documentos presentados. Serán absolutamente nulas las incorporaciones acordadas con base en solicitudes o documentos falsos y en cualquier momento el Colegio podrá tramitar su nulidad de conformidad con la Ley General de la Administración Pública.
