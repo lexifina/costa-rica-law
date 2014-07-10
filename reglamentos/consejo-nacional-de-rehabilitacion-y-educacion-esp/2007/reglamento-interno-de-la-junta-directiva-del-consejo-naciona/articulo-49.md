@@ -1,6 +1,1 @@
-CAPÍTULO IX
-Responsabilidad de los delegados
-Artículo 49.—Todos los delegados deberán guardar orden en las sesiones de Junta Directiva, y deberán dirigirse con decoro y respeto hacia los otros delegados y hacia los invitados a las sesiones. En caso de infracción a lo anterior la Junta Directiva por acuerdo de mayoría absoluta podrá imponer las sanciones correspondientes al delegado de acuerdo con lo siguiente:
-1. Por una vez: Llamada de atención verbal o por escrito de acuerdo con la gravedad de la falta.
-2. Por segunda vez: Voto de censura.
-3. Por tercera vez: Separación del Órgano Colegiado, por acuerdo de dos tercios del total de los delegados. Para ello la votación será secreta y por escrito.
+Artículo 49.—El acta será aprobada en la siguiente sesión ordinaria y los acuerdos contenidos en la misma quedarán firmes hasta su aprobación. A criterio del Consejo Directivo se podrá aprobar la firmeza y ejecución de determinados acuerdos en la misma sesión, para lo cual se deberá contar con una votación no menor a dos tercios de la totalidad de y las Delegadas presentes del Consejo Directivo. Las Actas carecerán de validez hasta que hayan sido debidamente firmadas por el o la Secretaria y el o la Presidenta del Consejo Directivo, lo cual deberá concretarse en un plazo no mayor a 15 días naturales.

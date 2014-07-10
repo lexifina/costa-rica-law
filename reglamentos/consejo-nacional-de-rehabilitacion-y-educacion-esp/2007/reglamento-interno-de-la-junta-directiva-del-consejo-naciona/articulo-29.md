@@ -1,1 +1,3 @@
-Artículo 29.—Para sesionar extraordinariamente la convocatoria deberá hacerse por escrito con al menos veinticuatro horas de antelación, salvo casos de urgencia. En la convocatoria deberán indicarse los temas de la agenda y en la sesión se conocerán estrictamente los puntos contenidos en ella.
+CAPÍTULO IV
+De la Secretaría de Actas
+Artículo 29.—La Secretaría de Actas será la instancia encargada de las funciones administrativas que se deriven de la gestión del Consejo Directivo. La Secretaría de Actas la atenderá un(a) funcionario(a) de la Institución, el(la) cual será designado(a) directamente por la Consejo Directivo a partir de una terna presentada por la Unidad de Recursos Humanos.

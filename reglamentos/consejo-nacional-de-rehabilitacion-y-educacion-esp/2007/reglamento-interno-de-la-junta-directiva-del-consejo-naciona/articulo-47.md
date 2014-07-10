@@ -1,1 +1,4 @@
-Artículo 47.—En todo caso deberá existir una estrecha relación entre el motivo del viaje y la naturaleza del cargo que desempeña el delegado, además del interés público que debe privar en la gestión.
+CAPITULO VII
+De las Actas
+Artículo 47.—El acta preliminar de cada sesión contendrá el nombre de los y las Delegadas titulares, los y las suplentes, los y las invitadas asistentes, los y las delegadas ausentes, el lugar, la fecha, la hora de inicio y finalización de la sesión, el resumen sucinto de las intervenciones de los y las delgadas, los puntos principales de la deliberación, la forma y el resultado de la votación especificando: votos a favor, votos contrarios y abstenciones y los acuerdos tomados. Asimismo se consignará en el acta el momento de ingreso y salida de los delegados(as) durante el trascurso de la sesión.
+Cuando algún delegado o delegada del Consejo Directivo manifieste expresamente su voluntad de que se consigne en el acta alguna manifestación puntual, lo señalará a quien ocupe la Presidencia del Consejo en el momento de su intervención, debiendo el o la Secretaria de Actas trascribir literalmente lo indicado.

@@ -1,1 +1,1 @@
-Artículo 19.—Corresponde al Comité Directivo preparar la orden del día de los asuntos a tratar en las sesiones de la Junta Directiva y analizar los asuntos delegados por el Órgano Colegiado.
+Artículo 19.—Se aplicará el régimen de responsabilidad previsto en la Ley General de la Administración Pública y en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública a aquellos delegados o delegadas que en ocasión de su cargo hayan actuado con dolo o culpa grave en el desempeño de sus deberes.

@@ -1,2 +1,3 @@
-Artículo 31.—Las sesiones serán siempre privadas, sin embargo, por acuerdo de mayoría absoluta la Junta Directiva podrá permitir la presencia de invitados. La Junta Directiva determinará si les otorga a los invitados el derecho de participar en las deliberaciones con derecho a voz pero sin voto.
-Se exceptúan de esta medida los delegados suplentes, los cuales podrán asistir regularmente a las sesiones sin requerir autorización previa de la Junta Directiva, no obstante, cuando asistan a una sesión en la cual se encuentra presente el titular de la representación, podrán intervenir con derecho a voz pero sin voto.
+CAPÍTULO V
+De las sesiones
+Artículo 31.—El Consejo Directivo sesionará en forma ordinaria dos veces por mes y en forma extraordinaria cada vez que sea convocado por quien ocupe el cargo de la Presidencia del Consejo Directivo. Podrá convocarse a sesión extraordinaria cuando así lo soliciten por escrito al menos seis delegados(as) ante el(la) Secretario(a) Ejecutivo(a).

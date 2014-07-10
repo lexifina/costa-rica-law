@@ -1,3 +1,1 @@
-CAPÍTULO V
-De las sesiones
-Artículo 28.—La Junta Directiva sesionará en forma ordinaria dos veces por mes y en forma extraordinaria cada vez que sea convocada por el Comité Directivo. Podrá convocarse a sesión extraordinaria cuando así lo soliciten por escrito al menos seis delegados al Director Ejecutivo.
+Artículo 28.—Cuando por motivos de caso fortuito o fuerza mayor el Secretario(a) Ejecutivo(a) deba separarse de su cargo de manera imprevista, el Consejo Directivo deberá convocar a una sesión extraordinaria para designar a una persona sustituta, a más tardar dentro de los dos días hábiles siguientes a la separación del cargo.

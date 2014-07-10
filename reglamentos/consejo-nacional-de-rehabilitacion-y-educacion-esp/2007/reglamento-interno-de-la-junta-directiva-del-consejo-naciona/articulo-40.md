@@ -1,1 +1,1 @@
-Artículo 40.—Una vez presentada la moción, la misma se someterá a votación, sin más trámite.
+Artículo 40.—De los acuerdos. Los acuerdos del Consejo Directivo se tomarán por mayoría absoluta de los votos de los y las Delegadas presentes. Se exceptúa de esta medida el nombramiento y remoción del Secretario(a) Ejecutivo(a) y del Auditor(a) Interno(a), para lo cual se requerirá la mayoría calificada de al menos ocho votos.

@@ -1,1 +1,2 @@
-Artículo 4º—Los delegados titulares y sus suplentes serán nombrados por el máximo jerarca del miembro representado por un periodo de cuatro años.
+Artículo 4º—Las y los delegados titulares y sus suplentes serán nombrados(as) por el máximo jerarca de la entidad representada por un periodo de cuatro años. En caso de pérdida de la condición de delegado(a), el ente representado nombrará un(a) sustituto(a) de manera inmediata por el plazo restante para cumplir el periodo.
+En el caso de las personas representantes de las Organizaciones de Personas con Discapacidad y de Padres de Familia de Niños Excepcionales, los mismos de serán designados de conformidad con lo establecido en el artículo 28 del Reglamento a la Ley 7600.

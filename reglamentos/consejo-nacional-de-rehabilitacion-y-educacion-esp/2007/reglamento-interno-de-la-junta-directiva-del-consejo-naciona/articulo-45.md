@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-De los viáticos
-Artículo 45.—Los viáticos de los delegados de las entidades públicas y empresas privadas integrantes de la Junta Directiva, serán asumidos por sus representadas.
+Artículo 45.—Los proponentes de cada moción podrán hacer uso de la palabra en favor de su iniciativa, hasta por un plazo que, individualmente o en conjunto, no exceda de cinco minutos. Otros Delegados y Delegadas podrán referirse, individualmente o en conjunto, en contra de la moción por un plazo igual.

@@ -1,1 +1,1 @@
-Artículo 32.—Las sesiones de junta directiva se llevarán a cabo en la sede central de la Institución, excepto cuando la Junta Directiva por mayoría absoluta acuerde celebrar sus sesiones en otro recinto.
+Artículo 32.—Para sesionar extraordinariamente la convocatoria deberá hacerse por escrito con al menos veinticuatro horas de antelación, salvo casos de urgencia. En la convocatoria deberán indicarse los temas de la agenda y en la sesión se conocerán estrictamente los puntos contenidos en ella.

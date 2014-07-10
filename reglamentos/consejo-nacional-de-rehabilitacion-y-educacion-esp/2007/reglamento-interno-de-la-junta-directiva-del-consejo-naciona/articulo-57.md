@@ -1,0 +1,1 @@
+Artículo 57.—La Secretaría de Consejo Directivo tendrá la responsabilidad de dar seguimiento a las denuncias trasladadas a la entidad representada a efecto de verificar que se cumpla con el debido proceso de investigación.

@@ -1,1 +1,2 @@
-Artículo 37.—La sesión podrá suspenderse temporal o permanentemente por decisión del Presidente de la Junta Directiva o por acuerdo de mayoría absoluta, cuando medien situaciones de caso fortuito o fuerza mayor.
+Artículo 37.—Los y las Delegadas del Consejo Directivo, así como los y las funcionarias de la institución que asistan a las sesiones, deberán guardar la más absoluta reserva sobre las deliberaciones y resoluciones del Órgano Colegiado.
+La inobservancia a la presente disposición podrá constituir falta grave la cual, de comprobarse debidamente mediante los procedimientos legalmente establecidos, permitirá al Consejo Directivo solicitar la aplicación de las sanciones disciplinarias de mérito ante las instancias correspondientes.

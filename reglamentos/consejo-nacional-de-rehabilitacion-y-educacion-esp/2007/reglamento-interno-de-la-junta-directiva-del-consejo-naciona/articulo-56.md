@@ -1,2 +1,1 @@
-Artículo 56.—La presente modificación al Reglamento rige a partir de su publicación en el Diario Oficial y deroga toda disposición de rango igual o menor que se le oponga.
-Heredia, 13 de noviembre del 2007.
+Artículo 56.—Serán responsables personalmente ante terceros los y las Delegadas que actúen con dolo o culpa grave en el desempeño de sus deberes o con ocasión de su cargo. Se considerarán en esta situación los y las Delegadas que emitieren actos manifiestamente ilegales, de conformidad con lo dispuesto en el artículo 199 de la Ley General de la Administración Pública.
