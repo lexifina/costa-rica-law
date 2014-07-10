@@ -8,6 +8,7 @@ c- Clase documental: está determinada por el procedimiento empleado para transm
 4. Audiovisuales: combinan la imagen en movimiento y el sonido: filmes, cintas de vídeo, videodiscos.
 5. Electrónicos o informáticos: son los generados a partir de una computadora: disquetes, discos ópticos, cintas, Discos Compactos, cintas magnéticas y otros.
 d- Tablas de plazos: Es el instrumento mediante el cual se determinan los tipos documentales que se producen o reciben en la Institución, así como su vigencia administrativa o legal, su valor científico o cultural, la cantidad, cuáles oficinas tienen originales o copias, en qué medios están almacenados y otros datos de carácter general que permiten controlar la producción documental en la Institución.
-e- Fondo documental: está integrado por el conjunto de documentos de archivo, sean de cualquier tipo y clase documental, que se encuentran custodiados en los diferentes Archivos de Gestión.
+e-Fondo documental: está integrado por el conjunto de documentos de archivo, sean de cualquier tipo y clase documental, que se encuentran custodiados en los diferentes Archivos de Gestión y Archivo Central
+(Así reformado el inciso anterior mediante sesión ordinaria N° 439 del 10 de julio del 2014)
 f- Gestión Documental: conjunto normas técnicas y prácticas usadas para administrar el flujo de documentos de todo tipo en una organización, permitir la recuperación de información desde ellos, determinar el tiempo que los documentos deben guardarse, eliminar los que ya no sirven y asegurar la conservación indefinida de los documentos más valiosos, aplicando principios de racionalización y economía.
 g- Archivos de Gestión: los archivos de los diferentes Departamentos y Unidades Administrativas de Popular Pensiones.
