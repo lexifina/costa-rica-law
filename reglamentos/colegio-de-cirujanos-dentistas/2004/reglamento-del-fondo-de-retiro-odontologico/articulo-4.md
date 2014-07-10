@@ -1,2 +1,3 @@
-Artículo 4º—Política de inversiones. Los recursos financieros del Fondo de Retiro Odontológico, deberán invertirse dando prioridad a la seguridad y diversificación de la cartera. Las inversiones podrán realizarse en títulos públicos y en colocaciones mediante préstamos a los colegiados, garantizados en un reglamento de crédito a los colegiados.
-Corresponde a la junta directiva del colegio, dictar el reglamento de crédito y la política y estrategias de inversión, las cuales deberán revisarse anualmente.
+Artículo 4º—Política de Inversiones. Los recursos financieros del Fondo de Retiro Odontológico, deberán invertirse dando prioridad a la seguridad y diversificación de la cartera. Las inversiones podrán realizarse tanto en títulos del sector público como del sector privado, así como en colocaciones mediante préstamos a los colegiados, garantizados en un reglamento de crédito a los colegiados.
+Corresponde a la Junta Directiva del Colegio, dictar el reglamento de crédito y la política y estrategias de inversión, las cuales deberán revisarse anualmente.
+(Así reformado mediante sesión extraordinaria N° 65-2014 del 10 de julio del 2014)
