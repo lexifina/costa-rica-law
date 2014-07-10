@@ -1,0 +1,1 @@
+Artículo 2º—La solicitud del DIDI debe ser formulada por la Misión Diplomática u Organismo Internacional que acredite al funcionario -o familiar- ante el Departamento de Inmunidades y Privilegios, Sección de Documentación e Identificación, de la Dirección General de Protocolo y Ceremonial del Estado, a quien le compete la emisión y entrega de dichos documentos.

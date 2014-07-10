@@ -1,0 +1,1 @@
+Artículo 10.—En caso de pérdida o robo del DIDI, la Misión Diplomática u Organismo Internacional debe comunicarlo a la mayor brevedad posible al Ministerio de Relaciones Exteriores y Culto, y presentar junto con la solicitud de reposición, una Declaración Jurada de los hechos acaecidos ante notario por parte del titular del DIDI o bien una denuncia policial.

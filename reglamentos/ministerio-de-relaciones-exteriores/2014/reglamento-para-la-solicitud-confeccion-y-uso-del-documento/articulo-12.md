@@ -1,0 +1,1 @@
+Artículo 12.—Este Decreto deroga al Decreto N° 10715-RE del 22 de octubre de 1979 denominado “Carnés o Distintivos Ministerio Relaciones Exteriores y Culto” publicado en el Diario Oficial La Gaceta N° 208, del 6 de noviembre de 1979.

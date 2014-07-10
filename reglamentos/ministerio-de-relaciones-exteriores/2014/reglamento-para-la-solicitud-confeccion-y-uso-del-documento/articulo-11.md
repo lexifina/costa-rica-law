@@ -1,0 +1,1 @@
+Artículo 11.—Cuando el portador de un DIDI cesare en sus funciones, dicho carné deberá ser devuelto por la Misión Diplomática u Organismo Internacional acreditante, al Ministerio de Relaciones Exteriores y Culto.

@@ -1,0 +1,1 @@
+Artículo 9º—El portador de un DIDI puede ingresar al territorio nacional, permanecer y salir del mismo, cuantas veces lo necesite, con la sola presentación en el puesto migratorio de su pasaporte y DIDI vigentes, sin necesidad de visa de permanencia.
