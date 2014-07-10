@@ -1,0 +1,1 @@
+III.—El Departamento de Armas y Explosivos solamente podrá inscribir el tipo de armas descritas, si la misma haya ingresado al país con el permiso dictado por la Dirección General de Armamento, en el tanto que dicho permiso haya sido concedido antes del rige de este Acuerdo.
