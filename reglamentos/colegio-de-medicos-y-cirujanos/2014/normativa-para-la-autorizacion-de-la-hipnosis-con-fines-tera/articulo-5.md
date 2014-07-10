@@ -1,0 +1,1 @@
+Artículo 5º—El ejercicio o práctica de la hipnosis con fines terapéuticos en seres humanos, debe hacerse en todo momento en apego a las normas ética del Colegio Profesional que le corresponde al profesional y al marco legal costarricense.

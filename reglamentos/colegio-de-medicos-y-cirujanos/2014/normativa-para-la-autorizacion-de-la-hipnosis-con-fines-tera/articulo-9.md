@@ -1,0 +1,5 @@
+Artículo 9º—Publicidad. La divulgación, la propaganda y el anuncio de la hipnosis con fines terapéuticos en seres humanos, en medios de comunicación colectiva por los profesionales debidamente autorizados así como su enseñanza, solo podrá realizarse con la previa autorización del Colegio de Médicos y Cirujanos.
+Artículo 9º—La Junta de Gobierno, delegará en la Dirección Académica, la gestión de las solicitudes de autorización para la práctica de hipnosis con fines terapéuticos en seres humanos al Colegio de Médicos
+a. La Dirección Académica, podrá realizar las gestiones de las solicitudes, analizará los casos, verificará el cumplimiento de requisitos, y emitirá una recomendación a la Junta de Gobierno del Colegio de Médicos.
+b. Solo la Junta de Gobierno del Colegio de Médicos y Cirujanos, está facultada y tiene potestad legal, para aprobar o denegar las solicitudes de autorización para la práctica de hipnosis con fines terapéuticos en seres humanos.
+(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo N° 9)
