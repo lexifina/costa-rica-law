@@ -1,0 +1,1 @@
+3. Establecer de carácter obligatorio para los tecnólogos que soliciten la autorización en la Tecnología en Podología, el cumplimiento de todos los requisitos establecidos en la Normativa de Tecnólogos en Ciencias Médicas autorizadas por el Colegio de Médicos y Cirujanos, publicada en La Gaceta N° 199 del 16 de octubre de 2012.
