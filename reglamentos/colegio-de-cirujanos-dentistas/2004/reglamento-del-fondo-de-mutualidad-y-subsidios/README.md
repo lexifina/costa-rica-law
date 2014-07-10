@@ -14,3 +14,4 @@ Reglamento del fondo de mutualidad y subsidios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-23 | la propia norma |
+| 2 | 2014-07-10 | Reglamento 65 (2014-07-10) |
