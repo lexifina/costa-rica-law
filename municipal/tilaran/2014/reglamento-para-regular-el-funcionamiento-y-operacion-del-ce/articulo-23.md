@@ -1,0 +1,1 @@
+Artículo 23.—Del programa de Atención. El programa de atención que se desarrolla en el Centro debe estar basado en el Plan de Estudio del Ministerio de Educación Pública de Costa Rica y el modelo de atención referido por la Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil.

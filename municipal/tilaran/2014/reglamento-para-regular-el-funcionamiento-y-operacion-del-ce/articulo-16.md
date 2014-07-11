@@ -1,0 +1,1 @@
+Artículo 16.—Modificaciones: El operador podrá realizar modificaciones cuando así lo determine, de acuerdo a la normativa establecida por el IMAS y la Municipalidad de Tilarán. Estas modificaciones se deberán archivar en expedientes separados y por número de modificación.
